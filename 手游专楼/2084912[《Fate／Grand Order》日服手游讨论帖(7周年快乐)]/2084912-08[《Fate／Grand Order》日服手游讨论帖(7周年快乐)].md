@@ -1505,3 +1505,59 @@ fgo要存货那可太多了吧，比如突然配合魔夜出个青子什么的�
 
 一張2024禮裝...結束這回合
 
+
+*****
+
+####  khxooo  
+##### 10653#       发表于 2024-1-1 02:04
+
+不知不觉已经攒到505了，还有碎片都能换50多颗石头了，什么周瑜、郑成功完全没兴趣，按照这情况3月怕不是能攒够一井<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechins  
+##### 10654#       发表于 2024-1-1 02:06
+
+ 本帖最后由 zechins 于 2024-1-1 02:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">抽到了，虽然有很多剑光炮了已经，但是因为FSR是去年玩得很开心的游戏（也是难得首发没觉得当了大冤种的），也很喜欢武尊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+存石头看联动出谁了，有弟橘媛和妈妈就抽一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  khxooo  
+##### 10653#       发表于 2024-1-1 02:04
+
+不知不觉已经攒到505了，还有碎片都能换50多颗石头了，什么周瑜、郑成功完全没兴趣，按照这情况3月怕不是能攒够一井<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechins  
+##### 10654#       发表于 2024-1-1 02:06
+
+ 本帖最后由 zechins 于 2024-1-1 02:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">抽到了，虽然有很多剑光炮了已经，但是因为FSR是去年玩得很开心的游戏（也是难得首发没觉得当了大冤种的），也很喜欢武尊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+存石头看联动出谁了，有弟橘媛和妈妈就抽一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  eilot  
+##### 10655#       发表于 2024-1-1 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63498985&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-1 01:08</a>
+
+fgo要存货那可太多了吧，比如突然配合魔夜出个青子什么的。反正各种牛鬼蛇神随便出都能出几年… ...</blockquote>
+現有的1~3星女角隨便找一些升格到4~5星，都能當成新人物
+
+例如各種泳裝版
+
+男角都能這樣升格，那些比利呂布都近於失蹤狀態，活動劇情都不帶他們玩，只是路人雜兵
+
+還有其他FATE系聯動，魔伊也只是出了3個人物(再加2個泳裝)
+

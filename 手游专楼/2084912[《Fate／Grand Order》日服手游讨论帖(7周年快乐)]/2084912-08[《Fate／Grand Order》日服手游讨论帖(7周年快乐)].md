@@ -1425,3 +1425,63 @@ new了泡馍，不亏
 
 <img src="https://img.saraba1st.com/forum/202401/01/002145s332pcx59w0zb9wp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangun22  
+##### 10645#       发表于 2024-1-1 00:46
+
+还不都是借口，主要还是没出自己想要的而已，倒是1月联动倒是没想到，总以为要5月
+
+*****
+
+####  溯夜  
+##### 10646#       发表于 2024-1-1 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63498459&amp;ptid=2084912" target="_blank">何处分可 发表于 2024-1-1 00:17</a>
+太抽象了</blockquote>
+这不一眼德古拉，吸血鬼元素都糊脸上了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  v22325  
+##### 10647#       发表于 2024-1-1 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇尼道中即死几十万血的小怪还挺爽的,难怪看老看人带道满打周回
+
+*****
+
+####  jackyhuang  
+##### 10648#       发表于 2024-1-1 01:05
+
+我还真的是期待新年能没来由空降个新从者的
+其实就是螺旋狗/蘑菇没有存货了是吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  v22325  
+##### 10649#       发表于 2024-1-1 01:08
+
+<blockquote>jackyhuang 发表于 2024-1-1 01:05
+我还真的是期待新年能没来由空降个新从者的
+
+其实就是螺旋狗/蘑菇没有存货了是吧
+</blockquote>
+fgo要存货那可太多了吧，比如突然配合魔夜出个青子什么的。反正各种牛鬼蛇神随便出都能出几年…
+
+*****
+
+####  jackyhuang  
+##### 10650#       发表于 2024-1-1 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63498985&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-1 01:08</a>
+fgo要存货那可太多了吧，比如突然配合魔夜出个青子什么的。反正各种牛鬼蛇神随便出都能出几年… ...</blockquote>
+青子那也是大家都认得的人物啊
+我想要的是当年空降个武藏再来个153主线那样的效果啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

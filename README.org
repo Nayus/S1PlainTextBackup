@@ -12,7 +12,9 @@
 
 [[https://github.com/TomoeMami/S1PlainTextArchive2022][2022年历史存档]]
 
-[[https://github.com/TomoeMami/S1PlainTextArchive2023][2023年至今历史存档]]
+[[https://github.com/TomoeMami/S1PlainTextArchive2023][2023年历史存档]]
+
+[[https://github.com/TomoeMami/S1PlainTextArchive2024][2024年至今历史存档]]
 
 *** 全文搜索方式
 

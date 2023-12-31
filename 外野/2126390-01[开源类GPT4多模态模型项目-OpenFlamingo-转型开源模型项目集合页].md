@@ -1,0 +1,21321 @@
+
+*****
+
+####  Machinery  
+##### 908#       发表于 2023-10-24 16:03
+
+FreeNoise
+
+通过噪声重新调度实现免调整的更长的视频扩散生成
+
+项目主页:http://haonanqiu.com/projects/FreeNoise.html
+
+github项目主页:https://github.com/arthur-qiu/LongerCrafter
+
+随着大规模视频数据集的可用性和扩散模型的进步，文本驱动的视频生成取得了实质性重大进展，然而，现有的视频生成模型通常在有限数量的帧上进行训练，导致它们无法在推理过程中生成高保真的长视频
+
+此外，这些模型仅支持单文本条件(single-text conditions)，而现实生活场景通常需要多文本条件(multi-text conditions)，因为视频内容随时间变化
+
+为了应对这些挑战，本研究探讨了扩展文本驱动功能以生成基于多个文本条件的更长视频的潜力:
+1.首先分析视频扩散模型中初始噪声的影响，然后，基于对噪声的观察，提出了FreeNoise，一种免调整(tuning-free)训练且高效(time-efficient)的范式，可以增强预训练视频扩散模型的生成能力，同时保持内容一致性，具体来说，不是初始化所有帧的噪声，而是为了长程相关重新调度一系列噪声，并通过基于窗口的函数(window-based function)对它们进行时间注意
+
+2.此外，还设计了一种新颖的运动注入方法(motion injection method)来支持根据多个文本提示生成视频
+
+大量的实验验证了本方法在扩展视频扩散模型的生成能力方面的优越性，值得注意的是，与之前最佳性能的方法带来的约255%的额外时间成本相比，本方法仅产生了微不足道的17%的时间成本
+
+<img src="https://img.saraba1st.com/forum/202310/24/160250qyanxdpxzzcdecg5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-154931.jpg</strong> (134.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:02 上传
+
+长视频推理的挑战，随机噪声ϵ1和ϵ2具有与模型训练时相同的帧数，所有结果都是在相同的文本提示下生成的：“a man is boating on a lake”
+
+<img src="https://img.saraba1st.com/forum/202310/24/160259grdrljtt9839t39t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-155124.jpg</strong> (280.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:02 上传
+
+时间建模的案例研究，对于(A)和(B)中的“w/o Tconv”结果，与相同初始噪声帧对应的帧用相同的颜色标记
+
+<img src="https://img.saraba1st.com/forum/202310/24/160303xmwzpqkq1k1bpbw3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-155300.jpg</strong> (34.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:03 上传
+
+基于局部窗口的注意力融合图，每个窗口的大小为N作为训练视频长度
+
+<img src="https://img.saraba1st.com/forum/202310/24/160308x08eeeeqtncx8ctg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-155432__01.jpg</strong> (53.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:03 上传
+
+长视频生成的定量对比
+
+<img src="https://img.saraba1st.com/forum/202310/24/160312cclh9pcncna5dqq6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-155432__02.jpg</strong> (242.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:03 上传
+
+长视频生成的定性比较
+
+左侧提示为：“A chihuahua in astronaut suit floating in space, cinematic lighting, glow effect”
+右侧提示：“A very happy fuzzy panda dressed as a chef eating pizza in the New York street food truck”
+
+<img src="https://img.saraba1st.com/forum/202310/24/160318jzwnbsqn5in8sosa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-155737.jpg</strong> (44.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:03 上传
+
+用户研究结果，用户需要在内容一致性、视频质量和视频文本对齐方面从提出的FreeNoise与其他基线方法中选择最好的一个
+
+<img src="https://img.saraba1st.com/forum/202310/24/160325laoa8muj92aj3u4m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-155903.jpg</strong> (136.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:03 上传
+
+多提示视频生成的定性比较
+
+左侧的多重提示：“A camel running on the snow field”→“A camel standing on the snow field”
+右侧的多重提示：“An astronaut resting on a horse”→“An astronaut riding a horse”
+
+<img src="https://img.saraba1st.com/forum/202310/24/160330ngjxo3ndg83o8308.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-160130.jpg</strong> (320.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:03 上传
+
+消融实验结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 909#       发表于 2023-10-24 16:49
+
+Cola
+
+大型语言模型是视觉推理协调者
+
+github项目主页:https://github.com/cliangyu/Cola
+
+视觉推理需要多模态感知和对世界的常识认知，最近，人们提出了多种视觉语言模型(VLM/vision-language models)方法，在各个领域都具有出色的常识推理能力，然而，如何利用这些互补的VLM的集体力量却很少被探讨，像聚合(ensemble)这样的现有方法仍然难以将这些模型与所需的高阶通信(higher-order communication)集合起来
+
+在这项工作中，提出了Cola，一种协调多个VLM进行视觉推理的新颖范式，本文的主要见解是，大型语言模型(LLM)可以通过利用自然语言通信来有效地协调多个VLM从而利用其独特且互补的功能
+
+大量实验表明，指令调整变体Cola-FT在视觉问答(VQA/visual question answering)、外部知识VQA(outside knowledge VQA)、视觉蕴涵(VE/Visual Entailment)和视觉空间推理任务(visual spatial reasoning tasks)上实现了SOTA性能
+
+此外，研究还表明，上下文学习变体Cola-Zero在零样本和少样本设置中表现出了富有竞争力的性能，无需进行微调，通过系统化的消融实验和可视化，验证了LLM协调者确实理解了指令提示以及VLM的单独功能，然后成功协调了它们以实现令人印象深刻的视觉推理能力
+
+<img src="https://img.saraba1st.com/forum/202310/24/164710jt61000t61401sz5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-161859.jpg</strong> (161.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:47 上传
+
+提案的Cola协调语言模型进行视觉推理，根据视觉上下文和提供的伪(plausible)答案来协调多个预训练的LLM
+
+<img src="https://img.saraba1st.com/forum/202310/24/164717iej311cooirorcjm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-162241.jpg</strong> (203.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:47 上传
+
+LM提示模板，LM被指示协调VLM，每个问题集都定义了视觉上下文、问题(和选择)以及伪答案
+
+<img src="https://img.saraba1st.com/forum/202310/24/164722mpczqzvupppp7v7v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-162553.jpg</strong> (484.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:47 上传
+
+整体表现，Model Spec.表示规范总结了每种方法中采用的详细VLM和LM及其参数，FT和ICT分别表示微调和上下文学习，向下的箭头表示FT和ICT越少，效率越高，不同数据集中的准确度指标略有不同，向上的箭头表示精度越高越好，用粗体字体标记了每个数据集上的最佳性能，用下划线标记次佳性能
+
+<img src="https://img.saraba1st.com/forum/202310/24/164728plswbco7ln000iwc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-162850.jpg</strong> (228.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:47 上传
+
+定性例子，正确的选择有下划线
+
+最左边：A-OKVQA的常识题示例；  LLM遵循BLIP的答案
+左：A-OKVQA的视觉问题示例；  LLM遵循OFA的答案
+右：e-SNLI-VE示例；  LLM协调后选择另一个方案
+最右边：VSR的示例；  LLM根据OFA的标题说明和BLIP的答案进行预测
+
+Cola-Zero是在零样本设置中推理出来的，最底行Cola-FT(交换的VLM答案标签)表示LLM根据其各自的功能遵循某些VLM的答案，LLM答案与VLM答案标签的分布相关
+
+<img src="https://img.saraba1st.com/forum/202310/24/164800of4515nqvcvk1fn4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-163413.jpg</strong> (105.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:48 上传
+
+使用单个 VLM 的消融研究结果(从顶部开始 #1、#2)、仅VLM的伪答案(无标题说明，#3)、VLM的标题说明(无为答案，#4)、在指令调整时扰动VLM标题说明/答案标签（#5、#6），在评估时交换答案标签(#7)
+
+在#6中，LLM无法学习协调先验，在#7中，LLM可以学习协调先验，但不能在评估时正确应用
+
+FT:指令调整； Eval:评估
+
+<img src="https://img.saraba1st.com/forum/202310/24/164815od280zaw8claf0lz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-163927.jpg</strong> (105.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:48 上传
+
+基于三个相同与不同模型的聚合方法的性能
+
+<img src="https://img.saraba1st.com/forum/202310/24/164824lat97gi1y6w9w7zx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-164027.jpg</strong> (55.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202310/24/164824xoqmszciopdti7pi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-164110.jpg</strong> (87.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:48 上传
+
+不同情形下的模型性能研究
+
+<img src="https://img.saraba1st.com/forum/202310/24/164854h57kpu0m5k3v40af.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231024-164839.jpg</strong> (169.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 16:48 上传
+
+输入Token关联性的可视化，通过特征归因可视化输入Token和输出Token“grass”之间的相关性，较关联的Token在较暗的框中突出显示，Cola-FT重点关注(a)中的问题、选择和VLM的伪答案，而如(b)所示，由于FLAN-T5指令调整，Cola-Zero特别关注指令和VLM标签
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  arb1ters  
+##### 910#       发表于 2023-10-24 18:00
+
+<blockquote>Machinery 发表于 2023-10-20 03:53
+Fuyu-8B
+
+人工智能代理者的多模态架构</blockquote>
+你的这些文章是自己机翻的，还是转载的公众号？有关注哪些公众号呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Machinery  
+##### 911#       发表于 2023-10-24 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62816795&amp;ptid=2126390" target="_blank">arb1ters 发表于 2023-10-24 18:00</a>
+你的这些文章是自己机翻的，还是转载的公众号？有关注哪些公众号呢
+
+论坛助手,iPhone ...</blockquote>
+那当然全都是我亲手翻和校对的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  arb1ters  
+##### 912#       发表于 2023-10-24 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62816837&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-10-24 18:04</a>
+那当然全都是我亲手翻和校对的
+
+—— 来自 S1Fun</blockquote>
+辛苦了，要不开个公众号和微博收收米吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Machinery  
+##### 913#       发表于 2023-10-24 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62816843&amp;ptid=2126390" target="_blank">arb1ters 发表于 2023-10-24 18:05</a>
+辛苦了，要不开个公众号和微博收收米吧
+
+论坛助手,iPhone</blockquote>
+那倒不用，这贴更新时间也不一定，主要是开源项目的集合，也方便我自己找项目，算顺手吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wly5556| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  Machinery  
+##### 914#       发表于 2023-10-25 00:25
+
+ 本帖最后由 Machinery 于 2023-10-25 00:27 编辑 
+
+S3Eval
+
+合成、可扩展、系统化评估大型语言模型的套件
+
+github项目主页:https://github.com/lfy79001/SQLEval
+
+大型语言模型(LLM)的快速进步使得诸如推理和长上下文理解等模型能力取得了发展，然而也是因为LLM能够处理的上下文更长，评估这些LLM是否获得了某些能力变得更具挑战性，包括那些可以处理达到100K Token文本长度的模型，这远远超过了人类在合理持续时间内可以可靠评估的长度
+
+在本文中，提议使用更复杂的合成任务作为代理评估方法，提出了S3Eval，一个用于LLM评估的合成、可扩展、系统化的评估套件，作为合成基准，S3Eval可以创建理论上LLM未见的任意数量的评估示例，从而减轻测试集污染问题，S3Eval的综合性质使用户能够完全控制数据集，使之能够通过缩放文本长度和跨不同场景改变任务难度来系统地探索LLM的能力
+
+S3Eval的性能与Big-Bench Hard (BBH)等现实世界基准分数之间的强相关性证明了使用S3Eval评估LLM的合理性，深入分析还揭示了更多见解，包括当答案分布稀疏或位于上下文中间时性能下降，以及模型性能的一些反直觉趋势
+
+<img src="https://img.saraba1st.com/forum/202310/25/002447oqyieldqi9h8xc7m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-001419.jpg</strong> (134.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 00:24 上传
+
+演示了S3EVAL工作流程的插图，其中通过评估对随机生成的表执行SQL查询的能力来评估LLM的功能
+
+S3Eval是一个用于大型语言模型评估和分析的平台，具有以下特点：
+1.推理：SQL包含丰富的语法，其中每个关键字都隐含着不同的推理能力，可以有效测试模型的推理能力
+2.长上下文理解：长文本评估的难点在于如何收集有意义的文本和任务，理论上S3Eval可以评估任何LLM上下文窗口长度的任何长上下文能力
+3.可控性分析：该平台允许对数据生成进行细粒度控制，比如表的详细属性、生成SQL的细粒度难度控制等等，用户可以灵活地使用进而探索LLM的更多能力
+4.动态的无数据泄露：随机构造LLM从未见过的合成数据，极大缓解了LLM评估中的数据泄露问题
+5.可定制：用户可以使用自己的xlsx/csv表来生成任意复杂度的SQL
+
+<img src="https://img.saraba1st.com/forum/202310/25/002455mzlpgu6z8z6u6ll6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-002324.jpg</strong> (72.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 00:24 上传
+
+使用精确匹配(EM/exact match)指标作为评估函数，同时也将皮尔逊相关系数(r)和肯德尔等级相关系数(τ)视为相关函数
+
+结果显示S3Eval和BBH之间具有很强的一致性，对于CodeLLM，显示了S3Eval和HumanEval之间的一致性
+
+相关评估结果:
+
+<img src="https://img.saraba1st.com/forum/202310/25/002507ay26uyiv6ckiy0ck.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-002353.jpg</strong> (297.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 00:25 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 915#       发表于 2023-10-25 16:38
+
+ 本帖最后由 Machinery 于 2023-10-25 16:41 编辑 
+
+Woodpecker
+
+多模态大语言模型的幻觉纠正
+
+github项目主页:https://github.com/BradyFU/Woodpecker
+
+幻觉(Hallucination)是笼罩在急速发展的多模态大型语言模型(MLLM)上的阴影之一，指的是生成的文本与图像内容不一致的现象，为了减轻幻觉，现有的研究主要采用指令调整的方式，经常需要使用特定的数据重新训练模型
+
+在本文中，开辟了一条不同的道路，引入了一种名为Woodpecker的免训练方法，就像啄木鸟治愈树木一样，它从生成的文本中挑选并纠正幻觉，具体来说，Woodpecker由五个阶段组成：关键概念提取(key concept extraction)、问题表述(question formulation)、视觉知识验证(visual knowledge validation)、视觉声明生成(visual claim generation)和幻觉纠正(hallucination correction)
+
+以生成后补救(post-remedy)的方式施行，Woodpecker可以轻松的为不同的MLLM提供服务，同时可以通过接触这五个阶段的中间输出结果进而获得白盒化的解释
+
+对Woodpecker进行的定量和定性评估，展示了这种新范式的巨大潜力，在POPE基准上，Woodpecker方法比作为基线的MiniGPT-4/mPLUG-Owl的准确度提高了30.66%/24.33%
+
+<img src="https://img.saraba1st.com/forum/202310/25/163647sc6zyy4pvvy4h865.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-162157.jpg</strong> (112.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:36 上传
+
+MLLM中幻觉的图示，给定图像，MLLM可能会输出对象级(object-level)和属性级(attribute-level )幻觉的相应响应
+
+<img src="https://img.saraba1st.com/forum/202310/25/163651g829ym5bjz11e591.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-162400.jpg</strong> (376.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:36 上传
+
+幻觉矫正框架示例，给定MLLM的响应，Woodpecker会纠正幻觉部分并合并基准信息以用于验证
+
+<img src="https://img.saraba1st.com/forum/202310/25/163733ohi8mi5fhhc4x6ll.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-162634__01.jpg</strong> (542.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:37 上传
+
+Woodpecker的框架，给定图像和查询，MLLM输出相应的响应通过关键概念提取、问题表述、视觉知识验证和视觉声明生成这四个步骤，得到了特定于图像和原始响应的视觉知识库，在最后一步中，以边界框作为证据来纠正响应中的幻觉
+
+<img src="https://img.saraba1st.com/forum/202310/25/163741fxh6lrhnm5nv4f46.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-162944.jpg</strong> (215.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202310/25/163741gp2p398iplzt2it7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-163114.jpg</strong> (106.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:37 上传
+
+POPE与MME的结果，w/Ours表示由Woodpecker校正的MLLM响应，每个设置中的最佳和次佳性能分别用粗体和下划线表示
+
+<img src="https://img.saraba1st.com/forum/202310/25/163822kdd99fepp9zypdtp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-163212.jpg</strong> (94.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:38 上传
+
+<img src="https://img.saraba1st.com/forum/202310/25/163822n5bw59t5e5oap95q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-163807.jpg</strong> (64.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:38 上传
+
+GPT-4V辅助评估图示与结果，准确性和详细度指标的等级为10，分数越高表示性能越好
+
+<img src="https://img.saraba1st.com/forum/202310/25/163826nxzv2y6jdkpfkylb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-163356.jpg</strong> (48.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:38 上传
+
+具有不同框架变体的MME的消融结果
+
+“default”是一个总是回答“Yes”的模型，“default w/Detector”引入了用于幻觉纠正的物体检测器，“default w/VQA”引入了VQA模型，而“default w/Woodpecker”是完整框架
+
+<img src="https://img.saraba1st.com/forum/202310/25/164144utb9i9m8ebjriexe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231025-163526.jpg</strong> (25.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 16:41 上传
+
+不同纠正结果的比例
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 916#       发表于 2023-10-26 01:01
+
+ This-is-not-a-Dataset
+
+挑战大型语言模型的大型否定基准(A Large Negation Benchmark)
+
+https://github.com/hitz-zentroa/This-is-not-a-Dataset
+
+尽管大型语言模型(LLM)已经获得了一定水平的语法知识和泛化能力，但它们无法诠释否定(negation)，而否定是自然语言处理中的关键步骤，本文试图阐明LLM对于否定为何表现不佳的原因
+
+研究组引入了一个大型的半自动生成数据集，其中包含大约400000个关于常识性知识的描述性句子，这些句子可以是真或假(that can be true or false)，其中否定以不同的形式出现在大约2/3的数据中
+
+以零样本方法使用数据集对最大的可用开源LLM进行测试来判断它们的泛化和推理能力，还微调了一些模型评估是否可以训练模型对否定的理解
+
+研究结果表明，虽然LLM能够熟练地对肯定句进行分类，但却很难处理否定句，并且缺乏对否定的深刻理解，多数依赖于肤浅的关联，尽管对否定句进行模型微调可以改善性能，但在处理否定方面缺乏泛化能力的现象仍然存在，这凸显了LLM在理解和泛化否定方面面临持续的挑战
+
+<img src="https://img.saraba1st.com/forum/202310/26/010031q16ef3s44hc4feoh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-004721.jpg</strong> (140.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:00 上传
+
+数据集中的肯定与否定句
+
+<img src="https://img.saraba1st.com/forum/202310/26/010035cx4bx111i1akkwdi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-004825.jpg</strong> (112.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:00 上传
+
+否定的常见类型与分类
+
+<img src="https://img.saraba1st.com/forum/202310/26/010040gddbfdj1jojd3h26.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-004849.jpg</strong> (118.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:00 上传
+
+句子的模式分布
+
+<img src="https://img.saraba1st.com/forum/202310/26/010044ddd0p7c1iuc5zcn5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-005004.jpg</strong> (61.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:00 上传
+
+对数据集中句子质量的人工评估
+
+<img src="https://img.saraba1st.com/forum/202310/26/010048adrmmo7766rmam6k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-005101.jpg</strong> (127.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:00 上传
+
+本文数据集的各种LLM的零样本表现，最佳结果以粗体突出显示，超过随机基线准确率的分数用下划线表示
+
+<img src="https://img.saraba1st.com/forum/202310/26/010053o3c9nj99x1nrcx4x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-005241.jpg</strong> (99.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:00 上传
+
+Flan-T5-xxl和Vicuna13B在同义词和反义模式中的准确率，在没有干扰的情况下用肯定句和否定句评估模型，超过随机基线的分数用下划线表示
+
+<img src="https://img.saraba1st.com/forum/202310/26/010113wiuvepiivd1hsuvh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-005455.jpg</strong> (53.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:01 上传
+
+在使用本文数据集对Vicuna13B和Flan-T5-xxl微调后的性能，最佳结果以粗体突出显示，超过随机基线准确率的分数用下划线表示
+
+<img src="https://img.saraba1st.com/forum/202310/26/010118w6taweetpgbga55b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-005639.jpg</strong> (116.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:01 上传
+
+使用不同类型和数量的负面知识对Vicuna13B微调后的准确度，最佳结果以粗体突出显示，超过随机基线准确率的分数用下划线表示
+
+<img src="https://img.saraba1st.com/forum/202310/26/010122ktk6cmelzketvfkv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-005816.jpg</strong> (166.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 01:01 上传
+
+在一种模式(行)上进行训练同时在其他模式(列)上进行评估时的Vicuna13B的准确率
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 917#       发表于 2023-10-26 19:58
+
+DreamCraft3D
+
+使用引导扩散先验(Bootstrapped Diffusion Prior)进行的分层3D生成(Hierarchical 3D Generation)
+
+项目主页:https://mrtornado24.github.io/DreamCraft3D/
+
+github项目主页:https://github.com/deepseek-ai/DreamCraft3D
+
+DreamCraft3D，一种分层的3D内容生成方法，利用2D参考图像指导几何雕刻(geometry sculpting)和纹理提升(texture boosting)，可以生成高保真且连贯的3D对象
+
+这项工作的中心重点是解决现有作品遇到的一致性问题，为了连贯渲染雕刻的几何形状，通过依赖于视图的扩散模型执行分数蒸馏采样(score distillation sampling)，这样会致使3D先验以及多种训练策略优先考虑几何一致性，损害了纹理的保真度
+
+借由使用引导分数蒸馏(Bootstrapped Score Distillation)来专门增强纹理，在场景的增强渲染上训练个性化Dreambooth扩散模型，为其注入正在优化的场景的3D知识，这种3D感知扩散先验的分数蒸馏为场景提供了视图一致的指导，值得注意的是，通过对扩散先验和3D场景表征的交替优化，实现了相辅相成的改进，优化的3D场景辅助训练特定于场景的扩散模型，从而为3D优化提供越来越一致的视图指导，优化因此被引导并导向了非常显著的纹理效果提升
+
+通过在整个分层生成过程中量身定制的3D先验，DreamCraft3D可以生成具有照片级真实感渲染的连贯3D对象
+
+<img src="https://img.saraba1st.com/forum/202310/26/195750zclup99oxmj999ip.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-193808.jpg</strong> (109.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:57 上传
+
+DreamCraft3D利用从文本提示生成的2D图像来指导几何雕刻和纹理提升的阶段，当雕刻几何时，视图条件扩散模型(view-conditioned diffusion model)提供关键的3D指导以确保几何一致性，然后通过进行循环优化来专门提升纹理质量，同时增强了多视图渲染，并使用它们来微调DreamBooth扩散模型，以提供多视图一致的渐变来优化场景，因此将不断先验扩散过程中蒸馏产生的损失(loss)称为引导蒸馏采样(bootstrapped distillation sampling)
+
+<img src="https://img.saraba1st.com/forum/202310/26/195757bzprddmqp8yrl77r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-194718.jpg</strong> (410.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:57 上传
+
+通过将2D图像提升为3D，DreamCraft3D实现了具有丰富细节和整体3D一致性的3D生成效果
+
+<img src="https://img.saraba1st.com/forum/202310/26/195803wtva8aygpgr8vggh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-194851.jpg</strong> (174.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:58 上传
+
+与基线的定性对比，本文方法在几何和纹理方面生成了更清晰、更可信的细节，同时在新的视图中生成丰富的纹理细节，消除了之前其他方法遇到的多面Janus问题
+
+<img src="https://img.saraba1st.com/forum/202310/26/195807fze08a08zpqahahn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-195034.jpg</strong> (108.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:58 上传
+
+改进了引导过程中的视图一致性和纹理保真度
+
+<img src="https://img.saraba1st.com/forum/202310/26/195812ne1v3xkcu3edtnxx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-195107.jpg</strong> (76.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:58 上传
+
+与之前的2D到3D提升方法的定量对比，指标结果是根据300个生成的样本测量获得的
+
+<img src="https://img.saraba1st.com/forum/202310/26/195816v6gyzq0h0mhru0rq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-195226.jpg</strong> (64.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:58 上传
+
+3D先验和提案的BSD(Bootstrapped Score Distillation)有效性的消融实验
+
+(a)在几何雕刻阶段没有3D先验
+(b)使用SDS损失优化纹理
+(c)VSD损失产生了丰富的纹理细节，但也被纹理不一致的情况影响
+(d)BSD提高了一轮DreamBooth的纹理一致性
+(e)两轮BSD为生成的结果添加了更多细节
+
+<img src="https://img.saraba1st.com/forum/202310/26/195821mtydzqrd33kryvck.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-195624.jpg</strong> (102.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:58 上传
+
+通过多阶段持续改进几何和纹理质量
+
+<img src="https://img.saraba1st.com/forum/202310/26/195825m9u9iqce0bcbg0uu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-195701.jpg</strong> (52.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:58 上传
+
+用户研究结果
+
+生成示例:
+
+<img src="https://img.saraba1st.com/forum/202310/26/195839dqnzi7y7ey72hy33.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026-193753.jpg</strong> (590.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:58 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 918#       发表于 2023-10-27 23:22
+
+CommonCanvas
+
+使用知识共享(CC/Creative-Commons-licensed)图像训练的开放扩散模型
+
+github项目说明页:https://github.com/mosaicml/diffusion/blob/main/assets/common-canvas.md
+
+研究组聚合了一个知识共享图像的数据集，训练了一系列的开源扩散模型，这些模型在质量上可与Stable Diffusion 2竞争
+
+这项任务需要解决两个挑战：
+1.高分辨率的知识共享图像缺乏用于训练文本到图像生成模型所需的对应文本对
+2.知识共享图像相对稀缺
+
+为了应对这些挑战，通过使用直观的迁移学习技术，生成了一组与精选的知识共享图像所配对的高质量合成说明文本，还开发了一种提高数据和计算效率的训练方案，总计只需要相对于训练现有Stable Diffusion 2模型所需的LAION-2B数据的3%即可，但获得的质量相当，这些结果表明实际上是有足够数量的知识共享图像(约7000万)可用于训练高质量模型，训练方案还实施了各种优化，可实现约3倍的训练加速，从而实现快速模型迭代
+
+通过利用这些方法，本文研究组训练了一系列的高质量文本到图像模型，称其为CommonCanvas系列，虽然这些模型是在比LAION数据集小得多的知识共享数据集上进行训练并使用合成说明文本进行训练的，但其中最大的模型型号在人类评估中实现了与Stable Diffusion 2相当的性能
+
+<img src="https://img.saraba1st.com/forum/202310/27/232159l9yo9gjt5e5q8tqt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-230014.jpg</strong> (233.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:21 上传
+
+完全使用知识共享图像和合成说明文本方法，实现了与Stable Diffusion 2(SD2-base)相当的性能
+
+<img src="https://img.saraba1st.com/forum/202310/27/232203u1npsugs12nuiu1u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-230512.jpg</strong> (89.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:22 上传
+
+当输入与迪士尼电影相关的概念提示时，SD2-base会生成可识别的《冰雪奇缘》中艾莎的图像以及带有畸形迪士尼徽标和类似于《狮子王》中的角色的海报式图像，而CommonCanvas则没有
+
+<img src="https://img.saraba1st.com/forum/202310/27/232208p0h54uz54htv6ye8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-230851.jpg</strong> (80.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:22 上传
+
+通过BLIP-2从输入图像“有损压缩”到合成说明文本，当使用T2I模型生成带有“有损”的说明文本的图像时(例如CommonCanvas)，生成的图像与原始说明文本图像完全不同
+
+<img src="https://img.saraba1st.com/forum/202310/27/232212zgypex49yi4ea9s4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-231107.jpg</strong> (43.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:22 上传
+
+LAION-2B图像的原始说明文本与BLIP-2生成的说明文本，BLIP-2生成的标题更符合人类书写的内容
+
+<img src="https://img.saraba1st.com/forum/202310/27/232216vi7gskm7ygss0gwk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-231521.jpg</strong> (44.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:22 上传
+
+CommonCatalog-C包含仅授权用于商业用途的图像；-NC包含-C以及授权用于非商业用途的图像
+
+<img src="https://img.saraba1st.com/forum/202310/27/232220fadgnziqy2d2d2ny.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-231701.jpg</strong> (92.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:22 上传
+
+计算效率分析与用户研究调查
+
+<img src="https://img.saraba1st.com/forum/202310/27/232223f2ust22h11hpuuya.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-231729.jpg</strong> (255.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:22 上传
+
+相关评估指标结果
+
+<img src="https://img.saraba1st.com/forum/202310/27/232228qyyw3ovp405vv0v3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-231850.jpg</strong> (191.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:22 上传
+
+对比了CommonCanvas-SNC与Stable Diffusion 2，本文模型不太可能根据暗示性提示生成标志性角色
+
+<img src="https://img.saraba1st.com/forum/202310/27/232232jrfst2vsd23en3ev.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231027-232019.jpg</strong> (163.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 23:22 上传
+
+使用CommonCanvas-SNC生成名人，模型在综合个体方面比SD2差，但能够生成一些著名的公众人物
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  okok123  
+##### 919#       发表于 2023-10-28 00:24
+
+大佬实在太专业了，伸手党求教下：
+1.请问现在llm的3dmark工具或者评测谁更科学？
+2.请问能在16g显卡跑的开源llm目前比较好的是哪些？
+感谢感谢
+
+
+*****
+
+####  Machinery  
+##### 920#       发表于 2023-10-28 02:34
+
+ChatGLM3
+
+ChatGLM模型第三代
+
+项目主页:https://github.com/THUDM/ChatGLM3
+
+相关介绍:https://www.sohu.com/a/731775848_255153/
+
+github项目说明页:
+
+<img src="https://img.saraba1st.com/forum/202310/28/023439z844gztotssv88s9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231028-023038.jpg</strong> (351.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 02:34 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Machinery  
+##### 921#       发表于 2023-10-28 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62853778&amp;ptid=2126390" target="_blank">okok123 发表于 2023-10-28 00:24</a>
+大佬实在太专业了，伸手党求教下：
+1.请问现在llm的3dmark工具或者评测谁更科学？
+2.请问能在16g显卡跑的开 ...</blockquote>
+1.评测分为各种领域与考核方法的(指标)测试与(用户)研究，目前来说没有全知全能与万能的模型，专业领域的深度也决定了不会有这种模型，所以需要按需选择自己想使用的领域与相关的模型前沿，看你的需求是通用还是专用领域了
+
+2.开源llm大致上分为英文预训练与中文预训练模型，之后可以尽量选择最新系列的模型，看看各种指标很容易判断高低，实际上手使用一下，16g跑不了太大的模型，不过一般的开源llm都会提供7b版本，这个是能跑的，可以看看上边的chatglm3
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 922#       发表于 2023-10-28 15:47
+
+ 本帖最后由 Machinery 于 2023-10-28 15:52 编辑 
+
+SSD-1B
+
+SSD-1B(Segmind Stable Diffusion 1B)是Stable Diffusion XL(SDXL)蒸馏50%的缩小版本，可以在提供60%的加速的同时保持高质量的文本到图像生成功能
+
+权重下载:https://huggingface.co/segmind/SSD-1B
+
+官方Demo:https://www.segmind.com/models/ssd-1b
+
+hugface演示Demo空间:https://huggingface.co/spaces/segmind/Segmind-Stable-Diffusion
+
+SSD-1B经过各种数据集的训练，包括Grit和Midjourney scrap数据，以增强其根据文本提示创建各种广阔的视觉内容的能力
+
+<img src="https://img.saraba1st.com/forum/202310/28/155218y3fvax95fx5k8t3r.jpg" referrerpolicy="no-referrer">
+
+<strong>a512cd99-43b7-4406-8aa5-8d58c2e956bd.jpg</strong> (305.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 15:52 上传
+
+该模型采用知识蒸馏策略，连续利用多个专家模型(包括SDXL、ZavyChromaXL和JuggernautXL)的教学，混合它们的优势并产生令人印象深刻的视觉输出
+————
+模型信息
+开发商: Segmind
+开发者: Yatharth Gupta and Vishnu Jaddipal.
+模型类型: Diffusion-based text-to-image generative model
+许可协议: Apache 2.0
+从stabilityai/stable-diffusion-xl-base-1.0蒸馏而来
+————
+模型架构
+SSD-1B是1.3B参数模型，从基本的SDXL模型中删除了多个层
+
+<img src="https://img.saraba1st.com/forum/202310/28/154508f1e717nnst0ap17n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231028-154330.jpg</strong> (90.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 15:45 上传
+
+————
+训练超参数信息
+
+<img src="https://img.saraba1st.com/forum/202310/28/154609oesjepdhfjx8hr99.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231028-154558.jpg</strong> (61.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 15:46 上传
+
+————
+多分辨率比例支持
+
+<img src="https://img.saraba1st.com/forum/202310/28/154623rv0eeqzu1l1ihbh0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231028-154359.jpg</strong> (217.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 15:46 上传
+
+————
+生成速度对比
+
+<img src="https://img.saraba1st.com/forum/202310/28/154640msqgaadaounen62n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231028-154410.jpg</strong> (134.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 15:46 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 923#       发表于 2023-10-30 19:45
+
+Skywork-13B
+
+Skywork是由昆仑万维集团·天工团队开发的一系列大型模型
+
+github项目主页:https://github.com/SkyworkAI/Skywork
+
+ModelScope项目主页:https://modelscope.cn/organization/skywork
+
+本次开源的模型有Skywork-13B-Base模型、Skywork-13B-Chat模型、Skywork-13B-Math模型和Skywork-13B-MM模型(介绍如下):
+
+1.【Skywork-13B-Base模型】在高质量清洗过滤的3.2万亿个多语言（主要是中文和英文）和代码数据上进行预训练，它在多种评测和各种基准测试上都展现了同等规模模型的最佳效果
+
+2.【Skywork-13B-Chat模型】具备强大的对话能力，在文创领域进行了进一步的针对性增强，通过构建一万多条高质量指令数据集，在10个文创任务上进行了针对性微调，使模型在文创任务中能够接近ChatGPT的效果，此外，还开源了针对这10个文创任务上的大约500条样本组成的benchmark
+
+3.【Skywork-13B-Math模型】经过专门的数学能力强化训练，在13B规模的模型中，Skywork-13B-Math模型在GSM8K评测上得分第一，同时在MATH数据集以及CMATH上也表现优异，处于13B模型顶尖水平
+
+4.【Skywork-13B-MM多模态模型】支持用户输入图片信息进行问答，对话等任务
+
+5.【Skywork/Skypile-150B数据集】是根据经过精心过滤的数据处理流程从中文网页中筛选出的高质量数据，本次开源的数据集大小约为600GB，总的token数量约为150B，是目前开源最大中文数据集
+
+6.除此之外，还公开了【训练Skywork-13B模型中使用的评估方法、数据配比研究和训练基础设施调优方案等】信息，希望这些开源内容能够进一步启发社区对于大型模型预训练的认知，并推动人工智能通用智能(AGI)的实现
+
+github项目页面介绍:
+
+<img src="https://img.saraba1st.com/forum/202310/30/194531yzvqiqvm421ivuwq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-194223.jpg</strong> (279.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 19:45 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/194531i1tv288a6t3vfv31.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-194236.jpg</strong> (132.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 19:45 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/194531tmi811mzkkak91jz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-194309.jpg</strong> (543.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 19:45 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/194531qmndyxknt58xyaxi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-194344.jpg</strong> (495.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 19:45 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 924#       发表于 2023-10-30 23:47
+
+ 本帖最后由 Machinery 于 2023-10-30 23:52 编辑 
+
+ControlLLM
+
+通过搜索图(Searching on Graphs)工具增强语言模型
+
+github项目主页:https://github.com/OpenGVLab/ControlLLM
+
+ControlLLM，一种新颖的框架，可以使大型语言模型(LLM)利用多模态工具来解决复杂的现实世界任务，尽管LLM表现出色，但由于用户提示常有不明确的歧义、不准确的工具选择，参数化以及工具调度效率低下，目前在工具调用方面依然存在挑战
+
+为了克服这些挑战，框架包含三个关键组件:
+1.一个任务分解器(task decomposer)，它将复杂的任务分解为具有明确定义的输入和输出的清晰的子任务
+2.Thoughts-on-Graph(ToG)范式，在预先构建的工具图上搜索最优解决方案路径，该图会指定不同工具之间的参数和依赖关系
+3.一个具有丰富工具箱的执行引擎(execution engine with a rich toolbox)，它推理解决方案路径并在不同的计算设备上有效地运行工具解决问题
+
+在涉及图像、音频和视频处理的多种任务上评估了本文框架，证明其与现有方法相比具有卓越的准确性、效率和多功能
+
+<img src="https://img.saraba1st.com/forum/202310/30/234928mqj79imizjw1r7c2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-232522.jpg</strong> (98.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:49 上传
+
+任务规划的不同范式的对比
+
+(A)思想链(CoT)、具有自我一致性(self-consistency)的CoT
+(B)思想树(ToT)、本质上依赖LLM来执行任务规划，边(edge)是在LLM运行时生成的
+(C)思维图(ToG)范式是在预先构建的图上搜索解决方案，捕获了工具间的依赖关系，避免了工具调用中的幻觉问题
+
+<img src="https://img.saraba1st.com/forum/202310/30/234702kepqwf4g5xc5xhxp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-233131.jpg</strong> (161.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:47 上传
+
+ControlLLM的系统设计，该框架由三个阶段组成，第一阶段是任务分解，将用户输入解析为多个子任务，在第二阶段，ToG利用深度优先搜索算法(depth-first search algorithm)来找到每个子任务的最优解决方案，最后阶段的执行引擎执行解决方案并将输出返回给用户
+
+在这里使用为视频生成网页的示例来说明方法
+
+<img src="https://img.saraba1st.com/forum/202310/30/234711t6l4c4md6r61ltlt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-233409.jpg</strong> (123.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:47 上传
+
+详细阐述了任务分解中的输出协议中的每个字段的含义
+
+<img src="https://img.saraba1st.com/forum/202310/30/234719zggxug1x117w1nkn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-233517.jpg</strong> (71.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:47 上传
+
+不同方法之间的特征对比，该表显示了本文框架支持更多有利于多模态交互的用户体验的功能，同时表明了框架的高可扩展性
+
+<img src="https://img.saraba1st.com/forum/202310/30/234727blznohwz0sfjn4qj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-233637.jpg</strong> (217.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/234727znkhfzq6akah6fhf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-234111.jpg</strong> (83.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:47 上传
+
+与其他SOTA方法的对比/关于不同LLM之间的任务分解效率效果/不同搜索策略的评估，↓表示越小越好，↑表示越大越好
+
+<img src="https://img.saraba1st.com/forum/202310/30/234739al47or8o89gnss4i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-234211.jpg</strong> (146.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:47 上传
+
+任务规划的对比，用了两个简单的案例来说明两种不同方法在任务规划中的区别，在这里，每个输出节点是由不同的解决路径生成的
+
+<img src="https://img.saraba1st.com/forum/202310/30/235015snna146q3end2ff3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-234347.jpg</strong> (425.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:50 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/235015ff2yfiyxmmmmf21m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-234423.jpg</strong> (353.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:50 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/235015jv5sqkn9qf295897.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-234442.jpg</strong> (421.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:50 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/235229i5hl7w1lh8pfl2s2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-234456.jpg</strong> (399.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:52 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/235229j5vkw6fjfyhqa1a6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-234519.jpg</strong> (550.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:52 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/235229hvphqz9uq220ddee.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231030-234533.jpg</strong> (422.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:52 上传
+
+不同任务领域的案例研究
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+Screenshot_20231030-234456.jpg
+(399.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/235103a3i1he7e8zffaktw.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Machinery  
+##### 925#       发表于 2023-10-31 00:35
+
+Wonder3D
+
+使用跨领域(Cross-Domain)扩散将单图像转为3D
+
+项目页面:https://www.xxlong.site/Wonder3D/
+
+github项目仓库:https://github.com/xxlong0/Wonder3D
+
+hugface demo演示:https://huggingface.co/spaces/flamehaze1115/Wonder3D-demo
+
+本文中介绍了Wonder3D，一种从单视图图像高效生成高保真纹理网格的新颖方法
+
+最近基于分数蒸馏采样(SDS/Score Distillation Sampling)的方法已经展现出了从2D扩散先验复原3D几何形状的潜力，但它们经常会受到耗时的预先形状优化和不一致的几何的影响，相比之下，某些作品通过快速的神经网络推理直接产生3D信息，但其结果往往质量较低且缺乏几何细节
+
+为了全面提高图像到3D任务的质量、一致性和效率，提出了一种跨域扩散模型，可以生成多视图的法线贴图和相应的彩色图像，为了确保一致性，通过采用多视图跨域注意力机制(multi-view cross-domain attention mechanism)，促进跨视图和模态的信息交换，最后，还引入了一种几何感知的法线融合算法，该算法可以从多视图2D表征中提取高质量的表面(surfaces)
+
+广泛的评估表明，与之前的工作相比，本文方法实现了高质量的重建结果、稳健的泛化和相当好的效率
+
+<img src="https://img.saraba1st.com/forum/202310/31/003425h17ae8af87rq1227.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-002110__01.jpg</strong> (359.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:34 上传
+
+Wonder3D只需2∼3分钟即可从单视图图像重建高度详细的纹理网格
+
+Wonder3D首先通过跨域扩散模型生成一致的多视图法线图和相应的彩色图像，然后利用新颖的法线融合方法实现快速、高质量的重建
+
+<img src="https://img.saraba1st.com/forum/202310/31/003434ut84rplfi8gr68xg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-002347.jpg</strong> (72.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:34 上传
+
+Wonder3D概览图，给定单个图像，Wonder3D将输入图像、从CLIP模型生成的文本嵌入、多个视图的相机参数和域切换器作为条件，生成一致的多视图法线贴图和彩色图像，随后Wonder3D采用创新的法线融合算法，从2D表征中稳健地重建高质量3D几何形状，从而生成高保真纹理网格
+
+<img src="https://img.saraba1st.com/forum/202310/31/003500jb868f863zz8fq3g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-002537.jpg</strong> (127.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:35 上传
+
+与合成多视图彩色图像的基线模型进行定性对比
+
+<img src="https://img.saraba1st.com/forum/202310/31/003506kbe4xzhdrxzsfdsn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-002653.jpg</strong> (65.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:35 上传
+
+多视图跨域Transformer块的结构图示
+
+<img src="https://img.saraba1st.com/forum/202310/31/003522mysyo86qz1ls2979.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-002748__01.jpg</strong> (482.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:35 上传
+
+Wonder3D对各种风格图像的定性结果
+
+<img src="https://img.saraba1st.com/forum/202310/31/003527hhaamsahu2i4m4ue.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-002858__01.jpg</strong> (397.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:35 上传
+
+在重建纹理网格方面与GSO数据集上的基线方法进行定性对比
+
+<img src="https://img.saraba1st.com/forum/202310/31/003534q6az38knm2ckkjk1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-003004__01.jpg</strong> (373.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:35 上传
+
+不同跨域扩散方案的消融实验
+
+<img src="https://img.saraba1st.com/forum/202310/31/003540r679bmhwbvs655w7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-003127__01.jpg</strong> (409.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202310/31/003540zas17nk3sas4assb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-003308.jpg</strong> (181.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 00:35 上传
+
+不同纹理提取方法的消融实验与指标对比测试结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 926#       发表于 2023-10-31 20:04
+
+LoRAShear
+
+高效的大型语言模型结构化剪枝(Structured Pruning)和知识复原(Knowledge Recovery)
+
+github项目主页:https://github.com/microsoft/lorashear
+
+大型语言模型(LLM)改变了人工智能的格局，而其巨大的尺寸在计算成本方面提出了重大挑战，本文推出LoRAShear，一种对LLM进行结构性剪枝和知识复原的有效新方法
+
+给定一个通常的LLM，LoRAShear首先创建依赖图(dependency graphs)发现最小删除结构(minimally removal structures)并分析知识分布(analyze the knowledge distribution)，然后它对LoRA适配器(LoRA adaptors)进行渐进式结构化修剪，并实现固有知识转移，以更好地保留冗余结构中的信息
+
+为了恢复剪枝过程中丢失的知识，LoRAShear精心研究并设计出了一种带有动态数据适配器(dynamic data adaptors)的动态微调方案(dynamic fine-tuning schemes)，以有效缩小与完整模型的性能差距
+
+数值化结果表明，仅使用一个GPU并在几个GPU天数内，LoRAShear有效的将LLM的占用空间减少了20%，性能仅下降 1.0%，改进显著优于SOTA技术
+
+<img src="https://img.saraba1st.com/forum/202310/31/200354h92uq472sqqcsfvl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-195706.jpg</strong> (65.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:03 上传
+
+LoRAShear概览，给定一个通常的LLM，LoRAShear首先发现最小删除结构，随后分析知识分布，将关键结构标记为不可剪枝，之后通过LHSPG对可剪枝结构进行渐进式结构剪枝，最后复原丢失的知识以回顾与完整的LLM的性能差距
+
+<img src="https://img.saraba1st.com/forum/202310/31/200401pjjj45r1hp87lach.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-200011.jpg</strong> (212.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:04 上传
+
+LLAMAv1和可训练变量分区中的依赖关系图
+
+<img src="https://img.saraba1st.com/forum/202310/31/200406lzg6gzzdb2dj6g3j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-200101.jpg</strong> (43.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:04 上传
+
+通过测量完整LLAMAv1的困惑度偏差(perplexity deviation)进行知识分布的分析
+
+<img src="https://img.saraba1st.com/forum/202310/31/200410yqs45ebhhhd324b4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231031-200227.jpg</strong> (145.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:04 上传
+
+LoRAhear超越LLAMAv1
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 927#       发表于 2023-11-1 03:48
+
+MM-VID
+
+利用GPT-4V(ision)促进视频理解
+
+项目主页:https://multimodal-vid.github.io/
+
+MM-vid，一个新的集成系统，通过利用GPT-4V的能力，结合视觉、音频和语音方面的专用工具，以促进高级视频理解
+
+MM-vid旨在解决长视频和复杂任务带来的挑战，例如在长达一小时的内容中进行推理以及掌握跨多个剧集的故事情节，MM-vid使用GPT-4V进行视频到剧本(video-to-script)生成，将多模态元素转录为长文本剧本，生成的剧本详细描述了角色的动向、动作、表情和对话，为大型语言模型(LLM)实现视频理解铺平了道路，这使LLM的高级应用发展成为可能，包括音频描述、字符识别以及多模态高阶理解
+
+实验结果证明了MM-vid在处理不同视频长度的不同视频类型方面的有效性，此外，还展示了其应用于交互式环境(例如视频游戏和图形用户界面)时的潜力
+
+<img src="https://img.saraba1st.com/forum/202311/01/034646pqqipb57gfs7zso5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-033641.jpg</strong> (331.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 03:46 上传
+
+MM-Vid包含的任务展示，通过分配专业的视觉、音频、语音专家与GPT-4V(ision)协作来解决具有挑战性的视频理解任务，例如，系统可以关联来自多个上传剧集的信息，并推理所查询角色的故事情节(Multi-Video Episodic Analysis)
+
+<img src="https://img.saraba1st.com/forum/202311/01/034720i59ssj9f9sbpff5p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-033353.jpg</strong> (62.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 03:47 上传
+
+MM-vid工作流程，系统将视频文件作为输入，并输出描述视频内容的长文本剧本，一共由四个模块组成：(i)多模态预处理，(ii)外部知识收集，(iii)剪辑片段级(Clip-Level)视频描述生成，以及(iv)剧本生成
+
+<img src="https://img.saraba1st.com/forum/202311/01/034728ckg5akgg5akkp1ka.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-034106.jpg</strong> (57.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 03:47 上传
+
+用于流输入的MM-vid，系统可以充当交互环境中的代理者，持续接收和处理流视频帧
+
+<img src="https://img.saraba1st.com/forum/202311/01/034734woo8wz5my5u585md.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-034214.jpg</strong> (392.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 03:47 上传
+
+MM-vid执行流程的示例，给定一个棒球视频，MM-vid提供估计的视频长度，然后调用场景检测和ASR工具，同时收集外部知识，然后使用GPT-4V生成剪辑片段级视频描述，随后GPT-4V以视频帧和文本提示为输入，输出视频描述，最后根据剪辑片段级描述、视频元数据和ASR，使用GPT-4为输入视频生成连贯的剧本
+
+<img src="https://img.saraba1st.com/forum/202311/01/034753pokekduddfqjpwjk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-033506__01.jpg</strong> (167.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 03:47 上传
+
+MM-vid的视频演示(项目页)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 928#       发表于 2023-11-1 04:20
+
+ 本帖最后由 Machinery 于 2023-11-1 04:31 编辑 
+
+VideoCrafter1
+
+用于生成高质量视频的开源扩散模型
+
+项目主页:https://ailab-cvc.github.io/videocrafter/
+
+github项目主页:https://github.com/AILab-CVC/VideoCrafter
+
+discord频道:https://discord.gg/z6veKNgV
+
+视频生成越来越受到学术界和工业界的关注，尽管商业工具已经可以生成似是而非质量不错的视频，但可供研究人员和工程师使用的开源模型数量有限
+
+这项工作中，介绍了两种用于高质量视频生成的扩散模型，即文本到视频(T2V/text-to-video)和图像到视频(I2V/image-to-video)模型，T2V模型根据给定的文本输入合成视频，而I2V模型则包含额外的图像输入
+
+本文提案的T2V模型可以生成分辨率为1024×576的逼真电影质量视频，在质量方面优于其他开源T2V模型，而I2V模型则旨在生成严格遵循所提供的参考图像内容的视频，保留其内容、结构和风格，该模型是第一个开源的I2V基础模型，能够将给定图像转换为视频剪辑片段，同时对内容保持约束，相信这些开源视频生成模型可以为社区技术进步做出重大贡献
+
+<img src="https://img.saraba1st.com/forum/202311/01/041947y5r56hr8lpwr5wwz.jpg" referrerpolicy="no-referrer">
+
+<strong>milestone.jpg</strong> (244.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:19 上传
+
+基于扩散的视频生成基础模型的简洁但不一定全面的里程碑
+
+<img src="https://img.saraba1st.com/forum/202311/01/041954hisi8l881jjl9xoj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-040512.jpg</strong> (118.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:19 上传
+
+开源的两种不同生成方式的视频基础模型工作流程
+
+<img src="https://img.saraba1st.com/forum/202311/01/042002mjpeehvtkvhjzjhk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-040542.jpg</strong> (74.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:20 上传
+
+VideoCrafter1中视频扩散模型的框架，通过在自动编码器(auto-encoder)的潜在空间中训练视频UNet，以FPS作为控制生成视频运动速度的条件，对于T2V模型，只有文本提示作为交叉注意力输入到空间Transformer中，而对于I2V模型，文本和图像提示都被作为输入
+
+<img src="https://img.saraba1st.com/forum/202311/01/042010d59to5898dcjny58.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-041056.jpg</strong> (51.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:20 上传
+
+图像条件分支图，U-Net主干特征Fin通过双交叉注意力层与文本和图像嵌入进行处理，其输出被融合为Fout
+
+<img src="https://img.saraba1st.com/forum/202311/01/042019q4hc0qw1c54sz1d5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-041121.jpg</strong> (91.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:20 上传
+
+图像条件文本到视频生成对比
+
+(a)条件图像输入
+(b)以全局语义Token为条件的生成
+(c)使用完整patch的视觉Tokens作为条件生成，使用的文字提示是“a beautiful girl with colorful hair”
+
+<img src="https://img.saraba1st.com/forum/202311/01/043116en4np194a11wfff9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-043103.jpg</strong> (58.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:31 上传
+
+项目页的相关许可
+ - 引用：如果您在研究中使用代码、模型和数据，或者受到我们工作的启发，请引用(https://ailab-cvc.github.io/videocrafter/citation.txt)
+ - 许可证：代码、模型和数据根据Apache 2.0许可证分发(https://github.com/AILab-CVC/SEED/blob/main/License.txt)
+
+<img src="https://img.saraba1st.com/forum/202311/01/042030kuzhfhyyevko2y42.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-041008.jpg</strong> (560.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:20 上传
+
+<img src="https://img.saraba1st.com/forum/202311/01/042030h6ugw4fe5uusiuug.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-041652.jpg</strong> (609.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:20 上传
+
+与Gen-2、Pika Labs、I2VGen-XL和Zeroscope-XL的视觉对比
+
+<img src="https://img.saraba1st.com/forum/202311/01/042037id0w434400ccei3x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-041619.jpg</strong> (169.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:20 上传
+
+<img src="https://img.saraba1st.com/forum/202311/01/042037nvztdehmmtetweyr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-041640.jpg</strong> (152.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:20 上传
+
+人类偏好对齐结果与用户研究结果
+
+<img src="https://img.saraba1st.com/forum/202311/01/042137anfeo7noan3oin63.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-041705__01.jpg</strong> (278.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 04:21 上传
+
+不同VideoCrafter文本转视频版本之间视觉质量的对比
+
+提示分别是“In Marvel movie style, supercute siamese cat as sushi chef”、“A wise tortoise in a tweed hat and spectacles reads a newspaper, Howard Hodgkin style”和“hand-held camera, a politician giving a speech at a podium”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  gx19860411  
+##### 929#       发表于 2023-11-1 10:59
+
+求楼主给推荐个chatgpt的前端，现在用的chat酱没法上传文件也没法使用4的返图功能。如果支持api2d那就再好不过了。谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dangoron  
+##### 930#       发表于 2023-11-1 11:33
+
+跟了好久的贴了，好奇lz是怎么跟进最新的成果的，是在推特关注了特定的tag吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Machinery  
+##### 931#       发表于 2023-11-1 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62901221&amp;ptid=2126390" target="_blank">gx19860411 发表于 2023-11-1 10:59</a>
+求楼主给推荐个chatgpt的前端，现在用的chat酱没法上传文件也没法使用4的返图功能。如果支持api2d那就再好 ...</blockquote>
+没怎么用过chatgpt的前端<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个真不太清楚
+不过可以考虑下去github搜下chatgpt然后按most stars排序，挨个看看
+
+<img src="https://img.saraba1st.com/forum/202311/01/170310ledbqj83zobue3b2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-170119.jpg</strong> (395.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 17:03 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Machinery  
+##### 932#       发表于 2023-11-1 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62901786&amp;ptid=2126390" target="_blank">dangoron 发表于 2023-11-1 11:33</a>
+跟了好久的贴了，好奇lz是怎么跟进最新的成果的，是在推特关注了特定的tag吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一部分是的，项目组一般都会去推特推广一下自己做的项目，关注多的话确实很容易刷到，其他的，经常看SOTA排名和机器学习社区，相关资讯和论文，都是内容比较丰富的，再慢慢整理，当然也有很多项目至今还是coming soon
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dangoron  
+##### 933#       发表于 2023-11-1 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62905872&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-11-1 17:07</a>
+
+有一部分是的，项目组一般都会去推特推广一下自己做的项目，关注多的话确实很容易刷到，其他的， ...</blockquote>
+感谢回复，请问机器学习社区有什么推荐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Machinery  
+##### 934#       发表于 2023-11-1 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62905912&amp;ptid=2126390" target="_blank">dangoron 发表于 2023-11-1 17:10</a>
+感谢回复，请问机器学习社区有什么推荐的吗还有大佬的推特方便私信一个吗，想关注一下
+
+ ...</blockquote>
+我推特都是空的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+深度学习社区的话倒是有一些，可以看机器之心的总览(https://www.jiqizhixin.com/columns)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Machinery  
+##### 935#       发表于 2023-11-1 17:59
+
+jina-embeddings-v2
+
+Jina AI开源的8K长度文本嵌入(text embedding)模型
+
+项目博客:https://jina.ai/news/jina-ai-launches-worlds-first-open-source-8k-text-embedding-rivaling-openai/
+
+相关介绍:https://hub.baai.ac.cn/view/32160
+
+总部位于柏林的人工智能公司Jina AI很高兴地宣布推出第二代开源文本嵌入模型：jina-embeddings-v2
+————
+与OpenAI的最佳8K模型一起进行基准测试
+
+这一尖端模型现在是唯一支持8K(8192 Token)下文长度的开源产品，在大规模文本嵌入基准(MTEB/Massive Text Embedding Benchmark)排行榜上(相关链接:https://huggingface.co/spaces/mteb/leaderboard?ref=jina-ai-gmbh.ghost.io)，能力与表现方面与OpenAI的专有文本嵌入模型text-embedding-ada-002相当
+
+当直接与OpenAI的8K模型text-embedding-ada-002进行对比时，jina-embeddings-v2展现了它的实力，下图是性能对比表格，突出显示了jina-embeddings-v2特别擅长的领域：
+
+<img src="https://img.saraba1st.com/forum/202311/01/175800mo05ovljvxx05vjj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-173035__01.jpg</strong> (46.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 17:58 上传
+
+可以看出，jina-embedding-v2在分类平均(Classification Average)、重新排名平均(Reranking Average)、检索平均(Retrieval Average)和总结平均(Summarization Average)方面优于OpenAI同类产品
+————
+特点与优点
+
+1.从草图到成品：jina-embeddings-v2是从零开始构建的，在过去的三个月里，Jina AI团队进行了密集的研究开发、数据收集和微调，其最终成果是一个标志着其相对前身重大飞跃的模型
+
+2.使用8K扩展上下文潜力：jina-embeddings-v2不仅仅是一项技术成就，其8K 上下文长度为新的行业应用打开了大门：
+
+法律分析：确保能够捕获和分析大量法律文本中的每个细节
+医学研究：全面嵌入科学论文以进行高级分析和发现
+文学分析：深入研究长篇内容，捕捉微妙的主题元素
+财务预测：从详细的财务报告中获得卓越的见解
+对话智能：改进聊天机器人对复杂用户查询的响应
+
+基准测试显示，在多个数据集中，这种扩展上下文使jina-embeddings-v2的性能优于其他领先的基础嵌入模型，强调了更长上下文能力带来的实际优势
+
+<img src="https://img.saraba1st.com/forum/202311/01/175837k63b54jjsz35ha13.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot-from-2023-10-23-17-41-40.png</strong> (267.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 17:58 上传
+
+3.作为可用性的体现，两个模型都可以在Huggingface上免费下载：
+基础模型(0.27G) - 专为需要更高准确度的重型任务而设计，例如学术研究或商业分析
+小型模型(0.07G) - 专为轻量级应用程序而设计，例如移动应用程序或计算资源有限的设备
+
+4.满足不同需求的规模选项：了解 AI 社区的多样化需求，Jina AI提供了两个版本的模型
+
+基础模型相关链接:https://huggingface.co/jinaai/jina-embeddings-v2-base-en?ref=jina-ai-gmbh.ghost.io
+
+小型模型相关链接:https://huggingface.co/jinaai/jina-embeddings-v2-small-en?ref=jina-ai-gmbh.ghost.io
+————
+对于未来的愿景
+
+Jina AI致力于引领人工智能创新前沿，以下是路线图的下一步：
+
+学术见解：一篇详细介绍jina-embeddings-v2的技术复杂度和基准的学术论文即将发表，让 AI 社区能够获得更深入的见解
+
+API 开发：该团队正在开发类似OpenAI的嵌入API平台的高级阶段，这将使用户能够根据自己的需求轻松扩展嵌入模型
+
+语言扩展：Jina AI将会进军多语言嵌入领域，着眼于推出德语-英语模型，进一步扩展其功能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qieqie  
+##### 936#       发表于 2023-11-1 18:55
+
+在8k数据集上其它模型的输入是truncated 512? 咋不和分chunk或者摘要的方法做一个对比呢。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Machinery  
+##### 937#       发表于 2023-11-1 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62907208&amp;ptid=2126390" target="_blank">qieqie 发表于 2023-11-1 18:55</a>
+在8k数据集上其它模型的输入是truncated 512? 咋不和分chunk或者摘要的方法做一个对比呢。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也觉得直接截断是不是不太好，不过目前就这么一个图，之后看看论文上了的话里边会不会有更多对比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 938#       发表于 2023-11-1 20:08
+
+BlueLM
+
+BlueLM是由vivo AI全球研究院自主研发的大规模预训练语言模型
+
+github项目主页:https://github.com/vivo-ai-lab/BlueLM
+
+本次发布包含7B基础(base)模型和7B对话(chat)模型，同时开源了支持32K的长文本基础(base)模型和对话(chat)模型
+
+github项目说明:
+
+<img src="https://img.saraba1st.com/forum/202311/01/200827doxxe7toey8qrrey.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-200632.jpg</strong> (350.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202311/01/200827qhm4dmqq3yczwz44.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-200646.jpg</strong> (109.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202311/01/200827fuh61hyuzuuh3377.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-200659.jpg</strong> (134.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202311/01/200827baw8hyyr8yd83r1a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-200710.jpg</strong> (167.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202311/01/200827wyuuxsxxfgvf1e1u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-200730.jpg</strong> (199.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202311/01/200827imbomm4lxxs3xsk5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231101-200740.jpg</strong> (120.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 20:08 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 939#       发表于 2023-11-2 19:20
+
+SEINE
+
+用于生成过渡和预测的短到长(Short-to-Long)视频扩散模型
+
+项目主页:https://vchitect.github.io/SEINE-project/
+
+github项目代码仓库:https://github.com/Vchitect/SEINE
+
+最近的视频生成取得了实质性进展，尽管如此，现有的生成视频通常是描述单个场景的非常短的剪辑片段(shot-level)，为了提供连贯的长视频(story-level)，需要在不同的剪辑片段之间生成创造性的过渡和预测效果
+
+本文提出了一种从短到长的视频扩散模型SEINE，专注于生成过渡和预测，最终目标是生成高质量的长视频，在场景和不同长度的shot-level视频之间实现平滑且富有创意的过渡
+
+具体来说，提出了一种随机掩码视频扩散模型(random-mask video diffusion model)，用于根据文本描述自动生成过渡，通过提供不同场景的图像作为输入，并结合基于文本的控制，模型可以生成可确保连贯性和视觉质量的过渡视频
+
+此外，该模型可以轻松扩展到各种任务，例如图像到视频动画和自回归视频预测，为了对这一新的生成任务进行全面评估，还提出了平滑和创造性过渡的三个关键评估标准：时间一致性(temporal consistency)、语义相似性(semantic similarity)和视频文本语义对齐(video-text semantic alignment)
+
+大量的实验验证了本文方法相对于现有的生成过渡和预测方法的有效性，从而能够创建story-level的长视频
+
+<img src="https://img.saraba1st.com/forum/202311/02/191859ue4jnva0fx0f6c8r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-190044.jpg</strong> (163.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:18 上传
+
+生成的样本，提案的S2L(Short-to-long)模型能够通过给出文本描述来合成高清过渡和预测视频
+
+<img src="https://img.saraba1st.com/forum/202311/02/191907uu272dy22jfx92zh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-190255.jpg</strong> (143.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:19 上传
+
+S2L的工作流程，S2L视频生成模型可以将不同场景的镜头与转场无缝连接，并通过自回归预测生成不同长度的视频，方便创建story-level视频，红色框代表过渡视频，蓝色框代表通过预测生成的长视频
+
+<img src="https://img.saraba1st.com/forum/202311/02/191913hn3uin6os84isndk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-190542.jpg</strong> (94.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:19 上传
+
+生成转换目标的符号和示意图，生成转换表现出每个帧xn与两个场景图像之间的语义相似性； 其中每个帧xn及其相邻帧xn−1和xn+1应该是时间相干( temporal coherence)的； 生成的帧的语义应与提供的文本描述保持一致
+
+<img src="https://img.saraba1st.com/forum/202311/02/191921udy2lssdzjr228yu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191013.jpg</strong> (122.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:19 上传
+
+提案方法的概览图
+
+<img src="https://img.saraba1st.com/forum/202311/02/191934zexhcv6nrxbhbb1q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191108.jpg</strong> (261.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:19 上传
+
+与现有方法的定性对比
+左: Spiderman becomes into a sand sculpture. 
+右: A cat from sitting on the coach transfer to lying on the sand.
+
+<img src="https://img.saraba1st.com/forum/202311/02/191941m57hkz7kfh6fhfhz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191222.jpg</strong> (101.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:19 上传
+
+指标测试结果与人类偏好调查结果
+
+<img src="https://img.saraba1st.com/forum/202311/02/191949u4xjf00qzvx9vvsx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191316.jpg</strong> (369.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:19 上传
+
+派生的过渡结果与文本控制的过渡结果
+
+<img src="https://img.saraba1st.com/forum/202311/02/191956ax347cq7739xrx93.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191456.jpg</strong> (219.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:19 上传
+
+自回归生成结果对比
+
+<img src="https://img.saraba1st.com/forum/202311/02/192002t979ggjfrg7fjz7x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191638.jpg</strong> (104.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:20 上传
+
+图像动画化结果
+
+<img src="https://img.saraba1st.com/forum/202311/02/192010v72ftee1n1tooyhs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191715.jpg</strong> (335.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:20 上传
+
+过渡样本
+
+<img src="https://img.saraba1st.com/forum/202311/02/192016ni71hqlyvdqrhjvz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191744.jpg</strong> (281.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:20 上传
+
+图像到视频动画化结果
+
+<img src="https://img.saraba1st.com/forum/202311/02/192022xum5re49ubysusnu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-191812.jpg</strong> (310.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 19:20 上传
+
+失败案例
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 940#       发表于 2023-11-2 20:52
+
+LLaVA-Interactive
+
+用于图像聊天、分割、生成和编辑的一体化(All-in-One)演示
+
+项目页面:https://llava-vl.github.io/llava-interactive/
+
+github项目主页:https://github.com/LLaVA-VL/LLaVA-Interactive-Demo
+
+演示Demo:https://6dd3-20-163-117-69.ngrok-free.app/
+
+LLaVA-Interactive是多模态人类与人工智能交互的研究原型，该系统可以通过获取多模态用户输入并生成多模态响应来与人类用户进行多轮对话
+
+重要的是，LLaVA-Interactive超越了单纯的语言提示，也可以使用视觉提示在交互中对齐人类意图，LLaVA-Interactive的开发非常具有成本效益，因为该系统结合了预构建AI模型的三种多模态技能，无需额外的模型训练：LLaVA的视觉聊天、SEEM的图像分割以及GLIGEN的图像生成和编辑
+
+提出了一系列不同的应用场景来展示LLaVA-Interactive的前景，希望可以启发多模态交互系统的未来研究
+————
+大型语言模型(LLM)的快速发展彻底改变了聊天机器人系统，带来了前所未有的智能水平，例如OpenAI的ChatGPT
+
+ChatGPT在语言任务上的成功启发了社区在多模态空间中预期类似的成功范例，其中语言和视觉(LV/language and vision)模态都将参与人机交互以解锁许多新场景，致使越来越多的研究课题目标是构建通用助手，GPT-4V就是这样一个例子，它向前迈出了一步，展示了具有语言图像输入和语言输出的聊天机器人的有趣功能
+
+然而，尽管GPT-4V的性能令人印象深刻，但其局限性在于:
+1.它主要是一个大型的语言交互系统，输入图像仅起到为聊天提供额外上下文的作用
+2.其训练方法和架构细节仍不清楚，阻碍了该领域的研究和开源创新
+
+为了演示多模态空间中通用助手的新应用场景，本文引入了LLaVA-Interactive，一个开源演示系统，由三个强大的LV模型和易于使用的可扩展框架支持，LLaVA-Interactive的作用在于：
+1.视觉交互，除了视觉聊天之外，它还支持视觉提示，允许用户绘制笔画和边界框，以更好地表达视觉创作过程中的人类意图(包括图像分割和生成/编辑)，因此，在遵循人类意图方面，与GPT-4V/LLaVA相比，LLaVA-Interactive展示了更具参与性的人机交互体验
+2.开源，公开了演示系统和代码库，以促进社区未来的改进，这篇文章对LLaVA-Interactive的新功能进行了初步评估，并描述了其工作流程和服务的基础设施，同时还邀请社区与在线演示进行互动，以测试这个多模态聊天机器人的功能
+————
+该图提供了LLaVA-Interactive的工作流程，同时下方描述了一种典型的视觉创作过程:
+
+<img src="https://img.saraba1st.com/forum/202311/02/205150khxqyyl66fllf6ys.png" referrerpolicy="no-referrer">
+
+<strong>llava_interactive_workflow.png</strong> (171.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:51 上传
+
+1.图像输入：首先需要一张图像，用户可以上传图像，或者通过指定其语言标题并为对象的预期空间布局绘制边界框来生成图像，图像准备好后，可以通过应用以下三个步骤之一来处理图像：聊天、分割或编辑
+2.视觉聊天：询问有关图像的任何问题，例如如何修改图像的建议，根据编辑建议，可以分别使用步骤3或步骤4删除或添加新对象。
+3.交互式分割：可以使用笔画或文本提示来分割对象蒙版(object mask)，如果要删除它，请将蒙版拖出图像，背景将自动填充，或者，可以将蒙版拖到不同的位置，要填充新对象，请提供蒙版的文本提示
+4.基准编辑：通过绘制边界框并关联预期的对象的相应概念，可以将新对象直接放置在图像上
+5.多轮交互：重复步骤2、3或4，迭代完善视觉创作
+————
+能力对比
+基于仅允许视觉聊天的图像输入的LLaVA，LLaVA-Interactive将其扩展为支持视觉交互，例如用户绘制的笔画和边界框，以及视觉图像生成/编辑，请参阅以下功能比较：
+
+<img src="https://img.saraba1st.com/forum/202311/02/205200p7ka69q6kff9nwhj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231102-204143.jpg</strong> (48.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:52 上传
+
+————
+隐藏在幕后的：独立模型
+LLaVa-Interactive是一款一体化演示，它在一个交互式会话中连接三个LV模型，用于图像聊天、分割和生成/编辑，它可以比单独的单个模型完成更复杂的任务，作为背景，为对关键技术感兴趣的人简要描述各个模型:
+1.LLaVA：大型语言和视觉助手，GPT-4V的第一个开源替代品，它是一种端到端训练的大型多模态模型，结合了CLIP视觉编码器和Vicuna，用于通用视觉理解和推理，模仿GPT-4V的精神，实现了令人印象深刻的聊天功能
+2.SEEM：通过多模态提示一次性对所有内容进行分割，SEEM允许用户使用不同类型的提示轻松分割图像，包括视觉提示(点、标记、框、涂鸦)和语言提示，它还可以与任何提示组合一起使用或推广到自定义提示
+3.GLIGEN：基准语言到图像生成(Grounded-Language-to-Image Generation)，一种开源模型，它扩展了现有预训练文本到图像扩散模型的功能，使它们能够以视觉提示(例如边界框)为条件
+————
+发展挑战
+ LLaVA-Interactive是一个系统级协同Demo，它利用现有模型检查点来构建通用助理/代理，无需任何额外的模型训练，虽然训练 AI 模型的要求很低，但也带来了一些技术挑战，在开发LLaVA-Interactive时已经解决了如下挑战:
+1.面临的一个挑战是GLIGEN重绘模型并不是为处理填充背景空孔洞而设计的 ，相反，使用LAMA进行背景填充
+2.另一个挑战是Gradio对用户交互(例如拖放)没有足够的支持，通过实现启用此功能的新Gradio Image组件工具来解决此问题
+3.将多个项目和模型集成在一起的复杂性，每个项目和模型都已经很复杂了，通过尝试不同的方法并创建非常干净的UI布局和高效的数据共享方案来克服这个问题
+4.最后一个挑战是管理不同的包需求和依赖关系，通过运行不同的模型(例如LAMA)作为单独的Web服务来解决这个问题
+————
+案例研究
+
+<img src="https://img.saraba1st.com/forum/202311/02/205222q7k49kntsz14q6gs.png" referrerpolicy="no-referrer">
+
+<strong>example_lake_editing.png</strong> (888.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202311/02/205222kb2w8yee4b0mb0wv.png" referrerpolicy="no-referrer">
+
+<strong>LLaVA_Interactive-13.png</strong> (434.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202311/02/205222p1i2eibe2yceyoog.png" referrerpolicy="no-referrer">
+
+<strong>LLaVA_Interactive-14.png</strong> (282 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202311/02/205222t75eheftk5n7jfek.png" referrerpolicy="no-referrer">
+
+<strong>LLaVA_Interactive-18.png</strong> (442.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202311/02/205222szgu9y2uc212su92.png" referrerpolicy="no-referrer">
+
+<strong>LLaVA_Interactive-19.png</strong> (278.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202311/02/205222dcsn3gsa1azlgmpn.png" referrerpolicy="no-referrer">
+
+<strong>LLaVA_Interactive-20.png</strong> (479.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202311/02/205222npzbqovhoo9o2zov.png" referrerpolicy="no-referrer">
+
+<strong>LLaVA_Interactive-21.png</strong> (335.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 20:52 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 941#       发表于 2023-11-3 03:11
+
+Distil-Whisper
+
+通过大规模伪标签(Pseudo Labelling)进行稳健的知识蒸馏
+
+github项目代码仓库:https://github.com/huggingface/distil-whisper
+
+随着预训练语音识别模型规模的增加，在低延迟条件下或资源受限的环境中运行这些大型模型变得具有挑战性，在这项工作中，通过利用伪标签聚合了一个大规模的开源数据集，用它来将Whisper模型蒸馏成一个较小的变体，称为Distil-Whisper
+
+使用简单的错误率(WRT/word error rate)启发法，通过仅选择最高质量的伪标签进行训练，蒸馏模型的速度提高了5.8倍，参数减少了51%，同时在零样本迁移设置中对分布外测试数据(out-of-distribution test data)的性能误差在1%以内
+
+Distil-Whisper维持了Whisper模型在困难的声学条件下的稳健性，同时在长格式音频上不易出现幻觉错误，通过使用Distil-Whisper与Whisper配合使用进行推测性解码(speculative decoding)，产生了2倍的加速，同时在数学上确保与原始模型相同的输出
+
+为了促进该领域的进一步研究，研究组公开了训练代码、推理代码和模型
+
+<img src="https://img.saraba1st.com/forum/202311/03/031004m2m2xje420877030.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-025436.jpg</strong> (54.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:10 上传
+
+预训练Whisper检查点的模型详细信息
+
+<img src="https://img.saraba1st.com/forum/202311/03/031008h4gs2j1ut3m93c32.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-025528.jpg</strong> (127.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:10 上传
+
+用于训练的开源数据集的摘要信息，对于某些数据集，无法可靠地检索说话者的数量，因此将这些条目表示为“unknown”
+
+<img src="https://img.saraba1st.com/forum/202311/03/031014vsd7qj9mqan9w47m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-025630.jpg</strong> (158.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:10 上传
+
+Distil-Whisper模型的架构，编码器(绿色)完全从教师复制到学生并在训练期间冻结，学生的解码器仅由两个解码层组成，参数是从教师的第一个和最后一个解码层初始化的(红色)，教师的所有其他解码层都被丢弃，该模型根据KL散度和PL损失项的加权和进行训练
+
+<img src="https://img.saraba1st.com/forum/202311/03/031018xwbghigfhbvsibvw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-025845.jpg</strong> (40.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:10 上传
+
+Distil-Whisper检查点的模型详细信息
+
+<img src="https://img.saraba1st.com/forum/202311/03/031054kf212ag125fdhzn2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-025913.jpg</strong> (124.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:10 上传
+
+用于短期和长期评估的OOD数据集摘要信息
+
+<img src="https://img.saraba1st.com/forum/202311/03/031103rwutgsegw24q4sru.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-030035.jpg</strong> (78.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:11 上传
+
+Distil-Whisper维持了Whisper模型的WER性能，但推理速度更快，图为四个OOD短式测试集和4个OOD长式测试集的平均WER结果，相对延迟是相对于Large-v2检查点的推理时间，对于短式评估，批大小(batch size)设置为1，对于长格式评估，使用分块(chunked)长式转录算法，批大小为16
+
+<img src="https://img.saraba1st.com/forum/202311/03/031108lccx1j0685qxah3j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-030303.jpg</strong> (47.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:11 上传
+
+跨越各种数据集的有效稳健性，一个ID参考数据集和四个OOD数据集的WER结果，相对错误率(RER)显示在右侧，给出了每个数据集的有效稳健性分数，宏观平均结果显示在底行中
+
+<img src="https://img.saraba1st.com/forum/202311/03/031125yp74nse2ui2m7u84.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-030312.jpg</strong> (32.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:11 上传
+
+长式转录算法的对比，顺序和分块长式算法的四个OOD长式测试集的平均WER结果，相对延迟是相对于具有顺序长式解码的Large-v2模型的推理时间，使用批大小16报告分块转录结果
+
+<img src="https://img.saraba1st.com/forum/202311/03/031136nz3t0048p04ay3ou.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-030714.jpg</strong> (188.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 03:11 上传
+
+噪声对WER性能的影响
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 942#       发表于 2023-11-3 04:05
+
+dediffusion
+
+去扩散(De-Diffusion)使文本成为强大的跨模态交互界面(interface)
+
+项目主页:https://dediffusion.github.io/
+
+Code:[coming soon!]
+
+将文本作为强大的跨模态交互界面，相对于那些依靠深度嵌入来连接图像和语言作为交互界面表征的方法，本文方法是将图像表示为文本，从中可以享受自然语言固有的可解释性和灵活性
+
+通过采用自动编码器(autoencoder)，该编码器使用预训练的文本到图像扩散模型进行解码，编码器经过训练将输入图像转换为文本，然后将其作为输入送入固定的文本到图像扩散解码器中用以重建原始输入，进行称之为去扩散的过程
+
+实验验证了去扩散文本表征图像的精度和全面性，这样它就可以很容易地被现成的文本到图像工具和LLM用于各种多模态任务，例如，单个去扩散模型可以泛化为不同的文本到图像工具提供可转移的提示，并且还可以通过简单地用很少的提示来提示大型语言模型，从而在开放式视觉语言任务上实现新的SOTA
+
+<img src="https://img.saraba1st.com/forum/202311/03/040247cbpizitztbobha83.jpg" referrerpolicy="no-referrer">
+
+<strong>7e296b27-e971-4b07-90fe-884dabfe1eef.jpg</strong> (164.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:02 上传
+
+去扩散是一种自动编码器，其解码器是预训练的文本到图像扩散模型，它将输入图像编码为一段信息丰富的文本，其中混合了图像中存在的全面的语义概念，形成了“​​乱序字幕说明(scrambled caption)”
+
+为了便于说明，已经按颜色对语义进行了分组，去扩散文本可以充当不同模态之间的灵活接口，例如，支持多种视觉语言应用程序，其中包括：为不同的文本到图像工具提供可转移的提示;支持纯文本聊天机器人(例如Bard);进行多模态对话;通过少样本示例将图像上下文注入现成的大型语言模型(例如PaLM2)以执行开放式视觉问答
+
+<img src="https://img.saraba1st.com/forum/202311/03/040259onxd0n5z904194yu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-034018.jpg</strong> (56.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:02 上传
+
+去扩散的构架，整体结构是一个自动编码器，预训练的文本到图像扩散模型作为解码器，文本作为潜在表示，以及由图像主干和注意力池组成的图像到文本编码器，锁定和解锁分别表示冻结权重和可学习权重，使用了Gumbel-softmax来处理离散的文本Token
+
+<img src="https://img.saraba1st.com/forum/202311/03/040338owh5xtww3jqewxqj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-034540.jpg</strong> (47.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:03 上传
+
+通过文本到图像重建评估了不同的字幕说明方法，文本到图像模型是预先训练的Stable Diffusion v2基础模型
+
+报告了30K MS-COCO(2014)验证分割的256×256图像的FID(↓)，去扩散比人工标注的字幕、BLIP-2(在MS-COCO上微调)和PaLI-X(多任务字幕说明模型)获得了更好的FID
+
+<img src="https://img.saraba1st.com/forum/202311/03/040358zphp6bqkhhhr6aqb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-034851.jpg</strong> (269.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:03 上传
+
+视觉语言少样本学习，报告了VQAv2开放式设置和OKVQA视觉问答的VQA准确性，以及MS-COCO图像字幕说明的CIDEr，粗体表示最佳性能，下划线表示每列中第二好的性能，ID域内COCO图像被用于训练
+
+<img src="https://img.saraba1st.com/forum/202311/03/040406qcrcu3bvmc1uk4rv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-035131.jpg</strong> (181.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+使用现成的LLM进行VQA，其中参考图像的去扩散文本插入到LLM提示中的“图像上下文”之后，然后LLM完成提示以回答视觉问题，去扩散文本提供了丰富的视觉细节，例如A中的泰迪熊和B中火车的红色外表，使用了PaLM 2-L作为LLM，样本来自OKVQA
+
+<img src="https://img.saraba1st.com/forum/202311/03/040422qrdd2wfn1rr288rj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-035417.jpg</strong> (70.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+与VQAv2和OKVQA的val分割上的其他字幕说明进行对比，BLIP-2代表顶级字幕模型，人工字幕来自MS-COCO标注，使用了PaLM 2-L
+
+<img src="https://img.saraba1st.com/forum/202311/03/040427s0riln1o0ru7r2lj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-035602.jpg</strong> (78.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+与现成的纯文本聊天机器人进行多模态对话，其中去扩散文本插入在ChatGPT-3.5和Bard的文本提示中的“图像上下文”之后
+
+<img src="https://img.saraba1st.com/forum/202311/03/040433g00ux0q0qppbmbrg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-035746.jpg</strong> (170.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+miniImageNet上的开放式单样本分类，其中只有LLM预测的确切类名才被认为是正确的，任务归纳是解释分类任务并在提示开头提供预期类名的介绍性文本，以前的封闭形式的最佳成绩不再强调
+
+<img src="https://img.saraba1st.com/forum/202311/03/040439eh8bpbylhh93wwb8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-040018.jpg</strong> (104.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/040439j80bbet09zc2y2c2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-040032.jpg</strong> (76.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+消融实验
+
+<img src="https://img.saraba1st.com/forum/202311/03/040454ltk3k711ikhhh75h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-040100.jpg</strong> (551.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/040454zh4ssxhzctth2wqt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-040141.jpg</strong> (492.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/040454civn3ljr332ozlp3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-040149.jpg</strong> (600.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/040454h5u7cz3xi5vemuee.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103-040200.jpg</strong> (545.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 04:04 上传
+
+使用例
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  miraclePTSD  
+##### 943#       发表于 2023-11-3 04:09
+
+ 本帖最后由 miraclePTSD 于 2023-11-3 04:11 编辑 
+
+大佬们，字符串拆分命名实体识别有没有好用的库哇，尤其是地名一类的 简中
+
+
+*****
+
+####  Machinery  
+##### 944#       发表于 2023-11-3 04:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62920889&amp;ptid=2126390" target="_blank">miraclePTSD 发表于 2023-11-3 04:09</a>
+大佬们，字符串拆分命名实体识别有没有好用的库哇，尤其是地名一类的 简中 ...</blockquote>
+可以考虑用LLM做少样本示例之后json格式输出之类的，比如，hugface那一堆演示或者gpt4或者bard和claude之流，本地LLM也行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 945#       发表于 2023-11-4 01:43
+
+ 本帖最后由 Machinery 于 2023-11-4 01:45 编辑 
+
+LingoWhale-8B
+
+LingoWhale-8B是由深言科技推出的语鲸系列大模型中首个开源的中英双语大语言模型
+
+github项目主页:https://github.com/DeepLangAI/LingoWhale-8B
+
+hugface权重仓库:https://huggingface.co/deeplang-ai/LingoWhale-8B
+
+LingoWhale-8B模型在数万亿token的高质量中英数据上进行预训练，具有强大的基础能力，在多个公开评测基准上均达到领先效果，在预训练阶段，模型使用8K的上下文长度进行训练，能够完成更长上下文的理解和生成任务
+
+LingoWhale-8B模型对学术研究完全开放，使用方通过邮件申请并获得官方商用许可后，即可免费商用
+
+在开源模型权重的同时，也提供了符合用户习惯的Huggingface推理接口以及LoRA等参数高效微调示例，便于开发者快速使用LingoWhale-8B模型
+
+受模型参数量影响，大模型固有的幻觉问题、数学计算能力相对较弱等问题在LingoWhale-8B模型中仍然存在，请大家在使用前了解这些问题，评估可能存在的风险，后续版本的LingoWhale模型将会针对此类问题进行重点优化
+
+github项目说明:
+
+<img src="https://img.saraba1st.com/forum/202311/04/014314zsq3skqkr88u93u8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-013959.jpg</strong> (380.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 01:43 上传
+
+<img src="https://img.saraba1st.com/forum/202311/04/014314i2d0jlzxp2pi9xdx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-014023.jpg</strong> (345.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 01:43 上传
+
+<img src="https://img.saraba1st.com/forum/202311/04/014314qmp1ikzwmksusooa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-014034.jpg</strong> (83.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 01:43 上传
+
+<img src="https://img.saraba1st.com/forum/202311/04/014314ssy9zbmr69900i09.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-014123.jpg</strong> (282.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 01:43 上传
+
+<img src="https://img.saraba1st.com/forum/202311/04/014459wgd79qqv090l3qdv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-014443.jpg</strong> (29.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 01:44 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 946#       发表于 2023-11-4 02:07
+
+ 本帖最后由 Machinery 于 2023-11-4 02:10 编辑 
+
+Yi-6B/34B
+
+Yi系列模型是由01.AI的开发人员从头开始训练的大型语言模型系列
+
+github项目主页:https://github.com/01-ai/Yi
+
+hugface权重:https://huggingface.co/01-ai
+
+Yi系列模型第一个公开版本包含两个双语(英文/中文)基础模型，参数大小分别为6B和34B，两个模型都4K序列长度进行训练，并且在推理期间可以扩展到32K长度
+
+————
+模型评测说明
+
+在对开源模型进行基准测试时，观察到本文的评估工作流程(pipeline)生成的结果与公共来源(例如OpenCompass)中报告的结果之间存在差异，在对这种差异进行更深入的调查后，发现各种模型可能采用了不同的提示(different prompts)、后处理策略(post-processing strategies)和采样技术(sampling techniques)，可能导致结果出现显著变化
+
+本系列模型的提示和后处理策略与原始基准保持一致，并且在评估过程中采用贪婪解码(greedy decoding)，且不对生成的内容进行任何后处理，对于原作者未报告的分数(包括使用不同设置报告的分数)，尝试了通过本文的评估工作流程获取结果
+
+为了广泛评估模型的能力，采用了Llama2中概述的方法，具体来说
+
+使用包括PIQA、SIQA、HellaSwag、WinoGrande、ARC、OBQA和CSQA基准评估常识推理
+
+使用SquAD、QuAC和BoolQ评估阅读理解能力，其中CSQA专门使用7样本(7-shot)设置进行测试，而所有其他测试均使用0样本(0-shot)配置进行
+
+此外，还在“数学与代码”类别下报告了GSM8K(8-shot@1)、MATH(4-shot@1)、HumanEval(0-shot@1)和MBPP(3-shot@1)
+
+由于技术限制，没有在QuAC和OBQA上测试Falcon-180，分数是通过剩余任务的平均分数得出的，由于这两项任务的得分普遍低于平均水平，因此可以相信Falcon-180B的表现并没有被低估
+————
+授权许可
+
+此存储库中的源代码已根据Apache 2.0许可证获得许可，Yi系列模型全面开放供学术研究和免费商业使用，所有使用都必须遵守示范许可协议，如需申请官方商业许可，请联系(yi@01.ai)
+————
+github项目说明:
+
+<img src="https://img.saraba1st.com/forum/202311/04/020658qq2swhnplmhsp2l2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-015433.jpg</strong> (298.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:06 上传
+
+<img src="https://img.saraba1st.com/forum/202311/04/020658ac814foh1wmogogz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-015445.jpg</strong> (219.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:06 上传
+
+<img src="https://img.saraba1st.com/forum/202311/04/020658oaxz4jj73g6777xa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-015453.jpg</strong> (89.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:06 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 947#       发表于 2023-11-4 02:54
+
+ 本帖最后由 Machinery 于 2023-11-4 03:01 编辑 
+
+Recognize-Any-Regions
+
+识别任何区域
+
+github项目仓库(待整理):https://github.com/Surrey-UPLab/Recognize-Any-Regions
+
+在例如开放世界的对象检测等任务中，理解无约束图像中各个区​​域(regions)或区块(patches)的语义，是计算机视觉中一项关键但具有挑战性的任务
+
+基于CLIP等强大的图像级视觉语言(ViL)基础模型的成功，最近的方法试图通过使用广泛收集的大量区域标签对(region-label pairs)重新训练对比模型(contrastive model)或对齐具有区域提案的图像级表征的检测模型输出来利用其功能，尽管取得了显著的进展，但这些方法仍受制于计算密集型的训练需求、对数据噪声的敏感性以及上下文信息缺乏的困扰
+
+为了解决这些限制，通过探索现成的基础模型的协同潜力，利用它们在定位和语义方面各自的优势，引入了一种新颖、通用且高效的区域识别架构，名为RegionSpot，旨在将来自定位基础模型(例如SAM)的位置感知(position-aware)定位知识与从ViL模型(例如CLIP)提取的语义信息集成
+
+为了充分利用预训练的知识，同时最大限度地减少训练开销，研究组冻结了两个基础模型，将优化工作仅集中在轻量的基于注意力的知识集成模块(lightweight attention-based knowledge integration module)上
+
+通过在开放世界对象识别背景下的大量实验，RegionSpot展示了比之前的替代方案更显著的性能改进，同时还提供了大量的计算资源节省，例如，使用8个V100 GPU就可以在一天内使用300万数据训练本文模型，同时模型在平均精度(mAP)方面也比GLIP高出了6.5%，对于更具挑战性和稀有的类别，其优势甚至高达14.8%
+
+<img src="https://img.saraba1st.com/forum/202311/04/025330yr3rkxzhffl9tyeq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-023815__01.jpg</strong> (82.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:53 上传
+
+经典的区域级视觉理解架构的图示
+
+(a)通过从裁剪区域中提取图像级ViL表征并将其合并到检测模型中来学习区域识别模型
+(b)使用大量区域标签对数据集完全微调视觉和文本模型
+(c)本文提案的方法，集成了预训练(冻结)定位和ViL模型，强调学习它们的表征关联
+
+<img src="https://img.saraba1st.com/forum/202311/04/025336t90i9d399a3982hp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-024253.jpg</strong> (113.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:53 上传
+
+提案的RegionSpot的概览图
+
+(a)将来自定位模型(例如SAM)的位置感知Token与ViL模型(例如CLIP)中提取的图像级特征图(image-level feature maps)集成，这种集成可以产生区域级语义Token，然后对其进行区域文本对齐
+(b)基于注意力机制的跨模态特征交互设计
+
+<img src="https://img.saraba1st.com/forum/202311/04/025342cj66qrhr5ehe69ui.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-024612.jpg</strong> (203.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:53 上传
+
+在LVIS数据集上使用基准答案(GT/ground-truth)框、RPN框和GLIP框设置下的开放世界零样本目标识别结果
+
+<img src="https://img.saraba1st.com/forum/202311/04/025351gmg00d0ilit5yigy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-024748.jpg</strong> (46.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:53 上传
+
+训练效率的对比
+
+<img src="https://img.saraba1st.com/forum/202311/04/025357splriq6mrfk16m6c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-024812.jpg</strong> (41.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:53 上传
+
+增加检测训练数据的效果
+
+<img src="https://img.saraba1st.com/forum/202311/04/025404ifa3g3bx3dvrjjgj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-024842.jpg</strong> (47.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:54 上传
+
+LVIS上的消融实验
+(a)CLIP视觉编码器的有效性
+(b)位置感知Token选择
+(c)RegionSpot的深度
+
+<img src="https://img.saraba1st.com/forum/202311/04/025407k4mmlvim79kppv7q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-024954.jpg</strong> (35.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:54 上传
+
+提示工程的消融实验
+
+<img src="https://img.saraba1st.com/forum/202311/04/025412imo3606s66pdzmz6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-025026.jpg</strong> (238.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:54 上传
+
+GLIP-T和RegionSpot的LVIS数据集的定性预测结果，RegionSpot可以更准确地识别物体
+
+<img src="https://img.saraba1st.com/forum/202311/04/025418qe33ebsqu0p23uc5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231104-025154.jpg</strong> (128.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 02:54 上传
+
+RegionSpot的交叉注意力图，这些图表明位置感知Token与整个图像的语义特征图有效对齐，在每一行中，蓝色和红色框分别对应于左图和右图
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 948#       发表于 2023-11-6 16:46
+
+ 本帖最后由 Machinery 于 2023-11-6 16:50 编辑 
+
+XVERSE-65B
+
+XVERSE-65B是由深圳元象科技自主研发的支持多语言的大语言模型(Large Language Model)，参数规模为650亿
+
+hugface权重下载:https://huggingface.co/xverse/XVERSE-65B
+
+相关介绍文章:https://www.jiqizhixin.com/articles/2023-11-06-10
+
+本次开源的模型为底座模型 XVERSE-65B，主要特点如下:
+1.模型结构：XVERSE-65B使用主流Decoder-only的标准Transformer网络结构，支持16K的上下文长度(Context Length)，能满足更长的多轮对话、知识问答与摘要等需求，模型应用场景更广泛
+2.训练数据：构建了2.6万亿token的高质量、多样化的数据对模型进行充分训练，包含中、英、俄、西等40多种语言，通过精细化设置不同类型数据的采样比例，使得中英两种语言表现优异，也能兼顾其他语言效果
+3.分词：基于BPE(Byte-Pair Encoding)算法，使用上百GB语料训练了一个词表大小为100,534的分词器，能够同时支持多语言，而无需额外扩展词表
+4.训练框架：训练中采用FlashAttention2加速计算，3D并行基础上采用虚拟流水线(virtual pipeline)技术，降低较长流水线和16k上下文窗口产生的过高气泡率，在千卡集群的峰值算力利用率达到业界前列，同时通过集群基础设施运营、资源调度、训练框架和调度平台协同等持续优化，打造出高稳定、低中断、强容错的训练系统，将每周有效训练率提升至 98.6%
+
+权重说明页:
+
+<img src="https://img.saraba1st.com/forum/202311/06/164611o7kn7epkenkf5zfn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-164220.jpg</strong> (120.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202311/06/164611tbu6ct6a2mzo6pb8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-164232.jpg</strong> (161.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202311/06/164611cm4t10hmyitiihtr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-164244.jpg</strong> (25.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202311/06/164611ttdt4ul4k87h84ut.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-164308.jpg</strong> (67.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202311/06/164611kai8uk8zbi3yy989.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-164314.jpg</strong> (34.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 16:46 上传
+
+相关介绍:
+
+<img src="https://img.saraba1st.com/forum/202311/06/164623njc7jd17fao77ygc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-164420.jpg</strong> (307.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202311/06/164623w14hdsa7xa4axxzx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-164520.jpg</strong> (522.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 16:46 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 949#       发表于 2023-11-6 23:24
+
+PPTC
+
+通过完成PPT任务( PowerPoint Task)评估大型语言模型
+
+github项目主页:https://github.com/gydpku/PPTC
+
+最近对大型语言模型(LLM)的评估集中围绕于测试其针对基本自然语言任务的零样本/少样本能力以及将指令转换为工具API的能力
+
+然而，尚未对LLM利用复杂工具在复杂的多模态环境中完成多轮、多模态指令的相关评估进行研究调查，为了弥补这方面的缺失，本文引入了PowerPoint任务完成(PPTC/PowerPoint Task Completion)基准来评估LLM们根据用户指令创建和编辑PPT文件的能力
+
+PPTC包含279个涵盖不同主题的多回合会话和数百条涉及多模态操作的说明，还提出了PPTX-Match评估系统，该系统根据预测文件而不是标签API序列来评估LLM是否完成指令，因此它支持各种LLM生成的API序列
+
+通过测试3个封闭式LLM和6个开源LLM，结果表明，GPT-4在单轮对话测试中以75.1%的准确率优于其他LLM，但在完成整个会话方面遇到了挑战，最终仅实现了6%的会话准确率
+
+在基准测试中发现了三个主要错误原因：多轮会话的错误累积、长PPT模板处理和多模态感知，这些问题都对未来的LLM和代理者系统提出了巨大的挑战
+
+<img src="https://img.saraba1st.com/forum/202311/06/232309fl4l4isvsl4lvll4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-230349.jpg</strong> (204.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 23:23 上传
+
+在基准测试中，模拟了人类和LLM之间的多轮对话场景，以评估LLM的PPT任务完成表现
+
+<img src="https://img.saraba1st.com/forum/202311/06/232314tm2aah12lwwl71sb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-230509.jpg</strong> (272.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 23:23 上传
+
+说明图展示了LLM如何在会话中完成一轮任务:
+(A)为了提示LLM，向其提供当前指令、之前的指令(对话历史)、PPT文件内容和API参考文件
+“PPT阅读器”是将PPT文件转换为文本格式作为PPT文件内容的功能
+(B)LLM生成API序列并执行它以获得预测的PPT文件
+(C)评估预测文件中的属性和位置关系
+
+<img src="https://img.saraba1st.com/forum/202311/06/232320ar3ck5yf1qprqq3r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-230907__01.jpg</strong> (118.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 23:23 上传
+
+PPTC的统计信息
+(A)会话轮数分布
+(B)指令API数量分配(Token)
+(C)涉及图表、表格、图片和位置的指令的分发
+
+涉及“位置”的指令需要系统基于对空间信息的理解来进行与位置相关的操作，一项指令可能涉及多种不同的模式
+
+<img src="https://img.saraba1st.com/forum/202311/06/232408c8hiwvmpspdp88zv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-231249.jpg</strong> (450.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 23:24 上传
+
+在基于回合和基于整个会话的评估设置中使用的推理提示
+
+在基于回合的评估中，评估LLM当前回合的表现，并假设LLM已正确完成之前的回合，然后使用前几轮的可行API序列作为对话历史中的AI响应，并将前几轮的标签文件解析为PPT文件内容
+
+在基于会话的评估中，评估整个会话的完成情况，并且不假设LLM已正确完成之前的轮次，使用LLM生成的API序列作为响应，并将LLM预测文件解析为PPT文件内容
+
+<img src="https://img.saraba1st.com/forum/202311/06/232414l11ylllu1su9llv3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-231701.jpg</strong> (226.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 23:24 上传
+
+评估成绩
+
+<img src="https://img.saraba1st.com/forum/202311/06/232421ibat5c9umbkm2mg5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231106-231731__01.jpg</strong> (112.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 23:24 上传
+
+举例说明了创建新PPT文件任务(任务1)和编辑PPT模板任务(任务2)的分析结果
+
+在(A)中，报告了涉及图表、表格、图片、位置和纯文本的指令的平均回合精度，没有绘制任务2的准确度，因为该任务中没有图表说明
+
+在(B)中，报告了GPT-4所犯的四种常见错误的比率
+
+在(C)中，报告了依据模型大小的准确性，没有绘制任务2基于会话的准确性，因为它为零
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 950#       发表于 2023-11-7 02:22
+
+ComVint
+
+什么是优秀的视觉指示？ 合成复杂的视觉推理指令以进行视觉指令调整
+
+github项目主页:https://github.com/RUCAIBox/ComVint
+
+视觉指令调整是改进多模态大型语言模型(MLLM/Multi-modal Large Language Models)零样本泛化能力的重要方法，近期涌现出了大量不同关注焦点和特质的视觉指令数据集，使MLLM在评估基准上取得了令人惊喜的成果
+
+为了开发更强大的MLLM，在本文中，研究了一个重要的基础问题：“什么才是优秀的视觉指令？”
+
+通过进行全面的实证研究，发现专注于复杂视觉推理任务(complex visual reasoning tasks)的指令对于提高MLLM在评估基准上的性能特别有效
+
+基于这一发现，设计了一种系统化方法来自动创建高质量的复杂视觉推理指令，方法采用合成-复杂化-重构范式，利用多阶段逐渐增加指令的复杂度的同时保证质量，基于这种方法，构造了由32K个示例组成的合成视觉推理指令数据集ComVint，并在其上微调了四个MLLM
+
+实验结果表明，ComVint一致的增强了所有用于对比的MLLM的性能，例如MiniGPT-4和BLIP-2，分别在MME-Cognition上的性能提高了32.6%和28.8%
+
+<img src="https://img.saraba1st.com/forum/202311/07/022137urehaeqwvmo6qjlq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-020615.jpg</strong> (73.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 02:21 上传
+
+现有的合成视觉指令数据集的对比，“Cap”为Caption的缩写，“Rea”为Reasoning的缩写
+
+*通过将LLaVA中的多轮对话分解成单轮的问题，获得了256K VQA指令
+
+<img src="https://img.saraba1st.com/forum/202311/07/022149e0sslknf80ss1k0w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-020836.jpg</strong> (116.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 02:21 上传
+
+使用不同指令集微调MiniGPT-4和BLIP-2后在Seed-Bench和MME上的评估结果，MME-P和MME-C分别是MME-Perception和MME-Cognition的缩写，橙色阴影的单元格表示微调增强了原始MLLM的性能，蓝色表示性能下降
+
+<img src="https://img.saraba1st.com/forum/202311/07/022154wl9jlc927awk47ot.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-021032__01.jpg</strong> (383.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 02:21 上传
+
+合成复杂视觉推理指令的方法，包括合成跨模态和外部知识推理指令(synthesize cross-modal and outside-knowledge reasoning instructions)、迭代复杂化和验证(iteratively complicate and verify)以及重制定指令格式(reformulate instruction formats)三个阶段
+
+<img src="https://img.saraba1st.com/forum/202311/07/022206gtyj6avc0j9b6nz3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-021334.jpg</strong> (144.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 02:22 上传
+
+不同模型在不同的指令集上进行微调的性能，MME-P和MME-C分别是MME-Perception和MME-Cognition的缩写，最好的性能和第二好的性能分别用粗体和下划线字体表示，橙色阴影的单元格表示微调增强了原始MLLM性能，蓝色表示性能下降
+
+<img src="https://img.saraba1st.com/forum/202311/07/022220y76n66r83m1uqy2s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-021533.jpg</strong> (68.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 02:22 上传
+
+指令类型的消融实验，其中“C-M推理”和“O-K推理”分别代表跨模态推理指令和外部知识推理指令，“Both”代表它们的组合
+
+<img src="https://img.saraba1st.com/forum/202311/07/022225cqk7jq2dbm927jan.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-021629.jpg</strong> (148.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 02:22 上传
+
+本文数据集中的两个合成指令示例以及来自五个MLLM的相应响应，这表明指令的复杂度，因为这些MLLM大多都无法正确回答问题
+
+<img src="https://img.saraba1st.com/forum/202311/07/022230f33xjyj6xyex8yxl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-021756.jpg</strong> (184.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 02:22 上传
+
+性能对比，关于不同复杂度级别的指令，其中“D0”代表主指令，“D1”和“D2”分别代表第一轮复杂度和第二轮复杂度之后的指令
+
+<img src="https://img.saraba1st.com/forum/202311/07/022235hwg5p5pniw93kwkh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-022005.jpg</strong> (68.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 02:22 上传
+
+指令格式的消融实验，其中“Mixer”代表三种指令格式的组合， “Avg”是“Average”的缩写
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 951#       发表于 2023-11-7 18:28
+
+PASTA
+
+告诉你的模型应该注意何处：LLM的事后注意力引导(Post-hoc Attention Steering)
+
+github项目主页:https://github.com/QingruZhang/PASTA
+
+在人类创作的文章中，经常会利用一些文本风格的微妙之处，例如粗体和斜体，来引导读者的注意力，这些文本重点对于传达的信息至关重要，当与大型语言模型(LLM)交互时，有通过类似的方法，实现需求到引导(need-steering)，使模型更加关注用户指定的信息，例如指令
+
+然而，现有的仅限于处理纯文本的方法并不支持这种机制，这促使本文引入了事后注意力引导方法(PASTA/Post-hoc Attention STeering Approach)，这种方法允许LLM阅读用户指定标记的强调文本，为此，PASTA识别了注意力头的一小部分(a small subset of attention head)，并对它们应用了精确的注意力重新加权，将模型注意力引导到用户指定的部分，与提示一样，PASTA应用于推理时，且不需要更改任何模型参数
+
+实验表明，PASTA可以显著增强LLM遵循用户指令或集成来自用户输入的新知识的能力，从而提高各种任务的性能(例如LLAMA-7B的平均准确度提高22%)
+
+<img src="https://img.saraba1st.com/forum/202311/07/182657iwqipmnp4l114npp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-175403__01.jpg</strong> (105.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:26 上传
+
+PASTA使用用户指定的输入部分来引导模型生成与用户意图保持一致，通过增强(emphasizing)用户指定的上下文部分相对应的Token位置生成的分数，PASTA修改推理过程中生成的注意力分数
+
+<img src="https://img.saraba1st.com/forum/202311/07/182714p0rzswla6z6gizas.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-180456.jpg</strong> (99.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:27 上传
+
+<img src="https://img.saraba1st.com/forum/202311/07/182714r6f8c82j9c8x2czn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-180507.jpg</strong> (98.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:27 上传
+
+LLAMA-7B和GPT-J的主要实验结果都证明了PASTA可以增强模型能力：(i)遵循用户指令(JSON格式和代词更改)；(ii)解释上下文信息(BiasBios)；(iii)解决知识冲突(CounterFact)，对于所有的分数，结果越高越好，最好的结果以粗体显示
+
+<img src="https://img.saraba1st.com/forum/202311/07/182725vsg92i2woa91i9gx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-180909.jpg</strong> (140.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:27 上传
+
+LLAMA-7B生成的JSON格式和代词更改任务上的示例
+
+<img src="https://img.saraba1st.com/forum/202311/07/182733y9blzvcuteazfacv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-181053.jpg</strong> (105.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:27 上传
+
+对于JSON格式化任务中提示改写的敏感性的结果，通过在提示模板中给出重新改写的指令，PASTA可以提高所有提示的零样本性能
+
+<img src="https://img.saraba1st.com/forum/202311/07/182803mc9vb9hh0zv9umh4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-181337.jpg</strong> (55.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:28 上传
+
+LLAMA-7B在JSON格式化任务上的性能；  引导(i)所有注意力头(绿色)时;(ii)整层(黄色);(iii)层内的单个头部(蓝色提琴符)，跨层和跨注意力头的性能差异很大
+
+<img src="https://img.saraba1st.com/forum/202311/07/182812acmt210411qpp353.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-181839.jpg</strong> (105.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:28 上传
+
+在top任务特定头之间改变头选择策略时、跨多个任务的并集以及交集结果(PASTA中使用的默认值)
+
+<img src="https://img.saraba1st.com/forum/202311/07/182817axx3g76r2cg3zgn2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-182149.jpg</strong> (74.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:28 上传
+
+|将PASTA应用于LLAMA-7B在JSON格式和代词更改任务时的性能，改变引导头数量|H|;同时改变缩放系数α|
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 952#       发表于 2023-11-7 19:49
+
+GLaMM
+
+像素基准的大型多模态模型
+
+项目主页:https://mbzuai-oryx.github.io/groundingLMM
+
+github项目仓库:https://github.com/mbzuai-oryx/groundingLMM
+
+数据集下载:https://mbzuai-oryx.github.io/groundingLMM/#grand-dataset
+
+大型多模态模型(LMM/Large Multimodal Models)将大型语言模型扩展到了视觉领域，最初的LMM使用整体图像和文本提示来生成无基准(ungrounded)根据的文本响应，近期的区域级LMM则已被用来生成基于视觉基准的响应，然而，它们同时在单次仅限于引用单个对象类别，获取用户指定输入中的区域，无法提供密集的像素注意的对象基准(dense pixel-wise object grounding)
+
+在这项工作中，提出了Grounding LMM (GLaMM)，这是第一个可以生成与自然语言相对应的无缝交织的对象分割掩码的模型，GLaMM不仅可以与对话中出现的基准对象交互，而且足够灵活，还可以接受文本和可选的视觉提示(感兴趣的区域)作为输入，这使用户能够在文本和视觉领域的各种粒度级别与模型进行交互
+
+由于缺乏用于生成视觉基准详细对话的基准测试新设置，通过精心标注的基准对话引入了全面的评估协议，提出了基准对话生成(GCC/Grounded Conversation Generation)任务，这需要大规模自然场景中的密集基准概念，为此，还使用了提出的自动标注工作流程，创造了一个密集标注的Grounding-anything数据集(GranD)，包含750万个独特的概念，这些概念基于总共8.1亿个可用分割掩码的区域
+
+除了GCG之外，GLaMM还可以在多个下游任务上有效执行例如引用表达分割(referring expression segmentation)、图像和区域级字幕说明(image and region-level captioning)以及视觉语言对话(vision-language conversations)等任务
+
+<img src="https://img.saraba1st.com/forum/202311/07/194753lj61h0ejjw6jpjfo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-190219.jpg</strong> (277.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:47 上传
+
+使用GLaMM进行基准对话生成，本文的多模态对话模型可以提供基于输入图像像素级的自然语言响应，输出基准中描述了不同级别的粒度，例如事物(建筑物，树)，东西(草，天空，人行道)和对象部分(屋顶作为建筑物的子部分)以及对象属性( 白色的房子、红色的屋顶、修剪整齐的草坪)和物体关系(延伸到人行道的草、建筑物上空的天空)
+
+现有的LMM，无论是开源的(例如 LLaVa、miniGPT4、Shikra、Kosmos-2)还是闭源的(例如GPT4-V、Bard)，都不提供像素级的基准对话功能
+
+<img src="https://img.saraba1st.com/forum/202311/07/194804vygg13cgw3mmz1ym.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-190856.jpg</strong> (157.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:48 上传
+
+最新大型多模态模型(LMM)的对比，强调了它们的区域级理解能力，Input表示可以处理用户通过边界框定义的区域的模型，Multi-Region表示可以处理多个此类区域的模型，Output代表能够提供基准响应的模型，虽然一些方法采用外部视觉模块来理解区域，但其他方法仅依赖于LMM，这可能会略微导致定位不精确
+
+然而，如Region Enc./Dec.所示，有一些集成了专门的视觉模块和 LMM，End-End Model将利用LMM进行区域理解的模型与使用外部模块的模型区分开来，Pixel-wise Grounding突出显示可以使用分段掩码进行响应的模型，而Multi-turn Conversation则表示可以与用户进行交互式对话的模型，其中本文提出的GLaMM因其提供全面的区域理解、像素级基准的响应、对话功能和端到端训练方法而脱颖而出
+
+<img src="https://img.saraba1st.com/forum/202311/07/194817czrtknotdvaz1lpt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-192007.jpg</strong> (141.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:48 上传
+
+GLaMM的架构，该图说明了模型架构，展示了其提供场景级理解、区域级解释和像素级基准的能力
+
+上图:GLaMM的核心组件，包括全局图像编码器、区域编码器、LLM、基准图像编码器和像素解码器，针对跨越不同粒度的视觉语言任务进行了紧密结合的定制，视觉到语言(V-L/vision-to-language)投影层有效地将图像特征映射到语言域，像素解码器利用语言到提示(L-P/language-to-prompt)投影层，将与分割(segmentation)相关的文本嵌入转换到解码器空间，GLaMM的一个主要功能是它能够执行我们新引入的基准对话生成(GCG)任务，这凸显了模型将特定短语锚定到图像中相应分割掩码的能力
+
+底部:GLaMM的多种下游应用，包括引用表达分割、区域级字幕说明、图像级字幕说明和短句基准
+
+<img src="https://img.saraba1st.com/forum/202311/07/194850l9rlvl0hgcyicgsd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-192702.jpg</strong> (122.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:48 上传
+
+GLaMM在基准对话生成(GCG)上的定性结果，给定用户查询，LMM不仅生成文本响应，还使用像素级掩码为对象、对象部分、属性和短语提供基准，显示了其详细理解能力
+
+<img src="https://img.saraba1st.com/forum/202311/07/194857c97d8i2ixoc8xzfd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-193142.jpg</strong> (227.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:48 上传
+
+Grounding-anything数据集(GranD)的自动标注工作流程，该流程由四个级别组成，在生成基于8.1亿个区域的750万个独特概念方面发挥着关键作用
+
+级别1详细说明了对象和属性，级别2包括简短的字幕说明和关系标记，级别3构建场景图，分层组织早期级别的信息使LLM可以进行基准的密集字幕说明生成，级别4提供额外的历史和社会背景，以丰富的视觉理解的信息
+
+<img src="https://img.saraba1st.com/forum/202311/07/194903cjytu4jpt93s2htj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-193542.jpg</strong> (250.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:49 上传
+
+来自Grand数据集的数据集样本，自动标注工作流程为对象提供了多个语义标签和属性以及属于对象分割掩码，密集的字幕说明彻底描述了视觉场景，部分基准文本与相应的物体相关，额外的上下文提供了对场景的更深入的理解，超出了观察到的范围
+
+<img src="https://img.saraba1st.com/forum/202311/07/194909yq938yg0l706oypu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-194035.jpg</strong> (147.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:49 上传
+
+GranD与可用的图像和图像文本数据集的对比，GranD数据集独特地为每个图像提供了三个基准字幕说明，并包括每个标注区域的分割掩码，请注意，AS-1B数据集以灰色阴影表示它是并行工作，并且截至本发布时数据集尚未公开访问
+
+<img src="https://img.saraba1st.com/forum/202311/07/194914gsz407fp4yc7pyce.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-194316.jpg</strong> (296.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202311/07/194914ol69rzp066rn666v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-194412__01__01.jpg</strong> (337.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:49 上传
+
+性能对比结果
+
+<img src="https://img.saraba1st.com/forum/202311/07/194919jq9tu1ukc4511n87.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231107-194546.jpg</strong> (263.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 19:49 上传
+
+GLaMM促进的多模态对话交互，该图展示了GLaMM进行多轮对话、提供详细描述、解决特定区域的询问并呈现基准对话的能力，这有效地凸显了其在复杂的视觉语言交互中的适应性，并有力地保留了LLM固有的推理能力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 953#       发表于 2023-11-8 00:58
+
+Ziya2
+
+以数据为中心的学习就是LLM所需要的
+
+hugface权重下载:https://huggingface.co/IDEA-CCNL/Ziya2-13B-Base
+
+modelscope介绍页:https://modelscope.cn/models/Fengshenbang/Ziya2-13B-Base/summary
+
+近年来，包括闭源和开源模型在内的各种大型语言模型(LLM)被提出，不断在多个基准上创造新的记录，然而，LLMs的发展仍然面临着一些问题，例如从头开始训练模型的成本过于高昂，持续预训练会导致灾难性遗忘等等
+
+尽管许多此类问题在对LLMs的研究中得到了解决，但一个重要但是实际的问题仍然存在，许多研究过度追求扩大模型规模，而没有全面分析和优化学习过程中预训练数据的使用，以及在更具有成本效益的环境下于LLM训练中适当组织和利用这些数据
+
+在这项工作中，提出了Ziya2，一个具有130亿参数的模型，采用LLaMA2作为基础模型，并在7000亿Token上进一步进行预训练，通过专注于预训练技术并使用以数据为中心的优化来增强学习过程，提高Ziya2在不同阶段的表现
+
+实验表明，与代表性的开源模型相比，Ziya2在多个基准测试中显著优于其他模型
+
+<img src="https://img.saraba1st.com/forum/202311/08/005801aoalbpnzt9nz9zzj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-003903.jpg</strong> (179.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 00:58 上传
+
+Ziya2的整体以数据为中心的学习过程，其中获取高质量数据的工作流程、训练策略和三阶段训练过程分别呈现在图的底部、中间和顶部，其中通过对比数据分布来说明了不同阶段的训练策略
+
+<img src="https://img.saraba1st.com/forum/202311/08/005808a1qfiqj2zu2f2vwz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-004241.jpg</strong> (41.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 00:58 上传
+
+Ziya2中提出的以数据为中心的学习方法的概览，该方法包括五个组件：数据预处理(DP/data preprocessing)、自动评分(AS/automatic scoring)、基于规则的过滤(RF/rule-based filtering)、内容去重(CF/content de-duplication)和数据评估(DE/data evaluation)
+
+灰色和彩色块分别表示相对于原始数据集过滤掉和保留的数据的比例
+
+<img src="https://img.saraba1st.com/forum/202311/08/005813axgeoeps3ygbbusc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-004602.jpg</strong> (192.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 00:58 上传
+
+用于评估数据质量的指标，Method表示检测方法，Re Matching表示涉及正则表达式进行计数的方法，LM表示利用语言模型来预测相关指标，Counts表示使用统计方法来直接计数指标，Human Check是指由人工进行的手动抽查，Level表示对各个指标应用的严格程度，如果不超过千分之一，就认为其是合规的
+
+<img src="https://img.saraba1st.com/forum/202311/08/005818ppeefpzf4rrfdrop.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-004836.jpg</strong> (107.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 00:58 上传
+
+用于训练Ziya2的高质量预训练数据集信息，“pre-training stage”说明了使用数据集的阶段；  “en”、“zh”、“multi”分别表示数据集的语言为英语、汉语、多语种；  “Sampling”是指从原始数据集中采样数据的比例
+
+<img src="https://img.saraba1st.com/forum/202311/08/005822gh8ejgbyecygooj3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-005016.jpg</strong> (96.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 00:58 上传
+
+构建无监督和监督预训练数据的过程分为三个阶段
+
+<img src="https://img.saraba1st.com/forum/202311/08/005826uba8d7mgv387x63y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-005117.jpg</strong> (62.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 00:58 上传
+
+BF16和FP16浮点数表示的图示以及Ziya2-13B和Ziya-13B相对于训练步数的预训练损失
+
+<img src="https://img.saraba1st.com/forum/202311/08/005830upww4v41wzeddp64.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-005338.jpg</strong> (136.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 00:58 上传
+
+Ziya2与其他闭源和开源LLM于六个用于LLM评估的基准数据集上的对比结果，其中粗体表示在所有开源LLM中表现最好的结果
+
+<img src="https://img.saraba1st.com/forum/202311/08/005836p5hauwz9aqfhqhjf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-005524.jpg</strong> (165 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 00:58 上传
+
+Ziya2在三个训练阶段时于六个基准数据集上的性能，不同阶段的训练过程由特定训练步骤中用于训练Ziya2的token数量表示，LLaMA2在数据集上的性能用虚线表示以供参考
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 954#       发表于 2023-11-8 01:30
+
+MFTCoder
+
+通过多任务微调(Multitask Fine-Tuning)提升代码LLM
+
+github项目主页:https://github.com/codefuse-ai/MFTCOder
+
+代码大型语言模型(LLM)已成为一个专门的研究领域，其研究致力于通过对预训练模型进行微调来增强模型的编码能力，以前的微调方法通常是针对特定的下游任务或场景进行量身定制的，这意味着每个任务都需要单独进行微调，这需要大量的训练资源，并且在部署和维护方面提出了挑战
+
+此外，这些方法并未能利用不同的代码相关任务之间固有的相互关联性，为了克服这些限制，本文提出了一个多任务微调框架MFTcoder，可以对多个任务进行同步和并行微调，通过结合各种损失函数，有效地解决了多任务学习中的常见挑战，例如数据不平衡、不同的难度级别和不一致的收敛速度
+
+大量的实验最终证明多任务微调方法优于对单个任务的单独微调和对混合任务集合的微调，此外，MFTcoder提供高效的训练能力，包括高效的数据分词化模式(tokenization modes)和前缀微调(PEFT fine-tuning)，与传统微调方法相比，速度显著提高
+
+MFTcoder可以与CodeLLama、Qwen等几种主流的开源LLM无缝集成，通过利用CodeLLama作为基础模型，本文提出的MFTcoder微调模型CodeFuse-CodeLLama-34B在HumaneEval基准测试中取得了令人印象深刻的74.4%的pass@1成绩，超越了GPT-4的67%的零样本性能
+
+github项目页截图:
+
+<img src="https://img.saraba1st.com/forum/202311/08/013011v0a577cgc7j1c11o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-012914.jpg</strong> (222.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 01:30 上传
+
+<img src="https://img.saraba1st.com/forum/202311/08/013011c7obo9z8ob171a1b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-012928.jpg</strong> (257.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 01:30 上传
+
+<img src="https://img.saraba1st.com/forum/202311/08/013011p2n36jjgg660202z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-012937.jpg</strong> (170.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 01:30 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 955#       发表于 2023-11-8 02:38
+
+CoVLM
+
+通过沟通解码(Communicative Decoding)在大型语言模型中组合视觉实体和关系(Visual Entities and Relationships)
+
+项目页面:https://vis-www.cs.umass.edu/CoVLM
+
+github项目代码仓库:https://github.com/UMass-Foundation-Model/CoVLM
+
+人类的一项非凡能力在于组合式推理(compositional reasoning)，即“无限的使用有限含义(infinite use of finite means)”的能力，然而，当前的大型视觉语言基础模型(VLM/vision-language foundation models)由于其“词袋(bag-of-words)”行为且无法构建正确表示视觉实体和实体之间关系的单词，因此缺乏这种组合能力
+
+为此，本文提出了CoVLM，它可以指导LLM显式地组合文本之间的视觉实体和关系，并与视觉编码器和检测网络动态沟通，以实现视觉语言沟通解码
+
+具体来说，首先为LLM设计了一组新颖的沟通Token，用于视觉检测系统和语言系统之间的动态沟通，LLM根据视觉实体或关系生成沟通Token，以通知检测网络提案与目前生成的句子相关的区域，然后将提议的感兴趣区域(ROI/regions-of-interests)反馈到LLM中用以根据相关区域更好地生成语言
+
+因此，LLM能够通过沟通Token组合视觉实体和关系，视觉到语言和语言到视觉的交流不断迭代，直到生成整个句子，本文的框架无缝地弥合了视觉感知和LLM之间的差距，并且在组合推理基准上大幅优于之前的VLM(例如，在HICO-DET mAP上的改进约为20%，在Cola top-1上的改进14%，在ARO top-1上的改进约3%)，在传统视觉语言任务上也实现了SOTA表现，例如指代表达理解和视觉问答
+
+<img src="https://img.saraba1st.com/forum/202311/08/023811swwwpe0jech6wq4t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-022033.jpg</strong> (86.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 02:38 上传
+
+与现有VLM的对比，以前的模型将整张图像作为输入，损害了VLM的组合性，CoVLM将语言到视觉和视觉到语言通信后的视觉实体/关系Token插入到LLM中，在很大程度上提高了组合性
+
+<img src="https://img.saraba1st.com/forum/202311/08/023824wzpgp2jim6m6w59z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-022452.jpg</strong> (89.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 02:38 上传
+
+CoVLM框架概览，视觉模块由一个用于对图像进行编码的CLIP编码器和一个对象检测器组成，该对象检测器接收图像和语言输入以生成相关区域
+
+对于语言建模，将一组沟通Token插入到LLM中，这些Token可以出现在带有&lt;visual&gt;Token的视觉实体之后，或者出现在带有&lt;previsual&gt;Token的关系之后，之后LLM的最后一个隐藏层被发送到对象检测器，以提案与迄今为止的语言输入相关的区域，这被称为自上而下的语言到视觉的沟通(top down language-to-vision communication)，接下来，在视觉到语言的通信中，建议区域的特征通过&lt;box&gt;或&lt;prebox&gt;令牌反馈给LLM以进一步生成语言
+
+<img src="https://img.saraba1st.com/forum/202311/08/023835v9yfm6mnmivfry99.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-022937.jpg</strong> (107.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 02:38 上传
+
+三个数据集上的视觉语言对齐模型和生成模型的组合推理能力对比
+
+<img src="https://img.saraba1st.com/forum/202311/08/023843chfzzh4qeg5e4351.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-023050.jpg</strong> (115.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 02:38 上传
+
+与HICO-DET上任务特定方法的对比
+
+<img src="https://img.saraba1st.com/forum/202311/08/023848qqifz9qp9rf7fk6s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-023130.jpg</strong> (51.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 02:38 上传
+
+与Cola上任务特定的监督学习方法的对比
+
+<img src="https://img.saraba1st.com/forum/202311/08/023852yi9t4u4k936ly0t0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-023552.jpg</strong> (71.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 02:38 上传
+
+三个数据集上的引用表达理解的对比
+
+<img src="https://img.saraba1st.com/forum/202311/08/023857o2k88yb3uybuv23u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231108-023625.jpg</strong> (124.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 02:38 上传
+
+VQAv2的test-dev结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 956#       发表于 2023-11-9 02:24
+
+ 本帖最后由 Machinery 于 2023-11-9 02:27 编辑 
+
+OtterHD/MagnifierBench
+
+高分辨率多模态模型/MagnifierBench评估框架
+
+github项目主页:https://github.com/Luodian/Otter
+
+MagnifierBench评估框架:https://huggingface.co/datasets/Otter-AI/MagnifierBench
+
+OtterHD-8B，一种从Fuyu-8B演变来的创新多模态模型，专注用于以粒度精度理解高分辨率视觉输入，与受固定尺寸视觉编码器限制的传统模型不同，OtterHD-8B拥有灵活处理输入尺寸的能力，确保其在各种推理要求中的多功能性
+
+除了该模型之外，还引入了MagnifierBench，一个新颖的评估框架，旨在检查模型辨别小物体的微小细节和空间关系的能力，对比分析表明，虽然当前领先的模型在此基准上表现不佳，但OtterHD-8B，特别是在直接处理高分辨率输入时，其性能大幅优于同类产品
+
+研究结果阐明了不同模型之间视觉信息处理的结构差异，以及视觉编码器的预训练分辨率差异对此类基准中模型有效性的影响，研究强调了灵活性和高分辨率输入能力在大型多模态模型中的关键作用，并举例说明了Fuyu架构在处理复杂视觉数据的简单性方面所固有的潜力
+
+<img src="https://img.saraba1st.com/forum/202311/09/022337rrz5qjitw0rote6d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-012554.jpg</strong> (171.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:23 上传
+
+OtterHD-8B的感知与识别演示，该图为宋代国画《清明上河图》整个作品的一部分，分辨率为2466×1766
+
+<img src="https://img.saraba1st.com/forum/202311/09/022343fhh3ph6770qj0t1h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-012613.jpg</strong> (136.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:23 上传
+
+OtterHD-8B与著名开源LMM的性能对比，详细说明了指令/响应数据对、训练和评估分辨率
+
+“Dynamic”指的是具有不同分辨率的训练，“Original”表示使用每个图像的原始分辨率进行评估，而不进行任何调整大小操作，其他模型多数将图像大小调整为一致的方形分辨率进行评估，如Eval Res所示
+
+<img src="https://img.saraba1st.com/forum/202311/09/022355ctbihbfyqheqzatb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-014700.jpg</strong> (51.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:23 上传
+
+不同模型的吞吐量对比评估，训练吞吐量指标(表示每个GPU每秒的Token数)，通过记录每个批次的值并计算随后30分钟时间的平均值确定，Token包括图像Token和文本Token
+
+<img src="https://img.saraba1st.com/forum/202311/09/022400d8n4n4n1qwwhwa1t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-014705.jpg</strong> (142.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:24 上传
+
+MagnifierBench中三种问题类型的示例，其中每个问题都与两种类型的问题和答案相关，左右图像的分辨率均为1080×1920，而中央图像的分辨率为640×480
+
+<img src="https://img.saraba1st.com/forum/202311/09/022406jpow61h40tbpnkzp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-021519.jpg</strong> (72.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:24 上传
+
+OtterHD在不同分辨率下的评估性能对比
+
+<img src="https://img.saraba1st.com/forum/202311/09/022411owzhwesrru25fuw6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-021606.jpg</strong> (41.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:24 上传
+
+不同分辨率下的图像和文本Token计数
+
+<img src="https://img.saraba1st.com/forum/202311/09/022720tmmtll07lhqqhllm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-021644__01.jpg</strong> (175.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:27 上传
+
+LMM之间的对象计数和详细场景文本理解能力对比，不正确的部分已注明
+
+<img src="https://img.saraba1st.com/forum/202311/09/022422i16ns6nz99y6mtdz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-021739.jpg</strong> (226.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:24 上传
+
+LMM之间的桌面级(desktop)理解能力对比，不正确的部分已注明
+
+<img src="https://img.saraba1st.com/forum/202311/09/022428q2j7t0st57m55s2m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-021937.jpg</strong> (181.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:24 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/022428vfbo4mbo5hhmmb4f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-021946.jpg</strong> (227.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:24 上传
+
+LMM之间的详细场景文本(桌面指导)理解和推理能力对比，不正确的部分已注明
+
+<img src="https://img.saraba1st.com/forum/202311/09/022635cyysmsdydkfdlxls.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-022622.jpg</strong> (474.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 02:26 上传
+
+比较不同LLM在MagnifierBench上对两类问题的回答，正确答案有下划线
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 957#       发表于 2023-11-9 06:18
+
+I2VGen-XL
+
+通过级联扩散模型(Cascaded Diffusion Models)进行高质量图像到视频合成
+
+项目主页:https://i2vgen-xl.github.io/
+
+github项目仓库:https://github.com/damo-vilab/i2vgen-xl
+
+随着扩散模型的快速发展，视频合成最近取得了明显的进步，然而这些方法在语义准确性、清晰度和时空连续性(spatio-temporal continuity)方面仍然需要接受挑战，源于缺乏良好对齐的文本视频数据以及视频复杂的固有结构的原因，使得模型很难同时确保语义和质量的效果
+
+在本文中，提出了一种级联I2VGen-XL方法，该方法通过解耦这两个因素来增强模型的性能，同时通过利用静态图像作为关键指导的形式来确保与输入数据的对齐
+
+I2VGen-XL由两个阶段组成：i)基础阶段，通过使用两个分层编码器保证关联语义并保留输入图像的内容，ii)细化阶段，通过合并额外的简短文本来增强视频的细节，并将分辨率提高到1280×720
+
+为了提高多样性，研究组收集了大约3500万个单镜头(single-shot)文本视频对和60亿个文本图像对来优化模型，通过这种方式，I2VGen-XL可以同时增强生成视频的语义准确性(semantic accuracy)、细节的连续性(continuity of details)和清晰度(clarity)
+
+通过广泛实验，研究了I2VGen-XL的基本原理，并将其与当前的顶级方法进行了对比，这证明了其在多种数据上的有效性
+
+<img src="https://img.saraba1st.com/forum/202311/09/061757yp6nghnexgtp1ghe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-060434.jpg</strong> (320.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 06:17 上传
+
+生成的视频的示例，I2VGen-XL能够生成各种类别的高质量视频，例如艺术、人类、动物、技术等，生成的视频具有高清、高分辨率、流畅、美观等优点，适合更广泛的视频内容创作
+
+<img src="https://img.saraba1st.com/forum/202311/09/061800qpnh3aayjscn66yb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-060552.jpg</strong> (65.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 06:18 上传
+
+I2VGen-XL的框架总览，在基础阶段，两个分层编码器同时捕获输入图像的高级语义和低级细节，确保更真实的动态，同时保留图像的内容和结构，在细化阶段，利用独立的扩散模型来增强分辨率，并通过细化细节显著增强视频的时间连续性，“D.Enc” 和“G.Enc”分别表示细节编码器和全局编码器
+
+<img src="https://img.saraba1st.com/forum/202311/09/061804xkaas86pzmmxkkmm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-060914.jpg</strong> (147.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 06:18 上传
+
+全局编码器的架构，“C”代表Conv2D，相应的参数分别为input dimension，output dimension，kernel size，stride,以及padding，“A.A.P”是2D Adaptive平均池化操作
+
+<img src="https://img.saraba1st.com/forum/202311/09/061808cqa3og4497d3a89e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-061341.jpg</strong> (204.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 06:18 上传
+
+细化模型的结果，显然，细化模型有效地复原了视频细节并保证了时间连续性，从而证明了其效果
+
+<img src="https://img.saraba1st.com/forum/202311/09/061813d0bb201021h0hjf4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-061455.jpg</strong> (467.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 06:18 上传
+
+与Gen-2和Pika Labs的对比
+
+<img src="https://img.saraba1st.com/forum/202311/09/061817sq1xx7kqw8xeiu2e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-061524.jpg</strong> (621.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 06:18 上传
+
+根据输入的文本提示生成的视频
+
+<img src="https://img.saraba1st.com/forum/202311/09/061822rguup59ww256rp1g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-061602.jpg</strong> (160.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 06:18 上传
+
+细化模型的频谱分析与I2VGen-XL生成人类躯体视频
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 958#       发表于 2023-11-9 07:23
+
+VIM(Video Instance Matting)
+
+视频实例抠图/去背景(Matting)
+
+github项目主页:https://github.com/SHI-Labs/VIM
+
+传统的视频抠图为视频帧中出现的所有实例输出一个alpha遮罩，从而无法区分各个实例，虽然视频实例分割提供了具有时间一致性的实例掩码，由于应用了二值化(binarization)，其结果对于抠图应用程序来说并不令人满意
+
+为了弥补这一缺陷，本文提出了视频实例抠图(VIM/Video Instance Matting)，对于视频序列的每一帧的每个实例都输出估计的alpha遮罩，为了解决这个挑战性的问题，提出了MSG-VIM，一种掩码序列引导的视频实例抠图神经网络(Mask Sequence Guided Video Instance Matting neural network)，作为VIM的新基线模型
+
+MSG-VIM使用掩码增强的混合让不准确和不一致的掩码指导预测具有稳健性，结合了时间掩码和时间特征指导提高alpha遮罩预测的时间一致性
+
+此外，还为VIM构建了一个新的基准测试，称为VIM50，其中包含50个视频剪辑片段，在前景对象中有多个人体实例，用于评估VIM任务的性能，还引入了一个合适的指标，称为视频实例感知抠图质量(VIMQ/Video Instance-aware Matting Quality)，本文提出的模型MSG-VIM在VIM50基准上设定了强有力的基线，并且远远优于现有的其他方法
+
+<img src="https://img.saraba1st.com/forum/202311/09/072304hegk5pgpkwrgtw68.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-071125.jpg</strong> (304.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:23 上传
+
+视频实例抠图与相关任务的对比，图中描绘了VIM50基准测试的三个框架，视频抠图(Video Matting)、视频实例分割(Video Instance Segmentation)和视频实例抠图(Video Instance Matting)，结果分别从RVM、SeqFormer和MSG-VIM获得，视频实例抠图是识别和跟踪每个前景实例的任务，并估计视频序列每帧对应实例的alpha遮罩
+
+<img src="https://img.saraba1st.com/forum/202311/09/072320n78ztllfpl8p7qgg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-071509.jpg</strong> (40.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:23 上传
+
+视频实例抠图以及相关任务之间的高级对比
+
+<img src="https://img.saraba1st.com/forum/202311/09/072326mtibeoezx9ktdndo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-071615.jpg</strong> (178.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:23 上传
+
+MSG-VIM的架构，使用VIS方法来获取目标的掩码序列和参考实例，掩码引导序列与视频帧连接，作为遮罩网络的输入，之后输出目标实例和参考实例的精细alpha遮罩预测
+
+<img src="https://img.saraba1st.com/forum/202311/09/072348w5qd11d3zqkmk2kk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-072018.jpg</strong> (175.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:23 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/072348tyjhihmyjqyqmurm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-072052.jpg</strong> (220.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:23 上传
+
+相关消融实验与指标测试对比等
+
+<img src="https://img.saraba1st.com/forum/202311/09/072353ftmt1rypy9wrr8hm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-072136.jpg</strong> (234.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:23 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/072353xbbcbiy942b27b34.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-072149.jpg</strong> (284.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:23 上传
+
+定性对比结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 959#       发表于 2023-11-9 07:36
+
+DevOps-Model/DevOpsEval
+
+DevOps-Model是一系列业界首个开源的中文开发运维大模型，主要致力于在DevOps(software development (dev) and operations (ops))领域发挥实际价值
+
+DevOpsEval是DevOps领域专属的评测基准，用来更好的评测DevOps领域模型的效果
+
+DevOps-Model github项目主页:https://github.com/codefuse-ai/CodeFuse-DevOps-Model
+
+DevOpsEval github项目主页:https://github.com/codefuse-ai/codefuse-devops-eval
+
+相关页面说明:
+
+<img src="https://img.saraba1st.com/forum/202311/09/073646wm111a1z4brsm33d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-073221.jpg</strong> (261.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:36 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/073646einl3ey4nw44pnxn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-073233.jpg</strong> (183.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:36 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/073646rc1c2pqjlvql5nbz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-073245.jpg</strong> (164.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:36 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/073646i5dosd1o6o61x1hd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-073253.jpg</strong> (214.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:36 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/073646rigbovox70e212iy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-073322.jpg</strong> (79.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:36 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/073647re74gg7mdefgvafp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-073540.jpg</strong> (242.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:36 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/073647b413xxyue477xxq4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231109-073600.jpg</strong> (484.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 07:36 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 960#       发表于 2023-11-10 02:19
+
+LRM
+
+单图像转3D的大型重建模型(Large Reconstruction Model)
+
+项目主页:https://yiconghong.me/LRM/
+
+本文提出了第一个大型重建模型(LRM/Large Reconstruction Model)，可以在仅仅5秒内从单张输入图像预测对象的3D模型
+
+与许多在小规模数据集(例如ShapeNet)上以特定类别方式进行训练的方法相比，LRM采用高度可扩展的基于Transformer的架构，具有5亿可学习的参数，可以直接从输入图像预测神经辐射场(NeRF/neural radiance field)
+
+通过在包含大约100万个对象的海量多视图数据上以端到端的方式训练模型，使用包括来自Objaverse的合成渲染和来自MVImgNet的真实捕获图，大型模型和大规模训练数据的结合使模型具有高通用性，并且可以根据各种测试输入(如真实世界的自然场景捕获和生成模型的图像)生成高质量的3D重建
+
+<img src="https://img.saraba1st.com/forum/202311/10/021835he0l44ciyzdvbkml.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-020236.jpg</strong> (157.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 02:18 上传
+
+LRM的整体架构，一个基于完全可微(fully-differentiable)的Transformer的编码器-解码器框架，用于单图像到NeRF重建
+
+LRM应用预先训练的视觉模型(DINO)对输入图像进行编码，其中图像特征通过大型Transformer解码器的交叉注意力投影为3D三平面表征， 随后多层感知器(multi-layer perceptron)用来预测体积渲染(volumetric rendering)的点颜色(point color)和密度(density)，整个网络在大约一百万个3D数据上进行端到端训练，并具有简单的图像重建损失(reconstruction losses)
+
+<img src="https://img.saraba1st.com/forum/202311/10/021931u61zm06dyd1o01mp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-020821.jpg</strong> (396.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 02:19 上传
+
+LRM从单张图像重建形状的新视图(RGB和深度)，在训练期间模型不会观察到任何图像，生成的图像是使用Adob​​e Firefly创建的，最后两行将本模型的结果与Objaverse对象(GT/基准答案)的基准渲染结果图像进行对比
+
+<img src="https://img.saraba1st.com/forum/202311/10/021855oehb1f8oo6ok1by0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-021258.jpg</strong> (151.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 02:18 上传
+
+与One-2-3-45的对比，为了避免挑选结果(cherry picking)，前三行中的输入图像是从One-2-3-45的论文或演示页面中提供的示例中选择的，模型在训练期间没有观察到任何图像
+
+<img src="https://img.saraba1st.com/forum/202311/10/021850gw8gqlptrrot8prg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-021429.jpg</strong> (45.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 02:18 上传
+
+本方法的失败案例，所有三个示例都在遮挡区域显示了模糊纹理，通常是由于相机参数的估计在很大程度上不准确而导致的失真
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 961#       发表于 2023-11-10 02:20
+
+Awesome-Text-to-3D
+
+文本到3D生成方法总览
+
+引导页:https://github.com/StellarCheng/Awesome-Text-to-3D
+
+相关说明截图:
+
+<img src="https://img.saraba1st.com/forum/202311/10/022024zi3va2el0wkkxvz7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-021648.jpg</strong> (563.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 02:20 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/022024vhu0de3bz3o0ro3z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-021655.jpg</strong> (190.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 02:20 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 962#       发表于 2023-11-10 03:43
+
+mPLUG-Owl2
+
+通过多模态协力(Collaboration)革新多模态大型语言模型
+
+github项目页面:https://github.com/X-PLUG/mPLUG-Owl/tree/main/mPLUG-Owl2
+
+多模态大型语言模型(MLLM/Multi-modal Large Language Models)在多种开放式任务中表现出了令人印象深刻的指令能力，然而，之前的方法主要侧重于增强多模态能力，在本文中，引入了一种多功能的多模态大语言模型mPLUG-Owl2，能够有效地利用模态协力来同时提高文本和多模态任务的性能
+
+mPLUG-Owl2采用模块化网络设计，语言解码器作为管理者控制不同模态的通用交互接口，具体来说，mPLUG-Owl2合并了共享的功能模块以促进模态协力，并引入了模态适配模块(modality-adaptive module)来保留局限于特定模态的功能
+
+大量实验表明，mPLUG-Owl2能够泛化文本任务和多模态任务，并通过单个通用模型实现SOTA性能，更值得注意的是，mPLUG-Owl2是第一个在纯文本和多模态场景中展示模态协力现象的MLLM模型，这为未来多模态基础模型的开发开辟了开创性道路
+
+<img src="https://img.saraba1st.com/forum/202311/10/033815ll57ja118uqq1lqe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-031309.jpg</strong> (272.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:38 上传
+
+mPLUG-Owl2与已有的MLLM之间的性能对比总览以及已有的MLLM与本文提出的模型之间的差异
+(a)以前的方法利用标准语言解码器(即LLM)来管理不同类型的指令，导致模态干扰和性能下降
+(b)本文方法引入了mPLUG-Owl2，通过使用模态适配语言解码器来处理不同模块内的不同模态，同时共享一些用于模态协力的参数，这种方法减轻了模态互相干扰的问题
+
+<img src="https://img.saraba1st.com/forum/202311/10/033822u7goh9gzo9l9lbb7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-031846.jpg</strong> (125.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:38 上传
+
+所提案的mPLUG-Owl2及其训练范式的图示
+(a) mPLUG-Owl2概览，它由视觉编码器、视觉抽象器(visual abstractor)、文本嵌入层和语言解码器组成
+(b)所提出的模态适配模块的详细信息，该模块采用多模态输入并采用不同的参数将各种模态投影到共享语义空间中以进行关系学习，同时保留模态特定的特征，从而实现模态协力
+(c)mPLUG-Owl2的训练范式，首先涉及视觉相关模块的预训练，包括视觉编码器和视觉抽象器，同时，语言解码器中新添加的参数也在预训练阶段被学习，在指令调整阶段，同时使用语言指令和多模态指令来联合训练整个模型
+
+<img src="https://img.saraba1st.com/forum/202311/10/033836lv88vvnq1f6y3d8y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-032212.jpg</strong> (108.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:38 上传
+
+图像字幕说明和视觉问答的性能对比，对于图像字幕说明，报告CIDEr指标进行评估，VQA则报告准确率，请注意有的方法会对模型进行独立数据集微调
+
+†表示使用了OCR输入，‡表示模型已在数据集上进行训练，将那些在数据集上专门微调的专家方法以及通用的微调结果显示为灰色
+
+<img src="https://img.saraba1st.com/forum/202311/10/034106u8c66nnmmnnc05m6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-034057.jpg</strong> (118.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:41 上传
+
+对多模态基准测试进行零样本多模态评估，MME、MMBench、MM-Vet、SEED-Bench和Q-Bench，报告总分以供评估
+
+<img src="https://img.saraba1st.com/forum/202311/10/034217kujm00ijqh0x7ufx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-034204.jpg</strong> (59.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:42 上传
+
+mPLUG-Owl2与LLaMA-2 (7B)系列变体在纯文本基准测试中的性能对比，对MMLU采用5-shot，对BBH、AGIEval和ARC采用0-shot
+
+<img src="https://img.saraba1st.com/forum/202311/10/034238nz5h45ixbpi4xnpu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-033204.jpg</strong> (108.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:42 上传
+
+视频问答的零样本评估，报告准确性和相关性分数
+
+<img src="https://img.saraba1st.com/forum/202311/10/034250qrc05hvbrery5qvc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-033243.jpg</strong> (72.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:42 上传
+
+模态协力下跨越多种功能的文本基准测试性能
+
+<img src="https://img.saraba1st.com/forum/202311/10/034255iqc4n4sn4s5tlpts.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-033401.jpg</strong> (211.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:42 上传
+
+其他相关评估结果
+
+<img src="https://img.saraba1st.com/forum/202311/10/034303eopza73k3no83omc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-033455.jpg</strong> (60.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:43 上传
+
+不同输入图像分辨率的影响
+
+<img src="https://img.saraba1st.com/forum/202311/10/034307s5fsllykz1w5599b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-033521.jpg</strong> (224.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:43 上传
+
+使用和不使用模态适配模块的注意力图的可视化，展示了第0、15和31层的注意力图，其中视觉Token的范围由橙色表示，文本Token的范围由蓝色表示
+
+<img src="https://img.saraba1st.com/forum/202311/10/034311nzxpz2x2xzpxp2fl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-033705.jpg</strong> (310.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 03:43 上传
+
+使用和不使用模态适配模块的注意力图的可视化，展示了每层注意力图的平均值
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 963#       发表于 2023-11-10 04:14
+
+NExT-Chat
+
+用于聊天、检测和分割(Chat, Detection and Segmentation)的LMM
+
+项目主页:https://next-chatv.github.io/
+
+github项目仓库:https://github.com/NExT-ChatV/NExT-Chat
+
+7B演示Demo:https://20d12192149d0748e2.gradio.live/
+
+大型语言模型(LLM/large language models)的发展极大地提升了多模态理解领域，并发展出了大型多模态模型(LMM/large multimodal models)，为了提高视觉理解水平，最近的研究通过将对象边界框坐标表征为一系列文本序列(pixel2seq)，为LMM装备了区域级理解能力(region-level understanding capabilities)
+
+在本文中，介绍了一种称为Pixel2emb的对象位置建模(object location modeling)的新范式方法，通过要求LMM输出位置嵌入(location embeddings)，然后由不同的解码器进行解码，这种范式允许在多模态对话中使用不同的位置格式(例如边界框和掩码)，此外，这种基于嵌入的位置建模使之能够利用定位任务中的现有实践方法，例如检测和分割
+
+在资源有限的场景中的公平比较下，Pixel2emb在位置输入和输出任务中都表现出了比现有的SOTA方法更强大的性能，利用所提出的Pixel2emb方法，还训练了一个名为NExT-Chat的LMM，并展示了其处理视觉基准(visual grounding)、区域字幕说明(region caption)和基准推理(grounded reasoning)等多项任务的能力
+
+<img src="https://img.saraba1st.com/forum/202311/10/041339f25v1l2kip11pib2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-040309.jpg</strong> (64.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:13 上传
+
+通过使用基于嵌入的位置建模方法，LMM可以将边界框作为输入和输出文本、多模态对话中的边界框和掩码
+
+<img src="https://img.saraba1st.com/forum/202311/10/041344wzjh1jd99m9zud9u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-040234.jpg</strong> (63.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:13 上传
+
+NExT-Chat的整体框架，图像和给定的边界框分别由图像和框编码器编码，随后&lt;trigger&gt;的隐藏状态被输入框解码器和掩码解码器，从而实现对象检测和分割
+
+<img src="https://img.saraba1st.com/forum/202311/10/041351bmwzbgmcvv0ew0c8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-040534.jpg</strong> (60.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:13 上传
+
+Pemb和现有的位置建模方法之间的对比，Dec.Type是解码坐标的方式，Format是边界框格式，ToB代表单个边界框的Token数量，请注意，“[” and “]”也需要两个Token，Vocab.是添加到位置数据建模词汇表中的新Token的数量，Rep.代表模型是给定位置建模方法的代表性模型
+
+<img src="https://img.saraba1st.com/forum/202311/10/041358kztxr3vrxc1ehh1d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-040849.jpg</strong> (41.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:13 上传
+
+循环损失(Cycle loss)用于绑定框编码器和解码器的训练
+
+<img src="https://img.saraba1st.com/forum/202311/10/041408z11ze9hn1ojn9921.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-040955.jpg</strong> (79.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:14 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/041408c7vwcwridycwd7yq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-041030.jpg</strong> (23.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:14 上传
+
+Pemb和其他基线在位置输出与输入任务上的对比
+
+<img src="https://img.saraba1st.com/forum/202311/10/041413eyj8ni9n9nu9un1w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-041136.jpg</strong> (156.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:14 上传
+
+NExT-Chat与当前SOTA模型在POPE目标幻觉诊断基准上的比较
+
+<img src="https://img.saraba1st.com/forum/202311/10/041428dxttn2idnd88zd7z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-041225.jpg</strong> (337.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:14 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/041428vjm2o0zm1z583tfo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-041235.jpg</strong> (145.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:14 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/041428klevs3z1aeg8svl9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-041242.jpg</strong> (225.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:14 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/041428nkyg9vkvo993fkgg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110-041250.jpg</strong> (201 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 04:14 上传
+
+相关任务实例
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 964#       发表于 2023-11-12 03:18
+
+ 本帖最后由 Machinery 于 2023-11-12 03:21 编辑 
+
+LooGLE
+
+长上下文语言模型可以理解长上下文吗？
+
+github数据集主页:https://github.com/bigai-nlco/LooGLE
+
+尽管大型语言模型在多种语言任务中表现出色，但这通常仅限于处理上下文窗口大小内的文本，这一限制促使人们进行了大量的研究工作，使用诸如高质量的长序列基准测试来增强LLM的长上下文理解
+
+然而之前的数据集在某些方面存在一些短处，例如，与现代LLM的上下文窗口相比，基准测试的上下文长度依然较短；文档过时，存在数据泄露问题； 以及过于强调短程依赖任务而不是长程依赖任务
+
+在本文中，提出了LooGLE，一种用于LLM长上下文理解的长上下文通用语言评估基准，LooGLE集成了2022年之后相对较新的文档，每个文档包含超过24000个Token，以及跨越不同领域的6000个新生成的问题，同时人工标注者精心制作了1100多个高质量问答对，以满足长程依赖测试要求
+
+通过对这些问答对进行了彻底的交叉验证，对LLM的长程依赖能力进行了最精确的评估，以及对LooGLE上八个SOTA LLM的评估揭示了以下主要发现:(i)商业模型优于开源模型；(ii)LLM在短程依赖任务(如简短问答和完形填空任务)方面表现出色，但在更复杂的长程依赖任务上表现不佳；(iii)上下文学习和CoT只能带来边际收益；(iv)基于检索的技术显示出对短问答的巨大好处，而延长上下文窗口长度的策略对长上下文理解的影响有限
+
+因此，LooGLE不仅为长上下文LLM提供了系统、全面的评估模式，而且还为未来发展“真正的长上下文理解”增强模型提供了灵感
+
+<img src="https://img.saraba1st.com/forum/202311/12/031506hl52jgp8zpp4lm94.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-030555.jpg</strong> (124.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:15 上传
+
+用于长上下文理解的LooGLE基准
+
+<img src="https://img.saraba1st.com/forum/202311/12/031514qh1hocccnwdzd000.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-030631.jpg</strong> (57.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:15 上传
+
+与其他长上下文基准的对比
+
+<img src="https://img.saraba1st.com/forum/202311/12/031531u555ue21555u5jxz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-030700.jpg</strong> (95.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:15 上传
+
+LooGLE的统计数据
+
+<img src="https://img.saraba1st.com/forum/202311/12/031544nrk4tphr44u8ualt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-030725__01.jpg</strong> (317.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:15 上传
+
+长程依赖QA任务
+
+<img src="https://img.saraba1st.com/forum/202311/12/031551y1pcrqc3607ice1y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-030817__01.jpg</strong> (209.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:15 上传
+
+LLM们在LooGLE上的长上下文理解表现总览
+
+<img src="https://img.saraba1st.com/forum/202311/12/031558e22zlknv3wrdk3r9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-030954.jpg</strong> (252.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:15 上传
+
+短程依赖与长程依赖的表现性能
+
+<img src="https://img.saraba1st.com/forum/202311/12/031604lejnr3n11fhwirkj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-031023.jpg</strong> (127.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:16 上传
+
+输入长度对长程依赖任务的影响
+
+<img src="https://img.saraba1st.com/forum/202311/12/031851whpmaz1kaskk1qoh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-031102.jpg</strong> (169.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:18 上传
+
+使用LlamaIndex的长程依赖QA任务的性能与GPT 4评估的四种长程依赖WAs的独立结果
+
+<img src="https://img.saraba1st.com/forum/202311/12/031705t1ch31mlsg133hkk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-031147.jpg</strong> (99.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:17 上传
+
+时间线重排序的性能表现
+
+<img src="https://img.saraba1st.com/forum/202311/12/031710v0sy48spgdxdxss8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-031221.jpg</strong> (78.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:17 上传
+
+不同分段的表现与没有CoT的长程依赖性QA任务表现
+
+<img src="https://img.saraba1st.com/forum/202311/12/031715n23r3tl9fdelvlee.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-031232.jpg</strong> (65.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:17 上传
+
+QA任务的输出分布
+
+<img src="https://img.saraba1st.com/forum/202311/12/031720uu8rran8jaan75j4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-031253.jpg</strong> (120.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:17 上传
+
+长程依赖QA的错误案例研究
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 965#       发表于 2023-11-12 03:52
+
+helm
+
+文本到图像模型的整体评估
+
+github项目主页:https://github.com/stanford-crfm/helm
+
+具有完全透明度的生成图像和人工评估结果:https://crfm.stanford.edu/heim/v1.1.0
+
+最近的文本到图像模型以令人惊叹的质量改进引起了广泛的关注和部署，然而缺乏对其能力和风险的全面定量了解，为了填补这一空白，本文引入了一个新的基准：文本到图像模型的整体评估(HEIM/Holistic Evaluation of Text-to-Image Models)
+
+虽然之前的评估主要关注文本图像对齐和图像质量，但细粒度不足，因此确定了新的12个方面，包括文本图像对齐、图像质量、美学、原创性、推理、知识、偏见、毒性、公平性、稳健性、多语言性和效率(text-image alignment, image quality, aesthetics, originality, reasoning, knowledge, bias, toxicity, fairness, robustness, multilinguality, and efficiency)
+
+策划了涵盖这些方面的62个场景，并在此基准测试上评估了26个SOTA文本到图像模型，结果表明，没有一个模型在所有方面都表现出色，不同的模型表现出不同的优势
+
+<img src="https://img.saraba1st.com/forum/202311/12/035217dne01nyo1i8snuun.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-033437.jpg</strong> (140.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:52 上传
+
+文本到图像模型的整体评估概览，虽然现有的基准测试侧重于有限的方面，例如图像质量和与文本的对齐，依赖于可能无法准确反映人类判断的自动化指标，同时仅评估有限的模型，而HEIM则采取了一种整体方法，通过在62个提示场景(“提示”列)中评估了图像生成的12个关键方面(“方面”列)，此外，还采用现实的、基于人的评估指标(“指标”列中的蓝色字体)与自动化指标(黑色字体)相结合，对26个不同的模型进行了标准化评估
+
+<img src="https://img.saraba1st.com/forum/202311/12/035223tlid5vpy81av7gpd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-034020__01.jpg</strong> (406.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:52 上传
+
+标准化评价，在HEIM之前的评估基准，对图像生成模型的评估并不全面：12个核心方面中有6个没有在现有模型上进行评估，并且只研究了总评估空间的11％(矩阵中✓的百分比)
+
+<img src="https://img.saraba1st.com/forum/202311/12/035227jspvdj03s5w6gzhr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-034218.jpg</strong> (29.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:52 上传
+
+评估组件，每次评估运行都包含一个方面(评估维度)、一个场景(特定用例)、一个具有适配过程的模型(模型如何运行)以及一个或多个指标(捕获模型的好坏程度)
+
+<img src="https://img.saraba1st.com/forum/202311/12/035231xtz2ifapirptlwet.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-034451.jpg</strong> (384.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:52 上传
+
+文本到图像生成模型的当前情况，在这里展示了精选的几个文本到图像模型的示例，以从不同方面(不包括效率)提供各种提示，基准测试强调了模型的优点和缺点，例如DALL-E 2对于英文和中文提示都显示出不错的文本图像对齐，但具有明显的性别和肤色偏差，仅生成具有相似肤色的女性图像(最右一列)
+
+<img src="https://img.saraba1st.com/forum/202311/12/035236vg0fy0o31gofgnyi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-034646.jpg</strong> (142.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:52 上传
+
+文本到图像模型的评估方面
+
+<img src="https://img.saraba1st.com/forum/202311/12/035241vf9p9n4nvtnyv4ed.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-034718.jpg</strong> (324.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:52 上传
+
+用于评估图像生成模型的12个方面的场景
+
+<img src="https://img.saraba1st.com/forum/202311/12/035245sqhhj2g3k3qzc3he.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231112-034759.jpg</strong> (307.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-12 03:52 上传
+
+用于评估图像生成模型12个方面的指标，使用了现实的人工指标以及自动化且常用的现有指标
+
+评估的相关模型
+
+用于评估各个方面的模型的结果摘要，对于每个方面，展示每个模型的胜率
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 966#       发表于 2023-11-14 03:29
+
+EmotiVoice
+
+EmotiVoice易魔声:多音色提示控制TTS
+
+github项目主页:https://github.com/netease-youdao/EmotiVoice
+
+EmotiVoice是一个强大的开源TTS引擎，支持中英文双语，包含2000多种不同的音色，以及特色的情感合成功能，支持合成包含快乐、兴奋、悲伤、愤怒等广泛情感的语音
+
+EmotiVoice提供一个易于使用的web界面，还有用于批量生成结果的脚本接口
+
+github说明页:
+
+<img src="https://img.saraba1st.com/forum/202311/14/032902wvcivyncyyemcmns.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-032820.jpg</strong> (224.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 03:29 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/032902jsu9mhps1kkzh1ur.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-032830.jpg</strong> (50.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 03:29 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 967#       发表于 2023-11-14 03:49
+
+LanguageBind
+
+通过基于语言的语义对齐(Language-based Semantic Alignment)将视频语言预训练(Video-Language Pretraining)扩展到N(个)模态
+
+github项目主页:https://github.com/PKU-YuanGroup/LanguageBind
+
+相关介绍:https://www.qbitai.com/2023/11/97554.html
+
+视频语言(VL/video-language)预训练在多种下游任务中取得了优秀的改进，然而，当前的VL预训练框架很难扩展到除了视觉和语言之外的其他多种模态(N模态，其中N&gt;=3)
+
+因此，本文提出了LanguageBind，语言模态已经被充分探索并且包含丰富的语义，因此将语言作为不同模态之间的锚定，具体来说，首先通过冻结VL预训练权重获得语言编码器，然后通过对比学习来训练其他模态的编码器，最后所有模态都可以映射到共享特征空间，实现多模态语义对齐
+
+虽然LanguageBind可以将VL模态扩展到N个模态，但还需要一个高质量的包含以语言为中心的对齐数据对的数据集，因此，本文还带来了了具有视频、红外、深度、音频以及对应语言(Video, Infrared, Depth, Audio and their corresponding Language)的VIDAL-10M数据集
+
+在VIDAL-10M中，所有视频都来自具有完整语义的短视频平台的视频，而不是那些从长视频中截断的片段，并且所有视频、深度、红外和音频模态都与其文本描述保持一致
+
+在使用VIDAL-10M进行预训练后，在MSR-VTT数据集上的零样本视频文本检索任务R@1性能优于ImageBind 5.8% ，而且是参数仅为其15%的情况下
+
+除此之外，LanguageBind在零样本视频、音频、深度和红外理解任务方面也有了很大的改进，例如，LanguageBind在MSR-VTT上超越InterVideo 1.9%，在MSVD上超越InterVideo 8.8%，在DiDeMo上超越InterVideo 6.3%，在ActivityNet上超越InterVideo 4.4%
+
+在LLVIP和 NYU-D数据集上，LanguageBind的top-1准确率分别优于ImageBind 23.8%和11.1%
+
+github说明页:
+
+<img src="https://img.saraba1st.com/forum/202311/14/034901jmo16gw9n8n39jp3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-034759.jpg</strong> (260.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 03:49 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/034901wzdijx7rxsut7mgd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-034811.jpg</strong> (432.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 03:49 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/034901egt2daarq0z35m0g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-034824.jpg</strong> (309.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 03:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 968#       发表于 2023-11-14 19:45
+
+ 本帖最后由 Machinery 于 2023-11-14 19:50 编辑 
+
+JARVIS-1
+
+具有记忆增强的多模态语言模型的开放世界多任务代理者
+
+项目页面:https://craftjarvis-jarvis1.github.io/
+
+github代码仓库:https://github.com/CraftJarvis/JARVIS-1
+
+在开放世界中通过多模态观察实现类人规划以及控制能力是功能更强大的通用代理者们(generalist agents)的一个重要里程碑，现有的方法可以处理开放世界中的某些长远任务，然而当开放世界任务的数量逼近无限时，因为缺乏随着游戏时间的进展逐步提高任务完成度的能力，这些方法依然会陷入困境
+
+本文推出了JARVIS-1，一种开放世界代理者，它可以感知多模态输入(视觉观察和人类指令)、生成复杂的规划并执行具身控制(embodied control)，所有这些都在流行但具有挑战性的开放世界Minecraft宇宙中进行
+
+具体来说，通过在预训练的顶尖多模态语言模型之上开发JARVIS-1，该模型将视觉观察和文本指令映射到规划，这些规划将被发送给目标条件控制器(goal-conditioned controllers)
+
+通过为JARVIS-1配备多模态记忆，这有助于利用预训练的知识及其自己实际的游戏生存经验进行规划，在实验中，JARVIS-1在Minecraft宇宙基准测试(Minecraft Universe Benchmark)中的200多个不同任务中表现出了接近完美的性能
+
+JARVIS-1在长远钻石镐任务(long-horizon diamond pickaxe task)中取得了12.5%的完成率，与之前的记录相比，这增加了5倍，此外，由于多模态记忆的存在，JARVIS-1还能够遵循终身学习范式并进行自我改进，这激发更通用的智力并提高了自主性
+
+<img src="https://img.saraba1st.com/forum/202311/14/194345be6xnxxu6qxqiugw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-191154__01.jpg</strong> (384.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:43 上传
+
+关于JARVIS-1如何解锁Minecraft宇宙的技术树，JARVIS-1可以持续获得Minecraft主世界主要科技树上的高级物品，例如钻石、红石和黄金物品，这需要收集10多种不同的中级物品，JARVIS-1不仅在钻石镐方面优于之前最先进的VPT(6% vs. 2.5%可靠性)，而且还可以制作主世界中几乎所有的钻石物品，包括钻石胸甲
+
+<img src="https://img.saraba1st.com/forum/202311/14/194352v0jee7r4e7suj9yr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-191502.jpg</strong> (53.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:43 上传
+
+开放世界环境中的挑战以及JARVIS-1如何应对这些挑战
+
+(左)为与没有情境感知规划(situation-aware planning)的基线(GPT)进行的对比，JARVIS-1显著提高了具有挑战性的获取钻石(GettingDiamond)任务的成功率
+注：由于资源限制，只能提供10分钟的人工游戏结果
+
+(中)随着任务复杂度的增加石头→铁→钻石(STONE→IRON→DIAMOND)，JARVIS-1凭借交互式规划(interactive planning)展现出更显著的优势
+
+(右)在给定从多模态记忆检索的其他任务(y轴)的上下文经验的情况下，选定任务(x轴)的成功率增益(由颜色深度表示)，凭借终身学习和记忆，JARVIS-1可以利用相关任务的先前经验来更好地进行规划
+
+<img src="https://img.saraba1st.com/forum/202311/14/194400q6gswssg2gmmtgkm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-192049.jpg</strong> (106.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:44 上传
+
+JARVIS-1的架构及其自我改进机制
+(a)JARVIS-1包含一个生成规划的记忆增强多模态语言模型(MLM)和一个低级动作控制器(low-level action controller)，JARVIS-1还利用多模态记忆来存储和获取经验作为规划的参考
+
+(b)JARVIS-1可以通过探索自己提出的任务(自我指导/self-instruct)和不断增长的记忆来增强自己的规划技能，这有助于更好地规划之前(部分/partially)访问过的任务
+
+<img src="https://img.saraba1st.com/forum/202311/14/194409kxxovcnwn622f6nx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-192404.jpg</strong> (139.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:44 上传
+
+JARVIS-1中的交互式规划，在收到当前任务指令和观察后，JARVIS-1将产生一个初始规划，该规划将通过自我检查来修复可能的错误(标记为红色)，此外，如果在执行细化规划的过程中出现任何错误(也用红色标记)，JARVIS-1将尝试通过自我解释从环境反馈中推理出下一步行动，交错的自我检查和自我解释显著提高了JARVIS-1规划的正确性和稳健性
+
+<img src="https://img.saraba1st.com/forum/202311/14/194420fyfae0herayllh9d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-192647.jpg</strong> (164.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:44 上传
+
+JARVIS-1中的查询生成(Query generation)，给定一个最近的观察和任务，JARVIS-1将首先进行逆向思考并找出所需的中间子目标，推理将受到有限深度的限制，记忆中存在的子目标将加入当前的视觉观察以形成最终查询，与文本查询匹配的条目将根据其状态到obs查询的感知距离进行排名，并且仅检索每个子目标的top条目
+
+<img src="https://img.saraba1st.com/forum/202311/14/194429kzo9zg9qll4baulq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-193047.jpg</strong> (132.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:44 上传
+
+11个任务组的特质，涵盖200多个Minecraft任务
+
+<img src="https://img.saraba1st.com/forum/202311/14/194438ihklbodgkolbig7u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-193146.jpg</strong> (276.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:44 上传
+
+JARVIS-1的结果和其他的Minecraft基线
+
+<img src="https://img.saraba1st.com/forum/202311/14/194444gvz91xnqeqvypqqv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-193252.jpg</strong> (76.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:44 上传
+
+不同物品的记忆尺寸的成功率，通过测量Minecraft技术树上关键项目完成的成功率(% Episodes)来评估JARVIS-1在不同记忆大小(代表不同学习阶段)下的性能，随着学习的进展，观察到所有项目的完成率都有所提高，记忆中包含的成功轨迹也越来越多，经过4个epoch的学习，JARVIS-1的记忆中总共积累了425条成功轨迹
+
+<img src="https://img.saraba1st.com/forum/202311/14/194452rhjniirnggxk2gk6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-193300.jpg</strong> (71.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:44 上传
+
+不同LLM在 Minecraft任务上的成功率，PT和FT代表预训练和微调的LLaMA2
+
+<img src="https://img.saraba1st.com/forum/202311/14/194458adi1ow4t128ujizj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-193318.jpg</strong> (47.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:44 上传
+
+Minecraft任务中记忆消融的成功率，R是推理过程，T和M分别表示文本嵌入和多模态嵌入的检索
+
+<img src="https://img.saraba1st.com/forum/202311/14/194502j718y1vfg000hn2j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231114-193343.jpg</strong> (81.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 19:45 上传
+
+(左)不同模型在“ObtainDiamondPickaxe”挑战中相对于游戏时间的成功率，VPT RL在VPT早期游戏的基础上进行了微调，强化学习了超过140万episodes，JARVIS-1代理者及其变体已在任务池中的所有任务上与Minecraft进行了超过4个episodes的交互，通常技术人员需要超过20分钟(24000 步)才能获得钻石镐
+
+(右)JARVIS-1钻石镐合成过程中获得重要中间物品的成功率，该任务已在不同种子上进行了300多次评估，这些曲线表明，随着游戏的进行，获得所有中间物品的成功率都在增加，这表明JARVIS-1正在不断提高自己的技能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 969#       发表于 2023-11-15 05:18
+
+ 本帖最后由 Machinery 于 2023-11-15 05:20 编辑 
+
+Lumos
+
+具有统一数据、模块化设计和开源LLM集成的学习代理者(Learning Agents)
+
+项目主页:https://allenai.github.io/lumos/
+
+github项目代码仓库:https://github.com/allenai/lumos
+
+hugface模型权重:https://huggingface.co/models?sort=trending&amp;search=ai2lumos
+
+数据集下载:https://huggingface.co/datasets?sort=trending&amp;search=ai2lumos
+
+Lumos，一种用于训练语言代理者的新颖框架，采用了统一的数据格式(unified data format)和基于开源大型语言模型(LLM)的模块化架构
+
+Lumos由三个不同的模块组成：规划(planning)、基准(grounding)和执行(execution)，规划模块将任务分解为一系列与工具无关的高级子目标，然后由基准模块通过一组低级操作(low-level actions)将其具体化，这些操作随后由执行模块利用一系列现成的工具和API执行
+
+为了有效地训练这些模块，收集了高质量的子目标和操作的标注用于微调LLM对于复杂问答、网络任务和数学问题等各种任务，利用这种统一的数据和模块化设计，Lumos不仅实现了与当前的SOTA代理者相当甚至更好的性能，而且还展现了其他几个关键优势:
+(1)Lumos在复杂问答和网络任务方面超越了基于GPT-4/3.5的代理者的同时还在数学任务上与更大的LLM代理者的表现相当
+(2)Lumos的性能优于通过传统训练方法和使用思想链训练创建的开源代理者
+(3)Lumos能够有效地泛化到未见的交互任务，超越基于LLM的大型代理者，甚至超过专用的代理者的性能
+
+<img src="https://img.saraba1st.com/forum/202311/15/051829cvvm4r4d31d3h4sv.png" referrerpolicy="no-referrer">
+
+<strong>lumos_architecture.png</strong> (253.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 05:18 上传
+
+Lumos由以下模块组成：
+规划模块：
+将复杂的任务分解为一系列用自然语言编写的高级子目标
+基准模块：
+将规划模块生成的高级子目标转换为低级可执行操作
+执行模块：
+将动作解析为一系列外部工具，包括 API、小型神经网络模型以及与相关工具和外部环境交互的虚拟模拟器
+
+<img src="https://img.saraba1st.com/forum/202311/15/051836g7bpn777iwjxbb6z.png" referrerpolicy="no-referrer">
+
+<strong>lumos_formulation.png</strong> (291.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 05:18 上传
+
+尝试了以下两种Lumos构想：
+Lumos-Iterative (Lumos-I/迭代):
+根据外部环境和先验记忆，在每次迭代中生成一个子目标及其对应的可执行动作，当生成当前第t个子目标时，规划模块需要获取先前规划的子目标以及基准动作的执行结果
+Lumos-Onetime (Lumos-O/同时)：
+ 一个有效的构想，可以同时生成所有子目标和基准行动
+
+<img src="https://img.saraba1st.com/forum/202311/15/051843xs3p3z76wpqq206x.png" referrerpolicy="no-referrer">
+
+<strong>lumos_annotation_example.png</strong> (493.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 05:18 上传
+
+作为自我指导(Self-Instruct)方法的替代，使用LLM将基准答案的中间推理步骤转换为与提出的构想一致的预期高质量标注，最后能够生成约40K标注来训练Lumos规划和基准模块(语言代理者微调的最大资源之一)，标注源涵盖网络、复杂QA和数学任务类型
+
+评测结果:
+
+<img src="https://img.saraba1st.com/forum/202311/15/051848dxh29e5pvcq2fxev.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-051717.jpg</strong> (460.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 05:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 970#       发表于 2023-11-15 07:11
+
+Q-Instruct
+
+改进多模态基础模型的低层级视觉能力
+
+项目主页:https://q-future.github.io/Q-Instruct
+
+hugface数据集下载:https://huggingface.co/datasets/teowu/Q-Instruct
+
+模型园(Model Zoo):https://github.com/Q-Future/Q-Instruct/tree/main/model_zoo
+
+hugface演示:https://huggingface.co/spaces/teowu/Q-Instruct-on-mPLUG-Owl-2
+
+以GPT-4V等模型为代表的多模态基础模型为低级视觉感知和理解任务带来了新的范式，可以响应模型中广泛的自然人类输入的指令，虽然现有的基础模型在低层级视觉任务上显示出了令人兴奋的潜力，但它们的相关能力仍处于初步阶段，需要改进
+
+为了增强这些模型，通过进行的大规模主观实验收集了大量真实的人类对低层级视觉的反馈，每个反馈都遵循一条路径，从对低层级视觉外观(*例如图像的清晰度、颜色、亮度*)的详细描述开始，到总体结论结束，平均长度为45个单词。构建的Q-Pathway数据集包括18973张具有不同低层级外观的图像的58K详细人类反馈
+
+此外，为了使基础模型能够稳健地响应不同类型的问题，还设计了一个GPT参与的转换过程，将这些反馈处理为不同格式的200K指令响应对
+
+实验结果表明，Q-Instruct始终如一地提高了多个基础模型的低层级感知和理解能力，预计数据集可以为通用智能可以感知的未来铺平道路 ，能够了解低层级视觉外观并像人类一样评估视觉质量
+
+<img src="https://img.saraba1st.com/forum/202311/15/071016nx8yku8clayxelq2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-064909__01.jpg</strong> (463.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:10 上传
+
+与基线版本相比，经过Q-Instruct调整的LLaVA-v1.5-7B在各种低层级视觉任务上的能力
+
+<img src="https://img.saraba1st.com/forum/202311/15/071021q4jd4jj04r4vrr0f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-065128.jpg</strong> (175.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:10 上传
+
+数据构造工作流程管道，首先，收集了58K条关于低层级视觉方面的人类反馈(the Q-pathway，a/b)，然后将它们转换为200K的指令响应对(Q-Instruct，c)，用于(d)低层级视觉指令调整
+
+<img src="https://img.saraba1st.com/forum/202311/15/071026pj17a12w4j717y1y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-065446.jpg</strong> (122.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:10 上传
+
+Q-Pathway与其来源的对比，对源图像进行子采样，以减少其MOS分布的偏差，使采样的分布更为平衡
+
+<img src="https://img.saraba1st.com/forum/202311/15/071035p0bi9cmjrbllttj9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-065635__01.jpg</strong> (557.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:10 上传
+
+路径反馈的示例，每个反馈都包含详细描述，然后是总体评估，并包含上下文
+
+(b)路径反馈长度的分布
+(c)Q-Pathway的文字云
+(d)与低层级视力相关的高频词
+
+<img src="https://img.saraba1st.com/forum/202311/15/071044bbedax9409d4e909.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-065857__01.jpg</strong> (631.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:10 上传
+
+Q-Instruct数据集的组成，其中200K 指令响应对包括:
+(a)58K路径推理
+(b)视觉问答，其中76K是什么/如何问题和57K平衡的是或否问题
+(c)12K扩展对话
+
+<img src="https://img.saraba1st.com/forum/202311/15/071053uh84ccl4thppzcdk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-070151__01.jpg</strong> (157.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:10 上传
+
+研究中评估了低层级视觉指令调整的训练策略，包括:
+(a)将Q-Instruct与高层级视觉指令调整数据集混合
+(b)在高层级视觉指令调整之后仅使用Q-Instruct进行进一步的低层级调整阶段
+
+<img src="https://img.saraba1st.com/forum/202311/15/071100kg6v3vmohv36zd7o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-070151__02.jpg</strong> (87.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:11 上传
+
+用于低层级视觉指令调整的基线MLLM
+
+相关评估数据:
+
+<img src="https://img.saraba1st.com/forum/202311/15/071132e0p0c7ulhuhvlg7u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-070507__01.jpg</strong> (730.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:11 上传
+
+<img src="https://img.saraba1st.com/forum/202311/15/071132m0ff37zx1smfs7v8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-070518__01.jpg</strong> (182.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:11 上传
+
+<img src="https://img.saraba1st.com/forum/202311/15/071132lvs7d5n61ecqeenb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-070518__02.jpg</strong> (126.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:11 上传
+
+<img src="https://img.saraba1st.com/forum/202311/15/071132vb2j4t8e3wrz79vr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231115-070534__01.jpg</strong> (635.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:11 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 971#       发表于 2023-11-15 07:51
+
+ChatAnything
+
+与LLM增强(LLM-Enhanced)角色进行面对面聊天(Facetime Chat)
+
+项目主页:https://chatanything.github.io/
+
+github项目主页:https://github.com/zhoudaquan/ChatAnything
+
+hugface模型下载:https://huggingface.co/ermu2001/ChatAnything
+
+演示Demo:https://26fed97b4a7706bed0.gradio.live/
+
+在这份技术报告中的目标是以在线方式为基于LLM的角色生成拟人化的角色，包括视觉外观(visual appearance)、性格(personality)和音调(tones)，而且仅使用文本描述
+
+为了实现这一目标，首先通过精心设计的一系列系统提示(system prompts)，利用LLM的上下文学习能力来生成性格，还提出了两个新颖的概念:声音混合(MoV/mixture of voices)和扩散混合(MoD/mixture of diffusers)，用于生成不同的声音和外观
+
+对于MoV，利用具有各种预定义音调的文本转语音(TTS)算法，并根据用户提供的文本描述自动选择最匹配的一种
+
+对于MoD，结合了最近流行的文本到图像生成技术和说话头部算法(talking head algorithms)来简化生成说话对象的过程
+
+整个框架称为ChatAnything，有了它，用户只需输入几个文本即可为具有任何拟人角色的任何内容制作动画，然而，还观察到当前生成模型生成的拟人对象通常无法被预先训练的人脸特征点检测器(face landmark detectors)检测到，从而导致人脸运动生成失败，即使这些人脸具有类似人类的外观，为了解决这个问题，通过在图像生成阶段采用像素级指导来注入人脸标志
+
+为了对这些指标进行基准测试，构建了一个评估数据集，基于此验证了人脸特征点的检测率从57.0%显著提高到了92.5%，从而允许为基于生成的语音内容自动进行人脸动画化
+
+<img src="https://img.saraba1st.com/forum/202311/15/074842ovochbthoc1201z2.jpg" referrerpolicy="no-referrer">
+
+<strong>e672023c-2f06-42df-817c-a742f3871f55.jpg</strong> (112.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:48 上传
+
+ChatAnything的整体工作流程，框架包括四个关键组件：
+1.头像生成组件，基于LLM的控制模块，用于初始化用户的文本描述角色的个性，它还用于管理系统操作并根据与用户的交互调用应用程序
+2.个性生成组件，为人物角色生成参考图像的头像初始值设定项，它包括微调扩散模型(MoD)以及LoRA模块(如果应用)的组合，每个模型都专门生成特定风格的图像，根据LLM角色的用户文本描述自动调用最匹配的模型
+3.一个语音生成组件，文本转语音模块(MoV)的混合体，可以将角色输入的文本转换为具有自定义音调的语音信号，该选择是LLM根据用户文本描述自动完成的
+4.面部驱动组件，运动生成模块，接收语音信号并驱动生成的图像
+
+为了增强用户定义能力，还提出了两个新颖的概念:声音混合(MoV/mixture of voices)和扩散混合(MoD/mixture of diffusers)，可以根据用户文字描述进行定制，用于生成不同的声音和外观
+
+<img src="https://img.saraba1st.com/forum/202311/15/074850xuk1phuc7mffc2a1.jpg" referrerpolicy="no-referrer">
+
+<strong>14cb94fa-432d-4516-ae33-b1d6d7e55e14.jpg</strong> (126.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:48 上传
+
+扩散过程中特征点引导的影响，如第一行所示，直接应用SD1.5进行人像生成往往会产生抽象的人脸图像，这些图像在说话头部模型的训练过程中很少看到，因此不能用作面部表情生成的输入，不同的是，在应用ChatAnything中提出的技术(包括面部标志引导、提示工程和LoRA微调以提高美观性)后，模型倾向于生成更多具有高视觉质量的拟人图像，而且这些图像可以用作预训练的说话头部模型的输入
+
+<img src="https://img.saraba1st.com/forum/202311/15/074856yn5f4018l8j8jlnc.jpg" referrerpolicy="no-referrer">
+
+<strong>88538b79-10cb-43f5-9fb4-aa76b2ceeb56.jpg</strong> (294.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 07:48 上传
+
+强大的语言模型选择了多种图像生成模型和多种TTS语音，选择的预训练生成模型来生成初始帧，在这之后，对于生成的帧，开源动画模块根据另一个选定的TTS语音的音频输出来渲染视频，这里是由工作流程生成的动画的面部网格，显示了想象中的说话面部的平均期望
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 972#       发表于 2023-11-16 03:06
+
+Cappy
+
+使用小型评分器(Small Scorer)超越并提升大型多任务语言模型
+
+github项目主页:https://github.com/tanyuqian/cappy
+
+hugface权重下载:https://huggingface.co/btan2/cappy-large
+
+类似T0、FLAN和OPT-IML之类的大型语言模型(LLM)在统一的指令跟随范式下运行，擅长执行多任务，并且对未见的任务也表现出了卓越的泛化能力，尽管它们的性能令人印象深刻，但这些LLM的参数大小从数十亿到数千亿不等，需要大量的计算资源，使得它们的训练和推理成本高昂且效率低下，此外，由于微调对硬件的广泛要求，使这些模型适应下游应用程序，特别是复杂的任务，通常是不可行的，即使使用提示调整等参数效率的方法也是如此
+
+最强大的多任务LLM系列(例如OPT-IML-175B和FLAN-PaLM-540B)无法公开访问，这严重限制了它们的潜在定制能力方面，为了应对这些挑战，本文引入了预训练的小型评分器，Cappy，旨在提高多任务LLM的性能和效率
+
+Cappy仅具有3.6亿参数，既可以独立的执行分类任务，也可以作为LLM的辅助组件提高其性能，此外Cappy还能够有效地集成下游任务监督，无需LLM微调的同时做到了无需访问其参数
+
+实验表明，当独立完成PromptSource的11种语言理解任务时，Cappy的表现比LLM高出几个数量级，此外，在BIG-Bench的45个复杂任务上，Cappy大幅提升了高级多任务LLM FLAN-T5的性能，Cappy还可以灵活地与其他LLM变体进行合作，包括微调和上下文学习，提供额外的性能增强
+
+<img src="https://img.saraba1st.com/forum/202311/16/030555okm9m2uyrdurbyky.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-024530.jpg</strong> (73.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:05 上传
+
+左图:Cappy的表现优于多任务LLM，总体准确率超过了PromptSource的11项测试任务的平均值，图中每条虚线连接到同一型号模型的不同参数规模版本，更靠近左上方的线条表示效率更高且性能更优越的模型
+
+右图:Cappy提升了多任务LLM在BIG-Bench中超过45个复杂任务的平均Rouge-L分数，图中每条虚线代表一种适用于各种参数规模的LLM的方法，自我评分是指利用LLM的交叉熵来选择响应
+
+<img src="https://img.saraba1st.com/forum/202311/16/030600fxxpp5w52mtkw8m5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-024955.jpg</strong> (84.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+左图:Cappy的建模方法
+
+右图:说明Cappy在增强多任务LLM方面的应用，以及通过Cappy进行的下游适应与其他依赖LLM参数的方法(例如微调和提示调整)之间的对比
+
+<img src="https://img.saraba1st.com/forum/202311/16/030606nxigmx7gcvanx5n8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-025221.jpg</strong> (64.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+使用多任务LLM进行数据增强，为Cappy的预训练和微调构建弱监督回归数据集
+
+<img src="https://img.saraba1st.com/forum/202311/16/030614qv1m7ai7v1za17io.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-025339.jpg</strong> (101.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+Cappy和多任务LLM在各种测试数据集上的性能，一系列的虚线用于连接同一模型型号的不同参数规模版本，例如OPT-30B与OPT-175B，位于图表左上角的线或点表示模型更高效且性能更优越，每个图对应一个特定的测试任务，但ANLI除外，它代表三个不同的任务(ANLI-R1/R2/R3)
+
+<img src="https://img.saraba1st.com/forum/202311/16/030621zxn9equip1xiknpn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-025622.jpg</strong> (154.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+左图:图中总体准确度是PromptSource零样本设置下的11项保留测试任务的平均值，“RLHF-RM”指4.1节中提到的RLHF奖励模型
+
+右图:45个BIG-Bench任务的平均Rouge-L得分，其中主干FLAN-T5模型已被冻结，“ICL”指的是上下文学习，即在指令的前缀中附加训练示例
+
+<img src="https://img.saraba1st.com/forum/202311/16/030628at705eq0cqrkyds9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-025952__01.jpg</strong> (199.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+在45个BIG-Bench任务上，Cappy评分优于FLAN-T5-XXL的自我评分方法，x轴是任务的名称
+
+<img src="https://img.saraba1st.com/forum/202311/16/030638b00prz422c33p3zj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-030101.jpg</strong> (123.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+当主干FLAN-T5模型也经过微调时，BIG-Bench任务的平均Rouge-L得分
+
+<img src="https://img.saraba1st.com/forum/202311/16/030642rctr10dt4r0u1bcc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-030156.jpg</strong> (178.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+Cappy评分与FLAN-T5-XXL自我评分方法相比明显处于劣势的任务
+
+<img src="https://img.saraba1st.com/forum/202311/16/030646fpye3zcvglyexu43.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-030238.jpg</strong> (37.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+BIG-Bench适配(adaptation)在具有不同数量样本的冻结FLAN-T5-XXL上的性能
+
+<img src="https://img.saraba1st.com/forum/202311/16/030650ibzpbn11rbzb18h9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-030425.jpg</strong> (54.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:06 上传
+
+BIG-Bench适配的性能，在使用LLM消融Cappy预训练和数据增强之后，括号中的数字是性能下降
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 973#       发表于 2023-11-16 03:42
+
+LayoutPrompter
+
+唤醒大型语言模型的设计能力
+
+项目主页:https://github.com/microsoft/LayoutGeneration/tree/main/LayoutPrompter
+
+条件图形布局生成(Conditional graphic layout generation)可以自动将用户约束映射成高质量的布局，如今已引起广泛关注，尽管最近的研究工作取得了有希望的进展，但缺乏通用性和数据效率阻碍了它们的实际应用
+
+在这项工作中，提出了LayoutPrompter，通过利用大型语言模型(LLM)的上下文学习来解决上述问题，LayoutPrompter由三个关键组件组成:输入输出序列化(input-output serialization)、动态示例选择(dynamic exemplar selection)和布局排名(layout ranking)
+
+具体来说，输入输出序列化组件为每个布局生成任务精心设计的输入和输出格式，动态示例选择负责为给定输入选择最有帮助的提示样本，布局排名器用于从LLM的多个输出中挑选最高质量的布局
+
+通过使用四个公共数据集对所有现有布局生成任务进行实验，尽管方法很简单，但实验结果表明，在这些任务上，LayoutPrompter可以与SOTA方法竞争甚至超越，而无需任何模型训练或微调，这证明了这种方法的通用性且无需训练的有效性
+
+此外，消融实验还表明，在低数据情况(low-data regime)下，LayoutPrompter显著优于基于训练的基线，进一步表明了LayoutPrompter的数据效率
+
+<img src="https://img.saraba1st.com/forum/202311/16/034101kmsb65fm6hvarssh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-032841.jpg</strong> (110.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+LayoutPrompter是一种通用的图形布局生成方法，能够解决一系列布局域(如右侧所示)的各种条件布局生成任务(如左侧所示)，而无需任何模型训练或微调
+
+<img src="https://img.saraba1st.com/forum/202311/16/034107x6rem70hfljmlj8x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-033010.jpg</strong> (44.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+现有条件布局生成方法与Layout Prompter的对比
+
+<img src="https://img.saraba1st.com/forum/202311/16/034117ithc0wmlk6zl0xh7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-033108.jpg</strong> (117.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+LayoutPrompter的概览图，完整的提示由特定于任务的前言、N个上下文示例和一个测试输入组成，根据测试输入从训练集中动态检索样本，随后，将提示输入LLM以生成L个不同的布局，最后使用布局排名器来选择最好的一种作为最终输出
+
+<img src="https://img.saraba1st.com/forum/202311/16/034121h393h8uoshh98167.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-033347.jpg</strong> (66.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+输入画布被转换为显著图(saliency map)
+
+<img src="https://img.saraba1st.com/forum/202311/16/034126b0rwgip2m2kvrarz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-033513.jpg</strong> (142.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+与约束显式布局生成任务的基线进行定量对比，↑表示数值越大越好，↓表示数值越小越好
+
+<img src="https://img.saraba1st.com/forum/202311/16/034130ixmm2u0ox5njwk5m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-033605.jpg</strong> (54.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+数据集统计，请注意，这些数据集仅用于特定任务
+
+<img src="https://img.saraba1st.com/forum/202311/16/034134edde3g2gy7gd79d0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-033636.jpg</strong> (174.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+LayoutPrompter与SOTA基线Layout-Former++在约束显式布局生成任务上的定性对比
+
+<img src="https://img.saraba1st.com/forum/202311/16/034138wbdbna0v3ib0gxd0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-033731.jpg</strong> (40.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+在内容感知布局生成任务上与基线的定量对比
+
+<img src="https://img.saraba1st.com/forum/202311/16/034142h6mjicf6pfkifavu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-033815.jpg</strong> (155.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+DS-GAN与LayoutPrompter在内容感知布局生成方面生成的定性对比结果，元素类型分为三种，包括logo(红)、文本(绿)和底层(黄色)
+
+<img src="https://img.saraba1st.com/forum/202311/16/034151lxx5vf8htff3t9zp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-034001.jpg</strong> (229.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+其他性能对比
+
+<img src="https://img.saraba1st.com/forum/202311/16/034159yt1gu77le70eyg7g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-034010.jpg</strong> (227.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 03:41 上传
+
+消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 974#       发表于 2023-11-16 05:30
+
+Instant3D
+
+即时文本到3D生成(Text-to-3D generation)
+
+项目主页:https://ming1993li.github.io/Instant3DProj/
+
+code:coming soon
+
+文本到3D生成任务旨在根据文本提示合成栩栩如生的3D对象，这引起了计算机视觉社区的广泛关注，现有的一些工作已经在这项任务上取得了令人印象深刻的结果，但它们主要依赖于耗时的优化(time-consuming optimization)范式，具体来说，这些方法每次都针对文本提示从头优化神经场(neural field)，这大约需要一小时甚至更长时间才能生成一个对象，这种繁重且重复的训练成本阻碍了它们的实际部署
+
+在本文中，提出了一种快速的文本到3D生成新框架，称之为Instant3D，在经过训练后，Instant3D能够仅通过一次前馈网络过程，即可在不到一秒的时间内为未见的各种文本提示创建3D对象，通过设计一种新的网络最终实现了这种惊人的速度，该网络可以根据文本提示直接构建3D三平面(3D triplane)，Instant3D的核心创新在于探索了有效地将文本条件注入网络的策略
+
+此外，还提出了一种简单而有效的激活函数，scaled-sigmoid，来代替原本的sigmoid函数，将训练收敛速度加快了十倍以上，最后，为了解决过去方法在3D生成中遇到的Janus多头问题，还提出了一种自适应Perp-Neg算法，该算法可以在训练过程中根据Janus问题的严重程度动态调整其概念否定尺度(concept negation scales)，有效减少了多头效应 
+
+对各种基准数据集的大量实验表明，所提出的算法在定性和定量上都优于SOTA方法，同时实现了更高的效率
+
+<img src="https://img.saraba1st.com/forum/202311/16/052936xafqhfyjqv45cfaf.png" referrerpolicy="no-referrer">
+
+<strong>rabbit.png</strong> (794.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:29 上传
+
+现有的SOTA方法与本文提案的对比
+
+现有方法针对每个文本提示从头开始优化随机初始化的NeRF，这通常需要超过10000次迭代和数小时才能收敛，相比之下，本文方法旨在学习文本条件的NeRF，其训练计算成本要少得多，并且对新提示具有很强的泛化能力，同时它能够在前馈网络的仅一次传递中即可为未见的文本提示生成3D对象的条件3D表征(三平面)，仅需25毫秒
+
+<img src="https://img.saraba1st.com/forum/202311/16/052942sicbvt6tcghtfbz4.jpg" referrerpolicy="no-referrer">
+
+<strong>overview.jpg</strong> (130.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:29 上传
+
+Instant3D的概览图，通过应用条件解码器网络将文本提示映射到相应的三平面，这个过程中，交叉注意力、风格注入和 token 到平面转换三种条件机制无缝结合，连接了文本和3D，解决了SDS弱监督的问题
+
+在给定随机相机姿态，通过基于坐标的特征采样、点密度和反照率预测(albedo prediction)以及可微的体积渲染，从条件三平面直接渲染2D图像
+
+对于反照率激活(albedo activation)，还提出了一个缩放的sigmoid函数，有效地加速了训练收敛，在训练过程中，视图图像(view image)首先通过添加随机噪声进行扩散，然后输入到以文本提示为条件的预训练UNet中进行去噪，从而提供SDS损失的梯度
+
+最后，提出了一种自适应Perp-Neg算法，用以更好地解决框架中的Janus问题，在推理过程中，Instant3D可以在不到一秒的时间内从未见的各种文本提示中泛化推断出可置信的3D对象
+
+样例:
+
+<img src="https://img.saraba1st.com/forum/202311/16/052958bmedq8jckpe8idke.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-052848.jpg</strong> (335.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:29 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 975#       发表于 2023-11-16 05:52
+
+ 本帖最后由 Machinery 于 2023-11-16 05:53 编辑 
+
+One-2-3-45++
+
+通过一致的多视图生成与3D扩散快速将单图像转换为3D对象
+
+项目主页:https://sudo-ai-3d.github.io/One2345plus_page
+
+github项目仓库:https://github.com/SUDO-AI-3D/One2345plus
+
+演示Demo:https://www.sudo.ai/3dgen
+
+最近关于开放世界3D对象生成领域的进展非常显著，图像转3D方法比文本转3D方法提供了更细粒度的控制，然而，大多数现有模型无法同时提供快速的生成速度和输入图像的高保真度——但这两个功能对于实际应用至关重要
+
+在本文中，提出了One-2-3-45++，一种创新方法，可以在大约一分钟内将单个图像转换为详细的3D纹理网格，本方法旨在充分利用2D扩散模型中嵌入的广泛知识以及来自价值有限的3D数据的先验知识，这是通过首先微调2D扩散模型生成一致的多视图图像，然后借助多视图条件3D原生扩散模型将这些图像提升为3D对象实现的
+
+广泛的实验评估表明，本文方法可以生成高度反映原始输入图像的高质量、多样化的3D资源
+
+<img src="https://img.saraba1st.com/forum/202311/16/055150ebu4fp4e5mcm5pf5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-054544.jpg</strong> (184.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:51 上传
+
+One-2-3-45++能够在一分钟内将任何对象的单个RGB图像转换为高保真纹理网格，生成的网格紧密地映射了原始输入图像的网格，只需8张A100 GPU即可训练One-2-3-45++
+
+<img src="https://img.saraba1st.com/forum/202311/16/055200jrtwwrzp19bf9txi.png" referrerpolicy="no-referrer">
+
+<strong>method.png</strong> (994.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:52 上传
+
+从单个图像作为输入开始，最初通过微调2D扩散模型来生成一致的多视图图像，然后，这些多视图图像通过一对(a pair)3D原生扩散网络提升为3D，在整个3D扩散过程中，生成的多视图图像充当必要的指导条件，从去噪的体积中提取3D网格后，再通过采用多视图图像作为监督的轻量级优化来进一步增强纹理，One-2-3-45++能够在20秒内生成初始纹理网格，并在大约一分钟内提供精致的网格
+
+<img src="https://img.saraba1st.com/forum/202311/16/055205pi4tt11ji4igg0j4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-054919.jpg</strong> (85.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:52 上传
+
+涉及53名参与者的用户研究结果，其中每个单元格显示一种方法(行)优于另一种方法(列)的概率或偏好率
+
+<img src="https://img.saraba1st.com/forum/202311/16/055211welc0osto7alesee.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-055017.jpg</strong> (233.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:52 上传
+
+One-2-3-45++可以显著提高3D游戏艺术家的效率和创造力，视频中的每个3D资源都是由本方法的AI创建的(可前往项目主页查看视频)
+
+其他数据集的生成样例:
+
+<img src="https://img.saraba1st.com/forum/202311/16/055226k8rqnnm1zd1nl8ih.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-054856.jpg</strong> (205.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:52 上传
+
+<img src="https://img.saraba1st.com/forum/202311/16/055226azakmkvdxp7bamvm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-054906.jpg</strong> (224.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:52 上传
+
+<img src="https://img.saraba1st.com/forum/202311/16/055226ei76pi8v78m64x48.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-054913.jpg</strong> (119.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 05:52 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 976#       发表于 2023-11-16 19:04
+
+IFEval
+
+大型语言模型的指令跟随评估
+
+github项目主页:https://github.com/google-research/google-research/tree/master/instruction_following_eval
+
+现代大型语言模型(LLM)的一项核心功能是遵循自然语言指令，然而，对此类能力的评估并不标准化：人工评估昂贵、缓慢且不客观，难以再现，而基于LLM的自动评估可能潜在的存在偏见或受到评估LLM能力的限制
+
+为了克服这些问题，本文为大型语言模型引入了指令跟随评估(IFEval/Instruction-Following Eval)，IFEval是一个简单且易于复制的评估基准，它侧重于一套“可验证的指令(verifiable instructions)”，例如“写400字以上”和“至少提及AI的关键字3次”
+
+IFEval确定了25种可验证指令，并构建了大约500个提示，每个提示都包含一个或多个可验证指令，展示了当前两种广泛使用的LLM的评估结果
+
+<img src="https://img.saraba1st.com/forum/202311/16/190413dg6d5zs0qps051dl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-185714__01.jpg</strong> (158.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:04 上传
+
+诸如“写至少25个句子”之类的指令可以被自动、客观地验证，研究组构建了一组带有可验证指令的提示，用于评估大型语言模型的指令跟随能力
+
+<img src="https://img.saraba1st.com/forum/202311/16/190437dpmdoadpcd5rkdp6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-185828.jpg</strong> (518.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:04 上传
+
+25个可验证指令的列表，并附有简要说明，之所以使用这些指令是因为它们很容易验证或者在实际应用中很常见。该列表可以轻松扩展，例如，可以添加“语言 - 响应中混合两种语言”和“可检测格式 - XML格式”等
+
+<img src="https://img.saraba1st.com/forum/202311/16/190442l7xcqsq9c37cc3a9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-190020.jpg</strong> (226.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:04 上传
+
+带有可验证说明的提示示例(斜体内容)
+
+<img src="https://img.saraba1st.com/forum/202311/16/190446rneocuou4cdoetlh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-190131.jpg</strong> (39.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:04 上传
+
+依据IFEval测试的总体指令遵循精度，由于参数数量差异较大，两个模型不具有直接可比性
+
+<img src="https://img.saraba1st.com/forum/202311/16/190451hz0r177t5665e7pp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-190240.jpg</strong> (62.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:04 上传
+
+每个模型的指令级严格精度(Instruction-level strict-accuracy)，按每个指令的类别分开
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  穷人也是人  
+##### 977#       发表于 2023-11-16 19:16
+
+强烈马克
+
+
+*****
+
+####  Machinery  
+##### 978#       发表于 2023-11-16 19:54
+
+ 本帖最后由 Machinery 于 2023-11-16 19:55 编辑 
+
+Qwen-Audio
+
+通过统一的大规模音频语言模型(Large-Scale Audio-Language Models)促进通用音频理解
+
+项目主页:https://qwen-audio.github.io/Qwen-Audio/
+
+github项目主页:https://github.com/QwenLM/Qwen-Audio
+
+最近，能够跟随指令的音频语言模型在与人类的音频交互中受到了广泛的关注，然而，缺乏能够处理不同音频类型和任务的预训练音频模型导致了阻碍该领域的进展，大多数现有作品只能支持有限范围的交互能力
+
+在本文中，研究组开发了Qwen-Audio模型，并通过扩展音频语言预训练来解决这一限制，用以涵盖30多种任务和多种音频类型，例如人类语音、自然声音、音乐和歌曲，以促进通用音频理解能力，然而，直接协同训练(co-training)所有的任务和数据集可能会导致干扰问题，取决于不同的任务焦点、语言、标注粒度和文本结构的差异，不同数据集相关的文本标签可能会表现出相当大的变化
+
+为了克服一对多干扰，精心设计了一个多任务训练框架，以对解码器的一系列分层标签作为条件(conditioning on a sequence of hierarchical tags)，分别通过共享标签和指定标签来鼓励知识共享并避免干扰
+
+Qwen-Audio在各种基准测试任务中都取得了令人印象深刻的性能，无需任何特定于任务的微调，超越了同类产品，在Qwen-Audio的基础上，还进一步开发了Qwen-Audio-Chat，它允许以各种音频和文本作为输入，实现多轮对话并支持多种以音频中心的场景
+
+<img src="https://img.saraba1st.com/forum/202311/16/195334ex5hqnncj5j7gzqx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-194238.jpg</strong> (105.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:53 上传
+
+Qwen-Audio和之前来自多任务音频文本学习模型的顶级性能对比，例如SpeechT5、SpeechNet、SpeechLLaMA、SpeechLLaMA、SALMONN和Pengi
+
+<img src="https://img.saraba1st.com/forum/202311/16/195339spkpkewhk82wdwce.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-194800.jpg</strong> (362.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:53 上传
+
+展示了12个数据集的测试集结果，涵盖自动语音识别(ASR/Automatic Speech Recognition)、语音到文本翻译(S2TT/Speech-to-Text Translation)、自动音频字幕说明(AAC/Automatic Audio Captioning)、声学场景分类 (ASC/Acoustic Scene Classification)、语音情感识别(SER/Speech Emotion Recognition) 、音频问答(AQA/Audio Question and Answering)、语音分类(VSC/Vocal Sound Classification)和音乐音符分析(MNA/Music Note Analysis)
+
+<img src="https://img.saraba1st.com/forum/202311/16/195347dhugqahhbld45jqw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-194946.jpg</strong> (165.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:53 上传
+
+Qwen-Audio的示例展示了其感知和理解各种类型音频的能力，Qwen-Audio还支持多音频分析、声音理解和推理、音乐欣赏以及语音编辑工具的使用
+
+<img src="https://img.saraba1st.com/forum/202311/16/195358ebbr6rsqll33r97l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-195050.jpg</strong> (260.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:53 上传
+
+Qwen-Audio架构和多任务预训练概览图
+
+<img src="https://img.saraba1st.com/forum/202311/16/195403jl0r3t8z3t8rthys.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-195121.jpg</strong> (102.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:54 上传
+
+多任务预训练数据集
+
+<img src="https://img.saraba1st.com/forum/202311/16/195408gegpgizrmzprlgep.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-195210.jpg</strong> (306.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:54 上传
+
+Qwen-Audio评估基准的摘要
+
+相关评估结果:
+
+<img src="https://img.saraba1st.com/forum/202311/16/195419i2llmvvmu9ddd9az.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-195257.jpg</strong> (422.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202311/16/195419cgkpvzr8vgkpcrr0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231116-195305.jpg</strong> (95.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 19:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 979#       发表于 2023-11-18 03:41
+
+ 本帖最后由 Machinery 于 2023-11-18 03:44 编辑 
+
+RED-DOT
+
+通过相关证据检测进行多模态事实检查(Multimodal Fact-checking)
+
+github项目仓库:https://github.com/stevejpapad/relevant-evidence-detection
+
+在线的错误信息通常是多模态的，且通常是由文本和随附(accompanying)的图像之间的误导性关联引起的，为了进行事实核查过程，研究人员最近一直在开发自动多模态的方法，用于收集和分析与所检查的图像文本对相关的外部信息、证据
+
+然而，之前的研究假设所有收集到的证据都是相关(relevant)的，在本研究中，引入了“相关证据检测”(RED/Relevant Evidence Detection)模块来辨别每个证据是否相关，以支持或否定该主张
+
+具体来说，开发了“相关证据检测指向Transformer”(RED-DOT/Relevant Evidence Detection Directed Transformer)并探索了多种架构变体(例如单阶段或双阶段)和机制，例如“引导注意力”(guided attention)
+
+广泛的消融和对比实验表明，RED-DOT在VERITE基准上比SOTA技术显著提高了28.5%，此外，重排序(re-ranking)和元素注意的模态融合(element-wise modality fusion)可以使RED-DOT在NewsCLIPings+上实现了具有竞争力的改进性能，而无需大量证据或多个骨干编码器
+
+最后，定性分析表明，所提出的“引导注意力”模块有可能增强架构的可解释性
+
+<img src="https://img.saraba1st.com/forum/202311/18/034059galqweeuf6keeklk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-031905__01.jpg</strong> (375.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 03:40 上传
+
+图像文本对正在与从网络收集的外部证据(图像和文本)一起进行验证，本文所提案的框架检索证据并重排序，同时RED-DOT确定哪些信息与图像文本对最相关(支持或反对)，然后使用这些信息来确定该图像文本对的真实性
+
+<img src="https://img.saraba1st.com/forum/202311/18/034104j9aa4j94pgpj9g4b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-032448.jpg</strong> (54.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 03:41 上传
+
+方程2的可视化，用于检索“不相关”证据的困难负采样
+
+<img src="https://img.saraba1st.com/forum/202311/18/034110a90dnixnnyfzism9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-032529.jpg</strong> (68.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 03:41 上传
+
+所提案的RED-DOT中的Transformer D(·)的概览，应用于“模态融合”
+
+<img src="https://img.saraba1st.com/forum/202311/18/034115ysjhtdz5ztpp2jss.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-032805.jpg</strong> (43.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 03:41 上传
+
+单阶段和双阶段RED-DOT变体的高层次概览图，虚线代表DSL的第二阶段
+
+<img src="https://img.saraba1st.com/forum/202311/18/034123keoo4otsdlhl0waw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-033500__01__01.jpg</strong> (124.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 03:41 上传
+
+与SOTA进行对比，所有方法均在NewsCLIPings+(简称“News”)上进行了训练，†表示“R-NESt + CHASMA-D + NC-t2t”，在这里，M、K+和M、K-分别表示作为模型输入提供的相关和不相关证据的数量
+
+<img src="https://img.saraba1st.com/forum/202311/18/034127b4txl66wrzxiysr6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-033740__01.jpg</strong> (408.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 03:41 上传
+
+通过RED-DOT变体进行推理：基于NewsCLIPings+样本的DSL和DSL+GA，报告了每种方法分配的注意力分数，为了简单起见，[T e−, I e−, T e+, I e+]的“相关性基准答案”设置分别为[0, 0, 1, 1]
+
+<img src="https://img.saraba1st.com/forum/202311/18/034131mibbtqz4ae8kzeky.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-033957.jpg</strong> (35.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 03:41 上传
+
+DSL和DSL+GA根据“相关”和“不相关”证据分配的注意力分数分布
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 980#       发表于 2023-11-18 04:16
+
+ML-Bench
+
+让大型语言模型利用开源库(Open-source Libraries)完成机器学习任务
+
+项目主页:https://ml-bench.github.io/
+
+github项目仓库:https://github.com/gersteinlab/ML-bench
+
+数据集下载:https://drive.google.com/drive/folders/1e86FhLjxXK837SgR8a29cztx9UfxPQzS?usp=drive_link
+
+大型语言模型在代码生成基准测试(code generation benchmarks)中表现出了良好的性能，然而，这些基准测试成绩与其实际使用方面之间存在相当大的区别，这主要归就于真实世界的编程含有对预先存在的库(pre-existing libraries)的依赖
+
+这项工作的目的不是评估LLM从头编码的能力，而是提出一种新的评估设置，其中需要LLM使用开源库来完成机器学习任务(machine learning tasks)
+
+因此，本文提出了ML-Bench，一个广泛的基准，旨在评估LLM利用开源库中现有功能的有效性，包含10044个样本，涵盖14个著名机器学习GitHub存储库中的130个任务，在此设置中，给定特定的机器学习任务指令和代码库中随附的自述文件(README)，LLM的任务是生成代码来完成该任务，这需要理解很长的语言代码交错文档，以及复杂的跨文件代码结构，从而为测试引入了新的挑战
+
+值得注意的是，虽然GPT-4比其他LLM表现出了更显著的进步，但它依然只完成了39.73%的任务，留下了巨大的改进空间，研究组通过提出ML-Agent来应对这些挑战，该代理者旨在有效地导航代码库、定位文档、检索代码和生成可执行代码，实验结果表明，基于GPT-4构建的ML-Agent可以带来更进一步的改进
+
+<img src="https://img.saraba1st.com/forum/202311/18/041547xqppzovnjqnc6d7u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-035711.jpg</strong> (157.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:15 上传
+
+ML-Bench通过三个步骤的工作流程从14个机器学习GitHub存储库收集数据：提取自述信息、自动生成指令并形成标准化输出，此外，还引入了ML-Agent来完成所提出的任务，并在ML-Bench上针对当前高度稳健的语言模型进行评估
+
+<img src="https://img.saraba1st.com/forum/202311/18/041605wwykwv34kz5l0n5s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-035952.jpg</strong> (136.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+ML-Bench的数据构建，来源包含14个著名的GitHub存储库，聚合了总共10040个样本
+
+<img src="https://img.saraba1st.com/forum/202311/18/041610uhb5zl9tlc6cmfr4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-040117.jpg</strong> (229.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+ML-Bench的构造工作流程
+步骤1：在存储库中找到实现特定任务的readme文件
+步骤2：识别与任务相关的基本信息
+步骤3：从任务中提取需求参数
+步骤4：利用从自述文件中提取的详细信息，制定多种参数组合
+步骤5：为每个参数组合创建指令
+步骤6：替换自述文件中的代码或脚本，作为ML-Bench的基准答案(ground truth)代码
+
+<img src="https://img.saraba1st.com/forum/202311/18/041619kzjjzmvqyqerrojq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-040439.jpg</strong> (68.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+跨越三种设置的README文件的平均Token长度和最大Token长度：训练、分布外(OOD)训练和ML-Bench中的训练测试设置
+
+<img src="https://img.saraba1st.com/forum/202311/18/041629eg783gayrki9g7g7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-040625.jpg</strong> (57.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+ML-Bench的统计信息
+
+<img src="https://img.saraba1st.com/forum/202311/18/041634ua022x8osbzz7z1m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-040718.jpg</strong> (223.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+输入输出对、黄金输出和执行结果的说明性集合，并附有精度指标：Pass@1=0、Pass@2=0和Pass@5=1，其中不同颜色表示不同指示的不同的参数
+
+<img src="https://img.saraba1st.com/forum/202311/18/041638vlewwdzewwoz2msd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-040953.jpg</strong> (111.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+第3节中的Pass@K(%)实验结果，原始自述文件、BM25检索中报告了模型的Pass@1、Pass@2和Pass@5分数
+
+<img src="https://img.saraba1st.com/forum/202311/18/041649ci179kr11kt9ky21.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-041132.jpg</strong> (170.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+<img src="https://img.saraba1st.com/forum/202311/18/041649koqczcdfbsosqpae.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-041145.jpg</strong> (130.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+其他指标测试结果
+
+<img src="https://img.saraba1st.com/forum/202311/18/041653fw88llb2rz39lw92.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-041201.jpg</strong> (45.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+人工标注进行的错误分析，分析了GPT 3.5的240个错误和Claude 2的220个错误
+
+<img src="https://img.saraba1st.com/forum/202311/18/041657p4zjmg9gjjj2ttx0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231118-041313__01.jpg</strong> (226.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 04:16 上传
+
+ML-Agent的结构，在收到人类指令后遵循四个步骤： 
+步骤 1：从指令中提取关键字并在GitHub上进行搜索以识别五个最相关的存储库
+步骤2：对检索到的GitHub数据进行排序
+步骤3：评估每个检索到的存储库以确定其辅助完成任务的能力
+步骤4：编写实现任务所需的脚本或代码
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 981#       发表于 2023-11-21 03:17
+
+AQUATK
+
+音频质量评估工具包(Audio Quality Assessment Toolkit)
+
+github项目主页:https://github.com/Ashvala/AQUA-Tk
+
+神经音频合成(NAS/Neural Audio Synthesis)的最新进展已经超过了标准化评估方法和工具的发展速度，为了弥补这一差距，本文引入了AquaTk，一个开源Python库，专门设计用于简化和标准化NAS系统的评估
+
+AquaTk提供一系列音频质量指标，包括基本PEAQ算法的独特Python实现，并以多种模式运行以满足各种用户需求
+
+<img src="https://img.saraba1st.com/forum/202311/21/031725ehmmzv3haimv3yyv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-031520.jpg</strong> (48.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 03:17 上传
+
+AquaTK的图形界面
+
+github说明页:
+
+<img src="https://img.saraba1st.com/forum/202311/21/031729ypxjraxssps6ssyr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-031635.jpg</strong> (266.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 03:17 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 982#       发表于 2023-11-21 04:54
+
+VideoCon
+
+通过对比字幕说明(Contrast Captions)实现稳健的视频语言对齐
+
+github项目主页:https://github.com/Hritikbansal/videocon
+
+尽管经过了大量数据的(预)训练，SOTA视频语言对齐模型依然对于视频字幕说明中语义上合理的对比变化并不稳健，本文通过识别广泛的多种对比错位类型(contrast misalignments)解决这个问题，例如替换实体(replacing entities)、动作(actions)和翻转事件顺序(flipping event order)等，这些对齐模型应当对此具有稳健性
+
+为此，引入了VideoCon，一个由大型语言模型构建的视频语言对齐数据集，可生成合理的对比视频字幕说明(contrast video captions)以及原始视频字幕说明和对比视频字幕说明之间具有的差异解释
+
+通过使用VideoCon对生成视频语言模型进行微调，以评估视频语言蕴涵(entailment)并生成解释(explanations)，基于VideoCon的对齐模型显著优于当前模型，对于人工构造的对比字幕说明(human-generated contrast captions)的视频语言对齐任务(video-language alignment task)，AUC提高了12点
+
+最后，本文模型在时间延长(temporally-extensive)的视频语言任务设置中达成了新的SOTA零样本性能，例如SSv2-Temporal上的文本到视频检索(text-to-video retrieval)和ATP-Hard上的视频问答(video question answering)，此外，模型还在新颖的视频和人工制作的字幕说明和解释上表现出了卓越的性能
+
+<img src="https://img.saraba1st.com/forum/202311/21/045255mexr89zrrc9xrie3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-043710__01.jpg</strong> (223.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:52 上传
+
+VideoCon方法概览，首先，过滤对齐的视频语言对以保留时间上具有挑战性的实例，随后LLM生成对比字幕说明和自然语言解释(NLE/natural language explanations)，以创建VideoCon数据集，之后使用VideoCon在对齐和NLE任务上对视频语言对齐模型进行微调，最后根据基线模型评估微调模型，结果表明，它的性能优于基线，在下游任务上实现了SOTA结果
+
+<img src="https://img.saraba1st.com/forum/202311/21/045302fnpaee7jbv3qv3pm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044059__01.jpg</strong> (413.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+从上到下的VideoCon数据生成过程，具体来说，首先使用基于视频的原始字幕说明以及对比字幕中预期的未对齐类型来提示大型语言模型(PaLM-2)，考虑了七种错位类型，包含物体、动作、属性、计数、空间关系、幻觉和事件顺序翻转，也为每种错位类型提供生成的对比字幕说明和相应的自然语言解释
+
+<img src="https://img.saraba1st.com/forum/202311/21/045308i2cusdun31z9tn6u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044422.jpg</strong> (39.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+VideoCon数据集的对比字幕说明内的未对齐类型的分布，观察到该数据集对8.8%到24.2%范围内的各种错位具有良好的代表性
+
+<img src="https://img.saraba1st.com/forum/202311/21/045313hatxzx5a19x8thw6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044616.jpg</strong> (82.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+VideoCon中VLE和NLE任务的统计信息
+
+<img src="https://img.saraba1st.com/forum/202311/21/045320gprt81889tr7ffs0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044710.jpg</strong> (166.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+微调的蕴含任务与NLE任务的提示
+
+<img src="https://img.saraba1st.com/forum/202311/21/045348lnmz70hjcm7m8env.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044926__01.jpg</strong> (355.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+本文模型的成功(绿色)和失败(红色)模式的定性示例，在每个示例中，按照从上到下的时间顺序呈现一些视频帧、其相关字幕说明、对比字幕说明、数据集中的基准答案NLE
+
+此外，还展示了模型预测的NLE，标题单元格末尾的小框表示模型是否认为该字幕说明是基于视频的，E和C表示模型预测字幕说明分别与视频相关和矛盾，E-GT和C-GT分别表示预测的NLE与基准答案(GT)NLE相矛盾
+
+<img src="https://img.saraba1st.com/forum/202311/21/045358v1htvdp9td1yx1kf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044809.jpg</strong> (111.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+<img src="https://img.saraba1st.com/forum/202311/21/045358cmif223kihmmrhkd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044821.jpg</strong> (113.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+<img src="https://img.saraba1st.com/forum/202311/21/045358uzahmvzqzdajzdcq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044840.jpg</strong> (96.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+<img src="https://img.saraba1st.com/forum/202311/21/045358d1bdb2o0jvj2d25j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-044852.jpg</strong> (103.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 04:53 上传
+
+相关评估指标与结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 983#       发表于 2023-11-21 05:44
+
+ 本帖最后由 Machinery 于 2023-11-21 05:45 编辑 
+
+Video-LLaVA
+
+通过投影前对齐(Alignment Before Projection)学习联合视觉表征(United Visual Representation)
+
+github项目主页:https://github.com/PKU-YuanGroup/Video-LLaVA
+
+大型视觉语言模型(LVLM/Large Vision-Language Model)增强了视觉语言理解中多种下游任务的性能，其中大多数现有方法将图像和视频编码到分离的特征空间中，然后将其作为大型语言模型的输入，然而，由于图像和视频缺乏统一的分词化(tokenization)，导致投影前的未对齐(misalignment)，大型语言模型(LLM)从一些贫弱的投影层中学习多模态交互将变得具有挑战性
+
+在这项工作中，为了将视觉表征统一到语言特征空间中，推进基础LLM走向统一的LVLM，建立了一个简单但强大的LVLM基线，名为Video-LLaVA，可以从图像和视频的混合数据集中学习，相互增强
+
+Video-LLaVA在跨越5个图像问答数据集和4个图像基准工具包的9个图像基准测试中实现了卓越的性能，此外，Video-LLaVA在MSRVTT、MSVD、TGIF和ActivityNet上的性能也分别优于Video-ChatGPT5.8%、9.9%、18.6%和10.1%，大量实验表明Video-LLaVA在统一的视觉表征中使图像和视频互惠互利，其性能优于专门为图像或视频设计的模型
+
+<img src="https://img.saraba1st.com/forum/202311/21/054349e41o7hfzwfvfw936.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-051841.jpg</strong> (147.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:43 上传
+
+对比不同的LVLM范式，Video-LLaVA通过在投影前对齐图像和视频，使LLM能够从统一的视觉表征中学习，并赋予LLM同时理解图像和视频的能力
+
+<img src="https://img.saraba1st.com/forum/202311/21/054354yz7g87obe7qtpct3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-052906.jpg</strong> (104.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:43 上传
+
+不同大型视觉语言模型之间的对比，对于将LLM作为调度器的那些方法，它们不需要预对齐和联合训练
+
+<img src="https://img.saraba1st.com/forum/202311/21/054359rvb5ayha6h525rra.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-053032.jpg</strong> (668.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:43 上传
+
+训练框架和性能
+(a)Video-LLaVA框架演示了一个根据输入指令生成相应响应的数据流
+(b)Video-LLaVA在跨越图像和视频的15个数据集上实现了卓越的性能
+
+<img src="https://img.saraba1st.com/forum/202311/21/054403wv2ddhghffodj8mh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-053219.jpg</strong> (85.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:44 上传
+
+用于训练Video-LLaVA的数据组合，第一阶段的数据集由单轮对话组成，侧重于简洁的视觉描述，第二阶段，数据集包含多轮对话，强调复杂的视觉推理能力
+
+<img src="https://img.saraba1st.com/forum/202311/21/054407vgfo9g68nnggnnx5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-053318__01.jpg</strong> (249.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:44 上传
+
+不同LVLM在图像理解基准上的对比，Res.表示输入图像的分辨率，由于页面限制，基准名称被缩写
+
+VQA-v2;GQA;VisWiz;SQAI : ScienceQA-IMG;VQAT TextVQA;POPE;MMB: MMBench;LLaVAW: LLaVA-Bench(In-the-Wild);MM-Vet.*表明训练数据存在一些重叠
+
+<img src="https://img.saraba1st.com/forum/202311/21/054413j5w2dvb6w6ksml5m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-053650.jpg</strong> (82.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:44 上传
+
+不同LVLM在视频推理基准上的对比，使用ChatGPT-Assistant来评估Video-ChatGPT的性能，ChatGPT的版本是“gpt-3.5-turbo”
+
+<img src="https://img.saraba1st.com/forum/202311/21/054418xnttkrgtlg38v0yk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-053658.jpg</strong> (323.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:44 上传
+
+Video-LLaVA多模态理解能力的示例，展示了模型根据给定的指令输入生成相应响应的能力:
+(a)Video-LLaVA在图像理解和图像推理方面的样本
+(b)视频理解方面中的Video-LLaVA样本
+(c)联合视觉理解中的Video-LLaVA样本
+
+<img src="https://img.saraba1st.com/forum/202311/21/054432i8uj4ejbs4etwre8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-054019.jpg</strong> (96.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:44 上传
+
+<img src="https://img.saraba1st.com/forum/202311/21/054432ctk8b2gyugky282y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-054238.jpg</strong> (79.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:44 上传
+
+<img src="https://img.saraba1st.com/forum/202311/21/054432tdshoxronzhnswmo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-054249.jpg</strong> (88.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:44 上传
+
+<img src="https://img.saraba1st.com/forum/202311/21/054432nb5a8az58xqbl8xl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-054258.jpg</strong> (114.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 05:44 上传
+
+消融实验的结果
+“United”是指统一的视觉表征，“Separated”是指分离的视觉表征
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 984#       发表于 2023-11-21 21:01
+
+FastBERT
+
+指数级加快语言建模速度
+
+github项目主页:https://github.com/pbelcak/FastBERT
+
+语言模型实际上只需要使用其神经元的指数的一部分来进行单独推理，作为证明，本文提出了FastBERT，一种BERT变体，在推理过程中使用了0.3%的神经元，同时性能与类似的BERT模型相当
+
+FastBERT仅选择性地使用4095个神经元中的12个进行每层推理(each layer inference)，这是通过用快速前馈网络(FFFs/fast feedforward networks)替换前馈网络(FFNs/feedforward networks)来实现的
+
+虽然目前还没有真正有效的实现来释放条件神经元运算(conditional neural execution)的完全加速潜力，但本文提供的高层级CPU代码比优化的基线前馈实现相比达到了78倍的加速，而PyTorch实现比同等的批量前馈推理实现了40倍的加速，同时发布了训练代码、基准测试设置和模型权重
+
+<img src="https://img.saraba1st.com/forum/202311/21/210121t1za96x07lun9994.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-205630.jpg</strong> (277.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 21:01 上传
+
+ 各种语言模型在GLUE-dev测试集的结果
+
+NT表示可用于训练的神经元数量，NI/NT表示用于单次推理的神经元比例，“Avg”表示该栏左侧所有任务结果的平均分
+
+<img src="https://img.saraba1st.com/forum/202311/21/210125szknenxussxnfee2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231121-210017.jpg</strong> (69.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 21:01 上传
+
+推理加速评估结果，重点强调最佳的“公平对比”表现
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 985#       发表于 2023-11-22 07:53
+
+Orca 2
+
+教授小型语言模型如何推理
+
+Orca 2-7b权重:https://huggingface.co/microsoft/Orca-2-7b
+
+Orca 2-13b权重:https://huggingface.co/microsoft/Orca-2-13b
+
+Orca 1从丰富的信号，例如解释轨迹(explanation traces)中学习，使其能够在BigBench Hard和AGIEval等基准测试中超越传统的指令调整模型，在Orca 2中，继续探索了改进的训练信号如何增强小型语言模型(LM)的推理能力，训练小型LM的研究通常依赖于模仿学习来复制能力更强的模型的输出，研究组认为，过度强调模仿可能会限制较小模型的潜力
+
+通过试图教导小型LM针对不同的任务采用不同的解决策略，这些策略可能与较大模型使用的潜在策略不同，例如，虽然较大的模型可能可以为复杂任务直接提供答案，但较小的模型可能不具有相同的容量，在Orca 2中，教授了模型各种推理技术(逐步推理/step-by-step,回忆后生成/recall then generate,回忆-推理-生成/recall-reason-generate,直接回答/direct answer等)，其中最重要的目标是帮助模型学习确定每项任务最有效的解决策略
+
+通过使用一套全面的15个不同基准(对应于大约100个任务和超过36000个独特提示)评估了Orca 2，在零样本设置下测试高级推理能力的复杂任务上进行的评估，结果表明Orca 2显著超越了类似尺寸的模型，并达到了与5-10倍大的模型相似或更好的性能水平
+
+<img src="https://img.saraba1st.com/forum/202311/22/075246dxhajcwih82xo8bq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-073408.jpg</strong> (61.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:52 上传
+
+在各种基准(零样本设置)上对比了Orca 2(7B和13B)与LLaMA-2-Chat(13B和70B)和WizardLM(13B和70B)的结果，范围涵盖语言理解、常识推理、多步推理，解决数学问题等，Orca 2模型匹配或超越所有其他模型，包括比其大5-10倍的模型，请注意，所有型号均使用相应尺寸的相同LLaMA-2基础模型
+
+<img src="https://img.saraba1st.com/forum/202311/22/075252o1xznnxn3nza8ono.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-073711.jpg</strong> (407.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:52 上传
+
+Orca 2、其基本模型LLaMA-2、LLaMA-2-Chat和ChatGPT(GPT-3.5-Turbo)对推理问题响应的示例，分别使replicate.com/meta/llama-2-13b和chat.lmsys.org生成LLaMA-2和LLaMA-2-Chat模型响应，LLaMA和Orca 2模型调用使用temperature=0和top_p=1作为参数，ChatGPT的响应是通过chat.openai.com获得的
+
+<img src="https://img.saraba1st.com/forum/202311/22/075257c02yfmmwiimgo0oj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-073935.jpg</strong> (470.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:52 上传
+
+来自Flan-CoT Collection的演示示例
+
+<img src="https://img.saraba1st.com/forum/202311/22/075302mbywbm13umphl7wm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074023.jpg</strong> (72.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+不同模型在推理基准上的宏观平均性能
+
+<img src="https://img.saraba1st.com/forum/202311/22/075307kdq9aqfqyqqabdap.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074130.jpg</strong> (131.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+推理基准上不同模型的零样本性能对比
+
+<img src="https://img.saraba1st.com/forum/202311/22/075313tqq1aqw4s4ezjaj3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074302.jpg</strong> (84.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+MMLU、ARC Easy和ARC Challenge上不同模型的零样本性能对比，System Message表示系统消息是“empty”还是“cautious”
+
+<img src="https://img.saraba1st.com/forum/202311/22/075318vo381oemkle1whul.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074453.jpg</strong> (91.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+零样本设置下不同模型在文本完成测试集上的性能
+
+<img src="https://img.saraba1st.com/forum/202311/22/075323q2obkuookfuezt91.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074543.jpg</strong> (130.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+MT-Bench每轮得分和平均得分
+
+<img src="https://img.saraba1st.com/forum/202311/22/075327fx3sls8ewz0lze50.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074629.jpg</strong> (63.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+使用GPT-4作为鉴别器评估的幻觉率在，在三个抽象概括基准上进行的平均性能(越低越好)
+
+<img src="https://img.saraba1st.com/forum/202311/22/075332txe2inht3rxdrv2r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074744.jpg</strong> (50.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+<img src="https://img.saraba1st.com/forum/202311/22/075332pndzm20r0fumlpjr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074752.jpg</strong> (53.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+ToxiGen毒性声明分类与中性陈述分类的评估结果，结果是所有13个类别的平均值
+
+<img src="https://img.saraba1st.com/forum/202311/22/075337rwme8iepp5imk5zi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-074927.jpg</strong> (62.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+不同模型在TruthfulQA基准上的表现，准确性为模型给定的多项选择问题生成正确答案的次数的百分比
+
+<img src="https://img.saraba1st.com/forum/202311/22/075346k23zkg6k5l236u0k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-075048.jpg</strong> (75.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+HHH数据集的评估结
+
+<img src="https://img.saraba1st.com/forum/202311/22/075351j2ob2wuhe2n4enbe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-075116.jpg</strong> (137.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+安全性评估结果
+
+<img src="https://img.saraba1st.com/forum/202311/22/075355sn1jl7gykflvdttd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231122-075143.jpg</strong> (232.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 07:53 上传
+
+其他评估对比成绩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 986#       发表于 2023-11-22 08:53
+
+SVD/SVD-XT
+
+Stability开源的视频生成模型系列
+
+介绍博客:https://stability.ai/news/stable-video-diffusion-open-ai-video-model
+
+hugface SVD权重:https://huggingface.co/stabilityai/stable-video-diffusion-img2vid
+
+hugface SVD-XT权重:https://huggingface.co/stabilityai/stable-video-diffusion-img2vid-xt
+
+出于研究目的发布了稳定视频扩散(Stable Video Diffusion)，一种图像到视频生成模型：
+
+SVD：该模型经过训练，可以在给定相同大小的上下文帧的情况下生成分辨率为576x1024的14帧视频，使用SD 2.1中的标准图像编码器，但用时间感知去闪烁解码器(temporally-aware deflickering decoder)替换解码器(decoder)
+
+ SVD-XT：与SVD架构相同，但针对25帧视频生成进行了微调，提供了一个streamlit演示脚本/demo/video_sampling.py，以及一个独立的python脚本scripts/sampling/simple_video_sample.py用于两个模型的推理
+
+除了模型之外，还发布了一份技术报告(相关链接:https://stability.ai/research/stable-video-diffusion-scaling-latent-video-diffusion-models-to-large-datasets)
+
+性能对比:
+
+<img src="https://img.saraba1st.com/forum/202311/22/085256iy0nguquvapgb8dx.jpg" referrerpolicy="no-referrer">
+
+<strong>Graph+SVD+v+Competition0.jpg</strong> (36.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-22 08:52 上传
+
+论文内容待更新
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 987#       发表于 2023-11-23 22:24
+
+ 本帖最后由 Machinery 于 2023-11-23 22:26 编辑 
+
+HierSpeech++
+
+通过分层变分推理(Hierarchical Variational Inference)来缩小语音的语义和声学表征(Semantic and Acoustic Representation)之间的差距进行零样本语音合成(Zero-shot Speech Synthesis)
+
+github项目主页:https://github.com/sh-lee-prml/HierSpeechpp
+
+基于大型语言模型(LLM)的语音合成已广泛应用于零样本语音合成中，然而，它们需要大量数据，并且具有与以前的自回归语音模型相同的局限性，包括推理速度慢和缺乏稳健性
+
+本文提出了HierSpeech++，一种快速、强大的零样本语音合成器，用于文本到语音(TTS/text-to-speech)和声音转换(VC/voice conversion)，验证了分层语音合成框架(hierarchical speech synthesis frameworks)可以显著提高合成语音的稳健性与表现力
+
+此外，在零样本语音合成场景中，也提高了合成语音的自然度和说话人相似度，对于文本到语音，采用了文本到向量框架，该框架根据文本表征和韵律提示(prosody prompts)生成自监督语音表征和F0表征，然后HierSpeech++根据生成的向量、F0和语音提示生成语音
+
+还进一步研究了从16 kHz到48 kHz的高效语音超分辨率框架(high-efficient speech super-resolution framework)，实验结果表明，分层变分自动编码器可以成为强大的零样本语音合成器，还优于基于LLM和基于扩散的模型，此外，还第一个实现了人类水平质量的零样本语音合成
+
+<img src="https://img.saraba1st.com/forum/202311/23/222128fyy00qwyu2i72mr2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214504__01.jpg</strong> (200.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:21 上传
+
+HierSpeech++的分层语音合成工作流程
+(a)对于语音到语义建模，使用MMS，它是从具有1406种语言语音数据的预训练的Wav2Vec 2.0
+(b)分层语音合成器根据语义表征和语音提示生成16 kHz波形音频
+(c)SpeechSR将16 kHz波形音频上采样至48 kHz
+(d)对于TTS，文本转向量系统根据文本序列和韵律提示生成语义表征
+
+<img src="https://img.saraba1st.com/forum/202311/23/222135p7jgddykdkdo9oq0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214518__01.jpg</strong> (211.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:21 上传
+
+HierSpeech++的分层语音合成器，左为训练，右为推理
+
+<img src="https://img.saraba1st.com/forum/202311/23/222249w4en2lgl2ssf29gv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214525__01.jpg</strong> (243.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:22 上传
+
+分层语音合成器的架构细节，为了进行推理，可以根据语义表征、F0和语音提示生成波形，从源语音中提取语义表征和F0进行语音转换，并且可以通过TTV用于文本转语音生成
+
+<img src="https://img.saraba1st.com/forum/202311/23/222254fsice1lsser4pwiz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214530__01.jpg</strong> (51.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:22 上传
+
+文本到向量
+
+<img src="https://img.saraba1st.com/forum/202311/23/222302uyobcycd5wd6t605.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214530__02.jpg</strong> (75.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:23 上传
+
+语音超分辨率
+
+<img src="https://img.saraba1st.com/forum/202311/23/222307k38d2d8jt3z2mxda.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214535__01.jpg</strong> (141.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:23 上传
+
+语音转换和文本转语音的推理场景
+
+<img src="https://img.saraba1st.com/forum/202311/23/222322brqo1qozqc12cac1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214540__01.jpg</strong> (39.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:23 上传
+
+风格提示复制
+
+<img src="https://img.saraba1st.com/forum/202311/23/222326nnsxddinngh5kh3i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214544__01.jpg</strong> (69.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:23 上传
+
+训练数据集，利用公共可用的语音数据集来训练模型，对于TTV，仅使用LibriTTS数据集
+
+<img src="https://img.saraba1st.com/forum/202311/23/222333jko8rl92fsxapkmb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214558__01.jpg</strong> (109.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:23 上传
+
+消融实验的重建结果，LT-460表示LibriTTS train-clean-100和360子集，LT-960还使用LT-460的train-other-500子集，ALL表示模型使用 5.1 节中的所有数据集进行训练
+
+<img src="https://img.saraba1st.com/forum/202311/23/222339tx1vfc7od2ahzrdz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214558__02.jpg</strong> (105.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:23 上传
+
+消融实验的重合成结果
+
+<img src="https://img.saraba1st.com/forum/202311/23/222345a247b2227ha99ap7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214558__03.jpg</strong> (98.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:23 上传
+
+消融实验的语音转换结果，Params.表示模型参数的数量
+
+<img src="https://img.saraba1st.com/forum/202311/23/222355xbi952fnmffwiad9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214606__01.jpg</strong> (153.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:23 上传
+
+VCTK数据集中未见的说话者的零样本VC结果，DiffVC♠表示来自使用LibriTTS训练的官方实现预训练模型，YourTTS♣表示来自官方实现预训练模型，但使用LibriTTS、VCTK等进行训练，因此YourTTS的结果不是零样本VC结果
+
+<img src="https://img.saraba1st.com/forum/202311/23/222401r636dw3zcpihcdwo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214610__01.jpg</strong> (126.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+Temperature参数搜索，对于TTS，有两个可控Temperature，TTV的Tttv和分层语音合成器的Th，使用经过LT-960训练的HierSpeech++进行此实验并固定随机种子，发现低Temperature可以提高合成语音在CER和WER的稳健性，但是，如果您希望生成多样化且富有表现力的语音，则可以选择高Temperature，基准答案(ground-truth)的CER和WER分别为2.31和4.13，UTMOS以标准差表示
+
+<img src="https://img.saraba1st.com/forum/202311/23/222407vkpie3uu4qrqfp3v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214614__01.jpg</strong> (132.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+零样本TTS结果，对LibriTTS的测试干净子集中未见的扬声器发出噪音提示，合成了子集的所有句子(4837个样本)，对于HierSpeech++，仅使用LibriTTS train-960中的文本序列
+
+<img src="https://img.saraba1st.com/forum/202311/23/222411by1yasrrsyidt61z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214614__02.jpg</strong> (132.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+零样本TTS结果，在来自LibriTTS的其他测试子集的未见扬声器上出现了非常嘈杂的提示，综合了测试其他子集的所有句子(5120个样本)
+
+<img src="https://img.saraba1st.com/forum/202311/23/222426uci8hpepil7ddizh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214619__01.jpg</strong> (58.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+不同长度语音提示的结果，利用LibriTTS的干净测试子集(1002个样本)中所有超过10秒的句子，SPR表示风格提示复制，通过将一个简短的提示复制五次以实现稳健的风格转移，由于对语音进行随机切片，没有考虑语音/非语音部分，因此1s提示的结果低于其他提示，UTMOS以标准差表示
+
+<img src="https://img.saraba1st.com/forum/202311/23/222430s018i0rake003bwi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214629__01.jpg</strong> (183.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+使用AudioSR和SpeechSR(our)获得的基准答案和语音超分辨率结果的频谱图
+
+<img src="https://img.saraba1st.com/forum/202311/23/222436yjj82n8k2ug6jdik.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214634__01.jpg</strong> (69.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+VCTK数据集上的语音超分辨率结果
+
+<img src="https://img.saraba1st.com/forum/202311/23/222440fxx46g98fgcp8rf8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214634__02.jpg</strong> (52.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+SpeechSR的ABX偏好测试
+
+<img src="https://img.saraba1st.com/forum/202311/23/222444zok42ar24aak91ix.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214634__03.jpg</strong> (62.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+与VALL-E、NaturalSpeech2和StyleTTS 2的对比，因为只比较了NaturalSpeech 2和StyleTTS 2演示页面中的四个样本，所以这个实验仅供参考
+
+<img src="https://img.saraba1st.com/forum/202311/23/222448qnqfn77nn8yw4hf3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-214639__01.jpg</strong> (121.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 22:24 上传
+
+带噪声抑制的语音提示结果，HierSpeech++♠表示Hierspeech++语音合成后的级联去噪结果，仅利用去噪音频作为风格编码器的语音提示来提取去噪风格表征
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 988#       发表于 2023-11-24 00:05
+
+ 本帖最后由 Machinery 于 2023-11-24 00:06 编辑 
+
+PhysGaussian
+
+用于生成动态(Generative Dynamics)的物理学集成的3D高斯(Physics-Integrated 3D Gaussians)
+
+项目主页:https://xpandora.github.io/PhysGaussian/
+
+github项目代码仓库:https://github.com/XPandora/PhysGaussian
+
+PhysGaussian，一种新方法，可将基于物理学的牛顿动力学无缝集成到3D高斯中，以实现高质量的新颖运动合成，方法采用定制的质点方法(MPM/custom Material Point Method)，通过具有物理意义的运动形变(kinematic deformation)和机械应力属性(mechanical stress attributes)丰富3D高斯核(3D Gaussian kernels)，所有这些都符合连续介质力学原理(continuum mechanics principles)
+
+方法的一个决定性特征是物理模拟和视觉渲染之间的无缝集成：两个组件都使用相同的3D高斯核作为其离散表征，这消除了三角形/四面体网格(triangle/tetrahedron meshing)、行进立方体(marching cubes)、“笼式网格(cage meshes)”或任何其他几何嵌入的必要性，突出了“所见即所模拟/what you see is what you simulate(WS2)”的原则
+
+本方法在各种材料(包括弹性实体、金属、非牛顿流体和粒状材料)中展示了卓越的多功能性，展示了其通过新颖的观点和运动创建多样化视觉内容的强大能力
+
+<img src="https://img.saraba1st.com/forum/202311/24/000402nwzkqrwqaawzomi1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234319__01.jpg</strong> (507.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:04 上传
+
+PhysGaussian是一个统一的模拟渲染工作流程，其中3D高斯可以通过新颖的运动和视图无缝模拟和渲染
+
+<img src="https://img.saraba1st.com/forum/202311/24/000428xh404m5ehjl4fyuf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234327__01.jpg</strong> (369.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:04 上传
+
+方法概览图，PhysGaussian是一个统一的模拟渲染工作流程，它结合了3D高斯溅射(3D Gaussian splatting)表征和连续介质力学，可以同时无缝地生成基于物理的动态运动和照片级真实感渲染
+
+<img src="https://img.saraba1st.com/forum/202311/24/000434euccaymu0ajwizyw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234350__01.jpg</strong> (423 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:04 上传
+
+材料的多功能性，在各种示例中展示了本方法的卓越多功能性：狐狸/弹性实体、飞机/金属、吐司/断裂、废墟/颗粒材料、果酱/粘塑性材料和沙发套件/碰撞
+
+<img src="https://img.saraba1st.com/forum/202311/24/000439gzy6qz5kurrvl36b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234359__01.jpg</strong> (141.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:04 上传
+
+对比，对于每个基准案例，选择了一个测试视图并可视化所有对比，放大了一些区域，以强调本方法在变形后保持高保真渲染质量的能力，同时使用黑色背景来避免背景的干扰
+
+<img src="https://img.saraba1st.com/forum/202311/24/000444gi9zfw19aq27oiao.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234359__02.jpg</strong> (30.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:04 上传
+
+消融实验，不可扩展的高斯可能会在形变过程中导致严重的视觉伪影，虽然直接渲染形变高斯核已经可以获得良好的结果，但球谐函数(spherical harmonics)的额外旋转可以提高渲染质量
+
+<img src="https://img.saraba1st.com/forum/202311/24/000448trvjsn3siij4y6ia.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234410__01.jpg</strong> (87.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:04 上传
+
+合成了格栅(lattice)形变基准数据集以与基线进行对比并进行消融实验验证设计选择，报告了PSNR分数(越高越好)，本方法在所有情况下都优于其他方法
+
+<img src="https://img.saraba1st.com/forum/202311/24/000451pez3cebssxp5bpeg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234410__02.jpg</strong> (62.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:04 上传
+
+内部填充(Internal filling)还可实现更真实的模拟结果，本方法还支持通过材料参数灵活控制，其中杨氏模量(Young’s modulus)E越大，刚度越高，而泊松比ν(poission ratio ν)越大，体积保持越好
+
+<img src="https://img.saraba1st.com/forum/202311/24/000456hoehmqe2q2eo9fdv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234410__03.jpg</strong> (29.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:04 上传
+
+与基于几何的编辑方法相比，基于物理的方法能够捕获体积行为，从而产生更真实的动态
+
+<img src="https://img.saraba1st.com/forum/202311/24/000637fzdtxzfc22dakzcf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231123-234410__04.jpg</strong> (46.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 00:06 上传
+
+各向异性正则化器(Anisotropy Regularizer)，为高斯核引入了各向异性约束，有效增强了动态条件下基于高斯表征的保真度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 989#       发表于 2023-11-24 01:22
+
+Concept Sliders
+
+用于扩散模型中精确控制的LoRA适配器
+
+https://sliders.baulab.info/
+
+https://github.com/rohitgandikota/sliders
+
+已经训练的Concept Sliders:https://sliders.baulab.info/weights/xl_sliders/
+
+本文提出了一种创造可解释概念滑块(Concept Sliders)的方法，可以精确控制扩散模型生成图像中的属性，本方法识别与一个概念相对应的低秩参数方向，同时最大限度地减少对其他属性的干扰，滑块是使用一小组提示或示例图像创造的，因此，可以为文本或视觉概念创建滑块方向
+
+概念滑块是即插即用的，它们可以有效组合并连续调制(continuously modulated)，从而能够精确控制图像生成，在定量实验中，与以前的编辑技术相比，滑块表现出更强的针对性编辑和更低的干扰
+
+展示了天气、年龄、风格和表达的滑块，以及滑块组合，展示了滑块如何从StyleGAN传输潜变量，以直观地编辑文本描述困难的视觉概念。同时还发现，本方法可以帮助解决Stable Diffusion XL中持续存在的质量问题，例如修复对象变形和扭曲的手
+————
+如何精确控制扩散模型中的概念？
+
+ 艺术家花费大量时间制作提示并寻找适合的seed，以使用文本到图像模型生成所需的图像，然而，当他们需要对生成图像中的属性强度(如眼睛大小或光照)进行更细致、更细粒度的控制时，修改提示会破坏整体结构，艺术家需要能够保持连贯性的表达控制方法
+
+为了在不改变结构的情况下实现精确编辑，提出了概念滑块，它们是应用在预训练模型之上的即插即用的低秩适配器(low rank adaptors)，通过使用简单的文本描述或一小组配对图像，可以训练概念滑块来表示所需属性的方向，在生成时，这些滑块可用于控制图像中概念的强度，从而实现细微的调整
+
+<img src="https://img.saraba1st.com/forum/202311/24/011817thy7i7wu2hie9uky.jpg" referrerpolicy="no-referrer">
+
+<strong>19804e49-e8fa-4845-97bc-1ba6aef5471c.jpg</strong> (127.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:18 上传
+
+概念滑块可以在文本提示、图像对或 StyleGAN 样式空间神经元上进行训练，以识别扩散模型中的目标概念方向，从而实现精确的属性控制
+————
+为什么需要扩散模型中的概念控制？
+
+在图像生成和编辑过程中精确调节语义概念的能力为利用文本到图像扩散模型的艺术家开启了创意表达的新领域。 正如艺术界最近的讨论所证明的那样，概念控制的局限性阻碍了创作者通过这些生成技术充分体现其愿景的能力，也有人认为，这些模型会生成模糊、扭曲的图像
+
+修改提示往往会极大地改变图像结构，从而很难根据艺术偏好进行微调，例如，艺术家可能会花费数小时精心制作提示来生成引人注目的场景，但缺乏软调整较轻的概念(例如对象的精确年龄或风暴的氛围)来实现其创作目标的能力，对文本和视觉属性的更直观、更细粒度的控制将使艺术家能够调整生成以进行细微的改进，相比之下，概念滑块通过识别与特定概念相关的可解释的潜在方向，可以对视觉属性进行细致的、连续的编辑，通过简单地调整滑块，艺术家可以对生成过程进行更细粒度的控制，并可以更好地塑造输出以符合他们的艺术意图
+————
+如何控制模型中的概念？
+
+提出了两种类型的训练，单独使用文本提示与使用图像对，对于难以用文本描述的概念或模型无法理解的概念，建议使用图像对训练，首先讨论文本概念滑块的训练
+————
+文本概念滑块
+
+这个想法很简单但功能强大：预训练模型 Pθ*(x)具有一些预先存在的概率分布来生成概念t，因此我们的目标是学习模型各层的一些低秩更新，从而形成一个 新模型Pθ(x)根据原始预训练模型，在以t为条件时，通过降低图像中属性c-的概率并提高属性c+的概率来重塑其分布：
+
+<img src="https://img.saraba1st.com/forum/202311/24/011835qmn88cjm9mvcvqrq.png" referrerpolicy="no-referrer">
+
+<strong>prob.png</strong> (46.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:18 上传
+
+这类似于基于能量的组合模型背后的动机，在扩散中，它导致了一种直接了当的简单微调方案，该方案通过减去一个组件并添加一个以目标概念为条件的组件来修改噪声预测模型：
+
+<img src="https://img.saraba1st.com/forum/202311/24/011853whef17j887jez7p8.png" referrerpolicy="no-referrer">
+
+<strong>score.png</strong> (29.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:18 上传
+
+概念滑块使用从原始冻结Stable Diffusion模型获得的条件分数对低秩适配器进行微调，以引导输出从一个属性转向另一个正在编辑的目标概念
+
+查询冻结的预训练模型来预测给定目标提示的噪声，并控制属性提示，然后使用训练时的无分类器引导而不是推理的思想来训练编辑后的模型以相反的方向引导它，同时发现以此目标微调的滑块权重非常有效，生成了一个即插即用的适配器，可以直接控制目标概念的属性
+
+在实践中，注意到这些概念是相互纠缠的，例如，当试图控制一个人的年龄属性时，他们的种族在推理过程中会发生变化，为了避免这种不必要的干扰，建议使用一小组保留提示来寻找方向，而不是单独用一对单词来定义属性，通过使用多个文本组合来定义它，找到一个改变目标属性的方向，同时保持其他要保留的属性不变
+
+<img src="https://img.saraba1st.com/forum/202311/24/011913c3jwc8cp39aw7873.png" referrerpolicy="no-referrer">
+
+<strong>disent-score.png</strong> (39.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:19 上传
+
+为了避免对编辑的不必要干扰并允许精确控制，建议寻找保留一组受保护概念的方向，不是寻找从“年轻人”到“老年人”的方向，而是通过特别提及要保留的一组受保护属性来找到保留种族的方向，例如“亚洲年轻人”到“亚洲老人”
+
+<img src="https://img.saraba1st.com/forum/202311/24/011922yfjdjdfbj7zfy0yt.png" referrerpolicy="no-referrer">
+
+<strong>directions.png</strong> (126.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:19 上传
+
+红色箭头是仅使用“老”和“年轻”提示训练的原始年龄方向，然而，这个方向与种族纠缠在一起，相反，通过使用多个提示构建一个新的解缠结方向(蓝色)，以使新向量在这些方向上保持不变，例如，“亚洲老人”和“亚洲年轻人”，通过在所有种族中都这样做，以消除种族纠缠
+————
+视觉概念滑块
+
+<img src="https://img.saraba1st.com/forum/202311/24/011933xqruk30hkl9r23u0.png" referrerpolicy="no-referrer">
+
+<strong>image-score.png</strong> (21.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:19 上传
+
+ 为了训练无法仅用文本提示描述的概念滑块，提出了基于图像对的训练，其中特别根据梯度差来训练图像，滑块通过学习图像对(xA , xB)之间的对比来捕捉视觉概念，训练过程优化了LORA在正向和负向方向上的应用，对于正向LoRA的应用，必须写εθ+，对于负案例，必须写εθ-，然后最小化以下损失：
+————
+为什么概念滑块低秩且分开？
+
+向滑块引入低秩约束有两个主要原因，首先，为了提高参数计数和计算的效率，其次，以更好的泛化来精确捕捉编辑方向，分开的公式有助于将编辑与不需要的属性隔离开来，展示了一项消融实验，以更好地理解我们工作的这两个主要组成部分的作用
+
+<img src="https://img.saraba1st.com/forum/202311/24/012032qqihiow0h025gv5w.jpg" referrerpolicy="no-referrer">
+
+<strong>9dafcc1e-d812-4ee3-a5f8-0d9cc8930ad0.jpg</strong> (230.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:20 上传
+
+解开目标有助于避免不必要的属性更改，例如编辑年龄时种族或性别的变化，低秩约束对于实现精确编辑也至关重要
+————
+用于提高图像质量的滑块
+
+像Stable Diffusion XL这样的大规模生成模型最有趣的方面之一是，尽管它们的图像输出经常会受到扭曲或模糊物体等失真的影响，但模型的参数包含生成高质量输出生成模型的潜在能力，概念滑块可以通过识别修复常见扭曲的低秩参数方向来解锁这些能力，与默认情况下相比，输出质量更高，失真更少
+
+<img src="https://img.saraba1st.com/forum/202311/24/012053v0omrf45f2oo0744.jpg" referrerpolicy="no-referrer">
+
+<strong>54ba20e2-1a04-41c5-a7ca-32686f21a645.jpg</strong> (113.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:20 上传
+
+修复滑块使模型能够生成更真实且不失真的图像，该滑块控制下的参数可帮助模型纠正生成输出中的一些缺陷，例如(A/B)中扭曲的人类和宠物，(B/C/D)中的不自然物体以及(B/C)中模糊的自然图像
+
+<img src="https://img.saraba1st.com/forum/202311/24/012102hgam5zidmgvxlqku.jpg" referrerpolicy="no-referrer">
+
+<strong>c271e402-2e94-41ea-909a-5089ee70d5f7.jpg</strong> (217.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:21 上传
+
+演示了“修复”滑块对细节的效果：它改善了密集排列对象的渲染，拉直了建筑线条，并避免了复杂形状边缘的模糊和扭曲
+
+<img src="https://img.saraba1st.com/forum/202311/24/012112fsvwz9w3z5zem9yh.jpg" referrerpolicy="no-referrer">
+
+<strong>fc0a675f-8f21-422e-a068-4ad18d15db0d.jpg</strong> (102.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:21 上传
+
+演示了一个用于在Stable Diffusion中修复手的滑块，找到了一个方向，让双手变得更加真实，远离“画得不好的手”
+————
+控制文本概念
+
+研究文本概念滑块； 论文对以前的图像编辑方法和基于文本的提示编辑方法进行了更多的定量分析
+
+<img src="https://img.saraba1st.com/forum/202311/24/012126eszller4srl3qo4d.jpg" referrerpolicy="no-referrer">
+
+<strong>85156a9c-c404-46ba-9057-7910a4f2f9c9.jpg</strong> (190.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:21 上传
+
+通过使用一小组要控制的属性的文本描述，可以训练概念滑块以允许在推理过程中对生成的图像进行细粒度控制，通过缩放滑块的系数，用户可以控制编辑的强度
+
+<img src="https://img.saraba1st.com/forum/202311/24/012141wd6hvmkrrmnmdmwd.jpg" referrerpolicy="no-referrer">
+
+<strong>517280b0-90cb-46cf-afc6-e84d6fa54389.jpg</strong> (173.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:21 上传
+
+展示了如何使用不同的滑块控制图像的多个属性，可以注意到，由于低秩公式，参数权重轻，易于共享和作为插件
+
+<img src="https://img.saraba1st.com/forum/202311/24/012154dlhg315rll1m8g0z.jpg" referrerpolicy="no-referrer">
+
+<strong>17f45ded-e13a-4550-a5c9-2a33072ec107.jpg</strong> (238.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:21 上传
+
+展示了“宜人”、“黑暗”、“热带”和“冬季”的天气滑块，为了令人愉快，注意到模型有时会使天气明亮或添加节日装饰，对于热带地区，它添加了热带植物和树木，最后，在冬天，它增加了雪
+
+<img src="https://img.saraba1st.com/forum/202311/24/012158yjgiwgrjdg6d6gdz.jpg" referrerpolicy="no-referrer">
+
+<strong>0da2362d-42d4-4307-b9ce-846cb76e823f.jpg</strong> (133.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:21 上传
+
+展示了“皮克斯”、“真实细节”、“粘土”和“雕塑”的风格滑块
+————
+控制视觉概念
+
+可以使用视觉滑块来控制微妙的视觉概念； 论文展示了与定制方法的比较和一些定量评估
+
+<img src="https://img.saraba1st.com/forum/202311/24/012209tdwouj44yx943g2z.jpg" referrerpolicy="no-referrer">
+
+<strong>086a04a8-6ae6-4cb2-9ff7-4486f0ea52c8.jpg</strong> (111.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:22 上传
+
+可以为无法用语言描述的概念创建滑块，这些滑块由艺术家使用6-8对图像创建
+
+StyleGAN潜变量，尤其是stylespace潜变量，可以转移到稳定扩散，从styleGAN收集图像并在这些图像上训练滑块，发现扩散模型可以学习解开的样式空间神经元行为，使艺术家能够控制styleGAN中存在的细微差别属性
+
+<img src="https://img.saraba1st.com/forum/202311/24/012219zqjhq34u54pup3rl.jpg" referrerpolicy="no-referrer">
+
+<strong>d7a191cf-ae05-4467-9607-80bbe983f7e4.jpg</strong> (123.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:22 上传
+
+Stylespace潜变量可以从styleGAN转移到Stable Diffusion XL
+————
+组合多个滑块
+
+低秩滑块方向的一个关键优势是可组合性，用户可以组合多个滑块进行细致的控制，而不是一次仅限于一个概念，通过下载有趣的滑块集，用户可以同时调整多个旋钮来引导复杂的生成
+
+<img src="https://img.saraba1st.com/forum/202311/24/012233ptwwh8z3w0tbwbmu.jpg" referrerpolicy="no-referrer">
+
+<strong>1cc26662-c197-4a4d-a44e-e5c5de4a33a5.jpg</strong> (411.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:22 上传
+
+展示了混合“熟食”和“精致餐饮”的食物滑块来穿越这个2D概念空间，最有趣的是，该模型如何缩小“精致餐饮”的份量
+
+<img src="https://img.saraba1st.com/forum/202311/24/012238rl7w3pc33h6d7fuh.jpg" referrerpolicy="no-referrer">
+
+<strong>08a8cb4c-ddc7-42bb-a57f-4a1f11011259.jpg</strong> (119.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 01:22 上传
+
+定性地展示了逐步组合多个滑块直至一次最多50个滑块的效果，通过使用远远超过77个令牌(SDXL当前的上下文限制)来创建这50个滑块，这展示了本方法的强大功能，它允许进行超出仅通过基于提示的方法所能实现的控制
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 990#       发表于 2023-11-24 02:26
+
+MagicDance
+
+通过动作和面部表情转换生成逼真的人类舞蹈视频
+
+项目主页:https://boese0601.github.io/magicdance/
+
+github项目代码仓库:https://github.com/Boese0601/MagicDance
+
+在这项工作中，提出了MagicDance，一种基于扩散的模型，用于在具有挑战性的人类舞蹈视频上进行2D人体运动和面部表情转换
+
+具体来说，研究的目标是生成由新颖的姿态序列驱动的任何目标身份的人类舞蹈视频，同时保持人物不变，为此，提出了一种两阶段训练策略来解耦人类动作和外观(例如面部表情、肤色和着装)，包括外观控制块的预训练和在同一数据集的人类舞蹈姿态上对外观姿态联合控制块的微调
+
+新的设计能够实现强大的外观控制，上身、面部属性甚至背景在时间上保持一致，该模型还可以很好地泛化未见的人类身份和复杂的运动序列，而无需利用图像扩散模型的先验知识对具有不同人类属性的附加数据进行任何微调
+
+此外，所提出的模型易于使用，可以被视为Stable Diffusion的插件模块/扩展，还展示了该模型零样本2D动画生成的能力，不仅能够实现从一个身份到另一个身份的外观转移，而且还允许仅在给定姿态输入的情况下实现类似卡通的风格化，大量实验证明了本方法在TikTok数据集上的卓越性能
+————
+
+<img src="https://img.saraba1st.com/forum/202311/24/022252ndjdmwk2gxd8jsg2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022236.jpg</strong> (132.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:22 上传
+
+提出了MagicDance，一种新颖有效的方法，可以提供逼真的人类视频生成，从而实现生动的运动和面部表情转换，以及一致的真实自然场景的零样本生成，无需任何微调
+
+MagicDance可以精确地生成外观一致的结果，而原始的文本到图像模型(例如Stable Diffusion和ControlNet)很难准确地保持主体的身份信息，此外，提出的模块可以被视为原始文本到图像模型的扩展/插件，而无需修改其预训练的权重
+————
+
+<img src="https://img.saraba1st.com/forum/202311/24/022312gjof6l27lfk3l9jn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022301.jpg</strong> (103.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:23 上传
+
+MagicDance的工作流程总览图，用于通过动作和面部表情转换生成可控的人类舞蹈视频，外观控制模型是整个Stable Diffusion的UNet副本，使用相同的权重进行初始化，UNet在整个训练过程中都处于冻结状态
+
+(A)外观控制预训练期间，训练外观控制模型及其多源自注意力模块(Multi-Source Self-Attention Module)
+(B)外观姿态解耦控制期间，联合微调权重从A初始化的外观控制模型和姿势Controlnet，在这些步骤之后，冻结所有先前训练的模块并微调从AnimateDiff初始化的运动模块
+————
+1.人体运动和面部表情转换
+
+<img src="https://img.saraba1st.com/forum/202311/24/022333d860z66w58v0wjjg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022323.jpg</strong> (422.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:23 上传
+
+<img src="https://img.saraba1st.com/forum/202311/24/022354cghezhq2ezsmxqum.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022344.jpg</strong> (250.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:23 上传
+
+人体运动和面部表情转换的可视化，MagicDance能够在多种姿势骨架和人脸landmark输入的情况下生成生动逼真的动作和表情，同时准确地保持来自输入的参考图像的身份信息
+
+<img src="https://img.saraba1st.com/forum/202311/24/022424xwtnx6zkmfv93v6o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022400__01.jpg</strong> (216 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:24 上传
+
+视频结果(项目主页动图)
+————
+2.零样本动画化
+
+<img src="https://img.saraba1st.com/forum/202311/24/022501xkvbiavk6z6vrvyu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022430.jpg</strong> (451.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:25 上传
+
+<img src="https://img.saraba1st.com/forum/202311/24/022506rz4gziu4imllk8ai.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022438.jpg</strong> (152.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:25 上传
+
+零样本2D动画生成的可视化，MagicDance在接受真人舞蹈视频训练后，无需进一步微调，就可以从卡通风格的图像中提供精确身份信息的生成
+
+<img src="https://img.saraba1st.com/forum/202311/24/022512sthuucyc75pp5c5i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022450.jpg</strong> (205.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:25 上传
+
+视频结果(项目主页动图)
+————
+与近期作品的定性对比
+
+<img src="https://img.saraba1st.com/forum/202311/24/022543ch8bjy7v8b8j8vbr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022518.jpg</strong> (195.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:25 上传
+
+TPS、Disco和MagicDance之间的人类视频生成定性对比，以前的方法显然存在面部表情和人体姿势身份不一致的问题
+
+<img src="https://img.saraba1st.com/forum/202311/24/022549n4vz2j4d2rv77hm7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022526.jpg</strong> (184.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:25 上传
+
+视频对比
+————
+与近期作品的定量对比
+
+<img src="https://img.saraba1st.com/forum/202311/24/022634t07o2jej09o08z4d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-022625.jpg</strong> (94.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:26 上传
+
+MagicDance与最近的SOTA方法DreamPose和Disco的定量对比，↓表示越低越好，反之亦然，带*的方法直接使用目标图像作为输入，与OpenPose相比包含更多信息，†表示Disco在其他数据集上的预训练多于MagicDance，后者仅使用TikTok数据集中的335个视频序列进行预训练和微调，Face-Cos表示生成图像和基准真实图像之间面部区域的余弦相似度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 991#       发表于 2023-11-24 03:00
+
+GAIA
+
+通用人工智能助手的基准测试
+
+hugface排行榜:https://huggingface.co/gaia-benchmark
+
+hugface数据集:https://huggingface.co/gaia-benchmark
+
+GAIA，一个通用人工智能助理的基准测试，如果AI能够解决这个基准测试集，将代表人工智能研究的一个里程碑
+
+GAIA提出了需要一系列基本能力的现实世界问题，例如推理、多模态处理、网页浏览和熟练使用一般工具，GAIA问题在概念上对于人类来说很简单，但对于大多数先进的人工智能来说却具有挑战性：研究表明，人类受访者的得分为92%，而对于配备插件的GPT-4的得分仅为15%
+
+这种显著的表现差异与最近LLM在需要专业技能(例如法律或化学)的任务上优于多数人类的趋势形成鲜明对比，GAIA的理念背离了当前人工智能基准测试的趋势，即针对对人类来说更加困难的任务，研究组认为，通用人工智能(AGI)的出现取决于系统在此类问题上表现出与普通人相似的稳健性的能力
+
+使用GAIA方法，设计了466个问题及其答案，同时发布了这些问题的一部分，保留了其中300个问题的答案，以支持进行排行榜排名测试
+
+<img src="https://img.saraba1st.com/forum/202311/24/025933zg6me8qc86q0pzvt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-024611__01.jpg</strong> (442.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:59 上传
+
+GAIA问题示例，完成任务需要推理、多模态处理或工具使用熟练程度等基本能力，基准的答案是明确的，并且按照设计，不可能在训练数据的纯文本中找到答案，有些问题带有额外的证据，例如图像，反映真实的用例并允许更好地控制问题
+
+<img src="https://img.saraba1st.com/forum/202311/24/025942gxk2p2usxq0tccko.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-024755__01.jpg</strong> (274.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:59 上传
+
+为了回答GAIA，GPT4(这里配备了代码解释器)等人工智能助手需要完成几个步骤，可能需要使用工具或读取文件
+
+<img src="https://img.saraba1st.com/forum/202311/24/025956gkzzn2t0t0tn0dnq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-024802__01.jpg</strong> (109.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 02:59 上传
+
+左：每种能力至少需要几种能力才能解决问题的数量
+右：每个点对应一个GAIA问题，在给定位置，点的大小与问题数量成正比，并且仅显示问题数量最多的级别以方便阅读
+
+这两个图表都是基于人类标注者在回答问题时报告的信息，人工智能系统的处理方式可能会有所不同
+
+<img src="https://img.saraba1st.com/forum/202311/24/030003c1cv6dvm6ua317d1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-024809__01.jpg</strong> (125.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 03:00 上传
+
+每种方法和级别的分数和回答时间，正如正文中所述，GPT4+插件分数应该被视为预言机，因为其插件是根据问题人工手动选择的，而人工分数则是指标注者在验证问题时获得的分数
+
+<img src="https://img.saraba1st.com/forum/202311/24/030009punqz6tfu2yqul2q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-024815__01.jpg</strong> (64.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 03:00 上传
+
+多种LLM达到1级时的每种能力分数
+
+“多样化文件类型读取”和“多模态”的非工具模型的非零分是因为任务的解决方式与标注者的方式不同，用于网页浏览的非工具模型的非零分主要是由于正确记忆了完成中间步骤所需的信息
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 992#       发表于 2023-11-24 20:03
+
+Kandinsky Video
+
+文本到视频生成工作流程的高效架构方向
+
+项目主页:https://ai-forever.github.io/kandinsky-video/
+
+github项目主页:https://github.com/ai-forever/KandinskyVideo
+
+多媒体生成方法在人工智能研究中占据着重要的地位，其中文本到图像模型在过去几年中取得了高质量的结果，然而，现在的视频合成方法也在日渐发展，本文提出了一种基于文本到图像扩散模型的两阶段潜在扩散文本到视频生成架构(two-stage latent diffusion text-to-video generation architecture based on the text-to-image diffusion model)
+
+第一阶段涉及关键帧合成以描绘视频的故事情节，而第二阶段则致力于生成插值中间帧以使场景和对象的运动更平滑，比较了几种关键帧生成的时间调节方法，结果表明，在反映视频生成质量方面和人类偏好指标方面，使用时间层上的分离时间块更具有优势
+
+与其他掩码帧插值方法相比，本文插值模型的设计显著降低了计算成本，此外，还评估了基于MoVQ的视频解码方案的不同配置，以提高一致性并获得更高的PSNR、SSIM、MSE与LPIPS分数
+
+最后，将本文方法与现有的解决方案进行了对比，并在总体得分中获得了top-2，在开源解决方案中获得了top-1，CLIPSIM分数0.2976和FVD分数433.054
+————
+
+<img src="https://img.saraba1st.com/forum/202311/24/200106s73xje37hs660988.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>title.jpeg</strong> (329.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 20:01 上传
+
+Kandinsky Video是一种文本到视频生成模型，基于FusionFrames架构，由两个主要阶段组成，关键帧生成和插值，本方法的时间调节方案使之能够生成具有高质量外观、平滑而动态的视频
+————
+工作流程总览
+
+<img src="https://img.saraba1st.com/forum/202311/24/200119kkk55655xws5h5dt.jpg" referrerpolicy="no-referrer">
+
+<strong>pipeline.jpg</strong> (150.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 20:01 上传
+
+编码后的文本提示进入带有时间层或块的U-Net关键帧生成模型，然后将采样的潜在关键帧发送到潜在插值模型，以预测两个关键帧之间的三个插值帧，使用时间MoVQ-GAN解码器来获得最终的视频结果
+————
+通过时间调节生成关键帧
+
+<img src="https://img.saraba1st.com/forum/202311/24/200132edd9zw69weagwgze.jpg" referrerpolicy="no-referrer">
+
+<strong>temporal_layers_blocks.jpg</strong> (405.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 20:01 上传
+
+研究检查了T2I U-Net预训练架构中使用的以下两种时间组件方法
+
+左图:将空间层和时间层混合在一个块中的传统方法
+中间:分配分离时间块的方法
+
+所有以灰色表示的层均未在T2V架构中进行过训练，而是使用T2I模型的权重进行初始化，所有层左上角的NA和N分别对应于有激活和无激活的预归一化层的存在
+
+对于不同类型的块，实现了不同类型的时间注意力和时间卷积层(左图)，还实现了不同类型的时间调节，其中之一是当像素在类型的不同时刻(1D层)中仅看到其自身值时的简单调节，在3D层中，像素也可以在不同时刻看到其邻近的值(右图)
+————
+视频帧插值
+
+<img src="https://img.saraba1st.com/forum/202311/24/200201vtz02i9rhunzhon0.jpg" referrerpolicy="no-referrer">
+
+<strong>interpolation_ours.jpg</strong> (311.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 20:02 上传
+
+T2I架构的主要变化包括:
+(i)输入卷积现在接受三个噪声潜在输入(插值帧)和两个条件潜在输入(关键帧)
+(ii)输出卷积预测三个去噪潜变量
+(iii)在每个空间卷积之后引入了时间卷积
+————
+时间调节的结果
+
+<img src="https://img.saraba1st.com/forum/202311/24/200215n4ujv4v4cvpmub8v.jpg" referrerpolicy="no-referrer">
+
+<strong>panda_generations.jpg</strong> (431.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 20:02 上传
+
+提出了基于分离时间块的时间调节方法，将之与之前作品中常用的三种时间块与时间层进行了比较，并在帧质量、文本对齐和时间一致性方面获得了优势
+————
+对比结果
+
+<img src="https://img.saraba1st.com/forum/202311/24/200247ctpotmou393q6qpm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-200235.jpg</strong> (149.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 20:02 上传
+
+————
+其他结果
+
+<img src="https://img.saraba1st.com/forum/202311/24/200314ezncegsm9qevqbue.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-200302.jpg</strong> (446.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 20:03 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 993#       发表于 2023-11-24 21:16
+
+DINOv
+
+视觉上下文提示(Visual In-Context Prompting)
+
+github项目主页:https://github.com/UX-Decoder/DINOv
+
+大型语言模型(LLM)中的上下文提示已成为提高其零样本能力的流行方法，但这种思路在视觉领域的探索较少，现有的视觉提示方法侧重于引用分割(referring segmentation)来分割最相关的对象，无法解决许多通用视觉任务，例如开放集分割和检测
+
+在本文中，为这两项任务引入了一个通用的视觉上下文提示框架，特别是，通过建立在编码器-解码器架构之上，开发了一种多功能提示编码器来支持各种提示，如笔划、框和点，进一步增强了它以将任意数量的参考图像分割作为上下文
+
+广泛的实验探索表明，所提出的视觉上下文提示引发了非凡的引用和通用分割能力以支持引用和检测，为封闭集域内数据集(close-set in-domain datasets)带来了有竞争力的性能，并在许多开放集分割数据集上显示出了有效的结果，通过在COCO和SA-1B上联合训练，模型在COCO上达到57.7 PQ，在ADE20K上达到23.2PQ
+
+<img src="https://img.saraba1st.com/forum/202311/24/211210ebxhpiglm7gbsppe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203319__01.jpg</strong> (657.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:12 上传
+
+DINOv支持通用和引用分割，可以将多个或单个对象与用户输入的视觉提示相关联，用户可以输入一个或多个上下文视觉提示(涂鸦、掩码、框等)以提高分割性能
+
+<img src="https://img.saraba1st.com/forum/202311/24/211216ekcgykk76hqhgwjx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203326__01.jpg</strong> (164.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:12 上传
+
+与相关作品的对比
+
+通用(Generic):分割与用户提示匹配的相同语义概念的所有对象…
+参考(Refer):根据用户输入的视觉提示分割特定对象
+图像提示(Image prompt)：根据提示裁剪图像区域
+(单)视觉提示(single Visual prompt):一个用于分割的图像提示示例
+上下文提示(In- context prompt):一个或多个图像提示示例，可以执行单图像和跨图像视觉提示任务，并支持引用和通用分割
+
+<img src="https://img.saraba1st.com/forum/202311/24/211227rngh4i0zr6rud29k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203331__01.jpg</strong> (283.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:12 上传
+
+DINOv是一个通用分割框架，可以进行通用分割和参考图像分割，视觉编码器用于提取图像特征，(B)为视觉通用分割损失的图示，在示例中，有6个视觉提示，是从3个类别的6个掩码中采样的，来自同一类实例的视觉提示被平均作为类嵌入，匹配矩阵的每一列都是一个3维one-hot向量，它是实例的one-hot类标签，(C)为视觉参考分割损失的图示，每个视觉提示都被分类为6个实例之一
+
+<img src="https://img.saraba1st.com/forum/202311/24/211235uzhi7khsfll7hdff.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203338__01.jpg</strong> (184.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:12 上传
+
+通用和引用分割任务的DINOv查询形式
+
+<img src="https://img.saraba1st.com/forum/202311/24/211243mga6sjsuaadwjdd5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203343__01.jpg</strong> (44.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:12 上传
+
+提示编码器对参考图像的视觉提示进行编码，使用从视觉编码器小特征图到大特征图的三个屏蔽交叉注意力(three masked cross-attention)
+
+<img src="https://img.saraba1st.com/forum/202311/24/211255n6mul6lj3uzrhe5p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203353__01.jpg</strong> (259.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:12 上传
+
+一套权重，用于多个数据集上的通用视觉上下文分割，模型在COCO和SA-1B数据集上进行训练
+
+“-”表示模型没有报告的数字或不具备执行特定任务的能力
+⋆表示是测试集结果
+†表示FC-CLIP采用冻结的CLIP进行开放集(文本)，通过提示带有CLIP视觉特征的FC-CLIP来模拟视觉推广(visual promoting)
+#代表FC-CLIP和ODISE依赖于冻结的CLIP和Stable Diffusion知识
+Mask DINO是进行对比的基准
+
+<img src="https://img.saraba1st.com/forum/202311/24/211400wxvkgavzoaknxpoy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-211343.jpg</strong> (62.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:14 上传
+
+OdinW基准上的一套权重，为简单起见，报告了35个数据集的平均AP和中值AP
+
+<img src="https://img.saraba1st.com/forum/202311/24/211448pbykel9l2ttqqorn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-211433.jpg</strong> (151.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:14 上传
+
+零样本视频对象分割，无需使用视频或成对图像数据进行训练，本文方法就能够以零样本的方式进行视频对象分割
+
+<img src="https://img.saraba1st.com/forum/202311/24/211530ci6z016o6ddm15sc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203416__01.jpg</strong> (55.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:15 上传
+
+使用差异查询来进行上下文引用和通用分割的消融实验，默认情况下，同时使用通用查询和交互式查询，通过一次删除一种类型的查询以降低其有效性
+
+<img src="https://img.saraba1st.com/forum/202311/24/211540izpkppdmypxuinup.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203416__02.jpg</strong> (45.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:15 上传
+
+在Swin-T模型上使用不同方式对视觉提示进行编码的消融实验，在相同的设置下，通过更改提示编码方法，并使用预先训练的CLIP对图像中的提示对象进行裁剪和编码
+
+<img src="https://img.saraba1st.com/forum/202311/24/211601evvjkkbznd6kjgjb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203421__01.jpg</strong> (49.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:16 上传
+
+统一任务和数据的有效性的消融实验
+
+<img src="https://img.saraba1st.com/forum/202311/24/211609sve1on1l6bn1enql.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203416__03.jpg</strong> (70.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:16 上传
+
+训练中图像批大小采样参数的消融实验
+
+<img src="https://img.saraba1st.com/forum/202311/24/211615rq8eigiv85fz8f85.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203428__01.jpg</strong> (360.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:16 上传
+
+DINOv可以通过给出视觉提示来进行开放集分割
+
+<img src="https://img.saraba1st.com/forum/202311/24/211620n5o8e05yujtekwum.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231124-203431__01.jpg</strong> (75.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 21:16 上传
+
+不同任务的DINOv查询形式
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 994#       发表于 2023-11-26 01:15
+
+Nanbeige 16B
+
+Nanbeige-16B（南北阁-16B）是南北阁大模型实验室研发的160亿参数规模的大语言模型
+
+github项目主页:https://github.com/Nanbeige/Nanbeige
+
+项目权重:https://huggingface.co/Nanbeige
+
+Nanbeige-16B（南北阁-16B）是南北阁大模型实验室研发的160亿参数规模的大语言模型，采用了2.5T Tokens进行预训练，数据包含大量互联网高质量语料、各类书籍、代码等领域脱敏文本，在各个权威测评数据集上都取得了不错的效果。本次发布包含有 Base、Chat 以及扩展上下文长度的 Base-32k、Chat-32k 版本
+
+Base-32k 版本基于Nanbeige-16B-Base模型，采用YaRN插值方法对位置编码进行修改，并以32k为最大长度进行了20B Tokens的中文、英文、代码语料的全参数增量预训练
+
+Chat 版本和 Chat-32k 版本分别基于Nanbeige-16B-Base模型和Nanbeige-16B-Base-32k模型，经过了大量人类对齐训练，能够更好、更安全地回复用户的问题
+
+github说明页:
+
+<img src="https://img.saraba1st.com/forum/202311/26/011537vddufqzxxyvp07xd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231126-011407.jpg</strong> (573.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-26 01:15 上传
+
+<img src="https://img.saraba1st.com/forum/202311/26/011537uqzqk5ykxeascl33.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231126-011421.jpg</strong> (328.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-26 01:15 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 995#       发表于 2023-11-27 12:59
+
+SEGIC
+
+解放上下文分割(In-Context Segmentation)的新兴对应关系(Emergent Correspondence)
+
+github项目主页:https://github.com/MengLcool/SEGIC
+
+上下文分割的目标旨在使用一些标记(labeled)的示例图像(称为“上下文示例”)来分割新图像，并探索示例与目标之间的内容相似性，由此构建的模型可以无缝转移推广到新的分割任务上，与传统的流程​​相比，显著降低了标签和训练成本
+
+然而，由于其元学习(meta-learning)的性质，上下文分割比经典分割方法更具有挑战性，要求模型能够学习基于少数样本的分割规则，而不仅仅只是分割
+
+与之前的专案或者非端到端设计工作不同，本文提出了SEGIC，这是一种基于单一视觉基础模型(VFM/vision foundation model)构建的端到端上下文框架，特别是SEGIC能够利用VFM中的新兴对应关系来捕获目标图像和上下文样本之间的密集关联，因此，来自上下文样本的信息随后被提取为三种类型的指令，即几何指令(geometric instructions)、视觉指令(visual instructions)和元指令(meta instructions)，作为最终掩码预测的显式条件
+
+SEGIC是一种简单而有效的方法，可以在单样本分割基准上达到SOTA性能，而且值得注意的是，SEGIC还可以轻松的推广到多种不同的任务上，包括视频对象分割和开放词汇分割
+
+<img src="https://img.saraba1st.com/forum/202311/27/125842yts5e5ws224n182d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-123822__01.jpg</strong> (532.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 12:58 上传
+
+SEGIC的定性结果，其可以根据一些标记好的示例图像来分割目标图像，这被称之为“上下文分割”，SEGIC通过不同类型的上下文样本来统一各种分割任务，包括每个样本用一个掩码标注的样本(单样本分割)、每个样本用几个掩码标注的样本(视频对象分割)以及标注样本的组合(语义分割)
+
+<img src="https://img.saraba1st.com/forum/202311/27/125846yqhm2j2jdkh2w7hw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-123843__01.jpg</strong> (296.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 12:58 上传
+
+架构概览图，SEGIC构建在冻结的视觉基础模型之上，总共由四个阶段组成:1.特征提取，2.关联发现，3.上下文指令提取，4.掩码解码
+
+<img src="https://img.saraba1st.com/forum/202311/27/125850jffoa6z1yqjf4iyb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-123854__01.jpg</strong> (377.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 12:58 上传
+
+几个分割基准测试的主要结果
+
+†表示冻结的图像编码器，‡表示免训练方法并使用SAM，*表示需要额外的微调，#表示图像中的类在推理过程中是已知的，n/a表示模型不具备执行该任务的能力，-表示没有能报告的数字
+
+<img src="https://img.saraba1st.com/forum/202311/27/125855c3chcok6z8bx7dix.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-123900__01.jpg</strong> (71.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 12:58 上传
+
+与单样本COCO-20i的对比，‡表示该模型是在排除COCO的数据集上联合训练的
+
+<img src="https://img.saraba1st.com/forum/202311/27/125900otnqn7afl9syyqaq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-123905__01.jpg</strong> (70.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 12:59 上传
+
+语义对应和分割的关联表现，直接使用密集对应进行零样本PCK
+
+<img src="https://img.saraba1st.com/forum/202311/27/125904c94h6jsqf4eh60t4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-123911__01.jpg</strong> (400.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 12:59 上传
+
+消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 996#       发表于 2023-11-27 20:53
+
+charting-new-territories
+
+绘制新领域：探索多模态LLM的地理和地理空间能力
+
+https://github.com/jonathan-roberts1/charting-new-territories
+
+多模态大语言模型(MLLM)在广泛的任务中表现出了卓越的能力，但它们在地理和地理空间领域方面的知识和能力仍有待探索，取决于它们对于导航(navigation)、环境研究(environmental research)、城市发展(urban development)和灾难响应(disaster response)以及其他领域的多种任务都具有的潜在益处，进行了一系列实验探索MLLM在这些领域内的各种视觉能力，其中特别关注了前沿模型GPT-4V，并将其性能与开源模型进行对比基准测试
+
+本文使用了由一系列的多种视觉任务组成的小规模地理基准测试来挑战这些模型，包含各种复杂范围内的能力，该分析不仅揭示了这些模型的优点(包括它们超越人类的应用实例)，还揭示了它们的不足之处，从而对它们在地理领域的能力提供了平衡的看法，为了能够对未来模型进行对比和评估，本文的基准测试将公开发布
+
+为了探测MLLM的知识，进行了一系列视觉实验，将每个图像与给定的提示一起传递给MLLM作为定位，正如其响应所强调的那样，发现GPT-4V能够提取和推理此类图像中的细粒度细节，同时GPT-4V在测试国家的基准上也取得了令人鼓舞的准确性，它优于其他强大的MLLM基线
+
+<img src="https://img.saraba1st.com/forum/202311/27/205113lp0hbpyg7hzph4hh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201720__01.jpg</strong> (56.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:51 上传
+
+SATIN子集上的零样本卫星图像分类，对于LLaVA-1.5，报告了5个子集的µ±σ
+
+<img src="https://img.saraba1st.com/forum/202311/27/205125xed0ttedt6ky03y5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201720__02.jpg</strong> (101.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:51 上传
+
+定位:地图→现实世界
+平均距离误差是在每个裁剪洲地图的10个点上计算的
+
+<img src="https://img.saraba1st.com/forum/202311/27/205133iv2h6ts22oxxkhon.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201730__01.jpg</strong> (492.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:51 上传
+
+卫星图像变化检测，测试了GPT-4V中的四季图像时间序列中季节变化的能力，在此示例中，模型能够通过获取农作物颜色和雪的存在等次要细节，以正确估计季节
+
+<img src="https://img.saraba1st.com/forum/202311/27/205140rc41224ga1g5z152.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201737__01.jpg</strong> (159.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:51 上传
+
+使用GPT-4V进行分割，定性展示了LoveDA卫星图像的分割和定位能力，边界框适用于城市地区(红色)和道路(绿色)
+
+<img src="https://img.saraba1st.com/forum/202311/27/205146plzz2736lx7z7wch.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201745__01.jpg</strong> (221.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:51 上传
+
+城市地区(红色)、道路(黄色)和水体(蓝色)的边界框
+
+<img src="https://img.saraba1st.com/forum/202311/27/205210pmc140yq9mscm1l4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201745__02.jpg</strong> (201.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:52 上传
+
+计算小物体非常具有挑战性
+
+<img src="https://img.saraba1st.com/forum/202311/27/205259vw0vhthvztqtcvcb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201752__01.jpg</strong> (219.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:52 上传
+
+左方：所有三个识别任务的定量结果
+右方：为每个任务选择的示例，表明各个模型的成功和失败(来自OpenStreetMap的地图数据)
+
+<img src="https://img.saraba1st.com/forum/202311/27/205304dl3cbcgi04il4cuh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201759__01.jpg</strong> (194.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:53 上传
+
+定位：地图→现实世界
+预测的纬度和经度位置，[左]欧洲(Miller)，[右]非洲(PlateCarree)
+
+<img src="https://img.saraba1st.com/forum/202311/27/205308t8utp8ti3ip1m8fa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201759__02.jpg</strong> (112.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:53 上传
+
+在常规地图上识别多个状态是很困难的，并且翻转地图后会有非常明显的失败案例
+
+<img src="https://img.saraba1st.com/forum/202311/27/205316tgz8eoz418xhqafa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201811__01.jpg</strong> (596.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:53 上传
+
+定位：现实世界→地图
+使用GPT-4V在覆盖有网格的地图上标注欧洲首都
+有两种设置：图像[左]，其中地图网格传递给模型；无图像[右]，仅传递地图的简短描述
+
+<img src="https://img.saraba1st.com/forum/202311/27/205320yu3330os4x4p54o0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231127-201823__01.jpg</strong> (230.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 20:53 上传
+
+国旗识别
+(a)展示了在完整网格用例下用于旗帜识别的结构化输入，以及GPT-4V的响应，其中旗帜下方的国家名称添加到后面并进行颜色编码以指示正确和不正确的识别
+(b)描述了不同模型识别旗帜的准确性，以人类平均值作为参考，人类表现数据来自Sporcle，可能无法反映精确的准确性
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 997#       发表于 2023-11-28 05:03
+
+GaussianEditor
+
+快捷且可控的Gaussian Splatting 3D内容编辑
+
+项目主页:https://buaacyw.github.io/gaussian-editor/
+
+github项目代码仓库:https://github.com/buaacyw/GaussianEditor
+
+3D内容编辑在诸如游戏和虚拟现实等许多领域发挥着至关重要的作用，传统的3D编辑方法依赖于网格和点云等表示形式，并且通常无法真实地描绘复杂的场景，另一方面，基于隐式3D表征的方法，例如神经辐射场(NeRF)可以有效渲染复杂场景，但目前处理速度慢且对特定场景区域的控制有限
+
+为了应对这些挑战，本文提出了GaussianEditor，一种基于高斯泼溅(GS/Gaussian Splatting/一种新颖的3D表示形式)的创新且高效的3D编辑算法
+
+GaussianEditor通过提出的高斯语义跟踪(Gaussian semantic tracing)增强了编辑的精度和控制程度，该跟踪在整个训练过程中跟踪需要编辑的目标，此外，还提出了分层高斯泼溅(HGS/Hierarchical Gaussian splatting)，以在二维扩散模型的随机生成指导下实现稳定且精细的结果，还开发了有效的对象移除和集成(object removal and integration)编辑策略，这些对现有方法来说都是具有挑战性的任务
+
+综合实验证明了GaussianEditor卓越的控制能力、效果和快速性能，标志着3D编辑领域的重大进步
+
+<img src="https://img.saraba1st.com/forum/202311/28/050142k4obbbxox2tgmgne.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-035949__01.jpg</strong> (791.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 05:01 上传
+
+GaussianEditor的结果，本方法可以提供快速、可控且多功能的3D编辑，一次编辑仅需5-10分钟，请注意图中的精确编辑控制，仅修改所需的部分，以图中第一行的“Make the grass on fire”为例，场景中的其他物体(例如长凳和树)则不受影响
+
+<img src="https://img.saraba1st.com/forum/202311/28/050151ell6kuvznujuwukn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-035959__01.jpg</strong> (106.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 05:01 上传
+
+高斯语义追踪的插图，右图中的红色掩码代表目标高斯的投影，值得注意的是，该预测在整个训练过程中动态变化，确保其在整个训练期间的有效性
+
+<img src="https://img.saraba1st.com/forum/202311/28/050155foac6av29v79to5a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-035959__02.jpg</strong> (366.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 05:01 上传
+
+用于对象合并的3D重绘，GaussianEditor能够在场景中的指定位置添加对象，给定2D重绘掩码(mask)和来自单个视图的文本提示，整个过程仅需五分钟
+
+<img src="https://img.saraba1st.com/forum/202311/28/050159qu99gkuu0lym3vug.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-040009__01.jpg</strong> (335.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 05:01 上传
+
+用于移除物体的3D重绘，通常，基于高斯语义掩码去除目标对象会在目标对象和场景之间的界面处产生伪影，为了解决这个问题，可以使用2D重绘方法生成修复图像，采用平均方误差(MSE/Mean Squared Error)损失进行监督，整个过程仅需两分钟
+
+<img src="https://img.saraba1st.com/forum/202311/28/050205jrfp81zim44qie1r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-040021__01.jpg</strong> (758.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 05:02 上传
+
+定性对比，最重要的是要注对编辑区域(人的整个身体)保持控制的程度，与整​​个场景发生变化的Instruct-Nerf2Nerf相比，背景和其他非目标区域基本上不受影响，GaussianEditor-DDS和GaussianEditor-iN2N表示分别用delta去噪分数和Instruct-Nerf2Nerf作为编辑指导
+
+<img src="https://img.saraba1st.com/forum/202311/28/050331eckzh98trmmtmdc9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-040038__01.jpg</strong> (477.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 05:03 上传
+
+GaussianEditor的广泛应用结果，本方法能够执行多种编辑任务，包括面部和场景编辑，在面部编辑中，使用高斯语义追踪将编辑区域限制在面部，确保其他不需要的区域保持不变，最左边的列显示原始视图，而右边的三列为编辑后的图像
+
+<img src="https://img.saraba1st.com/forum/202311/28/050225fhdcvv0hhn3w6g3k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-040055__01.jpg</strong> (475.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 05:02 上传
+
+分层高斯泼溅的消融实验，提示文本为：Make the grass on fire
+即使通过提示指定编辑区域，像Instruct-Pix2Pix这样的生成方法也倾向于编辑整个2D图像，如果没有HGS，高斯模型往往会通过在整个场景中扩散和致密来遵循这种整体图像编辑，从而导致图像无法控制的致密和模糊，然而，有了 HGS，这种扩散就能被有效地抑制
+
+<img src="https://img.saraba1st.com/forum/202311/28/050219pn4kn7z708zchk38.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-040103__01.jpg</strong> (38.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 05:02 上传
+
+定量对比，Gaussian Editor-iN2N在用户研究评估和CLIP定向相似性(CLIP Directional Similarity metrics)指标方面均表现出色
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 998#       发表于 2023-11-28 18:50
+
+ParaDiffusion
+
+使用信息增强(Information-Enriched)的扩散模型进行段落到图像(Paragraph-to-Image)生成
+
+项目主页:https://weijiawu.github.io/ParaDiffusionPage/
+
+github项目主页:https://github.com/weijiawu/ParaDiffusion
+
+文本到图像(T2I/Text-to-image)模型最近经历了急速的发展，在保真度和文本对齐能力方面取得了惊人的性能，然而，对于很长的段落(最多可至512个单词)，这些生成模型仍然难以实现和文本强对齐，并且无法生成描述复杂的场景图像
+
+在本文中，介绍了一种用于段落到图像生成任务的信息增强的扩散模型，称为ParaDiffusion，它深入研究了大型语言模型的广泛语义理解能力到图像生成任务的迁移，具体来说，其核心是使用大型语言模型(例如Llama V2)对长式文本(long-form)进行编码，然后使用LORA进行微调，以对齐生成任务中的文本图像特征空间
+
+为了促进长文本语义对齐的训练，还策划构造了一个高质量的段落图像对数据集，即ParaImage，该数据集包含少量的高质量、精心标注的数据，以及使用视觉语言模型生成的包含长文本描述的大规模合成数据集
+
+实验表明，ParaDiffusion在ViLG-300和ParaPrompts上的表现优于SOTA系列模型(SD XL、DeepFloyd IF等)，在视觉吸引力和文本忠实度方面分别实现了高达15%和45%的人类投票率提升，该代码和数据集将被发布，以促进研究社区对长文本对齐的研究
+
+<img src="https://img.saraba1st.com/forum/202311/28/184838zgg5ylgcyefwpzt5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181512__01.jpg</strong> (816.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:48 上传
+
+ParaDiffusion中的段落图像对齐示例，凭借LLM强大的语义理解能力，ParaDiffusion能够生成高度美观且复杂的图像，同时很好的与长文本内容对齐
+
+<img src="https://img.saraba1st.com/forum/202311/28/184844m1xgo1mzfrykrmyx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181632__01.jpg</strong> (278.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:48 上传
+
+本方法的工作流程，ParaDiffusion的训练流程主要包括三个阶段:
+1.预训练基于3亿个样本，以获取通用的文本图像知识
+2.使用数百万数据同时微调LLM以及进行扩散模型的段落图像对齐
+3.使用精选的高质量标注数据(即ParaImage-Small)进行质量调整
+
+<img src="https://img.saraba1st.com/forum/202311/28/184851s8eeycl4l84rchke.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181639__01.jpg</strong> (640.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:48 上传
+
+所提案的ParaImage数据集的示例:
+a.带有合成字幕说明(generative captions)的高质量图像(ParaImage-Big)主要用于第二阶段的段落图像对齐学习
+b.带有手动标注长描述的美学图像(ParaImage-Small)主要用于第3阶段的质量调整
+
+<img src="https://img.saraba1st.com/forum/202311/28/184857iodtmu9oii9dfoxl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181650__01.jpg</strong> (45.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:48 上传
+
+数据统计对比
+
+<img src="https://img.saraba1st.com/forum/202311/28/184904anktoboon96g9k9c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181650__02.jpg</strong> (119.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+字幕说明长度的分布，所提出的数据集(ParaImage)的文本描述长度远远超过了当前可用的公共数据集的文本描述
+
+<img src="https://img.saraba1st.com/forum/202311/28/184909f1mz0tzxt3m4km0z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181650__03.jpg</strong> (85.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+不同评估数据集的字幕说明长度分布， ParaPrompts数据集提供了大量的长文本描述
+
+<img src="https://img.saraba1st.com/forum/202311/28/184914jx0oluuuaq5c055a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181650__04.jpg</strong> (59.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+ParaPrompts概念的分布，其中提示涵盖了人类相关活动中的常见概念
+
+<img src="https://img.saraba1st.com/forum/202311/28/184919btc71aty7rwo373w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181659__01.jpg</strong> (139.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+使用零样本FID-30K在MS-COCO 256 × 256数据集上的性能对比
+‘#Params’指的是Unet的参数
+
+<img src="https://img.saraba1st.com/forum/202311/28/184930ph2bxn15nw5zzhkr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181659__02.jpg</strong> (76.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+ViLG-300的300条提示的用户研究，“Tie”表示四个模型的图像质量相似
+
+<img src="https://img.saraba1st.com/forum/202311/28/184934e039i95nhxz9zo79.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181659__03.jpg</strong> (71.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+ParaPrompts的400个提示的用户研究，当闭源模型的结果不可用或API调用失败时，只选择开源模型进行对比
+
+<img src="https://img.saraba1st.com/forum/202311/28/184940h1o516yg7j5licwt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181709__01.jpg</strong> (759.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+可视化对比，ParaDiffusion在长文本对齐方面表现出非凡的优越性
+
+<img src="https://img.saraba1st.com/forum/202311/28/184947kpt4luujx0pux1up.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181715__01.jpg</strong> (174.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+消融实验
+
+<img src="https://img.saraba1st.com/forum/202311/28/184952rbonbbubi43gzny8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181730__01.jpg</strong> (650.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+来自ParaDiffusion的更多以人为中心的可视化
+
+<img src="https://img.saraba1st.com/forum/202311/28/184956aob0soc71p7qfbha.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181819__01.jpg</strong> (673.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:49 上传
+
+来自ParaDiffusion的更多以风景为中心的可视化
+
+<img src="https://img.saraba1st.com/forum/202311/28/185004j3lzvhljo400xccg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181837__01.jpg</strong> (155.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:50 上传
+
+ParaDiffusion的糟糕案例，ParaDiffusion仍然有针对进行优化的区域
+
+<img src="https://img.saraba1st.com/forum/202311/28/185021p87883s333llu7l8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181837__02.jpg</strong> (30.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:50 上传
+
+PartiPrompts的1600个提示的用户研究
+
+<img src="https://img.saraba1st.com/forum/202311/28/185025g9l5hs2zly9y2m7y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181845__01.jpg</strong> (516.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:50 上传
+
+ParaPrompts-400上的可视化对比，ParaDiffusion在长文本对齐方面展示了显著的优势
+
+<img src="https://img.saraba1st.com/forum/202311/28/185030ltcptanz6ct681yc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-181903__01.jpg</strong> (227.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 18:50 上传
+
+视觉吸引力和文本忠实度之间存在冲突的风险，包含以下两个见解:
+1.仅仅扩展当前模型(SD XL、DeepFloyd-IF)的令牌数量并不能产生令人满意的性能
+2.随着输入token数量的增加，所有模型的视觉吸引力都会出现一定程度的下降
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 999#       发表于 2023-11-28 21:59
+
+ 本帖最后由 Machinery 于 2023-11-28 22:02 编辑 
+
+PromptSR
+
+使用文本提示扩散进行图像超分辨率
+
+github项目主页:https://github.com/zhengchen1999/PromptSR
+
+通常的图像超分辨率(SR/Image super-resolution)方法一般是对退化(degradation)进行建模，以提高复杂和未知退化场景中的重建精度，然而，从低分辨率图像中提取退化信息非常具有挑战性，这限制了模型的性能
+
+为了提高图像超分辨率性能，一种可行的方法是引入额外的先验(introduce additional priors)，受到多模态方法和文本提示图像处理进步的启发，可以将文本提示引入图像超分辨率以提供退化先验
+
+具体来说，首先设计一个文本图像生成工作流程，通过文本退化表征和退化模型将文本集成到超分辨率数据集中，文本表征采用基于数据装箱法(binning method)离散化地抽象描述退化，这种表征方法还可以保持语言的灵活性，同时，提出了PromptSR来实现文本提示超分辨率，PromptSR采用扩散模型和预训练语言模型(例如T5和CLIP)，在生成的文本图像数据集上训练模型
+
+大量实验表明，将文本提示引入图像超分辨率后，可以在合成图像和真实图像上产生出色的超分辨率效果
+
+<img src="https://img.saraba1st.com/forum/202311/28/215700zuu6vzflesqfy4yz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203034.jpg</strong> (129.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:57 上传
+
+视觉对比(×4)，LR图像会经历复杂且未知的退化(例如模糊、噪声和下采样)，通过在SR任务中引入文本提示来提供退化先验，可以有效提高重建质量
+
+<img src="https://img.saraba1st.com/forum/202311/28/215709cl33v7q39z6qv8ke.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203124__01.jpg</strong> (364.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:57 上传
+
+文本图像生成工作流程的插图
+(a)工作流程由两部分组成:退化模型(顶部)和文本表征(底部)，退化模型包括五个步骤，其中“Comp”表示压缩操作，文本表征通过基于数据装箱技术的离散化方式描述每个降级操作(例如，噪声操作的[medium noise])，整体文本表征是所有描述的组合
+(b)文本图像数据集的示例
+
+<img src="https://img.saraba1st.com/forum/202311/28/215718pj2fsy831y3b893i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203150__01.jpg</strong> (330.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:57 上传
+
+PromptSR的整体架构，包括一个去噪网络(DN/denoising network)和一个预训练的文本编码器，文本编码器的权重在训练期间被冻结，首先通过双三次插值(bicubic interpolation)将LR图像x上采样到目标HR分辨率，然后与噪声图像yt (t ∈[1, T])连接作为DN的输入，文本提示c由文本编码器转换为嵌入，嵌入通过交叉注意力(CA/cross-attention)模块注入到DN中，在CA模块中，DN的中间特征被转换为查询(Q/Query)矩阵，而文本嵌入被转换为键(K/Key)和值(V/Value)矩阵
+
+<img src="https://img.saraba1st.com/forum/202311/28/215724kvu4rp7v3vrmt3uj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203203__01__01.jpg</strong> (84.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:57 上传
+
+对文本提示的消融实验，在ControlNet和PromptSR上进行了实验，用以估计消除特定网络设计的影响，对于没有文本提示的模型，应用空字符串作为输入提示
+
+<img src="https://img.saraba1st.com/forum/202311/28/215832rl9u1l5dh4yuglgl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203203__01.jpg</strong> (134.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:58 上传
+
+不同提示的视觉对比，模板提示为:[light blur, unchange, light noise, light compression, downsample]，下划线部分表示被替换的内容
+
+<img src="https://img.saraba1st.com/forum/202311/28/215835dw7laqa0dllad74g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203203__02.jpg</strong> (72.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:58 上传
+
+对于文本内容的消融实验
+Caption：由BLIP生成的整体图像内容的描述…
+Degradation(本文)：退化过程的描述
+Both：两种描述的组合，格式为 [Caption: content description; Degradation: degradation description]
+
+<img src="https://img.saraba1st.com/forum/202311/28/215857h3u78juvdrrcub6l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203203__03.jpg</strong> (72.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:58 上传
+
+对于预训练文本编码器的消融实验，在PromptSR中采用不同的预训练语言模型作为文本编码器，Params:每个文本编码器的参数
+
+<img src="https://img.saraba1st.com/forum/202311/28/215904igdsc2k1jkgkks29.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203215__01.jpg</strong> (438.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:59 上传
+
+合成数据集的定量对比(×4)，最好和第二好的结果用红色和蓝色着色
+
+<img src="https://img.saraba1st.com/forum/202311/28/215909vhjp7zvdzpb9ck7v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203221__01.jpg</strong> (409.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:59 上传
+
+合成数据集的视觉对比(×4)，本文方法可以以高真实和保真度恢复图像
+
+<img src="https://img.saraba1st.com/forum/202311/28/215913kecnznkzcn1zcvyl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203234__01.jpg</strong> (98.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:59 上传
+
+真实世界数据集的定量对比(×4)
+
+<img src="https://img.saraba1st.com/forum/202311/28/215917qfw6cmscmd006w68.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231128-203234__02.jpg</strong> (316.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 21:59 上传
+
+真实世界数据集的视觉对比(×4)，本文方法可以生成更真实的图像
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1000#       发表于 2023-11-29 02:28
+
+YUAN 2.0
+
+具有基于局部过滤的注意力(Localized Filtering-based Attention)的大型语言模型
+
+github项目主页:https://github.com/IEIT-Yuan/Yuan-2.0
+
+在这项工作中，引入了基于局部过滤的注意力(LFA/Localized Filtering-based Attention)，将自然语言局部依赖性的先验知识纳入到注意力中，基于LFA，开发并发布了参数范围从21亿到1026亿的大型语言模型Yuan 2.0系列
+
+提出了一种数据过滤和生成方法来构建高质量的预训练和微调数据集，提出了非均衡并行工作流程(non-uniform pipeline parallel)、数据并行(data parallel)、优化器并行(optimizer parallel)的分布式训练方法，成功降低了节点内通信的带宽需求，在大规模分布式训练中取得了良好的性能
+
+与现有模型相比，Yuan 2.0模型在代码生成、数学问题解决和聊天方面显示出令人印象深刻的能力，最新版本的YUAN 2.0，包括模型权重和源代码等，可在Github上获取
+
+github项目说明页:
+
+<img src="https://img.saraba1st.com/forum/202311/29/022850issf1qgaumfyfkmj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231129-022717.jpg</strong> (152.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 02:28 上传
+
+<img src="https://img.saraba1st.com/forum/202311/29/022850rg36h57sknrt5hg1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231129-022727.jpg</strong> (213.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 02:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1001#       发表于 2023-11-29 12:52
+
+SDXL Turbo
+
+实时文本到图像生成模型
+
+介绍博客:https://stability.ai/news/stability-ai-sdxl-turbo
+
+项目权重:https://huggingface.co/stabilityai/sdxl-turbo
+
+演示Demo:http://clipdrop.co/stable-diffusion-turbo
+
+<img src="https://img.saraba1st.com/forum/202311/29/125135suqtqtu9hzooyejh.jpg" referrerpolicy="no-referrer">
+
+<strong>adversarial_diffusion+(1)-1+1.jpg</strong> (133.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 12:51 上传
+
+SDXL Turbo通过新的蒸馏技术实现了SOTA性能，能够以前所未有的质量生成单步图像，将所需的步骤数从50减少到只有1步
+
+请参阅研究论文，了解有关该模型的新蒸馏技术的具体技术细节，该技术利用对抗性训练(adversarial training)和分数蒸馏(score distillation)的组合
+
+在Hugging Face上下载模型权重和代码，目前是在允许个人、非商业用途的非商业研究许可证下发布的
+
+在Stability AI的图像编辑平台Clipdrop上可以测试SDXL Turbo，并进行实时文本到图像生成功能的Beta演示
+————
+SDXL Turbo，一种新的文本到图像模式，SDXL Turbo基于一种称为对抗扩散蒸馏(ADD)的新颖蒸馏技术，该技术使模型能够一步合成图像输出并生成实时文本到图像输出，同时保持高采样保真度。 对于对技术细节感兴趣的研究人员和爱好者，可以在此处获取研究论文(相关链接:https://stability.ai/research/adversarial-diffusion-distillation)
+————
+对抗扩散蒸馏的优点
+
+SDXL Turbo 在扩散模型技术方面取得了新进展，在SDXL 1.0的基础上进行迭代，并为文本到图像模型实现了一种新的蒸馏技术：对抗扩散蒸馏，通过整合 ADD，SDXL Turbo获得了与GAN(生成对抗网络)共有的许多优势，例如单步图像输出，同时避免了其他蒸馏方法中常见的伪影或模糊
+————
+与其他扩散模型相比的性能优势
+
+<img src="https://img.saraba1st.com/forum/202311/29/125153v2o55dqdq2qqtzdq.jpg" referrerpolicy="no-referrer">
+
+<strong>turbo_comparing.jpg</strong> (84.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 12:51 上传
+
+为了评估SDXL Turbo的效果，通过使用相同的提示生成输出来比较多个不同的模型变体(StyleGAN-T++、OpenMUSE、IF-XL、SDXL 和 LCM-XL)，然后人类评估者会随机看到两个输出，并被要求选择最符合提示方向的输出，接下来，用相同的方法完成图像质量的附加测试，在这些盲测中，SDXL Turbo能够以1步击败LCM-XL的4步配置，并且仅用4步击败SDXL的50步配置，通过这些结果，可以看到SDXL Turbo的性能优于最先进的多步模型，其计算要求也显著降低，而无需牺牲图像质量
+
+此外，SDXL Turbo还显著提高了推理速度，在A100上，SDXL Turbo在207毫秒内生成512x512图像(提示编码+单个去噪步骤+解码，fp16)，其中单个UNet在前向评估中只占用了67毫秒
+————
+使用Clipdrop探索SDXL Turbo
+
+要测试这一新模型的功能，请访问Stability AI的图像编辑平台Clipdrop，以获取SDXL Turbo的实时图像生成的测试版演示，它与大多数浏览器兼容，且目前可以免费试用
+————
+商业应用
+
+ 如果您想将此模型用于您的商业产品或目的，请联系Stability以了解更多信息
+————
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  jojog  
+##### 1002#       发表于 2023-11-29 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">1step这个有点离谱，实际上是怎么实现的?
+
+
+*****
+
+####  Machinery  
+##### 1003#       发表于 2023-11-29 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63170045&amp;ptid=2126390" target="_blank">jojog 发表于 2023-11-29 13:10</a>
+1step这个有点离谱，实际上是怎么实现的?</blockquote>
+更完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鉴别器gan那套
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  jojog  
+##### 1004#       发表于 2023-11-29 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63170158&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-11-29 13:21</a>
+
+更完了鉴别器gan那套
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个真的要拿来收费吗
+
+
+*****
+
+####  Machinery  
+##### 1005#       发表于 2023-11-29 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63170175&amp;ptid=2126390" target="_blank">jojog 发表于 2023-11-29 13:22</a>
+这个真的要拿来收费吗</blockquote>
+权重本身是开源的，商业化考量就不清楚了，不过原理公开了只要有算力的应该都能复刻这个蒸馏方法…目前来说这就是个实验演示Demo，其他模型还要从头蒸馏一遍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对于大公司降低生成成本和实时合成比较重要
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1006#       发表于 2023-11-30 00:29
+
+LLaMA-VID
+
+在大型语言模型中一张图像值2个Token
+
+项目主页:https://llama-vid.github.io/
+
+github项目主页:https://github.com/dvlab-research/LLaMA-VID
+
+hugface权重主页:https://huggingface.co/YanweiLi
+
+数据集下载:https://huggingface.co/datasets/YanweiLi/LLaMA-VID-Data
+
+在这项工作中，提出了一种新颖的方法解决视频和图像理解的视觉语言模型(VLM/Vision Language Models)中的Token生成挑战，称之为LLaMA-VID
+
+当前的VLM虽然精通图像字幕说明和视觉问答等任务，但在处理长视频时由于视觉Token过多会面临计算负担，LLaMA-VID通过用两个不同的Token(即上下文Token和内容Token)表示每个帧来解决此问题
+
+上下文Token根据用户输入对整个图像上下文进行编码，而内容Token则封装每个帧中的视觉提示，这种双Token策略(dual-token strategy)显著减少了长视频的过载，同时保留了关键信息，一般来说，LLaMA-VID使现有的框架能够支持长达一小时的视频，并通过额外的上下文Token来推动其上限
+
+实验证明，它在大多数基于视频或图像的基准测试中超越了以前的方法
+
+<img src="https://img.saraba1st.com/forum/202311/30/002817h0r316883uzehnv1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231129-231547__01.jpg</strong> (245.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:28 上传
+
+所提案的LLaMA-VID在大多数7B LLM基准测试中都取得了领先性能，基于视频和基于图像的基准分别以蓝色和紫色表示
+
+<img src="https://img.saraba1st.com/forum/202311/30/002822ybrt4zgx4tdh8863.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001606__01.jpg</strong> (208.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:28 上传
+
+LLaMA-VID的框架，根据用户指示，LLaMA-VID将单个图像或视频帧作为输入进行操作，并从LLM生成响应，视觉编码器将输入帧转换为视觉嵌入
+
+文本解码器根据用户输入生成文本查询，在上下文注意力中，文本查询从视觉嵌入中聚合与文本相关的视觉提示(text-related visual cues)，为了提升效率，提供了一个选项将视觉嵌入下采样为多种Token大小，比如单个Token
+
+之后使用线性投影器来表示文本引导的上下文Token和视觉信息丰富的内容Token，以表示时间t的每个帧，最后LLM将用户指示和所有视觉Token作为输入并给出响应
+
+<img src="https://img.saraba1st.com/forum/202311/30/002829pzv0goxueu8gpigo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001620__01.jpg</strong> (112.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:28 上传
+
+各阶段模型训练的多模态数据分布和指令格式，&lt;image&gt;和&lt;image-i&gt;分别表示单个图像和第i个视频帧的Token
+
+<img src="https://img.saraba1st.com/forum/202311/30/002834p9mhon9ugkmufhhm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001620__02.jpg</strong> (264.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:28 上传
+
+为电影泰坦尼克号构建指令对的示例，给定电影概要和剧本，利用GPT-4和Claude-2等开发的LLM来生成电影摘要、情节相关的QA对和一般推理QA对
+
+<img src="https://img.saraba1st.com/forum/202311/30/002840gj92mjs8gkzubk7k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001627__01.jpg</strong> (159.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:28 上传
+
+与4个零样本视频QA数据集上的领先方法进行对比，报告每帧2个Token的结果，为了公平比较，模型只使用第1阶段和第2阶段的数据(多模态对齐/指令微调)进行训练，没有进行长视频微调，Res表示图像分辨率
+
+<img src="https://img.saraba1st.com/forum/202311/30/002847tp61ot42oapop6jf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001633__01.jpg</strong> (137.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:28 上传
+
+与基于视频的生成性能基准测试的领先方法进行对比，报告每帧2个Token的结果，为了公平比较，模型只使用第1阶段和第2阶段的数据(多模态对齐/指令微调)进行训练，没有进行长视频微调，Res表示图像分辨率，Correctness, Detail, Context, Temporal, and Consistency分别表示信息正确性、细节方向、上下文理解、时间理解和一致性的评价指标
+
+<img src="https://img.saraba1st.com/forum/202311/30/002853yhdp35h3fc8p3n33.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001637__01.jpg</strong> (245 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:28 上传
+
+在8个基准测试上与领先方法进行对比，在这里，使用与LLaVA-1.5中相同的训练和指令微调数据，用1个上下文Token和n个内容Token报告结果，其中n与LLaVA-1.5保持相同，即n=(336/14)的平方=576，为了公平比较，模型只使用第1阶段和第2阶段的数据(多模态对齐/指令微调)进行训练，没有进行长视频微调，Res表示输入图像分辨率，*和†分别表示训练子集包含在训练中，并且数据不公开
+
+<img src="https://img.saraba1st.com/forum/202311/30/002910dsfbvbqhw7v74bhs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001652__01.jpg</strong> (422.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:29 上传
+
+使用基于Vicuna-7B的模型的LLaMA-VID示例，分别为单图像、短视频和小时长度的视频
+
+<img src="https://img.saraba1st.com/forum/202311/30/002915qrexjqdcl9i3czcx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001657__01.jpg</strong> (30.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:29 上传
+
+不同Token类型的对比，使用1个上下文Token(如果存在)和1个内容Token报告结果
+
+<img src="https://img.saraba1st.com/forum/202311/30/002930moao2qw6w3peovpi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001702__02.jpg</strong> (31.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:29 上传
+
+不同文本编码器的对比，使用1个上下文Token(如果存在)和1个内容Token报告结果
+
+<img src="https://img.saraba1st.com/forum/202311/30/002933ysgz11v0c8ojs099.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001702__03.jpg</strong> (135.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:29 上传
+
+对等式1中的输入问题得分最高的高响应区，在Qt中展示前两个查询的响应，图像是从VQA V2测试开发集中随机采样的
+
+<img src="https://img.saraba1st.com/forum/202311/30/002938v5phqptcyv0vbrve.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001706__01.jpg</strong> (71.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:29 上传
+
+LLaMA-VID的训练设置
+
+<img src="https://img.saraba1st.com/forum/202311/30/002942axldhmmuh9qdmddp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001745__01.jpg</strong> (495 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:29 上传
+
+为电影泰坦尼克号构建指令对的详细信息
+
+<img src="https://img.saraba1st.com/forum/202311/30/002947a1p2p0wq1a27021e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001835__01.jpg</strong> (583.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:29 上传
+
+使用基于Vicuna-7B模型的长达小时级别的电影的LLaMA-VIDEO示例
+
+<img src="https://img.saraba1st.com/forum/202311/30/002952sdzkm2r5ma0dpamq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-001959__01.jpg</strong> (443.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 00:29 上传
+
+在相同问题下与LLaMA 2和LongLoRA进行对比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1007#       发表于 2023-11-30 04:58
+
+RankingGPT
+
+通过渐进式学习增强大型语言模型的文本排名(Text Ranking)能力
+
+github项目主页:https://github.com/Alibaba-NLP/RankingGPT
+
+文本排序是各种信息检索应用中的一项关键任务，最近大型语言模型(LLM)在自然语言处理方面的成功引发了人们对其在文本排序中的应用的兴趣
+
+这些方法主要涉及查询(query)和候选文档(candidate documents)的组合，并利用提示学习(prompt learning)使用特定Token让LLM输出概率或直接生成候选文档的排序列表来确定查询文档的相关性，尽管这些方法卓有成果，但LLM的建模训练目标(通常是以预测下一个Token为中心)与评估查询文档相关性的训练目标之间存在值得注意的差异
+
+为了解决这一差距并充分利用LLM在文本排名任务中的潜力，本文提出了一种渐进式的多阶段训练策略。 首先引入了一个大规模的弱监督的关联文本(relevance texts)数据集，使LLM能够在不改变其原始训练目标的情况下获得预测相关标记的能力，随后结合监督训练，进一步提升LLM的排序能力
+
+在多个基准上的实验结果表明，与以前的竞争方法相比，本文提出的方法在ID(in-domain)和OOD(out-of-domain)场景中都具有优越的性能
+
+<img src="https://img.saraba1st.com/forum/202311/30/045711bxnynhiph0p4xzzq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045330.jpg</strong> (91.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+基准答案和LLM生成查询(LLaMA)的对比，示例来自MS MARCO数据集
+
+<img src="https://img.saraba1st.com/forum/202311/30/045715oawxdzko11naadi2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045351.jpg</strong> (95.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+两阶段训练范式:持续预训练和监督微调
+
+<img src="https://img.saraba1st.com/forum/202311/30/045719skcvichnjzcanznb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045405.jpg</strong> (66.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+维持持续预训练收益的三种SFT策略
+
+<img src="https://img.saraba1st.com/forum/202311/30/045724pzawjboejbzbofwz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045425.jpg</strong> (128.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+各种模型的ID结果
+
+<img src="https://img.saraba1st.com/forum/202311/30/045729khciy1hbysccrzcq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045438.jpg</strong> (168.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+220M-3B参数模型的OOD结果，“Best on”表示模型表现最佳的数据集数量
+
+<img src="https://img.saraba1st.com/forum/202311/30/045733tg34vxgug5443axl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045455.jpg</strong> (162.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+7B模型的OOD结果，“BLO.”, “LLa.”以及“Bai.”分别代表BLOOM，LLaMA，Baichuan模型
+
+<img src="https://img.saraba1st.com/forum/202311/30/045740emogzgsoebm2vrg3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045523.jpg</strong> (122.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+BLOOM-560m和1b在ID和OOD场景的消融结果
+
+<img src="https://img.saraba1st.com/forum/202311/30/045744ys9erhanoeihi1hp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045542.jpg</strong> (60.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+具有不同可训练层的BLOOM-1B结果
+
+<img src="https://img.saraba1st.com/forum/202311/30/045748mt5l6b00fvoftbfv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045602.jpg</strong> (50.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+对比BLOOM-1B与不同负面样本大小的性能
+
+<img src="https://img.saraba1st.com/forum/202311/30/045752c7057a49cev53l30.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045611.jpg</strong> (100.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+不同模型的PPL结果，RankLLaMA和LLaMA-Only排序的PPL分布与其他模型有很大不同，因此，我们只在图中展示了它们的近似位置，并用虚线表示了两个模型
+
+<img src="https://img.saraba1st.com/forum/202311/30/045757cfbkvavkjarg7wra.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-045627.jpg</strong> (91.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 04:57 上传
+
+RankingGPT和无监督排序方法在BM25 top-100上的排序结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1008#       发表于 2023-11-30 05:44
+
+ 本帖最后由 Machinery 于 2023-11-30 05:48 编辑 
+
+CoSeR
+
+桥接图像和语言以实现认知超分辨率(Cognitive Super-Resolution)
+
+项目主页:https://coser-main.github.io/
+
+github项目代码仓库:https://github.com/VINHYU/CoSeR
+
+现有的超分辨率(SR/super-resolution)模型主要侧重于恢复局部的纹理细节，往往忽略了场景内的全局语义信息，这种疏忽可能会导致在恢复过程中遗漏关键的语义细节或引入不准确的纹理
+
+在本工作中，引入了认知超分辨率(CoSeR/Cognitive Super-Resolution)框架，使SR模型能够理解低分辨率图像，这是通过将图像外观和语言理解结合起来生成认知嵌入(cognitive embedding)实现的，这不仅激活大型文本到图像扩散模型的先验信息，而且还有助于生成高质量参考图像以优化SR过程
+
+为了进一步提高图像保真度，还提出了一种称为“All-in-Attention”的新颖条件注入方案(condition injection scheme)，将所有条件信息整合到单个模块中
+
+因此，本方法成功地重建了正确的语义和逼真的细节，在多个基准测试中展示了最新的SOTA性能
+————
+
+<img src="https://img.saraba1st.com/forum/202311/30/054323bllk57ual7admd95.jpg" referrerpolicy="no-referrer">
+
+<strong>833b1ccc-65d4-453b-8641-59b4994f8623.jpg</strong> (178.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:43 上传
+
+<img src="https://img.saraba1st.com/forum/202311/30/054323b545755l5boci4if.jpg" referrerpolicy="no-referrer">
+
+<strong>fe3cc81f-3c3a-452f-9bf5-bafb679ff830.jpg</strong> (165.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:43 上传
+
+<img src="https://img.saraba1st.com/forum/202311/30/054323f84lx1qqxqgj855r.jpg" referrerpolicy="no-referrer">
+
+<strong>779db557-054f-4fd2-9d59-0aab05bb8f07.jpg</strong> (120.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:43 上传
+
+<img src="https://img.saraba1st.com/forum/202311/30/054323olo2ttjrtf0t9lts.jpg" referrerpolicy="no-referrer">
+
+<strong>ee5ba05d-651a-4d31-b633-d5304b6a4f2c.jpg</strong> (183.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:43 上传
+
+CoSeR 能够从低分辨率(LR/low-resolution)图像中提取认知特征，并生成在语义和纹理方面与LR图像紧密匹配的高质量参考图像，通过将生成的参考图像与认知特征结合起来可以显著提高SR性能
+————
+动机
+
+<img src="https://img.saraba1st.com/forum/202311/30/054334e49w4a4t645mu6sd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-054136.jpg</strong> (204.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:43 上传
+
+本文的动机基于以下观察:
+现有的SR方法在泛化方面面临局限性，特别是当遇到偏离训练集的退化分布时(上图第一行)，通常，增强SR性能需要根据从特定传感器获取的特定于场景的数据来训练模型，这对于这些场景效果很好，但在不同的场景中效果不佳
+
+当前的SR方法缺乏对图像内容的全面理解，这些方法很擅长从数据中学习退化模式，但在LR图像的语义理解方面却遇到了困难，这影响了对象结构和纹理恢复(上图第二行)
+————
+概述
+
+<img src="https://img.saraba1st.com/forum/202311/30/054350i9unzyuiynf6yana.jpg" referrerpolicy="no-referrer">
+
+<strong>009f798c-b2f0-49fa-813d-4039ce80a917.jpg</strong> (113.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:43 上传
+
+本文方法可以从LR输入图像中提取认知嵌入，全面掌握整个场景内容，然后利用这种认知嵌入来生成能够保持语义一致性的高分辨率参考图像，最后使用认知嵌入来激活恢复网络中的扩散先验，同时使用生成的参考图像作为附加先验来指导SR过程，在本文模型中使用了Stable Diffusion 2.1-base
+————
+对比
+
+<img src="https://img.saraba1st.com/forum/202311/30/054630cejcmum7bvrrr22v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-054611.jpg</strong> (392.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:46 上传
+
+凭借对场景信息的全面理解，CoSeR擅长增强高质量纹理细节，正如第一行和第二行所示，实验结果显示，动物的皮毛和面部特征明显更清晰、更真实，同样，在第三行和第四行中，本方法也熟练地恢复了真实的纹理，例如海葵触手和肉质的叶子，这是其他方法无法比拟的成就，模型的认知能力能够恢复在低分辨率输入中几乎全部丢失的语义细节，值得注意的是，在第一行中，只有本文模型成功地重建了野狗的眼睛，而在第五行中，只有本文方法可以重建沙漏内的沙子
+
+<img src="https://img.saraba1st.com/forum/202311/30/054407g5aouxian4iaq4pd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-054210.jpg</strong> (145.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:44 上传
+
+合成图像的更多对比
+
+<img src="https://img.saraba1st.com/forum/202311/30/054410cgfkfclfhllrktr8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-054224.jpg</strong> (114.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:44 上传
+
+对现实世界或未知退化类型图像的更多对比
+————
+方法
+
+<img src="https://img.saraba1st.com/forum/202311/30/054416az1676rb5z1grwr7.jpg" referrerpolicy="no-referrer">
+
+<strong>2a35d680-1d58-4adf-afe7-e0b4badacc65.jpg</strong> (111.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:44 上传
+
+CoSeR采用双阶段过程(dual-stage process)来恢复LR图像，最初，研究组开发了一个认知编码器来对图像内容进行彻底分析，将认知嵌入传递给扩散模型，这使得能够激活预训练的Stable Diffusion模型中存在的图像先验，从而促进复杂细节的恢复，此外，本文方法利用认知理解来生成与输入语义紧密一致的高保真参考图像，这些参考图像作为辅助信息，有助于增强超分辨率结果，最终，模型同时将三个条件控制应用于预训练的Stable Diffusion模型：LR图像、认知嵌入和参考图像
+————
+使用认知嵌入的解释
+
+<img src="https://img.saraba1st.com/forum/202311/30/054809q888ststst3a8tzp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-054710.jpg</strong> (152.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 05:48 上传
+
+出于几个可以理解的原因，只选择了利用特征嵌入进行认知过程，而不是直接从LR图像生成字幕说明，首先，尽管以语言嵌入为指导，但认知嵌入依然保留了细粒度的图像特征，在生成高语义相似度的参考图像方面具有优势，在上图的第一行中，显示了从LR图像生成的BLIP2字幕说明，但是这并不能识别动物的精确分类、颜色和纹理，导致这与认知适配器(cognitive adapter)相比，生成结果不理想，其次，由于输入分布的差异，预训练的图像描述模型可能会为LR图像生成不准确的描述，相比之下，认知适配器对于LR图像更加稳健，如上图第二行所示，第三，采用预训练的图像描述模型需要大量参数，可能达到7B。 相比之下，认知适配器要轻得多，只有3%的参数，从而产生了良好的效率
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1009#       发表于 2023-11-30 16:38
+
+Character Animation
+
+用于角色动画化(Character Animation)的一致且可控的图像到视频合成(Image-to-Video Synthesis)
+
+项目主页:https://humanaigc.github.io/animate-anyone/
+
+github项目代码仓库:https://github.com/HumanAIGC/AnimateAnyone
+
+角色动画化旨在通过驱动信号(driving signals)从静止图像生成角色的视频，目前，扩散模型因其强大的生成能力已经成为了视觉生成研究的主流，然而，当前的图像到视频领域仍然存在挑战，特别是在角色动画化中，想要保持与角色详细信息的一致性仍然是一个艰巨的问题
+
+在本文中，通过利用扩散模型的力量，提出了一个为角色动画化量身定制的新颖框架，为了保持参考图像中复杂外观特征的一致性，专门设计了ReferenceNet，并使用空间注意力来合并细节特征，为了确保可控性和连续性，还引入了有效的姿态引导器来指导角色的运动，并采用有效的时间建模方法来确保视频帧之间平滑的过渡
+
+通过扩展训练数据，本方法可以对任意角色进行动画化处理，相比其他图像到视频方法相比，本文方法在角色动画化方面产生了更好的结果，此外，还根据时尚视频与人类舞蹈合成的基准测试评估了本文方法，并取得了SOTA结果
+
+<img src="https://img.saraba1st.com/forum/202311/30/163741dkks6kkkmoo60hpx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163147__01.jpg</strong> (467.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:37 上传
+
+给定参考图像(每组图像中最左边的图片)即可获得一致且可控的角色动画化结果，本文方法能够对任意角色进行动画化处理，生成清晰且时间稳定的视频结果，同时保持与参考角色的外观细节的一致性
+
+<img src="https://img.saraba1st.com/forum/202311/30/163747y66gngk333g3anhw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163156__01.jpg</strong> (254.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:37 上传
+
+方法概览图，姿态序列(pose sequence)使用Pose Guider进行编码，并与多帧噪声(multi-frame noise)融合，然后由Denoising UNet进行视频生成的去噪过程，Denoising UNet的计算模块由空间注意力(Spatial-Attention)、交叉注意力(Cross-Attention)和时间注意力(Temporal-Attention)组成，如右侧虚线框所示，参考图像的集成涉及两个方面，首先，通过ReferenceNet提取详细特征并应用于空间注意力，其次，通过CLIP图像编码器提取语义特征以应用于交叉注意，而时间注意力在时间维度上运作，最后VAE解码器将结果解码为视频片段
+
+<img src="https://img.saraba1st.com/forum/202311/30/163753uj2sk42t2he22z3e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163228__01.jpg</strong> (358.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:37 上传
+
+定性结果，给定参考图像(最左边的图片)，本文方法展示了对不同角色进行动画化处理的能力，包括全身人物、半身肖像、卡通人物和人形人物，该插图展示了清晰、一致的细节和连续运动的生成结果
+
+<img src="https://img.saraba1st.com/forum/202311/30/163800fdk6ingk77qqqdcd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163259__01.jpg</strong> (74.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:38 上传
+
+合成时尚视频合成的定性对比，DreamPose和BDMM在保留服装的精细纹理细节方面存在缺陷，而本文方法在保留特殊的细节特征方面表现出色
+
+<img src="https://img.saraba1st.com/forum/202311/30/163804l92lf0evc0vo0kwz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163259__02.jpg</strong> (49.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:38 上传
+
+时尚视频合成的定量对比，“Dreampose*”表示没有使用样本微调的结果
+
+<img src="https://img.saraba1st.com/forum/202311/30/163808cbembmggaf02muqg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163259__03.jpg</strong> (86.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:38 上传
+
+DisCo和本文方法之间的定性对比，DisCo在生成的结果中出现了姿态控制错误、颜色不准确和细节不一致等问题，相比之下，本文方法在解决这些问题方面表现出了显着的改进
+
+<img src="https://img.saraba1st.com/forum/202311/30/163814dededad75dseasff.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163259__04.jpg</strong> (45.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:38 上传
+
+人类舞蹈生成的定量对比
+
+<img src="https://img.saraba1st.com/forum/202311/30/163819hv44ioiz38bbddot.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163307__01.jpg</strong> (93.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:38 上传
+
+与图像到视频方法的定性对比，当前的图像到视频方法很难生成大量的角色动作，并且在保持与角色图像特征的长期一致性方面面临挑战
+
+<img src="https://img.saraba1st.com/forum/202311/30/163824rrrsl9yzlz99ss9b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163307__02.jpg</strong> (72.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:38 上传
+
+不同设计的消融实验，只有ReferenceNet才能保留角色外观细节的一致
+
+<img src="https://img.saraba1st.com/forum/202311/30/163829evfapf103p88lba3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-163307__03.jpg</strong> (39.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:38 上传
+
+消融实验的定量对比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1010#       发表于 2023-11-30 19:07
+
+visual anagrams
+
+错视排列:使用扩散模型生成多视图视错图
+
+项目主页:https://dangeng.github.io/visual_anagrams/
+
+github代码仓库:https://github.com/dangeng/visual_anagrams
+
+colab体验:https://colab.research.google.com/drive/1hCvJR5GsQrhH1ceDjdbzLG8y6m2UdJ6l?usp=sharing
+
+<img src="https://img.saraba1st.com/forum/202311/30/190814ocuh6itxvochu03x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-183906__01.jpg</strong> (308.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 19:08 上传
+
+<img src="https://img.saraba1st.com/forum/202311/30/190814ui6264sy0y4ii4y9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-183915__01.jpg</strong> (312 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 19:08 上传
+
+本文解决了合成多视图视错图的问题：在变换(例如翻转或旋转)时会感觉外观改变的图像
+
+提出了一种简单的零样本方法，用于从现成的文本到图像扩散模型中获得这些错视图:在反向扩散过程中，从噪声图像的不同视图估计噪声，然后将这些噪声估计(noise estimate)结合在一起并对图像进行去噪
+
+理论分析表明，该方法恰好适用于可以写成正交变换(orthogonal transformations)的视图，其中的排列是正交变换的子集，这就引出了错视图的想法——在像素重新排列的情况下会改变外观的图像，包括旋转和翻转，还包括更奇特的像素排列，例如拼图重排列(jigsaw rearrangement)，本方法也可以自然地扩展到具有两个以上视图的错视
+
+提供了定性和定量结果，证明了方法的有效性和灵活性
+————
+
+<img src="https://img.saraba1st.com/forum/202311/30/190718aeni7rzny4hssnos.jpg" referrerpolicy="no-referrer">
+
+<strong>method.jpg</strong> (302.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 19:07 上传
+
+这个方法在概念上很简单，通过采用现成的扩散模型，并用它来估计不同视图或变换中的图像v_i的噪声，然后通过应用反转视图(inverse view)来对齐噪声估计v_i^{-1}并一起平均，然后该平均噪声估计被用来进行扩散步骤
+
+并不是每个视图函数都适用于上述方法。 当然v_i必须是可逆的，但这里可以讨论两个额外的约束
+
+<img src="https://img.saraba1st.com/forum/202311/30/190725dmxdr9agdgub11iu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231130-190053.jpg</strong> (180.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 19:07 上传
+
+————
+正交变换
+
+大多数图像的正交变换在视觉上是没有意义的，例如，用随机采样的正交矩阵变换下面的图像
+
+<img src="https://img.saraba1st.com/forum/202311/30/190733sbdc1z2gd76xbcib.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>orthogonal.jpeg</strong> (307.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 19:07 上传
+
+然而，排列矩阵是正交矩阵的子集，并且非常容易解释，它们只是图像中像素的重排列，这就是错视排列(visual anagram)的想法由来，这里的大多数错觉都可以这样解释——作为像素的特定重新排列——例如旋转、翻转、倾斜、“内旋转”、拼图重排列和块(patch)排列，最后，颜色反转不是排列，而是正交的，因为它们是像素值的否定(negation)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1011#       发表于 2023-12-1 04:46
+
+TimeBench
+
+大型语言模型的时间推理(Temporal Reasoning)能力综合评估
+
+github项目主页:https://github.com/zchuz/TimeBench
+
+理解时间是人类认知能力的一个关键方面，这对于理解世界的复杂程度的更广泛框架至关重要，之前的研究通常关注时间的特定方面，缺乏全面的时间推理基准测试
+
+为了解决这个问题，本文提出了TimeBench，一个全面的分级时间推理基准测试(hierarchical temporal reasoning benchmark)，涵盖了广泛的时间推理现象，为研究大型语言模型的时间推理能力提供了全面的评估
+
+通过对流行的LLM(例如GPT-4、LLaMA2和Mistral模型)进行的广泛的实验，并结合了思维链(CoT)提示，实验结果表明，SOTA LLM与人类之间依然存在显著的性能差距，这证明了在时间推理方面仍有相当多的挑战需要克服，希望TimeBench能够成为一个综合基准，促进LLM的时间推理研究
+
+<img src="https://img.saraba1st.com/forum/202312/01/044529p4mhxmk2q04hgvnw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044159.jpg</strong> (124.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:45 上传
+
+人类和LLM在TimeBench上的表现的简要概览图，其中人类分数有对应标注
+
+<img src="https://img.saraba1st.com/forum/202312/01/044534htvtd7i1tvdxbvi7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044214.jpg</strong> (134.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:45 上传
+
+TimeBench中类别、任务和子任务的分布，度数表示数据的比例
+
+<img src="https://img.saraba1st.com/forum/202312/01/044548jydjxuq90x5exq0e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044226.jpg</strong> (87.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:45 上传
+
+符号时间推理的示例
+
+<img src="https://img.saraba1st.com/forum/202312/01/044555rwwyhu9bw75y4qzc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044244.jpg</strong> (194.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:45 上传
+
+常识性时间推理的示例
+
+<img src="https://img.saraba1st.com/forum/202312/01/044601dwgzw627352c6xs7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044258.jpg</strong> (252.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:46 上传
+
+事件时间推理的示例，C=上下文，Q=问题，A=答案
+
+<img src="https://img.saraba1st.com/forum/202312/01/044606cioni144sczhinfc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044349__01.jpg</strong> (746.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:46 上传
+
+TimeBench的主要结果，默认情况下，对齐的模型处于零样本设置下，带†的方法是没有对齐的基本模型，在少样本设置下，因此与其他方法无法对比，省略了部分F1成绩，每组中的最佳结果以粗体显示，top-3结果用下划线显示
+
+<img src="https://img.saraba1st.com/forum/202312/01/044611fa6m8nuhk8ikkiqh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044404.jpg</strong> (87.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:46 上传
+
+基础模型和对齐模型之间的性能差异，Baichuan2和LLaMA2使用了SFT和RLHF对齐，Vicuna、Mistral和ChatGLM3仅使用SFT对齐
+
+<img src="https://img.saraba1st.com/forum/202312/01/044617bsrrxwyzx4qrpr9s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044416.jpg</strong> (79.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:46 上传
+
+有和没有CoT提示的性能差距，结果值是GPT-4、GPT-3.5、Baichuan2、LLaMA2/Vicuna-1.5和Mistral的平均值
+
+<img src="https://img.saraba1st.com/forum/202312/01/044622vr6yylg6gn1tunsu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044428.jpg</strong> (127.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:46 上传
+
+Δ思维链提示和直接I-O提示之间的得分
+上:零样本设置，下:少样本设置，左:每个任务的变化，右:符号、常识、事件和整体任务的平均变化
+
+<img src="https://img.saraba1st.com/forum/202312/01/044628gm6w83vm4z3ejz3d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-044437.jpg</strong> (92.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 04:46 上传
+
+在少样本设置下得出的每个时间常识方面的结果，带†的型号是基本模型，红色↓和绿色↑代表成绩低于或高于平均水平
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1012#       发表于 2023-12-1 21:40
+
+Grad-CAM
+
+影子不会撒谎，线条不会弯曲！生成模型(暂时还)不知道射影几何(Projective Geometry)
+
+项目主页:https://projective-geometry.github.io/
+
+生成模型可以生成令人印象深刻的逼真图像，本文证明了这些生成的图像具有与真实图像不同的几何特征，通过构建了一组生成图像的集合，清洗(prequalified)这些图像惊人的简单，并且可以欺骗基于信号的简单分类器，使其相信它们是真实的
+
+随之而来的是，通过仅查看几何属性的分类器可以可靠地识别这些经过清洗的生成图像，使用三个这样的分类器，所有的三个分类器都被拒绝访问图像的具体像素，并且仅查看图像衍生的几何特征
+
+第一个分类器着眼于图像的透视场(perspective field)，第二个分类器着眼于图像中的线条检测(lines detected)，第三个分类器着眼于检测到的对象和阴影(detected objects and shadows)之间的关系，对于来自多个不同生成器的图像，本文程序比基于SOTA局部信号的检测器可以更可靠地检测生成的图像
+
+显著图(Saliency maps)表明分类器可以可靠地识别几何问题，得出的结论是，当前的生成器无法可靠地再现真实图像的几何特性
+————
+
+<img src="https://img.saraba1st.com/forum/202312/01/213919b28xkzpkl1am7enk.jpg" referrerpolicy="no-referrer">
+
+<strong>teaser.jpg</strong> (765.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:39 上传
+
+人工智能生成的图像虽然在视觉上很有吸引力，但在阴影对齐和消失点(vanishing point)精度方面经常存在错误，本文模型可以有效地检测到这些系统不一致之处，有助于识别此类图像
+————
+对应工作流程一览
+
+<img src="https://img.saraba1st.com/forum/202312/01/213948kxtayia6tfzcaaac.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-213726.jpg</strong> (46.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202312/01/213948x2z2l6r2vtmlm876.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-213751.jpg</strong> (68.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202312/01/213948gttggmqc7rg1mcgr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-213807.jpg</strong> (71.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:39 上传
+
+————
+图像分析
+
+<img src="https://img.saraba1st.com/forum/202312/01/213955c8z6x6ba18v6xtzh.jpg" referrerpolicy="no-referrer">
+
+<strong>bae694a4-58e2-4c60-8ebe-abbc05f927fb.jpg</strong> (176.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:39 上传
+
+室内:
+对Stable Diffusion-XL室内场景的Grad-CAM分析暴露了几何缺陷:原始图像的对象阴影不匹配，而Grad-CAM突出显示了合成指标，例如家具的误导阴影，此外，它还可以识别透视场中的异常情况，例如未对齐的线条和橱柜顶部的差异，从而证实了模型在检测人工智能生成的图像错误方面的准确性
+
+<img src="https://img.saraba1st.com/forum/202312/01/214002a59v95691m9gmgmf.jpg" referrerpolicy="no-referrer">
+
+<strong>2336bfd1-48f8-4e10-a6a2-23e1587e8026.jpg</strong> (182.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:40 上传
+
+室外:
+Grad-CAM揭示了Stable Diffusion-XL图像中的关键错误:车辆中不同的阴影方向以及消失点附近的结构扭曲，突出了其在检测AI生成内容中的几何不一致方面的精度
+
+<img src="https://img.saraba1st.com/forum/202312/01/214008fqe904j40p9fapj9.jpg" referrerpolicy="no-referrer">
+
+<strong>b43**1-c0f0-465c-b234-ca3286875040.jpg</strong> (261.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:40 上传
+
+DALL-E 3:
+DALL-E 3生成内部场景分析，使用对象阴影和透视场线索进行的GradCam可视化分析，对象阴影GradCam可以识别不匹配的阴影方向和长度，而透视场GradCam可以揭示房间几何形状中线对齐和消失点的不准确情况
+
+<img src="https://img.saraba1st.com/forum/202312/01/214014syvgqpp8xxvhlg9c.jpg" referrerpolicy="no-referrer">
+
+<strong>aa1b5193-62d4-4db6-981b-62d838b4598c.jpg</strong> (324.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:40 上传
+
+Adobe Firefly:
+Adobe Firefly的街道场景揭示了投影几何的不一致，并使用对象阴影和透视场进行了分析，对象阴影GradCam突出显示不匹配的阴影方向和长度，而透视场GradCam检测到了消失点附近和场景深度中的线条不一致，特别是在道路标记和建筑物外墙中
+————
+性能结果
+
+<img src="https://img.saraba1st.com/forum/202312/01/214026j3eg8mz43ufrpqu6.png" referrerpolicy="no-referrer">
+
+<strong>results.png</strong> (282.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:40 上传
+
+通过ROC曲线评估Stable Diffusion XL的AI生成图像中的投影几何线索
+
+<img src="https://img.saraba1st.com/forum/202312/01/214032fkh7lvydddi8dmmo.png" referrerpolicy="no-referrer">
+
+<strong>mixed_plot_outdoor.png</strong> (273.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 21:40 上传
+
+通过ROC曲线评估DeepFloyd, Firefly, Kandinsky, PixArt-alpha, DALL-E 3的AI生成图像中的投影几何线索
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1013#       发表于 2023-12-1 23:07
+
+ILoRA(intrinsic lora)
+
+生成模型们知道什么？ 他们知道事情吗？ 让我们来看看吧！
+
+项目主页:https://intrinsic-lora.github.io/
+
+生成模型已被证明能够合成高度详细且逼真的图像，人们很自然地怀疑它们已经隐式学习了对某些图像内在特征(例如表面法线、深度或阴影)进行建模
+
+在本文中，提出了令人信服的证据，证明生成模型确实在内部产生了高质量的场景内在特征(intrinsic)图，从而引入了Intrinsic lora(ILoRA)，一种通用的即插即用方法，可以将任何生成模型转换为场景内在特征预测器，能够直接从原始生成器网络中提取场景内在特征图，无需额外的解码器或完全微调原来的模型
+
+本文方法采用了关键特征图的低秩适应(LoRA)，新学习的参数只占生成模型中总参数的0.6%不到，通过一小组标记(labeled)图像进行了优化，这种模型无关(model-agnostic)方法适用于各种生成架构，包括扩散模型、GAN和自回归模型
+
+实验表明，本文方法生成的场景内在特征映射图可以与领先的监督技术生成的场景内在特征映射图相比，甚至在某些用例下超过了这些方法
+
+<img src="https://img.saraba1st.com/forum/202312/01/230157l3nrz3r6jr2jj3bk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225306__01.jpg</strong> (473.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:01 上传
+
+引入了intrinsic lora(I-LORA)，它揭示了各种生成模型中的隐藏能力，包括VQGAN(a)、StyleGAN-XL(b)、StyleGAN-v2(c)和Stable Diffusion(d)
+
+本方法使用了lora来调制关键特征图，其中包括VQGAN中的注意力层以及StyleGAN中的Stable Diffusion和affine层，这种调制使模型能够揭示图像中的法线、深度、反照率和阴影等固有属性
+
+I-LORA有效地使用了现有的解码器进行内在特征图像提取，该解码器之前用于RGB图像生成，在不需要新的层就能做到这一点可以看出这些模型对复杂场景内在特征的深刻、内在的理解
+
+<img src="https://img.saraba1st.com/forum/202312/01/230215gnz5myrfsmds57nn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225322__01.jpg</strong> (95.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:02 上传
+
+在不改变生成器头(generator head)的情况下跨越不同生成模型的场景内在特征提取能力的总结
+✓:可以高质量地提取内在特征
+∼:无法高质量提取内在特征
+×:无法提取内在特征
+
+<img src="https://img.saraba1st.com/forum/202312/01/230224fbpwz665pnbb5bbe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225336__01.jpg</strong> (498.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:02 上传
+
+来自不同生成器(VQGAN、StyleGAN-v2和StyleGAN-XL)的场景内在特征，在FFHQ数据集上进行训练：第一列显示每个模型生成的原始合成图像，随后的列显示了与表面法线、深度、反照率和阴影相对应的场景内在特征，由SOTA非生成模型和本文方法(I-LORA)提取
+
+对于表面法线(surface normals)，图像突出了模型推断表面方向和轮廓的能力，深度图(depth maps)展示了图像内的感知距离，较暖的颜色表示较近的物体，较冷的颜色表示较远的物体，反照图(Albedo maps)则隔离了拍摄对象的固有颜色，消除了光照和阴影的影响，最后，着色贴图(shading maps)捕捉了光线和表面的相互作用，显示光线如何影响不同面部特征的外观
+
+有趣的是，生成图像的保真度和提取的表面法线的准确性之间似乎存在相关性，这表明模型的图像生成能力越复杂，它就越能精确地在其场景本质中复制与现实世界物理的细微差别
+
+<img src="https://img.saraba1st.com/forum/202312/01/230235ils0n02ts7znp2ps.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225347__01.jpg</strong> (229.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:02 上传
+
+应用于单步扩散模型的INTINSIC LORA概览图，微调了与关键特征图对应的低秩矩阵(特别是注意力矩阵)，以引出场景内在特征，不同的低阶适配器，由颜色编码的θ表示(例如，紫色表示表面法线)，通过利用一组有限的标记示例来使生成模型能够使用原始解码器中直接提取场景内在特征，针对每个内在特征进行了优化，从而避免了需求专门的解码器或重新全面训练模型的需求
+
+<img src="https://img.saraba1st.com/forum/202312/01/230301ro7zvpvxvw5vn8nx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225402__01__01.jpg</strong> (177.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:03 上传
+
+从在LSUN卧室图像上训练的Stylegan2中提取场景内在特征
+
+<img src="https://img.saraba1st.com/forum/202312/01/230321l562560ssx06j8l0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225402__02.jpg</strong> (151.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:03 上传
+
+在ImageNet上训练的StyleGAN-XL
+上方:平底锅
+下方:笔记本电脑
+
+旁边有相应的场景内在特征(伪基准答案和提取)，表面法线和深度图虽然捕捉了基本形状和体积，但缺乏精确的细节并表现出伪影，反照图无法始终如一地将纹理与照明分开，着色贴图无法完全捕捉光线和表面的微妙相互作用，这些困难与生成的图像整体较差的真实感相关
+
+<img src="https://img.saraba1st.com/forum/202312/01/230336w5gg80u58kofztgx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225412__01.jpg</strong> (154.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:03 上传
+
+生成图像的场景内在特征提取性能的定量分析，将表面法线与Omnidata-v2的伪基准答案进行对比，将深度与ZoeDepth进行对比，将反照和着色与Paradigms进行对比
+
+指标包括平均角度误差、中值角度误差和表面法线的L1误差；对于深度使用rms和δ&lt;1.25；反照和着色使用rms，还包括SD UNet和AUGUNET在1000个合成图像上的结果，并带有各种完整提示(prompt)
+
+<img src="https://img.saraba1st.com/forum/202312/01/230421vehm17ymeyg8cy84.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225420__01.jpg</strong> (111.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:04 上传
+
+在真实图像上对不同模型的场景内在提取性能进行的定量分析
+
+<img src="https://img.saraba1st.com/forum/202312/01/230451ec53cdql5dld35gl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225420__02.jpg</strong> (129.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:04 上传
+
+使用单步SD UNet对训练样本数量进行消融实验，用表面法线预测来说明，(c)列是我们用于训练的Omnidata-v2伪标签，(e)至(i)列下方的数字是训练期间使用的样​​本数量，结果表明，即使使用包含数百张图像的有限数据集，预训练的Stable Diffusion模型也可以辨别大量的表面法线细节
+
+值得注意的是，在数据集大小仅为4000个样本的情况下，本文方法可以准确捕获具有挑战性的区域，例如(a)中左上角的远处墙壁，选择了SD v1-5和LoRA rank=8开始测试
+
+<img src="https://img.saraba1st.com/forum/202312/01/230458vl1upl821st1581e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225426__01.jpg</strong> (250.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:04 上传
+
+消融实验——LoRA的Rank，(e)至(i)栏下的数字是LoRA的Rank，设为8时实现了不错的显存效率并给出了良好的结果，所有模型均使用SD v1-5和4000个样本进行训练
+
+<img src="https://img.saraba1st.com/forum/202312/01/230646lp2bab2errie2apr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225436__01.jpg</strong> (341.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:06 上传
+
+使用改进的扩散技术从AUGUNET模型中提取详细的场景内在特征:展示了从生成模型导出的场景内在特征以及受监督的对应模型
+
+AUGUNET1.5与AUGUNET相同，只是使用SD1.5并且不使用零信噪比策略(Zero SNR strategy)，AUGUNET1.5呈出了更清晰的细节，尤其是在复杂区域-例如灯架和汽车等轻薄结构，另一方面AUGUNET展示了在减少色彩偏移方面的显著改进，同时保持了细节清晰度，就如与最后一行中的基准答案(GT)数据的的对比所示
+
+<img src="https://img.saraba1st.com/forum/202312/01/230722j7cyccyg9dazcdim.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225456__01.jpg</strong> (377.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:07 上传
+
+AUGUNET模型的结果应用于训练未见的1024x1024合成图像，对于每组，从左到右分别是:图像、表面法线、深度、反照和阴影
+
+第一行包含来自I-LORA的结果，第二行包含来自现有SOTA方法的对应伪基准答案
+
+<img src="https://img.saraba1st.com/forum/202312/01/230734uoc3rnkrocpnkn0l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225506__01.jpg</strong> (124.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:07 上传
+
+通过使用单步方法对各种Stable Diffusion版本进行消融实验，观察到生成模型的质量与提取的场景内在特征的准确性之间的相关性，分析包括Stable Diffusion的1.1、1.2和1.5版本，每个版本都展示了图像生成功能的显著增强，从而提高了场景内在特征提取的保真度
+
+<img src="https://img.saraba1st.com/forum/202312/01/230742aqq8tyibbqty1blj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-225506__02.jpg</strong> (93.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:07 上传
+
+单步扩散(SD UNet)产生了令人满意的结果，但多个扩散步骤会导致提取的内在特征未对齐，如SD1.5(多步)列中所示，最后一栏，AUGUNET，展示了使用本文图像条件方法成功纠正这些错位，从而获得对齐良好且连贯的场景内在特征提取
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1014#       发表于 2023-12-1 23:41
+
+WarAgent
+
+战争与和平:基于大型语言模型模拟的世界大战多智能体系统
+
+github项目主页:https://github.com/agiresearch/WarAgenthttps://github.com/agiresearch/WarAgent
+我们能否在历史的十字路口避免战争？ 整个人类历史上的个人、学者、政策制定者和组织一直在追寻这个问题，在这项研究中，试图根据人工智能(AI)和大型语言模型(LLM)的最新进展来回答这个问题
+
+本文提出了WarAgent，一个由LLM驱动的多智能体人工智能系统，用于模拟历史性国际冲突中的参与国、他们的决策和后果，包括第一次世界大战(WWI)、第二次世界大战(WWII)和中国古代的战国时期(Warring States Period)
+
+通过评估模拟效果，研究了尖端人工智能系统在研究复杂的人类集体行为(例如不同环境下的国际冲突)方面的能力的进步和局限性，在这些模拟中，代理人之间的新兴互动也为检查导致战争的触发因素和条件提供了一个新颖的视角，研究结果提供了数据驱动的人工智能的增强见解，可以重新定义解决冲突和维持和平战略的方式，这些影响超越了历史分析，为利用人工智能理解人类历史并可能预防未来的国际冲突提供了蓝图
+
+github说明页:
+
+<img src="https://img.saraba1st.com/forum/202312/01/234124icmziidofi2dfwib.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-234036.jpg</strong> (491.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/01/234124joozhim0xzpsl80i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201-234043.jpg</strong> (131.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 23:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1015#       发表于 2023-12-2 05:01
+
+HandRefiner
+
+通过基于扩散的条件重绘(Conditional Inpainting)来修复生成图像中畸形手部(Malformed Hands)
+
+github项目仓库:https://github.com/wenquanlu/HandRefiner
+
+扩散模型在生成逼真的图像方面取得了显着的成功，但在生成准确的人手方面依然存在问题，经常出现例如手指数量不正确或手部形状不规则等问题，这一困难源于从训练图像中学习手的物理结构和姿态问题，其中涉及广泛的变形和遮挡，导致了学习难度的增加
+
+为了正确生成手部，本文介绍了一种名为HandRefiner的轻量级后处理(post-processing)解决方案，HandRefiner采用条件重绘方法来纠正畸形的手，同时保持图像的其他部分不变，通过利用手部网格(hand mesh)重建模型，该模型能够始终遵循正确的手指数量和手部形状，同时还能够在生成的图像中拟合所需的手部姿态
+
+给予一个因手部畸形而生成的失败图像，利用ControlNet模块重新注入此类正确的手部信息，此外，当改变控制强度时，还发现了ControlNet中的相转换现象(phase transition phenomenon)，这使之能够利用更容易获得的合成数据，而不会受到现实和合成手之间的领域差距的影响，实验表明，HandRefiner可以显着改进相关图片生成质量
+
+<img src="https://img.saraba1st.com/forum/202312/02/050007o6c4zfp2j6v2ivvj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045318__01.jpg</strong> (598.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+Stable Diffusion(前两行)和SDXL(最后一行)所生成的畸形的手(每对图像左侧)，例如手指数量不正确或形状不规则等，可以通过HandRefiner修正(每对图像右侧)
+
+<img src="https://img.saraba1st.com/forum/202312/02/050012lnn8hfn2436d82vz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045337__01.jpg</strong> (257.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+HandRefiner概览图，在推理过程中，手部网格重建模型拟合的深度图通过ControlNet注入到重绘推理过程中，在微调时，合成数据用于训练基于深度的ControlNet，以按照重绘工作流程重建手部，HandRefiner简单而有效，**提高了生成的手质量
+
+<img src="https://img.saraba1st.com/forum/202312/02/050019uxdx4qxxxquvq7o7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045342__01.jpg</strong> (185.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+通过在HandRefiner工作流程中使用预先训练的深度ControlNet生成手部
+
+<img src="https://img.saraba1st.com/forum/202312/02/050023t8khvmrkns3m138h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045342__02.jpg</strong> (170.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+RHD数据集中的手部示例，缺乏真实纹理
+
+<img src="https://img.saraba1st.com/forum/202312/02/050028ii2mpq21ac6mzhj6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045351__01.jpg</strong> (405.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+相转换的图示，当施加的控制强度较小时，手部形状和姿势会发生变化以匹配深度图，而在高控制强度下，手部皱纹和纹理会消失
+
+<img src="https://img.saraba1st.com/forum/202312/02/050033xxo2z1ooeochoq5x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045358__01.jpg</strong> (88.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+使用HAGRID作为参考，原始图像和校正图像之间的图像级FID和 KID指标对比
+
+<img src="https://img.saraba1st.com/forum/202312/02/050038bz2z291obo9op9po.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045416__01.jpg</strong> (468.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+HAGRID数据集上的可视化结果
+
+<img src="https://img.saraba1st.com/forum/202312/02/050041j7ubg58egh660v7g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045423__01.jpg</strong> (48.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+以FreiHAND为参考，原始图像与校正图像之间的图像手部分FID和KID指标对比
+
+<img src="https://img.saraba1st.com/forum/202312/02/050046v9977hazva7zvkaa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045423__02.jpg</strong> (56.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+用户研究结果，颜色代表50名参与者的积极投票数
+
+<img src="https://img.saraba1st.com/forum/202312/02/050049xw0tgt0ytevq0ebn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045436__01.jpg</strong> (95.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+HandRefiner设计选择的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/02/050054okhg5fc4mf31cdgg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045545__01.jpg</strong> (282.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+ControlNet中的相转换以不同的控制信号为条件，所有模型仅使用合成数据进行训练
+
+<img src="https://img.saraba1st.com/forum/202312/02/050057d4a477aal7lkl661.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231202-045551__01.jpg</strong> (331.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 05:00 上传
+
+重绘2k HAGIRD图像的不同方法的对比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1016#       发表于 2023-12-3 23:27
+
+VIDiff
+
+通过具有扩散模型的多模态指令转换视频
+
+项目主页:https://chenhsing.github.io/VIDiff
+
+github项目主页:https://github.com/ChenHsing/VIDiff
+
+扩散模型在图像和视频生成领域取得了巨大的成功，这激发了人们对视频编辑任务的兴趣，比如根据提供的文本描述来编辑视频，然而，现有的大多数方法仅关注较短片段的视频编辑，并且依赖于耗时的微调或推理
+
+本文是第一个提出视频指令扩散(VIDiff/Video Instruction Diffusio)的，这是一种专为广泛的视频任务设计的统一基础模型，这些任务包括理解任务(例如语言引导的视频对象分割)和生成任务(视频编辑和增强)，模型可以根据用户指令在几秒钟内编辑和转换所需的结果
+
+此外，还设计了一种迭代自回归方法(iterative auto-regressive method)来确保编辑和增强的长视频的一致性
+
+实验结果证明，本文方法为不同的输入视频和指令都提供了令人信服的生成结果，无论是定性还是定量方面
+
+<img src="https://img.saraba1st.com/forum/202312/03/232630g0a4xfbuguh03wfr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232010__01.jpg</strong> (594.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:26 上传
+
+VIDiff，一种用于视频转换任务的通用模型，给定输入视频和人类指令，统一模型可以有效地完成视频重上色、模糊、去模糊、编辑、重绘和对象分割等任务
+
+<img src="https://img.saraba1st.com/forum/202312/03/232635yftutet8mex0thyd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232021__01.jpg</strong> (124.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:26 上传
+
+训练阶段概览图，展示了如何将T2I模型迁移到V2V转换任务
+(a)文本到图像阶段
+(b)文本到视频阶段
+(c)视频到视频阶段
+
+<img src="https://img.saraba1st.com/forum/202312/03/232646zdcadfxdcs3ppdts.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232021__02.jpg</strong> (75.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:26 上传
+
+多模态条件方法的概览图，在训练阶段，冻结CLIP-Text和CLIP-Vision编码器，仅微调MLP的参数
+
+<img src="https://img.saraba1st.com/forum/202312/03/232650kp8roqodkoe8tkz6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232049__01.jpg</strong> (488.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:26 上传
+
+VIDiff转换框架的工作流程，利用Stable Diffusion中的预训练自动编码器来获得潜在表征
+(a)在训练过程中，随机决定使用前几帧作为条件
+(b)第一个视频片段的推理
+(c)以视频的最后一帧为条件，可以迭代转换长视频
+
+<img src="https://img.saraba1st.com/forum/202312/03/232656xezn9g9qzjq0g90i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232056__01.jpg</strong> (245.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:26 上传
+
+不同文本驱动视频编辑方法的属性，对比了模型类型、附加控制、微调时间和应用范围
+
+<img src="https://img.saraba1st.com/forum/202312/03/232703tau7pqk6173osg7t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232056__02.jpg</strong> (157.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:27 上传
+
+与开源评估基线的定量对比，报告了定量和用户研究结果
+“Tuning”是指优化的过程，“Inference”时间包括反演和去噪时间
+
+<img src="https://img.saraba1st.com/forum/202312/03/232707vrbuuiw3933g5wbf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232112__01.jpg</strong> (444.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:27 上传
+
+两个条件输入的无分类器指导权重，sV控制与输入视频的相似度，而sT控制与编辑指令的一致性
+
+<img src="https://img.saraba1st.com/forum/202312/03/232710yodsojoq77yofj87.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232119__01.jpg</strong> (136.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:27 上传
+
+不同方法的评估数据集的定量结果，最佳项目和次佳项目分别以粗体和下划线突出显出
+
+<img src="https://img.saraba1st.com/forum/202312/03/232714a7qmvgvb466tcp73.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232132__01.jpg</strong> (150.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:27 上传
+
+视频增强的定量结果，还报告了通过使用VAE重建基准答案图像获得的上限基线，这表示了使用VAE模型可实现的性能上限
+
+<img src="https://img.saraba1st.com/forum/202312/03/232718taccofmcbokb4fry.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232132__02.jpg</strong> (521.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:27 上传
+
+自回归长视频转换的消融实验，VIDiff可以保持不同视频剪辑片段之间的时间一致性
+
+<img src="https://img.saraba1st.com/forum/202312/03/232722fgt7ezjgzebbkml7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-232140__01.jpg</strong> (63.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:27 上传
+
+多任务训练和多阶段迁移方法的消融实验，在四项任务上评估了本文模型，它表明联合的多任务训练和多阶段迁移显著提高了每个任务的性能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1017#       发表于 2023-12-3 23:55
+
+InstructSeq
+
+将视觉任务与指令条件多模态序列生成(Instruction-conditioned Multi-modal Sequence Generation)统一
+
+github项目主页:https://github.com/rongyaofang/InstructSeq
+
+使模型能够动态地完成用户通过自然语言指令指定的任务，这是一条通向更强大、更通用的人工智能的有希望的道路，在这项工作中，引入了InstructSeq，一种指令条件多模态建模框架，它通过灵活的自然语言控制以及视觉和文本数据的处理来统一不同的视觉任务
+
+InstructSeq采用多模态Transformer架构，涵盖视觉、语言和序列建模，利用视觉编码器来提取图像特征，并利用文本编码器来编码指令，自回归Transformer融合表征并生成序列的任务输出
+
+通过使用LLM生成的自然语言指令进行训练，InstructSeq获得了对用于指定视觉任务的自由格式指令的强大理解能力，这提供了一个直观的界面，可以使用灵活的自然指令来指导模型
+
+无需任何特定于任务的调整，InstructSeq在语义分割、引用表达分割/理解和图像字幕说明方面实现了引人注目的性能，灵活的控制和多任务统一将使模型更具有接近人类的通用性和计算机视觉的泛化能力
+
+<img src="https://img.saraba1st.com/forum/202312/03/235520l7fmth8kx7kntt34.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235014__01.jpg</strong> (231.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+InstructSeq包含视觉编码器、冻结的指令编码器和自回归Transformer，视觉编码器提取图像特征，而指令编码器对自由格式的文本指令进行编码，这些表征形式被输入到生成离散Token序列的Transformer，该架构允许模型生成各种输出类型，用以基于自然语言指令完成不同的视觉任务
+
+<img src="https://img.saraba1st.com/forum/202312/03/235524hqit8hbt6t4btif7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235123__01.jpg</strong> (24.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+在 FSS-1000基准上评估InstructSeq的分割能力
+
+<img src="https://img.saraba1st.com/forum/202312/03/235529n8118a4f6pm4hzac.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235128__01.jpg</strong> (213.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+InstructSeq与专用模型和其他通用模型的性能对比
+灰色单元格表示模型无法处理该任务
+*表示模型能够完成该任务，但未在基准测试中进行评估
+
+<img src="https://img.saraba1st.com/forum/202312/03/235533skkh12k12ha11zbk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235132__01.jpg</strong> (124.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+使用关于RefCOCO参考分割任务的新构造指令评估InstructSeq模型，InstructSeq-Template模型使用每个任务的固定指令模板进行训练，而基本设置InstructSeq-Full使用LLM扩展指令集进行训练，新的构造指令不包含在两个模型的训练集中
+
+<img src="https://img.saraba1st.com/forum/202312/03/235541dp5rll5fbfv7vuvp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235144__01.jpg</strong> (600.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+InstructSeq在跨越所有视觉任务中的定性结果
+
+<img src="https://img.saraba1st.com/forum/202312/03/235545gdldgxx7ff14dq74.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235149__01.jpg</strong> (78.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+InstructSeq在评估的每个任务期间对多个数字进行采样的结果
+
+<img src="https://img.saraba1st.com/forum/202312/03/235549ff8uobsbfw9b2b9u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235149__02.jpg</strong> (91.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+左:从InstructSeq模型生成的语义分割图
+右:Instruct-Seq token采样期间获得的置信图，黄色区域表示低置信度区域，紫色区域表示高置信度区域
+
+<img src="https://img.saraba1st.com/forum/202312/03/235553j7p98njv7o6czo96.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235153__01.jpg</strong> (119.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+InstructSeq 与专用模型和其他通用模型的性能对比
+
+<img src="https://img.saraba1st.com/forum/202312/03/235557ndlbdm3ildi7gldz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231203-235153__02.jpg</strong> (49.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-3 23:55 上传
+
+对包含所有任务的InstructSeq BASE训练和仅包含图像输出任务的训练进行的消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1018#       发表于 2023-12-4 02:35
+
+ 本帖最后由 Machinery 于 2023-12-4 02:42 编辑 
+
+ElasticDiffusion
+
+免训练任意尺寸图像生成
+
+github项目主页:https://github.com/MoayedHajiAli/ElasticDiffusion-official
+
+近年来，扩散模型彻底改变了图像生成，但目前为止依然仅限于少数的尺寸和长宽比，本文提出了ElasticDiffusion，一种新颖的免训练解码方法，可以使预训练的文本到图像扩散模型能够生成各种尺寸的图像
+
+ElasticDiffusion尝试将预训练模型的生成轨迹解耦为局部(local)和全局(global)信号，局部信号控制低层级像素信息，同时可以在局部区块(local patches)上进行估计(estimated)，而全局信号用于保持整体结构一致性，并使用参考图像进行估计
+
+在CelebA-HQ(面部)和LAION-COCO(物体/室内/室外场景)上测试了方法，实验和定性结果表明，MultiDiffusion与Stable Diffusion的标准解码策略相比，在纵横比上具有更卓越的图像一致性质量
+
+<img src="https://img.saraba1st.com/forum/202312/04/023317c9ooogqtx0o63nx8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022712__01.jpg</strong> (844.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:33 上传
+
+ElasticDiffusion使用在单图像大小上训练的预训练扩散模型生成任意大小的高质量图像，同时具有等效的显存占用且无需进一步训练，上图这些结果基于Stable Diffusion1.4，该模型经过训练原本只能生成512×512图像，而这些图中显示的示例未经过任何图像裁剪、拉伸或后处理策略
+
+<img src="https://img.saraba1st.com/forum/202312/04/023322lrssaqpqbzpp6b0q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022721__01.jpg</strong> (334.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:33 上传
+
+计算局部区块上扩散模型得分的各种策略的对比
+1.相邻区块(A)之间没有重叠会导致边界不连续
+2.策略(B)和(C)明确地重叠附近的区块，但需要大量重叠才能有效
+3.本文的隐式重叠方法(D)获得了与(B)类似的对于计算需求的优异结果
+
+<img src="https://img.saraba1st.com/forum/202312/04/023328t4574n7bnxag3nin.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022728__01.jpg</strong> (263.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:33 上传
+
+降低分辨率指导(RRG/Reduced-Resolution Guidance)的影响，以增加的权重的方式应用RRG可以有效消除新出现的伪影，尽管代价是输出稍微模糊，在δ=200时达成了很好的平衡
+
+<img src="https://img.saraba1st.com/forum/202312/04/023333kr6u36nb83p8hr48.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022728__02.jpg</strong> (158.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:33 上传
+
+重采样的影响，应用更多的重采样步骤可以显著增强生成图像的细节
+
+<img src="https://img.saraba1st.com/forum/202312/04/023337jn517g72o1odfx55.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022737__01.jpg</strong> (724.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:33 上传
+
+CelebAHQ面部在不同分辨率下的定性对比，ElasticDiffusion在所有分辨率下都能一致地生成连贯图像，Stable Diffusion和MultiDiffusion会在高分辨率生成重复的身体部位，而StableDiffusion-XL则无法在较低分辨率下保持其质量，导致256×256的输出结果出现噪声，同时排除了256×256的MultiDiffusion结果，因为它不是为在较低的分辨率下生成图像而设计的
+
+<img src="https://img.saraba1st.com/forum/202312/04/023341wjpfxcfco0bhtxbl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022755__01.jpg</strong> (327.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:33 上传
+
+各种纵横比的定性对比，ElasticDiffusion可以有效地处理各种纵横比，相比之下，SD和MultiDiffusion会生成不真实的图像，而SDXL的输出则会表现出可以感知的质量下降
+
+<img src="https://img.saraba1st.com/forum/202312/04/023346ap9x899p08s3cppv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022755__02.jpg</strong> (184.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:33 上传
+
+CelebA-HQ和LAION-COCO在不同分辨率下的定量对比，用粗体表示最佳表现，用下划线表示次佳表现，#Calls表示每个解码步骤所需的扩散模型调用的数量
+
+<img src="https://img.saraba1st.com/forum/202312/04/023350z0i94zi0nwl099i9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022812__01.jpg</strong> (147.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:33 上传
+
+不同纵横比(A)和分辨率(R)下LAION-COCO数据集的定量对比，用粗体表示最好的表现，用下划线表示次佳表现，Portrait意味着分辨率从H:W转换为W:H
+
+<img src="https://img.saraba1st.com/forum/202312/04/023516hni5ntt0tuucuttu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022817__01.jpg</strong> (30.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:35 上传
+
+对ElasticDiffusion进行的500张图像的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/04/023446fsuut5t3n5nkzdo6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-022812__02.jpg</strong> (105.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 02:34 上传
+
+全高清结果，本方法使SDXL能够生成连贯的全高清图像(1920×1080)，与产生重复纹理和元素的标准流程相反，ElasticDiffusion在较低分辨率应用全局指导来强制执行全局结构
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1019#       发表于 2023-12-4 18:42
+
+LVM
+
+序列建模(Sequential Modeling)以支持大型视觉模型(Large Vision Models)的可扩展学习(Scalable Learning)
+
+项目主页:https://yutongbai.com/lvm.html
+
+github项目仓库:https://github.com/ytongbai/LVM
+
+本文引入了一种新颖的序列建模方法，该方法可以在不使用任何语言数据的情况下进行大型视觉模型(LVM/Large Vision Models)学习，并为此定义了一种通用格式，“视觉句子(visual sentences)”，其中可以表示原始图像和视频以及带标注的数据源，在例如语义分割和深度重建等任务中，不需要除了像素之外的任何元知识(meta-knowledge)
+
+一旦将如此广泛的视觉数据(包含约4200亿个Token)表示为序列，就可以训练模型最小化下一个Token预测的交叉熵损失，通过跨越不同规模的模型架构和数据多样性进行训练，提供了经验证据，证明本文模型可以有效地扩展，通过在测试时设计合适的视觉提示可以解决许多不同的视觉任务
+————
+Visual Sentence启用了统一的视觉数据格式
+
+<img src="https://img.saraba1st.com/forum/202312/04/184039drt3ofqhtnskqzra.jpg" referrerpolicy="no-referrer">
+
+<strong>9686299f-712a-4a37-aa67-865b6b84534b.jpg</strong> (246.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:40 上传
+
+Visual Sentence允许将不同的视觉数据格式统一为图像序列结构
+————
+LVM展示了跨越模型和数据大小的可扩展性
+
+<img src="https://img.saraba1st.com/forum/202312/04/184053x4dua6fyap1jjcfn.jpg" referrerpolicy="no-referrer">
+
+<strong>training_loss_plot.jpg</strong> (288.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:40 上传
+
+300M、600M、1B和3B模型的训练损失，所有模型均在420B Token上进行训练，这些Token对应总共1.64B的图像，训练的缩放可以很好地拓展到不同模型大小
+
+<img src="https://img.saraba1st.com/forum/202312/04/184104vjum8z32jpmddj9m.jpg" referrerpolicy="no-referrer">
+
+<strong>semantic_segmentation_plot.jpg</strong> (248.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/04/184104sall14l646w5newe.jpg" referrerpolicy="no-referrer">
+
+<strong>depth_estimation_plot.jpg</strong> (233.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/04/184104jad4c66o27c7xdfm.jpg" referrerpolicy="no-referrer">
+
+<strong>Surface_Normal_plot.jpg</strong> (236.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/04/184104hlchfjl24kj2c2df.jpg" referrerpolicy="no-referrer">
+
+<strong>Edge_Detection_plot.jpg</strong> (259.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+更大的LVM在下游任务上表现更好，按照ImageNet验证集上的5样本设置，在4个不同的下游任务上评估了不同大小的LVM，并报告了困惑度，可以发现，所有任务中的模型越大，困惑度就越低，这表明其具有很强的可扩展性
+
+<img src="https://img.saraba1st.com/forum/202312/04/184117u667vp5vg717b151.jpg" referrerpolicy="no-referrer">
+
+<strong>dataset_ablation.jpg</strong> (200.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+使用ImageNet验证集评估了在数据集的不同子组成(sub-components)上训练的4个模型在任务上的困惑度，所有模型均为3B参数，所有评估均在5样本设置下进行，可以看到该模型受益于每个图像、视频和标注，这证明了训练数据集多样性的重要性
+————
+结果，一切尽在提示(prompt)
+
+<img src="https://img.saraba1st.com/forum/202312/04/184128zc66yz5dixc7drgd.jpg" referrerpolicy="no-referrer">
+
+<strong>videos.jpg</strong> (783.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+框架预测，LVM按照提示依据先前的视频帧来预测下一帧(以红色标记)，结果表明，LVM可以在考虑动态对象和摄像机运动的情况下预测视频帧
+
+<img src="https://img.saraba1st.com/forum/202312/04/184137x801by8r6h2kyky9.jpg" referrerpolicy="no-referrer">
+
+<strong>3fb0c959-dd50-4d13-9c4a-f6a36fe35f69.jpg</strong> (303.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+进出(In and out)分布提示的示例，每一行都是一个提示，其中包含一系列与标注交错的图像，并附加一个查询，最后一张图像是由模型预测的(以红色标记)，最后5行显示了查询图像对于其训练任务来说超出分布(out of distribution)的示例(绘画、草图等)
+
+<img src="https://img.saraba1st.com/forum/202312/04/184142kjfjzziujstcsdjr.jpg" referrerpolicy="no-referrer">
+
+<strong>complex_task_3.jpg</strong> (710.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+组合&amp;新任务，在一个提示中将多个任务组合在一起，在这里演示了旋转任务和新颖的关键点对应任务，并要求模型继续预测该模式
+————
+各种提示，猜猜接下来会发生什么？
+
+<img src="https://img.saraba1st.com/forum/202312/04/184155gyldh57s3h3ehayd.jpg" referrerpolicy="no-referrer">
+
+<strong>Guess_2.jpg</strong> (459.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:41 上传
+
+并不总是可以轻易用语言描述的任务
+
+<img src="https://img.saraba1st.com/forum/202312/04/184200mjxyzxaz78jf8d7z.jpg" referrerpolicy="no-referrer">
+
+<strong>raven_2.jpg</strong> (262.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:42 上传
+
+非语言的智商测试
+
+<img src="https://img.saraba1st.com/forum/202312/04/184204evz4lfl1fyur1ri1.jpg" referrerpolicy="no-referrer">
+
+<strong>misc.jpg</strong> (416.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 18:42 上传
+
+各种简单的视觉任务，例如对象复制(上方)、重新照明(中间)和放大(下方)，都可以通过适当选择的Visual Sentence提示来简单地指定并将任务表达给LVM
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1020#       发表于 2023-12-4 19:56
+
+ 本帖最后由 Machinery 于 2023-12-4 19:59 编辑 
+
+vip-llava
+
+让大型多模态模型理解任意视觉提示(Arbitrary Visual Prompts)
+
+项目主页:https://vip-llava.github.io/
+
+演示Demo:https://pages.cs.wisc.edu/~mucai/vip-llava.html
+
+github项目代码仓库:https://github.com/mu-cai/vip-llava
+
+系列模型权重下载:https://github.com/mu-cai/ViP-LLaVA/blob/main/docs/MODEL_ZOO.md
+
+现有的大型视觉语言多模态模型专注于整张的图像理解，这也致使在实现特定区域的理解方面存在显著的差距，当前方法使用的诸如文本坐标或空间编码的方法通常无法为用户提供友好的视觉提示交互
+
+为了应对这一挑战，本文引入了一种新颖的多模态模型，能够解码任意视觉提示，这允许用户直观地标记图像并使用“红色边界框(red bounding box)”或“尖箭头(pointed arrow)”等自然提示与模型交互
+
+通过直接将视觉标记覆盖到RGB图像上这样的简单设计，无需复杂的区域编码，在Visual7W、PointQA和Visual Commonsense Reasoning基准测试等区域理解任务上实现了SOTA性能
+
+此外，还推出了ViP-Bench，一个综合基准测试，用于评估模型在多个维度理解视觉提示的能力，从而促进该领域的未来研究
+————
+ViP-LLaVA直接将视觉提示与原始图像叠加，然后将图像输入多模态模型，这个方法有几个好处:
+
+简单的设计:不需要特定区域编码模块
+可以推广到任意视觉提示:用户可以绘制任意的视觉提示，如涂鸦、圆圈和点
+
+<img src="https://img.saraba1st.com/forum/202312/04/195423a6h9x399brrh34in.jpg" referrerpolicy="no-referrer">
+
+<strong>b2f81964-e66e-405f-bce2-54a42fd2bfab.jpg</strong> (142.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 19:54 上传
+
+在训练过程中使用了8种不同的视觉提示，包括蒙版轮廓、椭圆、边界框、三角形、涂鸦、点、箭头和蒙版(mask contour, ellipse, bounding box, triangle, scribble, point, arrow, and mask)，注意，各种提示不仅具有不同的形状，而且还具有不同的颜色、透明度值、宽度、大小和方向
+
+<img src="https://img.saraba1st.com/forum/202312/04/195443v13nj55iq8356n83.jpg" referrerpolicy="no-referrer">
+
+<strong>acfaf39a-d099-4e4e-b3b6-65dd456ca606.jpg</strong> (118.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 19:54 上传
+
+————
+表现
+
+传统的区域级基准测试：ViP-LLaVa实现了SOTA性能
+
+<img src="https://img.saraba1st.com/forum/202312/04/195506fcuvye7yenucw1ed.png" referrerpolicy="no-referrer">
+
+<strong>visual7w_pointqa_results.png</strong> (299.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 19:55 上传
+
+ViP-Bench:开源模型中的SOTA
+
+ViP-Bench是第一个零样本区域级基准测试，全面评估多模态模型理解视觉提示的能力，ViP-Bench由303个样本组成，评估识别、OCR、知识、数学、对象关系推理和语言生成等6项能力
+ViP-Bench有两种格式:(1)边界框格式，(2)人工标注的任意视觉提示
+
+<img src="https://img.saraba1st.com/forum/202312/04/195527cyx1x1z43cy1o65b.jpg" referrerpolicy="no-referrer">
+
+<strong>01cc796e-3c25-48c9-bac9-de25bfb952e5.jpg</strong> (115.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 19:55 上传
+
+GPT-4V仍然是零样本视觉提示理解中最强的多模态模型，ViP-LLaVA在ViP-Bench上显示出令人印象深刻的性能，大多数的特定区域多模态模型(例如Kosmos-2)甚至表现出比图像级多模态模型更低的性能
+
+<img src="https://img.saraba1st.com/forum/202312/04/195609ahl6prb2tldjlhw9.png" referrerpolicy="no-referrer">
+
+<strong>vip-bench-results.png</strong> (443 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 19:56 上传
+
+————
+视觉提示理解示例
+
+<img src="https://img.saraba1st.com/forum/202312/04/195643z2n8lhh2o622n885.png" referrerpolicy="no-referrer">
+
+<strong>vip-example.png</strong> (1001.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 19:56 上传
+
+这里关注了一些GPT-4V无法识别的视觉提示，而ViP-LLaVA则成功的情况，然而在大多数用例下，GPT-4V在视觉提示理解方面表现出了稳健和强大的性能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1021#       发表于 2023-12-4 22:07
+
+VideoBooth
+
+带有图像提示(Image Prompts)的基于扩散的视频生成
+
+项目主页:https://vchitect.github.io/VideoBooth-project/
+
+github项目仓库:https://github.com/Vchitect/VideoBooth
+
+当前，文本驱动的视频生成得到了快速进步，然而，仅使用文本提示不足以准确描述符合用户意图的所需主题外观(subject appearance)，尤其是对于定制内容创造而言
+
+在本文中，研究了带有图像提示的视频生成任务，这提供了超越文本提示的更准确和直接的内容控制，具体来说，提出了一个前馈框架(feed-forward framework)VideoBooth，包含两个专用设计:
+
+1.以从粗到细的方式嵌入图像提示，来自图像编码器的粗略视觉嵌入(Coarse visual embeddings)提供了图像提示的高层级(high-level)编码，而来自所提出的注意注入模块(attention injection module)的精细视觉嵌入提供了图像提示的多尺度和详细信息编码，这两个互补的嵌入可以忠实地捕捉所需的外观
+
+2.在精细级别(fine level)的注意力注入模块中，多尺度图像提示被作为附加键(keys)和值(values)输入到不同的跨帧注意力层中，这种额外的空间信息细化了第一帧中的细节，然后传播(propagated)到剩下的其他帧中，从而保持了时间一致性
+
+大量实验表明，VideoBooth在生成具有图像提示中指定主题的定制高质量视频方面实现了SOTA性能，VideoBooth还是一个通用框架，其中单个模型适用于具有前馈传递的各种图像提示
+
+<img src="https://img.saraba1st.com/forum/202312/04/220654uqt3118trjs9j3qq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220209__01.jpg</strong> (622.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:06 上传
+
+通过图像提示合成的视频，VideoBooth可以生成具有图像提示中指定主题的视频
+
+<img src="https://img.saraba1st.com/forum/202312/04/220737jh5ohjbuql7l57tl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220218__01.jpg</strong> (395.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:07 上传
+
+图像提示的使用，使用不同类型的提示生成了三个视频剪辑片段：简单文本提示、长文本提示和图像提示，使用LLaVa模型生成具有描述图像提示外观的文本提示，单独使用文字提示并不能完全捕捉图像提示的视觉特征
+
+<img src="https://img.saraba1st.com/forum/202312/04/220635strl29kr2qsaz1a1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220232__01.jpg</strong> (401.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:06 上传
+
+VideoBooth概览图，首先，以图像提示I和文本提示T作为输入来生成视频，图像提示被输入CLIP图像编码器，然后是MLP层，之后将获得的粗略视觉嵌入fI插入到文本嵌入中，组合的嵌入则作为交叉注意力的输入，编码器提取的嵌入提供了图像提示的视觉外观的粗略编码，为了进一步细化生成视频中的细节，在精细级别上，将图像提示的潜在表征作为附加的键和值附加到跨帧注意力中，不同的跨框帧注意力层接收不同尺度的潜在表征，具有空间细节的多尺度特征细化了合成细节
+
+<img src="https://img.saraba1st.com/forum/202312/04/220848p99sn0ny2ajza7en.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220244__01.jpg</strong> (214.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:08 上传
+
+精细的视觉嵌入细化，将图像提示的潜在表征(这里使用图像用于说明目的)直接注入到跨帧注意力模块中，首先使用图像提示中的键和值来更新第一帧的值然后，第一帧的更新值用于更新其余帧，在跨帧注意力中注入图像提示有助于将图像提示的详细视觉特征转移到合成帧中，通过在不同尺度的不同交叉注意力层中进行细化
+
+<img src="https://img.saraba1st.com/forum/202312/04/220631q78n1mhozi8tm9bh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220301__01.jpg</strong> (739.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:06 上传
+
+定性对比，Video Booth有效保留了图像提示的保真度，实现了更好的视觉质量
+
+<img src="https://img.saraba1st.com/forum/202312/04/220625myz1u8uu8z1s663t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220306__01.jpg</strong> (82.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:06 上传
+
+定量对比，VideoBooth实现了最佳的图像对齐和可比的文本对齐性能
+
+<img src="https://img.saraba1st.com/forum/202312/04/220621qwk86obnarr4637b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220306__02.jpg</strong> (62.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:06 上传
+
+用户研究，VideoBooth在所有三个维度上都实现了最高的用户偏好比
+
+<img src="https://img.saraba1st.com/forum/202312/04/220617hp4pplaf201qie55.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220324__01.jpg</strong> (266.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:06 上传
+
+消融实验
+(A)仅使用图像编码器的粗略嵌入，狗的身体生成的图案与图像提示不同
+(B)由于注意力注入仅具有精细嵌入，因此缺乏用于注意力注入模块进行细化的狗的粗略编码，生成的狗在之后的合成帧中会扭曲
+(C)统一训练降低了图像编码器的能力，因此狗也被扭曲了
+(D)完整模型更好地保留了图像提示的所有视觉细节
+
+<img src="https://img.saraba1st.com/forum/202312/04/220611vsui0usy7vr7u700.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231204-220324__02.jpg</strong> (54.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 22:06 上传
+
+消融实验，完整模型得分最高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1022#       发表于 2023-12-5 03:05
+
+ 本帖最后由 Machinery 于 2023-12-5 03:06 编辑 
+
+Merlin
+
+以远见卓识增强多模态LLM
+
+项目主页:https://ahnsun.github.io/merlin/
+
+github项目代码仓库:https://github.com/Ahnsun/merlin
+
+人类拥有根据当前的观察在一定程度上预见未来(foresee the future)的非凡能力，这被称之为远见思维(foresight minds)，然而，这种能力在现有的多模态大型语言模型(MLLM)中仍处于探索之中，这阻碍了它们学习事物如何运作的基本原理(fundamental principles of how things operate)以及观察隐藏在对象背后的意图的能力(intentions behind the observed subjects)
+
+为了解决这个问题，通过将未来建模(future modeling)整合到MLLM现有的学习框架中，利用主题轨迹(subject trajectory)，一种连续帧序列(consecutive frame sequence)的高度结构化表征(highly structured representation)作为学习目标，目的是弥补过去与未来之间的差距
+
+提出了两种创新方法来增强MLLM的远见思维，即远见预训练(FPT/Foresight Pre-Training)和远见指令调整(FIT/Foresight Instruction-Tuning)，其灵感来自于LLM的现代学习范式
+
+具体来说，FPT联合训练多种以轨迹为中心的任务，使MLLM能够学习如何根据给定的初始观察来关注和预测整个轨迹，然后，FIT要求MLLM首先预测相关对象的轨迹，然后根据它们推理潜在的未来事件，在FPT和FIT的帮助下，构建了一个新颖且统一的MLLM，名为Merlin，它支持多图像输入和分析多个对象的潜在动作，以供未来推理
+
+实验结果表明，Merlin具有强大的远见思维，在未来推理和视觉理解任务上都有令人印象深刻的表现
+
+<img src="https://img.saraba1st.com/forum/202312/05/025930tzh474307h3p4ap7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025058__01.jpg</strong> (658.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 02:59 上传
+
+Merlin的Demo演示案例，这里展示了Merlin的几个主要能力，值得注意的是，在对话中，用颜色标记的单词对应于图像中目标的轨迹输出，为了节省空间，使用相同的颜色突出显示它们
+
+<img src="https://img.saraba1st.com/forum/202312/05/025951w87xrlx8xr4u9y98.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025108__01.jpg</strong> (292.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 02:59 上传
+
+关于GPT-4V的未来推理失败案例
+
+<img src="https://img.saraba1st.com/forum/202312/05/025957hbcydcdcd5pdfzkz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025122__01.jpg</strong> (436.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 02:59 上传
+
+Merlin的整体工作流程，架构主要由三个组件组成:
+(1)图像编码器
+(2)大型语言模型
+(3)模态对齐的投影器(modality-align projector)
+
+上方:模型响应，包括预测轨迹和特征推理
+下方:支持多图像上下文、初始观察和特定用户提示的多样化输入格式
+
+<img src="https://img.saraba1st.com/forum/202312/05/030004dzhi8w5rqcmiziww.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025131__01.jpg</strong> (232.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:00 上传
+
+用一个例子来说明多模态预训练数据集，顶部展示了提供的上下文，包括多个图像上下文和关于主题的初始观察(框、外观和动作)用以提示LLM，底部显示包括问题和答案的对话
+
+<img src="https://img.saraba1st.com/forum/202312/05/030014g7mwrx38wg0x3s0x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025142__01.jpg</strong> (402.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:00 上传
+
+未来推理的有效性，从MMBench开发和测试集中分别选择5个指标，包括OL：对象定位、PPR：物理属性推理、FR：功能推理、IR：身份推理、FP：未来预测
+
+最好和第二好的表现分别以粗体和下划线显示
+
+<img src="https://img.saraba1st.com/forum/202312/05/030022tzu7qts3f09u7utl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025147__01.jpg</strong> (127.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:00 上传
+
+Merlin与可用追踪方法的对比，值得注意的是，Merlin仅使用了相关跟踪数据集中的一小部分样本数据进行训练，而不是完整数据
+
+<img src="https://img.saraba1st.com/forum/202312/05/030050t313nrrrish5rrnp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025157__01.jpg</strong> (273.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:00 上传
+
+COCO验证集上的零样本物体幻觉评估，“yes”代表模型输出的正面答案的比例
+
+<img src="https://img.saraba1st.com/forum/202312/05/030058mydqyimsws9essj2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025203__01.jpg</strong> (148.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:00 上传
+
+在主要的MLLM基准测试上与SOTA方法进行对比，对于VQA任务，主要选择GQA和VisWiz来评估模型； 对于通常评估，主要选择MMBench和MM-Vet
+
+†为使用不可公开访问的内部数据
+
+<img src="https://img.saraba1st.com/forum/202312/05/030343p9utofucsuuza6tu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025210__01.jpg</strong> (267.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:03 上传
+
+注意力图可视化，为了便于观察，将注意力映射到了每帧的框响应和视觉Token之间以进行可视化
+
+<img src="https://img.saraba1st.com/forum/202312/05/030458jcrpje661jbuferc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025216__01.jpg</strong> (80.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:04 上传
+
+关于Merlin中提出的策略的消融实验
+(ITP：图像文本对数据，ITD：指令调整数据)，主要报告GOT10k的AO分数和未来推理的平均分数
+
+<img src="https://img.saraba1st.com/forum/202312/05/030503qhw92ubdiwdjjz7d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025227__01.jpg</strong> (256.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:05 上传
+
+所有训练数据
+
+Cap.:Captioning、Ref.:Referring(包含REC、REG和Referring Tracking)、Det.: Detection、Track:Tracking(包括单对象跟踪/SOT和多对象跟踪/MOT)、Rea.:Reasoning ，Dia.:Dialogue
+
+*表示该数据仅在SFT阶段使用
+
+<img src="https://img.saraba1st.com/forum/202312/05/030511d4ccxqcq1syzix1m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025241__01.jpg</strong> (506.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:05 上传
+
+数据格式可视化，在训练中，使用了涉及多个任务的数据集，为了说明这些数据集的结构，从每个数据集中选择了一个示例，值得一提的是，所有关于框的信息都已调整为1000的标准范围，在示例中，问题以黑色文本显示，答案以蓝色文本显示，负样本以红色文本显示
+
+<img src="https://img.saraba1st.com/forum/202312/05/030520txx2zoooz1noiq3i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025252__01.jpg</strong> (110.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:05 上传
+
+Merlin的训练超参数，位于中间的超参数表示该超参数在两个阶段中都使用
+
+<img src="https://img.saraba1st.com/forum/202312/05/030525rccc7onnogty9yby.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025403__01.jpg</strong> (22.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:05 上传
+
+具有(w)和不具有(w/o)精确任务描述的Merlin之间的对比，主要报告了GOT10K的AO分数和未来推理的平均分数
+
+<img src="https://img.saraba1st.com/forum/202312/05/030531oxev2ep4y8kguz4f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025412__01.jpg</strong> (299.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:05 上传
+
+在图像级任务中使用Merlin进行更多对话可视化，展示了Merlin熟练处理各种图像级任务的其他示例，包括通常检测、开放词汇检测(OV-Detection)、指称表达理解(REC)、指称表达生成(REG)和关系推理
+
+<img src="https://img.saraba1st.com/forum/202312/05/030539uz0qkajzzwqjqqa1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025423__01.jpg</strong> (308.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:05 上传
+
+在视频级任务中使用Merlin进行更多对话可视化，展示了Merlin熟练处理各种视频级任务的其他示例，包括通常追踪、视频引用表达理解(Video REC)和视频引用表达生成(Video REG)
+
+<img src="https://img.saraba1st.com/forum/202312/05/030544ah5dp60pi15elq0d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-025430__01.jpg</strong> (288.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 03:05 上传
+
+使用Merlin进行更多未来推理对话可视化
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1023#       发表于 2023-12-5 13:44
+
+ 本帖最后由 Machinery 于 2023-12-5 13:45 编辑 
+
+Mamba
+
+选择性状态空间的线性时间(Linear-Time)序列建模方法
+
+github项目代码仓库:https://github.com/state-spaces/mamba
+
+相关介绍文章:https://mp.weixin.qq.com/s?__biz=MzI3MTA0MTk1MA==&amp;mid=2652414828&amp;idx=1&amp;sn=401e5e7adcf037a2c1b4167e8b616d5b
+
+基础模型现在已经成为深度学习中大多数令人兴奋的应用程序的核心支持组件，同时几乎普遍基于Transformer架构及其核心的注意力模块，许多的次二次时间(subquadratic-time)架构，例如线性注意力(linear attention)、门控卷积(gated convolution)和循环模型(recurrent models)以及结构化状态空间模型(SSM/structured state space models)已被开发出来，用以解决Transformer在长序列上的计算效率低下问题，但它们在重要模态下，例如语言的关注不足
+
+此类模型的一个关键弱点是它们无法执行基于内容的推理，并进行了一些改进，首先，简单地让SSM参数作为输入的函数，可以解决其离散模态的弱点，允许模型根据当前Token选择性地沿序列长度维度传播或遗忘信息，其次，尽管这种变化阻止了高效卷积的使用，但通过在循环模式(recurrent mode)下设计了一种硬件感知的并行算法，将这些选择性SSM集成到简化的端到端神经网络架构中，无需注意力机制，甚至不需要MLP模块，Mamba拥有快速推理(吞吐量比Transformer高5倍)和序列长度线性缩放，并且其性能可以在高达百万长度序列的实际数据上继续得到提高
+
+作为通用序列模型骨干，Mamba在语言、音频和基因等多种模态上实现了SOTA性能，在语言建模方面，Mamba-3B模型在预训练和下游评估方面都优于相同大小的Transformer，并且可以与两倍大小的Transformer性能相匹配
+
+github说明页:
+
+<img src="https://img.saraba1st.com/forum/202312/05/134429w75ugd5dpdxcyccr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-134109.jpg</strong> (162.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 13:44 上传
+
+<img src="https://img.saraba1st.com/forum/202312/05/134429fdaz69eshqbbzsvb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-134130.jpg</strong> (114.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 13:44 上传
+
+<img src="https://img.saraba1st.com/forum/202312/05/134429u8vzvxcwr6n1n11n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-134138.jpg</strong> (263.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 13:44 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1024#       发表于 2023-12-5 19:36
+
+ 本帖最后由 Machinery 于 2023-12-5 19:38 编辑 
+
+StyleCrafter
+
+使用样式适配器(Style Adapter)增强风格化的文本到视频的生成
+
+项目主页:https://gongyeliu.github.io/StyleCrafter.github.io/
+
+github项目仓库:https://github.com/GongyeLiu/StyleCrafter
+
+文本到视频(T2V/Text-to-video)模型在生成多样化视频方面表现出了卓越的能力，然而，由于(i)文本固有的不足，很难表达特定风格以及(ii)风格保真度的普遍下降，致使用户很难制作渴望的风格化视频
+
+为了应对这些挑战，本文引入了StyleCrafter，一种通用方法，可以通过风格控制适配器增强预训练的T2V模型，通过提供参考图像来生成任何风格的视频
+
+考虑到风格化视频数据集的稀缺性，首先使用风格丰富的图像数据集训练风格控制适配器(style control adapter)，然后通过定制的微调范式将学习到的风格化能力转移到视频生成，为了促进内容与风格的解耦，还从文本提示中删除了风格描述，并使用解耦学习策略(decoupling learning strategy)仅从参考图像中提取风格信息
+
+此外，设计了一个尺度自适应的融合模块来平衡基于文本的内容特征和基于图像的风格特征的影响，这有助于泛化各种文本和风格组合，StyleCrafter有效生成了高质量的风格化视频，这些视频与文本内容一致并类似于参考图像的风格
+
+实验表明，本文方法比现有的其他竞争方法更加灵活和高效
+
+<img src="https://img.saraba1st.com/forum/202312/05/193137qugaygcustdbywba.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192454__01.jpg</strong> (416.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:31 上传
+
+将样式适配器添加到T2V模型的效果
+(a)和(b)分别是Stable Diffusion和VideoCrafter的结果
+(c)是配备风格适配器的VideoCrafter的结果，内容文字提示为“A knight riding a horse through the field”
+对于(a)和(b)，风格提示是使用GPT4V从风格图像生成的
+
+<img src="https://img.saraba1st.com/forum/202312/05/193144jqfcj6fqc26g24q4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192508__01.jpg</strong> (241.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:31 上传
+
+提案的风格适配器的概览图，它由三个组件组成，即风格特征提取器(style feature extractor)、双交叉注意力模块(dual cross-attention module)和上下文感知的缩放系数预测器(context-aware scale factor predictor)
+
+<img src="https://img.saraba1st.com/forum/202312/05/193150r1qzdygmmuvygjpc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192521__01.jpg</strong> (166.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:31 上传
+
+跨越多个输入对(input pairs)的内容风格融合缩放系数的图示，随机选择4个提示id ∈ [0, 3]的短提示(小于5个单词)和4个提示id ∈ [4, 7]的长提示(大于8个单词)，结果表明，较短的提示和具有丰富样式语义的图像往往具有相对较高的缩放系数
+
+<img src="https://img.saraba1st.com/forum/202312/05/193321egnbbxqv4244xvq3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192536__01__01__01__01.jpg</strong> (540.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202312/05/193321axwh34fqpco3fppq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192536__01__01__01__02.jpg</strong> (574.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:33 上传
+
+风格引导的T2I生成的视觉对比
+所有方法都使用四种风格和三种内容文本进行测试:(i) A person jogging along a scenic trail; (ii) A colorful butterfly resting on a flower; (iii) An ancient temple surrounded by lush vegetation.
+
+<img src="https://img.saraba1st.com/forum/202312/05/193331d4bov42o9zfof49r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192546__01.jpg</strong> (48.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:33 上传
+
+单参考风格引导的T2I生成的定量对比，在400对测试集上评估了文本对齐(Text)和风格一致性(Style)的CLIP分数，粗体是最好的结果
+
+<img src="https://img.saraba1st.com/forum/202312/05/193340r57965li22li67rl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192554__01.jpg</strong> (809.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:33 上传
+
+对风格样式和文本提示的单参考风格引导T2V生成结果进行定性比较
+
+<img src="https://img.saraba1st.com/forum/202312/05/193345fprw7fwopuugcb2d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192602__01__01.jpg</strong> (70.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:33 上传
+
+风格引导的T2V生成的定量对比，在240对测试集上评估了图像文本对齐(Text)、样式一致性(Style)和时间质量(Temporal)的CLIP分数和用户偏好，粗体是最好的结果
+Vid.Com.: VideoComposer, Vid.Craf.: VideoCrafter
+
+<img src="https://img.saraba1st.com/forum/202312/05/193352jhf0n5mehmf5e00o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192612__01.jpg</strong> (774.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:33 上传
+
+多参考风格引导的T2V生成在各种风格和文本提示上的定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/05/193358c114zg0gm6gm1u85.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192619__01.jpg</strong> (83.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:33 上传
+
+多参考风格引导的T2V生成的定量对比，在60对测试集上评估了图像文本对齐(Text)、风格一致性(Style)和时间质量(Temporal)的CLIP分数和用户偏好，粗体是最好的结果
+S-R:单参考了/Single-Reference，M-R:多参考/Multi-Reference
+
+<img src="https://img.saraba1st.com/forum/202312/05/193846lge1x2952s2bo2g4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-193749.jpg</strong> (59.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:38 上传
+
+风格调制设计的消融实验，性能是根据风格引导的T2I生成进行评估的
+
+<img src="https://img.saraba1st.com/forum/202312/05/193516l35jn13q1ojj36h4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192640__01.jpg</strong> (179.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:35 上传
+
+双交叉注意力和数据增强效果的视觉对比，消除双交叉注意力往往会融合参考图像中的内容，而不使用数据增强则无法捕获“3D render”风格特征
+
+<img src="https://img.saraba1st.com/forum/202312/05/193545r3nv0pqpvnaguzj0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192644__01.jpg</strong> (199.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:35 上传
+
+适配内容风格融合的视觉检查效果，它在泛化方面表现出对极端用例输入情况的优越性，例如长文本描述，使用两个文本提示:(i) A little girl; (ii) A little girl reading a book in the park, with a telescope nearby pointed at the sky.
+
+<img src="https://img.saraba1st.com/forum/202312/05/193600ubg8gtcgwxwhcycg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192640__02.jpg</strong> (48.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:36 上传
+
+两阶段训练计划的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/05/193613t8dqe3ed7ns8srrt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231205-192640__03.jpg</strong> (233.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-5 19:36 上传
+
+不同训练方案的效果对比  
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  2624135228  
+##### 1025#       发表于 2023-12-5 23:14
+
+wat
+
+
+*****
+
+####  Machinery  
+##### 1026#       发表于 2023-12-6 03:26
+
+Magicoder
+
+源代码就是您所需要的
+
+github项目主页:https://github.com/ise-uiuc/magicoder
+
+Magicoder，一系列的完全开源(代码、权重和数据)代码大型语言模型(LLM)，可显著缩小与顶级代码模型的差距，同时参数不超过7B
+
+Magicoder模型使用OSS-Instruct在75K合成指令数据上进行训练，这是一种利用开源代码片段(open-source code snippets)启发LLM以生成高质量代码指令数据的新方法，主要动机是通过为LLM提供丰富的开源参考资料来生成更多样化、更真实、更可控的数据，从而减轻LLM生成的合成数据的固有偏差
+
+OSS-Instruct和其他数据生成方法(如Evol-Instruct)的正交性(orthogonality)使之能够进一步构建增强的MagicoderS，Magicoder和MagicoderS在各种编码基准测试(包括Python文本到代码生成、多语言编码和数据科学编程代码完成)上都远远优于相似甚至更大尺寸的SOTA代码模型
+
+值得注意的是，基于CodeLlama的MagicoderS-CL-7B甚至超过了HumanEval+上著名的ChatGPT(pass@1准确率66.5对比65.9)，总体而言，OSS-Instruct利用丰富的开源参考为低偏差的高质量指令调整开辟了新方向
+
+<img src="https://img.saraba1st.com/forum/202312/06/032523tp5gf5cmpm5uggzk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032037__01.jpg</strong> (425.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:25 上传
+
+OSS-INSTRUCT概览，以及其他不同LLM在HumanEval(+)上的pass@1结果
+
+<img src="https://img.saraba1st.com/forum/202312/06/032527j1n0xnnwf09xxqwf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032045__01.jpg</strong> (346.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:25 上传
+
+OSS-INSTRUCT的详细提示设计
+
+<img src="https://img.saraba1st.com/forum/202312/06/032532k5zmwugmyhm55ygu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032110__01.jpg</strong> (262.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:25 上传
+
+展示了OSS-INSTRUCT如何从种子代码片段生成问题和解决方案的示例，为了简洁起见，省略了完整的问题要求、完整的实现和解释等细节
+
+<img src="https://img.saraba1st.com/forum/202312/06/032537jlwz8hhawqap22ut.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032118__01.jpg</strong> (116.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:25 上传
+
+OSS-INSTRUCT的类别构成
+
+<img src="https://img.saraba1st.com/forum/202312/06/032542bb18ha4mmh3hgb1u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032118__02.jpg</strong> (53.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:25 上传
+
+OSS-INSTRUCT生成的问题和解决方案的Token计数分布
+
+<img src="https://img.saraba1st.com/forum/202312/06/032550orufsjnczd95unnw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032118__03.jpg</strong> (70.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:25 上传
+
+HumanEval与不同数据生成方法之间的余弦相似度对比
+
+<img src="https://img.saraba1st.com/forum/202312/06/032554hbb8744l4l86dl4l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032132__01.jpg</strong> (404.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:25 上传
+
+通过贪婪解码计算的HumanEval(+)和MBPP(+)数据集上不同LLM的Pass@1百分比结果，缩写“CL”和“SC”分别指代基本模型CODELLAMA-PYTHON和StarCoder，报告的结果与EvalPlus排行榜一致
+
+<img src="https://img.saraba1st.com/forum/202312/06/032558qc5iifriiejr77o5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032140__01.jpg</strong> (239.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:25 上传
+
+按照WizardCoder论文相同的超参数设置，在MultiPL-E上评估的不同LLM的Pass@1结果：temperature=0.2，top_p=0.95，max_length=512，num_samples=50，使用bigcode-evaluation-harness评估了所有的7B模型，并报告了WizardCoder论文中的其他结果
+
+<img src="https://img.saraba1st.com/forum/202312/06/032602qhomqo9j9gc5azkq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032148__01.jpg</strong> (239.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:26 上传
+
+DS-1000上的Pass@1结果(补完格式)，temperature=0.2、top_p=0.5、max_length=1024、num_samples=40，遵循WizardCoder论文中使用的相同超参数设置，使用其首选的提示格式评估所有的7B模型，并报告了WizardCoder的其他结果
+
+<img src="https://img.saraba1st.com/forum/202312/06/032607s66mjsjrdyxq4qij.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032152__01.jpg</strong> (187.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:26 上传
+
+Magicoder和DeepSeek-Coder在HumanEval(+)和MBPP(+)上的Pass@1(贪婪解码)对比，DeepSeek-Coder结果由EvalPlus排行榜报告
+
+<img src="https://img.saraba1st.com/forum/202312/06/032611xettrmwhootpbra8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032159__01.jpg</strong> (98.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:26 上传
+
+使用不同编程语言作为训练数据的消融实验，展示了Python的HumanEval+上的Pass@1结果以及表2中使用的同一组编程语言的MultiPL-E上的平均Pass@1结果(即Java、JavaScript、C++、PHP、Swift和Rust)，所有变体都经过2个epoch的微调，并通过贪婪解码进行评估
+
+<img src="https://img.saraba1st.com/forum/202312/06/032616ioyowkoowtg6gox5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-032159__02.jpg</strong> (59.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 03:26 上传
+
+以CODELLAMA-PYTHON-7B为基础模型的情况下的OSS-INSTRUCT与直接对comment-function对(pairs)进行微调的对比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1027#       发表于 2023-12-6 04:08
+
+RLHF-V
+
+从细粒度的矫正人类反馈(Fine-grained Correctional Human Feedback)进行行为对齐(Behavior Alignment)从而迈向值得信赖的MLLM
+
+项目主页:https://rlhf-v.github.io
+
+github项目主页:https://github.com/RLHF-V/RLHF-V
+
+多模态大语言模型(MLLM)最近在多模态理解、推理和交互方面表现出了令人印象深刻的能力，然而，现有的MLLM普遍存在严重的幻觉问题，生成的文本实际上并不基于相关图像，这个问题使得现有的MLLM并不值得信任，因此在现实世界(尤其是高风险)应用的想法不切实际
+
+为了应对这一挑战，本文提出了RLHF-V，它通过细粒度的矫正人类反馈的行为对齐来增强MLLM的可信度，具体来说，RLHF-V以对幻觉进行分段级校正(segment-level corrections)的形式收集人类偏好，并对人类反馈进行密集的直接偏好优化(direct preference optimization)
+
+对自动和人工评估中的五个基准测试的综合实验表明，RLHF-V可以实现更值得信赖的MLLM行为，并具有良好的数据和计算效率，值得注意的是，在只使用1.4k个带标注的数据样本的情况下，RLHF-V将基础MLLM的幻觉率显著降低了34.8%，优于在10k个带标注数据上训练的并发LLaVA-RLHF，其最终模型在开源MLLM中的可信度方面达到了SOTA性能，并且在防止过度泛化引起的幻觉方面表现出了比GPT-4V更好的稳健性
+
+<img src="https://img.saraba1st.com/forum/202312/06/040808zky21yp3c48m5r31.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-040529__01.jpg</strong> (361.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:08 上传
+
+用于根据人类反馈调整MLLM行为的RLHF-V框架
+(1)给定输入图像和提示，从MLLM获得输出，并从幻觉的细粒度分段级校正的形式收集人类反馈
+(2)在人类偏好学习过程中，对细粒度的矫正人类反馈进行密集的直接偏好优化
+
+<img src="https://img.saraba1st.com/forum/202312/06/040812cbzc7szunh72hnzw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-040544__01.jpg</strong> (279.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:08 上传
+
+关于幻觉的主要实验结果，报告了不同粒度的幻觉率，包括响应级/response-level(Resp.)和提及级/mention-level(Mention)，以及不同类型的响应级/response-level幻觉率，还展示了信息/informativeness(Info.)、多模态对话/multimodal conversation(Conv.)、详细描述/detailed description(Detail)和复杂推理/complex reasoning(Comp.)方面的分数
+*表示VQAv2.2上的零样本结果，最好和第二好的开源结果分别以粗体和下划线显示
+
+<img src="https://img.saraba1st.com/forum/202312/06/040816opcp8es0cazsd5x5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-040555__01.jpg</strong> (201.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:08 上传
+
+Object HalBench上的过度泛化产生幻觉的实验结果，对于每个场景，报告了在完整基准测试(Ha)和场景下(Hs)的top-10常见物体的平均幻觉率，为了简洁起见，为每个场景列出了最常见的6个对象
+Δ:幻觉率差异，Δ:跨越场景的平均差异
+
+<img src="https://img.saraba1st.com/forum/202312/06/040820ethwjgwzuwl9bu6h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-040559__01.jpg</strong> (111.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:08 上传
+
+MHumanEval(所有类型)上的相对于偏好数据量的幻觉率和数量，报告了在不同RLHF数据上训练的不同模型的结果
+
+<img src="https://img.saraba1st.com/forum/202312/06/040825xr0y300gba0aakg2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-040604__01.jpg</strong> (84.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:08 上传
+
+不同组件的消融实验，MHB:MMHal-Bench，IT-VQA:VQAv2上的指令调整，untrust aug.:不可信的数据增强
+
+<img src="https://img.saraba1st.com/forum/202312/06/040841ng53shddrzxd63gy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-040616__01.jpg</strong> (680.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:08 上传
+
+不同模型在短式QA和长式QA上的定性结果，正确答案、不能推理的延伸和幻觉分别用颜色突出显示
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1028#       发表于 2023-12-6 04:44
+
+re-align
+
+基础LLM的解锁咒语：通过上下文学习重新思考对齐
+
+项目主页:https://allenai.github.io/re-align/
+
+github项目仓库:https://github.com/Re-Align/urial
+
+just eval项目主页:https://github.com/Re-Align/just-eval
+
+数据集下载:https://huggingface.co/datasets/re-align/just-eval-instruct
+
+大型语言模型(LLM)的对齐调整过程通常涉及通过监督微调(SFT)进行指令学习以及通过人类反馈强化学习(RLHF)进行偏好调整，最近的一项研究LIMA表明，仅使用1K个示例进行SFT也可以实现显著的对齐性能，这表明对齐调整的效果可能是“浅显的(superficial)”，这引发了关于对齐调整如何准确地转换基础LLM的问题
+
+通过检查基础LLM以及对应的对齐版本之间的Token分布转移来分析了对齐调整的效果，研究结果表明，基础LLM及其对齐调整版本在大多数Token位置的解码中表现几乎相同，而大多数分布转移都与风格化Token(stylistic tokens)有关，这些直接证据有力地支持了LIMA提出的表面对齐假说(Superficial Alignment Hypothesis)
+
+基于这些发现，通过提出研究问题来重新思考LLM的调整:在没有SFT或RLHF的情况下，我们该如何有效地调整基础LLM？ 
+
+为了解决这个问题，引入了一种简单的、免调整的对齐方法，名为URIAL，URIAL通过纯粹的与基础LLM的上下文学习 (ICL/in-context learning)实现有效的协调，只需要三个恒定的风格化示例(three constant stylistic examples)和一个系统提示(system prompt)
+
+对一组不同的示例进行细粒度且可解释的评估，使用名为JUST-EVAL-INSTRUCT的评估结果表明，基于URIAL的基础LLM可以匹配甚至超过使用SFT或SFT+RLHF的LLM的表现，这表明，通过策略提示和ICL，可以显著缩小免调整和基于调整的对齐方法之间的差距
+
+对齐调整的表面性质的发现以及URIAL的结果表明，对对齐的更深入分析和理论理解对于未来的LLM研究至关重要
+
+<img src="https://img.saraba1st.com/forum/202312/06/044410ajesf4fvf7k23vke.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-044054__01.jpg</strong> (193.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:44 上传
+
+不同方面的对齐性能对比
+
+<img src="https://img.saraba1st.com/forum/202312/06/044417k156v6dnz8gy46wd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-044107__01.jpg</strong> (554.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:44 上传
+
+分析与Token分布转移的对齐，对齐的LLM(llama-2-chat)接收查询q并输出响应o，为了分析对齐调整的效果，在每个位置t处解码未调整的版本(llama-2-base)，接下来，根据ot在基本LLM概率排序Token列表中的排名，将o中的所有标记分为三组，平均而言，77.7%的Token也在基础LLM排名top-1(未转移位置)，92.2%位于top-3(+边缘)，移动位置上的常见Token显示在右上角，并且大多是风格化的构成话语Token，相比之下，知识密集型Token主要出现在未移动的位置
+
+<img src="https://img.saraba1st.com/forum/202312/06/044422qs4wzhsww9xhdhjd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-044117__01.jpg</strong> (449.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:44 上传
+
+三对基础VS对齐的LLM的Token分布变化，未转移、边缘和转移Token的比率用彩色表示(%)
+
+<img src="https://img.saraba1st.com/forum/202312/06/044427hs2satpap1s2w21v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-044142__01.jpg</strong> (340.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:44 上传
+
+在解码过程中，Token分布变化随着时间的推移而减少
+
+<img src="https://img.saraba1st.com/forum/202312/06/044435bznfnulvl7nks3kk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-044152__01.jpg</strong> (759.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:44 上传
+
+免调整对齐方法，零样本提示使用模板化前缀从基础LLM中引出答案，原生(Vanilla)上下文学习(ICL)在提示中采用了一些指令输出示例，基于检索的ICL从外部数据集中检索相似的示例，因此该方法的提示会针对每个推理用例动态更改，URIAL像原生ICL一样使用静态提示，但添加了系统级提示并重新设计了上下文示例的输出部分
+
+<img src="https://img.saraba1st.com/forum/202312/06/044439xboc1obb9zehzxl6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-044205__01.jpg</strong> (228.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:44 上传
+
+8个just-eval-instruct数据的统计，(a)显示了9个子集中的示例分布，(b)和(c)分别显示了任务类型和主题的类别分布
+
+<img src="https://img.saraba1st.com/forum/202312/06/044444g3d33t23uetd5wdi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-044214__01.jpg</strong> (558.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:44 上传
+
+对8个just-eval-instruct的对齐方法进行多方面评分评估，分数的范围为1-5，长度根据单词数计算，图标实心表示模型已通过SFT或RLHF进行调整，而空心表示模型未调整
+
+<img src="https://img.saraba1st.com/forum/202312/06/044450uugkg50htbdgwtut.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-044222__01.jpg</strong> (364.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 04:44 上传
+
+对不同任务和主题的对齐进行分类性能分析
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1029#       发表于 2023-12-6 05:20
+
+segment caption anything
+
+分割与字幕说明任何东西(Segment and Caption Anything)
+
+项目主页:https://xk-huang.github.io/segment-caption-anything/
+
+github项目主页:https://github.com/xk-huang/segment-caption-anything
+
+演示Demo:https://github.com/xk-huang/segment-caption-anything/blob/main/docs/DEMO.md
+
+提出了一种有效地为SAM模型(Segment Anything Model)配备生成区域级字幕说明能力的方法，SAM具有很强的通用性，可以对任何事物进行分割，但对于语义理解来说却有短处
+
+通过引入轻量级的基于查询的特征混合器(lightweight query-based feature mixer)，将特定于区域的特征与语言模型的嵌入空间对齐以供之后的字幕说明生成使用，由于可训练参数的数量很少(通常为数千万)，因此计算成本、显存使用量和通信带宽都较少，从而实现了快速且可扩展的训练
+
+为了解决区域字幕数据的稀缺问题，首先在对象检测和分割任务上预训练了本文模型，将此步骤称为弱监督预训练(weak supervision pretraining)，因为预训练数据仅包含类别名称而不是完整的句子描述，弱监督预训练使之能够利用许多公开可用的对象检测和分割数据集
+
+进行的大量的实验证明了本文方法的优越性并验证了每个设计选择，这项工作是扩大区域字幕说明数据的垫脚石，并有助于探索利用区域语义增强SAM的有效方法
+
+<img src="https://img.saraba1st.com/forum/202312/06/051941j957knhsk71km3s7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-051719__01.jpg</strong> (222.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 05:19 上传
+
+SCA(b)是SAM(a)的轻量级增强，能够生成区域字幕，通过在SAM架构之上添加了一个预训练的冻结语言模型和一个轻量级的混合特征混合器，尽管可训练参数数量较少，但通过学习特定区域的特征以与语言模型的嵌入空间保持对齐从而进行区域字幕生成
+
+<img src="https://img.saraba1st.com/forum/202312/06/051945w9sk9ylyv8s9yr9y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-051729__01.jpg</strong> (272.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 05:19 上传
+
+模型架构，该模型由三部分组成，包括图像编码器、特征混合器和用于掩码或文本的解码器头，该模型的关键组成部分是文本特征混合器，它是一个轻量级的双向Transformer，将其堆叠在SAM的Token之上并重用其令牌，通过单独优化附加混合器，将特定于区域的特征与语言模型的嵌入空间对齐，由于可优化参数数量有限，训练既快速又可扩展
+
+<img src="https://img.saraba1st.com/forum/202312/06/051951qg365sff4z5lya8g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-051748__01.jpg</strong> (515.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 05:19 上传
+
+与基线对比
+
+“C”:CIDEr-D、“M”:METEOR、“S”:SPICE、“B”:BLEU、“R”:ROUGE、“F”:Fuzzy
+
+对于所有指标来说，数值越高越好，最好、第二、第三好成绩分别标记为红色、橙色、黄色
+
+*:[86]中使用的字幕说明
+†:对模型进行了100K步的预训练，然后在VG上对其进行100K步的微调
+‡:当不应用任何预训练时，在VG上训练模型200K步，因此他们的训练成本相似
+
+<img src="https://img.saraba1st.com/forum/202312/06/052003gvejapjjaekjj7aj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-051809__01.jpg</strong> (658.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 05:20 上传
+
+定性结果，SCA同时预测掩码(红色轮廓)和标题，从上到下，字幕说明来自：SAM+Captioner {GIT-large、BLIP-large、BLIP2-OPT-2.7B}、GRIT、SCA {GPT2-large+VG、LLAMA-3B+VG，GPT2-large+Pretrain+VG}，以及基准答案，边界框(红色)用于提示(prompt)模型
+
+<img src="https://img.saraba1st.com/forum/202312/06/052013pd0aim1ykhp91ak0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-051614.jpg</strong> (204.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 05:20 上传
+
+<img src="https://img.saraba1st.com/forum/202312/06/052013iac995sc4zxr4v5f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-051640.jpg</strong> (129.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 05:20 上传
+
+消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1030#       发表于 2023-12-6 06:06
+
+DiffiT
+
+用于图像生成的扩散视觉Transformers
+
+github项目主页:https://github.com/NVlabs/DiffiT
+
+扩散模型以其强大的表现力和高样本质量，在各个领域实现了许多新的应用程序和用例，对于样本生成，这些模型通常依赖于通过迭代去噪生成图像的去噪神经网络(denoising neural network)，然而，去噪网络架构的作用尚未得到充分研究，其中大多数工作都依赖于卷积残差U-Net(convolutional residual U-Nets)
+
+在本文中，研究了视觉Transformer在基于扩散的生成学习中的有效性，具体来说，提出了一种新模型，称为扩散视觉Transformer(DiffiT/Diffusion Vision Transformers)，它由带有U形编码器和解码器(U-shaped encoder and decoder)的混合分层架构组成(hybrid hierarchical architecture)
+
+还引入了一种新颖的时间相关自注意力模块(time-dependent self-attention module)，该模块允许注意力层以有效的方式在去噪过程中的不同阶段调整其行为
+
+还引入了潜在DiffiT(latent DiffiT)，它由带有所提出的自注意力层的Transformer模型组成，用于高分辨率图像生成
+
+结果表明，DiffiT在生成高保真图像方面出奇地有效，并且它在各种分类条件(class-conditional)和无条件合成(unconditional synthesis tasks)任务上实现了SOTA基准，在潜在空间中，DiffiT在ImageNet-256数据集上取得了新的SOTA FID分数(1.73)
+
+<img src="https://img.saraba1st.com/forum/202312/06/060511c7hp44bhfbblf9bl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-055945__01.jpg</strong> (669.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:05 上传
+
+由潜在DiffiT在ImageNet数据集上生成的未整理的图像
+
+<img src="https://img.saraba1st.com/forum/202312/06/060520j79a6e16iz46i3ht.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-055953__01.jpg</strong> (259.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:05 上传
+
+图像空间DiffiT模型概览图，Downsample和Upsample分别表示卷积下采样和上采样层
+
+<img src="https://img.saraba1st.com/forum/202312/06/060529pibbn0ei8x110ece.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060000__01.jpg</strong> (70.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:05 上传
+
+DiffiT Transformer Block将它们组合在一起形成每个Token的查询、键和值向量，再对空间和时间嵌入Token应用线性投影，然后使用这些向量来计算多头自注意力激活(multi-head self-attention activations)，然后是两个线性层
+
+<img src="https://img.saraba1st.com/forum/202312/06/060534b4qrzxmirqyrnsq1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060014__01.jpg</strong> (89.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:05 上传
+
+潜在DiffiT框架概览图
+
+<img src="https://img.saraba1st.com/forum/202312/06/060540q1hvh8gnp1qg3vsq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060014__02.jpg</strong> (167.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:05 上传
+
+在CIFAR10、FFHQ-64数据集上与各种生成方法进行FID性能对比，VP和VE分别表示Variance Preserving和Variance Exploding，DiffiT的性能优于竞争方法，有时更是大幅领先
+
+<img src="https://img.saraba1st.com/forum/202312/06/060546j9tqt88kvvjycuyu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060035__01.jpg</strong> (459.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:05 上传
+
+FFHQ-64数据集的未整理生成图像的可视化
+
+<img src="https://img.saraba1st.com/forum/202312/06/060551pffto8hbx9hcbcx7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060041__01.jpg</strong> (336.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:05 上传
+
+在ImageNet-256和ImageNet-512数据集上将图像生成性能与最先进的模型进行对比，潜在DiffiT模型在ImageNet-256数据集上的FID分数实现了SOTA性能
+
+<img src="https://img.saraba1st.com/forum/202312/06/060556bto2yohouvu2nxc5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060047__01.jpg</strong> (52.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:05 上传
+
+时间和特征维度有效性的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/06/060600ab3g4em3db6pw4wp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060102__01.jpg</strong> (594.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:06 上传
+
+通过潜在DiffiT模型在ImageNet-256和ImageNet-512数据集上可视化未整理的生成图像
+
+<img src="https://img.saraba1st.com/forum/202312/06/060605m1xirx2mljjx5ay8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060107__01.jpg</strong> (58.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:06 上传
+
+编码器和解码器架构有效性的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/06/060609aokri73ksbskicop.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060107__02.jpg</strong> (38.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:06 上传
+
+TMSA作为其他去噪网络中的独立模块的影响
+
+<img src="https://img.saraba1st.com/forum/202312/06/060714d4ygd09ydc1d0101.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060117__01.jpg</strong> (24.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:07 上传
+
+TMSA设计选择对FID分数的影响
+
+<img src="https://img.saraba1st.com/forum/202312/06/060623mpnynoybejynbzxe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060117__02.jpg</strong> (226.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:06 上传
+
+具有和不具有TMSA的模型在去噪过程中的注意力图的并排定性对比，去噪过程从顶行开始
+
+<img src="https://img.saraba1st.com/forum/202312/06/060627qtn4dfk0rzlkl3r8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-060117__03.jpg</strong> (56.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 06:06 上传
+
+对使用潜在DiffiT模型的ImageNet-256和ImageNet-512实验的FID分数的无分类器引导缩放(scale)的影响
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1031#       发表于 2023-12-6 07:11
+
+style aligned
+
+通过共享注意力(Shared Attention)生成风格一致的图像
+
+项目主页:http://style-aligned-gen.github.io/
+
+github项目代码仓库:https://github.com/google/style-aligned/
+
+大规模文本到图像(T2I)模型在创意领域迅速获得了关注，其能够通过文本提示生成视觉上引人注目的输出，然而，控制这些模型以确保风格一致仍然具有挑战性，现有方法需要微调和手动干预来理清内容和风格
+
+在本文中，介绍了StyleAligned，一种用于在一系列生成的图像之间建立风格对齐的新技术，通过在扩散过程中采用最少的“注意力共享”，本文方法保证了T2I模型中图像之间的风格一致性
+
+这种方法允许通过简单的反转操作使用参考风格创建风格一致的图像，本文方法对不同风格和文本提示的评估展现了高质量的合成结果和保真度，强调了其在跨越各种输入时实现一致风格的效果
+————
+问题陈述
+
+在生成与任何文本描述一致的高质量图像时，最先进的文本到图像模型通常会创造对相同的风格化描述存在显著差异的图像，给定“minimal origami”的风格描述，标准文本到图像生成(左方)的输出具有显著的不同风格图像，而本文方法可以使模型生成的风格持续化(右方)
+————
+风格一致的生成
+
+生成与左侧参考图像风格对齐的图像，在每个扩散去噪步骤中，除了参考图像，其他的所有图像都与参考图像执行共享的自注意力
+
+目标图像通过使用参考查询和键(reference queries and keys)在其查询和键上(their queries and keys)应用AdaIN处理参考图像，然后应用共享注意力，其中目标特征由目标值Vt和参考值Vr更新
+————
+结果
+
+本文方法可以使用不同的提示生成风格一致的内容，而无需进行微调
+
+本文方法还可以很好地适应真实参考图像的风格迁移，同时不需要训练或模型个性化
+
+————
+与其他方法集成
+
+StyleAligned可以轻松地与其他方法结合使用
+
+DreamBooth+StyleAligned
+
+MultiDiffusion+StyleAligned
+————
+
+
+*****
+
+####  Machinery  
+##### 1032#       发表于 2023-12-6 19:32
+
+style aligned
+
+通过共享注意力(Shared Attention)生成风格一致的图像
+
+项目主页:http://style-aligned-gen.github.io/
+
+github项目代码仓库:https://github.com/google/style-aligned/
+
+大规模文本到图像(T2I)模型在创意领域迅速获得了关注，其能够通过文本提示生成视觉上引人注目的输出，然而，控制这些模型以确保风格一致仍然具有挑战性，现有方法需要微调和手动干预来理清内容和风格
+
+在本文中，介绍了StyleAligned，一种用于在一系列生成的图像之间建立风格对齐的新技术，通过在扩散过程中采用最少的“注意力共享”，本文方法保证了T2I模型中图像之间的风格一致性
+
+这种方法允许通过简单的反转操作使用参考风格创建风格一致的图像，本文方法对不同风格和文本提示的评估展现了高质量的合成结果和保真度，强调了其在跨越各种输入时实现一致风格的效果
+————
+问题陈述
+
+在生成与任何文本描述一致的高质量图像时，最先进的文本到图像模型通常会创造对相同的风格化描述存在显著差异的图像，给定“minimal origami”的风格描述，标准文本到图像生成(左方)的输出具有显著的不同风格图像，而本文方法可以使模型生成的风格持续化(右方)
+————
+风格一致的生成
+
+生成与左侧参考图像风格对齐的图像，在每个扩散去噪步骤中，除了参考图像，其他的所有图像都与参考图像执行共享的自注意力
+
+目标图像通过使用参考查询和键(reference queries and keys)在其查询和键上(their queries and keys)应用AdaIN处理参考图像，然后应用共享注意力，其中目标特征由目标值Vt和参考值Vr更新
+————
+结果
+
+本文方法可以使用不同的提示生成风格一致的内容，而无需进行微调
+
+本文方法还可以很好地适应真实参考图像的风格迁移，同时不需要训练或模型个性化
+
+————
+与其他方法集成
+
+StyleAligned可以轻松地与其他方法结合使用
+
+DreamBooth+StyleAligned
+
+MultiDiffusion+StyleAligned
+————
+SegAnyGAussians
+
+分割任何3D高斯(Segment Any 3D Gaussians)
+
+项目主页:https://jumpat.github.io/SAGA
+
+github项目仓库:https://github.com/Jumpat/SegAnyGAussians
+
+辐射场(radiance fields)中的交互式3D分割是一项有吸引力的任务，因为这在3D场景理解和操作中非常重要，然而，现有方法面临着实现细粒度、多粒度分割(multi-granularity segmentation)或需求大量计算开销、以及非实时交互的挑战
+
+在本文中，介绍了Segment Any 3D GAussians(SAGA)，这是一种新颖的3D交互式分割方法，它将2D分割基础模型与3D Gaussian Splatting(3DGS)无缝集成，这是辐射场的最新突破
+
+SAGA通过精心设计的对比训练(contrastive training)，将2D分割基础模型(2D segmentation foundation model)生成的多粒度2D分割结果有效地嵌入到3D高斯点特征(3D Gaussian point features)中
+
+对现有基准的评估表明，SAGA可以通过SOTA方法实现具有竞争力的性能，此外，SAGA还实现了多粒度分割并适应各种提示(prompt)，包括点、涂鸦和2D掩码(points,scribbles,2D masks)
+
+值得注意的是，SAGA可以在几毫秒内完成3D分割，与之前的SOTA相比实现了近1000倍的加速
+
+<img src="https://img.saraba1st.com/forum/202312/06/193150ua571fric5v7t1r6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192743__01.jpg</strong> (356.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:31 上传
+
+SAGA是一种新颖的交互式3D分割方法，可以在几毫秒内提供精确的3D分割，每个分割结果的下方都显示了计算时间(以秒为单位)，这代表从用户输入提示到获取分割结果之间的持续时间
+
+<img src="https://img.saraba1st.com/forum/202312/06/193155y5kmk2uampkmkatw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192753__01.jpg</strong> (317.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:31 上传
+
+SAGA的整体工作流程，给定预训练的3DGS模型及其训练集，将低维3D特征(low-dimensional 3D feature)附加到模型中的每个高斯(Gaussian)，对于训练集中的每个图像，使用SAM来提取2D特征和一组掩码，然后通过可微分光栅化(differentiable rasterization)渲染2D特征图
+
+用两个损失(loss)训练附加特征(比如SAM引导损失/SAM-guidance loss和对应损失/correspondence loss)，前者采用SAM特征来引导3D特征，从模糊的2D掩码中学习3D分割，而后者提取从掩码导出的逐点对应(point-wise correspondence)关系以增强特征的紧凑性
+
+<img src="https://img.saraba1st.com/forum/202312/06/193203eds4m4aazm4sukfg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192805__01.jpg</strong> (78.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+NVOS上的定量结果
+
+<img src="https://img.saraba1st.com/forum/202312/06/193208exxxujuj5v8yx53e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192805__02.jpg</strong> (72.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+SPIn-NeRF数据集的定量结果，“Singe view”表示简单的将2D分割结果投影到3D，因此省略了其时间消耗
+
+<img src="https://img.saraba1st.com/forum/202312/06/193213v22v8rjqyq7r77js.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192805__03.jpg</strong> (45.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+与 LERF-figurines上的SA3D进行对比，由于标注是由SA3D生成的，因此省略了其mIoU指标
+
+<img src="https://img.saraba1st.com/forum/202312/06/193218ljdyybyjjjq35oaq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192813__01.jpg</strong> (523.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+SAGA的定性结果，与SA3D相比，SAGA可以在千分之一的时间内达到类似的性能，与ISRF相比，SAGA可以区分具有相似语义的对象并实现物体部分分割，此外，得益于高效的3D高斯表征，分割对象的渲染质量优于之前的SOTA方法SA3D和ISRF
+
+<img src="https://img.saraba1st.com/forum/202312/06/193223v9fpxex444ezopk4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192829__01.jpg</strong> (372.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+SAGA的其中一个失败案例，右上部分展示了分割结果，下方部分展示了3DGS模型的高斯均值，失败的原因是3DGS学习到的高斯的几何结构不正确
+
+<img src="https://img.saraba1st.com/forum/202312/06/193228xeh8077jj0ewyzp8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192849__01.jpg</strong> (90.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+不同loss对于NVOS数据集的影响，“Corr.” 代表对应loss，“S-guidance”代表SAM-guidance loss，由于训练目标的复杂性，缺少SAM引导loss会导致分割性能显著下降
+
+<img src="https://img.saraba1st.com/forum/202312/06/193232fyz467qpiiys50od.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192849__02.jpg</strong> (85.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+对应loss影响的消融实验，点提示和掩码提示被标注在原始图像上，如果没有这个loss，学习到的特征就不够紧凑，这极大地阻碍了基于点提示的分割和基于掩模提示的分割
+
+<img src="https://img.saraba1st.com/forum/202312/06/193236edj881evhsiz58o8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192849__03.jpg</strong> (62.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+对后处理(post-processing)影响的消融，分割目标突出显示，如果不进行后处理，分割结果就会充满噪声且不完整
+
+<img src="https://img.saraba1st.com/forum/202312/06/193240ewm999v0wnmn98w0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-192849__04.jpg</strong> (39.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:32 上传
+
+消耗的计算量分析，高斯数表示场景的尺度以及对应的分割目标，SAGA的计算可以分为三个阶段：高斯检索、后处理(filtering)和后处理(growing)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1033#       发表于 2023-12-6 19:53
+
+nxtp
+
+使用下一个Token预测(Next Token Prediction)范式的对象识别(Object Recognition)
+
+github项目主页:https://github.com/kaiyuyue/nxtp
+
+本文提出了一种将对象识别作为下一个Token预测的方法，这个想法的核心在于应用一个语言解码器(language decoder)，从图像嵌入(image embeddings)中自回归的预测文本Token(auto-regressively predicts the text tokens)以形成标签(labels)
+
+为了使这种预测过程基于自回归，为解码器定制了一个非因果注意力掩码(non-causal attention mask)，其中包含两个关键特征:将来自不同标签的Token建模为独立的，并将图像Token视为前缀(prefix)
+
+这种遮蔽(Mask)机制激发了一种有效的方法，单样本采样(one-shot sampling)，同时并行采样多个标签的Token，并在推理过程中根据生成的标签的概率对生成的标签进行排序
+
+为了进一步提高效率，还提出了一种简单的策略，通过简单地丢弃预训练语言模型的中间块(intermediate blocks)来构建紧凑的解码器，这种方法产生的解码器与完整模型的性能相匹配，但效率显著提高
+
+<img src="https://img.saraba1st.com/forum/202312/06/195245ta3ipefsaff8yrii.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-195108__01.jpg</strong> (129.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:52 上传
+
+作为下一个Token预测的对象识别，使用生成解码器(例如基于Transformer的语言模型)来自回归的预测对象标签
+
+<img src="https://img.saraba1st.com/forum/202312/06/195249z617i6gilo0xh511.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-195125__01.jpg</strong> (113.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:52 上传
+
+非因果注意力掩码，用于为图像Token Xv加上前缀，并将不同标签Lk的Token解耦，使其在[SEP] Token上独立
+
+<img src="https://img.saraba1st.com/forum/202312/06/195254rot47rpsp3pr47fo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-195130__01.jpg</strong> (112.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:52 上传
+
+用于并行生成top-k标签Token的单样本采样，一旦模型对[SEP] Token进行采样，标签就完成了，否则，模型将继续处理未完成的标签
+
+<img src="https://img.saraba1st.com/forum/202312/06/195259oawagu3mwau3qawa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231206-195145__01.jpg</strong> (693.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 19:52 上传
+
+不同方法与top-10预测的对比，粗体数字为最佳结果，下划线数字为次佳结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1034#       发表于 2023-12-7 01:57
+
+ 本帖最后由 Machinery 于 2023-12-7 01:59 编辑 
+
+X-Adapter
+
+为升级的扩散模型添加通用插件兼容性
+
+项目主页:https://showlab.github.io/X-Adapter/
+
+github项目代码仓库:https://github.com/showlab/X-Adapter
+
+X-Adapter，一种通用的升级模型兼容方法，可以在无需进一步重新训练的情况下，使预训练的模块化插件方法(例如ControlNet、LoRA等)能够直接在升级后的文本到图像扩散模型使用(例如SDXL)
+
+这是通过训练一个额外的网络来使用新的文本图像数据对(text-image data pairs)控制冻结的升级模型来实现这一目标的，具体来说，X-Adapter保留了旧模型的冻结副本，用以作为不同插件的连接器
+
+此外，X-Adapter还添加了可训练的映射层，将不同版本模型的解码器桥接起来，以进行特征重新映射，重新映射的特征将用作升级后的模型的指导，为了增强X-Adapter的指导能力，对升级后的模型采用了无文本(null-text)训练策略，训练后，还引入了两阶段去噪策略对齐X-Adapter的初始潜在和升级后的模型
+
+通过这些策略，X-Adapter展示了对各种插件的通用兼容性，并且还使得不同版本的插件能够协同工作，从而扩展了扩散社区的能力，为了验证所提出方法的有效性，进行了大量的实验，结果表明X-Adapter可以促进升级后的基础扩散模型的更广泛应用
+————
+
+<img src="https://img.saraba1st.com/forum/202312/07/015616njei23wmz5ee21e3.jpg" referrerpolicy="no-referrer">
+
+<strong>xadapter_teaser.jpg</strong> (946.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 01:56 上传
+
+给定基础扩散模型(例如Stable Diffusion 1.5)的预训练模块插件(例如ControlNet、LoRA)，所提出的X-Adapter可以普遍地升级这些插件，使它们能够直接与升级后的模型一起使用(例如SDXL)而无需进一步重新训练
+————
+
+<img src="https://img.saraba1st.com/forum/202312/07/015707pbikb5vjo5iadt15.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-015655.jpg</strong> (110.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 01:57 上传
+
+任务定义，与之前单独训练每个插件的方法不同，本方法只需要训练单个X-Adapter，即可应用到所有固定的下游插件中
+——
+
+<img src="https://img.saraba1st.com/forum/202312/07/015722p1ksol7zp9ff7yq1.png" referrerpolicy="no-referrer">
+
+<strong>xadapter_pipeline_v5.png</strong> (363.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 01:57 上传
+
+方法概览图，在训练中，在升级的基础模型和X-Adapter的潜在空间中添加不同的噪声，通过将升级模型的提示设置为空并训练映射层，X-Adapter学习如何引导升级后的模型，在测试中
+(a)可以直接在升级模型上应用X-Adapter的插件
+(b)引入两阶段流方案来提高图像质量
+——
+
+<img src="https://img.saraba1st.com/forum/202312/07/015733njyqnbq7hpcyv8yc.jpg" referrerpolicy="no-referrer">
+
+<strong>1f5dcfa7-b40f-440e-aa93-4c1e9f864207.jpg</strong> (408.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 01:57 上传
+
+<img src="https://img.saraba1st.com/forum/202312/07/015733m6bouc49h6do7x6i.jpg" referrerpolicy="no-referrer">
+
+<strong>56218d4e-91dc-4a96-aeee-f139c8b39849.jpg</strong> (401.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 01:57 上传
+
+提案的X-Adapter和预训练SD 1.5插件，展示了SDXL和SD 2.1上的不同结果，X-Adapter展现了对不同插件和基础模型的广泛支持
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1035#       发表于 2023-12-7 03:21
+
+ImageDream
+
+用于3D生成的图像提示多视图(Image-Prompt Multi-view)扩散
+
+项目主页:https://image-dream.github.io/
+
+github项目主页:https://github.com/ImageDream-byte/ImageDream
+
+ImageDream，一种用于生成3D对象的创新图像提示、多视图扩散模型，与现有SOTA图像条件方法相比，ImageDream能够生成更高质量的3D模型
+
+本文方法利用图像中的对象的规范相机坐标，提高了视觉几何精度，该模型根据输入图像在扩散模型内的每个模块上设计了不同级别的控制，其中全局控制塑造整体对象布局，局部控制微调图像细节
+
+通过大量使用标准提示列表进行的广泛评估证明了ImageDream的有效性
+————
+
+<img src="https://img.saraba1st.com/forum/202312/07/032134fdevj4dliwe21mdn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-031536.jpg</strong> (65.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 03:21 上传
+
+阐明了ImageDream的多级图像提示控制器在UNet扩散模型架构中的集成方法，补充了MVDream中部署的原始文本嵌入(original text embedding)和四视图相机嵌入(four-view camera embedding)
+——
+图像提示分数蒸馏
+
+<img src="https://img.saraba1st.com/forum/202312/07/032139zulbir8ce886rc9r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-031529.jpg</strong> (60.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 03:21 上传
+
+图像提示多视图扩散模型可以轻松地与分数蒸馏相结合，其中仅执行单阶段SDS融合
+——
+合成视图和 3D 对象
+
+<img src="https://img.saraba1st.com/forum/202312/07/032145zmzm7390zdyaz7dy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-031822.jpg</strong> (128.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 03:21 上传
+
+ImageDream 以多视图一致的方式生成对象和场景
+——
+对比结果
+
+<img src="https://img.saraba1st.com/forum/202312/07/032150qa5lefapzjla3wwt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-032046.jpg</strong> (259.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 03:21 上传
+
+采用了MVDream中的39个提示并使用SDXL生成图像来与其他图像转3D方法进行对比，所有提示均使用固定的默认配置，无需使用Threestudio进行超参数调整，ImageDream-G表示仅使用CLIP特征的结果，ImageDream-P表示同时具有这两种特征的结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1036#       发表于 2023-12-7 04:17
+
+LivePhoto
+
+具有文本引导运动控制(Text-guided Motion Control)的真实图像动画化(Real Image Animation)
+
+项目主页:https://xavierchen34.github.io/LivePhoto-Page/
+
+github项目仓库:https://github.com/XavierCHEN34/LivePhoto
+
+尽管最近文本到视频生成领域取得了进展，但现有的研究通常忽视了这样一个问题：在合成视频中经常只有空间内容而时间运动则不受文本控制
+
+针对这样的挑战，这项工作提出了名为LivePhoto的系统，允许用户通过文本描述将他们感兴趣的图像动画化，具体来说，首先建立一个强大的基线，帮助熟练的文本到图像生成器(即Stable Diffusion)将图像作为进一步的输入，然后，为改进的生成器配备了用于时间建模的运动模块，并提出了精心设计的训练工作流程以更好地链接文本和运动，特别是，考虑到以下事实:
+1.文本只能粗略地描述运动(无论移动速度如何)
+2.文本可能同时包含内容和运动描述
+
+引入了运动强度估计模块(motion intensity estimation module)和文本重加权模块(text re-weighting module)以减少文本到运动映射的模糊性，经验性的证据表明，本文方法能够很好地将与运动相关的文本指令解码为视频，例如动作、摄像机移动，甚至凭空变出新内容(例如将水倒入空玻璃杯中)，最有趣的是，由于所提出的强度学习机制，LivePhoto除了用于视频定制的文本之外，还为用户提供了额外的控制信号(即运动强度)
+————
+
+<img src="https://img.saraba1st.com/forum/202312/07/041659m6i1b7brxmermnd1.png" referrerpolicy="no-referrer">
+
+<strong>pipeline.png</strong> (709.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 04:16 上传
+
+LivePhoto的整体工作流程如上所示，除了以参考图像和文本作为输入外，LivePhoto还利用运动强度作为补充条件，图像和运动强度(从1级到10级)是在训练期间从基准真实(ground truth)视频中获得的，并在推理过程中由用户定制
+
+首先，提取参考潜变量作为局部内容指导，然后将其与潜变量噪声、帧嵌入和强度嵌入连接起来，这个10-channel张量被送入UNet中进行去噪
+
+在推理过程中，使用参考潜变量的反转而不是纯高斯(pure Gaussian)提供内容先验，在上方，内容编码器提取视觉Token以提供全局内容指导，在下方，引入了文本重加权，它学习强调文本嵌入的运动相关部分，以实现更好的文本运动映射，视觉和文本Token通过交叉注意力注入到UNet中，对于UNet，冻结预训练的Stable Diffusion并插入运动模块来捕获帧间关系
+
+火焰和雪花的符号分别表示可训练和冻结的参数
+————
+带有文本指令的运动控制
+
+<img src="https://img.saraba1st.com/forum/202312/07/041711bb337qv99zv0h970.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-041511.jpg</strong> (151.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 04:17 上传
+
+LivePhoto的独特功能是通过文本指令进行精确的运动控制，此外，用户还可以通过设置不同的“运动强度”来定制这些运动
+————
+与现有替代方案的对比
+
+<img src="https://img.saraba1st.com/forum/202312/07/041718cwt8gav6njt066e7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-041328.jpg</strong> (575.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 04:17 上传
+
+ 对LivePhoto和GEN-2以及Pikalabs进行了分析对比，使用了截至2023年11月的版本，生成的视频从左到右按顺序呈现，分别源自GEN-2、Pikalabs和LivePhoto，值得注意的是，LivePhoto在文本引导运动控制方面表现出了卓越的性能
+————
+视频演示(请看原项目页面)
+
+<img src="https://img.saraba1st.com/forum/202312/07/041739xyawvc8yg3ahshcx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-041312.jpg</strong> (78.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 04:17 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RandomDictator  
+##### 1037#       发表于 2023-12-7 04:55
+
+Deepmind的Gemini出了，据称超过gpt4，不知道实际咋样
+
+
+*****
+
+####  Machinery  
+##### 1038#       发表于 2023-12-7 05:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63247472&amp;ptid=2126390" target="_blank">RandomDictator 发表于 2023-12-7 04:55</a>
+Deepmind的Gemini出了，据称超过gpt4，不知道实际咋样</blockquote>
+英文版bard已经用上了，想用的话现在就可以体验<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RandomDictator  
+##### 1039#       发表于 2023-12-7 05:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63247499&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-12-7 05:47</a>
+
+英文版bard已经用上了，想用的话现在就可以体验
+
+—— 来自 S1Fun</blockquote>
+bard上是pro不是ultra，看metrics有没有3.5水平都还不好说，还没有多模态，ultra还要等明年发<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Machinery  
+##### 1040#       发表于 2023-12-7 06:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63247507&amp;ptid=2126390" target="_blank">RandomDictator 发表于 2023-12-7 05:51</a>
+bard上是pro不是ultra，看metrics有没有3.5水平都还不好说，还没有多模态，ultra还要等明年发 ...</blockquote>
+单从指标看ultra的话感觉和gpt4伯仲之间吧，甚至感觉还取了点巧，对比4主要强在原生多模态预训练，虽然输出还是图片和文本，而且连微调都做了，感觉没多少提升空间了，最乐的是只说了nano版参数，堪比closeai般的保密<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RandomDictator  
+##### 1041#       发表于 2023-12-7 06:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63247513&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-12-7 06:03</a>
+
+单从指标看ultra的话感觉和gpt4伯仲之间吧，甚至感觉还取了点巧，对比4主要强在原生多模态预训练，虽然输 ...</blockquote>
+能和gpt4打平就已经很强了吧，市面上其他最多都是接近3.5的水平，给够closeai足够动力干活了
+
+sunder最好希望别在ultra release之前gpt就又升级了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  darktide  
+##### 1042#       发表于 2023-12-7 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63236994&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-12-6 07:11</a>
+
+style aligned
+
+通过共享注意力(Shared Attention)生成风格一致的图像</blockquote>
+感觉这个比较有实用性
+
+
+*****
+
+####  Machinery  
+##### 1043#       发表于 2023-12-7 20:09
+
+ 本帖最后由 Machinery 于 2023-12-7 20:10 编辑 
+
+OneLLM
+
+一个框架将所有模态对齐到语言
+
+github项目主页:https://github.com/csuhan/OneLLM
+
+多模态大型语言模型(MLLM)由于其强大的多模态理解能力而受到广泛关注，然而，现有的部分研究工作严重依赖于特定模态的编码器，这些编码器通常在架构上有所不同，并且仅限于常见的模态
+
+在本文中，提出了OneLLM，这是一种使用统一框架将八种模态与语言对齐的MLLM，这是通过统一的多模态编码器(unified multimodal encoder)和渐进式多模态对齐工作流程(progressive multimodal alignment pipeline)实现的
+
+具体来说，首先训练了一个图像投影模块，将视觉编码器与LLM连接起来，然后通过混合多个图像投影模块和动态路由来构建通用投影模块(UPM/universal projection module)，最后，逐步将更多模态通过UPM与LLM对齐
+
+为了充分发挥OneLLM在后续指令中的潜力，还策划构造了一个全面的多模态指令数据集，其中包括来自图像、音频、视频、点云、深度/法线贴图、IMU和fMRI大脑活动的200万个项目
+
+根据25个不同的基准测试评估了OneLLM，诸如多模态字幕说明、问题回答和推理等任务，在这些任务中它提供了出色的性能表现
+
+<img src="https://img.saraba1st.com/forum/202312/07/200713alzjszsqqtbrks2b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195746__01.jpg</strong> (171.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:07 上传
+
+不同多模态LLM的对比，OneLLM将支持的模态从三种扩展至八种
+
+Vision LLM:一个图像编码器和投影模块
+Multimodal(MM)LLM:特定模态的编码器和投影模块
+OneLLM:通用编码器、通用投影模块和用于在模态之间切换的模态Token {modal}
+
+<img src="https://img.saraba1st.com/forum/202312/07/200723rdz2wxdojvaundwj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195756__01.jpg</strong> (233.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:07 上传
+
+OneLLM的架构，OneLLM由模态分词器(tokenizers)、通用编码器、通用投影模块(UPM)和LLM组成
+
+模态分词器是一个2D/1D卷积层，用于将输入信号转换为Token序列，为了简单起见，省略了视频、深度/法线贴图分词器，通用编码器是一种冻结的视觉语言模型(即CLIP)，用于提取高维特征，UPM由多个投影专家和模态路由器组成，用于使输入信号与语言保持一致
+
+对于对齐阶段，训练模态分词器和UPM，并保持LLM冻结，对于指令调整阶段，只训练LLM，其他模型保持冻结，在UPM的前向传递中，将输入和模态Token连接起来作为输入，然后只将模态Token作为输入信号的总结，并将其输入LLM进行多模态理解
+
+<img src="https://img.saraba1st.com/forum/202312/07/200736x6nli63ulqfwz68n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195812__01.jpg</strong> (406.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:07 上传
+
+对12个图像文本基准测试进行评估，包括6个VQA任务，2个图像字幕说明任务和4个多模态基准
+
+LLM分别是是Chinchilla、Vicuna、Qwen、LLaMA和LLaMA2，VQA和字幕说明任务的评估指标分别是准确率和CIDEr，粗体和下划线标出的结果分别是最好的和次好的结果，-代表未报告结果
+
+<img src="https://img.saraba1st.com/forum/202312/07/200743abmkobd1fnbkz48k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195822__01.jpg</strong> (87.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:07 上传
+
+视频文本任务评估，包括视频问答和视频字幕说明任务，Acc代表准确率
+
+<img src="https://img.saraba1st.com/forum/202312/07/200748jto3o86jt1xvj3cg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195822__02.jpg</strong> (74.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:07 上传
+
+对音频文本任务的评估，包括Clotho Caption上的音频字幕说明和Clotho AQA上的音频问答任务
+
+<img src="https://img.saraba1st.com/forum/202312/07/200753yn9rkzirkp69iop4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195914__01.jpg</strong> (228.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:07 上传
+
+对音频-视频-文本任务的评估，包括MUSIC-AVQA上的视听问答和 VALOR-32K上的视听字幕说明以及AVSD上的对话完成(dialog completion)任务
+
+<img src="https://img.saraba1st.com/forum/202312/07/200759ftx8tc7686c0tmn3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195822__04__01.jpg</strong> (72.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:07 上传
+
+点云文本任务评估，评估数据集来自Objaverse，遵循PointLLM中的数据分割，InstructBLIP以单视图图像作为输入，而PointLLM和OneLLM以点云作为输入
+GPT4- Acc.代表使用GPT4作为准确率评估者
+
+<img src="https://img.saraba1st.com/forum/202312/07/200803pauwhdsyhbyhb2ba.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195839__01.jpg</strong> (91.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+使用深度/法线贴图评估场景分类任务，请注意，NYUv2和SUN RGB-D仅具有深度图，通过应用预训练的DPT模型来生成法线贴图
+
+OneLLM-N/D:具有深度/法线贴图输入的OneLLM
+*:CLIP的输入是深度渲染的灰度图像，ImageBind在SUN RGB-D的图像深度对(image-depth pairs)上进行了训练，因此不是零样本的
+
+<img src="https://img.saraba1st.com/forum/202312/07/200810shaamjm8ziiccp1p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195839__02.jpg</strong> (205.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+消融实验，选择了三种模态(图像、音频、视频)和四个数据集(NoCaps、VQAv2、ClothoQA和MSVDQA)进行评估，灰色背景的行是默认设置
+
+<img src="https://img.saraba1st.com/forum/202312/07/200817ietx4utpxt74uwgt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195852__01.jpg</strong> (652 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+八种模态的定性结果，所有演示输入均来自网络或对应模态的测试集
+
+<img src="https://img.saraba1st.com/forum/202312/07/200823n94rkcr6l03krjlb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195902__01.jpg</strong> (69.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+通用编码器的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/07/200828z8d6kr0aefxaneg5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195914__01.jpg</strong> (228.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+训练数据集
+
+<img src="https://img.saraba1st.com/forum/202312/07/200833exb5048rxp8j4ba8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195922__01.jpg</strong> (259.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+训练的提示格式
+
+<img src="https://img.saraba1st.com/forum/202312/07/200838sbjwjfi6ckqwtqq0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195937__01.jpg</strong> (230.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+评估的提示格式
+
+<img src="https://img.saraba1st.com/forum/202312/07/200843ucoo11n4k5e4q93c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-195943__01.jpg</strong> (121.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+不同多模态LLM的对比
+
+<img src="https://img.saraba1st.com/forum/202312/07/200850r4u0u2x0gjxc4pax.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-200003.jpg</strong> (503.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+附加的定性图像演示
+
+<img src="https://img.saraba1st.com/forum/202312/07/200856ogmjtka1ce9sjmzh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-200018.jpg</strong> (487.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:08 上传
+
+附加的定性视频、音频和点云演示
+
+<img src="https://img.saraba1st.com/forum/202312/07/200904bntgo76toaagro8x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231207-200035.jpg</strong> (401.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-7 20:09 上传
+
+附加的定性深度/法线贴图、IMU和fMRI演示
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1044#       发表于 2023-12-8 02:20
+
+Kandinsky 3.0
+
+文本到图像生成模型Kandinsky 3.0版本
+
+项目主页:https://ai-forever.github.io/Kandinsky-3
+
+github项目仓库:https://github.com/ai-forever/Kandinsky-3
+
+Kandinsky 3.0，一种基于潜在扩散的大规模文本到图像生成模型，延续了Kandinsky文本到图像模型系列，反映了在实现更高质量和真实感的图像生成方面取得的进展
+
+与以前版本的Kandinsky 2.x相比，Kandinsky 3.0进一步利用了两倍大的U-Net骨干、十倍大的文本编码器，并删除了扩散映射
+
+本文描述了模型的架构、数据收集过程、训练技术和用户交互的生产系统，其中重点关注了关键组件，正如通过大量实验确定的那样，与其他模型相比，这些组件对提高模型质量具有最显著的影响
+
+通过并排对比，Kandinsky3.0不仅在文本理解方面变得更好，并且在特定领域也表现得更好
+————
+
+<img src="https://img.saraba1st.com/forum/202312/08/021943zzzsnk5988ycpvn1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>K3_full_pipline.jpeg</strong> (182.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 02:19 上传
+
+Kandinsky 3.0是一个潜在扩散模型，其完整流程包括用于处理用户提示的文本编码器、用于在去噪(反向)过程中预测噪声的U-Net以及用于从生成的潜在重建图像的解码器模型，在U-Net训练期间，文本编码器和图像解码器完全冻结，整个模型包含约119亿参数
+————
+
+<img src="https://img.saraba1st.com/forum/202312/08/021951nom6sbouxumbgoi7.jpg" referrerpolicy="no-referrer">
+
+<strong>kandinsky.jpg</strong> (233.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 02:19 上传
+
+架构由三部分组成:
+Text encoder Flan-UL2 (encoder part) - 8.6B
+Latent Diffusion U-Net - 3B
+MoVQ encoder/decoder - 267M
+————
+发布了两个模型:
+ base:基础文本到图像扩散模型，该模型在400个A100上训练了超过200万步
+Inpainting:模型的重绘版本，该模型从base模型的最终检查点进行初始化，并在300个A100上训练了25万步
+————
+重绘
+
+<img src="https://img.saraba1st.com/forum/202312/08/022000m02ro0ls0rwcw200.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-021830.jpg</strong> (314.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 02:20 上传
+
+通过训练基础文本到图像模型，还发布了附加的重绘版本，从基本模型开始训练，然后在包含随机掩码的多样化数据集上对其进行微调，该模型展现了其根据文本查询智能填充图像缺失区域并将其与周围视觉内容无缝融合的能力
+————
+外绘
+
+<img src="https://img.saraba1st.com/forum/202312/08/022006dct0rrm34rlmlx73.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-021841.jpg</strong> (280.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 02:20 上传
+
+此外，模型还能够解决图像补全问题，根据文本自然地填充图像的缺失区域，并使其与视觉上下文保持一致
+————
+Deforum
+
+<img src="https://img.saraba1st.com/forum/202312/08/022010riqz6x17oood1h4d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-021851.jpg</strong> (376.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 02:20 上传
+
+Kandinsky-3通过与Deforum集成，允许在不同模式下生成高质量的动画视频
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1045#       发表于 2023-12-8 03:33
+
+ 本帖最后由 Machinery 于 2023-12-8 03:39 编辑 
+
+playground-v2-1024px-aesthetic
+
+从头预训练的SDXL构架模型
+
+相关博客:https://blog.playgroundai.com/playground-v2/
+
+hugface项目权重下载:https://huggingface.co/playgroundai/playground-v2-1024px-aesthetic
+
+<img src="https://img.saraba1st.com/forum/202312/08/033301azvwryv10qwfvvd0.jpg" referrerpolicy="no-referrer">
+
+<strong>Group-3.jpg</strong> (124.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 03:33 上传
+
+<img src="https://img.saraba1st.com/forum/202312/08/033301ck74m7mpbuum19bm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-032421.jpg</strong> (232.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 03:33 上传
+
+Playground v2是一种基于扩散的文本到图像生成模型，该模型由Playground的研究团队从头开始训练，根据Playground的用户研究，Playground v2生成的图像比Stable Diffusion XL生成的图像受欢迎程度高2.5倍
+
+团队很高兴向社区发布不同训练阶段的中间检查点，包括评估指标，希望这能鼓励对图像生成基础模型的进一步研究，最后引入了一个新的基准MJHQ-30K，用于自动评估模型的美学质量
+————
+基准测试
+
+早期基准测试表明，Playground v2的受欢迎程度是Stable Diffusion XL的2.5 倍，在数千个提示中，通过向数千名用户展示每个模型的图像来询问他们更喜欢哪张图像，下面展示了每个模型的结果
+
+<img src="https://img.saraba1st.com/forum/202312/08/033309eztcg6jkjkggsenr.png" referrerpolicy="no-referrer">
+
+<strong>Wizard-data--1-.png</strong> (10.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 03:33 上传
+
+Parti提示:
+
+<img src="https://img.saraba1st.com/forum/202312/08/033319giffofme24cmynso.png" referrerpolicy="no-referrer">
+
+<strong>PartiPrompt--1-.png</strong> (9.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 03:33 上传
+
+————
+FID
+
+引入了一个新的基准MJHQ-30K，用于自动评估模型的美学质量，该基准测试在高质量数据集上计算FID，以衡量美学质量，整理了来自Midjourney的高质量数据集，包含10个常见类别，每个类别有3K样本，依照惯例，使用美学评分和CLIP评分来确保高图像质量和高图文对齐，此外，还特别注意了使每个类别中的数据更多样化
+
+<img src="https://img.saraba1st.com/forum/202312/08/033341uq66qzgkquqz8g4j.png" referrerpolicy="no-referrer">
+
+<strong>MJHQ-30K-Per-Category-Benchmark.png</strong> (36.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 03:33 上传
+
+下面是选择的提示的对比表格，用以提供高质量、对齐和美观的感觉:
+
+<img src="https://img.saraba1st.com/forum/202312/08/033347ldozdtfoozedoou6.jpg" referrerpolicy="no-referrer">
+
+<strong>Group-1--1--2.jpg</strong> (71.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 03:33 上传
+
+————
+不求回报，传递下去(Paying it forward)
+
+同时还发布了预训练权重，以推动在算力往往受限的环境中的研究领域，HuggingFace上提供了256px(相关链接:https://huggingface.co/playgroundai/playground-v2-256px-base?ref=blog.playgroundai.com)和512px(相关链接:https://huggingface.co/playgroundai/playground-v2-512px-base?ref=blog.playgroundai.com)阶段的基本模型权重
+
+如果您创造了任何东西，研究团队将很乐意听到
+— Playground Research Team
+————
+模型说明
+开发者:Playground
+模型类型:基于扩散的文本到图像生成模型
+许可证:Playground v2 Community License
+总结：该模型根据文本提示生成图像，它是一个潜在扩散模型，使用两个固定的、预训练的文本编码器(OpenCLIP-ViT/G和CLIP-ViT/L)，遵循与Stable Diffusion XL相同的架构
+————
+MJHQ-30K基准测试
+
+相关链接:https://huggingface.co/playgroundai/playground-v2-1024px-aesthetic#mjhq-30k-benchmark
+
+<img src="https://img.saraba1st.com/forum/202312/08/033839kpw0k0nyewsnife0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-033757.jpg</strong> (112.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 03:38 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1046#       发表于 2023-12-8 04:40
+
+Gaussian Head Avatar
+
+通过动态高斯(Dynamic Gaussians)实现超高保真度的化身头像(Ultra High-fidelity Head Avatar)
+
+项目主页:https://yuelangx.github.io/gaussianheadavatar/
+
+github项目代码仓库:https://github.com/YuelangX/Gaussian-Head-Avatar
+
+创建高保真3D化身头像一直是研究中的热点，但在轻量级稀疏视图设置下仍然存在巨大挑战，在本文中，提出了以可控3D高斯为代表的高斯化身头像，用于高保真的头像建模
+
+通过优化神经3D高斯和完全学习的基于MLP的变形场来捕获复杂的表情，这两部分相辅相成，因此本文方法可以在保证表情准确性的同时对细粒度的动态细节进行建模
+
+此外，还基于隐式SDF(implicit SDF)和DMTet(Deep Marching Tetrahedra)设计了一种有效的几何引导初始化策略，以确保训练过程的稳定性和收敛
+
+实验表明，本文方法优于其他SOTA稀疏视图方法，即使在夸张的表情下，也能在2K分辨率实现超高保真渲染质量
+
+<img src="https://img.saraba1st.com/forum/202312/08/043753zjuv6fkszjgjogjo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-043348__01.jpg</strong> (403.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 04:37 上传
+
+Gaussian Head Avatar在2K分辨率下实现了表情可控的超高保真图像合成，上方展示了合成头像的不同视图，下方展示了相同表情的不同身份的动画化， 训练期间使用了16个视图
+
+<img src="https://img.saraba1st.com/forum/202312/08/043759h0zkpspkfkkrfprf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-043412__01.jpg</strong> (278.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 04:37 上传
+
+Gaussian Head Avatar渲染和重建概览图，首先在初始阶段优化引导模型(包括神经网格、变形MLP和颜色MLP)，然后，使用它们来初始化神经高斯和动态生成器，最后，通过可微渲染和超分辨率网络合成2K RGB图像，Gaussian Head Avatar在多视图RGB视频的监督下进行训练
+
+<img src="https://img.saraba1st.com/forum/202312/08/043803tesxnnmn6yuinmqs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-043435__01.jpg</strong> (273.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 04:38 上传
+
+不同方法在自重现(self reenactment task)任务上的定性对比
+
+从左到右分别是:NeRFBlendShape、NeRFace、HAvatar和本文方法，本文方法可以高质量地重建胡须、牙齿等细节
+
+<img src="https://img.saraba1st.com/forum/202312/08/043810xouacmhbtwt4xejw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-043452__01.jpg</strong> (384.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 04:38 上传
+
+不同方法在跨越身份的重现任务上的定性对比
+
+从左到右分别是:NeRFBlendShape、NeRFace、HAvatar和本文方法，本文方法可以合成高保真图像，同时确保表情迁移的准确性
+
+<img src="https://img.saraba1st.com/forum/202312/08/043815qt8y3lwm0wtnbabm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-043501__01.jpg</strong> (151.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 04:38 上传
+
+NeRFBlendShape、NeRFace、HAvatar和本文方法的无超分版本以及完全版本对比
+
+<img src="https://img.saraba1st.com/forum/202312/08/043947drvuv2misj719zoo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-043518__01__01.jpg</strong> (182.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 04:39 上传
+
+初始化策略的消融实验:FLAME-初始化和本文几何引导初始化，本文策略成功确保远离头部的发丝得到良好的重建
+
+<img src="https://img.saraba1st.com/forum/202312/08/044019wvzn0oj04d0oh6o9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-043523__01.jpg</strong> (62.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 04:40 上传
+
+其他两个消融基线和本文方法的定量评估结果
+
+<img src="https://img.saraba1st.com/forum/202312/08/044001tu24lzirmgugb92k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-043518__01__02.jpg</strong> (152.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 04:40 上传
+
+变形建模方法的消融实验:基于网格LBS的变形和本文的完全学习变形，本文方法可以学习复杂且夸张的表情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1047#       发表于 2023-12-8 05:28
+
+ 本帖最后由 Machinery 于 2023-12-8 05:30 编辑 
+
+DreamComposer
+
+通过多视图条件生成可控的3D对象
+
+项目主页:https://yhyang-myron.github.io/DreamComposer/
+
+github项目仓库:https://github.com/yhyang-myron/DreamComposer
+
+<img src="https://img.saraba1st.com/forum/202312/08/052656ypszascsvy44kqvy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-052535.jpg</strong> (129.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 05:26 上传
+
+利用预训练的2D大规模生成模型，最近的研究工作能够从单个真实自然图像中生成高质量的新视图，然而，由于缺乏来自多个视图的信息，这些作品在生成可控的新视图方面遇到了困难
+
+在本文中，提出了DreamComposer，这是一个灵活且可扩展的框架，可以通过注入多视图条件(injecting multi-view conditions)来增强现有的视图感知(view-aware)扩散模型
+
+具体来说，DreamComposer首先使用视图感知3D提升模块(view-aware 3D lifting module )从多个视图获取对象的3D表征，然后使用多视图特征融合模块(multi-view feature fusion module)从3D表征中渲染目标视图的潜在特征，最后，从多视图输入中提取的目标视图特征被注入到预训练的扩散模型中
+
+实验表明，DreamComposer与SOTA零样本新视图合成扩散模型完全兼容，可以进一步增强它们以生成具有多视图条件的高保真新视图图像，为可控的3D对象重建和各种其他多种应用程序做好了准备
+————
+
+<img src="https://img.saraba1st.com/forum/202312/08/052717i72qogi6tj66rits.png" referrerpolicy="no-referrer">
+
+<strong>pipeline.png</strong> (374.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 05:27 上传
+
+给定来自不同视图的多个输入图像，DreamComposer提取它们的2D潜在特征并使用3D提升模块生成三平面3D表征，然后将从3D表征获得的多视图条件渲染注入到预训练的扩散模型中，以提供目标视图辅助信息
+————
+Google扫描物体数据集的结果
+
+<img src="https://img.saraba1st.com/forum/202312/08/052729pol114qz82bz8zsq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-052552.jpg</strong> (74.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 05:27 上传
+
+在Google扫描物体数据集上对SyncDreamer(“SyncD.”)和DC-SyncDreamer(“SyncD.+Ours”)的3D重建结果进行定性对比，其中附加的额外的后视图输入图像(用□标记)是通过Zero-1-to-3生成的
+————
+Objaverse数据集的结果
+
+<img src="https://img.saraba1st.com/forum/202312/08/052751rz6zx6guigghsqay.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-052603.jpg</strong> (64.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 05:27 上传
+
+Objaverse数据集上SyncDreamer(“SyncD.”)和DC-SyncDreamer(“SyncD.+Ours”)的3D重建结果的定性对比
+————
+输入的视图数量的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/08/052756ipgqmkxgehxfezqm.png" referrerpolicy="no-referrer">
+
+<strong>ablation.png</strong> (807.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 05:27 上传
+
+DreamComposer可以处理任意数量的输入视图，并且其可控性随着输入视图数量的增加而增强
+————
+应用:可控3D编辑
+
+<img src="https://img.saraba1st.com/forum/202312/08/052810mhi11ekkpi7pzrns.jpg" referrerpolicy="no-referrer">
+
+<strong>3d65018c-3f94-4f42-aaa0-f41d6b9816d9.jpg</strong> (80.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 05:28 上传
+
+展示了(a)使用InstructPix2Pix进行个性化编辑的结果；(b)使用DragGAN、DragDiffusion进行拖动编辑；(c)颜色编辑
+————
+应用:3D角色建模
+
+<img src="https://img.saraba1st.com/forum/202312/08/052816q7cni4nnti5nhcz8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-052622.jpg</strong> (47.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 05:28 上传
+
+展示了一些多视图2D绘画中的复杂3D角色的新视图合成和重建结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1048#       发表于 2023-12-8 20:02
+
+Alpha-CLIP
+
+专注于您关注的任何地方的CLIP模型
+
+项目主页:https://aleafy.github.io/alpha-clip/
+
+github项目代码仓库:https://github.com/SunzeY/AlphaCLIP
+
+对比语言图像预训练(CLIP/Contrastive Language-Image Pre-training)在从不同任务的图像中提取有价值的内容信息方面发挥着至关重要的作用，以对齐文本和视觉方式来理解整张图像，包括所有细节，甚至是那些与特定任务无关的细节
+
+然而，为了更好地理解和控制图像编辑过程，关注特定的感兴趣区域变得至关重要，这些区域可以由人类或感知模型用点、掩码或框进行表示
+
+为了满足这些要求，引入了Alpha-CLIP，这是CLIP的增强版本，带有辅助alpha通道推荐关注区域，并使用构建的数百万个RGBA区域文本对(RGBA region-text pairs)进行了微调
+
+Alpha-CLIP不仅保留了CLIP的视觉识别能力，还可以通过精确控制强调图像内容，它展示了在各种任务中的有效性，包括但不限于开放世界识别、多模态大语言模型和条件2D/3D生成，拥有作为图像相关任务的多功能工具的强大潜力
+————
+1.图像识别中的Alpha-CLIP，通过关注指定的基准答案区域可以使零样本ImageNet分类任务的top-1准确率提高4.1%，这种增强的基于区域的识别对于引用表达理解 (REC/Referring Expression Comprehension)等任务非常有价值，并且可以作为开放词汇检测任务(OVD/Open Vocabulary Detection)的数据引擎
+
+2.作用MLLM的视觉骨干，与大型语言模型相结合，Alpha-CLIP能够在MLLM框架(例如BLIP-2、LLaVA)上提升区域级字幕说明和VQA，这种集成显著减少了幻觉的发生并减少了模型偏差，同时还支持以区域为焦点的新任务
+
+3.2D生成中的Alpha-CLIP，当与扩散模型集成时，Alpha-CLIP增强了BLIP-Diffusion 在图像变种任务(image variation tasks)中的可控性，此外，它还能够从复杂图像中提取主题以进行主题驱动生成，克服了在BLIP-Diffusion中部署原始CLIP时遇到的障碍，后者仅支持简单图像中的单个主题
+
+4.3D生成中的Alpha-CLIP，除了2D生成能力外，Alpha-CLIP还展现了3D生成能力，可以与Point-E等扩散模型结合进行有效部署，以提高3D对象生成的质量，此外，它还可以与NeRF(例如PureCLIPNeRF)结合使用，以优化高级3D对象的创造
+————
+Alpha-CLIP工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/08/200253fzdsy6sp4080nkc6.png" referrerpolicy="no-referrer">
+
+<strong>pipeline.png</strong> (988.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 20:02 上传
+
+数据生成方法和模型架构的工作流程
+(a)生成数百万个RGBA区域文本对
+(b)Alpha-CLIP修改了CLIP图像编码器以获取额外的Alpha通道以及 RGB，首先从基础和分类数据集中生成数百万个RGBA区域文本数据，然后使用生成的数据，在额外的Alpha通道输入训练Alpha-CLIP
+————
+Alpha-CLIP用法
+
+Alpha-CLIP可以在广泛的下游任务中增强CLIP，通过应用渗透到不同领域的插件方法，涵盖2D和3D应用中的，从感知到生成的各个领域，在下面的图表中展示了Alpha-CLIP的下游任务及其相对于原始CLIP的优势
+
+<img src="https://img.saraba1st.com/forum/202312/08/195905nrxi8sq878flcrvx.jpg" referrerpolicy="no-referrer">
+
+<strong>8e1090f4-2a6d-4599-888f-6c8b1b20274c.jpg</strong> (181.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202312/08/195904naiasw42wcbdw0cv.png" referrerpolicy="no-referrer">
+
+<strong>usage_table1.png</strong> (95.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 19:59 上传
+
+————
+图像识别中的Alpha-CLIP
+
+Alpha-CLIP增强了原始CLIP的区域识别能力，可以根据感兴趣的区域将alpha通道输入设置为全1，获取复杂图像中精确的对象类别，图示如下
+
+<img src="https://img.saraba1st.com/forum/202312/08/195919kifij2jwki2ees2i.png" referrerpolicy="no-referrer">
+
+<strong>recog_demo.png</strong> (207.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 19:59 上传
+
+在ImageNet上使用不同的alpha-map级别测试原始CLIP和Alpha-CLIP的识别能力，结果如下
+
+<img src="https://img.saraba1st.com/forum/202312/08/195927xuvvbbyq11b307gb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-195808.jpg</strong> (33.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 19:59 上传
+
+ImageNet-S上具有不同alpha map级别的零样本分类，当前景掩码不可用时，Alpha-CLIP与原始CLIP相当，并通过矩形框或掩码alpha map进一步提升了性能
+————
+MLLM中的Alpha-CLIP
+
+用Alpha-CLIP替换了BLIP-2和LLaVA-1.5中使用的 CLIP，使MLLM能够直接关注视觉语言任务中的用户定义区域，例如区域级字幕说明和VQA，这里显示的所有用例都是简单地用插件Alpha-CLIP替换BLIP2或LLaVA-1.5的原始CLIP，无需进一步微调
+
+<img src="https://img.saraba1st.com/forum/202312/08/200010dzaaiv6o1ai7uple.jpg" referrerpolicy="no-referrer">
+
+<strong>12ce1ec7-e08d-40c3-81c1-5fd9725636f6.jpg</strong> (423.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 20:00 上传
+
+除了定性结果之外，还提供了Alpha-CLIP在LLaVA-1.5上的Visual Genome和RefCOCOg数据集的定量区域字幕说明结果
+
+<img src="https://img.saraba1st.com/forum/202312/08/200018chhvhbsb9lvyllyh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-195952.jpg</strong> (48.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 20:00 上传
+
+Alpha-CLIP在区域级字幕说明中的性能:报告了在Visual Genome和refCOCOg数据集上的METEOR和CIDEr指标，展示了竞争性的性能结果
+————
+图像变种中的Alpha-CLIP
+
+Alpha-CLIP可用于大多数使用CLIP图像编码器的图像变种模型，例如，BLIP-Diffusion将CLIP和stable-diffusion与Q-former结合起来，以生成和编辑由文本控制的2D图像，通过引入Alpha-CLIP，可以添加一组额外的视觉提示，使模型能够专注于指定区域进行2D生成，从而实现复杂图像中的主题驱动生成，每三行的第一行是原始BLIP-Diffusion生成的图像，其他行则代表Alpha-CLIP的指定掩码生成结果，其中突出显示为红色
+
+<img src="https://img.saraba1st.com/forum/202312/08/200056n449crc94sf4ercr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-200037.jpg</strong> (572.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 20:00 上传
+
+————
+3D对象生成中的Alpha-CLIP
+
+ Point-E的Alpha-CLIP
+证明Alpha-CLIP在两种情况下很有帮助:
+1.当Point-E生成的点云有部分缺失时，用户可以在条件图像中突出显示缺失部分，以提醒扩散模型更加关注该部分并修复此缺失部分问题
+2.用户可以在2D图像上强调需要的部分
+
+<img src="https://img.saraba1st.com/forum/202312/08/200149bb3mp5cfdggbpmhy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-200107.jpg</strong> (96.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 20:01 上传
+
+PureCLIPNeRF中的Alpha-CLIP
+在PureCLIPNeRF中用Alpha-CLIP替换了CLIP模型来生成3D对象，并在有和没有背景增强的情况下进行了测试，如下图所示，使用Alpha-CLIP，PureCLIPNeRF生成的对象在形状和颜色方面与提供的文本提示(尤其是粗体文本)紧密一致，此外，生成的对象的整体连贯性也得到了增强，并且具有显著的美学质量
+
+<img src="https://img.saraba1st.com/forum/202312/08/200159ncxn06q1zxn101s1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-200120.jpg</strong> (190.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 20:01 上传
+
+————
+Alpha-CLIP注意力图可视化
+
+ 检查了视觉编码器中最后一个Transformer块中[CLS]Token的注意力图，每四行的第一行来自原始CLIP，其他三行来自Alpha-CLIP，其中用户定义的焦点区域标记为红色，该可视化验证了Alpha-CLIP更关注要关注的区域，更重要的是，没有损坏原始CLIP的特征位置中保留的2D位置信息
+
+<img src="https://img.saraba1st.com/forum/202312/08/200239zokvio684uo6eze2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208-200225.jpg</strong> (400.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 20:02 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1049#       发表于 2023-12-9 06:34
+
+ 本帖最后由 Machinery 于 2023-12-9 06:42 编辑 
+
+StripedHyena-7B
+
+为高效架构铺平道路的开源模型，一睹Transformer之外的世界
+
+相关博客:https://www.together.ai/blog/stripedhyena-7b
+
+hugface基础模型StripedHyena-Hessian-7B (SH 7B)权重下载:https://huggingface.co/togethercomputer/StripedHyena-Hessian-7B
+
+hugface聊天模型StripedHyena-Nous-7B (SH-N 7B)权重下载:https://huggingface.co/togethercomputer/StripedHyena-Nous-7B
+
+在Together Playground上与模型一起玩耍:https://api.together.xyz/playground/chat/togethercomputer/StripedHyena-Nous-7B
+
+<img src="https://img.saraba1st.com/forum/202312/09/063025zzg440rg04go49vq.jpg" referrerpolicy="no-referrer">
+
+<strong>16faa83e-534b-43ec-836f-e03275af0585.jpg</strong> (128.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:30 上传
+
+Together Research的研究重点领域之一是针对Transformer架构的长上下文、改进的训练和推理性能的新架构，源于研究团队和学术合作者的一项研究项目，受到植根于信号处理启发的序列模型，很高兴推出StripedHyena模型，此版本包括基本模型StripedHyena-Hessian-7B (SH 7B)和聊天模型StripedHyena-Nous-7B (SH-N 7B)，StripedHyena借鉴了过去一年中设计高效序列建模架构的许多经验教训:H3、Hyena、HyenaDNA和Monarch Mixer
+
+<img src="https://img.saraba1st.com/forum/202312/09/063047hnl9hscmmhmspcel.jpg" referrerpolicy="no-referrer">
+
+<strong>afa154b1-9bf3-4db4-92cb-087fa3746312.jpg</strong> (21.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:30 上传
+
+————
+1.StripedHyena是第一个在短上下文和长上下文评估中与最佳开源Transformer竞争的替代模型，相同的基础模型在OpenLLM排行榜任务上实现了与Llama-2、Yi和Mistral 7B相当的性能，而在长上下文摘要方面表现甚至优于这些模型
+
+2.对于长序列训练、微调和生成，StripedHyena速度更快、显存效率更高，除了注意力之外，高效推理的一个核心计算原型是状态空间模型(SSM/state-space model)层，它建立在S4等开创性工作的基础上，能够将卷积层转换为递归，利用基于门控卷积的快速内核(FlashFFTConv)和高效Hyena推理的最新研究，StripedHyena在长度为32k、64k 和 128k的序列上的端到端训练中速度提高了&gt;30%、&gt;50%和&gt;100%，与使用FlashAttention v2和自定义内核优化的Transformer基线相比，用于自回归生成的StripedHyena缓存比使用分组查询注意力的同等大小的Transformer小50%以上
+
+3.StripedHyena的设计利用了对高效构架缩放定律的最新研究，特别是，StripedHyena是Hyena算子中注意力和门控卷积的混合体，通过计算最佳缩放协议，确定了几种在架构级别改进Transformers(Chinchilla)基线缩放法则的方法，例如混合化(hybridization)，通过这些技术，能够在每个训练计算预算下获得比Transformer更高质量的模型，并在推理时获得额外的好处
+
+4.StripedHyena使用一组新的模型移植技术进行了优化，使之能够在训练期间更改模型架构，StripedHyena是通过移植Transformers和Hyena的架构组件获得的，并在RedPajama数据集的混合上进行训练，并用更长的上下文数据进行了增强
+
+期待能够进一步突破模型架构的边界，以实现快速训练和推理，从而使我们能够改进现有的缩放法则，并在每个计算预算下获得更高质量的基础模型
+————
+适用于短期和长期上下文任务的单一架构‍
+
+在过去的一年里，Together AI团队和Hazy Research的合作者一直致力于为语言和其他领域设计新的序列模型，这些架构取代了注意力，成为负责混合嵌入序列的主要算子，并用计算成本更低的替代方案替换它们，还开发了几种模型(H3、Hyena)，用隐式门控卷积(implicit gated convolutions)和门控SSMs取代了注意力，并训练了一些在语言上与Transformer相媲美的第一个替代架构
+————
+评估
+
+通过一系列基准测试来评估StripedHyena，以确定短上下文任务的性能，并测试其处理长提示的能力
+
+首先，在古腾堡计划的一部分书籍(a subset of books from Project Gutenberg)上测试了困惑度缩放，计算了每个样本的最后2048个Token的困惑度，并通过在StripedHyena的提示中包含越来越长的前缀来重复实验，根据样本的结构，观察到不同的行为；困惑度要么在32k处饱和(在训练的最后阶段看到的输入长度)，要么在超过32k时持续减少，这表明该模型能够合并来自较长提示的一些信息
+
+<img src="https://img.saraba1st.com/forum/202312/09/063118rekeix0toznynon1.png" referrerpolicy="no-referrer">
+
+<strong>65732f121802735f813cafb9_PastedGraphic-5.png</strong> (727.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:31 上传
+
+从古腾堡收藏中采样的书籍的上下文长度缩放，当模型通过更长的提示输入额外的上下文时，损失会减少
+
+较长上下文的质量使StripedHyena成为了一种高效的基线通用模型，在摘要和较长上下文任务方面可与Mistral 7B竞争:
+
+<img src="https://img.saraba1st.com/forum/202312/09/063204uosqz1lspopjjzmp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231209-063142.jpg</strong> (43.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:32 上传
+
+在ZeroScrolls的零样本、长上下文任务上对StripedHyena-Hessian-7B (SH 7B)和Mistral 7B进行基准测试
+
+StripedHyena是第一个可与相同大小或更大规模的强大Transformer基础模型竞争的替代架构，在短上下文任务(包括OpenLLM排行榜任务)上，StripedHyena的表现优于Llama-2 7B、Yi 7B和最强的Transformer替代品(例如RWKV 14B)注:这里使用的是RWKV Raven 14B
+
+<img src="https://img.saraba1st.com/forum/202312/09/063224siuumqff4fukfbmo.jpg" referrerpolicy="no-referrer">
+
+<strong>f071b45c-0c6e-4680-bf43-1061a154d31d.jpg</strong> (58.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:32 上传
+
+标准短上下文的平均值，基准:“arc-challenge”、“mmlu”、“boolq”、“winogrande”、“hellaswag”、“truthfulqa”，使用OpenLLM排行榜中的少样本配置，SH 7B是第一个替代模型，其性能可与相同尺寸或​​更大尺寸的最佳Transformer基线相媲美
+
+很高兴与Nous Research的合作者一起发布StripedHyena-Nous- 7B(SH-N 7B)，这是一个聊天模型，采用针对StripedHyena架构量身定制的新微调配方构建
+————
+了解架构设计空间：改善缩放的多种方法
+
+混合化
+
+在扩展实验的早期，注意到一个一致的趋势:在给定的计算预算的情况下，由不同关键层的混合构建的构架总是优于同质构架，这些观察结果与各种论文中描述的结果相呼应:H3、MEGA(其他等)，并发现了与GPT-3(来自Sparse Transformers)和GPTNeo的混合全局局部注意力设计更早的联系
+
+为了了解这一现象，以及缩放系数的改进(例如，预算中每次浮点运算(FLOP)的预期损失减少)，通过对一类架构进行了广泛的计算优化缩放分析，发现由多头注意力、门控MLPs和门控卷积组成的混合体在计算预算上优于强大的Transformer架构(例如Llama)，并确定了在顺序和数量上混合这些组件的最佳方法
+
+<img src="https://img.saraba1st.com/forum/202312/09/063303br2350fmjwcxqpw0.png" referrerpolicy="no-referrer">
+
+<strong>65734be22ed8d1eca69a9876_graph23.png</strong> (164.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:33 上传
+
+[左]不同架构的困惑度缩放，作为计算预算的函数
+[右]每个计算预算下计算最佳模型的最佳混合比例
+
+上图中的所有点，每个点代表一个训练设置(模型大小、架构和Token总数)，都是计算最优的
+
+<img src="https://img.saraba1st.com/forum/202312/09/063319f94w37fo49tgnbyz.png" referrerpolicy="no-referrer">
+
+<strong>65734b5af10b77767f02d895_graph22.png</strong> (227.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:33 上传
+
+困惑度缩放分析，遵循计算最优协议，并为基础架构和混合架构确定了每个FLOP组(每个组通过不同颜色表示)的最佳模型大小，为了最大限度地减少超参数对不同架构的影响，从优化实验的子集中推导出超参数缩放定律，混合化提高了在计算最优边界之外执行的训练的扩展性和稳健性
+
+与我们的学术合作伙伴一起开发理论和综合任务，以了解这种情况如何以及为何发生，已经确定了各种机制，其中各层专门处理序列建模的特定子任务，为进一步的架构优化提供有价值的信号，这延续了在机制设计方面的一般工作路线，其中涉及精心构建的小规模的综合任务，以对架构功能进行压力测试
+————
+多头门控卷积
+
+提高Transformer速率的另一种方法是以门控卷积中的多头形式引入额外的计算，这种设计受到线性注意力的启发，已在H3和MultiHyena等架构中得到验证，并且在编码的关联回忆回路方面被证明更有效
+
+<img src="https://img.saraba1st.com/forum/202312/09/063344ddqq2dch2docovch.png" referrerpolicy="no-referrer">
+
+<strong>6573717223a903c3f413a3bd_white lines.png</strong> (67.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:33 上传
+
+通过计算优化缩放来验证各种架构改进
+ ‍
+这些是可以改善Transformer扩展性的众多架构设计技术中的两种，对于StripedHyena，特别关注了注意力和门控卷积之间的协同作用
+————
+语言模型计算占用的转变:更便宜的微调，更快的推理
+
+优化基于不同架构构建的模型需要重新考虑训练、微调和推理的计算权衡，对于这些新架构，出现了一组不同的计算瓶颈，很自豪能够开发出支持这些模型的关键技术，例如FlashFFTConv及其前身
+
+对于长序列上的训练和微调工作负载，SH 7B始终比优化的Transformer更快(比FlashAttention v2处理长度为32k、64k和128k的序列的端到端快&gt;10%、&gt;20%和&gt;50%， 在批大小1的情况下) ，随着序列更长和批大小更大，加速比会变得更迅猛，StripedHyena模型是长上下文任务微调的最佳候选者，对于长度为128k的任务，在相同预算的情况下，SH 7B可以微调两倍于Transformer的Token
+
+<img src="https://img.saraba1st.com/forum/202312/09/063414w9ox0z9bqav2q788.png" referrerpolicy="no-referrer">
+
+<strong>65732f3e6bb6da558f966bb8_PastedGraphic-4.png</strong> (737.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:34 上传
+
+与SH 7B相比，优化的Transformer 7B(FlashAttention v2和自定义内核)的端到端批大小1延迟
+
+这些改进是由混合架构中不同的渐近缩放和各层计算配置文件驱动的，期待更快的模型以及精细的混合比例和层数
+————
+减少推理显存
+
+与Transformer(具有分组查询注意力)相比，SH 7B的另一项优势是在自回归生成过程中显存占用减少了50%以上，在Transformers中，每层的键和值在预填充阶段都会被缓存，以避免重新计算并加速增量解码，门控卷积层在推理过程中引入了更多的自由度，因为有多种方法可以表示和优化计算，在最近关于Hyena卷积的蒸馏和表征的研究中探索了这些权衡，这些新技术已在SH 7B中使用，通过识别和修剪冗余状态来进一步减少显存占用
+
+<img src="https://img.saraba1st.com/forum/202312/09/063439izc5cz4x6zvv43m3.png" referrerpolicy="no-referrer">
+
+<strong>65732f59425c945fc9fbfe71_PastedGraphic-6.png</strong> (864.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 06:34 上传
+
+GQA Transformer和StripedHyena的推理缓存的显存占用，包括键值缓存和卷积状态(FIR和IIR)
+————
+从信号处理到语言模型
+ ‍
+StripedHyena的灵活性是线性系统(卷积、模态、规范)的多重等效表示和参数化存在的直接结果，每种形式都更适合特定的训练和推理工作负载
+
+借用经典信号处理过程的术语，SH卷积过滤器可以广泛地视为有限(FIR)或无限(IIR)，卷积的FIR缓存类似于注意力机制中的标准键值缓存(kv缓存)，尤其是滑动窗口类型，并且显存占用会不断增长(直到达到最大值)
+
+另一方面，IIR过滤器可以通过缓存恒定大小的状态来应用，然后在解码期间通过循环步骤进行更新，IIR表征本身可以自我定制(itself be customized)，与kv缓存相比，固定大小状态在推理堆栈级(inference stack level)开启了几个关键优化，简化了连续批处理和推测解码(speculative decoding)等技术
+————
+未来会发生什么
+
+使用StripedHyena模型的主要目标是将架构设计的前沿推向Transformer之外，StripedHyena 仅触及了通过机制设计和缩放法则进行了仔细架构设计以及混合化、隐式卷积和状态缓存等思想的一部分结果，希望这些模型能够激励开源社区探索具有不同架构的新的令人兴奋的构建
+
+在未来的版本中，还将探索:
+
+具有更长上下文的更大模型
+多模态支持
+进一步的性能优化
+将StripedHyena集成到检索工作流程中，以充分利用更长的上下文
+————
+致谢
+
+如果没有HazyResearch、Hessian.AI、Nous Research、MILA、HuggingFace、DFKI的合作者，这项工作就不可能完成
+
+感谢Hessian.AI创新实验室和hessian.AISC服务中心的合作和共同使的AI超级计算机forty-two，还要特别感谢德国人工智能中心(DFKI)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  naiveyan  
+##### 1050#       发表于 2023-12-9 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62177923&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-8-26 23:50</a>
+
+评测榜单一直是不太全的，更多的属于是给人一个大致印象的模型能力，更何况llama2出的比较晚，算是近期的 ...</blockquote>
+[https://opencompass.org.cn/model-detail/RWKV-5-3B](https://opencompass.org.cn/model-detail/RWKV-5-3B)
+
+rwkv也开始打榜了，不过3b版本的成绩并不突出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Machinery  
+##### 1051#       发表于 2023-12-9 12:05
+
+ 本帖最后由 Machinery 于 2023-12-9 12:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63271970&amp;ptid=2126390" target="_blank">naiveyan 发表于 2023-12-9 12:03</a>
+https://opencompass.org.cn/model-detail/RWKV-5-3B
+
+rwkv也开始打榜了，不过3b版本的成绩并不突出[f:068 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">V5在打，V6在练，V7在研究，前途光明
+
+<img src="https://img.saraba1st.com/forum/202312/09/121000a3oqnnu0qlqdq34o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231209-120929.jpg</strong> (113.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 12:10 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1052#       发表于 2023-12-10 05:01
+
+AnimateZero
+
+视频扩散模型是零样本图像动画师
+
+项目主页:https://vvictoryuki.github.io/animatezero.github.io/
+
+github项目仓库:https://github.com/vvictoryuki/AnimateZero
+
+近年来大型文本到视频(T2V/text-to-video)扩散模型在视觉质量、运动和时间一致性方面取得了巨大进步，然而，生成过程仍然是一个黑箱，所有属性(例如外观、运动)都是联合学习和生成的，除了粗略的文本描述之外，没有任何精确的控制能力
+
+受图像动画化将视频作为一种特定外观与相应运动解耦的启发，提出了AnimateZero，揭示了预训练的文本到视频扩散模型，例如AnimateDiff，为其提供更精确的外观和运动控制的能力
+
+对于外观控制，借用了文本到图像(T2I)生成中的中间潜在(intermediate latents)及其特征，以确保生成的第一帧等于给定的生成图像
+
+对于时间控制，用提案的位置校正窗口注意力(positional-corrected window attention)替换了原始T2V模型的全局时间注意力(global temporal attention)，以确保其他帧能与第一帧很好地对齐
+
+借助所提出的方法，AnimateZero在无需进一步训练的情况下即可成功控制生成进度，作为给定图像的零样本图像动画师，AnimateZero还支持多种新应用，包括交互式视频生成和真实图像动画化，详细的实验证明了该方法在T2V和相关应用中的有效性
+
+<img src="https://img.saraba1st.com/forum/202312/10/050015e5n0c0tcl0qt5att.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045549__01.jpg</strong> (578.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+提出的AnimateZero修改了文本到视频扩散模型AnimateDiff的构架，以实现更可控(例如，使用预先训练的文本到图像模型生成的图像控制外观)的视频生成，而无需进一步训练 ，上述结果证明了AnimateZero在从生成图像的完全相同的域生成动画与视频方面的有效性，这些个性化图像领域包括动画风格、素描风格、像素艺术风格和写实风格等
+
+<img src="https://img.saraba1st.com/forum/202312/10/050021k9u9l97uajluu6xx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045600__01.jpg</strong> (83.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+AnimateDiff中扩散UNet的构架，它将视频扩散模型解耦为两种模块：空间模块负责生成外观，运动模块负责生成运动
+
+<img src="https://img.saraba1st.com/forum/202312/10/050026y2pr5q8ji55i40bz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045610__01.jpg</strong> (429.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+提案的AnimateZero的整体流程，给定来自预训练T2I模型的空间模块及其相应的运动模块，首先使用T2I模型生成单张图像I1，然后根据该图像生成动画化视频
+
+左侧部分显示了具有中间潜在和提出的空间外观控制的图像生成过程，空间外观控制对空间模块进行修改，包括用于确保第一帧等于I1的潜在插入，以及在其他帧之间共享第一帧的空间自注意力的键和值，以对齐语义和风格
+
+右侧部分是时间一致性控制，对AnimateDiff中的原始自注意力进行了修改，这是一个全局注意力，如(a)所示，修改包括三个关键点(如b所示):
+(1)将全局注意力替换为窗口注意力，它仅使用前面的i帧来计算第i个输出Token
+(2)重复使用第一个Token计算的相似度，以强调第一帧I1的重要性
+(3)纠正添加到输入Token中的位置嵌入(在q和k的上标中标记为红色，qkv的计算由式2描述)以获得更好的结果
+
+<img src="https://img.saraba1st.com/forum/202312/10/050032beyqetsenywbyeyw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045622__01.jpg</strong> (733.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+AnimateDiff和提案的AnimateZero之间的定性对比结果
+
+如图(a)、(b)和(c)所示，AnimateDiff生成的视频与生成的图像不在同一域中，相比之下，AnimateZero能够保持与原始T2I域的一致性
+
+在(a)、(c)和(d) 中，证明AnimateDiff可能会遇到提供的文本和生成的帧(以红色突出显示)之间不一致的问题，而AnimateZero在这个问题上表现更好
+
+<img src="https://img.saraba1st.com/forum/202312/10/050037wkm4rku94kqzu44b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045629__01.jpg</strong> (57.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+AnimateDiff和AnimateZero之间的定量对比结果，AnimateZero与文本和原始T2I域表现出更高的相似性
+
+<img src="https://img.saraba1st.com/forum/202312/10/050042cq2aqo5i51arqis1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045640__01.jpg</strong> (628.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+公开可用的图像到视频工具与提案的AnimateZero之间的定性对比结果
+
+<img src="https://img.saraba1st.com/forum/202312/10/050047s8ccwp2ap89ovb44.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045645__01.jpg</strong> (228.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+公开的图像到视频工具和提案的AnimateZero之间的定量对比结果，提出的AnimateZero在多个指标中展示了最佳性能，或者在其他指标中取得了与最佳方法相当的结果，性能最佳方法的指标以红色突出显示，而次佳方法的指标以蓝色突出显示
+
+<img src="https://img.saraba1st.com/forum/202312/10/050052a5w5gwuw50cwspd5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045653__01.jpg</strong> (870.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+消融实验演示:
+(a)AnimateDiff生成的视频
+(b)+插入生成的给定图像的中间潜在
+(c)+共享给定的生成图像的键和值
+(d)+无位置校正的时间一致性控制(TCC w/o PC)
+(e)+带位置校正的时间一致性控制(TCC w/ PC)
+
+<img src="https://img.saraba1st.com/forum/202312/10/050057iuylvvxbz27iv1hl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-045701__01.jpg</strong> (121.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:00 上传
+
+AnimateZero受到Animate-Diff运动先验的限制，并且两者在复杂运动中都表现不佳
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1053#       发表于 2023-12-10 05:46
+
+ 本帖最后由 Machinery 于 2023-12-10 05:48 编辑 
+
+HyperDreamer
+
+从单张图像生成和编辑超真实3D内容
+
+项目主页:https://ys-imtech.github.io/HyperDreamer/
+
+github项目仓库:https://github.com/wutong16/HyperDreamer
+
+从单张图像创造3D内容是一项长久存在但非常令人渴望的任务，最近的进展通过引入了2D扩散先验，产生了合理的结果，然而，现有方法对于生成后的使用来说并不足够真实，因为用户无法全方位查看、渲染和编辑生成的3D内容
+
+为了应对这些挑战，推出了具有几个关键设计和非常有吸引力的HyperDreamer:
+1.可查看:具有高分辨率纹理的360度网格建模可以通过全方位的观察创造视觉上引人注目的3D模型
+2.可渲染:细粒度语义分割和数据驱动先验被纳入指导，以学习材料的合理反照率(albedo)、粗糙度(roughness)和镜面反射(specular properties)，从而实现语义感知的任意材质估计(semantic-aware arbitrary material estimation)
+3.可编辑:对于生成的模型或自己的数据，用户可以通过几次点击交互式选择任何区域，并通过基于文本的指导有效地编辑纹理
+
+大量实验证明了HyperDreamer在使用高分辨率纹理对区域感知材质进行建模并实现用户友好的编辑方面的有效性，相信HyperDreamer有望推动3D内容的创造并在各个领域得到应用
+
+<img src="https://img.saraba1st.com/forum/202312/10/054340j9u6v98xese6at9p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053651__01.jpg</strong> (333.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:43 上传
+
+概览图，给定单个RGB图像，可以生成具有丰富细节的逼真3D模型，同时全方位可视、可渲染和可编辑
+
+<img src="https://img.saraba1st.com/forum/202312/10/054347ln77n2lx26x3jz5l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053702__01.jpg</strong> (469.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:43 上传
+
+3D生成与编辑工作流程概览图，将扩散先验、语义先验和去渲染先验引入到这个高度约束下的问题中，以在生成后通过材质建模和交互式编辑来实现高分辨率纹理
+
+<img src="https://img.saraba1st.com/forum/202312/10/054453zmhm88zei5inzppv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053715__01.jpg</strong> (77.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:44 上传
+
+处于生成阶段的SAM，与原始SAM结果相比，有效地聚类了简洁的语义组
+
+<img src="https://img.saraba1st.com/forum/202312/10/054501f7s7ir131v6hhhos.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053715__02.jpg</strong> (167.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:45 上传
+
+扩散偏置，d中的2D扩散偏置导致b中的3D生成失败，这可以通过c中的反照率正则化来缓解
+
+<img src="https://img.saraba1st.com/forum/202312/10/054508bbtljjl4elyf06lz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-054024__01.jpg</strong> (206.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:45 上传
+
+交互式编辑过程，用户可以选择感兴趣的区域，然后本文方法将目标区域的纹理掩码输出到纹理合成工作流程以进行文本引导编辑
+
+<img src="https://img.saraba1st.com/forum/202312/10/054520u4izq1uoipsq0p08.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053739__01.jpg</strong> (396.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:45 上传
+
+定性对比，HyperDreamer生成高保真的参考视图，并在新视图上生成更加真实合理的结果
+
+<img src="https://img.saraba1st.com/forum/202312/10/054603mlleftcey188l07a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053744__01__01.jpg</strong> (56.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:46 上传
+
+本文方法数据的定量结果
+
+<img src="https://img.saraba1st.com/forum/202312/10/054530v34fa41eo9ia9dda.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053744__02.jpg</strong> (52.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:45 上传
+
+DTU数据集的定量结果
+
+<img src="https://img.saraba1st.com/forum/202312/10/054608ol6468amownwmwmt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053759__01.jpg</strong> (169.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:46 上传
+
+超分辨率(SR)模块上的消融，纹理上的高频细节是在SR监督下生成的
+
+<img src="https://img.saraba1st.com/forum/202312/10/054637ruiurrirjmexulii.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053805__01.jpg</strong> (159.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:46 上传
+
+材质建模分析，在a中展示了输出粗糙度和镜面反射贴图的示例，以及Blender中的渲染结果，展示了参考视图中的反照率损失如何帮助减轻b中的反照率纹理的阴影和反射学习
+
+<img src="https://img.saraba1st.com/forum/202312/10/054645piu60qv0gmuubcxt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053759__02.jpg</strong> (165.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:46 上传
+
+分析了网格分割方案，本文方法具有更好的处理复杂情况的能力
+
+<img src="https://img.saraba1st.com/forum/202312/10/054649gti88ztyytar88dy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231210-053840__01.jpg</strong> (327.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 05:46 上传
+
+HyperDreamer提供的其他结果以及更多视图，最后一列中的图像分别是镜面反射图和粗糙度图
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1054#       发表于 2023-12-12 02:10
+
+ 本帖最后由 Machinery 于 2023-12-12 02:12 编辑 
+
+DreaMoving
+
+基于扩散模型的人类舞蹈视频生成框架
+
+项目主页:https://dreamoving.github.io/dreamoving/
+
+github项目仓库:https://github.com/dreamoving/dreamoving-project
+
+在本文中，提出了DreaMoving，一种基于扩散的可控视频生成框架，用于生成高质量的定制人类舞蹈视频，具体来说，给定目标身份和姿态序列的情况下，DreaMoving可以生成以目标身份在姿态序列驱动下在任何地方跳舞的视频，为此，提出了一个用于运动控制的视频ControlNet和一个用于身份保留的内容指导者，所提出的模型易于使用，并且可以适应大多数风格化的扩散模型以生成不同的结果
+
+<img src="https://img.saraba1st.com/forum/202312/12/021016pfv2l7bgyy8fygz7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-020712__01.jpg</strong> (365.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 02:10 上传
+
+DreamMoving概览图，视频ControlNet是在每个U-Net块之后注入运动块(motion blocks)的图像ControlNet，视频ControlNet将控制序列(姿态或深度)处理为额外的时间残差(temporal residuals)，去噪U-Net是Stable Diffusion U-Net派生的，具有用于视频生成的运动块，内容指导者将输入文本提示和外观表情，例如人脸(衣服是可选项)，转换到内容嵌入以进行交叉注意力
+
+<img src="https://img.saraba1st.com/forum/202312/12/021021uzs3ywesiz73337z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-020722__01.jpg</strong> (850.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 02:10 上传
+
+以文本提示作为输入的DreaMoving结果
+
+<img src="https://img.saraba1st.com/forum/202312/12/021025aesy42ejyj3xoz6d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-020735__01.jpg</strong> (577.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 02:10 上传
+
+以文字提示和人脸图像作为输入的DreaMoving结果
+
+<img src="https://img.saraba1st.com/forum/202312/12/021030md0p54ppkojz9sr5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-020746__01.jpg</strong> (694.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 02:10 上传
+
+以面部和衣服图像作为输入的DreaMoving结果
+
+<img src="https://img.saraba1st.com/forum/202312/12/021034v4h6s4gpsut6r4tp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-020800__01.jpg</strong> (498.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 02:10 上传
+
+以风格化图像作为输入的DreaMoving结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1055#       发表于 2023-12-12 04:18
+
+lskd
+
+视觉常识模型(Visual Commonsense Models)的区域化符号知识蒸馏(Localized Symbolic Knowledge Distillation)
+
+github项目主页:https://github.com/jamespark3922/lskd
+
+指令跟随视觉语言(VL/Instruction following vision-language)模型提供灵活的接口以零样本的方式支持广泛的多模态任务，然而，对完整图像进行操作的交互并不能直接使用户能够“指向”并确认图像内的特定区域，此功能不仅对于支持基于参考的VL基准测试很重要，而且对于需要精确的图像内推理的实际应用也很重要
+
+通过构建局部化的视觉常识模型，允许用户指定(多个)区域作为输入，从大型语言模型(LLM)中采样了局部常识知识来训练本文模型
+
+具体来说，通过在给定一组VL模型自动生成的全局文字图像描述和局部文字区域描述的情况下提示LLM收集常识知识，使用单独训练的批判模型(critic model)选择高质量的样本，可以成功地从现有的VL模型中蒸馏局部区域常识语料库以进行训练支持使用参考作为输入
+
+零样本设置中的经验结果和人类评估表明，与将生成的引用表达传递给LLM的基线相比，本文的蒸馏方法可以产生更精确的VL推理模型
+
+<img src="https://img.saraba1st.com/forum/202312/12/041708ejmijxj7k8x9lojx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041307__01.jpg</strong> (645.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+LSKD框架的流程
+1.使用不同的视觉语言描述来描述图像
+2.LLM利用全局和局部描述来生成具有基准的常识知识
+3.标注了一小部分数据来监督训练批判模型，该模型可以过滤显示不正确的视觉细节或不连贯的推理实例，批判模型过滤其余生成的语句以确定最终数据池
+4.在合成数据上对多模态模型进行微调，以零样本方式支持局部视觉常识推理
+
+<img src="https://img.saraba1st.com/forum/202312/12/041714fd3t8xd9cttbzoww.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041322__01.jpg</strong> (47.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+基于BLIP-2的批判模型分析，可以看到添加多类回归损失后可以进一步提高批判模型的性能
+
+<img src="https://img.saraba1st.com/forum/202312/12/041719yvz5d86378e0mvsr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041322__02.jpg</strong> (50.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+使用不同阈值过滤语料库大小的批判模型的精度，通过使用监督批判模型来过滤语料库，精度显著提高
+
+<img src="https://img.saraba1st.com/forum/202312/12/041724o2269hi2aq9an7za.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041330__01.jpg</strong> (77.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+对于描述的消融实验，当调用ChatGPT生成语料库时，从完整描述中删除其中一个描述，并计算平均批判分数来对各种生成进行评分(越高越好)
+
+<img src="https://img.saraba1st.com/forum/202312/12/041730uuqk05060zqknakn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041330__02.jpg</strong> (56.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+人类对有和没有过滤的语料库的判断，从三位人工标注者处获得了李克特量表(Likert scale/从1到3)的平均评分
+
+<img src="https://img.saraba1st.com/forum/202312/12/041736muivrc1tbec101mg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041341__01.jpg</strong> (208.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+局部和非局部视觉推理任务的零样本结果
+
+<img src="https://img.saraba1st.com/forum/202312/12/041740ukptfepdlzphi1xx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041347__01.jpg</strong> (129.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+过滤阈值控制的数据质量对不同数据集的影响，x轴显示过滤阈值，y轴是以百分比表示的准确度指标，对比了在LLaVA-instruct数据集(红色)和本文模型(蓝色)上训练的模型
+
+<img src="https://img.saraba1st.com/forum/202312/12/041747hqk3xmym2g2gxqz4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041354__01.jpg</strong> (201.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+关于BLIP-2 ViT-G训练的消融，使用由人类和机器标注的不同来源的视觉知识语料库进行训练，将视觉推理任务分为需要局部推理和不需要局部推理的视觉推理任务，批判过滤被应用于LSKD语料库(本文的)
+
+<img src="https://img.saraba1st.com/forum/202312/12/041751j0i5a4sc2s2shc6e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041400__01.jpg</strong> (138.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+使用LSKD vs Chat-GPT，对生成模型的描述进行人类评估，如果具有相同的品质，人类会被要求选择更好的生成之一或平局
+
+<img src="https://img.saraba1st.com/forum/202312/12/041756icdqlhnfddf1lqsp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231212-041414__01.jpg</strong> (594.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-12 04:17 上传
+
+ChatGPT(教师模型)、针对复杂视觉推理训练的LLAVA和本文模型定性示例对比，问题中提到的每个人都被分配了一个带有边界框的唯一编号，并且提及他们相应的颜色标记，生成结果中的任何错误都会以红色显示
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1056#       发表于 2023-12-13 02:10
+
+LLM360
+
+迈向完全透明的开源LLMs
+
+项目主页:https://www.llm360.ai/
+
+最近开源大型语言模型(LLM)的激增，例如LLaMA、Falcon和Mistral，为人工智能从业者和研究人员提供了多样化的选择，然而，大多数LLM仅发布了部分文件，例如最终模型权重或推理代码，并且技术报告越来越将其范围限制为高层级的设计选择和表面的统计结果，这些选择降低了LLM训练的透明度，并迫使团队需要重新发现训练过程中的许多细节，从而阻碍了该领域的进步
+
+本文提出了LLM360，这是一项完全开源的LLM计划，倡导向社区提供所有的训练代码和数据、模型检查点和中间结果。  LLM360的目标是通过使端到端LLM训练过程透明且可供每个人复制来支持开放和协作的人工智能研究
+
+作为LLM360的第一步，发布了两个从头预训练的7B参数LLM:Amber和CrystalCoder，包括它们的训练代码、数据、中间检查点和分析，通过致力于这项开源工作不断突破LLM的界限，更大规模、更强的型号正在研发中，并将在未来发布
+
+项目截图:
+
+<img src="https://img.saraba1st.com/forum/202312/13/021023ljnf89fdrzn05108.jpg" referrerpolicy="no-referrer">
+
+<strong>DH_upload_刚刚.jpg</strong> (366.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 02:10 上传
+
+
+*****
+
+####  Machinery  
+##### 1057#       发表于 2023-12-13 06:24
+
+Sherpa3D
+
+通过粗略(Coarse)3D先验提升(Boosting)高保真文本到3D的生成
+
+项目主页:[https://liuff19.github.io/Sherpa3D/](https://liuff19.github.io/Sherpa3D/)
+
+github项目代码仓库:[https://github.com/liuff19/Sherpa3D](https://github.com/liuff19/Sherpa3D)
+
+最近，通过利用2D和3D扩散模型，从文本提示创造3D内容已取得重大进展，虽然3D扩散模型可以保证良好的多视图一致性，但有限的3D数据阻碍了其生成高质量和多样化3D资产的能力
+
+相比之下，2D扩散模型找到了一种蒸馏方法，可以在无需任何3D数据的情况下实现出色的泛化和丰富的细节，然而2D扬升方法(2D lifting methods)存在固有的与视图无关的模糊性，从而导致严重的多面Janus问题，其中文本提示无法提供足够的指导来学习生成连贯的3D结果
+
+相比重新训练成本高昂的视点感知模型，本文研究了如何充分利用易于访问的粗略3D知识来增强提示并指导2D扬升优化以实现细化，在本文中，提出了Sherpa3D，一种新的文本转3D框架，可同时实现高保真度、通用性和几何一致性
+
+具体来说，设计了一对源自3D扩散模型生成的粗略3D先验的指导策略:用于几何保真度(geometric fidelity)的结构指导(structural guidance)和用于3D一致性(3D coherence)的语义指导(semantic guidance)，利用这两种引导，2D扩散模型以多样化和高质量的结果丰富了3D内容
+
+大量实验表明，Sherpa3D在质量和3D一致性方面优于之前的SOTA文本转3D方法
+
+<img src="https://img.saraba1st.com/forum/202312/13/062231jckgtfgz5plc1gpp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-061835__01.jpg</strong> (295.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 06:22 上传
+
+Sherpa3D图库:各种来自Sherpa3D生成的纹理网格的Blender渲染，其能够通过输入文本提示生成高保真、多样化、多视图一致的3D内容，本文方法也与流行的图形引擎兼容
+
+<img src="https://img.saraba1st.com/forum/202312/13/062248zg6z5lldz6dhtggj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-061855__01.jpg</strong> (203.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 06:22 上传
+
+Sherpa3D的工作流程，给定文本作为输入，首先提示3D扩散来构建在几何模型(例如DMTet)中编码的粗略3D先验M，接下来在DMTet中渲染提取的网格的法线贴图，并从M中导出两种指导策略
+
+(a)结构指导:利用结构描述(structural descriptor)来计算显然(salient)的几何特征，以保证几何保真度(解决诸如坑洞脸部的问题/pockmarked face problem)
+
+(b)语义指导:利用语义编码器(例如CLIP)来提取高层级信息以保证3D一致性(解决诸如多面问题/multi-face issues)，在2D扬升过程中应用两种指导，使用法线贴图作为2D扩散模型的形状编码，并释放其力量来生成具有3D连贯性的高质量和多样化的结果
+
+然后，通过外观建模进行真实感渲染，获得最终的3D结果(整个过程犹如那句著名谚语“Everest’s summit eludes many without Sherpa.”)
+
+<img src="https://img.saraba1st.com/forum/202312/13/062314tt5cq5c20zt8fqfs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-061906__01.jpg</strong> (220.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 06:23 上传
+
+与不同视图(0和180°)的基线方法进行定性对比，可以观察到基线方法存在严重的多面问题，而Sherpa3D可以实现更好的质量和3D连贯性
+
+<img src="https://img.saraba1st.com/forum/202312/13/062331m6rt2rde11oq6yqt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-061923__01.jpg</strong> (191.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 06:23 上传
+
+与不同视图(−30°和150°)的基线方法进行的定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/13/062343ewcwqtcosulsvcpz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-061933__01.jpg</strong> (61.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 06:23 上传
+
+使用不同CLIP检索模型对带有文本提示的生成效果图进行了定量对比，与基准答案图像、Shap-E、Dreamfusion、Magic3D进行了对比，并在以对象为中心的COCO数据集上进行了评估
+
+<img src="https://img.saraba1st.com/forum/202312/13/062353dy8f5fs53iffmszn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-061945__01.jpg</strong> (216.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 06:23 上传
+
+本文方法的消融实验，生成基于文字提示“a head of the Terracotta Army”，在实验中消融了结构指导、语义指导和逐步退火(step annealing)技术的设计选择
+
+<img src="https://img.saraba1st.com/forum/202312/13/062404u3uvbvr3tr9azqaz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-061951__01.jpg</strong> (51.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 06:24 上传
+
+多视图一致性和总体生成质量分数的用户研究定量对比，评分范围为1-10，分数越高表示性能越好
+
+<img src="https://img.saraba1st.com/forum/202312/13/062412sdaz0jdvwvcwdwu2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-061951__02.jpg</strong> (61.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 06:24 上传
+
+与Zero123的对比，使用生成的3D模型的前视图作为拥有开放词汇文本提示的Zero123的输入
+
+
+*****
+
+####  Machinery  
+##### 1058#       发表于 2023-12-13 07:22
+
+Vary
+
+扩**型视觉语言模型的视觉词汇量
+
+项目主页:[https://varybase.github.io/](https://varybase.github.io/)
+
+github项目仓库:[https://github.com/Ucas-HaoranWei/Vary](https://github.com/Ucas-HaoranWei/Vary)
+
+demo演示:[http://region-31.seetacloud.com:22701/](http://region-31.seetacloud.com:22701/)
+
+现代大型视觉语言模型(LVLM)使用相同的视觉词汇——CLIP，可以涵盖大多数常见的视觉任务，然而，对于一些需要密集和细粒度视觉感知的特殊视觉任务，例如文档级OCR或图表理解，特别是在非英语场景中，CLIP式词汇可能会遇到视觉知识标记化效率低下的问题，甚至会遇到超出固有词汇外的问题
+
+因此，本文提出了Vary，一种高效又有效的方法来扩大LVLM的视觉词汇量，Vary的处理过程被自然的分为两个部分:新视觉词汇的生成和整合
+
+在第一阶段，设计了一个词汇网络(vocabulary network)，拥有一个小型的仅解码器Transformer(tiny decoder-only transformer)，以通过自回归生成所需的词汇，接下来，将新的视觉词汇与原始的视觉词汇(CLIP)合并来扩展普通视觉词汇，使LVLM能够快速获得新特性
+
+与流行的BLIP-2、MiniGPT4和LLaVA相比，Vary可以保持其通用能力，同时享受更优秀的细粒度感知和理解能力，具体来说，Vary能够胜任新文档内容解析(OCR或Markdown转换)，同时在DocVQA中实现78.2%的ANLS，在MMVet中实现了36.2%的成绩
+
+<img src="https://img.saraba1st.com/forum/202312/13/072002lq8sz0orr6kn0q0s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071431__01.jpg</strong> (141.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:20 上传
+
+先前的方法 vs. Vary:与其他使用现成视觉词汇的模型不同，Vary的过程可以分为两个阶段:视觉词汇的生成和融合，在第一阶段，使用“词汇网络”的一个小型的仅解码器网络，通过自回归产生强力的新视觉词汇，在第二阶段，将视觉词汇与原始词汇融合，以有效地为LVLM提供新特性
+
+<img src="https://img.saraba1st.com/forum/202312/13/072017fgcehakaaiinz022.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071441__01.jpg</strong> (188.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:20 上传
+
+Vary的概览图，有两种类型的形式Vary:Vary-tiny和Vary-base，Vary-tiny主要专注于生成新的视觉词汇表，而Vary-base是新的LVLM，旨在基于新的视觉词汇表处理各种视觉任务
+
+<img src="https://img.saraba1st.com/forum/202312/13/072033exizoq0qxq6xfzqo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071451__01.jpg</strong> (34.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:20 上传
+
+新视觉词汇网络的结构，添加了两个卷积层将输出转换为类似CLIP
+
+<img src="https://img.saraba1st.com/forum/202312/13/072047uzpjtjpkjb30up67.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071507__01.jpg</strong> (154.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:20 上传
+
+合成数据的可视化，使用pdflatex渲染文档，并使用pyecharts/matplotlib渲染图表
+
+文档数据获取中/英文文本、公式、表格
+
+图表数据包括中/英文条形、折线、饼图、复合样式
+
+<img src="https://img.saraba1st.com/forum/202312/13/072058c8ykqoo4i44y5oih.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071524__01.jpg</strong> (108.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:20 上传
+
+与Nougat相比更细粒度的文本感知，Vary-tiny是基于OPT-125M生成视觉词汇的模型，具有纯OCR能力，包括中文和英文，Vary-base是在Qwen-Chat 7B的基础上扩大视觉词汇量后的模型，通过提示控制，兼具纯文档OCR和Markdown格式对话能力
+
+<img src="https://img.saraba1st.com/forum/202312/13/072114y232zrovji3s4jbj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071533__01.jpg</strong> (94.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:21 上传
+
+在DocVQA和ChartQA上与流行方法的对比，80k表示SFT数据为LLaVA-80k，665k表示LLaVA-CC 665k，DocVQA的指标是ANLS，而ChartQA则遵循其原生论文的宽松准确性
+
+<img src="https://img.saraba1st.com/forum/202312/13/072125psze0shzg59hegf1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071537__01.jpg</strong> (140.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:21 上传
+
+与MMVet上的流行方法的对比
+
+Rec: Recognition; Know: Knowledge; Gen: Language generation; Spat: Spatial awareness
+
+<img src="https://img.saraba1st.com/forum/202312/13/072135rztt80ba8gxq2nx1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071554__01.jpg</strong> (167.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:21 上传
+
+Vary-base 的指令跟随能力优于Markdown转换或纯OCR，Vary-base可以根据用户的提示控制输入的文档图像的输出格式
+
+<img src="https://img.saraba1st.com/forum/202312/13/072149m6sjloo2lcyz6v66.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071604__01.jpg</strong> (224.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:21 上传
+
+Vary-base对英文文档密集OCR的细粒度视觉感知能力
+
+<img src="https://img.saraba1st.com/forum/202312/13/072159pr1rpbzzd7rhlddz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071604__02.jpg</strong> (104.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:21 上传
+
+Vary-base对中文书籍密集OCR的细粒度视觉感知能力，输入图片来自互联网
+
+<img src="https://img.saraba1st.com/forum/202312/13/072209z8zhhmehmmzy201z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071608__01.jpg</strong> (53.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:22 上传
+
+Vary-base的Markdown/Latex格式转换能力(数学公式)，输入图片来自互联网
+
+<img src="https://img.saraba1st.com/forum/202312/13/072220kdn5x55x6djrryal.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071608__02.jpg</strong> (88.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:22 上传
+
+Vary-base的Markdown/Latex格式转换能力(表格)，输入图片来自互联网
+
+<img src="https://img.saraba1st.com/forum/202312/13/072233u6jfxe2bkxrke8ff.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071614__01.jpg</strong> (80.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:22 上传
+
+Vary-base的图表理解(中文)，输入图片来自互联网
+
+<img src="https://img.saraba1st.com/forum/202312/13/072242wlxeyi8eqxjzd1nz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231213-071614__02.jpg</strong> (138.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-13 07:22 上传
+
+Vary-base的通用性，这些图像来自LLaVA样本
+
+
+*****
+
+####  Machinery  
+##### 1059#       发表于 2023-12-14 03:40
+
+Phi-2
+
+小型语言模型的惊人力量
+
+相关博客文章:[https://www.microsoft.com/en-us/ ... ll-language-models/](https://www.microsoft.com/en-us/research/blog/phi-2-the-surprising-power-of-small-language-models/)
+
+Azure AI Studio的phi2:[https://ml.azure.com/registries/ ... ls/microsoft-phi-2/](https://ml.azure.com/registries/azureml-msr/models/microsoft-phi-2/)
+
+<img src="https://img.saraba1st.com/forum/202312/14/033817h8l2wa9ukb8av8v4.jpg" referrerpolicy="no-referrer">
+
+<strong>Phi2-BlogHeroFeature-1400x788-1-1066x600.jpg</strong> (47.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 03:38 上传
+
+Satya Nadella在Microsoft Ignite 2023上宣布Phi-2
+
+在过去的几个月中，微软研究院的机器学习基础团队发布了一套名为“Phi”的小型语言模型(SLM/small language models)，在各种基准测试中取得了卓越的性能，其中第一个模型，13亿参数的Phi-1，在现有SLM中的Python编码方面实现了SOTA性能(特别是在HumanEval和MBPP基准测试上)，然后，通过将重点扩展到常识推理和语言理解上，并创建了一个新的13亿参数模型，名为Phi-1.5，其性能表现甚至可以与比其大5倍的模型相媲美
+
+现在发布的Phi-2，是一个27亿参数的语言模型，展示了出色的推理和语言理解能力，其在参数少于130亿的系列基础语言模型中达成了SOTA性能，而在复杂的基准测试中，得益于模型扩展和训练数据管理方面的创新，Phi-2的性能可与比其大25倍的模型相匹配或超越
+
+凭借其紧凑的尺寸大小，Phi-2可以成为研究人员的实验创意游乐场，包括探索机制的可解释性、安全性改进或对各种任务的微调实验，已在Azure AI Studio模型目录中提供Phi-2，以促进语言模型的研究和开发
+
+————
+
+Phi-2 背后的关键见解
+
+语言模型的规模大幅增加到数千亿个参数，这释放了许多新兴能力，重新定义了自然语言处理的领域格局，然而其中一个问题是，是否可以使用训练策略选择(例如数据选择)在较小的模型规模上实现这种新兴能力
+
+对Phi模型的研究旨在通过训练SLM来回答这个问题，这些SLM的性能可与更大规模的模型相媲美(但距离前沿模型还很远)，对于使用Phi-2打破传统语言模型缩放定律的主要见解有两个:
+
+首先，训练数据质量对模型性能起着至关重要的作用，几十年来人们都知道这一点，但继之前的工作“Textbooks Are All You Need”之后，通过关注“教科书质量(textbook-quality)”的数据，将这一见解发挥到了极致，训练数据混合了专门创建的合成数据集，用于教育模型常用场景推理和通用常识，包括科学、日常活动和心理理论与其他等(science, daily activities, and theory of mind, among others.)，通过精心挑选的网络数据进一步扩充了训练语料库，这些数据根据教育价值和内容质量进行了过滤
+
+其次，使用了创新技术进行扩展，从13亿参数模型Phi-1.5开始，并将其知识嵌入到27亿参数Phi-2中，这种规模化的知识转移不仅加速了训练收敛，而且显著提高了Phi-2的基准分数
+
+<img src="https://img.saraba1st.com/forum/202312/14/033902yfkd2j7pukd3bwfb.png" referrerpolicy="no-referrer">
+
+<strong>figure2_phi_comp-1024x237.png</strong> (30.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 03:39 上传
+
+Phi-2 (2.7B) 和Phi-1.5(1.3B)模型之间的对比，除了BBH和MMLU分别使用3-shot CoT和5-shot评估之外，其他所有任务均使用0-shot进行评估
+
+————
+
+训练细节
+
+Phi-2是一个基于Transformer的模型，以下一个单词预测为建模目标，在用于NLP和编码的合成数据集和Web数据集的混合上多次传递的1.4T Token上进行训练，Phi-2的训练在96个A100 GPU上花费了14天，Phi-2是一个基础模型，没有通过人类反馈强化学习(RLHF)进行对齐，也没有进行指令微调，尽管如此，与经过调整的现有开源模型相比，观察到在毒性和偏置方面有更好的表现，由于定制的数据管理技术，这与在Phi-1.5中看到的情况一致
+
+<img src="https://img.saraba1st.com/forum/202312/14/033923ch0sf14czwvv041w.png" referrerpolicy="no-referrer">
+
+<strong>figure3_safety_scores-1024x498.png</strong> (55.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 03:39 上传
+
+从ToxiGen根据13人口统计数据计算出的安全评分，选择了6541个句子的子集，并根据困惑度和句子毒性进行0到1之间的评分，较高的分数表明与benign ones相比，模型产生有毒句子的可能性更小
+
+————
+
+Phi-2评估
+
+总结了Phi-2在学术基准上与流行语言模型的性能对比，基准测试涵盖多个类别，包括Big Bench Hard (BBH) (3 shot with CoT), commonsense reasoning (PIQA, WinoGrande, ARC easy and challenge, SIQA), language understanding (HellaSwag, OpenBookQA, MMLU (5-shot), SQuADv2 (2-shot), BoolQ), math (GSM8k (8 shot)), and coding (HumanEval, MBPP (3-shot))
+
+Phi-2仅拥有27亿参数，在各种聚合基准上超越了Mistral和Llama-2模型的7B和13B参数的性能，值得注意的是，与大25倍的Llama-2-70B模型相比，它在多步推理任务(即编码和数学)上实现了更好的性能，此外，尽管尺寸更小，但Phi-2的性能可与最近发布的Google Gemini Nano 2相媲美或优于
+
+当然也需要承认当前模型评估面临的挑战，并且许多公共基准可能会泄漏到训练数据中，对于第一个模型Phi-1，进行了广泛的净化研究以排除这种可能性，这可以在第一份报告“Textbooks Are All You Need”中找到，最终，可以相信判断语言模型的最佳方法是在具体用例上对其进行测试，遵循这种精神，还使用多个Microsoft内部的专有数据集和任务评估了Phi-2，并再次将其与Mistral和Llama-2进行了比较，观察到类似的趋势，即平均而言，Phi-2优于Mistral-7B，而后者优于Llama-2模型(7B、13B和70B)
+
+<img src="https://img.saraba1st.com/forum/202312/14/033956upealui9e06pn060.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-033647.jpg</strong> (47.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 03:39 上传
+
+与流行的开源SLM相比，分组基准的平均性能表现
+
+<img src="https://img.saraba1st.com/forum/202312/14/034019jcmyyglxg7lmecz1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-033657.jpg</strong> (22.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 03:40 上传
+
+Phi-2和Gemini Nano 2模型在Gemini报告的基准测试上的对比
+
+除了这些基准之外，还对研究社区的常用提示进行了广泛的测试，观察到的行为与给出的基准结果的预期一致，例如，测试了一个用于探测模型解决物理问题的能力的提示，其最近用于评估Gemini Ultra模型的能力，并取得了以下结果:
+
+<img src="https://img.saraba1st.com/forum/202312/14/034037qyyqzmnu98jp2yzn.png" referrerpolicy="no-referrer">
+
+<strong>Seb_Fig4.png</strong> (125.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 03:40 上传
+
+Phi-2对一个简单物理问题的输出，其中包括近似正确的平方根计算
+
+<img src="https://img.saraba1st.com/forum/202312/14/034049hxd7wddowa81w7iw.png" referrerpolicy="no-referrer">
+
+<strong>Seb_Fig5.png</strong> (101.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 03:40 上传
+
+与Gemini的测试类似，还进一步向Phi-2询问了学生的错误答案，看看Phi-2是否能够识别出错误所在(确实如此，尽管Phi-2没有针对聊天或遵循指令进行过微调)，然而，注意到，这并是与Gemini报告中描述的Gemini Ultra输出的完全同类的对比，特别是在后一种情况下，学生的答案是作为带有手写文本的图像给出的，而不是在此例子中使用原始文本
+
+
+*****
+
+####  Machinery  
+##### 1060#       发表于 2023-12-14 07:21
+
+FreeControl
+
+任意条件下任意文本到图像扩散模型的免训练空间控制
+
+项目主页:[https://genforce.github.io/freecontrol/](https://genforce.github.io/freecontrol/)
+
+github项目代码仓库:[https://github.com/genforce/freecontrol](https://github.com/genforce/freecontrol)
+
+最近的方法，例如ControlNet等，为用户提供了对文本到图像(T2I)扩散模型的细粒度空间控制，然而，辅助模块必须针对每种类型的空间条件、模型架构和检查点(checkpoints)进行训练，这使得它们与人类设计师在内容创造过程中想要传达给人工智能模型的不同意图和偏好相矛盾
+
+在这项工作中，提出了FreeControl，这是一种无需训练的可控T2I生成方法，同时支持多种条件、架构和检查点，FreeControl设计结构引导以促进结构与引导图像对齐，并设计外观引导以实现使用同一种子生成的图像之间的外观共享
+
+广泛的定性和定量实验证明了FreeControl在各种预训练T2I模型中的卓越性能，特别是，FreeControl有助于对许多不同的架构和检查点进行方便的免训练控制，这可以完成在大多数现有免训练方法失败的场合的挑战性的输入条件，并通过基于训练的方法实现了有竞争力的合成质量
+
+<img src="https://img.saraba1st.com/forum/202312/14/071857z14h01wfvmg01g0d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071106__01.jpg</strong> (347.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:18 上传
+
+稳定扩散的免训练条件控制
+
+(a)FreeControl能够在给定任何模态的输入条件图像的情况下对预训练的文本到图像扩散模型进行零样本控制
+
+(b)与ControlNet相比，当面临引导图像和文本描述之间的冲突时，FreeControl在空间和图像文本对齐之间实现了良好的平衡，此外，它还支持难以构建训练对(training pairs)的条件类型（例如，引入行中的点云和网格的2D投影)
+
+<img src="https://img.saraba1st.com/forum/202312/14/071915rvxxex3yozyymgio.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071121__01.jpg</strong> (137.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:19 上传
+
+PCA给出的特征子空间的可视化，U-Net解码器中第一个自注意力的键(key)是通过DDIM反演获得的，针对不同风格和模态的五张图像(上方:人物；下方:卧室)，随后使用PCA，三个主要部分的RGB中的伪彩色(pseudo-colored)提供了语义成分的清晰分离
+
+<img src="https://img.saraba1st.com/forum/202312/14/071927zszerk5i4iigz4si.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071141__01.jpg</strong> (219.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:19 上传
+
+方法概览图
+
+(a)在分析阶段，FreeControl使用预训练的扩散模型生成目标概念(例如人)的种子图像(seed images)，并对它们的扩散特征执行PCA 以获得线性子空间作为基础语义
+
+(b)在合成阶段，FreeControl在该子空间中采用结构引导来强制结构与输入条件对齐，同时应用外观指导来利用没有条件控制的相同种子生成的兄弟图像(sibling image)进行外观迁移
+
+<img src="https://img.saraba1st.com/forum/202312/14/071939vkufkztcdwed3cws.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071153__01.jpg</strong> (408.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:19 上传
+
+可控T2I扩散的定性对比，FreeControl支持一整套控制信号和Stable Diffusion的三个主要版本，生成的图像紧密遵循文本提示，同时与输入图像表现出健壮的空间对齐
+
+<img src="https://img.saraba1st.com/forum/202312/14/071953z7cbykfc78kkkz7c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071219__01.jpg</strong> (302.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:19 上传
+
+更多控制条件的定性结果，FreeControl支持基于训练的方法无法实现的具有挑战性的控制条件，其中包括常见图形原型的2D投影(第1行和第2行)、特定领域的形状模型(第3行和第4行)、图形软件视端(第5行)和模拟驾驶环境(第6行)
+
+<img src="https://img.saraba1st.com/forum/202312/14/072014l9p6l6dqx4m9mmnm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071230__01.jpg</strong> (431.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:20 上传
+
+可控T2I扩散的定性对比，与基于训练的方法相比，FreeControl实现了有竞争力的空间控制和卓越的图像文本对齐，它还避免了免训练基线方法所表现出的外观泄漏问题(appearance leakage problem)，生成内容丰富且外观忠实于文本提示的高质量图像
+
+<img src="https://img.saraba1st.com/forum/202312/14/072024efaz2mx77tb3pk12.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071239__01.jpg</strong> (163.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:20 上传
+
+可控T2I扩散的定量结果，通过自相似距离(Self-similarity distance)、CLIP分数和LPIPS距离指标衡量，FreeControl在结构保留(structure preservation)、图像文本对齐(image-text alignment)和外观多样性(appearance diversity)方面始终优于所有的免训练基线，它通过基于训练的基线实现了有竞争力的结构和外观分数，同时展示了更强的图像文本对齐
+
+<img src="https://img.saraba1st.com/forum/202312/14/072037zbaexthlahh4ulzh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071307__01.jpg</strong> (274.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:20 上传
+
+可控的T2I定制概念生成，FreeControl与主要的定制化技术兼容，并且可以轻松支持定制概念的可控生成，而无需空间对齐的条件图像，相比之下，ControlNet无法在给定冲突条件的情况下保留自定义概念，而T2I-Adapter则拒绝遵守条件图像和文本提示
+
+<img src="https://img.saraba1st.com/forum/202312/14/072049bto1jtw2tb11w2op.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071323__01.jpg</strong> (255.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:20 上传
+
+文本引导图像到图像转换的定性和定量对比，FreeControl通过引导掩码M和随机种子(左)灵活控制图像组成和风格，与基线相比(右，越右下代表成绩越好)，它在结构保留(自相似距离)和图像文本对齐(CLIP分数)之间取得了良好的平衡
+
+<img src="https://img.saraba1st.com/forum/202312/14/072104qv3qph0whwy30g1h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071323__02.jpg</strong> (71.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:21 上传
+
+语义基础Nb的大小相关消融实验，图像是使用提示“a Lego man giving a lecture”生成的，它们说明了结构和外观质量之间固有的权衡，Nb’s在中间范围内可以实现良好的平衡
+
+<img src="https://img.saraba1st.com/forum/202312/14/072113vt4v4gtv4e214zz4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071337__01.jpg</strong> (78.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:21 上传
+
+对引导效果的影响的消融实验，gs和ga分别代表结构和外观指导，上方: “leather shoes”; 下方: “cat, in the desert”
+
+<img src="https://img.saraba1st.com/forum/202312/14/072122ee9jyrkqrrjjy9r7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071348__01.jpg</strong> (149.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:21 上传
+
+特征选择上的消融实验，U-Net解码器中up block.1的自注意力的键(key)展现了最强的可控能力，插图中显示了特征的PCA可视化
+
+<img src="https://img.saraba1st.com/forum/202312/14/072130pvzo3k5ob5zk3l0t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-071352__01.jpg</strong> (170.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:21 上传
+
+种子图像数量Ns的消融实验，较大的N会带来结构对齐的微小改进
+
+上方: “wooden sculpture of a man”; 下方: “dog, in the snow”.
+
+
+*****
+
+####  Machinery  
+##### 1061#       发表于 2023-12-14 07:43
+
+ 本帖最后由 Machinery 于 2023-12-14 07:44 编辑 
+
+FreeInit
+
+弥合视频扩散模型中的初始差距
+
+项目主页:[https://tianxingwu.github.io/pages/FreeInit/](https://tianxingwu.github.io/pages/FreeInit/)
+
+github项目仓库:[https://github.com/TianxingWu/FreeInit](https://github.com/TianxingWu/FreeInit)
+
+尽管基于扩散的视频生成取得了快速发展，但现有模型的推理结果仍然表现出不那么令人满意的时间一致性和不自然的动态性，在本文中，深入研究了视频扩散模型的噪声初始化(noise initialization)，并发现了隐含的训练到推理差距，该问题导致了推理质量不佳
+
+本文关键发现是:
+
+1.推理时的初始潜在(initial latent)的时空频率分布(spatial-temporal frequency distribution)与训练时的时空频率分布存在本质上不同
+
+2.去噪过程中的生成结果是受到初始噪声(initial noise)的低频部分(low-frequency components)的显著影响的
+
+受这些观察的启发，提出了一种简洁而有效的推理采样策略FreeInit，显著提高了扩散模型生成的视频的时间一致性，通过在推理时迭代细化初始潜在的时空低频部分，FreeInit能够对训练和推理之间的初始差距进行补偿，从而有效提高生成结果的主题外观和时间一致性
+
+大量实验表明，FreeInit能够持续增强各种文本到视频生成模型的生成结果质量而无需额外训练
+
+————
+
+生成对比演示(请查看项目页面)
+
+<img src="https://img.saraba1st.com/forum/202312/14/074227agcfzgrricsr11ff.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-074123.jpg</strong> (54.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:42 上传
+
+————
+
+<img src="https://img.saraba1st.com/forum/202312/14/074308c5a35a3qkza9kbgv.png" referrerpolicy="no-referrer">
+
+<strong>pipeline.png</strong> (319.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:43 上传
+
+提出了FreeInit来弥合视频扩散模型的训练和推理之间的初始差距，FreeInit以迭代细化的方式推理初始噪声，通过DDIM采样、DDPM前向和噪声重初始化(Noise Reinitialization)，初始噪声的低频成分逐渐细化，持续增强时间一致性和主题外观
+
+————
+
+不同模型的生成结果演示
+
+<img src="https://img.saraba1st.com/forum/202312/14/074342xmg6zq1cashsbq6v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-074107.jpg</strong> (232.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 07:43 上传
+
+
+*****
+
+####  Machinery  
+##### 1062#       发表于 2023-12-14 19:38
+
+ 本帖最后由 Machinery 于 2023-12-14 19:41 编辑 
+
+Mixtral 8x7B
+
+混合专家系列模型Mixtral 8x7B
+
+相关博客:[https://mistral.ai/news/mixtral-of-experts/](https://mistral.ai/news/mixtral-of-experts/)
+
+hugface基础模型权重:[https://huggingface.co/mistralai/Mixtral-8x7B-v0.1](https://huggingface.co/mistralai/Mixtral-8x7B-v0.1)
+
+hugface指令模型权重:[https://huggingface.co/mistralai/Mixtral-8x7B-v0.1](https://huggingface.co/mistralai/Mixtral-8x7B-v0.1)
+
+————
+
+Mistral AI继续履行为开发者社区提供最佳开放模型的使命，人工智能的发展需要采取新的技术变革，而不仅仅是重用众所周知的架构和训练范式，最重要的是，它需要使社区从原始模型中受益，以促进新的发明和用途
+
+今天，该团队很自豪地发布Mixtral 8x7B，开源权重的高质量稀疏专家混合模型(SMoE/sparse mixture of experts model)，依据Apache 2.0进行授权许可，Mixtral在大多数基准测试中都优于Llama 2 70B，推理速度提高了6倍，也是最强大的开源权重模型，具有宽松的许可证，同时也是成本/性能权衡方面的最佳模型，特别是，它在大多数标准基准测试中可以匹配或优于GPT3.5的性能
+
+ Mixtral具有以下能力:
+
+1.它可以优雅地处理 32k Token的上下文
+
+2.它可以处理英语、法语、意大利语、德语和西班牙语
+
+3.它在代码生成方面表现出了强大的性能
+
+4.它可以微调为指令跟随模型，同时在MT-Bench上获得8.3的分数
+
+————
+
+通过稀疏架构推动开放模型的前沿
+
+Mixtral是一个稀疏的专家混合网络，一个仅解码器模型，其中前馈块从一组8个不同的参数组中进行选择，在每一层，对于每个Token，路由网络选择其中的组中两个(“专家”)来处理Token并相加地组合它们的输出
+
+该技术增加了模型的参数数量，同时控制了成本和延迟，因为该模型仅使用每个Token总参数集合的一小部分，具体来说，Mixtral共有46.7B个参数，但每个Token仅使用12.9B个参数， 因此它可以以与12.9B模型相同的速度和相同的成本处理输入并生成输出
+
+Mixtral根据从开放互联网中提取的数据进行了预训练，同时训练专家和路由网络
+
+————
+
+性能
+
+将Mixtral与Llama 2系列和GPT3.5基础模型进行了对比，Mixtral在大多数基准测试中均匹配或优于Llama 2 70B以及GPT3.5
+
+<img src="https://img.saraba1st.com/forum/202312/14/194104eqqc81cz1tkoai1g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-193909.jpg</strong> (73.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 19:41 上传
+
+在下图中，衡量了质量与推理预算的权衡，与Llama 2型号相比，Mistral 7B和Mixtral 8x7B均属于高效型号系列
+
+<img src="https://img.saraba1st.com/forum/202312/14/193751p83fgt38b293ub32.png" referrerpolicy="no-referrer">
+
+<strong>scaling.png</strong> (173.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 19:37 上传
+
+下表给出了上图的详细结果
+
+<img src="https://img.saraba1st.com/forum/202312/14/193804hdtg0ytdazvktcma.png" referrerpolicy="no-referrer">
+
+<strong>open_models.png</strong> (226.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 19:38 上传
+
+幻觉和偏见，为了识别可能的缺陷，通过微调/偏好建模来纠正，在TruthfulQA/BBQ/BOLD上测量了基本模型的性能
+
+<img src="https://img.saraba1st.com/forum/202312/14/194115pm5ftckxx5f5mh6x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231214-193938.jpg</strong> (76.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 19:41 上传
+
+与Llama 2相比，Mixtral更真实可信(在TruthfulQA基准上为73.9% vs 50.2%)，并且在BBQ基准上呈现出了更少的偏差，总体而言，Mixtral在BOLD上比Llama 2展现出了更正向的情绪，每个维度内的差异相似
+
+ 语言，Mixtral 8x7B精通法语、德语、西班牙语、意大利语和英语
+
+<img src="https://img.saraba1st.com/forum/202312/14/193842c1ilfhz1tattaijc.png" referrerpolicy="no-referrer">
+
+<strong>multilingual.png</strong> (148.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-14 19:38 上传
+
+————
+
+指令模型
+
+与Mixtral 8x7B一起发布了Mixtral 8x7B Instruct，该模型已通过监督微调和直接偏好优化(DPO)进行了优化，以便仔细遵循指令，在MT-Bench上，它达到了8.30的分数，使其成为最好的开源模型，性能可与GPT3.5相媲美
+
+注意：可以优雅地通过提示Mixtral使构建在其之上的应用禁止某些需要严格审核的某些输出，如此处所示，适当的偏好调整也可以达到此目的，请记住，如果没有这样的提示，模型将仅遵循给出的任何指示
+
+————
+
+使用开源部署堆栈部署 Mixtral
+
+为了使社区能够使用完全开源的堆栈运行Mixtral，已提交了对vLLM项目的更改，该项目集成了Megablocks CUDA内核以实现高效推理
+
+ Skypilot允许在云端的任何实例上部署vLLM端点
+
+
+*****
+
+####  Machinery  
+##### 1063#       发表于 2023-12-15 01:05
+
+alignment-for-honesty
+
+对齐至诚之道(Alignment for Honesty)
+
+github项目主页:[https://github.com/GAIR-NLP/alignment-for-honesty](https://github.com/GAIR-NLP/alignment-for-honesty)
+
+最近的研究在应用对齐技术来根据人类意图增强大型语言模型(LLM)的帮助性和无害性方面取得了重大进展，在本文中，主张了诚信对齐的重要性，这可以确保LLM在缺乏知识时主动拒绝回答问题，同时又不至于过于保守
+
+然而，对齐诚信的一个关键方面涉及辨别LLM知识的局限性，这并非直截了当能够判断，这一挑战需要在指标开发(metric development)、基准创建(benchmark creation)和训练方法论(training methodologies)方面提供全面的解决方案
+
+在本文中，建立了精确的问题定义，并根据论语(Analects of Confucius)的启发定义了“至诚之道”来应对这些挑战，这是制定指标的基石，有效把握了LLM在后对齐(post-alignment)过程中的诚信度量化
+
+此外，还引入了一个灵活的训练框架，该框架通过几种高效的微调技术进一步实例化，这些技术强调诚信而不牺牲其他任务的性能
+
+广泛的实验表明，这些对齐的模型显示出诚信度的显著提高，正如提出的指标所示，开源了大量资源，以促进未来的研究，包括诚信对齐模型、诚信对齐训练和评估数据集、概念术语表以及所有相关源代码
+
+<img src="https://img.saraba1st.com/forum/202312/15/010301px3edmxfd5usf4et.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005653__01.jpg</strong> (122.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:03 上传
+
+诚信对齐的说明图，给定一个知识密集型问题，一个对齐模型应该能够在了解问题的情况下提供正确答案，或者选择拒绝回答该问题
+
+<img src="https://img.saraba1st.com/forum/202312/15/010320fo7mym33mmewpj7o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005704__01.jpg</strong> (88.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:03 上传
+
+(a)迭代对齐的示意图，大型语言模型M通过迭代演化，以更好地与给定的人类价值观进行对齐
+
+(b)“无害(harmless)” 的决策边界，通常由人类定义
+
+(c)“已知(known)” 的决策边界，通常由模型决定
+
+<img src="https://img.saraba1st.com/forum/202312/15/010335jiubssshs8ruouri.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005711__01.jpg</strong> (38.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:03 上传
+
+在对齐诚信之后(t+1)，以及之前(t)的模型的回应出现类型变化，以“⑦”回应为例:模型Mt能够正确回答问题，但是模型Mt+1却选择不这样做，这意味着对齐后的模型可能会呈现出过度谨慎
+
+<img src="https://img.saraba1st.com/forum/202312/15/010344ip6vamf6fxa6bv4p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005720__01.jpg</strong> (216.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:03 上传
+
+提案的以诚信为导向(honesty-oriented)的微调方法概览图，“预期准确率=0.3”表示在抽样的10个回答中，有3个正确回答和7个错误回答，用不同的颜色分别表示错误回答，正确回答，以及不知道(idk)的回答
+
+<img src="https://img.saraba1st.com/forum/202312/15/010356f4zwwbju6be8x0w6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005726__01.jpg</strong> (49.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:03 上传
+
+输入的提示
+
+<img src="https://img.saraba1st.com/forum/202312/15/010413iihbhgu6b69rhdit.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005732__01.jpg</strong> (131.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:04 上传
+
+CONFIDENCE-NUM的输出
+
+<img src="https://img.saraba1st.com/forum/202312/15/010427v7yjaajeaauyajws.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005737__01.jpg</strong> (110.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:04 上传
+
+OCONFIDENCE-VERB的输出
+
+<img src="https://img.saraba1st.com/forum/202312/15/010442pzr9zi9apxxz5xza.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005746__01.jpg</strong> (64.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:04 上传
+
+TriviaQA评估集上的主要结果，UNALIGNED表示UNALIGNED基线，FINE-TUNED表示FINE-TUNED基线，而PROMPT-BASED表示只采用提示的免训练方法，ABSOLUTE采用m=10和τ=0.1，最佳诚信度分数以粗体显示，第二高的准确度以下划线表示
+
+<img src="https://img.saraba1st.com/forum/202312/15/010458x1181swrzujjswbp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005746__02.jpg</strong> (30.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:04 上传
+
+拒绝阈值τ的效果
+
+<img src="https://img.saraba1st.com/forum/202312/15/010508ienuca02v0cnt0e3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005753__01.jpg</strong> (84.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:05 上传
+
+不同模型规模在TriviaQA评估集上的结果
+
+<img src="https://img.saraba1st.com/forum/202312/15/010523g4wa1ybf13yjpejj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005802__01.jpg</strong> (150.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:05 上传
+
+三个自由形式问答数据集的OOD表现，考虑到最后两个数据集的不同特点，提供了PUQA的谨慎(prudence)分数以及PKQA的过度保守(over-consv.)分数和准确率，具体而言，对于PUQA，重点在于评估对齐模型是否能够拒绝明显未知的问题，相反，对于PKQA，关注点则转移到评估对齐模型是否过于谨慎，并且能否保持对于明确已知问题的准确回答
+
+<img src="https://img.saraba1st.com/forum/202312/15/010545r6lm1bqpbqwg7udw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005811__01.jpg</strong> (112.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:05 上传
+
+在MMLU上的结果，灰色行表示进行了数据增强的结果
+
+<img src="https://img.saraba1st.com/forum/202312/15/010553eal45ugxsafdldox.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-005811__02.jpg</strong> (35.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:05 上传
+
+根据来自Eval-P-的帮助性数据的结果
+
+
+*****
+
+####  Machinery  
+##### 1064#       发表于 2023-12-15 01:31
+
+ 本帖最后由 Machinery 于 2023-12-15 01:32 编辑 
+
+Stable Zero123
+
+从单张图像生成高质量3D对象
+
+hugface模型权重下载:[https://huggingface.co/stabilityai/stable-zero123](https://huggingface.co/stabilityai/stable-zero123)
+
+————
+
+关键要点
+
+Stable Zero123可以生成对象物体的新视图，展现了从各个角度对物体外观的3D理解，由于训练数据集和高度(elevation)条件的改进，质量比Zero1-to-3或Zero123-XL显著提高
+
+ 该模型基于Stable Diffusion1.5，消耗与SD1.5相同数量的VRAM来生成1个新视图，使用Stable Zero123生成3D对象需要更多时间和显存(建议使用 24GB VRAM)
+
+该模型在非商业和研究用途的授权情况下发布(相关链接:[https://huggingface.co/stability ... 23/raw/main/LICENSE](https://huggingface.co/stabilityai/stable-zero123/raw/main/LICENSE))
+
+<img src="https://img.saraba1st.com/forum/202312/15/013105prdwwb5shcy7reqq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-012905.jpg</strong> (79.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:31 上传
+
+Stable Zero123使用分数蒸馏重建的示例3D模型
+
+————
+
+Stable Zero123是内部训练的用于条件视图图像生成的模型，与之前的SOTA模型Zero123-XL相比，Stable Zero123达成了明显的改进效果，这是通过以下三个关键创新实现的:
+
+1. 改进的训练数据集，从Objaverse经过严格筛选，仅保留高质量的3D物体，并且使用比以前的方法更加真实的方式进行渲染
+
+2. 在训练和推理过程中，为模型提供了估计的摄像机角度，这种高度条件使其能够做出更明智、更高质量的预测
+
+3.预计算的数据集(预计算的潜变量)和改进的数据加载器支持更大的批大小，结合第一项创新，使得训练效率相比Zero123-XL提高了40倍
+
+已在Hugging Face上发布了该模型，以便研究人员和非商业用户可以下载并进行实验
+
+<img src="https://img.saraba1st.com/forum/202312/15/013116y4mmmspkqps2bkf3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-012918.jpg</strong> (48.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:31 上传
+
+对比来自右上方显示的输入图像样本的Stable Zero123和Zero123-XL跨越不同视角的预测
+
+————
+
+使用Stable Zero123创建3D对象
+
+为了促进3D对象生成的开放研究，改进了threestudio的开源代码以支持Zero123和Stable Zero123，这个简化版的Stable 3D过程目前处于私人预览阶段，从技术角度来说，它使用分数蒸馏采样(SDS)来优化Stable Zero123模型的NeRF，然后根据这个创建一个带纹理的3D网格，这个过程可以通过首先使用SDXL生成单个图像，然后使用Stable Zero123生成3D对象来进行文本到3D生成
+
+<img src="https://img.saraba1st.com/forum/202312/15/013123xwq15q4up578bqhd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-012932.jpg</strong> (63 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 01:31 上传
+
+Stable Zero123 (Stability AI)和Zero123-XL模型的3D对象对比
+
+
+*****
+
+####  Machinery  
+##### 1065#       发表于 2023-12-15 02:45
+
+ 本帖最后由 Machinery 于 2023-12-15 02:50 编辑 
+
+CLIP as RNN
+
+无需训练即可分割无数视觉概念
+
+项目主页:[https://torrvision.com/clip_as_rnn/](https://torrvision.com/clip_as_rnn/)
+
+github项目仓库:[https://github.com/kevin-ssy/CLIP_as_RNN](https://github.com/kevin-ssy/CLIP_as_RNN)
+
+现有的开放词汇图像分割方法需要在掩码标注或图像文本数据集上进行微调步骤，掩码标签需要大量人力，这限制了分割数据集中类别的数量，因此，预训练的视觉语言模型(VLM)的开放词汇能力在经过微调后严重受限，然而，如果没有进行微调，仅在弱图像文本监督下训练的VLM，在那些图像中不存在的概念的文本查询时，往往会产生次优的掩码预测结果
+
+为了缓解这些问题，本文引入了一种新颖的循环框架(recurrent framework)，通过逐渐过滤掉不相关的文本并改善掩码质量，无需进行训练即可实现，循环单元(recurrent unit)是一个基于冻结权重的VLM构建的两阶段分割器，因此，本文模型保留了VLM的广泛词汇空间，并增强了其分割能力
+
+实验结果表明，本文方法不仅优于无训练的对应方法，还优于使用数百万额外数据样本进行微调的方法，并在零样本语义分割和指代图像分割任务(referring image segmentation tasks)上创下了新的最优记录
+
+具体而言，在Pascal VOC、COCO Object和Pascal Context数据集上，将当前记录的mIoU分别提高了28.8、16.0和6.9
+
+<img src="https://img.saraba1st.com/forum/202312/15/024240oruykqkiiukzppkr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023748__01.jpg</strong> (277.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:42 上传
+
+提出了CaR来对广泛的词汇进行概念分割，包括虚拟角色、地标、品牌、日常物品和指称表达，图片展示了定性结果
+
+<img src="https://img.saraba1st.com/forum/202312/15/024252k7b7zm4azhx7qfha.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023754__01.jpg</strong> (97.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:42 上传
+
+CaR可以完全继承CLIP的广泛词汇空间，通过直接使用预训练的视觉语言模型CLIP的特征，而无需进行任何微调，尽管图像中的场景很简单，但在分割数据集上经过微调的SOTA方法无法正确地分割和识别百事可乐和可口可乐
+
+<img src="https://img.saraba1st.com/forum/202312/15/024303kpmg4ggbgg61m6mx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023807__01.jpg</strong> (272.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:43 上传
+
+CaR的总体框架
+
+(a)、(b):给定一张图片，用户提供一组他们感兴趣的文本查询用于进行分割，这个初始集合用h0表示，可能包含图片中不存在的概念，例如Arsenal和Arsenal，在t-th个时间步骤中，冻结的分割器评估每个掩码与先前时间步骤的文本查询ht−1之间的对齐程度，然后使用函数σ消除置信度较低的查询
+
+(c) 描述了两阶段分割器的详细构架，它包括一个掩码生成器f(·, ·)，和一个掩码分类器g(·, ·)，用于评估每个掩码文本对的对齐程度
+
+<img src="https://img.saraba1st.com/forum/202312/15/024315l9ueqxcgxtu9ttdk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023815__01.jpg</strong> (60.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:43 上传
+
+给定the man wearing the jersey of Manchester United掩码的视觉提示的示例
+
+<img src="https://img.saraba1st.com/forum/202312/15/024429vfrifdycynkjyknr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023839__01.jpg</strong> (307.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:44 上传
+
+与现有的零样本语义分割方法进行对比，用✓表示VLM的视觉编码器或文本编码器是否经过预训练，从表格可以看出，本文方法不仅在没有微调的情况下表现出色，而且在对数百万个数据样本进行微调的方法上也表现出色，为了公平比较，将使用CLIP作为骨干网络的方法进行了对比
+
+<img src="https://img.saraba1st.com/forum/202312/15/024443rj28129mp0j8qvg5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023847__01.jpg</strong> (31.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:44 上传
+
+应用循环架构和不同的CAM方法的效果，循环在提高性能方面起着至关重要的作用
+
+<img src="https://img.saraba1st.com/forum/202312/15/024455ypkvc4555jvvj65c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023859__01.jpg</strong> (45.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:44 上传
+
+CLIP骨干网络的效果，在Pascal VOC和COCO Object上比较了各种CLIP骨干网络，结果显示，通过扩大掩码分类器，可以提高性能
+
+<img src="https://img.saraba1st.com/forum/202312/15/024507l92rb1mmcbmkxz99.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023905__01.jpg</strong> (45.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:45 上传
+
+不同视觉提示的效果，当多个视觉提示被选中时，将同时将所有选中的视觉提示应用于一张图像上，实验在Pascal VOC上进行
+
+<img src="https://img.saraba1st.com/forum/202312/15/024516xiliy8sropn3o1i8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023917__01.jpg</strong> (50.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:45 上传
+
+不同超参数的影响:将掩码二值化提案的阈值(η)，移除文本查询的阈值(θ)以及CLIP-ES的参数(λ)，在Pascal VOC和COCO Object上进行了实验
+
+<img src="https://img.saraba1st.com/forum/202312/15/024532vxp6pvs1kipxpyjs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023917__02.jpg</strong> (38.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:45 上传
+
+背景查询对Pascal VOC的影响，将背景查询分为:Terrestrial, Aquatic,Atmospheric, and Man-Made，在第一行的结果中使用“None”作为背景查询
+
+<img src="https://img.saraba1st.com/forum/202312/15/024542zq3gr8m7tw74z2m0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023917__03.jpg</strong> (49.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:45 上传
+
+在指代图像分割的mIoU方面，与SOTA方法进行了对比，CaR在三个基准测试的所有拆分中都优于所有比较方法
+
+<img src="https://img.saraba1st.com/forum/202312/15/024553syhfohnzcycoc6nf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-023925__01.jpg</strong> (7.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 02:45 上传
+
+在Ref-DAVIS 2017上的结果
+
+
+*****
+
+####  Machinery  
+##### 1066#       发表于 2023-12-15 17:54
+
+ 本帖最后由 Machinery 于 2023-12-15 17:58 编辑 
+
+Weak-to-strong
+
+从弱到强的泛化
+
+相关博客:[https://openai.com/research/weak-to-strong-generalization](https://openai.com/research/weak-to-strong-generalization)
+
+相关论文:[https://cdn.openai.com/papers/weak-to-strong-generalization.pdf](https://cdn.openai.com/papers/weak-to-strong-generalization.pdf)
+
+github相关仓库:[https://github.com/openai/weak-to-strong](https://github.com/openai/weak-to-strong)
+
+提出了一个新的超对齐研究方向，以及有希望的初步结果:我们能否利用深度学习的泛化特点来控制强模型与弱监督者的关系
+
+————
+
+对于超人工智能系统(超对齐)的核心挑战之一是，人类能监督比他们更聪明的AI系统吗？本文研究了一个简单的类比:小模型能够监督大模型吗？展示了使用一个类似GPT-2的模型来调用GPT-4的大部分能力，接近于GPT-3.5的性能水平，甚至在小模型失败的困难问题上也能正确泛化，这开辟了一条新的研究方向，使我们能够直接应对未来超人类模型对齐的核心挑战，同时在当今取得迭代的经验性进展
+
+————
+
+超对齐问题
+
+相信在未来十年内，会出现远远智能于人类的超智能人工智能，然而，我们仍然不知道如何可靠地引导和控制超人类人工智能系统，解决这个问题对于确保未来最先进的人工智能系统仍然安全和有益于人类至关重要
+
+今年早些时候，openai成立了超对齐团队来解决超智能对齐的问题，而今天，发布了该团队的第一篇论文，介绍了一种新的通过经验对齐超人类模型的研究方向
+
+当前的对齐方法，比如基于人类反馈的强化学习(RLHF)，依赖于人类的监督，然而，未来的人工智能系统将能够展现极其复杂和创造性的行为，这将使得人类难以可靠地监督它们，例如，超人类模型可能能够编写数百万行新颖(具有潜在危险)的计算机代码，即使对于专家人类来说，理解起来也非常困难
+
+相对于超人类的AI模型，人类将成为“弱监督者”，这是人工通用智能对齐的一个核心挑战:弱监督者如何能够信任和控制实质上更强大的模型？
+
+————
+
+实验设置
+
+为了在这个核心挑战上取得进展，提出一个在今天可以进行实证研究的类比:能否使用一个较小(能力较弱)模型来监督一个较大(能力较强)的模型？
+
+<img src="https://img.saraba1st.com/forum/202312/15/175438t512p8zeg8y82251.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-175422.jpg</strong> (41.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 17:54 上传
+
+一个对于超对齐的简单类比:在传统的机器学习中，人类监督相比他们自己能力较弱的AI系统(左图)，为了实现超智能的对齐，人类将需要监督比他们自己更聪明的AI系统(中图)，虽然现在无法直接研究这个问题，但可以研究一个简单的类比:较小的模型是否可以监督较大的模型(右图)
+
+天真地说，我们可能不会期望一个强大的模型比提供训练信号的弱监督者表现更好，它可能只是学会模仿弱监督者所犯的所有错误，另一方面，强大的预训练模型具有出色的原始能力，从而不需要从头开始教它们新任务，只需要引出它们潜在的知识
+
+关键问题是:强大的模型是否会根据弱监督者的潜在意图进行泛化，利用其全部能力来解决即使在弱监督者只能提供不完整或有缺陷的训练标签的困难问题？
+
+————
+
+研究结果
+
+<img src="https://img.saraba1st.com/forum/202312/15/175451ai6p75mt5g26iti6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-175356.jpg</strong> (20.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 17:54 上传
+
+典型的自然语言处理基准(NLP benchmarks)上的从弱到强的泛化:使用一个GPT-2级别的模型作为弱监督者，来对GPT-4进行微调
+
+可以在许多设置中显著提高泛化能力，使用一种简单的方法，鼓励强模型更加自信，包括在必要时坚定地不同意弱监督者，当我们使用这种方法用GPT-2级模型监督GPT-4在自然语言处理任务上时，得到的模型通常表现在GPT-3和GPT-3.5之间，这意味着能够通过较弱的监督来恢复大部分GPT-4的能力
+
+这种方法是一个概念验证，有一些重要的限制；例如，它仍然不能在ChatGPT偏好数据上工作，然而，还发现其他方法，比如优化的早期停止(optimal early stopping)和从小到中再到大的模型的自举提升(bootstrapping)，也有迹象表明它们是有效的
+
+综上所述，研究结果表明:(1)简单的人类监督，比如通过人类反馈进行强化学习(RLHF)，可能在没有进一步工作的情况下很难扩展到超人模型，但(2)在弱到强泛化方面是可行的
+
+————
+
+研究机会
+
+当前的经验设置与解决超级智能模型对齐的最终问题之间仍然存在重要的不同之处，例如，未来的模型可能更容易模仿弱人类的错误，而当前的强模型要模仿当前的弱模型错误可能更困难，这可能使得未来的泛化更加困难
+
+尽管如此，相信本文也捕捉到了解决未来超级智能模型对齐问题的一些关键困难，使我们能够从今天开始在这个问题上取得实证进展，未来工作有许多有希望的方向，包括修复设置中的不同之处，开发更好的可扩展方法，并推进对何时以及如何期望从弱到强泛化能力的良好科学理解
+
+Openai团队今日发布了开源代码，以便于开始进行弱到强泛化实验，同时推出了一项1000万美元的资助计划，面向研究生、学者和其他研究人员，广泛开展超人级AI对齐的工作，特别期待支持与弱到强泛化相关的研究
+
+弄清楚如何将未来的超人级AI系统对齐以确保安全性从未如此重要，现在在这个问题上进行经验上的进展比以往任何时候都更容易，并对研究人员能够发现什么突破感到兴奋
+
+————
+
+<img src="https://img.saraba1st.com/forum/202312/15/175754jyjq60jjgla4111h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231215-175721.jpg</strong> (272.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 17:57 上传
+
+
+*****
+
+####  Machinery  
+##### 1067#       发表于 2023-12-16 03:38
+
+CogAgent
+
+用于GUI代理者(GUI Agents)的视觉语言模型
+
+项目综合主页:[https://github.com/THUDM/CogVLM](https://github.com/THUDM/CogVLM)
+
+人们花费了大量的时间在数字设备的图形用户界面(GUI)上，例如计算机或智能手机屏幕等，诸如ChatGPT这样的大型语言模型(LLM)可以帮助人们完成写邮件之类的任务，但在理解和与GUI交互方面依然存在困难，这限制了它们在自动化水平方面继续提高的潜力
+
+在本文中，介绍了CogAgent，一个具有180亿参数的视觉语言模型(VLM)，专门用于GUI的理解和导航，通过同时利用低分辨率和高分辨率图像编码器，CogAgent支持1120*1120分辨率的输入，使其能够识别微小的页面元素和文本
+
+作为一个通用的视觉语言模型，CogAgent在五个富文本和四个通用的VQA基准测试(包括VQAv2、OK-VQA、Text-VQA、ST-VQA、ChartQA、infoVQA、DocVQA、MM-Vet和POPE)中达成了SOTA水平
+
+CogAgent仅使用屏幕截图作为输入，在PC和Android GUI导航任务中优于消耗提取的HTML文本的LLM方法(Mind2Web和AITW)，推动了技术的发展
+
+<img src="https://img.saraba1st.com/forum/202312/16/033615vrugyuhxh3uxaeau.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033048__01.jpg</strong> (315.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:36 上传
+
+CogAgent生成的视觉代理者样本
+
+<img src="https://img.saraba1st.com/forum/202312/16/033631ccnjjb4501c2452j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033106__01.jpg</strong> (176.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:36 上传
+
+CogAgent的模型构架，采用CogVLM作为原始的VLM
+
+<img src="https://img.saraba1st.com/forum/202312/16/033643e5zouo7rsu75zyqb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033124__01.jpg</strong> (133.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:36 上传
+
+在视觉问答基准测试中的表现，粗体表示通用类别中的最佳得分，而下划线文字表示通用类别和特定任务类别中的最佳得分
+
+<img src="https://img.saraba1st.com/forum/202312/16/033652enn1aanaavgf4ob3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033201__01.jpg</strong> (92.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:36 上传
+
+CogAgent在对话式问答和幻觉评测上的评估，关于POPE数据集，在评估中使用了其对抗子集(adversarial subset)
+
+<img src="https://img.saraba1st.com/forum/202312/16/033703i4eu4u6uyxuoxm2u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033209__01.jpg</strong> (94.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:37 上传
+
+在Mind2Web任务上的表现。†表示从top-10元素候选项中选择，其他来自top-50
+
+<img src="https://img.saraba1st.com/forum/202312/16/033732hx56gx5rhedt4dt4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033209__02.jpg</strong> (84.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:37 上传
+
+在Android in the Wild(AITW)数据集上的表现，†表示在每个子集上进行独立微调的模型，而其他模型是跨越所有子集的统一模型
+
+<img src="https://img.saraba1st.com/forum/202312/16/033750crra7kr7grorga3f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033221__01.jpg</strong> (48.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:37 上传
+
+不同模型构架和分辨率在前向传播过程中的FLOPs对比
+
+<img src="https://img.saraba1st.com/forum/202312/16/033759fpffhaayp3haazoe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033221__02.jpg</strong> (56.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:37 上传
+
+模型架构的消融研究，训练时间是在批大小为8的A800上评估的，模型使用字幕说明+OCR数据进行预训练
+
+<img src="https://img.saraba1st.com/forum/202312/16/033806lwvvhtbwz6s54l26.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-033221__03.jpg</strong> (51.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:38 上传
+
+预训练数据的消融实验，包括逐步添加图像字幕说明、OCR和其他预训练数据的实验
+
+*****
+
+####  Machinery  
+##### 1068#       发表于 2023-12-16 03:41
+
+StemGen
+
+一种基于聆听的音乐生成模型
+
+项目主页:[https://julian-parker.github.io/stemgen/](https://julian-parker.github.io/stemgen/)
+
+最近，使用深度学习技术对音乐音频进行端到端生成的研究引发了热潮，然而，大多数模型专注于根据抽象的条件信息生成完全混合的音乐(fully mixed music)
+
+在这项工作中，提出了一种可替代的范式，可以根据音乐上下文进行聆听与回应的音乐生成模型，本文描述了如何使用非自回归的基于Transformer的模型构架构建这样的模型，并提出了一些新颖的构架和采样改进方法
+
+使用开源数据集和专有数据集对所描述的架构进行了训练，同时使用标准的质量指标和基于音乐信息检索描述符(music information retrieval descriptors)的新方法对生成的模型进行了评估，结果表明，所得模型在音频质量上达到了基于文本条件的模型水平的SOTA成绩，并且具有强大的与其上下文关联的音乐连贯表现
+
+相关截图:
+
+<img src="https://img.saraba1st.com/forum/202312/16/034105gbcuxo0xawiskfwz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-022109__01.jpg</strong> (78.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/16/034114n064xsddf440505i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-022321.jpg</strong> (45.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 03:41 上传
+
+
+*****
+
+####  Machinery  
+##### 1069#       发表于 2023-12-16 04:28
+
+ 本帖最后由 Machinery 于 2023-12-16 04:29 编辑 
+
+DCI
+
+一张图片的价值超过 77 个文本Token:评估密集字幕说明上的CLIP样式模型
+
+github项目仓库:[https://github.com/facebookresearch/DCI](https://github.com/facebookresearch/DCI)
+
+大规模的视觉语言数据集的标注方法需要在数据集的大小和质量之间进行权衡筛选，然而，即使是最高质量的可用标注字幕说明，也远远无法捕捉到一幅图像中丰富的视觉细节
+
+为了展示密集且高度对齐的图像文本对的价值，研究构造了密集字幕说明图像(DCI/Densely Captioned Images)数据集，其中包含8012张自然图像，每张图像都用人工标注的掩码对齐描述，平均每个描述超过1000个单词
+
+通过将精确可靠的字幕与图像的特定部分关联起来，可以使用一项新任务评估视觉语言模型(VLM)对图像内容的理解程度，该任务要求将每个字幕说明与其相应的子裁切图进行匹配，由于当前的模型通常限制为77个文本Token，因此还引入了一个摘要版本(sDCI/summarized Densely Captioned Images)，其中每个字幕的长度有所限制
+
+展示了在标准基准测试上取得进展的现代技术，在基于sDCI的基准上并没有显著改善，最后，使用sDCI对CLIP进行微调，并显示出与基线相比的显著改进，尽管训练集很小，通过发布第一个人工标注的密集图像字幕数据集，希望为下一代VLM的开发提供新的基准或微调方法
+
+<img src="https://img.saraba1st.com/forum/202312/16/042647v3wjvr8qrqoxcvjo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-042400__01.jpg</strong> (287.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:26 上传
+
+DCI数据集中的一个例子，只显示了子掩码层次结构的部分
+
+<img src="https://img.saraba1st.com/forum/202312/16/042710xpaayt2xtppqzh0e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-042427__01.jpg</strong> (241.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:27 上传
+
+为图像的掩码编写描述的标注视图，为了清晰起见，掩码区域会高亮显示
+
+<img src="https://img.saraba1st.com/forum/202312/16/042720ko4nzx11zizmnoe4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-042437__01.jpg</strong> (455.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:27 上传
+
+Llama2生成的sDCI摘要和负面的示例，每个图像和子掩码都有多个摘要和负面，还对比了DAC和DCI之间的字幕说明质量，与依赖于人工标注的DCI不同，DAC使用了基于LLM的自动工作流程进行字幕说明编写，正如在这个例子中观察到的，DAC的字幕可能会出现幻觉，并且错过照片的重要元素，在这项工作中认为，虽然改进自动工作流程是一个重要的研究方向，但目前提案的自动字幕说明还不足以可靠地用于评估模型的能力
+
+<img src="https://img.saraba1st.com/forum/202312/16/042734vnd7xot2rrxv6riv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-042445__01.jpg</strong> (81.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:27 上传
+
+DCI数据集的统计数据与其他数据集的对比，重点关注了每个图像或字幕说明的平均CLIP Token数，请注意，DCI与之前最长的标注数据集Localized Narratives(LN)之间存在26倍的差异，sub表示包括子掩码及其描述作为示例，sDCI是指将DCI的字幕总结为77个Token的LLM版本，而LNCOCO&lt;77则代表简单地删除了超过77个标记的示例(约10.8%)
+
+<img src="https://img.saraba1st.com/forum/202312/16/042758zopz8vcu4awyoz4v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-042452__01.jpg</strong> (138.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:27 上传
+
+sDCI测试结果：在子裁切字幕说明匹配(SCM/Subcrop-Caption Matching)和负面测试中对比了现有的基线模型，注意到，在第5节中对sDCI进行微调的最佳模型在All SCM和All SCM Pick5的保留测试(held-out test)中分别达到了64.02%和31.60%，为模型性能设定了一个上限
+
+<img src="https://img.saraba1st.com/forum/202312/16/042808rii63xs3464wdaa3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-042500__01.jpg</strong> (224.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:28 上传
+
+使用sDCI对CLIP进行微调，在ARO和VL-Checklist基准上测试，将使用DAC字幕进行微调的模型与使用sDCI进行微调的模型进行了对比，由于DAC数据集包含3百万张图像，而sDCI只包含8012张图像，因此对DAC数据集中使用的训练图像数量进行了消融实验
+
+在这个例子中，DACLLM10000是指只使用DAC中的1万张图像对CLIP进行微调，绘制了5个不同随机种子的平均值，并在标准差超过1%准确率时显示出来，观察到，相比于使用DAC进行训练，使用sDCI进行训练在相似数量的样本上显著改进了性能
+
+
+*****
+
+####  Machinery  
+##### 1070#       发表于 2023-12-16 04:56
+
+Fine ControlNet
+
+通过空间对齐文本控制注入带来的精细文本控制进行图像生成
+
+项目主页:[https://samsunglabs.github.io/FineControlNet-project-page/](https://samsunglabs.github.io/FineControlNet-project-page/)
+
+github项目主页(待整理):[https://github.com/SamsungLabs/FineControlNet](https://github.com/SamsungLabs/FineControlNet)
+
+最近引入的ControlNet具有使用几何输入(geometric input)，如人体2D姿势或边缘特征等，来驱动基于文本的图像生成过程的能力，虽然ControlNet可以控制生成图像中实例的几何形状，但它缺乏控制每个实例的视觉外观的能力
+
+为了在保持精确的姿态控制能力的同时对每个实例的外观进行精细控制，提出了FineControlNet，具体而言，通过人体姿态图像实现了几何控制，并使用实例级文本提示实现外观控制，在潜在空间中实例特定的文本提示和2D姿态的空间对齐使得FineControlNet具有精细控制能力
+
+通过与基于姿态条件的SOTA文本到图像扩散模型进行严格对比来评估FineControlNet的性能，与现有方法相比，FineControlNet在生成遵循用户提供的实例特定文本提示和姿态的图像方面表现出卓越的性能
+
+————
+
+FineControlNet方法概览图
+
+<img src="https://img.saraba1st.com/forum/202312/16/045544n0hble30seb51hqb.png" referrerpolicy="no-referrer">
+
+<strong>method_overview.png</strong> (238.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:55 上传
+
+FineControlNet接受一个文本提示和一个空间条件图像作为输入，然后文本提示被解析，为每个条件实例分配一个独立的提示，之后将每个提示、草图、掩码和噪声图传递给模型，通过将每个独立提示信息空间注入到图像的不同区域，可以生成符合输入提示的高质量图像
+
+————
+
+定性结果
+
+<img src="https://img.saraba1st.com/forum/202312/16/045615yhn4tdt9ft3n9a7d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-045602.jpg</strong> (346.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:56 上传
+
+将本文方法与6种SOTA基线方法进行了定性与定量对比，下面是本文方法生成的图像与基线方法的一些示例对比，有关完整的分析，请参阅论文
+
+————
+
+其他模态
+
+<img src="https://img.saraba1st.com/forum/202312/16/045635k2jwsoe2tqlspejc.png" referrerpolicy="no-referrer">
+
+<strong>other_modalities.png</strong> (272.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 04:56 上传
+
+本文方法还具有以除了人体姿态之外的其他模态作为条件能力，包括了其他模态条件的定性结果，例如Canny边缘、M-LSD、软边缘和草图输入作为本文方法可以处理的其他空间条件的示例
+
+
+*****
+
+####  Machinery  
+##### 1071#       发表于 2023-12-16 05:33
+
+ 本帖最后由 Machinery 于 2023-12-16 05:36 编辑 
+
+VL-GPT
+
+用于视觉和语言理解和生成的生成式预训练Transformer(Generative Pre-trained Transformer)
+
+github项目主页:[https://github.com/AILab-CVC/VL-GPT](https://github.com/AILab-CVC/VL-GPT)
+
+在这项工作中，介绍了视觉语言生成式预训练Transformer(VL-GPT/Vision-Language Generative Pre-trained Transformer)，这是一个可以同时感知和生成视觉和语言数据的Transformer模型
+
+VL-GPT通过采用直接的自回归目标来实现图像和文本两种模态的统一预训练方法，从而使模型能够像处理文本一样无缝处理图像和文本，为了实现这一目标，首先提出了一种新颖的图像分词-去词化器框架(image tokenizer-detokenizer framework)，专门设计用于将原始图像转换为连续嵌入序列，并进行相应的重建，结合现有的文本分词器和去分词化器(text tokenizer and detokenizer)，这个框架允许将交错的图像文本数据编码为多模态序列，随后可以将序列输入到Transformer模型中
+
+因此，VL-GPT可以利用统一的自回归目标(即下一个Token预测)对多模态语料库进行大规模预训练，在预训练完成后，VL-GPT在各种视觉和语言理解和生成任务中展现出了非常出色的零样本和少样本性能，包括图像字幕说明生成、视觉问答、文本到图像生成等
+
+此外，当给定多模态提示时，预训练模型可以进行上下文学习，进一步在VL-GPT上进行了指令调整，突出了它在多模态辅助方面的出色潜力，源代码和模型权重将会公开发布
+
+<img src="https://img.saraba1st.com/forum/202312/16/053214t3mlsgdmniaqmm6u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-052813__01.jpg</strong> (184.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 05:32 上传
+
+提出的方法概览图，上方部分描述了图像分词器-去分词器框架，用于将图像编码为连续的视觉嵌入，并在像素空间中重构图像，下方部分展示了VL-GPT的实现，其中交错的图像文本数据使用图像和文本分词器编码为多模态序列，随后由Transformer模型自回归式地处理，图像和文本去分词器用于生成相应的输出
+
+<img src="https://img.saraba1st.com/forum/202312/16/053224ph6m2hiyb8mhh3bq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-052825__01.jpg</strong> (110.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 05:32 上传
+
+图像分词器-去分词器框架的训练方案是由预训练图像扩散模型的冻结图像和文本编码器进行监督的，只有分词器中的因果Transformer和去分词器中的Transformer解码器需要进行训练，而去分词器中的扩散解码器在训练过程中未被使用
+
+<img src="https://img.saraba1st.com/forum/202312/16/053232cjl2618i2l4d6dk2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-052834__01.jpg</strong> (249.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 05:32 上传
+
+图像分词器-去分词器框架利用图像条件嵌入zv，文本条件嵌入zt或两种类型的条件嵌入zv+zt来重建图像
+
+<img src="https://img.saraba1st.com/forum/202312/16/053244z67kgf0oglggjawf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-052844__01.jpg</strong> (54.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 05:32 上传
+
+使用CLIP相似性评估图像重建
+
+<img src="https://img.saraba1st.com/forum/202312/16/053305jj3kmmchh4x6bxpk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-052855__01.jpg</strong> (249.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 05:33 上传
+
+使用VL-GPT模型与其他模型之间进行了评估对比，†表示零样本提示是通过采样两个特定任务的示例，并删除它们的相关图像来构建的，§表示用于指令调整的数据集是私有的
+
+<img src="https://img.saraba1st.com/forum/202312/16/053315txn11xmu1rxgzacg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-052944__01.jpg</strong> (220.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 05:33 上传
+
+VL-GPT在各种视觉和语言理解与生成任务中的示例样本，这些任务包括:(1)-(2)图像描字幕说明，(3)视觉问答，(4)-(8)文本到图像生成，(9)-(10)多模态上下文生成，以及(11)-(12)多模态对话
+
+示例(1)-(10)是由预训练的VL-GPT生成的，而(11)-(12)是由调整过的VL-GPT生成的，蓝色框表示多模态输入，黄色框表示VL-GPT输出
+
+<img src="https://img.saraba1st.com/forum/202312/16/053323qsav95gbm93ncv59.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-052956__01.jpg</strong> (42.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 05:33 上传
+
+视觉问答方面的少样本表现
+
+<img src="https://img.saraba1st.com/forum/202312/16/053348qeks4aaod1gome0k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-052956__02.jpg</strong> (36.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 05:33 上传
+
+进行了条件嵌入类型的消融实验，使用文本嵌入et、图像嵌入ev或它们的组合et+ev来指导分词器-去分词器框架的训练，评估了在采用不同的图像分词器和去分词器时重建图像的效果和VL-GPT的性能
+
+
+*****
+
+####  Machinery  
+##### 1072#       发表于 2023-12-16 06:41
+
+PixelLLM
+
+像素对齐的语言模型(Pixel Aligned Language Models)
+
+项目主页:[https://jerryxu.net/PixelLLM](https://jerryxu.net/PixelLLM)
+
+代码:coming soon
+
+近年来，大型语言模型在自然语言处理领域取得了巨大成功，视觉领域的变体也同样如此，现有的视觉语言模型可以用自然语言描述图像，回答与视觉相关的问题，或者对图像进行复杂的推理，然而，目前尚不清楚如何使用大型语言模型执行定位任务(localization tasks)，例如词语基准(word grounding)或指代定位(referring localization)等任务
+
+在这项工作中，旨在开发一种视觉语言模型，可以将位置(例如一组点或框)作为输入或输出，当将位置作为输入时，该模型执行基于位置条件的字幕说明生成(location-conditioned captioning)，为指定的对象或区域生成字幕说明，当生成位置作为输出时，本文模型通过语言模型生成的每个输出词的像素坐标进行回归，从而执行密集的词基准(dense word grounding)，本文模型在定位叙事数据集上进行了预训练，该数据集包含了人类注意力下的像素词语对齐(pixel-word-aligned)
+
+展示了本文模型可以应用于各种位置感知的视觉语言任务，包括指代定位、基于位置条件的字幕说明生成和密集对象字幕说明生成，在RefCOCO和Visual Genome上达到了SOTA性能
+
+————
+
+<img src="https://img.saraba1st.com/forum/202312/16/064017thk6kqwhta6jhs66.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-060507.jpg</strong> (52.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 06:40 上传
+
+<img src="https://img.saraba1st.com/forum/202312/16/064026kkzzg92ssqwp9bqs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-063607.jpg</strong> (103.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 06:40 上传
+
+每个由PixelLLM预测的词都与一个像素位置对齐
+
+————
+
+问题概览
+
+<img src="https://img.saraba1st.com/forum/202312/16/064036oe822z5ekm28qlyb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-062524.jpg</strong> (49.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 06:40 上传
+
+提出了像素对齐语言模型(PixelLLM)，为大型语言模型提供定位能力，该模型在定位图像字幕说明数据上进行预训练，其中每个词都标有一个像素位置，以学习单词与图像像素之间的对齐关系，PixelLLM可以应用于各种定位任务，例如，在输入位置时进行位置条件字幕说明生成，以及在生成位置输出时进行指代定位
+
+————
+
+用于像素对齐字幕说明的PixelLLM架构
+
+<img src="https://img.saraba1st.com/forum/202312/16/064052qwblte24drbwrhkl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-063634.jpg</strong> (39.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 06:40 上传
+
+PixelLLM架构，用于像素对齐的字幕说明生成，首先分别使用提示编码器P和图像编码器V对输入的位置提示(在这个用例中是全局框提示)和输入图像进行编码，然后将提示特征l和图像特征f输入到提示特征提取器中，以提取特定位置的视觉特征fl，大型语言模型L根据先前的文本Token和视觉特征，自回归地预测下一个文本Token，在LLM的词汇映射层(vocabulary mapping layer)之前，对Token特征应用一个简单的MLP层，预测每个文本Token的坐标，字幕说明与追踪之间的对齐由颜色渐变表示
+
+————
+
+定性结果展示
+
+<img src="https://img.saraba1st.com/forum/202312/16/064114qamfpi6uwiajkp4m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-063714.jpg</strong> (526.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 06:41 上传
+
+————
+
+指代定位与分割
+
+<img src="https://img.saraba1st.com/forum/202312/16/064124htltrheq22e50ror.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-063740.jpg</strong> (376.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 06:41 上传
+
+————
+
+稠密对象字幕说明
+
+<img src="https://img.saraba1st.com/forum/202312/16/064137t657qw5vaz5sym5a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-063844.jpg</strong> (227.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 06:41 上传
+
+
+*****
+
+####  Machinery  
+##### 1073#       发表于 2023-12-16 07:01
+
+TigerBot
+
+开源多语言多任务LLM(Multilingual Multitask LLM)
+
+github项目主页:[https://github.com/TigerResearch/TigerBot](https://github.com/TigerResearch/TigerBot)
+
+本文发布并介绍了TigerBot系列的大型语言模型(LLM)，包括基础模型和聊天模型，参数大小分别为70亿、130亿、700亿和1800亿，通过从Llama-2和BLOOM开始开发模型，并在数据、训练算法、基础设施和应用工具方面推动了发展界限
+
+本文模型在SOTA系列开源模型(例如Llama-2)的基础上进一步取得了有意义的性能提升，英文效果提升6%，中文效果提升了20%，TigerBot模型系列在主要的学术和工业基准测试和排行榜中也取得了领先的性能，相信TigerBot只是LLM开源社区中迅猛发展的一个缩影
+
+因此，研究组非常高兴通过公开发布模型并报告，特别强调了以自由化的方式构建SOTA LLM，并使LLM在真实世界的应用中发挥作用
+
+项目说明页截图:
+
+<img src="https://img.saraba1st.com/forum/202312/16/070120dn7vx8qa5u0pvvvw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-065840.jpg</strong> (86.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 07:01 上传
+
+<img src="https://img.saraba1st.com/forum/202312/16/070128bo6jdrfkh6vkbko5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-065918.jpg</strong> (198.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 07:01 上传
+
+
+*****
+
+####  Machinery  
+##### 1074#       发表于 2023-12-16 20:53
+
+ 本帖最后由 Machinery 于 2023-12-16 20:56 编辑 
+
+GLEE
+
+大规模图像和视频的通用对象基础模型
+
+项目主页:[https://glee-vision.github.io/](https://glee-vision.github.io/)
+
+github项目仓库:[https://github.com/FoundationVision/GLEE](https://github.com/FoundationVision/GLEE)
+
+hugface演示demo:[https://huggingface.co/spaces/Junfeng5/GLEE_demo](https://huggingface.co/spaces/Junfeng5/GLEE_demo)
+
+在这项工作中，提出了GLEE，这是一个用于在图像和视频中定位和识别对象的对象级基础模型(object-level foundation model)，通过统一的框架，GLEE可以在各种对象感知任务的开放世界场景中完成检测、分割、追踪、基准和识别任意对象
+
+通过采用一个连贯的学习策略，GLEE从不同的数据源中获取知识，并通过不同的监督级别(varying supervision levels)来形成通用的对象表征，在零样本迁移到新数据和任务时同样表现出色
+
+具体而言，使用图像编码器、文本编码器和视觉提示器来处理多模态输入，能够同时解决多种以对象为中心的下游任务，并保持SOTA性能
+
+通过在来自不同基准测试集的五百万张图像上进行广泛训练，GLEE展现出了卓越的多功能性和改进的泛化性能，可以在无需适配的情况下高效地处理下游任务，通过整合大量自动标注的数据，进一步提升了它的零样本泛化能力
+
+此外，GLEE还可以集成到大型语言模型中，作为一个基础模型为多模态任务提供通用的对象级信息，希望本文方法的多功能性和普适性可以为AGI系统的高效视觉基础模型的发展迈出重要一步
+
+<img src="https://img.saraba1st.com/forum/202312/16/205135bbmqswdxcbbqxak0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204640__01.jpg</strong> (117.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:51 上传
+
+在广泛的对象级任务上使用GLEE与现有模型进行了对比
+
+<img src="https://img.saraba1st.com/forum/202312/16/205146vm11v03v97xgq0sw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204700__01.jpg</strong> (392.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:51 上传
+
+一个具有说明性的例子，展示了来自不同数据集的不同粒度的标注，以及使用到的数据规模，在多个来源的数据集上进行训练赋予了模型更通用的表征能力
+
+<img src="https://img.saraba1st.com/forum/202312/16/205156coen29d55p4fljrj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204710__01.jpg</strong> (312.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:51 上传
+
+GLEE的框架，文本编码器接受来自不同数据源的多种形式的文本描述，包括对象类别(object categories)、名称(names)、字幕说明(captions)和指代表达(referring expressions)，视觉提示器将点、边界框或涂鸦转换为相应的视觉表征，对象解码器使用它们和图像特征来预测图像中的对象
+
+(b)图部分说明了GLEE在为不同语言描述和视觉提示量身定制的图像任务中的应用
+
+(c)演示了在各种对象级视频任务中的应用
+
+<img src="https://img.saraba1st.com/forum/202312/16/205209kxa7rzclq3qaax1x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204728__01.jpg</strong> (257.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:52 上传
+
+使用GLEE与最近的专用模型和通用模型在在对象级图像任务上进行了对比，对于REC和RES任务，报告了Precision@0.5和整体IoU(oIoU)，对于开放世界实例分割任务，报告了在UVO上的100个掩码提案的平均召回率(AR@100)
+
+<img src="https://img.saraba1st.com/forum/202312/16/205220x5f3jzgkmp5assw8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204738__01.jpg</strong> (238.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:52 上传
+
+使用GLEE与最近的专用模型和通用模型在对象级视频任务上以零样本的方式进行了对比，对于BURST评估指标，分别报告了“常见”、“不常见”和“所有”类别，mAP在追踪级别计算掩码IoU，HOTA是每帧检测准确率(DetA/detection accuracy)和时间关联准确率(AssA/association accuracy)的平均，而TETA将检测分解为定位和分类组件，LV-VIS中的AP、APb和APn表示整体类别、基本类别和新颖类别(overall categories, base categories, and novel categories)的平均精度，†表示不使用视频进行训练，Pro在LV-VIS上相对于Plus的表现不佳是因为Pro使用了更大的训练和推理分辨率，证明了对于这个特定的数据集来说是次优的
+
+<img src="https://img.saraba1st.com/forum/202312/16/205233tfh8eppj13vvcgb3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204745__01.jpg</strong> (154.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:52 上传
+
+13个OdinW数据集上的零样本性能
+
+<img src="https://img.saraba1st.com/forum/202312/16/205245abuba4urrn4f4f7b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204752__01.jpg</strong> (170.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:52 上传
+
+使用GLEE在视频实例分割任务上进行了性能对比
+
+<img src="https://img.saraba1st.com/forum/202312/16/205303aas6k0g3jm1fayvw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204802__01.jpg</strong> (63.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:53 上传
+
+在将SAM替换为GLEE的情况下，对LISA中的表现进行了性能对比，结果显示GLEE在提取对象方面达到了与SAM相同的效果
+
+<img src="https://img.saraba1st.com/forum/202312/16/205310sqgog7opqzciaii0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204811__01.jpg</strong> (53.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:53 上传
+
+数据缩放，在TAO、BURST、OVIS、YTVIS19上分别使用10%、20%、50%、100%的总数据进行训练后，GLEE-Pro的性能表现，训练数据规模的增加后在各种下游任务中的零样本性能得到提升
+
+<img src="https://img.saraba1st.com/forum/202312/16/205321aqgw66hdmzt90ms5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231216-204819__01.jpg</strong> (147.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 20:53 上传
+
+在OmniLabel基准测试上的评估结果，最终的AP值是类别(AP-categ)和自由形式描述(AP-descr)之间的几何平均值(geometric mean)
+
+
+*****
+
+####  Machinery  
+##### 1075#       发表于 2023-12-17 03:19
+
+ 本帖最后由 Machinery 于 2023-12-17 03:20 编辑 
+
+SceneWiz3D
+
+迈向文本引导的3D场景合成
+
+项目主页:[https://zqh0253.github.io/SceneWiz3D/](https://zqh0253.github.io/SceneWiz3D/)
+
+github项目代码仓库(待整理):[https://github.com/zqh0253/SceneWiz3D](https://github.com/zqh0253/SceneWiz3D)
+
+我们正在见证从文本生成3D对象的技术取得的重大突破，现有的方法要么利用大型文本到图像模型来优化3D表征，要么在以对象物体为中心的数据集上训练3D生成器，因此，生成整个场景仍然非常具有挑战性，因为一个场景包含了多个3D对象，而且这些对象是多样且分散的
+
+在这项工作中，引入了一种新方法，SceneWiz3D，用于从文本合成具有高保真度的3D场景，通过引入混合的3D表征(hybrid 3D representation)方法，将对象的局部性与场景的整体性相结合:3D对象的表征是显式的，而场景是隐式的，值得注意的是，具有明确表示的对象可以通过传统的文本到3D方法生成，也可以由用户提供
+
+为了配置场景的布局并自动放置对象，在优化过程中应用了粒子群优化技术(Particle Swarm Optimization technique)，此外，对于场景难以确认的某些部分(例如角落、遮挡)，很难获得多视图监督，从而导致几何质量较差的问题，通过引入了一种RGBD全景扩散模型(RGBD panorama diffusion model)来减轻这个问题，从而获得高质量的几何形状，广泛的评估支持了本文方法在质量上优于之前的方法，且能够生成细节丰富视角一致的3D场景
+
+<img src="https://img.saraba1st.com/forum/202312/17/031504qii0wfm2xwmzywz3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-030838__01.jpg</strong> (387.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:15 上传
+
+本文方法可以合成多样化的3D场景，如图所示，可以将从文本提示自动生成的对象(在左上角和右上角，标记为机器人头部图标)或由用户提供的对象(在右中部标记为人类头像图标)整合进来，本文方法适用于不同类型和风格的场景，并支持对场景的操作，如移动或删除对象(下方)
+
+<img src="https://img.saraba1st.com/forum/202312/17/031515l6r6ux90ymw0kkxu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-030850__01.jpg</strong> (244.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:15 上传
+
+SceneWiz3D概览图，为了建模3D场景，采用了包含显式和隐式组件的混合表征:对于感兴趣的物体(OOIs/objects of interest)使用DMTets，对于环境则采用NeRF，在给定文本提示后，首先识别场景的OOIs，并初始化它们的DMTets，之后基于CLIP相似度使用粒子群优化来更新OOIs的配置，并使用文本到图像扩散模型、全景RGBD扩散模型和深度正则化器来更新OOIs和环境的分数蒸馏
+
+<img src="https://img.saraba1st.com/forum/202312/17/031527sq3fs3ibf31331i3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-030916__01.jpg</strong> (196.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:15 上传
+
+发现场景配置对于2D(上方)和3D(下方)来说都是非常重要的，简单的基于梯度的优化方法在低维和非凸优化空间中容易陷入局部最小值，导致出现不太可能的配置(物体重叠或放置错误)，相比之下，粒子群优化能够正确地识别出合理的配置
+
+<img src="https://img.saraba1st.com/forum/202312/17/031537nb8j321b8ljlbbbl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-030934__01.jpg</strong> (238.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:15 上传
+
+与基线的定性对比，提示为“a bedroom, realistic detailed photo”
+
+<img src="https://img.saraba1st.com/forum/202312/17/031548gn70xfzmbmcfnovo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-030944__01.jpg</strong> (71.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:15 上传
+
+与基线的定量对比
+
+<img src="https://img.saraba1st.com/forum/202312/17/031559dt18kgv8rgv3zxxt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-030950__01.jpg</strong> (90.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:15 上传
+
+定量消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/17/031612w5lxh2rtztkx8t3k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-031001__01.jpg</strong> (261.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:16 上传
+
+定性消融实验，提示为“a washing room,realistic detailed photo”
+
+<img src="https://img.saraba1st.com/forum/202312/17/031624jcn3ocz3c7c6i65s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-031019__01.jpg</strong> (323.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:16 上传
+
+在场景合成中，Janus问题被表达为同一物体类别的多个实例，可以通过混合表征来缓解，每个边界框颜色代表一个唯一的身份
+
+<img src="https://img.saraba1st.com/forum/202312/17/031646jk4vqzs7kdzqk3ii.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-031038__01.jpg</strong> (634.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:16 上传
+
+由SceneWiz3D生成的各种不同场景，展示了本文方法成功地泛化到不同类型的场景(室内、室外)，并且能够适应不同的风格(逼真、卡通、绘画)和感兴趣的对象类别(人物、物体)
+
+<img src="https://img.saraba1st.com/forum/202312/17/031925mzkz235jtpdaaxpa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231217-031049__01.jpg</strong> (521.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-17 03:19 上传
+
+由SceneWiz3D生成的多样化的艺术卧室场景，SceneWiz3D能够成功地泛化到广泛的多种场景特征，涵盖了各种艺术风格和风景，通过提出的混合表征方法，可以同时保持前景对象的多视图一致性，并合成具有不同结构的背景(从摩天大楼、日落、银河系到从燃烧的房屋烟雾扩散)
+
+
+*****
+
+####  Machinery  
+##### 1076#       发表于 2023-12-18 20:03
+
+Amphion
+
+开源音频、音乐和语音生成工具包
+
+github项目主页:https://github.com/open-mmlab/Amphion
+
+Amphion是一个用于音频、音乐和语音生成的工具包，它的目的是支持可重现的研究，并帮助初级研究人员和工程师在音频、音乐和语音生成研究和开发领域入门
+
+Amphion提供了一个独特的特点:经典模型或架构的可视化，相信这些可视化对于那些希望更好地理解模型的初级研究人员和工程师更有益，Amphion的北极星目标(North-Star objective for North Star Approach)是提供一个平台，用于研究将任何输入转换为通用音频
+
+Amphion旨在支持独立生成任务，除了特定的生成任务之外，Amphion还包括几个声码器(vocoders)和评估指标(evaluation metrics)，声码器是产出高质量音频信号的重要模块，而评估指标对于确保生成任务中的一致性至关重要
+
+<img src="https://img.saraba1st.com/forum/202312/18/200228ggmhbf797gp4mff1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-195802__01.jpg</strong> (53.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:02 上传
+
+Amphion工具包的北极星目标
+
+<img src="https://img.saraba1st.com/forum/202312/18/200236jdd3r12rtdqhv42h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-195812__01.jpg</strong> (253.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:02 上传
+
+目前开源社区中与音频、音乐和语音生成相关的开源工具包一览
+
+<img src="https://img.saraba1st.com/forum/202312/18/200311jni75ywq27228rzc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-195816__01.jpg</strong> (83.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:03 上传
+
+Amphion的系统架构设计，从底层开始:
+
+(1)将数据处理(数据集、特征和数据加载器)、通用模块(模块)和优化算法(优化器、调度器和训练器)统一为所有音频生成任务的基础设施
+
+(2)对于每个特定的生成任务，统一其数据/特征使用(任务加载器)、模型框架(任务框架)和训练工作流程(任务训练器)
+
+(3)在每个生成任务中，为每个特定的基线指定架构(模型架构)和训练工作流程(模型训练器)
+
+(4)最后，为用户提供每个模型的指导(配方)，统一了所有模型的配方格式，并尽可能使其自独立(self-contained)且适合新手使用
+
+<img src="https://img.saraba1st.com/forum/202312/18/200321odjwtt1uq7w6q0q5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-195821__01.jpg</strong> (32.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:03 上传
+
+Amphion文本到语音生成的工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/18/200328ce7z51q6ei9o6oo0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-195827__01.jpg</strong> (48.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:03 上传
+
+Amphion歌声转换的工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/18/200334wscpdceqpdezoeer.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-195834__01.jpg</strong> (41.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:03 上传
+
+Amphion文本到音频生成的工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/18/200339kq3xgxhmkddzdmlm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-195840__01.jpg</strong> (29.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:03 上传
+
+Amphion神经声码器的工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/18/200344x11dlsu444mhu1wc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-195849__01.jpg</strong> (315.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:03 上传
+
+基于扩散的SVC模型的可视化
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1077#       发表于 2023-12-18 22:04
+
+ 本帖最后由 Machinery 于 2023-12-18 22:06 编辑 
+
+DreamTalk
+
+当富有表现力的对话头像(Talking Head)生成遇到扩散概率模型
+
+项目主页:https://dreamtalk-project.github.io/
+
+github综合项目仓库:https://github.com/damo-vilab/i2vgen-xl
+
+扩散模型在各种下游生成任务中展现出了非凡的成功，但在重要且具有挑战性的表情丰富的对话头像生成领域仍然鲜有探索，在这项工作中，提出了一个名为DreamTalk的框架来填补这一空白，通过应用精心的设计来发挥扩散模型在生成表情丰富的对话头像方面的潜力
+
+具体而言，DreamTalk由三个关键组件组成:去噪网络、风格感知的唇部专家(a style-aware lip expert)和风格预测器(style predictor)
+
+基于扩散的去噪网络能够持续合成高质量的包含多种表情的由音频驱动的面部动作，为了增强唇部动作的表现力和准确性，引入了一个风格感知的唇部专家，可以在注意说话风格的同时引导嘴唇同步，为了消除对表情参考视频或文本的需求，还使用了一个额外的基于扩散的风格预测器直接从音频中预测目标表情，通过这种方式，DreamTalk可以利用强大的扩散模型有效生成表情丰富的面部，并减少对昂贵的风格参考的依赖
+
+实验结果表明，DreamTalk能够生成具有照片级真实度的多种说话风格的对话头像，并实现准确的唇部动作，超越现有的SOTA方法
+
+<img src="https://img.saraba1st.com/forum/202312/18/220304zp5bogrpgepe54pr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215409__01.jpg</strong> (91.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:03 上传
+
+借助强大的扩散模型，DreamTalk能够生成具有高度表达力的各种说话风格的说话头像，此外，DreamTalk还能够直接从输入音频中提取个性化的说话风格，从而省去了额外的风格参考的需要
+
+<img src="https://img.saraba1st.com/forum/202312/18/220312xo0z7lebji6le2ht.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215423__01.jpg</strong> (349.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:03 上传
+
+DreamTalk的图示
+
+首先训练了一个在给定说话风格的情况下对唇部音频同步概率(lip-audio synchronous probability)进行评估的风格感知唇部专家(b)，为去噪网络(a)提供唇部运动指导
+
+然后，训练去噪网络以将音频、风格参考视频和嘈杂的面部运动作为输入，并预测无噪声的面部运动
+
+接下来，训练了一个风格预测器(c)，用于预测从视频中提取的风格编码，以音频和视频中的说话者作为输入
+
+在推理过程中(d)，可以使用从视频中提取或从音频中衍生的风格代码来指定说话风格
+
+<img src="https://img.saraba1st.com/forum/202312/18/220320lffll6gmg7xh7g6f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215436__01.jpg</strong> (397.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:03 上传
+
+MEAD、HDTF和Voxceleb2上的定量对比，由于仅收到了MEAD和HDTF上的GC-AVT样本，因此未在Voxceleb2上评估GC-AVT
+
+<img src="https://img.saraba1st.com/forum/202312/18/220333lwll7tm2e4ezr26p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215459__01.jpg</strong> (372.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:03 上传
+
+与之前的方法进行定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/18/220340bontiis5gbgty2xt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215517__01.jpg</strong> (147.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:03 上传
+
+在StyleTalk的输出中观察到面部扭曲
+
+<img src="https://img.saraba1st.com/forum/202312/18/220346fmqmb8nbxq8wbqw8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215517__02.jpg</strong> (123.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:03 上传
+
+与DiffTalk进行对比
+
+<img src="https://img.saraba1st.com/forum/202312/18/220351bfx7u0cfxc7ii0f0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215517__03.jpg</strong> (187.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:03 上传
+
+使用域外(out-of-domain)头像生成的结果
+
+<img src="https://img.saraba1st.com/forum/202312/18/220357ffq4ctmuzlllt7ft.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215733__01.jpg</strong> (178.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:03 上传
+
+说话风格预测结果，第四列展现了应用预测风格后的生成的相同头像的样本，以便进行更清晰的对比
+
+<img src="https://img.saraba1st.com/forum/202312/18/220402luxb74xm7mr7kx4z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215733__02.jpg</strong> (58.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:04 上传
+
+消融实验结果
+
+<img src="https://img.saraba1st.com/forum/202312/18/220407p7sqllcsc1kslq9s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215744__01.jpg</strong> (60.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:04 上传
+
+在MEAD上进行的DreamTalk的消融实验结果，由于在CPBD指标上各个变体之间没有显著差异，省略了CPBD分数
+
+<img src="https://img.saraba1st.com/forum/202312/18/220413gy6rechu5o6o785k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215744__02.jpg</strong> (31.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:04 上传
+
+15个说话者的风格代码的t-SNE可视化，每种颜色都代表来自对应同一说话者的风格代码
+
+<img src="https://img.saraba1st.com/forum/202312/18/220421sn2hnorz9b5zuoxx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215750__01.jpg</strong> (71.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:04 上传
+
+通过调整无分类器引导的尺度ω来控制输入风格的效果
+
+<img src="https://img.saraba1st.com/forum/202312/18/220432acrrbnx3cbaqi83d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215750__02.jpg</strong> (112.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:04 上传
+
+说话风格插值(speaking style interpolation)的结果
+
+<img src="https://img.saraba1st.com/forum/202312/18/220438vds8wpfhfw6dashd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231218-215750__03.jpg</strong> (162.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 22:04 上传
+
+用户研究结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  chaosliu  
+##### 1078#       发表于 2023-12-18 23:21
+
+刚开始学，想借楼问下有s1群吗？我想整一个不怎么吃显存的本地模型<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，手上显卡就一张3070
+
+
+*****
+
+####  Machinery  
+##### 1079#       发表于 2023-12-18 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63370206&amp;ptid=2126390" target="_blank">chaosliu 发表于 2023-12-18 23:21</a>
+刚开始学，想借楼问下有s1群吗？我想整一个不怎么吃显存的本地模型，手上显卡就一张3070 ...</blockquote>
+请看888楼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  诚司  
+##### 1080#       发表于 2023-12-19 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63370206&amp;ptid=2126390" target="_blank">chaosliu 发表于 2023-12-18 23:21</a>
+
+刚开始学，想借楼问下有s1群吗？我想整一个不怎么吃显存的本地模型，手上显卡就一张3070 ...</blockquote>
+8G显存的话，如果用pytorch（sd webui或者hf的transformers库），stable Diffusion和 7b量级的int4量化大语言模型都勉强够部署，再多一点都不行了（比如7b的langchain-chatchat就不行）但如果是cuda编译的stable diffusion.cpp和llama.cpp的话，显存绰绰有余，速度也很快
+
+跑demo，sd不带lora大概占2.7G显存，20 steps半分钟出图
+
+qwen 7b int4用llama.cpp，显存只占2g，大概7b不量化也跑的起来，不过我没试过，但是14b int4是跑不起来的（当然cpu给力的话，14b int4只用cpu跑的起来）
+
+7b级别的大模型的话，int4和float16感觉差很多，特别是指令遵从度上。7b float16到14b这个量级才能大致有点生产力
+
+
+*****
+
+####  Machinery  
+##### 1081#       发表于 2023-12-19 02:53
+
+SPC
+
+使用大型语言模型进行可信的角色(Persona-based)对话数据集生成
+
+github项目仓库:https://github.com/google-research-datasets/Synthetic-Persona-Chat
+
+高质量的对话数据集对于开发能够与用户进行交流的AI模型至关重要，其中一种方法是通过角色扮演促进聊天机器人与用户之间更深入的互动，用户的个性视角可以提供更深入的对于他们的性格，动机和行为的洞察，在多样化和全面的基于角色扮演的数据集上训练自然语言处理(NLP)模型可以创建出与用户建立更深层次联系并保持参与度的对话模型
+
+在这篇论文中，通过利用大型语言模型(LLMs)的能力，从种子数据集(seed dataset)创建出一个大型高质量的对话数据集，提出了一个生成器-评判者架构框架(Generator-Critic architecture framework)来扩展初始数据集，并改善对话质量
+
+生成器是一个被提示输出对话的LLM，评判者则由一系列混合专家LLM(mixture of expert LLM)组成，用以控制生成的对话质量，这些专家选择最佳的生成对话，然后用它们来改进生成器
+
+发布了一个名为Synthetic-Persona-Chat的数据集，其中包含从Persona-Chat中种子化的20000个对话，通过广泛的实验评估了Synthetic-Persona-Chat和本文的生成框架在不同维度上的质量，观察到在三次迭代过程中，Synthetic-Persona-Chat相对于Persona-Chat在图灵测试中的失败率从17.2%降低到了8.8%
+
+<img src="https://img.saraba1st.com/forum/202312/19/025306tu8iat8uazbsu7aq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-024942.jpg</strong> (96.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 02:53 上传
+
+不可信的对话(左):热爱牛排与“I am a vegetarian”这一人设属性呈负相关
+
+可信的对话(右):它没有引入任何与用户个人资料相矛盾或减弱的信息
+
+<img src="https://img.saraba1st.com/forum/202312/19/025311l33pp4nxpp87za74.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-025002.jpg</strong> (59.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 02:53 上传
+
+数据集增强工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/19/025316mxcf2xyjc9c9lbfp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-025021.jpg</strong> (157.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 02:53 上传
+
+查询归纳步骤
+
+<img src="https://img.saraba1st.com/forum/202312/19/025323l9um5118v9391583.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-025034.jpg</strong> (109.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 02:53 上传
+
+基于查询的角色引导自举过程
+
+<img src="https://img.saraba1st.com/forum/202312/19/025327xgg9jptgcs2898g8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-025102.jpg</strong> (60.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 02:53 上传
+
+用于对话生成的生成器-评判者架构
+
+<img src="https://img.saraba1st.com/forum/202312/19/025333ysejs35m8bmtx1fh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-025120.jpg</strong> (52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 02:53 上传
+
+对扩展角色集的评估，带有∗的数字表示新生成的角色属性的指标值，用于与初始集进行对比
+
+<img src="https://img.saraba1st.com/forum/202312/19/025337jxya8oabb6carrav.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-025147__01.jpg</strong> (270.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 02:53 上传
+
+实验的下一句发言(utterance)预测结果，训练模型在Persona-Chat测试分割上的性能由表中的数字表示，而括号中的数字表示在Synthetic-Persona-Chat测试分割上的结果
+
+<img src="https://img.saraba1st.com/forum/202312/19/025343kadgr3zxxv3c88qx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-025216.jpg</strong> (78.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 02:53 上传
+
+每次迭代，使用200个生成的对话进行图灵测试，Synthetic-Persona-Chat在对抗中超越了Persona-Chat
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1082#       发表于 2023-12-19 03:46
+
+Point Transformer V3
+
+更简单、更快、更强大
+
+项目主页:https://github.com/Pointcept/PointTransformerV3
+
+这篇论文并没有以创新的动机来探索注意力机制内部的创新，相反，它专注于克服点云处理中准确性和效率之间的现有权衡，充分利用规模的力量，从最近在3D大规模表征学习方面的进展中获取的灵感，使我们认识到，模型性能更多地受到规模的影响，而不是复杂的设计
+
+因此，本文提出了Point Transformer V3(PTv3)，它优先考虑简单性和效率，而不是某些机制的准确率，这些机制对扩展后的整体性能影响较小，例如用高效的序列邻映射(efficient serialized neighbor mapping)代替精确的KNN邻搜索(precise neighbor search by KNN)，以特定的模式组织点云
+
+这个原则实现了显著的扩展，将感受野(receptive field)从16个点扩展到1024个点，同时保持了高效，与前身PTv2相比，处理速度提高了3倍，显存效率提高了10倍
+
+PTv3在涵盖室内外场景的20多个下游任务上取得了SOTA结果，通过多数据集联合训练进一步增强了PTv3的结果，将其推向了更高的水平
+
+<img src="https://img.saraba1st.com/forum/202312/19/034603mlix110w3ilnqxii.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034233__01.jpg</strong> (321.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+PTv3是Point Transformer V3的缩写，相较于其前身PTv2，在以下几个方面表现出了更卓越的性能:
+1.更强的性能，PTv3在各种室内外3D感知任务中取得了SOTA结果
+2.更广阔的感受野，得益于简单高效的设计，PTv3将感受野从16个点扩展到1024个点
+3.更快的速度，PTv3显著提高了处理速度，使其适用于对延迟敏感的应用
+4.更低的显存消耗，PTv3减少了显存使用，提升了在更广泛情景中的可用性
+
+<img src="https://img.saraba1st.com/forum/202312/19/034611j5ea584ia4vnjlez.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034250__01.jpg</strong> (209.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+模型效率，使用不同尺度的感受野基准测试主干网络的训练和推理效率，批大小固定为1，/后面的数字表示稀疏卷积的核大小和注意力的区块大小(patch size1)
+
+<img src="https://img.saraba1st.com/forum/202312/19/034621gufwv7i2zg7pp3v2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034252__01.jpg</strong> (81.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+PTv2的每个组件的延迟树状图(Latency treemap)，对PTv2每个组件的前向时间进行了基准测试和可视化比例，KNN查询和RPE占据了全部前向时间的54%
+
+<img src="https://img.saraba1st.com/forum/202312/19/034626ttxf5bfapw3sfb75.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034300__01.jpg</strong> (428.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+点云序列化，通过三元组可视化展示了四种序列化模式，对于每个三元组，展示了序列化的空间填充曲线(左)，点云序列化在空间填充曲线内的排列顺序(中)，以及序列化点云的分组区块以进行局部注意力(右)，在四种序列化模式之间进行切换使得注意机制能够捕捉到不同的空间关系和上下文，从而提高模型的准确性和泛化能力
+
+<img src="https://img.saraba1st.com/forum/202312/19/034631m3k1bkiiqzh3x74i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034309__01.jpg</strong> (118.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+区块分组
+
+(a)根据特定的序列化模式重新排序点云
+(b)通过从邻区块中借用点来填充点云序列，以确保其可被指定的区块大小切割
+
+<img src="https://img.saraba1st.com/forum/202312/19/034636t4bieqpq8oqqkejq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034309__02.jpg</strong> (190.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+区块交互
+
+(a)标准的区块分组，具有规则的非平移排列
+(b)平移膨胀，将点以规则间隔分组，创建一种膨胀效果
+(c)平移区块，应用类似于平移窗口方法的平移机制
+(d)平移顺序，不同的序列化模式被循环分配给连续的注意力层
+(d)混洗顺序，在馈送到注意力层之前，序列化模式的顺序被随机化
+
+<img src="https://img.saraba1st.com/forum/202312/19/034643pok0xbl4tbto2btb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034316__01.jpg</strong> (108.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+总体构架
+
+<img src="https://img.saraba1st.com/forum/202312/19/034648lyuu3yu1kdquqyza.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034108__01.jpg</strong> (301.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+<img src="https://img.saraba1st.com/forum/202312/19/034648obbcwcgjb6j7qbw2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-034130__01.jpg</strong> (272.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 03:46 上传
+
+相关测试结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1083#       发表于 2023-12-19 04:54
+
+Marathon
+
+一场穿越长上下文范围的大型语言模型竞赛
+
+hugface数据集下载:https://huggingface.co/datasets/Lemoncoke/Marathon
+
+在线评估网站:https://openbenchmark.online/marathon
+
+尽管目前有许多用于评估大型语言模型的长文本理解和推理能力的基准，但随着这些模型中上下文窗口的扩展，现有的长文本基准已不足以评估大型语言模型的长文本理解和推理能力
+
+在本文中，开发了一个全新的长文本评估基准，名为Marathon，受到MMLU等基准的启发，采用多项选择题的形式，快速、准确、客观地评估大型语言模型的长文本理解能力
+
+在基准上评估了几种最新和最流行的大型语言模型，以及三种最近有效的长文本优化方法，这展示了这些大型语言模型的长文本推理和理解能力，并验证了这些优化方法的有效性
+
+<img src="https://img.saraba1st.com/forum/202312/19/045411mcnv190b1nvntr99.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045009__01.jpg</strong> (469 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+基准测试中的测试用例的其中一些示例，出于文章显示需求，上下文已被截断
+
+<img src="https://img.saraba1st.com/forum/202312/19/045417gfsgmwzgzzgsd56w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045017__01.jpg</strong> (106.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+Marathon的统计信息
+
+<img src="https://img.saraba1st.com/forum/202312/19/045423p8nyplz8tqtnslpb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045025__01.jpg</strong> (183.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+Marathon中的上下文长度的分布
+
+<img src="https://img.saraba1st.com/forum/202312/19/045428dougn2aajhqzsy6q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045046__01.jpg</strong> (605.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+模型在Marathon基准测试中的评估结果:C&amp;R代表理解和推理任务；MIR代表多信息检索任务；TR代表时间线重排序任务；Com.代表计算任务；PR代表段落检索任务；SDQA代表短依赖问答任务；Avg.表示所有任务的平均准确率
+
+<img src="https://img.saraba1st.com/forum/202312/19/045435s3v4ks3433i8khfk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045053__01.jpg</strong> (221.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+大型语言模型在Marathon指令跟随基准上的评估结果
+
+<img src="https://img.saraba1st.com/forum/202312/19/045441kr47zqgjpha3oohq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045101__01.jpg</strong> (172.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+<img src="https://img.saraba1st.com/forum/202312/19/045441ceoio5iftmddrh0x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045109__01.jpg</strong> (154.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+<img src="https://img.saraba1st.com/forum/202312/19/045441ftq7tztiyyi2k6gq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045115__01.jpg</strong> (184.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+具体表现
+
+<img src="https://img.saraba1st.com/forum/202312/19/045448rcvcgfggxgkjnjcz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-045120__01.jpg</strong> (115.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 04:54 上传
+
+提示的示例，出于文章显示需求，上下文已被截断
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1084#       发表于 2023-12-19 20:57
+
+G-LLaVA
+
+多模态大型语言模型解决几何问题(Geometric Problem)
+
+项目主页:https://github.com/pipilurj/G-LLaVA
+
+大型语言模型(LLM)展现出了卓越的人类级别的推理和生成能力，这鼓励了对它们在数学问题求解中的应用进行广泛的研究，然而，目前的工作主要着眼于基于文本的数学问题(text-based mathematical problems)上，对涉及几何信息(geometric information)的问题的研究还相对有限
+
+为了弥补这一空白，通过理解图像输入，使LLM能够解决几何问题，首先分析了当前多模态大型语言模型(MLLM)在这个领域的局限性:它们难以准确地理解基本的几何元素(basic geometric elements)及其关系
+
+为了克服这些挑战，通过利用几何问题的独特特性(如独特的几何逻辑形式和几何可扩展性)以及文本LLM的能力，基于现有数据构建了一个丰富的多模态几何数据集，增强的数据集Geo170K包含了超过170K个几何图像-字幕说明(170K geometric image-caption)和问题-答案对(question-answer pairs)
+
+利用构建的Geo170K数据集，开发了G-LLaVA，在MathVista基准测试中，以仅有7B参数的情况下展现出了出色的几何问题解决能力，同时成绩明显优于GPT-4V
+
+<img src="https://img.saraba1st.com/forum/202312/19/205301h8t1ke9kt691d938.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204619__01.jpg</strong> (515.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:53 上传
+
+SOTA MLLMs在几何图形方面存在严重的幻觉问题，这严重影响了它们在解决几何问题方面的能力，另一方面，G-LLaVA在与策划构造的数据集进行对齐后，其推理几何图形的能力得到了显著提升
+
+<img src="https://img.saraba1st.com/forum/202312/19/205306zj1pu1j4jhh4rbbx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204637__01.jpg</strong> (444.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:53 上传
+
+通过利用几何问题的特性生成多模态几何数据的框架
+
+<img src="https://img.saraba1st.com/forum/202312/19/205313nrqdrs17dcdljm77.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204644__01.jpg</strong> (177.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:53 上传
+
+通过逆向信息恢复(inverse information recovery)实现了完整几何图形描述的生成，该描述是基于文本问答对生成的，上半部分展示了用于指导纯文本ChatGPT的问答对，而下半部分(蓝色)展示了ChatGPT生成的回答
+
+<img src="https://img.saraba1st.com/forum/202312/19/205319wvfvnh7334hfjn7h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204707__01.jpg</strong> (277.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:53 上传
+
+几何图像描述和对比问答对(contrastive QA pairs)用于理解基本元素，生成过程分为两个阶段:
+1.将人工标注的逻辑形式翻译为详细的信息项和图表描述的总结
+2.根据提供的信息和总结生成对比问答对，蓝色部分显示ChatGPT生成的回答
+
+<img src="https://img.saraba1st.com/forum/202312/19/205401wky31ygm6d9itugo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204713__01__01.jpg</strong> (91.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:54 上传
+
+原始样本
+
+<img src="https://img.saraba1st.com/forum/202312/19/205407gq95wqqg9gpvcnwe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204713__01__02.jpg</strong> (91.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:54 上传
+
+通过值拓展(value scaling)生成的合成样本
+
+<img src="https://img.saraba1st.com/forum/202312/19/205422h5tz2ivv18iw63ep.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204724__01.jpg</strong> (285.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:54 上传
+
+通过将值替换为未知变量并求解方程的合成示例
+
+<img src="https://img.saraba1st.com/forum/202312/19/205443fuhaevlppercvxzx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204724__02.jpg</strong> (89.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:54 上传
+
+通过将条件重新表述为未知的合成示例
+
+<img src="https://img.saraba1st.com/forum/202312/19/205448fz8ogqrcx3p88680.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204724__03.jpg</strong> (77.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:54 上传
+
+通过句子解析的合成示例
+
+<img src="https://img.saraba1st.com/forum/202312/19/205455fznxngoi1daviwq6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204735__01.jpg</strong> (385.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:54 上传
+
+在MathVista基准测试的迷你测试集上对比模型在几何问题解决(GPS/geometry problem solving)方面的性能，对于输入，Q代表问题，I代表图像，Ic代表由Bard生成的图像字幕说明，而It代表图像中检测到的OCR文本，基线结果来自Lu et al. (2023)，人类表现和超越人类表现的结果以灰色突出显示，本文结果以蓝色突出显示
+
+<img src="https://img.saraba1st.com/forum/202312/19/205620sueh4fcr4x3ifgch.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204746__01__01.jpg</strong> (22.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:56 上传
+
+GeoQA和GeoQA+的数据拆分
+
+<img src="https://img.saraba1st.com/forum/202312/19/205644x5b75kpk755447oo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204746__01__02.jpg</strong> (64.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:56 上传
+
+在GeoQA上与传统方法的模型性能进行对比
+
+<img src="https://img.saraba1st.com/forum/202312/19/205701e2pnitppipihbkcx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204746__02.jpg</strong> (25.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:57 上传
+
+GeoQA上的不同难度问题
+
+<img src="https://img.saraba1st.com/forum/202312/19/205714peqrb7e29orc2022.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204746__03.jpg</strong> (33.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:57 上传
+
+GeoQA上不同类型的问题的表现
+
+<img src="https://img.saraba1st.com/forum/202312/19/205719i5ka3ryqour3rvqw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204746__04.jpg</strong> (38.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:57 上传
+
+预训练阶段对齐的有效性，报告了Top-1准确率
+
+<img src="https://img.saraba1st.com/forum/202312/19/205725wqqnq5fgypqu55wk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-204802__01.jpg</strong> (445.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 20:57 上传
+
+分别使用GPT-4-V和G-LLaVA演示解决几何问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1085#       发表于 2023-12-19 22:05
+
+MagicScroll
+
+通过多层语义感知去噪(Multi-Layered Semantic-Aware Denoising)生成用于视觉故事叙述(Visual Storytelling)的非典型纵横比的图像(Nontypical Aspect-Ratio Image)
+
+项目主页:https://magicscroll.github.io/
+
+code:coming soon
+
+视觉叙事常常使用非典型的纵横比图像，比如卷轴画、连环画和全景图(scroll paintings, comic strips, and panoramas)，以创造富有表现力和吸引力的叙事效果
+
+虽然生成式人工智能取得了巨大的成功，并展示了重塑创意产业的潜力，但生成具有任意大小和可控风格、概念以及布局的连贯且引人入胜的内容仍然是一个挑战，这些要素对于视觉叙事至关重要
+
+为了克服以往方法的缺点，包括重复内容、风格不一致和缺乏可控性，本文提出了MagicScroll，一个基于多层的、渐进式扩散的图像生成框架，具有新颖的语义感知去噪过程(semantic-aware denoising process)，该模型可以在对象、场景和背景层面上对生成的图像进行细粒度控制，并结合文本、图像和布局条件控制
+
+还为用于故事叙述的非典型纵横比图像生成建立了首个基准测试，包括绘画、漫画和电影全景等媒介，并设计了定制的评估指标进行系统化评估，通过对比和消融实验，MagicScroll展示了与叙事文本的对齐、改进了视觉连贯性和吸引观众方面的有希望的结果
+
+研究组计划发布代码和基准，希望能够促进人工智能研究人员与视觉故事创作者之间更好的合作
+
+<img src="https://img.saraba1st.com/forum/202312/19/220406sygsyyxpjnww68dg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220006__01.jpg</strong> (732.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:04 上传
+
+使用MagicScroll生成的示例结果，框架旨在从故事文本中生成连贯、可控和吸引人的非典型纵横比图像，支持对风格、内容和布局进行多层次、精细化的控制，包括预测的掩码、参考图像和风格概念
+
+<img src="https://img.saraba1st.com/forum/202312/19/220411vy6vyy5mrg8fjhyp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220025__01.jpg</strong> (460.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:04 上传
+
+方法的工作流程，MagicScroll主要包括基于GPT的布局预测、语义感知的去噪以及基于文本和图像的风格控制
+
+布局预测模块从故事文本中提取场景和物体的边界框，风格控制模块通过对文本提示和参考图像进行编码来确定风格化属性(stylistic attributes)，语义感知的去噪模块包括潜在混合(latent blending)和平滑(smoothing)处理，生成可控、连贯、吸引人的非典型纵横比图像
+
+<img src="https://img.saraba1st.com/forum/202312/19/220417ogq4xdcbxggoggd6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220038__01.jpg</strong> (80.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:04 上传
+
+端到端评估结果，表格提供了绘画数据集上内容丰富度和保真度的对比统计数据，CSGT代表与基准答案相比的CLIP相似度
+
+<img src="https://img.saraba1st.com/forum/202312/19/220421qvz5iz9q7ct8s5ki.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220046__01.jpg</strong> (45.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:04 上传
+
+与GLIGEN的对比，GLIGEN和本文方法都支持布局控制，本文方法生成的图像具有更好的连贯性和更高的文本图像相似度
+
+<img src="https://img.saraba1st.com/forum/202312/19/220517h2so9ls9112v1z19.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220456.jpg</strong> (333.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:05 上传
+
+使用本文方法与其他基线方法进行了定性对比，结果表明了MagicScroll的高度灵活性和核心优势
+
+(a)特定历史背景下的风格模仿
+(b)语义布局规划和控制
+(c)内容丰富性和多样性
+
+在不同的情景中，本文框架可以实现更有效和吸引人的视觉叙事效果
+
+<img src="https://img.saraba1st.com/forum/202312/19/220523kqon1nvtaq17yfax.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220124__01.jpg</strong> (440.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:05 上传
+
+消融实验的示例结果，红色框表示出现了伪影(artifacts)，在这些模块中，(b)基于文本的风格控制和(c)基于图像的风格控制主要影响整体风格和颜色，(d)潜在平滑可以提高视觉连贯性，(e)物体掩码和(f)场景掩码不仅影响图像布局，还显著影响前景和中景之间的一致性
+
+<img src="https://img.saraba1st.com/forum/202312/19/220531fkxxlmijmm5k5ffe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220128__01.jpg</strong> (116.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:05 上传
+
+消融实验结果，表格列出了在绘画数据集上进行的消融实验的统计数据，CLIP:全局CLIP分数，TBSC:基于文本的风格控制，IBSC:基于图像的风格控制，SM:场景掩码，OM:物体掩码，LS:潜在平滑
+
+<img src="https://img.saraba1st.com/forum/202312/19/220538elwvzj6wujl3ciki.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220144__01.jpg</strong> (669.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:05 上传
+
+MagicScroll生成的更多示例结果，通过在所有前景、中景和背景层面上提供对风格、概念和布局的控制，本文框架可以满足各种场景中关于视觉叙事内容生成的需求
+
+<img src="https://img.saraba1st.com/forum/202312/19/220543p667qq4qr663o31l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231219-220149__01.jpg</strong> (78.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 22:05 上传
+
+用户研究结果，在文本图像一致性、连贯性和故事叙述吸引力方面对比了不同模型生成的图像，结果显示，本文框架在这三个方面都优于其他替代的方法
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1086#       发表于 2023-12-20 00:40
+
+M3DBench
+
+通过多模态3D提示(Multi-modal 3D Prompts)指导大型模型
+
+github项目主页:https://github.com/OpenM3D/M3DBench/
+
+最近，3D理解能力在促进自主代理者(autonomous agents)进行进一步决策方面变得流行起来，然而，现有的3D数据集和方法往往局限于特定任务，另一方面，大型语言模型(LLMs)和多模态语言模型(MLLMs)在通用语言和图像任务上取得了非凡的性能表现，因此，将MLM的潜力解锁到更广泛的3D任务是很有前途的目标，然而，由于缺乏大规模的3D指令跟随数据集，目前的MLM研究在3D任务上的关注较少
+
+在这项工作中，介绍了一个全面的3D指令跟随数据集，名为M3DBench，具有以下特点:
+1.支持文本、图像、3D对象和其他视觉提示交错在一起的通用多模态指令
+2.统一了区域和场景级别的多样化3D任务，涵盖了真实世界3D环境中的各种基本能力
+3.它是一个具有超过320k指令-响应对的大规模3D指令跟随数据集
+
+此外，还建立了一个新的基准测试，用于评估大型模型在理解多模态3D提示方面的性能，广泛的实验证明了数据集和基线的有效性，同时支持常见的以3D为中心的任务，这可以激发未来的研究进展
+
+<img src="https://img.saraba1st.com/forum/202312/20/003944zh9gez6nr8h2ug2q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-003621__01.jpg</strong> (525.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 00:39 上传
+
+M3DBench示例，涵盖各种以3D为中心的任务，该数据集支持将文本与视觉提示交错在一起的多模态指令，并涵盖了现实世界3D环境中的各种基础能力，如视觉感知、场景理解、空间推理、导航和规划
+
+<img src="https://img.saraba1st.com/forum/202312/20/003951uqdhh088mp0a0ajj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-003637__01.jpg</strong> (150.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 00:39 上传
+
+将M3DBench与其他3D VL数据集以及3D指令数据集进行了对比，M3DBench具有以下特点:
+1.为3D场景量身定制的综合指令跟随数据集
+2.支持交错文本、坐标、图像、3D对象的多模态指令
+3.涵盖了多样化的以3D视觉为中心的任务，包括现实世界3D环境中的各种基础能力，如视觉感知、场景理解、空间推理、导航和规划
+
+<img src="https://img.saraba1st.com/forum/202312/20/003956jfk77k44zxtm9rz7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-003649__01.jpg</strong> (237.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 00:39 上传
+
+M3DBench的统计数据
+
+(a)基于第一个单词的指令分布，图中的内圆表示第一个单词出现的频率，而外圆显示了对应于该第一个单词的指令中动词和名词的出现频率
+(b)回答的词云
+(c)指令长度的分布
+(d)回答长度的分布
+
+<img src="https://img.saraba1st.com/forum/202312/20/004001epillpncl2kpzlvi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-003657__01.jpg</strong> (263.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 00:40 上传
+
+基线模型的概览图，使用场景感知器从3D视觉输入中提取场景Token，多模态指令通过各自的编码器转换为相应的指令Token，然后将场景Token和多模态指令Token连接起来，输入到一个冻结的LLM中，随后生成相应的回复。在训练过程中，只更新投影器(projectors)
+
+<img src="https://img.saraba1st.com/forum/202312/20/004005rochcozkoobm26r6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-003711__01.jpg</strong> (541.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 00:40 上传
+
+多任务的基准测试:密集字幕说明(DC/Dense Caption)，视觉问答(VQA/Visual Question Answering)，具身问答(EQA/Embodied Question Answering)，多区域推理(MR/Multi-region Reasoning)和具身规划(EP/Embodied Planning)，展示了基线方法在评估数据集上的性能，↑表示数值越大越好
+
+<img src="https://img.saraba1st.com/forum/202312/20/004010bm906a5e02951t15.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-003717__01.jpg</strong> (70.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 00:40 上传
+
+基准测试的详细信息，在实践中，随机选择了39个场景，并为每个场景生成了由GPT-4生成的详细描述，然后评估了不同变体所达到的相对得分，变体模型生成的响应和GPT-4的描述被反馈到GPT-4中进行对比分析和评分，同时提供每个变体答案的相关解释，实验表明，基于Vicuna-7B-V1.5的模型表现出了优越的性能
+
+<img src="https://img.saraba1st.com/forum/202312/20/004015dx3kswzbdkwxwknk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-003746__01.jpg</strong> (392.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 00:40 上传
+
+定性结果，在不同的3D环境中提供了各种以3D中心的任务可视化结果，橙色突出显示了错误的答案
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1087#       发表于 2023-12-20 02:23
+
+SCEdit
+
+通过跳过连接编辑进行高效且可控的图像扩散生成
+
+项目主页:https://scedit.github.io/
+
+code:coming soon
+
+在最近的研究中，图像扩散模型被广泛用于各种任务，比如文本到图像生成和可控图像合成，最近的研究引入了微调方法，对原始模型进行微小调整(subtle adjustments)，在基础生成扩散模型的特定改进中取得了有希望的结果
+
+相比修改扩散模型的主要骨干，本文深入研究了U-Net中跳跃连接(skip connection)的作用，并揭示了在编码器和解码器中跨越长距离对信息进行层次特征聚合，这对图像生成的内容和质量产生了重大影响
+
+基于这一观察，本文提出了一种高效的生成微调框架(efficient generative tuning framework)，称为SCEdit，通过使用一个轻量级微调模块SC-Tuner来集成和编辑跳跃连接，此外，所提出的框架通过使用可控的SC-Tuner注入不同条件输入实现了可控图像合成的直接拓展，达成了简单又统一的多条件输入的网络设计
+
+SCEdit通过使用轻量级的微调器极大的减少了训练参数、显存使用和计算开销，只将反向传播传递给解码器块，在文本到图像生成和可控图像合成任务上进行的大量实验表明，本文方法在效率和性能方面达成了优秀的成绩
+
+<img src="https://img.saraba1st.com/forum/202312/20/022225cg5q8sna3psovp2v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021313__01.jpg</strong> (738.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:22 上传
+
+由SCEdit生成的图片，SCEdit仅使用少量可训练参数和低显存占用，就能够高效地在特定数据集上进行微调(左上)，并支持使用少样本进行迁移学习(右上)，此外，它采用各种条件作为输入，可以实现高效的可控生成(中间)，同时独立的条件学习模型能够轻松组合，提供了无限的组合可能性(下方)
+
+<img src="https://img.saraba1st.com/forum/202312/20/022230btvikg6kcftyyfcv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021322__01.jpg</strong> (112.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:22 上传
+
+对于文本到图像生成(圆标)和可控图像合成(五角标)任务，进行了性能和效率对比，标记区域反映了参数的相对数量
+
+<img src="https://img.saraba1st.com/forum/202312/20/022235ylkkyzk9muttojdx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021335__01.jpg</strong> (268.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:22 上传
+
+预训练的U-Net的输出分布(左)和特征图(右)，从不同层删除跳跃连接明显影响了整个网络的输出
+
+<img src="https://img.saraba1st.com/forum/202312/20/022240ukf0fohuhhfohnzo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021348__01.jpg</strong> (331.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:22 上传
+
+SCEdit框架的示意图，本文方法通过编辑跳跃连接上的特征来实现高效微调，同时证明这具有丰富的结构信息，利用(a)SC-Tuner来进行文本到图像生成调整，借助(b)CSC-Tuner和(c)级联密集卷积(Cascade Dense Convolution)的帮助，实现可控的图像合成
+
+<img src="https://img.saraba1st.com/forum/202312/20/022246fm6v4vtbwkpzmm4k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021404__01.jpg</strong> (394.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:22 上传
+
+使用相同提示对原始SD v1.5、现有调整策略和SCEdit进行定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/20/022251ju74nvv0zbeow0yr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021414__01.jpg</strong> (126.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:22 上传
+
+使用COCO2017数据集生成文本到图像的FID和效率对比，对于FID分数，遵循SD v1.5的默认设置，在效率方面，从参数效率、显存效率和训练时间效率方面进行了对比，比较了LoRA和本文方法在两种不同参数设置下的性能
+
+<img src="https://img.saraba1st.com/forum/202312/20/022256dq6d6jjj0gqq60os.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021423__01.jpg</strong> (600.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:22 上传
+
+对各种自定义风格化数据集的少样本迁移学习对比，与LoRA调整相比，SCEdit实现了更精确的风格特征学习并生成了更高质量的图像
+
+<img src="https://img.saraba1st.com/forum/202312/20/022300zis9d9i6t53zwii7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021433__01.jpg</strong> (149.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:23 上传
+
+使用LAION数据集对可控图像合成的FID和效率进行对比，“k”表示条件模型的卷积核大小，较大的大小在FID分数上表现更好，尽管参数会适度增加
+
+<img src="https://img.saraba1st.com/forum/202312/20/022305h1uh4h0fl8jn334h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021445__01.jpg</strong> (665.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:23 上传
+
+各种条件下的可控图像合成，奇数行表示输入条件，而偶数行对应于生成的结果，SCEdit能够根据输入条件生成精确的高质量图像
+
+<img src="https://img.saraba1st.com/forum/202312/20/022311b631lm5382phz2hf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021455__01.jpg</strong> (668.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:23 上传
+
+与基于精细边缘(canny edge)和语义分割条件的SOTA可控图像合成方法进行定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/20/022319jff5bf6oig6vfyky.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021504__01.jpg</strong> (554.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:23 上传
+
+可组合的生成，多种条件的组合提供了更多的组合可能性
+
+<img src="https://img.saraba1st.com/forum/202312/20/022323r1d1g2cgg160k1gc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-021509__01.jpg</strong> (88.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:23 上传
+
+控制泛化
+
+学习的边缘条件模型能够完成草图到图像的任务，重绘条件模型可以控制重绘生成
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1088#       发表于 2023-12-20 02:52
+
+VidToMe
+
+用于零样本视频编辑的视频Token合并(Video Token Merging)
+
+项目主页:https://vidtome-diffusion.github.io/
+
+github项目仓库:https://github.com/lixirui142/VidToMe
+
+扩散模型在生成高质量图像方面取得了显著进展，但由于时间运动的复杂性，它们在视频生成方面的应用仍然具有挑战性，零样本视频编辑通过利用预训练的图像扩散模型将源视频转换为新视频，提供了其中一种解决方案，然而，现有方法在保持严格的时间一致性和高效的显存消耗方面存在困难
+
+在这项工作中，提出了一种新方法，通过合并跨帧的自注意力Token(merging self-attention tokens across frames)来增强生成视频的时间一致性，通过对视频帧之间的时间冗余Token进行对齐和压缩，本文方法改善了时间连贯性的同时减少了自注意力计算中的显存消耗
+
+该合并策略根据帧之间的时间对应关系匹配和对齐Token，促进了生成视频帧的自然时间一致性，为了管理视频处理流程中的复杂性，通过将视频分成块(divide videos into chunks)，并开发了块内(inter-chunk)局部Token合并和块内(inter-chunk)全局Token合并，确保了短期的视频连续性和长期内容的一致性
+
+本文的视频编辑方法将图像编辑方面的进展无缝地扩展到视频编辑领域，相对于SOTA方法，在时间一致性方面呈现出了更好的结果
+————
+
+<img src="https://img.saraba1st.com/forum/202312/20/025139jpnr5ip26b5prn5s.png" referrerpolicy="no-referrer">
+
+<strong>pipeline.png</strong> (616.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:51 上传
+
+给定一个输入的源视频和文本提示，VidToMe系统使用预训练的文本到图像扩散模型遵循提示生成一个编辑视频，其关键思想是在自注意模块中跨越多个帧合并相似的Token，以实现生成视频的时间一致性
+
+上方:VidToMe工作流程，从DDIM反转噪声潜在开始，使用扩散模型结合现有的控制方法对视频帧进行去噪处理，在自注意力块之前应用视频Token合并
+
+下方:视频Token合并，给定自注意输入Token，首先在视频块中合并Token(局部Token合并)，然后，将全局Token集被混合起来，实现块间Token共享(全局Token合并)，在合并Token集上进行联合自注意力后，通过反转合并过程将输出Token恢复为其原始大小
+————
+
+<img src="https://img.saraba1st.com/forum/202312/20/025145frllrpf333lb3lcv.png" referrerpolicy="no-referrer">
+
+<strong>efficiency.png</strong> (35.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:51 上传
+
+合并多帧Token减少了视频帧中的时间冗余，从而提高了显存和计算效率，因此，与基线方法相比，VidToMe在快速生成视频的同时消耗更少的显存
+————
+视频编辑结果
+
+<img src="https://img.saraba1st.com/forum/202312/20/025200d1ggb5p6xpljbuub.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-024937.jpg</strong> (390.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 02:52 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1089#       发表于 2023-12-20 05:11
+
+adaptive-diffusion
+
+您的学生比预期的更好:文本条件扩散模型的自适应师生协作(Adaptive Teacher-Student Collaboration)
+
+github项目主页:https://github.com/yandex-research/adaptive-diffusion
+
+最近，知识蒸馏方法(Knowledge distillation methods)已经展现出在加速大型扩散模型合成速度方面的潜力，只需要少量的推理步骤即可加快合成速度，虽然最近提出了几种强大的蒸馏方法，但学生样本的整体质量与教师样本相比通常较低，这妨碍了它们在实际中应用
+
+在这项工作中，调查了教师文本到图像扩散模型及其蒸馏的学生版本产生的样本的相对质量，作为主要的实证发现，尽管学生的特性是“近似(approximate)”的，但有相当一部分学生样本在保真度上优于教师样本，基于这一发现，提出了学生和教师扩散模型之间的自适应协作，以实现有效的文本到图像合成
+
+具体而言，蒸馏模型生成初始样本，然后一个预示机(oracle)决定是否需要通过慢速教师模型进行进一步改进
+
+广泛的实验表明，这种设计的工作流程在人类偏好方面，在各种推理预算上超过了SOTA文本到图像替代方案，此外，所提出的方法可以自然地应用于流行的应用，如文本引导的图像编辑和可控生成
+
+<img src="https://img.saraba1st.com/forum/202312/20/050630j4eimiex4xretqel.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050248__01.jpg</strong> (447.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:06 上传
+
+左:所提案方法的概览图
+右:SDv1.5和SDXL与其几个步骤的精炼版本的并排对比
+
+对于相同的文本提示和初始噪声，蒸馏后的模型在大量样本中超过了原始模型
+
+<img src="https://img.saraba1st.com/forum/202312/20/050636tewgbggi6zrqr6wg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050300__01.jpg</strong> (576.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:06 上传
+
+学生的表现优于教师(SD1.5)
+
+左:文本条件图像合成
+右:文本引导图像编辑(SDEdit)
+
+ 每对内的图像是使用相同的初始噪声样本生成的
+
+<img src="https://img.saraba1st.com/forum/202312/20/050645m52ua4v29x12ifza.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050321__01.jpg</strong> (394.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:06 上传
+
+(a)相似(左)和不相似(右)的师生样本的视觉示例
+(b)学生和教师样本之间的相似度与样本质量差异之间的关系，差异较大的样本往往具有不同的质量
+(c)学生和教师样本之间不同距离范围内的人类投票分布，学生胜利大多发生在学生与教师有分歧的情况下
+
+<img src="https://img.saraba1st.com/forum/202312/20/050650g38zu5s839o2ggw7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050330__01.jpg</strong> (115.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:06 上传
+
+图像复杂度的影响
+
+(a)学生和教师样本越相似，图像越简单，反之亦然
+(b)学生和教师在复杂的教师样本上图像质量有很大的差异，值得注意的是，学生在这些样本上通常表现优于教师
+
+<img src="https://img.saraba1st.com/forum/202312/20/050654mrrkxrz7j8xk04px.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050557.jpg</strong> (86.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:06 上传
+
+文本提示的影响
+
+(a)较短的提示通常会导致学生和教师样本更相似
+(b)当学生在很大程度上更依赖于文本提示时，学生和教师往往会生成更相似的图像
+
+<img src="https://img.saraba1st.com/forum/202312/20/050721rmsqxifnfqnzkfbm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050704.jpg</strong> (78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:07 上传
+
+教师轨迹弯曲的影响
+
+(a)学生样本在轨迹弯曲较小的情况下与教师样本相似
+(b)更直的轨迹通常对应于更简单的教师图像
+
+<img src="https://img.saraba1st.com/forum/202312/20/050728pm4mhbqi1s4cqa4c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050710.jpg</strong> (62.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:07 上传
+
+全参考(full-reference) VS 不参考(no-reference)决策，可以找到ImageReward分数的第k个百分位，提供与人类投票的相关性，类似于全参考对比，但不观察教师的样本
+
+<img src="https://img.saraba1st.com/forum/202312/20/050753sji4j4699v957c6z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050400__01.jpg</strong> (774.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:07 上传
+
+本文的自适应细化方法与SD1.5教师模型的定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/20/050830bawucr91rh9ru4sh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050408__01.jpg</strong> (300.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:08 上传
+
+用户偏好研究(SD1.5)
+
+(a)将本文方法与最佳的教师配置进行对比
+(b)将其与使用DPM-Solver的教师模型在相同步数下进行对比
+(c)将其与没有自适应步骤的改进策略在相同步数下进行对比
+
+上方行:LAION-美学文本提示
+下方行:COCO2014文本提示
+
+对于本文的自适应方法，使用细化策略(R)
+
+<img src="https://img.saraba1st.com/forum/202312/20/050929y9kxaxok3kktvlql.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050425__01.jpg</strong> (114.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:09 上传
+
+自动评估(SD1.5)，对来自COCO2014的5K个文本提示进行不同采样步骤的FID、CLIP和ImageReward分数对比，所提出的协作方法优于所有基线方法，具有重生成策略(G)的自适应流程展现了更高的文本对齐度(CLIP分数)，而细化策略(R)提高了图像保真度(FID)
+
+<img src="https://img.saraba1st.com/forum/202312/20/050934xus9le9b9oths22b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050430__01.jpg</strong> (60.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:09 上传
+
+用户偏好研究(SDXL)
+
+左图:将自适应方法与CD-SDXL以及表现最佳的教师设置进行对比
+右图:将自适应方法与相同采样步骤的ADD-XL以及ADD-XL进行对比
+
+<img src="https://img.saraba1st.com/forum/202312/20/050940xr6p2lvv6v6rq622.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050425__02.jpg</strong> (81.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:09 上传
+
+用户对样本估计器的不同准确率水平的偏好，当前状态表示使用ImageReward估计器的结果，其他结果展示了如果未来估计器性能提高而可能获得的潜在收益
+
+<img src="https://img.saraba1st.com/forum/202312/20/051013itlmuvz1vrtlime0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050442__01.jpg</strong> (108.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:10 上传
+
+通过不同方法收集的多样性人类分数
+
+<img src="https://img.saraba1st.com/forum/202312/20/051017neuoeomcc2cd8uno.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050442__02.jpg</strong> (75.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:10 上传
+
+CD-SD1.5和SD1.5样本的图像复杂度，使用ICNet进行采样
+
+左图:箱线图表示两个模型的复杂度分位数
+右图:独立复杂度值的分布，每个点对应于为相同提示和初始噪声生成的一对样本
+
+蒸馏模型仅略微简化了教师分布
+
+<img src="https://img.saraba1st.com/forum/202312/20/051107ki4954mn5m2ibnmi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050447__01.jpg</strong> (122.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:11 上传
+
+使用不同方法的SDEdit在参考留存DINOv2和编辑质量(ImageReward)方面的对比，强度为0.6
+
+<img src="https://img.saraba1st.com/forum/202312/20/051113iknfri1k944in45s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050503__01.jpg</strong> (772.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:11 上传
+
+使用本文方法和性能最佳的教师(SD1.5)配置生成的视觉示例
+顶部:使用SDEdit进行文本引导的图像编辑
+底部:使用ControlNet进行精确边缘和语义分割掩码的可控图像生成
+
+<img src="https://img.saraba1st.com/forum/202312/20/051118r2ard20g2a5rri0d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-050506__01.jpg</strong> (53.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:11 上传
+
+SDEdit在参考留存(DINOv2)和编辑质量(IR)方面针对不同强度值的性能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1090#       发表于 2023-12-20 05:27
+
+Catwalk
+
+多数据集的统一语言模型评估框架
+
+github项目主页:https://github.com/allenai/catwalk
+
+大型语言模型的成功已经改变了自然语言处理(NLP)中的评估范式，社区的兴趣转向了在许多任务、领域和数据集上对比NLP模型，这通常是在极大的规模下进行的，同时这这带来了新的工程挑战:构建数据集和模型的工作被分散进行，它们的格式和接口并不兼容，因此，要进行公平和可控的大规模评估往往需要进行大量的重新实现工作
+
+Catwalk旨在解决这些问题，Catwalk为广泛的现有NLP数据集和模型提供了统一的交互接口，包括经典的监督训练和微调，以及更现代的诸如上下文学习的范式，它精心设计的抽象层允许轻松扩展到其他许多领域，Catwalk极大的降低了进行大规模可控实验的门槛，例如，可以使用一个命令对超过86个数据集上的64个模型进行了微调和评估，而无需编写任何代码
+
+Catwalk由艾伦人工智能研究所(AI2)的AllenNLP团队维护，是一个持续的开源项目
+
+<img src="https://img.saraba1st.com/forum/202312/20/052653aukiy8n5ik8cf4yc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-052508.jpg</strong> (334.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:26 上传
+
+Catwalk的工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/20/052658mao9rs33oagyh3v3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-052616.jpg</strong> (56.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 05:26 上传
+
+Catwalk中的模型样式和支持的功能特性
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1091#       发表于 2023-12-20 06:28
+
+ 本帖最后由 Machinery 于 2023-12-20 06:29 编辑 
+
+Silkie
+
+大型视觉语言模型的偏好蒸馏
+
+项目主页:https://vlf-silkie.github.io/
+
+github项目仓库:https://github.com/vlf-silkie/VLFeedback
+
+hugface模型权重下载:https://huggingface.co/MMInstruction/Silkie
+
+这篇论文探讨了针对大型视觉语言模型(LVLMs)的偏好蒸馏，以提高其生成有帮助且可信的视觉上下文回复的能力，首先利用AI标注构建了一个视觉语言反馈(VLFeedback)数据集，具体而言，响应是以来自各种数据集的多模式指令为条件，从​​12个LVLM模型生成的
+
+通过采用GPT-4V来评估了生成的输出的有关帮助性、视觉可信度和道德伦理(regarding helpfulness, visual faithfulness, and ethical considerations)方面，此外，通过直接偏好优化(DPO)方法，将偏好监督压缩到了Qwen-VL-Chat中，由此得到的模型Silkie，在感知和认知能力方面，相对于MME基准，分别取得了6.9%和9.5%的相对改进
+
+Silkie还通过在MMHal-Bench基准上达成了一个新的SOTA得分3.02以证明减少了幻觉，进一步的分析显示，使用VLFeedback数据集的DPO主要提升了LVLM的细粒度感知和复杂认知能力，相比于人工标注的偏好数据集，带来了更全面的改进
+
+<img src="https://img.saraba1st.com/forum/202312/20/062725y88qgq8qzfdfz5x5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062333__01.jpg</strong> (378.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:27 上传
+
+视觉语言反馈(VLFeedback)数据集的标注框架如图，从各种来源收集指令，并使用来自LVLM池(LVLM pool)的4个模型解码相应的回应，GPT-4V模型评估这些回应的三个方面，并为分数提供评级和理由
+
+<img src="https://img.saraba1st.com/forum/202312/20/062730f20q9avg82nupwar.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062339__01.jpg</strong> (315.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:27 上传
+
+VLFeedback数据集中多模态指令的描述和统计
+
+<img src="https://img.saraba1st.com/forum/202312/20/062736kuafjrta13tf83f8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062352__01.jpg</strong> (431.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:27 上传
+
+GPT-4V模型的视觉可信度评估标注指导
+
+<img src="https://img.saraba1st.com/forum/202312/20/062740kdv9bsuba7vs6bea.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062359__01.jpg</strong> (101.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:27 上传
+
+不同方面的评分分布，帮助性和视觉可信度具有相似的分数分布，大多数解码的响应在没有道德考虑的情况下进行评估
+
+<img src="https://img.saraba1st.com/forum/202312/20/062744nx22285hxte55cm7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062405__01.jpg</strong> (217.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:27 上传
+
+GPT-4V在三个方面的平均得分和整体表现上显示出明显优势，这促使本文选择GPT-4V作为人类标注者的代行者
+
+<img src="https://img.saraba1st.com/forum/202312/20/062754uzg4jppjdccpg7cg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062411__01.jpg</strong> (107.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:27 上传
+
+GPT-4V和Qwen-VL-Chat之间的分数分布对比
+
+<img src="https://img.saraba1st.com/forum/202312/20/062759cc47rr0iiznmgmwm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062417__01.jpg</strong> (194.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:27 上传
+
+多模态基准的性能评估，最佳结果以粗体显示，第二名的结果以下划线显示
+
+<img src="https://img.saraba1st.com/forum/202312/20/062803a0wpd3iuxjd4puxd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062425__01.jpg</strong> (156.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:28 上传
+
+(左图)对性能改进的MME基准进行了深入分析，VLFeedback数据集在OCR识别和代码推理任务中带来了更明显的收益
+(右图)通过对RLHF-V偏好数据和VLFeedback数据集的子集执行DPO来实现相对性能改进，GPT-4V的标注偏好数据集在四个基准测试中带来了更一致的改进
+
+<img src="https://img.saraba1st.com/forum/202312/20/062808sh8uy8fyv3uovhay.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-062432__01.jpg</strong> (418.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 06:28 上传
+
+MMHal-Bench(左)和MM-Vet(右)的评估样本的案例研究，Silkie能够准确地找到带有红花的木凳子，而不会提供误导性的断言，并且能够正确回答与科学相关的问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1092#       发表于 2023-12-20 23:34
+
+ 本帖最后由 Machinery 于 2023-12-20 23:35 编辑 
+
+StarVector
+
+从图像生成可扩展的矢量图形代码(Vector Graphics Code)
+
+github项目主页:https://github.com/joanrod/star-vector
+
+可拓展矢量图形(SVG/Scalable Vector Graphics)已经成为现代图像渲染应用中不可或缺的一部分，因为它们在分辨率上具有无限可扩展性、具备广泛的使用范围和可编辑性，其中，SVG在网页开发和图形设计领域特别受欢迎，现有的方法通常使用深度学习对SVG进行建模，常常难以生成复杂的SVG，在局限于简单SVG的同时，还需要大量的处理流程和简化
+
+本文介绍了StarVector，一种多模态SVG生成模型，它有效地将代码生成大型语言模型(CodeLLMs)和视觉模型进行了整合，利用CLIP图像编码器从基于像素的图像中提取视觉表征，然后通过适配器模块(adapter module)将其转换为视觉Token，这些视觉Token被预置(pre-pended)到SVG Token嵌入中，随后这些序列由StarCoder模型进行建模，使用下一个Token预测目标，有效地学习了如何对齐视觉和代码Token，这使得StarVector能够生成准确表示像素图像的无限制SVG
+
+为了评估StarVector的性能，提出了SVG-Bench，一个用于评估SVG方法的全面基准测试，涵盖多个数据集和相关指标，在这个基准中，引入了包括SVG-Stack在内的新数据集(一个大规模的真实世界SVG示例数据集)，并将其用于预训练StarVector，使之作为SVG的大型基础模型
+
+结果表明，与当前方法相比，本文方法在视觉质量和复杂性处理方面取得了显著的改进，这成为了SVG生成技术的显著进步标志之一
+
+<img src="https://img.saraba1st.com/forum/202312/20/233049jts87prr8k6zrt5p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232422__01.jpg</strong> (287.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:30 上传
+
+图像到SVG生成任务:给定一个输入图像，生成对应的SVG代码，在左侧，展示了来自SVG-Emoji和SVG-Stack数据集的复杂SVG的测试示例，StarVector对图像进行编码，并以多模态语言建模的方式处理它们，以生成类似输入图像的可执行SVG代码，这里展示了由StarVector模型生成的真实代码和光栅化图像，展现了生成吸引人的SVG设计和使用复杂语法的能力
+
+<img src="https://img.saraba1st.com/forum/202312/20/233056khm43zh14sst14zk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232433__01.jpg</strong> (246.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:30 上传
+
+StarVector架构:像素空间中的图像使用CLIP编码为一组2D嵌入，Adapter对图像嵌入进行非线性变换，使其与Code-LLM空间对齐获得视觉Token，StarCoder使用图像嵌入作为上下文生成SVG，在训练过程中，通过SVG Token的下一个Token预测来监督该任务，在推理过程中，模型使用输入图像的视觉Token自回归地预测SVG代码
+
+<img src="https://img.saraba1st.com/forum/202312/20/233104k27rlclax3c33rvo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232448__01.jpg</strong> (186.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:31 上传
+
+SVG-Bench中的数据集，展示了每个分割(split)内的样本数量，还有一个由简化的SVG组成的降低后的测试集，提供了数据集获取的来源，并提供了SVG代码长度的统计信息，考虑了由StarCoder训练的分词器(tokenizer)，最后，展示了数据集中使用的SVG基元(primitives)的类型
+
+<img src="https://img.saraba1st.com/forum/202312/20/233110phz7yiun0qiq770o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232448__02.jpg</strong> (175.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:31 上传
+
+基线对比，虽然之前的工作只考虑了3个简单的命令-M(Move)、L(Line)和C(Curve)，但模型原则上可以处理所有类型的复杂SVG命令
+
+<img src="https://img.saraba1st.com/forum/202312/20/233115eolf32z7y2qau8b2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232504__01.jpg</strong> (64.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:31 上传
+
+简化SVG-Icons和SVG-Fonts的测试结果
+
+<img src="https://img.saraba1st.com/forum/202312/20/233122guz02me13wzkz0ii.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232504__02.jpg</strong> (62.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:31 上传
+
+SVG-Icons测试集的结果
+
+<img src="https://img.saraba1st.com/forum/202312/20/233150ap8q88cq0j6jjzzu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232608__01.jpg</strong> (257.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:31 上传
+
+针对SVGBench中不同方法的图像到SVG转换任务的简化(sim)数据集的结果，粗体代表最佳模型，下划线代表第二名
+
+<img src="https://img.saraba1st.com/forum/202312/20/233155xuggf63nggxunfrg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232608__02.jpg</strong> (226.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:31 上传
+
+图像到SVG转换任务的完整数据集的结果，指标是在SVG-Bench的完整测试集上计算的，DeepSVG不包括在内，因为它不支持复杂的SVG图像
+
+<img src="https://img.saraba1st.com/forum/202312/20/233202vusxdd7pxy55u7dn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232623__01.jpg</strong> (143.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:32 上传
+
+SVG-Emoji测试集的结果
+
+<img src="https://img.saraba1st.com/forum/202312/20/233207x83gfuhg8zqyy6bo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232623__02.jpg</strong> (111.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:32 上传
+
+SVG-Stack测试集的结果
+
+<img src="https://img.saraba1st.com/forum/202312/20/233220lqk3njf8fd3z66i9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232721__01.jpg</strong> (265.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:32 上传
+
+使用不同的图像编码器进行消融实验，同时保持架构的其余部分相同，CLIP作为骨干的视觉模型在相似的参数设置下表现最好
+
+<img src="https://img.saraba1st.com/forum/202312/20/233225lwwwuesvpvz6czhc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232721__02.jpg</strong> (228.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:32 上传
+
+SVG数据增强的结果，本实验评估了容易发生过度拟合的较小数据集，“+”表示还包括之前的行
+
+<img src="https://img.saraba1st.com/forum/202312/20/233230jdd9992sg9dvs99d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232648__01.jpg</strong> (132.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:32 上传
+
+使用不同的视觉编码器在SVG-emoji上进行消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/20/233234wpu5ewp1xxtbsexx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231220-232648__02.jpg</strong> (98.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 23:32 上传
+
+使用不同的视觉编码器在SVG-Stack上进行消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1093#       发表于 2023-12-21 00:25
+
+ 本帖最后由 Machinery 于 2023-12-21 00:26 编辑 
+
+VistaLLM
+
+万事通，多才多艺(Jack of All Tasks, Master of Many)，设计通用从粗到细(Coarse-to-Fine)的视觉语言模型
+
+项目主页:https://shramanpramanick.github.io/VistaLLM/
+
+<img src="https://img.saraba1st.com/forum/202312/21/002421bpbx7fz6qt7g77r7.png" referrerpolicy="no-referrer">
+
+<strong>radar.png</strong> (82.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:24 上传
+
+————
+本文的主要贡献
+
+VistaLLM:推出了VistaLLM，这是一个功能强大的通用视觉系统，它将单个和多个输入图像上的粗粒度和细粒度视觉语言推理以及基础任务集成到一个统一的框架中
+
+新颖的采样算法:为了有效地将分割掩码转换为序列，提出了一种梯度感知适配轮廓采样方案(gradient-aware adaptive contour sampling scheme)，该方案在不同的分割基准测试上相比以前使用的均匀采样(uniform sampling)提高了3-4mIoU分数
+
+CoinIt数据集:为了在多种形式的视觉和语言任务上训练VistaLLM，提出了从粗到细的指令调整数据集，其中包含680万个样本，涵盖四大类任务——单图像粗粒级、单图像区域级、多图像粗粒级和多图像区域级(single-image coarse-level, single-image region-level, multi-image coarse-level, and multi-image region-level)
+
+新任务:提出一项新任务“Attribute-level Co-Segmentation”来解决缺乏公开可用的多图像区域级数据集的问题，该任务旨在识别具有共同属性的输入图像(形状、颜色、大小、 位置)，并对这些对象进行分割，AttCoSeg包含685k训练样本，帮助VistaLLM在多个输入图像上获得了显著的通用推理能力和基准(grounding)能力改进
+————
+VistaLLM构架
+
+<img src="https://img.saraba1st.com/forum/202312/21/002626kxurvruv0vvwhlt0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-002608.jpg</strong> (117.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:26 上传
+
+提出的VistaLLM的概览图，将单图像和多图像的粗粒度和细粒度的视觉语言任务集成到统一的通用框架中，VistaLLM包含三个关键的设计模块
+
+(i)图像编码器，用于提取全局图像嵌入
+
+(ii)指令指导的图像分词器(tokenizer)，利用任务指令对全局图像嵌入进行细化和压缩，使模型能够过滤当前任务所需的必要视觉信息
+
+(iii)LLM(Vicuna)，基于LLM的解码器，可以联合处理图像和语言特征，并生成所需的输出，VistaLLM使用一种梯度感知的适配采样技术，将分割掩码有效地表示为点序列(point sequence)
+
+除图像编码器外，所有参数在第一阶段进行训练，而只有图像分词器在第二阶段进行微调
+————
+适配采样
+
+<img src="https://img.saraba1st.com/forum/202312/21/002442f25dcgk1hkdg1hzo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-002242__01.jpg</strong> (284.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:24 上传
+
+均匀采样和适配采样策略的可视化，(左图)采样点的示意图和用于对比的聚合曲线，(右)采样点的示意图和聚合的掩码对比，通过提出一种梯度感知的适配轮廓采样方案，将二值化掩码高效地转换为点序列，从而显著改善了先前用于序列到序列分割任务的简单均匀采样技术
+————
+相关评估结果
+
+<img src="https://img.saraba1st.com/forum/202312/21/002457kicdio3wc9zdx0dq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-001807__01.jpg</strong> (285.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/002457ykgd7996f5579dfk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-001814__01.jpg</strong> (209.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/002457ukhh1ddtqd4zd11x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-001820__01.jpg</strong> (159.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:24 上传
+
+————
+示例演示
+
+<img src="https://img.saraba1st.com/forum/202312/21/002520y6okbp6honvdl7z9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-002121.jpg</strong> (751.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/002521y3vvc1jpz26cwp36.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-002138.jpg</strong> (615.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/002521cjduqf5fni0uf5zj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-002206.jpg</strong> (529.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/002521k8el3xxhi6jd6jf0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-002214.jpg</strong> (206.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 00:25 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1094#       发表于 2023-12-21 01:40
+
+ 本帖最后由 Machinery 于 2023-12-21 01:42 编辑 
+
+3D-LFM
+
+3D提升(Lifting)基础模型
+
+项目主页:https://3dlfm.github.io/
+
+github项目仓库:https://github.com/mosamdabhi/3dlfm
+
+将3D结构和摄影机从2D标记点中提升出来是整个计算机视觉的核心基石，传统方法局限于特定的刚性物体，比如透视n点(PnP/Perspective-n-Point)问题中的物体，但深度学习扩展了重建广泛的物体类别(如C3PDO和PAUL)的能力，这些模型具有对弹性噪声、遮挡和透视变形的稳健性
+
+然而，所有这些技术都受限于建立3D训练数据之间对应关系的基本需求，如果仅拥有大量“非对应”3D数据时，这将限制这些应用的实用性，本文方法利用Transformer内部的排列恒等性(permutation equivariance)来处理每个3D数据实例中的点数量变化，抵抗遮挡，并泛化到未见的类别
+
+在2D-3D提升任务基准测试中展示了SOTA性能，由于本文方法可以在如此广泛的结构类别上进行训练，因此将其简称为3D提升基础模型(3D-LFM)——这是首个相关的基础模型
+————
+
+<img src="https://img.saraba1st.com/forum/202312/21/014016twoz0bok01qpb6k1.png" referrerpolicy="no-referrer">
+
+<strong>approach.png</strong> (136.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 01:40 上传
+
+3D-LFM模型的架构图:系统通过TPE对2D关键点进行编码，通过Transformer层对其进行处理，并使用MLP解码为规范的3D形状，使用Procrustean方法将形状与基准答案对齐，确保以效率的计算捕获局部和全局上下文
+————
+3D-LFM是一种通用的2D-3D提升模型，无需特定类别的知识即可处理不同的对象，它使用Transformer的排列恒等性和几何一致性来处理摄影机旋转，并标准化规范帧中的形状表征
+
+<img src="https://img.saraba1st.com/forum/202312/21/014022nqq00lvc622nssqr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-013920.jpg</strong> (150.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 01:40 上传
+
+3D-LFM 可扩展到多个类别(在实验中为30多个类别)，通过建议的架构更改可以管理不同的标记配置，图中红色代表基准答案，蓝色代表预测
+————
+OOD泛化
+
+<img src="https://img.saraba1st.com/forum/202312/21/014030xxefv2tfejls0n2v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-013938.jpg</strong> (50.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 01:40 上传
+
+3D-LFM能够识别和重建许多在训练阶段从未遇到过的标记数量的物体配置，模型在训练中从未见过上述对象类别
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1095#       发表于 2023-12-21 05:51
+
+tao-amodal
+
+追踪任何对象的非模态(Tracking Any Object Amodally)
+
+注:非模态感知(Amodal perception)是当只有部分物理结构影响感觉受体时对整个物理结构的感知，例如，即使视线中只有桌子的一部分投射到视网膜上，那些看不到的部分也会被视为完整的体积结构，尽管只有表面暴露在视线中，但它依然具有内部体积和隐藏的背面
+
+项目主页:https://tao-amodal.github.io/
+
+非模态感知是一种基本技能，甚至连婴儿都具备，其重要性延伸到了自动驾驶等应用领域，其中，对于严重遮挡物体的清晰理解至关重要，然而现代的检测和追踪算法经常忽略这一关键能力，可能是因为大多数的数据集主要关注可见物体的标注
+
+为了解决缺乏非模态数据的问题，引入了TAO-Amodal基准测试，其中包含880个不同类别的物体以及成千上万个视频序列，数据集包括了非模态和模态边界框，以用于可见和遮挡物体，包括部分超出画面的物体
+
+为了增强非模态追踪的物体的持久性，通过利用一个轻量级的插件模块，即非模态扩展器(amodal expander)，在数百个带有数据增强的视频序列上进行微调，将标准的模态追踪器转化为非模态追踪器
+
+在TAO-Amodal上的检测和追踪遮挡物体的准确率分别提高了3.3%和1.6%，在人类评估方面，相比于SOTA模态基线，本方法取得了惊人的2倍显著改进
+————
+
+<img src="https://img.saraba1st.com/forum/202312/21/055125e9dllz09md12zhhl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-054755.jpg</strong> (100.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 05:51 上传
+
+TAO-Amodal数据集具有多种(880种)标注，同时包含传统追踪(上)和非模态追踪(下)
+————
+传统l vs. 非模态追踪
+
+<img src="https://img.saraba1st.com/forum/202312/21/055130qllx2wexatztw7dj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-054845.jpg</strong> (142.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 05:51 上传
+
+传统感知(上)集中于识别可见部分，因此，当它们面临着特殊输出时，例如在遮挡场景下边界框消失或框尺寸很小时，非模态感知(下)可以通过推断完整的对象边界，即使某些部分被遮挡，效果也超越了传统方法
+————
+TAO-Amodal数据集
+
+<img src="https://img.saraba1st.com/forum/202312/21/055148cuig6798td4liulw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-054910.jpg</strong> (69.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 05:51 上传
+
+数据集通过非模态边界框标注增强了TAO数据集，其中涵盖了880个类别中完全不可见、框外和遮挡的对象，请注意，这意味着TAO-Amodal还包括模态分割掩码
+————
+非模态拓展器
+
+<img src="https://img.saraba1st.com/forum/202312/21/055154c8ghypjugwwpwjho.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-055032.jpg</strong> (104.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 05:51 上传
+
+作为一个插件模块，可以使用有限的(非模态)训练数据“非模态化”任何现有的探测器或追踪器，在这里，提供了来自非模态扩展器的模态(上方)和非模态(下方)预测的定性结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1096#       发表于 2023-12-21 06:36
+
+Customize-It-3D
+
+使用特定于主题的知识先验从单张图像创造高质量3D
+
+项目主页:https://nnanhuang.github.io/projects/customize-it-3d/
+
+github项目仓库:https://github.com/nnanhuang/Customize-it-3D
+
+在本文中，提出了一种新颖的两阶段方法，充分利用了参考图像提供的信息为图像到3D生成建立了个性化的知识先验，之前的方法主要依赖于通用的扩散先验，但往往无法产生与参考图像一致的结果
+
+为此，本文提出了一种主题特定的多模态扩散模型，该模型不仅通过考虑改进几何结构的着色模式来帮助NeRF进行优化，还通过从粗略结果中增强纹理来实现更好的细化效果，这两个方面都有助于将3D内容与主题可信的对齐
+
+大量的实验证明了Customize-It-3D方法的优越性，其结果明显优于之前的方法，它可以产生可信的360度的重建结果，具有令人印象深刻的视觉质量，非常适用于包括文本到3D创造在内的各种应用场景
+
+<img src="https://img.saraba1st.com/forum/202312/21/063548k0wz2fl9jcw01b86.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063017__01.jpg</strong> (388.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:35 上传
+
+ Customize-It-3D具有从单个图像中生成高保真3D内容的能力，为普通物体呈现了法线贴图和新视图渲染，突出了在新视图下纹理和几何的一致性，质量十分出色
+
+<img src="https://img.saraba1st.com/forum/202312/21/063554uue68cz0ha6ctj30.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063036__01.jpg</strong> (445.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:35 上传
+
+提出了一个两阶段的框架，用于根据主题特定的扩散先验依据参考图像进行高质量的3D创造，在粗略阶段，在着色感知的方式下通过优化NeRF来重建参考图像的几何形状，进一步从粗略阶段构建具有增强纹理的点云，并联合优化不可见点处的纹理以及可学习的延迟渲染器，以生成逼真且视角一致的纹理
+
+<img src="https://img.saraba1st.com/forum/202312/21/063602ngllzzmlzuwr9qs6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063050__01.jpg</strong> (108.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+所提出的着色模式感知引导极大地增强了粗略阶段的3D几何形状
+
+<img src="https://img.saraba1st.com/forum/202312/21/063608jqt9oojj98wwe9wd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063050__02.jpg</strong> (83.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+从深度图像和本文方法说明不同的点云构建方法
+
+<img src="https://img.saraba1st.com/forum/202312/21/063613nwrr3wwzswvm513n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063121__01.jpg</strong> (111.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+使用多模态DreamBooth极大增强了粗略渲染的纹理细节
+
+<img src="https://img.saraba1st.com/forum/202312/21/063619o6ezjtfileqwk5ng.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063334.jpg</strong> (181.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+纹理点云的构造，增强新视图的纹理和掩码，并迭代地将纹理投影到点云
+
+<img src="https://img.saraba1st.com/forum/202312/21/063623phvolbthklkbbgbw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063128__01.jpg</strong> (80.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+RealFusion15上的定量对比，计算参考视图下的LPIPS和PSNR，以及新视图下的CLIP
+
+<img src="https://img.saraba1st.com/forum/202312/21/063629wrr9zsfi55s8o5ep.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063143__01.jpg</strong> (416.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+图像到3D生成的定性对比，将Customize-It-3D与RealFusion、Make-it-3D和Magic123进行了对比，以从单张无姿态图像(最左边的列)创造3D对象
+
+<img src="https://img.saraba1st.com/forum/202312/21/063637tsbflflgdeaa5whg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063158__01.jpg</strong> (134.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+Multimodal DreamBooth的效果，在几何和纹理方面都表现出了一致的改进
+
+<img src="https://img.saraba1st.com/forum/202312/21/063642n9axv934ae9bran9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063158__02.jpg</strong> (172.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+多模态DreamBooth与单RGB，在几何形状方面展示出了明显的改进
+
+<img src="https://img.saraba1st.com/forum/202312/21/063649sbux6mbl4xp1mw4l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063204__01.jpg</strong> (109.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+高保真文本到3D生成的说明
+
+<img src="https://img.saraba1st.com/forum/202312/21/063654foc4wcvc58vdkfcf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-063204__02.jpg</strong> (131.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 06:36 上传
+
+展示真实场景的高保真3D创造
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1097#       发表于 2023-12-21 08:49
+
+HAAR
+
+基于3D股丝(strand)的人类发型文本条件生成模型
+
+项目主页:https://haar.is.tue.mpg.de/
+
+code:to be released
+
+本文提出了一种名为HAAR的，基于股丝的新型生成模型，可用于生成3D人体发型，具体而言，基于文本输入，HAAR可以生成用于现代计算机图形引擎中的生产资产级别的3D发型
+
+当前基于人工智能的生成模型利用强大的2D先验知识来重建3D内容，以点云、网格或体积函数的形式，然而，通过使用2D先验知识，它们只能固有地恢复可见部分，这些方法无法重建高度遮挡的发型结构，并且仅对“外壳(outer shell)”进行建模，因此无法直接用于基于物理的渲染或仿真工作流程
+
+相比之下，本文提出了首个文本引导的生成方法，使用3D头发股丝作为底层表征，通过利用2D VQA系统，使用自动标注从一小组由艺术家创造的发型中生成合成发型模型，这使之能够训练一个在常见发型UV空间(common hairstyle UV space)中操作的潜在扩散模型
+
+通过定性和定量研究，展示了该模型的能力，并将其与现有的发型生成方法进行了对比
+
+<img src="https://img.saraba1st.com/forum/202312/21/084420sduyutm6dzz4dcj5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-083934__01.jpg</strong> (614.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:44 上传
+
+给定一个文本描述，本文方法能够生成逼真的人类发型，由于使用了基于3D股丝的几何表征，使其能够轻松地融入现有的计算机图形工作流程中进行模拟和渲染
+
+<img src="https://img.saraba1st.com/forum/202312/21/084425dll34y43isaj74iz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-083944__01.jpg</strong> (257.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:44 上传
+
+概览图，提出了一种新的文本引导和基于股丝的发型生成方法，对于训练集中的每个发型H，使用现成的VQA系统和定制的标注工作流程生成潜在的头发映射图Z，并使用文本标题P进行标注，然后训练一个条件扩散模型D在这个潜在空间中生成引导股丝，并使用潜在上采样过程来根据文本描述重建包含多达十万条股丝的密集发型，最后，使用现成的计算机图形技术来渲染生成的发型
+
+<img src="https://img.saraba1st.com/forum/202312/21/084430gs89qxhwqwqqch8q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-083951__01.jpg</strong> (170.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:44 上传
+
+数据集收集，通过将渲染的正面和背面视图的发型以及预定义的问题集合Q送入VQA，获得发型描述，然后使用冻结的文本编码器网络对其进行进一步编码
+
+<img src="https://img.saraba1st.com/forum/202312/21/084434y7kava675vbgmakb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-084007__01.jpg</strong> (523.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:44 上传
+
+无条件扩散模型的对比，本文方法生成的样本质量和多样性更好
+
+<img src="https://img.saraba1st.com/forum/202312/21/084822tfanuv4fzj4km4v4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-084007__01.jpg</strong> (523.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:48 上传
+
+对条件生成模型的定性对比，展示了TECA和本文模型的几个生成结果，对于本文结果，可视化了在上采样之前(以伪彩色/pseudocolor显示)和上采样之后得到的几何形状，本文模型生成了更多样化、质量更高的发型样本，值得注意的是，在某些情况下，TECA并没有很好地遵循输入描述，生成了短发而不是长发
+
+<img src="https://img.saraba1st.com/forum/202312/21/084852kbb3a2hmn33z2xnb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-084020__01.jpg</strong> (531.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:48 上传
+
+上采样，在引导股丝之间进行插值对比不同的上采样方案(以深色表示)，为了展示效果，这里使用了约15000股毛发，在Blender中，插值是在3D空间中进行的，而本文方法是在潜在空间中计算的
+
+在这两种变体中，使用最近邻(Nearest Neighbour)的方法可以更准确地根据引导股丝的几何形状(以深色表示)，但会导致整体外观不真实，双线性方案会导致发型平均股丝穿透和原始引导股丝结构的消失，将这两种方法结合起来可以解决提出的问题，并得到逼真的渲染结果
+
+在潜在空间中添加额外的噪声可以进一步增加逼真度，并有助于消除网格结构
+
+<img src="https://img.saraba1st.com/forum/202312/21/084857osmq3qw3worn2swr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-084025__01.jpg</strong> (37.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:48 上传
+
+条件化，对不同的条件化方案进行了消融实验，使用BLIP文本编码器，得到了比CLIP和可训练的Transformer网络更好的条件化效果
+
+<img src="https://img.saraba1st.com/forum/202312/21/084906h0lio0j0jvxvl0l0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-084036__01.jpg</strong> (506.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:49 上传
+
+发型编辑，类似于Imagic，使用文本提示来编辑输入图像，提供了没有额外调整的扩散模型的编辑结果(前两行)，以及有额外调整的结果(后两行)，微调扩散模型可以实现更平滑的编辑，并更好地保留输入的发型
+
+<img src="https://img.saraba1st.com/forum/202312/21/084911b2129caaianc1zyo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-084041__01.jpg</strong> (128.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 08:49 上传
+
+有关局限，失败案例包括对头皮区域的穿透(左)，原则上可以通过后处理步骤来解决，此外，对于非洲发型(右)，需要增加股丝的卷曲程度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1098#       发表于 2023-12-21 20:08
+
+ 本帖最后由 Machinery 于 2023-12-21 20:09 编辑 
+
+MixRT
+
+用于实时NeRF渲染的混合神经表征
+
+项目主页:https://licj15.github.io/MixRT/
+
+神经辐射场(NeRF)作为一种主流的新视图合成技术，以其令人印象深刻的逼真重建和渲染能力而令人印象深刻，然而，在大规模场景中进行实时NeRF渲染一直存在挑战，通常来说，方法需要采用复杂的大量烘焙网格表示或资源密集的烘焙表示中的光线行进
+
+通过对这些传统方法提出了质疑，观察到高质量的几何形状，由大量三角形组成的网格表示，并不是实现逼真渲染质量所必需的，因此本文提出了MixRT，一种新颖的NeRF表征方法，包括低质量的网格、视图相关的位移映射和压缩的NeRF模型，这种设计有效地利用了现有图形硬件的能力，从而在边缘设备上实现了实时的NeRF渲染效果
+
+通过利用高度优化的基于WebGL的渲染框架，提出的MixRT在边缘设备上实现了实时渲染速度(在MacBook M1 Pro笔记本上以1280 x 720的分辨率达到30 FPS以上)，具有更好的渲染质量(在Unbounded-360数据集的室内场景中比其他SOTA方法高出0.2 PSNR)，以及更小的存储空间(与现有方法相比减少了80%)
+————
+MixRT渲染工作流程概览
+
+<img src="https://img.saraba1st.com/forum/202312/21/200821lrbeabhaubssuhbb.jpg" referrerpolicy="no-referrer">
+
+<strong>104ba700-d646-4cc1-a7c4-203ab640d9d6.jpg</strong> (94.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 20:08 上传
+
+MixRT整合了三个核心组件：低质量网格、视图相关的位移映射和压缩成哈希表的NeRF模型，这种组合旨在最大程度地利用各种硬件资源，为了渲染图像像素:
+
+1.使用光栅化硬件执行网格光栅化，确定光线与网格的交点p
+2.利用纹理映射单元，使用纹理坐标访问包含球谐函数(spherical harmonics)系数和尺度的映射，计算校准点pcali
+3.最后，通过SIMD单元对pcali进行处理，从以哈希表形式存储的3D网格中检索其最近的八个顶点的嵌入，然后一个小型MLP网络将这些插值嵌入转换为最终的渲染颜色
+————
+相关效果:
+
+<img src="https://img.saraba1st.com/forum/202312/21/200831yeenjr2xfwovmu2t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-200538__01.jpg</strong> (121.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/200831jbnwnaz5yhdndmyd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-200546__01.jpg</strong> (128.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/200831nni5v5frwyroigwn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-200552__01.jpg</strong> (123.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 20:08 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1099#       发表于 2023-12-21 21:03
+
+ 本帖最后由 Machinery 于 2023-12-21 21:05 编辑 
+
+Emu2
+
+生成式多模态模型是上下文学习者
+
+项目主页:https://baaivision.github.io/emu2
+
+演示Demo:http://218.91.113.230:9002/
+
+github综合项目主页:https://github.com/baaivision/Emu
+
+hugface演示:https://huggingface.co/spaces/BAAI/Emu2
+
+hugface模型权重下载:https://huggingface.co/BAAI/Emu2
+
+当前的多模态系统很难模仿人类在上下文中轻松解决多模态任务的能力(即仅需少量演示或简单指令)，在这项工作中，展示了通过有效扩展(effective scaling-up)，可以显著增强大型多模态模型在任务无关的上下文中学习的能力(task-agnostic in-context learning capabilities)
+
+本文介绍了Emu2，一个具有370亿参数的生成式多模态模型，通过统一的自回归目标在大规模多模态序列上进行训练，Emu2展现了强大的多模态上下文学习能力，甚至能够解决需要即时推理的任务，如视觉提示和基于对象的生成(object-grounded generation)
+
+该模型在多种少样本设置下的多模态理解任务上创下了新纪录，当调整为遵循特定指令时，Emu2在具有挑战性的任务上进一步实现了SOTA水平，例如大规模多模态模型的问答基准测试和开放式主题驱动生成，这些成就表明Emu2足以作为基础模型和广泛应用于各种多模态任务的通用接口，为了促进未来的研究，代码和模型已开源
+————
+强大的多模态少样本学习者
+
+<img src="https://img.saraba1st.com/forum/202312/21/210228byo54z2llwvfwh96.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-205928.jpg</strong> (55.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:02 上传
+
+令人印象深刻的多模态全才
+
+<img src="https://img.saraba1st.com/forum/202312/21/210236ke2hhm4qqkfmqk2a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-205938.jpg</strong> (75.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:02 上传
+
+熟练的画家
+
+<img src="https://img.saraba1st.com/forum/202312/21/210241hvaa1gamesmz3kpa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-205955.jpg</strong> (42.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:02 上传
+
+多模态上下文学习
+
+<img src="https://img.saraba1st.com/forum/202312/21/210251v8jgoxbqg6jkmsjx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-210022.jpg</strong> (192.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:02 上传
+
+强大的多模态理解
+
+<img src="https://img.saraba1st.com/forum/202312/21/210303dhjnhixeneyyhxh4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-210030.jpg</strong> (322.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:03 上传
+
+从任何提示序列生成图像
+
+<img src="https://img.saraba1st.com/forum/202312/21/210309gvezc8cw441h8bpb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-210128.jpg</strong> (80.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:03 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/210315m8mst93smltm9ayt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-210140.jpg</strong> (95.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:03 上传
+
+从任何提示序列生成视频
+
+<img src="https://img.saraba1st.com/forum/202312/21/210325j50dbwn070w06e9n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231221-210200.jpg</strong> (211.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:03 上传
+
+————
+方法
+
+<img src="https://img.saraba1st.com/forum/202312/21/210337tjmxzqlkjq3xqkej.png" referrerpolicy="no-referrer">
+
+<strong>emu2_method.png</strong> (828.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 21:03 上传
+
+Emu2以预测下一个元素(predict-the-next-element)为目标进行多模态学习，多模态序列中的每张图像都会经由视觉编码器进行分词处理(tokenized)转为嵌入，然后与文本Token交错以进行自回归建模，通过回归得到的视觉嵌入将由视觉解码器解码成图像或视频，与Emu1相比，Emu2采用了更简单的框架、更好的视觉解码器，并且参数规模扩大到了370亿
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1100#       发表于 2023-12-22 01:08
+
+Repaint123
+
+通过渐进式可控2D重绘，快速高质量地将单图像生成为3D
+
+github项目仓库:https://github.com/junwuzhang19/repaint123
+
+最近，一些将单图像转换为3D的方法普遍采用了分数蒸馏采样(Score Distillation Sampling)，尽管结果令人印象深刻，但存在多个不足之处，包括多视图不一致、过饱和以及过于平滑的纹理，生成速度慢等
+
+为了解决这些不足，本文提出了Repaint123，以缓解多视角偏差、纹理退化并加快生成过程，其核心思想是结合2D扩散模型的强大图像生成能力和重绘策略的纹理对齐能力，生成具有一致性的高质量多视图图像
+
+进一步提出了重叠区域处的可见度感知的适配重绘强度(visibility-aware adaptive repainting strength)，以增强重绘过程中的生成图像质量，生成的高质量和多视图一致的图像使之可以使用简单的平均方误差(MSE)损失进行快速的3D内容生成
+
+大量实验证明，本文方法能够在2分钟内从头开始生成具有多视图一致性和精细纹理的高质量3D内容
+
+<img src="https://img.saraba1st.com/forum/202312/22/010801lasag4bd39nxfa4g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010349__01.jpg</strong> (341.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+Repaint123仅需一张图像即可在短短2分钟内生成高质量的具有详细纹理的3D内容，Repaint123在粗略阶段使用高斯泼溅技术，然后利用2D可控扩散模型和重绘策略生成视觉一致的高质量图像，这样即可通过简单的平均方误差损失快速而高质量地细化提取的网格纹理
+
+<img src="https://img.saraba1st.com/forum/202312/22/010808sfe6x81dygqip66q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010402__01.jpg</strong> (340.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+提出工作流程的动机，当前的方法采用SDS损失，导致纹理不一致且质量较差，因此想法是将可控的2D扩散模型的强大图像生成能力与重绘策略的纹理对齐能力相结合，生成高质量的多视图一致图像，重绘的图像可以使用简单的平均方误差损失快速生成3D内容
+
+<img src="https://img.saraba1st.com/forum/202312/22/010814kjj9gf9od6sju826.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010419__01.jpg</strong> (353.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+可控重绘方案，采用DDIM反演从粗略图像中生成决定性的噪声潜在，随后由深度引导几何(depth-guided geometry)、参考图像语义(reference image semantics)和注意力驱动的参考纹理(attention-driven reference texture)控制的扩散模型进行细化，时间步感知的二值化操作(timestep-aware binarization operation)将可见映射(visibility map)二值化为重叠掩码(overlap mask)，在每个去噪步骤中，选择性地对重叠区域进行重绘，从而得到高质量的细化新视图图像
+
+<img src="https://img.saraba1st.com/forum/202312/22/010820nxr2d83k8rx3r223.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010430__01.jpg</strong> (293.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+图像到3D生成工作流程，在粗略阶段，在新视图中使用SDS损失对高斯泼溅表征进行优化，在细化阶段，导出网格表征(Mesh representation)，并双向和逐步采样新视图以进行可控的渐进重绘，新视图的细化图像将与输入的新视图图像一起计算MSE损失，以实现高效的生成，红色的摄影机是用于获取可见映射的双向邻近摄影机(bidirectional neighbor cameras)
+
+<img src="https://img.saraba1st.com/forum/202312/22/010826g0xile32l2xvtdy2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010436__01.jpg</strong> (192.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+摄影机视图和细化强度的相关关系，红框内的区域是从不同视图获取的相同区域
+
+<img src="https://img.saraba1st.com/forum/202312/22/010832sa3m3kxam7m7mmqu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010453__01.jpg</strong> (358.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+图像到3D生成的定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/22/010838h0b300nmh12mw03b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010507__01.jpg</strong> (287.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+展示了定量结果，在RealFusion15和test-alpha数据集上，加粗代表所有方法中最好的结果，下划线表示基于高斯泼溅的方法中最好的结果，*表示Zero123-XL添加了网格微调阶段以进一步提高质量，文本反转(textual inversion)所需的时间用括号表示
+
+<img src="https://img.saraba1st.com/forum/202312/22/010843jxrq9hu9p009ka09.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010527__01.jpg</strong> (99.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+Test-alpha数据集的定量消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/22/010848fu8z52ymu2a8n8mn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010527__02.jpg</strong> (209.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+定性消融实验，红色框内为伪影
+
+<img src="https://img.saraba1st.com/forum/202312/22/010853s33kopp8yfo0p5o0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010539__01.jpg</strong> (79.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+在Test-alpha数据集上Repaint123中相邻视点所选角度对结果的影响
+
+<img src="https://img.saraba1st.com/forum/202312/22/010857i7qa6aqjlneariva.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-010545__01.jpg</strong> (107.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 01:08 上传
+
+当选择40°和60°作为角度间隔时，进行可视化对比，红色框显示了出现的多面问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1101#       发表于 2023-12-22 02:09
+
+StreamDiffusion
+
+实时交互生成的流程级解决方案
+
+github项目主页:https://github.com/cumulo-autumn/StreamDiffusion
+
+StreamDiffusion，一个专为交互式图像生成设计的实时扩散工作流程，现有的扩散模型在根据文本或图像提示生成图像方面表现出色，但在实时交互方面往往存在局限性，这种限制在涉及连续输入的场景中尤为明显，比如Metaverse、实时直播视频流和广播等，这些场景中高吞吐量至关重要
+
+为了解决这个问题，提出了一种新颖的方法，将原始的顺序去噪转化为批量去噪过程，Stream Batch消除了传统的等待和交互方法，实现了流畅且高吞吐量的流式处理，为了处理数据输入和模型吞吐量之间的频率差异，设计了一种新颖的输入输出队列，以并行化流式处理过程，此外，现有的扩散工作流程使用了无分类器引导(CFG)，需要额外的U-Net计算，为了减少冗余计算，提出了一种新颖的残差无分类器引导(RCFG)算法，将负条件去噪步骤(negative conditional denoising steps)的数量减少到仅为一步甚至零步，此外还引入了一种随机相似性过滤器(SSF/stochastic similarity filter)来优化功耗
+
+与顺序去噪方法相比，Stream Batch在不同的去噪级别下实现了约1.5倍的加速，所提出的RCFG的速度比传统的CFG高出了2.05倍，结合所提出的策略和现有的成熟加速工具，使得图像到图像生成在RTX4090上达到了最高91.07fps的吞吐量，比Diffusers开发的AutoPipline的吞吐量提高了59.56倍，此外，所提出的StreamDiffusion还显著降低了能耗，分别在RTX3060和RTX4090上达到了2.39倍和1.99倍的降低
+
+项目说明截图:
+
+<img src="https://img.saraba1st.com/forum/202312/22/020955vm5exxgpephpd5c9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-020743.jpg</strong> (509.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 02:09 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/020955klfsxcxxxuxaavou.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-020756.jpg</strong> (145.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 02:09 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/020955gpigx2o0b5i4bpgb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-020816.jpg</strong> (461.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 02:09 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/020955wzlzzxlh2t9nsav5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-020842.jpg</strong> (695.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 02:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1102#       发表于 2023-12-22 19:28
+
+ 本帖最后由 Machinery 于 2023-12-22 19:31 编辑 
+
+InstructVideo
+
+人类反馈的指导视频扩散模型
+
+项目主页:https://instructvideo.github.io/
+
+github模型与项目仓库:https://github.com/damo-vilab/i2vgen-xl/blob/main/doc/InstructVideo.md
+
+在视频生成方面，扩散模型已成为事实上的范式，然而，由于依赖于质量各异的大规模网络数据，这些模型往往会产生在视觉上不够吸引人，与文本提示也不一致的结果
+
+为了解决这个问题，本文提出了InstructVideo，通过奖励微调使用人类反馈来指导文本到视频扩散模型，InstructVideo有两个关键要素:
+
+1.为了减少通过完整的DDIM采样链生成视频所需的奖励微调成本，将奖励微调定义为编辑(editing)，通过利用扩散过程来破坏采样视频，InstructVideo仅需要对DDIM采样链的部分进行推理，从而降低了微调成本，同时提高了微调效率
+
+2.为了满足缺乏的专门针对人类偏好的视频奖励模型，通过重新利用已有的图像奖励模型，例如HPSv2，提出了分段视频奖励(Segmental Video Reward)，这个机制基于分段稀疏采样提供奖励信号，以及时间衰减奖励，这个方法在微调过程中缓解了时间建模的退化(degradation)
+
+大量的定性和定量实验证实了InstructVideo中使用图像奖励模型的实用性和有效性，显著提高了生成视频的视觉质量，同时并未降低泛化能力
+
+<img src="https://img.saraba1st.com/forum/202312/22/192735u0l9fwa9xwnwl75f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192326__01.jpg</strong> (176.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:27 上传
+
+InstructVideo框架概览图，为了在采样的视频文本对上进行高效微调，使用了图像奖励模型中的人类偏好
+
+<img src="https://img.saraba1st.com/forum/202312/22/192740l37r97777bvqe2pz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192340__01.jpg</strong> (398.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:27 上传
+
+InstructVideo的奖励微调框架，在微调过程中，对视频文本对进行采样，并应用扩散过程将视频损坏到噪声水平τ，随后，对DDIM采样链进行部分推理，获得人类偏好的编辑视频，通过利用SegVR和TAR，可以利用图像奖励模型对视频生成进行奖励微调，为了清晰起见，VQGAN编码器和解码器被省略，在这个例子中，通过人类偏好来编辑模糊的视频z，产生了一个突显花从的活力和结构的结果
+
+<img src="https://img.saraba1st.com/forum/202312/22/192751i4kgzfyz74oa4gma.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192355__01.jpg</strong> (897.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:27 上传
+
+InstructVideo与基本模型ModelScope T2V的对比，ModelScope T2V使用了20和50的DDIM步骤
+
+<img src="https://img.saraba1st.com/forum/202312/22/192758ojmb99l9l33buv3u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192403__01.jpg</strong> (713.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:27 上传
+
+InstructVideo与其他奖励微调方法的对比，为所有方法设置D=20
+
+<img src="https://img.saraba1st.com/forum/202312/22/192803ug71g4zj18kv8vu1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192409__01.jpg</strong> (188.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:28 上传
+
+(a)与其他奖励微调方法的对比
+(b)不同的噪声水平τ的影响，垂直虚线表示τ=0.6时的20k优化步骤
+(c)改变λtar的影响
+
+<img src="https://img.saraba1st.com/forum/202312/22/192809y69qrisy4igay78v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192421__01.jpg</strong> (836.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:28 上传
+
+InstructVideo的泛化能力与其他方法的对比，为所有方法设置D=20
+
+<img src="https://img.saraba1st.com/forum/202312/22/192813wt1azim89kta3imm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192437__01.jpg</strong> (131.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:28 上传
+
+未见的文本提示的泛化效果，†表示模型采用D=50，而其他模型采用D=20，“in-domain”表示来自评估数据的域内动物文本提示
+
+<img src="https://img.saraba1st.com/forum/202312/22/192820erhoqor8clorty88.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192437__02.jpg</strong> (71.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:28 上传
+
+用户研究结果，“Tie”表示标注者认为两个视频质量相当的情况，“Quality”和“Alignment”代表视频质量和视频文本对齐
+
+<img src="https://img.saraba1st.com/forum/202312/22/192825gquuy3387uvub7vb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192451__01.jpg</strong> (234.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:28 上传
+
+SegVR和TAR的消融实验，该视频展示了一只白色犬在公园缓步行走
+
+<img src="https://img.saraba1st.com/forum/202312/22/192831dnpr6t8p26p0033p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192500__01.jpg</strong> (319.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:28 上传
+
+微调期间生成的视频变化，展示了一只短尾犬在散步
+
+<img src="https://img.saraba1st.com/forum/202312/22/192837jjjxzbfqa334cf4s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-192500__02.jpg</strong> (81.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 19:28 上传
+
+不同的微调数据的效果，彩色水平虚线表示不同的微调数据的奖励分数，与相应曲线的颜色匹配
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1103#       发表于 2023-12-22 21:21
+
+AppAgent
+
+作为智能手机用户的多模态代理
+
+项目主页:https://appagent-official.github.io/
+
+github项目仓库:https://github.com/mnotgod96/AppAgent
+
+最近大型语言模型(LLM)的最新进展使得我们可以创建出能够执行复杂任务的智能代理者，本文介绍了一种新颖的基于LLM的多模态代理框架，旨在操作智能手机应用程序，框架通过简化的操作空间使代理者能够操作智能手机应用程序，模拟人类的点击和滑动等类人交互方式
+
+这种新颖的方法绕过了对系统后端访问的需求，从而增加了其适用性，可以应用于各种不同的应用程序，代理者的核心功能是其创新的学习方法，代理者通过自主探索或观察人类演示学习导航和使用新的应用程序，在这个过程中生成了一个知识库(knowledge base)，使之能够在解决在不同应用程序上的不同复杂任务时进行参考
+
+为了证明本文代理者的实用性，在10个不同的应用程序中进行了50个任务的广泛测试，包括社交媒体、电子邮件、地图、购物和复杂的图像编辑工具，结果证实了代理者在处理多样化的高水平任务方面的熟练程度
+
+<img src="https://img.saraba1st.com/forum/202312/22/212050dah3xnhuk9otmn59.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-211754__01.jpg</strong> (365.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 21:20 上传
+
+多模态代理框架在智能手机应用程序操作中的多种应用方法，在10个不同的应用程序中评估了代理者模型在50个任务上的有效性，突出了它在真实环境中的适应能力和有效性
+
+<img src="https://img.saraba1st.com/forum/202312/22/212059vcv081ucdowfv1b4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-211812__01.jpg</strong> (328.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 21:20 上传
+
+设计的多模态代理框架用于操作智能手机应用程序的概览图，该图展示了框架的两阶段方法，在探索阶段，代理者与智能手机应用程序进行交互，并从结果中学习，用以创造一个全面的参考文档，在部署阶段，代理者利用编制的这个文档中的信息来有效地操作和导航应用程序
+
+<img src="https://img.saraba1st.com/forum/202312/22/212105zy0xy6llbmvpm08z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-211834__01.jpg</strong> (472.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/212105wxsl1ztjl8jfmzfg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-211845__01.jpg</strong> (287.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 21:21 上传
+
+三个应用的定性任务评估，该图展示了在Google地图、Gmail和Lightroom上进行的三个不同任务的定性结果，同时展示了AppAgent在准确感知、推理和执行任务方面的能力，证明了在各种应用场景中的能力，由于空间限制，描述中省略了一些不太重要的细节
+—
+
+<img src="https://img.saraba1st.com/forum/202312/22/212110xh9ww4d7h5ee75e5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-211850__01.jpg</strong> (138.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 21:21 上传
+
+评估AppAgent设计选择中的性能表现，该表对AppAgent的不同设计要素进行了对比，其中关键发现包括:自定义开发的操作空间在效率上超过了原始的操作空间；探索阶段，结合自主互动和观察人类示范，显著提高了代理者的性能；自动生成的文档与手工制作的文档产生的结果相当
+
+<img src="https://img.saraba1st.com/forum/202312/22/212116og02cjh8mbcu8szh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222-211850__02.jpg</strong> (94.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 21:21 上传
+
+使用Lightroom应用进行图像编辑任务的案例研究，进行了用户研究，对不同方法的图像编辑结果进行排序，本文代理者比GPT-4基线产生了更好的结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1104#       发表于 2023-12-23 02:41
+
+ 本帖最后由 Machinery 于 2023-12-23 02:42 编辑 
+
+lm-weights-encode-time
+
+将时间编码在微调语言模型的权重中
+
+github项目主页:https://github.com/KaiNylund/lm-weights-encode-time
+
+本文提出了时间向量，一种使语言模型适应新时间段(new time periods)的简单工具，时间向量是通过在一段时间内(例如一年或一个月)的数据上微调预训练语言模型，并减去原始预训练模型的权重而创建的
+
+这个向量在权重空间中指定了一个方向，正如本文实验所显示的那样，它可以改善该时间段的文本性能，专门用于邻近时间段的时间向量似乎在流形(manifold)中更接近，利用这种结构，可以在时间向量之间进行插值，从而创建在介入时以及未来时间段上表现更好的新模型，而无需进行额外的训练
+
+在不同任务、领域、模型大小和时间尺度上展示了发现的一致性，结果表明，时间可以被编码在微调模型的权重空间中
+
+<img src="https://img.saraba1st.com/forum/202312/23/023907pmzm8z0ps35fr0a1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-023430__01.jpg</strong> (133.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:39 上传
+
+提出了时间向量(τi)，这是一种简单的工具，可以将语言模型定制到新的时间段(i)，时间向量在权重空间中指定了一个方向，可以提高时间段的文本上的性能，它们是通过从预训练的权重(θpre)中减去针对目标时间段微调的权重(θi)来计算的
+
+通过在时间向量之间进行插值并将结果添加到预训练模型中(中间图)，可以将模型行为定制到新的时间段(例如中间的几个月或几年)，还可以通过类推算法(analogy arithmetic)将模型推广到未来的时间段(j)，这涉及将任务特定的时间向量与从微调的语言模型(τLMj)中得到的类推时间向量相结合
+
+<img src="https://img.saraba1st.com/forum/202312/23/023914i9b9a6ldsbl0mg0h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-023508__01.jpg</strong> (271.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:39 上传
+
+模型性能呈逐年线性下降趋势，评估了语言模型困惑度(WMT)，ROUGE-L(新闻摘要)和macro F1(政策倾向分类)，每个单元格表示T5-3B在该任务的一年中进行微调和评估的月度性能，报告了每年相对于平均性能的百分比差异，并发现无论是何任务，随着微调和评估年份的错位，性能呈线性退化趋势，在T5-small和medium中发现了类似的趋势
+
+<img src="https://img.saraba1st.com/forum/202312/23/023918iohkfnx7k02vc05j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-023523__01.jpg</strong> (151.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:39 上传
+
+月度时间退化具有季节模式，每个单元格都表示了对T5-small微调并在WMT数据集的其中一个月上进行评估的月度性能，报告了相对于所有微调的T5-small模型在评估月份上的平均测试困惑度的百分比差异(较暗表示较好)，对角线表示每个模型在其微调月份上表现最好，模型在其他年份的同一月份上也相对较好，可以从每12个月从对角线辐射出的条纹可见
+
+<img src="https://img.saraba1st.com/forum/202312/23/023923aywjn5rc2nh5dhaz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-023537__01.jpg</strong> (51.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:39 上传
+
+时间向量在流形中的组织反应了随时间变化的情形，每个点都是在单个WMT月份上微调的T5-small时间向量的最后前馈层的UMAP投影，相邻月份之间的点和边按年份着色，时间向量权重之间的距离与时间错位相关
+
+<img src="https://img.saraba1st.com/forum/202312/23/023931yttqat8inzadhwnz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-023550__01.jpg</strong> (72.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:39 上传
+
+与时间向量相关的时间退化之间的相似性
+
+年度时间向量的余弦相似度与每个评估时间段内所有年度模型平均性能的退化%之间的皮尔逊相关系数(Pearson correlation)
+
+所有p值均＜8×10^-4
+
+<img src="https://img.saraba1st.com/forum/202312/23/024239zvexxvg7nnw06m0h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-024221.jpg</strong> (88.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:42 上传
+
+起始年份和结束年份之间的插值减少了微调模型中间年份的时间错位，T5-3b在起始年份和结束年份之间的每年平均表现(不包括起始和结束年份)，“Best interpolations”使用每年最佳的α值
+
+<img src="https://img.saraba1st.com/forum/202312/23/024108pu2g8ur8rbookjjk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-023649__01.jpg</strong> (262.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:41 上传
+
+在两个年份向量之间进行插值可以提高它们之间年份的性能，这些性能改进遵循直观的结构，例如，在2012年和2016年之间进行插值时，在2013年出现最佳结果相比2012年发生百分比更高，2015年则反之亦然，插值导致的改进在不同设置下有所不同
+
+<img src="https://img.saraba1st.com/forum/202312/23/024054vt4cg1ti0wxnbwcg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-023658__01.jpg</strong> (405.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:40 上传
+
+在两个月向量之间进行插值可以提高它们之间月份的性能，在1月和12月的月份向量之间进行插值，并在微调的同一年的所有其他月份进行评估，与年度尺度一样，早期的月份在使用更高比例的1月模型时效果更好，反之亦然，而中间的月份在两个模型之间以50%的比例表现最佳，上图中的星星对应于每个评估月份中表现最好的插值结果；这些最佳结果在下面的线图中得到了体现
+
+<img src="https://img.saraba1st.com/forum/202312/23/024036gm62ly28fllb9s8o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-024017.jpg</strong> (136.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 02:40 上传
+
+任务类推可以在没有目标时间的标记数据的情况下抵消下游时间错位，报告了使用WMT LM和Twitter LM向量更新的NewsSum和PoliAff T5模型在每个目标评估时间上的性能，还报告了对于所有模型尺寸的最佳更新模型相对于2012年NewsSum和2015年PoliAff模型在每个目标时间上的性能改进百分比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1105#       发表于 2023-12-23 04:03
+
+Paint3D
+
+使用无光照纹理扩散模型(Lighting-Less Texture Diffusion Models)绘制任何3D
+
+github项目主页:https://github.com/OpenTexture/Paint3D
+
+Paint3D，一种新颖的从粗到细(coarse-to-fine)的生成框架，能够在给定文本或图像输入的情况下为无纹理的3D网格生成高分辨率、无光照和多样化的2K UV纹理映射
+
+本文方法的关键挑战是在不嵌入光照信息的情况下生成高质量的纹理，使得纹理可以在现代图形工作流程中重新照明或编辑，为了实现这一目标，本文方法首先利用预训练的深度感知2D扩散模型(pre-trained depth-aware 2D diffusion model)生成视图条件图像(view-conditional images)，并进行多视图纹理融合(multi-view texture fusion)，以生成初始的粗略纹理映射(initial coarse texture map)
+
+然而，由于2D模型无法完全表示3D形状并禁用了光照效果，粗糙纹理映射会出现不完整的区域(incomplete areas)和光照伪影(illumination artifacts)，为了解决这个问题，分别训练了UV重绘(UV Inpainting)和UVHD扩散模型(UVHD diffusion models)专门用于形状感知的细化不完整区域和去除光照伪影，通过这个从粗到细的过程，Paint3D可以生成高质量的2K UV纹理，保持语义一致性，同时无需光照，显著推动了纹理化3D对象的SOTA水平
+
+<img src="https://img.saraba1st.com/forum/202312/23/040209df0mj75wodzjd08o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035704__01.jpg</strong> (608.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:02 上传
+
+Paint3D生成的纹理结果画廊，本文方法能够在跨越各种类别的不同物体上生成无光照的高质量、高保真的纹理
+
+<img src="https://img.saraba1st.com/forum/202312/23/040216ed1m1h4d7dzmghyy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035720__01.jpg</strong> (123.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:02 上传
+
+预照明问题的示意图，具有自由照明的纹理映射与传统渲染流程兼容，而在预照明纹理上应用重新照明时会出现不适当的阴影
+
+<img src="https://img.saraba1st.com/forum/202312/23/040225sjdrng6osrnnjg16.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035743__01.jpg</strong> (491.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:02 上传
+
+从粗到细的框架概览图，粗略阶段从预训练的2D图像扩散模型中采样多视图图像，然后将这些图像反投影到网格表面上，创建初始纹理映射，细化阶段在UV空间中依照位置映射和粗略纹理映射条件使用扩散模型生成高质量纹理
+
+<img src="https://img.saraba1st.com/forum/202312/23/040232v9ej4v9v6jbjvjlz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035805__01.jpg</strong> (603.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:02 上传
+
+基于文本提示的条件纹理生成定性对比，将本文的纹理网格与Latent-Paint、TEXTure和Text2Tex进行了对比，与基线相比，本文方法生成了自由光照的纹理映射，以及更精美的纹理细节
+
+<img src="https://img.saraba1st.com/forum/202312/23/040239sti6ikl22lwbbbkb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035819__01.jpg</strong> (67.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:02 上传
+
+文本到纹理任务的定量对比，本文方法在FID和KID方面均优于其他方法
+
+<img src="https://img.saraba1st.com/forum/202312/23/040245f40ivzqs03e3u4wq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035828__01.jpg</strong> (258.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:02 上传
+
+以图像提示为条件的纹理生成的定性对比，与TEXTure相比，本文方法可以更好地表示图像条件中包含的纹理细节
+
+<img src="https://img.saraba1st.com/forum/202312/23/040251vpxhgxxmmpmhxm4y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035828__02.jpg</strong> (49.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:02 上传
+
+图像到纹理任务的定量对比，本文方法在基线上取得了更显著的改进
+
+<img src="https://img.saraba1st.com/forum/202312/23/040256i98qwugdw3829dlz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035834__01.jpg</strong> (68.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:02 上传
+
+Paint3D框架中模块的评估，展示了每个组件的有效性，包括粗略阶段、UV重绘和UVHD，通过在粗略阶段整合生成先验和在细化阶段整合无光照先验，本文的完整方法实现了最佳结果
+
+<img src="https://img.saraba1st.com/forum/202312/23/040303lebj986tc6ejz3e7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-040040.jpg</strong> (119.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:03 上传
+
+粗略阶段效果的图示，粗略阶段的缺失可能会导致纹理中的语义混乱
+
+<img src="https://img.saraba1st.com/forum/202312/23/040309qxv8b0wbfv8i2pf3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035834__02.jpg</strong> (130.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:03 上传
+
+细化阶段效果的可视化，通过细化阶段，生成的纹理是光照自由的
+
+<img src="https://img.saraba1st.com/forum/202312/23/040315xcvfoolbyb7bdb2v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035846__01.jpg</strong> (146.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:03 上传
+
+UV重绘效果的示意图，UV重绘可以有效地填补位于投影盲点(例如褶皱裙子的内侧)的纹理空洞
+
+<img src="https://img.saraba1st.com/forum/202312/23/040320fj8rr40i4eyarbjy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035846__02.jpg</strong> (127.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:03 上传
+
+UVHD模块的效果图，展示了UVHD增强现有纹理细节的能力，甚至可以在单色区域生成新纹理
+
+<img src="https://img.saraba1st.com/forum/202312/23/040324qi022znznikyz0cq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-035851__01.jpg</strong> (66.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 04:03 上传
+
+粗略阶段视点数量的评估，视点数量并不是越多越好，因为预训练的2D图像扩散模型可能会产生光照伪影
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1106#       发表于 2023-12-23 19:31
+
+HD-Painter
+
+使用扩散模型进行高分辨率且快速可信的文本引导图像重绘
+
+github项目主页:https://github.com/Picsart-AI-Research/HD-Painter
+
+最近的研究在文本引导的图像重绘方面取得了显著进展，基于文本到图像扩散模型的空前成功，实现了异常逼真和视觉上合理的结果，然而，当前的文本到图像重绘模型仍然有很大的潜在改进空间，特别是在更好地与用户提示对齐和进行高分辨率重绘方面
+
+因此，在本文中，介绍了HD-Painter，一种完全无需训练的方法，可以准确地遵循提示并一致地扩展到高分辨率图像重绘，为此设计了提示注意的内在注意力层(PAIntA/Prompt-Aware Introverted Attention layer)，通过提示信息增强自注意力得分，从而产生更好的文本对齐生成结果
+
+为了进一步提高提示一致性，还引入了重调制权重的注意力分数引导(RASG/Reweighting Attention Score Guidance)机制，将事后比较采样策略(post-hoc sampling strategy)无缝整合到DDIM的通常形式中，以防止分布之外的潜在偏移，此外，HD-Painter还通过引入一种针对重绘的专用超分辨率技术，实现了更大尺度的扩展，可以完成高达2K分辨率的图像中缺失区域的重绘
+
+实验证明，HD-Painter在定性和定量方面都超过了现有的SOTA方法，生成准确度改进达到了61.4％ vs 51.9％(之前的方法)
+
+github项目说明页截图:
+
+<img src="https://img.saraba1st.com/forum/202312/23/193050bg4icxlz9sasa333.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-192951.jpg</strong> (422.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 19:30 上传
+
+<img src="https://img.saraba1st.com/forum/202312/23/193051e1zgg71ffkz3n0km.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231223-193002.jpg</strong> (755.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 19:30 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1107#       发表于 2023-12-24 02:53
+
+ 本帖最后由 Machinery 于 2023-12-24 02:55 编辑 
+
+PIA
+
+通过文本到图像模型中的插件模块实现您的个性化图像动画器
+
+项目主页:https://pi-animator.github.io/
+
+github项目仓库:https://github.com/open-mmlab/PIA
+
+演示Demo:https://openxlab.org.cn/apps/detail/zhangyiming/PiaPia/
+
+b站视频:https://www.bilibili.com/video/BV12a4y1z7V8
+
+最近的个性化文本到图像(T2I)模型取得了相当大的进展，彻底改变了内容创作的方式，使非专业用户也能够生成具有独特风格的惊人图像，虽然前景良好，但是通过文本将逼真的动作添加到这些个性化图像中，在保留独特风格、高保真细节和实现文本动作控制方面面临着重大挑战
+
+在本文中，提出了PIA，一种个性化图像动画化生成器，它在与条件图像对齐、通过文本实现动作控制以及在没有微调的情况下与各种个性化T2I模型的兼容性方面表现出色
+
+为了实现这些目标，PIA基于一个经过训练有素的基础T2I模型，通过时间对齐层(temporal alignment layers)，可以将任何个性化T2I模型无缝转换为图像动画化模型，PIA的其中一个关键组成部件，条件模块，该模块利用条件帧和帧间相似性(affinity)作为输入，在潜在空间中根据相似性提示(affinity hints)传递外观信息，用于单帧合成，这种设计缓解了与外观相关的图像对齐的挑战，同时允许更加关注与运动相关的指导保持对齐
+
+<img src="https://img.saraba1st.com/forum/202312/24/025220obe7zwtieig4t495.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024728__01.jpg</strong> (553.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:52 上传
+
+给定个性化文本到图像模型生成的详细图像，本文提案的个性化图像动画器(PIA/Personalized Image Animator)根据不同的文本提示以逼真的动作进行动画化，同时保留原本的独特风格和高保真细节
+
+<img src="https://img.saraba1st.com/forum/202312/24/025226bhyg48hmsz38sh3a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024745__01.jpg</strong> (348.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:52 上传
+
+个性化图像动画器，如(a)所示，PIA由文本到图像模型、经过训练的时间对齐层和负责编码条件图像以及帧间近似的新条件模块(new condition module)组成，具体来说，T2I模型由U-Net块组成，如(b)所示，包括一个Resblock，一个自注意力层和一个交叉注意力层，在训练过程中，条件模块学习利用近似提示(affinity hints)，从条件图像中利用外观信息，促进图像对齐并更加强调与运动相关的对齐
+
+<img src="https://img.saraba1st.com/forum/202312/24/025231wqmcfim2ffzpkf00.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024759__01.jpg</strong> (155.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:52 上传
+
+条件模块的示意图，传统的个性化T2V模型(a)需要同时对齐单帧的外观和运动，带有CM的PIA模型(b)可以借用条件图像的外观信息和近似提示，从而减轻同时对齐外观和运动的挑战，使用颜色和条纹分别表示外观和运动
+
+<img src="https://img.saraba1st.com/forum/202312/24/025237ezbaootbba4j40aj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024806__01.jpg</strong> (95.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:52 上传
+
+AnimateBench的示例，AnimateBench中的图像是通过一组收集的个性化文本到图像模型精心制作而成的，每张图像都有三个精心设计的提示，描述了图像可能在一个短片段内可能发生的动作
+
+<img src="https://img.saraba1st.com/forum/202312/24/025243lm9me0jo6q7emzoo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024819__01.jpg</strong> (660.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:52 上传
+
+<img src="https://img.saraba1st.com/forum/202312/24/025247uv2uvv9v8hb92qch.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024833__01.jpg</strong> (542.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:52 上传
+
+与SOTA方法进行的定性对比，与其他方法相比，PIA展现出了出色的运动可控性和强大的图像对齐能力，具体而言，在第一个用例中，PIA为玩具熊(脚步)生成了“行走”动作，而其他方法只能维持静态帧，显示出运动可控性不足，在第二个用例中，PIA添加了一个新的元素，即火焰，具有逼真的运动效果
+
+<img src="https://img.saraba1st.com/forum/202312/24/025253wl09t4b40iq4qllx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024858__01.jpg</strong> (92.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:52 上传
+
+AnimateBench的定量对比
+
+<img src="https://img.saraba1st.com/forum/202312/24/025257xazj797hr4bdcer5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024910__01.jpg</strong> (333.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:52 上传
+
+文本提示下的运动控制，PIA能够有效地捕捉到文本提示中与运动相关的指导，并在结果中添加逼真的相关运动
+
+<img src="https://img.saraba1st.com/forum/202312/24/025302ngyu35hz4zvxq64s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024910__02.jpg</strong> (269.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:53 上传
+
+运动幅度可控性，PIA能够让用户通过设置输入的近似信息为不同的值，调整运动的幅度，轻微、中等或大幅度
+
+<img src="https://img.saraba1st.com/forum/202312/24/025307xgevtetnjewvpexe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024920__01.jpg</strong> (163.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:53 上传
+
+风格转换，PIA能够通过将个性化的文本到图像模型应用于给定的图像，实现生成视频中的风格转换
+
+<img src="https://img.saraba1st.com/forum/202312/24/025312pebbpepzphugppw6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024931__01.jpg</strong> (125.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:53 上传
+
+帧近似的有效性，借助帧近似，PIA能够生成具有更强图像对齐的视频
+
+<img src="https://img.saraba1st.com/forum/202312/24/025318wxqtz2p24r24xvp7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231224-024931__02.jpg</strong> (124.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 02:53 上传
+
+局限性，当输入图像远离训练数据集域时，PIA很容易生成色彩发生显著变化的视频
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1108#       发表于 2023-12-26 04:19
+
+BrainVis
+
+通过图像重建探索大脑与视觉信号之间的通路
+
+ 项目主页:https://brainvis-projectpage.github.io/
+
+github项目仓库:https://github.com/RomGai/BrainVis
+
+分析和重建脑信号中的视觉刺激能够有效推进对人类视觉系统的理解，然而，脑电图信号(EEG signals)是复杂的，包含大量噪音，这导致现有的从脑电图中重建视觉刺激的研究存在重大局限，例如难以将脑电图嵌入与细粒度语义信息对齐，以及严重依赖额外的大型自采集数据集以用于训练
+
+为了应对这些挑战，本文提出了一种新颖的方法，称为BrainVis，首先，将脑电图信号分成各种单元(various units)，并应用自监督方法(self-supervised approach)，以获取脑电图的时域特征(EEG time-domain features)，减轻训练的困难度
+
+此外，还提出了利用频域特征(frequency-domain features)增强脑电图表征(EEG representations)，随后，在CLIP空间中将脑电图的时频嵌入与粗粒度和细粒度语义的插值同时对齐，以突出主要的视觉组成部分(primary visual components)并减少跨模态对齐的难度，最后，采用级联扩散模型(cascaded diffusion models)来重建图像
+
+BrainVis在语义保真重建和生成质量方面优于现有的SOTA水平，另外值得注意的是，本文方法还将训练数据的需求量减小到先前工作的10%
+————
+框架
+
+<img src="https://img.saraba1st.com/forum/202312/26/041902lxbpkgnn3ox7xgbg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-041805.jpg</strong> (105.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 04:19 上传
+
+首先，获取给定的脑电信号的时间和频率特征，其中时间编码器利用自监督预训练方法，采用掩码分割(masking segmentation)和潜在重构(latent reconstruction)来获取特征，而频率编码器则利用LSTM与快速傅里叶变换(FFT/Fast Fourier Transform)来提取特征
+
+然后时间和频率编码器与脑电分类器(EEG classifier)同时进行微调，以获取时间-频率双嵌入(time-frequency dual embedding)，接下来，一个对齐网络将脑电时间-频率双嵌入与CLIP空间中的来自于视觉刺激图像的细粒度语义进行对齐(视觉刺激图像标签和其字幕说明的语义插值)
+
+最后，对齐的脑电细粒度嵌入，以及分类结果的粗粒度嵌入，作为级联扩散模型的条件，以用于多级语义视觉重建(multi-level semantic visual reconstruction)
+————
+结果
+
+以下是视觉刺激重建结果(部分)和基准答案图像(ground truth)，本文方法不仅能够正确地重建类型，而且在一定程度上能够捕捉到其细粒度的语义信息，例如显著的数字、颜色、环境或行为特征
+
+<img src="https://img.saraba1st.com/forum/202312/26/041915rwtz33j3wt3l6yyd.jpg" referrerpolicy="no-referrer">
+
+<strong>ce0f00e7-a5b0-4a7d-b94c-02b53d378daa.jpg</strong> (290.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 04:19 上传
+
+下面是本文方法和之前的工作之间重建的图像质量对比
+
+<img src="https://img.saraba1st.com/forum/202312/26/041921u9xkf898zvwqviep.jpg" referrerpolicy="no-referrer">
+
+<strong>pic4.jpg</strong> (820.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 04:19 上传
+
+下面是重建图像与先前工作在同一GT图像上的对比
+
+<img src="https://img.saraba1st.com/forum/202312/26/041933n7araaaawnjjnwi1.jpg" referrerpolicy="no-referrer">
+
+<strong>pic5.jpg</strong> (667.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 04:19 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1109#       发表于 2023-12-26 04:33
+
+ 本帖最后由 Machinery 于 2023-12-26 04:38 编辑 
+
+YAYI2-30B
+
+YAYI 2是中科闻歌研发的新一代开源大型语言模型系列
+
+相关论文:https://arxiv.org/abs/2312.14862
+
+相关博客:https://www.wenge.com/content/details_53_4626.html
+
+github项目仓库:https://github.com/wenge-research/YAYI2
+
+hugface模型权重下载:https://huggingface.co/wenge-research/yayi2-30b
+
+YAYI 2是中科闻歌研发的开源大语言模型，包括Base和Chat版本，参数规模为30B，YAYI2-30B是基于Transformer的大语言模型，采用了2.65万亿Tokens的高质量、多语言语料进行预训练，针对通用和特定领域的应用场景，采用了百万级指令进行微调，同时借助人类反馈强化学习方法，以更好地使模型与人类价值观对齐，本次开源的模型为YAYI2-30B Base模型
+
+相关说明截图:
+
+<img src="https://img.saraba1st.com/forum/202312/26/043305mahm86smu8kk06mm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-043153.jpg</strong> (199.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 04:33 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/043305fkgkb3m1ps1z9koq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-043205.jpg</strong> (317.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 04:33 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/043305bgtzghexnx3ghkih.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-043226.jpg</strong> (58.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 04:33 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/043305jd1efeqrtqe8fjjt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-043236.jpg</strong> (287.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 04:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1110#       发表于 2023-12-26 05:21
+
+meta-prompts
+
+使用元提示(Meta Prompts)驾驭扩散模型解决视觉感知(Visual Perception)任务
+
+github项目主页:https://github.com/fudan-zvg/meta-prompts
+
+视觉模型的生成式预训练问题一直是一个长期存在的难题，目前，文本到图像(T2I)扩散模型展示了在生成与文本输入相匹配的高清晰度图像方面的非凡能力，这一成就得益于它在大规模图像-文本对上进行的预训练
+
+这引发了一个自然的问题:扩散模型能否用于解决视觉感知任务？在本文中，提出了一个简单而有效的方案，利用扩散模型进行视觉感知任务
+
+其中一个关键洞察是引入可学习的嵌入(learnable embeddings/meta-prompts)到预训练的扩散模型中，以提取适合感知任务的特征，元提示的效果有两个方面，首先，作为T2I模型中文本嵌入的直接替代，它可以在特征提取过程中激活与任务相关的特征，其次，它将被用于重新排列提取的特征，以确保模型专注于任务中最相关的特征
+
+此外，还设计了一种循环细化训练策略(recurrent refinement training strategy)，充分利用了扩散模型的特性，从而产生更强大的视觉特征
+
+对各种基准测试的大量实验证明了本文方法的有效性，其中，在NYU depth V2和KITTI的深度估计任务以及CityScapes的语义分割任务上实现了新记录，同时，所提出的方法在ADE20K的语义分割和COCO数据集的姿态估计方面取得了与SOTA方法可竞争的性能，进一步证明了其稳健性和多功能性
+
+<img src="https://img.saraba1st.com/forum/202312/26/052106q3w74ei7g1647ll7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-051718.jpg</strong> (145.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:21 上传
+
+不同提示方法的对比，本文提出的元提示具有简洁的工作流程，不需要额外的标签或预训练模型，并且能够自适应地学习当前感知任务所需的关注区域，以生成相应的激活
+
+<img src="https://img.saraba1st.com/forum/202312/26/052128n3ouoioq847thy04.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-051748__01.jpg</strong> (153.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:21 上传
+
+左侧为总体工作流程，VQVAE编码器Eψ将输入图像编码为潜在空间Z0，Z0的分辨率是原始分辨率的1/8，在t个步骤中对图像特征进行细化，在不同的细化步骤中，去噪UNet共享相同的参数，符号⊙表示点积(点积)
+
+右侧为通过提示引导的特征重排，以一个尺度的特征图为例
+
+<img src="https://img.saraba1st.com/forum/202312/26/052134g78qqzk0da94oj7o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-051833.jpg</strong> (166.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:21 上传
+
+Cityscapes验证集和测试集的结果，*City表示CityScapes数据集，Mapi表示Mapillary Vistas数据集
+
+<img src="https://img.saraba1st.com/forum/202312/26/052138djulc3jrul3qz7e7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-051850.jpg</strong> (142.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:21 上传
+
+ADE20K验证集的结果
+
+<img src="https://img.saraba1st.com/forum/202312/26/052143yw10prkoee0apvep.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-051911.jpg</strong> (153.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:21 上传
+
+在NYU depth V2和KITTI Eigen分割数据集上进行的深度估计结果，RMSE代表均方根误差(root mean square error)，REL代表绝对相对误差(absolute relative error)，准确度指标为(δi&lt;1.25i，其中i∈1, 2, 3)
+
+<img src="https://img.saraba1st.com/forum/202312/26/052154zcmwcgfuv4ge4fi3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-051925.jpg</strong> (140.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:21 上传
+
+MS-COCO验证集的结果
+
+<img src="https://img.saraba1st.com/forum/202312/26/052202rzcttr3rkt2cm7op.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-051938__01.jpg</strong> (340.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:22 上传
+
+CityScapes语义分割数据集和NYU Deep V2深度估计数据集的消融实验，报告了交并比平均值(mIoU/mean of intersection over union)和均方根误差(RMSE/root mean square error)，默认设置以灰色标记
+
+<img src="https://img.saraba1st.com/forum/202312/26/052207rq9xas8hv1a68kzs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-051947.jpg</strong> (214.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:22 上传
+
+第一行:语义分割任务中同一图像上不同提示的热图(Heatmaps)，第二行:深度估计任务的不同图像上相同提示的热图
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1111#       发表于 2023-12-26 05:45
+
+Aurora
+
+通过指令调整(Instruction-Tuning)激活Mistral-8x7B稀疏专家混合(Mixture-of-Experts)的中文聊天能力(Chinese chat capability)
+
+项目主页:https://github.com/WangRongsheng/Aurora
+
+现有研究证明，通过利用机器生成的指令跟随数据可以对大型语言模型(LLMs)进行细化，使得这些模型能够展示出令人印象深刻的零样本能力，而无需人工编写指令
+
+在本文中，系统地研究、预处理和整合了三个中文指令跟随数据集以提升Mixtral-8x7B稀疏专家混合模型的中文对话能力，通过在经过精心处理的数据集上进行指令微调，成功构建了新的Mixtral-8x7B稀疏专家混合模型，命名为“Aurora”
+
+为了评估Aurora的性能，使用了三个广泛认可的基准测试:C-Eval、MMLU和CMMLU，实证研究验证了将指令微调应用于Mixtral-8x7B稀疏专家混合模型的有效性，这项工作在对稀疏专家混合模型执行指令微调方面具有开创性，标志着提升该模型架构能力的重大突破
+
+相关模型说明页:
+
+<img src="https://img.saraba1st.com/forum/202312/26/054519sesqkkibq0l0lzim.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-054210.jpg</strong> (343.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:45 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/054519h2s0f48xfprvopix.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-054226.jpg</strong> (273.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:45 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/054519uxz3sx22hff9y4y6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-054257.jpg</strong> (99.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:45 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/054519sz813h3cziehzqh3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-054314.jpg</strong> (476.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:45 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/054519pl24sysu8822u882.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-054322.jpg</strong> (546.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:45 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/054519w8knrxwbtmb98a9r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-054335.jpg</strong> (566.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:45 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/054519ahydymaqqmkktvky.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-054347.jpg</strong> (227.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 05:45 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1112#       发表于 2023-12-26 06:03
+
+InternVL
+
+拓展视觉基础模型并对齐通用视觉语言任务
+
+相关论文:https://arxiv.org/abs/2312.14238
+
+github项目主页:https://github.com/OpenGVLab/InternVL
+
+大语言模型(LLMs)的指数增长为多模态AGI系统开辟了许多可能性，然而，视觉和视觉语言基础模型的进展，并没有跟上LLMs的步伐，而这些模型也是多模态AGI的关键要素之一
+
+在这项工作中，设计了一个大规模的视觉语言基础模型(InternVL)，将视觉基础模型的参数规模扩大到60亿，并逐步与大型语言模型进行对齐，使用来自各种来源的网络大规模图像文本数据，该模型可以广泛应用并达成SOTA级视觉感知任务(如图像级别或像素级别识别)、视觉语言任务(如零样本图像/视频分类、零样本图像/视频-文本检索)以及链接到LLMs中，从而创建多模态对话系统
+
+希望本文的研究能为多模态大模型的发展做出贡献
+
+相关项目说明页截图:
+
+<img src="https://img.saraba1st.com/forum/202312/26/060340smyt4kmjzjbukeya.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-060231.jpg</strong> (297.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 06:03 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1113#       发表于 2023-12-26 07:55
+
+ 本帖最后由 Machinery 于 2023-12-26 07:57 编辑 
+
+ZeroShape
+
+基于回归(Regression-based)的零样本形状重建(Zero-shot Shape Reconstruction)
+
+项目主页:https://zixuanh.com/projects/zeroshape.html
+
+github项目主页:https://github.com/zxhuang1698/ZeroShape
+
+本文专注于研究单图像零样本3D形状重建的问题，最近的研究工作通过3D资产的生成式建模学习零样本形状重建，但这些模型在训练和推理时计算成本高昂，相比之下，传统方法解决这个问题是基于回归的，即训练确定性模型(deterministic models)直接回归物体形状(directly regress the object shape)，这种回归方法比生成方法具有更高的计算效率
+
+这引发了一个自然的问题:对于高性能，生成式建模是否是必须的，或者相反，基于回归的方法仍然具备竞争力？为了回答这个问题，设计了一种强大的基于回归的模型，称为ZeroShape
+
+基于该领域的集中(converging)发现以及新颖的见解，还策划构造了一个大型的真实世界评估基准测试，其中包含来自三个不同真实世界3D数据集的对象，这个评估基准比之前的研究使用的量化评估模型更加多样化和数量级更大，旨在减少领域的评估方差，展示了ZeroShape不仅在性能上超越了SOTA方法，而且在计算和数据效率上也表现出显著优势
+
+<img src="https://img.saraba1st.com/forum/202312/26/075434ceguifzfzpfi77g1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-075030__01.jpg</strong> (92.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 07:54 上传
+
+在零样本3D形状重建方面表现优于现有方法，同时推理时间更快且所需训练数据更少，圆的大小表示用于训练的3D资产数量，最大的圆代表320万，阈值0.05的F-Score是基于Octroc3D、Pix3D、OmniObject3D的平均值
+
+<img src="https://img.saraba1st.com/forum/202312/26/075443p8zifnxqqxqxih8i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-075049__01.jpg</strong> (284.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 07:54 上传
+
+根据真实自然场景图像进行ZeroShape重建，本文方法从一组不同对象上的单视图图像生成了详细而准确的对象重建
+
+<img src="https://img.saraba1st.com/forum/202312/26/075448pvhfowgg6uvz0wta.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-075104__01.jpg</strong> (199.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 07:54 上传
+
+模型的概览图，由三个模块组成:深度和摄影机估计器(depth and camera estimator)、几何反投影单元(geometric unprojection unit)和投影引导形状重建器(projection-guided shape reconstructor)
+
+深度和摄影机估计器使用DPT骨干从输入图像中预测深度和摄影机内参(intrinsics)，几何反投影单元将深度和内参估计转换为规范的3D可见表面，并通过三通道投影映射(three-channel projection map)进行参数化，形状重建器最终通过跨注意力机制从投影映射中提取局部信息，重建完整的占用场(full occupancy field)
+
+<img src="https://img.saraba1st.com/forum/202312/26/075453mx80mamx90mxe99p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-075127__01.jpg</strong> (111.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 07:54 上传
+
+内参的影响，将精确的深度图反投影到具有错误内参的3D表面会导致具有错误3D纵横比的倾斜形状
+
+<img src="https://img.saraba1st.com/forum/202312/26/075506wjsjf77sytt1tm79.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-075139__01.jpg</strong> (296.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 07:55 上传
+
+定性结果，将ZeroShape与其他SOTA方法在本文的标注基准测试上进行了对比(前三列来自Ocrtoc3D，后三列来自OmniObject3D)，本文方法的重建不仅更好地与图像中的可见表面对齐，还能恢复重建对象的可信全局结构
+
+<img src="https://img.saraba1st.com/forum/202312/26/075501bj1zgdb767vvilg3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-075148__01.jpg</strong> (420.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 07:55 上传
+
+定量对比
+
+<img src="https://img.saraba1st.com/forum/202312/26/075511gitzt9nf2tzhh627.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-075158__01.jpg</strong> (96.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 07:55 上传
+
+对OmniObject3D进行消融实验，对架构设计选择进行定量分析予以证明:强制性的显式几何推理以及通过估计深度和内参实现反投影是至关重要的
+
+<img src="https://img.saraba1st.com/forum/202312/26/075516rssdn8jv03k3oyzi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-075203__01.jpg</strong> (173.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 07:55 上传
+
+内参学习的好处，展示了两个真实图像输入的重建可见表面，可见表面是从估计的深度中反投影得到的，其中使用了固定内参或预测内参，使用固定内参会导致可见物体表面的3D纵横比出现非真实变形(例如，物体看起来被压缩了)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1114#       发表于 2023-12-26 08:39
+
+DreamDistribution
+
+文本到图像扩散模型的提示分布学习(Prompt Distribution Learning)
+
+项目主页:https://briannlongzhao.github.io/DreamDistribution
+
+github项目仓库:https://github.com/briannlongzhao/DreamDistribution
+
+文本到图像(T2I)扩散模型的普及使得从文本描述中生成高质量的图像成为可能，然而，生成具有参考视觉属性(reference visual attributes)的多样化定制图像仍然具有挑战性
+
+本研究专注于在更抽象的概念(more abstract concept)或分类级别(category level)上个性化T2I扩散模型，通过从一组参考图像中调整共性并创建具有充足变化的新实例，提出了一种解决方案，允许预训练的T2I扩散模型学习一组软提示(soft prompts)，通过从学习的分布中采样提示来生成新的图像，这些提示提供了文本引导的编辑能力，并在控制变化和混合多个分布时提供额外的灵活性
+
+展示了学习到的提示分布对其他任务(如文本到3D)的适应性，最后，通过包含自动评估和人工评估在内的定量分析证明了本文方法的有效性
+————
+演示
+
+<img src="https://img.saraba1st.com/forum/202312/26/083431xq2ffikzf0mb2ffe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083152.jpg</strong> (201.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:34 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/083431gu2z11ipq2epfpd0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083228.jpg</strong> (110.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:34 上传
+
+DreamDistribution能够找到参考图像的提示分布，之后便可用于生成新的2D/3D实例，以及进行文本引导编辑等任务
+————
+方法
+
+<img src="https://img.saraba1st.com/forum/202312/26/083437xccwytcwwzhhae5q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083307.jpg</strong> (84.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:34 上传
+
+保留了一组可学习的K个软提示，并在CLIP文本编码器特征空间中建模它们的分布，其中只有提示是可学习的，CLIP编码器和T2I扩散模型都是固定的
+
+使用重参数化技巧(reparameterization trick)从提示分布中进行采样，并通过反向传播更新可学习的提示，训练目标是使生成的图像与参考图像对齐，还引入了一个额外的正交损失(orthogonal loss)，以促进可学习的提示之间的差异化(differentiation)，对于推理，类似地，从文本特征空间中的提示分布中进行采样，以指导预训练的T2I模型生成
+
+对比其他方法
+
+<img src="https://img.saraba1st.com/forum/202312/26/083450gk0w3pqq97a4ma8q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083330.jpg</strong> (403.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:34 上传
+
+给定一组训练图像(通常为5-20个，在这里只显示4个)，将生成结果与其他现有方法进行对立，对所有方法都使用Stable Diffusion 2.1 版本，从下方行可以看出，本文方法能够生成更加多样化和连贯的图像
+————
+多样化的分布内2D生成
+
+<img src="https://img.saraba1st.com/forum/202312/26/083642dm9f69j2699yqdx3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083500.jpg</strong> (454.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:36 上传
+
+使用参考图像生成图像的更多结果，左列中的图像是参考图像，右列中的图像是生成图像
+————
+文本引导的分布内2D生成
+
+<img src="https://img.saraba1st.com/forum/202312/26/083713lyczynkozvjomjvl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083653.jpg</strong> (493.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:37 上传
+
+本文方法的文本可编辑性结果，左栏展示了参考图像的样本，右栏展示了生成的结果以及对应的提示
+————
+文本转3D生成的应用
+
+<img src="https://img.saraba1st.com/forum/202312/26/083719r1mg6d633mc4ii10.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083702.jpg</strong> (151.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:37 上传
+
+通过学习参考图像上的提示分布，然后使用MVDream进行推理(无需额外控制的文本)的3D生成结果
+————
+文本引导编辑的文本转3D生成应用
+
+<img src="https://img.saraba1st.com/forum/202312/26/083738kg4sp979xg15dbyd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083727.jpg</strong> (145.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:37 上传
+
+通过学习参考图像上的提示分布，然后使用MVDream进行文本引导编辑推理的3D生成结果
+————
+ 提示分布的组合
+
+<img src="https://img.saraba1st.com/forum/202312/26/083759euusvz3kuu3qv4ku.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083746.jpg</strong> (822.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:37 上传
+
+在两组图像之间进行线性插值来组合提示分布，混合比从左到右线性变化，中间的列显示两组的混合结果
+————
+提示分布的缩放变化
+
+<img src="https://img.saraba1st.com/forum/202312/26/083855rooqon1ponqoxsn6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083813__01.jpg</strong> (759.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:38 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/083855c58txx597gi77t5f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083813__02.jpg</strong> (308.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:38 上传
+
+缩放学习提示分布的变量效果，通过将变量乘以标量γ来缩放，图像多样性随着缩放系数γ的增加而增加
+————
+合成ImageNet
+
+<img src="https://img.saraba1st.com/forum/202312/26/083930u5fl8nl0zll1zodl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-083918.jpg</strong> (676.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 08:39 上传
+
+使用本文方法生成的训练图像与仅使用类名称作为文本提示生成的图像之间的对比，对于每组有两行，上方行展示本文方法生成的训练图像的样本，下方行显示使用类名称作为文本提示生成的训练图像
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1115#       发表于 2023-12-26 09:42
+
+CLIP-Parrot-Bias
+
+Parrot字幕说明会教受CLIP定位文本，CLIP分数天生具有缺陷
+
+项目主页:https://linyq17.github.io/CLIP-Parrot-Bias/
+
+OpenDataLab数据集:https://openxlab.org.cn/datasets/opendatalab-linyiqi/LAION-text-debiased-100M
+
+github项目主页:https://github.com/opendatalab/CLIP-Parrot-Bias
+
+尽管CLIP在大量视觉语言应用中是基础模型，但CLIP存在严重的文本定位偏差，这种偏差会导致CLIP模型“鹦鹉学舌”般的学习嵌入在图像中的视觉文本，而忽略真实的视觉语义
+
+在最流行的图像文本数据集LAION-2B中，字幕说明也在被密集地“鹦鹉学舌”，嵌入在图像中的文本拼写分析显示，约有50％的图像嵌入了视觉文本内容，而90％的字幕说明或多或少地包括了视觉文本
+
+基于这样的观察，彻底检查了不同版本的CLIP模型，并验证了视觉文本是否是衡量这些模型中LAION风格图像文本相似性的主要因素，为了检查这些鹦鹉学舌的字幕说明是否塑造了文本定位偏差，使用不同于鹦鹉学舌字幕说明为导向的标准，策划构造了一系列基于LAION子集的CLIP模型进行训练
+
+结果表明，使用鹦鹉学舌字幕说明进行训练很容易塑造这种偏差，这会损害CLIP模型中预期的视觉语言表征学习，这表明迫切需要重新审视CLIP-like模型的设计，或者基于CLIP评分重新过滤构建现有图像文本数据集的策划流程
+————
+
+<img src="https://img.saraba1st.com/forum/202312/26/093916qithtf424jejcfte.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-090605__01.jpg</strong> (287.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 09:39 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/093916vll0019llz7gf4oz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-091251__01.jpg</strong> (158.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 09:39 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/093916i95f5t753mm5t8b7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-091138__01.jpg</strong> (118.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 09:39 上传
+
+————
+相关详情
+
+<img src="https://img.saraba1st.com/forum/202312/26/094056c3kkqw8rzjlukqok.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-094020.jpg</strong> (476.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 09:40 上传
+
+<img src="https://img.saraba1st.com/forum/202312/26/094056mbvu262y22lbjsbs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-094033.jpg</strong> (287.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 09:40 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  革萌  
+##### 1116#       发表于 2023-12-26 20:46
+
+求问一下有没有什么抽出网页主要内容的大模型
+
+就门户网站的html进去，抽出标题和文章文本的内容出来
+
+*****
+
+####  Machinery  
+##### 1117#       发表于 2023-12-26 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63448895&amp;ptid=2126390" target="_blank">革萌 发表于 2023-12-26 20:46</a>
+求问一下有没有什么抽出网页主要内容的大模型
+
+就门户网站的html进去，抽出标题和文章文本的内容出来 ...</blockquote>
+这个一般的LLM都能做，不过有的网页比较长的话可能得选长上下文LLM
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1118#       发表于 2023-12-26 20:53
+
+VCoder
+
+多模态大型语言模型的泛用(Versatile Vision Encoders)视觉编码器
+
+github项目主页:https://github.com/SHI-Labs/VCoder
+
+人类具有视觉感知的非凡技能，即看到并理解所见的能力，得以帮助他们理解视觉世界并进行推理，多模态大语言模型(MLLM)最近在视觉语言任务上取得了令人印象深刻的表现，从视觉问答、图像字幕说明、到视觉推理和图像生成
+
+然而，当要求MLLM系统在给定图像中识别或计数(感知)实体时，现有系统存在失败的情况，为了迈向准确的用于感知和推理MLLM系统，提出了为多模态LLMs所用的泛用视觉编码器(VCoder/Versatile vision enCoders)作为感知的眼睛
+
+首先，通过向VCoder提供感知模态(如分割或深度图)，提高了MLLM的感知能力，其次，利用COCO中的图像和现成的视觉感知模型的输出，创造了用于在对象感知任务上训练和评估MLLM上的COCO分割文本(COST/COCO Segmentation Text)数据集，第三，引入了一些评估MLLM对象感知能力的指标，这些指标在COST数据集上进行评估，最后，提供了大量的实验证据，证明了VCoder在对象级别感知能力上相较于现有的多模态LLMs(包括GPT-4V)的改进，数据集、代码和模型将开源以促进研究
+
+<img src="https://img.saraba1st.com/forum/202312/26/204931npppro737v1l1y7x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-204409__01.jpg</strong> (430.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 20:49 上传
+
+当提示GPT-4V描述复杂视觉场景时，其能够给出令人印象深刻的回答，但是，它在同一场景中进行简单的计数任务时却失败了，与之相比，VCoder则能够准确地计算出人数
+
+<img src="https://img.saraba1st.com/forum/202312/26/204936sn1lwmz62uuzwqou.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-204430__01.jpg</strong> (576.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 20:49 上传
+
+MLLMs对物体进行计数和识别
+
+如第一列所示，GPT-4V和LLaVA-1.5在计数人数方面都失败了，此外，LLaVA-1.5错过了背景实体，比如窗户、墙壁等，并且产生了手提包在场的幻觉，除了椅子外，VCoder可以准确预测人数和其他背景实体，类似地，在第二列中，GPT-4V和LLaVA-1.5在计数椅子方面也失败了，而VCoder则与Oracle(预示)的性能相匹配，值得注意的是，所有MLLMs在第三列中对于非杂乱图像的物体感知都很准确，只有LLaVA-1.5在计数领带方面失败了，如第四列所示，VCoder也可以准确执行一般的问答任务，将OneFormer视为物体感知的Oracle
+
+红色文本表示计数错误；粉色文本表示幻觉；蓝色文本表示正确的物体感知
+
+<img src="https://img.saraba1st.com/forum/202312/26/204945hz1ssfyk1y3hhzdq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-204444__01.jpg</strong> (572.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 20:49 上传
+
+组织COST数据集的方式，将来自COCO数据集的图像、来自GPT-4的问题以及来自OneFormer的分割输出以问答形式结合起来，用于训练和评估在物体识别任务上的多模态语言模型，还通过加入来自DINOv2和DPT的深度图输出，将COST扩展到了物体顺序感知任务，通过类似地加入其他模态(例如关键点图等)，COST可以进一步扩展到更多的物体级任务中
+
+<img src="https://img.saraba1st.com/forum/202312/26/205053s8jhhgbrnmvm2prv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-204456__01.jpg</strong> (313.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 20:50 上传
+
+使用VCoder对多模态LLMs进行准确物体感知的适配调整
+
+(a)将VCoder作为适配器添加到LLaVA-1.5中，并将感知模态作为额外的控制输入用于提高物体感知性能，在训练过程中，冻结LLaVA-1.5的组件(ImCoder、MLP和LLM)，以保留原始的推理性能
+
+(b)使用深度图和分割图作为VCoder的控制输入，用于物体顺序感知任务
+
+<img src="https://img.saraba1st.com/forum/202312/26/205325q1yfpzlyzer11kb7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-204508__01.jpg</strong> (178.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 20:53 上传
+
+目标识别的评估指标，将基准答案和预测中的目标数量进行比较，以计算计数分数(count score)和幻觉分数(hallucination score)
+
+<img src="https://img.saraba1st.com/forum/202312/26/205330b5z4bapowzymbc6l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-204521__01.jpg</strong> (435.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 20:53 上传
+
+在对象识别的COST验证数据集上与基线多模态LLM进行了对比
+
+将VCoder与现有的现成基线MLLM进行了对比:包含MiniGPT-4、InstructBLIP、LLaVA-1.5和CogVLM
+
+还在COST数据集上训练了三种不同的LLaVA-1.5变体: COST IT将COST训练数据与指令微调数据混合; Soft-Prompted使用一组可学习的Token; 而ImCoder使用RGB图像作为控制输入
+
+VCoder适配的LLaVA-1.5在所有三个对象感知任务中表现最好，⟨·⟩表示输入Token给LLM，seg表示分割图，img表示RGB图像，prompt表示可学习提示，query表示用户问题
+
+还使用OpenAI发布的公开付费API评估了GPT-4V在COST数据集上的性能，VCoder适配的LLaVA-1.5在所有MLLM中表现出了最佳的对象识别性能
+
+<img src="https://img.saraba1st.com/forum/202312/26/205336hl1s9didiqiujqsb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-204533__01.jpg</strong> (70.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 20:53 上传
+
+物体顺序感知性能，VCoder LLaVA-1.5在控制输入的使用和在COST数据集上的训练上明显优于LLaVA-1.5
+
+<img src="https://img.saraba1st.com/forum/202312/26/205343khnlxrbblhru2yq1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231226-204542__01.jpg</strong> (436.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-26 20:53 上传
+
+失败案例，当输入的分割掩码(控制输入)不准确时，VCoder返回了不准确的错误响应
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  革萌  
+##### 1119#       发表于 2023-12-26 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63448924&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-12-26 20:49</a>
+
+这个一般的LLM都能做，不过有的网页比较长的话可能得选长上下文LLM
+
+—— 来自 S1Fun ...</blockquote>
+类似我对着gpt写个prompt这样就行么？
+
+*****
+
+####  Machinery  
+##### 1120#       发表于 2023-12-26 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63449029&amp;ptid=2126390" target="_blank">革萌 发表于 2023-12-26 20:59</a>
+类似我对着gpt写个prompt这样就行么？</blockquote>
+是的，算是非常简单的任务<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  革萌  
+##### 1121#       发表于 2023-12-26 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63449038&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-12-26 21:00</a>
+
+是的，算是非常简单的任务
+
+—— 来自 S1Fun</blockquote>
+看了一下光是当前的s1页面的html代码就几万个token了
+
+这个有什么本地的能联网的LLM可以做这个吗？
+
+*****
+
+####  Machinery  
+##### 1122#       发表于 2023-12-26 21:26
+
+ 本帖最后由 Machinery 于 2023-12-26 21:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63449245&amp;ptid=2126390" target="_blank">革萌 发表于 2023-12-26 21:25</a>
+看了一下光是当前的s1页面的html代码就几万个token了
+
+这个有什么本地的能联网的LLM可以做这个吗？ ...</blockquote>
+这个长度需求就算有跑起来大概率显存也不够用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除非你愿意截断，或者换个方法，用1058楼的vary直接做图像截图重建
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  革萌  
+##### 1123#       发表于 2023-12-26 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63449263&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-12-26 21:26</a>
+
+这个长度需求就算有跑起来大概率显存也不够用除非你愿意截断，或者换个方法，用1058楼的vary直接 ...</blockquote>
+图像重建有点抽象了。但是可以在网页上复制文字内容，然后拿给gpt就可以了
+
+
+*****
+
+####  诚司  
+##### 1124#       发表于 2023-12-26 21:46
+
+ 本帖最后由 诚司 于 2023-12-26 21:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63449245&amp;ptid=2126390" target="_blank">革萌 发表于 2023-12-26 21:25</a>
+
+看了一下光是当前的s1页面的html代码就几万个token了
+
+这个有什么本地的能联网的LLM可以做这个吗？ ...</blockquote>
+我做的类似的事，最后是用浏览器打印成pdf（可以复制文字的那种pdf），然后用paddleocr的pdf版面恢复（paddleocr里设置ocr=false，通过pdf解析而不是ocr进行版面恢复），在大致保持版面的情况下提出文字，加点版面标记再喂给大模型。当然这不一定符合你需求，因为网页打印pdf，最终版面还是和原来有挺大差别……
+
+解决方案不一定有用，但是我知道哪些东西没用：
+
+1.打印成图片，然后用paddleocr直接恢复版面（而不是用可以复制文字的pdf通过paddleocr进行解析）不怎么好使，比如英文第一句话是for example，paddleocr开启ocr模式可能直接识别成or example
+
+2.直接几万token喂给大模型，虽然Baichuan有192K的，Qwen也能支持32K，但是长文档本身不靠谱，html这种树结构的长文档更不靠谱
+
+3.多模态大模型直接喂图片最不靠谱，比上面两个都不靠谱，中文用的QwenVL，他论文里就有ocr示例，本来我想让QwenVL直接识别pdf页眉页脚，然后去掉水印和页眉页脚再ocr，结果确实可以无视水印去掉页眉页脚，但是ocr本身性能不咋地，中文缺字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+目前看下来我的需求也就是打印成可解析的pdf然后版面恢复最靠谱
+
+
+*****
+
+####  Machinery  
+##### 1125#       发表于 2023-12-26 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63449384&amp;ptid=2126390" target="_blank">革萌 发表于 2023-12-26 21:41</a>
+图像重建有点抽象了。但是可以在网页上复制文字内容，然后拿给gpt就可以了 ...</blockquote>
+上边那个打印成pdf的方法确实不错，ocr则取决于精度，不是专用大模型效果确实不行，说白了还是html直接喂太糙了，如果预处理一下会好很多<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  诚司  
+##### 1126#       发表于 2023-12-27 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63449384&amp;ptid=2126390" target="_blank">革萌 发表于 2023-12-26 21:41</a>
+
+图像重建有点抽象了。但是可以在网页上复制文字内容，然后拿给gpt就可以了 ...</blockquote>
+啊，我今天又试了试，发现我对Qwen-VL的拉胯印象是建立在我在单位离线部署的开源Qwen-VL-Chat版本上的……
+
+试了试web版的Qwen VL plus，现在的能力已经完全堪用了，我用“请输出图片中的正文部分，并去掉页眉页脚等信息”，这样的prompt，大部分pdf截的图都没有太大的问题……
+
+但是没开源…………
+
+
+*****
+
+####  Machinery  
+##### 1127#       发表于 2023-12-28 00:55
+
+SOLAR 10.7B
+
+通过简单而有效的深度扩展(Depth Up-Scaling)来扩展大型语言模型
+
+hugface权重下载:https://huggingface.co/upstage/SOLAR-10.7B-v1.0
+
+hugface指令微调权重下载:https://huggingface.co/upstage/SOLAR-10.7B-Instruct-v1.0
+
+本文介绍了一种称为深度拓展(DUS/Depth Up-Scaling)新技术，以一种简单而高效的方式对基本大型语言模型(LLMs)进行拓展，与专家混合(MoE/mixture-of-experts)不同，DUS不需要复杂的训练和推理改进，通过使用DUS，构建了一个具有107亿参数的大型语言模型，名为SOLAR 10.7B，在各种自然语言处理(NLP)任务中展示了优越的性能
+
+对比评估显示，SOLAR 10.7B优于现有的开源预训练LLMs，例如Llama 2和Mistral 7B，还提供了经过精心微调以适应指令跟随能力的SOLAR 10.7B-Instruct变体版本，超越了Mixtral-8x7B，SOLAR 10.7B在Apache 2.0许可下授权公开使用，促进了LLM领域的广泛可访问和应用
+
+<img src="https://img.saraba1st.com/forum/202312/28/005448xhuujstpqe07bjue.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-005336__01.jpg</strong> (104.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 00:54 上传
+
+使用具有32层的基础模型进行深度拓展，虽然本文使用了Llama2架构，但其他Transformer架构也能兼容深度拓展技术，在基础模型的32层中使用了24层的预训练权重，这致使深度拓展模型的所有48层都具有预训练权重
+
+<img src="https://img.saraba1st.com/forum/202312/28/005453auq4o8joqpwpnej8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-005354__01.jpg</strong> (137.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 00:54 上传
+
+分别用于指令和对齐调整阶段的训练数据集，对于指令调整过程，使用了Alpaca-GPT4、OpenOrca和Synth. Math-Instruct数据集，而对于对齐调整，使用了Orca DPO Pairs、Ultrafeedback Cleaned和Synth. Math-Alignment数据集
+
+“Total # Samples”表示整个数据集中的样本总数
+“Maximum # Samples Used”表示实际使用于训练的样本的最大数量，可能低于给定数据集中的样本总数
+“Open Source”表示数据集是否开源
+
+<img src="https://img.saraba1st.com/forum/202312/28/005458az6oecx6r6vs5cop.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-005401__01.jpg</strong> (362.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 00:54 上传
+
+SOLAR 10.7B和SOLAR 10.7B-Instruct以及其他top-performing模型的评估结果
+
+报告了提到的六个任务的分数，以及H6分数(六个任务的平均值)，还报告了模型的大小，以十亿参数为单位，类型表示模型的训练阶段(预训练，指导调整，对齐调整)
+
+基于SOLAR 10.7B的模型以紫色标示，H6和各个任务的最佳分数以粗体显示
+
+<img src="https://img.saraba1st.com/forum/202312/28/005508cj2b5djdkopjg1qd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-005211.jpg</strong> (263.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 00:55 上传
+
+<img src="https://img.saraba1st.com/forum/202312/28/005508fl69qvqx7x07yv5z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-005232.jpg</strong> (164.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 00:55 上传
+
+消融实验与结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1128#       发表于 2023-12-28 01:32
+
+Mach
+
+在数分钟内生成高质量的文本到3D角色
+
+项目主页:https://human3daigc.github.io/MACH/
+
+github项目仓库:https://github.com/Human3DAIGC/Make-A-Character
+
+随着AI代理者和Metaverse的出现，定制化的富有表现力的3D角色需求日益增长，但使用传统计算机图形工具创造3D角色是一项复杂而耗时的任务
+
+为了解决这些挑战，本文提出了名为Make-A-Character(Mach)的用户友好框架，以用于根据文本描述创造逼真的3D化身，该框架利用大型语言和视觉模型的能力进行文本意图理解和中间图像生成，然后通过一系列以人类导向的视觉感知和3D生成模块
+
+本系统为用户提供了一种直观的方法，可以在2分钟内创造可控、逼真、完整的3D角色，以满足用户的期望，同时还可以与现有的CG工作流程轻松集成，实现动态表现力
+
+<img src="https://img.saraba1st.com/forum/202312/28/013035sg7g0qqpycgcgpqo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012500__01.jpg</strong> (375.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:30 上传
+
+Mach系统可以根据文本提示创造高度详细和多样化的3D化身，展示这些角色的多样性，以及通过各种面部表情来表达动态能力
+
+<img src="https://img.saraba1st.com/forum/202312/28/013041be9vsvoyoooy6yoz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012513__01.jpg</strong> (175.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:30 上传
+
+该框架利用大型语言模型提取各种面部属性(例如脸型、眼睛形状、嘴巴形状、发型和颜色、眼镜类型等)，然后将这些语义属性映射到对应的视觉线索(visual clues)，从而指导Stable Diffusion和ControlNet生成参考肖像，再通过一系列2D面部解析和3D生成模块，生成的目标面部的网格和纹理，与其他匹配的配饰一起组合，参数化表征使生成的3D化身更容易动画化
+
+<img src="https://img.saraba1st.com/forum/202312/28/013046a8drsltlqlz3sirq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012524__01.jpg</strong> (91.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:30 上传
+
+发现仅仅通过文本提示使用Stable Diffusion模型生成相应的详细面部属性是具有挑战性的，这是因为缺乏全面的面部标注和对应的图像对，为了解决这个问题，首先利用大型语言模型来提取属性，并将它们与低级视觉线索(如姿态和边缘图)进行对齐，然后这些视觉线索通过控ControlNet引导文本到图像生成过程，增强模型准确渲染面部细节的能力
+
+<img src="https://img.saraba1st.com/forum/202312/28/013052exzfn1i4uppt3un0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012534__01.jpg</strong> (352.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:30 上传
+
+本文所用到的多视图光台设备，专为捕获头部和身体的高分辨率3D扫描设计
+
+<img src="https://img.saraba1st.com/forum/202312/28/013057e82832onitttnm86.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012534__02.jpg</strong> (50.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:30 上传
+
+FaceScape数据集上的重投影错误
+
+<img src="https://img.saraba1st.com/forum/202312/28/013102ionpk73przje33cp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012544__01.jpg</strong> (179.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:31 上传
+
+传统的68个landmarks、98个landmarks、以及本文用到的431个landmarks，传统的landmarks在表面上是稀疏的，相比之下，本文的431个landmark密集的覆盖整个头部
+
+<img src="https://img.saraba1st.com/forum/202312/28/013107fy1xdcc184q11q98.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012554__01.jpg</strong> (240.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:31 上传
+
+在几何生成的过程中，在密集的面部landmarks和参考图像的指导下优化摄影机参数和三平面映射，每个顶点的位置根据其对应的UV坐标被编码到三平面映射中
+
+<img src="https://img.saraba1st.com/forum/202312/28/013116cl4fvn7iulxlzd6l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012607__01.jpg</strong> (95.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:31 上传
+
+应用了多分辨率策略，利用可微渲染方法，获得了详细且连贯的纹理贴图，分辨率层次结构定义如下:[32, 128, 512, 1024]
+
+<img src="https://img.saraba1st.com/forum/202312/28/013222jiu8u4xusfhfku74.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012626__01__01.jpg</strong> (150.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:32 上传
+
+数据采集​​和处理工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/28/013229ekhhk9enynn5d33f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012626__01__02.jpg</strong> (56.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:32 上传
+
+提案的纹理校正和补完工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/28/013236udrhcckl8l9cr2l2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012636__01.jpg</strong> (76.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:32 上传
+
+发型生成工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/28/013240x7tkwj4jnozk4wkk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012643__01.jpg</strong> (207.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:32 上传
+
+基于股丝的发型生成，使用SD模型生成的发型图像引导
+
+<img src="https://img.saraba1st.com/forum/202312/28/013245li2rmicrp5mv72f6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-012956__01.jpg</strong> (149.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 01:32 上传
+
+采用面部控制系统进行动态表情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1129#       发表于 2023-12-28 02:17
+
+RoleEval
+
+大型语言模型的双语角色评估基准(Bilingual Role Evaluation Benchmark)
+
+github项目主页:https://github.com/Magnetic2014/RoleEval
+
+大型语言模型(LLM)的快速演变需要有效的基准测试来评估其角色(role)知识，这对于与现实世界建立连接和提供更沉浸式的互动至关重要
+
+本文介绍了RoleEval，一个用于评估角色知识的双语基准测试，旨在评估其记忆、利用和推理的能力，RoleEval包括RoleEval-Global(包括国际知名角色)和RoleEval-Chinese(包括中国受欢迎的角色)两种分类，提供了6000个中英文平行的多项选择题，涵盖了来自名人、动画、漫画、电影、电视剧、游戏和小说等各个领域的300个富有影响力的真实人物和虚构角色
+
+这些问题涵盖了基本知识(basic knowledge)和多跳推理能力(multi-hop reasoning)，旨在系统地探索角色的个人信息、关系、能力和经历等各个方面，为了保持严格标准，采用了自动和人工验证相结合的混合质量检查过程，确保问题多样、具有挑战性和判别性
+
+在各种开源和专有的大型语言模型上对RoleEval进行了广泛评估，包括零样本和少样本设置，揭示了富有灼见的发现，值得注意的是，虽然GPT-4在RoleEval-Global上表现优于其他模型，但中文LLM在RoleEval-Chinese上表现出色，突显了显著的知识分布差异，在此期望RoleEval能够有效凸显在各种语言和文化环境中评估基础模型的角色知识的重要性
+
+<img src="https://img.saraba1st.com/forum/202312/28/021711f76gfs6r66173777.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-021325__01.jpg</strong> (212.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 02:17 上传
+
+RoleEval包括不同类型的角色、知识、推理、问题形式、影响和语言
+
+<img src="https://img.saraba1st.com/forum/202312/28/021717lszm6ljhhmztbw0m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-021338__01.jpg</strong> (69.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 02:17 上传
+
+RoleEval的统计信息
+
+<img src="https://img.saraba1st.com/forum/202312/28/021747ql32r2hu58uluulr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-021354__01.jpg</strong> (185.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 02:17 上传
+
+RoleEval的少样本提示示例，为了清晰起见，英文翻译位于相应的中文文本之后
+
+<img src="https://img.saraba1st.com/forum/202312/28/021754c3ziqqwdyj60iqzg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-021411__01.jpg</strong> (173.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 02:17 上传
+
+在实验中评估的模型细节，为了简单起见，只列出了“模型大小”栏中评估模型的大小
+
+<img src="https://img.saraba1st.com/forum/202312/28/021759ag47ulpug7pgpriv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-021435__01.jpg</strong> (402.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 02:17 上传
+
+在RoleEval (zh)上的五种类别的五样本结果:celebrities (CE), anime and comics (AC), movie and TV series (MT), games (GA), and fiction (FI)
+
+<img src="https://img.saraba1st.com/forum/202312/28/021805cnjjjr7np1iih0p0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-021444__01.jpg</strong> (402.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 02:18 上传
+
+在RoleEval (en)上的五种类别的五样本结果:celebrities (CE), anime and comics (AC), movie and TV series (MT), games (GA), and fiction (FI)
+
+<img src="https://img.saraba1st.com/forum/202312/28/021809pye5bidvel2zb2db.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-021452__01.jpg</strong> (112.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 02:18 上传
+
+RoleEval-Global上的参数缩放法则
+
+<img src="https://img.saraba1st.com/forum/202312/28/021814wn444nljzubn4x44.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-021500__01.jpg</strong> (111.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 02:18 上传
+
+RoleEval-Global上的Token缩放法则
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1130#       发表于 2023-12-28 03:09
+
+ 本帖最后由 Machinery 于 2023-12-28 03:10 编辑 
+
+MultiRankIt
+
+使用物理世界搜索引擎识别日常物体的排列学习方法(Learning-To-Rank Approach)
+
+github项目主页:https://github.com/keio-smilab23/MultiRankIt
+
+家庭服务机器人为满足日常护理和支援需求提供了解决方案，一种将自动化和操作者介入相结合的人在回路的方法被认为是在社会中使用它们的现实方法，因此，本文关注的是在人在回路设置中从用户的开放词汇指令中检索目标物体的任务，并将其定义为学习排列物理物体(LTRPO/learning-to-rank physical objects)任务
+
+例如，给定指令“Please go to the dining room which has a round table. Pick up the bottle on it”，模型需要输出一个排序列表，操作者/用户可以从中选择目标物体
+
+在本文中，提出了一种名为MultiRankIt的新方法，用于LTRPO任务，MultiRankIt引入了跨模态名词短语编码器(Crossmodal Noun Phrase Encoder)，以建模包含指代表达的短语与目标边界框之间的关系，以及跨模态区域特征编码器(Crossmodal Region Feature Encoder)，以建模目标物体与其周围多个图像的关系
+
+此外，还为LTRPO任务构建了一个新的数据集，其中包含伴随着各种目标物体的复杂指代表达指令和真实室内环境图像，在数据集上验证了本文模型，并在平均倒数排名(mean reciprocal rank)和recall@k(recall@k)方面优于基线方法
+
+此外，还在标准化的家庭环境中进行了物理实验，其中家庭服务机器人根据用户的指令在人在回路设置中检索日常物品，实验结果表明，物体检索的成功率达到了80%
+
+<img src="https://img.saraba1st.com/forum/202312/28/030853oa884l8fh8ieh888.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-030446__01.jpg</strong> (165.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:08 上传
+
+LTRPO任务的典型场景，输入是指令，输出是目标对象的排序列表
+
+<img src="https://img.saraba1st.com/forum/202312/28/030859btj6dprt2m0llxmh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-030515__01.jpg</strong> (517.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:08 上传
+
+提出的方法框架，MultiRankIt由跨模态名词短语编码器和跨模态区域特征编码器组成，“FFN”和“Sim”分别表示前馈网络和余弦相似度
+
+<img src="https://img.saraba1st.com/forum/202312/28/030903ihxa6hz6xa9lh90z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-030529__01.jpg</strong> (399.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:09 上传
+
+验证集的定量对比，最好的分数以粗体显示
+
+<img src="https://img.saraba1st.com/forum/202312/28/030907nss6p4gs74a7llvw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-030546__01.jpg</strong> (419.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:09 上传
+
+定性结果，最上面的图像显示了基准答案图像，其他图像显示了top-3的图像，黄色边框区域和绿色虚线区域分别代表xt和除xt之外的上下文对象
+
+<img src="https://img.saraba1st.com/forum/202312/28/030913wnefae6tg4ckwgg7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-030546__02.jpg</strong> (79.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:09 上传
+
+失败的样本，最左边的图像显示了基准答案目标图像，其他图像显示了top-3的图像，该模型未能成功检索位于一本打开的书附近的画像
+
+<img src="https://img.saraba1st.com/forum/202312/28/030917gjz6ob9al9bbtjjv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-030554__01.jpg</strong> (224.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:09 上传
+
+错误分析与，(a)实验环境中的DSR平台和(b)物理实验中使用的YCB物体
+
+<img src="https://img.saraba1st.com/forum/202312/28/030921ic6d09sxh194c494.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-030559__01.jpg</strong> (29.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:09 上传
+
+物理实验中的任务成功率
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1131#       发表于 2023-12-28 03:30
+
+YAYI-UIE
+
+雅意信息抽取统一大模型 (YAYI-UIE)
+
+github项目主页:https://github.com/wenge-research/YAYI-UIE
+
+雅意信息抽取统一大模型(YAYI-UIE)在百万级人工构造的高质量信息抽取数据上进行指令微调，统一训练信息抽取任务包括命名实体识别(NER)，关系抽取(RE)和事件抽取(EE)，实现通用、安全、金融、生物、医疗、商业、个人、车辆、电影、工业、餐厅、科学等场景下结构化抽取
+
+信息抽取任务的困难在于处理任务特定的标签方案(task-specific label schemas)和异构的数据结构，最近的研究提出了基于大型语言模型的方法，以统一建模不同的信息抽取任务，然而，这些现有方法在处理英语以外的中文语言的信息抽取能力方面存在不足
+
+在本文中，提出了一种用于通用信息抽取的端到端聊天增强指令调整框架(YAYI-UIE)，以同时支持中文和英文，具体而言，利用对话数据和信息抽取数据联合增强信息抽取性能
+
+实验结果表明，提出的框架在中文数据集上实现了SOTA性能，同时在监督设置和零样本设置下，在英文数据集上也实现了可比的性能
+
+相关项目说明截图:
+
+<img src="https://img.saraba1st.com/forum/202312/28/033034zk0mqiziviiks1x6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-032936.jpg</strong> (209.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:30 上传
+
+<img src="https://img.saraba1st.com/forum/202312/28/033034jiiazioppopclxfa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-032944.jpg</strong> (196.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:30 上传
+
+<img src="https://img.saraba1st.com/forum/202312/28/033034yeahyru46u2yehzb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-032956.jpg</strong> (267.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:30 上传
+
+<img src="https://img.saraba1st.com/forum/202312/28/033034wvh9tkrxt96xs9fy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231228-033006.jpg</strong> (145.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 03:30 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1132#       发表于 2023-12-29 15:19
+
+TinyGPT-V
+
+通过小型骨干网络运行高效的多模态大型语言模型
+
+github项目主页:https://github.com/DLYuanGod/TinyGPT-V
+
+hugface权重下载:https://huggingface.co/Tyrannosaurus/TinyGPT-V
+
+在长足发展的多模态学习时代中，如GPT-4V等多模态大型语言模型(MLLMs)在连接语言和视觉元素方面取得了显著进展，然而，闭源性质和较大的计算需求对于普遍的使用和修改而言存在挑战，这就是为何开源MLLMs，如LLaVA和MiniGPT-4相关模型到来的原因，它们在各种任务上取得了突破性的成就，尽管取得了这些成就，计算效率仍然是一个暂未解决的问题，像LLaVA-v1.5-13B这样的模型，依然需要大量的资源
+
+为了解决这些问题，本文引入了TinyGPT-V，一种将出色性能与普世的计算容量相结合的新型模型，它的训练仅需要一个24G的GPU，同时推理只需要一个8G的GPU或CPU，TinyGPT-V基于Phi-2构建，将一个有效的语言骨干与来自BLIP-2或CLIP的预训练视觉模块相结合，TinyGPT-V的2.8B参数可以经历独特的量化过程，以适用于在各种8G设备上进行本地部署和推理任务
+
+本文工作促进了更多成本效益、高效和高性能MLLMs的设计，扩大了它们在大量实际场景中的适用性，此外，本文还提出了通过小型骨干构建多模态大型语言模型的新范式
+
+<img src="https://img.saraba1st.com/forum/202312/29/151840of5ttebhptletja8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-151504__01.jpg</strong> (225.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:18 上传
+
+与其他通用MLLM相比，TinyGPT-V在多种视觉语言任务中实现了与13B或7B模型相同的性能
+
+<img src="https://img.saraba1st.com/forum/202312/29/151844eyrxso50bnyt8wby.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-151528__01.jpg</strong> (211.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:18 上传
+
+TinyGPT-V的训练过程，第一阶段是预热训练，第二阶段是预训练，第三阶段是指令微调，第四阶段是多任务学习
+
+<img src="https://img.saraba1st.com/forum/202312/29/151850s9hx591002j1c233.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-151556__01.jpg</strong> (265.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:18 上传
+
+(a)表示LoRA的结构
+(b)表示LoRA如何在自然语言处理中高效地微调大型语言模型
+(c)表示TinyGPT-V的LLM结构
+(d)表示QK归一化(Normalization)的结构
+
+<img src="https://img.saraba1st.com/forum/202312/29/151857jyyryod0gxgrggg4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-151608__01.jpg</strong> (231.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:18 上传
+
+TinyGPT-V在训练期间使用的数据集的完整列表
+
+<img src="https://img.saraba1st.com/forum/202312/29/151903h0ucgjqh753ooooo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-151636__01.jpg</strong> (264.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:19 上传
+
+TinyGPT-V训练阶段的学习率变化
+
+<img src="https://img.saraba1st.com/forum/202312/29/151908oykxaygagzggpsgb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-151651__01.jpg</strong> (94.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:19 上传
+
+TinyGPT-V训练阶段的loss变化
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1133#       发表于 2023-12-29 15:41
+
+MobileVLM
+
+适用于移动设备的快速、可重现且强大的视觉语言助手
+
+github项目主页:https://github.com/Meituan-AutoML/MobileVLM
+
+MobileVLM，一种专为移动设备设计的多模态视觉语言模型(MMVLM/mobile multimodal vision language model)，融合了许多面向移动设备的架构设计和技术，通过从零开始训练一个规模为14亿和27亿参数的语言模型集合，一个以CLIP方式预训练的多模态视觉模型，以及通过高效投影器实现的跨模态交互
+
+在几个经典的VLM基准测试上评估了MobileVLM，模型表现与一些更大的模型相当，更重要的是，同时在高通骁龙888 CPU和NVIDIA Jeston Orin GPU上测量了推理速度，分别达到了每秒21.5个Token和65.3个Token的SOTA性能
+
+<img src="https://img.saraba1st.com/forum/202312/29/154055wddgnue4djl7ieud.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153904.jpg</strong> (184.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:40 上传
+
+开源VLM架构及其相关训练语料库的对比
+*表示BLIP采用了多模态编码器/解码器
+
+<img src="https://img.saraba1st.com/forum/202312/29/154058s3b3rfm0rs21lc4r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153920.jpg</strong> (47.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:40 上传
+
+本文语言模型的详细设置
+
+<img src="https://img.saraba1st.com/forum/202312/29/154103rtgwzbddttmjwc5m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153941.jpg</strong> (108.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+MobileVLM架构(右)使用MobileLLaMA作为其语言模型，分别将图像Xv和语言指令Xq作为输入，并给出语言响应Ya作为输出，LDP指的是轻量级下采样投影器(左)
+
+<img src="https://img.saraba1st.com/forum/202312/29/154111bz631u9i99ls9594.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153959.jpg</strong> (93.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+MobileVLM训练策略图示
+
+<img src="https://img.saraba1st.com/forum/202312/29/154116dx87ucuo8c7ph7x7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-154018.jpg</strong> (151.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+与主流语言基准测试上的SOTA移动规模语言模型进行对比
+
+<img src="https://img.saraba1st.com/forum/202312/29/154120hfjqepna4rtuauaz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-154033.jpg</strong> (61.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+在RedPajama数据的1.3T Token上训练Mobile LLaMA 1.4B和2.7B的loss曲线
+
+<img src="https://img.saraba1st.com/forum/202312/29/154126k00bbof7oz7ajg6j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-154042.jpg</strong> (87.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+MobileLLaMA 1.4B和2.7B的SFT loss曲线
+
+<img src="https://img.saraba1st.com/forum/202312/29/154140lnatuataiytyy0aa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153623.jpg</strong> (238.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/29/154140mreggt93wwoiser9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153635.jpg</strong> (246.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/29/154140bma10a2yx1bb1n6x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153649.jpg</strong> (192.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/29/154140dedfp6p4t7l5atfz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153658.jpg</strong> (315.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/29/154140g6j6vjrqzl8xjlxj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153720.jpg</strong> (222.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/29/154140kgkwnuwzguuppgww.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-153733.jpg</strong> (56.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 15:41 上传
+
+相关性能与延迟测试以及其他测试结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1134#       发表于 2023-12-29 16:05
+
+ 本帖最后由 Machinery 于 2023-12-29 16:06 编辑 
+
+Generative AI for Math
+
+第一部分——MathPile:十亿Token规模的数学预训练语料库
+
+github项目主页:https://github.com/GAIR-NLP/MathPile/
+
+高质量、大规模的语料库是构建基础模型的基石，在这项工作中，介绍了MathPile，一个包含约95亿 Token的多样化且高质量的以数学为中心的语料库
+
+在创建过程中，坚持了“少即是多”的原则，坚信数据质量比数量在预训练阶段更重要，进行了细致入微的数据收集和处理工作，包括复杂的预处理、预过滤、语言识别、清洗、过滤和去重，确保了语料库的高质量
+
+此外，还对下游基准测试集进行了数据污染检测，以消除重复数据，希望MathPile能够帮助提升语言模型的数学推理能力，同时计划开源不同版本的MathPile以及用于处理的脚本，以促进该领域的未来发展
+————
+介绍
+
+<img src="https://img.saraba1st.com/forum/202312/29/160518qw00fhafohw0j3r9.png" referrerpolicy="no-referrer">
+
+<strong>mathpile-features.png</strong> (54.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 16:05 上传
+
+以数学为中心:MathPile独特地迎合了数学领域的需求，这与Pile和RedPajama等以通用领域为中心的语料库不同，也与ROOTS和The Stack等以多语言为中心的语料库不同，虽然现在也存在以数学为中心的语料库，但它们通常要么是闭源的，例如Google的Minerva和OpenAI的MathMix，又或者要么缺乏多样性，例如ProofPile和OpenWebMath
+
+多样性:MathPile的资料来源广泛:其中包含教科书(含讲稿)、arXiv、Wikipedia、ProofWiki、StackExchange和网页，它包含适合K-12、大学、研究生水平和数学竞赛的数学内容，这种多样性是其首创的，尤其是，还发布了大量高质量教科书内容(约0.19b Token)
+
+高质量:坚持了少即是多的原则，坚信数据质量高于数量，即使在预训练阶段也是如此，细致的数据收集和处理工作包括一套复杂的预处理、预过滤、清理、过滤和重复数据删除，确保了语料库的高质量
+
+<img src="https://img.saraba1st.com/forum/202312/29/160526iv7mpumjdmam91ug.png" referrerpolicy="no-referrer">
+
+<strong>mathpile-overview.png</strong> (152.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 16:05 上传
+
+数据文档:为了提高透明度，广泛记录了MathPile，这包括数据集表和网络来源文档的质量标注，例如语言识别分数和符号与单词的比率，这使用户可以灵活地根据自己的需求定制数据，还执行了数据污染检测，以消除MATH和MMLU-STEM等基准测试集中的重复项
+
+希望MathPile能够帮助增强语言模型的数学推理能力，请参阅论文了解更多技术细节
+————
+限制
+
+在数据收集和处理阶段做出的决策可能并不总是最优的
+
+MathPile中的某些文档可能并不总是具有最高质量，同时研究组致力于不断完善和优化这个语料库
+————
+声明
+
+这些宝贵的语料库是人类智慧的顶峰，应该被用来改善人类，帮助改善人类生活，强烈呼吁所有用户不要利用本语料库进行任何可能危害国家安全、社会安全或违法的活动
+
+研究组已尽最大努力确保数据的高质量和合法使用，然而，不可预见的问题仍然可能出现，包括但不限于数据安全问题以及因滥用而产生的任何风险或问题，研究组对任何此类问题不承担任何责任
+
+如果MathPile的源数据受到比CC BY-NC-SA 4.0更严格的许可证管理，则MathPile应该遵守该更严格的许可，在所有其他情况下，它都在CC BY-NC-SA 4.0许可证下运行，同时已计划发布该数据集的商业可用版本
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1135#       发表于 2023-12-29 23:44
+
+ 本帖最后由 Machinery 于 2023-12-29 23:47 编辑 
+
+DL3DV-10K
+
+用于3D深度视觉学习的大规模场景数据集
+
+项目主页:https://dl3dv-10k.github.io/DL3DV-10K/
+
+github数据集下载:https://github.com/DL3DV-10K/Dataset
+
+最近，基于深度学习的3D视觉领域取得了重大进展，从基于神经辐射场(NeRF)的3D表征学习到新视图合成(NVS)方面的普遍应用，然而，现有的基于深度学习的3D视觉场景级数据集，无论是合成环境还是真实世界场景的选择都非常有限，这不仅阻碍了对现有方法的全面评估，也限制了在基于深度学习的3D分析中可能的探索
+
+为了解决这一关键问题，本文提出了DL3DV-10K，一个大规模场景数据集，包含了来自10510个视频的5120万帧，这些视频是从65种兴趣点(POI /point-of-interest)位拍摄的，同时涵盖了有界和无界场景，并具有不同水平的反射、透明和光照
+
+在DL3DV-10K上对最近的NVS方法进行了全面的评估，揭示了未来NVS研究可能存在的有价值的见解，此外，在DL3DV-10K上进行学习的可泛化NeRF的试验研究中取得了令人鼓舞的结果，这充分表明了建立场景级大规模数据集是迈向3D表征学习的基础模型所必须的道路，DL3DV-10K数据集经过了详尽的基准测试，为学习3D表征的基础模型铺平了道路
+————
+A.10510个视频，具有一致的采集标准
+B.全面的新视图综合基准
+C.每个视频都有人工创建的与场景POI和复杂性(光线、表面材料等)相关的标签
+D.每个视频都有校准的摄像机姿态、NeRF估计深度、点云和3D网格
+————
+统计数据
+
+<img src="https://img.saraba1st.com/forum/202312/29/234422skqbekk949bt8w5y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-232707.jpg</strong> (78.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202312/29/234422zp5sd077q4w0200i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231229-232825.jpg</strong> (246.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 23:44 上传
+
+图1.按POI类别的场景分布
+每个类的角度表示其数据比例
+Interior(室内):主要的POI类别
+Exterior(室外):次要的POI类别
+
+<img src="https://img.saraba1st.com/forum/202312/29/234429bkq8yxxwts2tz6a5.png" referrerpolicy="no-referrer">
+
+<strong>Scene_Category_by_secondary_POI.png</strong> (501.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 23:44 上传
+
+图2.次要的POI类别内的场景数量
+图例包含主要和次要POI类别之间的映射，观察到学校大学和住宅区是DL3DV-10K数据集中的主要场景，相比之下，诸如政府和市政服务设施(例如邮局、警察局、法院和市政厅)等地点的拍摄频率较低，因为进入这些区域进行详细视频记录存在困难
+
+<img src="https://img.saraba1st.com/forum/202312/29/234434g88bbng10qbq84n1.png" referrerpolicy="no-referrer">
+
+<strong>Scene_complexity_primary-POI.png</strong> (314.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 23:44 上传
+
+图3.按复杂性指数显示了场景类别(主要的POI地点)的分布
+包括环境设置、光照条件、反射表面和透明材料，光照条件下的属性包括:自然光(nlight)、人造光(alight)以及两者的组合(mlight)，反射类包括更多、中等、更少和无，透明度同反射类
+
+<img src="https://img.saraba1st.com/forum/202312/29/234440y9l4u7q79d3iqlzi.png" referrerpolicy="no-referrer">
+
+<strong>duration_frequency_distribution.png</strong> (117.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-29 23:44 上传
+
+ 图4.展示了10510 个视频的视频时长和频率指标的分布
+使用消费类移动设备进行视频拍摄的最短时长设置为60秒，而对于无人机摄像机来说，则至少为45秒，在数据集中，视频时长中位数为69.5秒，此外，通过平均图像强度确定的频率指标的中位数值为2.6e-06，基于这个中位数值，将场景分为高频率和低频率两类
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1136#       发表于 2023-12-30 01:39
+
+Unified-IO 2
+
+通过视觉、语言、音频和动作(Vision, Language, Audio, and Action)扩展自回归多模态模型
+
+项目主页:https://unified-io-2.allenai.org/
+
+github项目代码仓库:https://github.com/allenai/unified-io-2
+
+Unified-IO 2，这是第一个能够理解和生成图像、文本、音频和动作的自回归多模态模型，为了统一不同的模态，通过将输入和输出(图像、文本、音频、动作、边界框等)进行分词化(tokenize)，进入一个共享的语义空间，然后使用单一的编码-解码Transformer模型进行处理，由于使用如此多样化的模态进行训练具有挑战性，提出了各种架构改进来稳定模型训练
+
+通过从头开始在一个大型的多模态预训练语料库上训练模型，该语料库来自各种来源，结合了多模态混合的去噪目标(multimodal mixture of denoisers objective)，为了学习一系列广泛的技能，例如遵循多模态指令，构建了一个聚合了120个数据集、提示和增强方法的集合，并对其进行微调
+
+通过单一的统一模型，Unified-IO 2 在GRIT基准测试中达到了SOTA性能，并在超过35个基准测试中取得了强大的结果，其中包括图像生成和理解、自然语言理解、视频和音频理解以及机器操作(robotic manipulation)
+
+<img src="https://img.saraba1st.com/forum/202312/30/013827cc9v3yh7icbj96iv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013202__01.jpg</strong> (429.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:38 上传
+
+UNIFIED-IO 2是一种具有广泛能力和支持模态的指令跟随模型，它可以生成图像(红框)，进行包括图像编辑、图像生成、深度估计、表面法线估计和未来帧预测等任务，它还可以生成文本(蓝框)，其中包括对查询的长式回答、关键点估计、视觉音频定位、预测机器操作等，也可以从图像或文本生成音频(绿框)
+
+<img src="https://img.saraba1st.com/forum/202312/30/013841dd9y7ltgyllytlsy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013217__01.jpg</strong> (322.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:38 上传
+
+UNIFIED-IO 2架构，输入的文本、图像、音频或图像/音频历史被编码成嵌入序列，这些序列被连接起来并作为编码器-解码器Transformer模型的输入，Transformer输出离散的Token，可以解码成文本、图像或音频片段
+
+<img src="https://img.saraba1st.com/forum/202312/30/013847lhwz36l0omgl3512.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013225__01.jpg</strong> (154.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:38 上传
+
+左:不同模态混合的训练loss(a)和梯度范数/gradient norms(b)
+右:UIO-2XXL在所有模态上的训练loss(c)和下一个Token预测准确度 (d)
+
+在应用提案的构架改进之前获得了结果
+
+<img src="https://img.saraba1st.com/forum/202312/30/013855ahxzpntx9b9jhb9t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013225__02.jpg</strong> (87.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:38 上传
+
+三个模型的训练loss曲线，使用动态封装(dynamic packing)和512的批大小进行预训练
+
+<img src="https://img.saraba1st.com/forum/202312/30/013905p68f6wnx9n3qxd3e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013225__03.jpg</strong> (106.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+掩码图像建模中的不同训练范式:
+(a)自回归
+(b)掩码自编码(mask auto-encoder)
+(c)动态掩码的自回归
+
+提出的范式可以在避免解码器信息泄露的同时保持因果生成
+
+<img src="https://img.saraba1st.com/forum/202312/30/013914not8o3v552hmh88m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013246__01.jpg</strong> (219.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+预训练和指令调整数据的分布，分割与采样率成正比，内部部分展示了目标模态，外部部分显示数据类型
+
+<img src="https://img.saraba1st.com/forum/202312/30/013919cety00v9ztgwwxjy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013306__01.jpg</strong> (57.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+UNIFIED-IO 2的不同变体
+
+<img src="https://img.saraba1st.com/forum/202312/30/013926kj1ea1v7jn9jdhdy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013355__01.jpg</strong> (237 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+从视频数据中构建模型的输入与目标的训练样本，给定视频，首先提取视频帧以及相应的音频谱图和转录文本，然后，数据经过随机选择过程确定目标模态、输入模态、训练目标、输入掩码等，模型的最终输入和目标在右上方
+
+<img src="https://img.saraba1st.com/forum/202312/30/013936hxwo3n4d2qxf6xw8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013409__01.jpg</strong> (593.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+可以执行多种多模态任务的统一模型:对图像进行字幕说明，遵循自由形式的指令，图像编辑，物体检测，语义分割，表面法线和基于图像的音频生成等等，在这里，展示了模型对各种提示的输出
+
+<img src="https://img.saraba1st.com/forum/202312/30/013942krpbbiwrdzzdixq9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013422__01.jpg</strong> (432.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+<img src="https://img.saraba1st.com/forum/202312/30/013942sk9ho9k99oz3ui7n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013436__01.jpg</strong> (411.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+<img src="https://img.saraba1st.com/forum/202312/30/013942m8gzvw3e8fx7e3yo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013454__01.jpg</strong> (249.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+<img src="https://img.saraba1st.com/forum/202312/30/013942e64uxbdd3e3qonq7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-013504__01.jpg</strong> (83.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 01:39 上传
+
+相关评估结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1137#       发表于 2023-12-30 19:18
+
+ 本帖最后由 Machinery 于 2023-12-30 19:20 编辑 
+
+City-on-Web
+
+网上的大型场景实时神经渲染
+
+项目主页:https://ustc3dv.github.io/City-on-Web/
+
+NeRF已经显著推进了3D场景重建任务，可以在各种环境中捕捉复杂的细节，现有的方法已经成功地利用辐射场烘焙技术(radiance field baking)来实现对小场景的实时渲染，然而，当应用于大规模场景时，这些技术面临着重大挑战，由于计算、显存和带宽资源有限，很难提供无缝浏览的实时体验
+
+在本文中，提出了City-on-Web，通过将整个场景划分为可管理的块(manageable blocks)，并为每个块分配适当的细节级别(Level-of-Detail)，以确保高保真度、高效的显存管理和快速渲染，与此同时，仔细设计了训练和推理过程，以确保网上的最终渲染结果与训练一致，得益于新颖的表征方式和精心设计的训练/推理过程，本文方法率先在资源有限的环境中实现了大规模场景的实时渲染
+
+大量的实验结果表明，本文方法有助于网络平台上实时渲染大规模场景，在1080P分辨率下，使用RTX 3060 GPU，在Web平台上实现了32FPS的实时渲染，并同时实现了与SOTA方法接近的质量
+————
+渲染效果(请前往项目页面查看)
+
+<img src="https://img.saraba1st.com/forum/202312/30/191725t0pw5padzfpjjhxj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-190910__01.jpg</strong> (584.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:17 上传
+
+<img src="https://img.saraba1st.com/forum/202312/30/191745nd8t8fjffo383757.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-190915__01.jpg</strong> (563.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:17 上传
+
+City-on-Web，根据已知信息，这是第一个能够使用笔记本电脑GPU通过网络对大规模场景进行实时神经渲染的系统，上图为在1920x1080分辨率的NVIDIA RTX 3060笔记本电脑GPU上的测试结果
+————
+训练工作流程
+
+<img src="https://img.saraba1st.com/forum/202312/30/191753uiazeqzzui3ieac9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-190831.jpg</strong> (185.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:17 上传
+
+首先根据地平面将整个场景划分为不重叠的不同块，对于光线通过的块，相应的着色器渲染每个块的颜色和不透明度，对光线经过的块进行深度排序，然后通过保持3D一致性的Alpha混合渲染最终的结果
+——
+LOD生成
+
+1.由于采用了非重叠的分割策略，因此可以直接对网格进行下采样，并合并多个块以生成LOD
+2.对于合并的块，首先冻结属性查询函数的训练(training of attribute query function)，然后重新训练一个新的延迟MLP(new deferred MLP)
+3.在训练完延迟MLP后，继续同时训练延迟MLP和下采样模型
+
+<img src="https://img.saraba1st.com/forum/202312/30/191813erwvwy5qbbbf39sp.jpg" referrerpolicy="no-referrer">
+
+<strong>09f5c666-e114-41ce-b622-27b36989c9a6.jpg</strong> (156.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:18 上传
+
+——
+与SOTA方法对比
+
+本文方法擅长恢复更精细的细节，并且在不同的尺度和环境中实现了更高质量的重建
+
+<img src="https://img.saraba1st.com/forum/202312/30/191854ncey888debfhyrco.jpg" referrerpolicy="no-referrer">
+
+<strong>e57dafcb-348f-4fec-8488-520676a7dd41.jpg</strong> (284.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1138#       发表于 2023-12-30 19:52
+
+DreamGaussian4D
+
+4D高斯泼溅生成
+
+项目主页:https://jiawei-ren.github.io/projects/dreamgaussian4d
+
+github项目代码仓库:https://github.com/jiawei-ren/dreamgaussian4d
+
+最近4D内容生成取得了显著进展，然而现有方法存在优化时间长、缺乏运动可控性和细节部分表现不好的问题，在本文中，介绍了DreamGaussian4D，一种基于4D高斯泼溅表征的高效4D生成框架
+
+本文主要见解是，与隐式表征相比，高斯泼溅中的空间变换(spatial transformations)使显式建模更适合4D生成
+
+DreamGaussian4D将优化时间从几个小时缩短到几分钟，同时允许灵活的控制生成的3D运动，并且可以生成能够在3D引擎中高效渲染的动画化网格
+
+<img src="https://img.saraba1st.com/forum/202312/30/195124yzdgszmgdz1d1d41.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194620__01.jpg</strong> (388.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:51 上传
+
+DreamGaussian4D利用4D高斯泼溅可以在几分钟内生成4D内容，导出的网格可以在3D引擎中高效地合成和渲染
+
+<img src="https://img.saraba1st.com/forum/202312/30/195129ioluleluo06oyeoy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194642__01.jpg</strong> (126.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:51 上传
+
+速度对比，DreamGaussian 4D将优化时间从几个小时缩短到几分钟
+
+<img src="https://img.saraba1st.com/forum/202312/30/195134ml9g45mrtrd1xzm1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194658__01.jpg</strong> (364.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:51 上传
+
+DreamGaussian4D框架，首先使用DreamGaussianHD获取静态3D GS模型，并使用图像到视频扩散模型得到一个驱动视频，随后，通过优化一个变形网络，学习在不同时间戳下如何变形静态3D GS，使用MSE损失和SDS损失对驱动视频进行监督，最后，可以导出逐帧网格，并且可以使用视频到视频工作流程对纹理映射进行细化
+
+<img src="https://img.saraba1st.com/forum/202312/30/195152zihmwgr6fg6b6gb6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194731__01.jpg</strong> (255.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:51 上传
+
+定性结果，渲染图像显示了渐变的时间戳和视角
+
+<img src="https://img.saraba1st.com/forum/202312/30/195205wpu1duzhb0mai1b2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194740__01.jpg</strong> (212.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:52 上传
+
+与Animate124的对比，本文模型达成了对输入图像更好的忠实度、更大的运动范围和更高的细节级别
+
+<img src="https://img.saraba1st.com/forum/202312/30/195211s6633hfhsens41qz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194740__02.jpg</strong> (73.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:52 上传
+
+组合场景，4D GS可以导出为可以在Blender中高效合成和渲染的网格
+
+<img src="https://img.saraba1st.com/forum/202312/30/195215e2msrzhfss2ffrst.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194740__03.jpg</strong> (97.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:52 上传
+
+对DreamGaussianHD的消融实验，现有的DreamGaussian在新视图下存在严重的模糊问题，多视图优化显著改善了纹理和几何形状，修复背景颜色进一步提高了细节级别
+
+<img src="https://img.saraba1st.com/forum/202312/30/195220ss1efgzae7sdgvsg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194747__01.jpg</strong> (33.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:52 上传
+
+对零初始化(zero-initialization)的消融实验，非零初始化会导致静态模型发生变化，成为次优的模型，例如熊猫的背面变成全黑等，而零初始化可以防止漂变
+
+<img src="https://img.saraba1st.com/forum/202312/30/195225hg7uvz1s1scduyvp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194747__02.jpg</strong> (36.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:52 上传
+
+可控运动，DreamGaussian4D可以轻松控制生成的运动，还可以从不同的驱动视频中为同一输入图像生成不同的3D运动
+
+<img src="https://img.saraba1st.com/forum/202312/30/195230tbtho9z5khomk51m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194747__03.jpg</strong> (32.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:52 上传
+
+对纹理细化的消融实验，类似DreamGaussian的图像到图像(I2I)优化会导致相邻帧之间的时间一致性差和闪烁问题，而视频到视频(V2V)优化缓解了这个问题
+
+<img src="https://img.saraba1st.com/forum/202312/30/195236xfq3dfegfdgmrqdm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231230-194747__04.jpg</strong> (15.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-30 19:52 上传
+
+定量结果
+†：基于Zhao et al. (2023)提供的8个示例计算的结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Machinery  
+##### 1139#       发表于 2023-12-31 02:38
+
+SpacetimeGaussians
+
+用于实时动态视图合成的时空高斯特征泼溅(Spacetime Gaussian Feature Splatting)
+
+项目主页:[https://oppo-us-research.github.io/SpacetimeGaussians-website/](https://oppo-us-research.github.io/SpacetimeGaussians-website/)
+
+github项目仓库:[https://github.com/oppo-us-research/SpacetimeGaussians](https://github.com/oppo-us-research/SpacetimeGaussians)
+
+动态场景的新视图合成一直是一个引人注目但具有挑战性的问题，尽管最近取得了一些进展，但同时实现高分辨率逼真的结果、以及实时渲染和紧凑的存储方案仍然是一项艰巨的任务
+
+为了解决这些挑战，提出了一种新颖的动态场景表征方法——时空高斯特征泼溅(Spacetime Gaussian Feature Splatting)，它由三个关键组件组成
+
+首先，通过增强3D高斯的时间不透明度和参数化运动/旋转，提出了富有表现力的时空高斯特征泼溅(Spacetime Gaussian Feature Splatting)，这使得时空高斯能够捕捉到场景中的静态、动态和瞬态内容
+
+其次，引入了泼溅特征渲染，用神经特征取代了球谐函数(spherical harmonics)，这些特征有助于对视图和时间依赖的外观进行建模，同时保持小尺寸
+
+第三，利用训练误差(training error)和粗略深度(coarse depth)的指导，在现有工作流程难以收敛的区域采样新的高斯
+
+对几个已建立的真实世界数据集进行的实验证明，本文方法在保持紧凑存储的同时，实现了SOTA渲染质量和速度，在8K分辨率下，本文方法的轻量版本模型可以在Nvidia RTX 4090 GPU上以60帧每秒的速度渲染
+
+<img src="https://img.saraba1st.com/forum/202312/31/023658s9flmszr1i4n3xin.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-023310__01.jpg</strong> (226.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:36 上传
+
+本文方法的动态场景表征实现了逼真的质量、实时的高分辨率渲染和紧凑的模型大小
+
+(a)轻量版本模型可以在Nvidia RTX 4090 GPU上以66 FPS的速度渲染8K 6-DoF视频
+
+(b)一个具有挑战性场景的新视角渲染示例
+
+(c)在神经3D视频数据集上与先前的研究在渲染质量、速度和模型大小方面的定量对比
+
+<img src="https://img.saraba1st.com/forum/202312/31/023707ewha2x0balmkfl22.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-023325__01.jpg</strong> (167.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:37 上传
+
+时空高斯和特征渲染概览
+
+(a)本文方法利用一组时空高斯(STG)来表示动态场景，在3D高斯的基础上，每个STG还进一步配备了时间不透明度、多项式运动/旋转和时间依赖特征
+
+(b)将绘制的特征可视化为映射，通过MLP将其转换为彩色图像
+
+<img src="https://img.saraba1st.com/forum/202312/31/023717ehppn3333nnn8g3p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-023337__01.jpg</strong> (282.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:37 上传
+
+高斯引导采样策略的图示，通过利用训练误差和粗略深度的指导，沿光线对新高斯进行采样
+
+<img src="https://img.saraba1st.com/forum/202312/31/023733ctcl8kfgl7k9o5t8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-023353__01.jpg</strong> (107.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:37 上传
+
+在Neural 3D视频数据集上进行定量对比
+
+“FPS”以1352×1014分辨率进行测量，“Size”是300帧的总模型大小，其中一些方法只报告了部分场景，为了公平起见，还根据他们的设置报告了本文方法的结果
+
+1只包括Flame Salmon场景，2排除了Coffee Martini场景
+
+<img src="https://img.saraba1st.com/forum/202312/31/023745jzfr3rr0bfb37zbt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-023406__01.jpg</strong> (379.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:37 上传
+
+神经3D视频数据集的定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/31/023756k6ia2msu06re00ri.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-023414__01.jpg</strong> (339.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:37 上传
+
+Google Immersive数据集的定性对比
+
+<img src="https://img.saraba1st.com/forum/202312/31/023807ktqt2yyo1dzqqyd5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-023424__01.jpg</strong> (216.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:38 上传
+
+<img src="https://img.saraba1st.com/forum/202312/31/023813l5cyrk6trp5cgc9p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-023432__01.jpg</strong> (79.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:38 上传
+
+其他定性对比与消融实验
+
+
+*****
+
+####  Machinery  
+##### 1140#       发表于 2023-12-31 02:56
+
+<img src="https://img.saraba1st.com/forum/202312/31/025510dmjbeeebjbadbxec.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-025432.jpg</strong> (51.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 02:55 上传
+
+这篇卡了四次，老哥们可以去项目页自己看，就不发了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+项目主页:[https://ssr-encoder.github.io/](https://ssr-encoder.github.io/)
+
+
+*****
+
+####  Machinery  
+##### 1141#       发表于 2023-12-31 03:51
+
+ 本帖最后由 Machinery 于 2023-12-31 03:57 编辑 
+
+DiffusionGAN3D
+
+通过结合3D GANs和扩散先验提升文本引导的3D生成和领域自适应(Domain Adaption)
+
+项目主页:https://younglbw.github.io/DiffusionGAN3D-homepage/
+
+github项目代码仓库:https://github.com/youngLBW/DiffusionGAN3D
+
+文本引导的领域自适应，以及，生成具有3D注意的肖像(3D-aware portraits)，在各个领域中都可以找到应用前景，然而由于缺乏训练数据和处理高度多样的几何和外观的挑战，现有的方法在这些任务中存在各种问题，如不灵活、不稳定和低保真度(inflexibility, instability, and low fidelit)
+
+在本文中，提出了一种新颖的框架，DiffusionGAN3D，通过结合3D GAN和扩散先验来提升(boosts)文本引导的3D领域自适应和生成，具体而言，整合了预训练的3D生成模型(例如EG3D)和文本到图像扩散模型，前者为从文本生成稳定且高质量的化身提供了坚实的基础，而扩散模型则提供了强大的先验知识，并通过信息指导(informative direction)引导3D生成器进行灵活而高效的文本引导领域自适应的微调
+
+为了增强领域自适应中的多样性和文本到化身的生成能力，分别引入了相对距离损失(relative distance loss)和用例特定的可学习三平面(case-specific learnable triplane)，此外，还设计了一个渐进式纹理细化模块(progressive texture refinement module)，以提高上述两个任务的纹理质量
+
+大量实验证明，所提出的框架在领域自适应和文本到化身任务中取得了出色的结果，在生成质量和效率方面优于现有方法
+
+<img src="https://img.saraba1st.com/forum/202312/31/034931errqotzbsvepzrxm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034421__01.jpg</strong> (678.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:49 上传
+
+所提出的DiffusionGAN3D在不同任务上的一些生成结果
+
+<img src="https://img.saraba1st.com/forum/202312/31/034938n766jjcnucck7c26.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034431__01.jpg</strong> (424.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:49 上传
+
+所提出的两阶段DiffusionGAN3D框架的概览图
+
+<img src="https://img.saraba1st.com/forum/202312/31/034943sdjumis7lxq0pg6i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034446__01.jpg</strong> (104.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:49 上传
+
+相对距离损失的图示
+
+<img src="https://img.saraba1st.com/forum/202312/31/034947ym11kknggwdwujkz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034504__01.jpg</strong> (70.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:49 上传
+
+给定文本“a man with green hair”，不同噪声级别下的SDS损失梯度响应的可视化
+
+<img src="https://img.saraba1st.com/forum/202312/31/034955untnhu1bbo03ybt4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034509__01.jpg</strong> (71.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:49 上传
+
+所提出的自适应混合模块的细节
+
+<img src="https://img.saraba1st.com/forum/202312/31/035441cext25llmgw52w85.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034534__01__02.jpg</strong> (194 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:54 上传
+
+3D领域自适应的定性对比(在EG3D-FFHQ上应用)
+
+<img src="https://img.saraba1st.com/forum/202312/31/035449wyw2gygxfy1euvul.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034534__01__01.jpg</strong> (187.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:54 上传
+
+文本到化身任务的视觉对比，前两行是“head”的结果，其余的则是“body”的结果
+
+<img src="https://img.saraba1st.com/forum/202312/31/035537dj0s4me8edje3v6j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034556__01.jpg</strong> (64.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:55 上传
+
+3D领域自适应任务的定量对比
+
+<img src="https://img.saraba1st.com/forum/202312/31/035106hg586owiv5jjj555.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-035043.jpg</strong> (44.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:51 上传
+
+对文本到化身生成的用户偏好
+
+<img src="https://img.saraba1st.com/forum/202312/31/035020evn83ct87zzumux3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034609__01.jpg</strong> (132.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:50 上传
+
+纹理细化的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/31/035123wa1mrn2n6may66mi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034609__02.jpg</strong> (227.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:51 上传
+
+相对距离损失的消融实验
+
+<img src="https://img.saraba1st.com/forum/202312/31/035128dm3q9e9iaupmpiey.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034615__01.jpg</strong> (96.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:51 上传
+
+扩散引导重建损失的消融实验，EG3D中的ToRGB模块与Gtrain一起训练，输入文本是“a close-up of a woman with green hair”
+
+<img src="https://img.saraba1st.com/forum/202312/31/035132tsyoi336eiq344y1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231231-034615__02.jpg</strong> (207.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-31 03:51 上传
+
+用例特定的可学习三平面和多尺度总变分损失(multi-scale total variation loss)的消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

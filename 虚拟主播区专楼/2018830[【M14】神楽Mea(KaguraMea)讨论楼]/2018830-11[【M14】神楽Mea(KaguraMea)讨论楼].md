@@ -1,0 +1,370 @@
+
+*****
+
+####  掉头学姐  
+##### 16038#       发表于 2023-12-16 22:47
+
+老女人，捏不出ai声音了
+
+
+*****
+
+####  受菊  
+##### 16039#       发表于 2023-12-17 17:05
+
+CM商品出来了，羊党赢麻了，但是不知道该怎么买，怒
+
+
+*****
+
+####  thisisaspider  
+##### 16040#       发表于 2023-12-17 17:29
+
+羊党最强！！
+
+
+*****
+
+####  TiHaru  
+##### 16041#       发表于 2023-12-18 20:36
+
+难绷
+
+<img src="https://img.saraba1st.com/forum/202312/18/203605gssg0g4qzfgsq04m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5192.jpeg</strong> (288.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 20:36 上传
+
+
+*****
+
+####  ylssb10438  
+##### 16042#       发表于 2023-12-19 01:36
+
+好久没关注，夜宵是熟人吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 16043#       发表于 2023-12-19 06:07
+
+明面上没接触<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TiHaru  
+##### 16044#       发表于 2023-12-20 18:14
+
+<img src="https://img.saraba1st.com/forum/202312/20/181402t4ea2y4tbga4hiag.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5195.png</strong> (63.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 18:14 上传
+
+syuni前辈，这辈子和麻就联了一次宇宙人狼
+
+
+*****
+
+####  thisisaspider  
+##### 16045#       发表于 2023-12-20 21:15
+
+应该和麻麻多联动的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IrisL  
+##### 16046#       发表于 2023-12-22 22:12
+
+不懂就问，mea字幕组是彻底毕业了吗，本来就没干什么了现在转播也不转了
+
+
+*****
+
+####  专业划水人员  
+##### 16047#       发表于 2023-12-23 12:23
+
+昨天过节啊，没人有空转也正常。
+
+
+*****
+
+####  thisisaspider  
+##### 16048#       发表于 2023-12-24 00:41
+
+只能说在家约会那个音声是真的不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TiHaru  
+##### 16049#       发表于 2023-12-24 11:54
+
+这音声也太水了
+
+
+*****
+
+####  秋游刃  
+##### 16050#       发表于 2023-12-24 14:36
+
+有吐息和舔耳朵吗？
+
+
+*****
+
+####  thisisaspider  
+##### 16051#       发表于 2023-12-24 15:52
+
+可惜都没有<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 下次继续努力 等等就有了
+
+
+*****
+
+####  TiHaru  
+##### 16052#       发表于 2023-12-25 12:57
+
+想给罗做h的asmr让他直播听
+
+
+*****
+
+####  古战场亡魂  
+##### 16053#       发表于 2023-12-25 17:34
+
+ 本帖最后由 古战场亡魂 于 2023-12-25 17:37 编辑 
+
+直接来个传送吧，唱的挺好的。帮大家进准降落了，点进去点播放就能听歌。
+[https://www.bilibili.com/video/BV1B94y1w7iq?t=3010.3](https://www.bilibili.com/video/BV1B94y1w7iq/?spm_id_from=333.337.search-card.all.click&amp;vd_source=4ed576429f40b9097dd186035f191da1)
+
+
+*****
+
+####  skyfaqer  
+##### 16054#       发表于 2023-12-25 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63436892&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2023-12-25 17:34</a>
+
+直接来个传送吧，唱的挺好的。帮大家进准降落了，点进去点播放就能听歌。
+
+https://www.bilibili.com/video/ ...</blockquote>
+怎么你这传送在开头啊
+
+
+*****
+
+####  yywzjsw  
+##### 16055#       发表于 2023-12-26 09:34
+
+骗进来把🐶杀，音声合起来没20分钟，1w，评价除了天狗不要买
+
+
+*****
+
+####  秋游刃  
+##### 16056#       发表于 2023-12-26 15:11
+
+不行，还是不想让咩找野男人，想让她多跟观众玩…
+
+
+*****
+
+####  Homuxus  
+##### 16057#       发表于 2023-12-27 10:34
+
+咩的海澜之家
+
+B6BFF89A5FB17CD21A8837D7B24A024C.jpg
+(715.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-27 10:34 上传
+
+<img src="https://img.saraba1st.com/forum/202312/27/103401b8m4y4gm8xv9mjyk.jpg" referrerpolicy="no-referrer">
+
+QQ图片20231227103000.jpg
+(729.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-27 10:34 上传
+
+<img src="https://img.saraba1st.com/forum/202312/27/103405aay7xeb6xoo7loxo.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 16058#       发表于 2023-12-27 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63445671&amp;ptid=2018830" target="_blank">秋游刃 发表于 2023-12-26 15:11</a>
+不行，还是不想让咩找野男人，想让她多跟观众玩…</blockquote>
+好在她似乎没那么大事业心，主要活动还是在自己直播间的一亩三分地打转，明年更是说除了直播啥也不做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  十九号大侠  
+##### 16059#       发表于 2023-12-27 15:25
+
+主播的话不要尽信
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  往世雷书  
+##### 16060#       发表于 2023-12-27 16:36
+
+确实，她还说过要两三年就毕业呢<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋游刃  
+##### 16061#       发表于 2023-12-27 17:32
+
+她说这话就跟我说自己要早睡早起一样，听听就好。
+
+
+*****
+
+####  TiHaru  
+##### 16062#       发表于 2023-12-28 15:00
+
+是要打k4sen杯吗？rank起来了还
+
+我看上次一起打过的uruca队里没她，以为不参加了
+
+
+*****
+
+####  TiHaru  
+##### 16063#       发表于 2023-12-28 16:04
+
+圣诞后的第二天就和大叔们去了忘年会
+
+
+*****
+
+####  TiHaru  
+##### 16064#       发表于 2023-12-28 17:54
+
+让经纪人跑腿去给她买了新电脑
+
+
+*****
+
+####  往世雷书  
+##### 16065#       发表于 2023-12-28 18:48
+
+有经纪人，那还是个人势吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋游刃  
+##### 16066#       发表于 2023-12-28 19:39
+
+她不老早就有经纪人了吗？不过今年确实提到经纪人的次数比往年多。
+
+
+*****
+
+####  十九号大侠  
+##### 16067#       发表于 2023-12-29 08:35
+
+以后在开个工作室，当老板，也是个人势吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  往世雷书  
+##### 16068#       发表于 2023-12-29 09:23
+
+唉，不纯了，要脱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  thisisaspider  
+##### 16069#       发表于 2023-12-29 19:57
+
+苔姨也是个人势<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  掉头学姐  
+##### 16070#       发表于 2023-12-30 10:07
+
+cos质量这么高的吗
+
+
+*****
+
+####  TiHaru  
+##### 16071#       发表于 2023-12-30 11:02
+
+p图罢了
+
+
+*****
+
+####  秋游刃  
+##### 16072#       发表于 2023-12-30 11:46
+
+嗯？这新推……咩她去现场了？
+
+
+*****
+
+####  yywzjsw  
+##### 16073#       发表于 2023-12-30 12:13
+
+为什么没帆布袋，你麻还是一如既往的拉胯
+
+
+*****
+
+####  秋游刃  
+##### 16074#       发表于 2023-12-30 20:22
+
+心情是真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 16075#       发表于 2023-12-31 17:04
+
+今年一个人过年了
+
+
+*****
+
+####  掉头学姐  
+##### 16076#       发表于 2024-1-1 00:06
+
+新年快乐
+

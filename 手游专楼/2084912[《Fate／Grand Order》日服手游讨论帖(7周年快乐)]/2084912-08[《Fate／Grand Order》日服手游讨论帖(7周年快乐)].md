@@ -1485,3 +1485,23 @@ fgo要存货那可太多了吧，比如突然配合魔夜出个青子什么的�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  khxooo  
+##### 10651#       发表于 2024-1-1 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63497603&amp;ptid=2084912" target="_blank">GuDaZi 发表于 2023-12-31 23:30</a>
+
+泳装要求通关2.7。艾蕾泳装，烟哥灵衣会不会落地</blockquote>
+不是2.7，是奏章1哦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 10652#       发表于 2024-1-1 01:57
+
+20符
+
+一張2024禮裝...結束這回合
+

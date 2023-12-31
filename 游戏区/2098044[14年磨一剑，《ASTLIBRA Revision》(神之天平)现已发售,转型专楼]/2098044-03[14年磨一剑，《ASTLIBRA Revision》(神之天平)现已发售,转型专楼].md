@@ -510,3 +510,16 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 
 —— 来自 Xiaomi 23043RP34C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  xxxxx09090  
+##### 3776#       发表于 2024-1-1 03:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63499017&amp;ptid=2098044" target="_blank">spieler 发表于 2024-1-1 01:13</a>
+我去，进了新章才无意拿到了世界树之花，前面真实白跑了那么多路
+主角和宰相有关系？那段剧情提到的</blockquote>
+我记得是新章打到伊利西昂之后会有点暗示
+
+—— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

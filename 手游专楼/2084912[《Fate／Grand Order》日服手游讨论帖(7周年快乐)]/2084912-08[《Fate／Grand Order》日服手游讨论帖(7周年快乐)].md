@@ -1607,3 +1607,16 @@ IMG_2765.jpeg
 FSR作为你月这几年难得的好活，联动能捞出来赚钱的随便拉都够人数了：日本饭桶、伊织、 ...</blockquote>
 根据剪影，丑御前9成机会是5星，木曾仪仲4星，那个Caster3星，第二池5星亚里亚/周瑜，然后4星就是剩下的那个，然后甲贺三郎3星，伊织送，估计就差不多了。
 
+
+*****
+
+####  清河子  
+##### 10659#       发表于 2024-1-1 03:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63499383&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-1-1 02:51</a>
+根据剪影，丑御前9成机会是5星，木曾仪仲4星，那个Caster3星，第二池5星亚里亚/周瑜，然后4星就是剩下的那 ...</blockquote>
+亚里亚最好真的和周瑜一个池子，抽起来舒服
+分池就是折磨我了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+以及刚打了下试用本，武尊这宝具设计认真的吗，说好的呆毛番位怎么做成这样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

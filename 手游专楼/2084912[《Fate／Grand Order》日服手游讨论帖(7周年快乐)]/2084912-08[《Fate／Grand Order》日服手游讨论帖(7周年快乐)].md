@@ -1578,3 +1578,32 @@ FSR作为你月这几年难得的好活，联动能捞出来赚钱的随便拉�
 个人还是很乐意分开的，不吃土比什么都强
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 10657#       发表于 2024-1-1 02:48
+
+他这个手真的没问题吗？我没抽到，有没有游戏高清图看下？
+
+IMG_2765.jpeg
+(274.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 02:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/01/024826dq05q20q31wu4qoz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 10658#       发表于 2024-1-1 02:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63499328&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-1 02:25</a>
+
+你们咋还真纠结人的
+
+FSR作为你月这几年难得的好活，联动能捞出来赚钱的随便拉都够人数了：日本饭桶、伊织、 ...</blockquote>
+根据剪影，丑御前9成机会是5星，木曾仪仲4星，那个Caster3星，第二池5星亚里亚/周瑜，然后4星就是剩下的那个，然后甲贺三郎3星，伊织送，估计就差不多了。
+

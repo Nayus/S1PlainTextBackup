@@ -7645,3 +7645,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天下午有绝赞高火力低覆盖鲑坝，新的一年新的坐牢工启动
 
+
+*****
+
+####  炫夜鳞  
+##### 2269#       发表于 2024-1-1 12:42
+
+打了一小时倒退十分，霉比麻了
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

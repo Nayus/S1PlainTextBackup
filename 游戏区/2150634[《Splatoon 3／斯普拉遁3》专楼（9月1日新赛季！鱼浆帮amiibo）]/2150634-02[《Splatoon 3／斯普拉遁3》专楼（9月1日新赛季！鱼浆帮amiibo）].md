@@ -7754,3 +7754,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  hashimotoryo  
+##### 2280#       发表于 2024-1-1 18:40
+
+拿到这个月新衣服立刻耻辱下工  太难了
+

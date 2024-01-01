@@ -1788,3 +1788,26 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 
 福袋毫无意外的芜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 10675#       发表于 2024-1-1 18:32
+
+为什么都在车立绘啊，这个立绘只能说普通……按这逻辑，去年麻婆那几个立绘可以直接死刑了好吗
+
+*****
+
+####  保罗赫伯特  
+##### 10676#       发表于 2024-1-1 18:42
+
+<img src="https://img.saraba1st.com/forum/202401/01/184139bmlytm598z3uowi7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 18:41 上传
+
+看有人画出剪影轮廓图了，不知最后正确率如何<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

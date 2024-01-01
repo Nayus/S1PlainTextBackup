@@ -21319,3 +21319,208 @@ github项目代码仓库:https://github.com/youngLBW/DiffusionGAN3D
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1142#       发表于 2024-1-2 03:20
+
+SynCLR
+
+从模型中学习视觉可以与从数据中学习视觉相媲美
+
+github项目主页:https://github.com/google-research/syn-rep-learn
+
+SynCLR，一种可以从合成图像和合成字幕说明中学习视觉表征的新方法，不需要任何真实数据，通过使用大型语言模型合成了大量的图像字幕说明数据集，然后利用现成的文本到图像模型为每个合成字幕说明生成多个图像
+
+通过对这些合成图像进行对比学习(contrastive learning)来进行视觉表征学习，将具有相同字幕说明的图像视为正样本对(positive pairs)，最终得到的表征在许多下游任务上都有很好的迁移性能，在图像分类任务上则可以与其他通用视觉表征学习方法(如CLIP和DINO v2)相媲美
+
+此外，在语义分割等密集预测任务中，SynCLR的性能大幅优于先前的自监督方法，例如在ADE20k数据集上，对于ViT-B/16模型，相比MAE和iBOT，mIoU提高了6.2和4.3个百分点
+
+<img src="https://img.saraba1st.com/forum/202401/02/031633bpl7m5du1epy941k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031102__01.jpg</strong> (163.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:16 上传
+
+视觉表征学习的三种范式
+
+上方:传统方法，例如CLIP，仅从真实数据中学习
+中间:最近的方法，例如StableRep，从真实文本和生成图像中学习
+下方:本文方法，SynCLR，从合成文本与合成图像中学习，尽管没有直接观察过任何真实数据，但在ImageNet上可以与CLIP的线性性迁移性能相媲美
+
+<img src="https://img.saraba1st.com/forum/202401/02/031640w42wp28yyqiztyqm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031116__01.jpg</strong> (258.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:16 上传
+
+不同的学习目标对待分类粒度也有不同
+
+这些图片是通过两个提示生成的:“a golden retriever, wearing sunglasses and a beach hat, rides a bike”和“a cute golden retriever sits in a house made of sushi”
+
+SimCLR把每个图片都视为一个类别，而监督的交叉熵把它们都视为同一个“golden retrieval”类别，前者不考虑图片之间的共享语义，后者粒度粗略，忽略了主体/背景之间的动作或关系，而本文方法SynCLR，通过句子来定义视觉类别
+
+<img src="https://img.saraba1st.com/forum/202401/02/031650nn2coil2imuxjjxx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031132__01.jpg</strong> (470.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:16 上传
+
+展示了三个合成模板的示例，这些示例被用作Llama-2进行上下文学习任务的演示，总共有176个这样的示例，其中大部分是通过提示GPT-4生成的，而少数其他的是人为生成的(在一项1000万级的合成字幕说明试验中，没有关注到包括或排除人类生成示例之间的显著差异)
+
+<img src="https://img.saraba1st.com/forum/202401/02/031656t1dwjzmyiwakjdmd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031150__01.jpg</strong> (93.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:16 上传
+
+使用 Llama-2生成上下文字幕说明，其中，为每个推理r随机抽取三个上下文中的示例
+
+<img src="https://img.saraba1st.com/forum/202401/02/031703vejzo6omsmsotm90.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031209__01.jpg</strong> (1018.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:17 上传
+
+SynCLER工作流程中生成的合成字幕和图像的随机示例，每个字幕说明配有4张图像
+
+<img src="https://img.saraba1st.com/forum/202401/02/031708p7e7pez70p575pkp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031229__01.jpg</strong> (85.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:17 上传
+
+不同字幕说明合成策略的对比，报告了ImageNet线性评估的top-1准确率和9个细粒度数据集的平均准确率，每个项目包括10M个字幕说明和每个字幕说明的4张图片
+
+<img src="https://img.saraba1st.com/forum/202401/02/031713ntjkzwe5l7t0ctew.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031229__02.jpg</strong> (18.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:17 上传
+
+无分类引导尺度(CFG/Classifier-free guidance scale)，对比损失更偏好较小的CFG，但对其并不敏感
+
+<img src="https://img.saraba1st.com/forum/202401/02/031741oa4nnaaqppjajiub.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031240__01.jpg</strong> (63.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:17 上传
+
+模型的重要组件，ViT-B/16模型经过85000次迭代(iterations)，研究了影响ImageNet线性评估、细粒度分类(平均)和ADE20k分割的模块
+
+<img src="https://img.saraba1st.com/forum/202401/02/031747r8g2i8ms0cpgbvzb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031240__02.jpg</strong> (37.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:17 上传
+
+不同学习目标的对比，这些目标假设了不同级别的分类粒度，本文方法的建模方式，也即是，将字幕说明定义为类别，优于其他两种
+
+<img src="https://img.saraba1st.com/forum/202401/02/031809nv25ocmazrzfoom2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031257__01.jpg</strong> (372.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:18 上传
+
+在ImageNet线性评估和细粒度分类上的对比，尽管只使用了合成数据，SynCLR在性能上与OpenAI的CLIP和DINO v2模型相当
+
+*表示DINO v2模型是从ViT-g模型中蒸馏出来的，因此在这个对比中具有优势
+†表示重新运行时仅使用cls标记，而不是在原始DINO v2论文中提出的多层级连接(concatenating multiple layers)
+
+<img src="https://img.saraba1st.com/forum/202401/02/031814gekc80yoe13zcycq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031310__01.jpg</strong> (132.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:18 上传
+
+使用UperNet进行ADE20K语义分割(mIoU)，采用单尺度的512x512分辨率
+†表示使用14x14的区块尺寸，因此可以适应518x518的分辨率
+
+<img src="https://img.saraba1st.com/forum/202401/02/031820leq8j48tg9t9ffp9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031310__02.jpg</strong> (156.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:18 上传
+
+在ImageNet上进行微调评估的Top-1准确率，模型在224x224的分辨率下进行微调
+†表示使用14x14的区块尺寸
+
+<img src="https://img.saraba1st.com/forum/202401/02/031929hfa33df05drmaarw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031317__01.jpg</strong> (126.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:19 上传
+
+对于DINO v2和SynCLR未见过的概念的泛化能力，SynCLR优于DINO v2，CLIP取得了最佳准确率，可能是因为其训练数据包括与这些数据集相似的概念
+
+<img src="https://img.saraba1st.com/forum/202401/02/031939yllwjifigw747i47.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031317__02.jpg</strong> (47.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:19 上传
+
+在相同的合成数据上对比SynCLR和CLIP，观察到:
+1.SynCLR优于CLIP
+2.在相同设置中，即每个字幕说明生成4张图像，对于SynCLR和CLIP而言，SynCaps-150M都提供了更好的表征能力
+
+<img src="https://img.saraba1st.com/forum/202401/02/031957o8dcm53p5p59889d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031334__01.jpg</strong> (420.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:19 上传
+
+PCA可视化，根据DINO v2的方法，在同一组图像的区块之间进行PCA分析，并着色它们的前3部分，与DINO v2相比，SynCLR对汽车的映射更准确，但对狗略差一些，对两种方法都使用了ViT-L/14，在图像被输入网络之前，将图像调整为336x448的分辨率，得到24x32的可视化网格
+
+<img src="https://img.saraba1st.com/forum/202401/02/032004gz4riccpvzzpqure.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031346__01.jpg</strong> (51.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:20 上传
+
+不同训练尺度下的ImageNet的线性准确率
+
+<img src="https://img.saraba1st.com/forum/202401/02/032009c89df05po8peeneo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-031346__02.jpg</strong> (53.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:20 上传
+
+不同训练尺度下的细粒度分类
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

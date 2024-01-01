@@ -5217,3 +5217,12 @@ MYGO是2023第一原创本来也没争议吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5ch这品味有点奇特啊
 
+
+*****
+
+####  CyDiablo  
+##### 6482#       发表于 2024-1-1 13:54
+
+附5ch历年排行
+<img src="https://p.sda1.dev/15/26bcd4d25b5e85572bb07a00bbcba745/6tyemr95l8g8cgb4e4pt7s7ds.jpg" referrerpolicy="no-referrer">
+

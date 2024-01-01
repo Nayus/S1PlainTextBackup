@@ -1760,3 +1760,23 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 
 比较意外的是没开全修炼场+减半，倒是开了白纸化减半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 10673#       发表于 2024-1-1 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63501751&amp;ptid=2084912" target="_blank">beer 发表于 2024-1-1 13:23</a>
+
+去年不还有日替up卡池的吗？怎么今年就只有一个新年从者吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202401/01/143401nmxzthvthuvzmk3e.png" referrerpolicy="no-referrer">
+
+<strong>info_image_03.png</strong> (151.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 14:34 上传
+
+有的
+

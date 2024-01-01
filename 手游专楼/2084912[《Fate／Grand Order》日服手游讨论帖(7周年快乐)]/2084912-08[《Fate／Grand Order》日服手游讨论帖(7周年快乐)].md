@@ -1707,3 +1707,25 @@ fsr联动会把今年五月的联动名额顶掉吗
 
 — from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  miro112233  
+##### 10668#       发表于 2024-1-1 13:06
+
+我预期中fsr联动最拉的安排是五星丑御前，四星义仲，送伊织。亚里亚在fsr里就没有模组，照武尊这个照抄原作的架势我估计fgo也不会现在给她原创出模组来。其他人能出场就算赢。
+要比这更拉就是连义仲都没有<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+fsr这个联动一看就是发售前就定好的，而实体版特典只有剑枪骑狂四组的塔罗牌，这次月球春晚正好包含了剑枪狂三骑从者，只差个骑阶丑御前了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至于发售后才发现人气超出预期的角色想加塞按螺旋狗的fw程度也赶不出来的，不用指望了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  清风朗月  
+##### 10669#       发表于 2024-1-1 13:08
+
+ 本帖最后由 清风朗月 于 2024-1-1 13:10 编辑 
+
+明年声优圣地巡礼会是丹下樱游罗马吗
+

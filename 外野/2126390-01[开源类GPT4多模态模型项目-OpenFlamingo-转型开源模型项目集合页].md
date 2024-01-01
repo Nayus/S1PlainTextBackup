@@ -21524,3 +21524,75 @@ PCA可视化，根据DINO v2的方法，在同一组图像的区块之间进行P
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1143#       发表于 2024-1-2 03:49
+
+LARP
+
+用于开放世界游戏的语言代理者角色扮演(Language-Agent Role Play for Open-World Games)
+
+项目主页:https://miao-ai-lab.github.io/LARP/
+
+github项目代码仓库:https://github.com/MiAO-AI-Lab/LARP
+
+语言代理者在定义明确的设置中以及简短的时间线内展现了令人印象深刻的问题解决能力，然而，随着开放世界模拟中不断演化的复杂性，迫切需要一种能够灵活适应复杂环境并始终维持长期记忆以确保一致的行动
+
+为了弥合语言代理者与开放世界游戏之间的差距，引入了基于角色扮演的语言代理者(LARP/Language Agent for Role-Playing)，其中包括一个涵盖记忆处理和决策辅助的认知架构，一个带有反馈驱动可学习行动空间(feedback-driven learnable action space)的环境交互模块(environment interaction module)和一个促进各种人格对齐(alignment of various personalities)的后处理方法(post-processing method)
+
+LARP框架改进了用户和代理者之间的交互，预先定义了独特的背景和人格，最终增强了在开放世界环境中的游戏体验，此外，它还突显了语言模型在娱乐、教育和各种模拟场景等领域的多样化应用
+
+<img src="https://img.saraba1st.com/forum/202401/02/034855hizlziitv9tmmu43.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-034721__01.jpg</strong> (469.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:48 上传
+
+LARP的认知架构概览图
+
+<img src="https://img.saraba1st.com/forum/202401/02/034859jmobbegdesqyve1j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-034731__01.jpg</strong> (259.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:48 上传
+
+LARP的认知工作流程，这代表一个循环:从长期记忆和观察中获取的信息被记忆处理模块处理，并传输到工作记忆模块，工作记忆模块中的信息与观察到的信息一起输入到决策辅助模块中，最终生成一个决策或对话
+
+记忆处理有三个主要阶段:编码、存储和回忆
+
+编码是将信息转化为可以存储在记忆中的形式的过程，存储是在记忆中维持信息的过程，回忆是从记忆中检索信息的过程
+
+<img src="https://img.saraba1st.com/forum/202401/02/034907eymrth6clrmcyses.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-034740__01.jpg</strong> (189.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:49 上传
+
+回忆心理过程的详细控制流程，首先对观察进行自询问(self-asking)，获取自询问问题(self-ask questions)，将自询问问题作为查询(queries)，采用不同的检索方法
+
+1. 基于查询生成逻辑编程语言(logic programming language)和概率编程语言(probabilistic programming language)用于预测逻辑陈述(predicate logic statements)
+2. 从查询中提取关键词后进行向量相似度搜索
+3. 基于查询与问题-答案对(question-answer pairs)中的问题之间的语句相似度搜索问题-答案对
+
+Qself-ask表示用作查询的自询问问题，Qlogic表示预测的逻辑查询陈述，Qkey表示提取的关键词，Q'A表示问题-答案对
+
+<img src="https://img.saraba1st.com/forum/202401/02/034925lwz5q6ox5nlslubs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-034749__01.jpg</strong> (212.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 03:49 上传
+
+环境互动
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

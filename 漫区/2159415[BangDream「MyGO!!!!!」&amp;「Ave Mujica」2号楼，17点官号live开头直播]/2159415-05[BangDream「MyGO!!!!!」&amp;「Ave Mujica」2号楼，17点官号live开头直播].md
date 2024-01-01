@@ -5683,3 +5683,50 @@ mygo这五个目前没有任何一组两两连线让我感觉可以磕一下的
 但是现在来看林大鼓明明是个女たらし
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  宿  
+##### 6532#       发表于 2024-1-2 00:09
+
+<img src="https://img.saraba1st.com/forum/202401/02/000826i6ozoq666b1egv1l.png" referrerpolicy="no-referrer">
+
+<strong>mygoNY2.png</strong> (709.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 00:08 上传
+
+虽然晚了点，MyGO的新年快乐，相亲相爱一家人！（嗯？
+
+其实想说的挺多的，但是太矫情。
+
+也许画不了画的某个晚上会写点。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 基神的强袭自由| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  基神的强袭自由  
+##### 6533#       发表于 2024-1-2 00:12
+
+[https://forms.gle/WW2Y2pN5PaUd8ee37](https://forms.gle/WW2Y2pN5PaUd8ee37)
+
+<img src="https://img.saraba1st.com/forum/202401/02/001234m88n8cmk6m8q8lo8.png" referrerpolicy="no-referrer">
+
+<strong>}}BJ7U)0E2DQL~O4RUBKBNW.png</strong> (16.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 00:12 上传
+

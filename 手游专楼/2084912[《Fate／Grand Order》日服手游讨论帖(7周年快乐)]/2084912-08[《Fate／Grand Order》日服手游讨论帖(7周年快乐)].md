@@ -1870,3 +1870,11 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">螺旋社好像工作环境极度宽松...........也是，毕竟不用怎么努力都能赚大钱，产能拉一点也没关系
 
+
+*****
+
+####  希望之花  
+##### 10683#       发表于 2024-1-2 01:05
+
+这些一人多役的到时候轮流出国，轮到UMB只能坐电车去京都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

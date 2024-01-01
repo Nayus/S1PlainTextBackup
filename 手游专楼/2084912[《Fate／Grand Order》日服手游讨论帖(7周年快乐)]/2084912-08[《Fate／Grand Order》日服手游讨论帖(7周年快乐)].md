@@ -1780,3 +1780,11 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 
 有的
 
+
+*****
+
+####  khxooo  
+##### 10674#       发表于 2024-1-1 17:51
+
+福袋毫无意外的芜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -538,3 +538,13 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 
 3，只是猜测，无定论。
 
+
+*****
+
+####  adw667  
+##### 3778#       发表于 2024-1-1 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63488446&amp;ptid=2098044" target="_blank">8HIT 发表于 2023-12-30 22:54</a>
+打到第六章感觉打不下去了，小怪和boss都会不停防御，割草根本割不动，难道有特别的招式可以破防吗？ ...</blockquote>
+6章会防御的小怪我只能想到王城卫兵这个做得一坨的玩意，攻击不仅伤害高，判定范围和时间还比动画长真是整个游戏独一份的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

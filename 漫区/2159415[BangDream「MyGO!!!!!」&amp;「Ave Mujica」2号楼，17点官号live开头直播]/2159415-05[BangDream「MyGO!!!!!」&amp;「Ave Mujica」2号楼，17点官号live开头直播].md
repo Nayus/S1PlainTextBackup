@@ -5582,3 +5582,26 @@ nga一直看不起mygo啊
 
 要磕不如磕mhai咯<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 6521#       发表于 2024-1-1 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63505379&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-1 21:00</a>
+
+怎么没人嗑青木凛，明明是非常有对照性的两个人
+
+一个工作狂，天天在外面跑场子简直是soyo妈再世，一 ...</blockquote>
+两个人都是骨子里的独，很适合“搭伙过日子”，但真要创作点什么的时候感觉还是太淡了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  豚厨二象性  
+##### 6522#       发表于 2024-1-1 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63505379&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-1 21:00</a>
+怎么没人嗑青木凛，明明是非常有对照性的两个人
+一个工作狂，天天在外面跑场子简直是soyo妈再世，一 ...</blockquote>
+过于生硬
+

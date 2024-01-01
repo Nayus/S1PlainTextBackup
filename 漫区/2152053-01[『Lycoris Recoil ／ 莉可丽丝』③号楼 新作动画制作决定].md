@@ -18381,3 +18381,11 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 对草台先质疑再质疑<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 1426#       发表于 2024-1-1 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">爱信等
+

@@ -1819,3 +1819,14 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 
 武尊二破是P4直斗的捏他啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 10678#       发表于 2024-1-1 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63501510&amp;ptid=2084912" target="_blank">被子十三 发表于 2024-1-1 12:57</a>
+
+23年月球春晚，什么Fate新项目的消息都没有，型月其他作品的新内容也没有（魔夜画大饼除外），新年从者拿联 ...</blockquote>
+我预言史上最拉这个称号24年还会再来一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

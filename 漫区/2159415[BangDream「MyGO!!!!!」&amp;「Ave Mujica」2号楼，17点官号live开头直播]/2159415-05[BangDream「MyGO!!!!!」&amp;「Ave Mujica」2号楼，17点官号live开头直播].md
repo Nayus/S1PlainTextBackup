@@ -5671,3 +5671,15 @@ mygo这五个目前没有任何一组两两连线让我感觉可以磕一下的
 
 鼓爱凛能磕的有福了，那林小姐随便划拉两下能再找一堆
 
+
+*****
+
+####  江口夕  
+##### 6531#       发表于 2024-1-1 22:35
+
+ 本帖最后由 江口夕 于 2024-1-1 22:39 编辑 
+
+等发现谁先陪立石凛打几把无畏契约再磕不迟。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是现在来看林大鼓明明是个女たらし
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

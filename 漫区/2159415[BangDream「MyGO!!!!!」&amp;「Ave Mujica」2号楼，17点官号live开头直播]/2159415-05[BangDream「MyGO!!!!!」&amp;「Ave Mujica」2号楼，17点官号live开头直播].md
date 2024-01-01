@@ -5078,3 +5078,53 @@ https://weibo.com/7521361627/NzHML2wgp?pagetype=profilefeed
 
 [https://twitter.com/saihu715/status/1739603746928353371](https://twitter.com/saihu715/status/1739603746928353371)
 
+
+*****
+
+####  御幸一也  
+##### 6473#       发表于 2024-1-1 10:36
+
+還有5天就發售了，雜誌還是網路上到處都買不到<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+好了要店頭碰運氣了
+
+<img src="https://img.saraba1st.com/forum/202401/01/103550r73kx3ipktfxq3fv.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (51.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202401/01/103551j1hh0mtzwi06zzcp.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (1).jpg</strong> (13.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202401/01/103552faaivikxkk7y46qo.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (2).jpg</strong> (14.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202401/01/103552ftkjih8khf4d2zqs.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (3).jpg</strong> (28.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202401/01/103553wkqowo9pk0911d9p.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (4).jpg</strong> (15.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 10:35 上传
+

@@ -5539,3 +5539,20 @@ nga一直看不起mygo啊
 
 年一2.5太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  豚厨二象性  
+##### 6516#       发表于 2024-1-1 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63504892&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-1 20:08</a>
+这得去隔壁滚楼</blockquote>
+滚楼这方面也就一般般
+
+*****
+
+####  豚厨二象性  
+##### 6517#       发表于 2024-1-1 20:25
+
+。
+

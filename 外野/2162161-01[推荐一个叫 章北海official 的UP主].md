@@ -1140,3 +1140,17 @@ https://bbs.saraba1st.com/2b/thread-2165595-1-1.html</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  小数点  
+##### 125#       发表于 2024-1-1 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63493057&amp;ptid=2162161" target="_blank">sdhgak1234 发表于 2023-12-31 17:03</a>
+看多了腻得慌，有些明摆着拿极端案例或者某种微小但乐子大的可能性大篇幅地讨论，给我一种类似精神烈酒的 ...</blockquote>
+你如果看圆脸视频就知道了，讲清楚了很多传的莫名其妙的美国新闻的来龙去脉，咋一听营销号炒作的新闻觉得离谱，比如前白宫科学家被诈骗还被税务局找上门的事情，听他一分析，税务局做的没有毛病，因为程序正义，美国那边评论人也只是说这样不近人情。
+
+如果你只看得到他在说美国水深火热，再看你喜欢啥up主，那我基本上就知道你是把自己摆在一个什么位置上了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

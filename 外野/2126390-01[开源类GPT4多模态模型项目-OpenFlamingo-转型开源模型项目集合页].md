@@ -21596,3 +21596,51 @@ Qself-ask表示用作查询的自询问问题，Qlogic表示预测的逻辑查�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1144#       发表于 2024-1-2 04:08
+
+zeroshot-classifier
+
+通过自然语言推理构建高效的通用分类器
+
+相关论文:https://arxiv.org/abs/2312.17543
+
+github项目主页:https://github.com/MoritzLaurer/zeroshot-classifier
+
+hugface主页:https://huggingface.co/MoritzLaurer
+
+生成式大型语言模型(LLMs)由于文本生成的普适性，在少样本(fewshot)和零样本(zeroshot)学习中已成为主流选择，然而，许多用户并不需要生成式LLMs的广泛能力，当他们只想自动化一个分类任务时，较小的类BERT的模型也可以学习通用任务，使它们能够在不需要微调(零样本分类)的情况下完成任何文本分类任务，或者仅通过少量示例学习新任务(少样本分类)，同时比生成式LLMs更高效
+
+本文(1)解释了如何将自然语言推理(NLI/Natural Language Inference)用作遵循类似生成式LLMs指令微调原则的通用分类任务，(2)还提供了一个逐步指南和可重复使用的Jupyter笔记本，用于构建通用分类器，(3)共享了训练于33个数据集、包含389个不同类别的通用分类器的结果
+
+共享的部分代码已被用于训练早期的旧零样本分类器，同时截至2023年12月，在Hugging Face Hub下载次数超过5500万次，而新分类器则提高了9.4%的零样本性能
+
+<img src="https://img.saraba1st.com/forum/202401/02/040839z4l2klljtjyjocsk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-040358.jpg</strong> (166.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 04:08 上传
+
+<img src="https://img.saraba1st.com/forum/202401/02/040839implj0jnev3p9jh9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-040450.jpg</strong> (71.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 04:08 上传
+
+<img src="https://img.saraba1st.com/forum/202401/02/040839gh79j496e7k6je30.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-040631.jpg</strong> (362.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 04:08 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

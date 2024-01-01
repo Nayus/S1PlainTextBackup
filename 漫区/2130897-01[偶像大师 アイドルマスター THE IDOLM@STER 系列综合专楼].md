@@ -1339,3 +1339,13 @@ sidem营收还能看吧<img src="https://static.saraba1st.com/image/smiley/face2
 
 高山说过黑星没有固定的C位，不同的活动有不同的center
 
+
+*****
+
+####  江口夕  
+##### 1015#       发表于 2024-1-1 17:12
+
+n组开始就没有明显的c了吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

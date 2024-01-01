@@ -56,3 +56,13 @@
 
 什么？终于要寿终正寝了吗？能把AR的APP服装全开，当关服福利吗？（噗
 
+
+*****
+
+####  super_uni  
+##### 5416#       发表于 2024-1-1 20:49
+
+乐观点兴许有新的续作呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

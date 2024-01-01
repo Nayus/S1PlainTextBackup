@@ -5501,3 +5501,41 @@ nga一直看不起mygo啊
 是真的吗</blockquote>
 逆输入都不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是哪来的指点江山
 
+
+*****
+
+####  akirakira  
+##### 6511#       发表于 2024-1-1 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63504878&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-1 20:07</a>
+是真的吗</blockquote>
+声优营业都知道是图一乐，有还不能夸夸了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 6512#       发表于 2024-1-1 20:12
+
+这不是2.5企划基操嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是才有的
+
+*****
+
+####  Aendst  
+##### 6513#       发表于 2024-1-1 20:13
+
+感觉年轻人的第一款2.5企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 6514#       发表于 2024-1-1 20:14
+
+2.5企划的好处之一就是声优互动是真的有可能被官方当成素材逆输入回纸片人的，磕磕更健康<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 6515#       发表于 2024-1-1 20:22
+
+年一2.5太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

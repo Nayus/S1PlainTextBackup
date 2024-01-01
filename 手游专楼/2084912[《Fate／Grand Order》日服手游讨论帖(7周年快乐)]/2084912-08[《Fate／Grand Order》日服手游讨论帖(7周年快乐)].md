@@ -1747,3 +1747,16 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 别的不说，反正我觉得BB Studio已经彻底殉了，FE重制都没声好几年了，本遗老当年还盼着CCC重制跟着一起立项呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在连块画的饼都没得吃，遗老饿死在街头
 产能去哪里了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 10672#       发表于 2024-1-1 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63501751&amp;ptid=2084912" target="_blank">beer 发表于 2024-1-1 13:23</a>
+
+去年不还有日替up卡池的吗？怎么今年就只有一个新年从者吧</blockquote>
+今年有日替的，还没开吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+比较意外的是没开全修炼场+减半，倒是开了白纸化减半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

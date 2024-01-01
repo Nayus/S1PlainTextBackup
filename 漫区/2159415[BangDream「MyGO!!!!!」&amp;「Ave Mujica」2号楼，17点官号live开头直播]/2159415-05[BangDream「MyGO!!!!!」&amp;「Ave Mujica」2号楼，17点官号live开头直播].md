@@ -5432,3 +5432,18 @@ mujica快点端上来吧。定个档让人安心一下也好。
 
 草，这数字好野榜
 
+
+*****
+
+####  LastWalDen  
+##### 6505#       发表于 2024-1-1 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63495827&amp;ptid=2159415" target="_blank">461757753 发表于 2023-12-31 21:30</a>
+
+当时的b站弹幕有没有办法搞到啊，兄弟们</blockquote>
+以前的链接找不到了，我自己搞了一个
+
+链接：[https://pan.baidu.com/s/1hXDivOK7UPdUC5xWDJwJcw](https://pan.baidu.com/s/1hXDivOK7UPdUC5xWDJwJcw) 
+
+提取码：mygo
+

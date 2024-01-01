@@ -5155,3 +5155,11 @@ MyGO那么高？
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  椎名mahuyo  
+##### 6477#       发表于 2024-1-1 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看评论5CH在2020年最高是全员恶玉？那就只能说图一乐了
+

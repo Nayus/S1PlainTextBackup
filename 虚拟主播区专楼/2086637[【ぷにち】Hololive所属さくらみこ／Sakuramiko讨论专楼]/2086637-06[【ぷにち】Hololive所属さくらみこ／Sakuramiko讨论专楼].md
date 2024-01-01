@@ -4343,3 +4343,31 @@ fbk刚才做关系图做了2小时你跟着看了2小时！？
 
 全场唯一的neta曲
 
+
+*****
+
+####  holoan  
+##### 7918#         楼主| 发表于 2024-1-1 11:13
+
+今天早上看日出唯一的遗憾是没有复现2年前直播内跟korone突发联线的情景，当年korone也是在跨年耐久通关游戏，不知道这次为什么评论区没有人诱导提醒，要不这直播就神了
+
+还有小迟到了6分钟（3点多睡回笼觉）不过不影响看日出（50分日出）
+
+<img src="https://img.saraba1st.com/forum/202401/01/111222tgekyjjrpmhkyjje.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/01/111126vb3nnnomzb3mmhao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 11:11 上传
+
+然后说的是今天下午官方节目参加完之后可能要准备直接赶回老家，所以大概率没有时间和精力做直播，回去的时间不会太长
+

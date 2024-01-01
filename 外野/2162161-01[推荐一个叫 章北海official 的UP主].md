@@ -1154,3 +1154,14 @@ https://bbs.saraba1st.com/2b/thread-2165595-1-1.html</blockquote>
 
 —— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  sdhgak1234  
+##### 126#       发表于 2024-1-1 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63503107&amp;ptid=2162161" target="_blank">小数点 发表于 2024-1-1 16:26</a>
+
+你如果看圆脸视频就知道了，讲清楚了很多传的莫名其妙的美国新闻的来龙去脉，咋一听营销号炒作的新闻觉得 ...</blockquote>
+看他就为了看这个不是吗，之前介绍很多黑人为啥不信丑国政府也挺有说服力的，但是前阵子有一两周高强度在YY丑国分裂的情景让我觉得挺无聊，以前每期都看的现在已经挑题目听了，无奈我关注列表时政up就他一个了，你倒是给推荐点啊
+

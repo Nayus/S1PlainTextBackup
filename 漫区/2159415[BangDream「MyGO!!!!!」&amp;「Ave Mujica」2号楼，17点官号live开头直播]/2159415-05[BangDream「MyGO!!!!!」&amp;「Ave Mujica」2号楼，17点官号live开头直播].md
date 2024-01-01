@@ -5329,3 +5329,18 @@ nga一直看不起mygo啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  利维豚  
+##### 6494#       发表于 2024-1-1 18:26
+
+问题是mygo就是好看，黑子都快气死了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6495#       发表于 2024-1-1 18:31
+
+那么续篇动画什么时候端上来，做得好还能再震慑一下无脑黑
+

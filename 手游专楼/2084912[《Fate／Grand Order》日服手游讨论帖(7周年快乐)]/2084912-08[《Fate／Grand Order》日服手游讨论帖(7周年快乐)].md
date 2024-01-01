@@ -1684,3 +1684,26 @@ FSR作为你月这几年难得的好活，联动能捞出来赚钱的随便拉�
 
 fsr联动会把今年五月的联动名额顶掉吗
 
+
+*****
+
+####  被子十三  
+##### 10666#       发表于 2024-1-1 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63499120&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-1-1 01:31</a>
+青子那也是大家都认得的人物啊
+我想要的是当年空降个武藏再来个153主线那样的效果啊</blockquote>
+那是FGO一年能出四章主线还有几个大活动的干劲之年
+你让现在一年一章主线的螺旋社搞这些是不是有点想太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  被子十三  
+##### 10667#       发表于 2024-1-1 12:57
+
+23年月球春晚，什么Fate新项目的消息都没有，型月其他作品的新内容也没有（魔夜画大饼除外），新年从者拿联动从者凑数，是不是世上最拉一年？
+
+— from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

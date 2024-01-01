@@ -5308,3 +5308,13 @@ MyGO本来就是今年数一数二的动画作品</blockquote>
 
 nga的傻x啥反对理由都说不出，上来就是你配吗
 
+
+*****
+
+####  江口夕  
+##### 6492#       发表于 2024-1-1 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一排这几年基本全是轻/重百合
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

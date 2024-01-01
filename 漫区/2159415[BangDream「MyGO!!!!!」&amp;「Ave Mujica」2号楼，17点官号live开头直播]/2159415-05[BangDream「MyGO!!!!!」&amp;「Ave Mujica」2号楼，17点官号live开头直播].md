@@ -5447,3 +5447,16 @@ mujica快点端上来吧。定个档让人安心一下也好。
 
 提取码：mygo
 
+
+*****
+
+####  ddy2811  
+##### 6506#       发表于 2024-1-1 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63503973&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-1-1 18:22</a>
+
+nga一直看不起mygo啊
+
+首页mygo帖子多的那会不知道被抱怨了多少次</blockquote>
+是总有那么些人看不起，但这个帖子数量、每个抱怨帖下面的形势以及各种投票的结果，说服力比什么都来得强大<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

@@ -7697,3 +7697,17 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  炫夜鳞  
+##### 2274#       发表于 2024-1-1 14:59
+
+ 本帖最后由 炫夜鳞 于 2024-1-1 15:02 编辑 
+
+打了三小时从530到了520。太棒了，删游保平安了
+
+大过节的干什么不好，来这坐牢
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

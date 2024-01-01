@@ -5424,3 +5424,11 @@ mujica快点端上来吧。定个档让人安心一下也好。
 角色投票好像祥子也是第一（虽然目前人还不多）</blockquote>
 这数字是什么， 票数吗……样本量也太小了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 6504#       发表于 2024-1-1 19:30
+
+草，这数字好野榜
+

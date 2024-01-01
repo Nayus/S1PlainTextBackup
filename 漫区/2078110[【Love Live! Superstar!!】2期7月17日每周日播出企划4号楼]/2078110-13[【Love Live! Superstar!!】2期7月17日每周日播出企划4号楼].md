@@ -11463,3 +11463,23 @@ nagi的话我只是觉得她的长相适合当演员，不过现在是没什么�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 19064#       发表于 2024-1-1 13:50
+
+一对天降一对幼驯染，都有一只鸟<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4a8dd605ad9ed62360879bfd4ab6d188/CMP_20240101134736789.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 19065#       发表于 2024-1-1 13:50
+
+4th后一切都好起来了，希望今年会更好（许愿2024年亚巡和开国内FMT
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

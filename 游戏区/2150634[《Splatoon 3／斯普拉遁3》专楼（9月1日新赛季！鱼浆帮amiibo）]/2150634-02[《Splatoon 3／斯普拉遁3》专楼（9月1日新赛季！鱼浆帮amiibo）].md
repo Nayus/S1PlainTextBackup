@@ -7711,3 +7711,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  carroy  
+##### 2275#       发表于 2024-1-1 16:12
+
+这期鬼坝拿到狙就是一个被杂鱼拍来拍去的命运
+

@@ -523,3 +523,18 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 
 —— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  christiny  
+##### 3777#       发表于 2024-1-1 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63494632&amp;ptid=2098044" target="_blank">牛奶笛 发表于 2023-12-31 19:42</a>
+
+兄弟们，趁着假期通关了，还有几个问题
+
+1 城堡有蓝色护罩，写着“一般人进不去”，需要什么条件才能进去？ ...</blockquote>
+光剑强是强在剑气，剑气属于间接攻击，享受魔力加成。
+
+3，只是猜测，无定论。
+

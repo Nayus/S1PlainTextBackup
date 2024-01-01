@@ -800,3 +800,12 @@ B站小鱼儿有个人字幕，熟肉&amp; ...</blockquote>
 
 还是诗人厉害啊  nini那边卖百合 诺艾尔这边卖bg 女主两人还能卖一波 河豚和bg人这下都能和解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 71#         楼主| 发表于 2024-1-1 21:47
+
+<img src="https://p.sda1.dev/15/8680fad2057413f38978b1119edc0b20/20240101_214458.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b27b3267de3b7440b6b6338959ad5936/20240101_214520.jpg" referrerpolicy="no-referrer">
+

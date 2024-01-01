@@ -1641,3 +1641,17 @@ FSR作为你月这几年难得的好活，联动能捞出来赚钱的随便拉�
 
 【【FGO】武尊·1技能献祭队友充能25%测试-哔哩哔哩】 [https://b23.tv/sAqBxds](https://b23.tv/sAqBxds)
 
+
+*****
+
+####  fengzijiang  
+##### 10662#       发表于 2024-1-1 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63499749&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-1-1 08:30</a>
+我看B站的测试视频里哈贝喵和阿卡什都能触发染血皇子，陈宫估计也没问题：
+
+【【FGO】武尊·1技能献祭队友 ...</blockquote>
+试了下，不算
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

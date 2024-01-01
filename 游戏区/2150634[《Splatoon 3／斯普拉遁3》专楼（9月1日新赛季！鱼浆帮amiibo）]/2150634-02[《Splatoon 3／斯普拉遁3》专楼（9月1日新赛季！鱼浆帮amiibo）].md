@@ -7801,3 +7801,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 的确是鬼图鬼配置，但凡想赢一把都得要上天的眷顾
 
+
+*****
+
+####  宅音  
+##### 2286#       发表于 2024-1-1 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">新年第一天就给这配置恶心人
+

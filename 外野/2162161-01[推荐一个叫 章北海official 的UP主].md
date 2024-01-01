@@ -1086,3 +1086,14 @@ B友多数顶俄，他怎么当乌友了呢？</blockquote>
 https://bbs.saraba1st.com/2b/thread-2165595-1-1.html</blockquote>
 草，原来是这样
 
+
+*****
+
+####  蒋公卖萌  
+##### 120#       发表于 2024-1-1 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63493057&amp;ptid=2162161" target="_blank">sdhgak1234 发表于 2023-12-31 17:03</a>
+
+看多了腻得慌，有些明摆着拿极端案例或者某种微小但乐子大的可能性大篇幅地讨论，给我一种类似精神烈酒的 ...</blockquote>
+看来你和马督工很契合啊，他就声称媒体人不能只说观众想看的东西，并认为这是“煽动情绪的‘驯狗’行为”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

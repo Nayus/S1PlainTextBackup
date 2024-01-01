@@ -767,3 +767,16 @@ selby这么纠结于“永生”，看来也是事故时吸了基友死前愿望
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  reficul  
+##### 68#       发表于 2024-1-1 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63500031&amp;ptid=2046137" target="_blank">傘木希美 发表于 2024-1-1 09:49</a>
+
+说来这个有熟肉了没
+
+—— 来自 vivo V2227A, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+B站小鱼儿有个人字幕，熟肉还没看到，看来都是现充元旦出去玩了
+

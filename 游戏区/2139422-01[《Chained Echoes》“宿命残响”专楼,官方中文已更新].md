@@ -2501,3 +2501,11 @@ steam社区也有全宝箱全收集攻略，白金攻略还有滚球谜题攻略
 有个奇怪的点是，游戏流程中我总是对主角团没啥情绪上的共鸣，以至于一些重要的情节我都挺面无表情的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 但我连各种尬演 JRPG 都能投入感情，很怪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  噗呸破屁诚  
+##### 254#       发表于 2024-1-1 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这游戏后半段有机甲之后和变成开放地图后游戏体验急速下滑，这多了机甲之后探索图感觉一下子差了好多，每个地方都要飞一下
+

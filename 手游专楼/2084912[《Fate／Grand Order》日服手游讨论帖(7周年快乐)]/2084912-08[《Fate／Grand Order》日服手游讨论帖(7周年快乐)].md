@@ -1840,3 +1840,14 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 
 妈的现在看到武尊老想到这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 10680#       发表于 2024-1-1 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63506399&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-1-1 22:41</a>
+
+我预言史上最拉这个称号24年还会再来一遍</blockquote>
+不是公款旅游去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

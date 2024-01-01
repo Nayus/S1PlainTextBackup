@@ -7663,3 +7663,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 下午这鲑坝我倒要打一打野工看看有多灾难<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  炫夜鳞  
+##### 2271#       发表于 2024-1-1 13:27
+
+除了过了的局基本全是一带三。笑死，直接开摆
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

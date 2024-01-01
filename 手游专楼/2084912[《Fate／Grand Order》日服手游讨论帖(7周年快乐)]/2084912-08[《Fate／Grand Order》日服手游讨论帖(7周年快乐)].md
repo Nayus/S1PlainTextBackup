@@ -1811,3 +1811,11 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 
 看有人画出剪影轮廓图了，不知最后正确率如何<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 10677#       发表于 2024-1-1 20:41
+
+武尊二破是P4直斗的捏他啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

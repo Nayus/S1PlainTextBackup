@@ -5145,3 +5145,13 @@ https://weibo.com/7521361627/NzHML2wgp?pagetype=profilefeed
 
 MyGO那么高？
 
+
+*****
+
+####  cherryjia12  
+##### 6476#       发表于 2024-1-1 12:11
+
+今年mygo本来就是保三争一的水平啊，拿第一完全不奇怪
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

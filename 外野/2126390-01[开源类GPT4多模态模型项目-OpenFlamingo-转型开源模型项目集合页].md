@@ -21644,3 +21644,15 @@ hugface主页:https://huggingface.co/MoritzLaurer
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  不热爱讨论  
+##### 1145#       发表于 2024-1-2 05:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62608771&amp;ptid=2126390" target="_blank">Machinery 发表于 2023-10-4 01:03</a>
+Mistral 7B
+
+由Mistral AI团队发布，迄今为止最强大的语言模型系列之一</blockquote>
+玩了下，这个还真不错，关键是比他强的协议都没他好
+

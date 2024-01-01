@@ -5318,3 +5318,14 @@ nga的傻x啥反对理由都说不出，上来就是你配吗
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  爱丁堡official  
+##### 6493#       发表于 2024-1-1 18:22
+
+nga一直看不起mygo啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+首页mygo帖子多的那会不知道被抱怨了多少次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -5344,3 +5344,46 @@ nga一直看不起mygo啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 那么续篇动画什么时候端上来，做得好还能再震慑一下无脑黑
 
+
+*****
+
+####  ninokagami  
+##### 6496#       发表于 2024-1-1 18:43
+
+nga泥哥不会以为在一个社区抓670多个愿意给五部动画写评论的人很容易吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你坛的投票贴目前肯回复点东西的也就70+
+
+*****
+
+####  多莉DOLLY  
+##### 6497#       发表于 2024-1-1 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63503973&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-1-1 18:22</a>
+
+nga一直看不起mygo啊
+
+首页mygo帖子多的那会不知道被抱怨了多少次</blockquote>
+说看不起，但看现在年度动画投票贴感觉MyGO遥遥领先<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 6498#       发表于 2024-1-1 18:45
+
+只想看续作
+
+*****
+
+####  ytttsuuuba  
+##### 6499#       发表于 2024-1-1 18:46
+
+mujica快点端上来吧。定个档让人安心一下也好。
+
+*****
+
+####  ffz  
+##### 6500#       发表于 2024-1-1 18:47
+
+等投票结果出来估计又要说河豚太多了不算，河豚真是太强了，连续攻占战吧、s1、猴区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

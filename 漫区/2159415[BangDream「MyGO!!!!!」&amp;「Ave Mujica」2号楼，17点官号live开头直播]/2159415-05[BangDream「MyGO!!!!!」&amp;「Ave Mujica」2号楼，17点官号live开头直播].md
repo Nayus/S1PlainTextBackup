@@ -5050,3 +5050,31 @@ https://weibo.com/7521361627/NzHML2wgp?pagetype=profilefeed
 提取码:uwna</blockquote>
 非常好资源，已打开绿联云远程下载<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 6472#       发表于 2024-1-1 09:47
+
+新的一年也請支持幼馴染組<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/01/094522b4ojosesdjncjzzg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20231229-155110_1740762389338005520_photo.jpg</strong> (218.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 09:45 上传
+
+[https://twitter.com/kkm338/status/1740762389338005520](https://twitter.com/kkm338/status/1740762389338005520)
+
+<img src="https://img.saraba1st.com/forum/202401/01/094621jzer8zanqnsvaqzo.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_財布(@saihu715)_20231226-110708_1739603746928353371_photo.jpg</strong> (64.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 09:46 上传
+
+[https://twitter.com/saihu715/status/1739603746928353371](https://twitter.com/saihu715/status/1739603746928353371)
+

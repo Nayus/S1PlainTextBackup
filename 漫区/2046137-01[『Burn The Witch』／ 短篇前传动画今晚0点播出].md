@@ -757,3 +757,13 @@ selby这么纠结于“永生”，看来也是事故时吸了基友死前愿望
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来还是有明显的猪脚定位的
 
+
+*****
+
+####  傘木希美  
+##### 67#       发表于 2024-1-1 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说来这个有熟肉了没
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

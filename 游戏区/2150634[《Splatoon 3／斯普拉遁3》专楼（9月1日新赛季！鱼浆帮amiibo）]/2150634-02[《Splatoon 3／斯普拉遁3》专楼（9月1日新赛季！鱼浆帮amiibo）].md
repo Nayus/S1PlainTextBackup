@@ -7637,3 +7637,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 我现在发电厂和卷堡基本都是只打低保，顶多打两个岗，难得这生筋子两次机会都错过可能是命不该有吧
 
+
+*****
+
+####  星野航  
+##### 2268#       发表于 2024-1-1 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天下午有绝赞高火力低覆盖鲑坝，新的一年新的坐牢工启动
+

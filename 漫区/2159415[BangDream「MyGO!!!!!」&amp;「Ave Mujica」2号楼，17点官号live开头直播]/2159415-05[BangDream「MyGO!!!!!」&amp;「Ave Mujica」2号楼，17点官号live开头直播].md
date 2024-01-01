@@ -5250,3 +5250,45 @@ MYGO是2023第一原创本来也没争议吧
 
 mujica 1st的海报有没有更高清的版本啊
 
+
+*****
+
+####  ddy2811  
+##### 6486#       发表于 2024-1-1 16:44
+
+MyGO本来就是今年数一数二的动画作品<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 6487#       发表于 2024-1-1 16:49
+
+<img src="https://img.saraba1st.com/forum/202401/01/164909xne9sjst8t9n7ld7.jpg" referrerpolicy="no-referrer">
+
+<strong>BFDA2F1F-9EA0-43E6-B309-137D3CDB9E0C.jpg</strong> (734.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 16:49 上传
+
+蒙娜丽莎<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ylssb10438  
+##### 6488#       发表于 2024-1-1 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63503239&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-1 16:44</a>
+
+MyGO本来就是今年数一数二的动画作品</blockquote>
+而且还是原创，更难得可贵了
+
+*****
+
+####  笋狐  
+##### 6489#       发表于 2024-1-1 16:52
+
+有考虑接牙膏广告之类的吗（不是
+

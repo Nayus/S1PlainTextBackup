@@ -741,3 +741,19 @@ selby这么纠结于“永生”，看来也是事故时吸了基友死前愿望
 
 现世也是一点事都没有
 
+
+*****
+
+####  暗黑能乐  
+##### 66#       发表于 2024-1-1 09:24
+
+<img src="https://img.saraba1st.com/forum/202401/01/092341difmlpbln8njjkpn.jpg" referrerpolicy="no-referrer">
+
+<strong>GCpgU9YaIAAEAMe.jpg</strong> (171.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 09:23 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来还是有明显的猪脚定位的
+

@@ -48,3 +48,11 @@
 
 —— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  两个路人  
+##### 5415#       发表于 2024-1-1 19:45
+
+什么？终于要寿终正寝了吗？能把AR的APP服装全开，当关服福利吗？（噗
+

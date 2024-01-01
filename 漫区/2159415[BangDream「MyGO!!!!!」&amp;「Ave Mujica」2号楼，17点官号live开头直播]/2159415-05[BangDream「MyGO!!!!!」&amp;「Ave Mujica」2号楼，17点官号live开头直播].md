@@ -5638,3 +5638,36 @@ mygo这五个目前没有任何一组两两连线让我感觉可以磕一下的
 
 大鼓太中央空调了反而没和特定的哪个人有很强的cp感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  后藤一里  
+##### 6527#       发表于 2024-1-1 22:10
+
+青木凛合奏金盏花完青木含情脉脉的看了凛一眼
+一起做节目时很自然的肢体接触以及凛不经意间流露出的对青木的依赖感居然没有人get到<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  豚厨二象性  
+##### 6528#       发表于 2024-1-1 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63506050&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-1 22:10</a>
+青木凛合奏金盏花完青木含情脉脉的看了凛一眼
+一起做节目时很自然的肢体接触以及凛不经意间流露出的对青木 ...</blockquote>
+阴角特有的鬼畜CP感
+
+*****
+
+####  豚厨二象性  
+##### 6529#       发表于 2024-1-1 22:11
+
+。
+
+*****
+
+####  DarthAka  
+##### 6530#       发表于 2024-1-1 22:12
+
+鼓爱凛能磕的有福了，那林小姐随便划拉两下能再找一堆
+

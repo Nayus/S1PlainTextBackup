@@ -5226,3 +5226,11 @@ MYGO是2023第一原创本来也没争议吧
 附5ch历年排行
 <img src="https://p.sda1.dev/15/26bcd4d25b5e85572bb07a00bbcba745/6tyemr95l8g8cgb4e4pt7s7ds.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 6483#       发表于 2024-1-1 14:10
+
+感觉这口味和s1挺像的
+

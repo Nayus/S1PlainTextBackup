@@ -7719,3 +7719,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 这期鬼坝拿到狙就是一个被杂鱼拍来拍去的命运
 
+
+*****
+
+####  秋月孝三  
+##### 2276#       发表于 2024-1-1 17:12
+
+龙哥果然活不过50秒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OPPO PDEM30, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

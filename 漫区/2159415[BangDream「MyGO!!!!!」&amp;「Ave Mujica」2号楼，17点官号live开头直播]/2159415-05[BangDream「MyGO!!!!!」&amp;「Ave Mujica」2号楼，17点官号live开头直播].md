@@ -5460,3 +5460,44 @@ nga一直看不起mygo啊
 首页mygo帖子多的那会不知道被抱怨了多少次</blockquote>
 是总有那么些人看不起，但这个帖子数量、每个抱怨帖下面的形势以及各种投票的结果，说服力比什么都来得强大<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 6507#       发表于 2024-1-1 20:07
+
+<img src="https://img.saraba1st.com/forum/202401/01/200710rs6yzwtsww9b0fbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 20:07 上传
+
+是真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 6508#       发表于 2024-1-1 20:07
+
+李子这盾娘OP真人MV，穿个蓝衣服欢脱扫弦一股爱音的即视感
+
+*****
+
+####  DarthAka  
+##### 6509#       发表于 2024-1-1 20:08
+
+<blockquote>基神的强袭自由 发表于 2024-1-1 20:07
+是真的吗</blockquote>
+这得去隔壁滚楼
+
+*****
+
+####  NZ-333  
+##### 6510#       发表于 2024-1-1 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63504878&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-1 20:07</a>
+是真的吗</blockquote>
+逆输入都不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是哪来的指点江山
+

@@ -7762,3 +7762,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 拿到这个月新衣服立刻耻辱下工  太难了
 
+
+*****
+
+####  heseran  
+##### 2281#       发表于 2024-1-1 20:08
+
+你们竟然真的打，我打第一把第一轮就是光蝇，被血虐然后直接退出游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

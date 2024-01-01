@@ -1851,3 +1851,14 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 我预言史上最拉这个称号24年还会再来一遍</blockquote>
 不是公款旅游去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 10681#       发表于 2024-1-2 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63506399&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-1-1 22:41</a>
+
+我预言史上最拉这个称号24年还会再来一遍</blockquote>
+下一年估计是丹下樱游罗马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1628,3 +1628,16 @@ FSR作为你月这几年难得的好活，联动能捞出来赚钱的随便拉�
 
 这个日本武尊放2号位，陈sir.发射1号位，算不算战败退场加np啊。有没有日服大佬可以测试下，谢谢
 
+
+*****
+
+####  Jamaisvu  
+##### 10661#       发表于 2024-1-1 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63499719&amp;ptid=2084912" target="_blank">一个人的旅途 发表于 2024-1-1 08:13</a>
+
+这个日本武尊放2号位，陈sir.发射1号位，算不算战败退场加np啊。有没有日服大佬可以测试下，谢谢 ...</blockquote>
+我看B站的测试视频里哈贝喵和阿卡什都能触发染血皇子，陈宫估计也没问题：
+
+【【FGO】武尊·1技能献祭队友充能25%测试-哔哩哔哩】 [https://b23.tv/sAqBxds](https://b23.tv/sAqBxds)
+

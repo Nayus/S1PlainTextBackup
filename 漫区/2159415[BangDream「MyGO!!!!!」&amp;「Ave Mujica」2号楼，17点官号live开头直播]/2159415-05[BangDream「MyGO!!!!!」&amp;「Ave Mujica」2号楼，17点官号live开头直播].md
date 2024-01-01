@@ -5201,3 +5201,19 @@ MyGO那么高？
 
 MYGO是2023第一原创本来也没争议吧
 
+
+*****
+
+####  Aendst  
+##### 6480#       发表于 2024-1-1 13:33
+
+2020最高确实是全员恶玉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，第二异度侵入第三虹，21年第一是歌剧少女，22年蒜水更衣人偶都比边缘行者高
+
+
+*****
+
+####  Kasroz  
+##### 6481#       发表于 2024-1-1 13:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5ch这品味有点奇特啊
+

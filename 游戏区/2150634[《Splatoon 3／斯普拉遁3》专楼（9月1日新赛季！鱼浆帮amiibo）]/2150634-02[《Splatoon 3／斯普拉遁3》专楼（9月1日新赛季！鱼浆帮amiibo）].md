@@ -7673,3 +7673,15 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  罗克萨斯  
+##### 2272#       发表于 2024-1-1 13:37
+
+原来下限是500分么？看操作并不萌新，就是打得太缩了，缺乏推进意识
+
+【【Splatoon3搬运】【すぷら】无人知晓的XP500的世界 目标XP2000 20231228-哔哩哔哩】 https://b23.tv/ZimiI0T
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

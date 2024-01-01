@@ -1663,3 +1663,16 @@ FSR作为你月这几年难得的好活，联动能捞出来赚钱的随便拉�
 
 不敢奢求太多，只希望给狂武藏加个50自充
 
+
+*****
+
+####  Jamaisvu  
+##### 10664#       发表于 2024-1-1 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63499897&amp;ptid=2084912" target="_blank">fengzijiang 发表于 2024-1-1 09:17</a>
+
+试了下，不算
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
+果然是要队友死透了才能起效，我还想过能不能和麻婆三技能联动，反补吃资源呢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

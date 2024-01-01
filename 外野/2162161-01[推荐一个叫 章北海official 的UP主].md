@@ -1118,3 +1118,15 @@ https://bbs.saraba1st.com/2b/thread-2165595-1-1.html</blockquote>
 章北海这个角色到底代表了什么形象啊，见过不止一个拿他当id的</blockquote>
 坚定的极端的逃亡主义者，失败主义者
 
+
+*****
+
+####  S1的巨巨  
+##### 123#       发表于 2024-1-1 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63500283&amp;ptid=2162161" target="_blank">蒋公卖萌 发表于 2024-1-1 10:29</a>
+看来你和马督工很契合啊，他就声称媒体人不能只说观众想看的东西，并认为这是“煽动情绪的‘驯狗’行为” ...</blockquote>
+马真的又当又立，自己的视频就是他粉丝爱看的，他还能说出这种话。不过也很正常，他改民族玩高考移民，照样也能批评国内高考资源不平衡。
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

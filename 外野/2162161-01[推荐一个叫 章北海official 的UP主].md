@@ -1165,3 +1165,17 @@ https://bbs.saraba1st.com/2b/thread-2165595-1-1.html</blockquote>
 你如果看圆脸视频就知道了，讲清楚了很多传的莫名其妙的美国新闻的来龙去脉，咋一听营销号炒作的新闻觉得 ...</blockquote>
 看他就为了看这个不是吗，之前介绍很多黑人为啥不信丑国政府也挺有说服力的，但是前阵子有一两周高强度在YY丑国分裂的情景让我觉得挺无聊，以前每期都看的现在已经挑题目听了，无奈我关注列表时政up就他一个了，你倒是给推荐点啊
 
+
+*****
+
+####  小数点  
+##### 127#       发表于 2024-1-1 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63503990&amp;ptid=2162161" target="_blank">sdhgak1234 发表于 2024-1-1 18:25</a>
+看他就为了看这个不是吗，之前介绍很多黑人为啥不信丑国政府也挺有说服力的，但是前阵子有一两周高强度在 ...</blockquote>
+我都觉得你没看了或者对关键词敏感，他做那些视频是看美国选情用的，看民主党与共和党在舆论司法上怎么斗法，看点不是这个么？美国国内分裂不是明摆的么？他又没说双方直接真刀真枪打起来，这就受不了了？
+
+还有提醒一下，建政是娱乐，我不会特意去找建政视频看的，除了圆脸我就看傅正，以前还关注马前卒，但是他自己微信公众号经常标题党，自己还大言不惭说这是为了生存引流，再加上他自己好几次屁股明显的视频，我都不看了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

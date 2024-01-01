@@ -11451,3 +11451,15 @@ nagi的话我只是觉得她的长相适合当演员，不过现在是没什么�
 上个号外野键政GG了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 这个号来给漏油道一声新年快乐，祝星团新一年身体健康工作顺利～
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19063#       发表于 2024-1-1 12:43
+
+漏油们新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+23年的星可能没以前有话题度了，但另一方面下半年又给我以各方面都在慢慢好起来的感觉，希望24年的星团和鲤鱼姐能越来越好，也祝漏油们新的一年追星快乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -5163,3 +5163,33 @@ MyGO那么高？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看评论5CH在2020年最高是全员恶玉？那就只能说图一乐了
 
+
+*****
+
+####  kangkangsama  
+##### 6478#       发表于 2024-1-1 12:46
+
+<img src="https://img.saraba1st.com/forum/202401/01/124639lk75zb4jzer3gf4g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0892.jpeg</strong> (390.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 12:46 上传
+
+<img src="https://img.saraba1st.com/forum/202401/01/124641l44ssm33qmsk3sbq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0891.jpeg</strong> (362.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 12:46 上传
+
+<img src="https://img.saraba1st.com/forum/202401/01/124648dreh3vqbr2sjbjlt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0890.jpeg</strong> (391.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 12:46 上传
+

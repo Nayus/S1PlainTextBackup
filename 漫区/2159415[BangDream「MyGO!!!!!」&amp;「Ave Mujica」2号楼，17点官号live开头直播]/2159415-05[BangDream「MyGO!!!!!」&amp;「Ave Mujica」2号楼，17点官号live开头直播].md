@@ -5605,3 +5605,20 @@ nga一直看不起mygo啊
 一个工作狂，天天在外面跑场子简直是soyo妈再世，一 ...</blockquote>
 过于生硬
 
+
+*****
+
+####  后藤一里  
+##### 6523#       发表于 2024-1-1 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63505447&amp;ptid=2159415" target="_blank">豚厨二象性 发表于 2024-1-1 21:07</a>
+过于生硬</blockquote>
+鉴定为缺少嗑心<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninokagami  
+##### 6524#       发表于 2024-1-1 21:15
+
+mygo这五个目前没有任何一组两两连线让我感觉可以磕一下的
+

@@ -7786,3 +7786,18 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 忙了一天晚上已经没精力了，一会儿看看拿个低保
 
+
+*****
+
+####  罗克萨斯  
+##### 2284#       发表于 2024-1-1 21:15
+
+已经3天没掉线了，也没遇到击杀延迟，网络好体验就是好，还顺带治好了因为掉线扣分+关禁闭导致的报复性游戏<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 2285#       发表于 2024-1-1 21:19
+
+的确是鬼图鬼配置，但凡想赢一把都得要上天的眷顾
+

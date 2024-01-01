@@ -5387,3 +5387,40 @@ mujica快点端上来吧。定个档让人安心一下也好。
 
 等投票结果出来估计又要说河豚太多了不算，河豚真是太强了，连续攻占战吧、s1、猴区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 6501#       发表于 2024-1-1 19:06
+
+角色投票好像祥子也是第一（虽然目前人还不多）
+
+<img src="https://img.saraba1st.com/forum/202401/01/190632ewyccyxdleaez5n5.jpg" referrerpolicy="no-referrer">
+
+<strong>GCvi-P3bEAAaN73_format=jpg&amp;amp;name=large.jpg</strong> (173.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-1 19:06 上传
+
+*****
+
+####  Aendst  
+##### 6502#       发表于 2024-1-1 19:07
+
+1.7不知道会是什么东西，虽然极大概率还是新曲，但是是新曲的话按理来说应该放出试听才是
+
+所以存在不是新曲的可能性（小概率），或者还是新曲（宣传上藏更严一些
+
+个人观感上还是mygo的宣传方式更舒服一点，mujica这宣传策真的让人干着急，期待拉太高又容易失望
+
+*****
+
+####  Aendst  
+##### 6503#       发表于 2024-1-1 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63504314&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-1 19:06</a>
+
+角色投票好像祥子也是第一（虽然目前人还不多）</blockquote>
+这数字是什么， 票数吗……样本量也太小了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

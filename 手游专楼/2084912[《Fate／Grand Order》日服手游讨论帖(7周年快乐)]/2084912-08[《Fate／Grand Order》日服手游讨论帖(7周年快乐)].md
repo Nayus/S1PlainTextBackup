@@ -1830,3 +1830,13 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 23年月球春晚，什么Fate新项目的消息都没有，型月其他作品的新内容也没有（魔夜画大饼除外），新年从者拿联 ...</blockquote>
 我预言史上最拉这个称号24年还会再来一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zore  
+##### 10679#       发表于 2024-1-1 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道哪P得浩冬三绝
+
+妈的现在看到武尊老想到这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

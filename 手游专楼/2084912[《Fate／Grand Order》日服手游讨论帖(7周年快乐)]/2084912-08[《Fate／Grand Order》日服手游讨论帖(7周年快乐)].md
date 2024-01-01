@@ -1676,3 +1676,11 @@ FSR作为你月这几年难得的好活，联动能捞出来赚钱的随便拉�
 —— 来自 Xiaomi 23013RK75C, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
 果然是要队友死透了才能起效，我还想过能不能和麻婆三技能联动，反补吃资源呢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 10665#       发表于 2024-1-1 11:01
+
+fsr联动会把今年五月的联动名额顶掉吗
+

@@ -21783,3 +21783,180 @@ GeoSignal统计表格
 相关资源链接
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1147#       发表于 2024-1-2 20:14
+
+COSMO
+
+具有交错预训练(Interleaved Pre-Training)的对比精简型多模态模型(COntrastive Streamlined MultimOdal Model)
+
+项目主页:http://fingerrec.github.io/cosmo
+
+github项目跳转介绍主页:https://github.com/showlab/cosmo
+
+CosMo2.1B预训练权重下载:https://huggingface.co/Awiny/cosmo2.1b/tree/main
+
+CosMo3.4B预训练权重下载:https://huggingface.co/Awiny/cosmo3.4b/tree/main
+
+CosMo8.1B:预训练权重下载https://huggingface.co/Awiny/cosmo8.1b/tree/main
+
+在视觉语言预训练的演变中，从短文本理解转向包含扩展的文本上下文是至关重要的，最近的自回归视觉语言模型(例如flamingo，palme等)利用大型语言模型的长上下文能力，在少样本文本生成任务中表现出色，但在对齐任务中面临挑战
+
+为了解决这一差距，本文通过将对比损失(contrastive loss)引入到文本生成模型中，提出了对比精简型多模态框架(COSMO/COntrastive-Streamlined MultimOdal framework)，将语言模型分为专用的单模态文本处理和熟练的多模态数据处理组件
+
+统一框架COSMO融合了单模态和多模态元素，提高了模型在涉及文本和视觉数据的任务中的性能，同时显著减少了可学习的参数，然而，这些模型仍然需要大量的长文本数据集，但高质量的长文本视频数据集的可用性仍然有限，为了弥补这一差距，本文介绍了Howto-Interlink7M，一个首次交错的视频文本数据集，具有全面的字幕说明，标志着向前迈出的重要一步
+
+通过展示其影响，说明了Howto-Interlink7M如何提高图像-文本任务中的模型性能，仅使用了可用数据的72%和可学习参数的34%，本文模型就表现出了比OpenFlamingo更显著的优越性能，在4-shot flickr实例字幕任务中，性能从57.2%显著提高到65%
+
+COSMO和Howto-Interlink7M的贡献得到了14个不同的下游数据集的显著性能增益的支持，这些数据集涵盖了各种图像文本和视频文本任务
+
+<img src="https://img.saraba1st.com/forum/202401/02/201240vdkpzmbxmdwxdz4e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200715__01.jpg</strong> (126.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:12 上传
+
+视觉语言预训练(VLP)的进展已经转向了适应长篇文本输入
+(a)早期的研究强调短的图像/视频文本相关性，例如CLIP和GiT等作品
+(b)现在的研究强调上下文学习策略，如Flamingo和Palm-E，LLMs出色的文本处理能力使得轻松集成长篇文档成为可能，展示了强大的少样本学习能力，无需大量的微调，模态学习范式具有显著的优势
+
+<img src="https://img.saraba1st.com/forum/202401/02/201246xfvlrf6rkdk5vk8d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200734__01.jpg</strong> (338.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:12 上传
+
+将传统的视频文本数据集与Howto-Interlink7M进行对比
+左侧:传统的视频文本数据集通常包含描述视频的简短ASR字幕
+右侧:在Howto-Interlink7M中，为了包含更多细节和改进视频的连贯性，视频被分割为镜头，随后，使用GPT-4模型根据历史上下文对每个镜头进行标注，并包括ASR、字幕说明和密集字幕说明，强调了物体标签以及视频片段之间的连接
+
+<img src="https://img.saraba1st.com/forum/202401/02/201251dl5rsr5frks5t553.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200751__01.jpg</strong> (51.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:12 上传
+
+Howto-Interlink7M的数据统计，最后两列分别是每个视频片段的平均Token长度和CLIP图像文本相似性分数
+
+<img src="https://img.saraba1st.com/forum/202401/02/201326vrrislysqjjqqil6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200757__01.jpg</strong> (77.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:13 上传
+
+CosMo的架构细节
+#CE是交叉注意力层的数量的简写
+
+<img src="https://img.saraba1st.com/forum/202401/02/201332z2d4i8hm4yu8y811.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200806__01.jpg</strong> (169.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:13 上传
+
+CosMo的介绍:该模型同时处理图像/视频文本对和不同级别的图像/视频文本对，大型语言模型被分为两部分，用于计算对比损失和语言建模损失
+
+<img src="https://img.saraba1st.com/forum/202401/02/201342snj0ai0uwkxownrt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200813__01.jpg</strong> (29.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:13 上传
+
+低相似度图像的实例:在像MMC4这样的数据集中，基于原始网站内容，通常存在与相应文本不一致的图像，导致训练不稳定
+
+<img src="https://img.saraba1st.com/forum/202401/02/201350qbl6dyvb3o5c65ov.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200821__01.jpg</strong> (88.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:13 上传
+
+预训练数据集的统计信息:通过聚类和过滤从完整数据集中提取了一个子集
+
+<img src="https://img.saraba1st.com/forum/202401/02/201355w0166qq3qfqqt9qj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200829__01.jpg</strong> (215.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:13 上传
+
+LAION400M和类似的大型数据集通常存在冗余问题，聚类和基于统一的基于距离的采样有助于缓解这个问题
+
+<img src="https://img.saraba1st.com/forum/202401/02/201406wmbpxvx5lczqv8lc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200850__01.jpg</strong> (425.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:14 上传
+
+在一个1800万子集上的CosMo消融实验，主要关注对比了8-shot结果，将基线结果放在第一行。我们突出显示了可学习参数和全部参数之间的区别，对于字幕说明评估，报告了CIDER，'Iter.'是Iteration的缩写，靛蓝色文字表示默认设置
+
+<img src="https://img.saraba1st.com/forum/202401/02/201420sbqtm6wem38btymm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200903__01.jpg</strong> (451.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:14 上传
+
+不同规模的对比，通过仅使用128个Token进行预训练，本文模型的计算成本与相关方法相比显著降低，'ILLength'缩写为Interlevel Token Length，值得注意的是，CosMo-3.4B和Open-Flamingo(4B)使用相同的LLM(RedPajama-3B)和视觉编码器(Clip ViT-L/14)，带有颜色的行表示本文方法
+
+<img src="https://img.saraba1st.com/forum/202401/02/201439a3g18llw33w3lh1l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200912__01.jpg</strong> (181.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:14 上传
+
+视频文本任务的对比，使用开放式生成评估这些数据集，括号表示使用语言模型进行文本相似度匹配进行评估，除了YouCook2之外，每个视频只使用3帧
+
+<img src="https://img.saraba1st.com/forum/202401/02/201444u0ejiee2nzinjox7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200932__01.jpg</strong> (70.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:14 上传
+
+MMC4的clip图像到文本相似度得分分布，左边是所有对(all pairs)，右边是匹配对(matched pairs)
+
+<img src="https://img.saraba1st.com/forum/202401/02/201450bilacbmsj60a0n4c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200942__01.jpg</strong> (79.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:14 上传
+
+交错相似度阈值的分数选择会影响结果，N/A表示模型出现梯度爆炸，第二行表示用预训练的CosMo生成的字幕说明替换了嘈杂的数据
+
+<img src="https://img.saraba1st.com/forum/202401/02/201457zrqqqq0ip33l30aq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-200942__02.jpg</strong> (61.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 20:14 上传
+
+数据质量极大地影响多样本能力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

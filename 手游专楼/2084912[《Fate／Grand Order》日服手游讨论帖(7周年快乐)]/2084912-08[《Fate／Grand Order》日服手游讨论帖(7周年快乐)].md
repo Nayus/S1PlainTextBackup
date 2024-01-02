@@ -1908,3 +1908,13 @@ fsr联动会把今年五月的联动名额顶掉吗</blockquote>
 这些一人多役的到时候轮流出国，轮到UMB只能坐电车去京都</blockquote>
 工作太多无法安排出国时间吧。川澄都已经很少一线角色了，当然可以出外国<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 10687#       发表于 2024-1-2 13:52
+
+正月最大的活动抽无限池毕业了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

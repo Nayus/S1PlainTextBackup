@@ -3792,3 +3792,20 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  collincollin  
+##### 45876#       发表于 2024-1-2 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63510735&amp;ptid=1712412" target="_blank">JOHNCHCHAN 发表于 2024-1-2 12:00</a>
+
+24年有什么新的人权卡么？必须高宝那种。我现在还是拿着三宝仇凛无脑冲，偶尔双杀狐+摩根除了动画看烦了似 ...</blockquote>
+人权拐没有，优化环境的拐：镜哥和水小黑
+
+打手：2.7大姐姐，水妃，水C
+
+兽和提缺陷很大，不通用但强的打手，厨力加成很高
+
+再往下就是二线打手和复刻了
+

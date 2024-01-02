@@ -7829,3 +7829,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 这期武器还非常奇葩基本全都不好处理修脚的，泥洼鱼送分都要开两个大，香槟都差点被修脚修死
 
+
+*****
+
+####  秋月孝三  
+##### 2289#       发表于 2024-1-2 10:54
+
+栓是这样的，没人做狗就发挥不了
+
+— from OPPO PDEM30, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

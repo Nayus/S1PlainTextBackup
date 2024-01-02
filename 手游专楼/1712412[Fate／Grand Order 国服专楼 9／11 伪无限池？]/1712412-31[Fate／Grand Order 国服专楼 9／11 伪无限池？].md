@@ -3817,3 +3817,14 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 快来人告诉我【有了满配公主，不需要抽烟雾镜】…免得我又剁手！
 
+
+*****
+
+####  飞霞精灵  
+##### 45878#       发表于 2024-1-2 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63512963&amp;ptid=1712412" target="_blank">一个人的旅途 发表于 2024-1-2 15:05</a>
+
+快来人告诉我【有了满配公主，不需要抽烟雾镜】…免得我又剁手！</blockquote>
+但是烟雾镜池有雨神诶<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

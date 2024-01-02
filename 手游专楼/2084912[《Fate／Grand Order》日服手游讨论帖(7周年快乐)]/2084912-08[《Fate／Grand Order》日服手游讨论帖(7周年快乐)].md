@@ -1926,3 +1926,11 @@ fsr联动会把今年五月的联动名额顶掉吗</blockquote>
 
 坂本真绫对贞德还挺有感情的，看博物馆向导介绍贞德殉难的时候都流泪了，明年是丹下樱意大利之旅吗
 
+
+*****
+
+####  保罗赫伯特  
+##### 10689#       发表于 2024-1-2 15:19
+
+不知道她对灰贞怎么看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

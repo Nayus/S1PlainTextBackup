@@ -7888,3 +7888,21 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 鲑坝600章我还没有呢，什么时候周末给金工呢？
 
+
+*****
+
+####  罗克萨斯  
+##### 2295#       发表于 2024-1-2 22:11
+
+起这ID是不是太低俗了？贴牌文森真的烦死了，攻击距离长范围广，还能放导弹，为了躲导弹害得我跳水好几次
+
+<img src="https://img.saraba1st.com/forum/202401/02/220919p2k2brb22uyuy389.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-02-22-07-35-945_com.nintendo.znca-edit.jpg</strong> (542.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 22:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

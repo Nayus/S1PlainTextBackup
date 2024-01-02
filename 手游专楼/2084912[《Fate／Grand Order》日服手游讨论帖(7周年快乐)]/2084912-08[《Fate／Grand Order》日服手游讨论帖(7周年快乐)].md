@@ -1889,3 +1889,11 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 fsr联动会把今年五月的联动名额顶掉吗</blockquote>
 大概会，去年就有说法奏II推迟以后会顶掉来年原本Golden Week档期了，同时原定于2024GW的联动会提前（就是没想到直接给塞一月了
 
+
+*****
+
+####  windsflied  
+##### 10685#       发表于 2024-1-2 09:51
+
+<[img src="https://s2.loli.net/2024/01/02/G53tamXqewdui9M.png" referrerpolicy="no-referrer">
+

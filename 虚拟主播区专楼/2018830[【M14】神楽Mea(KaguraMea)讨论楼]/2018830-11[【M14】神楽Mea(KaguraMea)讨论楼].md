@@ -437,3 +437,13 @@ p图罢了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  十九号大侠  
+##### 16085#       发表于 2024-1-2 17:07
+
+怎么又杏落了
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

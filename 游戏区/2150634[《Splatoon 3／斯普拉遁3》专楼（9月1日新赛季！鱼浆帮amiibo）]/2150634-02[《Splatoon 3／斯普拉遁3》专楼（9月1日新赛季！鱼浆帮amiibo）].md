@@ -7868,3 +7868,15 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 <img src="https://s2.loli.net/2024/01/02/RlUi5DLSeCqVQ7k.png" referrerpolicy="no-referrer">
 假格鱼虎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  炫夜鳞  
+##### 2293#       发表于 2024-1-2 16:06
+
+今天摸了一下直接又从300回100了，说实话光是编成恶心对我来说还好，队友实力相近的话没过也只感觉尽力了，顶多因为傻逼刷怪骂研究所
+
+但是队友梦游的时候，对我这种水平的只会感到怎么用力都救不了，直接开摆然后恶性循环
+
+今天这工，场上一堆怪的时候，拿消防栓射潜水鱼的，拿铅笔蓄力打柱鱼的，我看着我手里的竹狙只想往水里跳
+

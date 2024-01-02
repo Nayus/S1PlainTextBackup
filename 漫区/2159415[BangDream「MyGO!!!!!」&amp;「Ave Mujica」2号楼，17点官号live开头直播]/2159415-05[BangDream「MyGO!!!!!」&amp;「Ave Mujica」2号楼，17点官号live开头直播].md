@@ -5811,3 +5811,19 @@ mygo这五个目前没有任何一组两两连线让我感觉可以磕一下的
 
 图里这一排z87笑死了
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6541#       发表于 2024-1-2 22:00
+
+https://x.com/lacto_pt/status/1741858854978327018?s=20
+
+<img src="https://img.saraba1st.com/forum/202401/02/220029p4o14gvphp39o1oz.png" referrerpolicy="no-referrer">
+
+<strong>GCxTWoSacAAK-bz.png</strong> (144.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 22:00 上传
+

@@ -5827,3 +5827,26 @@ https://x.com/lacto_pt/status/1741858854978327018?s=20
 
 2024-1-2 22:00 上传
 
+
+*****
+
+####  御幸一也  
+##### 6542#       发表于 2024-1-2 22:16
+
+<img src="https://img.saraba1st.com/forum/202401/02/221649ve18wf2n858w5d8d.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20240101-154432_1741847885669708093_photo.jpg</strong> (119.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 22:16 上传
+
+[https://twitter.com/kkm338/status/1741847885669708093](https://twitter.com/kkm338/status/1741847885669708093)
+
+*****
+
+####  Kasroz  
+##### 6543#       发表于 2024-1-2 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">😭团对于soyo的特殊性在哪，为什么不能是吹奏乐社团
+

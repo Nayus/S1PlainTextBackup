@@ -1934,3 +1934,15 @@ fsr联动会把今年五月的联动名额顶掉吗</blockquote>
 
 不知道她对灰贞怎么看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fengzijiang  
+##### 10690#       发表于 2024-1-2 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63513151&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-2 15:19</a>
+不知道她对灰贞怎么看</blockquote>
+大概是泪流的更多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

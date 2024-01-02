@@ -416,3 +416,14 @@ p图罢了
 
 没有吧，今天一堆人的直播都延期了（甚至包括星川的新衣回），而且夜宵刚开播那阵只有5个同接我差点没绷住
 
+
+*****
+
+####  skyfaqer  
+##### 16083#       发表于 2024-1-2 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63506132&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-1-1 22:18</a>
+
+七个人一起去参拜了</blockquote>
+？哪7个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

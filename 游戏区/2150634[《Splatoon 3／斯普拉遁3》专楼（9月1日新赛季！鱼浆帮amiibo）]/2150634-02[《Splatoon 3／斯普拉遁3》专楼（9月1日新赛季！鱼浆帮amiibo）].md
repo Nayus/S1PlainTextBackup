@@ -7809,3 +7809,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">新年第一天就给这配置恶心人
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2287#       发表于 2024-1-2 09:21
+
+好可怕的工，好不容易见到龙还是涨潮，消防栓都没地方站
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

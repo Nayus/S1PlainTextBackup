@@ -673,3 +673,26 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 
 虽然我觉得也算全明星了，用着4人小队+男主角+女主角+师傅
 
+
+*****
+
+####  christiny  
+##### 3788#       发表于 2024-1-2 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508637&amp;ptid=2098044" target="_blank">wthall 发表于 2024-1-2 09:12</a>
+
+目前不是，最终关打完送的是反射戒。
+
+虽然我觉得也算全明星了，用着4人小队+男主角+女主角+师傅 ...</blockquote>
+那就是还剩会长没有打。
+
+*****
+
+####  wthall  
+##### 3789#       发表于 2024-1-2 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508652&amp;ptid=2098044" target="_blank">christiny 发表于 2024-1-2 09:13</a>
+
+那就是还剩会长没有打。</blockquote>
+奇怪了我和柜台那骷髅对话了啊，怎么感觉没有新的东西追加，还是问我要选哪关打？ 难道要求把其他杯赛全部clear了才能行？
+

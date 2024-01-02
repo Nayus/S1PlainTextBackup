@@ -1878,3 +1878,14 @@ fsr这个联动一看就是发售前就定好的，而实体版特典只有剑�
 
 这些一人多役的到时候轮流出国，轮到UMB只能坐电车去京都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 10684#       发表于 2024-1-2 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63500525&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-1-1 11:01</a>
+
+fsr联动会把今年五月的联动名额顶掉吗</blockquote>
+大概会，去年就有说法奏II推迟以后会顶掉来年原本Golden Week档期了，同时原定于2024GW的联动会提前（就是没想到直接给塞一月了
+

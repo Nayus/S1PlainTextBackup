@@ -18389,3 +18389,19 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">爱信等
 
+
+*****
+
+####  Piano-Forest  
+##### 1427#         楼主| 发表于 2024-1-2 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63497189&amp;ptid=2152053" target="_blank">Piano-Forest 发表于 2023-12-31 23:04</a>
+
+明けましておめでとう。
+
+#喫茶リコリコ は、</blockquote>
+[https://twitter.com/imigimuru/status/1742166111125422358](https://twitter.com/imigimuru/status/1742166111125422358)
+
+今年もよろしくお願いします！🐉
+<img src="https://p.sda1.dev/15/bd194a96f0010386e2229dab685f8be2/20240102_210548.jpg" referrerpolicy="no-referrer">
+

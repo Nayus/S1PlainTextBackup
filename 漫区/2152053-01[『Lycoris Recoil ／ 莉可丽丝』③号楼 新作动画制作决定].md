@@ -18405,3 +18405,11 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 今年もよろしくお願いします！🐉
 <img src="https://p.sda1.dev/15/bd194a96f0010386e2229dab685f8be2/20240102_210548.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Delicatus545  
+##### 1428#       发表于 2024-1-2 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">圣伊右群
+

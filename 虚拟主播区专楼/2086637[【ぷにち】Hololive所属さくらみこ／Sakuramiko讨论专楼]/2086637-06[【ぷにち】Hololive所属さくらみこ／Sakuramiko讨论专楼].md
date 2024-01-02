@@ -4468,3 +4468,20 @@ fbk刚才做关系图做了2小时你跟着看了2小时！？
 
 喷了
 
+
+*****
+
+####  舔狗没有房子  
+##### 7928#       发表于 2024-1-2 23:43
+
+星街当年被cover鸽了3D想离职的时候也是找A酱诉苦
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  holoan  
+##### 7929#         楼主| 发表于 2024-1-2 23:46
+
+这纯属无病呻吟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

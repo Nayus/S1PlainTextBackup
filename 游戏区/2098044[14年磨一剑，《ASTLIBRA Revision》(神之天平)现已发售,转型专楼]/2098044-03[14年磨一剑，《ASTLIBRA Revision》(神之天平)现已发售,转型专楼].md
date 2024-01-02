@@ -591,3 +591,36 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 楼上怎么有人追着扣鹅233</blockquote>
 看那个扣鹅的id，估计是因为就装甲核心的问题吵过架了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nuoer  
+##### 3783#       发表于 2024-1-2 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508338&amp;ptid=2098044" target="_blank">wthall 发表于 2024-1-2 08:19</a>
+打到盖亚迷宫了，开始刷好感度，这个好感度打过一大关就能回去结算一下嘛？还是能积累的？
+
+盖亚迷 ...</blockquote>
+1）打完一大关需要回去结算一下
+2）通关有点久远了，好像是4大关，每大关各6小关
+3）需要更骷髅再对话一下才能拿
+4）对的，要看真结局需要刷完足够的爱情
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wthall  
+##### 3784#       发表于 2024-1-2 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508487&amp;ptid=2098044" target="_blank">nuoer 发表于 2024-1-2 08:45</a>
+
+1）打完一大关需要回去结算一下
+
+2）通关有点久远了，好像是4大关，每大关各6小关
+
+3）需要更骷髅再对话一 ...</blockquote>
+和骷髅对话好像也没有，不过我那个加时杯的外头没有clear字样，但是里面也确实没有新关了。
+
+看不懂啊
+

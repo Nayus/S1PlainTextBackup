@@ -3828,3 +3828,11 @@ new感觉没啥优先度，基本都是二宝起步吧
 快来人告诉我【有了满配公主，不需要抽烟雾镜】…免得我又剁手！</blockquote>
 但是烟雾镜池有雨神诶<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 45879#       发表于 2024-1-2 15:30
+
+要雨神抽大姐姐就行了，我还嫌这俩都绑雨神如果两个都抽最后雨神肯定看到吐
+

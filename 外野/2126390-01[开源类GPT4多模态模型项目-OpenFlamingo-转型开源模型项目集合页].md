@@ -21960,3 +21960,157 @@ MMC4的clip图像到文本相似度得分分布，左边是所有对(all pairs)�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1148#       发表于 2024-1-3 06:08
+
+ToolEyes
+
+关于现实世界中大型语言模型工具学习能力的细粒度评估
+
+github项目主页:https://github.com/Junjie-Ye/ToolEyes
+
+现有的工具学习评估主要集中在验证大型语言模型(LLMs)预先选择的工具与预期结果之间的对齐，然而，这些方法依赖于一组有限的可以预先确定答案的场景，与真实需求有所偏离，此外，仅关注结果忽视了LLMs有效利用工具所必需的复杂能力
+
+为了解决这个问题，提出了ToolEyes，这是一个细粒度化的系统，专门设计用于评估LLMs在真实场景中的工具学习能力，该系统细粒度地考察了七个真实世界场景，分析了对于LLMs而言在工具学习中至关重要的五个维度：格式对齐(format alignment)、意图理解(intent comprehension)、行为规划(behavior planning)、工具选择(tool selection)和答案组织(answer organization)，此外，ToolEyes还包括一个工具库，拥有大约600个工具，可以作为LLMs与物理世界之间的中间介质
+
+在涉及三个类别的十个LLMs的评估结果表明，在工具学习中存在对特定场景的偏好和有限的认知能力，有趣的是，拓展模型大小甚至加剧了对工具学习的阻碍。这些发现提供了有指导意义的见解，旨在推动工具学习领域的发展
+
+<img src="https://img.saraba1st.com/forum/202401/03/060652pe223orelww5zhrs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060127__01.jpg</strong> (101.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:06 上传
+
+工具学习过程的示意图，在收到用户请求后，LLM会仔细审查用户的需求，提示获取足够的信息，选择适当的工具，并以指定的格式输入所需参数
+
+随后，该工具与环境进行交互，向LLM提供反馈，然后，LLM根据最初的请求进行逻辑推理，按步骤中进行迭代思考直到得出确定的答案
+
+<img src="https://img.saraba1st.com/forum/202401/03/060702xonn8ha2thn9tia9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060140__01.jpg</strong> (394.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+ToolEyes的框架，ToolEyes提出了七个不同的真实场景，每个场景都包含了一系列相关的工具，LLMs 可以利用这些工具与物理世界进行交互，满足用户的实际需求，通过评估LLMs在五个维度上的能力，该系统能够高效地监督整个工具学习过程
+
+<img src="https://img.saraba1st.com/forum/202401/03/060708bdwvw3wzvd3wb06r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060152__01.jpg</strong> (69.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+每个场景数据的统计信息
+
+# Cat表示工具类别的数量，# Subcat表示工具子类别的数量，# Tool表示工具的数量，# Query表示用户查询(user queries)的数量
+
+<img src="https://img.saraba1st.com/forum/202401/03/060714igao01g9sg069iax.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060152__02.jpg</strong> (110.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+每个场景都有不同的工具类别
+
+<img src="https://img.saraba1st.com/forum/202401/03/060719l4oqh4otq4qqkr04.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060207__01.jpg</strong> (400.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+在每个场景下不同模型的性能表现，以百分比表示，“ALL”表示在所有场景下的得分，每个场景中最好的结果以粗体展示
+
+<img src="https://img.saraba1st.com/forum/202401/03/060725nb86esuo8hob8obn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060222__01.jpg</strong> (158.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+通过Welch's ANOVA测试(Welch’s ANOVA test)检查七种场景下各种LLM的总分，p值小于0.05表示数据之间存在显著差异
+
+<img src="https://img.saraba1st.com/forum/202401/03/060734o5exq2qef2qa9zf5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060242__01.jpg</strong> (96.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+对比了Vicuna-1.5-7B和Text-davinci-003在每种场景下的性能
+
+<img src="https://img.saraba1st.com/forum/202401/03/060738r911z1k0z1jvsvq0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060251__01.jpg</strong> (143.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+每个LLM与环境交互的轮数的概率密度分布
+
+<img src="https://img.saraba1st.com/forum/202401/03/060742uo20y0t0jt005j5y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060306__01.jpg</strong> (227.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+所有场景中各种LLM在每个能力维度上的性能
+
+<img src="https://img.saraba1st.com/forum/202401/03/060747s3djfxpmmznhbhp1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060319__01.jpg</strong> (107.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+LLM的各种能力维度之间的皮尔逊相关系数(Pearson correlation coefficients)
+
+<img src="https://img.saraba1st.com/forum/202401/03/060753mq7uuq5iq2uw7nq5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060338__01.jpg</strong> (375.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+不同错误类型的一些示例，其中的错误已经标记为红色
+
+<img src="https://img.saraba1st.com/forum/202401/03/060758ckybhmbbjjkxibbp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060356__01.jpg</strong> (70.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:07 上传
+
+LLM的输出中缺少关键字的轮次和带有冗余句子的轮次
+
+<img src="https://img.saraba1st.com/forum/202401/03/060802zoo7ivyzuecujzce.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-060401__01.jpg</strong> (45.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:08 上传
+
+Vicuna-1.5的st−realty和st−match(%)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

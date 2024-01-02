@@ -3782,3 +3782,13 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 自回体不刻意刷梅丽我都快8绊了，毕竟要防C呆磨损用得还是挺多的
 
+
+*****
+
+####  Kon-El  
+##### 45875#       发表于 2024-1-2 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">C呆无限池的时候就满15绊了，现在还是咬着牙上班
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

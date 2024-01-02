@@ -624,3 +624,52 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 
 看不懂啊
 
+
+*****
+
+####  nuoer  
+##### 3785#       发表于 2024-1-2 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508512&amp;ptid=2098044" target="_blank">wthall 发表于 2024-1-2 08:50</a>
+和骷髅对话好像也没有，不过我那个加时杯的外头没有clear字样，但是里面也确实没有新关了。
+
+看不懂啊 ...</blockquote>
+打完オールスター(中文叫全明星？)这关后跟骷髅对话追加最终关，打完最终关后再跟骷髅对话就能获得饰品了
+
+你看一下你最终关的奖励是不是爱情
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  christiny  
+##### 3786#       发表于 2024-1-2 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508512&amp;ptid=2098044" target="_blank">wthall 发表于 2024-1-2 08:50</a>
+
+和骷髅对话好像也没有，不过我那个加时杯的外头没有clear字样，但是里面也确实没有新关了。
+
+看不懂啊 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202401/02/091123qsise5h1eizzlr55.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240102091133.png</strong> (63.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 09:11 上传
+
+你看看有没有漏的。
+
+*****
+
+####  wthall  
+##### 3787#       发表于 2024-1-2 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508598&amp;ptid=2098044" target="_blank">nuoer 发表于 2024-1-2 09:06</a>
+
+打完オールスター(中文叫全明星？)这关后跟骷髅对话追加最终关，打完最终关后再跟骷髅对话就能获得饰品了 ...</blockquote>
+目前不是，最终关打完送的是反射戒。
+
+虽然我觉得也算全明星了，用着4人小队+男主角+女主角+师傅
+

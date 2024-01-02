@@ -1897,3 +1897,14 @@ fsr联动会把今年五月的联动名额顶掉吗</blockquote>
 
 <[img src="https://s2.loli.net/2024/01/02/G53tamXqewdui9M.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 10686#       发表于 2024-1-2 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63507624&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-1-2 01:05</a>
+
+这些一人多役的到时候轮流出国，轮到UMB只能坐电车去京都</blockquote>
+工作太多无法安排出国时间吧。川澄都已经很少一线角色了，当然可以出外国<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

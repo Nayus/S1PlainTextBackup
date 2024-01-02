@@ -11555,3 +11555,15 @@ nagi的话我只是觉得她的长相适合当演员，不过现在是没什么�
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  stygian  
+##### 19074#       发表于 2024-1-2 19:24
+
+“虽然说做八个，但是我觉得做四个就行了”
+
+“差不多就行了”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

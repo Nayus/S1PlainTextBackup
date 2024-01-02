@@ -5858,3 +5858,18 @@ https://x.com/lacto_pt/status/1741858854978327018?s=20
 
 因為綾奈說需要一個人對C團執著，所以爽世就是要對C團執著，不然這個劇情怎麼推呀<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qjw114514  
+##### 6545#       发表于 2024-1-2 22:53
+
+也许手游哪天就来个部员重女一直默默看着soyo，然后问出为什么吹奏部成为不了你的归宿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6546#       发表于 2024-1-2 22:56
+
+因为是少女乐队动画不是少女吹奏乐团动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7859,3 +7859,12 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 2292#       发表于 2024-1-2 16:01
+
+<img src="https://s2.loli.net/2024/01/02/RlUi5DLSeCqVQ7k.png" referrerpolicy="no-referrer">
+假格鱼虎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

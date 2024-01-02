@@ -7916,3 +7916,23 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 有的掉线被关10分钟，有的掉线却能接着匹配，这到底是什么原因？即便自己网络好，如果房主网络差，自己是不是也会掉线？我真希望下一代别搞这种老旧的联机方式了，真的搞人心态
 
+
+*****
+
+####  苍蓝之枪  
+##### 2297#       发表于 2024-1-2 23:26
+
+就当是鲑坝高压训练了，不过我觉得就涨潮这种一个wave能开掉两个镭射的奇葩地形，到底要怎么样才能稳定上分
+
+*****
+
+####  星野航  
+##### 2298#       发表于 2024-1-2 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63517031&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-2 23:11</a>
+
+起这ID是不是太低俗了？贴牌文森真的烦死了，攻击距离长范围广，还能放导弹，为了躲导弹害得我跳水好几次
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比这个id低俗得多的id见过很多的
+

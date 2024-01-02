@@ -568,3 +568,26 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 
 是不是刷完爱情就能去通关了？
 
+
+*****
+
+####  kuarwbwe  
+##### 3781#       发表于 2024-1-2 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63494632&amp;ptid=2098044" target="_blank">牛奶笛 发表于 2023-12-31 19:42</a>
+
+兄弟们，趁着假期通关了，还有几个问题
+
+1 城堡有蓝色护罩，写着“一般人进不去”，需要什么条件才能进去？ ...</blockquote>
+那城堡好像就是封印城，就是第六章宰相关男主，下去能打那个大脑boss的地。
+
+*****
+
+####  kuarwbwe  
+##### 3782#       发表于 2024-1-2 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63501584&amp;ptid=2098044" target="_blank">突发性哮喘病患 发表于 2024-1-1 13:04</a>
+
+楼上怎么有人追着扣鹅233</blockquote>
+看那个扣鹅的id，估计是因为就装甲核心的问题吵过架了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

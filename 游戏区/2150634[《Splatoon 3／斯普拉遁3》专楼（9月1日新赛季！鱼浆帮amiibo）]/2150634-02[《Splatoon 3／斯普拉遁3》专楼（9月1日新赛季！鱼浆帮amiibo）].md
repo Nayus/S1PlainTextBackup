@@ -7839,3 +7839,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 — from OPPO PDEM30, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2290#       发表于 2024-1-2 13:15
+
+以前我都是打工拿首胜的，今天我选择涂地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

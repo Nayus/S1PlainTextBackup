@@ -1946,3 +1946,11 @@ fsr联动会把今年五月的联动名额顶掉吗</blockquote>
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  poor  
+##### 10691#       发表于 2024-1-2 19:03
+
+离心机转AE是哪个天才想出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -11483,3 +11483,24 @@ nagi的话我只是觉得她的长相适合当演员，不过现在是没什么�
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 19066#       发表于 2024-1-2 19:03
+
+直播开始了，但是没有声音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  stygian  
+##### 19067#       发表于 2024-1-2 19:09
+
+回上海了，怕不是在阿b的棚里。。。
+
+后面气球，神他妈brithday
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

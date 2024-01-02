@@ -447,3 +447,11 @@ p图罢了
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TiHaru  
+##### 16086#       发表于 2024-1-2 19:03
+
+新年参拜啊，和现实朋友吧，性别也没说
+

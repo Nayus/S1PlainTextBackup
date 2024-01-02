@@ -3836,3 +3836,11 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 要雨神抽大姐姐就行了，我还嫌这俩都绑雨神如果两个都抽最后雨神肯定看到吐
 
+
+*****
+
+####  sosgame67  
+##### 45880#       发表于 2024-1-2 15:32
+
+我抽大姐姐2宝雨神就溢出了，要抽烟雾镜的话肯定不会缺雨神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

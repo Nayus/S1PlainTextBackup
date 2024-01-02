@@ -48,3 +48,20 @@ AN必得和FA必得都是+1，还都不是平常用的女演员，继续诅咒�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">摄像头不是固定在被炉中间吗，怎么怼镜头
 
+
+*****
+
+####  不灭的旋律  
+##### 863#       发表于 2024-1-2 22:33
+
+小龙人装的神龙摆尾动作有的服装做不出，估计和跑步机一样又是金字塔的迷之技术力问题。
+
+还有除夕108烦恼活动最后是安洁和京，周年就是这两人了吧？是大吃一京还是化为乌友就看楼友造化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 864#         楼主| 发表于 2024-1-2 22:39
+
+把这两人出了后，还在飞的卫星除了个aina外就没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是该新一轮换皮了
+

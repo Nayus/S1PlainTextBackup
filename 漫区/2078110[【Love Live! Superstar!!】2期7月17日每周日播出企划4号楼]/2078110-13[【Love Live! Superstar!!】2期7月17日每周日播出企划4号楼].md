@@ -11658,3 +11658,13 @@ staff也太草台了吧，感觉我上我也行
 
 staff太业余，流程安排也不是很好<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19086#       发表于 2024-1-2 21:20
+
+又是草台论万能的一天，不过鱼的国内工作室是不是算刚开始运营啊，可能还是有个养成过程<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">（想起星一巡的养成系导播了）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

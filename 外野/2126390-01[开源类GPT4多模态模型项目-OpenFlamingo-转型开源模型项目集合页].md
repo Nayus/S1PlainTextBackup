@@ -21656,3 +21656,130 @@ Mistral 7B
 由Mistral AI团队发布，迄今为止最强大的语言模型系列之一</blockquote>
 玩了下，这个还真不错，关键是比他强的协议都没他好
 
+
+*****
+
+####  Machinery  
+##### 1146#       发表于 2024-1-2 19:18
+
+GeoGalacica
+
+地球科学(Geoscience)中的科学大型语言模型
+
+相关技术报告:https://arxiv.org/abs/2401.00434
+
+github项目主页:https://github.com/geobrain-ai/geogalactica
+
+大型语言模型(LLM)凭借其通用的知识和解决广泛范围内的各种自然语言处理(NLP)任务的能力取得了巨大成功，由于其令人印象深刻的能力，通过利用LLM促进人工智能进行科学领域((AI4S/AI for science))的交叉学科(inter-discipline)应用提供了新的可能性，同时，在地球科学研究和实践中利用NLP技术是宽广而复杂的，其中需要从知识提取和文档分类到问题回答以及知识发现等各方面的贡献
+
+在这项工作中， 通过利用LLM来进行科学研究迈出了最初的一步，使用了一种相当简单有效的方法，将LLM转换为了地球科学方面的专家，首先，使用大量的地球科学文本对模型进行了进一步的预训练，并使用研究组自己收集的指令调整数据集进行了监督微调(SFT)，这些努力产生了一个包含300亿参数的模型，GeoGalactica，据目前所知，这是地球科学领域最大的语言模型
+
+更具体地说，GeoGalactica是基于Galactica进一步预训练得到的，使用了一个包含650亿 Token的地球科学相关文本语料库对GeoGalactica进行训练，这些文本来自大型科学项目Deep-time Digital Earth(DDE)的广泛数据源，是迄今为止最大的地球科学特定文本语料库，然后使用100万对指令调整数据对模型进行微调，其中包含需要专业地球科学知识才能回答的问题
+
+在这份技术报告中，详细介绍了GeoGalactica的所有方面，包括数据收集、数据清洗、基础模型选择、预训练、SFT和评估，同时将开源数据标注工具以及GeoGalactica在前3/4的预训练过程中的检查点
+
+<img src="https://img.saraba1st.com/forum/202401/02/191801n18qf4jxl3gvq5dq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191233__01.jpg</strong> (430.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+GEOGALACTICA的处理、构造、组件和应用概览图
+
+<img src="https://img.saraba1st.com/forum/202401/02/191808v2ssf3gzgm83s3yr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191245__01.jpg</strong> (167.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+尖端人工智能技术用于进行地球科学研究的进展示意图，淡绿色的文本框显示了来自计算机科学领域的技术，淡黄色的文本框显示了可能是地球科学家首次使用这些技术的研究
+
+<img src="https://img.saraba1st.com/forum/202401/02/191813a7d7fb2zd2722fb9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191251__01.jpg</strong> (235.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+本技术报告用到的词汇
+
+<img src="https://img.saraba1st.com/forum/202401/02/191817ikcok7mefakkaznf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191304__01.jpg</strong> (140.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+用于训练GEOGALACTICA的语料库的数据分布
+
+<img src="https://img.saraba1st.com/forum/202401/02/191821cf8bqrrxq573rzqk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191336__01.jpg</strong> (244.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+分词化(Tokenization)处理后的文本
+A.展示了一个图表标记的例子，只选择保留标题；
+B.展示了一个表格标记的例子，将表格转换为Markdown格式；
+C.展示了引用标记的分词化处理，将引用数字替换为引用论文的标题，以保持文本语料的可读性；
+D.展示了公式的特殊Token的例子
+
+<img src="https://img.saraba1st.com/forum/202401/02/191829idshvjhdtr7drpl6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191354__01.jpg</strong> (224.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+对GeoSignal贡献最大的四个平台
+
+<img src="https://img.saraba1st.com/forum/202401/02/191834gbeeterir226twea.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191406__01.jpg</strong> (276.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+知识密集数据源
+
+<img src="https://img.saraba1st.com/forum/202401/02/191839eh7dd5gh2cephz53.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191421__01.jpg</strong> (251.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+用于说明构造知识密集型指令数据的重构示例
+
+<img src="https://img.saraba1st.com/forum/202401/02/191843qewuudnixizbqfiv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191438__01.jpg</strong> (285.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:18 上传
+
+GeoSignal统计表格
+
+<img src="https://img.saraba1st.com/forum/202401/02/191934fhdrvs3hhs2d937r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240102-191914.jpg</strong> (113.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-2 19:19 上传
+
+相关资源链接
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

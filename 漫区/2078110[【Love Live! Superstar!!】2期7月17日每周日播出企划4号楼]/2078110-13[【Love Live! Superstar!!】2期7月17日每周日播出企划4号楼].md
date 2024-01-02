@@ -11617,3 +11617,22 @@ nagi的话我只是觉得她的长相适合当演员，不过现在是没什么�
 
 没蒸熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 19081#       发表于 2024-1-2 20:28
+
+确实感觉运营不咋专业
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cat1230  
+##### 19082#       发表于 2024-1-2 20:32
+
+为什么是这个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

@@ -3844,3 +3844,11 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 我抽大姐姐2宝雨神就溢出了，要抽烟雾镜的话肯定不会缺雨神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 45881#       发表于 2024-1-3 00:29
+
+才发现fes预热第二天没做，算了不是什么重要东西
+

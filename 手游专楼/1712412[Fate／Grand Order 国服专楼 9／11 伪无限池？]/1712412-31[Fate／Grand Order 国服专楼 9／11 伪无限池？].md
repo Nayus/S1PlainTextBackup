@@ -3762,3 +3762,15 @@ new感觉没啥优先度，基本都是二宝起步吧
 24年有什么新的人权卡么？必须高宝那种。我现在还是拿着三宝仇凛无脑冲，偶尔双杀狐+摩根除了动画看烦了似 ...</blockquote>
 日服的2023年内没有这种类型的，甚至几个半拐和强势单体也都可以不抽
 
+
+*****
+
+####  超电波系MK2  
+##### 45873#       发表于 2024-1-2 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63510735&amp;ptid=1712412" target="_blank">JOHNCHCHAN 发表于 2024-1-2 12:00</a>
+24年有什么新的人权卡么？必须高宝那种。我现在还是拿着三宝仇凛无脑冲，偶尔双杀狐+摩根除了动画看烦了似 ...</blockquote>
+严格来说没有，不过兽尼禄可以抽一下，目前没有进普通福袋。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

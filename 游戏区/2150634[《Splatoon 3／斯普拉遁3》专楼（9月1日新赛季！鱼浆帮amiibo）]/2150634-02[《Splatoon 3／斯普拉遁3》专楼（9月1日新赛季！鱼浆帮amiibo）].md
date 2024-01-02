@@ -7849,3 +7849,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晴岚  
+##### 2291#       发表于 2024-1-2 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最主要两把狙都没穿透就特别难搞，乌贼研绝对故意的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

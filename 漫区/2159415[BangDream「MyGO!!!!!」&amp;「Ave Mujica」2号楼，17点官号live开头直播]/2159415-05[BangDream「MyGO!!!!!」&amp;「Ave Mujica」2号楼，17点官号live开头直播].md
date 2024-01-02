@@ -5850,3 +5850,11 @@ https://x.com/lacto_pt/status/1741858854978327018?s=20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">😭团对于soyo的特殊性在哪，为什么不能是吹奏乐社团
 
+
+*****
+
+####  御幸一也  
+##### 6544#       发表于 2024-1-2 22:50
+
+因為綾奈說需要一個人對C團執著，所以爽世就是要對C團執著，不然這個劇情怎麼推呀<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

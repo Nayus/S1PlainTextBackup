@@ -3852,3 +3852,21 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 才发现fes预热第二天没做，算了不是什么重要东西
 
+
+*****
+
+####  khxooo  
+##### 45882#       发表于 2024-1-3 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63512963&amp;ptid=1712412" target="_blank">一个人的旅途 发表于 2024-1-2 15:05</a>
+
+快来人告诉我【有了满配公主，不需要抽烟雾镜】…免得我又剁手！</blockquote>
+公主什么东西能和烟雾镜比<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 45883#       发表于 2024-1-3 01:10
+
+小号上头300多石头麻婆05星，慢慢攒石等兽尼吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

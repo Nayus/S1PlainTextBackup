@@ -696,3 +696,36 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 那就是还剩会长没有打。</blockquote>
 奇怪了我和柜台那骷髅对话了啊，怎么感觉没有新的东西追加，还是问我要选哪关打？ 难道要求把其他杯赛全部clear了才能行？
 
+
+*****
+
+####  christiny  
+##### 3790#       发表于 2024-1-2 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508712&amp;ptid=2098044" target="_blank">wthall 发表于 2024-1-2 09:20</a>
+
+奇怪了我和柜台那骷髅对话了啊，怎么感觉没有新的东西追加，还是问我要选哪关打？ 难道要求把其他杯赛全 ...</blockquote>
+应该是要ALL CLEAR才行。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wthall  
+##### 3791#       发表于 2024-1-2 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508772&amp;ptid=2098044" target="_blank">christiny 发表于 2024-1-2 09:27</a>
+
+应该是要ALL CLEAR才行。</blockquote>
+之前有一大堆没有卵用的攻击卡XX卡关卡我就没打
+
+哎。
+
+*****
+
+####  wthall  
+##### 3792#       发表于 2024-1-2 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508772&amp;ptid=2098044" target="_blank">christiny 发表于 2024-1-2 09:27</a>
+
+应该是要ALL CLEAR才行。</blockquote>
+但是不对啊，还是没有增加自身装备武器的武器盘掉落率up戒指。。。。
+

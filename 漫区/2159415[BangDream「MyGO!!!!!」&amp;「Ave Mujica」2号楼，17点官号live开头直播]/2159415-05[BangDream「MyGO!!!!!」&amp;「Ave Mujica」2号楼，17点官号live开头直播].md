@@ -5873,3 +5873,13 @@ https://x.com/lacto_pt/status/1741858854978327018?s=20
 
 因为是少女乐队动画不是少女吹奏乐团动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 6547#       发表于 2024-1-2 23:04
+
+因为这是Bangdream企划，要是隔壁京吹片场，吹奏部说不定可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+认真来说感觉soyo更需要的是“小家”的温暖，乐队和社团果然还是前者的规模更符合这个要求吧。而且在c团那段时间里，她们有了自己的歌，并在舞台上完成表演，这种从无到有的体验，是吹奏部反复练习演出别人的曲子带不来的，你看c团演出完soyo激动的样子，估计那会儿就把“命运共同体”这五个字刻在心里了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

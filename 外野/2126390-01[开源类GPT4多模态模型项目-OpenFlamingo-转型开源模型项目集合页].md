@@ -22114,3 +22114,87 @@ Vicuna-1.5的st−realty和st−match(%)
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1149#       发表于 2024-1-3 06:45
+
+ 本帖最后由 Machinery 于 2024-1-3 06:46 编辑 
+
+ReasoningLM
+
+在预训练模型中启用结构子图推理以进行知识图谱问答(Enabling Structural Subgraph Reasoning in Pre-trained Language Models for Question Answering over Knowledge Graph)
+
+github项目代码仓库(待整理):https://github.com/RUCAIBox/ReasoningLM
+
+知识图谱问答(KGQA/Question Answering over Knowledge Graph)旨在从大规模知识图谱(KG)中寻找自然语言问题的答案实体，为了更好地对KG进行推理，最近的研究通常采用预训练语言模型(PLM)对问题进行建模，并采用基于图神经网络(GNN)的模块对KG进行多跳推理(multi-hop reasoning)，尽管这种方法卓有成效，但由于模型架构的差异，PLM和GNN并没有紧密集成，这限制了知识共享和细粒度的特征交互
+
+为了解决这个问题，本文目标是简化上述的两个模块方法，并开发一个更强大的PLM，可以直接支持KGQA的子图推理，即ReasoningLM
+
+在本文方法中，提出了一个子图感知的自注意机制(subgraph-aware self-attention mechanism)，以模拟GNN进行结构化推理，并采用自适应调整策略来调整具有20000个合成问题的子图的模型的参数
+
+调整后，PLM可以在下游任务上进行参数高效的微调，实验证明，ReasoningLM在性能上大幅超过了现有的SOTA模型，即使是在更新的参数与训练数据同样少的情况下
+
+<img src="https://img.saraba1st.com/forum/202401/03/064444bytp7y0yzqrtetr0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-064201__01.jpg</strong> (316.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:44 上传
+
+根据问题使用提出的子图序列化(subgraph serialization)和子图感知自注意力(subgraph-aware self-attention)，在子图上执行答案实体推理的示意图
+
+<img src="https://img.saraba1st.com/forum/202401/03/064448du9yx7xmtm5nyz8y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-064217__01.jpg</strong> (436.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:44 上传
+
+知识图谱问答的不同方法的性能对比(以百分比表示的Hits@1和F1)，粗体和下划线分别表示最佳和次佳方法，FPT和PET分别表示全参数调整和参数高效调整，Rule-SYN和LLM-SYN分别代表使用基于规则和基于LLM的策略合成问题
+
+<img src="https://img.saraba1st.com/forum/202401/03/064452s48fk6wq2qq1q6t6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-064224__01.jpg</strong> (100.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:44 上传
+
+实验数据集的统计信息
+
+<img src="https://img.saraba1st.com/forum/202401/03/064457xr92we6tq9ev6oq2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-064237__01.jpg</strong> (66.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:44 上传
+
+子图感知自注意力机制(SA)和自适应调整(AT)的消融实验
+
+<img src="https://img.saraba1st.com/forum/202401/03/064503zt9r1pp9dt9pir4m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-064237__02.jpg</strong> (58.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:45 上传
+
+使用不同的PLM在CWQ上的ReasoningLM性能
+
+<img src="https://img.saraba1st.com/forum/202401/03/064507v47xsgjjl827im3s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-064246__01.jpg</strong> (100.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 06:45 上传
+
+在使用不同数量样本进行自适应调整后，ReasoningLM在WebQSP和CWQ上的Hits@1分数(左边)，以及ReasoningLM在CWQ上与两个强基线(NSM和UniKGQA)进行微调时不同数量样本的Hits@1分数(右边)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

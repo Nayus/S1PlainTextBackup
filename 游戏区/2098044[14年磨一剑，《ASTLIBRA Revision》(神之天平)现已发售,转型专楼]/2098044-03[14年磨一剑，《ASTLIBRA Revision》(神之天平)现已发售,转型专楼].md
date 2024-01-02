@@ -729,3 +729,31 @@ NS版通关，70多小时，94级，全收集，所有结局也都过了一遍�
 应该是要ALL CLEAR才行。</blockquote>
 但是不对啊，还是没有增加自身装备武器的武器盘掉落率up戒指。。。。
 
+
+*****
+
+####  christiny  
+##### 3793#       发表于 2024-1-2 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508818&amp;ptid=2098044" target="_blank">wthall 发表于 2024-1-2 09:31</a>
+
+但是不对啊，还是没有增加自身装备武器的武器盘掉落率up戒指。。。。</blockquote>
+那个道具名字是 KEIZO徽章，图标也是一个徽章。
+
+会长战打完，去对话就会奖励这个。
+
+*****
+
+####  tansapple  
+##### 3794#       发表于 2024-1-2 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63508338&amp;ptid=2098044" target="_blank">wthall 发表于 2024-1-2 08:19</a>
+打到盖亚迷宫了，开始刷好感度，这个好感度打过一大关就能回去结算一下嘛？还是能积累的？
+
+盖亚迷 ...</blockquote>
+队友好感是按杀怪数量来积累的，而且是全游戏通用不限于盖亚迷宫，可以找一个怪多密集的章节反复刷。
+
+竞技场把会长也打了吗？记得是打完会长才有增加当前装备武器盘掉率的徽章。
+
+剧情方面确实是刷完爱情看完女主全部事件之后就可以通关了。
+

@@ -6040,3 +6040,19 @@ c团练习到演出成功的这段日子就像是美满的童年中孩子记忆�
 
 410吧，举例来说正常发售的游戏基本都会提前开官推和官网，但周年纪念日从来是按发售日来的
 
+
+*****
+
+####  紫吹兰  
+##### 6562#         楼主| 发表于 2024-1-3 18:08
+
+来点音宝锐评<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/03/180753e3top0go03gr030g.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240103180726.png</strong> (91.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 18:07 上传
+

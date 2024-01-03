@@ -1981,3 +1981,13 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次
 
 煌星、神酒和镜子，也就煌星有点用<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 10695#       发表于 2024-1-3 12:30
+
+说明官方是真喜欢这个梗，每当大家快忘了的时候都要提醒一次，另外画面下方C呆被妖崔骑到高潮，好姬友麦布只能看着的场景也很巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 神酒，鬼灯，金蛋X5，前两个库存都近百了，也就金蛋未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

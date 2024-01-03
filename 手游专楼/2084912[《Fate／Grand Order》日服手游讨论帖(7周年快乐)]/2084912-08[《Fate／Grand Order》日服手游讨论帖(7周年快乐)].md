@@ -2055,3 +2055,18 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 我觉得巴妈就写得不错。距离保持得很好，就是一个关心自己的长辈，有自己爱的丈夫，主角（不是玩家）也没 ...</blockquote>
 说起来，茶茶也是表面吵吵闹闹，内心细腻的类型，虽然和正史的差了很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 10701#       发表于 2024-1-3 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63524456&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-3 16:34</a>
+我觉得巴妈就写得不错。距离保持得很好，就是一个关心自己的长辈，有自己爱的丈夫，主角（不是玩家）也没 ...</blockquote>
+巴御前算个屁的人妻，全程都是按会打游戏的JD给你写的，你举她还不如举例海伦娜
+
+真就被忽悠得自己都信了
+至于俩女作家就更蠢，你月这写法纯年上系算个锤子人妻
+你要年轻妈妈为什么不试试u149呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

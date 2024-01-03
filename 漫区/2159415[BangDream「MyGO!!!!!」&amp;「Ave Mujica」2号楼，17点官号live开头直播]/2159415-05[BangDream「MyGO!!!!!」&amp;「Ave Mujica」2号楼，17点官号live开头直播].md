@@ -6160,3 +6160,11 @@ https://weibo.com/5843722830/4986131506793721<img src="https://p.sda1.dev/15/f22
 
 最后直接变成ylg大战姨姥<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">ylg化身祥子大战姨姥化身ksm
 
+
+*****
+
+####  ninokagami  
+##### 6574#       发表于 2024-1-3 22:23
+
+我只觉得ksm能出现在邦人气榜前5令人欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

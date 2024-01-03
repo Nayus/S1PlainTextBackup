@@ -6112,3 +6112,11 @@ kdhd<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referr
 
 https://weibo.com/5843722830/4986131506793721<img src="https://p.sda1.dev/15/f223b00c25dbfaa0773555929dfe5214/CMP_20240103213837139.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6568#       发表于 2024-1-3 21:57
+
+<img src="https://p.sda1.dev/15/a01a0463939552d4eb5b00a615625693/CMP_20240103215620275.jpg" referrerpolicy="no-referrer">刚刚邦吧被戏称遗老与易拉罐大战的投票结束了
+

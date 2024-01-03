@@ -11847,3 +11847,13 @@ Pay这个是新年做梦嘛...
 全部败绩的Liella！
 <img src="https://p.sda1.dev/15/97e3bb38a9e6a9a61776ce45da02cce8/CMP_20240103210138864.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19106#       发表于 2024-1-3 21:07
+
+明年星想要赢只能派出双N<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

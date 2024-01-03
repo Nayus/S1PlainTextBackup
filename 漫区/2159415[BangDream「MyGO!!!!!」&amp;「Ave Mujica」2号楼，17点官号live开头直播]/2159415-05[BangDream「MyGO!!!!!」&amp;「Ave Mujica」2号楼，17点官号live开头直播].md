@@ -6364,3 +6364,11 @@ wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得�
 wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得已经够离谱了 ...</blockquote>
 这时候就该庆幸mujica不是最开始那个废墟斜角乐队了，现在这个世界观真有废墟元素大不了改改mv背景<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  K·os  
+##### 6595#       发表于 2024-1-4 02:31
+
+坛友感觉才是真的有点不了解邦多利的构成，ksm人气中游这是很正常的，元气立德比较经常出现的一个位置，但是邦多利本身就是一个关于天才的故事，而ksm确实就是那个开启了这个故事的龙傲天，对邦多利的代表意义是非常重大的，更别说邦多利的主唱确实就是要比其他位置高一等，主唱是星星懂不懂啊，星星<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

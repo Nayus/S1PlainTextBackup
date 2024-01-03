@@ -6287,3 +6287,46 @@ ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了�
 
 整个2.5都在走下坡路，新团风格和运营策略变动可以看得出来根本P可能有点想法，不过嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新团能正常运作多续几年就是胜利
 
+
+*****
+
+####  NODY  
+##### 6587#       发表于 2024-1-4 00:33
+
+祥子章鱼超进化版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/04/003329ii5r13d1u813rk26.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240104003230.png</strong> (80.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 00:33 上传
+
+*****
+
+####  星空冻结  
+##### 6588#       发表于 2024-1-4 00:33
+
+🐔团动画别爆炸就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuyin589  
+##### 6589#       发表于 2024-1-4 00:37
+
+没想到那边质疑祥子人气的比质疑ksm人气的还多<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 6590#       发表于 2024-1-4 00:37
+
+ 本帖最后由 Aendst 于 2024-1-4 00:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经在提前做动画爆炸就立刻切割的准备了
+
+顺便一提因为地震的缘故现在邦相关公式都是静默状态，不知道会不会影响准备在七号发的东西<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

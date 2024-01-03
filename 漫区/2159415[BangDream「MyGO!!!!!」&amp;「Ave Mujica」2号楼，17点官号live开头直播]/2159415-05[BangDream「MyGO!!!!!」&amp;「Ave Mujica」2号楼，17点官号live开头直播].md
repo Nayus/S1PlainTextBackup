@@ -6168,3 +6168,18 @@ https://weibo.com/5843722830/4986131506793721<img src="https://p.sda1.dev/15/f22
 
 我只觉得ksm能出现在邦人气榜前5令人欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 6575#       发表于 2024-1-3 22:34
+
+记得祥子之前挺好萌的时候票数还没这么离谱，短短三个月就升级到这个人气，第二季开播还得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 6576#       发表于 2024-1-3 22:36
+
+啊这 箱居然能在贴吧拿人气第一<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+

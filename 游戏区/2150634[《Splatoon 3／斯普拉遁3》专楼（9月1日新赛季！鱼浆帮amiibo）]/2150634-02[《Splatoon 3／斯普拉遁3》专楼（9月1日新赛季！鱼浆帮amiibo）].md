@@ -7972,3 +7972,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  苍蓝之枪  
+##### 2303#       发表于 2024-1-3 22:42
+
+也没那么舒服吧，打了两个岗只上了90分，总觉得搬蛋效率不太行
+

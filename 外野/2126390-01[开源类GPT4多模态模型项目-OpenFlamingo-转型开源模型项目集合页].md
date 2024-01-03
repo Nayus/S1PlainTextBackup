@@ -22375,3 +22375,83 @@ TrailBlazer承继了底层预训练模型(ZeroScope)的限制，这些限制包�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1152#       发表于 2024-1-4 02:36
+
+Q-Refine
+
+用于AI生成图像的质量感知优化器
+
+github项目主页:https://github.com/Q-Future/Q-Refine
+
+近年来，随着文本到图像(T2I)模型的急速发展，其生成结果的不尽人意已经成为一个需要解决的挑战，然而，对于不同质量的人工智能生成图像(AIGIs/AI-Generated Images)进行统一的优化，不仅限制了对低质量AIGIs的优化能力，还对高质量AIGIs带来了负面的优化效果
+
+为了解决这个问题，本文提出了一种称为Q-Refine的质量奖励细化器(quality-award refiner)，基于人类视觉系统(HVS/Human Visual System)的偏好，Q-Refine首次使用图像质量评估(IQA/Image Quality Assessment)指标来引导细化过程，并通过三个适配工作流程修改不同质量的图像
+
+实验证明，对于主流的T2I模型，Q-Refine能够对不同质量的AIGIs进行有效优化，还能作为一个通用细化器，从保真度和美学质量两个方面优化AIGIs，从而拓展了T2I生成模型的应用范围
+
+<img src="https://img.saraba1st.com/forum/202401/04/023533wpipm5qewwqfp5rw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-023308__01.jpg</strong> (668.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 02:35 上传
+
+来自AGIQA-3K的原始AIGIs，经过传统细化器和本文提出的Q-Refine优化，作为一种质量感知指标，Q-Refine可以在模糊部分添加细节，以更好地优化低质量区域(1)(2)；提高中等质量区域(3)(4)的清晰度而不改变整个图像；并避免降低高质量区域(5)(6)的质量
+
+<img src="https://img.saraba1st.com/forum/202401/04/023537jp7qd4cgtwy3rrwg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-023321__01.jpg</strong> (430.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 02:35 上传
+
+Q-Refine的框架，包括质量预处理模块(quality pre-prossess module)和用于低/中/高质量(LQ/MQ/HQ)区域的三个细化工作流程，每个工作流程的细化机制接受预测质量的指示
+
+<img src="https://img.saraba1st.com/forum/202401/04/023543l45j44il8uh66zil.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-023329__01.jpg</strong> (128.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 02:35 上传
+
+仅使用SDXL的降噪/添加噪声+降噪的细化结果，添加噪声会降低质量，但在降噪之前可以为全局最优结果奠定基础
+
+<img src="https://img.saraba1st.com/forum/202401/04/023547wn5dn0n7x17x50gd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-023329__02.jpg</strong> (116.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 02:35 上传
+
+使用原始区块质量图/展平图(flattened map)来引导重绘，(a)受到块影响并产生意外伪影，而(b)则具有平滑自然的结果
+
+<img src="https://img.saraba1st.com/forum/202401/04/023553i9f34fjff94gzsdv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-023335__01.jpg</strong> (89.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 02:35 上传
+
+使用盲增强器(blind enhancer)或提示引导增强器(prompt-guided enhancer)来提升AGIQA-3K中不同质量组的图像，盲增强器在低质量组中显示出更好的提升结果，但会对高质量组造成负面优化效果
+
+<img src="https://img.saraba1st.com/forum/202401/04/023559zipidlr6w1i4ic56.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-023349__01.jpg</strong> (546.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 02:35 上传
+
+相关性能评估
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7990,3 +7990,12 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  炫夜鳞  
+##### 2305#       发表于 2024-1-4 01:24
+
+轻松康了，中途被野人折磨的不轻，一堆传家宝人
+上了900之后直接被带飞了
+

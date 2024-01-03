@@ -6120,3 +6120,26 @@ https://weibo.com/5843722830/4986131506793721<img src="https://p.sda1.dev/15/f22
 
 <img src="https://p.sda1.dev/15/a01a0463939552d4eb5b00a615625693/CMP_20240103215620275.jpg" referrerpolicy="no-referrer">刚刚邦吧被戏称遗老与易拉罐大战的投票结束了
 
+
+*****
+
+####  アコ  
+##### 6569#       发表于 2024-1-3 22:04
+
+祥子不愧是和CDD相反的二代中心人物
+
+*****
+
+####  阿姆罗二世  
+##### 6570#       发表于 2024-1-3 22:08
+
+看贴吧火药味好浓<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アコ  
+##### 6571#       发表于 2024-1-3 22:10
+
+话说SOYO在吹奏部也是中之人逆输入，蜜柑曾当过吹奏部的副部长
+

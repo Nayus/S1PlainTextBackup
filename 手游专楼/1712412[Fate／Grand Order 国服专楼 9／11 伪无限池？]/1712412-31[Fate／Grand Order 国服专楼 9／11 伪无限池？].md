@@ -3933,3 +3933,15 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 感觉烟先生很悬，难道要攒到周年或者明年春节福袋才能接他回迦吗
 
+
+*****
+
+####  Urakawa  
+##### 45891#       发表于 2024-1-3 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63527336&amp;ptid=1712412" target="_blank">待宵 发表于 2024-1-3 21:31</a>
+死命刷狗粮中
+
+话说量子本什么时候AP减半？</blockquote>
+1.11号后，打完2.7前篇就有量子本减半
+

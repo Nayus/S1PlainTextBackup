@@ -22198,3 +22198,86 @@ github项目代码仓库(待整理):https://github.com/RUCAIBox/ReasoningLM
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1150#       发表于 2024-1-3 23:10
+
+Boundary Attention
+
+学习在任何分辨率下寻找微弱边界(Faint Boundaries)
+
+项目主页:https://boundaryattention.github.io/
+
+code:coming soon
+
+本文提出了一个可微模型(differentiable model)，通过一种称之为边界注意力(boundary attention)的新机制，可以显式地建模边界，包括轮廓、拐角和连接点(boundaries -- including contours, corners and junctions)
+
+即使边界信号非常弱，又或者被噪声淹没，本文模型也能准确的提供精确的结果，与以前用于发现微弱边界的经典方法相比，本文模型具有可微分性、可扩展以适应更大的图像，还能够自动适应图像每个部分的适宜几何细节层次
+
+与先前通过端到端训练来发现边界的深度方法相比，本文模型可以提供亚像素精度(sub-pixel precision)、更能抗噪声，还能够以原生分辨率以及纵横比处理任何图像
+————
+总览
+
+<img src="https://img.saraba1st.com/forum/202401/03/230700dt9rqq6qzeq65l5s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-230643.jpg</strong> (234.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 23:07 上传
+
+介绍了一种轻量级的自下而上模型(bottom-up model)，能够以高精度推理基于颜色(color-based)的边界，输出的边界由像素分辨率的向量场(pixel-resolution vector fields)表征，该向量场编码了图像中每个步幅为1(every stride-1 patch in an image)的区块(patch)的三分法(three-way partitions)和相关的窗口函数，这种输出可以表达各种边界元素，包括轮廓、细条、拐角、T形连接点和Y形连接点，因为它们是在没有进行光栅化的情况下进行表达的，因此没有分辨率限制
+
+图像的底行滚动展示了这些输出，每个区块的分区都通过边界和分割颜色进行了可视化，这些重叠区块的各种“折叠(foldings)”导向了图像顶行的像素分辨率输出映射图:输入颜色的边界感知平滑、全局边界映射图(表示为无符号距离函数)以及每个像素与所有邻近之间的空间近似(spatial affinities)
+
+本文模型的核心是一种特殊形式的邻近自注意力(neighborhood self-attention)，称为边界注意力，研究发现，可以使用非常简单的合成图像将其训练到一个可用的状态，这表明它对边界具有归纳偏差(inductive bias)，此外，由于它的所有操作都是局部和自下而上的，因此可以在小图像上训练它，然后可以在任何图像尺寸以及纵横比上应用它
+————
+模型的实现细节
+
+<img src="https://img.saraba1st.com/forum/202401/03/230708tkbob6ebc3ubzhnu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-230154.jpg</strong> (429.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 23:07 上传
+
+————
+模型的涌现性质
+
+<img src="https://img.saraba1st.com/forum/202401/03/230928obbaiqz1ja4at67y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-230238__01__01.jpg</strong> (333.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202401/03/230928bfo7hbra8rfzuerq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-230238__01__02.jpg</strong> (697.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202401/03/230928awii3smwimou5ma8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-230238__02__01.jpg</strong> (509.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202401/03/230928id9hdhahtyh2r9m2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240103-230238__02__02.jpg</strong> (279.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 23:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

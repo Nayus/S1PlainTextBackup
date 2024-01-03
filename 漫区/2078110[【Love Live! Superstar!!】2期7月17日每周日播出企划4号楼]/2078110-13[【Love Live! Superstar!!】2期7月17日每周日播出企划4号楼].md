@@ -11857,3 +11857,15 @@ Pay这个是新年做梦嘛...
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仟音一心  
+##### 19107#       发表于 2024-1-3 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63527028&amp;ptid=2078110" target="_blank">starring 发表于 2024-1-3 21:07</a>
+明年星想要赢只能派出双N
+
+—— 来自 Sony XQ-DQ72, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://p.sda1.dev/15/18aa0926abaeb5492cc92a98daf15d53/CMP_20240103231020837.jpg" referrerpolicy="no-referrer">
+

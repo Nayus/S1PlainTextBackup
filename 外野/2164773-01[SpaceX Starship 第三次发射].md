@@ -942,3 +942,28 @@ B12和S30，都已转运至梅西测试场，即将开始低温测试。
 
 近几年美国导弹涨价很离谱，LRASM单价也超过了300万
 
+
+*****
+
+####  亚尔古水手  
+##### 72#       发表于 2024-1-3 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63522643&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-1-3 14:05</a>
+不不，现在战斧一发已经涨到700万美元以上了
+
+近几年美国导弹涨价很离谱，LRASM单价也超过了300万
+
+ ...</blockquote>
+Lrasm贵在那个射频引导头，你看jassm-er就没那么贵，还是战斧好使<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">，数量多确实方便
+
+*****
+
+####  亚尔古水手  
+##### 73#       发表于 2024-1-3 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63522094&amp;ptid=2164773" target="_blank">xdescat01 发表于 2024-1-3 13:20</a>
+以前是回收情况下低成本，那么当做战时运输甚至是发射载具是正常思路
+
+现在不回收就1000万刀，那直接当导 ...</blockquote>
+这玩意燃料加注是大头，搞什么超级炸弹没意义，当然我是挺想看重助推打几架F-35的<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+

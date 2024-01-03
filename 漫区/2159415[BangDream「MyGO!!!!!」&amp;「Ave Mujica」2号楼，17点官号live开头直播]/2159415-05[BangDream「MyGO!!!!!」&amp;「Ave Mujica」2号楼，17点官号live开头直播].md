@@ -6266,3 +6266,24 @@ ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了�
 
 书接上回（啊？）
 
+
+*****
+
+####  PDQ4  
+##### 6585#       发表于 2024-1-4 00:26
+
+换ykn怎么了，ppp再有历史地位，人气投票上ykn被刷掉就是离谱，这搞得还不如z8那个有意思，一群没看过老邦的搞全角色人气投票结果被引流打起来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6586#       发表于 2024-1-4 00:29
+
+ 本帖最后由 Aendst 于 2024-1-4 00:30 编辑 
+
+这投票也太野鸡了，连图一乐都不行
+
+先把续篇动画端出来再说，今天开始手游那边手工蛋要正式跑路了，缺的开发力贴吧投票能给补上吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+整个2.5都在走下坡路，新团风格和运营策略变动可以看得出来根本P可能有点想法，不过嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新团能正常运作多续几年就是胜利
+

@@ -6143,3 +6143,20 @@ https://weibo.com/5843722830/4986131506793721<img src="https://p.sda1.dev/15/f22
 
 话说SOYO在吹奏部也是中之人逆输入，蜜柑曾当过吹奏部的副部长
 
+
+*****
+
+####  爱丁堡official  
+##### 6572#       发表于 2024-1-3 22:14
+
+邦吧这投票太乐了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  阿姆罗二世  
+##### 6573#       发表于 2024-1-3 22:16
+
+最后直接变成ylg大战姨姥<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">ylg化身祥子大战姨姥化身ksm
+

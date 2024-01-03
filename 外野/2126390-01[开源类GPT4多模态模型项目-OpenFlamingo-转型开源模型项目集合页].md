@@ -22281,3 +22281,97 @@ code:coming soon
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1151#       发表于 2024-1-4 01:40
+
+TrailBlazer
+
+基于扩散的视频生成过程中的轨迹控制(Trajectory Control)
+
+项目主页:https://hohonu-vicml.github.io/Trailblazer.Page/
+
+github项目代码仓库:https://github.com/hohonu-vicml/Trailblazer
+
+在最近的文本到视频(T2V)生成方法中，实现合成视频的可控性常常面临挑战，通常，这个问题可以通过提供低级别的每帧指导(low-level per-frame guidance)解决，比如边缘图、深度图或已有的需要修改的视频，然而，获取这样的指导信息的过程中可能面临大量人力的消耗，本文旨在通过使用简单的边界框来增强视频合成的可控性，而无需神经网络训练、微调、推理时的优化或使用预先存在的视频
+
+TrailBlazer算法，基于一个预训练的T2V模型构建，易于实现，通过提出的空间和时间注意力图编辑，使用边界框来指导主题(subject)的运动，此外，还引入了关键帧的概念，允许通过移动的边界框和相应的提示来指导主题的轨迹和整体外观，而无需提供详细的掩码(Mask)
+
+该方法非常高效，与底层预训练模型相比，额外的计算量可以忽略不计，尽管边界框指导非常简单，但运动结果的效果令人惊讶地自然，这其中还包括随着边界框尺寸的增加，透视效果和朝向虚拟摄像机的运动结果的效果也同步增强
+————
+总览
+
+<img src="https://img.saraba1st.com/forum/202401/04/013928srvrrqrsrsvhzvqf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-013638.jpg</strong> (182.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 01:39 上传
+
+TrailBlazer使用预训练模型进行文本到视频扩散的视频编辑，无需进一步的模型训练、微调或在线优化，支持各种所描述的用户体验
+————
+核心方法
+
+<img src="https://img.saraba1st.com/forum/202401/04/013939l5c9915a9i95w79q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-013724.jpg</strong> (89.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 01:39 上传
+
+突出显示了TrailBlazer的空间跨注意力编辑的中心组件(左侧，金色部分)和时间跨帧注意力编辑(右侧，蓝色部分)，这个操作仅在早期的去噪过程中应用，目标是在用户指定的边界框(bbox)内改变注意力图
+————
+场景合成
+
+<img src="https://img.saraba1st.com/forum/202401/04/013946u8c7arg7aggrrx1h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-013801.jpg</strong> (110.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 01:39 上传
+
+场景合成允许同时控制多个主题的运动，该算法首先对每个主题单独进行初始去噪步骤的计算，第一张图展示了“a white cat”和“a yellow dog”分别合成的结果，作为对主题质量的合理性检查
+
+<img src="https://img.saraba1st.com/forum/202401/04/013957jidz83mvzhz993qq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-013821.jpg</strong> (158.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 01:39 上传
+
+然后，每个主题的中间结果被合成并在一个完整的提示(例如“a white cat and a yellow dog”)的控制下进行全局去噪处理，其中包括对环境的描述(例如“...on the moon”)，请注意，背景与主题之间的交互看起来是合理的，就像所有样本中的一致阴影一样
+————
+关键帧
+
+<img src="https://img.saraba1st.com/forum/202401/04/014002xlccuk3lcqv3n37q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-013838.jpg</strong> (37.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 01:40 上传
+
+通过关键帧，可以对边界框和提示进行动画化处理，使用户能够沿着时间轴改变主题的轨迹和粗略行为，生成的主题与指定的环境无缝衔接，为一般用户提供了一个可行的视频故事创作流程
+
+<img src="https://img.saraba1st.com/forum/202401/04/014008d2rc2v0whbn0bort.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-013855.jpg</strong> (160.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 01:40 上传
+
+TrailBlazer提供了一种新颖的方法，通过bbox关键帧来引导合成主题的运动，例如，用户可以将动画化的鱼游泳动态地拖向摄影机，然后再游开，又或者，用户可以通过关键帧控制猫的奔跑速度，TrailBlazer的关键帧功能非常强大，例如，只需增加和减小bbox的尺寸，就可以简单地做出让鱼游向摄影机然后游开的动画
+————
+局限性
+
+TrailBlazer承继了底层预训练模型(ZeroScope)的限制，这些限制包括动物的肢体数量不正确以及一些其他扩散式T2I和T2V方法的常见问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

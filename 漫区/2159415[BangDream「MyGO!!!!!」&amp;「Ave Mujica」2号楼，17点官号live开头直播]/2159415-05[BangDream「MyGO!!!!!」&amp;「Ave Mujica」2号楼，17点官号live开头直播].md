@@ -6353,3 +6353,14 @@ ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了�
 
 wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得已经够离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 6594#       发表于 2024-1-4 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63529258&amp;ptid=2159415" target="_blank">ninokagami 发表于 2024-1-4 01:21</a>
+
+wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得已经够离谱了 ...</blockquote>
+这时候就该庆幸mujica不是最开始那个废墟斜角乐队了，现在这个世界观真有废墟元素大不了改改mv背景<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -2083,3 +2083,16 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 真就被忽悠得自己都信了 ...</blockquote>
 我对年轻妈妈没啥兴趣，反而觉得喊小丫头叫妈妈的可怕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 10703#       发表于 2024-1-3 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63502169&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-1 14:13</a>
+
+今年有日替的，还没开吧
+
+比较意外的是没开全修炼场+减半，倒是开了白纸化减半 ...</blockquote>
+去年好像是1号就端上来了，今年莫名推迟了两天。今年好多活动卡池也是，过了好几天了才开，宝具本也是柱子后才放出来，总觉得螺旋社莫名的懒狗
+

@@ -6104,3 +6104,11 @@ kdhd<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referr
 
 [https://twitter.com/Raito_Taisha ... 51037731074/photo/1](https://twitter.com/Raito_Taisha/status/1742337751037731074/photo/1)
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6567#       发表于 2024-1-3 21:38
+
+https://weibo.com/5843722830/4986131506793721<img src="https://p.sda1.dev/15/f223b00c25dbfaa0773555929dfe5214/CMP_20240103213837139.jpg" referrerpolicy="no-referrer">
+

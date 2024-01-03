@@ -18413,3 +18413,11 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">圣伊右群
 
+
+*****
+
+####  osore  
+##### 1429#       发表于 2024-1-3 17:40
+
+居然是在沙勒群里先看到婚纱白膜（虽然也晚了几个小时了）
+

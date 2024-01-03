@@ -11758,3 +11758,13 @@ hori只是日 ...</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  starring  
+##### 19096#       发表于 2024-1-3 17:38
+
+🐟发的返图，staff拍的那两张真是一言难尽
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

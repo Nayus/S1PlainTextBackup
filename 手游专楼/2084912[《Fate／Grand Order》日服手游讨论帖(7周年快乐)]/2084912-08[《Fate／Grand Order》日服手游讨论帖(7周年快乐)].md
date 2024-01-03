@@ -2096,3 +2096,14 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 比较意外的是没开全修炼场+减半，倒是开了白纸化减半 ...</blockquote>
 去年好像是1号就端上来了，今年莫名推迟了两天。今年好多活动卡池也是，过了好几天了才开，宝具本也是柱子后才放出来，总觉得螺旋社莫名的懒狗
 
+
+*****
+
+####  保罗赫伯特  
+##### 10704#       发表于 2024-1-3 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63525011&amp;ptid=2084912" target="_blank">beer 发表于 2024-1-3 17:23</a>
+
+去年好像是1号就端上来了，今年莫名推迟了两天。今年好多活动卡池也是，过了好几天了才开，宝具本也是柱 ...</blockquote>
+没因为地震延期就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

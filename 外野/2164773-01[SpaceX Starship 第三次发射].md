@@ -869,3 +869,17 @@ B12和S30，都已转运至梅西测试场，即将开始低温测试。
 战斧 150万 ...</blockquote>
 不是这么用的，美军构思是200t的全球到达运输系统，战时往高威胁前线运输补给，思路不能算错，就是感觉有哪里不太对
 
+
+*****
+
+####  xdescat01  
+##### 66#       发表于 2024-1-3 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63521830&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-3 13:00</a>
+不是这么用的，美军构思是200t的全球到达运输系统，战时往高威胁前线运输补给，思路不能算错，就是感觉有 ...</blockquote>
+以前是回收情况下低成本，那么当做战时运输甚至是发射载具是正常思路
+
+现在不回收就1000万刀，那直接当导弹来用，自己就是载具，问题是总觉得这个数字是马斯克磕high算出来的
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

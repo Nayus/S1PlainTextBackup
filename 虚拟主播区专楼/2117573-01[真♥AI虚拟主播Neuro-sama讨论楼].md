@@ -1426,3 +1426,11 @@ t台总体主播第10
 
 [https://nga.178.com/read.php?tid=38852564&amp;_fp=2](https://nga.178.com/read.php?tid=38852564&amp;_fp=2) <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与天争锋_LZ  
+##### 123#       发表于 2024-1-3 18:35
+
+呃，话说我最近本来准备把discord fanart区的图都定期搬到贴吧的（会有注名），会不会有什么问题
+

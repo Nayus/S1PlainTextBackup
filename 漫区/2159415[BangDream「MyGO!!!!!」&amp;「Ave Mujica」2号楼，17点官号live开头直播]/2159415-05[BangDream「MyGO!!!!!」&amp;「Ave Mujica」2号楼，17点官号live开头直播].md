@@ -6056,3 +6056,24 @@ c团练习到演出成功的这段日子就像是美满的童年中孩子记忆�
 
 2024-1-3 18:07 上传
 
+
+*****
+
+####  IWS2000  
+##### 6563#       发表于 2024-1-3 18:37
+
+<img src="https://p.sda1.dev/15/749f10e712efce9aa4dade38792a197c/CMP_20240103183713384.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ninokagami  
+##### 6564#       发表于 2024-1-3 18:41
+
+昨天小日向（佐藤）和aiai声马节目提到yukki，说之前她们去迪士尼，散了之后yukki还能去找aiai喝酒
+
+而aiai之前有过直接从成田机场直冲东京塔找日向和mahone玩，以及半夜还在国外，白天就能出门一起玩密室等恐怖事迹
+
+不禁使人感叹，社交**和高行动力e人对于线下团魂建设的重要性
+
+在这一点上目前无限看好奏音妹妹所初步展现出的优秀潜质<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

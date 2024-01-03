@@ -6077,3 +6077,12 @@ c团练习到演出成功的这段日子就像是美满的童年中孩子记忆�
 
 在这一点上目前无限看好奏音妹妹所初步展现出的优秀潜质<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名立希  
+##### 6565#       发表于 2024-1-3 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/fd51340445153e738f3f79a73a6d3e08/IMG_CMP_52345249.png" referrerpolicy="no-referrer">
+

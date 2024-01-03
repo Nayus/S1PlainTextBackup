@@ -7952,3 +7952,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 这游戏一段时间不玩再回来打的话就是得连输，高强度打一阵子才能找回手感
 
+
+*****
+
+####  DeltaStriker  
+##### 2301#       发表于 2024-1-3 19:32
+
+再不开frosty fes准备祭都不想开游戏了
+
+—— 来自 samsung SM-S9010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

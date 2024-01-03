@@ -6183,3 +6183,13 @@ https://weibo.com/5843722830/4986131506793721<img src="https://p.sda1.dev/15/f22
 
 啊这 箱居然能在贴吧拿人气第一<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 6577#       发表于 2024-1-3 22:55
+
+ 本帖最后由 Arrogate 于 2024-1-3 22:56 编辑 
+
+祥子那时还不够挺，输给冠军不丢人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

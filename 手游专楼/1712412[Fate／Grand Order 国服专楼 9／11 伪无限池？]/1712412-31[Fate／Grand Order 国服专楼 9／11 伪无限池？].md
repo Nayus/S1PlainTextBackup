@@ -3886,3 +3886,22 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 烟雾镜大概啥时候上啊，过年？
 
+
+*****
+
+####  xy1041  
+##### 45886#       发表于 2024-1-3 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么还没到暗狐，我要抽藤乃硬币吖
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  khxooo  
+##### 45887#       发表于 2024-1-3 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63520663&amp;ptid=1712412" target="_blank">izumilee 发表于 2024-1-3 11:35</a>
+烟雾镜大概啥时候上啊，过年？</blockquote>
+大概率25号fes 前出，这次麻婆提前估计就是配合fes 的。
+

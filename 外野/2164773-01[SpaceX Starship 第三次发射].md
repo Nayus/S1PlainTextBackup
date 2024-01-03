@@ -823,3 +823,16 @@ B12和S30，都已转运至梅西测试场，即将开始低温测试。
 
 只能说这类类似宣传的东西，全是吹逼
 
+
+*****
+
+####  commcody  
+##### 62#         楼主| 发表于 2024-1-3 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63520659&amp;ptid=2164773" target="_blank">Vora 发表于 2024-1-3 11:35</a>
+
+战斧一发都要200万呢
+
+只能说这类类似宣传的东西，全是吹逼</blockquote>
+看大规模量产下能把成本压到多少了。光看目前，猛禽2的产量是一天一台，未来有能力做到一天四台。
+

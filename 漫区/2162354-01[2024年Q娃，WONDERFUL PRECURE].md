@@ -119,3 +119,23 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">宠物主题居然没有猫，云猫奴生气了
 
+
+*****
+
+####  pokemon最爱  
+##### 287#       发表于 2024-1-3 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63527816&amp;ptid=2162354" target="_blank">暗黑能乐 发表于 2024-1-3 22:11</a>
+
+这兔子会发情吗。。
+
+宠物主题居然没有猫，云猫奴生气了</blockquote>
+兔子是被拯救的相当于早期的收集要素的存在吧，蓝Q本体应该是叫Yuki（小雪）的猫（都叫Nyammy了……）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 288#       发表于 2024-1-3 23:31
+
+说起来Friendy这形象挺幼的，该不会今年两个主人是小学生吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

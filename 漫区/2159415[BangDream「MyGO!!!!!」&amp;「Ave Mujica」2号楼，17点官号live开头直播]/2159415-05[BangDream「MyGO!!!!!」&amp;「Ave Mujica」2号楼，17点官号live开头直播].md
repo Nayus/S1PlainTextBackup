@@ -6221,3 +6221,24 @@ ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了�
 大概是老团真要找个代表也只能是ksm，就像imas找个代表只能是阁下一样…… ...</blockquote>
 所以说是野鸡人气投票，纯属ylg大战姨姥的身份战争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鲍里斯  
+##### 6581#       发表于 2024-1-3 23:25
+
+乐，贴吧里主办方给祥子开后门的言论也出来了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  江口夕  
+##### 6582#       发表于 2024-1-3 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63528537&amp;ptid=2159415" target="_blank">LeonsCat 发表于 2024-1-3 23:18</a>
+大概是老团真要找个代表也只能是ksm，就像imas找个代表只能是阁下一样…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你棒又没center，这帮人都不玩游戏的不然也投不出这离谱排名，按人气也是ykn risa 丸山彩 摩卡 美竹兰 kkr
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

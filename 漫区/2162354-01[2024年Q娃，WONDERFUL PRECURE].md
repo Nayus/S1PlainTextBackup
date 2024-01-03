@@ -151,3 +151,18 @@ Q娃主角年龄除了水果那次外没变过吧
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  pokemon最爱  
+##### 290#       发表于 2024-1-3 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63528705&amp;ptid=2162354" target="_blank">月夜凝雪 发表于 2024-1-3 23:37</a>
+
+Q娃主角年龄除了水果那次外没变过吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.5.2- ...</blockquote>
+春春是13岁开篇刚入学上初一，未来开篇时还没过生日是13岁，满心时一哥一嫂没有进入海螺小姐时间线正常长大了一岁所以是15岁上了初三。
+
+——当然这些其实都没太大所谓了，毕竟今年粉主是那只叫小麦的蝴蝶犬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

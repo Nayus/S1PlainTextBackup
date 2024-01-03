@@ -7936,3 +7936,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比这个id低俗得多的id见过很多的
 
+
+*****
+
+####  laosai13  
+##### 2299#       发表于 2024-1-3 10:09
+
+逆天啊感觉反应慢了累了玩不了喷，直接一波五连败不管怎么样都赢不了，最后一把甚至打了个0-8对不起队友
+

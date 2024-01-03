@@ -2019,3 +2019,13 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 你游这群作家就没本事写一个传统意义上的包容性人妻，最有人妻味道的甚至是跟剧情没关系，只靠人设就把寡妇感和薄幸感拉满的紫式部
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 10698#       发表于 2024-1-3 15:32
+
+菌皇的结婚应该是新冠之后的事情，他开始不熬夜打游戏也是差不多时间点开始的
+
+但是后面因为爆肝赶稿旧疾复发送医了两次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

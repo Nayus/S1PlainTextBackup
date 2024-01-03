@@ -967,3 +967,23 @@ Lrasm贵在那个射频引导头，你看jassm-er就没那么贵，还是战斧�
 现在不回收就1000万刀，那直接当导 ...</blockquote>
 这玩意燃料加注是大头，搞什么超级炸弹没意义，当然我是挺想看重助推打几架F-35的<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  longmarch5  
+##### 74#       发表于 2024-1-3 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63523473&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-3 15:10</a>
+
+Lrasm贵在那个射频引导头，你看jassm-er就没那么贵，还是战斧好使，数量多确实方便 ...</blockquote>
+战斧都700万刀以上了
+
+*****
+
+####  亚尔古水手  
+##### 75#       发表于 2024-1-3 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63523643&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-1-3 15:24</a>
+战斧都700万刀以上了</blockquote>
+那是战术战斧，改人在回路了
+

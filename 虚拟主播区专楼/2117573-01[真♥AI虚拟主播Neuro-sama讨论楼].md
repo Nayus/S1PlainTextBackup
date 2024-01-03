@@ -1418,3 +1418,11 @@ t台总体主播第10
 
 说实话今天这场直播真有点反胃了，早晨的经典逆反环节就算了毕竟Vedal从来没听过Chat的意见，现在这段Slay the princess的直播真的是生理性反胃，本来是来看类似跑团直播回Neuro怎么扯淡的，结果Vedal在那边为了试一试怎么说服LLM杀人drill into her持续了半个小时，观感奇烂。真想玩可以直接自己搞Vedal Solo回，订阅了半年这是第一次认真想要不要取关。
 
+
+*****
+
+####  树洞专用  
+##### 122#       发表于 2024-1-3 15:33
+
+[https://nga.178.com/read.php?tid=38852564&amp;_fp=2](https://nga.178.com/read.php?tid=38852564&amp;_fp=2) <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

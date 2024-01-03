@@ -6330,3 +6330,18 @@ ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了�
 
 顺便一提因为地震的缘故现在邦相关公式都是静默状态，不知道会不会影响准备在七号发的东西<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 6591#       发表于 2024-1-4 00:44
+
+鸡团的末世废墟元素怪多的，运气不好没准撞枪口上被ban回去重做了，不过本来就是ppt换个背景应该也不难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 6592#       发表于 2024-1-4 00:51
+
+正常，邦吧不一直是祥黑聚集地？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">在那投票第一我还觉得惊讶呢
+

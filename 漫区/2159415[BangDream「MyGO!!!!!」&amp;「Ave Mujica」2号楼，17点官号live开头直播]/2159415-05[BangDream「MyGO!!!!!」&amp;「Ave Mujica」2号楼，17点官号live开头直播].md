@@ -6345,3 +6345,11 @@ ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了�
 
 正常，邦吧不一直是祥黑聚集地？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">在那投票第一我还觉得惊讶呢
 
+
+*****
+
+####  ninokagami  
+##### 6593#       发表于 2024-1-4 01:21
+
+wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得已经够离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

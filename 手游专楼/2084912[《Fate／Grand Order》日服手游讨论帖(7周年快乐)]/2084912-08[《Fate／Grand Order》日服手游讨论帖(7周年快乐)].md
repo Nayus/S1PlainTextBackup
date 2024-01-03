@@ -2004,3 +2004,18 @@ syl 神酒，鬼灯，金蛋X5，前两个库存都近百了，也就金蛋未�
 riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 证明玩家说喜欢人妻就叶公好龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 10697#       发表于 2024-1-3 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63522339&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-3 13:39</a>
+证明玩家说喜欢人妻就叶公好龙</blockquote>
+玛修连新妻都算不上就想去赚人妻控的钱
+你当是那群新生代傻逼纯（处）爱（女）党（厨）吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你游这群作家就没本事写一个传统意义上的包容性人妻，最有人妻味道的甚至是跟剧情没关系，只靠人设就把寡妇感和薄幸感拉满的紫式部
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

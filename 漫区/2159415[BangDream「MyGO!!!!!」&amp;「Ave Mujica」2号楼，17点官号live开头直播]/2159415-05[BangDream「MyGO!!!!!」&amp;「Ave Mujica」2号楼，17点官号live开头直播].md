@@ -6193,3 +6193,31 @@ https://weibo.com/5843722830/4986131506793721<img src="https://p.sda1.dev/15/f22
 
 祥子那时还不够挺，输给冠军不丢人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 6578#       发表于 2024-1-3 23:15
+
+ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了这投票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 6579#       发表于 2024-1-3 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63528498&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-3 23:15</a>
+
+ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了这投票</blockquote>
+大概是老团真要找个代表也只能是ksm，就像imas找个代表只能是阁下一样……
+
+*****
+
+####  PDQ4  
+##### 6580#       发表于 2024-1-3 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63528537&amp;ptid=2159415" target="_blank">LeonsCat 发表于 2024-1-3 23:18</a>
+
+大概是老团真要找个代表也只能是ksm，就像imas找个代表只能是阁下一样…… ...</blockquote>
+所以说是野鸡人气投票，纯属ylg大战姨姥的身份战争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

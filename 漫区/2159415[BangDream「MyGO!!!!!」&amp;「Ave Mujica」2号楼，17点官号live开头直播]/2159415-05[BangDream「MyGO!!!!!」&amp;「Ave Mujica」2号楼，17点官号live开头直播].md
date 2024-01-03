@@ -6086,3 +6086,21 @@ c团练习到演出成功的这段日子就像是美满的童年中孩子记忆�
 <img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/fd51340445153e738f3f79a73a6d3e08/IMG_CMP_52345249.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 6566#       发表于 2024-1-3 20:16
+
+<img src="https://img.saraba1st.com/forum/202401/03/201625xfqycjcflc0j0e30.jpg" referrerpolicy="no-referrer">
+
+<strong>GC4GuVeXMAIvIxZ.jpg</strong> (783.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-3 20:16 上传
+
+kdhd<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/Raito_Taisha ... 51037731074/photo/1](https://twitter.com/Raito_Taisha/status/1742337751037731074/photo/1)
+

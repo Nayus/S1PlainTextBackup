@@ -7999,3 +7999,19 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 轻松康了，中途被野人折磨的不轻，一堆传家宝人
 上了900之后直接被带飞了
 
+
+*****
+
+####  晴岚  
+##### 2306#       发表于 2024-1-4 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63528302&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-3 22:55</a>
+镭射现在强的一比，52使真的需要贴牌么？主武器超强，雨帘强，镭射强，总之T0武器
+
+—— 来自 S1Fun ...</blockquote>
+镭射换成螃蟹将会是绝杀，可惜换不得。52贴牌跟小绿贴牌一样，很难比无印强。
+
+而且镭射在劣势局打开也很无力，只能靠主武器
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

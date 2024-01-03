@@ -987,3 +987,17 @@ Lrasm贵在那个射频引导头，你看jassm-er就没那么贵，还是战斧�
 战斧都700万刀以上了</blockquote>
 那是战术战斧，改人在回路了
 
+
+*****
+
+####  xdescat01  
+##### 76#       发表于 2024-1-3 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63522413&amp;ptid=2164773" target="_blank">科本学士 发表于 2024-1-3 13:46</a>
+导弹主要是战斗部和制导系统占大头啊，壳子燃料发动机本来也没几个钱</blockquote>
+星舰有制导系统的，150吨战斗部打固定目标也不需要什么精密的制导了
+
+至于战斗部有多贵我倒是不清楚，有啥数据么
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -857,3 +857,15 @@ B12和S30，都已转运至梅西测试场，即将开始低温测试。
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  亚尔古水手  
+##### 65#       发表于 2024-1-3 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63521687&amp;ptid=2164773" target="_blank">xdescat01 发表于 2024-1-3 12:49</a>
+真1000万刀的话实在太离谱，相当于一个1000万刀可以洲际运输，战斗部150吨，20马赫突防的导弹
+
+战斧 150万 ...</blockquote>
+不是这么用的，美军构思是200t的全球到达运输系统，战时往高威胁前线运输补给，思路不能算错，就是感觉有哪里不太对
+

@@ -3945,3 +3945,14 @@ new感觉没啥优先度，基本都是二宝起步吧
 话说量子本什么时候AP减半？</blockquote>
 1.11号后，打完2.7前篇就有量子本减半
 
+
+*****
+
+####  khxooo  
+##### 45892#       发表于 2024-1-4 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63528092&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2024-1-3 22:36</a>
+
+从现在到烟雾镜池子大概有多少石头啊…………基本上矿只剩没开的2.7主线了（麻婆你这个罪孽深重的石头清空 ...</blockquote>
+除了每周送的，登录50天和FES送的哪些，就剩下2.7的主线和Free了，想抽烟雾镜要么等泳装，要么豹跳或者蓝绿修改器。
+

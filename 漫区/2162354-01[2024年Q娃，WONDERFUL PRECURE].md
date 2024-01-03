@@ -139,3 +139,15 @@
 
 说起来Friendy这形象挺幼的，该不会今年两个主人是小学生吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 289#       发表于 2024-1-3 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63528657&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-1-3 23:31</a>
+说起来Friendy这形象挺幼的，该不会今年两个主人是小学生吧</blockquote>
+Q娃主角年龄除了水果那次外没变过吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

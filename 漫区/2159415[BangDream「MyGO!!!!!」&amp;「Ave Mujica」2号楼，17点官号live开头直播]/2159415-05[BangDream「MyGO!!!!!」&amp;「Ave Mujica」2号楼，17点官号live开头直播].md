@@ -6242,3 +6242,11 @@ ksm要是真有这个人气就好了，只能算中游水平吧，太野鸡了�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  凡人  
+##### 6583#       发表于 2024-1-3 23:35
+
+这是新时代与旧时代的对垒，你就是换ykn上都有点名不正言不顺的感觉，其他人就纯属搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

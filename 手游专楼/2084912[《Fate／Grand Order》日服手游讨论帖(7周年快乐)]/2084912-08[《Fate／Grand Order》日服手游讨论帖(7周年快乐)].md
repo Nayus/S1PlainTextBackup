@@ -1973,3 +1973,11 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次
 
 3日抽籤結果，3日都是1千萬，神酒、鏡、真理蛋5粒
 
+
+*****
+
+####  khxooo  
+##### 10694#       发表于 2024-1-3 11:53
+
+煌星、神酒和镜子，也就煌星有点用<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

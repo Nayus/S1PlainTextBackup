@@ -917,3 +917,28 @@ B12和S30，都已转运至梅西测试场，即将开始低温测试。
 
 先造出来再说吧，这价格给美国产线螺丝工开工资都不够
 
+
+*****
+
+####  longmarch5  
+##### 70#       发表于 2024-1-3 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63520256&amp;ptid=2164773" target="_blank">Vora 发表于 2024-1-3 11:11</a>
+
+这价格你信吗。。。</blockquote>
+如果完全不回收的话能控制在1亿美元内我觉得马院士都是神了
+
+*****
+
+####  longmarch5  
+##### 71#       发表于 2024-1-3 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63520659&amp;ptid=2164773" target="_blank">Vora 发表于 2024-1-3 11:35</a>
+
+战斧一发都要200万呢
+
+只能说这类类似宣传的东西，全是吹逼</blockquote>
+不不，现在战斧一发已经涨到700万美元以上了
+
+近几年美国导弹涨价很离谱，LRASM单价也超过了300万
+

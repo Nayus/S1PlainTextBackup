@@ -11727,3 +11727,16 @@ hori只是日本的经济签，国内签哪个他也管不到，之前还在阿b
 
 感觉不太像有专业团队的样子
 
+
+*****
+
+####  愛さ実  
+##### 19093#       发表于 2024-1-3 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63517862&amp;ptid=2078110" target="_blank">stygian 发表于 2024-1-3 00:09</a>
+府系也没啥，也不一定就是真签了，斧子哥本来coser这边人脉就深帮忙搞下国内的现地直播也正常
+
+hori只是日 ...</blockquote>
+别吧，乐府签了一堆诸如孙笑川类型的黑流量来炒作变现，楼友还觉得能利用这个人脉搞现地？
+再说他有什么正经运营的能力吗，不火的人没见他炒火，火的比方说魔王反而被他搞的半死不活的。对于这号人物我觉得是边也别沾，不然收益没看到先把圈子搞臭了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

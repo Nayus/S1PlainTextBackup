@@ -845,3 +845,15 @@ B12和S30，都已转运至梅西测试场，即将开始低温测试。
 <img src="https://p.sda1.dev/15/bed79753917e24380fadc5540c0cd097/IMG_CMP_182923420.jpeg" referrerpolicy="no-referrer">
 这批开始实验直连手机，短期用于语音通话。
 
+
+*****
+
+####  xdescat01  
+##### 64#       发表于 2024-1-3 12:49
+
+真1000万刀的话实在太离谱，相当于一个1000万刀可以洲际运输，战斗部150吨，20马赫突防的导弹
+
+战斧 150万刀的中程导弹，战斗部0.5吨，0.8马赫
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

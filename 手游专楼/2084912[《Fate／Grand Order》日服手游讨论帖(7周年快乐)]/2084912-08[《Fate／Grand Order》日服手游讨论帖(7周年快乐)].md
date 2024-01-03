@@ -1991,3 +1991,16 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次
 
 syl 神酒，鬼灯，金蛋X5，前两个库存都近百了，也就金蛋未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 10696#       发表于 2024-1-3 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63519351&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-1-3 09:49</a>
+
+狮子头，2.6永远的痛
+
+riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
+证明玩家说喜欢人妻就叶公好龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

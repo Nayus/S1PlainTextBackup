@@ -883,3 +883,16 @@ B12和S30，都已转运至梅西测试场，即将开始低温测试。
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  飞天猪2005  
+##### 67#       发表于 2024-1-3 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63519983&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-3 10:48</a>
+
+最新消息是星舰成熟后不回收的话是1000万美元一发
+
+强！X！</blockquote>
+不回收一千万？？
+

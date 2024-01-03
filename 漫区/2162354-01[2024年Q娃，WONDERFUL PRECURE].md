@@ -93,3 +93,19 @@
 
 人设像油布？
 
+
+*****
+
+####  renkan119  
+##### 284#       发表于 2024-1-3 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63526842&amp;ptid=2162354" target="_blank">新HGCG 发表于 2024-1-3 20:47</a></blockquote>
+这狗发型跟月牙全和粉一样 狗变身的概率大增啊
+
+*****
+
+####  贝恩德塔  
+##### 285#       发表于 2024-1-3 21:48
+
+兔子加狗，该讨论追加是什么动物了
+

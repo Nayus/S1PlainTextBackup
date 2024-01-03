@@ -896,3 +896,16 @@ B12和S30，都已转运至梅西测试场，即将开始低温测试。
 强！X！</blockquote>
 不回收一千万？？
 
+
+*****
+
+####  科本学士  
+##### 68#       发表于 2024-1-3 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63522094&amp;ptid=2164773" target="_blank">xdescat01 发表于 2024-1-3 13:20</a>
+
+以前是回收情况下低成本，那么当做战时运输甚至是发射载具是正常思路
+
+现在不回收就1000万刀，那直接当导 ...</blockquote>
+导弹主要是战斗部和制导系统占大头啊，壳子燃料发动机本来也没几个钱
+

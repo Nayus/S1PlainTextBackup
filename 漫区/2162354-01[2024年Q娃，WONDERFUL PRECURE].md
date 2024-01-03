@@ -21,3 +21,27 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  暗黑能乐  
+##### 277#       发表于 2024-1-3 18:24
+
+主仆之间好像会有不少元素重合呀
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  有骨气的百合  
+##### 278#       发表于 2024-1-3 18:27
+
+粉毛和黄毛是动物吧
+
+*****
+
+####  higuchiguchi  
+##### 279#       发表于 2024-1-3 18:29
+
+左边那两个是动物
+

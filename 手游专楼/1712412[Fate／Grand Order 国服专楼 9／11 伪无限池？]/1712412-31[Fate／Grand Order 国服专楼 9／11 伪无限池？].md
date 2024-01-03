@@ -3870,3 +3870,11 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 小号上头300多石头麻婆05星，慢慢攒石等兽尼吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 45884#       发表于 2024-1-3 09:50
+
+我烟哥还是等福袋，连续两次都是1/3。还有麻婆<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

@@ -1954,3 +1954,14 @@ fsr联动会把今年五月的联动名额顶掉吗</blockquote>
 
 离心机转AE是哪个天才想出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 10692#       发表于 2024-1-3 09:49
+
+狮子头，2.6永远的痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+riyo一画小人就要来一次，然后玩家跟着跳脚一次
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

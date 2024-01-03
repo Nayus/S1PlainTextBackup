@@ -1965,3 +1965,11 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  eilot  
+##### 10693#       发表于 2024-1-3 11:23
+
+3日抽籤結果，3日都是1千萬，神酒、鏡、真理蛋5粒
+

@@ -2029,3 +2029,29 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 
 但是后面因为爆肝赶稿旧疾复发送医了两次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 10699#       发表于 2024-1-3 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63523205&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-3 14:51</a>
+
+玛修连新妻都算不上就想去赚人妻控的钱
+
+你当是那群新生代傻逼纯（处）爱（女）党（厨）吗</blockquote>
+我觉得巴妈就写得不错。距离保持得很好，就是一个关心自己的长辈，有自己爱的丈夫，主角（不是玩家）也没啥想法。紫色部和清少纳言的互动就看出就是个麻烦婆，捏造一个心里想象的恶清少纳言后又否定对方，但也不肯接受真正的清少纳言。
+
+反而清少纳言在吵吵闹闹的外表下隐藏的多愁善感有魅力多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 10700#       发表于 2024-1-3 16:39
+
+ 本帖最后由 保罗赫伯特 于 2024-1-3 16:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63524456&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-3 16:34</a>
+
+我觉得巴妈就写得不错。距离保持得很好，就是一个关心自己的长辈，有自己爱的丈夫，主角（不是玩家）也没 ...</blockquote>
+说起来，茶茶也是表面吵吵闹闹，内心细腻的类型，虽然和正史的差了很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

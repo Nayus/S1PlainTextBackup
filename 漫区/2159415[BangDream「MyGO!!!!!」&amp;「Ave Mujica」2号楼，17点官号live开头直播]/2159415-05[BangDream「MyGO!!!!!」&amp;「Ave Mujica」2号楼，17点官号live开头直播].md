@@ -7598,3 +7598,14 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 瑠素有中之人加成，剧情里面soyo还认识学生会，前途一片光明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 6715#       发表于 2024-1-4 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63537235&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-4 21:57</a>
+
+音宝要亲自烤羊</blockquote>
+这个中门对狙有意思了<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+

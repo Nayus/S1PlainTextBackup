@@ -7520,3 +7520,33 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 希猫gif
 [https://twitter.com/Nico2_Power/status/1742864984093466741](https://twitter.com/Nico2_Power/status/1742864984093466741)
 
+
+*****
+
+####  6030sylar  
+##### 6707#       发表于 2024-1-4 21:57
+
+<img src="https://img.saraba1st.com/forum/202401/04/215744kn6zf7fum4fxnyex.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:57 上传
+
+音宝要亲自烤羊
+
+*****
+
+####  すぴぱら  
+##### 6708#       发表于 2024-1-4 21:59
+
+音羊师上班了
+
+*****
+
+####  6030sylar  
+##### 6709#       发表于 2024-1-4 22:01
+
+啊，v总放mygo重播
+

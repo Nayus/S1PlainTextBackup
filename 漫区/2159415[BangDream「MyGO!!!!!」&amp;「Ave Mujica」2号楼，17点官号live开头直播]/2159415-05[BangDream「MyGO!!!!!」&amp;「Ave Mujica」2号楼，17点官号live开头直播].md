@@ -6909,3 +6909,30 @@ T
 
 2024-1-4 16:11 上传
 
+
+*****
+
+####  nebulanoby  
+##### 6647#       发表于 2024-1-4 16:15
+
+Layer人气的问题主要在于写六花的笔墨太多了吧，第二季很多事情的跑腿/执行，第三季前半更是写的她入队过程
+
+这鬼投票小组赛就把锂砂镍和吉他店老板放一起<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我看组织者就是在为难我Roselia
+AM一推再推，一定是三次元在把最近的R组活动剧情做成第四季，让YLGO见识见识亚子跌的厉害！<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 6648#       发表于 2024-1-4 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这长袍16500一件，八九百呢
+
+*****
+
+####  利维豚  
+##### 6649#       发表于 2024-1-4 16:17
+
+这黑袍让我想起魔法纪录的玛吉斯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

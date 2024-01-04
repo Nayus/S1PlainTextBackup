@@ -6411,3 +6411,13 @@ wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得�
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  阿萨德飞过去  
+##### 6600#       发表于 2024-1-4 08:53
+
+只能说真的挺搞的，一开始死亡分组的时候还以为小祥到此为止了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+结果直接全部拿下，进入决赛后就是“遗老”ksmVS“ylg”小祥，要素拉满
+本来就是没几个人关注的比赛，而且还不分票，只能说是炒作狗炒爽了
+

@@ -6781,3 +6781,27 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 
 就要滑坡，25年1月见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 6636#       发表于 2024-1-4 13:43
+
+真滑坡這也滑得不夠狠，不如25年7月吧，正常新做一個動畫的第二季本來就是要2年捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6637#       发表于 2024-1-4 13:49
+
+反正是无奖竞猜，猜对猜错都一样，怀揣希望爱信等但尊重事实
+
+1.4不播我就是1.11开播党，3月过去都不播我就变身4月党<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">总之就是希望能尽早播
+
+*****
+
+####  ytttsuuuba  
+##### 6638#       发表于 2024-1-4 13:49
+
+那就回归之前的猜测好了，24年7月可能性大，但25年1月可能性也不小。短暂的当了回4月党，不过还是要对轴了（ ）
+

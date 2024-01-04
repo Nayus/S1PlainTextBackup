@@ -54,3 +54,27 @@ L社正式工肯定是三星吧，圣诞后先魔女之夜、后肉斩骨断，�
 
 现在流血呼吸能用的就新赛季三个加黑云罗佳，剑契辛实在是没法用
 
+
+*****
+
+####  Jamaisvu  
+##### 496#       发表于 2024-1-4 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63535253&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-1-4 18:04</a>
+
+不知道是不是流血呼吸
+
+现在流血呼吸能用的就新赛季三个加黑云罗佳，剑契辛实在是没法用 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202401/04/220630pbs6zspo60hwzh3b.jpg" referrerpolicy="no-referrer">
+
+<strong>2AF55C1E441FC550507D370EAAD99B66.jpg</strong> (114.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 22:06 上传
+
+高亮预告图里叼着烟斗，加上镜牢射手给的吊坠是呼吸系饰品，大概率有呼吸技能。
+
+第三章目前的三个三星都带流血，魔弹奥不带说不过去吧...
+

@@ -6522,3 +6522,19 @@ ring打工组</blockquote>
 
 比较常出现在投票前排的是ykn、lisa、摩卡、彩、kkr这几个吧，然后是兰、msk、ars、纱夜这些
 
+
+*****
+
+####  紫吹兰  
+##### 6612#         楼主| 发表于 2024-1-4 10:08
+
+ 本帖最后由 紫吹兰 于 2024-1-4 10:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63530454&amp;ptid=2159415" target="_blank">屑猫猫 发表于 2024-1-4 09:40</a>
+
+老邦体感人气高的基本是彩 没煮烂 ykn lisa这么几个
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 S1Next ...</blockquote>
+取决于多投还是单投，多投一般是ykn第一sayo前三，lisa和rinrin可能前5也可能5-10。
+
+单投摩卡能和ykn争第一，sayo和lisa应该坐10望5，rinrin可能会掉得比较惨，毕竟她角色塑造其实没有前排三人那么多，更多是靠R组整体人气+不错得外形拉上来的。
+

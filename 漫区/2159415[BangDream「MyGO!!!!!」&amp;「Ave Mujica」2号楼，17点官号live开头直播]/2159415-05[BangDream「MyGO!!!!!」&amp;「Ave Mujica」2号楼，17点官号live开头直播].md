@@ -6388,3 +6388,26 @@ wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得�
 
 看了一下，怎么挺多人意外祥子人气高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 6598#       发表于 2024-1-4 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新歌mujica的图标我看着幻视成drive了
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  屑猫猫  
+##### 6599#       发表于 2024-1-4 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63497829&amp;ptid=2159415" target="_blank">笋狐 发表于 2023-12-31 23:43</a>
+转隔壁
+
+呐，这个一定要二人一组的吗（</blockquote>
+所以立希怎么是配saaya来着，立希女士感觉比砂绫更底边啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

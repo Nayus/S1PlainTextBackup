@@ -7178,3 +7178,35 @@ mujica这套服装设计非常用心，能看出来讲究之处，是有很多�
 
 你要说live宣布动画那跟mygo完全没关系，日本那边2.5企划都这个样子
 
+
+*****
+
+####  PDQ4  
+##### 6671#       发表于 2024-1-4 18:15
+
+没有回看，还是搁eplus上看好，反正票已经买了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 6672#       发表于 2024-1-4 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63535124&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-1-4 17:52</a>
+可以开奶多少舰了看看鸡粉的实力</blockquote>
+鸡粉的实力？官号粉丝牌是迷子来着吧<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+感觉这波应该是查询鸡狗双推数量<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6673#       发表于 2024-1-4 18:17
+
+mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  特拉·特尔特  
+##### 6674#       发表于 2024-1-4 18:17
+
+年轻人的第一次上舰(
+

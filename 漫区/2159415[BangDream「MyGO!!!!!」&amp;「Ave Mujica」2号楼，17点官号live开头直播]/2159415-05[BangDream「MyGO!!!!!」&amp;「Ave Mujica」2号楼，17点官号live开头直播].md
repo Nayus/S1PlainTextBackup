@@ -6538,3 +6538,11 @@ ring打工组</blockquote>
 
 单投摩卡能和ykn争第一，sayo和lisa应该坐10望5，rinrin可能会掉得比较惨，毕竟她角色塑造其实没有前排三人那么多，更多是靠R组整体人气+不错得外形拉上来的。
 
+
+*****
+
+####  NODY  
+##### 6613#       发表于 2024-1-4 10:35
+
+lisa千圣爽姐拿了这么多重要戏份还做不到队内稳第一是不是说明贝斯确实是debuff，鼓更是全员垫底就花音算中上游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

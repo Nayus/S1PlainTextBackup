@@ -6596,3 +6596,18 @@ ras动画剧情就不是以主唱为核心，话说ras是不是你邦第一个�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 6619#       发表于 2024-1-4 11:35
+
+layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝斯有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 6620#       发表于 2024-1-4 11:38
+
+是这样，mujica大概也是祥子核心，非主唱核心的两个团核心都是p，即使如此主唱也至少是二把手，主唱是星星可是在ras的场合拿来当标题用的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -6643,3 +6643,12 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  利维豚  
+##### 6623#       发表于 2024-1-4 13:05
+
+<img src="https://p.sda1.dev/15/60611ecc92d20a6371db9e4673c27167/20240104_130302.jpg" referrerpolicy="no-referrer">
+[kkm338](https://twitter.com/kkm338/status/1742730361204043914?s=19)
+

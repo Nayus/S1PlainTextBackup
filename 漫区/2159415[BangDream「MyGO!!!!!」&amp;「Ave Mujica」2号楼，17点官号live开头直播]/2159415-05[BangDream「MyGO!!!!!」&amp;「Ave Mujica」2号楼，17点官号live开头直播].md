@@ -7609,3 +7609,13 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 音宝要亲自烤羊</blockquote>
 这个中门对狙有意思了<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 6716#       发表于 2024-1-4 23:29
+
+天音妹妹真的笑死我了，能不能输入进真白那里<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

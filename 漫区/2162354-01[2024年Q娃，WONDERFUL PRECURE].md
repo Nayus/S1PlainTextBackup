@@ -259,3 +259,15 @@ staff也就这点出息，看看今年花几集变回传统白开水
 说不定是人犬合体呢</blockquote>
 李建良+梗犬兽
 
+
+*****
+
+####  patapon3  
+##### 300#       发表于 2024-1-5 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63530497&amp;ptid=2162354" target="_blank">南風森愛恋 发表于 2024-1-4 09:44</a>
+说不定是人犬合体呢</blockquote>
+特性：人犬一体
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

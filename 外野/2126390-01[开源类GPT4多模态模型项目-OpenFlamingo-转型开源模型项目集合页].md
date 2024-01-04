@@ -22667,3 +22667,195 @@ aMUSEd继承了原始MUSE的性能优势
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1155#       发表于 2024-1-5 06:29
+
+ 本帖最后由 Machinery 于 2024-1-5 06:31 编辑 
+
+Image Sculpting
+
+通过3D几何控制(3D Geometry Control)进行精准的对象编辑
+
+项目主页:https://image-sculpting.github.io/
+
+github项目代码仓库:https://github.com/vision-x-nyu/image-sculpting
+
+<img src="https://img.saraba1st.com/forum/202401/05/062655phenhbbhtuxutpcb.png" referrerpolicy="no-referrer">
+
+<strong>teaser3.png</strong> (976.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:26 上传
+
+本文提出了一种名为Image Sculpting的新框架，可以通过3D几何和图形学以及对应的工具来编辑2D图像，这种方法与现有方法有着显著区别，现有方法受限于2D空间，并且通常依赖于文本指令，导致了分歧和受限的控制能力
+
+Image Sculpting将2D对象转换为3D，使之能够直接与转换后的3D几何进行交互，在编辑后，这些对象被重新渲染为2D图像，并与原始图像合并，通过粗到细的增强过程产生高保真度的结果
+
+本文框架支持精确、可量化的和物理上拟似的编辑选项(precise, quantifiable, and physically-plausible editing options)，如姿态编辑、旋转、转换、3D组合、雕刻和连续添加，这是将生成模型的创意自由与图形工作流程的精准相结合的初步尝试
+————
+部分演示结果(请前往项目页面查看)
+
+<img src="https://img.saraba1st.com/forum/202401/05/062727o40axeh7qxmaa4s4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-052927.jpg</strong> (115.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:27 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/062727jsfsrrtztlbve42r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-053011.jpg</strong> (109.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:27 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/062727wfgcoc5puhcpods8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-053234.jpg</strong> (128.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:27 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/062727qu8hfug8zz4qjiiq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-053246.jpg</strong> (138.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:27 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/062727hqobqdqqqbyf343o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-053305.jpg</strong> (158.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:27 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/062728cudy56idhp6b699m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-053321.jpg</strong> (125.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:27 上传
+
+————
+框架
+
+所提出的图像雕刻框架，形象地来说类似于在3D空间中对2D图像进行灵活和精确的雕刻，集成了三个关键组件:
+1.单视图3D重建
+2.在3D空间中操作物体
+3.从粗到细的生成增强过程
+
+具体而言，2D对象被转换为3D模型，使用户能够直接操作和编辑3D几何体，从而实现精确的编辑，然后，修改过的对象随后无缝地重新融入其原始或新的2D背景中，保持视觉上的一致性和保真度
+
+(1) 单视图3D重建
+
+<img src="https://img.saraba1st.com/forum/202401/05/062752wmywqnmmmmw8cu0r.jpg" referrerpolicy="no-referrer">
+
+<strong>reconstruct.jpg</strong> (562.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:27 上传
+
+该过程始于将输入图像通过逆渲染(de-rendering)过程转换为纹理3D模型，给定一个物体的图像，目标是进行3D重建，以获得3D模型
+
+图像到三3D模型的转换的初始步骤涉及从输入的图像中使用SAM分割出所选的物体，在此基础上，使用Zero-1-to-3和分数蒸馏采样(SDS)对NeRF模型进行训练，然后使用等值立方搜寻算法(Marching cubes)和纹理将NeRF体积(NeRF volume)转换为纹理网格
+
+(2) 3D形变
+
+<img src="https://img.saraba1st.com/forum/202401/05/062803xlerrfirhrlhra4d.jpg" referrerpolicy="no-referrer">
+
+<strong>deformation.jpg</strong> (658.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:28 上传
+
+然后，将3D模型预备为可交互的形变状态(interactive deformation)，方法是创建一个骨架并计算蒙皮权重(skinning weights)，用户可以修改骨架以对3D模型进行形变，从而得到一个初始的粗略图像
+
+在获得3D模型之后，用户可以手动构建骨架并通过旋转骨骼进行交互操作，以实现目标姿态，网格形变会影响物体的顶点位置(vertex positions)，但不会影响用于纹理映射的UV坐标；因此，该过程会随着物体的形变而扭曲纹理映射在物体上的贴图
+
+然而，最终的图像质量取决于3D重建的准确性，在本文用例中，重建结果粗略并且无法满足预期的视觉效果，因此，还依赖于图像增强流程将粗略渲染转换为高质量输出
+
+(3) 从粗到细的生成式增强
+这一部分的重点是将一幅粗略渲染的图像与其原始背景混合在一起，目标是在保持编辑后的几何形状完好无损的同时恢复纹理细节，图像恢复和增强通常被视为图像到图像的转换任务，利用源图像和目标图像之间的强关联性，然而，本文的挑战还呈现了一种独特的情形:尽管输入图像和期望输出之间在外观和纹理上有整体相似之处，但在用户对几何进行编辑后，输入对象的几何形状有时变化会很大
+
+<img src="https://img.saraba1st.com/forum/202401/05/062815ddbz70daprpc00r6.jpg" referrerpolicy="no-referrer">
+
+<strong>dreambooth.jpg</strong> (335.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:28 上传
+
+为了在保留纹理和几何结构之间取得平衡，本文方法首先通过“个性化(personalizing)”，一个预训练的文本到图像扩散模型来进行处理，为了捕捉物体的关键特征，使用一张输入参考图像通过DreamBooth对扩散模型进行微调，为了维持几何结构，还采用了特征和注意力注入技术，该技术最初是为了语义布局控制而设计的。此外，还通过ControlNet将3D模型的对应深度数据整合进来，最终确定这种整合对于在增强过程中减少不确定性非常重要
+
+单样本的DreamBooth
+使用少量图像对预训练的扩散模型进行微调，以进行主题驱动(subject-driven)的生成，原始的DreamBooth论文已经展示了它利用语义类别先验来生成给定图像的新视图的能力，仅需要给出了该主题的一些正面图像，在本文场景中，这一方面特别有用，因为处理的粗略渲染缺乏明确的视点信息，在实际应用中，只使用单个样本(即输入图像)来训练DreamBooth，值得注意的是，DreamBooth的这种单样本方法还有效地捕捉了详细的纹理，从而填充了粗略渲染中存在的纹理缺失
+
+深度控制
+使用了深度ControlNet来保留用户编辑的几何信息，深度图直接从形变的3D模型中渲染，无需进行任何单目深度估计，对于背景区域，不使用深度图，深度图可以作为空间控制信号，指导最终编辑图像中的几何生成，然而，仅仅依靠深度控制是不够的-尽管它可以在一定程度上保留几何结构，但在局部的、更微妙的编辑中仍然存在困难
+
+<img src="https://img.saraba1st.com/forum/202401/05/062837jgs53bgav8vavfez.jpg" referrerpolicy="no-referrer">
+
+<strong>enhancement.jpg</strong> (363.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:28 上传
+
+为了细化这张编辑过的图像，将粗略的渲染反转为噪声，然后将自注意力图和特征图从初始图像的去噪过程中注入到增强图像的去噪步骤中，这种技术有助于保留修改对象的几何形状，并恢复编辑图像的视觉质量，DDIM+代表使用经过DreamBooth微调和深度控制模型的DDIM技术
+
+特征注入
+为了更好地保留几何结构，使用了特征注入，这一步骤从粗略渲染图像的DDIM反演开始(使用DreamBooth微调的、深度控制扩散模型)，以获取反转的潜在，在每个去噪步骤中，对粗略渲染的反转潜变量以及细化图像的潜在进行去噪，提取它们各自的特征图(从残差块中)和自注意图(从Transformer块中)，PnP的论文中已经证明了特征图中携带着语义信息，而自注意图包含生成图像的几何和布局信息，通过在增强图像的去噪步骤中使用来自粗略版本的特征和自注意图覆盖特征和自注意图，可以确保增强图像的几何结构能够正确反映粗略渲染的几何结构
+————
+对比
+
+本文方法通过精确的3D几何控制引入了新的编辑功能，这是现有方法中不存在的功能，将本文方法与SOTA对象编辑技术进行了对比以进行全面分析
+
+<img src="https://img.saraba1st.com/forum/202401/05/062852nyf6d8zydw2qlffd.jpg" referrerpolicy="no-referrer">
+
+<strong>7ebc8ffa-6c59-4a02-b178-8993623257cf.jpg</strong> (176.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:28 上传
+
+与OBJect-3DIT的对比，关于对象转换、旋转和组合
+
+在这个图示中，展示了3DIT，它是为了通过语言指令进行3D感知编辑而设计的，但是当应用于真实的、复杂的图像时，它面临着问题，这主要是因为它的训练是基于合成数据集的
+
+<img src="https://img.saraba1st.com/forum/202401/05/062908jkcr8ougu0it8u0v.jpg" referrerpolicy="no-referrer">
+
+<strong>a2875de2-9acf-4d73-a01d-c7b76adfc774.jpg</strong> (227.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:29 上传
+
+与DragDiffusion和ControlNet在姿态编辑方面进行对比，这些技术在处理复杂的姿态修改时面临困难
+
+<img src="https://img.saraba1st.com/forum/202401/05/062923eh1ftpptja66jpis.jpg" referrerpolicy="no-referrer">
+
+<strong>e338ec99-06ca-45f5-93f1-268eea0895e3.jpg</strong> (198.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 06:29 上传
+
+与InstructPix2Pix和DALL·E 3在连续添加任务上的对比，这些基于文本的编辑方法无法按照精确和可量化的指令进行操作
+
+此外，还展示了像InstructPix2Pix和DALL·E 3这样的基于文本的编辑方法在处理精确和可量化的指令时遇到的困难
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

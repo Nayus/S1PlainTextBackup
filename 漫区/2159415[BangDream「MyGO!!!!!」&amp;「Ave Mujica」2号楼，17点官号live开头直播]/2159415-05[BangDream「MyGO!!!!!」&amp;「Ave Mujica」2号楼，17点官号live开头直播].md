@@ -7380,3 +7380,34 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Aendst  
+##### 6691#       发表于 2024-1-4 21:05
+
+今天邦tv有1st谷子宣传，已经看到立牌实物了
+
+*****
+
+####  6030sylar  
+##### 6692#       发表于 2024-1-4 21:06
+
+<img src="https://img.saraba1st.com/forum/202401/04/210531pq4kcu9kq4xz2gu4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:05 上传
+
+音宝差点砸到Oblivionis
+
+*****
+
+####  傘木希美  
+##### 6693#       发表于 2024-1-4 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63536682&amp;ptid=2159415" target="_blank">仟音一心 发表于 2024-1-4 20:51</a></blockquote>
+果然去吃烤鸭了啊
+

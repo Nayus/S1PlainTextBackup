@@ -22455,3 +22455,134 @@ Q-Refine的框架，包括质量预处理模块(quality pre-prossess module)和�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1153#       发表于 2024-1-4 21:07
+
+ 本帖最后由 Machinery 于 2024-1-4 21:09 编辑 
+
+En3D
+
+从2D合成数据雕刻3D人体的增强生成式模型
+
+项目主页:https://menyifang.github.io/projects/En3D/index.html
+
+github项目仓库:https://github.com/menyifang/En3D
+
+En3D，一种增强的生成方案，用于雕刻高质量的3D人类化身，与之前依赖稀缺的3D数据集或具有不平衡观察视角和不准确的姿态先验的有限2D数据的方法不同，本方法旨在开发一种零样本3D生成方案，能够在不依赖现有3D或2D资源的情况下生成视觉逼真、几何准确的，以及内容多样的3D人类
+
+为了解决这个挑战，引入了一个精心设计的工作流程，通过准确的物理建模从合成的2D数据中学习增强3D生成模型，在推理过程中，整合了优化模块，以弥补逼真外观和粗略3D形状之间的差距
+
+具体而言，En3D包括三个模块:
+1.3D生成器，可以准确地从合成的平衡、多样和结构化的人类图像中建模出具有逼真外观的可普遍适用的3D人类
+2.几何雕刻器，利用多视图法线约束来增强形状质量，用于复杂的人体肢体
+3.纹理模块，利用语义UV分化(semantical UV partitioning)和可微光栅化器(differentiable rasterizer)来解耦显式的纹理映射，实现纹理的保真度和可编辑性
+
+实验结果表明，本文方法在图像质量、几何准确率以及内容多样性方面明显优于先前的方法，还展示了本文方法生成的角色在动画化和编辑方面的可用性，以及在内容风格自由适应方面的可扩展性
+
+<img src="https://img.saraba1st.com/forum/202401/04/210659amcq2mfmw5j2yrz2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210220__01.jpg</strong> (307.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:06 上传
+
+给定随机噪声或引导文本，本文的生成方案可以合成逼真且几何精确的高保真3D人体化身，这些化身可以随之进行动画化和编辑，本文模型是在2D合成数据上进行训练的，而不依赖于任何现有的3D或2D集合
+
+<img src="https://img.saraba1st.com/forum/202401/04/210717rocpccfo2pp09e9p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210227__01.jpg</strong> (278.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+所提出方案的概览图，包括三个模块:3D生成建模(3D generative modeling/3DGM)，几何雕刻(GS/geometric sculpting)和显式纹理(ET/explicit texturing)
+
+3DGM使用合成的多样化、平衡和结构化的人体图像，并通过准确的摄影机φ来学习具有三面体架构(triplane-based architecture)的可普遍适用的3D人体，GS作为优化模块进行整合，利用多视图法线约束来细化和雕刻几何细节，ET利用UV分化和可微光栅化器来解耦显式的UV纹理映射，不仅可以获得多视图渲染结果，还可以获得逼真的3D模型
+
+<img src="https://img.saraba1st.com/forum/202401/04/210723ybc21frdsgg4obpd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210236__01.jpg</strong> (92.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+本文方法的可视化流程图，从输入的噪声、文本或图像中合成带纹理的3D人体化身
+
+<img src="https://img.saraba1st.com/forum/202401/04/210728hi6258fon56ufdm6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210252__01.jpg</strong> (315.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+合成的512x512分辨率的3D人体化身的结果
+
+<img src="https://img.saraba1st.com/forum/202401/04/210732q7t7wt0e07ya60ay.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210302__01.jpg</strong> (319.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+与三种SOTA方法(EVA3D，AG3D和EG3D)的定性对比
+
+<img src="https://img.saraba1st.com/forum/202401/04/210736jyy6zh2hq0ng6p2a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210307__01.jpg</strong> (47.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+使用FID、IS-360、法线准确率(Normal)和身份一致性(ID)进行定量评估
+
+<img src="https://img.saraba1st.com/forum/202401/04/210740z06oo32np9p3jpjp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210307__02.jpg</strong> (28.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+使用估计的物理参数(w/o SYN-P)替换训练模型或移除区块合成渲染(w/o PCR)的结果
+
+<img src="https://img.saraba1st.com/forum/202401/04/210745n1dhkq7sb647ss36.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210316__01.jpg</strong> (80.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+GS模块对细粒度表面的雕刻效果
+
+<img src="https://img.saraba1st.com/forum/202401/04/210750dpt20gtlqpcq0pjq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210316__02.jpg</strong> (100.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+ET模块对于引导合成的效果
+
+<img src="https://img.saraba1st.com/forum/202401/04/210754pc1rulcpclgwupy1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240104-210316__03.jpg</strong> (113.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:07 上传
+
+将本文方法适用于各种风格(例如卡通角色)或内容(例如肖像头像)的合成结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

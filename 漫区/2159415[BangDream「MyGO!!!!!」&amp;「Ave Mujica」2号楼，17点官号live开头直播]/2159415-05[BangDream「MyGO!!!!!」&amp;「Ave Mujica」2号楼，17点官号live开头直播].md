@@ -6441,3 +6441,38 @@ wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得�
 ring打工组<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/40827ec6e106925bcd9edc4fcf28950b/Screenshot_20240104_091001.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 6603#       发表于 2024-1-4 09:13
+
+ 本帖最后由 NODY 于 2024-1-4 09:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63530004&amp;ptid=2159415" target="_blank">屑猫猫 发表于 2024-1-4 08:49</a>
+
+所以立希怎么是配saaya来着，立希女士感觉比砂绫更底边啊
+
+—— 来自 Xiaomi 21091116AC, Android ...</blockquote>
+这个抽签不是固定cp，每年都会换新组合的，各种主线或者活动有互动的cp都有机会，今年刚好轮到这个而已，等明年mygo交际圈拓宽了可能就有其他组合了
+
+*****
+
+####  ytttsuuuba  
+##### 6604#       发表于 2024-1-4 09:16
+
+确实，祥子在邦吧一般是被黑的吧，突然就投票第一了，ylg不应该投爱音吗。说实话如果在其他地方还行，在邦吧祥子应该海选就无了。
+
+*****
+
+####  6030sylar  
+##### 6605#       发表于 2024-1-4 09:18
+
+所以只有祥厨和扭曲的祥厨
+
+*****
+
+####  NODY  
+##### 6606#       发表于 2024-1-4 09:22
+
+祥子的一些二创（穷人梗、打工梗、客服梗）可能确实更吸引ylg一点，虽然这些人可能只看了二创连mygo都没看完
+

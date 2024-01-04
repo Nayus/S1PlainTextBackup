@@ -6846,3 +6846,66 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 
 说的跟蝶团动画就对得起真白谷价一样。狗团上了真白仍旧是顶流烫门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 6644#       发表于 2024-1-4 16:05
+
+ 本帖最后由 Aendst 于 2024-1-4 16:06 编辑 
+
+1st通贩情报公开了
+
+T
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/e6f63a98-03e5-4f39-9d95-e0533796faaa.jpg" referrerpolicy="no-referrer">
+
+毛巾
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/e5e2524c-5d42-4899-ba80-38c03d0f8782.jpg" referrerpolicy="no-referrer">
+
+手环
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/9b041fa4-77af-4634-8599-9f89484d4fbc.jpg" referrerpolicy="no-referrer">
+
+挂件
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/0dc6bc61-a323-4aa5-86cb-12c5f9e126b4.jpg" referrerpolicy="no-referrer">
+
+立牌
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/6dc523b6-54d8-4905-b614-2ae277e30ded.jpg" referrerpolicy="no-referrer">
+
+吧唧
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/19675f90-c644-4647-9335-7dfa7d43d0ce.jpg" referrerpolicy="no-referrer">
+
+文件夹
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/9454c54f-6ce6-4945-9c6b-b18bea38f39f.jpg" referrerpolicy="no-referrer">
+
+（下面是之前没有偷跑的）长袍
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/dd746012-9572-4983-8435-eff76e200c8c.jpg" referrerpolicy="no-referrer">
+
+金属扣
+<img src="https://s3-ap-northeast-1.amazonaws.com/bang-dream-portal/d85bef9a-1aca-4ee3-95e9-31212c56452e.jpg" referrerpolicy="no-referrer">
+
+通贩明天开始
+
+通贩特典<img src="https://cdn.shopify.com/s/files/1/0557/9761/2751/files/AveMujica_hansoku_card_ari_8a42a89a-a3e4-4a91-a9e5-458481e7c106_800x.jpg?v=1703579000" id="aimg_o9D7M" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  NZ-333  
+##### 6645#       发表于 2024-1-4 16:07
+
+说到这个，ras三月上海的票什么时候开售
+
+*****
+
+####  NODY  
+##### 6646#       发表于 2024-1-4 16:11
+
+多少有点离谱了，到时候会场黑压压的一片全穿这个玩意是不是会被无知群众报警<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/04/161146snswezwsnzsz5jsj.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQs6zr-bb5ZbT3cSrs-rs.jpg</strong> (86.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 16:11 上传
+

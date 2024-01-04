@@ -566,3 +566,14 @@ p图罢了
 
 濑兔一也我有点印象，好像是个正太音
 
+
+*****
+
+####  thisisaspider  
+##### 16100#       发表于 2024-1-5 06:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63534762&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-1-4 17:06</a>
+
+如果自己有小孩，大概会育儿放弃（neglect），毕竟是用这种基因生出来的，只会给自己增加破绽不过如果小孩 ...</blockquote>
+想remake的赶紧了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

@@ -6476,3 +6476,12 @@ ring打工组<img src="https://static.saraba1st.com/image/smiley/face2017/064.pn
 
 祥子的一些二创（穷人梗、打工梗、客服梗）可能确实更吸引ylg一点，虽然这些人可能只看了二创连mygo都没看完
 
+
+*****
+
+####  阿萨德飞过去  
+##### 6607#       发表于 2024-1-4 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不至于，邦吧祥子厨还是不少，算是一员悍将。倒是爱音和soyo在贴吧有点差一点的感觉
+其实就算是nga，祥子也是第三名，还未实装就是如此，等到母鸡卡出来大杀四方好吧<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+

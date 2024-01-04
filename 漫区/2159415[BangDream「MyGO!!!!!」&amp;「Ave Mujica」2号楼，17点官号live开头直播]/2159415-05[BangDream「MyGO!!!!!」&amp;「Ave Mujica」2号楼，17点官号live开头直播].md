@@ -7411,3 +7411,54 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63536682&amp;ptid=2159415" target="_blank">仟音一心 发表于 2024-1-4 20:51</a></blockquote>
 果然去吃烤鸭了啊
 
+
+*****
+
+####  PDQ4  
+##### 6694#       发表于 2024-1-4 21:14
+
+蝶来宣鸡谷子啊，挺好的，鸡进游戏能不能多跟蝶贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 6695#       发表于 2024-1-4 21:18
+
+<img src="https://img.saraba1st.com/forum/202401/04/211802p77707m1sd7jsn30.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:18 上传
+
+不会读
+
+*****
+
+####  PDQ4  
+##### 6696#       发表于 2024-1-4 21:20
+
+天音妹妹一直在复读好帅，这下戳中真白好球区了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nh_zzz  
+##### 6697#       发表于 2024-1-4 21:21
+
+祥子距离自己推最近的一次，虽然她推不会读名字
+
+*****
+
+####  NODY  
+##### 6698#       发表于 2024-1-4 21:21
+
+我有预感音宝这个きゅうりの子要成为梗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 6699#       发表于 2024-1-4 21:23
+
+烤鸭配大肠，这油水也忒足了，突出一个穷欢乐……来北京就吃一顿还是鸿宾楼吧
+

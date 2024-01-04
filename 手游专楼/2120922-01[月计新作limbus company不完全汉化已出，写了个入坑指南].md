@@ -44,3 +44,13 @@ L社正式工肯定是三星吧，圣诞后先魔女之夜、后肉斩骨断，�
 魔弹给奥提斯了那我魔弹默尔索是不是没指望了</blockquote>
 其实还有魔弹射手ego默尔索的可能性，但是看起来这个池子是魔女之夜池（预告图左右有绿色的caution），默尔索上一次拿了ego，这次恐怕不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 495#       发表于 2024-1-4 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道是不是流血呼吸
+
+现在流血呼吸能用的就新赛季三个加黑云罗佳，剑契辛实在是没法用
+

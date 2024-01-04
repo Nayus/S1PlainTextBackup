@@ -7144,3 +7144,37 @@ T</blockquote>
 迷宫饭（疑似24话）的abema网络放送用了之前mygo那个档（会比tokyomx首播 ...</blockquote>
 七月啊，等四月Ave公开一周年的时候再开场live，然后在live上宣布动画播出时间，和MyGO一个套路<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 6668#       发表于 2024-1-4 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63534709&amp;ptid=2159415" target="_blank">LeonsCat 发表于 2024-1-4 17:01</a>
+
+注意到只有睦是圆头玛丽珍，也就是带点跟不然还以为给娃娃穿的。</blockquote>
+mujica这套服装设计非常用心，能看出来讲究之处，是有很多值得考据的地方的……可惜这方面我完全不懂<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6669#       发表于 2024-1-4 18:06
+
+能不能把黑生日的画师拉过来画一套新的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+不过感觉今后大概都是官方美术组这边画了，1st这张不知道是不是手工蛋画的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6670#       发表于 2024-1-4 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63535157&amp;ptid=2159415" target="_blank">多莉DOLLY 发表于 2024-1-4 17:55</a>
+
+七月啊，等四月Ave公开一周年的时候再开场live，然后在live上宣布动画播出时间，和MyGO一个套路 ...</blockquote>
+哪里一个套路了，完全不一样好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mygo翻唱都投了几轮了，mujica有一首吗
+
+同时间跨度mygolive都开了四场了，mujica才从0th到1st
+
+你要说live宣布动画那跟mygo完全没关系，日本那边2.5企划都这个样子
+

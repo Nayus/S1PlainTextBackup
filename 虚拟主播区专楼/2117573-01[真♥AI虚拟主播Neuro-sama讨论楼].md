@@ -1450,3 +1450,11 @@ t台总体主播第10
 
 印度美食的文案段子好歹是自己编的，不是纯搬运，最多算看图说话再创作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Interment  
+##### 126#       发表于 2024-1-4 12:06
+
+Vedal最后这几天真的是究极整蛊啊，马拉松开始的时候宣传的是soft cap，至少也得是个每过两周砍半sub time比较合理，尤其是老鼠台到了Vedal这个体量的一般都会准备一个月的内容。结果现在直接砍成5s per sub，属实是Hardest soft cap，scammer987 living up to the name。
+

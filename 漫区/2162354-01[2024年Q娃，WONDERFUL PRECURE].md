@@ -240,3 +240,11 @@ staff也就这点出息，看看今年花几集变回传统白开水
 说不定是人犬合体呢</blockquote>
 虽然但是吧，从玩具商看粉紫是跟魔法组一样共享变身道具的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 298#       发表于 2024-1-4 14:48
+
+说不定是双人组和一个特殊妖精合体成为新的q娃？
+

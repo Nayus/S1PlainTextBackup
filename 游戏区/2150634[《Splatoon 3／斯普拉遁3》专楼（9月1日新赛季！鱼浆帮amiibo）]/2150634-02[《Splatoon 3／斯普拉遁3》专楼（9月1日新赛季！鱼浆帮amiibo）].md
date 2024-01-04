@@ -8015,3 +8015,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 2307#       发表于 2024-1-4 11:44
+
+都是香槟和电锯的⭐💢罢了
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

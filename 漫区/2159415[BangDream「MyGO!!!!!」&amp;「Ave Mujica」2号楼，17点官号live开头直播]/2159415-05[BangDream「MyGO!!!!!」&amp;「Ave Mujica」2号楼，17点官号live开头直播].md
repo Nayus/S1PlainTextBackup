@@ -6611,3 +6611,35 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 
 是这样，mujica大概也是祥子核心，非主唱核心的两个团核心都是p，即使如此主唱也至少是二把手，主唱是星星可是在ras的场合拿来当标题用的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 6621#       发表于 2024-1-4 11:43
+
+ 本帖最后由 基神的强袭自由 于 2024-1-4 11:45 编辑 
+
+<img src="https://img.saraba1st.com/forum/202401/04/114233m5440vuyohklmiom.jpg" referrerpolicy="no-referrer">
+
+<strong>501440E8-DDF5-4E76-97D8-2FDD2F0E3345.jpg</strong> (964.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 11:42 上传
+
+29号去北京A店，货架上摆了孤零零一个千圣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  江口夕  
+##### 6622#       发表于 2024-1-4 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63531340&amp;ptid=2159415" target="_blank">想喝一点点 发表于 2024-1-4 11:03</a>
+其实r内人气最高的是rin，按谷价来看，曾经是天花板，后来小白横空出世</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">在当时人气变动基本和发谁的曲以及谁当时剧情更高光有关。ringing bloom那确实会拉一大波人气，但同样的蔷薇石时候risa也无人能及。
+除此之外的情况大部分ykn一直是第一
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

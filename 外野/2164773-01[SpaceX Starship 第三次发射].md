@@ -1001,3 +1001,16 @@ Lrasm贵在那个射频引导头，你看jassm-er就没那么贵，还是战斧�
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  科本学士  
+##### 77#       发表于 2024-1-4 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63524656&amp;ptid=2164773" target="_blank">xdescat01 发表于 2024-1-3 16:51</a>
+
+星舰有制导系统的，150吨战斗部打固定目标也不需要什么精密的制导了
+
+至于战斗部有多贵我倒是不清楚，有 ...</blockquote>
+星舰的制导系统是惯导还是雷达成像啊
+

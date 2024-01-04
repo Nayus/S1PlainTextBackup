@@ -6820,3 +6820,21 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 
 对得起谷价吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  想喝一点点  
+##### 6641#       发表于 2024-1-4 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63531809&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-4 11:46</a>
+
+在当时人气变动基本和发谁的曲以及谁当时剧情更高光有关。ringing bloom那确实会拉一大波人气，但 ...</blockquote>
+欸可能蔷薇辉石那会还没入坑，不清楚lisa人气高的时候，我开始观察谷子价格的时候感觉r团就一直是rin最高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 6642#       发表于 2024-1-4 14:22
+
+谷价≠人气，只能算人气的评判标准之一而已。
+

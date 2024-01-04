@@ -7271,3 +7271,13 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  爱丁堡official  
+##### 6680#       发表于 2024-1-4 19:37
+
+五只手是我们mygo的五个人吗？（团团又魂魂）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

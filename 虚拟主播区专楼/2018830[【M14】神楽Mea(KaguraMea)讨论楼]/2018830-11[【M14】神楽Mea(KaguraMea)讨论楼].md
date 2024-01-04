@@ -540,3 +540,13 @@ p图罢了
 
 什么弱智小故事
 
+
+*****
+
+####  往世雷书  
+##### 16097#       发表于 2024-1-4 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

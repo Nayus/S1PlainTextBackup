@@ -7129,3 +7129,18 @@ T</blockquote>
 
 什么时候把黑色生日那套图做成立牌 这1st的图有够普
 
+
+*****
+
+####  多莉DOLLY  
+##### 6667#       发表于 2024-1-4 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63532629&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-4 13:18</a>
+
+两个悲报
+
+确认今天二次再放松mygo
+
+迷宫饭（疑似24话）的abema网络放送用了之前mygo那个档（会比tokyomx首播 ...</blockquote>
+七月啊，等四月Ave公开一周年的时候再开场live，然后在live上宣布动画播出时间，和MyGO一个套路<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

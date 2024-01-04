@@ -1442,3 +1442,11 @@ t台总体主播第10
 
 这能有事印度美食official早死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tansapple  
+##### 125#       发表于 2024-1-4 08:17
+
+印度美食的文案段子好歹是自己编的，不是纯搬运，最多算看图说话再创作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

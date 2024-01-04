@@ -7305,3 +7305,37 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 2024-1-4 20:16 上传
 
+
+*****
+
+####  oced12  
+##### 6683#       发表于 2024-1-4 20:23
+
+【【mygo/华灯祥】天文学-哔哩哔哩】 [https://b23.tv/OGuNpiO](https://b23.tv/OGuNpiO)
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dqtql  
+##### 6684#       发表于 2024-1-4 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63536225&amp;ptid=2159415" target="_blank">operatbig 发表于 2024-1-4 20:02</a>
+
+現在上艦現在到時就能看麽？</blockquote>
+只要live开播的时间在舰长有效期内就能看
+
+*****
+
+####  DarthAka  
+##### 6685#       发表于 2024-1-4 20:28
+
+就为看个直播可以等等，当天再上也一样吧
+
+*****
+
+####  NODY  
+##### 6686#       发表于 2024-1-4 20:29
+
+可以晚点买，万一真的能连着看mygo东京场呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

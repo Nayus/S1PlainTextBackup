@@ -6706,3 +6706,47 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 拉？什么叫拉？
 要跟你拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 6629#       发表于 2024-1-4 13:27
+
+ 本帖最后由 御幸一也 于 2024-1-4 13:29 编辑 
+
+該餵小睦了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/04/132651y2aa4tutzhnrn1xj.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ZeVi🥛🍟(@zevi_ii)_20240104-012339_1742718401280385438_photo.jpg</strong> (250.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 13:26 上传
+
+[https://twitter.com/zevi_ii/status/1742718401280385438](https://twitter.com/zevi_ii/status/1742718401280385438)
+
+*****
+
+####  Aendst  
+##### 6630#       发表于 2024-1-4 13:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">我姑且还是一月（冬季）党，反正档是武士道的想怎么播怎么播，可能性虽然极小但还是存在的
+
+动画没播认知度不够一单都没发就上拼盘多少有点神秘了
+
+
+*****
+
+####  御幸一也  
+##### 6631#       发表于 2024-1-4 13:30
+
+一月黨還沒死心啊，我都死心了，早日叛變來四月黨<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  NODY  
+##### 6632#       发表于 2024-1-4 13:32
+
+先看看今晚生放会不会宣布重播，二月党不认输<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

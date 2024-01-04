@@ -6485,3 +6485,24 @@ ring打工组<img src="https://static.saraba1st.com/image/smiley/face2017/064.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不至于，邦吧祥子厨还是不少，算是一员悍将。倒是爱音和soyo在贴吧有点差一点的感觉
 其实就算是nga，祥子也是第三名，还未实装就是如此，等到母鸡卡出来大杀四方好吧<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 6608#       发表于 2024-1-4 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63530185&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-1-4 09:11</a>
+ring打工组</blockquote>
+原来如此，鼓手加上ring打工组，砂绫和otae真的是两个打工皇帝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  屑猫猫  
+##### 6609#       发表于 2024-1-4 09:40
+
+老邦体感人气高的基本是彩 没煮烂 ykn lisa这么几个
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3983,3 +3983,14 @@ new感觉没啥优先度，基本都是二宝起步吧
 大概率25号fes 前出，这次麻婆提前估计就是配合fes 的。</blockquote>
 麻婆其实就提前了两天多一点，BGO烟雾镜和库库尔坎的卡池的提前量是按照去年lasengle和菌皇都没拉胯的原安排出的（亦即23年1月18日仇尼托池的一周后和两周后
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 45896#       发表于 2024-1-4 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63529201&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-1-4 01:03</a>
+
+除了每周送的，登录50天和FES送的哪些，就剩下2.7的主线和Free了，想抽烟雾镜要么等泳装，要么豹跳或者蓝 ...</blockquote>
+看来确实没啥石头了，到时候抽个十连试试缘分吧，先保证兽尼……烟先生我们泳装见！
+

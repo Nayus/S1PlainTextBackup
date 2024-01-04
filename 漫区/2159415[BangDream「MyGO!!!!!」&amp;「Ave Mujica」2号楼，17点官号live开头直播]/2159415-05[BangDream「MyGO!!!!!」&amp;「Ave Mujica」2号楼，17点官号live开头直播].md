@@ -7210,3 +7210,21 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 年轻人的第一次上舰(
 
+
+*****
+
+####  Toki_Ai  
+##### 6675#       发表于 2024-1-4 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏了我看管人都没有上过舰，这第一次要交了
+
+*****
+
+####  dqtql  
+##### 6676#       发表于 2024-1-4 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63534922&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-4 17:29</a>
+
+查了下发现mygo东京公演在2月12日，如果也能直播的话岂不是138元看两场live ...</blockquote>
+有大佬说巡演的前面几场都是没有直播的，只有最后一场有直播。如果第一场就直播，现场票不好卖
+

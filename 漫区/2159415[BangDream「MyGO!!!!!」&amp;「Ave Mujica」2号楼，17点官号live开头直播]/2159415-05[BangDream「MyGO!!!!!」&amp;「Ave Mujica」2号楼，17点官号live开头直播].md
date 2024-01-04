@@ -6579,3 +6579,20 @@ lisa千圣爽姐拿了这么多重要戏份还做不到队内稳第一是不是�
 
 主唱不是更重要戏份更多嘛，还有主唱buff，lisa千圣没能队内第一也很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 6617#       发表于 2024-1-4 11:26
+
+想说贝斯是debuff的话不如拿ras举例，主唱+贝斯的layer人气在ras里都拿不到第一，其他贝斯手有主唱压着怎么拿第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 6618#       发表于 2024-1-4 11:33
+
+ras动画剧情就不是以主唱为核心，话说ras是不是你邦第一个剧情不以主唱为核心的团
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

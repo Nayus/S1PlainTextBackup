@@ -2115,3 +2115,14 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 
 20抽new了海伦娜，莉莉丝+1，也算是不错的新年礼物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个人的旅途  
+##### 10706#       发表于 2024-1-4 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63525170&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-3 17:37</a>
+
+没因为地震延期就算成功</blockquote>
+螺旋社：地震？！这么好的理由我怎么没想到！下个活动，鸽它丫的，就说是地震影响……
+

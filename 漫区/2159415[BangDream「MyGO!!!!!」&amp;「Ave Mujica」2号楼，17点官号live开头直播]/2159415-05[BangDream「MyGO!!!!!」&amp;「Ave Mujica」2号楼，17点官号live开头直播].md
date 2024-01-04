@@ -6421,3 +6421,23 @@ wsd不至于这么背吧，当时顶点第二话正巧遇到ave事件我觉得�
 结果直接全部拿下，进入决赛后就是“遗老”ksmVS“ylg”小祥，要素拉满
 本来就是没几个人关注的比赛，而且还不分票，只能说是炒作狗炒爽了
 
+
+*****
+
+####  NODY  
+##### 6601#       发表于 2024-1-4 09:03
+
+祥子毕竟之前的投票结果也不怎么优秀，当然这一点上ksm其实也差不多，本质新老拿这俩当代理人打架罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 6602#       发表于 2024-1-4 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63530004&amp;ptid=2159415" target="_blank">屑猫猫 发表于 2024-1-4 08:49</a>
+所以立希怎么是配saaya来着，立希女士感觉比砂绫更底边啊
+
+—— 来自 Xiaomi 21091116AC, Android ...</blockquote>
+ring打工组<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/40827ec6e106925bcd9edc4fcf28950b/Screenshot_20240104_091001.jpg" referrerpolicy="no-referrer">
+

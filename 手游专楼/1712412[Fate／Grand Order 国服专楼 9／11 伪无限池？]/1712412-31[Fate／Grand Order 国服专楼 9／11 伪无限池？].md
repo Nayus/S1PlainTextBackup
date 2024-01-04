@@ -4013,3 +4013,16 @@ new感觉没啥优先度，基本都是二宝起步吧
 关于想补一点堂吉诃德用了十呼符抽出了第五宝周黑鸭的那点事儿.jpg
 迷惑。
 
+
+*****
+
+####  khxooo  
+##### 45899#       发表于 2024-1-4 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63531697&amp;ptid=1712412" target="_blank">Ousia 发表于 2024-1-4 11:36</a>
+
+霸王花食井，偷税怪400石左右，坏女人卡莲！
+
+…90石（你说谁是坏女人 ...</blockquote>
+花花能有什么坏心思，只是帮你回收石头而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

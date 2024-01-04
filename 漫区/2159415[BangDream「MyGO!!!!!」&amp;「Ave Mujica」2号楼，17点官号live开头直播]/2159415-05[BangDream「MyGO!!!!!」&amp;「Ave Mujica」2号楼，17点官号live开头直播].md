@@ -6652,3 +6652,57 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 <img src="https://p.sda1.dev/15/60611ecc92d20a6371db9e4673c27167/20240104_130302.jpg" referrerpolicy="no-referrer">
 [kkm338](https://twitter.com/kkm338/status/1742730361204043914?s=19)
 
+
+*****
+
+####  剪切线  
+##### 6624#       发表于 2024-1-4 13:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这么点票仓能说明什么
+
+*****
+
+####  御幸一也  
+##### 6625#       发表于 2024-1-4 13:18
+
+唉 残飯処理<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+她拉了初祥和愛燈，剩下的也只能這樣配平了
+
+*****
+
+####  Aendst  
+##### 6626#       发表于 2024-1-4 13:18
+
+ 本帖最后由 Aendst 于 2024-1-4 13:21 编辑 
+
+两个悲报
+
+确认今天二次再放松mygo
+
+迷宫饭（疑似24话）的abema网络放送用了之前mygo那个档（会比tokyomx首播早半小时），也就是说这个档截止六月中旬都是满的
+
+当然也有一种可能是播mujica的时候网络放送和地上波同步放所以不受迷宫饭这个档的影响
+
+但总的来说大概可以进一步降低期待了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看不懂武士道操作，真打算等到黄花菜都凉了吗，明明3月都要上拼盘live了，mygo拼盘也是动画播了之后才开始上的啊
+
+*****
+
+####  御幸一也  
+##### 6627#       发表于 2024-1-4 13:20
+
+先別滑坡太多，4月黨愛信等<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 6628#       发表于 2024-1-4 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63532624&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-4 13:18</a>
+唉 残飯処理
+
+她拉了初祥和愛燈，剩下的也只能這樣配平了</blockquote>
+拉？什么叫拉？
+要跟你拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

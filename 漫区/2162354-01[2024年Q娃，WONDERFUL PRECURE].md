@@ -229,3 +229,14 @@ staff也就这点出息，看看今年花几集变回传统白开水
 
 追加一个一只铁手的矮子和高大的铁桶人<img src="https://static.saraba1st.com/image/smiley/carton2017/122.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 297#       发表于 2024-1-4 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63530497&amp;ptid=2162354" target="_blank">南風森愛恋 发表于 2024-1-4 09:44</a>
+
+说不定是人犬合体呢</blockquote>
+虽然但是吧，从玩具商看粉紫是跟魔法组一样共享变身道具的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

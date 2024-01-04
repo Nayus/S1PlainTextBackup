@@ -7339,3 +7339,34 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 可以晚点买，万一真的能连着看mygo东京场呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nh_zzz  
+##### 6687#       发表于 2024-1-4 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63525832&amp;ptid=2159415" target="_blank">ninokagami 发表于 2024-1-3 18:41</a>
+昨天小日向（佐藤）和aiai声马节目提到yukki，说之前她们去迪士尼，散了之后yukki还能去找aiai喝酒
+
+而aiai ...</blockquote>
+吐槽一下，说的香港活，当天还直播到凌晨。
+我跑现地第二天还没醒，这人已经在密室了
+
+*****
+
+####  nh_zzz  
+##### 6688#       发表于 2024-1-4 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63529084&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-4 00:37</a>
+已经在提前做动画爆炸就立刻切割的准备了
+
+顺便一提因为地震的缘故现在邦相关公式都是静默状态，不知 ...</blockquote>
+6号大发布也没停，mygo公布接母鸡卡正常的很
+
+*****
+
+####  仟音一心  
+##### 6689#       发表于 2024-1-4 20:51
+
+<img src="https://p.sda1.dev/15/25f3be57eff425085f47ef98747bfc55/CMP_20240104205034499.jpg" referrerpolicy="no-referrer">
+

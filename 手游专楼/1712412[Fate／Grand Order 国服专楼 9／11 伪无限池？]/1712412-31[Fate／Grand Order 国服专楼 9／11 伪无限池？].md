@@ -3972,3 +3972,14 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 2.7总算打到雨神了，前半截这个剧情，突出一个雷声大雨点小，到底什么路数<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 45895#       发表于 2024-1-4 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63520868&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-1-3 11:51</a>
+
+大概率25号fes 前出，这次麻婆提前估计就是配合fes 的。</blockquote>
+麻婆其实就提前了两天多一点，BGO烟雾镜和库库尔坎的卡池的提前量是按照去年lasengle和菌皇都没拉胯的原安排出的（亦即23年1月18日仇尼托池的一周后和两周后
+

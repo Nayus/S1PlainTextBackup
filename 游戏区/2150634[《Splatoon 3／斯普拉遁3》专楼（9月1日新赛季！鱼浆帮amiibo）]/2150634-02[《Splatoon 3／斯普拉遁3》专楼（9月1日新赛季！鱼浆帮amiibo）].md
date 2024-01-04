@@ -8025,3 +8025,21 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 2308#       发表于 2024-1-4 19:01
+
+奶啤对当前环境下武器战力的评价
+
+<img src="https://img.saraba1st.com/forum/202401/04/190053mucgccdx5xb7uu0x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-04-18-53-56-444_com.google.android.youtube-edit.jpg</strong> (427.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 19:00 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

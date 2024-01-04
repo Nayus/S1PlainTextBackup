@@ -7462,3 +7462,52 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 烤鸭配大肠，这油水也忒足了，突出一个穷欢乐……来北京就吃一顿还是鸿宾楼吧
 
+
+*****
+
+####  Aendst  
+##### 6700#       发表于 2024-1-4 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉会出现很多新梗，天音妹妹你好强大
+
+*****
+
+####  PDQ4  
+##### 6701#       发表于 2024-1-4 21:23
+
+要拉睦真白了，脑一个两人见面，逆输入真白称呼睦是“那个黄瓜的孩子”<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 6702#       发表于 2024-1-4 21:27
+
+<img src="https://img.saraba1st.com/forum/202401/04/212750k1cq11fpf0e6cffr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 21:27 上传
+
+*****
+
+####  NODY  
+##### 6703#       发表于 2024-1-4 21:28
+
+专门说了乌托邦是联动1st的歌，那1.7就不一定是新歌了？
+
+*****
+
+####  紫吹兰  
+##### 6704#         楼主| 发表于 2024-1-4 21:31
+
+这下双向奔赴了，先磕几个月真白和Oblivionis
+
+*****
+
+####  NODY  
+##### 6705#       发表于 2024-1-4 21:31
+
+きゅうりの子这个称呼确实很可爱，强烈要求逆输入<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -7583,3 +7583,18 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 编辑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 6713#       发表于 2024-1-4 22:33
+
+白素还八字没一撇呢，瑠素吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 6714#       发表于 2024-1-4 22:35
+
+瑠素有中之人加成，剧情里面soyo还认识学生会，前途一片光明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

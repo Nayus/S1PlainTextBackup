@@ -6750,3 +6750,34 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 
 先看看今晚生放会不会宣布重播，二月党不认输<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 6633#       发表于 2024-1-4 13:33
+
+我早都是七月党了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  剪切线  
+##### 6634#       发表于 2024-1-4 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63532629&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-4 13:18</a>
+
+两个悲报
+
+确认今天二次再放松mygo
+
+迷宫饭（疑似24话）的abema网络放送用了之前mygo那个档（会比tokyomx首播 ...</blockquote>
+这下锁定7月了，真等到明年1月那武士道可以不用干了
+
+*****
+
+####  星空冻结  
+##### 6635#       发表于 2024-1-4 13:41
+
+就要滑坡，25年1月见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

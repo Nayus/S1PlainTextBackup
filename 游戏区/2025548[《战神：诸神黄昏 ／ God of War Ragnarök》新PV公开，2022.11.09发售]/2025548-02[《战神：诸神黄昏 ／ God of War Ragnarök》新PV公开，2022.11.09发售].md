@@ -8,3 +8,11 @@
 
 打完和坛友感觉一样 这dlc竟然免费送了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 有点想补票10刀升级一下ps5版了
 
+
+*****
+
+####  Schwarzess  
+##### 2061#       发表于 2024-1-4 19:15
+
+但我觉得双刀复读三角r1就能无双了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

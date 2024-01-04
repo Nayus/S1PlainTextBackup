@@ -7619,3 +7619,20 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仟音一心  
+##### 6717#       发表于 2024-1-5 00:23
+
+1.5 青木阳菜生日<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 6718#       发表于 2024-1-5 00:25
+
+<img src="https://p.sda1.dev/15/7589539b942c8872845c8cc36bab19a6/IMG_CMP_17076390.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

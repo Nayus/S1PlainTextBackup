@@ -7046,3 +7046,61 @@ T</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  笋干爆炸碱  
+##### 6658#       发表于 2024-1-4 17:13
+
+好酷的袍子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太二EricGuo  
+##### 6659#       发表于 2024-1-4 17:16
+
+有没有人弄得出没水印的mujica 1st角色立绘
+
+*****
+
+####  Kasroz  
+##### 6660#       发表于 2024-1-4 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63534813&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-4 17:12</a>
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不错，还能有弹幕看，以后的live如果同一月还有mygo的live还能白嫖
+
+
+*****
+
+####  Kasroz  
+##### 6661#       发表于 2024-1-4 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63534813&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-4 17:12</a>
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">查了下发现mygo东京公演在2月12日，如果也能直播的话岂不是138元看两场live
+
+*****
+
+####  紫吹兰  
+##### 6662#         楼主| 发表于 2024-1-4 17:30
+
+ 本帖最后由 紫吹兰 于 2024-1-4 17:32 编辑 
+
+<img src="https://img.saraba1st.com/forum/202401/04/172946aj69lzjj76n9aljl.png" referrerpolicy="no-referrer">
+
+<strong>d64ec79b-81ea-49a3-8dca-b5f0880394e4.png</strong> (439.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 17:29 上传
+
+专门标注了东八区的时间
+
+*****
+
+####  椎名mahuyo  
+##### 6663#       发表于 2024-1-4 17:30
+
+七月见
+

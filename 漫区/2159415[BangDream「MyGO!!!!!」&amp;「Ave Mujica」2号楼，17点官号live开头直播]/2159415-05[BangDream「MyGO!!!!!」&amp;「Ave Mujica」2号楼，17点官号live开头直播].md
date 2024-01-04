@@ -6838,3 +6838,11 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 
 谷价≠人气，只能算人气的评判标准之一而已。
 
+
+*****
+
+####  PDQ4  
+##### 6643#       发表于 2024-1-4 14:35
+
+说的跟蝶团动画就对得起真白谷价一样。狗团上了真白仍旧是顶流烫门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

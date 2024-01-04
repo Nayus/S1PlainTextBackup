@@ -1458,3 +1458,11 @@ t台总体主播第10
 
 Vedal最后这几天真的是究极整蛊啊，马拉松开始的时候宣传的是soft cap，至少也得是个每过两周砍半sub time比较合理，尤其是老鼠台到了Vedal这个体量的一般都会准备一个月的内容。结果现在直接砍成5s per sub，属实是Hardest soft cap，scammer987 living up to the name。
 
+
+*****
+
+####  Interment  
+##### 127#       发表于 2024-1-4 21:48
+
+疯狂之夜，在Cookie Clicker游玩过程中突破20k viewers，给生日马拉松画上了一个完美的句号，社区的热情是真的夸张，要是没有Hard cap能奔着连播两个月去。
+

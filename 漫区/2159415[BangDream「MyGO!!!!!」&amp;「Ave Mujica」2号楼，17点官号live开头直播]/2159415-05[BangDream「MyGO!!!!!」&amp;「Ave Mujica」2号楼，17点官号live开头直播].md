@@ -7511,3 +7511,12 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 きゅうりの子这个称呼确实很可爱，强烈要求逆输入<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 6706#       发表于 2024-1-4 21:52
+
+希猫gif
+[https://twitter.com/Nico2_Power/status/1742864984093466741](https://twitter.com/Nico2_Power/status/1742864984093466741)
+

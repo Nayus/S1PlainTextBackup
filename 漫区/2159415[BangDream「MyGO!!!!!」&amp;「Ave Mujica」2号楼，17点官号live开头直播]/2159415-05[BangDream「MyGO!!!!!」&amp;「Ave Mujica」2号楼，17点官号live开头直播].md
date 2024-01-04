@@ -6805,3 +6805,18 @@ layer确实，主唱+戏份讨喜+中之人实力强都这样，难道真是贝�
 
 那就回归之前的猜测好了，24年7月可能性大，但25年1月可能性也不小。短暂的当了回4月党，不过还是要对轴了（ ）
 
+
+*****
+
+####  PDQ4  
+##### 6639#       发表于 2024-1-4 14:03
+
+真要滑坡吗，不如滑成母鸡卡tv腰斩了变成两集ova，这下复刻小偶像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 6640#       发表于 2024-1-4 14:10
+
+对得起谷价吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

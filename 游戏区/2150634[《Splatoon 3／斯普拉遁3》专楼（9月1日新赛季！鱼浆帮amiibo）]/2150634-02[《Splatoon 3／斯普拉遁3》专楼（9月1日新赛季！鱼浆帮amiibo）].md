@@ -8043,3 +8043,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  苍蓝之枪  
+##### 2309#       发表于 2024-1-4 21:00
+
+这么有空啊，非周末工我估计最多就打到600
+

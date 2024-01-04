@@ -7370,3 +7370,13 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 <img src="https://p.sda1.dev/15/25f3be57eff425085f47ef98747bfc55/CMP_20240104205034499.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 6690#       发表于 2024-1-4 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">从ido回来感觉中毒更深了。除了二创每天还会遛一遛那天全场合唱的春日影
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

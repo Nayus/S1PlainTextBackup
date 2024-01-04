@@ -8061,3 +8061,12 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  carroy  
+##### 2311#       发表于 2024-1-5 03:23
+
+考虑到这游戏卖了一千万份
+任天堂你给个一千个人的拒绝列表不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

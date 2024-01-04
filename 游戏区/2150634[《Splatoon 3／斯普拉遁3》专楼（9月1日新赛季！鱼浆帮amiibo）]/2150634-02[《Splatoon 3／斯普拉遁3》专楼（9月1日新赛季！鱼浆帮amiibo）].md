@@ -8051,3 +8051,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 这么有空啊，非周末工我估计最多就打到600
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2310#       发表于 2024-1-5 01:17
+
+开门工真舒服，匹到的队友全是金章boss的，成功打完一轮龙
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

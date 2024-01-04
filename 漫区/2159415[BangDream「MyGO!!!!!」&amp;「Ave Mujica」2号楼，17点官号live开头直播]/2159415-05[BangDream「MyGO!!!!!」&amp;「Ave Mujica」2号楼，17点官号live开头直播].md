@@ -7245,3 +7245,29 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 有大佬说巡演的前面几场都是没有直播的，只有最后一场有直播。如果第一场就直播，现场票不好卖 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">那么最后一场是4月11日的名古屋公演，和4月29日的ppp合同live也在30天内
 
+
+*****
+
+####  基神的强袭自由  
+##### 6679#       发表于 2024-1-4 19:31
+
+<img src="https://img.saraba1st.com/forum/202401/04/193044n1c2uyi21wqfzww1.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8503.PNG</strong> (966.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 19:30 上传
+
+<img src="https://img.saraba1st.com/forum/202401/04/193044pkcc63dzo2tm89mt.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8504.PNG</strong> (513.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-4 19:30 上传
+
+有人要买同款吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

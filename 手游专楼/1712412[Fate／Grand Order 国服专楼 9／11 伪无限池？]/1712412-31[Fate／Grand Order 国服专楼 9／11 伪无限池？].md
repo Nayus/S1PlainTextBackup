@@ -4026,3 +4026,16 @@ new感觉没啥优先度，基本都是二宝起步吧
 …90石（你说谁是坏女人 ...</blockquote>
 花花能有什么坏心思，只是帮你回收石头而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ousia  
+##### 45900#       发表于 2024-1-4 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63536102&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-1-4 19:48</a>
+
+花花能有什么坏心思，只是帮你回收石头而已</blockquote>
+看2.7：可爱，心疼，想抽<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+抽之后：可碍，心疼，想抽<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+

@@ -22586,3 +22586,84 @@ ET模块对于引导合成的效果
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1154#       发表于 2024-1-5 01:41
+
+ 本帖最后由 Machinery 于 2024-1-5 01:42 编辑 
+
+aMUSEd
+
+开源MUSE模型实现
+
+256*256模型权重下载:https://huggingface.co/amused/amused-256
+
+512*512模型权重下载:https://huggingface.co/amused/amused-512
+
+关于MUSE构架的介绍:https://www.51cto.com/article/744895.html
+
+aMUSEd，这是一个基于MUSE架构的开源、轻量级的掩码图像模型(MIM/masked image model)，用于文本到图像的生成，相比于MUSE，aMUSEd只使用了前者10%的参数，并专注于实现快速图像生成
+
+相较于目前潜在扩散的发展，在MIM文本到图像生成领域方面还未得到充分的探索，与潜在扩散相比，MIM需要的推理步骤更少，而且更具有可解释性(more interpretable)，此外，MIM可以通过仅使用单张图像进行微调来学习额外的风格
+
+希望通过展现MIM在大规模文本到图像生成上的有效性，并发布可复现的训练代码，来进一步的鼓励对于MIM的探索，还发布了两个模型的检查点，这些模型可以直接生成256x256和512x512分辨率的图像
+————
+
+<img src="https://img.saraba1st.com/forum/202401/05/014040d7q8q7r7r3q77zdi.jpg" referrerpolicy="no-referrer">
+
+<strong>202c6deb-8a01-4973-8c87-756f8a551b25.jpg</strong> (231.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 01:40 上传
+
+aMUSEd是一个基于MUSE架构的轻量级文本到图像模型，aMUSEd在需要轻量级且快速的应用中(例如一次性快速的生成许多图像)非常有用
+
+<img src="https://img.saraba1st.com/forum/202401/05/014046ahedi7uvf37wpddz.jpg" referrerpolicy="no-referrer">
+
+<strong>190c7d19-56c3-40b2-95f5-7e6e0d0c8b14.jpg</strong> (105.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 01:40 上传
+
+该图展示了aMUSEd的训练和推理的工作流程
+
+aMUSEd由三个分别训练的组件组成:预训练的CLIP-L/14文本编码器、VQ-GAN和U-ViT
+
+在训练过程中，VQ-GAN编码器将图像映射到小16倍的潜在分辨率，掩码潜在Token的比例是从余弦掩码方案中采样的，例如cos(r · π 2 ) with r ∼ Uniform(0, 1)
+
+模型通过交叉熵损失(cross-entropy loss)进行训练，以预测被遮蔽的Token，在对256x256图像进行训练之后，添加了下采样和上采样层，并继续在512x512图像上进行训练
+
+在推理过程中，U-ViT以文本编码器的隐藏状态(hidden states)作为条件，为所有被遮蔽的Token迭代式的预测值(values)，余弦掩码方案决定了每次迭代后要固定的最可信Token(most confident token)预测的百分比，经过12次迭代，所有Token都被预测并由VQ-GAN解码回图像像素
+————
+性能
+
+aMUSEd继承了原始MUSE的性能优势
+
+<img src="https://img.saraba1st.com/forum/202401/05/014106hjzjj61ywao02wrj.png" referrerpolicy="no-referrer">
+
+<strong>PEVklboNHZ1dgrco8Mu_-.png</strong> (137.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 01:41 上传
+
+1.并行解码:该模型遵循去噪方案，在每个去噪步骤中揭示一定百分比的Token，在每个步骤中，预测所有被遮蔽的Token，并揭示一些网络最有信心的Token，由于同时预测多个标记，可以在大约12个步骤内生成完整的256x256或512x512图像，相比之下，自回归模型必须一次预测一个Token，请注意，使用16倍下采样VAE的MUSE的256x256图像将有256个Token
+
+2.更少的采样步骤:与许多扩散模型相比，MUSE需要的采样更少
+
+此外，与MUSE相比，aMUSEd使用更小的CLIP作为其文本编码器，而不是T5，与最大的3B参数MUSE模型相比，aMUSEd更小，大约只有600M参数，同时请注意，由于尺寸较小，aMUSEd可能会产生相对较低质量的结果
+
+<img src="https://img.saraba1st.com/forum/202401/05/014126wu4ovoyhzkbh8xun.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-014115.jpg</strong> (40.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 01:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

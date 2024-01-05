@@ -1308,3 +1308,17 @@
 
 —— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  redsouris  
+##### 127#       发表于 2024-1-5 19:43
+
+合理性的怪物，因为“现在打输也没问题了”，选择躺平
+
+不过蛋蛋还是没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下一话继续超展开
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7758,3 +7758,28 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 支持mygo和ave联合组成九九组<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NZ-333  
+##### 6730#       发表于 2024-1-5 13:05
+
+等七点半准时拷打
+
+*****
+
+####  紫吹兰  
+##### 6731#         楼主| 发表于 2024-1-5 13:08
+
+S1这标题字数限制太难受了，每次新闻上标题都要改半天
+
+*****
+
+####  [皆神孝介]  
+##### 6732#       发表于 2024-1-5 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63541810&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-1-5 13:08</a>
+
+S1这标题字数限制太难受了，每次新闻上标题都要改半天</blockquote>
+用 S1 Next Goose 这个安卓第三方客户端来编辑标题试试。
+

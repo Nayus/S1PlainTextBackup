@@ -2166,3 +2166,22 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  清河子  
+##### 10711#       发表于 2024-1-5 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63541453&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-1-5 12:29</a>
+剪影有个疑似带翅膀的，然后开始发散
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这图居然说最右那个立绘像渡老师画的，这鸡爪手不是一眼武内大模型？<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">渡风评最被害的一集
+
+*****
+
+####  UNISONIA  
+##### 10712#       发表于 2024-1-5 14:33
+
+渡除了FSR部分角色头身比画的有问题，大部分时候人都站的挺笔直的，不会有这种奇怪的曲腿
+

@@ -2195,3 +2195,11 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 为什么又在吹风欧若拉了？我错过了什么？</blockquote>
 隔壁甚至在通古斯的时候讲伊吹发散成女娲附身的，所以看到那里嘲讽微博发散周瑜是四星的时候笑了，不都是半斤八两<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 10714#       发表于 2024-1-5 16:35
+
+很多人是因为狮子夫人的事情滑坡发散，而且猜的是最左边的剪影，有翅膀的那个反而更像是她的侍女了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

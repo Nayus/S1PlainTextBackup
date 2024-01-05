@@ -8121,3 +8121,21 @@ staff号不端水那确实有点好笑了<img src="https://static.saraba1st.com/
 
 小学男生心理罢了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 6768#       发表于 2024-1-5 20:53
+
+<img src="https://img.saraba1st.com/forum/202401/05/205238eah9vzboltde1esp.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8548.PNG</strong> (189.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 20:52 上传
+
+先试试万能的淘宝能不能买到月刊武士道202402<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

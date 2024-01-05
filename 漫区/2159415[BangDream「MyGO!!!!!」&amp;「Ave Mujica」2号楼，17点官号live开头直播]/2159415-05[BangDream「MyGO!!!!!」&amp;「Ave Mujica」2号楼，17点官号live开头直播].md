@@ -7797,3 +7797,11 @@ S1这标题字数限制太难受了，每次新闻上标题都要改半天</bloc
 　会場：Zepp New Taipei </blockquote>
 kktix。。。不如顺路去个香港吧
 
+
+*****
+
+####  仟音一心  
+##### 6734#       发表于 2024-1-5 13:53
+
+<img src="https://p.sda1.dev/15/dc00bfcc8217765b93ae6238669ebabf/CMP_20240105135258490.jpg" referrerpolicy="no-referrer">
+

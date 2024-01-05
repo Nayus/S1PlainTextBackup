@@ -8088,3 +8088,20 @@ y1s1 羊整体就动的很少不算烤羊啦
 
 你楼应该还是没有真心烤羊的啦，应该。
 
+
+*****
+
+####  Aendst  
+##### 6764#       发表于 2024-1-5 20:14
+
+staff号不端水那确实有点好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如直接快进到日本夜间断网或者马斯克暗中搞事导致推文神隐
+
+*****
+
+####  NODY  
+##### 6765#       发表于 2024-1-5 20:22
+
+看了生放昨天音宝热水两个人玩出花来，更觉得狗有个不营业的主唱是有点可惜的，不知道巡演能不能给羊磨出点团魂和活力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

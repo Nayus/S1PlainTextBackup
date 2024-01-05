@@ -8062,3 +8062,13 @@ y1s1 羊整体就动的很少不算烤羊啦
 
 一进来就闻到浓浓的烤羊肉味呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 6761#       发表于 2024-1-5 19:47
+
+羊厨还没有成为gachi吗，现地佬都说了羊线下甜的要死。推特不互动肯定也是策略之一啦，饥渴的粉丝一去线下就成为了俘虏。
+
+不过staff号这个有用吗，还不如真staff号呢，端水都端不齐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

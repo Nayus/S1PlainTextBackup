@@ -7839,3 +7839,36 @@ kktix。。。不如顺路去个香港吧
 
 黄牛又发力了？二次受注刚上线，不过是2024/5/31到货
 
+
+*****
+
+####  kangkangsama  
+##### 6739#       发表于 2024-1-5 15:45
+
+<img src="https://img.saraba1st.com/forum/202401/05/154452b9slcl4y4ryv4v2k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0931.jpeg</strong> (257.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 15:44 上传
+
+mikan
+
+*****
+
+####  kangkangsama  
+##### 6740#       发表于 2024-1-5 15:49
+
+<img src="https://img.saraba1st.com/forum/202401/05/154744hnbqbjqbbduqj1tz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0932.jpeg</strong> (394.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 15:47 上传
+
+李子也发了
+
+两鸡两狗
+

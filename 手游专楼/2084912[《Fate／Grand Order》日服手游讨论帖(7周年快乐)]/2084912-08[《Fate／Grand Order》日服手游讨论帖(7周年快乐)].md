@@ -2185,3 +2185,13 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 
 渡除了FSR部分角色头身比画的有问题，大部分时候人都站的挺笔直的，不会有这种奇怪的曲腿
 
+
+*****
+
+####  khxooo  
+##### 10713#       发表于 2024-1-5 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63540396&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-1-5 10:56</a>
+为什么又在吹风欧若拉了？我错过了什么？</blockquote>
+隔壁甚至在通古斯的时候讲伊吹发散成女娲附身的，所以看到那里嘲讽微博发散周瑜是四星的时候笑了，不都是半斤八两<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

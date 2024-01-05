@@ -8520,3 +8520,41 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 有没有动画相关的<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安瓦尔阿明  
+##### 6792#       发表于 2024-1-5 23:25
+
+杂志这图谁修的，突出一个难绷……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 6793#       发表于 2024-1-5 23:26
+
+会一起看oth的live观赏会（高尾提议），live之前会全员抱在一起圆阵，团魂，太团魂了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  アコ  
+##### 6794#       发表于 2024-1-5 23:29
+
+这杂志相片不如高尾自己发的x<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 6795#       发表于 2024-1-5 23:30
+
+直出也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 6796#       发表于 2024-1-5 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">這拍的一言難盡
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

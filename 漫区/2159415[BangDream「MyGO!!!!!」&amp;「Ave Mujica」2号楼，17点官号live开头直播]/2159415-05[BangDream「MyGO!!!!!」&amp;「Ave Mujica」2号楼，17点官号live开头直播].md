@@ -8258,3 +8258,15 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 看z8那边说动物朋友两年前推特还是经常和人互动的，后来改了人设就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是你狗早两年出道没准还真有个积极营业的主唱
 
+
+*****
+
+####  基神的强袭自由  
+##### 6781#       发表于 2024-1-5 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63546751&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-5 21:00</a>
+你青木姐面子还挺大的，过个生日少歌派邦邦派dj派少壮派老资历社内社外都有人来祝贺，看来是要变天的前兆[f ...</blockquote>
+要号令天下了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

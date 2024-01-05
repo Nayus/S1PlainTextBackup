@@ -577,3 +577,11 @@ p图罢了
 如果自己有小孩，大概会育儿放弃（neglect），毕竟是用这种基因生出来的，只会给自己增加破绽不过如果小孩 ...</blockquote>
 想remake的赶紧了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋游刃  
+##### 16101#       发表于 2024-1-5 17:36
+
+昨天联动完了之后，居然还跟罗贝尔打了几把LOL。
+

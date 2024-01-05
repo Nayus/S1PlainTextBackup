@@ -8664,3 +8664,50 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 睦祥卖这么大吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 6809#       发表于 2024-1-6 00:04
+
+无人岛求生那段笑死，手游赶紧做个mujica无人岛求生活动，睦头人抓鱼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 6810#       发表于 2024-1-6 00:06
+
+佐佐木画了个mujica角色歌的饼（应该是类似蝶和ras新出的迷你专那样的），官方我劝你不要你不识好歹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ytttsuuuba  
+##### 6811#       发表于 2024-1-6 00:07
+
+---《神笨蛋》这首歌怎么样？
+
+渡濑：这首反而是一首平静的曲子，但歌词非常触动人心，弹奏后，心情会变得很悲伤。
+
+佐佐木：感到难过的曲子呢
+
+渡濑：还有过练这首曲子的过程中心情变得悲伤想要哭的时候，但这一点也很好。之前参加R团的LIVE的时候，我想要增加一些在演奏中的动作，就在第二段高潮处做出了モーティス（睦）走向オブリビオニス（祥）的身边的行为。
+
+高尾：敲肩膀那里啊。那里也是和动画两人的关系性有关就再现了一下。
+
+*****
+
+####  ytttsuuuba  
+##### 6812#       发表于 2024-1-6 00:10
+
+另外，高尾也鼓励了代入角色去看live的方式，1ST可以用放大镜去看live了。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 6813#       发表于 2024-1-6 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好家伙，这照片拍的
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

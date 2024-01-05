@@ -8091,3 +8091,13 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 
 Side Order有消息吗，估计下次开游戏就是等dlc出来了
 
+
+*****
+
+####  寻龙分金看缠山  
+##### 2314#       发表于 2024-1-5 12:01
+
+我卡出来的bug怎么不太一样啊，
+<img src="https://p.sda1.dev/15/88e07251b7519ba31a0d1774eadbda04/CMP_20240105120121824.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/5afa588578ddb607c0b2ae0759721ffa/CMP_20240105120121956.png" referrerpolicy="no-referrer">
+

@@ -7689,3 +7689,27 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 上海怎么还没开<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 6723#       发表于 2024-1-5 11:54
+
+上海场开了就要和漏油当敌人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 6724#       发表于 2024-1-5 12:00
+
+哈哈哈，我去不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 6725#       发表于 2024-1-5 12:01
+
+不知道狗来的话能不能开live要是bw什么的就不折腾了，上海太远
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

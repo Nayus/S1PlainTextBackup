@@ -2239,3 +2239,11 @@ IMG_2773.jpeg
 还得是你啊riyo</blockquote>
 全场唯二没有凑CP的奥伯龙和加雷斯：没眼看啊没眼看<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 10718#       发表于 2024-1-6 02:39
+
+20抽到提妈了，但没抽到蘑菇女……
+

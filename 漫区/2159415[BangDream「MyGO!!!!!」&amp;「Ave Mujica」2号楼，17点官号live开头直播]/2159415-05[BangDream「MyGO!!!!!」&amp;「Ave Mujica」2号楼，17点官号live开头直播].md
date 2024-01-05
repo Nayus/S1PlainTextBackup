@@ -8072,3 +8072,11 @@ y1s1 羊整体就动的很少不算烤羊啦
 
 不过staff号这个有用吗，还不如真staff号呢，端水都端不齐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  QuattroVageena  
+##### 6762#       发表于 2024-1-5 19:53
+
+烤羊本质是闲得慌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你鸡有料谁还在意不营业的前center，观众都在关心企划结果蒸煮只有一个比陌生人还陌生人，那不就烤烤羊找点乐子
+

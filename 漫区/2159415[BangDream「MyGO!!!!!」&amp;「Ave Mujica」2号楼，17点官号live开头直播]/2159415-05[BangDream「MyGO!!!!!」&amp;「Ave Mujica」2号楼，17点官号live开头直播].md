@@ -8005,3 +8005,42 @@ y1s1 羊整体就动的很少不算烤羊啦
 
 烤架都没上呢，就开始消防了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 6755#       发表于 2024-1-5 19:04
+
+<img src="https://img.saraba1st.com/forum/202401/05/190403fnswcw0jzccswn03.jpg" referrerpolicy="no-referrer">
+
+<strong>GDEbYYPacAAw0cu.jpg</strong> (333.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 19:04 上传
+
+[https://twitter.com/crepbanana_/ ... 47870046272/photo/1](https://twitter.com/crepbanana_/status/1743204647870046272/photo/1)
+
+*****
+
+####  Kasroz  
+##### 6756#       发表于 2024-1-5 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">烤羊，流口水了
+
+*****
+
+####  塔尔洛斯  
+##### 6757#       发表于 2024-1-5 19:04
+
+不知道明天新春发表会不会有什么
+
+*****
+
+####  アコ  
+##### 6758#       发表于 2024-1-5 19:07
+
+【【青木阳菜】 Tiktok Live（生日回） 2024.1.4 录屏】 [https://www.bilibili.com/video/B ... 3545c918357371a7c08](https://www.bilibili.com/video/BV1v64y1E7N2/?share_source=copy_web&amp;vd_source=b2ada8baccafc3545c918357371a7c08)
+
+别烤羊了，看看圣青木弹唱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

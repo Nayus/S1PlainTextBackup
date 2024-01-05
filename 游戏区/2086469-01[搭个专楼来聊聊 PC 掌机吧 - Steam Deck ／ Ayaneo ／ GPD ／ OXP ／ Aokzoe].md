@@ -65,3 +65,18 @@
 英特尔的驱动玩游戏还是不及格啊，难道掌机还能搞掌上生产力？</blockquote>
 别说了别说了，GPD WIN 3 这个游戏玩到特定节点必定崩溃，那个游戏路人衣服各种拉丝效果的一幕幕又开始历历在目了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 1031#       发表于 2024-1-6 02:42
+
+今年NS2 vs MSI Claw vs SD/ROG Ally/Legion Go 三家斗法了
+
+*****
+
+####  ultraseven  
+##### 1032#       发表于 2024-1-6 02:43
+
+微星家这个竞争力是32G内存吧
+

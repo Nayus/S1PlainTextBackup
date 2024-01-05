@@ -156,3 +156,11 @@
 
 没想到预告还是诺瓦旁白。“Magus一直在您身边”，不在身边的诺瓦如此说道
 
+
+*****
+
+####  diectt  
+##### 3338#       发表于 2024-1-6 02:53
+
+哦吼，又能和大家一起继续追这玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

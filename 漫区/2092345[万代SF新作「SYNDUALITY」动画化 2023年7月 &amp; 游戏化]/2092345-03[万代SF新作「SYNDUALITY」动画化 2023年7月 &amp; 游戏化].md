@@ -110,3 +110,23 @@
 
 [https://www.bilibili.com/video/BV1XG411q7rS/](https://www.bilibili.com/video/BV1XG411q7rS/)  13话预告 DOUBLE CAST(双重角色？）
 
+
+*****
+
+####  Piano-Forest  
+##### 3334#         楼主| 发表于 2024-1-5 21:03
+
+第13話「Double cast」
+
+[https://youtu.be/PsD2O0tFJC8](https://youtu.be/PsD2O0tFJC8)
+
+シルヴァーストームとの激戦から数日後―
+
+「ミステル」と名乗るメイガスに変貌をとげてしまったノワールは、いまだ戻っていなかった。手がかりのないなか、ノワールが目を覚ますきっかけになるかもしれないと、カナタはミステルをつれてノワールとの思い出の場所を巡るのだった。
+<img src="https://p.sda1.dev/15/dc18311ca65885520eec1ae13cf7fbd6/942a630bd986b1d1f1c123d4e7368804.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/e22a77a279334c38a0b7960dab05a152/b75e75eaea5865d476f74ab44bb3a199.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/7c7ad2ba09dfd2d9974735b8be1819f4/bc2fa31a11d9356408ee440cbaa5b789.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/39704a4c3c116110b6aac4761f27429e/4ba2d2ee7426723ee144efe1a30d1af7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/1d7f527f4f18298d7df6e8d75cee9472/d9bb67c665329a647e33e6c40ceea42c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/5a3976a3536938390aa4df3d4763e7b7/a3a9fbb59aa2364e74a1e8d9310a3704.jpg" referrerpolicy="no-referrer">
+

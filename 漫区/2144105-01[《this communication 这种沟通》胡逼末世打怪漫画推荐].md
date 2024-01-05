@@ -1286,3 +1286,13 @@
 42话汉化更新，德鲁哈又吃瘪啦。
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">看了下作者的推，50话就要完结了。
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 125#       发表于 2024-1-5 13:18
+
+二娃这个爹<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

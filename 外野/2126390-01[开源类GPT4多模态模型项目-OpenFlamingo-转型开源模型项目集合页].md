@@ -23137,3 +23137,61 @@ GPT-4对Chatbot模型进行的自动评估，LLaMA Pro-Instruct在广泛使用�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1159#       发表于 2024-1-5 22:38
+
+LLaVA-phi
+
+使用小型语言模型作为高效的多模态助手
+
+github项目仓库:https://github.com/zhuyiche/llava-phi
+
+LLaVA-ϕ(LLaVA-Phi)，一种高效的多模态助手，通过利用最近出现的先进小型语言模型Phi-2的力量来促进多模态对话的发展，在紧凑的多模态模型领域中取得了显著的进步，它表明，即使只是参数只有27亿的小型的语言模型，只要经过高质量的语料库训练，就可以有效地进行融合了文本和视觉元素的复杂对话
+
+LLaVA-Phi在公开可用的评估数据集上展现出了令人称赞的性能，其中包括视觉理解、推理和基于知识的感知，除了在多模态对话任务中表现出卓越的性能外，本文模型还为在时间需求型的环境和实时交互系统(如具身代理者)中的应用开辟了新的途径，它突显了小型语言模型在实现复杂水平的理解和互动方面的潜力，同时保证了更高的资源效率
+
+<img src="https://img.saraba1st.com/forum/202401/05/223746t6xxcb4859bif0fn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-223625.jpg</strong> (392.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 22:37 上传
+
+LLaVA-Phi擅长通过共情推理识别和回答复杂问题
+
+<img src="https://img.saraba1st.com/forum/202401/05/223751x7xssys7icudcccj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-223645.jpg</strong> (258.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 22:37 上传
+
+LLaVA-Phi可以根据视觉输入和命令生成有用的代码
+
+<img src="https://img.saraba1st.com/forum/202401/05/223755lree7e70qy5w4ykq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-223701.jpg</strong> (158.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 22:37 上传
+
+多模态基准测试的多模态评估，由于空间限制，基准名称被缩写
+
+<img src="https://img.saraba1st.com/forum/202401/05/223759nqm9dznggug8atfj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-223713.jpg</strong> (149.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 22:37 上传
+
+LLaVA-Phi能够对数学方程进行精确的OCR并相应地进行求解
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

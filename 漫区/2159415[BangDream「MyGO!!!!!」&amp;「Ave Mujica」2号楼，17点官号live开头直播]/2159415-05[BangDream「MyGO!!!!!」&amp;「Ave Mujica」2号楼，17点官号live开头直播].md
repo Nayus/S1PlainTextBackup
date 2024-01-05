@@ -8741,3 +8741,18 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 结合了动画的关系性、再现了出来/考虑了动画的关 ...</blockquote>
 中文水平不够只能直译了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">润色过后确实通顺点
 
+
+*****
+
+####  KirigawaMaki  
+##### 6816#       发表于 2024-1-6 00:38
+
+李子不愧是成员们都认为的有趣的女人，为什么去无人岛还要带假面啊<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6817#       发表于 2024-1-6 00:39
+
+《avemujica成员的自我修养》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

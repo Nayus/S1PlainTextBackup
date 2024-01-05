@@ -8105,3 +8105,11 @@ staff号不端水那确实有点好笑了<img src="https://static.saraba1st.com/
 
 看了生放昨天音宝热水两个人玩出花来，更觉得狗有个不营业的主唱是有点可惜的，不知道巡演能不能给羊磨出点团魂和活力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 6766#       发表于 2024-1-5 20:24
+
+真心烤羊的不是纯血黑子就是扭曲纯血gachi，泥漏这个成分肯定远低于企划厨，还是没有料太无聊了没事烤着玩一下，毕竟太稀有了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

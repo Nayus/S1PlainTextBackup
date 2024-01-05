@@ -8110,3 +8110,18 @@ Side Order有消息吗，估计下次开游戏就是等dlc出来了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63541114&amp;ptid=2150634" target="_blank"> 寻龙分金看缠山 发表于 2024-1-5 12:01</a> 我卡出来的bug怎么不太一样啊，   </blockquote>
 好家伙，我想回归游戏了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  山风短  
+##### 2316#       发表于 2024-1-5 12:45
+
+现在的气垫有种马老师都不想玩的独特美感
+
+*****
+
+####  墨染白泉  
+##### 2317#       发表于 2024-1-5 12:46
+
+uu打折，一年188，不过得定点抢劵
+

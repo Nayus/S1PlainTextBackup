@@ -8813,3 +8813,18 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 自觉维护母鸡卡世界观的李子是鉴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 6820#       发表于 2024-1-6 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63547325&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-5 22:07</a>
+
+怎么说
+
+的确看了一圈推就几乎没怎么和人互动过
+
+基本就只有通知型推文</blockquote>
+这些z8在大规模烤羊前都已经找补过很久了，还是放弃为宜哦<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

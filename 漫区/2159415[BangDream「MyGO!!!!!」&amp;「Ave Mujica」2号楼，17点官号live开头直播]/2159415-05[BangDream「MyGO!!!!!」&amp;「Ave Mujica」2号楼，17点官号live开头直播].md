@@ -7925,3 +7925,11 @@ y1s1 羊整体就动的很少不算烤羊啦
 大鼓刚发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在就差一个了
 <img src="https://p.sda1.dev/15/7c23bfd3994084254206049ad19dafd4/IMG_CMP_200455971.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狐式重型坦克  
+##### 6747#       发表于 2024-1-5 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要来了吗
+

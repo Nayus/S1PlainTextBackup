@@ -8083,3 +8083,11 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 任天堂你给个一千个人的拒绝列表不过分吧 ...</blockquote>
 但是拉黑并不影响继续排到
 
+
+*****
+
+####  huge_cat  
+##### 2313#       发表于 2024-1-5 11:08
+
+Side Order有消息吗，估计下次开游戏就是等dlc出来了
+

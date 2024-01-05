@@ -1332,3 +1332,16 @@
 
 不知道结局会往哪种方向发展，三话结局要超展开到难以想象的地步了。
 
+
+*****
+
+####  redsouris  
+##### 129#       发表于 2024-1-5 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63547046&amp;ptid=2144105" target="_blank">北山玖公 发表于 2024-1-5 21:37</a>
+德鲁哈要不是因为女猎人这么牛逼的能力却这么菜鸡，早就躺平了吧。总有种六个德鲁哈型猎人能拯救人类文明的 ...</blockquote>
+下一话搞不好就是虫子把德鲁哈吃了
+几个德鲁哈虫能毁灭地球呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

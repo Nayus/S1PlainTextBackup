@@ -8210,3 +8210,18 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 再次表示 羊那个应该算半个staff号</blockquote>
 要真是staff号那就更蠢了，营业都不会，这种摸鱼staff该开除了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  后藤一里  
+##### 6777#       发表于 2024-1-5 21:53
+
+不是她自己说的唱k唱的太嗨忘发推吗，应该还是掌握在自己手里的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninokagami  
+##### 6778#       发表于 2024-1-5 21:55
+
+让staff装作本人去和别人互动吗，感觉比不互动过分多了，漏油正常点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

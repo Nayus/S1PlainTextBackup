@@ -22859,3 +22859,79 @@ Image Sculpting将2D对象转换为3D，使之能够直接与转换后的3D几�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1156#       发表于 2024-1-5 07:57
+
+PLLaMa
+
+植物科学的开源大型语言模型
+
+github项目仓库:https://github.com/Xianjun-Yang/PLLaMa
+
+hugface 7b基础模型:https://huggingface.co/Xianjun/PLLaMa-7b-base
+
+hugface 13b基础模型:https://huggingface.co/Xianjun/PLLaMa-13b-base
+
+大型语言模型(LLMs)在各个领域展示出了对自然语言的卓越理解和交互能力，然而，在植物科学等需要高准确性的专业领域，它们的效果受限，这主要是缺乏领域的特定专业知识所导致的
+
+本文介绍了PLLaMa，一个从LLaMa-2演化而来的开源语言模型，通过一个包含150多万篇植物科学学术文章的全面数据库进行了增强，这成功丰富了PLLaMa在植物和农业科学方面的知识和能力
+
+进行了涉及与植物和农业相关的特定数据集的初步测试，结果展现了PLLaMa在理解植物科学相关主题方面的显著提高，此外，还组建了一个国际专业人员小组，包括植物科学家、农业工程师和植物育种学家，团队在验证PLLaMa对各种学术问题的回答准确性方面起着关键作用，确保了其在实际应用中的有效性和可靠性
+
+为了支持进一步的研究和发展，已经将该模型的检查点和源代码开源
+
+<img src="https://img.saraba1st.com/forum/202401/05/075700acc7lw2vyy2ueqqj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-075339.jpg</strong> (83.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 07:56 上传
+
+PLLaMa的训练流程
+
+<img src="https://img.saraba1st.com/forum/202401/05/075704fcdc4fshd4of7ie1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-075559.jpg</strong> (598.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 07:57 上传
+
+PLLaMa-13B-Chat生成的问题和解答
+
+<img src="https://img.saraba1st.com/forum/202401/05/075708thfftzvy2mhyhfth.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-075611.jpg</strong> (718.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 07:57 上传
+
+由 LLaMa-13B-Chat生成的问题和答案预测
+
+<img src="https://img.saraba1st.com/forum/202401/05/075713f4unlok70a54ndi4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-075618.jpg</strong> (112.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 07:57 上传
+
+预训练损失曲线
+
+<img src="https://img.saraba1st.com/forum/202401/05/075717e5umaqbbrruzm18a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-075626.jpg</strong> (68.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 07:57 上传
+
+指令微调损失曲线
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

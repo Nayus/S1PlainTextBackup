@@ -8278,3 +8278,13 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 杂志是什么时候，等下十一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 6783#       发表于 2024-1-5 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你們真沒必要，嚮社這麼多人沒來祝賀的都是不仲麼。mygo這兩天剛排練過估計早吃飯慶祝過了，別想太多
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

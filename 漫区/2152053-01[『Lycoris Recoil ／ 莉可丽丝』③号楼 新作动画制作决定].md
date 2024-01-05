@@ -18469,3 +18469,16 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 2024-1-4 22:40 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 1435#         楼主| 发表于 2024-1-5 20:56
+
+[https://twitter.com/Neko_4cfantasy/status/1743250746609639666](https://twitter.com/Neko_4cfantasy/status/1743250746609639666)
+
+2024
+
+明けましておめでとうございます
+<img src="https://p.sda1.dev/15/3dce9a9c16e25987d12498a03f84bc89/20240105_205507.jpg" referrerpolicy="no-referrer">
+

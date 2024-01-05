@@ -92,3 +92,21 @@
 
 2024-1-3 22:57 上传
 
+
+*****
+
+####  aptx8285144  
+##### 3333#       发表于 2024-1-5 20:55
+
+<img src="https://img.saraba1st.com/forum/202401/05/205145u88iy383un4q44m8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240105204818.png</strong> (19.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 20:51 上传
+
+彼方带着米提斯(黑诺娃），夏尔应该这是去找诺娃的相关线索吧，我总有一种夏尔什么时候就会当面反水的感觉，大哥那边更像是“主动出击”？
+
+[https://www.bilibili.com/video/BV1XG411q7rS/](https://www.bilibili.com/video/BV1XG411q7rS/)  13话预告 DOUBLE CAST(双重角色？）
+

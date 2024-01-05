@@ -8139,3 +8139,27 @@ staff号不端水那确实有点好笑了<img src="https://static.saraba1st.com/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nebulanoby  
+##### 6769#       发表于 2024-1-5 20:58
+
+Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  后藤一里  
+##### 6770#       发表于 2024-1-5 21:00
+
+你青木姐面子还挺大的，过个生日少歌派邦邦派dj派少壮派老资历社内社外都有人来祝贺，看来是要变天的前兆<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 6771#       发表于 2024-1-5 21:01
+
+被pua了
+

@@ -1296,3 +1296,15 @@
 
 —— 来自 samsung SM-G9980, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ストック  
+##### 126#       发表于 2024-1-5 19:17
+
+虽然之前觉醒的时候就有预料了结果真就男孩子的换蛋期了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+挺喜欢明明完全相同的场面从老四和德鲁哈两个视角看给人截然不同的感触的乐感
+不过这话几乎都是老四视角，一直到结尾隐约搞出大团圆的氛围都没有之前每话必有的老家一样安心的德鲁哈的畜生行径和反派脸，总觉得少了点什么，一看下集标题，舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

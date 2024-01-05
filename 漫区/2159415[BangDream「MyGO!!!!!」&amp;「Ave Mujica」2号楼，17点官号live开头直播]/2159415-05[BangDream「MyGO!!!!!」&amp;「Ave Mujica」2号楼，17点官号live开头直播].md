@@ -8200,3 +8200,13 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 2024-1-5 21:34 上传
 
+
+*****
+
+####  青蒜  
+##### 6776#       发表于 2024-1-5 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63545695&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-5 19:00</a>
+再次表示 羊那个应该算半个staff号</blockquote>
+要真是staff号那就更蠢了，营业都不会，这种摸鱼staff该开除了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

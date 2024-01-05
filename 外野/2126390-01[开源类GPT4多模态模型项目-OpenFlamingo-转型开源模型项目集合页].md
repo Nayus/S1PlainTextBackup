@@ -22935,3 +22935,45 @@ PLLaMa-13B-Chat生成的问题和解答
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1157#       发表于 2024-1-5 18:58
+
+TinyLlama
+
+开源小型语言模型
+
+github项目主页:https://github.com/jzhang38/TinyLlama
+
+TinyLlama，一个紧凑的1.1B参数语言模型，在大约1万亿个Token上进行了预训练，训练时间约为3个epochs，在Llama 2的架构和分词器的基础上，TinyLlama利用了开源社区贡献的各种新技术(例如FlashAttention)，实现了更好的计算效率，尽管参数规模相对较小，但TinyLlama在一系列下游任务中展现出了卓越的性能，它在可相比较大小的现有开源语言模型中表现出色，模型的检查点和代码可以在GitHub上公开获取
+
+github项目说明页截图:
+
+<img src="https://img.saraba1st.com/forum/202401/05/185813vht4gxn6nx4t9t4x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-185702.jpg</strong> (224.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/185813x09sgh0bqbgqgwwq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-185711.jpg</strong> (298.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/185813j1117yxe5e1xqb7q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-185721.jpg</strong> (108.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 18:58 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

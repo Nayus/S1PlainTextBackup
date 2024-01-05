@@ -7974,3 +7974,34 @@ y1s1 羊整体就动的很少不算烤羊啦
 
 马上有访谈看了
 
+
+*****
+
+####  kangkangsama  
+##### 6753#       发表于 2024-1-5 19:00
+
+<img src="https://img.saraba1st.com/forum/202401/05/185946ik5tlxxx3tkcfggx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0940.jpeg</strong> (424.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 18:59 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/185947w89899zr159k5131.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0939.jpeg</strong> (376.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 18:59 上传
+
+再次表示 羊那个应该算半个staff号
+
+*****
+
+####  凡人  
+##### 6754#       发表于 2024-1-5 19:02
+
+烤架都没上呢，就开始消防了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

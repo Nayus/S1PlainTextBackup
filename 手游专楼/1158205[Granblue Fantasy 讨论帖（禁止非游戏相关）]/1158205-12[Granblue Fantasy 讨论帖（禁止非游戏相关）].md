@@ -17,3 +17,11 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  玛基  
+##### 17580#       发表于 2024-1-6 05:59
+
+你的七剑何必不能是七剑，一把七剑卡死12次团的胡萝卜，难怪当初挥泪斩七剑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

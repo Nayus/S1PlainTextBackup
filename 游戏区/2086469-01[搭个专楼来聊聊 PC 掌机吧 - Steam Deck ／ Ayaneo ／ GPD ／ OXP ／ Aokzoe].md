@@ -43,3 +43,14 @@
 
 戴尔呢？外星人动一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  瓦拉几亚之夜  
+##### 1029#       发表于 2024-1-5 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63539785&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-5 10:04</a>
+
+不，大概率是 Intel 家的。</blockquote>
+英特尔的驱动玩游戏还是不及格啊，难道掌机还能搞掌上生产力？
+

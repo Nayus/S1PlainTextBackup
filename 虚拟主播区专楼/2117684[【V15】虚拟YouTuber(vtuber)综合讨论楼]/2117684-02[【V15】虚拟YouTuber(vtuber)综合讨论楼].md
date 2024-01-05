@@ -69,3 +69,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">全tm是萌新 你个LOL老手要么开个小号来虐菜 要么大号带小号被同MMR的对面虐自己这边的菜 怎么选都要挨喷
 
+
+*****
+
+####  karastar  
+##### 2858#       发表于 2024-1-6 00:55
+
+五黑打电脑啊
+

@@ -2228,3 +2228,14 @@ IMG_2773.jpeg
 
 <img src="https://img.saraba1st.com/forum/202401/06/000039ivk36g1yo386r36g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 10717#       发表于 2024-1-6 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63548393&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-1-6 00:01</a>
+
+还得是你啊riyo</blockquote>
+全场唯二没有凑CP的奥伯龙和加雷斯：没眼看啊没眼看<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

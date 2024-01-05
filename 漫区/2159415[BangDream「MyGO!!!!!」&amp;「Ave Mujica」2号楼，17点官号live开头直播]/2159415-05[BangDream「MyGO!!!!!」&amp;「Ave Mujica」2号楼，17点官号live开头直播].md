@@ -8296,3 +8296,27 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新太子是这样的了
 
+
+*****
+
+####  青蒜  
+##### 6785#       发表于 2024-1-5 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63547341&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-5 22:09</a>
+看z8那边说动物朋友两年前推特还是经常和人互动的，后来改了人设就要是你狗早两年出道没准还真有个 ...</blockquote>
+硬凹人设不难受吗？别给憋出毛病了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6786#       发表于 2024-1-5 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">杂志访谈中之人团爱有点超标
+
+*****
+
+####  德林·伦布兰  
+##### 6787#       发表于 2024-1-5 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

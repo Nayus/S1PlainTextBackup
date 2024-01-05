@@ -54,3 +54,14 @@
 不，大概率是 Intel 家的。</blockquote>
 英特尔的驱动玩游戏还是不及格啊，难道掌机还能搞掌上生产力？
 
+
+*****
+
+####  bypass  
+##### 1030#         楼主| 发表于 2024-1-5 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63541960&amp;ptid=2086469" target="_blank">瓦拉几亚之夜 发表于 2024-1-5 13:27</a>
+
+英特尔的驱动玩游戏还是不及格啊，难道掌机还能搞掌上生产力？</blockquote>
+别说了别说了，GPD WIN 3 这个游戏玩到特定节点必定崩溃，那个游戏路人衣服各种拉丝效果的一幕幕又开始历历在目了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

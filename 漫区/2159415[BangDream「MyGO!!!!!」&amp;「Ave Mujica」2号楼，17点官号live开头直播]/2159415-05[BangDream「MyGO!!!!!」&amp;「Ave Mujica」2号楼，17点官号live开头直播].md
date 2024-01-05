@@ -7831,3 +7831,11 @@ kktix。。。不如顺路去个香港吧
 
 武士道备货怎么一直不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 6738#       发表于 2024-1-5 14:56
+
+黄牛又发力了？二次受注刚上线，不过是2024/5/31到货
+

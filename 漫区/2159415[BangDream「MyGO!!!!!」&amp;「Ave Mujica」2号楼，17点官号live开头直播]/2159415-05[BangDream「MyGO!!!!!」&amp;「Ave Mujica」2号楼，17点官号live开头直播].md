@@ -8605,3 +8605,62 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大发表会应该也没啥东西
 
+
+*****
+
+####  ytttsuuuba  
+##### 6802#       发表于 2024-1-5 23:53
+
+这杂志发了睦祥糖啊啊啊，<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，这下对第二季的睦祥更加期待了。
+
+*****
+
+####  PDQ4  
+##### 6803#       发表于 2024-1-5 23:53
+
+还是等1.7吧，谷子通贩也宣完了，肯定是新东西<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说不定是新一轮解密呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+单纯小短片也很好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 6804#       发表于 2024-1-5 23:55
+
+这里提了r组热场神笨蛋的睦祥互动<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/595b24204835e3405316e2809a083c50/CMP_20240106005428403.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 6805#       发表于 2024-1-5 23:56
+
+S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一份在Google Drive
+[https://drive.google.com/drive/f ... bzZ8qui?usp=sharing](https://drive.google.com/drive/folders/1uoZi-PMYMVtwelPsVA7VgFtD6bzZ8qui?usp=sharing)
+
+*****
+
+####  DarthAka  
+##### 6806#       发表于 2024-1-5 23:57
+
+这照片拍得可太、太遗憾了
+
+*****
+
+####  Aendst  
+##### 6807#       发表于 2024-1-6 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">萝live热场的神笨木箱互动是结合了动画关系性的再现
+
+可能跟动画相关度比较高而且也能发散的就这段了吧
+
+*****
+
+####  星空冻结  
+##### 6808#       发表于 2024-1-6 00:02
+
+睦祥卖这么大吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

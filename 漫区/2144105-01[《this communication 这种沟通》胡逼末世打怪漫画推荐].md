@@ -1345,3 +1345,11 @@
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ayeah  
+##### 130#       发表于 2024-1-5 23:59
+
+看这漫画脑海里一直闪动“儿（爹）啊，爹（儿）来杀你了”和“杀 子 无 悔”
+

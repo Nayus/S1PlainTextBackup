@@ -7658,3 +7658,34 @@ mujica粉丝好多都跟饿狼一样，估计大部分都已经买好eplus的票
 
 <img src="https://p.sda1.dev/15/0b8e3300edc1e5a3d8f76c80087a798c/CMP_20240105103109439.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 6721#       发表于 2024-1-5 11:29
+
+<img src="https://img.saraba1st.com/forum/202401/05/112838gap3zk3lpl49kw49.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_バンドリ！ BanG Dream! 公式(@bang_dream_info)_20240105-032621_1743111665.jpg</strong> (257.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 11:28 上传
+
+台北公演
+
+　日程：2024年3月23日(土)　開場17:00／開演18:00(予定)
+
+　会場：Zepp New Taipei 
+
+[https://bang-dream.com/events/ras-asiatour2024](https://bang-dream.com/events/ras-asiatour2024)
+
+2000人場！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  NZ-333  
+##### 6722#       发表于 2024-1-5 11:30
+
+上海怎么还没开<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

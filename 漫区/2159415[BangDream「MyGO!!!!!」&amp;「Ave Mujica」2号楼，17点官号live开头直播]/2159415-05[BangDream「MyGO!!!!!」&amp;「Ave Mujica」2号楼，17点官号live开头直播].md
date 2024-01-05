@@ -8320,3 +8320,203 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 6788#       发表于 2024-1-5 23:16
+
+蹲蹲翻译，日文看不懂。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+渡濑喜欢神笨蛋，代到了，多卖卖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 6789#       发表于 2024-1-5 23:17
+
+<img src="http://img.nga.178.com/attachments/mon_202401/05/-9lddQ8x35-9sppZcT1kShs-12j.jpg" referrerpolicy="no-referrer">
+<img src="http://img.nga.178.com/attachments/mon_202401/05/-9lddQ8x35-airiZeT1kShs-12j.jpg" referrerpolicy="no-referrer">
+<img src="http://img.nga.178.com/attachments/mon_202401/05/-9lddQ8x35-bew6ZbT1kShs-12j.jpg" referrerpolicy="no-referrer">
+<img src="http://img.nga.178.com/attachments/mon_202401/05/-9lddQ8x35-d5uhZfT1kShs-12j.jpg" referrerpolicy="no-referrer">
+<img src="http://img.nga.178.com/attachments/mon_202401/05/-9lddQ8x35-gvyeZfT1kShs-12j.jpg" referrerpolicy="no-referrer">
+[https://g.nga.cn/read.php?tid=36 ... #pid736350912Anchor](https://g.nga.cn/read.php?tid=36692529&amp;page=2885#pid736350912Anchor)
+
+搬隔壁
+
+*****
+
+####  御幸一也  
+##### 6790#       发表于 2024-1-5 23:17
+
+自購
+
+<img src="https://img.saraba1st.com/forum/202401/05/231200a40pdr064qdjtztm.jpg" referrerpolicy="no-referrer">
+
+<strong>204.jpg</strong> (393.83 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231219yfusoauo2s7o4vig.jpg" referrerpolicy="no-referrer">
+
+<strong>205.jpg</strong> (261.9 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231244ycb5fw5raz544mse.jpg" referrerpolicy="no-referrer">
+
+<strong>206.jpg</strong> (282.04 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231258lxx23nkng3f2adgv.jpg" referrerpolicy="no-referrer">
+
+<strong>207.jpg</strong> (281.43 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231307gzuu8ljeleah00ty.jpg" referrerpolicy="no-referrer">
+
+<strong>208.jpg</strong> (214.49 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231319bwddhppt3tk88kgd.jpg" referrerpolicy="no-referrer">
+
+<strong>209.jpg</strong> (195.72 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231336jkuekknknbocu11q.jpg" referrerpolicy="no-referrer">
+
+<strong>210.jpg</strong> (267.47 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231345dwwfx57x3tdq10sw.jpg" referrerpolicy="no-referrer">
+
+<strong>211.jpg</strong> (229.46 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231354pf5yay1ez9w5ry11.jpg" referrerpolicy="no-referrer">
+
+<strong>212.jpg</strong> (149.61 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:13 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231405eqhtnotjz76bd7tj.jpg" referrerpolicy="no-referrer">
+
+<strong>213.jpg</strong> (223.08 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:14 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231421yepcpv2uve8ui2xz.jpg" referrerpolicy="no-referrer">
+
+<strong>214.jpg</strong> (278.43 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:14 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231450rdzu40ju5bb77605.jpg" referrerpolicy="no-referrer">
+
+<strong>215.jpg</strong> (562.24 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:14 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231515wgfqkfbowqbw30aj.jpg" referrerpolicy="no-referrer">
+
+<strong>216.jpg</strong> (434.56 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231531ujsm2m9kmpajw9pt.jpg" referrerpolicy="no-referrer">
+
+<strong>217.jpg</strong> (393.47 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231553qps880fbsemsrnn4.jpg" referrerpolicy="no-referrer">
+
+<strong>218.jpg</strong> (575.44 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231635e660o6y9h9h6jxv9.jpg" referrerpolicy="no-referrer">
+
+<strong>219.jpg</strong> (537.29 KB, 下载次数: 1)
+
+下载附件
+
+2024-1-5 23:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231657xqqehtekgeqeshbk.jpg" referrerpolicy="no-referrer">
+
+<strong>221.jpg</strong> (486.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 23:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/231742z1nq2wnb7e7hezee.jpg" referrerpolicy="no-referrer">
+
+<strong>Untitled-1.jpg</strong> (751.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 23:17 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 7战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| koishiiii| + 1||
+| KirigawaMaki| + 1|好评加鹅|
+| likeny| + 1||
+| Aendst| + 1|感谢|
+| qjw114514| + 1|好评加鹅|
+| twi| + 1|好评加鹅|
+| PDQ4| + 1||
+
+查看全部评分
+
+*****
+
+####  likeny  
+##### 6791#       发表于 2024-1-5 23:19
+
+有没有动画相关的<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

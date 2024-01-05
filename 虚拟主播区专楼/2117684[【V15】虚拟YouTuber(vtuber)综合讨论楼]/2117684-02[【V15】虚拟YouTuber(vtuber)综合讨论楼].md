@@ -54,3 +54,18 @@
 
 也就老叶来玩了
 
+
+*****
+
+####  OldGlory  
+##### 2856#       发表于 2024-1-5 23:16
+
+铁老鼠在毕业推下面发爱心太搞了吧，藏都不藏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高等黑暗  
+##### 2857#       发表于 2024-1-5 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">全tm是萌新 你个LOL老手要么开个小号来虐菜 要么大号带小号被同MMR的对面虐自己这边的菜 怎么选都要挨喷
+

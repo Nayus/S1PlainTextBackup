@@ -22977,3 +22977,163 @@ github项目说明页截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1158#       发表于 2024-1-5 21:34
+
+ 本帖最后由 Machinery 于 2024-1-5 21:37 编辑 
+
+LLaMA Pro
+
+具有块扩展(Block Expansion)的渐进式LLaMA
+
+github项目主页:https://github.com/TencentARC/LLaMA-Pro
+
+人类通常会在学习新技能的同时保持对旧技能的掌握，但是对于大型语言模型(LLMs)来说情况恰恰相反，例如，将LLaMA调整成CodeLLaMA
+
+为此，本文提出了一种新的LLM后预训练处理方法(post-pretraining method)，通过扩展Transformer blocks，只使用新语料库来调整扩展的blocks，有效而效率的提升模型的知识，同时避免灾难性遗忘
+
+在本文中，于代码和数学语料库上进行了实验，得到了LLaMA Pro-8.3B，一个多功能的基础模型，从LLaMA2-7B初始化而来，在通用任务、编程和数学方面表现出色
+
+LLaMA Pro及其遵循指令的对应模型(LLaMA Pro-Instruct)在各种基准测试中取得了领先性能，证明了其在LLaMA家族中的现有开放模型之上的优越性，以及作为智能代理者在推理和解决多样任务方面的巨大潜力
+
+本文的研究结果为将自然语言和编程语言整合提供了有价值的见解，为开发在各种环境中有效运作的高级语言代理者奠定了坚实基础
+
+<img src="https://img.saraba1st.com/forum/202401/05/213308pzend555x5g0o011.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-212940.jpg</strong> (131.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:33 上传
+
+LLaMA Pro-Instruct在广泛的各种任务中展现出的SOTA性能，从通用语言到特定领域，优于LLaMA系列的现有模型
+
+<img src="https://img.saraba1st.com/forum/202401/05/213315udvrk9crd9ekfe5z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-212954.jpg</strong> (144.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:33 上传
+
+(a)从大型语言模型开始，该模型在一个庞大的未标记语料库上进行预训练，从而获得强大的通用能力，这里选择了现成的LLaMA2模型以便于使用
+
+(b)在保留从基础模型继承的冻结的blocks的同时，拓展骨干并使用相关语料库微调扩展的身份blocks(backbone expansion and fine-tune the expanded identity blocks)，后预训练(post-pretraining)的模型可以像通常一样进行指令调整
+
+<img src="https://img.saraba1st.com/forum/202401/05/213323xjgdherq9lddmmjg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213026.jpg</strong> (207.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:33 上传
+
+(a)LLaMA块的概述，包括MHSA机制与之后带有SwiGLU激活的FFN
+
+(b)经过身份复制之后的LLaMA身份blocks，通过将输出线性矩阵初始化为零，以保留基础模型的输出
+
+<img src="https://img.saraba1st.com/forum/202401/05/213329rh2d8ab83o9t2bgd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213037.jpg</strong> (80.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:33 上传
+
+预训练数据源，Token以及在训练过程中每个组成部分的混合权重
+
+<img src="https://img.saraba1st.com/forum/202401/05/213335gobh1olbynr1rmlz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213052.jpg</strong> (74.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:33 上传
+
+本研究调查的指令数据集，报告了平均回合数(N¯ rounds)，平均提示长度(L¯ prompt)，平均完成长度(L¯ completion)
+
+<img src="https://img.saraba1st.com/forum/202401/05/213349yp0nuhu667s0cn6u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213108.jpg</strong> (158.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:33 上传
+
+一系列优秀的代码和语言模型的评估对比结果
+
+<img src="https://img.saraba1st.com/forum/202401/05/213359pqejjp2q2ze2pe22.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213120.jpg</strong> (84.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:33 上传
+
+将LLAMA PRO的整体和代码性能与一组在同一时间训练的模型进行了对比，包括通用LLM和面向代码的LLM，图中的斑点大小与训练的Token数量成正例，由于Mistral-7B的论文中没有报告Token数量，因此没有在此包括它
+
+<img src="https://img.saraba1st.com/forum/202401/05/213405w23uf02fgyabrbfx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213129.jpg</strong> (66.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:34 上传
+
+GPT-4对Chatbot模型进行的自动评估，LLaMA Pro-Instruct在广泛使用的LLaMA社区聊天机器人中表现优异
+
+<img src="https://img.saraba1st.com/forum/202401/05/213409xs5j7ncuzngsuhcq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213146.jpg</strong> (92.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:34 上传
+
+在工具增强的推理测试中，评估了模型在将工具集成到推理工作流程中的熟练程度，模型的有效性通过其在各个交互阶段的成功率来衡量
+
+<img src="https://img.saraba1st.com/forum/202401/05/213415ljop6kkjooskcp4k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213159.jpg</strong> (40.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:34 上传
+
+在使用LLaMA2-7B进行连续学习阶段后，各种训练策略在TRACE基准测试中的性能对比，该表格展示了每种策略的总体性能(OP)和逆向迁移(BWT)的得分，展示了所提出的blocks扩展训练方法的出色适应性
+
+<img src="https://img.saraba1st.com/forum/202401/05/213420ldf21j2ff1bdffj4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213208.jpg</strong> (102.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:34 上传
+
+训练损失随着增加的blocks数和专家混合(MoE)扩展而变化
+
+<img src="https://img.saraba1st.com/forum/202401/05/213427nbbpux8422lu8zp3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213221.jpg</strong> (126.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:34 上传
+
+对比了几个优秀的代码和语言模型的评估结果，最后一列表示语言任务平均和代码任务平均的平均值
+
+<img src="https://img.saraba1st.com/forum/202401/05/213432fogbbv9pgoj7bbbk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240105-213227.jpg</strong> (32.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 21:34 上传
+
+通过使用相同的指令数据集对LLaMA2-7B和LLAMA PRO进行微调，LLAMA PRO在所有任务中始终优于LLaMA2-7B，这个结果突显了本文方法的有效性，因为这证明了LLAMA PRO在预训练过程中成功地编码了更多的领域知识
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

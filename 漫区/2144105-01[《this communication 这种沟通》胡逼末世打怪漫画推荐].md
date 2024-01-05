@@ -1322,3 +1322,13 @@
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  北山玖公  
+##### 128#       发表于 2024-1-5 21:37
+
+德鲁哈要不是因为女猎人这么牛逼的能力却这么菜鸡，早就躺平了吧。总有种六个德鲁哈型猎人能拯救人类文明的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+不知道结局会往哪种方向发展，三话结局要超展开到难以想象的地步了。
+

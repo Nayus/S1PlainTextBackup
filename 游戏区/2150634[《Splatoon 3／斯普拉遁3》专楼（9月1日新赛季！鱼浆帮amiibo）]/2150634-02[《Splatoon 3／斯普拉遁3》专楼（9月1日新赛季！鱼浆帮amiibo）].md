@@ -8070,3 +8070,16 @@ TM的又碰上带宠物局了<img src="https://static.saraba1st.com/image/smiley
 考虑到这游戏卖了一千万份
 任天堂你给个一千个人的拒绝列表不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leyenda  
+##### 2312#       发表于 2024-1-5 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63538744&amp;ptid=2150634" target="_blank">carroy 发表于 2024-1-5 03:23</a>
+
+考虑到这游戏卖了一千万份
+
+任天堂你给个一千个人的拒绝列表不过分吧 ...</blockquote>
+但是拉黑并不影响继续排到
+

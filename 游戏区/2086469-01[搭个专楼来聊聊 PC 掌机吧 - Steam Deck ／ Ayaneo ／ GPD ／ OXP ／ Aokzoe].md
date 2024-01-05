@@ -14,3 +14,32 @@
 
 2024-1-5 09:16 上传
 
+
+*****
+
+####  marlowe723  
+##### 1026#       发表于 2024-1-5 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63539383&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-5 09:16</a>
+微信也要出 PC 掌机了</blockquote>
+首发8840U？
+
+*****
+
+####  bypass  
+##### 1027#         楼主| 发表于 2024-1-5 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63539767&amp;ptid=2086469" target="_blank">marlowe723 发表于 2024-1-5 10:02</a>
+
+首发8840U？</blockquote>
+不，大概率是 Intel 家的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ultraseven  
+##### 1028#       发表于 2024-1-5 10:05
+
+ 本帖最后由 ultraseven 于 2024-1-5 10:07 编辑 
+
+戴尔呢？外星人动一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -7903,3 +7903,25 @@ y1s1 羊整体就动的很少不算烤羊啦
 
 是不是可以开始奶第二季花女吉他组有互动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 6745#       发表于 2024-1-5 17:56
+
+ 本帖最后由 基神的强袭自由 于 2024-1-5 17:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63534130&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-4 16:11</a>
+
+多少有点离谱了，到时候会场黑压压的一片全穿这个玩意是不是会被无知群众报警
+
+ ...</blockquote>
+最低调的谷子，没人觉得我是二次元（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  归来的咆啸虎  
+##### 6746#       发表于 2024-1-5 18:01
+
+大鼓刚发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在就差一个了
+<img src="https://p.sda1.dev/15/7c23bfd3994084254206049ad19dafd4/IMG_CMP_200455971.jpeg" referrerpolicy="no-referrer">
+

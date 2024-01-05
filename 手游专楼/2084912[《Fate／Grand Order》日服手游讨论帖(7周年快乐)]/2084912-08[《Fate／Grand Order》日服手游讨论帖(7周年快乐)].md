@@ -2153,3 +2153,16 @@ riyo一画小人就要来一次，然后玩家跟着跳脚一次</blockquote>
 
 还是吃得太饱了
 
+
+*****
+
+####  jackyhuang  
+##### 10710#       发表于 2024-1-5 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63540396&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-1-5 10:56</a>
+为什么又在吹风欧若拉了？我错过了什么？</blockquote>
+<img src="https://p.sda1.dev/15/3f9255b37853e9715d3900a46e0923b2/CMP_20240105122904470.jpg" referrerpolicy="no-referrer">
+剪影有个疑似带翅膀的，然后开始发散
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

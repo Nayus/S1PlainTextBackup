@@ -8101,3 +8101,12 @@ Side Order有消息吗，估计下次开游戏就是等dlc出来了
 <img src="https://p.sda1.dev/15/88e07251b7519ba31a0d1774eadbda04/CMP_20240105120121824.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/5afa588578ddb607c0b2ae0759721ffa/CMP_20240105120121956.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 2315#       发表于 2024-1-5 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63541114&amp;ptid=2150634" target="_blank"> 寻龙分金看缠山 发表于 2024-1-5 12:01</a> 我卡出来的bug怎么不太一样啊，   </blockquote>
+好家伙，我想回归游戏了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

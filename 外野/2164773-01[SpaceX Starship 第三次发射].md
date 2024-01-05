@@ -1014,3 +1014,27 @@ Lrasm贵在那个射频引导头，你看jassm-er就没那么贵，还是战斧�
 至于战斗部有多贵我倒是不清楚，有 ...</blockquote>
 星舰的制导系统是惯导还是雷达成像啊
 
+
+*****
+
+####  commcody  
+##### 78#         楼主| 发表于 2024-1-5 12:28
+
+当地时间1月4日清晨，S28被从亚轨道测试台B拆下。下午时被转运回制造厂区以进行飞行前准备。
+
+<img src="https://img.saraba1st.com/forum/202401/05/122824hpqzrcllmcwwqnzh.jpg" referrerpolicy="no-referrer">
+
+<strong>GDCDBKZW8AAlCHI.jpg</strong> (244.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 12:28 上传
+
+<img src="https://img.saraba1st.com/forum/202401/05/122821tojkdo47zm40yeu4.jpg" referrerpolicy="no-referrer">
+
+<strong>GDCBLGGa4AA1FvX.jpg</strong> (604.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 12:28 上传
+

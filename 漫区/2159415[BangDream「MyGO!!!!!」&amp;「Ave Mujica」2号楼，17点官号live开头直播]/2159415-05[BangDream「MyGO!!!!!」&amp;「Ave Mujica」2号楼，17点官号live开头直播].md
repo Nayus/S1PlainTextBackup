@@ -8225,3 +8225,36 @@ Z8 S1分坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 让staff装作本人去和别人互动吗，感觉比不互动过分多了，漏油正常点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 6779#       发表于 2024-1-5 22:07
+
+<blockquote>青蒜 发表于 2024-1-5 21:44
+要真是staff号那就更蠢了，营业都不会，这种摸鱼staff该开除了</blockquote>
+怎么说
+
+的确看了一圈推就几乎没怎么和人互动过
+
+基本就只有通知型推文
+
+最近能找到的互动你看
+
+<img src="https://img.saraba1st.com/forum/202401/05/220640gcbkttbksld8chll.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0944.jpeg</strong> (329.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-5 22:06 上传
+
+不说她都“石見さん”了，这措辞你说是gpt写的我都信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 6780#       发表于 2024-1-5 22:09
+
+看z8那边说动物朋友两年前推特还是经常和人互动的，后来改了人设就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是你狗早两年出道没准还真有个积极营业的主唱
+

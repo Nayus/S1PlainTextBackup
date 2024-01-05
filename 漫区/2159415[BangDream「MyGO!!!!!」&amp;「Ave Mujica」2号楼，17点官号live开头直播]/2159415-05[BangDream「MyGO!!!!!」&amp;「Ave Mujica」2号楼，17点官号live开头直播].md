@@ -8711,3 +8711,33 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Aendst  
+##### 6814#       发表于 2024-1-6 00:20
+
+ 本帖最后由 Aendst 于 2024-1-6 00:21 编辑 
+<blockquote>那里也是和动画两人的关系性有关就再现了一下。</blockquote>
+这个翻法有点怪
+
+アニメの関係性とも絡めて再現しました。
+
+结合了动画的关系性、再现了出来/考虑了动画的关系性、进行了再现
+
+我个人是这样理解的
+
+*****
+
+####  ytttsuuuba  
+##### 6815#       发表于 2024-1-6 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63548549&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-6 00:20</a>
+
+这个翻法有点怪
+
+アニメの関係性とも絡めて再現しました。
+
+结合了动画的关系性、再现了出来/考虑了动画的关 ...</blockquote>
+中文水平不够只能直译了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">润色过后确实通顺点
+

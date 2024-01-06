@@ -145,3 +145,11 @@
 好像rog</blockquote>
 居然还送 Steam 点卡 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fate99  
+##### 1038#       发表于 2024-1-6 23:27
+
+想入个sd oled版，想问问 频闪问题严重吗？
+

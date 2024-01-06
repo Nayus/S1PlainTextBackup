@@ -14236,3 +14236,79 @@ mygo该列入违jin品名单了，致幻的危害不可估量
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  后藤一里  
+##### 7395#       发表于 2024-1-6 23:24
+
+居然真的要跟滚2同台竞技了，以前说出来大家都会觉得是戏言，没想到要成真了
+
+*****
+
+####  NODY  
+##### 7396#       发表于 2024-1-6 23:24
+
+做剧场版总集篇拖时间只需要做十多二十分钟新画面，做第二季要一整季新画面，这样看还是单纯的工期炸了的可能性比较大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅香山的熊  
+##### 7397#       发表于 2024-1-6 23:25
+
+看了漏油的讨论 我重新想到了13话的标题「唯一能相信的只有自己」
+
+*****
+
+####  此行远兮  
+##### 7398#       发表于 2024-1-6 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559164&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-6 23:24</a>
+居然真的要跟滚2同台竞技了，以前说出来大家都会觉得是戏言，没想到要成真了 ...</blockquote>
+滚2有消息了吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御幸一也  
+##### 7399#       发表于 2024-1-6 23:26
+
+到底要我說幾次三次元的動畫製作流程，能不能都自己去看一下製作訪談了解一下
+
+很明顯就是做好了壓著不放<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7400#       发表于 2024-1-6 23:30
+
+<img src="https://img.saraba1st.com/forum/202401/06/232940nd3xbdw3dvv922bc.jpg" referrerpolicy="no-referrer">
+
+<strong>B01.jpg</strong> (30.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:29 上传
+
+不了解的我再說一次，這是三次元的動畫製作流程，
+
+到配音的時候已經是至少有剪輯版的流暢動畫了。
+
+配音完會再有一個剪輯版，這一步會加上監督的一些細微表情調整。
+
+然後是音畫合成，接著就是最終確認了。
+
+9月就在配音的ave mujica，你告訴我動畫沒做完？你在騙我還是三次元在騙我<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  ellisnadie  
+##### 7401#       发表于 2024-1-6 23:32
+
+只能想到本来是想鸡接着播，于是13集加了鸡的live导入，后来mygo动画有热度后，直接播鸡反而担心流失热度，于是出总集剧场版补充mygo剧情顺便稳固粉丝，再接着出鸡
+
+不然想不到为什么搞个13集播鸡live，续篇又在25年播这种两边不讨好的方式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

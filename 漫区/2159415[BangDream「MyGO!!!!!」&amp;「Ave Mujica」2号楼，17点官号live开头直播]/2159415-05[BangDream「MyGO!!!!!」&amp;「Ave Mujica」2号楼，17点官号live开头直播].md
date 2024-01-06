@@ -12177,3 +12177,126 @@ mygo在日本只是没大热而已
 一个项目成功了 自然有很多人涌进来分羹
 产生什么连锁反应就不一定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 7171#       发表于 2024-1-6 20:43
+
+资源倾斜是可能的，改剧本也是可能的
+
+有没有匪夷所思的迷惑操作取决于武士道够不够烂，那我觉得是够的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 7172#       发表于 2024-1-6 20:43
+
+不一定，如果是看到老中这边，那就得改的更加大爆特爆
+
+*****
+
+####  Kasroz  
+##### 7173#       发表于 2024-1-6 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557081&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-6 20:41</a>
+mygo在日本只是没大热而已
+不至于不行 倒不如说在武士道看来很成功了
+一个项目成功了 自然有很多人涌进来分 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  七层嘉影  
+##### 7174#       发表于 2024-1-6 20:44
+
+最坏的结局就是直接复刻当年符莲子，整个企划都成了灾难
+
+*****
+
+####  凡人  
+##### 7175#       发表于 2024-1-6 20:44
+
+这种事情在动画史上发生过太多次了，要是明年🐔团烂了，那只能说毫不意外。
+
+*****
+
+####  502307501  
+##### 7176#       发表于 2024-1-6 20:45
+
+已经降低期待了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7177#       发表于 2024-1-6 20:46
+
+还有就是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+羊宫真人真是大美女  特别特别魅魔
+
+*****
+
+####  dqtql  
+##### 7178#       发表于 2024-1-6 20:46
+
+对于鸡团动画已经没有期待了，我从来没觉得看mygo开心过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7179#       发表于 2024-1-6 20:49
+
+先滑坡再滑坡，只要漏油自己够滑，那明年动画烂成什么样都不会受到打击。
+
+不如说现在还有比25年1月播更打击人的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 7180#       发表于 2024-1-6 20:49
+
+我倒要看看wsd打算在mujica1st宣什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会装死吧
+
+*****
+
+####  [皆神孝介]  
+##### 7181#       发表于 2024-1-6 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557152&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-1-6 20:46</a>
+
+对于鸡团动画已经没有期待了，我从来没觉得看mygo开心过</blockquote>
+是：“我从来没觉得‘等母鸡卡动画开心过’”吧<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 7182#       发表于 2024-1-6 20:50
+
+ 本帖最后由 HANDAIYV 于 2024-1-6 20:51 编辑 
+
+不如换一个角度阴湿，柿本监督提出在剧场版里增加猫猫和立希的戏份，结果导致绫奈老师对此不满而取关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skgaminger1988  
+##### 7183#       发表于 2024-1-6 20:50
+
+幽默一月番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 7184#       发表于 2024-1-6 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557187&amp;ptid=2159415" target="_blank">akirakira 发表于 2024-1-6 20:49</a>
+我倒要看看wsd打算在mujica1st宣什么不会装死吧</blockquote>
+答案是上次卖袍子这次卖裙子，含税9k日元
+
+*****
+
+####  higuchiguchi  
+##### 7185#       发表于 2024-1-6 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">先看剧场版staff还有没有独角兽吧
+

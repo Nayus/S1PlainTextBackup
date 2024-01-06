@@ -12732,3 +12732,166 @@ mygo在日本只是没大热而已
 
 趁现在滑坡吧 等过几个月 这楼估计一天也就两三条回复了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  11A511  
+##### 7231#       发表于 2024-1-6 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557595&amp;ptid=2159415" target="_blank">ganeid 发表于 2024-1-6 21:21</a>
+
+看吧你们吓的，自己去看看mygo最后一集staff表里写的mygo/avemujica原案是谁 ...</blockquote>
+然后发现 ave mujica 的卡司表里独角兽只有原案
+
+*****
+
+####  higuchiguchi  
+##### 7232#       发表于 2024-1-6 21:24
+
+上回独角兽原案前期起飞后几集查无此人的原创百合动画还是<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 7233#       发表于 2024-1-6 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7234#       发表于 2024-1-6 21:25
+
+原创 百合 续集 续集<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7235#       发表于 2024-1-6 21:26
+
+独角兽今天特意转发强调一次这条 就很怪
+
+<img src="https://img.saraba1st.com/forum/202401/06/212625dg1w7u4xut43mbmx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7129.jpeg</strong> (93.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 21:26 上传
+
+*****
+
+####  阿姆罗二世  
+##### 7236#       发表于 2024-1-6 21:26
+
+能比星二好就是成功<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7237#       发表于 2024-1-6 21:27
+
+漏油不如期望是x有bug，不然只关注avemujica也挺难评的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿姆罗二世  
+##### 7238#       发表于 2024-1-6 21:28
+
+经历了星团水魔之后，任何的滑坡迹象都是值得警惕的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">鸡团以后发生什么事情都不值得我惊讶了
+
+*****
+
+####  -LYRE-  
+##### 7239#       发表于 2024-1-6 21:28
+
+ 本帖最后由 -LYRE- 于 2024-1-6 21:32 编辑 
+
+提原案那我更担心了，毕竟上一个让我“印象深刻”的原案是朝浦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还看到有人说绫奈推特冲水、推特只显示最近半年？
+我那张绫奈和柿本的互动图是刚刚现截的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+17年的留着了结果近几个月的反而没了？
+
+*****
+
+####  江口夕  
+##### 7240#       发表于 2024-1-6 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557678&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-6 21:26</a>
+独角兽今天特意转发强调一次这条 就很怪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老哥正常點
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Acatv  
+##### 7241#       发表于 2024-1-6 21:29
+
+复刻武吹和京吹是吧，快进到绫鸡和武鸡
+
+球球你们别滑了 我真的会信的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sjj118  
+##### 7242#       发表于 2024-1-6 21:29
+
+mygo开播前宣传的两个推也没了
+[https://twfan.net/user/130878260/old/1](https://twfan.net/user/130878260/old/1)
+
+<img src="https://img.saraba1st.com/forum/202401/06/212823wfhiugj0qkfucvvh.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-01-06 21.18.48.png</strong> (148.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 21:28 上传
+
+*****
+
+####  相坂君  
+##### 7243#       发表于 2024-1-6 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不要轻拍不要轻拍
+
+*****
+
+####  PDQ4  
+##### 7244#       发表于 2024-1-6 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557649&amp;ptid=2159415" target="_blank">higuchiguchi 发表于 2024-1-6 21:24</a>
+
+上回独角兽原案前期起飞后几集查无此人的原创百合动画还是</blockquote>
+我就是冲着绫奈的剧本看的，真成flfl那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7245#       发表于 2024-1-6 21:29
+
+说实话越滑越真了，到现在还没转母鸡卡，以绫奈往常的营业力度不太可能
+
+*****
+
+####  QuattroVageena  
+##### 7246#       发表于 2024-1-6 21:30
+
+明年武士道十周年啊
+今年踢了craftegg，不会明年邦二吧，鸡狗永别
+
+*****
+
+####  星空冻结  
+##### 7247#       发表于 2024-1-6 21:30
+
+这么看绫奈不是切割🐔而是切割🐶吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7248#       发表于 2024-1-6 21:31
+
+难道是为了对十周年的轴？
+

@@ -35,3 +35,15 @@
 
 所以看小光的校服……这是作为交换生回来了么。
 
+
+*****
+
+####  Piano-Forest  
+##### 8924#       发表于 2024-1-6 16:54
+
+OP：[https://youtu.be/XRaxV40NSNE](https://youtu.be/XRaxV40NSNE)
+
+<img src="https://p.sda1.dev/15/3308adfe03609c3ef1ab68796829cf81/20240106_162443.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/d714faff8f0b48ba789452624d4d7b5f/20240106_164534.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/326f03c8bd293c323df546f36b15ac69/20240106_164536.jpg" referrerpolicy="no-referrer">
+

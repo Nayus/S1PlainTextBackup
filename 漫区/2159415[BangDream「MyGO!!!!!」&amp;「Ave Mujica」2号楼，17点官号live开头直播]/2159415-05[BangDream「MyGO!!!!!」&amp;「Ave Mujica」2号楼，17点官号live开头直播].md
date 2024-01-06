@@ -15141,3 +15141,24 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 真的受不了，预告个2025到底有什么意义，不预告维持期待度有什么坏处吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在知道要25才能播整个人都凉掉了
 
+
+*****
+
+####  基神的强袭自由  
+##### 7489#       发表于 2024-1-7 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560055&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 01:13</a>
+手游一年可以过现实三四年，没什么影响，尤其现在加了狗以后一轮活动90-100天，一年也就三轮半活动，放剧 ...</blockquote>
+那还是不如隔壁临时女友，十几年过去了，大家高一还是高一，高二还是高二，高三还是高三<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  江口夕  
+##### 7490#       发表于 2024-1-7 02:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">媽耶，心危2op太時髦了，難怪動物朋友主推，遇到這麼有能的staff我也抱大腿
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -101,3 +101,126 @@ OP44分组，啊光你又跑了</blockquote>
 官网角色设定图都换上皇家戏剧学院的衣 ...</blockquote>
 剧场版时间线的话不是都毕业了吗
 
+
+*****
+
+####  Case  
+##### 8930#       发表于 2024-1-6 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559266&amp;ptid=1499843" target="_blank">哆哆鸡 发表于 2024-1-6 23:38</a>
+
+剧场版时间线的话不是都毕业了吗</blockquote>
+故事介绍的话，是“圣翔音乐学院 最后的夏天”。
+
+在准备第101届圣翔祭了。
+
+属于是即将毕业的状态。
+
+*****
+
+####  Case  
+##### 8931#       发表于 2024-1-6 23:56
+
+<img src="https://img.saraba1st.com/forum/202401/06/235524j31q40ekpic03ssa.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hljzyzc8hlj311n0tdqel.jpg</strong> (126.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:55 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235633ez0kqs0gu0z0c6f0.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhw8fdj30u20t4jwn.jpg</strong> (105.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235523onpzzog2morwsm2n.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhviugj30tg0sigqj.jpg</strong> (98.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:55 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235633cw7rlvv0v6fq0lgz.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhvmalj30tg0sz79w.jpg</strong> (113.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235634vgkhiq7ddbbnzzhe.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhvhwoj30sg0srq7y.jpg</strong> (102.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235634j52cbw3ceipu2zz5.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhvlsfj30st0tf0xm.jpg</strong> (100.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235634ombfzl5536easgw3.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhva2sj30sa0u0431.jpg</strong> (89.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235634pfkrkdk6bbunr14c.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhvwolj30t00tx43v.jpg</strong> (109.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235635oth9zh56bz69ntbl.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhv7bsj30tu0s4q7m.jpg</strong> (94.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235635dogqzoiimumavlil.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhvbn5j30s40tb794.jpg</strong> (99.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235635uq5xx0ztjj22rt2x.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhw29zj30tn0tm0zf.jpg</strong> (136.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/235523ohy95n7hu7yucwu7.jpg" referrerpolicy="no-referrer">
+
+<strong>005F1trVly1hlk0vhvj1bj30tx0tpn2f.jpg</strong> (107.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 23:55 上传
+
+*****
+
+####  yaneis  
+##### 8932#       发表于 2024-1-7 00:01
+
+蕉哥哥又开始放狠话了，这次不会吃瘪了吧（
+

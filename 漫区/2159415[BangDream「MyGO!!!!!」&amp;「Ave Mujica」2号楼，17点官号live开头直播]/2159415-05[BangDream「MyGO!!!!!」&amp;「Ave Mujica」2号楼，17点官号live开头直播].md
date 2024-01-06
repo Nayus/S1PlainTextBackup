@@ -9177,3 +9177,22 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cherryjia12  
+##### 6849#       发表于 2024-1-6 13:59
+
+其实羊要是只是不营业也没啥问题，关键我心危和推子发的勤快的很，mygo这么不上心确实令人不快
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  利维豚  
+##### 6850#       发表于 2024-1-6 14:02
+
+<img src="https://p.sda1.dev/15/8170feb6a9f66f3204fc960bbe6586ef/CMP_20240106140030189.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/6d1fc7aada287ee0887e8ea6e178d09d/CMP_20240106140030241.jpg" referrerpolicy="no-referrer">
+[虫原](https://weibo.com/7859368949/NA94p78db)
+

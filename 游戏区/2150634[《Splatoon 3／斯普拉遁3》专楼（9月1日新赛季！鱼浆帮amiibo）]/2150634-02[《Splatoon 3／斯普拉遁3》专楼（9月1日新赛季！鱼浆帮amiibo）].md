@@ -8223,3 +8223,11 @@ uu打折，一年188，不过得定点抢劵
 
 画的真好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 2329#       发表于 2024-1-6 13:53
+
+400章到手，终于全图脱离达人4
+

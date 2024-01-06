@@ -2378,3 +2378,11 @@ IMG_2773.jpeg
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  alucardcz  
+##### 10731#       发表于 2024-1-6 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">好  萌新也终于有大魔王了（
+

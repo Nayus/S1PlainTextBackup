@@ -14084,3 +14084,65 @@ B站官方合号的时候就有人说过类似的话了<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">武士道你中国主场活动倒是搞一搞啊，不整live哪怕fmt啥的也行啊
 
+
+*****
+
+####  此行远兮  
+##### 7378#       发表于 2024-1-6 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558855&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-6 22:53</a>
+那我也不是现在才有这个想法的，猫塑造单薄真的只是因为mujica抢戏吗？监督可是说在第10话的时候就不知道 ...</blockquote>
+这就是问题啊，且不说制作组有没有意识到动画本身是否完整的问题，如果真的是不知道做什么了，最后两集把MyGO的live做完，再多包点儿饺子，对于MyGO粉丝的观感都会比现在好很多<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+现在这种安排多少有点儿两边都不讨好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  meailove  
+##### 7379#       发表于 2024-1-6 23:06
+
+我觉得等pa新作菜花播出来就什么都知道了，总不能到自己脚本回也不转推吧，现在最危险的反而是菜花<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然要是出事前脚本就写好的话就还好
+
+*****
+
+####  PDQ4  
+##### 7380#       发表于 2024-1-6 23:06
+
+其实早该分开了，因为两团里部分人动画里的矛盾就很激烈，不管后续要不要包饺子，都应该早点播出动画让两团关系相对固定下来，不然只能留粉丝自己去发散，留个断章一样的尾巴，两边都有人不满，迟早有人会打起来。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后WSD给你整隔了将近一年半，太6了我只能说，不是宣传鬼才只能理解为想吃这波吵架的热度，虽然和你邦基调不符，但是真的很适合打榜来恰米，明年环境更难以预测了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 7381#       发表于 2024-1-6 23:08
+
+忍着不笑把字打完的我，很努力了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅香山的熊  
+##### 7382#       发表于 2024-1-6 23:09
+
+大家疑似被25年播放给刺激到了 建议冷静冷静 虽然我也冷静不了
+
+*****
+
+####  skives  
+##### 7383#       发表于 2024-1-6 23:10
+
+再过几个星期估计热度就下来了
+大热如滚蒜 现在s1的砖楼一天也没几条回复
+mygo动画这个热度就不要了 等明年靠硬实力吸新的热度吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7384#       发表于 2024-1-6 23:12
+
+但问题是要切割的话 为什么总是只切割第13集呢
+从第一集开头开始切 把什么第三集第七集第八集都切了岂不是更好
+就像那个tv总集篇一样
+

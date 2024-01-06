@@ -12591,3 +12591,144 @@ mygo在日本只是没大热而已
 论坛助手,iPhone ...</blockquote>
 快进到编剧久弥直树/林直树<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双穹骑士托勒密  
+##### 7216#       发表于 2024-1-6 21:13
+
+怕啥，关系图都不知道啥时候删的，至少MYGO13集播完的感谢推还在，真切割那只能是官宣换脚本
+
+*****
+
+####  Kasroz  
+##### 7217#       发表于 2024-1-6 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫奈一刻不转推，滑坡就一刻不能停
+
+*****
+
+####  菠萝啵啵啵  
+##### 7218#       发表于 2024-1-6 21:15
+
+给楼友说得心惊胆战的了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+删连线有没有可能是因为马上要发售的设定集的关系
+以前好像看独角兽老师发过脚本相关的投票，应该也属于设定相关？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Talandar| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  灵椿  
+##### 7219#       发表于 2024-1-6 21:17
+
+本来只是觉得期待落空，现在是真有点害怕了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 7220#       发表于 2024-1-6 21:17
+
+ 本帖最后由 -LYRE- 于 2024-1-6 21:23 编辑 
+
+能不能想点好的？这是我们想点好的就会好的事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+之前楼里有个人天天滑坡鸡要被狗垫了得等明年才能播了，大多楼友都怼了，那个时候想的不好吗？
+结果呢？是那个滑坡的漏油的大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+蒜的时候我担心泷奈戏份和定位问题，也是被骂滑坡，结局？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+水魔的时候我天天骂挑染粉贷款上位当主角痴心妄想，s2？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isummon  
+##### 7221#       发表于 2024-1-6 21:18
+
+快进到兽娘动物园2，全员ooc结局
+
+*****
+
+####  Aloereed  
+##### 7222#       发表于 2024-1-6 21:19
+
+删连线是因为独角兽会定期给自己X 冲水，不用太担心
+
+*****
+
+####  江口夕  
+##### 7223#       发表于 2024-1-6 21:19
+
+ 本帖最后由 江口夕 于 2024-1-6 21:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道換的製作人要求就是走這路線，一開始ave短篇就是這個味，和綾瀨一毛錢關係沒有就是個打工的。
+劇本是早一年就寫好的包括ave，樓友別想太多
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  higuchiguchi  
+##### 7224#       发表于 2024-1-6 21:20
+
+独角兽转推了
+
+转的是given<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ganeid  
+##### 7225#       发表于 2024-1-6 21:21
+
+看吧你们吓的，自己去看看mygo最后一集staff表里写的mygo/avemujica原案是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aallqqppaa  
+##### 7226#       发表于 2024-1-6 21:21
+
+别急 至少角色都已经定死了 没办法插人已经比旅途和水2和兽娘2成功了！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">顶多就是mygo大加戏变成大爱传或者大灯传而已
+
+—— 来自 samsung SM-G9980, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kfly  
+##### 7227#       发表于 2024-1-6 21:21
+
+你们有点极端了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  煌煌其烨  
+##### 7228#       发表于 2024-1-6 21:22
+
+不是说独角兽老师第一部开始就负责bang的剧本了吗？这真能切的动吗？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ellisnadie  
+##### 7229#       发表于 2024-1-6 21:22
+
+确实总集篇剧场版这种，很像是播出后／播出完才会决定的，毕竟有反响才会出这种东西
+
+就是我不明白鸡狗两团联系这么紧密，播出鸡其实也不可能不写狗，搞了个一年断章流失热度，武士道这个判断真是下下策
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  skives  
+##### 7230#       发表于 2024-1-6 21:22
+
+趁现在滑坡吧 等过几个月 这楼估计一天也就两三条回复了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

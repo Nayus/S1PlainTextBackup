@@ -2692,3 +2692,11 @@ https://github.com/stevenyomi/copymanga</blockquote>
 
 vomic源用不了了有漏油知道解决办法吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hrha  
+##### 272#       发表于 2024-1-7 03:23
+
+tachiyomi 根据某个韩国野鸡版权商的请求把 mangadex 和 bato 源给扬了。感觉应该换软件了
+

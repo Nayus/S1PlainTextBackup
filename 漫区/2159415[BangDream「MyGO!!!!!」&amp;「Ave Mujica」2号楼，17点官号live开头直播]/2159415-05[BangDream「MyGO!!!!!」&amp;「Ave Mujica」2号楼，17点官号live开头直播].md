@@ -9561,3 +9561,23 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 翻完太累了就沒有校，錯字有點多，不好意思<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 6857#       发表于 2024-1-6 14:48
+
+ 本帖最后由 江口夕 于 2024-1-6 14:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你們羊姐還沒到隔壁花卷的程度，這才哪到哪，該吃吃該喝喝，團員不仲那才是致命。現在而言頂多粉絲有怨言，成員該咋演咋演。
+團員不仲那種才是真無法直視，特別是要營業的時候簡直是災難在看的人眼裡
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  アコ  
+##### 6858#       发表于 2024-1-6 14:50
+
+全员互相认妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

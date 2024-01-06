@@ -12066,3 +12066,114 @@ wsd：假的吧，这么多，有道理吗？ ...</blockquote>
 
 —— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  PDQ4  
+##### 7158#       发表于 2024-1-6 20:33
+
+反正有一年时间可以发散，动画剧本烂了就切割，绫奈和柿本有PA花合作的情况下互相取关可太怪了，今夜痛骂WSD<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AsaYoru  
+##### 7159#       发表于 2024-1-6 20:33
+
+别改剧本欧内该
+
+*****
+
+####  95jiuwu  
+##### 7160#       发表于 2024-1-6 20:33
+
+天哪2025，最绝望的一天。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  akirakira  
+##### 7161#       发表于 2024-1-6 20:33
+
+搜了一下，监督确实17年就关注了，今年五月还有互动，不知道为什么关注消失了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过也有可能是x抽风<img src="https://p.sda1.dev/15/0dbca48b1b3fa23f34deb99c72e1c545/IMG_20240106_212513.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 7162#       发表于 2024-1-6 20:34
+
+<img src="https://img.saraba1st.com/forum/202401/06/203436bbepqunddn2upbbp.png" referrerpolicy="no-referrer">
+
+<strong>3354.png</strong> (49.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 20:34 上传
+
+*****
+
+####  凡人  
+##### 7163#       发表于 2024-1-6 20:35
+
+感觉管人团的dj很有女同味<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7164#       发表于 2024-1-6 20:35
+
+猫现在人气已经不如祥睦爱素了吧，真要插队赚米不如做个crychic前传剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 7165#       发表于 2024-1-6 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">少女开开心心玩乐队也不是不行，但是你邦做到滚那个日常还有常态r组那个3d歌唱演出还是能封神的，问题是鸡能神到这种可能吗
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a85982313  
+##### 7166#       发表于 2024-1-6 20:36
+
+可别滑坡了行不行
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  江口夕  
+##### 7167#       发表于 2024-1-6 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556845&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-6 20:23</a>
+武士道看日本那边很多觉得mygo不行的原因是剧情太阴郁，想把mujica重做成kirakira包饺子团团又魂魂的可能性 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">棒1：看了眼自己的銷量，你說的都對
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7168#       发表于 2024-1-6 20:38
+
+我宣布2024年赛博祥子就是母鸡卡正统<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 7169#       发表于 2024-1-6 20:41
+
+笑了，赛博小祥还得写一年，全靠同人续命了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7170#       发表于 2024-1-6 20:41
+
+mygo在日本只是没大热而已
+不至于不行 倒不如说在武士道看来很成功了
+一个项目成功了 自然有很多人涌进来分羹
+产生什么连锁反应就不一定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

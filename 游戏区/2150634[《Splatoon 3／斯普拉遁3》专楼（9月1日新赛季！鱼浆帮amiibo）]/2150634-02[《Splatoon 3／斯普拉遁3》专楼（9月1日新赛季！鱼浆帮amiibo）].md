@@ -8247,3 +8247,21 @@ uu打折，一年188，不过得定点抢劵
 
 莎莎的失落表情是不是这次祭典播报才第一次出现的233
 
+
+*****
+
+####  晴岚  
+##### 2332#       发表于 2024-1-6 21:50
+
+<img src="https://img.saraba1st.com/forum/202401/06/215021oopcioocjzjc30ub.jpg" referrerpolicy="no-referrer">
+
+<strong>C92CDDE6-819D-4773-9530-1C0B8DF251AB.jpg</strong> (422.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 21:50 上传
+
+团灭了对面三个队友甚至没有一个愿意先把区涂下来再去前压
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

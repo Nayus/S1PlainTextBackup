@@ -13066,3 +13066,192 @@ u1s1，mygo剧情不是集体推演角色的么，独角兽留下个原案已经
 
 感觉越滑越真嗯么回事，真有点害怕了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">上哪找绫奈这种会写的河豚啊。
 
+
+*****
+
+####  ryuusu  
+##### 7268#       发表于 2024-1-6 21:43
+
+单说手游一下加两新团才吃不消，还有现在的旧团剧情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 往好想mygo还能多卖点箱活和前辈团混活
+
+*****
+
+####  a85982313  
+##### 7269#       发表于 2024-1-6 21:43
+
+其他的不说，前面有人说的，绫奈关注了mujica，没关注mygo吗
+
+mujica如果不是绫奈脚本的话，那她不关注的也应该是mujica才对啊，怎么把mygo没关注了
+
+*****
+
+####  zzhh0131  
+##### 7270#       发表于 2024-1-6 21:44
+
+其他的不评价，关于今天转的那条“最后”的推文要结合上下文吧，后面又发了一条说了6个小时的话，说明这个才是最后的访谈，之前那次已经说过一次最后了所以要再强调一次吧来自: iPhone客户端
+
+*****
+
+####  水莲寺流歌  
+##### 7271#       发表于 2024-1-6 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+顺道说下，绫乃老师真的离开了团队，接手的是久弥直树
+
+*****
+
+####  友情的结晶  
+##### 7272#       发表于 2024-1-6 21:44
+
+有点记不清了但是3、7、13脚本都是独角兽亲自上阵吧。虽然剧本可以说是整个编剧团队的功劳，这几集也有live加成，但是没有独角兽我上哪去看“忘记一切”、“祝你幸福”这种台词<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  HazukiShion  
+##### 7273#       发表于 2024-1-6 21:44
+
+ 本帖最后由 HazukiShion 于 2024-1-6 21:46 编辑 
+
+认真来说，删关系图或者前期宣传之类的的确不能作为什么判断依据，毕竟有些人的确有定时清理自己推文的习惯，那句最后一次感觉大家也有点捕风捉影了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我现在觉得奇怪的还是独角兽对宣传的态度，要知道 MyGO 放送前独角兽对这块还是挺热情的，但这次剧场版也好 AM 定档也罢却表现得像个没事人一样，这实在是有点不太正常。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 7274#       发表于 2024-1-6 21:46
+
+独角兽有清理过之前的作品的推文吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Ecauchy  
+##### 7275#       发表于 2024-1-6 21:46
+
+<img src="https://img.saraba1st.com/forum/202401/06/214519zdjiut049z77npy9.png" referrerpolicy="no-referrer">
+
+<strong>d0050b9273dd1fff1d33e1f1d810086f.png</strong> (287.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 21:45 上传
+
+不知道有没有人发过于是提一嘴。
+
+[https://twitter.com/unicococ/status/1693282946315403642](https://twitter.com/unicococ/status/1693282946315403642)
+
+被删的可不只是那些人物相关图，连这个解密关系图也删了。
+
+*****
+
+####  nebulanoby  
+##### 7276#       发表于 2024-1-6 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557965&amp;ptid=2159415" target="_blank">HazukiShion 发表于 2024-1-6 21:44</a>
+认真来说，删关系图或者前期宣传之类的的确不能作为什么判断依据，毕竟有些人的确有定时清理自己推文的习惯 ...</blockquote>
+是的，前面说的都是烂炒，而独角兽的推对🐔装死才是所有烂炒的起源
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  meailove  
+##### 7277#       发表于 2024-1-6 21:48
+
+说个事情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是绫奈好像没有一次转过菜花相关的推，要是真如上面的猜测好像还真能说的通，毕竟剧本作为企划前期就能完成的工作，说不定在闹翻前菜花的剧本就写完了，所以出现这种闹翻了名字还写在一起的情况也不是不可能
+
+*****
+
+####  友情的结晶  
+##### 7278#       发表于 2024-1-6 21:49
+
+独角兽之前关于鸡狗的静默我一直当作作者完成了作品之后满足的贤者时间，但是<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  棒读  
+##### 7279#       发表于 2024-1-6 21:49
+
+之前在mygo合作得明明那么开心。独角兽老师是mygo的创作者啊，要是独角兽老师退出的话……总之，先冷静下来谈谈吧。大家都已经一起开心地做动画这么久了，武士道桑也是这么想的吧？
+
+*****
+
+####  Anatoly  
+##### 7280#       发表于 2024-1-6 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557985&amp;ptid=2159415" target="_blank">友情的结晶 发表于 2024-1-6 21:46</a>
+
+独角兽有清理过之前的作品的推文吗
+
+论坛助手,iPhone</blockquote>
+看起来是清理的
+
+因为绫奈的发推频率，媒体一栏不可能只剩去年八月之后的图（
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7281#       发表于 2024-1-6 21:50
+
+独角兽:我最想说的话已经让灯说了，我最想表达的故事也已经在mygo展示了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 7282#       发表于 2024-1-6 21:50
+
+<img src="https://img.saraba1st.com/forum/202401/06/214947is6tb5t6srr8xxbx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 21:49 上传
+
+独角兽也没有在X提过任何关于成为菜花的相关内容。感觉和柿本广大相关的都切割了
+
+*****
+
+####  Porsche  
+##### 7283#       发表于 2024-1-6 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然楼里一贯捕风捉影也是乐趣，但是直接滑坡到动物朋友2还是想不到的
+
+*****
+
+####  Aendst  
+##### 7284#       发表于 2024-1-6 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558038&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-6 21:50</a>
+
+独角兽:我最想说的话已经让灯说了，我最想表达的故事也已经在mygo展示了。。。 ...</blockquote>
+颈部以上有问题可以去医院看看
+
+*****
+
+####  skives  
+##### 7285#       发表于 2024-1-6 21:52
+
+我真服了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asukaasu  
+##### 7286#       发表于 2024-1-6 21:52
+
+十月的时候说最后一次访谈我也没看有人发什么颠啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次转了重发不就说明独角兽刚做了公式书的staff访谈，这也能烂炒
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7287#       发表于 2024-1-6 21:52
+
+<img src="https://p.sda1.dev/15/61203d14669cb83efb49b9e18a025666/CMP_20240106215159249.jpg" referrerpolicy="no-referrer">
+

@@ -53,3 +53,14 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Geyorkias  
+##### 17584#       发表于 2024-1-6 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63549648&amp;ptid=1158205" target="_blank">shinitakute 发表于 2024-1-6 08:38</a>
+
+攒了150金月，是来个黑卡换龙神将好呢还是直接来个150金月武器好，没有艾蕾但我暗没有武器，主要火 ...</blockquote>
+留着，龙不值得黑卡，至少目前不值得，今年还一年呢，水团还早的很。
+

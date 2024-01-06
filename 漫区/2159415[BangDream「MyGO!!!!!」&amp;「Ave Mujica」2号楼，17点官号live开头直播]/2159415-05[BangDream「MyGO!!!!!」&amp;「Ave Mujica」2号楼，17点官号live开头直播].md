@@ -8865,3 +8865,15 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 另外幸好大鼻子姐姐 ...</blockquote>
 凛有一次扮成扮成小红帽的照片也很难绷，跟化妆师、摄像师仿佛有仇，就算能吃直出也是扛不住硬造的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 6824#       发表于 2024-1-6 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63549872&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-6 09:11</a>
+凛有一次扮成扮成小红帽的照片也很难绷，跟化妆师、摄像师仿佛有仇，就算能吃直出也是扛不住硬造的[f:067 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想起来了，所以说拍照乱拍真的不行
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

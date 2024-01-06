@@ -15162,3 +15162,11 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  NODY  
+##### 7491#       发表于 2024-1-7 02:26
+
+查了一下时间线，邦元年现实过了两年，邦二年现实过了四年，所以现在这个邦三年现实时间过个五年甚至六年也不是没有可能，前提是你邦手游能活那么久<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

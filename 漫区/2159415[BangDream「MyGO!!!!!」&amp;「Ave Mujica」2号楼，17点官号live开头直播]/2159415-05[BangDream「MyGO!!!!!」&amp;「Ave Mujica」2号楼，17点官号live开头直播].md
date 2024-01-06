@@ -15093,3 +15093,43 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 手游最大的问题难道不是三周年之后资源全部被拿去投给d4dj结果半点水花都没有，家里还被pjsk给偷完了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 7485#       发表于 2024-1-7 01:58
+
+邦和dj就是盲目扩张乱开项目的典型案例，现在dj名下还挂着一堆翻唱曲目更不可能关掉
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  基神的强袭自由  
+##### 7486#       发表于 2024-1-7 02:00
+
+<img src="https://img.saraba1st.com/forum/202401/07/020035k9hq4n4bnn4h3spn.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8565.PNG</strong> (26.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 02:00 上传
+
+一晚上多了20页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  江口夕  
+##### 7487#       发表于 2024-1-7 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560216&amp;ptid=2159415" target="_blank">cckuku 发表于 2024-1-7 01:50</a>
+手游最大的问题难道不是三周年之后资源全部被拿去投给d4dj结果半点水花都没有，家里还被pjsk给偷完了？[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是都公認從蝶團開始自由落體的，做個d5j水平的手游其實花不了幾個錢。
+倒是那手游圖和立繪對比psjk是真不行再加上棒讀，阿宅直接萎了。
+阿宅看了看隔壁25時的瑞希又起來了，叛變是必然的。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

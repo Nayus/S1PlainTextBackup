@@ -12895,3 +12895,174 @@ mygo开播前宣传的两个推也没了
 
 难道是为了对十周年的轴？
 
+
+*****
+
+####  11A511  
+##### 7249#       发表于 2024-1-6 21:33
+
+看GBC群里在奶24集，我先奶这了，母鸡卡24集连播！！
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7250#       发表于 2024-1-6 21:33
+
+越滑越真，越滑越真<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7251#       发表于 2024-1-6 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557720&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-6 21:28</a>
+老哥正常點
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.2.2.1</blockquote>
+真的很奇怪啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+10/31说是mygo最后的访谈 今天又转发一次 强调是最后的访谈
+她转发完 过了半个小时 会场宣布总集篇剧场版 mujica定档2025
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7252#       发表于 2024-1-6 21:34
+
+然后wsd十周年给我们端上魔改母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7253#       发表于 2024-1-6 21:34
+
+越滑越真，越真越滑<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7254#       发表于 2024-1-6 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜隔壁sc今年只有前5團，不然ルカ和shhis的愛恨情仇可以拿來當代餐
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  アコ  
+##### 7255#       发表于 2024-1-6 21:34
+
+u1s1，mygo剧情不是集体推演角色的么，独角兽留下个原案已经够了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 7256#       发表于 2024-1-6 21:34
+
+🐶族大君高松灯和🐔皇祥子永远隔海对望是吧，原来是这么个平行线
+
+*****
+
+####  likeny  
+##### 7257#       发表于 2024-1-6 21:36
+
+也许是在说设定集的访谈没她而已
+
+*****
+
+####  灵椿  
+##### 7258#       发表于 2024-1-6 21:36
+
+楼友说的基本由绫奈个人创作(大概)的原案是能精细到专为动画服务的小说那种程度吗
+
+*****
+
+####  半分宅  
+##### 7259#       发表于 2024-1-6 21:37
+
+今天水群看到的meme：
+
+<img src="https://img.saraba1st.com/forum/202401/06/093659ex6ayh3xupixx3dv.jpg" referrerpolicy="no-referrer">
+
+<strong>0DDAD1CD750BCF29323D07C19BB98847.jpg</strong> (40.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 21:36 上传
+
+*****
+
+####  凡人  
+##### 7260#       发表于 2024-1-6 21:37
+
+请告诉我gbc半年番的论据是什么，这对我很重要<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  友情的结晶  
+##### 7261#       发表于 2024-1-6 21:37
+
+只是普通的人事调动不至于把以前的推都删了还取关吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kaiserkay  
+##### 7262#       发表于 2024-1-6 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557820&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-6 21:34</a>
+
+可惜隔壁sc今年只有前5團，不然ルカ和shhis的愛恨情仇可以拿來當代餐
+
+—— 来自 Xiaomi M2012K11AC ...</blockquote>
+我也在代，但按SC受众的喜好，不给那3人塞PL剧情就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7263#       发表于 2024-1-6 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557816&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-6 21:34</a>
+真的很奇怪啊 
+10/31说是mygo最后的访谈 今天又转发一次 强调是最后的访谈
+她转发完 过了半个小时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真沒必要，你棒不是lovelive，類似爭議人物老早就有了。隔壁偶像大師做得你棒怎麼可能做不得，況且本來就是對標隔壁sc做的劇情
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  skives  
+##### 7264#       发表于 2024-1-6 21:39
+
+原来mygo第一季是crychic
+第二季是mygo
+独角兽未来某部新作才是mujica<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 7265#       发表于 2024-1-6 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557595&amp;ptid=2159415" target="_blank">ganeid 发表于 2024-1-6 21:21</a>
+
+看吧你们吓的，自己去看看mygo最后一集staff表里写的mygo/avemujica原案是谁 ...</blockquote>
+别奶了台长<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，mygo场内外的回旋镖还没吃够啊（
+
+*****
+
+####  NODY  
+##### 7266#       发表于 2024-1-6 21:39
+
+合作了七年的脚本和监督因为两个新团的剧情闹掰了，各自带一个孩子走是吧，什么肥皂剧，不要太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7267#       发表于 2024-1-6 21:40
+
+光原案有什么用，看的就是绫奈的女女关系性，要是鸡没有绫奈上阵写JK复杂人际感情我看什么<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+感觉越滑越真嗯么回事，真有点害怕了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">上哪找绫奈这种会写的河豚啊。
+

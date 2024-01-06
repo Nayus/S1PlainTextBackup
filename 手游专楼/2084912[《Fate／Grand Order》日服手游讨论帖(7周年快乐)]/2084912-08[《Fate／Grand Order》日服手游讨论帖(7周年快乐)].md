@@ -2366,3 +2366,15 @@ IMG_2773.jpeg
 
 说到挂，日服也跟国服一样摆烂不管了还是偶尔杀一批，感觉没看到什么杀挂的新闻
 
+
+*****
+
+####  fengzijiang  
+##### 10730#       发表于 2024-1-6 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557185&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2024-1-6 20:49</a>
+说到挂，日服也跟国服一样摆烂不管了还是偶尔杀一批，感觉没看到什么杀挂的新闻 ...</blockquote>
+初始号都是挂，问题是你游没拐寸步难行，自建真能玩下去吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

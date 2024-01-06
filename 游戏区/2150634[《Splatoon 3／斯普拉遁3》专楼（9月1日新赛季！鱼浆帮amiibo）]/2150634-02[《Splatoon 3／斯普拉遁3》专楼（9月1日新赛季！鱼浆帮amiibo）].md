@@ -8296,3 +8296,17 @@ sb泡伤害是够的不过手感太💩了
 
 似乎上了个谜之车队，一路打到830
 
+
+*****
+
+####  秋月孝三  
+##### 2336#       发表于 2024-1-7 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558636&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-6 22:32</a>
+意识问题，这种一根筋玩家中低段位特别多，脑子没法多线程操作，更处理不了任务的优先级
+
+—— 来自 S1Fu ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">队友里有个耍红叶的却没有涂地意识才是最生草的
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

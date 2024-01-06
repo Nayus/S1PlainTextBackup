@@ -14773,3 +14773,44 @@ https://ssl4.ei ...</blockquote>
 
 同样的话题，一些人在讨论mujica的未来，一些人在讨论mygo的未来
 
+
+*****
+
+####  御幸一也  
+##### 7453#       发表于 2024-1-7 00:23
+
+武士道的開發力，新東西是不用想了，就現有的模式慢慢續命吧，
+
+說好聽點就是乖乖養老，不好聽就是等收<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 7454#       发表于 2024-1-7 00:25
+
+2025年1月可还行<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aloereed  
+##### 7455#       发表于 2024-1-7 00:28
+
+<img src="https://img.saraba1st.com/forum/202401/07/002743hrm9fs9rsd6irsm5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (116.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 00:27 上传
+
+现在看完结时的发言，这意思是不是该做的我都做了，剩下的自求多福吧<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  461757753  
+##### 7456#       发表于 2024-1-7 00:30
+
+是时候正义切割了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -170,3 +170,13 @@
 
 现在的手机基本都有高速快门功能，搞个自己试试就好。
 
+
+*****
+
+####  猫不萌  
+##### 1040#       发表于 2024-1-7 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559179&amp;ptid=2086469" target="_blank">fate99 发表于 2024-1-6 23:27</a>
+想入个sd oled版，想问问 频闪问题严重吗？</blockquote>
+没救的频闪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">远比国产高频调光差劲
+

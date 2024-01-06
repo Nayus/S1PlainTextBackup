@@ -8932,3 +8932,41 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 因为这个视频吧
 
+
+*****
+
+####  爱丁堡official  
+##### 6830#       发表于 2024-1-6 12:13
+
+勃勃生机，万物竞发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  剪切线  
+##### 6831#       发表于 2024-1-6 12:15
+
+<img src="https://img.saraba1st.com/forum/202401/06/121515u3dj1bycnj1bd3bv.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-01-06 121508.png</strong> (83.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 12:15 上传
+
+*****
+
+####  剪切线  
+##### 6832#       发表于 2024-1-6 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63551797&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-6 12:15</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">win11自带截图怎么这么泛白，是因为开了hdr吗
+
+*****
+
+####  凡人  
+##### 6833#       发表于 2024-1-6 12:18
+
+发表会会有🐔的情报吗？
+

@@ -106,3 +106,15 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  RTLordCaptain  
+##### 1035#       发表于 2024-1-6 10:34
+
+<blockquote>crosz85 发表于 2024-1-6 08:18
+好像rog
+
+</blockquote>
+看115H 28W测评，如果调教没有大改进竞争力堪忧
+

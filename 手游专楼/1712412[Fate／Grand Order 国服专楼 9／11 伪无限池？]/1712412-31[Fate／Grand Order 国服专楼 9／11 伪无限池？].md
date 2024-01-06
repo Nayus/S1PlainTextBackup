@@ -4065,3 +4065,13 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  溯夜  
+##### 45903#       发表于 2024-1-6 10:37
+
+暗狐二宝，new了尼莫，新年算是满足了，就是尼莫也太菜了吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

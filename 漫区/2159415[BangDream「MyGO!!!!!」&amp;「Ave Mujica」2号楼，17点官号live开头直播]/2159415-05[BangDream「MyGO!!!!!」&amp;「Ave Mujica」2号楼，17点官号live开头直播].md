@@ -12400,3 +12400,194 @@ mygo在日本只是没大热而已
 之前不都说了25年1月见，你wsd就是要对轴的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不如说这个剧场版可能真的是准备续🐶的热度临时插的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 7196#       发表于 2024-1-6 21:02
+
+往好里想，至少独角兽是原案，剧场版重编脚本没有她也会占个原案的名字
+
+推特还没切割母鸡卡，还有希望，剧本真大改到严重偏离角色形象肯定也把鸡切了，最差情况就是改了最后几集呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 7197#       发表于 2024-1-6 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557109&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-1-6 20:43</a>
+
+不一定，如果是看到老中这边，那就得改的更加大爆特爆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">会不会出现5变9
+
+*****
+
+####  友情的结晶  
+##### 7198#       发表于 2024-1-6 21:04
+
+独角兽上一部没参与最后几集前期起飞的原创百合动画是<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ellisnadie  
+##### 7199#       发表于 2024-1-6 21:04
+
+就是母鸡卡这一年热度留存真不看好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+可能武士道觉得鸡没播就无所谓吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  jkl  
+##### 7200#       发表于 2024-1-6 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557355&amp;ptid=2159415" target="_blank">Porsche 发表于 2024-1-6 21:03</a>
+ 会不会出现5变9</blockquote>
+还好游戏里没这个功能
+
+
+*****
+
+####  a85982313  
+##### 7201#       发表于 2024-1-6 21:05
+
+别共振滑坡了，能不能想点好的
+
+*****
+
+####  higuchiguchi  
+##### 7202#       发表于 2024-1-6 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557360&amp;ptid=2159415" target="_blank">友情的结晶 发表于 2024-1-6 21:04</a>
+
+独角兽上一部没参与最后几集前期起飞的原创百合动画是
+
+论坛助手,iPhone ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 7203#       发表于 2024-1-6 21:05
+
+<img src="https://img.saraba1st.com/forum/202401/06/210525ehlyik499egz5eyy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>forum.jpeg</strong> (6.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 21:05 上传
+
+不属于绫奈的mujica....
+
+*****
+
+####  QuattroVageena  
+##### 7204#       发表于 2024-1-6 21:06
+
+真的删了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/06/210643iiczsq44nmcnr4v6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 21:06 上传
+
+*****
+
+####  nebulanoby  
+##### 7205#       发表于 2024-1-6 21:08
+
+最害怕Z8的一集
+
+<img src="https://p.sda1.dev/15/c569d9c10aed059e1414fc28e7af5f89/CMP_20240106210749676.jpg" referrerpolicy="no-referrer">
+
+阿农这套衣服挺好看的
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 7206#       发表于 2024-1-6 21:08
+
+漏油只是滑滑坡发泄，怎么绫奈真切了。<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  806923249  
+##### 7207#       发表于 2024-1-6 21:08
+
+被日升招安做高达去了，都是好事
+
+*****
+
+####  Aendst  
+##### 7208#       发表于 2024-1-6 21:09
+
+想什么好的，有好的吗？是明年一月播好还是绫奈取关删图好？
+
+*****
+
+####  凡人  
+##### 7209#       发表于 2024-1-6 21:09
+
+上次找神，这次不如把大魔王找来吧，让麻子就照cl写<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Turtletorto  
+##### 7210#       发表于 2024-1-6 21:09
+
+查询绫奈状态<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 7211#       发表于 2024-1-6 21:09
+
+还是等宫老师的爱睦灵魂互换第四集更靠谱一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11A511  
+##### 7212#       发表于 2024-1-6 21:10
+
+<blockquote>ellisnadie 发表于 2024-1-6 21:04
+就是母鸡卡这一年热度留存真不看好
+
+可能武士道觉得鸡没播就无所谓吧</blockquote>
+没毛病吧，一般认为热度与时间是长尾曲线的关系，那隔一年播和一年半播的差别应该不大，还能把帮手游多续半年
+
+*****
+
+####  QuattroVageena  
+##### 7213#       发表于 2024-1-6 21:10
+
+久弥直树和大河内选一个吧
+
+*****
+
+####  假药入脑不可取  
+##### 7214#       发表于 2024-1-6 21:10
+
+绫奈：不想做超出女高中生的沉重剧情了是吧，非要轻轻放下是吧，非要像二季三季那样玩对邦引流爆米是吧，886（？（不是）
+
+*****
+
+####  污陨血红  
+##### 7215#       发表于 2024-1-6 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557360&amp;ptid=2159415" target="_blank">友情的结晶 发表于 2024-1-6 21:04</a>
+
+独角兽上一部没参与最后几集前期起飞的原创百合动画是
+
+论坛助手,iPhone ...</blockquote>
+快进到编剧久弥直树/林直树<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

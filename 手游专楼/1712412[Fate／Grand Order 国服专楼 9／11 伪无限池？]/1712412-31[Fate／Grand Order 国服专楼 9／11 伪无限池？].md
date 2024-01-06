@@ -4055,3 +4055,13 @@ new感觉没啥优先度，基本都是二宝起步吧
 
 wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">（想证明自己不是坏女人的花
 
+
+*****
+
+####  gearbox  
+##### 45902#       发表于 2024-1-6 08:32
+
+丢，昨天打一半睡过去了，发现三次打本日常没打完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

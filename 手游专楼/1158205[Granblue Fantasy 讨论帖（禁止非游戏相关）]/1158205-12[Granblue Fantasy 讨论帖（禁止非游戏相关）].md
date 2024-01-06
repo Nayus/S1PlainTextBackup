@@ -25,3 +25,18 @@
 
 你的七剑何必不能是七剑，一把七剑卡死12次团的胡萝卜，难怪当初挥泪斩七剑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 17581#       发表于 2024-1-6 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看到这楼又顶起来我还以为六字母又在什么我不知道的地方整烂活了
+
+*****
+
+####  shinitakute  
+##### 17582#       发表于 2024-1-6 08:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">攒了150金月，是来个黑卡换龙神将好呢还是直接来个150金月武器好，没有艾蕾但我暗没有武器，主要火光老王但是火光的150金月武器好像也没啥大用
+

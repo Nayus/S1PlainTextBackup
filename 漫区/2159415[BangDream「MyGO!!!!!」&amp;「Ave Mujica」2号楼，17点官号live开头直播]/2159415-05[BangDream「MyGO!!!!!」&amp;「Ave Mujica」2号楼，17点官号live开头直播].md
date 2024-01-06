@@ -10358,3 +10358,569 @@ mygo剧场版放映完之前不会放母鸡卡动画了吧
 
 换句话说，AVEMUJICA真的要到明年一月了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狐式重型坦克  
+##### 6948#       发表于 2024-1-6 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">失败主义谋士抬头
+
+*****
+
+####  アコ  
+##### 6949#       发表于 2024-1-6 19:23
+
+mygo到4th live才公布动画，现在母鸡卡才0th，即将1th<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6950#       发表于 2024-1-6 19:23
+
+<img src="https://p.sda1.dev/15/86a4a2f5b192a13d2261bc6ca806fdfd/Image_1704540173537.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 6951#       发表于 2024-1-6 19:23
+
+另类烤羊，剧场版猫猫转正，毕竟青木是自己人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  NODY  
+##### 6952#       发表于 2024-1-6 19:24
+
+武士道终于意识到让嫡系青木配了个戏份随机刷新的角色不太好，直接补猫视角dlc了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这下真是立希最惨了，没人气所以没有戏份可以补<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月光的道标  
+##### 6953#       发表于 2024-1-6 19:24
+
+我相信会在鸡1th上公布消息<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 6954#       发表于 2024-1-6 19:24
+
+这下母鸡卡剑指明年了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  枫林不见  
+##### 6955#       发表于 2024-1-6 19:25
+
+明天强势发表avemujica25年一月
+
+*****
+
+####  6030sylar  
+##### 6956#       发表于 2024-1-6 19:26
+
+毕竟青木新太子，戏份太少不好看，所以第二季真的要鸡1st才公布吗
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DarthAka  
+##### 6957#       发表于 2024-1-6 19:27
+
+母鸡卡剑指邦邦2，首发护航
+
+*****
+
+####  アコ  
+##### 6958#       发表于 2024-1-6 19:27
+
+圣青木才是皇太子<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 6959#       发表于 2024-1-6 19:27
+
+第二季在剧场版之后的话，今年挺难的吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  krowbullet  
+##### 6960#       发表于 2024-1-6 19:27
+
+不行了，我想不起上次邦邦发情报让我笑成这样是啥时候了，但是联动我心危真的很好笑
+
+
+*****
+
+####  bgod666  
+##### 6961#       发表于 2024-1-6 19:27
+
+再次爆笑
+
+*****
+
+####  rxds  
+##### 6962#       发表于 2024-1-6 19:28
+
+备战明年了
+
+*****
+
+####  6030sylar  
+##### 6963#       发表于 2024-1-6 19:28
+
+来了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6964#       发表于 2024-1-6 19:28
+
+来了母鸡卡
+
+*****
+
+####  御幸一也  
+##### 6965#       发表于 2024-1-6 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63555929&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-6 19:24</a>
+
+武士道终于意识到让嫡系青木配了个戏份随机刷新的角色不太好，直接补猫视角dlc了是吧
+
+不过这下真是 ...</blockquote>
+別急，也有說立希戲份會補，只是我看直播去了忘了截圖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 6966#       发表于 2024-1-6 19:28
+
+<img src="https://img.saraba1st.com/forum/202401/06/192839xyu8ypepmuddrcad.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 19:28 上传
+
+*****
+
+####  0WHan0  
+##### 6967#       发表于 2024-1-6 19:28
+
+25年一月
+一月党大胜利（
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6968#       发表于 2024-1-6 19:28
+
+奶奶的真2025年
+
+*****
+
+####  傘木希美  
+##### 6969#       发表于 2024-1-6 19:28
+
+草，真明年1月啊
+
+*****
+
+####  庸necro  
+##### 6970#       发表于 2024-1-6 19:28
+
+明年1月了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黄昏现白骨  
+##### 6971#       发表于 2024-1-6 19:28
+
+2025年1月
+
+*****
+
+####  iceskey  
+##### 6972#       发表于 2024-1-6 19:28
+
+2025年1月了
+
+*****
+
+####  枫林不见  
+##### 6973#       发表于 2024-1-6 19:28
+
+25年1月？25年1月？25年1月？25年1月？25年1月？25年1月？25年1月？25年1月？
+
+*****
+
+####  mayloveless  
+##### 6974#       发表于 2024-1-6 19:28
+
+哈哈哈哈哈哈
+
+*****
+
+####  ninokagami  
+##### 6975#       发表于 2024-1-6 19:28
+
+这下直接宣判了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 6976#       发表于 2024-1-6 19:28
+
+艹 真的明年1月
+
+*****
+
+####  Kasroz  
+##### 6977#       发表于 2024-1-6 19:29
+
+母鸡卡25年1月定档了
+
+*****
+
+####  bgod666  
+##### 6978#       发表于 2024-1-6 19:29
+
+不想玩了唉
+
+*****
+
+####  66367749  
+##### 6979#       发表于 2024-1-6 19:29
+
+1月党的胜利
+
+*****
+
+####  基神的强袭自由  
+##### 6980#       发表于 2024-1-6 19:29
+
+这下是真的1月党了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 6981#       发表于 2024-1-6 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 6982#       发表于 2024-1-6 19:29
+
+25年1月，我想杀了wsd
+
+*****
+
+####  狐式重型坦克  
+##### 6983#       发表于 2024-1-6 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全完了
+
+*****
+
+####  笋干爆炸碱  
+##### 6984#       发表于 2024-1-6 19:29
+
+我服了
+
+*****
+
+####  月光的道标  
+##### 6985#       发表于 2024-1-6 19:29
+
+25年1月也是1月党<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Duncan_Spurs  
+##### 6986#       发表于 2024-1-6 19:29
+
+唉得go一年了
+
+—— 来自 Google Pixel 6, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  御幸一也  
+##### 6987#       发表于 2024-1-6 19:29
+
+……
+
+<img src="https://img.saraba1st.com/forum/202401/06/192918hplbd4i4n16ndi4n.png" referrerpolicy="no-referrer">
+
+<strong>ブシロード新春大発表会2024 5-58-10 screenshot.png</strong> (187.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 19:29 上传
+
+*****
+
+####  庸necro  
+##### 6988#       发表于 2024-1-6 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是国服mygo上了都还看不到mujica啊
+
+*****
+
+####  Aendst  
+##### 6989#       发表于 2024-1-6 19:29
+
+也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该回归现实生活了
+
+*****
+
+####  Mr.Giraffe  
+##### 6990#       发表于 2024-1-6 19:29
+
+nmd怎么还有一年<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱丁堡official  
+##### 6991#       发表于 2024-1-6 19:29
+
+笑死了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Acatv  
+##### 6992#       发表于 2024-1-6 19:29
+
+寄了
+
+*****
+
+####  leommoo  
+##### 6993#       发表于 2024-1-6 19:29
+
+一月党的胜利，明年的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 6994#       发表于 2024-1-6 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">怎么会这样！！！
+
+*****
+
+####  一叶丈育  
+##### 6995#       发表于 2024-1-6 19:29
+
+完了，全完了。往好了想25年一月也是一月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  harukage  
+##### 6996#       发表于 2024-1-6 19:29
+
+好消息是一月党赢了，坏消息是明年的
+
+*****
+
+####  6030sylar  
+##### 6997#       发表于 2024-1-6 19:29
+
+<img src="https://p.sda1.dev/15/ccd44d3d90c0241b29be9515fda1c1bc/CMP_20240106192921184.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这个24年我怎么过
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ytttsuuuba  
+##### 6998#       发表于 2024-1-6 19:30
+
+笑死了，最坏的打算成真了
+
+*****
+
+####  blackeryuri2  
+##### 6999#       发表于 2024-1-6 19:30
+
+两眼一黑
+
+*****
+
+####  CyDiablo  
+##### 7000#       发表于 2024-1-6 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556030&amp;ptid=2159415" target="_blank">庸necro 发表于 2024-1-6 19:29</a>
+是不是国服mygo上了都还看不到mujica啊</blockquote>
+国服按顺序今年四月就能上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 7001#       发表于 2024-1-6 19:30
+
+真就25年1月
+
+*****
+
+####  Toki_Ai  
+##### 7002#       发表于 2024-1-6 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">草，这才2024年开年啊
+
+*****
+
+####  HANDAIYV  
+##### 7003#       发表于 2024-1-6 19:30
+
+25年1月党获得了最后的胜利
+
+*****
+
+####  アコ  
+##### 7004#       发表于 2024-1-6 19:30
+
+真的是母鸡卡3th或者4th了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  w516967455  
+##### 7005#       发表于 2024-1-6 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">完了
+
+*****
+
+####  bgod666  
+##### 7006#       发表于 2024-1-6 19:30
+
+两眼一黑
+
+*****
+
+####  skives  
+##### 7007#       发表于 2024-1-6 19:30
+
+全完了
+
+*****
+
+####  rxds  
+##### 7008#       发表于 2024-1-6 19:30
+
+寄完了
+
+*****
+
+####  skill  
+##### 7009#       发表于 2024-1-6 19:30
+
+这回是最早备战2025了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 7010#       发表于 2024-1-6 19:31
+
+两眼一抹黑，撤退撤退，一年这熬不住，卖nmd谷子呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7011#       发表于 2024-1-6 19:31
+
+好了，2024年14710月党可以全部拉到菜市口了，包括我<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arachnid  
+##### 7012#       发表于 2024-1-6 19:31
+
+见鬼了，现在才2024年的1月啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  CCCTHUN  
+##### 7013#       发表于 2024-1-6 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">好消息；一月党赢了
+
+坏消息：25年一月
+
+*****
+
+####  姬茧墨  
+##### 7014#       发表于 2024-1-6 19:31
+
+25年一月也太幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Milarvoz  
+##### 7015#       发表于 2024-1-6 19:31
+
+谁给我来一拳直接昏迷到明年1月<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Recovery  
+##### 7016#       发表于 2024-1-6 19:31
+
+好消息：mujica是一月番<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+坏消息：是明年一月<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  醉卧花荫  
+##### 7017#       发表于 2024-1-6 19:31
+
+麻了 竟然是25年
+
+*****
+
+####  6030sylar  
+##### 7018#       发表于 2024-1-6 19:31
+
+今晚去折了mggm
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  KomKom  
+##### 7019#       发表于 2024-1-6 19:31
+
+为什么还有一整年！<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 7020#       发表于 2024-1-6 19:32
+
+行了，这楼可以锁了，开新楼吧
+

@@ -9581,3 +9581,20 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 全员互相认妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 6859#       发表于 2024-1-6 15:00
+
+羊要是真觉得社交媒体复杂还小节奏不断那干脆不开社交媒体，把个人号转成公式号，全部交给事务所运营，就既没有节奏又能番宣了，偏偏羊还不这么做
+
+*****
+
+####  EBe  
+##### 6860#       发表于 2024-1-6 15:02
+
+青二不知道教底下艺人“物极必反”嘛？一个羊一个azs真是<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

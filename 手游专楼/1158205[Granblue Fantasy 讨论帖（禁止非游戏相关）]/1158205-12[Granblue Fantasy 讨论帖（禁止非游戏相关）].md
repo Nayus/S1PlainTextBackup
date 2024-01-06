@@ -40,3 +40,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">攒了150金月，是来个黑卡换龙神将好呢还是直接来个150金月武器好，没有艾蕾但我暗没有武器，主要火光老王但是火光的150金月武器好像也没啥大用
 
+
+*****
+
+####  Sylpheed  
+##### 17583#       发表于 2024-1-6 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63549648&amp;ptid=1158205" target="_blank">shinitakute 发表于 2024-1-6 08:38</a>
+攒了150金月，是来个黑卡换龙神将好呢还是直接来个150金月武器好，没有艾蕾但我暗没有武器，主要火 ...</blockquote>
+龙月月都有肯定不值，今年内找个合适的月底下井就完了
+石油既然没想好也不要换，留着反正也不会跑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

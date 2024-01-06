@@ -8838,3 +8838,30 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nebulanoby  
+##### 6822#       发表于 2024-1-6 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63548228&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-1-5 23:43</a>
+梦以这图至少比她自己p的强.....</blockquote>
+梦以这图确实不行，一下子就理解了梦以为啥每次都要套PS装甲了，就是这装甲抽象了点
+
+另外幸好大鼻子姐姐这次没大笑，不然就这拍照水平<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+所以说反田和凛跌能硬吃iphone直出是真强
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  -LYRE-  
+##### 6823#       发表于 2024-1-6 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63549848&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-6 09:08</a>
+梦以这图确实不行，一下子就理解了梦以为啥每次都要套PS装甲了，就是这装甲抽象了点
+
+另外幸好大鼻子姐姐 ...</blockquote>
+凛有一次扮成扮成小红帽的照片也很难绷，跟化妆师、摄像师仿佛有仇，就算能吃直出也是扛不住硬造的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

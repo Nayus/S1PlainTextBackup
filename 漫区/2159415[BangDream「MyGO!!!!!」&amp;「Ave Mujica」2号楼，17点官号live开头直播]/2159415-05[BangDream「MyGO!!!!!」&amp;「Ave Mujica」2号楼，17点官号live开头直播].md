@@ -15170,3 +15170,11 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 查了一下时间线，邦元年现实过了两年，邦二年现实过了四年，所以现在这个邦三年现实时间过个五年甚至六年也不是没有可能，前提是你邦手游能活那么久<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 7492#       发表于 2024-1-7 02:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你邦手游只能说富裕过吧，其他也只能说没办法了，毕竟你看周围一圈偶像情况也好不了多少
+

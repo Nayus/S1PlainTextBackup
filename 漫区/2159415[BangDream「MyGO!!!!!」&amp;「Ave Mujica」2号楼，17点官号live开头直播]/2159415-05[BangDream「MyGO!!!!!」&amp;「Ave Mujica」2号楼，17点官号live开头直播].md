@@ -14814,3 +14814,18 @@ https://ssl4.ei ...</blockquote>
 
 是时候正义切割了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 7457#       发表于 2024-1-7 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559714&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 00:21</a>
+
+是啊，動畫本來就不是主體，所以武士道根本就無所謂，愛啥時候出啥時候出。算了我還是不說 ...</blockquote>
+別搞錯了，我說那麼多只是反駁你那個“手遊才是最重要”<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+何況以安排線下演唱會來說，動畫廣告早點播出，早點獲得人氣，也能早點有機會開大點的場子，
+
+無論哪個買賣來說，推遲ave的播出都很白痴，當然我是ave粉角度，其他角度我不清楚喔<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+

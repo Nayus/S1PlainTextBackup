@@ -10924,3 +10924,333 @@ nmd怎么还有一年<img src="https://static.saraba1st.com/image/smiley/face201
 
 行了，这楼可以锁了，开新楼吧
 
+
+*****
+
+####  高规格ik  
+##### 7021#       发表于 2024-1-6 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">希望明天早上起来大伙告诉我是官方搞错了其实就是今年一月
+
+*****
+
+####  ytttsuuuba  
+##### 7022#       发表于 2024-1-6 19:32
+
+所以说可能我之前的猜测有点扯，但说不定武士道真是这么想的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然没法解释7月都寄了的原因何在
+
+*****
+
+####  Kasroz  
+##### 7023#       发表于 2024-1-6 19:32
+
+冬眠科技发明了吗，我想冬眠一年
+
+*****
+
+####  无证madam  
+##### 7024#       发表于 2024-1-6 19:32
+
+这一年日子可怎么过啊
+
+*****
+
+####  PDQ4  
+##### 7025#       发表于 2024-1-6 19:32
+
+锐意制作中制作一年多，真不是新建文件夹吗。wsd是真的能给人惊吓，明天要宣布什么，难道能憋出个pv吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 7026#       发表于 2024-1-6 19:32
+
+卧槽了两眼一黑
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7027#       发表于 2024-1-6 19:32
+
+<img src="https://p.sda1.dev/15/383dfb25b10393a7ba7eadb5bcc32595/Image_1704540750024.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  capraeLinn  
+##### 7028#       发表于 2024-1-6 19:33
+
+太幽默了wsd，太幽默了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7029#       发表于 2024-1-6 19:33
+
+这下真的释怀的笑了
+
+*****
+
+####  安洁莉娜  
+##### 7030#       发表于 2024-1-6 19:34
+
+笑了，我甚至能在看到mujica之前玩上丝之歌<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+这个剧场版应该是维持热度的，那么剧情应该不会让人失望吧
+
+你的猫王希皇马上如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 7031#       发表于 2024-1-6 19:34
+
+我突然释怀的笑
+
+*****
+
+####  sanae  
+##### 7032#       发表于 2024-1-6 19:34
+
+1年要憋死人啦？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7033#       发表于 2024-1-6 19:34
+
+邦邦卸载
+
+*****
+
+####  a85982313  
+##### 7034#       发表于 2024-1-6 19:35
+
+25年1月？？？有没有搞错啊mggm
+
+*****
+
+####  天之叢云  
+##### 7035#       发表于 2024-1-6 19:35
+
+会不会加上:不属于c团的春日影<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 7036#       发表于 2024-1-6 19:35
+
+还不如锐意制作呢，这下一年内我都不用关注这个企划了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Zachary_hK  
+##### 7037#       发表于 2024-1-6 19:35
+
+还要一年？那种事情不要啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acatv  
+##### 7038#       发表于 2024-1-6 19:35
+
+还能再见吗祥子<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+mujica没有你我怎么活啊
+
+*****
+
+####  ytttsuuuba  
+##### 7039#       发表于 2024-1-6 19:36
+
+这是对标mygo了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">翻唱什么的也许还是会有的。
+
+*****
+
+####  EBe  
+##### 7040#       发表于 2024-1-6 19:36
+
+太幽默啦，mggm
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  6030sylar  
+##### 7041#       发表于 2024-1-6 19:36
+
+放送预定而已还有救(<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  长空雁叫霜晨月  
+##### 7042#       发表于 2024-1-6 19:36
+
+这下1月番了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  AveMujica  
+##### 7043#       发表于 2024-1-6 19:36
+
+太幽默了
+
+*****
+
+####  逆羽结业  
+##### 7044#       发表于 2024-1-6 19:36
+
+感觉跟工期已经无关了，纯纯公式化运营，寄！！
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  skives  
+##### 7045#       发表于 2024-1-6 19:37
+
+美好的心情从看见这个定档pv那一刻而结束
+
+*****
+
+####  鲍里斯  
+##### 7046#       发表于 2024-1-6 19:37
+
+一年后这批人还剩多少啊，都影响到我上舰看live的心情了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  AveMujica  
+##### 7047#       发表于 2024-1-6 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556186&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-6 19:36</a>
+放送预定而已还有救(
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+意思是还有可能往后拖
+三次元今年四月差不多做好了
+
+*****
+
+####  OkaJu  
+##### 7048#       发表于 2024-1-6 19:38
+
+md，武士道我和你爆了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  アコ  
+##### 7049#       发表于 2024-1-6 19:38
+
+果然是多媒体综合企划，放长线维持线下（指日本）热度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7050#       发表于 2024-1-6 19:38
+
+<img src="https://p.sda1.dev/15/fc5dc257872a07e02d1b747faabf38f8/Image_1704541083477.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 7051#       发表于 2024-1-6 19:39
+
+撤退了，邦邦卸载，复健个屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高规格ik  
+##### 7052#       发表于 2024-1-6 19:39
+
+冷静想了一下，果然这个结果我接受不了啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">哪怕七月播也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 7053#       发表于 2024-1-6 19:40
+
+🐶日的wsd，这tm能放一年的？<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 7054#       发表于 2024-1-6 19:40
+
+比屎柔得**有病吧 
+
+热度不蹭非要放凉是吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angela5d30  
+##### 7055#       发表于 2024-1-6 19:40
+
+原來以為24年7月會播的自己還是太樂觀<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Xiaomi M2012K10C, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  屑猫猫  
+##### 7056#       发表于 2024-1-6 19:40
+
+坏起来了，不过我有一堆游戏可以打，反而没那么难受（但是小祥还是费拉不堪
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 7057#       发表于 2024-1-6 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">三期动画前塞个剧场版导致档期变动，这次估计也差不多
+
+结果来来回回还是要撞一月去对周年，手工蛋都跑路了你邦手游明年还活着吗都是未知数
+
+前篇动画结局剧本这么写然后续篇放送断一年半，也不知道是谁给武士道了自信
+
+*****
+
+####  Arrogate  
+##### 7058#       发表于 2024-1-6 19:40
+
+之前都说开始配音了，硬压着不播是吧
+
+*****
+
+####  凡人  
+##### 7059#       发表于 2024-1-6 19:41
+
+我能说脏话吗？不能？那我就无话可说了，完全无话可说了。
+
+*****
+
+####  yaneis  
+##### 7060#       发表于 2024-1-6 19:42
+
+傻逼武士道，隔一年7月放送已经很慢了，还能拖到一月？这连体企划开始时难道就没想好做母鸡卡吗？感觉有阴谋论的空间了
+
+*****
+
+####  后藤一里  
+##### 7061#       发表于 2024-1-6 19:42
+
+确实和mygo挺对标的，mygo从确定企划到宣布动画用时一年，你鸡也用时一年，不过别人宣是4月宣6月播，你鸡是1月宣一月播，次年一月，还不是自己演唱会自己宣，有点幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 7062#       发表于 2024-1-6 19:42
+
+25年1月<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这简直无法理解，太迷惑了……
+

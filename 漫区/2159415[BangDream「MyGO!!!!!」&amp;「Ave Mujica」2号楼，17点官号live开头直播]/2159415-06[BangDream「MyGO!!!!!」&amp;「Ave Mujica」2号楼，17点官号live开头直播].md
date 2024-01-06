@@ -50,3 +50,15 @@
 感觉越滑 ...</blockquote>
 井上亚树子应该可以但实情也不行，预计她在2024年要在特摄班。
 
+
+*****
+
+####  cmyk1234  
+##### 7506#       发表于 2024-1-7 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559177&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-6 23:26</a>
+到底要我說幾次三次元的動畫製作流程，能不能都自己去看一下製作訪談了解一下
+
+很明顯就是做好了壓著不放[f: ...</blockquote>
+说得好。不过现实还有《剧偶像》制作完成闲置三四年再播放的例子。
+

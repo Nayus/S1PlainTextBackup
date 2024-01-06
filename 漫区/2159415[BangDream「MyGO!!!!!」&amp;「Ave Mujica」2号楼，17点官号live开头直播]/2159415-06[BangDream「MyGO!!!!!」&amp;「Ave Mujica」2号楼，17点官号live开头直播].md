@@ -38,3 +38,15 @@
 
 —— 来自 HUAWEI WGR-W09, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cmyk1234  
+##### 7505#       发表于 2024-1-7 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63557903&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-6 21:40</a>
+光原案有什么用，看的就是绫奈的女女关系性，要是鸡没有绫奈上阵写JK复杂人际感情我看什么
+
+感觉越滑 ...</blockquote>
+井上亚树子应该可以但实情也不行，预计她在2024年要在特摄班。
+

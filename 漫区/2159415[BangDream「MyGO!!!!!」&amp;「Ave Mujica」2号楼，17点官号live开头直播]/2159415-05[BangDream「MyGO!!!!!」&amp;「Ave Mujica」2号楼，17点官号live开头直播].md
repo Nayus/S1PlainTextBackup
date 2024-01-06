@@ -15050,3 +15050,38 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 邦邦手游已经卸了，之前就是因为蝶团时期那堆烂活退坑的，这次为了母鸡卡回坑又整得我难受，我才不要干等着母鸡卡一年<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 7480#       发表于 2024-1-7 01:35
+
+我也删了，本来还打算存点石头，这下索然无味了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+一次失败的入坑体验
+
+*****
+
+####  PDQ4  
+##### 7481#       发表于 2024-1-7 01:36
+
+早该卸了，之前把国服下回来复健顺便给萝爆了点米，昨天就惨遭WSD烂活二次冲击。
+
+对WSD是真的不能有一点信任，明年再说明年的事，虽然运营更换大失败但是手游会变成啥样子还没数呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7482#       发表于 2024-1-7 01:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你棒當年可是准現象級手游，水平比ba差點但差不太多，高質量的一二章劇情（ppp除外），再去代入三次元r團出道。雖然動畫g了，但是相當充實
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  青蒜  
+##### 7483#       发表于 2024-1-7 01:41
+
+查了一下，怎么一个月才一千万流水，日本手游营收都这么低吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

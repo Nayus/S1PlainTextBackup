@@ -14708,3 +14708,68 @@ wsd收入来源是手游+live，本土才最重要的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica的live能给补上吗，新曲多来点也行，乌托邦不太行
 
+
+*****
+
+####  鲍里斯  
+##### 7446#       发表于 2024-1-7 00:12
+
+别的不说，新mv除了静止系能不能来点新花样啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  利维豚  
+##### 7447#       发表于 2024-1-7 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559387&amp;ptid=2159415" target="_blank">友情的结晶 发表于 2024-1-6 23:47</a>
+可能是部分漏油被今年某个上层压力改剧本的动画整ptsd了
+
+论坛助手,iPhone ...</blockquote>
+去年
+
+*****
+
+####  PDQ4  
+##### 7448#       发表于 2024-1-7 00:17
+
+mujica除了live外啥都没有吧现在，那能不能多来点新歌，进了游戏还可以说等曲子跟着箱活走。既然只有live那就把这半边做好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都去参加摇滚节拼盘了，别整的live要给广告打广告，合成大广告<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kaiserkay  
+##### 7449#       发表于 2024-1-7 00:19
+
+live是稳定又挣钱，绫奈上一个当系构的2.5企划已经关了3个手游，现在没手游了live一直在开<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  睡不醒的打工人  
+##### 7450#       发表于 2024-1-7 00:20
+
+手游收入早就那样了，更重要的是维持粉丝粘性吧，从这个角度看还是挺重要的，所以一般把动画安排在手游实装前面。反正wsd接管手游后的表现目前还看不出，草不草台过几个月再说
+
+*****
+
+####  江口夕  
+##### 7451#       发表于 2024-1-7 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559628&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 00:10</a>
+手遊營收都掉多少了，還在那最重要，看看武士道財報，一起來當一個合格的精神武士道股東
+
+https://ssl4.ei ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了我還是不說了，我問候mggm馬不知道多少年了，給你表述個事實被當成洗地狗遭不住。
+武士道神仙操作都多少年早見怪不怪了了。只能說是常規操作
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  twi  
+##### 7452#       发表于 2024-1-7 00:21
+
+同样的话题，一些人在讨论mujica的未来，一些人在讨论mygo的未来
+

@@ -14405,3 +14405,188 @@ wsd主要就是很迷惑，你隔一年半走完正常宣传再播，那你当�
 配音 ...</blockquote>
 四月已经做完了来着…
 
+
+*****
+
+####  友情的结晶  
+##### 7412#       发表于 2024-1-6 23:43
+
+核中核<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Sabbah  
+##### 7413#       发表于 2024-1-6 23:43
+
+消息来源S1
+
+*****
+
+####  星空冻结  
+##### 7414#       发表于 2024-1-6 23:43
+
+消息来源S1
+
+*****
+
+####  此行远兮  
+##### 7415#       发表于 2024-1-6 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559274&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-6 23:38</a>
+草越想越气 看羊宫营业本来巨开心 屏幕一暗准备等mygo开唱 突然播了一段mujica的pv 直接整个人愣住了[f:217 ...</blockquote>
+官方可能真的觉得这么安排很cool<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Fakerの幻影  
+##### 7416#       发表于 2024-1-6 23:44
+
+之前在mygo合作得明明那么开心。独角兽老师是mygo的创作者啊，要是独角兽老师退出的话……总之，先冷静下来谈谈吧。大家都已经一起开心地做动画这么久了，武士道桑也是这么想的吧？
+<img src="https://p.sda1.dev/15/0cbcaa6062c82b4d76f443a9959dddaa/CMP_20240106234359130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7417#       发表于 2024-1-6 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四月做完是2023年四月吗，那九月的录音是什么
+
+*****
+
+####  PDQ4  
+##### 7418#       发表于 2024-1-6 23:45
+
+WSD这么干可太coooooool了，别到时候真把自己给cool似了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7419#       发表于 2024-1-6 23:45
+
+內部消息我認輸，我只會看訪談，訪談告訴我的製作流程就是這樣，然後9月配音也是聲優訪談自己說的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  睡不醒的打工人  
+##### 7420#       发表于 2024-1-6 23:45
+
+我在想是不是因为ce退出导致手游这块产能一段时间内会产生影响导致的，所以才会选择对明年周年的轴。不然今年播今年手游就要上，可能搞不定。要么就是压榨剩余热度。不太赞同改剧本，配音都差不多了，按三次元动画来说分镜简陋画面都有了，推倒重来是觉得钱太多没处花是吧……
+
+*****
+
+####  利维豚  
+##### 7421#       发表于 2024-1-6 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7422#       发表于 2024-1-6 23:47
+
+有没有可能武士道有钱了 把live全改成2D手绘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 7423#       发表于 2024-1-6 23:47
+
+往好处想，事已至此如果真是因为新加了剧场版或者没做完之类的因素，好歹只是武士道策划安排的问题
+
+如果是改剧情、换人这种因素，母鸡卡真就意难平了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  友情的结晶  
+##### 7424#       发表于 2024-1-6 23:47
+
+可能是部分漏油被今年某个上层压力改剧本的动画整ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  相坂君  
+##### 7425#       发表于 2024-1-6 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">改2d？不如信我是秦始皇
+
+*****
+
+####  御幸一也  
+##### 7426#       发表于 2024-1-6 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559359&amp;ptid=2159415" target="_blank">睡不醒的打工人 发表于 2024-1-6 23:45</a>
+
+我在想是不是因为ce退出导致手游这块产能一段时间内会产生影响导致的，所以才会选择对明年周年的轴。不然今 ...</blockquote>
+那我又要說一下，正常手遊營運都是提前半年到一年規劃的（我知道是因為我是日本手遊痴<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">），
+
+武士道草台到一早確定了和手工蛋的分手日期，然後完全不安排ave mujica的製作？別太搞笑了兄弟
+
+但你後半我是認同的，我也不覺得是改劇本（暫時）。還不必滑坡到這地步。
+
+*****
+
+####  天球仪观测者  
+##### 7427#       发表于 2024-1-6 23:48
+
+家人们一晚上戏好多
+
+*****
+
+####  Aendst  
+##### 7428#       发表于 2024-1-6 23:49
+
+完全推到重来确实不太可能，但如果由于原本工期宽裕进度缓慢导致存在没有有完成制作的集数，那确实是不能完全否认改动的<strong>可能性</strong>的
+
+当然我个人也认为压着不播的可能性最高，但有过25年1月播这个离谱的先例我也没什么勇气了
+
+手游这边是挺尴尬的，1.4大更结果不知道什么原因没搞好，会放到之后再维护，非常草台
+
+*****
+
+####  6030sylar  
+##### 7429#       发表于 2024-1-6 23:50
+
+现在最大可能就是要插个管人团动画插队<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 7430#       发表于 2024-1-6 23:51
+
+不是说好了要一辈子mygo吗，怎么一年就受不了了。你们还要一起mygo吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Turtletorto  
+##### 7431#       发表于 2024-1-6 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559380&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-6 23:47</a>
+有没有可能武士道有钱了 把live全改成2D手绘</blockquote>
+感觉3dlive是武士道还在播2d动画的时候就传下来的特色了，只要制作公司还是三次元估计不会搞手绘live
+
+*****
+
+####  ellisnadie  
+##### 7432#       发表于 2024-1-6 23:51
+
+反正访谈加上13集结尾那个说不上是正经结尾的断章还加了鸡的live，不太信鸡是一开始就预定25年播
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  依存香炉  
+##### 7433#       发表于 2024-1-6 23:52
+
+确实是来戏了
+

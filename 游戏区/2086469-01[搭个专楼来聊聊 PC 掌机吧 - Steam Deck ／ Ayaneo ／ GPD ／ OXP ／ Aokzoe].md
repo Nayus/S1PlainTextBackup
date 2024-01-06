@@ -153,3 +153,20 @@
 
 想入个sd oled版，想问问 频闪问题严重吗？
 
+
+*****
+
+####  魔法酪饼  
+##### 1039#       发表于 2024-1-6 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559179&amp;ptid=2086469" target="_blank">fate99 发表于 2024-1-6 23:27</a>
+
+想入个sd oled版，想问问 频闪问题严重吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">先说一下我还没舍得买oled版的sd。。。
+
+据我所知switch和steamdeck的oled版频闪严重都属于造谣，实际上在护眼层面这俩用的屏幕都还行，在四千分之一快门下都属于非常可以接受的范畴，在oled手机屏里都算是很优秀了。
+
+其中sd我是看的评测视频，switch我是自己试过。
+
+现在的手机基本都有高速快门功能，搞个自己试试就好。
+

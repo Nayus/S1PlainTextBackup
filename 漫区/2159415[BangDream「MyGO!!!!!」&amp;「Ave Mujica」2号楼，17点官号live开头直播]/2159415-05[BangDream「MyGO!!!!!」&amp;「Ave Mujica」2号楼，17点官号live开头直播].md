@@ -8911,3 +8911,11 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 怎么今天到处都在烤羊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6828#       发表于 2024-1-6 11:57
+
+<img src="https://p.sda1.dev/15/bd8127a85ccbcccb1e08d5dfe46a8aa1/CMP_20240106115655582.jpg" referrerpolicy="no-referrer">
+

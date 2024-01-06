@@ -13381,3 +13381,102 @@ sunles，让我忘记一切吧……
 
 也许她还没写呢，排班还没排到那
 
+
+*****
+
+####  Aloereed  
+##### 7301#       发表于 2024-1-6 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558170&amp;ptid=2159415" target="_blank">asukaasu 发表于 2024-1-6 21:59</a>
+
+因为她是脚本最后一位，估计就是个写单集脚本打工的</blockquote>
+猫猫不也是单集脚本
+
+*****
+
+####  Arrogate  
+##### 7302#       发表于 2024-1-6 22:05
+
+言之凿凿好像真的闹掰了一样
+
+*****
+
+####  棒读  
+##### 7303#       发表于 2024-1-6 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558215&amp;ptid=2159415" target="_blank">节艾司 发表于 2024-1-6 22:02</a>
+
+也许她还没写呢，排班还没排到那</blockquote>
+不会，结合她去年的推和声优的说法母鸡卡的剧本高概率去年就已经完工了，甚至已经走到配音阶段了
+
+*****
+
+####  本间日阳  
+##### 7304#       发表于 2024-1-6 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">问题就是这个制作进度，按这个进度来说应该不至于到明年才播。
+
+*****
+
+####  PDQ4  
+##### 7305#       发表于 2024-1-6 22:06
+
+菜花这个访谈倒是没必要滑，可能是绫奈不是主脚本。单纯因为和柿本有关系被拉过来写了一部分，正好撞上MYGO剧本受赞誉。
+
+不过有菜花基础上还取关就很怪，而且绫奈完全不宣传这部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棒读  
+##### 7306#       发表于 2024-1-6 22:09
+
+不过以邦多利动画广告片的定位，单纯因为理念不合就推翻剧本也不符合商业上的考量啊，毕竟一旦返工无疑会增加成本，动画跳票也会带来一系列损失。感觉不太可能有临时改剧本这种事。
+
+*****
+
+####  higuchiguchi  
+##### 7307#       发表于 2024-1-6 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">小川ひとみ转了 独角兽没取关小川 四舍五入就是独角兽转了
+
+*****
+
+####  Aendst  
+##### 7308#       发表于 2024-1-6 22:10
+
+ 本帖最后由 Aendst 于 2024-1-6 22:11 编辑 
+
+认真讲，可能性有几种
+
+1.制作上没问题，只是执行上把档期定那么晚了而已
+
+2.因为看到mygo的热度，上层决定在本年度倾斜资源定晚档期，对制作组内部人员有一定影响，但没有影响制作
+
+3.真的存在内部人员变动或者矛盾等问题，或者制作上出现问题，影响了整个制作
+
+理解发散都随意
+
+*****
+
+####  dqtql  
+##### 7309#       发表于 2024-1-6 22:10
+
+还是这个档期对漏油们打击太大了，所以各种暴论都出来了
+
+*****
+
+####  asukaasu  
+##### 7310#       发表于 2024-1-6 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558274&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-1-6 22:06</a>
+问题就是这个制作进度，按这个进度来说应该不至于到明年才播。</blockquote>
+武士道不想🐔🐶分流呗，他们什么傻逼事干不出来
+也就折磨国内粉丝，现地用活动撑一年罢了
+
+*****
+
+####  likeny  
+##### 7311#       发表于 2024-1-6 22:11
+
+按之前消息来说剧本写好了，也配音完了，就算真像滑坡那样闹掰也影响不到mujica了，怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

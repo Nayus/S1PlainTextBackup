@@ -13643,3 +13643,133 @@ tm的等一年<img src="https://static.saraba1st.com/image/smiley/face2017/001.p
 
 wsd整烂活又不是一天两天的事了，动画对武士道来说就只是一个宣传渠道而已，基于企划，三次元的获利，故意让Mujica25年再播出也是正常的。同样，火了之后受到重视要求改剧本也是很有可能发生的事。
 
+
+*****
+
+####  フミさん  
+##### 7330#       发表于 2024-1-6 22:34
+
+之前在mygo合作得明明那么开心。独角兽老师是mygo的创作者啊，要是独角兽老师退出的话……总之，先冷静下来谈谈吧。大家都已经一起开心地做动画这么久了，武士道桑也是这么想的吧？
+
+*****
+
+####  此行远兮  
+##### 7331#       发表于 2024-1-6 22:34
+
+隔这么长时间对鸡团怎么样不好说，但是对于MyGO绝对是弊大于利的，本来动画最后两集把重心放在鸡团和祥子身上已经让MyGO的粉丝有点介意了，导致的结果就是明明是MyGO的动画，引流的却是鸡团和祥子，MyGO自己的故事反而不完整(以至于需要总集篇打补丁)。现在鸡团动画隔这么久，就等于官方明确告诉你鸡团和MyGO动画就是两部作品，我就是要用MyGO动画垫鸡团<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  金钱与民主  
+##### 7332#       发表于 2024-1-6 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558665&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-1-6 22:34</a>
+
+隔这么长时间对鸡团怎么样不好说，但是对于MyGO绝对是弊大于利的，本来动画最后两集把重心放在鸡团和祥子身 ...</blockquote>
+这个拿游戏剧情补啊，那才是本体。
+
+*****
+
+####  twi  
+##### 7333#       发表于 2024-1-6 22:36
+
+Mygo进手游了可以有剧情补充，也还好吧
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7334#       发表于 2024-1-6 22:36
+
+谁垫谁。。。这怕不是还说不准呢<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 7335#       发表于 2024-1-6 22:37
+
+破案了，WSD是为了让观众理解金毛狗狗啊（指一个动画翻来覆去看一年），是为了更好地让观众接受母鸡卡的世界观！WSD这把打得没问题！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 7336#       发表于 2024-1-6 22:38
+
+这么一说，这一年手游的mygo活动都要毫无mujica了吗
+
+挺好，培养一下团爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7337#       发表于 2024-1-6 22:40
+
+总集篇剧场版是原本的计划还是临时起意，如果是原本计划那本来就要在母鸡卡播放前上映，母鸡卡25年才播放倒是不必滑坡
+
+*****
+
+####  PDQ4  
+##### 7338#       发表于 2024-1-6 22:40
+
+搁的久是狗团烂尾垫鸡，搁的近是狗团给鸡团引流，话都给你说了。我还讲搁的久是怕鸡吸走狗的热度呢。
+
+虽然我不想这么讲，但是狗这个剧场版总集篇应该是你邦第一次，非常像因为有热度临时加的，谁垫谁还不好说，真要这么讨论？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 7339#       发表于 2024-1-6 22:41
+
+今年一年都没有mujica抢戏，相信mygo的重点和角色戏份能均衡了
+
+*****
+
+####  二宮飛鳥酱  
+##### 7340#       发表于 2024-1-6 22:41
+
+所以能确定独角兽不负责母鸡卡的剧本了吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七层嘉影  
+##### 7341#       发表于 2024-1-6 22:42
+
+其实🐔的企划已经被取消了，只是现在怕炎上不公布而已
+
+*****
+
+####  Aendst  
+##### 7342#       发表于 2024-1-6 22:42
+
+不能，只是捕风捉影推测得出的可能性
+
+*****
+
+####  Kasroz  
+##### 7343#       发表于 2024-1-6 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558734&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-6 22:40</a>
+搁的久是狗团烂尾垫鸡，搁的近是狗团给鸡团引流，话都给你说了。我还讲搁的久是怕鸡吸走狗的热度呢。
+
+虽然 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">加这个剧场版会打乱原本的安排，是什么因素导致母鸡卡延后的
+
+*****
+
+####  wzm96816  
+##### 7344#       发表于 2024-1-6 22:42
+
+楼友现实一点，之前去年十月著名作豚不都说了mygo原班人马24年没档期吗，现实的答案就是没档期还没做罢了。
+
+想什么切割，什么改剧本，思路都跑到哪里去了。
+
+*****
+
+####  PDQ4  
+##### 7345#       发表于 2024-1-6 22:42
+
+当然不确定，漏油只是在滑坡，还是自己好好调理，只是说烂了就切割<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

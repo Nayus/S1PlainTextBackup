@@ -8265,3 +8265,26 @@ uu打折，一年188，不过得定点抢劵
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 2333#       发表于 2024-1-6 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558052&amp;ptid=2150634" target="_blank">晴岚 发表于 2024-1-6 21:50</a>
+团灭了对面三个队友甚至没有一个愿意先把区涂下来再去前压
+
+—— 来自 S1Fun ...</blockquote>
+意识问题，这种一根筋玩家中低段位特别多，脑子没法多线程操作，更处理不了任务的优先级
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2334#       发表于 2024-1-6 22:39
+
+sb泡伤害是够的不过手感太💩了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

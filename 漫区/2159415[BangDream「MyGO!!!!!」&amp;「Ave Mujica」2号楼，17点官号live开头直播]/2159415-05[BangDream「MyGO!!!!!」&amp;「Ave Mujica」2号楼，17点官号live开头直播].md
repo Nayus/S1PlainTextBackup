@@ -13773,3 +13773,199 @@ Mygo进手游了可以有剧情补充，也还好吧
 
 当然不确定，漏油只是在滑坡，还是自己好好调理，只是说烂了就切割<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 7346#       发表于 2024-1-6 22:43
+
+这楼还是锁了吧明年再放出来好过
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  友情的结晶  
+##### 7347#       发表于 2024-1-6 22:44
+
+绫奈剧本mujica<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Aendst  
+##### 7348#       发表于 2024-1-6 22:44
+
+ 本帖最后由 Aendst 于 2024-1-6 22:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天北京时间十二点（是十一点）还有消息，想锁楼是看不得mujica相关吗
+
+*****
+
+####  higuchiguchi  
+##### 7349#       发表于 2024-1-6 22:45
+
+是十一点<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 7350#       发表于 2024-1-6 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558756&amp;ptid=2159415" target="_blank">wzm96816 发表于 2024-1-6 22:42</a>
+楼友现实一点，之前去年十月著名作豚不都说了mygo原班人马24年没档期吗，现实的答案就是没档期还没做罢了。 ...</blockquote>
+还没做结果声优都能配音了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 7351#       发表于 2024-1-6 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊确实是十一点，不好意思搞错时差了
+
+*****
+
+####  空气先生  
+##### 7352#       发表于 2024-1-6 22:47
+
+编辑，不小心发出来了
+
+*****
+
+####  剪切线  
+##### 7353#       发表于 2024-1-6 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558734&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-6 22:40</a>
+
+搁的久是狗团烂尾垫鸡，搁的近是狗团给鸡团引流，话都给你说了。我还讲搁的久是怕鸡吸走狗的热度呢。
+
+虽然 ...</blockquote>
+应该不是有热度加的，在日本热度只是正常水准，只有中国大热，如果是因为热度加的不会以电影这种中国看不到的形式<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  此行远兮  
+##### 7354#       发表于 2024-1-6 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558734&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-6 22:40</a>
+搁的久是狗团烂尾垫鸡，搁的近是狗团给鸡团引流，话都给你说了。我还讲搁的久是怕鸡吸走狗的热度呢。
+
+虽然 ...</blockquote>
+我也不是现在才有这个想法的，完结的时候我就对MyGO动画结尾很不满意了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+作为两个独立的企划，MyGO就应该在自己的动画里把自己的故事讲完整，而不是现在这样为了给鸡腾篇幅导致饺子没包好，live不完整，猫塑造这么单薄<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 7355#       发表于 2024-1-6 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558755&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-6 22:42</a>
+
+加这个剧场版会打乱原本的安排，是什么因素导致母鸡卡延后的</blockquote>
+如果真是临时加剧场版，最乐观想就是WSD大聪明觉得半年放个广告片更好续热度，虽然我觉得脑子正常的理解不了这个傻逼档期<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+都是瞎猜罢了，反正木已成舟，看看明天放什么边角料，先滑坡再滑坡
+
+*****
+
+####  依存香炉  
+##### 7356#       发表于 2024-1-6 22:48
+
+行吧 还得再活一年
+
+*****
+
+####  PDQ4  
+##### 7357#       发表于 2024-1-6 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558805&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-6 22:47</a>
+
+应该不是有热度加的，在日本热度只是正常水准，只有中国大热，如果是因为热度加的不会以电影这种中国看不 ...</blockquote>
+无妨，再给你搞个舰长限定剧场版直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七层嘉影  
+##### 7358#       发表于 2024-1-6 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558795&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-6 22:45</a>
+还没做结果声优都能配音了？声优已经可以对着虚空配了吗？</blockquote>
+大概率就是推倒重来做了，因为大人的原因搞烂续作甚至整个IP整个企划的事情发生太多了次了，本来就应该做最坏准备
+
+*****
+
+####  依存香炉  
+##### 7359#       发表于 2024-1-6 22:49
+
+无所谓 25就25 我还有灵魂互换第四集看呢 Mujica一辈子都别播好了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1||
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 7360#       发表于 2024-1-6 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558806&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-1-6 22:47</a>
+
+我也不是现在才有这个想法的，完结的时候我就对MyGO动画结尾很不满意了
+
+作为两个独立的企划，MyGO ...</blockquote>
+你过看访谈就知道讲完整了，对制作组来说ep12已经是mygo的尾声，ep13是后日谈
+
+*****
+
+####  dqtql  
+##### 7361#       发表于 2024-1-6 22:49
+
+突然想起，武士道买的那个周四电视台档期不会要重播一年的卖狗吧？
+
+*****
+
+####  凡人  
+##### 7362#       发表于 2024-1-6 22:51
+
+<img src="https://img.saraba1st.com/forum/202401/06/224914uvo7d4haunn4hzsx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 22:49 上传
+
+看了下绫奈的推，在发完这是最后的采访后她转了一个清洗乌龟的视频，众周知绫奈的头像就是乌龟，也许她是在暗示自己被[清洗]了
+
+*****
+
+####  竹嶋  
+##### 7363#       发表于 2024-1-6 22:52
+
+别太离谱
+
+*****
+
+####  nebulanoby  
+##### 7364#       发表于 2024-1-6 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558756&amp;ptid=2159415" target="_blank">wzm96816 发表于 2024-1-6 22:42</a>
+楼友现实一点，之前去年十月著名作豚不都说了mygo原班人马24年没档期吗，现实的答案就是没档期还没做罢了。 ...</blockquote>
+火腿瞎猫碰上死耗子而已，冈田去年9月就说在收录了，所以正常来说4月怎么都该播了。而且独角兽作为编剧直接装死还把相关旧推冲水掉才是最令人担心的。如果无事发生还一句话不说，独角兽是觉得打牌姐最近不打牌努力练歌了所以轮到我打牌了吗
+
+什么取消或者大改剧本当然是滑坡烂炒，但是说什么事情都没有我是不太信，就是希望单纯是WSD整烂活碰上绫奈和柿本个人关系方面出问题
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

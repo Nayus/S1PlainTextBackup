@@ -118,3 +118,19 @@
 </blockquote>
 看115H 28W测评，如果调教没有大改进竞争力堪忧
 
+
+*****
+
+####  圈量子  
+##### 1036#       发表于 2024-1-6 11:22
+
+ 本帖最后由 圈量子 于 2024-1-6 11:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61565401&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-7-6 00:42</a>
+
+事情是这样的，我五月份在ayaneo美国官网买了一台ayaneo 2021 非pro版，价格599刀。东西寄过来后打开包装就 ...</blockquote>
+更新：这台白嫖的机子终于还是坏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+充不进去电所以电量耗尽关机后现在无法开机了，看来当初无法开机也是这个毛病，没有真的修好<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+在考虑是拆开自己试着修一下还是拆开把数据删干净然后直接扔了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer"> SSD拆出来找个转换器接上好像还可以利用一下
+

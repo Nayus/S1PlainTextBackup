@@ -24,3 +24,14 @@
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 S1Next ...</blockquote>
 <img src="https://p.sda1.dev/15/f8c778c0c375205084dcd3aa74256121/IMG_CMP_61330727.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  糊状物  
+##### 1455#       发表于 2024-1-6 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63550947&amp;ptid=1220112" target="_blank">Ichthy 发表于 2024-1-6 11:05</a></blockquote>
+可以了，谢谢，我还以为是是首页左上角三横那里设置
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -14893,3 +14893,66 @@ https://ssl4.ei ...</blockquote>
 
 我觉得最迷惑的是既然明年一月播为什么不放1st宣布，正好过年全都一块放出图个喜庆吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 7464#       发表于 2024-1-7 01:07
+
+ 本帖最后由 星空冻结 于 2024-1-7 01:10 编辑 
+
+wsd把ce踢出去不就是因为手游不行了不想多一个人分钱吗，24年趁🐶有热度所以多推一年，包括剧场版也是给之前有人气但是剧情单薄导致人气下降的猫打补丁，🐔团走正常流程25年播出。本质还是wsd在缩减开销同时稳定还能爆金币的项目<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl，🐔团的歌能不能整好一点，utopia感觉不太行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  twi  
+##### 7465#       发表于 2024-1-7 01:08
+
+故意挑在25年1月的消息发布第二天放出来（指1.7），不管是新曲还是什么。质量不能太差吧
+
+*****
+
+####  爱丁堡official  
+##### 7466#       发表于 2024-1-7 01:08
+
+你楼的滑坡言论怎么都传到官号pv下面了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7467#       发表于 2024-1-7 01:09
+
+手游箱活我记得时间是流动的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这方面我不了解，不过只要不打折扣明年1月母鸡卡上映再到实装mygo是不是都要高二下了
+
+*****
+
+####  6030sylar  
+##### 7468#       发表于 2024-1-7 01:09
+
+鸡1st不提档让oblivionis上去把档期撕了还有什么用<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，空出来一年都够tokyomx周四11点档把四季动画都播一遍了
+
+*****
+
+####  青蒜  
+##### 7469#       发表于 2024-1-7 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559033&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-6 23:10</a>
+
+再过几个星期估计热度就下来了
+
+大热如滚蒜 现在s1的砖楼一天也没几条回复
+
+mygo动画这个热度就不要了 等明年 ...</blockquote>
+蒜专楼虽然没几个人了，百综楼蒜人可不少，犯蒜PTSD的也不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7470#       发表于 2024-1-7 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559971&amp;ptid=2159415" target="_blank">Toki_Ai 发表于 2024-1-7 01:00</a>
+
+越想越难绷，那看来ave1st结束就是公布2nd的就没东西了不过这个舰还是得上 ...</blockquote>
+本來想和你說幹嘛買一個不能看回放的直播，不如買eplus，而且eplus抽的還少很多，但轉念一想，我幹嘛要幫武士道算錢<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+

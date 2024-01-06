@@ -12300,3 +12300,103 @@ mygo在日本只是没大热而已
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">先看剧场版staff还有没有独角兽吧
 
+
+*****
+
+####  帆前  
+##### 7186#       发表于 2024-1-6 20:53
+
+好滴很，定档就好
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|不会说话可以不说|
+
+查看全部评分
+
+*****
+
+####  skives  
+##### 7187#       发表于 2024-1-6 20:54
+
+另一种思路
+高层要求大改mujica剧本 增加mygo戏份
+监督拒绝
+最后双方让步的结果就是第二季不修改剧本、延期 增加总集篇剧场版
+
+*****
+
+####  TTAA  
+##### 7188#       发表于 2024-1-6 20:56
+
+瞎猜没意思，母鸡卡或好或烂日子都得过
+
+*****
+
+####  yaneis  
+##### 7189#       发表于 2024-1-6 20:57
+
+<img src="https://img.saraba1st.com/forum/202401/06/205727djwr96fpqmr39mfn.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1704545829315.jpg</strong> (97.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-1-6 20:57 上传
+
+*****
+
+####  Arrogate  
+##### 7190#       发表于 2024-1-6 20:57
+
+猜的都挺离谱的
+
+*****
+
+####  6030sylar  
+##### 7191#       发表于 2024-1-6 20:59
+
+大改剧本基本不可能，这是3d动画，声优都去配音了，说明都快渲染好了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  CyDiablo  
+##### 7192#       发表于 2024-1-6 21:00
+
+今天滑坡完得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别隔三差五再来滑坡就算赢
+
+*****
+
+####  ellisnadie  
+##### 7193#       发表于 2024-1-6 21:00
+
+最合理的还是插播了剧场版吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  滑稽Captain  
+##### 7194#       发表于 2024-1-6 21:00
+
+1st宣2nd呗，这不是最基本的吗
+
+*****
+
+####  星空冻结  
+##### 7195#       发表于 2024-1-6 21:00
+
+ 本帖最后由 星空冻结 于 2024-1-6 21:02 编辑 
+
+之前不都说了25年1月见，你wsd就是要对轴的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不如说这个剧场版可能真的是准备续🐶的热度临时插的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -9926,3 +9926,74 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 預告的預告……
 
+
+*****
+
+####  Kasroz  
+##### 6891#       发表于 2024-1-6 19:03
+
+小羊
+
+*****
+
+####  Kasroz  
+##### 6892#       发表于 2024-1-6 19:06
+
+东京公演有网络配信
+
+*****
+
+####  NODY  
+##### 6893#       发表于 2024-1-6 19:06
+
+怎么还在坚持营业灯希这个半入土的cp<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 6894#       发表于 2024-1-6 19:07
+
+新服装还行
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6895#       发表于 2024-1-6 19:08
+
+<img src="https://p.sda1.dev/15/fbc743871821953af07fc5839fd82af7/CMP_20240106190816344.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 6896#       发表于 2024-1-6 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4单曲命名完全看不懂了
+
+*****
+
+####  Mr.Giraffe  
+##### 6897#       发表于 2024-1-6 19:10
+
+经典三字经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mayloveless  
+##### 6898#       发表于 2024-1-6 19:11
+
+腿好长
+
+*****
+
+####  Kasroz  
+##### 6899#       发表于 2024-1-6 19:11
+
+想成为人类之歌全曲！！！
+
+*****
+
+####  枫林不见  
+##### 6900#       发表于 2024-1-6 19:11
+
+C团的春日影，快快端上来吧
+

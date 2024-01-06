@@ -9825,3 +9825,44 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 上次12th画面没这么卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望这次别崩
 
+
+*****
+
+####  御幸一也  
+##### 6882#       发表于 2024-1-6 17:14
+
+<img src="https://img.saraba1st.com/forum/202401/06/171333sthoq7pch99lzebq.jpg" referrerpolicy="no-referrer">
+
+<strong>e60ae65a55dea5f91e66f58d0808d670.jpg</strong> (705.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 17:13 上传
+
+到底哪裡還能買到這期雜誌，網上買不到，店頭也買不到，我服了武士道<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  御幸一也  
+##### 6883#       发表于 2024-1-6 17:21
+
+<img src="https://img.saraba1st.com/forum/202401/06/172037xjuj27p2e2o7kuoh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 17:20 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/172038bh0mfc9hhv4mgpr0.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (198.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 17:20 上传
+
+李子你到底多早去買的，剛看了眼推特原來中午過後基本上到處都賣光了，我已經是敗者的形狀了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer"> 
+
+粉絲輸給了主唱<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 
+

@@ -14312,3 +14312,96 @@ mygo该列入违jin品名单了，致幻的危害不可估量
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cybernetics31  
+##### 7402#       发表于 2024-1-6 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真做完了倒是端上来啊，做完了还不端上来可不就凉了嘛
+
+*****
+
+####  Aendst  
+##### 7403#       发表于 2024-1-6 23:34
+
+日厂的大人物做智力有问题的事情不需要理由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 7404#       发表于 2024-1-6 23:35
+
+wsd主要就是很迷惑，你隔一年半走完正常宣传再播，那你当时把鸡狗两个号合并干嘛呢？你如果不连播那么你鸡配音都完了，就算是打磨细节也不用一整年吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 7405#       发表于 2024-1-6 23:35
+
+越想越气，wsd什么铸币操作
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dqtql  
+##### 7406#       发表于 2024-1-6 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559177&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-6 23:26</a>
+
+到底要我說幾次三次元的動畫製作流程，能不能都自己去看一下製作訪談了解一下
+
+很明顯就是做好了壓著不放[f: ...</blockquote>
+最需要正义鬼佬偷跑的一集，可惜鬼佬不看
+
+*****
+
+####  ellisnadie  
+##### 7407#       发表于 2024-1-6 23:36
+
+所以感觉本来就是准备联播的，或者说至少不至于到25年去
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 7408#       发表于 2024-1-6 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559232&amp;ptid=2159415" target="_blank">cybernetics31 发表于 2024-1-6 23:33</a>
+
+真做完了倒是端上来啊，做完了还不端上来可不就凉了嘛</blockquote>
+現在不就是在讓路給那個總集篇嗎<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+動畫做完了，檔期是武士道的，寧願播第三次狗都不播<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7409#       发表于 2024-1-6 23:37
+
+什么都想要 最后很容易什么都得不到
+
+*****
+
+####  skives  
+##### 7410#       发表于 2024-1-6 23:38
+
+草越想越气 看羊宫营业本来巨开心 屏幕一暗准备等mygo开唱 突然播了一段mujica的pv 直接整个人愣住了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  QuattroVageena  
+##### 7411#       发表于 2024-1-6 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559204&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-6 23:30</a>
+
+不了解的我再說一次，這是三次元的動畫製作流程，
+
+到配音的時候已經是至少有剪輯版的流暢動畫了。
+
+配音 ...</blockquote>
+四月已经做完了来着…
+

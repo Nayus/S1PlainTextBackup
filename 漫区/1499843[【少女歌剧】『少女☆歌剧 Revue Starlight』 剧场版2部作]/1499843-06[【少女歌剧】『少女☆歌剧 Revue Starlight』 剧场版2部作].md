@@ -88,3 +88,16 @@ OP44分组，啊光你又跑了</blockquote>
 
 期待12月的？？？
 
+
+*****
+
+####  哆哆鸡  
+##### 8929#       发表于 2024-1-6 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63555159&amp;ptid=1499843" target="_blank">Case 发表于 2024-1-6 18:07</a>
+
+按照官网介绍，剧场版结束以后，阿光现在已经回伦敦继续念书了。
+
+官网角色设定图都换上皇家戏剧学院的衣 ...</blockquote>
+剧场版时间线的话不是都毕业了吗
+

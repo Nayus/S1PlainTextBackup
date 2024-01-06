@@ -64,3 +64,11 @@
 攒了150金月，是来个黑卡换龙神将好呢还是直接来个150金月武器好，没有艾蕾但我暗没有武器，主要火 ...</blockquote>
 留着，龙不值得黑卡，至少目前不值得，今年还一年呢，水团还早的很。
 
+
+*****
+
+####  shinitakute  
+##### 17585#       发表于 2024-1-6 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">感谢，那就留着吧。雅琪玛和000我都不太想换（没有jgj喂了）
+

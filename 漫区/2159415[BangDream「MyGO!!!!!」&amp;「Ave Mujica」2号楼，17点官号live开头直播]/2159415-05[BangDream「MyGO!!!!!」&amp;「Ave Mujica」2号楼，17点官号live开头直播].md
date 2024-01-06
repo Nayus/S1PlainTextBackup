@@ -13969,3 +13969,118 @@ Mygo进手游了可以有剧情补充，也还好吧
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  -LYRE-  
+##### 7365#       发表于 2024-1-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558806&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-1-6 22:47</a>
+我也不是现在才有这个想法的，完结的时候我就对MyGO动画结尾很不满意了
+作为两个独立的企划，MyGO ...</blockquote>
+那我也不是现在才有这个想法的，猫塑造单薄真的只是因为mujica抢戏吗？监督可是说在第10话的时候就不知道后面该做什么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/59f845b658667e818b8c8afdfed683e2/CMP_20240106225230388.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7366#       发表于 2024-1-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558833&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-6 22:51</a>
+看了下绫奈的推，在发完这是最后的采访后她转了一个清洗乌龟的视频，众周知绫奈的头像就是乌龟，也许她是 ...</blockquote>
+我要笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  twi  
+##### 7367#       发表于 2024-1-6 22:54
+
+mygo和mujica算得上是完全独立的企划吗……那把mygo里mujica成员的戏份全删了就方便塑造mygo五人了吗……这种说法有点莫名其妙了，但是我也认为结尾这一段的处理有些微妙，既吊着mujica粉丝，又让mygo粉丝觉得不够尽兴
+
+*****
+
+####  星空冻结  
+##### 7368#       发表于 2024-1-6 22:54
+
+有点离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七层嘉影  
+##### 7369#       发表于 2024-1-6 22:54
+
+WSD大清洗！
+
+*****
+
+####  PDQ4  
+##### 7370#       发表于 2024-1-6 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558833&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-6 22:51</a>
+
+看了下绫奈的推，在发完这是最后的采访后她转了一个清洗乌龟的视频，众周知绫奈的头像就是乌龟，也许她是 ...</blockquote>
+太会了你，我要看看绫奈有没有转过其他乌龟视频<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  此行远兮  
+##### 7371#       发表于 2024-1-6 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558821&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-6 22:49</a>
+你过看访谈就知道讲完整了，对制作组来说ep12已经是mygo的尾声，ep13是后日谈 ...</blockquote>
+访谈我看过，但是单从动画来看MyGO的内容做的就是不完整啊，立希的劣等感完全没有解决，猫猫说好听一点就是一个推进剧情用的工具人，人物塑造根本立不住，我觉得官方也是意识到了这些问题才在总集篇加dlc的，但是这些问题原本完全可以在tv就解决掉，而不是现在为了给鸡团留一集而留几个尾巴在这儿。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 7372#       发表于 2024-1-6 22:56
+
+ 本帖最后由 Aendst 于 2024-1-6 22:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558883&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-1-6 22:55</a>
+
+访谈我看过，但是单从动画来看MyGO的内容做的就是不完整啊，立希的劣等感完全没有解决，猫猫说好听一点就 ...</blockquote>
+你自己的话你自己推一下就能得到结论啊：制作组本来就没想做那些
+
+mygo有手游，手游有的是文本量给补完
+
+*****
+
+####  七层嘉影  
+##### 7373#       发表于 2024-1-6 22:58
+
+🐔粉和🐶粉要不然分开建楼吧
+
+*****
+
+####  Kasroz  
+##### 7374#       发表于 2024-1-6 22:58
+
+总集篇后篇有filmlive，又要给猫希加戏，本片会删掉哪些片段
+
+*****
+
+####  此行远兮  
+##### 7375#       发表于 2024-1-6 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558906&amp;ptid=2159415" target="_blank">七层嘉影 发表于 2024-1-6 22:58</a>
+🐔粉和🐶粉要不然分开建楼吧</blockquote>
+B站官方合号的时候就有人说过类似的话了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+只能说MyGO确实尝试了很多偶像企划没有尝试过的东西，后果就完全是无法预知的命运舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  skives  
+##### 7376#       发表于 2024-1-6 23:00
+
+参考总集篇 把大箱删干净<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7377#       发表于 2024-1-6 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">武士道你中国主场活动倒是搞一搞啊，不整live哪怕fmt啥的也行啊
+

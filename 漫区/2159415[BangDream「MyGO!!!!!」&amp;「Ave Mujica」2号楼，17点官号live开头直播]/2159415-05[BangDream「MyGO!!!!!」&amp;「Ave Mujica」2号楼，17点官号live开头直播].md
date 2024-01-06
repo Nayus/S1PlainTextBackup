@@ -13480,3 +13480,97 @@ sunles，让我忘记一切吧……
 
 按之前消息来说剧本写好了，也配音完了，就算真像滑坡那样闹掰也影响不到mujica了，怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  节艾司  
+##### 7312#       发表于 2024-1-6 22:12
+
+我觉得是实质取消了，然后对公众撒谎明年播。
+
+*****
+
+####  爱丁堡official  
+##### 7313#       发表于 2024-1-6 22:14
+
+今晚一晚滑坡完了，你楼明明还有300多天可以发癫，省着点不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aloereed  
+##### 7314#       发表于 2024-1-6 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558357&amp;ptid=2159415" target="_blank">节艾司 发表于 2024-1-6 22:12</a>
+
+我觉得是实质取消了，然后对公众撒谎明年播。</blockquote>
+你这个坡滑的太大了，那到不至于
+
+*****
+
+####  棒读  
+##### 7315#       发表于 2024-1-6 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558357&amp;ptid=2159415" target="_blank">节艾司 发表于 2024-1-6 22:12</a>
+
+我觉得是实质取消了，然后对公众撒谎明年播。</blockquote>
+10年后出一部ave mujica的回天
+
+*****
+
+####  凡人  
+##### 7316#       发表于 2024-1-6 22:16
+
+终于滑坡到难产了，改剧情还是太温和了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7317#       发表于 2024-1-6 22:17
+
+这个档期还是因为工艺蛋退出，手游那边要恢复加新团的生产力需要一段时间吧，剧场版也是为了填补空缺
+
+*****
+
+####  フミさん  
+##### 7318#       发表于 2024-1-6 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚来，现在滑坡到什么阶段了？
+
+*****
+
+####  PDQ4  
+##### 7319#       发表于 2024-1-6 22:19
+
+ 本帖最后由 PDQ4 于 2024-1-6 22:20 编辑 
+
+今天一晚滑坡完才好，不然滑坡365天吗，漏油得先滑进医院吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最差不过改剧本，不过mujica应该就是我搁你邦追的最后一个团了，说转移重心给邦完了就是整烂活，该说不愧是WSD吗，不整烂活浑身不舒服<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+也不知道今年有没有pico看，拖到明年也没必要等什么鸡，狗该干啥干啥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 7320#       发表于 2024-1-6 22:19
+
+难产这种事情虽然少见，但在业界不是没有先例，只能说做好最坏的准备
+
+
+*****
+
+####  水至清则无豚  
+##### 7321#       发表于 2024-1-6 22:20
+
+据我的经验，滑坡这事一天是滑不完的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+档期没宣之前都没这么关注独角兽
+
+*****
+
+####  harukage  
+##### 7322#       发表于 2024-1-6 22:22
+
+还是今朝有酒今朝醉吧，mujika太远接着磕go得了
+

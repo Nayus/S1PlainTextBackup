@@ -134,3 +134,14 @@
 
 在考虑是拆开自己试着修一下还是拆开把数据删干净然后直接扔了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer"> SSD拆出来找个转换器接上好像还可以利用一下
 
+
+*****
+
+####  bypass  
+##### 1037#         楼主| 发表于 2024-1-6 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63549550&amp;ptid=2086469" target="_blank">crosz85 发表于 2024-1-6 08:18</a>
+
+好像rog</blockquote>
+居然还送 Steam 点卡 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -14637,3 +14637,74 @@ WSD这么干可太coooooool了，别到时候真把自己给cool似了<img src="
 
 出个剧场版又不能爆中华炮，本土那个热度有必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 7439#       发表于 2024-1-7 00:03
+
+ 本帖最后由 滑稽Captain 于 2024-1-7 00:12 编辑 
+
+戏是真的多呀，像李子说的那样，就是请看着一场场live一起等到明年，可不要以为企划只有动画，一年办个三场四场live很充裕的
+
+作为广告片的定位，像MyGO动画这样火了甚至是在日本以外的地方火了，那是撞大运，wsd从来没指望过动画会多火；换句话说，在另一个世界线上MyGO动画就算一坨，狗都不看，那也无所谓，Mujica动画照样会按计划做，企划有自己的线下推进方式
+
+*****
+
+####  Kaiserkay  
+##### 7440#       发表于 2024-1-7 00:04
+
+漏油疑似太高估中华炮影响了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 7441#       发表于 2024-1-7 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本子連續幾個月的live充實的很
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  阿斯顿氢气球  
+##### 7442#       发表于 2024-1-7 00:06
+
+<blockquote>NODY 发表于 2024-1-7 00:01
+要真是已经做好又想爆米，那还不如像当初第三季那样直接mygo+mujica连出六张单曲绑动画bd，电视台日后找个 ...</blockquote>
+wsd收入来源是手游+live，本土才最重要的。
+
+*****
+
+####  阿斯顿氢气球  
+##### 7443#       发表于 2024-1-7 00:09
+
+不会wsd真没做母鸡卡进游戏吧
+
+*****
+
+####  御幸一也  
+##### 7444#       发表于 2024-1-7 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559504&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-6 23:58</a>
+
+說白了就是遊戲那邊出問題了，劇本早八百年就寫完審核過了。如果上層不滿意劇情，mygo就不可能播。
+
+ ...</blockquote>
+手遊營收都掉多少了，還在那最重要，看看武士道財報，一起來當一個合格的精神武士道股東
+[https://ssl4.eir-parts.net/doc/7803/tdnet/2363806/00.pdf](https://ssl4.eir-parts.net/doc/7803/tdnet/2363806/00.pdf)
+
+手遊早就和演唱會收入差不多了，重要，但不是最重要。手遊確實來快錢不得不服，但演唱會這種才是長線營運最重要的地方。
+
+然後動畫是廣告片，樓友誰不認的，從來沒有人說動畫才是主體，
+
+做好壓著不放，這麼爛宣傳招數還能洗的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7445#       发表于 2024-1-7 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica的live能给补上吗，新曲多来点也行，乌托邦不太行
+

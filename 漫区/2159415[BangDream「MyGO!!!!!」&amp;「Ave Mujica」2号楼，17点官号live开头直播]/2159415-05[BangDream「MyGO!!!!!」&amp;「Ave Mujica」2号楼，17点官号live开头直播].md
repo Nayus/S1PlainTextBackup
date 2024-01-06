@@ -14829,3 +14829,28 @@ https://ssl4.ei ...</blockquote>
 
 無論哪個買賣來說，推遲ave的播出都很白痴，當然我是ave粉角度，其他角度我不清楚喔<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cherryjia12  
+##### 7458#       发表于 2024-1-7 00:43
+
+泥漏有人录了今晚的发表会吗，感觉错过了好多
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  NODY  
+##### 7459#       发表于 2024-1-7 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559857&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-1-7 00:43</a>
+
+泥漏有人录了今晚的发表会吗，感觉错过了好多
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 S1Next-鹅 ...</blockquote>
+随便搜一下就有
+
+武士道新春大发表会 2024
+[https://www.bilibili.com/video/BV1qw411u7RN/](https://www.bilibili.com/video/BV1qw411u7RN/)
+

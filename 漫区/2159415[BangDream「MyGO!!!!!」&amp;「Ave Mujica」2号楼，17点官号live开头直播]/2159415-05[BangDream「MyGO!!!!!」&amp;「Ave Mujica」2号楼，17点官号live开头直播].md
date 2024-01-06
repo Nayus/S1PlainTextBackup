@@ -15085,3 +15085,11 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 查了一下，怎么一个月才一千万流水，日本手游营收都这么低吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 7484#       发表于 2024-1-7 01:50
+
+手游最大的问题难道不是三周年之后资源全部被拿去投给d4dj结果半点水花都没有，家里还被pjsk给偷完了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

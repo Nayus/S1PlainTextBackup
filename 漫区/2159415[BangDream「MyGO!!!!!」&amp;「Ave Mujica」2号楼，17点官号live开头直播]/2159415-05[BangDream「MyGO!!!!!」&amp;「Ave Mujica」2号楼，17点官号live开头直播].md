@@ -9874,3 +9874,11 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">官号已经有249个大航海了，等到live那天能上2000吗
 
+
+*****
+
+####  Toki_Ai  
+##### 6885#       发表于 2024-1-6 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能上千已经很不错了吧，我猜最多800
+

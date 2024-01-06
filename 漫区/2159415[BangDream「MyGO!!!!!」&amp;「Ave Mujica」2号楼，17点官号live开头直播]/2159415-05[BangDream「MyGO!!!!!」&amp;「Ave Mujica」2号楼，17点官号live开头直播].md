@@ -8919,3 +8919,16 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 <img src="https://p.sda1.dev/15/bd8127a85ccbcccb1e08d5dfe46a8aa1/CMP_20240106115655582.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 6829#       发表于 2024-1-6 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63551078&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-6 11:15</a>
+
+怎么今天到处都在烤羊</blockquote>
+[https://www.bilibili.com/video/BV1ct4y1f78R](https://www.bilibili.com/video/BV1ct4y1f78R)
+
+因为这个视频吧
+

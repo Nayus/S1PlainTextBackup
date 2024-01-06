@@ -9793,3 +9793,20 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 木谷先生生前珍贵画像
 <img src="https://p.sda1.dev/15/e243478dbb9a675b3c84053aa71f463d/CMP_20240106155151198.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EBe  
+##### 6878#       发表于 2024-1-6 15:58
+
+少歌好稳，迫不及待想听6点后的mygo力<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Kasroz  
+##### 6879#       发表于 2024-1-6 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放个直播能掉帧，live观看体验真的能好吗
+

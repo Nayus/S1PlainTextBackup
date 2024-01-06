@@ -8231,3 +8231,11 @@ uu打折，一年188，不过得定点抢劵
 
 400章到手，终于全图脱离达人4
 
+
+*****
+
+####  popchong  
+##### 2330#       发表于 2024-1-6 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次送的头饰一开始期待值很高，拿到手发现没什么适配的衣服，王冠的穿模太丑陋了
+

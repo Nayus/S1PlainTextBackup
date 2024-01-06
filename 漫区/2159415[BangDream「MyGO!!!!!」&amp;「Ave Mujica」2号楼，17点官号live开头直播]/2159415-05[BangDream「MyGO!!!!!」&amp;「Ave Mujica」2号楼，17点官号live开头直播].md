@@ -9196,3 +9196,21 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 <img src="https://p.sda1.dev/15/6d1fc7aada287ee0887e8ea6e178d09d/CMP_20240106140030241.jpg" referrerpolicy="no-referrer">
 [虫原](https://weibo.com/7859368949/NA94p78db)
 
+
+*****
+
+####  NODY  
+##### 6851#       发表于 2024-1-6 14:03
+
+老登话筒出事故怎么下面还有喊卡哇伊的，这些死宅是真不挑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  アコ  
+##### 6852#       发表于 2024-1-6 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63552560&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-6 13:21</a>
+
+只要我没看过就不算冷饭</blockquote>
+莫名生草，却又符合人设<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

@@ -9810,3 +9810,18 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放个直播能掉帧，live观看体验真的能好吗
 
+
+*****
+
+####  Mr.Giraffe  
+##### 6880#       发表于 2024-1-6 16:27
+
+吉他手太拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 6881#       发表于 2024-1-6 16:28
+
+上次12th画面没这么卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望这次别崩
+

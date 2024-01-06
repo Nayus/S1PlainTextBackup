@@ -9598,3 +9598,34 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 —— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  NODY  
+##### 6861#       发表于 2024-1-6 15:05
+
+设定集要卖了，又有新料可以盘了
+
+<img src="https://img.saraba1st.com/forum/202401/06/150501zateut1l1nne4n1l.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231017231722.png</strong> (256.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 15:05 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/150507tuvlwft8jyyvczdv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231012215941.png</strong> (62.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 15:05 上传
+
+*****
+
+####  后藤一里  
+##### 6862#       发表于 2024-1-6 15:11
+
+私下不怎么接触不怎么合照也挺好的，不会到偷偷开小号吐槽队友的程度，你狗也没有p图只p自己这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

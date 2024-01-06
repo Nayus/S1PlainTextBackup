@@ -13574,3 +13574,72 @@ sunles，让我忘记一切吧……
 
 还是今朝有酒今朝醉吧，mujika太远接着磕go得了
 
+
+*****
+
+####  鲍里斯  
+##### 7323#       发表于 2024-1-6 22:23
+
+工作大楼给拆了
+出演场地维修了
+上的杂志停刊了
+发新歌后地震了
+动画监督脚本闹翻了
+祥子是命中犯煞啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 7324#       发表于 2024-1-6 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如翻一下我的记录看看我在楼里发过多少绫奈相关的内容
+
+*****
+
+####  skives  
+##### 7325#       发表于 2024-1-6 22:24
+
+关键是也没什么可难产的啊
+声优都拿到台本了
+难道是三次元做不来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyogngn  
+##### 7326#       发表于 2024-1-6 22:28
+
+tm的等一年<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宿  
+##### 7327#       发表于 2024-1-6 22:28
+
+<img src="https://img.saraba1st.com/forum/202401/06/222848lq1g0yf3b2zrhirz.png" referrerpolicy="no-referrer">
+
+<strong>IFY.png</strong> (492.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 22:28 上传
+
+《金刚指立希》最新回！国服特供版！特典：撕裤袜 ​​​
+
+*****
+
+####  友情的结晶  
+##### 7328#       发表于 2024-1-6 22:29
+
+如果剧本还是绫奈写的，等一年也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  L7lv6  
+##### 7329#       发表于 2024-1-6 22:31
+
+wsd整烂活又不是一天两天的事了，动画对武士道来说就只是一个宣传渠道而已，基于企划，三次元的获利，故意让Mujica25年再播出也是正常的。同样，火了之后受到重视要求改剧本也是很有可能发生的事。
+

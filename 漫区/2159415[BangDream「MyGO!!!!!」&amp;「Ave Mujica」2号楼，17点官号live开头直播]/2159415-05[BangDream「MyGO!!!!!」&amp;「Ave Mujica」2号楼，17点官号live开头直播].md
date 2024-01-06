@@ -8828,3 +8828,13 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 基本就只有通知型推文</blockquote>
 这些z8在大规模烤羊前都已经找补过很久了，还是放弃为宜哦<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 6821#       发表于 2024-1-6 08:43
+
+下午看看要发布什么
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1144,3 +1144,13 @@ QQ图片20231215215727.jpg
 
 隔壁交错战线都火了，你游何时能蒸蒸日上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 108#       发表于 2024-1-6 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你游又不可能有国服，那玩意儿开了日服说不定也是凉呢
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

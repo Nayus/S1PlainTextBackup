@@ -8970,3 +8970,13 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 发表会会有🐔的情报吗？
 
+
+*****
+
+####  QuattroVageena  
+##### 6834#       发表于 2024-1-6 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63551809&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-6 12:16</a>
+win11自带截图怎么这么泛白，是因为开了hdr吗</blockquote>
+是的吧，我上次开hdr无论亮度都这样
+

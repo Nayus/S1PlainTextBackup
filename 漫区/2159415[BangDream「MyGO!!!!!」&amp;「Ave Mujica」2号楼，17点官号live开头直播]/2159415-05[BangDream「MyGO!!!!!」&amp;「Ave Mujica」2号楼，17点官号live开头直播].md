@@ -11902,3 +11902,167 @@ wsd：假的吧，这么多，有道理吗？ ...</blockquote>
 
 邦2的第3个实体团，你是不是在找夢限大みゅーたいぷ？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 7138#       发表于 2024-1-6 20:23
+
+武士道看日本那边很多觉得mygo不行的原因是剧情太阴郁，想把mujica重做成kirakira包饺子团团又魂魂的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7139#       发表于 2024-1-6 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正现在只要母鸡卡剧本不如人意就可以滑坡改剧本了
+
+*****
+
+####  QuattroVageena  
+##### 7140#       发表于 2024-1-6 20:23
+
+别急，剩下的一年有的是时间
+别mujica到最后三集剧本都没有绫奈就好玩了
+
+
+*****
+
+####  友情的结晶  
+##### 7141#       发表于 2024-1-6 20:24
+
+我一直想说绫奈那后面神秘断更的关系图很有问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  仟音一心  
+##### 7142#       发表于 2024-1-6 20:25
+
+<img src="https://p.sda1.dev/15/f21c106ba28a1330c3881322c317df13/CMP_20240106202507444.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lhwang11  
+##### 7143#       发表于 2024-1-6 20:25
+
+独角兽老师说的那条讲了6小时和这事情有关系吗
+
+*****
+
+####  NODY  
+##### 7144#       发表于 2024-1-6 20:26
+
+能不能像ras那样先出漫画再出动画，印象里ras漫画除了一些小设定改了外大致和动画走向是差不多的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水至清则无豚  
+##### 7145#       发表于 2024-1-6 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">不能接受
+
+*****
+
+####  凡人  
+##### 7146#       发表于 2024-1-6 20:27
+
+鲁鲁修r2再来是吧，日光之下，并无新事。
+
+*****
+
+####  Arrogate  
+##### 7147#       发表于 2024-1-6 20:27
+
+改剧本可能性很低，先别自己吓自己了
+
+*****
+
+####  -LYRE-  
+##### 7148#       发表于 2024-1-6 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556849&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-6 20:23</a>
+别急，剩下的一年有的是时间
+别mujica到最后三集剧本都没有绫奈就好玩了</blockquote>
+复刻prpr大河内是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 7149#       发表于 2024-1-6 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556845&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-6 20:23</a>
+武士道看日本那边很多觉得mygo不行的原因是剧情太阴郁，想把mujica重做成kirakira包饺子团团又魂魂的可能性 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这算沉重的话，那ppp旧设怎么说来着，至少go看着压根不太纠结。邦这个大框架内现实的重压是不会有多少的，甚至一部分可以说是儿戏。
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  6030sylar  
+##### 7150#       发表于 2024-1-6 20:28
+
+**论就是给管人团让路，今年先上管人的动画是吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  CyDiablo  
+##### 7151#       发表于 2024-1-6 20:29
+
+反正在这破企划坑里待四年了，也不差这一年，热度什么的让上面的大人头疼去吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+只希望企划今年来国内的计划能多点了
+
+*****
+
+####  Aendst  
+##### 7152#       发表于 2024-1-6 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是学习预测25年一月播的先进经验嘛，做好准备到时候真有稀烂迷惑操作直接切割拉黑就好了
+
+一点负担都没有，说不定还要庆幸一下
+
+*****
+
+####  HazukiShion  
+##### 7153#       发表于 2024-1-6 20:29
+
+答案是要在新动画里塞官管人团。<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  煌煌其烨  
+##### 7154#       发表于 2024-1-6 20:30
+
+为什么不能是复刻守望者或者正义联盟<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  [皆神孝介]  
+##### 7155#       发表于 2024-1-6 20:31
+
+想了一会儿，和自己和解了，准备努力干活攒套好音响来追Ave Mujica动画<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JY要塞  
+##### 7156#       发表于 2024-1-6 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556905&amp;ptid=2159415" target="_blank">屑猫猫 发表于 2024-1-6 20:28</a>
+
+这算沉重的话，那ppp旧设怎么说来着，至少go看着压根不太纠结。邦这个大框架内现实的重压是不会有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以PPP旧设变成旧设了啊
+
+*****
+
+####  lactone  
+##### 7157#       发表于 2024-1-6 20:32
+
+管人团其实还可以的，几个人化学反应不错，浓度也够，就是人设太傻叉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

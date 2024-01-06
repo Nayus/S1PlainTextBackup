@@ -11624,3 +11624,173 @@ gachigachi<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" 
 
 <img src="https://p.sda1.dev/15/1c498b46fb134c25343fb9de542c4cef/IMG_CMP_145980156.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 7107#       发表于 2024-1-6 20:03
+
+感觉就两种可能  做完了压著和中途改剧本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  睡过头的水龙头  
+##### 7108#       发表于 2024-1-6 20:03
+
+广告片？墓碑吧。手工蛋也跑了，手游能不能活到2025都是问题。
+
+*****
+
+####  庸necro  
+##### 7109#       发表于 2024-1-6 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始泄气焦虑了
+
+*****
+
+####  akirakira  
+##### 7110#       发表于 2024-1-6 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556534&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-6 20:00</a>
+我也来滑坡，第一次滑坡滑得不好
+
+绫奈临近年关和柿本互相取关，不确定以前有没有关注mygo官推和邦公式，但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有趣起来了
+
+
+*****
+
+####  三全音  
+##### 7111#       发表于 2024-1-6 20:04
+
+武士道，这把是不是你打得有问题<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 7112#       发表于 2024-1-6 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556534&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-6 20:00</a>
+我也来滑坡，第一次滑坡滑得不好
+
+绫奈临近年关和柿本互相取关，不确定以前有没有关注mygo官推和邦公式，但 ...</blockquote>
+独角兽和柿本不还在pa菜合作吗？
+
+*****
+
+####  jerryoq1  
+##### 7113#       发表于 2024-1-6 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556534&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-6 20:00</a>
+
+我也来滑坡，第一次滑坡滑得不好
+
+绫奈临近年关和柿本互相取关，不确定以前有没有关注mygo官推和邦公式，但 ...</blockquote>
+但这两人七月不是还有一部吗
+
+*****
+
+####  本间日阳  
+##### 7114#       发表于 2024-1-6 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">别吓我，我怕。
+
+*****
+
+####  安洁莉娜  
+##### 7115#       发表于 2024-1-6 20:06
+
+有没有一种可能，人家根本不知道mujica有这么多人等着看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+wsd：假的吧，这么多，有道理吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7116#       发表于 2024-1-6 20:06
+
+是啊，所以为什么取关了我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 7117#       发表于 2024-1-6 20:07
+
+但愿相关人员别嘴漏说是为了给剧场版让路吧<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ytttsuuuba  
+##### 7118#       发表于 2024-1-6 20:07
+
+去年都配音到一半和全台本了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">纯粹就是压着不播对轴周年罢了，今年一整年还是重点放在mygo上。鸡团等明年发力吧，类比狗团，先开个4th5th翻唱什么的丢一丢再播动画。
+
+*****
+
+####  QuattroVageena  
+##### 7119#       发表于 2024-1-6 20:07
+
+怕不是wsd觉得mygo在日效果不好是剧本太沉重的锅，决定mujica要快乐起来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7120#       发表于 2024-1-6 20:08
+
+多来点捕风捉影，炎上怎么就不是热度了，大家都爱阴谋论<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 7121#       发表于 2024-1-6 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">最起码的最起码的，能不能7月实装mujica的歌啊
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  傘木希美  
+##### 7122#       发表于 2024-1-6 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556609&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-1-6 20:06</a>
+
+有没有一种可能，人家根本不知道mujica有这么多人等着看
+
+wsd：假的吧，这么多，有道理吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我也觉得这样
+
+*****
+
+####  ytttsuuuba  
+##### 7123#       发表于 2024-1-6 20:10
+
+而且今年7月都还能全班人马去做菜花，更说明mujica做的差不多了，和工期毫无关系，只是2.5多媒体企划就是这么现实。
+
+*****
+
+####  -LYRE-  
+##### 7124#       发表于 2024-1-6 20:12
+
+去推上验证了一下，我关注了绫奈，
+然后在mujica主页可以看到【×××和另外××人都关注了此账号】里看到绫奈，
+但是在mygo主页点开这一项没有绫奈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7125#       发表于 2024-1-6 20:12
+
+如果按照这个思路我们是不是马上可以看到邦二代的第三个实体团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7126#       发表于 2024-1-6 20:12
+
+不是，为了给剧场版让路这个没道理啊，不是说mygo在日本不怎么火吗，更别说猫希还是底边，加戏反而是赔钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说是mujica动画工期炸了或者临时改剧本重做，所以今年先临时搬个总集篇出来先垫着可能性还大点
+

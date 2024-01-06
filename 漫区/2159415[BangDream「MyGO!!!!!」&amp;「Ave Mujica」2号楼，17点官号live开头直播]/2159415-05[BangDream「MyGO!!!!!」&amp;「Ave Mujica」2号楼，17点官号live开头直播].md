@@ -9167,3 +9167,13 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 按太君的说法 🐑家里亲戚是青二大牌</blockquote>
 亲戚混那么好？难怪自己也大牌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前看她家应该只是普通家庭的
 
+
+*****
+
+####  nebulanoby  
+##### 6848#       发表于 2024-1-6 13:41
+
+说起冷饭，推上看到了巫女服ARS，一查发现是20年的活动，难道是最近日服拿出来了？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

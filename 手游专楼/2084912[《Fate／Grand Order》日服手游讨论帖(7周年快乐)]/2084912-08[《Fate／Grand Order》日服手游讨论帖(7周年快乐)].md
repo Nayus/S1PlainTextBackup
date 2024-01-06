@@ -2339,3 +2339,22 @@ IMG_2773.jpeg
 
 一根一根血条打
 
+
+*****
+
+####  乾理央  
+##### 10727#       发表于 2024-1-6 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63555375&amp;ptid=2084912" target="_blank">michaelowen9 发表于 2024-1-6 18:30</a>
+各位打ORT出了个奇怪问题怎么办没有下一关了.....</blockquote>
+开挂打的吧
+
+正常是打剩一管血然后被秒，强制退出看剧情
+
+*****
+
+####  cckuku  
+##### 10728#       发表于 2024-1-6 20:21
+
+这游戏的挂能调石头吗？还是只能调伤害啊？
+

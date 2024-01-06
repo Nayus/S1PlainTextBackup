@@ -11794,3 +11794,111 @@ wsd：假的吧，这么多，有道理吗？ ...</blockquote>
 
 说是mujica动画工期炸了或者临时改剧本重做，所以今年先临时搬个总集篇出来先垫着可能性还大点
 
+
+*****
+
+####  Aendst  
+##### 7127#       发表于 2024-1-6 20:14
+
+<img src="https://img.saraba1st.com/forum/202401/06/201127ksjh23kyajk11zvm.jpg" referrerpolicy="no-referrer">
+
+<strong>20240106211048.jpg</strong> (34.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202401/06/201321r61z63h1e33bo1fb.jpg" referrerpolicy="no-referrer">
+
+<strong>20240106211150.jpg</strong> (21.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 20:13 上传
+
+我不好说，绫奈目前为止只转了十月的mygo剧本访谈推，强调了这是最后的访谈
+
+柿本转了动画情报推
+
+*****
+
+####  鲍里斯  
+##### 7128#       发表于 2024-1-6 20:15
+
+能不能搞一波炎上让wsd改个主意啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 7129#       发表于 2024-1-6 20:15
+
+真让路的话算不算官方挑起对立，2.5企划这么现实，那也该来点现实的抢资源撕逼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 7130#       发表于 2024-1-6 20:17
+
+哎，绫奈剧本里的初祥doi就这么被改没了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  QuattroVageena  
+##### 7131#       发表于 2024-1-6 20:17
+
+总之先等到明晚七点半看绫奈转不转吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TTAA  
+##### 7132#       发表于 2024-1-6 20:18
+
+我他妈要等你一年！
+
+*****
+
+####  PDQ4  
+##### 7133#       发表于 2024-1-6 20:20
+
+为什么是明晚7点半，绫奈也有7点半法则吗。
+
+就绫奈动画播出时那个发癫程度，不转动画相关不阴谋论对得起吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+压着不放都算好的了，真改剧本我不好讲<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 7134#       发表于 2024-1-6 20:21
+
+武士道又不是第一天傻叉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ytttsuuuba  
+##### 7135#       发表于 2024-1-6 20:21
+
+怎么可能临时改剧本重做，去年配音到一半和全台本都出了，3D动画又不是对着线稿配，配的时候肯定接近成品了，意思是动画做一半扔了重做？嫌钱太多是吧。而且如果是工期炸了，那今年7月原班人马有空去搞菜花是吧。而且说立希是底边就算了，猫猫可不是，推特官号卡面点赞数经常狗里第一的，反过来戏份少结果人气不低所以搞剧场版给猫猫加戏可能性还大点。
+
+*****
+
+####  Aendst  
+##### 7136#       发表于 2024-1-6 20:22
+
+改剧本那我要仅代表个人转黑骂人了
+
+前有ff13v现有avemujica，沉重系剧情爱好者和认认真真做剧本的剧作家真是太惨了
+
+*****
+
+####  凡人  
+##### 7137#       发表于 2024-1-6 20:22
+
+邦2的第3个实体团，你是不是在找夢限大みゅーたいぷ？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

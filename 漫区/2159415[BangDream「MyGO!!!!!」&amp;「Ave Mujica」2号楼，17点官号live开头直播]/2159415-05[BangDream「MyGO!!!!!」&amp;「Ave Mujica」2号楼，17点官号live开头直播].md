@@ -15222,3 +15222,40 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 官号已经删了，果然是误发，不过我网页没刷新，可以继续看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UMI1222  
+##### 7497#       发表于 2024-1-7 04:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">晚了一步，歌怎么样。
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yesicant  
+##### 7498#       发表于 2024-1-7 04:28
+
+本来还在想staff a估计只是定时设错了，没想到删的这么快，真在熬夜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sjj118  
+##### 7499#       发表于 2024-1-7 04:29
+
+<img src="https://img.saraba1st.com/forum/202401/07/042909g13119xo11z91gc1.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-01-07_04-28-35.png</strong> (179.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 04:29 上传
+
+*****
+
+####  KirigawaMaki  
+##### 7500#       发表于 2024-1-7 04:35
+
+新歌没有新曲绘吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

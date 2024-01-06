@@ -9882,3 +9882,47 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能上千已经很不错了吧，我猜最多800
 
+
+*****
+
+####  Kasroz  
+##### 6886#       发表于 2024-1-6 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新春发表会都弄不好，现在都没开播，我看别指望了
+
+*****
+
+####  Case  
+##### 6887#       发表于 2024-1-6 18:54
+
+油土鳖这边还在播棒球卡……估计快结束了。
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6888#       发表于 2024-1-6 19:00
+
+开了
+
+*****
+
+####  すぴぱら  
+##### 6889#       发表于 2024-1-6 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天播了一堆乳的内容 从holo到dj到731学院 可不敢乱播啊
+
+*****
+
+####  御幸一也  
+##### 6890#       发表于 2024-1-6 19:02
+
+<img src="https://img.saraba1st.com/forum/202401/06/190158y3gee3zzj344b9p9.png" referrerpolicy="no-referrer">
+
+<strong>ブシロード新春大発表会2024 5-30-47 screenshot.png</strong> (98.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 19:01 上传
+
+預告的預告……
+

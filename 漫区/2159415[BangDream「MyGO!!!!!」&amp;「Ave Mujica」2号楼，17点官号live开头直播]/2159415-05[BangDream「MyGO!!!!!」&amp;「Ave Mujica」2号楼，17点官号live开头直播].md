@@ -11395,3 +11395,232 @@ gachigachi<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" 
 
 <img src="https://p.sda1.dev/15/a07a32dfe381fd4fc88dd31edb22583d/Image_1704541810654.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剪切线  
+##### 7081#       发表于 2024-1-6 19:50
+
+烤什么🐏，该烤的是mggm谢谢
+
+*****
+
+####  凡人  
+##### 7082#       发表于 2024-1-6 19:50
+
+如果mujica真的压着不播只是为了避免撞上mygo宣传期，那我希望wsd的staff千万注意，千万注意别在任何访谈，谈话里把这个消息透露出来。
+
+*****
+
+####  isummon  
+##### 7083#       发表于 2024-1-6 19:52
+
+凉了，撤！
+
+*****
+
+####  sephal  
+##### 7084#       发表于 2024-1-6 19:52
+
+坏消息，1月党还是赢了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  庸necro  
+##### 7085#       发表于 2024-1-6 19:52
+
+可能一开始没想到效果这么好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人制作组看你没定好自然也就先接别的活了
+
+*****
+
+####  Aloereed  
+##### 7086#       发表于 2024-1-6 19:52
+
+已经结束咧！感觉无法接受<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+就算mygo完结后才立项25年1月都能播。
+
+现在这样不是要改动重制，就是强行做完压着
+
+*****
+
+####  滑稽Captain  
+##### 7087#       发表于 2024-1-6 19:54
+
+邦动画首先是一部广告片，其次才是原创剧本动画，要搞清楚服务对象的主次关系
+
+*****
+
+####  0WHan0  
+##### 7088#       发表于 2024-1-6 19:55
+
+那存在先进游戏再动画的可能吗
+
+*****
+
+####  云界丶风月  
+##### 7089#       发表于 2024-1-6 19:55
+
+看了下AVE MJUJICA 还专门换了个新字体真是辛苦你了wsd
+
+*****
+
+####  Aendst  
+##### 7090#       发表于 2024-1-6 19:55
+
+广告打成这样可以入土了
+
+*****
+
+####  NODY  
+##### 7091#       发表于 2024-1-6 19:55
+
+总不能是有了什么新的想法回炉重做了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  siansian  
+##### 7092#       发表于 2024-1-6 19:56
+
+不说别的，预祝ave mujica动画播出顺利(如果wsd和邦多利能活到明年一月的话)
+
+*****
+
+####  yaneis  
+##### 7093#       发表于 2024-1-6 19:56
+
+不是已经开始配音了吗？总不可能是之前真的一点都没做吧
+
+*****
+
+####  zackAlove  
+##### 7094#       发表于 2024-1-6 19:57
+
+是真没想到要等1年<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 7095#       发表于 2024-1-6 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556445&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-6 19:54</a>
+邦动画首先是一部广告片，其次才是原创剧本动画，要搞清楚服务对象的主次关系 ...</blockquote>
+广告让热度白白流失拖着等凉掉是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还是说本来就没打算给mujica打广告？
+
+*****
+
+####  skives  
+##### 7096#       发表于 2024-1-6 19:57
+
+滑坡点的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+1年的时间 剧本被怎么改已经不敢想了
+
+*****
+
+####  污陨血红  
+##### 7097#       发表于 2024-1-6 19:57
+
+<img src="https://img.saraba1st.com/forum/202401/06/195714lcwwwq8wuldqb5yu.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ8x3n-eg5wK2qT1kShl-sg.jpg</strong> (99.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 19:57 上传
+
+还真给牛逼火腿说中了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+1月但是2025. jpg
+
+*****
+
+####  PDQ4  
+##### 7098#       发表于 2024-1-6 19:58
+
+真要阴谋论了，狗完结后的访谈可是透露出已经在配音，别是鸡做完了刻意压着不放去赶制mygo剧场版补猫希戏份。
+
+官方教你对立是吧，别让人抓到小辫子哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+狗的广告是广告，鸡的广告就不是广告是吗，还是说WSD觉得现在的鸡粉可有可无可以自己pua自己<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+1st谷前提宣昨天开卖真是其心可诛，这个柄要是知道25年一月播我是绝对不会买的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 7099#       发表于 2024-1-6 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">wsd你广告鬼才
+
+*****
+
+####  6030sylar  
+##### 7100#       发表于 2024-1-6 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">还剩鸡1st给你反悔，不然mggm你自己把自己折了吧
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  长空雁叫霜晨月  
+##### 7101#       发表于 2024-1-6 20:00
+
+等得黄花菜都凉了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 7102#       发表于 2024-1-6 20:00
+
+ 本帖最后由 Aendst 于 2024-1-6 20:01 编辑 
+
+我也来滑坡，第一次滑坡滑得不好
+
+绫奈临近年关和柿本互相取关，不确定以前有没有关注mygo官推和邦公式，但可以确定的是现在没有关注
+<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">一直在观察没把这事发出来，我觉得现在是时候了
+
+哦顺便一提avemujica她还在关注中
+
+*****
+
+####  nebulanoby  
+##### 7103#       发表于 2024-1-6 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  6030sylar  
+##### 7104#       发表于 2024-1-6 20:02
+
+<img src="https://p.sda1.dev/15/3b8f31895b8f62b795ef2d179ba07ed6/Image_1704542500481.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 7105#       发表于 2024-1-6 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556534&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-6 20:00</a>
+
+我也来滑坡，第一次滑坡滑得不好
+
+绫奈临近年关和柿本互相取关，不确定以前有没有关注mygo官推和邦公式，但 ...</blockquote>
+还有这种事？不会鸡剧本真回炉重做了吧，那可太牛逼了，你狗动画成功基本上大押宝在剧本和演出上。把头号功臣切割了明年岂不是有大乐子看，润了润了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 7106#       发表于 2024-1-6 20:02
+
+<img src="https://p.sda1.dev/15/1c498b46fb134c25343fb9de542c4cef/IMG_CMP_145980156.png" referrerpolicy="no-referrer">
+

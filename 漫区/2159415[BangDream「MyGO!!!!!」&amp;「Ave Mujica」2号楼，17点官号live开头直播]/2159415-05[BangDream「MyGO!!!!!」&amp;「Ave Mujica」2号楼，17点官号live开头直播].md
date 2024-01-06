@@ -15035,3 +15035,18 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 你邦手游真能挣多少钱吗？怎么感觉还不如管人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toki_Ai  
+##### 7478#       发表于 2024-1-7 01:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼邦在烤出来之前可是能稳定前三的存在
+
+*****
+
+####  sweet.  
+##### 7479#       发表于 2024-1-7 01:31
+
+邦邦手游已经卸了，之前就是因为蝶团时期那堆烂活退坑的，这次为了母鸡卡回坑又整得我难受，我才不要干等着母鸡卡一年<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+

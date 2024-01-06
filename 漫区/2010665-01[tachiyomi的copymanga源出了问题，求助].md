@@ -2670,3 +2670,17 @@ tachiyomi的漫画人源更新后看不了了，有人有类似的问题吗？
 用这个 之前拷贝插件的维护者自己更新的
 [https://github.com/stevenyomi/copymanga](https://github.com/stevenyomi/copymanga)
 
+
+*****
+
+####  月亮上的珊瑚  
+##### 270#       发表于 2024-1-7 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559976&amp;ptid=2010665" target="_blank">Saker_bobo 发表于 2024-1-7 01:01</a>
+用这个 之前拷贝插件的维护者自己更新的
+
+https://github.com/stevenyomi/copymanga</blockquote>
+用这个版本的插件我更新书架的时候会引起闪退应用，我在拷贝有300多本，大概更个二三十话就会闪退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+(他缓存的图是webp的，还是jpg好一点
+

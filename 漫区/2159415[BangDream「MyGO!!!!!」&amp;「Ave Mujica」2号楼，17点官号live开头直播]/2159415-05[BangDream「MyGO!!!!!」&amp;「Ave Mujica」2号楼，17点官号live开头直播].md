@@ -11254,3 +11254,144 @@ md，武士道我和你爆了<img src="https://static.saraba1st.com/image/smiley
 
 25年1月<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这简直无法理解，太迷惑了……
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7063#       发表于 2024-1-6 19:43
+
+ 本帖最后由 赫尔墨斯的权杖 于 2024-1-6 19:46 编辑 
+
+母鸡卡这个企划，剧本，音乐真的牛批到能拖一年打出王炸吗？
+
+*****
+
+####  skives  
+##### 7064#       发表于 2024-1-6 19:43
+
+不过现地的羊是真的甜<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+这下要gachi了
+
+*****
+
+####  kivz  
+##### 7065#       发表于 2024-1-6 19:45
+
+拖这么久八成中途大改比如加管人，然后搞邦2
+家人们，咱们明年AveMujica专楼再见<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 7066#       发表于 2024-1-6 19:45
+
+PA WORKS的那个菜の花一出，7月份可能性就降低了（并非马后炮），25年1月可能性不小。但是真实锤了，是真的难受<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7067#       发表于 2024-1-6 19:45
+
+今天小羊发挥的不错啊
+
+*****
+
+####  ztl44  
+##### 7068#       发表于 2024-1-6 19:46
+
+gachigachi<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 7069#       发表于 2024-1-6 19:46
+
+日本有剧场版攒热度，我们这靠什么续热度
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  -Vanitas-  
+##### 7070#       发表于 2024-1-6 19:46
+
+单纯武士道太菜了，mygo完结时候宣续作是新建文件夹，所以主staff跑去做pa菜花了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 7071#       发表于 2024-1-6 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63556231&amp;ptid=2159415" target="_blank">你妈的为什么 发表于 2024-1-6 19:40</a>
+
+比屎柔得**有病吧 
+
+热度不蹭非要放凉是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你想想收录春日影的盘是在动画完结几个月后才放出来的
+
+*****
+
+####  云界丶风月  
+##### 7072#       发表于 2024-1-6 19:47
+
+邦邦变糊逼企划不是没道理的
+
+*****
+
+####  haoshion  
+##### 7073#       发表于 2024-1-6 19:48
+
+好消息，一月播出！
+坏消息，25年<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  睡过头的水龙头  
+##### 7074#       发表于 2024-1-6 19:48
+
+2025？傻逼武士道，非得等到凉透是吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 7075#       发表于 2024-1-6 19:48
+
+明年一月我还记不记得有这么部番要看都成问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7076#       发表于 2024-1-6 19:49
+
+你邦手游还运营变动，别到时鸡还没进游戏，手游就要先似了。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+太搞笑了wsd，活该你邦火不起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 7077#       发表于 2024-1-6 19:49
+
+这个25年1月实在是过于搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arachnid  
+##### 7078#       发表于 2024-1-6 19:50
+
+一手好牌还能打成这样，武士道看来要从年头被骂到年尾...
+
+*****
+
+####  剪切线  
+##### 7079#       发表于 2024-1-6 19:50
+
+430大航海了，当天破千应该没问题
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7080#       发表于 2024-1-6 19:50
+
+<img src="https://p.sda1.dev/15/a07a32dfe381fd4fc88dd31edb22583d/Image_1704541810654.jpg" referrerpolicy="no-referrer">
+

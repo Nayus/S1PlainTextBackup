@@ -2316,3 +2316,26 @@ IMG_2773.jpeg
 出了六个四星 依然没五星 这真的太酷啦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该课保底了
 
+
+*****
+
+####  qixinno2  
+##### 10725#       发表于 2024-1-6 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63555573&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-6 18:49</a>
+
+该课保底了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我福袋都没买 氪个毛线 有钱我宁可去氪舰B皮肤
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 10726#       发表于 2024-1-6 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63555375&amp;ptid=2084912" target="_blank">michaelowen9 发表于 2024-1-6 18:30</a>
+
+各位打ORT出了个奇怪问题怎么办没有下一关了.....</blockquote>
+开挂开的 重打
+
+一根一根血条打
+

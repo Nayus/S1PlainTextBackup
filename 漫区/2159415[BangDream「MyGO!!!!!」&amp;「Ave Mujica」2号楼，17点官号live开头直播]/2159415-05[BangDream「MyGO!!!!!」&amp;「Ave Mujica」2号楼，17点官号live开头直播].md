@@ -8903,3 +8903,11 @@ S1傳圖有1M限制所以我壓得蠻厲害的，有需要的我另外傳了一�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星空冻结  
+##### 6827#       发表于 2024-1-6 11:15
+
+怎么今天到处都在烤羊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

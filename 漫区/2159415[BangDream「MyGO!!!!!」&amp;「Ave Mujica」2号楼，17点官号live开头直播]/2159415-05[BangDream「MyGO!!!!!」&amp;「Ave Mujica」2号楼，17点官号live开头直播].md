@@ -14146,3 +14146,93 @@ mygo动画这个热度就不要了 等明年靠硬实力吸新的热度吧<img s
 从第一集开头开始切 把什么第三集第七集第八集都切了岂不是更好
 就像那个tv总集篇一样
 
+
+*****
+
+####  御幸一也  
+##### 7385#       发表于 2024-1-6 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558833&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-6 22:51</a>
+
+看了下绫奈的推，在发完这是最后的采访后她转了一个清洗乌龟的视频，众周知绫奈的头像就是乌龟，也许她是 ...</blockquote>
+雖然但是，日語的清洗沒有這個意思，看著很樂就是了
+
+*****
+
+####  NODY  
+##### 7386#       发表于 2024-1-6 23:13
+
+ 本帖最后由 NODY 于 2024-1-6 23:14 编辑 
+
+监督说的是前篇猫视角重走前7集，后篇8-13集补充一点灯和立希的心理然后加一点新live，所有人新加的戏全部合起来估计都没有一集动画的长度，立希很明显还是底边待遇好吧，别说得好像和猫同级别一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Giraffe  
+##### 7387#       发表于 2024-1-6 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558833&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-6 22:51</a>
+看了下绫奈的推，在发完这是最后的采访后她转了一个清洗乌龟的视频，众周知绫奈的头像就是乌龟，也许她是 ...</blockquote>
+求助信号！是独角兽老师的求助信号！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7388#       发表于 2024-1-6 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总集篇确实很会切，回顾特番做成这样也厉害的
+
+*****
+
+####  相坂君  
+##### 7389#       发表于 2024-1-6 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一整年都不会播的mujica动画还要什么专楼，而且剧场版估计也跟总集那样把祥子都删掉，分mygo新楼才是对的
+
+*****
+
+####  御幸一也  
+##### 7390#       发表于 2024-1-6 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559043&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-6 23:12</a>
+
+但问题是要切割的话 为什么总是只切割第13集呢
+
+从第一集开头开始切 把什么第三集第七集第八集都切了岂不是 ...</blockquote>
+這太好了吧，純淨的mygo動畫還給純潔的mygo粉絲，支持呀<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  枕头46  
+##### 7391#       发表于 2024-1-6 23:16
+
+mygo该列入违jin品名单了，致幻的危害不可估量
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Turtletorto  
+##### 7392#       发表于 2024-1-6 23:19
+
+汗流浃背了，武士道的一系列操作都像在走钢丝，现在把档定到明年让大家不安一整年还不如再藏半年了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">MyGO6th抽选塞到BD里也挺大胆的只能说，爱信等吧
+
+*****
+
+####  tiro_finale  
+##### 7393#       发表于 2024-1-6 23:20
+
+刚回来看到动画情报，老实说有点被逗笑了
+
+该正义切割了，2024年结束之前就当不知道有这回事<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7394#       发表于 2024-1-6 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">樓友能對著推特關注不關注轉發不轉發yy出這麼多狗血劇情我是沒想到的。
+不如暫時忘掉去廚廚別的企劃還是動畫就完了，精神內耗不正常了快。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

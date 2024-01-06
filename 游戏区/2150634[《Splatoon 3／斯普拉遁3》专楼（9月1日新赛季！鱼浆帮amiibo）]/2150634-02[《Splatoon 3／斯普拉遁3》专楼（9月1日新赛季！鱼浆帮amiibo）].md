@@ -8288,3 +8288,11 @@ sb泡伤害是够的不过手感太💩了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  苍蓝之枪  
+##### 2335#       发表于 2024-1-6 23:16
+
+似乎上了个谜之车队，一路打到830
+

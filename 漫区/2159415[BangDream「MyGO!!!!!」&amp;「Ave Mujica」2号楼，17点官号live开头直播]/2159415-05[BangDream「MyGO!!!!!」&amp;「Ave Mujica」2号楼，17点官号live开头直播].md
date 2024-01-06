@@ -8995,3 +8995,65 @@ win11自带截图怎么这么泛白，是因为开了hdr吗</blockquote>
 
 今年五月大鼓生日的时候和7月凛生日的时候你狗也是!!!!，那时候还没人烤
 
+
+*****
+
+####  nebulanoby  
+##### 6837#       发表于 2024-1-6 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63551078&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-6 11:15</a>
+怎么今天到处都在烤羊</blockquote>
+这次圣青木生日没祝贺+前阵子嗯凹人设给自己打牌行为找补结果演技逼真到周围嘉宾都绷不住吧（还不止一次）。青二是不是真的放羊啊，传说中要强推的人搞这种演技败人缘，经纪人不拉住她？
+
+打牌姐先不说是不是真的有牌可打，上次没给偷摸零贺生+live越来越着急，就很多人不满了
+最好的处理方式当时就是装死然后后面不打牌，发个推这种动下手指的表面工夫都不做那就只能问这把动物朋友是不是打得有问题；打得有问题就算了还要各种凹人设找理由，就是不愿意不打牌
+
+青木这次生日鸡狗就茜姨和她没祝贺，问题茜姨本身是隔壁团的，而且乐器技术Pro级，配音水平惊喜，她自己的团的营业也是拉满的；动物朋友和青木同团而且前几天才收了她的手信，返图不返生日不贺那就只能狠狠烤了
+
+Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，一盘算下来还是只能烤羊工了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ninokagami|-2||
+
+查看全部评分
+
+*****
+
+####  すぴぱら  
+##### 6838#       发表于 2024-1-6 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63552368&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-6 13:04</a>
+这次圣青木生日没祝贺+前阵子嗯凹人设给自己打牌行为找补结果演技逼真到周围嘉宾都绷不住吧（还不止一次 ...</blockquote>
+青二里面这种底边是没有专属经纪人的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 6839#       发表于 2024-1-6 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63552139&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-6 12:44</a>
+动物朋友每次都在其他人准备放弃烤羊的时候提供新弹药也是挺神奇的</blockquote>
+前阵子是烤羊工变烤羊菜，烤到gachi都要围ayasa（圆）救阳了，结果阳太子一君临帝都就把Z8的纯良腐乳了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nebulanoby  
+##### 6840#       发表于 2024-1-6 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63552397&amp;ptid=2159415" target="_blank">すぴぱら 发表于 2024-1-6 13:06</a>
+青二里面这种底边是没有专属经纪人的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那她还打牌，打了半天被鼻子姐薄纱
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

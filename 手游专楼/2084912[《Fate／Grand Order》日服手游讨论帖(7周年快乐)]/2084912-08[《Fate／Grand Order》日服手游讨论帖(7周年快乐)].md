@@ -2386,3 +2386,13 @@ IMG_2773.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">好  萌新也终于有大魔王了（
 
+
+*****
+
+####  乾理央  
+##### 10732#       发表于 2024-1-7 02:39
+
+你游现在只杀黑卡，秒杀挂只要你不跳脸官方，已经完全不管了
+
+调石头就别想了，你调完后是抽不了卡的
+

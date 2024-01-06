@@ -14854,3 +14854,42 @@ https://ssl4.ei ...</blockquote>
 武士道新春大发表会 2024
 [https://www.bilibili.com/video/BV1qw411u7RN/](https://www.bilibili.com/video/BV1qw411u7RN/)
 
+
+*****
+
+####  461757753  
+##### 7460#       发表于 2024-1-7 00:57
+
+老实说，这还不如不公布时间，吊吊胃口拖到10月，维持下热度，剩下时间再随便整几个活。现在一下子告诉说要等1年，真的是难顶
+
+*****
+
+####  Toki_Ai  
+##### 7461#       发表于 2024-1-7 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7462#       发表于 2024-1-7 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559812&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 00:35</a>
+別搞錯了，我說那麼多只是反駁你那個“手遊才是最重要”
+
+何況以安排線下演唱會來說，動畫廣告早點 ...</blockquote>
+我是手游製作人的話我先讓mygo動畫出了，然後手游輪流爆mygo角色廚的米，mygo5人一人一個活動都夠撐一年了，明年ave出了再繼續爆另5個人的米。
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">現在的情況就是命根子遊戲都出事了
+
+<img src="https://p.sda1.dev/15/309c92702d40f608572b1c003a0b4951/IMG_FFE074B9992372910767D78332FEF085.jpeg" referrerpolicy="no-referrer">
+講道理這流水不低，至少比你開live賺多了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aendst  
+##### 7463#       发表于 2024-1-7 01:01
+
+我觉得最迷惑的是既然明年一月播为什么不放1st宣布，正好过年全都一块放出图个喜庆吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

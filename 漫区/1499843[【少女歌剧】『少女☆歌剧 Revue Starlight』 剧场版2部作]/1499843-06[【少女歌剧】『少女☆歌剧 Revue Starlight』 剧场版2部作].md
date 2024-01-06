@@ -65,3 +65,18 @@ OP：[https://youtu.be/XRaxV40NSNE](https://youtu.be/XRaxV40NSNE)
 
 OP44分组，啊光你又跑了
 
+
+*****
+
+####  Case  
+##### 8927#       发表于 2024-1-6 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63554913&amp;ptid=1499843" target="_blank">ardito 发表于 2024-1-6 17:41</a>
+
+OP44分组，啊光你又跑了</blockquote>
+按照官网介绍，剧场版结束以后，阿光现在已经回伦敦继续念书了。
+
+官网角色设定图都换上皇家戏剧学院的衣服了。
+
+这一作应该是两校交流活动项目。所以朱迪也跟着一起来了。
+

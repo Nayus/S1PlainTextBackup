@@ -2283,3 +2283,36 @@ IMG_2773.jpeg
 
 各位打ORT出了个奇怪问题怎么办没有下一关了.....
 
+
+*****
+
+####  シャル  
+##### 10722#       发表于 2024-1-6 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63555375&amp;ptid=2084912" target="_blank">michaelowen9 发表于 2024-1-6 18:30</a>
+
+各位打ORT出了个奇怪问题怎么办没有下一关了.....</blockquote>
+你太弱了
+
+重打<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 10723#       发表于 2024-1-6 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63555375&amp;ptid=2084912" target="_blank">michaelowen9 发表于 2024-1-6 18:30</a>
+
+各位打ORT出了个奇怪问题怎么办没有下一关了.....</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是翻车了吧。。
+
+*****
+
+####  alucardcz  
+##### 10724#       发表于 2024-1-6 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63550270&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-6 09:59</a>
+
+出了六个四星 依然没五星 这真的太酷啦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该课保底了
+

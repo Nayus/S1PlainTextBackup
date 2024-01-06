@@ -164,3 +164,13 @@
 
 哦吼，又能和大家一起继续追这玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3339#       发表于 2024-1-6 16:08
+
+【【1月】奇异贤伴 黑色天使 SYNDUALITY Noir 第13话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/zyrELsU](https://b23.tv/zyrELsU)
+
+大哥这是主动去找面具男了?
+

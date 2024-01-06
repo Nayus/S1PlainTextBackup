@@ -14956,3 +14956,82 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 越想越难绷，那看来ave1st结束就是公布2nd的就没东西了不过这个舰还是得上 ...</blockquote>
 本來想和你說幹嘛買一個不能看回放的直播，不如買eplus，而且eplus抽的還少很多，但轉念一想，我幹嘛要幫武士道算錢<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 7471#       发表于 2024-1-7 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559980&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 01:01</a>
+
+我觉得最迷惑的是既然明年一月播为什么不放1st宣布，正好过年全都一块放出图个喜庆吗 ...</blockquote>
+先讓樓友跌入屎坑，這樣1st不管給什麼發表都能開心了，武士道太為大家著想了，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7472#       发表于 2024-1-7 01:13
+
+ 本帖最后由 NODY 于 2024-1-7 01:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560026&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-7 01:09</a>
+
+手游箱活我记得时间是流动的吧这方面我不了解，不过只要不打折扣明年1月母鸡卡上映再到实装mygo是不 ...</blockquote>
+手游一年可以过现实三四年，没什么影响，尤其现在加了狗以后一轮活动90-100天，一年也就三轮半活动，放剧情里面的时间线可能一个月都没过去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+搜了一下，第二季19年1月ppp刚升二年级，然后一直到23年3月她们才升三年级，现实时间过了四年
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 赫尔墨斯的权杖| + 1||
+
+查看全部评分
+
+*****
+
+####  青蒜  
+##### 7473#       发表于 2024-1-7 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559223&amp;ptid=2159415" target="_blank">ellisnadie 发表于 2024-1-6 23:32</a>
+
+让我猜武士道的脑回路只能想到本来是想鸡接着播，于是13集加了鸡的live导入，后来mygo动画有热度后，直接播 ...</blockquote>
+再联想到独角兽之前有个采访里面说十月她还有一部作品，会藏到开播，这样看她本来是在说母鸡卡，结果因为wsd傻逼非要延期两边闹掰了，正好有个药屋单集就借坡下驴把推特简介改了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 7474#       发表于 2024-1-7 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560039&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 01:10</a>
+本來想和你說幹嘛買一個不能看回放的直播，不如買eplus，而且eplus抽的還少很多，但轉念一想，我幹嘛要幫 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说个怪话算是支持邦邦国内发展（？）
+然后就把我常看的资源给炸没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，至今没补档，wsdwcnnn
+
+*****
+
+####  PDQ4  
+##### 7475#       发表于 2024-1-7 01:20
+
+差不多现实三年手游一年，其实算算距离周年毕业马上一年了，等明年母鸡卡周年上那就是两年，不知道ksm后年能不能毕业<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7476#       发表于 2024-1-7 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560055&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 01:13</a>
+手游一年可以过现实三四年，没什么影响，尤其现在加了狗以后一轮活动90-100天，一年也就三轮半活动，放剧 ...</blockquote>
+好好好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7477#       发表于 2024-1-7 01:21
+
+你邦手游真能挣多少钱吗？怎么感觉还不如管人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

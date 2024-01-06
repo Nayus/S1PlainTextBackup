@@ -9629,3 +9629,75 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 私下不怎么接触不怎么合照也挺好的，不会到偷偷开小号吐槽队友的程度，你狗也没有p图只p自己这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liu461  
+##### 6863#       发表于 2024-1-6 15:13
+
+羊这不会在致敬前辈Z高达女士罢<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 6864#       发表于 2024-1-6 15:15
+
+公式书会有动画剧情解说和角色人设资料，官方为了让粉丝不要汴京真是太努力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+既然有角色资料的话那也会有身高爱好之类的吧，mujica还没进游戏就被公式书公开设定真的没关系吗
+
+*****
+
+####  御幸一也  
+##### 6865#       发表于 2024-1-6 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63553572&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-6 15:15</a>
+
+公式书会有动画剧情解说和角色人设资料，官方为了让粉丝不要汴京真是太努力了
+
+既然有角色资料的话 ...</blockquote>
+不太會有ave內容吧，第二季再賣一次<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 6866#       发表于 2024-1-6 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63553502&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-6 15:05</a>
+
+设定集要卖了，又有新料可以盘了</blockquote>
+是这个？不知道bd什么时候开始卖，想一起订省点邮费
+
+<img src="https://img.saraba1st.com/forum/202401/06/151643bein2sxl7qkoxsd7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 15:16 上传
+
+*****
+
+####  剪切线  
+##### 6867#       发表于 2024-1-6 15:18
+
+早期特典是啥
+
+*****
+
+####  QuattroVageena  
+##### 6868#       发表于 2024-1-6 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63553596&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-6 15:18</a>
+
+早期特典是啥</blockquote>
+日后公布
+
+<img src="https://img.saraba1st.com/forum/202401/06/151946hzm1lfpqcakdm1wf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 15:19 上传
+

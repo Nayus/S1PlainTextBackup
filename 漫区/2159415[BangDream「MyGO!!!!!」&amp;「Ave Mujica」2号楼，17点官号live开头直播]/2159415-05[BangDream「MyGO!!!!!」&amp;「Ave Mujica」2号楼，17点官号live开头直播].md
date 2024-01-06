@@ -15133,3 +15133,11 @@ mygo动画这个热度就不要了 等明年 ...</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  寒星  
+##### 7488#       发表于 2024-1-7 02:04
+
+真的受不了，预告个2025到底有什么意义，不预告维持期待度有什么坏处吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在知道要25才能播整个人都凉掉了
+

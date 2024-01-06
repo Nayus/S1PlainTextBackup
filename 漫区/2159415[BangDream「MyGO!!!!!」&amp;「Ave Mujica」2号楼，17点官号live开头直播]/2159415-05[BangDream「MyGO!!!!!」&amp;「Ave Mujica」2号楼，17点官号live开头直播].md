@@ -9997,3 +9997,364 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 C团的春日影，快快端上来吧
 
+
+*****
+
+####  Kasroz  
+##### 6901#       发表于 2024-1-6 19:12
+
+6th！！！
+
+*****
+
+####  江口夕  
+##### 6902#       发表于 2024-1-6 19:13
+
+尿了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Kasroz  
+##### 6903#       发表于 2024-1-6 19:14
+
+我心危联动
+
+*****
+
+####  御幸一也  
+##### 6904#       发表于 2024-1-6 19:14
+
+太搞笑了會場的兄弟，都以為是ave情報叫那麼大聲，結果是聯動我心危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+什麼 我也被騙了 好吧
+
+*****
+
+####  Mr.Giraffe  
+##### 6905#       发表于 2024-1-6 19:15
+
+幽默联动，这牌打的也忒好了，原来之前是为了这一刻而布局的吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月光的道标  
+##### 6906#       发表于 2024-1-6 19:15
+
+呃呃，有点难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 6907#       发表于 2024-1-6 19:15
+
+让你们天天烤羊不营业，联动一个羊喜欢营业的真大牌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 6908#       发表于 2024-1-6 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63555791&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-6 19:14</a>
+
+太搞笑了會場的兄弟，都以為是ave情報叫那麼大聲，結果是聯動我心危</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">谁听到不一激动啊，谁知道。。。
+
+*****
+
+####  bgod666  
+##### 6909#       发表于 2024-1-6 19:15
+
+爆笑
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6910#       发表于 2024-1-6 19:15
+
+c团春日影19800<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 6911#       发表于 2024-1-6 19:16
+
+动画？
+
+*****
+
+####  枫林不见  
+##### 6912#       发表于 2024-1-6 19:16
+
+卧槽 剧场版
+
+*****
+
+####  アコ  
+##### 6913#       发表于 2024-1-6 19:16
+
+嗯？剧场版
+
+*****
+
+####  Duncan_Spurs  
+##### 6914#       发表于 2024-1-6 19:16
+
+剧场版我操
+
+—— 来自 Google Pixel 6, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6915#       发表于 2024-1-6 19:17
+
+剧场版来了
+
+*****
+
+####  笋干爆炸碱  
+##### 6916#       发表于 2024-1-6 19:17
+
+？
+
+*****
+
+####  黄昏现白骨  
+##### 6917#       发表于 2024-1-6 19:17
+
+剧场版
+
+*****
+
+####  Acatv  
+##### 6918#       发表于 2024-1-6 19:17
+
+真是大的！
+
+*****
+
+####  rxds  
+##### 6919#       发表于 2024-1-6 19:17
+
+总集篇？
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6920#       发表于 2024-1-6 19:17
+
+<img src="https://p.sda1.dev/15/74b0a71a327c7c2274bdf5fc2fdb3ea6/CMP_20240106191731417.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mayloveless  
+##### 6921#       发表于 2024-1-6 19:17
+
+总集吧
+
+*****
+
+####  Acatv  
+##### 6922#       发表于 2024-1-6 19:18
+
+总集篇？名场面合订本！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 6923#       发表于 2024-1-6 19:18
+
+總集篇加一點新活
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  アコ  
+##### 6924#       发表于 2024-1-6 19:18
+
+新的live 3D动画端上来罢
+
+*****
+
+####  ninokagami  
+##### 6925#       发表于 2024-1-6 19:18
+
+感觉会有c团春日影的live版
+
+我没了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 6926#       发表于 2024-1-6 19:18
+
+mygo剧场版放映完之前不会放母鸡卡动画了吧
+
+*****
+
+####  笋干爆炸碱  
+##### 6927#       发表于 2024-1-6 19:18
+
+没说完全新作剧场版大概是总集篇？
+
+*****
+
+####  月光的道标  
+##### 6928#       发表于 2024-1-6 19:18
+
+有新画面的总集篇吧
+
+*****
+
+####  ytttsuuuba  
+##### 6929#       发表于 2024-1-6 19:18
+
+总集篇罢了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 6930#       发表于 2024-1-6 19:19
+
+猫猫视角的？
+
+
+*****
+
+####  Mr.Giraffe  
+##### 6931#       发表于 2024-1-6 19:19
+
+这歌听了谁不迷糊啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/ea1e92a35e2473818dc9d709575bb7ce/Screenshot_20240106_191311.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 6932#       发表于 2024-1-6 19:19
+
+<img src="https://p.sda1.dev/15/aef667c6fd895081c510ac61c3b33e38/CMP_20240106191914283.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  QuattroVageena  
+##### 6933#       发表于 2024-1-6 19:19
+
+原来是少歌剧场版 rondo rondo rondo啊
+
+*****
+
+####  mayloveless  
+##### 6934#       发表于 2024-1-6 19:19
+
+加了猫的故事？
+
+*****
+
+####  御幸一也  
+##### 6935#       发表于 2024-1-6 19:19
+
+<img src="https://img.saraba1st.com/forum/202401/06/191929t6om0a23anz42xml.png" referrerpolicy="no-referrer">
+
+<strong>ブシロード新春大発表会2024 5-48-26 screenshot.png</strong> (239.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-6 19:19 上传
+
+總集篇 補貓的戲份
+
+*****
+
+####  6030sylar  
+##### 6936#       发表于 2024-1-6 19:20
+
+第二季呢
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枫林不见  
+##### 6937#       发表于 2024-1-6 19:20
+
+给猫猫加戏，居然还有立希的戏份，这下真的是导演剪辑版了
+
+*****
+
+####  江口夕  
+##### 6938#       发表于 2024-1-6 19:20
+
+完咯，最早也是7月
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  66367749  
+##### 6939#       发表于 2024-1-6 19:21
+
+春日之影
+
+*****
+
+####  凡人  
+##### 6940#       发表于 2024-1-6 19:21
+
+7月？直接滑坡到25年<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 6941#       发表于 2024-1-6 19:21
+
+没说什么时候放映，母鸡卡可能要25年了
+
+*****
+
+####  アコ  
+##### 6942#       发表于 2024-1-6 19:21
+
+完了，这下母鸡卡要明年了
+
+*****
+
+####  傘木希美  
+##### 6943#       发表于 2024-1-6 19:21
+
+明年见？
+
+*****
+
+####  ytttsuuuba  
+##### 6944#       发表于 2024-1-6 19:21
+
+今年7月能播真的谢天谢地咯
+
+*****
+
+####  66367749  
+##### 6945#       发表于 2024-1-6 19:22
+
+感觉要明年1月了啊
+
+*****
+
+####  [皆神孝介]  
+##### 6946#       发表于 2024-1-6 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63553502&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-6 15:05</a>
+
+设定集要卖了，又有新料可以盘了</blockquote>
+有没有可能出个外国语版本，比如中文<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 6947#       发表于 2024-1-6 19:22
+
+换句话说，AVEMUJICA真的要到明年一月了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13255,3 +13255,129 @@ mujica如果不是绫奈脚本的话，那她不关注的也应该是mujica才�
 
 <img src="https://p.sda1.dev/15/61203d14669cb83efb49b9e18a025666/CMP_20240106215159249.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  友情的结晶  
+##### 7288#       发表于 2024-1-6 21:53
+
+我缺的这块kiss和婚礼谁给我补啊，最后只有对戒那种事不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  鲍里斯  
+##### 7289#       发表于 2024-1-6 21:53
+
+如果独角兽和柿本真闹翻了，那最好mujica是早做完了压箱底，而是不是万策尽了拖一年
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 7290#       发表于 2024-1-6 21:54
+
+往好里想，至少还关注mujica，不可能完全甩手。
+
+至少以前推特的初睦祥脑洞还在，我的幼驯染组mujica还会卖
+
+我的女女关系性要是无了跟WSD不共戴天<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 7291#       发表于 2024-1-6 21:54
+
+独角兽看到第二季动画播出那一天 
+下定决心亲自创作一部新的少女乐队动画
+
+这下全对上了
+
+*****
+
+####  棒读  
+##### 7292#       发表于 2024-1-6 21:54
+
+独角兽和柿本闹翻也没道理啊，他们今年还有一部PA的原创动画呢，你要说她跟武士道闹翻我都相信
+
+*****
+
+####  棒读  
+##### 7293#       发表于 2024-1-6 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558112&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-6 21:54</a>
+
+独角兽看到第二季动画播出那一天 
+
+下定决心亲自创作一部新的少女乐队动画</blockquote>
+sunles，让我忘记一切吧……
+
+下一部百合高达的剧本就是你了，独角兽，听名字一定会火的
+
+*****
+
+####  meailove  
+##### 7294#       发表于 2024-1-6 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558113&amp;ptid=2159415" target="_blank">棒读 发表于 2024-1-6 21:54</a>
+
+独角兽和柿本闹翻也没道理啊，他们今年还有一部PA的原创动画呢，你要说她跟武士道闹翻我都相信 ...</blockquote>
+说不定剧本完成后才闹翻的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 7295#       发表于 2024-1-6 21:57
+
+ 本帖最后由 -LYRE- 于 2024-1-6 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558038&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-6 21:50</a>
+独角兽:我最想说的话已经让灯说了，我最想表达的故事也已经在mygo展示了。。。 ...</blockquote>
+已经全说完了跟mygo没有什么好说的了，所以把mygo取关切割了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7296#       发表于 2024-1-6 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558113&amp;ptid=2159415" target="_blank">棒读 发表于 2024-1-6 21:54</a>
+独角兽和柿本闹翻也没道理啊，他们今年还有一部PA的原创动画呢，你要说她跟武士道闹翻我都相信 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">那部原创动画绫奈就没提过，而且访谈另一个脚本都有，唯独跳过了绫奈
+
+*****
+
+####  PDQ4  
+##### 7297#       发表于 2024-1-6 21:58
+
+日本推特取关还是太怪了，明明狗播完后俩人还出访谈看不到迹象，到底什么时候取关的。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+绫奈不对鸡发癫我都觉得少点什么，为什么不转动画情报<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  感到非常失望  
+##### 7298#       发表于 2024-1-6 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558038&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-6 21:50</a>
+
+独角兽:我最想说的话已经让灯说了，我最想表达的故事也已经在mygo展示了。。。 ...</blockquote>
+惊了？有这么说话的吗？就算大脑不能运作也不要用小脑说话，一起扔了也是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asukaasu  
+##### 7299#       发表于 2024-1-6 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558161&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-6 21:58</a>
+那部原创动画绫奈就没提过，而且访谈另一个脚本都有，唯独跳过了绫奈 ...</blockquote>
+因为她是脚本最后一位，估计就是个写单集脚本打工的
+
+*****
+
+####  节艾司  
+##### 7300#       发表于 2024-1-6 22:02
+
+也许她还没写呢，排班还没排到那
+

@@ -4075,3 +4075,13 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  清风朗月  
+##### 45904#       发表于 2024-1-6 11:37
+
+ 本帖最后由 清风朗月 于 2024-1-6 11:39 编辑 
+
+210石15呼符出了二宝暗狐，但是没有藤乃<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，个人觉得武内在fgo里画的最好的俩女人就是215和藤乃了
+

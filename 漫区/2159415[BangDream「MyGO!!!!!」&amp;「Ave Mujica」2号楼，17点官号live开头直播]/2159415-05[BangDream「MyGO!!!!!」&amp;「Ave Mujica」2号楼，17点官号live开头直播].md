@@ -9724,3 +9724,39 @@ Z87在帝都一被羊明智取二来发现羊明油脂含量比想象中少，�
 
 延迟十五分钟，最近果然抓的严，不知道到时候直播live会怎么样
 
+
+*****
+
+####  江口夕  
+##### 6871#       发表于 2024-1-6 15:33
+
+ 本帖最后由 江口夕 于 2024-1-6 15:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估計過幾年有名氣了就人設大變了，畢竟真實三次元世界本性這種真實的東西藏不了太久。特別是你棒企劃事先接受了這種人設。你棒營業途中暴露本性估計粉絲都要黑人問號了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  傘木希美  
+##### 6872#       发表于 2024-1-6 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63553705&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-6 15:32</a>
+
+延迟十五分钟，最近果然抓的严，不知道到时候直播live会怎么样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还真是，到时候要是延迟就难顶了
+
+*****
+
+####  ninokagami  
+##### 6873#       发表于 2024-1-6 15:38
+
+草，卖蛋白棒有瘾是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 6874#       发表于 2024-1-6 15:42
+
+服了，到底产了多少蛋白棒，卖不完了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

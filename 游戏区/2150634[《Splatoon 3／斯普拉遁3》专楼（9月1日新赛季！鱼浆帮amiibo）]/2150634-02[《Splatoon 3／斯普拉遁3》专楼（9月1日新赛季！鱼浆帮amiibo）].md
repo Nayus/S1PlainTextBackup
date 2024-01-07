@@ -8326,3 +8326,21 @@ sb泡伤害是够的不过手感太💩了
 
 日你〇，第一次遇到在后排把鱼闷在手里直到鱼要炸了才肯往前走的，一个劲射射射你以为鱼是什么神威无敌大炮吗，本来最后半分钟对面掉3个，10分分差只要肯走就反超的结果等他想起来走鱼就剩5秒了给自己人炸个团灭<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 2339#       发表于 2024-1-7 19:23
+
+930，怎么就那么难啊.....
+
+*****
+
+####  晴岚  
+##### 2340#       发表于 2024-1-7 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63566757&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-1-7 19:09</a>
+
+日你〇，第一次遇到在后排把鱼闷在手里直到鱼要炸了才肯往前走的，一个劲射射射你以为鱼是什么神威无敌大炮 ...</blockquote>
+感觉起码要到2200往上才能大部分情况下匹配到正常队友（
+

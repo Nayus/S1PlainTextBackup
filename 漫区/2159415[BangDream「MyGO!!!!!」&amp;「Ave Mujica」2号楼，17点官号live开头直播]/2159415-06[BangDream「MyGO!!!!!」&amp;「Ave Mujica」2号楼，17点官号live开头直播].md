@@ -4183,3 +4183,20 @@ ave mujica新歌angles
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Aendst  
+##### 7924#       发表于 2024-1-7 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63566853&amp;ptid=2159415" target="_blank">冰寒之月 发表于 2024-1-7 19:19</a>
+
+素晴らしき世界 でも どこにもない場所 utopia这首歌
+
+最开始的管风琴音色还有点宏大展开巴洛克式的感觉 
+
+但 ...</blockquote>
+长谷川大介的问题，他能力上明显有不足
+
+乐队出身吉他手，擅长类型也都是日音主流比较常见的，感觉古典功底不行
+

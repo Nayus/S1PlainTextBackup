@@ -945,3 +945,30 @@ ED
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了眼PV，主人牵着狗子脑补了一下糟糕的东西。。
 
+
+*****
+
+####  a85982313  
+##### 363#       发表于 2024-1-7 11:03
+
+竟然有华哥
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  leleq  
+##### 364#       发表于 2024-1-7 11:09
+
+ 本帖最后由 leleq 于 2024-1-7 11:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">还真是成田！
+
+我前2天在想，说是狗变Q娃实质上不就是银兽变人变Q娃那套么——那不就是战队？！战队23这才把成田大妈请来这不用上……艹还真用上了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+战队按那套，粉白就是性转coco或者Milk呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哦再加上一个兔子3个齐了
+
+战队23成田大妈表现就是个灌水逼一点都不靠谱……今年天Q有金月不错的主线都被灌水灌得评价大跌了明年<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+考虑到现在的情况和成田xp虽然结局很可能是主从配但过程可能相当jb乱<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">河豚还是离远点比较好
+

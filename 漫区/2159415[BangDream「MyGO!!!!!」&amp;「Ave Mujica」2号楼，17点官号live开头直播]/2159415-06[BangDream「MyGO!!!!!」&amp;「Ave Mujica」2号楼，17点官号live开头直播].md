@@ -1532,3 +1532,251 @@ wsd一直都是死x玩意啊<img src="https://static.saraba1st.com/image/smiley/
 
 原来真的是客服S打工劳累过度算错时间，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 7656#       发表于 2024-1-7 11:03
+
+<blockquote>御幸一也 发表于 2024-1-7 10:53
+你別混為一談，她罵她的我罵我的，我罵的一直是憑什麼讓ave mujica動畫讓路那個總集篇，我就不爽這一點。 ...</blockquote>
+我非常支持骂wsd和hibiki
+
+搞啥啥不行还喜欢虐粉更喜欢虐小偶像 
+
+真的是越菜的公司越喜欢搞幺蛾子 
+
+绫奈这事我猜测都是武士道觉得绫奈版本太激进（但作为故事肯定更好）不利于手游起了矛盾呢
+
+这剧场版插入都怀疑是故意的了 引起粉丝内斗 之前也不是没搞过
+
+*****
+
+####  Aendst  
+##### 7657#       发表于 2024-1-7 11:03
+
+ 本帖最后由 Aendst 于 2024-1-7 11:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前也有几个信誓旦旦的，结果到时间都没人影了，见怪不怪了
+
+不过都这样了也不骂武士道还要反过来用骂可以武士道当理中客是我没想到的
+
+*****
+
+####  御幸一也  
+##### 7658#       发表于 2024-1-7 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561935&amp;ptid=2159415" target="_blank">浅香山的熊 发表于 2024-1-7 11:01</a>
+
+说了在这贷款资源倾斜的 能不能等27号1st之后再说啊 到时候🐔没资源我跟你们一样问候wsd ...</blockquote>
+怎麼了，我看了下樓友好像也不是空穴來風啊，
+
+你要說平移PPT MV是ave mujica風格吧，好吧，那新圖呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7659#       发表于 2024-1-7 11:04
+
+那完了，我觉得没了绫奈的话鸡剧本跟寄了差不多。
+
+我缺的女女关系性怎么办，幻羽同期5ch拉拉人还黑屁把绫奈拉过来，结果你邦疑似自己内部出问题可太搞笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Giraffe  
+##### 7660#       发表于 2024-1-7 11:05
+
+剪切线含金量绝赞上升中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7661#       发表于 2024-1-7 11:06
+
+新歌听起来感觉还是不错的
+
+*****
+
+####  yuyin589  
+##### 7662#       发表于 2024-1-7 11:06
+
+但凡今天有一张好看点的新图也不会吵成这样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  鲍里斯  
+##### 7663#       发表于 2024-1-7 11:07
+
+乐了，这下资源倾斜变成贷款了，鸡的MV能动吗？曲绘能不重复吗？怎么就变成贷款了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  浅香山的熊  
+##### 7664#       发表于 2024-1-7 11:08
+
+难道一场live的主视觉，角色设计图不是只有一版吗 难道🐶一次live的角色有两版设计？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7665#       发表于 2024-1-7 11:08
+
+开国际玩笑是吧，mygo的live主视觉图可从来没回收再利用到pv里过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7666#       发表于 2024-1-7 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561941&amp;ptid=2159415" target="_blank">友情的结晶 发表于 2024-1-7 11:02</a>
+那想两边一起讨论的去哪，要不干脆一气化三清，两边毒唯各一楼理客中再一楼
+
+论坛助手,iPhone ...</blockquote>
+当然是去百综<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 7667#       发表于 2024-1-7 11:09
+
+母鸡卡动画定档是在mygo的场子上，而不是时间接近的1st上就很离谱
+
+*****
+
+####  菠萝啵啵啵  
+##### 7668#       发表于 2024-1-7 11:09
+
+我不太了解类似的企划，资源也好排期也好没啥发言权，在意的还是动画这边
+从开播前百合之日的安利还有每集播出的宣传，能感受到独角兽老师是真的把mygo当成自己得意的作品在宣传和安利的。追番的时候独角兽老师的关系图和百合暴言对我来说也是很大的乐趣
+虽然不知道具体发生了什么，现在对企划的态度这样，总感觉很难过。
+昨天看25.1予定的时候虽然震惊其实觉得也能接受，至少为喜欢的作品等待也是快乐的，看了早上的推特截图现在有点不安です了。
+
+*****
+
+####  QuattroVageena  
+##### 7669#       发表于 2024-1-7 11:09
+
+楼友冷静点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+离动画播出还有一年，再等个二十多天也不会怎么样，要不还是先看看27号的live再说吧，毕竟大家都承认live绝对是大头，真不行再看是不是真切割
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7670#       发表于 2024-1-7 11:09
+
+新歌。。。还行吧
+
+*****
+
+####  御幸一也  
+##### 7671#       发表于 2024-1-7 11:10
+
+說的新曲MV，你在說什麼演唱會主視覺圖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本來烏托邦那首歌用演唱會視覺圖就感覺很省了，第二首歌還這樣？
+
+來一個狗粉告訴我mygo的MV有沒有用演唱會圖的，因為我不知道<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 7672#       发表于 2024-1-7 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562001&amp;ptid=2159415" target="_blank">浅香山的熊 发表于 2024-01-07 11:08:08</a>
+难道一场live的主视觉，角色设计图不是只有一版吗 难道🐶一次live的角色有两版设计？ ...</blockquote>看，就是有这种得了便宜还要装理中客的才会吵成这样
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|我也覺得捏|
+
+查看全部评分
+
+*****
+
+####  笋干爆炸碱  
+##### 7673#       发表于 2024-1-7 11:10
+
+装瞎尬洗真要不得，没意思了哈
+
+*****
+
+####  lhwang11  
+##### 7674#       发表于 2024-1-7 11:10
+
+歌整体还是满意的，但是何年何月能混到一个认真做的MV
+
+*****
+
+####  66367749  
+##### 7675#       发表于 2024-1-7 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561935&amp;ptid=2159415" target="_blank">浅香山的熊 发表于 2024-1-7 11:01</a>
+说了在这贷款资源倾斜的 能不能等27号1st之后再说啊 到时候🐔没资源我跟你们一样问候wsd ...</blockquote>
+下一次一定会让人满意的，不好就如何如何，这种话还是少说比较好
+
+*****
+
+####  泥潭办证先锋  
+##### 7676#       发表于 2024-1-7 11:11
+
+邦的MV大多是时候都是很穷的PPT<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，习惯就好。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  stygian  
+##### 7677#       发表于 2024-1-7 11:11
+
+乐，一号楼门可罗雀的时候我可没想到你楼会发展成这样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 7678#       发表于 2024-1-7 11:11
+
+当然推特关注也就图一乐
+
+<img src="https://img.saraba1st.com/forum/202401/07/111057tllllzavdq7qv5vv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0971.jpeg</strong> (203.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 11:10 上传
+
+毕竟连这傻逼也没取关呢
+
+*****
+
+####  PDQ4  
+##### 7679#       发表于 2024-1-7 11:11
+
+1st后再讲这话感觉品鉴的也够多了。现在骂就是贷款吃屎，以后骂就是早干嘛去了，早分楼早好。
+
+狗粉接下来一年巡演四单设定集bd剧场版两天万人场喂的饱饱的，四单还塞了个单独event没有宣，看鸡粉就个1st以及甚至不是定档而是予定明年的动画当然没法共情。
+
+早分楼早解脱。
+
+b号那个pv下面都有狗粉直言只想看狗第二季不想看鸡呢，早该分楼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7680#       发表于 2024-1-7 11:12
+
+分楼这事效仿水魔故事就行，问题不大，就看版主同不同意了
+

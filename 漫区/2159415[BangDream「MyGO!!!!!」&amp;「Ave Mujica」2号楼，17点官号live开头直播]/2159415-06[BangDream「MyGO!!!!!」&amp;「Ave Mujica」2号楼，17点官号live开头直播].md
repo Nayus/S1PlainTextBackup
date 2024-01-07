@@ -6043,3 +6043,78 @@ film live是因为难得在第二季做了不少live场景，所以想要把背�
 立绘到底是贵还是便宜？</blockquote>
 别说了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ecauchy  
+##### 8079#       发表于 2024-1-7 23:33
+
+还是要声明这些只是综合现有信息得到的能解释最多前提的模型、假设、猜想，并不是事实。（我甚至不会说“并不一定是事实”，而是“并不是事实”。）
+
+我认为哪怕最离谱的猜想也比一团乱麻、放弃思考、统统归咎给“就是武士道【消音】”“mggm【消音】”要好，至少模型是可以得到检验的。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 8080#       发表于 2024-1-7 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569486&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 23:27</a>
+
+那我先按照你的想法来推一遍（当然，都是假设）：
+
+1. 独角兽于10月和制作组因为剧本不和而闹掰，制作组当 ...</blockquote>
+結合你說的，第二季和第三季，我覺得按照你理解的一早就確定要做劇場版是對的，
+
+但mygo-ave mujica這邊，我還是覺得ave mujica已經做完了。
+
+因為如果和訪談說的第二季/第三季/FLIM LIVE的情況一樣，一早就決定在mygo-ave mujica之間做這個總集篇，是無法解釋ave mujica為什麼9月就開始配音了，
+
+所以mygo-ave mujica更像是連續製作的，總集篇是加塞進來。
+
+至於你的動畫修改論，我其實不太買賬，但是我好像也沒什麼自信和論據去說你不對<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8081#       发表于 2024-1-7 23:34
+
+约立绘曲绘花不了多少钱，但是鸡这边新图少得可怜是事实，可能wsd抠比到没钱给鸡在外约稿了吧，要是下一首曲子还是一套立绘搁这ppt平移真的难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前五首抛开神笨蛋的曲绘多好啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 8082#       发表于 2024-1-7 23:35
+
+有没有解释一下官x上原本锐意制作中换成剧场版的  这个才是我觉得最迷惑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 8083#       发表于 2024-1-7 23:36
+
+之前也说了，你🐔现在只能看1st之后能不能开始正式宣传，至少去年都没有一点宣传的痕迹<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8084#       发表于 2024-1-7 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569548&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-7 23:35</a>
+
+有没有解释一下官x上原本锐意制作中换成剧场版的  这个才是我觉得最迷惑的 ...</blockquote>
+那還能怎麼解釋，加塞咯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+

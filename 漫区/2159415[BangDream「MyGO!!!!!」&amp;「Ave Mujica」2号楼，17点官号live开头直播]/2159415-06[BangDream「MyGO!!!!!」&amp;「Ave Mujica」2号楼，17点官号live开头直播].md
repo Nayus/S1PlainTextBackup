@@ -3536,3 +3536,66 @@ NGA有个被屏蔽的帖子说是厕妹对暗号用的
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7854#       发表于 2024-1-7 14:23
+
+<img src="https://p.sda1.dev/15/302cff412d73f7a020a250fb5f732746/Image_1704608607318.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7855#       发表于 2024-1-7 14:24
+
+前提是有鸡饲料，要是还跟现在这样全靠场外中之人营业，只有live前憋几首新歌，曲绘MV一直这个样，很难说我能一直熬着，不然迟早被WSD气死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7856#       发表于 2024-1-7 14:25
+
+ 本帖最后由 Aendst 于 2024-1-7 14:31 编辑 
+
+项目寿命我觉得挺合理的，手游也在变动期，总体来说mygo刚播完动画确实势头正好，再推一把是可以理解的
+
+但个人感受吧，真的有mujica粉完全不羡慕吗？
+
+mujica我不太理解，可能是觉得还在宣发量活动量较低的前期？不论如何我还是没办法跟复用立绘和解
+
+说白了就是东西太少了，还早就宣传了要播动画，结果后续内容量不够质也不行
+
+*****
+
+####  青蒜  
+##### 7857#       发表于 2024-1-7 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563965&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-7 14:19</a>
+
+武士道的钱大概全花在和木口联动了吧</blockquote>
+懂了，都怪木口从中作梗，让wsd放弃大陆市场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11A511  
+##### 7858#       发表于 2024-1-7 14:28
+
+<blockquote>Kasroz 发表于 2024-1-7 14:07
+大概就是改剧本后发现工期上来不及，临时决定加两个总集篇剧场版，这样理解最通顺 ...</blockquote>
+最近武士道TCG以外部门的财政状况相当不理想，有那个钱吗…
+
+*****
+
+####  skives  
+##### 7859#       发表于 2024-1-7 14:28
+
+紫吧已经快进到了武士道为了稳住羊才做了这一切的版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7860#       发表于 2024-1-7 14:31
+
+有ras漫画的先例，1st要不宣布出个mujica的前传漫画讲一下每个人入团前的经历撑个一年吧，c团元和二年、海铃雇佣兵生涯、喵老师博主日常、初华sumimi打拼记之类的，反正这些东西正片肯定不会说太多的，应该不会和到时候的悬疑解密有太大的矛盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3783,3 +3783,52 @@ GO团粉丝对动画结局不满也不是这两天的事，将来如果官方在
 
 还扯到kmt和tg了，不知道大哥是开玩笑的还是怎么着
 
+
+*****
+
+####  Aloereed  
+##### 7882#       发表于 2024-1-7 15:03
+
+wsd这班子草台到Mujica动画官网都没更新播放告知PV
+
+*****
+
+####  66367749  
+##### 7883#       发表于 2024-1-7 15:03
+
+希望这段时间里除了复用立绘之外能有点新东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7884#       发表于 2024-1-7 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63564380&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-1-7 15:03</a>
+wsd这班子草台到Mujica动画官网都没更新播放告知PV</blockquote>
+别是又后悔了开始骚操作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 7885#       发表于 2024-1-7 15:07
+
+到时候别嗨呀我们打错了斯密马赛就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 7886#       发表于 2024-1-7 15:08
+
+mujica官推现在还没转定档呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 7887#       发表于 2024-1-7 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63564422&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-7 15:07</a>
+到时候别嗨呀我们打错了斯密马赛就搞笑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">1st安排oblivionis上去提档我还能原谅他
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

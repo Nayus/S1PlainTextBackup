@@ -1031,3 +1031,93 @@ wsd整烂活儿骂就是了，搞内斗切割是什么意图？替wsd转移火�
 
 所以我支持分楼，mujica推自己吐黑泥，省得路人和mygo推感觉闹麻了
 
+
+*****
+
+####  爱丁堡official  
+##### 7609#       发表于 2024-1-7 10:33
+
+要分东西罗马了吗？（还是东西魏？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  浅香山的熊  
+##### 7610#       发表于 2024-1-7 10:36
+
+不知道的还以为糊邦多火呢 重现缪水大战是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+我始终认为邦邦整个企划的统一性还是很强的 更别提成员关系如此密切的🐶🐔了
+
+*****
+
+####  nebulanoby  
+##### 7611#       发表于 2024-1-7 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561660&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-1-7 10:33</a>
+要分东西罗马了吗？（还是东西魏？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+于是我想到了这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【【合理分析】ave mujica为何必秒mygo？两团的实力差距到底如何（bushi-哔哩哔哩】 https://b23.tv/PTWzuCQ
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 7612#       发表于 2024-1-7 10:36
+
+理中客收收味，你理中客完了母鸡卡可以提前出吗，脑子正常的人都能看出剧场版是新加的，比鸡提前出怎么狗动画播完不提剧场版，拿锐意制作中吊着鸡粉然后25年。
+
+现在不提双子团了？你这个双子团怎么只有一个框框出东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鸡粉本来怨气就大，加上绫奈发生了啥完全不知道，骂骂wsd不端水看给你急的，不知道的以为wsd才是你亲爹，就这豚楼还指望切割二游呢，厂商孝子这不是不少嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 7613#       发表于 2024-1-7 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">mygo疑似要一年走完拉拉缪水大战的进度条
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 酒石酸唑吡坦| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  millaboreus13  
+##### 7614#       发表于 2024-1-7 10:37
+
+那mujica动画里有mygo成员戏份是不是要两楼正式开战啊？
+
+*****
+
+####  higuchiguchi  
+##### 7615#       发表于 2024-1-7 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561698&amp;ptid=2159415" target="_blank">millaboreus13 发表于 2024-1-7 10:37</a>
+
+那mujica动画里有mygo成员戏份是不是要两楼正式开战啊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">为什么要想那么远的事 被wsd这样一搞 人到时候都跑光了吧还战
+
+*****
+
+####  本间日阳  
+##### 7616#       发表于 2024-1-7 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">mygo和mujica虽然从描写上就不可分割，但它描写也是按照宿敌/对手关系描写的啊。除非武士道上来就包饺子，我觉得是可以预见到mujica动画里两个团要在各方面对决的。就算这动画就算没有隔一年，也不考虑各种三次元因素，这架迟早也是会吵的。
+

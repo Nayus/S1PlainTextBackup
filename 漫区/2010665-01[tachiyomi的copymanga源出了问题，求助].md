@@ -2750,3 +2750,13 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  keroghy  
+##### 278#       发表于 2024-1-7 10:37
+
+找到解决办法了<img src="https://p.sda1.dev/15/9ed453a60eb7f9081e8001b86b7e75a6/CMP_20240107103643658.jpg" referrerpolicy="no-referrer">，高级设置里有清楚下载索引，好像也是这次更新加的
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

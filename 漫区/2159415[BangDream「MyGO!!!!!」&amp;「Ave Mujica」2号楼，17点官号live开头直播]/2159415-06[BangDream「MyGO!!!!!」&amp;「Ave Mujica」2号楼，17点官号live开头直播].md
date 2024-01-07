@@ -262,3 +262,73 @@ wsd不会真要搞鸡狗切割吧<img src="https://static.saraba1st.com/image/sm
 谁不骂武士道了  只是说别真被虐粉老套路搞得不患寡而患不均  一边说着“运营肯定偏爱mygo/mujica”一边暗 ...</blockquote>
 谁跟你自家企划了
 
+
+*****
+
+####  kangkangsama  
+##### 7529#       发表于 2024-1-7 09:03
+
+<blockquote>Aendst 发表于 2024-1-7 09:02
+谁跟你自家企划了</blockquote>
+去看眼科
+
+*****
+
+####  青蒜  
+##### 7530#       发表于 2024-1-7 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560940&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-7 08:55</a>
+谁不骂武士道了  只是说别真被虐粉老套路搞得不患寡而患不均  一边说着“运营肯定偏爱mygo/mujica”一边暗 ...</blockquote>
+对官方信任崩塌了才是最要命的，其余的都是小事
+
+
+*****
+
+####  Aendst  
+##### 7531#       发表于 2024-1-7 09:04
+
+<blockquote>kangkangsama 发表于 2024-1-7 09:03
+去看眼科</blockquote>
+回小学重学语文
+
+*****
+
+####  青蒜  
+##### 7532#       发表于 2024-1-7 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560940&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-7 08:55</a>
+谁不骂武士道了  只是说别真被虐粉老套路搞得不患寡而患不均  一边说着“运营肯定偏爱mygo/mujica”一边暗 ...</blockquote>
+再说了，真有通过开除系列构成来虐粉的吗？这是虐粉还是自爆？
+
+*****
+
+####  棒读  
+##### 7533#       发表于 2024-1-7 09:05
+
+从散伙开始的故事最终走向现实中的散伙，至此已成艺术……独角兽老师戴上面具去拍高达吧，sunles，让我忘记一切吧
+
+*****
+
+####  patapon3  
+##### 7534#       发表于 2024-1-7 09:06
+
+有点像兽娘2，不确定再看看
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Aendst  
+##### 7535#       发表于 2024-1-7 09:07
+
+<blockquote>青蒜 发表于 2024-1-7 09:05
+再说了，真有通过开除系列构成来虐粉的吗？这是虐粉还是自爆？</blockquote>
+mygo单推当然无所谓啦
+
+*****
+
+####  6030sylar  
+##### 7536#       发表于 2024-1-7 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这说得怎么像吃了竞业
+

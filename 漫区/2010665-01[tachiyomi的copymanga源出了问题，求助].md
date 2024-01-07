@@ -2700,3 +2700,15 @@ vomic源用不了了有漏油知道解决办法吗<img src="https://static.sarab
 
 tachiyomi 根据某个韩国野鸡版权商的请求把 mangadex 和 bato 源给扬了。感觉应该换软件了
 
+
+*****
+
+####  azbhg1  
+##### 273#       发表于 2024-1-7 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63559976&amp;ptid=2010665" target="_blank">Saker_bobo 发表于 2024-1-7 01:01</a>
+用这个 之前拷贝插件的维护者自己更新的
+
+https://github.com/stevenyomi/copymanga</blockquote>
+这个也用不了了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

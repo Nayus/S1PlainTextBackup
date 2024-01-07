@@ -656,3 +656,87 @@ staff也就这点出息，看看今年花几集变回传统白开水
 
 真的母狗q娃<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  毛头小希  
+##### 339#       发表于 2024-1-7 09:03
+
+要是真能提现侦探和怪盗要素的话我倒是挺期待的，bg不bg我无所谓
+
+是说这个兔子男怎么看都像魔樱的月城雪兔吧……养的也是兔子
+
+*****
+
+####  Piano-Forest  
+##### 340#       发表于 2024-1-7 09:10
+
+PV：[https://youtu.be/BPRbvtFnkYs](https://youtu.be/BPRbvtFnkYs)
+
+放送情報
+
+ABCテレビ・テレビ朝日系列全国24局ネット：2024年2月4日（日）より毎週日曜日8:30～
+
+BSS山陰放送：2024年2月11日（日）より毎週日曜日6:15～
+
+スタッフ
+
+シリーズディレクター：佐藤雅教
+
+シリーズ構成：成田良美
+
+キャラクターデザイン：内田陽子
+
+衣装・プロップデザイン：NaSka
+
+美術デザイン：いいだりえ
+
+チーフ美術：今井美紀
+
+色彩設計：清田直美
+
+音楽：深澤恵梨香
+
+キャスト
+
+キュアワンダフル／犬飼こむぎ：長縄まりあ
+
+キュアフレンディ／犬飼いろは：種崎敦美
+
+OP
+
+【わんだふるぷりきゅあ！evolution!!】
+
+歌：吉武千颯　
+
+作詞：こだまさおり　
+
+作曲・編曲：EFFY
+
+ED
+
+【FUN☆FUN☆わんだふるDAYS！】
+
+歌：石井あみ＆後本萌葉　
+
+作詞：マイクスギヤマ　
+
+作曲：ヒゲドライバー　
+
+編曲：石塚玲依
+
+<img src="https://p.sda1.dev/15/81ad1d8beff7837057011034b9115534/20240107_085034.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/52aa6bf1aae3c9fa61f34867871e2b05/p_info_02.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4a1e4e47b9ffa907918d5cb6a65bcc6f/20240107_085137.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/57a77a936046ba903d42f399e271129b/e7cbae74gy1hlkoyjz26aj218g0voqhv.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/9f8112c4b3a7f5b052559e208aed8195/e7cbae74gy1hlkoyhafygj20og0iwgw3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/343deaaccff4d23345266cfec8275802/20240107_085227.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/aa32fa44c9256a10df028ffe460b3756/e7cbae74gy1hlkoypc77dj218g0vok4m.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/cc3467ef8de3ebe3311d588d43fc67a5/e7cbae74gy1hlkoyskjnrj218g0vox4e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/6818666d5666b2dd19fbdce70c805acc/20240107_085141.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/d1333b51a35eeb12c0e453fd1141a6b0/e7cbae74gy1hlkoyxgafzj218g0voqmu.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/c2c9877c10655a8beedee985186ad50f/e7cbae74gy1hlkoz0ys3qj218g0vonnv.jpg" referrerpolicy="no-referrer">
+

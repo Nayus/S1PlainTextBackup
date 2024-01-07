@@ -4096,3 +4096,15 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 210石15呼符出了二宝暗狐，但是没有藤乃，个人觉得武内在fgo里画的最好的俩女人就是215和藤乃了，水 ...</blockquote>
 暗狐怎么用，要抽二宝以上吗
 
+
+*****
+
+####  清风朗月  
+##### 45906#       发表于 2024-1-7 10:56
+
+ 本帖最后由 清风朗月 于 2024-1-7 11:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561379&amp;ptid=1712412" target="_blank">史艳文 发表于 2024-1-7 09:59</a>
+
+暗狐怎么用，要抽二宝以上吗</blockquote>
+自己当打手最好要二宝好友助战最好也二宝以上，双暗狐配队没开20np被动前最好带50NP礼装上场（我和好友都带的百级醉贞），二面血厚二技能最好留一个给自己来放宝具，打手最好选摩根蛾子这种能给别人充的，组队比较苛刻但但是花样多一点，没双杀狐直接上手好用
+

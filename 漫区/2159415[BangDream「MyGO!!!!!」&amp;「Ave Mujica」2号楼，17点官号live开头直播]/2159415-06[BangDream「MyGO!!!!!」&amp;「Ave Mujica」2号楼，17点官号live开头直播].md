@@ -1364,3 +1364,171 @@ mygo播的时候我还翻译过迷子集会和乐队人实况，手游剧情我�
 
 不是，你给🐔爆再多的米它也是25年再出啊，我不爆了也是25年出，真想让两团内斗提纯就应该不公布🐔团上线时间然后再公布🐶的总集篇，所以现在才会骂wsd的迷惑操作你懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  haoshion  
+##### 7637#       发表于 2024-1-7 10:53
+
+这就是偶像企划吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7638#       发表于 2024-1-7 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561811&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-7 10:48</a>
+
+谁跟你理客中了 非要话说明白点别tm在这借着骂wsd阴湿狗团吗 抬头看看这楼叫啥 阴湿狗能让你母鸡卡出早点吗 ...</blockquote>
+你別混為一談，她罵她的我罵我的，我罵的一直是憑什麼讓ave mujica動畫讓路那個總集篇，我就不爽這一點。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+我還沒有滑坡到資源傾斜，也沒有滑坡到改劇本。
+
+還有你也會說看看這樓叫什麼，我理解ave粉的不爽，因為我也怒火中燒，你理解不了那你去說服一下她唄，我懶得撞其他粉槍口。
+
+*****
+
+####  天球仪观测者  
+##### 7639#       发表于 2024-1-7 10:53
+
+wsd一直都是死x玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7640#       发表于 2024-1-7 10:54
+
+希腊奶捏。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+理中客敏感可能是觉得狗资源好是天经地义，是强推之光，鸡粉酸两句就是骂了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+天天搁那骂切割党，怎么推企划的时候切割的这么完美，推狗的时候都推不动鸡，播狗动画的时候都播不了鸡。毕竟被吊的不是狗粉，wsd一直在狠狠喂饭，又是广播又是小动画，动画播完了猫戏份少赶紧出个剧场版找补。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两团差异这么大不切割本来就觉得wsd脑子有坑，不会觉得粉丝其实都是本质wsd厨吧，我们老登真是太厉害啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅香山的熊  
+##### 7641#       发表于 2024-1-7 10:55
+
+作为缪水大战的见证者 真不想看到糊邦重现缪水大战那时候的恶臭氛围了
+
+骂wsd归骂wsd 在这整切割啥的真没意思
+
+*****
+
+####  nebulanoby  
+##### 7642#       发表于 2024-1-7 10:55
+
+不是说什么，邦企划粉也是应该攻击BSR的，啥时候PJSK真把邦邦打爆了，就是纯纯BSR自己作出来的
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  笋干爆炸碱  
+##### 7643#       发表于 2024-1-7 10:56
+
+非要待在同一个楼里更没意思，都这样了
+
+*****
+
+####  Aendst  
+##### 7644#       发表于 2024-1-7 10:56
+
+我都说过了，你们觉得黑泥不妥觉得有人切割能不能先骂骂武士道啊？攻击性要足够不能像演的
+
+*****
+
+####  ellisnadie  
+##### 7645#       发表于 2024-1-7 10:56
+
+理中客一下分楼也挺好的
+
+本来喜欢狗的也没理由能共情鸡的现状<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  母鸡卡现在待遇不好是事实，但是在这说资源倾斜狗粉看到也不会舒服的
+
+*****
+
+####  Kasroz  
+##### 7646#       发表于 2024-1-7 10:58
+
+武士道死🐴，大好的局势都不知道好好利用，邦邦彻底糊了有这傻逼操作的功劳
+
+*****
+
+####  凡人  
+##### 7647#       发表于 2024-1-7 10:58
+
+鸡粉aoe吐黑泥会a到狗是可预期的，狗粉看见自家推被a了，想还击也是可预期的，那不分干嘛，一句话，早切早好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7648#       发表于 2024-1-7 10:58
+
+一会要发新曲喽，还是1st立绘静止系ppt平移，这资源可太棒啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7649#       发表于 2024-1-7 10:59
+
+一个按道理应该是最终纠缠不休大乱炖的姐妹团企划，做的是剪切线的活
+
+*****
+
+####  nebulanoby  
+##### 7650#       发表于 2024-1-7 11:00
+
+其实我之前还真有点想入台iPadPro打邦的想法（顺路写下笔记），这下解毒了。反正手写板也用熟练了，这个（指iPP），不需要了，预算就给手机吧
+
+顺路说句手游手感一坨，不改进反而分资源去搞D5J和3D，WSD奇葩思维真不少，希望母鸡卡就是纯纯WSD脑瘫，和绫奈的事情是两个独立事件
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Nieven  
+##### 7651#       发表于 2024-1-7 11:00
+
+本ylgo倒还算乐观，就算真滑坡到独角兽和wsd闹掰，我也不觉得没了独角兽mujica动画就直接原地暴毙了
+
+独角兽又不是第一次当系构当脚本，邦一二三和几个剧场版也都是独角兽负责的，然而也就反响平平
+
+不能否认独角兽在go动画上的成功，但把独角兽当成是mujica动画的充分条件我觉得还不至于
+
+然后27号1st估计也会宣布2nd的消息，照go的安排来看，mujica在2024年内应该也会有四五次单独live，两三首single，数首cover，我觉得还算比较充实....吧？
+
+1st的票价炒的太高就不去了，2nd以后的场子都是可以跟一跟的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅香山的熊  
+##### 7652#       发表于 2024-1-7 11:01
+
+说了在这贷款资源倾斜的 能不能等27号1st之后再说啊 到时候🐔没资源我跟你们一样问候wsd
+
+*****
+
+####  御幸一也  
+##### 7653#       发表于 2024-1-7 11:02
+
+動畫就先不貸款吃屎了，做爛了再罵，但武士道這操作實在是讓人難繃<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 7654#       发表于 2024-1-7 11:02
+
+那想两边一起讨论的去哪，要不干脆一气化三清，两边毒唯各一楼理客中再一楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  基神的强袭自由  
+##### 7655#       发表于 2024-1-7 11:02
+
+原来真的是客服S打工劳累过度算错时间，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

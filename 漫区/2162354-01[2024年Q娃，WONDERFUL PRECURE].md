@@ -629,3 +629,30 @@ staff也就这点出息，看看今年花几集变回传统白开水
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  没有爱就看不见  
+##### 336#       发表于 2024-1-7 08:46
+
+两个人类争男人，猫狗争兔子（性别男），挺均衡的
+
+*****
+
+####  粉儿alice  
+##### 337#       发表于 2024-1-7 08:47
+
+制作人 髙桥麻树 去年还有太上皇带 今年就主p 天空这幅样子她也要负责的
+监督 佐藤雅教 资历很浅
+成田大妈不用说了 bg战士 河䐁早点死心吧 主视图那个男人肯定要谈恋爱 甚至搞n角恋 渣男<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+还有成田之前写出美美野来末和白雪姬 这种用来推动主线“始作俑者”也非常恶心<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+可以说 今年的女人也不抱什么太大的希望了
+
+*****
+
+####  6030sylar  
+##### 338#       发表于 2024-1-7 08:50
+
+真的母狗q娃<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

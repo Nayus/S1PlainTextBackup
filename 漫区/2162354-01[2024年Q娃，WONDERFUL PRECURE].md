@@ -1248,3 +1248,14 @@ Screenshot_2024-01-07-14-16-28-65_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 万一男同学的声优是男八段怎么办
 
+
+*****
+
+####  南風森愛恋  
+##### 394#       发表于 2024-1-7 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63564778&amp;ptid=2162354" target="_blank">linhaitora 发表于 2024-1-7 15:40</a>
+
+长绳除了碧蓝的拉菲还有哪些</blockquote>
+去年的话，比较体现演技唱功的是world dai star，这少女音真的不错
+

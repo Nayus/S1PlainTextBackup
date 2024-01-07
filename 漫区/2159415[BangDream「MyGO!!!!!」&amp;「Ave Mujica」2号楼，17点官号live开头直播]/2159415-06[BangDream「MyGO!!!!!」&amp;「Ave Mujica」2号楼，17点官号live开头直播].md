@@ -6520,3 +6520,92 @@ ave少点味道，仅此而已。滑坡到大改包饺子那是杞人忧天了
 
 真要赚狗的钱还不如像之前联动史莱姆东万电锯人那样找个鬼马咒之类的当红ip联动，手游来钱不是比剧场版快多了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 8116#       发表于 2024-1-8 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570097&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-8 00:30</a>
+
+进一步基于这个与二三季访谈做对比，3D一次做多点能更省成本，实际上mygo和mujica也是连续制作的，符合；同 ...</blockquote>
+那我就很想看看“早就要空這一年”派的，來幾個人解釋一下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8117#       发表于 2024-1-8 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570123&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 00:31</a>
+
+为了热度加塞论最大问题就是总集篇没多少新料旧粉兴趣不大，又吸不了新粉又吃不了中华炮，一看就是要赔钱的 ...</blockquote>
+有一种可能性，武士道认为mygo在日本很红，基本就可以全部解释通了
+
+*****
+
+####  ytttsuuuba  
+##### 8118#       发表于 2024-1-8 00:34
+
+ 本帖最后由 ytttsuuuba 于 2024-1-8 00:36 编辑 
+
+独角兽在9月14号mygo播完之后发的两条推文就有很浓厚的告别味道了啊，当时没人想到这一茬都觉得是为了不剧透mujica，但是现在回过头去看那个意思就是在9.14号的节点其实就已经和邦邦没关系了，那有什么矛盾肯定还在那之前。然而，10月底她接受的采访中还说了让大家期待第二季第二季C团存在感很高，那么也就是说在10月时第二季脚本是没有变动的，另外我记得同样是10月，有人挖出了她8.3发的关系图问她为何不更，独角兽回答的是因为剧情还没出或者会让大家确定什么，“目前”没有更新的打算，也说明了那个时候第二季脚本还是没有变动的，而且听着有种因为续集动画还没出所以没更新等续集动画出了会更新的意思。至于昨天粉丝问的续集脚本还是不是你，绫奈回答的是因为动画还没发表所以无法回答，其实正向反向都能理解，如果正向理解那就是公式性回答官方都没发表我肯定不能现在就直接说是我，而且还没取关AM的官号也可以算是一个好的信号。友好讨论友好讨论<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ecauchy  
+##### 8119#       发表于 2024-1-8 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570007&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-8 00:21</a>
+
+你看，这就是闭门造车了，我的建议是你实际调查一下CG 动画的制作流程，各个声优的出演情况，甚至多读几篇 ...</blockquote>
+1. 请不要用「你去调查一下，不要闹笑话了」这种措辞并在最后用反问或者设问结尾。这很不友好。
+
+如果有有幸能被你指教的话，请直接说你的观点、对应制作流程和我的理解有何不同、我需要读的是哪些访谈，以及制作人是谁。该不会是在说根本雄贵？
+
+2. 请不要评价别人的观点为脑补。因为这个评价没有带来任何有意义的信息，所有个人观点本质都是“脑补”。你的所谓“10月份去意已决”难道不是“脑补”吗？这种评价只会徒增不友好。
+
+我的推理前提当然就是楼友给的那篇访谈，2和3需要一起制作、3需要一年后播放、为此制作film live都是事实，我的观点或者说“脑补”无非就是“这一切是在一起决定的，不存在一个原计划”。这当然没有证据，但反过来，你的“存在原计划”也没有证据。
+
+3. 那不是主要原因，而是“きっかけ”。你只注意到了后面的“ノリ”，却没有注意到这里的“きっかけ”吗？这里的语气两者都是尽量削弱重要性的，A不过是个契机，B不过是个动机，非要细究的话，可以认为“都不是主要原因”。而我的看法是这只不过是访谈不能说得太绝对，他自己只是个提案人不是拍板人，一种谦辞而已。
+
+4. 这句话我记得是发推说的？我有点忘了，是发推还是访谈里直接说的。如果是发推说的，那绫奈本身高强度刷推emo也可以一定程度上解释，并不能说是写在访谈里白纸黑字那样非常严肃意义上的“去意已决”。至少在你的语境里，“去意已决”不是本人的去意，而是制作班对这个人的看法，那么就符合我前面说的，只是私人推特并不能代表什么。当然如果是写在访谈里了，那就另当别论。
+
+*****
+
+####  御幸一也  
+##### 8120#       发表于 2024-1-8 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570123&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 00:31</a>
+
+为了热度加塞论最大问题就是总集篇没多少新料旧粉兴趣不大，又吸不了新粉又吃不了中华炮，一看就是要赔钱的 ...</blockquote>
+那麼，難道你是總集篇不是加塞論支持者？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 8121#       发表于 2024-1-8 00:38
+
+不如猜上面的人认为mygo里立希和猫猫一个形象差一个戏份少，会导致原来的立希推和猫猫推跑路，于是紧急补两个总集篇剧场版加点剧情补一下塑造挽回人气巩固粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 8122#       发表于 2024-1-8 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570123&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 00:31</a>
+为了热度加塞论最大问题就是总集篇没多少新料旧粉兴趣不大，又吸不了新粉又吃不了中华炮，一看就是要赔钱的 ...</blockquote>
+你怎么这么笃定mygo剧场版一定会赔钱啊
+总集篇赔钱的很多么？为什么我有印象的总集篇剧场版都是小成本割韭菜
+
+*****
+
+####  11A511  
+##### 8123#       发表于 2024-1-8 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570141&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 00:33</a>
+
+那我就很想看看“早就要空這一年”派的，來幾個人解釋一下了</blockquote>
+武士道觉得一部动画能把被引流来的人吊一年半呗，那趁热打铁的话很多人会在两年后失去兴趣，拖一年的话可以让他们在企划内待三年<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+柿本之前也提到过他认为“邦前三部已经把关于友情的故事做到最好了”，那万一他们觉得鸡狗也把新的赛道里的做到最好，担心接下来找不到新的爆点了呢（
+

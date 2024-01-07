@@ -5813,3 +5813,103 @@ https://x.com/ki3wii/status/1743906338516975756?s=20
 日语词典里给待ち遠しい 的解释是 「待っていてもなかなかその時やその事態がこないで、やりきれない」， ...</blockquote>
 我第一反應這詞就是普通的表達期待而已<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  11A511  
+##### 8065#       发表于 2024-1-7 23:04
+
+ 本帖最后由 11A511 于 2024-1-7 23:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569194&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 22:55</a>
+
+1. 一集ova六个月当然不意味着一季要六年，有个词叫“边际效应”。
+
+2. 正如你所说，那是插进流水线里。而 ...</blockquote>
+独角兽在去年十月份已经斩钉截铁的说过“这一定是最后的访谈”，因此如果有异动显然是发生在这之前
+
+何况这是3D动画，请你先拿出在模型做好的情况下需要半年时间制作一集OVA的证据
+
+你都知道一个pv省不出多少钱，那为了改这一集得在多少方面做出牺牲？你的分析还是建立在运营大体是理性的基础上吧（否则干嘛不继续滑坡），这不是更降低了武士道在差不多做好之后才改这一集的动机？
+
+*****
+
+####  江口夕  
+##### 8066#       发表于 2024-1-7 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569135&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 22:49</a>
+所以解释一下为什么从业界风评更好、产出更稳定的EG换成supalove？
+
+答不出来可以不回复我，转移话题很 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记叉了，绫濑写的是第三话那首歌。
+然后，不正是因为水平不行所以才要憋一年？你怎么绕到换合作对象的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Ecauchy  
+##### 8067#       发表于 2024-1-7 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569185&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 22:55</a>
+
+就喜歡你這樣願意了解再來一起討論的
+
+https://www.anime-recorder.com/tvanime/181484/
+
+上面一問 ...</blockquote>
+感谢分享。
+
+我粗略看了一遍，关于你说的那段：
+
+――時系列で言うと、『2nd Season』が2019年で。そのタイミングでもうTVアニメ『BanG Dream! 3rd Season（3rd Season）』は決まっていたと記憶しています。
+
+そうです。一緒に発表しました。CGアニメの場合は単発で終わるのではなく、長く作った方がお得なんです。最初から長いと分かっていればコストを下げられるし、より密度が上げられます。予算を上手く使えるという意味でも、『2nd Season』と『3rd Season』が同時に決まったのはとてもポジティブなことでした。
+
+――また、その合間には劇場版『BanG Dream! FILM LIVE（FILM LIVE）』もありましたよね。
+
+『FILM LIVE』は、せっかく『2nd Season』でたくさんライブシーンを作ったのだから、今度は背景を全部変えてやってみたいと思ったのが始まりでした。僕がブシロードさんに提案したのがきっかけです。
+
+『2nd Season』と『3rd Season』で1年空きがありましたからその間に映画が作れますよって、そういうノリでしたね。
+
+それにアニメだと、ライブシーンが少ないバンドもどうしても出てくるので、そういうのを見せる映像があってもいいのではないかと。
+
+简单翻译：
+
+——按照时间先后来说，第二季是2019年，那时候已经公开了要制作第三季。
+
+是的，当时是一起公开的。3d动画制作本身是避免单发，做得越多越好。如果一开始就知道要做很多，那么成本也会降低，密度也能提升。以更好使用预算的角度来看，第二季第三季同时制作决定也是一件好事。
+
+——在中间还有film live来着。
+
+film live是因为难得在第二季做了不少live场景，所以想要把背景全换一下搞一搞。是我向武士道提案的。
+
+第二季和第三季档期隔了一年，所以不如中间做电影吧，是这么一个意思。
+
+然后在动画里部分乐队的live场景很少，想要让她们也在live登场，有这样的动画会很好吧，也有这样的理由。
+
+我的理解：制作组是第二季——film live——第三季这样顺序制作的，一开始就决定了第三季要在20年播，但是又不能停工重走流程这样从头来一遍太费事，所以中间插入了film live的制作。我认为不是你的理解那样，是「第二季——第三季」都做完了之后，再做的film live。
+
+*****
+
+####  Aendst  
+##### 8068#       发表于 2024-1-7 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569287&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 23:06</a>
+
+记叉了，绫濑写的是第三话那首歌。
+
+然后，不正是因为水平不行所以才要憋一年？你怎么绕到换合作对 ...</blockquote>
+对音乐质量要求很高，所以把合作对象换成产出质量更不稳定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+武士道管理层脑回路要都这样，那只能说没救了
+
+*****
+
+####  Aendst  
+##### 8069#       发表于 2024-1-7 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569071&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-7 22:43</a>
+
+只知道是12月下，在同人群和群友汴剧情闲得蛋疼去逛了一圈，但回忆起来关注列表里确实没有官方图标 ...</blockquote>
+那还是很难确定，虽说确认下来可能也没什么意义吧……
+

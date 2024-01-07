@@ -18565,3 +18565,73 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 [https://twitter.com/rissole715/status/1743991459093918097?s=19](https://twitter.com/rissole715/status/1743991459093918097?s=19)
 <img src="https://p.sda1.dev/15/6a2128537bea79548a899e730c4ed98d/CMP_20240107215347040.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  枞枞那年  
+##### 1441#       发表于 2024-1-7 23:06
+
+[https://twitter.com/ama_ekaku/status/1743932042012926013](https://twitter.com/ama_ekaku/status/1743932042012926013)
+
+<img src="https://img.saraba1st.com/forum/202401/07/230605gcftz55cf9cym7c7.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (145.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 23:06 上传
+
+[https://twitter.com/rui_rui_rui0122/status/1743642882618134555](https://twitter.com/rui_rui_rui0122/status/1743642882618134555)
+
+<img src="https://img.saraba1st.com/forum/202401/07/230612gxxhgxe8egbx8xgn.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (191.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 23:06 上传
+
+[https://twitter.com/sengokuchidori/status/1743922193590014105](https://twitter.com/sengokuchidori/status/1743922193590014105)
+
+<img src="https://img.saraba1st.com/forum/202401/07/230623n82ho2ccwkho1227.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (171.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 23:06 上传
+
+*****
+
+####  qz66618  
+##### 1442#       发表于 2024-1-7 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560821&amp;ptid=2152053" target="_blank">Aeroblast 发表于 2024-1-7 08:30</a>
+看了一眼楼里居然没人发三月出新小说的消息</blockquote>
+是朝浦写的吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1443#       发表于 2024-1-7 23:11
+
+今天的活动
+
+<img src="https://img.saraba1st.com/forum/202401/07/231105ytgxfe1ixf1t0p8h.png" referrerpolicy="no-referrer">
+
+<strong>2024-01-07 231047.png</strong> (75.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 23:11 上传
+
+<img src="https://img.saraba1st.com/forum/202401/07/231105o8oj9kxqaj7o80o9.png" referrerpolicy="no-referrer">
+
+<strong>2024-01-07 231041.png</strong> (108.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 23:11 上传
+

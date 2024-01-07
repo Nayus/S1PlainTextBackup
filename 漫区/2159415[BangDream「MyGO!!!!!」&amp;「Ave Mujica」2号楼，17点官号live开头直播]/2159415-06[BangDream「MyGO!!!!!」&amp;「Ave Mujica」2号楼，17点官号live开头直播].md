@@ -3883,3 +3883,13 @@ z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预
 
 如果mujica动画真的出现变故，参与《苍蓝雷霆》的演出者命格不够硬会遇到不幸的谣言又会多加一笔。
 
+
+*****
+
+####  leafleaf  
+##### 7894#       发表于 2024-1-7 15:54
+
+新的一年新的乐子<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

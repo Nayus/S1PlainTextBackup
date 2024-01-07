@@ -3757,3 +3757,29 @@ GO团粉丝对动画结局不满也不是这两天的事，将来如果官方在
 
 话说回来，我心危2的OP真不错……
 
+
+*****
+
+####  wzm96816  
+##### 7879#       发表于 2024-1-7 14:56
+
+看完了楼，建议还是分吧，省的到时候412大清洗。去年b站a团和m团账号合并才是迷惑，整的跟kmt和tg合作似的。
+
+*****
+
+####  此行远兮  
+##### 7880#       发表于 2024-1-7 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63564301&amp;ptid=2159415" target="_blank">wzm96816 发表于 2024-1-7 14:56</a>
+看完了楼，建议还是分吧，省的到时候412大清洗。去年b站a团和m团账号合并才是迷惑，整的跟kmt和tg合作似的 ...</blockquote>
+是的，B站合号是同时得罪两边，可以载入偶像教科书的史诗级烂活<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  假药入脑不可取  
+##### 7881#       发表于 2024-1-7 14:59
+
+还扯到kmt和tg了，不知道大哥是开玩笑的还是怎么着
+

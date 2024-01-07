@@ -136,3 +136,36 @@ wsd不会真要搞鸡狗切割吧<img src="https://static.saraba1st.com/image/sm
 
 建议🐔🐶趁早分楼，1st再分我都觉得有点晚了。
 
+
+*****
+
+####  寒星  
+##### 7515#       发表于 2024-1-7 08:35
+
+不是吧，mujica要完蛋了吗，那种事不要啊
+
+*****
+
+####  kangkangsama  
+##### 7516#       发表于 2024-1-7 08:41
+
+别真掐起头花来啊 三次元偶像见太多了 都是被运营溜的
+
+*****
+
+####  ellisnadie  
+##### 7517#       发表于 2024-1-7 08:41
+
+可以切割母鸡卡了，没有绫奈塑造的母鸡卡还是那些角色么
+
+现在想想第一季就塑造完成的角色也是有好处的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 7518#       发表于 2024-1-7 08:42
+
+站着说话不腰疼的能出门右转吗？骂资源倾斜骂武士道你心疼了？
+

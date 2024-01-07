@@ -2637,3 +2637,120 @@ angles这首比上一首好听一点
 
 还有揶揄漏油是染厨是我太恶毒了 不该这么说的 对不起
 
+
+*****
+
+####  フミさん  
+##### 7767#       发表于 2024-1-7 12:53
+
+獨角獸越來越像豐川祥子，觀眾越來越像長崎素世
+MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場版)
+Ave Mujica的粉絲隨主黑化，擺著臭臉大喊軟弱的我已經死了
+
+很難不懷疑他們是不是在搞什麼大型社會實驗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 立派的首陀罗| + 1|欢乐多|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  青蒜  
+##### 7768#       发表于 2024-1-7 12:54
+
+我想了一下，泥潭的ji厨相对较多，nga的go厨相对较多，感觉用不了几天两边就要开始分化了，然后变成跨论坛口水仗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7769#       发表于 2024-1-7 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563123&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-7 12:53</a>
+
+獨角獸越來越像豐川祥子，觀眾越來越像長崎素世
+
+MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場 ...</blockquote>
+心理惊悚的原因找到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  twi  
+##### 7770#       发表于 2024-1-7 12:56
+
+怎么感觉一些人想增加饭圈味，那我拉低一下你楼水准（），
+
+mujica这待遇跟你担换 你要吗，
+
+你肯定不要啊，那你给wsd找补有什么用，最后发现如果交换了立场，自己也不能接受自己给出的理由，有点好笑了
+
+
+*****
+
+####  青蒜  
+##### 7771#       发表于 2024-1-7 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563123&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-7 12:53</a>
+獨角獸越來越像豐川祥子，觀眾越來越像長崎素世
+MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場 ...</blockquote>
+人生如戏，戏如人生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7772#       发表于 2024-1-7 12:58
+
+不对，那按这么说我缺的13话银河战舰上哪补啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7773#       发表于 2024-1-7 12:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼这滑坡速度有点离谱，看到一半看不懂了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  PDQ4  
+##### 7774#       发表于 2024-1-7 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563129&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-7 12:54</a>
+
+我想了一下，泥潭的ji厨相对较多，nga的go厨相对较多，感觉用不了几天两边就要开始分化了，然后变成跨论坛 ...</blockquote>
+还没有分化吗，nga那边我记得挺早就骂S1祥厨楼了，祥厨太多人都不爱过来看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+考虑nga祥黑浓度，现在还没分化的话我反而惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L7lv6  
+##### 7775#       发表于 2024-1-7 13:01
+
+<blockquote>鲍里斯 发表于 2024-1-7 12:41
+我觉得ppp厨看到一套曲绘用两个MV骂武士道没有人会觉得有问题
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+直接骂wsd没啥问题，谁不骂呢。但扯到资源多少就会扯到其他人，那争吵不就不可避免了吗？
+
+*****
+
+####  Kasroz  
+##### 7776#       发表于 2024-1-7 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563123&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-7 12:53</a>
+獨角獸越來越像豐川祥子，觀眾越來越像長崎素世
+MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下能理解soyo为什么这么在乎crychic了（
+

@@ -2286,3 +2286,117 @@ wsd真tm飞🐴玩意 广播没有 小动画没有 翻唱没有 动画没有 现
 
 你要把骂资源倾向解读为aoe狗团，那我把你的话解读成狗拿这些天经地义，底边糊糊鸡粉别太蹬鼻子上脸也没有问题吧，饭圈的头可是你起的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 7735#       发表于 2024-1-7 12:04
+
+就很简单啊 为什么聊到mujica资源必cue mygo
+
+为什么连问“这样能过了吧”还要cue mygo 
+
+资源应该怎么用应该是看怎么用对mujica更好而不是怎么要去和mygo且只和一样吧 mujica资源应该怎么用 或者说发生了什么才用的现在这样不好和mygo本身是没有那么直接的联系的
+
+我是觉得今年就该资源大力放在mujica才是正确用法 
+
+*****
+
+####  PDQ4  
+##### 7736#       发表于 2024-1-7 12:04
+
+后悔迷你专没多订几份了，没想到开局即是巅峰，鸡什么时候才能再拥有这种曲绘。
+
+都是静止系1st这两首真的是远不如以前几首上心<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7737#       发表于 2024-1-7 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562638&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-7 12:04</a>
+后悔迷你专没多订几份了，没想到开局即是巅峰，鸡什么时候才能再拥有这种曲绘。
+
+都是静止系1st这两首真的是 ...</blockquote>
+说不定只是治愈老师超水平发挥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7738#       发表于 2024-1-7 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562632&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-7 12:04</a>
+
+就很简单啊 为什么聊到mujica资源必cue mygo
+
+为什么连问“这样能过了吧”还要cue mygo 
+
+资源应该怎么用应该 ...</blockquote>
+不是你們大家最愛說的 “姐妹團” “雙子團” 嗎，對比的時候又不讓比較了？<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+原來你也是支持切割的啊，好吧，誤傷了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -LYRE-| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 7739#       发表于 2024-1-7 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可名状的立绘才能体现mujica的神秘感，黑生日只是还没定调的意外罢了
+
+*****
+
+####  higuchiguchi  
+##### 7740#       发表于 2024-1-7 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562632&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-7 12:04</a>
+
+就很简单啊 为什么聊到mujica资源必cue mygo
+
+为什么连问“这样能过了吧”还要cue mygo 
+
+资源应该怎么用应该 ...</blockquote>
+差不多得了 有没可能鸡狗资源差不多也不会吵得像现在这样头破血流 不明白你是想当和事佬还是在这煽风点火
+
+
+*****
+
+####  无证madam  
+##### 7741#       发表于 2024-1-7 12:09
+
+一想到半年以后这楼可能就不知道沉到哪里去了 感觉现在能看大伙吵吵架还挺温馨(？)的
+
+*****
+
+####  黑猫桑  
+##### 7742#       发表于 2024-1-7 12:10
+
+切割切割！我支持切割
+
+*****
+
+####  星空冻结  
+##### 7743#       发表于 2024-1-7 12:11
+
+半年？再三个月热度就差不多散了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7744#       发表于 2024-1-7 12:12
+
+黑生日只是意外那种事情不要啊，能复刻假面舞会的立绘也可以吧，你鸡现在曲绘能拿出来的就这俩了，出谷也是这俩。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+最差最差，双月的立绘也可以吧，神笨蛋那个就不需要了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

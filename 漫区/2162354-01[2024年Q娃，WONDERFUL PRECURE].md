@@ -1219,3 +1219,24 @@ Screenshot_2024-01-07-14-16-28-65_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 男人养男q，其实比天q正常多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 391#       发表于 2024-1-7 17:36
+
+哪里写了兔子是公的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  宅音  
+##### 392#       发表于 2024-1-7 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63565939&amp;ptid=2162354" target="_blank">starring 发表于 2024-1-7 17:36</a>
+哪里写了兔子是公的
+
+—— 来自 Sony XQ-DQ72, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+没长睫毛+蓝色细丝带，可能性还挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

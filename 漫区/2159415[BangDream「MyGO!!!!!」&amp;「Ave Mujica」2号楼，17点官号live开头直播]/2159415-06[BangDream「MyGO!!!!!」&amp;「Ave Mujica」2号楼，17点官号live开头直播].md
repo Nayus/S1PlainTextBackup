@@ -3983,3 +3983,21 @@ z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预
 去年也有九月十日，妮们没炒吗</blockquote>
 你想想去年9月份在播第几集，哪有时间炒这个
 
+
+*****
+
+####  skgaminger1988  
+##### 7903#       发表于 2024-1-7 17:33
+
+两风格迥异的乐队非要装作其乐融融的挤一个楼里尬聊，受众都不是一个受众，早该分分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 7904#       发表于 2024-1-7 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63565466&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-7 16:47</a>
+
+你想想去年9月份在播第几集，哪有时间炒这个</blockquote>
+那时候其实刚好是个空窗期，12集讨论过了，13集还没出来，播的总集篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

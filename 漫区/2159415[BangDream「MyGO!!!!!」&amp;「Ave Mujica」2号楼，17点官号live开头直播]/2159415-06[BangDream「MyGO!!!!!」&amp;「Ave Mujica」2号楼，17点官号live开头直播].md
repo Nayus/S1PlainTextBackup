@@ -567,3 +567,71 @@ wsd是怎么想到把做完一半的母鸡卡全盘推倒的</blockquote>
 
 ave粉看到2025才播這動畫廣告片早就怒火中燒，再看綾奈切割邦多利，不安一下怎麼了，有點怨氣怎麼了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 7560#       发表于 2024-1-7 09:47
+
+ 本帖最后由 -LYRE- 于 2024-1-7 09:48 编辑 
+
+顶着米头像的那位这么理客中，希望你从来没有骂过挑染强推之耻、赔钱货吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+染➗也有话说，都是万代的决定，和割割无关
+
+
+*****
+
+####  septer  
+##### 7561#       发表于 2024-1-7 09:48
+
+一天没爬楼，开始汗流浃背<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜火雷纹  
+##### 7562#       发表于 2024-1-7 09:50
+
+怎么越看越吓人了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  夜火雷纹  
+##### 7563#       发表于 2024-1-7 09:51
+
+怎么越看越吓人了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  夜火雷纹  
+##### 7564#       发表于 2024-1-7 09:51
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kasroz  
+##### 7565#       发表于 2024-1-7 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫奈说了今后不会有采访了就是决定性的发言了，往后滑坡幅度只会比这个大
+
+*****
+
+####  御幸一也  
+##### 7566#       发表于 2024-1-7 09:52
+
+還不用滑坡到改劇本<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7567#       发表于 2024-1-7 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等綾瀨把ave取關了再切割不遲。現在老實說沒必要捕風捉影，也問不出個所以然。
+本來就是容易炎上的13話，上面把腳本口了避免節外生枝也只是常規操作
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

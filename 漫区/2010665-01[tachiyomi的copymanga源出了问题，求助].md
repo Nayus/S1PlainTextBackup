@@ -2947,3 +2947,15 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 重装一次插件就好了
 
+
+*****
+
+####  YetToCome  
+##### 295#       发表于 2024-1-8 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568604&amp;ptid=2010665" target="_blank">azbhg1 发表于 2024-1-7 22:00</a>
+一直是开着的很诡异</blockquote>
+插件设置开R18了吗？
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

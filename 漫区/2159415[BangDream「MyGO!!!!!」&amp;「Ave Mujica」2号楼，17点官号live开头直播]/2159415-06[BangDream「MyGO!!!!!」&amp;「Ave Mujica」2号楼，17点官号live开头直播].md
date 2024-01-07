@@ -6303,3 +6303,31 @@ film live是因为难得在第二季做了不少live场景，所以想要把背�
 
 我說“做完了”其實只是想說我覺得ave mujica的進度現在就能播放<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 8099#       发表于 2024-1-8 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569719&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 23:51</a>
+
+監督    柿本広大
+
+シリーズ構成    綾奈ゆにこ</blockquote>
+不是，我有點汗流浹背了哥，動畫是有製作人的，真正掌權的是製作人……
+
+製作人-&gt;監督-&gt;系構 是這個關係。
+
+*****
+
+####  6030sylar  
+##### 8100#       发表于 2024-1-8 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569810&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 00:00</a>
+我感覺我一直說的“ave mujica做完了”不太對，我忘記一點了，
+
+因為就算是按照2024年1月播放的進程在做， ...</blockquote>
+这个大家都知道，就算一个月磨一集到7月都该上
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

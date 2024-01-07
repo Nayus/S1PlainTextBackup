@@ -1406,3 +1406,30 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 说白了你q企划侧女性staff占比增大和她经济的兴起，加男人就是趋势（唉，宅男文娱
 豚友也不要急，成田阿姨的cp永远是神经刀，就像战队蓝紫茶几饭U，在凑一对之前没人能猜到会这么安排
 
+
+*****
+
+####  pokemon最爱  
+##### 408#       发表于 2024-1-8 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569757&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-1-7 23:54</a>
+
+说白了你q企划侧女性staff占比增大和她经济的兴起，加男人就是趋势（唉，宅男文娱
+
+豚友也不要急，成田阿姨 ...</blockquote>
+我只能希望Staff里有人能按住成田大妈那躁动不安的BG战士的心，只要成田大妈乖乖的写小女孩贴贴不去碰BG恋爱戏我相信汪Q一定还有救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 409#       发表于 2024-1-8 00:09
+
+与其说近十年bg烂了，不如说这二十年bg就没多少好的，好的那几个里面部分也是没有特别多描写，再加上成田作为bg战士，去年在成q的灾难性发挥再加上茶几的PTSD，还有很大可能的男q追加，只能说希望平稳吧
+
+*****
+
+####  暗黑能乐  
+##### 410#       发表于 2024-1-8 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先把主线写好了再去想你那些乱七八糟的私货行吧
+

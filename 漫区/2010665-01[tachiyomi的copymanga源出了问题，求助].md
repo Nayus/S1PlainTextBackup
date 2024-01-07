@@ -2926,3 +2926,16 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 —— 来自 HUAWEI OXF-AN10, Andro ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新0.15后的feature 降级或者等开发组回心转意
 
+
+*****
+
+####  azbhg1  
+##### 293#       发表于 2024-1-7 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567316&amp;ptid=2010665" target="_blank">YetToCome 发表于 2024-1-7 20:01</a>
+
+可能是安卓授权的问题，去系统权限里把tachiyomi的读取应用列表权限打开
+
+—— 来自 realme RMX3706, And ...</blockquote>
+一直是开着的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">很诡异
+

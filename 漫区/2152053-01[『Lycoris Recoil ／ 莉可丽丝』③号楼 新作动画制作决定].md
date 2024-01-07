@@ -18554,3 +18554,14 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 看了一眼楼里居然没人发三月出新小说的消息</blockquote>
 感觉就是note的内容割韭菜没啥好说的，不过是多了伊的插画
 
+
+*****
+
+####  Saber琪  
+##### 1440#       发表于 2024-1-7 21:54
+
+ 本帖最后由 Saber琪 于 2024-1-7 21:56 编辑 
+
+[https://twitter.com/rissole715/status/1743991459093918097?s=19](https://twitter.com/rissole715/status/1743991459093918097?s=19)
+<img src="https://p.sda1.dev/15/6a2128537bea79548a899e730c4ed98d/CMP_20240107215347040.jpg" referrerpolicy="no-referrer">
+

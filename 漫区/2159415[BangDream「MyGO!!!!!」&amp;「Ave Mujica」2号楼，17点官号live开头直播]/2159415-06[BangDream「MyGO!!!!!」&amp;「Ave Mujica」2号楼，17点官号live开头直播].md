@@ -4933,3 +4933,109 @@ w ...</blockquote>
 
 所以你楼讨论出一个可以合理解释独角兽完全不理睬 MyGO 剧场版和 AM 定档消息的理由了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 7990#       发表于 2024-1-7 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的不知道，只知道有些坛友坚信独角兽闹掰这一条可能性
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  snowism  
+##### 7991#       发表于 2024-1-7 21:54
+
+所以本土对明年播这种事情是什么反应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7992#       发表于 2024-1-7 21:55
+
+推特全肯定厨多，但已经在评论区看到不少嫌太晚的了
+
+*****
+
+####  御幸一也  
+##### 7993#       发表于 2024-1-7 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568345&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-7 21:35</a>
+
+你说在24年7月有，我可以认同，在现在不太可能</blockquote>
+這就不得不提，2023年1月播放的d4dj是在8月錄音的了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+那麼，差不多時間9月就在配音的ave mujica，你真的覺得是動畫沒做完嗎，在我丟了那麼多三次元製作流程介紹之後<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+其實定個2024年7月播，也勉強接受了，武士道全責好吧，武士道今天爆炸沒.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 7994#       发表于 2024-1-7 21:55
+
+ 本帖最后由 滑稽Captain 于 2024-1-7 21:59 编辑 
+
+根据我看2d动画的经验，除了那种超级万策尽周五要播了周二周三还在吭哧吭哧画二原的动画，一般配音是在播出前一个月到两个月左右，而且是对着分镜稿配的，时间充裕的团队才会有更好的画面；
+
+三次元这边毕竟是3d，不能直接套用2d的工业流程，而且他们还是先有社内自己配一轮调整画面之后的灰模才轮到CV录音阶段，配音确实属于偏后的流程，但是后期渲染流程就是另一回事了。
+
+参考mygo的进度，三次元在成片阶段的速度差不多是两个月三到四集，而且是动画播出途中还在做最后几集。天天说日本压榨原画师，虽然都是讲的2d动画，总不能他们都是自愿最后一周还在画二原的吧，谁不想DDL离得远远的可以慢慢做动画呢，虽然没必要对三次元的能力太悲观，但也不要太乐观觉得其实1月4月就能早都做完了
+
+我的主要观点是三次元是能在24年4月做完，但他们可能选择了不急不去做完
+
+*****
+
+####  Ecauchy  
+##### 7995#       发表于 2024-1-7 21:56
+
+给个比较保守的猜测：
+
+独角兽和柿本（话说这人怎么叫蚀本的，真不吉利）闹掰是因为后者想要包饺子，破坏了独角兽的脚本设计。
+
+直白一点，最后一集可能独角兽原计划弄个平行线之类的be结局，被柿本强制改成了机械降神的he。
+
+前面楼友说这个推迟的改动恰好很尴尬，如果剧本全部推倒重写那25年1月做不完，如果只是小改动那又没必要推迟那么久。
+
+所以我这个猜测恰好是“中改动”——说大不大，大量的画面和配音都能继续用；说小不小，所有流程都得从头走。
+
+本身这个改动商业上合法合理，道德上也没啥可说的，但是对于文人气很重的独角兽来说就很恶心了，连带着感觉这些角色“不再像是自己的女儿”，甚至感觉自己以前的关系图、人物设计那些怎么看怎么小丑，那当然是要删掉的。不参与访谈也是因为赌气，“我的思路都被你否定了，你比我懂，还来采访我做什么？”，而不是因为什么被切割、被踢出公司之类的。
+
+*****
+
+####  御幸一也  
+##### 7996#       发表于 2024-1-7 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568503&amp;ptid=2159415" target="_blank">HazukiShion 发表于 2024-1-7 21:51</a>
+
+所以你楼讨论出一个可以合理解释独角兽完全不理睬 MyGO 剧场版和 AM 定档消息的理由了吗？ ...</blockquote>
+我還等堅信綾奈還沒切割邦多利的樓友說一下見解呢，現在看來只能是打牌了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7997#       发表于 2024-1-7 21:56
+
+2d动画制作流和3d动画制作流不一样的，你只要看过他们的访谈就知道他们速度要比2d快不少，而且引以为傲
+
+*****
+
+####  ddy2811  
+##### 7998#       发表于 2024-1-7 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568363&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 21:37</a>
+
+唉，隔壁仙魔大战她今天还在发相关，这么上心的脚本家却要跟自己用心的企划到这一步 ...</blockquote>
+不知道独角兽的Mujica剧本里祥子会不会也遇到这样的事，就像我前面设想的一样……
+
+如果确实如此，那么修改的理由倒是有了
+
+*****
+
+####  星空冻结  
+##### 7999#       发表于 2024-1-7 22:02
+
+3d作画比2d快好吧，而且7月的那个番肯定是现在已经把人手调过去了，不然赶不上档期。所以🐔八成已经做完了，就算没完成也是后面一点收尾工作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

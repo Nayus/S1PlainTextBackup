@@ -4211,3 +4211,38 @@ ave mujica新歌angles
 火腿瞎猫碰上死耗子而已，冈田去年9月就说在收录了，所以正常来说4月怎么都该播了。而且独角兽作为编剧直 ...</blockquote>
 爬昨天的樓，樓友這個輪到我打牌真的要把我笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 7926#       发表于 2024-1-7 20:05
+
+ 本帖最后由 nebulanoby 于 2024-1-7 20:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567086&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 19:40</a>
+
+爬昨天的樓，樓友這個輪到我打牌真的要把我笑死</blockquote>
+某些人粉饰太平的水平我是服的，非要说独角兽和其他Stuff没事发生，那就只能是打牌，或者是今天早上某些人更进一步地说的在参与炒作……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独角兽真是在炒作的话我喊她声跌好吧，11月开始搞动作，忍到现在才被几个拆腻子问是不是有问题，真要炒作也太能忍了吧
+
+说内部资源分配、Stuff关系啥的一切安好的人我只能对他说お幸せに，我希望的就是最近发生的事情不要影响最终成片
+
+*****
+
+####  -LYRE-  
+##### 7927#       发表于 2024-1-7 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567343&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-7 20:05</a>
+某些人粉饰太平的水平我是服的，非要说独角兽和其他Stuff没事发生，那就只能是打牌，或者是今天早上某些人 ...</blockquote>
+赞同你的观点，但是是staff不是stuff<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 7928#       发表于 2024-1-7 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567407&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-7 20:11</a>
+
+赞同你的观点，但是是staff不是stuff</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

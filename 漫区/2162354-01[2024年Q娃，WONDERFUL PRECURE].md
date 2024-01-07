@@ -1001,3 +1001,37 @@ ED
 今年的蓝Q娃也很美，侧马尾好评。人间体发色都和变身后不同
 成田大妈戏怎么这么多，大人q娃难道是复建用的？明年难道是法q的？
 
+
+*****
+
+####  脚底心，洗则白  
+##### 368#       发表于 2024-1-7 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">法Q2怎么可能交给成田？当初她根本没有参与。
+
+*****
+
+####  pokemon最爱  
+##### 369#       发表于 2024-1-7 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562276&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-1-7 11:31</a>
+
+今年的蓝Q娃也很美，侧马尾好评。人间体发色都和变身后不同
+
+成田大妈戏怎么这么多，大人q娃难道是复建用的 ...</blockquote>
+法Q2让井上大小姐系构都比成田大妈系构可能性高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及蓝Q是白猫Nyammy，Lillian的颜色是绿色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 370#       发表于 2024-1-7 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562331&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-1-7 11:37</a>
+
+法Q2让井上大小姐系构都比成田大妈系构可能性高法Q当初成田大妈就一集都没写过
+
+以及蓝Q是 ...</blockquote>
+我是说明年是不是法q的系构
+

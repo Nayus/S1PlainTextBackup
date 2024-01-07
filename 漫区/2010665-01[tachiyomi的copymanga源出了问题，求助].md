@@ -2770,3 +2770,15 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  月亮上的珊瑚  
+##### 280#       发表于 2024-1-7 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561700&amp;ptid=2010665" target="_blank">keroghy 发表于 2024-1-7 10:37</a>
+找到解决办法了，高级设置里有清楚下载索引，好像也是这次更新加的
+
+—— 来自 Xiaomi 22041211AC, Android ...</blockquote>
+我0.14.7版也有这个清除下载索引
+

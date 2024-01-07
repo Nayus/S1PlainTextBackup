@@ -3294,3 +3294,123 @@ MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場
 
 最后的采访那条才是回应设定集的吧，意思是设定集里不会有我新的采访了
 
+
+*****
+
+####  御幸一也  
+##### 7831#       发表于 2024-1-7 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563677&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 13:47</a>
+
+独角兽是不是年底还回过粉丝问题说关系图打码不补不是忘了是以后要补来着，好像不太符合9月切割制作组的说 ...</blockquote>
+很簡單，讓綾奈轉推個邦多利啊，之前任何她負責的東西她都會宣傳一句，
+
+何況現在總集篇劇場版，敬請大家期待這種場面話說一下才是正常的，她完全閉嘴不提呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+[https://twitter.com/unicococ/status/1743805558707380450](https://twitter.com/unicococ/status/1743805558707380450)
+
+藥屋負責單話的都說了一下
+
+*****
+
+####  江口夕  
+##### 7832#       发表于 2024-1-7 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迷的就像大祥老师一样，最后估计也是"就这"结束。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  林登·万  
+##### 7833#       发表于 2024-1-7 13:55
+
+邦多利史上最黑暗的一天<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7834#       发表于 2024-1-7 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563722&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-7 13:51</a>
+
+现在整个事情就非常的迷
+
+邦的官推置顶也把mujica的pv改成了剧场版的pv
+
+给人一种9月时还计划下一部作 ...</blockquote>
+你別說，現在還真是這種感覺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 7835#       发表于 2024-1-7 13:56
+
+说明猫视界的猫部分真的不是她写的（
+
+*****
+
+####  剪切线  
+##### 7836#       发表于 2024-1-7 13:56
+
+设定集怎么在官网上查不到，现在上架了吗
+
+*****
+
+####  Aendst  
+##### 7837#       发表于 2024-1-7 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563776&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-7 13:56</a>
+
+设定集怎么在官网上查不到，现在上架了吗</blockquote>
+[https://bushiroad-store.com/products/2000162084151](https://bushiroad-store.com/products/2000162084151)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 剪切线| + 1||
+
+查看全部评分
+
+*****
+
+####  江口夕  
+##### 7838#       发表于 2024-1-7 13:57
+
+猫这家族设定一看就是上层安排的，毕竟和初代关系不能断也是政治任务
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  青蒜  
+##### 7839#       发表于 2024-1-7 13:59
+
+圣青木升职记<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7840#       发表于 2024-1-7 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563759&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 13:55</a>
+迷的就像大祥老师一样，最后估计也是"就这"结束。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S ...</blockquote>
+就这已经不错了，别是混蛋老爹结尾就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7841#       发表于 2024-1-7 14:00
+
+mujica说什么世界观宣传在藏或者不动之类的还可以理解，但mygo宣发很正常
+
+如果早就决定制作，按照常理来说11月的12thmygo场基本会宣布剧场版，多点新消息mc也能多个内容
+
+所以我确实感觉这个剧场版企划十一月还在商讨中甚至还没有开始进行企划
+

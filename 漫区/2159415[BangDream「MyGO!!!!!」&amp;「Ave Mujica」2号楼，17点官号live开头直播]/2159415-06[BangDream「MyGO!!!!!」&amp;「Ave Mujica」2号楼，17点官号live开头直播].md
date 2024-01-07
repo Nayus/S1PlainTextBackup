@@ -3864,3 +3864,22 @@ mujica官推现在还没转定档呢<img src="https://static.saraba1st.com/image
 
 mujica官号还没宣动画化，不知道能不能憋一个PV出来，绫奈的话可以看看她回来转不转mujica官号动画化的宣布，mujica号我看了还在关注，先相信再相信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 7892#       发表于 2024-1-7 15:33
+
+z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预定一波烂炒了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cmyk1234  
+##### 7893#       发表于 2024-1-7 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561133&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 09:25</a>
+例子有的是，我只是說如果有人覺得是動畫沒做完工期有問題武士道才壓2025年播的，睜開眼睛看一下而已[f:2 ...</blockquote>
+12月30日的编曲最后拉不够满，建议换Inti Creates来写。参考曲目：[无境界神话](https://b23.tv/wDRY8Nv)/（佐佐木李子），[蓝之命运duet（双人合唱版）](https://b23.tv/i2ezahw)/（樱川惠+远藤祐里香）。
+
+如果mujica动画真的出现变故，参与《苍蓝雷霆》的演出者命格不够硬会遇到不幸的谣言又会多加一笔。
+

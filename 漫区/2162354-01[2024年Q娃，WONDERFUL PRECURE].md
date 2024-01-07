@@ -972,3 +972,16 @@ ED
 
 考虑到现在的情况和成田xp虽然结局很可能是主从配但过程可能相当jb乱<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">河豚还是离远点比较好
 
+
+*****
+
+####  pokemon最爱  
+##### 365#       发表于 2024-1-7 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562015&amp;ptid=2162354" target="_blank">leleq 发表于 2024-1-7 11:09</a>
+
+还真是成田！
+
+我前2天在想，说是狗变Q娃实质上不就是银兽变人变Q娃那套么——那不就是战队？！战队2 ...</blockquote>
+个人暴论，作为铁血BG战士的成田大妈写BG戏的水平不如她写小女孩贴贴的水平的脚趾头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

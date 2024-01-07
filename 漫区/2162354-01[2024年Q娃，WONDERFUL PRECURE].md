@@ -1240,3 +1240,11 @@ Screenshot_2024-01-07-14-16-28-65_a252b927494330cdc2c8ba3b3f952e5e.jpg
 —— 来自 Sony XQ-DQ72, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 没长睫毛+蓝色细丝带，可能性还挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 393#         楼主| 发表于 2024-1-7 18:16
+
+万一男同学的声优是男八段怎么办
+

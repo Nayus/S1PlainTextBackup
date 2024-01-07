@@ -4059,3 +4059,27 @@ z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预
 最后一集14号，10号不是嫌出鸟来</blockquote>
 其实是当时烤羊还没成为显学吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  すぴぱら  
+##### 7912#       发表于 2024-1-7 18:03
+
+故意的是吧，发直出鬼图是要被嫌弃的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7913#       发表于 2024-1-7 18:05
+
+这图果然是青木用李世林手机拍的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7914#       发表于 2024-1-7 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63566065&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-7 17:53</a>
+最后一集14号，10号不是嫌出鸟来</blockquote>
+那会都在炒各种假药，什么姐妹论之类的，哪有空烤羊
+

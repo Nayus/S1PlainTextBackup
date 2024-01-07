@@ -2846,3 +2846,24 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 —— 来自 Xiaomi 22041211AC, Android 12上的 S ...</blockquote>
 不是，我这连个点信任的地方都完全找不到，在哪里点信任啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keroghy  
+##### 286#       发表于 2024-1-7 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63566126&amp;ptid=2010665" target="_blank">azbhg1 发表于 2024-1-7 17:59</a>
+不是，我这连个点信任的地方都完全找不到，在哪里点信任啊</blockquote>
+插件那里没有吗，没有的话重新安装下
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  550616  
+##### 287#       发表于 2024-1-7 18:09
+
+我火狐拷贝漫画上次提示改成tv什么后缀后，再也登入不了了
+
+提示不安全网站（网页版）
+

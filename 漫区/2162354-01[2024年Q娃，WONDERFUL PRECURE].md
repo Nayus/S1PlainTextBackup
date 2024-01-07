@@ -1176,3 +1176,13 @@ Screenshot_2024-01-07-14-16-28-65_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 长绳除了碧蓝的拉菲还有哪些
 
+
+*****
+
+####  花开安菲路  
+##### 386#       发表于 2024-1-7 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63564778&amp;ptid=2162354" target="_blank">linhaitora 发表于 2024-1-7 15:40</a>
+长绳除了碧蓝的拉菲还有哪些</blockquote>
+最出名的应该是小林家的龙女仆康娜，最近的是100女友的好本静，主役并不多，年轻一代里幼女吉祥物专业户之一。
+

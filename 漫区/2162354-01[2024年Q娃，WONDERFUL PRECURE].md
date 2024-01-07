@@ -748,3 +748,40 @@ ED
 
 长绳麻理亚啊
 
+
+*****
+
+####  Cloudslin  
+##### 342#       发表于 2024-1-7 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560912&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-1-7 08:47</a>
+制作人 髙桥麻树 去年还有太上皇带 今年就主p 天空这幅样子她也要负责的
+监督 佐藤雅教 资历很浅
+成田大妈 ...</blockquote>
+高桥是「他」，最近十年少有的男性P
+
+*****
+
+####  流浪的咸鱼  
+##### 343#       发表于 2024-1-7 09:29
+
+有点意外
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  粉儿alice  
+##### 344#       发表于 2024-1-7 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561127&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-1-7 09:25</a>
+高桥是「他」，最近十年少有的男性P</blockquote>
+之前看天空访谈 看到太上皇和一名年轻女性照片 这位女性是谁
+
+*****
+
+####  winda  
+##### 345#       发表于 2024-1-7 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞bg能搞出宝石宠物sunshine这种跨物种相恋+有情人终成兄妹这种假药算它厉害，就怕不上不下卡那了
+

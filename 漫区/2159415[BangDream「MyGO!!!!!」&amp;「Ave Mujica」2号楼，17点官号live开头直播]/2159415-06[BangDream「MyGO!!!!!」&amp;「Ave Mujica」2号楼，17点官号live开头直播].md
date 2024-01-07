@@ -415,3 +415,102 @@ wsd就是臭傻逼
 越是傻逼的公司越喜欢搞姐妹企划虐粉开闭 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要代日娱那还是拍完MV拖一年，把团拖没了歌都没发出来的过世女团更好代
 
+
+*****
+
+####  Aendst  
+##### 7545#       发表于 2024-1-7 09:23
+
+牛啊，还有从来没在楼里说话的人突然出来扣鹅的，出来堂堂正正给我合理的理由啊？mygo的pv有立绘复用的吗？静止系pv我都忍了
+
+双月流媒播放垫底是演的？还是你觉得长谷川写的是天籁？
+
+明明在出周边但是动画放明年mygo今年年内有俩剧场版不是事实？
+
+*****
+
+####  Kasroz  
+##### 7546#       发表于 2024-1-7 09:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">wsd是怎么想到把做完一半的母鸡卡全盘推倒的
+
+*****
+
+####  lhwang11  
+##### 7547#       发表于 2024-1-7 09:24
+
+看看wsd对待动物朋友和对待底边团，确实很难评价
+
+*****
+
+####  5678给  
+##### 7548#       发表于 2024-1-7 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561113&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 09:23</a>
+牛啊，还有从来没在楼里说话的人突然出来扣鹅的，出来堂堂正正给我合理的理由啊？mygo的pv有立绘复用的吗？ ...</blockquote>
+<img src="https://p.sda1.dev/15/d0628d30f89122f50e87cd2833abf95f/Image_1704590668923.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|还你的，不用谢|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 7549#       发表于 2024-1-7 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560655&amp;ptid=2159415" target="_blank">cmyk1234 发表于 2024-1-7 07:35</a>
+
+说得好。不过现实还有《剧偶像》制作完成闲置三四年再播放的例子。</blockquote>
+例子有的是，我只是說如果有人覺得是動畫沒做完工期有問題武士道才壓2025年播的，睜開眼睛看一下而已<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 7550#       发表于 2024-1-7 09:27
+
+全盘推翻本来就只是发散而已，可能性很低。独角兽9.14动画播完发的那个推就很有告别的意味，很可能在那之前就已经掰了。剧本是更早就写完的其实我倒不是很担心什么推倒大改。
+
+*****
+
+####  QuattroVageena  
+##### 7551#       发表于 2024-1-7 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561114&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-7 09:23</a>
+
+wsd是怎么想到把做完一半的母鸡卡全盘推倒的</blockquote>
+觉得水星魔女很成功就效它旧事呗
+
+*****
+
+####  御幸一也  
+##### 7552#       发表于 2024-1-7 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560934&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-7 08:54</a>
+
+这推特，我不是很懂日语，有没有n1大手子帮忙翻译一下？开机翻怎么有点哈人 ...</blockquote>
+「都在挖動畫在播時發的推，所以我不繼續刪了，感謝大家喜歡。如果是公司的員工就能寫辭職信打聲招呼了。太過苦惱，夢見好幾次說道別了。」
+
+甚至有人在“最後一次訪談”下面問綾奈還會不會負責ave mujica的劇本，她回答是
+
+「因為在動畫情報的公佈之前，所以現在這個時間點我無法回答。但訪談的話今後是不會再有了。」
+
+以上交給判官們<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7553#       发表于 2024-1-7 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">年輕人的第一款2.5企劃從自己吓自己開始
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

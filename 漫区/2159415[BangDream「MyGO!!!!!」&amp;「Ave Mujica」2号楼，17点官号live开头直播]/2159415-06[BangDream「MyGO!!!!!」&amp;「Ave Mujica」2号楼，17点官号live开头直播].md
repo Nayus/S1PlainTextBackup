@@ -3856,3 +3856,11 @@ mujica官推现在还没转定档呢<img src="https://static.saraba1st.com/image
 
 先进手游再出动画那还不如别出了
 
+
+*****
+
+####  PDQ4  
+##### 7891#       发表于 2024-1-7 15:29
+
+mujica官号还没宣动画化，不知道能不能憋一个PV出来，绫奈的话可以看看她回来转不转mujica官号动画化的宣布，mujica号我看了还在关注，先相信再相信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

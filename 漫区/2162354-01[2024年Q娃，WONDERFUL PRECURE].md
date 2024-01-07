@@ -391,3 +391,65 @@ staff也就这点出息，看看今年花几集变回传统白开水
 
 主仆的胸口大蝴蝶结好像都是和他们主体丝带的设计相互呼应的
 
+
+*****
+
+####  kangkangsama  
+##### 308#       发表于 2024-1-7 08:03
+
+华哥转正好快啊 东映这是给华哥发了三年的一年工资了吧（不算去年），去年还安排了部剧场版主角。
+
+*****
+
+####  盐盐盐盐盐  
+##### 309#       发表于 2024-1-7 08:07
+
+这图，蓝白两个都是宠物？
+
+*****
+
+####  盐盐盐盐盐  
+##### 310#       发表于 2024-1-7 08:08
+
+这图，蓝白两个都是宠物？
+
+*****
+
+####  本间日阳  
+##### 311#       发表于 2024-1-7 08:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">看起来现在公布的四个q娃就是犬主从和猫主从，男同学养的兔子要当追加吗，被男人饲养的q娃怎么听都很内个。
+
+*****
+
+####  starring  
+##### 312#       发表于 2024-1-7 08:09
+
+华哥转正！
+今年还真是一个人一兽的组合
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  本间日阳  
+##### 313#       发表于 2024-1-7 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560730&amp;ptid=2162354" target="_blank">盐盐盐盐盐 发表于 2024-1-7 08:07</a>
+这图，蓝白两个都是宠物？</blockquote>
+看造型应该很明显了，白的是猫，蓝的是猫的饲主。
+
+*****
+
+####  风鸣弦十郎  
+##### 314#       发表于 2024-1-7 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560734&amp;ptid=2162354" target="_blank">盐盐盐盐盐 发表于 2024-1-7 08:08</a>
+
+这图，蓝白两个都是宠物？</blockquote>
+我感觉白是猫
+
+蓝是主人 
+
+因为颜色都对的上 蓝色变身前也是单马尾
+

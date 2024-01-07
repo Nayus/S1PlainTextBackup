@@ -4589,3 +4589,77 @@ mygo動畫播完預告ave mujica不預告總集篇，是武士道有特殊的考
 bsr搞多媒体企划赚的这些钱对根本不算什么，特别跟他赚钱的主业 ...</blockquote>
 还有人信武士道的运营水平啊哈哈哈😆要我说IP运营及格线就是要会看投资回报率配置资源，它能做出无脑投D5J这种事已经说明不及格了，还搁这吹这反商业理性的行为呢。就武士道这烂卡面、烂运营、垃圾排期，活该邦被PJSK抢占上位，好歹PJSK知道讨好愿意花钱的客户，愿意根据角色跟CP的人气与卖气来调整运营方向，典型例子就是原本WS卖的BG 官推看到BL比较火立马增加BL卖的力度。
 
+
+*****
+
+####  爱丁堡official  
+##### 7960#       发表于 2024-1-7 21:12
+
+剧场版应该是临时塞的，为了稳住观众。其实目前看和滚那边差不多，正片续集出不来，先出总集篇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cckuku  
+##### 7961#       发表于 2024-1-7 21:17
+
+你邦现在最大的难题，就是怎么留下被动画吸引来的简中粉丝:live去不了，动画没下文，手游工艺蛋跑了而且还少一个团。
+
+顺便如果我是武士道，我会祈祷希望今年不要有新的女女关系性爆款动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 7962#       发表于 2024-1-7 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567898&amp;ptid=2159415" target="_blank">rslika 发表于 2024-1-7 20:55</a>
+你回复太多了，我没那么多时间翻
+
+bsr搞多媒体企划赚的这些钱对根本不算什么，特别跟他赚钱的主业 ...</blockquote>
+？你是邦邦人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+wsd对d5j确实是不计回报地扔钱扔资源了，但这关邦什么事？相反那段时间的邦，又是空降蝶团tymm的歌喉震惊玩家，又是一堆邪神卡面，曲子也开始同质化，联动、翻唱也少，相反的d5j那边曲库就比邦丰富多了，再后来pjsk出世抢走一大批玩家，又撞上疫情线下live受到影响，手游流水腰斩了好几次，可以说邦的落魄和wsd作死逃不了干系，玩家不一定对d5j本身有意见但不少是对wsd资源倾斜d5j颇有微词的。
+然后你在邦这夸wsd在d5j不计回报扔钱运营所以不用担心邦？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7963#       发表于 2024-1-7 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先没人确定已经做完了。
+这是音乐番，配套的歌曲什么的很容易因为时间问题仓促上马。ave起码要在动画时候掏出两首决定性的曲子，而不是走完剧情了事。
+如果你真重视动画，就以现在给ave的歌来讲只能说还不如mygo。
+ave是对标老r的，再给他一年写几首好歌我觉得不是坏事。
+找补的方向多的很，非要把推特当证据，真是魔怔了。
+<img src="https://p.sda1.dev/15/51510b1d32aec3b57669d3810506d940/IMG_EA147858F74F8FE6B8D041877B95B24C.jpeg" referrerpolicy="no-referrer">
+独角兽关注700多个人，mggm也在内，虽然不知道你们怎么从700多个人里找出mygo的，如果真闹掰了，这mggm是不是也要取关下。拜托，人日本人这关系玩的的比在座的溜多了，很多就是个人需要就取关了避免说漏嘴，怎么看都是捂嘴的可能性更大，毕竟推特过于活跃，武士道说小也不小，脚本家以后也是要吃饭的玩这一套对自己有什么好处。都成年人了，又不是人人都是阿宽。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  PDQ4  
+##### 7964#       发表于 2024-1-7 21:19
+
+正片续不出来那更哈人，去年cv在配音什么，总不能其实三次元内部工作混乱的一批根本没按正常流程在工作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我还是倾向于wsd12月那次开会发动了无上智慧临时加塞了个总集篇剧场版续热度，还特意提了一嘴有新东西，母鸡卡动画硬拖到明年。
+
+*****
+
+####  Aendst  
+##### 7965#       发表于 2024-1-7 21:20
+
+所以为什么取关mygo和邦公式只关注avemujica<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有找补解释
+
+*****
+
+####  -LYRE-  
+##### 7966#       发表于 2024-1-7 21:20
+
+ 本帖最后由 -LYRE- 于 2024-1-7 21:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567640&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 20:31</a>
+不是你们都没考虑过动机的么，动画至少给手游爆了将近2000w的米，虽然不多也算合格完成任务，为啥要 ...</blockquote>
+原来流水这么好么，但贴吧那会不都是说流水不理想、甚至说流水不增反减，还有怒骂ylgo不爆米引起论战的么？
+[Bang Dream九月流水似乎不够乐观](https://tieba.baidu.com/p/8628894701?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.50.3.0&amp;st=1704633667&amp;is_video=false&amp;unique=A0FA05BEDFC80BE3A87C18AA9BB011F8)
+

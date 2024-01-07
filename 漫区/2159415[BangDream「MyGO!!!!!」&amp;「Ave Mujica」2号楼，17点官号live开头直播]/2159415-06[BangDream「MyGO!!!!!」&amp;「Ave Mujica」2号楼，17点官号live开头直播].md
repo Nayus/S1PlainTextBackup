@@ -5340,3 +5340,176 @@ wsd：什么动画趁热打铁，听都没听过，我就要热了放凉了，�
 
 忍了很久，每天都在刷绫奈和柿本有没有恢复关注，这几天看到这个情况实在是无法再忍下去
 
+
+*****
+
+####  青蒜  
+##### 8027#       发表于 2024-1-7 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568639&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:03</a>
+
+我就说了歌太拉整点好的再上花一年可以接受，坛友来给我科普做没做完也是醉了。他做没做完做的快不 ...</blockquote>
+歌太拉，要花一年整改是吧
+
+那最近这几天连放两首是啥意思？
+
+*****
+
+####  江口夕  
+##### 8028#       发表于 2024-1-7 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">一般通过偶像厨谁没事点进去查这种玩意。这和已读那种恶臭功能差不多我都不碰的，就像我从来不看小偶像关注谁，自找没趣罢了。如果日本人查这玩意早在5ch有独角兽黑串了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 8029#       发表于 2024-1-7 22:34
+
+结合目前的说法，独角兽没关注mygo但关注了mujica，第一季结束后和监督互相取关，mujica（疑似）被压到明年，独角兽没转发剧场版情报
+
+这样综合起来岂不是能得出独角兽做mygo一点都不开心只想做mujica，然后因为mujica被压了出走剧组的结论了，独角兽你还是睦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8030#       发表于 2024-1-7 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568965&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:33</a>
+
+一般通过偶像厨谁没事点进去查这种玩意。这和已读那种恶臭功能差不多我都不碰的，就像我从来不看小 ...</blockquote>
+我本来还觉得漏油开玩笑附和了一句，看起来你是真的不会用推特
+
+这个东西根本不用查也不用关注账户本人（被关注方的账户），会直接出现在账户首页，只要你看简介页就能立刻看到
+
+*****
+
+####  江口夕  
+##### 8031#       发表于 2024-1-7 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568963&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-7 22:33</a>
+歌太拉，要花一年整改是吧
+
+那最近这几天连放两首是啥意思？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉得诗超绊和春日影和之前发的一个审查水准么。
+要不把诗超绊换成碧天伴走试试
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  御幸一也  
+##### 8032#       发表于 2024-1-7 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568916&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-7 22:28</a>
+
+12月我翻独角兽推文好像就没有看见她关注那几个官号，烂炒水平太低了 ...</blockquote>
+你12月說這個，愛信等的樓友只會覺得你在爛炒，而且推特是有莫名其妙退追的bug（我自己也遇到過）
+
+說實話，如果只是綾奈沒關注mygo和邦多利官推，甚至退追監督，不至於發散到這地步，
+
+是在這基礎上，完全不提總集篇和ave mujica定檔，結合起來才非常怪異。
+
+畢竟綾奈之前對邦多利的宣傳是沒有少過的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 8033#       发表于 2024-1-7 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568954&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 22:32</a>
+
+怎么可能重做一季半季，都理解到哪里去了。
+
+现实是mujica动画不用考虑任何推测，板上钉钉的就是至少推迟了 ...</blockquote>
+你这个思路是对的，应该由实际情况反推，而不是先找论点再对号入座
+
+但是这个半年只够做一集我实在是不能认同<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 8034#       发表于 2024-1-7 22:37
+
+其实是独角兽祥嬷瘾发作准备九垫一结果被监督英明神武的制止，并且踢出了制作团队，于是无能狂怒的独角兽就取关了其他只留下母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（
+
+*****
+
+####  御幸一也  
+##### 8035#       发表于 2024-1-7 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568965&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:33</a>
+
+一般通过偶像厨谁没事点进去查这种玩意。这和已读那种恶臭功能差不多我都不碰的，就像我从来不看小 ...</blockquote>
+難道不是偶像廚才最愛查這種東西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8036#       发表于 2024-1-7 22:38
+
+ 本帖最后由 江口夕 于 2024-1-7 22:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568980&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 22:35</a>
+我本来还觉得漏油开玩笑附和了一句，看起来你是真的不会用推特
+
+这个东西根本不用查也不用关注账户本人（被 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这只会显示xx和xx等等关注了独角兽，我可不会点这个等等看看里面都有谁
+我没有看这种东西的嗜好
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  11A511  
+##### 8037#       发表于 2024-1-7 22:38
+
+另外我其实是反对wsd临时起意拖延论的（）
+
+去年九月lisani的采访，渡濑的语气也是“虽然我们都在配音了但还是不知道啥时能播出”，可能在制作完成后放一段时间是更早以前就决定的，一年半和一年对实际热度的确也没太大差别
+
+<img src="https://img.saraba1st.com/forum/202401/07/223700bzo55too42h4hmk8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0421.jpeg</strong> (107.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 22:37 上传
+
+要阴谋论一点的话，我更担心是独角兽因为武士道毙了她写得母鸡卡后下一部动画企划才跑路的，原因可能是单纯降本增效也可能涉及某种黑幕
+
+*****
+
+####  青蒜  
+##### 8038#       发表于 2024-1-7 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568965&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:33</a>
+
+一般通过偶像厨谁没事点进去查这种玩意。这和已读那种恶臭功能差不多我都不碰的，就像我从来不看小 ...</blockquote>
+你说得对，什么关注取关都是管人痴那一套互联网办案的遗毒，确实没啥意思
+
+我就想知道为啥要25年1月播，还有就是系列构成也不宣传定档消息
+
+*****
+
+####  御幸一也  
+##### 8039#       发表于 2024-1-7 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569028&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-7 22:38</a>
+
+另外我其实是反对wsd临时起意拖延论的（）
+
+去年九月lisani的采访，渡濑的语气也是“虽然我们都在配音了但还 ...</blockquote>
+呃，你貼的這段是怎麼理解出 “虽然我们都在配音了但还是不知道啥时能播出” 這個意思的……
+
+我看原文沒有這個意思
+
+*****
+
+####  江口夕  
+##### 8040#       发表于 2024-1-7 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569021&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 22:38</a>
+難道不是偶像廚才最愛查這種東西</blockquote>
+纯爱了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

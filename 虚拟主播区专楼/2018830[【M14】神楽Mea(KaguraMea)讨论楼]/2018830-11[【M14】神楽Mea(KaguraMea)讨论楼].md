@@ -691,3 +691,13 @@ p图罢了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  TiHaru  
+##### 16114#       发表于 2024-1-7 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561481&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-1-7 10:10</a>
+可能最近真有，今天刚跟几个主播打了个通宵，用咩号。</blockquote>
+看下opgg，哪几个主播啊？
+

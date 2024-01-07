@@ -1328,3 +1328,11 @@ Screenshot_2024-01-07-14-16-28-65_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 这交接动画要怎么搞？撸狗么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帝下室の年糕  
+##### 402#       发表于 2024-1-7 22:38
+
+阳光明媚的午后公园，牵着索拉的真白和牵着小麦的彩羽相遇了。。。
+

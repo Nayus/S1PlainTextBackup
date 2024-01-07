@@ -4446,3 +4446,64 @@ mujica官推为什么没转啊
 
 ppt定档是挺幽默的，希望不是纯草台，1st能出个续报pv，然后官推官网更新吧。
 
+
+*****
+
+####  近月  
+##### 7948#       发表于 2024-1-7 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567555&amp;ptid=2159415" target="_blank">rslika 发表于 2024-1-7 20:24</a>
+
+一直在推小偶像没怎么关注场外消息，今晚恶补了一下。
+
+按去年9月在配音的流程推测母鸡卡动画是已经 ...</blockquote>
+没有攻击漏油的意思，只是很想知道爬楼是怎么得出1的结论的，因为在别的地方也看到了类似说法。
+
+但这真的很离谱，如果纯粹主创团队内部矛盾怎么可能导致这么长的延期，哪怕是九月从头开始做也不可能要拖到25年才上映，除了企划方强行拖延想不到其他理由<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 7949#       发表于 2024-1-7 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563886&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 14:11</a>
+
+改劇本太陰謀論了，而且根本不需要改一年那麼久，
+
+如果真是因為改劇本推到2025，那這劇本肯定是完完全全 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">你回复太多了，我没那么多时间翻
+
+bsr搞多媒体企划赚的这些钱对根本不算什么，特别跟他赚钱的主业比起来。为了这点快钱把整个企划前端的节奏打乱，纯属烂活。再考虑到bsr在d5j的不计回报扔钱式运营方法，他也不像是个急着恰快钱的运营。我还是等着看主创团队那边后续的情况<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 7950#       发表于 2024-1-7 20:57
+
+ 本帖最后由 rslika 于 2024-1-7 20:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567889&amp;ptid=2159415" target="_blank">近月 发表于 2024-1-7 20:55</a>
+
+没有攻击漏油的意思，只是很想知道爬楼是怎么得出1的结论的，因为在别的地方也看到了类似说法。
+
+但这真的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不至于吧，不只是别的地方吧，楼里也有很多这种猜想啊我的预期是去年9月动画做完白模开始配音，今年7月播，延半年也不是很长吧
+
+
+*****
+
+####  御幸一也  
+##### 7951#       发表于 2024-1-7 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567898&amp;ptid=2159415" target="_blank">rslika 发表于 2024-1-7 20:55</a>
+
+你回复太多了，我没那么多时间翻
+
+bsr搞多媒体企划赚的这些钱对根本不算什么，特别跟他赚钱的主业 ...</blockquote>
+很簡單，你只需要說服我，這總集篇劇場版是一開始就這樣定檔的，
+
+13話那樣斷點本來就是準備一年半之後再播ave mujica動畫，
+
+mygo動畫播完預告ave mujica不預告總集篇，是武士道有特殊的考慮（那麼是什麼考慮呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+因為我想不通<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+

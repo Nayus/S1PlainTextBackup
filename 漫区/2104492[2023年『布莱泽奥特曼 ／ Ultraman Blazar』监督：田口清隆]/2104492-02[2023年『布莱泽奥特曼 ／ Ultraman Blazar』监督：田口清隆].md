@@ -90,3 +90,13 @@ nb
 
 日本小破球2啥时候上映的来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WoLodEstt  
+##### 1588#       发表于 2024-1-7 10:50
+
+贴吧剧透满天飞啊，马来西亚干啥吃的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

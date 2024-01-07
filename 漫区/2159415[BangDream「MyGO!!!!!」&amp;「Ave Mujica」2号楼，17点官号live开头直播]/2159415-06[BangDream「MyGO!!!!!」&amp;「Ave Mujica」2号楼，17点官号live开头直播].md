@@ -1121,3 +1121,246 @@ wsd整烂活儿骂就是了，搞内斗切割是什么意图？替wsd转移火�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">mygo和mujica虽然从描写上就不可分割，但它描写也是按照宿敌/对手关系描写的啊。除非武士道上来就包饺子，我觉得是可以预见到mujica动画里两个团要在各方面对决的。就算这动画就算没有隔一年，也不考虑各种三次元因素，这架迟早也是会吵的。
 
+
+*****
+
+####  浅香山的熊  
+##### 7617#       发表于 2024-1-7 10:42
+
+笑死了 所以强调🐶🐔是一家=wsd是我爹？
+
+在这切割完了 wsd能把🐔提前播放吗？
+
+我强调🐶🐔是一家主要还是从角色和剧情考虑 隔这贷款🐶剧场版切割🐔 🐔tv切割🐶是吧
+
+我看你们这群人才是想让🐶🐔玩完的吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 7618#       发表于 2024-1-7 10:43
+
+不如说明年母鸡卡播的时候还能剩多少鸡粉<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 7619#       发表于 2024-1-7 10:43
+
+ 本帖最后由 -LYRE- 于 2024-1-7 10:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561383&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-7 09:59</a>
+偷换概念有的一手
+
+同企划同作品的配角反客为主和平行企划混为一谈是吧</blockquote>
+哦，终于不装白莲花了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+“为配角反客为主的行为做辩解”这个“辩解”用得好，所以就是只许mygo粉丝不满mujica抢戏，
+mujica反过来不满硬拖一年人气流失就得被你追着咬“都是同企划不要内斗搞切割”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+话说得这么好听我以为你多爱好和平多中立呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这么中立怎么不专注骂wsd故意这么安排呢，怪“配角反客为主”干嘛？只有mujica骂为mygo让路才是搞切割，mygo清算mujica抢戏就不是了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秘银mithril  
+##### 7620#       发表于 2024-1-7 10:44
+
+真难看啊
+
+如果是骂wsd不上心，那全都是附和的
+
+非要说什么资源倾斜，你这不也是指着和尚骂秃驴么
+
+难道指望所谓的mygo粉和你一起说不该资源倾斜么
+
+这点人性都不能理解，指望让别人不痛快了闭嘴不还击，也太天真了
+
+
+*****
+
+####  御幸一也  
+##### 7621#       发表于 2024-1-7 10:44
+
+綾奈她不僅退追了監督，連邦多利官推和mygo官推都退追了，唯獨還追著ave mujica，她真是太愛了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+綾奈還直言Febri那個訪談是最後的訪談了。如果還在和你邦合作，不必這樣吧。
+
+11月開始到昨天，綾奈從來沒提過你邦（我翻完了她這3個月的推，如果有漏告訴我），
+
+之前還覺得是時候未到所以她全力搞那個什麼仙魔大戰，現在看原來是早就切割<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+哦還有早些時候有中國人去問綾奈，還會不會負責ave mujica的劇本（不知道為什麼問的人推已刪），綾奈的回答是這樣。
+
+<img src="https://img.saraba1st.com/forum/202401/07/103537k22kkgp22hsubro8.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (52.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 10:35 上传
+
+以上交給判官們，綾奈到底有沒有切割邦多利<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+不過切割邦多利不等於是和staff不和，監督畢竟也是拿錢做事的，劇本還是他們兩個一起寫的呢，
+
+真的擔心就看2/16監督生日，綾奈之前每年都會祝福的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  yoyodream  
+##### 7622#       发表于 2024-1-7 10:45
+
+当年看万代，wsd，sbga三家感觉世嘉是最阴间的，现在倒是反过来了，也挺邪门
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 7623#       发表于 2024-1-7 10:45
+
+觉得分楼不行就别嫌mujica推到黑泥，我很好奇怎么捂嘴的都没怎么在泥漏发言过
+
+mygo播的时候我还翻译过迷子集会和乐队人实况，手游剧情我也是第一时间在楼里发相关剧情内容的，动画考据我也做过，你们人呢？
+
+*****
+
+####  鲍里斯  
+##### 7624#       发表于 2024-1-7 10:46
+
+我看了一圈，开始骂的不是wsd资源倾斜吗，说的也是鸡粉酸狗的资源好，哪里骂了mygo了？怎么理中客这么敏感的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  millaboreus13  
+##### 7625#       发表于 2024-1-7 10:47
+
+新一季动画和一个总集篇性质剧场版，正常观众更想看哪一个这还用问吗？我还觉得是wsd整烂活儿拿总集篇剧场版敷衍观众呢，尤其是对于中国观众剧场版都大概率看不到，怎么就被形容给狗团专门加塞的福利了？还拿着这个烂活儿作为官方倾斜资源的证据挑动观众内斗搞切割？想阻止内斗切割的还被打为厂商孝子？不觉得太魔幻了么？
+
+*****
+
+####  rslika  
+##### 7626#       发表于 2024-1-7 10:48
+
+粉头资历打压这些东西能不能别一比一复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  skives  
+##### 7627#       发表于 2024-1-7 10:48
+
+说什么都没用了
+这新曲曲绘都不换<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 7628#       发表于 2024-1-7 10:48
+
+谁跟你理客中了 非要话说明白点别tm在这借着骂wsd阴湿狗团吗 抬头看看这楼叫啥 阴湿狗能让你母鸡卡出早点吗 
+
+什么事都能怪到“wsd偏袒mygo”
+
+都有粉了10年2.5次元了 运营这种两团互斗养结晶“我不为我推花钱运营就要不给我推资源了！”的套路还不懂吗 懂还要跟着运营套路走 谁才是孝子真说不好
+
+*****
+
+####  浅香山的熊  
+##### 7629#       发表于 2024-1-7 10:49
+
+所以说了在27号1st前能别贷款切割吗 如果1st到时候🐔待遇还没改善到时候跟你们一起问候wsd好吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 7630#       发表于 2024-1-7 10:49
+
+是不是真切割，真切割问下版主行不行我就开mujica楼了
+
+*****
+
+####  鲍里斯  
+##### 7631#       发表于 2024-1-7 10:49
+
+呃呃，官方资源倾斜还有得论吗？mujica连MV都没新曲绘了，要睁眼瞎说待遇平等吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  twi  
+##### 7632#       发表于 2024-1-7 10:49
+
+怎么说都有理（笑），要不先统一说辞吧，
+
+你和他说mujica和mygo疑似资源倾斜，包括但不限于mujica动画放送前疑似是突然加入的mygo剧场版，两团pv质量差别，人家回你mygo和mujica关系紧密有什么好吵的。
+
+你和他说mygo片场也有mujica，更何况最后一集呈现出来的分割放送既视感太强，现在凭什么拖着一年不推剧情，人家回你mygo和mujica是独立企划，mujica把mygo戏份占了我还不乐意呢。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|讲究一个灵活|
+
+查看全部评分
+
+*****
+
+####  kangkangsama  
+##### 7633#       发表于 2024-1-7 10:50
+
+<blockquote>-LYRE- 发表于 2024-1-7 10:43
+哦，终于不装白莲花了吗
+
+“为配角反客为主的行为做辩解”这个“辩解”用得好，所以就是只许mygo粉 ...</blockquote>
+你是看不见还是怎么着
+
+我都特地标了13集的操作我是觉得没问题
+
+是你拿挑染来说事 我拿你与染厨言论类似的例子告诉你两边就是不同的情况不要拿来偷换概念
+
+*****
+
+####  青蒜  
+##### 7634#       发表于 2024-1-7 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561571&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-1-7 10:22</a>
+怎么会变成现在这样
+企划又不是零和游戏，不用吧</blockquote>
+这才刚刚开始，我丑话说在前面，搞不好后面会开始攻击独角兽谜语人破坏大局呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 7635#       发表于 2024-1-7 10:51
+
+等这个楼卡翻页就换新楼吧，不行就同时开mygo楼和mujica楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星空冻结  
+##### 7636#       发表于 2024-1-7 10:51
+
+不是，你给🐔爆再多的米它也是25年再出啊，我不爆了也是25年出，真想让两团内斗提纯就应该不公布🐔团上线时间然后再公布🐶的总集篇，所以现在才会骂wsd的迷惑操作你懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

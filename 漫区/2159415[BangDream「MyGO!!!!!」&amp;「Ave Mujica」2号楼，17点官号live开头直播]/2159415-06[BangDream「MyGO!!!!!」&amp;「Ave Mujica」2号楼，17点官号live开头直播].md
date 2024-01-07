@@ -332,3 +332,86 @@ mygo单推当然无所谓啦
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这说得怎么像吃了竞业
 
+
+*****
+
+####  凡人  
+##### 7537#       发表于 2024-1-7 09:15
+
+东映能不能收留独角兽，我早就想看女同版nana了
+
+*****
+
+####  kangkangsama  
+##### 7538#       发表于 2024-1-7 09:17
+
+<blockquote>青蒜 发表于 2024-1-7 09:05
+再说了，真有通过开除系列构成来虐粉的吗？这是虐粉还是自爆？</blockquote>
+wsd就是臭傻逼
+
+都是想看好的故事好的小姐姐表演结果被wsd瞎搞 
+
+越是傻逼的公司越喜欢搞姐妹企划虐粉开闭乃团还少吗
+
+“我推待遇不好是因为运营偏爱另一家” 甚至连“你家强推之耻”型的言论都来了 写作骂运营实际嘴对家是吧 别把日娱糟粕带到二次元好吧（当然本质也是wsd要搞） 
+
+我也不觉得切割绫奈是虐粉行为 而是更上层的原因 耐不住有人真觉得切割绫奈都能是因为“偏爱mygo啊”
+
+这鸡狗还没分家
+
+*****
+
+####  lhwang11  
+##### 7539#       发表于 2024-1-7 09:19
+
+真的该分楼了，这才第二天就这样了
+
+*****
+
+####  QuattroVageena  
+##### 7540#       发表于 2024-1-7 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561059&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-7 09:15</a>
+
+东映能不能收留独角兽，我早就想看女同版nana了</blockquote>
+q娃这个样子，别对东映有所期待了
+
+*****
+
+####  相坂君  
+##### 7541#       发表于 2024-1-7 09:20
+
+嚯，起来一看楼里，是有4846内味
+
+有些人都推皇族了，就不要堵底边粉的嘴嘛，说得享受资源是底边团一样在这里理中客要骂就骂公司，不要骂我家推<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7542#       发表于 2024-1-7 09:22
+
+看了一会z8，还是熟悉的烤羊，滑坡远不如泥潭，安心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 7543#       发表于 2024-1-7 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kaiserkay  
+##### 7544#       发表于 2024-1-7 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561074&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-7 09:17</a>
+
+wsd就是臭傻逼
+
+都是想看好的故事好的小姐姐表演结果被wsd瞎搞 
+
+越是傻逼的公司越喜欢搞姐妹企划虐粉开闭 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要代日娱那还是拍完MV拖一年，把团拖没了歌都没发出来的过世女团更好代
+

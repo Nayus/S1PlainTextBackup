@@ -2712,3 +2712,20 @@ tachiyomi 根据某个韩国野鸡版权商的请求把 mangadex 和 bato 源给
 https://github.com/stevenyomi/copymanga</blockquote>
 这个也用不了了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LLLLLuB  
+##### 274#       发表于 2024-1-7 09:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">只能先用回旧版本了
+
+*****
+
+####  拉鲁拉丝  
+##### 275#       发表于 2024-1-7 09:23
+
+除了漫画人我都能正常打开啊。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2891,3 +2891,15 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 信任是在更新和下载新插件的界面，不经过APP下载插件的，都还是红色叉
 
+
+*****
+
+####  YetToCome  
+##### 290#       发表于 2024-1-7 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63566557&amp;ptid=2010665" target="_blank">azbhg1 发表于 2024-1-7 18:47</a>
+没有，已经重新安装过了，楼友的版本和github的那个版本都试过了</blockquote>
+可能是安卓授权的问题，去系统权限里把tachiyomi的读取应用列表权限打开
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

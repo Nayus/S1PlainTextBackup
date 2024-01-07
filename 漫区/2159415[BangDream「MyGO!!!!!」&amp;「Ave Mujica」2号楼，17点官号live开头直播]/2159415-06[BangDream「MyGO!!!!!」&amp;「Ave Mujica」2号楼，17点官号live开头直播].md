@@ -3893,3 +3893,14 @@ z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  青蒜  
+##### 7895#       发表于 2024-1-7 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63564702&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-1-7 15:33</a>
+
+z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预定一波烂炒了 ...</blockquote>
+懂了，是灯箱场外糖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

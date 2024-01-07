@@ -2782,3 +2782,17 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 —— 来自 Xiaomi 22041211AC, Android ...</blockquote>
 我0.14.7版也有这个清除下载索引
 
+
+*****
+
+####  zmw_831110  
+##### 281#       发表于 2024-1-7 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561000&amp;ptid=2010665" target="_blank">azbhg1 发表于 2024-1-7 09:05</a>
+这个也用不了了</blockquote>
+这个拷贝时不时抽风，偶尔能用，突然又不能用。
+
+感觉api端的限速策略改了，所以被BAN IP了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

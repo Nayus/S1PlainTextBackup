@@ -1140,3 +1140,31 @@ ED
 不过感觉声线不够幼，用的是五十岚响子这种jk的声线。
 我不是福瑞控啊！！但是长绳的这个狗狗女主好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 383#       发表于 2024-1-7 14:36
+
+这狗和猫绝育过吗
+
+*****
+
+####  UnrealApartheid  
+##### 384#       发表于 2024-1-7 14:39
+
+ 本帖最后由 UnrealApartheid 于 2024-1-7 14:40 编辑 
+
+同样是养宠物狗的女主角，种崎敦美配音的女主感觉会和同姓的犬饲加恋有共同话题……
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+Screenshot_2024-01-07-14-16-28-65_a252b927494330cdc2c8ba3b3f952e5e.jpg
+(107.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 14:40 上传
+
+<img src="https://img.saraba1st.com/forum/202401/07/144008xuo9br5hg19goubo.jpg" referrerpolicy="no-referrer">
+

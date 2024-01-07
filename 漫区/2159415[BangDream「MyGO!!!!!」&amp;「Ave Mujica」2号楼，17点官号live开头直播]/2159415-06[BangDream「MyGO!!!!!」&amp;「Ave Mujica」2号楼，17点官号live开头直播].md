@@ -3599,3 +3599,128 @@ mujica我不太理解，可能是觉得还在宣发量活动量较低的前期�
 
 有ras漫画的先例，1st要不宣布出个mujica的前传漫画讲一下每个人入团前的经历撑个一年吧，c团元和二年、海铃雇佣兵生涯、喵老师博主日常、初华sumimi打拼记之类的，反正这些东西正片肯定不会说太多的，应该不会和到时候的悬疑解密有太大的矛盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 7861#       发表于 2024-1-7 14:32
+
+会有新pico吗
+
+*****
+
+####  黑夜落叶秋天  
+##### 7862#       发表于 2024-1-7 14:32
+
+草 紫吧一切都可以转烤羊么
+
+*****
+
+####  御幸一也  
+##### 7863#       发表于 2024-1-7 14:33
+
+昨天那個聯動我心危說實話很難繃好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 壞了，羊宮可能真的是太子
+
+*****
+
+####  6030sylar  
+##### 7864#       发表于 2024-1-7 14:34
+
+z8本质偶像厨是这样的了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  青蒜  
+##### 7865#       发表于 2024-1-7 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63564052&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-7 14:28</a>
+
+紫吧已经快进到了武士道为了稳住羊才做了这一切的版本</blockquote>
+不愧是羊gachi大本营，一切以羊为中心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7866#       发表于 2024-1-7 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563330&amp;ptid=2159415" target="_blank">灼眼的夏娜酱 发表于 2024-1-7 13:13</a>
+
+我看前边的时候就是祥子×爱音，结果看到最后这俩互动不也多。如果后面这俩能互动那也很美味 ...</blockquote>
+爱祥可是正式剧情开始后第一对有交流的CP，根据mygo回旋镖满天飞的情况来看，后续潜力很大
+
+*****
+
+####  NODY  
+##### 7867#       发表于 2024-1-7 14:36
+
+只要把一切都推给羊，就可以成功化解鸡狗的矛盾，什么鲁鲁修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 7868#       发表于 2024-1-7 14:38
+
+滑坡一晚就看不懂你楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+要分还是早点分吧，1st后大半年看🐔🐶各宣各的互相都难受
+
+*****
+
+####  skives  
+##### 7869#       发表于 2024-1-7 14:38
+
+<img src="https://img.saraba1st.com/forum/202401/07/143842n9b0xj5djvx0qnlm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>688F87B7-EC6A-4E30-AD92-FFF9759A7FDF.jpeg</strong> (512.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 14:38 上传
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7870#       发表于 2024-1-7 14:38
+
+不愧是紫吧，他们就是适合干这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7871#       发表于 2024-1-7 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63564158&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-7 14:38</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还是z8烂炒令人安心
+
+*****
+
+####  满满一大杯  
+##### 7872#       发表于 2024-1-7 14:41
+
+我懂了，MyGO动画是Crychic，快进到独角兽和新staff做别的关系性姛动画当MyGO<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 7873#       发表于 2024-1-7 14:41
+
+我心危以联动对象来说IP小的可怜，怕不是老登真没钱了
+
+*****
+
+####  此行远兮  
+##### 7874#       发表于 2024-1-7 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562852&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-7 12:27</a>
+那我还想问mygo内部戏份高光不均衡导致两底边为什么总是cue mujica呢
+问就是猫猫戏份太少了不如祥 ...</blockquote>
+这件事归根到底要怪武士道弄这种企划之前不考虑清楚端水的问题，两边粉丝互相攻击毫无意义，只会掩盖官方自己的问题。
+GO团粉丝对动画结局不满也不是这两天的事，将来如果官方在母鸡卡动画里找补那鸡团粉丝也会不满意，武士道搞这种叙事相互交织的动画的时候就应该考虑到这个问题，本来两段连续放送叙事上互相补充互为表里是一个很好的解决思路，但是不知道为什么官方不这么做。
+为什么GO团粉丝为猫希戏份不满但是不贷款猫希，很简单，因为猫猫的设定如果不打补丁的话跟鸡团可以说是毫无关系，立希的劣等感问题也终究需要在GO团内部解决，这两个人的故事很明显根本不适合放到鸡团的动画里，所以官方现在才会想在总集篇里打补丁。
+我不知道银河战舰被打爆这种论调是哪里来的，我觉得被打爆这种事情根本不可能发生，就现在的设定来看鸡团和GO团根本就是职业和业余的差别，甚至根本不是一个赛道的，编剧如果脑子没进水就不会设计鸡团被GO团打爆这种剧情。但是鸡团不可能一直顺风顺水，否则动画拍什么？现在的几种猜想，比如大猫猫炸团，或者初华因为Sumimi大人的原因炸团，甚至祥子或者睦睦因为家里的原因炸团都比鸡团被打爆合理很多。
+还是那句话，现在弄得两边粉丝都不满意的根源在于武士道没有做好端水，没有做好动画剧情和跨次元企划的平衡，两边粉丝互相攻击没有任何意义。
+顺便昨天宣布鸡团动画的档期的形式也相当睿智，GO团粉丝觉得自己的mini live**进了别的团，鸡团觉得这么重要的消息放在了别的团，真是绝了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

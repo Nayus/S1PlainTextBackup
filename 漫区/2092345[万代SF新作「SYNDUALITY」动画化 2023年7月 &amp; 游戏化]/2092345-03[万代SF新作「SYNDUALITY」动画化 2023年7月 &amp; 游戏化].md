@@ -182,3 +182,26 @@
 
 是1月8日晚上更新吗？意思国内一般是1月9日才能看到？
 
+
+*****
+
+####  novyDC  
+##### 3341#       发表于 2024-1-8 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570370&amp;ptid=2092345" target="_blank">管理员我不敢了 发表于 2024-01-08 00:59:18</a>
+是1月8日晚上更新吗？意思国内一般是1月9日才能看到？</blockquote>1月8日晚上11点
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RhmBWT_Wu  
+##### 3342#       发表于 2024-1-8 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570370&amp;ptid=2092345" target="_blank">管理员我不敢了 发表于 2024-1-8 00:59</a>
+是1月8日晚上更新吗？意思国内一般是1月9日才能看到？</blockquote>
+按第一季经验差不多周四周五才有字幕组字幕出来
+官方字幕挺不靠谱的
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

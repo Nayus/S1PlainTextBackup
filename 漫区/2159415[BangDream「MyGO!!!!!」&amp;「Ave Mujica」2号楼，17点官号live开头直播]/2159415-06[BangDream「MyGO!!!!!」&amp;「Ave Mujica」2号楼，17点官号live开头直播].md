@@ -6609,3 +6609,124 @@ ave少点味道，仅此而已。滑坡到大改包饺子那是杞人忧天了
 
 柿本之前也提到过他认为“邦前三部已经把关于友情的故事做到最好了”，那万一他们觉得鸡狗也把新的赛道里的做到最好，担心接下来找不到新的爆点了呢（
 
+
+*****
+
+####  ytttsuuuba  
+##### 8124#       发表于 2024-1-8 00:43
+
+我怎么感觉总集篇又没什么制作成本<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是用来割韭菜的啊。
+
+*****
+
+####  御幸一也  
+##### 8125#       发表于 2024-1-8 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570212&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-8 00:41</a>
+
+武士道觉得一部动画能把被引流来的人吊一年半呗，那趁热打铁的话很多人会在两年后失去兴趣，拖一年的话可 ...</blockquote>
+汗流浹背了，原來是這個意圖，那完了我上了賊船捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 8126#       发表于 2024-1-8 00:43
+
+说实话wsd当初的安排谁也不知道，绫奈老师和柿本监督的问题和你邦的关联有多大也不清楚，可能本来的打算就是先mygo剧场版后ave，前面不说也是专门想留到大发表会的，毕竟wsd可能就是这么没脑子
+
+*****
+
+####  rslika  
+##### 8127#       发表于 2024-1-8 00:44
+
+运营不可能考虑中华炮做布局的，虽然一专效果好但他也是个日本运营。实际是mygo不仅在中国效果好，在日本本土纵向看也是强势回暖，所以bsr觉得mygo在日本很火是很可能的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  御幸一也  
+##### 8128#       发表于 2024-1-8 00:46
+
+強 勢 回 暖 ……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想說讓你給點數據我看看，但這好像又有點那個
+
+*****
+
+####  NODY  
+##### 8129#       发表于 2024-1-8 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570173&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 00:37</a>
+
+那麼，難道你是總集篇不是加塞論支持者？</blockquote>
+我说的“为了热度”啊，我的看法是先定了第二季一月，再反过来丢个总集篇上去顶着，而不是为了狗的热度故意把第二季压到明年，先加塞总集篇赚钱
+
+理由就是我说的，老粉也想等第二季新剧情不太可能为了那点新画面n刷一个总集篇，新人看了是总集篇压根没兴趣，占了cd一半销量的中华炮更是直接被ban在国外，根本看不出有什么赚钱的地方，总不能真赔钱出个剧场版吧
+
+*****
+
+####  rslika  
+##### 8130#       发表于 2024-1-8 00:49
+
+太明显的事实 没有必要<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  御幸一也  
+##### 8131#       发表于 2024-1-8 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570284&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 00:48</a>
+
+我说的“为了热度”啊，我的看法是先定了第二季一月，再反过来丢个总集篇上去顶着，而不是为了狗的热度故 ...</blockquote>
+你這完全是mygo視角，那麼ave被這樣對待的好處是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 8132#       发表于 2024-1-8 00:49
+
+wsd可能真会认为两季快速播完，会导致大部分动画党流失，于是就拖个一年半，这一年半里时不时放点消息，这次宣布个档期，那次发布个新曲，把动画党多栓一会儿，能转变成企划厨更好，多吊一段时间多点赚钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ecauchy  
+##### 8133#       发表于 2024-1-8 00:50
+
+ 本帖最后由 Ecauchy 于 2024-1-8 00:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570016&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 00:22</a>
+
+不是，這不是特指邦多利的，所有的動畫都會有一個プロデューサー的管事位置，
+
+隨便google：[https://www.f](https://www.f) ...</blockquote>
+プロデューサー制度不代表要落实到谁，在制作委员会制度全面落实的现代更多只是一个笼统的功能性称呼，指代的是一群有权利指手画脚的人。
+
+比如wiki那什么dia记载的mygo的プロデューサー是「中野勇人、北泽史隆、呉桐、金成雄文、瓶子修一 」，足足有五个人，就是明显的制作委员会班底。中野勇人（ブシロード）、北泽史隆（TOKYO MX）、金成雄文（ホリプロインターナショナル）、瓶子修一（サンジゲン）都是很明确的，呉桐不知道所属但应该是作画方面的。
+
+你要说有这么一群人我可以同意，非要说有一个总揽全局的负责人，我只能说一般这个人就是监督或者系构。
+
+编辑：真没想到这居然是个那什么词，编辑了。
+
+*****
+
+####  江口夕  
+##### 8134#       发表于 2024-1-8 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570212&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-8 00:41</a>
+武士道觉得一部动画能把被引流来的人吊一年半呗，那趁热打铁的话很多人会在两年后失去兴趣，拖一年的话可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">先不说第一季一坨，二三季虽然ppp好不少（现实事件改编），但是ras部分处理过于干涩。r组剧场版一坨。总体上来讲，独角兽和柿本在棒这个企划下，截止到mygo只能说6.70分。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  rslika  
+##### 8135#       发表于 2024-1-8 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">建议手游剧情也狠狠插队 生死存亡之际就别讲什么情怀了（真人live别停就行
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

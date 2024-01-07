@@ -6265,3 +6265,41 @@ film live是因为难得在第二季做了不少live场景，所以想要把背�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  rslika  
+##### 8096#       发表于 2024-1-7 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569723&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-7 23:52</a>
+
+归纳得好，很少有这样的理性明白人
+
+根据你的猜测推论，好的情况是为了以后鸡狗对邦live顺便做了剧场版而 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">管人团那种事情，不要啊
+
+*****
+
+####  ytttsuuuba  
+##### 8097#       发表于 2024-1-7 23:56
+
+还有，为什么原班人马还有闲控去做菜花，不是都假设修改几集导致工期不足要延期半年了吗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8098#       发表于 2024-1-8 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569667&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 23:47</a>
+
+我是这样想的，如果你认为mygo film live是加塞，那么没有道理重启流水线只为制作一个新画面很少的film l ...</blockquote>
+我感覺我一直說的“ave mujica做完了”不太對，我忘記一點了，
+
+因為就算是按照2024年1月播放的進程在做，其實現在也是在製作中的…… 
+
+看mygo的預告圖檔給的時間，13話的預告圖檔案時間寫的是2023/07/25，我之前猜測這個是成品時間，
+
+所以動畫的製作線應該現在還在跑的，如果還在做ave mujica，要全做完應該等1月底2月？
+
+我說“做完了”其實只是想說我覺得ave mujica的進度現在就能播放<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

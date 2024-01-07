@@ -4246,3 +4246,35 @@ ave mujica新歌angles
 赞同你的观点，但是是staff不是stuff</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 7929#       发表于 2024-1-7 20:17
+
+真滑坡到独角兽和staff不合出走论的话那第二季延期真的就有可能是重做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 7930#       发表于 2024-1-7 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567343&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-7 20:05</a>
+
+某些人粉饰太平的水平我是服的，非要说独角兽和其他Staff没事发生，那就只能是打牌，或者是今天早上某些人 ...</blockquote>
+只能说，虽然我不太相信真的切割了独角兽，但如果真切割了那就这样吧，反正也不影响仍然是25年1月开播，到时候看完再说，不想因为这个而不安，我已经在推立希这件事上学到了不要因为自己改变不了的事情而心绪不宁了。
+
+*****
+
+####  jerryoq1  
+##### 7931#       发表于 2024-1-7 20:20
+
+建议漏油记录一下现在的心态 等一年后看有什么变化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 7932#       发表于 2024-1-7 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">道理我都懂，但他们两今年不是还要在PA那出一部片子的吗。合着说大家职业素质很高谈不来的算谈不来要重做，但是聊得来的就可以继续拍是吧。
+

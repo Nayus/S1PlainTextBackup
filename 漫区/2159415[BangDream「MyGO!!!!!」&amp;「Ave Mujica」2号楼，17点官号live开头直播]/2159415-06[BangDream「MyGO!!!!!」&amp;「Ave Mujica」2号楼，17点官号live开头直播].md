@@ -2754,3 +2754,79 @@ MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場
 MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下能理解soyo为什么这么在乎crychic了（
 
+
+*****
+
+####  cindy355  
+##### 7777#       发表于 2024-1-7 13:06
+
+爬完楼了，总结一下个人想法（表明一下屁股：我是立希激推）
+
+1.独角兽推特属于谜语人炒作，作为立希推实话说也一直认为独角兽在某些场合的行为逻辑是有点偏乐子人模式的，二期切割独角兽个人认为属于过度发散（话说有没有人能给我个图证明一下独角兽以前和柿本互关来着）。
+
+2.Mujica资源不足是绝对的事实，我从去年就一直觉得官号mujica物料少得出奇，导致B站一直只能拿老物料炒作，拿个mujica动画主视觉图一张图出一堆谷，新歌主视觉图拼拼凑凑做两首歌的MV，既没有迷子集会这种东西也没有其他任何新宣发，所以我一直觉得wsd在mujica这块儿是压根没有货的，一直对mujica的档期不抱期望，现在动画档期预告一来果真如此，wsd纯纯的司马东西。
+
+3.mujica动画鸡团角色会不会ooc？我觉得不存在这种担忧，mujica五人的内在行为逻辑在mygo动画里几乎没有给出任何谜底全是谜面，连character都没有真正存在哪儿来的out of character呢？
+
+4.部分狗粉确实得了便宜卖乖，作为立希推，我这几个月看到的光在狗粉内部的得了便宜卖乖行为就已经很多了（指在立希和猫的戏份、塑造问题上，类似“可以放到手游里去讲，动画没有空间了”“真希没有在动画里出场的理由”“已经是实质上的leader了有什么不满的？”），更别说对团外了，我根本不想帮这批人说话（但我自己因为推立希所以确实很希望二期有立希和祥子/海铃的互动内容，希望鸡粉们能海涵，我不会跳脸的）。
+
+*****
+
+####  青蒜  
+##### 7778#       发表于 2024-1-7 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563182&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-7 12:59</a>
+还没有分化吗，nga那边我记得挺早就骂S1祥厨楼了，祥厨太多人都不爱过来看
+
+考虑nga祥黑浓度，现在 ...</blockquote>
+其实也还好，如果没有传话太监两边断章取义瞎几把带节奏的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7779#       发表于 2024-1-7 13:09
+
+其实吧不管是泥潭还是nga，漫区都是没有权限可以随便看的，就这都有带节奏的空间，只能说是裸猿劣根性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 7780#       发表于 2024-1-7 13:10
+
+推祥子，CP的话希望祥子×初华<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  higuchiguchi  
+##### 7781#       发表于 2024-1-7 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563240&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 13:06</a>
+
+爬完楼了，总结一下个人想法（表明一下屁股：我是立希激推）
+
+1.独角兽推特属于谜语人炒作，作为立希推实话 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202401/07/130933i8gt83s33gxgsxw6.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240107-130859.png</strong> (138.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 13:09 上传
+
+17年的推 独角兽感谢柿本关注她的账号
+
+*****
+
+####  本间日阳  
+##### 7782#       发表于 2024-1-7 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我想看爱祥互动。
+
+*****
+
+####  NODY  
+##### 7783#       发表于 2024-1-7 13:11
+
+真别说，立希厨没准还真无所谓和鸡换待遇，已经看到不少觉得第二季立希没戏份好过出来全在垫人的发言了，只能说武士道确实一直都不那么端水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

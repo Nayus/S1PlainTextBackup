@@ -23195,3 +23195,58 @@ LLaVA-Phi能够对数学方程进行精确的OCR并相应地进行求解
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1160#       发表于 2024-1-8 01:39
+
+ 本帖最后由 Machinery 于 2024-1-8 01:41 编辑 
+
+OpenVoice
+
+多功能即时语音克隆
+
+相关研究博客:https://research.myshell.ai/open-voice
+
+github项目主页:https://github.com/myshell-ai/OpenVoice
+
+演示demo:https://huggingface.co/spaces/myshell-ai/OpenVoice
+
+模型权重下载:
+1.https://myshell-public-repo-hosting.s3.amazonaws.com/checkpoints_1226.zip
+2.https://huggingface.co/myshell-ai/OpenVoice
+
+OpenVoice，一种多功能的语音克隆(voice cloning)方法，只需要参考说话者的一个较短的音频片段，就可以复制相关声音并生成多种语言的语音
+
+OpenVoice在以下领域的开放挑战中取得了重大进展:
+1.灵活的语音风格控制，OpenVoice可以对语音风格进行粒度控制，包括情感、口音、节奏、停顿和语调(emotion, accent, rhythm, pauses, and intonation)，还可以复制参考的说话者的音色，这些语音风格不是直接从参考说话者那里复制并受限制的，先前的方法在克隆之后缺乏灵活操纵语音风格的能力
+
+2.零样本跨语言语音克隆，OpenVoice实现了对未包含在大规模说话者训练集中的语言进行零样本跨语言语音克隆，与先前的方法不同，那些方法通常需要包含所有语言的大规模说话者多语言(MSML/massive-speaker multi-lingual)数据集，而OpenVoice可以在没有任何用于该语言的大规模说话者训练数据的情况下将声音克隆到新的语言中
+
+OpenVoice的计算效率也很高，成本比性能更差的商用API低数十倍，为了促进该领域的进一步研究，已经公开了源代码和训练模型，还在演示网站上提供了定性结果
+
+在公开发布之前，本文内部版本的OpenVoice作为MyShell的后端在2023年5月至10月期间已经被全球用户使用了数千万次
+
+<img src="https://img.saraba1st.com/forum/202401/08/013901kt3cqk3332ta3vj3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-013239.jpg</strong> (58.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 01:39 上传
+
+OpenVoice框架的插图，使用了基本说话人模型来控制风格和语言，并使用转换器将参考说话人的音色体现到语音中
+
+<img src="https://img.saraba1st.com/forum/202401/08/014113dt63e29o93ejz6v7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-014049.jpg</strong> (302.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 01:41 上传
+
+hugface权重语言声明:这个版本的权重只支持英文和中文，OpenVoice可以适应任何其他语言，只要提供一个基础说话人，有关多语言和跨语言的示例，请参考这个jupyter笔记本(相关链接:https://github.com/myshell-ai/OpenVoice/blob/main/demo_part2.ipynb)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

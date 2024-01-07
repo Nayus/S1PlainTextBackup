@@ -6959,3 +6959,17 @@ Bang Dream九月流水似乎不够乐观</blockquote>
 
 最后一点，友好的死搅蛮缠不如证据和逻辑严密的吵架，希望你能少用对自己想象的自信浪费他人的时间
 
+
+*****
+
+####  江口夕  
+##### 8154#       发表于 2024-1-8 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570347&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 00:56</a>
+既然都用“回暖”了应该是指手游？
+可10月贴吧还因为流水起争执了
+Bang Dream九月流水似乎不够乐观</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">二观那月是ios是1600wrmb 增幅55%要不这两打一架吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

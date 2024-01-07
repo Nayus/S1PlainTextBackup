@@ -100,3 +100,15 @@ nb
 
 —— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  鲁邦三世1  
+##### 1589#       发表于 2024-1-7 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561830&amp;ptid=2104492" target="_blank">WoLodEstt 发表于 2024-1-7 10:50</a>
+贴吧剧透满天飞啊，马来西亚干啥吃的
+
+—— 来自 nubia NX721J, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+马来不过年就没停播一周，怕不是下周大结局就泄露了
+

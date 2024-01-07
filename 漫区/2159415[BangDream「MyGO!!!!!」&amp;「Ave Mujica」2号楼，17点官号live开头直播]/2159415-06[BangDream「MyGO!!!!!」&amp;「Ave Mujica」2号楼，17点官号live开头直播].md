@@ -4102,3 +4102,34 @@ ave mujica新歌angles
 
 新歌歌词就挺初祥情歌的，甚至李子发推都专门强调钢琴和吉他<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 7917#       发表于 2024-1-7 18:51
+
+<img src="https://img.saraba1st.com/forum/202401/07/184924y0gp5phge6yes48e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 18:49 上传
+
+<img src="https://img.saraba1st.com/forum/202401/07/184933jf5u50nx53by00zf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 18:49 上传
+
+老登要这样对付才听你话
+
+*****
+
+####  kivz  
+##### 7918#       发表于 2024-1-7 18:51
+
+鸡这俩mv制作贪了多少啊，能不能别搞那逼3d了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

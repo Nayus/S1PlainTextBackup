@@ -3089,3 +3089,94 @@ Ave Mujica的粉絲隨主黑化，擺著臭臉大喊軟弱的我已經死了
 那炒作给谁看</blockquote>
 本身mygo也是反环大陆好评吧，独角兽也不太像那种为了让其他人有反应而炒作的类型，看企划粉也在怒喷中华爆这么多米结果没有一点中华相关内容，我对这一点还是持乐观态度。
 
+
+*****
+
+####  此行远兮  
+##### 7809#       发表于 2024-1-7 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561698&amp;ptid=2159415" target="_blank">millaboreus13 发表于 2024-1-7 10:37</a>
+那mujica动画里有mygo成员戏份是不是要两楼正式开战啊？</blockquote>
+如果没有MyGO的戏份去团粉丝会开战，如果有鸡团粉丝会开战<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 7810#       发表于 2024-1-7 13:36
+
+獨角獸越來越像豐川祥子，觀眾越來越像長崎素世
+MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場版)
+Ave Mujica的粉絲隨主黑化，擺著臭臉大喊軟弱的我已經死了
+
+很難不懷疑他們是不是在搞什麼大型社會實驗
+
+*****
+
+####  Aendst  
+##### 7811#       发表于 2024-1-7 13:37
+
+发一次可以，复制粘贴太多次就没意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7812#       发表于 2024-1-7 13:37
+
+不是炒作那就是真情实感，更乐观不起来了。独角兽狗播的时候发癫的还挺厉害的，女女关系性也拿来宣传，播完了查无此人真的很难不让人多想。
+
+之前还能解读成不多说是因为怕说漏嘴鸡相关东西
+
+现在这个情况我乐观不起来，鸡动画剧本不崩都是赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 7813#       发表于 2024-1-7 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563123&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-7 12:53</a>
+
+獨角獸越來越像豐川祥子，觀眾越來越像長崎素世
+
+MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場 ...</blockquote>
+独角兽是自己说过写到最后发现自己是丰川祥子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我自己构思过的一个展开是银河战舰劈波斩浪之时，祥子发现初华和睦也只是想要让她回到过去，海铃和喵梦看到没指望了直接了解散，爹被接回了家里，赞助商和TGW物产谈好了，而她只是个坏掉了需要修正的闹麻了的大小姐，现在连个小破屋都没有了
+
+*****
+
+####  dqtql  
+##### 7814#       发表于 2024-1-7 13:39
+
+还是先忘记一切吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7815#       发表于 2024-1-7 13:41
+
+改劇本有點太陰謀論了，但切割看起來是真切割了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+昨天看她推特就不太對勁，ave的東西不能說，好吧，
+
+那你狗的總集篇呢，提都不提屬於是，破案了，原來mygo系構其實是子仁由奈綾，不是綾奈呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7816#       发表于 2024-1-7 13:41
+
+滑坡心态不好的时候确实可以看看立希的待遇自我安慰一下，至少鸡团没差到厨子宁愿第二季边缘打酱油也不要出来拉仇恨当败犬，声优在生放和广播里面多次给自己角色找补说她真的是好孩子，还要被路人说不要负能量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 7817#       发表于 2024-1-7 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563199&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-01-07 13:01:21</a>
+直接骂wsd没啥问题，谁不骂呢。但扯到资源多少就会扯到其他人，那争吵不就不可避免了吗？ ...</blockquote>为什么不扯资源呢？骂的不就是武士道没给够资源吗？那不骂这个骂什么？
+话题打住吧，话题好不容易过去了，没必要再汴京了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

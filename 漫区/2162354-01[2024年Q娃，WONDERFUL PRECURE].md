@@ -1130,3 +1130,13 @@ ED
 原来另一个人类妹子也变身，我还以为白兔子是那个白（蓝）q
 都主从配好了搞cp希望是三对主从锁，或者主人配主人宠物配宠物这种，宠物和别家饲主搞cp会感觉自家饲主有点惨hh
 
+
+*****
+
+####  花开安菲路  
+##### 382#       发表于 2024-1-7 13:39
+
+华哥这是点了对制作人特攻啊，光速转正，估计配完剧场版在制作人心中已经内定了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不过感觉声线不够幼，用的是五十岚响子这种jk的声线。
+我不是福瑞控啊！！但是长绳的这个狗狗女主好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+

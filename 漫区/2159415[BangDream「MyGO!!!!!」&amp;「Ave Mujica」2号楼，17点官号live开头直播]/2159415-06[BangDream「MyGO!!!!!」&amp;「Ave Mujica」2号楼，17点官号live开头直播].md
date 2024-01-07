@@ -4411,3 +4411,38 @@ ave mujica新歌angles
 
 mujica官推为什么没转啊
 
+
+*****
+
+####  Aendst  
+##### 7944#       发表于 2024-1-7 20:43
+
+不知道，可能1st会再宣续报然后官推官网再更新，或者纯草台
+
+如果是前者，更无法理解昨天把定档ppt放出来的意义何在
+
+*****
+
+####  higuchiguchi  
+##### 7945#       发表于 2024-1-7 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">说到草台 官推发定档消息用的是决定而不是予定 声优们转发也是直接用了决定
+
+可能决定予定没什么大区别？
+
+*****
+
+####  Kasroz  
+##### 7946#       发表于 2024-1-7 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567694&amp;ptid=2159415" target="_blank">狮子咕 发表于 2024-1-7 20:36</a>
+说起来几年前我很喜欢守望先锋，最早期游戏的人设和当时的编剧说的东西也很多，他们还说要出关于守 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近邦邦的大新闻是工艺蛋走了
+
+*****
+
+####  ytttsuuuba  
+##### 7947#       发表于 2024-1-7 20:50
+
+ppt定档是挺幽默的，希望不是纯草台，1st能出个续报pv，然后官推官网更新吧。
+

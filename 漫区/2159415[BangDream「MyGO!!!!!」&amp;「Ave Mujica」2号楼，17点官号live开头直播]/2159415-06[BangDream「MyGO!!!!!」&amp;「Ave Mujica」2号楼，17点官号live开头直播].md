@@ -4663,3 +4663,130 @@ ave是对标老r的，再给他一年写几首好歌我觉得不是坏事。
 原来流水这么好么，但贴吧那会不都是说流水不理想、甚至说流水不增反减，还有怒骂ylgo不爆米引起论战的么？
 [Bang Dream九月流水似乎不够乐观](https://tieba.baidu.com/p/8628894701?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.50.3.0&amp;st=1704633667&amp;is_video=false&amp;unique=A0FA05BEDFC80BE3A87C18AA9BB011F8)
 
+
+*****
+
+####  rslika  
+##### 7967#       发表于 2024-1-7 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568169&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-7 21:18</a>
+
+？你是邦邦人吗怎么敢在邦邦这里说“再考虑到bsr在d 5 j的不计回报扔钱式运营方法”的？
+
+w ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">因为bsr做多媒体企划的钱全是卖卡和摔角来的啊，大家都是被反向输血的，上面某个老头（可能是mggm）梦想的产物罢了
+
+*****
+
+####  PDQ4  
+##### 7968#       发表于 2024-1-7 21:24
+
+谁跟你讲是跟wsd闹掰了，不是担心跟你邦动画团队有间隙吗，wsd又不是只有一个邦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+推特关注很简单，一看漏油就不玩，你关注了绫奈去mygo号和邦官号看看就知道有没有共同关注了，但是不能否定X大抽风把mygo官号隐藏的可能，毕竟wb有这种情况，虽然我搁X上没见过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7969#       发表于 2024-1-7 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568171&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 21:18</a>
+
+首先没人确定已经做完了。
+
+这是音乐番，配套的歌曲什么的很容易因为时间问题仓促上马。ave起码要在 ...</blockquote>
+首先，看三次元的製作訪談，不是你騙我就是三次元在騙我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+9月在配音的動畫，你告訴我沒做完，酷
+
+其次，你不會不知道推特只要你關注了，就會提示某個帳號你關注的人裡有哪些也有關注吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+何況現在推特你是無法把關注全部翻完的，只會顯示部分，有意見找elon
+
+*****
+
+####  滑稽Captain  
+##### 7970#       发表于 2024-1-7 21:26
+
+虽然22年9月10月有开始配音工作有读台本是事实，但是录了第一集也是录了，录到第三第四集也是录了，离13集都还远着呢；
+
+完全可以是本来三次元也没收到定档在什么时候，反正就先做着，不管wsd怎么要求都能赶得上播出，后来wsd才正式定的25.1去凑10周年并希望中间加个剧场版
+
+*****
+
+####  近月  
+##### 7971#       发表于 2024-1-7 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568171&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 21:18</a>
+
+首先没人确定已经做完了。
+
+这是音乐番，配套的歌曲什么的很容易因为时间问题仓促上马。ave起码要在 ...</blockquote>
+有人不希望动画片场实际上无事发生，一切都是漏油的臆想烂炒吗，大家不都是担心这个企划的未来才发散了这么多，你现在说漏油魔怔，那么逼漏油这么魔怔的还不是公布25年上动画的武士道<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+另外am团这个一套新立绘都憋不出来的资源最好是对标老r<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7972#       发表于 2024-1-7 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568230&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-7 21:24</a>
+谁跟你讲是跟wsd闹掰了，不是担心跟你邦动画团队有间隙吗，wsd又不是只有一个邦
+
+推特关注很简单，一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老哥，武士道把关的和动画staff有个啥关系，都是打工的。要闹掰就是和武士道闹掰还能有别的？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  御幸一也  
+##### 7973#       发表于 2024-1-7 21:28
+
+ 本帖最后由 御幸一也 于 2024-1-7 21:29 编辑 
+
+樓友們別太情弱了，好吧我訪談連結都給你了，
+
+只是這篇其實專業詞蠻多的有點難啃，加油看一下，我懶得翻譯了
+[https://cgworld.jp/article/202202-bangdream.html](https://cgworld.jp/article/202202-bangdream.html)
+
+這甚至是2022年的訪談，難道是2023年三次元天降大BOSS把製作體系全改了，那也太酷了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剛看記錯了，不是訪談，是介紹文捏，沒有關係反正樓友了解一下三次元的製作流程<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  江口夕  
+##### 7974#       发表于 2024-1-7 21:29
+
+ 本帖最后由 江口夕 于 2024-1-7 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568266&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 21:28</a>
+樓友們別太情弱了，好吧我訪談連結都給你了，
+
+只是這篇其實專業詞蠻多的有點難啃，加油看一下，我懶得翻譯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可以做完可以没做完，不满意还可以改等于没做完理解意思不。你猜百万动画做了几年，按你三次元这流程一年就做完早发出来了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 7975#       发表于 2024-1-7 21:30
+
+可能mygo的流程是做一集配一集而不是全部13集做完再配音吧，然后9月那会刚配了一两集这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实之前就在楼里看到有人说动画一个多月做一集所以第二季要10月后的说法，当时还觉得太夸张了怎么会那么久，没想到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7976#       发表于 2024-1-7 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568252&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-7 21:26</a>
+
+虽然22年9月10月有开始配音工作有读台本是事实，但是录了第一集也是录了，录到第三第四集也是录了，离13集 ...</blockquote>
+別太搞笑了兄弟，你意思是只錄幾話，然後剩下幾話擱第二年再錄音嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你不會以為一個動畫製作組束縛住那麼多staff是很簡單的事吧，要做肯定是一口氣做完的，還是說你覺得做一個動畫其實是每天花1小時做5年這樣做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

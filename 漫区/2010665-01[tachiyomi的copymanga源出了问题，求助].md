@@ -2913,3 +2913,16 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  GrassSand  
+##### 292#       发表于 2024-1-7 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568111&amp;ptid=2010665" target="_blank">tclm 发表于 2024-1-7 21:12</a>
+
+全部权限都给了，拷贝源还是每次进软件都不信任，而且改了信任也打不开
+
+—— 来自 HUAWEI OXF-AN10, Andro ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新0.15后的feature 降级或者等开发组回心转意
+

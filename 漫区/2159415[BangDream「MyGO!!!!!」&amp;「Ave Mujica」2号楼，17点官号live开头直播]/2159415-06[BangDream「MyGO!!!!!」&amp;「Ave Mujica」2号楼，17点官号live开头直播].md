@@ -6793,3 +6793,133 @@ wsd可能真会认为两季快速播完，会导致大部分动画党流失，�
 
 可能武士道真的很自信觉得一季动画能撑一年多热度，所以把第二季放到25年就可以再多续一年吧
 
+
+*****
+
+####  11A511  
+##### 8141#       发表于 2024-1-8 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570169&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-8 00:36</a>
+
+1. 请不要用「你去调查一下，不要闹笑话了」这种措辞并在最后用反问或者设问结尾。这很不友好。
+
+如果有有 ...</blockquote>
+1.先说“不言自明”的人是你，既然你觉得自己这么懂流水线那我想你去研究一下实际生产中的流水线也不会有问题吧？
+
+2.我说的脑补当然是指你在论证中使用的逻辑和证据，而非观点本身；“存在原计划”，这不是访谈里前一段明确说明着的吗？
+
+3.你知道「きっかけ」、「ノリ」是什么意思，哪个的因果性更强吗？你说“可以认为“都不是主要原因””，是不是说对于形成你的观点而言，当事人实际说出口的言论不如你的脑补？
+
+4. 你不会真觉得访谈里的吹逼比个人推特更有可靠性吧？ 哦，所以最后“两者都不可靠”，还是得靠你的脑补
+
+*****
+
+####  skives  
+##### 8142#       发表于 2024-1-8 01:03
+
+其实最大的可能性是为了给mujica的舞台剧加上华丽的打戏 才延期的
+
+*****
+
+####  rslika  
+##### 8143#       发表于 2024-1-8 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570347&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 00:56</a>
+既然都用“回暖”了应该是指手游？
+可10月贴吧还因为流水起争执了
+Bang Dream九月流水似乎不够乐观</blockquote>
+那寄了，想想怎么给成员办长期演出许可吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">还有就是能不能别用紫吧的内容，隔壁粉丝见了紫有点过敏
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  allesdg  
+##### 8144#       发表于 2024-1-8 01:05
+
+如果接着继续发新歌的话下一首应该就是114睦生日公布了吧，想象一下睦生日那天看到新的便宜背景加老立绘实在是太难绷了，考虑到他1st的谷用的就是这套质量一般的立绘，那是否说明即便日后1st前有新图质量也不会高于现在这套了，真是这两天不管哪方面的事都是稍微想一下就能感受到wsd恶心得令人发指
+
+*****
+
+####  滑稽Captain  
+##### 8145#       发表于 2024-1-8 01:06
+
+又不是第一年看动画，现在有些动画其实一开始就计划做两季24集，但不像以前一样半年直接播完，而是要播一季分割一下再播一季，难道不是同一个道理（
+
+除了能有更宽裕的制作时间，本来半年播完，后续活动一下可能大概9个月就散了，但是3+空+3+后续，这就能凑到一年甚至更多
+
+*****
+
+####  御幸一也  
+##### 8146#       发表于 2024-1-8 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570382&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 01:00</a>
+
+就是两边都没好处才奇怪啊，mygo自己的后续不也在第二季，更别说不出第二季还得被时间线卡一整年手游活动 ...</blockquote>
+幸虧現在樓友冷靜了很多，你如果真的覺得出這個總集篇對mygo是“沒有好處”，我很難評……
+
+*****
+
+####  ytttsuuuba  
+##### 8147#       发表于 2024-1-8 01:09
+
+简单点想可能是为了明年1月邦多利十周年纪念动画这盘饺子。至于mujica粉丝的死活就先不管了。如果1st之后能陆续出mujica的翻唱啊小动画啊五人的广播什么的，那其实还行。当然，如果没有那也没办法，反正已经滑坡至此了。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8148#       发表于 2024-1-8 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570403&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-8 01:03</a>
+
+其实最大的可能性是为了给mujica的舞台剧加上华丽的打戏 才延期的</blockquote>
+这个好，就按你这个梦，如果25年1月抬上来的动画有高质量打戏和仍旧出彩的剧本，我将带头向WSD滑轨并献上大米<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 8149#       发表于 2024-1-8 01:09
+
+<img src="https://img.saraba1st.com/forum/202401/08/010922rtt90wppepw913sp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 01:09 上传
+
+[ケム @kkm338](https://twitter.com/kkm338/status/1744042404897034333)
+
+来看初嬷
+
+*****
+
+####  Ecauchy  
+##### 8150#       发表于 2024-1-8 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570398&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-8 01:03</a>
+
+1.先说“不言自明”的人是你，既然你觉得自己这么懂流水线那我想你去研究一下实际生产中的流水线也不会有 ...</blockquote>
+最后一次回复了，你的不友好程度已经隐隐碰到了我的个人红线边缘，我觉得再讨论下去会有大家都不想看到的事情发生。
+
+1. 纯粹的非针对观点而是针对态度的抬杠行为。我不认为吵“是你先骂我的”会有什么实际价值。
+
+2. 访谈前一段说了这个内容，是你自己“脑补”（用你的话讲）出，这个内容就是“原计划”的。
+
+3. 你和我吵架的きっかけ是因为你觉得「不言自明」是对你的侮辱，于是你一时上头，「ノリでやっちゃった」。显然在这个特殊的语境里，「ノリ」对应的才是根本原因。
+
+4. 杂志（含网络专栏）刊载的文章是以公司身份进行的商业行为，当然更可靠。
+
+另外，我很好奇为什么你能给我扣分，而我不能给你扣。
+
+*****
+
+####  御幸一也  
+##### 8151#       发表于 2024-1-8 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570465&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-8 01:10</a>
+
+最后一次回复了，你的不友好程度已经隐隐碰到了我的个人红线边缘，我觉得再讨论下去会有大家都不想看到的 ...</blockquote>
+因為你權限不夠，多挂機S1，然後記得簽到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

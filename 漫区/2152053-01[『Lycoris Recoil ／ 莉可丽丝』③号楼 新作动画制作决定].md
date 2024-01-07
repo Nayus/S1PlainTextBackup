@@ -18635,3 +18635,18 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 2024-1-7 23:11 上传
 
+
+*****
+
+####  Aeroblast  
+##### 1444#       发表于 2024-1-8 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569300&amp;ptid=2152053" target="_blank">qz66618 发表于 2024-1-7 23:08</a>
+
+是朝浦写的吗？
+
+—— 来自 S1Fun</blockquote>
+『新作リコリス・リコイル（仮）』
+
+著／アサウラ　原案・監修／Spider Lily　イラスト／いみぎむる
+

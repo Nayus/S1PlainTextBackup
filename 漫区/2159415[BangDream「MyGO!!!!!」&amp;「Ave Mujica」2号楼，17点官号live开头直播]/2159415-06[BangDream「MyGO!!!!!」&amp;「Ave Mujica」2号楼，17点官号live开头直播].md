@@ -4790,3 +4790,117 @@ w ...</blockquote>
 
 你不會以為一個動畫製作組束縛住那麼多staff是很簡單的事吧，要做肯定是一口氣做完的，還是說你覺得做一個動畫其實是每天花1小時做5年這樣做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 7977#       发表于 2024-1-7 21:33
+
+要脑补制作进度慢也不是不可以，制作进度都这么让人无语了还加塞有新内容的剧场版，只能说更迷惑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 7978#       发表于 2024-1-7 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568258&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 21:27</a>
+
+老哥，武士道把关的和动画staff有个啥关系，都是打工的。要闹掰就是和武士道闹掰还能有别的？
+
+— ...</blockquote>
+你这么提我就有意见了，都是打工的，怎么non当初D5J闹成那个样子邦里营业还营的好好的？你不会要提D5J太糊了闹的那么难看WSD也没意见吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把所有项目组混为一谈搞连坐才离谱。
+
+以及独角兽今晚推特还在发仙魔大战的癫，你邦情报频出她动画播完以后就查无此邦了，这才是有疑惑的地方。总不能就跟漏油说的，绫奈也要耍打牌吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 7979#       发表于 2024-1-7 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568191&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 21:20</a>
+
+所以为什么取关mygo和邦公式只关注avemujica有没有找补解释</blockquote>
+可能确实和邦这边没啥关系了，MyGO以后的运营也与她无关了，Mujica动画还没落地而且她参与度还算高所以留着，Mujica动画完结可能就彻底划清界限了吧
+
+*****
+
+####  御幸一也  
+##### 7980#       发表于 2024-1-7 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568279&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 21:29</a>
+
+可以做完可以没做完，不满意还可以改等于没做完理解意思不。你猜百万动画做了几年，按你三次元这 ...</blockquote>
+都給你說啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那我說根據三次元的製作流程和9月已經在配音這個事實，ave mujica已經有一個版本可以播放的動畫，你認同不認同嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我可沒有滑坡到改劇本，我建議樓友也先別滑坡到那地步歐。
+
+
+*****
+
+####  滑稽Captain  
+##### 7981#       发表于 2024-1-7 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568334&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 21:34</a>
+
+都給你說啦
+
+那我說根據三次元的製作流程和9月已經在配音這個事實，ave mujica已經有一個版本可以 ...</blockquote>
+你说在24年7月有，我可以认同，在现在不太可能
+
+*****
+
+####  Aendst  
+##### 7982#       发表于 2024-1-7 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568325&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-7 21:34</a>
+
+可能确实和邦这边没啥关系了，MyGO以后的运营也与她无关了，Mujica动画还没落地而且她参与度还算高所以留 ...</blockquote>
+唉，隔壁仙魔大战她今天还在发相关，这么上心的脚本家却要跟自己用心的企划到这一步
+
+*****
+
+####  御幸一也  
+##### 7983#       发表于 2024-1-7 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568288&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 21:30</a>
+
+可能mygo的流程是做一集配一集而不是全部13集做完再配音吧，然后9月那会刚配了一两集这样
+
+其实之前 ...</blockquote>
+錄音肯定不是一天全部錄完，9月開始錄音，估計11月12月錄最終話，大概這種感覺，
+
+你可以看一下我推孩子，他們之前YT上有一個欄目就是走進錄音室，然後採訪聲優配那一話的感想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你可以通過這個推錄音時間和動畫播放時間，看看日本動畫的配音怎麼安排日程的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+我不想當免費做表人了，你長大了要學會自己匯總情報
+
+*****
+
+####  nebulanoby  
+##### 7984#       发表于 2024-1-7 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">唉，怎么吵成这样了
+
+还是复读素食名场面吧
+
+*****
+
+####  -LYRE-  
+##### 7985#       发表于 2024-1-7 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568171&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 21:18</a>
+首先没人确定已经做完了。
+这是音乐番，配套的歌曲什么的很容易因为时间问题仓促上马。ave起码要在 ...</blockquote>
+？推上找关注这么简单为什么你会认为要翻完700个人？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+发过的图还得再发一次<img src="https://p.sda1.dev/15/94b29527136acf51ea1a0e335c5155d3/CMP_20240107214040132.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7986#       发表于 2024-1-7 21:42
+
+感觉……这次吵起来是不会用推特和不会日语看不懂访谈导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

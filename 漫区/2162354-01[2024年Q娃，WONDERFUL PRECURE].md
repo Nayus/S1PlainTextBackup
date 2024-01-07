@@ -1346,3 +1346,13 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  粉儿alice  
+##### 404#       发表于 2024-1-7 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63566264&amp;ptid=2162354" target="_blank">新HGCG 发表于 2024-1-7 18:16</a>
+万一男同学的声优是男八段怎么办</blockquote>
+绪方？ 突然觉得这男人有点像月城雪兔 而且名字也带兔….
+

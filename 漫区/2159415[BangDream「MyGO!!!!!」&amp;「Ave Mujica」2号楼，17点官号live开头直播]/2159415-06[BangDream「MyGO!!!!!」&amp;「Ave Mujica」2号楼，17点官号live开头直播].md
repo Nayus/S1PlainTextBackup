@@ -5762,3 +5762,54 @@ https://x.com/ki3wii/status/1743906338516975756?s=20
 我看原文沒 ...</blockquote>
 日语词典里给待ち遠しい 的解释是 「待っていてもなかなかその時やその事態がこないで、やりきれない」，真定档了没必要这样说吧？
 
+
+*****
+
+####  御幸一也  
+##### 8062#       发表于 2024-1-7 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569139&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 22:49</a>
+
+后者我确实不知道，求给个访谈关键字我搜搜。
+
+前者这个说法我不能同意，你是从武士道的角度看觉得没损失 ...</blockquote>
+就喜歡你這樣願意了解再來一起討論的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+[https://www.anime-recorder.com/tvanime/181484/](https://www.anime-recorder.com/tvanime/181484/)
+
+上面一問說到，第二季和第三季是同時決定要做的，重點是下面這段
+
+『2nd Season』と『3rd Season』で1年空きがありましたからその間に映画が作れますよって、そういうノリでしたね。
+
+第二季和第三季之間，三次元空了一年沒事做，所以三次元提議要不要做劇場版。
+
+*****
+
+####  Ecauchy  
+##### 8063#       发表于 2024-1-7 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569132&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-7 22:49</a>
+
+做一集OVA要六个月难道意味着一季动画要六年？哪怕是2D动画，插进流水线里实际增加的时间顶天一个月。现 ...</blockquote>
+1. 一集ova六个月当然不意味着一季要六年，有个词叫“边际效应”。
+
+2. 正如你所说，那是插进流水线里。而我从一开始就说了，我的估计是流程要从头启动的时间。
+
+3. 去年十月份不可能已经决定了要推倒重来，否则不会做合号之类的宣传。楼友们估计的做决定时间都是12月底。
+
+4. 同样，去年十月份不可能已经做完了。当时声优说的是九月份正在配，最乐观的估计也是十一月做完。
+
+5. 你不会只盯着一张曲绘一个pv看吧？
+
+6. 当然，5. 那只是我随口黑屁一句而已，无论如何，武士道再糊，这一集的钱也还是拿得出来的。
+
+*****
+
+####  御幸一也  
+##### 8064#       发表于 2024-1-7 22:56
+
+ 本帖最后由 御幸一也 于 2024-1-7 22:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569163&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-7 22:52</a>
+
+日语词典里给待ち遠しい 的解释是 「待っていてもなかなかその時やその事態がこないで、やりきれない」， ...</blockquote>
+我第一反應這詞就是普通的表達期待而已<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer"> 
+

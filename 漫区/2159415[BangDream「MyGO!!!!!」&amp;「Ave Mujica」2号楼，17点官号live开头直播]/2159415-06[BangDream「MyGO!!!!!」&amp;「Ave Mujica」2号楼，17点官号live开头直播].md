@@ -3724,3 +3724,36 @@ GO团粉丝对动画结局不满也不是这两天的事，将来如果官方在
 
 —— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  6030sylar  
+##### 7875#       发表于 2024-1-7 14:43
+
+有种为了讨好羊人拿自家去垫的美感
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  NODY  
+##### 7876#       发表于 2024-1-7 14:48
+
+ 本帖最后由 NODY 于 2024-1-7 14:49 编辑 
+
+昨天生放宣布我心危联动以后羊确实兴高采烈的，还很积极大声的介绍我心危的剧情设定，比聊灯的时候活泼多了，是有点让人绷不住，尤其是和前面有老哥对青木喊生日快乐的时候羊在那疑惑来对比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 7877#       发表于 2024-1-7 14:51
+
+联动心危一举解决了羊觉得X很复杂的问题
+
+*****
+
+####  DarthAka  
+##### 7878#       发表于 2024-1-7 14:51
+
+话说回来，我心危2的OP真不错……
+

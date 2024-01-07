@@ -2429,3 +2429,107 @@ wsd真tm飞🐴玩意 广播没有 小动画没有 翻唱没有 动画没有 现
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  牛尾宪辅  
+##### 7748#       发表于 2024-1-7 12:22
+
+观绫奈老师推特有感：
+<img src="https://p.sda1.dev/15/98b324f9a13e5c023deaae962b44a5ed/CMP_20240107122136304.jpg" referrerpolicy="no-referrer">
+可以说是我了😭（
+
+*****
+
+####  L7lv6  
+##### 7749#       发表于 2024-1-7 12:24
+
+<blockquote>Aendst 发表于 2024-1-7 11:50
+这下我理解羊宮为什么不敢发推了，这就是发言被解读的力量感同身受了
+
+第一个提到抢资源说什么强推之 ...</blockquote>
+能分配的资源就那么多，wsd又不是什么年年赚大钱的企划，就算是，日本能动员的死宅就那么多，不可能无限压榨的。
+
+作为同一个企划下不同团体讨论资源分配多寡必然涉及其他团体。抢资源说的不也是资源分配，有新团，要推新团，必然导致老团可用的资源减少，甚至还得先从老团引流才行。
+
+一开始可能是打算两团同推，但发现mygo火了就打算加码资源先推mygo，m团延后，这完全是wsd可以搞出来的操作。
+
+说这么多只是想说讨论资源分配是没什么意思的事，全看wsd怎么操作。
+
+之前ppp粉抱怨又出新团来分资源，被这楼打成顽固不化的遗老，现在这楼又开始讨论资源的问题，不是挺可笑的吗
+
+*****
+
+####  PDQ4  
+##### 7750#       发表于 2024-1-7 12:24
+
+漏油真会讲鬼故事，不过看出谷应该也知道到底哪个好看，1st这两个MV实在是太难蚌了，曲绘跟不上那曲子能不能来点劲儿的，这两首都不够爽。
+
+曲子质量好的话也能和解一点<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7751#       发表于 2024-1-7 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562815&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-1-7 12:24</a>
+
+能分配的资源就那么多，wsd又不是什么年年赚大钱的企划，就算是，日本能动员的死宅就那么多，不可能无限 ...</blockquote>
+有道理，但是看你这么讲我觉得mujica粉只会更生气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的光阴  
+##### 7752#       发表于 2024-1-7 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562743&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 12:16</a>
+那麼，能把那些喜歡寫雷文的宅男哥熬走嗎</blockquote>
+最好雷文都是男的写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  -LYRE-  
+##### 7753#       发表于 2024-1-7 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562632&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-7 12:04</a>
+就很简单啊 为什么聊到mujica资源必cue mygo
+
+为什么连问“这样能过了吧”还要cue mygo 
+
+资源应该怎么用应该 ...</blockquote>
+那我还想问mygo内部戏份高光不均衡导致两底边为什么总是cue mujica呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+问就是猫猫戏份太少了不如祥子，都怪mujica抢戏。对这个确实是事实没错，睿智武士道的奇异操作让mujica粉丝mujica动画都没得看就得先背上一堆欠条、忍受一堆“银河战舰被打爆是一般路过观众正常想法”
+然而mygo粉丝想从mujica动画里把戏份抢回来的贷款是什么呢？是贷款灯皇带领mygo打败mujica祥子破防痛哭跪地道歉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那么请问猫猫呢？怎么不给猫猫抢点戏份、给立希抢点高光呢？怎么绝大多数都是在给本来就是核心主角的灯皇加戏啊？
+说mujica抢戏必提猫猫待遇，真开始贷款猫猫查无此人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+访谈钦定mygo除了猫猫以外三个人都是因为灯而诞生的角色无人计较，天天贷款mujica是大祥传倒是挺起劲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 赫尔墨斯的权杖| + 1||
+| jerryoq1| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  勇者仁杰  
+##### 7754#       发表于 2024-1-7 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">今年内游戏关服就搞笑了
+
+*****
+
+####  [皆神孝介]  
+##### 7755#       发表于 2024-1-7 12:31
+
+看动画的本来也不都是百合党啊，有非百合向的创作也不奇怪，不喜欢屏蔽就好了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+

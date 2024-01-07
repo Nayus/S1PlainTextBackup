@@ -1336,3 +1336,13 @@ Screenshot_2024-01-07-14-16-28-65_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 阳光明媚的午后公园，牵着索拉的真白和牵着小麦的彩羽相遇了。。。
 
+
+*****
+
+####  maoyou  
+##### 403#       发表于 2024-1-7 22:51
+
+q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别来拉屎和贷款吃屎啊<img src="https://static.saraba1st.com/image/smiley/face2017/250.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

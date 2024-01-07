@@ -5513,3 +5513,252 @@ wsd：什么动画趁热打铁，听都没听过，我就要热了放凉了，�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  12351sscca  
+##### 8041#       发表于 2024-1-7 22:41
+
+已经在等众筹母鸡卡导剪版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 8042#       发表于 2024-1-7 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568989&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:35</a>
+
+你觉得诗超绊和春日影和之前发的一个审查水准么。
+
+要不把诗超绊换成碧天伴走试试
+
+—— 来自 Xiaom ...</blockquote>
+我不懂作曲，难道母鸡卡这个金属风格和mygo那种是同一拨人在作曲吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8043#       发表于 2024-1-7 22:42
+
+https://x.com/ki3wii/status/1743906338516975756?s=20
+
+<img src="https://img.saraba1st.com/forum/202401/07/224208cotjxxji44reut7t.jpg" referrerpolicy="no-referrer">
+
+<strong>GDOZcPzaEAARd86.jpg</strong> (168.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 22:42 上传
+
+*****
+
+####  Aendst  
+##### 8044#       发表于 2024-1-7 22:42
+
+武士道真的对歌曲品质要求这么严格，那就不应该换成supalove这种不成器的音乐事务所负责<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8045#       发表于 2024-1-7 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569034&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-7 22:39</a>
+你说得对，什么关注取关都是管人痴那一套互联网办案的遗毒，确实没啥意思
+
+我就想知道为啥要25年1月播，还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我不是说了倾向捂嘴了，之前不是有人问了独角兽，回答就跟吃了竞业差不多
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Ecauchy  
+##### 8046#       发表于 2024-1-7 22:43
+
+另外还要说一点，有些人可能心存侥幸，觉得是「做完了，但是被压档期不播放」。
+
+我跟你讲这种事是绝对不可能发生的，日本动画制作是电视台深度参与的，你邦就是TOKYO MX参与制作委员会，重新排期直接就是经济损失。
+
+从来没听说过有做完的动画压着不放的，做不完了也要强行上马播放闹得最后万策尽的倒是一抓一大把。
+
+所以现在必然是仍然在制作流程当中。也不存在像其他一些楼友乐观的想法，觉得已经有了一个版本了只是推倒重做。不可能的，TOKYO MX不可能允许。必然是没有到真正能播出的地步。
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8047#       发表于 2024-1-7 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568956&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 22:32</a>
+十二月几号有印象吗，十一月我翻的时候还是有的，可以确定大体范围
+
+我也是十二月发现她没关注的，差不多 ...</blockquote>
+只知道是12月下，在同人群和群友汴剧情闲得蛋疼去逛了一圈，但回忆起来关注列表里确实没有官方图标
+
+*****
+
+####  青蒜  
+##### 8048#       发表于 2024-1-7 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569067&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:43</a>
+
+我不是说了倾向捂嘴了，之前不是有人问了独角兽，回答就跟吃了竞业差不多
+
+—— 来自 Xiaomi M201 ...</blockquote>
+你说的捂嘴具体是指啥，能不能展开说一下
+
+*****
+
+####  御幸一也  
+##### 8049#       发表于 2024-1-7 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569069&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 22:43</a>
+
+另外还要说一点，有些人可能心存侥幸，觉得是「做完了，但是被压档期不播放」。
+
+我跟你讲这种事是绝对不可 ...</blockquote>
+你好像不知道木曜23:00檔期是武士道買斷的，完全沒有重新排檔期會有損失這個說法。
+
+還有，武士道做完不放壓了一年是有前科的，就是邦多利第三季（訪談說了就是做好了但定死要在那個檔期放=壓著不馬上放出來）
+
+*****
+
+####  江口夕  
+##### 8050#       发表于 2024-1-7 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569062&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 22:42</a>
+武士道真的对歌曲品质要求这么严格，那就不应该换成supalove这种不成器的音乐事务所负责 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便诗超绊作词是独角兽，你们想看版权切割大戏么
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  青蒜  
+##### 8051#       发表于 2024-1-7 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569069&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 22:43</a>
+
+另外还要说一点，有些人可能心存侥幸，觉得是「做完了，但是被压档期不播放」。
+
+我跟你讲这种事是绝对不可 ...</blockquote>
+按你这个说法，在母鸡卡这么紧张的情况下，中间还插进去了一个剧场版，这又是什么思路<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8052#       发表于 2024-1-7 22:45
+
+武士道之前这个档甚至会拿来播邦tv
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8053#       发表于 2024-1-7 22:46
+
+当初我查的还是最简单的，独角兽+祥/睦/灯 三个字的相关推文
+
+*****
+
+####  kangkangsama  
+##### 8054#       发表于 2024-1-7 22:47
+
+别说supa love连元素花园我都是想让他们换的 没办法和上松绑定密切 别家至少曲库风格够广
+
+*****
+
+####  江口夕  
+##### 8055#       发表于 2024-1-7 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569090&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-7 22:44</a>
+你说的捂嘴具体是指啥，能不能展开说一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就跟第十话生放只上羊差不多，相当于把其他4个口了。像独角兽推特表达欲这么强又没有经纪人看着的口了很正常。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 8056#       发表于 2024-1-7 22:49
+
+男邦那边能请一堆人来作曲到了邦邦反而一直是那边我确实是不懂的，可能有什么合约吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11A511  
+##### 8057#       发表于 2024-1-7 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568954&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 22:32</a>
+
+怎么可能重做一季半季，都理解到哪里去了。
+
+现实是mujica动画不用考虑任何推测，板上钉钉的就是至少推迟了 ...</blockquote>
+做一集OVA要六个月难道意味着一季动画要六年？哪怕是2D动画，插进流水线里实际增加的时间顶天一个月。现在离最后一集播出还有14个月，既然决定要改的话推倒重来都绰绰有余了
+
+“为了重做一集动画不肯多约一张曲绘还非得做成动态PV” 你要不看看你在说啥？
+
+*****
+
+####  Aendst  
+##### 8058#       发表于 2024-1-7 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569101&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:45</a>
+
+顺便诗超绊作词是独角兽，你们想看版权切割大戏么
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202401/07/224805ss1rputj4lahur0a.jpg" referrerpolicy="no-referrer">
+
+<strong>20240107234734.jpg</strong> (8.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 22:48 上传
+
+所以解释一下为什么从业界风评更好、产出更稳定的EG换成supalove？
+
+答不出来可以不回复我，转移话题很容易丢人
+
+*****
+
+####  Ecauchy  
+##### 8059#       发表于 2024-1-7 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569099&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 22:45</a>
+
+你好像不知道木曜23:00檔期是武士道買斷的，完全沒有重新排檔期會有損失這個說法。
+
+還有，武士道做完不放 ...</blockquote>
+后者我确实不知道，求给个访谈关键字我搜搜。
+
+前者这个说法我不能同意，你是从武士道的角度看觉得没损失，认为反正付过钱了播也是这个钱不播也是这个钱，然而损失的是电视台，电视台可不是靠节目的时间赚死钱的。
+
+*****
+
+####  御幸一也  
+##### 8060#       发表于 2024-1-7 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569069&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 22:43</a>
+
+另外还要说一点，有些人可能心存侥幸，觉得是「做完了，但是被压档期不播放」。
+
+我跟你讲这种事是绝对不可 ...</blockquote>
+你其他的說法是對的，一般動畫確實如此，但你要知道下武士道的特殊情況，
+
+木曜23:00那個檔期他不放武士道的動畫，也會去放其他武士道家亂七八糟的東西（live什麼的）……
+[https://s.mxtv.jp/bangumi/?date=20240111](https://s.mxtv.jp/bangumi/?date=20240111)
+
+貼一下番組表連結，改日期隨便查，我隨便看了幾年了，可以確定這個檔期真的是武士道買斷了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11A511  
+##### 8061#       发表于 2024-1-7 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569041&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 22:40</a>
+
+呃，你貼的這段是怎麼理解出 “虽然我们都在配音了但还是不知道啥时能播出” 這個意思的……
+
+我看原文沒 ...</blockquote>
+日语词典里给待ち遠しい 的解释是 「待っていてもなかなかその時やその事態がこないで、やりきれない」，真定档了没必要这样说吧？
+

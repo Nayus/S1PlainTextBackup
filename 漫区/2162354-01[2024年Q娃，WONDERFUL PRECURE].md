@@ -1356,3 +1356,20 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 万一男同学的声优是男八段怎么办</blockquote>
 绪方？ 突然觉得这男人有点像月城雪兔 而且名字也带兔….
 
+
+*****
+
+####  pokemon最爱  
+##### 405#       发表于 2024-1-7 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569155&amp;ptid=2162354" target="_blank">maoyou 发表于 2024-1-7 22:51</a>
+
+q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别来拉屎和贷款吃屎啊
+
+—— 来自 samsung SM ...</blockquote>
+是啊，如果不是你Q娃最近十年来BG净是烂活快触之即死了的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+特别汪Q系构成田大妈在天Q负责的回数和最近的希望之力里都是些什么鬼我觉得看过的都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦对了，被天Q后期的高浓度姬骑CP创到的鸟蝶党是不是小友来着（
+

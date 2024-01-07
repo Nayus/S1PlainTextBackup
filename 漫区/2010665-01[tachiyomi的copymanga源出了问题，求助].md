@@ -2939,3 +2939,11 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 —— 来自 realme RMX3706, And ...</blockquote>
 一直是开着的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">很诡异
 
+
+*****
+
+####  tclm  
+##### 294#       发表于 2024-1-7 23:32
+
+重装一次插件就好了
+

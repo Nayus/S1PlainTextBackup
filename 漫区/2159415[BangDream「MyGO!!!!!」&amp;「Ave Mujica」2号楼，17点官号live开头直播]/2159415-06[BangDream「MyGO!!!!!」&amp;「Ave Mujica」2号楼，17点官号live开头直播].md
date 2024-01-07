@@ -5988,3 +5988,58 @@ film live是因为难得在第二季做了不少live场景，所以想要把背�
 泪目了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 难得见到有认真看回复、会点进链接、还又是贴原文又是写翻译的有效沟通，令人感动<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ecauchy  
+##### 8076#       发表于 2024-1-7 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569262&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-7 23:04</a>
+
+独角兽在去年十月份已经斩钉截铁的说过“这一定是最后的访谈”，因此如果有异动显然是发生在这之前
+
+何况 ...</blockquote>
+那我先按照你的想法来推一遍（当然，都是假设）：
+
+1. 独角兽于10月和制作组因为剧本不和而闹掰，制作组当即决定要修改动画部分内容。
+
+2. 模型都在，一集ova用不了多久就能做完。鉴于你没有给具体时间，我先打个对折，假设你认为三个月足够吧。
+
+3. 武士道运营足够理性，知道要尽量减少各方面的牺牲，包括mujica前期宣传、合号之类的操作、前面我说的档期问题等。
+
+那么从123得到结论：制作组没有任何理由推迟到2024年4月以后。和事实矛盾了。
+
+所以必然1、2、3至少一个不正确，或者都不正确。
+
+实际上，
+
+1. 10月份到12月份可以看作是部门有了决定，但公司没有正式决定。毕竟修改动画制作、跳票半年一年这种操作各方面利益相关，如果真的发生了，吵嘴是必然的。柿本也就是一介监督，不是mggm。
+
+宣传部门的反应更能反映公司整体决定的时间。
+
+2. 如之前楼友给的访谈链接，诚然流水线上干很省力，如果停摆了再启动，就要花时间了。这是我用来解释前提（推迟半年）所做的假设，而这个结论的另一个前提则是“武士道没有能力重做一季”。我觉得“武士道没能力重做一季之多”+“跳票半年”得到的最有说服力的模型只能是，流水线停摆过一次，没能连续制作。至于film live，甚至完全可以认为是在这一次为了修改这一集而花大成本重启流水线之后，为了摊薄成本而选择多制作的。事实上，19年的film live是当年3月宣布制作的，是在第二季尚未完结的时候，而不像这次是在mygo完结三个月之后。如果认为film live同样都是为了摊薄成本而维持流水线制作，那么这两者公布的时间本身就说明了一些问题。
+
+*****
+
+####  66367749  
+##### 8077#       发表于 2024-1-7 23:29
+
+立绘到底是贵还是便宜？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/07/232907nbfrrl19nr99hpul.jpg" referrerpolicy="no-referrer">
+
+<strong>3395A62E8497D418CABD70ED49CAA844.jpg</strong> (386.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 23:29 上传
+
+*****
+
+####  skives  
+##### 8078#       发表于 2024-1-7 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569504&amp;ptid=2159415" target="_blank">66367749 发表于 2024-1-7 23:29</a>
+立绘到底是贵还是便宜？</blockquote>
+别说了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

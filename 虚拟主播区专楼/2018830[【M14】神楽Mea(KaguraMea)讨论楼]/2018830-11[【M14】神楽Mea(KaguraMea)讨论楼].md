@@ -719,3 +719,16 @@ urucammty加上杏女 这下是真的蹭上了
 
 还有几个不知道是谁。其他人就打了一两把，夏色祭和兎咲ミミ这俩人一直跟咩打到天亮。
 
+
+*****
+
+####  秋游刃  
+##### 16117#       发表于 2024-1-7 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567836&amp;ptid=2018830" target="_blank">往世雷书 发表于 2024-1-7 20:50</a>
+
+这种合唱一般都是谁拉谁，她的话应该是经纪人给跑的吧
+
+—— 来自 S1Fun</blockquote>
+应该是她自己吧，以前讲过自己合唱人怎么选人，怎么分配歌词，反正没提经纪人什么事。
+

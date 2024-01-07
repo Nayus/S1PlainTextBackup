@@ -97,3 +97,42 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">才看到推文，这不是滑坡是已经大结局了吧。
 
+
+*****
+
+####  Aendst  
+##### 7511#       发表于 2024-1-7 08:29
+
+曲绘还是1st那套，忍很久了之前觉得不应该太早下定论，但这不是区别对待资源倾斜是什么，连立绘都能复用，不是资源倾斜给我一个有说服力的理由
+
+双月各流媒体播放量都垫底然后抓着长谷川大介写写写写个不停，你们自己听听这好听吗
+
+反观mygo剧场版还分前篇和后篇，全都给你夹mujica动画前大播特播，我们mygo粉丝真是太爽了可以一直go，那mujica粉呢，不是人是吗，怎么出周边的时候那么自觉呢？
+
+绫奈这个推文实在是太绝望了我不想发散，只能说辛苦了
+
+想起声优团建营业更气了，真是无话可说
+
+我实在是没想到能有比万南更让我恶心的ip方
+
+*****
+
+####  凡人  
+##### 7512#       发表于 2024-1-7 08:30
+
+说绫奈不懂清洗意思的楼友，说话！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 7513#       发表于 2024-1-7 08:31
+
+wsd不会真要搞鸡狗切割吧<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 7514#       发表于 2024-1-7 08:31
+
+建议🐔🐶趁早分楼，1st再分我都觉得有点晚了。
+

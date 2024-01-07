@@ -526,3 +526,57 @@ staff也就这点出息，看看今年花几集变回传统白开水
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  宅音  
+##### 324#       发表于 2024-1-7 08:22
+
+看头上小装饰是侦探+国王vs怪盗+皇后的即视感，会是探案主题吗
+
+*****
+
+####  pokemon最爱  
+##### 325#       发表于 2024-1-7 08:23
+
+系构成田大妈（叮 叮 咚）
+
+不过粉主初期就有常态人形这个倒是意料外<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+还有Wonderful是主人的口癖可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个坐在Friendy和Lillian人间体中间的男性和他抱着的动物该不会就是追加吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 326#       发表于 2024-1-7 08:23
+
+成田，男人，还有兔子，搞兽人bg多角恋也行，别让男人当追加好吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 327#       发表于 2024-1-7 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560734&amp;ptid=2162354" target="_blank">盐盐盐盐盐 发表于 2024-1-7 08:08</a>
+
+这图，蓝白两个都是宠物？</blockquote>
+首先没有白，你认为是白的那个是蓝Q你认为是蓝Q的应该是绿Q<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后蓝是那只白猫绿是主人。
+
+*****
+
+####  himfsz  
+##### 328#       发表于 2024-1-7 08:31
+
+不要，男人，追加
+
+*****
+
+####  soranoguiji  
+##### 329#       发表于 2024-1-7 08:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

@@ -2988,3 +2988,104 @@ Ave Mujica的粉絲隨主黑化，擺著臭臉大喊軟弱的我已經死了
 我也希望是炒作</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本有讨论这件事的吗
 
+
+*****
+
+####  higuchiguchi  
+##### 7798#       发表于 2024-1-7 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563423&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-7 13:22</a>
+
+日本有讨论这件事的吗</blockquote>
+基本是中文推在讨论吧 直接去问独角兽的也是中国粉丝
+
+*****
+
+####  江口夕  
+##### 7799#       发表于 2024-1-7 13:24
+
+ 本帖最后由 江口夕 于 2024-1-7 13:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那时候场外立希不是重点被批斗对象么，搞的立希粉连呼吸权都没有，还不如直接进游戏和猫到角落互动。
+动画那么写的本身没啥问题，对soyo和解就是立希最高光的时候了，只不过场外直接被部分激进粉丝曲解干的没人权了。
+最后现在在捍卫立希戏份的我觉得肯定不是立希粉，而是端水大师。当时可不记得这些人当时有站出来帮立希说好话。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  skives  
+##### 7800#       发表于 2024-1-7 13:24
+
+就像日本没人烤羊一样 更不会有人发现独角兽的异常
+
+
+*****
+
+####  806923249  
+##### 7801#       发表于 2024-1-7 13:24
+
+霓虹那边连对立的影子都没看到
+
+*****
+
+####  Kasroz  
+##### 7802#       发表于 2024-1-7 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563430&amp;ptid=2159415" target="_blank">higuchiguchi 发表于 2024-1-7 13:23</a>
+基本是中文推在讨论吧 直接去问独角兽的也是中国粉丝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那炒作给谁看
+
+*****
+
+####  Aloereed  
+##### 7803#       发表于 2024-1-7 13:25
+
+草 才发现知名微博动漫画界内鬼榎村鬼一郎删号跑路了
+
+*****
+
+####  ninokagami  
+##### 7804#       发表于 2024-1-7 13:26
+
+到时候mggm这个比又出来发癫：当年我预感在ppp上会发生的roselia那样的戏剧，如今竟然发生在了ave mujica的团队中，AM将会是一个惊天动地的乐团。
+
+*****
+
+####  higuchiguchi  
+##### 7805#       发表于 2024-1-7 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563439&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-7 13:25</a>
+
+那炒作给谁看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">你不要再说了
+
+*****
+
+####  青蒜  
+##### 7806#       发表于 2024-1-7 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563439&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-7 13:25</a>
+那炒作给谁看</blockquote>
+你快打住
+不利于团结的话不要说<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7807#       发表于 2024-1-7 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563432&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-7 13:24</a>
+就像日本没人烤羊一样 更不会有人发现独角兽的异常</blockquote>
+日本没人烤羊5ch黑串哪来的
+
+*****
+
+####  cindy355  
+##### 7808#       发表于 2024-1-7 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563439&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-7 13:25</a>
+
+那炒作给谁看</blockquote>
+本身mygo也是反环大陆好评吧，独角兽也不太像那种为了让其他人有反应而炒作的类型，看企划粉也在怒喷中华爆这么多米结果没有一点中华相关内容，我对这一点还是持乐观态度。
+

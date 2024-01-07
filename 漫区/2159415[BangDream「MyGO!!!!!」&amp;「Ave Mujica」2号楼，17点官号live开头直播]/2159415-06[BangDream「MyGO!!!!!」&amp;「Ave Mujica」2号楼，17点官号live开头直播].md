@@ -922,3 +922,62 @@ syl，现在焦虑太早了， ...</blockquote>
 
 我们Mujica真的完蛋了<img src="https://static.saraba1st.com/image/smiley/carton2017/382.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  septer  
+##### 7597#       发表于 2024-1-7 10:15
+
+我悟了，原来十三话是剧场版加料内容先行放送，所以真正的顺序是这样对吗？
+
+mygo篇→1~12话总集剧场版加料+后日谈+鸡序幕→mujica篇
+
+提前看到剧场版最后的母鸡卡序幕真是赚到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7598#       发表于 2024-1-7 10:16
+
+是啊我也很奇怪，资源倾斜只是我的猜测，能给出合理的反驳我就否定自己的猜测，之前说包出去签几首的漏油说的就很好，我能接受
+
+反观剧场版加在续篇动画前是客观事实，mygo粉今年有剧场版看我羡慕不可以吗
+
+倒是为什么有人就突然转话题到虐粉日娱和强推之耻了呢
+
+*****
+
+####  skives  
+##### 7599#       发表于 2024-1-7 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561478&amp;ptid=2159415" target="_blank">millaboreus13 发表于 2024-1-7 10:09</a>
+怎么感觉有些人不对劲呢？关心动画制作关心独角兽老师都没啥问题，滑滑坡也是人之常情，怎么就开始说什么资 ...</blockquote>
+问题来了
+Mygo有同一首的曲绘用两次这种情况吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 7600#       发表于 2024-1-7 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别吧，剧场版还塞mujica？13话都已经在喧宾夺主了
+
+还是跟总集篇一样mygo团和和气气搞live，然后后日谈结束比较好
+
+再说，猫希跟隔壁团也没什么大关联啊
+
+*****
+
+####  御幸一也  
+##### 7601#       发表于 2024-1-7 10:21
+
+早說了建議把mujica的戲份全剪了，純淨的mygo還給純淨的mygo粉絲呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 7602#       发表于 2024-1-7 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么会变成现在这样
+企划又不是零和游戏，不用吧
+

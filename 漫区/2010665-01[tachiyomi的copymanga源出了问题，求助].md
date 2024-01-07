@@ -2729,3 +2729,24 @@ https://github.com/stevenyomi/copymanga</blockquote>
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  keroghy  
+##### 276#       发表于 2024-1-7 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560437&amp;ptid=2010665" target="_blank">hrha 发表于 2024-1-7 03:23</a>
+tachiyomi 根据某个韩国野鸡版权商的请求把 mangadex 和 bato 源给扬了。感觉应该换软件了 ...</blockquote>
+太弱智了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  keroghy  
+##### 277#       发表于 2024-1-7 10:18
+
+tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<img src="https://p.sda1.dev/15/ed1020a9b7f68ec520fa2f69853292d8/CMP_20240107101829344.jpg" referrerpolicy="no-referrer">，有什么办法解决吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

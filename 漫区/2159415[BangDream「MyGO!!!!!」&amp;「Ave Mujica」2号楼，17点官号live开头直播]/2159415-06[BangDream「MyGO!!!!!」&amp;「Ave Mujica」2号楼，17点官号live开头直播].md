@@ -2216,3 +2216,73 @@ wsd真tm飞🐴玩意 广播没有 小动画没有 翻唱没有 动画没有 现
 
 如果谈论资源多寡就是在说抢资源，那你要是想说mygo今年抢了整个企划的资源那也不是不行
 
+
+*****
+
+####  skives  
+##### 7729#       发表于 2024-1-7 11:53
+
+只有喵梦老师的直播间上线 每周更新才能和解了
+
+*****
+
+####  capraeLinn  
+##### 7730#       发表于 2024-1-7 11:54
+
+我记得之前说25年一月还是说“滑坡到25年1月”，现在滑坡成真了，那大伙肯定越来越滑坡，越想越真<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+鸡的新歌我觉得能听，但谈不上好听……而且这个立绘真的是见了无数次了，吵资源也合情合理
+
+不过现在大伙都不是想要吵出个所以然出来，而是单纯想发泄情绪。
+
+只能评价为鸡同狗讲
+
+*****
+
+####  L7lv6  
+##### 7731#       发表于 2024-1-7 11:56
+
+<blockquote>-LYRE- 发表于 2024-1-7 11:26
+我就是因为蝶团空降+倾斜d5j出坑的
+
+本以为wsd脑子可能治好了所以回坑，结果是我想太多了[f ...</blockquote>
+我是去年回坑的，就打打歌抽一抽喜欢的角色，三次元就很少关注了，蝶团的角色也挺可爱的，就当自己跟自己和解了。这次mygo也是重燃了一点激情，但wsd果然还是以前的wsd，不意外。
+
+*****
+
+####  御幸一也  
+##### 7732#       发表于 2024-1-7 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562530&amp;ptid=2159415" target="_blank">capraeLinn 发表于 2024-1-7 11:54</a>
+
+我记得之前说25年一月还是说“滑坡到25年1月”，现在滑坡成真了，那大伙肯定越来越滑坡，越想越真
+
+ ...</blockquote>
+還真是，本來覺得最晚也不會晚過24年7月，再往後都是在滑坡，
+
+沒想到這下迴力鏢了，那我只能加入一起滑坡，狠狠地滑<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7733#       发表于 2024-1-7 11:57
+
+永远怀念<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/07/115708kfhxx34s0sz0gupz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7C02F6D1-5EE2-4DEC-B5C7-044B8D9EED86.jpeg</strong> (446.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 11:57 上传
+
+*****
+
+####  PDQ4  
+##### 7734#       发表于 2024-1-7 12:02
+
+资源倾斜有这么问题吗，说不得？骂wsd不会端水有什么问题，同时推两团推不起来就不该把鸡搞成这样。拖一年半动画老鸡粉都快风干了，角色人设都定不下来。
+
+你要把骂资源倾向解读为aoe狗团，那我把你的话解读成狗拿这些天经地义，底边糊糊鸡粉别太蹬鼻子上脸也没有问题吧，饭圈的头可是你起的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

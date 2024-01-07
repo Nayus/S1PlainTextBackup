@@ -3180,3 +3180,117 @@ MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  友情的结晶  
+##### 7818#       发表于 2024-1-7 13:43
+
+一定是监督和原案主推cp不和，在制作现场大打出手，最后绫奈老师愤而离开<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  青蒜  
+##### 7819#       发表于 2024-1-7 13:45
+
+立希坐拥猫猫和海玲，只要不吊死在灯这一棵树上，退一步人生赢家
+
+*****
+
+####  nebulanoby  
+##### 7820#       发表于 2024-1-7 13:45
+
+我也希望是炒作
+
+但是炒作个P啊，不是AM放送时间推那么久都不会有人去独角兽的推问相关情况，也就是这几个月一直没人烂炒她的推的事，真是为了炒作的话她也太能忍了
+
+*****
+
+####  higuchiguchi  
+##### 7821#       发表于 2024-1-7 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">九月份mygo最后一集那时候的推 我还理解为鸡狗都是独角兽写的 所以她接下来不会提相关内容是为了防止剧透
+
+*****
+
+####  PDQ4  
+##### 7822#       发表于 2024-1-7 13:46
+
+比烂干啥，我还想说立希推心态真的好，这都不骂，不过冷门吃谷至少也有好处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说到谷更难蚌了，睦祥谷烫成这样，光爆米了实际物料少的要死，也没点好看的新图，1st上应该会宣2nd和一单吧，再是老图我又要骂了，难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7823#       发表于 2024-1-7 13:47
+
+独角兽是不是年底还回过粉丝问题说关系图打码不补不是忘了是以后要补来着，好像不太符合9月切割制作组的说法，难道是年底才切的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+还是说真的和一些人猜的一样，是要卖设定集了所以炒作一下
+
+*****
+
+####  青蒜  
+##### 7824#       发表于 2024-1-7 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563677&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 13:47</a>
+独角兽是不是年底还回过粉丝问题说关系图打码不补不是忘了是以后要补来着，好像不太符合9月切割制作组的说 ...</blockquote>
+大型社会学实验是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是设定集不是4月吗，现在炒会不会太早了
+
+*****
+
+####  higuchiguchi  
+##### 7825#       发表于 2024-1-7 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563677&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 13:47</a>
+
+独角兽是不是年底还回过粉丝问题说关系图打码不补不是忘了是以后要补来着，好像不太符合9月切割制作组的说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">要是设定集没独角兽 那是在炒空气吗
+
+*****
+
+####  PDQ4  
+##### 7826#       发表于 2024-1-7 13:49
+
+说到设定集，看到推上有人说期待绫奈新访谈的，但是没有新访谈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  此行远兮  
+##### 7827#       发表于 2024-1-7 13:50
+
+武士道这一通操作下来弄得去团和鸡团都不满意也是挺厉害的，弄双生团这种新鲜玩意儿之前不会真的没考虑端水的问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 7828#       发表于 2024-1-7 13:51
+
+我印象里十一月中旬还没切（取关和删图），但是具体时间已经不可考了，没留什么痕迹
+
+打码这个部分的推我翻了一下是11月2号，提到这个访谈是最后的访谈是十月末
+
+所以我也觉得不影响剧本的可能性会高一点，但是目前的消息也好业界以往出现的例子也好都很难让人相信一定没问题
+
+*****
+
+####  skives  
+##### 7829#       发表于 2024-1-7 13:51
+
+现在整个事情就非常的迷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+邦的官推置顶也把mujica的pv改成了剧场版的pv
+给人一种9月时还计划下一部作品是mujica动画，12月公司开了个会，临时决定制作剧场版的感觉
+
+*****
+
+####  滑稽Captain  
+##### 7830#       发表于 2024-1-7 13:52
+
+最后的采访那条才是回应设定集的吧，意思是设定集里不会有我新的采访了
+

@@ -2400,3 +2400,32 @@ wsd真tm飞🐴玩意 广播没有 小动画没有 翻唱没有 动画没有 现
 
 最差最差，双月的立绘也可以吧，神笨蛋那个就不需要了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 7745#       发表于 2024-1-7 12:14
+
+能让长谷川多写点，就能让神笨蛋画师多画点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+选柄和约稿的人也可以是切割的弄潮儿
+
+*****
+
+####  御幸一也  
+##### 7746#       发表于 2024-1-7 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562698&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-7 12:11</a>
+
+半年？再三个月热度就差不多散了吧</blockquote>
+那麼，能把那些喜歡寫雷文的宅男哥熬走嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 7747#       发表于 2024-1-7 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">熟悉的味道扑面而来，该继续乘坐列车到下一站了
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

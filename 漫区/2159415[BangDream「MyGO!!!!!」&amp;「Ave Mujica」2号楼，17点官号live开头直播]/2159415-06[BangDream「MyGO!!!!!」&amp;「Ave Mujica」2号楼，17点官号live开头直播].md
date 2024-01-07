@@ -193,3 +193,72 @@ wsd不会真要搞鸡狗切割吧<img src="https://static.saraba1st.com/image/sm
 
 已编辑
 
+
+*****
+
+####  QuattroVageena  
+##### 7522#       发表于 2024-1-7 08:53
+
+原来mujica是afterglow啊
+
+*****
+
+####  青蒜  
+##### 7523#       发表于 2024-1-7 08:54
+
+这推特，我不是很懂日语，有没有n1大手子帮忙翻译一下？开机翻怎么有点哈人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 7524#       发表于 2024-1-7 08:55
+
+谁不骂武士道了  只是说别真被虐粉老套路搞得不患寡而患不均  一边说着“运营肯定偏爱mygo/mujica”一边暗自对家企划积攒怨气 
+
+*****
+
+####  本间日阳  
+##### 7525#       发表于 2024-1-7 08:56
+
+ 本帖最后由 本间日阳 于 2024-1-7 08:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560934&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-7 08:54</a>
+这推特，我不是很懂日语，有没有n1大手子帮忙翻译一下？开机翻怎么有点哈人 ...</blockquote>
+被人问为什么删除mygo关系图之后的推文：
+「动画放送期间的推文又被大家挖出来了，所以我不会再删除更多内容了，谢谢大家喜欢。如果我是公司员工的话就能在离职信里和大家打招呼了。因为太过苦恼，我做了好多次道别的梦。前面这句话和《GIVEN》无关。」
+被人问为什么强调「最后一次采访」，以及会不会继续负责mujica动画编剧时的回答：
+「关于这部动画，因为（staff）还没有发表，现在我还不能回答。类似采访这样的发言以后是不会再有了。很抱歉我给出这么一个令人寂寞的回答，请继续享受作品，谢谢大家。」
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7526#       发表于 2024-1-7 09:01
+
+退一万步讲，资源倾斜姑且可以装作看不见，归根结底是我喜欢前篇动画绫奈负责的mujica这五个人
+
+然后呢，就像漏油说的前篇mygo基本完成塑造了
+
+那mujica呢？我入坑消费我想看也本来应该能看到的东西呢？就现在的消息续篇甚至连不ooc的保证都没有
+
+我真是人太好了还买mygo的cd和live门票，虽然不值钱但是就好像在被当猴耍一样，能退款吗？
+
+*****
+
+####  Kasroz  
+##### 7527#       发表于 2024-1-7 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560945&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-1-7 08:56</a>
+被人问为什么删除mygo关系图之后的推文：
+「动画放送期间的推文又被大家挖出来了，所以我不会再删除更多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果继续担任系构怎么可能不接受采访呢
+
+*****
+
+####  Aendst  
+##### 7528#       发表于 2024-1-7 09:02
+
+<blockquote>kangkangsama 发表于 2024-1-7 08:55
+谁不骂武士道了  只是说别真被虐粉老套路搞得不患寡而患不均  一边说着“运营肯定偏爱mygo/mujica”一边暗 ...</blockquote>
+谁跟你自家企划了
+

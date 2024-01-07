@@ -785,3 +785,28 @@ ED
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞bg能搞出宝石宠物sunshine这种跨物种相恋+有情人终成兄妹这种假药算它厉害，就怕不上不下卡那了
 
+
+*****
+
+####  本间日阳  
+##### 346#       发表于 2024-1-7 09:36
+
+<img src="https://p.sda1.dev/15/772a5db3da501f435d20878d390b520a/CMP_20240107093557320.jpg" referrerpolicy="no-referrer">
+是女性吧。之前采访里有图。
+
+*****
+
+####  Cloudslin  
+##### 347#       发表于 2024-1-7 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561160&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-1-7 09:29</a>
+之前看天空访谈 看到太上皇和一名年轻女性照片 这位女性是谁</blockquote>
+翻了翻还真是，错误认知一直没被修正<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 348#       发表于 2024-1-7 09:40
+
+刚来，今年的小哥是追加男q娃，假面助拳人还是隐藏真主角？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

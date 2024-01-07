@@ -514,3 +514,56 @@ wsd是怎么想到把做完一半的母鸡卡全盘推倒的</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  66367749  
+##### 7554#       发表于 2024-1-7 09:33
+
+这几年tv动画改剧本整烂了的活好几次所以比较敏感<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7555#       发表于 2024-1-7 09:34
+
+那我是最早那批的loveliver有資格在泥樓說話沒<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 不會10年2.5企劃粉都要被剝奪呼吸權吧
+
+*****
+
+####  Aendst  
+##### 7556#       发表于 2024-1-7 09:38
+
+ 本帖最后由 Aendst 于 2024-1-7 09:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不一样了，我有ff13v的ptsd，日本人大人物做迷惑决策真的不奇怪
+
+也不是什么年一2.5，等我是等得起的，隔壁百万我等了七年动画
+
+但说白了，只要真的喜欢mujica喜欢绫奈负责的部分，就看这两天的情报真的很难立刻平息怒火
+
+*****
+
+####  nebulanoby  
+##### 7557#       发表于 2024-1-7 09:39
+
+歌和MV可能是包出去的时候一签就是几首了
+
+不过客观上说🐔 团至今都没有很顶的MV，播放最高的还是动画+真人混剪；至于歌那是真的同名曲就是巅峰了（EG搞旧团去了？请多支持violet line喵），真不能怪漏油生气
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mr.Giraffe  
+##### 7558#       发表于 2024-1-7 09:41
+
+可怜的观众，被武士道玩弄于股掌之间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7559#       发表于 2024-1-7 09:41
+
+ave粉看到2025才播這動畫廣告片早就怒火中燒，再看綾奈切割邦多利，不安一下怎麼了，有點怨氣怎麼了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

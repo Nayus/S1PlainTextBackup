@@ -4904,3 +4904,32 @@ w ...</blockquote>
 
 感觉……这次吵起来是不会用推特和不会日语看不懂访谈导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 7987#       发表于 2024-1-7 21:45
+
+ 本帖最后由 江口夕 于 2024-1-7 21:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568324&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-7 21:34</a>
+你这么提我就有意见了，都是打工的，怎么non当初D5J闹成那个样子邦里营业还营的好好的？你不会要提D5J太 ...</blockquote>
+兄弟要不查一下响社同企划的有几个没关注mygo的，然后再谈谈凭什么不关注mygo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暂时先理清是不是再谈为什么
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  PDQ4  
+##### 7988#       发表于 2024-1-7 21:47
+
+绫奈还在发仙魔大战癫展望二期，你邦查无此邦还有个解读，适合在豚楼滑坡，绫奈虽然说着写百合像呼吸但她其实更爱男男关系性<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不然我没法把这个情况当成正常，就爱看绫奈的女女关系性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 7989#       发表于 2024-1-7 21:51
+
+所以你楼讨论出一个可以合理解释独角兽完全不理睬 MyGO 剧场版和 AM 定档消息的理由了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

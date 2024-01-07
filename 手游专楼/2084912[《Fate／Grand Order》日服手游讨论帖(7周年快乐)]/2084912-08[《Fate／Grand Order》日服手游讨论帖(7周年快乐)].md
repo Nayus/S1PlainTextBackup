@@ -2470,3 +2470,11 @@ IMG_2773.jpeg
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  保罗赫伯特  
+##### 10739#       发表于 2024-1-7 21:51
+
+ort就像百重塔，开始的时候舍不得上主力，后面发现没机会上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

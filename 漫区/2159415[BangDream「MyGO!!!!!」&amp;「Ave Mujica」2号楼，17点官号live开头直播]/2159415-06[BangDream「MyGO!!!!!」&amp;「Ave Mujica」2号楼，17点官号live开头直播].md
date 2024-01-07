@@ -5039,3 +5039,164 @@ w ...</blockquote>
 
 3d作画比2d快好吧，而且7月的那个番肯定是现在已经把人手调过去了，不然赶不上档期。所以🐔八成已经做完了，就算没完成也是后面一点收尾工作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 8000#       发表于 2024-1-7 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就说了歌太拉整点好的再上花一年可以接受，坛友来给我科普做没做完也是醉了。他做没做完做的快不快，和武士道觉得满意不满意是两码事
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  御幸一也  
+##### 8001#       发表于 2024-1-7 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568550&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-7 21:55</a>
+
+根据我看2d动画的经验，除了那种超级万策尽周五要播了周二周三还在吭哧吭哧画二原的动画，一般配音是在播出 ...</blockquote>
+[https://cgworld.jp/article/202202-bangdream.html](https://cgworld.jp/article/202202-bangdream.html)
+
+三次元的製作，アフレコ之後好像沒有渲染步驟，CT2是監督的細微表情調整。
+
+*****
+
+####  宿  
+##### 8002#       发表于 2024-1-7 22:04
+
+<img src="https://img.saraba1st.com/forum/202401/07/220314a0n77z7pj7jfjnp2.png" referrerpolicy="no-referrer">
+
+<strong>takichibi.png</strong> (56.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 22:03 上传
+
+<img src="https://img.saraba1st.com/forum/202401/07/220310bj33nsnneeledxzn.png" referrerpolicy="no-referrer">
+
+<strong>raanachibi.png</strong> (54.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 22:03 上传
+
+小妇妻
+
+椎名立希，24岁，著名朋克鼓手。是一个小狸猫表情改的，太喜欢那个了，虽然不知道出处。 ​​​
+
+椎名乐奈，23岁，是世界顶级吉他手，不断赞助着女女生子研究机构，目标是让老婆怀上自己的孩子。今天也穿着老婆最爱的熊猫风外套！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nebulanoby| + 1||
+| CyDiablo| + 2|好评加鹅|
+| HANDAIYV| + 1||
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 8003#       发表于 2024-1-7 22:05
+
+既然3D制作流程可以那么快，不就又回到打回重做的版本了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8004#       发表于 2024-1-7 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568561&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 21:56</a>
+我還等堅信綾奈還沒切割邦多利的樓友說一下見解呢，現在看來只能是打牌了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道捂嘴了满不满意，包括转发取关
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  rslika  
+##### 8005#       发表于 2024-1-7 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假药（对现实未来的预测也算）环节就要靠漫区特有的想象力了
+
+*****
+
+####  12351sscca  
+##### 8006#       发表于 2024-1-7 22:07
+
+所以现在是第几版母鸡卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8007#       发表于 2024-1-7 22:07
+
+武士道這麼有錢啊做兩個版本的ave mujica，太酷了，都放出來看看做得如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 8008#       发表于 2024-1-7 22:08
+
+还是羊宫不开心 最后武士道联动我心危 推迟母鸡卡的猜测比较有趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8009#       发表于 2024-1-7 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8010#       发表于 2024-1-7 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568680&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:06</a>
+
+武士道捂嘴了满不满意，包括转发取关
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 ...</blockquote>
+酷，原來是武士道禁止綾奈發言啊，太對了兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 8011#       发表于 2024-1-7 22:10
+
+打回重做的意义是什么，手游流水不理想的情况下花更多钱，让工期更紧张，如果内部有矛盾那成品风险更大
+
+我记得漏油还提到了最近武士道财政不太好看
+
+在这个怎么看都更容易亏而且工期不足的情况下还要出资出力加塞剧场版新内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8012#       发表于 2024-1-7 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568714&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 22:09</a>
+酷，原來是武士道禁止綾奈發言啊，太對了兄弟</blockquote>
+要不你去推特问一下为啥取关<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  skives  
+##### 8013#       发表于 2024-1-7 22:12
+
+倒不如说 如果绫奈退出了 以后不会再接受任何一次采访
+那么她留下来的脚本 不会被人动一下的概率反而很小
+一个人离开团队 团队为了消除她的痕迹 而改变她留下来的东西是很正常的
+像春日影那种情况 键盘不也改成了吉他 都算女高中生天真无邪改得少了
+

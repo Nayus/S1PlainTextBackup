@@ -1373,3 +1373,27 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 
 哦对了，被天Q后期的高浓度姬骑CP创到的鸟蝶党是不是小友来着（
 
+
+*****
+
+####  没有爱就看不见  
+##### 406#       发表于 2024-1-7 23:43
+
+对豚豚来说最理想的展开应该是男人去和兔子搞基吧，不过站在制作组的角度都搞出两个男性加入主角团了内部消化也太浪费了
+
+<img src="https://img.saraba1st.com/forum/202401/07/232500zebbbyerhqs8jbze.jpg" referrerpolicy="no-referrer">
+
+<strong>GQ.jpg</strong> (316.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 23:25 上传
+
+<img src="https://img.saraba1st.com/forum/202401/07/232503vgksg163534re1n1.jpg" referrerpolicy="no-referrer">
+
+<strong>GD.jpg</strong> (509.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 23:25 上传
+

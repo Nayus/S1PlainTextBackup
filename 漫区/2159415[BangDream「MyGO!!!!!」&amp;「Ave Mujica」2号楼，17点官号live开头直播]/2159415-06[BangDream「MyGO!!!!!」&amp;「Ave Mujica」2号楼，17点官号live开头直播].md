@@ -6118,3 +6118,150 @@ film live是因为难得在第二季做了不少live场景，所以想要把背�
 有没有解释一下官x上原本锐意制作中换成剧场版的  这个才是我觉得最迷惑的 ...</blockquote>
 那還能怎麼解釋，加塞咯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  -LYRE-  
+##### 8085#       发表于 2024-1-7 23:45
+
+ 本帖最后由 -LYRE- 于 2024-1-7 23:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569548&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-7 23:35</a>
+有没有解释一下官x上原本锐意制作中换成剧场版的  这个才是我觉得最迷惑的 ...</blockquote>
+这个挺正常吧，毕竟剧场版今年播而mujica明年播，所以换成了时间更近的剧场版
+我倒是更疑惑我中午就贴过的图，就是为什么mujica官推转了邦官推的live消息却没转动画定档？
+难道是要留着等mujica 1st live上宣布？
+那剧场版也应该放在去年11月mygo 12th live上宣布才是最合理的
+再结合前面两位漏油讨论的锁定绫奈推追时间节点正好也大概在11月到12月之间，那这个剧场版制作决定的时间也可以推断应该是在11月中下旬
+
+*****
+
+####  江口夕  
+##### 8086#       发表于 2024-1-7 23:46
+
+ 本帖最后由 江口夕 于 2024-1-7 23:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一些坛友没搞清楚闹掰的对象，哪怕偶像大师，也是ip方制作人点头才能拍剧本。像3d这种，制作人逛现场在正常不过了。
+剧本这种东西确定了那大方向就确定了顶多小改，如果要大改也是制作人全责，跟脚本一毛钱关系没有，感觉有问题也去怼制作人而不是去怼脚本。
+剧本啥时候写完的，至少也是22年底吧，lag一年不是整个包括mygoave重做而是做一半改一半。一般没十年脑血栓干不出这种事。
+不知道坛友把独角兽当阿宽来演是什么路数。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Ecauchy  
+##### 8087#       发表于 2024-1-7 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569542&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 23:34</a>
+
+結合你說的，第二季和第三季，我覺得按照你理解的一早就確定要做劇場版是對的，
+
+但mygo-ave mujica這邊， ...</blockquote>
+我是这样想的，如果你认为mygo film live是加塞，那么没有道理重启流水线只为制作一个新画面很少的film live的，效费比太低了。
+
+那么就有以下三种可能：
+
+1. 我持此论，即重启流水线是为了修改mujica动画，为了摊薄成本选择追加制作film live。
+
+2. 也可能，film live压根不存在“新制作”的画面，那些“新公开”的画面实际上是之前已经做好，但没有剪辑进正片的。那这样一来根本没有重启流水线的必要，问题解决。
+
+3. 或者，武士道后面还要整个大活，重启流水线是要制作邦邦第六季或者真正的剧场版。那这当然是最好的消息。
+
+2和3都是在一年内必定可以得到验证或证伪的，到时候就知道了。
+
+*****
+
+####  11A511  
+##### 8088#       发表于 2024-1-7 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569486&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 23:27</a>
+
+那我先按照你的想法来推一遍（当然，都是假设）：
+
+1. 独角兽于10月和制作组因为剧本不和而闹掰，制作组当 ...</blockquote><blockquote>如果停摆了再启动，就要花时间了。</blockquote>请问这句话的证据在哪里？你转载的访谈中说
+ <blockquote>『2nd Season』が2019年で。そのタイミングでもうTVアニメ『BanG Dream! 3rd Season（3rd Season）』は決まっていたと記憶しています。
+
+そうです。一緒に発表しました。CGアニメの場合は単発で終わるのではなく、長く作った方がお得なんです。</blockquote>而你认为 <blockquote>制作组是第二季——film live——第三季这样顺序制作的</blockquote>
+也就是原计划是在邦2和邦3间流水线会停摆一段时间，但仍然能够有效利用规模效应的意思吧？从第一性原理的角度来说，模型和场景不会删除，没有理由会有额外的时间损失。 <blockquote>如果认为film live同样都是为了摊薄成本而维持流水线制作</blockquote>我认为这句话是你的误解，因为原文是 <blockquote>『2nd Season』と『3rd Season』で1年空きがありましたからその間に映画が作れますよって、<strong>そういうノリでしたね</strong>。</blockquote>按阅读理解的规律，film live的直接原因是两季间有一年的空隙，可能film live也是对资源的有效活用，但原文中相关讨论出现在前几段，说明这不是主要原因。
+
+另外，既然你认为绫奈去意已决，那么不管怎么吵架都不可能按原计划进行，正常逻辑应该是暂停积极运营，没有理由继续之前的推广。
+
+我看你不如认为3是错误的
+
+顺便请楼里的婆罗门为你介绍一下制作接近完成后过了很长时间才放出的动画。
+
+*****
+
+####  御幸一也  
+##### 8089#       发表于 2024-1-7 23:48
+
+啊？誰在懟腳本了，我一個都沒看到，奇了怪了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 8090#       发表于 2024-1-7 23:50
+
+那为何要在剧本早就写好，声优都看完台本的情况下，修改mujica动画呢，还是说这个修改和剧本无关是其他方面的修改呢。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11A511  
+##### 8091#       发表于 2024-1-7 23:50
+
+<blockquote>Ecauchy 发表于 2024-1-7 23:47
+我是这样想的，如果你认为mygo film live是加塞，那么没有道理重启流水线只为制作一个新画面很少的film l ...</blockquote>
+你的基本假设就是错的，根本不存在“重启流水线大幅增加耗时”这种情况，除非新作中有大量的新场景新人物，或者服务器被黑（）
+
+*****
+
+####  Ecauchy  
+##### 8092#       发表于 2024-1-7 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569653&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 23:46</a>
+
+一些坛友没搞清楚闹掰的对象，哪怕偶像大师，也是ip方制作人点头才能拍剧本。像3d这种，制作人逛现 ...</blockquote>
+監督    柿本広大
+
+シリーズ構成    綾奈ゆにこ
+
+通常来说这两个职位就是动画制作里最大的咖，都有可能被翻译成中文语境下的「制作人」。
+
+或者不如说后者（系构）被翻译成制作人的次数还更多一些。
+
+现在已知的是柿本和绫奈这两个人闹掰了，我不知道你说的「感觉有问题去㨃制作人」这句话主语会是谁。绫奈感觉有问题，和柿本吵了；或者柿本感觉有问题，和绫奈吵了，无论哪个，似乎都满足你所说。
+
+*****
+
+####  6030sylar  
+##### 8093#       发表于 2024-1-7 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569486&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 23:27</a>
+那我先按照你的想法来推一遍（当然，都是假设）：
+
+1. 独角兽于10月和制作组因为剧本不和而闹掰，制作组当 ...</blockquote>
+归纳得好，很少有这样的理性明白人
+根据你的猜测推论，好的情况是为了以后鸡狗对邦live顺便做了剧场版而拖时间，坏的情况少则1集多则3集以上要修改，绫奈也是因为修改剧情而退出，更坏的情况我个人猜测管人团插队<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  凡人  
+##### 8094#       发表于 2024-1-7 23:52
+
+不是，怎么还有楼友连制作人是啥都不知道的？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8095#       发表于 2024-1-7 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569719&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 23:51</a>
+監督    柿本広大
+
+シリーズ構成    綾奈ゆにこ</blockquote>
+制作人特指2.5企划制作人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

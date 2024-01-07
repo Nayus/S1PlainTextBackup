@@ -6730,3 +6730,66 @@ wsd可能真会认为两季快速播完，会导致大部分动画党流失，�
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  PDQ4  
+##### 8136#       发表于 2024-1-8 00:53
+
+我看到唱衰卖狗引流效应不好的不少，到头来还是这点人，强势回暖的还是头一次，确实挺想看看到底哪里强势回暖了，你邦19年那时候可是所有团都全面开花。
+
+中华炮倒是邦头一遭，甚至到了推上都感慨中国人太多的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8137#       发表于 2024-1-8 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570307&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-8 00:50</a>
+
+プロデューサー制度不代表要落实到谁，在制作委员会制度全面落实的现代更多只是一个笼统的功能性称呼，指 ...</blockquote>
+
+不過放到邦多利裡，是有根本雄貴P這個總負責人的……
+
+*****
+
+####  -LYRE-  
+##### 8138#       发表于 2024-1-8 00:56
+
+ 本帖最后由 -LYRE- 于 2024-1-8 00:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570243&amp;ptid=2159415" target="_blank">rslika 发表于 2024-1-8 00:44</a>
+运营不可能考虑中华炮做布局的，虽然一专效果好但他也是个日本运营。实际是mygo不仅在中国效果好，在日本本 ...</blockquote>
+既然都用“回暖”了应该是指手游？
+可10月贴吧还因为流水起争执了
+[Bang Dream九月流水似乎不够乐观](https://tieba.baidu.com/p/8628894701?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.50.3.0&amp;st=1704633667&amp;is_video=false&amp;unique=A0FA05BEDFC80BE3A87C18AA9BB011F8)
+[易拉罐我真服了，真就舍不得爆一粒米是吧](https://tieba.baidu.com/p/8628571802?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.50.3.0&amp;st=1704633837&amp;is_video=false&amp;unique=199F7073339D6C13FB9289C8E006E939)
+总不会是在说线下live回暖吧？
+
+*****
+
+####  Ecauchy  
+##### 8139#       发表于 2024-1-8 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570110&amp;ptid=2159415" target="_blank">11A511 发表于 2024-1-8 00:30</a>
+
+为什么这个“感觉有问题”好巧不巧刚好出现在了还没制作完成，但一旦要改又会导致“流水线停摆”的时刻
+
+ ...</blockquote>
+1. 这没什么巧的，不同时刻出现问题会造成不同的后果，我们看到的是这个后果就说明有对应的原因，一个弱人择原理的简单应用。
+
+2. 没有证据表明柿本早早就看到了问题。我前面说改的是结局变成了机械降神，直接原因当然是因为我的模型里修改的集数只有一集，而另一个侧面原因就是众所周知的，hhw因为会破坏avm的世界观，被无情地直接下线一整季。国内的遗老们可能没觉得资源分配不公闹起来，但是对于整个企划而言这是非常不合理的。hhw如果下一季再被ban，那么要讨论的就不是avm掉了多少资源，而是hhw还有没有商业价值这么个恐怖的问题了。这是脚本必然要面对的一个非常严重的现实（三次元现实）冲突，因为这个修改动画内容是非常有说服力的。
+
+3. 柿本完全可能从弱到强一直在推动自己的想法，但他本来就不是拍板的。根本、木谷、汤田，不管最终决策权在谁手里，反正不会在柿本手里。
+
+*****
+
+####  NODY  
+##### 8140#       发表于 2024-1-8 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63570297&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 00:49</a>
+
+你這完全是mygo視角，那麼ave被這樣對待的好處是？</blockquote>
+就是两边都没好处才奇怪啊，mygo自己的后续不也在第二季，更别说不出第二季还得被时间线卡一整年手游活动都不能乱动
+
+可能武士道真的很自信觉得一季动画能撑一年多热度，所以把第二季放到25年就可以再多续一年吧
+

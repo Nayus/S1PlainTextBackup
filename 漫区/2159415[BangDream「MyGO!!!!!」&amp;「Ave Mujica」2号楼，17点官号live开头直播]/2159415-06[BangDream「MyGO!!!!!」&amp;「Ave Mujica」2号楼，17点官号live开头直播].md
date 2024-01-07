@@ -4141,3 +4141,45 @@ ave mujica新歌angles
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，之前反田没把李世林*到晕过去？
 
+
+*****
+
+####  snowism  
+##### 7920#       发表于 2024-1-7 19:17
+
+说好的鸡狗分家 也没看有新楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 7921#       发表于 2024-1-7 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">救命别玩羊，还有心危要看呢
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  冰寒之月  
+##### 7922#       发表于 2024-1-7 19:19
+
+素晴らしき世界 でも どこにもない場所 utopia这首歌
+
+最开始的管风琴音色还有点宏大展开巴洛克式的感觉 
+
+但个人觉得人声进来的部分不应该让鼓贝斯吉他全部停下   要对上管风琴那么宏大的引入感全程织体都该很密很厚
+
+然后整体曲式也可以抛弃日式流行那种主副主副过渡副的结构 写得更古典一些
+
+也可能是最开始风琴的和弦进行很像spawn of possession的apparition  听惯了这首把口味养叼了 导致我对乐曲复杂度有点不切实际的期望 超出了少女乐队能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 7923#       发表于 2024-1-7 19:21
+
+分楼口嗨一下就差不多了，真分了可就彻底搞对立了，到时候可要变成nga和s1的复刻了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -3832,3 +3832,27 @@ mujica官推现在还没转定档呢<img src="https://static.saraba1st.com/image
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  chih12  
+##### 7888#       发表于 2024-1-7 15:14
+
+等反转，现在只有推特info账号和B站发了2025年1月，ave mujica动画官网和YouTube频道还没有更新消息<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7889#       发表于 2024-1-7 15:18
+
+ 本帖最后由 NODY 于 2024-1-7 15:19 编辑 
+
+不如重新开始思考一下鸡团先进手游再出动画的可能性好了，本来就是萝的精神继承人，那和萝一样动画比手游后出也是有可能的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 7890#       发表于 2024-1-7 15:20
+
+先进手游再出动画那还不如别出了
+

@@ -872,3 +872,24 @@ ED
 答案是猫狗都不喜欢男人，主人喜欢，变身的q娃也喜欢，被按头喜欢，然后三角恋 ...</blockquote>
 万一兔子是雄的，作为今年的男 Q 役，然后搞人类大三角和宠物大三角呢？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贝恩德塔  
+##### 355#       发表于 2024-1-7 10:03
+
+卖bg甚至三角那也还好，但我毫不怀疑成田会创造出一个lowb反派中年大叔然后一直对着反派发情，男主还是单相思没有任何进展，反派cp倒是进展飞快
+
+*****
+
+####  modedd  
+##### 356#       发表于 2024-1-7 10:09
+
+ 本帖最后由 modedd 于 2024-1-7 10:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561286&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-1-7 09:49</a>
+
+今年的期待是兔子请务必是雌的，然后请务必快点快点变人。
+
+豚友也没必要跑那么快，即使是茶几前十集粉蓝的 ...</blockquote>
+就茶几后面布鲁那个逼整的一堆烂活豚豚但凡跑得慢一步就死定了好吧，白河豚吃你家大米啦？<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

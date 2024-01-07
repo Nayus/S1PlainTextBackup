@@ -757,3 +757,168 @@ syl，如果是因为企划问题让步推迟那还好说，今年只要多补�
 切割原案的可能性还是非常非常低的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">水魔也没彻底切割掉大河内
 
+
+*****
+
+####  利维豚  
+##### 7579#       发表于 2024-1-7 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561403&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-7 10:02</a>
+水魔也没彻底切割掉大河内</blockquote>
+所以初祥会结婚
+
+*****
+
+####  相坂君  
+##### 7580#       发表于 2024-1-7 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">今年线下多，巡演的那个也不是mujica啊，当然27号宣布个大的也不是不行，别到时候没活只能咬打火机
+
+*****
+
+####  伊露伊道格拉斯  
+##### 7581#       发表于 2024-1-7 10:04
+
+<blockquote>Kasroz 发表于 2024-1-7 10:02
+水魔也没彻底切割掉大河内</blockquote>
+虽然已经和原案没啥关系了(
+
+*****
+
+####  棒读  
+##### 7582#       发表于 2024-1-7 10:04
+
+剧本大改不至于，不过改改一些具体情节还是可以的，比如学习隔壁成功经验结局变成大家一起包饺砸十人合唱春日影啥的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 7583#       发表于 2024-1-7 10:05
+
+你就算剧情大改也是在原案基础上改的，除非把整个原案否了不然怎么切割原案<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl，现在焦虑太早了，至少等1st看看今年🐔有什么活，到时候再焦虑吧
+
+*****
+
+####  爱丁堡official  
+##### 7584#       发表于 2024-1-7 10:05
+
+一夜之间，似乎没人再在乎烤羊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  相坂君  
+##### 7585#       发表于 2024-1-7 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13话那就是断章勾，压一年单纯找骂罢了，可能武士道就这么自信不趁热打铁吧？
+
+压就压呗，泥邦本来就糊，现在只是糊上加糊，再不济还有mygo24年力挽狂澜，看好的！
+
+*****
+
+####  友情的结晶  
+##### 7586#       发表于 2024-1-7 10:06
+
+你楼本来也不怎么烤羊，z8该烤还是在烤
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kasroz  
+##### 7587#       发表于 2024-1-7 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561435&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-7 10:05</a>
+你就算剧情大改也是在原案基础上改的，除非把整个原案否了不然怎么切割原案
+syl，现在焦虑太早了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">问题是avemujica这帮角色不是随便换一个编剧就能写好的
+
+*****
+
+####  nebulanoby  
+##### 7588#       发表于 2024-1-7 10:07
+
+唉本YLGO开始打hard之后第一次连20都过不了，难受难受
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  利维豚  
+##### 7589#       发表于 2024-1-7 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561436&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-1-7 10:05</a>
+一夜之间，似乎没人再在乎烤羊了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+阴湿人看见滑坡人的总失败路线图，腿都软了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7590#       发表于 2024-1-7 10:08
+
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 7591#       发表于 2024-1-7 10:08
+
+手游进不去
+
+动画不播，定档宣发还是在没有mujica相关人员的场合下宣的
+
+新曲pv立绘复用我真的服气，曲子客观评价，主歌可以，二段副歌拖垮整首
+
+但凡能端上来一首pv制作华丽点或者整首质量好点的新曲我都不会这么火大，乌托邦一首不行我可以接受可以找补，连着两首难免失望
+
+*****
+
+####  millaboreus13  
+##### 7592#       发表于 2024-1-7 10:09
+
+怎么感觉有些人不对劲呢？关心动画制作关心独角兽老师都没啥问题，滑滑坡也是人之常情，怎么就开始说什么资源倾斜甚至鸡狗切割了？嫌水还不够浑是吧？
+
+*****
+
+####  QuattroVageena  
+##### 7593#       发表于 2024-1-7 10:10
+
+未来有一年的时间能滑坡呢
+现在再怎么稳得住一年后呢
+
+*****
+
+####  御幸一也  
+##### 7594#       发表于 2024-1-7 10:11
+
+看不慣想讓ave粉閉嘴的，但凡你是認真來討論ave的東西都不和你在這滑坡了，只想堵嘴是不是<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+所以我說還是分樓吧，狠狠切割互相眼不見心不煩<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 7595#       发表于 2024-1-7 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561436&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-1-7 10:05</a>
+一夜之间，似乎没人再在乎烤羊了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+有一说一，你羊昨天真可以，一下把Z8很多纯良腐乳了，再硬的阴湿佬也承认能给她几天呼吸权
+
+不过主要还是绫奈这滑坡泥石流太可怕了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  skives  
+##### 7596#       发表于 2024-1-7 10:12
+
+我们Mujica真的完蛋了<img src="https://static.saraba1st.com/image/smiley/carton2017/382.png" referrerpolicy="no-referrer">
+

@@ -2533,3 +2533,62 @@ wsd真tm飞🐴玩意 广播没有 小动画没有 翻唱没有 动画没有 现
 
 看动画的本来也不都是百合党啊，有非百合向的创作也不奇怪，不喜欢屏蔽就好了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 7756#       发表于 2024-1-7 12:33
+
+MyGO TV动画本来十二话就够了吧。
+
+*****
+
+####  寒星  
+##### 7757#       发表于 2024-1-7 12:34
+
+angles这首比上一首好听一点
+
+*****
+
+####  黑猫桑  
+##### 7758#       发表于 2024-1-7 12:34
+
+这可不是屏蔽就能解决的问题，有点破梗就像病毒似的到处传播，各种莫名奇妙的xx说
+
+*****
+
+####  青蒜  
+##### 7759#       发表于 2024-1-7 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562815&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-1-7 12:24</a>
+能分配的资源就那么多，wsd又不是什么年年赚大钱的企划，就算是，日本能动员的死宅就那么多，不可能无限 ...</blockquote>
+你这第一句话就有问题，能分配多少资源粉丝能知道？还不是虚空画靶子打
+
+*****
+
+####  阿萨德飞过去  
+##### 7760#       发表于 2024-1-7 12:39
+
+没想到昨天气昏头，一觉醒来就是楼友大战<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+也好，与其沉静下去，不如轰轰烈烈的爆炸（错乱
+
+*****
+
+####  鲍里斯  
+##### 7761#       发表于 2024-1-7 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562815&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-01-07 12:24:03</a>
+能分配的资源就那么多，wsd又不是什么年年赚大钱的企划，就算是，日本能动员的死宅就那么多，不可能无限 ...</blockquote>我觉得ppp厨看到一套曲绘用两个MV骂武士道没有人会觉得有问题
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  skives  
+##### 7762#       发表于 2024-1-7 12:42
+
+武士道手上有黑白双翼 赚钱能力应该比想象的强
+资源分配这个…就不提动画广播之类的了，至少曲绘约一套新的没什么问题吧
+现在给我的感觉其实是 有人以世界观乐队风格为借口 在减少自己的工作量
+不过就像羊一样 等mujica之后整几个好活 也不会有人再质疑了
+

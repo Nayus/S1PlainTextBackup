@@ -10,3 +10,13 @@
 
 反正碟是会买的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19110#       发表于 2024-1-7 22:20
+
+MV好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+至于歌初听不怎么对自己口味，等公布其它歌
+

@@ -5200,3 +5200,81 @@ w ...</blockquote>
 一个人离开团队 团队为了消除她的痕迹 而改变她留下来的东西是很正常的
 像春日影那种情况 键盘不也改成了吉他 都算女高中生天真无邪改得少了
 
+
+*****
+
+####  御幸一也  
+##### 8014#       发表于 2024-1-7 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568744&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:11</a>
+
+要不你去推特问一下为啥取关
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+我還沒有這麼KY，倒是你該學一下怎麼用推特了捏<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8015#       发表于 2024-1-7 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568777&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 22:13</a>
+我還沒有這麼KY，倒是你該學一下怎麼用推特了捏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我玩推特从没这么找不自在，小偶像生病团员没来问候我都觉得没什么
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  御幸一也  
+##### 8016#       发表于 2024-1-7 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568796&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:15</a>
+
+我玩推特从没这么找不自在，小偶像生病团员没来问候我都觉得没什么
+
+—— 来自 Xiaomi M2012K11AC ...</blockquote>
+這很難評，隨便點進去一個推特帳號，他都會提示這個帳號你關注的人裡有哪些也有關注，
+
+這麼基本的功能，原來看這個是在找不自在啊，學到了新知識<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8017#       发表于 2024-1-7 22:19
+
+ 本帖最后由 江口夕 于 2024-1-7 22:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568817&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 22:17</a>
+這很難評，隨便點進去一個推特帳號，他都會提示這個帳號你關注的人裡有哪些也有關注，
+
+這麼基本的功能， ...</blockquote>
+确实啊就是因为这个我才知道中岛由贵还有谁谁没关注独角兽，无用的信息又增加了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  -LYRE-  
+##### 8018#       发表于 2024-1-7 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568796&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 22:15</a>
+我玩推特从没这么找不自在，小偶像生病团员没来问候我都觉得没什么
+
+—— 来自 Xiaomi M2012K11AC ...</blockquote>
+你居然玩推特<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+那看来可能是你关注的所有账号彼此之间都没有关注过对方，所以才不知道推特主页这么显眼的功能吧
+
+*****
+
+####  星空冻结  
+##### 8019#       发表于 2024-1-7 22:22
+
+没关注和关注了取关不是一个概念<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11A511  
+##### 8020#       发表于 2024-1-7 22:22
+
+建议觉得武士道有闲钱重做一季（或者半季）母鸡卡的可以先读一下财报，然后解释一下为啥母鸡卡的两个新pv这么便宜
+

@@ -981,3 +981,53 @@ Mygo有同一首的曲绘用两次这种情况吗<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么会变成现在这样
 企划又不是零和游戏，不用吧
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7603#       发表于 2024-1-7 10:23
+
+高情商，猫希这两个对母鸡卡团员没有任何情感羁绊的在剧场版处理好就不用在母鸡卡出场了
+
+*****
+
+####  millaboreus13  
+##### 7604#       发表于 2024-1-7 10:23
+
+<blockquote>skives 发表于 2024-1-7 10:19
+问题来了
+
+Mygo有同一首的曲绘用两次这种情况吗</blockquote>
+wsd整烂活儿骂就是了，搞内斗切割是什么意图？替wsd转移火力吗？
+
+*****
+
+####  聂宝楽楽  
+##### 7605#       发表于 2024-1-7 10:24
+
+立希还有海玲<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7606#       发表于 2024-1-7 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561579&amp;ptid=2159415" target="_blank">millaboreus13 发表于 2024-1-7 10:23</a>
+
+wsd整烂活儿骂就是了，搞内斗切割是什么意图？替wsd转移火力吗？</blockquote>
+你先骂骂看看实力
+
+*****
+
+####  浅香山的熊  
+##### 7607#       发表于 2024-1-7 10:30
+
+要我说 想搞切割的等27号🐔1st看看wsd态度再切割也不急 一两个账号狂吐黑泥闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7608#       发表于 2024-1-7 10:31
+
+所以我支持分楼，mujica推自己吐黑泥，省得路人和mygo推感觉闹麻了
+

@@ -3952,3 +3952,24 @@ z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预
 
 去年也有九月十日，妮们没炒吗
 
+
+*****
+
+####  nebulanoby  
+##### 7900#       发表于 2024-1-7 16:34
+
+ 本帖最后由 nebulanoby 于 2024-1-7 16:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63565204&amp;ptid=2159415" target="_blank">krowbullet 发表于 2024-1-7 16:26</a>
+
+那高松灯还和高尾奏音现在活跃的另一个2.5企划，偶像荣耀的角色是同一天生日 ...</blockquote>
+这个已经被拿来烤羊了
+
+高尾不但转推了还补了段小作文，不是IP够糊的话烤羊的火会大得多
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 7901#       发表于 2024-1-7 16:35
+
+这算不算灯箱的另类磕法<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -2808,3 +2808,18 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  azbhg1  
+##### 283#       发表于 2024-1-7 16:41
+
+ 本帖最后由 azbhg1 于 2024-1-7 16:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63565061&amp;ptid=2010665" target="_blank">zmw_831110 发表于 2024-1-7 16:11</a>
+
+这个拷贝时不时抽风，偶尔能用，突然又不能用。
+
+感觉api端的限速策略改了，所以被BAN IP了</blockquote>
+我现在问题是在tachiyomi应用里根本看不到拷贝的插件了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/75593217d6df40429944df9caee1bc0c/CMP_20240107164239238.jpg" referrerpolicy="no-referrer">
+

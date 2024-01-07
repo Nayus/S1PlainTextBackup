@@ -1947,3 +1947,164 @@ mujica官推几分钟前转了邦官推关于1st live的推
 
 鸡还没实装动画还没播，鸡粉，有这种东西？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木诗云  
+##### 7700#       发表于 2024-1-7 11:23
+
+得了便宜还卖乖是吧
+
+*****
+
+####  lhwang11  
+##### 7701#       发表于 2024-1-7 11:24
+
+这几楼已经没aoe到狗，光说句资源倾斜都已经要被堵嘴了。。。但凡你真的睁大眼睛仔细关注一下两边待遇呢
+
+*****
+
+####  青蒜  
+##### 7702#       发表于 2024-1-7 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562155&amp;ptid=2159415" target="_blank">ellisnadie 发表于 2024-1-7 11:22</a>
+说不定武士道真是这么想的
+
+鸡还没实装动画还没播，鸡粉，有这种东西？ ...</blockquote>
+懂了，wsd以为大祥老师的谷子都是go粉买的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 7703#       发表于 2024-1-7 11:25
+
+已经看不懂再说什么了，不过分楼可以再讨论讨论
+
+*****
+
+####  -LYRE-  
+##### 7704#       发表于 2024-1-7 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562118&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-1-7 11:19</a>
+闹麻了，旧5团推觉得m团抢资源还屁用没有。旧7团推觉得MA团抢资源也被打成可笑的姨姥了，现在一个还没实装 ...</blockquote>
+我就是因为蝶团空降+倾斜d5j出坑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+本以为wsd脑子可能治好了所以回坑，结果是我想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/a33ed6cd112effc558939b2798fd2cd9/CMP_20240107112544813.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 7705#       发表于 2024-1-7 11:27
+
+武士道运营太不上不下了，给了鸡在13集一个live又不趁热打铁，鸡出场一个live后反而被晾着
+
+要么13集就不要留个断章给mygo一个像结尾的结尾，这时候再公布母鸡卡动画，风评肯定不一样
+
+*****
+
+####  鲍里斯  
+##### 7706#       发表于 2024-1-7 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562151&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-01-07 11:22:26</a>
+新歌MV也好 动画明年也好 母鸡卡这待遇就是该骂啊
+
+13集都给你吧气氛搞出来了 不趁热打铁一波？ 本身一副壕 ...</blockquote>可是滑坡到那一步的就是你啊，开始说的是鸡资源不如狗，不是你理解成是在抱怨狗抢了鸡资源才吵到这样吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 7707#       发表于 2024-1-7 11:28
+
+支持分楼，不然鸡同鸭讲。你看骂wsd资源倾斜有些人敏感到这是在aoe狗，还是要说资源没有倾斜，不倾斜加塞个总集篇还要补戏份是给谁看。
+
+没有鸡粉那更搞了，鸡谷都是老登厨和狗粉在买是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  salic428  
+##### 7708#       发表于 2024-1-7 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561839&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-7 10:51</a>
+这才刚刚开始，我丑话说在前面，搞不好后面会开始攻击独角兽谜语人破坏大局呢 ...</blockquote>
+已经有了吧
+<img src="https://p.sda1.dev/15/dc4ad0d4694a098419518508869374b9/CMP_20240107112721075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  青蒜  
+##### 7709#       发表于 2024-1-7 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562180&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-1-7 11:24</a>
+这几楼已经没aoe到狗，光说句资源倾斜都已经要被堵嘴了。。。但凡你真的睁大眼睛仔细关注一下两边待遇呢 ...</blockquote>
+因为很明显不同人对事实的认定标准都不一样，讨论起来自然是鸡同鸭讲
+比如一个事故死亡xx人，和平国家的民众可能觉得很恐怖，天都要塌了，战乱国家的民众可能觉得就这？日常罢了
+
+*****
+
+####  御幸一也  
+##### 7710#       发表于 2024-1-7 11:29
+
+本來也就ave粉吐黑泥，別告訴我ave粉吐個黑泥都不被允許吧，吐了一天都沒到呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+然後有些人啊我真是難評，現在來說這些，真是本來沒有不爽的都被你們搞到不爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  青蒜  
+##### 7711#       发表于 2024-1-7 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562239&amp;ptid=2159415" target="_blank">salic428 发表于 2024-1-7 11:29</a>
+已经有了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太阳底下没有新鲜事，版本开始升级了
+
+*****
+
+####  御幸一也  
+##### 7712#       发表于 2024-1-7 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562227&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-7 11:28</a>
+
+可是滑坡到那一步的就是你啊，开始说的是鸡资源不如狗，不是你理解成是在抱怨狗抢了鸡资源才吵到这样吗？
+
+ ...</blockquote>
+好像還真是
+
+*****
+
+####  Mr.Giraffe  
+##### 7713#       发表于 2024-1-7 11:30
+
+剪切线已经百万播放了，会把你楼也给切了吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 7714#       发表于 2024-1-7 11:31
+
+本来就是wsd神经分裂的迷惑操作，动画结束🐔团登场鸡狗官号合并，大家都以为最迟24.7就该上🐔的动画了，结果你说25.1才上，那你两号合并干嘛呢？🐔宣传🐔的🐶宣传🐶的不就行了？你现在这样🐔还得在合号上再宣传一年，我不信到时候下面不打起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7715#       发表于 2024-1-7 11:31
+
+我还是第一次在你楼看到强推之耻这个词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到之前都没想到还能有这种思路的
+
+*****
+
+####  PDQ4  
+##### 7716#       发表于 2024-1-7 11:31
+
+爽世12集已经切了，要我讲粉丝也该跟进版本切了，就从你楼开刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 7717#       发表于 2024-1-7 11:32
+
+剪切线含金量最高的一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

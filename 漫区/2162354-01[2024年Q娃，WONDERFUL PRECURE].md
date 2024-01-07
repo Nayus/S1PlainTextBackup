@@ -985,3 +985,19 @@ ED
 我前2天在想，说是狗变Q娃实质上不就是银兽变人变Q娃那套么——那不就是战队？！战队2 ...</blockquote>
 个人暴论，作为铁血BG战士的成田大妈写BG戏的水平不如她写小女孩贴贴的水平的脚趾头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 366#       发表于 2024-1-7 11:23
+
+说起来，既然Wonderful和Nyammy原本只是普通的狗狗跟猫猫而不是来自异世界的妖精，那么我想我们可以讨论一个问题——小麦她可以吃巧克力吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 367#       发表于 2024-1-7 11:31
+
+今年的蓝Q娃也很美，侧马尾好评。人间体发色都和变身后不同
+成田大妈戏怎么这么多，大人q娃难道是复建用的？明年难道是法q的？
+

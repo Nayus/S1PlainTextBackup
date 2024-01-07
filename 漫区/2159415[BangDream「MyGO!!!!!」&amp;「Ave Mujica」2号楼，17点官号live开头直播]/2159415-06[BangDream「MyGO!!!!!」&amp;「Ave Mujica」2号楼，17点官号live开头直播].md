@@ -4200,3 +4200,14 @@ ave mujica新歌angles
 
 乐队出身吉他手，擅长类型也都是日音主流比较常见的，感觉古典功底不行
 
+
+*****
+
+####  御幸一也  
+##### 7925#       发表于 2024-1-7 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558854&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-6 22:52</a>
+
+火腿瞎猫碰上死耗子而已，冈田去年9月就说在收录了，所以正常来说4月怎么都该播了。而且独角兽作为编剧直 ...</blockquote>
+爬昨天的樓，樓友這個輪到我打牌真的要把我笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

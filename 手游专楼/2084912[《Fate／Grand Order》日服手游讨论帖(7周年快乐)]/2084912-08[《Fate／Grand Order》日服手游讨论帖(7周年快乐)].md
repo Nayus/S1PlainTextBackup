@@ -2451,3 +2451,11 @@ IMG_2773.jpeg
 
 在想要不要留个茶壶，按进度也该收集下一个所长碎片了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 10737#       发表于 2024-1-7 19:36
+
+吃苹果刷匕首，反正QP溢出，以后估计也没有新5星了，苹果留着也没用了。
+

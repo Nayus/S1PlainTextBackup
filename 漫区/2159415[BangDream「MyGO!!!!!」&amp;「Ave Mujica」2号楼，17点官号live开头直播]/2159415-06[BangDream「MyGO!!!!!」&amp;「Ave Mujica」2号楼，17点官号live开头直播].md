@@ -4001,3 +4001,61 @@ z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预
 你想想去年9月份在播第几集，哪有时间炒这个</blockquote>
 那时候其实刚好是个空窗期，12集讨论过了，13集还没出来，播的总集篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  近月  
+##### 7905#       发表于 2024-1-7 17:53
+
+一打开x就看到lsl发的合照，真的很难评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 7906#       发表于 2024-1-7 17:53
+
+<blockquote>青蒜 发表于 2024-1-7 16:47
+你想想去年9月份在播第几集，哪有时间炒这个</blockquote>
+最后一集14号，10号不是嫌出鸟来
+
+*****
+
+####  爱丁堡official  
+##### 7907#       发表于 2024-1-7 17:56
+
+你楼终于平静点了，耐心等开播吧。捕风捉影对于漏油可能没什么强度，但是b站贴吧nga微博的mmr都吓坏了，还是看看远处的管人团吧（不是）
+
+*****
+
+####  DarthAka  
+##### 7908#       发表于 2024-1-7 17:57
+
+李世林昨天谢幕一个人站一边，是不是不屑与那4个胖子为伍啊
+
+*****
+
+####  后藤一里  
+##### 7909#       发表于 2024-1-7 17:59
+
+看了半天没认出来立石凛摸的谁的头
+<img src="https://p.sda1.dev/15/fb7d2d3e433e5530c707d0e3c81698de/CMP_20240107175907245.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7910#       发表于 2024-1-7 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大鼓这手都这样了，经纪人怎么也不劝劝
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  近月  
+##### 7911#       发表于 2024-1-7 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63566065&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-7 17:53</a>
+
+最后一集14号，10号不是嫌出鸟来</blockquote>
+其实是当时烤羊还没成为显学吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

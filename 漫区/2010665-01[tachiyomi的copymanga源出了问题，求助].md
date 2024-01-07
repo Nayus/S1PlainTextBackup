@@ -2823,3 +2823,26 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 我现在问题是在tachiyomi应用里根本看不到拷贝的插件了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/75593217d6df40429944df9caee1bc0c/CMP_20240107164239238.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keroghy  
+##### 284#       发表于 2024-1-7 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63565381&amp;ptid=2010665" target="_blank">azbhg1 发表于 2024-1-7 16:41</a>
+我现在问题是在tachiyomi应用里根本看不到拷贝的插件了</blockquote>
+现在需要每进一次app就点一次信任，有人反映这个问题了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  azbhg1  
+##### 285#       发表于 2024-1-7 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63566100&amp;ptid=2010665" target="_blank">keroghy 发表于 2024-1-7 17:57</a>
+现在需要每进一次app就点一次信任，有人反映这个问题了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S ...</blockquote>
+不是，我这连个点信任的地方都完全找不到，在哪里点信任啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

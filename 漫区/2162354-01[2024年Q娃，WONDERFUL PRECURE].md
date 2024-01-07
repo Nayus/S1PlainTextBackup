@@ -1035,3 +1035,16 @@ ED
 以及蓝Q是 ...</blockquote>
 我是说明年是不是法q的系构
 
+
+*****
+
+####  pokemon最爱  
+##### 371#       发表于 2024-1-7 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63562367&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-1-7 11:41</a>
+
+我是说明年是不是法q的系构</blockquote>
+哦你的意思是汪Q下一部是村山的？我觉得没这规律吧。
+
+主要所谓大人Q娃的两部其实希望之力跟法Q2大概一开始都是完全不沾边的企划所以共性可能并不多。
+

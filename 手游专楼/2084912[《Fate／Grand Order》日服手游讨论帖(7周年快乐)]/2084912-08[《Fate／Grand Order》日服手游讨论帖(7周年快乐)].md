@@ -2407,3 +2407,19 @@ IMG_2773.jpeg
 好  萌新也终于有大魔王了（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  eilot  
+##### 10734#       发表于 2024-1-7 11:47
+
+大和池，30石，沒事發生
+
+莉莉絲池，60石、沒事發生
+
+提媽池，90石、沒事發生
+
+卑爾呼池，60石，都是沒事發生
+
+結束這回合，殺狐及梅林都有就算了
+

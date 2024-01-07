@@ -2396,3 +2396,14 @@ IMG_2773.jpeg
 
 调石头就别想了，你调完后是抽不了卡的
 
+
+*****
+
+####  qixinno2  
+##### 10733#       发表于 2024-1-7 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63558963&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-6 23:04</a>
+
+好  萌新也终于有大魔王了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+

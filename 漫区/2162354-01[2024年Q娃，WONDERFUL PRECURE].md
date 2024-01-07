@@ -453,3 +453,76 @@ staff也就这点出息，看看今年花几集变回传统白开水
 
 因为颜色都对的上 蓝色变身前也是单马尾
 
+
+*****
+
+####  6030sylar  
+##### 315#       发表于 2024-1-7 08:12
+
+人狗合体这个太触发ptsd了
+
+*****
+
+####  jaewoongh_  
+##### 316#       发表于 2024-1-7 08:14
+
+男人！成田良美笔下的男人！
+
+*****
+
+####  宅音  
+##### 317#       发表于 2024-1-7 08:14
+
+这个男的（？）怎么还抱着一个<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 318#       发表于 2024-1-7 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560749&amp;ptid=2162354" target="_blank">宅音 发表于 2024-1-7 08:14</a>
+这个男的（？）怎么还抱着一个</blockquote>
+兔子多半就是追加战士了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">男的还是猫的饲主（黄战士）的同学，怎么感觉要多角恋啊。
+
+*****
+
+####  风鸣弦十郎  
+##### 319#       发表于 2024-1-7 08:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一个小哥cv醇皇
+
+*****
+
+####  modedd  
+##### 320#       发表于 2024-1-7 08:17
+
+一时间分不清天q占了百合位和bg占了仁寿位那个更让人愤懑<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  haoshion  
+##### 321#       发表于 2024-1-7 08:20
+
+兔子追加是吧，被男人饲养的q娃是不是太先进了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡卡布鲁根  
+##### 322#       发表于 2024-1-7 08:22
+
+成田良美➕男人，狗都不看
+
+—— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  披头破落户  
+##### 323#       发表于 2024-1-7 08:22
+
+今年娃的瑟图应该全都是人手题材吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

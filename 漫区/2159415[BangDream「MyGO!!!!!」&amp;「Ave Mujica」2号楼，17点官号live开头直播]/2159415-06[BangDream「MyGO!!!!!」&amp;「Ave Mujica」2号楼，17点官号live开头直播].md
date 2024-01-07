@@ -6973,3 +6973,17 @@ Bang Dream九月流水似乎不够乐观</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  宿  
+##### 8155#       发表于 2024-1-8 02:20
+
+<img src="https://img.saraba1st.com/forum/202401/08/022014lu22v3uuucknucvj.png" referrerpolicy="no-referrer">
+
+<strong>umirichibi.png</strong> (65.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 02:20 上传
+

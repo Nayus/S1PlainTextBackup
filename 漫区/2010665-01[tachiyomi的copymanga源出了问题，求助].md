@@ -2903,3 +2903,13 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 —— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  tclm  
+##### 291#       发表于 2024-1-7 21:12
+
+全部权限都给了，拷贝源还是每次进软件都不信任，而且改了信任也打不开
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

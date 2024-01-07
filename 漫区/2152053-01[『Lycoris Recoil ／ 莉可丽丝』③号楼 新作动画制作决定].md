@@ -18544,3 +18544,13 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 看了一眼楼里居然没人发三月出新小说的消息
 
+
+*****
+
+####  Saber琪  
+##### 1439#       发表于 2024-1-7 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560821&amp;ptid=2152053" target="_blank">Aeroblast 发表于 2024-1-7 08:30</a>
+看了一眼楼里居然没人发三月出新小说的消息</blockquote>
+感觉就是note的内容割韭菜没啥好说的，不过是多了伊的插画
+

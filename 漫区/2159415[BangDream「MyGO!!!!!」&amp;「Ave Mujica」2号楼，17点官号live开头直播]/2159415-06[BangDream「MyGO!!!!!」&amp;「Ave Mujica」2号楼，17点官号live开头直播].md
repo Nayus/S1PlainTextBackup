@@ -4507,3 +4507,85 @@ mygo動畫播完預告ave mujica不預告總集篇，是武士道有特殊的考
 
 因為我想不通<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  rslika  
+##### 7952#       发表于 2024-1-7 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567950&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 21:00</a>
+
+很簡單，你只需要說服我，這總集篇劇場版是一開始就這樣定檔的，
+
+13話那樣斷點本來就是準備一年半之後再 ...</blockquote>
+剧场版肯定临时塞的，这个一眼就看得出来
+
+等动画团队那边的后续，要是动画没什么问题那就是纯bsr的锅
+
+*****
+
+####  ddy2811  
+##### 7953#       发表于 2024-1-7 21:04
+
+想太多也没什么用，邦邦完蛋了也是wsd咎由自取，中衰是一系列愚蠢的操作及导致这些操作的决策机制所造成，靠一两个团的某些内容做好了就想中兴也不现实，只能希望25年1月能看到一部让我满意的Mujica了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7954#       发表于 2024-1-7 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567889&amp;ptid=2159415" target="_blank">近月 发表于 2024-1-7 20:55</a>
+
+没有攻击漏油的意思，只是很想知道爬楼是怎么得出1的结论的，因为在别的地方也看到了类似说法。
+
+但这真的 ...</blockquote>
+能得出1的結論估計就是被泥樓的巨魔發言釣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  近月  
+##### 7955#       发表于 2024-1-7 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567913&amp;ptid=2159415" target="_blank">rslika 发表于 2024-1-7 20:57</a>
+
+不至于吧，不只是别的地方吧，楼里也有很多这种猜想啊我的预期是去年9月动画做完白模开始配音，今 ...</blockquote>
+那好吧，也可能是我爬楼不仔细，但这种说法真的没道理的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7956#       发表于 2024-1-7 21:07
+
+说到底出个总集篇真的能恰到狗的快钱吗，总集篇这种玩意注定吸不了新观众，加戏的是人气中游的猫而不是最高的美帝爱素，占了一半销量的中华炮还看不到，除非后面宣布一下上映两个月以内上国内流媒体，不然国内还得等个一年半总集篇bd发售，国内狗粉能有多少人等得起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7957#       发表于 2024-1-7 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568041&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 21:07</a>
+
+说到底出个总集篇真的能恰到狗的快钱吗，总集篇这种玩意注定吸不了新观众，加戏的是人气中游的猫而不是最高 ...</blockquote>
+你狗的貓在日本可是人氣最高的，別尬黑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 7958#       发表于 2024-1-7 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568041&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 21:07</a>
+
+说到底出个总集篇真的能恰到狗的快钱吗，总集篇这种玩意注定吸不了新观众，加戏的是人气中游的猫而不是最高 ...</blockquote>
+根本恰不到罢
+
+*****
+
+####  kojima34  
+##### 7959#       发表于 2024-1-7 21:11
+
+<blockquote>rslika 发表于 2024-1-7 20:55
+你回复太多了，我没那么多时间翻
+
+bsr搞多媒体企划赚的这些钱对根本不算什么，特别跟他赚钱的主业 ...</blockquote>
+还有人信武士道的运营水平啊哈哈哈😆要我说IP运营及格线就是要会看投资回报率配置资源，它能做出无脑投D5J这种事已经说明不及格了，还搁这吹这反商业理性的行为呢。就武士道这烂卡面、烂运营、垃圾排期，活该邦被PJSK抢占上位，好歹PJSK知道讨好愿意花钱的客户，愿意根据角色跟CP的人气与卖气来调整运营方向，典型例子就是原本WS卖的BG 官推看到BL比较火立马增加BL卖的力度。
+

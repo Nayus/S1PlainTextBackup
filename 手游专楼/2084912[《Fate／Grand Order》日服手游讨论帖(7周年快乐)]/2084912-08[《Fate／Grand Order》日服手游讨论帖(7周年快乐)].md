@@ -2492,3 +2492,11 @@ ORT和百層塔打法都是一樣，一張突滿寶石翁，開局先來一發�
 
 大多都是用1~3星角色，去到後面，一群4~5星大半都沒用過...
 
+
+*****
+
+####  khxooo  
+##### 10741#       发表于 2024-1-7 23:17
+
+ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，我甚至没上5星就搞掂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

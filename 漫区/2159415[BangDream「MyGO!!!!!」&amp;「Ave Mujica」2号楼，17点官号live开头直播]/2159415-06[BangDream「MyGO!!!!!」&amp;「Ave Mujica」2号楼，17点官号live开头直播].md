@@ -5913,3 +5913,78 @@ film live是因为难得在第二季做了不少live场景，所以想要把背�
 只知道是12月下，在同人群和群友汴剧情闲得蛋疼去逛了一圈，但回忆起来关注列表里确实没有官方图标 ...</blockquote>
 那还是很难确定，虽说确认下来可能也没什么意义吧……
 
+
+*****
+
+####  江口夕  
+##### 8070#       发表于 2024-1-7 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569322&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-7 23:10</a>
+对音乐质量要求很高，所以把合作对象换成产出质量更不稳定的
+
+武士道管理层脑回路要都这样，那只能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能人一直是这样。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  御幸一也  
+##### 8071#       发表于 2024-1-7 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569291&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 23:07</a>
+
+感谢分享。
+
+我粗略看了一遍，关于你说的那段：</blockquote>
+還有這個理解，也能說通。好吧。
+
+*****
+
+####  Aendst  
+##### 8072#       发表于 2024-1-7 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569346&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 23:13</a>
+
+有没有可能人一直是这样。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+好吧，我以为我已经很讨厌武士道了，确实没想到他们还能更离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 8073#       发表于 2024-1-7 23:17
+
+把续作离那么久给我的感觉就是真的很蠢，幕后的场外事情好像更蠢
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">还是奶头乐推小偶像开心
+
+*****
+
+####  御幸一也  
+##### 8074#       发表于 2024-1-7 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569291&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-7 23:07</a>
+
+感谢分享。
+
+我粗略看了一遍，关于你说的那段：</blockquote>
+我被樓友這個解釋說服了，但我又想到新的一點，
+
+如果mygo劇場版是一早就計劃的，那其實完全不該是總集篇，應該要是全新劇場版，
+
+因為ave mujica可不是被壓了一年，而是一年半，比做FILM LIVE的時間還要充裕。
+
+總感覺更加證實這個總集篇劇場版是在加塞了。
+
+*****
+
+####  -LYRE-  
+##### 8075#       发表于 2024-1-7 23:18
+
+ 本帖最后由 -LYRE- 于 2024-1-7 23:20 编辑 
+
+泪目了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+难得见到有认真看回复、会点进链接、还又是贴原文又是写翻译的有效沟通，令人感动<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

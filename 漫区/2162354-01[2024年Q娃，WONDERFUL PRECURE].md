@@ -1114,3 +1114,19 @@ ED
 
 该死的咸鱼卖家，如果不提前泄露风声的话，这会儿华哥的q娃就叫cure friendly，中文名就叫芙莲莉天使了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  199april  
+##### 380#       发表于 2024-1-7 13:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我对成田就这个表情
+
+*****
+
+####  盐盐盐盐盐  
+##### 381#       发表于 2024-1-7 13:22
+
+原来另一个人类妹子也变身，我还以为白兔子是那个白（蓝）q
+都主从配好了搞cp希望是三对主从锁，或者主人配主人宠物配宠物这种，宠物和别家饲主搞cp会感觉自家饲主有点惨hh
+

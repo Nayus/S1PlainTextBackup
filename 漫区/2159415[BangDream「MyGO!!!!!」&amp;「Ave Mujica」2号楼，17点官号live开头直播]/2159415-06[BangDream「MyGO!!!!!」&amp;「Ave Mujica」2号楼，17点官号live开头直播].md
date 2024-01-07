@@ -2830,3 +2830,161 @@ MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場
 
 真别说，立希厨没准还真无所谓和鸡换待遇，已经看到不少觉得第二季立希没戏份好过出来全在垫人的发言了，只能说武士道确实一直都不那么端水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 7784#       发表于 2024-1-7 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563309&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-1-7 13:11</a>
+
+我想看爱祥互动。</blockquote>
+我看前边的时候就是祥子×爱音，结果看到最后这俩互动不也多。如果后面这俩能互动那也很美味<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7785#       发表于 2024-1-7 13:13
+
+ 本帖最后由 御幸一也 于 2024-1-7 13:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563240&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 13:06</a>
+
+爬完楼了，总结一下个人想法（表明一下屁股：我是立希激推）
+
+1.独角兽推特属于谜语人炒作，作为立希推实话 ...</blockquote>
+
+截圖來了，綾奈感謝監督的follow，現在不止綾奈退追監督，監督也退追了綾奈。
+
+雖然也可能單純是綾奈B解了監督就是<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+[https://twitter.com/unicococ/status/921324001363836928](https://twitter.com/unicococ/status/921324001363836928)
+
+<img src="https://img.saraba1st.com/forum/202401/07/131542m20ku3t0nhu2d9ka.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (1).jpg</strong> (61.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 13:15 上传
+
+*****
+
+####  cindy355  
+##### 7786#       发表于 2024-1-7 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563292&amp;ptid=2159415" target="_blank">higuchiguchi 发表于 2024-1-7 13:10</a>
+
+17年的推 独角兽感谢柿本关注她的账号</blockquote>
+感谢，不过个人还是觉得属于独角兽炒作范畴，毕竟之前已经被她溜过好几次了……
+
+*****
+
+####  Fakerの幻影  
+##### 7787#       发表于 2024-1-7 13:15
+
+獨角獸越來越像豐川祥子，觀眾越來越像長崎素世
+MyGO的粉絲隨主變成了迷子，但即使迷茫也繼續前進(指看劇場版)
+Ave Mujica的粉絲隨主黑化，擺著臭臉大喊軟弱的我已經死了
+
+很難不懷疑他們是不是在搞什麼大型社會實驗
+
+*****
+
+####  cindy355  
+##### 7788#       发表于 2024-1-7 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563312&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-7 13:11</a>
+
+真别说，立希厨没准还真无所谓和鸡换待遇，已经看到不少觉得第二季立希没戏份好过出来全在垫人的发言了，只 ...</blockquote>
+以下发言纯混沌请漏油不要当真。
+
+鸡粉可以学习立希推先进经验，一不在乎路人风评，二不在乎人气，三不期待官方产出。
+
+*****
+
+####  Aendst  
+##### 7789#       发表于 2024-1-7 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563240&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 13:06</a>
+
+爬完楼了，总结一下个人想法（表明一下屁股：我是立希激推）
+
+1.独角兽推特属于谜语人炒作，作为立希推实话 ...</blockquote>
+谢谢，看完安心了很多
+
+*****
+
+####  御幸一也  
+##### 7790#       发表于 2024-1-7 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563356&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 13:15</a>
+
+以下发言纯混沌请漏油不要当真。
+
+鸡粉可以学习立希推先进经验，一不在乎路人风评，二不在乎人气，三不期 ...</blockquote>
+有點太地獄笑話了兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  特拉·特尔特  
+##### 7791#       发表于 2024-1-7 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563240&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 13:06</a>
+
+爬完楼了，总结一下个人想法（表明一下屁股：我是立希激推）
+
+1.独角兽推特属于谜语人炒作，作为立希推实话 ...</blockquote>
+你好温柔<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  higuchiguchi  
+##### 7792#       发表于 2024-1-7 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563336&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 13:13</a>
+
+感谢，不过个人还是觉得属于独角兽炒作范畴，毕竟之前已经被她溜过好几次了…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">我也希望是炒作
+
+*****
+
+####  shinoverse  
+##### 7793#       发表于 2024-1-7 13:19
+
+鸡犬不宁咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜火雷纹  
+##### 7794#       发表于 2024-1-7 13:21
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aloereed  
+##### 7795#       发表于 2024-1-7 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563309&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-1-7 13:11</a>
+
+我想看爱祥互动。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">我想看绫柿互动（
+
+*****
+
+####  cindy355  
+##### 7796#       发表于 2024-1-7 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563383&amp;ptid=2159415" target="_blank">higuchiguchi 发表于 2024-1-7 13:18</a>
+
+我也希望是炒作</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我已经看见有其他立希推被独角兽溜得试图造谣独角兽高中被泪痣暴躁黑长直矮子女高霸凌过了，被独角兽溜得精神状态堪忧实属正常。
+
+*****
+
+####  Kasroz  
+##### 7797#       发表于 2024-1-7 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563383&amp;ptid=2159415" target="_blank">higuchiguchi 发表于 2024-1-7 13:18</a>
+我也希望是炒作</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本有讨论这件事的吗
+

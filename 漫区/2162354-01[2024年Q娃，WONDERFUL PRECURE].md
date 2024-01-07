@@ -1433,3 +1433,13 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先把主线写好了再去想你那些乱七八糟的私货行吧
 
+
+*****
+
+####  Cloudslin  
+##### 411#       发表于 2024-1-8 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63569862&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-1-8 00:06</a>
+我只能希望Staff里有人能按住成田大妈那躁动不安的BG战士的心，只要成田大妈乖乖的写小女孩贴贴不去碰BG ...</blockquote>
+高桥P评天空绿白<blockquote>落ち葉くんのお話はきっと誰かの中にもあるのではと個人的にも思い入れが強いお話でした。</blockquote>
+

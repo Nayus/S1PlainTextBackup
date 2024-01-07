@@ -5278,3 +5278,65 @@ w ...</blockquote>
 
 建议觉得武士道有闲钱重做一季（或者半季）母鸡卡的可以先读一下财报，然后解释一下为啥母鸡卡的两个新pv这么便宜
 
+
+*****
+
+####  PDQ4  
+##### 8021#       发表于 2024-1-7 22:24
+
+确实，mygo官号和邦官号到底是取关还是从来没关注过未可知，虽然这么讲更怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 8022#       发表于 2024-1-7 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">唉我一直是支持把Z8的头像换成武士道的
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=0f4310f5f4119313c743ffb855380c10/cbefca58252dd42a7434df9c453b5bb5c9eab80b.jpg?tbpicau=2024-01-09-05_d49f639fffb4eb358a0d2f32ba71569c" id="aimg_x2w2W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)专楼怎么成这样了
+
+*****
+
+####  滑稽Captain  
+##### 8023#       发表于 2024-1-7 22:27
+
+因为不管怎么找理由去分析三次元是主观地能做完不做完，或者是做完了憋住，又或是可能性较低的受不可抗力影响做不完，都只会指向wsdfm
+
+wsd：什么动画趁热打铁，听都没听过，我就要热了放凉了，凉了再热起来，先搞一年live再说（
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8024#       发表于 2024-1-7 22:28
+
+12月我翻独角兽推文好像就没有看见她关注那几个官号，烂炒水平太低了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ecauchy  
+##### 8025#       发表于 2024-1-7 22:32
+
+怎么可能重做一季半季，都理解到哪里去了。
+
+现实是mujica动画不用考虑任何推测，板上钉钉的就是至少推迟了半年。换句话说，这个「工期延长半年」不是论证的结果而是起点。
+
+不是根据「独角兽人物关系被修改」推测「工期延长半年」，而是相反，根据「工期延长半年」来推测修改的范围大小。
+
+修改多少的情况下工期才需要延长半年？很简单，半年够做多少动画？正好够做一集ova，那么说明这个改动范围也就不会超过一集的量。
+
+至于觉得武士道有没有钱做这一集动画的……你觉得mujica被压缩资源压缩得这么狠，钱省到哪里去了？
+
+*****
+
+####  Aendst  
+##### 8026#       发表于 2024-1-7 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568916&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-7 22:28</a>
+
+12月我翻独角兽推文好像就没有看见她关注那几个官号，烂炒水平太低了 ...</blockquote>
+十二月几号有印象吗，十一月我翻的时候还是有的，可以确定大体范围
+
+我也是十二月发现她没关注的，差不多年末，觉得会引发不安就没讲出来
+
+忍了很久，每天都在刷绫奈和柿本有没有恢复关注，这几天看到这个情况实在是无法再忍下去
+

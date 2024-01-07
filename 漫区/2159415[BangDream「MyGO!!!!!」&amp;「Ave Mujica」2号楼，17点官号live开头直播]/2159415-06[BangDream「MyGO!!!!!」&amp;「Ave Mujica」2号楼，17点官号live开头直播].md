@@ -4341,3 +4341,73 @@ ave mujica新歌angles
 只能说，虽然我不太相信真的切割了独角兽，但如果真切割了那就这样吧，反正也不影响仍然是25年1月开播， ...</blockquote>
 是这个道理，不要骗自己没事发生，也不要认为这实际上是多大的事情
 
+
+*****
+
+####  青蒜  
+##### 7938#       发表于 2024-1-7 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567640&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-7 20:31</a>
+
+不是你们都没考虑过动机的么，动画至少给手游爆了将近2000w的米，虽然不多也算合格完成任务，为啥要 ...</blockquote>
+他们不就是因为想不明白才滑坡的吗
+
+你给个合理解释呗
+
+*****
+
+####  御幸一也  
+##### 7939#       发表于 2024-1-7 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567555&amp;ptid=2159415" target="_blank">rslika 发表于 2024-1-7 20:24</a>
+
+一直在推小偶像没怎么关注场外消息，今晚恶补了一下。
+
+按去年9月在配音的流程推测母鸡卡动画是已经 ...</blockquote>
+1真有樓友相信嗎，也太陰謀論了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+2就是我罵的，覺得太爛活了來說服一下我，我觀點前面都打過了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  nebulanoby  
+##### 7940#       发表于 2024-1-7 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567616&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-7 20:28</a>
+
+剛剛看一眼外面泥樓已經被傳成魔窟，聽說全滑坡成獸娘2了，嚇得我看了一下昨晚的滑坡大戲，提到獸娘的也 ...</blockquote>
+我觉得按理来说不会有太大影响，心态淡定才是最重要，还要活一年呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+今天连满地纯良的那个Z8都笑尼漏太能滑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实尼漏被传到外面去主要还是这边日语大能多，独角兽的事情最早就是这边传然后扩散出去的
+
+*****
+
+####  狮子咕  
+##### 7941#       发表于 2024-1-7 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 7942#       发表于 2024-1-7 20:39
+
+ 本帖最后由 御幸一也 于 2024-1-7 20:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567680&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-7 20:35</a>
+
+我觉得按理来说不会有太大影响，心态淡定才是最重要，还要活一年呢
+
+今天连满地纯良的那个Z8都笑 ...</blockquote>
+昨晚那發表要ave粉如何不滑坡，不過我現在倒是冷靜很多了，然後看一眼別的地方討論，樂了，爬完昨天的滑坡大戲，更樂<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+反正罵再多檔期也無法改變了，滑坡完該繼續喜歡還是繼續喜歡，能怎麼辦，祥墮是我自己的錯<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 7943#       发表于 2024-1-7 20:41
+
+mujica官推为什么没转啊
+

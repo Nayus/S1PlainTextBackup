@@ -4083,3 +4083,22 @@ z8发现山田杏奈生日和高尾奏音是同一天，明年9月10日可以预
 最后一集14号，10号不是嫌出鸟来</blockquote>
 那会都在炒各种假药，什么姐妹论之类的，哪有空烤羊
 
+
+*****
+
+####  冰寒之月  
+##### 7915#       发表于 2024-1-7 18:34
+
+ave mujica新歌angles 
+
+前面一大半全是键盘 
+
+另外四个乐器基本摸鱼 这是让祥子给初华伴奏独唱是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7916#       发表于 2024-1-7 18:37
+
+新歌歌词就挺初祥情歌的，甚至李子发推都专门强调钢琴和吉他<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

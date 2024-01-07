@@ -2443,3 +2443,11 @@ IMG_2773.jpeg
 
 第2章開始再加上直接鎖隊鎖角色，又鎖衣服，再加鎖令咒(但沒鎖靈脈石)、鎖出擊人數、鎖...
 
+
+*****
+
+####  保罗赫伯特  
+##### 10736#       发表于 2024-1-7 18:35
+
+在想要不要留个茶壶，按进度也该收集下一个所长碎片了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

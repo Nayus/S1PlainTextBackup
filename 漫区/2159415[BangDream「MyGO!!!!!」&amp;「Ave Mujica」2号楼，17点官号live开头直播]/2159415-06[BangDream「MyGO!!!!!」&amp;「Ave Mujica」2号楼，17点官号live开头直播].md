@@ -4278,3 +4278,66 @@ ave mujica新歌angles
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">道理我都懂，但他们两今年不是还要在PA那出一部片子的吗。合着说大家职业素质很高谈不来的算谈不来要重做，但是聊得来的就可以继续拍是吧。
 
+
+*****
+
+####  rslika  
+##### 7933#       发表于 2024-1-7 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">一直在推小偶像没怎么关注场外消息，今晚恶补了一下。
+
+按去年9月在配音的流程推测母鸡卡动画是已经做完，但预定播出的时间明显不对劲。
+
+群众的推测分为1主创不和要改动画 2bsr为了恰mygo快钱（太烂活了不像真的）
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">对吧
+
+*****
+
+####  Aendst  
+##### 7934#       发表于 2024-1-7 20:24
+
+ 本帖最后由 Aendst 于 2024-1-7 20:28 编辑 
+
+为设定集炒作肯定说不过去，深夜那条推说看到正在被挖不打算继续删了，也就是说实际上是打算自己私下删除的
+
+还提到了今后不会再有访谈，之前也有漏油认为是在对设定集回应，我很同意
+
+邦官推和mygo官推都没在关注，提到告别，怎么说都不像是完全无事发生
+
+不过影响成片就是另一回事了，虽然眼下唯一能给点支持的是还没取关mujica这点…制作进度勉强算半个吧
+
+看绫奈对仙魔大战的态度感觉得到她对自己的作品很重视，想认真做好内容，不说能力水平，起码对作品的态度是挺负责的
+
+*****
+
+####  御幸一也  
+##### 7935#       发表于 2024-1-7 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567343&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-7 20:05</a>
+
+某些人粉饰太平的水平我是服的，非要说独角兽和其他Staff没事发生，那就只能是打牌，或者是今天早上某些人 ...</blockquote>
+剛剛看一眼外面泥樓已經被傳成魔窟，聽說全滑坡成獸娘2了，嚇得我看了一下昨晚的滑坡大戲，提到獸娘的也就兩三個人，還沒人理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正我觀點和你差不多，還不必滑到劇本被改，但你說綾奈和邦多利之間沒發生點什麼，我很難說服自己相信<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+好，就當什麼都沒發生，但綾奈只關注ave mujica，不關注mygo和bang dream的官推，我總感覺這好像更難繃
+
+*****
+
+####  江口夕  
+##### 7936#       发表于 2024-1-7 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是你们都没考虑过动机的么，动画至少给手游爆了将近2000w的米，虽然不多也算合格完成任务，为啥要切割
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  nebulanoby  
+##### 7937#       发表于 2024-1-7 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63567498&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 20:19</a>
+
+只能说，虽然我不太相信真的切割了独角兽，但如果真切割了那就这样吧，反正也不影响仍然是25年1月开播， ...</blockquote>
+是这个道理，不要骗自己没事发生，也不要认为这实际上是多大的事情
+

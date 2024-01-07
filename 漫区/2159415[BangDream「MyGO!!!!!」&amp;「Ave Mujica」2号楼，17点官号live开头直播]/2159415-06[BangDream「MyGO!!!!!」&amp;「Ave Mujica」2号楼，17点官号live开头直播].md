@@ -635,3 +635,125 @@ ave粉看到2025才播這動畫廣告片早就怒火中燒，再看綾奈切割�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  HANDAIYV  
+##### 7568#       发表于 2024-1-7 09:53
+
+能不能等真证明了确实资源倾斜强推再开骂啊，ave开播还有一年呢，mygo开播一年前资源也没多好啊，wsd确实没脑子，但可能wsd策略就是这样
+
+*****
+
+####  6030sylar  
+##### 7569#       发表于 2024-1-7 09:55
+
+说这么多都是怒其不争<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">大好顺风局非要等凉
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御幸一也  
+##### 7570#       发表于 2024-1-7 09:55
+
+所以你覺得ave壓到2025播不是在讓路劇場版總集篇，和你說一下官推置頂現在也換成那個總集篇了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+他如果一早這樣計劃，那他幹嘛不先預告有總集篇劇場版呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 7571#       发表于 2024-1-7 09:58
+
+ 本帖最后由 星空冻结 于 2024-1-7 09:59 编辑 
+
+🐶总集篇就是插进来的啊，🐔的问题就是到底是因为制作的问题导致推迟还是因为企划让步推迟<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl，如果是因为企划问题让步推迟那还好说，今年只要多补点线下就行了，如果是制作问题那就不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 7572#       发表于 2024-1-7 09:58
+
+切割原案的可能性还是非常非常低的
+
+*****
+
+####  笋干爆炸碱  
+##### 7573#       发表于 2024-1-7 09:59
+
+啥时候分楼
+
+*****
+
+####  11A511  
+##### 7574#       发表于 2024-1-7 09:59
+
+ 本帖最后由 11A511 于 2024-1-7 10:02 编辑 
+
+所以为什么母鸡卡的动画是被推迟的，而不是原计划25年1月播出的...
+
+大家都能理解动画播出时间长会掉热度，那母鸡卡播完之后怎么办
+
+*****
+
+####  kangkangsama  
+##### 7575#       发表于 2024-1-7 09:59
+
+<blockquote>-LYRE- 发表于 2024-1-7 09:47
+顶着米头像的那位这么理客中，希望你从来没有骂过挑染强推之耻、赔钱货吧
+
+染➗也有话 ...</blockquote>
+偷换概念有的一手
+
+同企划同作品的配角反客为主和平行企划混为一谈是吧
+
+还拿挑染说事
+
+<img src="https://img.saraba1st.com/forum/202401/07/095639d7dw7p5w54aztn9q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0967.jpeg</strong> (459.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-7 09:56 上传
+
+这样子为同作品里配角反客为主的行为做辩解的 
+
+你不会是个染厨吧？
+
+（y1s1 我是觉得这样做如果mujica衔接的好 热度接棒是没问题的操作不存在反客为主）
+
+*****
+
+####  江口夕  
+##### 7576#       发表于 2024-1-7 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不如先想一想mygo13話是個什麼收尾，正常都是什麼也別說說再多讓你等一年也是單純找炎上罷了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  御幸一也  
+##### 7577#       发表于 2024-1-7 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561366&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-7 09:58</a>
+
+🐶总集篇就是插进来的啊，🐔的问题就是到底是因为制作的问题导致推迟还是因为企划让步推迟 ...</blockquote>
+除非三次元這兩年製作體系大改特改，所有製作流程都變了，或者說他們的製作訪談全在騙人，
+
+不然就ave mujica 9月都在配音了，結合三次元的動畫製作流程，起碼ave mujica動畫已經有一版可以播的了。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+至於“綾奈切割=劇本要大改=動畫製作有問題”這種論調，我是還不會滑坡到這。
+
+*****
+
+####  Kasroz  
+##### 7578#       发表于 2024-1-7 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561367&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-1-7 09:58</a>
+切割原案的可能性还是非常非常低的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">水魔也没彻底切割掉大河内
+

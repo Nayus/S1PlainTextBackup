@@ -4085,3 +4085,14 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 210石15呼符出了二宝暗狐，但是没有藤乃<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，个人觉得武内在fgo里画的最好的俩女人就是215和藤乃了
 
+
+*****
+
+####  史艳文  
+##### 45905#       发表于 2024-1-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63551325&amp;ptid=1712412" target="_blank">清风朗月 发表于 2024-1-6 11:37</a>
+
+210石15呼符出了二宝暗狐，但是没有藤乃，个人觉得武内在fgo里画的最好的俩女人就是215和藤乃了，水 ...</blockquote>
+暗狐怎么用，要抽二宝以上吗
+

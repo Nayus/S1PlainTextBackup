@@ -847,3 +847,28 @@ ED
 
 永无止境的歌谣
 
+
+*****
+
+####  HazukiShion  
+##### 353#       发表于 2024-1-7 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561286&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-1-7 09:49</a>
+
+今年的期待是大福请务必是雌的，然后请务必快点快点变人。
+
+豚友也没必要跑那么快，即使是茶几前十集粉蓝的 ...</blockquote>
+那不是更得跑了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+刚开年就有这么多背刺，还不跑等年底成刺猬吗？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 354#       发表于 2024-1-7 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560840&amp;ptid=2162354" target="_blank">QuattroVageena 发表于 2024-1-7 08:34</a>
+
+答案是猫狗都不喜欢男人，主人喜欢，变身的q娃也喜欢，被按头喜欢，然后三角恋 ...</blockquote>
+万一兔子是雄的，作为今年的男 Q 役，然后搞人类大三角和宠物大三角呢？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

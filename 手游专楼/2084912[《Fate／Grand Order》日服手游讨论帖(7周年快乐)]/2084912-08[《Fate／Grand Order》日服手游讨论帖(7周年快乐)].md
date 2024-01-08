@@ -2545,3 +2545,14 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 艹</blockquote>
 还说你不是欧狗？<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 10745#       发表于 2024-1-8 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63572047&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-1-8 09:51</a>
+
+还说你不是欧狗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也配欧么 我宁可出提妈
+

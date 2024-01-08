@@ -8362,3 +8362,20 @@ sb泡伤害是够的不过手感太💩了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2343#       发表于 2024-1-8 10:34
+
+昨晚看nanato 9连败大破防，下播之后应该会疯狂辱骂研究所吧<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 2344#       发表于 2024-1-8 10:38
+
+说明52上限就这样了，该强化52了
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

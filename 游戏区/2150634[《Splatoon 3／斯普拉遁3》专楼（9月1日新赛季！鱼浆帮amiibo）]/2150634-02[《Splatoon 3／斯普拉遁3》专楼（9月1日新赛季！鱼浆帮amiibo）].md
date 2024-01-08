@@ -8430,3 +8430,25 @@ uu6.6折优惠秒没？
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 2350#       发表于 2024-1-8 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63573765&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-1-8 12:01</a>
+
+uu6.6折优惠秒没？
+
+论坛助手,iPhone</blockquote>
+这活动套路应该和去年中秋差不多，后期不需要拼手速就能领到6.6折券
+
+*****
+
+####  秋月孝三  
+##### 2351#       发表于 2024-1-8 12:12
+
+高压水枪射的准的玩家都不玩2了，体验当然不会太差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

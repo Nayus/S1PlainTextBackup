@@ -7474,3 +7474,97 @@ BanG Dream! 3rd Season：2020年1月23日 - 4月23日
 
 卧槽，对不起我这里卡了
 
+
+*****
+
+####  806923249  
+##### 8191#       发表于 2024-1-8 12:03
+
+我还以为是我没发出来，不好意思
+
+*****
+
+####  806923249  
+##### 8192#       发表于 2024-1-8 12:04
+
+我还以为没发出来，不好意思不好意思
+
+*****
+
+####  kojima34  
+##### 8193#       发表于 2024-1-8 12:07
+
+ 本帖最后由 kojima34 于 2024-1-8 12:08 编辑 
+
+.
+
+*****
+
+####  kojima34  
+##### 8194#       发表于 2024-1-8 12:07
+
+一季度最少也有12集，所以减去mujica 的戏份，应该够给猫猫跟立希各半集单人专场，如果有13集甚至可以每人单独一集，总之不同角色数创作思路也是会完全不一样的，不存在没mujica 就要10话完结这回事
+
+*****
+
+####  novalli  
+##### 8195#       发表于 2024-1-8 12:08
+
+<img src="https://img.saraba1st.com/forum/202401/08/120344aiq9oa4wz90i2d46.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 12:03 上传
+
+独角兽老师又接受了什么采访？话说采访也这么发癫啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/08/120725y6foibcbxbibxxki.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 12:07 上传
+
+搞不好是因为音乐（女女关系性）的理念不合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8196#       发表于 2024-1-8 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子不把家道中落摆出来动画就是负分怎么还有坛友想删戏份。13话之前祥黑群魔乱舞都忘了是吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  御幸一也  
+##### 8197#       发表于 2024-1-8 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63573783&amp;ptid=2159415" target="_blank">806923249 发表于 2024-1-8 12:02</a>
+
+我相信他也是气话，但是13集直接砍成10集了真的是正常的讨论么</blockquote>
+雖然但是，監督也是這樣覺得的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mygo的成團故事，所有問題到第10話就全解決了，剩下3話監督還煩惱不知道能幹嘛。
+
+この作品ではMyGO!!!!!のメンバーを描くことと、彼女たちが最終的にバンドを結成するまでの物語を思い描いていたのですが、第9話までの惨状から第10話の流れを思いついた時、想定していた以上に一気にMyGO!!!!!が抱えた問題が解消してしまったので、残り3話はなにをしようかと悩み抜きました（笑）。
+[https://www.anime-recorder.com/tvanime/283683/](https://www.anime-recorder.com/tvanime/283683/)
+
+*****
+
+####  HANDAIYV  
+##### 8198#       发表于 2024-1-8 12:14
+
+真10集结束到底是没东西写还是有东西不想写，剧场版里新加的猫猫的故事还立希的感受是现在硬编的吗，那非说wsd偏爱mygo我是不是也可以说监督编剧偏爱ave<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 8199#       发表于 2024-1-8 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么激进不是纯纯给自己找麻烦吗
+

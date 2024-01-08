@@ -1746,3 +1746,20 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 狗变人，思维还是狗的话会非常糟糕，习惯不穿衣服，野外排泄标记地盘，吃地上狗盘狗粮，闻屁股填py，主从意 ...</blockquote>
 没有哪个画猫变猫娘的敢还原抬脚以对折的姿势清理＊<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水至清则无豚  
+##### 442#       发表于 2024-1-8 16:59
+
+猫的人设确实不错<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最强惠酱  
+##### 443#       发表于 2024-1-8 17:01
+
+大姐姐的外表，实际上只有2,3岁
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

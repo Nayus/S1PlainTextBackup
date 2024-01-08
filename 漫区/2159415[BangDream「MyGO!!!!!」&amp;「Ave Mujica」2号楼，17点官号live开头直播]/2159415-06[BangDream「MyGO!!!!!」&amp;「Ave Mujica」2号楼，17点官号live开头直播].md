@@ -9953,3 +9953,68 @@ ave粉說幾句就會被掛切割，那麼讓我看看換ave icon時狗粉是怎
 
 真的要谈fll和无职吗🤔
 
+
+*****
+
+####  NODY  
+##### 8424#       发表于 2024-1-8 16:53
+
+合号本来就有问题，到时候第二季播了换不换鸡的头像就是大问题了
+
+就说近一点的，直接分两个号可以分别开航海赚两次直播钱，合了只能赚一次，要是干脆不直播mygo那更是要打得飞起，当初两个号分别运营互相转发情报就没这么多事情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 8425#       发表于 2024-1-8 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577719&amp;ptid=2159415" target="_blank">仟音一心 发表于 2024-1-8 16:36</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 8426#       发表于 2024-1-8 16:54
+
+百综入侵漏油表示，无职第一季演出好所以成绩好，第二季演出差所以成绩差，奖杯应该给演出（x）
+
+*****
+
+####  星空冻结  
+##### 8427#       发表于 2024-1-8 16:56
+
+wsd如果今年7月播🐔那合号还好说，明年1月我只能说你们可以下个注一个月要打几架了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 8428#       发表于 2024-1-8 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577769&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-8 16:38</a>
+
+不过要说合号分号，说到底还是你武士道又合号又端不平水的问题，连个联合Logo都懒得做（某已销号的粉头字幕 ...</blockquote>
+也不算装死吧，确实啥也端不出来那也活不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡团那时候真有东西发至于拿那几个小动画整活么……
+
+既然鸡团明年才播，那么9月以后到最近这段时间为止的3个月鸡团啥也没有确实太迷了
+
+*****
+
+####  贝恩德塔  
+##### 8429#       发表于 2024-1-8 16:57
+
+ 本帖最后由 贝恩德塔 于 2024-1-8 17:00 编辑 
+<blockquote>穗波殊 发表于 2024-1-8 16:54
+百综入侵漏油表示，无职第一季演出好所以成绩好，第二季演出差所以成绩差，奖杯应该给演出（x） ...</blockquote>
+更搞笑的还是成绩好的第一季和成绩差的第二季都没到刻画人物关系最好的那个篇章，第一季那么大争议就不提了，第二季不纯龙傲天关系性毫无存在感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0路人辛0  
+##### 8430#       发表于 2024-1-8 17:00
+
+<blockquote>-LYRE- 发表于 2024-1-8 15:43
+本来贴吧nga那边就一堆mujica动画烂了就切割和mygo无关的高赞言论
+
+还有更火上浇油的“烂了就光速切割，母 ...</blockquote>
+mygo怎么可能赢两次？😂从动画上一切的缘起C团都是祥子这个AM立德一手建的，那些名场面冲突，也在她们中间，两部还有13集这个巨明显的断章衔接在一起，出了剧情问题肯定是一损俱损，根本不能像马娘3那么切割，而官号合并加剧了出现这种状况的时的滑稽感
+

@@ -120,3 +120,13 @@ kmr：让他们骂去吧，节后不还是涨
 
 贤者还没做完呢，感觉还得继续换石英，换不了新材料
 
+
+*****
+
+####  Sylpheed  
+##### 17591#       发表于 2024-1-9 00:29
+
+套他猴子的，1w4肉3把，把肉还我，我不刷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

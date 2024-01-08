@@ -10416,3 +10416,66 @@ https://weibo.com/6470776556/4987841060538832<img src="https://p.sda1.dev/15/414
 
 绫奈是动画脚本不是黄油脚本，这不就说明绫奈的写作能利用上这些音画演出吗。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">难道动画脚本利用音画资源是一件丢人的事情吗。你就举一部音乐做的很差但还是大卖的乐队动画呗，我就相信脚本能和音画演出切割。
 
+
+*****
+
+####  江口夕  
+##### 8471#       发表于 2024-1-8 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578919&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-1-8 17:59</a>
+前面是直接把无职的小说和扣了音乐和演出的残缺的mygo动画比，现在又是把小说和游戏比，你能让绫奈把她作 ...</blockquote>
+动画都这样，虽然说是挺不公平的，但是拿动画和原作比是很平常的事
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  凡人  
+##### 8472#       发表于 2024-1-8 18:06
+
+其实娜娜的音乐我就觉得一般，但原作太神了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8473#       发表于 2024-1-8 18:07
+
+动物朋友我真的不想评论了，发布会听到底下喊生日没反应过来给青木庆个生，聊灯的时候摸鱼，聊我心危兴高采烈，甚至结束感言其他人在宣传mygo和邦邦，她在说我心危第二季要播了大家记得看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 8474#       发表于 2024-1-8 18:07
+
+无职前两期成绩更好吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">第一季小说填海手游光速关服，初动也就不过不失。第二季更是口碑下滑。这不就说明无职不是一个优秀的原作。因为 <blockquote>好的原作脚本比如说漫画，哥们你对着漫画抄都是80分，比如说灌篮高手，我都不要你什么演出，你对着描就行了</blockquote>
+现在我不是照着描还是加了这么多演出，不也是不过不失吗。而且无职演出一下滑评价也下滑了，不说明无职是一本依赖演出的作品吗
+
+（并非认同以上逻辑，只是按漏油的推理演绎）
+
+*****
+
+####  御幸一也  
+##### 8475#       发表于 2024-1-8 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579021&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 18:07</a>
+
+动物朋友我真的不想评论了，发布会听到底下喊生日没反应过来给青木庆个生，聊灯的时候摸鱼，聊我心危兴高采 ...</blockquote>
+這 真的假的 真的話確實有點難繃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  構本海  
+##### 8476#       发表于 2024-1-8 18:11
+
+动物朋友是什么黑话，指羊宫吗
+
+*****
+
+####  Aendst  
+##### 8477#       发表于 2024-1-8 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579021&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 18:07</a>
+
+动物朋友我真的不想评论了，发布会听到底下喊生日没反应过来给青木庆个生，聊灯的时候摸鱼，聊我心危兴高采 ...</blockquote>
+没看过我心危，是武士道的企划吗？怎么感觉不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

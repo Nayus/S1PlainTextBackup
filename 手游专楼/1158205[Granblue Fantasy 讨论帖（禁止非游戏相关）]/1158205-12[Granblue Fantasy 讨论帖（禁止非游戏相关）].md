@@ -112,3 +112,11 @@ kmr：让他们骂去吧，节后不还是涨
 
 大家都很老实，为了新武器好拼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 17590#       发表于 2024-1-8 18:04
+
+贤者还没做完呢，感觉还得继续换石英，换不了新材料
+

@@ -1833,3 +1833,26 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 有沒有可能，雖然設定了動物變人，但腳本還是按一般小女孩寫，於是變成一個無意義的設定。
 
+
+*****
+
+####  aquakane  
+##### 451#       发表于 2024-1-8 19:13
+
+写到一半就变成普通小女孩的可能性很大
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  凡人  
+##### 452#       发表于 2024-1-8 19:13
+
+<img src="https://img.saraba1st.com/forum/202401/08/191322n2g52yysvgg82128.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (243.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:13 上传
+

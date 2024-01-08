@@ -10881,3 +10881,64 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
  ...</blockquote>
 我又没说已经做完了啊，而且想延续在第一季就发挥的不错的staff阵容有什么问题吗
 
+
+*****
+
+####  安洁莉娜  
+##### 8521#       发表于 2024-1-8 19:12
+
+我还是太naive了，爬你们这些楼都已经体会到心理恐怖的感觉了
+
+*****
+
+####  无证madam  
+##### 8522#       发表于 2024-1-8 19:14
+
+真是啊啊又嗯嗯呀 你们有没有这样的烤全羊啊
+
+*****
+
+####  御幸一也  
+##### 8523#       发表于 2024-1-8 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579708&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 19:05</a>
+
+其实老实说，要是ave动画真如你们所说9月就完事压着的话，系构不应该还是独角兽么，有点奇怪。
+
+ ...</blockquote>
+這 現在樓裡有2派吧，一是覺得做好了壓著不放的（我現在站這個），二是覺得既然延期了肯定就是有改劇本的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8524#       发表于 2024-1-8 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579779&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 19:11</a>
+
+邦邦少歌拉拉dj几个跨企划声优也不是没干过提其他企划的事情，但好歹都是武士道自家，而且是在日常小生放上 ...</blockquote>
+只能說，拍拍你了，看著你從不烤羊到現在<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8525#       发表于 2024-1-8 19:17
+
+ 本帖最后由 江口夕 于 2024-1-8 19:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579785&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-1-8 19:11</a>
+我又没说已经做完了啊，而且想延续在第一季就发挥的不错的staff阵容有什么问题吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这不是谈人没了时候的滑坡程度吗，我结论就是滑了顶多10%，除非原案是诈骗。
+如果9.10月做完压着的情况，那看取关时间，系构就还是独角兽。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  nebulanoby  
+##### 8526#       发表于 2024-1-8 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579830&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 19:16</a>
+只能說，拍拍你了，看著你從不烤羊到現在</blockquote>
+每一个烤羊师傅曾经都是纯良，你看看我在灯生日那天天真的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -72,3 +72,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">感谢，那就留着吧。雅琪玛和000我都不太想换（没有jgj喂了）
 
+
+*****
+
+####  jxzeroga0  
+##### 17586#       发表于 2024-1-8 09:28
+
+kmr：让他们骂去吧，节后不还是涨
+
+2024年古战场猎金，大家还是喜欢坐牢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

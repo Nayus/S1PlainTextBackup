@@ -11340,3 +11340,14 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 
 然而箱子却完全没有隐藏的意思，毕竟“我们是假面乐队嘛”
 
+
+*****
+
+####  ddy2811  
+##### 8570#       发表于 2024-1-9 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582899&amp;ptid=2159415" target="_blank">非此即彼 发表于 2024-1-9 00:35</a>
+
+今天刚看完这个番，觉得意犹未尽，然后来动漫区翻了翻1号专楼，从后往前翻了几百楼，发现大家都是讨论立希 ...</blockquote>
+有矛盾冲突的角色话题度就高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

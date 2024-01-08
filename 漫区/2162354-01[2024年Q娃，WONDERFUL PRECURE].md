@@ -1638,3 +1638,31 @@ Q娃死过生物吗？不包括化成灰消散
 Q娃死过生物吗？不包括化成灰消散</blockquote>
 月影百合的妖精、父亲和妹妹。
 
+
+*****
+
+####  Sliurus  
+##### 431#       发表于 2024-1-8 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575143&amp;ptid=2162354" target="_blank">武男 发表于 2024-1-8 13:54</a>
+
+阿这。。</blockquote>
+我早就说人宠肯定会有些糟糕的同人<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脚底心，洗则白  
+##### 432#       发表于 2024-1-8 14:32
+
+寿命论Q娃。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">可以看了。
+
+*****
+
+####  pokemon最爱  
+##### 433#       发表于 2024-1-8 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575523&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-1-8 14:24</a>
+
+我早就说人宠肯定会有些糟糕的同人</blockquote>
+来点主人帮助进入发情期的宠物发泄的同人
+

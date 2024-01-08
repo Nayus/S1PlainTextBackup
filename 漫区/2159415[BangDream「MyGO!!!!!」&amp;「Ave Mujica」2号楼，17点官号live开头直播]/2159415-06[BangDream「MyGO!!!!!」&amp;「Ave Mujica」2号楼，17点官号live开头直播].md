@@ -8672,3 +8672,158 @@ B站官号合号这个，是真的下下策。顶着狗的头像，大部分发�
 
 那解释一下为什么动画发挥那么好的高尾，在几个关键场景语气都没表达到位呢。
 
+
+*****
+
+####  kangkangsama  
+##### 8303#       发表于 2024-1-8 14:23
+
+<blockquote>御幸一也 发表于 2024-1-8 14:15
+我一早就說了我想法，這不就是我長文最後一段嗎。
+
+根據屁股你可以覺得，ave mujica動畫出事所以劇場版是 ...</blockquote>
+所以我一直在表达的就是这个事情大家能不能抛开屁股理性的用大脑的讨论这个事情的前因后果吗
+
+用屁股讨论会影响到对于情况的判断，甚至有可能会出现先得出结论在去推断过程的情况，有选择性的去使用大脑。
+
+*****
+
+####  Tucsria  
+##### 8304#       发表于 2024-1-8 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575123&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-8 13:52</a>
+
+真要阴湿一点，以前访谈里柿本对立希是有所深挖有所关注的，反倒是独角兽是“反正立希只要有灯就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">绫奈负责走极端  柿本负责把角色圆回来
+
+不能少了刺激啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 8305#       发表于 2024-1-8 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575466&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-01-08 14:20:35</a>
+你可以选择不信，因为本质还是屁股大战，我不配去反驳你的加塞论，你也没法说服我的拖长战线论 ...</blockquote>请问一下舅舅具体怎么说的啊，我真不知道啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 8306#       发表于 2024-1-8 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575495&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-8 14:22</a>
+
+wsd可能觉得姐妹团这样整挺好的，没想到两边急着要切割呢。
+
+话说日本那边有像这边这样闹得这么对立吗？</blockquote>
+那边不说对立，但一开始就没姐妹团过
+
+动画前两边都是完全独立活动的，风格迥异，也就是说最早期的受众除了企划粉之外本来就是不同的人
+
+是到了mygo动画开播后才有人发现动画里的角色和还未公开的mujica角色外形相似，断断续续靠着动画的cast表确认了mujica的声优
+
+*****
+
+####  鲍里斯  
+##### 8307#       发表于 2024-1-8 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575554&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-01-08 14:26:47</a>
+那边不说对立，但一开始就没姐妹团过
+
+动画前两边都是完全独立活动的，风格迥异，也就是说最早期的受众除 ...</blockquote>那两边会吵架吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 8308#       发表于 2024-1-8 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575516&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 14:23</a>
+
+所以我一直在表达的就是这个事情大家能不能抛开屁股理性的用大脑的讨论这个事情的前因后果吗
+
+用屁股讨论 ...</blockquote>
+好話都給你說了，酷
+
+用你說過的話說就是，有時間來引戰不如產糧捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tucsria  
+##### 8309#       发表于 2024-1-8 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不要切割啊  我嗑跨团cp还等着奇迹发生呢
+
+*****
+
+####  Aendst  
+##### 8310#       发表于 2024-1-8 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575565&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-8 14:27</a>
+
+那两边会吵架吗
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我确实见过有不满的，但具体的不好说，没有做大范围统计
+
+
+*****
+
+####  御幸一也  
+##### 8311#       发表于 2024-1-8 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575466&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-8 14:20</a>
+
+你可以选择不信，因为本质还是屁股大战，我不配去反驳你的加塞论，你也没法说服我的拖长战线论 ...</blockquote>
+有一說一，我好像沒反駁你的拉長戰線論，你也說了當武士道孝子一切迎刃而解，我其實也同意，但我當不了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8312#       发表于 2024-1-8 14:29
+
+ 本帖最后由 江口夕 于 2024-1-8 14:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575495&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-8 14:22</a>
+wsd可能觉得姐妹团这样整挺好的，没想到两边急着要切割呢。
+话说日本那边有像这边这样闹得这么对立吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">日本？不存在的，一个2000人场小团一个还没开什么live，毫无可比性。
+5ch还在复读棒读棒读还是棒读。
+至少新团要呈现上升趋势，如果就顶天5000人场，那
+
+那还是把资源扔给roselia吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  rslika  
+##### 8313#       发表于 2024-1-8 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主创团队对个别角色的内部爱？ 这是要进入猛干阶段了？
+
+*****
+
+####  ytttsuuuba  
+##### 8314#       发表于 2024-1-8 14:31
+
+就算是制作上的问题1月4月完不成，那7月档也是最合适的，肯定能完成吧，如果是要修改啊制作中断啊导致7月也完不成必须延期到1月，那么问题来了这么紧急的情况下，动画那一班人马7月跑去菜花了，以及甚至还有闲心搞个塞了新内容的剧场版，这不是前后矛盾。我还是倾向于7月之前肯定做完，不播的原因就看个人立场了。
+
+*****
+
+####  PDQ4  
+##### 8315#       发表于 2024-1-8 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575495&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-8 14:22</a>
+
+wsd可能觉得姐妹团这样整挺好的，没想到两边急着要切割呢。
+
+话说日本那边有像这边这样闹得这么对立吗？</blockquote>
+闹成这样还是因为wsd不端水，姐妹只有一个框框有资源还叫啥姐妹。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+b号mujicapv下面还有说不想看鸡想看一辈子狗的，中国运营迫真大聪明。
+
+日本那边官号又没合，没啥明显对立，推上就的话有看见抱怨太慢时间太久的
+

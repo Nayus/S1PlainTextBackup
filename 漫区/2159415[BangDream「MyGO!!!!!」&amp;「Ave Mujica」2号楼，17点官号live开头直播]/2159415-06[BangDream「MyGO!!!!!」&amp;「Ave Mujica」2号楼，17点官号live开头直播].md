@@ -11076,3 +11076,11 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 指望这个我不如去指望同人太太的生贺和结月发点小作文
 
+
+*****
+
+####  NODY  
+##### 8541#       发表于 2024-1-8 21:12
+
+你邦好像本来就没什么专属的生日物料，就算是已经进了手游的角色，也只能喜提信泽的鬼图而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2602,3 +2602,11 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 
 不知道兽尼什么时候能复刻<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">高贵的真限定
 
+
+*****
+
+####  保罗赫伯特  
+##### 10751#       发表于 2024-1-8 21:08
+
+可能制作组真觉得兽尼有超格的地方吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7012,3 +7012,14 @@ Screenshot_20240108_084120_Chrome.jpg
 
 竟然要等一年，还以为最迟7月能开播，制作者不晓得趁热打铁嘛
 
+
+*****
+
+####  ddy2811  
+##### 8158#       发表于 2024-1-8 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63571632&amp;ptid=2159415" target="_blank">罗克萨斯 发表于 2024-1-8 09:12</a>
+
+竟然要等一年，还以为最迟7月能开播，制作者不晓得趁热打铁嘛</blockquote>
+可能是想趁热打铁引流MyGO和Mujica的线下，动画就等后面再引一波吧
+

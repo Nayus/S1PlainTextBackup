@@ -2667,3 +2667,24 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 狗萌新昨天不是出了卑弥呼了么 装什么非</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉 你出的才是真实（
 
+
+*****
+
+####  qixinno2  
+##### 10758#       发表于 2024-1-8 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581297&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2024-1-8 21:37</a>
+
+一定要说的话打6骑有些特别难特攻的可以上兽尼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉唯一高光就是打上次的战线了 对面全是上七 兽尼无双
+
+*****
+
+####  qixinno2  
+##### 10759#       发表于 2024-1-8 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581373&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-8 21:45</a>
+
+都是幻觉 你出的才是真实（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我这还不如幻觉
+

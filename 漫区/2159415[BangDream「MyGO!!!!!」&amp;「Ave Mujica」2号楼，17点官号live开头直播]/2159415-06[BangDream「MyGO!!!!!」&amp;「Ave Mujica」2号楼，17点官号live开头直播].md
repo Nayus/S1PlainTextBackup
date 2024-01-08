@@ -11179,3 +11179,53 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 可能在谁和谁女同的方向性上出了分歧，监督推初祥，独角兽推睦祥，对家当然要取关了（
 
+
+*****
+
+####  安洁莉娜  
+##### 8553#       发表于 2024-1-8 21:53
+
+虽然总有人用“友情”来调侃女同，但我真的是来看友情的，没觉得这片有多女同（认真
+
+*****
+
+####  skives  
+##### 8554#       发表于 2024-1-8 21:55
+
+还真别说 说不定制作内部已经因为cp打成一团了 灯祥be派 灯祥复合派 初祥 睦祥 喵祥派吵得不可开交<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">最终导演无奈作出指示 别伤了和气 先做剧场版吧
+
+*****
+
+####  yaneis  
+##### 8555#       发表于 2024-1-8 21:56
+
+那么他们能否在菜花中找到新的可能性……！？
+
+*****
+
+####  NODY  
+##### 8556#       发表于 2024-1-8 21:58
+
+拖到1月是为了做多结局dlc，想要哪对cp就看哪对的结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 8557#       发表于 2024-1-8 22:00
+
+bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8558#       发表于 2024-1-8 22:00
+
+搞不好还有海祥派呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8559#       发表于 2024-1-8 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拖这么久是为了给mujica推学画画的时间，等到信泽给你推画鬼图的时候已经可以自己画点正常的洗眼了
+

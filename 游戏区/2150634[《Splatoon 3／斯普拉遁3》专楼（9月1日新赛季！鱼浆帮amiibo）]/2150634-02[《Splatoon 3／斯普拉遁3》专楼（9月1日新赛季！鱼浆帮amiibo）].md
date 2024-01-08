@@ -8352,3 +8352,13 @@ sb泡伤害是够的不过手感太💩了
 
 成功野康，晚上路人质量怎么好了很多，按理说不是尾工了么
 
+
+*****
+
+####  罗克萨斯  
+##### 2342#       发表于 2024-1-8 10:27
+
+灭龙哥什么情况，从4300暴跌到3600，然后光速打回4200，现在又暴跌到3600<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1487,3 +1487,14 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 说点难听的话 这几年q娃女主p 没有几个是靠谱的 水平不行 私货一大堆 这帮年轻樱花 ...</blockquote>
 这个会影响法 Q2 吗？<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 416#       发表于 2024-1-8 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63572120&amp;ptid=2162354" target="_blank">HazukiShion 发表于 2024-1-8 10:00</a>
+
+这个会影响法 Q2 吗？</blockquote>
+两边是独立的企划应该不太会影响吧，而且应该也没那个时间？
+

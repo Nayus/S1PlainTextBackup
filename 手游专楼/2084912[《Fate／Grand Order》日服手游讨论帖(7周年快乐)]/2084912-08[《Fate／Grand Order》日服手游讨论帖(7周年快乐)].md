@@ -2568,3 +2568,21 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 没区别，上场率卧龙凤雏
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 10747#       发表于 2024-1-8 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63572180&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-8 10:06</a>
+
+没区别，上场率卧龙凤雏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得提妈比神祖强点 首先是女角色
+
+*****
+
+####  UNISONIA  
+##### 10748#       发表于 2024-1-8 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神祖一宝能用（毕竟有暴击打法），提妈一宝就是鱼
+

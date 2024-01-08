@@ -9024,3 +9024,115 @@ B站官号合号这个，是真的下下策。顶着狗的头像，大部分发�
 
 这个加戏写成灯在努力诗朗诵立希败犬独白的可能性好像不是没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 8334#       发表于 2024-1-8 15:03
+
+虽然独角兽好像很喜欢自己十月这部圣魔大战，但却是也挺答辩的，定位就在那儿了，被骂也正常
+
+*****
+
+####  NODY  
+##### 8335#       发表于 2024-1-8 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575965&amp;ptid=2159415" target="_blank">ninokagami 发表于 2024-1-8 14:54</a>
+
+说到5厕，这两天顺便看了一下关于独角兽的风评还有日本人的态度
+
+邦这边总体讨论不算多，担心的也有不过比例 ...</blockquote>
+5厕那边还有因为萝剧场版和ppp剧场版不满独角兽的，只能说那边对独角兽好像没有国内这边这么看重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  近月  
+##### 8336#       发表于 2024-1-8 15:05
+
+昨天才在z8看到有人搬推上部分日本人的看法，但主要是老团粉表达不满：新春发表会邦邦部分变mygo发表会、单独油/管推特账号、小人手办，etc.
+至于你鸡确实没人在乎<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  御幸一也  
+##### 8337#       发表于 2024-1-8 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576098&amp;ptid=2159415" target="_blank">近月 发表于 2024-1-8 15:05</a>
+
+昨天才在z8看到有人搬推上部分日本人的看法，但主要是老团粉表达不满：新春发表会邦邦部分变mygo发表会、单 ...</blockquote>
+這不就是動畫都沒播，角色都沒塑造完全，能有多少ave粉呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 8338#       发表于 2024-1-8 15:07
+
+ 本帖最后由 -LYRE- 于 2024-1-8 15:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575919&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-8 14:50</a>
+
+想起之前看见的笑话，有双胞胎的家庭狗拉屎都不敢只拉一条，鸡狗现在的待遇差别，你说双子？火上浇油 ...</blockquote>
+太巧了，前几个月我就有关注知乎的一个话题，下面很多回答成了我快乐源泉，没想到还能在邦里这么联系起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+推荐一下，挺有趣的[双胞胎为什么要穿得一模一样，目的何在？](https://www.zhihu.com/question/622527987)
+
+<img src="https://img.saraba1st.com/forum/202401/08/151110xtr6b4qv3qz32033.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-08-15-00-39-676_com.zhihu.android-edit.jpg</strong> (198.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 15:11 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/151110ndo1qtq251oqos51.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-08-15-03-39-261_com.zhihu.android-edit.jpg</strong> (211.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 15:11 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/151110l7f2go7zi89flwfz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240108_150549.jpg</strong> (401.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 15:11 上传
+
+*****
+
+####  rslika  
+##### 8339#       发表于 2024-1-8 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新粉丝了解一下这些历史和事情全貌应该会好很多
+
+*****
+
+####  -LYRE-  
+##### 8340#       发表于 2024-1-8 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576098&amp;ptid=2159415" target="_blank">近月 发表于 2024-1-8 15:05</a>
+昨天才在z8看到有人搬推上部分日本人的看法，但主要是老团粉表达不满：新春发表会邦邦部分变mygo发表会、单 ...</blockquote>
+毕竟动画也没出，手游也没进，粉丝要是能比有动画有游戏的团更多才是奇了怪了
+
+
+*****
+
+####  0路人辛0  
+##### 8341#       发表于 2024-1-8 15:10
+
+<blockquote>-LYRE- 发表于 2024-1-8 14:44
+说到合号我就想起前几天官号宣布大航海限定直播，评论区当时就开始截图记录现有大航海，准备统计最终上舰 ...</blockquote>
+我想到了一个更地狱的场景。万一啊，万一mujica动画没播完，但是剧情崩了，mygo独粉那种相切但又没法全切的感觉
+
+*****
+
+####  近月  
+##### 8342#       发表于 2024-1-8 15:12
+
+所以武士道就是觉得真没有活的鸡粉才能随意推迟鸡的动画啊，这不是正好符合漏油们的部分猜想吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

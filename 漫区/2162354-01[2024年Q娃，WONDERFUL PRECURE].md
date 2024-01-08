@@ -1701,3 +1701,13 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 项圈散步，扑上去舔脸啥的，感觉至少都会出现一次
 
+
+*****
+
+####  暗黑能乐  
+##### 438#       发表于 2024-1-8 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是到时候发现主笔的人一点也不了解宠物我就笑了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

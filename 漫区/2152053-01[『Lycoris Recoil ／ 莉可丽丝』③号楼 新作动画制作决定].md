@@ -18650,3 +18650,25 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 著／アサウラ　原案・監修／Spider Lily　イラスト／いみぎむる
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1445#       发表于 2024-1-8 23:53
+
+<img src="https://img.saraba1st.com/forum/202401/08/235309ao86pw20k2dvw28t.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-01-07 233050 (2).JPG</strong> (132.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 23:53 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/235309wbpytr3oyrxf4iyv.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-01-07 215347.jpg</strong> (82.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 23:53 上传
+

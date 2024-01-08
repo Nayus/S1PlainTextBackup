@@ -627,3 +627,40 @@ SF考証でも知られる高島雄哉さん。
 #necoさん ！お楽しみに✨
 <img src="https://p.sda1.dev/15/d8f666c682316865252f662391a0a7f0/20240108_233624.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 3378#       发表于 2024-1-8 23:55
+
+god knows ?
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  亚瑟邓特  
+##### 3379#       发表于 2024-1-9 00:00
+
+？？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novyDC  
+##### 3380#       发表于 2024-1-9 00:01
+
+原主人是个妹子？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RhmBWT_Wu  
+##### 3381#       发表于 2024-1-9 00:01
+
+捏妈妈的现在还在加班，有没有楼友说说这集讲了啥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

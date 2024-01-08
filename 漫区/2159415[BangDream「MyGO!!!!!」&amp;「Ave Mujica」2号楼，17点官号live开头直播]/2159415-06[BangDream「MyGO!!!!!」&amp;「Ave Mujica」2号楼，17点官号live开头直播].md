@@ -7161,3 +7161,128 @@ mygo剧场版总集篇的确挺差的，除了加了猫视角(立希未知）外
 虽然13集断章让人尖叫抓挠还占了mygo戏份，确实是屎一样的操作，但是从商业角度如果13集鸡没那些戏份，靠12 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">所以为什么现在睦的谷价这么贵，就因为长的好看吗
 
+
+*****
+
+####  NODY  
+##### 8165#       发表于 2024-1-8 11:05
+
+日本那边好像是姨姥在车官方强推mygo，进度落后国内三个月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 8166#       发表于 2024-1-8 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63572915&amp;ptid=2159415" target="_blank">swessia 发表于 2024-01-08 11:01:45</a>
+所以为什么现在睦的谷价这么贵，就因为长的好看吗</blockquote>我的意思是如果没有13集，鸡团谷子肯定没这么火啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 8167#       发表于 2024-1-8 11:07
+
+調理得差不多了，重新梳理下我的觀點。
+
+先說我想說的：
+我覺得Ave Mujica動畫現在已經有一個可以在2024年1月播放的版本。並且mygo劇場版是加塞的。
+
+以下是我理由。
+
+<strong>第一點。</strong>
+
+2023年9月Ave Mujica的動畫就在配音了。
+
+參考訪談：
+[https://www.lisani.jp/0000239390/2/?show_more=1](https://www.lisani.jp/0000239390/2/?show_more=1)
+
+「岡田　まだ収録が途中なので、」
+
+參考同樣是三次元製作，同樣是1月番的D4DJ All Mix，是在11月配音的。
+
+參考D4DJ聲優推特：
+
+<img src="https://img.saraba1st.com/forum/202401/08/110010ipkptwlknc6c6uuf.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (23.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 11:00 上传
+
+[https://twitter.com/nacchan_h0528/status/1589597202175123456](https://twitter.com/nacchan_h0528/status/1589597202175123456)
+
+配音是個連續的過程，不是說一天就能配完，會持續兩三個月，Ave Mujica和D4DJ All Mix在配音時期上是差不多的（甚至Ave Mujica好像還要早一點……），我也基本上是從這個事實覺得，Ave Mujica的製作進度是2024年1月就能播放。
+
+<strong>第二點。</strong>
+
+三次元的製作流程，配音是非常後期的，到配音這一步，之後只剩下CT2、ダビング、V編。
+
+參考2022年三次元自己的製作體系介紹文：
+
+<img src="https://img.saraba1st.com/forum/202401/08/110012xq7danzng3figtsn.jpg" referrerpolicy="no-referrer">
+
+<strong>B01.jpg</strong> (30.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 11:00 上传
+
+[https://cgworld.jp/article/202202-bangdream.html](https://cgworld.jp/article/202202-bangdream.html)
+
+第一次剪輯，就會有一個流暢的版本，這個版本會用於配音。
+
+然後第二次剪輯，這一步會加上監督的一些細微表情的調整。
+
+ダビング，就是音畫合成，把聲音和畫面合一起。
+
+V編，就是影片剪輯，這一步要把動畫剪到電視播放的時間內，也要最終check。
+
+三次元的動畫製作，到配音這一步，剩下要做的事是這些。
+
+結合起來就是，2023年9月已經在配音的Ave Mujica，動畫已經做得差不多了。
+
+<strong>第三點。</strong>
+
+如果總集篇真的是一早就有計劃，參考邦多利第二季/第三季/劇場版的安排，因為第三季檔期定死了在2020年1月播，所以中間空了一年，是三次元提議的做劇場版。
+
+（[https://www.anime-recorder.com/tvanime/181484/](https://www.anime-recorder.com/tvanime/181484/) ）
+
+按照我最開始的理解，是第二季第三季連續做完然後三次元沒事做，所以搓了個劇場版出來。
+
+昨天樓友有不一樣的理解，是一早就安排了第三季在第二年才播放，所以中間安排做一個劇場版拉長動畫的製作線。
+
+（因為做一個動畫，是要束縛很多staff專心做你這個作品的，肯定是召集好一批人後把安排的東西一次做完，不太會是做好一點，大家解散一段時間，再召集起來繼續做）
+
+參考播放時間：
+
+BanG Dream! 2nd Season：2019年1月3日 - 3月28日
+
+映画：劇場版「BanG Dream! FILM LIVE」（第1作） 第1作：2019年9月13日
+
+BanG Dream! 3rd Season：2020年1月23日 - 4月23日
+
+如果是我的第一個理解，說明武士道早就有做好動畫然後壓著一年不放的前科。
+
+如果是樓友的第二個理解，那就有新的疑問，為什麼只是總集篇。因為壓了ave mujica一年半，這時間能做的新東西不要太多。
+
+在這個前提上，你得出什麼結論是基於你的屁股，你依然可以覺得ave mujica動畫一早就定檔，總集篇是塞進來“幫”續熱度。
+
+但我ave粉，我屁股就是會讓我覺得ave mujica動畫在給劇場版“讓路”。
+
+最簡單的，就問一句，壓著ave mujica動畫那麼久不播，對ave mujica有什麼好處。
+
+如果你一個好處都編不出來，只能說出一句：武士道就是傻逼沒辦法，那其實你心裡面也有答案了。
+
+*****
+
+####  鲍里斯  
+##### 8168#       发表于 2024-1-8 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63572915&amp;ptid=2159415" target="_blank">swessia 发表于 2024-01-08 11:01:45</a>
+所以为什么现在睦的谷价这么贵，就因为长的好看吗</blockquote>不过睦宝谷价可能还是会高，其他人就不一定了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

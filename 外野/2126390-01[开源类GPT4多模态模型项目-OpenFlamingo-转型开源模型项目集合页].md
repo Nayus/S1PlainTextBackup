@@ -23444,3 +23444,75 @@ MT-Bench评估结果
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1162#       发表于 2024-1-8 19:25
+
+Segmind Stable Diffusion/Segmind-Vega
+
+使用层级损失(Layer Level Loss)对Stable Diffusion XL进行渐进式蒸馏
+
+hugface SSD-1B模型权重:https://huggingface.co/segmind/SSD-1B
+
+hugface Segmind-Vega模型权重:https://huggingface.co/segmind/Segmind-Vega
+
+SDXL因其多功能性和顶尖的图像质量已成为最好的开源文本到图像模型之一，高效地解决SDXL模型的计算需求对于扩大其覆盖范围和适用性至关重要
+
+在这项工作中，引入了两个缩小版本，Segmind Stable Diffusion(SSD-1B)和Segmind-Vega，分别应用了1.3B和0.74B参数的UNet，通过使用层级损失进行渐进性剪枝，重点在于减小模型的大小同时保持生成质量
+
+本文方法包括从SDXL的U-Net结构中消除残差网络(residual networks)和Transformer块(transformer blocks)，从而显著减少参数和延迟
+
+紧凑的模型通过利用转移的知识有效地模仿了原始的SDXL，与更大的数十亿参数的SDXL相比取得了竞争性的结果，本文工作强调了知识蒸馏和层级损失在减小模型大小同时保持SDXL高质量生成能力方面的有效性，从而使之在资源受限环境中更容易部署
+
+<img src="https://img.saraba1st.com/forum/202401/08/192451cgmdnmgtlf8d3cng.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-192206__01.jpg</strong> (227.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:24 上传
+
+上图分别为SDXL U-Net、 SSD-1B U-Net、Vega U-Net的结构
+
+<img src="https://img.saraba1st.com/forum/202401/08/192457u9c6z959bm0e9rtb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-192214__01.jpg</strong> (47.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:24 上传
+
+推理延迟测试
+
+<img src="https://img.saraba1st.com/forum/202401/08/192502dwovnw3npvn3dvuq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-192230__01.jpg</strong> (445.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:25 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/192502db2cfaa7012z2wfo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-192248__01.jpg</strong> (417.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:25 上传
+
+生成结果对比
+
+<img src="https://img.saraba1st.com/forum/202401/08/192507m8p775317gy5z128.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-192254__01.jpg</strong> (19.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:25 上传
+
+用户偏好研究
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

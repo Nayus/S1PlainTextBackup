@@ -10942,3 +10942,32 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  66367749  
+##### 8527#       发表于 2024-1-8 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579892&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-8 19:21</a>
+每一个烤羊师傅曾经都是纯良，你看看我在灯生日那天天真的样子
+
+—— 来自 HUAWEI YAL-AL10, Andr ...</blockquote>
+没有期待，就没有伤害<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 8528#       发表于 2024-1-8 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果剧本没改只是压着不放的话，绫奈为什么会有现在的反应
+
+*****
+
+####  贝恩德塔  
+##### 8529#       发表于 2024-1-8 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579988&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-8 19:29</a>
+
+如果剧本没改只是压着不放的话，绫奈为什么会有现在的反应</blockquote>
+焦虑弟你就别添油了
+

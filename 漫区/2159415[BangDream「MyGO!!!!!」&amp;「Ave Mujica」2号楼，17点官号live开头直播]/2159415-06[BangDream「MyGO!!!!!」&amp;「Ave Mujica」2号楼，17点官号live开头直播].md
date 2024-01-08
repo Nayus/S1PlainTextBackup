@@ -9618,3 +9618,78 @@ Screenshot_2024-01-08-15-53-24-800_tv.danmaku.bili-edit.jpg
 
 二三季风评也没那么差吧，甚至那段时间cd销量还是不错的，争议大的还是两个剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 8390#       发表于 2024-1-8 16:16
+
+不是 就算以前独角兽没有这次发挥好
+那也不能不让人家进化啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 8391#       发表于 2024-1-8 16:16
+
+邦邦第二季和第三季在bangumi都是7.3还算差吗，甚至几部pico都被第二季第三季低
+
+*****
+
+####  ffz  
+##### 8392#       发表于 2024-1-8 16:17
+
+二三季主要是ras剧情让人诟病吧
+
+*****
+
+####  江口夕  
+##### 8393#       发表于 2024-1-8 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577226&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 16:11</a>
+我都看漏了一点，他居然说第10话是绫奈的脚本单话脚本都搞错人了我居然没注意还搭理他确实是我的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那咱不说脚本说系构行了吧，mygo动画系构是独角兽没问题吧，第10话和独角兽没关系？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ytttsuuuba  
+##### 8394#       发表于 2024-1-8 16:18
+
+第三季RAS那部分内容我看了觉得真是雷点踩了个遍。而角色塑造上，花了最大笔墨的争议角色chuchu，直到最后也没给她足够的高光和塑造去抚平争议，直到现在提到这个角色都说是动画里真的不讨喜，更多是因为手游后续剧情和线下LIVE喜欢上的。
+
+*****
+
+####  贝恩德塔  
+##### 8395#       发表于 2024-1-8 16:19
+
+横向对比lovelive，只有虹团评分比邦二邦三高
+
+*****
+
+####  江口夕  
+##### 8396#       发表于 2024-1-8 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577238&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 16:11</a>
+二三季风评也没那么差吧，甚至那段时间cd销量还是不错的，争议大的还是两个剧场版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不差你要看哪个部分，我肯定说的ras部分
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  kivz  
+##### 8397#       发表于 2024-1-8 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576673&amp;ptid=2159415" target="_blank">harukage 发表于 2024-1-8 15:39</a>
+这楼mujica的浓度为什么会这么高？这两天话题还频频往两团对立上引导。按理来说这边的人先是因为mygo动画爆 ...</blockquote>
+这里mujica浓度高只是因为大伙没走，但你看看外面不到处是mygo吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 8398#       发表于 2024-1-8 16:22
+
+不管评分如何，RAS的部分就是写的不好，剧情没什么新意还各种踩雷，人物塑造也不好，这一点还是能得到很多人的赞同的。身边的喜欢RAS的也都是看了live入坑的而不是因为动画。
+

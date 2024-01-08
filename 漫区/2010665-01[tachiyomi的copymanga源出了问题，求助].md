@@ -2972,3 +2972,11 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 肯定开了啊<img src="https://p.sda1.dev/15/537d4f08b2e34d23fa72857f5aee88e5/CMP_20240108001323420.jpg" referrerpolicy="no-referrer">
 唉备份配置回滚版本算了
 
+
+*****
+
+####  gaosf  
+##### 297#       发表于 2024-1-8 08:30
+
+遇到同样的情况。更新之后，坛友的插件即使安装了在tachiyomi里也不显示；github的版本每次重新打开app就显示不信任，每次都要手动设置信任一次。好麻烦，后悔更新了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

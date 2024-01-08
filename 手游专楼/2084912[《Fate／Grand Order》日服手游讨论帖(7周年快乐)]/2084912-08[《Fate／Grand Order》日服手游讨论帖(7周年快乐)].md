@@ -2500,3 +2500,22 @@ ORT和百層塔打法都是一樣，一張突滿寶石翁，開局先來一發�
 
 ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，我甚至没上5星就搞掂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 10742#       发表于 2024-1-8 08:29
+
+10连
+
+没啥问题，等FSR了
+
+191BE592-4A09-4DF8-9F73-C30B24E58C29.jpeg
+(908.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 08:28 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/082854xrvvv2fhvv2h1hvy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

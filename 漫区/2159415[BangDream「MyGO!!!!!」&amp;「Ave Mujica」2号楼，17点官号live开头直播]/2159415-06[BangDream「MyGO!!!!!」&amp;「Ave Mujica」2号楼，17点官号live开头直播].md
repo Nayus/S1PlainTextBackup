@@ -10479,3 +10479,135 @@ https://weibo.com/6470776556/4987841060538832<img src="https://p.sda1.dev/15/414
 动物朋友我真的不想评论了，发布会听到底下喊生日没反应过来给青木庆个生，聊灯的时候摸鱼，聊我心危兴高采 ...</blockquote>
 没看过我心危，是武士道的企划吗？怎么感觉不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 8478#       发表于 2024-1-8 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579081&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-8 18:12</a>
+没看过我心危，是武士道的企划吗？怎么感觉不是</blockquote>
+我心危就是一个漫改动画啊。女主是羊，就酱。
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8479#       发表于 2024-1-8 18:14
+
+https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9ef1c3db9158728ee93d5deeed/Image_1704708844604.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8480#       发表于 2024-1-8 18:15
+
+我心危是热门还是主役，这个无可厚非吧。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8481#       发表于 2024-1-8 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579097&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-1-8 18:14</a>
+
+我心危就是一个漫改动画啊。女主是羊，就酱。</blockquote>
+……那确实有点……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8482#       发表于 2024-1-8 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579081&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-8 18:12</a>
+
+没看过我心危，是武士道的企划吗？怎么感觉不是</blockquote>
+羊宫主役的一部动画，之前一直车她不给灯庆祝生日发mygo推特，作为对比就是她发这个番的情报非常积极，包括女主生日都专门庆生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑猫桑  
+##### 8483#       发表于 2024-1-8 18:16
+
+这就是我们动物朋友啊，你们有没有这样的动物朋友（所以说动物朋友是谁
+
+*****
+
+####  PDQ4  
+##### 8484#       发表于 2024-1-8 18:17
+
+还有这出，这是wsd大发表会，羊宫是作为mygo成员出场的，宣传非wsd企划确实有点难蚌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪不得z8一直烤
+
+*****
+
+####  ylssb10438  
+##### 8485#       发表于 2024-1-8 18:17
+
+无职原作?我觉得比fll好看的多的多，虽然不是一个路子。而且第二季口碑在欧美是上涨的，角色风评也是<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8486#       发表于 2024-1-8 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579058&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 18:10</a>
+
+這 真的假的 真的話確實有點難繃</blockquote>
+你以为为什么mygo纸片人的厨更希望先出第二季来续命，一年没新动画就给动物朋友这么作我都不知道mygo三次元怎么玩，另外四个努力工商都带不动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 8487#       发表于 2024-1-8 18:18
+
+全都是羊的问题 老登为了稳住羊 和我心危联动 给羊主场作战家一样的感觉 然后延期mujica 不让羊的流量受影响
+
+*****
+
+####  Aendst  
+##### 8488#       发表于 2024-1-8 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579112&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 18:15</a>
+
+羊宫主役的一部动画，之前一直车她不给灯庆祝生日发mygo推特，作为对比就是她发这个番的情报非常积极，包 ...</blockquote>
+虽说有联动，但是武士道的场子，结束感言宣其他作品还是不太妥吧……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑猫桑  
+##### 8489#       发表于 2024-1-8 18:19
+
+奥，搞联动原来有这回事
+
+*****
+
+####  穗波殊  
+##### 8490#       发表于 2024-1-8 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579136&amp;ptid=2159415" target="_blank">ylssb10438 发表于 2024-1-8 18:17</a>
+
+无职原作?我觉得比fll好看的多的多，虽然不是一个路子。而且第二季口碑在欧美是上涨的，角色风评也是[f:009 ...</blockquote><blockquote>mal评分可以参考，别拿来当论据。更何况你打多少分都影响不了本子</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8491#       发表于 2024-1-8 18:20
+
+ 本帖最后由 赫尔墨斯的权杖 于 2024-1-8 18:22 编辑 
+
+感觉这个没必要上孜然，热门女主役确实难得，时间点恰好在wsd年终大会前夕，赶趟也就那么一次，再加上自己配的两个主役角色联动，开心多说几句真没什么
+
+*****
+
+####  Kasroz  
+##### 8492#       发表于 2024-1-8 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不是区别对待吗
+
+*****
+
+####  灵椿  
+##### 8493#       发表于 2024-1-8 18:22
+
+看到我心危联动的时候，我第一反应是羊宫阴暗地偷笑“哼~哼，wsd，被我拿下了吧<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

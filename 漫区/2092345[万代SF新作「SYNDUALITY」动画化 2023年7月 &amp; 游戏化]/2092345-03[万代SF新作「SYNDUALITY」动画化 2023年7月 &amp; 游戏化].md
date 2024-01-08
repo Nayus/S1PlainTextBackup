@@ -430,3 +430,99 @@ woc
 
 可真会挡
 
+
+*****
+
+####  RE㐅ia  
+##### 3363#       发表于 2024-1-8 23:24
+
+这原先的主人看着就像是个老太婆了，20年后寿终正寝了？
+
+*****
+
+####  secretgarnet  
+##### 3364#       发表于 2024-1-8 23:25
+
+啊这么简单就能切回来
+
+*****
+
+####  HGCG3  
+##### 3365#       发表于 2024-1-8 23:25
+
+所以第二季要变公路片？
+
+*****
+
+####  星降る森  
+##### 3366#       发表于 2024-1-8 23:26
+
+已经可以想切就切了
+
+*****
+
+####  Freakyyu  
+##### 3367#       发表于 2024-1-8 23:26
+
+这变来变去的是为啥<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  charlespfan  
+##### 3368#       发表于 2024-1-8 23:26
+
+大概是上天（）
+
+*****
+
+####  novyDC  
+##### 3369#       发表于 2024-1-8 23:28
+
+这是要去找天空之城呢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RE㐅ia  
+##### 3370#       发表于 2024-1-8 23:29
+
+说起来男主和黑假面也是在火箭发射场打的，真就是要上天的节奏
+
+*****
+
+####  wzm96816  
+##### 3371#       发表于 2024-1-8 23:29
+
+第一季第一集其实就有上天的线索了，只是第一季铺垫或者说太拖了。希望第二季能节奏快些。
+
+*****
+
+####  NeloAngelo  
+##### 3372#       发表于 2024-1-8 23:30
+
+这集还算干脆吧, 拖的话, 切白毛要一集, 切回黑毛还得一集<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RE㐅ia  
+##### 3373#       发表于 2024-1-8 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582367&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-1-8 23:30</a>
+
+这集还算干脆吧, 拖的话, 切白毛要一集, 切回黑毛还得一集
+
+—— 来自 S1Fun ...</blockquote>
+都做好不到季中看不到诺娃的心理准备了
+
+*****
+
+####  星降る森  
+##### 3374#       发表于 2024-1-8 23:32
+
+姐姐梦想就是造火箭，这天上的乐园是去定了（xb2感
+

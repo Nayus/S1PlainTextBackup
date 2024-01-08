@@ -11154,3 +11154,28 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 艹，在z8看见，今天七点半，羊发了关于tvlive和6th演出的消息，但6th的时间打错了，现在这条推已被删了，不 ...</blockquote>
 看来烤羊还是有效果的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 8550#       发表于 2024-1-8 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581169&amp;ptid=2159415" target="_blank">HANDAIYV 发表于 2024-1-8 21:25</a>
+艹，在z8看见，今天七点半，羊发了关于tvlive和6th演出的消息，但6th的时间打错了，现在这条推已被删了，不 ...</blockquote>
+还要等明天？我心危可是在凌晨2点亲自发了原创推文的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑猫桑  
+##### 8551#       发表于 2024-1-8 21:49
+
+吻戏没有改成对戒水星的魔女是吧，这动画本来女同浓度就不高
+
+*****
+
+####  yaneis  
+##### 8552#       发表于 2024-1-8 21:52
+
+可能在谁和谁女同的方向性上出了分歧，监督推初祥，独角兽推睦祥，对家当然要取关了（
+

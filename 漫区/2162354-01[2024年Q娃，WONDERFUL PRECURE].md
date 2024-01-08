@@ -1875,3 +1875,14 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 估计就是受挫折后变回兽形态这类套路吧。
 
+
+*****
+
+####  jaewoongh_  
+##### 455#       发表于 2024-1-8 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63580850&amp;ptid=2162354" target="_blank">HazukiShion 发表于 2024-1-8 20:53</a>
+
+估计就是受挫折后变回兽形态这类套路吧。</blockquote>
+听上去和之前的因为受挫而无法变身差不多
+

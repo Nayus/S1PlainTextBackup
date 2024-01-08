@@ -7317,3 +7317,28 @@ BanG Dream! 3rd Season：2020年1月23日 - 4月23日
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 8172#       发表于 2024-1-8 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63573329&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-8 11:29</a>
+
+你的意思是不存在mujica占了mygo戏份这一说吗？按访谈的说法确实是这样的，但是我怕哪里又有人断章取义我还 ...</blockquote>
+那邊車那麼兇，結果訪談一出，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8173#       发表于 2024-1-8 11:38
+
+超诗绊结束就差不多可以完结了
+
+*****
+
+####  806923249  
+##### 8174#       发表于 2024-1-8 11:39
+
+这也能滑坡是吧
+

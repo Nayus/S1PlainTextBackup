@@ -8980,3 +8980,47 @@ b站抽成一半，首次上舰还只要138，那从企划角度来讲，粉丝�
 
 结果呢，我坐了三个小时获得了空气
 
+
+*****
+
+####  ninokagami  
+##### 8330#       发表于 2024-1-8 14:54
+
+说到5厕，这两天顺便看了一下关于独角兽的风评还有日本人的态度
+
+邦这边总体讨论不算多，担心的也有不过比例不高，一部分觉得邦123也就那样mujica动画不是离了独角兽就完蛋了，一部分认为mujica动画系构的活儿已经结了，1，4，8，10话的两个脚本家都转了推，到时候独角兽不亲自担任脚本也问题不大
+
+另外仙魔大战那边的帖子各种独角兽anti，可以说是往死里骂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 8331#       发表于 2024-1-8 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575243&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-8 14:00</a>
+
+确实感觉独角兽不怎么喜欢立希，立希推可以期待一下踢了独角兽的母鸡卡 ...</blockquote>
+独角兽对立希可能就像武田对伞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 8332#       发表于 2024-1-8 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575448&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-1-8 14:18</a>
+
+B站官号合号这个，是真的下下策。顶着狗的头像，大部分发的也是狗的内容，然而我还要为了那一点点鸡的内容 ...</blockquote>
+应该是因为很长时间内确实没法“好好经营”吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8333#       发表于 2024-1-8 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574958&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-8 13:38</a>
+
+漏油为何如此悲观，说好的下篇会写立希的努力，爱信等好吧</blockquote>
+错误的，监督说的是灯的努力和立希的心情
+
+这个加戏写成灯在努力诗朗诵立希败犬独白的可能性好像不是没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

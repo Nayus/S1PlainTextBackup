@@ -8499,3 +8499,76 @@ mujica动画延后是下下策，总集篇剧场版也不是优解。
 
 确实感觉独角兽不怎么喜欢立希，立希推可以期待一下踢了独角兽的母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 8288#       发表于 2024-1-8 14:04
+
+我觉得绫奈对立希有非常扭曲的爱，不存在不喜欢，她还发过海希癫。
+
+立希推如果期待没有绫奈的母鸡卡那就只能ttk了，没有绫奈我不介意毁灭wsd。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 8289#       发表于 2024-1-8 14:04
+
+靠配音好坏判断，那我可以说高尾在游戏的配音远不如动画吗，看看游戏切片几分钟的事，游戏配音在动画之前不是明摆着吗。
+
+*****
+
+####  cindy355  
+##### 8290#       发表于 2024-1-8 14:04
+
+ 本帖最后由 cindy355 于 2024-1-8 14:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575243&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-8 14:00</a>
+
+确实感觉独角兽不怎么喜欢立希，立希推可以期待一下踢了独角兽的母鸡卡 ...</blockquote>
+不至于是不喜欢，但是她可能有特别的表达对立希喜爱的方式（指立希杀青镜头）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我不喜欢这种表达方式，但是推立希真的已经让我学到了不要因自己无能为力的事情而苦恼，所以我只要苦笑就好了
+
+*****
+
+####  -LYRE-  
+##### 8291#       发表于 2024-1-8 14:07
+
+ 本帖最后由 -LYRE- 于 2024-1-8 14:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575109&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-8 13:51</a>
+这不都是轮回话题吗……最近新来的漏油是不是跟泥漏八字不合被卷进时空漩涡了 ...</blockquote>
+等等，漏油提醒我了，这位好像确实印象中没在1号楼见过，就连2号楼点开“只看他”都只有从2023.12.29才开始的半页不到的发言，然后就全部都是mujica动画定档后的争执相关了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我连七八月没看mygo主要待在豚楼，九月才补动画来的邦楼，在豚楼都成了“外来势力入侵”“邦楼出警”
+这位漏油发言更少，岂不是更是铁打的“外来势力出警”了？这下回旋镖喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/fc16f9b09b4b4309421138e7120f53af/CMP_20240108140756875.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 8292#       发表于 2024-1-8 14:10
+
+<blockquote>御幸一也 发表于 2024-1-8 13:43
+那沒辦法，這一點上我就是這樣覺得。
+
+我覺得ave工期沒問題，我覺得總集篇是加塞，那麼我得出那個結論真的 ...</blockquote>
+我也是觉得最迟也7月
+
+其实都认可mujica动画应该早就在做了，正常下来不可能明年一月播，本身肯定更早能播。
+
+那么主要讨论矛盾其实本身就是在“mujica为什么推迟”的原因上，我是认为是制作方面或者企划方面出了状况，或绫奈或ce或仍未见天日的原因，导致了mujica动画仍完成不了，甚至产生了制作中断的情况。
+
+这方面参考制作公司1号的推特
+
+<img src="https://img.saraba1st.com/forum/202401/08/140154cn4ewoooo88wob2j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0886.jpeg</strong> (678.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 14:01 上传
+
+至少制作公司是表示仍然在做的
+
+而mygo剧场版是这一事件的果，是为了延续热度和企划活性/认知度的弥补手段。
+
+而漏油是认为mujica动画其实早就做完了，而mygo剧场版是这一事件的主要原因，武士道是为了mygo总集篇剧场版而将mujica延后的。 是这样的吗
+
+（这当然只是个人随意乱想，不要当真。但是即使剧场版，那也是mujica动画先播，然后出总集篇，最好上下两部总集篇，加一部mygo_mujica双团新剧场版，才是更好的做法。）
+

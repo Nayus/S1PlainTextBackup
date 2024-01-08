@@ -2586,3 +2586,11 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神祖一宝能用（毕竟有暴击打法），提妈一宝就是鱼
 
+
+*****
+
+####  v22325  
+##### 10749#       发表于 2024-1-8 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提妈真的不行，前几天我抽到拉满光靠自己buff宝具一炮打克制也就五六万，反过来以前抽到的兽尼一宝用的越来越顺手，没特攻太惨了。
+

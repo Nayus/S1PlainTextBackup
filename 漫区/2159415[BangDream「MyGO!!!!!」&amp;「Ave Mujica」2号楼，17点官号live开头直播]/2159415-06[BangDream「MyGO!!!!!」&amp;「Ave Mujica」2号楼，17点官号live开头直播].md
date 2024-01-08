@@ -11104,3 +11104,18 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 如果剧本没改只是压着不放的话，绫奈为什么会有现在的反应</blockquote>
 说不定是大方向没改，但改了些独角兽特别在意的东西，比如女女关系性。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 8544#       发表于 2024-1-8 21:25
+
+艹，在z8看见，今天七点半，羊发了关于tvlive和6th演出的消息，但6th的时间打错了，现在这条推已被删了，不知道明天会不会再发
+
+*****
+
+####  NODY  
+##### 8545#       发表于 2024-1-8 21:25
+
+根据独角兽新发的同性婚发言来推测，可能是结局想写女同结婚接吻被武士道阻止了，最后只留下了对戒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

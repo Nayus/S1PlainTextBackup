@@ -267,3 +267,31 @@
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Piano-Forest  
+##### 3347#         楼主| 发表于 2024-1-8 21:23
+
+[https://twitter.com/ippeigyoubu/status/1744195561241055356](https://twitter.com/ippeigyoubu/status/1744195561241055356)
+
+「SYNDUALITY Noir 」第2クール
+
+本日、1月8日より
+
+ テレ東系6局ネット24時〜
+
+BS日テレ24:30〜ほか、
+
+各地様々な放送局様にて放送開始されます。
+
+引き続きコフィンデザイン等やっております
+
+何卒、よろしくお願いいたします！
+<img src="https://p.sda1.dev/15/251bcd068c03f97a0d1ae390a7ca3d66/20240108_212046.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/mmu_yoshikiti/status/1744249524527439984](https://twitter.com/mmu_yoshikiti/status/1744249524527439984)
+
+本日夜、２期 第１話放送です！
+<img src="https://p.sda1.dev/15/cd57dad35f9500a1b989ef1b02382f91/20240108_212050.jpg" referrerpolicy="no-referrer">
+

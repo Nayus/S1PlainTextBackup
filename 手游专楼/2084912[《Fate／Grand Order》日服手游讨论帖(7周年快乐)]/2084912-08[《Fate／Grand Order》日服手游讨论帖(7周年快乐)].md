@@ -2628,3 +2628,14 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 艹</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧洲人 非萌落泪
 
+
+*****
+
+####  qixinno2  
+##### 10754#       发表于 2024-1-8 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581111&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-8 21:19</a>
+
+这就是欧洲人 非萌落泪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新昨天不是出了卑弥呼了么 装什么非
+

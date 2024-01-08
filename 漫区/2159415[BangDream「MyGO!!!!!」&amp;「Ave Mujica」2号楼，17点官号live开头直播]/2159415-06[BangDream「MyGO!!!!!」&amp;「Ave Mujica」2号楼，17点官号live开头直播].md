@@ -10765,3 +10765,77 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  穗波殊  
+##### 8509#       发表于 2024-1-8 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579520&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 18:50</a>
+
+那不就是了本来大家占的比重都挺大，独角兽没了留个原案，顶多没那么扭曲了，总体不会太差，除非 ...</blockquote>
+我说的是，用live来叙事更依赖live质量，但不代表这写的不好。你想象一下一个全3d，live质量只有诗超绊的偶像大师，它能火吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+领家天使不依赖p9制作，就能收获商业大成功，是否说明领家天使是第一轻小说？
+
+*****
+
+####  ddy2811  
+##### 8510#       发表于 2024-1-8 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579168&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-8 18:20</a>
+
+感觉这个没必要上孜然，热门女主役确实难得，时间点恰好在wsd年终大会前夕，赶趟也就那么一次，再加上自己 ...</blockquote>
+你喜欢什么宣传什么是你的自由，别人怎么看怎么评价也是别人的自由<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵椿  
+##### 8511#       发表于 2024-1-8 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579520&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 18:50</a>
+那不就是了本来大家占的比重都挺大，独角兽没了留个原案，顶多没那么扭曲了，总体不会太差，除非 ...</blockquote>
+你自己都用“总体不会太差”这种偏向于“差”的说法，怎么还硬要证明她走了也没什么影响，而且“没那么扭曲”难道是什么微不足道的影响吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">她走了又该换谁上，你有什么好人选吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 8512#       发表于 2024-1-8 18:59
+
+用差制作下的观感来评价原作，那史上最粪轻小说就应该是物语，因为我可以给你整两个火柴人对话对一集的改编<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 8513#       发表于 2024-1-8 19:00
+
+不知道在干聊些什么，“没有xxx一样能成功，xxx反而可能是拖累因素”vs“xxx是成功主因之一，没有xxx续作变味不好”
+还不如举点二期换人或者换人翻拍之后变好/变坏的例子实际，搁这比战斗力呢？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 8514#       发表于 2024-1-8 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579168&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-8 18:20</a>
+感觉这个没必要上孜然，热门女主役确实难得，时间点恰好在wsd年终大会前夕，赶趟也就那么一次，再加上自己 ...</blockquote>
+其实单纯这事而言确实不用上孜然，其实Z8的纯良听她周六唱歌之后就被腐乳了
+
+问题是动物朋友前科多，不是单纯的关于偷摸零装死
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ytttsuuuba  
+##### 8515#       发表于 2024-1-8 19:01
+
+怎么没有新歌预告了，我还指望睦生日听到新歌呢。
+
+*****
+
+####  ylssb10438  
+##### 8516#       发表于 2024-1-8 19:02
+
+想到了两部动画，一部孤独摇滚，一部世界尽头的圣骑士<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

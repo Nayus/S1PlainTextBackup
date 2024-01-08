@@ -7045,3 +7045,90 @@ mygo剧场版总集篇的确挺差的，除了加了猫视角(立希未知）外
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 8161#       发表于 2024-1-8 10:49
+
+<img src="https://img.saraba1st.com/forum/202401/08/104819wrbgvlggruu9quva.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/104820tyh1hm4glggyyv7l.png" referrerpolicy="no-referrer">
+
+<strong>image (1).png</strong> (55.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/104820lfuaelje8ukbnnen.png" referrerpolicy="no-referrer">
+
+<strong>image (2).png</strong> (45.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/104822vo1x52n222w0i8qi.png" referrerpolicy="no-referrer">
+
+<strong>image (3).png</strong> (67.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/104824amuuupm3pim4p4vn.png" referrerpolicy="no-referrer">
+
+<strong>image (5).png</strong> (15.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/104824g2b2dw2xosmb2yus.png" referrerpolicy="no-referrer">
+
+<strong>image (6).png</strong> (15.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/104825o0vvibrrbika9wri.png" referrerpolicy="no-referrer">
+
+<strong>image (7).png</strong> (15.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/104825rozdbuhx6rbncr16.png" referrerpolicy="no-referrer">
+
+<strong>image (8).png</strong> (21.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:48 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/104910ytct0tia6676tl7j.png" referrerpolicy="no-referrer">
+
+<strong>image (10).png</strong> (41.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:49 上传
+
+有人說日本人是不是沒意見，無聊看了下5ch，多少是有點意見的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  星空冻结  
+##### 8162#       发表于 2024-1-8 10:49
+
+你wsd也没想好好卖🐔的谷子啊，就那三四张图卖大半年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

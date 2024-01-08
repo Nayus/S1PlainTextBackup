@@ -23250,3 +23250,197 @@ hugface权重语言声明:这个版本的权重只支持英文和中文，OpenVo
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1161#       发表于 2024-1-8 19:03
+
+ 本帖最后由 Machinery 于 2024-1-8 19:07 编辑 
+
+DeepSeek LLM
+
+以长期主义的理念扩展开源语言模型
+
+github项目主页:https://github.com/deepseek-ai/deepseek-LLM
+
+hugface权重下载
+
+deepseek-llm-7b-base:https://huggingface.co/deepseek-ai/deepseek-llm-7b-base
+
+deepseek-llm-7b-chat:https://huggingface.co/deepseek-ai/deepseek-llm-7b-chat
+
+deepseek-llm-67b-base:https://huggingface.co/deepseek-ai/deepseek-llm-67b-base
+
+deepseek-llm-67b-chat:https://huggingface.co/deepseek-ai/deepseek-llm-67b-chat
+
+开源大型语言模型快速发展，然而，之前的论文中描述的缩放法则(scaling law)各自含有不同的结论与观点，这给LLM的发展带来了阴云，通过深入研究了缩放法则，本文提出了独特的发现，这有助于在两种常用的开源配置(7B和67B)中扩展大型语言模型
+
+同时，在缩放法则的指导下，推出了DeepSeek LLM项目，致力于以长期主义的理念推进开源语言模型的发展，为了支持预训练阶段，构建了一个数据集，目前包含2万亿Token，且仍然在不断拓展中，还对DeepSeek LLM基础模型进行了监督微调(SFT)和直接偏好优化(DPO/Direct Preference Optimization)，从而创造了DeepSeek Chat系列模型
+
+评估结果表明，DeepSeek LLM 67B在各种基准测试中超过了LLaMA-2 70B，尤其是代码、数学和推理，此外，开放式评估表明，与GPT-3.5相比，DeepSeek LLM 67B Chat表现出更优异的性能
+
+<img src="https://img.saraba1st.com/forum/202401/08/190203i5ks1ko61f9s9rfs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185440__01.jpg</strong> (503.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:02 上传
+
+1e17和1e20 FLOPs情况下，批大小和学习率的训练损失
+
+<img src="https://img.saraba1st.com/forum/202401/08/190210if7fffxdjhxv5bf5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185459__01.jpg</strong> (174.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:02 上传
+
+批大小和学习率的缩放曲线，灰色圆圈表示模型的泛化误差最多超出最小值0.25%，虚线表示适用于较小模型的最强缩放拟合线，蓝色星星表示DeepSeek LLM 7B和67B模型
+
+<img src="https://img.saraba1st.com/forum/202401/08/190216n62ay5s20sa82amm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185507__01.jpg</strong> (148.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:02 上传
+
+非嵌入参数𝑁1和完整参数𝑁2的分化相对于FLOPs/token 𝑀的模型缩放规模表示的差异
+
+<img src="https://img.saraba1st.com/forum/202401/08/190227gx7k6n7snxsxt5s5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185513__01.jpg</strong> (162.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:02 上传
+
+IsoFLOP曲线和最优模型/数据分配，在IsoFLOP曲线中，指标是验证集上的每字节比特数(bits-per-byte)，最佳模型/数据缩放曲线中的虚线表示拟合较小模型(灰色圆圈)的最强缩放拟合线
+
+<img src="https://img.saraba1st.com/forum/202401/08/190236a9dmb9t41uugaugt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185520__01.jpg</strong> (66.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:02 上传
+
+性能缩放曲线，指标是验证集上的每字节比特数，虚线表示拟合较小模型(灰色圆圈)的最强缩放拟合线，蓝色星星代表DeepSeek LLM 7B和67B，它们的性能很好地符合了缩放曲线的预测
+
+<img src="https://img.saraba1st.com/forum/202401/08/190243ycjv3t3utavv2tuu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185527__01.jpg</strong> (117.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:02 上传
+
+模型缩放和数据缩放的系数随训练数据分布的不同而变化
+
+<img src="https://img.saraba1st.com/forum/202401/08/190249t2hiivxvx0pgp2tm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185604__01.jpg</strong> (279.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:02 上传
+
+主要评估结果，本文报告的评估结果基于内部评估框架，粗体数字表示4个模型中的最佳结果，对于Pile-test，报告BPB/bits-per-byte，对于DROP，报告F1分数，对于其他任务，报告准确率
+
+请注意，测试样本(test-shots)是最大值，由于上下文长度有限或可用的少样本示例(few-shot)有限等情况，在阅读理解任务(例如RACE)中，可能会应用较少的提示样本
+
+<img src="https://img.saraba1st.com/forum/202401/08/190258u2l7hhpl8r9rdflj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185617__01.jpg</strong> (286.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:02 上传
+
+基础模型和对话模型之间的对比，对于对话模型，进行了零样本评估，评估指标包括MMLU、GSM8K、MATH、C-Eval和CMMLU，而基础模型的结果仍然是在少样本设置下获得的
+
+<img src="https://img.saraba1st.com/forum/202401/08/190304skfrsggwgzeisw5g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185625__01.jpg</strong> (396.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:03 上传
+
+使用gpt-4-0613评估的AlignBench排行榜，模型按照总分从高到低排列，带有*的结果是基于官方AlignBench存储库的评估结果，而其他所有结果都来自AlignBench论文，Deepseek-67B-Chat模型结果中明显的超越了ChatGPT和其他基线模型，这表明在基础中文语言任务和高级中文推理任务方面本文模型具有卓越的性能，此外，还发现DPO过程在几乎所有领域都带来了改进
+
+<img src="https://img.saraba1st.com/forum/202401/08/190314b2kt7j22d4cm4tbj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185632__01.jpg</strong> (152.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:03 上传
+
+MT-Bench评估结果
+
+<img src="https://img.saraba1st.com/forum/202401/08/190322d6jy3ee6348yj66y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185638__01.jpg</strong> (76.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:03 上传
+
+使用保留数据集进行的评估
+
+<img src="https://img.saraba1st.com/forum/202401/08/190326pidwwrdcgrge2295.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185646__01.jpg</strong> (256.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:03 上传
+
+安全评估分类，每个类别的测试用例总数以及本文模型DeepSeek-67B-Chat提供的安全答案数量列在表格的最右侧列中，测试问题的标注和生成结果的评估都由专业人员团队进行，可以观察到，本文模型在各种类型的安全测试集中展现出强大的安全性
+
+<img src="https://img.saraba1st.com/forum/202401/08/190331jp6cuvwoj0vpwwcj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185651__01.jpg</strong> (54.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:03 上传
+
+“Do-Not-Answer Score(Wang et al., 2023)”是一项评估模型安全性的指标，得分越高表示模型的安全性越高，带有*的结果是基于官方仓库的评估结果，而其他所有结果都来自原始论文，可以发现，本文模型的安全得分比ChatGPT和GPT-4都要高，在最安全的模型中排名较高
+
+<img src="https://img.saraba1st.com/forum/202401/08/190337iokoh3rkt89939zv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185705__01.jpg</strong> (64.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:03 上传
+
+两阶段微调结果，重复比(repetition ratio)是在温度(temperature)为0时计算的，重复比越低越好，IFEval的结果是提示级的宽松准确率(prompt-level loose accuracy)
+
+<img src="https://img.saraba1st.com/forum/202401/08/190342whzpfa1jhzkjhaap.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185705__01.jpg</strong> (64.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:03 上传
+
+添加多项选择题数据的影响
+
+<img src="https://img.saraba1st.com/forum/202401/08/190346pmtybfiticjb4mmv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240108-185705__02.jpg</strong> (66.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:03 上传
+
+添加系统提示(system prompt)的影响
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

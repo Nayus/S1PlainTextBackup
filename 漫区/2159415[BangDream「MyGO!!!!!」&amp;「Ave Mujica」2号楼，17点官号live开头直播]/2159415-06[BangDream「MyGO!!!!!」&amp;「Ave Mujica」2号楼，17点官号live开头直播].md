@@ -10839,3 +10839,45 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 想到了两部动画，一部孤独摇滚，一部世界尽头的圣骑士<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 8517#       发表于 2024-1-8 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579590&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-1-8 18:56</a>
+你自己都用“总体不会太差”这种偏向于“差”的说法，怎么还硬要证明她走了也没什么影响，而且“没那么扭 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实老实说，要是ave动画真如你们所说9月就完事压着的话，系构不应该还是独角兽么，有点奇怪。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  穗波殊  
+##### 8518#       发表于 2024-1-8 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579634&amp;ptid=2159415" target="_blank">66367749 发表于 2024-1-8 19:00</a>
+
+不知道在干聊些什么，“没有xxx一样能成功，xxx反而可能是拖累因素”vs“xxx是成功主因之一，没有xxx续作变 ...</blockquote>
+偶像t0：大河内母鸡卡
+
+*****
+
+####  NODY  
+##### 8519#       发表于 2024-1-8 19:11
+
+邦邦少歌拉拉dj几个跨企划声优也不是没干过提其他企划的事情，但好歹都是武士道自家，而且是在日常小生放上开玩笑玩一两句梗，玩了以后还要对经纪人道歉，但羊直接相比工商邦邦的时候表现出明显的双标兴奋，还在大发布会这种重要场合大力宣传其他作品我是真没见过，感言还特地宣传第二季我心危的时候我都尴尬得脚趾扣地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+更别说在mygo另外四个都在慢慢精进乐器水平外加努力营业的时候，她的live表现还比之前退步了，只能说除非羊只后真的go堕对乐队上心顺便磨练一下自己的唱功，不然她的形象在我心里是好不起来了，对mygo的热情都能被她磨没，只能靠手游和远在天边的第二季回血
+
+*****
+
+####  灵椿  
+##### 8520#       发表于 2024-1-8 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579708&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 19:05</a>
+其实老实说，要是ave动画真如你们所说9月就完事压着的话，系构不应该还是独角兽么，有点奇怪。
+
+ ...</blockquote>
+我又没说已经做完了啊，而且想延续在第一季就发挥的不错的staff阵容有什么问题吗
+

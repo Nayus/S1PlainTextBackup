@@ -9136,3 +9136,40 @@ B站官号合号这个，是真的下下策。顶着狗的头像，大部分发�
 
 —— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  0路人辛0  
+##### 8343#       发表于 2024-1-8 15:13
+
+<blockquote>ganeid 发表于 2024-1-8 13:10
+当然不能，敬请期待</blockquote>
+台长先说延期96小时，然后48小时，现在妥协了直接说“几天了”
+
+*****
+
+####  相坂君  
+##### 8344#       发表于 2024-1-8 15:15
+
+唉，鸡没出生，粉丝还被判刑死了
+
+就说上个舰看live还找不到粉丝牌子打个赛博call，死人要什么牌子，埋了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 8345#       发表于 2024-1-8 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正放低期待了
+
+真要说一定要找个东西骂，还是骂WSD吧
+
+*****
+
+####  笋干爆炸碱  
+##### 8346#       发表于 2024-1-8 15:21
+
+B站合号是烂棋起码在小范围内共识是有了吧？
+
+本分离主义者再次提出分楼的建议，非得挤在同一个专楼么
+

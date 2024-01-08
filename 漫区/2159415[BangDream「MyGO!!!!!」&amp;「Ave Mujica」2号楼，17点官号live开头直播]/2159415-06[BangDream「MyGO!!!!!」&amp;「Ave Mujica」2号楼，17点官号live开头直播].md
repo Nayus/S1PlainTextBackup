@@ -8880,3 +8880,103 @@ b号mujicapv下面还有说不想看鸡想看一辈子狗的，中国运营迫�
 就目前俩新歌的水平，不配动画怎么消化得了
 sb武士道来个一月一集都好过推到明年
 
+
+*****
+
+####  凡人  
+##### 8320#       发表于 2024-1-8 14:43
+
+不讲屁股那就得上无知之幕了，要是第一季演的是鸡团，2024年唯一的动画是鸡团剧场版，要等到2025年1月还未必能播的是狗团动画还能说要体谅wsd的难处，这才能说不用屁股思考<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 8321#       发表于 2024-1-8 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575699&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-8 14:34</a>
+说到底姐妹团双子团这个说法到底哪传出来的，谁开的头，两团有这种联系动画播前确实谁都没想到，只有国内在 ...</blockquote>
+目前和解进度有过半吗，都有人没见过对面的算啥双子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 8322#       发表于 2024-1-8 14:44
+
+难道不是动画这个一分为二设定出来后才说的双子/对手/rival吗（
+
+毕竟也是访谈里提过的乐队之间在C团这一方面有密切联系
+
+*****
+
+####  ytttsuuuba  
+##### 8323#       发表于 2024-1-8 14:44
+
+吵架的原因主要还是在资源倾斜这边。mygo的剧场版再怎么解释最终结果都是给狗粉的福利，总不能得了便宜还卖乖，其实狗粉也不看的狗粉也只想看续篇，那么问题来了，狗的剧场版狗粉都不看那到底做给谁看的。WSD根本没在端水，对比狗那边，鸡这边真的基本什么都没有，就这样还要说姐妹团双子团的话，那不是更招人不满。
+
+*****
+
+####  -LYRE-  
+##### 8324#       发表于 2024-1-8 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575448&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-1-8 14:18</a>
+B站官号合号这个，是真的下下策。顶着狗的头像，大部分发的也是狗的内容，然而我还要为了那一点点鸡的内容 ...</blockquote>
+说到合号我就想起前几天官号宣布大航海限定直播，评论区当时就开始截图记录现有大航海，准备统计最终上舰人数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+贴吧首页推了一贴，z8挂人骂“鸡杂搞切割n<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">c”等等直球人身攻击骂了一百二三十楼，被挂言论原话是“你这个mygo头像粉丝牌让mujica粉丝上舰还挺幽默的，什么大聪明，去eplus上多给母鸡卡爆点米了”
+
+然后看到有人查过eplus抽成大约8%，票价300+
+b站抽成一半，首次上舰还只要138，那从企划角度来讲，粉丝愿意在收费更高抽成更少的平台爆米不是更好么，总不会嫌到手的钱更多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+合号操作只会引发更大的冲突，就像你说的现在mujica粉丝只能看到偶尔有点小动作时半夜偷偷摸摸换成mujica头像和背景图，绝大多数时间都是mygo头像和背景图，就连换那几个小时都有一些mygo粉丝不满。
+那按现在的操作对标，等明年mujica动画开播了，官号头像和背景全换成mujica头像背景图，只有等mygo有动静了半夜换几个小时mygo头像背景，不觉得mygo粉丝会很乐于看到<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Tucsria  
+##### 8325#       发表于 2024-1-8 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">唉 武士道
+
+还是卖卡片赚得太多了
+
+*****
+
+####  septer  
+##### 8326#       发表于 2024-1-8 14:47
+
+<img src="https://img.saraba1st.com/forum/202401/08/142951x00adaathzn8vixk.png" referrerpolicy="no-referrer">
+
+<strong>running kirin.png</strong> (22.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 14:29 上传
+
+我不知道，我只是一个贪得无厌，欲求不满的嗜血观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 8327#       发表于 2024-1-8 14:50
+
+我对B站这个合号真的膈应很久了，怎么才能让他分号啊。本来挂着狗的头像狗的背景狗的粉丝牌让鸡粉去上舰就挺幽默的。狗粉不也早就有了“老子不是给鸡上的舰”的言论了吗，分号对双方都是乐见其成的好事。
+
+*****
+
+####  凡人  
+##### 8328#       发表于 2024-1-8 14:50
+
+想起之前看见的笑话，有双胞胎的家庭狗拉屎都不敢只拉一条，鸡狗现在的待遇差别，你说双子？火上浇油
+
+*****
+
+####  笋干爆炸碱  
+##### 8329#       发表于 2024-1-8 14:52
+
+鸡的卡片在哪都还没看到呢——来自一个真的等着母鸡卡的ws打牌的人的阴湿
+
+讲道理那个破发表会，摔角环节宣传蛋白棒，母鸡卡的蛋白棒送一张初华的ws卡，把我胃口都吊起来了
+
+然后ws发表环节了，是结月和老同事刘华上去读稿，我心想这不是稳了，结月读母鸡卡参战ws啊
+
+结果呢，我坐了三个小时获得了空气
+

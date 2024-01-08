@@ -7286,3 +7286,13 @@ BanG Dream! 3rd Season：2020年1月23日 - 4月23日
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Aloereed  
+##### 8169#       发表于 2024-1-8 11:20
+
+现在再怎么车也车不出什么新东西了。
+
+等1.27鸡团live工商时间，还没有新东西就跟wsd爆了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

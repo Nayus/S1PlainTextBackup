@@ -7631,3 +7631,61 @@ ep13占什么mygo戏份？按照这个制作思路13前半mygo的戏份反而是
 
 有祥子这个人在前面的剧情里存在着 如果没有第十三集 那就是一桩纯纯的悬案 不满的人更多
 
+
+*****
+
+####  806923249  
+##### 8207#       发表于 2024-1-8 12:26
+
+11集砍爱素名场面，12集砍素睦名场面，不敢想不敢想
+
+*****
+
+####  NODY  
+##### 8208#       发表于 2024-1-8 12:27
+
+现在是升级到独角兽喜欢mujica但武士道/监督更喜欢mygo所以决裂的版本了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8209#       发表于 2024-1-8 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巨魔发言互相纠缠是特色菜
+
+*****
+
+####  御幸一也  
+##### 8210#       发表于 2024-1-8 12:29
+
+原來版本更新到這樣了，我學習一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ganeid  
+##### 8211#       发表于 2024-1-8 12:29
+
+ 本帖最后由 ganeid 于 2024-1-8 12:31 编辑 
+
+第10集结束可还行，第10集的时候团名没定服装没做合宿没有正式LIVE没开，什么新概念偶像动画<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过这13集活活搞成了mujica第1集也挺重量级
+
+不论这点子是柿本绫奈还是上面的大人想的，反正肯定有个巨魔在操盘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 8212#       发表于 2024-1-8 12:30
+
+你如果站在单团粉丝的立场上那确实难以找出一个优点来洗，这种只能站在wsd孝子的立场来说“这对于邦多利/力儿八整体企划的好处是拉长企划生命周期，迈步走进第十年、第十一年”，回归动画只是个广告片的wsd动画初心
+
+*****
+
+####  Kasroz  
+##### 8213#       发表于 2024-1-8 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574051&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 12:19</a>
+剛爬完5廁，日本人也覺得綾奈完全不宣傳很怪，退追這些都當發散和滑坡，但現在的綾奈不提你邦真的是正常的 ...</blockquote>
+绫奈12th是不是就没发过推，5th记得是发过推的
+

@@ -10971,3 +10971,15 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 如果剧本没改只是压着不放的话，绫奈为什么会有现在的反应</blockquote>
 焦虑弟你就别添油了
 
+
+*****
+
+####  PDQ4  
+##### 8530#       发表于 2024-1-8 19:42
+
+漏油又不是绫奈肚子里的蛔虫，哪知道她怎么想的。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+就算真有嫌隙也不等价于绫奈彻底被踢出去不干了，我觉得多年合作关系还不至于真老死不相往来，工作还是工作。
+
+不过总集篇新编剧情可能没有绫奈参与是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

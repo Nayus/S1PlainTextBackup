@@ -180,3 +180,33 @@ syl 瓦夜之后离新版本更新就只有八周时间了
 
 烧伤队还有很长的路要走，希望赶紧出邵科长人格，这帮人目前连斩击技能都没有...
 
+
+*****
+
+####  Jamaisvu  
+##### 500#       发表于 2024-1-8 19:41
+
+新人格技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202401/08/193749o7mve8zqq7mu8o8u.png" referrerpolicy="no-referrer">
+
+<strong>1704713809638.png</strong> (487.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:37 上传
+
+破裂队又添一员大将，这技能颜色感觉可以把W箱换下去...
+
+<img src="https://img.saraba1st.com/forum/202401/08/193750ne0rdxeyyf0ftwee.png" referrerpolicy="no-referrer">
+
+<strong>1704713799097.png</strong> (539.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 19:37 上传
+
+最傲慢的人格出现了，使用的关键点在于控制魔弹层数增伤和控制理智防止无差别攻击。
+
+有烧伤，感觉可以进烧伤队...
+

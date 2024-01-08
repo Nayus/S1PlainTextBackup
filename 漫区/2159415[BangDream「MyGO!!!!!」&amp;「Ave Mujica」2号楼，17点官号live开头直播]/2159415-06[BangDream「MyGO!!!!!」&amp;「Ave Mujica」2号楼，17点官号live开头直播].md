@@ -11036,3 +11036,33 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  swessia  
+##### 8537#       发表于 2024-1-8 20:46
+
+还在拷打wsd嘛，来看大祥老师二创啊
+
+【我的百合乃乐队世界观是也！#3-哔哩哔哩】 [https://b23.tv/IgBTN7T](https://b23.tv/IgBTN7T)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 8538#       发表于 2024-1-8 20:47
+
+工作日也能聊这么多页，漏油好摸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 8539#       发表于 2024-1-8 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63580293&amp;ptid=2159415" target="_blank">青蒜 发表于 2024-1-8 19:56</a>
+虚空讨论就成无底洞了，不如先剑指睦头人生日看看情况，就在这周末了吧</blockquote>
++1，就看睦头人爆些啥谷子了，要是木头生日还没新图啥的，那真的是……
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

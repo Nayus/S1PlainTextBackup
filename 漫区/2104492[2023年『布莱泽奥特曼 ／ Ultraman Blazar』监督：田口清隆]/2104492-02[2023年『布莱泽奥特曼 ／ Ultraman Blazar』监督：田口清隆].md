@@ -202,3 +202,11 @@ nb
 
 那太棒了！！！
 
+
+*****
+
+####  上坂莲华  
+##### 1600#       发表于 2024-1-8 20:50
+
+按这尿性说不定结局是德拉西翁出来挡住了第三波攻势，下一部令和高斯堂堂登场！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

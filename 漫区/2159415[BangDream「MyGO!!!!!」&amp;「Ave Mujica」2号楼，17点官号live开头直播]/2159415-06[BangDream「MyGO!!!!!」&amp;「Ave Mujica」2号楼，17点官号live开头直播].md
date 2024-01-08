@@ -10611,3 +10611,63 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 看到我心危联动的时候，我第一反应是羊宫阴暗地偷笑“哼~哼，wsd，被我拿下了吧<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 8494#       发表于 2024-1-8 18:23
+
+破案了，原来紧急上架总集篇剧场版是为了稳住羊宫，还特地强调了灯的努力。mggm付出太多了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8495#       发表于 2024-1-8 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579168&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-8 18:20</a>
+
+感觉这个没必要上孜然，热门女主役确实难得，这玩意也就赶趟上那么一次，再加上自己配的两个主役角色联动， ...</blockquote>
+没有对比就没有伤害，动物朋友平时在邦邦生放要么坐着不动要么复读机，结果一联动我心危直接整个人兴奋起来还在那滔滔不绝介绍我心危女主人设如何如何，结尾感言都不忘宣传我心危动画要播，她还记得这是邦邦的发布会吗
+
+*****
+
+####  贝恩德塔  
+##### 8496#       发表于 2024-1-8 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579136&amp;ptid=2159415" target="_blank">ylssb10438 发表于 2024-1-8 18:17</a>
+
+无职原作?我觉得比fll好看的多的多，虽然不是一个路子。而且第二季口碑在欧美是上涨的，角色风评也是[f:009 ...</blockquote>
+谈到mal的话，是8.37-8.68-8.30，mygo在mal是8.24，已经是bangdream+im@s+lovelive企划最高分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8497#       发表于 2024-1-8 18:26
+
+ 本帖最后由 江口夕 于 2024-1-8 18:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579027&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-1-8 18:07</a>
+无职前两期成绩更好吗第一季小说填海手游光速关服，初动也就不过不失。第二季更是口碑下滑。这不就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些没啥对比的必要，基准不一样。本来要证明的也不是这些。
+就把诗超绊游戏和动画对应的地方对比下然后谈谈感受就好了，我举无职例子无非就是说作为原作党不去看动画也感觉不到啥损失。但是你去看游戏mygo就会感觉损失很大。
+你不会说我只要游戏剧情就好了，不需要动画。
+当时r剧场版其实也差不多情况，很多都是：我只要游戏剧情就好，不需要动画，和动画切割了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ylssb10438  
+##### 8498#       发表于 2024-1-8 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579027&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-1-8 18:07</a>
+
+无职前两期成绩更好吗第一季小说填海手游光速关服，初动也就不过不失。第二季更是口碑下滑。这不就 ...</blockquote>
+而且影响一部作品的评分和风评本来就是很多方面的，无职吧抱怨第二季做的烂删改太多细节没还原原作的也很多
+
+*****
+
+####  dqtql  
+##### 8499#       发表于 2024-1-8 18:32
+
+感觉小羊可能相比于灯这种自闭少女更喜欢山田这种阳角现充吧，然后也缺乏一些必要的营业自觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

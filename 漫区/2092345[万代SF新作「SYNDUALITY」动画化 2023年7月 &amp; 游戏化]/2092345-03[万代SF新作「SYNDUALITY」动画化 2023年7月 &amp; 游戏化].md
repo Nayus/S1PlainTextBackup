@@ -664,3 +664,28 @@ god knows ?
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  novyDC  
+##### 3382#       发表于 2024-1-9 00:06
+
+op这个镜头明示要上太空了吧
+
+<img src="https://img.saraba1st.com/forum/202401/09/000626bj8xhhxhaxdf5c8x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-09-00-05-37-461_tv.danmaku.bili.jpg</strong> (754.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 00:06 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cybernetics31  
+##### 3383#       发表于 2024-1-9 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就死薅青山姐是吧，好歹整首新歌啥的啊
+

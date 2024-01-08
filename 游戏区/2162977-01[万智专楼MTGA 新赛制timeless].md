@@ -612,3 +612,11 @@ scg有人因为编号闪的亚龙卷太卷而被dq
 
 — from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  sug2shake  
+##### 62#       发表于 2024-1-9 00:10
+
+timeless还是挺好玩的，应该是还没有官方赛事，没有被solve，高power中速互怼交互性还挺好的
+

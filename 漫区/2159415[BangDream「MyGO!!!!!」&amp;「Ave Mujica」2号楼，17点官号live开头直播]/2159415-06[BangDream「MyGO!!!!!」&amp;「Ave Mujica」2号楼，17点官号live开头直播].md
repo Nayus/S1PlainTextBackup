@@ -8827,3 +8827,56 @@ b号mujicapv下面还有说不想看鸡想看一辈子狗的，中国运营迫�
 
 日本那边官号又没合，没啥明显对立，推上就的话有看见抱怨太慢时间太久的
 
+
+*****
+
+####  PDQ4  
+##### 8316#       发表于 2024-1-8 14:34
+
+说到底姐妹团双子团这个说法到底哪传出来的，谁开的头，两团有这种联系动画播前确实谁都没想到，只有国内在用吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8317#       发表于 2024-1-8 14:35
+
+<img src="https://img.saraba1st.com/forum/202401/08/143438uugo1w1rvr162yj0.png" referrerpolicy="no-referrer">
+
+<strong>image (2).png</strong> (45.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 14:34 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/143441p5a4a6og9ob1asb9.png" referrerpolicy="no-referrer">
+
+<strong>image (10).png</strong> (41.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 14:34 上传
+
+剛好今天看了5廁，吵是沒吵，但怪話肯定也是有的，
+
+也有日本人覺得ave動畫壓到2025就是為了讓路，畢竟2024是mygo的收穫年捏（日本人說的，不是我，疊甲）
+
+*****
+
+####  御幸一也  
+##### 8318#       发表于 2024-1-8 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575699&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-8 14:34</a>
+
+说到底姐妹团双子团这个说法到底哪传出来的，谁开的头，两团有这种联系动画播前确实谁都没想到，只有国内在 ...</blockquote>
+好像 真沒看過日本人這樣說<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+說到底風格差那麼多的團，是“姐妹”什麼，“雙子”什麼，雖然互相之間有關係
+
+*****
+
+####  kivz  
+##### 8319#       发表于 2024-1-8 14:38
+
+就目前俩新歌的水平，不配动画怎么消化得了
+sb武士道来个一月一集都好过推到明年
+

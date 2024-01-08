@@ -1666,3 +1666,13 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 我早就说人宠肯定会有些糟糕的同人</blockquote>
 来点主人帮助进入发情期的宠物发泄的同人
 
+
+*****
+
+####  最强惠酱  
+##### 434#       发表于 2024-1-8 14:41
+
+狗变人，思维还是狗的话会非常糟糕，习惯不穿衣服，野外排泄标记地盘，吃地上狗盘狗粮，闻屁股填py，主从意识，发情期的处理等等<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

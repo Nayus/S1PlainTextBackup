@@ -9532,3 +9532,89 @@ Screenshot_2024-01-08-15-53-24-800_tv.danmaku.bili-edit.jpg
 因为MyGO正在消耗好感吧，而对长期关注企划者而言消耗得尤其大……</blockquote>
 这话是怎么讲的，可以详细展开说说吗？mygo动画有新内容，我感觉挺满意的啊
 
+
+*****
+
+####  -LYRE-  
+##### 8382#       发表于 2024-1-8 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577024&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 15:59</a>
+跟监督有啥关系，系构不都是独角兽。你不会觉得动画g了是监督全责吧，那那些**河内和花田的都轮错人咯
+
+ ...</blockquote>
+不是你说的脚本也就那样，出彩的是演出？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那二三季没能在国内引起这么大的讨论度不就是演出问题？那对照下staff表不就知道到底是谁在C了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+对照了下邦二三季和mygo，职位上换人的主要是CG监修和摄影监督，看来就是这几位在C了，之前到处不是夸脚本就是夸监督的真是夸错人了啊，现在赶紧转过头来夸真正的功臣还来得及<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/0a26789c9f176684566c632169b51a55/CMP_20240108160118403.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Tucsria  
+##### 8383#       发表于 2024-1-8 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577058&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 16:01</a>
+
+你只想高潮罢了，跪不跪有这么重要么
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">跪下来不重要，跪不跪得下来很重要
+
+*****
+
+####  Kasroz  
+##### 8384#       发表于 2024-1-8 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卖狗和之前的动画变动的最大的还是原案这个职位
+
+*****
+
+####  江口夕  
+##### 8385#       发表于 2024-1-8 16:06
+
+ 本帖最后由 江口夕 于 2024-1-8 16:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577093&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 16:03</a>
+不是你说的脚本也就那样，出彩的是演出？
+那二三季没能在国内引起这么大的讨论度不就是演出问题？ ...</blockquote>
+你这逻辑是不是有问题，你论证不恰好证明独角兽依赖演出么。演出烂了或者说平庸比如让chu2去乡下追pareo那不是就g了。
+好的原作脚本比如说漫画，哥们你对着漫画抄都是80分，比如说灌篮高手，我都不要你什么演出，你对着描就行了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ztl44  
+##### 8386#       发表于 2024-1-8 16:08
+
+<blockquote>近月 发表于 2024-1-8 15:53
+可是官号下面的评论早就有对立言论了，不知道您是没看见故意装傻
+
+—— 来自 samsung SM-S9180, Android  ...</blockquote>
+所以才说粉圈是真哈人
+
+*****
+
+####  近月  
+##### 8387#       发表于 2024-1-8 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577093&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 16:03</a>
+不是你说的脚本也就那样，出彩的是演出？
+那二三季没能在国内引起这么大的讨论度不就是演出问题？ ...</blockquote>
+别理他了，作品的产生本来就是团队里每个人共同的贡献，mygo动画能爆当然和制作团队的每个人都有关系，而这位居然能发表出切割了脚本原案会更好的暴论，回他都是浪费时间<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  -LYRE-  
+##### 8388#       发表于 2024-1-8 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577189&amp;ptid=2159415" target="_blank">近月 发表于 2024-1-8 16:08</a>
+别理他了，作品的产生本来就是团队里每个人共同的贡献，mygo动画能爆当然和制作团队的每个人都有关系，而 ...</blockquote>
+我都看漏了一点，他居然说第10话是绫奈的脚本<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8389#       发表于 2024-1-8 16:11
+
+二三季风评也没那么差吧，甚至那段时间cd销量还是不错的，争议大的还是两个剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

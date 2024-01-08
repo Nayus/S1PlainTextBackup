@@ -7342,3 +7342,29 @@ BanG Dream! 3rd Season：2020年1月23日 - 4月23日
 
 这也能滑坡是吧
 
+
+*****
+
+####  kosou  
+##### 8175#       发表于 2024-1-8 11:47
+
+所以这周没有新曲了吗 只有两首….
+
+*****
+
+####  angela5d30  
+##### 8176#       发表于 2024-1-8 11:51
+
+感覺應該還有新曲吧? 可能是藏到live才披露?
+
+— from Xiaomi M2012K10C, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  御幸一也  
+##### 8177#       发表于 2024-1-8 11:52
+
+怎麼又成滑坡了，我打那麼長一條一條說自己觀點，一個滑坡帽子就扣上來是不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+還是說你覺得貼日本5廁的言論是在滑坡，那不是樓友好奇日本人是不是沒意見嗎，答案是：日本人也有一點意見<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

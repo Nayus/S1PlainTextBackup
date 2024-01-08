@@ -10204,3 +10204,73 @@ bangumi评分可以参考，别拿来当论据。更何况你打多少分都影�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  Aendst  
+##### 8449#       发表于 2024-1-8 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底是怎么歪成这样的，其他动画话题跟泥漏有关吗
+
+每部作品到底哪个职位负责得多哪个职位负责的少这种事情除非深度参与制作不然根本没有定论，不同制作组情况都不一样
+
+口碑不同地区不一样，评价也是纯主观感受，本来就得不出统一结论的话题再怎么讨论还是谁都说服不了谁
+
+倒是这个烂了就切割好了就赢两次的说法有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 8450#       发表于 2024-1-8 17:34
+
+拿无职侃侃而谈的，看过无职动画吗？
+
+*****
+
+####  贝恩德塔  
+##### 8451#       发表于 2024-1-8 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578596&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 17:31</a>
+
+我一直说的原作。你如果觉得剥离超诗绊春日影对独角兽不公平，那其实就对了，无职原作剥离动画老 ...</blockquote>
+就算剥离动画，无职前中期关系性真的写的很好吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8452#       发表于 2024-1-8 17:37
+
+ 本帖最后由 江口夕 于 2024-1-8 17:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578647&amp;ptid=2159415" target="_blank">贝恩德塔 发表于 2024-1-8 17:34</a>
+就算剥离动画，无职前中期关系性真的写的很好吗</blockquote>
+挺好啊，无职粉觉得后面好呢，动画不是也没出吗，那不就是和动画演出没关系了。换到mygo你觉得把春日影和超诗绊拿掉只用文字表述好吗，只会觉得不好。
+那后面如果没有超诗绊春日影的演出你也会觉得不好，反过来有超诗绊的演出有基底的原案，如果独角兽不是系构，那也不会太差
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Kasroz  
+##### 8453#       发表于 2024-1-8 17:38
+
+工艺蛋跑路最后的公告已经是处理结果，之前还有过程，和绫奈不转邦邦相关的时间倒是对得上，所以工艺蛋跑路为什么会对绫奈有影响，难道绫奈是工艺蛋那边的人脉
+
+*****
+
+####  贝恩德塔  
+##### 8454#       发表于 2024-1-8 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578681&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 17:37</a>
+
+挺好啊，无职粉觉得后面好呢，动画不是也没出吗，那不就是和动画演出没关系了。换到mygo你觉得把春日影和 ...</blockquote>
+无职前中期关系性写的好，一个以音乐为中心的乐队企划去掉音乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来和你没啥话可说了，可以互相屏蔽了
+
+*****
+
+####  PDQ4  
+##### 8455#       发表于 2024-1-8 17:42
+
+手工蛋跑路真的会影响绫奈吗，之前推测都是wsd馋手工蛋赚太多因此把人踹了。
+
+滑坡的话会不会wsd要踹了所有不完全听自己指挥的人，绫奈都成鸡狗原案了，太打牌了还有自己想法不行。踹不动的就得想办法稳住<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

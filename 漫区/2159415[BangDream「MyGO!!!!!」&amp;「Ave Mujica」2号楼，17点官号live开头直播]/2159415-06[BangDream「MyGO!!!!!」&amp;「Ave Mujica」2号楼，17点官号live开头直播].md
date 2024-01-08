@@ -9312,3 +9312,72 @@ mygo巡演宣布了第一场有直播，我倒要看看b站这个号是打算赔
 
 不过，这么舍不得流量，再不行可以改官号嘛，要热度真不寒碜的
 
+
+*****
+
+####  -LYRE-  
+##### 8361#       发表于 2024-1-8 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576167&amp;ptid=2159415" target="_blank">0路人辛0 发表于 2024-1-8 15:10</a>
+我想到了一个更地狱的场景。万一啊，万一mujica动画没播完，但是剧情崩了，mygo独粉那种相切但又没法全切 ...</blockquote>
+本来贴吧nga那边就一堆mujica动画烂了就切割和mygo无关的高赞言论
+还有更火上浇油的“烂了就光速切割，母鸡卡的事关我们卖狗什么事；火了就光速联动，母鸡卡的成功是站在了卖狗的肩膀上”“mujica拍烂了不影响我mygo赢，mujica拍好了我mygo赢两次”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨德飞过去  
+##### 8362#       发表于 2024-1-8 15:46
+
+只能说笑了，你楼本就是贴吧nga眼中钉。这几天外溢后不知道多少人等着落井下石了属于是
+
+*****
+
+####  ddy2811  
+##### 8363#       发表于 2024-1-8 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576673&amp;ptid=2159415" target="_blank">harukage 发表于 2024-1-8 15:39</a>
+
+这楼mujica的浓度为什么会这么高？这两天话题还频频往两团对立上引导。按理来说这边的人先是因为mygo动画爆 ...</blockquote>
+因为MyGO正在消耗好感吧，而对长期关注企划者而言消耗得尤其大……
+
+*****
+
+####  御幸一也  
+##### 8364#       发表于 2024-1-8 15:48
+
+怎麼了，動畫還沒播的底邊團就不配有粉絲嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 8365#       发表于 2024-1-8 15:49
+
+分裂和对立撕逼也不是等号关系啊，全圈在一块才容易我拉你你拉我，然后绝望的轮回蕉笼手
+
+*****
+
+####  ddy2811  
+##### 8366#       发表于 2024-1-8 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576821&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 15:48</a>
+
+怎麼了，動畫還沒播的底邊團就不配有粉絲嗎</blockquote>
+wsd可能还真是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 8367#       发表于 2024-1-8 15:51
+
+当初动画把大箱改成路人A 
+不就没有现在的烦恼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8368#       发表于 2024-1-8 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">动画不播，游戏来个初祥前传剧情也行
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

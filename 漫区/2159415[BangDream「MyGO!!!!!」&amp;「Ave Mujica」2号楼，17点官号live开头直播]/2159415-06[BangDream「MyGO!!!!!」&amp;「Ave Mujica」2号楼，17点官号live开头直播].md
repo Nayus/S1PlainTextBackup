@@ -11119,3 +11119,38 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 根据独角兽新发的同性婚发言来推测，可能是结局想写女同结婚接吻被武士道阻止了，最后只留下了对戒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 8546#       发表于 2024-1-8 21:33
+
+编辑
+
+*****
+
+####  PDQ4  
+##### 8547#       发表于 2024-1-8 21:35
+
+ 本帖最后由 PDQ4 于 2024-1-8 21:38 编辑 
+
+谁戴戒指，这么奶的话我要先奶初睦祥三人戒指了，因为太超过被wsd禁止，正片要是没有戒指肯定是被删掉了，请支持我们幼驯染三人组，还原女女关系性真相<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 8548#       发表于 2024-1-8 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581175&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 21:25</a>
+根据独角兽新发的同性婚发言来推测，可能是结局想写女同结婚接吻被武士道阻止了，最后只留下了对戒 ...</blockquote>
+谁和谁戴戒指，这很关键<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 8549#       发表于 2024-1-8 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581169&amp;ptid=2159415" target="_blank">HANDAIYV 发表于 2024-1-8 21:25</a>
+艹，在z8看见，今天七点半，羊发了关于tvlive和6th演出的消息，但6th的时间打错了，现在这条推已被删了，不 ...</blockquote>
+看来烤羊还是有效果的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

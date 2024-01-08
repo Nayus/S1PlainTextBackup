@@ -2639,3 +2639,20 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 这就是欧洲人 非萌落泪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新昨天不是出了卑弥呼了么 装什么非
 
+
+*****
+
+####  eilot  
+##### 10755#       发表于 2024-1-8 21:33
+
+活動何時才會給獸職...而伊莉沙伯又來新的惡搞職業?
+
+*****
+
+####  千叶铁矢  
+##### 10756#       发表于 2024-1-8 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581083&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-8 21:15</a>
+兽尼要是打额外职介是白字我就当她真超模 泛用不是被水C呆爆杀么</blockquote>
+一定要说的话打6骑有些特别难特攻的可以上兽尼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

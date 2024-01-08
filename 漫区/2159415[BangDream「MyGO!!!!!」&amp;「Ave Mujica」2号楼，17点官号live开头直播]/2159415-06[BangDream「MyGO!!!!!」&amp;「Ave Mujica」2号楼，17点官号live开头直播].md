@@ -10018,3 +10018,116 @@ wsd如果今年7月播🐔那合号还好说，明年1月我只能说你们可�
 还有更火上浇油的“烂了就光速切割，母 ...</blockquote>
 mygo怎么可能赢两次？😂从动画上一切的缘起C团都是祥子这个AM立德一手建的，那些名场面冲突，也在她们中间，两部还有13集这个巨明显的断章衔接在一起，出了剧情问题肯定是一损俱损，根本不能像马娘3那么切割，而官号合并加剧了出现这种状况的时的滑稽感
 
+
+*****
+
+####  cindy355  
+##### 8431#       发表于 2024-1-8 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578088&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-8 16:57</a>
+
+也不算装死吧，确实啥也端不出来那也活不了啊鸡团那时候真有东西发至于拿那几个小动画整活么……
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">本该他拿出来货维持粉丝热度的时候他长期什么都端不出来，这是他自己的问题，所以我只能称之为装死了（我知道Y站也没货）。
+
+*****
+
+####  Kasroz  
+##### 8432#       发表于 2024-1-8 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578088&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-8 16:57</a>
+也不算装死吧，确实啥也端不出来那也活不了啊鸡团那时候真有东西发至于拿那几个小动画整活么……
+
+ ...</blockquote>
+mygo播放结束后邦邦企划内部多半发生过重大变故，这几个月的宣传和活动根本不符合商业利益
+
+*****
+
+####  凡人  
+##### 8433#       发表于 2024-1-8 17:04
+
+虽然我没看过无职，但我印象中好像是第2季成绩更好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 8434#       发表于 2024-1-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578222&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-8 17:04</a>
+
+虽然我没看过无职，但我印象中好像是第2季成绩更好啊</blockquote>
+单论bangumi评分，是7.8-8.3-7.2的分数，也就是第二季第一部分甚至比邦二邦三还差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 8435#       发表于 2024-1-8 17:09
+
+运营：🐔🐶能一起看很好吧
+现实
+mujica粉：今天也没🐔啊 mygo粉：今天也没迷子啊
+所以b都有合作投稿为什么还要俺寻思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 8436#       发表于 2024-1-8 17:09
+
+ 本帖最后由 rslika 于 2024-1-8 17:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576502&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 15:30</a>
+
+都敢在邦待遇问题上提d5j还当成正面例子举了，就别装邦姨姥了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我是线下live粉，邦手游和动画怎么说实话我不在乎
+
+日本放弃管控后我的活动安排是越来越满的，所以我对母鸡卡的未来还挺乐观的
+
+*****
+
+####  PDQ4  
+##### 8437#       发表于 2024-1-8 17:10
+
+泥漏走向往我看不懂的方向发展了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 8438#       发表于 2024-1-8 17:10
+
+重大变故就是CE跑路了，上个月听起来还没什么影响，这新春发表会后问题就来了
+
+*****
+
+####  cindy355  
+##### 8439#       发表于 2024-1-8 17:11
+
+说到这里突然想了解一下以前邦邦的团内端水水平（我以前推过hhw后来退坑了，只能草草说一下自己的印象）
+
+ppp: 感觉rimi前期稍微有点边缘化，后期故事有挽尊，不过ppp整体来说感觉没有特别明显的主要矛盾所以也没有特别明显的角色主次之分
+
+hhw: hgm在故事性上有点边缘人，其他水端得都相对比较稳，kn前期明明在卖美咲花音结果后面查无此cp了不过算不上边缘，大学篇还炒了一手千圣同居
+
+r: 虽然有ykn和sayo这对顶级压力高手，但是她们俩的压力恰好也是r组成团时的主要矛盾，因此在扮黑脸之余也仍然是被塑造的主角，ako前期虽然天天被喷但这种剧情确实也能吸粉
+
+pp和ag当年推的时候不熟悉
+
+回到狗团，立希现在的问题果然还是既扮了黑脸同时她也不参与故事中的主要矛盾吧，祥子则是显然是mujica主要矛盾的参与者，因此还未来可期，立希只能说是支线了。
+
+*****
+
+####  NODY  
+##### 8440#       发表于 2024-1-8 17:11
+
+mygo结束后的重大变故不就是工艺蛋跑路吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8441#       发表于 2024-1-8 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578283&amp;ptid=2159415" target="_blank">贝恩德塔 发表于 2024-1-8 17:08</a>
+单论bangumi评分，是7.8-8.3-7.2的分数，也就是第二季第一部分甚至比邦二邦三还差 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">评分可以参考，别拿来当论据。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

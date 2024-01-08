@@ -1763,3 +1763,50 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  musicat  
+##### 444#       发表于 2024-1-8 17:04
+
+才知道今年玩这么大啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  待宵  
+##### 445#       发表于 2024-1-8 17:05
+
+ 大友，真恶心
+
+*****
+
+####  暗黑能乐  
+##### 446#       发表于 2024-1-8 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578153&amp;ptid=2162354" target="_blank">最强惠酱 发表于 2024-1-8 17:01</a>
+大姐姐的外表，实际上只有2,3岁
+
+—— 來自 samsung SM-S9110, Android 14上的 S1Next-鵝版 v2.5.4 ...</blockquote>
+懂了，是美云
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  暗黑能乐  
+##### 447#       发表于 2024-1-8 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说，公兔子有噶蛋的说法吗
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nervpp  
+##### 448#       发表于 2024-1-8 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63227694&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2023-12-5 10:40</a>
+
+有可能粉主确实就是一只粉毛狗狗</blockquote>
+我看完pv第一感受也是“啊？今年这么超前，选动物做q娃？那……奶玫瑰能来客串吗？”（被拉走喂药）
+

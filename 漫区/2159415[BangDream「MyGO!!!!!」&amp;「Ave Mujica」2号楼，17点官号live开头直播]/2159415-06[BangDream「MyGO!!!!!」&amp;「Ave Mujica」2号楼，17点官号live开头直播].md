@@ -8063,3 +8063,116 @@ https://twitter.com/4nots1/status/1743619744329031759?t=VrjekWpRYTjc4D6FlvYgtA&a
 
 下一段我也不是添油加醋，简单来说就是说既然都想理性推断这个事了，能不能不要从用屁股来推断而是用脑子了。
 
+
+*****
+
+####  kangkangsama  
+##### 8250#       发表于 2024-1-8 13:23
+
+<blockquote>御幸一也 发表于 2024-1-8 13:21
+？我可沒說這個，還是說你覺得我說“ave mujica在給劇場版讓路” 直接就等於我在說 “武士道偏愛mygo”， ...</blockquote>
+对啊 产生了这样的误解对不起
+
+那漏油能不能澄清一下这个误解呢
+
+
+*****
+
+####  御幸一也  
+##### 8251#       发表于 2024-1-8 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574773&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:21</a>
+
+这是我没有解释的清楚
+
+我当然知道访谈是说动画
+
+是说就是从mygo来看游戏的剧情再演是需要接着动画的，动画 ...</blockquote>
+那麼，你有什麼見解說服一下我查資料得到的結論呢，讓我看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8252#       发表于 2024-1-8 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574798&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:23</a>
+
+对啊 产生了这样的误解对不起
+
+那漏油能不能澄清一下这个误解呢</blockquote>
+对啊 产生了这样的误解对不起
+
+我說了，滿意沒有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8253#       发表于 2024-1-8 13:25
+
+对mygo来说早日推出mujica比总集篇更有利都出来了。这是要开除猫希mygo籍？真就猫希不重要吗。<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 8254#       发表于 2024-1-8 13:27
+
+<blockquote>御幸一也 发表于 2024-1-8 13:23
+那麼，你有什麼見解說服一下我查資料得到的結論呢，讓我看看</blockquote>
+我是说漏油只说了动画制作的方面没有说到游戏制作的问题啊，并没有否认漏油说的动画制作部分
+
+mygo是动画播完游戏的动画剧情再演直接全篇一次性上线的
+
+所以我这里表达的是因为游戏制作出了问题，即使动画已经有一定完成度了，也因为游戏版本无法及时上线的而导致播出后移，而且这本身也只是一种可能性而已，我个人也认为实际状况更加复杂。
+
+*****
+
+####  kangkangsama  
+##### 8255#       发表于 2024-1-8 13:29
+
+<blockquote>御幸一也 发表于 2024-1-8 13:25
+对啊 产生了这样的误解对不起
+
+我說了，滿意沒有啊</blockquote>
+我表达的是 我产生了“漏油是在认为包括武士道对mygo存在着偏爱”这一误解
+
+是希望漏油能够澄清这一点 能表达一下这并不是误解 “漏油并没有在认为武士道有在偏爱mygo”
+
+*****
+
+####  御幸一也  
+##### 8256#       发表于 2024-1-8 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574843&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:27</a>
+
+我是说漏油只说了动画制作的方面没有说到游戏制作的问题啊，并没有否认漏油说的动画制作部分
+
+mygo是动画 ...</blockquote>
+怕你不知道，和你說一下，手遊是提前半年～一年開發活動的。
+
+如果你覺得手工蛋滾了馬上就有影響，我只能說你對這方面知識有點欠缺。
+
+何況邦多利的遊戲開發，你不會覺得那幾個東西很花時間要多花1年去做吧，不知道的還以為是全3D遊戲模型精細到馬娘水準呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8257#       发表于 2024-1-8 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574864&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:29</a>
+
+我表达的是 我产生了“漏油是在认为包括武士道对mygo存在着偏爱”这一误解
+
+是希望漏油能够澄清这一点 能 ...</blockquote>
+
+那麼你想我怎麼澄清，@everyone 武士道沒有在偏愛mygo 你們發散太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8258#       发表于 2024-1-8 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你们这些争论老实说，等ave live开起来不翻车的话，大家之后都会用脚投票。
+事实上，只看mygo的live动员人数，还不如去期待下ave
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

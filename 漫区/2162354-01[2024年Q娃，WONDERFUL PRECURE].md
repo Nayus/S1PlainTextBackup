@@ -1563,3 +1563,20 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 要说的话获得变成人类的能力后八成寿命也变成跟人类看齐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 你Q娃真要搞寿命论法Q星Q的设定不是更合适吗
 
+
+*****
+
+####  粉儿alice  
+##### 423#       发表于 2024-1-8 13:29
+
+能不能别学黑深残小鬼吗
+成人q娃成田大妈整这一出 结果也没有把三爷写死
+正片还能有本事吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a85982313  
+##### 424#       发表于 2024-1-8 13:32
+
+真狗变人啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这结局还变不变回去呢
+

@@ -10131,3 +10131,34 @@ mygo结束后的重大变故不就是工艺蛋跑路吗<img src="https://static.
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  jerryoq1  
+##### 8442#       发表于 2024-1-8 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576740&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 15:43</a>
+
+本来贴吧nga那边就一堆mujica动画烂了就切割和mygo无关的高赞言论
+
+还有更火上浇油的“烂了就光速切割，母 ...</blockquote>
+那个我看笑了都  多天真才会以为烂完了能切割阿 本来不满nga刷屏的就有不少了 还老被堵嘴 
+
+指望厨厨青蒜时能分清楚还不如指望wsd不搞傻逼操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8443#       发表于 2024-1-8 17:21
+
+怎么漏油总结下来感觉就是你邦💊
+
+真💊了能不能先把绫奈风味十足的母鸡卡动画吐出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 8444#       发表于 2024-1-8 17:21
+
+反正不管怎么样和原作是没有关系了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">优秀的原案照着抄都会有好成绩的
+

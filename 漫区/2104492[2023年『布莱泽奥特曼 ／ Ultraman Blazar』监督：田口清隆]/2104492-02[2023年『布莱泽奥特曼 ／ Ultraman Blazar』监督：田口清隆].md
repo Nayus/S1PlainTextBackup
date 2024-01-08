@@ -144,3 +144,23 @@ nb
 
 是不是这周马来就有最后一集
 
+
+*****
+
+####  楠城旧篱  
+##### 1594#       发表于 2024-1-8 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575550&amp;ptid=2104492" target="_blank">Sliurus 发表于 2024-1-8 14:26</a>
+
+是不是这周马来就有最后一集</blockquote>
+大概是的（悲）
+
+*****
+
+####  豚厨二象性  
+##### 1595#       发表于 2024-1-8 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63560116&amp;ptid=2104492" target="_blank">上坂莲华 发表于 2024-1-7 01:27</a>
+日本小破球2啥时候上映的来着</blockquote>
+超级行星推进器
+

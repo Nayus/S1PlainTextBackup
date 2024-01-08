@@ -541,3 +541,89 @@ woc
 
 随时切换还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 3377#         楼主| 发表于 2024-1-8 23:46
+
+OP2：[https://youtu.be/CmqwKh_mQBg](https://youtu.be/CmqwKh_mQBg)
+
+ED2：[https://youtu.be/6dCIeiN2Rfk](https://youtu.be/6dCIeiN2Rfk)
+
+第二季度共12话（全三卷共24话）
+
+Blu-ray BOXの第1巻が
+
+2024年5月29日に発売決定
+
+毎巻キャラクター原案：#neco さん
+
+コフィンデザイン： #形部一平 さん
+
+描き下ろし収納BOX仕様！！
+
+第1巻には両名描き下ろしの
+
+全巻収納BOXも収録！
+<img src="https://p.sda1.dev/15/2a3ade7f1467004a5e6752cb437589af/20240108_233315.jpg" referrerpolicy="no-referrer">
+
+Blu-ray BOX封入特典に
+
+シエル役 #青山なぎさ さんが
+
+ランティスの名曲をカバーしたCD収録！
+
+第1巻は「God knows…」
+
+「Super Driver」の2曲💿
+
+1巻収録の #鴨志田一 さん
+
+書き下ろし小説「SYNDUALITY CIEL」で
+
+カバーまでの話も明かされます
+<img src="https://p.sda1.dev/15/df3deba3129329d0654c7d6e3105ac3d/20240108_233320.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/8926f8d0a408c259cd092d471852021a/20240108_233321.jpg" referrerpolicy="no-referrer">
+
+2024年5月29日に発売の
+
+Blu-ray BOX第1巻の法人特典と
+
+各法人描き下ろしイラストを公開✨
+
+【対象店舗】
+
+▼A-on STORE/プレミアムバンダイ
+
+▼Amazon.co.jp
+
+▼アニメイト
+
+▼楽天ブックス
+
+▼ヨドバシカメラ
+<img src="https://p.sda1.dev/15/b53e0938c3fcef6e7f43835858a8e8cb/20240108_233555.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/e80c6761b394dd24432f99286a5b52b1/20240108_233556.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b2a09b073e7cf929f18ff39d49e0f8ce/20240108_233557.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/ea395d5a9a8ffaeee3f1094e39fcefcd/20240108_233558.jpg" referrerpolicy="no-referrer">
+
+#SYNDUALITY シリーズ世界の
+
+成り立ちにせまる公式小説
+
+『はじまりの青 シンデュアリティ：ルーツ』が
+
+創元SF文庫より発売決定！
+
+著者は本作SF考証を務め
+
+『機動戦士ガンダム 水星の魔女』の
+
+SF考証でも知られる高島雄哉さん。
+
+イラストはキャラクター原案
+
+#necoさん ！お楽しみに✨
+<img src="https://p.sda1.dev/15/d8f666c682316865252f662391a0a7f0/20240108_233624.jpg" referrerpolicy="no-referrer">
+

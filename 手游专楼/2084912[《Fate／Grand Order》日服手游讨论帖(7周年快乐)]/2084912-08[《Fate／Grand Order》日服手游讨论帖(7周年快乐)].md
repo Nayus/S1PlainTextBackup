@@ -2688,3 +2688,20 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 都是幻觉 你出的才是真实（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我这还不如幻觉
 
+
+*****
+
+####  exiaexa  
+##### 10760#       发表于 2024-1-8 22:20
+
+兽尼和水C呆看你怎么定位的
+
+你的定位是特攻手，那兽尼小优，主要是没那么多人类威胁给水C呆特攻，但是七骑遍地走
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你的定位是不管打啥我都要上的常规解，那C呆兜底好一点，毕竟现在是真的会给你ex职业打的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+悲剧的地方在于绝大部分时候这俩都是被金时大哥按着摩擦
+<img src="https://static.saraba1st.com/image/smiley/face2017/269.png" referrerpolicy="no-referrer">
+

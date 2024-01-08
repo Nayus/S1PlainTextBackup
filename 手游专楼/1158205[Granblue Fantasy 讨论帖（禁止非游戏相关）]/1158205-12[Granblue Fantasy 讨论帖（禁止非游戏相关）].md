@@ -92,3 +92,15 @@ kmr：让他们骂去吧，节后不还是涨
 
 小福：我就说他们会乖乖坐牢刷的，香槟开起来，这才是真的节后涨
 
+
+*****
+
+####  windlikeman  
+##### 17588#       发表于 2024-1-8 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说你们不想打90和95？
+
+坐牢选手入局 然后带动分数线让个排玩家一起卷
+
+略施小计 略施小计
+

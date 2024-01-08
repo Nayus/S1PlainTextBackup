@@ -9173,3 +9173,85 @@ B站合号是烂棋起码在小范围内共识是有了吧？
 
 本分离主义者再次提出分楼的建议，非得挤在同一个专楼么
 
+
+*****
+
+####  6030sylar  
+##### 8347#       发表于 2024-1-8 15:24
+
+有什么好分的，要不要一集开一楼
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Toki_Ai  
+##### 8348#       发表于 2024-1-8 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">就吵这两天分它干啥
+
+*****
+
+####  kangkangsama  
+##### 8349#       发表于 2024-1-8 15:27
+
+还是能期待一下27号的 
+
+*****
+
+####  -LYRE-  
+##### 8350#       发表于 2024-1-8 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576123&amp;ptid=2159415" target="_blank">rslika 发表于 2024-1-8 15:07</a>
+
+新粉丝了解一下这些历史和事情全貌应该会好很多</blockquote>
+都敢在邦待遇问题上提d5j还当成正面例子举了，就别装邦姨姥了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+IMG_20240108_152600.jpg
+(111.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 15:30 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/153050vi99909p0z9z7c0c.jpg" referrerpolicy="no-referrer">
+
+IMG_20240108_152624.jpg
+(437.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 15:30 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/153051h4hhekf6kau26edm.jpg" referrerpolicy="no-referrer">
+
+IMG_20240108_152816.jpg
+(680.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 15:30 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/153052fupx4uz74un9pekx.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 8351#       发表于 2024-1-8 15:30
+
+分不分楼倒是还好，分号真的太有必要了，不分号那就是长期的折磨了。
+
+*****
+
+####  Tucsria  
+##### 8352#       发表于 2024-1-8 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画都没播  还想让漫区少一楼
+
+*****
+
+####  ytttsuuuba  
+##### 8353#       发表于 2024-1-8 15:31
+
+还是期待一下明年1月吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少不是贷款，实打实的有个动画看。
+

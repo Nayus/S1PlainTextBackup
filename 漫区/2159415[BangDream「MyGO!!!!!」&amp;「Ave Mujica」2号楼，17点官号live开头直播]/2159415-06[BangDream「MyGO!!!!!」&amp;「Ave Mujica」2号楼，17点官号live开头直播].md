@@ -7568,3 +7568,66 @@ mygo的成團故事，所有問題到第10話就全解決了，剩下3話監督�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么激进不是纯纯给自己找麻烦吗
 
+
+*****
+
+####  御幸一也  
+##### 8200#       发表于 2024-1-8 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63573989&amp;ptid=2159415" target="_blank">HANDAIYV 发表于 2024-1-8 12:14</a>
+
+真10集结束到底是没东西写还是有东西不想写，剧场版里新加的猫猫的故事还立希的感受是现在硬编的吗，那非说 ...</blockquote>
+但我看訪談本來就覺得監督和綾奈好像真的偏愛ave<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8201#       发表于 2024-1-8 12:16
+
+ 本帖最后由 Aendst 于 2024-1-8 12:22 编辑 
+
+ep13本来就是这么安排的 <blockquote>もっと言うと、第11話がMyGO!!!!!の最終話で、第12話はエピローグの感覚です。</blockquote>
+监督都明说11是最终话，12甚至是尾声
+
+ep13占什么mygo戏份？按照这个制作思路13前半mygo的戏份反而是额外做的
+
+*****
+
+####  Kasroz  
+##### 8202#       发表于 2024-1-8 12:17
+
+既然大发表会发布了档期，mujica主场的1st多半会发布更详细一点的消息，到时候看绫奈会不会转<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 8203#       发表于 2024-1-8 12:18
+
+我的问题，我叠了个屁的甲，还是吵起来了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 8204#       发表于 2024-1-8 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63573989&amp;ptid=2159415" target="_blank">HANDAIYV 发表于 2024-1-8 12:14</a>
+
+真10集结束到底是没东西写还是有东西不想写，剧场版里新加的猫猫的故事和立希的感受是现在硬编的吗，那非说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你最好祈祷一下后面那句话不是事实
+
+*****
+
+####  御幸一也  
+##### 8205#       发表于 2024-1-8 12:19
+
+剛爬完5廁，日本人也覺得綾奈完全不宣傳很怪，退追這些都當發散和滑坡，但現在的綾奈不提你邦真的是正常的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 8206#       发表于 2024-1-8 12:23
+
+有祥子这个人在前面的剧情里存在着 如果没有第十三集 那就是一桩纯纯的悬案 不满的人更多
+

@@ -1525,3 +1525,14 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
  狗的平均寿命是10年，按照抓心设定Q娃理论上是会正常衰老的，只是在变身的时候能恢复全盛期的力量 也就是说 ...</blockquote>
 大概率是妖精啥的只是长得像狗
 
+
+*****
+
+####  pokemon最爱  
+##### 420#       发表于 2024-1-8 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63573894&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-1-8 12:08</a>
+
+大概率是妖精啥的只是长得像狗</blockquote>
+按目前介绍来说女主真的就只是只普通的蝴蝶犬获得了Q娃力量而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

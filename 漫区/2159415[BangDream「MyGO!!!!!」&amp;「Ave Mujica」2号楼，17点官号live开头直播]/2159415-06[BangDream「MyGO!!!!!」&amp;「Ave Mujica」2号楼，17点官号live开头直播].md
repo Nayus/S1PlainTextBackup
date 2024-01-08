@@ -7132,3 +7132,32 @@ mygo剧场版总集篇的确挺差的，除了加了猫视角(立希未知）外
 
 你wsd也没想好好卖🐔的谷子啊，就那三四张图卖大半年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  本间日阳  
+##### 8163#       发表于 2024-1-8 11:01
+
+<img src="https://img.saraba1st.com/forum/202401/08/105828qdequgrqtq995zdz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (415.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 10:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">日本人肯定也有黑屁的啊，推特搜搜就看到了。
+
+这截图上面大部分还是站在反对黑屁一方的推文，因为黑屁方一般不会说得这么公开，比较难搜。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这部分提到的待遇争论基本上是mygo和老团之间的问题，属于车轱辘过很多次的话题，不是楼友比较关心的mygo和mujica的待遇问题。
+
+*****
+
+####  swessia  
+##### 8164#       发表于 2024-1-8 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63572567&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-8 10:39</a>
+
+虽然13集断章让人尖叫抓挠还占了mygo戏份，确实是屎一样的操作，但是从商业角度如果13集鸡没那些戏份，靠12 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">所以为什么现在睦的谷价这么贵，就因为长的好看吗
+

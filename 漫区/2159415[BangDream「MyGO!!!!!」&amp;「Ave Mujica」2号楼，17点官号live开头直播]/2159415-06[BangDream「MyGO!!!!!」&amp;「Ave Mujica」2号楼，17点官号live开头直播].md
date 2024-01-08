@@ -11084,3 +11084,23 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 你邦好像本来就没什么专属的生日物料，就算是已经进了手游的角色，也只能喜提信泽的鬼图而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋干爆炸碱  
+##### 8542#       发表于 2024-1-8 21:14
+
+ 本帖最后由 笋干爆炸碱 于 2024-1-8 21:16 编辑 
+
+如果14日因为没有实装游戏可以不用获得鬼图一张，也是好事<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">但是这也同样意味着没有生日语音……
+
+*****
+
+####  HazukiShion  
+##### 8543#       发表于 2024-1-8 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579988&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-8 19:29</a>
+
+如果剧本没改只是压着不放的话，绫奈为什么会有现在的反应</blockquote>
+说不定是大方向没改，但改了些独角兽特别在意的东西，比如女女关系性。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

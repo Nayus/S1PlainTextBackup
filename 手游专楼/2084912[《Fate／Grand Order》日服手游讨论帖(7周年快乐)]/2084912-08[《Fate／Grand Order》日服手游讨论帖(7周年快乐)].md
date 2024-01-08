@@ -2610,3 +2610,21 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 
 可能制作组真觉得兽尼有超格的地方吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 10752#       发表于 2024-1-8 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">兽尼要是打额外职介是白字我就当她真超模 泛用不是被水C呆爆杀么
+
+*****
+
+####  alucardcz  
+##### 10753#       发表于 2024-1-8 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63571748&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-8 09:24</a>
+
+艹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧洲人 非萌落泪
+

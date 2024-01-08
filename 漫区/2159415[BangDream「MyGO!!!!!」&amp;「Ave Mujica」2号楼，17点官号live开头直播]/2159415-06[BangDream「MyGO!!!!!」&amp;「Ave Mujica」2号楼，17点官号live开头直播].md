@@ -10274,3 +10274,51 @@ bangumi评分可以参考，别拿来当论据。更何况你打多少分都影�
 
 滑坡的话会不会wsd要踹了所有不完全听自己指挥的人，绫奈都成鸡狗原案了，太打牌了还有自己想法不行。踹不动的就得想办法稳住<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穗波殊  
+##### 8456#       发表于 2024-1-8 17:43
+
+证明一部乐队偶像番可以不依赖音乐表现就可以好，你应该先掏出这样“音乐和演出做的烂但是成绩好”的例子来。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8457#       发表于 2024-1-8 17:43
+
+ 本帖最后由 Aendst 于 2024-1-8 17:50 编辑 
+
+手工蛋是做手游（智能手机应用开发）的，没有任何跨媒体业务，而且只做了邦
+
+绫奈是日本脚本家連盟的成员，一般业务来往应该是通过这个机构的[https://www.writersguild.or.jp/preface/index.html](https://www.writersguild.or.jp/preface/index.html)
+
+从逻辑上来说两者无关
+
+而且手工蛋跑路应该是早就有商讨的，不然不会这么快就交接
+
+*****
+
+####  NODY  
+##### 8458#       发表于 2024-1-8 17:45
+
+之前访谈似乎有提到过动画组和游戏那边还是有一定关联，比如沙绫去ring打工的设定是动画组提出然后工艺蛋采用的，所以独角兽的情况和工艺蛋有关系也不是没可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tucsria  
+##### 8459#       发表于 2024-1-8 17:45
+
+老害看鸡狗吵架特地来搅浑水，令人感动<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+可以看得出来老害在品味上和大部分霓虹人是一致的   难怪mygo在日本不火<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+诗超绊别再打成超诗绊了拜托<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 8460#       发表于 2024-1-8 17:48
+
+没打成诗朗诵已经很不错了，不要要求太高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

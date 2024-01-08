@@ -164,3 +164,22 @@ nb
 日本小破球2啥时候上映的来着</blockquote>
 超级行星推进器
 
+
+*****
+
+####  仟音一心  
+##### 1596#       发表于 2024-1-8 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575550&amp;ptid=2104492" target="_blank">Sliurus 发表于 2024-1-8 14:26</a>
+是不是这周马来就有最后一集</blockquote>
+马来西亚那边刚刚取消了本周的最后一集，也取消了今天的倒数第二集重播。
+
+*****
+
+####  仟音一心  
+##### 1597#       发表于 2024-1-8 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577799&amp;ptid=2104492" target="_blank">楠城旧篱 发表于 2024-1-8 16:40</a>
+大概是的（悲）</blockquote>
+不会了，圆谷应该知道了。
+

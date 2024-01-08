@@ -23698,3 +23698,61 @@ github项目页说明截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1165#       发表于 2024-1-9 03:47
+
+ 本帖最后由 Machinery 于 2024-1-9 03:48 编辑 
+
+Open-Vocabulary SAM
+
+交互式分割和识别2万个类别
+
+项目主页:https://www.mmlab-ntu.com/project/ovsam/
+
+github项目仓库:https://github.com/HarborYuan/ovsam
+
+hugface演示demo:https://huggingface.co/spaces/HarborYuan/ovsam
+
+CLIP和Segment Anything(SAM)模型是非常出色的视觉基础模型(VFM)，SAM在跨越各种领域的分割任务中表现出色，而CLIP则以其零样本识别能力而闻名
+
+本文介绍了将这两个模型整合为一个统一框架的深入探索，具体而言，本文引入了Open-Vocabulary SAM，这是一个受SAM启发的模型，旨在实现同时交互分割和识别，并利用两个独特的知识迁移模块:SAM2CLIP和CLIP2SAM，前者通过蒸馏和可学习的Transformer适配器将SAM的知识迁移到CLIP中，而后者则将CLIP的知识迁移到SAM中，增强其识别能力
+
+在各种数据集和检测器上进行了大量实验证明了Open-Vocabulary SAM在分割和识别任务中的有效性，显著优于简单组合SAM和CLIP的普通基线，此外，辅以图像分类数据训练，本文方法可以对大约22000个类别进行分割和识别
+
+<img src="https://img.saraba1st.com/forum/202401/09/034711zpszpzwq7yu7gsqw.jpg" referrerpolicy="no-referrer">
+
+<strong>51b52c39-f088-425c-8036-a1752cf6b5e4.jpg</strong> (140.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 03:47 上传
+
+Open-Vocabulary SAM通过类CLIP的真实世界识别拓展了SAM的分割能力，并大幅降低了计算成本，在COCO开放词汇基准测试中，它在物体识别的表现优于SAM和CLIP方法的组合
+
+<img src="https://img.saraba1st.com/forum/202401/09/034721kxptxxreft68euvs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-034613.jpg</strong> (91.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 03:47 上传
+
+Open-Vocabulary SAM融合了SAM和CLIP的知识，形成了一个统一架构，这个架构是通过SAM2CLIP实现的，SAM2CLIP将SAM的知识蒸馏迁移到CLIP中，而CLIP2SAM则利用CLIP的知识，与SAM的掩码解码器结合用于识别
+
+在训练过程中，SAM编码器作为教师网络，而SAM2CLIP则扮演学生网络的角色，将SAM的知识与CLIP对齐，CLIP2SAM将CLIP的知识迁移到SAM解码器，并在封闭和开放词汇设置中进行联合分割和分类
+
+演示demo
+
+<img src="https://img.saraba1st.com/forum/202401/09/034733dh3luq39e3zc2ciz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-034557.jpg</strong> (133.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 03:47 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

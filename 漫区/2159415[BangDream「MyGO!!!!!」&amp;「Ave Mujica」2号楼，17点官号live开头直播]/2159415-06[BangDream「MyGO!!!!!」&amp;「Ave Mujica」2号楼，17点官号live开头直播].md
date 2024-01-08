@@ -7753,3 +7753,93 @@ ep13占什么mygo戏份？按照这个制作思路13前半mygo的戏份反而是
 
 我个人角度当然认为wsd和制作组对mygo和ave都是一视同仁尽可能端平，剧场版提出补猫猫和立希的戏份也可能看出来，现在ave资源不好也是还没有到宣传期，但楼里wsd偏爱mygo之类的发散，那我发散一下制作组也无所谓吧
 
+
+*****
+
+####  Kasroz  
+##### 8221#       发表于 2024-1-8 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574240&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 12:34</a>
+你連真人live的東西都要她宣傳是不是有點強人所難，她只是一個做動畫的……
+
+現在是有新的動畫情報她毫無 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">主要是看推，绫奈好像是经常去看邦邦演唱会的，12th那么重要的live不去看就可能不只是和动画制作组有矛盾了
+
+*****
+
+####  御幸一也  
+##### 8222#       发表于 2024-1-8 12:42
+
+這 也不用你發散，我早就覺得監督和綾奈是祥廚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+還沒到宣傳期這句堵嘴的話是要用多久，貸款吃屎不可取，那貸款要糖就可以了嗎，完了，突然感覺真的共情立希廚了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 8223#       发表于 2024-1-8 12:45
+
+ 本帖最后由 滑稽Captain 于 2024-1-8 12:46 编辑 
+
+那只能借用日本人的话了“五团时期说PPP和Roselia优遇，动画二三期的时候说RAS优遇，现在说MyGO优遇，想必明年就要说AveMujica优遇了吧”“还有毛二力一直都不遇”
+
+*****
+
+####  Aendst  
+##### 8224#       发表于 2024-1-8 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574267&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 12:38</a>
+
+又不是没有先例，当然了别人通常是一年，你棒是一年零4个月
+
+—— 来自 Xiaomi M2012K11AC, Andro ...</blockquote>
+这一套连招下来确实像是有巨魔混在决策层里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8225#       发表于 2024-1-8 12:46
+
+而且現在樓友也沒貸款吃屎，就說現在出的兩首歌的PV，PPT就算了就當你其他都這樣，
+
+但一張新圖都沒，還重複用的演唱會視覺圖，難繃好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+話 題 輪 迴
+
+*****
+
+####  Sabbah  
+##### 8226#       发表于 2024-1-8 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">这么一看即使是泥潭在专楼里的话也还是和女性向同人创作论坛用户很有共同话语的
+
+*****
+
+####  HANDAIYV  
+##### 8227#       发表于 2024-1-8 12:48
+
+我又不是护着wsd，这操作确实离谱该骂，我不也说wsd没脑子，但发散到偏爱mygo真没必要，至于共情不共情随意吧
+
+*****
+
+####  NODY  
+##### 8228#       发表于 2024-1-8 12:50
+
+那监督和独角兽互相取关原因是一个推初祥一个推睦祥导致结局产生分歧，然后独角兽打输了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 8229#       发表于 2024-1-8 12:52
+
+可恶的睦祥人，我缺的这块初祥结婚谁给我补<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  御幸一也  
+##### 8230#       发表于 2024-1-8 12:52
+
+不是 你怎麼和昨天那位哥一樣，讓我看看哪裡發散到偏愛mygo了，好像是你自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

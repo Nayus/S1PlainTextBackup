@@ -7843,3 +7843,64 @@ ep13占什么mygo戏份？按照这个制作思路13前半mygo的戏份反而是
 
 不是 你怎麼和昨天那位哥一樣，讓我看看哪裡發散到偏愛mygo了，好像是你自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ganeid  
+##### 8231#       发表于 2024-1-8 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574227&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-8 12:33</a>
+
+然后断章一年半，台长能锐评一下这个操盘水平吗</blockquote>
+这倒没什么，隔壁缪水星虹全这么干的
+
+你们轮了半天的两季隔一年半中间插剧场版的操作，才是这个新企划里最保守的东西，剩下的突出一个自由<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8232#       发表于 2024-1-8 12:54
+
+ 本帖最后由 御幸一也 于 2024-1-8 12:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574398&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-8 12:50</a>
+
+那监督和独角兽互相取关原因是一个推初祥一个推睦祥导致结局产生分歧，然后独角兽打输了吗 ...</blockquote>
+綾奈幼馴染組都推，劇本他們一起搞的，監督和綾奈就我看訪談的感覺，是蠻有共識的，我還是不願意相信他們之間關係有問題，雖然互相退追了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8233#       发表于 2024-1-8 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574440&amp;ptid=2159415" target="_blank">ganeid 发表于 2024-1-8 12:53</a>
+
+这倒没什么，隔壁缪水星虹全这么干的
+
+你们轮了半天的两季隔一年半中间插剧场版的操作，才是这个新企划里 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两季隔长时间插个剧场版本身确实算不上自由
+
+真时尚我感觉还是有这个ep13和各方面宣发一份力的
+
+*****
+
+####  nebulanoby  
+##### 8234#       发表于 2024-1-8 12:59
+
+<img src="https://p.sda1.dev/15/f2a6b578f8efaff87394fd268d39d258/CMP_20240108125935061.jpg" referrerpolicy="no-referrer">
+
+https://twitter.com/4nots1/status/1743619744329031759?t=VrjekWpRYTjc4D6FlvYgtA&amp;s=19
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Anatoly  
+##### 8235#       发表于 2024-1-8 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574440&amp;ptid=2159415" target="_blank">ganeid 发表于 2024-1-8 12:53</a>
+
+这倒没什么，隔壁缪水星虹全这么干的
+
+你们轮了半天的两季隔一年半中间插剧场版的操作，才是这个新企划里 ...</blockquote>
+所以台长你的mygo吐槽大会今天能交吗（
+

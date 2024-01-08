@@ -1536,3 +1536,30 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 大概率是妖精啥的只是长得像狗</blockquote>
 按目前介绍来说女主真的就只是只普通的蝴蝶犬获得了Q娃力量而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 421#       发表于 2024-1-8 12:51
+
+ 本帖最后由 Sliurus 于 2024-1-8 12:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574088&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-1-8 12:22</a>
+
+按目前介绍来说女主真的就只是只普通的蝴蝶犬获得了Q娃力量而已</blockquote>
+我是不信Q娃棚会写到寿命论，史上第一个去世的Q娃
+
+查了下蝴蝶犬能活十二、三岁，大概只是条老狗<img src="https://static.saraba1st.com/image/smiley/carton2017/316.png" referrerpolicy="no-referrer">了
+
+*****
+
+####  pokemon最爱  
+##### 422#       发表于 2024-1-8 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574415&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-1-8 12:51</a>
+
+我是不信Q娃棚会写到寿命论，史上第一个去世的Q娃
+
+查了下蝴蝶犬能活十二、三岁，大概只是条老狗， ...</blockquote>
+要说的话获得变成人类的能力后八成寿命也变成跟人类看齐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你Q娃真要搞寿命论法Q星Q的设定不是更合适吗
+

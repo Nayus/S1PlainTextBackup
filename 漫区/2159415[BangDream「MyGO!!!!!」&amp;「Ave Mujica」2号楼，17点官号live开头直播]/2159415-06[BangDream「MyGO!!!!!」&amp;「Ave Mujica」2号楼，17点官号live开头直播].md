@@ -9914,3 +9914,42 @@ mygo观感不好的相当一部分来自动物朋友的各种骚操作，这个�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  御幸一也  
+##### 8420#       发表于 2024-1-8 16:43
+
+噓 這話可說不得，你敢有意見就是不團結<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+ave粉說幾句就會被掛切割，那麼讓我看看換ave icon時狗粉是怎麼說的
+
+*****
+
+####  江口夕  
+##### 8421#       发表于 2024-1-8 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577748&amp;ptid=2159415" target="_blank">HGenDs 发表于 2024-1-8 16:37</a>
+客观来说Mygo确实用演出掩盖了部分问题，但横向对比一下市面上的其它动画，能在角色关系性和剧情结构上做到 ...</blockquote>
+你说真实系故事？好的太多了最近的芙丽莲无职转生。虽然不是女女，但人和人关系写的不少。当然这些都不是3d的强项
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  HGenDs  
+##### 8422#       发表于 2024-1-8 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577888&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 16:45</a>
+你说真实系故事？好的太多了最近的芙丽莲无职转生。虽然不是女女，但人和人关系写的不少。当然这些都不是 ...</blockquote>
+先不说芙莉莲和mygo哪个关系性写得好，改编动画和原创动画压根就不是一个概念吧
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  贝恩德塔  
+##### 8423#       发表于 2024-1-8 16:51
+
+真的要谈fll和无职吗🤔
+

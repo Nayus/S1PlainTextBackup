@@ -7689,3 +7689,67 @@ ep13占什么mygo戏份？按照这个制作思路13前半mygo的戏份反而是
 剛爬完5廁，日本人也覺得綾奈完全不宣傳很怪，退追這些都當發散和滑坡，但現在的綾奈不提你邦真的是正常的 ...</blockquote>
 绫奈12th是不是就没发过推，5th记得是发过推的
 
+
+*****
+
+####  星空冻结  
+##### 8214#       发表于 2024-1-8 12:33
+
+全给你动画写完了我游戏剧情写什么？怎么这时候又不提动画就是游戏广告的事了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8215#       发表于 2024-1-8 12:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后断章一年半，台长能锐评一下这个操盘水平吗
+
+*****
+
+####  Kasroz  
+##### 8216#       发表于 2024-1-8 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">日本人有没有看到那个国人粉丝的问题，最关键的证据还是那个回答
+
+*****
+
+####  御幸一也  
+##### 8217#       发表于 2024-1-8 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574220&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-8 12:32</a>
+
+绫奈12th是不是就没发过推，5th记得是发过推的</blockquote>
+你連真人live的東西都要她宣傳是不是有點強人所難，她只是一個做動畫的……
+
+現在是有新的動畫情報她毫無反應，而看她推特只要她負責的動畫，有新情報基本上都會給點反應，何況是邦多利這種她深度參與的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 8218#       发表于 2024-1-8 12:37
+
+ 本帖最后由 nebulanoby 于 2024-1-8 12:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574220&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-8 12:32</a>
+绫奈12th是不是就没发过推，5th记得是发过推的</blockquote>
+那时候进鸡团主场了，有人质疑不发推的话，一句维护世界观就糊弄过去了（反而可以理解为在帮🐔预热）
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  江口夕  
+##### 8219#       发表于 2024-1-8 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574227&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-8 12:33</a>
+然后断章一年半，台长能锐评一下这个操盘水平吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是没有先例，当然了别人通常是一年，你棒是一年零4个月
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  HANDAIYV  
+##### 8220#       发表于 2024-1-8 12:38
+
+我个人角度当然认为wsd和制作组对mygo和ave都是一视同仁尽可能端平，剧场版提出补猫猫和立希的戏份也可能看出来，现在ave资源不好也是还没有到宣传期，但楼里wsd偏爱mygo之类的发散，那我发散一下制作组也无所谓吧
+

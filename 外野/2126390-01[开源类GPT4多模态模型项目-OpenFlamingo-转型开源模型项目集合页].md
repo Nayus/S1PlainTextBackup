@@ -23516,3 +23516,139 @@ SDXL因其多功能性和顶尖的图像质量已成为最好的开源文本到�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1163#       发表于 2024-1-9 02:56
+
+DenoisingViT
+
+去噪视觉Transformer
+
+项目主页:https://jiawei-yang.github.io/DenoisingViT/
+
+github项目仓库:https://github.com/Jiawei-Yang/Denoising-ViT
+
+本文深入探讨了视觉Transformer(ViT)中一个固有但微妙而重要的挑战:这些模型的特征图(feature maps)展现出了网格状的伪影(grid-like artifacts)，这严重损害了ViT在下游任务中的性能，这个问题的根本可以追溯到输入阶段的位置嵌入
+
+为了解决这个问题，提出了一种新颖的噪声模型(noise model)，适用于所有的ViT，具体而言，该噪声模型将ViT的输出分解为三个部分:一个不受噪声伪影影响的语义项，以及以像素位置为条件的两个与伪像相关的项，通过基于每个图像的神经场强制实现了跨视图特征一致性，实现了这种分解，这种基于每张图像的优化过程从原始的ViT输出中提取出无伪影的特征，为离线应用提供干净的特征
+
+为了扩展解决方案以支持在线功能，引入了一个可学习的去噪器(denoiser)，直接从未经处理的ViT输出中预测无伪影的特征，这展现出了对新数据的显著泛化能力，而无需进行基于每张图像的优化
+
+本文的两阶段方法，称为去噪视觉Transformer(DVT/Denoising Vision Transformers)，不需要重新训练现有的预训练ViT，并且可以立即应用于任何基于Transformer的架构
+
+在各种代表性的ViT(DINO、MAE、DeiT-III、EVA02、CLIP、DINOv2、DINOv2-reg)上评估了本文方法，广泛的评估表明，DVT提升了现有的SOTA通用模型在多个数据集上的语义和几何任务中的性能(+3.84 mIoU)，希望本文研究能够促使重新评估ViT的设计，特别是关于对位置嵌入的简单应用
+
+<img src="https://img.saraba1st.com/forum/202401/09/025604no9e9eh3fvfukt93.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-025159__01.jpg</strong> (722.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 02:56 上传
+
+DVT消除了几乎所有视觉Transformer(ViTs)中存在的视觉特征噪音伪影，使用一组代表性的ViTs作为示例，包括监督(例如DeiT-III，Auto-aug ViT)，重构(EVA-02)，自蒸馏(DINOv2，DINOv2-reg)和多模态(CLIP)算法
+
+上图: 每个图像三元组展示了一张输入图像，其对应的原始特征可视化图和经过DVT去噪的清晰特征图
+
+下图: 这些三元组依次显示了一个特征图，一个K-Means聚类图和中心区块(红色虚线)与图像中其他块的相似性图…
+
+观察噪点如何对聚类准确性和相似性产生对应负面影响，以及DVT如何有效解决这些问题，可视化图中的特征颜色是使用主成分分析(PCA/principle component analysis)生成的
+
+<img src="https://img.saraba1st.com/forum/202401/09/025611zrntw37ixfynudy7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-025215__01.jpg</strong> (496.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 02:56 上传
+
+ViTs中的位置编码影响
+
+(a)DINOv2 ViTs以及训练时使用和不使用位置编码的对比(“ViT”对比“ViT∗”)，展示了以下特征图:
+(1)标准的ViT处理
+(2)仅使用位置编码(PE)作为输入的ViT，强调了伪影的出现
+(3)不使用位置编码的ViT∗处理，显示了这些伪影的明显缺失
+在图中，“Patch”表示区块嵌入，“PE”表示位置嵌入
+
+(b)描述了ViT如何保留和传播位置编码
+
+(c) 尽管各个帧的上下文存在显著差异，伪影在图像中保持相对位置的一致性(中间行)，DVT有效去噪了这些伪影，如最后一行所示
+
+<img src="https://img.saraba1st.com/forum/202401/09/025618wb477wqowovjj0oj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-025238__01.jpg</strong> (578.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 02:56 上传
+
+DVT由一个两阶段的降噪工作流程组成
+
+在第一阶段，本文方法将一个裁剪图像的噪声特征分解为无噪声的语义项F，与输入无关且与位置相关的伪影项G，以及额外的残差项∆(左图)
+
+第二阶段，使用这些经过独立优化的干净特征训练一个具有泛化能力的降噪器(右图)
+
+<img src="https://img.saraba1st.com/forum/202401/09/025623tafhuqftqfsqhtit.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-025255__01.jpg</strong> (630.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 02:56 上传
+
+ViT输出特征和去噪特征的视觉分析
+
+(a)使用空白图像和猫图像作为输入，对DINOv2 ViT-base模型的所有层的特征图进行可视化，猫的特征图中的伪影与空白输入的特征图有很强的视觉相关性
+
+(b)对DINOv2 ViTs在不同层次上的分解伪影、原始特征和去噪特征进行可视化，观察到不同大小的ViTs中存在相似的模式
+
+(c)K-Means聚类结果和中心区块(红点)与其他区块的余弦相似度的可视化
+
+请注意，在去噪之后，特征图中的伪影减少，语义清晰度增强，从而改善了聚类结果和相似性对应关系
+
+<img src="https://img.saraba1st.com/forum/202401/09/025630n4mnwy4xhmxqwm3v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-025303__01.jpg</strong> (44.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 02:56 上传
+
+特征与空间位置相关性的对比，报告了网格特征与归一化区块坐标之间的最大信息系数(MIC/maximal information coefficient)
+
+<img src="https://img.saraba1st.com/forum/202401/09/025635bpg6t2sm2gxstwpg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-025313__01.jpg</strong> (322.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 02:56 上传
+
+DVT的定性表现，DVT改进了针对密集预测任务的不同预训练 ViT，报告了语义分割(VOC2012、ADE20K)与深度预测NYUd)任务上的性能最好的结果以粗体显示
+
+<img src="https://img.saraba1st.com/forum/202401/09/025645sgydr9p58hp48shq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-025327__01.jpg</strong> (692.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 02:56 上传
+
+涌现的物体发现能力
+
+展示了DVT学习的去噪器输出的定性结果，使用PCA和L2特征范数对特征进行可视化，比较了原始的ViT特征与去噪后的特征在不同算法下的差异，显而易见，DVT去噪后的特征在感兴趣的物体上显示出更高的特征范数，并减少了高范数(a、b)和低范数伪影(c、d)
+
+<img src="https://img.saraba1st.com/forum/202401/09/025650osaaevaas9fj276b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-025333__01.jpg</strong> (174.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 02:56 上传
+
+消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

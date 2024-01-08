@@ -8176,3 +8176,79 @@ mygo是动画 ...</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  星空冻结  
+##### 8259#       发表于 2024-1-8 13:35
+
+那我觉得ave先写几个好歌出来再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8260#       发表于 2024-1-8 13:36
+
+总集篇猫先不论，立希加戏越抹越黑的可能性还是有的，这就是立希的待遇带给我的自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 8261#       发表于 2024-1-8 13:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么总集篇的脚本是谁写的，要是把立希理解成双标添狗的水平
+
+*****
+
+####  kangkangsama  
+##### 8262#       发表于 2024-1-8 13:37
+
+<blockquote>御幸一也 发表于 2024-1-8 13:29
+怕你不知道，和你說一下，手遊是提前半年～一年開發活動的。
+
+如果你覺得手工蛋滾了馬上就有影響，我只能 ...</blockquote>
+游戏制作不止有munica，还有诸多其他活动和制作。ce滚蛋只是一个结果，实际矛盾肯定产生的更早。
+
+漏油说了
+
+手游是提前半年到一年开发工作的，那么在9月访谈的时间点（当然实际访谈的时间肯定早一点）。高尾她们是仍未知道后续，游戏处于本身肯定也是处于一个仍未完成的状态甚至游戏收录本身也是未在进行的，那么漏油所说的24年1月播出我认为还是比较艰难的。
+
+*****
+
+####  PDQ4  
+##### 8263#       发表于 2024-1-8 13:38
+
+漏油为何如此悲观，说好的下篇会写立希的努力，爱信等好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上杉打老虎  
+##### 8264#       发表于 2024-1-8 13:40
+
+8195L那条推的谷歌翻译第二句完全错了吧，应该是
+
+“因为是与作品也相关的问题……或者说个人愿望，将来得找个合适的机会自己说出来”
+
+*****
+
+####  kangkangsama  
+##### 8265#       发表于 2024-1-8 13:40
+
+<blockquote>御幸一也 发表于 2024-1-8 13:31
+那麼你想我怎麼澄清，@everyone 武士道沒有在偏愛mygo 你們發散太多了 ...</blockquote>
+因为漏油说“从屁股来觉得mujica是在给mygo剧场版”让路的确会产生这种误解啊。 前面也说了，本质就是在说不想讨论这个的时候屁股占据大脑。
+
+*****
+
+####  御幸一也  
+##### 8266#       发表于 2024-1-8 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574951&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:37</a>
+
+游戏制作不止有munica，还有诸多其他活动和制作。ce滚蛋只是一个结果，实际矛盾肯定产生的更早。
+
+漏油说 ...</blockquote>
+你有點搞笑了兄弟，9月的時候不知道後續，更大的可能難道不是因為她們還在配前面的話數嗎，
+
+你能發散到“遊戲處於未完成狀態”，酷喔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1580,3 +1580,19 @@ q娃本身就是给小友看的有bg戏不是很正常吗？河豚能不能别�
 
 真狗变人啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这结局还变不变回去呢
 
+
+*****
+
+####  花开安菲路  
+##### 425#       发表于 2024-1-8 13:36
+
+脑子得多不正常，才会在幼女动画里塞寿命论啊，有什么意义吗？
+都能变身q娃了，就不要用一般狗的常识去贷款了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 426#       发表于 2024-1-8 13:38
+
+Q娃死过生物吗？不包括化成灰消散
+

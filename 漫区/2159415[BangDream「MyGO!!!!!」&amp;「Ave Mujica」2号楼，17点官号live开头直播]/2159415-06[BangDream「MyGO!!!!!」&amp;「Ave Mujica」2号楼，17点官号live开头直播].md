@@ -7963,3 +7963,103 @@ https://twitter.com/4nots1/status/1743619744329031759?t=VrjekWpRYTjc4D6FlvYgtA&a
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  青蒜  
+##### 8241#       发表于 2024-1-8 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574649&amp;ptid=2159415" target="_blank">ganeid 发表于 2024-1-8 13:10</a>
+当然不能，敬请期待</blockquote>
+怎么又延期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 8242#       发表于 2024-1-8 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蒜  
+##### 8243#       发表于 2024-1-8 13:14
+
+我觉得最抽象的就是合并官号了，纯纯的逆天
+
+*****
+
+####  Kasroz  
+##### 8244#       发表于 2024-1-8 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574649&amp;ptid=2159415" target="_blank">ganeid 发表于 2024-1-8 13:10</a>
+当然不能，敬请期待</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 8245#       发表于 2024-1-8 13:15
+
+<blockquote>御幸一也 发表于 2024-1-8 12:52
+不是 你怎麼和昨天那位哥一樣，讓我看看哪裡發散到偏愛mygo了，好像是你自己
+
+ ...</blockquote>
+所以请问漏油能不能澄清一下大家的误解，你并没有在认为制作方（包括武士道）在偏爱mygo
+
+*****
+
+####  NODY  
+##### 8246#       发表于 2024-1-8 13:18
+
+虽然wsd确实弱智操作一堆，但合并官号这个大概不算他们的锅，大概率是国内负责管b站账号的工作人员觉得同时运营两个号麻烦或者舍不得热度所以自己给合了，日本那边还是老老实实分两个号的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8247#       发表于 2024-1-8 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574642&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:10</a>
+
+其实从配音，或者说声优拿到剧本推断动画播出时间，特别是mygo_mujica播出时间并不是一定正确的。
+
+从myg ...</blockquote>
+1. 但凡你看了那個聲優訪談，也不會來和我說可能拿的是遊戲的配音劇本。
+
+2. 呃 你怎麼又在添油加醋，不會是覺得昨天吵得不夠兇想再來一次吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+我只說了我覺得ave mujica動畫給劇場版讓路了，我什麼時候說ave被打壓了，有點搞笑，
+
+這程度差很多捏，你昨天還知道死摳一個“傾斜”字眼，這就不會說話了嗎？故意的？是和事佬還是引戰佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然後就是，你就說一個ave動畫壓著不播的好處嘛。現在就是壓著不播，然後先上劇場版。
+
+*****
+
+####  御幸一也  
+##### 8248#       发表于 2024-1-8 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574703&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:15</a>
+
+所以请问漏油能不能澄清一下大家的误解，你并没有在认为制作方（包括武士道）在偏爱mygo ...</blockquote>
+？我可沒說這個，還是說你覺得我說“ave mujica在給劇場版讓路” 直接就等於我在說 “武士道偏愛mygo”，有點呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那你大可說服一下我
+
+*****
+
+####  kangkangsama  
+##### 8249#       发表于 2024-1-8 13:21
+
+<blockquote>御幸一也 发表于 2024-1-8 13:18
+1. 但凡你看了那個聲優訪談，也不會來和我說可能拿的是遊戲的配音劇本。
+
+2. 呃 你怎麼又在添油加醋，不 ...</blockquote>
+这是我没有解释的清楚
+
+我当然知道访谈是说动画
+
+是说就是从mygo来看游戏的剧情再演是需要接着动画的，动画可以做好了，但是游戏没做好动画有可能还不能上线需要等有游戏的意思。
+
+下一段我也不是添油加醋，简单来说就是说既然都想理性推断这个事了，能不能不要从用屁股来推断而是用脑子了。
+

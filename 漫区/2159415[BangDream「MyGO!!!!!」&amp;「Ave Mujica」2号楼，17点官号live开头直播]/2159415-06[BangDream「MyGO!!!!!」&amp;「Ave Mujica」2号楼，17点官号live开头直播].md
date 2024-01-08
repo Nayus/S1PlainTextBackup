@@ -8572,3 +8572,103 @@ mujica动画延后是下下策，总集篇剧场版也不是优解。
 
 （这当然只是个人随意乱想，不要当真。但是即使剧场版，那也是mujica动画先播，然后出总集篇，最好上下两部总集篇，加一部mygo_mujica双团新剧场版，才是更好的做法。）
 
+
+*****
+
+####  jerryoq1  
+##### 8293#       发表于 2024-1-8 14:13
+
+滑坡不可怕 可怕的是滑坡成真  11月那次真人团主唱的for2024邦多利发布会 李子没参加  我也在群里口嗨过2024没ave mujica<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 8294#       发表于 2024-1-8 14:13
+
+母鸡卡动画也许长度达到二十六话，彻底疯狂
+
+*****
+
+####  kangkangsama  
+##### 8295#       发表于 2024-1-8 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575322&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 14:07</a>
+
+等等，漏油提醒我了，这位好像确实印象中没在1号楼见过，就连2号楼点开“只看他”都只有从2023.12.29才开 ...</blockquote>
+只允许泥楼漏油放火不允许豚漏漏油点灯是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然开玩笑了 的确自打脸了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8296#       发表于 2024-1-8 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575290&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-1-8 14:04</a>
+靠配音好坏判断，那我可以说高尾在游戏的配音远不如动画吗，看看游戏切片几分钟的事，游戏配音在动画之前不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这可不是好坏，素人和被人指导过的差别，发音都变了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  御幸一也  
+##### 8297#       发表于 2024-1-8 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575355&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 14:10</a>
+
+我也是觉得最迟也7月
+
+其实都认可mujica动画应该早就在做了，正常下来不可能明年一月播，本身肯定更早能 ...</blockquote>
+我一早就說了我想法，這不就是我長文最後一段嗎。
+
+根據屁股你可以覺得，ave mujica動畫出事所以劇場版是在“幫”續熱度，
+
+但我ave粉，我不會這樣覺得。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+因為目前這個時機點，我不認為動畫有出事。
+
+綾奈切割是另一回事，你們滑坡你們的，我一直都說<strong>現在還不必</strong>滑坡到劇本被改。
+
+*****
+
+####  ytttsuuuba  
+##### 8298#       发表于 2024-1-8 14:18
+
+B站官号合号这个，是真的下下策。顶着狗的头像，大部分发的也是狗的内容，然而我还要为了那一点点鸡的内容去关注他，太离谱了，厨狗的之前换了几次鸡的头像也表示过不满。而且为了人气的话，合号的时候我记得狗的粉丝数十万多，鸡也有五万了，到底是有什么必要，真的是骚操作。X上也好官网也好都没这么乱搞，就B站独一份。真心觉得分号才是最好的选择，鸡团那个号完全可以继续用，好好经营过十万粉不难，有什么消息互相之间转发一下的事。
+
+*****
+
+####  滑稽Captain  
+##### 8299#       发表于 2024-1-8 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575237&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 14:00</a>
+
+舅舅消息在哪，看看</blockquote>
+你可以选择不信，因为本质还是屁股大战，我不配去反驳你的加塞论，你也没法说服我的拖长战线论
+
+*****
+
+####  青叶假司  
+##### 8300#       发表于 2024-1-8 14:21
+
+进入到配音阶段剧本和脚本早就定死了 除非独角兽彻底切割另起炉灶
+
+*****
+
+####  鲍里斯  
+##### 8301#       发表于 2024-1-8 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575448&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-01-08 14:18:49</a>
+B站官号合号这个，是真的下下策。顶着狗的头像，大部分发的也是狗的内容，然而我还要为了那一点点鸡的内容 ...</blockquote>wsd可能觉得姐妹团这样整挺好的，没想到两边急着要切割呢。
+话说日本那边有像这边这样闹得这么对立吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ytttsuuuba  
+##### 8302#       发表于 2024-1-8 14:22
+
+那解释一下为什么动画发挥那么好的高尾，在几个关键场景语气都没表达到位呢。
+

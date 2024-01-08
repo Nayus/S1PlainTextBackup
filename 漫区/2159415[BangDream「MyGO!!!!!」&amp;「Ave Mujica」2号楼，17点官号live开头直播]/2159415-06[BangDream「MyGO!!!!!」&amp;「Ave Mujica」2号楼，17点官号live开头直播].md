@@ -10162,3 +10162,45 @@ mygo结束后的重大变故不就是工艺蛋跑路吗<img src="https://static.
 
 反正不管怎么样和原作是没有关系了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">优秀的原案照着抄都会有好成绩的
 
+
+*****
+
+####  贝恩德塔  
+##### 8445#       发表于 2024-1-8 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578346&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 17:12</a>
+
+bangumi评分可以参考，别拿来当论据。更何况你打多少分都影响不了本子。
+
+—— 来自 Xiaomi M2012 ...</blockquote>
+那无职s1和s2初动不都就那样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 8446#       发表于 2024-1-8 17:26
+
+是怎么混沌到聊无职的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+少拉其他动画吧，不管是为了踩还是为了立论都不可取
+
+*****
+
+####  贝恩德塔  
+##### 8447#       发表于 2024-1-8 17:27
+
+真要拿本子举例，就以走廊里那个三大评分榜里的anikore的评分来说，mygo的评分比s2和s3都低，而r团剧场版在bangdream企划里得分最高，是不是更加不合理了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8448#       发表于 2024-1-8 17:31
+
+ 本帖最后由 江口夕 于 2024-1-8 17:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578491&amp;ptid=2159415" target="_blank">贝恩德塔 发表于 2024-1-8 17:23</a>
+那无职s1和s2初动不都就那样吧而且本身拿人气论证关系性写的好也太oc了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我一直说的原作。你如果觉得剥离超诗绊春日影对独角兽不公平，那其实就对了，无职原作剥离动画老实说我丝毫不觉得不公平，随便剥。
+你感觉的这种不公平就是我说的独角兽依赖动画演出和音乐
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

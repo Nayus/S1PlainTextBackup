@@ -11066,3 +11066,13 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  笋干爆炸碱  
+##### 8540#       发表于 2024-1-8 20:54
+
+我可不敢相信睦生日能爆什么新物料<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+指望这个我不如去指望同人太太的生贺和结月发点小作文
+

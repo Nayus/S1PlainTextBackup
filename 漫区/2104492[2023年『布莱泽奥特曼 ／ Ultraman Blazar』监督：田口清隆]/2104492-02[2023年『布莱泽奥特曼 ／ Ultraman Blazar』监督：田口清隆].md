@@ -183,3 +183,14 @@ nb
 大概是的（悲）</blockquote>
 不会了，圆谷应该知道了。
 
+
+*****
+
+####  Sliurus  
+##### 1598#       发表于 2024-1-8 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578750&amp;ptid=2104492" target="_blank">仟音一心 发表于 2024-1-8 17:42</a>
+
+马来西亚那边刚刚取消了本周的最后一集，也取消了今天的倒数第二集重播。 ...</blockquote>
+那还好，大结局剧透就太伤了，毕竟田口宣传结局藏了东西
+

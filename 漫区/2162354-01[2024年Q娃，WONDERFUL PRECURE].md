@@ -1810,3 +1810,18 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 有可能粉主确实就是一只粉毛狗狗</blockquote>
 我看完pv第一感受也是“啊？今年这么超前，选动物做q娃？那……奶玫瑰能来客串吗？”（被拉走喂药）
 
+
+*****
+
+####  Sliurus  
+##### 449#       发表于 2024-1-8 17:58
+
+ 本帖最后由 Sliurus 于 2024-1-8 17:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578248&amp;ptid=2162354" target="_blank">暗黑能乐 发表于 2024-1-8 17:06</a>
+
+话说，公兔子有噶蛋的说法吗
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+真要说噶的话，猫狗不分公母都要阉的
+阉人Q娃
+

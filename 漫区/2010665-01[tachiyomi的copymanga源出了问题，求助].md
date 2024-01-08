@@ -2999,3 +2999,13 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 0.15.1有人试过吗？能用拷贝插件了吗？
 
+
+*****
+
+####  gaosf  
+##### 300#       发表于 2024-1-8 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575028&amp;ptid=2010665" target="_blank">charlespfan 发表于 2024-1-8 13:45</a>
+0.15.1有人试过吗？能用拷贝插件了吗？</blockquote>
+跟上个版本没区别，坛友版插件不显示，github版插件每次打开app会重新变成“不可信”。
+

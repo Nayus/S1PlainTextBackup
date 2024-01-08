@@ -10322,3 +10322,97 @@ bangumi评分可以参考，别拿来当论据。更何况你打多少分都影�
 
 没打成诗朗诵已经很不错了，不要要求太高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 8461#       发表于 2024-1-8 17:52
+
+ 本帖最后由 江口夕 于 2024-1-8 17:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578756&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-1-8 17:43</a>
+证明一部乐队偶像番可以不依赖音乐表现就可以好，你应该先掏出这样“音乐和演出做的烂但是成绩好”的例子来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你去看看游戏mygo然后来评价下就行了，我评价是一般般，特别是诗超绊那里
+顺便濑户口的musics,kirakira要玩吗，后者黄油空间85分日本人评的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aendst  
+##### 8462#       发表于 2024-1-8 17:57
+
+超诗绊有点好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8463#       发表于 2024-1-8 17:57
+
+yysy超诗绊是不是闪彩全责<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 8464#       发表于 2024-1-8 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578835&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 17:52</a>
+
+你去看看游戏mygo然后来评价下就行了，我评价是一般般，特别是诗超绊那里
+
+顺便濑户口的musics,kir ...</blockquote>
+黄油做成偶像番吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8465#       发表于 2024-1-8 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578902&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-8 17:57</a>
+yysy超诗绊是不是闪彩全责</blockquote>
+闪彩还有春日影呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  灵椿  
+##### 8466#       发表于 2024-1-8 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578835&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 17:52</a>
+你去看看游戏mygo然后来评价下就行了，我评价是一般般，特别是诗超绊那里
+顺便濑户口的musics,kir ...</blockquote>
+前面是直接把无职的小说和扣了音乐和演出的残缺的mygo动画比，现在又是把小说和游戏比，你能让绫奈把她作为脚本家的能力完全转换成作家，再在篇幅限制不大的情况下写几本mygo的小说出来对比一下嘛<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8467#       发表于 2024-1-8 17:59
+
+https://weibo.com/6470776556/4987841060538832<img src="https://p.sda1.dev/15/4149a80d586375e962933350d904c023/CMP_20240108175909252.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  harukage  
+##### 8468#       发表于 2024-1-8 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577649&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-8 16:32</a>
+因为企划厨很多是会关注三次元方面的，而邦邦“主唱是星星”，星星飘忽而暗淡而又没有什么补充，自然显得 ...</blockquote>
+这点确实很生草，三次元里的团魂简直被mujica薄纱，羊几乎查无此人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，每次可以秀团魂的时候看到羊什么动静都没就感觉mygo这个企划前途无亮
+
+*****
+
+####  贝恩德塔  
+##### 8469#       发表于 2024-1-8 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63578919&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-1-8 17:59</a>
+
+前面是直接把无职的小说和扣了音乐和演出的残缺的mygo动画比，现在又是把小说和游戏比，你能让绫奈把她作 ...</blockquote>
+况且小说和剥离了演出的纯粹脚本能比较，只能鉴定为胡搅蛮缠，我寻思吉野弘幸在魔禁三里的脚本水准能代换到其它作品吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 8470#       发表于 2024-1-8 18:02
+
+绫奈是动画脚本不是黄油脚本，这不就说明绫奈的写作能利用上这些音画演出吗。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">难道动画脚本利用音画资源是一件丢人的事情吗。你就举一部音乐做的很差但还是大卖的乐队动画呗，我就相信脚本能和音画演出切割。
+

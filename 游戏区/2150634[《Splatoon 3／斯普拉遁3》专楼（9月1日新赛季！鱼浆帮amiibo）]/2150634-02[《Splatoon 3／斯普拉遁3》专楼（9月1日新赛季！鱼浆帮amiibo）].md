@@ -8452,3 +8452,13 @@ uu6.6折优惠秒没？
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  晴岚  
+##### 2352#       发表于 2024-1-8 13:09
+
+绝对是美好回忆，就像之前3代是螃蟹大战一样，2代不就是水枪互射，现在新入坑打2代最大的问题还是练级会很痛苦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

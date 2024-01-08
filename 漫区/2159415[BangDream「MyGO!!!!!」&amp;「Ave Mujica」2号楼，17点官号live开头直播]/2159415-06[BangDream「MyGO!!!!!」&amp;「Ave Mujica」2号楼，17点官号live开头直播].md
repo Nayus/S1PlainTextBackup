@@ -7904,3 +7904,62 @@ https://twitter.com/4nots1/status/1743619744329031759?t=VrjekWpRYTjc4D6FlvYgtA&a
 你们轮了半天的两季隔一年半中间插剧场版的操作，才是这个新企划里 ...</blockquote>
 所以台长你的mygo吐槽大会今天能交吗（
 
+
+*****
+
+####  ganeid  
+##### 8236#       发表于 2024-1-8 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574516&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-8 12:59</a>
+
+两季隔长时间插个剧场版本身确实算不上自由
+
+真时尚我感觉还是有这个ep13和各方面宣发一份力的 ...</blockquote>
+13看完我就在想，mggm你不管一管你下面的人吗，你到底要推哪个团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 8237#       发表于 2024-1-8 13:10
+
+<blockquote>御幸一也 发表于 2024-1-8 11:07
+調理得差不多了，重新梳理下我的觀點。
+
+先說我想說的：
+</blockquote>
+其实从配音，或者说声优拿到剧本推断动画播出时间，特别是mygo_mujica播出时间并不是一定正确的。
+
+从mygo制作来看就能明白mygo声优们是需要配两个版本的配音的，一个游戏一个动画。而从mygo来看游戏的mygo剧情再演也是和动画剧情无缝连接直接十月就上线的。
+
+要说的话的确可以得出一个不是动画制作方面而是游戏制作方面出了什么问题（结合武士道和ce的制作体制改变来看）导致了整体企划的一个后移。当然这也只是根据现有情报得出的推断之一罢了。
+
+屁股问题我还是觉得至少武士道为了捧mygo所以要延后mujica动画甚至打压mujica这种推论的逻辑性是比较弱的。我是认为即使是对mygo来说mujica动画片早出快出是比所谓的总集篇剧场版要更为有利的。二一个这也和“13集作为mujica第0集”出现的整体创作思路和企划推进思路是相悖的，鸡狗本身也只有mggm和算新的根本两个主要企划人，不存在什么别的势力加入临时企划转头的情况。
+
+*****
+
+####  阿斯顿氢气球  
+##### 8238#       发表于 2024-1-8 13:10
+
+<blockquote>ganeid 发表于 2024-1-8 13:08
+13看完我就在想，mggm你不管一管你下面的人吗，你到底要推哪个团</blockquote>
+一个团推一年
+
+*****
+
+####  ganeid  
+##### 8239#       发表于 2024-1-8 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574539&amp;ptid=2159415" target="_blank">Anatoly 发表于 2024-1-8 13:02</a>
+
+所以台长你的mygo吐槽大会今天能交吗（</blockquote>
+当然不能，敬请期待<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cauchua2  
+##### 8240#       发表于 2024-1-8 13:12
+
+所以本群楼24 年的主题是独角兽真爱楼？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

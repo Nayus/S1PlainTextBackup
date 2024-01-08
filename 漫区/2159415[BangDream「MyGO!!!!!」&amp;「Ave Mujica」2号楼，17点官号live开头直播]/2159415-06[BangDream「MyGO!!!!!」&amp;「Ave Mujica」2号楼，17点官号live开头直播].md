@@ -10726,3 +10726,42 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 —— 来自 Xiaom ...</blockquote>
 就是因为以前没人这么写过所以mygo才新鲜啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 8505#       发表于 2024-1-8 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579437&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-1-8 18:42</a>
+就是因为以前没人这么写过所以mygo才新鲜啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还不是因为大家厨力放出，要不要换隔壁p9给你整一手估计你立马退票切割了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  穗波殊  
+##### 8506#       发表于 2024-1-8 18:45
+
+换句话说，如果诗超绊没作为解决问题的手段，live再好也只会评价是一部团魂包饺子的量产偶像番。再好能好的过偶像大师吗
+
+*****
+
+####  滑稽Captain  
+##### 8507#       发表于 2024-1-8 18:49
+
+但是我心危动画开头那个sponsor里真的有wsd（
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  江口夕  
+##### 8508#       发表于 2024-1-8 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579476&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-1-8 18:45</a>
+换句话说，如果诗超绊没作为解决问题的手段，live再好也只会评价是一部团魂包饺子的量产偶像番。再好能好的 ...</blockquote>
+那不就是了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">本来大家占的比重都挺大，独角兽没了留个原案，顶多没那么扭曲了，总体不会太差，除非那原案本身g了，不过看独角兽自己挺满意的姑且相信没问题吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

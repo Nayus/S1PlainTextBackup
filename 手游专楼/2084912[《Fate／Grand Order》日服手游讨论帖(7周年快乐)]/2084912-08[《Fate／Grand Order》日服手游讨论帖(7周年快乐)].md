@@ -2556,3 +2556,15 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 还说你不是欧狗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也配欧么 我宁可出提妈
 
+
+*****
+
+####  exiaexa  
+##### 10746#       发表于 2024-1-8 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63572084&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-8 09:55</a>
+
+这也配欧么 我宁可出提妈</blockquote>
+没区别，上场率卧龙凤雏
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

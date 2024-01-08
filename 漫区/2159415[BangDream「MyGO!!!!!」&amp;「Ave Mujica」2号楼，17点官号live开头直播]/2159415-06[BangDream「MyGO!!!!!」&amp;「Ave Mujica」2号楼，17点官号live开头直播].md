@@ -9255,3 +9255,60 @@ IMG_20240108_152816.jpg
 
 还是期待一下明年1月吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少不是贷款，实打实的有个动画看。
 
+
+*****
+
+####  ytttsuuuba  
+##### 8354#       发表于 2024-1-8 15:33
+
+只希望B站分号，mujica的号捡起来继续用。
+
+*****
+
+####  harukage  
+##### 8355#       发表于 2024-1-8 15:39
+
+这楼mujica的浓度为什么会这么高？这两天话题还频频往两团对立上引导。按理来说这边的人先是因为mygo动画爆了才聚集在这里的，mujica作为还没放送的新团怎么就有死忠粉对mygo毫无好感迅速快进到两团撕逼环节了
+
+*****
+
+####  ztl44  
+##### 8356#       发表于 2024-1-8 15:41
+
+惊了，只能说误入此楼 这就是粉圈吗连官方账号叫什么都要管，有管人痴那个味道了
+
+*****
+
+####  江口夕  
+##### 8357#       发表于 2024-1-8 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我觉得吧，你们不如先让老粉把独角兽以前的水平给你们讲讲，这件事情，在老粉眼里其实并不完全是坏事。
+再去回忆下动画，你会发现脱离了阿祥，整个动画就是空中楼阁，几乎是大祥抗着所有剧情在走，所有人的重力全在往大祥身上丢。
+3.7.10话也极度依赖春日影和超诗绊的演出，不如说是合格的演出成就了独角兽这个脚本。
+然后再看看单独脚本水平，其实就那么回事。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aendst  
+##### 8358#       发表于 2024-1-8 15:41
+
+mujica浓度高吗？懂了，该分mygo新楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8359#       发表于 2024-1-8 15:42
+
+mygo巡演宣布了第一场有直播，我倒要看看b站这个号是打算赔钱138rmb看两场直播还是搞出不直播mygo这种更整蛊的操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 8360#       发表于 2024-1-8 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都合并了怎么会打自己的脸，我看分号难，毕竟黑红也是红
+
+不过，这么舍不得流量，再不行可以改官号嘛，要热度真不寒碜的
+

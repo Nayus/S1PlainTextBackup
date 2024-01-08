@@ -23652,3 +23652,49 @@ DVT的定性表现，DVT改进了针对密集预测任务的不同预训练 ViT�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1164#       发表于 2024-1-9 03:18
+
+pheme
+
+高效的对话型语音生成
+
+项目主页:https://polyai-ldn.github.io/pheme/
+
+github项目代码仓库:https://github.com/PolyAI-LDN/pheme
+
+近年来，语音生成取得了显著进步，现在已经实现了单样本生成能力，且几乎无法与真实的人类声音区分开来。将这样的语音生成技术与大型语言模型结合起来，可以获得更广阔的应用空间
+
+然而，某些应用，如辅助对话系统，需要自然而流畅的语音生成工具，同时还需要能够实时高效地运行，目前的SOTA模型(如VALL-E和SoundStorm等)，由分层神经音频编解码器驱动，需要大型神经组件和大量训练数据才能发挥良好的效果，相比之下，MQTTS旨在构建更紧凑的对话式TTS模型，同时仅利用较小规模的真实对话语音数据，然而由于其自回归性质，推理延迟较高，从而限制了其实时使用
+
+为了减轻目前的SOTA TTS模型的局限性，同时利用它们的优势，在本文中，引入了Pheme模型系列，它具备以下特点:
+1.提供紧凑但高性能的模型
+2.允许并行生成自然对话语音
+3.自然的对话型语音
+4.可以在较小规模的对话数据上高效训练，数据需求减少10倍以上，但仍能与自回归TTS模型的质量相匹配
+
+本文还证明，通过简单的师生蒸馏，可以在预训练的Pheme检查点上显著改善单说话者设置的音质，其完全依赖于更大的师生模型生成的合成语音
+
+github项目页说明截图:
+
+<img src="https://img.saraba1st.com/forum/202401/09/031841pztf7aacrftoefrl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-031739.jpg</strong> (257.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 03:18 上传
+
+<img src="https://img.saraba1st.com/forum/202401/09/031841u1y1hem9hdmd9g1n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240109-031758.jpg</strong> (239.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 03:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

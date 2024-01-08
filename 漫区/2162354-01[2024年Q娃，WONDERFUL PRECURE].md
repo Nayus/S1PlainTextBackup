@@ -1886,3 +1886,26 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 估计就是受挫折后变回兽形态这类套路吧。</blockquote>
 听上去和之前的因为受挫而无法变身差不多
 
+
+*****
+
+####  新HGCG  
+##### 456#         楼主| 发表于 2024-1-9 07:33
+
+<img src="https://img.saraba1st.com/forum/202401/09/073255g4x7t08s3a3g4r5c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 07:32 上传
+
+*****
+
+####  最强惠酱  
+##### 457#       发表于 2024-1-9 07:38
+
+全都能变成美少女吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

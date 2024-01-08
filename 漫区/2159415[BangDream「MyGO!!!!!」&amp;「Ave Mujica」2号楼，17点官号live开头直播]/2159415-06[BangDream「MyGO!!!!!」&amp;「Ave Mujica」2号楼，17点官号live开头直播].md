@@ -7296,3 +7296,24 @@ BanG Dream! 3rd Season：2020年1月23日 - 4月23日
 
 等1.27鸡团live工商时间，还没有新东西就跟wsd爆了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  须贺兰  
+##### 8170#       发表于 2024-1-8 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63572567&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-8 10:39</a>
+
+虽然13集断章让人尖叫抓挠还占了mygo戏份，确实是屎一样的操作，但是从商业角度如果13集鸡没那些戏份，靠12 ...</blockquote>
+不赞同这个说法，如果把Ave mujica内容剔除，动画十二话完结就够了，MyGO不会有十三话
+
+*****
+
+####  鲍里斯  
+##### 8171#       发表于 2024-1-8 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63573235&amp;ptid=2159415" target="_blank">须贺兰 发表于 2024-01-08 11:23:32</a>
+不赞同这个说法，如果把Ave mujica内容剔除，动画十二话完结就够了，MyGO不会有十三话 ...</blockquote>你的意思是不存在mujica占了mygo戏份这一说吗？按访谈的说法确实是这样的，但是我怕哪里又有人断章取义我还是叠了个甲
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

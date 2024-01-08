@@ -2980,3 +2980,14 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 遇到同样的情况。更新之后，坛友的插件即使安装了在tachiyomi里也不显示；github的版本每次重新打开app就显示不信任，每次都要手动设置信任一次。好麻烦，后悔更新了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GrassSand  
+##### 298#       发表于 2024-1-8 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63568255&amp;ptid=2010665" target="_blank">GrassSand 发表于 2024-1-7 21:27</a>
+
+更新0.15后的feature 降级或者等开发组回心转意</blockquote>
+看提交是改过来了 等小版本更新<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

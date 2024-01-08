@@ -11018,3 +11018,11 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 隔壁同样是监督和编剧对剧情人设把控度极高的少歌就是这样的，古川和樋口经常在各种采访爆出一大把已经写好但最后没采用进动画的剧情和画面，很多连详细的分镜都已经画好了
 
+
+*****
+
+####  凡人  
+##### 8535#       发表于 2024-1-8 20:05
+
+说到底鸡在mygo只留个题面，真想改以邦邦那下有幽灵上有炫卷家的情况鸡怎么写都不算ooc<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

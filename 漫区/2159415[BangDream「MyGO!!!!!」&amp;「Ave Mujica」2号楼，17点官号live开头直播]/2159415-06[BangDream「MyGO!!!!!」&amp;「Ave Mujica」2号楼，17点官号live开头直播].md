@@ -8366,3 +8366,136 @@ mygo是动画 ...</blockquote>
 
 何況9/16是訪談的放出時間，實際訪談時間誰知道呢，說不定更早是不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 8276#       发表于 2024-1-8 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575119&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-8 13:52</a>
+
+但是为了游戏拖延动画是一个对力儿八企划来说完全自洽的结论，因为游戏确实是比动画重要的
+
+而且带伙都不是 ...</blockquote>
+臆想，指訪談內容
+
+好吧原來都是聲優和三次元在騙我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 8277#       发表于 2024-1-8 13:55
+
+<blockquote>-LYRE- 发表于 2024-1-8 13:43
+“即使是对mygo来说mujica动画片早出快出是比所谓的总集篇剧场版要更为有利的”
+
+真的吗？前面有位 ...</blockquote>
+之前也是
+
+这方面我也是反对你之前所说的狗粉言论和图中漏油的认知的
+
+不认为鸡狗引流啥，抢戏份这些言论是正确的
+
+我是觉得大企划本身下坡路的情况下作为想走新路线的新企划本身首要目标应该是把盘子做大吸引新客群，而不是互相扯头花。mygo吸引到了人也好mujica吸引到了人也罢，吸引到了人进来看，深入了解再从中找到自己偏好的推才是最重要的。
+
+mujica动画延后是下下策，总集篇剧场版也不是优解。
+
+*****
+
+####  御幸一也  
+##### 8278#       发表于 2024-1-8 13:57
+
+我退一萬步，假設現在進度2024年1月播不了，
+
+那麼2024年7月還播不了？不還是在讓路嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 8279#       发表于 2024-1-8 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563356&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 13:15</a>
+
+以下发言纯混沌请漏油不要当真。
+
+鸡粉可以学习立希推先进经验，一不在乎路人风评，二不在乎人气，三不期 ...</blockquote>
+虽说发这条的时候是带着整蛊的意思的，但说到底漏油也没必要为了自己改变不了的事情而心绪不宁，现在聊再多他也是25年1月放送预定，心里有一个能安慰自己的观点就自己怀着呗，非要互相说服只会让自己难受。
+
+*****
+
+####  PDQ4  
+##### 8280#       发表于 2024-1-8 13:57
+
+立希问题明显是要靠灯解决的，卖立希骨的话有冰川双子珠玉在前我觉得不存在卖，因为立希姐就是纯粹npc了。卖希祥我原本有指望，看完手游以后没有了，因为劣等感解决和在灯身边才能呼吸有明显矛盾，解决了还怎么吸灯续命。立希还是先盘一下手游文案别太把她写成双标怪吧，对爱音态度太差了。
+
+从这个角度讲我对总集篇非常看好，总不能写得比手游小故事还差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 8281#       发表于 2024-1-8 13:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">游戏配音在动画之后不是明摆着，你没看立石凛配音在游戏里好多了，去看看游戏切片几分钟的事情
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  滑稽Captain  
+##### 8282#       发表于 2024-1-8 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575136&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 13:53</a>
+
+臆想，指訪談內容
+
+好吧原來都是聲優和三次元在騙我</blockquote>
+去年11月我也和群友说按照访谈提到的进度上2024.01感觉能够播出，或者说制作进度理论上允许播出，但是实际上舅舅的消息推翻了这个推测，那我自然觉得自己之前的推测是臆想成分过多了
+
+*****
+
+####  PDQ4  
+##### 8283#       发表于 2024-1-8 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575123&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-8 13:52</a>
+
+真要阴湿一点，以前访谈里柿本对立希是有所深挖有所关注的，反倒是独角兽是“反正立希只要有灯就 ...</blockquote>
+该分化出柿本立希和绫奈立希了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 8284#       发表于 2024-1-8 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575194&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-8 13:57</a>
+
+立希问题明显是要靠灯解决的，卖立希骨的话有冰川双子珠玉在前我觉得不存在卖，因为立希姐就是纯粹npc了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">也确实，再烂烂不过手游小故事里的白骑士。
+
+*****
+
+####  御幸一也  
+##### 8285#       发表于 2024-1-8 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575213&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-8 13:59</a>
+
+去年11月我也和群友说按照访谈提到的进度上2024.01感觉能够播出，或者说制作进度理论上允许播出，但是实 ...</blockquote>
+舅舅消息在哪，看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8286#       发表于 2024-1-8 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574615&amp;ptid=2159415" target="_blank">ganeid 发表于 2024-1-8 13:08</a>
+
+13看完我就在想，mggm你不管一管你下面的人吗，你到底要推哪个团</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在搞一种很前卫的推法
+
+*****
+
+####  凡人  
+##### 8287#       发表于 2024-1-8 14:00
+
+确实感觉独角兽不怎么喜欢立希，立希推可以期待一下踢了独角兽的母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

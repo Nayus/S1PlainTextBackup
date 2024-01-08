@@ -10671,3 +10671,58 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 感觉小羊可能相比于灯这种自闭少女更喜欢山田这种阳角现充吧，然后也缺乏一些必要的营业自觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  后藤一里  
+##### 8500#       发表于 2024-1-8 18:36
+
+发表会最大赢家羊宫妃那，有理由怀疑羊就是幕后真凶，联合另一个动物朋友独角兽切割邦邦导致制作组内乱母鸡卡延期，木谷高明只得抓住狗这个唯一的救命稻草，此时羊坐地起价提出各种要求，木谷不得不答应她联动我心危以及为自己制作两部剧场，大功告成志得意满的羊还不忘发表会溜一下鸡粉彰显自己的胜利，实在是太可恶了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 8501#       发表于 2024-1-8 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579227&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 18:26</a>
+
+这些没啥对比的必要，基准不一样。本来要证明的也不是这些。
+
+就把诗超绊游戏和动画对应的地方对比 ...</blockquote>
+我不认为这是能判明好坏的基准。mygo用live来叙事，我以前只看过幼女偶像动画和芳文改（偶像大师，花舞少女，水果哒），最后的live都是团魂完之后的点缀。包括偶像大师本家也是一切尘埃落定之后来一场live。mygo这种写法天生要更加依赖live本身的质量，也必然会在手游中损失更多。但我不认为这是水平不佳，只是这种剧情编排更加适合动画。这不能否认作为动画脚本的绫奈的能力。
+
+*****
+
+####  PDQ4  
+##### 8502#       发表于 2024-1-8 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579361&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-8 18:36</a>
+
+发表会最大赢家羊宫妃那，有理由怀疑羊就是幕后真凶，联合另一个动物朋友独角兽切割邦邦导致制作组内乱母鸡 ...</blockquote>
+你这个烂炒有漏洞，因为独角兽只关注了mujica官号，如果和动物朋友合谋那应该只关注mygo官号才对<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8503#       发表于 2024-1-8 18:40
+
+ 本帖最后由 江口夕 于 2024-1-8 18:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579363&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-1-8 18:36</a>
+我不认为这是能判明好坏的基准。mygo用live来叙事，我以前只看过幼女偶像动画和芳文改（偶像大师，花舞少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">偶像大师可没靠live当解决问题的手段，72那段是大家解决了问题所以72才能唱出来。
+但是诗超绊演出力直接决定上下线，一旦就这了那基本整体就是“就这”了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  穗波殊  
+##### 8504#       发表于 2024-1-8 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579413&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 18:40</a>
+
+偶像大师可没靠live当解决问题的手段，72那段是大家解决了问题所以72才能长出来
+
+—— 来自 Xiaom ...</blockquote>
+就是因为以前没人这么写过所以mygo才新鲜啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

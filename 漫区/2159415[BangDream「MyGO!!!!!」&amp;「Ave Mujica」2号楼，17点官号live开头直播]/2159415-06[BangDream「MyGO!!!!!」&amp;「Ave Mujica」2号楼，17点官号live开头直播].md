@@ -9381,3 +9381,154 @@ wsd可能还真是这么想的<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  66367749  
+##### 8369#       发表于 2024-1-8 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576879&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-8 15:51</a>
+当初动画把大箱改成路人A 
+不就没有现在的烦恼了</blockquote>
+总集篇剧场版还来得及<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  近月  
+##### 8370#       发表于 2024-1-8 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576708&amp;ptid=2159415" target="_blank">ztl44 发表于 2024-1-8 15:41</a>
+惊了，只能说误入此楼 这就是粉圈吗连官方账号叫什么都要管，有管人痴那个味道了 ...</blockquote>
+可是官号下面的评论早就有对立言论了，不知道您是没看见故意装傻
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8371#       发表于 2024-1-8 15:53
+
+s1专楼是华语第一祥厨专楼的说法我甚至在z8都看到过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8372#       发表于 2024-1-8 15:53
+
+唉 都是祥子的錯 祥子全責<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8373#       发表于 2024-1-8 15:54
+
+喜欢祥子和mujica很奇怪吗，我看mygo的角色也都挺喜欢祥子的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|笑吐|
+
+查看全部评分
+
+*****
+
+####  -LYRE-  
+##### 8374#       发表于 2024-1-8 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576712&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 15:41</a>
+
+我觉得吧，你们不如先让老粉把独角兽以前的水平给你们讲讲，这件事情，在老粉眼里其实并不完全是坏 ...</blockquote>
+有趣，原来邦二三季的监督就不是柿本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Screenshot_2024-01-08-15-53-05-140_tv.danmaku.bili-edit.jpg
+(218.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 15:54 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/155452n54utl9bg9tazjmh.jpg" referrerpolicy="no-referrer">
+
+Screenshot_2024-01-08-15-53-24-800_tv.danmaku.bili-edit.jpg
+(236.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 15:54 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/155453khnjh73xajz49jnk.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 8375#       发表于 2024-1-8 15:57
+
+一堆人是冲着重女乐队来的，你把祥子切割了大伙看什么😧
+
+*****
+
+####  贝恩德塔  
+##### 8376#       发表于 2024-1-8 15:58
+
+唉，缪水冲突又重演了，世界就是一个轮回
+
+*****
+
+####  江口夕  
+##### 8377#       发表于 2024-1-8 15:59
+
+ 本帖最后由 江口夕 于 2024-1-8 16:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576944&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 15:54</a>
+有趣，原来邦二三季的监督就不是柿本了要不来挨个对照下制作人员看看到底是谁的锅和谁在C？ ...</blockquote>
+跟监督有啥关系，系构不都是独角兽。你不会觉得动画g了是监督全责吧，那那些**河内和花田的都轮错人咯
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ninokagami  
+##### 8378#       发表于 2024-1-8 16:00
+
+按排除法，第一眼过去最大战犯不就是mggm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tucsria  
+##### 8379#       发表于 2024-1-8 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576712&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 15:41</a>
+
+我觉得吧，你们不如先让老粉把独角兽以前的水平给你们讲讲，这件事情，在老粉眼里其实并不完全是坏 ...</blockquote>
+没有祥子，灯也可以觉得散团是自己唱得不好，立希也可以压力自己，素世也可以一心想着复辟旧团<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+没有独角兽，我缺的一跪你给我演<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8380#       发表于 2024-1-8 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577046&amp;ptid=2159415" target="_blank">Tucsria 发表于 2024-1-8 16:00</a>
+没有祥子，灯也可以觉得散团是自己唱得不好，立希也可以压力自己，素世也可以一心想着复辟旧团
+
+没 ...</blockquote>
+你只想高潮罢了，跪不跪有这么重要么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  harukage  
+##### 8381#       发表于 2024-1-8 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63576810&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-8 15:47</a>
+因为MyGO正在消耗好感吧，而对长期关注企划者而言消耗得尤其大……</blockquote>
+这话是怎么讲的，可以详细展开说说吗？mygo动画有新内容，我感觉挺满意的啊
+

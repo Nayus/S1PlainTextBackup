@@ -11026,3 +11026,13 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 说到底鸡在mygo只留个题面，真想改以邦邦那下有幽灵上有炫卷家的情况鸡怎么写都不算ooc<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 8536#       发表于 2024-1-8 20:25
+
+你们真的讨论了一天啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

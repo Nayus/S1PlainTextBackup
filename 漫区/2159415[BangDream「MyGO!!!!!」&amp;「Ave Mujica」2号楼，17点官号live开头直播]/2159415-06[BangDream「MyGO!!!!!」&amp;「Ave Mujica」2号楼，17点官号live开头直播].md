@@ -11229,3 +11229,35 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拖这么久是为了给mujica推学画画的时间，等到信泽给你推画鬼图的时候已经可以自己画点正常的洗眼了
 
+
+*****
+
+####  安洁莉娜  
+##### 8560#       发表于 2024-1-8 22:03
+
+连夜调查cn观众喜好，研究组合数学，扩充mygo&amp;AM多元平行宇宙，续写十亿三千万字？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 8561#       发表于 2024-1-8 22:03
+
+想到信泽的鬼图最早也要26年才出现，太乐观了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8562#       发表于 2024-1-8 22:07
+
+信泽不是按年而是是进了游戏就画鬼图的，今年就画了灯，所以明年只有睦祥可以逃过毒手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 8563#       发表于 2024-1-8 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581522&amp;ptid=2159415" target="_blank">yaneis 发表于 2024-1-8 22:00</a>
+
+bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockquote>
+太便宜了，应该作为全卷购入特典。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

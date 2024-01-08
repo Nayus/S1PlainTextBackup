@@ -112,3 +112,16 @@ b站鱼的工作室粉丝现有五千多人，是不是可以认为国内愿意�
 
 <img src="https://p.sda1.dev/15/1e57a6897ac08601a4acf79e11d81843/CMP_20240108232242023.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19121#       发表于 2024-1-8 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581794&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-1-8 22:25</a>
+
+为什么4月份就晚一年呢？</blockquote>
+好像因为日本是四月份开始算新的年度吧（财年报告之类都是四月份开始计算
+
+小花刚好4月3日生日，就算到下一年
+

@@ -1856,3 +1856,14 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 2024-1-8 19:13 上传
 
+
+*****
+
+####  武男  
+##### 453#       发表于 2024-1-8 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574963&amp;ptid=2162354" target="_blank">1096beam 发表于 2024-1-8 13:38</a>
+
+Q娃死过生物吗？不包括化成灰消散</blockquote>
+抓心Q娃的月影百合，亲手杀灭了自己的克隆人妹妹，父亲动手杀了她的妖精，但是最后又用生命保护了她。
+

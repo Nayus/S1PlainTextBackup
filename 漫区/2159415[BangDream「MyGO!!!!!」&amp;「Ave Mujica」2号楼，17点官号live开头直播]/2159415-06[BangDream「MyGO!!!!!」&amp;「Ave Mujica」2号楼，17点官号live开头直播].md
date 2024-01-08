@@ -10983,3 +10983,21 @@ https://www.pixiv.net/artworks/114974472<img src="https://p.sda1.dev/15/f5ee2c9e
 
 不过总集篇新编剧情可能没有绫奈参与是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 8531#       发表于 2024-1-8 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63579830&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-8 19:16</a>
+
+只能說，拍拍你了，看著你從不烤羊到現在</blockquote>
+我是不理解为什么那么多人觉得Mujica是个商业企划有合同内部就没问题的，再怎么合同绑着投资人看着赚米机会摆着，该翻还得翻，只是那时候没想到居然是羊和MyGO来证明这一点
+
+*****
+
+####  jerryoq1  
+##### 8532#       发表于 2024-1-8 19:50
+
+有没有改剧情就和少歌舞台剧＃2一样只有wsd才知道了  虽然太糊比没啥人关注 但从后续的某些迹象看来也不是没有改的可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -9693,3 +9693,144 @@ Screenshot_2024-01-08-15-53-24-800_tv.danmaku.bili-edit.jpg
 
 不管评分如何，RAS的部分就是写的不好，剧情没什么新意还各种踩雷，人物塑造也不好，这一点还是能得到很多人的赞同的。身边的喜欢RAS的也都是看了live入坑的而不是因为动画。
 
+
+*****
+
+####  ffz  
+##### 8399#       发表于 2024-1-8 16:23
+
+说道楚萍芳，手游后续剧情很长一段时间也没好啊，照样嘴臭喷人，稍有不如意就拆团。
+
+那些期待立希游戏里会风评好转的有没有汗流浃背了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 8400#       发表于 2024-1-8 16:23
+
+再对比隔壁偶像大师，也只有本家无印，u149，本家剧场版比7.3高
+
+
+*****
+
+####  HANDAIYV  
+##### 8401#       发表于 2024-1-8 16:24
+
+第三季的ras尤其是chuchu的塑造是真不行，计较系构的话还可以算上第一季的小星星，两个剧场版问题也不小
+
+*****
+
+####  -LYRE-  
+##### 8402#       发表于 2024-1-8 16:25
+
+ 本帖最后由 -LYRE- 于 2024-1-8 16:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577347&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 16:17</a>
+
+那咱不说脚本说系构行了吧，mygo动画系构是独角兽没问题吧，第10话和独角兽没关系？
+
+—— 来自 X ...</blockquote>
+印象里只有nga搞过单话投票，你嫌弃的第10话反而是第一，其次是绫奈负责的3、7、13
+
+不然你跟那些吹动画的mygo粉丝打一架吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Screenshot_2024-01-08-16-23-09-730_gov.pianzong.androidnga-edit.jpg
+(289.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-8 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202401/08/162610nbfcwdwz9b8gvdtz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8403#       发表于 2024-1-8 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577478&amp;ptid=2159415" target="_blank">贝恩德塔 发表于 2024-1-8 16:23</a>
+再对比隔壁偶像大师，也只有本家无印，u149，本家剧场版比7.3高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那高的部分都是ppp的内容，这玩意得分开来，比如说mygo后面如果糊了给个7.5分，那扣的可全都是ave的分
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  江口夕  
+##### 8404#       发表于 2024-1-8 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577528&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-8 16:25</a>
+印象里只有nga搞过单话投票，你最嫌弃的第10话反而是第一，其次是绫奈负责的3、7、13
+
+不然你跟那些吹动画 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">脚本他只是个打工的，责任全在系构咋想不明白，10话第一功劳也是独角兽大头，何况独角兽还摊个原案
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  HazukiShion  
+##### 8405#       发表于 2024-1-8 16:28
+
+如果真的切割独角兽，最后 AM 动画口碑不行，锅算谁的？
+
+如果没有切割独角兽，最后 AM 动画口碑不行，锅算谁的？
+
+如果真的切割独角兽，最后 AM 动画口碑持平或者上升，奖杯给谁？
+
+如果没有切割独角兽，最后 AM 动画口碑持平或者上升，奖杯给谁？
+
+*****
+
+####  NODY  
+##### 8406#       发表于 2024-1-8 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577472&amp;ptid=2159415" target="_blank">ffz 发表于 2024-1-8 16:23</a>
+
+说道楚萍芳，手游后续剧情很长一段时间也没好啊，照样嘴臭喷人，稍有不如意就拆团。
+
+那些期待立希游戏里会 ...</blockquote>
+楚平方再怎么作也是团队中心和剧情中心，立希大概率不如楚平方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 8407#       发表于 2024-1-8 16:31
+
+ 本帖最后由 江口夕 于 2024-1-8 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577586&amp;ptid=2159415" target="_blank">HazukiShion 发表于 2024-1-8 16:28</a>
+如果真的切割独角兽，最后 AM 动画口碑不行，锅算谁的？
+
+如果没有切割独角兽，最后 AM 动画口碑不行，锅算 ...</blockquote>
+那当然大头给原案<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，动画表现拉开原案很大一截的情况，动画里什么系构演出监督功劳肯定都要占一份
+但是如果动画拉了原案好评的情况，系构责任最大
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 8408#       发表于 2024-1-8 16:32
+
+现在这个样子，到时候剧情无论是神了还是崩了肯定都会出现独角兽出走剧本修改的说法的，除非官方让独角兽亲自宣布一直有参加制作压根没走过也没有改过剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 8409#       发表于 2024-1-8 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577625&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-8 16:31</a>
+
+那当然大头给原案，动画表现拉开原案很大一截的情况，动画里什么系构演出监督功劳肯定都要占一份
+
+ ...</blockquote><blockquote>动画表现拉开原案很大一截</blockquote>
+这个要怎么验证呢？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 8410#       发表于 2024-1-8 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63577064&amp;ptid=2159415" target="_blank">harukage 发表于 2024-1-8 16:01</a>
+
+这话是怎么讲的，可以详细展开说说吗？mygo动画有新内容，我感觉挺满意的啊 ...</blockquote>
+因为企划厨很多是会关注三次元方面的，而邦邦“主唱是星星”，星星飘忽而暗淡而又没有什么补充，自然显得MyGO观感有些微妙了，紫吧以外都开始自助烤羊与此不无关系
+

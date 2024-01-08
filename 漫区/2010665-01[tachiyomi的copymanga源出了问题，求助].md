@@ -2991,3 +2991,11 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 更新0.15后的feature 降级或者等开发组回心转意</blockquote>
 看提交是改过来了 等小版本更新<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  charlespfan  
+##### 299#       发表于 2024-1-8 13:45
+
+0.15.1有人试过吗？能用拷贝插件了吗？
+

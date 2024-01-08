@@ -8252,3 +8252,117 @@ mygo是动画 ...</blockquote>
 
 你能發散到“遊戲處於未完成狀態”，酷喔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 8267#       发表于 2024-1-8 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574981&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:40</a>
+
+因为漏油说“从屁股来觉得mujica是在给mygo剧场版”让路的确会产生这种误解啊。 前面也说了，本质就是在 ...</blockquote>
+那沒辦法，這一點上我就是這樣覺得。
+
+我覺得ave工期沒問題，我覺得總集篇是加塞，那麼我得出那個結論真的很奇怪嗎。
+
+我也說了，最遲最遲2024年7月播我都給武士道過了。結果呢？嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 8268#       发表于 2024-1-8 13:43
+
+ 本帖最后由 -LYRE- 于 2024-1-8 13:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574642&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:10</a>
+其实从配音，或者说声优拿到剧本推断动画播出时间，特别是mygo_mujica播出时间并不是一定正确的。
+
+从myg ...</blockquote>
+“即使是对mygo来说mujica动画片早出快出是比所谓的总集篇剧场版要更为有利的”
+真的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面有位漏油都觉得直球拿mygo动画垫给ave mujica动画了，mygo主场动画都觉得被垫了、引流到mujica那了，那按这论调等mujica动画出来岂不是没人关注mygo了？都这样了为什么会觉得mujica主场动画早出会比mygo剧场版总集篇对mygo更有利？
+感觉你们可以打一架<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/7611ca6bc95cd623f21700452dc986e2/CMP_20240108134347068.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 8269#       发表于 2024-1-8 13:45
+
+<blockquote>PDQ4 发表于 2024-1-8 13:25
+对mygo来说早日推出mujica比总集篇更有利都出来了。这是要开除猫希mygo籍？真就猫希不重要吗。 ...</blockquote>
+有一说一，我觉得立希问题不讲姐姐一切都是空谈。
+
+游戏活动也只是借soyo的口把“立希生活在一个姐姐过于优秀的家庭环境”中这个已知事实传达了出来。
+
+我并不觉得总集篇剧场版能把这个点讲好，结合姐姐和祥子是认识的，且立希的自卑感同样也有因为祥子而产生来看，这方面的故事的确需要等到mujica篇才能好好阐述。
+
+猫无解，我也不知道怎么深入讲，本身是抱着等绫奈大发神威的。
+
+*****
+
+####  kangkangsama  
+##### 8270#       发表于 2024-1-8 13:47
+
+<blockquote>御幸一也 发表于 2024-1-8 13:41
+你有點搞笑了兄弟，9月的時候不知道後續，更大的可能難道不是因為她們還在配前面的話數嗎，
+
+你能發散到“ ...</blockquote>
+？
+
+游戏如果作完了（表示配音阶段也完成了）
+
+那自然高尾她们是知道后面的剧情的，但是她们不知道自然就是游戏本身还没有实际做完啊。
+
+*****
+
+####  江口夕  
+##### 8271#       发表于 2024-1-8 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">祥子问题不解决你们还想彻底解决soyo和立希的问题，是不是想太多。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aendst  
+##### 8272#       发表于 2024-1-8 13:51
+
+这不都是轮回话题吗……最近新来的漏油是不是跟泥漏八字不合被卷进时空漩涡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 8273#       发表于 2024-1-8 13:52
+
+但是为了游戏拖延动画是一个对力儿八企划来说完全自洽的结论，因为游戏确实是比动画重要的
+
+而且带伙都不是动画从业者，就不要天天臆想制作流程和进度了；
+
+同时我可以给出理由，据信是“三次元员工”的舅舅党，对于去年楼内有一个号突然发出的【现在其实已经做到第15集了】表示过认可，然后他前段时间表示在他看来，【2024.04勉强】，此时也没有宣布2025.01，所以使我们认为会是2024.07，结果没想到wsd能排到2025.01。那么说明在认可他可靠性的前提下，对于现在的2024.01有“可以播出水平的进度”的推测，应该是无法成立的。2024.04勉强-＞2024.01不可能-＞2024.07差不多没问题，这个逻辑很合理吧
+
+*****
+
+####  cindy355  
+##### 8274#       发表于 2024-1-8 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574958&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-8 13:38</a>
+
+漏油为何如此悲观，说好的下篇会写立希的努力，爱信等好吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">真要阴湿一点，以前访谈里柿本对立希是有所深挖有所关注的，反倒是独角兽是“反正立希只要有灯就好了吧（笑）”，是否部分立希推其实乐见于……
+
+*****
+
+####  御幸一也  
+##### 8275#       发表于 2024-1-8 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575045&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-8 13:47</a>
+
+？
+
+游戏如果作完了（表示配音阶段也完成了）
+
+那自然高尾她们是知道后面的剧情的，但是她们不知道自然就是 ...</blockquote>
+讓我看看邦多利週年是什麼時候，哦原來是3/16啊，
+
+那麼半年前的9月還不知道，也還是能說得過去吧
+
+何況9/16是訪談的放出時間，實際訪談時間誰知道呢，說不定更早是不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

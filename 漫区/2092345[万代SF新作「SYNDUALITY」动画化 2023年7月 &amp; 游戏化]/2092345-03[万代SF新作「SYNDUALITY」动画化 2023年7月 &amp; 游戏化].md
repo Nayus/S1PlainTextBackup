@@ -1096,3 +1096,13 @@ ARCANA  PROJECTさんの曲すごい良いので見てくださいー！
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  andychen  
+##### 3420#       发表于 2024-1-10 07:05
+
+黑白自由切+主线上太空找乐园
+
+这真的越来越像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

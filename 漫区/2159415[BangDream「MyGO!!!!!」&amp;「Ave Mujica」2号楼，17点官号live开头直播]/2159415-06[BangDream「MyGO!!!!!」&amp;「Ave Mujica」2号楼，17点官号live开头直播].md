@@ -11860,3 +11860,36 @@ ave mujica的live2d ...</blockquote>
 
 原来关系表睦祥的打码是未婚夫妻，我完全明白了，这就是独角兽删图的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 8622#       发表于 2024-1-9 11:45
+
+这个好，就照这个演<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 8623#       发表于 2024-1-9 11:48
+
+就像夏娃是亚当的肋骨一样，未婚妻是半身意外的真的好合理啊
+
+串起来了（不是
+
+*****
+
+####  星空冻结  
+##### 8624#       发表于 2024-1-9 11:48
+
+我信了，如果mujica没有那就wsd全锅<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8625#       发表于 2024-1-9 11:51
+
+ave官推剛剛動了一下，RT了新歌的串流宣傳
+
+那麼，為什麼你不RT定檔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

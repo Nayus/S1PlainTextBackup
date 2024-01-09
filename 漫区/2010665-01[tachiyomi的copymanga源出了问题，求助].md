@@ -3143,3 +3143,19 @@ https://tachiyomi.org/news/2024-01-09-extensions-removal
 
 难怪昨天电报里更新了1.50后，插件页面会报错
 
+
+*****
+
+####  很久就在那边l  
+##### 316#       发表于 2024-1-9 11:43
+
+还真是，虽然现在还有以前装的但是以后去哪更新呢
+
+*****
+
+####  1024676511  
+##### 317#       发表于 2024-1-9 11:45
+
+插眼等老哥发第三方了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+一翻楼里原来又是韩国人搞事吗
+

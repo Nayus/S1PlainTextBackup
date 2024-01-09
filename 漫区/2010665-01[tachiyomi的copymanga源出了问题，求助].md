@@ -3189,3 +3189,16 @@ https://tachiyomi.org/news/2024-01-09-extensions-removal
 
 然后复制这段 https://raw.githubusercontent.com/keiyoushi/extensions/repo/index.min.json复制代码
 
+
+*****
+
+####  azbhg1  
+##### 320#       发表于 2024-1-9 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63587492&amp;ptid=2010665" target="_blank">Asuku 发表于 2024-1-9 12:26</a>
+试试这个
+
+https://github.com/keiyoushi/extensions</blockquote>
+0.14.7不能添加插件仓库<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+有没有坛友试下0.15.2能不能用漏油那个插件<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

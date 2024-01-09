@@ -11435,3 +11435,16 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 
 刚刚去1号楼从后翻了10页，看时间都动画完结快两个月了
 
+
+*****
+
+####  nebulanoby  
+##### 8579#       发表于 2024-1-9 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63583135&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-9 01:23</a>
+台长太拼命了</blockquote>
+台长:我要给你塞抹布！
+二狗:封掉更好哦（指多赚10块钱）
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -23756,3 +23756,133 @@ Open-Vocabulary SAM融合了SAM和CLIP的知识，形成了一个统一架构，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1166#       发表于 2024-1-10 02:54
+
+Activation Beacon
+
+从4K飙升到400K:使用激活信标(Activation Beacon)拓展LLM的上下文
+
+项目综合主页:https://github.com/FlagOpen/FlagEmbedding
+
+对于大型语言模型来说，应用长上下文而言是一个巨大的挑战，因为它们的上下文窗口长度(context window lengt)有限，虽然可以通过微调来扩展上下文窗口，但这会在训练和推理时产生相当大的成本，并对语言模型的原始能力产生不利影响
+
+在这项工作中，提出了激活信标(Activation Beacon)，它将语言模型的原始激活值(LLM's raw activations)压缩成更紧凑的形式(more compact forms)，使其能够在有限的上下文窗口内感知更长的上下文
+
+激活信标被引入为语言模型的插件模块(plug-and-play module)，它在处理短上下文时完全保留了语言模型的原始能力，同时扩展了处理长上下文的能力，此外，它使用短滑动窗口(short sliding windows)来处理长上下文，在训练和推理中实现了有竞争力的显存和时间效率
+
+激活信标通过在多种压缩比例的信标混合条件下进行自回归任务学习，多亏这种方式，它可以仅通过短序列数据进行高效训练，仅需1万步，以及不到9小时，就可以在一台单独的8xA800 GPU机器上完成
+
+实验研究表明，激活信标能够将Llama-2-7B的上下文长度扩展100倍(4K到400K)，同时在长上下文生成和理解任务上取得了优异的结果
+
+<img src="https://img.saraba1st.com/forum/202401/10/025256uk2qpwqzb2iucpqz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024810__01.jpg</strong> (182.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:52 上传
+
+激活信标与其他上下文扩展方法的对比，包括
+1.位置插值
+2.NTK感知的缩放RoPE
+3.LongLlama
+
+激活信标在长上下文生成质量和运行效率(显存、时间)方面表现更好，困惑度通过在PG19测试集上使用滑动窗口进行测量
+
+<img src="https://img.saraba1st.com/forum/202401/10/025302igqvjj2qih4pqqqk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024816__01.jpg</strong> (283.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+(A)信标用于将激活值压缩成更紧凑的形式
+(B)压缩后的激活值通过一个短滑动窗口进行自回归流处理
+
+<img src="https://img.saraba1st.com/forum/202401/10/025308z0nnkthektzczevo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024846__01.jpg</strong> (196.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+激活信标的工作机制(I)和信标的注意力方案(II)
+
+<img src="https://img.saraba1st.com/forum/202401/10/025324dtglli5vxippv3ta.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024858__01.jpg</strong> (45.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+训练数据的长度分布，所有训练数据的平均长度为3180
+
+<img src="https://img.saraba1st.com/forum/202401/10/025330vc39zb7y7i9yw3i7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024907__01.jpg</strong> (299.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+不同上下文窗口扩展方法在PG19、Proof-Pile和CodeParrot上的滑动窗口困惑度，激活信标成功将Llama-2-7B模型的上下文窗口扩展到比训练时见到的序列更长的长度
+
+<img src="https://img.saraba1st.com/forum/202401/10/025335fdyyeyvvtanc8fcv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024915__01.jpg</strong> (214.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+在LongBench上评估不同方法，激活信标的性能与经过微调的完全注意力基线相当
+
+<img src="https://img.saraba1st.com/forum/202401/10/025339qylnsqnndt8qlzqn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024921__01.jpg</strong> (219.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+推理时间和GPU显存使用率的评估，这两个指标是通过100次前向传递的平均值计算的(LongChat启用了FlashAttention-2)
+
+<img src="https://img.saraba1st.com/forum/202401/10/025344bxq4yaa466kgpsz4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024927__01.jpg</strong> (210.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+在不同上下文长度中的主题检索准确率(topic retrieval accuracy)的评估，Activation Beacon的表现与经过微调的方法(如LongChat-32K和LongAlpaca-16K)相似
+
+<img src="https://img.saraba1st.com/forum/202401/10/025353ipwl3zonmee3p59e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024931__01.jpg</strong> (46.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+LongAlpaca-16K(8个A100 GPU)和Activation Beacon(8个A800 GPU)的训练时间和GPU显存成本对比
+
+<img src="https://img.saraba1st.com/forum/202401/10/025359yeaxitavdwjr80ll.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-024936__01.jpg</strong> (211.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 02:53 上传
+
+不同技术因素的影响，包括信标的注意力方案、压缩比率和训练数据的组成，默认设置用*标记
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

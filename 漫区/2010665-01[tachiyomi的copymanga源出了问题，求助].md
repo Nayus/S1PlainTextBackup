@@ -3256,3 +3256,17 @@ nga有但被隐了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">更新之后不显示拷贝源了 好难
 
+
+*****
+
+####  zmw_831110  
+##### 326#       发表于 2024-1-9 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63587492&amp;ptid=2010665" target="_blank">Asuku 发表于 2024-1-9 12:26</a>
+试试这个
+
+https://github.com/keiyoushi/extensions</blockquote>
+J2K没开放添加插件仓库的功能，看来只有等更新了，或者装个原版或者另外2个支持的，临时用于更新插件
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

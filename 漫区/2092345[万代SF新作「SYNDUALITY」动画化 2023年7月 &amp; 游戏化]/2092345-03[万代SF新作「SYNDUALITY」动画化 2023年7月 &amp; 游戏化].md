@@ -937,3 +937,11 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 至于最后的最后又换回来了，小概率是Mistel听到关键词又有了新的牵挂，大概率是现在可以自由切换了，得看下一话怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  约翰里德  
+##### 3406#       发表于 2024-1-9 18:01
+
+这一集没有迫害艾莉，这不合理<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

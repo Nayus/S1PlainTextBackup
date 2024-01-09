@@ -11692,3 +11692,42 @@ ave mujica的live2d ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算了，還是信我是秦始皇吧
 
+
+*****
+
+####  NODY  
+##### 8604#       发表于 2024-1-9 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586237&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-9 11:00</a>
+
+所以舅舅推测七月播到底是什么，是不是跟去年四月就做完了一样是出口转内销 ...</blockquote>
+昨天围观楼里讨论的时候好像有看到有提到说内部人士认为4月播难7月有可能来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8605#       发表于 2024-1-9 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586327&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-9 11:06</a>
+
+昨天围观楼里讨论的时候好像有看到有提到说内部人士认为4月播难7月有可能来着 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实不如信漏油是秦始皇
+
+*****
+
+####  PDQ4  
+##### 8606#       发表于 2024-1-9 11:09
+
+我是秦始皇，有人给我打钱吗。集资成功我就去逼宫wsd在母鸡卡bd里塞结婚后日谈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8607#       发表于 2024-1-9 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">還是說下我不信手工蛋這套的理由，養老遊戲真沒什麼東西要開發，交接這種平穩營運了那麼久的遊戲，如果你搞個幾個月甚至半年還搞不懂，我有點難評
+
+除非就是武士道自己在搞什麼大型update要開發大量內容然後自己搞不明白炸了。
+
+你要說這套，那我還是覺得有點可能，畢竟武士道的開發力，看一眼履歷我覺得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

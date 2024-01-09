@@ -12198,3 +12198,27 @@ N等分的未婚妻！
 mujica的共犯原来犯的是重婚罪啊</blockquote>
 但是这样下去踩缝纫机只有大祥老师，所以海睦，海喵，海初什么的端上来吧（
 
+
+*****
+
+####  blackeryuri2  
+##### 8657#       发表于 2024-1-9 12:56
+
+ 本帖最后由 blackeryuri2 于 2024-1-9 12:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581461&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-1-8 21:53</a>
+
+虽然总有人用“友情”来调侃女同，但我真的是来看友情的，没觉得这片有多女同（认真 ...</blockquote>
+认真点讲的话，其他人我觉得是重力感，唯一觉得有女同感的就是立希，倒未必说她是女性恋，而是她对灯怎么看都不像单纯的（重力感）友情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8658#       发表于 2024-1-9 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63587857&amp;ptid=2159415" target="_blank">yaneis 发表于 2024-1-9 12:51</a>
+
+但是这样下去踩缝纫机只有大祥老师，所以海睦，海喵，海初什么的端上来吧（ ...</blockquote>
+错啦，丰川家其实一直蓄谋动用政坛力量修改日本婚姻法，为了避嫌踢出祥子。可惜祥子臭老爹是个政坛废物没能参透家主大人的深意，让祥子误以为是自己和两个幼驯染都许诺终身触犯了家规，祥子表示喜欢两个人有什么错，对家里老顽固嗤之以鼻。
+
+组建mujica就是为了获得足够的地位构建一个能让大家都幸福的世界，ave mujica就是讲述祥子在夺回地位的旅途上与两个幼驯染以及两个新女人发生的故事。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

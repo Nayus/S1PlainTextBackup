@@ -12716,3 +12716,15 @@ https://x.com/TurtleHeart5/status/1744625795732214266?s=20<img src="https://p.sd
 
 ai疑似爽世
 
+
+*****
+
+####  nebulanoby  
+##### 8704#       发表于 2024-1-9 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63595303&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-9 22:08</a>
+ai疑似爽世</blockquote>
+allin 喵喵是可以替换的
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -218,3 +218,22 @@ Intel Ultra 7 155H，53wh，7 英寸 1080p，120hz，雷电 4，两个背键，6
 
 过这么久ROG Ally竟然是最轻的，华硕还是有点东西
 
+
+*****
+
+####  cc-2  
+##### 1043#       发表于 2024-1-9 10:47
+
+MSI Claw这散热孔和进气口的设计
+
+看着真像自家游戏本啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+果然还是MSI这散热设计我看着最安心，然后积灰估计也最可怕……
+
+*****
+
+####  医生狼多  
+##### 1044#       发表于 2024-1-9 10:51
+
+ultra实测果然拉了，pass
+

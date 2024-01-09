@@ -11633,3 +11633,25 @@ ave mujica的live2d早就實裝進去了，譜面也不是什麼會出大問題�
 ave mujica的live2d ...</blockquote>
 除非是像某些游戏那样说换运营其实只是换了个套皮子公司，内部阵容人手基本上不变，不然运营交接应该还是挺麻烦的吧，不可能马上接手就无缝往下做一样的内容，按手游一般提前备好大半年存货的说法，如果真是原本打算7月动画9月实装的话，确实有可能刚好卡在存货用完公司交接的时间上
 
+
+*****
+
+####  Aendst  
+##### 8598#       发表于 2024-1-9 10:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提前大半年开发，交接后要做的也是大半年后才实装的东西
+
+大半年时间都在做交接那确实可以入土了
+
+*****
+
+####  御幸一也  
+##### 8599#       发表于 2024-1-9 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63585953&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-9 10:41</a>
+
+除非是像某些游戏那样说换运营其实只是换了个套皮子公司，内部阵容人手基本上不变，不然运营交接应该还是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">這可是養老遊戲，不是有一大堆要開發新東西的遊戲交接
+
+而且日本人做遊戲仕様書詳細到一個吐，就算交接的人一句話不說，看仕様書都能把功能搞明白
+

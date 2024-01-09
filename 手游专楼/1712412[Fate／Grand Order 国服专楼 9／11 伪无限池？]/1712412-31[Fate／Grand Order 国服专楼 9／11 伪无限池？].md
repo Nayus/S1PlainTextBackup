@@ -4124,3 +4124,13 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 单抽好像真的有点用？昨天藤乃，今天美游<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姬萩九郎  
+##### 45909#       发表于 2024-1-9 10:48
+
+<img src="https://p.sda1.dev/15/550cea9ba1caeb250b40aa00a7542b35/IMG_CMP_46682527.jpeg" referrerpolicy="no-referrer">
+
+樱厨之证
+

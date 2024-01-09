@@ -11838,3 +11838,25 @@ ave mujica的live2d ...</blockquote>
 
 风怒编辑
 
+
+*****
+
+####  NODY  
+##### 8619#       发表于 2024-1-9 11:34
+
+独角兽昨天说自己访谈说希望日本同性合法结婚结果实际发售的内容里删了很不甘心，都怪武士道，我的女同订婚没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 8620#       发表于 2024-1-9 11:38
+
+姐妹论的一些论据是否搬到未婚妻论也能用，其实母鸡卡要揭露祥睦是指腹为婚的未婚妻妻关系，因为大人的原因被迫推倒删除，影响到了工期且导致了内部不和<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8621#       发表于 2024-1-9 11:40
+
+原来关系表睦祥的打码是未婚夫妻，我完全明白了，这就是独角兽删图的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

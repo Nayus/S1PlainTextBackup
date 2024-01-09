@@ -1996,3 +1996,17 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 猫狗估计还是和翼一样做了两手准备的，一个形态不受欢迎或者编不下去那就换成另外一个形态常驻咯，当然粉主的戏份不可能影薄就是了
 
+
+*****
+
+####  暗黑能乐  
+##### 466#       发表于 2024-1-9 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63585167&amp;ptid=2162354" target="_blank">imbaHerby 发表于 2024-1-9 09:45</a>
+虽然但是
+
+热带里不是已经塞过了吗</blockquote>
+可以在天堂相见，所以没关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

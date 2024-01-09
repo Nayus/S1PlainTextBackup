@@ -3119,3 +3119,27 @@ https://tachiyomi.org/news/2024-01-09-extensions-removal
 
 可以开个tachiyomi插件分享楼了（）
 
+
+*****
+
+####  qbz95  
+##### 313#       发表于 2024-1-9 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">早上发现了，华语社区就s1有说这事
+
+有没有大神搞插件聚合页面呢
+
+*****
+
+####  Idea  
+##### 314#       发表于 2024-1-9 11:39
+
+问下之前官网下的几个日语插件无法启动搜索是怎么一回事 
+
+*****
+
+####  hagane  
+##### 315#       发表于 2024-1-9 11:42
+
+难怪昨天电报里更新了1.50后，插件页面会报错
+

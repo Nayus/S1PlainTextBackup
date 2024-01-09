@@ -11655,3 +11655,40 @@ ave mujica的live2d ...</blockquote>
 
 而且日本人做遊戲仕様書詳細到一個吐，就算交接的人一句話不說，看仕様書都能把功能搞明白
 
+
+*****
+
+####  NODY  
+##### 8600#       发表于 2024-1-9 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586031&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-9 10:47</a>
+
+提前大半年开发，交接后要做的也是大半年后才实装的东西
+
+大半年时间都在做交接那确实可以入土了 ...</blockquote>
+我就是这个意思啊，按舅舅推测的7月播，那9月实装的mujica不就是大半年后实装的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8601#       发表于 2024-1-9 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586186&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-9 10:57</a>
+
+我就是这个意思啊，按舅舅推测的7月播，那9月实装的mujica不就是大半年后实装的吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以舅舅推测七月播到底是什么，是不是跟去年四月就做完了一样是出口转内销
+
+*****
+
+####  御幸一也  
+##### 8602#       发表于 2024-1-9 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">覺得是手工蛋跑路影響ave實裝的，不如信武士道定死了要在BanG Dream企劃十週年實裝ave mujica，然後阿北母雞卡動畫24話爆誕呢
+
+*****
+
+####  御幸一也  
+##### 8603#       发表于 2024-1-9 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算了，還是信我是秦始皇吧
+

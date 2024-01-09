@@ -792,3 +792,16 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202401/09/134752dl4kuriir0w1iuwn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3393#       发表于 2024-1-9 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582316&amp;ptid=2092345" target="_blank">Freakyyu 发表于 2024-1-8 23:26</a>
+
+这变来变去的是为啥
+
+—— 来自 Sony XQ-DQ72, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+黑娃觉得彼方人确实还不错，就把白娃“还给”他，然后听到宝藏之地名字激动的“回归”要去立刻去找<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

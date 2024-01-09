@@ -12238,3 +12238,67 @@ mujica的共犯原来犯的是重婚罪啊</blockquote>
 
 2024-1-9 13:11 上传
 
+
+*****
+
+####  NODY  
+##### 8660#       发表于 2024-1-9 13:14
+
+立希对灯我觉得是最不像女同的，很明显缺少恋爱最需要的独占感，爽姐拿约会跳脸她都只关心灯累不累，更像是深沉的父爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8661#       发表于 2024-1-9 13:14
+
+是 那天顧著滑坡沒發廚都給忘了，這就來
+
+初華偉大的臉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 8662#       发表于 2024-1-9 13:15
+
+ 本帖最后由 基神的强袭自由 于 2024-1-9 13:17 编辑 
+
+巴耶力（
+
+极限高达（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  笋干爆炸碱  
+##### 8663#       发表于 2024-1-9 13:15
+
+可惜买蛋白棒送的pr里只有这一张是新图
+
+这张真漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8664#       发表于 2024-1-9 13:16
+
+是新图，感觉像黑色生日那套立绘的画师。
+
+不管是不是可以梦一个新曲绘或者新图出谷吗，总不能就约一个单人立绘图吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 8665#       发表于 2024-1-9 13:16
+
+祥子这么多未婚妻，是要开后宫还是尼哥呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8666#       发表于 2024-1-9 13:19
+
+你邦主唱单独约图挺常见的，狗也经常只有灯有新图
+
+不过这至少说明画师没跑路，可以期待后面继续画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

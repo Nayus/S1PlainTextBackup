@@ -2062,3 +2062,14 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 对，狗不能吃巧克力
 
+
+*****
+
+####  碎镜子  
+##### 472#       发表于 2024-1-9 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63590667&amp;ptid=2162354" target="_blank">linhaitora 发表于 2024-1-9 16:06</a>
+
+对，狗不能吃巧克力</blockquote>
+有人间体形态，生理上就是人
+

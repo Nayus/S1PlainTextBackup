@@ -3228,3 +3228,13 @@ https://github.com/keiyoushi/extensions</blockquote>
 有没有大神搞插件聚合页面呢</blockquote>
 nga有但被隐了
 
+
+*****
+
+####  土豆麻辣人  
+##### 323#       发表于 2024-1-9 16:51
+
+事实证明在线源都是靠不住的，碰见想看得战略性下载才是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4144,3 +4144,15 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  khxooo  
+##### 45911#       发表于 2024-1-9 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63589864&amp;ptid=1712412" target="_blank">溯夜 发表于 2024-1-9 15:10</a>
+2.7除了踢足球观感比2.6开局好很多
+
+论坛助手,iPhone</blockquote>
+主要没有什么菌言菌语，就是一个王道的冒险故事，整个观感舒服多了。
+

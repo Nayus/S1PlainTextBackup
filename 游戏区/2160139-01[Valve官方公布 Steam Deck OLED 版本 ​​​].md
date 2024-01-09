@@ -2805,3 +2805,18 @@ OLED版原价都要3900+，3000左右买新机应该不可能，二手捡漏说�
 
 如果能上升到1680*1050或者1440*900，然后CPU保持现在低功耗优势的情况下升级一档，那不论串流还是未来新的3A都会好很多
 
+
+*****
+
+####  木竹九  
+##### 279#       发表于 2024-1-9 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582826&amp;ptid=2160139" target="_blank">kooor555 发表于 2024-1-9 00:23</a>
+
+现在oled最便宜的入手方法是啥。。看了下电商实在太贵了，打算把初版换了
+
+—— 来自 Sony XQ-AT72, Androi ...</blockquote>
+答案是等pdd年末开车 or 二手区年会硬通货。
+
+我自己是找朋友从hk带的， 算两笔邮费4300
+

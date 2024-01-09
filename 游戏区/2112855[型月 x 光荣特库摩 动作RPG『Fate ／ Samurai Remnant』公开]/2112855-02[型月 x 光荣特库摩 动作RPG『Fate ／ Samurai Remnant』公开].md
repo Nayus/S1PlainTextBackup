@@ -34,3 +34,13 @@
 
 2024-1-7 15:21 上传
 
+
+*****
+
+####  wthall  
+##### 1672#       发表于 2024-1-9 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于打完神之天平开坑这个。然后我发现怎么NS的帧数只有20帧？眼睛都快瞎掉了。只有国场CG是30帧。
+
+这个还有救么，没救我就去玩电脑版了。唯一的痛苦是不能再被窝里面打这个游戏。
+

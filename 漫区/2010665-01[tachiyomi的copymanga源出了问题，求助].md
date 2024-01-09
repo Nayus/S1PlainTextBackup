@@ -3078,3 +3078,13 @@ https://tachiyomi.org/news/2024-01-09-extensions-removal
 
 —— 来自 HUAWEI DBY-W09, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  白色的120  
+##### 308#       发表于 2024-1-9 10:32
+
+全要转第三方插件了吧，也算是规避风险了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

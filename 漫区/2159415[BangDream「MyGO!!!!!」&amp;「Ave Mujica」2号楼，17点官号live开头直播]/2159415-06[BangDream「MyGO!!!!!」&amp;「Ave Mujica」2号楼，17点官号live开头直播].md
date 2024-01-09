@@ -12655,3 +12655,48 @@ https://x.com/TurtleHeart5/status/1744625795732214266?s=20<img src="https://p.sd
 
 2024-1-9 21:49 上传
 
+
+*****
+
+####  御幸一也  
+##### 8701#       发表于 2024-1-9 21:55
+
+看下初華好看的臉調理一下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/09/215519a9qgutlxzuw1qsxh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20240107-151730_1744015411455435019_photo.jpg</strong> (298.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 21:55 上传
+
+[https://twitter.com/bpdne/status/1744015411455435019](https://twitter.com/bpdne/status/1744015411455435019)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 菠萝啵啵啵| + 1|完美！|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 8702#       发表于 2024-1-9 22:02
+
+淚目，武士道好為大家著想，能吃到動畫開播呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/09/220148dnpp4xs6sg45pp79.jpg" referrerpolicy="no-referrer">
+
+<strong>GDZ3hU7a0AA6JgT.jpg</strong> (208.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 22:01 上传
+

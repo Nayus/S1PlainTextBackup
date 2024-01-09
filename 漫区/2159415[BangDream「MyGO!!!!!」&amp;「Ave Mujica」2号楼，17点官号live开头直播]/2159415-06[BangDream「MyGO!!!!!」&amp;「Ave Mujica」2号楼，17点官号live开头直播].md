@@ -12588,3 +12588,37 @@ B站本来就代理了邦邦，当初上线第三季比日本本土的电视台�
 其次有可能B站偶像类都放到江苏那边审，极慢</blockquote>
 马三都我喜欢你了还不是过审+同步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  フミさん  
+##### 8694#       发表于 2024-1-9 19:46
+
+20240109 H4OPE直播配信中我🐑当场发MyGO推，望周知。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  QuattroVageena  
+##### 8695#       发表于 2024-1-9 19:47
+
+七点半准时，感动
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8696#       发表于 2024-1-9 19:50
+
+https://x.com/TurtleHeart5/status/1744625795732214266?s=20<img src="https://p.sda1.dev/15/a379d5a4fc35c6ea4b25ad8b45a9358c/CMP_20240109194952757.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 8697#       发表于 2024-1-9 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63593512&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-9 19:42</a>
+
+马三都我喜欢你了还不是过审+同步</blockquote>
+马三那个我喜欢你堪比电棍的我喜欢你<img src="https://static.saraba1st.com/image/smiley/face2017/272.png" referrerpolicy="no-referrer">
+

@@ -2146,3 +2146,14 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 其实我是觉得考虑到队伍里有个男妈妈当后援，粉主吃巧克力出问题这事很可能真的会拿来水上一集正好 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我真不信编剧这么有活
 
+
+*****
+
+####  HazukiShion  
+##### 481#       发表于 2024-1-9 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63593199&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-1-9 19:11</a>
+
+其实我是觉得考虑到队伍里有个男妈妈当后援，粉主吃巧克力出问题这事很可能真的会拿来水上一集正好 ...</blockquote>
+应该不会这么直接，估计有也是人形态吃了以后闹肚子、发烧之类的，然后某人来照顾增进感情。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

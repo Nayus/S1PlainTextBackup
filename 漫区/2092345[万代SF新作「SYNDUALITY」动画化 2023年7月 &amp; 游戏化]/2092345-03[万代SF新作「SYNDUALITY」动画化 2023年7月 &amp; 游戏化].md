@@ -964,3 +964,14 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 歌姬在OP看起来毫无戏份，不会要退场了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3409#       发表于 2024-1-9 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63593404&amp;ptid=2092345" target="_blank">ad110011s 发表于 2024-1-9 19:31</a>
+
+歌姬在OP看起来毫无戏份，不会要退场了吧</blockquote>
+op 1分53秒那个很像歌姬，接下来那个影子把光传给了白发诺娃（也是影子）
+

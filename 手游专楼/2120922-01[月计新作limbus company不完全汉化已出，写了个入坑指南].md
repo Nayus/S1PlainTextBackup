@@ -231,3 +231,11 @@ syl 瓦夜之后离新版本更新就只有八周时间了
 
 进入活动剧情没有限制，不过五章没通关会有提示；活动关卡是限定回合刷怪，第一顺位的人格会指定为控制部队长获得buff。关卡播报员固定为马库斯。
 
+
+*****
+
+####  Yuzutea  
+##### 503#       发表于 2024-1-9 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这播报员不会只有这期池子出吧
+

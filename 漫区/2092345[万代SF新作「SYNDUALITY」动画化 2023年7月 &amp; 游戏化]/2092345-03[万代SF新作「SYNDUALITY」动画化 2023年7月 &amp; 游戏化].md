@@ -755,3 +755,40 @@ OP那个影子像是夏尔的话，确实FLAG明显，OP好听
 另外歌姬是不是在新op里面完全没画面 ...</blockquote>
 那个影像感觉像歌姬
 
+
+*****
+
+####  aptx8285144  
+##### 3390#       发表于 2024-1-9 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582512&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-1-8 23:46</a>
+
+OP2：https://youtu.be/CmqwKh_mQBg
+
+ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
+如果右边那个是原主人，那个老婆婆就是老了以后的样子?如果是，差别也太大了
+
+
+*****
+
+####  RE㐅ia  
+##### 3391#       发表于 2024-1-9 13:45
+
+这翻译…对味了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 3392#       发表于 2024-1-9 13:48
+
+这是在说op里那个长得特别像章鱼的剪影？
+
+877DC494-677E-458C-B0FD-F2F0AF6B1865.jpeg
+(326.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202401/09/134752dl4kuriir0w1iuwn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

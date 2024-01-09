@@ -12442,3 +12442,23 @@ mujica的共犯原来犯的是重婚罪啊</blockquote>
 
 缓下来认真听了几遍mujica新歌，歌名查了一下有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有play the angles这种俚语用法
 
+
+*****
+
+####  笋干爆炸碱  
+##### 8681#       发表于 2024-1-9 18:07
+
+虽然蛋白棒看起来属实不咋地，但是送ws卡的pr，一盒一张，六抽一，除了初华有新图之外其他都是假面舞会的曲绘
+
+忽略对战价值我还是很想要的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+推上偷的图👇
+
+<img src="https://img.saraba1st.com/forum/202401/09/180716pmgrenzjuzdz1jjr.jpg" referrerpolicy="no-referrer">
+
+<strong>aa487f0b6d206fbb952fecdd2d80ee9.jpg</strong> (142.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 18:07 上传
+

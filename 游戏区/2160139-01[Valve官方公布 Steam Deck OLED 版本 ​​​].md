@@ -2771,3 +2771,15 @@ OLED版原价都要3900+，3000左右买新机应该不可能，二手捡漏说�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  寻龙分金看缠山  
+##### 276#       发表于 2024-1-9 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582826&amp;ptid=2160139" target="_blank">kooor555 发表于 2024-1-9 00:23</a>
+现在oled最便宜的入手方法是啥。。看了下电商实在太贵了，打算把初版换了
+
+—— 来自 Sony XQ-AT72, Androi ...</blockquote>
+同问，蹲
+

@@ -11394,3 +11394,20 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 
 華語第一祥廚樓當然討論祥子<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 8575#       发表于 2024-1-9 08:44
+
+爱音大部分剧情都在动画表现完了，没什么假药可以造，要是手游活动空降个老团幼驯染之类的倒是能聊聊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 8576#       发表于 2024-1-9 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63581082&amp;ptid=2159415" target="_blank">HazukiShion 发表于 2024-1-8 21:15</a>
+说不定是大方向没改，但改了些独角兽特别在意的东西，比如女女关系性。 ...</blockquote>
+结合完结之后才出事，以及工艺蛋的退出，可能是代替工艺蛋编剧新上任的手游总编剧对绫奈的剧本有意见，武士道更优先手游总编剧的意见吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

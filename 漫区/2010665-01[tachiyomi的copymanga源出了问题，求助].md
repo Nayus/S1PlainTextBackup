@@ -3023,3 +3023,13 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 对了，坛友版插件是哪一个？我用的github上的
 
+
+*****
+
+####  萨尤克  
+##### 302#       发表于 2024-1-9 08:46
+
+0.14.7现在也没法获取插件列表了，这要怎么破<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

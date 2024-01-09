@@ -11494,3 +11494,63 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 
 虽然说没有生日语音我还是很伤心<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 8584#       发表于 2024-1-9 10:03
+
+没事，说不定母鸡卡进游戏之前游戏就关服了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8585#       发表于 2024-1-9 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要不真的，今年週年ave mujica直接提前進遊戲算了，這樣我對你2025播動畫還能稍微和解一點
+
+*****
+
+####  datsno1  
+##### 8586#       发表于 2024-1-9 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63575374&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-8 14:13</a>
+
+滑坡不可怕 可怕的是滑坡成真  11月那次真人团主唱的for2024邦多利发布会 李子没参加  我也在群里口嗨过202 ...</blockquote>
+那个时候是不是在world dai star那边？
+
+*****
+
+####  rslika  
+##### 8587#       发表于 2024-1-9 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">Bang Dream2 堂堂运营
+
+*****
+
+####  NODY  
+##### 8588#       发表于 2024-1-9 10:08
+
+看按时间推的话，没准动画拖到明年和独角兽取关还真的都和工艺蛋这一走有关系，手游制作工期出问题还有不满新设定的剧情走向什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这样看还是指望一下新招来的人手不要在卡面和剧情上出问题吧，今年开年卡池就是邪神脸和ooc表情，后面还不知道要怎么崩
+
+*****
+
+####  御幸一也  
+##### 8589#       发表于 2024-1-9 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63585497&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-9 10:08</a>
+
+看按时间推的话，没准动画拖到明年和独角兽取关还真的都和工艺蛋这一走有关系，手游制作工期出问题还有不满 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我之前不是都說過手工蛋參與度問題了，看訪談的話，
+
+手工蛋在劇情這塊話語權在監督和綾奈之下，因為基調是監督和綾奈定的
+
+*****
+
+####  笋干爆炸碱  
+##### 8590#       发表于 2024-1-9 10:12
+
+乐观的来看，手游撑不到母鸡卡进游戏那一天是否也意味着永远不存在邪神卡
+

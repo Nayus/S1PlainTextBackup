@@ -11941,3 +11941,89 @@ ave官推剛剛動了一下，RT了新歌的串流宣傳
 
 —— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  PDQ4  
+##### 8631#       发表于 2024-1-9 12:13
+
+所以幼驯染三人组在一起才能达成完美的幸福，可惜WSD太拉，我们大概永远看不到三人订婚约定终生的美好誓言，只能从场外的边角料以及动画留下的三人戒指一探究竟。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+如果戒指也没有，那就是劳保发威了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8632#       发表于 2024-1-9 12:13
+
+我被说服了，立刻变身未婚妻论支持者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 8633#       发表于 2024-1-9 12:16
+
+怪不得mujica成员有同款戒指，原来是都是丰川小姐的未婚妻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8634#       发表于 2024-1-9 12:19
+
+樓友再說下去感覺有萌萌人就要上鉤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 8635#       发表于 2024-1-9 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">未曾设想的方向
+算我一个<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  笋干爆炸碱  
+##### 8636#       发表于 2024-1-9 12:21
+
+回忆了一下我还记得的姐妹论论据：
+
+1.独角兽提过的两人的名字，祥和睦都是好字眼——指腹为婚了起配套的名字很合理吧，参见05版宝莲灯电视剧刘沉香和丁香
+
+2.外貌上的相似点，刘海查重率近似百分百——相处得多了有妻妻相很正常
+
+3.代号对应月面地理等对应关系——可以无缝从姐妹论挪来，未婚妻怎么不能对应呢
+
+4.细雪——原著中雪子正是为了婚事烦恼，把姐妹和婚事混合在一起魔改一下即可得
+
+5.半身——总所周知婚姻关系内总是称呼对方为另一半的
+
+以上都是我瞎编的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8637#       发表于 2024-1-9 12:21
+
+悬疑推理要素可以放在谁才是未婚妻上，甚至可以有时间诡计和叙述性诡计<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 8638#       发表于 2024-1-9 12:21
+
+mujica的共犯原来犯的是重婚罪啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8639#       发表于 2024-1-9 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63587407&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-9 12:21</a>
+
+回忆了一下我还记得的姐妹论论据：
+
+1.独角兽提过的两人的名字，祥和睦都是好字眼——指腹为婚了起配套的名 ...</blockquote>
+劉海查重率笑吐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

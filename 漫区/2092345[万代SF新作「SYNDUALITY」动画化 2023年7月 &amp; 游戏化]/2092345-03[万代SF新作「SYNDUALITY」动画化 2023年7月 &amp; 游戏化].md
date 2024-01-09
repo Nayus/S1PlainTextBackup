@@ -1057,3 +1057,32 @@ ARCANA PROJECT《アイレ》[https://c6.y.qq.com/base/fcgi-bin/u?__=BUYwmSqjpCv
 
 这样的贤士什么时候能在现实中实现，太香了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 3418#         楼主| 发表于 2024-1-9 23:21
+
+[https://twitter.com/maro0327/status/1744380963302363514](https://twitter.com/maro0327/status/1744380963302363514)
+
+2期スタートだ～～～！
+
+OPのアニメーションディレクター？を担当しました～～
+
+セル部分のチェックしたり少し人呼んだりしてました！！
+
+また1シーズンよろしくお願いします！！
+<img src="https://p.sda1.dev/15/100437098153ed534a61d3aacb660c94/20240109_231929.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/popopopoow/status/1744383241019343028](https://twitter.com/popopopoow/status/1744383241019343028)
+
+２期OP原画で参加しています
+
+ARCANA  PROJECTさんの曲すごい良いので見てくださいー！
+
+誘っていただきありがとうございました！
+<img src="https://p.sda1.dev/15/ee19ee80f57fe610c893d60891bcff56/20240109_231932.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/91296afed4434cdb83dfaa57087b5cd6/20240109_231933.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/78c1d0dfcf9dc866f363de601c98be9c/20240109_231934.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/3c80f692fbc04355ffce7be116b0bcf8/20240109_231935.jpg" referrerpolicy="no-referrer">
+

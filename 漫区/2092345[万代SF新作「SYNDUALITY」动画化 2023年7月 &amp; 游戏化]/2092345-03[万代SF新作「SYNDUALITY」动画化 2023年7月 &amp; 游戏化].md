@@ -1009,3 +1009,21 @@ op 1分53秒那个很像歌姬，接下来那个影子把光传给了白发诺�
 op 1分53秒那个很像歌姬，接下来那个影子把光传给了白发诺娃（也是影子） ...</blockquote>
 这么说更危险了，都到传功环节了，flag立满了
 
+
+*****
+
+####  diectt  
+##### 3413#       发表于 2024-1-9 20:48
+
+又回想起这番难绷的中文字幕了，还不如直接看生肉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3414#       发表于 2024-1-9 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63594210&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-1-9 20:40</a>
+
+嘴臭诺瓦好喜感</blockquote>
+有人说这是明日香和绫波丽的人格转换<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

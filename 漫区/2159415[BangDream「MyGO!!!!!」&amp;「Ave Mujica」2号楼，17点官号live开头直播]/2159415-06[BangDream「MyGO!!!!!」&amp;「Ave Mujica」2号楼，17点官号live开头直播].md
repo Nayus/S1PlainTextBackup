@@ -12622,3 +12622,14 @@ https://x.com/TurtleHeart5/status/1744625795732214266?s=20<img src="https://p.sd
 马三都我喜欢你了还不是过审+同步</blockquote>
 马三那个我喜欢你堪比电棍的我喜欢你<img src="https://static.saraba1st.com/image/smiley/face2017/272.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 8698#       发表于 2024-1-9 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63593030&amp;ptid=2159415" target="_blank">ylssb10438 发表于 2024-01-09 18:57:13</a>
+晚半年是为了先送审是吧</blockquote>送审同步播既需要时间符合压着不播说，又可能修改内容符合临时改剧本说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -3216,3 +3216,15 @@ https://github.com/keiyoushi/extensions</blockquote>
 
 3、漫画柜 提示 “HTTP 403”，但是用webview可以正常浏览，这个问题从0.15.1开始出现，0.14.7是没问题的；
 
+
+*****
+
+####  烂片  
+##### 322#       发表于 2024-1-9 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586714&amp;ptid=2010665" target="_blank">qbz95 发表于 2024-1-9 11:34</a>
+早上发现了，华语社区就s1有说这事
+
+有没有大神搞插件聚合页面呢</blockquote>
+nga有但被隐了
+

@@ -815,3 +815,25 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 配置越来越符合啦。
 
+
+*****
+
+####  aptx8285144  
+##### 3395#       发表于 2024-1-9 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63589177&amp;ptid=2092345" target="_blank">三合一出现 发表于 2024-1-9 14:28</a>
+
+这下还能喜欢大家吗？
+
+配置越来越符合啦。</blockquote>
+艾女士在OP出场次序仅在诺娃双人格之后，赢（
+
+*****
+
+####  aptx8285144  
+##### 3396#       发表于 2024-1-9 14:39
+
+先别说“喜欢大家”，这最后几个镜头给代表物还挺有韵味的，恩，不是因为想到全灭（
+
+夏尔这OP出场方式的FLAG够大的
+

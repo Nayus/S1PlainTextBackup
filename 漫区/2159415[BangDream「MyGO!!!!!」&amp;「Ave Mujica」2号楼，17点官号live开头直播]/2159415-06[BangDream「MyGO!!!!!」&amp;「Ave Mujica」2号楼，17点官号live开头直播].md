@@ -12434,3 +12434,11 @@ mujica的共犯原来犯的是重婚罪啊</blockquote>
 
 蛋白棒这东西得看配料表……别来个麦芽糊精
 
+
+*****
+
+####  akirakira  
+##### 8680#       发表于 2024-1-9 17:49
+
+缓下来认真听了几遍mujica新歌，歌名查了一下有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有play the angles这种俚语用法
+

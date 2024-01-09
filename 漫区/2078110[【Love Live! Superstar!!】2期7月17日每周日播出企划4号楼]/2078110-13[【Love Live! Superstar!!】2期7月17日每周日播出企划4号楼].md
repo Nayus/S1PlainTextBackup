@@ -219,3 +219,11 @@ Image_1704798594490.jpg
 
 喜欢LovingLoving，本来挺期待六等星试听感觉一般（看到名字就不自觉拿来跟Aimer的六等星之夜对比<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 19131#       发表于 2024-1-9 21:22
+
+CT和WTY跟我想的完全不一样，不过应该很适合现场打call，目前喜欢主打，loving和最后一首
+

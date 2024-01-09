@@ -11448,3 +11448,14 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  鲍里斯  
+##### 8580#       发表于 2024-1-9 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582899&amp;ptid=2159415" target="_blank">非此即彼 发表于 2024-01-09 00:35:38</a>
+今天刚看完这个番，觉得意犹未尽，然后来动漫区翻了翻1号专楼，从后往前翻了几百楼，发现大家都是讨论立希 ...</blockquote>其他论坛也在聊立希祥子吧，爱音去看二创多
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

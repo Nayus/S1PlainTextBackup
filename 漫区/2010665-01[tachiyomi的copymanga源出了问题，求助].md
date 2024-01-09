@@ -3050,3 +3050,21 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 说明tachiyomi做大了，这下麻烦事多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ml1642879  
+##### 305#       发表于 2024-1-9 09:34
+
+这下大ピンチ了
+
+*****
+
+####  GrassSand  
+##### 306#       发表于 2024-1-9 09:39
+
+https://tachiyomi.org/news/2024-01-09-extensions-removal
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

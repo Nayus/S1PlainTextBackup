@@ -1086,3 +1086,13 @@ ARCANA  PROJECTさんの曲すごい良いので見てくださいー！
 <img src="https://p.sda1.dev/15/78c1d0dfcf9dc866f363de601c98be9c/20240109_231934.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/3c80f692fbc04355ffce7be116b0bcf8/20240109_231935.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 3419#       发表于 2024-1-10 05:47
+
+看了一个靠谱的翻译 A国技术有点恐怖
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

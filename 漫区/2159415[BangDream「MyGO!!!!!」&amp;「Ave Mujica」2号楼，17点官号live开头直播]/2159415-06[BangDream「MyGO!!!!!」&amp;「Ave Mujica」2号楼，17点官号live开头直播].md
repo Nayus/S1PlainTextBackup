@@ -11611,3 +11611,25 @@ ave mujica的live2d早就實裝進去了，譜面也不是什麼會出大問題�
 
 不過有一說一，你邦手遊這live2d是真的難繃，2024年了，這水準像2014年做的一樣
 
+
+*****
+
+####  笋干爆炸碱  
+##### 8596#       发表于 2024-1-9 10:36
+
+说起来我还是因为手游实装蝶团跑路的人来着<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+时间过得好快，这都是20年的事情了
+
+*****
+
+####  NODY  
+##### 8597#       发表于 2024-1-9 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63585697&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-9 10:22</a>
+
+不是，是我對邦多利手遊有什麼誤解嗎，這要開發的東西不就譜面、劇情、新卡，
+
+ave mujica的live2d ...</blockquote>
+除非是像某些游戏那样说换运营其实只是换了个套皮子公司，内部阵容人手基本上不变，不然运营交接应该还是挺麻烦的吧，不可能马上接手就无缝往下做一样的内容，按手游一般提前备好大半年存货的说法，如果真是原本打算7月动画9月实装的话，确实有可能刚好卡在存货用完公司交接的时间上
+

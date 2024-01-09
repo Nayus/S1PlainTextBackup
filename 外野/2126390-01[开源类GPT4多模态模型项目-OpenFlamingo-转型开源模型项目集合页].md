@@ -24038,3 +24038,87 @@ TIER方法与基线方法在三个主流AIGCIQA数据库上的性能比较，↑
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1169#       发表于 2024-1-10 05:04
+
+Grimoire
+
+魔法书(Grimoire)就是增强大型语言模型您所需要的
+
+github项目主页:https://github.com/IAAR-Shanghai/Grimoire
+
+上下文学习(ICL/In-context learning)是提高大型语言模型在特定任务上性能的关键方法之一，它通过提供一组少量的问题和答案示例来实现，然而，不同类型的模型在ICL能力上显示出显著的差异，这通常是由于模型架构、数据学习量以及参数的大小等因素所导致的，通常情况下，模型的参数大小越大，学习数据越丰富，其ICL能力就越强
+
+在本文中，提出了一种名为强LLM增强上下文学习(SLEICL/Strong LLM Enhanced ICL)的方法，它涉及使用强大的语言模型从示例中学习，然后将这些学到的技能进行摘要和转移(summarizing and transferring)，提供给弱小语言模型进行推理和应用，这确保了ICL的稳定性和有效性，与直接让弱语言模型从提示示例中学习相比，SLEICL减少了这些模型进行ICL的难度
+
+在多达八个数据集以及五种语言模型上进行的实验证明，使用SLEICL方法，弱语言模型在其自身的零样本或少样本能力上取得了一致改进，一些弱语言模型甚至在SLEICL的帮助下超过了GPT4-1106-preview(零样本)的性能水平
+
+<img src="https://img.saraba1st.com/forum/202401/10/050349vkzcfkkc3ac06ab0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-045849__01.jpg</strong> (305.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 05:03 上传
+
+与直接让语言模型进行常规上下文学习(Regular ICL)相比，强LLM增强上下文学习(SLEICL)的方法是让一个强大的语言模型最初学习和总结基于代表性样本的技术，随后，生成的技术(魔法书/grimoire)作为提示的一部分被纳入到弱语言模型的回答中，以指导它们的回应
+
+<img src="https://img.saraba1st.com/forum/202401/10/050354wbnjtnssndz9diis.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-045925__01.jpg</strong> (337.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 05:03 上传
+
+所提出的SLEICL方法的框架，首先，使用不同的样本选择方法(KCS，HCS，HSS，RSS)获得多组代表性样本，每组采样样本都根据标签进行分层管理，随后，根据每个样本集生成相应的深度魔法书(PG/profound grimoires)和简单魔法书(SG/simple grimoires)，此外，还包括不使用样本生成的零样本深度魔法书(zero-shot-PG)和零样本简单魔法书(zero-shot-SG)，最后，根据给定的测试样本对所有的魔法书进行排名，并将最佳魔法书交给弱LLM进行回答
+
+<img src="https://img.saraba1st.com/forum/202401/10/050359oeobbduohu86e1bo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-045943__01.jpg</strong> (328.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 05:03 上传
+
+魔法书生成的工作流程
+
+<img src="https://img.saraba1st.com/forum/202401/10/050403ded2omohlazaz2ve.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-050108__01.jpg</strong> (526.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 05:04 上传
+
+魔法书增强的GPT3.5-Turbo的详细评估结果
+
+注意:-表示该超参数在当前测试中无效，n-shot表示每个预测将提供n个样本，k-shot表示在每个标签下提供k个样本以生成魔法书，r表示困难样本的采样比例，每列中的最佳性能将以粗体显示，第二佳性能将以下划线显示
+
+<img src="https://img.saraba1st.com/forum/202401/10/050428a7x57885yr54k04o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-050134__01__01.jpg</strong> (673.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 05:04 上传
+
+魔法书方法相对于基线的预测精度差异
+
+注意:Max(Single Grimoire)表示在所有的单个魔法书方法(among all Single Grimoire methods)中的最佳性能，正差异将以绿色突出显示，较深的颜色表示差异更大：&lt;5%、5%∼10%、10%∼20%、20%∼30%、&gt;30%，负差异将以红色突出显示，差异越小，颜色越深:&gt;-5%、-5%∼-10%、&lt;-10%，NaN表示有效实验数据数量过小，无法给出可靠的准确率
+
+<img src="https://img.saraba1st.com/forum/202401/10/050434oyhetgueasatsmug.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-050149__01.jpg</strong> (115.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 05:04 上传
+
+雷达图对比了GPT-4在零样本提示下与其他模型在Max(Single Grimoire)设置中的结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

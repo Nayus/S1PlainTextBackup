@@ -879,3 +879,11 @@ urucammty加上杏女 这下是真的蹭上了
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TiHaru  
+##### 16135#       发表于 2024-1-9 23:04
+
+我现在看的另外一个v自称每天摄入5000大卡，可能我真的是喜猪体质
+

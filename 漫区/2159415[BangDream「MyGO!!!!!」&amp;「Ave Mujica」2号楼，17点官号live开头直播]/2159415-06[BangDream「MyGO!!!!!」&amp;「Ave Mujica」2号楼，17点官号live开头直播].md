@@ -12728,3 +12728,13 @@ allin 喵喵是可以替换的
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  蒜苗  
+##### 8705#       发表于 2024-1-9 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63595129&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-9 21:55</a>
+看下初華好看的臉調理一下 </blockquote>
+左下角初华的脖子是不是有点太长了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

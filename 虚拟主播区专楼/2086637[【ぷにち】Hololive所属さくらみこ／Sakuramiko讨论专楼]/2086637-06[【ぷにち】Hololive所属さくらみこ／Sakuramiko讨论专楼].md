@@ -4868,3 +4868,21 @@ Yマネーは普通にゲームやってれば勝手にカンストするくら�
 
 草台草台，原来那天23点结束前我打开页面就打不开了是真的草台而不是故意提早结束
 
+
+*****
+
+####  holoan  
+##### 7968#         楼主| 发表于 2024-1-9 19:40
+
+笑死了二次草台？是不是有人投诉只多开一天预定时间不够，直接再多开了一星期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/09/193947t64602igl0sw6ig4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 19:39 上传
+
+问题是这些周边说实话没那么多想买的冲动（虽然已经买了）
+

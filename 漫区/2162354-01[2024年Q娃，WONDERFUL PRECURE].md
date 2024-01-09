@@ -2135,3 +2135,14 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 考虑到近几作解禁了非战斗变身，也没准会出现小麦在狗狗状态下吃巧克力差点吃死自己然后被强制变身来解决问题的展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 480#       发表于 2024-1-9 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63593199&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-1-9 19:11</a>
+
+其实我是觉得考虑到队伍里有个男妈妈当后援，粉主吃巧克力出问题这事很可能真的会拿来水上一集正好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我真不信编剧这么有活
+

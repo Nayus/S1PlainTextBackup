@@ -12566,3 +12566,25 @@ B站本来就代理了邦邦，当初上线第三季比日本本土的电视台�
 
 但是很遗憾我认真看了这六张的效果，只有海铃和初华还算有点意思
 
+
+*****
+
+####  Aloereed  
+##### 8692#       发表于 2024-1-9 19:40
+
+女女关系性过不了审的（
+
+其次有可能B站偶像类都放到江苏那边审，极慢
+
+*****
+
+####  NODY  
+##### 8693#       发表于 2024-1-9 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63593498&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-1-9 19:40</a>
+
+女女关系性过不了审的（
+
+其次有可能B站偶像类都放到江苏那边审，极慢</blockquote>
+马三都我喜欢你了还不是过审+同步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1970,3 +1970,13 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 热带里不是已经塞过了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wly  
+##### 463#       发表于 2024-1-9 10:02
+
+<blockquote>病態極端 发表于 2024-1-8 18:07
+有沒有可能，雖然設定了動物變人，但腳本還是按一般小女孩寫，於是變成一個無意義的設定。 ...</blockquote>
+这种才是正常操作，人狗互动能玩多少我花样？能水3集就不错了。
+

@@ -11459,3 +11459,38 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 8581#       发表于 2024-1-9 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都感覺自己快調理好了，但想到不播動畫就進不了遊戲，
+
+不進遊戲，那各種聯動、翻唱、節日語音全部沒ave mujica的份，就想炸了武士道。
+
+雖然最難繃的還是睦祥這兩人生日卡那，這下要<strong>2026</strong>年才能聽到生日語音了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+不行，又調理不好了
+
+*****
+
+####  Aendst  
+##### 8582#       发表于 2024-1-9 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2026的时候手游还活着吗，手工蛋没跑还能有点自信
+
+*****
+
+####  笋干爆炸碱  
+##### 8583#       发表于 2024-1-9 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63585320&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-9 09:58</a>
+
+都感覺自己快調理好了，但想到不播動畫就進不了遊戲，
+
+不進遊戲，那各種聯動、翻唱、節日語音全部沒 ...</blockquote>
+我用26年才能被信泽画鬼图调理了下，感觉效果还行
+
+虽然说没有生日语音我还是很伤心<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

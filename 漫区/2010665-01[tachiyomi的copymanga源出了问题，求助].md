@@ -3068,3 +3068,13 @@ https://tachiyomi.org/news/2024-01-09-extensions-removal
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cuchulain2021  
+##### 307#       发表于 2024-1-9 09:56
+
+插件列表直接取消，麻烦了
+
+—— 来自 HUAWEI DBY-W09, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

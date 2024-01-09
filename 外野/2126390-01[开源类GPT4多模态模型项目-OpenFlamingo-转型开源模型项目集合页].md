@@ -23974,3 +23974,67 @@ AST-T5在下游任务中的结果与已构建的语言模型的报告结果对�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1168#       发表于 2024-1-10 04:25
+
+TIER
+
+用于AIGC图像质量评估的基于文本和图像编码器的回归
+
+项目代码仓库:https://github.com/jiquan123/TIER
+
+最近，AIGC图像质量评估(AIGCIQA/AIGC image quality assessment)作为计算机视觉中的一个新课题出现，旨在从人类感知的角度评估AI生成图像的质量，与常见的图像质量评估任务不同，这些任务中的图像是由生成模型使用文本提示生成的，而不是通过噪声、模糊和压缩来扭曲原始图像
+
+在过去几年中已经做出了相当大的努力来推进AIGCIQA，然而，大多数现有的AIGCIQA方法直接从单张独立的生成的图像中回归预测的分数，忽视了这些图像的文本提示中包含的信息，这个疏忽在一定程度上限制了这些AIGCIQA方法的性能
+
+为了解决这个问题，本提出了一种基于文本和图像编码器的回归(TIER/text and image encoder-based regression)框架，具体来说，将生成的图像及其相应的文本提示作为输入，利用文本编码器和图像编码器分别从这些文本提示和生成的图像中提取特征
+
+为了证明提出的TIER方法的有效性，在几个主流的AIGCIQA数据库上进行了大量实验，包括AGIQA-1K、AGIQA-3K和AIGCIQA2023，实验结果表明，本文提出的TIER方法在大多数用例中都表现出了优于基线的性能
+
+<img src="https://img.saraba1st.com/forum/202401/10/042536kqm3bopsgtb4sp3b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-042336.jpg</strong> (49.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 04:25 上传
+
+(a)在常见的图像质量评估任务中，图像是由受到噪声、模糊和压缩等影响而变形的原始图像派生而来的
+
+(b)在AIGCIQA任务中，图像通常是通过使用文本提示生成模型生成的
+
+<img src="https://img.saraba1st.com/forum/202401/10/042540sh49c4czk3njcbpp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-042350.jpg</strong> (58.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 04:25 上传
+
+本文提出的TIER框架的工作流程，分别将生成的图像和对应的文本提示作为输入，利用文本编码器和图像编码器从这些文本提示和生成的图像中提取特征，文本编码器使用在自然语言处理(NLP)中常用的文本Transformer模型，而图像编码器可以是卷积神经网络或视觉Transformer，然后，将提取的文本和图像特征进行拼接(concatenated)，并输入到回归网络中预测得分
+
+<img src="https://img.saraba1st.com/forum/202401/10/042546g44ji3ul8mk8gmgs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-042419__01.jpg</strong> (310.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 04:25 上传
+
+与使用不同文本编码器和图像编码器的TIER方法与基线方法在三个主流AIGCIQA数据库上进行对比
+
+<img src="https://img.saraba1st.com/forum/202401/10/042551vf6llrcllpcc1zcc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-042433__01.jpg</strong> (413.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 04:25 上传
+
+TIER方法与基线方法在三个主流AIGCIQA数据库上的性能比较，↑表示TIER方法相比基线方法表现出了更好的性能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

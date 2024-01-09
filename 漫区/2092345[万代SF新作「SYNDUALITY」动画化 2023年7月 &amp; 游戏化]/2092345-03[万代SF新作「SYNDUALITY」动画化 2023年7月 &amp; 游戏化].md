@@ -837,3 +837,23 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 夏尔这OP出场方式的FLAG够大的
 
+
+*****
+
+####  aptx8285144  
+##### 3397#       发表于 2024-1-9 14:48
+
+夏尔其实现在心理很矛盾吧，洗澡那里替彼方讲话真是被影响到现在，去邂逅之地那里那个沉思又明显想起自己的情报责任
+
+*****
+
+####  secretgarnet  
+##### 3398#       发表于 2024-1-9 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63588523&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-1-9 13:40</a>
+
+那个影像感觉像歌姬</blockquote>
+确实是歌姬，当时放太快没看清楚，那个麻花辫是歌姬演出服的造型。
+
+歌姬在op里面除了照片就只有把闪光传递给noir的这个镜头，感觉flag已经插满了
+

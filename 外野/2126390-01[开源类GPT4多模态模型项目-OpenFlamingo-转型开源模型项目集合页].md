@@ -23886,3 +23886,91 @@ LongAlpaca-16K(8个A100 GPU)和Activation Beacon(8个A800 GPU)的训练时间和
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1167#       发表于 2024-1-10 03:54
+
+AST-T5
+
+用于代码生成和理解的结构感知预训练(Structure-Aware Pretraining)
+
+github项目代码仓库:https://github.com/gonglinyuan/ast_t5
+
+大型语言模型(LLMs)在与代码相关的任务中取得了重大进步，但许多LLMs依然将代码视为简单的序列(simple sequences)，忽视了其结构化的本质
+
+本文引入了AST-T5，一种新颖的预训练范式，利用抽象语法树(AST/Abstract Syntax Tree)增强了代码生成、转换(transpilation)和理解能力，通过动态规划(dynamic programming)，AST感知分割的保留代码结构，而AST感知跨度损坏目标(AST-Aware Span Corruption objective)使模型能够重构各种代码结构，与其他模型不同，AST-T5避免了复杂的程序分析或架构改变，因此可以与任何编码器-解码器Transformer无缝集成
+
+评估结果显示，AST-T5在各种与代码相关的任务中始终优于相同规模的LLMs，结构感知使AST-T5在代码到代码相关任务中特别强大，在Bugs2Fix任务的精确匹配分数上超过CodeT5 2个点，在CodeXGLUE的Java-C#转换任务上的精确匹配分数上超过CodeT5 3个点
+
+<img src="https://img.saraba1st.com/forum/202401/10/035422a4org1rsurmbrreg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-035220.jpg</strong> (112.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 03:54 上传
+
+使用Python的阶乘函数对比了AST-Aware子树损坏(Subtree Corruption)和原生(Vanilla)T5两种方法
+
+这两种方法都用哨点(sentinel)Token(添加到词汇表中的特殊Token，在图中表示为[X]，[Y]和[Z])替换了被遮蔽(Mask)的片段，并且输出序列包含原始的遮蔽Token，输入和目标以字节对编码(BPE/byte-pair encoding)显示，例如，“factorial”被编码为“fact”和“##orial”，与随机遮蔽代码并且与结构无关的Vanilla T5不同，本文方法专门针对与AST子树对齐的片段，如表达式和语句(expressions and statements)
+
+<img src="https://img.saraba1st.com/forum/202401/10/035427g0a1cluygy3ayghh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-035245.jpg</strong> (128.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 03:54 上传
+
+贪婪分割和AST感知分割的对比:
+
+对于一个112个Token的代码示例，最大长度设置为48，贪婪分割将前48个标记放在块1中，接下来的48个标记放在块2中，剩下的放在块3中，破坏了代码的结构完整性
+
+相比之下，AST-Aware分割使用动态规划算法智能地对代码进行分割，与成员函数或主要函数分支的边界对齐，从而保留了代码的结构
+
+为了清晰起见，附带的AST对一些层级进行了修剪，证实了这些分割确实与关键子树的分界线相吻合
+
+<img src="https://img.saraba1st.com/forum/202401/10/035432yt2367341mb1f133.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-035314.jpg</strong> (85.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 03:54 上传
+
+各种预训练配置在下游任务中的性能对比，每一行表示对前一行模型应用顺序性修改，指标包括HumanEval的“Pass@1”，CONCODE的“Exact Match”，Bugs2Fix(“Small”和“Medium”代码长度分割)，以及Java-C#转换(包括Java到C#和C#到Java)，复制检测(Clone Detection)使用F1分数，缺陷检测(Defect Detection)使用准确率，与先前的研究一致
+
+<img src="https://img.saraba1st.com/forum/202401/10/035436pd7dic6bbdpd5qii.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-035325.jpg</strong> (95.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 03:54 上传
+
+AST-T5在下游任务中的结果与已构建的语言模型的报告结果对比，评估指标与表1中的指标一致，主要关注与AST-T5相似规模的模型，特别是“Base”型号(110M到230M参数)，由于某些模型为仅编码器或仅解码器(encoder-only or decoder-only)，因此不适用于某些任务，这些结果在本表中标有“N/A”，因为它们在文献中不可用
+
+<img src="https://img.saraba1st.com/forum/202401/10/035441prhzxqt1huubh5hl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-035335.jpg</strong> (60.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 03:54 上传
+
+将AST-T5在HumanEval上的性能与超过230M参数的模型进行对比，散点图上的每个点表示一个模型，x轴以对数刻度显示参数数量，y轴以对数刻度显示HumanEval的Pass@1，模型的开源状态以颜色编码:蓝色表示开源，红色表示专有
+
+<img src="https://img.saraba1st.com/forum/202401/10/035445v3db7u37sob5d5s3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-035340.jpg</strong> (61.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 03:54 上传
+
+将AST-T5在MBPP上的性能与其他模型进行对比，散点图上的每个点表示一个模型
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -11893,3 +11893,25 @@ ave官推剛剛動了一下，RT了新歌的串流宣傳
 
 那麼，為什麼你不RT定檔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 8626#       发表于 2024-1-9 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586910&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-9 11:48</a>
+
+就像夏娃是亚当的肋骨一样，未婚妻是半身意外的真的好合理啊
+
+串起来了（不是 ...</blockquote>
+恍然大悟！原來半身的半身是這個意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 8627#       发表于 2024-1-9 12:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是漏油有本事，多说点，爱看！
+
+我要看到【理性分析】丰川祥子与若叶睦是未婚夫妻的可能性【Ave Mujica】.mp4
+

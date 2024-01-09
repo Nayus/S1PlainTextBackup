@@ -3159,3 +3159,16 @@ https://tachiyomi.org/news/2024-01-09-extensions-removal
 插眼等老哥发第三方了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 一翻楼里原来又是韩国人搞事吗
 
+
+*****
+
+####  charlespfan  
+##### 318#       发表于 2024-1-9 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586772&amp;ptid=2010665" target="_blank">Idea 发表于 2024-1-9 11:39</a>
+
+问下之前官网下的几个日语插件无法启动搜索是怎么一回事</blockquote>
+下方选项点“浏览”，“图源”界面里点右上角三横，翻到最下面找到“日本語”打开就行
+
+（刚发现我的日语图源为啥也被关了）
+

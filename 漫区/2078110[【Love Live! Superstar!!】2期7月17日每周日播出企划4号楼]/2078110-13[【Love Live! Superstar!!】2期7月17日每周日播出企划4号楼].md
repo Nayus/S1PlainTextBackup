@@ -209,3 +209,13 @@ Image_1704798594490.jpg
 
 羡慕…………只能等国内活动了，感觉今年也不好抢票
 
+
+*****
+
+####  starring  
+##### 19130#       发表于 2024-1-9 21:19
+
+二专全曲试听出了
+
+喜欢LovingLoving，本来挺期待六等星试听感觉一般（看到名字就不自觉拿来跟Aimer的六等星之夜对比<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

@@ -3345,3 +3345,11 @@ tachiyomi为了保护自己把内置插件删了，增设了由第三方提供�
 
 具体见官方推特 Tachiyomi Community [@iiTachiyomi](https://twitter.com/iiTachiyomi)
 
+
+*****
+
+####  保科智子  
+##### 331#       发表于 2024-1-9 23:23
+
+15.2看不到拷贝，手贱更新<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

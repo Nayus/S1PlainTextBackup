@@ -11422,3 +11422,16 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 结合完结之后才出事，以及工艺蛋的退出，可能是代替工艺蛋编剧新上任的手游总编剧对绫奈的剧本有意见，武 ...</blockquote>
 懂了，手游新上任的班底主推cp和独角兽的不一样导致独角兽不满<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 8578#       发表于 2024-1-9 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582899&amp;ptid=2159415" target="_blank">非此即彼 发表于 2024-1-9 00:35</a>
+
+今天刚看完这个番，觉得意犹未尽，然后来动漫区翻了翻1号专楼，从后往前翻了几百楼，发现大家都是讨论立希 ...</blockquote>
+从前往后翻吧
+
+刚刚去1号楼从后翻了10页，看时间都动画完结快两个月了
+

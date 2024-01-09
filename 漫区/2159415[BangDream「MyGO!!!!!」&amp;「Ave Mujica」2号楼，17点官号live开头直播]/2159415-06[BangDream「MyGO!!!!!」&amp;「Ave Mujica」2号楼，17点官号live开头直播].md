@@ -12540,3 +12540,15 @@ B站本来就代理了邦邦，当初上线第三季比日本本土的电视台�
   -- 来自 能手机投票的 Sta ...</blockquote>
 晚半年是为了先送审是吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 8690#       发表于 2024-1-9 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63592468&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-9 18:07</a>
+虽然蛋白棒看起来属实不咋地，但是送ws卡的pr，一盒一张，六抽一，除了初华有新图之外其他都是假面舞会的曲 ...</blockquote>
+礼问这个淘宝怎么搜关键字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

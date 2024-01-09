@@ -2125,3 +2125,13 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 因为变成人爽吃巧克力，结果变回狗后偷吃挂掉的be同人预定
 
+
+*****
+
+####  pokemon最爱  
+##### 479#       发表于 2024-1-9 19:11
+
+其实我是觉得考虑到队伍里有个男妈妈当后援，粉主吃巧克力出问题这事很可能真的会拿来水上一集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正好也可以当作知识科普来用（
+
+考虑到近几作解禁了非战斗变身，也没准会出现小麦在狗狗状态下吃巧克力差点吃死自己然后被强制变身来解决问题的展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -857,3 +857,38 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 歌姬在op里面除了照片就只有把闪光传递给noir的这个镜头，感觉flag已经插满了
 
+
+*****
+
+####  aptx8285144  
+##### 3399#       发表于 2024-1-9 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63589552&amp;ptid=2092345" target="_blank">secretgarnet 发表于 2024-1-9 14:50</a>
+
+确实是歌姬，当时放太快没看清楚，那个麻花辫是歌姬演出服的造型。
+
+歌姬在op里面除了照片就只有把闪光传 ...</blockquote>
+直接的确实如此，不过还有信物代表唱歌的话筒<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">，最后大哥的酒杯，艾女士的布偶，歌姬的话筒，好像还有一个不知道是代表谁的
+
+*****
+
+####  secretgarnet  
+##### 3400#       发表于 2024-1-9 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63589596&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-1-9 14:54</a>
+
+直接的确实如此，不过还有信物代表唱歌的话筒，最后大哥的酒杯，艾女士的布偶，歌姬的话筒，好像 ...</blockquote>
+最后那个应该是黑假面的面具，就是不知道那把手枪和黑假面有什么关系
+
+*****
+
+####  aptx8285144  
+##### 3401#       发表于 2024-1-9 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582512&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-1-8 23:46</a>
+
+OP2：https://youtu.be/CmqwKh_mQBg
+
+ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
+安洁这表情，有点男生风范<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

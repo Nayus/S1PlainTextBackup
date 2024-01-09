@@ -153,3 +153,13 @@ niji en应该不久后要跟id kr一个遭遇了
 
 其中个人势其实是最难进的，除了小圈子那几个熟脸其他人去报名属于纯凑人数
 
+
+*****
+
+####  星野航  
+##### 2867#       发表于 2024-1-9 12:23
+
+说起来，想借楼问下，楼里各位哪位有“樋口枫VR LIVE"Gekka-Bijin"”的录像啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+时间太久了大概是
+

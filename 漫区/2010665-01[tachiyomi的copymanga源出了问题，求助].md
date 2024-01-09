@@ -3172,3 +3172,20 @@ https://tachiyomi.org/news/2024-01-09-extensions-removal
 
 （刚发现我的日语图源为啥也被关了）
 
+
+*****
+
+####  Asuku  
+##### 319#       发表于 2024-1-9 12:26
+
+ 本帖最后由 Asuku 于 2024-1-9 12:30 编辑 
+
+试试这个
+[https://github.com/keiyoushi/extensions](https://github.com/keiyoushi/extensions)
+
+版本0.15.2
+
+更多-设置-浏览-插件仓库-添加
+
+然后复制这段 https://raw.githubusercontent.com/keiyoushi/extensions/repo/index.min.json复制代码
+

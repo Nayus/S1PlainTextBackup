@@ -12027,3 +12027,79 @@ mujica的共犯原来犯的是重婚罪啊<img src="https://static.saraba1st.com
 1.独角兽提过的两人的名字，祥和睦都是好字眼——指腹为婚了起配套的名 ...</blockquote>
 劉海查重率笑吐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 8640#       发表于 2024-1-9 12:23
+
+可能因为放送预定而不是放送决定，官推才不转吧（
+2025年1月的放送预定要是在2023年放出来确实给观众打击挺大的，所以一直锐意制作了几个月，等到2024的第一次发布把真相揭露，wsd你好温柔（不是）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  相坂君  
+##### 8641#       发表于 2024-1-9 12:24
+
+完了，这样真一丘之貉了
+
+*****
+
+####  青叶假司  
+##### 8642#       发表于 2024-1-9 12:24
+
+我哪可能去月之森！（出闺阁前的避嫌）
+
+*****
+
+####  青叶假司  
+##### 8643#       发表于 2024-1-9 12:24
+
+ 本帖最后由 青叶假司 于 2024-1-9 12:30 编辑 
+
+编辑
+
+*****
+
+####  御幸一也  
+##### 8644#       发表于 2024-1-9 12:26
+
+真 勾搭到狗團去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/09/122709r67iiiib47lbdady.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (1).jpg</strong> (82.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 12:27 上传
+
+[https://twitter.com/sasakirico/status/1744574599105495270](https://twitter.com/sasakirico/status/1744574599105495270)
+
+*****
+
+####  星空冻结  
+##### 8645#       发表于 2024-1-9 12:27
+
+🐔团怎么感觉在架空某人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8646#       发表于 2024-1-9 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63587498&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-9 12:27</a>
+
+🐔团怎么感觉在架空某人</blockquote>
+怎麼感覺她約不出來的可能性更大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 8647#       发表于 2024-1-9 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">忙，忙点好
+

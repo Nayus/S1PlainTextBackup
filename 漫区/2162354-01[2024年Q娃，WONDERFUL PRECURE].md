@@ -1909,3 +1909,11 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  宅音  
+##### 458#       发表于 2024-1-9 08:40
+
+这次人设是甜点那个吗，总觉得宠物眼睛画风有点像那个地中海佩科林
+

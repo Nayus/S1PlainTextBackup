@@ -275,3 +275,17 @@ CT和WTY跟我想的完全不一样，不过应该很适合现场打call，目�
 不是……我觉得更多是大数据杀生了，而且几个app的机票价格都是相差巨大(xs ...</blockquote>
 雀氏感觉会杀熟
 
+
+*****
+
+####  stygian  
+##### 19137#       发表于 2024-1-10 01:39
+
+ 本帖最后由 stygian 于 2024-1-10 01:40 编辑 
+
+warp to you竟然是电波曲。。。完全没想到
+
+整体来说不太满意，口水歌有点太多了，反倒不如之前juvenile操刀制作的时候，yellow时候的オシャレ感也没了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+新歌里面有印象的是carlosk和juvenile两首，尾曲也还行
+

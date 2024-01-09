@@ -869,3 +869,13 @@ urucammty加上杏女 这下是真的蹭上了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  十九号大侠  
+##### 16134#       发表于 2024-1-9 22:08
+
+他现在能高过一般猪的体脂率吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

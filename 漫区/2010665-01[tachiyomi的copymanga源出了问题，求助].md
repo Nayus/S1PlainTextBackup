@@ -3280,3 +3280,17 @@ J2K没开放添加插件仓库的功能，看来只有等更新了，或者装�
 
 —— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  白色的120  
+##### 328#       发表于 2024-1-9 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63591557&amp;ptid=2010665" target="_blank">keroghy 发表于 2024-1-9 17:07</a>
+插件仓库是干什么的啊
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+把楼上坛友分享那个链接复制进去，再重新进去就有源可以下载安装了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

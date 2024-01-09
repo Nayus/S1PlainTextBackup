@@ -12462,3 +12462,51 @@ mujica的共犯原来犯的是重婚罪啊</blockquote>
 
 2024-1-9 18:07 上传
 
+
+*****
+
+####  特拉·特尔特  
+##### 8682#       发表于 2024-1-9 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63592045&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-1-9 17:37</a>
+
+幻想了一下，25年1月播该不会是因为阿b和wsd达成交易，打算同步播出吧
+
+  -- 来自 能手机投票的 Sta ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">这假设太可怕了
+
+*****
+
+####  Kasroz  
+##### 8683#       发表于 2024-1-9 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63592650&amp;ptid=2159415" target="_blank">特拉·特尔特 发表于 2024-1-9 18:23</a>
+这假设太可怕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿姨哪来对邦邦企划那么大的话语权
+
+*****
+
+####  NODY  
+##### 8684#       发表于 2024-1-9 18:27
+
+B站本来就代理了邦邦，当初上线第三季比日本本土的电视台都快，不如说mygo和mujica没搞到同步播出才比较奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 8685#       发表于 2024-1-9 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63592650&amp;ptid=2159415" target="_blank">特拉·特尔特 发表于 2024-1-9 18:23</a>
+
+这假设太可怕了</blockquote>
+首先为了同步阿b需要三次元尽量做完全集再开播，其次可能为了保证过审要求三次元额外制作画面甚至内容替换版本的动画，一个猜想不一定对<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 8686#       发表于 2024-1-9 18:31
+
+去年国庆mygo限时观看的时候b站还给搞了个banner和进度条特效，当时都觉得引进板上钉钉，结果就没了下文
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

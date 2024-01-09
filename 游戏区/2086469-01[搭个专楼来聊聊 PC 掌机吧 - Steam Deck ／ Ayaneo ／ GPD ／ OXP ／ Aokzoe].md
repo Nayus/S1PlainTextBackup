@@ -180,3 +180,33 @@
 想入个sd oled版，想问问 频闪问题严重吗？</blockquote>
 没救的频闪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">远比国产高频调光差劲
 
+
+*****
+
+####  bypass  
+##### 1041#         楼主| 发表于 2024-1-9 09:01
+
+[https://www.msi.com/Handheld/Claw-A1MX](https://www.msi.com/Handheld/Claw-A1MX)
+
+MSI Claw 官宣啦。
+
+Intel Ultra 7 155H，53wh，7 英寸 1080p，120hz，雷电 4，两个背键，675g。
+
+这不就是支持雷电 4 的 Ally 吗 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/09/090128fywtdfax1e1g0dpt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (309.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 09:01 上传
+
+<img src="https://img.saraba1st.com/forum/202401/09/090151y3j33cicafzqq8b1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (175.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 09:01 上传
+

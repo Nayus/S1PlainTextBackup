@@ -3033,3 +3033,20 @@ tachiyomi更新0.15后，下载的漫画全没了，但是下载的文件还在<
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  charlespfan  
+##### 303#       发表于 2024-1-9 08:57
+
+[https://tachiyomi.org/extensions/](https://tachiyomi.org/extensions/)
+
+难绷，官网的插件也没了
+
+*****
+
+####  月亮上的珊瑚  
+##### 304#       发表于 2024-1-9 09:00
+
+说明tachiyomi做大了，这下麻烦事多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

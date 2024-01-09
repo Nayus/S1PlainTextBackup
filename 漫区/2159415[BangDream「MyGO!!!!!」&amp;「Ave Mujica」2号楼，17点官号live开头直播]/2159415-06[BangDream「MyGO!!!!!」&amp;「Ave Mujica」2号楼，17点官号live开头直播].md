@@ -11411,3 +11411,14 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 说不定是大方向没改，但改了些独角兽特别在意的东西，比如女女关系性。 ...</blockquote>
 结合完结之后才出事，以及工艺蛋的退出，可能是代替工艺蛋编剧新上任的手游总编剧对绫奈的剧本有意见，武士道更优先手游总编剧的意见吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 8577#       发表于 2024-1-9 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63584468&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-9 08:47</a>
+
+结合完结之后才出事，以及工艺蛋的退出，可能是代替工艺蛋编剧新上任的手游总编剧对绫奈的剧本有意见，武 ...</blockquote>
+懂了，手游新上任的班底主推cp和独角兽的不一样导致独角兽不满<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

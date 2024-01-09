@@ -1027,3 +1027,25 @@ op 1分53秒那个很像歌姬，接下来那个影子把光传给了白发诺�
 嘴臭诺瓦好喜感</blockquote>
 有人说这是明日香和绫波丽的人格转换<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3415#       发表于 2024-1-9 20:55
+
+ 本帖最后由 aptx8285144 于 2024-1-9 20:57 编辑 
+
+ARCANA PROJECT《アイレ》[https://c6.y.qq.com/base/fcgi-bin/u?__=BUYwmSqjpCvc](https://c6.y.qq.com/base/fcgi-bin/u?__=BUYwmSqjpCvc) @QQ音乐
+
+马化腾家有完整版的新OP了，虽然还没有歌词翻译
+
+*****
+
+####  aptx8285144  
+##### 3416#       发表于 2024-1-9 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63594309&amp;ptid=2092345" target="_blank">diectt 发表于 2024-1-9 20:48</a>
+
+又回想起这番难绷的中文字幕了，还不如直接看生肉</blockquote>
+希望奶茶屋别忘了（
+

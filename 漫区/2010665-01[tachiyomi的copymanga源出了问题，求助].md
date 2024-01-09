@@ -3307,3 +3307,41 @@ J2K没开放添加插件仓库的功能，看来只有等更新了，或者装�
 https://github.com/keiyoushi/extensions</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">这仓库已经看到熟悉的开发者了 希望能持续吧
 
+
+*****
+
+####  Asuku  
+##### 330#       发表于 2024-1-9 20:54
+
+简单总结一下事情前因后果。
+
+kakao是韩国最大通讯软件kakao talk运营商，涉足众多产业，地位类似韩国腾讯，kakao entertainment是kakao旗下的娱乐、大众媒体和出版公司，电子书平台kakaopage和网漫平台kakao webtoon的运营方，海外投资了tapas等网漫网文平台，和腾讯有密切合作，podo就是kakao和腾讯的合资公司。大家看到的很多很炫的韩国（杂鱼）网文改（什么升级、地下城、欧风）都是kakao上的连载。
+
+kakao entertainment上个月发新闻说会和日本合作打击m开头的全球最大盗版站。
+
+Manga Mogura RE (Manga &amp; Anime News)：
+
+Korean KBS reports that Kakao has identified the operators of the world's largest manga &amp; webtoon piracy site "M..." after five years of investigating. Kakao expressed its plans to work together with japanese manga companies to fight against manga/webtoon piracy.
+
+[KBS新闻（韩）](https://news.kbs.co.kr/news/pc/view/view.do?ncd=7831619)
+
+三天前，tachiyomi接到kakao entertainment消息，要求移除其中几个侵犯版权的插件：
+
+Tachiyomi Community：
+
+Before let's back 3d ago, let's revisit the issue. Kakao Entertainment, a leading Korean company (Manhwa, k-pop...), demanded the removal of these Tachiyomi extensions in a confrontational manner:
+
+- 1st Kiss-Manga
+
+- Batoto
+
+- Mangadex
+
+- NewToki / ManaToki
+
+- S2Manga
+
+tachiyomi为了保护自己把内置插件删了，增设了由第三方提供插件的插件仓库。还在官方推特发布了教学功能。
+
+具体见官方推特 Tachiyomi Community [@iiTachiyomi](https://twitter.com/iiTachiyomi)
+

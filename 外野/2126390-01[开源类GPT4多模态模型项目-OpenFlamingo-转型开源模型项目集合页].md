@@ -24122,3 +24122,103 @@ github项目主页:https://github.com/IAAR-Shanghai/Grimoire
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1170#       发表于 2024-1-10 06:39
+
+UMIE
+
+指令调整的统一多模态信息提取
+
+github项目主页:https://github.com/ZUCC-AI/UMIE
+
+多模态信息提取(MIE/Multimodal information extraction)在多模态内容的流行度增加时引起了广泛关注，然而，当前的MIE方法通常采用特定于任务的模型结构，导致在不同任务之间的泛化能力有限，并且未充分利用MIE任务之间的共享知识
+
+为了解决这些问题，本文提出了UMIE，一种统一的多模态信息提取器，使用指令调整将三个MIE任务统一为生成问题，能够有效地提取文本和视觉线索
+
+大量实验证明，本文的UMIE在跨越三个任务的六个MIE数据集上优于各种SOTA方法，此外，深入分析表明UMIE在零样本设置下具有很强的泛化能力，对指令变体具有稳健性，并且可解释性强
+
+本文研究为统一的MIE模型迈出了第一步，并在MIE领域内探索了指令调整和大型语言模型
+
+<img src="https://img.saraba1st.com/forum/202401/10/063912qp6v18q68f6z81qr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-063431.jpg</strong> (187.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 06:39 上传
+
+将三个关键的MIE任务统一在一个多模态模型中，给定任务指导(task instructor)，UMIE通过提取文本和视觉线索(MNER和MEE)或推断两个给定线索之间的关系(MRE)来执行相应的任务，O1、O2和O3是视觉对象
+
+<img src="https://img.saraba1st.com/forum/202401/10/063919p3u3ytv6700dzdt0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-063455.jpg</strong> (187.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 06:39 上传
+
+UMIE模型的示意图，视觉编码器将图像和对象编码为特征，这些特征在门控注意力模块(gated attention module)中与文本特征动态集成，文本解码器自回归式地生成信息提取结果
+
+<img src="https://img.saraba1st.com/forum/202401/10/063925rrm4vczjjvfvxo3h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-063519__01.jpg</strong> (337.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 06:39 上传
+
+任务指导的描述，如表中的最后一行所示，MEAE的具体指令将由MED检测到的事件类型确定
+
+<img src="https://img.saraba1st.com/forum/202401/10/063931cwm5m6hhgzgwrmz6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-063528__01.jpg</strong> (63.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 06:39 上传
+
+门控注意力模块的示意图
+
+<img src="https://img.saraba1st.com/forum/202401/10/063940hfhmuywatw9fn7yw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-063601__01.jpg</strong> (394.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 06:39 上传
+
+三个任务的输入和输出格式，特别是，MEE任务将被作为两个级联任务，即MED和MEAE，具有相同的输入示例进行
+
+<img src="https://img.saraba1st.com/forum/202401/10/063946orc3y5k0y2djcd3d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-063607__01.jpg</strong> (93.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 06:39 上传
+
+六个MIE数据集的统计信息
+
+<img src="https://img.saraba1st.com/forum/202401/10/063951m06i60uwmb6ffpai.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-063746.jpg</strong> (282.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 06:39 上传
+
+<img src="https://img.saraba1st.com/forum/202401/10/063951l105o5zs7xezk70s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240110-063802.jpg</strong> (162.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 06:39 上传
+
+相关性能评估与对比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -11554,3 +11554,60 @@ bd最终卷特典就是3分钟结婚差分特别映像是吧，赚麻了</blockq
 
 乐观的来看，手游撑不到母鸡卡进游戏那一天是否也意味着永远不存在邪神卡
 
+
+*****
+
+####  Kasroz  
+##### 8591#       发表于 2024-1-9 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63585497&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-9 10:08</a>
+看按时间推的话，没准动画拖到明年和独角兽取关还真的都和工艺蛋这一走有关系，手游制作工期出问题还有不满 ...</blockquote>
+阴谋论的话，手游新上任的总编剧是关系户，急需实绩，所以想占母鸡卡为己有，绫奈的剧本已经是不需要的东西了
+
+*****
+
+####  御幸一也  
+##### 8592#       发表于 2024-1-9 10:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你邦這營收還活得很好，畢竟看起來養老活動的開發也花不了多少成本
+
+*****
+
+####  NODY  
+##### 8593#       发表于 2024-1-9 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63585549&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-9 10:12</a>
+
+我之前不是都說過手工蛋參與度問題了，看訪談的話，
+
+手工蛋在劇情這塊話語權在監督和綾奈之下，因 ...</blockquote>
+我指的是你邦可能想对轴让mujica接在动画完结后马上实装，但现在换了公司导致手游那边进度可能要往后拖，于是干脆拖到周年
+
+反正我现在一想到因为没有第二季推时间和成长线要在游戏里鬼打墙一年，立希可能还要被骂一年双标舔狗就绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8594#       发表于 2024-1-9 10:19
+
+ 本帖最后由 Aendst 于 2024-1-9 10:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有烂梗和对角色的乱车可能都要持续一年，或者也持续不了多久，人都跑完了
+
+快进到是武士道想把玩烂梗的无脑人熬走，用心良苦
+
+*****
+
+####  御幸一也  
+##### 8595#       发表于 2024-1-9 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63585625&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-9 10:16</a>
+
+我指的是你邦可能想对轴让mujica接在动画完结后马上实装，但现在换了公司导致手游那边进度可能要往后拖， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是，是我對邦多利手遊有什麼誤解嗎，這要開發的東西不就譜面、劇情、新卡，
+
+ave mujica的live2d早就實裝進去了，譜面也不是什麼會出大問題的東西，卡面這些美術東西更不是問題，還是說寫個劇情打架了寫那麼久還寫不完。
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">完了，我又給繞進去了
+
+不過有一說一，你邦手遊這live2d是真的難繃，2024年了，這水準像2014年做的一樣
+

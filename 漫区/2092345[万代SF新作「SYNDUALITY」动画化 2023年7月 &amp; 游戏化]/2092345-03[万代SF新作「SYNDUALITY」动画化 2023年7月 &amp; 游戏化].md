@@ -918,3 +918,22 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 来看XB4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  須理出未来  
+##### 3405#       发表于 2024-1-9 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63588764&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-1-9 13:58</a>
+
+黑娃觉得彼方人确实还不错，就把白娃“还给”他，然后听到宝藏之地名字激动的“回归”要去立刻去找[f:068 ...</blockquote>
+并不是的，Mistel本来就不想出来，希望Noir立即把她换回去，但出于某些原因Noir现在出不来，所以这集他们才会沿着Noir的记忆轨迹在城里逛一圈，试图以此唤醒Noir。
+
+关于Noir无法出来的原因，我个人猜想原因有二。一是在Mistel洗完澡出来时说的那些她自己的推测：Mistel原本以为自己已经对这个世界毫无留恋，但其实并不是，如果可能的话，她还想与原主人再次相见，即便无法实现，也想知道原主人的最后。也许是因为自己的这个心结，导致Noir无法出来。
+
+另一个原因就是我自己的推测的了。在上一季最后的战斗中，Noir觉得自己很没用，完全派不上用场，自闭了不肯出来。
+
+在这话的最后这两个原因都被解决了：一、悼念了Mistel原主人；二、彼方的话“我从未后悔过唤醒Noir”。所以Noir就出来了。
+
+至于最后的最后又换回来了，小概率是Mistel听到关键词又有了新的牵挂，大概率是现在可以自由切换了，得看下一话怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -12410,3 +12410,27 @@ mujica的共犯原来犯的是重婚罪啊</blockquote>
 确实圣</blockquote>
 三角就是三位一体<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 8677#       发表于 2024-1-9 17:33
+
+这玩意保质期多久
+
+*****
+
+####  爱丁堡official  
+##### 8678#       发表于 2024-1-9 17:37
+
+幻想了一下，25年1月播该不会是因为阿b和wsd达成交易，打算同步播出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  DarthAka  
+##### 8679#       发表于 2024-1-9 17:38
+
+蛋白棒这东西得看配料表……别来个麦芽糊精
+

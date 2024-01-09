@@ -3202,3 +3202,17 @@ https://github.com/keiyoushi/extensions</blockquote>
 0.14.7不能添加插件仓库<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 有没有坛友试下0.15.2能不能用漏油那个插件<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ☆炫  
+##### 321#       发表于 2024-1-9 13:28
+
+感谢楼上坛友的提醒，更到0.15.2，总算不需要每次打开重新【信任】第三方插件。
+
+1、目前已添加[https://github.com/keiyoushi/extensions](https://github.com/keiyoushi/extensions)，可以安装&amp;使用原来的官方源，需观察后续的更新；
+
+2、拷贝漫画继续用[https://github.com/stevenyomi/copymanga](https://github.com/stevenyomi/copymanga)，白天基本正常，深夜经常连不上（服务器拉跨…），将就一下还能用；
+
+3、漫画柜 提示 “HTTP 403”，但是用webview可以正常浏览，这个问题从0.15.1开始出现，0.14.7是没问题的；
+

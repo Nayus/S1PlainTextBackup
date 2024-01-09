@@ -709,3 +709,49 @@ op这个镜头明示要上太空了吧
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 3386#       发表于 2024-1-9 13:37
+
+米斯缇回忆里的那个老人不就是当初大姐头登场时回忆的一撇吗，米斯缇也被攻略了很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，古贺葵辛苦，一话之内的来回切换人格，黑毛给人一种对彼方的尊重初步满意而把白诺娃还给他的感觉
+
+OP那个影子像是夏尔的话，确实FLAG明显，OP好听
+
+*****
+
+####  aptx8285144  
+##### 3387#       发表于 2024-1-9 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63583906&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-1-9 06:40</a>
+
+这翻译真是灾难 全是机翻
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+又要等奶茶屋了，希望奶茶屋不要忘掉
+
+*****
+
+####  aptx8285144  
+##### 3388#       发表于 2024-1-9 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582203&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-1-8 23:13</a>
+
+什么历史回顾
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+彼方的梦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3389#       发表于 2024-1-9 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63582120&amp;ptid=2092345" target="_blank">secretgarnet 发表于 2024-1-8 23:05</a>
+
+新op里面有个侧麻花辫女性把闪光传到noir身上的镜头，不知道是谁
+
+另外歌姬是不是在新op里面完全没画面 ...</blockquote>
+那个影像感觉像歌姬
+

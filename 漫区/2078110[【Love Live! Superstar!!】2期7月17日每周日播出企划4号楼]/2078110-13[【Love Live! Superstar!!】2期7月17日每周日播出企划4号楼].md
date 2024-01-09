@@ -299,3 +299,11 @@ warp to you竟然是电波曲。。。完全没想到
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cat1230  
+##### 19139#       发表于 2024-1-10 02:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">2专没啥特别亮眼的曲子，060810这三首算我比较喜欢的。讲真烂铁不如考虑出一张ACG名曲翻唱碟吧，可能销量更好（中国这边）。
+

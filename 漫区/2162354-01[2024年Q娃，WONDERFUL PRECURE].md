@@ -2027,3 +2027,13 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 犬Q玩的好大，已经待机二创同人了<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chentry  
+##### 469#       发表于 2024-1-9 12:50
+
+<blockquote>宅音 发表于 2024-1-9 08:40
+这次人设是甜点那个吗，总觉得宠物眼睛画风有点像那个地中海佩科林</blockquote>
+师出同门
+

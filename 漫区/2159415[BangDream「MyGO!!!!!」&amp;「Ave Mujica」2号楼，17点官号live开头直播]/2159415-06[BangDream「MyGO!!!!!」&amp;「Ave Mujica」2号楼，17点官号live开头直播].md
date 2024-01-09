@@ -12132,3 +12132,69 @@ mujica的共犯原来犯的是重婚罪啊<img src="https://static.saraba1st.com
 
 为什么叫动物朋友
 
+
+*****
+
+####  阿斯顿氢气球  
+##### 8652#       发表于 2024-1-9 12:42
+
+<blockquote>QuattroVageena 发表于 2024-1-9 12:38
+为什么叫动物朋友</blockquote>
+🐏
+
+*****
+
+####  angela5d30  
+##### 8653#       发表于 2024-1-9 12:46
+
+點進來被樓友們那個睦祥訂婚說，還有後面的重婚罪整笑了，從來沒設想過的關係<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Xiaomi M2012K10C, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  友情的结晶  
+##### 8654#       发表于 2024-1-9 12:47
+
+ 本帖最后由 友情的结晶 于 2024-1-9 12:49 编辑 
+
+睦是指腹为婚的未婚妻，初华是小时候私定终身的未婚妻，素世是剪不清理还乱的未婚妻，灯是祝你幸福的未婚妻，喵梦是骗财骗色的未婚妻，海铃是专业女同形婚的未婚妻？，爱音是素未谋面的未婚妻
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  PDQ4  
+##### 8655#       发表于 2024-1-9 12:49
+
+ 本帖最后由 PDQ4 于 2024-1-9 12:52 编辑 
+
+完蛋，我被未婚妻包围了！
+
+我也不知道谁才是真正的未婚妻！
+
+N等分的未婚妻！
+
+只选一个什么的根本做不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  yaneis  
+##### 8656#       发表于 2024-1-9 12:51
+
+<blockquote>星空冻结 发表于 2024-1-9 12:21
+mujica的共犯原来犯的是重婚罪啊</blockquote>
+但是这样下去踩缝纫机只有大祥老师，所以海睦，海喵，海初什么的端上来吧（
+

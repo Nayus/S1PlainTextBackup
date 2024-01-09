@@ -1946,3 +1946,27 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 “对于大多数宠物兔主人而言，建议进行绝育手术，可以避免兔子们出现不必要的健康问题和行为问题。但是记得要先带兔子去兽医那里检查判断兔子是否符合绝育条件，在有经验的兽医的指导下进行手术。手术后还需密切关注兔子的恢复情况，为兔子提供良好的生活环境和营养，帮助它们尽快恢复健康。”
 
+
+*****
+
+####  达达葱2  
+##### 461#       发表于 2024-1-9 09:45
+
+<blockquote>jaewoongh_ 发表于 2024-1-9 08:54
+不是，q娃初次人设</blockquote>
+以前有什么作品吗
+
+*****
+
+####  imbaHerby  
+##### 462#       发表于 2024-1-9 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63574935&amp;ptid=2162354" target="_blank">花开安菲路 发表于 2024-1-8 13:36</a>
+
+脑子得多不正常，才会在幼女动画里塞寿命论啊，有什么意义吗？
+
+都能变身q娃了，就不要用一般狗的常识去贷款 ...</blockquote>
+虽然但是
+
+热带里不是已经塞过了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -956,3 +956,11 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 这一集没有迫害艾莉，这不合理</blockquote>
 上半部分最后两话忙着战斗也没有啥迫害，你们不要老惦记着这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ad110011s  
+##### 3408#       发表于 2024-1-9 19:31
+
+歌姬在OP看起来毫无戏份，不会要退场了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

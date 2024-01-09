@@ -4172,3 +4172,11 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 提前的这几天差不多就是去年日服预定的时间吧。也没有提前几天就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sandro  
+##### 45914#       发表于 2024-1-9 19:23
+
+又可以抽卡了，饥渴难耐啊
+

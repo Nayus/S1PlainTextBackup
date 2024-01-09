@@ -34,3 +34,15 @@
 
 电影进度感觉还是很慢的，一般开始拍摄了立马就会有各种图透，各种曝光，还在很早期的阶段
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15625#       发表于 2024-1-9 19:31
+
+说起来一直忘了发，你任出了TGA获奖图的壁纸尺寸：
+
+https://www.nintendo.com/jp/download/zelda-totk/2udvcs3aomoor1fu8kcfvpoimtmwyn.html
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

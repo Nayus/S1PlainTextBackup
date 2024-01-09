@@ -4156,3 +4156,11 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 论坛助手,iPhone</blockquote>
 主要没有什么菌言菌语，就是一个王道的冒险故事，整个观感舒服多了。
 
+
+*****
+
+####  khxooo  
+##### 45912#       发表于 2024-1-9 17:30
+
+果然提前卡池，那么就能提早抽大姐姐了。
+

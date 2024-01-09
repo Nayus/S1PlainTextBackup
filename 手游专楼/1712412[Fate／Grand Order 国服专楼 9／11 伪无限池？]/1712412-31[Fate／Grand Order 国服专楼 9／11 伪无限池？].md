@@ -4164,3 +4164,11 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 果然提前卡池，那么就能提早抽大姐姐了。
 
+
+*****
+
+####  GuDaZi  
+##### 45913#       发表于 2024-1-9 18:49
+
+提前的这几天差不多就是去年日服预定的时间吧。也没有提前几天就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

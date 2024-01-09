@@ -12510,3 +12510,20 @@ B站本来就代理了邦邦，当初上线第三季比日本本土的电视台�
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  凡人  
+##### 8687#       发表于 2024-1-9 18:44
+
+都怪素祥太女同了（
+
+*****
+
+####  nebulanoby  
+##### 8688#       发表于 2024-1-9 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">那就滑坡到叔叔为了过审硬改母鸡卡剧本导致人事震荡和播放延迟罢
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

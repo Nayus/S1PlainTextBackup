@@ -2073,3 +2073,13 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 对，狗不能吃巧克力</blockquote>
 有人间体形态，生理上就是人
 
+
+*****
+
+####  最强惠酱  
+##### 473#       发表于 2024-1-9 17:20
+
+人形态吃了没消化完变回狗的话会咋样<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

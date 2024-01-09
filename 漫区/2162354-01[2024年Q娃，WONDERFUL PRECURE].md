@@ -2117,3 +2117,11 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 ”正是因为变成人形所以才体验到了许多以前不能体验的事情“大概是这样吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 478#       发表于 2024-1-9 18:59
+
+因为变成人爽吃巧克力，结果变回狗后偷吃挂掉的be同人预定
+

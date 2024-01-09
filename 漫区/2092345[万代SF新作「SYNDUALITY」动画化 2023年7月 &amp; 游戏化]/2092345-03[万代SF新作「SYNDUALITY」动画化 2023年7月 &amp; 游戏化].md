@@ -945,3 +945,14 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 这一集没有迫害艾莉，这不合理<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3407#       发表于 2024-1-9 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63592386&amp;ptid=2092345" target="_blank">约翰里德 发表于 2024-1-9 18:01</a>
+
+这一集没有迫害艾莉，这不合理</blockquote>
+上半部分最后两话忙着战斗也没有啥迫害，你们不要老惦记着这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

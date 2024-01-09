@@ -12527,3 +12527,16 @@ B站本来就代理了邦邦，当初上线第三季比日本本土的电视台�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ylssb10438  
+##### 8689#       发表于 2024-1-9 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63592045&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-1-9 17:37</a>
+
+幻想了一下，25年1月播该不会是因为阿b和wsd达成交易，打算同步播出吧
+
+  -- 来自 能手机投票的 Sta ...</blockquote>
+晚半年是为了先送审是吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+

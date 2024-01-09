@@ -3294,3 +3294,16 @@ J2K没开放添加插件仓库的功能，看来只有等更新了，或者装�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  GrassSand  
+##### 329#       发表于 2024-1-9 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63587492&amp;ptid=2010665" target="_blank">Asuku 发表于 2024-1-9 12:26</a>
+
+试试这个
+
+https://github.com/keiyoushi/extensions</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">这仓库已经看到熟悉的开发者了 希望能持续吧
+

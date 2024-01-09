@@ -11805,3 +11805,36 @@ ave mujica的live2d ...</blockquote>
 
 如果母鸡卡里没有初睦祥结婚那wsd全锅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  友情的结晶  
+##### 8615#       发表于 2024-1-9 11:25
+
+都怪千圣冰大到处留情<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Aendst  
+##### 8616#       发表于 2024-1-9 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太前卫了
+
+*****
+
+####  青叶假司  
+##### 8617#       发表于 2024-1-9 11:29
+
+爽世还是这家伙，二选一！（立希并感）
+
+*****
+
+####  青叶假司  
+##### 8618#       发表于 2024-1-9 11:29
+
+ 本帖最后由 青叶假司 于 2024-1-9 11:32 编辑 
+
+风怒编辑
+

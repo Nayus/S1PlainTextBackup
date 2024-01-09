@@ -3238,3 +3238,13 @@ nga有但被隐了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  keroghy  
+##### 324#       发表于 2024-1-9 17:07
+
+插件仓库是干什么的啊<img src="https://p.sda1.dev/15/9bfab63b23f273b88594f86cfda70fb0/CMP_20240109170617338.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

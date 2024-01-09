@@ -4134,3 +4134,13 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 樱厨之证
 
+
+*****
+
+####  溯夜  
+##### 45910#       发表于 2024-1-9 15:10
+
+2.7除了踢足球观感比2.6开局好很多
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

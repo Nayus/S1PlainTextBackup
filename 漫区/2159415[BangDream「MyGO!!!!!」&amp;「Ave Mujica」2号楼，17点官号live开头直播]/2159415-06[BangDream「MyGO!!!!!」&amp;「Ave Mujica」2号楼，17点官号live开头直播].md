@@ -11731,3 +11731,77 @@ ave mujica的live2d ...</blockquote>
 
 你要說這套，那我還是覺得有點可能，畢竟武士道的開發力，看一眼履歷我覺得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 8608#       发表于 2024-1-9 11:15
+
+<img src="https://img.saraba1st.com/forum/202401/09/111520xwf6pl7f7ff6t2nx.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (12.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-9 11:15 上传
+
+一早就跌了十块
+
+*****
+
+####  NODY  
+##### 8609#       发表于 2024-1-9 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586380&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-9 11:09</a>
+
+還是說下我不信手工蛋這套的理由，養老遊戲真沒什麼東西要開發，交接這種平穩營運了那麼久的遊戲， ...</blockquote>
+鉴于武士道现在就撤个工艺蛋能维护出问题还要延后再议，我对“交接运营很轻松”这个说法持保留意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过十周年要搞个大的听起来确实是最有可能接近武士道惊世智慧的想法
+
+*****
+
+####  御幸一也  
+##### 8610#       发表于 2024-1-9 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">武士道精神股東這種說說笑的，樓友別真當股東去了
+
+估計是實卡還是手遊那些業務有出事吧，來個牌佬說下那個棒球卡牌真的有意思嗎，那天坐牢蹲生放被迫看完了規則感覺很難評<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  swessia  
+##### 8611#       发表于 2024-1-9 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就泥潭现在这天天拷打的样子，要不搞个鸡狗死亡二选一投票吧，看看泥潭是否存在沉默的大多数
+
+*****
+
+####  御幸一也  
+##### 8612#       发表于 2024-1-9 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586452&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-9 11:16</a>
+
+鉴于武士道现在就撤个工艺蛋能维护出问题还要延后再议，我对“交接运营很轻松”这个说法持保留意见[f:067 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是“交接很輕鬆”，是交接養老遊戲我不覺得很困難，而且你邦是音遊，和那些RPG之類的比已經少很多東西要交接了
+
+*****
+
+####  御幸一也  
+##### 8613#       发表于 2024-1-9 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63586508&amp;ptid=2159415" target="_blank">swessia 发表于 2024-1-9 11:19</a>
+
+就泥潭现在这天天拷打的样子，要不搞个鸡狗死亡二选一投票吧，看看泥潭是否存在沉默的大多数 ...</blockquote>
+沉默的大多數在泥潭有什麼用嗎，還是說泥潭終於要出點讚點踩功能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8614#       发表于 2024-1-9 11:22
+
+懂了，十周年本打算wsd要在借着mujica实锤真女同的东风，在游戏里实装订婚系统，因为某些罪恶深重的女人可以拉的cp太多甚至多人行导致bug横生因此腰斩。mujica实锤女同的大计也搁浅，绫奈愤而出走表示wsd开发力太拉不如手工蛋。
+
+如果母鸡卡里没有初睦祥结婚那wsd全锅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

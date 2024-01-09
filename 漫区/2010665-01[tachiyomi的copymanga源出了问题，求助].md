@@ -3104,3 +3104,18 @@ https://tachiyomi.org/news/2024-01-09-extensions-removal
 
 请问有人知道现在第三方的禁漫怎么找吗<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  charlespfan  
+##### 311#       发表于 2024-1-9 11:18
+
+用MT管理器或者NP管理器应该可以提取出已下载的插件吧
+
+*****
+
+####  charlespfan  
+##### 312#       发表于 2024-1-9 11:20
+
+可以开个tachiyomi插件分享楼了（）
+

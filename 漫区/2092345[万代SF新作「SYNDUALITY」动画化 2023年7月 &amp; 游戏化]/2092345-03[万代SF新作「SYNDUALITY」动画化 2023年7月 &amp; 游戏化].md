@@ -900,3 +900,13 @@ ED2：https://youtu.be/6dCIeiN2Rfk</blockquote>
 
 节奏加速是应该的，不要重蹈某片的覆辙（
 
+
+*****
+
+####  RE㐅ia  
+##### 3403#       发表于 2024-1-9 15:59
+
+ 本帖最后由 RE㐅ia 于 2024-1-9 16:00 编辑 
+
+不是你们怎么看出那是歌姬的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发量差的也太多了吧。
+

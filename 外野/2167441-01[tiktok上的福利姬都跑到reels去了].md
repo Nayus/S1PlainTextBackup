@@ -615,3 +615,32 @@ app还是小草好用。。</blockquote>
 
 新账户为什么被封了
 
+
+*****
+
+####  矿学家  
+##### 73#       发表于 2024-1-10 19:34
+
+<blockquote>牙狼GARO 发表于 2024-1-10 19:25
+加满98油是什么意思，980？
+
+—— 来自 OnePlus LE2100, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+98场吧，除了本番都可以
+
+*****
+
+####  猫出没注意  
+##### 74#       发表于 2024-1-10 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63606147&amp;ptid=2167441" target="_blank">whzfjd 发表于 2024-1-10 19:27</a>
+
+新账户为什么被封了</blockquote>
+这逼网站还挺爱杀小号的，新号如果用的梯子线路太多人用可能被判定为小号，申诉一下看看？或者搞个新邮箱重新注册一个<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  彻底氧化分解  
+##### 75#       发表于 2024-1-10 19:36
+
+买杯子的 展示假掉的 牛的
+

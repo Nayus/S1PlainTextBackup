@@ -318,3 +318,23 @@ warp to you竟然是电波曲。。。完全没想到
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仟音一心  
+##### 19141#       发表于 2024-1-10 09:33
+
+<img src="https://p.sda1.dev/15/267fd7e161e2bdd3f7528cc8da7f9fc7/CMP_20240110093258225.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 19142#       发表于 2024-1-10 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63597635&amp;ptid=2078110" target="_blank">starring 发表于 2024-1-10 08:15</a>
+
+闪亮的大额头</blockquote>
+青山姐自拍的角度和表情似乎就没怎么变过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+私以为她露脑门最好看的造型是愚人节企划那次
+

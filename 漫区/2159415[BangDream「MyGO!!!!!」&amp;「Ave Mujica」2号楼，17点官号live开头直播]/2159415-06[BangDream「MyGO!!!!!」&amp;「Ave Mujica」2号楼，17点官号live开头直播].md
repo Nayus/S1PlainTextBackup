@@ -13235,3 +13235,27 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 原来是定型文，那有没有漏油改得更有意思点，这个笑点不太明显<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 8749#       发表于 2024-1-11 00:34
+
+说实话不发推这个因为我不关注她倒是无所谓，但年度发布会上兴高采烈聊别的作品还是太过头了，还有生日那个真的不知道是不是在故意让另外四个人尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8750#       发表于 2024-1-11 00:40
+
+也许是真诚地不知道青木生日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 8751#       发表于 2024-1-11 00:40
+
+隔壁已经不样烤羊力<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

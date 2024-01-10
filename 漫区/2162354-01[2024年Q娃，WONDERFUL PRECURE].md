@@ -2165,3 +2165,13 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 可能会这样
 
+
+*****
+
+####  6030sylar  
+##### 483#       发表于 2024-1-10 10:44
+
+太地狱了，只能变身状态下吃巧克力
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

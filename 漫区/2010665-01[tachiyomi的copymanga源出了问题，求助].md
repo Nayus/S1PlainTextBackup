@@ -3353,3 +3353,15 @@ tachiyomi为了保护自己把内置插件删了，增设了由第三方提供�
 
 15.2看不到拷贝，手贱更新<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  linux40  
+##### 332#       发表于 2024-1-10 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63588359&amp;ptid=2010665" target="_blank">☆炫 发表于 2024-1-9 13:28</a>
+感谢楼上坛友的提醒，更到0.15.2，总算不需要每次打开重新【信任】第三方插件。
+
+1、目前已添加https://git ...</blockquote>
+试了一下0.15.2，漫画柜没问题。
+

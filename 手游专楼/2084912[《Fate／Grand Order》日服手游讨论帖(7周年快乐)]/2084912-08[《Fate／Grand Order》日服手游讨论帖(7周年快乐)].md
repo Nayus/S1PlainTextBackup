@@ -2752,3 +2752,18 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 你的定位是特攻手，那兽尼小优，主要是没那么多人类威胁给水C呆特攻，但是七骑 ...</blockquote>
 哪有什么被金时按在地上摩擦，就是c呆被奥伯龙爆杀罢了。限制奥伯龙道中塞高血量怪，但这是蘑菇钦定亲爹，谁敢针对啊。
 
+
+*****
+
+####  exiaexa  
+##### 10766#       发表于 2024-1-10 09:54
+
+ 本帖最后由 exiaexa 于 2024-1-10 09:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63597484&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-1-10 07:28</a>
+
+哪有什么被金时按在地上摩擦，就是c呆被奥伯龙爆杀罢了。限制奥伯龙道中塞高血量怪，但这是蘑菇钦定亲爹 ...</blockquote>
+你是不是屎黄色混多了脑子多少沾点
+
+菜的不是角色菜的是拐，抛开实际情况不谈先给角色挽个尊是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

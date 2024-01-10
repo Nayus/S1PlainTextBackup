@@ -12804,3 +12804,11 @@ https://babubabuuuu.lofter.com/post/4d01a349_2bada7639<img src="https://p.sda1.d
 
 明年一月才播嗎，世界太不真實了
 
+
+*****
+
+####  椎名mahuyo  
+##### 8712#       发表于 2024-1-10 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">再这么多滑坡一下，这剧场版也是想替代本篇上架B站搞的了
+

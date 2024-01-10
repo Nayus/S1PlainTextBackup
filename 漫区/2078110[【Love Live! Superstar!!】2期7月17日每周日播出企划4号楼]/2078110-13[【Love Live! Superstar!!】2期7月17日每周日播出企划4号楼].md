@@ -361,3 +361,13 @@ warp to you竟然是电波曲。。。完全没想到
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  csolfans  
+##### 19145#       发表于 2024-1-10 20:08
+
+<blockquote>靡宜 发表于 2024-1-10 01:22
+雀氏感觉会杀熟</blockquote>
+我这可不是杀熟，是杀生
+

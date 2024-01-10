@@ -12812,3 +12812,35 @@ https://babubabuuuu.lofter.com/post/4d01a349_2bada7639<img src="https://p.sda1.d
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">再这么多滑坡一下，这剧场版也是想替代本篇上架B站搞的了
 
+
+*****
+
+####  御幸一也  
+##### 8713#       发表于 2024-1-10 12:43
+
+鐵三角<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/10/124328ac18t1v2qtljgd12.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (154.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 12:43 上传
+
+*****
+
+####  DarthAka  
+##### 8714#       发表于 2024-1-10 12:47
+
+所以当年为啥不青木太子+儿邦梦小日向+铁三角凑一团
+
+*****
+
+####  Kasroz  
+##### 8715#       发表于 2024-1-10 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63600971&amp;ptid=2159415" target="_blank">椎名mahuyo 发表于 2024-1-10 12:41</a>
+再这么多滑坡一下，这剧场版也是想替代本篇上架B站搞的了</blockquote>
+那么会引进吗
+

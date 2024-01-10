@@ -1106,3 +1106,25 @@ ARCANA  PROJECTさんの曲すごい良いので見てくださいー！
 
 这真的越来越像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 3421#       发表于 2024-1-10 18:49
+
+秘银把我上一季想吐槽的都说了，人类大衰退还能花这么多资源玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 黑皮的换色胶怎么还不公布
+
+OP好多人都消失了给人一种要狂赶主线的错觉
+
+*****
+
+####  aptx8285144  
+##### 3422#       发表于 2024-1-10 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63605742&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-1-10 18:49</a>
+
+秘银把我上一季想吐槽的都说了，人类大衰退还能花这么多资源玩 黑皮的换色胶怎么还不公布
+
+OP好多人 ...</blockquote>
+其实就是苦中作乐的感觉，你看顾客们看到麦克少爷带来的新鲜食材就高兴得不得了，当初火箭队反派们吃新鲜食材周围的人就很羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

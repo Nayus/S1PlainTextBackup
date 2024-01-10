@@ -788,3 +788,20 @@ Instagram新号进去点视频都是大长腿和大波，算法都知道怎么�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  再买自检星剁手  
+##### 93#       发表于 2024-1-11 01:38
+
+刚注册完就被停用了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+蜥蜴人我沙勒你妈
+
+*****
+
+####  我被骗了五块钱  
+##### 94#       发表于 2024-1-11 01:41
+
+ins太**了，乱封号，申诉给你+86的手机选择，但是不给你验证码
+

@@ -776,3 +776,15 @@ reels,启动!
 
 看了下，全是洋马，没啥意思
 
+
+*****
+
+####  kooor555  
+##### 92#       发表于 2024-1-11 00:16
+
+Instagram新号进去点视频都是大长腿和大波，算法都知道怎么留住用户
+
+偶尔看看东南亚和弯弯妹子的夜生活还挺有趣的
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

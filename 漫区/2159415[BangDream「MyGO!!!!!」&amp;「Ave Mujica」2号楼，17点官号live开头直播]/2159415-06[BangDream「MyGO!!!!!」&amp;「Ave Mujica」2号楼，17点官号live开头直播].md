@@ -13189,3 +13189,41 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不能以偏概全吧，一部分确实比较难以评价，比如盯着淘宝专辑销量看还踩一捧一的
 
+
+*****
+
+####  ddy2811  
+##### 8744#       发表于 2024-1-11 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609365&amp;ptid=2159415" target="_blank">樱祈 发表于 2024-1-10 23:52</a>
+
+2.5企划的粉丝怎么都这么恶心啊，连发推都要被天天盯着管，看了十年番剧，第一次见到不发推都要追着骂的。 ...</blockquote>
+这号是她自己在用就是最大的问题了，要不然这方面追责是到不了她那里的
+
+她有真实表现自己的权利，其他人也有真实评价她的权利，甚至考虑到她的心理承受能力已经没去直接反映了
+
+而且她问题又不止发推，除了录音室里的工作能完成得很好，其他方面都挺一言难尽的，不是积累了那么多不满，也不会到现在的程度
+
+*****
+
+####  狐式重型坦克  
+##### 8745#       发表于 2024-1-11 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是啥定型文吧
+
+*****
+
+####  后藤一里  
+##### 8746#       发表于 2024-1-11 00:18
+
+以前听说有不仲营业，我有点怀疑你羊是在搞最新潮的不营业营业，因为实在太有节目效果了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+说不定以后掏出一大摞合照说之前不发出来其实是为了维持自己不营业的人设
+
+*****
+
+####  太二EricGuo  
+##### 8747#       发表于 2024-1-11 00:23
+
+在憧憬成为魔法少女当模特的长期素食
+

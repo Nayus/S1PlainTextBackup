@@ -8584,3 +8584,15 @@ uu6.6折优惠秒没？
 
 以为有啥新消息，结果是大乱斗鱼浆帮命魂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 2365#       发表于 2024-1-11 00:16
+
+ 本帖最后由 KBAC 于 2024-1-11 00:20 编辑 
+
+不要在开放玩鱼，会脑溢血<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+都Wipeout了害搁大后排射射射射射，鱼是什么减智力道具吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

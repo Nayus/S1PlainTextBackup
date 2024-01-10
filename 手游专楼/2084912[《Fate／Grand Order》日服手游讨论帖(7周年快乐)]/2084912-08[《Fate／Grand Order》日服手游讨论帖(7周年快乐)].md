@@ -2789,3 +2789,21 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥会有斯巴达啊
 
+
+*****
+
+####  exiaexa  
+##### 10769#       发表于 2024-1-10 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63601388&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-1-10 13:13</a>
+
+金时和两个蓝单各自有优势区间，拉开差距的是c呆和奥伯龙之间的buff量，有什么问题吗？ ...</blockquote>
+不是我们蓝卡太菜，都是拐不行，想听实话？
+
+跟他妈个弱智一样，你是宝具能变色还是BUFF量能变，有本事你让阿叶给你换个色，换不了你说个JB
+
+新卡出现前环境就是钉死的，不知道该怎么骂去学学当年GBF六色怎么相互“未来可期”的
+
+也就傻卵萌二会觉得喷色卡是在喷角色
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

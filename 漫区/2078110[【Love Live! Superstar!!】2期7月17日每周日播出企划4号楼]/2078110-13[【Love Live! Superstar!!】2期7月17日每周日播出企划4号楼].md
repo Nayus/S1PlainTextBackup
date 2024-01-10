@@ -338,3 +338,16 @@ warp to you竟然是电波曲。。。完全没想到
 
 私以为她露脑门最好看的造型是愚人节企划那次
 
+
+*****
+
+####  starring  
+##### 19143#       发表于 2024-1-10 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63598838&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-1-10 10:05</a>
+
+青山姐自拍的角度和表情似乎就没怎么变过
+
+私以为她露脑门最好看的造型是愚人节企划那次 ...</blockquote>
+总算是能驾驭大额头的造型了，去年还是前年有一次的大额头发型是真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

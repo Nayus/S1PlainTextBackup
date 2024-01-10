@@ -307,3 +307,14 @@ warp to you竟然是电波曲。。。完全没想到
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">2专没啥特别亮眼的曲子，060810这三首算我比较喜欢的。讲真烂铁不如考虑出一张ACG名曲翻唱碟吧，可能销量更好（中国这边）。
 
+
+*****
+
+####  starring  
+##### 19140#       发表于 2024-1-10 08:15
+
+闪亮的大额头<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/37bc7833bac58381aeb1e0abe27a0a02/CMP_20240110081431376.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/4b7ef54b72a460a574d2c11df9b0240b/CMP_20240110081431811.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

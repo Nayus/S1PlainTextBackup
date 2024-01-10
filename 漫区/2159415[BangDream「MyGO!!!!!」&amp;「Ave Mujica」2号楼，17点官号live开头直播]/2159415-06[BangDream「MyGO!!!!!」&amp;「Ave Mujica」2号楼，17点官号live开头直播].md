@@ -13359,3 +13359,11 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 太典了，没去她推特回复等于不知道她生日</blockquote>
 声优要做做表面功夫不是理所当然的吗？更何况还是一个团的，3缺一也太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 8760#       发表于 2024-1-11 02:16
+
+真的是傻子装聪明吗，我怎么觉得是反过来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

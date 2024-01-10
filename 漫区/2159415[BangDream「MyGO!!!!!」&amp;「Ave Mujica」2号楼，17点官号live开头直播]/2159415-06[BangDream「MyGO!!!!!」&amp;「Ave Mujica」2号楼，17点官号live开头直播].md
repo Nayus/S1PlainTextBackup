@@ -12844,3 +12844,13 @@ https://babubabuuuu.lofter.com/post/4d01a349_2bada7639<img src="https://p.sda1.d
 再这么多滑坡一下，这剧场版也是想替代本篇上架B站搞的了</blockquote>
 那么会引进吗
 
+
+*****
+
+####  NODY  
+##### 8716#       发表于 2024-1-10 13:09
+
+hhw和pp的新歌都怪好听的，风格也和以前相比有突破
+
+反倒是鸡狗两个新团的新歌变得比较普通和同质化了，这作曲团队是只能顾一边吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

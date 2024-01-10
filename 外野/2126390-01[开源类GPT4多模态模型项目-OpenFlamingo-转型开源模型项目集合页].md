@@ -24372,3 +24372,31 @@ oldest
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  squallx  
+##### 1172#       发表于 2024-1-11 04:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63610401&amp;ptid=2126390" target="_blank">Machinery 发表于 2024-1-11 04:14</a>
+
+animagine-xl
+
+动漫图像生成</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">开源社区向NAI3霸权开出的第一炮
+
+虽然这霸权还没到两个月
+
+*****
+
+####  Machinery  
+##### 1173#       发表于 2024-1-11 04:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63610425&amp;ptid=2126390" target="_blank">squallx 发表于 2024-1-11 04:54</a>
+开源社区向NAI3霸权开出的第一炮
+
+虽然这霸权还没到两个月</blockquote>
+虽然是nai3自己发的，这开源程度已经完全超越了一系列大厂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

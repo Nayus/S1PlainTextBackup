@@ -2988,3 +2988,11 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 这游戏真是越来越无聊了，看这架势奏章还得拖两年，真的恶心
 
+
+*****
+
+####  holyblood  
+##### 10785#       发表于 2024-1-11 04:58
+
+男的up，那太好了。我正愁春节抽了提妈想回点血呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下可以攒一会了
+

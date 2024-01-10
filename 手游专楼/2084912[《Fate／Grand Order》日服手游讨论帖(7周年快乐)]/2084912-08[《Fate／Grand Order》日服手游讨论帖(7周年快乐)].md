@@ -2781,3 +2781,11 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
  ...</blockquote>
 金时和两个蓝单各自有优势区间，拉开差距的是c呆和奥伯龙之间的buff量，有什么问题吗？
 
+
+*****
+
+####  シャル  
+##### 10768#       发表于 2024-1-10 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥会有斯巴达啊
+

@@ -3365,3 +3365,14 @@ tachiyomi为了保护自己把内置插件删了，增设了由第三方提供�
 1、目前已添加https://git ...</blockquote>
 试了一下0.15.2，漫画柜没问题。
 
+
+*****
+
+####  GrassSand  
+##### 333#       发表于 2024-1-10 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63596184&amp;ptid=2010665" target="_blank">保科智子 发表于 2024-1-9 23:23</a>
+
+15.2看不到拷贝，手贱更新</blockquote>
+再添加一个拷贝的源看看 https://raw.githubusercontent.com/stevenyomi/copymanga/repo/index.min.json复制代码
+

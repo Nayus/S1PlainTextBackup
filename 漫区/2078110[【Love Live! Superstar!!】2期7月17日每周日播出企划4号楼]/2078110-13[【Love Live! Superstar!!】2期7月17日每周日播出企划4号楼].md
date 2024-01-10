@@ -441,3 +441,19 @@ Image_1704894013300.jpg
 
 完全不知道…………这娃真拼啊
 
+
+*****
+
+####  starring  
+##### 19152#       发表于 2024-1-10 23:01
+
+2月2日开通FC「39 Color（さくからー）」
+
+<img src="https://p.sda1.dev/15/47627233402119538b8cc924d894242c/QQ截图20240110225518.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/cb2d0f1af2b7c9e82833fdb36d9000e0/QQ截图20240110225531.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/2c86b375d4bad49e99ab1273062b8846/GDfCm4IWUAAKJt2.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/ec99a6eb0b089c7e1e479e60ef987de2/GDei1sXbcAARFN1.jpg" referrerpolicy="no-referrer">
+

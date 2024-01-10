@@ -2947,3 +2947,18 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 从来都是理论结合实际，到了汇呆这里就是抛开实际不谈了是吧
 
+
+*****
+
+####  exiaexa  
+##### 10781#       发表于 2024-1-10 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63608237&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2024-1-10 22:30</a>
+我其他游戏还人权的角色抽都不抽一样玩，不代表我认为这卡就不强了</blockquote>
+跟卡强不强有啥关系
+你没看出来这就是贴吧每天上演的那套哭弱理论吗
+
+又想嘴强王者又不愿意承认自己只有未来可期
+最后就变成，拐强算什么本事，有本事你出来单挑啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12869,3 +12869,21 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 老团和eg的合约还没到期罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宿  
+##### 8719#       发表于 2024-1-10 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63601008&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-10 12:43</a>
+
+鐵三角</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202401/10/134509x2txcorxf3x9d1xe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 13:45 上传
+

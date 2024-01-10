@@ -13077,3 +13077,15 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 <img src="https://p.sda1.dev/15/a4d0ea760a86ec78b3ef12821b567323/CMP_20240110212753115.png" referrerpolicy="no-referrer">
 4. 五人向观众问好进入营业模式，仿佛刚才的一切没发生过
 
+
+*****
+
+####  Toki_Ai  
+##### 8734#       发表于 2024-1-10 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63607768&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-10 21:57</a>
+发表会生日那段越品越乐，可以列为我年度情景喜剧top3
+
+前情提要:  青木阳菜唱梦浮桥退场时观众喊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽，这也太
+

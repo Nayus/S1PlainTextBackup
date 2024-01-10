@@ -13174,3 +13174,18 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 喷了
 
+
+*****
+
+####  PDQ4  
+##### 8742#       发表于 2024-1-11 00:07
+
+纯路人都点进来了，泥漏未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8743#       发表于 2024-1-11 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不能以偏概全吧，一部分确实比较难以评价，比如盯着淘宝专辑销量看还踩一捧一的
+

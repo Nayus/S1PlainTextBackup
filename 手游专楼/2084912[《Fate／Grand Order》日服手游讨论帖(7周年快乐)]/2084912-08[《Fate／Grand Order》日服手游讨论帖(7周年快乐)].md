@@ -2876,3 +2876,38 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 2024-1-10 21:50 上传
 
+
+*****
+
+####  qixinno2  
+##### 10774#       发表于 2024-1-10 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说我这种非洲穷B才需要奥伯龙增伤 大佬全5宝根本不需要
+
+*****
+
+####  alucardcz  
+##### 10775#       发表于 2024-1-10 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为有新消息了
+
+*****
+
+####  v22325  
+##### 10776#       发表于 2024-1-10 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这么讨厌2.6啊
+
+*****
+
+####  exiaexa  
+##### 10777#       发表于 2024-1-10 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63607769&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-10 21:57</a>
+
+我还以为有新消息了</blockquote>
+最大的消息就是加成里一个源氏都没有
+
+可推要么丑御前根本不落地，要么就是对面大BOSS等着二池见
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

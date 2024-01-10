@@ -13059,3 +13059,21 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 脸圆圆的可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  后藤一里  
+##### 8733#       发表于 2024-1-10 21:57
+
+发表会生日那段越品越乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，可以列为我年度情景喜剧top3
+
+前情提要:  青木阳菜唱梦浮桥退场时观众喊生日快乐青木鞠躬感谢
+
+1.五人入场和观众打招呼，观众又有人喊生日，此时小羊疑惑出声:“お誕生日?”，其余四人望向小羊，立石凛和蜜柑的目光略显惊讶
+<img src="https://p.sda1.dev/15/f35df30a41fc1853562f629348404871/CMP_20240110215144835.png" referrerpolicy="no-referrer">
+2.观众喊あけおめ，小羊恍然大悟，原来是新年快乐，“ああ、あけおめ、そうですね”，其余四人仿佛想起了什么好笑的事情开始狂笑不止
+<img src="https://p.sda1.dev/15/ff53c856c3936dadffc457db30da32e5/CMP_20240110212753059.png" referrerpolicy="no-referrer">
+3. 蜜柑边笑边说“あけおめです”，大鼓队员望向青木，青木露出尴尬的笑容
+<img src="https://p.sda1.dev/15/a4d0ea760a86ec78b3ef12821b567323/CMP_20240110212753115.png" referrerpolicy="no-referrer">
+4. 五人向观众问好进入营业模式，仿佛刚才的一切没发生过
+

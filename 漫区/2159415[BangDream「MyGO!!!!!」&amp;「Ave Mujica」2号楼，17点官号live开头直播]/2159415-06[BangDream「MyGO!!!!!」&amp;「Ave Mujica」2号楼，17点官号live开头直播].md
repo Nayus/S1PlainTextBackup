@@ -13349,3 +13349,13 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 傻子装聪明就这样，比如常熟阿诺
 
+
+*****
+
+####  灵椿  
+##### 8759#       发表于 2024-1-11 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609823&amp;ptid=2159415" target="_blank">樱祈 发表于 2024-1-11 00:47</a>
+太典了，没去她推特回复等于不知道她生日</blockquote>
+声优要做做表面功夫不是理所当然的吗？更何况还是一个团的，3缺一也太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+

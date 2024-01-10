@@ -12754,3 +12754,13 @@ allin 喵喵是可以替换的
 
 初华篇完结，《爱上本该去恨的人！》
 
+
+*****
+
+####  6030sylar  
+##### 8707#       发表于 2024-1-10 07:59
+
+<img src="https://p.sda1.dev/15/315bc885f9ff5428eb6dc6cd2a62c872/Image_1704843920380.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

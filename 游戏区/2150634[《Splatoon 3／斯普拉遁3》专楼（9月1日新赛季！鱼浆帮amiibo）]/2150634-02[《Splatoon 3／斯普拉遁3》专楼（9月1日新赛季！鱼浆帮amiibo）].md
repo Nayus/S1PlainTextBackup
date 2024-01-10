@@ -8537,3 +8537,12 @@ uu6.6折优惠秒没？
 快赛季中更新了，不知道能不能再修一张图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 希望是鱼肉碎金属或者温泉花大峡谷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  炫夜鳞  
+##### 2360#       发表于 2024-1-10 09:45
+
+这期武器还行，但是打不了一点
+轻加中伞有一个在野人手上就得翻车
+

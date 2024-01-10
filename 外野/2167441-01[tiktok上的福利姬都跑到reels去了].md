@@ -515,3 +515,58 @@ Reels变形！
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  超电波系MK2  
+##### 63#       发表于 2024-1-10 19:04
+
+我点到reels那个界面弹出来的全是柰子和屁股啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirakawahotaru  
+##### 64#       发表于 2024-1-10 19:08
+
+所以有无好心人来点推荐撒，
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ura赤  
+##### 65#       发表于 2024-1-10 19:09
+
+ 本帖最后由 Ura赤 于 2024-1-10 19:13 编辑 
+
+看看β
+
+看到了，谢谢茄子<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫出没注意  
+##### 66#       发表于 2024-1-10 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63604411&amp;ptid=2167441" target="_blank">燕山雪 发表于 2024-1-10 17:07</a>
+
+为啥我在googleplay搜不到reels</blockquote>
+reels其实就是instagram内置的一个功能。是前几年扎克伯格搞的tiktok竞品，里面只有视频（“帖子”里则是图片和视频都可以发。而且reels里的一些视频可能不会显示在“帖子”页面里）。
+
+<img src="https://img.saraba1st.com/forum/202401/10/191209ou0ddbz0a6f0joa4.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-01-10_19-11-16.png</strong> (5.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 19:12 上传
+
+*****
+
+####  寇马可  
+##### 67#       发表于 2024-1-10 19:14
+
+app还是小草好用。。
+

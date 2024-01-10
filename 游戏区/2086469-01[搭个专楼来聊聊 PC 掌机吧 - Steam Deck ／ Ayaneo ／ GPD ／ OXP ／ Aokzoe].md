@@ -253,3 +253,21 @@ ultra实测果然拉了，pass
 
 前端看起来还行。
 
+
+*****
+
+####  bypass  
+##### 1046#         楼主| 发表于 2024-1-10 20:37
+
+[https://weibo.com/ttarticle/p/show?id=2309404988715738202418](https://weibo.com/ttarticle/p/show?id=2309404988715738202418)
+
+AYANEO NEXT LITE 首次预装 Steam OS 游戏系统 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 1047#       发表于 2024-1-10 20:40
+
+aya要出一个预装stos的机子
+目前win掌机刷stos的效果如何？
+

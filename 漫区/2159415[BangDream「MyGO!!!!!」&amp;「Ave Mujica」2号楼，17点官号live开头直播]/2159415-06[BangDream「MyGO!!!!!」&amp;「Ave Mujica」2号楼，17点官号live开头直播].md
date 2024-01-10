@@ -13027,3 +13027,19 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 大渡老师越来越源圆了
 
+
+*****
+
+####  仟音一心  
+##### 8729#       发表于 2024-1-10 20:33
+
+<img src="https://p.sda1.dev/15/9698cfc71c01716334307cecb6cff75f/CMP_20240110203254100.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 8730#       发表于 2024-1-10 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63606824&amp;ptid=2159415" target="_blank">仟音一心 发表于 2024-1-10 20:33</a></blockquote>
+在邦多利所没有的笑容……
+

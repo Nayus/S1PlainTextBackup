@@ -24222,3 +24222,153 @@ UMIE模型的示意图，视觉编码器将图像和对象编码为特征，这�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1171#       发表于 2024-1-11 04:14
+
+ 本帖最后由 Machinery 于 2024-1-11 04:19 编辑 
+
+animagine-xl
+
+动漫图像生成
+
+hugface权重下载:https://huggingface.co/cagliostrolab/animagine-xl-3.0
+
+演示demo:https://huggingface.co/spaces/Linaqruf/animagine-xl
+
+相关博客:https://cagliostrolab.net/posts/animagine-xl-v3-release
+
+————
+两个月前，Animagine XL 2.0公开发布，今天，很高兴向您介绍Animagine XL 3.0，这是基于Stable Diffusion XL的开源动漫文本到图像模型的下一代版本，在上一代版本的基础上，V3经过了开发和改进，以成为最好的开源动漫图像生成模型
+
+与上一代版本相比，它具备更好的知识、更好的概念和更好的提示理解能力，它还可以生成更好的手部结构
+————
+在Animagine XL 2.0的基础之上进行微调
+
+在一番尝试和错误之后，Animagine XL 2.0可以成为Animagine XL 3.0预训练过程的基础模型，这个模型不仅建立在SDXL之上(迄今为止世界上最好的开源图像生成模型)，而且Animagine XL 2.0已经比原始版本更好地学习了动漫概念，这使得持续训练变得简单高效
+
+为了训练Animagine XL 3.0，只在Runpod上使用了2个A100 80GB，其中一半的积分来自研究组宝贵的朋友，其余的则来自自掏腰包，这个模型在12月份训练了21天，大约使用了500个GPU小时，使用了稍微修改过的kohya-ss/sd-scripts作为训练脚本，添加了一些类似于keep_tokens_separator的内容，以动态的保持标签不被打乱
+
+然而，Animagine XL 3.0的训练配置可能会与Animagine XL 2.0略有不同，希望模型能够适应这种变化
+————
+标签排序
+
+NovelAI去年宣布了他们的动漫文本到图像模型的第三次迭代，NovelAI Diffusion V3，声称NAID V3经过独特的标签排序训练，这意味着标签排序对于获得我们想要的东西至关重要，值得庆幸的是，他们在文档中分享了他们的发现(相关链接:https://docs.novelai.net/image/tags.html#tag-ordering)
+
+基于这些信息，通过尝试构建数据集并进行类似于NovelAI Diffusion V3的训练来重现标签排序，到目前为止，对结果感到非常满意，因此提议使用下文提示模板来对本文V3模型进行推理
+
+1boy/1girl, what character, from which series, everything else in random order*
+
+everything else in random order*可以是一切，从一般标签到质量标签
+
+<img src="https://img.saraba1st.com/forum/202401/11/041257y25e2s885w12tw19.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240111-041015.jpg</strong> (127.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 04:12 上传
+
+————
+更好的手
+
+相信V3可以相对于上一版本可以生成更好的手势，研究组一直在测试一些手势标签，比如waving, double v, v, pointing at viewer, hands up, rabbit pose, 以及 shushing等，到目前为止，对效果感到十分满意
+
+<img src="https://img.saraba1st.com/forum/202401/11/041305cooa3j818pzumipj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240111-041024.jpg</strong> (171.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 04:13 上传
+
+————
+更简单的提示，更好的知识
+
+导致需要训练这个模型的另一个原因是LoRA的开发不可控且低效，假设我们需要2800个LoRA来处理2800个角色，每个LoRA的平均大小为50 MB(8 dim, 8 alpha, 8 conv dim, 4 alpha)，那么我们需要分配大约140 GB的存储空间来保存LoRA，不仅如此，还必须加载所有LoRA，验证它们是否损坏，打开network选项卡，选择LoRA，并在生成之前调整LoRA适配器的权重
+
+我们需要通过训练更好的基础模型来让LoRA更加有效和高效，这样我们只需要针对模型缺乏的概念和艺术风格来训练LoRA，使用此模型，您只需使用提示即可生成许多知名角色，甚至不需要解释大多数角色的特征就可以得到您想要的，如果您输入“Hoshimachi Suisei”，您将得到“Hoshimachi Suisei”，如果您输入“Arima Kana”，您将得到Arima Kana，就这么简单！
+
+<img src="https://img.saraba1st.com/forum/202401/11/041317xhf7bohzuros2hrs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240111-041032.jpg</strong> (340.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 04:13 上传
+
+————
+CFG更低，采样步骤更少
+
+根据研究发现，建议使用5-7左右的较低的无分类器指导，采样步骤低于30，并使用Euler Ancestral (Euler A)作为采样器，此设置可优化性能而不影响结果质量
+
+<img src="https://img.saraba1st.com/forum/202401/11/041325aqq0569q9587jmz9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240111-041043.jpg</strong> (212.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 04:13 上传
+
+————
+无法控制
+
+说完好事之后，现在开始解释发生的坏事，如果用户使用masterpiece, best quality，可能会遇到更多NSFW结果，因为许多高分数据集都是NSFW，最好将NSFW, rating: sensitive添加到负面提示，并将rating: general添加到正面提示
+
+在训练结束之后，我们才意识到训练脚本有问题，它存在分布式数据并行问题，因为使用了多个GPU，所以梯度未同步，这意味着模型可能训练不足，因为它可能只接收部分update
+————
+特殊标签
+
+与之前的迭代一样，该模型使用一些特殊标签进行训练，以将结果引导至质量和年份标签，没有这些特殊标签，模型仍然可以完成工作，但如果我们想让模型更容易发挥效果，建议使用它们
+
+质量标签
+
+为了使用户更容易从SD 1.5迁移到SDXL，选择了保持质量标签相同，其中根据数据集得分来衡量质量标签，以下为列表，从最好到最差:
+masterpiece
+best quality
+high quality
+normal quality
+low quality
+worst quality
+
+<img src="https://img.saraba1st.com/forum/202401/11/041337bilddcwcdcvpwphq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240111-041055.jpg</strong> (205.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 04:13 上传
+
+————
+年份标签
+
+还引入了年份标签，但与NovelAI Diffusion V3不同，其中基于一系列图片发布的年份而不是单独的帖子年份进行训练，它应该是另一个质量标签，引导结果走向动漫艺术风格的现代性，年份标签使用起来不是很有效，但是，如果我们特别想要获得2014年代的艺术风格，它们应该特别有效，以下是列表，从最新到最旧:
+newest
+late
+mid
+early
+oldest
+
+<img src="https://img.saraba1st.com/forum/202401/11/041413e79097relb9bln7r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240111-041104.jpg</strong> (278.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 04:14 上传
+
+————
+发布与相关许可
+
+<img src="https://img.saraba1st.com/forum/202401/11/041418nfdfg5udgn5f2ye3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240111-041114.jpg</strong> (382.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 04:14 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

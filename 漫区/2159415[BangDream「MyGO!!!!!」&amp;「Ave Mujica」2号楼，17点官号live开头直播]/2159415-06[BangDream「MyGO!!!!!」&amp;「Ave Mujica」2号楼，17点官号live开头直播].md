@@ -13043,3 +13043,11 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63606824&amp;ptid=2159415" target="_blank">仟音一心 发表于 2024-1-10 20:33</a></blockquote>
 在邦多利所没有的笑容……
 
+
+*****
+
+####  NODY  
+##### 8731#       发表于 2024-1-10 21:27
+
+渡濑这脸感觉面具快包不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

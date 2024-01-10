@@ -2911,3 +2911,22 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 可推要么丑御前根本不落地，要么就是对面大BOSS等着二池见
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 10778#       发表于 2024-1-10 22:23
+
+<blockquote>exiaexa 发表于 2024-1-10 21:51
+我建议你们先搞清楚到底是奥伯龙作为蘑菇亲爹真是太强了，没有奥伯龙玩不了
+
+还是你们自己告诉自己没了奥伯 ...</blockquote>
+数据就在那儿写着，强不强大家心里有数。和你怎么玩游戏不构成因果关系。
+
+*****
+
+####  AbigailWilliams  
+##### 10779#       发表于 2024-1-10 22:30
+
+我其他游戏还人权的角色抽都不抽一样玩，不代表我认为这卡就不强了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

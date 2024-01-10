@@ -4190,3 +4190,27 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 不知道现在第9节，剧情打完能不能刷出4w5羁绊
 
+
+*****
+
+####  UNISONIA  
+##### 45916#       发表于 2024-1-10 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63590099&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-1-9 15:25</a>
+
+主要没有什么菌言菌语，就是一个王道的冒险故事，整个观感舒服多了。</blockquote>
+只是前篇，后篇菌言菌语就回来了（包括一些类似第一部终章的写法）
+
+特佩乌硬蹭志贵是我看菌作品以来见过的最迷惑的操作（前篇完全看不出来有这个意思）
+
+*****
+
+####  khxooo  
+##### 45917#       发表于 2024-1-10 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63599975&amp;ptid=1712412" target="_blank">UNISONIA 发表于 2024-1-10 11:25</a>
+只是前篇，后篇菌言菌语就回来了（包括一些类似第一部终章的写法）
+
+特佩乌硬蹭志贵是我看菌作品以来见过 ...</blockquote>
+也就蝙蝠那里，个人感觉比2.6好多了。
+

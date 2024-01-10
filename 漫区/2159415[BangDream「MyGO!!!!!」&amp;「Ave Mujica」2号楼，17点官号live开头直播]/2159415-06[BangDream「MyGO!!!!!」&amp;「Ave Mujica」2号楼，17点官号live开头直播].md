@@ -13099,3 +13099,20 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 8736#       发表于 2024-1-10 23:39
+
+也就这番算不少人的年一邦甚至年一二偶，不然就动物朋友这个业务水准和营业态度算得上事故了，希望剩下四个人能努力维持住这个来之不易的机会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 8737#       发表于 2024-1-10 23:39
+
+哎羊
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

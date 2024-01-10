@@ -13367,3 +13367,15 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 真的是傻子装聪明吗，我怎么觉得是反过来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  呱基  
+##### 8761#       发表于 2024-1-11 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609823&amp;ptid=2159415" target="_blank">樱祈 发表于 2024-1-11 00:47</a>
+太典了，没去她推特回复等于不知道她生日</blockquote>
+那她台上的表现怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

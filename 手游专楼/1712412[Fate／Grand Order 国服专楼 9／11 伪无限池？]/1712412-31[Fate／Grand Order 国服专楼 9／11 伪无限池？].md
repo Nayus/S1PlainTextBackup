@@ -4180,3 +4180,13 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 又可以抽卡了，饥渴难耐啊
 
+
+*****
+
+####  FrozenA  
+##### 45915#       发表于 2024-1-10 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">从踢足球的愉快气氛一转到storm border那边被残忍对待那落差哎……
+
+不知道现在第9节，剧情打完能不能刷出4w5羁绊
+

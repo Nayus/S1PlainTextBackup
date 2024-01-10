@@ -13320,3 +13320,24 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 鸡+狗10个人推特加一块都没鬼圣一个人粉多，别唉了，碰瓷都不够格
 
+
+*****
+
+####  ddy2811  
+##### 8756#       发表于 2024-1-11 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609823&amp;ptid=2159415" target="_blank">樱祈 发表于 2024-1-11 00:47</a>
+
+太典了，没去她推特回复等于不知道她生日</blockquote>
+知道的话我觉得是个正常人都知道那一句生日该怎么接了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 8757#       发表于 2024-1-11 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609823&amp;ptid=2159415" target="_blank">樱祈 发表于 2024-01-11 00:47:32</a>
+太典了，没去她推特回复等于不知道她生日</blockquote>不知道还能说是真不熟，要是真的知道还在台上装不知道让青木尴尬，这是出于什么心理啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

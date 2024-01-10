@@ -414,3 +414,22 @@ Image_1704894013300.jpg
 要去福冈还是老实买香港快运吧……除非你玩里程……</blockquote>
 就福冈那个地方，白云好像没直达的
 
+
+*****
+
+####  starring  
+##### 19150#       发表于 2024-1-10 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63607573&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-1-10 21:40</a>
+
+花花4th之后就去做了手术</blockquote>
+腿部做了手术<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/10/223837u1zz14vfq4ydk25d.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240110223801.jpg</strong> (17.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 22:38 上传
+

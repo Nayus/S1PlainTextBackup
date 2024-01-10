@@ -179,3 +179,13 @@ niji en应该不久后要跟id kr一个遭遇了
 
 要毕业的人了理他作甚
 
+
+*****
+
+####  格林卡罗尔  
+##### 2870#       发表于 2024-1-10 18:53
+
+感觉上次看到葛叶和ssk玩是很久以前了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

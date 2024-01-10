@@ -1,0 +1,517 @@
+
+*****
+
+####  群星熔铸银河  
+##### 1#       楼主       发表于 2024-1-10 16:53
+
+tiktok上管得严，漏点会被删封，激凸和骆驼趾都会被限流。
+
+所以那些网黄都放弃tiktok跑到reels了，小扎那边为了对抗tiktok，尺度究极宽松，别说奶头了，漏β给大伙看都没事<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ltycomputer| + 1||
+
+查看全部评分
+
+*****
+
+####  群星熔铸银河  
+##### 2#         楼主| 发表于 2024-1-10 16:55
+
+其实也不怪tiktok，中国互联网企业在美国不老保一点就会被真正的美利坚老保给找茬干烂的。
+
+事实上，为了避嫌，tiktok的审核都是交给美国公司做的。
+
+*****
+
+####  Final  
+##### 3#       发表于 2024-1-10 16:55
+
+谢谢兄弟
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ddrrr  
+##### 4#       发表于 2024-1-10 16:56
+
+谢谢茄子
+
+*****
+
+####  88is88  
+##### 5#       发表于 2024-1-10 16:56
+
+立刻下一个
+
+*****
+
+####  濡鸦之羽_  
+##### 6#       发表于 2024-1-10 16:56
+
+reels，启动
+
+*****
+
+####  玉米须茶  
+##### 7#       发表于 2024-1-10 16:58
+
+reels，启动 
+
+*****
+
+####  lucifer123  
+##### 8#       发表于 2024-1-10 16:58
+
+谢谢兄弟，我去了
+
+*****
+
+####  basihong  
+##### 9#       发表于 2024-1-10 17:00
+
+reels，启动
+
+*****
+
+####  whzfjd  
+##### 10#       发表于 2024-1-10 17:01
+
+美国企业的app不会拦着不给chinese用
+
+*****
+
+####  beckuse  
+##### 11#       发表于 2024-1-10 17:01
+
+既然搞网黄了，不如一步到位onlyfans变现。反正onlyfans也并不是都漏点的。
+
+对于tiktok切割也好，免得惹一身骚
+
+*****
+
+####  simon兄  
+##### 12#       发表于 2024-1-10 17:04
+
+还要pro吗
+
+—— 来自 vivo V2266A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小农经济  
+##### 13#       发表于 2024-1-10 17:04
+
+reels启动<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  狭义文具爱好者  
+##### 14#       发表于 2024-1-10 17:05
+
+谢谢兄弟，有时候换口味还挺喜欢看美式擦边
+
+*****
+
+####  wenhaowu  
+##### 15#       发表于 2024-1-10 17:06
+
+Reels 给点关键词，一打开给我硬推了点弱智美国小学生短视屏，真下头
+
+*****
+
+####  群星熔铸银河  
+##### 16#         楼主| 发表于 2024-1-10 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63604334&amp;ptid=2167441" target="_blank">beckuse 发表于 2024-1-10 17:01</a>
+既然搞网黄了，不如一步到位onlyfans变现。反正onlyfans也并不是都漏点的。
+
+对于tiktok切割也好，免得惹一 ...</blockquote>
+擦边短视频本来就是给她们的onlyfans引流用的，被逼到reels纯属无奈之举，有得选肯定还是tiktok，流量大啊。
+
+reels用户数可能也就tiktok的1/5？用户粘度更是差远了。
+
+*****
+
+####  燕山雪  
+##### 17#       发表于 2024-1-10 17:07
+
+为啥我在googleplay搜不到reels
+
+*****
+
+####  emeab  
+##### 18#       发表于 2024-1-10 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63604334&amp;ptid=2167441" target="_blank">beckuse 发表于 2024-1-10 17:01</a>
+
+既然搞网黄了，不如一步到位onlyfans变现。反正onlyfans也并不是都漏点的。
+
+对于tiktok切割也好，免得惹一 ...</blockquote>
+reels搞流量 onlyfans变现. 
+
+*****
+
+####  寒蝉  
+##### 19#       发表于 2024-1-10 17:07
+
+reels，启动
+
+*****
+
+####  恒温死神  
+##### 20#       发表于 2024-1-10 17:07
+
+reels，启动
+
+*****
+
+####  干嘛呢  
+##### 21#       发表于 2024-1-10 17:08
+
+需**吗？需要的话就不给那个事了
+
+*****
+
+####  菲特妹  
+##### 22#       发表于 2024-1-10 17:08
+
+很离谱，这种找小姐的广告可以直接在meta上投放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/10/170810r959gkz3r9o5tkjt.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240110170803.jpg</strong> (171.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 17:08 上传
+
+*****
+
+####  小田切宁宁  
+##### 23#       发表于 2024-1-10 17:10
+
+小扎不行 facebook和ins莫名其妙的就把我的号给封了 申诉都不让
+
+*****
+
+####  kazemitoya  
+##### 24#       发表于 2024-1-10 17:10
+
+请问，需要**吗？我没用过<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">求大佬们解惑。这真的对我很重要！
+
+*****
+
+####  zjx121112  
+##### 25#       发表于 2024-1-10 17:12
+
+有没有下载链接，懒得去找<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  castle_man  
+##### 26#       发表于 2024-1-10 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63604334&amp;ptid=2167441" target="_blank">beckuse 发表于 2024-1-10 17:01</a>
+
+既然搞网黄了，不如一步到位onlyfans变现。反正onlyfans也并不是都漏点的。
+
+对于tiktok切割也好，免得惹一 ...</blockquote>
+OF收费， 免费平台引流
+
+*****
+
+####  伊塔库亚  
+##### 27#       发表于 2024-1-10 17:15
+
+不知道是下错了还是怎么地，这app进去啥都没有啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Jet.Black  
+##### 28#       发表于 2024-1-10 17:16
+
+不重要，反正福利鸡大部分也上推特
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  惠痴  
+##### 29#       发表于 2024-1-10 17:17
+
+无内鬼，来点关键词
+
+*****
+
+####  魔法酪饼  
+##### 30#       发表于 2024-1-10 17:17
+
+这就去下reels
+
+
+*****
+
+####  EP2  
+##### 31#       发表于 2024-1-10 17:17
+
+play里找不到
+
+—— 来自 samsung SM-G9810, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  活得很差  
+##### 32#       发表于 2024-1-10 17:19
+
+谢谢兄弟
+
+*****
+
+####  lzrtwilight  
+##### 33#       发表于 2024-1-10 17:20
+
+说清楚啊，reels 是instagram 的一个发布短视频的功能。
+
+*****
+
+####  missingedge  
+##### 34#       发表于 2024-1-10 17:21
+
+Reels甚至不知道怎么搜索，一搜全是ins的图
+
+*****
+
+####  qb212  
+##### 35#       发表于 2024-1-10 17:21
+
+害我play搜了半天reels，原来还是ins
+
+*****
+
+####  88is88  
+##### 36#       发表于 2024-1-10 17:24
+
+对的，REELS本质还是INS的视频播放器，而且不能搜索，你不通过关注INS来让算法确认你的喜好是定向不了的
+
+*****
+
+####  shishkebab  
+##### 37#       发表于 2024-1-10 17:24
+
+Reels，启动<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈八尺  
+##### 38#       发表于 2024-1-10 17:26
+
+有关键字么？reel我偶尔看为毛就没见过啥nsfw内容啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不让用大写  
+##### 39#       发表于 2024-1-10 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">重新下了ins 点开reels直接一对**蹦出来了，还好手快给关了，差点社死
+
+这都什么算法，好几年没上过ins了，之前就关注几个正经的摄影号
+
+*****
+
+####  sakuranosibe  
+##### 40#       发表于 2024-1-10 17:42
+
+apple日服没有啊搜索没有啊orz
+
+*****
+
+####  woid1  
+##### 41#       发表于 2024-1-10 17:42
+
+感谢分享
+
+*****
+
+####  粉色猛男  
+##### 42#       发表于 2024-1-10 17:42
+
+来点博主
+
+—— 来自 samsung SM-G9810, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cfdxiaobai  
+##### 43#       发表于 2024-1-10 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键词啊大哥
+
+*****
+
+####  天桥夜风  
+##### 44#       发表于 2024-1-10 17:49
+
+小蓝鸟还不够你们看的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryj  
+##### 45#       发表于 2024-1-10 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63604437&amp;ptid=2167441" target="_blank">菲特妹 发表于 2024-1-10 17:08</a>
+很离谱，这种找小姐的广告可以直接在meta上投放</blockquote>
+腾讯上也可以啊
+你下个部落冲突就行了
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  主人ハム子  
+##### 46#       发表于 2024-1-10 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63604456&amp;ptid=2167441" target="_blank">小田切宁宁 发表于 2024-1-10 17:10</a>
+小扎不行 facebook和ins莫名其妙的就把我的号给封了 申诉都不让</blockquote>
+我也是，连带害我手游账号都没了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  雨井绫  
+##### 47#       发表于 2024-1-10 17:49
+
+看了一会儿的感想是这些人怎么都不穿胸罩。
+
+*****
+
+####  万事皆允  
+##### 48#       发表于 2024-1-10 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63605043&amp;ptid=2167441" target="_blank">天桥夜风 发表于 2024-1-10 17:49</a>
+
+小蓝鸟还不够你们看的吗</blockquote>
+主要只想看图和视频，小蓝鸟没法直接看大图，广告太多，转帖
+
+*****
+
+####  gawain  
+##### 49#       发表于 2024-1-10 18:04
+
+关键字呢！
+
+*****
+
+####  lucifer123  
+##### 50#       发表于 2024-1-10 18:06
+
+原来是Ins啊，那我还是去看X把。
+
+就是TM把我旧账号封了，害我重新注册一个，又要开始找推主
+
+*****
+
+####  shishkebab  
+##### 51#       发表于 2024-1-10 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63605043&amp;ptid=2167441" target="_blank">天桥夜风 发表于 2024-1-10 17:49</a>
+小蓝鸟还不够你们看的吗</blockquote>
+哥们就爱看擦边的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗尿  
+##### 52#       发表于 2024-1-10 18:11
+
+reels就是ins里的新增功能，各位不要下错了。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  茉莉呐噶米谬谬  
+##### 53#       发表于 2024-1-10 18:27
+
+马克先
+
+----发送自 [Xiaomi M2102J2SC,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  hzy11fk  
+##### 54#       发表于 2024-1-10 18:28
+
+有没有关键字啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aiyouo  
+##### 55#       发表于 2024-1-10 18:29
+
+最近一直在刷reels，福利姬有好多是没授权直接搬运抖音上的，但是不得不说上面优质樱花妹确实不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵐色羽空  
+##### 56#       发表于 2024-1-10 18:32
+
+Reels变形！
+
+*****
+
+####  gaayas  
+##### 57#       发表于 2024-1-10 18:37
+
+早发现了，不过很多感觉是搬运
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  viperasi  
+##### 58#       发表于 2024-1-10 18:43
+
+梯子 直接网页打开instagram, 左边就能看到reels
+
+*****
+
+####  295405468  
+##### 59#       发表于 2024-1-10 18:43
+
+楼主没向小扎要领推广费属实亏了
+
+*****
+
+####  雨宿绘空事  
+##### 60#       发表于 2024-1-10 18:48
+
+刷半天刷不到想看的
+
+
+*****
+
+####  保科智子  
+##### 61#       发表于 2024-1-10 18:55
+
+是不是有过滤设置？我看不到露点内容，nsfw都不能搜。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNICORN00  
+##### 62#       发表于 2024-1-10 19:02
+
+来点博主id推荐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

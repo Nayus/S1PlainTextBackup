@@ -12764,3 +12764,11 @@ allin 喵喵是可以替换的
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8708#       发表于 2024-1-10 08:05
+
+https://babubabuuuu.lofter.com/post/4d01a349_2bada7639<img src="https://p.sda1.dev/15/f374112663f77b0338ab881f314c56fa/CMP_20240110080453766.jpg" referrerpolicy="no-referrer">
+

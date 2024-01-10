@@ -12942,3 +12942,28 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 补胎烧酒
 
+
+*****
+
+####  NODY  
+##### 8724#       发表于 2024-1-10 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63603094&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-10 15:32</a>
+
+现在哪里能代购mygo设定集，魔法集市还能用吗</blockquote>
+海淘、任你购应该都可以吧，我用任你购买东西挺多年了没啥问题，就是可能贵点
+
+怕太贵也可以试试tb，公式书没啥值钱特典应该不至于被黑心店家吞特典<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kasroz| + 1|好评加鹅|
+
+查看全部评分
+

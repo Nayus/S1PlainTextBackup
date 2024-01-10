@@ -13116,3 +13116,34 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  [皆神孝介]  
+##### 8738#       发表于 2024-1-10 23:49
+
+<img src="https://img.saraba1st.com/forum/202401/10/234937c8sw9kqwutvkk8kv.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240110234854.jpg</strong> (243.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 23:49 上传
+
+<img src="https://img.saraba1st.com/forum/202401/10/234936be6ysufrndxzs5r2.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240110234859.jpg</strong> (147.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 23:49 上传
+
+“胜利在我”
+
+*****
+
+####  樱祈  
+##### 8739#       发表于 2024-1-10 23:52
+
+2.5企划的粉丝怎么都这么恶心啊，连发推都要被天天盯着管，看了十年番剧，第一次见到不发推都要追着骂的。羊宫还是太诚实了，可能她也没想到她的真诚会引来那么多黑子吧，要是直接说公式账号就没事了。
+

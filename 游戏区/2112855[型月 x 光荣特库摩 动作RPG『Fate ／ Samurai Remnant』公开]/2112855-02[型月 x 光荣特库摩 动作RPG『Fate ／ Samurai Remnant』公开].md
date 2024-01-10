@@ -67,3 +67,20 @@
 
 岛原之后一百多年，基本上什么剑圣，剑豪，剑客都死光了，
 
+
+*****
+
+####  Leliel  
+##### 1674#       发表于 2024-1-10 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609123&amp;ptid=2112855" target="_blank">berserk28 发表于 2024-1-10 23:31</a>
+
+怎么可能是一百多年之后啊
+
+侍魂里有柳生十兵卫啊，柳生十兵卫跟宫本伊织是同时代的人物，年龄也差不多
+
+基 ...</blockquote>
+侍魂的设定不是什么稀罕货
+
+你随便搜搜就有<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

@@ -13227,3 +13227,11 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 在憧憬成为魔法少女当模特的长期素食
 
+
+*****
+
+####  Aendst  
+##### 8748#       发表于 2024-1-11 00:24
+
+原来是定型文，那有没有漏油改得更有意思点，这个笑点不太明显<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2831,3 +2831,48 @@ ORT有什么难度的， 一次上三个从者，一次就能打掉100W血了，
 
 wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新拐了，这些拐该抽都抽了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 10772#       发表于 2024-1-10 21:50
+
+爱强不强，反正虫子在我这就是查无此人，不抽也不会用好友的支援
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  exiaexa  
+##### 10773#       发表于 2024-1-10 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63606771&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-1-10 20:27</a>
+
+举个例子，能触发特攻的时候水c呆凭借oc到是能叠出不少c类buff，可以不需要奥伯龙换蓝卡辅助，如果触发到 ...</blockquote>
+我建议你们先搞清楚到底是奥伯龙作为蘑菇亲爹真是太强了，没有奥伯龙玩不了
+
+还是你们自己告诉自己没了奥伯龙我不会走路了
+
+我给你说两个自己给自己喂屎的笑话
+
+“没有奥伯龙玩不了”
+
+“六加成”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/10/214950jmwn9739cp3np8nk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (296.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 21:49 上传
+
+<img src="https://img.saraba1st.com/forum/202401/10/215003qra8o8kl8r88pl91.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (155.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 21:50 上传
+

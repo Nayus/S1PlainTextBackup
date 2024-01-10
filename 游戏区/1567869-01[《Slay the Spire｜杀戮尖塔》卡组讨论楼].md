@@ -4847,3 +4847,27 @@ nos ...</blockquote>
 
 就缺6块钱就能完成以5张牌通关的成就了，被自己铸币操作气晕<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woshillj  
+##### 437#       发表于 2024-1-10 17:12
+
+<img src="https://img.saraba1st.com/forum/202401/10/170852aoddqcs6esu4ddqu.png" referrerpolicy="no-referrer">
+
+<strong>C2ZB@2_~G@V~F{M5R3RU[[9.png</strong> (106.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202401/10/170857oncmiz2404qcrpoo.png" referrerpolicy="no-referrer">
+
+<strong>NBUV]R{H@0E`R${DSN9Y9FH.png</strong> (15.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-10 17:08 上传
+
+找了一整局的猛虎找不到，最后直接招牌寄冲进boos放乱杀，无限？什么无限？看我紫皮人乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

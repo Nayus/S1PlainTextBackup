@@ -351,3 +351,13 @@ warp to you竟然是电波曲。。。完全没想到
 私以为她露脑门最好看的造型是愚人节企划那次 ...</blockquote>
 总算是能驾驭大额头的造型了，去年还是前年有一次的大额头发型是真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 19144#       发表于 2024-1-10 17:05
+
+还是把刘海放下来吧，露额头真的挺加强版first summer初夏的。。。。
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

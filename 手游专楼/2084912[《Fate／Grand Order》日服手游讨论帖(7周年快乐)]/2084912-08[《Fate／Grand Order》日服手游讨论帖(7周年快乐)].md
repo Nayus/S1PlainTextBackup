@@ -2930,3 +2930,20 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 我其他游戏还人权的角色抽都不抽一样玩，不代表我认为这卡就不强了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 10780#       发表于 2024-1-10 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63608139&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-1-10 22:23</a>
+数据就在那儿写着，强不强大家心里有数。和你怎么玩游戏不构成因果关系。 ...</blockquote>
+所以我问你你是不是屎黄色逛久了脑子被对面萌二给同化了
+
+绕了一大圈你不就是想说我们汇呆跟我不抽高宝没关系，跟我套路固定也没关系，全是奥伯龙全责
+
+我前面说了啊，有本事你换颜色啊
+你换不了颜色你说个jb，属性游戏你换不了颜色你就是被金时按着摩擦啊
+
+从来都是理论结合实际，到了汇呆这里就是抛开实际不谈了是吧
+

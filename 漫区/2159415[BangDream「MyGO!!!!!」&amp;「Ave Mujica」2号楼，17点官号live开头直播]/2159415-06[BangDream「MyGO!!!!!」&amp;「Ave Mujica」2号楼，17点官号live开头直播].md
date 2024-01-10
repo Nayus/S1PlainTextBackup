@@ -12854,3 +12854,18 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 反倒是鸡狗两个新团的新歌变得比较普通和同质化了，这作曲团队是只能顾一边吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 8717#       发表于 2024-1-10 13:17
+
+老团还是EG负责，只有新团是supalove<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 8718#       发表于 2024-1-10 13:20
+
+老团和eg的合约还没到期罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

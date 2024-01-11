@@ -418,3 +418,26 @@ v社现在放出来的官方steamos还没更新到类似holo的程度吧，他�
 —— 来自 samsung SM-F9460, Android 14 ...</blockquote>
 蛤？这是要自己组一个 Steam Deck 呀这是。
 
+
+*****
+
+####  luffyzhou  
+##### 1061#       发表于 2024-1-11 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63615537&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-11 15:05</a>
+
+蛤？这是要自己组一个 Steam Deck 呀这是。</blockquote>
+不太确定，叫Lite的话，应该不是zen4
+
+*****
+
+####  cc-2  
+##### 1062#       发表于 2024-1-11 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63615537&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-11 15:05</a>
+
+蛤？这是要自己组一个 Steam Deck 呀这是。</blockquote>
+啊？？没有触控板的DECK吗
+
+这卖点在哪里啊
+

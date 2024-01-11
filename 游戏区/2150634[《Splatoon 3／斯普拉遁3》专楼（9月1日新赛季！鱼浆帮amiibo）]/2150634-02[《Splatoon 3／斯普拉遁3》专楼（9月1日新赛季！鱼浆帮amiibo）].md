@@ -8631,3 +8631,25 @@ uu6.6折优惠秒没？
 
 这下不止任天堂一家，Falcom的Live也因为恐吓信取消了，这帮逼什么时候才能抓起来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hbxsdfx  
+##### 2369#       发表于 2024-1-11 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63583638&amp;ptid=2150634" target="_blank">星野航 发表于 2024-1-9 03:26</a>
+
+这种东西避免不了，今天螃蟹这种东西被骂得有多狠，水枪可比螃蟹还狠，完全是不讲理的技能。
+
+2代还是主打一 ...</blockquote>
+确实，最近一直在2代涂地，不是连赢就是连输，很有点搞心态
+
+IMG_9158.png
+(792.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 15:58 上传
+
+<img src="https://img.saraba1st.com/forum/202401/11/155840fiytbvhw3ah0y9z1.png" referrerpolicy="no-referrer">
+

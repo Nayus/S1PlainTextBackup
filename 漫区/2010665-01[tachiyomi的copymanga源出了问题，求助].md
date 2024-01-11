@@ -3399,3 +3399,14 @@ tachiyomi为了保护自己把内置插件删了，增设了由第三方提供�
 没有，已经重新安装过了，楼友的版本和github的那个版本都试过了</blockquote>
 搞清楚了，拷贝插件不生效的先删掉原来的插件再安装就能显示了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  azbhg1  
+##### 336#       发表于 2024-1-11 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612326&amp;ptid=2010665" target="_blank">保科智子 发表于 2024-1-11 10:43</a>
+
+搞清楚了，拷贝插件不生效的先删掉原来的插件再安装就能显示了。</blockquote>
+我卸载重装好几次了是一点效果都没
+

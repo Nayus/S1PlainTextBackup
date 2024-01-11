@@ -307,3 +307,23 @@ TLOU 15W FSR 质量 ，70+ 帧，感觉还是未来可期的。
 
 2024-1-11 11:27 上传
 
+
+*****
+
+####  医生狼多  
+##### 1051#       发表于 2024-1-11 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612971&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-11 11:29</a>
+TLOU 15W FSR 质量 ，70+ 帧，感觉还是未来可期的。</blockquote>
+我记得好多烂帧以及帧生成很差，数据提升实际体验不明显
+
+*****
+
+####  bypass  
+##### 1052#         楼主| 发表于 2024-1-11 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612993&amp;ptid=2086469" target="_blank">医生狼多 发表于 2024-1-11 11:30</a>
+
+我记得好多烂帧以及帧生成很差，数据提升实际体验不明显</blockquote>
+我这两天把我的瑞奇与叮当下回来，找个高负载场景体验看看到底是灵丹妙药还是一坨答辩 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

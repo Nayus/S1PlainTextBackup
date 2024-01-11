@@ -84,3 +84,16 @@
 
 你随便搜搜就有<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  berserk28  
+##### 1675#       发表于 2024-1-11 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609269&amp;ptid=2112855" target="_blank">Leliel 发表于 2024-1-10 23:43</a>
+
+侍魂的设定不是什么稀罕货
+
+你随便搜搜就有</blockquote>
+嗯 ，看了，的确是一百多年后了
+

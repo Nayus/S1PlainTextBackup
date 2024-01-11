@@ -921,3 +921,12 @@ urucammty加上杏女 这下是真的蹭上了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋游刃  
+##### 16140#       发表于 2024-1-11 12:32
+
+又跑去跟职业哥玩LOL了
+[https://www.twitch.tv/kenki521](https://www.twitch.tv/kenki521)
+

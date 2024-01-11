@@ -3079,3 +3079,14 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 一次没登就是偶尔不登甚至退坑的开始</blockquote>
 我现在只有新年和周年登录了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 10794#       发表于 2024-1-11 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63610174&amp;ptid=2084912" target="_blank">ddrrr 发表于 2024-1-11 01:52</a>
+
+这游戏真是越来越无聊了，看这架势奏章还得拖两年，真的恶心</blockquote>
+不会啊，我记得新年直播的时候yls说今年2.0完结（不排除主播口译错误的可能）<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

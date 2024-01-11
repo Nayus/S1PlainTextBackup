@@ -747,3 +747,11 @@ WUG!から10年ということはステ天から10年…なん ...</blockquote>
 
 剧场版的水平仅次于imas本家tv 是为数不多我喜欢的偶像片
 
+
+*****
+
+####  声优  
+##### 78#       发表于 2024-1-11 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer"> WUG改变了我
+

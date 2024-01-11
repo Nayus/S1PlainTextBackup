@@ -277,3 +277,13 @@ emmm，老号都活跃了半年了<img src="https://static.saraba1st.com/image/s
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  IL282  
+##### 2880#       发表于 2024-1-12 05:35
+
+wocao，仔细一看这是撕破脸了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

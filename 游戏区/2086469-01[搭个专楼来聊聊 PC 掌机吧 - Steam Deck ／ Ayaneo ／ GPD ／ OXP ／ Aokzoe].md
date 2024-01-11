@@ -441,3 +441,13 @@ v社现在放出来的官方steamos还没更新到类似holo的程度吧，他�
 
 这卖点在哪里啊
 
+
+*****
+
+####  luffyzhou  
+##### 1063#       发表于 2024-1-11 18:10
+
+要是没有触控板，整机尺寸和重量能降低，卖掉还行
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

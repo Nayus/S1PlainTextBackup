@@ -14267,3 +14267,28 @@ z8说的音宝像三次元山田符合动物朋友xp该不会是真的吧，怎�
 
 女女战斗番，是被砍掉的Mujica舞台剧吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜苗  
+##### 8844#       发表于 2024-1-12 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63620090&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-11 21:29</a>
+鼓太快了</blockquote>
+唉，木口，xxxx
+能不能换成圣皇啊
+
+*****
+
+####  青叶假司  
+##### 8845#       发表于 2024-1-12 00:17
+
+今天鸡团没有剧场版，明天tv万策尽 再输下去没得输啦
+
+*****
+
+####  NODY  
+##### 8846#       发表于 2024-1-12 00:21
+
+至少鸡不用联动木口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

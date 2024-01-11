@@ -8623,3 +8623,11 @@ uu6.6折优惠秒没？
 
 —— 来自 samsung SM-S9010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KBAC  
+##### 2368#       发表于 2024-1-11 15:26
+
+这下不止任天堂一家，Falcom的Live也因为恐吓信取消了，这帮逼什么时候才能抓起来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

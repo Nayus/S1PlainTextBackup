@@ -13817,3 +13817,16 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 虽然代餐不能当饭吃，但我确实收了两包转天的卡套准备以后用来放母鸡卡的ws卡<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  想喝一点点  
+##### 8804#       发表于 2024-1-11 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612881&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-11 11:22</a>
+
+那當然是友情無價
+
+只要你也是轉天廚，都能和她成為朋友，畢竟我們轉天小圈圈真是太小了  ...</blockquote>
+泪目，可惜我没看转天，当初关注他是因为q娃<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

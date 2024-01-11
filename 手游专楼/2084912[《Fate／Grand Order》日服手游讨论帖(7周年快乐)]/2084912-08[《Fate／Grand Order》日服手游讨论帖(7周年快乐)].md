@@ -3121,3 +3121,17 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 错了，是说向着完结前进，换句话说就是今年肯定不会完</blockquote>
 啊这，那今年还是有可能继续大摆烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 10798#       发表于 2024-1-11 15:30
+
+ 本帖最后由 v22325 于 2024-1-11 15:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63615684&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-11 15:18</a>
+
+啊这，那今年还是有可能继续大摆烂啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年能把奏章出完就不错了，搞不好再给你出个.1.2.3的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过反正这么多年都玩下来了，每年能有一两次写的还不错的剧情放手机里当养老游戏呗。要今年完结关服以后手机里没得玩了还怪不习惯的。
+

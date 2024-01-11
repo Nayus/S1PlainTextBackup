@@ -243,3 +243,17 @@ selen连周表都没了，倒计时了吧
 真的要走了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 我现在真的在怀疑出事故进医院是你虹编的了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IL282  
+##### 2877#       发表于 2024-1-12 04:11
+
+niji en这什么国企养老单位，但凡能来活的员工都给摁死，但凡摆烂的反而能过的衣食无忧
+
+Selen和Pomu这种组织力行动力强的在niji打出知名度又建立一堆业内人脉后，最优解好像还真是2年合同期满自己单飞或跳槽，不然人脉就烂手里（妈的Nina看的太清楚了，第一时间拿人脉变现）
+
+不得不感慨ENNA是现体制下最受益的人，有一技之长但是自闭躺平，这个平台是真让她坐了火箭，同时还能让她能心无旁骛干自己的事
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -225,3 +225,11 @@ selen连周表都没了，倒计时了吧
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TiHaru  
+##### 2875#       发表于 2024-1-11 20:26
+
+つるぴ2.7万，这就是stgr吗
+

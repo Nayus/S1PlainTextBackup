@@ -13673,3 +13673,40 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 約了koyomi畫睦祥，但他太忙感覺趕不上了</blockquote>
 你做得好啊，kym约稿价格多少啊
 
+
+*****
+
+####  御幸一也  
+##### 8791#       发表于 2024-1-11 11:22
+
+ 本帖最后由 御幸一也 于 2024-1-11 11:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612861&amp;ptid=2159415" target="_blank">想喝一点点 发表于 2024-1-11 11:21</a>
+
+你做得好啊，kym约稿价格多少啊</blockquote>
+那當然是友情無價
+
+只要你也是轉天廚，都能和她成為朋友，畢竟我們轉天小圈圈真是太小了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  6030sylar  
+##### 8792#       发表于 2024-1-11 11:23
+
+<img src="https://img.saraba1st.com/forum/202401/11/112335nrknfnjgfrr6wkds.jpg" referrerpolicy="no-referrer">
+
+<strong>0dd602c108eb840d662e75aedaf12e30.jpg</strong> (125.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 11:23 上传
+
+*****
+
+####  Aendst  
+##### 8793#       发表于 2024-1-11 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612836&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-11 11:19</a>
+
+又点进鸡的管官号看了一眼，乌托邦这首歌播放量居然比黑色生日以外的老歌都要高，但angles又变少了，难道乌 ...</blockquote>
+要看时间啊，乌托邦比角早一周,而且是宣动画化后时隔很久才动起来发的第一首，肯定有加成的
+

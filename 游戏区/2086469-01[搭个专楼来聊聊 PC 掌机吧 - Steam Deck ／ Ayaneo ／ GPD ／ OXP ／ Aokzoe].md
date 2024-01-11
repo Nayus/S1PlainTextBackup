@@ -291,3 +291,19 @@ aya要出一个预装stos的机子
 
 —— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  bypass  
+##### 1050#         楼主| 发表于 2024-1-11 11:29
+
+TLOU 15W FSR 质量 ，70+ 帧，感觉还是未来可期的。
+
+<img src="https://img.saraba1st.com/forum/202401/11/112740m5kjokgfjfw41iog.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (294.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 11:27 上传
+

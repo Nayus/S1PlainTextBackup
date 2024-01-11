@@ -862,3 +862,28 @@ Reels 给点关键词，一打开给我硬推了点弱智美国小学生短视�
 
 感觉重复的太多了，而且软件算法和功能远不如抖音。
 
+
+*****
+
+####  hinangel  
+##### 102#       发表于 2024-1-11 11:24
+
+点赞几个美女就推送了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skytales1  
+##### 103#       发表于 2024-1-11 11:29
+
+reels，启动
+
+*****
+
+####  霖岚_  
+##### 104#       发表于 2024-1-11 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63610443&amp;ptid=2167441" target="_blank">4396777 发表于 2024-1-11 05:38</a>
+
+转了一圈reels，发现甚至没有暂停功能，就很弱智</blockquote>
+暂停是长按，不过reels操作起来确实挺反直觉的
+

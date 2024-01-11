@@ -378,3 +378,30 @@ fsr 帧生成现在要怎么弄，Steam os 下 deck 还不到 30 帧</blockquote
 —— 来自 S1Fun</blockquote>
 是，贼像，连按键都超过去了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trow233  
+##### 1058#       发表于 2024-1-11 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63613305&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-11 11:53</a>
+
+是，贼像，连按键都超过去了</blockquote>
+我昨天在贴吧吐槽，怎么连左右小按键的位置都要抄
+
+还被孝子顶回来，说这最符合人体工学设计所以都这么设计，还说微星哪有必要抄华硕
+
+搞不懂了，微星也有孝子啊，还是水军
+
+*****
+
+####  Lisylfn  
+##### 1059#       发表于 2024-1-11 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63606858&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-10 20:37</a>
+
+https://weibo.com/ttarticle/p/show?id=2309404988715738202418
+
+AYANEO NEXT LITE 首次预装 Steam OS 游 ...</blockquote>
+v社现在放出来的官方steamos还没更新到类似holo的程度吧，他这个也是holoiso改吗？那一开始的ayaneo os呢？当时不是信誓旦旦不是holo改吗
+

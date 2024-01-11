@@ -4234,3 +4234,13 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 好消息是按住了手，留了44个付费石开福袋
 
+
+*****
+
+####  FrozenA  
+##### 45920#       发表于 2024-1-11 12:06
+
+剧情里的**雀真是可爱啊
+
+就是希望落地的时候不是剑光炮了（。
+

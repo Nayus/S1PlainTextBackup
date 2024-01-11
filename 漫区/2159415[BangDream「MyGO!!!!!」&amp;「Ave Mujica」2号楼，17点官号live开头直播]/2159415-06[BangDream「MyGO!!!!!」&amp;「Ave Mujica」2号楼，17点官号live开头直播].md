@@ -13556,3 +13556,44 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 這下乾等到1/27了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 8777#       发表于 2024-1-11 10:53
+
+mujica成员生日算公布了吗，总感觉114会完全无事发生连官方祝福都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 8778#       发表于 2024-1-11 10:54
+
+一月中还有holo联动<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  datsno1  
+##### 8779#       发表于 2024-1-11 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612291&amp;ptid=2159415" target="_blank">datsno1 发表于 2024-1-11 10:41</a>
+
+关于做完隔几年放，有个案例，剧偶像</blockquote>
+以及泥潭为什么对于剧本完成这么自信？时间上真的赶得及吗？以及原案很重要吗，逆输入原案不少吧
+
+*****
+
+####  6030sylar  
+##### 8780#       发表于 2024-1-11 10:57
+
+就是最近跟holo走得近我才猜是不是要管人团插队
+
+*****
+
+####  Toki_Ai  
+##### 8781#       发表于 2024-1-11 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人团都说有现实live，那应该是今年插队了，不然明年上半年母鸡卡，推到25下半年怕是黄花菜都凉了
+

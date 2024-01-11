@@ -828,3 +828,21 @@ ins太**了，乱封号，申诉给你+86的手机选择，但是不给你验证
 
 感觉推送算法不行,大部分都是不知道哪转的营销号视频
 
+
+*****
+
+####  3Psm  
+##### 98#       发表于 2024-1-11 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63604400&amp;ptid=2167441" target="_blank">wenhaowu 发表于 2024-1-10 17:06</a>
+
+Reels 给点关键词，一打开给我硬推了点弱智美国小学生短视屏，真下头</blockquote>
+众所周知，美国是个炼铜国家……
+
+*****
+
+####  可鲁  
+##### 99#       发表于 2024-1-11 11:01
+
+来点关键词啊，INS装了还没启动过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

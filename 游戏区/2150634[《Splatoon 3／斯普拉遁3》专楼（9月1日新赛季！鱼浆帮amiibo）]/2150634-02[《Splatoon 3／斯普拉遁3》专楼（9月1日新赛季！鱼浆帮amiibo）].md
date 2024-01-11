@@ -8596,3 +8596,19 @@ uu6.6折优惠秒没？
 
 都Wipeout了害搁大后排射射射射射，鱼是什么减智力道具吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 2366#       发表于 2024-1-11 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609596&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-1-11 00:16</a>
+不要在开放玩鱼，会脑溢血
+
+都Wipeout了害搁大后排射射射射射，鱼是什么减智力道具吗？对面更 ...</blockquote>
+见过XP2900↑拿鱼XP1900↓水平的上位势<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+鱼虎是最混沌，最考验匹配运，最容易让你输得窝火的模式，所以这个月我甚至没玩过一局鱼虎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

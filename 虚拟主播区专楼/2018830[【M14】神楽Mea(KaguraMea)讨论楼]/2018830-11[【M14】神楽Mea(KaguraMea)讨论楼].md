@@ -930,3 +930,20 @@ urucammty加上杏女 这下是真的蹭上了
 又跑去跟职业哥玩LOL了
 [https://www.twitch.tv/kenki521](https://www.twitch.tv/kenki521)
 
+
+*****
+
+####  TiHaru  
+##### 16141#       发表于 2024-1-11 16:56
+
+kenki人很好的，号称单亲家庭收集者
+
+*****
+
+####  往世雷书  
+##### 16142#       发表于 2024-1-11 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

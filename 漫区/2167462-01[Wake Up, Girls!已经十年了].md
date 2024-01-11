@@ -613,3 +613,22 @@ wug珍贵的就是动画里那种透着现实感和地味感的同时，有一�
 Beyond the bottom
 少女交響曲
 
+
+*****
+
+####  13431941181  
+##### 66#       发表于 2024-1-11 18:59
+
+现在还是很喜欢タチアガレ!和少女交響曲这两首曲子
+
+*****
+
+####  魔王Aries  
+##### 67#       发表于 2024-1-11 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63618586&amp;ptid=2167462" target="_blank">魔王Aries 发表于 2024-1-11 18:54</a>
+Beyond the bottom
+少女交響曲</blockquote>
+想起我最开始接触到这个企划还是看她们的ソロイベ…一股地偶感ww
+Beyond the bottom真的是字面意义上的“神曲”，尤其是歌词，堪称普渡众生（不是
+

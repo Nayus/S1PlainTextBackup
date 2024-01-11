@@ -4224,3 +4224,13 @@ wtf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referre
 
 烟哥哥，我们泳装见吧！！
 
+
+*****
+
+####  FrozenA  
+##### 45919#       发表于 2024-1-11 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">50抽没金卡，没出藤乃还是有点遗憾
+
+好消息是按住了手，留了44个付费石开福袋
+

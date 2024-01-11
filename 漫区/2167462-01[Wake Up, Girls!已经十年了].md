@@ -755,3 +755,11 @@ WUG!から10年ということはステ天から10年…なん ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer"> WUG改变了我
 
+
+*****
+
+####  鳥谷真琴  
+##### 79#       发表于 2024-1-11 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">看过第一季，虽然说不上很喜欢，但是有时被人提醒这个声优是参与过wug的，印象上会有一种莫名好感。
+

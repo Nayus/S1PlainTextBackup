@@ -13782,3 +13782,17 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 往好處想，2026年一定有！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  近月  
+##### 8801#       发表于 2024-1-11 13:47
+
+ 本帖最后由 近月 于 2024-1-11 13:51 编辑 
+
+<img src="http://imgse.com/i/pF9ocUU" id="aimg_G4r49" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+利兹与青鸟
+[url=]https://x.com/kkm338/status/1745297593972998262?s=20[/url]
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

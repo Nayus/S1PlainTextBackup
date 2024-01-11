@@ -14241,3 +14241,21 @@ z8说的音宝像三次元山田符合动物朋友xp该不会是真的吧，怎�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  青叶假司  
+##### 8841#       发表于 2024-1-11 23:56
+
+六边形战士的含金量还在上升
+
+*****
+
+####  ddy2811  
+##### 8842#       发表于 2024-1-12 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63619971&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-11 21:15</a>
+
+z8说的音宝像三次元山田符合动物朋友xp该不会是真的吧，怎么聊得这么好 ...</blockquote>
+那干脆把音宝派出去和动物朋友联姻吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

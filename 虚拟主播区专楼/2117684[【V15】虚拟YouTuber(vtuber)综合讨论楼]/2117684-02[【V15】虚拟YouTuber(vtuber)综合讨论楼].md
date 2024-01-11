@@ -215,3 +215,13 @@ niji en应该不久后要跟id kr一个遭遇了
 
 selen什么时候毕业，又被霸凌了
 
+
+*****
+
+####  格林卡罗尔  
+##### 2874#       发表于 2024-1-11 20:09
+
+selen连周表都没了，倒计时了吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

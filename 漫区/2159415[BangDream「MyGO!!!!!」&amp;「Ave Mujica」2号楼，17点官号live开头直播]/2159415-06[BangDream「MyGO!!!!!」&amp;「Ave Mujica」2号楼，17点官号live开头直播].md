@@ -14211,3 +14211,33 @@ z8说的音宝像三次元山田符合动物朋友xp该不会是真的吧，怎�
 
 2024-1-11 22:40 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 8838#       发表于 2024-1-11 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63620821&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-1-11 22:38</a>
+
+绫奈说想写女女战斗动画了</blockquote>
+你是不是在找：刀使巫女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  k1no  
+##### 8839#       发表于 2024-1-11 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63620821&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-1-11 22:38</a>
+
+绫奈说想写女女战斗动画了</blockquote>
+可惜隔壁骨头社的脚本换不得<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 8840#       发表于 2024-1-11 22:48
+
+隔壁少歌飞哥院行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

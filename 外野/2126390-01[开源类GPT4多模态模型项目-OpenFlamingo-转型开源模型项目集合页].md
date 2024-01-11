@@ -24579,3 +24579,33 @@ PixArt-ControlNet生成的更多图像示例
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1175#       发表于 2024-1-12 07:22
+
+ANIM-400K
+
+用于视频自动端到端配音(Automated End-To-End Dubbing)的大规模数据集
+
+github项目主页:https://github.com/davidmchan/Anim400K
+
+互联网作为巨大的内容宝库，其中高达60%的内容是用英语发布的，与全球人口相比形成了鲜明对比，其中全球只有18.8%的人口会说英语，而仅有5.1%的人口将其视为母语，这导致了在线信息获取的严重分化
+
+不幸的是，视频配音的自动化过程，将视频的音轨替换为翻译后的音轨，仍然是一项复杂而具有挑战性的任务，因为需要精确的时间控制(precise timing)、面部动作同步(facial movement synchronization)和韵律匹配(prosody matching)，虽然端到端的配音提供了一种解决方案，但数据稀缺持续阻碍着端到端和基于工作流程的方法相关进展
+
+在这项工作中，介绍了Anim-400K，一个包含超过425000个对齐的日语和英语动画视频片段的综合数据集，支持各种与视频相关的任务，包括自动配音、同声翻译、指导式视频摘要和类型/主题/风格分类(automated dubbing, simultaneous translation, guided video summarization, and genre/theme/style classification)，数据集已公开提供，以供研究目的使用
+
+Anim-400K，被设计为旨在用于视频自动配音，并支持从同声翻译与引导视频摘要到流派/主题/风格分类等多种范围的次要视频任务的新数据集
+
+与自动配音相关的数据集概览
+
+Anim-400K中包含的季/节目、剧集和片段级别的信息概览
+
+Heroes和Anim-400K数据集之间一些自然语言分布差异的概览
+
+Anim-400K数据集中存在的流派和主题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

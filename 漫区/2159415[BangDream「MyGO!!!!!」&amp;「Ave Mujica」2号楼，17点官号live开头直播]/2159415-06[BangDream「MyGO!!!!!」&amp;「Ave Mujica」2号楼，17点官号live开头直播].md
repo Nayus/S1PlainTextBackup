@@ -13436,3 +13436,15 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 <img src="https://p.sda1.dev/15/ab618a8cd2627bd3b84ba2c37de36794/CMP_20240111090134731.jpg" referrerpolicy="no-referrer">只要高尾桑再贴到羊宫酱，c团就能复活，请下命令吧高尾桑
 
+
+*****
+
+####  NODY  
+##### 8767#       发表于 2024-1-11 09:04
+
+ 本帖最后由 NODY 于 2024-1-11 09:05 编辑 
+
+动物朋友去年还在给大鼓发生日视频呢，甚至mygo刚起步没什么水花的时候她反而宣传得还更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但差不多是动画快播完那个时间点开始，她就像和你邦有了什么矛盾一样，从live到日常营业全面在摆，完全看不出以前的活力，你说她是想了个天然呆萌妹人设想养gachi吧，偏偏发表会直接破功，一聊到我心危当场变开朗
+

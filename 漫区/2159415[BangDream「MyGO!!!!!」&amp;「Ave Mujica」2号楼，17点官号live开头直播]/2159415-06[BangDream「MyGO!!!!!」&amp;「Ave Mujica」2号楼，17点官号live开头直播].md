@@ -13949,3 +13949,12 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 2024-1-11 18:01 上传
 
+
+*****
+
+####  Kasroz  
+##### 8816#       发表于 2024-1-11 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63617799&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-11 17:44</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有2d角色，不都是3d角色
+

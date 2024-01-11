@@ -14037,3 +14037,39 @@ MyGO又有一首新歌在录
 
 https://x.com/hanamukes/status/1745383340604002503?s=20<img src="https://p.sda1.dev/15/f51b90b9153730b43c889e9acba74d26/CMP_20240111205537511.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 8824#       发表于 2024-1-11 21:15
+
+z8说的音宝像三次元山田符合动物朋友xp该不会是真的吧，怎么聊得这么好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 8825#       发表于 2024-1-11 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/11/211838mdsaydapafawfn59.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (178.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 21:18 上传
+
+*****
+
+####  QuattroVageena  
+##### 8826#       发表于 2024-1-11 21:22
+
+<img src="https://img.saraba1st.com/forum/202401/11/212209gidyd0uxix93dux9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (362.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 21:22 上传
+

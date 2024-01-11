@@ -654,3 +654,18 @@ Beyond the bottom真的是字面意义上的“神曲”，尤其是歌词，堪
 
 剧场1+TV1+剧场2上下，其他不愿承认<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 70#       发表于 2024-1-11 21:16
+
+[https://twitter.com/cunepero/status/1745153573862977579](https://twitter.com/cunepero/status/1745153573862977579)
+
+WUG!から10年ということはステ天から10年…なんかしたい気持ちだけはある
+
+画像は当時誰かスタッフに渡すお酒のラベル用に描いた一ノ瀬咲のラフ
+
+露出度はSR+
+<img src="https://p.sda1.dev/15/bb2b3f7ccfc847c6a53121b06e915672/20240111_211613.jpg" referrerpolicy="no-referrer">
+

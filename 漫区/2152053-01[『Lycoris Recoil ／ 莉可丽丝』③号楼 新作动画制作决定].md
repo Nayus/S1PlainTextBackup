@@ -18700,3 +18700,33 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 2024-1-11 23:40 上传
 
+
+*****
+
+####  bakabaka999  
+##### 1448#       发表于 2024-1-12 01:09
+
+ 本帖最后由 bakabaka999 于 2024-1-12 01:12 编辑 
+
+虽然不是特别新闻
+
+リコリス・リコイル only 同人展已经有 10000+ 摊位申请。
+
+计划场地是东京 Big Sight 东 1-8 馆，摊位数 14000。
+
+官方链接：[https://www.akaboo.jp/event/item/20197426.html](https://www.akaboo.jp/event/item/20197426.html)
+
+这是什么概念呢？拿刚结束的 C103 做比较，C103 同人展位使用了东 1-7 馆以及西 1-2 馆，两日摊位数共2万6千，平均一天也只有1万3千摊。蒜凭一己之力就能达到甚至超越 CM 一天的水平。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过我真的好奇哪来的 1w+ 画蒜的老师，截止目前 pixiv 上有 #リコリス・リコイル tag 的也只有 27184 张图，能出本的我们按 12p 一半图一半草稿除去封面封底算也应该至少画了 5 张，更不要说大量的 AI 作画。
+
+很可怕吗，真的很可怕<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/12/005110sn11dda12ojofpaa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (223.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 00:51 上传
+

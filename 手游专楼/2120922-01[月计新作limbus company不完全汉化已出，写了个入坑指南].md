@@ -277,3 +277,13 @@ syl 瓦夜之后离新版本更新就只有八周时间了
 
 然后大肉派那播音200才井出来
 
+
+*****
+
+####  erratic璃月  
+##### 508#       发表于 2024-1-11 16:18
+
+ 本帖最后由 erratic璃月 于 2024-1-11 16:20 编辑 
+
+如果有人活动过着困难可以试着用花箱做队长，我魔弹队长凹了6遍没打满，花箱队长一遍就打满了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

@@ -13462,3 +13462,17 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 2024-1-11 09:29 上传
 
+
+*****
+
+####  nebulanoby  
+##### 8769#       发表于 2024-1-11 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63611103&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-11 09:04</a>
+动物朋友去年还在给大鼓发生日视频呢，甚至mygo刚起步没什么水花的时候她反而宣传得还更多
+
+但差不多 ...</blockquote>
+真相是独角兽和羊组成了动物朋友联盟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3168,3 +3168,16 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 突然把修炼场全开了，但是没有减半
 
+
+*****
+
+####  UNISONIA  
+##### 10803#       发表于 2024-1-11 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63616541&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-1-11 16:19</a>
+
+从打完奏章1之后我就不认为奏章只有三章，奏章1打完就给开个小丑技能盘，还剩7个ex职业跟这干瞪眼呢 ...</blockquote>
+菌皇自己提过了奏章只有3+α（α就是访谈里打哑谜的那个Foreigner活动，不是算奏章的通常规格）
+
+别的估计有个Class是终章才会开（访谈也暗示了，应该是指Shielder），此外奏II大概会解禁不止一个Class
+

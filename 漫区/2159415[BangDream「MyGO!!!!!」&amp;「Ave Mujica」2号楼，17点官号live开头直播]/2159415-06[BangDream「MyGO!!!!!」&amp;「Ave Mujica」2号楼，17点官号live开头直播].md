@@ -13862,3 +13862,18 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 武士道现在的操作颇有一种嫌这波钱赚得太多的味道，鸡狗问题就不说了，还全方位背刺了难得拉到的中华炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kasroz  
+##### 8808#       发表于 2024-1-11 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坚持因为工艺蛋退出导致企划内部混乱论
+
+*****
+
+####  QuattroVageena  
+##### 8809#       发表于 2024-1-11 16:34
+
+说到中华炮，这次bd 武士道官网没法用world shopping了，我还是找代购的，明明上次少歌设定集就可以<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

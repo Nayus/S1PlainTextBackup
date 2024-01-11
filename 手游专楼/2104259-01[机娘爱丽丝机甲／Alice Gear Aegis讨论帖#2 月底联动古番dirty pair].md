@@ -14,3 +14,11 @@
 
 看这次生放请的声优怕是不是又要和创彩勾肩带背了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 868#       发表于 2024-1-11 12:01
+
+艾玛前辈赶紧实装呀
+

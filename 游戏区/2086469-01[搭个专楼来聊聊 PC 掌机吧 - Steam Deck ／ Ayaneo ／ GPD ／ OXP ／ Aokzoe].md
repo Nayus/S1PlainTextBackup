@@ -353,3 +353,28 @@ fsr 帧生成现在要怎么弄，Steam os 下 deck 还不到 30 帧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  bypass  
+##### 1056#         楼主| 发表于 2024-1-11 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63613201&amp;ptid=2086469" target="_blank">猫不萌 发表于 2024-1-11 11:44</a>
+
+fsr 帧生成现在要怎么弄，Steam os 下 deck 还不到 30 帧</blockquote>
+[https://www.patreon.com/LukeFZ/posts](https://www.patreon.com/LukeFZ/posts)
+
+现在应该赞助才能拿到开发中的 mod，后续听说开发完成了会免费。不过经常能看到有人拿到之后分享的，可以找找看。
+
+*****
+
+####  bypass  
+##### 1057#         楼主| 发表于 2024-1-11 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63613221&amp;ptid=2086469" target="_blank">罗克萨斯 发表于 2024-1-11 11:46</a>
+
+微星出的这个怎么和ROG的很像，都是公模机么？
+
+—— 来自 S1Fun</blockquote>
+是，贼像，连按键都超过去了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -281,3 +281,13 @@ aya要出一个预装stos的机子
 
 这个大哥发布了一堆掌机 + FSR 帧生成的视频，有兴趣的可以去看看。
 
+
+*****
+
+####  luffyzhou  
+##### 1049#       发表于 2024-1-11 11:22
+
+昨天在B站评论里看到有人说next lite用的是梵高，也不知真的假的
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

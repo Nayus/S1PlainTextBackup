@@ -13632,3 +13632,44 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 約了koyomi畫睦祥，但他太忙感覺趕不上了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 8786#       发表于 2024-1-11 11:13
+
+管人团今年也该进入宣传期了，不过认真说给管人团写动画，别说这种出道没多久的，就算holo的星船樱兔也是地狱难度，另外柿本他们勉强做了个邦邦三季水平的动画出来又能给管人团带来多少帮助呢，毕竟不可能照着动画设定播一辈子
+
+*****
+
+####  NODY  
+##### 8787#       发表于 2024-1-11 11:13
+
+ 本帖最后由 NODY 于 2024-1-11 11:16 编辑 
+
+这时候放试听算早的了，我记得mygo只在1st和2nd之前放了两首歌的一小段试听，live后只放了现场版，又过了几个月一单发售了才放的正式版完整pv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8788#       发表于 2024-1-11 11:19
+
+又点进鸡的管官号看了一眼，乌托邦这首歌播放量居然比黑色生日以外的老歌都要高，但angles又变少了，难道乌托邦其实很符合日本人和老外的喜好？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 8789#       发表于 2024-1-11 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乌托邦泥漏评价虽然很低，我还挺喜欢的，loop了很多遍
+
+*****
+
+####  想喝一点点  
+##### 8790#       发表于 2024-1-11 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612700&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-11 11:10</a>
+
+約了koyomi畫睦祥，但他太忙感覺趕不上了</blockquote>
+你做得好啊，kym约稿价格多少啊
+

@@ -465,3 +465,16 @@ v社现在放出来的官方steamos还没更新到类似holo的程度吧，他�
 
 不过 holoiso 看上去现在也没多少活跃开发的样子.
 
+
+*****
+
+####  bypass  
+##### 1065#         楼主| 发表于 2024-1-11 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63620163&amp;ptid=2086469" target="_blank">5long 发表于 2024-1-11 21:36</a>
+
+官宣了, 就是 holoiso 基础上改的
+
+https://www.gamingonlinux.com/2024/01/ayaneo-next-lite-handheld-an ...</blockquote>
+笑了，我以为 Aya 真的能找到 V 社做适配。
+

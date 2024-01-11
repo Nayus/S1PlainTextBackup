@@ -13854,3 +13854,11 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 —— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NODY  
+##### 8807#       发表于 2024-1-11 16:26
+
+武士道现在的操作颇有一种嫌这波钱赚得太多的味道，鸡狗问题就不说了，还全方位背刺了难得拉到的中华炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

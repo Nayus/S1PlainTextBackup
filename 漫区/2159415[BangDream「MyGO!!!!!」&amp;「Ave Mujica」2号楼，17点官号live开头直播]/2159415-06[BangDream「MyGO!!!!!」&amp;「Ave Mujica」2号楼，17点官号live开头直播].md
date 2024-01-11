@@ -13546,3 +13546,13 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 我粗略看了一遍，关于你说的那段：</blockquote>
 关于做完隔几年放，有个案例，剧偶像
 
+
+*****
+
+####  御幸一也  
+##### 8776#       发表于 2024-1-11 10:46
+
+怎麼還沒有預告，不會1/14沒新歌了吧
+
+這下乾等到1/27了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+

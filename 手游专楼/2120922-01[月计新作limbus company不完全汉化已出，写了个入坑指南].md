@@ -265,3 +265,15 @@ syl 瓦夜之后离新版本更新就只有八周时间了
 
 欧了10发奥提斯，有点馋播音员
 
+
+*****
+
+####  Yuzutea  
+##### 507#       发表于 2024-1-11 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">畜生啊
+
+40抽就出了马库库播音和魔弹人格
+
+然后大肉派那播音200才井出来
+

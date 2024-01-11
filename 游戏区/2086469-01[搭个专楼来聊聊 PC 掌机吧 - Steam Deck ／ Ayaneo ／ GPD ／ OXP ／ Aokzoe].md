@@ -405,3 +405,16 @@ https://weibo.com/ttarticle/p/show?id=2309404988715738202418
 AYANEO NEXT LITE 首次预装 Steam OS 游 ...</blockquote>
 v社现在放出来的官方steamos还没更新到类似holo的程度吧，他这个也是holoiso改吗？那一开始的ayaneo os呢？当时不是信誓旦旦不是holo改吗
 
+
+*****
+
+####  bypass  
+##### 1060#         楼主| 发表于 2024-1-11 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612878&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2024-1-11 11:22</a>
+
+昨天在B站评论里看到有人说next lite用的是梵高，也不知真的假的
+
+—— 来自 samsung SM-F9460, Android 14 ...</blockquote>
+蛤？这是要自己组一个 Steam Deck 呀这是。
+

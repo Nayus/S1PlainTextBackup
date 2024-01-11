@@ -3101,3 +3101,23 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 不会啊，我记得新年直播的时候yls说今年2.0完结（不排除主播口译错误的可能） ...</blockquote>
 错了，是说向着完结前进，换句话说就是今年肯定不会完
 
+
+*****
+
+####  exiaexa  
+##### 10796#       发表于 2024-1-11 15:16
+
+登录多漏几次就会放弃治疗了
+记得多珍惜现在还会纠结断签的自己
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 10797#       发表于 2024-1-11 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63615072&amp;ptid=2084912" target="_blank">yangun22 发表于 2024-1-11 14:29</a>
+
+错了，是说向着完结前进，换句话说就是今年肯定不会完</blockquote>
+啊这，那今年还是有可能继续大摆烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

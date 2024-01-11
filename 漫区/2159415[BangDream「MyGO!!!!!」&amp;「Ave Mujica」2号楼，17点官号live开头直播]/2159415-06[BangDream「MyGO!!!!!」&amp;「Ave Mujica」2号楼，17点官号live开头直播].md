@@ -13809,3 +13809,11 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  笋干爆炸碱  
+##### 8803#       发表于 2024-1-11 15:22
+
+虽然代餐不能当饭吃，但我确实收了两包转天的卡套准备以后用来放母鸡卡的ws卡<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

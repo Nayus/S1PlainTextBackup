@@ -687,3 +687,14 @@ WUG!から10年ということはステ天から10年…なんかしたい気持
 
 感觉阿宽都成这样了有的人还是做不到完全厌恶他，除了他跟京阿尼的爱恨纠葛外大概就是因为这片吧。反而阿宽独立后大概算得上唯一有点火的神薙都没人提了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeonsCat  
+##### 72#       发表于 2024-1-11 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63619917&amp;ptid=2167462" target="_blank">hlazd 发表于 2024-1-11 21:10</a>
+
+剧场1+TV1+剧场2上下，其他不愿承认</blockquote>
+当年还感谢蟹大组织了。
+

@@ -3033,3 +3033,11 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 你没反应过来这就是贴吧每天上演的那套哭弱理论吗</blockquote>
 不如大姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku11  
+##### 10789#       发表于 2024-1-11 09:19
+
+这种fsr联动的应该会进福袋的吧？兽尼那种应该只是特例。
+

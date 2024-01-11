@@ -669,3 +669,21 @@ WUG!から10年ということはステ天から10年…なんかしたい気持
 露出度はSR+
 <img src="https://p.sda1.dev/15/bb2b3f7ccfc847c6a53121b06e915672/20240111_211613.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MONSTERS  
+##### 71#       发表于 2024-1-11 21:34
+
+<img src="https://img.saraba1st.com/forum/202401/11/213448m9hh9u5z59seusnj.jpg" referrerpolicy="no-referrer">
+
+<strong>0e7bec9011.jpg</strong> (49.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 21:34 上传
+
+有人印象深的是下野那个角色张口闭眼的图的吗，在国外都成表情包了。初见的时候没法和这片的人设联系在一起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉阿宽都成这样了有的人还是做不到完全厌恶他，除了他跟京阿尼的爱恨纠葛外大概就是因为这片吧。反而阿宽独立后大概算得上唯一有点火的神薙都没人提了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

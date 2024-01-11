@@ -451,3 +451,17 @@ v社现在放出来的官方steamos还没更新到类似holo的程度吧，他�
 
 —— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  5long  
+##### 1064#       发表于 2024-1-11 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63613570&amp;ptid=2086469" target="_blank">Lisylfn 发表于 2024-1-11 12:11</a>
+
+v社现在放出来的官方steamos还没更新到类似holo的程度吧，他这个也是holoiso改吗？那一开始的ayaneo os呢 ...</blockquote>
+官宣了, 就是 holoiso 基础上改的
+[https://www.gamingonlinux.com/20 ... with-steamos-linux/](https://www.gamingonlinux.com/2024/01/ayaneo-next-lite-handheld-announced-with-steamos-linux/)
+
+不过 holoiso 看上去现在也没多少活跃开发的样子.
+

@@ -13877,3 +13877,27 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 说到中华炮，这次bd 武士道官网没法用world shopping了，我还是找代购的，明明上次少歌设定集就可以<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 8810#       发表于 2024-1-11 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63616723&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-11 16:34</a>
+说到中华炮，这次bd 武士道官网没法用world shopping了，我还是找代购的，明明上次少歌设定集就可以 ...</blockquote>
+是不是因为bd啊，之前京shop买纸质品就没问题，bd就不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  QuattroVageena  
+##### 8811#       发表于 2024-1-11 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63616867&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-1-11 16:43</a>
+是不是因为bd啊，之前京shop买纸质品就没问题，bd就不行
+
+—— 来自 vivo V2227A, Android 14上的 ...</blockquote>
+上次我还买了点立牌的
+而且这次直接没world shopping的选项…
+

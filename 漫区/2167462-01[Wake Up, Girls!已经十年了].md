@@ -803,3 +803,13 @@ wug珍贵的就是动画里那种透着现实感和地味感的同时，有一�
 
 收藏得剧场1+2上+2下，没
 
+
+*****
+
+####  t222  
+##### 84#       发表于 2024-1-12 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63609512&amp;ptid=2167462" target="_blank">ddy2811 发表于 2024-1-11 00:06</a>
+那也只是那时候的表现，没法确定那是不是本性啊</blockquote>
+很多时候很难说哪个才是营业模式，或者说都是营业模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看羊贵妃就是了，以前奔奔跳跳现在整个像是ptsd一样
+

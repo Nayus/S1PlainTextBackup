@@ -590,3 +590,26 @@ wug珍贵的就是动画里那种透着现实感和地味感的同时，有一�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63613281&amp;ptid=2167462" target="_blank"> Goisdust 发表于 2024-1-11 11:51</a> 我倒是觉得动画从头到尾都没什么亮点，作画更是惨不忍睹。但是好曲子真的层出不穷，而且7个声优不管是节目做效果还是唱跳表演，都比现在台面上的声优团强的不是一点，不如说81和田中秀和功劳更大 </blockquote>
 哪些曲子比较好？来自: iPhone客户端
 
+
+*****
+
+####  死线  
+##### 64#       发表于 2024-1-11 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63617759&amp;ptid=2167462" target="_blank">Renes 发表于 2024-1-11 17:41</a>
+
+wug珍贵的就是动画里那种透着现实感和地味感的同时，有一群一直保持善良和纯粹的女孩子们。这点和世界观就 ...</blockquote>
+只看过剧场和TV1——几个丫头就是偶像生态圈的最底层，丝毫没有大红大紫一步登天的可能，地区预选赛的优胜已经是最高光的时刻了……
+
+总结下来就是在阿宽执掌时期，WUG是一部底层偶像动画，和那种“隐藏有爆种实力”的偶像动画相比，这是一部踏踏实实描写底层卢瑟偶像的半写实派动画……
+
+*****
+
+####  魔王Aries  
+##### 65#       发表于 2024-1-11 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63617800&amp;ptid=2167462" target="_blank">cyguds 发表于 2024-1-11 17:44</a>
+哪些曲子比较好？</blockquote>
+Beyond the bottom
+少女交響曲
+

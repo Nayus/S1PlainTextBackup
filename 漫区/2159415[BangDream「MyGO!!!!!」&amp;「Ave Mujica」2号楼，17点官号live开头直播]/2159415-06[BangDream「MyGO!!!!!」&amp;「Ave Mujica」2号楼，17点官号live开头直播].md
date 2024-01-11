@@ -13909,3 +13909,15 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 现在看又有了，还是单买bd<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 8813#       发表于 2024-1-11 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63617043&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-11 16:54</a>
+现在看又有了，还是单买bd</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">那回来京shop我也多试几次能不能给弄bd
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

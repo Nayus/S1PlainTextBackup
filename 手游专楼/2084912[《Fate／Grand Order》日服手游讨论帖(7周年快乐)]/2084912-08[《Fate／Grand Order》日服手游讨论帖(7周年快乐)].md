@@ -3090,3 +3090,14 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 这游戏真是越来越无聊了，看这架势奏章还得拖两年，真的恶心</blockquote>
 不会啊，我记得新年直播的时候yls说今年2.0完结（不排除主播口译错误的可能）<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangun22  
+##### 10795#       发表于 2024-1-11 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63614011&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-11 12:49</a>
+
+不会啊，我记得新年直播的时候yls说今年2.0完结（不排除主播口译错误的可能） ...</blockquote>
+错了，是说向着完结前进，换句话说就是今年肯定不会完
+

@@ -13796,3 +13796,16 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 —— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  nebulanoby  
+##### 8802#       发表于 2024-1-11 14:27
+
+ 本帖最后由 nebulanoby 于 2024-1-11 14:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63614388&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-11 13:25</a>
+往好處想，2026年一定有！</blockquote>
+只要ガルパ在25年关服，就不用怕看到鬼图辣<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">（智将）
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

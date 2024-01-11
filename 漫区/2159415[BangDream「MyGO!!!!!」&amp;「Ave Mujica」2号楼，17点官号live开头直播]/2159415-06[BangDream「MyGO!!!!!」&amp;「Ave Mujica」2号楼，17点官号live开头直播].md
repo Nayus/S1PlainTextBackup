@@ -13958,3 +13958,41 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63617799&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-11 17:44</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有2d角色，不都是3d角色
 
+
+*****
+
+####  SakuraのOrigami  
+##### 8817#       发表于 2024-1-11 19:53
+
+<img src="https://img.saraba1st.com/forum/202401/11/195328fa8w16upeuu6us2m.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240111195319.png</strong> (52.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 19:53 上传
+
+MyGO又有一首新歌在录
+
+（目前似乎有4首新歌在录制当中）
+
+*****
+
+####  江戸前ルナ  
+##### 8818#       发表于 2024-1-11 20:01
+
+綾奈ゆにこ
+
+@unicococ 5分
+
+女女バトルアニメ書きたいですね…
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时是XHIME还是高达？
+
+*****
+
+####  NODY  
+##### 8819#       发表于 2024-1-11 20:02
+
+上次说了mygo有几首新歌，现在看可能有两首是我心危翻唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -13502,3 +13502,24 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 但差不多 ...</blockquote>
 原來是白羊突變黑羊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 8772#       发表于 2024-1-11 10:14
+
+<img src="https://img.saraba1st.com/forum/202401/11/101412gh9boded9ezq5w7h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0564.jpeg</strong> (246.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-11 10:14 上传
+
+*****
+
+####  skives  
+##### 8773#       发表于 2024-1-11 10:21
+
+羊：过去软弱的我已经死了
+

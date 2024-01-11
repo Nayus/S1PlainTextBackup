@@ -3041,3 +3041,30 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 这种fsr联动的应该会进福袋的吧？兽尼那种应该只是特例。
 
+
+*****
+
+####  UNISONIA  
+##### 10790#       发表于 2024-1-11 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63611279&amp;ptid=2084912" target="_blank">cckuku11 发表于 2024-1-11 09:19</a>
+
+这种fsr联动的应该会进福袋的吧？兽尼那种应该只是特例。</blockquote>
+个人觉得德拉科不进应该是因为Beast而不是因为联动角
+
+虽然可能它确实有签特殊的分成协议导致不进（尤其是去年你游边角料访谈里还特地说了一下查理曼的事情）
+
+*****
+
+####  cenhr  
+##### 10791#       发表于 2024-1-11 10:17
+
+昨天忘记登入了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 10792#       发表于 2024-1-11 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一次没登就是偶尔不登甚至退坑的开始
+

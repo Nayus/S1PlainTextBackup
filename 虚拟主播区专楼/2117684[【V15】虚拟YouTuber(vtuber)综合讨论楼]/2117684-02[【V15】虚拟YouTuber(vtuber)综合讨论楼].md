@@ -189,3 +189,21 @@ niji en应该不久后要跟id kr一个遭遇了
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  killbillwillil  
+##### 2871#       发表于 2024-1-11 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">阿望你又在和别的男人pex哦
+
+*****
+
+####  自宅警备员  
+##### 2872#       发表于 2024-1-11 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63209818&amp;ptid=2117684" target="_blank">losstoY 发表于 2023-12-3 13:24</a>
+
+我是主要看himari的，只是觉得卖身给这种企业太憋屈了。本来作为个人势的时候也小有名气了。我看网友都是 ...</blockquote>
+音泉的广播也顺利继承下来了，就差一张皮就满血转生了
+

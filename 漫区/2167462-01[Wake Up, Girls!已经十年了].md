@@ -632,3 +632,15 @@ Beyond the bottom
 想起我最开始接触到这个企划还是看她们的ソロイベ…一股地偶感ww
 Beyond the bottom真的是字面意义上的“神曲”，尤其是歌词，堪称普渡众生（不是
 
+
+*****
+
+####  101stroad  
+##### 68#       发表于 2024-1-11 19:34
+
+ 本帖最后由 101stroad 于 2024-1-11 19:41 编辑 
+
+第一部还挺好看的，之前没追过偶像番，跟预想的偶像番不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+剧场版还在收藏夹里，原来青山吉能那么早吗，从btr才注意到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

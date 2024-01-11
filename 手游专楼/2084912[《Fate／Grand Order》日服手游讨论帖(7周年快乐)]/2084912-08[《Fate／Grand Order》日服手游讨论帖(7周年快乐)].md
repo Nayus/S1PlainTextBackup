@@ -3020,3 +3020,16 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 后面アザナシ在Notes社本家的刊物（例如FSN十五周年场刊）和废狗的刊物就再也没出talk过，是不是还在职都难说
 
+
+*****
+
+####  destroyworlder  
+##### 10788#       发表于 2024-1-11 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63608577&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-10 22:54</a>
+
+跟卡强不强有啥关系
+
+你没反应过来这就是贴吧每天上演的那套哭弱理论吗</blockquote>
+不如大姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

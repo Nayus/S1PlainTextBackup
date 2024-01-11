@@ -13710,3 +13710,15 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 又点进鸡的管官号看了一眼，乌托邦这首歌播放量居然比黑色生日以外的老歌都要高，但angles又变少了，难道乌 ...</blockquote>
 要看时间啊，乌托邦比角早一周,而且是宣动画化后时隔很久才动起来发的第一首，肯定有加成的
 
+
+*****
+
+####  蒜苗  
+##### 8794#       发表于 2024-1-11 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63611103&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-11 09:04</a>
+动物朋友去年还在给大鼓发生日视频呢，甚至mygo刚起步没什么水花的时候她反而宣传得还更多
+
+但差不多 ...</blockquote>
+懂了，小羊和独角兽一伙的，本来要联合施压wsd，没想到失败了，于是两边在宣传上都开始摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

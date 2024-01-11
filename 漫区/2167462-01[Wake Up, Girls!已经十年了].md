@@ -724,3 +724,18 @@ WUG!から10年ということはステ天から10年…なんかしたい気持
 
 [https://www.bilibili.com/video/av459418542](https://www.bilibili.com/video/BV1f5411N7vH/)/
 
+
+*****
+
+####  Goisdust  
+##### 76#       发表于 2024-1-11 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63619981&amp;ptid=2167462" target="_blank">Piano-Forest 发表于 2024-1-11 21:16</a>
+
+https://twitter.com/cunepero/status/1745153573862977579
+
+WUG!から10年ということはステ天から10年…なん ...</blockquote>
+手游泪目了
+
+当年在宿舍里嗯烂按键就为了竟标一张游戏里的蓝里SR，到现在都还记得
+

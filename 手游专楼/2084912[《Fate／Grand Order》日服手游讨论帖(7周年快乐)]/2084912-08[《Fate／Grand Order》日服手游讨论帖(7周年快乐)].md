@@ -3006,3 +3006,17 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 提妈补到4宝感觉打90★挺舒服的。
 
+
+*****
+
+####  UNISONIA  
+##### 10787#       发表于 2024-1-11 08:34
+
+ 本帖最后由 UNISONIA 于 2024-1-11 08:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63606963&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2024-1-10 20:51</a>
+
+wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新拐了，这些拐该抽都抽了 ...</blockquote>
+现在看起来アザナシ设计完第一批指令纹章（三周年那会儿）后就不干了，现在的wys是石仓光头冒充的
+
+后面アザナシ在Notes社本家的刊物（例如FSN十五周年场刊）和废狗的刊物就再也没出talk过，是不是还在职都难说
+

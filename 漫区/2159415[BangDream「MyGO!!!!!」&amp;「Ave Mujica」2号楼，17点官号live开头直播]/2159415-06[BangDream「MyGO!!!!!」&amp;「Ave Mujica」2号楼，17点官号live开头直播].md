@@ -13387,3 +13387,15 @@ hhw和pp的新歌都怪好听的，风格也和以前相比有突破
 
 立人设吧，羊宫1.0看起来就挺精明，转生后哪能性情大变的
 
+
+*****
+
+####  御幸一也  
+##### 8763#       发表于 2024-1-11 08:42
+
+樓友們要愛信等，說不定羊宮私底下祝賀過青木了，等狗團的人爆吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+畢竟羊宮在轉天可是會記住石見生日，轉天慶功宴的時候還特地去打招呼送生日禮物，把石見萌暈了，在廣播裡直呼羊宮好乖好用心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然後石見還回禮請她吃了一頓飯，羊宮不說沒關係，石見會說，總不能她和狗團的關係比不過在轉天的石見吧，尤菲甚至不是蕾妮的CP
+

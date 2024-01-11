@@ -13597,3 +13597,38 @@ mujica成员生日算公布了吗，总感觉114会完全无事发生连官方�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人团都说有现实live，那应该是今年插队了，不然明年上半年母鸡卡，推到25下半年怕是黄花菜都凉了
 
+
+*****
+
+####  御幸一也  
+##### 8782#       发表于 2024-1-11 11:05
+
+管人插隊是貸款，但劇場版插隊是看得到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎麼了，話題要輪迴了嗎，明明樓友都調理完了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 8783#       发表于 2024-1-11 11:05
+
+<blockquote>御幸一也 发表于 2024-1-11 10:46
+怎麼還沒有預告，不會1/14沒新歌了吧
+
+這下乾等到1/27了</blockquote>
+4首歌就变迷你专辑了，应该就3首歌，14号和21号总得空一个
+
+*****
+
+####  笋干爆炸碱  
+##### 8784#       发表于 2024-1-11 11:05
+
+要是1月14号无事发生的话，我会心碎的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8785#       发表于 2024-1-11 11:10
+
+約了koyomi畫睦祥，但他太忙感覺趕不上了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

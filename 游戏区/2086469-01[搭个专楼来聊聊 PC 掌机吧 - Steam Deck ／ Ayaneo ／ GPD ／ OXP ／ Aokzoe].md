@@ -271,3 +271,13 @@ AYANEO NEXT LITE 首次预装 Steam OS 游戏系统 <img src="https://static.sar
 aya要出一个预装stos的机子
 目前win掌机刷stos的效果如何？
 
+
+*****
+
+####  bypass  
+##### 1048#         楼主| 发表于 2024-1-11 11:09
+
+[https://www.reddit.com/user/LunarBlink/](https://www.reddit.com/user/LunarBlink/)
+
+这个大哥发布了一堆掌机 + FSR 帧生成的视频，有兴趣的可以去看看。
+

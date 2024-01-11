@@ -24400,3 +24400,182 @@ animagine-xl
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1174#       发表于 2024-1-12 06:26
+
+ 本帖最后由 Machinery 于 2024-1-12 06:27 编辑 
+
+PIXART-δ
+
+使用潜在一致性模型进行快速且可控的图像生成
+
+项目主页:https://pixart-alpha.github.io/
+
+github项目代码仓库:https://github.com/PixArt-alpha/PixArt-alpha
+
+演示demo:https://huggingface.co/spaces/PixArt-alpha/PixArt-LCM
+
+PIXART-δ，一种文本到图像合成框架，将潜在一致性模型(LCM/Latent Consistency Model)和ControlNet集成到了先进的PIXART-α模型中，同时以其高效的训练过程生成1024px分辨率的高质量图像能力而闻名
+
+在PIXART-δ中集成LCM显著加快了推理速度，使之仅需2-4步即可生成高质量图像，同时，PIXART-δ在生成1024×1024像素图像方面取得了突破性进展，仅需0.5秒，相比PIXART-α快了近7倍，此外，PIXART-δ的设计使其可以通过仅在单张32GB V100 GPU上花费一天即可高效训练
+
+通过8位(8-bit)推理能力，PIXART-δ可以在8GB GPU显存限制下合成1024px图像，极大地提高了其可用性和易用性，此外，引入的类ControlNet模块使得对文本到图像扩散模型进行精细控制成为可能
+
+通过引入一种专为Transformer量身定制的ControlNet-Transformer架构，实现了显式可控性的高质量图像生成，作为一种SOTA开源图像生成模型，PIXART-δ为Stable Diffusion模型系列提供了有希望的替代方案，并在文本到图像合成领域做出了重大贡献
+
+<img src="https://img.saraba1st.com/forum/202401/12/062459vc98z599oaxuutbx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-061927__01.jpg</strong> (313.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:24 上传
+
+PIXART-δ的训练流程，图的上半部分提供了训练过程的高级概述，描述了在特定ODE轨迹上的噪声采样和去噪的连续阶段，映射线上标有序列号，以清楚地排序这些步骤的顺序
+
+下半部分深入研究了预训练(教师)模型和学生模型的复杂作用，揭示了它们在上半部分的训练过程中各自的功能，并标记了相应的序列号，以便于轻松交叉引用
+
+<img src="https://img.saraba1st.com/forum/202401/12/062509ytypz9thbb0p8sph.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-061941__01.jpg</strong> (285.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:25 上传
+
+对各种无分类器引导尺度(ω)策略进行的FID和CLIP分数消融实验，以及它们对训练中对蒸馏收敛性的影响
+
+<img src="https://img.saraba1st.com/forum/202401/12/062516t1ar1ayn0npp1ree.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-061958__01.jpg</strong> (184.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:25 上传
+
+PIXART-δ和LCM之间的βt实例化、噪声调度功能以及相应的logSNR
+
+<img src="https://img.saraba1st.com/forum/202401/12/062524jmzbilirr0yzhayz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062009__01.jpg</strong> (111 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:25 上传
+
+在PIXART-δ和Stable Diffusion模型之间的LCM训练设置示意图
+(*表示Stable Diffusion Dreamshaper-v7微调版本)
+
+<img src="https://img.saraba1st.com/forum/202401/12/062529gde6eggi2hlke7nr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062009__02.jpg</strong> (104.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:25 上传
+
+在各种设备上实现的生成速度示例，这些测试都基于1024×1024分辨率，所有情况下批大小都为1
+
+<img src="https://img.saraba1st.com/forum/202401/12/062538mcyudhjkzcj1isxa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062023__01.jpg</strong> (297.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:25 上传
+
+PIXART-δ集成了ControlNet
+
+(b)ControlNet-UNet，基本blocks被分为“编码器”和“解码器”阶段(“encoder” and “decoder” stages)，ControlNet结构被应用于PIXART-δ的每个编码器层次，并通过skip-connections将输出连接到解码器阶段
+
+(c):ControlNet-Transformer，ControlNet被应用于前几个blocks，每个blocks的输出添加到相应的冻结blocks的输出中，作为下一个冻结blocks的输入
+
+<img src="https://img.saraba1st.com/forum/202401/12/062544ylv60ez833lvrv0t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062035__01.jpg</strong> (806.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:25 上传
+
+ControlNet-UNet和ControlNet-Transformer的消融实验，ControlNet-Transformer产生的结果比ControlNet-UNet好得多，ControlNet-Transformer的可控性随着复制blocks数量的增加而增加
+
+<img src="https://img.saraba1st.com/forum/202401/12/062552fepj1qggfevfx39g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062057__01.jpg</strong> (436.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:25 上传
+
+PixArt-ControlNet训练中的“突然收敛(Sudden Converge)”示例，经验性地观察到这在1000次迭代之前发生
+
+<img src="https://img.saraba1st.com/forum/202401/12/062558klduca2zrb1uduuj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062120__01.jpg</strong> (489.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:25 上传
+
+生成输出的示例，在上半部分，对比的是PIXART-δ和SDXL-LCM，采样步骤为4步，在下半部分，对比了PIXART-δ和PIXART-α(教师模型，使用14步的DPM-Solver)
+
+<img src="https://img.saraba1st.com/forum/202401/12/062616cqz76cccttkmljm7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062138__01.jpg</strong> (404.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:26 上传
+
+由PIXART-δ生成的4步推理样本，在使用全部批大小(total batch size)为24的2个V100 GPU上展示了LCD训练的快速收敛能力，值得注意的是，完整的微调过程仅需要不到24GB的GPU内存，在大多数当代的消费级GPU上可行
+
+<img src="https://img.saraba1st.com/forum/202401/12/062621zf6xe3kxquhh3lfw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062148__01.jpg</strong> (617.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:26 上传
+
+高分辨率和细粒度的可控图像生成
+
+使用提示“the map of the final fantasy game’s main island, in the style of hirohiko araki, raymond swanland, monumental murals, mosaics, naturalistic rendering, vorticism, use of earth tones.”生成
+
+<img src="https://img.saraba1st.com/forum/202401/12/062627f88fflgw69llw7vs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062155__01.jpg</strong> (471.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:26 上传
+
+高分辨率和细粒度的可控图像生成
+
+输出使用提示“Multicultural beauty. Women of different ethnicity - Caucasian, African, Asian and Indian.”生成
+
+<img src="https://img.saraba1st.com/forum/202401/12/062632y0gqobnqqnnibaio.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062202__01.jpg</strong> (721.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:26 上传
+
+PixArt-ControlNet生成的更多图像示例
+
+<img src="https://img.saraba1st.com/forum/202401/12/062637v6qtoczkbcksppcf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-062216__01.jpg</strong> (645.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 06:26 上传
+
+训练步骤的影响，快速收敛，随着训练步骤的增加，细节逐渐改善，并与HED边缘图更加吻合
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

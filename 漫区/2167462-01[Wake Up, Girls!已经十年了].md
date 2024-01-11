@@ -763,3 +763,14 @@ WUG!から10年ということはステ天から10年…なん ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">看过第一季，虽然说不上很喜欢，但是有时被人提醒这个声优是参与过wug的，印象上会有一种莫名好感。
 
+
+*****
+
+####  ddy2811  
+##### 80#       发表于 2024-1-11 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63620682&amp;ptid=2167462" target="_blank">言酱啊啊啊 发表于 2024-1-11 22:20</a>
+
+说起来青山自孤独摇滚翻红以后，没有大量新番和主要角色刷面熟，希望别又是一炮红 ...</blockquote>
+如果广播能按现在的节奏做下去，也不失为一个不错的方向了
+

@@ -698,3 +698,29 @@ WUG!から10年ということはステ天から10年…なんかしたい気持
 剧场1+TV1+剧场2上下，其他不愿承认</blockquote>
 当年还感谢蟹大组织了。
 
+
+*****
+
+####  言酱啊啊啊  
+##### 73#       发表于 2024-1-11 22:20
+
+说起来青山自孤独摇滚翻红以后，没有大量新番和主要角色刷面熟，希望别又是一炮红<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sunbeach  
+##### 74#       发表于 2024-1-11 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63620682&amp;ptid=2167462" target="_blank">言酱啊啊啊 发表于 2024-1-11 22:20</a>
+说起来青山自孤独摇滚翻红以后，没有大量新番和主要角色刷面熟，希望别又是一炮红 ...</blockquote>
+可能是因为薪酬和年资挂钩导致出场费高了？
+
+*****
+
+####  kenqqex  
+##### 75#       发表于 2024-1-11 22:22
+
+ 本帖最后由 kenqqex 于 2024-1-11 22:24 编辑 
+
+[https://www.bilibili.com/video/av459418542](https://www.bilibili.com/video/BV1f5411N7vH/)/
+

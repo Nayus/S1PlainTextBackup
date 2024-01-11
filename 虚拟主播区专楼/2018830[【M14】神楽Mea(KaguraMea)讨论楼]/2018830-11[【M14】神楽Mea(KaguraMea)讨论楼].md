@@ -997,3 +997,11 @@ kenki人很好的，号称单亲家庭收集者
 
 现在那个人却在大喊“撸啊撸真好玩！”，感觉心情比较复杂
 
+
+*****
+
+####  秋游刃  
+##### 16149#       发表于 2024-1-11 22:10
+
+不会是说U1吧，U1以前不玩LOL，现在玩的挺多的，而且两人不久前才打过瓦。话说今天算播了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

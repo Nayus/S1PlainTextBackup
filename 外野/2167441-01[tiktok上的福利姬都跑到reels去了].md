@@ -1006,3 +1006,26 @@ reels，启动
 其实对一个产品来说擦边内容太多不是什么好事，钱么赚不到，直接引OF去了，产品么被搞的黄黄的，目标人群受 ...</blockquote>
 有没有一种可能，这类产品的目的并不是把功能最好，而是讲个故事，找个冤大头接盘，实现财富籽油？
 
+
+*****
+
+####  菲特妹  
+##### 118#       发表于 2024-1-11 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63618533&amp;ptid=2167441" target="_blank">两个路人 发表于 2024-1-11 18:49</a>
+
+年轻人第一次上外网.jpg
+
+马老板的那个黑叉简体中文圈，这类内容至少占9成吧</blockquote>
+你是没理解我说的是啥
+
+黄色内容谁都知道能发
+
+我那个截图是meta的商业广告投放，就是商家烧钱去投的广告，根据meta自己的规则这个系统是禁止投放成人内容的。相当于youtube每条视频都会在前面给你放的广告。
+
+但中文连这个都能投，事实上不止这类信息，连菠菜平台的广告都能投，一堆违规广告都能上
+
+不知道是meta的高华团队在狠狠地吃回扣，欺负鬼佬高管看不懂中文
+
+还是meta真的不行了连这钱都要赚<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

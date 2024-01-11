@@ -1159,3 +1159,17 @@ OP好多人 ...</blockquote>
 
 雪梨是小绿<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 3425#       发表于 2024-1-11 22:06
+
+EPISODE 14
+
+Mysterious Journey
+
+Mystere tells Kanata that Histoire really does exist. As proof, she and her former master had once made contact with Histoire's network during their travels. However, if Kanata is ever going to make it to Histoire, he will need to undergo some training.
+
+PV里的特训来了
+

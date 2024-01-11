@@ -14029,3 +14029,11 @@ MyGO又有一首新歌在录
 直播又是司马脸，音宝来点作用啊音宝
 <img src="https://p.sda1.dev/15/c9b5adbb71ec543b7140e1343d818469/IMG_CMP_110095489.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8823#       发表于 2024-1-11 20:55
+
+https://x.com/hanamukes/status/1745383340604002503?s=20<img src="https://p.sda1.dev/15/f51b90b9153730b43c889e9acba74d26/CMP_20240111205537511.jpg" referrerpolicy="no-referrer">
+

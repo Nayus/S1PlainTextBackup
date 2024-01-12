@@ -24609,3 +24609,143 @@ Anim-400K数据集中存在的流派和主题
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1176#       发表于 2024-1-12 08:35
+
+ 本帖最后由 Machinery 于 2024-1-12 08:36 编辑 
+
+AutoAct
+
+通过自规划(Self-Planning)从零进行自动化代理者学习(Automatic Agent Learning)
+
+github项目主页:https://github.com/zjunlp/AutoAct
+
+语言代理者们在各种复杂任务上取得了相当不错的表现，尽管当前的研究对这个领域进行了大量探索，但现有的语言代理者系统仍然面临着昂贵且难以重用的数据依赖性，并且面临将单一模型应用于多个功能的挑战
+
+为此，本文介绍了AutoAct，一个自动化代理者学习框架，且不依赖于大规模标注数据和来自闭源模型(例如GPT-4)的合成轨迹，在仅拥有有限的工具库数据的情况下，AutoAct首先自动合成规划轨迹，而且无需人类或强大闭源模型的任何帮助，然后，AutoAct利用分工(division-of-labor)策略根据目标任务信息和合成轨迹进行自动区分(automatically differentiate)，生成一个子代理者组(sub-agent group)完成任务
+
+对多个LLM进行了全面实验，结果表明，与各种强大基线相比，AutoAct能够获得更好或相当的性能，在这其中注意到，当使用Llama-2-13b模型时，AutoAct可以达到与GPT-3.5-Turbo代理者相当的性能
+
+<img src="https://img.saraba1st.com/forum/202401/12/083441exx9nna42nhj8njb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083038__01.jpg</strong> (137.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:34 上传
+
+AUTOACT的基本框架，通过仅使用一个工具库，元代理者(META-AGENT)可以根据目标任务信息进行自动区分，并产生一个子代理者组，协同完成任务
+
+<img src="https://img.saraba1st.com/forum/202401/12/083447v07ns9um0494gza1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083101__01.jpg</strong> (330.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:34 上传
+
+相关工作的对比
+
+数据和轨迹获取(Data and Trajectory Acquisitions)是指获取训练数据和轨迹的方法
+
+规划(Planning)表示规划的方式，根据每个步骤的动作是全局还是迭代(globally or iteratively)进行划分
+
+多代理者(Multi-Agent)表示框架是否包含多代理者
+
+微调(Fine-Tuning)表示方法是否是基于微调的智能体学习框架
+
+普适性(Generality)表示方法是否适用于各种任务
+
+反思(Reflection)表示规划过程是否包含反思
+
+<img src="https://img.saraba1st.com/forum/202401/12/083454pj3z9ffjq4r3vvyv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083118__01.jpg</strong> (537.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:34 上传
+
+提出的AUTOACT框架概览图，首先进行自指导(self-instruct)，从零开始扩展任务数据库，然后应用自规划进行自动化代理者学习，包括自动工具选择、轨迹合成、自区分(self-differentiation)和群体规划，其中，自区分是一个参数高效的微调过程，以实现轻量级和低消耗
+
+<img src="https://img.saraba1st.com/forum/202401/12/083459gp15ygpdccfq0f1u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083147__01.jpg</strong> (301.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:34 上传
+
+在HotpotQA和ScienceQA上使用AUTOACT和各种基线相进行对比
+
+<img src="https://img.saraba1st.com/forum/202401/12/083504zl0s3vg3bs66jljo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083157__01.jpg</strong> (98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:35 上传
+
+AUTOACT的方法消融
+
+- 反思(reflection)表示在AUTOACT中删除反思代理者
+- 多(multi)代表将所有区分数据送入一个模型进行微调
+- 微调(fine-tuning)表示使用AUTOACT中定义的三个代理者进行零样本提示规划
+- 过滤(filtering)表示没有过滤错误用例的情况下在零样本规划中的所有轨迹生成上进行自区分
+
+<img src="https://img.saraba1st.com/forum/202401/12/083510tzw9cgwk22wg2c2v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083211__01.jpg</strong> (472.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:35 上传
+
+AUTOACT在不同训练数据规模上的性能
+
+(a-c)表示在自合成轨迹上训练的模型结果
+(d-f)表示在由更强的模型合成的轨迹上训练的模型结果
+
+其中虚线是在自合成轨迹上进行的基线训练(baseline trained on self-synthesized trajectories)
+
+<img src="https://img.saraba1st.com/forum/202401/12/083519kzobnyj94oj4nbao.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083220__01.jpg</strong> (129.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:35 上传
+
+基于不同程度分工的AUTOACT性能
+
+1(one)代表用所有区分数据训练单个模型
+3(three)代表将差异化分为三个代理者:规划、工具和反思
+工具指定(Tool Specified)表示进一步将工具代理者区分为一个工具、一个代理者
+
+<img src="https://img.saraba1st.com/forum/202401/12/083525s9hheu7222udjouo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083233__01.jpg</strong> (718.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:35 上传
+
+案例研究
+
+AUTOACT(b)通过采用更科学的工具组合和更准确的工具调用成功解决了REACT(a)中的失败，通过更多的规划轮次，AUTOACT(c)可以通过继续更多轮的自我验证来验证其内部答案，虽然这也可能导致上下文更长，逐渐偏离原始问题的AUTOACT(d)
+
+<img src="https://img.saraba1st.com/forum/202401/12/083531o4e3l0nsks0gc53k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-083245__01.jpg</strong> (161.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 08:35 上传
+
+对Llama-2-70b-chat在HotpotQA上生成的轨迹进行了人工评估，对比了规划轮次的数量、思考的逻辑正确性、动作类型、动作参数以及每个轨迹的整体连贯性
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

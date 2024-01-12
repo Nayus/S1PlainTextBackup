@@ -861,3 +861,14 @@ wug珍贵的就是动画里那种透着现实感和地味感的同时，有一�
 
 WUG我最喜欢的一点就是没有那种闪瞎眼冒粉红泡泡的滤镜和剧情
 
+
+*****
+
+####  飞天猪2005  
+##### 91#       发表于 2024-1-12 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63612508&amp;ptid=2167462" target="_blank">Hchan 发表于 2024-1-11 10:56</a>
+
+补的BD版发现和当初tv放送版差得有点远，修改力度还是挺大的，很想知道当年追番的楼友是如何忍受这么崩的画 ...</blockquote>
+不知道其他人怎么样，只要剧情合胃口我对画面的包容性很高的
+

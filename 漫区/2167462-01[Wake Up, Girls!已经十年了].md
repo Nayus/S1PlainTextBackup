@@ -883,3 +883,14 @@ WUG我最喜欢的一点就是没有那种闪瞎眼冒粉红泡泡的滤镜和�
 很多时候很难说哪个才是营业模式，或者说都是营业模式看看羊贵妃就是了，以前奔奔跳跳现在整个像 ...</blockquote>
 感觉这个就像网络和现实哪边更真实一样说不太清楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  t222  
+##### 93#       发表于 2024-1-12 12:20
+
+ 本帖最后由 t222 于 2024-1-12 12:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63622992&amp;ptid=2167462" target="_blank">ddy2811 发表于 2024-1-12 08:55</a>
+感觉这个就像网络和现实哪边更真实一样说不太清楚</blockquote>
+所以真真假假无所谓，就当做是表演罢了。前一秒还在嗦面，后一秒就在鹅笑的场面都已经见怪不怪
+

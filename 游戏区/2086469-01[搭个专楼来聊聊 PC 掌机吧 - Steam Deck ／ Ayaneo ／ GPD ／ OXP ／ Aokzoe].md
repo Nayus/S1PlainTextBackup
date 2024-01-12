@@ -517,3 +517,13 @@ https://weibo.com/ttarticle/p/show?id=2309404989305537036498</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">aya2s，就玩玩黄油，5年之后再说
 
+
+*****
+
+####  kirito_wst  
+##### 1070#       发表于 2024-1-12 12:18
+
+重量720g，继续死守air plus 6800u<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

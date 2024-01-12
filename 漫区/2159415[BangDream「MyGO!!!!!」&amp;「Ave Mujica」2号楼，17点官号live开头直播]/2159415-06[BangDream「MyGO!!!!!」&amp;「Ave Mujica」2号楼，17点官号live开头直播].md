@@ -14441,3 +14441,16 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 动物朋友转发世一箱了吗
 
+
+*****
+
+####  ddy2811  
+##### 8863#       发表于 2024-1-12 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63624377&amp;ptid=2159415" target="_blank">ddlnyto 发表于 2024-1-12 11:03</a>
+
+原来如此，那漏油们也是乐见其成咯？</blockquote>
+蒸馍，你不扶器.jpg<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+
+爱不爱看是一回事，认清楚自己的位置是另一回事
+

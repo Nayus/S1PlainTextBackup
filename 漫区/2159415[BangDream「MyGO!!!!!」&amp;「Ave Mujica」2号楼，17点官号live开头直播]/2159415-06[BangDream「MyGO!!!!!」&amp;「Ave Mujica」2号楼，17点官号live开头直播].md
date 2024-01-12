@@ -14671,3 +14671,14 @@ Soyo the dangerous（指妈惹法克）
 原来如此，那漏油们也是乐见其成咯？</blockquote>
 建议发癫、爆破、切割、封杀一气呵成，以后再没有mygo这回事，好支威希也么哥，不知明公意下如何？
 
+
+*****
+
+####  ddlnyto  
+##### 8881#       发表于 2024-1-12 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63629894&amp;ptid=2159415" target="_blank">Archlich³ 发表于 2024-1-12 20:03</a>
+
+建议发癫、爆破、切割、封杀一气呵成，以后再没有mygo这回事，好支威希也么哥，不知明公意下如何？ ...</blockquote>
+呃，只是个人不太喜欢管人而已，又不管是哪家的，这么问也只是想听听漏油们怎么看待管人而已<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

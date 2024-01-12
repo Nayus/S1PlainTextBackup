@@ -30,3 +30,11 @@
 
 难得出个联动活动，给点稀有BOSS打下啊，又是老几样
 
+
+*****
+
+####  江戸前ルナ  
+##### 870#         楼主| 发表于 2024-1-12 20:13
+
+这摄影大赛开始后，推特上好多好帅的摄影作品啊……那些人为什么这么有才<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

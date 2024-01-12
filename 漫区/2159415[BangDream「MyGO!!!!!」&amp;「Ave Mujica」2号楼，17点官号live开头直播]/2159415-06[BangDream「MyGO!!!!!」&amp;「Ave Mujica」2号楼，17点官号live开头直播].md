@@ -14484,3 +14484,16 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 2024-1-12 12:39 上传
 
+
+*****
+
+####  御幸一也  
+##### 8865#       发表于 2024-1-12 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63623708&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-12 10:06</a>
+
+s1背负一切
+
+—— 来自 S1Fun</blockquote>
+樓友傳播焦慮全責<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

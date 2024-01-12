@@ -872,3 +872,14 @@ WUG我最喜欢的一点就是没有那种闪瞎眼冒粉红泡泡的滤镜和�
 补的BD版发现和当初tv放送版差得有点远，修改力度还是挺大的，很想知道当年追番的楼友是如何忍受这么崩的画 ...</blockquote>
 不知道其他人怎么样，只要剧情合胃口我对画面的包容性很高的
 
+
+*****
+
+####  ddy2811  
+##### 92#       发表于 2024-1-12 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63622193&amp;ptid=2167462" target="_blank">t222 发表于 2024-1-12 01:45</a>
+
+很多时候很难说哪个才是营业模式，或者说都是营业模式看看羊贵妃就是了，以前奔奔跳跳现在整个像 ...</blockquote>
+感觉这个就像网络和现实哪边更真实一样说不太清楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

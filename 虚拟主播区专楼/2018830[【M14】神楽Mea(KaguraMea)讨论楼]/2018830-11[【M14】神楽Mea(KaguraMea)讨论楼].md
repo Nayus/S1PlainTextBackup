@@ -1013,3 +1013,15 @@ kenki人很好的，号称单亲家庭收集者
 
 应该是说的夏色祭
 
+
+*****
+
+####  ashero  
+##### 16151#       发表于 2024-1-12 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63620565&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-1-11 22:10</a>
+不会是说U1吧，U1以前不玩LOL，现在玩的挺多的，而且两人不久前才打过瓦。话说今天算播了吗
+
+ ...</blockquote>
+和u1打瓦？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

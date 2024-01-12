@@ -419,3 +419,29 @@ syl 烧伤现在这强度打打普通还行
 
 查看全部评分
 
+
+*****
+
+####  炙热之狐  
+##### 518#       发表于 2024-1-12 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63628139&amp;ptid=2120922" target="_blank">貓血発動機 发表于 2024-1-12 17:05</a>
+刚玩一个星期左右，魔弹池子把我狂气全抽干了，第三赛季最后是不是还会有个以实玛利压轴?是不是得开始攒狂 ...</blockquote>
+目前只有魔夜活动的卡不能当期用箱子兑换（3个月后的下一期可以），其他都可以直接换
+因此只建议魔夜活动抽卡，其他全部靠刷箱子换
+金桑不变卦的话，玛丽人格肯定也是能直接换的
+
+—— 来自 OPPO PGW110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Jamaisvu  
+##### 519#       发表于 2024-1-12 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63627070&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-1-12 15:36</a>
+
+你直接退就算TT2协议回溯了！</blockquote>
+确实，回退的话没损失也没变动，但丁不愧是人形TT2。
+
+在绿色黎明里花费体力重复刷本没有资源奖励，不过割草的感觉确实爽得无与伦比..某种意义上就如同拿脑啡肽点烟甚至注射一样high<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

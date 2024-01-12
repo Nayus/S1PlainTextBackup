@@ -14326,3 +14326,11 @@ z8说的音宝像三次元山田符合动物朋友xp该不会是真的吧，怎�
 楼自从定档消息那天盖了好多层，现在确实放缓很多</blockquote>
 有了能讨论的话题才会热闹，啥也没有了自然也就没人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kasroz  
+##### 8851#       发表于 2024-1-12 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">1st之前估计没话题了
+

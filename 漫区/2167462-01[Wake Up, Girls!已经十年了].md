@@ -829,3 +829,20 @@ wug珍贵的就是动画里那种透着现实感和地味感的同时，有一�
 
 哎 我到现在各种平台账号的简介还挂着wake up girls<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 87#       发表于 2024-1-12 08:10
+
+从声优节目里其他人评价来切入啊，我印象里青山吉能是表示自己很能说很擅长炒气氛，胡逼本事一流，同时又经常对别人产生兴趣主动搭话，夸人能力非常厉害，但是又很容易消沉需要别人安慰。和社恐不沾边，但是有自闭倾向。
+
+*****
+
+####  moeful  
+##### 88#       发表于 2024-1-12 08:13
+
+醒工宽……
+
+—— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

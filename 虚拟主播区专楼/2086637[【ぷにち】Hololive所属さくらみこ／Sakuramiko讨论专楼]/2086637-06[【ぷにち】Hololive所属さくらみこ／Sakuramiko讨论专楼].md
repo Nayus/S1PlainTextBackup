@@ -4999,3 +4999,25 @@ Yマネーは普通にゲームやってれば勝手にカンストするくら�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战斗服配这外套还挺好看的
 
+
+*****
+
+####  holoan  
+##### 7980#         楼主| 发表于 2024-1-12 20:27
+
+<img src="https://img.saraba1st.com/forum/202401/12/202748fhxa4mwgnwdnna84.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 20:27 上传
+
+
+*****
+
+####  holoan  
+##### 7981#         楼主| 发表于 2024-1-12 20:29
+
+miko每次开大乱斗直播都这个样啊,怎么可能赢,她可是一年都碰不了一次游戏的
+

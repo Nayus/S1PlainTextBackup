@@ -14300,3 +14300,11 @@ z8说的音宝像三次元山田符合动物朋友xp该不会是真的吧，怎�
 
 我把holo都抽齐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8848#       发表于 2024-1-12 08:23
+
+母鸡卡剧场后台的祥子<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">https://www.pixiv.net/artworks/115092339
+

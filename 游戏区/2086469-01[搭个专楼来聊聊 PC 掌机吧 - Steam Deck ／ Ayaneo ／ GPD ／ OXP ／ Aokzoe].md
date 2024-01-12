@@ -478,3 +478,26 @@ v社现在放出来的官方steamos还没更新到类似holo的程度吧，他�
 https://www.gamingonlinux.com/2024/01/ayaneo-next-lite-handheld-an ...</blockquote>
 笑了，我以为 Aya 真的能找到 V 社做适配。
 
+
+*****
+
+####  bypass  
+##### 1066#         楼主| 发表于 2024-1-12 10:32
+
+[https://weibo.com/ttarticle/p/show?id=2309404989305537036498](https://weibo.com/ttarticle/p/show?id=2309404989305537036498)
+ <blockquote>AYANEO NEXT LITE 首次预装 AYANEO 官方基于 <strong>HoloISO</strong> 进行适配和优化的 SteamOS 游戏系统。精简高效的 SteamOS 可以为玩家提供更便捷的游戏管理、流畅稳定的游戏表现以及更低的整机功耗，并且原生兼容手柄和触屏操作，更符合掌机的操作习惯。
+AYANEO NEXT LITE 搭载 <strong>AMD Ryzen™ 5 4500U 和 AMD Ryzen™ 7 4800U 高性能处理器</strong>，配备定制的双铜管+大尺寸 PC 级涡轮风扇散热系统，整机散热效能大幅提升，保证游戏和日常使用稳定流畅运行。
+
+拥有旗舰体验的 AYANEO NEXT LITE 提供两个处理器版本供玩家选择，<strong>AMD Ryzen™ 5 4500U 16GB+128GB 版本价格为 1699 元，16GB+512GB 售价 1999 元；AMD Ryzen™ 7 4800U 16GB+512GB 售价 2399 元</strong>。每一款都是为玩家精心打造的超值之选。</blockquote>
+
+哪来的库存 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 1067#       发表于 2024-1-12 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63623987&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-12 10:32</a>
+https://weibo.com/ttarticle/p/show?id=2309404989305537036498</blockquote>
+笑死
+

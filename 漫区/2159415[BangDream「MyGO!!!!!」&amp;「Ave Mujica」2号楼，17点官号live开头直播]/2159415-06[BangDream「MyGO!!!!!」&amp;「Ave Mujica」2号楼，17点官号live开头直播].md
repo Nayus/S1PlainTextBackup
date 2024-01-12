@@ -14366,3 +14366,14 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ddy2811  
+##### 8855#       发表于 2024-1-12 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63623677&amp;ptid=2159415" target="_blank">ddlnyto 发表于 2024-1-12 10:03</a>
+
+不是，这管人到底有啥好，都爱看都爱联动</blockquote>
+看看管人多少同接，看看邦邦自己的节目多少同接<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -1062,3 +1062,15 @@ kenki人很好的，号称单亲家庭收集者
 
 细说和u18打瓦
 
+
+*****
+
+####  往世雷书  
+##### 16156#       发表于 2024-1-13 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63632732&amp;ptid=2018830" target="_blank">呓亘 发表于 2024-1-12 23:58</a>
+这人 咋不播LOL</blockquote>
+她就是这样，因为现在小流行lol，所以坚决不播，等啥时候潮流剩个尾巴了才想起来蹭
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

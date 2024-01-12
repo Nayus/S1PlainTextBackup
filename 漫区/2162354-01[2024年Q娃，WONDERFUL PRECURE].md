@@ -2193,3 +2193,16 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 10年前的今天：<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  imbaHerby  
+##### 486#       发表于 2024-1-12 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63592333&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-1-9 17:57</a>
+
+准巧克力只是可可成分相对较少而已 对狗来说也只是吃一颗死和吃两颗死的区别 ...</blockquote>
+粉色的草莓味只有可可脂 算是白巧克力
+
+狗狗应该是可以吃的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

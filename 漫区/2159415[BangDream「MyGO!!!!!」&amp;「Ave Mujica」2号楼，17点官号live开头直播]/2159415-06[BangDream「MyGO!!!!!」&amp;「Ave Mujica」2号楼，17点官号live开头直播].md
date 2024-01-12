@@ -14377,3 +14377,13 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 不是，这管人到底有啥好，都爱看都爱联动</blockquote>
 看看管人多少同接，看看邦邦自己的节目多少同接<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋干爆炸碱  
+##### 8856#       发表于 2024-1-12 10:24
+
+马上就是睦生日了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+希望周末我能看到同人太太生贺接力
+

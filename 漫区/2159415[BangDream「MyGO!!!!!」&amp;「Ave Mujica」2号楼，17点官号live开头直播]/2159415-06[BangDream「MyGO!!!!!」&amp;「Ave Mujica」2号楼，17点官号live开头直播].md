@@ -14387,3 +14387,11 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 希望周末我能看到同人太太生贺接力
 
+
+*****
+
+####  凡人  
+##### 8857#       发表于 2024-1-12 10:43
+
+以holo现在在日本的地位，要不是wsd有股份你想蹭还没这门路呢。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

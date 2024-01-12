@@ -501,3 +501,11 @@ AYANEO NEXT LITE 搭载 <strong>AMD Ryzen™ 5 4500U 和 AMD Ryzen™ 7 4800U �
 https://weibo.com/ttarticle/p/show?id=2309404989305537036498</blockquote>
 笑死
 
+
+*****
+
+####  luffyzhou  
+##### 1068#       发表于 2024-1-12 10:54
+
+梵高属实是想多了，清zen2库存啊
+

@@ -14395,3 +14395,18 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 以holo现在在日本的地位，要不是wsd有股份你想蹭还没这门路呢。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 8858#       发表于 2024-1-12 11:00
+
+这个管人联动每一次内容都要加，还有下次没准就给你带剧情让主唱组和管人商业互吹去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddlnyto  
+##### 8859#       发表于 2024-1-12 11:03
+
+原来如此，那漏油们也是乐见其成咯？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

@@ -3427,3 +3427,17 @@ tachiyomi为了保护自己把内置插件删了，增设了由第三方提供�
 
 今天拷贝是炸了吧，我网页端一张图都读不出来
 
+
+*****
+
+####  cuchulain2021  
+##### 339#       发表于 2024-1-12 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63624201&amp;ptid=2010665" target="_blank">roy717 发表于 2024-1-12 10:49</a>
+拷贝1.4.53 能进去， 能看见更新列表， 但是 打不开任何漫画，
+
+显示无法加载图片。。。。大家有遇上同样问 ...</blockquote>
+拷贝自己网站不行了而已。
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

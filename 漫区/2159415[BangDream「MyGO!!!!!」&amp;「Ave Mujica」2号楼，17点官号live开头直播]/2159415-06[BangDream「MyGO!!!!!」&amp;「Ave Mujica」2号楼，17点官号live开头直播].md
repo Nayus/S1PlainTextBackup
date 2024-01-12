@@ -14505,3 +14505,15 @@ s1背负一切
 
 s1黑泥溢出真是罪大恶极
 
+
+*****
+
+####  基神的强袭自由  
+##### 8867#       发表于 2024-1-12 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63624804&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-12 11:43</a>
+第一次联动刚好是木口问题最大的时期，日服情报一出来吓得国服运营当场切割表示国服会直接跳过这个活动[f ...</blockquote>
+之前没有出角色卡池吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

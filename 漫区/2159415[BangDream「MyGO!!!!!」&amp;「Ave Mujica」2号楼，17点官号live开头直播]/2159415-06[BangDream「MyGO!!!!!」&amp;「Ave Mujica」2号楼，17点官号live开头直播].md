@@ -14410,3 +14410,13 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 原来如此，那漏油们也是乐见其成咯？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 8860#       发表于 2024-1-12 11:27
+
+之前也联动过吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

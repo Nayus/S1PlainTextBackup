@@ -920,3 +920,12 @@ WUG我最喜欢的一点就是没有那种闪瞎眼冒粉红泡泡的滤镜和�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">哇古的歌是真的好听
 
+
+*****
+
+####  Porsche  
+##### 97#       发表于 2024-1-12 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wug别的没什么感觉，就是为什么把太太们都画的又丑又老
+一般作品来讲太太通常都比女儿还好看
+

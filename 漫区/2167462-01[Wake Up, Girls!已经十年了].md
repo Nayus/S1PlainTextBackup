@@ -912,3 +912,11 @@ WUG我最喜欢的一点就是没有那种闪瞎眼冒粉红泡泡的滤镜和�
 
 当年追番确实有被第一话惊艳到，片尾那首歌现在还记得
 
+
+*****
+
+####  宫宝兔丁  
+##### 96#       发表于 2024-1-12 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">哇古的歌是真的好听
+

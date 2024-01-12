@@ -287,3 +287,27 @@ wocao，仔细一看这是撕破脸了
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  高等黑暗  
+##### 2881#       发表于 2024-1-12 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63619486&amp;ptid=2117684" target="_blank">TiHaru 发表于 2024-1-11 20:26</a>
+
+つるぴ2.7万，这就是stgr吗</blockquote>
+昨天最高同接3.6w。。。。STGR全平台总观众平均应该是10w左右，其中twitch应该有6~7w，当一个人成为风暴中心的时候就会把那个平台一半左右的观众卷过去
+
+昨天那事把整个STGR除了馅之外的同接大头可以说都卷进去了，加上之前黑井事件的余热好多人等着看ALLIN的乐子（包括fan太都是w），可以说是一连串的事件把他推上那个时间段的巅峰(
+
+*****
+
+####  高等黑暗  
+##### 2882#       发表于 2024-1-12 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">看了眼昨天Idios的两个进STGR第一天就遇到了yamien的第二角色……黛灰毕业后的虹人和黛灰首次见面感觉yamien好像也没有遇到老同事的那种尴尬感了，嘴上一直跑火车把两个萌新忽悠得一愣一愣的
+
+不过现在看来黛灰毕业之后才进STGR真是可惜了，STGR可以说是最适合黛灰的舞台之一，结果因为虹毕业的关系一直躲着一堆人，和警察黑帮接触都极少，感觉都没法融入，第二角色希望能改变点吧，倒是有看到这个角色主动接触一些人了
+
+顺手翻个页
+

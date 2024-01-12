@@ -14433,3 +14433,11 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 —— 来自 S1Fun</blockquote>
 第一次联动刚好是木口问题最大的时期，日服情报一出来吓得国服运营当场切割表示国服会直接跳过这个活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 8862#       发表于 2024-1-12 12:02
+
+动物朋友转发世一箱了吗
+

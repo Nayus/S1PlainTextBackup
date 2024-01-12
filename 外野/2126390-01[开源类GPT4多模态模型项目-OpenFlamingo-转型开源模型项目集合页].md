@@ -24749,3 +24749,88 @@ AUTOACT(b)通过采用更科学的工具组合和更准确的工具调用成功�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1177#       发表于 2024-1-12 18:23
+
+Telechat
+
+星辰语义大模型TeleChat是由中电信人工智能科技有限公司研发训练的大型语言模型系列
+
+github项目主页:https://github.com/Tele-AI/Telechat
+
+hugface Telechat 7B模型权重下载:https://huggingface.co/Tele-AI/Telechat-7B
+
+hugface数据集下载地址:https://huggingface.co/datasets/Tele-AI/TeleChat-PTD
+
+天翼云盘下载地址:https://cloud.189.cn/t/ia2QbaVzYf6z
+(访问码：pkg8)
+
+星辰语义大模型TeleChat是由中电信人工智能科技有限公司研发训练的大语言模型，采用1.5万亿 Tokens中英文高质量语料进行训练，本次开源了对话模型TeleChat-7B-bot，以及其huggingface格式的权重文件，此外，还开源了7B模型的int8和int4量化版本，2024.1月底开源12B版本模型（待开放）
+
+TeleChat-PTD 是由电信星辰大模型TeleChat预训练语料中抽取出的的综合性大规模中文数据集，数据主要来源于网页、书籍、官方媒体等，使用规则+模型的方式进行了相关的过滤，并对数据进行了相似性去重，尽可能地提取出高质量地数据
+
+TeleChat-PTD 数据集大约公开了2.7亿条数据，数据由纯中文文本构成，原始大小约1TB,压缩后480G，共189个文件，数据集中已经去除了其它冗余信息
+
+github项目说明截图:
+
+<img src="https://img.saraba1st.com/forum/202401/12/182227bvpwj8ffj2i1y221.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-182005.jpg</strong> (249.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/182227b2l2mc6k7se6xgxr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-182017.jpg</strong> (112.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/182227ezl4l2662bqwxn68.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-182029.jpg</strong> (354.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/182227cqi36v6ph66pxuac.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-182040.jpg</strong> (165.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/182227t42hq46l2f622xfg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-182048.jpg</strong> (289.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/182227gw3aovowvhtf43wk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-182059.jpg</strong> (410.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/182227vfd8t62almfy2ta2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240112-182135.jpg</strong> (338.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 18:22 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

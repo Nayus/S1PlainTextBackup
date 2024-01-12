@@ -14420,3 +14420,16 @@ s1背负一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NODY  
+##### 8861#       发表于 2024-1-12 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63624663&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-12 11:27</a>
+
+之前也联动过吗
+
+—— 来自 S1Fun</blockquote>
+第一次联动刚好是木口问题最大的时期，日服情报一出来吓得国服运营当场切割表示国服会直接跳过这个活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

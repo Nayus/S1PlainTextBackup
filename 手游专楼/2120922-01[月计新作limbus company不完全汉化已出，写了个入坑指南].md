@@ -360,3 +360,16 @@ syl 烧伤现在这强度打打普通还行
 
 话说这关卡重复打也没奖励，还扣脑啡肽，咱都到L社了，就不能用TT2协议回溯一下把入场门票还回来吗...
 
+
+*****
+
+####  Yuzutea  
+##### 514#       发表于 2024-1-12 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63622260&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-1-12 02:08</a>
+
+这次活动可能是开服以来最爽的，资源无限多，ego随便放，战神员工，无双割草
+
+魔弹奥搭配LCCB良秀的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你直接退就算TT2协议回溯了！
+

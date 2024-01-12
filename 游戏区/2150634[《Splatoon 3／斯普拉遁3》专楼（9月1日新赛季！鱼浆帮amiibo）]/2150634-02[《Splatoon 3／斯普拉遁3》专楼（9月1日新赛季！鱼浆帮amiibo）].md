@@ -8763,3 +8763,13 @@ IMG_9158.png
 
 坐电梯坐麻了，三小时分一动不动
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2383#       发表于 2024-1-12 17:54
+
+发电厂和工房来一次金工吧，就差这俩了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

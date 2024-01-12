@@ -8713,3 +8713,27 @@ IMG_9158.png
 
 到了白天又是打不了一点，可惜今天晚上应该没时间玩了，算是寄了
 
+
+*****
+
+####  炫夜鳞  
+##### 2377#       发表于 2024-1-12 11:14
+
+真就来来回回那几个菜的不行的那几个人
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2378#       发表于 2024-1-12 11:16
+
+明天圆珠笔发起进攻一切都会好起来！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  炫夜鳞  
+##### 2379#       发表于 2024-1-12 11:22
+
+十一把就过了一把，昨晚上的分全输回去了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

@@ -3235,3 +3235,18 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  ——啧  
+##### 10809#       发表于 2024-1-12 17:23
+
+ 本帖最后由 ——啧 于 2024-1-12 17:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63628331&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2024-1-12 17:21</a>
+8周年那本E开头的网站上扫图都出了
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">请问一下有关键字吗，真的没找到
+
+找到了，这下寄了，好像都没卖了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

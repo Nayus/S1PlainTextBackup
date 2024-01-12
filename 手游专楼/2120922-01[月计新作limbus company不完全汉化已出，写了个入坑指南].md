@@ -373,3 +373,15 @@ syl 烧伤现在这强度打打普通还行
 魔弹奥搭配LCCB良秀的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你直接退就算TT2协议回溯了！
 
+
+*****
+
+####  Yuzutea  
+##### 515#       发表于 2024-1-12 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下火队普通镜牢十把
+
+3把五辛一号位3把火玛一号位4把魔弹一号位
+
+鉴定为魔弹一号位伤害都不一定打得过火玛，火玛和五辛一号位魔弹铁打不过
+

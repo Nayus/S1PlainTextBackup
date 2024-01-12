@@ -1189,3 +1189,63 @@ PV里的特训来了
 
 夏尔联系卫浴柜的镜头来了，也是pv画面之一
 
+
+*****
+
+####  NeloAngelo  
+##### 3428#       发表于 2024-1-12 20:41
+
+<img src="https://img.saraba1st.com/forum/202401/12/203903gesqooxdcidezolc.jpg" referrerpolicy="no-referrer">
+
+<strong>8539f27c0b355c0238c34d2abf7b57d8.jpg</strong> (52.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/203903rr5h8ztsv8wvhwgg.jpg" referrerpolicy="no-referrer">
+
+<strong>SYN14_02.jpg</strong> (79.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/203903sntw8atsp8n3g4qs.jpg" referrerpolicy="no-referrer">
+
+<strong>SYN14_03.jpg</strong> (59.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/203903dqpn0anpn8saq8ea.jpg" referrerpolicy="no-referrer">
+
+<strong>SYN14_04.jpg</strong> (79.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/203903ktwlwccwtcslal2j.jpg" referrerpolicy="no-referrer">
+
+<strong>SYN14_05.jpg</strong> (52.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202401/12/203903qbgp3oog7u3q7bdu.jpg" referrerpolicy="no-referrer">
+
+<strong>SYN14_06.jpg</strong> (47.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 20:39 上传
+
+第14話「Mysterious journey」
+
+イストワールは実在するというミステル。
+
+ミステルはかつてマスターと旅をしていたときに、偶然イストワールのネットワークシステムと接触したことがあった。自己修復が完了すると、かつて接触した場所の正確な位置が分かるというミステルは、イストワールを目指すべくカナタを鍛えることにするのであった。
+

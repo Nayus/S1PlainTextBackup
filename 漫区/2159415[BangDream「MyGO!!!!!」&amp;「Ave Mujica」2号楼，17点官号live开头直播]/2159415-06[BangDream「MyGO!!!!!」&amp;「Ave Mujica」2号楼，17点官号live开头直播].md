@@ -14592,3 +14592,14 @@ s1黑泥溢出真是罪大恶极
 
 [https://twitter.com/RINGOLINGUO/ ... 90140624923/photo/1](https://twitter.com/RINGOLINGUO/status/1745669390140624923/photo/1)
 
+
+*****
+
+####  Aloereed  
+##### 8874#       发表于 2024-1-12 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63626409&amp;ptid=2159415" target="_blank">icoywt 发表于 2024-1-12 14:31</a>
+
+不愧是玄铁绚，这mygo本子本来看的挺放松的结果翻页差点给我手机吓掉 ...</blockquote>
+我超，少女派别作者画的本吗。这下不得不看了
+

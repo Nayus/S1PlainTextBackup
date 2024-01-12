@@ -14700,3 +14700,11 @@ Soyo the dangerous（指妈惹法克）
 
 提个半天前的新闻，青木唱了《蔚蓝档案》国服半周年纪念曲的日文版。
 
+
+*****
+
+####  基神的强袭自由  
+##### 8884#       发表于 2024-1-12 22:05
+
+转发抽青木签名了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

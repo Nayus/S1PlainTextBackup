@@ -8796,3 +8796,11 @@ IMG_9158.png
 
 塔真的不要命的刷，然后柱鱼也不好清，顶级折磨
 
+
+*****
+
+####  Ryuuseigun  
+##### 2387#       发表于 2024-1-12 20:44
+
+现在就还剩船没康甚至只有个彩章，啥时候发个金工船<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

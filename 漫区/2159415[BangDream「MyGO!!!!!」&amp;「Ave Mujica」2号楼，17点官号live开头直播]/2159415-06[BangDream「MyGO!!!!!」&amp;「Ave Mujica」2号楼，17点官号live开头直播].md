@@ -14708,3 +14708,18 @@ Soyo the dangerous（指妈惹法克）
 
 转发抽青木签名了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icoywt  
+##### 8885#       发表于 2024-1-12 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63629312&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-1-12 19:02</a>
+
+我超，少女派别作者画的本吗。这下不得不看了
+
+草看到soyo x soyo妈，大受震撼
+
+ ...</blockquote>
+看的时候没想那么多，结果翻页看到跟soyo妈翻滚直接震惊到人都清醒了
+

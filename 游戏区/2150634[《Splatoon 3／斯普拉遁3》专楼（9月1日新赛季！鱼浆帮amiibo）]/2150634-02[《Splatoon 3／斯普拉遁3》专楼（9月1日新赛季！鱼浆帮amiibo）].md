@@ -8773,3 +8773,11 @@ IMG_9158.png
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 2384#       发表于 2024-1-12 18:09
+
+鲑坝这倒霉低分编程硬打康了，MAX真的很考验刷怪运，运气不好四面八方刷难搞的怪再在出差路上插个柱子鱼锅盖鱼八个大全交了也无力回天<img src="https://p.sda1.dev/15/d8b15484804e403c85db5e610ec659e4/IMG_20240112_180904.jpg" referrerpolicy="no-referrer">
+

@@ -445,3 +445,13 @@ syl 烧伤现在这强度打打普通还行
 
 在绿色黎明里花费体力重复刷本没有资源奖励，不过割草的感觉确实爽得无与伦比..某种意义上就如同拿脑啡肽点烟甚至注射一样high<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 520#       发表于 2024-1-12 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔夜这两期三灯的强度真的是卡在很尴尬的一个地方
+
+下期要是还这样我水还不多或者YJ准备一个season出两期魔夜池子的话我会考虑跳一部分了
+

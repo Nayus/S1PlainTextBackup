@@ -14566,3 +14566,13 @@ s1黑泥溢出真是罪大恶极
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  奥秘鞋  
+##### 8872#       发表于 2024-1-12 16:45
+
+下季holo当群演<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

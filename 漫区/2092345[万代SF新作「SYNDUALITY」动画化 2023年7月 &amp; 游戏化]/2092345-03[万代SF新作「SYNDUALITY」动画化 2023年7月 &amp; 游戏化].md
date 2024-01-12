@@ -1259,3 +1259,23 @@ PV里的特训来了
 
 所以 Mystere 和乐园的关系其实没有想象中的深? 你根本不是天之圣杯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 3430#         楼主| 发表于 2024-1-12 22:47
+
+第14話「Mysterious journey」
+
+[https://youtu.be/3vwqjo26Nok](https://youtu.be/3vwqjo26Nok)
+
+イストワールは実在するというミステル。
+
+ミステルはかつてマスターと旅をしていたときに、偶然イストワールのネットワークシステムと接触したことがあった。自己修復が完了すると、かつて接触した場所の正確な位置が分かるというミステルは、イストワールを目指すべくカナタを鍛えることにするのであった。
+<img src="https://p.sda1.dev/15/6a4aac2347cdaf858984e8e1de22148c/8aca54ee892be5ea33eb0716bc8b8e7e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/e2c5d9f8ee906524fa3daf312b540a0c/dd31947e1cfbebdc557ddb16f3612919.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/bf7fa5f4b6fca7d79cc59d9e6eac78a1/60b8422fe0f134e95d961427affbbdee.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/0017df8869232a5d2af9ea9191b558e9/9dba55b1ae48b15ac5fd7cb37de19d96.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/499c40a11d0acaec6172566941994883/f84886c76108c6fc4dfbc2bbbf319675.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/d0d7340088b6815cd8b12345c70fbe47/8cdb4feff6f098fb65e6341691dabe57.jpg" referrerpolicy="no-referrer">
+

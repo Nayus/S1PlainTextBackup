@@ -8822,3 +8822,13 @@ IMG_9158.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 2390#       发表于 2024-1-12 22:15
+
+银喷是三确超强武器是么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

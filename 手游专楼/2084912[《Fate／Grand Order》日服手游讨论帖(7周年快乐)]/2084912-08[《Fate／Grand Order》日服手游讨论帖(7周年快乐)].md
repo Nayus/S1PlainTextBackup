@@ -3210,3 +3210,28 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 如果是的话那第四本至今没出，第三本是对应第二部上半的，21年发售的
 
+
+*****
+
+####  黑上シグマ  
+##### 10807#       发表于 2024-1-12 17:20
+
+<blockquote>引用第10805楼UNISONIA于2024-01-12 14:26发表的  :
+
+引用:——啧 发表于 2024-1-12 13:33借楼问一下，去年8周年的英灵催装没有出画集吗？找......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每年周年那群人的都是单独出画集的，你在说啥玩意儿呢
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  黑上シグマ  
+##### 10808#       发表于 2024-1-12 17:21
+
+<blockquote>引用第10804楼——啧于2024-01-12 13:33发表的  :
+
+借楼问一下，去年8周年的英灵催装没有出画集吗？找了一圈没找到，以前都有预订的，今天突然记起来好像没订......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8周年那本E开头的网站上扫图都出了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

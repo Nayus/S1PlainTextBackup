@@ -18756,3 +18756,24 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 那个展真的假的，推上都没什么动静啊</blockquote>
 昨天看错了，实际上是 HARU COMIC CITY 内的一个 only 展，COMIC CITY 整体规模能打 CM 一天，但是具体蒜有多少摊我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">，实际上就是 COMIC CITY 的一个Lycoris街道的感觉
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1452#       发表于 2024-1-12 22:41
+
+<img src="https://img.saraba1st.com/forum/202401/12/224056w02655l5lmk85682.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-01-12 222052 (17).JPG</strong> (300.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-12 22:40 上传
+
+*****
+
+####  夜游宫  
+##### 1453#       发表于 2024-1-12 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蒜楼，我终于回来了！
+

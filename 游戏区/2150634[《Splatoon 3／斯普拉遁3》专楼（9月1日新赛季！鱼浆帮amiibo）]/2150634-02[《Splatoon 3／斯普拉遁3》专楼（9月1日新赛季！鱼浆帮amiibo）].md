@@ -8804,3 +8804,11 @@ IMG_9158.png
 
 现在就还剩船没康甚至只有个彩章，啥时候发个金工船<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  linuy  
+##### 2388#       发表于 2024-1-12 20:57
+
+16盘没出横岗，虽然翻车了很多不过满了之后也过5盘，一次都没出
+

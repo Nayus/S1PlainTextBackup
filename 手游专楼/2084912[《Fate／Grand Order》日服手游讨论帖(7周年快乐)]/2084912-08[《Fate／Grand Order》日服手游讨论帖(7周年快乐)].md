@@ -3197,3 +3197,16 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 借楼问一下，去年8周年的英灵催装没有出画集吗？找了一圈没找到，以前都有预订的，今天突然记起来好像没订这个，搜一下也没有资料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 10806#       发表于 2024-1-12 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63625898&amp;ptid=2084912" target="_blank">——啧 发表于 2024-1-12 13:33</a>
+
+借楼问一下，去年8周年的英灵催装没有出画集吗？找了一圈没找到，以前都有预订的，今天突然记起来好像没订 ...</blockquote>
+周年礼装也是收在《Fate/Grand Order Memories 概念礼装画集》这个系列里的吧？
+
+如果是的话那第四本至今没出，第三本是对应第二部上半的，21年发售的
+

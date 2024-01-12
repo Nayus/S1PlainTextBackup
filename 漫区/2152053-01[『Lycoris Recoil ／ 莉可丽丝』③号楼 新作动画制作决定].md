@@ -18746,3 +18746,13 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 那个展真的假的，推上都没什么动静啊
 
+
+*****
+
+####  bakabaka999  
+##### 1451#       发表于 2024-1-12 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63625220&amp;ptid=2152053" target="_blank">yenvy 发表于 2024-1-12 12:18</a>
+那个展真的假的，推上都没什么动静啊</blockquote>
+昨天看错了，实际上是 HARU COMIC CITY 内的一个 only 展，COMIC CITY 整体规模能打 CM 一天，但是具体蒜有多少摊我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">，实际上就是 COMIC CITY 的一个Lycoris街道的感觉
+

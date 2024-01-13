@@ -9103,3 +9103,15 @@ neet派怎么能组队的？
 
 康了，奔着单问号有机会摸熊刀才打的，结果一把都没摸到，索然无味<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 2419#       发表于 2024-1-14 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63641877&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-14 00:43</a>
+这颜色明明很好看，咋有人说像JY啊</blockquote>
+你看你射出去的东西
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

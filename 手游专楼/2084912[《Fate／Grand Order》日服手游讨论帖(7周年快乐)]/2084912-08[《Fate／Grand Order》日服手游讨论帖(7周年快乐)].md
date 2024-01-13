@@ -3844,3 +3844,17 @@ PV是不是还有一个新角色
 
 明明2.6學妹終於能100級及5寶，在失憶狀態以另一視點來看劇情，但整編就變成C呆成長史，再一次錯過學妹成長可能，加上主線難度就綁在愈來愈垃圾的學妹，個性愈來愈消失，對她觀感愈來愈差
 
+
+*****
+
+####  清河子  
+##### 10867#       发表于 2024-1-13 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63639164&amp;ptid=2084912" target="_blank">kyonkoism 发表于 2024-1-13 19:48</a>
+黑化白贞百分百是身披角色者职介
+
+就是黑贞如果看到这样的黑白贞，会不会气疯了直接拿刀上去砍啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我大概会抽
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">亚里亚我的亚里亚……
+

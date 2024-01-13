@@ -14859,3 +14859,20 @@ Soyo the dangerous（指妈惹法克）
 <img src="https://p.sda1.dev/15/72ebc0fafa2b91e4584408c191c15f49/CMP_20240113193411069.jpg" referrerpolicy="no-referrer">
 放这张
 
+
+*****
+
+####  IWS2000  
+##### 8899#       发表于 2024-1-13 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638900&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-1-13 19:18</a>
+这两位都没见过面啊</blockquote>
+爱睦这对cp就差个见面了
+
+*****
+
+####  DarthAka  
+##### 8900#       发表于 2024-1-13 19:51
+
+前两天怀旧wug就有感觉了，当年艾回整那三期团没少下功夫，比如林小姐这唱跳配音，问题是完全不火，营业更是debuff拉满，16个人连一对CP都磕不出来
+

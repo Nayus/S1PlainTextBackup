@@ -3790,3 +3790,37 @@ PV是不是还有一个新角色
 叶良树直播说这就是全部了。</blockquote>
 啊？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 10862#       发表于 2024-1-13 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑化白贞百分百是身披角色者职介
+
+就是黑贞如果看到这样的黑白贞，会不会气疯了直接拿刀上去砍啊
+
+*****
+
+####  シャル  
+##### 10863#       发表于 2024-1-13 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638919&amp;ptid=2084912" target="_blank">史蒂符 发表于 2024-1-13 19:21</a>
+
+叶良树直播说这就是全部了。</blockquote>
+厕那<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+狐狸要放其他活动？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 10864#       发表于 2024-1-13 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63639164&amp;ptid=2084912" target="_blank">kyonkoism 发表于 2024-1-13 19:48</a>
+
+黑化白贞百分百是身披角色者职介
+
+就是黑贞如果看到这样的黑白贞，会不会气疯了直接拿刀上去砍啊 ...</blockquote>
+“这女人果然疯了”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -14784,3 +14784,13 @@ Soyo the dangerous（指妈惹法克）
 
 这游戏确实该凉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 8892#       发表于 2024-1-13 15:24
+
+你楼<img src="https://p.sda1.dev/15/d178b31ec10419444dd9fed94f3e0ebb/CMP_20240113152347249.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

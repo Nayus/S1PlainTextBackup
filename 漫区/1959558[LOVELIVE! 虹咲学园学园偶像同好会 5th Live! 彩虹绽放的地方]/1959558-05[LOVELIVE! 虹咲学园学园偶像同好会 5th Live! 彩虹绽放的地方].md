@@ -31,3 +31,46 @@
 
 —— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  仟音一心  
+##### 7448#       发表于 2024-1-13 20:12
+
+神奈川DAY1 
+ーーTOKIMEKI Runners特殊映像ーー 
+KAGAYAKI Don't forget! 
+ーーMC&amp;CR①ーー 
+ーー幕間①ーー 
+小悪魔LOVE♡ 
+咬福論 
+背伸びしたって 
+Request for U 
+私はマグネット 
+Cooking with Love 
+Feel Alive 
+Walking Dream 
+My Shadow 
+Lemonade 
+Waku Waku! Monday Morning 
+恋するSunflower 
+5201314 
+チェリーボム 
+New Year's March！ 
+Happy New Year Days 
+ーー幕間②ーー 
+Go Our Way！ 
+Just Believe!!! 
+Fly with You!! 
+ーーEncoreーー 
+L！L！L！ (Love the Life We Live) 
+友 &amp; 愛（Short Ver.） 
+First Love Again（Short Ver.） 
+声繋ごうよ（Short Ver.） 
+TOKIMEKI Runners 
+恋するMagic!! 
+わちゅごなどぅー 
+ーーMC②ーー 
+OUR P13CES!!! 
+SINGING, DREAMING, NOW!
+

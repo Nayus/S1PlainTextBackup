@@ -3733,3 +3733,35 @@ PV是不是还有一个新角色
 
 哎，大木和嘟嘟没了啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  史蒂符  
+##### 10857#       发表于 2024-1-13 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638602&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-13 18:43</a>
+
+魔夜和月姬R，還有新MB聯動，你有時間在MB的DLC角色寫萬字以上，沒時間回FGO寫劇本嗎?</blockquote>
+当时送辉石也照常送了10个石头，一下子把热度炒起来了，我就是那时觉得盐川是真会营销<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  シャル  
+##### 10858#       发表于 2024-1-13 19:19
+
+ 本帖最后由 シャル 于 2024-1-13 19:21 编辑 
+
+那么2期池就是狐狸和谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+狐狸不要是五星吧
+
+*****
+
+####  史蒂符  
+##### 10859#       发表于 2024-1-13 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638903&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-13 19:19</a>
+
+那么2期池就是狐狸和谁呢</blockquote>
+叶良树直播说这就是全部了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

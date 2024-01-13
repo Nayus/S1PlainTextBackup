@@ -14832,3 +14832,19 @@ Soyo the dangerous（指妈惹法克）
 
 突然想起来一个问题，烤羊的都说羊打牌，但是她之前有什么知名作品吗？
 
+
+*****
+
+####  NODY  
+##### 8896#       发表于 2024-1-13 19:17
+
+打牌形容的是态度不是咖位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 8897#       发表于 2024-1-13 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638204&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-13 18:01</a></blockquote>
+这两位都没见过面啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

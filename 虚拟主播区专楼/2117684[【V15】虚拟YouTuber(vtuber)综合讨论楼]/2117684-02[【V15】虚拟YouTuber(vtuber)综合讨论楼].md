@@ -518,3 +518,11 @@ AI这边无马总是以看扁这种暧昧的说辞跟黑井交涉，黑井肯定
 音游一看就是落后时代的粉丝向<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 动画看公司，但是真要是有名的公司现在就该放公司名了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  80proof  
+##### 2899#       发表于 2024-1-14 02:17
+
+小清水这同接曲线，田角半夜发力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

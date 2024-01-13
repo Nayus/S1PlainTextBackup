@@ -9115,3 +9115,19 @@ neet派怎么能组队的？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hagiwara  
+##### 2420#       发表于 2024-1-14 02:22
+
+<img src="https://img.saraba1st.com/forum/202401/14/022206vddq9gigi7di9k5d.jpg" referrerpolicy="no-referrer">
+
+<strong>ritu.jpg</strong> (110.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 02:22 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">确实挺像的
+

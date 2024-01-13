@@ -3708,3 +3708,20 @@ PV是不是还有一个新角色
 继续存石等所长</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是只能再次提前欧羡慕了
 
+
+*****
+
+####  清河子  
+##### 10854#       发表于 2024-1-13 18:56
+
+都督直接备战复活赛了还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没关系我只要一只亚里亚就满足预期了，加成有b玉亚里亚肯定来
+
+有点想奶亚里亚四星，但这年头也不好说四星好出还是五星好出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 10855#       发表于 2024-1-13 18:58
+
+想起来，等所长都是去年周年的事了，今年能不能出依然是未知数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

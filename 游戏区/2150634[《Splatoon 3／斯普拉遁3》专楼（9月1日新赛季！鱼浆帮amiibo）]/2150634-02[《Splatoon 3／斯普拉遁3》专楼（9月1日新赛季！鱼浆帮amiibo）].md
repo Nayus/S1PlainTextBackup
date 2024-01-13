@@ -9049,3 +9049,12 @@ neet派怎么能组队的？
 
 如果日常基本只打真格的话，确实不应该计较祭典的队友，毕竟涂地是喷喷唯一的休闲模式<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nor000  
+##### 2414#       发表于 2024-1-13 22:50
+
+我真笨弄得到处都是
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

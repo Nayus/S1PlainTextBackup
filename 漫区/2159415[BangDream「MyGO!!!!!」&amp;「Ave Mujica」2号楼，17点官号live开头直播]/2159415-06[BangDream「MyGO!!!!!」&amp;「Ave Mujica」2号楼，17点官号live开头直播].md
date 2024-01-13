@@ -14999,3 +14999,20 @@ Soyo the dangerous（指妈惹法克）
 
 [https://twitter.com/_A_jak_/status/1745634170574151809](https://twitter.com/_A_jak_/status/1745634170574151809)
 
+
+*****
+
+####  仟音一心  
+##### 8912#       发表于 2024-1-13 22:44
+
+<img src="https://p.sda1.dev/15/9f2f250e1a17eda8465c750a40f701b3/CMP_20240113224418778.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜苗  
+##### 8913#       发表于 2024-1-13 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63640756&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-13 22:17</a>
+羊目前最有成绩的作品就是我心危啊，去年的第一季成绩挺好了</blockquote>
+看投票好像没进前五？销量咋样
+

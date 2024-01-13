@@ -534,3 +534,16 @@ AI这边无马总是以看扁这种暧昧的说辞跟黑井交涉，黑井肯定
 
 第一次看到用同接曲线画画的 长见识了
 
+
+*****
+
+####  吃咸菜的  
+##### 2901#       发表于 2024-1-14 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63641896&amp;ptid=2117684" target="_blank">渡鸦骑士 发表于 2024-1-14 00:47</a>
+
+音游一看就是落后时代的粉丝向
+
+动画看公司，但是真要是有名的公司现在就该放公司名了 ...</blockquote>
+冷知识，绊之Allele是霸权社做的
+

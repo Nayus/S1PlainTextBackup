@@ -537,3 +537,19 @@ https://weibo.com/ttarticle/p/show?id=2309404989305537036498</blockquote>
 
 PureDark 也在弄 FSR 3.0 的 mod 了。
 
+
+*****
+
+####  bypass  
+##### 1072#         楼主| 发表于 2024-1-13 15:34
+
+强刷驱动上 AFMF，实际体验还是问题很多。
+
+<img src="https://img.saraba1st.com/forum/202401/13/153354rumtgk2cg626vsjj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (534.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-13 15:33 上传
+

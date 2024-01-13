@@ -8977,3 +8977,11 @@ neet派怎么能组队的？
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  藏獒·烨  
+##### 2406#       发表于 2024-1-13 15:37
+
+黄色好像烂掉的橘子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

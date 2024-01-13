@@ -3498,3 +3498,68 @@ PV是不是还有一个新角色
 
 丑御前好丑，而游戏中的模型以及设计和立绘越来越像伊吹和酒吞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 10837#       发表于 2024-1-13 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638001&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2024-1-13 17:40</a>
+
+有哪里统计哪个活动给的东西多吗
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+小番茄挖宝箱(カルデア･サマーアドベンチャー！ ～夢追う少年と夢見る少女～ 活动送泳装小番茄)，大班杨挖化石(連続活劇神話 ミシシッピ･ミササイザーズ   友情池1星玛丽班宁)，千利休泡茶(ぶっちぎり茶の湯バトル ぐだぐだ新邪馬台国 地獄から帰ってきた男   活动送一与)，这仨活动都是变种无限池，印象里小番茄挖宝箱是收益最大的
+
+*****
+
+####  exiaexa  
+##### 10838#       发表于 2024-1-13 17:57
+
+ 本帖最后由 exiaexa 于 2024-1-13 17:59 编辑 
+
+看了FSR联动，第一反应是找鬼岛去听雷光，丑御前打丑御前有什么不对的
+
+结果发现是20年开始
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+选了半天真的没啥好选的，这几年的活动着实难蹦
+
+最后单选了22年泳装，毕竟瓦尔基里三缺二
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 10839#       发表于 2024-1-13 17:58
+
+ 本帖最后由 eilot 于 2024-1-13 17:59 编辑 
+
+完全不明白營運搞甚麼?
+
+連過去活動都能搞投票來復刻
+
+營運還是正常運作時，基本上都是下年復刻上年活動，新舊活動輪流上...
+
+如果真是投票，我會選第一年那批活動，單純回收故事回顧...但可惜最遠只能選2020年的活動...
+
+為何不能弄一個過期活動區，將以前曾復刻的活動都丟去那裡，以前曾經通關的玩家直接是活動後狀態
+
+給新玩家補回，但毋須刷活動素材也能開啟下一關卡，刪了活動素材，掉的都是一般素材和活動禮裝1
+
+不要弄成interlude(估計營運都忘了)，將FREE關都刪了
+
+*****
+
+####  cenhr  
+##### 10840#       发表于 2024-1-13 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638177&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-13 17:58</a>
+
+完全不明白營運搞甚麼?
+
+連過去活動都能搞投票來復刻
+
+營運還是正常運作時，基本上都是下年復刻上年活動，新 ...</blockquote>
+懒惰，或者吃空间？
+

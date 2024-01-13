@@ -8940,3 +8940,23 @@ neet派怎么能组队的？
 
 还好没选白
 
+
+*****
+
+####  DeltaStriker  
+##### 2402#       发表于 2024-1-13 14:17
+
+这个银和金做得确实太怪了
+不过我感觉3的墨水效果都不如2做得好
+
+—— 来自 samsung SM-S9010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  KBAC  
+##### 2403#       发表于 2024-1-13 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63636387&amp;ptid=2150634" target="_blank">holoan 发表于 2024-1-13 13:58</a>
+ 不得不说这次白色确实做得太像JY了，推上一致意见 还好没选白</blockquote>
+大面积的还好，小面积的墨水那质感简直了，都给我整的稍微有点恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

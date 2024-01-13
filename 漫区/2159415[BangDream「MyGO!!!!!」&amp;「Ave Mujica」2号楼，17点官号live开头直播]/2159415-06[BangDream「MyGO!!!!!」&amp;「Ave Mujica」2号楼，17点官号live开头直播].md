@@ -14932,3 +14932,21 @@ Soyo the dangerous（指妈惹法克）
 突然想起来一个问题，烤羊的都说羊打牌，但是她之前有什么知名作品吗？</blockquote>
 就是因为她之前没啥真的特别强的作品才讽刺她打牌啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 8905#       发表于 2024-1-13 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63639988&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-1-13 21:02</a>
+
+虽然我们素睦人弱小，但是爱素可是同人美帝</blockquote>
+苏修说自己弱小，鸟叔真会说笑<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 8906#       发表于 2024-1-13 21:31
+
+其实是鸡狗够糊吧，以至于羊那个7点半号的推关注数在十个人里排挺高，像林小姐在虹团大概倒数前三，在这边是正数
+

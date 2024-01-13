@@ -9003,3 +9003,11 @@ neet派怎么能组队的？
 
 这期工也不爽啊，打了条龙只涨40分
 
+
+*****
+
+####  KBAC  
+##### 2409#       发表于 2024-1-13 21:30
+
+家人派能排到一些看名字就是中年人或者小朋友的，而且不是操作迟钝就是轮椅武器，怎么说呢，排到这样的队友再菜我也一点气也生不起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

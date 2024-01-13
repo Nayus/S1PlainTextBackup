@@ -483,3 +483,11 @@ AI这边无马总是以看扁这种暧昧的说辞跟黑井交涉，黑井肯定
 
 整体看下来的确是馅这边交涉优势，但是叶的交涉技巧性简直是近期最富看点了
 
+
+*****
+
+####  ヒトニナル  
+##### 2895#       发表于 2024-1-13 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神椿动画化 音游化
+

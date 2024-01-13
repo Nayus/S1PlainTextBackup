@@ -14898,3 +14898,26 @@ Soyo the dangerous（指妈惹法克）
 
 2024-1-13 20:20 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 8902#       发表于 2024-1-13 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638900&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-1-13 19:18</a>
+这两位都没见过面啊</blockquote>
+因为见了面就会立刻结婚杀伤力太大所以MyGO本篇里面被封印了（不是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  利维豚  
+##### 8903#       发表于 2024-1-13 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63639887&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-13 20:53</a>
+因为见了面就会立刻结婚杀伤力太大所以MyGO本篇里面被封印了（不是
+
+—— 来自 S1Fun ...</blockquote>
+虽然我们素睦人弱小，但是爱素可是同人美帝<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

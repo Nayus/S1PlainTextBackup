@@ -8,3 +8,11 @@
 
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1hlpydl9c7nj20xc0j2aw3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ladiesman802  
+##### 3332#       发表于 2024-1-13 13:59
+
+话说纸哥的生日舰长礼物还真是够慢的，叶子的泳装回礼物前几个月都收到了，纸哥的明信片居然还没打印出来，更不说签名了
+

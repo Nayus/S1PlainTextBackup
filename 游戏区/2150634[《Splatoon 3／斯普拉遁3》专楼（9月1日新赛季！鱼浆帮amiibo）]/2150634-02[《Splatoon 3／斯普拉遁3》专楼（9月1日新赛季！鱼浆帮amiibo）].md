@@ -8930,3 +8930,13 @@ neet派怎么能组队的？
  白色颜料好糟糕啊</blockquote>
 这个边缘偏透明的特殊墨水效果给了墨水一种稀粘液感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 2401#       发表于 2024-1-13 13:58
+
+不得不说这次白色确实做得太像JY了，推上一致意见
+
+还好没选白
+

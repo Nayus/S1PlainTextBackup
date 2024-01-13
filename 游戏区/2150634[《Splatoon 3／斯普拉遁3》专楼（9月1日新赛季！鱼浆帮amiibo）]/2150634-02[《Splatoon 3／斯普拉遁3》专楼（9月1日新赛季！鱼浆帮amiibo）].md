@@ -8985,3 +8985,13 @@ neet派怎么能组队的？
 
 黄色好像烂掉的橘子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 2407#       发表于 2024-1-13 18:31
+
+发电厂何必等金工，武器好点就能打
+
+生筋子啥时候再有机会才是问题
+

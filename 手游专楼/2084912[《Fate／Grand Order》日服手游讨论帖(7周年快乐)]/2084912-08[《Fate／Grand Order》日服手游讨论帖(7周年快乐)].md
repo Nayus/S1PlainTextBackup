@@ -3273,3 +3273,90 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然丑御前
 
+
+*****
+
+####  Jamaisvu  
+##### 10813#       发表于 2024-1-13 17:14
+
+<img src="https://img.saraba1st.com/forum/202401/13/171259v9jj9kihqfiquw9c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240113_171250.jpg</strong> (279 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-1-13 17:12 上传
+
+仇阶丑御前，果然不至于连续出五星rider。
+
+不知道还是不是红宝具，已经有魔王信了...
+
+*****
+
+####  khxooo  
+##### 10814#       发表于 2024-1-13 17:14
+
+好好好，丑御前和正雪一个池子。
+
+*****
+
+####  不垃圾屌丝  
+##### 10815#       发表于 2024-1-13 17:17
+
+已经可以想象之前一口咬定有周瑜的人的表情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  上坂莲华  
+##### 10816#       发表于 2024-1-13 17:18
+
+居然真的有正雪，这下不得不抽了（
+
+然后PV里面都没有郑成功和嘟嘟，直接备战复活赛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 10817#       发表于 2024-1-13 17:18
+
+周瑜和老郑估计得等下次联动了，以前的联动活动比如街机好像没有二池吧...
+
+*****
+
+####  cckuku11  
+##### 10818#       发表于 2024-1-13 17:19
+
+没有二期啊？那不是纯纯闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在相信是因为没有产能所以把武尊放到新年了
+
+*****
+
+####  angelooo  
+##### 10819#       发表于 2024-1-13 17:20
+
+郑弓直接奶死了，连正雪都能落地23333
+
+*****
+
+####  v22325  
+##### 10820#       发表于 2024-1-13 17:20
+
+我只有四十抽了……能出个正雪就行
+
+*****
+
+####  Jamaisvu  
+##### 10821#       发表于 2024-1-13 17:21
+
+<img src="https://img.saraba1st.com/forum/202401/13/172011gkqqiff2sqrtrkkq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240113_171956.jpg</strong> (225.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-13 17:20 上传
+
+考虑到螺旋社的惰性，严重怀疑这个造型就是丑御前三破。初始盔甲、一破露脸、三破魔化，然后共用一个宝具动画<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

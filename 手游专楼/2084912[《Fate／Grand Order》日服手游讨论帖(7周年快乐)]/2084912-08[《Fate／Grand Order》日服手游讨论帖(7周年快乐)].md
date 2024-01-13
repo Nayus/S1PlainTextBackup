@@ -3890,3 +3890,16 @@ PV是不是还有一个新角色
 
 咕哒不好说，学妹第二部之后真有种清空重来的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 10871#       发表于 2024-1-13 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63640081&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-13 21:11</a>
+
+哎，早该想到没有大木和周嘟嘟
+
+因为关联角色里没有孔明和秦良玉</blockquote>
+关联角色只是剧情会出场，不能用作论据吧。出剪影的时候很明显有丑御前，但FSR预热源赖光却没有加成。
+

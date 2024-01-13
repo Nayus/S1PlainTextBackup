@@ -524,3 +524,13 @@ Image_1704894013300.jpg
 <img src="https://p.sda1.dev/15/98acd582ffbaf1a65b8269557ff73bd2/QQ截图20240113214513.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/3d1e2c7cfafd917cf6d4d067623bef2e/QQ截图20240113214549.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19160#       发表于 2024-1-13 22:29
+
+毕竟一巡 bd 都把小百合罪己诏录到 making 里了…我是觉得一期生这种在巨大压力下认真努力不断自我反省所形成的战友情很打动人，当然一切都是建立在现场的表现上的。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

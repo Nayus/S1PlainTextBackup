@@ -3439,3 +3439,11 @@ PV是不是还有一个新角色
 
 兔女郎BBA的下棋活动也可以，轻松拿护符<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 10830#       发表于 2024-1-13 17:33
+
+女武神直接巡灵三个一起上啊，就算复刻也只能再拿一个，有病啊
+

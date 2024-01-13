@@ -547,3 +547,11 @@ AI这边无马总是以看扁这种暧昧的说辞跟黑井交涉，黑井肯定
 动画看公司，但是真要是有名的公司现在就该放公司名了 ...</blockquote>
 冷知识，绊之Allele是霸权社做的
 
+
+*****
+
+####  freakystar  
+##### 2902#       发表于 2024-1-14 04:27
+
+两次事件叶都不是直接当事人，同接咋还这么高？感觉他在t台和gta这类社交性强的游戏里面相当如鱼得水嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

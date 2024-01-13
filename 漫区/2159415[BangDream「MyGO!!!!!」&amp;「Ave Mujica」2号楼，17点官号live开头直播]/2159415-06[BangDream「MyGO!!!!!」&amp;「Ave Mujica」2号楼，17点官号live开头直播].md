@@ -15246,3 +15246,19 @@ wsd运营这么傻逼的吗<img src="https://static.saraba1st.com/image/smiley/f
 卧槽这p图。。。。为什么不能把她和lsl的p图技巧中和一下</blockquote>
 lsl那是P图吗，不是直出？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 8930#       发表于 2024-1-14 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63641743&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-14 00:19</a>
+卧槽这p图。。。。为什么不能把她和lsl的p图技巧中和一下</blockquote>
+车梦以跌的P图技术乃是Z8第三喜欢环节
+
+梦以的脸有点岁月痕迹了，要P可以理解，只是我觉得她一直没有意识到她自己颜最强的那块其实是五官比例……
+
+鸡狗团里P图技术最好的其实是圣青木和……甜甜圈女士。凛跌的P图技术不存在的，都是嗯直出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

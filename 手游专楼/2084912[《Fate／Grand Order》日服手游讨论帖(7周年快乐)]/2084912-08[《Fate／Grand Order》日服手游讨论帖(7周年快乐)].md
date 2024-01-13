@@ -3447,3 +3447,54 @@ PV是不是还有一个新角色
 
 女武神直接巡灵三个一起上啊，就算复刻也只能再拿一个，有病啊
 
+
+*****
+
+####  不垃圾屌丝  
+##### 10831#       发表于 2024-1-13 17:40
+
+有哪里统计哪个活动给的东西多吗
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  保罗赫伯特  
+##### 10832#       发表于 2024-1-13 17:42
+
+护符（石头）是特斯拉vs奥德修斯的高难活动多吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过一年给多少应该都是固定的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 10833#       发表于 2024-1-13 17:43
+
+小时候是由比，长大了是美纱姐是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 10834#       发表于 2024-1-13 17:43
+
+投了街机联动和21年泳装
+
+*****
+
+####  zechins  
+##### 10835#       发表于 2024-1-13 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63637846&amp;ptid=2084912" target="_blank">阿提拉 发表于 2024-1-13 17:24</a>
+
+笑死，都督是备战fsr联动最早的从者.jpg
+
+大字报可以再来一份了2333</blockquote>
+最早备战2024白情的选手<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 10836#       发表于 2024-1-13 17:46
+
+丑御前好丑，而游戏中的模型以及设计和立绘越来越像伊吹和酒吞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

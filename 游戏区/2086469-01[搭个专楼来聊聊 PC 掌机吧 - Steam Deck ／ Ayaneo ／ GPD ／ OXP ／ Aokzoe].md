@@ -527,3 +527,13 @@ https://weibo.com/ttarticle/p/show?id=2309404989305537036498</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  bypass  
+##### 1071#         楼主| 发表于 2024-1-13 08:17
+
+[https://www.bilibili.com/video/BV17e411H7yp](https://www.bilibili.com/video/BV17e411H7yp)
+
+PureDark 也在弄 FSR 3.0 的 mod 了。
+

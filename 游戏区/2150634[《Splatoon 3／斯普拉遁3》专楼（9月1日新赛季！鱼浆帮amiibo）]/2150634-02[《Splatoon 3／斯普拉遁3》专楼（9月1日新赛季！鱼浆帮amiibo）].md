@@ -8913,3 +8913,20 @@ neet派怎么能组队的？
 
 白色颜料好糟糕啊
 
+
+*****
+
+####  KBAC  
+##### 2399#       发表于 2024-1-13 13:26
+
+2代SpringFest正好是复活节，3代要搞估计也是复活节期间，那就是3月30-31日，特殊祭典这次估计都不会带2代广场玩（节省研究所那帮懒狗的工作量），所以秩序篇我猜下赛季中期（4月中旬左右）更新<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 2400#       发表于 2024-1-13 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63635959&amp;ptid=2150634" target="_blank">NeTlk 发表于 2024-1-13 13:00</a>
+ 白色颜料好糟糕啊</blockquote>
+这个边缘偏透明的特殊墨水效果给了墨水一种稀粘液感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

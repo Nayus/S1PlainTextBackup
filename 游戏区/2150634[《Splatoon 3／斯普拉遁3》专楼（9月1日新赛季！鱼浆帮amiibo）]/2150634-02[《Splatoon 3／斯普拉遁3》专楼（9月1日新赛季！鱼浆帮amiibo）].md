@@ -9058,3 +9058,13 @@ neet派怎么能组队的？
 我真笨弄得到处都是
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 2415#         楼主| 发表于 2024-1-13 23:46
+
+虽然一直在下雪，地面却一点积雪都没233，只有屋顶积雪
+
+这次3个人的装扮果然都好好看，麻辣鱿鱼就白色调加围巾而已
+

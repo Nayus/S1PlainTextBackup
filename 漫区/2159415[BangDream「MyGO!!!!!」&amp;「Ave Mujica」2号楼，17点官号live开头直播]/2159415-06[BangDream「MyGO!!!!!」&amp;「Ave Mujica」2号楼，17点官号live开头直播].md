@@ -15139,3 +15139,28 @@ ras当年还没进游戏前官号也是这样冷处理吗
 
 这下漏油又得被nga说成怨妇了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 8923#       发表于 2024-1-13 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63641501&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-13 23:42</a>
+
+ras当年还没进游戏前官号也是这样冷处理吗
+
+这下漏油又得被nga说成怨妇了
+
+ ...</blockquote>
+ras和mygo没进游戏前就算是动画播了官号也不会庆祝的，立希就是动画期间过了生日但官号毫无动静甚至b站号都没有庆祝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜苗  
+##### 8924#       发表于 2024-1-13 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63641539&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-13 23:47</a>
+
+ras和mygo没进游戏前就算是动画播了官号也不会庆祝的，立希就是动画期间过了生日但官号毫无动静甚至b站号 ...</blockquote>
+wsd运营这么傻逼的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

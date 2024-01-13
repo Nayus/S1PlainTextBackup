@@ -3360,3 +3360,82 @@ wls设计副本闲着没事，也没卡菌皇亲爹的意义，好久没出新�
 
 考虑到螺旋社的惰性，严重怀疑这个造型就是丑御前三破。初始盔甲、一破露脸、三破魔化，然后共用一个宝具动画<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 10822#       发表于 2024-1-13 17:22
+
+PV是不是还有一个新角色
+
+*****
+
+####  kyonkoism  
+##### 10823#       发表于 2024-1-13 17:23
+
+我的好兄弟伊织的愿望终于完成了，可以在嘉勒底24小时7天无休和从者厮杀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿提拉  
+##### 10824#       发表于 2024-1-13 17:24
+
+笑死，都督是备战fsr联动最早的从者.jpg
+
+大字报可以再来一份了2333
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qixinno2  
+##### 10825#       发表于 2024-1-13 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有9石 出张礼装就是胜利
+
+*****
+
+####  kyonkoism  
+##### 10826#       发表于 2024-1-13 17:26
+
+<img src="https://img.saraba1st.com/forum/202401/13/172534ye2eao0efo01q668.png" referrerpolicy="no-referrer">
+
+<strong>KX@M`NO)59C~H_(%UVJG5Z5.png</strong> (7.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-13 17:25 上传
+
+只能说雷太毕竟是巨乳党，偷偷给丑御前加了3个杯上去，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 10827#       发表于 2024-1-13 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63637864&amp;ptid=2084912" target="_blank">kyonkoism 发表于 2024-1-13 17:26</a>
+
+只能说雷太毕竟是巨乳党，偷偷给丑御前加了3个杯上去，笑死</blockquote>
+魔化之后变大了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 10828#       发表于 2024-1-13 17:30
+
+<blockquote>Jamaisvu 发表于 2024-1-13 17:21
+考虑到螺旋社的惰性，严重怀疑这个造型就是丑御前三破。初始盔甲、一破露脸、三破魔化，然后共用一个宝具 ...</blockquote>
+这是当然的啦，现在能偷懒就偷懒，只有三破能够拥有宝具.jpg
+
+*****
+
+####  保罗赫伯特  
+##### 10829#       发表于 2024-1-13 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63637631&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-13 17:00</a>
+
+深进兵 投票选复课活动</blockquote>
+不少人会投前年的泳装吧，能再拿个女武神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+兔女郎BBA的下棋活动也可以，轻松拿护符<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

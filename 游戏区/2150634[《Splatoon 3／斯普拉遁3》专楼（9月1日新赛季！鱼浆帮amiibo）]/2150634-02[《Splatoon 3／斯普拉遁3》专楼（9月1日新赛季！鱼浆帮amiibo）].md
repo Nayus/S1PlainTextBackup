@@ -9011,3 +9011,20 @@ neet派怎么能组队的？
 
 家人派能排到一些看名字就是中年人或者小朋友的，而且不是操作迟钝就是轮椅武器，怎么说呢，排到这样的队友再菜我也一点气也生不起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2410#       发表于 2024-1-13 22:06
+
+打到永远基本是输上去的，胜率大概30%都没有，好久不打对战，审查者已经不行了吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  苍蓝之枪  
+##### 2411#       发表于 2024-1-13 22:11
+
+感想就是避免对枪，针管我都对不过别人，还是玩不要瞄太准的武器
+

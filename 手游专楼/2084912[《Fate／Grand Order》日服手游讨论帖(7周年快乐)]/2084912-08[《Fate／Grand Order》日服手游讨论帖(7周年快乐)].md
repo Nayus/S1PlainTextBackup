@@ -3725,3 +3725,11 @@ PV是不是还有一个新角色
 
 想起来，等所长都是去年周年的事了，今年能不能出依然是未知数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 10856#       发表于 2024-1-13 19:02
+
+哎，大木和嘟嘟没了啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

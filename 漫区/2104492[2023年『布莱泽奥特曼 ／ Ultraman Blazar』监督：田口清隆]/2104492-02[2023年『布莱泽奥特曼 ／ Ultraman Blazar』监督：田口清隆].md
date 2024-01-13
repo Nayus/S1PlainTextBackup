@@ -24,3 +24,13 @@
 
 就剩一集了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 1604#       发表于 2024-1-13 10:55
+
+感觉好多坑没说明白就直接大结局了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

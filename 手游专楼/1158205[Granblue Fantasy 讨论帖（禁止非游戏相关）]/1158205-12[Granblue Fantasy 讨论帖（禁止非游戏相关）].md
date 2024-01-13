@@ -29,3 +29,14 @@
 
 晦气！连续炸服！
 
+
+*****
+
+####  adretyu67.  
+##### 17596#       发表于 2024-1-13 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63627485&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-1-12 16:10</a>
+
+好奇问多少人会打这活动</blockquote>
+有砂<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

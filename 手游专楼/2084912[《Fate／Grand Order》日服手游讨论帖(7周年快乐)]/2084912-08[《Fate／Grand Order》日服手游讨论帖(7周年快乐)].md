@@ -3765,3 +3765,28 @@ PV是不是还有一个新角色
 那么2期池就是狐狸和谁呢</blockquote>
 叶良树直播说这就是全部了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  清河子  
+##### 10860#       发表于 2024-1-13 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638903&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-13 19:19</a>
+那么2期池就是狐狸和谁呢
+
+狐狸不要是五星吧</blockquote>
+不好说了，本来我觉得都督5狐狸4，都督寄了以后……
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">其实我有点想要那个黑化白贞，cv配的那个有点哀愁的堕落圣女声线真不错啊，但不管是设定还是角色重复度，感觉都比大木实装概率更低
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">总不会真要实装武尊老婆吧，说好的奇迹般不可能重复的现界相遇呢
+
+
+*****
+
+####  清河子  
+##### 10861#       发表于 2024-1-13 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638919&amp;ptid=2084912" target="_blank">史蒂符 发表于 2024-1-13 19:21</a>
+叶良树直播说这就是全部了。</blockquote>
+啊？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

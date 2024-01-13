@@ -9068,3 +9068,30 @@ neet派怎么能组队的？
 
 这次3个人的装扮果然都好好看，麻辣鱿鱼就白色调加围巾而已
 
+
+*****
+
+####  罗克萨斯  
+##### 2416#       发表于 2024-1-14 00:43
+
+这颜色明明很好看，咋有人说像JY啊
+
+<img src="https://img.saraba1st.com/forum/202401/14/004313q92s421220k2kh0k.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240114004229.png</strong> (32.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 00:43 上传
+
+*****
+
+####  DeltaStriker  
+##### 2417#       发表于 2024-1-14 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63641877&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-14 00:43</a>
+这颜色明明很好看，咋有人说像JY啊</blockquote>
+你要不看看墨水效果？
+
+—— 来自 samsung SM-S9010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

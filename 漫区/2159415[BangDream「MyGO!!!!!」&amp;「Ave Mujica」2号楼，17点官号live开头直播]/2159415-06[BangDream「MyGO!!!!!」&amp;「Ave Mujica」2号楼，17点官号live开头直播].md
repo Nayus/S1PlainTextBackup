@@ -15296,3 +15296,20 @@ ras当年还没进游戏前官号也是这样冷处理吗
 梦以的脸有点岁月痕迹了，要P可以理解，只是我觉得她一直没有意识 ...</blockquote>
 化妆就可以解决的问题，真没必要P
 
+
+*****
+
+####  江口夕  
+##### 8934#       发表于 2024-1-14 00:43
+
+姨颜值还是在线，直出一点问题没有
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 8935#       发表于 2024-1-14 00:45
+
+没进手游的角色都是没什么官方庆祝的，就算有动画也不行，当然一般来说声优还是会动的，mygo没进游戏的时候几个cv都有发文庆祝，除了某人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

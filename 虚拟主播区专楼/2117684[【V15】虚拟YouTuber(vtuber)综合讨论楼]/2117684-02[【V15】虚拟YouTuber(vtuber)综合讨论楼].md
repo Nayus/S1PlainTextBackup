@@ -526,3 +526,11 @@ AI这边无马总是以看扁这种暧昧的说辞跟黑井交涉，黑井肯定
 
 小清水这同接曲线，田角半夜发力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  OldGlory  
+##### 2900#       发表于 2024-1-14 02:46
+
+第一次看到用同接曲线画画的 长见识了
+

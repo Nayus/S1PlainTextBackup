@@ -503,3 +503,14 @@ Image_1704894013300.jpg
 <img src="https://p.sda1.dev/15/74e139a4a0634994ca23b60d4303cd31/CMP_20240113113224904.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/393682ed1aa4f2621f146518bac94e63/CMP_20240113113224963.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19158#       发表于 2024-1-13 12:51
+
+青山渚，有趣的女人，还只对鱼是夸奖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以前就提过一巡时每场公演后都要开反省会，一巡making也有了相关内容
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

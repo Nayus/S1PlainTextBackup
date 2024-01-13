@@ -15164,3 +15164,20 @@ ras和mygo没进游戏前就算是动画播了官号也不会庆祝的，立希�
 ras和mygo没进游戏前就算是动画播了官号也不会庆祝的，立希就是动画期间过了生日但官号毫无动静甚至b站号 ...</blockquote>
 wsd运营这么傻逼的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鲍里斯  
+##### 8925#       发表于 2024-1-14 00:07
+
+唉，我的小睦头
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8926#       发表于 2024-1-14 00:09
+
+<img src="https://p.sda1.dev/15/e7b019c9f95a6a47cece8ca9776016b9/Image_1705162140036.jpg" referrerpolicy="no-referrer">https://www.pixiv.net/artworks/115144303
+

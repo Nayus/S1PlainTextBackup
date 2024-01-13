@@ -21,3 +21,13 @@
 <img src="https://p.sda1.dev/15/ed7adef5c094d28a894685e14b5180d3/CMP_20240113105333971.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/c8aaac7532018b47b49c432607db3754/CMP_20240113105403426.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7447#       发表于 2024-1-13 19:37
+
+新的步侑广播里兔子想让侑穿步梦的衣服，磕到了。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

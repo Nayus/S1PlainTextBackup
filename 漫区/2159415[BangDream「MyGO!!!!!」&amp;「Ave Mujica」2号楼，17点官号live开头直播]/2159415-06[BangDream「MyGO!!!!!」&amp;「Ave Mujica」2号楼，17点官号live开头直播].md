@@ -14848,3 +14848,14 @@ Soyo the dangerous（指妈惹法克）
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638204&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-13 18:01</a></blockquote>
 这两位都没见过面啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 8898#       发表于 2024-1-13 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638559&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-13 18:38</a>
+鼓手在大杀特杀</blockquote>
+<img src="https://p.sda1.dev/15/72ebc0fafa2b91e4584408c191c15f49/CMP_20240113193411069.jpg" referrerpolicy="no-referrer">
+放这张
+

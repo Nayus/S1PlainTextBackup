@@ -14983,3 +14983,19 @@ Soyo the dangerous（指妈惹法克）
 前两天怀旧wug就有感觉了，当年艾回整那三期团没少下功夫，比如林小姐这唱跳配音，问题是完全不火，营业更 ...</blockquote>
 不如怀旧美频的林佐
 
+
+*****
+
+####  御幸一也  
+##### 8911#       发表于 2024-1-13 22:35
+
+<img src="https://img.saraba1st.com/forum/202401/13/223403m8yrmxi7k6iy4y7r.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_아작(@_A_jak_)_20240112-022953_1745634170574151809_photo.jpg</strong> (198.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-13 22:34 上传
+
+[https://twitter.com/_A_jak_/status/1745634170574151809](https://twitter.com/_A_jak_/status/1745634170574151809)
+

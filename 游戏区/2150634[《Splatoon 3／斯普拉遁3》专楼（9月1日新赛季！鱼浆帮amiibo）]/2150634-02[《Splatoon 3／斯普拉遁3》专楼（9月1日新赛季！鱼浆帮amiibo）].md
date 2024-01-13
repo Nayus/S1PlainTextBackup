@@ -9036,3 +9036,16 @@ neet派怎么能组队的？
 
 凭什么有的人一天三把百倍，而我赢了5把十倍都碰不到百倍😡
 
+
+*****
+
+####  罗克萨斯  
+##### 2413#       发表于 2024-1-13 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63640277&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-1-13 21:30</a>
+
+家人派能排到一些看名字就是中年人或者小朋友的，而且不是操作迟钝就是轮椅武器，怎么说呢，排到这样的队友 ...</blockquote>
+祭典不想陪萌新玩很简单，日常多打涂地，把涂地胜率提上来，祭典按隐藏分匹配就不会和萌新做队友了。
+
+如果日常基本只打真格的话，确实不应该计较祭典的队友，毕竟涂地是喷喷唯一的休闲模式<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

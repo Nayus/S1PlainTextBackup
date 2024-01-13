@@ -491,3 +491,13 @@ AI这边无马总是以看扁这种暧昧的说辞跟黑井交涉，黑井肯定
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神椿动画化 音游化
 
+
+*****
+
+####  高等黑暗  
+##### 2896#       发表于 2024-1-13 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ツルギ最后放弃复仇和平交涉解决了……最后高潮的时候ツルギ6.5w同接叶5.5w同接，基本整个twitch的STGR视听者都跑过来了
+
+这么多观众的压力下两边都被迫提前发推让观众冷静，说实话除了niconico经验者那些顶着直球骂街还能脸色不变直播的猛男之外肯定是撑不住的，不过没选个人复仇这个最差选择算是可以了…
+

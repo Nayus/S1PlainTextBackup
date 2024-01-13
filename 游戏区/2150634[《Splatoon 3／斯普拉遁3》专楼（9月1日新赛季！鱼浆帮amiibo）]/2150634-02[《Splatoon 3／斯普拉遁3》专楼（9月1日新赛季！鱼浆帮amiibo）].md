@@ -9131,3 +9131,15 @@ neet派怎么能组队的？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">确实挺像的
 
+
+*****
+
+####  DeltaStriker  
+##### 2421#       发表于 2024-1-14 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63640710&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2024-1-13 22:11</a>
+感想就是避免对枪，针管我都对不过别人，还是玩不要瞄太准的武器</blockquote>
+感觉针管还是挺依赖水球起手这个combo吧
+
+—— 来自 samsung SM-S9010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

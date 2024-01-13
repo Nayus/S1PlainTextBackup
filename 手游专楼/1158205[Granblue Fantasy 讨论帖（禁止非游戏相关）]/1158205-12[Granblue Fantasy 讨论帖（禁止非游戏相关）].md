@@ -40,3 +40,15 @@
 好奇问多少人会打这活动</blockquote>
 有砂<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17597#       发表于 2024-1-13 14:38
+
+看到有团友没转盘号，又不想要角色的直接20
+块马云买了一个来放怪刷10连。
+玩个游戏真是拧巴啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

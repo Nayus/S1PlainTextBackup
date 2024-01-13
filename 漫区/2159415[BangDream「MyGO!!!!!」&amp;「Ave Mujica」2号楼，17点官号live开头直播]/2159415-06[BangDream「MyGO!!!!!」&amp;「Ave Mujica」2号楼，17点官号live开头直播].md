@@ -14876,3 +14876,25 @@ Soyo the dangerous（指妈惹法克）
 
 前两天怀旧wug就有感觉了，当年艾回整那三期团没少下功夫，比如林小姐这唱跳配音，问题是完全不火，营业更是debuff拉满，16个人连一对CP都磕不出来
 
+
+*****
+
+####  宿  
+##### 8901#       发表于 2024-1-13 20:20
+
+假面训练家祥子前来挑战了！
+
+假面训练家祥子派出了若叶睦！
+
+上吧！要乐奈！
+
+立希周围汇聚了极巨力！ ​​​
+
+<img src="https://img.saraba1st.com/forum/202401/13/202005nth3hhmqetmghz3h.png" referrerpolicy="no-referrer">
+
+<strong>raanamutsumi.png</strong> (172.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-13 20:20 上传
+

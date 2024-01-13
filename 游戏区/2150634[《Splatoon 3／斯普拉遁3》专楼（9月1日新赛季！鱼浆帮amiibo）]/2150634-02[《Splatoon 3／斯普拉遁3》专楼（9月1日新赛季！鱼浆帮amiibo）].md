@@ -8960,3 +8960,20 @@ neet派怎么能组队的？
  不得不说这次白色确实做得太像JY了，推上一致意见 还好没选白</blockquote>
 大面积的还好，小面积的墨水那质感简直了，都给我整的稍微有点恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yanglian72  
+##### 2404#       发表于 2024-1-13 14:25
+
+想想白色墨水喷到对面鱿的样子，更兴奋了（不是）
+
+*****
+
+####  秋月孝三  
+##### 2405#       发表于 2024-1-13 14:28
+
+三丽欧那次庆典才是真的像
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

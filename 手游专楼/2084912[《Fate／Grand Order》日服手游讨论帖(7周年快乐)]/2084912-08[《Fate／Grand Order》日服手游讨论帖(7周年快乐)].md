@@ -3563,3 +3563,43 @@ PV是不是还有一个新角色
 營運還是正常運作時，基本上都是下年復刻上年活動，新 ...</blockquote>
 懒惰，或者吃空间？
 
+
+*****
+
+####  exiaexa  
+##### 10841#       发表于 2024-1-13 18:07
+
+其实估计你们都忘了
+
+当初有哪年的线下活动说过
+
+每年通过活动下放的素材总量是差不多的
+
+这两年虽然活动减少了，但是单活动能换的材料变多了
+
+不开活动本质还是限制你素材获取，逼你去玩free或者集中爆肝池子
+
+能回收苹果最好，要是还能让你能砸点石头就更好了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  史蒂符  
+##### 10842#       发表于 2024-1-13 18:08
+
+ 本帖最后由 史蒂符 于 2024-1-13 18:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638211&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-13 18:02</a>
+
+懒惰，或者吃空间？</blockquote>
+不是，可能是19年引擎之后复刻旧活动得重新做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以活动复刻只有20年往后的。之前还说活动不复课，看来今年产能又拉了要拉复刻填档期了，说不定今年新活动比去年还少。去年连不用做地图的幕间和改模都没有，看着螺旋社已经打算拔管了。
+
+*****
+
+####  cenhr  
+##### 10843#       发表于 2024-1-13 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638284&amp;ptid=2084912" target="_blank">史蒂符 发表于 2024-1-13 18:08</a>
+
+不是，可能是19年引擎之后复刻旧活动得重新做，所以活动复刻只有20年往后的。之前还说活动不复课 ...</blockquote>
+预测今年可能只能搞定OC<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -15082,3 +15082,60 @@ Soyo the dangerous（指妈惹法克）
 
 无事发生了，官推一点反应都无<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 8919#       发表于 2024-1-13 23:34
+
+渡濑上次发推还是两天前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  笋干爆炸碱  
+##### 8920#       发表于 2024-1-13 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8921#       发表于 2024-1-13 23:42
+
+这个秋叶原店铺是你邦真爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/13/234138miuxjv1ceoi4ugfh.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1705160463637.jpg</strong> (160.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-13 23:41 上传
+
+<img src="https://img.saraba1st.com/forum/202401/13/234150g2fexf2efw962tqt.jpg" referrerpolicy="no-referrer">
+
+<strong>GDt778Ya4AAoV8R_format=jpg&amp;amp;name=large.jpg</strong> (490.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-13 23:41 上传
+
+<img src="https://img.saraba1st.com/forum/202401/13/234159accdf38pf233j6j0.jpg" referrerpolicy="no-referrer">
+
+<strong>GDt778Za0AAFWPF_format=jpg&amp;amp;name=large.jpg</strong> (495.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-13 23:41 上传
+
+*****
+
+####  jerryoq1  
+##### 8922#       发表于 2024-1-13 23:42
+
+ras当年还没进游戏前官号也是这样冷处理吗
+
+这下漏油又得被nga说成怨妇了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

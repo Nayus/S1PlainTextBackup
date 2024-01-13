@@ -3647,3 +3647,26 @@ PV是不是还有一个新角色
 
 还有魔夜联动，蘑菇你就不要立碑坊了，反正魔夜2也没了，也别装什么矜持了赶紧端出来让大家抽个爽。
 
+
+*****
+
+####  alucardcz  
+##### 10849#       发表于 2024-1-13 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638373&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-1-13 18:17</a>
+
+伊织和由井还真的英灵化了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提前欧羡慕
+
+*****
+
+####  史蒂符  
+##### 10850#       发表于 2024-1-13 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638409&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-13 18:21</a>
+
+他真是用舊活動拖時間也好，有活動送的鑽和有素材慢慢刷，總好過靠狩獵本或只得1關的禮裝本拖2~3星期，
+
+ ...</blockquote>
+回想当年大伙把复刻活动叫长草，tmd现在fgo怎么变成这样子<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">。
+

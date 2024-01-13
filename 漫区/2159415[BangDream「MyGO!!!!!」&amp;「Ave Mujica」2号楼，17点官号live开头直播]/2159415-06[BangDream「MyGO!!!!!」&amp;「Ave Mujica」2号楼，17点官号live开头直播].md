@@ -14921,3 +14921,14 @@ Soyo the dangerous（指妈惹法克）
 —— 来自 S1Fun ...</blockquote>
 虽然我们素睦人弱小，但是爱素可是同人美帝<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 8904#       发表于 2024-1-13 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638780&amp;ptid=2159415" target="_blank">蒜苗 发表于 2024-1-13 19:04</a>
+
+突然想起来一个问题，烤羊的都说羊打牌，但是她之前有什么知名作品吗？</blockquote>
+就是因为她之前没啥真的特别强的作品才讽刺她打牌啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

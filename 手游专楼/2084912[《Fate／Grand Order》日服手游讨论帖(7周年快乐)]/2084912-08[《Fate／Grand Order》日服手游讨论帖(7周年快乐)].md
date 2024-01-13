@@ -3858,3 +3858,13 @@ PV是不是还有一个新角色
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">亚里亚我的亚里亚……
 
+
+*****
+
+####  シャル  
+##### 10868#       发表于 2024-1-13 21:11
+
+哎，早该想到没有大木和周嘟嘟
+
+因为关联角色里没有孔明和秦良玉<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

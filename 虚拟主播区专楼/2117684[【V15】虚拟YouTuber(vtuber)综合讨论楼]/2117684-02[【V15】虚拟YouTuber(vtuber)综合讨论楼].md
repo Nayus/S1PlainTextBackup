@@ -555,3 +555,13 @@ AI这边无马总是以看扁这种暧昧的说辞跟黑井交涉，黑井肯定
 
 两次事件叶都不是直接当事人，同接咋还这么高？感觉他在t台和gta这类社交性强的游戏里面相当如鱼得水嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 2903#       发表于 2024-1-14 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63642316&amp;ptid=2117684" target="_blank">吃咸菜的 发表于 2024-1-14 02:54</a>
+冷知识，绊之Allele是霸权社做的</blockquote>
+好像有听说，但是那个制作也不像很用心吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

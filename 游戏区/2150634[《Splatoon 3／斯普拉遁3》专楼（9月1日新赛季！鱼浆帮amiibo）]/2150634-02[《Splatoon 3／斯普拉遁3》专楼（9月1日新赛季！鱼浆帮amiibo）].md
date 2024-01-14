@@ -9165,3 +9165,14 @@ neet派怎么能组队的？
 
 选和朋友一起度过也要窝着打祭奠，真讽刺。
 
+
+*****
+
+####  晴岚  
+##### 2424#       发表于 2024-1-14 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63642825&amp;ptid=2150634" target="_blank">Mr.Hopp 发表于 2024-1-14 09:09</a>
+
+选和朋友一起度过也要窝着打祭奠，真讽刺。</blockquote>
+朋友一起组排祭典啊
+

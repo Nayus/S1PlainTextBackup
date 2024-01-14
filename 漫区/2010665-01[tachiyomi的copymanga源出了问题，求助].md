@@ -3441,3 +3441,11 @@ tachiyomi为了保护自己把内置插件删了，增设了由第三方提供�
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  gaosf  
+##### 340#       发表于 2024-1-15 03:39
+
+问个问题，我添加了319楼的插件仓库，但是有插件显示更新之后无法安装，哪怕手动安装完也仍然显示的是旧版本插件，还在提醒我更新。有人碰到这样的情况吗？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+

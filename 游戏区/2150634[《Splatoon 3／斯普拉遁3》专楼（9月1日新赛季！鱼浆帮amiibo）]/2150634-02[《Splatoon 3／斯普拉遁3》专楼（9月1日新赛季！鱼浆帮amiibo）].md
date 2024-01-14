@@ -9318,3 +9318,13 @@ neet派怎么能组队的？
 
 好久没玩喷喷了拿出来玩一下 → 祭典了来打几把对战吧 → 垃圾游戏再也不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 2440#       发表于 2024-1-14 20:28
+
+晚上本想玩玩三色夺宝，结果开场就有人掉线，已经能想象出有多少国人裸连玩了，真就一个加速器都不舍得买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

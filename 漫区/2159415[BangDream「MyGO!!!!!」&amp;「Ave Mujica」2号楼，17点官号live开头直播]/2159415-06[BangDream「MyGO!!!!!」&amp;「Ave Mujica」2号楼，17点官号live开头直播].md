@@ -15689,3 +15689,58 @@ https://weibo.com/5092362335/4990068202669703
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  特拉·特尔特  
+##### 8972#       发表于 2024-1-14 20:23
+
+<img src="https://img.saraba1st.com/forum/202401/14/202326fsyyimyyb4jp40xz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 20:23 上传
+
+<img src="https://img.saraba1st.com/forum/202401/14/202332xwc6vy66v076c78v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 20:23 上传
+
+<img src="https://img.saraba1st.com/forum/202401/14/202338z5cwt2yulc21zrjr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 20:23 上传
+
+[Yui_K @YuiK48074789](https://twitter.com/YuiK48074789/status/1746464063364960264)
+
+*****
+
+####  特拉·特尔特  
+##### 8973#       发表于 2024-1-14 20:25
+
+<img src="https://img.saraba1st.com/forum/202401/14/202537icr11zddckjq8c8i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202401/14/202542ozy11pdn1v1113qp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 20:25 上传
+
+[Koa @Koa0427](https://twitter.com/Koa0427/status/1746433589980352925)
+

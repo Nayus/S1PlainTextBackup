@@ -534,3 +534,13 @@ Image_1704894013300.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 19161#       发表于 2024-1-14 20:30
+
+昨天yura，今天合鲤
+
+<img src="https://p.sda1.dev/15/7c0f0228f7117267e358b050ec4cf490/QQ截图20240114202409.jpg" referrerpolicy="no-referrer">
+

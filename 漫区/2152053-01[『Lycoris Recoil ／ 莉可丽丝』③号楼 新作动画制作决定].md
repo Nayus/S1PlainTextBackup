@@ -18835,3 +18835,11 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 2024-1-13 23:37 上传
 
+
+*****
+
+####  bakabaka999  
+##### 1456#       发表于 2024-1-14 20:29
+
+1.7 号 Aniplex 20周年 FES 蒜念台词的时候怎么是心脏要逃掉那段啊，PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

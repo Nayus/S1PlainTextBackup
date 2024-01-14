@@ -74,3 +74,11 @@
 
 下集地球全明星是吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kcalb  
+##### 1610#       发表于 2024-1-14 12:38
+
+其实对最终话最大期望只要像能第一集一样用大把经费把观众打服，做到这点就是平稳落地，道理只在拳头内把特摄部分拍爽再谈文戏
+

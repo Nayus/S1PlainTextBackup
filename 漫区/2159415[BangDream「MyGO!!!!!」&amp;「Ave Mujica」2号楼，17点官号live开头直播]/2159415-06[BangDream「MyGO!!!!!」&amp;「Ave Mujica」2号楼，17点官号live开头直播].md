@@ -15575,3 +15575,14 @@ ai也觉得双子说是真的
 
 渡濑还说了一句等一下有详细的，可能不是偷着庆祝而是要回家摆阵写小论文
 
+
+*****
+
+####  爱丁堡official  
+##### 8962#       发表于 2024-1-14 12:37
+
+X: FIREPILLAR_NSFW
+<img src="https://p.sda1.dev/15/0a216c185ee1af759f0c37a0e49a04df/IMG_CMP_17085472.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

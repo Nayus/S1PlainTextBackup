@@ -15390,3 +15390,45 @@ https://weibo.com/6470776556/4990007665756509
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">还有假生日真姐妹的可能性没有排除
 
+
+*****
+
+####  蒜苗  
+##### 8943#       发表于 2024-1-14 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63643037&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-14 09:54</a>
+还有假生日真姐妹的可能性没有排除</blockquote>
+怎么现在还有姐妹论支持者啊，难得
+
+*****
+
+####  御幸一也  
+##### 8944#       发表于 2024-1-14 10:06
+
+<img src="https://img.saraba1st.com/forum/202401/14/100502d5de195d9o53u2tc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0989.jpeg</strong> (61.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 10:05 上传
+
+渡瀨說今天是個非常好的日子，然後發了一堆黃瓜<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  笋干爆炸碱  
+##### 8945#       发表于 2024-1-14 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63643123&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-14 10:06</a>
+
+渡瀨說今天是個非常好的日子，然後發了一堆黃瓜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8946#       发表于 2024-1-14 10:08
+
+沒進遊戲=生日沒公開，我們裡面的人不會真的是只能暗戳戳祝福吧，武士道你死了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

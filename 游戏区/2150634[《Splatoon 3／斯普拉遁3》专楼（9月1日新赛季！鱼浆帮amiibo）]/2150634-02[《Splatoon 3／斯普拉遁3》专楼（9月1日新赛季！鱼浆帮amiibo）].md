@@ -9196,3 +9196,16 @@ neet派怎么能组队的？
 
 三色防守也太难了，中场第一纯纯累赘
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2427#       发表于 2024-1-14 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63642669&amp;ptid=2150634" target="_blank">星野航 发表于 2024-1-14 08:27</a>
+
+依然主宰，强力
+
+论坛助手,iPhone</blockquote>
+那就是我太菜了，拿不到人头<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">是不是要站中场偶尔前推一下比较好
+

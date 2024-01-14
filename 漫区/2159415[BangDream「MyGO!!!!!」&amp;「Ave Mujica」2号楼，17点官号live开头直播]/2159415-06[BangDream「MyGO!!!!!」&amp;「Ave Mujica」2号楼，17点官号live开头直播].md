@@ -15586,3 +15586,19 @@ X: FIREPILLAR_NSFW
 
 —— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  阿萨德飞过去  
+##### 8963#       发表于 2024-1-14 12:46
+
+都是青梅竹马，可能还更年长。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说明黄瓜吃太多不利于身体发育啊
+
+*****
+
+####  相坂君  
+##### 8964#       发表于 2024-1-14 12:51
+
+小蛋糕摆起来，小作文在路上！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

@@ -1279,3 +1279,13 @@ PV里的特训来了
 <img src="https://p.sda1.dev/15/499c40a11d0acaec6172566941994883/f84886c76108c6fc4dfbc2bbbf319675.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/d0d7340088b6815cd8b12345c70fbe47/8cdb4feff6f098fb65e6341691dabe57.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚瑟邓特  
+##### 3431#       发表于 2024-1-14 23:11
+
+喵萌出了
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

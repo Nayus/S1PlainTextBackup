@@ -604,3 +604,16 @@ PDD有一家就是店里改好的32G
 
 能接电25W的吗？？
 
+
+*****
+
+####  bypass  
+##### 1077#         楼主| 发表于 2024-1-14 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648664&amp;ptid=2086469" target="_blank">cc-2 发表于 2024-1-14 22:14</a>
+
+请教个问题，关于ROG掌机
+
+日常不接电模式25W玩，跑生化4，机能对我来说是足够了</blockquote>
+试试自定义模式拉个 25w？
+

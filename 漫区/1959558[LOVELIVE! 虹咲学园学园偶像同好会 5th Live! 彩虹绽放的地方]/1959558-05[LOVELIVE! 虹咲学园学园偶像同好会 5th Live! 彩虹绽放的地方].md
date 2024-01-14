@@ -133,3 +133,27 @@ Switch视觉小说游戏制作决定
 
 —— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  仟音一心  
+##### 7455#       发表于 2024-1-14 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63647906&amp;ptid=1959558" target="_blank">ads147147 发表于 2024-1-14 20:49</a>
+
+妈耶，完结篇太吓人了。。
+
+三部播完能上红莲剑姬吗。。。</blockquote>
+剧场版三部真的可以了，学园篇故事越来越不好编，硬续也不好。
+
+再说，有虹四格呢。
+
+最大的好消息是live破7，企划内前无古人。
+
+*****
+
+####  cybernetics31  
+##### 7456#       发表于 2024-1-14 22:02
+
+一年一部，3年呢，live开到9th问题不大，可以了已经
+

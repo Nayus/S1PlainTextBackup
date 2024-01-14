@@ -15853,3 +15853,23 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 今天氛围真好，希望睦在动画里也能得到大家的关爱，露出真心的笑容。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 8985#       发表于 2024-1-14 21:56
+
+<img src="https://img.saraba1st.com/forum/202401/14/215526fbjj6b7vnyi30tva.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 21:55 上传
+
+已知 今天ave的人在一起
+
+那麼 早上高尾提到的這個蛋糕，是單純的冷笑話，還是她真的買了個蛋糕呢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+高尾快點繼續推特爆一下後續，這對我很重要<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+

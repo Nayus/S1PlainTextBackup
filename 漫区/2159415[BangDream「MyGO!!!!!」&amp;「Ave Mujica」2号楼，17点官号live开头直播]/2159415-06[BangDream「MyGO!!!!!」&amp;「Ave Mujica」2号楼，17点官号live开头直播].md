@@ -15873,3 +15873,13 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 高尾快點繼續推特爆一下後續，這對我很重要<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  爱丁堡official  
+##### 8986#       发表于 2024-1-14 22:15
+
+这2024年鸡团还要展现4次生日团魂？让我们期待狗团<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

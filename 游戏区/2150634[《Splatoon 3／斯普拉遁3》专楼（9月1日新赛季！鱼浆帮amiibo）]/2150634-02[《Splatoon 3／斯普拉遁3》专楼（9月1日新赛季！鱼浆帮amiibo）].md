@@ -9354,3 +9354,26 @@ neet派怎么能组队的？
 
 坐上审查者轮椅之后一切都变得舒适起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hisousihou  
+##### 2443#       发表于 2024-1-14 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648150&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-14 21:16</a>
+
+审查者现在打涂得是不是比鹦鹉螺要强了？刚刚打挑战那场，虽然对枪基本完胜，但看结算，对面审查者涂地击杀 ...</blockquote>
+最新一次更新是大幅加强了审查者涂地的。
+
+*****
+
+####  星野航  
+##### 2444#       发表于 2024-1-14 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648150&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-14 22:16</a>
+
+审查者现在打涂得是不是比鹦鹉螺要强了？刚刚打挑战那场，虽然对枪基本完胜，但看结算，对面审查者涂地击杀 ...</blockquote>
+强，而且会打的审查者也不怎么怕鹦鹉螺了现在，饮料全程灌满，灵敏是不愁的
+
+而且涂地比鹦鹉螺舒服多了，鹦鹉螺打得好点可能上个1000，审查者基本是保底1000，正常发挥的话
+

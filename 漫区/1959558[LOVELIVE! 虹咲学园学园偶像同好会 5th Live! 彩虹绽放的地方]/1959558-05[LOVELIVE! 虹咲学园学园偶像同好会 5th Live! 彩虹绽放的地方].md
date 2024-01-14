@@ -204,3 +204,26 @@ SINGING, DREAMING, NOW!
 ——W Encore——
 Fly with You!!
 
+
+*****
+
+####  仟音一心  
+##### 7458#       发表于 2024-1-14 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648526&amp;ptid=1959558" target="_blank">cybernetics31 发表于 2024-1-14 22:02</a>
+一年一部，3年呢，live开到9th问题不大，可以了已经</blockquote>
+虹动画可以说是企划内最不需要担心的，可能也是唯一不需要担心的。
+《红莲的剑姬》剧情完全可以揉到剧场版里去，篇幅内容都很合适。
+异世界剧情《虹咲传说 虹之守护者》都出到2《虹之旅途》了，按小说内容直接拍秒杀幻日动画。
+
+*****
+
+####  Skyline_R  
+##### 7459#       发表于 2024-1-14 22:20
+
+ 本帖最后由 Skyline_R 于 2024-1-14 22:22 编辑 
+
+剧场版1这个封面是krrr画的吧，比起把每个人塞进封面的传统偶像片kv，确实是有点惊喜/眼前一亮了
+
+(确实是krrr，河村发推说了[X (twitter.com)](https://twitter.com/mimulan25/status/1746527411393728920)
+

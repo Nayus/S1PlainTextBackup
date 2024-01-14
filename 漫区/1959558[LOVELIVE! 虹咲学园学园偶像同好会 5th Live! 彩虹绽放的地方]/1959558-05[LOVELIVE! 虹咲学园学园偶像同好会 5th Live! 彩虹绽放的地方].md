@@ -91,3 +91,25 @@ SINGING, DREAMING, NOW!
 <img src="https://p.sda1.dev/15/cfaf53a915fdaae25397677eda91c1ce/73c3d039gy1hltcfvi1p5j21hc0u0hdt.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/29676d66594f9fde7ca7aa9613405fdb/73c3d039gy1hltcfm7193j21hc0u0kbf.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Grahamlinks  
+##### 7451#       发表于 2024-1-14 19:12
+
+开香槟咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7452#       发表于 2024-1-14 19:22
+
+7th Live决定
+Switch视觉小说游戏制作决定
+剧场版三部曲完结篇第1部
+将于2024年9月6日公开
+<img src="https://p.sda1.dev/15/543f3b8aa83782537580f154826e3894/CMP_20240114192150141.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/c216fc100457304d45f5a4abb9593c75/CMP_20240114192150204.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/34d2dd52a9b48348aeb0acfa1c8ee368/CMP_20240114192150276.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/16006e28d091b3b1a5bbe568284511d9/CMP_20240114192150346.jpg" referrerpolicy="no-referrer">
+

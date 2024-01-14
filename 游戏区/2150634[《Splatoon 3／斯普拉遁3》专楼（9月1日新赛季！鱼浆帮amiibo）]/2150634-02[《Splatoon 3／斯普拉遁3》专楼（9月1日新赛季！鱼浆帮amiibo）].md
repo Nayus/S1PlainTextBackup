@@ -9220,3 +9220,13 @@ neet派怎么能组队的？
 那就是我太菜了，拿不到人头是不是要站中场偶尔前推一下比较好</blockquote>
 现在审查者一局下来不涂到1000p+基本可以说是不合格了，常规就是1000p起，所以窝着肯定是不行滴
 
+
+*****
+
+####  秋月孝三  
+##### 2429#       发表于 2024-1-14 13:47
+
+三色守方虐泉就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -15432,3 +15432,34 @@ https://weibo.com/6470776556/4990007665756509
 
 沒進遊戲=生日沒公開，我們裡面的人不會真的是只能暗戳戳祝福吧，武士道你死了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCCTHUN  
+##### 8947#       发表于 2024-1-14 10:24
+
+官方没公布睦头人生日，只能偷着庆祝也太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 8948#       发表于 2024-1-14 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">明年睦睦还是要偷着庆祝
+
+*****
+
+####  Kasroz  
+##### 8949#       发表于 2024-1-14 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">明年母鸡卡第一集就是给睦宝宝庆生
+
+*****
+
+####  爱丁堡official  
+##### 8950#       发表于 2024-1-14 10:32
+
+还是来了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

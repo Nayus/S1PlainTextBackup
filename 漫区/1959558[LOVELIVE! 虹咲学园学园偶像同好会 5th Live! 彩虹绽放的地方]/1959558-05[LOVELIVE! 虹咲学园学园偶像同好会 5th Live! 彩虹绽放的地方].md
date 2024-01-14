@@ -286,3 +286,22 @@ Fly with You!!
 
 标题都是krrr写的
 
+
+*****
+
+####  ads147147  
+##### 7465#       发表于 2024-1-14 23:34
+
+目前这些内容都很稳，稳定爆米五年都可以了，主要是那个as复活的视觉小说不知道要怎么搞，官方爱相随咩，参考隔壁莲团。还是作为as的重启作从头写新世界线？感觉这个视觉小说蛮期待（官中呢亲）
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  仟音一心  
+##### 7466#       发表于 2024-1-14 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63649111&amp;ptid=1959558" target="_blank">利维豚 发表于 2024-1-14 22:52</a>
+神企划</blockquote>
+要知道这是一个一开始并没有动画化打算的企划。
+

@@ -24834,3 +24834,118 @@ github项目说明截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1178#       发表于 2024-1-14 23:40
+
+DeepSeekMoE
+
+推动混合专家(MoE/Mixture-of-Experts)语言模型迈向终极的专业特化
+
+github项目主页:https://github.com/deepseek-ai/DeepSeek-MoE
+
+在大型语言模型时代，混合专家(Mixture-of-Experts)是一种有前景的架构，用于在扩大模型参数规模时管理计算成本，然而传统的MoE架构(如GShard)在确保专家的专业特化方面面临挑战，因为每次只激活𝑁个专家中的top-𝐾个专家，这使得每个专家都需要获得非重叠且专注的知识
+
+为此，本文提出了DeepSeekMoE架构，以实现终极的专家特化，它包含两个主要策略:
+1.精密地将专家细分为𝑚𝑁个，并从中激活𝑚𝐾个，从而实现对于激活专家而言更灵活的组合
+2.将𝐾𝑠个专家独立为共享专家，旨在捕捉共同知识并减少路由专家中的冗余
+
+从一个适度规模的2B参数开始，实验证明DeepSeekMoE 2B与GShard 2.9B的性能相当，而后者具有1.5倍的专家参数和计算量，此外，DeepSeekMoE 2B几乎接近具有相同总参数数量的密集对应模型的性能，这为MoE模型设定了边界上限，随后，通过将DeepSeekMoE扩展到16B参数，展现出了与LLaMA2 7B相当的性能，且仅需约40%的计算量
+
+此外，还初步尝试将DeepSeekMoE扩展到145B参数，并始终验证了其相对于GShard架构的实质性优势，并展示其性能与DeepSeek 67B相当，且仅使用了28.5%(甚至是18.2%)的计算量
+
+<img src="https://img.saraba1st.com/forum/202401/14/233847fl8mt7i1tmt8sh8h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114-233411__01.jpg</strong> (115.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:38 上传
+
+DeepSeekMoE 16B与开源模型在Open LLM排行榜上的对比，红色虚线是通过将除了DeepSeekMoE 16B以外的所有模型的数据点进行线性拟合得到的，DeepSeekMoE 16B始终以较大的优势击败了具有相似数量激活参数的模型，并且相对于比其大了约2.5倍激活参数的LLaMA2 7B实现了可竞争的性能
+
+<img src="https://img.saraba1st.com/forum/202401/14/233855s58usou85l58ouuo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114-233429__01.jpg</strong> (299.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:38 上传
+
+DeepSeekMoE的示意图
+
+子图(a)展示了传统的top-2路由策略的MoE层
+子图(b)说明了更细粒度的专家分割策略
+子图(c)展示了共享专家独立整合的策略
+
+这构成了完整的DeepSeekMoE架构，值得注意的是，在这三种架构中，专家参数和计算成本保持恒定
+
+<img src="https://img.saraba1st.com/forum/202401/14/233903ezlgh6jtjth2ll9q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114-233456__01.jpg</strong> (432.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:39 上传
+
+验证实验的评估结果，粗体表示最佳结果，相比其他MoE架构，DeepSeekMoE展现出了明显的性能优势
+
+<img src="https://img.saraba1st.com/forum/202401/14/233908q7875pcbrnpi4pb5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114-233552__01.jpg</strong> (342.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:39 上传
+
+DeepSeekMoE、更大的GShard模型和更大的密集模型的对比
+
+在“# Experts”一行中，𝑎+𝑏表示𝑎个共享专家和𝑏个路由专家
+在“# Activated Experts”一行中，𝑎+𝑏表示𝑎个激活的共享专家和𝑏个激活的路由专家
+
+DeepSeekMoE实现了与包含1.5倍专家参数和计算量的GShard模型相当的性能，此外，DeepSeekMoE几乎接近具有16倍FFN参数的密集模型的性能，这为MoE模型的模型容量设定了边界上限
+
+<img src="https://img.saraba1st.com/forum/202401/14/233923tpc7ztfhroj7dxrj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114-233559__01.jpg</strong> (200.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:39 上传
+
+DeepSeekMoE的消融实验，为了表达清晰，性能已经标准化为最佳性能，所有对比的模型具有相同数量的参数和激活参数，可以发现，细粒度的专家分割和共享的专家独立都对整体性能有所贡献
+
+<img src="https://img.saraba1st.com/forum/202401/14/233931boc8p6jocgsl7lj5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114-233607__01.jpg</strong> (130.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:39 上传
+
+禁用不同比例的top路由专家的Pile损失，值得注意的是，DeepSeekMoE对禁用top路由专家的比例更敏感，这表明DeepSeekMoE中的路由专家之间的冗余较低
+
+<img src="https://img.saraba1st.com/forum/202401/14/233939jeeme4bcmxl614ss.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114-233614__01.jpg</strong> (144.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:39 上传
+
+DeepSeekMoE中不同数量的激活路由专家的Pile损失，仅需4个激活的路由专家，DeepSeekMoE就能达到与GShard相当的Pile损失
+
+<img src="https://img.saraba1st.com/forum/202401/14/234000v0qqs4vvdk3dj8kd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114-233627__01.jpg</strong> (184.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:40 上传
+
+GShard和DeepSeekMoE(从头开始训练)激活专家数量减半的对比，在总专家参数相同且只有一半激活专家参数的情况下，DeepSeekMoE仍然优于GShard
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

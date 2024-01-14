@@ -157,3 +157,50 @@ Switch视觉小说游戏制作决定
 
 一年一部，3年呢，live开到9th问题不大，可以了已经
 
+
+*****
+
+####  仟音一心  
+##### 7457#       发表于 2024-1-14 22:09
+
+神奈川DAY2
+ーーTOKIMEKI Runners特殊映像ーー
+KAGAYAKI Don't forget!
+ーーMC&amp;CR①ーー
+ーー幕間①ーー
+チェリーボム
+Cooking with Love
+My Shadow
+Waku Waku! Monday Morning
+5201314
+恋するSunflower
+Request for U
+背伸びしたって
+Feel Alive
+Walking Dream
+私はマグネット
+小悪魔LOVE♡
+Lemonade
+咬福論
+New Year's March！
+Happy New Year Days
+ーー幕間②ーー
+Go Our Way！
+Just Believe!!!
+Fly with You!!
+
+ーーEncoreーー
+Love U my friends
+Fire Bird（Short Ver.）
+決意の光（Short Ver.）
+Toy Doll（Short Ver.）
+TOKIMEKI Runners
+恋するMagic!!
+わちゅごなどぅー
+ーーMC②ーー
+OUR P13CES!!!
+SINGING, DREAMING, NOW!
+
+——W Encore——
+Fly with You!!
+

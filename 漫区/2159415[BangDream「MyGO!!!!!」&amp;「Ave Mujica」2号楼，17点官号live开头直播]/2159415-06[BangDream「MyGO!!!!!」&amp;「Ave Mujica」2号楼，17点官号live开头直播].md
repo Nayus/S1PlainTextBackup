@@ -15977,3 +15977,11 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 <img src="https://p.sda1.dev/15/0e924409126ac826ecb01ea2ee582a7e/CMP_20240115072517772.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 8995#       发表于 2024-1-15 07:50
+
+看紫吧对比d二代和邦二的，wsd不会真想让🐔被狗团对邦撞翻吧，真出现这种剧情的话我不好评价了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

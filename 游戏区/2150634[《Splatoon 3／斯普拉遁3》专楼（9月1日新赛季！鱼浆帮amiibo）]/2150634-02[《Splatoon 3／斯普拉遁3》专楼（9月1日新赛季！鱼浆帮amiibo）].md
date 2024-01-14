@@ -9310,3 +9310,11 @@ neet派怎么能组队的？
 
 每次祭典都能让我想起为什么喷3只玩打工
 
+
+*****
+
+####  heseran  
+##### 2439#       发表于 2024-1-14 17:40
+
+好久没玩喷喷了拿出来玩一下 → 祭典了来打几把对战吧 → 垃圾游戏再也不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

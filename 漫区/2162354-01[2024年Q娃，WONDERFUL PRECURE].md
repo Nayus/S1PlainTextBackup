@@ -2222,3 +2222,13 @@ Q娃死过生物吗？不包括化成灰消散</blockquote>
 
 能不能就别给狗吃任何乱七八糟的东西<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 489#       发表于 2024-1-14 08:16
+
+OP/ED试听
+
+[https://www.bilibili.com/video/BV1XN4y1v7L6/](https://www.bilibili.com/video/BV1XN4y1v7L6/)
+

@@ -24949,3 +24949,83 @@ GShard和DeepSeekMoE(从头开始训练)激活专家数量减半的对比，在�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1179#       发表于 2024-1-15 01:19
+
+LEGO
+
+语言增强的多模态基准(Grounding)模型
+
+github项目主页:https://github.com/lzw-lzw/LEGO
+
+多模态大型语言模型在各种模态的多种任务中都展示了令人印象深刻的性能，然而，现有的多模态模型主要侧重于捕捉每个模态内的全局信息，而忽视了跨模态感知局部信息的重要性，因此，这些模型缺乏有效理解输入数据的细粒度细节的能力，这限制了它们在需要更细致理解的任务中的性能，为了解决这个限制，有必要开发能够在多个模态之间实现细粒度理解的模型，从而增强它们在广泛任务中的适用性
+
+在本文中，提出了一种名为LEGO的语言增强多模态基准模型，除了捕捉像其他多模态模型一样的全局信息外，提出的模型在需要对输入中的局部信息进行详细理解的任务中表现出色，能够精确识别和定位图像中的特定区域或视频中的特定时刻
+
+为了实现这个目标，设计了一个多样化的数据集构建流程，构建了一个用于模型训练的多模态、多粒度(multi-modal,multi-granularity)数据集
+
+<img src="https://img.saraba1st.com/forum/202401/15/011915qmj8lqiysjgii8d8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-011640__01.jpg</strong> (476.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:19 上传
+
+LEGO是一个统一的端到端多模态基准模型，展示了LEGO在一系列多模态任务上的性能，包括:图像基准，视频基准，声音基准，多模态理解
+
+<img src="https://img.saraba1st.com/forum/202401/15/011920mbrea2496eec9xza.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-011654__01.jpg</strong> (285.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:19 上传
+
+LEGO的整体结构包括每种模态(视频、图像、音频等)的独立编码器(separate encoders)和适配器(adapters)，每种模态的输入经过其独立的编码器和适配器处理后获得模态嵌入(modality embeddings)，图中展示了使用视频和图像模态的两个示例，蓝色框表示视频输入，黄色框表示图像输入
+
+<img src="https://img.saraba1st.com/forum/202401/15/011927c77zi10ly18gvvid.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-011712__01.jpg</strong> (389.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:19 上传
+
+两阶段数据集构建流程和三阶段训练的数据集示例，第一和第二阶段的训练数据通过数据集转换获得，第三阶段的数据通过指令调整数据集生成
+
+<img src="https://img.saraba1st.com/forum/202401/15/011931mfr99vfwr9w5f8rw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-011720__01.jpg</strong> (325.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:19 上传
+
+在指代表达理解(REC/referring expression comprehension)任务上的性能对比，模型名称后面的括号中的数字代表输入图像的分辨率，"*"表示模型使用了额外的图像区域感知模块
+
+<img src="https://img.saraba1st.com/forum/202401/15/011936gr2y9k7yeo245ovk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-011726__01.jpg</strong> (73.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:19 上传
+
+在时间基准任务上的性能对比
+
+<img src="https://img.saraba1st.com/forum/202401/15/011940iy3psjp3rh4zssyl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-011733__01.jpg</strong> (77.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:19 上传
+
+在Chardes-STA数据集上不同视频帧数量的结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

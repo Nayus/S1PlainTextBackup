@@ -1289,3 +1289,13 @@ PV里的特训来了
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  亚瑟邓特  
+##### 3432#       发表于 2024-1-15 00:41
+
+<img src="https://p.sda1.dev/15/4d22571fd7b5502f795135935e1f4f10/CMP_20240115004113085.png" referrerpolicy="no-referrer">绝对要上太空了，左边有人认下吗？就认识个土5
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

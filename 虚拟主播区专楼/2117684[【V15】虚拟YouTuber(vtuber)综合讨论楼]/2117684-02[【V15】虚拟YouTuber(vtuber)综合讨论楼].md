@@ -596,3 +596,12 @@ https://www.youtube.com/watch?v=T0hEbIRi9xg
 
  つな终于在去年生日提到对街霸6感兴趣后的两个多月的今天，重新捡起这游戏了。这下vspo有4个人，不知道セナ还对这游戏感兴趣不（
 
+
+*****
+
+####  渡鸦骑士  
+##### 2907#       发表于 2024-1-15 00:39
+
+虽然知道希小姐有个小姐妹团。但是没想到kmnz的liz和不磨都毕业后？直接立马活动了。
+该说果断好呢还是……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

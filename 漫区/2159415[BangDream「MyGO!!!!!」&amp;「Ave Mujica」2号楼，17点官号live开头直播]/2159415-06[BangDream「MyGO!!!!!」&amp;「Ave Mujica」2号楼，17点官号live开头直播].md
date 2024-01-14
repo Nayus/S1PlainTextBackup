@@ -15762,3 +15762,12 @@ https://weibo.com/5092362335/4990068202669703
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  akirakira  
+##### 8975#       发表于 2024-1-14 21:05
+
+https://x.com/__kurokurokuro/status/1746213042768212195?s=20
+<img src="https://p.sda1.dev/15/c77e4765af54047682ad1a0f616688c6/CMP_20240114220519002.jpg" referrerpolicy="no-referrer">
+

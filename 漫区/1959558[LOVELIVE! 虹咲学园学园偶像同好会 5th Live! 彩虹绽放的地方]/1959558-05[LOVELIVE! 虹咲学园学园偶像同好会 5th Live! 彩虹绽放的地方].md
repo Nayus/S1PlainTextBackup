@@ -328,3 +328,13 @@ Fly with You!!
 
 —— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  仟音一心  
+##### 7469#       发表于 2024-1-14 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63649463&amp;ptid=1959558" target="_blank">ads147147 发表于 2024-1-14 23:34</a>
+目前这些内容都很稳，稳定爆米五年都可以了，主要是那个as复活的视觉小说不知道要怎么搞，官方爱相随咩，参 ...</blockquote>
+兔：switch就是个屏幕比手机大点，可以连电视📺的。
+

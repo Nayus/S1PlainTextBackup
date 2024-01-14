@@ -15622,3 +15622,12 @@ X：Raito_Taisha
 
 还是个旧图
 
+
+*****
+
+####  akirakira  
+##### 8966#       发表于 2024-1-14 13:16
+
+睦生贺的神仙手书<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+https://weibo.com/5092362335/4990068202669703
+

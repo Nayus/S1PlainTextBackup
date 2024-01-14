@@ -15969,3 +15969,11 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 [[破事水]15岁时的高尾奏音](https://bbs.nga.cn/read.php?tid=38992469)
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8994#       发表于 2024-1-15 07:25
+
+<img src="https://p.sda1.dev/15/0e924409126ac826ecb01ea2ee582a7e/CMP_20240115072517772.jpg" referrerpolicy="no-referrer">
+

@@ -25104,3 +25104,163 @@ github项目主页(stay tuned):https://github.com/zhaoyue-zephyrus/video-instruc
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1181#       发表于 2024-1-15 03:26
+
+知识翻译
+
+一种模型压缩的新途径
+
+github项目主页:https://github.com/zju-SWJ/KT
+
+近年来，深度学习取得了令人瞩目的进展，但这也使得模型训练、推理和存储的开销不断增加，虽然现有的模型压缩方法致力于在保持高准确性的同时减少模型参数的数量，但它们不可避免地需要重新训练压缩模型或施加架构限制
+
+为了克服这些限制，本文提出了一种新的框架，称为“知识翻译(KT/Knowledge Translation)”，其中，训练了一个“翻译”模型，该模型接收较大模型的参数并生成压缩的参数
+
+KT的概念借鉴了语言翻译，它有效地利用神经网络将不同的语言转换成具有完全相同意义的形式，因此，本文探索了神经网络将不同大小的模型转换为功能相同的模型的潜力，提出了一个全面的KT框架，引入了数据增强策略以增强模型的性能，尽管训练数据受限，但成功地在MNIST数据集上证明了KT的可行性
+
+<img src="https://img.saraba1st.com/forum/202401/15/032504oaqeqaqqtak6b216.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032115.jpg</strong> (44.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:25 上传
+
+模型压缩方法的对比
+
+<img src="https://img.saraba1st.com/forum/202401/15/032510c2f2junjjufftu42.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032129.jpg</strong> (87.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:25 上传
+
+语言和知识翻译的示意图对比
+
+<img src="https://img.saraba1st.com/forum/202401/15/032514teg25ugbycbzmm03.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032144.jpg</strong> (119.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:25 上传
+
+知识翻译的概览图
+
+<img src="https://img.saraba1st.com/forum/202401/15/032519r11varjjrojyno9v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032154.jpg</strong> (42.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:25 上传
+
+知识翻译的块架构示例
+
+<img src="https://img.saraba1st.com/forum/202401/15/032524py963p2d2fd3dt4u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032210.jpg</strong> (52.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:25 上传
+
+不同架构的拟合能力评估
+
+<img src="https://img.saraba1st.com/forum/202401/15/032528fzvve5c3s8oi3omi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032221.jpg</strong> (67.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:25 上传
+
+模型架构的详细信息
+
+<img src="https://img.saraba1st.com/forum/202401/15/032554w9hxxzgxbat9tnus.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032235.jpg</strong> (81.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:25 上传
+
+使用不同的模型架构进行参数分配和知识翻译的准确率%对比，粗体数值表示最佳结果
+
+<img src="https://img.saraba1st.com/forum/202401/15/032559un6qfofheftd2trf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032252.jpg</strong> (90.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:25 上传
+
+使用不同方法获得的特征可视化，基础模型训练了300个epoch以用于知识翻译
+
+<img src="https://img.saraba1st.com/forum/202401/15/032603kxsmiofummedm6su.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032303.jpg</strong> (60.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:26 上传
+
+使用更长的训练epoch时的准确率%和改进%的对比，粗体数值表示最佳结果，改进是当前模型的最佳准确率与表3中对应模型的最佳准确率之间的差异
+
+<img src="https://img.saraba1st.com/forum/202401/15/032616f99zegs572ggo7kg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032318.jpg</strong> (73.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:26 上传
+
+Small和Wide模型的训练损失和评估准确率%
+
+<img src="https://img.saraba1st.com/forum/202401/15/032620r2l232lxuhf3x3ui.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032338.jpg</strong> (47.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:26 上传
+
+随机初始化(左)和知识翻译的评估准确率分布，x轴上的准确率%表示评估准确率在[a-5%, a]范围内
+
+<img src="https://img.saraba1st.com/forum/202401/15/032626e81qcl7tz7zzbggq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032347.jpg</strong> (40.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:26 上传
+
+使用不同增强方法的准确率%对比，所有结果都来自大型语言模型，粗体数值表示最佳结果
+
+<img src="https://img.saraba1st.com/forum/202401/15/032632lpm44xaqzq4kxmx6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032409.jpg</strong> (32.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:26 上传
+
+将卷积转化为不同架构时的准确率%差异
+
+<img src="https://img.saraba1st.com/forum/202401/15/032637eaky2lcyamt4l1ml.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-032432.jpg</strong> (30.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 03:26 上传
+
+知识翻译和随机初始化在不同训练数据%下的准确率差异%，使用训练了1000个epoch的大模型，对于每个百分比，使用100组模型参数进行评估
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

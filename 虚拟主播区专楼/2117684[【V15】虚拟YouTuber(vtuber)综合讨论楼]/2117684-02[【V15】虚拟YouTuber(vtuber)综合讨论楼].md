@@ -565,3 +565,14 @@ AI这边无马总是以看扁这种暧昧的说辞跟黑井交涉，黑井肯定
 冷知识，绊之Allele是霸权社做的</blockquote>
 好像有听说，但是那个制作也不像很用心吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 2904#       发表于 2024-1-14 20:55
+
+订阅里突然冒出来一个不认识的V，频道4.43万也不算小了，不过这个家伙频道什么都没有，看着也不眼熟。评论栏里面也有和我一样好奇什么时候关注了这家伙的人。
+不过声线和皮套风格脑子里倒是有怀疑对象，当年rurudo有把自己的皮，账号授权给别人用了一段时间，结果没收回得了，最后那个人占着号毕业了。
+不会就是这家伙吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+https://www.youtube.com/watch?v=T0hEbIRi9xg
+

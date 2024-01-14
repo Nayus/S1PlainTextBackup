@@ -15375,3 +15375,18 @@ https://weibo.com/6470776556/4990007665756509
 
 动画正播的时候爱音和立希一样没份，26年见了，如果这游戏有26年
 
+
+*****
+
+####  ddy2811  
+##### 8941#       发表于 2024-1-14 09:51
+
+睦头人生快<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 8942#       发表于 2024-1-14 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">还有假生日真姐妹的可能性没有排除
+

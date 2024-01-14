@@ -1299,3 +1299,16 @@ PV里的特训来了
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NeloAngelo  
+##### 3433#       发表于 2024-1-15 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63649992&amp;ptid=2092345" target="_blank">亚瑟邓特 发表于 2024-1-15 00:41</a>
+
+绝对要上太空了，左边有人认下吗？就认识个土5
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版  ...</blockquote>
+第一季这里就有了. PV里好像也是在火箭发射场打架.
+

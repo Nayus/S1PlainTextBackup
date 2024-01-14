@@ -9230,3 +9230,25 @@ neet派怎么能组队的？
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DeltaStriker  
+##### 2430#       发表于 2024-1-14 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63644356&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-1-14 12:43</a>
+
+那就是我太菜了，拿不到人头是不是要站中场偶尔前推一下比较好</blockquote>
+审查者都可以算前排了 别缩在后面
+
+
+*****
+
+####  Mr.Hopp  
+##### 2431#       发表于 2024-1-14 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63642899&amp;ptid=2150634" target="_blank">晴岚 发表于 2024-1-14 09:26</a>
+
+朋友一起组排祭典啊</blockquote>
+那不跟在家里一个人有什么区别。。难道还面基打祭奠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

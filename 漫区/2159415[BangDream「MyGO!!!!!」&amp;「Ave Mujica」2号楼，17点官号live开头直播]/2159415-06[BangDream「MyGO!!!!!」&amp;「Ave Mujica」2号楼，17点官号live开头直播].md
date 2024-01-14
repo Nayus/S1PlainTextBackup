@@ -15907,3 +15907,43 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 那第二季務必來點初睦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  青叶假司  
+##### 8989#       发表于 2024-1-14 23:13
+
+寒冷的冬天，只有鸡团还带着些许温暖
+
+*****
+
+####  特拉·特尔特  
+##### 8990#       发表于 2024-1-14 23:13
+
+<img src="https://img.saraba1st.com/forum/202401/14/231307kk80b8qvij8iqn8v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:13 上传
+
+[ザオᙏ̤̮我好睏 @zaosoap20](https://twitter.com/zaosoap20/status/1746503895613050956)
+
+黑白祥
+
+*****
+
+####  6030sylar  
+##### 8991#       发表于 2024-1-14 23:17
+
+<img src="https://img.saraba1st.com/forum/202401/14/231749xakevzhuffj83k3a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 23:17 上传
+
+女仆小祥
+

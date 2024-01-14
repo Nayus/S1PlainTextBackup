@@ -9388,3 +9388,11 @@ neet派怎么能组队的？
 最新一次更新是大幅加强了审查者涂地的。</blockquote>
 我记得是加强了涂脚能力，有主播说安全鞋带0.2甚至0.1就足够了，可以挤出更多格子带SP强或SP增，实际性能提升应该比我想象中来得高
 
+
+*****
+
+####  darkddragon  
+##### 2446#       发表于 2024-1-14 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">运气不错，将近晚上开始打拿到1次百倍两次10倍，比前几次祭典强多了
+

@@ -249,3 +249,15 @@ Fly with You!!
 
 虹运气真好啊
 
+
+*****
+
+####  仟音一心  
+##### 7462#       发表于 2024-1-14 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648958&amp;ptid=1959558" target="_blank">利维豚 发表于 2024-1-14 22:39</a>
+这个封面太惊艳了，一开始是mebachi，然后是krrr
+
+虹运气真好啊</blockquote>
+<img src="https://p.sda1.dev/15/43256b7cf8841131acd3f9b3f4dddebd/CMP_20240114225121603.jpg" referrerpolicy="no-referrer">
+

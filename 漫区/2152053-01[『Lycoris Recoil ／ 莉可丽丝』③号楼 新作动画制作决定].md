@@ -18859,3 +18859,21 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 2024-1-14 22:42 上传
 
+
+*****
+
+####  Saber琪  
+##### 1458#       发表于 2024-1-14 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63631090&amp;ptid=2152053" target="_blank">bakabaka999 发表于 2024-1-12 21:14</a>
+
+昨天看错了，实际上是 HARU COMIC CITY 内的一个 only 展，COMIC CITY 整体规模能打 CM 一天，但是具体蒜 ...</blockquote>
+就那几个小绿子参加的一个bg展而已
+
+*****
+
+####  Saber琪  
+##### 1459#       发表于 2024-1-14 22:44
+
+抛开其他不谈，我觉得心脏逃走了诗音仔配挺好的
+

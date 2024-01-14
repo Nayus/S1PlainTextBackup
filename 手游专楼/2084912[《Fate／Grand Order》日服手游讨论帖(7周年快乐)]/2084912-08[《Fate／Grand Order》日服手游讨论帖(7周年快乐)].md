@@ -3964,3 +3964,13 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 盐川真是蘑菇的再生父母啊，没有他估计月姬r和魔夜2早出来了。</blockquote>
 我个人倒是觉得就算盐川没去DW，废狗在15年和16年运营不善，就当时手游市场宽松的蓝海也很难真正做到“一部完结”的，毕竟当时就算那几家现在早已关了的先行者游戏年净利润也相当惊人
 
+
+*****
+
+####  poor  
+##### 10877#       发表于 2024-1-14 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648252&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-1-14 21:30</a>
+main interlude复刻的兑换规则不一样，基本上活动商店里的礼装是不给的。SERAPHIX不给某个夏天，后面的冥 ...</blockquote>
+麻了，当时以为都会复刻没有换还是刷够，YLS这构币啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

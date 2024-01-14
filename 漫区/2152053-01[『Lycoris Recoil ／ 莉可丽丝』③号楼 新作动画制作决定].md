@@ -18843,3 +18843,19 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 1.7 号 Aniplex 20周年 FES 蒜念台词的时候怎么是心脏要逃掉那段啊，PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1457#       发表于 2024-1-14 22:42
+
+[https://twitter.com/piyo_cola/status/1746542297515516315?s=19](https://twitter.com/piyo_cola/status/1746542297515516315?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/14/224238tessc24fpb27cetp.jpg" referrerpolicy="no-referrer">
+
+<strong>20240114_223944.jpg</strong> (311.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 22:42 上传
+

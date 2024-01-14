@@ -227,3 +227,25 @@ Fly with You!!
 
 (确实是krrr，河村发推说了[X (twitter.com)](https://twitter.com/mimulan25/status/1746527411393728920)
 
+
+*****
+
+####  仟音一心  
+##### 7460#       发表于 2024-1-14 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648721&amp;ptid=1959558" target="_blank">Skyline_R 发表于 2024-1-14 22:20</a>
+剧场版1这个封面是krrr画的吧，比起把每个人塞进封面的传统偶像片kv，确实是有点惊喜/眼前一亮了
+
+(确实是kr ...</blockquote>
+是的
+海报上是步岚霞雫彼艾，每年级各二。
+
+*****
+
+####  利维豚  
+##### 7461#       发表于 2024-1-14 22:39
+
+这个封面太惊艳了，一开始是mebachi，然后是krrr
+
+虹运气真好啊
+

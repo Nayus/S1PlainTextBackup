@@ -3941,3 +3941,15 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 
 虚数海战进MI公告的时候就提了复刻的内容只有关卡奖励（包括纹章），但是不包括凯妮斯礼装了
 
+
+*****
+
+####  史蒂符  
+##### 10875#       发表于 2024-1-14 21:35
+
+ 本帖最后由 史蒂符 于 2024-1-14 21:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648160&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-1-14 21:17</a>
+
+其实金沢利幸后面在Aniplex本家的采访有明确说过盐川的骑辉石当年（2017年）至少省了上亿日元的宣传费用 ...</blockquote>
+盐川真是蘑菇的再生父母啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，没有他估计月姬r和魔夜3早出来了。
+

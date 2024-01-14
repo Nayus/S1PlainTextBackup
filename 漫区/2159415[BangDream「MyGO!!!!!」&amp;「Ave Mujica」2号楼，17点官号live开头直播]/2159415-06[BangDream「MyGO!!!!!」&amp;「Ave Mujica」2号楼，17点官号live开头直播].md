@@ -15787,3 +15787,47 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 虽然不算小作文<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 8977#       发表于 2024-1-14 21:33
+
+真好啊，今天和Mujica其他人在一起。希望动画也能播到睦睦被其他四人爱着露出笑容<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 8978#       发表于 2024-1-14 21:38
+
+降低预期有用<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+本来觉得结月不发也没什么，今天发了两条还转了生贺推，降低预期就会获得惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8979#       发表于 2024-1-14 21:38
+
+ 本帖最后由 御幸一也 于 2024-1-14 21:41 编辑 
+
+真是太團愛了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 8980#       发表于 2024-1-14 21:40
+
+ 本帖最后由 cindy355 于 2024-1-14 21:42 编辑 
+
+依稀记得上次还在跟人说crychic里最像陌生人的就是睦和立希，忍不住让人怀疑这两个人到底有没有当面一对一说过话的地步。
+
+祝小睦生日快乐，请大家温柔对待小睦，睦也是会伤心的哦。
+
+*****
+
+####  Arrogate  
+##### 8981#       发表于 2024-1-14 21:41
+
+不会庆生的只有极个别人吧……渡赖早上就发了一次，就有预感之后会给睦庆生<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

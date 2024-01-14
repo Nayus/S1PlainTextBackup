@@ -15512,3 +15512,46 @@ https://kawaiicode.moe/polygraph
 
 试了试
 
+
+*****
+
+####  剪切线  
+##### 8956#       发表于 2024-1-14 11:44
+
+<img src="https://img.saraba1st.com/forum/202401/14/114435o9n5i2tcgwib19wp.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-01-14 114427.png</strong> (22.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 11:44 上传
+
+ai也觉得双子说是真的
+
+*****
+
+####  akirakira  
+##### 8957#       发表于 2024-1-14 11:45
+
+偷偷点赞<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">睦和祥子都要过两年这样的生日吗
+<img src="https://p.sda1.dev/15/c921674b081ca6e49089f2fd72404bf7/CMP_20240114124547374.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8958#       发表于 2024-1-14 11:46
+
+渡瀬是不是说稍晚还会讲一下“好日子”的事
+
+可以期待一下小作文吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 8959#       发表于 2024-1-14 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63643856&amp;ptid=2159415" target="_blank">akirakira 发表于 2024-1-14 11:45</a>
+
+偷偷点赞睦和祥子都要过两年这样的生日吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">某种意义上也是一种半身
+

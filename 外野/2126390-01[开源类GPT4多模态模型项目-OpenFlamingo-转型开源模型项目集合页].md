@@ -25029,3 +25029,78 @@ LEGO的整体结构包括每种模态(视频、图像、音频等)的独立编�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1180#       发表于 2024-1-15 01:54
+
+video-instruction-tuning
+
+从数百万个视频中蒸馏视觉语言模型
+
+github项目主页(stay tuned):https://github.com/zhaoyue-zephyrus/video-instruction-tuning
+
+视觉语言模型近期的发展主要归功于丰富的图像文本数据，本文的目标是为视频语言模型复制这一成功，但实际上可用的人工标注视频文本数据并不足够，因此，通过应用强大的图像语言基线模型获取合成的指令数据进行微调，获得了一个视频语言模型，再利用这个视频语言模型，对数百万个视频进行自动标注，生成高质量的字幕说明
+
+展示了适应后的视频语言模型在多个视频语言基准测试中表现良好，例如，在开放式的NExT-QA基准上超过了之前最好的结果2.8%，此外，本文模型可以为先前未见的视频生成了详细的描述，这提供了比现有方法更好的文本监督
+
+实验表明，在这些自动生成的字幕说明上对比训练的视频语言双编码(dual-encoder)模型比那些仅利用视觉语言模型的最强基线模型提高了3.8%，本文的最佳模型在MSR-VTT零样本文本视频检索上超过了SOTA方法6%
+————
+总览
+
+视频语言模型以视频和任何形式的指令作为输入，并根据指令生成文本，它可以生成多个粒度的文本描述，包括静态外观、一般行为和详细的身体动作
+
+<img src="https://img.saraba1st.com/forum/202401/15/015416h1z8o4464owz8786.png" referrerpolicy="no-referrer">
+
+<strong>overview.png</strong> (564.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:54 上传
+
+————
+将基于图像的视觉语言模型适配到视频
+
+将基于图像的视觉语言模型(例如PaLI-3)主要分为两个阶段进行视频领域的适应
+
+阶段1.视觉适应，在这个阶段冻结语言部分，而用较大规模的带有简短字幕说明的视频数据集(例如Spoken Moments-in-Times)对视觉部分进行微调
+
+阶段2.语言适应，在这个阶段冻结视觉部分，而用带有详细标题的较小规模的视频数据集对语言部分进行指令微调，在实验中，通过提示PaLM-2从视频定位叙述(Video-Localized-Narratives)中生成指令回答对
+
+<img src="https://img.saraba1st.com/forum/202401/15/015427c158u3uss82vxzx8.png" referrerpolicy="no-referrer">
+
+<strong>method.png</strong> (304.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:54 上传
+
+————
+评估视频语言模型
+
+将经过适配的视频语言模型与基线模型PaLI-3和之前的SOTA进行对比评估，其中重点关注零样本性能，并在没有任何微调的情况下将模型应用于下游任务的测试数据集
+
+<img src="https://img.saraba1st.com/forum/202401/15/015433rg0k5hktzqhknt6k.png" referrerpolicy="no-referrer">
+
+<strong>vlm_zeroshot.png</strong> (25.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:54 上传
+
+————
+利用经过蒸馏的伪字幕说明(Pseudo-Captions)
+
+通过在伪字幕说明上进行预训练来展示模型的零样本视频理解性能，这是伪字幕说明质量的一个可靠指标
+
+<img src="https://img.saraba1st.com/forum/202401/15/015440qu8d8r844dudrb0d.png" referrerpolicy="no-referrer">
+
+<strong>dualencoder_internvid.png</strong> (20.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 01:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

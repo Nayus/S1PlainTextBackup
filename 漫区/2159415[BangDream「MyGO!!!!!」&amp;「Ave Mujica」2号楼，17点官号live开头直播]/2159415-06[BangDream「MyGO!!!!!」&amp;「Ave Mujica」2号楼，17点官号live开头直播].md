@@ -15479,3 +15479,36 @@ https://weibo.com/6470776556/4990007665756509
 
 原来生日还得偷着庆祝吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 8953#       发表于 2024-1-14 11:40
+
+玩了一下赛博测谎仪
+https://kawaiicode.moe/polygraph
+<img src="https://p.sda1.dev/15/bb4b43f209fa8cb7a248bbc763cb75e1/Image_1705203580622.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/501d40387824e28fb3211742005ee9e6/Image_1705203572098.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 8954#       发表于 2024-1-14 11:40
+
+台长五天没动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 8955#       发表于 2024-1-14 11:42
+
+<img src="https://img.saraba1st.com/forum/202401/14/114220z4fmfdf6fdwk8czz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240114_114212.jpg</strong> (131.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 11:42 上传
+
+试了试
+

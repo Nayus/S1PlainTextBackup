@@ -15555,3 +15555,23 @@ ai也觉得双子说是真的
 偷偷点赞睦和祥子都要过两年这样的生日吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">某种意义上也是一种半身
 
+
+*****
+
+####  NODY  
+##### 8960#       发表于 2024-1-14 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63642983&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-14 09:45</a>
+
+动画正播的时候爱音和立希一样没份，26年见了，如果这游戏有26年</blockquote>
+其实是有的，9.8手游刚实装主线试看所以爱音有个生日登陆奖励（不过角色卡还没实装所以没有语音），b站号也发了张图祝贺
+
+比较整蛊的还是立希，b站号8.8刚公开限时播放动画，8.9就没动静了，怀疑是管官号的人压根不看角色资料，爱灯是因为官方有宣传才知道的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 8961#       发表于 2024-1-14 12:00
+
+渡濑还说了一句等一下有详细的，可能不是偷着庆祝而是要回家摆阵写小论文
+

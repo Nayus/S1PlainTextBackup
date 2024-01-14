@@ -561,3 +561,13 @@ PureDark 也在弄 FSR 3.0 的 mod 了。
 
 不考虑品控于傻逼键位问题520g的mini真的很方便，10w30祯wiiuxbx，15w流畅辐射4整合包，这个真是超出预期了
 
+
+*****
+
+####  downforce  
+##### 1074#       发表于 2024-1-14 08:11
+
+[https://www.bilibili.com/video/BV1UN4y1H73z](https://www.bilibili.com/video/BV1UN4y1H73z)
+
+可以给ally升级到32G甚至64G内存。不过目前只能用三星内存颗粒，看了mod网站的指南也没看明白如果原来是micron的内存的如何改配置电阻。找个修笔记本电脑的应该就能改，但是改完以后每次想升级bios都要拆机取bios芯片。
+

@@ -571,3 +571,20 @@ PureDark 也在弄 FSR 3.0 的 mod 了。
 
 可以给ally升级到32G甚至64G内存。不过目前只能用三星内存颗粒，看了mod网站的指南也没看明白如果原来是micron的内存的如何改配置电阻。找个修笔记本电脑的应该就能改，但是改完以后每次想升级bios都要拆机取bios芯片。
 
+
+*****
+
+####  cc-2  
+##### 1075#       发表于 2024-1-14 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63642628&amp;ptid=2086469" target="_blank">downforce 发表于 2024-1-14 08:11</a>
+
+https://www.bilibili.com/video/BV1UN4y1H73z
+
+可以给ally升级到32G甚至64G内存。不过目前只能用三星内存颗 ...</blockquote>
+PDD有一家就是店里改好的32G
+
+但是特别提示不能升级bios……
+
+搞不懂华硕为啥这么设置
+

@@ -5096,3 +5096,11 @@ miko每次开大乱斗直播都这个样啊,怎么可能赢,她可是一年都�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 7989#         楼主| 发表于 2024-1-14 19:27
+
+悲报，虽然是巫女（设定）但是内心是无神论派
+

@@ -3911,3 +3911,20 @@ PV是不是还有一个新角色
 
 虚数大海战礼装现在换不了的吗？我记得开兑换的活动不是都可以金方块换的吗？
 
+
+*****
+
+####  UNISONIA  
+##### 10873#       发表于 2024-1-14 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63638602&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-13 18:43</a>
+
+魔夜和月姬R，還有新MB聯動，你有時間在MB的DLC角色寫萬字以上，沒時間回FGO寫劇本嗎?</blockquote>
+其实金沢利幸后面在Aniplex本家的采访有明确说过盐川的骑辉石当年（2017年）至少省了上亿日元的宣传费用，他们自己Aniplex社内都是当成正面营销案例宣传的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，甚至Aniplex北美的负责人在盐川离开DW以后还专门到访他的新工作室取经
+
+但是金沢自己没有时间跟盐川一样花很多精力在这里（金沢负责整个Aniplex的宣传工作，而不仅仅只负责FGO），叶良树也不想管这一块。所以现在只能不可避免地低效率砸钱宣传，效果也不好，所以从前年七周年开始改为转型“新媒体策略”，降低一部分传统媒体开支，逼着广播局那边的人也一起上tiktok营业了
+
+至于菌皇，他对于觉得写哪个更有趣已经说过很多次了。反正Notes.社从Aniplex拿到的年最终利益分成是固定百分比的，写作拿到的报酬也是定额的，那为什么不写点自己觉得更有趣的东西呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+手游的劳资分成上肯定不会很公平的，这个和FGO是早期手游这一点甚至关系不是很大，现在新手游创作方也是占不到什么便宜的（包括红烧天堂那边的麻子、心罪爱丽丝和尼尔手游那边的横尾太郎也都是如此）。这种劳资分成的规则下，没办法指望创作者有太高的积极性的
+

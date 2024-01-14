@@ -9328,3 +9328,21 @@ neet派怎么能组队的？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 2441#       发表于 2024-1-14 21:16
+
+审查者现在打涂得是不是比鹦鹉螺要强了？刚刚打挑战那场，虽然对枪基本完胜，但看结算，对面审查者涂地击杀都做得很不错，奈何队友运太差，把队友互换输的应该是我了
+
+<img src="https://img.saraba1st.com/forum/202401/14/211603in095f7epnhf5nap.jpg" referrerpolicy="no-referrer">
+
+<strong>2024011421080900-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (262.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-14 21:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9377,3 +9377,14 @@ neet派怎么能组队的？
 
 而且涂地比鹦鹉螺舒服多了，鹦鹉螺打得好点可能上个1000，审查者基本是保底1000，正常发挥的话
 
+
+*****
+
+####  罗克萨斯  
+##### 2445#       发表于 2024-1-14 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648727&amp;ptid=2150634" target="_blank">hisousihou 发表于 2024-1-14 22:20</a>
+
+最新一次更新是大幅加强了审查者涂地的。</blockquote>
+我记得是加强了涂脚能力，有主播说安全鞋带0.2甚至0.1就足够了，可以挤出更多格子带SP强或SP增，实际性能提升应该比我想象中来得高
+

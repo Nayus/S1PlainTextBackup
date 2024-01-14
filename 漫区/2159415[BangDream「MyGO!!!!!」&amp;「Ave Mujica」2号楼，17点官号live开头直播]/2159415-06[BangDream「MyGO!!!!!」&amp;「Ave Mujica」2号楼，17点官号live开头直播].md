@@ -15639,3 +15639,13 @@ https://weibo.com/5092362335/4990068202669703
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">今天去旁边超市买点儿东西，老妈还顺便让我买黄瓜回来，哎嘿
 
+
+*****
+
+####  DarthAka  
+##### 8968#       发表于 2024-1-14 15:08
+
+<blockquote>NODY 发表于 2024-1-14 11:58
+其实是有的，9.8手游刚实装主线试看所以爱音有个生日登陆奖励（不过角色卡还没实装所以没有语音），b站号 ...</blockquote>
+那明年有戏，至少祥子有戏
+

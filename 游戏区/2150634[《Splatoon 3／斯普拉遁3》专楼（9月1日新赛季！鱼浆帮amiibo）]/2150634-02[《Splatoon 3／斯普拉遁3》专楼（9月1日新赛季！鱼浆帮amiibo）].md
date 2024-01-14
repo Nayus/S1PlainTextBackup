@@ -9252,3 +9252,24 @@ neet派怎么能组队的？
 朋友一起组排祭典啊</blockquote>
 那不跟在家里一个人有什么区别。。难道还面基打祭奠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 2432#       发表于 2024-1-14 15:09
+
+ 本帖最后由 晴岚 于 2024-1-14 15:11 编辑 
+
+风怒
+
+*****
+
+####  晴岚  
+##### 2433#       发表于 2024-1-14 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63645311&amp;ptid=2150634" target="_blank">Mr.Hopp 发表于 2024-1-14 15:00</a>
+那不跟在家里一个人有什么区别。。难道还面基打祭奠</blockquote>
+对啊，可能是我年纪有点大的关系，我以前就吐槽我跟年轻人最大的差别可能就是我是从街机黑机房跟psp那个年代过来的……哪怕是mhr出来的时候网络联机很发达了，但我跟认识的人还是会出来选择线下玩……哪怕是lol这些我认识的人现在还是会出来线下五黑啥的……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

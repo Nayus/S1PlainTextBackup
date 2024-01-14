@@ -3953,3 +3953,14 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 其实金沢利幸后面在Aniplex本家的采访有明确说过盐川的骑辉石当年（2017年）至少省了上亿日元的宣传费用 ...</blockquote>
 盐川真是蘑菇的再生父母啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，没有他估计月姬r和魔夜3早出来了。
 
+
+*****
+
+####  UNISONIA  
+##### 10876#       发表于 2024-1-14 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648298&amp;ptid=2084912" target="_blank">史蒂符 发表于 2024-1-14 21:35</a>
+
+盐川真是蘑菇的再生父母啊，没有他估计月姬r和魔夜2早出来了。</blockquote>
+我个人倒是觉得就算盐川没去DW，废狗在15年和16年运营不善，就当时手游市场宽松的蓝海也很难真正做到“一部完结”的，毕竟当时就算那几家现在早已关了的先行者游戏年净利润也相当惊人
+

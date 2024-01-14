@@ -15831,3 +15831,25 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 不会庆生的只有极个别人吧……渡赖早上就发了一次，就有预感之后会给睦庆生<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 8982#       发表于 2024-1-14 21:46
+
+主要是你邦的官推也沒慶生，差點以為她會跟著裝不知道<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Aendst  
+##### 8983#       发表于 2024-1-14 21:47
+
+续篇请务必速成团宠，希望另外四位多宠宠<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月光的道标  
+##### 8984#       发表于 2024-1-14 21:47
+
+今天氛围真好，希望睦在动画里也能得到大家的关爱，露出真心的笑容。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

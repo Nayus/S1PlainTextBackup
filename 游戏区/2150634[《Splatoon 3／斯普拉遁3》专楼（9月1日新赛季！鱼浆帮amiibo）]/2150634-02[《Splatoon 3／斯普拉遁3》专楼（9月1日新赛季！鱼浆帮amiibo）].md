@@ -9143,3 +9143,17 @@ neet派怎么能组队的？
 
 —— 来自 samsung SM-S9010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  星野航  
+##### 2422#       发表于 2024-1-14 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63640658&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-1-13 23:06</a>
+打到永远基本是输上去的，胜率大概30%都没有，好久不打对战，审查者已经不行了吗
+
+论坛助手,iPhone ...</blockquote>
+依然主宰，强力<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

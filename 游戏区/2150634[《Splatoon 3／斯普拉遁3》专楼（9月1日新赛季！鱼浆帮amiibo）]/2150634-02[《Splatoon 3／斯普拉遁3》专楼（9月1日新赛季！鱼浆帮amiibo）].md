@@ -9209,3 +9209,14 @@ neet派怎么能组队的？
 论坛助手,iPhone</blockquote>
 那就是我太菜了，拿不到人头<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">是不是要站中场偶尔前推一下比较好
 
+
+*****
+
+####  星野航  
+##### 2428#       发表于 2024-1-14 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63644356&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-1-14 13:43</a>
+
+那就是我太菜了，拿不到人头是不是要站中场偶尔前推一下比较好</blockquote>
+现在审查者一局下来不涂到1000p+基本可以说是不合格了，常规就是1000p起，所以窝着肯定是不行滴
+

@@ -305,3 +305,26 @@ Fly with You!!
 神企划</blockquote>
 要知道这是一个一开始并没有动画化打算的企划。
 
+
+*****
+
+####  Piano-Forest  
+##### 7467#       发表于 2024-1-14 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63647012&amp;ptid=1959558" target="_blank">Piano-Forest 发表于 2024-1-14 19:01</a>
+
+🌈劇場上映シリーズ三部作🌈
+
+映画「ラブライブ！虹ヶ咲学園スクールアイドル同好会 完結編 第1章」</blockquote>
+沖縄竹富島
+<img src="https://p.sda1.dev/15/3a2b951b06ef68be6211aabb478d1a17/20240114_234000.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7468#       发表于 2024-1-14 23:48
+
+所以说去冲绳是修学旅行篇吧？记得毕业前还有一次旅行来着
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

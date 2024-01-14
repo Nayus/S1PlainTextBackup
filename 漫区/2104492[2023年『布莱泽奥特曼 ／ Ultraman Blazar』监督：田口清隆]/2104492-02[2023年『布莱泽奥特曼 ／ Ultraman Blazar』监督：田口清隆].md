@@ -123,3 +123,11 @@
 说实话泽塔挺多集数我都忍不住快进<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">单论单元回的质量实在是被薄纱
 就看布莱泽最后一集收尾能不能收好了
 
+
+*****
+
+####  lmclmc2  
+##### 1616#       发表于 2024-1-14 20:39
+
+布莱泽还有个剧场版在，如果剧场版还要接着讲TV的东西就得到时候再说了
+

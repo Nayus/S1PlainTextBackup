@@ -306,3 +306,14 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 
 而为什么专门给猫在剧场版补视角，大概真是因为下一季没她戏份了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 9020#       发表于 2024-1-15 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63651834&amp;ptid=2159415" target="_blank">金钱与民主 发表于 2024-1-15 10:09</a>
+
+如果只想讲好母鸡卡的故事，狗团本来就不用出场了，顶多几个角色以个人身份出场。举个例子，大家觉得狗团在 ...</blockquote>
+都延期给两部剧场版让路 还不够还债吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

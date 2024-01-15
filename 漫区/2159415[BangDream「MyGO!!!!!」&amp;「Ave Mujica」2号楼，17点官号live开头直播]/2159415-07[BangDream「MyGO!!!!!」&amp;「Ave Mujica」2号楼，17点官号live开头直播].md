@@ -517,3 +517,21 @@ AVEMUJICA是赞美音乐/音乐万岁，丰川祥子在羽丘为数不多的放�
 
 2024-1-15 18:47 上传
 
+
+*****
+
+####  QuattroVageena  
+##### 9038#       发表于 2024-1-15 19:33
+
+叔叔家的补款了
+<img src="https://p.sda1.dev/15/576fe68ae5ad6c363e7546f2244e596c/IMG_CMP_26644021.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9039#       发表于 2024-1-15 19:35
+
+为了研究一下引起话题的那个邦二代我去搜了一下，Abyssmare确实和鸡有点像，但UniChØrd好像和狗差得有点太多了，然后这两个团好像是真正意义上的家庭关系上有深仇大恨才会打起来，所以鸡狗对邦什么的第二季应该是不会有的
+
+顺带一提后者就是那个传说中的出柜真女同团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

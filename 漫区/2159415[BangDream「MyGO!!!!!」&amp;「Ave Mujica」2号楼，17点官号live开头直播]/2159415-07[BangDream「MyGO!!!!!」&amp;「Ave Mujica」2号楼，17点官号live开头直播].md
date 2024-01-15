@@ -317,3 +317,13 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 如果只想讲好母鸡卡的故事，狗团本来就不用出场了，顶多几个角色以个人身份出场。举个例子，大家觉得狗团在 ...</blockquote>
 都延期给两部剧场版让路 还不够还债吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 9021#       发表于 2024-1-15 16:19
+
+<img src="https://lain.bgm.tv/pic/photo/l/d5/fe/750335_pF8fP.jpg" referrerpolicy="no-referrer">
+
+从这句话来看应该关系还是挺深的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

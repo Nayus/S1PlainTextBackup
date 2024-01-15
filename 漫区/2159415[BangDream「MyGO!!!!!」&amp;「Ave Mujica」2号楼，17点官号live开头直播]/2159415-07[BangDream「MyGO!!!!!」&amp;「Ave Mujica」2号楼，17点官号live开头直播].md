@@ -415,3 +415,14 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 
 不过说到底还是蝶三次元唱功不行人气垫底所以剧情拿来垫也不会有太多人有意见，鸡狗现在三次元人气差距没多大，像ppp双r要么有人气要么有实力要么有苦劳，剧情里总归会给点面子，鸡狗刚起步人气还不确定，应该是不会那么快给垫的剧情的，要垫也是垫前辈而不是同辈
 
+
+*****
+
+####  御幸一也  
+##### 9031#       发表于 2024-1-15 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63657101&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-15 17:18</a>
+
+主要是🐔🐶没有对邦的前置条件吧，一个地下乐队和一个出道乐队对邦干嘛？还是说🐶看不惯🐔的成团理 ...</blockquote>
+什麼！但是樂隊理念要賺錢不是非常正確嗎<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

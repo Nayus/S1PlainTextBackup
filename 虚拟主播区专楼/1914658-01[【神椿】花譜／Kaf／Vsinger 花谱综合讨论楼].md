@@ -1697,3 +1697,11 @@ JOINT LIVE可真好看啊
 
 —— 来自 Xiaomi 2312CRAD3C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  海德先生  
+##### 133#       发表于 2024-1-15 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">要能主流出道成功，也多了一条延长职业生涯的路子吧
+

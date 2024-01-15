@@ -9497,3 +9497,11 @@ DLC应该是和新赛季同步出
 
 不过打到永远的那几局正好在连败区间里，最后体验还是很差
 
+
+*****
+
+####  KBAC  
+##### 2459#       发表于 2024-1-15 20:11
+
+这次不打算修地图了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -25394,3 +25394,115 @@ github项目主页:https://github.com/yandex-research/mind-your-format
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1183#       发表于 2024-1-15 22:58
+
+ 本帖最后由 Machinery 于 2024-1-15 23:01 编辑 
+
+MCSD
+
+多候选推测解码(Multi-Candidate Speculative Decoding)
+
+github项目主页:https://github.com/NJUNLP/MCSD
+
+大型语言模型在各种自然语言处理任务中展现出了惊人的能力，但是它们自回归式生成文本的过程非常耗时，为了加快生成速度，一种可行方法是采用推测解码，即从一个快速的草稿模型中生成候选片段(一系列的标记Token)，然后由目标模型并行验证这些片段
+
+然而，候选Token的接受率(acceptance rates)受到多个因素的限制，例如模型、数据集和解码设置，本文提出了从草稿模型中采样多个候选片段，并组织它们进而批量进行验证的方法，研究组设计了高效的多候选验证算法，同时保证了目标模型的分布
+
+本文方法在多个数据集和模型上都显示出了显著的接受率提升，始终优于标准的推测解码方法
+
+<img src="https://img.saraba1st.com/forum/202401/15/225313obtsk0u96lybi9ai.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-223917.jpg</strong> (372.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:53 上传
+
+标准SD(a)和MCSD(b)的过程
+
+<img src="https://img.saraba1st.com/forum/202401/15/225318p6pnkd9e51nh8213.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-224013.jpg</strong> (136.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:53 上传
+
+基于树注意力(Tree Attention)在单个序列中同时处理多个候选项，其中包含一个注意力掩码，仅允许每个Token访问其祖先(ancestors)
+
+<img src="https://img.saraba1st.com/forum/202401/15/225417qzqyq8dq8irf8z1j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-225020__01.jpg</strong> (270.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:54 上传
+
+使用LLaMA-68M作为草稿模型，给予不同k值的接受率(α)曲线
+
+<img src="https://img.saraba1st.com/forum/202401/15/225524lu223l8x692k92k1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-225027__02.jpg</strong> (212.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:55 上传
+
+使用LLaMA-68M和LLaMA-160M作为草稿模型，LLaMA-33B和Vicuna-33B作为目标模型，在Alpaca和WMT数据集上的接受率(α)
+
+<img src="https://img.saraba1st.com/forum/202401/15/225628t2y66wggy868nlcg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-225110.jpg</strong> (151.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:56 上传
+
+使用LLaMA-68M作为草稿模型，LLaMA-33B和Vicuna-33B作为目标模型，在Alpaca和WMT数据集上的每种方法的性能
+
+<img src="https://img.saraba1st.com/forum/202401/15/225654j2c34cy3t5e4tx2c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-225126.jpg</strong> (145.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:56 上传
+
+使用LLaMA-160M作为草稿模型，LLaMA-33B和Vicuna-33B作为目标模型，在Alpaca和WMT数据集上的每种方法的性能
+
+<img src="https://img.saraba1st.com/forum/202401/15/225737r05elg9f51l5gfm3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-225200__01.jpg</strong> (256.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:57 上传
+
+不同k配置下的加速比和block效率(τ)，其中数据集为Alpaca，使用LLaMA-68M作为草稿模型
+
+<img src="https://img.saraba1st.com/forum/202401/15/225757myyhabj8fkozhzoa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-225206__01.jpg</strong> (201.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:57 上传
+
+树注意力和不同验证算法进行的消融实验，其中数据集为Alpaca，草稿模型为LLaMA-68M，temp=1(标准采样)
+
+<img src="https://img.saraba1st.com/forum/202401/15/225803tnyrrvv2le303ee0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-225234.jpg</strong> (252.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:58 上传
+
+使用不同的草稿模型和目标模型，在Alpaca数据集上从k=1到k=4的接受率(α)改进
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

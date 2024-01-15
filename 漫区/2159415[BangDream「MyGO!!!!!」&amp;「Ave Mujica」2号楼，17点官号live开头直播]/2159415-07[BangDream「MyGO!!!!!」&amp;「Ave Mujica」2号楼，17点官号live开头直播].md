@@ -627,3 +627,11 @@ AI成精笑出聲，D4DJ真會玩<img src="https://static.saraba1st.com/image/sm
 
 猫猫是不是听过C团live啊
 
+
+*****
+
+####  NODY  
+##### 9049#       发表于 2024-1-15 23:02
+
+再补充一下dj那个银河战舰团虽然暗黑中二和出道明星这点像鸡，但行事作风其实更像早期ras，喜欢到处踢馆创人嘲讽导致名声很微妙，会和主角团对上也是因为她们为了表现自己强，主动邀请了包括主角团和二代主角团在内的所有团来和她们比赛（然后就被亲妈ai创翻了），这个更不用担心第二季出现类似剧情了，祥子躲熟人还来不及呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

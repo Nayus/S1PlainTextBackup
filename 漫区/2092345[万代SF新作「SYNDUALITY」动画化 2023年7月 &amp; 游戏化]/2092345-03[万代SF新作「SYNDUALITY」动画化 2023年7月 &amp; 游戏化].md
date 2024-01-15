@@ -1359,3 +1359,32 @@ PV里的特训来了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NeloAngelo  
+##### 3439#       发表于 2024-1-15 23:01
+
+上来就是火箭发射还行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyDC  
+##### 3440#       发表于 2024-1-15 23:01
+
+真造了枚火箭
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Freakyyu  
+##### 3441#       发表于 2024-1-15 23:01
+
+定番的上太空？
+哦你也发射失败，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

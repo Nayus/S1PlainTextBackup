@@ -151,3 +151,14 @@
 
 布莱泽倒数第二集还在加悬念，说实话有点慌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泡影的地生鱼  
+##### 1619#       发表于 2024-1-16 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63645165&amp;ptid=2104492" target="_blank">Sliurus 发表于 2024-1-14 14:34</a>
+
+这集镜头语言真的好，阿斯加隆被炸宕机，队长准备变身但是变身器没有出来，取而代之的是儿子送的手环 ...</blockquote>
+这个镜头真的很绝，左手手套摘下后，无名指上有婚戒，手腕上有儿子送的手环。一瞬间队长为了家庭为了地球的立场就展示的一清二楚
+

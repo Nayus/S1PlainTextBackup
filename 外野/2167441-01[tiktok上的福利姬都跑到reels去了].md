@@ -151,3 +151,15 @@ ins的封号是最傻逼的，+86根本不给你验证码，你找个接码的�
 
 好久之前就是这样啊，一进去就是大屁股抖抖抖，连续几个都是穿很少漏很多那种，就是有一点不好，不能下载，不知道现在能不能下载了
 
+
+*****
+
+####  猫出没注意  
+##### 136#       发表于 2024-1-15 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63654698&amp;ptid=2167441" target="_blank">罗马还能再战 发表于 2024-1-15 14:10</a>
+
+好久之前就是这样啊，一进去就是大屁股抖抖抖，连续几个都是穿很少漏很多那种，就是有一点不好，不能下载， ...</blockquote>
+用我前边发的第三方客户端，或者油猴也有脚本可以下载。app没试过太多次不太清楚，但油猴的脚本频繁下载几百次后号会暂时被封几个小时（不能单独打开照片和视频的页面，以及不能下载视频，但图片还能下）。
+[https://greasyfork.org/zh-CN/scr ... ram-download-button](https://greasyfork.org/zh-CN/scripts/406535-instagram-download-button)
+

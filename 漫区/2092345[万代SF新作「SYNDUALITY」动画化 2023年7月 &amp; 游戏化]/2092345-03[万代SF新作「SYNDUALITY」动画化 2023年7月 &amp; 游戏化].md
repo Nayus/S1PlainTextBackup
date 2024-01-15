@@ -1494,3 +1494,68 @@ noir有没有可能是接触之后从乐园下载来的人格?
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 3455#       发表于 2024-1-15 23:23
+
+<img src="https://img.saraba1st.com/forum/202401/15/232213dy4xnb4n1gln7tjy.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240115231907.png</strong> (149.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 23:22 上传
+
+在看奶茶屋对13话的翻译，大姐姐这句话翻译得不错，世界是在这二十年发生这样的变化
+
+*****
+
+####  NeloAngelo  
+##### 3456#       发表于 2024-1-15 23:23
+
+其实我觉得机器寿命可比人类短多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  renkan119  
+##### 3457#       发表于 2024-1-15 23:23
+
+这剧情跟想的不太一样啊 之前以为诺娃 前主人 零式都是和乐园有关的 结果只是偶然接触过乐园 前主人啥关系都没有 那之前说的零式的任务又是啥
+
+*****
+
+####  Freakyyu  
+##### 3458#       发表于 2024-1-15 23:27
+
+嘎，这也太短了！
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RE㐅ia  
+##### 3459#       发表于 2024-1-15 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63660437&amp;ptid=2092345" target="_blank">renkan119 发表于 2024-1-15 23:23</a>
+
+这剧情跟想的不太一样啊 之前以为诺娃 前主人 零式都是和乐园有关的 结果只是偶然接触过乐园 前主人啥关系 ...</blockquote>
+是都和阿美西亚相关，但不是乐园。只有钥匙和乐园有联系，但又不知道到底是诺娃还是米斯蒂
+
+*****
+
+####  RE㐅ia  
+##### 3460#       发表于 2024-1-15 23:30
+
+说是寿命论，但这集又给诺娃贴了个短命鬼的flag。所以...反向寿命论？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  charlespfan  
+##### 3461#       发表于 2024-1-15 23:31
+
+阿美是地下城，乐园在天上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

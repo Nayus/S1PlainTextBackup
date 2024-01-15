@@ -20,3 +20,11 @@
 我那个截图是meta的商业广告投放，就是商家烧钱去投的广告， ...</blockquote>
 ins天天给我推莆田鞋、各种手机壳广告，估计蜥蜴人玩vr玩得走火入魔真没钱了。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 121#       发表于 2024-1-15 10:52
+
+注册完一瞬间就被封号了，搞不懂什么傻逼设定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

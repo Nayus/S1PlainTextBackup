@@ -610,3 +610,26 @@ MD的： <blockquote><strong>When not at a crosswalk, always give vehicles the r
 中国人又不像你美国佬一样，住在离城市50公里的地方，每星期开着皮卡车去超市拉一车货回来，被变态杀人魔杀 ...</blockquote>
 阻止很多人买皮卡的原因是皮卡限行，其实这玩意潜在的市场很大，当然防弹需求确实是没有
 
+
+*****
+
+####  a479281660  
+##### 62#       发表于 2024-1-15 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63655971&amp;ptid=2167962" target="_blank">天穹观测者 发表于 2024-1-15 15:54</a>
+买坦克300的几个越野？</blockquote>
+但坦克300能进市区
+
+—— 来自 OPPO PGT110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天穹观测者  
+##### 63#       发表于 2024-1-15 17:42
+
+<blockquote>a479281660 发表于 2024-1-15 17:40
+但坦克300能进市区
+
+—— 来自 OPPO PGT110, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+并不是所有人都住一二线城市
+

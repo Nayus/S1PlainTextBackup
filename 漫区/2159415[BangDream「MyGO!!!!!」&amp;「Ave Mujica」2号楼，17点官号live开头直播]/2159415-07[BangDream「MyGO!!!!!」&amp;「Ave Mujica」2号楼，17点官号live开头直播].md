@@ -694,3 +694,14 @@ AI成精笑出聲，D4DJ真會玩<img src="https://static.saraba1st.com/image/sm
 
 2024-1-16 00:26 上传
 
+
+*****
+
+####  jerryoq1  
+##### 9054#       发表于 2024-1-16 04:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63660178&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-1-15 22:50</a>
+猫猫是不是听过C团live啊</blockquote>
+没有任何去的理由或暗示阿，何况已经有初华了，再重复用一个设定就奇怪了。
+tv的剧本还是挺精巧的，加或删点都会让故事不对劲。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

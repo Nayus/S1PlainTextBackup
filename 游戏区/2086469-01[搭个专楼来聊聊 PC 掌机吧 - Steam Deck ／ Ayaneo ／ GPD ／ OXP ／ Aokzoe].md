@@ -699,3 +699,33 @@ PDD有一家就是店里改好的32G
 而且是六寸屏，60的刷新率</blockquote>
 没，也是7寸120的屏，价格应该不会比mini低
 
+
+*****
+
+####  bypass  
+##### 1085#         楼主| 发表于 2024-1-15 16:43
+
+PureDark 的 FSR 3.0（付费）Mod。
+
+<img src="https://img.saraba1st.com/forum/202401/15/164301t9w8zyzzg8ylmmmg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 16:43 上传
+
+*****
+
+####  bypass  
+##### 1086#         楼主| 发表于 2024-1-15 16:43
+
+重复了，编辑掉。
+
+*****
+
+####  猫不萌  
+##### 1087#       发表于 2024-1-15 16:48
+
+有点想付费了，能在 steam os 上用那
+

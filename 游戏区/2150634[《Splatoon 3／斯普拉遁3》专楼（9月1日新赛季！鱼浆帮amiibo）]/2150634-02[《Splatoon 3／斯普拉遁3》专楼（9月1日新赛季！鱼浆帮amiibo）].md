@@ -9462,3 +9462,20 @@ neet派怎么能组队的？
 
 2月15号发售月刊コロコロコミック3月号送8号和hime的徽章，dlc发售快了？
 
+
+*****
+
+####  yanglian72  
+##### 2455#       发表于 2024-1-15 16:49
+
+DLC应该是和新赛季同步出
+
+*****
+
+####  KBAC  
+##### 2456#       发表于 2024-1-15 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63656143&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-1-15 16:07</a>
+ 2月15号发售月刊コロコロコミック3月号送8号和hime的徽章，dlc发售快了？</blockquote>
+如果早一点就是和dlc1差不多的时间，不过他预告都写2024年春以降了，我觉得SpringFest之后发布的可能性更大一点，带2代广场玩的特殊祭典留到24年万圣节去。
+

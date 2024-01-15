@@ -9454,3 +9454,11 @@ neet派怎么能组队的？
 
 本周该出平衡补丁了，我看不如把电锯的SPP降到160吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2454#       发表于 2024-1-15 16:07
+
+2月15号发售月刊コロコロコミック3月号送8号和hime的徽章，dlc发售快了？
+

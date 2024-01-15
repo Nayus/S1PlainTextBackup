@@ -1559,3 +1559,39 @@ noir有没有可能是接触之后从乐园下载来的人格?
 
 阿美是地下城，乐园在天上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 3462#       发表于 2024-1-15 23:53
+
+下集宿命对决，感觉可以看到像op里黑白来回切的战术打黑假面一个措手不及。就是不知道在战斗方面诺娃比起米斯蒂有啥优势就是了（
+
+*****
+
+####  NeloAngelo  
+##### 3463#       发表于 2024-1-15 23:56
+
+<img src="https://img.saraba1st.com/forum/202401/15/235642txx0me9ijfs1l1xs.jpg" referrerpolicy="no-referrer">
+
+<strong>23329715-bd1e-46e7-8002-a71bf9512ce0.jpg</strong> (43.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 23:56 上传
+
+EPISODE 15
+
+Duel of Fates
+
+Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his search for clues to the legendary Histoire. He tries to gain access, but is suddenly attacked. When he confronts the attackers, Kanata is challenged to a duel for his Magus.
+
+*****
+
+####  novyDC  
+##### 3464#       发表于 2024-1-15 23:59
+
+下集要战面具男了啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

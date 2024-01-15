@@ -4082,3 +4082,15 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波联动要是黑贞还没改模 我估计关服黑贞都改不了了
 
+
+*****
+
+####  eilot  
+##### 10890#       发表于 2024-1-16 00:00
+
+老模應該好多吧，由開服那些如果在多次動畫化時都沒有重攸
+
+以後應該也沒機會
+
+而且他們也有不少連寶具、強化本都沒有，連幕間都沒有也更多
+

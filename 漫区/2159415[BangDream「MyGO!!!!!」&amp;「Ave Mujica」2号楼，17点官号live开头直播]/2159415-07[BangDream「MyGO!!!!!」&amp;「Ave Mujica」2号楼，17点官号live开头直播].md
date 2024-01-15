@@ -619,3 +619,11 @@ AVEMUJICA是赞美音乐/音乐万岁，丰川祥子在羽丘为数不多的放�
 把dj二代银河战舰被创翻的剧情看了，应该不用担心第二季有类似情况，也不是贴吧说的两团差距极大然后地下团 ...</blockquote>
 AI成精笑出聲，D4DJ真會玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 9048#       发表于 2024-1-15 22:50
+
+猫猫是不是听过C团live啊
+

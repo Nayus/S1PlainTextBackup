@@ -15985,3 +15985,13 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 看紫吧对比d二代和邦二的，wsd不会真想让🐔被狗团对邦撞翻吧，真出现这种剧情的话我不好评价了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 8996#       发表于 2024-1-15 08:43
+
+你邦逼格体感受三次元影响，萝爹三次元永远的人气top在剧情里大混战最后赢了主角团ppp和银河战舰ras，蝶三次元人气垫底剧情里被ag薄纱，按一二季剧本已经写好的说法至少第二季应该是不会有这种剧情的，狗估计戏份都没多少
+
+估计得狗这个仅次于萝的销量和live人气稳定保持几年官方才有可能后续写个创飞银河战舰，不过我觉得难度很高，光是今年这策划就能把中华炮打掉一大半了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

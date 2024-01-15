@@ -4051,3 +4051,11 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 那个宝具能做三个月的吗，合着都去旅游和home office 了？</blockquote>
 其实可能不止三个月，叶良树说为了更好表现水妖兰的宝具效果，光水妖兰起飞的的那个船的建模就足足做了三个月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  AbigailWilliams  
+##### 10886#       发表于 2024-1-15 18:49
+
+三个月做个这确实蛮好混工资的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

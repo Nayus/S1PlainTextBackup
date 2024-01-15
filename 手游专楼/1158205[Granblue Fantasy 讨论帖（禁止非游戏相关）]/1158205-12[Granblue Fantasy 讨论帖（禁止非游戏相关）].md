@@ -69,3 +69,11 @@
 
 <img src="https://img.saraba1st.com/forum/202401/13/172346sk3oo7qb8wrnsrbk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shinitakute  
+##### 17599#       发表于 2024-1-15 12:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我说 真别装了，打开游戏进入活动拿完各种奖励不就完事了吗
+

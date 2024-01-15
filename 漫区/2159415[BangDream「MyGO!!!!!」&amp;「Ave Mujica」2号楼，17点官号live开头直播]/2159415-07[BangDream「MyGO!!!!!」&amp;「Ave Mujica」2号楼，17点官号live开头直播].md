@@ -272,3 +272,22 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  acgreen  
+##### 9017#       发表于 2024-1-15 13:13
+
+大部分二创和剧中角色没啥联系，OOC不足以形容了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  acgreen  
+##### 9018#       发表于 2024-1-15 13:16
+
+当然，各人有各人的角色理解，只要不跟原作直接冲突就行
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

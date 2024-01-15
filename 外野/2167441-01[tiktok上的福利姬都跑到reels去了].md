@@ -84,3 +84,13 @@ ins的封号是最傻逼的，+86根本不给你验证码，你找个接码的�
 
 搞错了 编辑
 
+
+*****
+
+####  张小狗  
+##### 129#       发表于 2024-1-15 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前老让我确认年龄，我就把年龄设置未满十八岁，然后就给我封了
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

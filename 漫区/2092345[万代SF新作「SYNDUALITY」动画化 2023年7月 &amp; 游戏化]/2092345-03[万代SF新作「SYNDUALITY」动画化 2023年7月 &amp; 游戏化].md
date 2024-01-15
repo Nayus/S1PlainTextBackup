@@ -1603,3 +1603,13 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 通过决斗定诺娃的归属，不愧是你黑假面。这必输的局看你怎么交差了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 3466#       发表于 2024-1-16 02:56
+
+感觉a国在外太空建了一个殖民卫星
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

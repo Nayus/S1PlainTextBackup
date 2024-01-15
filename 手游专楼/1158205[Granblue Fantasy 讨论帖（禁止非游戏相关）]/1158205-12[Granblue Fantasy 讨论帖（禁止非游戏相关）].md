@@ -77,3 +77,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我说 真别装了，打开游戏进入活动拿完各种奖励不就完事了吗
 
+
+*****
+
+####  DDWarrior  
+##### 17600#       发表于 2024-1-15 12:49
+
+团里的人有在意这个的，直接退坑了，要我说真没必要又当又立<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

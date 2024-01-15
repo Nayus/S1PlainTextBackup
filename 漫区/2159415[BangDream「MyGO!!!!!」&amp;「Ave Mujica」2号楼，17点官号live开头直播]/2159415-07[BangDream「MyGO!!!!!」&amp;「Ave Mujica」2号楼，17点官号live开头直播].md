@@ -260,3 +260,15 @@ d二找的人这么厉害的吗？怪不得剧情里吹的跟ras plus一样
 
 https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/15/0c713006c8fd9e20732f816ace2c718b/3f343791e6cc9109-1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 9016#       发表于 2024-1-15 12:47
+
+转隔壁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/0289a9fa880ad04e9073a832ab8d7ae4/CMP_20240115124654399.jpg" referrerpolicy="no-referrer">
+喵老师和海老师非常契合角色
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

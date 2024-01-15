@@ -1651,3 +1651,15 @@ JOINT LIVE可真好看啊
 
 2024-1-14 21:48 上传
 
+
+*****
+
+####  Rafale  
+##### 129#       发表于 2024-1-15 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648399&amp;ptid=1914658" target="_blank">liuguokobe 发表于 2024-1-14 21:48</a>
+这是走向真人化了？</blockquote>
+主流出道必经之路了，看来要走创作歌手路线
+
+—— 来自 Xiaomi 2312CRAD3C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

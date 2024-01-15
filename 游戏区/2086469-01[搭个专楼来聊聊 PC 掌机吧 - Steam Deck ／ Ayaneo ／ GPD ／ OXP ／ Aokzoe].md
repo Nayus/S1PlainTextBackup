@@ -729,3 +729,14 @@ PureDark 的 FSR 3.0（付费）Mod。
 
 有点想付费了，能在 steam os 上用那
 
+
+*****
+
+####  cc-2  
+##### 1088#       发表于 2024-1-15 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63656582&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2024-1-15 16:40</a>
+
+没，也是7寸120的屏，价格应该不会比mini低</blockquote>
+哦哦，我看错了，以为你说的Slide
+

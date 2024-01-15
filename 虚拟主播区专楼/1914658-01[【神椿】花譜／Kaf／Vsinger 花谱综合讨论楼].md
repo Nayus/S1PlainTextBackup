@@ -1663,3 +1663,25 @@ JOINT LIVE可真好看啊
 
 —— 来自 Xiaomi 2312CRAD3C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  渡鸦骑士  
+##### 130#       发表于 2024-1-15 13:05
+
+主流出道无可厚非。
+撕皮嘛，就见仁见智了。
+这么多年终于能在O榜看到神椿人了嘛？
+
+*****
+
+####  liuguokobe  
+##### 131#       发表于 2024-1-15 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63653896&amp;ptid=1914658" target="_blank">Rafale 发表于 2024-1-15 12:51</a>
+
+主流出道必经之路了，看来要走创作歌手路线
+
+—— 来自 Xiaomi 2312CRAD3C, Android 13上的 S1Next-鹅版  ...</blockquote>
+花谱也不算是什么创作歌手吧。以前靠黑柿子，之后靠可不
+

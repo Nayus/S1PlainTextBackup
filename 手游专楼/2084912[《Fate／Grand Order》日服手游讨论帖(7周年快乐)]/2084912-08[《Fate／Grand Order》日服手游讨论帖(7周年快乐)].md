@@ -4019,3 +4019,23 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 
 做了三个月都不给宝具差分，光有个比例变形的正脸，白龙形态的特色都体现不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 10883#       发表于 2024-1-15 17:15
+
+那个宝具能做三个月的吗，合着都去旅游和home office 了？
+
+*****
+
+####  exiaexa  
+##### 10884#       发表于 2024-1-15 17:17
+
+其实我觉得水老兰最草的地方是那个一爬变形
+
+导致我现在上水妖兰放宝具都要闭个眼，太蠢了
+
+一干高达都看哭了，原来我们不是最菜的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

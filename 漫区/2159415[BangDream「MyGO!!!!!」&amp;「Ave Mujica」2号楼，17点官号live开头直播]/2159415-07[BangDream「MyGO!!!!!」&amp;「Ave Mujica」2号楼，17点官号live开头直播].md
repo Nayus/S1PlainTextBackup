@@ -374,3 +374,44 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 
 说起来蝶被ag干掉，这剧情也是够抽象的，我知道蝶很没人气，不过好歹是个真人团，爆米连ag都爆不过吗？
 
+
+*****
+
+####  NODY  
+##### 9026#       发表于 2024-1-15 17:14
+
+要让狗出一个唱黑脸的必然是立希啊，反正已经是垫脚的了，垫四个和垫九个有区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 9027#       发表于 2024-1-15 17:18
+
+主要是🐔🐶没有对邦的前置条件吧，一个地下乐队和一个出道乐队对邦干嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼于wsdgcv  
+##### 9028#       发表于 2024-1-15 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63652756&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-15 11:17</a></blockquote>
+好痛啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 9029#       发表于 2024-1-15 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">还有整整12天
+
+*****
+
+####  NODY  
+##### 9030#       发表于 2024-1-15 17:22
+
+<blockquote>凡人 发表于 2024-1-15 17:12
+说起来蝶被ag干掉，这剧情也是够抽象的，我知道蝶很没人气，不过好歹是个真人团，爆米连ag都爆不过吗？ ...</blockquote>
+摩卡和兰这俩手游爆的米应该挺多的，尤其是可以争一下t0的摩卡
+
+不过说到底还是蝶三次元唱功不行人气垫底所以剧情拿来垫也不会有太多人有意见，鸡狗现在三次元人气差距没多大，像ppp双r要么有人气要么有实力要么有苦劳，剧情里总归会给点面子，鸡狗刚起步人气还不确定，应该是不会那么快给垫的剧情的，要垫也是垫前辈而不是同辈
+

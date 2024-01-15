@@ -575,3 +575,11 @@ AVEMUJICA是赞美音乐/音乐万岁，丰川祥子在羽丘为数不多的放�
 
 那里面战舰团主唱被亲爹当成死去亲妈的替代品斯巴达训练目标是成为世界第一，二代主角团的主唱是银河战舰主唱亲妈的音源做的ai虚拟歌姬进化成精，所以战舰主唱一直很不爽二代主角团，然后银河战舰被创飞是因为ai精飞速进化唱得比人还强，战舰主唱爹评价她唱得不如ai，导致战舰主唱ptsd发作在live现场失声输了比赛，就这剧情我觉得鸡狗要重演也挺困难的，怕是得来个灯是祥子死去的亲妈转世之类的展开才行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 9044#       发表于 2024-1-15 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这展开有点太魔法了
+

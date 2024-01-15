@@ -5207,3 +5207,13 @@ miko不懂混合四则运算的先后规则
 
 关键是就这么的还能拿满分的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说确实作为holo箱推比观众还专业
 
+
+*****
+
+####  holoan  
+##### 7998#         楼主| 发表于 2024-1-15 22:38
+
+今天开头说今天突然特地去工作室并不是因为自己的工作而是去跟某holomem一起玩，具体什么内容没说
+
+看推特怎么像是去送之前海外旅行的特产的
+

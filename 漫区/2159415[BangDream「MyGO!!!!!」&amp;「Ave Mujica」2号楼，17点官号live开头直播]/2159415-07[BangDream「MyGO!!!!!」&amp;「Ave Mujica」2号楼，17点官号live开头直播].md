@@ -436,3 +436,23 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 
 虽然你邦现在进入了除hhw外所有团不是打了排位就是在打排位路上的大对邦时代，但实际上鸡狗一个为了世界观不能随便打比赛，一个在当喝茶摆子，要下场打排位也挺难的
 
+
+*****
+
+####  爱丁堡official  
+##### 9033#       发表于 2024-1-15 18:32
+
+X: R23NhwynX7lCRtC
+<img src="https://p.sda1.dev/15/67df62a9692eb22916847da2ca0e51a9/IMG_CMP_253132804.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  acgreen  
+##### 9034#       发表于 2024-1-15 18:33
+
+AVEMUJICA是赞美音乐/音乐万岁，丰川祥子在羽丘为数不多的放松是弹钢琴。鸡团到底是不是纯为了赚米还不确定。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

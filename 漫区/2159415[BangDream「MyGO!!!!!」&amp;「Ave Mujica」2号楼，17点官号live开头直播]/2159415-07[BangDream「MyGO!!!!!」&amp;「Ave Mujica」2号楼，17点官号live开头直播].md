@@ -426,3 +426,13 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 主要是🐔🐶没有对邦的前置条件吧，一个地下乐队和一个出道乐队对邦干嘛？还是说🐶看不惯🐔的成团理 ...</blockquote>
 什麼！但是樂隊理念要賺錢不是非常正確嗎<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 9032#       发表于 2024-1-15 18:01
+
+鉴于你邦明确不满音乐是爆米工具理念的其实是天花板双r尤其是ras，你们还不如担心出现被前辈创的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然你邦现在进入了除hhw外所有团不是打了排位就是在打排位路上的大对邦时代，但实际上鸡狗一个为了世界观不能随便打比赛，一个在当喝茶摆子，要下场打排位也挺难的
+

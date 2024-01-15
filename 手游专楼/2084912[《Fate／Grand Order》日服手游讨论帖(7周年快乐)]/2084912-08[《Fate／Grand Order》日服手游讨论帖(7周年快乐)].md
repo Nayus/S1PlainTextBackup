@@ -3974,3 +3974,18 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 main interlude复刻的兑换规则不一样，基本上活动商店里的礼装是不给的。SERAPHIX不给某个夏天，后面的冥 ...</blockquote>
 麻了，当时以为都会复刻没有换还是刷够，YLS这构币啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 10878#       发表于 2024-1-15 14:54
+
+ 本帖最后由 exiaexa 于 2024-1-15 15:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63648298&amp;ptid=2084912" target="_blank">史蒂符 发表于 2024-1-14 21:35</a>
+
+盐川真是蘑菇的再生父母啊，没有他估计月姬r和魔夜3早出来了。</blockquote>
+盐川救的是DW不是阿菌啊，你往大了说甚至可以说是SONY MUSIC某年的财报
+
+实际上就那几年手游爆发的风气，就算FGO死了，也总会有下一家找过去给阿菌喂饭的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

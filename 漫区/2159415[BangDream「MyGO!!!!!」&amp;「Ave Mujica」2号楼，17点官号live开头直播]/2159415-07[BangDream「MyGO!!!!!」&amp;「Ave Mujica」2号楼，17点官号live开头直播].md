@@ -583,3 +583,28 @@ AVEMUJICA是赞美音乐/音乐万岁，丰川祥子在羽丘为数不多的放�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这展开有点太魔法了
 
+
+*****
+
+####  爱丁堡official  
+##### 9045#       发表于 2024-1-15 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63659356&amp;ptid=2159415" target="_blank">NODY 发表于 2024-01-15 21:23:13</a></blockquote>绫奈：有我当年flfl的味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NODY  
+##### 9046#       发表于 2024-1-15 22:01
+
+祥子也是隐藏lsp是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/15/220109cmluottwu0oqz24z.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240115220046.png</strong> (46.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:01 上传
+

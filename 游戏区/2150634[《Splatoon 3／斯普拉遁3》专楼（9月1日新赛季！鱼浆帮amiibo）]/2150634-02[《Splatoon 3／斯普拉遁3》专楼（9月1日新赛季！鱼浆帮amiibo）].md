@@ -9519,3 +9519,11 @@ DLC应该是和新赛季同步出
 
 改都不改的
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2461#       发表于 2024-1-15 21:55
+
+2代的时候破船和集落就是两大臭名昭著的图，一个刷怪阴间，一个挡视野，看解包说之后更新还要把集落也加进来，那可真有得玩了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+

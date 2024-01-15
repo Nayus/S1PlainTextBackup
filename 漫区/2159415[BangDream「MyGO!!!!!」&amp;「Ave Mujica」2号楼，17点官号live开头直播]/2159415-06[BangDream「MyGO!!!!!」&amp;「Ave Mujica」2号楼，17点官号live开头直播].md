@@ -16018,3 +16018,13 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 跨队叙事应该就是围绕心里有老c团这几个字的四个人的故事了
 
+
+*****
+
+####  Aendst  
+##### 9000#       发表于 2024-1-15 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点厉害，如果前篇都不算多线叙事算单线叙事，那所谓的双线叙事就是指续篇动画里有至少一半要讲mygo是吧
+
+插了两个剧场版还这么搞，那只能引用漏油名言了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> <blockquote>观众也不计较吗</blockquote>
+

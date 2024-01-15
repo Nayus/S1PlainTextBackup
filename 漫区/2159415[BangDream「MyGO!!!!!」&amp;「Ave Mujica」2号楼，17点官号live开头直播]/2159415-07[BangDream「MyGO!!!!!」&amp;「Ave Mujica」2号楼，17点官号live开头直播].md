@@ -16,3 +16,62 @@ DJ那边我没追，不知道是不是有强推人气不高的团创人气高的
 
 如果只想讲好母鸡卡的故事，狗团本来就不用出场了，顶多几个角色以个人身份出场。举个例子，大家觉得狗团在母鸡卡里需要有live么？不过从情理上说，13话有母鸡卡的live，那母鸡卡正篇起码得还一场吧。
 
+
+*****
+
+####  Aendst  
+##### 9003#       发表于 2024-1-15 10:13
+
+不需要，mygo新live比mujica动画还早出呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 9004#       发表于 2024-1-15 10:15
+
+Mujica延期把我的期待值打下来了，整出什么活都不会太波动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9005#       发表于 2024-1-15 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63651834&amp;ptid=2159415" target="_blank">金钱与民主 发表于 2024-1-15 10:09</a>
+
+如果只想讲好母鸡卡的故事，狗团本来就不用出场了，顶多几个角色以个人身份出场。举个例子，大家觉得狗团在 ...</blockquote>
+還在還live還在還live，按照監督的話來說13話是ave的第0話捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 9006#         楼主| 发表于 2024-1-15 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63651528&amp;ptid=2159415" target="_blank">Nungesser 发表于 2024-1-15 09:47</a>
+
+其实真要说的话，Mujica的故事里硬性需要Mygo集体出场的地方几乎就没有了......毕竟赛道完全不一样了。所以 ...</blockquote>
+这两团的根源都在ccc，而ccc的开始、结束与问题都在祥子，下一季以祥子为中心肯定要把老c团牵扯进来来。
+
+爱音和灯、素关系都近距离而且和祥子同校应该也会有戏份，主要问题就是猫猫了，她根本不认识祥子或者说mujica的任何一个人<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 9007#       发表于 2024-1-15 10:19
+
+柿本：mujica的故事在10话就可以结束了，为了填充剧情于是我们在10-13话讲述了本来预定在下一季结成的夢限大みゅーたいぷ的故事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9008#       发表于 2024-1-15 10:19
+
+要对应第一季的话大概是
+
+出两个c团老人花个半集到一集解决c团问题，对应8集惊天一跪事件
+
+再出两个当助攻的，对应第一季初华和海铃的位置
+
+还有一个打酱油的，对应喵老师
+
+最后一集对应13集补个狗的live完事
+

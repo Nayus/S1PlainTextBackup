@@ -617,3 +617,13 @@ PDD有一家就是店里改好的32G
 日常不接电模式25W玩，跑生化4，机能对我来说是足够了</blockquote>
 试试自定义模式拉个 25w？
 
+
+*****
+
+####  bypass  
+##### 1078#         楼主| 发表于 2024-1-15 09:23
+
+[https://www.youtube.com/watch?v=**Q9b-eWw](https://www.youtube.com/watch?v=**Q9b-eWw)
+
+我以为 ETA Prime 拿到 Aya 的新机了，原来是 5825U 装 HoloISO 来测试 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+

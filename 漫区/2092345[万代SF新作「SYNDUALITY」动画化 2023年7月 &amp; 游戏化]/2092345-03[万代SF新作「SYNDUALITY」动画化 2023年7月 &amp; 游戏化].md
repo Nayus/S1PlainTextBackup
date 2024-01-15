@@ -1331,3 +1331,13 @@ PV里的特训来了
 青梅这发型真可爱</blockquote>
 漫画里有个单马尾造型更好看，不知道动画里能不能见到
 
+
+*****
+
+####  洛克萨斯  
+##### 3436#       发表于 2024-1-15 13:48
+
+迪士尼这翻译看得我脑壳痛，这集就变回来了啊，虽然又变回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+带米斯缇逛街挺好的
+

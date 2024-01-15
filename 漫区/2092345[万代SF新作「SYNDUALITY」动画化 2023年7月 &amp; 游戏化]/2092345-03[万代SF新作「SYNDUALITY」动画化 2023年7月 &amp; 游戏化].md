@@ -1437,3 +1437,60 @@ noir有没有可能是接触之后从乐园下载来的人格?
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  novyDC  
+##### 3448#       发表于 2024-1-15 23:13
+
+诺瓦你果然是专业迫害男主的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RE㐅ia  
+##### 3449#       发表于 2024-1-15 23:13
+
+太乐了
+
+*****
+
+####  约翰里德  
+##### 3450#       发表于 2024-1-15 23:13
+
+过于生草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HGCG3  
+##### 3451#       发表于 2024-1-15 23:15
+
+男主终于被玩坏了吗！
+
+*****
+
+####  NeloAngelo  
+##### 3452#       发表于 2024-1-15 23:17
+
+草, pv回收
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  若菜  
+##### 3453#       发表于 2024-1-15 23:18
+
+这练的也太快了 科技！
+
+*****
+
+####  novyDC  
+##### 3454#       发表于 2024-1-15 23:21
+
+歌姬暴露呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

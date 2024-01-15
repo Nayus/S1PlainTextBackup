@@ -9396,3 +9396,29 @@ neet派怎么能组队的？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">运气不错，将近晚上开始打拿到1次百倍两次10倍，比前几次祭典强多了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2447#       发表于 2024-1-15 10:07
+
+鬼福大获全胜啊，其他俩都是0分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这波是i人的大胜利
+
+*****
+
+####  罗克萨斯  
+##### 2448#       发表于 2024-1-15 10:10
+
+选的鬼福，打的不多，但是全胜（除了掉线直接中断的比赛）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  墨染白泉  
+##### 2449#       发表于 2024-1-15 10:12
+
+鬼福的第三次大满贯
+

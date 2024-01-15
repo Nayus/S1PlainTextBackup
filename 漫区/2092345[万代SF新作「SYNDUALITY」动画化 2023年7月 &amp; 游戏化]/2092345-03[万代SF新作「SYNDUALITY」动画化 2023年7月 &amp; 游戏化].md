@@ -1320,3 +1320,14 @@ PV里的特训来了
 
 青梅这发型真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 3435#       发表于 2024-1-15 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63653528&amp;ptid=2092345" target="_blank">terminator1990 发表于 2024-1-15 12:18</a>
+
+青梅这发型真可爱</blockquote>
+漫画里有个单马尾造型更好看，不知道动画里能不能见到
+

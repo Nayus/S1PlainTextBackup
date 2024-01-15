@@ -25264,3 +25264,133 @@ Small和Wide模型的训练损失和评估准确率%
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1182#       发表于 2024-1-15 22:12
+
+Mind Your Format
+
+改进上下文学习从而迈向一致的评估
+
+github项目主页:https://github.com/yandex-research/mind-your-format
+
+大型语言模型展现出了从少数例子中学习解决新任务的非凡能力，然而，提示模板(prompt template)或者说输入示例的格式化(formatted)为提示的方式，是上下文学习中一个重要但常常被忽视的方面
+
+在这项工作中，全面研究了模板格式对上下文学习性能的影响，评估了模板格式对各种模型(从770M到70B个参数)和4个标准分类数据集的影响，结果发现，选择不当的模板会将最强大的模型和推理方法的性能降低到随机猜测的级别(random guess level)，更重要的是，其中最好的模板在不同设置中，甚至是同一系列的模型之间也不能迁移
+
+研究结果表明，当前流行的评估方法忽视了模板选择，可能会因为不同研究工作中的不同模板而导致误导性的结果，作为缓解这个问题的第一步，本文提出了模板聚合(Template Ensembles)，通过聚合多个模板的模型预测，这种简单的测试时增强(simple test-time augmentation)可以提高平均性能，并且对于随机选择的模板集具有稳健性
+
+<img src="https://img.saraba1st.com/forum/202401/15/221201zbxoe70fc07bcccs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-220740__01.jpg</strong> (199.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+两个演示的示例模板转换(example template transformation)，不同的提示格式会导致模型和ICL方法的不同排序，对于某个方法最佳的模板对于其他方法则可能是次优的
+
+<img src="https://img.saraba1st.com/forum/202401/15/221206xwqj6wjsn7vus62q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-220807.jpg</strong> (151.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+本文研究工作中使用的语言模型
+
+<img src="https://img.saraba1st.com/forum/202401/15/221210d3we2pmps3e23mw4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-220823__01.jpg</strong> (177.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+本文研究工作中模板的所有成分的可能选择
+
+<img src="https://img.saraba1st.com/forum/202401/15/221215piscimjq8026xujj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-220924.jpg</strong> (114.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+在基线设置下2个LLMs系列的分类准确率，30次运行中(3组演示的10个模板)的标准差在下标中表示
+
+<img src="https://img.saraba1st.com/forum/202401/15/221221pu15rxfnv1131aff.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-221004.jpg</strong> (73.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+在2-shot设置中，上下文学习预测方法的对比
+
+<img src="https://img.saraba1st.com/forum/202401/15/221226eoft8tswskicfefk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-221016.jpg</strong> (77.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+在直接(DIRECT)4-shot设置中选择方法的对比
+
+<img src="https://img.saraba1st.com/forum/202401/15/221231w4x8z74uunztln4n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-221032.jpg</strong> (186.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+在DBPedia数据集上，使用直接预测方法在随机(RANDOM)2-shot设置中，所有模型的top-10模板的IoU(Intersection-over-Union)
+
+<img src="https://img.saraba1st.com/forum/202401/15/221236k30vttb03i0oiidi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-221039.jpg</strong> (79.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+对随机2-shot设置下，通过不同解码方法获得的19个模型的结果进行平均IoU
+
+<img src="https://img.saraba1st.com/forum/202401/15/221241nzaihi5uzhxaax23.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-221051.jpg</strong> (62.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+在AG News数据集上，每种示例选择方法的top-10最佳模板的IoU，METHOD-N表示使用METHOD选择了N个示例
+
+<img src="https://img.saraba1st.com/forum/202401/15/221245iz1aavkdt5o1ok3s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-221107.jpg</strong> (104.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+使用聚合的5个模板和单个模板对SST-2数据集的2-shot学习性能进行对比，最终结果是在5个随机种子(random seeds)上进行平均的
+
+<img src="https://img.saraba1st.com/forum/202401/15/221251y2alwco0lqpbv0zv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240115-221125.jpg</strong> (50.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 22:12 上传
+
+对SST-2数据集上Falcon 40B的2-shot学习性能进行聚合尺寸的消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

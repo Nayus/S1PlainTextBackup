@@ -9527,3 +9527,13 @@ DLC应该是和新赛季同步出
 
 2代的时候破船和集落就是两大臭名昭著的图，一个刷怪阴间，一个挡视野，看解包说之后更新还要把集落也加进来，那可真有得玩了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 2462#       发表于 2024-1-15 22:17
+
+24 年冬也是春以降，反正 DLC 页面日期占位写着 2024 年 12 月 31 日前<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。
+
+两周年前能出就是胜利。
+

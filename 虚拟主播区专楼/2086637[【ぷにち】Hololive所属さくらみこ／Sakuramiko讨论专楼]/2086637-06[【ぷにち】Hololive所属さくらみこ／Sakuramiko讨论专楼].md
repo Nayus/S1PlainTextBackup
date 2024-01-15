@@ -5195,3 +5195,15 @@ miko不懂混合四则运算的先后规则
 
 很像脱离学习太久的表现<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 7997#         楼主| 发表于 2024-1-15 22:20
+
+单纯没经受过高考之类的历练对这种正经考题怎么解答没有概念罢了
+
+谁不是出来工作多年完全没接受过正式考试的，没事前通知突然给你一份考题让你做也是一样的
+
+关键是就这么的还能拿满分的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说确实作为holo箱推比观众还专业
+

@@ -638,3 +638,14 @@ PDD有一家就是店里改好的32G
 试试自定义模式拉个 25w？</blockquote>
 我试试看
 
+
+*****
+
+####  bypass  
+##### 1080#         楼主| 发表于 2024-1-15 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63651544&amp;ptid=2086469" target="_blank">cc-2 发表于 2024-1-15 09:48</a>
+
+我试试看</blockquote>
+那个模式一个问题是风扇最低也没法拉到很低，但是对于 25w 这种本来风扇噪音就不会太小的影响应该不大。
+

@@ -25506,3 +25506,157 @@ github项目主页:https://github.com/NJUNLP/MCSD
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1184#       发表于 2024-1-16 02:11
+
+prometheus-vision
+
+使用视觉语言模型作为细粒度评估的评判者
+
+github项目主页:https://github.com/kaistAI/prometheus-vision
+
+评估由视觉语言模型(VLM/Vision-Language Models)生成的长篇回答非常具有挑战性，这不仅需要检查VLM是否遵循给定的指令，还需要验证文本输出是否适当地基于给定的图像
+
+受最近使用语言模型评估语言模型的方法的启发，在这项工作中，提出了使用VLM评估VLM的方法，为此，构造了一个名为Perception Collection的新反馈数据集，其中包含15K个用户在评估过程中可能关心的自定义评分标准
+
+使用Perception Collection，训练了Prometheus-Vision，这是第一个能够在评估过程中理解用户定义的评分标准的开源VLM评估模型
+
+Prometheus-Vision在与人类评估者和GPT-4V之间的皮尔逊相关系数(Pearson correlation)中表现出最高的水平，展示了其对VLM的透明和可访问评估的有效性
+
+<img src="https://img.saraba1st.com/forum/202401/16/021035djcccc4nqsjo4cjk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020722.jpg</strong> (311.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:10 上传
+
+传统的度量指标衡量回答与基准答案之间的相似性，表达能力不足，此外也无法准确指出回答在评估标准上的不足之处，相比之下，VLM作为评判者的工作流程不仅具有遵循任意评估标准的灵活性，还提供了指出具体不足之处的详细语言反馈
+
+<img src="https://img.saraba1st.com/forum/202401/16/021043cfl5p33zzl84zkk7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020736.jpg</strong> (251.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:10 上传
+
+以往的自动评估指标无法捕捉到VLM回答是否意识到美学和谐(aesthetic harmony)，通过PROMETHEUS-VISION，用户可以基于自定义的评分标准，而不是根据粗粒度的准则，如帮助性、相关性、准确性和全面性等进行评估
+
+每个PERCEPTION COLLECTION的组件都由5个输入组成:指令、真实世界图像、待评估的回答、自定义评分标准和参考答案
+
+基于此，PROMETHEUS-VISION被训练生成语言反馈和评分决策
+
+<img src="https://img.saraba1st.com/forum/202401/16/021051w3k3yyn3hhvyums4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020752.jpg</strong> (77.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:10 上传
+
+PERCEPTION COLLECTION中包含的每个组件的数量，请注意，反馈和评分是均匀分布的，1-5评分之间每个评分有30K个实例
+
+<img src="https://img.saraba1st.com/forum/202401/16/021057h2haehtt27d7aqdq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020812.jpg</strong> (65.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:10 上传
+
+在第5.1节中评估设置中包含的实例数量和评分标准，从每个基准中随机抽取15个实例，并手工制定了一个实例级细粒度评分标准，每个实例原本只包含一张图片和一条指令
+
+<img src="https://img.saraba1st.com/forum/202401/16/021104nqpsbbprsbqwbzlo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020819.jpg</strong> (122.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:11 上传
+
+在第5.2节的评估设置中包含的实例数量和评分标准，除了LLaVA-Bench外，从每个基准中随机抽取500个实例，每个实例原本只包含一张图片和一条指令，另外通过提示GPT-4V来添加了细粒度的评分标准和参考答案
+
+<img src="https://img.saraba1st.com/forum/202401/16/021116jmzrkrmk6wrk96zq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020837.jpg</strong> (157.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:11 上传
+
+人工评估的评分决策与GPT-4V、GPT-4、GPT-3.5-TURBO、PROMETHEUS-13B和PROMETHEUS-VISION-13B的评分决策在来自LLAVA-BENCH、VISIT-BENCH和PERCEPTION-BENCH的45个定制评分标准的实例之间的皮尔逊相关系数
+
+PROMETHEUS-VISION与人工评估的相关性较高，特别是在包含真实世界图像的实例上
+
+<img src="https://img.saraba1st.com/forum/202401/16/021121vvpvpmsimvmg48g4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020844.jpg</strong> (96.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:11 上传
+
+GPT-4V、GPT-4和PROMETHEUS-VISION-13B生成的语言反馈质量的两两对比，结果显示，PROMETHEUS-VISION的反馈质量在57.78%的情况下与GPT-4V的反馈质量一致或优于后者
+
+<img src="https://img.saraba1st.com/forum/202401/16/021127viirzh9rrzl0hzjh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020907.jpg</strong> (160.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:11 上传
+
+通过从GPT-4V中采样跨越3个视觉指令跟随基准测试推理的分数测量了Pearson、Kendall-Tau和Spearman相关性，需要注意的是，为了测量自我一致性(self-consistency)，总共对GPT-4V进行了6次采样
+
+在基线测试中以粗体显示最佳可比统计数据，次佳则以下划线标注，通过将GPT-4V作为参考，展示了其在多次推理中的自我一致性
+
+<img src="https://img.saraba1st.com/forum/202401/16/021133naor4daiqxkn4ohr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020914.jpg</strong> (142.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:11 上传
+
+通过从GPT-4V中采样跨越3个视觉问答基准测试推理的分数测量了Pearson、Kendall-Tau和Spearman相关性，需要注意的是，为了测量自我一致性(self-consistency)，总共对GPT-4V进行了6次采样
+
+在基线测试中以粗体显示最佳可比统计数据，次佳则以下划线标注，通过将GPT-4V作为参考，展示了其在多次推理中的自我一致性，对于所有问题，为评估器VLM提供了细粒度的评分标准
+
+<img src="https://img.saraba1st.com/forum/202401/16/021141m2h6fm007652d6vv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020930.jpg</strong> (157.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:11 上传
+
+通过从GPT-4V中采样跨越3个字幕说明基准测试推理的分数测量了Pearson、Kendall-Tau和Spearman相关性，需要注意的是，为了测量自我一致性(self-consistency)，总共对GPT-4V进行了6次采样
+
+在基线测试中以粗体显示最佳可比统计数据，次佳则以下划线标注，通过将GPT-4V作为参考，展示了其在多次推理中的自我一致性，对于所有问题，为评估器VLM提供了细粒度的评分标准
+
+<img src="https://img.saraba1st.com/forum/202401/16/021149ygdjjubd0h8huzxp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020944.jpg</strong> (120.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:11 上传
+
+GPT-4V在所有测试集中，根据GPT-4V和PROMETHEUS-VISION 13B的评估，不同分数的回答长度分布，x轴上的每个分数类别都标注了从每个评估器VLM接收到该特定分数的回答数量
+
+<img src="https://img.saraba1st.com/forum/202401/16/021154uuhin3fw3fwp5g43.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240116-020956.jpg</strong> (137.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 02:11 上传
+
+使用PROMETHEUS-VISION或GPT-4V作为评估器VLM，对LLaVA-Bench和PERCEPTION-BENCH上的5个VLM进行评估，趋势显示PROMETHEUS-VISION可以很好地模拟GPT-4V的评估，此外，PROMETHEUS-VISION的开源性为那些开发SOTAVLM的人提供了可访问和透明的评估
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

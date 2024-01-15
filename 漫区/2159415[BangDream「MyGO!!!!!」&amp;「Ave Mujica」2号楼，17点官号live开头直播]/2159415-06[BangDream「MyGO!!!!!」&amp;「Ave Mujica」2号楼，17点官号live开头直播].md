@@ -15995,3 +15995,11 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 估计得狗这个仅次于萝的销量和live人气稳定保持几年官方才有可能后续写个创飞银河战舰，不过我觉得难度很高，光是今年这策划就能把中华炮打掉一大半了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 8997#       发表于 2024-1-15 09:40
+
+让一个名义上为了忘却一切，本质上是因为对音乐的极度热爱，还要为了弥补打工时间不得不爆米而组建的乐队回头和mygo对邦，鉴定为直接烂完<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

@@ -608,3 +608,14 @@ AVEMUJICA是赞美音乐/音乐万岁，丰川祥子在羽丘为数不多的放�
 
 2024-1-15 22:01 上传
 
+
+*****
+
+####  御幸一也  
+##### 9047#       发表于 2024-1-15 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63659356&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-15 21:23</a>
+
+把dj二代银河战舰被创翻的剧情看了，应该不用担心第二季有类似情况，也不是贴吧说的两团差距极大然后地下团 ...</blockquote>
+AI成精笑出聲，D4DJ真會玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

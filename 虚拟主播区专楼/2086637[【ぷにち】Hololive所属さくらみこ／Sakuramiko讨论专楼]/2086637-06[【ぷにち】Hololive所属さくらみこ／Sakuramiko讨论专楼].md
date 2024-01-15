@@ -5166,3 +5166,32 @@ miko每次开大乱斗直播都这个样啊,怎么可能赢,她可是一年都�
 
 又被观众骗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 7995#         楼主| 发表于 2024-1-15 22:04
+
+ 本帖最后由 holoan 于 2024-1-15 22:06 编辑 
+
+今晚直播之后知道的事：
+
+miko不懂混合四则运算的先后规则
+
+读不懂复杂的题目和图表组合，对于大段文字阅读大脑处理跟不上
+
+不记得SSS的歌词
+
+容易被观众的黄段子陷阱钓上钩
+
+现在很努力活动实际上只是对自己有兴趣想做的事很积极反过来其他不感兴趣的事一点也不想做
+
+还有，明天fbk的测试要出什么题完全不知道，但是有信心能赢对手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 7996#       发表于 2024-1-15 22:08
+
+很像脱离学习太久的表现<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -563,3 +563,15 @@ AVEMUJICA是赞美音乐/音乐万岁，丰川祥子在羽丘为数不多的放�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63658561&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-15 19:43</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">这个吼啊
 
+
+*****
+
+####  NODY  
+##### 9043#       发表于 2024-1-15 21:23
+
+ 本帖最后由 NODY 于 2024-1-15 21:27 编辑 
+
+把dj二代银河战舰被创翻的剧情看了，应该不用担心第二季有类似情况，也不是贴吧说的两团差距极大然后地下团创飞银河战舰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那里面战舰团主唱被亲爹当成死去亲妈的替代品斯巴达训练目标是成为世界第一，二代主角团的主唱是银河战舰主唱亲妈的音源做的ai虚拟歌姬进化成精，所以战舰主唱一直很不爽二代主角团，然后银河战舰被创飞是因为ai精飞速进化唱得比人还强，战舰主唱爹评价她唱得不如ai，导致战舰主唱ptsd发作在live现场失声输了比赛，就这剧情我觉得鸡狗要重演也挺困难的，怕是得来个灯是祥子死去的亲妈转世之类的展开才行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

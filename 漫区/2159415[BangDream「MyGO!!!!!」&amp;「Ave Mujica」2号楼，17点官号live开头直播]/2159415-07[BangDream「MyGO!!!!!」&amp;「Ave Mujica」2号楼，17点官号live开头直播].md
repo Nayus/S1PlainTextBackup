@@ -327,3 +327,18 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 
 从这句话来看应该关系还是挺深的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 9022#       发表于 2024-1-15 16:29
+
+ 本帖最后由 江口夕 于 2024-1-15 16:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然摇滚定义挺模糊，真要什么天梯能把ave干了那剧情也挺残障的。
+天赋都摊牌的情况，全是高技术水平的职业老鸟能被初学者乐队随便干掉那未免太不把别人多年的努力放在眼里了。有多傲慢才能想出这种剧情。
+立希也是，时间和经验都不如别人有劣等感多正常的事，不知道为什么一定要去消除这种劣等感。找出自己优势区和解就完事了。
+隔壁纱夜还是个当姐姐的也没想说能打赢她那逆天妹妹，这辈子打不赢也正常。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

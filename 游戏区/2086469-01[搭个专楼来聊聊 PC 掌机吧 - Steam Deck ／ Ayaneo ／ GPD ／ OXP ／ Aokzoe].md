@@ -660,3 +660,29 @@ PDD有一家就是店里改好的32G
 不考虑品控于傻逼键位问题520g的mini真的很方便，10w30祯wiiuxbx，15w流畅辐射4整合包，这个真是超出预期了 ...</blockquote>
 不知道aya那个flip多沉，要是在600g以下的话，想作为价位和做工更好些的mini的替代
 
+
+*****
+
+####  cc-2  
+##### 1082#       发表于 2024-1-15 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63656323&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2024-1-15 16:19</a>
+
+不知道aya那个flip多沉，要是在600g以下的话，想作为价位和做工更好些的mini的替代 ...</blockquote>
+价位不比MINI低吧
+
+而且是六寸屏，60的刷新率
+
+而MINI是七寸，120的刷新率
+
+就这一点，就被MINI爆了
+
+连比不比得过GPD WIN4都不好说
+
+*****
+
+####  医生狼多  
+##### 1083#       发表于 2024-1-15 16:28
+
+我等新款mini，现在的散热和win4一个问题，不知道年前有没有
+

@@ -1595,3 +1595,11 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  RE㐅ia  
+##### 3465#       发表于 2024-1-16 00:17
+
+通过决斗定诺娃的归属，不愧是你黑假面。这必输的局看你怎么交差了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

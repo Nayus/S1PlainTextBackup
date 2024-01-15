@@ -4039,3 +4039,15 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 一干高达都看哭了，原来我们不是最菜的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  史蒂符  
+##### 10885#       发表于 2024-1-15 17:22
+
+ 本帖最后由 史蒂符 于 2024-1-15 17:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63657059&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-1-15 17:15</a>
+
+那个宝具能做三个月的吗，合着都去旅游和home office 了？</blockquote>
+其实可能不止三个月，叶良树说为了更好表现水妖兰的宝具效果，光水妖兰起飞的的那个船的建模就足足做了三个月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

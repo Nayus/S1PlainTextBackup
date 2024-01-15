@@ -182,3 +182,64 @@ ins的封号是最傻逼的，+86根本不给你验证码，你找个接码的�
 
 哪里来擦边球，都是科目三
 
+
+*****
+
+####  猫出没注意  
+##### 139#       发表于 2024-1-15 17:24
+
+ 本帖最后由 猫出没注意 于 2024-1-15 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63655515&amp;ptid=2167441" target="_blank">罗马还能再战 发表于 2024-1-15 15:20</a>
+
+谢谢大佬，有这个应该下载就能比我之前用的app爽多了</blockquote>
+我也比较推荐用这个脚本，仓鼠症一本满足<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">就是得多准备几个小号
+
+<img src="https://img.saraba1st.com/forum/202401/15/172201wvpgkwhx5heteg11.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-01-15_17-17-17.png</strong> (9.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 17:22 上传
+
+它可以组合键下载、按一定规则自动命名下载的文件，并且可以在油猴里进行修改。
+
+<img src="https://img.saraba1st.com/forum/202401/15/172202uyxxirekra3oric8.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-01-15_17-20-02.png</strong> (41.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 17:22 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/172202pl57kev1i8kigned.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-01-15_17-20-26.png</strong> (16.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 17:22 上传
+
+下载的时候别用鼠标中键在新标签打开视频图片，直接点左键在这个半透明的界面里下载就行。
+
+<img src="https://img.saraba1st.com/forum/202401/15/172404of7nmtcgq2efl2en.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-01-15_17-23-17.png</strong> (126.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 17:24 上传
+
+instagram有些音乐会因为没版权不让播放，但其实没把音乐删掉。可以先打开一个能播放的投稿，再切换到禁止播放的投稿就能听到BGM了。
+
+或者用这个脚本，给里面的调整音量功能设个快捷键也能突破限制。
+[https://greasyfork.org/zh-CN/scr ... A%E8%84%9A%E6%9C%AC](https://greasyfork.org/zh-CN/scripts/381682-html5%E8%A7%86%E9%A2%91%E6%92%AD%E6%94%BE%E5%99%A8%E5%A2%9E%E5%BC%BA%E8%84%9A%E6%9C%AC)
+
+<img src="https://img.saraba1st.com/forum/202401/15/173057azzs9gfffmh1octn.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-01-15_17-30-42.png</strong> (17.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 17:30 上传
+

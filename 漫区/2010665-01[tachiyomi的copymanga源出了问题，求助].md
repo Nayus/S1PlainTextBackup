@@ -3449,3 +3449,13 @@ tachiyomi为了保护自己把内置插件删了，增设了由第三方提供�
 
 问个问题，我添加了319楼的插件仓库，但是有插件显示更新之后无法安装，哪怕手动安装完也仍然显示的是旧版本插件，还在提醒我更新。有人碰到这样的情况吗？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  linux40  
+##### 341#       发表于 2024-1-15 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63650495&amp;ptid=2010665" target="_blank">gaosf 发表于 2024-1-15 03:39</a>
+问个问题，我添加了319楼的插件仓库，但是有插件显示更新之后无法安装，哪怕手动安装完也仍然显示的是旧版 ...</blockquote>
+得卸载后重装，书架里的不受影响。
+

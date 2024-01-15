@@ -627,3 +627,14 @@ PDD有一家就是店里改好的32G
 
 我以为 ETA Prime 拿到 Aya 的新机了，原来是 5825U 装 HoloISO 来测试 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cc-2  
+##### 1079#       发表于 2024-1-15 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63649217&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-14 23:03</a>
+
+试试自定义模式拉个 25w？</blockquote>
+我试试看
+

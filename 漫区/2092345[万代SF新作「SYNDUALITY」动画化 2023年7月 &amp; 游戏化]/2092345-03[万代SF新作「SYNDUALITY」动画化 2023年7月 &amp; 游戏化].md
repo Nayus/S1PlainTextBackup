@@ -1388,3 +1388,52 @@ PV里的特训来了
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  zero12  
+##### 3442#       发表于 2024-1-15 23:07
+
+老奶奶
+
+*****
+
+####  NeloAngelo  
+##### 3443#       发表于 2024-1-15 23:08
+
+noir有没有可能是接触之后从乐园下载来的人格?
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zero12  
+##### 3444#       发表于 2024-1-15 23:09
+
+来回切换死机了怎么办
+
+*****
+
+####  RE㐅ia  
+##### 3445#       发表于 2024-1-15 23:09
+
+艹
+
+*****
+
+####  novyDC  
+##### 3446#       发表于 2024-1-15 23:10
+
+外太空不会有个殖民地吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Freakyyu  
+##### 3447#       发表于 2024-1-15 23:11
+
+怎么还有训练打拳的
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

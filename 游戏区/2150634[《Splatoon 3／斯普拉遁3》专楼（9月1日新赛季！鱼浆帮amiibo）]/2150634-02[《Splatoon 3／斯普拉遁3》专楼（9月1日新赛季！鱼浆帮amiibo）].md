@@ -9438,3 +9438,11 @@ neet派怎么能组队的？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选题本身就不公平，和家人朋友过的，谁会来打祭典刷贡献分啊
 
+
+*****
+
+####  leonlink  
+##### 2452#       发表于 2024-1-15 13:01
+
+看公告上经常出现倍率比赛赢的是一个人队就大概知道了
+

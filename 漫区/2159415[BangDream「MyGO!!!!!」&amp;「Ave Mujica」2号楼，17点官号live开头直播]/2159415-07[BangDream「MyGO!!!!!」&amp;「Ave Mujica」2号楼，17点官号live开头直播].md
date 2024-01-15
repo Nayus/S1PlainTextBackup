@@ -291,3 +291,18 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  多莉DOLLY  
+##### 9019#       发表于 2024-1-15 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63651961&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-1-15 10:19</a>
+
+这两团的根源都在ccc，而ccc的开始、结束与问题都在祥子，下一季以祥子为中心肯定要把老c团牵扯进来来。
+
+ ...</blockquote>
+灯，soyo，立希作为老c团的人，下一季戏份我觉得是不会少的
+
+而为什么专门给猫在剧场版补视角，大概真是因为下一季没她戏份了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

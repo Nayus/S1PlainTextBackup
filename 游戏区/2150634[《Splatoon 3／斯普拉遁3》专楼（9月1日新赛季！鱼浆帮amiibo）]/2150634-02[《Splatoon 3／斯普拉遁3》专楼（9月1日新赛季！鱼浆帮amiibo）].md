@@ -9446,3 +9446,11 @@ neet派怎么能组队的？
 
 看公告上经常出现倍率比赛赢的是一个人队就大概知道了
 
+
+*****
+
+####  秋月孝三  
+##### 2453#       发表于 2024-1-15 14:00
+
+本周该出平衡补丁了，我看不如把电锯的SPP降到160吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

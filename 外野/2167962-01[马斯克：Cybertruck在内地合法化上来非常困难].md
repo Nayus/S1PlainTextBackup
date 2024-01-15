@@ -633,3 +633,13 @@ MD的： <blockquote><strong>When not at a crosswalk, always give vehicles the r
 —— 来自 OPPO PGT110, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
 并不是所有人都住一二线城市
 
+
+*****
+
+####  acg_gyanc  
+##### 64#       发表于 2024-1-15 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63654483&amp;ptid=2167962" target="_blank">天穹观测者 发表于 2024-1-15 13:45</a>
+唯一外骨骼，唯一线控无备份，唯一48v，能防九毫米的30x。难的永远是从0到1 ...</blockquote>
+看不懂你说的这些指标，但不妨碍我从外观上评价它就像20年前的3d游戏建模<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

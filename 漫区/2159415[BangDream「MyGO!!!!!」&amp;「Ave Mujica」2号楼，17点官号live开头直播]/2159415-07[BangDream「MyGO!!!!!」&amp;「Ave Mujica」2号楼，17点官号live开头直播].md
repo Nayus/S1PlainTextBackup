@@ -116,3 +116,129 @@ d二找的人这么厉害的吗？怪不得剧情里吹的跟ras plus一样
 
 从声优贷款分析的话，目前狗那边蜜柑明确说了第二季有喜欢的剧情，说明soyo是最可能有戏份的，李世林只说了狗还会出场，所以爱音戏份可能不多，而青鼓对第二季只字未提，所以猫希要么戏份很少要么戏份不太讨喜，灯那边动物朋友不怎么提你邦所以不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 9013#       发表于 2024-1-15 11:17
+
+<img src="https://img.saraba1st.com/forum/202401/15/111227ij8ppxrh2b0hw2eb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>079497bb472c097630268f40e00aaf02.jpeg</strong> (314.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111243fufp7ffsfeuee63e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4af5b5a24a950af049a53723dd7913c5.jpeg</strong> (276.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111259qqhqaioe0faakaqu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>886694bfbd8688cb6712050b99673223.jpeg</strong> (342.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111317n6ff65n5s9ssiv89.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>f6bd1f87dab6ddb5a0404cfe3a2c2cf6.jpeg</strong> (294.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111528fweorrtf7oxl8lol.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>d4f2ae18aa683aa62cea46598fce76b2.jpeg</strong> (403.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111547h04frro10iouor44.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>037868f01623370c2525878b9c658d65.jpeg</strong> (177.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111555k888zk6e646z866y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>e3f41c6267898d1c1e6d339319916097.jpeg</strong> (355.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111602lveu4p4ehu55u9pt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9ec9dc5fa9384c799ec9d9258905a035.jpeg</strong> (384.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111610izu69rkmol6otmqu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>e4d05ef3c7d1c04c408822e1d984cca8.jpeg</strong> (391.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111619xn1ppqc62qcz12qc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4230fe88ce786cceb7731b81cac369fd.jpeg</strong> (399.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111626ssn1nu4k8qib3zxk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8d6cd0ebf6a0f5713deb18ac7a5d7fc8.jpeg</strong> (262.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111635jtm6d6uvm6mkmvkk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7b1f7cd1ee3d415e0a0cf5912943b22d.jpeg</strong> (408.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111642tu2tnfp02uk20xkt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>bd24d0c46185966cc589fc336eb0f440.jpeg</strong> (329.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111654fypl9ip9bukpypgk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>41b15ceab33c337cea9c6093adb8830e.jpeg</strong> (123.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/15/111707mxukqnno9k9x8pnd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5c0d8d98e407226c323583b26ab1cdd6.jpeg</strong> (261.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-15 11:17 上传
+

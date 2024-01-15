@@ -28,3 +28,25 @@ ins天天给我推莆田鞋、各种手机壳广告，估计蜥蜴人玩vr玩得
 
 注册完一瞬间就被封号了，搞不懂什么傻逼设定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shishkebab  
+##### 122#       发表于 2024-1-15 11:17
+
+用了几次发现app做得很难用，连查看reel观看历史都没有，活该搞不过tiktok
+
+*****
+
+####  lnight  
+##### 123#       发表于 2024-1-15 11:21
+
+笑死，刷到快手国产爷们小太妹喝酒的那种，老外都是想嫁，国内翻过去的都是说这墙是白翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我被骗了五块钱  
+##### 124#       发表于 2024-1-15 11:23
+
+ins的封号是最傻逼的，+86根本不给你验证码，你找个接码的输了验证码最后还要你自拍人脸，自拍完了审核一天最后还给你说经过核实给你永封了
+

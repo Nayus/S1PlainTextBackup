@@ -1685,3 +1685,15 @@ JOINT LIVE可真好看啊
 —— 来自 Xiaomi 2312CRAD3C, Android 13上的 S1Next-鹅版  ...</blockquote>
 花谱也不算是什么创作歌手吧。以前靠黑柿子，之后靠可不
 
+
+*****
+
+####  Rafale  
+##### 132#       发表于 2024-1-15 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63654075&amp;ptid=1914658" target="_blank">liuguokobe 发表于 2024-1-15 13:06</a>
+花谱也不算是什么创作歌手&amp;# ...</blockquote>
+只是猜的，廻花可能更注重自己原创，花谱之前也写过词了
+
+—— 来自 Xiaomi 2312CRAD3C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

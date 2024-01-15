@@ -40,3 +40,12 @@
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  电风扇  
+##### 500#       发表于 2024-1-16 07:08
+
+如果有对马岛的地图+忍组动作，那这作就是梦中情游。
+这么好的事情怎么可能会是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

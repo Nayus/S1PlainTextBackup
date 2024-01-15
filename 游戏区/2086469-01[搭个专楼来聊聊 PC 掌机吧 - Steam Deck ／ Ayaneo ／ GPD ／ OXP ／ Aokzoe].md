@@ -686,3 +686,16 @@ PDD有一家就是店里改好的32G
 
 我等新款mini，现在的散热和win4一个问题，不知道年前有没有
 
+
+*****
+
+####  luffyzhou  
+##### 1084#       发表于 2024-1-15 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63656419&amp;ptid=2086469" target="_blank">cc-2 发表于 2024-1-15 16:27</a>
+
+价位不比MINI低吧
+
+而且是六寸屏，60的刷新率</blockquote>
+没，也是7寸120的屏，价格应该不会比mini低
+

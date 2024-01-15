@@ -342,3 +342,27 @@ https://x.com/bpdne/status/1746539334206173259?s=20<img src="https://p.sda1.dev/
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  PDQ4  
+##### 9023#       发表于 2024-1-15 16:33
+
+猜测狗团占重要戏份的话，那让灯爽世还是其他谁来唱黑脸炸鸡团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果角色人设是已经完成形态，那就是补点角色关系，c团三位不用担心回忆杀里必有出场。但是对主线的作用大概就是初华对灯的程度。
+
+如果角色是未完成形态可以下注狗里谁被牺牲了，我不看好。推剧情靠矛盾，鸡团这边看不出来谁好好的活不干非得去踹狗，等狗跳脸那我只能说一步烂棋，睦祥形象有鸡团剧情给解释，狗团唱黑脸难道再等下一部动画吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  碎镜子  
+##### 9024#       发表于 2024-1-15 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63656439&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-15 16:29</a>
+
+虽然摇滚定义挺模糊，真要什么天梯能把ave干了那剧情也挺残障的。
+
+天赋都摊牌的情况，全是高技术水 ...</blockquote>
+邦多利世界观乐队还打排位赛吗？
+

@@ -972,3 +972,70 @@ pixiv: 水牛
 
 怎么还能自带家庭装的，这就是阳角吗
 
+
+*****
+
+####  DarthAka  
+##### 9077#       发表于 2024-1-16 11:37
+
+倒是理解了梦以为啥不直出，那是叫法令纹还是叫啥，猛一看和胡子一样
+
+*****
+
+####  基神的强袭自由  
+##### 9078#       发表于 2024-1-16 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63663700&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-1-16 11:18</a>
+
+十个人都看过c团春日影是吗，有点无聊了</blockquote>
+是不是约等于隔壁型月片场大家都看过土狼跳高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| salic428| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  赤魔法师  
+##### 9079#       发表于 2024-1-16 11:41
+
+借楼问下明年Mujica那个是第二季动画的放送时间
+
+还是没有动画了改成Mujica的剧场版了
+
+还说说新动画和剧场版都有
+
+*****
+
+####  QuattroVageena  
+##### 9080#       发表于 2024-1-16 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63663990&amp;ptid=2159415" target="_blank">赤魔法师 发表于 2024-1-16 11:41</a>
+借楼问下明年Mujica那个是第二季动画的放送时间
+
+还是没有动画了改成Mujica的剧场版了
+
+还说说新动画和剧场版 ...</blockquote>
+mygo有24年的剧场版总集篇
+mujica动画是25年一月
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 赤魔法师| + 1|好！|
+
+查看全部评分
+

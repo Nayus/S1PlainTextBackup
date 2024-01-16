@@ -1629,3 +1629,18 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 米斯缇当家后的观察力有点可怕呀，再多一点估计就要完全看穿歌姬了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，艾女士的感同身受还蛮有趣的，不过米斯缇继续强调人类与贤士不同（寿命论?），时间属于艾女士的jpg
 
+
+*****
+
+####  洛克萨斯  
+##### 3469#       发表于 2024-1-16 13:49
+
+阿奏怎么感觉第二期有点变谐星了............<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很欢乐啊
+
+*****
+
+####  aptx8285144  
+##### 3470#       发表于 2024-1-16 13:51
+
+两话下来就把米斯缇当家后的安心感反而增强了不少，而且某种意义来说更适合剧烈变化的局势，不愧是艾女士看诺娃状态就像诺娃刚来时候的自己一样jpg
+

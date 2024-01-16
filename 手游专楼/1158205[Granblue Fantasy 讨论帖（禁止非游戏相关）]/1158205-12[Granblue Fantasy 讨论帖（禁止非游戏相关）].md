@@ -135,3 +135,11 @@
 
 没固定队的话共斗天元已经够高血压了，极法再来个六属轮着上打福音什么地狱绘图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 17607#       发表于 2024-1-16 13:46
+
+我草，还吃纸，那群做了天人超限的这下真成傻子了，现在天人就业本身就少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

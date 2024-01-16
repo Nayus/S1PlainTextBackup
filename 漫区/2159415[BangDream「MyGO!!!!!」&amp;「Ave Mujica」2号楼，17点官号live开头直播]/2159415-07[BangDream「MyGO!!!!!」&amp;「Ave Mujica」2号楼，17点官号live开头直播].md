@@ -812,3 +812,16 @@ tv的剧本还是挺精巧的，加或 ...</blockquote>
 
 对线之类的大概要等第三季或者剑指手游吧，武士道这么功利，真要搞对邦也得先等个几年看看人气变化再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 9065#       发表于 2024-1-16 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63662311&amp;ptid=2159415" target="_blank">0WHan0 发表于 2024-1-16 09:30</a>
+
+初华也没去看过啊</blockquote>
+有“主唱太拼命了”是初华留言的假药<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而且第8集对话那里初华知道乐队和live的事
+

@@ -30,3 +30,13 @@
 
 这官方翻译质量别跟魔夜一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hyhaha  
+##### 1602#       发表于 2024-1-16 15:28
+
+PS4平台
+
+天国的PS5
+

@@ -170,3 +170,31 @@ gbf策划真好做啊
 
 280真是大方向了。逼人課30%加護武堆出280。要不然就乖乖6凸神石。
 
+
+*****
+
+####  jxzeroga0  
+##### 17611#       发表于 2024-1-16 15:20
+
+以后就是想玩单面就得6凸+至少2把30%新时代六限拉满。就这超法六限的素材要求，周年老王怕是除了jgj还要吃玉髓了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usoda  
+##### 17612#       发表于 2024-1-16 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一个约定是21年夏天的巫妖吧，也快3年了，这些星星武器该被下一批新玩意儿淘汰了
+
+*****
+
+####  syndrome2032  
+##### 17613#       发表于 2024-1-16 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63666155&amp;ptid=1158205" target="_blank">Geyorkias 发表于 2024-1-16 15:09</a>
+往好了想他们也不是不知道蓝纸的限制问题，周年后可能会有缓和方案吧。
+
+虽然我也不知道年底折腾了这么一圈 ...</blockquote>
+古战这么多年了，整体趋势就是顶部越来越卷。
+
+当年10e还能英雄，现在10e连第一档都不够
+

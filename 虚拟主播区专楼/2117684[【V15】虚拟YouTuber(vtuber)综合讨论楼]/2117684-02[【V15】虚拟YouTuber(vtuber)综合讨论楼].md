@@ -636,3 +636,20 @@ https://www.youtube.com/watch?v=T0hEbIRi9xg
 订阅里突然冒出来一个不认识的V，频道4.43万也不算小了，不过这个家伙频道什么都没有，看着也不眼熟。评论 ...</blockquote>
 我记得是rurudo搞的类似p家那种招的主播吧、后面因为收益问题闹翻了
 
+
+*****
+
+####  渡鸦骑士  
+##### 2911#       发表于 2024-1-16 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63669804&amp;ptid=2117684" target="_blank">バーチャルS1er 发表于 2024-1-16 19:56</a>
+我记得是rurudo搞的类似p家那种招的主播吧、后面因为收益问题闹翻了</blockquote>
+今天好像正式复活了，都推到我YouTube上了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  AKili  
+##### 2912#       发表于 2024-1-16 23:55
+
+。。
+

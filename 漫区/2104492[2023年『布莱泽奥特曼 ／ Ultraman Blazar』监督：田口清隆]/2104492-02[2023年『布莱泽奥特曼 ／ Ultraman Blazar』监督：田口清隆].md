@@ -162,3 +162,14 @@
 这集镜头语言真的好，阿斯加隆被炸宕机，队长准备变身但是变身器没有出来，取而代之的是儿子送的手环 ...</blockquote>
 这个镜头真的很绝，左手手套摘下后，无名指上有婚戒，手腕上有儿子送的手环。一瞬间队长为了家庭为了地球的立场就展示的一清二楚
 
+
+*****
+
+####  hcho  
+##### 1620#       发表于 2024-1-16 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63647626&amp;ptid=2104492" target="_blank">Islingr 发表于 2024-1-14 20:25</a>
+说实话泽塔挺多集数我都忍不住快进单论单元回的质量实在是被薄纱
+就看布莱泽最后一集收尾能不能收好 ...</blockquote>
+其实我当时看泽塔没什么感觉，布莱泽好看好多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，每周都在期待下一集
+

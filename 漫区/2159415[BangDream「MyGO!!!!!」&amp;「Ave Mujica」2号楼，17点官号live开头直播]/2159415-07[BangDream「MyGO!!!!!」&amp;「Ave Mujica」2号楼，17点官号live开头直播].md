@@ -705,3 +705,28 @@ AI成精笑出聲，D4DJ真會玩<img src="https://static.saraba1st.com/image/sm
 没有任何去的理由或暗示阿，何况已经有初华了，再重复用一个设定就奇怪了。
 tv的剧本还是挺精巧的，加或删点都会让故事不对劲。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 9055#       发表于 2024-1-16 08:24
+
+应该是来自那个青木生放说猫会弹春日影有理由的微博，评论有猜是因为看过c团，不然真的只能往立希幕后黑手论走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9056#       发表于 2024-1-16 08:26
+
+猫猫看过春日影谱子的 理由说的是为什么弹而不是会不会弹
+
+*****
+
+####  御幸一也  
+##### 9057#       发表于 2024-1-16 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63660267&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-15 23:02</a>
+
+再补充一下dj那个银河战舰团虽然暗黑中二和出道明星这点像鸡，但行事作风其实更像早期ras，喜欢到处踢馆创 ...</blockquote>
+其實樓友應該都不是很擔心這個，因為真玩這套說明劇情爛完了角色也崩完了，樓友已經第一時間run了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

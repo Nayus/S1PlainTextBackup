@@ -5315,3 +5315,11 @@ fbk你太为难人了
 
 rust的BGM
 
+
+*****
+
+####  holoan  
+##### 8009#         楼主| 发表于 2024-1-16 22:58
+
+这游戏连服务器参数设定都照抄ARK的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

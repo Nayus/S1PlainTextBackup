@@ -828,3 +828,16 @@ daum常年都是老二，吃不下kakao。kakao现在190e美元市值，和naver
 
 这种大公司后面的法律团队，个人开发者几乎没法对抗，没钱啊。除非有啥民间团体来替他们和大公司硬刚
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 62#       发表于 2024-1-16 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63668189&amp;ptid=2167901" target="_blank">mimighost 发表于 2024-1-16 17:45</a>
+
+是kakao吞了daum：https://36kr.com/p/1641937027073
+
+daum常年都是老二，吃不下kakao。kakao现在190e美 ...</blockquote>
+搜错新闻了，谢指正<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

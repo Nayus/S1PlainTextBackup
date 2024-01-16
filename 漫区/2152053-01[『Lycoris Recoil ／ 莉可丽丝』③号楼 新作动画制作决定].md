@@ -19057,3 +19057,11 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 2024-1-16 22:51 上传
 
+
+*****
+
+####  Saber琪  
+##### 1472#       发表于 2024-1-16 23:06
+
+我奶一口剧场版京都篇补全泷奈人物塑造加过去<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

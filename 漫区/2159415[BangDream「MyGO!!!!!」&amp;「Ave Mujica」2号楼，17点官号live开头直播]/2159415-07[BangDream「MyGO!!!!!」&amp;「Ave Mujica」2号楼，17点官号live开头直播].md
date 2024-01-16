@@ -825,3 +825,25 @@ tv的剧本还是挺精巧的，加或 ...</blockquote>
 
 而且第8集对话那里初华知道乐队和live的事
 
+
+*****
+
+####  NODY  
+##### 9066#       发表于 2024-1-16 09:45
+
+主唱太拼命了是爱音留的假药也有（因为id叫あのさ），最后是不是要发展成其实当天10个人全在现场的版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0WHan0  
+##### 9067#       发表于 2024-1-16 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63662375&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-16 09:35</a>
+
+有“主唱太拼命了”是初华留言的假药
+
+而且第8集对话那里初华知道乐队和live的事
+
+ ...</blockquote>
+回忆起灯都是通过社交媒体上的照片，去过现场不可能记不得主唱吧
+

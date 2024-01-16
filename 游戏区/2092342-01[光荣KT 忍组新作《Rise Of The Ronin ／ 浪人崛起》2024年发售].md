@@ -142,3 +142,28 @@ sie惯例的摆烂宣发啊
 
 这游戏倒是多造造势啊，要正面撞龙信的
 
+
+*****
+
+####  stair楼梯  
+##### 511#       发表于 2024-1-16 17:12
+
+这挤牙膏式宣发，到时候三月突然宣布跳票我都不会觉得奇怪
+
+*****
+
+####  stair楼梯  
+##### 512#       发表于 2024-1-16 17:12
+
+风怒
+
+*****
+
+####  hentianwuya  
+##### 513#       发表于 2024-1-16 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63667286&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2024-1-16 16:39</a>
+
+这游戏倒是多造造势啊，要正面撞龙信的</blockquote>
+龙信再让IGN多发几个视频，浪人都不用自己造势就躺赢了，猪队友永远比神对手更可怕。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

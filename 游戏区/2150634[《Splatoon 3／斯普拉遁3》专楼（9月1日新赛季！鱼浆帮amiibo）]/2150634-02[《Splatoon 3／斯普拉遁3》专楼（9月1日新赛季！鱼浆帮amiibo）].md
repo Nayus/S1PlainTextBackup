@@ -9624,3 +9624,11 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这类不是直播里出现的记录有一半概率是👿
 
+
+*****
+
+####  KBAC  
+##### 2470#       发表于 2024-1-16 20:06
+
+我赛季中更新和地图修改呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

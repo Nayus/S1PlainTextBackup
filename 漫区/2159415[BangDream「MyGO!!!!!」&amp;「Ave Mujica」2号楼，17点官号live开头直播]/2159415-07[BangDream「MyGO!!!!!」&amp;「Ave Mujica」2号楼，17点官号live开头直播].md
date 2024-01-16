@@ -1241,3 +1241,21 @@ ksm突然这么潮了？
 
 [https://twitter.com/Bullfalk/status/1747198894076010651?s=19](https://twitter.com/Bullfalk/status/1747198894076010651?s=19)
 
+
+*****
+
+####  御幸一也  
+##### 9098#       发表于 2024-1-16 22:00
+
+充電一下<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/16/215951gu1ixz1w555vcl2l.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20240116-092358_1747187929909498216_photo.jpg</strong> (99.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 21:59 上传
+
+[https://twitter.com/kkm338/status/1747187929909498216](https://twitter.com/kkm338/status/1747187929909498216)
+

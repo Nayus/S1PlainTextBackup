@@ -224,3 +224,22 @@ sie惯例的摆烂宣发啊
 
 龙信好歹700w了，忍组先想办法整个单作500w吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名字已被吃  
+##### 521#       发表于 2024-1-16 21:58
+
+龙信700w到现在才出2，和仁王系列700w但已经出了两作，再加上一个始发售于12年、一个始发售于17年，孰高孰低我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  医生狼多  
+##### 522#       发表于 2024-1-16 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63670504&amp;ptid=2092342" target="_blank">SergeGlenn 发表于 2024-1-16 20:57</a>
+这个估计会像16一样有单独的SOP吧</blockquote>
+感觉2月会有
+

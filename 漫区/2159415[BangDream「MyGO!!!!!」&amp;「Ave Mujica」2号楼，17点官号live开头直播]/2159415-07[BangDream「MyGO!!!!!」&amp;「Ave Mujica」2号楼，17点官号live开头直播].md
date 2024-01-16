@@ -1225,3 +1225,19 @@ mujica动画是25年一月
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63667364&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-16 16:45</a></blockquote>
 ksm突然这么潮了？
 
+
+*****
+
+####  Kasroz  
+##### 9097#       发表于 2024-1-16 20:27
+
+<img src="https://img.saraba1st.com/forum/202401/16/202655wyg1y8g77zvl9o00.jpg" referrerpolicy="no-referrer">
+
+<strong>20240116_202547.jpg</strong> (152.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 20:26 上传
+
+[https://twitter.com/Bullfalk/status/1747198894076010651?s=19](https://twitter.com/Bullfalk/status/1747198894076010651?s=19)
+

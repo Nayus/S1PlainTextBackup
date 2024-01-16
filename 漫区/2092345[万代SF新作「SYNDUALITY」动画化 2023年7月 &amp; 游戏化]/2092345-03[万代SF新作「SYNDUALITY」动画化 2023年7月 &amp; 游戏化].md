@@ -1682,3 +1682,11 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 居然追加新设定？不能飞过1万米
 
+
+*****
+
+####  苍蓝之枪  
+##### 3475#       发表于 2024-1-16 20:24
+
+根据XB2剧情，要被面具男暴打了啊
+

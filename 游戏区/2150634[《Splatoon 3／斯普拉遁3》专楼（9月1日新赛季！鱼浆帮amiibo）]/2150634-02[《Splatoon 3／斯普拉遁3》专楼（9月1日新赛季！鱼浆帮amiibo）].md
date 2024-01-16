@@ -9557,3 +9557,27 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ‮‮‮‮  
+##### 2465#       发表于 2024-1-16 08:36
+
+耗费650w金币，终于金了无法无天，其余金品牌是统计完发现很便宜之后每天蹲商店买无法无天时顺便升一颗星就顺带金的<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/16/083544p9wh80p592jp8wl8.png" referrerpolicy="no-referrer">
+
+<strong>6a9b0ac5cd5d603ca4626122079c423c.png</strong> (163.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 08:35 上传
+
+<img src="https://img.saraba1st.com/forum/202401/16/083547kgp4ge7pe8ezlyei.png" referrerpolicy="no-referrer">
+
+<strong>1f66d04b4a469c6c90024928c2e3e6af.png</strong> (138.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 08:35 上传
+

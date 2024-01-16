@@ -755,3 +755,14 @@ tv的剧本还是挺精巧的，加或删点都会让故事不对劲。<img src=
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NODY  
+##### 9060#       发表于 2024-1-16 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63661661&amp;ptid=2159415" target="_blank">青叶假司 发表于 2024-1-16 08:26</a>
+
+猫猫看过春日影谱子的 理由说的是为什么弹而不是会不会弹</blockquote>
+说的就是选择弹春日影的理由，因为春日影本来不在预定歌单里，目前的猜测就是猫看过c团有感而发或者立希私下要求
+

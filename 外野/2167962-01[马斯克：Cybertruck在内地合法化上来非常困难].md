@@ -663,3 +663,11 @@ MD的： <blockquote><strong>When not at a crosswalk, always give vehicles the r
 看不懂你说的这些指标，但不妨碍我从外观上评价它就像20年前的3d游戏建模 ...</blockquote>
 像手工耿整的活，糙的一笔。<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林达姆  
+##### 67#       发表于 2024-1-16 09:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就想知道这造型这硬度，要是以几十公里的速度撞假人会是啥效果
+

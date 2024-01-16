@@ -114,3 +114,11 @@ sie惯例的摆烂宣发啊
 多久就不知道了，半年到一年？</blockquote>
 就忍组的优化水平，我觉得还是别折磨自己玩pc版了
 
+
+*****
+
+####  萌萌地镜头  
+##### 508#       发表于 2024-1-16 16:30
+
+怎么还有人对忍组的地图设计抱有幻想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

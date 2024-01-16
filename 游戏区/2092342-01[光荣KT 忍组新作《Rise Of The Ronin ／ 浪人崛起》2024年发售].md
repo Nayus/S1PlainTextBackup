@@ -122,3 +122,23 @@ sie惯例的摆烂宣发啊
 
 怎么还有人对忍组的地图设计抱有幻想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 509#       发表于 2024-1-16 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63666206&amp;ptid=2092342" target="_blank">变老的大二 发表于 2024-1-16 15:13</a>
+就忍组的优化水平，我觉得还是别折磨自己玩pc版了</blockquote>
+这几年pc搞优化也是大哥不笑二哥。
+1066的十年也战完了。
+
+不过忍者组这群人买首发=被完全版背刺的事情发生过不少次了。
+
+*****
+
+####  Booorunestud  
+##### 510#       发表于 2024-1-16 16:39
+
+这游戏倒是多造造势啊，要正面撞龙信的
+

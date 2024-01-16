@@ -877,3 +877,15 @@ soyo和灯都是有C团解散主视角，爱音开局是希思罗机场，这三
 
 总之就两种可能吧，第一种是猫在过去与crychic/祥有联系，第二种是猫被与crychic/祥有关的人物指使，排除掉祥灯素后嫌疑人就是立希，睦，初华，未登场人物（如maki等）
 
+
+*****
+
+####  爱丁堡official  
+##### 9071#       发表于 2024-1-16 10:49
+
+来点爱祥
+<img src="https://p.sda1.dev/15/beb92e0105ebce9214af5102f3cd2332/IMG_CMP_24117275.jpeg" referrerpolicy="no-referrer">
+pixiv: 水牛
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -18982,3 +18982,22 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 小道消息
 
+
+*****
+
+####  Saber琪  
+##### 1466#       发表于 2024-1-16 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63670476&amp;ptid=2152053" target="_blank">格陵兰de深井冰 发表于 2024-1-16 20:54</a>
+小道消息</blockquote>
+这说的是aniplex20周年的谈话？足立只是说了新作在做了资源充足，然后说如果能做一个总集篇剧场版就好了因为有很多被删掉的分镜就可以拿出来，目前看起来还是不确定吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我觉得不大可能是剧场版，后面还补充了想做现场广播剧
+
+*****
+
+####  yenvy  
+##### 1467#       发表于 2024-1-16 21:11
+
+是这条 [https://twitter.com/wanthuthri/status/1747213434591248854](https://twitter.com/wanthuthri/status/1747213434591248854)
+
+这老外觉得可能是这位p英语不太好，表达的有问题然后误传了
+

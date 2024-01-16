@@ -234,3 +234,12 @@
 
 更别说片里强加守护地球的怪兽设定已经“令和高斯”过了呢，不如跳过直接N吧<img src="https://static.saraba1st.com/image/smiley/face2017/263.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名居守  
+##### 1626#       发表于 2024-1-16 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人猜是鸽派和鹰派
+说不定是土桥把鸽派使者打死了就相当于给了鹰派开战的理由
+

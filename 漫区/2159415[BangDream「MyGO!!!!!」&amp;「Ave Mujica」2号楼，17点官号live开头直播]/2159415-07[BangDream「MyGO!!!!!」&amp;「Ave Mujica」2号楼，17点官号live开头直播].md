@@ -1127,3 +1127,20 @@ mujica动画是25年一月
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  友情的结晶  
+##### 9088#       发表于 2024-1-16 12:45
+
+少歌剧场版就有画蛇添足的地方，希望mygo不会
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  NODY  
+##### 9089#       发表于 2024-1-16 12:46
+
+第七集立希叫猫mc后再弹的时候猫回了一句“是新的委托吗”，所以立希指使论还是有点可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

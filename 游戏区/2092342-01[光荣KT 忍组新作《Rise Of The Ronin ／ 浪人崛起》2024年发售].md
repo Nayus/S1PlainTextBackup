@@ -83,3 +83,13 @@ sie惯例的摆烂宣发啊
 参照仁王和仁王 完全版。肯定会跨。
 多久就不知道了，半年到一年？
 
+
+*****
+
+####  cauchua2  
+##### 505#       发表于 2024-1-16 12:44
+
+有 ps4 版本吗
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

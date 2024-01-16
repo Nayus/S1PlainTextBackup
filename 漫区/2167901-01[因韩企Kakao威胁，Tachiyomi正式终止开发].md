@@ -872,3 +872,15 @@ mihon需要重新对插件进行一次信任
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  失忆的香槟  
+##### 66#       发表于 2024-1-16 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63651485&amp;ptid=2167901" target="_blank">pharos 发表于 2024-1-15 09:44</a>
+借楼问下ios除了aidoku还有什么用阅读源的漫画app啊……yealico不好用了aidoku测试名额抢不到 ...</blockquote>
+aidoku的testflight源会过期的，重新申请安装又得倒一遍书架。我现在觉得atlstore侧载只是每周需要刷新一次还是挺方便的。
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

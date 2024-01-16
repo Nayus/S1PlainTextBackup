@@ -1674,3 +1674,11 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 但是要是输掉的话就等于把诺娃/米斯蒂输出去了，又得花好久抢回来就没意思了 ...</blockquote>
 大哥在主角快输的时候及时赶到，开始正义的群殴（）
 
+
+*****
+
+####  Ichthy  
+##### 3474#       发表于 2024-1-16 19:43
+
+居然追加新设定？不能飞过1万米
+

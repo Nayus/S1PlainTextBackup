@@ -690,3 +690,17 @@ MD的： <blockquote><strong>When not at a crosswalk, always give vehicles the r
 
 这车造型真的难看
 
+
+*****
+
+####  暗の使徒  
+##### 70#       发表于 2024-1-16 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63654272&amp;ptid=2167962" target="_blank">永远的访客 发表于 2024-1-15 13:24</a>
+他这个建模看上去简单，其实工艺上要造出那么多有棱有角大平面还要保证足够的装配公差来保证质量不便宜， ...</blockquote>
+怎么不是优点，你看这楼里就有一堆尬吹的
+
+至于维修经济性啥的，那是车主的事，关我水军啥事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -605,3 +605,15 @@ https://www.youtube.com/watch?v=T0hEbIRi9xg
 虽然知道希小姐有个小姐妹团。但是没想到kmnz的liz和不磨都毕业后？直接立马活动了。
 该说果断好呢还是……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fastary  
+##### 2908#       发表于 2024-1-16 10:24
+
+刷到yamien在STGR解谜拿了最速的官切忍不住看完了，哎，还是爱看…
+
+黛灰ark和虹服mc也都挺边缘的，感觉"黛灰"就是比较游离在大事件外的角色，就算用这个身份进stgr也不一定会有什么<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+不过还是想看ymn用第二角色接触前同事啊，rp服好处就是方便当代餐吃(喂
+

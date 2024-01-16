@@ -9654,3 +9654,15 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Junakr  
+##### 2473#       发表于 2024-1-17 01:56
+
+[https://www.bilibili.com/video/BV1ue41117Ts](https://www.bilibili.com/video/BV1ue41117Ts)
+
+为什么我每当看到鱿型瞬间更新都觉得这个游戏好有趣，自己去玩却好无聊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">。
+
+02:55 开始的宝可梦对决笑死。
+

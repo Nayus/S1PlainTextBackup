@@ -915,3 +915,21 @@ Mihon：
 新应用与tachiyomi完全一致，所有数据互通 ...</blockquote>
 还可以直接用tachiyomi的备份文件恢复，很好
 
+
+*****
+
+####  十元立没  
+##### 69#       发表于 2024-1-17 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63672734&amp;ptid=2167901" target="_blank">如将红莲 发表于 2024-1-17 01:47</a>
+还可以直接用tachiyomi的备份文件恢复，很好</blockquote>
+毕竟mihon第一版和tachiyomi最后一版相比几乎没有变化
+反正mihon是这么说的
+
+*****
+
+####  量产失败型  
+##### 70#       发表于 2024-1-17 02:01
+
+借楼问下常去的生肉站MANGARAW在停止更新几天后唐突寄了,有什么一样的更新快的站么,nicomanga虽然能用但更新要慢些<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

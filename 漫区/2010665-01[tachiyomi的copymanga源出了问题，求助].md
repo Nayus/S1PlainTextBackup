@@ -3488,3 +3488,16 @@ stevenyomi在他的releases界面提供的0.13.6版本的修改版tachiyomi和�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  gaosf  
+##### 345#       发表于 2024-1-16 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63659502&amp;ptid=2010665" target="_blank">keroghy 发表于 2024-1-15 21:40</a>
+
+0.15.3更新了啥
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+因为后续不再开发了所以把错误报告、更新之类反馈开发者的菜单选项移除了，另外就是修复了一些bug之类的。
+

@@ -889,3 +889,19 @@ pixiv: 水牛
 
 —— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  特拉·特尔特  
+##### 9072#       发表于 2024-1-16 10:54
+
+幸亏爱音没去追着祥子撵，她那个黏度比soyo高太多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">容易把祥子气到
+虽然俩人也没那因缘，只是说过几句话的关系
+
+*****
+
+####  ddy2811  
+##### 9073#       发表于 2024-1-16 11:00
+
+爱音和祥子倒确实是不错的百合模板<img src="https://static.saraba1st.com/image/smiley/carton2017/404.png" referrerpolicy="no-referrer">
+

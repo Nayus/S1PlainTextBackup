@@ -117,3 +117,11 @@
 
 闭着眼睛填素材，210要老高难3件套，到时候250来个极巴、天元、极法新3件套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usoda  
+##### 17605#       发表于 2024-1-16 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那你倒是把法巴贝人数扩充一下啊 现在这6个人的河道野真的能打？
+

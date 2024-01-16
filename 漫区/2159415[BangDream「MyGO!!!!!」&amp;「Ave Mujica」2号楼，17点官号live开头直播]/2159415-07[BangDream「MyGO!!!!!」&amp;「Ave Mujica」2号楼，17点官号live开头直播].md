@@ -778,3 +778,15 @@ tv的剧本还是挺精巧的，加或删点都会让故事不对劲。<img src=
 
 排除法不是剩下祥子和爱圣对线，猫和喵对吗？
 
+
+*****
+
+####  QuattroVageena  
+##### 9062#       发表于 2024-1-16 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63661818&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-16 08:45</a>
+在哪，我要给他加鹅
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+8992楼
+

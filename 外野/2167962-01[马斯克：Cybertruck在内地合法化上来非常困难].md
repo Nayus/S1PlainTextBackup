@@ -682,3 +682,11 @@ MD的： <blockquote><strong>When not at a crosswalk, always give vehicles the r
 就想知道这造型这硬度，要是以几十公里的速度撞假人会是啥效果</blockquote>
 当然是胳膊脑袋乱飞喽，特斯拉自己都知道所以压根不敢做行人的假人碰撞测试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cwbn  
+##### 69#       发表于 2024-1-16 09:17
+
+这车造型真的难看
+

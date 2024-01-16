@@ -125,3 +125,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那你倒是把法巴贝人数扩充一下啊 现在这6个人的河道野真的能打？
 
+
+*****
+
+####  ixtli  
+##### 17606#       发表于 2024-1-16 12:33
+
+240还要吃蓝纸，还有个看似新福音的东西，天元同级别的极法本你要求所有玩家去打六属纯色通关？
+
+没固定队的话共斗天元已经够高血压了，极法再来个六属轮着上打福音什么地狱绘图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

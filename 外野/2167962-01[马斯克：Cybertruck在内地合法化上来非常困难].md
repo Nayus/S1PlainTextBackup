@@ -652,3 +652,14 @@ MD的： <blockquote><strong>When not at a crosswalk, always give vehicles the r
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63655237&amp;ptid=2167962" target="_blank">无印凉粉 发表于 2024-1-15 14:55</a></blockquote>
 对就是这个车
 
+
+*****
+
+####  男人第六感  
+##### 66#       发表于 2024-1-16 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63658913&amp;ptid=2167962" target="_blank">acg_gyanc 发表于 2024-1-15 20:25</a>
+
+看不懂你说的这些指标，但不妨碍我从外观上评价它就像20年前的3d游戏建模 ...</blockquote>
+像手工耿整的活，糙的一笔。<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

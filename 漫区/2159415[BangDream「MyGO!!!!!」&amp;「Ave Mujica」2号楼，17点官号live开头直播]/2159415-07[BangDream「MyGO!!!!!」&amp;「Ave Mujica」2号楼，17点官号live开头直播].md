@@ -730,3 +730,28 @@ tv的剧本还是挺精巧的，加或删点都会让故事不对劲。<img src=
 再补充一下dj那个银河战舰团虽然暗黑中二和出道明星这点像鸡，但行事作风其实更像早期ras，喜欢到处踢馆创 ...</blockquote>
 其實樓友應該都不是很擔心這個，因為真玩這套說明劇情爛完了角色也崩完了，樓友已經第一時間run了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 9058#       发表于 2024-1-16 08:43
+
+有一说一一直爬下来
+
+感觉我们想得到的剧本脑洞放进剧里都要寄了
+
+所以说🐔团真是上下限极高极其难写
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nebulanoby  
+##### 9059#       发表于 2024-1-16 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63660340&amp;ptid=2159415" target="_blank">krowbullet 发表于 2024-1-15 23:12</a>
+有没有可能作者就是楼友</blockquote>
+在哪，我要给他加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

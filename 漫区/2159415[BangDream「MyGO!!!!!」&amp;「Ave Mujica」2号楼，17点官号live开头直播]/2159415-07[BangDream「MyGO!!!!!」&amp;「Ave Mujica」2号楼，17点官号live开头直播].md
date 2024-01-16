@@ -1154,3 +1154,21 @@ mujica动画是25年一月
 第七集立希叫猫mc后再弹的时候猫回了一句“是新的委托吗”，所以立希指使论还是有点可能的 ...</blockquote>
 那是因为之前立希要求她加加聊天群组，排练的时候要来吧
 
+
+*****
+
+####  PDQ4  
+##### 9091#       发表于 2024-1-16 14:42
+
+立希指使论倒是可行，也符合监督说的立希的心情，往正面写也不难。如果真这么写是不是要补爽希剧情了，毕竟11话已经和解，前面完全可以加塞爽希对线矛盾，可以卖吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 9092#       发表于 2024-1-16 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63663459&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-16 11:00</a>
+
+爱音和祥子倒确实是不错的百合模板</blockquote>
+祥子爱音期待<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

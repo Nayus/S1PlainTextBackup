@@ -19009,3 +19009,29 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 看到讨论的内容了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">比起新剧场版还是更希望是tv
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1469#       发表于 2024-1-16 22:11
+
+<img src="https://img.saraba1st.com/forum/202401/16/221108rb7vtvc7vcjc76dc.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-01-16 211722 (11).JPG</strong> (259.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 22:11 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Saber琪| + 1||
+
+查看全部评分
+

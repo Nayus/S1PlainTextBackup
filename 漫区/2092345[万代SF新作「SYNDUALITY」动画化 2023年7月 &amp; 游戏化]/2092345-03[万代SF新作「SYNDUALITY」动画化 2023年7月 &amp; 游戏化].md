@@ -1690,3 +1690,13 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 根据XB2剧情，要被面具男暴打了啊
 
+
+*****
+
+####  NeloAngelo  
+##### 3476#       发表于 2024-1-16 22:06
+
+想了下, 这故事后面肯定要超展开的. 那现在开始提速也很正常.
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

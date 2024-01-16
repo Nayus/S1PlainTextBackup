@@ -243,3 +243,14 @@ sie惯例的摆烂宣发啊
 这个估计会像16一样有单独的SOP吧</blockquote>
 感觉2月会有
 
+
+*****
+
+####  ckseng  
+##### 523#       发表于 2024-1-16 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63671066&amp;ptid=2092342" target="_blank">铁拳圣裁 发表于 2024-1-16 21:51</a>
+
+龙信好歹700w了，忍组先想办法整个单作500w吧</blockquote>
+你也不看看仁王那素材都复用几个游戏了，同一套玩意可以在短短几年分别裹上日式西式还有中式皮来卖
+

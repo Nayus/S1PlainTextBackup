@@ -625,3 +625,14 @@ https://www.youtube.com/watch?v=T0hEbIRi9xg
 
 这才是真正的玉音放送啊
 
+
+*****
+
+####  バーチャルS1er  
+##### 2910#       发表于 2024-1-16 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63647955&amp;ptid=2117684" target="_blank">渡鸦骑士 发表于 2024-1-14 20:55</a>
+
+订阅里突然冒出来一个不认识的V，频道4.43万也不算小了，不过这个家伙频道什么都没有，看着也不眼熟。评论 ...</blockquote>
+我记得是rurudo搞的类似p家那种招的主播吧、后面因为收益问题闹翻了
+

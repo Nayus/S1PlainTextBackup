@@ -18940,3 +18940,29 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 1464#       发表于 2024-1-16 19:53
+
+<img src="https://img.saraba1st.com/forum/202401/16/195321v91qoez7tn0vko2v.jpg" referrerpolicy="no-referrer">
+
+<strong>GBItGRNaoAAFF7-.jpg</strong> (168.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 19:53 上传
+
+[https://twitter.com/aleos696/status/1734498396072022112/photo/1](https://twitter.com/aleos696/status/1734498396072022112/photo/1)
+
+<img src="https://img.saraba1st.com/forum/202401/16/195338gwu2uxulwxaqs7uo.jpg" referrerpolicy="no-referrer">
+
+<strong>GD6lqvRa8AAMLdy.jpg</strong> (172.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 19:53 上传
+
+[https://twitter.com/aleos696/status/1747015862878720382/photo/1](https://twitter.com/aleos696/status/1747015862878720382/photo/1)
+

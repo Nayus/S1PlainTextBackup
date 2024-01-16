@@ -560,3 +560,27 @@ Image_1704894013300.jpg
 
 <img src="https://p.sda1.dev/15/9b6bc373da9ea999f815561540f74472/CMP_20240116192338055.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汤武革命  
+##### 19164#       发表于 2024-1-16 19:55
+
+ 本帖最后由 汤武革命 于 2024-1-16 19:58 编辑 
+
+鲤鱼真是勾搭真是的哈
+
+*****
+
+####  梶原ひかり  
+##### 19165#       发表于 2024-1-16 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63649894&amp;ptid=2078110" target="_blank">s3081260 发表于 2024-1-15 00:26</a>
+
+虹的这次巡演每场能动员多少人，感觉是很大的场子</blockquote>
+横滨K 是新建的2万级场馆..
+
+两天都有当日券 L7层 24-28是没有坐满 然后舞台布置的内场 和 中级扣除的话
+
+大概估计动员人数16800-18000之间
+

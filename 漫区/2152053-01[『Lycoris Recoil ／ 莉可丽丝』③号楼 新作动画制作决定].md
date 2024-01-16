@@ -19001,3 +19001,11 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 这老外觉得可能是这位p英语不太好，表达的有问题然后误传了
 
+
+*****
+
+####  Saber琪  
+##### 1468#       发表于 2024-1-16 21:14
+
+看到讨论的内容了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">比起新剧场版还是更希望是tv
+

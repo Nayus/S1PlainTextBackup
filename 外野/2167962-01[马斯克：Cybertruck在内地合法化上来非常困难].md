@@ -750,3 +750,13 @@ ct还有个硬伤就是车子不够高，低车身续航会比较好，但对玩
 
 这车和turna高达算是少数丑出天际还一堆人硬舔说好看的
 
+
+*****
+
+####  acg_gyanc  
+##### 75#       发表于 2024-1-16 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63661808&amp;ptid=2167962" target="_blank">男人第六感 发表于 2024-1-16 08:44</a>
+像手工耿整的活，糙的一笔。</blockquote>
+手工耿的月球车比这个有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -259,3 +259,20 @@
 
 参谋长不穿制服换回常服之后坐在家里那几个镜头，一下子就感觉老了很多
 
+
+*****
+
+####  仟音一心  
+##### 1629#       发表于 2024-1-16 19:17
+
+<img src="https://p.sda1.dev/15/2b4b03050ff3235d44bafd4ca2320254/CMP_20240116191726420.jpg" referrerpolicy="no-referrer">
+楠健吾 绘
+
+*****
+
+####  仟音一心  
+##### 1630#       发表于 2024-1-16 19:18
+
+舞台剧的假布莱泽
+<img src="https://p.sda1.dev/15/de453a1ad9029d42625a9a15882c8739/4yd754l0vyc82ey3njw6mud5k.jpg" referrerpolicy="no-referrer">
+

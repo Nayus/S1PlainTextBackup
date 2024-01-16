@@ -9604,3 +9604,15 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 想到和菠萝单挑的那个小学生每天能玩4个小时， ...</blockquote>
 国人都不少拿到300级徽章的了，目前等级最高的应该是一个收集徽章的太君，上个月到了700级
 
+
+*****
+
+####  罗克萨斯  
+##### 2468#       发表于 2024-1-16 18:17
+
+挑战都有人康了，最高99连胜<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+【【Splatoon3搬运】【ku】在开打前就让人感觉毫无胜算的压迫力-哔哩哔哩】 https://b23.tv/xYfdaEN
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

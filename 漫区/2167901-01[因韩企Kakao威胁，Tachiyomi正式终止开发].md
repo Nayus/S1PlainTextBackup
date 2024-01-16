@@ -904,3 +904,14 @@ Mihon：
 
 卸载Tachiyomi即可
 
+
+*****
+
+####  如将红莲  
+##### 68#       发表于 2024-1-17 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63669568&amp;ptid=2167901" target="_blank">moe_soap 发表于 2024-1-16 19:35</a>
+小小小提示，tachiyomi更换名称和维护人员转生了，新名称为mihon
+新应用与tachiyomi完全一致，所有数据互通 ...</blockquote>
+还可以直接用tachiyomi的备份文件恢复，很好
+

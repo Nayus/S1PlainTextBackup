@@ -143,3 +143,22 @@
 
 我草，还吃纸，那群做了天人超限的这下真成傻子了，现在天人就业本身就少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 17608#       发表于 2024-1-16 15:09
+
+往好了想他们也不是不知道蓝纸的限制问题，周年后可能会有缓和方案吧。
+
+虽然我也不知道年底折腾了这么一圈之后到底还应该不应该“往好的方向想”<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 17609#       发表于 2024-1-16 15:12
+
+我感觉就是极星器这次数据太好了，给了他们这么整的底气，这么难农的东西又可以拖一两年版本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+gbf策划真好做啊
+

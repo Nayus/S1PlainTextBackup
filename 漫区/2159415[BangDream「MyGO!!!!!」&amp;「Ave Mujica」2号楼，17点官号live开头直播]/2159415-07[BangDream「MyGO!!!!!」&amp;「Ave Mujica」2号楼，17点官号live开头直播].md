@@ -1065,3 +1065,26 @@ mujica动画是25年一月
 是不是约等于隔壁型月片场大家都看过土狼跳高</blockquote>
 观感微妙，只希望别这么演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 9084#       发表于 2024-1-16 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63663459&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-01-16 11:00:42</a>
+爱音和祥子倒确实是不错的百合模板</blockquote>下季动画狗团能动性最高的还是anon，尤其是十三集发现灯初关系那里契诃夫的枪都放观众脸上了，相信一定会卖爱祥的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nebulanoby  
+##### 9085#       发表于 2024-1-16 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63663951&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-16 11:37</a>
+倒是理解了梦以为啥不直出，那是叫法令纹还是叫啥，猛一看和胡子一样</blockquote>
+看月刊武士道那个AM的专访，感觉法令纹最糟糕的是👃姐，梦以还好
+梦以的问题是岁月不饶人，皮肤有点差了。看那张街拍碰到梦以的直出图，感觉她五官比例好强的，P图按理来说简单修修皮肤光泽就好了，不知道为啥每次都要抽象到把器官比例扭成个外星人
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

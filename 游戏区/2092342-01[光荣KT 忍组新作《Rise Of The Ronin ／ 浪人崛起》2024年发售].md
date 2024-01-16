@@ -167,3 +167,13 @@ sie惯例的摆烂宣发啊
 这游戏倒是多造造势啊，要正面撞龙信的</blockquote>
 龙信再让IGN多发几个视频，浪人都不用自己造势就躺赢了，猪队友永远比神对手更可怕。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  izayoi39  
+##### 514#       发表于 2024-1-16 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63661959&amp;ptid=2092342" target="_blank">附庸风雅者 发表于 2024-1-16 09:00</a>
+所以这玩意儿还能不能跨到steam了，实在不想玩了这个买ps5</blockquote>
+这游戏算是索尼的第二方游戏，可以根据索尼自家游戏推算一下，大概率是一年左右上pc
+

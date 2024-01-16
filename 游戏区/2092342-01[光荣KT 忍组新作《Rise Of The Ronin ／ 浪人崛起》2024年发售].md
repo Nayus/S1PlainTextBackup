@@ -216,3 +216,11 @@ sie惯例的摆烂宣发啊
 
 如果当年有那么多龙信吹，现在早就出到3代了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  铁拳圣裁  
+##### 520#       发表于 2024-1-16 21:51
+
+龙信好歹700w了，忍组先想办法整个单作500w吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

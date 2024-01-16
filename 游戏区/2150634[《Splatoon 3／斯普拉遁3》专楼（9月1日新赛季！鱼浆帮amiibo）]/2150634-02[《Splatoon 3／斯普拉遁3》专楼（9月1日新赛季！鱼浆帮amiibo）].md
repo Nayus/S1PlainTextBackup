@@ -9616,3 +9616,11 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 2469#       发表于 2024-1-16 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这类不是直播里出现的记录有一半概率是👿
+

@@ -1663,3 +1663,14 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 如果下一话对上面具男会不会一直吃噶呀，主要是姑且不算下一话，至少还有9话，现在打败面具男啥的会不会太 ...</blockquote>
 但是要是输掉的话就等于把诺娃/米斯蒂输出去了，又得花好久抢回来就没意思了
 
+
+*****
+
+####  charlespfan  
+##### 3473#       发表于 2024-1-16 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63668793&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-1-16 18:28</a>
+
+但是要是输掉的话就等于把诺娃/米斯蒂输出去了，又得花好久抢回来就没意思了 ...</blockquote>
+大哥在主角快输的时候及时赶到，开始正义的群殴（）
+

@@ -19065,3 +19065,21 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 我奶一口剧场版京都篇补全泷奈人物塑造加过去<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  haohaoh4  
+##### 1473#       发表于 2024-1-17 00:14
+
+ 本帖最后由 haohaoh4 于 2024-1-17 00:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 1474#       发表于 2024-1-17 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63672444&amp;ptid=2152053" target="_blank">haohaoh4 发表于 2024-1-17 00:14</a></blockquote>
+yhm<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

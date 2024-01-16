@@ -18966,3 +18966,19 @@ https://twitter.com/aleos696/status/1738028662799352228/photo/1</blockquote>
 
 [https://twitter.com/aleos696/status/1747015862878720382/photo/1](https://twitter.com/aleos696/status/1747015862878720382/photo/1)
 
+
+*****
+
+####  格陵兰de深井冰  
+##### 1465#       发表于 2024-1-16 20:54
+
+<img src="https://img.saraba1st.com/forum/202401/16/205445okampiym4k5kx0ri.png" referrerpolicy="no-referrer">
+
+<strong>CM~PCN$]NNLGZ%_S}BV7M1V.png</strong> (106.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-16 20:54 上传
+
+小道消息
+

@@ -222,3 +222,15 @@
 然后告诉你其实是野人国的舰队来地球接野人的，之前打开的通道让舰队找到了野人的位置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 当然我还是想要德拉西翁，令和高斯快端上来罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kcalb  
+##### 1625#       发表于 2024-1-16 14:11
+
+不相信拿奇形怪状的奴隶兽当武器的家伙会是好人啊
+
+今和高斯没爆点啊，高斯本身属于意外产物，而且好印象都来自剧场版的高质量，说白了要堆料，仅是把元素摘出来凑个抠抠索索的TV不就已经有两部前车之鉴了嘛（当然，要是敢让JURI姐当主角这些都不是问题！
+
+更别说片里强加守护地球的怪兽设定已经“令和高斯”过了呢，不如跳过直接N吧<img src="https://static.saraba1st.com/image/smiley/face2017/263.png" referrerpolicy="no-referrer">
+

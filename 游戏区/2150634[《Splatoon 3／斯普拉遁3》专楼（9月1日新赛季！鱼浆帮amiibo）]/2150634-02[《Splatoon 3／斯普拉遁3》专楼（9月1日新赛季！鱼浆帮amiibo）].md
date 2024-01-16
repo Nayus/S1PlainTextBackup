@@ -9644,3 +9644,13 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 2472#       发表于 2024-1-16 22:35
+
+没有，除非站当事人背后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

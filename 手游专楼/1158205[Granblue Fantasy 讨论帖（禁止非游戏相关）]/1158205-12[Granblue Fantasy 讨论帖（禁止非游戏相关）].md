@@ -198,3 +198,15 @@ gbf策划真好做啊
 
 当年10e还能英雄，现在10e连第一档都不够
 
+
+*****
+
+####  はちたや  
+##### 17614#       发表于 2024-1-16 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63666387&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2024-1-16 15:27</a>
+古战这么多年了，整体趋势就是顶部越来越卷。
+
+当年10e还能英雄，现在10e连第一档都不够</blockquote>
+10e二档都不够<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

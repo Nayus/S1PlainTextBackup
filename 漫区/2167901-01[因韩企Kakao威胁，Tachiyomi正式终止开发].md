@@ -856,3 +856,19 @@ daum常年都是老二，吃不下kakao。kakao现在190e美 ...</blockquote>
 
 后排通知一下，后继者mihon已经出github页面了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moe_soap  
+##### 65#       发表于 2024-1-16 19:35
+
+小小小提示，tachiyomi更换名称和维护人员转生了，新名称为mihon
+新应用与tachiyomi完全一致，所有数据互通，鉴于tachiyomi已不再维护，还是推荐转移到mihon以防止不知名bug吧
+mihon页面：
+https://github.com/mihonapp/mihon
+备份还原功能在：
+应用首页-更多-数据与存储
+mihon需要重新对插件进行一次信任
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

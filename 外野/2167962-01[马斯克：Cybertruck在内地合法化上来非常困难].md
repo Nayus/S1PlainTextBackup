@@ -704,3 +704,41 @@ MD的： <blockquote><strong>When not at a crosswalk, always give vehicles the r
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  暗の使徒  
+##### 71#       发表于 2024-1-16 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63654335&amp;ptid=2167962" target="_blank">松下仓鼠 发表于 2024-1-15 13:31</a>
+这辆车不就是专门为美国环境设计的吗？
+有棱有角，增强对路人行人的杀伤力。
+不锈钢车身加防弹玻璃，大电机 ...</blockquote>
+他这个一体成型的，车灯在包围外面，维修天价好吗
+
+等表面氧化后，洗车都费劲
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一闪一闪肋间肌  
+##### 72#       发表于 2024-1-16 10:37
+
+这车行人安全过不了吧……除非做个特供版
+
+*****
+
+####  暗の使徒  
+##### 73#       发表于 2024-1-16 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63657102&amp;ptid=2167962" target="_blank">normalli 发表于 2024-1-15 17:19</a>
+阻止很多人买皮卡的原因是皮卡限行，其实这玩意潜在的市场很大，当然防弹需求确实是没有 ...</blockquote>
+限行不是关键问题，现在一二线城市大多数有货车路线和通行区，足够覆盖了
+
+核心是15年强制报废。国内市场皮卡到30万以上的，销量断崖式下跌，主要就是这部分玩家几年一换车，倒手成本过高。这个限制不放开，注定无法引入新的用户
+
+ct还有个硬伤就是车子不够高，低车身续航会比较好，但对玩家来说就是硬伤，玩性能皮卡，停车时做了孙子，起码开起来要是爷，你跟x5这些一个水平，要你何用呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

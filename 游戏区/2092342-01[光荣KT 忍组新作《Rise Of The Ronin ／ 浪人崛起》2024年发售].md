@@ -72,3 +72,14 @@ sie惯例的摆烂宣发啊
 
 所以这玩意儿还能不能跨到steam了，实在不想玩了这个买ps5
 
+
+*****
+
+####  syndrome2032  
+##### 504#       发表于 2024-1-16 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63661959&amp;ptid=2092342" target="_blank">附庸风雅者 发表于 2024-1-16 09:00</a>
+所以这玩意儿还能不能跨到steam了，实在不想玩了这个买ps5</blockquote>
+参照仁王和仁王 完全版。肯定会跨。
+多久就不知道了，半年到一年？
+

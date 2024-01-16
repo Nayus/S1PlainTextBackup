@@ -671,3 +671,14 @@ MD的： <blockquote><strong>When not at a crosswalk, always give vehicles the r
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就想知道这造型这硬度，要是以几十公里的速度撞假人会是啥效果
 
+
+*****
+
+####  ak123  
+##### 68#       发表于 2024-1-16 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63661997&amp;ptid=2167962" target="_blank">格林达姆 发表于 2024-1-16 09:03</a>
+
+就想知道这造型这硬度，要是以几十公里的速度撞假人会是啥效果</blockquote>
+当然是胳膊脑袋乱飞喽，特斯拉自己都知道所以压根不敢做行人的假人碰撞测试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

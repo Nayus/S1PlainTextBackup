@@ -1144,3 +1144,13 @@ mujica动画是25年一月
 
 第七集立希叫猫mc后再弹的时候猫回了一句“是新的委托吗”，所以立希指使论还是有点可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  特拉·特尔特  
+##### 9090#       发表于 2024-1-16 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63664674&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-16 12:46</a>
+第七集立希叫猫mc后再弹的时候猫回了一句“是新的委托吗”，所以立希指使论还是有点可能的 ...</blockquote>
+那是因为之前立希要求她加加聊天群组，排练的时候要来吧
+

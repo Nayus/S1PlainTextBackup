@@ -1621,3 +1621,11 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在真的是xb啦。多来点。
 
+
+*****
+
+####  aptx8285144  
+##### 3468#       发表于 2024-1-16 13:42
+
+米斯缇当家后的观察力有点可怕呀，再多一点估计就要完全看穿歌姬了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，艾女士的感同身受还蛮有趣的，不过米斯缇继续强调人类与贤士不同（寿命论?），时间属于艾女士的jpg
+

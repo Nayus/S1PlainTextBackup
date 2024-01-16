@@ -101,3 +101,16 @@ sie惯例的摆烂宣发啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个桂的头发好假噢
 
+
+*****
+
+####  变老的大二  
+##### 507#       发表于 2024-1-16 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63661989&amp;ptid=2092342" target="_blank">syndrome2032 发表于 2024-1-16 09:03</a>
+
+参照仁王和仁王 完全版。肯定会跨。
+
+多久就不知道了，半年到一年？</blockquote>
+就忍组的优化水平，我觉得还是别折磨自己玩pc版了
+

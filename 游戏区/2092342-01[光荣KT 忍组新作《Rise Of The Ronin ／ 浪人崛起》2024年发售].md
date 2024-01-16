@@ -208,3 +208,11 @@ sie惯例的摆烂宣发啊
 
 不管了，反正已经预定到手了，玩就对了
 
+
+*****
+
+####  ckseng  
+##### 519#       发表于 2024-1-16 21:24
+
+如果当年有那么多龙信吹，现在早就出到3代了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

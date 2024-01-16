@@ -285,3 +285,11 @@
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63668838&amp;ptid=2104492" target="_blank">10th_Mystery 发表于 2024-1-16 18:32</a></blockquote>
 什么意思，没有这么复杂吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chiralium  
+##### 1632#       发表于 2024-1-16 21:23
+
+月光怪兽是能飞到大气层外的，下一集会出来拦截吗？不会被杀得一只都不剩了吧
+

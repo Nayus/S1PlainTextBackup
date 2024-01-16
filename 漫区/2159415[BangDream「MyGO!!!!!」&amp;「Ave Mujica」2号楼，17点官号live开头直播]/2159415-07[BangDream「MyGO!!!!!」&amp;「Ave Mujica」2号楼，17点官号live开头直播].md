@@ -790,3 +790,25 @@ tv的剧本还是挺精巧的，加或删点都会让故事不对劲。<img src=
 —— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 8992楼
 
+
+*****
+
+####  0WHan0  
+##### 9063#       发表于 2024-1-16 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63661290&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-16 04:15</a>
+
+没有任何去的理由或暗示阿，何况已经有初华了，再重复用一个设定就奇怪了。
+
+tv的剧本还是挺精巧的，加或 ...</blockquote>
+初华也没去看过啊
+
+*****
+
+####  NODY  
+##### 9064#       发表于 2024-1-16 09:32
+
+你邦剧本篇幅应该是很大的，然后为了时长删了不少内容（监督说第一季“没出现在画面中的剧情有很多”），第二季肯定没有篇幅写那么多东西，能把鸡的剧情讲完再回收c团问题就不错了，肯定有打酱油的
+
+对线之类的大概要等第三季或者剑指手游吧，武士道这么功利，真要搞对邦也得先等个几年看看人气变化再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

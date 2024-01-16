@@ -4094,3 +4094,18 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 
 而且他們也有不少連寶具、強化本都沒有，連幕間都沒有也更多
 
+
+*****
+
+####  UNISONIA  
+##### 10891#       发表于 2024-1-16 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63659931&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-15 22:22</a>
+
+这波联动要是黑贞还没改模 我估计关服黑贞都改不了了</blockquote>
+黑贞的问题以前有特殊说明过，她是第一批第二世代的模组（但是不是严格以时间点晚于她的都是第二世代模组的，只能说开发时间点晚于她的都是第二世代模组，例如实装晚于黑贞的崔悲伤当时还是开服时期的模组风格）
+
+开发时间晚于她还改到模的估计也只有梅林这个关系户了，连泳BB也只是细化了宝具动画
+
+绷不住的还是往年的人气王也挣不回来一个特例改模待遇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

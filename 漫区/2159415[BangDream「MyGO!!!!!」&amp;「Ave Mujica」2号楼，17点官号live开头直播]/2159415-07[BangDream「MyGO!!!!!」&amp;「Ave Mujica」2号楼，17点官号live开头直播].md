@@ -847,3 +847,25 @@ tv的剧本还是挺精巧的，加或 ...</blockquote>
  ...</blockquote>
 回忆起灯都是通过社交媒体上的照片，去过现场不可能记不得主唱吧
 
+
+*****
+
+####  ddy2811  
+##### 9068#       发表于 2024-1-16 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63662501&amp;ptid=2159415" target="_blank">0WHan0 发表于 2024-1-16 09:46</a>
+
+回忆起灯都是通过社交媒体&amp;#x ...</blockquote>
+一次而已啊，记得不是那么清楚也正常的
+
+而且天文馆那次初华的表现也是很多说法的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  特拉·特尔特  
+##### 9069#       发表于 2024-1-16 10:02
+
+soyo和灯都是有C团解散主视角，爱音开局是希思罗机场，这三个人应该不会再加了
+祥和睦俩人第二季会大写特写，初华说一年之前听祥提过，但是应该不在LIVE现场，猫和雇佣兵可能在
+立希是目前Mygo里唯一没有解散时刻主视角的
+

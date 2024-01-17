@@ -4205,3 +4205,120 @@ FGO在第二部前期渡过之后，出问题的就是在“节奏”上，包�
 
 60石，虽然比不上狗萌新，也算可以了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 10902#       发表于 2024-1-17 17:14
+
+<img src="https://img.saraba1st.com/forum/202401/17/171329rd6it3dgt6a3c43d.png" referrerpolicy="no-referrer">
+
+<strong>L6_LB_V56AK0M6%M{5BFA.png</strong> (126.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:13 上传
+
+<img src="https://img.saraba1st.com/forum/202401/17/171332ulndg2vwqq91vld3.png" referrerpolicy="no-referrer">
+
+<strong>}S5~H3YRE02V(66NARUP9HI.png</strong> (130.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:13 上传
+
+<img src="https://img.saraba1st.com/forum/202401/17/171336k7osg9nahs6fonoa.png" referrerpolicy="no-referrer">
+
+<strong>R5URA[9Z92550FZM%MX25HB.png</strong> (194.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:13 上传
+
+这赖光柰子比由井正雪还小....伊织满破癫味不错
+
+*****
+
+####  alucardcz  
+##### 10903#       发表于 2024-1-17 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是第1个50充绿卡光炮？
+
+*****
+
+####  Jamaisvu  
+##### 10904#       发表于 2024-1-17 17:15
+
+ 本帖最后由 Jamaisvu 于 2024-1-17 17:18 编辑 
+
+这三位的卡面感觉都不算很惊艳，我看解包时的表情就和正雪一样毫无波澜...
+
+伊织的满破倒是挺不错的，长夜红月，剑鬼杀伐...可能是没给渡老师发挥的空间吧，要不一破可能画个现代装白毛番长<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">？
+
+*****
+
+####  AbigailWilliams  
+##### 10905#       发表于 2024-1-17 17:15
+
+地特攻核弹，能有50充在绿卡里面已经直接可以进t1了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 10906#       发表于 2024-1-17 17:15
+
+<img src="https://img.saraba1st.com/forum/202401/17/171501dvq18spaepeplp4z.png" referrerpolicy="no-referrer">
+
+<strong>61a432d8bc3eb13551cd7e79e31ea8d3fc1f441d (2).png</strong> (72.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">有没有人救救我传我一个这个文件我看看行不行
+
+*****
+
+####  GuDaZi  
+##### 10907#       发表于 2024-1-17 17:17
+
+源赖光那铠甲就直接没有了，给个灵衣吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 10908#       发表于 2024-1-17 17:18
+
+伊织满破相当好，正雪的初始姿势太特么武内了喷了，丑御前我居然觉得雷太配色进步了
+
+*****
+
+####  khxooo  
+##### 10909#       发表于 2024-1-17 17:18
+
+看开头剧情，估计就是猜测的那样，伊织杀了武尊，然后无限循环了。
+
+*****
+
+####  Jamaisvu  
+##### 10910#       发表于 2024-1-17 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679554&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-17 17:15</a>
+
+有没有人救救我传我一个这个文件我看看行不行</blockquote>
+重装一下谷歌三件套试试？
+
+或者换个平台再下一遍安装包？
+
+*****
+
+####  v22325  
+##### 10911#       发表于 2024-1-17 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679613&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-1-17 17:21</a>
+
+重装一下谷歌三件套试试？
+
+或者换个平台再下一遍安装包？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">现在是下的新安装包没法覆盖安装 
+

@@ -25986,3 +25986,111 @@ PlayMyData数据建模
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1188#       发表于 2024-1-18 01:08
+
+ 本帖最后由 Machinery 于 2024-1-18 01:09 编辑 
+
+InstantID
+
+在几秒之内进行零样本身份保留(Identity-Preserving)的生成
+
+github项目主页:https://github.com/InstantID/InstantID
+
+例如Textual Inversion/DreamBooth/LoRA之类的方法，在个性化图像合成方面取得了重大进步，然而，它们在实际应用中存在存储需求高、微调过程冗长和需要多个参考图像等问题，相反，现有的基于ID嵌入(ID embedding-based)的方法虽然只需要单次前向推理，但依然面临如下挑战:要么需要对多个模型的参数进行繁琐的微调，要么与社区预训练模型不兼容，要么无法保持高面部保真度
+
+为了解决这些限制，本文引入了InstantID，一个强大的基于扩散模型的解决方案，只需单张面部图像，插件模块就能够灵活处理各种风格的图像个性化，同时确保高保真度
+
+为了实现这一目标，设计了一个新颖的身份网络(IdentityNet)，通过施加强大的语义和弱空间条件，将面部和landmark图像与文本提示集成起来以引导图像生成，InstantID展示了出色的性能和效率，在重视身份保留的实际应用中具有极大的益处，此外，本文的工作还可以与流行的预训练文本到图像扩散模型(如SD1.5和SDXL)无缝集成，作为一个强大的适配插件
+
+<img src="https://img.saraba1st.com/forum/202401/18/010711f2jf9j2neayy4lgz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-010456.jpg</strong> (367.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:07 上传
+
+InstantID的炫酷团队，按照作者的顺序使用InstantID生成
+
+<img src="https://img.saraba1st.com/forum/202401/18/010716phwf4fxyhdc5zfxv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-010520.jpg</strong> (117.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:07 上传
+
+本文提出的InstantID的整体流程图，模型由三个部分组成，以保持高面部保真度
+
+首先，应用面部编码器代替CLIP来提取语义面部特征，并使用可训练的投影层将它们投影到文本特征空间中，将投影特征作为面部嵌入
+
+然后，引入了一个轻量级的自适应模块，其中包含解耦的交叉注意力，以支持将图像作为提示
+
+最后，提出了IdentityNet，用于对参考的面部图像的复杂特征进行编码，并具有额外的弱空间控制
+
+在IdentityNet中，生成过程完全由面部嵌入引导，没有任何文本信息，只有新增的模块被更新，而预训练的文本到图像模型保持冻结，以确保灵活性，训练完成后，用户可以自由生成任何风格的身份保留的高保真度图像
+
+<img src="https://img.saraba1st.com/forum/202401/18/010804un8vaupqkb6wg5v3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-010532.jpg</strong> (302.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:08 上传
+
+InstantID的稳健性、可编辑性和兼容性示例
+
+第1列显示了仅图像结果，在推理过程中将提示设置为空
+第2-4列通过文本提示展示了可编辑性
+第5-9列展示了与现有的ControlNets(canny&amp;depth)的兼容性
+
+<img src="https://img.saraba1st.com/forum/202401/18/010810wzllfyf2cg8lqfl8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-010543.jpg</strong> (183.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:08 上传
+
+参考图像数量的影响，对于多个参考图像，将ID嵌入的平均值作为图像提示，即使只有一张参考图像，InstantID也能够取得良好的结果
+
+<img src="https://img.saraba1st.com/forum/202401/18/010822itlyv3zhvyyuii38.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-010609.jpg</strong> (301.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:08 上传
+
+InstantID与其他方法在不同角色和风格条件下的对比
+
+从左到右分别是IP-Adapter-SDXL，IP-Adapter-SDXL-FaceID(*表示实验版本)，IP-Adapter-SD1.5-FaceID，IP-Adapter-SD1.5-FaceID-Plus
+
+如图所示，可以发现依赖于CLIP嵌入的IP-Adapter无法实现面部保真度，并且会导致提示控制的生成风格退化(degradation)，IP-Adapter-FaceID引入了面部嵌入，改善了面部的保真度，但仍仍然无法实现高度保真，IP-Adapter-FaceID-Plus结合了面部嵌入和CLIP，可以实现良好的面部保真度，但依然存在风格退化问题，导致面部无法融入背景风格中，相比之下，本文提出的InstantID在保持高度保真度的同时，与各种风格兼容
+
+<img src="https://img.saraba1st.com/forum/202401/18/010828ar59rb5f3zlrrc3f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-010617.jpg</strong> (181.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:08 上传
+
+InstantID与预训练角色LoRAs的对比，本文方法可以在没有任何训练的情况下取得有竞争力的结果
+
+<img src="https://img.saraba1st.com/forum/202401/18/010836hesnpmk414m9k9pe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-010634.jpg</strong> (124.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:08 上传
+
+InstantID与InsightFace Swapper的对比，在非真实风格下，本文工作在面部和背景整合上更加灵活
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

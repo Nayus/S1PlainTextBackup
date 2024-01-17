@@ -26442,3 +26442,116 @@ github项目说明页截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1193#       发表于 2024-1-18 06:06
+
+ 本帖最后由 Machinery 于 2024-1-18 06:07 编辑 
+
+JumpCoder
+
+通过即时修改超越自回归编码器
+
+github项目主页:https://github.com/Keytoyze/JumpCoder
+
+<img src="https://img.saraba1st.com/forum/202401/18/060523v5ocv1r6o6ikv6bn.gif" referrerpolicy="no-referrer">
+
+<strong>code-demo.gif</strong> (514.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 06:05 上传
+
+现有的编码大型语言模型(Code LLMs)在代码生成方面展现了惊人的能力，但它们自回归式的顺序生成本质上缺乏可逆性(reversibility)，这个限制阻碍了它们像人类一样及时纠正之前缺失的语句，在编码过程中经常导致错误传播和次优的性能
+
+本文引入了JumpCoder，一个新颖的模型无关框架(modelagnostic framework)，可以实现即时修改和非顺序生成，以增强代码LLMs的能力，JumpCoder的关键思想是在生成代码时，在必要的情况下插入新的代码，这是通过辅助的填充模型(auxiliary infilling model)与代码LLMs协同工作来实现的
+
+由于事先确定最佳填充位置是困难的，采用了先填充后判断(infill-first, judge-later)的策略，即在生成每行代码后尝试在k个最关键的位置进行填充，并使用抽象语法树(AST/Abstract Syntax Tree)解析器和生成模型评分来有效判断每个潜在填充的有效性
+
+通过对多个基准测试进行的广泛实验一致表明，使用六种SOTA代码LLMs，JumpCoder在所有基准测试中都取得了显著的改进，值得注意的是，在多语言HumanEval基准测试中，JumpCoder帮助代码LLMs实现了Python Pass@1改进3.6%，Java改进6.3%，C++改进3.7%
+
+<img src="https://img.saraba1st.com/forum/202401/18/060529zeh28l0mz9y8zen9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-060017__01.jpg</strong> (417.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 06:05 上传
+
+展示了人类和LLM之间的区别的说明性例子，当需要一个新的变量时，人类可以跳回到前面的部分来定义它，对于LLM而言，受限于自回归性质，只能继续生成并导致错误传播
+
+<img src="https://img.saraba1st.com/forum/202401/18/060534vjy6jjisywiub1s0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-060032__01.jpg</strong> (138.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 06:05 上传
+
+传统自回归编码器和提出的JUMPCODER的示意图，代码行由生成模型(蓝色)和填充模型(黑色)生成
+
+<img src="https://img.saraba1st.com/forum/202401/18/060538xjvvz0vnl3vnnw0v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-060046__01.jpg</strong> (293.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 06:05 上传
+
+JUMPCODER框架，迭代的代码更新过程包括三个重要阶段:混合生成、判断和组合(Hybrid generation, Judging and Combination)，每次迭代插入一行新的代码
+
+<img src="https://img.saraba1st.com/forum/202401/18/060544jt1kkqiqqyhie1ie.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-060100__01.jpg</strong> (307.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 06:05 上传
+
+在HumanEval和MBPP上使用贪婪解码生成的Pass@1(%)结果
+V=Vanilla(原生)
+F=Filtered(过滤)
+O=Oracle(喻示/性能上限边界)
+
+†代表结果取自Roziere等人
+
+<img src="https://img.saraba1st.com/forum/202401/18/060551w55ontxtl5xluxx2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-060111__01.jpg</strong> (158.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 06:05 上传
+
+在MultiPL-E上使用贪婪解码生成的Pass@1结果
+V=Vanilla(原生)
+O=Oracle(喻示/性能上限边界)
+
+<img src="https://img.saraba1st.com/forum/202401/18/060556c2jrr0hurudd8yro.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-060126__01.jpg</strong> (170.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 06:05 上传
+
+JUMPCODER与各种基线的对比分析
+
+<img src="https://img.saraba1st.com/forum/202401/18/060601sbbhfyp45uu5zfsk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-060126__02.jpg</strong> (97.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 06:06 上传
+
+(A)在判断阶段移除AST解析器和生成模型评分的消融实验
+(B)JUMPCODER解决的不同类型的错误，“Name Error”表示未定义的标识符错误
+(C)不同语言的未定义标识符错误数量
+
+CL-I/P = CODELLAMA-INSTRUCT/PYTHON
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

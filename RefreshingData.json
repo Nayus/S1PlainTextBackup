@@ -2936,12 +2936,12 @@
     "active": false
   },
   "1952903": {
-    "totalreply": 628,
+    "totalreply": 629,
     "title": "[冈本伦《平行天堂》讨论楼]",
     "newtitle": "[冈本伦《平行天堂》讨论楼]",
-    "lastedit": 1703246340,
+    "lastedit": 1705529583,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "1551913": {
     "totalreply": 564,
@@ -5248,10 +5248,10 @@
     "active": false
   },
   "2126390": {
-    "totalreply": 1192,
+    "totalreply": 1193,
     "title": "[开源类GPT4多模态模型项目-OpenFlamingo-转型开源模型项目集合页]",
     "newtitle": "[开源类GPT4多模态模型项目-OpenFlamingo-转型开源模型项目集合页]",
-    "lastedit": 1705523520,
+    "lastedit": 1705529586,
     "category": "外野",
     "active": true
   },
@@ -6971,7 +6971,7 @@
     "totalreply": 2496,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，Who's Next？1月19日有没有大]",
-    "lastedit": 1705528993,
+    "lastedit": 1705528800,
     "category": "游戏区",
     "active": true
   },

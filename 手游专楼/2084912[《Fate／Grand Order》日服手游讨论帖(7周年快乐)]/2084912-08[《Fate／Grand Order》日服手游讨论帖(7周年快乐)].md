@@ -4166,3 +4166,42 @@ FGO在第二部前期渡过之后，出问题的就是在“节奏”上，包�
 
 复刻的事情就是节奏混乱的一个缩影，先是觉得对旧活动进行小幅度修改维护的事儿麻烦，改成长草期硬长草只复刻卡池+活动三周起；今年开始产能拉胯到没办法填越来越长的空档期，又吃回头草来个复刻希望投票
 
+
+*****
+
+####  v22325  
+##### 10898#       发表于 2024-1-17 17:03
+
+ 本帖最后由 v22325 于 2024-1-17 17:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草 不是从谷歌下载的安装包出问题了  我前几天刚换的手机忘了备份引继码了 
+
+*****
+
+####  alucardcz  
+##### 10899#       发表于 2024-1-17 17:05
+
+<img src="https://img.saraba1st.com/forum/202401/17/170524w25kmfucfi1255z2.jpg" referrerpolicy="no-referrer">
+
+<strong>15878676.jpg</strong> (547 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">妈！
+
+*****
+
+####  alucardcz  
+##### 10900#       发表于 2024-1-17 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后一看绿光炮
+
+*****
+
+####  khxooo  
+##### 10901#       发表于 2024-1-17 17:08
+
+60石，虽然比不上狗萌新，也算可以了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

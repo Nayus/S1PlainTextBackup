@@ -1812,3 +1812,24 @@ WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡�
 
 估计就是按剪个总集篇，但背景音里面加点猫的旁白之类的吧
 
+
+*****
+
+####  PDQ4  
+##### 9150#       发表于 2024-1-17 23:35
+
+单纯加背景音也太无聊了，我想着是猫猫旁观视角看其他四人，还可以再补点猫猫家庭日常，让奶奶彩蛋出镜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 9151#       发表于 2024-1-17 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63683171&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-17 23:05</a>
+
+拿掉个开场动画都能出问题两次，怕不是真的交接出问题了
+
+其实我一开始以为又是那种典型的说要换公司 ...</blockquote>
+真交接出問題，該擔心的就是今年要島了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

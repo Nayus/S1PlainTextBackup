@@ -4691,3 +4691,53 @@ files/data/下54cc文件在吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这伊织是被武尊砍了之后躺尸的那条线的啊？居然选这个
 
+
+*****
+
+####  qixinno2  
+##### 10945#       发表于 2024-1-17 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">模拟器GG 好烦啊
+
+*****
+
+####  不垃圾屌丝  
+##### 10946#       发表于 2024-1-17 18:38
+
+108根骨头我觉得也不算少了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不算一技能也要72个
+
+20次的减伤…还原这种游戏性有意思吗？
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 10947#       发表于 2024-1-17 18:41
+
+<img src="https://img.saraba1st.com/forum/202401/17/184031iz4h4xthfgmxg430.png" referrerpolicy="no-referrer">
+
+<strong>1705487945219.png</strong> (43.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 18:40 上传
+
+枪贞德这样子恐怕实装无望了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 10948#       发表于 2024-1-17 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 这就是干碎模拟器后的补偿么
+
+J)7GL1{%FRQ33`E[`1}{R3Y.jpg
+(357.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 18:42 上传
+
+<img src="https://img.saraba1st.com/forum/202401/17/184236ff7l9h964liyy2if.jpg" referrerpolicy="no-referrer">
+

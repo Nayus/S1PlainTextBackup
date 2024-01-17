@@ -265,3 +265,18 @@ sie惯例的摆烂宣发啊
 复用半天还是跟着fs社屁股后面走，折腾那么久结果卧龙一泡污。
 新时代一堆复用素材的游戏比不过一个多年前的半成品
 
+
+*****
+
+####  woshenc  
+##### 525#       发表于 2024-1-17 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63671516&amp;ptid=2092342" target="_blank">铁拳圣裁 发表于 2024-1-16 22:31</a>
+
+复用半天还是跟着fs社屁股后面走，折腾那么久结果卧龙一泡污。
+
+新时代一堆复用素材的游戏比不过一个多年 ...</blockquote>
+卧龙有微软兜底买单不怕不怕
+
+论素材复用和省钱我是相信暗耻的
+

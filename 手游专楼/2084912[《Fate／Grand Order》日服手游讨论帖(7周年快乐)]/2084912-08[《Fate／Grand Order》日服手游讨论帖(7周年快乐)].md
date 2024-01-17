@@ -4109,3 +4109,11 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 
 绷不住的还是往年的人气王也挣不回来一个特例改模待遇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 10892#       发表于 2024-1-17 09:18
+
+FGO现在最奇葩的是别的手游都是策划没货了拿出来顶一下档期，它不仅不顶档期还觉得复刻是天大的恩惠
+

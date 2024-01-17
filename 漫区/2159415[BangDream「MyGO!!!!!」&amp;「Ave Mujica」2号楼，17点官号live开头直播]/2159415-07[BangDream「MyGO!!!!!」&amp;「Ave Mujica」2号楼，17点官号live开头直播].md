@@ -1688,3 +1688,68 @@ WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡�
 要么就是之前漏油口 ...</blockquote>
 越是養老遊戲就越是屎山代碼，真敢搞大更還踢了原來的製作組？那我只能祝福武士道了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 9139#       发表于 2024-1-17 23:05
+
+ 本帖最后由 NODY 于 2024-1-17 23:06 编辑 
+
+拿掉个开场动画都能出问题两次，怕不是真的交接出问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实我一开始以为又是那种典型的说要换公司实际上只换了个套皮子公司（隔壁少歌就是这样的，连公司地址都没变），现在看武士道是真踢了手艺蛋啊
+
+*****
+
+####  acgreen  
+##### 9140#       发表于 2024-1-17 23:08
+
+说起来总集剧场版是个啥东西？bangdream以前做过吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  基神的强袭自由  
+##### 9141#       发表于 2024-1-17 23:11
+
+<img src="https://img.saraba1st.com/forum/202401/17/231112m2dkpf2dacxpxzpm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 23:11 上传
+
+在维护延期的时候我把大秘境都打到20层了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上杉打老虎  
+##### 9142#       发表于 2024-1-17 23:13
+
+<strong>《换  妻  俱  乐  部》</strong>
+<strong>
+</strong>
+
+<img src="https://img.saraba1st.com/forum/202401/17/231159p8604z9s9yqas69u.jpg" referrerpolicy="no-referrer">
+
+<strong>临时HQ2.jpg</strong> (69.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 23:11 上传
+
+[https://twitter.com/nekobako_1225/status/1747551621285031986](https://twitter.com/nekobako_1225/status/1747551621285031986)
+
+<img src="https://img.saraba1st.com/forum/202401/17/231159d0wb6wt0ecq6dr0e.jpg" referrerpolicy="no-referrer">
+
+<strong>临时HQ1.jpg</strong> (112.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 23:11 上传
+
+[https://twitter.com/zawajam/status/1657373607272804363](https://twitter.com/zawajam/status/1657373607272804363)
+

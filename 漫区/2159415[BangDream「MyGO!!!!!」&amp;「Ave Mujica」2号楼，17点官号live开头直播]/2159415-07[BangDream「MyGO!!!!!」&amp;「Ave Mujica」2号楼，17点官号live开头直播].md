@@ -1557,3 +1557,18 @@ nmd这么加塞的？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜欢我自信满满的武士道光速决策吗
 
+
+*****
+
+####  PDQ4  
+##### 9126#       发表于 2024-1-17 21:57
+
+剧场版这不是一眼加塞，毫不意外。只能说还好实锤的不是母鸡卡25年1月播是因为这个加塞，别有人讲漏嘴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 9127#       发表于 2024-1-17 21:58
+
+武士道瞎搞又不是第一次了 不要像少歌＃2那样因为人气改剧情就好 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   只能说幸好动画要改剧情比舞台剧难多了
+

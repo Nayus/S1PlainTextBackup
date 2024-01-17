@@ -5039,3 +5039,12 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 立香说武藏酱的时候伊织表情蚌埠住了，不知道他第一反应是女的那个还是老头 ...</blockquote>
 伊织：“老头控真可怕”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 10974#       发表于 2024-1-17 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次你伽勒底完全一副看完攻略专业团队模样啊
+“我们就是来负责给你们抬棺的”
+

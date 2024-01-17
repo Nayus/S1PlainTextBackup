@@ -4802,3 +4802,12 @@ J)7GL1{%FRQ33`E[`1}{R3Y.jpg
 
 为了抽正雪多花了300多，你游的4星出率太高了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 10955#       发表于 2024-1-17 19:02
+
+草，任务里怎么还有撸猫撸狗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

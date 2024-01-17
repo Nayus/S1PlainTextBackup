@@ -1753,3 +1753,38 @@ WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡�
 
 [https://twitter.com/zawajam/status/1657373607272804363](https://twitter.com/zawajam/status/1657373607272804363)
 
+
+*****
+
+####  Kasroz  
+##### 9143#       发表于 2024-1-17 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">总集篇重点其实是filmlive吧
+
+*****
+
+####  cherryjia12  
+##### 9144#       发表于 2024-1-17 23:17
+
+唉，差不多实锤加塞了，我担心的大概要应验了，剧场版猫的戏份肯定是画蛇添足了，虽然就企划来说每个角色戏份端水肯定是没错的，但tv里对于猫的塑造在我看来是最优解了，ep7猫演奏春日影称得上神来之笔，乍看降神细想合理，现在又要把这份神秘感捅破，实在是不看好。。
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  acgreen  
+##### 9145#       发表于 2024-1-17 23:18
+
+也就是说live为主？会扩展新剧情吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kasroz  
+##### 9146#       发表于 2024-1-17 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63683294&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-1-17 23:17</a>
+唉，差不多实锤加塞了，我担心的大概要应验了，剧场版猫的戏份肯定是画蛇添足了，虽然就企划来说每个角色戏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">能想到的就是手游换编剧团队后从新式偶像剧情番的定位又回到传统偶像剧情了吧
+

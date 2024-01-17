@@ -4367,3 +4367,109 @@ FGO在第二部前期渡过之后，出问题的就是在“节奏”上，包�
 
 ........雷太还是画巨乳吧，好怪啊
 
+
+*****
+
+####  琴酒  
+##### 10917#       发表于 2024-1-17 17:34
+
+<img src="https://img.saraba1st.com/forum/202401/17/173403x5ucsaezl5phyaju.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1220.JPG</strong> (239.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:34 上传
+
+*****
+
+####  洛克萨斯  
+##### 10918#       发表于 2024-1-17 17:36
+
+我还以为伊织技能组能做成每回合切换一次型...................毫无创造力和想象力啊螺旋社！！！！
+
+*****
+
+####  棍机凹升龙  
+##### 10919#       发表于 2024-1-17 17:37
+
+想new5星结果撞4星出货期把正雪抽满了
+
+*****
+
+####  khxooo  
+##### 10920#       发表于 2024-1-17 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679619&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-17 17:22</a>
+现在是下的新安装包没法覆盖安装</blockquote>
+你有没有保存引继码，要不删了重新下过吧。
+
+
+*****
+
+####  qixinno2  
+##### 10921#       发表于 2024-1-17 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679430&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-17 17:05</a>
+
+妈！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新又豹跳了
+
+*****
+
+####  Jamaisvu  
+##### 10922#       发表于 2024-1-17 17:39
+
+<img src="https://img.saraba1st.com/forum/202401/17/173422t1wevqqcl1eqqbca.jpg" referrerpolicy="no-referrer">
+
+<strong>CF88C5CCACB00E8629E05A2A75932AEB.jpg</strong> (119.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:34 上传
+
+丑御前这个三绿配卡有点毒，YLS是针对RBA吗，千利休和丑御前这种泛用绿光炮都是三绿...
+
+50NP自充绑定一回合宝威，想了想也没啥问题，第三回合再放也不冲突...但3T有什么不好吗...
+
+<img src="https://img.saraba1st.com/forum/202401/17/173423hjs7g7azeuw7us7z.jpg" referrerpolicy="no-referrer">
+
+<strong>E6AD4EF7C4D04DF20831933B795CB49B.jpg</strong> (107.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:34 上传
+
+正雪作为辅助卡还不错，全色卡通吃，比美游那种攻击加成给自己的强多了...
+
+*****
+
+####  v22325  
+##### 10923#       发表于 2024-1-17 17:39
+
+ 本帖最后由 v22325 于 2024-1-17 17:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679814&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-1-17 17:37</a>
+
+你有没有保存引继码，要不删了重新下过吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">我要是有引继码就不会这么慌了，上个星期刚换的手机把引继码用了忘了做新的了……  我已经把游戏删了用复制的data来手动搞，但不知道是不是因为安装的安装包不行这个文件夹也怪怪的 ，我觉得我完了
+
+*****
+
+####  Jamaisvu  
+##### 10924#       发表于 2024-1-17 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679766&amp;ptid=2084912" target="_blank">琴酒 发表于 2024-1-17 17:34</a></blockquote>
+嘟嘟是连礼装都没挤进去吗，二期稳了（误）
+
+*****
+
+####  exiaexa  
+##### 10925#       发表于 2024-1-17 17:42
+
+我吐了，这期还债还得好狠
+
+12单2宝，外加40多个正雪
+
+短期内都不想看见四星了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

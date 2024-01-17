@@ -5012,3 +5012,30 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  不垃圾屌丝  
+##### 10971#       发表于 2024-1-17 21:48
+
+笑死，满破三星礼装5%蓝放%5宝伤，五星礼装%6蓝放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  保罗赫伯特  
+##### 10972#       发表于 2024-1-17 21:50
+
+不带np的活动礼装很多都是一次性用品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 10973#       发表于 2024-1-17 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63681091&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-17 19:54</a>
+
+立香说武藏酱的时候伊织表情蚌埠住了，不知道他第一反应是女的那个还是老头 ...</blockquote>
+伊织：“老头控真可怕”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

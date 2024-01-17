@@ -1749,3 +1749,14 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 我怎么感觉夏尔要没了，不要啊</blockquote>
 flag挺多的，op这单独影响化非常少见，主吧好像有人根据声优们在节目里的一些反应，揣测夏尔的剧情是不是已经结束了
 
+
+*****
+
+####  Piano-Forest  
+##### 3482#         楼主| 发表于 2024-1-17 21:45
+
+[https://twitter.com/nutszero1/status/1746917877595492689](https://twitter.com/nutszero1/status/1746917877595492689)
+
+観ていただいた方々、ありがとうございます。すみません、コンテの誌村さんは宏明さんの方でしたね。ネジ子は次回で。本編、こんな話でしたっけ？（笑）
+<img src="https://p.sda1.dev/15/4a8bf9c384fb74a2397c16cec84c66c0/20240117_214444.jpg" referrerpolicy="no-referrer">
+

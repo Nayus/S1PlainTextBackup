@@ -414,3 +414,11 @@ Tilsonite Sword是布莱泽奥特曼塑造的刀剑，其原型是由嘎拉蒙�
 身高５５米　体重６万６千吨
 <img src="https://p.sda1.dev/15/4f441355910c0589a562e5ec09d17666/006ilIMPgy1hlsd0kb75wj31hc0u0hbi.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  10th_Mystery  
+##### 1643#       发表于 2024-1-17 21:46
+
+第三波来袭  我想就算是布莱泽与阿斯加隆 也只能举手投降
+

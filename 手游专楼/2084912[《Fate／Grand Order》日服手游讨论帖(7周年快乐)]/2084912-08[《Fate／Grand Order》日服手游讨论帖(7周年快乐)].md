@@ -4671,3 +4671,23 @@ files/data/下54cc文件在吗</blockquote>
 
 只有你游在国服已经做出了平台账号绑定的情况下，还是坚持只用引继码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 10943#       发表于 2024-1-17 18:28
+
+ 本帖最后由 exiaexa 于 2024-1-17 18:30 编辑 
+
+这正雪技能点素材要求怎么这么低，随便就点满了
+
+顺便她这个技能组，只要你能接受开宝具，能让不少红蓝buff的蓝卡输出舒服不少，关键是C呆点个1就启动了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 10944#       发表于 2024-1-17 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这伊织是被武尊砍了之后躺尸的那条线的啊？居然选这个
+

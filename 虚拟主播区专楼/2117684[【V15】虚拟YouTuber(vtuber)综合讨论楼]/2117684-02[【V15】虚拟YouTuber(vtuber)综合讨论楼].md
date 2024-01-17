@@ -661,3 +661,25 @@ https://www.youtube.com/watch?v=T0hEbIRi9xg
 
 And just like that everyone forgot about pomu's upcoming graduation
 
+
+*****
+
+####  SuntoryNomu  
+##### 2914#       发表于 2024-1-17 20:03
+
+<img src="https://img.saraba1st.com/forum/202401/17/200233tr0r02blvzxva20k.jpg" referrerpolicy="no-referrer">
+
+<strong>agl255817.jpg</strong> (805.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 20:02 上传
+
+<img src="https://img.saraba1st.com/forum/202401/17/200244qgbcxxqxbikxf6x3.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1705492930742.jpg</strong> (339.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 20:02 上传
+

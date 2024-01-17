@@ -1467,3 +1467,11 @@ https://x.com/iso_usagi/status/1747481146722791515?s=20<img src="https://p.sda1.
 唉，长期爽食
 <img src="https://p.sda1.dev/15/427dba7e19043f69dc33487bdf024f7c/CMP_20240117192604646.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 9115#       发表于 2024-1-17 20:11
+
+看这期集会的意思是差不多去年12月底她们才知道还要做总集篇。那感觉这个总集篇也是很临时才插进来的啊
+

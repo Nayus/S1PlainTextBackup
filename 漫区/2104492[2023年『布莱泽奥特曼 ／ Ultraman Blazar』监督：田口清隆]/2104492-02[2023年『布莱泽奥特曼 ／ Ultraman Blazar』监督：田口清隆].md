@@ -422,3 +422,11 @@ Tilsonite Sword是布莱泽奥特曼塑造的刀剑，其原型是由嘎拉蒙�
 
 第三波来袭  我想就算是布莱泽与阿斯加隆 也只能举手投降
 
+
+*****
+
+####  Sliurus  
+##### 1644#       发表于 2024-1-17 22:08
+
+什么失败主义谋士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

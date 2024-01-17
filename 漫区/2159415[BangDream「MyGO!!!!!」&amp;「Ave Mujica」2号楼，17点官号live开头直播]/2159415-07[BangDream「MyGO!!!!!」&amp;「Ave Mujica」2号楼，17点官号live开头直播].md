@@ -1572,3 +1572,23 @@ nmd这么加塞的？
 
 武士道瞎搞又不是第一次了 不要像少歌＃2那样因为人气改剧情就好 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   只能说幸好动画要改剧情比舞台剧难多了
 
+
+*****
+
+####  Kasroz  
+##### 9128#       发表于 2024-1-17 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63682465&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-17 21:57</a>
+剧场版这不是一眼加塞，毫不意外。只能说还好实锤的不是母鸡卡25年1月播是因为这个加塞，别有人讲漏嘴了[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是反过来吗
+
+*****
+
+####  PDQ4  
+##### 9129#       发表于 2024-1-17 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63682541&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-17 22:04</a>
+
+难道不是反过来吗</blockquote>
+反过来那更没有逻辑，母鸡卡动画出问题了不赶紧想办法处理加班做完，反而抽人手去做卖狗剧场版，是嫌问题不够大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

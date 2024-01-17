@@ -4959,3 +4959,18 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 一键启动正雪和太公望迫在眉睫
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 10966#       发表于 2024-1-17 19:53
+
+这傻逼运营是专门整一些烂活啊....主线非要塞一堆会增援的小怪关卡...就是不想让玩家3T过关<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 10967#       发表于 2024-1-17 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立香说武藏酱的时候伊织表情蚌埠住了，不知道他第一反应是女的那个还是老头
+

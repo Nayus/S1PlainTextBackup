@@ -5069,3 +5069,24 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊织和武尊的对话味太冲了，武尊这个不男不女，男女通吃的设定就很那啥
 
+
+*****
+
+####  シャル  
+##### 10977#       发表于 2024-1-17 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63682818&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-17 22:27</a>
+
+伊织和武尊的对话味太冲了，武尊这个不男不女，男女通吃的设定就很那啥 ...</blockquote>
+刚砍死就又见面了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">火还没消呢
+
+*****
+
+####  cenhr  
+##### 10978#       发表于 2024-1-17 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680524&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-1-17 18:46</a>
+
+毕竟其他两线的伊织都放下执念安心做个普通人，和妹妹老婆孩子热炕头了，你再把人家拉过来未免有点太地狱 ...</blockquote>
+你月设定，不是妹妹是后来伊织效忠的大名的女儿，最后成老婆，所以伊织晋升才那么快？
+

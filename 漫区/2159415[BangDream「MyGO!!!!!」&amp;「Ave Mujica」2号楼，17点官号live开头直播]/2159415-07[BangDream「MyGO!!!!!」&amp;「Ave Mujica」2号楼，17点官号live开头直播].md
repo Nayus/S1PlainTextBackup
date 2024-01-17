@@ -1637,3 +1637,54 @@ nmd这么加塞的？
 邦邦手游我记得最近确实闹过笑话，好像维护失败，工艺蛋没拿掉？不是玩家，只是刷到过相关帖子、动态[f:009 ...</blockquote>
 不好意思，此时此刻正在第二次尝试拿掉工艺蛋，然后又延期了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 9134#       发表于 2024-1-17 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63682864&amp;ptid=2159415" target="_blank">0路人辛0 发表于 2024-1-17 22:31</a>
+
+邦邦手游我记得最近确实闹过笑话，好像维护失败，工艺蛋没拿掉？不是玩家，只是刷到过相关帖子、动态[f:009 ...</blockquote>
+现在维护结束时间未定
+
+*****
+
+####  凡人  
+##### 9135#       发表于 2024-1-17 22:36
+
+小祥还在发力（
+
+*****
+
+####  PDQ4  
+##### 9136#       发表于 2024-1-17 22:37
+
+WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡进游戏前手游先似了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要么就是之前漏油口嗨的，WSD想鸡进游戏的时候也整个新系统大更，结果开发不出来只能延期，也是一种草台思路。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过真要开发新系统的话，别人都担心步子太大扯着蛋，WSD直接把手工蛋摘了不会觉得就没问题了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9137#       发表于 2024-1-17 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63682864&amp;ptid=2159415" target="_blank">0路人辛0 发表于 2024-1-17 22:31</a>
+
+邦邦手游我记得最近确实闹过笑话，好像维护失败，工艺蛋没拿掉？不是玩家，只是刷到过相关帖子、动态[f:009 ...</blockquote>
+沒拿掉啟動遊戲時手工蛋的東西純粹是粗心，換那個對遊戲製作組來說不麻煩，只是換那東西需要玩家更新遊戲，頻繁要玩家強更遊戲是不太好的體驗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9138#       发表于 2024-1-17 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63682931&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-17 22:37</a>
+
+WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡进游戏前手游先似了。
+
+要么就是之前漏油口 ...</blockquote>
+越是養老遊戲就越是屎山代碼，真敢搞大更還踢了原來的製作組？那我只能祝福武士道了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

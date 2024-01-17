@@ -25820,3 +25820,109 @@ Autoregressive vs. Masking，评估了AIM的自回归目标在IN-1k上的性能�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1186#       发表于 2024-1-17 22:35
+
+MultiPLY
+
+3D世界中以多感官为目标中心的具身大型语言模型
+
+项目主页:https://vis-www.cs.umass.edu/multiply/
+
+github项目仓库:https://github.com/UMass-Foundation-Model/MultiPLY
+
+人类拥有以多感官获取的多种混杂信息线索对3D世界进行主动探索和互动的能力，然而，目前的多模态大型语言模型只能被动地接收感知数据作为输入，缺乏主动与3D环境中的物体进行互动并动态地收集它们的多感官信息的能力
+
+为了推动这一领域的研究，本文提出了MultiPLY，一种多感官具身大型语言模型(a multisensory embodied large language model)，可以将相应的视觉、声音、触觉和热度信息(visual, audio, tactile, and thermal information)等多感官交互数据纳入大型语言模型，从而建立单词、动作和感知之间的关联
+
+为此，专门收集了一个大规模的多感官交互数据集，名为Multisensory Universe，首先使用了一个以LLM增强的具身代理者在3D环境中进行互动，收集了50万条数据，用以在生成的数据上对预训练LLM进行指令调整
+
+首先将3D场景编码为抽象的以目标为中心的表征，然后引入表示代理者在环境中采取特定动作的动作Token，以及表示代理者在每个时间步的多感官状态观察的状态Token，在推理阶段，MultiPLY可以生成动作Token，指示代理者在环境中采取动作并获取下一个多感官状态观察，然后，观察结果通过状态Token附加回LLM，以生成后续文本或操作Token
+
+通过一系列多样化的具身任务(包括对象检索、工具使用、多感官字幕说明和任务分解)的实验结果表明，MultiPLY相比基线模型取得了显著的性能提升
+
+<img src="https://img.saraba1st.com/forum/202401/17/223445rp69ft9k6zqk90f5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-223041__01.jpg</strong> (600.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:34 上传
+
+提出的MultiPLY，一种多感官具身LLM，通过对以目标为中心的多感官表示(如视觉、声音、触觉和热度)进行编码，部署一个具身代理者与3D环境互动，MultiPLY在多个任务中表现出色，包括多感官字幕说明、问题回答、对话、操作、导航、工具使用、任务分解等
+
+<img src="https://img.saraba1st.com/forum/202401/17/223451ns5455l8tbf8v855.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-223057__01.jpg</strong> (379.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:34 上传
+
+Multisensory Universe生成流程，首先在具身环境中添加一组新的可交互目标，然后提示ChatGPT生成关于环境的多样化任务，具身代理者与目标进行交互，检索多感官信息并构建交互数据
+
+<img src="https://img.saraba1st.com/forum/202401/17/223456dc071bh01mz8wywn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-223124__01.jpg</strong> (540.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:34 上传
+
+MultiPLY概览图，首先将场景编码为一个抽象的以目标为中心的表征，而物体的多感官细节只有当代理者执行动作并与之互动时才能揭示出来，设计了一组表示代理者与环境互动动作的动作Token，交互结果则通过状态Token追加回LLM
+
+<img src="https://img.saraba1st.com/forum/202401/17/223500xv1xilzhhhn1c17l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-223143__01.jpg</strong> (163.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:35 上传
+
+物体检索的实验结果，-I表示模型利用预言的动作Token与环境进行交互，(Finetuned)表示在Multisensory Universe数据集上进行了微调
+
+<img src="https://img.saraba1st.com/forum/202401/17/223505hkajzracla0j0s2r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-223207__01.jpg</strong> (158.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:35 上传
+
+工具使用的实验结果
+
+<img src="https://img.saraba1st.com/forum/202401/17/223623o9mf2547a5c2njp5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-223604.jpg</strong> (92.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:36 上传
+
+多感官字幕说明的实验结果
+
+<img src="https://img.saraba1st.com/forum/202401/17/223522as21s4x1qsy2y1x6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-223237__01.jpg</strong> (684.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:35 上传
+
+MultiPLY的定性示例，MultiPLY可以与具身环境中的物体进行交互并收集多感官信息
+
+<img src="https://img.saraba1st.com/forum/202401/17/223527jhmgkipk9a44vduh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-223248__01.jpg</strong> (84.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:35 上传
+
+多感官字幕说明的实验结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

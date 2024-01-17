@@ -4811,3 +4811,53 @@ J)7GL1{%FRQ33`E[`1}{R3Y.jpg
 草，任务里怎么还有撸猫撸狗
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 10956#       发表于 2024-1-17 19:04
+
+等后头看复刻池子带不带新4星玩，这丑御前完全不想要
+
+*****
+
+####  清河子  
+##### 10957#       发表于 2024-1-17 19:06
+
+草，我才反应过来正雪0破就是卫星图最右的那个，当时我还批判说是渡画的霓虹预测哥，原来真的不是武内是渡啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 10958#       发表于 2024-1-17 19:07
+
+<img src="https://img.saraba1st.com/forum/202401/17/190718p401oh8grkefo0e0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240117190642.png</strong> (203.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 19:07 上传
+
+成心是吧
+
+*****
+
+####  v22325  
+##### 10959#       发表于 2024-1-17 19:11
+
+ 本帖最后由 v22325 于 2024-1-17 19:12 编辑 
+
+笑死 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我就想看这个
+
+不过武藏说不会再出场就真不出啊   卡池都好久没见过了
+
+Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
+(102.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 19:10 上传
+
+<img src="https://img.saraba1st.com/forum/202401/17/191045sog6vuue326nm32r.jpg" referrerpolicy="no-referrer">
+

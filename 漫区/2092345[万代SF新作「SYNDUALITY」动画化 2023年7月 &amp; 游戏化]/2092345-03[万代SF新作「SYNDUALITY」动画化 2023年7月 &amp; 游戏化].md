@@ -1730,3 +1730,22 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 这集又有一个挺不错的sf小道具设计，能分解酒精的额贴真好。
 
+
+*****
+
+####  支仓爱理  
+##### 3480#       发表于 2024-1-17 20:24
+
+我怎么感觉夏尔要没了，不要啊 
+
+
+*****
+
+####  aptx8285144  
+##### 3481#       发表于 2024-1-17 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63681388&amp;ptid=2092345" target="_blank">支仓爱理 发表于 2024-1-17 20:24</a>
+
+我怎么感觉夏尔要没了，不要啊</blockquote>
+flag挺多的，op这单独影响化非常少见，主吧好像有人根据声优们在节目里的一些反应，揣测夏尔的剧情是不是已经结束了
+

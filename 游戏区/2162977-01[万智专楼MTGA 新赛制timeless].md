@@ -19,3 +19,14 @@
 中文不换字体就很违和了</blockquote>
 这个框还有打印机字体设计很像FFG的克苏鲁的召唤LCG，而且两个产品的主题也类似
 
+
+*****
+
+####  楠城旧篱  
+##### 65#       发表于 2024-1-17 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63674820&amp;ptid=2162977" target="_blank">kytos 发表于 2024-1-17 10:51</a>
+
+这个框还有打印机字体设计很像FFG的克苏鲁的召唤LCG，而且两个产品的主题也类似 ...</blockquote>
+现在字体还是小问题，已经有很离谱的翻译错误了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+

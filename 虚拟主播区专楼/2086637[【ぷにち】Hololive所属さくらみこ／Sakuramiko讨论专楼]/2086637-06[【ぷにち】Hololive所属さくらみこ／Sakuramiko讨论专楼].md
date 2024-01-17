@@ -5357,3 +5357,34 @@ rust的BGM
 
 为什么fbk也跟她们在一起？？？？？？？？？？？？？？？
 
+
+*****
+
+####  holoan  
+##### 8013#         楼主| 发表于 2024-1-17 19:23
+
+<img src="https://img.saraba1st.com/forum/202401/17/192256fikvvy22zcct12zd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 19:22 上传
+
+为什么出一个预制菜拉了这么多方一起联动
+
+*****
+
+####  holoan  
+##### 8014#         楼主| 发表于 2024-1-17 19:24
+
+<img src="https://img.saraba1st.com/forum/202401/17/192348bb93grr3rih1hbrh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 19:23 上传
+
+这次发售方完全转移到711方面了
+

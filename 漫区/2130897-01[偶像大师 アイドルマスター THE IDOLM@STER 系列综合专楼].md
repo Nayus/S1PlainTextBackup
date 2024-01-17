@@ -48,3 +48,20 @@
 
 很合适
 
+
+*****
+
+####  shinna  
+##### 1022#       发表于 2024-1-17 15:09
+
+星耀季节UEVR的配置文件，DC里tsuru大佬制作的，相比未配置的体验优化了非常多，主要是视角方面的<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+StarlitSeasonPlugin_20240115.zip
+(79.9 KB, 下载次数: 0)
+
+2024-1-17 15:06 上传
+
+点击文件名下载附件
+

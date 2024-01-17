@@ -293,3 +293,16 @@ sie惯例的摆烂宣发啊
 
 每个新游纯原创动作傻逼才干。
 
+
+*****
+
+####  wiig  
+##### 527#       发表于 2024-1-17 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63673833&amp;ptid=2092342" target="_blank">碎镜子 发表于 2024-1-17 09:33</a>
+
+笑死，fs社和卡普空不也一堆素材复用到死。
+
+每个新游纯原创动作傻逼才干。 ...</blockquote>
+ff：嗨呀 是我吗
+

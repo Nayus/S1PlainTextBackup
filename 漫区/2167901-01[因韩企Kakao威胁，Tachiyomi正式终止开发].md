@@ -933,3 +933,11 @@ Mihon：
 
 借楼问下常去的生肉站MANGARAW在停止更新几天后唐突寄了,有什么一样的更新快的站么,nicomanga虽然能用但更新要慢些<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  colorless  
+##### 71#       发表于 2024-1-17 10:32
+
+现在tachidesk的插件都显示obsolete了 有办法解决吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

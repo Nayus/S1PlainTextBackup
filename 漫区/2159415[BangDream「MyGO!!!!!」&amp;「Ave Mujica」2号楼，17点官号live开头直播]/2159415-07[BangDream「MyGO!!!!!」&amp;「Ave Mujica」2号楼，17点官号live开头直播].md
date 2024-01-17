@@ -1943,3 +1943,13 @@ WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡�
 
 黄金乡比你邦还离谱，时间都明确写好了2023出结果转头直接延期到2024年8月，武士道的草台程度向来超乎想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 9163#       发表于 2024-1-18 03:01
+
+黄金乡有前翼这个成熟开发团队的adv都能延期一年了
+
+完全不敢思考邦邦拿掉开场logo都能延期两次是何等灾难了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

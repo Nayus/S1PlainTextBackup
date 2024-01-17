@@ -1720,3 +1720,13 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Marianorivera  
+##### 3479#       发表于 2024-1-17 14:12
+
+果然还是约定俗成的称为“sora”。
+
+这集又有一个挺不错的sf小道具设计，能分解酒精的额贴真好。
+

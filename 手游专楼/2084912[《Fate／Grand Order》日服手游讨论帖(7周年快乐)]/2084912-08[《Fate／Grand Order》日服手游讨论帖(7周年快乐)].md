@@ -4639,3 +4639,35 @@ files/data/下54cc文件在吗</blockquote>
 
 一般多设备同账号就是复制这个文件
 
+
+*****
+
+####  exiaexa  
+##### 10940#       发表于 2024-1-17 18:13
+
+个人经验是
+
+保留氪金单比ID有用
+
+上次找回的时候我扔了50张氪金单号过去，从者随便写了下当年的新从者，直接就发回来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 10941#       发表于 2024-1-17 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680162&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-1-17 18:09</a>
+
+恭喜恭喜，快进去抽卡吧，豹跳了就是大难不死必有后福，沉船了就是福之祸所伏，怎么想都不亏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">50抽就一张金卡正雪，我还挺开心的，不亏了
+
+*****
+
+####  希望之花  
+##### 10942#       发表于 2024-1-17 18:14
+
+去年玩一圈其他手游，有几家甚至把绑社交账号当做成就，绑了给奖励的
+
+只有你游在国服已经做出了平台账号绑定的情况下，还是坚持只用引继码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

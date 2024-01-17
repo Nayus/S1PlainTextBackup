@@ -26555,3 +26555,109 @@ CL-I/P = CODELLAMA-INSTRUCT/PYTHON
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1194#       发表于 2024-1-18 07:29
+
+AlphaGeometry
+
+奥林匹克级的几何AI系统
+
+相关博客:https://deepmind.google/discover/blog/alphageometry-an-olympiad-level-ai-system-for-geometry/
+
+github项目主页:https://github.com/google-deepmind/alphageometry
+
+————
+
+<img src="https://img.saraba1st.com/forum/202401/18/072831h6tjf76jt0umzz3u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-072809.jpg</strong> (159.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 07:28 上传
+
+本文AI系统在几何问题(geometry problems)上超越了SOTA方法，推动了数学推理中的AI发展
+
+反映古希腊奥林匹克精神的国际数学奥林匹克是世界上最聪明的高中数学家的现代竞技场。这项比赛不仅展示了年轻的才华，而且已经成为了测试数学和推理方面的先进AI系统的试验场
+
+在今天发表在《自然》杂志上的一篇论文中，介绍了AlphaGeometry，一个能够解决复杂几何问题的AI系统，其表现接近于一位奥林匹克金牌得主水平，这是AI性能的一次突破，在对30个奥林匹克几何问题的基准测试中，AlphaGeometry在奥林匹克标准时间限制内解决了25个问题，相比之下，先前的SOTA系统解决了10个几何问题，而人类金牌得主平均解决了25.9个问题
+
+<img src="https://img.saraba1st.com/forum/202401/18/072837rhz3gqzj63qz33wg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-072819.jpg</strong> (58.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 07:28 上传
+
+在基准测试中，使用了30道奥林匹克几何题目(IMO-AG-30)，这些题目来自2000年至2022年的奥林匹克竞赛，AlphaGeometry在竞赛时间限制内解决了25道问题。这已经接近了人类金牌得主在这些问题上的平均得分，而之前的SOTA方法只解决了10道题
+
+由于缺乏推理能力和训练数据，人工智能系统在几何和数学方面的复杂问题上往往存在困难，AlphaGeometry系统结合了神经语言模型的预测能力和基于规则边界的演绎引擎，二者协同工作以找到解决方案，通过开发一种生成大量合成训练数据的方法，生成了1亿个独特示例，可以在没有人类示范的情况下训练AlphaGeometry，避免了数据瓶颈
+
+通过AlphaGeometry，展示了人工智能在逻辑推理方面日益增长的能力，以及发现和验证新知识的能力，解决奥林匹克级别的几何问题是发展深层次数学推理、迈向更高级和通用人工智能系统的重要里程碑，将开源AlphaGeometry的代码和模型，并希望与合成数据生成和训练中的其他工具和方法一起，能够在数学、科学和人工智能领域开辟新的可能性
+————
+AlphaGeometry应用了神经符号方法
+
+AlphaGeometry是一个神经符号系统，由神经语言模型和符号演绎引擎组成，它们共同工作以找到复杂几何定理的证明，类似于“快思考与慢思考”的理念，一个系统提供快速、直观的想法，而另一个系统更加深思熟虑，做出理性的决策
+
+由于语言模型在一般模式和数据关系方面表现出色，它们可以快速预测出潜在有用的结构，但往往缺乏严谨推理或解释决策的能力，而符号推理引擎则基于形式逻辑，使用清晰的规则得出结论，它们是理性且可解释的，但在独自处理大型复杂问题时往往“慢”且不灵活
+
+AlphaGeometry的语言模型引导其符号演绎引擎寻找几何问题的可能解决方案，奥林匹克几何问题通常基于需要添加新的几何构造才能解决的图表，例如点、线或圆，AlphaGeometry的语言模型预测应该添加哪些新的构造最有用，从无限可能性中选择。这些线索有助于填补差距，并让符号引擎对图表进行进一步推断，并逐渐接近解决方案
+
+<img src="https://img.saraba1st.com/forum/202401/18/072927jtxxs6z6twu9mfvp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-072904.jpg</strong> (54.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 07:29 上传
+
+AlphaGeometry解决一个简单的问题:给定问题图及其定理前提(左)，AlphaGeometry(中)首先使用其符号引擎推导有关图的新陈述，直到找到解决方案或用尽新陈述，如果找不到解决方案，AlphaGeometry的语言模型会添加一种可能有用的构造(蓝色)，为符号引擎开辟新的演绎路径。，这个循环一直持续到找到解决方案为止(右)，在此示例中，仅需要一种构造
+
+<img src="https://img.saraba1st.com/forum/202401/18/072932iz0zpc2aqd2c323q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-072912.jpg</strong> (104.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 07:29 上传
+
+AlphaGeometry解决奥林匹克竞赛问题:这是2015年国际数学奥林匹克竞赛的第三题(左)，以及AlphaGeometry解决方案的简化版本(右图)，蓝色的元素是添加的构造，AlphaGeometry的解决方案包含109个逻辑步骤(全部步骤解决方案:https://storage.googleapis.com/deepmind-media/DeepMind.com/Blog/alphageometry-an-olympiad-level-ai-system-for-geometry%20/AlphaGeometry%20solution.pdf)
+————
+生成1亿个合成数据示例
+
+几何学依赖于对空间、距离、形状和相对位置的理解，是艺术、建筑、工程和许多其他领域的基础。人类可以使用纸和笔来学习几何学，通过检查图表和利用现有知识来发现新的更复杂的几何特性和关系，本文的合成数据生成方法大规模模拟这种知识构建过程，使之能够从零开始训练AlphaGeometry，而不需要任何人类示范
+
+通过高度并行化的计算，系统开始生成十亿个几何对象的随机图表，并详尽地推导出每个图表中点和线之间的所有关系，AlphaGeometry找到了每个图表中包含的所有证明，并倒推出为了得到这些证明是否需要额外的构造，这个过程被称之为为“符号的演绎和回溯(symbolic deduction and traceback)”
+
+<img src="https://img.saraba1st.com/forum/202401/18/072950ofpee241eap21ern.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-072939.jpg</strong> (69.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 07:29 上传
+
+AlphaGeometry生成的合成数据的可视化
+
+对这个巨大的数据池进行了过滤，排除了相似的示例，最终得到了一个包含1亿个不同难度的训练数据集，其中900万个示例包含了额外的构造，由于有这么多关于这些构造如何导向证明的示例，AlphaGeometry的语言模型能够在面对奥林匹克几何问题时提出很好的建议
+————
+开创性地利用人工智能进行数学推理
+
+每一个奥林匹克问题的解决方案都由AlphaGeometry经过计算机的检查和验证，还将其结果与先前的AI方法以及奥林匹克竞赛中人类的表现进行了对比。此外，数学教练和前奥林匹克金牌得主Evan Chen还评估了AlphaGeometry的一系列解决方案
+
+陈说：“AlphaGeometry的输出令人印象深刻，因为它既可验证又干净，过去的AI解决方案在面向证明的竞赛问题上有时命中有时失(输出有时候是正确的，但需要人工检查)，AlphaGeometry没有这个弱点:它的解决方案具有机器可验证的结构，然而，尽管如此，它的输出仍然可读。人们可以想象一个通过蛮力坐标系解决几何问题的计算机程序:想象一下漫长而乏味的代数计算，AlphaGeometry并不是这样，它像学生一样使用经典的几何规则，例如角度和相似三角形”
+
+由于每个奥林匹克竞赛只有六个问题，其中只有两个通常是关于几何的，因此AlphaGeometry只能应用于给定奥林匹克竞赛的三分之一的问题，尽管如此，仅凭其几何能力，它已成为世界上第一个能够达到国际数学奥林匹克(IMO)2000年和2015年铜牌门槛的AI模型
+
+在几何学中，本文系统达到了国际数学奥林匹克金牌得主的水平，但目标是更大的奖项:推动下一代AI系统的推理能力，考虑到使用大规模合成数据从头开始训练AI系统的更广泛潜力，这种方法可能塑造未来AI系统发现新知识的方式，源于数学并超越数学
+
+AlphaGeometry基于Google DeepMind和Google Research’s work的工作，开创性的使用AI进行数学推理的先河-从探索纯数学的美到使用语言模型解决数学和科学问题，最近还引入了FunSearch，利用大型语言模型在数学科学中首次发现了开放问题的答案
+
+本研究的长期目标仍然是构建能够在数学领域进行泛化的AI系统，发展出精湛的问题解决和推理能力，这将是通用AI系统所依赖的，同时推动人类知识的边界
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

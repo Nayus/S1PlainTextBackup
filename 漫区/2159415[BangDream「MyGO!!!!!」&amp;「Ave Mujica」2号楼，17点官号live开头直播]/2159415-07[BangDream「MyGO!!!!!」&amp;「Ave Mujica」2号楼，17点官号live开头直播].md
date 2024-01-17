@@ -1857,3 +1857,13 @@ WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">交接出问题可以效仿隔壁直接把还在盈利的手游砍了，这样就不会再出问题了
 
+
+*****
+
+####  Kasroz  
+##### 9155#       发表于 2024-1-18 00:10
+
+ 本帖最后由 Kasroz 于 2024-1-18 00:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

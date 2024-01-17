@@ -9711,3 +9711,15 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 怎么没跳舞的，一旦开局有人掉线，大家就聚在一起跳舞；区域剩余20秒wipe out对面时，一起跳舞互相按赞；本方有人掉线，比赛进行到后半段翻盘无望时，三人跳舞摆大烂；你打出精彩击杀时，路过队友还会疯狂按赞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 2479#       发表于 2024-1-17 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63675504&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-17 11:33</a>
+怎么没跳舞的，一旦开局有人掉线，大家就聚在一起跳舞；区域剩余20秒wipe out对面时，一起跳舞互相按赞；本 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">现在队友帮我把对面杀了，或者我被击杀队友杀回来我都会给他按个nice
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

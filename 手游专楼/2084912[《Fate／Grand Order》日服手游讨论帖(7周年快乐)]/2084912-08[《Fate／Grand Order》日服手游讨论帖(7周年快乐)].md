@@ -4146,3 +4146,13 @@ FGO现在最奇葩的是别的手游都是策划没货了拿出来顶一下档�
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  exiaexa  
+##### 10896#       发表于 2024-1-17 11:52
+
+不管是不是光炮，哪怕是绿的
+一技能能不能来个暗狐狸同款，暗狐狸羁绊要压不住了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

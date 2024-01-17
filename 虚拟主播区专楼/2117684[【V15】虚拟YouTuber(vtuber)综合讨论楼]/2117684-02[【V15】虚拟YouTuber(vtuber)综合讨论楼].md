@@ -691,3 +691,15 @@ And just like that everyone forgot about pomu's upcoming graduation
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">阿球报名神域，龙王归来！
 
+
+*****
+
+####  高等黑暗  
+##### 2916#       发表于 2024-1-17 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">黑井爱果然还是角色谢幕了……不知道有没有顶不住ALLIN的同接压力的成分
+
+虽然说是RP服，但是实际上出现这种情况的时候往往会被现实的同接压力影响结果，黑井爱事件如此，焦月剑事件也如此
+
+如果焦月剑没有常态数千人的同接，并且有shaka，fan太等一众日常几万同接的靠山幕后商谈出主意把エスダーク吊起来放火上烤，エスダーク会那么干脆的找叶承认自己当初把焦月沉炉有问题吗…
+

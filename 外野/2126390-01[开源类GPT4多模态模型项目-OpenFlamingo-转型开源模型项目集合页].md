@@ -25660,3 +25660,163 @@ GPT-4V在所有测试集中，根据GPT-4V和PROMETHEUS-VISION 13B的评估，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1185#       发表于 2024-1-17 21:39
+
+AIM
+
+大型自回归图像模型的可拓展预训练
+
+github项目主页:https://github.com/apple/ml-aim
+
+AIM，一组通过自回归目标进行预训练的视觉模型，这些模型受到了文本相关模型的启发，即大型语言模型(LLM)，并且具有类似的可扩展性质
+
+具体来说，本文强调了两个关键发现:
+1.视觉特征的性能与模型容量和数据数量成比例增长
+2.目标函数的价值与模型在下游任务上的性能相关
+
+通过在冻结的主干上使用70亿参数的AIM上对20亿张图像进行预训练，在ImageNet-1k上实现了84.0%的准确率，有趣的是，即使在这个规模下，依然观察到性能没有饱和的迹象，这表明AIM有可能代表大规模视觉模型的训练新领域，AIM的预训练类似于LLMs的预训练，并且不需要任何特定于图像的策略来稳定大规模训练
+
+<img src="https://img.saraba1st.com/forum/202401/17/213748btdbrdck1rkys1k1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212812__01.jpg</strong> (145.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:37 上传
+
+(左图)AIM的扩展倾向，随着AIM容量的扩展，观察到预训练目标的性能得到了改进，这与下游任务的性能提升直接相关
+
+(右图)使用更大规模的非筛选网络数据集进行训练的AIM在下游任务中展现出更强的性能，下游任务的性能是基于15个图像识别基准测试中的平均注意力探针Top-1准确率计算得出的
+
+所有模型在相同的更新次数下进行训练
+
+<img src="https://img.saraba1st.com/forum/202401/17/213755kinnns7qf76ads8d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212830__01.jpg</strong> (156.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:37 上传
+
+AIM预训练概览图，输入图像被分割成不重叠的图像区块，并按照Doso-vitskiy等人的方法进行线性嵌入(embedded linearly)，图像区块的特征被馈送到一个transformer模型中，其中的自注意力操作被因果遮蔽(causally masked)以防止与前面的位置发生关联，接着，一个高度参数化的MLP独立地处理每个图像区块的特征，并将其投影到像素空间，目标是将对应的输入序列向左移动一个位置，要求模型预测下一个图像区块的光栅顺序(raster order)
+
+<img src="https://img.saraba1st.com/forum/202401/17/213807h99ejpf7hel29575.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212846__01.jpg</strong> (128.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:38 上传
+
+前缀因果注意力(Prefix causal attention)，在预训练阶段均匀地采样一个前缀长度S，前S个图像区块的注意力被设定为双向的(bidirectional)，并且只对剩余的图像区块计算损失，在适配下游任务(adaptation to downstream tasks)时，这允许去除注意力的因果遮蔽，从而提高下游任务的性能
+
+<img src="https://img.saraba1st.com/forum/202401/17/213814h6xe19c94r69c69r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212846__02.jpg</strong> (69.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:38 上传
+
+模型规格，提供了所有AIM变体的嵌入维度、层数和参数数量，还提供了预训练期间的学习率和批大小，对于参数为10亿及以上的AIM模型，预训练过程包括120万次迭代，相当于预训练期间看到1.2万亿个图像区块或50亿张图像
+
+<img src="https://img.saraba1st.com/forum/202401/17/213822mcurieayam7kzode.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212901__01.jpg</strong> (212.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:38 上传
+
+AIM预训练在不同模型规模下的表现，观察到随着AIM容量的增加，预训练目标的性能的明显提高，此外，随着容量更大的模型和更长的预训练时间，下游性能(IN-1k top-1)也呈单调改善(monotonically improving)，即使在500k次迭代之后，也没有观察到预训练过程中出现明显的趋于稳定的信号(clear signs of plateauing)，这表明AIM可以从更长的预训练历程中受益，需要注意的是，在训练的最后阶段，由于余弦衰减策略使得学习率有效地变为零，导致损失函数出现饱和
+
+<img src="https://img.saraba1st.com/forum/202401/17/213854o2afkn2rzfrsklmt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212912__01.jpg</strong> (86.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:38 上传
+
+数据集对预训练性能的影响，一方面，使用IN-1k进行预训练会导致过拟合，即使对于AIM-0.6B规模模型也是如此，另一方面，使用未经筛选的DFN-2B数据集进行预训练可以避免过拟合，但由于分布转变(distributional shift)，会收敛到同一个类似的点，通过在DFN-2B+(该数据集主要由DFN-2B样本组成，同时还包含少量IN-1k样本)上进行预训练，可以获得最佳性能
+
+<img src="https://img.saraba1st.com/forum/202401/17/213900kzzws1w1syg5euyl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212912__02.jpg</strong> (25.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:39 上传
+
+数据集对下游性能的影响(15个基准测试)，在下游任务中观察到与上图类似，使用DFN-2B和IN-1k的混合数据集可以获得最佳性能
+
+<img src="https://img.saraba1st.com/forum/202401/17/213905q2qfflkla3hdl3ko.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212918__01.jpg</strong> (66.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:39 上传
+
+FLOPs的规模关系，训练过程中的FLOPs总和与最终的验证损失相关，这表明存在类似于Hoffmann等人提出的计算驱动的缩放法则(scaling law)
+
+<img src="https://img.saraba1st.com/forum/202401/17/213909hqlppdq6i8uewta7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212930__01.jpg</strong> (247.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:39 上传
+
+消融提出的AIM的各种设计选择的实验，使用了一个预训练的AIM-0.6B模型和用于评估的IN-1k，报告了线性和注意力探针的结果，默认设置的AIM的主要结果以灰色突出显示
+
+<img src="https://img.saraba1st.com/forum/202401/17/213922ywkkskbrhu3qkafb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-212940__01.jpg</strong> (89.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:39 上传
+
+自回归模式，探索了一些用于图像自回归遍历的模式，图像区块集被分成相等大小的块(equal-sized chunks)，并计算每个块的验证损失，观察到任务难度的分布随着模式在块间出现非常大的变化
+
+<img src="https://img.saraba1st.com/forum/202401/17/213936rzg6g8g0o3egfooa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-213417__01.jpg</strong> (51.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:39 上传
+
+MLP设计，通过改变MLP块的数量(即深度)或嵌入大小(即宽度)来改变MLP head的容量，增加容量的宽度或深度都可以改善下游性能，但深度的影响更大
+
+<img src="https://img.saraba1st.com/forum/202401/17/213947p2fj7vfjfqfwnvnf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-213417__02.jpg</strong> (31.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:39 上传
+
+Autoregressive vs. Masking，评估了AIM的自回归目标在IN-1k上的性能，与掩码目标进行对比，保持了所有其他架构和优化组件的固定，观察到在相同的预训练设置下，自回归目标的冻结主干性能优于掩码的
+
+<img src="https://img.saraba1st.com/forum/202401/17/213956o5bnz4zga1nmj9n4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-213438__01.jpg</strong> (438.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 21:39 上传
+
+冻结主干的下游评估，通过15个不同的图像识别基准测试数据集进行评估，判断AIM特征的质量
+
+使用了冻结主干的注意力探针方法评估AIM和基线方法，AIM模型在所有基准测试上都表现出了很强的性能，尤其是AIM-7B，AIM在联合嵌入或生成方法方面优于所有其他方法，除了DINOv2使用更高分辨率图像之外，因为这可以在ImageNet上提高1-1.5%的性能
+
+†:通过替代最后层(32nd)而从20层提取的额外特征
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

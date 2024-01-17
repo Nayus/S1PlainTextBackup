@@ -1532,3 +1532,13 @@ https://x.com/iso_usagi/status/1747481146722791515?s=20<img src="https://p.sda1.
 
 所以是劇場版加塞論又一“證據”嗎<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  ddy2811  
+##### 9123#       发表于 2024-1-17 21:40
+
+真加塞啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+服了wsd<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+

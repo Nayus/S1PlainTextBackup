@@ -25926,3 +25926,63 @@ MultiPLY的定性示例，MultiPLY可以与具身环境中的物体进行交互�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1187#       发表于 2024-1-17 23:48
+
+PlayMyData
+
+多平台视频游戏的精选数据集
+
+数据集下载:https://zenodo.org/records/10262075
+
+数十年来，电子游戏一直在数字娱乐领域占据主导地位，直到最近，软件工程(SE)社区才将其视为有价值的软件艺术品，这种认可揭示了一些研究契机，涵盖了从经验研究到应用AI技术进行分类任务等范围，在这方面，已经公开了几个经过筛选的游戏数据集供研究使用，尽管收集到的数据不足以支持高级模型的应用或进行跨学科研究，此外，其中大多数仅限于PC游戏，因此排除了著名的游戏平台，如PlayStation、Xbox和Nintendo等
+
+在本文中，提出了PlayMyData，一个由IGDB网站收集的99864个多平台游戏的精选数据集，通过利用专用API，收集了每个游戏的相关元数据，例如描述、类型、评级、游戏视频URL和截图，此外，还通过挖掘HLT网站，为PlayMyData添加了完成每个游戏所需的时间
+
+据目前所知，这是领域内最全面的数据集，可用于支持软件工程中不同的自动化任务，更重要的是，PlayMyData还可以用于基于所提供的多媒体数据进行跨领域调查
+
+<img src="https://img.saraba1st.com/forum/202401/17/234749ngqvgg1t1smzm4td.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-234509.jpg</strong> (59.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 23:47 上传
+
+PlayMyData数据收集过程
+
+<img src="https://img.saraba1st.com/forum/202401/17/234755xus4sw4aszsaslak.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-234521.jpg</strong> (146.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 23:47 上传
+
+PlayMyData数据建模
+
+<img src="https://img.saraba1st.com/forum/202401/17/234800u8nlqsqrqzmp0lll.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-234547.jpg</strong> (231.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 23:48 上传
+
+按平台分组的最流行的游戏流派
+
+<img src="https://img.saraba1st.com/forum/202401/17/234806lde2pw9wieq2edtd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117-234604.jpg</strong> (163.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 23:48 上传
+
+随时间推移演变的游戏完成情况
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

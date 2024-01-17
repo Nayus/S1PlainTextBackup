@@ -1833,3 +1833,27 @@ WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡�
 其实我一开始以为又是那种典型的说要换公司 ...</blockquote>
 真交接出問題，該擔心的就是今年要島了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 9152#       发表于 2024-1-17 23:45
+
+如果想扩展新剧情，可以拿手游的新剧情加进去。如果搞成动画的那个总集也太怪了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 9153#       发表于 2024-1-17 23:48
+
+手游剧情是成团以后了，看监督话肯定是补新画面，当然要是纯画饼不落实，或者除了film live以外实际3分钟新内容也无话可说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9154#       发表于 2024-1-17 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">交接出问题可以效仿隔壁直接把还在盈利的手游砍了，这样就不会再出问题了
+

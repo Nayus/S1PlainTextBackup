@@ -1428,3 +1428,15 @@ https://weibo.com/5136789832/4990785158387186<img src="https://p.sda1.dev/15/a6c
 <img src="http://img.nga.178.com/attachments/mon_202401/17/-9lddQ2t-dm3lK26T3cSiy-sg.jpg" referrerpolicy="no-referrer">
 [https://g.nga.cn/read.php?tid=36 ... #pid738296911Anchor](https://g.nga.cn/read.php?tid=36692529&amp;page=3024#pid738296911Anchor)
 
+
+*****
+
+####  碎镜子  
+##### 9111#       发表于 2024-1-17 16:52
+
+看了第二遍才发现三角指得是夏季大三角，是指小时候和祥子一起看星星的事。
+
+初华和灯相遇也是去天文馆回味小时候一起看星星<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+太惨了，得到了人却得不到心。
+

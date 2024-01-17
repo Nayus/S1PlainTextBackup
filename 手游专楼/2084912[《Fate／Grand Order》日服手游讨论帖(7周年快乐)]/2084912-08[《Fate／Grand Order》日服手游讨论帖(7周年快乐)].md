@@ -4861,3 +4861,63 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 <img src="https://img.saraba1st.com/forum/202401/17/191045sog6vuue326nm32r.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 10960#       发表于 2024-1-17 19:17
+
+<img src="https://img.saraba1st.com/forum/202401/17/191656tj693z92n6dnfq1r.png" referrerpolicy="no-referrer">
+
+<strong>1705490192622.png</strong> (237.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-1-17 19:16 上传
+
+雷太的丑御前贺图。
+
+是是是，我知道你前凸后翘了，能不能赶紧把盔甲灵衣搬上来。
+
+*****
+
+####  清河子  
+##### 10961#       发表于 2024-1-17 19:19
+
+我服了，想抽个老郑礼装结果赖光贴脸，真就无心玄学是吧，结果一张礼装也没抽到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 10962#       发表于 2024-1-17 19:20
+
+吐槽一下，不知道是不是暗改了载入界面的概率，今天进游戏总能看到FSR从者的介绍：
+
+<img src="https://img.saraba1st.com/forum/202401/17/192014r0as8ga8gpg8sk8k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117_170156_com.aniplex.fategrandorder.jpg</strong> (142.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-1-17 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202401/17/192014v0r8hlt3hj06ph8t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117_191358_com.aniplex.fategrandorder.jpg</strong> (147.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-1-17 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202401/17/192015nx14kxhq4tsxs4h4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117_191903_com.aniplex.fategrandorder.jpg</strong> (130.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-1-17 19:20 上传
+

@@ -1516,3 +1516,11 @@ https://x.com/iso_usagi/status/1747481146722791515?s=20<img src="https://p.sda1.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听到剧场版的消息 每个人都震惊了
 
+
+*****
+
+####  凡人  
+##### 9121#       发表于 2024-1-17 21:18
+
+12月得知大于10月配音，这就是mygo速度，你们mujica有没有动作这么快的制作组啊。什么？绫奈已切割，那没事了，亲们2024请多关注梦限大みゅーたいぷ
+

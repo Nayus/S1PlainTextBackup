@@ -4473,3 +4473,64 @@ FGO在第二部前期渡过之后，出问题的就是在“节奏”上，包�
 短期内都不想看见四星了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 10926#       发表于 2024-1-17 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679878&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-17 17:42</a>
+
+我吐了，这期还债还得好狠
+
+12单2宝，外加40多个正雪
+
+短期内都不想看见四星了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第1个绿卡50  这不满宝庆祝下（
+
+*****
+
+####  exiaexa  
+##### 10927#       发表于 2024-1-17 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679886&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-17 17:43</a>
+
+第1个绿卡50  这不满宝庆祝下（</blockquote>
+已经吓得跑路了，下次UP再看情况
+
+还要留点给战双春节
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 10928#       发表于 2024-1-17 17:47
+
+老郑礼装的画师是国人哦<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/17/174651uxxm99i3fbnd2x6m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117_174553.jpg</strong> (392.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202401/17/174652sc744o0d4ooadcr9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240117_174539.jpg</strong> (261.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:46 上传
+
+*****
+
+####  exiaexa  
+##### 10929#       发表于 2024-1-17 17:50
+
+喷了，这武藏礼装是什么狗屎
+
+满破双色8+无敌贯通你也好意思给
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

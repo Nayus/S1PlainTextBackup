@@ -210,3 +210,16 @@ gbf策划真好做啊
 当年10e还能英雄，现在10e连第一档都不够</blockquote>
 10e二档都不够<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17615#       发表于 2024-1-17 11:36
+
+ 本帖最后由 Sylpheed 于 2024-1-17 11:39 编辑 
+
+但现版本最早离盘的其实是复数40257（风火）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这种没有任何限制的上限要踢掉，只能数值比他大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

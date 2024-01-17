@@ -4741,3 +4741,64 @@ J)7GL1{%FRQ33`E[`1}{R3Y.jpg
 
 <img src="https://img.saraba1st.com/forum/202401/17/184236ff7l9h964liyy2if.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 10949#       发表于 2024-1-17 18:43
+
+ 本帖最后由 alucardcz 于 2024-1-17 18:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680490&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-17 18:42</a>
+
+艹 这就是干碎模拟器后的补偿么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 萌新为什么不欧
+
+*****
+
+####  exiaexa  
+##### 10950#       发表于 2024-1-17 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680476&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-1-17 18:41</a>
+
+枪贞德这样子恐怕实装无望了吧</blockquote>
+黑贞：不用出外勤，还白嫖一套衣服，爽到
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 10951#       发表于 2024-1-17 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680388&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-17 18:32</a>
+
+这伊织是被武尊砍了之后躺尸的那条线的啊？居然选这个</blockquote>
+毕竟其他两线的伊织都放下执念安心做个普通人，和妹妹老婆孩子热炕头了，你再把人家拉过来未免有点太地狱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 10952#       发表于 2024-1-17 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680499&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-17 18:43</a>
+
+欧 羡慕 萌新为什么不欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是单抽出货了么 当我没看到么
+
+*****
+
+####  alucardcz  
+##### 10953#       发表于 2024-1-17 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680530&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-17 18:47</a>
+
+你不是单抽出货了么 当我没看到么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉
+
+*****
+
+####  khxooo  
+##### 10954#       发表于 2024-1-17 18:49
+
+为了抽正雪多花了300多，你游的4星出率太高了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

@@ -358,3 +358,59 @@
 
 虽然很好看，不过月球轨道变更这种关乎全人类命运的大事就只是日本一个退役老头让几个手下送死对应是不是有点过于草台<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永恒的王牌  
+##### 1641#       发表于 2024-1-17 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63669385&amp;ptid=2104492" target="_blank">仟音一心 发表于 2024-1-16 19:18</a>
+
+舞台剧的假布莱泽</blockquote>
+之前看到评价说假布莱泽血管突出挺恶心
+
+现在看到图我也觉得挺恶心
+
+*****
+
+####  SSSS.崚  
+##### 1642#       发表于 2024-1-17 21:30
+
+《布莱泽奥特曼》每月的データキューブラリー
+在YouTube圆谷频道上观看过《布莱泽奥特曼》的各位也许会注意到每集都有宣传的这个データキューブラリー活动，只要扫片尾二维码就可参加的图鉴收集活动，每个月会新上一弹，总共7种，收集任意4种就会赠送一张作为特典的《布莱泽奥特曼》原创壁纸
+
+第1弹 布莱泽手镯
+Blazer Bracelet是神秘的手镯。特殊怪兽对应分遣队【SKaRD】队长比留间弦人为了想要保护的东西渴求力量，并在布莱泽奥特曼认为那是正义的行动时会出现在他的左腕上。
+
+接着一边倾注强烈的愿望一边将布莱泽辉石装填进布莱泽手镯，水晶展开手镯中央发光，最后按下前端的按钮变身成布莱泽奥特曼。
+<img src="https://p.sda1.dev/15/13b8fa847b6f75fda6f874e7e26911c6/006ilIMPgy1hlscy7dohgj31hc0u0nmx.jpg" referrerpolicy="no-referrer">
+第2弹 特战兽 阿斯加隆
+Earth Garon是SKaRD使用的2足步行怪兽型的特战兽(23式特殊战术机甲兽)。机长和驾驶员共２名搭乘，最高速度４马赫可向作战区域快速反应，根据情况转换为ＣＱＣ(近身格斗)模式。
+
+主武装是从口发射的带电粒子炮阿斯焰。副武装有双手的１０５毫米机关榴弹炮阿斯枪和排列在尾部发射各种导弹的５个发射单元尾部ＶＬＳ。身高50米，体重2万5千吨
+<img src="https://p.sda1.dev/15/b3b36980a09d935065f4b7fbb8816f13/006ilIMPgy1hlscybdc70j31hc0u0qr6.jpg" referrerpolicy="no-referrer">
+第3弹 天弓怪兽 彩虹卡加绮
+Nijikagachi是通过吸入大气使气压急剧下降，让乌云发育肆虐的彩虹怪兽。被迫苦战的SkaRD在阿斯加隆双肩上装备了由开发中的电磁加农炮以及可切换集中模式&amp;扩散模式的多用途激光武器构成的新装备Ｍｏｄ．２单元，再次挑战彩虹卡加绮。
+<img src="https://p.sda1.dev/15/8d8d5d73f1da5fa162892601835e910a/006ilIMPgy1hlscyifnf1j31hc0u01er.jpg" referrerpolicy="no-referrer">
+第4弹 嘎拉蛋雷鸣剑 切尔索合金剑
+Tilsonite Sword是布莱泽奥特曼塑造的刀剑，其原型是由嘎拉蒙来袭后地球防卫队回收的物质——切尔索合金生成的20米级的枪。拉动握把(剑柄)部分和剑身之间的拉杆联动像嘎拉蛋一样的球体旋转的话，剑身内会划过闪电，放出闪电斩、雷电终结、超负荷雷鸣斩之类的技能。 
+<img src="https://p.sda1.dev/15/fa2f6c4c3551ed270bece187a6502e35/006ilIMPgy1hlscyomn0oj31hc0u0e2l _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/7340b7a0e07556c1f35d9662a888fa96/download.jpg" referrerpolicy="no-referrer">◁集到4种图鉴后送的的壁纸
+第5弹 二次元怪兽加巴顿
+受到照射地球的特殊宇宙射线的影响，由涂鸦实体化的二次元怪兽。宇宙射线所含的未知元素与太阳光线融合后，二维物体就会变成三维物体，太阳落山后便会恢复原样，所以黄昏时Gavadon就会消失，变回原来的涂鸦。加巴顿是弦人的儿子——纯在孩子们的秘密基地帐篷内，在素描本上画的涂鸦实体化后的产物，虽然外形变得巨大，但基本上只是在睡觉。
+
+身长４０厘米～３０米　　　体重４００克～２万吨
+<img src="https://p.sda1.dev/15/226e69372dad72c3d4db2ef0a8914169/006ilIMPgy1hlscz4h003j31hc0u0x1t.jpg" referrerpolicy="no-referrer">
+第6弹 布莱泽奥特曼 法德兰装甲
+当布莱索奥特曼陷入危机时，被认为在布莱泽之星有共生关系的怪兽——炎龙怪兽法德兰飞来成为契机，在布莱泽右臂和胸部装上了炎型铠甲的装甲形态。
+
+切尔索合金剑的柄头也加上了法德兰翅膀般的火焰剑身，成为切尔索法德兰枪。变成双剑枪的切尔索法德兰枪可以放出切尔索法德炎龙波、切尔索法德炎龙射、切尔索法德炎雷斩等多种技能。
+
+身高４７米　体重４万３千吨
+<img src="https://p.sda1.dev/15/a854f359db6059c82494fd361332e754/006ilIMPgy1hlsd08fcckj31hc0u04me.jpg" referrerpolicy="no-referrer">
+第7弹 宇宙炸弹怪兽 瓦拉隆
+用从尾巴上产下的有机炸弹群引起大规模爆炸来改变星球轨道撞向其他星球的拥有迁徙习性的宇宙炸弹怪兽。在紧紧抱住小行星的状态下，背上多根棘形成的隐形膜像肥皂泡一样包裹住身体，隐身在宇宙中飞行。为应对改变月球轨道撞地球的Varallon，SKaRD统合运用全部单元，完成对本身拥有宇宙作战能力的最强能力向上型阿斯加隆Ｍｏｄ．４改造的突击作业后向潜伏于月球背面的爆罗隆发起挑战。
+
+身高５５米　体重６万６千吨
+<img src="https://p.sda1.dev/15/4f441355910c0589a562e5ec09d17666/006ilIMPgy1hlsd0kb75wj31hc0u0hbi.jpg" referrerpolicy="no-referrer">
+

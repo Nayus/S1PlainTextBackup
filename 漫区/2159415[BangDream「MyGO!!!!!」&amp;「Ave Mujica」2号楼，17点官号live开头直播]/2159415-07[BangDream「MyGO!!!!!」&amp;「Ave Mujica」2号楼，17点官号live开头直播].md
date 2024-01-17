@@ -1524,3 +1524,11 @@ https://x.com/iso_usagi/status/1747481146722791515?s=20<img src="https://p.sda1.
 
 12月得知大于10月配音，这就是mygo速度，你们mujica有没有动作这么快的制作组啊。什么？绫奈已切割，那没事了，亲们2024请多关注梦限大みゅーたいぷ
 
+
+*****
+
+####  御幸一也  
+##### 9122#       发表于 2024-1-17 21:32
+
+所以是劇場版加塞論又一“證據”嗎<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+

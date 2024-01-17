@@ -1592,3 +1592,11 @@ nmd这么加塞的？
 难道不是反过来吗</blockquote>
 反过来那更没有逻辑，母鸡卡动画出问题了不赶紧想办法处理加班做完，反而抽人手去做卖狗剧场版，是嫌问题不够大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 9130#       发表于 2024-1-17 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">武士道那脑梗思路大概就是CE跑路没有任何预案，手游鸡还没做好不能同步动画实装，就祭出总集篇剧场版拖时间
+

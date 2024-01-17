@@ -644,3 +644,47 @@ Nagi出演东宝的音乐剧
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  s3081260  
+##### 19171#       发表于 2024-1-17 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63669819&amp;ptid=2078110" target="_blank">梶原ひかり 发表于 2024-1-16 19:57</a>
+横滨K 是新建的2万级场馆..
+
+两天都有当日券 L7层 24-28是没有坐满 然后舞台布置的内场 和 中级扣除的话
+
+ ...</blockquote>
+谢谢解答，虹的动员能力还不错看来，动画做得好就是有后劲
+
+*****
+
+####  名津流  
+##### 19172#       发表于 2024-1-17 22:12
+
+ 本帖最后由 名津流 于 2024-1-17 22:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63677823&amp;ptid=2078110" target="_blank">名津流 发表于 2024-1-17 14:57</a>
+
+5th Live主题曲 シェキラ☆☆☆ 进本周的billboard日本单曲周榜了，虽然是96位的低位吧
+
+应该是我统计B榜 ...</blockquote>
+翻了下billboard官网，原来这次星团首周卖了13,948张，周销量冠军，上了billboard官方的新闻稿：
+
+[https://www.billboard-japan.com/d_news/detail/133629/2](https://www.billboard-japan.com/d_news/detail/133629/2)
+
+<img src="https://img.saraba1st.com/forum/202401/17/221025wka6ockdrcvrabxo.png" referrerpolicy="no-referrer">
+
+<strong>0117.png</strong> (333.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:10 上传
+
+liella的首次登上冠军宝座
+
+1位『シェキラ☆☆☆』Liella!（13,948枚）
+2位『バケツを被れ！』HKT48（13,809枚）
+
+只领先了第二的hkt48 100多张的销量
+

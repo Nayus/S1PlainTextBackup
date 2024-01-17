@@ -5048,3 +5048,16 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次你伽勒底完全一副看完攻略专业团队模样啊
 “我们就是来负责给你们抬棺的”
 
+
+*****
+
+####  シャル  
+##### 10975#       发表于 2024-1-17 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63682454&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-1-17 21:56</a>
+
+这次你伽勒底完全一副看完攻略专业团队模样啊
+
+“我们就是来负责给你们抬棺的” ...</blockquote>
+除非全是新从者，不然咕哒一眼就能报名字<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

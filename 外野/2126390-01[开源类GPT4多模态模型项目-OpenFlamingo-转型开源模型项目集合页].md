@@ -26094,3 +26094,95 @@ InstantID与InsightFace Swapper的对比，在非真实风格下，本文工作�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1189#       发表于 2024-1-18 01:55
+
+T2VScore
+
+迈向更好的文本到视频生成指标
+
+github项目主页:https://showlab.github.io/T2VScore/
+
+github项目代码仓库:https://github.com/showlab/T2VScore
+
+<img src="https://img.saraba1st.com/forum/202401/18/015352cj2scvhyjgppdvvj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-015156.jpg</strong> (156.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:53 上传
+
+生成模型已经展现出在合成高质量的文本、图像和视频方面的卓越能力，对于视频生成，当代的文本到视频模型展示出了令人印象深刻的能力，创作出了视觉上令人惊艳的视频，尽管如此，评估这样的视频方面存在着重大挑战，当前的研究主要采用自动化指标，如FVD、IS和CLIP分数，然而这些指标在视频内容的时间评估方面提供的分析是不完整的，因此它们不能可靠地代表真实的视频质量，此外，虽然用户研究(user studies)有潜力准确反映人类感知，但它们的时间消耗大、费力且结果往往受到主观偏见的影响
+
+在本文中，调查了现有指标的固有限制，并引入了一种新的评估流程，即文本到视频评分(T2VScore/Text-to-Video Score)，这个指标集成了两个关键标准:
+1.文本视频对齐，检查视频在表示给定文本描述方面的保真度
+2.视频质量，用专家的混合评估来评估视频的整体制作水平
+
+此外，为了评估所提出的指标并促进对它们的未来改进，提供了TVGE数据集，收集了对2543个文本到视频生成的视频在这两个标准上的人类判断，在TVGE数据集上的实验证明了所提出的T2VScore在提供更好的文本到视频生成指标方面的优势
+————
+文本视频对齐
+
+视频与文字提示的匹配程度如何？
+
+<img src="https://img.saraba1st.com/forum/202401/18/015405w513hh7ll43rl3dh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-015219.jpg</strong> (281.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:54 上传
+
+T2VScore-A:首先将文本提示输入大型语言模型(LLM)以生成问题和答案，利用CoTracker，提取辅助轨迹(auxiliary trajectory)，将其与输入视频一起输入到多模态LLM中进行视觉问答(VQA)，最终的T2VScore-A是根据VQA的准确性来衡量的
+————
+视频质量
+
+合成视频的质量如何？
+
+<img src="https://img.saraba1st.com/forum/202401/18/015424b22wrurtyurfxzzl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-015229.jpg</strong> (215.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:54 上传
+
+T2VScore-Q:选择两名具有不同偏见的评估者作为技术和语义专家，并融合他们的判断以提高视频质量评估的泛化能力
+————
+文本到视频生成评估(TVGE/Text-to-Video Generation Evaluation)数据集
+
+<img src="https://img.saraba1st.com/forum/202401/18/015444jh8zc2h0maxskkj9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-015251.jpg</strong> (314.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:54 上传
+
+研究的一个不可分割的部分是评估所提出的指标在文本条件生成视频上的可靠性和稳健性，为此，提出了文本到视频生成评估(TVGE)数据集，收集了关于T2V分数研究的两个方面(对齐和质量)的丰富人类意见
+
+<img src="https://img.saraba1st.com/forum/202401/18/015454ltnfazrp71lpsb8r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-015310.jpg</strong> (180.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:54 上传
+
+与自然视频的领域差距，生成视频(例如在TVGE数据集中)的常见失真在空间和时间上都与自然视频中的失真不同
+
+<img src="https://img.saraba1st.com/forum/202401/18/015502bv7wgdfla9fllltv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-015321.jpg</strong> (119.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 01:55 上传
+
+TVGE中的分数分布，一般来说，生成的视频在两个方面的评分都低于平均的人类评价，这表明需要不断改进这些方法以最终生成合理的视频，尽管如此，特定模型也证明了在单一维度上的良好熟练程度，例如Pika的视频质量平均得分为3.45，注意到这两个方面之间的相关性非常低(Spearman的ρ为0.223，Kendall的φ为0.152)，证明这两个维度是不同的，应该分别独立考虑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

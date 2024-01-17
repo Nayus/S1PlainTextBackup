@@ -275,3 +275,13 @@ gbf策划真好做啊
 这 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他应该会玩sv，别的就不好说了
 
+
+*****
+
+####  Sylpheed  
+##### 17620#       发表于 2024-1-18 01:55
+
+爽了大半夜牛子，突然一股强烈的不信任感还有恶寒直冲背脊，脑子里只剩下一个疑问。牛子or7剑2技能什么时候限风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

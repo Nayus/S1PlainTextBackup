@@ -1710,3 +1710,13 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 下下一集该拐走奥秘士了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3478#       发表于 2024-1-17 13:23
+
+青梅竹马之前为何要搞那么丑的双马尾，明明散发就能让人起杏欲的<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

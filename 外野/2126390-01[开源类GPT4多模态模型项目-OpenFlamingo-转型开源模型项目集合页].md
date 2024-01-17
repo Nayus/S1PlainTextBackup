@@ -26186,3 +26186,109 @@ TVGE中的分数分布，一般来说，生成的视频在两个方面的评分�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1190#       发表于 2024-1-18 03:15
+
+ALMA
+
+对比偏好优化:突破机器翻译LLM性能的边界
+
+github项目主页:https://github.com/fe1ixxu/ALMA
+
+中等规模(Moderate-sized)的大型语言模型(LLM)——具有70亿或130亿参数的模型——在机器翻译(MT/Machine Translation)方面的性能表现出了很大的潜力，然而，即使是表现最佳的130亿参数LLM翻译模型，如ALMA，也无法与SOTA传统编码器-解码器翻译模型或更大规模的LLM(如GPT-4)相媲美
+
+在这项研究中，弥补了这一性能差距，首先评估了LLM在MT任务中监督微调的缺点，强调了参考数据中存在的质量问题，尽管这些数据是由人类生成的，然后，与模仿参考翻译(mimics reference translations)的SFT相反，引入了对比偏好优化(CPO/Contrastive Preference Optimization)，这是一种新颖的方法，用于训练模型避免生成仅仅是足够但不完美的翻译
+
+将CPO应用于仅有22K个平行句子和1200万参数的ALMA模型可以显著提高性能，因此而产生的模型，称为ALMA-R，在WMT'21、WMT'22和WMT'23的测试数据集上能够达到或超过WMT比赛的获胜者以及GPT-4的性能水平
+
+<img src="https://img.saraba1st.com/forum/202401/18/031451pfprfx96xpxv3lxv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-031153.jpg</strong> (87.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 03:14 上传
+
+性能对比
+
+展示了提出的ALMA-13B-R模型与其他最近发布的基于130亿参数的LLM模型以及顶级翻译系统(如GPT-4、WMT获胜者、Google翻译和NLLB-200)之间的对比
+
+评估涵盖8个方向的WMT’22测试数据，涉及德语、捷克语、中文和俄语到英语以及逆向翻译，分数根据三个无参考模型(wmt23-cometkiwi-da-xxl、XCOMET-XXL和wmt22-cometkiwi-da)的评估进行了平均，也在所有方向上进行了平均
+
+本文模型ALMA-13B-R是通过使用CPO方法进一步训练ALMA-13B-LoRA开发的，能够与SOTA翻译模型相匹配或超越它们，有效缩小了中等规模LLM翻译器与SOTA翻译系统之间的性能差距
+
+<img src="https://img.saraba1st.com/forum/202401/18/031504iocsmtxcjzzsz8vi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-031209.jpg</strong> (79.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 03:15 上传
+
+一个示例，展示了人工编写的黄金参考翻译可能并不总是完美无瑕的，甚至也可能被先进的翻译模型的翻译所超越，在这种情况下，参考翻译保留了“CEP”的缩写，但未提供其完整名称，模型生成的翻译中高亮显示的短语展示了黄金参考翻译中省略的部分
+
+<img src="https://img.saraba1st.com/forum/202401/18/031510hhnw0hu44ugq35gw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-031222.jpg</strong> (96.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 03:15 上传
+
+通过两个与人类偏好最相关的10亿参数大小的无参考评估模型对黄金参考翻译和先进翻译模型的输出进行性能对比，结果表明，这些强大的翻译模型的平均性能甚至可能超过黄金参考翻译，在击败参考翻译方面取得了高成功率
+
+<img src="https://img.saraba1st.com/forum/202401/18/031514ptet59f0iztbfn0y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-031239.jpg</strong> (120.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 03:15 上传
+
+一组三元组翻译，从模型生成或从参考中衍生的，相伴着分别由无参考模型评估的分数，对于给定的源句子，得分最高的翻译被指定为偏好翻译，得分最低的被视为不偏好的翻译，得分居中的翻译被忽略
+
+<img src="https://img.saraba1st.com/forum/202401/18/031519z3gcrz19zrco9117.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-031259__01.jpg</strong> (448.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 03:15 上传
+
+在WNT'21和WMT'22上en→xx方向的整体结果，将CPO方法应用于ALMA-13B-LoRA模型的微调显著提高了性能，达到或超过了WMT比赛的获胜者以及GPT-4的水平，粗体表示所有系统中的最高得分，深绿色框突出显示在使用偏好数据进行微调后的ALMA模型中改进超过1分的情况，而不到1分的较小增益显示在浅绿色框中，性能下降用红色框标记
+
+<img src="https://img.saraba1st.com/forum/202401/18/031523urrwm4r234mhr8rl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-031326__01.jpg</strong> (460.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 03:15 上传
+
+在WMT'21和WMT'22上xx→en方向上的整体结果，其余同上
+
+<img src="https://img.saraba1st.com/forum/202401/18/031537pnus8jdydynyszs1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-031400.jpg</strong> (79.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 03:15 上传
+
+在WMT'23所有六个方向上的平均性能
+
+<img src="https://img.saraba1st.com/forum/202401/18/031542x1pckicwcrcplkik.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-031104.jpg</strong> (324.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 03:15 上传
+
+相关消融实验与检查
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

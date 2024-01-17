@@ -280,3 +280,16 @@ sie惯例的摆烂宣发啊
 
 论素材复用和省钱我是相信暗耻的
 
+
+*****
+
+####  碎镜子  
+##### 526#       发表于 2024-1-17 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63671260&amp;ptid=2092342" target="_blank">ckseng 发表于 2024-1-16 22:07</a>
+
+你也不看看仁王那素材都复用几个游戏了，同一套玩意可以在短短几年分别裹上日式西式还有中式皮来卖 ...</blockquote>
+笑死，fs社和卡普空不也一堆素材复用到死。
+
+每个新游纯原创动作傻逼才干。
+

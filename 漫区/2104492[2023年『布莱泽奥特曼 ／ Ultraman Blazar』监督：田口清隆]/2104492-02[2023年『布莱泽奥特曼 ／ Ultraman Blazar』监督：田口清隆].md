@@ -316,3 +316,11 @@
 
 瓦拉隆直接对着人群扫射了，印象中新生代以来很少出现过这样的镜头，我觉得不太可能包饺子
 
+
+*****
+
+####  洛克萨斯  
+##### 1636#       发表于 2024-1-17 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">地球怪兽们满门忠烈不出场群殴一下么，虫圣再架狙射一次吧！
+

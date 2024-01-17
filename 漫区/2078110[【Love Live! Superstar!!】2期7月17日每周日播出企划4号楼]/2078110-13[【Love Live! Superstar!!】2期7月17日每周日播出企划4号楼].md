@@ -597,3 +597,21 @@ Image_1704894013300.jpg
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  名津流  
+##### 19167#       发表于 2024-1-17 14:57
+
+<img src="https://img.saraba1st.com/forum/202401/17/142932d7ddp591q5d10ccz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 14:29 上传
+
+5th Live主题曲 シェキラ☆☆☆ 进本周的billboard日本单曲周榜了，虽然是96位的低位吧
+
+应该是我统计B榜来第一次见星团的歌上榜，不知道前年或更早之前有没有上过
+

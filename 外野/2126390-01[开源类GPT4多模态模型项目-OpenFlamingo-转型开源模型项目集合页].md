@@ -26292,3 +26292,105 @@ github项目主页:https://github.com/fe1ixxu/ALMA
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1191#       发表于 2024-1-18 04:10
+
+self-imagine
+
+使用自想象(Self-Imagination)的多模态模型进行有效的单模态推理(Unimodal Reasoning)
+
+github项目主页:https://github.com/snat1505027/self-imagine
+
+视觉语言模型(VLMs)的潜力在处理复杂的基于文本的问题时通常被低估，特别是当这些问题可以从视觉表征中受益时，与人类通过(1)从问题中创建可视化图表和(2)推断解决问题所需的步骤的能力相呼应，本文提出了Self-Imagine
+
+通过利用单个的视觉语言模型(VLM)生成问题的HTML结构化，然后将HTML渲染为图像，并最后使用相同的VLM，使用问题和图像来回答问题，本文方法不需要任何额外的训练数据或训练过程
+
+使用SOTA VLM在三个数学任务和九个通用推理任务进行评估，本文方法提高了VLM在所有数学任务(gsm:+4.62％；asdiv:+4.49％；svamp:+9.30％)和大多数通用推理任务的性能(0.4％到13.20％)，同时在其他任务中达到了可比性的性能
+
+<img src="https://img.saraba1st.com/forum/202401/18/041012n3dp1yke4czdq352.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-040727.jpg</strong> (110.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:10 上传
+
+通过单个VLM，生成关于问题的HTML图像
+
+<img src="https://img.saraba1st.com/forum/202401/18/041017n0uc3y85uk5q5qq9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-040740.jpg</strong> (74.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:10 上传
+
+[左]不使用SELF-IMAGINE的VLM进行推理:给定一个问题(0)，VLM生成一个答案(1)
+
+[右]使用SELF-IMAGINE的VLM进行推理:给定一个问题(0)，VLM使用HTML生成问题的结构化表征(1)，将HTML渲染为图像(2)，然后与问题一起传递给VLM(3)，最后，VLM通过结合视觉和语言模态生成答案(4)
+
+<img src="https://img.saraba1st.com/forum/202401/18/041023sz3gngnez838uedn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-040753.jpg</strong> (134.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:10 上传
+
+SELF-IMAGINE的主要结果:SELF-IMAGINE在各种数学和符号推理任务中提高了准确率
+
+<img src="https://img.saraba1st.com/forum/202401/18/041028i024gyuwqrgzy7qk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-040826.jpg</strong> (132.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:10 上传
+
+使用SELF-IMAGINE生成的图像在各种推理任务中与进行“仅问题”和“问题+图像”的准确率对比
+
+<img src="https://img.saraba1st.com/forum/202401/18/041032yu01501fhu1hlq9h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-040851.jpg</strong> (86.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:10 上传
+
+math world problem任务的示例
+
+<img src="https://img.saraba1st.com/forum/202401/18/041038i11brgy311i3g5bp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-040905.jpg</strong> (203.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:10 上传
+
+图像在GSM8K任务中提高了推理能力的示例
+
+<img src="https://img.saraba1st.com/forum/202401/18/041045lr8chr0i3gqrr7sw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-040919.jpg</strong> (208.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:10 上传
+
+一些BIG-Bench Hard子任务的示例
+
+<img src="https://img.saraba1st.com/forum/202401/18/041051hchqbqfpcpgppe9p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-040931.jpg</strong> (94.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:10 上传
+
+受图像影响的每个子任务实例的数量，在这里，“Image Hurts”表示没有图像正确回答的实例，在有图像的情况下回答错误，类似地，“Image Improves”显示了在有图像的情况下得到正确答案，并在没有图像的情况下得到错误答案的数据点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

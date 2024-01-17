@@ -26394,3 +26394,51 @@ math world problem任务的示例
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1192#       发表于 2024-1-18 04:32
+
+SciGLM
+
+通过自反思指令标注和调整(Self-Reflective Instruction Annotation and Tuning)训练科学(Scientific)语言模型
+
+github项目主页:https://github.com/THUDM/SciGLM
+
+大型语言模型在协助科学发现方面展现出了有前景的未来，然而，最近的应用受到大型语言模型在理解复杂科学概念、推导符号方程和解决高级数值计算方面的不足的限制
+
+为了弥合这些差距，本文引入了SciGLM，这是一个能够进行学院级别科学推理的科学语言模型套件，本文方法的核心是一个新颖的自反思指令标注框架(self-reflective instruction annotation framework)，用于解决科学领域中数据稀缺的挑战
+
+该框架利用现有的大型语言模型为未标记的科学问题生成逐步推理，然后进行自反思的评判和修订(self-reflective critic-and-revise)过程，通过应用这个框架，创建了SciInstruct，一个包含数学、物理、化学和形式证明的多样化的高质量数据集
+
+通过使用SciInstruct对ChatGLM系列语言模型进行了微调，提升了它们在科学和数学推理方面的能力，值得注意的是，SciGLM持续改进了基础模型(ChatGLM3-6B-Base)和更大规模的模型(12B和32B)而不会牺牲基础模型的语言理解能力，这使得SciGLM可以成为一个适合促进多样化科学发现任务的基础模型，为了使更广泛的研究社区受益，发布了SciInstruct和SciGLM
+
+github项目说明页截图:
+
+<img src="https://img.saraba1st.com/forum/202401/18/043223k3si3gggjxyzkxdd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-043107.jpg</strong> (359.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:32 上传
+
+<img src="https://img.saraba1st.com/forum/202401/18/043223p2bz1c8rrc82kc85.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-043116__01.jpg</strong> (92.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:32 上传
+
+<img src="https://img.saraba1st.com/forum/202401/18/043224zzize9103g14t341.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-043142.jpg</strong> (415.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 04:32 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

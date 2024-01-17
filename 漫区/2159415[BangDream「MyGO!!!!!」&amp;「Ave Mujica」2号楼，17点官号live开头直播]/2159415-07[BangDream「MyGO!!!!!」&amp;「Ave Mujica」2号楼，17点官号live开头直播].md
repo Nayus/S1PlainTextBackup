@@ -1788,3 +1788,27 @@ WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡�
 唉，差不多实锤加塞了，我担心的大概要应验了，剧场版猫的戏份肯定是画蛇添足了，虽然就企划来说每个角色戏 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">能想到的就是手游换编剧团队后从新式偶像剧情番的定位又回到传统偶像剧情了吧
 
+
+*****
+
+####  Kasroz  
+##### 9147#       发表于 2024-1-17 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">以前工艺蛋的编剧团队和绫奈对武士道来说都是“外来者”，自然能将mygo和mujica放心交给绫奈编写。现在手游编剧换成了武士道自己人，那当然是交给自己人更安心了。
+
+*****
+
+####  Aendst  
+##### 9148#       发表于 2024-1-17 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先做的动画当然以动画为主，本来就是要武士道的人参与敲定的，手游文案只是打工人罢了
+
+*****
+
+####  NODY  
+##### 9149#       发表于 2024-1-17 23:28
+
+按监督说的“没出现在画面内的剧情有很多”，应该只是把写在设定里但动画没做出来的东西加回去，就像少歌剧场版也是把不少动画没做出来的隐藏设定拿出来
+
+估计就是按剪个总集篇，但背景音里面加点猫的旁白之类的吧
+

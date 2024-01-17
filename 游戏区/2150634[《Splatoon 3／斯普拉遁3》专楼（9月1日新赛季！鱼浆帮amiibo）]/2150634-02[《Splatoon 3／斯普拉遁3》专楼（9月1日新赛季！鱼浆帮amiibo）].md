@@ -9685,3 +9685,13 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晴岚  
+##### 2476#       发表于 2024-1-17 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">生态好的2代现在基本10局有8局有嘲讽怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

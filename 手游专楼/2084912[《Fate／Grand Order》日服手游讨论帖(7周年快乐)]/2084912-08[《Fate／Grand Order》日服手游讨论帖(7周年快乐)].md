@@ -5061,3 +5061,11 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 “我们就是来负责给你们抬棺的” ...</blockquote>
 除非全是新从者，不然咕哒一眼就能报名字<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 10976#       发表于 2024-1-17 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊织和武尊的对话味太冲了，武尊这个不男不女，男女通吃的设定就很那啥
+

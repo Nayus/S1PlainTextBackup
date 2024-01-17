@@ -47,3 +47,19 @@ timeless是真的好玩，倾家荡产做了一套风暴一套泰坦僵尸地一
 
 以上补充红黑偷袭，新环境snt也要进mtga了，腥风血雨啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  はちたや  
+##### 68#       发表于 2024-1-17 22:26
+
+新机制都不太吸引人啊..<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+搜证虽然看起来像delve但看起来设计保守了好多，应该不会出现直接释放减费的设计了吧
+
+案件我感觉跟依夏兰那些满足条件变地的没什么不同
+
+那个给穿透或者被穿透的在限制赛感觉还蛮好玩
+
+顺便这次的地拼图竟然有解谜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

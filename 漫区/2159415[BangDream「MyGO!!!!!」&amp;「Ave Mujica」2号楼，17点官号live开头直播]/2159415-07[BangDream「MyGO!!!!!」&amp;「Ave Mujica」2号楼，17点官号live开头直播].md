@@ -1600,3 +1600,40 @@ nmd这么加塞的？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">武士道那脑梗思路大概就是CE跑路没有任何预案，手游鸡还没做好不能同步动画实装，就祭出总集篇剧场版拖时间
 
+
+*****
+
+####  御幸一也  
+##### 9131#       发表于 2024-1-17 22:23
+
+那麼 手遊ave實裝還缺什麼是需要搞一年的，都不說一年了，半年，
+
+就那養老手遊是有什麼內容需要那麼大的開發力，我不是很懂，來個大佬說說看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0路人辛0  
+##### 9132#       发表于 2024-1-17 22:31
+
+邦邦手游我记得最近确实闹过笑话，好像维护失败，工艺蛋没拿掉？不是玩家，只是刷到过相关帖子、动态
+
+<img src="https://img.saraba1st.com/forum/202401/17/222851a3eq9eyatzeym4de.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 22:28 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+*****
+
+####  krowbullet  
+##### 9133#       发表于 2024-1-17 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63682864&amp;ptid=2159415" target="_blank">0路人辛0 发表于 2024-1-17 22:31</a>
+
+邦邦手游我记得最近确实闹过笑话，好像维护失败，工艺蛋没拿掉？不是玩家，只是刷到过相关帖子、动态[f:009 ...</blockquote>
+不好意思，此时此刻正在第二次尝试拿掉工艺蛋，然后又延期了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

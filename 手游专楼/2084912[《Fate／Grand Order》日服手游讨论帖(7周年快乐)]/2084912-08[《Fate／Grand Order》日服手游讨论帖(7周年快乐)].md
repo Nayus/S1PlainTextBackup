@@ -4569,3 +4569,73 @@ files/data/下54cc文件在吗
 files/data/下54cc文件在吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">文件名54cc开头的？在在在，这是不是我有救了
 
+
+*****
+
+####  v22325  
+##### 10934#       发表于 2024-1-17 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">哦哦哦哦哦哦哦哦  下载数据左下角能看到ID  活了活了  我有救了
+
+*****
+
+####  v22325  
+##### 10935#       发表于 2024-1-17 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">玩了快十年了差点以为要以掉号结束为结局  太好了  
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Jamaisvu| + 1|恭喜ヾ ^_^♪|
+
+查看全部评分
+
+*****
+
+####  清河子  
+##### 10936#       发表于 2024-1-17 18:07
+
+索然无味，只有伊织满破看着还行，<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">这还不如抽武尊吸引力大
+
+*****
+
+####  Jamaisvu  
+##### 10937#       发表于 2024-1-17 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680125&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-17 18:04</a>
+
+玩了快十年了差点以为要以掉号结束为结局  太好了</blockquote>
+恭喜恭喜，快进去抽卡吧，豹跳了就是大难不死必有后福，沉船了就是福之祸所伏，怎么想都不亏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  史蒂符  
+##### 10938#       发表于 2024-1-17 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680125&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-17 18:04</a>
+
+玩了快十年了差点以为要以掉号结束为结局  太好了</blockquote>
+你保存好54cc和969b两个文件，只要不发行新的引继码就不会丢号，我用这种方法可以手机和模拟器免引继登陆。[https://docs.chaldea.center/zh/guide/import_https/transfer_data](https://docs.chaldea.center/zh/guide/import_https/transfer_data)
+
+*****
+
+####  琴酒  
+##### 10939#       发表于 2024-1-17 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680088&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-17 18:01</a>
+
+文件名54cc开头的？在在在，这是不是我有救了</blockquote>
+只要没重新发引继码 现在这个54cc文件就是你的账号文件
+
+可以另外保存
+
+如果发了新引继码 会有新的一个54cc文件
+
+一般多设备同账号就是复制这个文件
+

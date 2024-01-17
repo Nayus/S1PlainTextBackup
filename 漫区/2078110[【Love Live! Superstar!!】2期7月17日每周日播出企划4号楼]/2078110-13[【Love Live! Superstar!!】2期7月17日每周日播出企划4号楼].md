@@ -615,3 +615,14 @@ Image_1704894013300.jpg
 
 应该是我统计B榜来第一次见星团的歌上榜，不知道前年或更早之前有没有上过
 
+
+*****
+
+####  starring  
+##### 19168#       发表于 2024-1-17 18:10
+
+Nagi出演东宝的音乐剧
+<img src="https://p.sda1.dev/15/b7d15d7bfe1f240bb11dbe4d3f0d748d/CMP_20240117180933632.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

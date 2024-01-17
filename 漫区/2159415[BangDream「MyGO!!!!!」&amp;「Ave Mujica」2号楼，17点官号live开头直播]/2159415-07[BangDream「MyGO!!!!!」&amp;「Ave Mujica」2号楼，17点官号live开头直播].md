@@ -1475,3 +1475,20 @@ https://x.com/iso_usagi/status/1747481146722791515?s=20<img src="https://p.sda1.
 
 看这期集会的意思是差不多去年12月底她们才知道还要做总集篇。那感觉这个总集篇也是很临时才插进来的啊
 
+
+*****
+
+####  星空冻结  
+##### 9116#       发表于 2024-1-17 20:52
+
+这个总集篇肯定是临时决定做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 9117#       发表于 2024-1-17 20:52
+
+邦官号动了点冷饭，1.20母鸡卡0th限时公开，投了0th的假面舞会，再看一遍。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+可惜不公开翻唱，官号什么时候投堕天<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

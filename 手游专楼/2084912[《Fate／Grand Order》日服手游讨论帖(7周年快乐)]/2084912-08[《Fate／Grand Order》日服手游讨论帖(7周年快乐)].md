@@ -4987,3 +4987,17 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 2期是吧 狐狸和枪贞<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 10969#       发表于 2024-1-17 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63681608&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-17 20:42</a>
+我TM
+
+2期是吧 有宝具吗</blockquote>
+就是黑贞的动作，对面宝具拿ex攻击充数，也就给个灵衣糊弄了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

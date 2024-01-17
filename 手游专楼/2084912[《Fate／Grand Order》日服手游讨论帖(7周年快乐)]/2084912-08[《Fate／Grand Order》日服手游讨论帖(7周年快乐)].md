@@ -4322,3 +4322,48 @@ FGO在第二部前期渡过之后，出问题的就是在“节奏”上，包�
 或者换个平台再下一遍安装包？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">现在是下的新安装包没法覆盖安装 
 
+
+*****
+
+####  布伦史塔德  
+##### 10912#       发表于 2024-1-17 17:25
+
+正雪老师这初始有点抽象了
+
+*****
+
+####  Jamaisvu  
+##### 10913#       发表于 2024-1-17 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679619&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-17 17:22</a>
+
+现在是下的新安装包没法覆盖安装</blockquote>
+没遇到过，抱歉。搜了一下貌似换源重装可能有用，不过最近没引继的话不建议这样做...
+
+还是等等大佬传文件吧，安全第一。
+
+不知道导入ourplay用内置谷歌框架可不可行，如果能直接登录的话就可以引继了...
+
+*****
+
+####  不垃圾屌丝  
+##### 10914#       发表于 2024-1-17 17:27
+
+剪影最右边是正雪啊，我还以为又是社长的新作呢
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cckuku11  
+##### 10915#       发表于 2024-1-17 17:28
+
+看卡面完全没有抽的欲望啊，感觉丑于谦就只是把奶光等比例缩小了，里面的人格都没变的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 10916#       发表于 2024-1-17 17:31
+
+........雷太还是画巨乳吧，好怪啊
+

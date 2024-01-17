@@ -1700,3 +1700,13 @@ Kanata heads to nearby Carthago, which supposedly has an old spaceport, in his s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  砂糖续香香  
+##### 3477#       发表于 2024-1-17 13:05
+
+挺好！<img src="https://p.sda1.dev/15/275474746c43331e139795dd6f7bef3b/CMP_20240117130428117.jpg" referrerpolicy="no-referrer">
+
+下下一集该拐走奥秘士了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

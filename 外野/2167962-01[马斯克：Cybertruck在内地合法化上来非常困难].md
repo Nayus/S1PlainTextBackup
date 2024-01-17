@@ -760,3 +760,17 @@ ct还有个硬伤就是车子不够高，低车身续航会比较好，但对玩
 像手工耿整的活，糙的一笔。</blockquote>
 手工耿的月球车比这个有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cloudinsky  
+##### 76#       发表于 2024-1-17 13:05
+
+2米宽还好，很多中大型suv都有
+甚至一些新能源都有
+近5米9的长度
+
+很多地方停下去都要露出来很长一截
+
+只能停大巴位置
+

@@ -4921,3 +4921,23 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 由手机上传
 2024-1-17 19:20 上传
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 10963#       发表于 2024-1-17 19:34
+
+上次咕哒咕哒就改了吧 载入界面总是当期up
+
+*****
+
+####  Jamaisvu  
+##### 10964#       发表于 2024-1-17 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680891&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-1-17 19:34</a>
+
+上次咕哒咕哒就改了吧 载入界面总是当期up</blockquote>
+这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为是跟我有缘呢，过年因为看到这个我抽武尊抽得快保底了，下次可不能被迷惑住...
+
+（YLS：我就营造个气氛，你真抽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

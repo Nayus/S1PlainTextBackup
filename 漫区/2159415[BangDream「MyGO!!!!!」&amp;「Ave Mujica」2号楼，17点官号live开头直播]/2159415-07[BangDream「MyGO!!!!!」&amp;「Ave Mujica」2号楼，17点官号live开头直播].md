@@ -1884,3 +1884,38 @@ WSD的技术力要是连养老游戏都能运营出问题，我真要担心鸡�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 9158#       发表于 2024-1-18 00:43
+
+失败主义乃是你版特色，不得不品<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  宿  
+##### 9159#       发表于 2024-1-18 00:50
+
+<img src="https://img.saraba1st.com/forum/202401/18/005012mfcpcuy7q5trhttz.png" referrerpolicy="no-referrer">
+
+<strong>soyomature.png</strong> (197.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 00:50 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 特拉·特尔特| + 1|好评加鹅|
+
+查看全部评分
+

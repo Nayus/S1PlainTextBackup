@@ -4534,3 +4534,38 @@ FGO在第二部前期渡过之后，出问题的就是在“节奏”上，包�
 满破双色8+无敌贯通你也好意思给
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FrozenA  
+##### 10930#       发表于 2024-1-17 17:56
+
+小奶光满破图倒是有点铳梦味<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琴酒  
+##### 10931#       发表于 2024-1-17 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63679841&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-17 17:39</a>
+
+我要是有引继码就不会这么慌了，上个星期刚换的手机把引继码用了忘了做新的了……  我已经把游戏删 ...</blockquote>
+files/data/下54cc文件在吗
+
+*****
+
+####  katun  
+##### 10932#       发表于 2024-1-17 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">丑御前声音咋都低成妖怪手表男主了，fsr里也不是这声音啊
+
+*****
+
+####  v22325  
+##### 10933#       发表于 2024-1-17 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63680069&amp;ptid=2084912" target="_blank">琴酒 发表于 2024-1-17 18:00</a>
+
+files/data/下54cc文件在吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">文件名54cc开头的？在在在，这是不是我有救了
+

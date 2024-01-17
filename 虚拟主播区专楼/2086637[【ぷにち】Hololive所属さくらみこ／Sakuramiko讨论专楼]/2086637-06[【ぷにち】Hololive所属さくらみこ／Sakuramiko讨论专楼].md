@@ -5333,3 +5333,17 @@ rust的BGM
 
 这游戏的可玩内容有点太少了吧，不过考虑到是先行体验
 
+
+*****
+
+####  holoan  
+##### 8011#         楼主| 发表于 2024-1-17 17:59
+
+<img src="https://img.saraba1st.com/forum/202401/17/175902eo7oyy5bubeqsv2u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-17 17:59 上传
+

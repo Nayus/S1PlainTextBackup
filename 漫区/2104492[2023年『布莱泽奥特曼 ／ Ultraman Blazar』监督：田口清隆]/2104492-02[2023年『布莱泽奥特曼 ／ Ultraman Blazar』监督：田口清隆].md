@@ -350,3 +350,11 @@
 
 布莱泽终于要使出光线技能了吗
 
+
+*****
+
+####  最强惠酱  
+##### 1640#       发表于 2024-1-17 21:11
+
+虽然很好看，不过月球轨道变更这种关乎全人类命运的大事就只是日本一个退役老头让几个手下送死对应是不是有点过于草台<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

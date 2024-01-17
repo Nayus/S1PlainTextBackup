@@ -262,3 +262,16 @@ gbf策划真好做啊
 
 这KMR当年嘴上放屁说隔段时间自己会开个小号体验下大众玩家的游戏环境，不知道最近您还体验嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 17619#       发表于 2024-1-17 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63681850&amp;ptid=1158205" target="_blank">usoda 发表于 2024-1-17 21:02</a>
+
+挺搞笑的，17年开十天终凸的时候知道把ffj兑换勋章量减一半，现在干脆是多给几个坐牢的地方让你肝出来？
+
+这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他应该会玩sv，别的就不好说了
+

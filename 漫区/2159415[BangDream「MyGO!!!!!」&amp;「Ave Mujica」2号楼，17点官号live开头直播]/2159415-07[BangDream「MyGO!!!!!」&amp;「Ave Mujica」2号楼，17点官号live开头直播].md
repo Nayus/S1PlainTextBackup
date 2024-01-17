@@ -1492,3 +1492,27 @@ https://x.com/iso_usagi/status/1747481146722791515?s=20<img src="https://p.sda1.
 
 可惜不公开翻唱，官号什么时候投堕天<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 9118#       发表于 2024-1-17 21:03
+
+来北京之前录的吧
+
+*****
+
+####  Kasroz  
+##### 9119#       发表于 2024-1-17 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63681725&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-17 20:52</a>
+这个总集篇肯定是临时决定做的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最可怕的是cv到12月才知道今年的剧场版，明年的母鸡卡10月就开始配音了
+
+*****
+
+####  skives  
+##### 9120#       发表于 2024-1-17 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听到剧场版的消息 每个人都震惊了
+

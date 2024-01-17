@@ -5323,3 +5323,13 @@ rust的BGM
 
 这游戏连服务器参数设定都照抄ARK的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8010#         楼主| 发表于 2024-1-17 11:03
+
+有人说现在3个人的游戏进度已经基本上到中后期了再打一个大boss基本就没有其它什么内容了
+
+这游戏的可玩内容有点太少了吧，不过考虑到是先行体验
+

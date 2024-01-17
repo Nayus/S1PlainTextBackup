@@ -4117,3 +4117,32 @@ main interlude复刻的兑换规则不一样，基本上活动商店里的礼装
 
 FGO现在最奇葩的是别的手游都是策划没货了拿出来顶一下档期，它不仅不顶档期还觉得复刻是天大的恩惠
 
+
+*****
+
+####  khxooo  
+##### 10893#       发表于 2024-1-17 10:02
+
+不知道为什么，总觉得这次奶光会是绿卡光炮<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  destroyworlder  
+##### 10894#       发表于 2024-1-17 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63673676&amp;ptid=2084912" target="_blank">beer 发表于 2024-1-17 09:18</a>
+
+FGO现在最奇葩的是别的手游都是策划没货了拿出来顶一下档期，它不仅不顶档期还觉得复刻是天大的恩惠 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">螺旋社是真的烂
+
+*****
+
+####  fengzijiang  
+##### 10895#       发表于 2024-1-17 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63674183&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-1-17 10:02</a>
+不知道为什么，总觉得这次奶光会是绿卡光炮</blockquote>
+宝具名太绿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

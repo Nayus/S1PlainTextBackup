@@ -653,3 +653,11 @@ https://www.youtube.com/watch?v=T0hEbIRi9xg
 
 。。
 
+
+*****
+
+####  wiig  
+##### 2913#       发表于 2024-1-17 16:12
+
+And just like that everyone forgot about pomu's upcoming graduation
+

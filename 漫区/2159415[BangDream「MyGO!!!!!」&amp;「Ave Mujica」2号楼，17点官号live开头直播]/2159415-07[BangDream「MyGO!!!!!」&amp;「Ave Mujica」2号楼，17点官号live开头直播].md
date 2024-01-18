@@ -1985,3 +1985,13 @@ hibiki你管管啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 9167#       发表于 2024-1-18 08:47
+
+那說明出問題的地方不是換logo啊，不可能為了一個破logo一直延長維護不開的，
+
+通常這樣壓著不敢開的，要不就是真的伺服器出事，要不就是和錢錢有關的功能出bug在修和討論對策<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

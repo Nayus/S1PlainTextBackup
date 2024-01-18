@@ -989,3 +989,11 @@ Mihon用了新版安卓统一的文件管理api，访问存储的速度慢了好
 现在tachidesk的插件都显示obsolete了 有办法解决吗</blockquote>
 去下preview版 设置里手动添加源 https://raw.githubusercontent.com/keiyoushi/extensions/repo/index.min.json复制代码
 
+
+*****
+
+####  Saikou  
+##### 77#       发表于 2024-1-18 15:09
+
+wnacg挂掉了，看了眼把网址列表换成主站重新build就好了（搞不懂为什么一直要用镜像网址），最后还是得靠自己
+

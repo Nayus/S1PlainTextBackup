@@ -5371,3 +5371,24 @@ fsr可是兩條路線都不能釋放自己，連持刀都要特許，來到FGO�
 一群人在推主线的时候，刁民跑出来对KP说我们要吃早饭
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11006#       发表于 2024-1-18 17:14
+
+ 本帖最后由 eilot 于 2024-1-18 17:16 编辑 
+
+連紅玉書都是多周目，不過幸好每周目他都是看不到最後...
+
+飯桶又多一位...武尊更有「脹」了臉頰的立繪
+
+不過武尊他還是不允許伊織叫他名字...
+
+*****
+
+####  保罗赫伯特  
+##### 11007#       发表于 2024-1-18 17:19
+
+今天不止锁前排了，还给个不能换人的buff，生怕你打的快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

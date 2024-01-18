@@ -2364,3 +2364,13 @@ wsd费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/093.
 
 估計是營運方從手工蛋變成武士道，所以更改課金結算的各種東西改出事了
 
+
+*****
+
+####  Kasroz  
+##### 9205#       发表于 2024-1-18 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690871&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-18 16:53</a>
+泥樓關心的維護原因，果然是和課金有關的，商店的處理出了問題 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来工艺蛋走得很干净利落，一点善后工作也没给武士道做
+

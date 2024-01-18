@@ -5532,3 +5532,24 @@ miko对这次菜品的监修程度很高，说是对自家的口味有很特别�
 
 要吐了
 
+
+*****
+
+####  rs5621  
+##### 8030#       发表于 2024-1-18 21:14
+
+ 本帖最后由 rs5621 于 2024-1-18 21:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了
+
+泡芙发的这么快
+
+*****
+
+####  rs5621  
+##### 8031#       发表于 2024-1-18 21:17
+
+<img src="https://p.sda1.dev/15/b31f00906542716b5ae23c9f4c07e8d4/Screenshot_20240118_211617_com.google.android.youtube.png" referrerpolicy="no-referrer">草，怎么这么少人选
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

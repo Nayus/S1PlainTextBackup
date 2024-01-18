@@ -5505,3 +5505,18 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 何况伊织只是想和强者分高下，决生死，并不是什么滥杀无辜的杀人狂</blockquote>
 刃牙武藏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11019#       发表于 2024-1-18 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691307&amp;ptid=2084912" target="_blank">清河子 发表于 2024-1-18 17:28</a>
+
+还真是，虽然地狱笑话了，但是给伊织看看那段记录怕不是酸得咬手绢啊</blockquote>
+對伊織只是武藏剛離開時間點，但對FGO已是形神俱滅查無資料狀態，眾人都是不停回憶她最後一刀
+
+期待一下伊織恢復記憶及正式落戶FGO後，他有何表示
+
+還是會否在2.8中也學師傅要去斬門斬星但無力，於是出5星版本，就看FSR那裡的DLC會有甚麼新劇情
+

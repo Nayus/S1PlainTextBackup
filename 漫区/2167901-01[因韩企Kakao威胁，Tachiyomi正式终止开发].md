@@ -1039,3 +1039,16 @@ mihon和tachiyomi速度也一样吗
 
 —— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  大哀之君  
+##### 82#       发表于 2024-1-18 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692772&amp;ptid=2167901" target="_blank">maninhole 发表于 2024-1-18 19:42</a>
+
+草，原来mangaraw真挂了？
+
+是换新壳了还是没了</blockquote>
+找不到新壳。我兜了一圈别的盗转站好像这星期的周刊漫画也都停更了，说明源头确实是瘫痪了
+

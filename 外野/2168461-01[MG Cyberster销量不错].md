@@ -664,3 +664,25 @@ MX5 一吨出头，4m车长，确实不是一个级别的对手<img src="https:/
 我已经在劝我妈这种不上班的中老年人干脆买这个算了，比她原来想买的进口车又便宜又好用…… ...</blockquote>
 是你自己想要吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  OZV522  
+##### 68#       发表于 2024-1-18 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690104&amp;ptid=2168461" target="_blank">大普罗托斯 发表于 2024-1-18 15:51</a>
+
+换平开门应该买的人更多</blockquote>
+车门太长了，平开不方便
+
+*****
+
+####  不会武术  
+##### 69#       发表于 2024-1-18 16:28
+
+30万的车可能不太好装逼
+有法律规定说车必须要有车标吗
+能不能造一个没有车标的车
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

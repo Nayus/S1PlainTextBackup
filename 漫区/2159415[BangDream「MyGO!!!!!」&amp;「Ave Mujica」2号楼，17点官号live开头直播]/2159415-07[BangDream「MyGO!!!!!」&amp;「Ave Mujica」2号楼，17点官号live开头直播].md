@@ -2668,3 +2668,13 @@ mujica进手游第一个实装的活动大概率也是补动画戏份少的两�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  友情的结晶  
+##### 9232#       发表于 2024-1-19 02:23
+
+第七集猫猫春日影称得上意料之外情理之中的神来之笔，希望别画蛇添足把如此自然的场景写砸了。什么立希贿赂论更是看不出对剧情和两个人的塑造有什么好处
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

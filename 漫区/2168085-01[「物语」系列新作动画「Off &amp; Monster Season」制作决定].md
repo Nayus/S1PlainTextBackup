@@ -742,3 +742,45 @@ emmmm<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" refer
 
 cg 动仕多的那点儿人对动画的品质和数量影响微乎其微，主要演出这块儿确实是流失严重，沙发套过去两年的表现也实在没法让人放心，但23年一年基本没啥动作，魔圆和物语还都是目前最拿得出手的看板，肯定会好好做的，不至于做砸…吧
 
+
+*****
+
+####  smdzh2  
+##### 86#       发表于 2024-1-18 19:36
+
+制作决定……嘛，有的看终归是好事<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 87#       发表于 2024-1-18 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692173&amp;ptid=2168085" target="_blank">Unlight 发表于 2024-1-18 18:42</a>
+所以说回被车烂的老掉牙话题
+为何十几年前鼎盛的沙发套会成了现在这个样子？</blockquote>
+一般说法是烟花做伤了 之后跑路的跑路摆烂的摆烂
+
+—— 来自 Xiaomi Redmi K30 5G, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  dot  
+##### 88#       发表于 2024-1-18 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692173&amp;ptid=2168085" target="_blank">Unlight 发表于 2024-1-18 18:42</a>
+
+所以说回被车烂的老掉牙话题
+
+为何十几年前鼎盛的沙发套会成了现在这个样子？</blockquote>
+shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量发统包，所以产量挺高。现在口碑变差主要是fe和魔纪炸了吧，还有rwby也挺差的，这些都是改编难度高，打斗偏多，作画需求量大的，shaft本来就不怎么做打斗向的，加上shaft 18年开始好像要转型，也基本不发统包了，所以制作上压力更大，导致制作上出问题。走了些人也确实有点影响，主要是演出少了些人。但像美少年侦探团和最近的五等分夏日篇，这种shaft擅长的就做的还好。
+
+*****
+
+####  竹様  
+##### 89#       发表于 2024-1-18 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691914&amp;ptid=2168085" target="_blank">dot 发表于 2024-1-18 18:22</a>
+
+总有说shaft走了很多人（其实没多少，因为本来就没多少人）导致shaft产能降低的，其实现在shaft员工人数 ...</blockquote>
+主要是那阵子跑路的大都是表记在OP里的核心制作人员吧。
+

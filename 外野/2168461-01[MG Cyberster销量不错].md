@@ -715,3 +715,35 @@ MX5 一吨出头，4m车长，确实不是一个级别的对手<img src="https:/
 
 这车就是奔着MX5受众去的，Z4和718受众是不会选MG这种牌子的。这车的问题是因为是电车作为小跑车车身很重吧，百秒奔直线没问题，但是实际驾驶并不是小跑车的感觉。
 
+
+*****
+
+####  Porsche  
+##### 73#       发表于 2024-1-18 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最核心的事没提啊
+这车到底好玩不好玩
+你要是跟mx5叫板，怎么也得有mx5的八成功力吧
+一个天生被电池重量拖累的电车，究竟能获得什么样的驾驶乐趣还是值得研究的
+
+*****
+
+####  意大利面  
+##### 74#       发表于 2024-1-18 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686446&amp;ptid=2168461" target="_blank">Ichthy 发表于 2024-1-18 10:42</a>
+
+所以这个品类月销就300么？</blockquote>
+因为这个品类过去只有大几十万起的选择，落地五十万以内基本不存在，那你说月销能多少嘛
+
+*****
+
+####  gx19860411  
+##### 75#       发表于 2024-1-18 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63687861&amp;ptid=2168461" target="_blank">silverfoxz 发表于 2024-1-18 12:32</a>
+多说一句，自从这车上市后，身边的Z4或者718车主心态还算好，至少还能谈谈品牌价值自我安慰下，最玻璃心碎 ...</blockquote>
+跟你讲，mx5车主碎的都是30w左右想开跑车的，真正深爱miata的才不会碎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

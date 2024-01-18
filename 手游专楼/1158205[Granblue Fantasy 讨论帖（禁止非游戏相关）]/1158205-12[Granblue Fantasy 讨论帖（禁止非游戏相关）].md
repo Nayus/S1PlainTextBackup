@@ -285,3 +285,11 @@ gbf策划真好做啊
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Geyorkias  
+##### 17621#       发表于 2024-1-18 08:00
+
+只影响猎金卷场的倒不一定会改....
+

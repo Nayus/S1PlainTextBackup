@@ -5330,3 +5330,20 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 比起FSR来说，FGO可谓是末法之世，真实修罗恶鬼的极乐净土，只要想天天都有战斗打，还有天花板可 ...</blockquote>
 不止，还能占大义去干架，没有心理障碍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11002#       发表于 2024-1-18 16:38
+
+等PU2池是否金閃閃那批舊角UP
+
+希望他們能順便有強化吧，特別是白貞...
+
+*****
+
+####  保罗赫伯特  
+##### 11003#       发表于 2024-1-18 16:40
+
+能给个中式铠甲皮肤吗，虽然我知道希望渺茫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -879,3 +879,23 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 寄！
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 100#       发表于 2024-1-19 01:24
+
+希望能平稳落地<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 101#       发表于 2024-1-19 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63695975&amp;ptid=2168085" target="_blank">TiiTiiLL 发表于 2024-1-19 00:46</a>
+
+动画补完适合小说接着看吗，后面这些讲了啥，垃圾君的大学生活吗
+
+—— 来自 vivo V2218A, Android 13上的  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是补完其他角色，阿良良木的戏份也有不少就是了
+

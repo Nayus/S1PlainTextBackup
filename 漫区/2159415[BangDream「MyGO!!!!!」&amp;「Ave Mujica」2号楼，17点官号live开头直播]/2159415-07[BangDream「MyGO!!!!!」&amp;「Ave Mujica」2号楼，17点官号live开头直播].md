@@ -2174,3 +2174,23 @@ hibiki你管管啊
 
 12.5最惨的分明是立希，戏份比较多的第6集和比较讨喜的11集在那个总集篇里面一秒都没留全删了，真正的底边待遇好吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 9186#       发表于 2024-1-18 12:56
+
+说起来邦邦这些耳坠是贴上去的还是真的打耳洞了，灯灯 lisa 睦头的耳坠都挺好看的，挺能丰富角色形象<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  NODY  
+##### 9187#       发表于 2024-1-18 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688093&amp;ptid=2159415" target="_blank">屑猫猫 发表于 2024-1-18 12:56</a>
+
+说起来邦邦这些耳坠是贴上去的还是真的打耳洞了，灯灯 lisa 睦头的耳坠都挺好看的，挺能丰富角色形象[f:075 ...</blockquote>
+因为这游戏是8+所以里面所有角色的耳饰都是夹上去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

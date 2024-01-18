@@ -819,3 +819,15 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 吉泽翠在自己ins上提到过从去年8、9月就开始忙了，应该是那时候就进入实际制作阶段
 
+
+*****
+
+####  零壹贰叁  
+##### 94#       发表于 2024-1-18 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692890&amp;ptid=2168085" target="_blank">三七甜 发表于 2024-1-18 19:51</a>
+还好还是沙发套，板村智幸是走了吗
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+坂村18年就跑了吧，续终都不参与了
+

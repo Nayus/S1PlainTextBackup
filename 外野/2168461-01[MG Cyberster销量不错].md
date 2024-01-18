@@ -969,3 +969,11 @@ miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去�
 
 希望MG能坚持下去，明年出个改款，价格维持不变，继续优化车型，把那帮子割韭菜（没错说的就是MX5）的车型都打死
 
+
+*****
+
+####  サリシノハラ  
+##### 96#       发表于 2024-1-18 20:23
+
+快把718干死，我来抄底<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

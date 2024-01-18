@@ -2069,3 +2069,24 @@ hibiki你管管啊
 
 他現在這樣看起來就是別的什麼地方出包了，不會真的今年一定島吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9176#       发表于 2024-1-18 12:05
+
+【Ave Mujica「Mas?uerade Rhapsody Re?uest」Ave Mujica 0th LIVE「Primo die in scaena」-哔哩哔哩】 https://b23.tv/4xUhnLi
+官号动了一下，上传了母鸡卡的旧live
+
+*****
+
+####  御幸一也  
+##### 9177#       发表于 2024-1-18 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686481&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-18 10:45</a>
+
+要补猫希剧情正好可以利用手游新剧情，我反正是希望整点新东西出来。如果硬插一个干瘪的总集篇，wsd是nc到 ...</blockquote>
+期待總集篇有大量新畫面有點不切實際啊，以我看過的骨王和來自深淵總集篇來說，最多最多也就是多了5min不到的新東西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你不如期待一下官方是不是真的會剪一個純淨版mygo出來，我想看看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -5584,3 +5584,14 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 
 新选组也上不了门面吧。大概泛人类史的伊织只能砍被迫造反的农民，所以也失去了对武的追求。不知最后是不是娶了妹妹所以才升职升得那么快
 
+
+*****
+
+####  清河子  
+##### 11026#       发表于 2024-1-19 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63694941&amp;ptid=2084912" target="_blank">武男 发表于 2024-1-18 22:58</a>
+如果他有机会能出这样的一剑绝不会错过就是了，付出相应的代价以后赋予奥尔特这样的存在破绽或者 ...</blockquote>
+你别说，已经看到伊织打ort的截图了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">虽然打不过但伊织一定爽到飞呀，再失忆把自己忘了也不能忘了打过这么爽的架，塔塔开，塔诺希！
+

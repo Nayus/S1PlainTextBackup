@@ -2346,3 +2346,21 @@ wsd费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/093.
 
 2024-1-18 16:44 上传
 
+
+*****
+
+####  御幸一也  
+##### 9204#       发表于 2024-1-18 16:53
+
+<img src="https://img.saraba1st.com/forum/202401/18/165045jrufrh2crz0vfvk8.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (65.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 16:50 上传
+
+泥樓關心的維護原因，果然是和課金有關的，商店的處理出了問題<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+估計是營運方從手工蛋變成武士道，所以更改課金結算的各種東西改出事了
+

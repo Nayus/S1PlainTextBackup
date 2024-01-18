@@ -747,3 +747,60 @@ MX5 一吨出头，4m车长，确实不是一个级别的对手<img src="https:/
 
 —— 来自 Xiaomi M2011K2C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  大普罗托斯  
+##### 76#       发表于 2024-1-18 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63687861&amp;ptid=2168461" target="_blank">silverfoxz 发表于 2024-1-18 12:32</a>
+多说一句，自从这车上市后，身边的Z4或者718车主心态还算好，至少还能谈谈品牌价值自我安慰下，最玻璃心碎 ...</blockquote>
+那楼主能介绍一台mx5给我接盘吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝川澈  
+##### 77#       发表于 2024-1-18 16:58
+
+miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去手
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  macos  
+##### 78#       发表于 2024-1-18 17:00
+
+mg不是1/100吗你的怎么那么大
+
+*****
+
+####  土豆麻辣人  
+##### 79#       发表于 2024-1-18 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686490&amp;ptid=2168461" target="_blank">xinkj007 发表于 2024-1-17 20:45</a>
+个人对敞篷是没太多兴趣的
+
+如果有厂子出硬顶那我下一辆车会考虑...
+
+反正我是没多少家用需求的那边 ...</blockquote>
+哪吒GT，那你买不买啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xinkj007  
+##### 80#       发表于 2024-1-18 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690965&amp;ptid=2168461" target="_blank">土豆麻辣人 发表于 2024-1-18 17:00</a>
+
+哪吒GT，那你买不买啊
+
+—— 来自 S1Fun</blockquote>
+现在这车才刚买两年呢
+
+MG这个开始宣传的时候我就拉哪吒GT对比了
+
+真到换车的时候如果还有这类型的我肯定会考虑的
+

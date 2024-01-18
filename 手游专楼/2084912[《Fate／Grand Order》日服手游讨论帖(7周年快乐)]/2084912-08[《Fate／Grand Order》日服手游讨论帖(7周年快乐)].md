@@ -5347,3 +5347,16 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 能给个中式铠甲皮肤吗，虽然我知道希望渺茫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11004#       发表于 2024-1-18 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688501&amp;ptid=2084912" target="_blank">武男 发表于 2024-1-18 13:35</a>
+
+比起FSR来说，FGO可谓是末法之世，真实修罗恶鬼的极乐净土，只要想天天都有战斗打，还有天花板可 ...</blockquote>
+fsr可是兩條路線都不能釋放自己，連持刀都要特許，來到FGO能合法砍X人，而且對方大多都只是掛著人皮的英靈，甚麼能大戰各種牛鬼蛇神(無誤)，都不用放一個盈月儀這個不安因素，等待何時才有人上門
+
+還不快快正式在FGO落戶嗎?
+

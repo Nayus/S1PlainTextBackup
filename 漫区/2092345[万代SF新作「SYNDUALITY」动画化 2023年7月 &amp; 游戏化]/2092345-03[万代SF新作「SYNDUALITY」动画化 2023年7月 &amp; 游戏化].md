@@ -1842,3 +1842,14 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 <img src="https://p.sda1.dev/15/e8ee615a802ac16750f927bb36f47ab7/20240118_205025.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/b456ad6146c9b4431b8c5aa345ac71a3/20240118_205026.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星降る森  
+##### 3490#       发表于 2024-1-18 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63668793&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-1-16 18:28</a>
+
+但是要是输掉的话就等于把诺娃/米斯蒂输出去了，又得花好久抢回来就没意思了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/249.png" referrerpolicy="no-referrer">输掉，变成绿色回归，就决定是你了
+

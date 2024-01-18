@@ -2244,3 +2244,14 @@ filmlive如果真是ave mujica的首场演出完整版就搞笑了<img src="http
 
 秉承着炒饭就是粒粒分明才好的理念，武士道决定把总集篇做成纯净mygo把filmlive做成纯净mujica首演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 9194#       发表于 2024-1-18 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688119&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-18 12:58</a>
+
+因为这游戏是8+所以里面所有角色的耳饰都是夹上去的</blockquote>
+没夹过，这样激烈运动不会掉下来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

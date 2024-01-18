@@ -5301,3 +5301,21 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 复刻池可别不带正雪玩，丑御前是真不想要
 
+
+*****
+
+####  洛克萨斯  
+##### 10999#       发表于 2024-1-18 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">正雪精神状态还好么，在迦勒底找天草谈心，找巴妈聊她老公
+
+*****
+
+####  DARKGRAY  
+##### 11000#       发表于 2024-1-18 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63685922&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-1-18 09:58</a>
+
+盲猜一个这地根本不存在master，登场的master其实全是servant只是不自知，就像伊织是剑阶正雪是术阶，某个 ...</blockquote>
+不太可能，会看自己手上有没有令咒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

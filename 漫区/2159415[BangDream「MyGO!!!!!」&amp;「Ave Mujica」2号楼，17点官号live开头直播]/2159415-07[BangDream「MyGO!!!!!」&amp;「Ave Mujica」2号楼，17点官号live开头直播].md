@@ -2114,3 +2114,41 @@ hibiki你管管啊
 
 現在動畫13話扣掉OPED就差不多塞滿時長了，呃……真的純淨版mygo？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 9181#       发表于 2024-1-18 12:26
+
+纯净版mygo不是有过了吗？13集前那个
+
+*****
+
+####  NODY  
+##### 9182#       发表于 2024-1-18 12:27
+
+前篇真的只走猫视角的话别说mujica，mygo的戏份都得砍掉不少，除非真的设定猫其实在前7集所有场景都偶然路过现场刚好在旁边围观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以我倾向与就是正常剪个总集篇配猫的独白当背景音，最多开头加个两分钟space倒闭和猫到处溜达的画面
+
+*****
+
+####  acgreen  
+##### 9183#       发表于 2024-1-18 12:27
+
+我倒是希望看到纯净版mygo，不会让我再看到“鸡占狗戏份”这种话<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+

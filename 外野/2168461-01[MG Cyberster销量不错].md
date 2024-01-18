@@ -804,3 +804,16 @@ MG这个开始宣传的时候我就拉哪吒GT对比了
 
 真到换车的时候如果还有这类型的我肯定会考虑的
 
+
+*****
+
+####  玉树临疯啊备用  
+##### 81#       发表于 2024-1-18 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63689785&amp;ptid=2168461" target="_blank">itsmyrailgun 发表于 2024-1-18 15:20</a>
+
+MG Cyberster
+
+我以为万代终于愿意出MG的新通贩机体了</blockquote>
+万代真出MG Cyberster，也不是不能考虑。
+

@@ -51,3 +51,11 @@
 
 为了省道满现在五加成刷qp中，问就是没有faker不能走双哈贝喵faker……反正我中间弃坑也错过了医生礼装，缺5%就缺吧
 
+
+*****
+
+####  GuDaZi  
+##### 45927#       发表于 2024-1-18 17:06
+
+2个十连，尼托到手。一个池子欧，下个池子非。也太守恒了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -5360,3 +5360,14 @@ fsr可是兩條路線都不能釋放自己，連持刀都要特許，來到FGO�
 
 還不快快正式在FGO落戶嗎?
 
+
+*****
+
+####  exiaexa  
+##### 11005#       发表于 2024-1-18 17:09
+
+草，钢屋把日本饭桶整出了一股跑团的感觉
+
+一群人在推主线的时候，刁民跑出来对KP说我们要吃早饭
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

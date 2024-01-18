@@ -1828,3 +1828,17 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Piano-Forest  
+##### 3489#         楼主| 发表于 2024-1-18 20:51
+
+第13話「Double cast」原画
+<img src="https://p.sda1.dev/15/aa06c830021b5d3c95b51a9c0384231b/20240118_205011.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/69962c5722f705275935430f5967a63a/20240118_205015.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/88f5e8e86c61cfef69fe4e4de18c0d21/20240118_205019.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/a5b4d372c622ee57c0a4d1f09a2ff159/20240118_205023.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/e8ee615a802ac16750f927bb36f47ab7/20240118_205025.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b456ad6146c9b4431b8c5aa345ac71a3/20240118_205026.jpg" referrerpolicy="no-referrer">
+

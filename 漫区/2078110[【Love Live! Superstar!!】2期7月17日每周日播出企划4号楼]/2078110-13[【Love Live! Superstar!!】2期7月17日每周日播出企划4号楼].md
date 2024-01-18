@@ -688,3 +688,11 @@ liella的首次登上冠军宝座
 
 只领先了第二的hkt48 100多张的销量
 
+
+*****
+
+####  仟音一心  
+##### 19173#       发表于 2024-1-18 20:43
+
+<img src="https://p.sda1.dev/15/caeefa982a1aa59b55584de2**ca4b/CMP_20240118204339291.jpg" referrerpolicy="no-referrer">
+

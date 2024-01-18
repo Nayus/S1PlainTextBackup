@@ -5162,3 +5162,16 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 盲猜一个这地根本不存在master，登场的master其实全是servant只是不自知，就像伊织是剑阶正雪是术阶，某个原master是骑阶（比如地右卫门）所以丑御前才去了仇阶，但是丑御前蔫坏所以不跟正雪说，贞德出于怜悯？也没跟地右卫门说，武尊是因为跟伊织的缘分（爱情的力量）连锁召唤过来的无主从者，打从一开始就没算在内（剑阶伊织占着呢），盈月loop的原因就是目前这场圣杯战争没有御主，只有从者互相厮杀满足不了条件
 
+
+*****
+
+####  UNISONIA  
+##### 10986#       发表于 2024-1-18 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63681608&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-17 20:42</a>
+
+我TM
+
+2期是吧 有宝具吗</blockquote>
+没有宝具，大体上是缝合了之前的Ruler黑贞和Avenger黑贞的动作，加了两个双手枪攻击的新动作
+

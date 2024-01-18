@@ -2010,3 +2010,20 @@ hibiki你管管啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说不定真就换LOGO失败呢
 
+
+*****
+
+####  6030sylar  
+##### 9170#       发表于 2024-1-18 10:18
+
+阿武，不行的话把阿蛋请回来吧，不丢人
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DarthAka  
+##### 9171#       发表于 2024-1-18 10:21
+
+以武士道的草台程度真就是换不了logo不是不可能
+

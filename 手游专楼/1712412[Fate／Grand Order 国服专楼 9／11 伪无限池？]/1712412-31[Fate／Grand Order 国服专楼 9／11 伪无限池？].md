@@ -35,3 +35,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">等仇尼托了
 
+
+*****
+
+####  xy1041  
+##### 45925#       发表于 2024-1-18 10:17
+
+自己的道满能省则省，以后白纸化地球的本还得靠他<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

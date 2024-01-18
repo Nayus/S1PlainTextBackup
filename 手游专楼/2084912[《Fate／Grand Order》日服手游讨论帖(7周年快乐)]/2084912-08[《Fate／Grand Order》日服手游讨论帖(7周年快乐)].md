@@ -5175,3 +5175,14 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 2期是吧 有宝具吗</blockquote>
 没有宝具，大体上是缝合了之前的Ruler黑贞和Avenger黑贞的动作，加了两个双手枪攻击的新动作
 
+
+*****
+
+####  武男  
+##### 10987#       发表于 2024-1-18 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63685234&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-18 08:55</a>
+
+语音里都声线兴奋到颤抖了，战！</blockquote>
+今次真是死也值回票价了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

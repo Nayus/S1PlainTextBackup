@@ -43,3 +43,11 @@
 
 自己的道满能省则省，以后白纸化地球的本还得靠他<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 45926#       发表于 2024-1-18 10:25
+
+为了省道满现在五加成刷qp中，问就是没有faker不能走双哈贝喵faker……反正我中间弃坑也错过了医生礼装，缺5%就缺吧
+

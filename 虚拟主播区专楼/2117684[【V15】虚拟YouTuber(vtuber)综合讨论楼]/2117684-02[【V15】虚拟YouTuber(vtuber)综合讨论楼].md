@@ -711,3 +711,11 @@ And just like that everyone forgot about pomu's upcoming graduation
 
 国乙日服工商找了男管人和腐女被国乙解在wb小范围炎上这事听起来怪好笑的
 
+
+*****
+
+####  aritaatsu222  
+##### 2918#       发表于 2024-1-18 10:28
+
+追加：男管人里有腐男还有男同
+

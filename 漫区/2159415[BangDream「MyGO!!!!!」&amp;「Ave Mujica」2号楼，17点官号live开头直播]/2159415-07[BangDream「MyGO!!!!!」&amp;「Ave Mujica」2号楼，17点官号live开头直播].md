@@ -2194,3 +2194,15 @@ hibiki你管管啊
 说起来邦邦这些耳坠是贴上去的还是真的打耳洞了，灯灯 lisa 睦头的耳坠都挺好看的，挺能丰富角色形象[f:075 ...</blockquote>
 因为这游戏是8+所以里面所有角色的耳饰都是夹上去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 9188#       发表于 2024-1-18 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688119&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-18 12:58</a>
+因为这游戏是8+所以里面所有角色的耳饰都是夹上去的</blockquote>
+草，果真是挂件啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大家都是普通的爱美的好孩子呢
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

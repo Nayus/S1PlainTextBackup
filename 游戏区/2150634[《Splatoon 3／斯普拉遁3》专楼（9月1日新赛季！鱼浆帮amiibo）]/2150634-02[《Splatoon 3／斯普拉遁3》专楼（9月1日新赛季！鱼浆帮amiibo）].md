@@ -9741,3 +9741,11 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 我也觉得武器挺好的，但是稍微打一会就会陷入赢不了魔咒
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2482#       发表于 2024-1-18 09:01
+
+昨天看主播打鱼肉碎金属打到破防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这图到现在都不改我是真不懂研究所
+

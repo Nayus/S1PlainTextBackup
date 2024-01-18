@@ -907,3 +907,15 @@ miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去�
 
 这个车是好车，对有闲钱到可以买fun car的人，的确是家里第二台或第三台车的好选择。我觉得它的竞争对手，不仅仅是跑车，恐怕还包括坦克300，500这种不实用的fun car.
 
+
+*****
+
+####  二道河  
+##### 90#       发表于 2024-1-18 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63689896&amp;ptid=2168461" target="_blank">nuqzyc 发表于 2024-1-18 15:31</a>
+纯电车彪彪加速就好了，标榜自己是小跑车不是自取其辱吗
+
+但是！！！极其欣赏这种愿意出小众车的车企 ...</blockquote>
+首先，纯电车早就不是只会崩零百了。第二，这车不小。
+

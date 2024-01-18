@@ -2657,3 +2657,14 @@ mujica进手游第一个实装的活动大概率也是补动画戏份少的两�
 
 2024-1-19 01:24 上传
 
+
+*****
+
+####  江口夕  
+##### 9231#       发表于 2024-1-19 01:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">戏份扯头花去游戏扯，动画里扯想屁吃，而且你棒从来是按乐队单位来结算一荣俱荣一损俱损。老r火了全团吃香，甚至中之人换了都能迅速起飞。
+楼友与其在这扯这些有的没的不如现实里去mygo live占占座位。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -597,3 +597,49 @@ wow竟然猜对了，厉害
 
 沙发套老矣，尚能45°否<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 69#       发表于 2024-1-18 18:15
+
+唉，什么时候才能再看到尾石新作
+
+*****
+
+####  Lollipopstar  
+##### 70#       发表于 2024-1-18 18:16
+
+真的过年了<img src="https://static.saraba1st.com/image/smiley/carton2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 71#       发表于 2024-1-18 18:17
+
+措辞是”2024年制作决定“，感觉不一定是tv放送
+
+*****
+
+####  acacaclove  
+##### 72#       发表于 2024-1-18 18:18
+
+沙发套他还有活吗？
+
+*****
+
+####  Tachikoma88  
+##### 73#       发表于 2024-1-18 18:21
+
+物语都要有续作了，那我三狮能否让nhk和羽海野老师再让新房出山<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dot  
+##### 74#       发表于 2024-1-18 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691668&amp;ptid=2168085" target="_blank">moshizhe 发表于 2024-1-18 18:00</a>
+
+更可怕的不是物语今年就要出来吗，还同时有回天呢，shaft产能回复了吗</blockquote>
+总有说shaft走了很多人（其实没多少，因为本来就没多少人）导致shaft产能降低的，其实现在shaft员工人数比以前多了不少，差不多要翻倍了。产能降低主要是18年开始shaft基本不发统包了。
+

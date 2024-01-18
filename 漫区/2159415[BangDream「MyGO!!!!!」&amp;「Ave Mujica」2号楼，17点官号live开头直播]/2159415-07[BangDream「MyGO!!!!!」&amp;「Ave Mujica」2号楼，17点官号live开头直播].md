@@ -2382,3 +2382,14 @@ wsd费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/093.
 
 工艺蛋：我一次也没有觉得制作邦多利游戏开心过
 
+
+*****
+
+####  傘木希美  
+##### 9207#       发表于 2024-1-18 18:17
+
+【【中切】被远处传来的春日影合唱吓到的青木阳菜-哔哩哔哩】 https://b23.tv/jIGSoIS
+看底下评论说，还是没听到北京的合唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">可惜
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

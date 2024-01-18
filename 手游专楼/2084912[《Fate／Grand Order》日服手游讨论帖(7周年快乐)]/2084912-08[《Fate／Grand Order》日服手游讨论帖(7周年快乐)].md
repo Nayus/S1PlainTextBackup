@@ -5486,3 +5486,11 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 
 前两面六怪水妖兰带徐福就能打三发 其他蓝卡做得到吗
 
+
+*****
+
+####  シャル  
+##### 11017#       发表于 2024-1-18 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

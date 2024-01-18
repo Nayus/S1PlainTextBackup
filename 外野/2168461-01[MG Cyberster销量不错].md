@@ -860,3 +860,21 @@ miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  FurryBall  
+##### 85#       发表于 2024-1-18 18:17
+
+现在mx5，运损车26.5，全新27、28，价格回归不少
+
+*****
+
+####  JOY_GoGo  
+##### 86#       发表于 2024-1-18 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690104&amp;ptid=2168461" target="_blank">大普罗托斯 发表于 2024-1-18 15:51</a>
+
+换平开门应该买的人更多</blockquote>
+其实这类单排长车门的车 剪刀门在国内是比较合乎实际需求的 但成本的确是贵 希望后续有个平开门版本拉低一下价格
+

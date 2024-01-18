@@ -5245,3 +5245,51 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想抽4星 all in 无事发生 现在突出一个后悔
 
+
+*****
+
+####  里村紅葉  
+##### 10994#       发表于 2024-1-18 13:44
+
+艹，杰罗尼莫是正雪老师的名誉塾生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 10995#       发表于 2024-1-18 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688569&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-18 13:42</a>
+
+想抽4星 all in 无事发生 现在突出一个后悔</blockquote>
+不要难受，还有11单的冤种在这里陪你
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 10996#       发表于 2024-1-18 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688613&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-18 13:46</a>
+
+不要难受，还有11单的冤种在这里陪你</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新想着不出4星就算了 怎么2宝也不来（
+
+*****
+
+####  シャル  
+##### 10997#       发表于 2024-1-18 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688569&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-18 13:42</a>
+
+想抽4星 all in 无事发生 现在突出一个后悔</blockquote>
+正雪先生4宝路过<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+7DEEB0B8-1B46-4CBC-A96A-49AD63F05E6E.jpeg
+(691.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 13:49 上传
+
+<img src="https://img.saraba1st.com/forum/202401/18/134933gcd5pxw5csvtjerh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

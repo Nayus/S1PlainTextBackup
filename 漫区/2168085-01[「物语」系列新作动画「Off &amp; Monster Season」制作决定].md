@@ -573,3 +573,27 @@ wow竟然猜对了，厉害
 当然，这个问题更加可怕了。 ...</blockquote>
 更可怕的不是物语今年就要出来吗，还同时有回天呢，shaft产能回复了吗
 
+
+*****
+
+####  仟音一心  
+##### 66#       发表于 2024-1-18 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691668&amp;ptid=2168085" target="_blank">moshizhe 发表于 2024-1-18 18:00</a>
+更可怕的不是物语今年就要出来吗，还同时有回天呢，shaft产能回复了吗</blockquote>
+今年制作吧，工期爆炸什么的怕是家常便饭了。
+
+*****
+
+####  wolf1997  
+##### 67#       发表于 2024-1-18 18:13
+
+轮到吉泽翠了，沙发套的新生代还剩下多少个，之前大谷肇和冈田坚二郎跑路实在是太伤了
+
+*****
+
+####  隔壁的王某某  
+##### 68#       发表于 2024-1-18 18:14
+
+沙发套老矣，尚能45°否<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

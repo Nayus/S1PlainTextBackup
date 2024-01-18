@@ -1015,3 +1015,13 @@ mihon和tachiyomi速度也一样吗
 
 怎么换人维护了还是没有官方源的太监，感觉不如 kotetsu，同样被 kaoko 发了 dmca 屁事都没有
 
+
+*****
+
+####  pgain2004  
+##### 80#         楼主| 发表于 2024-1-18 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691693&amp;ptid=2167901" target="_blank">hrha 发表于 2024-1-18 18:02</a>
+怎么换人维护了还是没有官方源的太监，感觉不如 kotetsu，同样被 kaoko 发了 dmca 屁事都没有 ...</blockquote>
+要加也不是现在加啊……而且会被Kakao盯上估计是webtoon流量上的变化被注意到了，Tachiyomi毕竟用户量更大
+

@@ -997,3 +997,13 @@ Mihon用了新版安卓统一的文件管理api，访问存储的速度慢了好
 
 wnacg挂掉了，看了眼把网址列表换成主站重新build就好了（搞不懂为什么一直要用镜像网址），最后还是得靠自己
 
+
+*****
+
+####  keroghy  
+##### 78#       发表于 2024-1-18 16:16
+
+mihon和tachiyomi速度也一样吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

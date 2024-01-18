@@ -646,3 +646,21 @@ MX5 一吨出头，4m车长，确实不是一个级别的对手<img src="https:/
 <blockquote>另外还有电子模拟声浪，听起来像是V12发动机。</blockquote>
 纯搞子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  OZV522  
+##### 66#       发表于 2024-1-18 16:20
+
+四驱两门敞篷破百三秒多，落地不到四十万，搁以前想都不敢想
+
+*****
+
+####  OZV522  
+##### 67#       发表于 2024-1-18 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686512&amp;ptid=2168461" target="_blank">作死鸟 发表于 2024-1-18 10:47</a>
+
+我已经在劝我妈这种不上班的中老年人干脆买这个算了，比她原来想买的进口车又便宜又好用…… ...</blockquote>
+是你自己想要吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

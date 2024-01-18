@@ -817,3 +817,35 @@ MG Cyberster
 我以为万代终于愿意出MG的新通贩机体了</blockquote>
 万代真出MG Cyberster，也不是不能考虑。
 
+
+*****
+
+####  无印凉粉  
+##### 82#       发表于 2024-1-18 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690937&amp;ptid=2168461" target="_blank">蓝川澈 发表于 2024-1-18 16:58</a>
+
+miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去手
+
+  -- 来自 能搜索的 Stage1官方 Android ...</blockquote>
+来，别光说不练
+
+<img src="https://img.saraba1st.com/forum/202401/18/173456y6mj6zr2rr2hepd8.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240118173436.jpg</strong> (156.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 17:34 上传
+
+*****
+
+####  菲特妹  
+##### 83#       发表于 2024-1-18 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690937&amp;ptid=2168461" target="_blank">蓝川澈 发表于 2024-1-18 16:58</a>
+miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去手
+
+  -- 来自 能搜索的 Stage1官方 Android ...</blockquote>
+平行进口的手动软顶nd2二手二十多随便买。新车也就28<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

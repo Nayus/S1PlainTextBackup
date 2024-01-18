@@ -5454,3 +5454,14 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 
 正雪：为何，为何，为何…呜，呜呜呜…呜……（抽泣）
 
+
+*****
+
+####  cenhr  
+##### 11014#       发表于 2024-1-18 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691271&amp;ptid=2084912" target="_blank">武男 发表于 2024-1-18 17:25</a>
+
+比起兽来说，他那点真不算啥事情，迦勒底连兽都一起共斗。</blockquote>
+何况伊织只是想和强者分高下，决生死，并不是什么滥杀无辜的杀人狂
+

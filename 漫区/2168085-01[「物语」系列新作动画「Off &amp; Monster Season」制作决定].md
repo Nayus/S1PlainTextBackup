@@ -849,3 +849,13 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
  被剧透小忍变女儿，后面小说都不想补了</blockquote>
 不要剧透我啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狼王卢比奥  
+##### 97#       发表于 2024-1-19 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63693059&amp;ptid=2168085" target="_blank">Junglemgs 发表于 2024-1-18 20:08</a>
+吉泽翠在自己ins上提到过从去年8、9月就开始忙了，应该是那时候就进入实际制作阶段 ...</blockquote>
+去年十一月份的时候井口裕香也说接到了久违的角色，至少感觉愚物语今年能播
+

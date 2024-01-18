@@ -82,3 +82,13 @@
 链接:https://pan.baidu.com/s/12laqnfckzCDwXxuFwof3XQ?pwd ...</blockquote>
 装哪个包好，最终包吗？
 
+
+*****
+
+####  轻拳轻拳阿力古  
+##### 200#       发表于 2024-1-19 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63694800&amp;ptid=2127335" target="_blank">吟风 发表于 2024-1-18 22:44</a>
+装哪个包好，最终包吗？</blockquote>
+刷个原版搓两把得了，这玩意性能很弱的，滤镜也没几个。我拿它当个便宜pc摇杆用。
+

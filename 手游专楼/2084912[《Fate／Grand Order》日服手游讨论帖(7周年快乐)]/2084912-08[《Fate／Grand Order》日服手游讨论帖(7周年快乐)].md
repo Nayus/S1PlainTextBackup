@@ -5549,3 +5549,16 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 
 伊织算是个现实主义者，他也很清楚自己的剑技（算上底牌二刀流燕返）没办法和两位武藏以及真小次郎相提并论的，夜不明对他来说也是个重过程不重结果的挣扎了
 
+
+*****
+
+####  DARKGRAY  
+##### 11023#       发表于 2024-1-19 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63693808&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-18 21:12</a>
+
+對伊織只是武藏剛離開時間點，但對FGO已是形神俱滅查無資料狀態，眾人都是不停回憶她最後一刀
+
+期待一下伊 ...</blockquote>
+理论上这个世界能创造点条件捞一下，不知道有没有意欲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

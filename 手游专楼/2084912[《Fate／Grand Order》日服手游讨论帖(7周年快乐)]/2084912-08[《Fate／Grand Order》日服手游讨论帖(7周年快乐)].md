@@ -5494,3 +5494,14 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11018#       发表于 2024-1-18 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691398&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-18 17:36</a>
+
+何况伊织只是想和强者分高下，决生死，并不是什么滥杀无辜的杀人狂</blockquote>
+刃牙武藏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

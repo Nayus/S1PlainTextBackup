@@ -5553,3 +5553,20 @@ miko对这次菜品的监修程度很高，说是对自家的口味有很特别�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rs5621  
+##### 8032#       发表于 2024-1-18 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再不发推,就默认过夜了
+
+*****
+
+####  holoan  
+##### 8033#         楼主| 发表于 2024-1-18 21:48
+
+确实是过夜了啊，刚才说虽然不一起入浴但是晚上会一起睡觉，miko还已经把自己睡衣带上了
+
+其实之前也过夜了也就那回事不会发生什么的，大概就随便聊聊私事完了
+

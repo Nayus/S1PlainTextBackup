@@ -26661,3 +26661,153 @@ AlphaGeometry基于Google DeepMind和Google Research’s work的工作，开创�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1195#       发表于 2024-1-18 21:41
+
+garfield
+
+用辐射场对一切进行分组(Group Anything)
+
+项目主页:https://www.garfield.studio/
+
+github项目代码仓库:https://github.com/chungmin99/garfield
+
+由于可以分解场景的多个粒度级别，分组在本质上是不明确的——挖掘机的轮子应该被视为独立的还是整体的一部分？ 
+
+本文提出了使用辐射场对任何事物进行分组(GARField/Group Anything with Radiance Fields)，这是一种将3D场景从姿态图像输入分解为具有语义意义上的分组层次结构的方法，可以通过物理尺度(physical scale)来接受群体模糊性(group ambiguity):通过优化以尺度为条件的3D近似特征场(scale-conditioned 3D affinity feature field)，世界上的任何一个点都可以属于不同大小的不同组
+
+通过Segment Anything(SAM)提供的一组2D掩码，以从粗到细的层次结构(coarse-to-fine hierarchy)的原则优化场(field)，使用尺度来一致地融合源于不同视点的冲突掩码，从场中可以通过自动树构建(automatic tree construction)或用户交互(user interaction)导出可能的分组层次结构
+
+在各种真实自然场景中评估了GARField，发现它可以有效地提取多个级别的组:对象聚合、对象和各种子部分(clusters of objects, objects, and various subparts)，GARField本质上代表多视图一致的分组，可以产生比输入的SAM掩码更高保真度的分组，GARField的分层分组具有令人兴奋的下游应用，例如3D资产提取或动态场景理解等
+
+<img src="https://img.saraba1st.com/forum/202401/18/213950jnvc3ce3icsnemwe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213519__01.jpg</strong> (517.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:39 上传
+
+GARField，它将表示为掩码的多级组提炼到NeRF中，以创建以尺度为条件的3D近似场(左上)，一旦训练完成，近似场就可以在不同的尺度上进行聚类，将场景分解为不同粒度的层次，例如将挖掘机分解为其子部件(底部)，可以通过自动提取场景中的每个组或通过用户点击来从这个层次结构中提取3D资产，如图所示(右上)
+
+<img src="https://img.saraba1st.com/forum/202401/18/213955gjuj2kk3yj3a1q9c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213527__01.jpg</strong> (68.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:39 上传
+
+尺度的重要性，分组时，一个点可能属于多个组，GARField使用尺度作为条件来将这些冲突的信号统一到一个近似场中
+
+<img src="https://img.saraba1st.com/forum/202401/18/214000a1mptmk1t5w7wpwt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213535__01.jpg</strong> (295.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+GARField方法:(左)给定一个输入图像集，通过密集查询SAM提取一系列候选组，并通过从NeRF中反投影深度(deprojecting depth from the NeRF)分配每个物理尺度，这些尺度用于训练一个与尺度相关的近似场(右)
+
+在训练过程中，如果采样的光线对(pairs of sampled rays)位于不同的掩码中，则将它们推开；如果它们在同一个掩码中，则拉近它们，近似(Affinity)仅在每个掩码的尺度上监督，这有助于解决它们之间的冲突
+
+<img src="https://img.saraba1st.com/forum/202401/18/214008truz3rxrx0nkrvsf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213549__01.jpg</strong> (148.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+密集尺度监督(Densified Scale Supervision):考虑一个聚类中的两个葡萄，如果只是简单的使用尺度进行对比损失(contrastive loss)只能在葡萄和葡萄架(grape trio)的层次上监督近似，留下了整个区间没有监督，在GARField中，通过以下方式密集增强了监督:
+1.在掩码的欧几里得尺度之间增强尺度
+2.对包含的更大尺度施加了辅助损失
+
+<img src="https://img.saraba1st.com/forum/202401/18/214016vpkms9uugpze98h3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213549__02.jpg</strong> (183.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+通过交互选择进行3D资产提取:用户可以使用点击和单尺度来交互选择与视角一致的3D组
+
+<img src="https://img.saraba1st.com/forum/202401/18/214022tgc7ewgfof58a4a4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213557__01.jpg</strong> (247.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+3D分解:GARField可以递归式的递减尺度查询，将场景聚类成对象及其子部分
+
+<img src="https://img.saraba1st.com/forum/202401/18/214028bz8uz4hphii7f3cf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213623__01.jpg</strong> (377.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+结果:从GARField中可以通过选择的top聚类从全局场景中提取对象，然后在递减的尺度上可视化它们的局部聚类，GARField可以生成完整的3D对象掩码，并根据输入的掩码将这些对象分解为有意义的子部分，通过使用高斯泼溅在3D中生成了可视化效果
+
+<img src="https://img.saraba1st.com/forum/202401/18/214037lvsdsh8pd1w11dhg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213649__01.jpg</strong> (185.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+Segment-Anything vs. GARField:SAM的自动掩码生成器可能会在从给定视点中回忆起所有掩码时遇到困难，特别是当存在小掩码的聚类并且摄影机距离物体较远时，相比之下，GARField的尺度条件近似场结合了来自3D的多个视点的掩码
+
+<img src="https://img.saraba1st.com/forum/202401/18/214043pfk505mz8k3kfk9c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213658__01.jpg</strong> (138.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+消融实验:在没有密集层次监督的情况下，点可能在不同尺度上出现不一致的近似，可能存在以下情况:
+1.在无监督尺度上出现虚假的大近似
+2.在较大尺度上近似意外丢失
+
+<img src="https://img.saraba1st.com/forum/202401/18/214050f7bve48eeawd9amw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213709__01.jpg</strong> (111.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+3D完整性，报告了单个点与多达三个层次的层次结构的场景标注的mIOU，相比GARField，SAM在产生视图一致的良好细分组方面存在困难
+
+<img src="https://img.saraba1st.com/forum/202401/18/214056hcf9cm9gtrc9fr8c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213709__02.jpg</strong> (92.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:40 上传
+
+层次分组召回(Hierarchical Grouping Recall):报告了相对于人类的不同对象的多尺度组的mIOU
+
+<img src="https://img.saraba1st.com/forum/202401/18/214102zop370t1okv0vc4p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240118-213717__01.jpg</strong> (186.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:41 上传
+
+从图7中选择的场景的全场景聚类可视化
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

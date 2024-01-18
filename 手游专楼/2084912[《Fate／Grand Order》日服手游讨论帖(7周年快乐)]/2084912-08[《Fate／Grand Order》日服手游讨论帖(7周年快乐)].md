@@ -5520,3 +5520,24 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 
 還是會否在2.8中也學師傅要去斬門斬星但無力，於是出5星版本，就看FSR那裡的DLC會有甚麼新劇情
 
+
+*****
+
+####  武男  
+##### 11020#       发表于 2024-1-18 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691307&amp;ptid=2084912" target="_blank">清河子 发表于 2024-1-18 17:28</a>
+
+还真是，虽然地狱笑话了，但是给伊织看看那段记录怕不是酸得咬手绢啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">如果他有机会能出这样的一剑绝不会错过就是了，付出相应的代价以后赋予奥尔特这样的存在破绽或者说击退祂还是比较符合你月的剧情架构的。
+
+*****
+
+####  武男  
+##### 11021#       发表于 2024-1-18 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691398&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-18 17:36</a>
+
+何况伊织只是想和强者分高下，决生死，并不是什么滥杀无辜的杀人狂</blockquote>
+时移世易啊，在FGO这个魔法之世连佛陀和鸽子都闭上了眼睛的时代，你用空境这样的道德观来处理事情自然是没办法的。
+

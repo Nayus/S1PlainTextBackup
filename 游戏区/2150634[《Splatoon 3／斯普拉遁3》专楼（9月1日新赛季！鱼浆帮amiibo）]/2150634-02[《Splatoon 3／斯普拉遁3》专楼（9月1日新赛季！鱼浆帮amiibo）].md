@@ -9781,3 +9781,15 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 送的什么？ 终于联动杂志了？
 
+
+*****
+
+####  Teiume  
+##### 2485#       发表于 2024-1-18 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63687374&amp;ptid=2150634" target="_blank">美式咖啡 发表于 2024-1-18 11:51</a>
+送的什么？ 终于联动杂志了？</blockquote>
+「鱿型fanboos3」附录赠送金色鱿鱼酱。看起来像是封面的这个小食玩。
+之前也有送过的，买杂志送金色小绿（好像是小绿）。
+以及淘宝可以直接找到这个小食玩的预订。
+

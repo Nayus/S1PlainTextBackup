@@ -5227,3 +5227,21 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 
 义仲：麻了，没混到落地就算了，活动开场还杀个老婆助助兴<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武男  
+##### 10992#       发表于 2024-1-18 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63687327&amp;ptid=2084912" target="_blank">kyonkoism 发表于 2024-1-18 11:47</a>
+
+伊织的语音笑死我了，一整个FSR没见过这么兴奋的伊织，“哦↑ ↑  哦哦哦哦哦↑ ↑ ↑ ” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">比起FSR来说，FGO可谓是末法之世，真实修罗恶鬼的极乐净土，只要想天天都有战斗打，还有天花板可以摆在你的面前让你一碰。
+
+*****
+
+####  alucardcz  
+##### 10993#       发表于 2024-1-18 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想抽4星 all in 无事发生 现在突出一个后悔
+

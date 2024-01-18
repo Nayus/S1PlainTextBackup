@@ -9804,3 +9804,23 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  罗克萨斯  
+##### 2487#       发表于 2024-1-18 18:40
+
+还有一个多月，奶狗拉应该有机会把鹦鹉螺打上4000分
+
+<img src="https://img.saraba1st.com/forum/202401/18/184049d93wnhzo3ocp8w33.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-18-17-27-22-198_com.nintendo.znca-edit.jpg</strong> (228.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 18:40 上传
+
+看着排行榜上鹦鹉螺和52这么生猛，研究所有理由继续鸽它俩的贴牌了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

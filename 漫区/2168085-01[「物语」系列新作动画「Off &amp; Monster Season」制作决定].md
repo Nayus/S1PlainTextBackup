@@ -672,3 +672,56 @@ shaft人员流失前大约70人左右吧，现在好像有110多人了，主要�
 
 沙发套现在我只有一个要求:能献祭的都可以献祭，只要能保住回天就行，魔圆寄了真不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  楠城旧篱  
+##### 79#       发表于 2024-1-18 18:37
+
+只是制作决定，工期应该没那么紧张吧……
+
+*****
+
+####  kisstv22  
+##### 80#       发表于 2024-1-18 18:37
+
+emmmm<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Unlight  
+##### 81#       发表于 2024-1-18 18:41
+
+草
+
+<img src="https://img.saraba1st.com/forum/202401/18/184152lyf771e3f8jl2ye7.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2190.JPG</strong> (330.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 18:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Unlight  
+##### 82#       发表于 2024-1-18 18:42
+
+所以说回被车烂的老掉牙话题
+为何十几年前鼎盛的沙发套会成了现在这个样子？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  八雲みたま  
+##### 83#       发表于 2024-1-18 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691483&amp;ptid=2168085" target="_blank">dot 发表于 2024-1-18 17:43</a>
+虽有做过副监督，但基本都是负责几集的，感觉不算。</blockquote>
+宫本幸裕徒弟，之前基本是打下手
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -69,3 +69,16 @@
 
 看到说明文件了，谢谢
 
+
+*****
+
+####  吟风  
+##### 199#       发表于 2024-1-18 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691319&amp;ptid=2127335" target="_blank">轻拳轻拳阿力古 发表于 2024-1-18 17:29</a>
+
+【超级会员V9】通过百度网盘分享的文件：SNK
+
+链接:https://pan.baidu.com/s/12laqnfckzCDwXxuFwof3XQ?pwd ...</blockquote>
+装哪个包好，最终包吗？
+

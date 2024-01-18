@@ -1853,3 +1853,14 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 但是要是输掉的话就等于把诺娃/米斯蒂输出去了，又得花好久抢回来就没意思了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/249.png" referrerpolicy="no-referrer">输掉，变成绿色回归，就决定是你了
 
+
+*****
+
+####  aptx8285144  
+##### 3491#       发表于 2024-1-18 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63693562&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-1-18 20:51</a>
+
+第13話「Double cast」原画</blockquote>
+原画看不到（
+

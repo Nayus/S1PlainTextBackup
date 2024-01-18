@@ -839,3 +839,13 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 去年就有外包泄露传闻了，甚至有科学猴做愚物语的离谱消息
 
+
+*****
+
+####  西门庆大官人  
+##### 96#       发表于 2024-1-18 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691060&amp;ptid=2168085" target="_blank">姐霓姐霓 发表于 2024-1-18 17:09</a>
+ 被剧透小忍变女儿，后面小说都不想补了</blockquote>
+不要剧透我啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

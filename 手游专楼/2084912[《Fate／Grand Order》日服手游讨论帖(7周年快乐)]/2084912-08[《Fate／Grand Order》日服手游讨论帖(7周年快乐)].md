@@ -5143,3 +5143,14 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 伊织：居然能跟这么多高手打交（指能触发这语音的从者有120多个），迦勒底真是个好地方啊 ...</blockquote>
 语音里都声线兴奋到颤抖了，战！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 10984#       发表于 2024-1-18 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63681086&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-1-17 19:53</a>
+
+这傻逼运营是专门整一些烂活啊....主线非要塞一堆会增援的小怪关卡...就是不想让玩家3T过关 ...</blockquote>
+伊织还不能用宝具呢
+

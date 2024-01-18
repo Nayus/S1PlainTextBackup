@@ -5392,3 +5392,65 @@ fsr可是兩條路線都不能釋放自己，連持刀都要特許，來到FGO�
 
 今天不止锁前排了，还给个不能换人的buff，生怕你打的快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qb0079  
+##### 11008#       发表于 2024-1-18 17:24
+
+正雪没出，奶光也没出，歪了个拉二，rider是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武男  
+##### 11009#       发表于 2024-1-18 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690939&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-18 16:58</a>
+
+fsr可是兩條路線都不能釋放自己，連持刀都要特許，來到FGO能合法砍X人，而且對方大多都只是掛著人皮的英 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅更是爽了一把直面论外的超科技造物戴森球。他如果能够挥出这样的一剑，哪怕是形神俱灭对他来说也算是无上的幸福。
+
+*****
+
+####  武男  
+##### 11010#       发表于 2024-1-18 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690150&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-18 15:53</a>
+
+不止，还能占大义去干架，没有心理障碍</blockquote>
+比起兽来说，他那点真不算啥事情，迦勒底连兽都一起共斗。
+
+
+*****
+
+####  cenhr  
+##### 11011#       发表于 2024-1-18 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691184&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-18 17:19</a>
+
+今天不止锁前排了，还给个不能换人的buff，生怕你打的快了</blockquote>
+干啥都不行，但在恶心玩家方面是高手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清河子  
+##### 11012#       发表于 2024-1-18 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691255&amp;ptid=2084912" target="_blank">武男 发表于 2024-1-18 17:24</a>
+FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅更是爽了一把直面论外的超科技造物戴森球 ...</blockquote>
+还真是，虽然地狱笑话了，但是给伊织看看那段记录怕不是酸得咬手绢啊
+
+*****
+
+####  武男  
+##### 11013#       发表于 2024-1-18 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686866&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-18 11:13</a>
+
+能触发强者赞叹语音的范围很夸张这下真的爽死了</blockquote>
+咕哒：一家人是不会握手的，
+
+伊织：哈哈哈，对！我们怎么会握手，我们应该拥抱才对啊！哈哈哈哈！
+
+正雪：为何，为何，为何…呜，呜呜呜…呜……（抽泣）
+

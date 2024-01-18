@@ -725,3 +725,20 @@ emmmm<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" refer
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KDConan  
+##### 84#       发表于 2024-1-18 18:52
+
+工期不紧的话还能期待<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  山代风我  
+##### 85#       发表于 2024-1-18 18:53
+
+cg 动仕多的那点儿人对动画的品质和数量影响微乎其微，主要演出这块儿确实是流失严重，沙发套过去两年的表现也实在没法让人放心，但23年一年基本没啥动作，魔圆和物语还都是目前最拿得出手的看板，肯定会好好做的，不至于做砸…吧
+

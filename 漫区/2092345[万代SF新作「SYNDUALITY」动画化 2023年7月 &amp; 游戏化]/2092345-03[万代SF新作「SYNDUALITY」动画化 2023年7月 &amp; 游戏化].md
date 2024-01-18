@@ -1760,3 +1760,11 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 観ていただいた方々、ありがとうございます。すみません、コンテの誌村さんは宏明さんの方でしたね。ネジ子は次回で。本編、こんな話でしたっけ？（笑）
 <img src="https://p.sda1.dev/15/4a8bf9c384fb74a2397c16cec84c66c0/20240117_214444.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangqizhi45  
+##### 3483#       发表于 2024-1-18 18:46
+
+这个片连中文机翻都没有了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要吃生肉了
+

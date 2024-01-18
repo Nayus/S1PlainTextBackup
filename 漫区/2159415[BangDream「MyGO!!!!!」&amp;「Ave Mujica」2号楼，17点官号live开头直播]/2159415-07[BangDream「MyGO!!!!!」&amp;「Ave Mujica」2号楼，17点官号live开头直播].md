@@ -2045,3 +2045,17 @@ hibiki你管管啊
 
 总集篇本来就是老画面剪辑，新画面能有五分钟就是成功，能加个旁白或者换bgm插入曲的都能算良心总集篇了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 9174#       发表于 2024-1-18 11:15
+
+<img src="https://img.saraba1st.com/forum/202401/18/111459oplsht2bzxpppgzj.jpg" referrerpolicy="no-referrer">
+
+<strong>d1bdb19936773d181ac2f5c9b803c837.jpg</strong> (218.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 11:14 上传
+

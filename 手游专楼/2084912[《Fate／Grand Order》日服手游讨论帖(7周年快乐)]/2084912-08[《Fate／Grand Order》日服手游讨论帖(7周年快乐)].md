@@ -5186,3 +5186,14 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 语音里都声线兴奋到颤抖了，战！</blockquote>
 今次真是死也值回票价了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 10988#       发表于 2024-1-18 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686253&amp;ptid=2084912" target="_blank">武男 发表于 2024-1-18 10:26</a>
+
+今次真是死也值回票价了</blockquote>
+能触发强者赞叹语音的范围很夸张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真的爽死了
+

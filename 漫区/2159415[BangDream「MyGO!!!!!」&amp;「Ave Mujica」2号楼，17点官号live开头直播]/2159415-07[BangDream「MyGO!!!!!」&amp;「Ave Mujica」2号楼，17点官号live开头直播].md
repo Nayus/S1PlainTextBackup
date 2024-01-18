@@ -2304,3 +2304,13 @@ wsd费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/093.
 
 完了看到车立希的帖子我居然第一反应是想笑。
 
+
+*****
+
+####  6030sylar  
+##### 9201#       发表于 2024-1-18 16:07
+
+<img src="https://p.sda1.dev/15/5450d8afd4e47abf99499186c1cce7b7/Image_1705565075137.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

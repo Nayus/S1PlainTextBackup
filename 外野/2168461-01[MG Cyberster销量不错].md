@@ -637,3 +637,12 @@ MX5 一吨出头，4m车长，确实不是一个级别的对手<img src="https:/
 硬抬杠没意思，而且已经有人做了，虽然还不如Z4的第三方挡风网在淘宝百花齐放，但这车的销量上市才2个月已 ...</blockquote>
 这么镶一块亚克力在自己脑袋后边是嫌敞篷车异响少是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  swings925  
+##### 65#       发表于 2024-1-18 16:12
+
+<blockquote>另外还有电子模拟声浪，听起来像是V12发动机。</blockquote>
+纯搞子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

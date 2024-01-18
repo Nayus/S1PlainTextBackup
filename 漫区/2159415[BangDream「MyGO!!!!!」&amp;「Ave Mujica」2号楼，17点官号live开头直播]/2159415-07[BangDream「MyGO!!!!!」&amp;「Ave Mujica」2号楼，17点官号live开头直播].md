@@ -2037,3 +2037,11 @@ hibiki你管管啊
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 9173#       发表于 2024-1-18 10:54
+
+总集篇本来就是老画面剪辑，新画面能有五分钟就是成功，能加个旁白或者换bgm插入曲的都能算良心总集篇了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

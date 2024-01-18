@@ -2090,3 +2090,27 @@ hibiki你管管啊
 
 你不如期待一下官方是不是真的會剪一個純淨版mygo出來，我想看看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nungesser  
+##### 9178#       发表于 2024-1-18 12:15
+
+我就说为啥之前听黑色生日的时候有种熟悉的感觉，今天把《未来日记》的OP翻出来，确实很有妖精帝国那味，不过李子的声线要冷酷得多<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 9179#       发表于 2024-1-18 12:17
+
+怎么可能有大量新画面，制作团队不都去做新番去了，如果真是12月紧急上马的那能有20分钟新视角都是工期仙人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9180#       发表于 2024-1-18 12:20
+
+就算真的工期仙人，你這新畫面塞哪裡啊，我看了下好像總集篇最長也不太會超過120min，
+
+現在動畫13話扣掉OPED就差不多塞滿時長了，呃……真的純淨版mygo？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

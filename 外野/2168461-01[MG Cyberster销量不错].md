@@ -936,3 +936,28 @@ miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去�
 
 —— 来自 vivo V2254A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  liuguokobe  
+##### 93#       发表于 2024-1-18 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690814&amp;ptid=2168461" target="_blank">Porsche 发表于 2024-1-18 16:48</a>
+
+最核心的事没提啊
+
+这车到底好玩不好玩
+
+你要是跟mx5叫板，怎么也得有mx5的八成功力吧</blockquote>
+这个车就是和你id一样适合蹦直线的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 94#       发表于 2024-1-18 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63687861&amp;ptid=2168461" target="_blank">silverfoxz 发表于 2024-1-18 12:32</a>
+
+多说一句，自从这车上市后，身边的Z4或者718车主心态还算好，至少还能谈谈品牌价值自我安慰下，最玻璃心碎 ...</blockquote>
+我觉得属于国内畸形定价的奇葩现象……MX5这车本身属于便宜玩具定位的，要不是国内溢价这么多和这车根本对不上
+

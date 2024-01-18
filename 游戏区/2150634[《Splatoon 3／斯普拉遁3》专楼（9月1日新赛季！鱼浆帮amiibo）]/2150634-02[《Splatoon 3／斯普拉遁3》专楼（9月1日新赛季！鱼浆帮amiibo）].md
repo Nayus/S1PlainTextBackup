@@ -9824,3 +9824,11 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 2488#       发表于 2024-1-18 19:26
+
+赛季中更新还没来是不是因为甲子园无了导致的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

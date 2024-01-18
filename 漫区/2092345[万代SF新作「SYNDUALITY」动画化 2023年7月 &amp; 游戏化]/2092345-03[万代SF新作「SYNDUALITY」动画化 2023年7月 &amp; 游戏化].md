@@ -1816,3 +1816,15 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 —— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 猫萌我看第一集迟了差不多1周
 
+
+*****
+
+####  亚瑟邓特  
+##### 3488#       发表于 2024-1-18 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692577&amp;ptid=2092345" target="_blank">yangqizhi45 发表于 2024-1-18 19:22</a>
+猫萌我看第一集迟了差不多1周</blockquote>
+第一季是两周<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

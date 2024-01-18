@@ -919,3 +919,20 @@ miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去�
 但是！！！极其欣赏这种愿意出小众车的车企 ...</blockquote>
 首先，纯电车早就不是只会崩零百了。第二，这车不小。
 
+
+*****
+
+####  fgdgf404  
+##### 91#       发表于 2024-1-18 19:05
+
+挺好的 好好打击打击那帮炒MX-5的，最好把价格砸到20以内让我也可以咬咬牙买<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pj1244  
+##### 92#       发表于 2024-1-18 19:13
+
+其实有在考虑买，只是一直公司员工购车迟迟不上cyberster<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2254A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

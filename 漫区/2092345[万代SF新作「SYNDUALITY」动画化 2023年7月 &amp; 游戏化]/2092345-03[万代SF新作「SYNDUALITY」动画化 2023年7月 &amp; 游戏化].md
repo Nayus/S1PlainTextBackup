@@ -1779,3 +1779,15 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  亚瑟邓特  
+##### 3485#       发表于 2024-1-18 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692216&amp;ptid=2092345" target="_blank">yangqizhi45 发表于 2024-1-18 18:46</a>
+这个片连中文机翻都没有了吗要吃生肉了</blockquote>
+等喵萌吧，感觉喵萌这次挺快的
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

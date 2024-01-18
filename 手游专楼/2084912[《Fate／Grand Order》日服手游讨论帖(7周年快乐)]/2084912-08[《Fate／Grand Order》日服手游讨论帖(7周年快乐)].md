@@ -5465,3 +5465,16 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 比起兽来说，他那点真不算啥事情，迦勒底连兽都一起共斗。</blockquote>
 何况伊织只是想和强者分高下，决生死，并不是什么滥杀无辜的杀人狂
 
+
+*****
+
+####  eilot  
+##### 11015#       发表于 2024-1-18 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691289&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-18 17:27</a>
+
+干啥都不行，但在恶心玩家方面是高手</blockquote>
+懶得想
+
+大英雄&gt;小妖精，你們輪流寶具再自主退場吧
+

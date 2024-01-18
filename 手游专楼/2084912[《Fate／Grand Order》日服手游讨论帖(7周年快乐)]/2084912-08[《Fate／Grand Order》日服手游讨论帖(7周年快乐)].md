@@ -5319,3 +5319,14 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 盲猜一个这地根本不存在master，登场的master其实全是servant只是不自知，就像伊织是剑阶正雪是术阶，某个 ...</blockquote>
 不太可能，会看自己手上有没有令咒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11001#       发表于 2024-1-18 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688501&amp;ptid=2084912" target="_blank">武男 发表于 2024-1-18 13:35</a>
+
+比起FSR来说，FGO可谓是末法之世，真实修罗恶鬼的极乐净土，只要想天天都有战斗打，还有天花板可 ...</blockquote>
+不止，还能占大义去干架，没有心理障碍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

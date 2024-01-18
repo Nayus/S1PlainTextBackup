@@ -1791,3 +1791,28 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yangqizhi45  
+##### 3486#       发表于 2024-1-18 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692299&amp;ptid=2092345" target="_blank">novyMS 发表于 2024-1-18 18:53</a>
+
+囧次元有
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+在nyaa找了几个下来发现原来还是有机翻，但他简介好像没写出来
+
+*****
+
+####  yangqizhi45  
+##### 3487#       发表于 2024-1-18 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692427&amp;ptid=2092345" target="_blank">亚瑟邓特 发表于 2024-1-18 19:05</a>
+
+等喵萌吧，感觉喵萌这次挺快的
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+猫萌我看第一集迟了差不多1周
+

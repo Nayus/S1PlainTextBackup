@@ -849,3 +849,14 @@ miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去�
   -- 来自 能搜索的 Stage1官方 Android ...</blockquote>
 平行进口的手动软顶nd2二手二十多随便买。新车也就28<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝川澈  
+##### 84#       发表于 2024-1-18 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691386&amp;ptid=2168461" target="_blank">无印凉粉 发表于 2024-01-18 17:34:59</a>
+来，别光说不练</blockquote>那肯定dei是新车的自动硬顶啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

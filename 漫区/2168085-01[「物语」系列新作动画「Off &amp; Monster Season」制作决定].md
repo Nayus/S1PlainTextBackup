@@ -542,3 +542,34 @@ wow竟然猜对了，厉害
 
 <img src="https://p.sda1.dev/15/83ed6c4b3b4d59424e2959eaa96f8d2d/QQ截图20240118174038.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 63#       发表于 2024-1-18 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691516&amp;ptid=2168085" target="_blank">Unlight 发表于 2024-1-18 17:47</a></blockquote>
+问题主要不在她身上，她负责演出的部分都还可以，主要还是shaft自己不行了。
+当然，这个问题更加可怕了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 64#       发表于 2024-1-18 18:00
+
+哦哦哦哦哦哦哦
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  moshizhe  
+##### 65#       发表于 2024-1-18 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691646&amp;ptid=2168085" target="_blank">仟音一心 发表于 2024-1-18 17:57</a>
+
+问题主要不在她身上，她负责演出的部分都还可以，主要还是shaft自己不行了。
+
+当然，这个问题更加可怕了。 ...</blockquote>
+更可怕的不是物语今年就要出来吗，还同时有回天呢，shaft产能回复了吗
+

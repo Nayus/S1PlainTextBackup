@@ -1007,3 +1007,11 @@ mihon和tachiyomi速度也一样吗
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hrha  
+##### 79#       发表于 2024-1-18 18:02
+
+怎么换人维护了还是没有官方源的太监，感觉不如 kotetsu，同样被 kaoko 发了 dmca 屁事都没有
+

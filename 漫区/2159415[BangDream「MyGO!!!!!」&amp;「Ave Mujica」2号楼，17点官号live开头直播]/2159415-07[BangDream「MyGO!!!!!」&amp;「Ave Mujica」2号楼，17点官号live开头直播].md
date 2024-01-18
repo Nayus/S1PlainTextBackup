@@ -2374,3 +2374,11 @@ wsd费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/093.
 泥樓關心的維護原因，果然是和課金有關的，商店的處理出了問題 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来工艺蛋走得很干净利落，一点善后工作也没给武士道做
 
+
+*****
+
+####  skives  
+##### 9206#       发表于 2024-1-18 17:54
+
+工艺蛋：我一次也没有觉得制作邦多利游戏开心过
+

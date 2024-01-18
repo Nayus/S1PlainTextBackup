@@ -784,3 +784,13 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 总有说shaft走了很多人（其实没多少，因为本来就没多少人）导致shaft产能降低的，其实现在shaft员工人数 ...</blockquote>
 主要是那阵子跑路的大都是表记在OP里的核心制作人员吧。
 
+
+*****
+
+####  三七甜  
+##### 90#       发表于 2024-1-18 19:51
+
+还好还是沙发套，板村智幸是走了吗
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -719,3 +719,11 @@ And just like that everyone forgot about pomu's upcoming graduation
 
 追加：男管人里有腐男还有男同
 
+
+*****
+
+####  hulaoda007  
+##### 2919#       发表于 2024-1-18 10:46
+
+给乙铝改一点点诗子震撼（褒义）。
+

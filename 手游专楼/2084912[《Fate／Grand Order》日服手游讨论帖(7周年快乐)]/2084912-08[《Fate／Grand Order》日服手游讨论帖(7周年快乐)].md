@@ -5562,3 +5562,17 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 期待一下伊 ...</blockquote>
 理论上这个世界能创造点条件捞一下，不知道有没有意欲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11024#       发表于 2024-1-19 00:21
+
+ 本帖最后由 eilot 于 2024-1-19 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63695507&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-1-18 23:50</a>
+
+伊织算是个现实主义者，他也很清楚自己的剑技（算上底牌二刀流燕返）没办法和两位武藏以及真小次郎相提并论 ...</blockquote>
+根據新訪談中，劍豪對徒者是無力，但升到劍聖級就能和徒者一戰，估計打武藏時已經去到劍聖門檻，之後如走劍鬼版本，應該能和真武藏和真小次郎有一戰能力(只是能互打，能否打嬴就另一回事)，
+
+另外兩線最後都是回歸平淡，已這時代也再沒劍聖級，也不可能有再變強機會，雖然再再再再之後的新選組那批...
+

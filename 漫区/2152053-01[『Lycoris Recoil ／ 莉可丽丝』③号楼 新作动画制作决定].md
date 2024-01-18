@@ -19196,3 +19196,29 @@ yhm<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referre
 
 2024-1-18 00:27 上传
 
+
+*****
+
+####  Saber琪  
+##### 1481#       发表于 2024-1-18 21:32
+
+[https://twitter.com/anime_oekaki13/status/1747970251772571735?s=19](https://twitter.com/anime_oekaki13/status/1747970251772571735?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/18/213101r6qflky6dwlfp6qu.jpg" referrerpolicy="no-referrer">
+
+<strong>20240118_213009.jpg</strong> (611.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:31 上传
+
+[https://twitter.com/Ap3U0/status/1747938052612452663?s=19](https://twitter.com/Ap3U0/status/1747938052612452663?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/18/213128o9yfho92rgny99g2.jpg" referrerpolicy="no-referrer">
+
+<strong>20240118_213110.jpg</strong> (52.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:31 上传
+

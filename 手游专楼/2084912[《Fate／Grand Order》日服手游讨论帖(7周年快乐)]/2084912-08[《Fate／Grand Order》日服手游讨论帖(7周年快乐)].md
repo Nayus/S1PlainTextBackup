@@ -5197,3 +5197,11 @@ Screenshot_2024-01-17-19-10-01-22_13e7a6b1087387188a64bd1592e629e3.jpg
 今次真是死也值回票价了</blockquote>
 能触发强者赞叹语音的范围很夸张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真的爽死了
 
+
+*****
+
+####  kyonkoism  
+##### 10989#       发表于 2024-1-18 11:47
+
+伊织的语音笑死我了，一整个FSR没见过这么兴奋的伊织，“哦↑ ↑  哦哦哦哦哦↑ ↑ ↑ ”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1995,3 +1995,18 @@ hibiki你管管啊
 
 通常這樣壓著不敢開的，要不就是真的伺服器出事，要不就是和錢錢有關的功能出bug在修和討論對策<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 9168#       发表于 2024-1-18 09:40
+
+不行直接关服吧，大不了心祥我不要了，别搁哪对轴了快点把Mujica动画端上来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JY要塞  
+##### 9169#       发表于 2024-1-18 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说不定真就换LOGO失败呢
+

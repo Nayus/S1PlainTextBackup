@@ -5500,3 +5500,35 @@ miko对这次菜品的监修程度很高，说是对自家的口味有很特别�
 
 ときの！？
 
+
+*****
+
+####  rs5621  
+##### 8027#       发表于 2024-1-18 21:04
+
+嗯？这bgm
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 8028#       发表于 2024-1-18 21:11
+
+草,什么大叔回复
+
+*****
+
+####  holoan  
+##### 8029#         楼主| 发表于 2024-1-18 21:11
+
+<img src="https://img.saraba1st.com/forum/202401/18/211102jcmcja4jrjo3yv7d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-18 21:11 上传
+
+要吐了
+

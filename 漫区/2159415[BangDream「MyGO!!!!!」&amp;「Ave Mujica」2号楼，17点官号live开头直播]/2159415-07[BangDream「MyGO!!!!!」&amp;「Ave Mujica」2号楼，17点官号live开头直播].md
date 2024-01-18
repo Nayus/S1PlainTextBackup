@@ -2486,3 +2486,20 @@ wsd费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/093.
 
 这么喜欢对邦建议收购wsd，让邦邦正经偶像企划学习打榜总选举，米绝对多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 9216#       发表于 2024-1-18 21:05
+
+漏油好暴力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴锤都出来了，可以多看看解压视频缓解一下暴力倾向
+
+*****
+
+####  NODY  
+##### 9217#       发表于 2024-1-18 21:06
+
+不出意外第二季就是萝和pp出现在第一季ppp和ag的位置了
+
+本来觉得是双r，但一方面mujica配置明显更像pp，另一方面现在的ras和mujica可能会打起来（ras活动里刚被嘲讽过不能赚米的乐队没意义）
+

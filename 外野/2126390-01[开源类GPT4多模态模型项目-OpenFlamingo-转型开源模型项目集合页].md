@@ -27042,3 +27042,15 @@ CLIP R-Precision的定量对比，分数是从DreamFusion画廊的40个提示中
 
 请教一下，图像多标签分类现在有什么离线部署的解决方案吗，想要识别一些遥感图像是否有云、过曝、条纹等情况。训练集已有，自己炼模型的方案和能微调的现成模型有什么推荐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Machinery  
+##### 1199#       发表于 2024-1-20 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63698955&amp;ptid=2126390" target="_blank">巨魔型美羽 发表于 2024-1-19 11:03</a>
+请教一下，图像多标签分类现在有什么离线部署的解决方案吗，想要识别一些遥感图像是否有云、过曝、条纹等情 ...</blockquote>
+感觉arxiv里很多相关领域的文章，微调或者训练分类模型都行吧，甚至vlm直接练进去图像特征也行…找个深度学习社区，飞桨/modelscope/kaggle/arxiv/github/hugface之类的搜搜关键字
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

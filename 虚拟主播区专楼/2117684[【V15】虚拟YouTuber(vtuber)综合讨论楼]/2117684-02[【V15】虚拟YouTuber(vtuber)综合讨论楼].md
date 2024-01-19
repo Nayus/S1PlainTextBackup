@@ -792,3 +792,11 @@ And just like that everyone forgot about pomu's upcoming graduation
 
 青铜高校转生（？）了个企业势新人。绿色的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  _Ra1nMaker  
+##### 2926#       发表于 2024-1-20 00:48
+
+现在转生是能直接说出来的吗 那索性直说是谁转生的算了 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

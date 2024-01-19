@@ -430,3 +430,13 @@ Tilsonite Sword是布莱泽奥特曼塑造的刀剑，其原型是由嘎拉蒙�
 
 什么失败主义谋士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  楠城旧篱  
+##### 1645#       发表于 2024-1-20 01:33
+
+ 本帖最后由 楠城旧篱 于 2024-1-20 01:36 编辑 
+
+看了剧透，新奥的影响真的大，
+

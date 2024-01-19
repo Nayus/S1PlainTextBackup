@@ -26,3 +26,13 @@
 
 打BOSS战重来不补道具不是老RPG的醍醐味吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赛U灵  
+##### 3800#       发表于 2024-1-19 22:50
+
+哎呦我去，我当时被这件事在一周目最后的boss关折磨好久（。最后还是选择不大去刷刷刷），结果居然改了吗<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">更觉得我当时的折磨毫无意义了（捶地）
+
+— from OPPO CPH1893, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

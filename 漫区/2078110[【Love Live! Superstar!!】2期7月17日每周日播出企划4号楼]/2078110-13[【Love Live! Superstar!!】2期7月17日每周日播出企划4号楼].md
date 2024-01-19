@@ -1186,3 +1186,16 @@ Image_1705626406018.jpg
 
 差不多得了，有本事别拉上我们囡囡
 
+
+*****
+
+####  ruffian  
+##### 19228#       发表于 2024-1-19 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63705458&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-01-19 20:28:37</a>
+不行太逆天了一定得发，和几次点兵到某人都只说很热情的比，还能低的我倒想看看是什么
+
+ ...</blockquote>我没理解错吧？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

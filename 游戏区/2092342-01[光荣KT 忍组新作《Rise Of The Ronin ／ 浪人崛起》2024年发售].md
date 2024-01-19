@@ -306,3 +306,16 @@ sie惯例的摆烂宣发啊
 每个新游纯原创动作傻逼才干。 ...</blockquote>
 ff：嗨呀 是我吗
 
+
+*****
+
+####  BadYanL  
+##### 528#       发表于 2024-1-19 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63671185&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-1-16 21:59</a>
+
+感觉2月会有</blockquote>
+那个分析师诸葛刚爆了一堆料，包括说财年内没有综合类SoP，只有聚焦单个游戏的SoP。
+
+应该就是浪人崛起专场吧。
+

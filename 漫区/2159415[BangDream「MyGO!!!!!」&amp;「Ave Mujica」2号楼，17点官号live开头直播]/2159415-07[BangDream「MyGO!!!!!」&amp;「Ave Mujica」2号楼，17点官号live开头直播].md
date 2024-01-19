@@ -3314,3 +3314,25 @@ https://twitter.com/Nisroch111/status/1748069672841576786/photo/2</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63703484&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-19 17:12</a></blockquote>
 日文看不太懂，这是终于修好了？
 
+
+*****
+
+####  nebulanoby  
+##### 9296#       发表于 2024-1-20 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63699847&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-19 12:10</a>
+
+27號快到了，還沒買的大家如果要買就買eplus的，不僅有回放，還不用辦帳號就能購買，
+
+觀看連結直接發信箱裡 ...</blockquote>
+eplus我记得就一个月的重播时限？
+
+*****
+
+####  nebulanoby  
+##### 9297#       发表于 2024-1-20 00:12
+
+本来上午看到想说的，被拉去调机忘了
+
+我总觉得祥子在第八集拿来嘴炮跪下之后的素食的那几句话和她爸爆仓有关系
+

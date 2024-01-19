@@ -36,3 +36,11 @@
 
 — from OPPO CPH1893, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  RedSpecial  
+##### 3801#       发表于 2024-1-19 23:07
+
+SL听boss逼叨，直接重开扣道具，纯粹恶心人，改得好
+

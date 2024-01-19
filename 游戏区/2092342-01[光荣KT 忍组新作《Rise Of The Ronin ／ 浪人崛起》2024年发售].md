@@ -319,3 +319,15 @@ ff：嗨呀 是我吗
 
 应该就是浪人崛起专场吧。
 
+
+*****
+
+####  医生狼多  
+##### 529#       发表于 2024-1-20 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63706723&amp;ptid=2092342" target="_blank">BadYanL 发表于 2024-1-19 22:33</a>
+那个分析师诸葛刚爆了一堆料，包括说财年内没有综合类SoP，只有聚焦单个游戏的SoP。
+
+应该就是浪人崛起专 ...</blockquote>
+初翻了推没看到，有木有指路
+

@@ -10045,3 +10045,16 @@ spa是不是上个赛季改的，研究所这是打算一个赛季修一个图�
 
 不得不说现在MAX工都鱼龙混杂，最后上了个疑似车队的一直在999打了好几盘都是轻松得感觉大都不用开，巨颚乱杀，而前面900的时候又是坐牢好久
 
+
+*****
+
+####  星野航  
+##### 2515#       发表于 2024-1-19 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63705772&amp;ptid=2150634" target="_blank">Tachikoma88 发表于 2024-1-19 21:56</a>
+
+看了不少对战图的hack，感觉epd5真的很想将喷喷打造成一个互通大世界，希望未来新机能实现吧 ...</blockquote>
+epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是挺期待的
+
+但epd5这个家活什确实还是要练练才行的
+

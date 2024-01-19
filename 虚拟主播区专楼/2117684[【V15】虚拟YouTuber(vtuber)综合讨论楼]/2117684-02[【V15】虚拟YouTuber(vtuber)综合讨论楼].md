@@ -761,3 +761,26 @@ And just like that everyone forgot about pomu's upcoming graduation
 
 超天酱这个真的是直播啊，好强
 
+
+*****
+
+####  吃咸菜的  
+##### 2923#       发表于 2024-1-19 23:46
+
+关注的航天vtuber万棒了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">，星舰H3的时候才5k
+
+<img src="https://img.saraba1st.com/forum/202401/19/234648erp607qq8fqazrg0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 23:46 上传
+
+*****
+
+####  wuzhengkai  
+##### 2924#       发表于 2024-1-19 23:51
+
+笑了 pomu毕业凸待 最后en做的ppt里都没有selen 太有人情味了我们nijien
+

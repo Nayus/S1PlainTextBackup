@@ -5870,3 +5870,16 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 
 <img src="https://img.saraba1st.com/forum/202401/19/192356vmwhcv9955wayho9.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 11050#       发表于 2024-1-19 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63704461&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-1-19 18:42</a>
+
+有种说法是般度五子的大哥坚战，会用枪，亲爹是司掌审判的正法神阎摩。
+
+不过异传标题是南无阿弥陀佛，佛 ...</blockquote>
+罗马最大英雄之一凯撒以最不适合的职介落地了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

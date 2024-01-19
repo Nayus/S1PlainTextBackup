@@ -1162,3 +1162,19 @@ Image_1705626406018.jpg
 
 2024-1-19 20:22 上传
 
+
+*****
+
+####  ads147147  
+##### 19226#       发表于 2024-1-19 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63705458&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-1-19 20:28</a>
+不行太逆天了一定得发，和几次点兵到某人都只说很热情的比，还能低的我倒想看看是什么
+
+ ...</blockquote>
+逆天。
+
+不过上次看到队内攻伐还是上次呢，也不算意外。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

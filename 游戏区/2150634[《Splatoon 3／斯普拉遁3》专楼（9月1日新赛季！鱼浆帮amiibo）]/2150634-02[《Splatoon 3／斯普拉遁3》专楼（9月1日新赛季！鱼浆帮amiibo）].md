@@ -10014,3 +10014,16 @@ spa是不是上个赛季改的，研究所这是打算一个赛季修一个图�
 
 希望把碎金属左边的路稍微改改，感觉不管什么模式左边都很难走狙往那一战就无敌
 
+
+*****
+
+####  美式咖啡  
+##### 2512#       发表于 2024-1-19 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63688534&amp;ptid=2150634" target="_blank">Teiume 发表于 2024-1-18 13:38</a>
+
+「鱿型fanboos3」附录赠送金色鱿鱼酱。看起来像是封面的这个小食玩。
+
+之前也有送过的，买杂志送金色小绿 ...</blockquote>
+以为是皮肤码 那就不入了
+

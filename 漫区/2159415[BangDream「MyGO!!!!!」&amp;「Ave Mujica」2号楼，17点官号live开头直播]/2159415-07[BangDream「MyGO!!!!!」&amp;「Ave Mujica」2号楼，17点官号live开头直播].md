@@ -3348,3 +3348,16 @@ eplus我记得就一个月的重播时限？
 
 我希望她一辈子都留在日本当声优，和老公分居之后也暂时……至少持续十年吧！！
 
+
+*****
+
+####  基神的强袭自由  
+##### 9299#       发表于 2024-1-20 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63707175&amp;ptid=2159415" target="_blank">蒜苗 发表于 2024-1-19 23:27</a>
+
+日文看不太懂，这是终于修好了？</blockquote>
+好像是苹子的游戏中心连携出问题了，需要解除后重新绑定一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我也不懂，随便看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

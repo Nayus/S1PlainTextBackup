@@ -784,3 +784,11 @@ And just like that everyone forgot about pomu's upcoming graduation
 
 笑了 pomu毕业凸待 最后en做的ppt里都没有selen 太有人情味了我们nijien
 
+
+*****
+
+####  渡鸦骑士  
+##### 2925#       发表于 2024-1-20 00:37
+
+青铜高校转生（？）了个企业势新人。绿色的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

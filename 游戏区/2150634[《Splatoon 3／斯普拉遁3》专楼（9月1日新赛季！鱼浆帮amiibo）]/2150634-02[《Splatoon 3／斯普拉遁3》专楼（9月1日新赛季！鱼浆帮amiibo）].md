@@ -10066,3 +10066,43 @@ epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是�
 
 为什么地图连通让我想到了可以做喷喷大逃杀，Splatoon 99！
 
+
+*****
+
+####  罗克萨斯  
+##### 2517#       发表于 2024-1-20 00:33
+
+经历了凄惨连败，胜率跌到50%以后，任天堂终于让我roll到了超强队友，4分钟20杀不含一个助攻！打得好不如运气好<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/20/002636dw3r2ppx8afzrx1r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-20-00-21-41-353_com.nintendo.znca-edit.jpg</strong> (515.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 00:26 上传
+
+打完才想起来忘了喝饮料，装备做坏了！为了省事耗费了30个碎片，再喝一次饮料就能做成0.3的安全鞋了，可恶啊！不过0.2安全鞋勉强也够吧，0.1行动强化也有点用，现在又舍不得洗掉重新观星<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+这是我预期装备
+
+<img src="https://img.saraba1st.com/forum/202401/20/003250zbmtmdhbpwbmd5pw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-20-00-31-33-481_com.android.chrome-edit.jpg</strong> (91.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 00:32 上传
+
+这是目前装备
+
+<img src="https://img.saraba1st.com/forum/202401/20/003304fhpq86ig28huouzb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-20-00-32-09-898_com.android.chrome-edit.jpg</strong> (87.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 00:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

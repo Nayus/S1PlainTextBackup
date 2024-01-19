@@ -27260,3 +27260,143 @@ LGVI-I的交互式视频重绘结果
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1202#       发表于 2024-1-20 06:17
+
+The Manga Whisperer
+
+自动从漫画中生成转录对话
+
+github项目主页:https://github.com/ragavsachdeva/magi
+
+在过去的几十年中，漫画已经超越了文化和语言的界限，成为了一种真正的全球热潮，然而，漫画对于视觉障碍的人来说很难接触，因为它严重依赖于视觉线索和插图，在这项工作中，尝试解决这个重大障碍，确保每个人都能欣赏和积极参与漫画
+
+具体而言，本文解决的问题是对话记录，即以完全自动的方式生成谁在何时说了什么的文字转录，为此做出了如下贡献:
+(1)提出了一个统一的模型Magi，能够(a)检测面板、文字框和角色框，(b)通过身份对角色进行聚类(不需要预先知道聚类的数目)，以及(c)将对话与说话者关联起来
+(2)提出了一种新颖的方法，能够按阅读顺序对检测到的文字框进行排序并生成对话转录
+(3)使用公开可用的[英文]漫画页，为这个任务标注了一个评估基准
+
+<img src="https://img.saraba1st.com/forum/202401/20/061524aand6gpapf9djaca.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061159__01.jpg</strong> (692.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:15 上传
+
+给定一个漫画页，本文模型可以:
+(a)检测面板、文本块和角色框
+(b)按照角色身份对角色框进行聚类
+(c)将文本与说话者关联起来
+(d)按正确的阅读顺序生成对话转录
+
+这里展示了在Yoshihiro Togashi的《猎人×猎人》漫画页面上预测的面板(绿)、文本块(红)和角色(蓝)，通过连接角色框中心的线来显示预测的角色身份关联，为了视觉清晰，没有明确显示文本与说话者的关联，但提供了生成的转录
+
+<img src="https://img.saraba1st.com/forum/202401/20/061537j67ik4quim7zw6wh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061208__01.jpg</strong> (292.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:15 上传
+
+Magi架构:
+给定一个漫画页作为输入，本文的模型预测面板、文本块和角色的边界框，并关联检测到的角色-角色(character-character)和文本-角色(text-character)对
+
+模型将高分辨率漫画页作为输入送入CNN主干网络，然后通过Transformer编码器-解码器生成N×[OBJ]+[C2C]+[T2C]个Token，[OBJ] Token由检测头(框和类)处理，以获得边界框及其分类，检测到的对象对应的[OBJ] Token与[C2C]和[T2C]一起处理成对，通过角色匹配模块和说话者关联模块进行处理，从而得到角色聚类和对话记录
+
+<img src="https://img.saraba1st.com/forum/202401/20/061547hwitqq3pzi4tcfak.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061222__01.jpg</strong> (618.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:15 上传
+
+面板排序方法，右方为本文的排序方法，图像来源Prism Heart ©Mai Asatsuki
+
+<img src="https://img.saraba1st.com/forum/202401/20/061553uerqebe0ri7qz2da.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061228__01.jpg</strong> (219.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:15 上传
+
+训练和评估数据集，在列中，提供了每个任务的标注数量
+
+P=面板，T=文本，C=角色，C2C=角色-角色正样本对，T2C=文本-角色对
+
+†自动化生成
+‡仅适用于8488张图像
+††使用启发式动态挖掘(mined using heuristics dynamically)
+
+<img src="https://img.saraba1st.com/forum/202401/20/061657ycec3eg818uq081p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061244__01__02.jpg</strong> (547.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/20/061657vd2d68kgs63y23ff.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061244__01__01.jpg</strong> (522.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:16 上传
+
+Magi模型确定的角色、文本块和面板的边界框预测，以及聚类预测(作为节点和边)，为了可视化，删除了已经建立连接的角色之间的冗余的连接
+
+请注意，尽管已经产生了:遮挡/部分可见性(girl: A4, hand: B1)，视点变化(boy: A5, girl: A2)，和变化的保真度(girl: A1, boy: B2)，该模型仍然成功匹配了角色，该模型还可以检测非人类角色(dog-like creatures: A1, octopus-like creature: B3)
+
+还展示了一个失败案例，模型错误地匹配了两个不同的角色(one is wearing checked scarf, while the other is wearing checked coat, they are brothers and look similar)
+
+<img src="https://img.saraba1st.com/forum/202401/20/061708v3wdg089h0hia8cv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061254__01.jpg</strong> (799.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:17 上传
+
+Magi模型生成的文本到说话者的预测，每个预测的文本框都通过一条线连接到一个预测的角色框，线的不透明度反映了模型的置信度，线越暗，模型的置信度越高，每个预测的角色框中心有一个基于聚类预测的数字
+
+还展示了最终生成的转录，请注意，所有的对话都按照正确的阅读顺序排列，对于置信度较低(&lt;0.4)的文本到说话者预测，在生成的转录中用⟨?⟩替换预测的说话者，并让读者从上下文中推理
+
+<img src="https://img.saraba1st.com/forum/202401/20/061714dopvommnakc3n5pn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061310__01.jpg</strong> (67.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:17 上传
+
+检测结果，报告的平均精度结果边界上限为1.0
+
+<img src="https://img.saraba1st.com/forum/202401/20/061718t274u4e82ryeu45i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061310__02.jpg</strong> (427.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:17 上传
+
+角色聚类结果，使用几个不同指标报告结果，它们的边界上限均为1.0
+
+<img src="https://img.saraba1st.com/forum/202401/20/061723iw14vsiw4lqws6o0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-061310__03.jpg</strong> (36.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 06:17 上传
+
+说话者关联结果，报告的Recall@#text结果边界上限为1.0
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -27054,3 +27054,119 @@ CLIP R-Precision的定量对比，分数是从DreamFusion画廊的40个提示中
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1200#       发表于 2024-1-20 03:50
+
+OMG-Seg
+
+一种模型足以适用于所有分割任务吗？
+
+项目主页:https://lxtgh.github.io/project/omg_seg/
+
+github项目代码仓库:https://github.com/lxtGH/OMG-Seg
+
+在本文中，尝试统一解决各种不同分割任务，而传统方法上每种任务都由不同或部分统一的模型处理，本文提出了OMG-Seg，一种足以高效且有效地处理所有分割任务的模型，包括图像语义分割、实例分割、全景分割以及所对应的视频任务、开放词汇设置、基于提示的交互式分割(例如SAM)和视频对象分割
+
+据本文所知，这是第一个可以在一个模型中处理所有这些任务并取得令人满意的性能的模型，OMG-Seg，一种基于Transformer的编码器-解码器架构，具有特定于任务的查询和输出，可以支持数十个不同的分割任务，并在各种任务和数据集上显著减少计算和参数开销，在协同训练(co-training)过程中严格评估了任务之间的相互影响和相关性
+
+<img src="https://img.saraba1st.com/forum/202401/20/034924v4d4biq4gmazb8yc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034314__01.jpg</strong> (538.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:49 上传
+
+OMG-Seg可以在一个框架中处理十多种不同的分割任务，包括图像级和视频级分割任务，交互式分割和开放式词汇分割，据目前所知，这是第一个统一这四个方向的模型
+
+<img src="https://img.saraba1st.com/forum/202401/20/034929iwplxr3f6ouxrfof.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034324__01.jpg</strong> (215.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:49 上传
+
+不同模型的设置对比，在这里列出了几种代表性的方法，而本文提出的OMG-Seg可以在一个模型中执行各种分割任务
+
+<img src="https://img.saraba1st.com/forum/202401/20/034935gnnzsmlc7c77a2jl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034330__01.jpg</strong> (276.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:49 上传
+
+OMG-Seg的元架构
+
+(a)OMG-Seg遵循Mask2Former的架构，包括一个主干网络(CLIP视觉编码器)，一个像素解码器，一个掩码解码器，不同的部分包括用于图像和视频分割的共享掩码解码器和一个视觉提示编码器，使用两种类型的掩码查询(比如语义查询)，用于实例/语义掩码或掩码管(mask tubes)，以及位置查询(location queries)的编码框或点提示
+
+(b)掩码解码器中的一个解码器层，位置查询跳过了自注意力操作，因为它们只与图像内容和位置提示有关
+
+(c)OMG-Seg在训练和推理中的前向传递过程，使用CLIP的文本编码器来表示类别名称，并通过计算掩码特征和文本嵌入之间的余弦相似度来对掩码进行分类
+
+<img src="https://img.saraba1st.com/forum/202401/20/034956nbwvw89ly87tbq8k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034341__01.jpg</strong> (323.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:49 上传
+
+OMG-Seg在图像、视频、开放词汇和类似SAM的设置上的实验结果
+
+*表示模型在Object365数据集上进行了预训练，由于页面限制，只列出了一些代表性的方法，其结果是五个不同实验的平均结果
+
+<img src="https://img.saraba1st.com/forum/202401/20/035005mjwe66ybmtze0eel.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034345__01.jpg</strong> (160.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:50 上传
+
+OMG-Seg在多个数据集设置上的实验结果，使用五个不同的数据集进行了12个epoch的平衡的联合协同训练，还在同一代码库中实现了对比基准
+
+<img src="https://img.saraba1st.com/forum/202401/20/035015iulb6l3bllblrluy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034356__01.jpg</strong> (329.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:50 上传
+
+<img src="https://img.saraba1st.com/forum/202401/20/035015tob7l9ooohsj0l93.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034423__01.jpg</strong> (225.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:50 上传
+
+消融实验
+
+<img src="https://img.saraba1st.com/forum/202401/20/035020kpmepjzn47xx477n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034412__01.jpg</strong> (553.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:50 上传
+
+OMG-Seg模型的功能可视化，列举了来自四个数据集的五个不同任务作为示例，本文方法在一个共享模式中实现了高质量的分割、追踪和交互式分割
+
+<img src="https://img.saraba1st.com/forum/202401/20/035028kp3vmknpo4oamovo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-034435__01.jpg</strong> (354.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 03:50 上传
+
+对OMG-Seg模型的更多功能可视化，除了主要论文中提到的五个不同任务外，还对ADE-20k数据集上的开放词汇分割结果进行了可视化，以及ImageNet 1k数据集上的开放词汇交互分割结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

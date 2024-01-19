@@ -696,3 +696,469 @@ liella的首次登上冠军宝座
 
 <img src="https://p.sda1.dev/15/caeefa982a1aa59b55584de2**ca4b/CMP_20240118204339291.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 19174#       发表于 2024-1-19 09:07
+
+YJ的
+
+Image_1705626406018.jpg
+(400.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 09:07 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/090743ewrh5d4t0x74r7ws.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 19175#       发表于 2024-1-19 09:16
+
+结那，真的大
+
+*****
+
+####  qty  
+##### 19176#       发表于 2024-1-19 09:51
+
+大熊怎么照的跟悬空了一样
+
+*****
+
+####  csolfans  
+##### 19177#       发表于 2024-1-19 10:27
+
+<blockquote>qty 发表于 2024-1-19 09:51
+大熊怎么照的跟悬空了一样</blockquote>
+踩凳子了
+
+*****
+
+####  ruffian  
+##### 19178#       发表于 2024-1-19 11:06
+
+什么2233娘
+反正不管是平票还是突然加规则选前两名当看板娘，票都是拿钱换的，最后两天堇推香推神仙斗法那狂热劲店家赚麻了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 19179#       发表于 2024-1-19 11:24
+
+只能说挺会耍，装也不装了，目的是一定要达成的，现在的结构星运营很满意了吧，可以销一下唐小姐的赎罪券了吗？
+
+*****
+
+####  优妮可  
+##### 19180#       发表于 2024-1-19 11:28
+
+一开始又不说，骗钱骗麻了。
+
+*****
+
+####  280041437  
+##### 19181#       发表于 2024-1-19 11:36
+
+这比原宿g店看板娘加人还过分
+
+*****
+
+####  ruffian  
+##### 19182#       发表于 2024-1-19 11:39
+
+ 本帖最后由 ruffian 于 2024-1-19 15:34 编辑 
+
+不过我不太相信活动就是为香哥哥准备的结果截止前被堇毛了这个阴谋论，你香哥哥什么冠军？人气巅峰时都没赢过唐小姐，就算唐小姐现在落魄了，那武士道月刊封面输堇是怎么回事？sif2半周年代言人输千砂都又是怎么回事？香哥哥投票战绩可是0啊，怎么就确信这次香音推一定支棱？开票前几天小千也一度领先，万一最后投出来堇千呢？
+
+我觉得比较合理的阴谋论，要么中间香音领先时以为稳了提前生产好周边了，结果又被堇反超，只能俩人一起。要么，本来就是选两个，诶我就不说，我就看你们为了争这个第一疯狂消费换投票，最后的结果也不会改变但我赚麻了
+
+但投票统计不放出来也说不了什么了
+
+草，这下不得不阴谋论了
+
+*****
+
+####  stygian  
+##### 19183#       发表于 2024-1-19 11:39
+
+打铁上flash封面了
+
+*****
+
+####  优妮可  
+##### 19184#       发表于 2024-1-19 11:51
+
+内定又想骗消费呗，中间还让小百合拉票了，发现也投不过
+
+*****
+
+####  280041437  
+##### 19185#       发表于 2024-1-19 11:52
+
+看推上有人留在最后特意照下来说堇比香音多了70多票
+
+*****
+
+####  qty  
+##### 19186#       发表于 2024-1-19 11:55
+
+这破企划从一开始对唐可可这个角色以及鲤鱼的定位就是引流工具，给企划引完流量乖乖退到一边给主推让位就是他们预想中最理想的结果，谁知你这引流工具人居然人气这么高甚至盖过了主推，还是中国人，那还了得，必须要狠狠打压啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 19187#       发表于 2024-1-19 12:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">堇那投票确实多翻了一页，这下星3棺材板最后一丝缝也可以盖上了
+
+*****
+
+####  280041437  
+##### 19188#       发表于 2024-1-19 12:02
+
+呜呜，亚达呦，给可推留点幻想吧
+
+*****
+
+####  ads147147  
+##### 19189#       发表于 2024-1-19 12:03
+
+引流角色还被期待第三季追飞机呢，虽然我觉得完全不可能了，再怎么写故事可可这破事应该到此为止。
+
+说起来民警算是唯一吃了二期动画优势的角色了，其他人都在炸人设，大香老师更是飞的没边把正常粉丝甩下去了，反而是爱妻哭哭捞了不少人，目测三期有更多哭哭戏份（但是是冬毬还是vn就不好说了）。
+
+*****
+
+####  280041437  
+##### 19190#       发表于 2024-1-19 12:10
+
+抛开可可不谈，现在又得罪了堇推，这种消耗自己信用的迷惑结果是怎么搞出来的
+
+*****
+
+####  ViyViy  
+##### 19191#       发表于 2024-1-19 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63699610&amp;ptid=2078110" target="_blank">qty 发表于 2024-1-19 11:55</a>
+
+这破企划从一开始对唐可可这个角色以及鲤鱼的定位就是引流工具，给企划引完流量乖乖退到一边给主推让位就是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">可香写的太好了，二期那种拉踩玩法太明显且太奇怪，pass，拿符合情景的可堇操作成是成了，但是成了一半，管不住抬上来的堇，太乐了
+
+*****
+
+####  稀勢のささ  
+##### 19192#       发表于 2024-1-19 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都快跟花田大师和解了，可能一开始看着能写点稍微新奇点的有意思的东西，干劲拉满。
+结果突然有一天被要求亲手毁掉角色，那行吧，直接开摆爱咋咋
+
+*****
+
+####  优妮可  
+##### 19193#       发表于 2024-1-19 12:18
+
+明天五巡，今天出这事。纯属搞心态，还是这种运营，今年直接判刑吧。
+
+*****
+
+####  ViyViy  
+##### 19194#       发表于 2024-1-19 12:20
+
+最好全得罪一遍就有共识了，免得老有人拿点儿阴差阳错的红利就帮别人数钱了，觉得XX事多，你不是在星里第一批被宰的罢了，企划可没说宰了一批就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+*****
+
+####  280041437  
+##### 19195#       发表于 2024-1-19 12:26
+
+它要是再给我整香音传这种东西，我黑它一辈子
+
+*****
+
+####  lj205  
+##### 19196#       发表于 2024-1-19 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈哈哈，可推都坐下来喝茶看笑话就是
+
+*****
+
+####  稀勢のささ  
+##### 19197#       发表于 2024-1-19 12:42
+
+<img src="https://img.saraba1st.com/forum/202401/19/124217gg90gq8eegzzg0tz.png" referrerpolicy="no-referrer">
+
+<strong>{906430EE-D4C3-4217-B80B-DB7746F3E043}.png</strong> (34.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 12:42 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">配上大香这个表情，更妙了
+
+*****
+
+####  靡宜  
+##### 19198#       发表于 2024-1-19 12:43
+
+抽楼
+
+*****
+
+####  靡宜  
+##### 19199#       发表于 2024-1-19 12:43
+
+ 本帖最后由 靡宜 于 2024-1-19 12:47 编辑 
+
+可的时候霓虹金还没急，还是得烧到头上。虽然冲也没什么用。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 19200#       发表于 2024-1-19 12:50
+
+这些骚操作什么时候是个头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 19201#       发表于 2024-1-19 12:51
+
+さゆりが投票を促すポストをしたこと
+
+ちょこリエの絵師がかのん応援絵をポストしたこと
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 19202#       发表于 2024-1-19 12:51
+
+笑拉了，本来今年我还想星团似乎在一切向好了，果然你正常不过三周
+不会真有人觉得得罪了堇推人家跟你统一战线了？无非就是又复读我女被企划针对我女快美美单飞我女美强惨，谁跟你共情？你推也是迫害我女的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 19203#       发表于 2024-1-19 13:00
+
+真要双人，按cp投人不是更多嘛，想不懂。这玩意都以为一个人，那边可推都没怎么发力感觉
+
+*****
+
+####  稀勢のささ  
+##### 19204#       发表于 2024-1-19 13:01
+
+さゆりが投票を促すポストをしたこと
+
+ちょこリエの絵師がかのん応援絵をポストしたこと
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有什么双人，被迫的罢了
+
+*****
+
+####  280041437  
+##### 19205#       发表于 2024-1-19 13:04
+
+我是说假如香音是投票第一名的话，也会上双人么（）
+
+*****
+
+####  ruffian  
+##### 19206#       发表于 2024-1-19 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63700524&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2024-01-19 13:01:47</a>
+さゆりが投票を促すポストをしたこと
+
+ちょこリエの絵師がかのん応援絵をポストしたこと
+
+哪有什么双人，被迫 ...</blockquote>那确实是自信过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 19207#       发表于 2024-1-19 13:23
+
+次の出来レース投票でかのんを最下位にすれば全員で出れるってこと？
+
+*****
+
+####  starring  
+##### 19208#       发表于 2024-1-19 13:41
+
+有趣，逼真最终解释权归我方<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+最后两天香推堇推斗得那么激烈，最后一天堇被反超还动员那么多人超回去，结果全部木大<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+建议以后所有投票都决定香音，心情好就拉一个陪衬小丑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 19209#       发表于 2024-1-19 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是lovelive super star的含金量吗，原本觉得大香被强推多少有点阴谋论的味道，小百合再强也不至于，现在看不管大香中之人是谁，企划都要走大女主路线，不行也得给我行，自信的不得了啊
+
+*****
+
+####  笋狐  
+##### 19210#       发表于 2024-1-19 14:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉版热闹吃瓜中。题外话，这种操作如果是黑流量烂炒那简直太成功了
+
+*****
+
+####  Kfly  
+##### 19211#       发表于 2024-1-19 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/19/140702xxjd1gd1zw885fe2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (268.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 14:07 上传
+
+*****
+
+####  稀勢のささ  
+##### 19212#       发表于 2024-1-19 14:11
+
+ 本帖最后由 稀勢のささ 于 2024-1-19 14:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3 4人的可能性的也是有的 全看大香在哪儿是吧
+
+真就只能拜拜了
+
+*****
+
+####  ads147147  
+##### 19213#       发表于 2024-1-19 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">解释还不如不解释，这不是把猜测的部分全部做实了吗
+
+*****
+
+####  ruffian  
+##### 19214#       发表于 2024-1-19 14:21
+
+这一个月全在编这个了吧？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 19215#       发表于 2024-1-19 14:25
+
+要么再也不搞了要么一个萝卜一个坑呗，还怕代哥不帮你找店挂名？全挤一块是想表达什么，相亲相爱一家人吗，幽默
+
+*****
+
+####  猫睛石  
+##### 19216#       发表于 2024-1-19 14:33
+
+星团最大败笔就是死命推大香，彻底对三期死心了，八成还是写稀烂的大香传
+
+*****
+
+####  优妮可  
+##### 19217#       发表于 2024-1-19 14:37
+
+看板娘数等于香音排名数
+
+*****
+
+####  280041437  
+##### 19218#       发表于 2024-1-19 14:45
+
+上面的人研究了快两年还没知道问题的源头吗，还死性不改，这但凡是个正常人都不会做出这种决定
+
+*****
+
+####  仟音一心  
+##### 19219#       发表于 2024-1-19 14:53
+
+堇推人CelticWhite老师都怒了。
+
+*****
+
+####  奥柏伦亲王  
+##### 19220#       发表于 2024-1-19 15:10
+
+2024年了还在推大香老师呐，三期动画摇摇欲坠了
+
+*****
+
+####  stygian  
+##### 19221#       发表于 2024-1-19 15:15
+
+换管事的换了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+代哥和力八真是好朋友，双向奔赴，支持方向盘打死<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 19222#       发表于 2024-1-19 15:49
+
+突然意识到今天是企划公开四周年。。。或许当年香音从宣传图里脱掉裤袜的那一刻，真正的涩谷香音就已经死了，香音不再是涉谷时尚街里那个不起眼，有些内向自卑的土妹子，而是必须被推向最前台的superstar。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| salic428| + 1||
+
+查看全部评分
+
+*****
+
+####  奥柏伦亲王  
+##### 19223#       发表于 2024-1-19 17:08
+
+四个字，臭鱼烂虾
+
+我其实是只关心真人部分，心态上是把你星当老年人的第一个日本女团来追的，无奈这个项目作为2.5次元企划，二次元这边搞得太烂势必连累三次元，想完全不关注也不可能。二期已经是血与泪的教训了，本以为埼玉day2大家一起放炮加上传言的换人、远比二期要慢的动画进度，似乎是有点要改良的意思，现实却是改了，如改，日本人经典那套换汤不换药了。小偶像们可怜不可怜我是不知道，厨厨们是真的没被当人对待啊。
+
+*****
+
+####  cat1230  
+##### 19224#       发表于 2024-1-19 17:26
+
+往好了想，星众人在个人活动发力速度时间上都比水快的
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ViyViy  
+##### 19225#       发表于 2024-1-19 20:28
+
+不行太逆天了一定得发，和几次点兵到某人都只说很热情的比，还能低的我倒想看看是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/19/202251gsbbgr3sl7c7003n.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240119202234.jpg</strong> (15.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 20:22 上传
+

@@ -2678,3 +2678,630 @@ mujica进手游第一个实装的活动大概率也是补动画戏份少的两�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  acgreen  
+##### 9233#       发表于 2024-1-19 08:06
+
+以前的bangdream动画所有人的戏份都是1：1的吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  好想看Mujica啊  
+##### 9234#       发表于 2024-1-19 08:25
+
+和你邦谈公平，有人能吊着3个女人端水，有人连个扶贫cp都组不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 9235#       发表于 2024-1-19 08:31
+
+ 本帖最后由 星空冻结 于 2024-1-19 08:47 编辑 
+
+你邦剧情要是真吃大锅饭就不会紧急出一个猫视角的总集篇维持一下本土第一人气但是没什么剧情的猫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，我也没说猫不是人气第一啊，可能有歧义，我编辑一下吧
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9236#       发表于 2024-1-19 08:37
+
+啊？猫的人气在本土不是很高吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9237#       发表于 2024-1-19 08:40
+
+貓在日本人氣第一吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9238#       发表于 2024-1-19 08:49
+
+你邦从来是没有端水这个说法的，比如鼓手这个臭底边位置目前已经实装的8个人没有任何一个混到过戏份上的主推待遇，连贝斯DJ都有主推的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  碎镜子  
+##### 9239#       发表于 2024-1-19 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">复习完最后一集了。
+
+草，原来团里只有初皇还以为是来正经玩乐队的，结果来了才发现都是地雷。
+
+祥子破产没和其他人说，现在睦宝和喵梦都知道，初皇不知道，祥子为了演还自己先走一个人做地铁，反而让初华误会对自己冷淡。
+
+再加上还有前女友这个梗在，如果是恋爱漫画不出意外要上演分手情节了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">快进到初皇觉得都是灯皇的错所以从她身边利用偶像身份拉拢爱音被祥子抓宝破防。
+
+把属于我的生活还给我.jpg
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -LYRE-|-1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  碎镜子  
+##### 9240#       发表于 2024-1-19 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最开始祥子还一脸好意的问爱音找到了乐队成员来吗？然后爱音还专门把soyo供出来还把祥子气了一下（你队友很好，现在是我的了），祥子怕不是觉得soyo是最早背叛的吧。
+
+再加上素世算是爆发户阶级提升，从早期有一定的小优越到现在的状态难怪态度那么差啊。
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9241#       发表于 2024-1-19 09:33
+
+额。。。。建议再看几周目吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9242#       发表于 2024-1-19 09:34
+
+[https://twitter.com/tsuki1290/status/1747803408420188342](https://twitter.com/tsuki1290/status/1747803408420188342)
+
+<img src="https://img.saraba1st.com/forum/202401/19/093421pt7vrvcptvy73lac.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-672sKnT1kSg9-bu.jpg</strong> (23.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 09:34 上传
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9243#       发表于 2024-1-19 09:34
+
+https://www.pixiv.net/artworks/115287971<img src="https://p.sda1.dev/15/1d366f30dd01788547ceb854fb5b0c1a/CMP_20240119093429062.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9244#       发表于 2024-1-19 09:35
+
+只有祥子是女式谢幕，小心思昭然若揭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9245#       发表于 2024-1-19 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63697718&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-19 09:34</a>
+https://twitter.com/tsuki1290/status/1747803408420188342</blockquote>
+4个骑士1个公主的含金量又在上升<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，祥子在母鸡卡的幸福生活
+
+*****
+
+####  6030sylar  
+##### 9246#       发表于 2024-1-19 09:53
+
+ 本帖最后由 6030sylar 于 2024-1-19 10:40 编辑 
+
+没羞没臊的4女一女生活<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 9247#       发表于 2024-1-19 09:57
+
+祥子看到爱音拉着灯的手跑出去，然后一脸开心的问爱音找到成员了吗，得知是来打听自己近况的爽世才变脸。这点祥子和睦几乎是一样的，都希望以前的队友能够再投入到乐队中。碧天伴走是灯给爱音的歌也是灯第一次为某人写的歌，祥子全程平静并鼓励灯唱出来，游戏里直接加了一个太好了的表情。春日影是戏里戏外钦定的“我们的歌、灯对乐队成员们表达感情的乐曲”，立希说“那唱的是我自己”完全没有问题，有人还拿这个车立希我都怀疑是不是看的一部作品。这动画真没那么多情情爱爱。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 9248#       发表于 2024-1-19 10:06
+
+新樓友看的什麼版本的mygo啊 問號問號 不會是看的AI配音切片吧
+
+*****
+
+####  Arrogate  
+##### 9249#       发表于 2024-1-19 10:40
+
+“铁暗恋”算是一周目最早接触的烂梗吧，搞得角色做什么都沾点暗恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzm96816  
+##### 9250#       发表于 2024-1-19 10:56
+
+动画实际表现没那么多额外的关系，但是上映期间的后期是没法这么讨论的。
+
+家道中落第八集就可以猜出来了，大部分人十三集才勉强承认这一点。姐妹说我都不想评论，完全干扰思路。场外干扰还有过多鼓吹圣爱音，导致很多人第九集后以为会是爱音carry。 
+
+*****
+
+####  青叶假司  
+##### 9251#       发表于 2024-1-19 10:58
+
+我们看的是一个动画吗 家道中落说粪亲父大喇喇地拍出来还用你去猜？
+
+*****
+
+####  ddy2811  
+##### 9252#       发表于 2024-1-19 11:10
+
+我不觉得那些是场外干扰，相反那些感觉离创作思路更近；反而家道中落才是疑点重重
+
+*****
+
+####  NODY  
+##### 9253#       发表于 2024-1-19 11:12
+
+ 本帖最后由 NODY 于 2024-1-19 11:13 编辑 
+
+目前看来比起家道中落更像是扫地出门吧，大家族真的整个寄了的话肯定上新闻，那祥子也没有继续装大小姐的必要了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 9254#       发表于 2024-1-19 11:32
+
+姐妹说起码通过一些场内和场外细节推测出了睦祥有比幼驯染更深厚的关系。我个人觉得姐妹说是mygo第一假药，有一定逻辑又没有完全推错。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ytttsuuuba| + 1||
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 9255#       发表于 2024-1-19 11:39
+
+姐妹说现在也没有完全破产，顶多能确定不是双子，但亲戚的表姐妹还是有可能的
+
+*****
+
+####  Nungesser  
+##### 9256#       发表于 2024-1-19 11:39
+
+祥子那都不叫家道中落，家破人亡还差不多，家道中落大致相当于萝丝上泰坦尼克号还有女仆伺候，祥子这个直接进出租屋了。其实当时很多人更信姐妹论就是因为这个说法更加二次元一些，相比之下家道中落论过于现实和沉重让大家不太觉得应该出现在动画里，结果没想到吧，动画自己一拳把二三次元的这堵墙打穿了。
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9257#       发表于 2024-1-19 11:41
+
+出租屋？凶宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战吧有人开盒开到祥子住的那块屋子以前好像有人寄了
+
+*****
+
+####  Arrogate  
+##### 9258#       发表于 2024-1-19 11:43
+
+家道中落是最早推出的也是最明显的，但是后面觉得太简单又不够刺激所以逐渐放弃
+
+*****
+
+####  NODY  
+##### 9259#       发表于 2024-1-19 11:46
+
+目前看大部分同人和讨论采用的也是父女被家族踢出去的假药版本，还真没见过写丰川家真破产只剩两个人相依为命的
+
+毕竟真到了后者那个程度怎么也得有消息跑出来，而不是初华soyo等长期关注祥子的人连她现在不是大小姐都不知道
+
+*****
+
+####  acgreen  
+##### 9260#       发表于 2024-1-19 11:53
+
+13集之前各论坛：祥子闹麻了
+我：这不是一眼事出有因，祥子也不想离开乐队
+13集后我：祥子你闹一闹吧，制作组你闹麻了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 9261#       发表于 2024-1-19 11:58
+
+每次看这种水平的话题轮回我都想推荐新来的或者长期没进过楼的漏油回去翻一下一号楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| salic428| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  狐式重型坦克  
+##### 9262#       发表于 2024-1-19 11:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼要这样过一年吗
+
+*****
+
+####  蒜苗  
+##### 9263#       发表于 2024-1-19 12:01
+
+怎么又开始绝望的轮回了，什么我的假药高于你的假药
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9264#       发表于 2024-1-19 12:04
+
+<img src="https://p.sda1.dev/15/45a2dbde4d7a9dda785a8522ce231c2f/CMP_20240119120404381.png" referrerpolicy="no-referrer">还是换个话题吧
+
+*****
+
+####  QuattroVageena  
+##### 9265#       发表于 2024-1-19 12:06
+
+草 27号怎么就快来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9266#       发表于 2024-1-19 12:06
+
+b站这号权限还挺大的，可惜管账号的人有点草台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9267#       发表于 2024-1-19 12:09
+
+YTB开播时间是1.20 20：00（东京时间）
+
+希望不是运营草台又写错时间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9268#       发表于 2024-1-19 12:10
+
+27號快到了，還沒買的大家如果要買就買eplus的，不僅有回放，還不用辦帳號就能購買，
+
+觀看連結直接發信箱裡，時間到了點過去就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 9269#       发表于 2024-1-19 12:10
+
+其实**那边也有限时播放就是了
+
+*****
+
+####  NODY  
+##### 9270#       发表于 2024-1-19 12:11
+
+b和ytb直播是一个源吗，之前都没看过ytb限时回放，原来还会剪翻唱的
+
+
+*****
+
+####  Aendst  
+##### 9271#       发表于 2024-1-19 12:12
+
+ 本帖最后由 Aendst 于 2024-1-19 12:13 编辑 
+
+一个，b站这个图片的開催記念和限定公開都还是日文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一看就是直接复制粘贴过来的
+
+*****
+
+####  御幸一也  
+##### 9272#       发表于 2024-1-19 12:12
+
+看點臉紅狗狗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/19/121219b54szii5p3lff6iv.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20240119-025438_1748177116519399631_photo.jpg</strong> (156.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 12:12 上传
+
+[https://twitter.com/kkm338/status/1748177116519399631](https://twitter.com/kkm338/status/1748177116519399631)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 菠萝啵啵啵| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  6030sylar  
+##### 9273#       发表于 2024-1-19 12:26
+
+21号去看ayasa啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 9274#       发表于 2024-1-19 12:37
+
+<img src="https://p.sda1.dev/15/02faac1b9adaa6939f0dba6f7e9c8c62/CMP_20240119123701008.jpg" referrerpolicy="no-referrer">
+b站晚一天播是吧
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  碎镜子  
+##### 9275#       发表于 2024-1-19 12:41
+
+你楼假药能叠一年嘛？
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御幸一也  
+##### 9276#       发表于 2024-1-19 12:42
+
+看看1st有沒有什麼活，沒活就罵武士道罵一年<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 9277#       发表于 2024-1-19 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63699455&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-1-19 11:43</a>
+
+家道中落是最早推出的也是最明显的，但是后面觉得太简单又不够刺激所以逐渐放弃 ...</blockquote>
+很明显家里出了问题，13集一时间也确实唬住一些人了，不过再回头细想我觉得如果只是这么简单给祥子设定的这些普通人一辈子也别想摸到的能力和资源未免太高了，这些东西显然是要被充分利用的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 9278#       发表于 2024-1-19 12:53
+
+有些东西原作写的挺清楚的和假药两码事吧，真要认真讨论假药现在戏外主创的假药比戏里都精彩了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kasroz  
+##### 9279#       发表于 2024-1-19 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">动画都要一年后，1st能有什么活，什么活不都要动画先行
+
+*****
+
+####  NODY  
+##### 9280#       发表于 2024-1-19 13:08
+
+ras其实是先出漫画再出动画的，不过ras没什么设定需要藏
+
+*****
+
+####  ytttsuuuba  
+##### 9281#       发表于 2024-1-19 13:19
+
+1st应该有续报PV吧，不然无法解释官推不转定档消息。
+
+*****
+
+####  ytttsuuuba  
+##### 9282#       发表于 2024-1-19 13:21
+
+假药都讨论了小半年了，没有新东西的情况下，现在不管提出什么假药都是绝望的轮回罢了，不如去翻1号楼。
+
+*****
+
+####  PDQ4  
+##### 9283#       发表于 2024-1-19 13:40
+
+1st后把母鸡卡广播给我吐出来也行，让我用中之人来进行一个代，反正没活就骂wsd，想爆米也得有料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9284#       发表于 2024-1-19 15:16
+
+看推特热搜三森她老公去美国那事，很怀疑武士道是不是内部出了什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 9285#       发表于 2024-1-19 16:10
+
+那三森总不能就隐退一起去美国了吧
+
+*****
+
+####  九陌狂游  
+##### 9286#       发表于 2024-1-19 16:15
+
+三森老公不是武士道台柱子吗，这都跑了？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  6030sylar  
+##### 9287#       发表于 2024-1-19 16:27
+
+早岛早好，要求放出avemujica系构版剧本
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  爱丁堡official  
+##### 9288#       发表于 2024-1-19 16:56
+
+X: CetrioloCetos
+<img src="https://p.sda1.dev/15/f99cf4948ab9cbd8cbb442ec08fdd3e8/IMG_CMP_145217208.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 安洁莉娜| + 1|帅taki|
+
+查看全部评分
+
+*****
+
+####  6030sylar  
+##### 9289#       发表于 2024-1-19 17:02
+
+<img src="https://img.saraba1st.com/forum/202401/19/170200qbvaltk2xgyv3t3y.jpg" referrerpolicy="no-referrer">
+
+<strong>460b6e5f63da426b804eb207a80ffeae.jpg</strong> (218.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 17:02 上传
+
+*****
+
+####  kangkangsama  
+##### 9290#       发表于 2024-1-19 17:12
+
+<img src="https://img.saraba1st.com/forum/202401/19/171222o5rzyllej55i5g1l.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1150.png</strong> (408.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 17:12 上传
+
+*****
+
+####  6030sylar  
+##### 9291#       发表于 2024-1-19 18:55
+
+<img src="https://img.saraba1st.com/forum/202401/19/185521mcjpa0googoqxqcn.jpg" referrerpolicy="no-referrer">
+
+<strong>76acd12099af19ad690ba210ac82d9d5.jpg</strong> (515.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 18:55 上传
+
+*****
+
+####  半年  
+##### 9292#       发表于 2024-1-19 19:33
+
+<img src="https://img.saraba1st.com/forum/202401/19/193343fmnfwgwnw4grts05.jpg" referrerpolicy="no-referrer">
+
+<strong>GEJi7-MbIAANrWl.jpg</strong> (240.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/193342f77jngo7o40hm2a4.jpg" referrerpolicy="no-referrer">
+
+<strong>GEJi7-JbgAAWcQY.jpg</strong> (310.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:33 上传
+
+[https://twitter.com/Nisroch111/status/1748069672841576786/photo/2](https://twitter.com/Nisroch111/status/1748069672841576786/photo/2)
+
+*****
+
+####  御幸一也  
+##### 9293#       发表于 2024-1-19 20:09
+
+海初睦襲來<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/19/200920m5cpnnlckggmfhgg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240119-120536_1748315771963675079_photo-0.jpg</strong> (532.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/200924i9sq808c0ydsccqj.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240119-120536_1748315771963675079_photo-1.jpg</strong> (216.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 20:09 上传
+
+[https://twitter.com/sasakirico/status/1748315771963675079](https://twitter.com/sasakirico/status/1748315771963675079)
+
+*****
+
+####  枫林不见  
+##### 9294#       发表于 2024-1-19 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63704939&amp;ptid=2159415" target="_blank">半年 发表于 2024-1-19 19:33</a>
+
+https://twitter.com/Nisroch111/status/1748069672841576786/photo/2</blockquote>
+好好好
+

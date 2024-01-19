@@ -17,3 +17,55 @@
 
 有意愿体验日配版游戏的可以考虑购买，单纯对牌子有兴趣的....个人建议是没买海鸥牌子的话，这个也不是那么重要。
 
+
+*****
+
+####  Jamaisvu  
+##### 523#       发表于 2024-1-19 19:08
+
+新池子来了，十协会的宝子和箱子：
+
+<img src="https://img.saraba1st.com/forum/202401/19/190346facdvy7dqcywepl0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119_190132.jpg</strong> (361.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/190347brkmdeozkprgsoop.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119_190214.jpg</strong> (210.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/190348iytvjzv8vgu8iytv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119_190238.jpg</strong> (184.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/190349ddjhx8eja9rxarjr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119_190144.jpg</strong> (209.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/190349r9fi26cpf0lapclp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119_190200.jpg</strong> (226.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:03 上传
+
+根据演示，十宝是斩击人格，十箱是突刺人格。
+
+希望都是沉沦体系的，我现在看到仲冬夜噩梦和无头肖像都懒得选沉沦队.
+

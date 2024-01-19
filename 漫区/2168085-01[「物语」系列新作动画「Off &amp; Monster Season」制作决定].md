@@ -899,3 +899,56 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 —— 来自 vivo V2218A, Android 13上的  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是补完其他角色，阿良良木的戏份也有不少就是了
 
+
+*****
+
+####  天气天气天气  
+##### 102#       发表于 2024-1-19 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63692890&amp;ptid=2168085" target="_blank">三七甜 发表于 2024-1-18 19:51</a>
+还好还是沙发套，板村智幸是走了吗
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+板村智幸做完终物语下就跑了，彻底和沙发套切割<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sissii  
+##### 103#       发表于 2024-1-19 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63695975&amp;ptid=2168085" target="_blank">TiiTiiLL 发表于 2024-1-19 00:46</a>
+动画补完适合小说接着看吗，后面这些讲了啥，垃圾君的大学生活吗
+
+—— 来自 vivo V2218A, Android 13上的  ...</blockquote>
+大学生活？职场和新婚！
+
+*****
+
+####  仟音一心  
+##### 104#       发表于 2024-1-19 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63695975&amp;ptid=2168085" target="_blank">TiiTiiLL 发表于 2024-1-19 00:46</a>
+
+动画补完适合小说接着看吗，后面这些讲了啥，垃圾君的大学生活吗
+
+—— 来自 vivo V2218A, Android 13上的  ...</blockquote>
+你可以理解为超长版后日谈+个人番外，当然垃圾君视角的也有。
+
+*****
+
+####  狼王卢比奥  
+##### 105#       发表于 2024-1-19 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63695975&amp;ptid=2168085" target="_blank">TiiTiiLL 发表于 2024-1-19 00:46</a>
+动画补完适合小说接着看吗，后面这些讲了啥，垃圾君的大学生活吗
+
+—— 来自 vivo V2218A, Android 13上的  ...</blockquote>
+抚子传+各女主几个小故事+垃圾君大学
+
+*****
+
+####  windsflied  
+##### 106#       发表于 2024-1-19 10:50
+
+这动画如果出色的话，四舍五入就是《__神动画》
+

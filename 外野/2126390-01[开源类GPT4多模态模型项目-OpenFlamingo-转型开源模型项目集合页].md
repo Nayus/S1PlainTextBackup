@@ -26811,3 +26811,234 @@ Segment-Anything vs. GARField:SAM的自动掩码生成器可能会在从给定�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1196#       发表于 2024-1-19 05:04
+
+scene-verse
+
+拓展3D视觉语言学习以实现基准场景理解
+
+项目主页;https://scene-verse.github.io/
+
+github项目主页;https://github.com/scene-verse/sceneverse
+
+数据集:coming soon
+
+3D视觉语言基准(grounding)，旨在将语言与3D物理环境对齐，是发展具身代理者(embodied agents)的代表性基石，与2D领域的最新进展相比，将语言基准于3D场景面临着几个重要挑战:
+1.由于不同的对象配置、丰富的属性和复杂关系，3D场景所固有的内在复杂性
+2.缺乏用于基准学习的成对的3D视觉语言数据
+3.缺乏统一的从基准3D数据中蒸馏知识的学习框架
+
+在这项工作中，旨在通过系统化的提升室内环境(indoor environments)中的3D视觉语言学习潜力来解决这三个主要挑战，构造了第一个百万级的3D视觉语言数据集，SceneVerse，其中包括约68K个3D室内场景，以及由人工标注和可扩展的基于场景图的生成方法得到的250万个视觉语言对，这种扩展允许进行统一的预训练框架，既基准场景预训练(GPS/Grounded Pre-training for Scenes)
+
+通过大量实验，在所有的现有3D基准视觉测试集上实现了SOTA性能，展示了GPS的有效性，通过在具有挑战性的3D视觉语言任务中进行的零样本转换实验，SceneVerse和GPS的巨大潜力得到了展现
+
+<img src="https://img.saraba1st.com/forum/202401/19/050352beeag3171xc7aa68.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-045929__01.jpg</strong> (584.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:03 上传
+
+SCENEVERSE概览图，这是一个包含超过68000个不同室内场景和来自场景字幕说明、物体字幕说明和物体引用的250万个对齐的场景语言对的百万级3D视觉语言数据集
+
+<img src="https://img.saraba1st.com/forum/202401/19/050359wo195fpcx8p5pfl4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-045957__01.jpg</strong> (154.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:03 上传
+
+SCENEVERSE与现有3D视觉语言数据集的对比，SCENEVERSE将之前的工作的数据规模扩大了一个数量级
+
+Anno.人工标注，Syn.模板或LLM生成的描述
+
+<img src="https://img.saraba1st.com/forum/202401/19/050405a2ldiz3mbrr5824l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-050013__01.jpg</strong> (683.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:04 上传
+
+SCENEVERSE数据集的收集和统计信息，给定一个3D场景(a)，自动化流程(c)生成三种类型的描述，包括场景字幕说明、物体字幕说明和物体引用，图(b)为不同的语言来源和数据组合的对比
+
+<img src="https://img.saraba1st.com/forum/202401/19/050410dstsz84rgxg3fagg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-050030__01.jpg</strong> (180.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:04 上传
+
+提出的GPS模型概览图，利用三个级别的对比对齐(Lobj、Lscene和Lref)作为LMLM的掩码语言建模目标进行模型学习
+
+<img src="https://img.saraba1st.com/forum/202401/19/050421rv9kbzptljcokpc5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-050046__01.jpg</strong> (535.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:04 上传
+
+在Nr3D、Sr3D和ScanRefer上的3D视觉基准结果，使用“direct”表示在SCENEVERSE上训练的模型，没有额外的微调head，“fine-tune”表示在特定数据上进行了微调的模型，用粗体显示最佳结果
+
+<img src="https://img.saraba1st.com/forum/202401/19/050428k9ppgg9r9jahddrj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-050104__01.jpg</strong> (93.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:04 上传
+
+在已建立的基准测试上的零样本迁移结果
+
+<img src="https://img.saraba1st.com/forum/202401/19/050433k0qn7xxbxzqnzgzx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-050114__01.jpg</strong> (113.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:04 上传
+
+在SCENEVERSE-val上的零样本迁移结果，遵循Nr3D/Sr3D的设置使用GT(Ground Truth)物体提案评估结果
+
+<img src="https://img.saraba1st.com/forum/202401/19/050438zhzwrzik1ehkwi2i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-050123__01.jpg</strong> (85.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:04 上传
+
+模型性能与数据规模的关系，模型在ScanRefer和SCENEVERSE-val上的数据拓展致使预训练和零样本迁移设置中都有持续改进
+
+<img src="https://img.saraba1st.com/forum/202401/19/050443ken6809dlleop8gh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-050130__01.jpg</strong> (52.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:04 上传
+
+在训练中对不同的场景文本对类型进行的消融实验，报告了在ScanRefer上没有额外微调的模型结果
+
+<img src="https://img.saraba1st.com/forum/202401/19/050449grpxjprmrirmimxr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-050130__02.jpg</strong> (52.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 05:04 上传
+
+在真实或合成数据集中学习的模型在跨域迁移上的结果，"S3D"代表Structured3D
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Machinery  
+##### 1197#       发表于 2024-1-19 06:19
+
+Consolidated3D
+
+通过确定性采样先验(Deterministic Sampling Prior)实现一致的高保真文本到3D生成
+
+github项目主页(待整理):https://github.com/sail-sg/Consistent3D
+
+分数蒸馏采样(SDS/Score distillation sampling)及其变体极大地推进了文本到3D生成的发展，但容易遇到几何崩溃和质量较差的纹理，为了解决这个问题，首先对SDS进行了深入分析，发现其蒸馏采样过程实际上对应于随机微分方程(SDE/stochastic differential equation)的轨迹采样:SDS沿着SDE轨迹进行采样，得到一个更少噪声的样本，然后将其作为优化3D模型的指导，然而，SDE采样中的随机性常常导致多样性和不可预测性的样本，这意味着并不总是会成为更少噪声的样本，因此不能始终正确的指导，这解释了SDS的脆弱性
+
+对于任何SDE，总是存在一个常微分方程(ODE/ordinary differential equation)，其轨迹采样可以确定性地、一致地收敛到所需的目标点作为SDE，本文因此提出了一种新颖而有效的方法，名为Consistent3D，用于探索文本到3D生成中的ODE确定性采样先验(ODE deterministic sampling prior)
+
+具体而言，在每个训练迭代中，给定一个由3D模型渲染的图像，首先通过预训练的2D扩散模型估计其期望的3D得分函数，并构建一个用于轨迹采样的ODE，接下来，设计了一种一致性蒸馏采样损失(consistency distillation sampling loss)，沿着ODE轨迹进行采样，生成两个相近的样本，并使用更少噪声的样本来指导另一个更嘈杂的样本，以将确定性先验提取到3D模型中
+
+实验结果显示，Consistent3D在生成高保真度和多样化的3D对象和大规模场景方面具有很好的效果
+
+<img src="https://img.saraba1st.com/forum/202401/19/061926moyff91n2e3s8yyz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-061538__01.jpg</strong> (572.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 06:19 上传
+
+Consistent3D生成的示例，本文方法可以根据广泛范围的文本提示生成详细、多样的3D物体和大规模场景
+
+<img src="https://img.saraba1st.com/forum/202401/19/061930ifn7bmhnbonuwyfa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-061557__01.jpg</strong> (171 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 06:19 上传
+
+随机微分方程(SDE)和常微分方程(ODE)中(反向)轨迹采样的对比
+
+<img src="https://img.saraba1st.com/forum/202401/19/061934kzt5tx5x95xxbxjt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-061609__01.jpg</strong> (85.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 06:19 上传
+
+CDS概览图，在每个训练迭代中，渲染图像被固定噪声扰动，然后作为确定性流(deterministic flow)的起点用于计算CDS损失
+
+<img src="https://img.saraba1st.com/forum/202401/19/061938fzbdt3tfq4wfnfdm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-061630__01.jpg</strong> (470.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 06:19 上传
+
+Consistent3D可以生成与给定文本提示高度相关的多样且高保真度的物体或大规模场景
+
+<img src="https://img.saraba1st.com/forum/202401/19/061943pvo0vzponrc5zjpi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-061646__01.jpg</strong> (361.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 06:19 上传
+
+文本到3D生成的定性对比，本文方法产生了更加真实且更稳健的几何结果
+
+<img src="https://img.saraba1st.com/forum/202401/19/061948pulejytp7vftlfyx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-061715__01.jpg</strong> (462.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 06:19 上传
+
+Consistent3D各组件贡献的消融实验:
+(a)随机时间步计划
+(b)预定时间步计划
+(c)每次迭代中的随机噪声
+(d)本文提出的配置
+
+<img src="https://img.saraba1st.com/forum/202401/19/061953irddh5z1dnl1zqcl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240119-061719__01.jpg</strong> (77.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 06:19 上传
+
+CLIP R-Precision的定量对比，分数是从DreamFusion画廊的40个提示中平均计算得出的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  巨魔型美羽  
+##### 1198#       发表于 2024-1-19 11:03
+
+请教一下，图像多标签分类现在有什么离线部署的解决方案吗，想要识别一些遥感图像是否有云、过曝、条纹等情况。训练集已有，自己炼模型的方案和能微调的现成模型有什么推荐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

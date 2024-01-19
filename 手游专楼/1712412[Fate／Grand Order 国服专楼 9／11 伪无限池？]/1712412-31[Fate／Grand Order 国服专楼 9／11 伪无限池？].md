@@ -67,3 +67,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两个十连 NEW了一个罗兰 滚了
 
+
+*****
+
+####  宵十一狼  
+##### 45929#       发表于 2024-1-19 15:00
+
+10护符+5个10连才抽到尼托<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

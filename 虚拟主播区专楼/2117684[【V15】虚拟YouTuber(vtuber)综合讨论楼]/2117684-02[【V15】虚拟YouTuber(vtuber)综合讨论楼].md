@@ -727,3 +727,37 @@ And just like that everyone forgot about pomu's upcoming graduation
 
 给乙铝改一点点诗子震撼（褒义）。
 
+
+*****
+
+####  渡鸦骑士  
+##### 2920#       发表于 2024-1-19 18:29
+
+为什么三角优华突然活动休止了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 2921#       发表于 2024-1-19 18:44
+
+可能是因为你不懂日文吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|确实不懂了.png|
+
+查看全部评分
+
+*****
+
+####  lhawp  
+##### 2922#       发表于 2024-1-19 20:48
+
+超天酱这个真的是直播啊，好强
+

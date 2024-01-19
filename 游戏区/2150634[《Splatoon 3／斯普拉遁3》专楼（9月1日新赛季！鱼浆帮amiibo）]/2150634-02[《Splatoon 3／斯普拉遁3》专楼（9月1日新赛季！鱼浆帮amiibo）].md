@@ -9840,3 +9840,152 @@ RPG一多真的非常影响游戏体验，更何况现在一堆曲射大佬让�
 
 给了我无败野康的错觉，然后720就倒了，800以后更是开始坐牢
 
+
+*****
+
+####  秋月孝三  
+##### 2490#       发表于 2024-1-19 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，九州润怎么就正常召开了。甲子园和月中更新呢？
+
+
+*****
+
+####  KBAC  
+##### 2491#       发表于 2024-1-19 16:06
+
+<img src="https://s2.loli.net/2024/01/19/COKzNhqaSXbrD3H.png" referrerpolicy="no-referrer">
+以前游戏里就曾经出过鱿鱼脸章鱼的bug，而最近老任的官方CM里，出现了章鱼脸鱿鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 2492#       发表于 2024-1-19 17:05
+
+<img src="https://s2.loli.net/2024/01/19/YwxupQbSJ6U4ZAT.png" referrerpolicy="no-referrer">
+呦呵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫菜粉丝煲  
+##### 2493#       发表于 2024-1-19 17:05
+
+鱼肉碎金属终于改了
+
+*****
+
+####  oi99o  
+##### 2494#       发表于 2024-1-19 17:14
+
+看看能改成啥样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Junakr  
+##### 2495#       发表于 2024-1-19 17:15
+
+泥楼言出法随，隔壁下水道什么时候也安排下。
+
+*****
+
+####  KBAC  
+##### 2496#       发表于 2024-1-19 17:21
+
+这次施工图上的文字好多（鱿文看不懂啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 2497#       发表于 2024-1-19 17:32
+
+这文字应该是映射某现实语言生成的吧，没人分析出来么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2498#       发表于 2024-1-19 17:35
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也太快了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2499#       发表于 2024-1-19 17:39
+
+spa是不是上个赛季改的，研究所这是打算一个赛季修一个图，这都要挤牙膏吗？臭鱼干温泉和峡谷还等着呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  clvan_  
+##### 2500#       发表于 2024-1-19 17:42
+
+ 本帖最后由 clvan_ 于 2024-1-19 17:45 编辑 
+
+那么问题来了，鳗鲇区、疏洪道、峡谷、温泉这几张图那个会是下一次改的对象。还有个大桥，差点把这个漏了
+
+*****
+
+####  秋月孝三  
+##### 2501#       发表于 2024-1-19 17:45
+
+左路加宽还行吧。自阵倒是无所谓，这图打开实在过于容易
+
+*****
+
+####  墨染白泉  
+##### 2502#       发表于 2024-1-19 18:04
+
+不延长更新的话就剩两个赛季了（
+
+*****
+
+####  罗克萨斯  
+##### 2503#       发表于 2024-1-19 18:21
+
+购物公园也是烂图，对面同时开两个以上RPG你连落脚的地方都没，更别说打开了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绿冰  
+##### 2504#         楼主| 发表于 2024-1-19 19:00
+
+这改动是挺大的，地图宽度扩展得非常厉害
+
+*****
+
+####  秋月孝三  
+##### 2505#       发表于 2024-1-19 19:07
+
+3代现行的图里面比较粪的其实就一个塔拉坡，中央附近的高台一占游戏基本就结束了，打开方只能等对面失误，和2代初期的音乐堂一个毛病
+
+*****
+
+####  carroy  
+##### 2506#       发表于 2024-1-19 20:33
+
+这粪图终于要改了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nor000  
+##### 2507#       发表于 2024-1-19 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">鳗鲶、峡谷、美术馆什么时候改回pv1pv2版本
+
+*****
+
+####  Tachikoma88  
+##### 2508#       发表于 2024-1-19 20:56
+
+看了不少对战图的hack，感觉epd5真的很想将喷喷打造成一个互通大世界，希望未来新机能实现吧
+

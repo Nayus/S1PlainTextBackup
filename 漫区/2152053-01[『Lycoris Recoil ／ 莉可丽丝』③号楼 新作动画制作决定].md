@@ -19222,3 +19222,61 @@ yhm<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referre
 
 2024-1-18 21:31 上传
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 1482#       发表于 2024-1-19 08:42
+
+https://x.com/Edgar_Syu/status/1747923421546352685?s=20<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/f8397d027d92cbc35e8225ff99d01fd0/CMP_20240119084222261.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 1483#       发表于 2024-1-19 19:37
+
+[https://twitter.com/conpay10/status/1748278316564725798?s=19](https://twitter.com/conpay10/status/1748278316564725798?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/19/193713agyqr0ksrhoyed9s.jpg" referrerpolicy="no-referrer">
+
+<strong>20240119_193603.jpg</strong> (187.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:37 上传
+
+[https://twitter.com/s_suke_7150/status/1748254248369082423?s=19](https://twitter.com/s_suke_7150/status/1748254248369082423?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/19/193744swzpjhjcmjpw6wpm.jpg" referrerpolicy="no-referrer">
+
+<strong>20240119_193721.jpg</strong> (302.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:37 上传
+
+*****
+
+####  Saber琪  
+##### 1484#       发表于 2024-1-19 19:41
+
+[https://twitter.com/sengokuchidori/status/1748097945768231162?s=19](https://twitter.com/sengokuchidori/status/1748097945768231162?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/19/193953rtmibrrz1234rief.jpg" referrerpolicy="no-referrer">
+
+<strong>20240119_193820.jpg</strong> (293.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:39 上传
+
+[https://twitter.com/57goshichi/status/1748284172270285249?s=19](https://twitter.com/57goshichi/status/1748284172270285249?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/19/194037z146xc3vzfr19639.jpg" referrerpolicy="no-referrer">
+
+<strong>20240119_194021.jpg</strong> (462.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:40 上传
+

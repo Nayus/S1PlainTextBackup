@@ -5595,3 +5595,278 @@ FGO里面有恒星灵基的现在已经明确出场了三个了，而他师傅�
 你别说，已经看到伊织打ort的截图了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">虽然打不过但伊织一定爽到飞呀，再失忆把自己忘了也不能忘了打过这么爽的架，塔塔开，塔诺希！
 
+
+*****
+
+####  qixinno2  
+##### 11027#       发表于 2024-1-19 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">颠佬武痴么 一直战斗一直爽
+
+*****
+
+####  exiaexa  
+##### 11028#       发表于 2024-1-19 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63697081&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-19 08:37</a>
+
+颠佬武痴么 一直战斗一直爽</blockquote>
+伊织是明确的天才，甚至传承了武藏和小次郎两个人的衣钵
+
+但是很不幸生在了太平盛世只能当个保镖
+
+FSR有条线就是经过盈月圣杯战争彻底激发了自己剑鬼的欲望
+
+本质就是个对纯粹变强有强烈欲望的剑客
+
+平时就是太闲了+自主抑制欲望所以看起来像个正常人，没有变成剑鬼
+
+现在到了迦勒底可不就疯狂找人打架
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11029#       发表于 2024-1-19 09:45
+
+伊织的悲剧就是他的剑术才能在太平盛世没用，而他自己也有正常道德观，不会乱动刀。SR夜长明是三个结局中唯一一个激发了剑鬼的欲望，胜过对其他的重视，但这也是特殊情况的影响。来到迦勒底，除了能和古今各国的武术高手对抗以外，还能去拯救世界，符合自己道德观，公私都有乐子，怪不得语音这么兴奋和high<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 11030#       发表于 2024-1-19 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉老李斯卡哈这种应该也很开心吧 
+
+*****
+
+####  少年的深渊  
+##### 11031#       发表于 2024-1-19 09:47
+
+伊织的实力现在有官方背书了吗？fsr里那一手怎么看都是出奇制胜，感觉他的双刀燕返顶多跟看门大爷比一比，真武藏和真小次郎他都过不去吧
+
+*****
+
+####  洛克萨斯  
+##### 11032#       发表于 2024-1-19 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63697891&amp;ptid=2084912" target="_blank">少年的深渊 发表于 2024-1-19 09:47</a>
+
+伊织的实力现在有官方背书了吗？fsr里那一手怎么看都是出奇制胜，感觉他的双刀燕返顶多跟看门大爷比一比， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">年代在他之后的日本剑系英灵应该都打不过他
+
+*****
+
+####  少年的深渊  
+##### 11033#       发表于 2024-1-19 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63697929&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-19 09:50</a>
+
+年代在他之后的日本剑系英灵应该都打不过他</blockquote>
+真的吗？核弹剑仙呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 11034#       发表于 2024-1-19 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63698027&amp;ptid=2084912" target="_blank">少年的深渊 发表于 2024-1-19 09:56</a>
+
+真的吗？核弹剑仙呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卫宫和他对砍应该没啥优势，拿光炮砸可能会被抓前摇，除非是超远距离那种狙击，但已经不是剑术了，伊织剑术稳压在他之后的日本英灵问题不大
+
+*****
+
+####  exiaexa  
+##### 11035#       发表于 2024-1-19 10:00
+
+ 本帖最后由 exiaexa 于 2024-1-19 10:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63697891&amp;ptid=2084912" target="_blank">少年的深渊 发表于 2024-1-19 09:47</a>
+
+伊织的实力现在有官方背书了吗？fsr里那一手怎么看都是出奇制胜，感觉他的双刀燕返顶多跟看门大爷比一比， ...</blockquote>
+没有，硬要说的话他的语音自认不如真农民的燕返
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只不过你月的剑客系大多都是实诚的纯种近战人，现在那堆一流用户多少都带点花里胡哨的光炮
+
+哪怕在没光炮的人群里，这堆剑客也大概率被剑兰按着垂
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有个最典型的例子是项羽
+
+你看着对剑客吹得花里胡哨的，你把项羽放在那儿给他们砍，刀都给你砍崩刃了都不一定能破防
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  少年的深渊  
+##### 11036#       发表于 2024-1-19 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63698053&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-19 09:58</a>
+
+卫宫和他对砍应该没啥优势，拿光炮砸可能会被抓前摇，除非是超远距离那种狙击，但已经不是剑术了 ...</blockquote>
+单论剑术那确实应该算中上了，至少摸到剑圣的门槛了，但是我没记错的话，月的世界强度按时间线来排是U型曲线，过去和未来都很强，也不能说的那么绝对吧，我不是真月厨，这种战设定还得问月厨，我就是好奇伊织的实力评定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+fsr里武藏亲都给他当了垫子，别看游戏流程里干各路神仙妖魔，按设定也不是正经圣杯战
+
+*****
+
+####  少年的深渊  
+##### 11037#       发表于 2024-1-19 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63698079&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-19 10:00</a>
+
+没有，硬要说的话他的语音自认不如真农民的燕返</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真是，花里胡哨的，一个光炮秒了
+
+*****
+
+####  eilot  
+##### 11038#       发表于 2024-1-19 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63697677&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-19 09:31</a>
+
+伊织是明确的天才，甚至传承了武藏和小次郎两个人的衣钵
+
+但是很不幸生在了太平盛世只能当个保镖
+
+FSR有条线 ...</blockquote>
+這感覺和FGO的柳生說明一樣，也是生在盛世或日常，柳生他都是平穩近人，被他人笑劍術只是裝飾也能當無事
+
+直到路過的女武藏突然出現又消失，打了一場架就玩失蹤，這樣埋下了伏筆...
+
+最後變成至高天，打完後又能釋懷心情入迦勒底，之後變得更強...
+
+*****
+
+####  シャル  
+##### 11039#       发表于 2024-1-19 15:02
+
+ 本帖最后由 シャル 于 2024-1-19 15:18 编辑 
+<blockquote>少年的深渊 发表于 2024-1-19 09:56
+真的吗？核弹剑仙呢</blockquote>
+半步封印剑圣，此后世间再无剑圣
+
+*****
+
+####  シャル  
+##### 11040#       发表于 2024-1-19 15:06
+
+<blockquote>exiaexa 发表于 2024-1-19 10:00
+没有，硬要说的话他的语音自认不如真农民的燕返
+
+</blockquote>
+不是不如，境界都没到农民级
+
+语音说的很明白了，以为小时候遇到的无名剑圣就是农民老年才到的巅峰，没想到农民年轻时就早到了
+
+
+*****
+
+####  シャル  
+##### 11041#       发表于 2024-1-19 15:14
+
+ 本帖最后由 シャル 于 2024-1-19 15:19 编辑 
+
+伊织和农民是相对的啊
+
+农民少年之后看到了师傅无名剑圣练剑，迷上了剑术，无名剑圣只传授他风流不教剑术，在深山独立锻炼一生最终成了剑圣
+
+伊织少年之时看到农民瞬杀48强盗，迷上了剑术，拜武藏和小次郎为师学的真传、在盈月与众多从者交手后最终成了剑鬼
+
+到底还是师傅重要，农民的师傅教的是修心，武藏没教修心于是伊织成了颠佬
+
+*****
+
+####  シャル  
+##### 11042#       发表于 2024-1-19 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+莫非是下一章up
+
+*****
+
+####  Jamaisvu  
+##### 11043#       发表于 2024-1-19 18:42
+
+ 本帖最后由 Jamaisvu 于 2024-1-19 18:59 编辑 
+<blockquote>シャル 发表于 2024-1-19 18:22
+那个印度人是裁啊，一般召唤是枪
+
+莫非是下一章up</blockquote>
+有种说法是般度五子的大哥坚战，会用枪，亲爹是司掌审判的正法神阎摩。
+
+不过异传标题是南无阿弥陀佛，佛教相关，那也可能是孔雀王朝的阿育王，前半生疯狂屠戮，后半生皈依佛教。
+
+要真是阿育王估计得五星吧，印度最伟大国王之一。
+
+*****
+
+####  alucardcz  
+##### 11044#       发表于 2024-1-19 18:47
+
+任务里那个和猫或狗互动一次怎么做？
+
+*****
+
+####  Jamaisvu  
+##### 11045#       发表于 2024-1-19 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63704504&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-19 18:47</a>
+
+任务里那个和猫或狗互动一次怎么做？</blockquote>
+点击地图上的猫或狗，它们会动一下，然后就完成了。
+
+*****
+
+####  angelooo  
+##### 11046#       发表于 2024-1-19 18:50
+
+<blockquote>alucardcz 发表于 2024-1-19 18:47
+任务里那个和猫或狗互动一次怎么做？</blockquote>
+点地图上的猫和狗
+
+*****
+
+####  v22325  
+##### 11047#       发表于 2024-1-19 18:51
+
+<blockquote>alucardcz 发表于 2024-1-19 18:47
+任务里那个和猫或狗互动一次怎么做？</blockquote>
+地图上不是有猫狗么？点一下就行
+
+*****
+
+####  alucardcz  
+##### 11048#       发表于 2024-1-19 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到了 3q
+
+*****
+
+####  シャル  
+##### 11049#       发表于 2024-1-19 19:15
+
+ 本帖最后由 シャル 于 2024-1-19 19:23 编辑 
+
+宇宙猫状态<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+BFD64D51-979A-4657-8F22-482B4119B4EA.png
+(515 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/191528fzth66sstscthmsd.png" referrerpolicy="no-referrer">
+
+屏幕截图 2024-01-19 192342.png
+(174.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-19 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202401/19/192356vmwhcv9955wayho9.png" referrerpolicy="no-referrer">
+

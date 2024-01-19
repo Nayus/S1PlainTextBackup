@@ -293,3 +293,35 @@ gbf策划真好做啊
 
 只影响猎金卷场的倒不一定会改....
 
+
+*****
+
+####  是这样  
+##### 17622#       发表于 2024-1-19 05:25
+
+差点一冲动买法桑dlc了，好险
+
+— from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Sylpheed  
+##### 17623#       发表于 2024-1-19 10:13
+
+买了的表示也没什么实质体验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+短期就5%天司甚至更少，高难为了吃满280硬用双面完全就是在加大难度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  是这样  
+##### 17624#       发表于 2024-1-19 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63698279&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-1-19 10:13</a>
+买了的表示也没什么实质体验
+短期就5%天司甚至更少，高难为了吃满280硬用双面完全就是在加大难度[f: ...</blockquote>
+主要十二法还没做完，买了等于剩块金，但是一想不如摆烂
+
+— from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

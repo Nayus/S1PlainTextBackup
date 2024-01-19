@@ -1052,3 +1052,48 @@ mihon和tachiyomi速度也一样吗
 是换新壳了还是没了</blockquote>
 找不到新壳。我兜了一圈别的盗转站好像这星期的周刊漫画也都停更了，说明源头确实是瘫痪了
 
+
+*****
+
+####  繭  
+##### 83#       发表于 2024-1-19 06:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63672768&amp;ptid=2167901" target="_blank">量产失败型 发表于 2024-1-17 02:01</a>
+借楼问下常去的生肉站MANGARAW在停止更新几天后唐突寄了,有什么一样的更新快的站么,nicomanga虽然能用但更 ...</blockquote>
+之前有新闻说Kakao联合日本一起搞掉了一家m开头的大型盗版漫画站，搞不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  demon6666  
+##### 84#       发表于 2024-1-19 10:38
+
+怎么tachiyomi创建备份会失败
+
+*****
+
+####  Kfly  
+##### 85#       发表于 2024-1-19 17:52
+
+mihon要怎么识别tachiyomi下载过的文件？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0WHan0  
+##### 86#       发表于 2024-1-19 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63703991&amp;ptid=2167901" target="_blank">Kfly 发表于 2024-1-19 17:52</a>
+mihon要怎么识别tachiyomi下载过的文件？</blockquote>
+设置-高级-清除下载索引
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kfly| + 1|感谢|
+
+查看全部评分
+

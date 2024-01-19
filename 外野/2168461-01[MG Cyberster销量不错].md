@@ -977,3 +977,41 @@ miata要是20多我必买好吧，贷款都买。cyberster的话30多下不去�
 
 快把718干死，我来抄底<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无印凉粉  
+##### 97#       发表于 2024-1-19 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63691692&amp;ptid=2168461" target="_blank">蓝川澈 发表于 2024-1-18 18:02</a>
+
+那肯定dei是新车的自动硬顶啊
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+那你还是继续做梦吧。
+
+MX-5从初代到现在就没有硬顶的。
+
+*****
+
+####  蓝川澈  
+##### 98#       发表于 2024-1-19 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63702891&amp;ptid=2168461" target="_blank">无印凉粉 发表于 2024-1-19 16:27</a>
+
+那你还是继续做梦吧。
+
+MX-5从初代到现在就没有硬顶的。</blockquote>
+[https://www.mazda.com.cn/cars/mx-5#1](https://www.mazda.com.cn/cars/mx-5#1)  <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘘月姫  
+##### 99#       发表于 2024-1-19 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63702891&amp;ptid=2168461" target="_blank">无印凉粉 发表于 2024-1-19 16:27</a>
+那你还是继续做梦吧。
+
+MX-5从初代到现在就没有硬顶的。</blockquote>
+<img src="https://p.sda1.dev/15/e25e1edca153daeadfb8a8a8bdb92718/CMP_20240119192505294.png" referrerpolicy="no-referrer">张口就来
+

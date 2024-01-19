@@ -9989,3 +9989,11 @@ spa是不是上个赛季改的，研究所这是打算一个赛季修一个图�
 
 看了不少对战图的hack，感觉epd5真的很想将喷喷打造成一个互通大世界，希望未来新机能实现吧
 
+
+*****
+
+####  晴岚  
+##### 2509#       发表于 2024-1-19 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">小枪使还是讨厌伞,希望能再削弱一下
+

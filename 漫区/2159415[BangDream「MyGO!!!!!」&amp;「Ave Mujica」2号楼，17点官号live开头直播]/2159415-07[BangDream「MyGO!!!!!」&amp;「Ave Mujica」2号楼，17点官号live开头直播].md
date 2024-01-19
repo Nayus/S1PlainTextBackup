@@ -3305,3 +3305,12 @@ X: CetrioloCetos
 https://twitter.com/Nisroch111/status/1748069672841576786/photo/2</blockquote>
 好好好
 
+
+*****
+
+####  蒜苗  
+##### 9295#       发表于 2024-1-19 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63703484&amp;ptid=2159415" target="_blank">kangkangsama 发表于 2024-1-19 17:12</a></blockquote>
+日文看不太懂，这是终于修好了？
+

@@ -27170,3 +27170,93 @@ OMG-Seg模型的功能可视化，列举了来自四个数据集的五个不同�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1201#       发表于 2024-1-20 04:16
+
+LGVI
+
+通过多模态大型语言模型实现语言驱动的视频重绘(Language-Driven Video Inpainting)
+
+项目主页:https://jianzongwu.github.io/projects/rovi/
+
+github项目代码仓库(待整理):https://github.com/jianzongwu/Language-Driven-Video-Inpainting
+
+<img src="https://img.saraba1st.com/forum/202401/20/041534mzzebuidoiferez5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-041422.jpg</strong> (155.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 04:15 上传
+
+本文引入了一项新任务——基于语言的视频重绘，通过使用自然语言指令来指导重绘过程，这种方法克服了传统视频重绘方法的局限性，传统方法一般依赖于手动标记的二值化掩码(binary masks)，这一过程通常繁琐乏味且需要密集劳动
+
+提出了ROVI(Remove Objects from Videos by Instructions)数据集，其中包含5650个视频的9091个重绘结果，用于支持该任务的训练和评估
+
+还提出了一种新颖的基于扩散的语言驱动视频重绘框架，这是该任务的首个端到端基准模型，整合了多模态大型语言模型有效的理解和执行基于语言的复杂重绘请求
+
+全面的实验结果展示了数据集的多样性以及模型在各种语言指导的重绘场景中的有效性
+————
+LGVI框架
+
+<img src="https://img.saraba1st.com/forum/202401/20/041545kknz15lli9p9c9r2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-041433.jpg</strong> (142.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 04:15 上传
+
+提出的LGVI和LGVI-I框架，通过增加一个时间维度来扩展U-Net以支持视频输入，为了确保生成的视频在时间上的一致性，在交叉注意力和FFN层之间引入了一个时间注意力模块
+
+此外，还提出了一个掩码解码器模块，用于在重绘任务中提供显式指导，通过MLLM联合训练来增强LGVI以用于交互式视频重绘，从而得到了基线模型LGVI-I，MLLM的输出包括一组提示Token，这些Token被输入到U-Net的交叉注意力中
+————
+ROVI数据集
+
+<img src="https://img.saraba1st.com/forum/202401/20/041549fzkjg6s2zlfniww2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-041440.jpg</strong> (157.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 04:15 上传
+
+所提出的ROVI数据集的统计数据，ROVI数据集是第一个用于语言引导视频重绘(LVI/language guided video inpainting)和交互式视频重绘(IVI/interactive video inpainting)任务的数据集
+————
+视觉结果
+
+<img src="https://img.saraba1st.com/forum/202401/20/041554jl8flflfzj5kul7l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-041447.jpg</strong> (152.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 04:15 上传
+
+LGVI与参考视频重绘的基线模型进行的对比
+
+<img src="https://img.saraba1st.com/forum/202401/20/041559qypdpmdcmvrh4w9v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-041453.jpg</strong> (133.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 04:15 上传
+
+更多有关参考视频重绘结果
+
+<img src="https://img.saraba1st.com/forum/202401/20/041603fgcdodl1ldw1i1gt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-041501.jpg</strong> (301.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 04:16 上传
+
+LGVI-I的交互式视频重绘结果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

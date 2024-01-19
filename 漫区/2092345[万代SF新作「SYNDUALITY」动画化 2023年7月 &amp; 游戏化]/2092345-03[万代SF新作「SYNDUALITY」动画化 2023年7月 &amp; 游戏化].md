@@ -1891,3 +1891,23 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Piano-Forest  
+##### 3495#         楼主| 发表于 2024-1-19 21:07
+
+第15話「Duel of Fates」
+
+[https://youtu.be/J2sgUdpwpmU](https://youtu.be/J2sgUdpwpmU)
+
+イストワールの手がかりを求め、かつて宇宙港があったというカルタゴの近傍へとやってきたカナタたち。アクセスを試みたそのとき、何者かから攻撃を受けてしまう。
+
+攻撃のあった方向へと向かうカナタを待ち受けていたのは、本来の装備を備えた純白のコフィン「ギルボウ」と、カナタが黒仮面と呼ぶ謎の人物であった。
+<img src="https://p.sda1.dev/15/86be1885fe4bdb2e0a45254d29f5867f/44fce35f67a20326d59c9b24a84bf594.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/02bce4fd416239c1010492940655e1cd/32f8a38f2f89baccb045481b7fe2d70d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/1e54821775eb4eea3f7927ea2c11c670/b1ed4c199299375c069d8453bd66908c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/944bd2b472be40bb51b1c5ea5482d870/f873aa7ac477f3faf8dbec48323d07d7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/dcc85305229910b2f69872f806fa9ad1/abf94c9369a6c66f0f411afa13e52cf5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/9388c806fe0a4eab7e02fa7583d794b8/7f4f68d3a808a8e1f973a57444f6ccbb.jpg" referrerpolicy="no-referrer">
+

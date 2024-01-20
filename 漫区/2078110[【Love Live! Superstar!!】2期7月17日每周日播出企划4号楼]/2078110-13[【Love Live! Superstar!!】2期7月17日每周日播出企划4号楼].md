@@ -1473,3 +1473,29 @@ yura！！！！
 
 这歌单让我暂时原谅官方……两天。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saya1892  
+##### 19261#       发表于 2024-1-20 17:35
+
+垂死病中惊坐起，天国的yura它落地了
+
+*****
+
+####  cybernetics31  
+##### 19262#       发表于 2024-1-20 17:47
+
+yura 这下真的后悔了没现地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 19263#       发表于 2024-1-20 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63713311&amp;ptid=2078110" target="_blank">qty 发表于 2024-1-20 17:11</a>
+最后和小百合，结那三个人站C位就是明明白白的告诉观众这就是一二三期的立德，今后主推的就是这仨。 ...</blockquote>
+结娜问题肯定不大的。。只是我还是不太理解二期生为什么选一期落选而不是再开海选。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

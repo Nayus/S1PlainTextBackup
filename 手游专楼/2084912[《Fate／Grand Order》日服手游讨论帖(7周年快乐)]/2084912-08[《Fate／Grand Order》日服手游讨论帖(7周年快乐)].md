@@ -5912,3 +5912,17 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 
 救伊织的不是柳生老爷子吗？
 
+
+*****
+
+####  シャル  
+##### 11053#       发表于 2024-1-20 19:10
+
+ 本帖最后由 シャル 于 2024-1-20 19:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63711530&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-1-20 14:18</a>
+
+救伊织的不是柳生老爷子吗？</blockquote>
+并不是，是FSR的农民<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+农民的礼装就是一个月亮<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -1613,3 +1613,34 @@ OP1来了，还剩始空
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ads147147  
+##### 19276#       发表于 2024-1-20 19:08
+
+ 本帖最后由 ads147147 于 2024-1-20 19:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63714247&amp;ptid=2078110" target="_blank">starring 发表于 2024-1-20 18:36</a>
+OP1来了，还剩始空
+老东西们的金币都爆完了吗</blockquote>
+小星星<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+始空还没有的话，看来确实有可能在动画三期里播“全新版本”
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ViyViy  
+##### 19277#       发表于 2024-1-20 19:10
+
+合理推论，满昏<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/20/190956uivtezuc0rel0ic0.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240120190918.jpg</strong> (11.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 19:09 上传
+

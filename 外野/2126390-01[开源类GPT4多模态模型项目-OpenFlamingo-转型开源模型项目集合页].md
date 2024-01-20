@@ -27670,3 +27670,118 @@ TextVQA的定性结果，每个示例由用户查询、带有MMFS的MM-Interleav
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1205#       发表于 2024-1-21 04:43
+
+RoleCraft-GLM
+
+促进大型语言模型中的个性化角色扮演
+
+github项目主页:https://github.com/tml2002/RoleCraft
+
+RoleCraft-GLM，一个创新性框架，旨在通过大型语言模型(LLMs)提升个性化角色扮演能力，RoleCraft-GLM解决了对话型人工智能中缺乏个性化互动的关键问题，并通过详细而情感细腻的角色描绘提供了解决方案
+
+本文贡献了一个独特的对话数据集，从传统的以知名角色为中心的角色数据集，转变为了多样化的非知名角色，从而提高了语言建模互动的真实度和复杂性
+
+此外，本文方法还包括细致的角色开发(character development)，确保对话既真实又能在情感上产生共鸣，通过各种用例研究验证了RoleCraft-GLM的有效性，突显了其在不同场景中的多功能性和能力
+
+本文框架在生成对话方面表现出色，能准确反映角色的个性特征和情感，从而提高用户参与度，在个性化人工智能互动方面迈出了重要一步，并通过更加细腻和情感丰富的对话，为更真实、沉浸式的人工智能辅助的角色扮演体验铺平了道路
+
+<img src="https://img.saraba1st.com/forum/202401/21/044219em6cqb0iuemuclux.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043621__01.jpg</strong> (210.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:42 上传
+
+RoleCraft-GLM框架概览图:
+1.情感标注的对话数据集在创建反映特定情感特质的角色配置文件方面扮演着关键作用
+2.基于上下文和已知角色特征生成的问答对，确保了对话与角色配置文件一致
+3.使用通用和角色特定指令的混合方法训练GLM以适应各种对话场景
+
+<img src="https://img.saraba1st.com/forum/202401/21/044224seaqd3yaen9cnpei.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043648__01.jpg</strong> (479.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:42 上传
+
+生成详细角色描述的示例，利用角色描述模板和情感标注的对话数据集，可以根据提示生成详细的角色描述
+
+<img src="https://img.saraba1st.com/forum/202401/21/044228dyfg5s9fkyazwifp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043706__01.jpg</strong> (233.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:42 上传
+
+指令的动词-名词结构(Verb-noun structure)，内圈表示前20个动词，外圈列出直接的名词对象
+
+<img src="https://img.saraba1st.com/forum/202401/21/044233xoyzwy3ofsrruywa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043706__02.jpg</strong> (48.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:42 上传
+
+对话中的情感数据分布
+
+<img src="https://img.saraba1st.com/forum/202401/21/044242uh03a63wn7uat33r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043715__01.jpg</strong> (204.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:42 上传
+
+数据集的统计数据
+
+<img src="https://img.saraba1st.com/forum/202401/21/044246nofe9lo4f7lxeejl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043715__02.jpg</strong> (142.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:42 上传
+
+词云表示数据集中的中文角色的个性特征的可视化分布，越大的单词表示相关特质的频率越高
+
+<img src="https://img.saraba1st.com/forum/202401/21/044251dxgko9d1e1yccefg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043723__01.jpg</strong> (371.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:42 上传
+
+本文模型和基线模型对角色特定介绍生成的响应的示例
+
+<img src="https://img.saraba1st.com/forum/202401/21/044255ssumwesfjdsx62j2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043730__01.jpg</strong> (277.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:42 上传
+
+各种指标评估结果
+
+<img src="https://img.saraba1st.com/forum/202401/21/044300r7skvk1b77y795kt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240121-043735__01.jpg</strong> (41.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 04:43 上传
+
+情感标注和未标注的数据的消融实验结果对比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -10172,3 +10172,12 @@ epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是�
 
 查看全部评分
 
+
+*****
+
+####  罗克萨斯  
+##### 2523#       发表于 2024-1-20 22:01
+
+感度降低到-1后，中加两圈蓄力能打5个靶了，不过还是不稳定，但这已经是我微操的极限了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/01/20/0bbba8187acc8.gif" referrerpolicy="no-referrer">
+

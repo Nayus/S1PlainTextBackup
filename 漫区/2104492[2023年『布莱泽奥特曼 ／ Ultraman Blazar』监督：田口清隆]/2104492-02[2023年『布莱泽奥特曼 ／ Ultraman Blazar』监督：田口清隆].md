@@ -1128,3 +1128,18 @@ V99攒了那么多年的怨念，被一句话治愈离开，也太牵强了点�
 
 倒是戴拿里决战前的那个肥肥参谋自己取义了
 
+
+*****
+
+####  里村紅葉  
+##### 1722#       发表于 2024-1-20 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63714417&amp;ptid=2104492" target="_blank">希望之花 发表于 2024-1-20 18:52</a>
+
+奥棚的脑瘫上层从昭和时代就没有被清算过吧
+
+杰克里的mn炸弹爱好者，还有高仓司令官
+
+倒是戴拿里决战 ...</blockquote>
+高仓司令官还有大逼斗吃呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算穆斯卡大佐演员年龄大了也可以安排点别的桥段嘛
+

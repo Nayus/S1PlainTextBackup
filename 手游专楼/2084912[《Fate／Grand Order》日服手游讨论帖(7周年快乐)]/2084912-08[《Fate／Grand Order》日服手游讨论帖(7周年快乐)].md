@@ -6035,3 +6035,11 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 
 看解包，还有四个门，会是柱子战嘛？不过大概率不会是就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 11065#       发表于 2024-1-21 07:11
+
+真有柱子战的话挺不错的，比3面本打的快，就该多开开
+

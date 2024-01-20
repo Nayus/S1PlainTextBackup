@@ -6008,3 +6008,11 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 看隔壁解包，后头地图上会冒出根空想树来，不知道是不是要抢着砍树</blockquote>
 伯爵不会直接出来打一场就跑吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11062#       发表于 2024-1-20 22:04
+
+能带着剩下的所长碎片来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

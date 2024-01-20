@@ -1857,3 +1857,21 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
 
 突然想到个问题想问问，星live到今天5th为止，上live 的双人曲有可香小星星，可堇赛车曲，可恋摇曳，还有几首？
 
+
+*****
+
+####  ViyViy  
+##### 19300#       发表于 2024-1-20 22:03
+
+那多了去了，裂啦之歌不全都是
+
+*****
+
+####  ruffian  
+##### 19301#       发表于 2024-1-20 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63716232&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-01-20 22:02:23</a>
+突然想到个问题想问问，星live到今天5th为止，上live 的双人曲有可香小星星，可堇赛车曲，可恋摇曳，还有几 ...</blockquote>赛车曲是liella之歌，二期的liella之歌都是双人曲吧？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

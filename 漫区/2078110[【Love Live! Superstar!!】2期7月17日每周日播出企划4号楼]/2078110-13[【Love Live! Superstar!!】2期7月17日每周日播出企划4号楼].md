@@ -1378,3 +1378,81 @@ stella有了，yura是不是可以安排了
 
 下一首就是yura了吧<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19250#       发表于 2024-1-20 17:22
+
+sayu和pay有点不讲理，合唱部分你们两个飙就好了，nako的声音听不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 19251#       发表于 2024-1-20 17:22
+
+yura！
+
+*****
+
+####  仟音一心  
+##### 19252#       发表于 2024-1-20 17:22
+
+yura！！！！
+
+*****
+
+####  奥柏伦亲王  
+##### 19253#       发表于 2024-1-20 17:22
+
+来了来了！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  优妮可  
+##### 19254#       发表于 2024-1-20 17:23
+
+等了几年.jpg
+
+*****
+
+####  奥柏伦亲王  
+##### 19255#       发表于 2024-1-20 17:27
+
+结哥怎么是坐车出来的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  优妮可  
+##### 19256#       发表于 2024-1-20 17:29
+
+开趴不叫我
+
+*****
+
+####  KirigawaMaki  
+##### 19257#       发表于 2024-1-20 17:31
+
+<img src="https://img.saraba1st.com/forum/202401/20/173058l1ig1a0kk90agg09.jpg" referrerpolicy="no-referrer">
+
+<strong>SD7899hK2ksdn.jpg</strong> (56.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 17:30 上传
+
+喜欢这个
+
+*****
+
+####  奥柏伦亲王  
+##### 19258#       发表于 2024-1-20 17:31
+
+要出门了，真不甘心，这得错过多少好康的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

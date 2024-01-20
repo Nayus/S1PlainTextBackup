@@ -1778,3 +1778,29 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
 惊了，b 站上的切片底下居然有那么多比我还原教旨的，原来在他们眼里一期生的歌都是古兰经一个字也不能改的 ...</blockquote>
 中和一下，非虚构的切片底下的评论则是把五人原打成毒唯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 19291#       发表于 2024-1-20 21:25
+
+啊，我就是那个差不多退坑的。老实说我没啥感想，单纯觉得企划就是看终于凑齐11人了，抓紧把能改的赶紧改好然后安排巡演过渡，以后11人就可以安心编排而已，只不过对小星星就定调以后只会固定2人演出而已。如果说全场最让我绷不住的，大概就是yura开始鲤鱼那段摆鱼尾舞蹈，一动起来把我直接干趴
+
+*****
+
+####  奥柏伦亲王  
+##### 19292#       发表于 2024-1-20 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63715739&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-1-20 21:08</a>
+盲猜化军佬评论区(不过我觉得多半也是早退坑那些兄弟了</blockquote>
+对，可能都是那些加人之后立刻退坑从此只看切片的人吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  优妮可  
+##### 19293#       发表于 2024-1-20 21:32
+
+除了小星星，其他改的歌有争吵正常，本来就不是群友人接受的，我一个群欢呼神，一个群骂的沉默。
+

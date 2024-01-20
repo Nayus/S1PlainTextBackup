@@ -3513,3 +3513,27 @@ eplus我记得就一个月的重播时限？</blockquote>
 <img src="https://p.sda1.dev/15/29514816cbd2b225851ca813bc8f2bb6/CMP_20240120151146195.jpg" referrerpolicy="no-referrer">
 https://twitter.com/Rookie_9/status/1748586673552715892?t=ifwIDc_bnmNIyo9WfI3AxA&amp;s=19
 
+
+*****
+
+####  DarthAka  
+##### 9311#       发表于 2024-1-20 18:14
+
+青木和楠木灯富田美忧没差几天，按咱们这边算一个生肖，按本子算法4月之前都是一个学级的——青木比李世林大两级
+
+*****
+
+####  DarthAka  
+##### 9312#       发表于 2024-1-20 18:17
+
+<blockquote>后藤一里 发表于 2024-1-20 12:20
+唉，妹妹们，下次林鼓子见到青木阳菜记得喊青木姐</blockquote>
+别变成不沾锅，需要的时候自己是大姐，不需要又变成林小姐是前辈了
+
+*****
+
+####  狐式重型坦克  
+##### 9313#       发表于 2024-1-20 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">李世林要给青木端茶倒水捏腰锤腿吗
+

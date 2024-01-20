@@ -5883,3 +5883,24 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 不过异传标题是南无阿弥陀佛，佛 ...</blockquote>
 罗马最大英雄之一凯撒以最不适合的职介落地了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 11051#       发表于 2024-1-20 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63707232&amp;ptid=2084912" target="_blank">ナルバレック 发表于 2024-1-19 23:33</a>
+
+罗马最大英雄之一凯撒以最不适合的职介落地了</blockquote>
+开服时孩子不懂事，做着玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后应该有瘦身版的五星rider帅凯撒：
+
+<img src="https://img.saraba1st.com/forum/202401/20/123354kaa9x9z4lx96v0k3.jpg" referrerpolicy="no-referrer">
+
+<strong>715c8535e5dde711af96eda5abefce1b9c1661df.jpg</strong> (317.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 12:33 上传
+
+（但是参考奎里努斯，升星马甲可能不会换画师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那还是让五星凯撒胎死腹中吧...）
+

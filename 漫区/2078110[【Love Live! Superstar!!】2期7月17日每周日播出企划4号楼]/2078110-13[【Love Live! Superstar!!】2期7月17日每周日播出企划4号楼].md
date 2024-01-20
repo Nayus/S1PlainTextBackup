@@ -1215,3 +1215,29 @@ Image_1705626406018.jpg
 
 能让星运营抖两下的，只有动画的取景纠纷了吧 每期都有一次，一期咖啡店那个确实不是自己的问题，但二期间接导致评分烂的没法看，三期-?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19231#       发表于 2024-1-20 09:22
+
+【【Liella!CLUB】结那挑战高空绳索 结那：I Can Do It! ~薇恩·玛格丽特生日外景 ~-哔哩哔哩】 https://b23.tv/iMi8nIq
+
+结哥超勇，体能真的强
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 19232#       发表于 2024-1-20 16:34
+
+艹开场就是星光序曲
+
+*****
+
+####  优妮可  
+##### 19233#       发表于 2024-1-20 16:40
+
+猜歌不是2.4.11吗？这不应该星光放第二首吗
+

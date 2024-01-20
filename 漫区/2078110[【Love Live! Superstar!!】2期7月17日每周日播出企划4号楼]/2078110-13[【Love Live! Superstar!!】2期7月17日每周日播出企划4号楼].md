@@ -1673,3 +1673,19 @@ VN生日，保留节目
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  stygian  
+##### 19281#       发表于 2024-1-20 19:33
+
+<img src="https://img.saraba1st.com/forum/202401/20/193234nw47ktuf2faxty7i.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240120193228.png</strong> (82.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 19:32 上传
+
+看了二十年偶像其实早应该释然也已经释然，不过这种东西还是能让人流泪
+

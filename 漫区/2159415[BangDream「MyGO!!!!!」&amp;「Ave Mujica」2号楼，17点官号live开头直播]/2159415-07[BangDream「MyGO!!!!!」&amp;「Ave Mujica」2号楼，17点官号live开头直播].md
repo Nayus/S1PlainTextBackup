@@ -3545,3 +3545,13 @@ https://twitter.com/Rookie_9/status/1748586673552715892?t=ifwIDc_bnmNIyo9WfI3AxA
 
 一起进公司，所以青木李世林还是同期？
 
+
+*****
+
+####  septer  
+##### 9315#       发表于 2024-1-20 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63714137&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-20 18:27</a>
+一起进公司，所以青木李世林还是同期？</blockquote>
+你可以数一数凛和青木同框的二人照数量，那真是数不过来<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

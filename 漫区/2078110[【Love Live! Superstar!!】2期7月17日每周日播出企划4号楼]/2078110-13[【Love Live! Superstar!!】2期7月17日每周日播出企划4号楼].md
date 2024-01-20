@@ -1499,3 +1499,45 @@ yura 这下真的后悔了没现地了<img src="https://static.saraba1st.com/ima
 
 —— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Kfly  
+##### 19264#       发表于 2024-1-20 17:53
+
+yura好啊，终于……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 19265#       发表于 2024-1-20 17:55
+
+11人版Nonfiction
+
+*****
+
+####  starring  
+##### 19266#       发表于 2024-1-20 17:59
+
+11人版NF改得还行
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 19267#       发表于 2024-1-20 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63713823&amp;ptid=2078110" target="_blank">starring 发表于 2024-1-20 17:59</a>
+11人版NF改得还行
+
+—— 来自 Sony XQ-DQ72, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+而且处理方式很正确，二三期生每人solo部分就一句，主要还是一期生，也突出Pay的C位。
+
+*****
+
+####  qty  
+##### 19268#       发表于 2024-1-20 18:01
+
+感觉鲤鱼唱yura的时候应该是顾及角色音还是有点夹，放开用本音唱效果应该会更好
+

@@ -809,3 +809,11 @@ And just like that everyone forgot about pomu's upcoming graduation
 Pomu好像被bot了？
 我YouTube推荐下拉全都是Pomu的频道视频<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 2928#       发表于 2024-1-20 10:42
+
+虹人还要给毕业的买bot吗
+

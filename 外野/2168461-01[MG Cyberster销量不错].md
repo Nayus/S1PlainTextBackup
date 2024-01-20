@@ -1055,3 +1055,13 @@ https://www.mazda.com.cn/cars/mx-5#1</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ms05s  
+##### 103#       发表于 2024-1-20 10:42
+
+昨天在嘉定创新港门口看到一台开了敞篷的，真的蛮好看
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

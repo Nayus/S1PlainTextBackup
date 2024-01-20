@@ -537,3 +537,29 @@ Tilsonite Sword是布莱泽奥特曼塑造的刀剑，其原型是由嘎拉蒙�
 
 大结局怎么说呢，该有的都有，但感觉有点拥挤敷衍，可能是因为24分钟太短了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 1657#       发表于 2024-1-20 10:34
+
+有点仓促
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  七宝喵树  
+##### 1658#       发表于 2024-1-20 10:35
+
+说实话第三波来袭算新生代最好起势最高的的结局序幕了，结果最后一集直接虎头蛇尾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 asus ASUS_AI2203_A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  WoLodEstt  
+##### 1659#       发表于 2024-1-20 10:40
+
+真的没结局感，说是单元回结尾都没问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

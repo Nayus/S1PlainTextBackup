@@ -1586,3 +1586,20 @@ OP1来了，还剩始空
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  saya1892  
+##### 19273#       发表于 2024-1-20 18:46
+
+说起来特典曲还有香千/可堇恋两首呢，该不会明天唱吧
+
+*****
+
+####  仟音一心  
+##### 19274#       发表于 2024-1-20 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63714348&amp;ptid=2078110" target="_blank">saya1892 发表于 2024-1-20 18:46</a>
+说起来特典曲还有香千/可堇恋两首呢，该不会明天唱吧</blockquote>
+应该是给明天
+

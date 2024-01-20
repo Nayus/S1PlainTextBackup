@@ -1748,3 +1748,13 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  csolfans  
+##### 19288#       发表于 2024-1-20 21:08
+
+<blockquote>奥柏伦亲王 发表于 2024-1-20 20:58
+惊了，b 站上的切片底下居然有那么多比我还原教旨的，原来在他们眼里一期生的歌都是古兰经一个字也不能改的 ...</blockquote>
+盲猜化军佬评论区(不过我觉得多半也是早退坑那些兄弟了
+

@@ -3582,3 +3582,11 @@ https://twitter.com/Rookie_9/status/1748586673552715892?t=ifwIDc_bnmNIyo9WfI3AxA
 嗯，一小时剪辑版</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">为啥国内还得明天才有啊！可恶
 
+
+*****
+
+####  豊川祥子  
+##### 9318#       发表于 2024-1-20 20:49
+
+<img src="https://p.sda1.dev/15/bdb78c037d904ffcac8110e9cdb3ab02/IMG_CMP_203074400.jpeg" referrerpolicy="no-referrer">
+

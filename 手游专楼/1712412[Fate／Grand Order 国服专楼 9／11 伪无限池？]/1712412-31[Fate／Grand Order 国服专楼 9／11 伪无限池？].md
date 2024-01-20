@@ -75,3 +75,12 @@
 
 10护符+5个10连才抽到尼托<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 45930#       发表于 2024-1-20 11:00
+
+早知道当时不去尝试抽妖僧了
+尼托到现在也没出，两边石头加一块儿大概还行
+

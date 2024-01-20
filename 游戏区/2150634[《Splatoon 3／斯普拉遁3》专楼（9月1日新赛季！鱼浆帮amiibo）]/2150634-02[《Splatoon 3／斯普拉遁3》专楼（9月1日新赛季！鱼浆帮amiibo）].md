@@ -10122,3 +10122,16 @@ epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是�
 
 2024-1-20 11:55 上传
 
+
+*****
+
+####  leyenda  
+##### 2519#       发表于 2024-1-20 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63703753&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-19 17:32</a>
+
+这文字应该是映射某现实语言生成的吧，没人分析出来么？
+
+—— 来自 S1Fun</blockquote>
+【Splatoon3内嵌字幕|rassicas】解码墨语【ardnin】【スプラトゥーン3】 [https://www.bilibili.com/video/BV1s5411i7hD/](https://www.bilibili.com/video/BV1s5411i7hD/)
+

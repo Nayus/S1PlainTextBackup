@@ -1911,3 +1911,14 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 <img src="https://p.sda1.dev/15/dcc85305229910b2f69872f806fa9ad1/abf94c9369a6c66f0f411afa13e52cf5.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/9388c806fe0a4eab7e02fa7583d794b8/7f4f68d3a808a8e1f973a57444f6ccbb.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  立喰師  
+##### 3496#       发表于 2024-1-20 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63700197&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-1-19 12:34</a>
+
+看了老动画的火箭发射升空作画和演出，本集真是差太多了。上太空之难绝不是一个民科+四台magus就能实现的， ...</blockquote>
+看的王立宇宙军？
+

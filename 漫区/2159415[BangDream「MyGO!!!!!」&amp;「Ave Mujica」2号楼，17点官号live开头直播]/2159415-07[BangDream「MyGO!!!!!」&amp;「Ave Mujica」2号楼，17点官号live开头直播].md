@@ -3610,3 +3610,11 @@ https://twitter.com/Rookie_9/status/1748586673552715892?t=ifwIDc_bnmNIyo9WfI3AxA
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DarthAka  
+##### 9321#       发表于 2024-1-20 22:45
+
+原来美味派对Q娃ED2是李子唱的，窝说怎么Q娃后台跟那4只合影
+

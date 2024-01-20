@@ -1916,3 +1916,16 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 对哦，忘记liella之歌了。
 
+
+*****
+
+####  csolfans  
+##### 19306#       发表于 2024-1-20 22:48
+
+ 本帖最后由 csolfans 于 2024-1-20 22:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63716028&amp;ptid=2078110" target="_blank">player3960 发表于 2024-1-20 21:41</a>
+
+退坑大半年了，4th一场没看，听说有yura，跑去把切片看完了，居然大部分时间是站桩有点失望，继续退坑，第 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜了 4th也挺神的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过随便问一嘴，像我这样的基本只接触三次元这一面，动画没怎么看过的多吗
+

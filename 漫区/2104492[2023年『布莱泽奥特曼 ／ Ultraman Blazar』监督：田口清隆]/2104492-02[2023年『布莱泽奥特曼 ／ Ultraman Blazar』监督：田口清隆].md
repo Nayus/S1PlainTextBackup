@@ -460,3 +460,20 @@ Tilsonite Sword是布莱泽奥特曼塑造的刀剑，其原型是由嘎拉蒙�
 
 先不说这喊话的观感，后面前脚说不打了，人家大部队一撤就又打。
 
+
+*****
+
+####  novyDC  
+##### 1648#       发表于 2024-1-20 10:04
+
+队长人望好高 全都来支援了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  若菜  
+##### 1649#       发表于 2024-1-20 10:12
+
+草 V99你撤退的时候不把你家生物兵器带走吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

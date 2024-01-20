@@ -3419,3 +3419,13 @@ eplus我记得就一个月的重播时限？</blockquote>
 唉，妹妹们，下次林鼓子见到青木阳菜记得喊青木姐
 <img src="https://p.sda1.dev/15/a6598f00de26a22fc0e9b71fe1581e5e/CMP_20240120121946710.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 9304#       发表于 2024-1-20 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">青木居然比鼓子年龄大一点么，我一直忽视了
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

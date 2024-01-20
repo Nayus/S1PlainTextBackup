@@ -998,3 +998,22 @@ V99=外来访问者在大海星登场左右揭底的话节奏会好很多，我�
 
 最好别期待剧场版，剧场版各种限制下留给文戏的发挥更少，剧情不烂人物不崩已经很厉害了
 
+
+*****
+
+####  不灭的旋律  
+##### 1708#       发表于 2024-1-20 16:17
+
+后半萎了但至少让我追完了不像smlie一集就弃。可是这演出怎么像阿斯加龙拿布莱泽当防热板突入大气层用完就弃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+v99的目标不会是布莱泽老家(光之国)吧
+
+*****
+
+####  AAAZZZWWW  
+##### 1709#       发表于 2024-1-20 16:20
+
+V99来访不带武器，被攻击准备报复的生物兵器一件比一件狠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后面舰队走了大伙立马开打好生草，一般不应该先感叹一下为什么不带走瓦拉隆，或者瓦拉隆作为生物兵器暴走了所以只能干掉，怎么好像都默认知道了一样<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

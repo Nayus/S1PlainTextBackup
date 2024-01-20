@@ -1922,3 +1922,14 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 看了老动画的火箭发射升空作画和演出，本集真是差太多了。上太空之难绝不是一个民科+四台magus就能实现的， ...</blockquote>
 看的王立宇宙军？
 
+
+*****
+
+####  不灭的旋律  
+##### 3497#       发表于 2024-1-20 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63711444&amp;ptid=2092345" target="_blank">立喰師 发表于 2024-1-20 14:06</a>
+
+看的王立宇宙军？</blockquote>
+是的，不过不该拿来比
+

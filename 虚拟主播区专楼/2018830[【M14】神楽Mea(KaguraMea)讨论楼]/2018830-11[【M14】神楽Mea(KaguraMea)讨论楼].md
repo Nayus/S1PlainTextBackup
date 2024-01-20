@@ -1397,3 +1397,11 @@ b站可以投稿了？
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  gongge666  
+##### 16196#       发表于 2024-1-20 13:57
+
+啊，原来这个野男人是holo的么，我还以为官方是为了照顾粉丝情绪故意不切这个人切片的
+

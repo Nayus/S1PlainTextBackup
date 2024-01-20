@@ -3429,3 +3429,29 @@ eplus我记得就一个月的重播时限？</blockquote>
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  6030sylar  
+##### 9305#       发表于 2024-1-20 13:56
+
+<img src="https://img.saraba1st.com/forum/202401/20/135633kph91e8ei1izj787.jpg" referrerpolicy="no-referrer">
+
+<strong>7eecf43c8a10f7a8be601804b8069e9d.jpg</strong> (86.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 13:56 上传
+
+*****
+
+####  ddy2811  
+##### 9306#       发表于 2024-1-20 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63710907&amp;ptid=2159415" target="_blank">屑猫猫 发表于 2024-1-20 13:03</a>
+
+青木居然比鼓子年龄大一点么，我一直忽视了
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 S1Next- ...</blockquote>
+鼓子是最小的，02年出生；青木是最大的，和差几天00后的灯反过来是差几天90后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

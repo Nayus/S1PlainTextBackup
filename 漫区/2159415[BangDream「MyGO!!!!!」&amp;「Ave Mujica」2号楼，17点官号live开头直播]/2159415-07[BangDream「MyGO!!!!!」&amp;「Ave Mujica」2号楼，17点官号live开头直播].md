@@ -3395,3 +3395,18 @@ eplus我记得就一个月的重播时限？
 
 @Ottergeist1
 
+
+*****
+
+####  御幸一也  
+##### 9302#       发表于 2024-1-20 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63707501&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-20 00:07</a>
+
+eplus我记得就一个月的重播时限？</blockquote>
+存檔回放：可在2024年2月3日（周六）23:59 JST 前觀看
+
+（直播結束後會有一段時間進行再放送處理，該時間段內可能無法觀看。）
+
+就一星期，配信都這樣的
+

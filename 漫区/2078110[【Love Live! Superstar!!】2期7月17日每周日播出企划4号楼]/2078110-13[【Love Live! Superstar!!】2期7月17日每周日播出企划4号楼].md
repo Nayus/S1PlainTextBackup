@@ -1903,3 +1903,16 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cat1230  
+##### 19305#       发表于 2024-1-20 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63716260&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-1-20 22:04</a>
+
+赛车曲是liella之歌，二期的liella之歌都是双人曲吧？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+对哦，忘记liella之歌了。
+

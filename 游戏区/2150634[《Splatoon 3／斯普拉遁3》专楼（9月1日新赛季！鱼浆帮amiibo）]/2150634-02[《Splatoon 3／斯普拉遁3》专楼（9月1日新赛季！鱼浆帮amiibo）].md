@@ -10181,3 +10181,43 @@ epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是�
 感度降低到-1后，中加两圈蓄力能打5个靶了，不过还是不稳定，但这已经是我微操的极限了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 <img src="https://s1.locimg.com/2024/01/20/0bbba8187acc8.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 2524#       发表于 2024-1-20 23:40
+
+这就是后排之殇么？立回已经尽可能的稳健了，还是很难翻盘。碰上缩逼叶师傅时，你就当少了个前排吧，真的非常反感这类玩家
+
+<img src="https://img.saraba1st.com/forum/202401/20/233132qn0o0zm7ddnwocwz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-20-23-21-04-327_com.nintendo.znca-edit.jpg</strong> (524.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:31 上传
+
+中加新配装差不多施工完毕了
+
+<img src="https://img.saraba1st.com/forum/202401/20/233834rm122mf3z299111f.jpg" referrerpolicy="no-referrer">
+
+<strong>2024012023341100-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (227.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:38 上传
+
+其实我更想要这套穿搭，奈何走速碎片不够
+
+<img src="https://img.saraba1st.com/forum/202401/20/233908wnlbx5z3hr5lol8l.jpg" referrerpolicy="no-referrer">
+
+<strong>2024012023342600-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (224.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:39 上传
+
+感觉自己审美真不错<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1325,3 +1325,16 @@ V99攒了那么多年的怨念，被一句话治愈离开，也太牵强了点�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们船团跑了不把炸弹怪兽带走的么1
 
+
+*****
+
+####  kcalb  
+##### 1740#       发表于 2024-1-20 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63716525&amp;ptid=2104492" target="_blank">有骨气的百合 发表于 2024-1-20 22:26</a>
+
+但是圆谷家不是自己烂完的吗</blockquote>
+昭和分第一期，第二期，第三期的，然后才到平成；同理，圆谷家家主也有第一代，第二代，第三代的，
+
+问题主要出在第三代，上面说的也在理，制作团队都换了三四碴了，年轻时是有一家之主挑头的技术创作型公司，现在是IP保管公司，如果没有类似小中兄弟那样的天降，确实别指望本篇基因突变，所以现任家主做的也在遍寻“猛男”，找新艺术家新媒介来给这IP续命
+

@@ -1951,3 +1951,23 @@ yura看了下切片，满足了，可恋人的梦幻可能只需要这一点东�
 
 又看了遍切片，二期生里只有大熊唱功达到了一期生水平，现场明显要比其他三人好上一截，和结那不相上下，铃原是真的拉胯，水平甚至比4th的时候还退步了。
 
+
+*****
+
+####  ruffian  
+##### 19309#       发表于 2024-1-20 23:39
+
+铃原我是真拿不准她了，4th已经是她有史以来最佳发挥了，她要不自爆卡车也没人多说她什么，可能还会觉得进步了挺好solo怪可爱嘞，结果就非要哭那一下。这回说努力不哭，那确实绷住了，水平又退回去了，要是不拖后腿和绷得住只能得其一那咱还是别绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 19310#       发表于 2024-1-20 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63716492&amp;ptid=2078110" target="_blank">lj205 发表于 2024-1-20 22:24</a>
+
+还有/\_和麦克风的复刻(/ω＼)</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yura是吧；我也看到别人提才发现
+

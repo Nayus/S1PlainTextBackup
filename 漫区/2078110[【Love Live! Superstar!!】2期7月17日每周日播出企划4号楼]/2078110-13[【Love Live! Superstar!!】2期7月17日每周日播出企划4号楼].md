@@ -1804,3 +1804,41 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
 
 除了小星星，其他改的歌有争吵正常，本来就不是群友人接受的，我一个群欢呼神，一个群骂的沉默。
 
+
+*****
+
+####  csolfans  
+##### 19294#       发表于 2024-1-20 21:33
+
+<blockquote>奥柏伦亲王 发表于 2024-1-20 21:27
+对，可能都是那些加人之后立刻退坑从此只看切片的人吧
+
+论坛助手,iPhone</blockquote>
+之前在10组评论区看到过有一位堇厨放话，NF不做11Ver.是最低底线。有一说一，NF11Ver.安排得挺好的，希望能回心转意
+
+*****
+
+####  starring  
+##### 19295#       发表于 2024-1-20 21:38
+
+既然唱BD特典曲了，明天可以期待一下不变的一切和happy to do wa！要是有探して! Future就更好
+
+*****
+
+####  ruffian  
+##### 19296#       发表于 2024-1-20 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63715888&amp;ptid=2078110" target="_blank">lj205 发表于 2024-01-20 21:25:22</a>
+啊，我就是那个差不多退坑的。老实说我没啥感想，单纯觉得企划就是看终于凑齐11人了，抓紧把能改的赶紧改好 ...</blockquote>那段尬舞真没蚌住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 19297#       发表于 2024-1-20 21:41
+
+退坑大半年了，4th一场没看，听说有yura，跑去把切片看完了，居然大部分时间是站桩有点失望，继续退坑，第三季可能会回坑吐槽一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

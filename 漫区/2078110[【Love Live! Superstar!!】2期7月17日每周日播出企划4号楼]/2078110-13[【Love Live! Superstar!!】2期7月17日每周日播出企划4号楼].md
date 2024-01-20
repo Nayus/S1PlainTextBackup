@@ -1258,3 +1258,64 @@ Image_1705626406018.jpg
 
 团里唱功上下限拉的有点大了，运营三次元硬捧铃原的意图有点明显了
 
+
+*****
+
+####  starring  
+##### 19236#       发表于 2024-1-20 17:03
+
+难得没遭到毒手的一首歌，但是导播的运镜过于逆天
+
+*****
+
+####  奥柏伦亲王  
+##### 19237#       发表于 2024-1-20 17:03
+
+我哭了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  starring  
+##### 19238#       发表于 2024-1-20 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63713195&amp;ptid=2078110" target="_blank">qty 发表于 2024-1-20 17:01</a>
+
+团里唱功上下限拉的有点大了，运营三次元硬捧铃原的意图有点明显了</blockquote>
+星光序曲轮到铃原part一听就头皮发麻，别人都是好好地，到她就塌下去<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 19239#       发表于 2024-1-20 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点后悔没去5th现地了
+
+*****
+
+####  奥柏伦亲王  
+##### 19240#       发表于 2024-1-20 17:09
+
+新疆饭店的编舞是不是改了挺多的？感觉比3th 感觉好了很多，当然和小百合状态回升也有关系
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  奥柏伦亲王  
+##### 19241#       发表于 2024-1-20 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我真有点受不了铃原了......
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qty  
+##### 19242#       发表于 2024-1-20 17:11
+
+<blockquote>starring 发表于 2024-1-20 17:05
+星光序曲轮到铃原part一听就头皮发麻，别人都是好好地，到她就塌下去 ...</blockquote>
+最后和小百合，结那三个人站C位就是明明白白的告诉观众这就是一二三期的立德，今后主推的就是这仨。
+

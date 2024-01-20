@@ -1758,3 +1758,23 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
 惊了，b 站上的切片底下居然有那么多比我还原教旨的，原来在他们眼里一期生的歌都是古兰经一个字也不能改的 ...</blockquote>
 盲猜化军佬评论区(不过我觉得多半也是早退坑那些兄弟了
 
+
+*****
+
+####  优妮可  
+##### 19289#       发表于 2024-1-20 21:15
+
+<blockquote>奥柏伦亲王 发表于 2024-1-20 20:58
+惊了，b 站上的切片底下居然有那么多比我还原教旨的，原来在他们眼里一期生的歌都是古兰经一个字也不能改的 ...</blockquote>
+因为星半退坑，退坑的人真的多。停留在之前的想法也正常的
+
+*****
+
+####  starring  
+##### 19290#       发表于 2024-1-20 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63715669&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-1-20 20:58</a>
+
+惊了，b 站上的切片底下居然有那么多比我还原教旨的，原来在他们眼里一期生的歌都是古兰经一个字也不能改的 ...</blockquote>
+中和一下，非虚构的切片底下的评论则是把五人原打成毒唯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

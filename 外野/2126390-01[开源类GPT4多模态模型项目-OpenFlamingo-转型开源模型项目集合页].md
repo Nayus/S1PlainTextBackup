@@ -27490,3 +27490,183 @@ c-d.有趣的用例:编辑可能会被错误解释，导致意外的结果，例
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1204#       发表于 2024-1-20 21:16
+
+MM-Interleaved
+
+通过多模态特征同步器(Multi-modal Feature Synchronizer)进行交错的图像文本生成建模
+
+github项目主页:https://github.com/OpenGVLab/MM-Interleaved
+
+为交错的图像文本数据开发生成模型同时具有研究价值与实际价值，它要求模型理解交错的序列，并随后生成图像和文本，然而，现有的尝试受到了固定数量的视觉Token无法高效捕捉图像细节问题的限制，这在多图像场景中尤为严重
+
+为了解决这个问题，本文提出了MM-Interleaved，一种用于交错图像文本数据的端到端生成模型，它引入了一个多尺度和多图像特征的同步器模块(a multi-scale and multi-image feature synchronizer module)，允许在生成过程中直接访问先前上下文中的细粒度图像特征，MM-Interleaved在配对数据和交错的图像文本语料库上进行了端到端的预训练，并通过监督微调阶段进一步增强，改善了模型遵循复杂多模态指令的能力
+
+实验证明了MM-Interleaved遵循多模态指令认知视觉细节和生成符合文本和视觉条件的一致图像方面的多功能性
+
+<img src="https://img.saraba1st.com/forum/202401/20/211424oh5x27l7ccj532wj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210528.jpg</strong> (150.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:14 上传
+
+多模态特征同步器的示意图
+
+在自回归生成交错的图像文本序列时，除了使用自注意力与低分辨率图像Token进行交互外，MM-Interleaved中的Token还可以使用多模态特征同步器来跨越多尺度对高分辨率图像特征进行交叉关注(cross-attend)，多模态特征同步器可以确保交叉注意力在图像和文本Token之间具有精确的相同因果关系(causal relation)
+
+<img src="https://img.saraba1st.com/forum/202401/20/211432k6se7hbzenuzjqlf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210545.jpg</strong> (96.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:14 上传
+
+不同类型的图像文本生成建模的对比
+
+(a)和(b)只能生成文本，(c)和(d)可以生成图像和文本，除(d)之外的所有类型都受到了上下文不敏感(context-insensitive)的重采样提取所导致的固定数量的视觉Token的限制，最终无法有效捕捉图像细节，并在多图像场景中出现问题
+
+<img src="https://img.saraba1st.com/forum/202401/20/211440wok6i7xsx0m676s7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210603.jpg</strong> (631.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:14 上传
+
+所提出的MM-Interleaved模型的架构，红线表示如何生成和利用多尺度图像特征，MM-Interleaved结合了图像编码器，既能提取高分辨率的多尺度图像特征，又能将每个图像映射到固定数量的低分辨率视觉Token中
+
+这些视觉Token伴随文本Token一起输入到多模态LLM中，LLM使用特征同步模块(feature synchronization module)提取高分辨率图像细节，并自回归式生成文本Token，之后基于DM的图像解码器根据来自LLM的先前上下文的特征和特征同步模块的多尺度图像特征生成下一张图像
+
+<img src="https://img.saraba1st.com/forum/202401/20/211445l0ittswwqgaqmwgg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210631.jpg</strong> (147.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:14 上传
+
+MMFS模块的架构，查询特征(query feature)通过线性层传递，并添加到图像索引嵌入(image index embedding)中，通过使用两个线性层分别预测每个图像的采样偏移(sampling offsets)和非归一化的注意力权重(unnormalized attention weights)，采样偏移与查询的参考点(query’s reference point)相加，形成相应的采样位置(sampling locations)，这些位置在相同图像的所有特征图中共享和重新缩放(rescaled)，输出特征是从这些点采样的空间特征的加权和
+
+<img src="https://img.saraba1st.com/forum/202401/20/211451jaf5q7ykybf0bylg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210650__01.jpg</strong> (422.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:14 上传
+
+多模态理解评估
+
+“H”表示使用内部数据，“I”表示训练中包含了某些基准的训练图像，“A”表示训练中某些基准的训练标注是可见的
+
+<img src="https://img.saraba1st.com/forum/202401/20/211457vt3h22h22pooio6l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210718.jpg</strong> (115.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:14 上传
+
+在指代表达理解任务上的监督微调结果，"*"表示使用额外的自构建的基准数据集，并使用大于224的图像分辨率进行训练
+
+<img src="https://img.saraba1st.com/forum/202401/20/211520w9gf9fmfzpfg94om.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210730.jpg</strong> (226.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:15 上传
+
+在MS-COCO和LN-COCO上的零样本文本到图像生成结果，报告了FID
+
+<img src="https://img.saraba1st.com/forum/202401/20/211527egvmlpd5z8decwmp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210750__01.jpg</strong> (183.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:15 上传
+
+MM-Interleaved的图像生成能力的对比分析
+
+<img src="https://img.saraba1st.com/forum/202401/20/211538nw761nwdn21xdl2v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210812.jpg</strong> (215.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:15 上传
+
+评估基准的总结，包括图像字幕说明、视觉问答、指代表达理解和图像生成
+
+<img src="https://img.saraba1st.com/forum/202401/20/211543pcgr4nu62r2skwuv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-210826.jpg</strong> (190.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:15 上传
+
+用于文本生成的提示模板
+
+<img src="https://img.saraba1st.com/forum/202401/20/211547h2kjn9ifjsfh4rse.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-211020.jpg</strong> (154.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:15 上传
+
+TextVQA的定性结果，每个示例由用户查询、带有MMFS的MM-Interleaved给出的答案以及不带MMFS的MM-Interleaved给出的答案组成，图像形状被归一化以便可视化
+
+<img src="https://img.saraba1st.com/forum/202401/20/211552wjjqkckggf2in7nf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-211036.jpg</strong> (149.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:15 上传
+
+在RefCOCOg上的指代表达理解，每个示例包括用户查询、使用MMFS预测的框和不使用MMFS预测的框，图像形状已经归一化以便可视化
+
+<img src="https://img.saraba1st.com/forum/202401/20/211601t3uzkp33h2uq35hp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-211056.jpg</strong> (439.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:16 上传
+
+在ADE20k上的分割到图像生成(Segmentation-to-Image Generation)，每行都是一个示例，包括四个图像，分别是输入分割图、基准答案图像、使用MMFS生成的图像和不使用MMFS生成的图像，基准图像和分割图的形状已经归一化以便可视化，当没有使用MMFS时，生成的结果与输入的分割图缺乏空间对齐
+
+<img src="https://img.saraba1st.com/forum/202401/20/211610utkjejktkjkssxjv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-211115.jpg</strong> (440.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:16 上传
+
+在PororoSV和FlintstonesSV上的多图像生成，每个示例包括四行，第一行是第一帧图像和所有相应的字幕说明，第二行是包含随后帧的基准答案图像；第三行是使用MMFS生成的结果；最后一行是没有使用MMFS生成的结果，当没有使用MMFS时，生成的多个图像在角色、背景、物体等方面缺乏内容一致性
+
+<img src="https://img.saraba1st.com/forum/202401/20/211615wra5zmbfgm9z8cr3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240120-211133.jpg</strong> (527.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 21:16 上传
+
+在PororoSV和FlintstonesSV上的交错图像文本生成，每个示例包括三列，第一列是所有帧的基准答案图像和字幕说明；第二列是使用MMFS生成的结果；最后一列是没有使用MMFS生成的结果
+
+在生成时只给定了第一帧的字幕说明和图像作为生成时的条件
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

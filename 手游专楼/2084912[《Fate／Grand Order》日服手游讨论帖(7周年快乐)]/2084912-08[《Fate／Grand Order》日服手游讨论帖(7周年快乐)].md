@@ -5949,3 +5949,21 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 你忘了农民的礼装就是一个月亮</blockquote>
 应该说是同分异构体佐佐木小次郎吧？FSR和男武藏决斗的小次郎、FGO下总国没有和男武藏决斗的小次郎，都是不同的人。Fate stay/night 的看门农民，当年用一辈子练出燕返然后直接去世，生前没有参加过战斗，也不认识宫本武藏。武器图鉴里还说，农民的晾衣杆是剑圣留下的五尺长刀备中青江，比正版佐佐木小次郎的晾衣杆长两尺。如果这个剑圣也是佐佐木小次郎，那应该是第四个人了。
 
+
+*****
+
+####  白金口袋  
+##### 11056#       发表于 2024-1-20 19:42
+
+这迎击战比爬塔还闹心到底哪个鬼才想出来的烂活，就一个support不让上辅助，换不了目标只能一个个慢慢磨，宝具单体的更是折磨，纯纯耗时间，幸亏就几关但是我闻到了一股以后会越来越多的气息<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11057#       发表于 2024-1-20 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63714944&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-1-20 19:42</a>
+
+这迎击战比爬塔还闹心到底哪个鬼才想出来的烂活，就一个support不让上辅助，换不了目标只能一个个慢慢磨， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁有个喷这玩意的号都被封了
+

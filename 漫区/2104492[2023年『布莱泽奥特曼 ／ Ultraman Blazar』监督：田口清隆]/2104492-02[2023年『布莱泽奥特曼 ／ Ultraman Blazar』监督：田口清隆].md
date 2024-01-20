@@ -1037,3 +1037,30 @@ V99来访不带武器，被攻击准备报复的生物兵器一件比一件狠
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">现在大伙可以对比泽塔和布雷泽哪个更优秀了
 
+
+*****
+
+####  kal_008  
+##### 1712#       发表于 2024-1-20 16:55
+
+但凡少点总集篇来填一下剧情最终回给我的心理落差也不会这么大
+
+*****
+
+####  arbilest  
+##### 1713#       发表于 2024-1-20 16:55
+
+怎么又说代哥要求，代哥要求啥了？没有前辈奥，没有小黑屋，没有花里胡哨的玩具，从头到尾一个阿斯加隆一个布莱泽，愣卖怪兽软胶。田口都没想到能过的企划，你却说代哥要求，我都觉得代哥脑子坏掉了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  七宝喵树  
+##### 1714#       发表于 2024-1-20 16:59
+
+泽塔的结局三部曲我还是很满意的，最终话烘托的气氛我也很满意，泽塔跟遥辉就是这么热血到爆炸的角色
+布莱泽的结局两部曲只能说令人遗憾，扩充到五集会好很多
+
+—— 来自 asus ASUS_AI2203_A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

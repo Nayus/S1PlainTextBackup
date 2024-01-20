@@ -5967,3 +5967,26 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 这迎击战比爬塔还闹心到底哪个鬼才想出来的烂活，就一个support不让上辅助，换不了目标只能一个个慢慢磨， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁有个喷这玩意的号都被封了
 
+
+*****
+
+####  シャル  
+##### 11058#       发表于 2024-1-20 19:55
+
+ 本帖最后由 シャル 于 2024-1-20 19:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63714874&amp;ptid=2084912" target="_blank">الطائر 发表于 2024-1-20 19:36</a>
+
+应该说是同分异构体佐佐木小次郎吧？FSR和男武藏决斗的小次郎、FGO下总国没有和男武藏决斗的小次郎，都是 ...</blockquote>
+不是，FSR有野生剑圣农民和真小次郎两个人
+
+要知道农民只是被圣杯叫出了套了小次郎皮的，本人和小次郎没有任何关系
+
+伊织这里也不认小次郎为师傅而是那天晚上的野生剑圣
+
+*****
+
+####  quanlix  
+##### 11059#       发表于 2024-1-20 19:59
+
+看隔壁解包，后头地图上会冒出根空想树来，不知道是不是要抢着砍树
+

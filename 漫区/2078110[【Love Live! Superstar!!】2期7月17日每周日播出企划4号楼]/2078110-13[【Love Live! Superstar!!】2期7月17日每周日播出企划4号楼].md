@@ -1706,3 +1706,22 @@ VN生日，保留节目
 
 还以为今天能公开第三季
 
+
+*****
+
+####  ads147147  
+##### 19284#       发表于 2024-1-20 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63715017&amp;ptid=2078110" target="_blank">6030sylar 发表于 2024-1-20 19:48</a>
+还以为今天能公开第三季</blockquote>
+要发也是最后一天吧
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  csolfans  
+##### 19285#       发表于 2024-1-20 20:01
+
+祝福小偶像的未来犹如ed1那样“未来如风”！
+

@@ -19408,3 +19408,39 @@ https://x.com/Edgar_Syu/status/1747923421546352685?s=20<img src="https://static.
 
 2024-1-20 23:52 上传
 
+
+*****
+
+####  Saber琪  
+##### 1488#       发表于 2024-1-20 23:55
+
+[https://twitter.com/chxoswolf/status/1748704517862912019?s=19](https://twitter.com/chxoswolf/status/1748704517862912019?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/235448riutuipeciu4pphc.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120_235342.jpg</strong> (705.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:54 上传
+
+[https://twitter.com/sango3_3/status/1748700731836919941?s=19](https://twitter.com/sango3_3/status/1748700731836919941?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/235519gfjj75z7gmdd7lsd.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120_235504.jpg</strong> (336.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:55 上传
+
+[https://twitter.com/Ntani_2/status/1748712739479208100?s=19](https://twitter.com/Ntani_2/status/1748712739479208100?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/235543bgjokvuuvxuqq12l.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120_235525.jpg</strong> (138.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:55 上传
+

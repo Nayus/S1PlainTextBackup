@@ -3571,3 +3571,14 @@ https://twitter.com/Rookie_9/status/1748586673552715892?t=ifwIDc_bnmNIyo9WfI3AxA
 
 嗯，一小时剪辑版
 
+
+*****
+
+####  傘木希美  
+##### 9317#       发表于 2024-1-20 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63715143&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-20 20:01</a>
+
+嗯，一小时剪辑版</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">为啥国内还得明天才有啊！可恶
+

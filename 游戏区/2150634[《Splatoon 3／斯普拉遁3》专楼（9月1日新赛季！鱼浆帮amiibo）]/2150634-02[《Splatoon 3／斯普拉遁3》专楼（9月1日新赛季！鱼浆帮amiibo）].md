@@ -10135,3 +10135,11 @@ epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是�
 —— 来自 S1Fun</blockquote>
 【Splatoon3内嵌字幕|rassicas】解码墨语【ardnin】【スプラトゥーン3】 [https://www.bilibili.com/video/BV1s5411i7hD/](https://www.bilibili.com/video/BV1s5411i7hD/)
 
+
+*****
+
+####  Ryuuseigun  
+##### 2520#       发表于 2024-1-20 14:55
+
+今天和刚买游戏的朋友组队玩涂地，拿的状态值最高的20多的武器，我以为按以往我单排总结出的任天堂的匹配尿性会是我方3个新兵对面四个佬被暴揍，结果可能因为朋友是真的新手匹配到的所有人都弱弱的，任天堂这么好心偷偷更新了新手保护池吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

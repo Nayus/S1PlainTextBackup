@@ -1319,3 +1319,62 @@ Image_1705626406018.jpg
 星光序曲轮到铃原part一听就头皮发麻，别人都是好好地，到她就塌下去 ...</blockquote>
 最后和小百合，结那三个人站C位就是明明白白的告诉观众这就是一二三期的立德，今后主推的就是这仨。
 
+
+*****
+
+####  starring  
+##### 19243#       发表于 2024-1-20 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63713311&amp;ptid=2078110" target="_blank">qty 发表于 2024-1-20 17:11</a>
+
+最后和小百合，结那三个人站C位就是明明白白的告诉观众这就是一二三期的立德，今后主推的就是这仨。 ...</blockquote>
+挺好的，运营爱推请尽全力<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+对结哥没意见，毕竟实力摆在那里
+
+*****
+
+####  路对面的红烧肉  
+##### 19244#       发表于 2024-1-20 17:17
+
+这个歌单一点逻辑都不讲的！！
+
+*****
+
+####  奥柏伦亲王  
+##### 19245#       发表于 2024-1-20 17:17
+
+让三期生唱123我真没意见，其他 cw 曲请参照办理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  奥柏伦亲王  
+##### 19246#       发表于 2024-1-20 17:20
+
+卧槽 特典曲 yura 有望了胖友们！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  starring  
+##### 19247#       发表于 2024-1-20 17:20
+
+stella有了，yura是不是可以安排了
+
+*****
+
+####  蜜梨柑  
+##### 19248#       发表于 2024-1-20 17:21
+
+我要开始yura了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KirigawaMaki  
+##### 19249#       发表于 2024-1-20 17:21
+
+下一首就是yura了吧<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+

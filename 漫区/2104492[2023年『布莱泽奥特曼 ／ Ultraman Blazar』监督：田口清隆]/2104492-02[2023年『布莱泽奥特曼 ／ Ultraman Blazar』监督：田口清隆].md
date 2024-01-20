@@ -1064,3 +1064,13 @@ V99来访不带武器，被攻击准备报复的生物兵器一件比一件狠
 
 —— 来自 asus ASUS_AI2203_A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  无敌のpeach  
+##### 1715#       发表于 2024-1-20 17:16
+
+V99攒了那么多年的怨念，被一句话治愈离开，也太牵强了点吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+还有地球怪兽吃炸弹这个也很奇怪，不是随时都能起爆么
+

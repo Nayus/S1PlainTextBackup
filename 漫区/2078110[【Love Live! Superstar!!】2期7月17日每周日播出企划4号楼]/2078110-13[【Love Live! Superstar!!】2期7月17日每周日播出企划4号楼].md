@@ -1663,3 +1663,13 @@ VN生日，保留节目
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19280#       发表于 2024-1-20 19:26
+
+这下 OPED 全齐了，挺好，一期的曲子就该多演
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

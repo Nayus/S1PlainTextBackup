@@ -929,3 +929,11 @@ V99最后的沟通和瓦拉隆不停手有点冲突，如果能把“手操”�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">最后一集整这种活
 
+
+*****
+
+####  游蜓  
+##### 1700#       发表于 2024-1-20 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">妈的做那么多总集篇，多塑造下布莱泽也行啊，最后这集我情绪都带入不进去
+

@@ -5594,3 +5594,26 @@ miko对这次菜品的监修程度很高，说是对自家的口味有很特别�
 
 周年纪念周边要发货了，不过看年后才能拿到了
 
+
+*****
+
+####  holoan  
+##### 8036#         楼主| 发表于 2024-1-20 15:25
+
+这游戏有这么大魔力吗，嗓子都不要了这么早就开始播
+
+*****
+
+####  rs5621  
+##### 8037#       发表于 2024-1-20 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等不及开播了是吧
+
+<img src="https://img.saraba1st.com/forum/202401/20/153042pcwnwwbfuvveyalp.png" referrerpolicy="no-referrer">
+
+<strong>M_OU4W~26LQP{0X65F14R9X.png</strong> (13.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 15:30 上传
+

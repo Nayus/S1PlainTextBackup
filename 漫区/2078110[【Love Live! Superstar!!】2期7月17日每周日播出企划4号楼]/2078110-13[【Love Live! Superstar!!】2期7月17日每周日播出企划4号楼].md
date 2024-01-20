@@ -1456,3 +1456,20 @@ yura！！！！
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  仟音一心  
+##### 19259#       发表于 2024-1-20 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63713546&amp;ptid=2078110" target="_blank">KirigawaMaki 发表于 2024-1-20 17:31</a>
+喜欢这个</blockquote>
+结那：我是来加入这个家的
+
+*****
+
+####  仟音一心  
+##### 19260#       发表于 2024-1-20 17:34
+
+这歌单让我暂时原谅官方……两天。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

@@ -10233,3 +10233,15 @@ epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  laosai13  
+##### 2526#       发表于 2024-1-21 05:03
+
+ 本帖最后由 laosai13 于 2024-1-21 05:05 编辑 
+
+也不知道是统计学规律还是本身匹配系统就有这样的设置，连胜连败总相随。在挑战连败的时候感觉就是系统让我去打x赛了
+
+ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

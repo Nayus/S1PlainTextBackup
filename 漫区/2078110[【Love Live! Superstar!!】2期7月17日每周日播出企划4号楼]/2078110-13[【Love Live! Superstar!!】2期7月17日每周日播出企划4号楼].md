@@ -1725,3 +1725,14 @@ VN生日，保留节目
 
 祝福小偶像的未来犹如ed1那样“未来如风”！
 
+
+*****
+
+####  starring  
+##### 19286#       发表于 2024-1-20 20:27
+
+live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+不过黑泥还是要倒，铃原真的不行。声压不足，气息不稳，每首歌到她的部分都是塌下去，练了两年还是原地踏步<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

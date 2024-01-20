@@ -6016,3 +6016,14 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 
 能带着剩下的所长碎片来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 11063#       发表于 2024-1-20 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63715214&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-20 20:10</a>
+
+伯爵不会直接出来打一场就跑吧</blockquote>
+我是不指望能打，能露个全脸就不错了
+

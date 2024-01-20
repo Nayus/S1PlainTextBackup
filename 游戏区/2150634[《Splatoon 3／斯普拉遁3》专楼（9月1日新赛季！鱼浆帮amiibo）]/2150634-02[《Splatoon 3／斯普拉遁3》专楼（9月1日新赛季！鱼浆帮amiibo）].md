@@ -10106,3 +10106,19 @@ epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ‮‮‮‮  
+##### 2518#       发表于 2024-1-20 11:55
+
+下周五下午四点，工坊绿问，头目随机，武器 双 刀 伞 桶 弓
+
+<img src="https://img.saraba1st.com/forum/202401/20/115500t422akk4dw3k84ds.png" referrerpolicy="no-referrer">
+
+<strong>6154c4d631ca525ad637172660b09705.png</strong> (351.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 11:55 上传
+

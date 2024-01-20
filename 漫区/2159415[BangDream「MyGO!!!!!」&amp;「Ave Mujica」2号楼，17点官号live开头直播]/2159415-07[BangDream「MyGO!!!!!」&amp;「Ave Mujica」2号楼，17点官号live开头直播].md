@@ -3598,3 +3598,15 @@ https://twitter.com/Rookie_9/status/1748586673552715892?t=ifwIDc_bnmNIyo9WfI3AxA
 
 渡濑说0th摔了以后第二天变得很严重，逆输入可以直接做一期睦扭到脚的活动了
 
+
+*****
+
+####  屑猫猫  
+##### 9320#       发表于 2024-1-20 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63711401&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-20 14:02</a>
+鼓子是最小的，02年出生；青木是最大的，和差几天00后的灯反过来是差几天90后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">那coco也能视为jd妹了，虽然只有凛子还是现役jd
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -973,3 +973,11 @@ V99=外来访问者在大海星登场左右揭底的话节奏会好很多，我�
 
 ——剧情这块布莱泽很多地方都给我这种虎头蛇尾的感觉，真就文戏不足只能嗯造情绪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  natmk  
+##### 1705#       发表于 2024-1-20 15:52
+
+不是还有剧场版吗 
+

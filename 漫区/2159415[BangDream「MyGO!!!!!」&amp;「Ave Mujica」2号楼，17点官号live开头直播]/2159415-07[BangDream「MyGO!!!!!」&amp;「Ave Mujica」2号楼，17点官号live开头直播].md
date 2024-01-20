@@ -3631,3 +3631,26 @@ https://twitter.com/Rookie_9/status/1748586673552715892?t=ifwIDc_bnmNIyo9WfI3AxA
 —— 来自 Xiaomi 21091116AC, Android 13上的 S ...</blockquote>
 但她没去读大学吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 9323#       发表于 2024-1-20 23:13
+
+艾回的人念不念大学一半一半，青山吉能念了、田中美海没念，久保田未梦念了、芹泽优没念，应该是没念的更火一点
+
+*****
+
+####  NODY  
+##### 9324#       发表于 2024-1-20 23:22
+
+@kimiJUNN
+
+<img src="https://img.saraba1st.com/forum/202401/20/232202w1i00zjg83s55j0q.jpg" referrerpolicy="no-referrer">
+
+<strong>GESq5vpb0AAh29h.jpg</strong> (631.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:22 上传
+

@@ -6027,3 +6027,11 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 伯爵不会直接出来打一场就跑吧</blockquote>
 我是不指望能打，能露个全脸就不错了
 
+
+*****
+
+####  khxooo  
+##### 11064#       发表于 2024-1-20 23:16
+
+看解包，还有四个门，会是柱子战嘛？不过大概率不会是就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

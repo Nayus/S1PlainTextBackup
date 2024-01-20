@@ -1971,3 +1971,15 @@ yura看了下切片，满足了，可恋人的梦幻可能只需要这一点东�
 还有/\_和麦克风的复刻(/ω＼)</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yura是吧；我也看到别人提才发现
 
+
+*****
+
+####  starring  
+##### 19311#       发表于 2024-1-20 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63717137&amp;ptid=2078110" target="_blank">qty 发表于 2024-1-20 23:30</a>
+又看了遍切片，二期生里只有大熊唱功达到了一期生水平，现场明显要比其他三人好上一截，和结那不相上下，铃 ...</blockquote>
+大熊是真的厉害，舞姿也飒爽，难怪队里那么多人被她魅惑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

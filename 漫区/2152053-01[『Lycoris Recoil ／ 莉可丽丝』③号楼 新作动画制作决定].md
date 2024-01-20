@@ -19342,3 +19342,69 @@ https://x.com/Edgar_Syu/status/1747923421546352685?s=20<img src="https://static.
 
 2024-1-19 23:46 上传
 
+
+*****
+
+####  Saber琪  
+##### 1487#       发表于 2024-1-20 23:52
+
+[https://twitter.com/hana_lcrc/status/1748362746633375899?s=19](https://twitter.com/hana_lcrc/status/1748362746633375899?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/234841r01fx5jhhyhkxqka.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120_234715.jpg</strong> (45.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:48 上传
+
+[https://twitter.com/cruzango0510/status/1748550503095808086?s=19](https://twitter.com/cruzango0510/status/1748550503095808086?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/234926lztwvhhg280ri707.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1705765761646.jpg</strong> (524.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:49 上传
+
+[https://twitter.com/Meruki_Alt/status/1748660389775110182?s=19](https://twitter.com/Meruki_Alt/status/1748660389775110182?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/235011kvptvk76g0r206g9.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120_234954.jpg</strong> (182.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:50 上传
+
+[https://twitter.com/Mush_0106/status/1748649351935869167?s=19](https://twitter.com/Mush_0106/status/1748649351935869167?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/235035rifh0hfqwhf2zxbb.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120_235020.jpg</strong> (499.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:50 上传
+
+[https://twitter.com/Nda_Re_/status/1748645070708842593?s=19](https://twitter.com/Nda_Re_/status/1748645070708842593?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/235147vgxlskxpp0xizype.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120_235044.jpg</strong> (192.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:51 上传
+
+[https://twitter.com/xx_sow/status/1748497854182883573?s=19](https://twitter.com/xx_sow/status/1748497854182883573?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/20/235217ijzqpc5zkmbgtcyc.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120_235157.jpg</strong> (309.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-20 23:52 上传
+

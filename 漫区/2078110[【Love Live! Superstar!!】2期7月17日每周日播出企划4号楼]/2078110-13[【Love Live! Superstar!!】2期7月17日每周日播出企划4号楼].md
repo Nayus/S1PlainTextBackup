@@ -1553,3 +1553,36 @@ yura好啊，终于……<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 OPPO PHN ...</blockquote>
 说实话就算是一期落选成员隔壁莲的榆井和花宫的实力都明显强过铃原，铃原在我看来就是天生不适合唱歌的那种，非要选一个不是这块料的硬捧，台上的人唱得难受，台下的人听得难受，你自己捧起来也难受。但没办法运营就非要这么干，所以我实在是搞不懂这帮人的脑回路。
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19270#       发表于 2024-1-20 18:35
+
+5th 真棒啊
+
+从4th 开始，那种硬推新人的感觉消失了，5th 更进一步，知道好好突出老五人了，它3rd 的时候要是也能这么用心对待老人老粉也不至于搞得那么烂
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  starring  
+##### 19271#       发表于 2024-1-20 18:36
+
+OP1来了，还剩始空
+老东西们的金币都爆完了吗<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  奥柏伦亲王  
+##### 19272#       发表于 2024-1-20 18:38
+
+ 本帖最后由 奥柏伦亲王 于 2024-1-20 18:41 编辑 
+
+还是start true dreams 带劲，还是那句话，能让一期生领头唱第一遍我就算你没有数典忘祖
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

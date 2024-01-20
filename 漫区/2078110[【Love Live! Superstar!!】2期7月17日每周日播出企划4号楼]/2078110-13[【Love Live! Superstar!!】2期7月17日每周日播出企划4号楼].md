@@ -1929,3 +1929,17 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜了 4th也挺神的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过随便问一嘴，像我这样的基本只接触三次元这一面，动画没怎么看过的多吗
 
+
+*****
+
+####  ads147147  
+##### 19307#       发表于 2024-1-20 22:54
+
+yura看了下切片，满足了，可恋人的梦幻可能只需要这一点东西吧。
+
+而且渚鱼之间隔得好开总让我幻视结那在中间<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+之后也应该不会有什么官方可恋药了，安心推可恋薇大三角吧。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -1121,3 +1121,14 @@ mihon要怎么识别tachiyomi下载过的文件？</blockquote>
 [http://111raw.com](http://111raw.com) 
 [http://mangaraw.plus](http://mangaraw.plus)</blockquote>
 
+
+*****
+
+####  reficul  
+##### 89#       发表于 2024-1-21 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63718241&amp;ptid=2167901" target="_blank">小妹 发表于 2024-1-21 02:20</a>
+
+其他都很慢。。。更新的乱七八糟，但也胜在能看</blockquote>
+这种新的生肉网站，在哪里能找到有没有tachiyomi对应的拓展呢？
+

@@ -5990,3 +5990,21 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 
 看隔壁解包，后头地图上会冒出根空想树来，不知道是不是要抢着砍树
 
+
+*****
+
+####  khxooo  
+##### 11060#       发表于 2024-1-20 20:03
+
+今天的剧情提到伯爵，估计真的要砍树。
+
+*****
+
+####  シャル  
+##### 11061#       发表于 2024-1-20 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63715122&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-1-20 19:59</a>
+
+看隔壁解包，后头地图上会冒出根空想树来，不知道是不是要抢着砍树</blockquote>
+伯爵不会直接出来打一场就跑吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

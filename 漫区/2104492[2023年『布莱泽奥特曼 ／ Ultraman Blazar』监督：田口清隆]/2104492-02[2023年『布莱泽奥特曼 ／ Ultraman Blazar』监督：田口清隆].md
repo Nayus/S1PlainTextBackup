@@ -485,3 +485,55 @@ Tilsonite Sword是布莱泽奥特曼塑造的刀剑，其原型是由嘎拉蒙�
 
 楼友怎么评价整部剧，之前一直在忙，现在完结了刚好有时间补
 
+
+*****
+
+####  CyanXD  
+##### 1651#       发表于 2024-1-20 10:26
+
+有点调子起的太高，v99虎头蛇尾，防卫队老登也没爆金币，奥特曼哪来的也不交代，就很空虚
+
+*****
+
+####  七宝喵树  
+##### 1652#       发表于 2024-1-20 10:27
+
+说实话，感觉最后一集有点不知所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 asus ASUS_AI2203_A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  linchuanwangmou  
+##### 1653#       发表于 2024-1-20 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63709348&amp;ptid=2104492" target="_blank">若菜 发表于 2024-1-20 10:12</a>
+
+草 V99你撤退的时候不把你家生物兵器带走吗</blockquote>
+总有人要为事件负责的，瓦拉龙登录明确炸死了那么多人造成了那么多损失，再让他跑路对死者太不公平了
+
+*****
+
+####  scorbian  
+##### 1654#       发表于 2024-1-20 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">勉强算平稳落地吧，说实话还是篇幅不够，后面的东西多展开点讲就好了
+
+*****
+
+####  希望之花  
+##### 1655#       发表于 2024-1-20 10:31
+
+昨天还在想布莱泽目前都没有奥系特色十字光线，原来是放到最后一集了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+生物兵器就当是v99以牙还牙留在这里的，你球人类那么能耐武德充沛，那这点生物兵器都搞不定就别谈什么未来了
+
+缺点就是结束得有点唐突，野人到底哪里来的都还没说明吧
+
+*****
+
+####  nonodundun  
+##### 1656#       发表于 2024-1-20 10:31
+
+大结局怎么说呢，该有的都有，但感觉有点拥挤敷衍，可能是因为24分钟太短了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

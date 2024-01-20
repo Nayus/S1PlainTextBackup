@@ -800,3 +800,12 @@ And just like that everyone forgot about pomu's upcoming graduation
 
 现在转生是能直接说出来的吗 那索性直说是谁转生的算了 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 2927#       发表于 2024-1-20 10:24
+
+Pomu好像被bot了？
+我YouTube推荐下拉全都是Pomu的频道视频<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

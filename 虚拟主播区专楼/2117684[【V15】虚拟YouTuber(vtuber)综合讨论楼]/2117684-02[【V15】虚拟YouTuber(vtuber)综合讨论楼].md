@@ -827,3 +827,15 @@ Pomu好像被bot了？
 
 漏油能不能看到东西先求证一下 不要大惊小怪的
 
+
+*****
+
+####  渡鸦骑士  
+##### 2930#       发表于 2024-1-20 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63711045&amp;ptid=2117684" target="_blank">wuzhengkai 发表于 2024-1-20 13:19</a>
+是pomu把member stream都公开了
+
+漏油能不能看到东西先求证一下 不要大惊小怪的 ...</blockquote>
+问题没有经历过会员全公开我确实不知道会这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

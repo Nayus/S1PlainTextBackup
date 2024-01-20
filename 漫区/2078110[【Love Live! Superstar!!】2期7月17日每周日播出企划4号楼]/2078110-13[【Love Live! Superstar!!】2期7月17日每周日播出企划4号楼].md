@@ -1875,3 +1875,31 @@ live这几天可以和解<img src="https://static.saraba1st.com/image/smiley/fac
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  lj205  
+##### 19302#       发表于 2024-1-20 22:24
+
+<blockquote>ruffian 发表于 2024-1-20 21:39
+那段尬舞真没蚌住
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+还有/\_和麦克风的复刻(/ω＼)
+
+*****
+
+####  llllife  
+##### 19303#       发表于 2024-1-20 22:27
+
+之前被星二期动画伤出坑，之后只偶尔看切片，今天又看了5th切片发现自己果然还是更喜欢老五人，更加坚定了退坑是正确选择，留下来只能进一步吃shi
+
+*****
+
+####  DFM_otto  
+##### 19304#       发表于 2024-1-20 22:28
+
+今天这场来的真值，中了正中间最前的k7区神席，小星星和nonfiction返场，牢香唱的也比bml好多了。如果歌单再多个dancing raspberry就完美了，期待明天
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

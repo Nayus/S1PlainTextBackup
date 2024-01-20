@@ -1065,3 +1065,15 @@ https://www.mazda.com.cn/cars/mx-5#1</blockquote>
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  强袭型抹布  
+##### 104#       发表于 2024-1-20 10:48
+
+这楼真是太有意思了，
+会玩车的真是好高贵哟
+外观内饰和面子爱好者不配买车是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

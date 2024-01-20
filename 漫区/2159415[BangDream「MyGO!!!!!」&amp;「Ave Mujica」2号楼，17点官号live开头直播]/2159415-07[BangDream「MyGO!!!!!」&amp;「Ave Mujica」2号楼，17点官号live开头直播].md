@@ -3537,3 +3537,11 @@ https://twitter.com/Rookie_9/status/1748586673552715892?t=ifwIDc_bnmNIyo9WfI3AxA
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">李世林要给青木端茶倒水捏腰锤腿吗
 
+
+*****
+
+####  DarthAka  
+##### 9314#       发表于 2024-1-20 18:27
+
+一起进公司，所以青木李世林还是同期？
+

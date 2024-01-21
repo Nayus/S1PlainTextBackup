@@ -3745,3 +3745,13 @@ mygo账号终于又更新了以前那套中二剧的后一集<img src="https://s
 坠子好大&amp;#x ...</blockquote>
 这个在哪里买到的？
 
+
+*****
+
+####  nebulanoby  
+##### 9335#       发表于 2024-1-21 08:16
+
+天冷了，烤羊的欲望正在高涨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

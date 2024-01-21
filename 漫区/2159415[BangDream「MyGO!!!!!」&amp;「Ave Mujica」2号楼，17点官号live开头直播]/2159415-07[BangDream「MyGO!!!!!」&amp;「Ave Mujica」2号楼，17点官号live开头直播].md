@@ -4085,3 +4085,38 @@ mygo账号终于又更新了以前那套中二剧的后一集<img src="https://s
 
 也不对，转天也是配过的，应该还单纯靠摆烂和二偶保持距离
 
+
+*****
+
+####  Kasroz  
+##### 9375#       发表于 2024-1-21 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63720227&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-21 11:40</a>
+也不对，转天也是配过的，应该还单纯靠摆烂和二偶保持距离</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">一想到过两天要配转天朗读剧，被吓到失声了
+
+*****
+
+####  ylssb10438  
+##### 9376#       发表于 2024-1-21 11:44
+
+还好我从不关心声优什么的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 9377#       发表于 2024-1-21 11:49
+
+<blockquote>Kasroz 发表于 2024-1-21 11:44
+一想到过两天要配转天朗读剧，被吓到失声了</blockquote>
+记得她们12th前团练和她那个直播的广播是一天，后边直播改录播了一阵儿，再之后乐队这边开摆
+
+今年一个新活儿都没有，开摆之后捞到一个小市民——坚定开摆
+
+*****
+
+####  NODY  
+##### 9378#       发表于 2024-1-21 11:50
+
+不管是崆峒还是嫌弃二偶，故意在你邦摆烂都挺没职业道德的，亏你邦甚至专门给灯联动我心危这种纯bg狗粮作品，可惜人真不怎么领情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

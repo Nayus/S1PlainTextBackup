@@ -4868,3 +4868,27 @@ mujica小短片里的声优一个是远野光，另一个是谁？我记得之�
 
 唱个几首歌的拼盘，不过还是很担心动物朋友又双叒叕翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  多莉DOLLY  
+##### 9462#       发表于 2024-1-21 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721709&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-21 13:55</a>
+
+武士道就这么放任羊摆烂我是不太理解的，还是在今年live有那么多场的前提下，明明隔壁dj遇到摆烂的就直接换 ...</blockquote>
+羊是不上邦tv和迷子集会了还是翘live逛街了，就逼得wsd要换人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果你是想说羊营业摆烂的话，那只能说现在的wsd根本不在乎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wsd要真觉得是啥严重的事早给羊打招呼了，而且国内运营这边肯定有逛这些社区，也肯定知道有人对羊不满，还经常拿我心危来和MyGO比，都这样了wsd还能让MyGO和我心危联动，我觉得wsd已经表明态度了，就是故意恶心烤羊的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wsd都这态度了，真不喜欢羊的人确实可以换其他团推了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 9463#       发表于 2024-1-21 19:27
+
+武士道的草台程度，光看高尾和佐佐木的面具照片就知道了
+

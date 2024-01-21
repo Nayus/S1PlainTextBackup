@@ -2187,3 +2187,15 @@ nako 这两天状态确实不太好，希望只是一时的吧
 后知后觉，就当我有点应激吧，星光序曲的站位咋一看好像确实是前辈带后辈的对应关系，千对四季，堇对夏美， ...</blockquote>
 那关系图也就图一乐，有违和本质上就是二期一盘散沙，除了恋芽用了一集去互动以外其它人要么就是几帧画面要么就是几句话，然后全部都内部消化了，运营该庆幸自己在最开始引流任务上的表面功夫做的好，才有的花花可推这么个缘，让自己因为各种小九九的集合产生的一个安排上的违和感有台阶下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19333#       发表于 2024-1-21 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63724728&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-1-21 18:26</a>
+pay好high</blockquote>
+年轻就是活力充沛，从头high到尾没停过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

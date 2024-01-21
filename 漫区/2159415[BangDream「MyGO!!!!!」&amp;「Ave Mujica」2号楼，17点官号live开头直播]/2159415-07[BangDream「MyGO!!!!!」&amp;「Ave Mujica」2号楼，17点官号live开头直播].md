@@ -8112,3 +8112,125 @@ pico要不涉及剧透的话还挺难做的吧，虽然不放mujica进去可以�
 楼里最近举报很多，建议互相看不惯可以开屏蔽插件，而不是瞎举报。再有一举报就五六条但没有一条违背版规、 ...</blockquote>
 谢谢提醒，版主辛苦了
 
+
+*****
+
+####  Arteryesrerday  
+##### 9831#       发表于 2024-1-22 01:03
+
+你们觉得13集会怎么写啊，mygo反正就是和好，小祥的话视野起飞赚大米当女明星然后和其他四个上演晋百剧情
+
+*****
+
+####  Aendst  
+##### 9832#       发表于 2024-1-22 01:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晋百剧情对日本人来说还是有点超前了吧
+
+*****
+
+####  PDQ4  
+##### 9833#       发表于 2024-1-22 01:05
+
+我认为睦那句话就和当时拆团的暴言一样，也是催化剂的作用，不起到决定性的作用。就和睦本人的性质一样，诚实且无罪。作为矛盾知情者也是很好的剧情推动力，她开口，剧情矛盾就可以被马上加速推动。
+
+至于为什么睦那句话我认为不关键，爱灯两个人在8话后和爽世没有交流，是从立希那里听到的，10集的灯会完全放着不管吗，可能时间会延长但我认为肯定会再去逮一次爽世，爱音缺了睦的情报靠领进门的行动和自己的情商也能完美看出爽世有人性，睦的出现直接加速解决了这两个犹豫点。而初华的助攻关键，是因为灯那时候的状态靠自己根本想不通，除非去找医生。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是如果从时间宝贵，加速矛盾推进也很重要来讲，睦的两次开口可能确实很重要吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arteryesrerday  
+##### 9834#       发表于 2024-1-22 01:07
+
+我感觉mygo太去中心化了，我不太喜欢这种风格，如果卖小祥女王受那我比较期待吃一下
+
+*****
+
+####  PDQ4  
+##### 9835#       发表于 2024-1-22 01:07
+
+13集当然是新团live堂堂展出，定档26年1月动画，可以看看年内会不会有新动静，管人团我觉得不要想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arteryesrerday  
+##### 9836#       发表于 2024-1-22 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63729075&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-22 01:04</a>
+晋百剧情对日本人来说还是有点超前了吧</blockquote>
+不会吧最近那个电视剧不就一股晋味，我说就是那种娱乐圈女明星百合文，母鸡卡设定不就是很经典的那款
+
+*****
+
+####  ninokagami  
+##### 9837#       发表于 2024-1-22 01:08
+
+管人团空降是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9838#       发表于 2024-1-22 01:09
+
+如果要对标第一季结构，13集大概是狗开live或者管人团出道live把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9839#       发表于 2024-1-22 01:09
+
+並且13話播完缺的喵夢視角會在2025年的總集篇劇場版上補完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 9840#       发表于 2024-1-22 01:09
+
+最后祥子必然得回归赞美音乐的初心的，当然要是开音趴的那种的话好伙伴自然是多多益善<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  PDQ4  
+##### 9841#       发表于 2024-1-22 01:10
+
+不要管人，不许管人，管人团不是都谈鸡狗里喜欢谁了，都动画开天眼了这还怎么融入世界观，难道要开上层叙事吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9842#       发表于 2024-1-22 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63729094&amp;ptid=2159415" target="_blank">Arteryesrerday 发表于 2024-1-22 01:08</a>
+
+不会吧最近那个电视剧不就一股晋味，我说就是那种娱乐圈女明星百合文，母鸡卡设定不就是很经典的那款 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那剧就挺超前的（对日本人来说）……邦脚本阵感觉不太会往这个方向写
+
+*****
+
+####  Arteryesrerday  
+##### 9843#       发表于 2024-1-22 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63729107&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-22 01:10</a>
+那剧就挺超前的（对日本人来说）……邦脚本阵感觉不太会往这个方向写 ...</blockquote>
+我说的是祥all那款
+
+*****
+
+####  ninokagami  
+##### 9844#       发表于 2024-1-22 01:12
+
+不过邦13集基本都是包完饺子开live推新曲了
+
+感觉要猜还是得猜12集
+
+*****
+
+####  NODY  
+##### 9845#       发表于 2024-1-22 01:12
+
+书是可以吃的，就像pareo早期漫画玩键盘是学YYUT结果动画改成了PP一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

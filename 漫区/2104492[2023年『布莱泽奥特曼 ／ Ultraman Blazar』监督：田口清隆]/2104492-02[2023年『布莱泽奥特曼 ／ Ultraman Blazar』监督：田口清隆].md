@@ -1428,3 +1428,13 @@ v99一边喊着偶怕怕一边放出足以灭世的生物兵器，skard这边喊
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  spadepie  
+##### 1751#       发表于 2024-1-21 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63718015&amp;ptid=2104492" target="_blank">acejoe 发表于 2024-1-21 01:18</a>
+那少播点总集篇不就能剪出来几集了，真的搞不懂，你总集篇不也要重新剪</blockquote>
+冷知识，总集篇是不算进集数里的
+

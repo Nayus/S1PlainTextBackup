@@ -2095,3 +2095,13 @@ yura看了下切片，满足了，可恋人的梦幻可能只需要这一点东�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  qty  
+##### 19323#       发表于 2024-1-21 17:32
+
+ 本帖最后由 qty 于 2024-1-21 17:34 编辑 
+
+结那这皮肤真是白到发光啊，即使五官不那么精致光凭这肤色在高光下的颜值加成也超高，也算是某种“暴力”美学了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

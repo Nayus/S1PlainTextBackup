@@ -2022,3 +2022,17 @@ yura看了下切片，满足了，可恋人的梦幻可能只需要这一点东�
 
 单推有啥困难的？
 
+
+*****
+
+####  starring  
+##### 19315#       发表于 2024-1-21 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63718342&amp;ptid=2078110" target="_blank">stygian 发表于 2024-1-21 03:04</a>
+
+推某个人，更多的是推作为在某个团里作为人际关系之一因素的她还是推作为一个独立个体的她
+
+这点不分清楚惘 ...</blockquote>
+以前好像也说过类似的，能转化成个人势的终究是少数。要是转成个人势能把团队的当做她其中一份工作的话，很多情绪都能放下。不过逆天运营时不时要恶心一下，只要还是她的粉丝想躲也躲不掉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+像去年雪菜换人的事，大多数人只是喜欢作为优木雪菜的楠木灯，这些人退坑后也不会去关注灯的个人活动，说得难听点就是哭丧到现在还没缓过来，明明灯的个人活动一直都有，却从未关注过。
+

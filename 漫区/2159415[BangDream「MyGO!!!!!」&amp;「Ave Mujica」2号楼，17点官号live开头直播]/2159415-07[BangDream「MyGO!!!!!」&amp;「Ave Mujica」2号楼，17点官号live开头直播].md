@@ -4278,3 +4278,25 @@ bg校园恋爱作品又如何，羊宮喜欢羊宮高兴，这下温度差可以
 
 说羊打牌是嘲讽，她真大牌就不说她打牌了，某些漏油别太过分，单算真人团的00后里鼻老师比她刷番多得多了，算上二偶鼓子也不会比动物朋友差；要是再拉上夕阳红算的话<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……
 
+
+*****
+
+####  PDQ4  
+##### 9397#       发表于 2024-1-21 12:54
+
+大牌不是地位，打牌是种态度，大牌≠打牌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9398#       发表于 2024-1-21 12:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次看到新来的漏油当理中客我都会觉得有趣，觉得武士道不妥能不能先骂骂武士道看看实力，觉得营业差恶心能不能先锐评一下羊宮看看实力
+
+*****
+
+####  调控人  
+##### 9399#       发表于 2024-1-21 13:02
+
+我认同烤羊啊，我是因为性格和时间不会主动去烤，但是漏油的烤羊章法也只是在角色上乱拉，也没有锐评企划的大论吧
+

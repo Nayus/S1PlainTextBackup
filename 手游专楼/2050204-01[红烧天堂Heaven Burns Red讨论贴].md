@@ -82,3 +82,16 @@
 打普通啊 奖励又没区别 摆就完了</blockquote>
 摆了的话根本不会打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  道双晨曦  
+##### 1437#       发表于 2024-1-21 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63716562&amp;ptid=2050204" target="_blank">lxshhh 发表于 2024-1-20 22:31</a>
+
+之前AB联动的时候还没入坑，但怎么这次联动我完全没有氪的欲望呢..新的SS入江感觉就是个纯奶，百合免费送的 ...</blockquote>
+现在这些都是二周年预热活动，二周年ab二期的东西得等2.4号的直播
+
+强度上来说这卡池完全没有下的必要，入江只对新手有用，天使光C已经被光月城完全上位替代了，百合倒是现在还是火C扛把子但是白送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

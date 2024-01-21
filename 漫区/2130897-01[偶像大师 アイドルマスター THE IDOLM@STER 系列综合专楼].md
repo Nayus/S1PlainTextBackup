@@ -50,3 +50,11 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1028#       发表于 2024-1-22 00:17
+
+我好像群里看到了木户衣吹倒计时的图，就是草台的结果吗，我说不应该是近藤唯吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

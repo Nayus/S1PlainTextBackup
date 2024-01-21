@@ -5726,3 +5726,72 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 
 犹记得战吧那个访谈贴也吵了几百楼，基本都是粉丝在车轱辘话，无法接受自家推不完美吗
 
+
+*****
+
+####  江口夕  
+##### 9561#       发表于 2024-1-21 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">灯10集后有领导力那当然是有一点，那也就一点，但是c团时期是第二个跑的，立希发短信还不回。那肯定是没有一点。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  KozueAkimoto  
+##### 9562#       发表于 2024-1-21 21:56
+
+这5块钱还是太便宜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 9563#       发表于 2024-1-21 21:57
+
+指正，是soyo发的短信<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 9564#       发表于 2024-1-21 21:57
+
+现在看好像不是不能接受自家推没有缺点，而且不能接受别人有自推没有的优点，访谈盖给别人的形容词非得论证自家推也有，别人的才是假的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 9565#       发表于 2024-1-21 21:59
+
+本来今天难得有空爽看0th录播心情正好，然后点开泥漏发现奇妙生物<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 9566#       发表于 2024-1-21 22:00
+
+这是对前面烤那啥应激了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9567#       发表于 2024-1-21 22:01
+
+烤羊当然没关系 倒不如说执着于声优营业这件事很奇妙深刻
+
+*****
+
+####  PDQ4  
+##### 9568#       发表于 2024-1-21 22:02
+
+祥子脑控柿本偷走灯的カリスマ用在自己身上，是否也是一种カリスマ<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 9569#       发表于 2024-1-21 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63726203&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 20:40</a>
+
+说祥子重视歌词的共鸣，但是我感觉不出祥子和人类歌有什么联系。我觉得这里体现的反而是祥子的感受性和char ...</blockquote>
+祥子和人类歌的关系各种假药还是讨论了蛮多的吧
+

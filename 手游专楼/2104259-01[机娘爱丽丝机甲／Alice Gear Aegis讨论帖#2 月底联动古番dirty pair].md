@@ -65,3 +65,13 @@
 
 除了合体（？）SP好像也没什么大新闻
 
+
+*****
+
+####  冰风血羽  
+##### 877#       发表于 2024-1-21 22:00
+
+打完联机出来看到公告<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">真是迫不及待到明天了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

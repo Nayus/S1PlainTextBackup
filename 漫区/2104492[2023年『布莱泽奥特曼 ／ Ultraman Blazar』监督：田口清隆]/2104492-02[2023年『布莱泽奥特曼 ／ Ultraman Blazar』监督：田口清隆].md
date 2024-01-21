@@ -1750,3 +1750,11 @@ v99一边喊着偶怕怕一 ...</blockquote>
 
 一个势力不尚武，但认定威胁之后反制可以拿出包括爆星级的数种战争策略搞种族灭绝，这倒是有点像新奥的光之星
 
+
+*****
+
+####  haoshion  
+##### 1757#       发表于 2024-1-21 18:39
+
+说起来那块怨灵水晶最后提都没提到<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+

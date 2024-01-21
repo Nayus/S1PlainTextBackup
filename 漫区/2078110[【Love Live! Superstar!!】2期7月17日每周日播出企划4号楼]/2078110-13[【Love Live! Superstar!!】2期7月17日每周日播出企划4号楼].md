@@ -2150,3 +2150,29 @@ nako……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" 
 
 pay好high
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19329#       发表于 2024-1-21 18:37
+
+nako 这两天状态确实不太好，希望只是一时的吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  csolfans  
+##### 19330#       发表于 2024-1-21 18:37
+
+想想Nako下星期还得上武道馆
+
+*****
+
+####  6030sylar  
+##### 19331#       发表于 2024-1-21 18:37
+
+年初二能公开吗
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

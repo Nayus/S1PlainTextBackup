@@ -4685,3 +4685,20 @@ pjsk：？
 
 。
 
+
+*****
+
+####  利维豚  
+##### 9443#       发表于 2024-1-21 14:56
+
+黑粉也是粉
+
+*****
+
+####  6030sylar  
+##### 9444#       发表于 2024-1-21 15:00
+
+<img src="https://p.sda1.dev/15/47ab161028cad5381740412387243592/CMP_20240121150013172.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

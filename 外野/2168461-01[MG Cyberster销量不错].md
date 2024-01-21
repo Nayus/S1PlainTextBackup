@@ -1109,3 +1109,13 @@ https://www.mazda.com.cn/cars/mx-5#1</blockquote>
 MX-5从初代到现在就没有硬顶的。</blockquote>
 有没有可能人家说的自动硬顶是硬顶敞篷自动开合？
 
+
+*****
+
+####  holacio  
+##### 108#       发表于 2024-1-21 14:54
+
+楼里笑话：波子适合蹦直线<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

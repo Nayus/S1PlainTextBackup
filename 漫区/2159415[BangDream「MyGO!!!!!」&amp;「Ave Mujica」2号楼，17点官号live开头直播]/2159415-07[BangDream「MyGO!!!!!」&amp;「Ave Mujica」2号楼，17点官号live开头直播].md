@@ -3948,3 +3948,65 @@ mygo账号终于又更新了以前那套中二剧的后一集<img src="https://s
 
 不想贴贴的人可以追求渴望的bg，愿意贴贴的人可以加大力度更进一步，都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 9358#       发表于 2024-1-21 11:05
+
+原本还指望cdd对邦d一下，现在羊在一边呆着就好了<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  NODY  
+##### 9359#       发表于 2024-1-21 11:06
+
+邦二代资源吃得最多的人因为崆峒嫌弃你邦听起来也太搞了，另外九个人有点惨，要不武士道给灯塞个小男友让另外九个卖百合就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Grahamlinks  
+##### 9360#       发表于 2024-1-21 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星空冻结  
+##### 9361#       发表于 2024-1-21 11:07
+
+怎么塞小男友啊，总不能让灯和祥爸谈恋爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 9362#       发表于 2024-1-21 11:07
+
+这样下去要变为你邦靠拢啤酒烧烤第一步了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+说不定羊刚接企划的时候以为会有小男友可以养gachi，结果进手游变成贴贴了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 9363#       发表于 2024-1-21 11:07
+
+椎名立希的平凡日常堂堂上演，讲述30岁未婚的立希和4名已婚小伙伴的日常故事
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9364#       发表于 2024-1-21 11:10
+
+雅美咯——这种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9365#       发表于 2024-1-21 11:11
+
+学烤是吧，快进到其实有人是男扮女装，然后和灯卖cp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5919,3 +5919,143 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 
 挺有意思，祥子祛魅是哪里看出来的，12话cpart和live上我觉得都在尽情发挥利用自己的魅力。访谈更是锤了利用自己全部的人脉，这叫祛魅吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  青叶假司  
+##### 9585#       发表于 2024-1-21 22:13
+
+原来你对人脉的理解不是利益交换和人情世故而是什么魅力，也不失为一种幽默
+
+*****
+
+####  相坂君  
+##### 9586#       发表于 2024-1-21 22:13
+
+好耶，你楼又要换新名字了，ave楼祥厨楼怨妇楼滑坡楼 <strong>孝祥楼</strong>！
+
+*****
+
+####  PDQ4  
+##### 9587#       发表于 2024-1-21 22:14
+
+カリスマ这么时髦，灯一个班的萌宠都有了，我能不能给我素未谋面的maki姐也要一个，什么时候能看到脸听到声音让我蹭一口立希骨<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 9588#       发表于 2024-1-21 22:15
+
+什么立希骨，好好好，爱看！立希姐剧场版能露个脸吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9589#       发表于 2024-1-21 22:15
+
+你不能用虐粉法拷打我们这些祥gachi，因为你理解中的大祥老师和动画里那个好像不是同一个人
+
+*****
+
+####  Aendst  
+##### 9590#       发表于 2024-1-21 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727350&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 22:11</a>
+
+这个假药我还真没注意，可以说说吗？祥子都能说出“命运共同体”还说不出想成为人类？那个时期的祥子天真到 ...</blockquote>
+命运共同体其实是一个固定名词，大体来说并不能算在中二的范畴里，当然并不算常用语
+
+"想成为人类”相比之下就比较奇怪，即使在特定情境下也很难说出来
+
+目前大部分假药都认为是与祥子自身的经历有关（比如说被大家族限制自由安排道路，或者有某种异常性）
+
+前者与和祥子息息相关的“人偶”这个意向有关，引申为受人摆布，因此想要成为人类
+
+后者比如直接拿灯的随笔当歌词、看见人在桥边就会认为对方在自杀之类的思考方式和行为，可能与异常性有关
+
+*****
+
+####  acgreen  
+##### 9591#       发表于 2024-1-21 22:17
+
+我觉得祥子在部分动画观众这祛魅挺彻底的？都一口一个大祥的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  笋干爆炸碱  
+##### 9592#       发表于 2024-1-21 22:17
+
+<blockquote>相坂君 发表于 2024-1-21 22:13
+好耶，你楼又要换新名字了，ave楼祥厨楼怨妇楼滑坡楼 孝祥楼！</blockquote>
+新名字甚至听起来像个卖文玩古画之类的地方
+
+*****
+
+####  PDQ4  
+##### 9593#       发表于 2024-1-21 22:17
+
+大草，原来这位漏油的魅力真的就是buff光环，啥都不用干就行。那还真是对不起，カリスマ口说无凭那叫机械降神主角光环，合理利用人情世故和利益交换达成目的让人追随，我还真认为是カリスマ的一种表现方式。
+
+那按照您的理解确实灯确实更有“カリスマ”，毕竟往那一站靠着萌力所有人都贴上去了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 9594#       发表于 2024-1-21 22:18
+
+就说有人会理解成哈利波特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正访谈图一乐，你理解成哈姆太郎还是哈利波特还是莱因哈特，不都是理解不是同一个
+
+*****
+
+####  假药入脑不可取  
+##### 9595#       发表于 2024-1-21 22:18
+
+漏油野蛮钦点自己是祥gachi，惭愧，容本人文明钦点您是访谈图一乐官方盖章也不算什么的您推肚里的蛔虫，就是不知您推是哪个人，反正和普通人认知的祥子好像不是同一个。
+
+*****
+
+####  青叶假司  
+##### 9596#       发表于 2024-1-21 22:19
+
+拿按照这位楼友的说法，最有克里斯玛能影响故事走向的应该是TGW物产，而不是livehouse里的十个黄毛丫头
+
+*****
+
+####  ninokagami  
+##### 9597#       发表于 2024-1-21 22:19
+
+天桥祥子喊的“想成为人类”我一贯是当作单纯给灯做示范的，不过应该很多人觉得祥子自己也有这种想法就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 9598#       发表于 2024-1-21 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727350&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 22:11</a>
+
+这个假药我还真没注意，可以说说吗？祥子都能说出“命运共同体”还说不出想成为人类？那个时期的祥子天真到 ...</blockquote>
+1号楼发过的，结合“人偶”以及放在娱乐室的钢琴，说明祥子一直觉得自己的感受和热爱并没有受到重视，只是像一个人偶一样活着，在家里毫无归属感，和别人交往也总有着隔膜，所以她要寻找真正让自己不再孤身一人的通往人类之路
+
+那个时候祥子确实很天真，但也不那么天真，她看到灯能想到自杀而不是像初华一样说句很危险，很可能暗示她可能是想过这类问题的
+
+*****
+
+####  江口夕  
+##### 9599#       发表于 2024-1-21 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦，初华也没 金 钱 交易吧，再来个灯和素世，这去掉金钱关系已经进去多少人了，没什么好质疑的吧。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Arteryesrerday  
+##### 9600#       发表于 2024-1-21 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727456&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-21 22:21</a>
+睦，初华也没 金 钱 交易吧，再来个灯和素世，这去掉金钱关系已经进去多少人了，没什么好质疑的吧。 ...</blockquote>
+你这是什么**<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

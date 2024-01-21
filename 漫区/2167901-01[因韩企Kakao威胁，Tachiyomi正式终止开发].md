@@ -1203,3 +1203,13 @@ mihon要怎么识别tachiyomi下载过的文件？</blockquote>
 
 虽然改了但是因为刚才全手动刷了一遍所以现在也不知道生效了没有(
 
+
+*****
+
+####  keroghy  
+##### 96#       发表于 2024-1-22 00:45
+
+rawkuma1.4.28更新了啥？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

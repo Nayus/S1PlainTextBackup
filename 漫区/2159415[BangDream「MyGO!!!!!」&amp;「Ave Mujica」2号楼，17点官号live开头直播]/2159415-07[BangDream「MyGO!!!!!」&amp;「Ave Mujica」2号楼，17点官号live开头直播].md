@@ -4909,3 +4909,11 @@ C团其他人都是有经验的乐手，只有灯是纯新人，乐队首先要�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Arrogate  
+##### 9466#       发表于 2024-1-21 19:52
+
+羊粉丝是带点幽默的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

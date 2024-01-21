@@ -87,3 +87,11 @@ timeless是真的好玩，倾家荡产做了一套风暴一套泰坦僵尸地一
 
 我觉得这次的基本地有点不够城市化
 
+
+*****
+
+####  arachnid  
+##### 71#       发表于 2024-1-21 19:49
+
+看到狗哥说要卖号的消息，有种感觉一个时代过去了的失落感...<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+

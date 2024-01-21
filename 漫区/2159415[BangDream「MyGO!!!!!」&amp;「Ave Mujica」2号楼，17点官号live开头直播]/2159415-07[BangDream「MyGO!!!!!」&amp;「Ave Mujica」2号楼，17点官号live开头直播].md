@@ -4481,3 +4481,32 @@ pjsk：？
 —— 来自 S1Fun</blockquote>
 真成邪教团体了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穗波殊  
+##### 9420#       发表于 2024-1-21 13:33
+
+从一号楼爬起来太长了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nebulanoby  
+##### 9421#       发表于 2024-1-21 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721447&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-21 13:29</a>
+真成邪教团体了</blockquote>
+想传教×
+
+想向别人炫耀他买到这一期的月刊武士道了✓
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 9422#       发表于 2024-1-21 13:41
+
+炫耀买到这一期的月刊武士道草，好像没有任何问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

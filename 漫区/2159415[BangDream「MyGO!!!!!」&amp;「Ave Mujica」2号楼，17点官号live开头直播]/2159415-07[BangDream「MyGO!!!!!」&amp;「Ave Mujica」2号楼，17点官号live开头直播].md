@@ -5515,3 +5515,129 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 最牛逼的观众当然得是把官方直说的东西当不存在、只能图一乐的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 对官方没说的内容有自己的看法的观众，哪配得上碰瓷“我的理解＞官方”的观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9534#       发表于 2024-1-21 21:33
+
+<img src="https://p.sda1.dev/15/b26fe77de85672fb15c184a98e4cd834/CMP_20240121213248871.png" referrerpolicy="no-referrer">随手找了张截图
+
+*****
+
+####  青叶假司  
+##### 9535#       发表于 2024-1-21 21:33
+
+你这样的人，还在乎这个啊 
+
+*****
+
+####  星空冻结  
+##### 9536#       发表于 2024-1-21 21:33
+
+怎么开始打滚了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9537#       发表于 2024-1-21 21:34
+
+牛牛牛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 9538#       发表于 2024-1-21 21:34
+
+感觉。。。不如。。官方访谈也就图一乐
+
+*****
+
+####  青叶假司  
+##### 9539#       发表于 2024-1-21 21:34
+
+已阅，转武士道木谷高明同志，为考研鸡狗科目高分楼友们做适当安排
+
+*****
+
+####  Arrogate  
+##### 9540#       发表于 2024-1-21 21:35
+
+有一种“jk罗琳就是一写小说的懂什么哈利波特”的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 9541#       发表于 2024-1-21 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥漏最近真是不得了，结界大开了吧这是
+
+*****
+
+####  PDQ4  
+##### 9542#       发表于 2024-1-21 21:35
+
+我懂了，想证明一个人有カリスマ很简单，只要拿出行动力就可以了。而想证明没有カリスマ很难，因为可以用平时没有表现出来进行解释，你怎么敢假定灯皇没有在没人看到的地方把立希踹了自己操刀live策划。这是恶魔的证明啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9543#       发表于 2024-1-21 21:38
+
+吹谁不好，你哪怕吹大祥显灵拯救了卖狗初live呢，可能是因为楼友心目中克里斯玛这东西经不起解构吧，像极了rikki在灯皇身上找到了天哪这简直就是我样子
+
+*****
+
+####  PDQ4  
+##### 9544#       发表于 2024-1-21 21:39
+
+反而更证明了场外官方访谈的重要性，不然别人怎么讲漏油都没法反驳，官方都没公布答案<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 9545#       发表于 2024-1-21 21:40
+
+原来是觉得剧情没说清楚，访谈不重要，想要再多加塞几个剧场版！
+早说嘛，那可不就是访谈图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  近月  
+##### 9546#       发表于 2024-1-21 21:40
+
+这位精神胜利的老哥，你其实可以先把charisma打对了再来抬杠的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9547#       发表于 2024-1-21 21:40
+
+我懂了，原来是来自贴吧和b站的勇者挑战知名阴暗怨妇迷宫祥推楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是没有想到对方居然使用了卑鄙的制作组访谈内容
+
+想要战胜这样的危机就只能发动固有技能图一乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arteryesrerday  
+##### 9548#       发表于 2024-1-21 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 9549#       发表于 2024-1-21 21:41
+
+如果将charisma用英文释义之一的“特殊的魅力或吸引力”解释灯也可以。总之别吵架，这里有人在黑灯吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 9550#       发表于 2024-1-21 21:41
+
+所以漏油能结解释下你的カリスマ吗，经得起解构肯定是有一套自洽的逻辑解释，希望漏油也来对下答案，不会要说自己不是日本人没有官方解释吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

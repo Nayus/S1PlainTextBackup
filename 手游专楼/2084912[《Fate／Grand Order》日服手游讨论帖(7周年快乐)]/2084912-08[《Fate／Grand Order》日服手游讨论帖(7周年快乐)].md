@@ -6077,3 +6077,13 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 
 去年街机联动之后，对联动剧情的期待值就放平了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 11070#       发表于 2024-1-21 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63714874&amp;ptid=2084912" target="_blank">الطائر 发表于 2024-1-20 19:36</a>
+应该说是同分异构体佐佐木小次郎吧？FSR和男武藏决斗的小次郎、FGO下总国没有和男武藏决斗的小次郎，都是 ...</blockquote>
+小次郎分身比烟雾镜还多
+

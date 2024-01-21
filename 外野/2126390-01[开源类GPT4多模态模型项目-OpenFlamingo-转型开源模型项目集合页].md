@@ -27785,3 +27785,46 @@ RoleCraft-GLM框架概览图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1206#       发表于 2024-1-22 01:34
+
+GPT-SoVITS/Webui
+
+强大的少样本语音转换与语音合成/Web用户界面
+
+github项目主页:https://github.com/RVC-Boss/GPT-SoVITS
+
+bilibili演示视频:https://www.bilibili.com/video/BV12g4y1m7Uw/
+
+特点:
+1.零样本 TTS:输入5秒语音样本并体验即时文本到语音转换
+
+2.少样本 TTS:仅用1分钟的训练数据即可微调模型，改进语音相似度和真实感
+
+3.跨语言支持:可以推理与训练数据集不同的语言，目前支持英语、日语和中文
+
+4.WebUI工具:集成工具包括语音伴奏分离、自动训练集分割、中文ASR和文本标注，帮助初学者创建训练数据集和GPT/SoVITS模型
+
+github项目说明截图:
+
+<img src="https://img.saraba1st.com/forum/202401/22/013413qxro9p9ak5ht69pp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-012906.jpg</strong> (261.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 01:34 上传
+
+<img src="https://img.saraba1st.com/forum/202401/22/013413grkvqnrnw5qrrzv8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-012925.jpg</strong> (83.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 01:34 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

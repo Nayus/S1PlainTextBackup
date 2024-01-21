@@ -7157,3 +7157,194 @@ z8换cv都有人提了也叫为了羊好 早日脱离糊邦是吧</blockquote>
 就是那次羊和其它剧组聚餐照片流出 ...</blockquote>
 我是觉得生日和一专什么也没有是真的伤到了，NGA好像也是从这里出发盖的烤羊大楼
 
+
+*****
+
+####  御幸一也  
+##### 9721#       发表于 2024-1-21 23:21
+
+而且有一說一，ave粉幹嘛在意羊宮，難道不是go粉在意所以才想換羊宮嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+至少我對她印象是不錯的，雖然看她在你邦完全不營業是有點怪，我也從來沒說什麼，畢竟我不關心<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋干爆炸碱| + 1||
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 9722#       发表于 2024-1-21 23:21
+
+懂了，给鸡爆米的都是WSD孝子，这下地位最低的一天了，想大义灭亲<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 9723#       发表于 2024-1-21 23:22
+
+漏油们把打滚的当猴耍耍也还好，毕竟真没货可聊了，但是注意别说啥太过头的话了，等下这打滚的朋友回头又拿什么东西断章取义，然后s1又成了万恶之源了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 9724#       发表于 2024-1-21 23:23
+
+智械危机确实比较容易引起恐慌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  假药入脑不可取  
+##### 9725#       发表于 2024-1-21 23:23
+
+你为什么要说又（笑
+
+*****
+
+####  御幸一也  
+##### 9726#       发表于 2024-1-21 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728157&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-21 23:20</a>
+
+其实羊gachi可以剑指马娘的，只要羊的马娘营业也不上心，那就是羊平等的歧视二偶。这种事情都是比烂的嘛， ...</blockquote>
+呃 馬娘屬於大鍋飯，我覺得真的沒有什麼需要營業的地方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+羊宮應該不至於live完感想都沒一個吧，我相信她最基本的這些還是會做的
+
+*****
+
+####  青叶假司  
+##### 9727#       发表于 2024-1-21 23:24
+
+绫奈百合子逸帝说，在权利斗争中输给杮本叔叔后无奈出走，任闲职鸡特首，后被家乡聘任为独角兽乡贤
+
+*****
+
+####  相坂君  
+##### 9728#       发表于 2024-1-21 23:24
+
+都孝祥楼还有什么新称呼吗（这名字确实有点古典雅味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninokagami  
+##### 9729#       发表于 2024-1-21 23:25
+
+那还真不用等马娘，出道2.5企划sp已经彻底从羊推消失了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按现在她这个发推逻辑大概率马娘也是最低限度
+
+哦对了，灯生日没推别叫，八木野土香也没（两年）
+
+*****
+
+####  Aendst  
+##### 9730#       发表于 2024-1-21 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得像卖包子点心的
+
+*****
+
+####  jerryoq1  
+##### 9731#       发表于 2024-1-21 23:25
+
+阿这  我看0th粉上的也不配鸡粉了？  你邦只有动画粉上的才配当粉是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9732#       发表于 2024-1-21 23:26
+
+按楼友的标准估计是不配
+
+*****
+
+####  九陌狂游  
+##### 9733#       发表于 2024-1-21 23:27
+
+鸡团真惨吧，明明在z8只有在烤羊才会被拿出来当枪反观。然后还要把烤羊的打成鸡粉<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">没动画的东西真不能说话了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  PDQ4  
+##### 9734#       发表于 2024-1-21 23:28
+
+ 本帖最后由 PDQ4 于 2024-1-21 23:29 编辑 
+
+按漏油（仅1位）的标准，确实不配。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正我二次是看脸厨，三次是看live表现和营业厨的，谁不爱看自家小偶像热热闹闹开心一起玩呢。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 9735#       发表于 2024-1-21 23:28
+
+打滚之后的新活是精神分裂是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 9736#       发表于 2024-1-21 23:28
+
+睦祥果然是寓意好的名字，什么楼啊阁啊店的都挺合适的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 9737#       发表于 2024-1-21 23:29
+
+ 本帖最后由 nebulanoby 于 2024-1-21 23:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728174&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-21 23:21</a>
+我是觉得生日和一专什么也没有是真的伤到了，NGA好像也是从这里出发盖的烤羊大楼 ...</blockquote>
+话说现在NGA是不是禁止烤羊了
+
+唉，柿本广大，唉，MGGM你说这把是不是台长打得有问题
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aloereed  
+##### 9738#       发表于 2024-1-21 23:30
+
+sp已经亖了现在没发还挺正常吧。而且羊还是只有sp的底边的时候基本推上全是sp的营业，当然那个号已经被剪切线了
+
+*****
+
+####  ninokagami  
+##### 9739#       发表于 2024-1-21 23:31
+
+确实禁了，之前版主下场，今早也抽了楼
+
+*****
+
+####  ddy2811  
+##### 9740#       发表于 2024-1-21 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728278&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-21 23:29</a>
+
+话说现在NGA是不是禁止烤羊了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+专楼好像是又烤了一次大的以后有了限制，不过烤羊大楼本来就是单开的帖，我觉得不至于管得到走廊上吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9741#       发表于 2024-1-21 23:32
+
+事业民现在的最佳选择是无脑爆米，毕竟动物朋友的毛出在动物朋友身上，武士道只看脸和数字 你说没钱？没钱还对营业挑三拣四的
+

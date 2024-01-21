@@ -6043,3 +6043,11 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 
 真有柱子战的话挺不错的，比3面本打的快，就该多开开
 
+
+*****
+
+####  DARKGRAY  
+##### 11066#       发表于 2024-1-21 10:54
+
+连续几个活动搞柱子或者无限池的话感觉不太可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

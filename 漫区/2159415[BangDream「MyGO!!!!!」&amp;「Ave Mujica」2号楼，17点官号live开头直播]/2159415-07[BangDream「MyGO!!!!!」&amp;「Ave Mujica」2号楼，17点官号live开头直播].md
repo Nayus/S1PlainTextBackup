@@ -3910,3 +3910,41 @@ mygo账号终于又更新了以前那套中二剧的后一集<img src="https://s
 
 我呕呕 别祸害灯皇 明明动物朋友已经切割了
 
+
+*****
+
+####  Kasroz  
+##### 9353#       发表于 2024-1-21 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">卖bgcp的2.5偶像，少女乐队新时代要来了吗
+
+*****
+
+####  PDQ4  
+##### 9354#       发表于 2024-1-21 10:56
+
+你邦要卖bg什么鬼故事，真卖的话能不能把真女同也吐出来平衡一下<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 9355#       发表于 2024-1-21 10:58
+
+怎么从羊跳舞直接滑坡到邦卖bg啊，那种事情不要啊。
+
+至少也要go十年以后……
+
+*****
+
+####  DarthAka  
+##### 9356#       发表于 2024-1-21 10:59
+
+奈良乡下跑出来的是崆峒老保不是很合理么？
+
+*****
+
+####  Aendst  
+##### 9357#       发表于 2024-1-21 11:00
+
+不想贴贴的人可以追求渴望的bg，愿意贴贴的人可以加大力度更进一步，都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

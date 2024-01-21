@@ -5203,3 +5203,65 @@ pico新作请一定要来一集祥子和真白的互动……
 
 2500保底吧
 
+
+*****
+
+####  青叶假司  
+##### 9494#       发表于 2024-1-21 21:06
+
+按动画其实灯皇也有chrisma的 只不过常态就收敛为羽丘的萌物了
+
+*****
+
+####  Aendst  
+##### 9495#       发表于 2024-1-21 21:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9496#       发表于 2024-1-21 21:07
+
+先充为敬
+
+*****
+
+####  NODY  
+##### 9497#       发表于 2024-1-21 21:08
+
+live还没到就1800+了，不知道下周能不能翻个倍<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9498#       发表于 2024-1-21 21:10
+
+大祥老师海量专，精确算，比你懂，比我懂
+
+*****
+
+####  skives  
+##### 9499#       发表于 2024-1-21 21:10
+
+mujica这个live气氛是真的牛批
+群魔乱舞 乌烟瘴气
+感觉大脑都在颤抖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+太期待周末现场有多炸裂了
+
+*****
+
+####  PDQ4  
+##### 9500#       发表于 2024-1-21 21:11
+
+灯招人喜欢不是因为是小动物吗，难道漏油说把家宠当主子是认真的。
+
+要是真灯皇有カリスマ立希还能当实质队长，早该清君侧了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9501#       发表于 2024-1-21 21:12
+
+1900舰
+

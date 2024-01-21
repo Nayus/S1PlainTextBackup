@@ -7511,3 +7511,111 @@ sp已经亖了现在没发还挺正常吧。而且羊还是只有sp的底边的�
 
 [https://twitter.com/this_is_nn/status/1748723868993212909](https://twitter.com/this_is_nn/status/1748723868993212909)
 
+
+*****
+
+####  Aendst  
+##### 9760#       发表于 2024-1-21 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">对人类来说初睦祥比较难梳理，但是对ai来说可能就不那么难了，想看看有没有最潮最in的新思路
+
+*****
+
+####  PDQ4  
+##### 9761#       发表于 2024-1-21 23:44
+
+我要初睦祥三人行假药，能不能直接给我快进到三人同居日常，这对我很重要<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 9762#       发表于 2024-1-21 23:45
+
+ 本帖最后由 -LYRE- 于 2024-1-21 23:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728064&amp;ptid=2159415" target="_blank">qdhbcheekc 发表于 2024-1-21 23:12</a>
+z8烤羊是真烤羊，只烤羊，希望羊和狗好，z8闹分割的被喷一百楼泥漏某几个人烤羊是为了展示自己作为 ...</blockquote>
+【z8烤羊是为了羊好】
+建议您去z8发帖说这个看看呢<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/94c54c29027abae5d26bb87a28f3fe60/CMP_20240121234520278.jpg" referrerpolicy="no-referrer">
+[怎么老有羊gachi喜欢侮辱人啊](https://tieba.baidu.com/p/8846955987?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.50.3.0&amp;st=1705852156&amp;is_video=false&amp;unique=2659178C44FCAEE532734BED90ACFDB0)
+
+*****
+
+####  御幸一也  
+##### 9763#       发表于 2024-1-21 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728394&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-21 23:42</a>
+
+我是all睦all，带上睦宝就行我基本不挑饭吃</blockquote>
+我覺得有些飯樓友還是挑一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  青叶假司  
+##### 9764#       发表于 2024-1-21 23:47
+
+睦头第十话不是有主动出击的场景吗，而且起到了明显的正面作用
+
+*****
+
+####  穗波殊  
+##### 9765#       发表于 2024-1-21 23:47
+
+睦被打的我受不了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">动画里惨动画外面还被打精神变态吧
+
+*****
+
+####  笋干爆炸碱  
+##### 9766#       发表于 2024-1-21 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728438&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-21 23:46</a>
+
+我覺得有些飯樓友還是挑一下吧</blockquote>
+我已经认识一堆雷文专业户的ID了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+我绕着他们走
+
+*****
+
+####  Arteryesrerday  
+##### 9767#       发表于 2024-1-21 23:49
+
+哪里有🪵被打得文啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 9768#       发表于 2024-1-21 23:49
+
+我是谁对睦宝好吃啥，初睦海睦都好，喵梦太好搞定了一看就容易交真心，喵睦好，是成年人更好。睦祥值得押宝的太多了，你邦幼驯染永远不输。
+
+27号先浅代餐一下，希望有新的睦宝团宠物料放出。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9769#       发表于 2024-1-21 23:50
+
+鼓励漏油做饭<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可以有效减少踩雷率
+
+*****
+
+####  akirakira  
+##### 9770#       发表于 2024-1-21 23:51
+
+睦祥场外最甜还得是热场的神笨蛋互动<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+现在还有访谈认证的动画里关系性再现，含金量飙升<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 9771#       发表于 2024-1-21 23:52
+
+以前写过一篇爱灯<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">对小学生文笔来说写作太难了，我还是适合当要饭的
+
+*****
+
+####  笋狐  
+##### 9772#       发表于 2024-1-21 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灯睦的互动模式突然想起了一个化石级段子：把绫波丽和长门有希关在一个房间里谁会先出声
+

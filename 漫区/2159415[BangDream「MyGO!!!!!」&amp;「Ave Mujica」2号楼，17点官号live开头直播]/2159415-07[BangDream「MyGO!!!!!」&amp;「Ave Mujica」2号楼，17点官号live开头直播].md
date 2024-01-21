@@ -4551,3 +4551,58 @@ pjsk：？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  江口夕  
+##### 9428#       发表于 2024-1-21 13:54
+
+ 本帖最后由 江口夕 于 2024-1-21 13:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那分个幽夜楼和歌舞升平楼如何，各取所需。当年素世分妈妈/城府两派时候就应该尽早分开，不然也不至于鸡同鸭讲
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 9429#       发表于 2024-1-21 13:55
+
+ 本帖最后由 NODY 于 2024-1-21 13:59 编辑 
+
+武士道就这么放任羊摆烂我是不太理解的，还是在今年live有那么多场的前提下，明明隔壁dj遇到摆烂的就直接换了，虽然不换人确实更好没那么多麻烦事，但起码让羊认真点吧
+
+还是说反正明年开始可以大力推鸡了，所以今年趁着ylgo还没跑光把狗日程塞满能赚多少赚多少，以后就无所谓了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9430#       发表于 2024-1-21 13:56
+
+泥漏没几个认真烤羊的吧，也就出现特别迷惑营业事故的情况下会调侃一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9431#       发表于 2024-1-21 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721669&amp;ptid=2159415" target="_blank">Nungesser 发表于 2024-1-21 13:52</a>
+
+你楼就别说自己温和了吧，难道非要去和微博上的厕妹比发散和黑屁水平吗。 ...</blockquote>
+你又计较了？推荐报警<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9432#       发表于 2024-1-21 14:03
+
+建议转型围脖集美歇斯底里自言自语楼
+
+*****
+
+####  QuattroVageena  
+##### 9433#       发表于 2024-1-21 14:03
+
+这就叫烤了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚拔毛还没刷油呢
+觉得这就算烤可以在这一年中感受自己内心被烤，我毫不怀疑半年之后新楼友烤羊会有多熟练
+

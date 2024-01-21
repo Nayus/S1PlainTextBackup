@@ -646,3 +646,14 @@ minoria是转型失败作，转3d画面整体性没有进步多少，但动作�
 
 这怎么进去？
 
+
+*****
+
+####  荆棘花冠  
+##### 63#       发表于 2024-1-21 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721632&amp;ptid=2049040" target="_blank">会长辅佐 发表于 2024-1-21 13:49</a>
+
+这怎么进去？</blockquote>
+卡片三种图标对应后自动解锁
+

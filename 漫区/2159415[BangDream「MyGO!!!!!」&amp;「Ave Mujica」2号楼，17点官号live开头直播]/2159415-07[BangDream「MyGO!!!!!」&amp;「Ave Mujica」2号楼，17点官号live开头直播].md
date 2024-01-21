@@ -4917,3 +4917,47 @@ C团其他人都是有经验的乐手，只有灯是纯新人，乐队首先要�
 
 羊粉丝是带点幽默的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 9467#       发表于 2024-1-21 19:55
+
+ 本帖最后由 nebulanoby 于 2024-1-21 20:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63725439&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 19:37</a>
+
+C团其他人都是有经验的乐手，只有灯是纯新人，乐队首先要解决的事情是让主唱唱出声来，就常理来看让她多练 ...</blockquote>
+明确说了被她写的词腐乳了，可能祥子当初觉得最重要的是主唱心里有这个思绪想法，唱功啥的多练总能拿得出手的，就和武士道当初选某声优当主唱一样
+
+话说一开始以为你说的是中之人，查了下鼓子她居然以前真打过鼓
+
+*****
+
+####  PDQ4  
+##### 9468#       发表于 2024-1-21 19:58
+
+wsd恶心人的次数还少吗，只有在意的才会被wsd和🐏的不作为伤到。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+相反🐏的存在让我觉得老团和鸡的融洽难能可贵，这次回坑把老团切片和live遛完感觉更喜欢了，和音宝的和解加速也有🐏的一份功劳。从这个意义上我还挺感谢🐏的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然wsd还是那么恶心人，希望明年前别再整骚操作了，至少让我把鸡团动画开心看完。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9469#       发表于 2024-1-21 20:00
+
+祥子黑箱太多了没办法下定论，不过确实可以看得出来她初中时期非常重视歌词的情感共鸣，相当有理想主义者的味道
+
+当然还是少不了都合主义，这里的滤镜确实重了，会有少许电波的观感，只能说设定如此吧
+
+*****
+
+####  安洁莉娜  
+##### 9470#       发表于 2024-1-21 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63725439&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 19:37</a>
+
+C团其他人都是有经验的乐手，只有灯是纯新人，乐队首先要解决的事情是让主唱唱出声来，就常理来看让她多练 ...</blockquote>
+不是硬要创造新理解，主要是结合上下文，祥子说“可是到现在为止你都做了什么”，这个理解成让灯抓紧在练习室的时间我觉得还是可以合理的，毕竟镜头还给到了灯的笔记本，再加上祥子已经有一段时间不来参加练习了，她怎么知道灯最近有没有努力唱？所以我觉得她说的话是需要一点解释的。当然我只是想发癫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4120,3 +4120,38 @@ mygo账号终于又更新了以前那套中二剧的后一集<img src="https://s
 
 不管是崆峒还是嫌弃二偶，故意在你邦摆烂都挺没职业道德的，亏你邦甚至专门给灯联动我心危这种纯bg狗粮作品，可惜人真不怎么领情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 9379#       发表于 2024-1-21 11:57
+
+ 本帖最后由 基神的强袭自由 于 2024-1-21 11:58 编辑 
+
+要卖BG了吗，我想看比企谷八幡x凑友希那，千圣也可以<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  爱丁堡official  
+##### 9380#       发表于 2024-1-21 12:00
+
+每当大伙没素材烤羊的时候，素材就来了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  灵椿  
+##### 9381#       发表于 2024-1-21 12:02
+
+怎么从烤羊扯到角色这样那样了，太那个了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9382#       发表于 2024-1-21 12:02
+
+漏油恶心人也有个度啊😡
+

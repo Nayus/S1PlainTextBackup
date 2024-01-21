@@ -5677,3 +5677,21 @@ miko对这次菜品的监修程度很高，说是对自家的口味有很特别�
 
 我反正也没抢到亲笔签名，多少算心理安慰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8043#         楼主| 发表于 2024-1-21 11:26
+
+miko醒了更新今天的联动直播内容了，竟然是半年前征集的那个一致回答游戏holo版问题的企划
+
+<img src="https://img.saraba1st.com/forum/202401/21/112552akbbeepbkqkib0hm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 11:25 上传
+
+然后白天要继续pal了对吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看fbk也醒了
+

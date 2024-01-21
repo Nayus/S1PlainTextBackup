@@ -1178,3 +1178,16 @@ mihon要怎么识别tachiyomi下载过的文件？</blockquote>
 想问下，mihon以及tachiyomi的最近版本都不能有效更新书架了，比如在首页或者更新页面下拉，小字提示“正在 ...</blockquote>
 可能是智能更新的问题，全关了试试<img src="https://p.sda1.dev/15/2930ea8bcb9f0670657fa7a1e8869c62/CMP_20240121143929805.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JennyFaceOff  
+##### 94#       发表于 2024-1-21 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721460&amp;ptid=2167901" target="_blank">白左 发表于 2024-1-21 13:31</a>
+
+很早以前我就是这样了, 不过因为没更新却突然出现的, 以为是自己网络问题
+
+换到mihon后一比一还原了这个 ...</blockquote>
+可以考虑下#93楼的办法，我是把智能更新的四项先全关掉，确定，然后再重新打开前三项，之后好像就能正常全局更新了。估计是app版本后的新增的默认设置得重新勾选才能激活的原因。
+

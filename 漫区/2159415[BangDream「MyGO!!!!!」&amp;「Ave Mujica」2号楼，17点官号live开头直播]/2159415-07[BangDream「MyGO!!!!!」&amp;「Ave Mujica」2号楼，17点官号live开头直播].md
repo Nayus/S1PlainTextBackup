@@ -8234,3 +8234,76 @@ pico要不涉及剧透的话还挺难做的吧，虽然不放mujica进去可以�
 
 书是可以吃的，就像pareo早期漫画玩键盘是学YYUT结果动画改成了PP一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 9846#       发表于 2024-1-22 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63729115&amp;ptid=2159415" target="_blank">Arteryesrerday 发表于 2024-1-22 01:11</a>
+
+我说的是祥all那款</blockquote>
+all确实不好说，感觉真的有潜力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arteryesrerday  
+##### 9847#       发表于 2024-1-22 01:16
+
+个人感，小祥破产励志逐梦演艺圈，忠犬白马王子竹马念念不忘，人偶般美丽的明星子女，抖音邪气带网红，救🔥特种兵猛1
+
+*****
+
+####  Arteryesrerday  
+##### 9848#       发表于 2024-1-22 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63729124&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-22 01:13</a>
+all确实不好说，感觉真的有潜力</blockquote>
+刚好四个，可以开乙女手游了
+
+*****
+
+####  PDQ4  
+##### 9849#       发表于 2024-1-22 01:17
+
+all祥all最大的阻力是海铃，其他三个人都已经不清不楚了，看独角兽要不要搞海祥，我押宝的是海睦和海喵就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arteryesrerday  
+##### 9850#       发表于 2024-1-22 01:17
+
+个人理解发展吧，感觉毕竟母鸡卡都是小祥摇来的，如果祥中心关系对我个人比较好懂这样
+
+*****
+
+####  66367749  
+##### 9851#       发表于 2024-1-22 01:18
+
+外面一看n多楼还以为有什么新情报，爬完只感受到抽象，是在cos满嘴我是真爱粉的管人痴黑粉吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9852#       发表于 2024-1-22 01:21
+
+中途開始確實蠻抽象的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9853#       发表于 2024-1-22 01:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica这几个人确实挺适合做祥主视角的恋爱adv
+
+演艺圈ver自不必说，还可以用各种世界观填充
+
+什么都市传说ver，中世纪怪奇ver之类的都没有很大违和感
+
+*****
+
+####  NODY  
+##### 9854#       发表于 2024-1-22 01:22
+
+祥厨要相信独角兽的爱，我可是很坚定的认为第二季卖海祥海睦海喵的可能性都比海希大的，这就是独角兽迫害立希给我的自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

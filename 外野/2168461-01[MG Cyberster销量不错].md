@@ -1096,3 +1096,16 @@ https://www.mazda.com.cn/cars/mx-5#1</blockquote>
 
 这车单车毛利润应该有10万左右了吧，不过摊了研发，应该也没赚多少。
 
+
+*****
+
+####  carolawyer  
+##### 107#       发表于 2024-1-21 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63702891&amp;ptid=2168461" target="_blank">无印凉粉 发表于 2024-1-19 16:27</a>
+
+那你还是继续做梦吧。
+
+MX-5从初代到现在就没有硬顶的。</blockquote>
+有没有可能人家说的自动硬顶是硬顶敞篷自动开合？
+

@@ -4510,3 +4510,44 @@ pjsk：？
 
 炫耀买到这一期的月刊武士道草，好像没有任何问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 9423#       发表于 2024-1-21 13:48
+
+ 本帖最后由 星空冻结 于 2024-1-21 13:51 编辑 
+
+其实你楼火力已经很温和了好吧，不如说邦这边整个环境就挺温和，还给羊扣个崆峒的帽子再黑屁，换隔壁的几家早开始人身攻击了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于绑不绑灯，2.5次元真想把二三次元完全切割开没那么简单的，对中之人的火力溅射到角色身上太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 9424#       发表于 2024-1-21 13:49
+
+切割有什么难度吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一直都是切割来的
+
+*****
+
+####  Arrogate  
+##### 9425#       发表于 2024-1-21 13:51
+
+泥漏早就被评好多次了，“怨妇楼”“祥厨楼”“滑坡楼”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nungesser  
+##### 9426#       发表于 2024-1-21 13:52
+
+你楼就别说自己温和了吧，难道非要去和微博上的厕妹比发散和黑屁水平吗。
+
+*****
+
+####  rollingusagi  
+##### 9427#       发表于 2024-1-21 13:52
+
+看了国服新活动，脑补了下如果当初soyo在吼了那句“为什么要演奏春日影”，然后下一秒当众人疑惑的看向她时一瞬间调整了心态，又变回往常的笑脸然后打呵呵糊弄过去，但是敏感的灯意识到了有什么不对劲的地方，这样故事线又能拉的更长了，同时soyo女士的城府程度也升了个档次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

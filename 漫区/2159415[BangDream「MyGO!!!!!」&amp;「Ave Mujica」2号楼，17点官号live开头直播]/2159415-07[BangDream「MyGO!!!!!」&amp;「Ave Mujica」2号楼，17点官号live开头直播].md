@@ -4300,3 +4300,65 @@ bg校园恋爱作品又如何，羊宮喜欢羊宮高兴，这下温度差可以
 
 我认同烤羊啊，我是因为性格和时间不会主动去烤，但是漏油的烤羊章法也只是在角色上乱拉，也没有锐评企划的大论吧
 
+
+*****
+
+####  调控人  
+##### 9400#       发表于 2024-1-21 13:03
+
+ 本帖最后由 调控人 于 2024-1-21 13:04 编辑 
+
+我没能力锐评，被恶心到了会把手上的事放一放，投入更有团魂的一边
+
+话说我怎么上传不了图呢，本来在画双主唱的，但是现在确实没心情画下去了
+
+*****
+
+####  基神的强袭自由  
+##### 9401#       发表于 2024-1-21 13:05
+
+<img src="https://img.saraba1st.com/forum/202401/21/130507m0tvfit7ow4t7i2o.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8865.PNG</strong> (799.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 13:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Arrogate  
+##### 9402#       发表于 2024-1-21 13:06
+
+其实Mujica延期已经锐评过企划了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 9403#       发表于 2024-1-21 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721184&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-21 13:05</a>
+
+—— 来自 S1Fun</blockquote>
+这身黑袍看着真不妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9404#       发表于 2024-1-21 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 9405#       发表于 2024-1-21 13:11
+
+<img src="https://p.sda1.dev/15/0765c1af032bba836c7fbd61e60dfa27/CMP_20240121131125539.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -72,3 +72,13 @@
 
 这游戏运营突出一个无流水压力--
 
+
+*****
+
+####  poor  
+##### 1436#       发表于 2024-1-21 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63718840&amp;ptid=2050204" target="_blank">eyeego 发表于 2024-1-21 08:39</a>
+打普通啊 奖励又没区别 摆就完了</blockquote>
+摆了的话根本不会打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

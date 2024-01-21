@@ -64,3 +64,16 @@ SL听boss逼叨，直接重开扣道具，纯粹恶心人，改得好
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  库德里尔  
+##### 3804#       发表于 2024-1-21 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63711554&amp;ptid=2098044" target="_blank">christiny 发表于 2024-1-20 14:21</a>
+拿比基尼时，还可以去蛇洞门口找那两个百合要。 这章就突出一个细节拉满。
+
+—— 来自 S1Fun ...</blockquote>
+啊，真的？？
+得开个简单存档去看一眼我靠 我没发现
+

@@ -10279,3 +10279,14 @@ ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="ht
 
 不是，凭什么他3-8还能碰拳？
 
+
+*****
+
+####  君往何处  
+##### 2529#       发表于 2024-1-21 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63720665&amp;ptid=2150634" target="_blank">晴岚 发表于 2024-1-21 12:19</a>
+
+不是，凭什么他3-8还能碰拳？</blockquote>
+可以看回放用他视角看拿的什么牌子，推测是涂墨点数，计数推进和计数更新
+

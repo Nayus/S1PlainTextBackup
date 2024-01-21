@@ -4195,3 +4195,42 @@ i83和政委又没不营业，拉ykn和cst漏油多少有点太逆天了，还�
 
 以人为本，愿意贴贴就继续百合贴贴，想bg那就bg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">搞来了一个bg作品联动是真的又不是假的
 
+
+*****
+
+####  acgreen  
+##### 9388#       发表于 2024-1-21 12:33
+
+你楼怎么真烤起羊来了，羊在邦真人团里确实挺打牌吧，还是上升期的年轻声优，别最后把邦青蒜了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Yukine_Chris  
+##### 9389#       发表于 2024-1-21 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63718402&amp;ptid=2159415" target="_blank">结衣小比取 发表于 2024-1-21 03:37</a>
+这个在哪里买到的？</blockquote>
+这是27号的1st live的周边
+27号去现场排队就还有
+
+—— 来自 Sony XQ-DQ44, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  月光的道标  
+##### 9390#       发表于 2024-1-21 12:35
+
+泥漏有病吧？
+烤羊就好好烤羊，还拉着角色搞起了雪上速滑，你们脑子里都是雪吗？
+泥漏共振成这样还不如沉了拉倒<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 9391#       发表于 2024-1-21 12:36
+
+狗团今年少说六七场live结果摊上个摆烂主唱拖后腿还不让人烤了吗，除非她奋发图强练歌下个月巡演突然水平直线上升，不然真不如早点切了换人算了，这样下去她自己和粉丝都痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

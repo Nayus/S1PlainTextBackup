@@ -10360,3 +10360,20 @@ ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="ht
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  秋月孝三  
+##### 2538#       发表于 2024-1-21 17:50
+
+日程上的5轮工除了全绿运气不好之外都是强配置。野上是不是开窍了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  苍蓝之枪  
+##### 2539#       发表于 2024-1-21 17:51
+
+只剩鲑坝和破船两个了，先找找有没有拿600章的机会
+

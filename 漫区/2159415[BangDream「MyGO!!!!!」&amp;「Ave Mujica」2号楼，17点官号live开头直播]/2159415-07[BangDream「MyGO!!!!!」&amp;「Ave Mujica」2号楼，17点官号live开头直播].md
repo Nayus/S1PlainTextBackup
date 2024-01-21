@@ -6740,3 +6740,131 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 
 这大发表会之前我顶多当动物朋友和音宝一样是没天赋没经验才唱不好又营业咸鱼，直到看到她一谈我心危就开始兴高采烈滔滔不绝才知道她只是纯粹的双标，你邦不配人家打牌罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  青叶假司  
+##### 9676#       发表于 2024-1-21 23:04
+
+发散归发散，人身攻击就没意思了
+
+*****
+
+####  ninokagami  
+##### 9677#       发表于 2024-1-21 23:05
+
+有些人平时烤烤就算了，戴有色眼镜毫无自觉真的难崩
+
+青木联动小齐格飞你猜她会不会也兴高采烈
+
+别太离谱
+
+*****
+
+####  青叶假司  
+##### 9678#       发表于 2024-1-21 23:05
+
+（指攻击楼友是否为老资历）
+
+*****
+
+####  PDQ4  
+##### 9679#       发表于 2024-1-21 23:05
+
+yysy是不是可以理讨mygo的下一个联动对象是小市民<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9680#       发表于 2024-1-21 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727945&amp;ptid=2159415" target="_blank">青叶假司 发表于 2024-1-21 23:02</a>
+
+祥子的领导力也好，神必魅力也罢，哪个和高傲和格差感都划不上等号，立希产生自卑感的原因也是作曲这种很具 ...</blockquote>
+別たま在這打滾了，祥子有カリスマ性是監督說的，不然誰沒事突然誇祥子這個
+
+你是覺得因為祥子有所以燈也要有嗎，是在替燈皇輸不起還是覺得祥子配不上カリスマ這詞？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑祥先不論，就白祥那樣子如果你覺得配不上カリスマ，我只會覺得你根本不理解日本人嘴裡這個詞的意思
+
+唉 祥黑 唉 比監督懂
+
+*****
+
+####  脚底心，洗则白  
+##### 9681#       发表于 2024-1-21 23:07
+
+只是、但是卡里斯玛最通俗的三次元阐述是教组啊。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 9682#       发表于 2024-1-21 23:07
+
+漏油们越来越抽象了，现在吵的内容我都没想明白怎么吵起来的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  青叶假司  
+##### 9683#       发表于 2024-1-21 23:09
+
+是啊，我从维护作品纯洁性的角度上也很资瓷霓虹自产自销，同时维护本人作为观众的老资历优越感，然而批站官号就是要大引特引，奈何
+
+*****
+
+####  Aendst  
+##### 9684#       发表于 2024-1-21 23:09
+
+打滚是不需要理由的，而且会越滚越偏离原本的区域，我想可能就是这样的原理吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9685#       发表于 2024-1-21 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728014&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-21 23:07</a>
+
+漏油们越来越抽象了，现在吵的内容我都没想明白怎么吵起来的
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+其實我也不知道，爬了下樓我只是覺得某位樓友很那個，有點忍不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 9686#       发表于 2024-1-21 23:10
+
+冷知识，少歌真的联动过邦邦
+
+*****
+
+####  ytttsuuuba  
+##### 9687#       发表于 2024-1-21 23:10
+
+问那位漏油为什么会说：官方访谈也就图一乐 呗
+
+*****
+
+####  qdhbcheekc  
+##### 9688#       发表于 2024-1-21 23:10
+
+z8烤羊是真烤羊，只烤羊，希望羊和狗好，z8闹分割的被喷一百楼<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">咋了，新注册的号没资格回你高贵的鸡楼？
+
+*****
+
+####  鲍里斯  
+##### 9689#       发表于 2024-1-21 23:11
+
+这波台长全责，要是视频出了大伙看到睡觉，谁还管什么吵不吵架<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  假药入脑不可取  
+##### 9690#       发表于 2024-1-21 23:11
+
+越给眼色越打滚个没完，建议无视。顺便如果觉得大x老师和牢x没有攻击性的话，我也不介意从今以后鸡狗十人全部推广这系列称呼，到时候别说不乐意，没有攻击性捏
+

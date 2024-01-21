@@ -1154,3 +1154,16 @@ MX-5从初代到现在就没有硬顶的。</blockquote>
 
 大家都喜欢
 
+
+*****
+
+####  logiccat  
+##### 113#       发表于 2024-1-21 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686476&amp;ptid=2168461" target="_blank">杨千fa单推人 发表于 2024-1-18 10:44</a>
+
+但是尺寸大还重
+
+一点也不小。。。。。。。</blockquote>
+电车尺寸小不了，底下一块电池撑着呢……
+

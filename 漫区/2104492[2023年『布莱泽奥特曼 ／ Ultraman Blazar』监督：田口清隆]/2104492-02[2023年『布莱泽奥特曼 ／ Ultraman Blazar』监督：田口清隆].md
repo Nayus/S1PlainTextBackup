@@ -1719,3 +1719,11 @@ SKaRD的创立者，发掘弦人当队长的人物。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">螺旋叙事曲的地位下降太多了
 
+
+*****
+
+####  Sleipnirω  
+##### 1754#       发表于 2024-1-21 15:47
+
+所以惠美爸和炎龙的坑也没填
+

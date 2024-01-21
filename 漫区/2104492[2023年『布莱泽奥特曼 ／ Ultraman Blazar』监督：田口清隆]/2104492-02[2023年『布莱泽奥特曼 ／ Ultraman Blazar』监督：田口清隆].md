@@ -1711,3 +1711,11 @@ SKaRD的创立者，发掘弦人当队长的人物。
 也许是传达到了二人为布莱泽加油的心情，弦人左手无名指上的结婚戒指和左腕上纯亲手制作的手链各自寄宿着的光芒相互呼应，布莱泽的左臂也积蓄能量，爆发出“布莱泽光线”，终于将瓦拉隆击败赢得了胜利。
 <img src="https://p.sda1.dev/15/17bc901d7f47cb89e1984c1dddddcbc5/025.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 1753#       发表于 2024-1-21 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">螺旋叙事曲的地位下降太多了
+

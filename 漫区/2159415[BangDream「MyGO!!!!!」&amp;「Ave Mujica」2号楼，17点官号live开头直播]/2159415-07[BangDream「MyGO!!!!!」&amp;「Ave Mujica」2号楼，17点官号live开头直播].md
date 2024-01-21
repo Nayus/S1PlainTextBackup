@@ -4234,3 +4234,47 @@ i83和政委又没不营业，拉ykn和cst漏油多少有点太逆天了，还�
 
 狗团今年少说六七场live结果摊上个摆烂主唱拖后腿还不让人烤了吗，除非她奋发图强练歌下个月巡演突然水平直线上升，不然真不如早点切了换人算了，这样下去她自己和粉丝都痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 9392#       发表于 2024-1-21 12:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊宮还是太真诚了，我心危营业和邦营业温度差这么大能直接摆脸上，其他人有这样的勇气和自信吗
+
+可能就是这种真诚打动了武士道，资源滚滚来，联动也都可以联动
+
+bg校园恋爱作品又如何，羊宮喜欢羊宮高兴，这下温度差可以更明显了
+
+*****
+
+####  6030sylar  
+##### 9393#       发表于 2024-1-21 12:45
+
+广州ayasa这边好多邦邦人
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  icoywt  
+##### 9394#       发表于 2024-1-21 12:46
+
+28号mygo是参加リスアニ！LIVE 2024的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">27号鸡团1st成员没事就发练习照，狗团到现在却啥也没有，这是为什么呢
+
+*****
+
+####  调控人  
+##### 9395#       发表于 2024-1-21 12:50
+
+早说了看管人的不准烧烤，营业温度差我也恶心，但烧烤水平一直在揪着联动bg动画的这种程度给bang动画进行滑坡也是挺没意思的
+
+*****
+
+####  nebulanoby  
+##### 9396#       发表于 2024-1-21 12:52
+
+动物朋友现在是给别的什么作品做一些正常宣传，和对待邦邦的态度一对比都能变成烧烤料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说羊打牌是嘲讽，她真大牌就不说她打牌了，某些漏油别太过分，单算真人团的00后里鼻老师比她刷番多得多了，算上二偶鼓子也不会比动物朋友差；要是再拉上夕阳红算的话<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……
+

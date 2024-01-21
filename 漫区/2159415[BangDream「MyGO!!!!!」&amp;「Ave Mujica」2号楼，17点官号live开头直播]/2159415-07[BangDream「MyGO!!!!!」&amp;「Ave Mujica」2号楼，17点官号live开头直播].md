@@ -6059,3 +6059,173 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 睦，初华也没 金 钱 交易吧，再来个灯和素世，这去掉金钱关系已经进去多少人了，没什么好质疑的吧。 ...</blockquote>
 你这是什么**<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 9601#       发表于 2024-1-21 22:22
+
+好抽象的カリスマ，都可以不是人了。你要说素未谋面的TGW物产老总，那我觉得大概率是有カリスマ的，能干到这个位置没有カリスマ那可太没有邦邦梦想了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按照这位漏油定义，是不是可以讨论老邦里谁最没有カリスマ。我首先提名丸山彩，场外场内全是彩黑，千圣一开始都想润还是彩彩靠着努力才感动，太没有カリスマ了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 9602#       发表于 2024-1-21 22:22
+
+不是深度鸡狗友，求问漏油出了多少个访谈，有那些要点呢
+
+*****
+
+####  青叶假司  
+##### 9603#       发表于 2024-1-21 22:24
+
+比起楼里论短长，皇珈骑士请左转讨伐批站官号下面那些不够尊重的只会玩贫乏梗的一般通过萌萌民，，，
+
+*****
+
+####  jerryoq1  
+##### 9604#       发表于 2024-1-21 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727409&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 22:17</a>
+
+我觉得祥子在部分动画观众这祛魅挺彻底的？都一口一个大祥的
+
+  -- 来自 能看大图的 Stage1官方 Android客 ...</blockquote>
+确实 箱黑多的地方已经从大祥变成牢祥了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9605#       发表于 2024-1-21 22:25
+
+和初华当然没有，因为真正问题在于初华所属的事务所
+
+*****
+
+####  Aendst  
+##### 9606#       发表于 2024-1-21 22:25
+
+大祥也是黑称吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，角色黑别太爱了，有心思取这么多黑称的
+
+*****
+
+####  青叶假司  
+##### 9607#       发表于 2024-1-21 22:26
+
+虚拟空一格，歼敌一亿虎踞母鸡卡
+
+*****
+
+####  PDQ4  
+##### 9608#       发表于 2024-1-21 22:27
+
+原来S1还有人在乎B站萌萌人评价，这比在乎贴吧nga评价更哈人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 9609#       发表于 2024-1-21 22:27
+
+为什么卡里斯玛还要用日文写<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">深怕漏油看懂吗
+
+*****
+
+####  御幸一也  
+##### 9610#       发表于 2024-1-21 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721401&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-21 13:24</a>
+
+你楼确实已经被锐评过了
+
+而且母鸡卡定档明年那一波，国内烂炒材料都是你楼传出去的，想低调做人没 ...</blockquote>
+唉 怎麼又爛炒了，綾奈沒有退追監督嗎，綾奈有宣傳劇場版嗎，真覺得這完全沒問題多少有點鴕鳥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+當然啦，滑坡到改劇本是有點陰謀論就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+欸不對 我記得這位樓友和我想法是一致的，那沒事了，我只是想藉機再說一次
+
+*****
+
+####  ytttsuuuba  
+##### 9611#       发表于 2024-1-21 22:28
+
+牢祥又是什么梗，怎么这么多花里胡哨的。
+
+*****
+
+####  青叶假司  
+##### 9612#       发表于 2024-1-21 22:28
+
+他知道你能看懂，他也知道你知道他想让你看不懂，可他还是怕你看懂
+
+*****
+
+####  PDQ4  
+##### 9613#       发表于 2024-1-21 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">因为没文化不会写英文，直接用监督访谈原文肯定就不会错。
+
+*****
+
+####  ddy2811  
+##### 9614#       发表于 2024-1-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727467&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-21 22:22</a>
+
+好抽象的カリスマ，都可以不是人了。你要说素未谋面的TGW物产老总，那我觉得大概率是有カリスマ的，能干到 ...</blockquote>
+感召力发挥的方式有很多，不是所有的努力和坚韧都能打动人的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 9615#       发表于 2024-1-21 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">没有恶意，如果冒犯到漏油了我道歉
+
+*****
+
+####  相坂君  
+##### 9616#       发表于 2024-1-21 22:31
+
+唉，大祥
+
+让我看看你的真面目.jpg
+(103.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 22:31 上传
+
+<img src="https://img.saraba1st.com/forum/202401/21/223137rsenccccjfehasc4.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 9617#       发表于 2024-1-21 22:32
+
+日文复制粘贴访谈原文就好了，强行写英文写错了会很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 9618#       发表于 2024-1-21 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727438&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-01-21 22:19:47</a>
+1号楼发过的，结合“人偶”以及放在娱乐室的钢琴，说明祥子一直觉得自己的感受和热爱并没有受到重视，只 ...</blockquote>祥子的人偶爱好从小就有啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

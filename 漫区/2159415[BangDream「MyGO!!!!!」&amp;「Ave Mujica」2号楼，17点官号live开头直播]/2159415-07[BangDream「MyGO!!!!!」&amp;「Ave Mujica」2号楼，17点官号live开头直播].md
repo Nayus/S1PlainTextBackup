@@ -4789,3 +4789,27 @@ pjsk：？
 
 [假如那谁受邀参加国内漫展](https://tieba.baidu.com/p/8869550894)
 
+
+*****
+
+####  Kasroz  
+##### 9455#       发表于 2024-1-21 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63723319&amp;ptid=2159415" target="_blank">阿姆罗二世 发表于 2024-1-21 16:41</a>
+真交往了🐏会不会被吓的降板</blockquote>
+🐑又不是没配过女同<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 9456#       发表于 2024-1-21 17:02
+
+mujica小短片里的声优一个是远野光，另一个是谁？我记得之前在哪出现过短片的cast
+
+*****
+
+####  DarthAka  
+##### 9457#       发表于 2024-1-21 17:02
+
+邦邦再峒还能峒得过转天
+

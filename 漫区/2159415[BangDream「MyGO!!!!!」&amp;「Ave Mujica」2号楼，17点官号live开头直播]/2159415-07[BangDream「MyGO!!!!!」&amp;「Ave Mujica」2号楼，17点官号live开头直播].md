@@ -7348,3 +7348,166 @@ sp已经亖了现在没发还挺正常吧。而且羊还是只有sp的底边的�
 
 事业民现在的最佳选择是无脑爆米，毕竟动物朋友的毛出在动物朋友身上，武士道只看脸和数字 你说没钱？没钱还对营业挑三拣四的
 
+
+*****
+
+####  PDQ4  
+##### 9742#       发表于 2024-1-21 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728262&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-1-21 23:28</a>
+
+睦祥果然是寓意好的名字，什么楼啊阁啊店的都挺合适的</blockquote>
+所以我坚信这两个名字是一起取的，指腹为婚又一力争，媒人是绫奈独角兽。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9743#       发表于 2024-1-21 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728278&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-21 23:29</a>
+
+话说现在NGA是不是禁止烤羊了
+
+唉，柿本广大，唉，MGGM你说这把是不是台长打得有问题</blockquote>
+原來如此呀
+
+難怪那個打滾的樓友看你S1不爽，你S1怎麼還可以烤羊！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 9744#       发表于 2024-1-21 23:34
+
+还有wsd的事业民吗？不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 9745#       发表于 2024-1-21 23:34
+
+看下来真感觉有点智械危机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+该弹个人机验证界面点点什么摩托车人行道红绿灯了
+
+*****
+
+####  PDQ4  
+##### 9746#       发表于 2024-1-21 23:36
+
+联想到wb那个到处乱蹭的罗伯特了，难道这也是在养AI吗，坏了漏油都成材料了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9747#       发表于 2024-1-21 23:36
+
+是没有，可是武士道觉得有所谓，想看小偶像贴贴就得受着，或者转型lofter两耳不闻窗外事自己写同人
+
+*****
+
+####  狐式重型坦克  
+##### 9748#       发表于 2024-1-21 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丸山彩人机验证
+
+*****
+
+####  Aendst  
+##### 9749#       发表于 2024-1-21 23:37
+
+漏油可以多聊点假药，这样过不了多久就会自动练成新的假药了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定会提供一点新思路
+
+*****
+
+####  ninokagami  
+##### 9750#       发表于 2024-1-21 23:37
+
+有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kosou  
+##### 9751#       发表于 2024-1-21 23:37
+
+超话引战bot是吧 专门来泥漏挑事
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  CyDiablo  
+##### 9752#       发表于 2024-1-21 23:39
+
+那得看单个乐队的事业民算不算武士道事业民<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 9753#       发表于 2024-1-21 23:39
+
+真ai的话记得把睦祥指腹为婚这块缝上，这对我真的很重要<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 9754#       发表于 2024-1-21 23:40
+
+其实今天是觉得灯睦关系性或许有发展的可能，来问问鸡狗友意见的。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 9755#       发表于 2024-1-21 23:40
+
+丸山彩验证可还行，感觉该根据发色分类了，记得在哪看的一个伊芙小白也容易幻视。你邦卡面就是干这个的料<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 9756#       发表于 2024-1-21 23:41
+
+那么我要一个初祥幼年约定婚约可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这对我也很重要
+
+*****
+
+####  PDQ4  
+##### 9757#       发表于 2024-1-21 23:42
+
+灯睦俩能动性都太低了，体感不符合你邦CP基调，想拉倒是可以拉，假药无论游戏还是动画都有得造。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 9758#       发表于 2024-1-21 23:42
+
+我是all睦all，带上睦宝就行我基本不挑饭吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9759#       发表于 2024-1-21 23:42
+
+吵完了來看點帥氣的三角初華<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/21/234240gbabkp65mx362c0x.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_엔엔🎀 ポォロ(@this_is_nn)_20240120-150714_1748723868993212909_photo.jpg</strong> (769.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 23:42 上传
+
+[https://twitter.com/this_is_nn/status/1748723868993212909](https://twitter.com/this_is_nn/status/1748723868993212909)
+

@@ -4427,3 +4427,57 @@ pjsk：？
 
 决定转身去画穿裤子的小祥了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  调控人  
+##### 9414#       发表于 2024-1-21 13:23
+
+在说前两页的事啊，别扯那么远，潜水这么久其他的我也不关心
+
+*****
+
+####  江口夕  
+##### 9415#       发表于 2024-1-21 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你楼已经复读过好几次相同的内容了。来个史官总结一下避免轮回
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  nebulanoby  
+##### 9416#       发表于 2024-1-21 13:24
+
+你楼确实已经被锐评过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而且母鸡卡定档明年那一波，国内烂炒材料都是你楼传出去的，想低调做人没机会力
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 9417#       发表于 2024-1-21 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还是更推荐从一号楼开始爬
+
+*****
+
+####  6030sylar  
+##### 9418#       发表于 2024-1-21 13:28
+
+泥漏烤羊又不够火候，骂wsd还有人洗地，在外面看来是不是楼里都是死忠粉
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ddy2811  
+##### 9419#       发表于 2024-1-21 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721184&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-21 13:05</a>
+
+—— 来自 S1Fun</blockquote>
+真成邪教团体了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

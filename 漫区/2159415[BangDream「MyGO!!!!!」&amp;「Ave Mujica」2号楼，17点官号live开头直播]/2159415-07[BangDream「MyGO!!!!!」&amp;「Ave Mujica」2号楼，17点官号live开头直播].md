@@ -5387,3 +5387,131 @@ s1你说贴吧和b站，是不是走错地方了？
 
 2000舰了
 
+
+*****
+
+####  PDQ4  
+##### 9518#       发表于 2024-1-21 21:23
+
+漏油理解的领导力是什么，难道是不需要实绩才干让人吸一口就神魂颠倒的冰吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除，角色理解自由心证。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9519#       发表于 2024-1-21 21:23
+
+狗团动画要真是拉胯到需要场外情报找补 那给你们加塞几个剧场版还真不冤枉
+
+*****
+
+####  江口夕  
+##### 9520#       发表于 2024-1-21 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63726607&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-21 21:11</a>
+灯招人喜欢不是因为是小动物吗，难道漏油说把家宠当主子是认真的。
+
+要是真灯皇有カリスマ立希还能当实质队 ...</blockquote>
+肥玛丽：勿cue
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9521#       发表于 2024-1-21 21:24
+
+2000舰一到准时下班，真有你的
+
+*****
+
+####  ytttsuuuba  
+##### 9522#       发表于 2024-1-21 21:24
+
+场外情报就是很重要啊，没有场外情报很多信息就是模棱两可怎么解释都行。
+
+*****
+
+####  Aendst  
+##### 9523#       发表于 2024-1-21 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">制作组哪有我们不囫囵吞枣但是看个乐就行了的人懂
+
+*****
+
+####  青叶假司  
+##### 9524#       发表于 2024-1-21 21:26
+
+狗团拍到现在讲究的不是一个模棱两可吗，还是你们都是大祥肚子里的蛔虫搞清楚为什么退队了？
+
+*****
+
+####  ytttsuuuba  
+##### 9525#       发表于 2024-1-21 21:28
+
+笑死，认真看了每篇官方访谈的竟然还成了囫囵吞枣了，那访谈都不看就按照自己脑补去随意解释并当成真的也不管和官方矛不矛盾的算什么。
+
+*****
+
+####  青叶假司  
+##### 9526#       发表于 2024-1-21 21:28
+
+一般观众是没有制作方懂，但牛逼的观众是制作方没拍出来的东西他也懂
+
+*****
+
+####  Aendst  
+##### 9527#       发表于 2024-1-21 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉……不如灯皇chrisma、访谈图一乐蛔虫
+
+漏油都要官方消息佐证，这位倒是可好，直接在灯皇肚子里转一圈就能得出比制作组更懂的正解了
+
+*****
+
+####  ytttsuuuba  
+##### 9528#       发表于 2024-1-21 21:29
+
+牛逼的观众：官方访谈也就图一乐
+
+*****
+
+####  -LYRE-  
+##### 9529#       发表于 2024-1-21 21:29
+
+【访谈的东西看个乐就行了】那可太对了
+一句话可以直接把灯皇写词天才都给否掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+毕竟邦的“天才”靠的就是钦定，光看剧情表现的话可以说是人均天才了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9530#       发表于 2024-1-21 21:29
+
+你都图一乐了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 9531#       发表于 2024-1-21 21:31
+
+退队理由当然模棱两可，所以灯的カリスマ是怎么看出来的。都说访谈是对答案，不过我对错了的地方会接受设定，漏油对错的地方选择开除官方。
+
+这种心态我确实该学习一下，有助于身心健康<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9532#       发表于 2024-1-21 21:31
+
+天才不属于场外情报，因为是大祥台词里直接给出了，你抬杠也得按照基本法
+
+*****
+
+####  -LYRE-  
+##### 9533#       发表于 2024-1-21 21:32
+
+最牛逼的观众当然得是把官方直说的东西当不存在、只能图一乐的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+对官方没说的内容有自己的看法的观众，哪配得上碰瓷“我的理解＞官方”的观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

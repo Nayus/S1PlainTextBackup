@@ -5713,3 +5713,27 @@ miko醒了更新今天的联动直播内容了，竟然是半年前征集的那�
 
 公开吗？
 
+
+*****
+
+####  holoan  
+##### 8046#         楼主| 发表于 2024-1-21 21:29
+
+<img src="https://img.saraba1st.com/forum/202401/21/212650s26kyl82k3y8u3yd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 21:26 上传
+
+<img src="https://img.saraba1st.com/forum/202401/21/212841lixnyrr6yyxf4rfy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 21:28 上传
+
+奇迹般的两个视频点击量一致
+

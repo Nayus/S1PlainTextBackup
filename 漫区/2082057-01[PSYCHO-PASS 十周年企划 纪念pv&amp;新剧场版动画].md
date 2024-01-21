@@ -2406,3 +2406,11 @@ S1E23《血之褒赏》，看见大叔殉职，kino血肉模糊的惨样，狡�
 
 当初是你要分开，分开就分开~
 
+
+*****
+
+####  一绪  
+##### 233#       发表于 2024-1-21 16:07
+
+看完有个疑问，最后救朱爷的时候刻意让狗哥扔了dominator用左轮，有什么用意吗，为了让狗哥可以不受拘束执行正义吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -5074,3 +5074,14 @@ pico新作请一定要来一集祥子和真白的互动……
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  acgreen  
+##### 9483#       发表于 2024-1-21 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63726098&amp;ptid=2159415" target="_blank">NODY 发表于 2024-01-21 20:30:55</a>
+可能在设定里灯的唱功本身没什么毛病，需要解决的主要是没经验和怯场唱不出声的问题，毕竟就算是黑化后的祥 ...</blockquote>灯以前有没有声乐基础没说，假定没有，经过一个月的课外兴趣小组练习，唱功就已经没毛病了。这么看来祥子发掘主唱的能力比chuchu还高，甚至高不少，毕竟连听音都不用。丰川小姐，你就是天生的制作人啊！
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

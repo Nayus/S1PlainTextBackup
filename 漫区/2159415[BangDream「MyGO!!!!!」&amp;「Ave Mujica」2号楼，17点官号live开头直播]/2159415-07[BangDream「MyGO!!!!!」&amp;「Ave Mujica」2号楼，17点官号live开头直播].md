@@ -5052,3 +5052,25 @@ pico新作请一定要来一集祥子和真白的互动……
 
 可能在设定里灯的唱功本身没什么毛病，需要解决的主要是没经验和怯场唱不出声的问题，毕竟就算是黑化后的祥子看到灯碧天伴走唱出来以后也挺满意的样子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安洁莉娜  
+##### 9481#       发表于 2024-1-21 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63725916&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 20:17</a>
+
+可以看立希讲的话“今天也是一直在等祥子”“灯是在等你啊”，祥子不在灯和乐队是停摆的
+
+  -- 来自 能手机 ...</blockquote>
+编辑
+
+*****
+
+####  acgreen  
+##### 9482#       发表于 2024-1-21 20:40
+
+说祥子重视歌词的共鸣，但是我感觉不出祥子和人类歌有什么联系。我觉得这里体现的反而是祥子的感受性和charisma性。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

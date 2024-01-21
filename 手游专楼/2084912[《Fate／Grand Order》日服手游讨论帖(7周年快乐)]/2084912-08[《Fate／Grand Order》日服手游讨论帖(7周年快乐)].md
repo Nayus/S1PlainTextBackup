@@ -6087,3 +6087,13 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 应该说是同分异构体佐佐木小次郎吧？FSR和男武藏决斗的小次郎、FGO下总国没有和男武藏决斗的小次郎，都是 ...</blockquote>
 小次郎分身比烟雾镜还多
 
+
+*****
+
+####  beer  
+##### 11071#       发表于 2024-1-21 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63714944&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-1-20 19:42</a>
+这迎击战比爬塔还闹心到底哪个鬼才想出来的烂活，就一个support不让上辅助，换不了目标只能一个个慢慢磨， ...</blockquote>
+明天可能搞逆属性单挑
+

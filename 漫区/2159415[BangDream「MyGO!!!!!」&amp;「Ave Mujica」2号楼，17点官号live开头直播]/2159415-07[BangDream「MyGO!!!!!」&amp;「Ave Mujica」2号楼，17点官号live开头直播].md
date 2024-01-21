@@ -7619,3 +7619,84 @@ z8烤羊是真烤羊，只烤羊，希望羊和狗好，z8闹分割的被喷一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灯睦的互动模式突然想起了一个化石级段子：把绫波丽和长门有希关在一个房间里谁会先出声
 
+
+*****
+
+####  穗波殊  
+##### 9773#       发表于 2024-1-21 23:53
+
+不过如果灯睦实在没人做我就自己想一点吧…
+
+*****
+
+####  青叶假司  
+##### 9774#       发表于 2024-1-21 23:53
+
+<blockquote>穗波殊 发表于 2024-1-21 23:52
+以前写过一篇爱灯对小学生文笔来说写作太难了，我还是适合当要饭的</blockquote>
+平台id？
+
+*****
+
+####  Aendst  
+##### 9775#       发表于 2024-1-21 23:54
+
+睦确实有点电波三无，感觉复古<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">续篇能不能尽快成为团宠，这对我很重要
+
+*****
+
+####  PDQ4  
+##### 9776#       发表于 2024-1-21 23:56
+
+希望动画能逆输入神蠢互动，无论是祈祷睦还是小跑睦都很喜欢。从故事性和个人私心来讲我觉得黑色生日和神蠢里有一首会在动画里演<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 9777#       发表于 2024-1-21 23:56
+
+如果把灯和睦关进不sox就没法打开的房间，这俩是否只能在这房间里过一辈子了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Arteryesrerday  
+##### 9778#       发表于 2024-1-21 23:56
+
+都是0怎么过日子，能不能引进一些1
+
+*****
+
+####  Arteryesrerday  
+##### 9779#       发表于 2024-1-21 23:57
+
+两个一个一个不吱声同人文要怎么写
+
+*****
+
+####  PDQ4  
+##### 9780#       发表于 2024-1-21 23:57
+
+大概指望祥子和立希破门而入比较现实。可能kkr神兵天降概率也比这俩动起来更高。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 9781#       发表于 2024-1-21 23:58
+
+所以不好写啊，用比较流行的说法就是没有张力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 9782#       发表于 2024-1-21 23:58
+
+用诗歌代替情书<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">感觉都是比较电波的应该用电波一点的沟通方式
+
+*****
+
+####  Arteryesrerday  
+##### 9783#       发表于 2024-1-22 00:02
+
+纯路人觉得灯睦祥有点未来可期，萌萌的小三只
+

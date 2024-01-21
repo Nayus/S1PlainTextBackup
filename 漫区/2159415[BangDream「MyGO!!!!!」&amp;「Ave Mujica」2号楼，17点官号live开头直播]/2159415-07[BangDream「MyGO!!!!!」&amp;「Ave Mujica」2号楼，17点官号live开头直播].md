@@ -4721,3 +4721,20 @@ pjsk：？
 武士道就这么放任羊摆烂我是不太理解的，还是在今年live有那么多场的前提下，明明隔壁dj遇到摆烂的就直接换 ...</blockquote>
 难道不是越摆越捧吗，去联动个我心危除了讨好羊还有什么意义
 
+
+*****
+
+####  CyDiablo  
+##### 9447#       发表于 2024-1-21 15:24
+
+你邦这几年联动的作品很杂，突出一个随心所欲<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuyin589  
+##### 9448#       发表于 2024-1-21 15:25
+
+烤羊归烤羊 还是别涉及二次元角色了 毕竟你邦不管怎么说也是轻百企划 聊bg还是太膈应人了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

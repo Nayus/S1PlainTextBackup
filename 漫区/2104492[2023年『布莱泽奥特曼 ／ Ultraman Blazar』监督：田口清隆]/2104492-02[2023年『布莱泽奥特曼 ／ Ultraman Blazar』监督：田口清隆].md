@@ -1810,3 +1810,14 @@ B国放弃了抵抗，A国放心了就撤回了舰队？
 
 其实按贴吧里说的那样 设定成之前实验开黑洞误开到v99星球了比较顺 这样在V99视角就是炸了自己飞船的外星人要来侵略自己了
 
+
+*****
+
+####  DARKGRAY  
+##### 1762#       发表于 2024-1-21 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727275&amp;ptid=2104492" target="_blank">renkan119 发表于 2024-1-21 22:05</a>
+
+其实按贴吧里说的那样 设定成之前实验开黑洞误开到v99星球了比较顺 这样在V99视角就是炸了自己飞船的外星人 ...</blockquote>
+也用不着，反正是偷人家科技开的，找个（甚至剧外都可以）地方补一句人家检测到地球在开怀疑想搞事就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

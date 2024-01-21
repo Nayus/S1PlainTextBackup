@@ -6229,3 +6229,111 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 9619#       发表于 2024-1-21 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63726543&amp;ptid=2159415" target="_blank">青叶假司 发表于 2024-1-21 21:06</a>
+
+按动画其实灯皇也有chrisma的 只不过常态就收敛为羽丘的萌物了</blockquote>
+你真的知道日本人說的カリスマ是什麼意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  青叶假司  
+##### 9620#       发表于 2024-1-21 22:38
+
+为了忏悔替动物朋友和灯皇洗地的罪恶，我决定更换大祥老师的头像以表洗心革面
+
+*****
+
+####  acgreen  
+##### 9621#       发表于 2024-1-21 22:38
+
+所以说真别烤羊，特别是你楼都有祥楼鸡楼帽子了。但是我必须说一句，个人观察你楼鸡友真不大烤羊，羊浓度和烤羊很多是狗友贡献的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 9622#       发表于 2024-1-21 22:38
+
+草，原来误解了，太对不起这位漏油了，并没有在说灯有カリスマ。可是神圣油这种东西也太不可爱了，驳回。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9623#       发表于 2024-1-21 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63726678&amp;ptid=2159415" target="_blank">青叶假司 发表于 2024-1-21 21:17</a>
+
+访谈的东西看个乐就行了 无论贴吧还是批站的共识就是最多用来对答案</blockquote>
+厲害，樓友比綾奈和監督還要懂mygo喔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9624#       发表于 2024-1-21 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63726705&amp;ptid=2159415" target="_blank">青叶假司 发表于 2024-1-21 21:19</a>
+
+较真的话大祥结成鸡团的过程和领导魅力更不相干 初华和睦头是召之即来，海铃是雇佣兵，喵梦是大人的事情， ...</blockquote>
+和领导魅力更不相干
+
+然後監督訪談直言祥子カリスマ 
+
+唉，還是樓友比監督更懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9625#       发表于 2024-1-21 22:39
+
+可能他觉得最懂mygo的是mggm吧。。。。。你别说mggm还真的可能懂一些（指三次元团）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9626#       发表于 2024-1-21 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727651&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 22:38</a>
+
+所以说真别烤羊，特别是你楼都有祥楼鸡楼帽子了。但是我必须说一句，个人观察你楼鸡友真不大烤羊，羊浓度和 ...</blockquote>
+说到底mujica推根本不关心羊宮，真的愿意烤羊的都是关注羊宮和mygo这支乐队的
+
+这也是不分楼的情况下必然会出现的话题
+
+*****
+
+####  PDQ4  
+##### 9627#       发表于 2024-1-21 22:41
+
+都在祥厨楼混了，外面人肯定不信你狗厨浓度，可以发展出一滴鸡/祥原则了。哦不对，现在已经被冠名祥孝楼了，z8都没有羊孝吧的待遇，泥漏真是急先锋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9628#       发表于 2024-1-21 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727651&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 22:38</a>
+
+所以说真别烤羊，特别是你楼都有祥楼鸡楼帽子了。但是我必须说一句，个人观察你楼鸡友真不大烤羊，羊浓度和 ...</blockquote>
+鸡厨确实是冤枉了，不关注狗的三次元动向一般也不会太清楚动物朋友的双标和摆烂有多离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 9629#       发表于 2024-1-21 22:41
+
+嗯…从领导力这方面我觉得灯的确没有什么卡里斯玛。mygo队长毕竟是立希，灯没什么领袖的感觉。而且灯在前期的确是对c团狗团的炸团没什么贡献的。不过卡里斯玛这个词被韦伯挑选为权威类型后，有了“引发奇迹的力量”这层意思。从这个角度来说我觉得灯是有一点卡里斯玛的。
+
+*****
+
+####  ytttsuuuba  
+##### 9630#       发表于 2024-1-21 22:42
+
+怎么用到洗地这词了吗，有谁骂灯了吗，不是就反驳了一下觉得灯有カリスマ性这个观点吗，不是访谈没提的问题，我是真的觉得动画里的灯并不适合这个词，动画里的灯是能不自觉地吸引别人，同学都会不自觉的觉得她可爱，是作词的天才，沉浸在自己世界的天才，这些我都能看出来，但真和カリスマ性没太大关系。
+

@@ -1129,3 +1129,20 @@ MX-5从初代到现在就没有硬顶的。</blockquote>
 纯搞子</blockquote>
 比起模拟v12发动机声浪，我更想要模拟科幻电影里那种个人小型飞船的声音。。。
 
+
+*****
+
+####  silverfoxz  
+##### 110#         楼主| 发表于 2024-1-21 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63722541&amp;ptid=2168461" target="_blank">体制 发表于 2024-1-21 15:29</a>
+比起模拟v12发动机声浪，我更想要模拟科幻电影里那种个人小型飞船的声音。。。 ...</blockquote>
+这个还真有的，可以选电子音浪的
+
+*****
+
+####  wohappy  
+##### 111#       发表于 2024-1-21 22:53
+
+去掉剪刀门，价格能低到25万么？
+

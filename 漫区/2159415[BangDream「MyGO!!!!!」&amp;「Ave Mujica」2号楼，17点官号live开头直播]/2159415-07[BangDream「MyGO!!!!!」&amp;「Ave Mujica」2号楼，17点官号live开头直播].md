@@ -6337,3 +6337,179 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 
 怎么用到洗地这词了吗，有谁骂灯了吗，不是就反驳了一下觉得灯有カリスマ性这个观点吗，不是访谈没提的问题，我是真的觉得动画里的灯并不适合这个词，动画里的灯是能不自觉地吸引别人，同学都会不自觉的觉得她可爱，是作词的天才，沉浸在自己世界的天才，这些我都能看出来，但真和カリスマ性没太大关系。
 
+
+*****
+
+####  青叶假司  
+##### 9631#       发表于 2024-1-21 22:43
+
+按理来说是很不必要的，而且浅度观众也无关心羊宫妃那，但在楼友能替小祥树敌一个三次元靶子的奇妙深刻情况下就很必要了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9632#       发表于 2024-1-21 22:44
+
+树敌还行，漏油的滑坡能力还是要向他学习一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 9633#       发表于 2024-1-21 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这又是在吵啥
+
+*****
+
+####  NODY  
+##### 9634#       发表于 2024-1-21 22:44
+
+卡里斯马其实就是二次元形容人格魅力型立德型角色的常用词而已，不少少年漫或者二偶企划都会用到，也没必要引申到三次元字典含义那么麻烦
+
+*****
+
+####  ddy2811  
+##### 9635#       发表于 2024-1-21 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727584&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 22:32</a>
+
+祥子的人偶爱好从小就有啊
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+会如此摆放出来应该是有意义的，而且那个不一定是“爱好”
+
+*****
+
+####  御幸一也  
+##### 9636#       发表于 2024-1-21 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63726787&amp;ptid=2159415" target="_blank">青叶假司 发表于 2024-1-21 21:26</a>
+
+狗团拍到现在讲究的不是一个模棱两可吗，还是你们都是大祥肚子里的蛔虫搞清楚为什么退队了？ ...</blockquote>
+怎麼了，是不是監督和綾奈說的話太不合這位樓友胃口了，你就這麼看不慣S1的大家認真看訪談嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+模棱兩可還成講究了，對不起哦好像都有正確答案呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9637#       发表于 2024-1-21 22:46
+
+主要是漏油没有这么自恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会把破防夸张成被树敌
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9638#       发表于 2024-1-21 22:47
+
+哪怕在你楼已经足够多样性的前提下（包括但不限于对着母鸡卡发癫的，对着祥子发癫的，对着祥子的cp发癫的，看同人的买谷子的打游戏的看剧情的）这位漏油的发言依然给我一种来到沈阳大街的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9639#       发表于 2024-1-21 22:47
+
+物种多样性，很神奇吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 9640#       发表于 2024-1-21 22:47
+
+漏油反驳一下灯有卡里斯马性，你就直接转移靶子说官方访谈钦定的祥子的卡里斯马性是扯淡，难评。
+
+*****
+
+####  青叶假司  
+##### 9641#       发表于 2024-1-21 22:48
+
+分楼看起来很美，但是不妨碍视奸鸡/狗楼回来汇报情况再接着仇恨教育，所以该吵还是会吵起来的
+
+*****
+
+####  PDQ4  
+##### 9642#       发表于 2024-1-21 22:48
+
+人家要是觉得我们这群喊灯没有カリスマ的都是灯黑那就说得通。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我觉得灯的萌物性和激发母性还是很明显的，摆烂后的爽世都对灯有母性，13集的撒娇更是有了其母的影子。设定里的羽毛石头收集癖，团宠性质更是符合小动物属性，按照邦邦时间线可能有领导力至少再等10年吧，迟早会成长的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 9643#       发表于 2024-1-21 22:49
+
+浅层观众真的不关心吗？你之前说的在批站官号下面那些不够尊重的只会玩贫乏梗的一般通过萌萌民也在刷唉，打牌，建议你也一起讨伐一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 9644#       发表于 2024-1-21 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727537&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-21 22:28</a>
+
+唉 怎麼又爛炒了，綾奈沒有退追監督嗎，綾奈有宣傳劇場版嗎，真覺得這完全沒問題多少有點鴕鳥
+
+當 ...</blockquote>
+毕竟是当事人没有亲口承认的东西，想不到有什么适合的词了，暂且拿这词来用吧
+
+反正已经丢过脸了（指暴露我是文盲）
+
+*****
+
+####  ddy2811  
+##### 9645#       发表于 2024-1-21 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727651&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 22:38</a>
+
+所以说真别烤羊，特别是你楼都有祥楼鸡楼帽子了。但是我必须说一句，个人观察你楼鸡友真不大烤羊，羊浓度和 ...</blockquote>
+羊的离谱不需要是谁家的厨就能看出来，如果真的没什么的话，紫吧是扩散不到哪里去的
+
+*****
+
+####  基神的强袭自由  
+##### 9646#       发表于 2024-1-21 22:49
+
+<img src="https://img.saraba1st.com/forum/202401/21/224917myssojyye0sm9sxe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 22:49 上传
+
+#查询カリスマ数值#
+
+*****
+
+####  青叶假司  
+##### 9647#       发表于 2024-1-21 22:51
+
+你要说激发母性的层面上，剩下九个人加起来比不上祥子，懂不懂祥0嫂的含金量啊
+
+*****
+
+####  ytttsuuuba  
+##### 9648#       发表于 2024-1-21 22:51
+
+树敌可还行，还是你能滑坡
+
+*****
+
+####  御幸一也  
+##### 9649#       发表于 2024-1-21 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727651&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 22:38</a>
+
+所以说真别烤羊，特别是你楼都有祥楼鸡楼帽子了。但是我必须说一句，个人观察你楼鸡友真不大烤羊，羊浓度和 ...</blockquote>
+有一說一，無關心好吧，而且我轉天民對她印象很好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只是沒想到她在邦多利這樣子的
+
+*****
+
+####  穗波殊  
+##### 9650#       发表于 2024-1-21 22:52
+
+如果是单纯的领导力那直接用领导力就行了 没必要用上卡里斯玛这种词 就是因为鸡团是一只奇迹般的乐团才会给祥子用这种词吧
+

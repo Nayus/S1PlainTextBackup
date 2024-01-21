@@ -2068,3 +2068,13 @@ yura看了下切片，满足了，可恋人的梦幻可能只需要这一点东�
 
 小组曲换了
 
+
+*****
+
+####  ruffian  
+##### 19320#       发表于 2024-1-21 17:05
+
+后知后觉，就当我有点应激吧，星光序曲的站位咋一看好像确实是前辈带后辈的对应关系，千对四季，堇对夏美，恋对芽衣，香音樱小路vn，但是这个可可冬毬，真的不是根本没人跟可可只能把冬毬拉过来吗？她俩甚至是这5组人里唯一一组关系图上没有连线的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

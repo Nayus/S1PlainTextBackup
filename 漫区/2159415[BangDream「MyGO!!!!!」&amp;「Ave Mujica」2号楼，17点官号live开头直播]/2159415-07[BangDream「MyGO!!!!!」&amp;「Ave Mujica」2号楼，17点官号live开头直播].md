@@ -4813,3 +4813,26 @@ mujica小短片里的声优一个是远野光，另一个是谁？我记得之�
 
 邦邦再峒还能峒得过转天
 
+
+*****
+
+####  Aendst  
+##### 9458#       发表于 2024-1-21 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63723618&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-1-21 17:02</a>
+
+mujica小短片里的声优一个是远野光，另一个是谁？我记得之前在哪出现过短片的cast ...</blockquote>
+美波わかな，mujica迷你专bd小册子上写的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 爱丁堡official| + 1|好评加鹅|
+
+查看全部评分
+

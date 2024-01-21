@@ -5795,3 +5795,127 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 说祥子重视歌词的共鸣，但是我感觉不出祥子和人类歌有什么联系。我觉得这里体现的反而是祥子的感受性和char ...</blockquote>
 祥子和人类歌的关系各种假药还是讨论了蛮多的吧
 
+
+*****
+
+####  江口夕  
+##### 9570#       发表于 2024-1-21 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727159&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-1-21 21:57</a>
+指正，是soyo发的短信</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这里是黑箱没必要说这么死你就说两人都发了，给立希点面子
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  相坂君  
+##### 9571#       发表于 2024-1-21 22:03
+
+既然カリスマ这词这么时髦大家都想要，我能不能给阿农要一个，我看她第十话也很大力c啊，拉一下输出列表DPS也很好看的
+
+*****
+
+####  青叶假司  
+##### 9572#       发表于 2024-1-21 22:05
+
+我还以为原教旨楼友会开除杮本独尊绫奈，看来系构和脚本的纯洁性也是薛定谔的为我所用，切割了吗？如割
+
+*****
+
+####  Acatv  
+##### 9573#       发表于 2024-1-21 22:06
+
+问下新live直播的时候会有字幕吗……日文的也行
+
+*****
+
+####  青叶假司  
+##### 9574#       发表于 2024-1-21 22:08
+
+孝祥当然没关系，可大祥本尊就致力于拆解自身的谜团和祛魅，看来楼友本意是好的，客服小祥执行歪了
+
+*****
+
+####  Aendst  
+##### 9575#       发表于 2024-1-21 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727286&amp;ptid=2159415" target="_blank">Acatv 发表于 2024-1-21 22:06</a>
+
+问下新live直播的时候会有字幕吗……日文的也行</blockquote>
+直播源除去小剧场小短片之外的内容大概率是没有字幕的
+
+*****
+
+####  假药入脑不可取  
+##### 9576#       发表于 2024-1-21 22:08
+
+不知道漏油是孝灯还是孝羊，别执行歪了
+
+*****
+
+####  Aendst  
+##### 9577#       发表于 2024-1-21 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谢谢你的自爆
+
+*****
+
+####  PDQ4  
+##### 9578#       发表于 2024-1-21 22:09
+
+所以狗的时候切割了吗，新漏油是那种离职了全部成果都抹去自己名字也无所谓的人吗，太圣人了。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 9579#       发表于 2024-1-21 22:09
+
+台长的视频今天还能发了不
+
+*****
+
+####  PDQ4  
+##### 9580#       发表于 2024-1-21 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727286&amp;ptid=2159415" target="_blank">Acatv 发表于 2024-1-21 22:06</a>
+
+问下新live直播的时候会有字幕吗……日文的也行</blockquote>
+1st直播吗，没有的
+
+*****
+
+####  青叶假司  
+##### 9581#       发表于 2024-1-21 22:10
+
+谢绝野蛮钦点，，，我在各个平台一直是祥厨
+
+*****
+
+####  Aendst  
+##### 9582#       发表于 2024-1-21 22:11
+
+新漏油的解释也就图一乐，我们牛逼的漏油懂的都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 9583#       发表于 2024-1-21 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727238&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-01-21 22:02:56</a>
+祥子和人类歌的关系各种假药还是讨论了蛮多的吧
+
+“想成为人类跌丝袜”应该不会是随便喊出来的
+
+ ...</blockquote>这个假药我还真没注意，可以说说吗？祥子都能说出“命运共同体”还说不出想成为人类？那个时期的祥子天真到难以想象。我觉得她只是出于对灯的好感想要感受她的世界，或者想表达对灯的认可和鼓励，她是喜欢电波系心声主唱的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 9584#       发表于 2024-1-21 22:11
+
+挺有意思，祥子祛魅是哪里看出来的，12话cpart和live上我觉得都在尽情发挥利用自己的魅力。访谈更是锤了利用自己全部的人脉，这叫祛魅吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

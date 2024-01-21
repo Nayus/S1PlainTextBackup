@@ -4988,3 +4988,52 @@ C团其他人都是有经验的乐手，只有灯是纯新人，乐队首先要�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Kasroz  
+##### 9474#       发表于 2024-1-21 20:13
+
+1400舰了，到27日突破2000应该没问题
+
+*****
+
+####  帕林马哲理  
+##### 9475#       发表于 2024-1-21 20:13
+
+黑色生日的现场版比单曲带感啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">Ave Musica的世界观原来是这样加成音乐的哦。
+
+*****
+
+####  acgreen  
+##### 9476#       发表于 2024-1-21 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63725697&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-01-21 20:02:48</a></blockquote>可以看立希讲的话“今天也是一直在等祥子”“灯是在等你啊”，祥子不在灯和乐队是停摆的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nebulanoby  
+##### 9477#       发表于 2024-1-21 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63725806&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-1-21 20:11</a>
+
+可以给个访谈出处吗？可能我记忆模糊了。成为人类啥的我感觉就是内向、有独特才情的灯不适应人际环境，想要 ...</blockquote>
+很多呀，访谈里硬点的作词天才啥的
+
+而且祥子被偷摸零的词腐乳这种事不需要场外补充吧，祥子怎么看待偷摸零的，为什么让她当主唱，第三集里都说得很清楚了
+
+*****
+
+####  基神的强袭自由  
+##### 9478#       发表于 2024-1-21 20:19
+
+<img src="https://img.saraba1st.com/forum/202401/21/201947h47w7p9u40wu7ufc.jpg" referrerpolicy="no-referrer">
+
+<strong>XXHP)7S$VK)D8`M$O6{XO43_tmb.jpg</strong> (66.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 20:19 上传
+

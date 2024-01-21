@@ -5659,3 +5659,21 @@ miko对这次菜品的监修程度很高，说是对自家的口味有很特别�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  holoan  
+##### 8042#         楼主| 发表于 2024-1-21 10:32
+
+<img src="https://img.saraba1st.com/forum/202401/21/103056p8d5vr62wkd2v2zh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 10:30 上传
+
+真的就只写了这两个字做亲笔签名，服了太敷衍了，难怪这次签名完成得很快
+
+我反正也没抢到亲笔签名，多少算心理安慰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

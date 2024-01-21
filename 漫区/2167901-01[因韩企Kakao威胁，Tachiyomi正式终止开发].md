@@ -1132,3 +1132,15 @@ mihon要怎么识别tachiyomi下载过的文件？</blockquote>
 其他都很慢。。。更新的乱七八糟，但也胜在能看</blockquote>
 这种新的生肉网站，在哪里能找到有没有tachiyomi对应的拓展呢？
 
+
+*****
+
+####  小妹  
+##### 90#       发表于 2024-1-21 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63718282&amp;ptid=2167901" target="_blank">reficul 发表于 2024-1-21 02:36</a>
+这种新的生肉网站，在哪里&amp;# ...</blockquote>
+苹果手机用户不知道啊，都古董原始就首页翻更新
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

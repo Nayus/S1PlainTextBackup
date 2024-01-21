@@ -10245,3 +10245,13 @@ epd5跟野上要是真能把splatoon做成那种终极持续游戏，那还是�
 
 ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 2527#       发表于 2024-1-21 10:38
+
+还有6小时，现在900
+
+这图再下去要打出阴影了
+

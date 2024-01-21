@@ -2113,3 +2113,32 @@ yura看了下切片，满足了，可恋人的梦幻可能只需要这一点东�
 
 当初在上海手渡第一感觉怎么各个都白到光(
 
+
+*****
+
+####  优妮可  
+##### 19325#       发表于 2024-1-21 18:14
+
+第一次见nako哭成这样，说实话她和青山哭，我都觉得事情严重（
+
+*****
+
+####  ruffian  
+##### 19326#       发表于 2024-1-21 18:18
+
+nako……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 19327#       发表于 2024-1-21 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63724627&amp;ptid=2078110" target="_blank">优妮可 发表于 2024-1-21 18:14</a>
+第一次见nako哭成这样，说实话她和青山哭，我都觉得事情严重（</blockquote>
+状态不好感到内疚了
+这两天她的状态确实一般，有种尽量节省体力的感觉
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

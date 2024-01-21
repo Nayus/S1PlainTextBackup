@@ -4836,3 +4836,27 @@ mujica小短片里的声优一个是远野光，另一个是谁？我记得之�
 
 查看全部评分
 
+
+*****
+
+####  安洁莉娜  
+##### 9459#       发表于 2024-1-21 18:20
+
+大概是因为今天看了你楼，吃饭时久违地回想起了mygo的剧情。祥子说灯是最需要练习的，可能是说灯如果在家里练习不方便吧，毕竟那种普通住宅半夜唱歌会扰民，加上灯的性格比较羞涩，只有在RiNG才有练习的机会。祥子确实在这时就开始变得现实了，之前她对阶层差距完全不作任何发言。（难道退出乐队也是因为RiNG来不起了？所以在立希追问后露出那犹豫又痛苦的神色？那也太悲摧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）总之作为灯推再次感受到了大祥老师的温暖。所以我还是不敢相信续作还要等一年。我现在就要看！我现在就要看！（台长音
+
+*****
+
+####  QuattroVageena  
+##### 9460#       发表于 2024-1-21 18:22
+
+这么28号你狗也有live
+[https://twitter.com/lis_ani/status/1748903248629551347](https://twitter.com/lis_ani/status/1748903248629551347)
+
+<img src="https://img.saraba1st.com/forum/202401/21/182239tfmaa51a8b8baz8j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (254.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 18:22 上传
+

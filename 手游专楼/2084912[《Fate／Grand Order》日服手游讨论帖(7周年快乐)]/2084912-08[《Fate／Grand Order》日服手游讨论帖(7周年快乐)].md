@@ -6069,3 +6069,11 @@ BFD64D51-979A-4657-8F22-482B4119B4EA.png
 
 这几天剧情一点硬货都没有，除了几个小段子有点意思剩下的太流水账了……
 
+
+*****
+
+####  保罗赫伯特  
+##### 11069#       发表于 2024-1-21 21:22
+
+去年街机联动之后，对联动剧情的期待值就放平了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

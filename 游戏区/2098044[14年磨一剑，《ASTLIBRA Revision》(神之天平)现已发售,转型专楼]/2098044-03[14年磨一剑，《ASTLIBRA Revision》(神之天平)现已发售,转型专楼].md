@@ -77,3 +77,18 @@ SL听boss逼叨，直接重开扣道具，纯粹恶心人，改得好
 啊，真的？？
 得开个简单存档去看一眼我靠 我没发现
 
+
+*****
+
+####  christiny  
+##### 3805#       发表于 2024-1-21 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63719361&amp;ptid=2098044" target="_blank">库德里尔 发表于 2024-1-21 10:05</a>
+
+啊，真的？？
+
+得开个简单存档去看一眼我靠 我没发现</blockquote>
+嗯。。。可能没说清楚。
+
+比基尼只有修女才给。不过找百合的话，可以看她们说什么。
+

@@ -10255,3 +10255,27 @@ ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="ht
 
 这图再下去要打出阴影了
 
+
+*****
+
+####  晴岚  
+##### 2528#       发表于 2024-1-21 12:19
+
+<img src="https://img.saraba1st.com/forum/202401/21/121806gzrronyay3lriazo.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2556(20240121-121354).JPG</strong> (599.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 12:18 上传
+
+<img src="https://img.saraba1st.com/forum/202401/21/121853p9uqacbi9xdc5i5s.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240121121844.png</strong> (107.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 12:18 上传
+
+不是，凭什么他3-8还能碰拳？
+

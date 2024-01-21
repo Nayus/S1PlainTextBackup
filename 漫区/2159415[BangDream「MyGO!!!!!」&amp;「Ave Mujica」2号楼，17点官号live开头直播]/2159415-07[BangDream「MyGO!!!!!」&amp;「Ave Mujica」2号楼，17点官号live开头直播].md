@@ -4961,3 +4961,30 @@ wsd恶心人的次数还少吗，只有在意的才会被wsd和🐏的不作为�
 C团其他人都是有经验的乐手，只有灯是纯新人，乐队首先要解决的事情是让主唱唱出声来，就常理来看让她多练 ...</blockquote>
 不是硬要创造新理解，主要是结合上下文，祥子说“可是到现在为止你都做了什么”，这个理解成让灯抓紧在练习室的时间我觉得还是可以合理的，毕竟镜头还给到了灯的笔记本，再加上祥子已经有一段时间不来参加练习了，她怎么知道灯最近有没有努力唱？所以我觉得她说的话是需要一点解释的。当然我只是想发癫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 9471#       发表于 2024-1-21 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥漏白天缺的羊gachi这不就补上了
+
+*****
+
+####  cherryjia12  
+##### 9472#       发表于 2024-1-21 20:11
+
+漏油吵得不可开交时，官号千舰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  acgreen  
+##### 9473#       发表于 2024-1-21 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63725619&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-01-21 19:55:42</a>
+话说一开始以为你说的是中之人，查了下鼓子她居然以前真打过鼓</blockquote>可以给个访谈出处吗？可能我记忆模糊了。成为人类啥的我感觉就是内向、有独特才情的灯不适应人际环境，想要真正融入、体验她人的情感，后期灯自己都不在乎了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

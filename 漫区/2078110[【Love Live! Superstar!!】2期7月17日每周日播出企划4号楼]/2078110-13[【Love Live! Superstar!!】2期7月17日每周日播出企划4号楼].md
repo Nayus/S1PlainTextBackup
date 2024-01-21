@@ -1998,3 +1998,17 @@ yura看了下切片，满足了，可恋人的梦幻可能只需要这一点东�
 享受就好
  
 
+
+*****
+
+####  ads147147  
+##### 19313#       发表于 2024-1-21 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63718342&amp;ptid=2078110" target="_blank">stygian 发表于 2024-1-21 03:04</a>
+推某个人，更多的是推作为在某个团里作为人际关系之一因素的她还是推作为一个独立个体的她
+
+这点不分清楚惘 ...</blockquote>
+人是社会关系的总和，怎么可能分的开，只是有些东西不去想对自己精神压力小一点。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

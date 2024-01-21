@@ -4362,3 +4362,68 @@ bg校园恋爱作品又如何，羊宮喜欢羊宮高兴，这下温度差可以
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  调控人  
+##### 9406#       发表于 2024-1-21 13:13
+
+前两页整的活还是太烂了，但作为纯血豚豚在这里接受脱敏治疗也许算是最温和的了吧
+
+*****
+
+####  安卡  
+##### 9407#       发表于 2024-1-21 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别转进灯宝偶内盖
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  acgreen  
+##### 9408#       发表于 2024-1-21 13:17
+
+我对羊宫是一点都不关心。烤炉的火越来越大，真引来什么，你楼怕是要被瑞平…
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  江口夕  
+##### 9409#       发表于 2024-1-21 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63719770&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-21 10:54</a>
+卖bgcp的2.5偶像，少女乐队新时代要来了吗</blockquote>
+pjsk：？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aendst  
+##### 9410#       发表于 2024-1-21 13:20
+
+泥漏怕早就是被锐评对象了，骂武士道都有不明人士进来洗地和搅混水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  调控人  
+##### 9411#       发表于 2024-1-21 13:21
+
+前两页是在骂wsd吗
+
+*****
+
+####  Aendst  
+##### 9412#       发表于 2024-1-21 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新来的漏油可以不急着对号入座先去翻翻泥漏以前的内容
+
+*****
+
+####  调控人  
+##### 9413#       发表于 2024-1-21 13:22
+
+决定转身去画穿裤子的小祥了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

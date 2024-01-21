@@ -4710,3 +4710,14 @@ pjsk：？
 
 羊群拉我+1<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lhwang11  
+##### 9446#       发表于 2024-1-21 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721709&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-21 13:55</a>
+
+武士道就这么放任羊摆烂我是不太理解的，还是在今年live有那么多场的前提下，明明隔壁dj遇到摆烂的就直接换 ...</blockquote>
+难道不是越摆越捧吗，去联动个我心危除了讨好羊还有什么意义
+

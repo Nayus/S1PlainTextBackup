@@ -7200,10 +7200,10 @@
     "active": false
   },
   "2159952": {
-    "totalreply": 5607,
+    "totalreply": 5608,
     "title": "[【#9】hololive综合讨论楼]",
     "newtitle": "[【#9】hololive综合讨论楼]",
-    "lastedit": 1705868400,
+    "lastedit": 1705876376,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -11600,10 +11600,10 @@
     "active": false
   },
   "2168341": {
-    "totalreply": 486,
+    "totalreply": 487,
     "title": "[《冰汽时代2》新宣传片真恶心啊]",
     "newtitle": "[《冰汽时代2》新宣传片真恶心啊]",
-    "lastedit": 1705845000,
+    "lastedit": 1705876407,
     "category": "游戏区",
     "active": true
   },
@@ -12821,6 +12821,14 @@
     "newtitle": "[暴死了个塞尔达杀手，又来个宝可梦杀手。有无马里奥杀手。]",
     "lastedit": 1705864560,
     "category": "游戏区",
+    "active": true
+  },
+  "2168936": {
+    "totalreply": 61,
+    "title": "[阿根廷的伟大“胜利”]",
+    "newtitle": "[阿根廷的伟大“胜利”]",
+    "lastedit": 1705876441,
+    "category": "外野",
     "active": true
   }
 }

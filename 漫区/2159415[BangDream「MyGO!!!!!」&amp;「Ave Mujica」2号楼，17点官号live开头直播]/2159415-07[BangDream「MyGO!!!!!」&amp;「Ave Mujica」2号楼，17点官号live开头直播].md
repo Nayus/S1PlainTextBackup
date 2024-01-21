@@ -6513,3 +6513,230 @@ syl访谈都不认那真没什么好说的了，毕竟官设可以随便开除�
 
 如果是单纯的领导力那直接用领导力就行了 没必要用上卡里斯玛这种词 就是因为鸡团是一只奇迹般的乐团才会给祥子用这种词吧
 
+
+*****
+
+####  PDQ4  
+##### 9651#       发表于 2024-1-21 22:54
+
+ 本帖最后由 PDQ4 于 2024-1-21 22:56 编辑 
+
+可怕，怎么把同人受率和母性联系起来的，原来漏油喜欢看自己闺女被艹吗，什么鬼母鬼父。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+联系到戏内的话更可怕了，原来其余9人甚至老邦其他人想艹祥子都是因为母性想当她妈，感觉要联想到guro题材了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninokagami  
+##### 9652#       发表于 2024-1-21 22:55
+
+ 本帖最后由 ninokagami 于 2024-1-21 22:58 编辑 
+
+话说回来羊2023的go推比危推多发了6条的样子，2.5企划曝光率还是高呀，填补了4个月的差距并一举反超
+
+不过邦只有新年发表会，我心危当季在播又超回去了，目前比分82:83
+
+*****
+
+####  ddy2811  
+##### 9653#       发表于 2024-1-21 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727820&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-21 22:51</a>
+
+有一說一，無關心好吧，而且我轉天民對她印象很好的
+
+只是沒想到她在邦多利這樣子的
+
+ ...</blockquote>
+要没有这几个月的事，大家对她印象其实都还可以的……
+
+在这样的时候就很能理解第9集知道真相以后的爱音——“小羊你就好好去配音吧”
+
+*****
+
+####  青叶假司  
+##### 9654#       发表于 2024-1-21 22:56
+
+继续滑坡下去小祥会被无端联想成散兵的可能性微存
+
+*****
+
+####  星空冻结  
+##### 9655#       发表于 2024-1-21 22:57
+
+羊就是因为在其他片场正常，就唯独在你邦这搞成这样才会有这么多人烤啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9656#       发表于 2024-1-21 22:57
+
+<img src="https://p.sda1.dev/15/4ca7156a4411b7f8dabb0fe73452a088/Image_1705849004761.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Arteryesrerday  
+##### 9657#       发表于 2024-1-21 22:57
+
+这楼抽象过头了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9658#       发表于 2024-1-21 22:57
+
+台长，今天要过去了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9659#       发表于 2024-1-21 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727857&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-21 22:54</a>
+
+可怕，怎么把同人受率和母性联系起来的，原来漏油喜欢看自己闺女被艹吗，什么鬼母鬼父。
+
+联系到戏内 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">这是在做什么……
+
+*****
+
+####  ytttsuuuba  
+##### 9660#       发表于 2024-1-21 22:58
+
+急了急了，直接说自己是祥黑不完事了，装祥厨干啥。我是没见过哪个厨子能为了强调自己的观点去黑一下自己推的，还叫黑称。顺便祥子是同人受率高，但实际上动画中祥子这个角色的表现是很有支配欲和主观行动力的，同人为什么会截然相反因为很多人想看把这种高傲的角色拉下来的反差罢了。
+
+
+*****
+
+####  QuattroVageena  
+##### 9661#       发表于 2024-1-21 22:58
+
+明天中午能看烤羊吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/21/225825cau09fb0jjqqvma9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 22:58 上传
+
+*****
+
+####  星空冻结  
+##### 9662#       发表于 2024-1-21 22:59
+
+台长又经典放屁了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 9663#       发表于 2024-1-21 22:59
+
+真的等了台长一天的我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qdhbcheekc  
+##### 9664#       发表于 2024-1-21 22:59
+
+泥漏一如既往的敏感和自我意识过剩，大x老师这个称呼，十个喊的人里有一个知道出处都差不多了，到现在还有个毛的攻击性，不过考虑到狗鸡十人没其他人被这么叫，你说是黑称就是吧，牢x这个，最近从p5吧p图火出来，哪个纸片人没被牢一遍，牢到你祥子头上就是黑称了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+还好意思拿wb垫，就泥漏今晚这样子，哪儿的味儿都没这里大
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|哦|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 9665#       发表于 2024-1-21 23:00
+
+就这水平泥漏漏油不都一眼看出祥黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">趁着小丑还没退场逗着玩不也挺好吗
+
+*****
+
+####  PDQ4  
+##### 9666#       发表于 2024-1-21 23:00
+
+明天中午？明年中午！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 9667#       发表于 2024-1-21 23:00
+
+所谓的激发母性。。。呃，正常点，祥子这个角色和激发母性有什么关系吗。
+
+*****
+
+####  御幸一也  
+##### 9668#       发表于 2024-1-21 23:00
+
+某位樓友打滾得有點難看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+難評
+
+*****
+
+####  相坂君  
+##### 9669#       发表于 2024-1-21 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么一回楼里就出现不认识的词…散兵是什么意思？
+今天好几个不认识的词，什么牢祥，祥0嫂的，漏油平时都在看什么？？<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9670#       发表于 2024-1-21 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727914&amp;ptid=2159415" target="_blank">qdhbcheekc 发表于 2024-1-21 22:59</a>
+
+泥漏一如既往的敏感和自我意识过剩，大x老师这个称呼，十个喊的人里有一个知道出处都差不多了，到现在还有 ...</blockquote>
+哇，一月八号注册的一贴博爱者耶<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">第一次见
+
+*****
+
+####  穗波殊  
+##### 9671#       发表于 2024-1-21 23:01
+
+个人喜欢祥零是因为感受到了她的破碎感
+
+*****
+
+####  skives  
+##### 9672#       发表于 2024-1-21 23:01
+
+明天中午？25年1月！
+
+*****
+
+####  ytttsuuuba  
+##### 9673#       发表于 2024-1-21 23:02
+
+你觉得不是黑称就不是，那有几个真正的祥厨会叫大祥或者牢祥的啊。
+
+*****
+
+####  青叶假司  
+##### 9674#       发表于 2024-1-21 23:02
+
+祥子的领导力也好，神必魅力也罢，哪个和高傲和格差感都划不上等号，立希产生自卑感的原因也是作曲这种很具体的事项上，所以你并不懂或者了解小祥，而是维护一个自己脑内幻想的其他的误解系角色罢了
+
+*****
+
+####  NODY  
+##### 9675#       发表于 2024-1-21 23:02
+
+这大发表会之前我顶多当动物朋友和音宝一样是没天赋没经验才唱不好又营业咸鱼，直到看到她一谈我心危就开始兴高采烈滔滔不绝才知道她只是纯粹的双标，你邦不配人家打牌罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

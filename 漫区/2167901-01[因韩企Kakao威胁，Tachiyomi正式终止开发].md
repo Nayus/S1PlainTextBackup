@@ -1168,3 +1168,13 @@ mihon要怎么识别tachiyomi下载过的文件？</blockquote>
 
 看到你才知道自己不是一个人hhhh
 
+
+*****
+
+####  azbhg1  
+##### 93#       发表于 2024-1-21 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721089&amp;ptid=2167901" target="_blank">JennyFaceOff 发表于 2024-1-21 12:54</a>
+想问下，mihon以及tachiyomi的最近版本都不能有效更新书架了，比如在首页或者更新页面下拉，小字提示“正在 ...</blockquote>
+可能是智能更新的问题，全关了试试<img src="https://p.sda1.dev/15/2930ea8bcb9f0670657fa7a1e8869c62/CMP_20240121143929805.jpg" referrerpolicy="no-referrer">
+

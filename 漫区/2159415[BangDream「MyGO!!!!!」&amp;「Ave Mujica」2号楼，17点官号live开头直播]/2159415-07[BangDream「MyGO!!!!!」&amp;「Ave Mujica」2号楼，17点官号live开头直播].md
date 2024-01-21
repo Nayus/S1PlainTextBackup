@@ -4637,3 +4637,51 @@ pjsk：？
 
 梦想紫烤羊的内容其实和这也差不了多少的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有骨气的百合  
+##### 9438#       发表于 2024-1-21 14:33
+
+还少一个gachi破防
+
+*****
+
+####  高松燈  
+##### 9439#       发表于 2024-1-21 14:38
+
+又不营业，哪有羊gachi，灯gachi都没几个
+
+*****
+
+####  基神的强袭自由  
+##### 9440#       发表于 2024-1-21 14:39
+
+ 本帖最后由 基神的强袭自由 于 2024-1-21 14:41 编辑 
+
+原来大祥老师是英雄无敌老玩具了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/21/144141nj9s3j0azgv0gg0v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-21 14:41 上传
+
+*****
+
+####  フミさん  
+##### 9441#       发表于 2024-1-21 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  豚厨二象性  
+##### 9442#       发表于 2024-1-21 14:41
+
+。
+

@@ -40,3 +40,13 @@
 
 没事，只有看到那个草台没救的样子，才有果然是百万的感觉。
 
+
+*****
+
+####  Seeley  
+##### 1027#       发表于 2024-1-21 23:13
+
+不草台不爱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

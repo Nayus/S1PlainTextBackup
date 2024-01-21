@@ -1167,3 +1167,38 @@ MX-5从初代到现在就没有硬顶的。</blockquote>
 一点也不小。。。。。。。</blockquote>
 电车尺寸小不了，底下一块电池撑着呢……
 
+
+*****
+
+####  logiccat  
+##### 114#       发表于 2024-1-21 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686540&amp;ptid=2168461" target="_blank">暗月杀人兔 发表于 2024-1-18 10:49</a>
+
+其他倒还好，车屁股那两个保洁车灯太抽象了</blockquote>
+看习惯了其实就忽略了……
+
+*****
+
+####  logiccat  
+##### 115#       发表于 2024-1-21 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63687770&amp;ptid=2168461" target="_blank">amzonme 发表于 2024-1-18 12:23</a>
+
+这车别的设计都不错，但是剪刀门设计越级了，在这辆车上并不协调。</blockquote>
+电车很多配置都越级的，我觉得不是缺点，你要低调就没必要买跑车了不是吗
+
+*****
+
+####  logiccat  
+##### 116#       发表于 2024-1-21 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63690583&amp;ptid=2168461" target="_blank">不会武术 发表于 2024-1-18 16:28</a>
+
+30万的车可能不太好装逼
+
+有法律规定说车必须要有车标吗
+
+能不能造一个没有车标的车</blockquote>
+改变车辆外观，理论上是可以管的，但那么多痛车，改标的，我觉得一般也不会管。
+

@@ -6868,3 +6868,292 @@ z8烤羊是真烤羊，只烤羊，希望羊和狗好，z8闹分割的被喷一�
 
 越给眼色越打滚个没完，建议无视。顺便如果觉得大x老师和牢x没有攻击性的话，我也不介意从今以后鸡狗十人全部推广这系列称呼，到时候别说不乐意，没有攻击性捏
 
+
+*****
+
+####  ddy2811  
+##### 9691#       发表于 2024-1-21 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63727981&amp;ptid=2159415" target="_blank">ninokagami 发表于 2024-1-21 23:05</a>
+
+有些人平时烤烤就算了，戴有色眼镜毫无自觉真的难崩
+
+青木联动小齐格飞你猜她会不会也兴高采烈
+
+别太离谱 ...</blockquote>
+“不患寡而患不均，不患贫而患不安”
+
+青木在听到下次五个一起来时是会问“哪五个”的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+羊哪怕是能把最基本的给做好来而不是薛定谔的不懂用推，我觉得火力也不会像现在这么大
+
+*****
+
+####  Aendst  
+##### 9692#       发表于 2024-1-21 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728045&amp;ptid=2159415" target="_blank">qdhbcheekc 发表于 2024-1-21 23:10</a>
+
+z8烤羊是真烤羊，只烤羊，希望羊和狗好，z8闹分割的被喷一百楼泥漏几个人烤羊是为了展示自己作为鸡 ...</blockquote>
+我好奇心比较旺盛，毕竟是稀有动物嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 9693#       发表于 2024-1-21 23:12
+
+有没有一种可能鸡粉懒得烤羊呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+羊和鸡粉有啥关系吗
+
+*****
+
+####  御幸一也  
+##### 9694#       发表于 2024-1-21 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728045&amp;ptid=2159415" target="_blank">qdhbcheekc 发表于 2024-1-21 23:10</a>
+
+z8烤羊是真烤羊，只烤羊，希望羊和狗好，z8闹分割的被喷一百楼泥漏几个人烤羊是为了展示自己作为鸡 ...</blockquote>
+不如你看一下烤羊的是不是都是ave粉，什麼鍋都往這扣是吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+不是新註冊的號沒資格，單純感覺你很那個<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qdhbcheekc  
+##### 9695#       发表于 2024-1-21 23:12
+
+z8烤羊是真烤羊，只烤羊，希望羊和狗好，z8闹分割的被喷一百楼<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">另外咋了，新注册的号没资格回你高贵的鸡楼？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| salic428|-1||
+| 御幸一也|-1|啊對對對|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 9696#       发表于 2024-1-21 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏了，这下真的稀有动物了，怕是chatGPT代打，泥漏终于实现科技跃迁拥有自己的机器人了吗
+
+*****
+
+####  skives  
+##### 9697#       发表于 2024-1-21 23:13
+
+z8希望羊好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这么说只能证明你既不了解紫吧 也不了解泥楼
+
+*****
+
+####  ytttsuuuba  
+##### 9698#       发表于 2024-1-21 23:14
+
+支持啊，以后鸡狗团十人都叫大x老师或者牢x吧，不这么叫都不算厨，直接当dd党。
+
+*****
+
+####  相坂君  
+##### 9699#       发表于 2024-1-21 23:14
+
+关于羊宫的话题，我鸡粉无关心别团cv
+但据我所知，什么对家黑粉路人，都不如厨子回踩来得狠，每次楼里烤羊，我看某些go粉确实挺上心的，还有些拿着鸡团爱当炮弹的……
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可真不好说哦
+
+*****
+
+####  青叶假司  
+##### 9700#       发表于 2024-1-21 23:14
+
+本人作为科密已经脱敏了，楼友没必要对于一个已经稀释的比空气中的吲哚浓度还低的梗过于敏感，你看，又急
+
+*****
+
+####  江口夕  
+##### 9701#       发表于 2024-1-21 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥虽然是黑称，不过当时祥厨没呼吸权只能顺着对方这么说了。扭曲厨倒是无所谓。
+这牢祥是什么鬼
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  假药入脑不可取  
+##### 9702#       发表于 2024-1-21 23:15
+
+好的，大羊老师和邦邦请和好，牢羊是z8牢不可破的一部分，没有人被迫害，高贵的新号你好，忠诚的鸡楼恭迎您的大驾。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|笑吐|
+
+查看全部评分
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9703#       发表于 2024-1-21 23:15
+
+我觉得你对紫吧的滤镜比我对c团的滤镜还要高上不少啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 9704#       发表于 2024-1-21 23:15
+
+原来现在z8烤羊的还是羊gachi吗，我记得之前有漏油说不少人转黑了，原来没变天啊。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kosou  
+##### 9705#       发表于 2024-1-21 23:15
+
+z8换cv都有人提了也叫为了羊好<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer"> 早日脱离糊邦是吧
+
+*****
+
+####  ddy2811  
+##### 9706#       发表于 2024-1-21 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728073&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-21 23:13</a>
+
+z8希望羊好
+
+这么说只能证明你既不了解紫吧 也不了解泥楼</blockquote>
+至少很长一段时间还是希望羊好的，到了现在其实也还是期望好聚好散免得互相折磨的多，要真那么大恶意就该像羊gachi们煽动的那样去炎上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 9707#       发表于 2024-1-21 23:16
+
+台长别看了，赶紧干活吧<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青叶假司  
+##### 9708#       发表于 2024-1-21 23:16
+
+鸡粉（指全部戏份来自四至五成狗团动画）过于迫真，诉讼
+
+*****
+
+####  笋干爆炸碱  
+##### 9709#       发表于 2024-1-21 23:16
+
+羊gachi就羊gachi，又不丢人，承认这个也没啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这里的大家都很nice，不用勉强自己戴上鸡粉头套
+
+*****
+
+####  nebulanoby  
+##### 9710#       发表于 2024-1-21 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728085&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-21 23:14</a>
+大祥虽然是黑称，不过当时祥厨没呼吸权只能顺着对方这么说了。扭曲厨倒是无所谓。
+这牢祥是什么鬼</blockquote>
+你邦最近能跟牢大联系起来的也就r组神曲三连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟俩动物团没关系
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御幸一也  
+##### 9711#       发表于 2024-1-21 23:17
+
+原來都是羊gachi看不慣泥樓烤羊所以來亂嗎，理解一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9712#       发表于 2024-1-21 23:17
+
+拿青木和羊比真是乳青木了，青木在你邦生放一直在控场带气氛不摸鱼，平时动不动给go其他人带土特产，吉他平时丢了一堆练习视频，羊能做到这个态度十分之一也不会有人烤她了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 9713#       发表于 2024-1-21 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728100&amp;ptid=2159415" target="_blank">kosou 发表于 2024-1-21 23:15</a>
+
+z8换cv都有人提了也叫为了羊好 早日脱离糊邦是吧</blockquote>
+她如果真的那么不喜欢这份工作，非要强留着她干什么？
+
+*****
+
+####  skives  
+##### 9714#       发表于 2024-1-21 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728101&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-21 23:15</a>
+至少很长一段时间还是希望羊好的，到了现在其实也还是期望好聚好散免得互相折磨的多，要真那么大恶意就该 ...</blockquote>
+印象里z8从开玩笑的黑转向真情实感的黑的时间节点
+就是那次羊和其它剧组聚餐照片流出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 9715#       发表于 2024-1-21 23:19
+
+不是吧！？这也搞没有动画不算粉这套<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+怪不得有人说哪来的鸡粉！说的也是呢，没有动画还没进游戏，都是尸体，哪来这么多意见
+
+*****
+
+####  Aendst  
+##### 9716#       发表于 2024-1-21 23:19
+
+有一说一，泥漏打滚这两位怎么看都像bot，一个跨时复读，一个已经完全不知所云，甚至还是模型做的很差的僵尸号观感
+
+这下智械危机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 9717#       发表于 2024-1-21 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太怪了，玩梗中级高手+赛博数字生命，楼层增数最看不懂的一集
+
+*****
+
+####  PDQ4  
+##### 9718#       发表于 2024-1-21 23:20
+
+其实羊gachi可以剑指马娘的，只要羊的马娘营业也不上心，那就是羊平等的歧视二偶。这种事情都是比烂的嘛，只有有个更烂的很快就可以和解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 9719#       发表于 2024-1-21 23:21
+
+感觉莫名其妙的，就因为反驳一下没觉得大灯老师有卡里斯马性，就上升到访谈图一乐，然后没完没了到现在了，挺魔幻的。
+
+*****
+
+####  ddy2811  
+##### 9720#       发表于 2024-1-21 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728124&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-21 23:17</a>
+
+印象里z8从开玩笑的黑转向真情实感的黑的时间节点
+
+就是那次羊和其它剧组聚餐照片流出 ...</blockquote>
+我是觉得生日和一专什么也没有是真的伤到了，NGA好像也是从这里出发盖的烤羊大楼
+

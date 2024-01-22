@@ -1464,3 +1464,28 @@ maga本来就是个口号啊，美国的衰落是一种长期趋势，真以为�
 查了下副总统还真不行，第十二修正案 马一龙可以给搞个内阁位置</blockquote>
 如果只是影响决策而不是刷脸的话，当总统幕僚，混个助理，不就完事了
 
+
+*****
+
+####  第八协奏曲  
+##### 152#       发表于 2024-1-22 18:28
+
+ 本帖最后由 第八协奏曲 于 2024-1-22 18:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734743&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 15:15</a>
+懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
+醒醒，别做梦了
+
+美国超市多少东西中国造的，又能有几个是外资<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 18 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  midearth  
+##### 153#       发表于 2024-1-22 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736125&amp;ptid=2168993" target="_blank">宏. 发表于 2024-1-22 17:00</a>
+
+8年前我们就知道ukw收缩是个笑话，怎么今天你还信</blockquote>
+川粉的核心论点就是川皇冻蒜，至于要用什么理由并不重要。
+

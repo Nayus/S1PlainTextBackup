@@ -117,3 +117,28 @@
 
 话说那个属性宝珠是只能去宝珠迷宫刷吗？感觉好低效啊，而且给得也好少..
 
+
+*****
+
+####  范坚强  
+##### 1440#       发表于 2024-1-22 08:23
+
+ 本帖最后由 范坚强 于 2024-1-22 08:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721559&amp;ptid=2050204" target="_blank">lxshhh 发表于 2024-1-21 13:41</a>
+
+话说那个属性宝珠是只能去宝珠迷宫刷吗？感觉好低效啊，而且给得也好少.. ...</blockquote>
+最省时间但是产出比最不稳定的是四章下垃圾场捡垃圾平均几分钟一次 顺便刷公正币买芯片 就是没法用迷宫票有些亏体力
+
+
+*****
+
+####  范坚强  
+##### 1441#       发表于 2024-1-22 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721503&amp;ptid=2050204" target="_blank">lxshhh 发表于 2024-1-21 13:35</a>
+
+原来还有第二波吗，唉总之现在已经被雷队养屌了，看别的队总感觉差点意思..
+
+而且资源一直很缺，根本没有 ...</blockquote>
+没事 每次大活动生命石都乱送 不用就过期了
+

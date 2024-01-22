@@ -1376,3 +1376,27 @@ DeSantis早就有懂王 ...</blockquote>
 
 —— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  nukacolamania  
+##### 144#       发表于 2024-1-22 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735606&amp;ptid=2168993" target="_blank">黑兽 发表于 2024-1-22 16:24</a>
+另外泥潭消息也太lag了，黑莉还副总统，做梦啊，跟川作对过就是叛徒小丑，可能性为0，Tom Cotton甚至马斯克 ...</blockquote>
+话说回来，美国总统不能外地人当，副总统这种总统挂了直接上位的能不能外地人当？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  黑兽  
+##### 145#       发表于 2024-1-22 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736817&amp;ptid=2168993" target="_blank">nukacolamania 发表于 2024-1-22 17:56</a>
+
+话说回来，美国总统不能外地人当，副总统这种总统挂了直接上位的能不能外地人当？
+
+—— 来自 mot ...</blockquote>
+查了下副总统还真不行，第十二修正案<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 马一龙可以给搞个内阁位置
+

@@ -27828,3 +27828,107 @@ github项目说明截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1207#       发表于 2024-1-22 22:29
+
+LangBridge
+
+不需要多语言监督(Multilingual Supervision)的多语言推理(Multilingual Reasoning)
+
+github项目主页(待整理):https://github.com/kaistAI/LangBridge
+
+LangBridge是一种零样本方法，用于在不需要多语言监督的情况下自适应多语言推理任务，LangBridge通过桥接两个专注于不同方面的模型来运作:
+1.一个专注于理解多语言的模型(例如mT5编码器)
+2.一个专注于推理的模型(例如Orca 2)
+
+LangBridge通过在两个模型之间引入最少的可训练参数(minimal trainable parameters)来连接它们，尽管只使用英语数据进行训练，但LangBridge在数学推理、编码和逻辑推理等低资源语言(low-resource languages)的模型性能方面有相当显著的提升，分析表明，LangBridge的有效性源于多语言表征(multilingual representations)的语言无关特性(language-agnostic characteristics)
+
+<img src="https://img.saraba1st.com/forum/202401/22/222746ofliatyms66ii45n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-222435.jpg</strong> (111.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:27 上传
+
+MetaMath模型以及通过LANGBRIDGE(LB)对齐的mT5-XL编码器(2B)的MGSM准确率(%)
+
+除了附加的平均准确率(AVG)外，还报告了由Shi等人(2023)对高资源语言(HRL/highresource languages和少数语言(URL/under-represented languages)进行分类的平均准确率
+
+<img src="https://img.saraba1st.com/forum/202401/22/222753nui09zdg9ug2qgiu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-222457__01.jpg</strong> (178.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:27 上传
+
+LANGBRIDGE的概览图
+
+左:一个多语言编码器，具有附加的线性层，通过使用英语数据与语言模型对齐，保持语言模型冻结，而线性层可训练，当适配预训练语言模型时，多语言编码器是可训练的，而适配微调的语言模型时，多语言编码器是冻结的
+
+右:在测试时，LANGBRIDGE模型可以有效地解决多语言推理任务
+
+<img src="https://img.saraba1st.com/forum/202401/22/222850n66mtpyjuyjuuuza.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-222531__01.jpg</strong> (547.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:28 上传
+
+MGSM准确率(%)
+
+除了附加的平均准确率(AVG)外，还报告了由Shi等人(2023)对高资源语言(HRL/highresource languages和少数语言(URL/under-represented languages)进行分类的平均准确率
+
+包括使用Llama 2的语言分布作为参考，对于预训练的模型(顶部)，使用8-shot跨语言CoT推理示例进行提示，除了PaLM-540B，参考Shi等人(2023)报告的6-shot跨语言CoT性能
+
+对于微调的模型(底部)，进行零样本评估，PP2和MM后缀分别代表在Proof-Pile-2和MetaMath上训练的模型，通过将LANGBRIDGE模型(LB)与它们的原始检查点进行了对比，用粗体显示了最佳性能
+
+<img src="https://img.saraba1st.com/forum/202401/22/222859jrxo2pb1z2tvzzrj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-222541__01.jpg</strong> (186.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:28 上传
+
+HumanEval和HumanEval-MT上的Pass@1分数
+
+使用贪婪解码对模型进行零样本代码补全评估，通过将LANGBRIDGE(LB)模型与它们的原始检查点进行了对比，用粗体显示最佳性能
+
+<img src="https://img.saraba1st.com/forum/202401/22/222906y0vvyit442lvyz29.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-222623__01.jpg</strong> (100.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:29 上传
+
+BBH(英语)和BBH-BN(孟加拉语)的准确率(%)，报告所选的14个子任务平均准确率，通过将LANGBRIDGE(LB)模型与它们的原始检查点进行了对比，用粗体显示最佳性能
+
+<img src="https://img.saraba1st.com/forum/202401/22/222920axv9g1xp3jbxgarx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-222631__01.jpg</strong> (160.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:29 上传
+
+使用FLORES获得的汇总表示的前两个主成分(principle components)，请注意，两个子图的尺度有所不同
+
+<img src="https://img.saraba1st.com/forum/202401/22/222926zeuff7xxv1xvuxxb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-222639__01.jpg</strong> (392.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:29 上传
+
+Orca 2-LANGBRIDGE模型使用BBH-BN的SNARK子集作为提示的意外翻译(accidental translation)示例，为简洁起见，输入提示的部分和输出中的几个合理步骤被截断(对应翻译在蓝色括号内)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

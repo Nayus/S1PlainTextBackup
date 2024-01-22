@@ -19658,3 +19658,49 @@ https://x.com/Edgar_Syu/status/1747923421546352685?s=20<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">迟到
 
+
+*****
+
+####  Saber琪  
+##### 1497#       发表于 2024-1-22 22:31
+
+[https://twitter.com/sango3_3/status/1749356283239796746?s=19](https://twitter.com/sango3_3/status/1749356283239796746?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/22/223008g9qm9499r29wsrcz.jpg" referrerpolicy="no-referrer">
+
+<strong>20240122_222905.jpg</strong> (272.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:30 上传
+
+[https://twitter.com/junkyu_washu/status/1749121321773203546?s=19](https://twitter.com/junkyu_washu/status/1749121321773203546?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/22/223037caelxz26wwgt22re.jpg" referrerpolicy="no-referrer">
+
+<strong>20240122_223022.jpg</strong> (185.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:30 上传
+
+[https://twitter.com/UV_uv_desu/status/1749264619666026504?s=19](https://twitter.com/UV_uv_desu/status/1749264619666026504?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/22/223108fovo33kr8ogf8p55.jpg" referrerpolicy="no-referrer">
+
+<strong>20240122_223046.jpg</strong> (342.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:31 上传
+
+[https://twitter.com/rnna_7/status/1749305387575054625?s=19](https://twitter.com/rnna_7/status/1749305387575054625?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/22/223142ssw5wdsgw3iwwoui.jpg" referrerpolicy="no-referrer">
+
+<strong>20240122_223122.jpg</strong> (499.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 22:31 上传
+

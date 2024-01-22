@@ -8881,3 +8881,11 @@ ras推早该躺躺了（平时没活动。有活动就连着来<img src="https:/
 
 看1st有没有正式pv，会不会公布staff吧
 
+
+*****
+
+####  Kasroz  
+##### 9916#       发表于 2024-1-22 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">剧场版档期会在巡演上公布呢，还是6th
+

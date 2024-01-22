@@ -8551,3 +8551,21 @@ ag已经闹解散一年了<img src="https://static.saraba1st.com/image/smiley/fa
 这期着实没啥意思，梗都没怎么换的，有一种鸽了这么久就这的观感</blockquote>
 毕竟本质吐槽大会，相比较上一期还能整出来点不一样的，还有AMV剪辑。感觉今年确实没有去年那么多槽点
 
+
+*****
+
+####  江口夕  
+##### 9882#       发表于 2024-1-22 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">旧乐队剧情问题已经积重难返了，明明二章就可以完结了还要狗尾续貂，ag的问题自从把摩卡挖掘一下高光了之后，后面剧情都是没活还要整活。
+乐队题材本来适合踏踏实实写细腻生活小故事，这样不仅挖掘人物另一面，也不至于没东西可写。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  skives  
+##### 9883#       发表于 2024-1-22 15:32
+
+为什么不写勇闯娱乐圈的故事<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -714,3 +714,30 @@ ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二
 
 妮基·黑利看照片怎么看都看不出来印度血统啊。
 
+
+*****
+
+####  星零影  
+##### 82#       发表于 2024-1-22 15:26
+
+ 本帖最后由 星零影 于 2024-1-22 15:32 编辑 
+
+这老兄多大年纪了？<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+记错人了
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  剑鹰  
+##### 83#       发表于 2024-1-22 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734743&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 15:15</a>
+
+懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
+说一千道一万，选谁上台不是论坛里口嗨能决定的
+
+所以那怕啥
+
+我就是乐意见到**上台，让美国割裂加剧
+

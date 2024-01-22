@@ -120,3 +120,20 @@
 
 算上石头+70票，LV2抽到一共90抽最后才歪一个+1，吃屎啦金字塔。买完衣服拉倒。某两个不肯来的女人的衣服也不买了，即使胸大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhwpjy  
+##### 883#       发表于 2024-1-22 15:24
+
+好像没用婚纱不会亲亲
+
+*****
+
+####  冰风血羽  
+##### 884#       发表于 2024-1-22 15:25
+
+新池子30连沉了……
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

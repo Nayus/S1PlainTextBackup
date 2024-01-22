@@ -1182,3 +1182,28 @@ DeSantis非要去抢MAGA正统确实没什么意义
 
 — from Razer Phone 2, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  bwjsif  
+##### 126#       发表于 2024-1-22 16:46
+
+Haley现在不退选就是尝试吸引共和党建制派支持，找个大腿抱。就明知选不上也要表态嘛。
+DeSantis早就有懂王的大腿，有退路的。
+
+倒是民主党方面真的迷，真准备赌登子死任上啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RlphaDo  
+##### 127#         楼主| 发表于 2024-1-22 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735903&amp;ptid=2168993" target="_blank">bwjsif 发表于 2024-1-22 16:46</a>
+
+Haley现在不退选就是尝试吸引共和党建制派支持，找个大腿抱。就明知选不上也要表态嘛。
+
+DeSantis早就有懂王 ...</blockquote>
+一个在台上的总统是所有情况里最难控制的了，我猜是凳子自己要选的。
+

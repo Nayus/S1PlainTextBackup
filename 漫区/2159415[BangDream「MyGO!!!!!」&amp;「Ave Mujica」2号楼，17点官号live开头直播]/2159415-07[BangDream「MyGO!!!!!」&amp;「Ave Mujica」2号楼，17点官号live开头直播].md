@@ -8487,3 +8487,14 @@ Taki之前老军训Staff A还间接导致她在老同学面前出丑，Staff A�
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  屑猫猫  
+##### 9875#       发表于 2024-1-22 12:42
+
+兰这想法到底维持几年了，倒是别一直让ag被消耗啊，感觉队友间矛盾有些强行。而且ag不是青梅系乐队<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4516d427c15ec38d440eed2da3c3f256/CMP_20240122124100270.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

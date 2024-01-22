@@ -783,3 +783,59 @@ power abuse是吧？
 懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
 自由市场，国家强力你到底信哪个？哦信哪个你也得不出这结论，你信的应该是我大米粒尖天下无敌
 
+
+*****
+
+####  矛战  
+##### 88#       发表于 2024-1-22 15:48
+
+只有**能给俺们乐子人带来欢乐～
+
+*****
+
+####  能代  
+##### 89#       发表于 2024-1-22 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731606&amp;ptid=2168993" target="_blank">kingsin 发表于 2024-1-22 10:54</a>
+
+古罗马有东西二帝，neo罗马也可以有两个总统啊</blockquote>
+问题人家只是迦太基啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  形式主义  
+##### 90#       发表于 2024-1-22 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734189&amp;ptid=2168993" target="_blank">v_lancelot 发表于 2024-1-22 14:29</a>
+
+ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二 趁着余威还在 赶紧金盆洗手  武林盟主我不当了  ...</blockquote>
+**的意思更像是，老子不当老大，你看看世界会不会乱。老二敢接这个屎盘子么，不敢吧，你们这群屎快给钱，否则老子不管你们这群屎了
+
+
+*****
+
+####  中国科学院  
+##### 91#       发表于 2024-1-22 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63733307&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 13:06</a>
+
+还是祈祷登子健康吧，懂王上位对中国是个超大的黑天鹅。登子毕竟按常理出牌，懂王太不可预测了，经济最怕不 ...</blockquote>
+就凭懂王薅家养狗毛断野生狗粮就支持懂王
+
+*****
+
+####  形式主义  
+##### 92#       发表于 2024-1-22 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734743&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 15:15</a>
+
+懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
+最多转口贸易，还铁幕，再说懂王任期四年哦，建厂建产线来得及么。要这么预期的，早就该移了
+
+*****
+
+####  铁自闭  
+##### 93#       发表于 2024-1-22 15:52
+
+我支持懂王 他梗多
+

@@ -1110,3 +1110,75 @@ DeSantis非要去抢MAGA正统确实没什么意义
 黑莉当不了总统，明摆的，美国可以接受一个黑人总统，也可以接受一个女总统，但是黑人女总统还是太早了 ...</blockquote>
 黑莉：老娘虽然名字里有个中文黑字，但是老娘是黄种人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jamboo  
+##### 121#       发表于 2024-1-22 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735524&amp;ptid=2168993" target="_blank">只贫不论某浩 发表于 2024-1-22 16:17</a>
+
+懂王还是睡王，谁上对美国人民有利，最终取决于东大。对于东大远期目标来看，睡王更符合东大利益。懂王上台 ...</blockquote>
+大差不差，比起明着恶心你，暗地里偷鸡摸狗更恶心些。
+
+*****
+
+####  双面人  
+##### 122#       发表于 2024-1-22 16:33
+
+<blockquote>LilyWhite 发表于 2024-1-22 16:23
+大不了阴兵对阴兵咯</blockquote>
+要是有阴兵使用权限还至于输2020吗，懂王动用阴兵取胜的可能性不如睡王用使用阴兵的罪名送懂王入狱呢
+
+*****
+
+####  费雷拉  
+##### 123#       发表于 2024-1-22 16:35
+
+其实我觉得，正是因为理性，才会促进脱钩和敌对。
+
+懂王可能是误打误撞
+
+但后续民主党跟进，包括芯片禁令什么的，是因为发现新版本就该这么玩
+
+之前觉得不该，是完全忽略了网络新时代，信息高速流通下，民意的变化路径已经相对传统传媒时代变形了。
+
+现在是一个树敌丢锅异常方便的时代。
+
+小到互联网茧房，大到一国民意，只要有个敌对势力摆在那，冲突一旦发生，哪怕是己方单方面动手，民意也会自动加强敌我认知，
+
+因为对面的民意也会高速传递过来。挂傻逼、大翻译是群众最喜闻乐见的娱乐活动。
+
+哪怕关税和制裁是提高国民生活成本，东大在那存在着，那就是一定是东大的问题。
+
+哪怕你没有反制措施，没还手，也是你为什么还没死啊的，你没死才是万恶之源的问题。
+
+同理中东也是这个玩法，哪怕是己方挑起争端，那也是敌对方的问题。
+
+往前追溯谁不会啊，历史都是各自有各自的写法，最后信息传播后主流共识就是对方先动手的。
+
+以小见大，现在是不死不休的时代。
+
+*****
+
+####  jamboo  
+##### 124#       发表于 2024-1-22 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735625&amp;ptid=2168993" target="_blank">冤枉呐 发表于 2024-1-22 16:25</a>
+
+就怕对俄缓和，普子又构</blockquote>
+缓和了普构必构的，主动送上来的台阶为什么不下？
+
+但向东看的战略方向是不可能回头了。
+
+*****
+
+####  ↓↘→AB  
+##### 125#       发表于 2024-1-22 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734743&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 15:15</a>
+懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
+你比懂王都懂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">懂王收关税是要钱，你这硬脱钩是要命。
+
+— from Razer Phone 2, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

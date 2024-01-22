@@ -8596,3 +8596,13 @@ hhw在土豪斗法，ras在本格乐队大战赚米乐队，ag和ppp在讨论留
 hhw在土豪斗法，ras在本格乐队大战赚米乐队，蝶在大战理事长 ...</blockquote>
 现在感觉让狗打天梯比给乐奈洗澡都难<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">等啥时候立希话语权上来再说
 
+
+*****
+
+####  Steel.Haze  
+##### 9886#       发表于 2024-1-22 16:56
+
+台长真是真爱。
+
+不过呀......做了一个月....你说的机战MyGO的AMV呢？为什么没有？不应该拿高达00剪一个整活吗？
+

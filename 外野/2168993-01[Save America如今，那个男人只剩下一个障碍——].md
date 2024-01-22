@@ -1207,3 +1207,35 @@ Haley现在不退选就是尝试吸引共和党建制派支持，找个大腿抱
 DeSantis早就有懂王 ...</blockquote>
 一个在台上的总统是所有情况里最难控制的了，我猜是凳子自己要选的。
 
+
+*****
+
+####  redsouris  
+##### 128#       发表于 2024-1-22 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734743&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 15:15</a>
+懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
+台积电就像你说的一样把人也挪过去了，然后呢？
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  宏.  
+##### 129#       发表于 2024-1-22 16:59
+
+<blockquote>佛剑分说 发表于 2024-1-22 16:30
+黑莉：老娘虽然名字里有个中文黑字，但是老娘是黄种人</blockquote>
+美国人能分的清吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宏.  
+##### 130#       发表于 2024-1-22 17:00
+
+<blockquote>RlphaDo 发表于 2024-1-22 16:25
+懂王核心的是对内政策啊，他对外都搞战略收缩了还能咋压力...
+
+凳子对外也蛮离谱的，跑沙特要石油张口就 ...</blockquote>
+8年前我们就知道ukw收缩是个笑话，怎么今天你还信
+

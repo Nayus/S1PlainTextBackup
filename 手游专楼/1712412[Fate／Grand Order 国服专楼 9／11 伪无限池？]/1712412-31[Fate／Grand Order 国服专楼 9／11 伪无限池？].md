@@ -92,3 +92,14 @@
 
 又长草了，烟雾镜还不来，急急急急急急
 
+
+*****
+
+####  姬萩九郎  
+##### 45932#       发表于 2024-1-22 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686230&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2024-1-18 10:25</a>
+
+为了省道满现在五加成刷qp中，问就是没有faker不能走双哈贝喵faker……反正我中间弃坑也错过了医生礼装，缺 ...</blockquote>
+豆爹+哈贝喵+C呆可以6加成，是担心圣剑的磨损吗
+

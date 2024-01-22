@@ -8498,3 +8498,13 @@ Taki之前老军训Staff A还间接导致她在老同学面前出丑，Staff A�
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NODY  
+##### 9876#       发表于 2024-1-22 12:44
+
+ag已经闹解散一年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如吐槽为什么这次团活轮换又出问题，ras直接被跳了，难不成真是工艺蛋留的存货不够用需要调整节奏
+

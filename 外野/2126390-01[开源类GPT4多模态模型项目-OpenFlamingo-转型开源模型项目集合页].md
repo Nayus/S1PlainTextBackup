@@ -28426,3 +28426,41 @@ github项目主页:https://github.com/fanqiwan/KCA
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1212#       发表于 2024-1-23 02:28
+
+FuseLLM
+
+大型语言模型的知识融合(Knowledge Fusion)
+
+github项目地址:https://github.com/fanqiwan/FuseLLM
+
+通过从头开始训练大型语言模型(LLM)，可以构建具有独特功能和优势的模型，但这会付出巨大的成本，且有可能导致冗余的能力，相反，一种高效且瞩目的方法是将现有的预训练LLM合并成一个更强大的模型
+
+然而，由于这些LLM的架构不同，直接混合它们的权重是不可行的，在本文中，引入了LLM的知识融合概念，旨在将现有LLM的能力结合起来，并将其转移到单个LLM中，通过利用源LLM的生成分布，外化了它们的集体知识和独特优势，从而提升目标模型的能力，并超越任何单个的源LLM的能力
+
+使用具有不同架构的三种流行LLM(Llama-2、MPT和OpenLLaMA)在各种基准和任务中验证了本文方法，研究结果表明，LLM的融合可以提高目标模型在推理、常识和代码生成等多个能力方面的性能
+
+github项目页说明截图:
+
+<img src="https://img.saraba1st.com/forum/202401/23/022821bw13bmxfxluyfh00.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-022719.jpg</strong> (239.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:28 上传
+
+<img src="https://img.saraba1st.com/forum/202401/23/022821vzxapzwapt3qxun1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-022741.jpg</strong> (670.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -8969,3 +8969,11 @@ https://x.com/saihu715/status/1748270671153774943?s=20
 
 武士道的弱智程度  我怎么觉得1st什么都不会有呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 9926#       发表于 2024-1-23 02:25
+
+1st大概率毛都不会公布
+

@@ -1257,3 +1257,24 @@ MX-5从初代到现在就没有硬顶的。</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  杨千fa单推人  
+##### 122#       发表于 2024-1-22 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730032&amp;ptid=2168461" target="_blank">无印凉粉 发表于 2024-1-22 08:52</a>
+
+我第一听说要强调自动敞篷的，一般我们说的自动手动指的是变速器。
+
+恭喜你终于帮人家圆上了 ...</blockquote>
+mx5真的要强调，而且分4种版本全都有，软顶是纯手动软顶没有电动机构，硬顶是自动开关的
+
+自动软顶，自动硬顶
+
+手动软顶，手动硬顶
+
+其中自动软顶比较少，我最想要的版本但是国内平行进口一般不进这个版本<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+再往下还要分加拿大版和墨西哥版，加拿大版配置更高，会有lsd和头枕音响之类的，也比墨西哥版贵
+

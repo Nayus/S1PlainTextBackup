@@ -1213,3 +1213,11 @@ rawkuma1.4.28更新了啥？
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  acalephs  
+##### 97#       发表于 2024-1-22 09:43
+
+J2K也更新了，可以自定义插件列表了
+

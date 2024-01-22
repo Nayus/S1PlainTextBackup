@@ -1941,3 +1941,13 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 
 【【1月】奇异贤伴 黑色天使 SYNDUALITY Noir 第15话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/P9r7alu](https://b23.tv/P9r7alu)    预告的中文翻译
 
+
+*****
+
+####  novyMS  
+##### 3499#       发表于 2024-1-22 22:43
+
+准备上线看直播了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

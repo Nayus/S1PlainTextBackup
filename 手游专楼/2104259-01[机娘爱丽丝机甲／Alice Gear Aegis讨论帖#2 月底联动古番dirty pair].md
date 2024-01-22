@@ -163,3 +163,14 @@
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wilkyway  
+##### 888#       发表于 2024-1-22 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63739330&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-1-22 22:19</a>
+趁着有自选跟送装备问一下，想换个毛妹妮娜，选原版还是AN？装备怎么选？另外我四属性角色里橙色框中都没有 ...</blockquote>
+原版双精通硬一点an近接特化方便插件还有sp充能被动 看你喜欢哪个吧（ 
+换装备如果不是每天联机打满可以挑那几个派生的优先换省点素材？
+

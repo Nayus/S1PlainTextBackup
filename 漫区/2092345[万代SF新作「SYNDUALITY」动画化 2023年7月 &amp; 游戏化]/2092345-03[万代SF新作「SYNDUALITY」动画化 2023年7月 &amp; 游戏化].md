@@ -2142,3 +2142,11 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
   -- 来自 能搜索的 Stage1 ...</blockquote>
 水魔里机体是高达就已经赢马桶太多了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过yysy这集鸡儿勃一身新装备还挺帅的，就是相比之下显得男主的机体又挫又土
 
+
+*****
+
+####  6030sylar  
+##### 3522#       发表于 2024-1-22 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大哥永远是你大哥
+

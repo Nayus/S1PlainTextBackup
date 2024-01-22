@@ -6247,3 +6247,11 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 欧 羡慕 狗萌新太欧了 两次单抽出限定五星</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">虽然但是 正雪啊 萌新的正雪啊
 
+
+*****
+
+####  乾理央  
+##### 11087#       发表于 2024-1-23 01:14
+
+这玩意儿应该后续会放主线里面，怎么会塞砍柱子
+

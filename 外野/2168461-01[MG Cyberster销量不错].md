@@ -1381,3 +1381,19 @@ IT之家 1 月 21 日消息，国产纯电小跑车 SC01 首台白车身已于 1
 
 就比如说光冈<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FurryBall  
+##### 131#       发表于 2024-1-22 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731041&amp;ptid=2168461" target="_blank">杨千fa单推人 发表于 2024-1-22 10:13</a>
+但是能做好跑车的小作坊也不少
+
+就比如说光冈
+
+其实我觉得国内能出专门的跑车品牌反而应该期 ...</blockquote>
+是的，这个“小作坊”有日本的生产资质，产品通过型式试验，造的是200万以上的跑车
+
+当然也不代表有这些资质造的就是好车，只不过没这些资质的“车企”造的车我是不敢坐的
+

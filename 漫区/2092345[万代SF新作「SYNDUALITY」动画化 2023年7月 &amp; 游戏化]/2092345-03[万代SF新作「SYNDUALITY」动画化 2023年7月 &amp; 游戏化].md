@@ -2108,3 +2108,37 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 
 话说pv画面应该是已经全部回收了？这次有够快的
 
+
+*****
+
+####  NeloAngelo  
+##### 3519#       发表于 2024-1-22 23:37
+
+所以海报上 大哥 才和 歌姬,黑假面他们组织都是黑衣啊.  
+除了去太空后的世界观展开, 还要写大哥他们组织的过去.
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  UnrealApartheid  
+##### 3520#       发表于 2024-1-22 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63739790&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-01-22 23:12:36</a>
+呜哇，又是决斗（</blockquote>与水星魔女里阿斯提卡西亚高等专门学园发生的多次决斗相比，哪个表现更好呢？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RE㐅ia  
+##### 3521#       发表于 2024-1-22 23:40
+
+ 本帖最后由 RE㐅ia 于 2024-1-22 23:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63740012&amp;ptid=2092345" target="_blank">UnrealApartheid 发表于 2024-1-22 23:38</a>
+
+与水星魔女里阿斯提卡西亚高等专门学园发生的多次决斗相比，哪个表现更好呢？
+
+  -- 来自 能搜索的 Stage1 ...</blockquote>
+水魔里机体是高达就已经赢马桶太多了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过yysy这集鸡儿勃一身新装备还挺帅的，就是相比之下显得男主的机体又挫又土
+

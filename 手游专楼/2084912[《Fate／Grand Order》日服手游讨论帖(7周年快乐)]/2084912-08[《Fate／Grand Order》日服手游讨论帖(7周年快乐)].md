@@ -6236,3 +6236,14 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 啊？ 我正雪呢 到底谁才是5星</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 狗萌新太欧了 两次单抽出限定五星
 
+
+*****
+
+####  alucardcz  
+##### 11086#       发表于 2024-1-22 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63739934&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-22 23:29</a>
+
+欧 羡慕 狗萌新太欧了 两次单抽出限定五星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">虽然但是 正雪啊 萌新的正雪啊
+

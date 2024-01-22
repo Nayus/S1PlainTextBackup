@@ -596,3 +596,29 @@ you know who？
 
 2028年感觉会是纽森大战德桑蒂斯？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jamboo  
+##### 70#       发表于 2024-1-22 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63733949&amp;ptid=2168993" target="_blank">第七日魔人 发表于 2024-1-22 14:08</a>
+
+ukw是什么黑话？
+
+you know who？
+
+伏地魔吗</blockquote>
+郁可唯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v_lancelot  
+##### 71#       发表于 2024-1-22 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63733307&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-01-22 13:06:21</a>
+还是祈祷登子健康吧，懂王上位对中国是个超大的黑天鹅。登子毕竟按常理出牌，懂王太不可预测了，经济最怕不 ...</blockquote>ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二 趁着余威还在 赶紧金盆洗手  武林盟主我不当了 提桶跑路回老家 至少还能守住自己美洲一亩三分地
+但这不符合东大的利益 东大认为目前自己实力不足以接班号令群雄  更希望西大坐在盟主的位子上多干几年 等自己做好准备再死
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

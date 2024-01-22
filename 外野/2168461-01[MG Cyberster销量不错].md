@@ -1527,3 +1527,25 @@ mx5 到 20w 我真会支持一台。回到 mg，我只能说，不看标，实�
 这玩意怎么看都是z4那种吧，为啥都拿mx5比</blockquote>
 z4太丑，知名度比mx5还低
 
+
+*****
+
+####  杨千fa单推人  
+##### 143#       发表于 2024-1-22 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734093&amp;ptid=2168461" target="_blank">DeepFishing 发表于 2024-1-22 14:20</a>
+
+z4太丑，知名度比mx5还低</blockquote>
+我觉得新款z4比旧款好看太多了
+
+特别是没引进要平行进口的硬顶z4，我觉得比supra 还好看
+
+*****
+
+####  蓝川澈  
+##### 144#       发表于 2024-1-22 14:31
+
+非键盘神教，我选自动变速箱，毕竟马自达变速箱调的是真好。真要玩手波我肯定不买新车，买二手烂仔车玩去了。喜欢硬顶rf版本是因为配置高隔音好更家用，软顶实际开过才知道不那么美好。mx5高配自动变速箱rf版啥时候20多，大概率会是我最后一辆油车。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

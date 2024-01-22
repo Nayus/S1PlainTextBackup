@@ -28324,3 +28324,105 @@ Mementos上不同MLLM之间的行为幻觉和物体幻觉之间的相关系数
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1211#       发表于 2024-1-23 02:11
+
+KCA
+
+通过知识一致对齐减轻大型语言模型的幻觉
+
+github项目主页:https://github.com/fanqiwan/KCA
+
+尽管大型语言模型(LLM)在经过对齐后在各种任务上都表现超常，但它们仍然可能会产生与上下文或世界知识相矛盾的回复，这种现象被称为“幻觉”
+
+在本文中，展示了通过减少训练数据中所包含的外部知识与预训练语料库中所继承的内在知识之间的不一致性，可以减轻幻觉在对齐后的出现
+
+具体而言，引入了一种新颖的知识一致对齐(KCA/knowledge consistent alignment)方法，该方法涉及基于外部知识自动制定检查来评估LLM的理解能力，对于包含的知识不一致的数据，KCA采用了几种简单而高效的处理策略
+
+通过使用不同基础架构和规模的LLM在六个基准测试中展示了所提出的KCA方法在减轻幻觉方面的卓越性能，此外，确认了知识不一致性与幻觉之间的相关性，表明了减少知识不一致性在减轻幻觉方面的有效性
+
+<img src="https://img.saraba1st.com/forum/202401/23/021046iu55n6rlj55fk5f5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-020718__01.jpg</strong> (165.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:10 上传
+
+预训练语料库和对齐训练数据之间的不一致性，这使得语言模型倾向于在对齐后产生有说服力但幻觉的回复
+
+<img src="https://img.saraba1st.com/forum/202401/23/021055k45z5e4ioz54igqe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-020738__01.jpg</strong> (134.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:10 上传
+
+在各种基准测试中，经过指令调整的7B基础语言模型(Pythia，Llama-2和Mistral)在不同的知识不一致百分比下的幻觉率(y轴)
+
+<img src="https://img.saraba1st.com/forum/202401/23/021100awvvm73c6rd6gt7w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-020800__01.jpg</strong> (561.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:11 上传
+
+提出的KCA方法通过知识一致对齐来减轻幻觉，首先通过制定检查方法(左侧)检测知识不一致，然后使用开卷式、丢弃式和拒绝式调整(open-book, discarding, and refusal tuning)(右侧)处理包含不一致性的训练数据
+
+<img src="https://img.saraba1st.com/forum/202401/23/021107r76kzlul5kbnt5kb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-020807__01.jpg</strong> (192.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:11 上传
+
+不同基础语言模型在不同训练和评估数据集上的一致子集Dc和不一致子集Di的百分比，对于7B规模的基础语言模型，Pythia在Di的百分比上高于Llama-2和Mistral，Llama-2 13B相比Llama-2 7B，Di百分比降低
+
+<img src="https://img.saraba1st.com/forum/202401/23/021117juxaua9sikgeuuru.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-020818__01.jpg</strong> (496.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:11 上传
+
+使用GPT-4测量不同基础语言模型、调整方法和基准测试上的幻觉率以进行对比，更低的比率代表更好的性能，将包括开卷式调整、丢弃式调整和拒绝式调整在内的KCA方法与标准调整基线进行对比，请注意，对于拒绝式调整，只对非拒绝的回复进行评估
+
+<img src="https://img.saraba1st.com/forum/202401/23/021122h9p9292p1tnpihsh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-020825__01.jpg</strong> (184.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:11 上传
+
+在拒绝式调整下，拒绝回复和非拒绝回复的指令的平均幻觉率，为了衡量拒绝回复的指令的幻觉率，使用标准调整基线在不同基础语言模型和基准测试上生成回复，具有拒绝式回复的指令显示出相比具有非拒绝回复的指令更高的幻觉率
+
+<img src="https://img.saraba1st.com/forum/202401/23/021131h0z4d69qqddv2hwl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-020842__01.jpg</strong> (471.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:11 上传
+
+使用ROUGE-1、ROUGE-2和ROUGE-L对生成的输出和参考答案进行对比，将包括开卷式调整、丢弃式调整和拒绝式调整在内的KCA方法与标准调整基线进行对比，请注意，对于拒绝式调整，只对非拒绝的回复进行评估
+
+<img src="https://img.saraba1st.com/forum/202401/23/021143utdlrzt3f8rdue99.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-020847__01.jpg</strong> (423.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 02:11 上传
+
+使用GPT-4测量的有帮助性分数，区间在1(最差)到10(最好)之间，对比了不同基础语言模型、调整方法和基准测试，将包括开卷式调整、丢弃式调整和拒绝式调整在内的KCA方法与标准调整基线进行对比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

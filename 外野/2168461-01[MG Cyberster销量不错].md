@@ -1549,3 +1549,33 @@ z4太丑，知名度比mx5还低</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  蔡小贫  
+##### 145#       发表于 2024-1-22 14:40
+
+敞篷小跑谁不想要，主要还是mx5太贵了
+
+*****
+
+####  Vora  
+##### 146#       发表于 2024-1-22 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63732378&amp;ptid=2168461" target="_blank">a479281660 发表于 2024-1-22 11:46</a>
+
+价格，同价位
+
+—— 来自 OPPO PGT110, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+mx5都2x万了吧，之前40万是冤大头价
+
+*****
+
+####  Vora  
+##### 147#       发表于 2024-1-22 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734093&amp;ptid=2168461" target="_blank">DeepFishing 发表于 2024-1-22 14:20</a>
+
+z4太丑，知名度比mx5还低</blockquote>
+mx5那孱弱的动力，hmm
+

@@ -622,3 +622,14 @@ you know who？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  女神アイギス  
+##### 72#       发表于 2024-1-22 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734189&amp;ptid=2168993" target="_blank">v_lancelot 发表于 2024-1-22 14:29</a>
+
+ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二 趁着余威还在 赶紧金盆洗手  武林盟主我不当了  ...</blockquote>
+我感觉懂王的意思不是当老二，而是打算复刻一次西大以前变成老一的流程<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

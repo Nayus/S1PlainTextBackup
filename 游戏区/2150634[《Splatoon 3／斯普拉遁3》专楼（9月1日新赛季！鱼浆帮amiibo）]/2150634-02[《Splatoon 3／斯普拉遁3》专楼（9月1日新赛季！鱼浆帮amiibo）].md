@@ -10422,3 +10422,39 @@ ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="ht
 
 鱼肉碎金属的关闭时间官推一开始写错了，订正的正确时间是23日上午八点-25日上午十点。
 
+
+*****
+
+####  罗克萨斯  
+##### 2544#       发表于 2024-1-22 21:35
+
+贴牌电锯太恶心了！研究所到底是抱着什么样的想法出这种贴牌的<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+我要是有奶狗拉的枪法，可以正面直接爆头就好了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  晴岚  
+##### 2545#       发表于 2024-1-22 21:38
+
+<img src="https://img.saraba1st.com/forum/202401/22/213741gt9we9w7wjgrzhh6.jpg" referrerpolicy="no-referrer">
+
+<strong>371A8179-6ECE-4009-8A87-A6E495827FF7.jpg</strong> (456.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 21:37 上传
+
+本身喇叭不参与团战就已经是在3打4了，然后还全程被消防栓遛狗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Ryuuseigun  
+##### 2546#       发表于 2024-1-22 21:39
+
+但是雷神加速喷射战士是是免费啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

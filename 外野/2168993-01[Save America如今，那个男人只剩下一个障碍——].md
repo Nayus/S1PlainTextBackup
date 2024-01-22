@@ -633,3 +633,20 @@ you know who？
 ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二 趁着余威还在 赶紧金盆洗手  武林盟主我不当了  ...</blockquote>
 我感觉懂王的意思不是当老二，而是打算复刻一次西大以前变成老一的流程<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寇马可  
+##### 73#       发表于 2024-1-22 14:46
+
+别的不说，ykw当选那几年，简中网上真是清净，狗没粮都叫不动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  RlphaDo  
+##### 74#         楼主| 发表于 2024-1-22 14:51
+
+懂王其实还好，上台也是干最后一个任期，做不出什么特别出格的事的，想办法搞东大不如想办法让自己千秋万代谋求政策统一再搞东大，这样可行性大得多。
+

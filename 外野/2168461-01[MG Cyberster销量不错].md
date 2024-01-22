@@ -1579,3 +1579,16 @@ mx5都2x万了吧，之前40万是冤大头价
 z4太丑，知名度比mx5还低</blockquote>
 mx5那孱弱的动力，hmm
 
+
+*****
+
+####  菲特妹  
+##### 148#       发表于 2024-1-22 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734220&amp;ptid=2168461" target="_blank">蓝川澈 发表于 2024-1-22 14:31</a>
+
+非键盘神教，我选自动变速箱，毕竟马自达变速箱调的是真好。真要玩手波我肯定不买新车，买二手烂仔车玩去了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以你们天天喊买的这个二十多是多少嘛
+
+现在自动硬顶28，手动软顶27<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

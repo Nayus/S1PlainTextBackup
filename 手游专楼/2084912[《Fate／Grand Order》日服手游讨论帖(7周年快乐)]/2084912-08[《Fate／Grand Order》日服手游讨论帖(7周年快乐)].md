@@ -6255,3 +6255,31 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 这玩意儿应该后续会放主线里面，怎么会塞砍柱子
 
+
+*****
+
+####  Jamaisvu  
+##### 11088#       发表于 2024-1-23 01:43
+
+逛街剧情感觉有点修罗场，三人行的构图看着好逗啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">武尊的差分很适合当表情包。
+
+当看到对家CP的粮：
+
+<img src="https://img.saraba1st.com/forum/202401/23/014101oubj2tniacbm11t4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123_013321_com.aniplex.fategrandorder.jpg</strong> (268.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:41 上传
+
+当吃到自家CP的粮：
+
+<img src="https://img.saraba1st.com/forum/202401/23/014122nin4m5qiiywy1wnv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123_013851_com.aniplex.fategrandorder.jpg</strong> (270.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:41 上传
+

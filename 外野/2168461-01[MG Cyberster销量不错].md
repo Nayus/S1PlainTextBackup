@@ -1247,3 +1247,13 @@ MX-5从初代到现在就没有硬顶的。</blockquote>
 电车尺寸小不了，底下一块电池撑着呢……</blockquote>
 明明是两座车，其实完全可以和跑车一样电池中置啊<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeepFishing  
+##### 121#       发表于 2024-1-22 09:30
+
+太贵，太肥，太重，和mx5完全不同，肥大电爹一点都不稀奇
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1346,3 +1346,33 @@ DeSantis早就有懂王 ...</blockquote>
 
 —— 来自 motorola XT2321-2, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  smysmy3  
+##### 141#       发表于 2024-1-22 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736540&amp;ptid=2168993" target="_blank">宏 发表于 2024-1-22 17:35</a>
+
+可惜当年专楼砍了，不然现在看很有意思</blockquote>
+客观的讲懂王还是收缩了的，毕竟既没有像小树丛打伊拉克也没像奥巴马搞阿拉伯之春。也没像拜登援乌，只是炸死个苏莱曼尼。懂王的对外核心政策就是经济敲诈，剿匪的本事和胆子都没有但是借机收钱的胆子很本事不止有还很大。
+
+*****
+
+####  宏  
+##### 142#       发表于 2024-1-22 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736697&amp;ptid=2168993" target="_blank">smysmy3 发表于 2024-1-22 17:46</a>
+
+客观的讲懂王还是收缩了的，毕竟既没有像小树丛打伊拉克也没像奥巴马搞阿拉伯之春。也没像拜登援乌，只是 ...</blockquote>
+问题不是收缩，问题是越收缩离MAGA越远，登子也许只是个裱糊匠，但UKW肯定不是建筑师而是拆迁工
+
+*****
+
+####  nukacolamania  
+##### 143#       发表于 2024-1-22 17:52
+
+美国最好别有连任总统，充分发挥两党执政优势，每4年换一套班子把前4年政策推翻了从头再来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

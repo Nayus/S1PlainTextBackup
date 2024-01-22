@@ -8977,3 +8977,17 @@ https://x.com/saihu715/status/1748270671153774943?s=20
 
 1st大概率毛都不会公布
 
+
+*****
+
+####  基神的强袭自由  
+##### 9927#       发表于 2024-1-23 03:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735044&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-22 15:39</a>
+勇闯娱乐圈是萝、pp还有未来的鸡的主线
+
+hhw在土豪斗法，ras在本格乐队大战赚米乐队，蝶在大战理事长 ...</blockquote>
+不是打TI？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -8583,3 +8583,16 @@ hhw在土豪斗法，ras在本格乐队大战赚米乐队，ag和ppp在讨论留
 
 现在除了画风不同论外的hhw，最轻松的就是喝茶顺便感受一下青春期烦恼的狗了，除非真的想不开要去打天梯
 
+
+*****
+
+####  swessia  
+##### 9885#       发表于 2024-1-22 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735044&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-22 15:39</a>
+
+勇闯娱乐圈是萝、pp还有未来的鸡的主线
+
+hhw在土豪斗法，ras在本格乐队大战赚米乐队，蝶在大战理事长 ...</blockquote>
+现在感觉让狗打天梯比给乐奈洗澡都难<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">等啥时候立希话语权上来再说
+

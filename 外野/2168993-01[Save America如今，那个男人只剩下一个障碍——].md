@@ -941,3 +941,117 @@ ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二
 
 作为8年前就认定ukw会打毛衣战的人，我先预测一下，ukw这次只要不死于非命，卷土重来的可能性相当大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑兽  
+##### 104#       发表于 2024-1-22 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63733307&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 13:06</a>
+
+还是祈祷登子健康吧，懂王上位对中国是个超大的黑天鹅。登子毕竟按常理出牌，懂王太不可预测了，经济最怕不 ...</blockquote>
+可预测这些年了也没见搞成啥事，反而在舒适区摆烂，还不如大破大立
+
+*****
+
+####  宏  
+##### 105#       发表于 2024-1-22 16:14
+
+ 本帖最后由 宏 于 2024-1-22 16:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735469&amp;ptid=2168993" target="_blank">佛剑分说 发表于 2024-1-22 16:13</a>
+
+希望懂王能不忘初心，就像上次上台把所有奥黑政策一个不留全部清算一样，全面清算老登的所有政策 ...</blockquote>
+对对，我就等着看阿尔忒弥斯计划，亚利桑那台积电，IRA法案这三个先砍哪个呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佛剑分说  
+##### 106#       发表于 2024-1-22 16:15
+
+黑莉的金主是科赫兄弟，应该是比较周密的布局，一开始就奔着副总统去的
+
+*****
+
+####  宏  
+##### 107#       发表于 2024-1-22 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735497&amp;ptid=2168993" target="_blank">佛剑分说 发表于 2024-1-22 16:15</a>
+
+黑莉的金主是科赫兄弟，应该是比较周密的布局，一开始就奔着副总统去的</blockquote>
+黑莉当不了总统，明摆的，美国可以接受一个黑人总统，也可以接受一个女总统，但是黑人女总统还是太早了
+
+*****
+
+####  佛剑分说  
+##### 108#       发表于 2024-1-22 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63733307&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 13:06</a>
+
+还是祈祷登子健康吧，懂王上位对中国是个超大的黑天鹅。登子毕竟按常理出牌，懂王太不可预测了，经济最怕不 ...</blockquote>
+登子如果上台，就是无所畏惧的第二任期，既没有连任压力，甚至他本人都没几年好活了，他的常理性也未必高到哪里去
+
+*****
+
+####  只贫不论某浩  
+##### 109#       发表于 2024-1-22 16:17
+
+懂王还是睡王，谁上对美国人民有利，最终取决于东大。对于东大远期目标来看，睡王更符合东大利益。懂王上台，收缩政策，与欧洲脱钩，与中东减少摩擦，与毛熊其乐融融，都是有可能的，东大可能不太乐于见到。
+
+*****
+
+####  RlphaDo  
+##### 110#         楼主| 发表于 2024-1-22 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735445&amp;ptid=2168993" target="_blank">佛剑分说 发表于 2024-1-22 16:10</a>
+
+谁说一下子脱钩到零了？倒是你，太高看美国老百姓的自主性和理性了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那这种慢速脱钩就根本不是一个总统能控制的事情了，你信美国有政策连续性吗，就算有连续性那得操作多久？懂王废宪改帝制然后再操作都更靠谱点
+
+btw，贸易战在中美贸易的大背景下究竟影响了多少？这里有一组数据可供参考：2017年全年中美贸易总额5837亿美元，2022年中美贸易总额7584亿美元，贸易战被定义为2018年开始，那我们可以惊讶的发现，贸易战开始的4年，中美贸易总额居然增长了接近30%<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RlphaDo  
+##### 111#         楼主| 发表于 2024-1-22 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735493&amp;ptid=2168993" target="_blank">宏 发表于 2024-1-22 16:14</a>
+
+对对，我就等着看阿尔忒弥斯计划，亚利桑那台积电，IRA法案这三个先砍哪个呢 ...</blockquote>
+三个他妈的没一个靠谱的，这边的建议是全砍了
+
+*****
+
+####  宏  
+##### 112#       发表于 2024-1-22 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735524&amp;ptid=2168993" target="_blank">只贫不论某浩 发表于 2024-1-22 16:17</a>
+
+懂王还是睡王，谁上对美国人民有利，最终取决于东大。对于东大远期目标来看，睡王更符合东大利益。懂王上台 ...</blockquote>
+ukw三年前的政策明摆着突出一个外强中干，登子重回冷战老套路反而是更有压力一点，我不信今天ukw重新上台政策就有什么方法论上的变化
+
+*****
+
+####  黑兽  
+##### 113#       发表于 2024-1-22 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735524&amp;ptid=2168993" target="_blank">只贫不论某浩 发表于 2024-1-22 16:17</a>
+
+懂王还是睡王，谁上对美国人民有利，最终取决于东大。对于东大远期目标来看，睡王更符合东大利益。懂王上台 ...</blockquote>
+这跟大棋党阴谋论有什么区别，再忍一忍就autowin？再远期腚力下去怕是长短目标全都落空
+
+*****
+
+####  LilyWhite  
+##### 114#       发表于 2024-1-22 16:23
+
+<blockquote>今天不守尸 发表于 2024-1-22 10:59
+不是说睡王有阴兵吗，那懂王怎么赢</blockquote>
+大不了阴兵对阴兵咯
+
+*****
+
+####  黑兽  
+##### 115#       发表于 2024-1-22 16:24
+
+另外泥潭消息也太lag了，黑莉还副总统，做梦啊，跟川作对过就是叛徒小丑，可能性为0，Tom Cotton甚至马斯克可能性都比她大
+

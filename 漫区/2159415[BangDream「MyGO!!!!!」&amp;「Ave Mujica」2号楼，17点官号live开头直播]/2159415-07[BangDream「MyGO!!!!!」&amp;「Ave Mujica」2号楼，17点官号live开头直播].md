@@ -8906,3 +8906,11 @@ https://x.com/panisa319/status/1749109823290102086?s=20
 https://x.com/saihu715/status/1748270671153774943?s=20
 <img src="https://p.sda1.dev/15/5c805977e5c34192db708d46ec1d7b63/8ed6c9166d6b2698.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 9919#       发表于 2024-1-22 22:53
+
+我已经在期待1st，要是公布的staff里绫奈不是系构楼友可以滑坡成什么样了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

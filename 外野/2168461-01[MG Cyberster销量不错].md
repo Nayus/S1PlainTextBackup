@@ -1429,3 +1429,26 @@ YYP的评测就是看钱
 
 工匠派不是刷圈造假名声都臭了么 这种玩意能做出来什么老头乐
 
+
+*****
+
+####  影法师  
+##### 135#       发表于 2024-1-22 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731217&amp;ptid=2168461" target="_blank">silverfoxz 发表于 2024-1-22 10:25</a>
+这样说其实也没错，他就是做平行进口车生意的，MX5还是主推车型，所以我很好奇在他视频里刷”我选MX5“以 ...</blockquote>
+mx5 到 20w 我真会支持一台。回到 mg，我只能说，不看标，实车 mg全方位看起来比 mx5 高级，何况马自达标也不比 mg 高级
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  菲特妹  
+##### 136#       发表于 2024-1-22 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在车贩子mx5自动波软顶不少了，都在小红书卖，主打面向小姐姐
+
+天天喊驾驶乐趣的手波软顶倒是滞销了，现在价格最便宜
+
+手波硬顶才是真的稀缺
+

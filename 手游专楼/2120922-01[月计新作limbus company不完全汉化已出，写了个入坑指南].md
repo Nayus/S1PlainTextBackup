@@ -115,3 +115,27 @@ syl 我现在沉沦队都是三人组带三个散件
 
 那东西合不合没啥区别，反正BOSS都是两回合死
 
+
+*****
+
+####  Jamaisvu  
+##### 528#       发表于 2024-1-22 18:41
+
+新角色技能前瞻，都和十罗差不多，弃牌沉沦：
+
+<img src="https://img.saraba1st.com/forum/202401/22/184133ylbvk66c8skzesv6.jpg" referrerpolicy="no-referrer">
+
+<strong>D4F985368F6B04AD371BCE6BD8187D54.jpg</strong> (437.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 18:41 上传
+
+<img src="https://img.saraba1st.com/forum/202401/22/184134ykb9tsxrut73h3he.jpg" referrerpolicy="no-referrer">
+
+<strong>5A07A94D535FE334E46BE49472CE3DF8.jpg</strong> (464.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 18:41 上传
+

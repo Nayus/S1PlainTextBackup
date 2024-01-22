@@ -1489,3 +1489,28 @@ maga本来就是个口号啊，美国的衰落是一种长期趋势，真以为�
 8年前我们就知道ukw收缩是个笑话，怎么今天你还信</blockquote>
 川粉的核心论点就是川皇冻蒜，至于要用什么理由并不重要。
 
+
+*****
+
+####  smysmy3  
+##### 154#       发表于 2024-1-22 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736752&amp;ptid=2168993" target="_blank">宏 发表于 2024-1-22 17:51</a>
+
+问题不是收缩，问题是越收缩离MAGA越远，登子也许只是个裱糊匠，但UKW肯定不是建筑师而是拆迁工 ...</blockquote>
+什么是maga？懂王的maga就是自己上台。红脖子的maga有不被白左跳脸，有干死非法移民，有全民吃鸡。maga是个非常抽象的概念。完全可以作为一个新兴宗教去理解，懂王自己也在找耶稣背书实际上就在印证这点。所以懂王既不是建筑师也不是拆迁工他就是个神棍。
+
+*****
+
+####  AMekodoku  
+##### 155#       发表于 2024-1-22 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63733949&amp;ptid=2168993" target="_blank">第七日魔人 发表于 2024-1-22 14:08</a>
+ukw是什么黑话？
+
+you know who？
+
+伏地魔吗</blockquote>
+外野版规不可说之人
+熟读版规先，别装外宾。
+

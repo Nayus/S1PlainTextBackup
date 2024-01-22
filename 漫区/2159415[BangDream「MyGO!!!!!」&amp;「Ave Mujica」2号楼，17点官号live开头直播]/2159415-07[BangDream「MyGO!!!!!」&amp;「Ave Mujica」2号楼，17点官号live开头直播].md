@@ -8614,3 +8614,22 @@ hhw在土豪斗法，ras在本格乐队大战赚米乐队，蝶在大战理事�
 
 沒什麼 就是突然想罵一句武士道死了
 
+
+*****
+
+####  爱丁堡official  
+##### 9888#       发表于 2024-1-22 18:33
+
+BV1iK411a7wB
+
+最新的小动画，soyo已经更新到动画正片版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TDFTAGAR  
+##### 9889#       发表于 2024-1-22 18:37
+
+求助一下漏油，我印象里有一篇访谈提及了“立希在学习上还挺努力的”，但是一下子没找到，想问问漏油是确有其事还是我记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-TN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

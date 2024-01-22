@@ -6144,3 +6144,18 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 不太可能，会看自己手上有没有令咒啊</blockquote>
 钢屋抄我石锤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11077#       发表于 2024-1-22 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63737191&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-1-22 18:27</a>
+
+钢屋抄我石锤</blockquote>
+不排除正雪一直都沒自我檢查，但和伊織對話時，伊識說自己沒記憶又沒令咒，正雪當時也已經懷疑
+
+可能她的人造人人格(?)強制將某些記憶隱藏?
+
+突然更新後，彈出次數愈來愈多...已下載更新新APP
+

@@ -27932,3 +27932,135 @@ Orca 2-LANGBRIDGE模型使用BBH-BN的SNARK子集作为提示的意外翻译(acc
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1208#       发表于 2024-1-22 23:17
+
+MixNet
+
+有效且高效率的超高清低亮度图像增强方法
+
+github项目主页:https://github.com/zzr-idam/MixNet
+
+随着成像设备(imaging devices)的不断进步，超高清(UHD/Ultra-High-Definition)图像的普及度也在增加，尽管许多图像复原方法(image restoration methods)取得了令人满意的结果，但由于UHD图像固有的高计算复杂性，它们不能直接应用于计算资源有限的设备上的UHD图像
+
+在本文中，专注于低亮度图像增强(LLIE/low-light image enhancement)任务，并提出了一种名为MixNet的新LLIE方法，专为UHD图像设计
+
+为了捕捉特征的远程依赖关系而不引入过多的计算复杂性，提出了全局特征调制层(GFML/Global Feature Modulation Layer)，GFML通过对特征图进行排列，将不同视图的特征关联起来，实现了对远程依赖关系的高效建模，此外还设计了局部特征调制层(LFML/Local Feature Modulation Layer)和前馈层(FFL/Feed-forward Layer)，用于捕捉局部特征并将特征转化为紧凑的表征
+
+通过这种方式，MixNet在模型参数少、计算复杂度低的情况下实现了有效的LLIE，在合成和真实数据集上进行的大量实验，综合结果表明本文提出的方法超过了当前的SOTA性能
+
+<img src="https://img.saraba1st.com/forum/202401/22/231611um2e2ty24rb4m4y2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230729__01.jpg</strong> (77.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+本文提出的MixNet与其他LLIE方法在UHD-LOL4K数据集上的模型复杂度和性能对比，由于大多数方法无法直接处理UHD图像，FLOPs的计算是基于1024×1024图像尺寸进行的(这些算法在单个GPU上能处理的最大分辨率)，本文的MixNet在模型复杂度和性能之间取得了更好的平衡
+
+<img src="https://img.saraba1st.com/forum/202401/22/231616zzmbv3eknkmf8mfc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230747__01.jpg</strong> (264.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+提出的MixNet的整体架构，MixNet首先使用下采样器(DownSampler)将输入的低亮度图像转换为特征空间，然后使用一系列的特征混合块(FMB/Feature Mixing Blocks)进行特征提取，最后使用上采样器(UpSampler)对这些提取的特征进行重建，FMB主要包含全局特征调制层(GFML)、局部特征调制层(LFML)和前馈层(FFL)
+
+<img src="https://img.saraba1st.com/forum/202401/22/231621fzifzvxpqrr1e1fx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230753__01.jpg</strong> (90.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+提出的整体架构中的(a)全局特征调制层，(b)局部特征调制层和(c)前馈层
+
+<img src="https://img.saraba1st.com/forum/202401/22/231626s48u4xujri44v1aj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230758__01.jpg</strong> (263.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+维度转换操作的可视化，通过使用简单的维度转换操作，MixNet能够以较少的参数捕捉特征的长程依赖
+
+<img src="https://img.saraba1st.com/forum/202401/22/231632heee4q3ecof7cucn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230807__01.jpg</strong> (387.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+视觉质量对比，最后一行显示了图像的色彩直方图(color histogram)，本文方法与GT图像的颜色最接近
+
+<img src="https://img.saraba1st.com/forum/202401/22/231636gljt6zpozrllueu2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230813__01.jpg</strong> (359.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+在UHD-LOL4K和UHD-LL数据集上的定量对比结果，最佳和次佳结果分别用粗体和下划线表示
+
+<img src="https://img.saraba1st.com/forum/202401/22/231641c6g6tqatj2a8taza.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230825__01.jpg</strong> (798.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+视觉质量对比，本文方法可以有效去除噪声并重建曝光良好的图像细节
+
+<img src="https://img.saraba1st.com/forum/202401/22/231646ri520tg0s5augiau.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230831__01.jpg</strong> (164.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+LOL数据集上定量结果对比，最佳和次佳结果分别用粗体和下划线表示
+
+<img src="https://img.saraba1st.com/forum/202401/22/231650lcjnvcmmrwng5gmj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230845__01.jpg</strong> (194.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+O-Haze数据集上定量结果对比，最佳和次佳结果分别用粗体和下划线表示
+
+<img src="https://img.saraba1st.com/forum/202401/22/231654q9lchkc336s0jpgp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230850__01.jpg</strong> (111.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+所提出的块(block)的消融实验，为了确保参数大小的一致性，通过逐步用参数相近的残差模块替换所提出的模块
+
+<img src="https://img.saraba1st.com/forum/202401/22/231659blr5ttztww9tbror.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240122-230850__02.jpg</strong> (129.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:16 上传
+
+上采样器之前的特征图可视化，此处使用的图像是图6中显示的低亮度图像，本文方法重建了纹理更清晰的特征图
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

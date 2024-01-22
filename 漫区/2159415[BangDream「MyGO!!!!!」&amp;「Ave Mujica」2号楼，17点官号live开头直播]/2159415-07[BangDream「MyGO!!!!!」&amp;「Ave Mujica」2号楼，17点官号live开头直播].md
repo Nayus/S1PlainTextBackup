@@ -8938,3 +8938,18 @@ https://x.com/saihu715/status/1748270671153774943?s=20
 
 武士道本社爆破，放出绫奈系构版剧本
 
+
+*****
+
+####  利维豚  
+##### 9923#       发表于 2024-1-23 00:05
+
+<img src="https://p.sda1.dev/15/eec4946aa9a45a3ee4d813e651c0761e/Screenshot_20240123_000244.jpg" referrerpolicy="no-referrer">
+发布首日，14h
+播放16.7w
+点赞2.1w
+投币2.2w
+收藏1w
+评论1520
+弹幕6562
+

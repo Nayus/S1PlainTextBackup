@@ -2150,3 +2150,11 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大哥永远是你大哥
 
+
+*****
+
+####  cybernetics31  
+##### 3523#       发表于 2024-1-22 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

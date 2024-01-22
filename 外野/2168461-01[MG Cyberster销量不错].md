@@ -1467,3 +1467,30 @@ mx5 到 20w 我真会支持一台。回到 mg，我只能说，不看标，实�
 
 主打一个欺负红薯小姐姐不懂行情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a479281660  
+##### 138#       发表于 2024-1-22 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63722252&amp;ptid=2168461" target="_blank">holacio 发表于 2024-1-21 14:54</a>
+楼里笑话：波子适合蹦直线
+
+论坛助手,iPhone</blockquote>
+讲道理，后置后驱天生适合蹦直线好伐，
+
+当然我不否认911的其他性能也很强
+
+—— 来自 OPPO PGT110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a479281660  
+##### 139#       发表于 2024-1-22 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731229&amp;ptid=2168461" target="_blank">Vora 发表于 2024-1-22 10:26</a>
+这玩意怎么看都是z4那种吧，为啥都拿mx5比</blockquote>
+价格，同价位
+
+—— 来自 OPPO PGT110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1236,3 +1236,14 @@ MX-5从初代到现在就没有硬顶的。</blockquote>
 
 恭喜你终于帮人家圆上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杨千fa单推人  
+##### 120#       发表于 2024-1-22 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63728057&amp;ptid=2168461" target="_blank">logiccat 发表于 2024-1-21 23:11</a>
+
+电车尺寸小不了，底下一块电池撑着呢……</blockquote>
+明明是两座车，其实完全可以和跑车一样电池中置啊<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

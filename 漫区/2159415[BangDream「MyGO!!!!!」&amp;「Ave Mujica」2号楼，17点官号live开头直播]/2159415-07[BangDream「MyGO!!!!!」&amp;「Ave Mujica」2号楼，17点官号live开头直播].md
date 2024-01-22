@@ -8518,3 +8518,18 @@ ag已经闹解散一年了<img src="https://static.saraba1st.com/image/smiley/fa
 
 我超诗你的绊呢？
 
+
+*****
+
+####  狐式重型坦克  
+##### 9878#       发表于 2024-1-22 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迫真夕阳红乐队
+
+*****
+
+####  Aendst  
+##### 9879#       发表于 2024-1-22 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这期着实没啥意思，梗都没怎么换的，有一种鸽了这么久就这的观感
+

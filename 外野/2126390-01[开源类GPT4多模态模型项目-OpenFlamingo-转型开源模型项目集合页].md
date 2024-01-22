@@ -28202,3 +28202,125 @@ RL方法在全游戏训练过程中的得分，CivRealm提供了不同的指标�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1210#       发表于 2024-1-23 01:33
+
+Mementos
+
+使用图像序列作为多模态大语言模型推理的综合基准测试
+
+github项目主页:https://github.com/umd-huang-lab/Mementos
+
+多模态大语言模型(MLLMs)已经展现了熟练处理各种视觉语言任务的能力，然而，目前的MLLM基准主要被设计用于评估基于单张图像的静态信息推理能力，而现代的MLLM从图像序列中推断的能力，对于理解不断变化的世界至关重要，但研究较少
+
+为了解决这个挑战，本文引入了Mementos，这是一个新的基准，旨在评估MLLM的序列图像推理能力。Mementos包含4761个不同长度的多样化图像序列，还采用了GPT-4辅助方法来评估MLLM的推理性能
+
+通过对包括GPT-4V和Gemini在内的九个近期的MLLM，在Mementos上进行仔细评估，发现它们在准确描述给定图像序列的动态信息方面存在困难，经常在对象及其对应行为方面产生幻觉/错误表达
+
+定量分析和案例研究确定了影响MLLM的序列图像推理的三个关键因素:对象和行为幻觉之间的相关性，共同行为的影响以及行为幻觉的复合影响
+
+<img src="https://img.saraba1st.com/forum/202401/23/013202kcnnc7mnvmruwvw0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012643__01.jpg</strong> (500.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+在Mementos上三个领域中GPT-4产生的幻觉示例，红框展示了GPT-4V基于给定提示生成的描述，蓝框内是人工标注的描述，黄色高亮部分是GPT-4V生成的幻觉内容，这说明即使是GPT-4V，在图像序列推理时也会出现严重的幻觉
+
+<img src="https://img.saraba1st.com/forum/202401/23/013210suj3p0c31jppgpz0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012704__01.jpg</strong> (52.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+Mementos中不同类别的图像序列数量
+
+<img src="https://img.saraba1st.com/forum/202401/23/013215ezr3rhcm11l707zc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012713__01.jpg</strong> (109.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+Mementos验证集中图像序列长度的分布
+
+<img src="https://img.saraba1st.com/forum/202401/23/013219j1q7uqfug8jlu0ab.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012713__02.jpg</strong> (85.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+Mementos验证集中片段长度的分布
+
+<img src="https://img.saraba1st.com/forum/202401/23/013224jf3tf478zf7f185w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012724__01.jpg</strong> (111.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+GPT-4辅助评估过程，使用“O-”和“B-”分别表示对象和行为
+
+<img src="https://img.saraba1st.com/forum/202401/23/013229f6ujopu2jff7fjue.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012739__01.jpg</strong> (214.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+不同MLLM在Mementos上的六个指标对比
+
+<img src="https://img.saraba1st.com/forum/202401/23/013233tj20njcwsqqw0v03.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012803__01__01__01.jpg</strong> (390 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+在Mementos上对不同MLLM进行评估
+
+<img src="https://img.saraba1st.com/forum/202401/23/013240bp97pxxux2dc89mx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012817__01.jpg</strong> (341.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+日常生活领域失败推理案例的示例，失败原因是物体幻觉、物体幻觉和行为幻觉之间的关联以及共同发生的行为，在网球场的物体幻觉之后，LVLM随后表现出持有网球拍的行为幻觉(物体幻觉和行为幻觉之间的关联)，并且看起来在打网球(共同发生的行为)
+
+<img src="https://img.saraba1st.com/forum/202401/23/013258oq7fhcwr5ioivfdv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012826__01.jpg</strong> (367.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:32 上传
+
+Mementos上不同MLLM之间的行为幻觉和物体幻觉之间的相关系数
+
+<img src="https://img.saraba1st.com/forum/202401/23/013302j8l5jlx3nv35w6a6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-012841__01.jpg</strong> (84.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 01:33 上传
+
+随着图像序列的片段长度增长，GPT-4V和LLaVA-1.5在日常生活领域中物体和行为召回的变化趋势
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

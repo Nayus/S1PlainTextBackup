@@ -8914,3 +8914,11 @@ https://x.com/saihu715/status/1748270671153774943?s=20
 
 我已经在期待1st，要是公布的staff里绫奈不是系构楼友可以滑坡成什么样了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 9920#       发表于 2024-1-22 23:07
+
+那就不只是這裡滑坡了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

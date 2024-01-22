@@ -671,3 +671,24 @@ ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二
 那睡神能不能再找fbi把ykw关进去</blockquote>
 关进去也能选，也能当总统。法律可没说关进去就不能选了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  校内写生大会  
+##### 77#       发表于 2024-1-22 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731667&amp;ptid=2168993" target="_blank">Winder07 发表于 2024-1-22 10:59</a>
+就为了少些蚊子在耳边嗡嗡嗡，我就强烈支持**，支持直接硬刚的真汉子，哪怕是可怕的对手 ...</blockquote>
+懂贼开启毛衣战之前泥潭某个画美舰本的也是这么说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后来美舰本徽章都送不出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vviosonia  
+##### 78#       发表于 2024-1-22 15:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这边好歹除了懂王还有德桑切斯，稀宗那边山头太多连个公认第二人都么-总不能让炒股之神老妖婆出头吧。自她坑了麦卡锡之后，两党就彻底非黑即白失去调和路线了
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

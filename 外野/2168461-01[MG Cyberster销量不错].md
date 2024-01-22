@@ -1223,3 +1223,16 @@ MX-5从初代到现在就没有硬顶的。</blockquote>
 屁股灯好换吗
 唯一无法接受的点
 
+
+*****
+
+####  无印凉粉  
+##### 119#       发表于 2024-1-22 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63721677&amp;ptid=2168461" target="_blank">carolawyer 发表于 2024-1-21 13:53</a>
+
+有没有可能人家说的自动硬顶是硬顶敞篷自动开合？</blockquote>
+我第一听说要强调自动敞篷的，一般我们说的自动手动指的是变速器。
+
+恭喜你终于帮人家圆上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8849,3 +8849,11 @@ ras推早该躺躺了（平时没活动。有活动就连着来<img src="https:/
 
 —— 来自 HUAWEI EBG-TN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  凡人  
+##### 9912#       发表于 2024-1-22 20:40
+
+别急着滑坡，以后能滑坡的地方多了去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

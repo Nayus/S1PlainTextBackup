@@ -6202,3 +6202,11 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 应该没有上上次那样的柱子战吧，把决战留到工作日的话。但是就这么点剧情拆分成好几关还拆成那么多天慢慢放，真和便秘一样
 
+
+*****
+
+####  保罗赫伯特  
+##### 11083#       发表于 2024-1-22 21:20
+
+没有柱子战吧，去年魔兽赫也是剧情打几场就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

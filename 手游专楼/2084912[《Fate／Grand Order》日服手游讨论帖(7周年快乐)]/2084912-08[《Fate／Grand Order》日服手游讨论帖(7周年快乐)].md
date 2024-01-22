@@ -6167,3 +6167,11 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 今天剧情不是写清楚了么，正雪关于丑御前的记忆和对自己令咒的认知都被黑幕扭曲了，这个正雪看起来也是量产型，本体估计被当杯子用了，毕竟是爱伽技术的人造人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11079#       发表于 2024-1-22 19:09
+
+让主角和正雪溜街得到的情报以及笑料更多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

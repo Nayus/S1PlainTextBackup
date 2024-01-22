@@ -8661,3 +8661,33 @@ BV1iK411a7wB
 
 怎么广播和动画全还在猫不去练习的鬼打墙世界线，某种意义上显得立希很逊，总不能是为了不剧透吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 9893#       发表于 2024-1-22 19:06
+
+立希本来就很逊，邦邦世界写首歌还得熬夜，那都是什么路人
+
+*****
+
+####  Kfly  
+##### 9894#       发表于 2024-1-22 19:09
+
+制作的时间问题吧，这小动画可能在游戏活动剧情之前？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9895#       发表于 2024-1-22 19:09
+
+<img src="https://img.saraba1st.com/forum/202401/22/190840jr4mir5q4ya5fmhx.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20240122-084044_1749351379070853273_photo.jpg</strong> (101.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 19:08 上传
+
+[https://twitter.com/kkm338/status/1749351379070853273](https://twitter.com/kkm338/status/1749351379070853273)
+

@@ -6175,3 +6175,11 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 让主角和正雪溜街得到的情报以及笑料更多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11080#       发表于 2024-1-22 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天TM就一场战斗？？
+

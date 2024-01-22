@@ -8783,3 +8783,34 @@ ag约等伍佰和chinablue，伍佰想退休的话，CB能有啥办法
 
 我来辟个谣。这是玲奈老师更新前的博客。可以看出都是23年年初的工作。现在履历24年也都是24年春的动画。可以推断绫奈老师只不过是写了一个年末总结罢了。即使绫奈老师有什么变故，但无论是pa菜花还是mygo都没法反映在这篇博客更新上，不用过度发散。
 
+
+*****
+
+####  Aendst  
+##### 9905#       发表于 2024-1-22 20:03
+
+你辟歪了，魔法少女那部七月播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 9906#       发表于 2024-1-22 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63738093&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-22 20:03</a>
+
+你辟歪了，魔法少女那部七月播</blockquote>
+说明是抽样误差<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 9907#       发表于 2024-1-22 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63733064&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-22 12:44</a>
+ag已经闹解散一年了
+
+不如吐槽为什么这次团活轮换又出问题，ras直接被跳了，难不成真是工艺蛋留的存 ...</blockquote>
+ras推早该躺躺了（平时没活动。有活动就连着来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

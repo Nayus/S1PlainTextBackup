@@ -5814,3 +5814,37 @@ holo相关问题的题库现在有130问
 
 再近一点就要炎上了
 
+
+*****
+
+####  rs5621  
+##### 8054#       发表于 2024-1-22 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/22/202623tbojyjrjaobyyjby.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 20:26 上传
+
+梦回ark老大鸽时代
+
+*****
+
+####  holoan  
+##### 8055#         楼主| 发表于 2024-1-22 20:28
+
+这游戏的风景，一骑鸟飞起来从高空俯视这游戏感觉就跟ARK差不了多少了
+
+*****
+
+####  holoan  
+##### 8056#         楼主| 发表于 2024-1-22 20:29
+
+你跟我一个想法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真梦回2020
+

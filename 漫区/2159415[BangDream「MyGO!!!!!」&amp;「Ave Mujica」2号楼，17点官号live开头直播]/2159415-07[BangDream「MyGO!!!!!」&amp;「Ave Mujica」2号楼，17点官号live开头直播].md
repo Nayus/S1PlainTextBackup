@@ -8837,3 +8837,15 @@ ras推早该躺躺了（平时没活动。有活动就连着来<img src="https:/
 
 “rikki”和“soyorin”配得还挺上头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TDFTAGAR  
+##### 9911#       发表于 2024-1-22 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63737395&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-22 18:46</a>
+其实是大鼓队员在广播说的，但鉴于大鼓这人说话比较严谨（磕个猫希糖都要强调不代表官方言论），所以稍微 ...</blockquote>
+好好好好好好好，感谢，我去翻翻
+
+—— 来自 HUAWEI EBG-TN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

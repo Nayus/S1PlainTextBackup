@@ -863,3 +863,11 @@ Pomu好像被bot了？
 
 彩虹是为啥不能直播玩palworld啊？其他v都可以啊。
 
+
+*****
+
+####  _Ra1nMaker  
+##### 2934#       发表于 2024-1-22 10:57
+
+赶紧让虹玩吧，再不玩htj又要追着杏咬了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

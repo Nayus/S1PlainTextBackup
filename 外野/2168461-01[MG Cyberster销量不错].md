@@ -1452,3 +1452,18 @@ mx5 到 20w 我真会支持一台。回到 mg，我只能说，不看标，实�
 
 手波硬顶才是真的稀缺
 
+
+*****
+
+####  杨千fa单推人  
+##### 137#       发表于 2024-1-22 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731379&amp;ptid=2168461" target="_blank">菲特妹 发表于 2024-1-22 10:37</a>
+
+现在车贩子mx5自动波软顶不少了，都在小红书卖，主打面向小姐姐
+
+天天喊驾驶乐趣的手波软顶倒是滞销 ...</blockquote>
+我在小红书问了，让我加群，加版不满配自动挡软顶全包落地40+w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主打一个欺负红薯小姐姐不懂行情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1301,3 +1301,48 @@ DeSantis早就有懂王 ...</blockquote>
 
 —— 来自 motorola XT2321-2, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  bonnwang  
+##### 137#       发表于 2024-1-22 17:34
+
+硬度裔女性 小心爆头
+
+*****
+
+####  宏  
+##### 138#       发表于 2024-1-22 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736512&amp;ptid=2168993" target="_blank">RlphaDo 发表于 2024-1-22 17:33</a>
+
+你们是谁
+
+撤军撤了吧</blockquote>
+可惜当年专楼砍了，不然现在看很有意思
+
+*****
+
+####  bwjsif  
+##### 139#       发表于 2024-1-22 17:36
+
+ 本帖最后由 bwjsif 于 2024-1-22 17:40 编辑 
+
+选票政治，就是权力者勾兑和民众认知的有限结合。
+懂王台上动作太大，民主党召唤阴兵也得把登子弄上去。MAGA国会巡游也没用，共和党建制派也噤若寒蝉。
+懂王当时上台，虽然是石破天惊，那也是共和党建制派失势，共和党需要一个pop star的结果。
+一般而言，还得看上位者想怎么切这个蛋糕，民众怎么想是其次。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RlphaDo  
+##### 140#         楼主| 发表于 2024-1-22 17:41
+
+民意只是一个例子，事实上就美国对中国制造业的依赖程度就不可能实现脱钩
+
+什么制造业转移纯粹炒话题的，制造业是条大产线，搬个厂过去有啥用？而且造芯片就能造一切了？纯炒一手噱头还有人当真，真要美国经济脱虚向实金融寡头会买账吗
+
+—— 来自 motorola XT2321-2, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

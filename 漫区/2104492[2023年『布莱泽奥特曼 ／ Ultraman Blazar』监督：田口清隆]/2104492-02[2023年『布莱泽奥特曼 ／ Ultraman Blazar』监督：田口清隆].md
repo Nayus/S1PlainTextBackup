@@ -1898,3 +1898,16 @@ TV开篇巴赞甲抵达地球
 
 不是赶进度的问题，就是单纯没编排好，法德兰和这集都是，观众情绪还没调动起来就结束了。真的该删几个单元回来给主线腾时间，或者先把主线内容拍完再拍单元回。田口无疑在编排上翻车了，就像写考试作文写上头，发现试卷没几行了赶紧收尾，要表达的东西确实写出来了，但是表现形式非常粗糙。
 
+
+*****
+
+####  kcalb  
+##### 1771#       发表于 2024-1-22 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63724842&amp;ptid=2104492" target="_blank">haoshion 发表于 2024-1-21 18:39</a>
+
+说起来那块怨灵水晶最后提都没提到</blockquote>
+还在河边钓鱼的某动保呢，甚至刚开始宣传的几十年前在宇宙遇到巨人的坑呢，直接和传奇五老3D打怪一样神隐了
+
+怕不是和NEXUS一样腰斩了，V99那段的儿戏程度对比第一集基调基本属于封面诈骗<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+

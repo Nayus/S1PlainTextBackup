@@ -1253,3 +1253,17 @@ J2K也更新了，可以自定义插件列表了
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  zmw_831110  
+##### 101#       发表于 2024-1-22 19:33
+
+ 本帖最后由 zmw_831110 于 2024-1-22 19:34 编辑 
+
+拷贝的仓库地址是啥？之前在哪个帖子看到过有人发，找不到是哪个帖子了。。。
+
+找到了，作者release  note里就有写
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1231,3 +1231,11 @@ J2K也更新了，可以自定义插件列表了
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  yenvy  
+##### 99#       发表于 2024-1-22 10:06
+
+得先把旧的手动卸载了
+

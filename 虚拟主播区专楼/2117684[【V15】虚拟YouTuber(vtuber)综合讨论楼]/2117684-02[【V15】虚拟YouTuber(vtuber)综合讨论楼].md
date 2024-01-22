@@ -855,3 +855,11 @@ Pomu好像被bot了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">天开司还整个春甲邀请西西、博衣、涉谷春，看着今年西西要殿堂入了非得给她整个夏春连霸是吧
 
+
+*****
+
+####  闪光罗伊  
+##### 2933#       发表于 2024-1-22 10:09
+
+彩虹是为啥不能直播玩palworld啊？其他v都可以啊。
+

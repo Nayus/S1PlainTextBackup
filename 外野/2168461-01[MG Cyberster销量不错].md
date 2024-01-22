@@ -1355,3 +1355,29 @@ mx5真的要强调，而且分4种版本全都有，软顶是纯手动软顶没�
 
 欢迎大家接我的话和我聊天，要是不想和我聊天你可以自动无视
 
+
+*****
+
+####  FurryBall  
+##### 129#       发表于 2024-1-22 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730638&amp;ptid=2168461" target="_blank">Porsche 发表于 2024-1-22 09:45</a>
+IT之家 1 月 21 日消息，国产纯电小跑车 SC01 首台白车身已于 1 月 19 日正式下线。该车由工匠派设计打造， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做过耐久性测试吗？做过碰撞测试吗？有工信部生产资质吗
+
+这种小作坊产物的威胁性还没有mx5表弟Abarth 124大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杨千fa单推人  
+##### 130#       发表于 2024-1-22 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731008&amp;ptid=2168461" target="_blank">FurryBall 发表于 2024-1-22 10:11</a>
+
+做过耐久性测试吗？做过碰撞测试吗？有工信部生产资质吗
+
+这种小作坊产物的威胁性还没有mx5表弟Ab ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">但是能做好跑车的小作坊也不少
+
+就比如说光冈<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

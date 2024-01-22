@@ -8889,3 +8889,20 @@ ras推早该躺躺了（平时没活动。有活动就连着来<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">剧场版档期会在巡演上公布呢，还是6th
 
+
+*****
+
+####  akirakira  
+##### 9917#       发表于 2024-1-22 22:47
+
+https://x.com/panisa319/status/1749109823290102086?s=20
+<img src="https://p.sda1.dev/15/8da43f00398d4c8402ec7a8dd34a1d6d/CMP_20240122234731188.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 9918#       发表于 2024-1-22 22:50
+
+https://x.com/saihu715/status/1748270671153774943?s=20
+<img src="https://p.sda1.dev/15/5c805977e5c34192db708d46ec1d7b63/8ed6c9166d6b2698.jpg" referrerpolicy="no-referrer">
+

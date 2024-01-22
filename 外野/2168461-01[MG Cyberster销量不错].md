@@ -1397,3 +1397,35 @@ IT之家 1 月 21 日消息，国产纯电小跑车 SC01 首台白车身已于 1
 
 当然也不代表有这些资质造的就是好车，只不过没这些资质的“车企”造的车我是不敢坐的
 
+
+*****
+
+####  silverfoxz  
+##### 132#         楼主| 发表于 2024-1-22 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730742&amp;ptid=2168461" target="_blank">flyfish 发表于 2024-1-22 09:52</a>
+
+YYP的评测就是看钱
+
+—— 来自 S1Fun</blockquote>
+这样说其实也没错，他就是做平行进口车生意的，MX5还是主推车型，所以我很好奇在他视频里刷”我选MX5“以及楼里一堆推MX5的朋友到底有没有行动力去支持这台车？在国内跑车销量榜上都看不到的东西哪里来的这么多水军<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vora  
+##### 133#       发表于 2024-1-22 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730429&amp;ptid=2168461" target="_blank">DeepFishing 发表于 2024-1-22 09:30</a>
+
+太贵，太肥，太重，和mx5完全不同，肥大电爹一点都不稀奇
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S ...</blockquote>
+这玩意怎么看都是z4那种吧，为啥都拿mx5比
+
+*****
+
+####  jsdwow  
+##### 134#       发表于 2024-1-22 10:28
+
+工匠派不是刷圈造假名声都臭了么 这种玩意能做出来什么老头乐
+

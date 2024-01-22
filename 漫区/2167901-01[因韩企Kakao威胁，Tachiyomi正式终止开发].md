@@ -1239,3 +1239,17 @@ J2K也更新了，可以自定义插件列表了
 
 得先把旧的手动卸载了
 
+
+*****
+
+####  rainyblue  
+##### 100#       发表于 2024-1-22 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730941&amp;ptid=2167901" target="_blank">yenvy 发表于 2024-1-22 10:06</a>
+得先把旧的手动卸载了</blockquote>
+确实，刚刚手动卸了旧的，新的就能装上了。多谢多谢～
+
+话说大家现在还有什么好的生肉的源推荐么，试过rawkuma, kisslove和welovemanga，但感觉都不是很全。
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

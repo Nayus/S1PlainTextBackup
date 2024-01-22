@@ -8865,3 +8865,19 @@ ras推早该躺躺了（平时没活动。有活动就连着来<img src="https:/
 
 好日子还在后头呢.jpg
 
+
+*****
+
+####  后藤一里  
+##### 9914#       发表于 2024-1-22 22:18
+
+羊酱太拼命了，原来你阳菜姐也说过，这下crychic解散的元凶找到了@要乐奈<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4f2f45175f3cf032225766f3e8dee65e/CMP_20240122221657032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 9915#       发表于 2024-1-22 22:22
+
+看1st有没有正式pv，会不会公布staff吧
+

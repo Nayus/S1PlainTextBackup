@@ -153,3 +153,13 @@
 
 20发没出，随缘了
 
+
+*****
+
+####  冰风血羽  
+##### 887#       发表于 2024-1-22 22:19
+
+<img src="https://p.sda1.dev/15/7131329e298f09eddd69f73ba259acff/CMP_20240122221400640.jpg" referrerpolicy="no-referrer">趁着有自选跟送装备问一下，想换个毛妹妮娜，选原版还是AN？装备怎么选？另外我四属性角色里橙色框中都没有全装备，能换哪个的？或者换没有角色的等角色入手？
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

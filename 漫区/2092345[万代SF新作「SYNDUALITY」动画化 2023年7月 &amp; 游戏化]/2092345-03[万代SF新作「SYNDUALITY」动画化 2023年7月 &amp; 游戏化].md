@@ -2009,3 +2009,102 @@ flag挺多的，op这单独影响化非常少见，主吧好像有人根据声�
 
 装备差距太离谱了点
 
+
+*****
+
+####  RE㐅ia  
+##### 3507#       发表于 2024-1-22 23:23
+
+还得是大哥
+
+*****
+
+####  novyMS  
+##### 3508#       发表于 2024-1-22 23:23
+
+大哥好强
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RE㐅ia  
+##### 3509#       发表于 2024-1-22 23:25
+
+这位反派大哥原来有眼睛的
+
+*****
+
+####  若菜  
+##### 3510#       发表于 2024-1-22 23:26
+
+怎么感觉第二季才进主线  
+
+第一季完全是角色露面
+
+
+*****
+
+####  Freakyyu  
+##### 3511#       发表于 2024-1-22 23:26
+
+合着カナタ只能算二号小弟吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DARILBALDE  
+##### 3512#       发表于 2024-1-22 23:26
+
+一个里希特一个马哈特，然后大哥第一季回忆里，那个和彼方长得很像的难道是卫浴柜？
+
+*****
+
+####  wzm96816  
+##### 3513#       发表于 2024-1-22 23:26
+
+节奏不错，说实话这么看第一季没必要这么拖，即使是铺垫也太长了点。
+
+*****
+
+####  无音命题  
+##### 3514#       发表于 2024-1-22 23:26
+
+这几话节奏是不是有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真正做到了每个人都在自说自话。。。我看的时候都不知道该用啥表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 3515#       发表于 2024-1-22 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主角：我是谁我在哪我在干嘛
+
+大哥好强，打个奇袭直接弥补装备差距
+
+*****
+
+####  RE㐅ia  
+##### 3516#       发表于 2024-1-22 23:27
+
+黑假面不会就是大哥回忆里那个长得贼像彼方的哥们吧？
+
+*****
+
+####  novyMS  
+##### 3517#       发表于 2024-1-22 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63739923&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-01-22 23:27:56</a>
+黑假面不会就是大哥回忆里那个长得贼像彼方的哥们吧？</blockquote>好像就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RE㐅ia  
+##### 3518#       发表于 2024-1-22 23:30
+
+话说pv画面应该是已经全部回收了？这次有够快的
+

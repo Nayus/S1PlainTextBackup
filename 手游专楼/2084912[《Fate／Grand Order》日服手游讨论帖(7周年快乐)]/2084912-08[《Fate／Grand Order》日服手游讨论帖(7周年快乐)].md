@@ -6210,3 +6210,29 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 没有柱子战吧，去年魔兽赫也是剧情打几场就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 11084#       发表于 2024-1-22 23:26
+
+<img src="https://img.saraba1st.com/forum/202401/22/232605u4c37588crsi5siy.jpg" referrerpolicy="no-referrer">
+
+<strong>34343434.jpg</strong> (567.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-22 23:26 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">啊？ 我正雪呢 到底谁才是5星
+
+*****
+
+####  qixinno2  
+##### 11085#       发表于 2024-1-22 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63739908&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-22 23:26</a>
+
+啊？ 我正雪呢 到底谁才是5星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 狗萌新太欧了 两次单抽出限定五星
+

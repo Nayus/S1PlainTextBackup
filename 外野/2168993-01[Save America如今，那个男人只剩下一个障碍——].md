@@ -1249,3 +1249,41 @@ DeSantis早就有懂王 ...</blockquote>
 
 另外我觉得别对所谓的民意太迷信，无论是太平洋对岸还是海峡对岸都证明在短期政治生活中民意都是服从于政治意志的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 132#       发表于 2024-1-22 17:15
+
+土鳖现在的策略感觉就是腚力，只要时间维度拉得够长，物质决定意识的法则才会真正发挥力量，短时间内梭哈的话还真不一定，毕竟自由主义也有精神原子弹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  P.C.  
+##### 133#       发表于 2024-1-22 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736101&amp;ptid=2168993" target="_blank">redsouris 发表于 2024-1-22 16:59</a>
+
+台积电就像你说的一样把人也挪过去了，然后呢？
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅 ...</blockquote>
+“我们在亚利桑那州的晶圆厂于2021年4月开始建设，时间表紧凑。我们现在正进入处理和安装最先进和专用设备的关键阶段。然而，由于在半导体级设施中所需的设备安装专业知识的熟练工人数量不足，我们面临着一些挑战。在我们努力改善情况的同时，包括派遣来自中国台湾的经验丰富技术人员来短期培训当地熟练工人，我们预计N4工艺技术的生产计划将延后至2025年。”
+
+目前来看，还没黄，只是比原计划推迟一年。
+
+*****
+
+####  舞以  
+##### 134#       发表于 2024-1-22 17:16
+
+另外别复读那套制造业回流和供应链外移的经书了，你就看tsmc在美国的厂啥时候能开起来吧？
+
+*****
+
+####  形式主义  
+##### 135#       发表于 2024-1-22 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736261&amp;ptid=2168993" target="_blank">舞以 发表于 2024-1-22 17:13</a>
+无论是懂还是睡，下一届肯定还要太平洋两岸继续折腾的，没办法达成有意义的政治协议，就看纽森或者德桑蒂斯 ...</blockquote>
+美国的窟窿谁都接不住，太大了
+

@@ -103,3 +103,16 @@
 为了省道满现在五加成刷qp中，问就是没有faker不能走双哈贝喵faker……反正我中间弃坑也错过了医生礼装，缺 ...</blockquote>
 豆爹+哈贝喵+C呆可以6加成，是担心圣剑的磨损吗
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 45933#       发表于 2024-1-22 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736105&amp;ptid=1712412" target="_blank">姬萩九郎 发表于 2024-1-22 16:59</a>
+
+豆爹+哈贝喵+C呆可以6加成，是担心圣剑的磨损吗</blockquote>
+自出C呆的话确实出不起了……
+
+区区一个QP本不配（x
+

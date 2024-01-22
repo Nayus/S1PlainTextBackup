@@ -1514,3 +1514,13 @@ you know who？
 外野版规不可说之人
 熟读版规先，别装外宾。
 
+
+*****
+
+####  neucom  
+##### 156#       发表于 2024-1-22 18:46
+
+<img src="https://p.sda1.dev/15/5c1d21c16edcb8a3ae6adcd02067fc93/屏幕截图" id="aimg_tS913" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+要MAGA，找东大。<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+

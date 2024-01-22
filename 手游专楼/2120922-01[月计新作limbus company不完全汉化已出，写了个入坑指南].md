@@ -139,3 +139,22 @@ syl 我现在沉沦队都是三人组带三个散件
 
 2024-1-22 18:41 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 529#       发表于 2024-1-22 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63723444&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-1-21 16:51</a>
+
+箱子是沉沦也没用
+
+本来沉沦三人组就有花箱
+
+你还是得钉锤辛和狐夫带一个</blockquote>
+对啊，我才反应过来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">沉沦队要靠花箱三技能爆发一波呢，这下可以少练一个二星了...
+
+十箱的支援被动是人格弃牌后给护盾，这么想的话可以去振动队支援一下臼齿奥和...啊振动队有臼齿箱了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+嘛，三破给40狂气，你小子还算有点价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

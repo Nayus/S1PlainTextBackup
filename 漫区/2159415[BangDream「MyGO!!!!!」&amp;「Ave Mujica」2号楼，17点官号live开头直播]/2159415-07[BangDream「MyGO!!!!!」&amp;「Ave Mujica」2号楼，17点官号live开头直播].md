@@ -8633,3 +8633,23 @@ BV1iK411a7wB
 
 —— 来自 HUAWEI EBG-TN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  NODY  
+##### 9890#       发表于 2024-1-22 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63737305&amp;ptid=2159415" target="_blank">TDFTAGAR 发表于 2024-1-22 18:37</a>
+
+求助一下漏油，我印象里有一篇访谈提及了“立希在学习上还挺努力的”，但是一下子没找到，想问问漏油是确有 ...</blockquote>
+其实是大鼓队员在广播说的，但鉴于大鼓这人说话比较严谨（磕个猫希糖都要强调不代表官方言论），所以稍微有点可信度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 9891#       发表于 2024-1-22 18:49
+
+[https://www.bilibili.com/video/BV1iK411a7wB](https://www.bilibili.com/video/BV1iK411a7wB)
+
+新的小动画
+

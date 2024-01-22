@@ -8477,3 +8477,13 @@ Taki之前老军训Staff A还间接导致她在老同学面前出丑，Staff A�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  屑猫猫  
+##### 9874#       发表于 2024-1-22 12:28
+
+武士道是不是没活儿了.jpg<img src="https://p.sda1.dev/15/8e0d48a2aa0b8feac76e0191423677c3/CMP_20240122122840362.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

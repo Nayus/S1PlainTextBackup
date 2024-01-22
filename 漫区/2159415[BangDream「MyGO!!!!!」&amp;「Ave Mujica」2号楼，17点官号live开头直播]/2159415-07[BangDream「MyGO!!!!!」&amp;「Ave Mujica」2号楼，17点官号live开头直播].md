@@ -8541,3 +8541,13 @@ ag已经闹解散一年了<img src="https://static.saraba1st.com/image/smiley/fa
 
 邦邦证明了只要他们愿意，可以靠着五个人轮流emo把一两个活动就能解决的事件硬是拖一整年，看来还真不用担心鸡团这一年不进游戏会有时间差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0路人辛0  
+##### 9881#       发表于 2024-1-22 15:20
+
+<blockquote>Aendst 发表于 2024-1-22 13:32
+这期着实没啥意思，梗都没怎么换的，有一种鸽了这么久就这的观感</blockquote>
+毕竟本质吐槽大会，相比较上一期还能整出来点不一样的，还有AMV剪辑。感觉今年确实没有去年那么多槽点
+

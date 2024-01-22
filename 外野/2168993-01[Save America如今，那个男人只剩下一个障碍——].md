@@ -1055,3 +1055,58 @@ ukw三年前的政策明摆着突出一个外强中干，登子重回冷战老�
 
 另外泥潭消息也太lag了，黑莉还副总统，做梦啊，跟川作对过就是叛徒小丑，可能性为0，Tom Cotton甚至马斯克可能性都比她大
 
+
+*****
+
+####  RlphaDo  
+##### 116#         楼主| 发表于 2024-1-22 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735569&amp;ptid=2168993" target="_blank">宏 发表于 2024-1-22 16:21</a>
+
+ukw三年前的政策明摆着突出一个外强中干，登子重回冷战老套路反而是更有压力一点，我不信今天ukw重新上台 ...</blockquote>
+懂王核心的是对内政策啊，他对外都搞战略收缩了还能咋压力...
+
+凳子对外也蛮离谱的，跑沙特要石油张口就是卡舒吉这种逆天玩意真的不知道得癫到什么份上才能搞出来。
+
+*****
+
+####  冤枉呐  
+##### 117#       发表于 2024-1-22 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731685&amp;ptid=2168993" target="_blank">落墨无忧 发表于 2024-1-22 11:01</a>
+我倒觉得懂王这次挺有机会的，白等这又援乌又援以的，尤其支持以色列把党内白左和绿绿选民算得罪完了，他们 ...</blockquote>
+就怕对俄缓和，普子又构
+
+*****
+
+####  Sopp  
+##### 118#       发表于 2024-1-22 16:28
+
+DeSantis非要去抢MAGA正统确实没什么意义
+
+这一届民主党给大统领加的buff太多了，共和党人没什么可以跟大统领竞争的人了
+
+*****
+
+####  佛剑分说  
+##### 119#       发表于 2024-1-22 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735524&amp;ptid=2168993" target="_blank">只贫不论某浩 发表于 2024-1-22 16:17</a>
+
+懂王还是睡王，谁上对美国人民有利，最终取决于东大。对于东大远期目标来看，睡王更符合东大利益。懂王上台 ...</blockquote>
+时空环境已经完全不同了
+
+懂王目前最多也只能跟毛熊缓和关系，其乐融融不可能了，因为毛熊还要考虑懂王离任之后的日子要怎么过
+
+这也就是民主共和两党一边当四年最好的地方
+
+*****
+
+####  佛剑分说  
+##### 120#       发表于 2024-1-22 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735518&amp;ptid=2168993" target="_blank">宏 发表于 2024-1-22 16:17</a>
+
+黑莉当不了总统，明摆的，美国可以接受一个黑人总统，也可以接受一个女总统，但是黑人女总统还是太早了 ...</blockquote>
+黑莉：老娘虽然名字里有个中文黑字，但是老娘是黄种人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

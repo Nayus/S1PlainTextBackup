@@ -1278,3 +1278,64 @@ mx5真的要强调，而且分4种版本全都有，软顶是纯手动软顶没�
 
 再往下还要分加拿大版和墨西哥版，加拿大版配置更高，会有lsd和头枕音响之类的，也比墨西哥版贵
 
+
+*****
+
+####  Porsche  
+##### 123#       发表于 2024-1-22 09:45
+
+IT之家 1 月 21 日消息，国产纯电小跑车 SC01 首台白车身已于 1 月 19 日正式下线。该车由工匠派设计打造，定位为双门双座电动跑车，预售价不会超过 30 万元。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算饼熟了一半了吗
+
+长 4105mm，宽 1830mm，高 1160mm，整备质量约 1370kg
+
+虽然不是敞篷，但是这个才是对mx5以及其他小型FR的最大威胁，只要吹的能做到的话
+
+再回去看cyberster的尺寸和重量惨不忍睹
+
+*****
+
+####  liuguokobe  
+##### 124#       发表于 2024-1-22 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730638&amp;ptid=2168461" target="_blank">Porsche 发表于 2024-1-22 09:45</a>
+
+IT之家 1 月 21 日消息，国产纯电小跑车 SC01 首台白车身已于 1 月 19 日正式下线。该车由工匠派设计打造， ...</blockquote>
+腻子派攒的那款？那个比起能日用的玩具更像是能上牌的大学生方程式吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杨千fa单推人  
+##### 125#       发表于 2024-1-22 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730638&amp;ptid=2168461" target="_blank">Porsche 发表于 2024-1-22 09:45</a>
+
+IT之家 1 月 21 日消息，国产纯电小跑车 SC01 首台白车身已于 1 月 19 日正式下线。该车由工匠派设计打造， ...</blockquote>
+工匠派本来是做什么的啊
+
+*****
+
+####  flyfish  
+##### 126#       发表于 2024-1-22 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63687792&amp;ptid=2168461" target="_blank">silverfoxz 发表于 2024-1-18 12:26</a>
+YYP这期私心极大，Z4国内版一样原厂不带挡风网的，后期配一个都不是事，他作为买过两台高溢价MX5的冤大头 ...</blockquote>
+YYP的评测就是看钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  无印凉粉  
+##### 127#       发表于 2024-1-22 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730514&amp;ptid=2168461" target="_blank">杨千fa单推人 发表于 2024-1-22 09:36</a>
+
+mx5真的要强调，而且分4种版本全都有，软顶是纯手动软顶没有电动机构，硬顶是自动开关的
+
+自动软顶，自动 ...</blockquote>
+所以呢？你说的自动手动是敞篷还是波箱啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想要抬杠洗地，麻烦从头到尾看一遍。
+

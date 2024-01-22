@@ -1221,3 +1221,13 @@ rawkuma1.4.28更新了啥？
 
 J2K也更新了，可以自定义插件列表了
 
+
+*****
+
+####  rainyblue  
+##### 98#       发表于 2024-1-22 09:50
+
+为什么插件的更新列表里有rawkuma和manga raw，但是不管怎么点更新都装不上呢？
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

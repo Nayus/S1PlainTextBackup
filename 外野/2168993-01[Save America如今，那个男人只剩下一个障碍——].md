@@ -1400,3 +1400,23 @@ DeSantis早就有懂王 ...</blockquote>
 —— 来自 mot ...</blockquote>
 查了下副总统还真不行，第十二修正案<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 马一龙可以给搞个内阁位置
 
+
+*****
+
+####  lvcha3  
+##### 146#       发表于 2024-1-22 18:05
+
+这次看好懂王，萝莉岛加分不少
+
+*****
+
+####  wolftooth  
+##### 147#       发表于 2024-1-22 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63732043&amp;ptid=2168993" target="_blank">zuga 发表于 2024-1-22 11:25</a>
+
+饭局小道消息，东大最近几年的一个重大目标是避免西大经济崩溃，前一阵西大来人访问目的也是这个，因为双 ...</blockquote>
+这位坛友，我们祖先可是喊出过：时日曷丧，予及如偕亡！的。
+
+我不相信我们中国人那么没骨气，就因为会牵连到自己，就一直甘为奴隶的。
+

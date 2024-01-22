@@ -8463,3 +8463,17 @@ mujica这个舞台剧人偶世界观设定确实非常好拓宽，看WSD会不�
 
 台长太爱了，等着晚上下饭吃。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 9873#       发表于 2024-1-22 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731322&amp;ptid=2159415" target="_blank">Anatoly 发表于 2024-1-22 10:33</a>
+会员购上新了，怎么还是没立希单独图
+
+运营A是不是太针对了</blockquote>
+Taki之前老军训Staff A还间接导致她在老同学面前出丑，Staff A不把场子找回来怎么行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

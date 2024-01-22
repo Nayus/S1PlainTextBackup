@@ -1494,3 +1494,25 @@ mx5 到 20w 我真会支持一台。回到 mg，我只能说，不看标，实�
 
 —— 来自 OPPO PGT110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  早乙女元气  
+##### 140#       发表于 2024-1-22 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63722252&amp;ptid=2168461" target="_blank">holacio 发表于 2024-1-21 14:54</a>
+
+楼里笑话：波子适合蹦直线
+
+论坛助手,iPhone</blockquote>
+这话到不假，具体到911牵引力强是RR形式的祖传优势，波子赛道快就是直线加速得快刹得住，回旋性是后天强化的
+
+*****
+
+####  嘘月姫  
+##### 141#       发表于 2024-1-22 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731266&amp;ptid=2168461" target="_blank">jsdwow 发表于 2024-1-22 10:28</a>
+工匠派不是刷圈造假名声都臭了么 这种玩意能做出来什么老头乐</blockquote>
+造假派后面内容转型了吧，主要做经典车复原了，后来的官中不知道原来的事
+

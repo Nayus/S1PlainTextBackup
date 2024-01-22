@@ -650,3 +650,24 @@ ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二
 
 懂王其实还好，上台也是干最后一个任期，做不出什么特别出格的事的，想办法搞东大不如想办法让自己千秋万代谋求政策统一再搞东大，这样可行性大得多。
 
+
+*****
+
+####  P.C.  
+##### 75#       发表于 2024-1-22 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734189&amp;ptid=2168993" target="_blank">v_lancelot 发表于 2024-1-22 14:29</a>
+
+ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二 趁着余威还在 赶紧金盆洗手  武林盟主我不当了  ...</blockquote>
+懂王如果这么谦虚，他就不叫懂王了
+
+*****
+
+####  skill  
+##### 76#       发表于 2024-1-22 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731471&amp;ptid=2168993" target="_blank">めぐる 发表于 2024-1-22 10:43</a>
+
+那睡神能不能再找fbi把ykw关进去</blockquote>
+关进去也能选，也能当总统。法律可没说关进去就不能选了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

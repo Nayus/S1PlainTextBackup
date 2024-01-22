@@ -104,3 +104,11 @@
 
 呜 苦鲁西<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 881#       发表于 2024-1-22 15:02
+
+小教堂演出如果只上一个人的话，就会变成第一人称视角。婚纱下也能看到一些第三视角看不到的东西（不剧透了）
+

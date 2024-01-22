@@ -1592,3 +1592,11 @@ mx5那孱弱的动力，hmm
 
 现在自动硬顶28，手动软顶27<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斑驳的阴影  
+##### 149#       发表于 2024-1-22 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这东西mx5两倍的重量怎么拉到一个赛道的？尺寸都赶上小一点的gt型跑车了
+

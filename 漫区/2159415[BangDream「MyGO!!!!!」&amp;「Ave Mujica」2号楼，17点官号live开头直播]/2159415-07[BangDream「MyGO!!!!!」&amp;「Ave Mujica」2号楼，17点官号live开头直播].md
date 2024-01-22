@@ -8533,3 +8533,11 @@ ag已经闹解散一年了<img src="https://static.saraba1st.com/image/smiley/fa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这期着实没啥意思，梗都没怎么换的，有一种鸽了这么久就这的观感
 
+
+*****
+
+####  NODY  
+##### 9880#       发表于 2024-1-22 14:57
+
+邦邦证明了只要他们愿意，可以靠着五个人轮流emo把一两个活动就能解决的事件硬是拖一整年，看来还真不用担心鸡团这一年不进游戏会有时间差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

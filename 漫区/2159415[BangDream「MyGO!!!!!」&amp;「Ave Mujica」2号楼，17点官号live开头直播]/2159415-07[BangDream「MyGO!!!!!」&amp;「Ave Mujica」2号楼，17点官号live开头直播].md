@@ -8569,3 +8569,17 @@ ag已经闹解散一年了<img src="https://static.saraba1st.com/image/smiley/fa
 
 为什么不写勇闯娱乐圈的故事<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 9884#       发表于 2024-1-22 15:39
+
+ 本帖最后由 NODY 于 2024-1-22 15:41 编辑 
+
+勇闯娱乐圈是萝、pp还有未来的鸡的主线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+hhw在土豪斗法，ras在本格乐队大战赚米乐队，ag和ppp在讨论留学或者毕业要做别的工作玩不了乐队怎么办
+
+现在除了画风不同论外的hhw，最轻松的就是喝茶顺便感受一下青春期烦恼的狗了，除非真的想不开要去打天梯
+

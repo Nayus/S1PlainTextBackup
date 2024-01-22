@@ -741,3 +741,45 @@ ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二
 
 我就是乐意见到**上台，让美国割裂加剧
 
+
+*****
+
+####  overlorder  
+##### 84#       发表于 2024-1-22 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734142&amp;ptid=2168993" target="_blank">jamboo 发表于 2024-1-22 14:24</a>
+
+郁可唯</blockquote>
+power abuse是吧？
+
+*****
+
+####  RlphaDo  
+##### 85#         楼主| 发表于 2024-1-22 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734743&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 15:15</a>
+
+懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
+你疯了？你要不去美国住半个月看看自己会接触多少made in China的东西？贸易硬脱钩美国人均生活质量掉一半我觉得都保守了。
+
+*****
+
+####  中国科学院  
+##### 86#       发表于 2024-1-22 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731268&amp;ptid=2168993" target="_blank">deadline 发表于 2024-1-22 10:28</a>
+
+黑利很聪明，已经线上线下开喷哈里斯了，她自己也知道八成争不过那个男人，已经开始争取当副手和他搭档了 ...</blockquote>
+黑莉和哈里斯中我支持黑莉
+
+坏能忍，蠢不能忍
+
+*****
+
+####  madawc  
+##### 87#       发表于 2024-1-22 15:44
+
+<blockquote>P.C. 发表于 2024-1-22 15:15
+懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
+自由市场，国家强力你到底信哪个？哦信哪个你也得不出这结论，你信的应该是我大米粒尖天下无敌
+

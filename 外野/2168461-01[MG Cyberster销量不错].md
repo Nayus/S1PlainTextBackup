@@ -1516,3 +1516,14 @@ mx5 到 20w 我真会支持一台。回到 mg，我只能说，不看标，实�
 工匠派不是刷圈造假名声都臭了么 这种玩意能做出来什么老头乐</blockquote>
 造假派后面内容转型了吧，主要做经典车复原了，后来的官中不知道原来的事
 
+
+*****
+
+####  DeepFishing  
+##### 142#       发表于 2024-1-22 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63731229&amp;ptid=2168461" target="_blank">Vora 发表于 2024-1-22 10:26</a>
+
+这玩意怎么看都是z4那种吧，为啥都拿mx5比</blockquote>
+z4太丑，知名度比mx5还低
+

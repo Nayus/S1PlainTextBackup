@@ -576,3 +576,23 @@ you know who？
 
 — from Razer Phone 2, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  RlphaDo  
+##### 68#         楼主| 发表于 2024-1-22 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63733825&amp;ptid=2168993" target="_blank">面筋融化c 发表于 2024-1-22 13:58</a>
+
+那个什么州长纽森看来还得再蛰伏一届
+
+—— 来自 Xiaomi 2211133C, Android 14上的 S1Next-鹅版 v2.5.2-pla ...</blockquote>
+稀宗寻求连任，民主党说要参选那俩一看就纯图一乐的
+
+*****
+
+####  草蛉  
+##### 69#       发表于 2024-1-22 14:17
+
+2028年感觉会是纽森大战德桑蒂斯？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

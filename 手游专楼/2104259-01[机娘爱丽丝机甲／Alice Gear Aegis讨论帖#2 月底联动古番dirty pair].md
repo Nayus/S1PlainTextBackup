@@ -137,3 +137,11 @@
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  madcow  
+##### 885#       发表于 2024-1-22 16:07
+
+抽了60然后京姐1+1......总感觉每次我联机摆了easy五连以后抽卡就会吃屎（
+

@@ -880,3 +880,64 @@ ykw并不是不可预测 他的核心思路是西大老了 肯定干不过老二
 
 还有一点，不管是懂王还是老登上来，其实都没什么连任压力，中美斗争只会更激烈。对两者都不必抱什么期待。不过懂王上来有一点好处，懂王肯定依然会抱持孤立主义，也不会再去团结其他西方国家。狗叫声确实会少点。
 
+
+*****
+
+####  叶子  
+##### 98#       发表于 2024-1-22 16:04
+
+这个根本不是对手好吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RlphaDo  
+##### 99#         楼主| 发表于 2024-1-22 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735298&amp;ptid=2168993" target="_blank">佛剑分说 发表于 2024-1-22 15:58</a>
+
+经济是最不保险的武器，因为这取决于对方的理性
+
+早好几年前，华为以及国内其他科技业就盲目乐观，因为不 ...</blockquote>
+无论是美国哪个总统都不能在这种层面上统合美国全部人的意志，真生活质量减半他们是咬牙支持战争还是闹事逼总统下台？
+
+贸易战是可以被掩盖的影响，硬脱钩是吗？这是完全不同的两个概念，量级差别太大了。
+
+我觉得能问出这种问题的还是对中美贸易究竟在美国人生活中占据了多大的层面没有一点基础的认识，50%还只是打上标签的made in China，没打上标签的那些产品里边就没有含拆成分了吗？中国接近三亿的制造业人口，比美国在工龄的人口都多，这要怎么进行“产线转移”才可以弥补？
+
+*****
+
+####  佛剑分说  
+##### 100#       发表于 2024-1-22 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735423&amp;ptid=2168993" target="_blank">RlphaDo 发表于 2024-1-22 16:08</a>
+
+无论是美国哪个总统都不能在这种层面上统合美国全部人的意志，真生活质量减半他们是咬牙支持战争还是闹事 ...</blockquote>
+谁说一下子脱钩到零了？倒是你，太高看美国老百姓的自主性和理性了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宏  
+##### 101#       发表于 2024-1-22 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63734743&amp;ptid=2168993" target="_blank">P.C. 发表于 2024-1-22 15:15</a>
+
+懂王的破坏性在于，他有可能发疯进一步切断与东大的贸易联系。而国内的企业（资本）家们也在为此做准备，这 ...</blockquote>
+显然是ukw上台更有利于东大，这点没什么详细分析的必要，就一个点，只要西大不能产生稳定具有长期连续性的政策，东大就获益，至于是怎样一个形式不重要
+
+*****
+
+####  佛剑分说  
+##### 102#       发表于 2024-1-22 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735447&amp;ptid=2168993" target="_blank">宏 发表于 2024-1-22 16:10</a>
+
+显然是ukw上台更有利于东大，这点没什么详细分析的必要，就一个点，只要西大不能产生稳定具有长期连续性 ...</blockquote>
+希望懂王能不忘初心，就像上次上台把所有奥黑政策一个不留全部清算一样，全面清算老登的所有政策<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宏  
+##### 103#       发表于 2024-1-22 16:13
+
+作为8年前就认定ukw会打毛衣战的人，我先预测一下，ukw这次只要不死于非命，卷土重来的可能性相当大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

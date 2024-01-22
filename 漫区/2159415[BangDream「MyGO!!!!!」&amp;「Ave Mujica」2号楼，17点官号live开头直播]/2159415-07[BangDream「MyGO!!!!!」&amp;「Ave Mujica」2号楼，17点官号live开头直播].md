@@ -8953,3 +8953,11 @@ https://x.com/saihu715/status/1748270671153774943?s=20
 评论1520
 弹幕6562
 
+
+*****
+
+####  PDQ4  
+##### 9924#       发表于 2024-1-23 00:21
+
+系构不是绫奈那我就要鉴定为原案是真女同了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

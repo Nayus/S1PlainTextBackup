@@ -28064,3 +28064,141 @@ O-Haze数据集上定量结果对比，最佳和次佳结果分别用粗体和�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1209#       发表于 2024-1-23 00:14
+
+CivRealm
+
+决策代理者(Decision-Making Agents)在文明中的学习和推理之旅
+
+github项目主页:https://github.com/bigai-ai/civrealm
+
+决策代理者的泛化包括两个基本要素:从过去的经验中学习和在新环境中进行推理，然而，在大多数交互环境中主要强调的是学习，通常以牺牲推理的复杂性为代价
+
+在本文中，介绍了CivRealm，一个受到文明游戏(Civilization game)启发的环境，文明与人类历史和社会的深刻对齐需要复杂的学习，而其不断变化的情景则要求强大的推理能力来进行推广，特别是，CivRealm建立了一个不完全信息的非零和游戏，参与者数量不断变化，它提供了丰富的复杂特征，挑战代理者处理外交和谈判技巧能力的开放性随机环境
+
+在CivRealm中，提供了两种典型的代理者类型接口:基于张量的代理者专注于学习，而基于语言的代理者则强调推理，为了促进进一步的研究，对这两种范式都提供了初步结果，经典的基于强化学习的代理者在小游戏中表现出了合理的性能，但是，无论是基于强化学习还是LLM的代理者，都很难在完整游戏中取得实质性的进展，总体而言，CivRealm是一个独特的学习和推理游戏，适合决策代理者挑战
+
+<img src="https://img.saraba1st.com/forum/202401/23/001319yyryjyrg5p3xfhy5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-000920__01.jpg</strong> (514.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:13 上传
+
+CivRealm游戏玩法需要深入推理，涉及长期的战略规划和精细的战术控制，图中描述了一个类似于历史情景的假设情况，罗马人需要在对抗迦太基的同时保护西西里岛，并与衰落的埃及保持友好的外交关系，这个决策是在一个高度复杂的背景下做出的:玩家需要认真考虑在给定的地理和外交情况下的长期发展战略，如技术、军事和外交，他们还需要进行细致的控制行动，例如边境探索、船只建造和道路建设
+
+<img src="https://img.saraba1st.com/forum/202401/23/001347rm2m15z8m2rm123r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-000940__01.jpg</strong> (239.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:13 上传
+
+与现有环境的对比，CivRealm具有以下用于学习和推理的特点:
+信息不完全(Imperfect info):完整状态只能部分观察到
+随机性(Stochastic):动态环境是非确定性的
+多目标(Multi-goal)游戏中有多个胜利条件
+动态空间(Dynamic space):单个玩家的状态和行动空间在游戏中动态变化
+多代理者(Multi-agent):游戏中有多个相互互动的玩家
+正和(General-sum):这是一个混合动机游戏，合作与竞争共存
+改变的玩家(Changing players):在一个游戏中玩家的数量可以增加或减少
+通信(Comm):玩家可以在游戏中明确地进行通信
+张量和语言(Tensor &amp; Lang):环境提供张量和语言API
+
+<img src="https://img.saraba1st.com/forum/202401/23/001354ad8d84vx75rzmk1r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-000949__01.jpg</strong> (530.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:13 上传
+
+随着游戏的展开，文明发展，潜在的状态和行动空间也变得非常庞大，这个图集中展示了8个时代中的4个，其中技术进步解锁了更多的建筑和单位，在游戏过程中，状态可以从10^15增长到10^650，行动空间可以从10^4扩展到10^166，图例只展示了一些示例元素:完整的游戏包括87种技术、68种建筑、52种单位、6种管理类型和5种外交状态，所有这些都受到使用的规则集的限制且可定制
+
+<img src="https://img.saraba1st.com/forum/202401/23/001401npwou6oj7yms60w7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-001003__01.jpg</strong> (664.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:14 上传
+
+设计的不同类型的迷你游戏示例
+
+<img src="https://img.saraba1st.com/forum/202401/23/001406ir3bk2es2srwfbke.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-001015__01.jpg</strong> (304.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:14 上传
+
+生成的迷你游戏多样且平衡
+(a)地形和资源分布以及相应的联合食物/生产/贸易指标
+(b)单位数量和强度:单位数量的玩家之间比率
+(c)技术数量和价值:玩家之间的差异分布
+
+<img src="https://img.saraba1st.com/forum/202401/23/001419yopeveyvx9tm9ntp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-001027__01.jpg</strong> (363.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:14 上传
+
+基于LLM的方法架构
+左:BaseLang
+右:Mastaba
+
+<img src="https://img.saraba1st.com/forum/202401/23/001425wod0ax4y7xvk1dv1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-001040__01.jpg</strong> (264.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:14 上传
+
+在三个迷你任务上进行训练的RL方法的性能；不同的迷你任务表现出不同程度的随机性和复杂性，导致了不同的成功率，在“SettlerBuildCity”任务中，RL方法在困难级别上表现出了捷径学习(shortcut learning)效果
+
+<img src="https://img.saraba1st.com/forum/202401/23/001430o761cb1n7c7nc0b6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-001045__01.jpg</strong> (201.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:14 上传
+
+RL方法在全游戏训练过程中的得分，CivRealm提供了不同的指标来衡量模型的性能，从不同的角度提供进一步的见解，这些指标也反映了环境的多目标性质
+
+<img src="https://img.saraba1st.com/forum/202401/23/001436k9kyms4k5mjjjszj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-001108__01.jpg</strong> (263.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:14 上传
+
+文明的演化
+上方:BaseLang
+下方:Mastaba
+
+从左到右，图中展示了文明进展到各个阶段
+
+<img src="https://img.saraba1st.com/forum/202401/23/001441y17plpwpmdpzv7nd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-001113__01.jpg</strong> (201.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 00:14 上传
+
+基于LLM的代理根据游戏回合的指标统计数据，每个游戏统计50次
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

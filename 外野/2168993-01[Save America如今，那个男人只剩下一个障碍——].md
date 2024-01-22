@@ -1524,3 +1524,13 @@ you know who？
 
 要MAGA，找东大。<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RlphaDo  
+##### 157#         楼主| 发表于 2024-1-22 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2321-2, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

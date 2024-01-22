@@ -1339,3 +1339,19 @@ mx5真的要强调，而且分4种版本全都有，软顶是纯手动软顶没�
 
 想要抬杠洗地，麻烦从头到尾看一遍。
 
+
+*****
+
+####  杨千fa单推人  
+##### 128#       发表于 2024-1-22 09:59
+
+ 本帖最后由 杨千fa单推人 于 2024-1-22 10:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730746&amp;ptid=2168461" target="_blank">无印凉粉 发表于 2024-1-22 09:53</a>
+
+所以呢？你说的自动手动是敞篷还是波箱啊？
+
+想要抬杠洗地，麻烦从头到尾看一遍。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我只是个路过插嘴的，没有任何立场，想到什么说什么，-150鹅就是这么来的
+
+欢迎大家接我的话和我聊天，要是不想和我聊天你可以自动无视
+

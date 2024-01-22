@@ -10403,3 +10403,14 @@ ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="ht
 
 特喵的为什么“ＵＵ”是屏蔽词
 
+
+*****
+
+####  笔仁SaSaSa  
+##### 2542#       发表于 2024-1-22 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736668&amp;ptid=2150634" target="_blank">胖胖Ω 发表于 2024-1-22 17:44</a>
+
+想找个网易ＵＵ加速器的便宜替代，坛里搜索后看到“AK加速器”，跟雷神一样按小时计费，而且每天00:00-14:0 ...</blockquote>
+我用**主要是路由器加速太过方便了……
+

@@ -1420,3 +1420,47 @@ DeSantis早就有懂王 ...</blockquote>
 
 我不相信我们中国人那么没骨气，就因为会牵连到自己，就一直甘为奴隶的。
 
+
+*****
+
+####  校内写生大会  
+##### 148#       发表于 2024-1-22 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736923&amp;ptid=2168993" target="_blank">lvcha3 发表于 2024-1-22 18:05</a>
+这次看好懂王，萝莉岛加分不少</blockquote>
+懂贼又不是没上去过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+破产专家留了个心眼去爱泼斯坦家里做的罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RlphaDo  
+##### 149#         楼主| 发表于 2024-1-22 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736752&amp;ptid=2168993" target="_blank">宏 发表于 2024-1-22 17:51</a>
+问题不是收缩，问题是越收缩离MAGA越远，登子也许只是个裱糊匠，但UKW肯定不是建筑师而是拆迁工 ...</blockquote>
+maga本来就是个口号啊，美国的衰落是一种长期趋势，真以为区区一个总统就能救美国吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大家都是帝国守墓人
+
+—— 来自 motorola XT2321-2, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  保罗赫伯特  
+##### 150#       发表于 2024-1-22 18:20
+
+目前有没有啥比较靠谱的民调啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cheatdeath3  
+##### 151#       发表于 2024-1-22 18:21
+
+ 本帖最后由 cheatdeath3 于 2024-1-22 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736883&amp;ptid=2168993" target="_blank">黑兽 发表于 2024-1-22 18:01</a>
+
+查了下副总统还真不行，第十二修正案 马一龙可以给搞个内阁位置</blockquote>
+如果只是影响决策而不是刷脸的话，当总统幕僚，混个助理，不就完事了
+

@@ -6183,3 +6183,14 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天TM就一场战斗？？
 
+
+*****
+
+####  eilot  
+##### 11081#       发表于 2024-1-22 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63738138&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-22 20:07</a>
+
+今天TM就一场战斗？？</blockquote>
+而且樹都種出來，但留給明天才砍伐?
+

@@ -8814,3 +8814,26 @@ ras推早该躺躺了（平时没活动。有活动就连着来<img src="https:/
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  akirakira  
+##### 9908#       发表于 2024-1-22 20:13
+
+你还不如辟一下可能是因为没有确定具体日期，所以没写上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 9909#       发表于 2024-1-22 20:17
+
+剧场版还没公布脚本是谁吧，所以不能写上去
+虽然不公布这事本身就很奇怪
+
+*****
+
+####  安洁莉娜  
+##### 9910#       发表于 2024-1-22 20:21
+
+“rikki”和“soyorin”配得还挺上头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

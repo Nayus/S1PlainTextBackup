@@ -248,3 +248,24 @@
 
 70发连个响都没有，群内哀号遍野，预祝你游周年喜迎最大弃坑潮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 896#       发表于 2024-1-23 15:59
+
+连FAG关推都转推祝贺了岛田还是一声不吭我看可以正式清算岛田了<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer"> 天下没有不散的筵席，和金字塔合作多年和社长十几年交情都是纸糊的
+
+以下安洁4星剧情剧透
+
+安洁小时候捡破烂的，后来被人贩子拐了卖到地下赌场当服务生，才能被基辅的天然气富婆看中被卖下，之后就像赤木一样代打地下麻将。富婆发现她有女演员才能后想把她包装成乌头号女演员，借她名气自己当上乌总统（富婆以前也是女演员，在形势不定的乌克兰女演员是唯一翻身机会）。富婆砸了大把钱培养，正式出道前先让安洁去收拾掉暗中调查富婆的东京AEGIS。结果安洁反而被策反了（没有具体过程大概放在了绊剧情）富婆也被检举失势。
+
+然后安洁出道前对SIN和毛子女演员的战绩是完胜，果然不忘来点灭鹅神器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 897#       发表于 2024-1-23 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能万代爸爸给的太多了吧
+

@@ -2341,3 +2341,16 @@ EPISODE 16
 Noir Rain</blockquote>
 坏了，真给孩子整玉玉了
 
+
+*****
+
+####  aptx8285144  
+##### 3540#       发表于 2024-1-23 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63745759&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-1-23 14:45</a>
+
+EPISODE 16
+
+Noir Rain</blockquote>
+好像不知道是声优还是谁说彼方是不太会真正消沉下去的类型，所以是诺娃哭泣的意思吗（
+

@@ -6385,3 +6385,16 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 正雪宝具buff虽然厉害但是真到什么无限池柱子战……大多数人谁想多看一个宝具啊，基本还是高难插件吧
 
+
+*****
+
+####  alucardcz  
+##### 11098#       发表于 2024-1-23 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741339&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-1-23 08:35</a>
+
+看别的地方说正雪好像是人权卡?
+
+所以到底要不要抽啊....对角色是真没多少爱...非洲人是真的想继续存 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4星人权你信吗? 吊打奥波龙吗?
+

@@ -10458,3 +10458,11 @@ ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="ht
 
 但是雷神加速喷射战士是是免费啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 2547#       发表于 2024-1-23 10:53
+
+推上有个饭制新赛季pv还挺丁真的https://twitter.com/OctaSpla2n，确实希望dlc是2月出（
+

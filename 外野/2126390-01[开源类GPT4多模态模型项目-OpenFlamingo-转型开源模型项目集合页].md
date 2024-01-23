@@ -28819,3 +28819,133 @@ Cor → Corrective
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1215#       发表于 2024-1-24 05:55
+
+CMMMU
+
+中文大规模多学科多模态理解基准测试
+
+项目主页:https://cmmmu-benchmark.github.io/
+
+github项目仓库:https://github.com/CMMMU-Benchmark/CMMMU
+
+排行榜:https://cmmmu-benchmark.github.io/#leaderboard
+
+数据集:https://huggingface.co/datasets/m-a-p/CMMMU
+
+随着大型多模态模型模型(LMM)能力的持续进步，评估LMM的性能成为一种日益增长的需求，此外，评估LMM在诸如中文等非英语环境中的高级知识和推理能力方面存在着很大的差距
+
+本文介绍了CMMMU，一个全新的中文大规模多学科多模态理解基准测试，旨在评估LMM在中文环境中需要的大学级学科知识和深思熟虑推理方面的能力，CMMMU受到MMMU的启发，并严格遵循其标注和分析模式
+
+CMMMU包含从大学考试、测验和教科书中手动收集的1.2万个多模态问题，涵盖六个核心学科：艺术与设计、商业、科学、健康与医学、人文社科、技术与工程，与其伙伴MMMU相同，这些问题涵盖30个学科，包括39种高度异构的图像类型，如图表、图示、地图、表格、乐谱和化学结构
+
+CMMMU关注的是在中文环境中具有特定领域知识的复杂感知和推理能力，评估了11个开源LMM和一个专有的GPT-4V(ision)，即使是GPT-4V，准确率也只有42%，这表明还有很大的改进空间
+
+CMMMU将推动社区构建面向专家人工智能的下一代LMM，并通过提供多样的语言环境促进LMM的广泛使用
+
+<img src="https://img.saraba1st.com/forum/202401/24/055454i00u0naiqff0blgd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055155.jpg</strong> (128.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:54 上传
+
+CMMMU中的学科
+
+<img src="https://img.saraba1st.com/forum/202401/24/055500s88fiuah8m2ay2on.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055224__01.jpg</strong> (488.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+从每个学科中抽样的CMMMU示例，这些图片包括乐谱、表格、化学结构、曲线、电路图和其他类型的图片，高难度的问题需要专家级的知识来理解和推理
+
+<img src="https://img.saraba1st.com/forum/202401/24/055505ncrv5jvzrprewz8j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055229__01.jpg</strong> (564.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+CMMMU中6个学科和30个主题的比例，30个主题中的多模态样本均均匀地涵盖了相关的专家级领域知识
+
+<img src="https://img.saraba1st.com/forum/202401/24/055509kxxllywn5sl45ld1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055302.jpg</strong> (172.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+与其他多模态基准测试的对比
+
+<img src="https://img.saraba1st.com/forum/202401/24/055513g9qfqq0gq99fqk88.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055314.jpg</strong> (282.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+CMMMU的统计数据
+
+<img src="https://img.saraba1st.com/forum/202401/24/055517bz5j34233bufene6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055334.jpg</strong> (186.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+图像类型及其对应数量
+
+<img src="https://img.saraba1st.com/forum/202401/24/055521vnz40z4v7mhq2mov.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055350.jpg</strong> (222.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+开源和闭源模型在CMMMU验证和测试集上的整体结果，粗体结果表示所有模型中的最佳结果，蓝色结果表示开源模型中的最佳结果
+
+<img src="https://img.saraba1st.com/forum/202401/24/055526vp8hpuo20uk0uu7y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055359.jpg</strong> (75.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+按问题类型分解的结果
+
+<img src="https://img.saraba1st.com/forum/202401/24/055530kiav9a6br91im60a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055411.jpg</strong> (101.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+按问题难度级别分解的结果，粗体结果表示所有模型中的最佳结果，蓝色结果表示开源模型中的最佳结果
+
+<img src="https://img.saraba1st.com/forum/202401/24/055536rz47348yflku22zm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-055425.jpg</strong> (61.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 05:55 上传
+
+GPT-4V的错误响应的类型分布
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

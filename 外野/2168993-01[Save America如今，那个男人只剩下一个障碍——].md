@@ -1606,3 +1606,26 @@ you know who？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zuga  
+##### 165#       发表于 2024-1-23 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736941&amp;ptid=2168993" target="_blank">wolftooth 发表于 2024-1-22 18:07</a>
+
+这位坛友，我们祖先可是喊出过：时日曷丧，予及如偕亡！的。
+
+我不相信我们中国人那么没骨气，就因为会牵 ...</blockquote>
+不是说要一直做老二，而是不能让他崩溃牵连到我们呀，他自己胡搞缓慢衰退是一回事，直接炸了是另一回事啊。
+
+*****
+
+####  蓝色的鲨鱼  
+##### 166#       发表于 2024-1-23 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736540&amp;ptid=2168993" target="_blank">宏 发表于 2024-1-22 17:35</a>
+
+可惜当年专楼砍了，不然现在看很有意思</blockquote>
+本楼也可以转型为专楼嘛
+

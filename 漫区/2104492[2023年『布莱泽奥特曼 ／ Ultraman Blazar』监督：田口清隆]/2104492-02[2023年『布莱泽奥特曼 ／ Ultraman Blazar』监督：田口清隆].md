@@ -2053,3 +2053,26 @@ TV开篇巴赞甲抵达地球
 放出来的狗已经咬人了，怎么样都得把这狗打死，怎么可能让狗主人就这么收回去，总得给受害人家属一个交代 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个观点合理，确实
 
+
+*****
+
+####  kcalb  
+##### 1781#       发表于 2024-1-23 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63742886&amp;ptid=2104492" target="_blank">洛克萨斯 发表于 2024-1-23 10:47</a>
+
+这个观点合理，确实</blockquote>
+结果没收拾掉被BOOM了就搞笑了，反过来也可以是”你们蓝星人果然下贱，不想和你们一般见识，让我的狗狗收拾你们吧”
+
+主要问题就出在从头到尾V99一个屁都没放谁知道他们想干吗，全杖观众脑部了，至于小田田说我本来想怎么怎么样，你看是不是很大胆？是的，每个导演心里都有团火，但路人只能看到烟，大部分人还被呛到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 1782#       发表于 2024-1-23 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63746139&amp;ptid=2104492" target="_blank">kcalb 发表于 2024-1-23 15:16</a>
+
+结果没收拾掉被BOOM了就搞笑了，反过来也可以是”你们蓝星人果然下贱，不想和你们一般见识，让我的狗狗收 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是觉得地球怪兽+奥特曼+机械龙武德充沛肯定收的掉吧
+

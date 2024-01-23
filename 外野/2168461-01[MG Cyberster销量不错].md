@@ -1600,3 +1600,20 @@ mx5那孱弱的动力，hmm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这东西mx5两倍的重量怎么拉到一个赛道的？尺寸都赶上小一点的gt型跑车了
 
+
+*****
+
+####  kanjiachan  
+##### 150#       发表于 2024-1-23 15:17
+
+MG7和MG Cyberster上地平线5了
+
+mg.jpg
+(147.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 15:16 上传
+
+<img src="https://img.saraba1st.com/forum/202401/23/151642w8dszy2dh53y33u3.jpg" referrerpolicy="no-referrer">
+

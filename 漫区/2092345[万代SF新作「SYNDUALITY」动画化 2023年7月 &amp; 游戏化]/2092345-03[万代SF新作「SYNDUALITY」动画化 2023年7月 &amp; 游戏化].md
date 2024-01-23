@@ -2397,3 +2397,43 @@ Noir Rain</blockquote>
 
 哇她西八嘎啊尼？
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3546#       发表于 2024-1-23 20:23
+
+ 本帖最后由 嘴上名作粉碎锤 于 2024-1-23 20:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749241&amp;ptid=2092345" target="_blank">oi99o 发表于 2024-1-23 18:55</a>
+
+这集分镜吉泽俊一是高达nt的监督，g复国剧场版的演出，效果还是挺不错的 ...</blockquote>
+这集后半段的演出还是太赶了，TV的时长搞赶时间的演出观感就好不了，如果它是40分钟啊或60分钟的就没毛病。
+
+时生赶来挡刀并打败面具男那段赶得飞起，怎么切武器的不慢放看两遍就会看不清也看不懂，还有后面一转唐突“认亲+反水”的场面一度十分尴尬。
+
+*****
+
+####  亚瑟邓特  
+##### 3547#       发表于 2024-1-23 20:27
+
+喵萌上集还没出<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novyDC  
+##### 3548#       发表于 2024-1-23 20:31
+
+熟悉的台词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/23/203145x9gecno7oo0w3lze.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-23-12-29-21-580_com.viva.note.jpg</strong> (428.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 20:31 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

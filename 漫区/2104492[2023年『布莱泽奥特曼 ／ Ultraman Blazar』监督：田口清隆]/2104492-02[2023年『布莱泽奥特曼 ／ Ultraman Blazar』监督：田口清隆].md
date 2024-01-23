@@ -2042,3 +2042,14 @@ TV开篇巴赞甲抵达地球
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  洛克萨斯  
+##### 1780#       发表于 2024-1-23 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741803&amp;ptid=2104492" target="_blank">封印的右手 发表于 2024-1-23 09:28</a>
+
+放出来的狗已经咬人了，怎么样都得把这狗打死，怎么可能让狗主人就这么收回去，总得给受害人家属一个交代 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个观点合理，确实
+

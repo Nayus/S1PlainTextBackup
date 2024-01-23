@@ -9173,3 +9173,13 @@ https://www.pixiv.net/artworks/115386937<img src="https://p.sda1.dev/15/14e58344
 那我缺的友情破颜拳这一块 谁给我补啊
 不过转念一想 只有睦和祥子出现这种情节才没有违和感 因为这俩人的关系太近了 无论发生什么 都不会被破坏 是真物
 
+
+*****
+
+####  NODY  
+##### 9946#       发表于 2024-1-23 21:27
+
+刷5ch专楼发现那边也在通过立希吐槽邦邦鼓手自带人气低诅咒只有花音例外，这么看反而是花音比较厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道喵老师有没有机会和水母一样摆脱诅咒
+

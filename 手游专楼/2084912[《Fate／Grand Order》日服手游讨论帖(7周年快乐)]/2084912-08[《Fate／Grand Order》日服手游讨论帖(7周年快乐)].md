@@ -6637,3 +6637,22 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 正雪太惨了，抽一个
 
+
+*****
+
+####  beer  
+##### 11121#       发表于 2024-1-23 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749250&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-23 18:55</a>
+你仔细看啊
+
+太猎奇了</blockquote>
+新哥斯拉•正雪
+
+*****
+
+####  yangun22  
+##### 11122#       发表于 2024-1-23 21:25
+
+惨到底后面才有的救么，倒是伊织这记忆我觉得没时间给他拿回来了，弄不好要这样一直失忆到底了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

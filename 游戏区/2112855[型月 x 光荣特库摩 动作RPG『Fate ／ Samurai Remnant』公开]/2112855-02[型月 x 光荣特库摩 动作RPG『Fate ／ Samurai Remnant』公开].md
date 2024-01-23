@@ -6,3 +6,14 @@
 
 这个坐牢流程各位是怎么打多周目的。二周目刚开始已经坚持不住了。
 
+
+*****
+
+####  DARKGRAY  
+##### 1677#       发表于 2024-1-23 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63750792&amp;ptid=2112855" target="_blank">Shabadadoo 发表于 2024-1-23 21:17</a>
+
+这个坐牢流程各位是怎么打多周目的。二周目刚开始已经坚持不住了。</blockquote>
+二周目不升难度的话没啥阻力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

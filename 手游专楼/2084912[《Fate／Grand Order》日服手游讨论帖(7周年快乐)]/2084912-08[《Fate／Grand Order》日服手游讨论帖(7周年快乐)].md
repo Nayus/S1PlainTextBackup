@@ -6304,3 +6304,16 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 所以到底要不要抽啊....对角色是真没多少爱...非洲人是真的想继续存石
 
+
+*****
+
+####  qixinno2  
+##### 11091#       发表于 2024-1-23 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741339&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-1-23 08:35</a>
+
+看别的地方说正雪好像是人权卡?
+
+所以到底要不要抽啊....对角色是真没多少爱...非洲人是真的想继续存 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没觉得哪里像人权 估计是满宝的那种可能会比较强 1宝也就是收藏用了
+

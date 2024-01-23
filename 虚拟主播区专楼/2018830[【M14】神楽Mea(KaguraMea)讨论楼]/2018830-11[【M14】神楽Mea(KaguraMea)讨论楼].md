@@ -1463,3 +1463,11 @@ b站可以投稿了？
 
 玩了帕鲁但是完全跟不上别人的进度，什么忙都帮不上，所以觉得不好玩
 
+
+*****
+
+####  thisisaspider  
+##### 16203#       发表于 2024-1-23 21:51
+
+麻麻和宅宅玩帕鲁吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

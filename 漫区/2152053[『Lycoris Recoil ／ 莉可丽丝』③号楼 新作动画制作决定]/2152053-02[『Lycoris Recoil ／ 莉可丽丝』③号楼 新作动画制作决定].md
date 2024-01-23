@@ -164,3 +164,19 @@
 
 回答不上的只需知道“zl sb”就成<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1510#       发表于 2024-1-23 21:43
+
+[https://twitter.com/imudegozaimasu/status/1749778900706902160?s=19](https://twitter.com/imudegozaimasu/status/1749778900706902160?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/23/214316h380m3xtfsemt8hr.jpg" referrerpolicy="no-referrer">
+
+<strong>20240123_214246.jpg</strong> (897.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 21:43 上传
+

@@ -9183,3 +9183,37 @@ https://www.pixiv.net/artworks/115386937<img src="https://p.sda1.dev/15/14e58344
 
 不知道喵老师有没有机会和水母一样摆脱诅咒
 
+
+*****
+
+####  アコ  
+##### 9947#       发表于 2024-1-23 21:47
+
+<img src="https://img.saraba1st.com/forum/202401/23/214515j2uamjneaaamb25x.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (68.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202401/23/214520smmzg4h222glu274.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (68.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202401/23/214523zlizkzkgxm1xxr81.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (44.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 21:45 上传
+
+BanG Dream! 8th☆LIVE DAY3 「Special Live ～Summerly Tone♪～」Pastel＊Palettes PART
+
+amit真是三次元PP的孤独偶像，政委远程合唱加应援，感动得泪流满面<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

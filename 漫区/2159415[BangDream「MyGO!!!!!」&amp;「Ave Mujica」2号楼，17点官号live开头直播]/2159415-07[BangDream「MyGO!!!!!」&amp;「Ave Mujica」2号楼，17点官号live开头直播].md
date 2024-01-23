@@ -9082,3 +9082,11 @@ hhw在土豪斗法，ras在本格乐队大战赚米乐队，蝶在大战理事�
 
 https://www.pixiv.net/artworks/115386937<img src="https://p.sda1.dev/15/14e5834412f743ad4dbf6e89f098d04d/CMP_20240123114240612.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 9937#       发表于 2024-1-23 12:33
+
+那本动画设定集就已经是设定集了，没准身高和学校班级都提前公布了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

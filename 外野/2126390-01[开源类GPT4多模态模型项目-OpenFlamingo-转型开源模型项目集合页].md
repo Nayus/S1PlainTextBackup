@@ -28949,3 +28949,185 @@ GPT-4V的错误响应的类型分布
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1216#       发表于 2024-1-24 06:46
+
+RPG-DiffusionMaster
+
+掌控文本到图像扩散:使用多模态LLM进行重述、规划和生成(Recaptioning, Planning, and Generating)
+
+github项目主页:https://github.com/YangLing0818/RPG-DiffusionMaster
+
+扩散模型在文本到图像生成和编辑方面表现出色，然而，现有方法经常在处理涉及多个对象、多个属性和关系的复杂文本提示时面临挑战
+
+在本文中，提出了一种全新的无需训练的文本到图像生成/编辑框架，名为Recaption，Plan and Generate(RPG)，利用多模态LLM的强大思维链推理能力来增强文本到图像扩散模型的组合性
+
+本文方法将MLLM作为全局规划器，将生成复杂图像的过程分解为子区域内的多个更简单的生成任务，提出了区域互补扩散(complementary regional diffusion)，以实现区域感知的组合式生成，此外，通过以闭环的方式将文本引导的图像生成和编辑集成到提出的RPG中，增强了泛化能力
+
+大量实验证明了RPG在多类别对象组合和文本图像语义对齐方面优于SOTA文本到图像扩散模型，包括DALL-E 3和SDXL，值得注意的是，RPG框架与各种MLLM架构(如MiniGPT-4)和扩散骨干模型(如ControlNet)具有广泛的兼容性
+
+<img src="https://img.saraba1st.com/forum/202401/24/064500pogdcscgl9c5y9y9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063747__01.jpg</strong> (124.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+(a)文本条件扩散模型、(b)布局/基于注意力的扩散模型、(c) LLM基准扩散模型和(d)RPG之间的架构对比
+
+<img src="https://img.saraba1st.com/forum/202401/24/064505h7i979gilnbzgdl3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063800__01.jpg</strong> (765.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+与SDXL和DALL-E 3相比，本文提出的RPG在表达生成图像中复杂和组合的文本提示方面具有更强的能力(彩色文本表示关键部分)
+
+<img src="https://img.saraba1st.com/forum/202401/24/064511fv2mv7vq3ddidlro.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063817__01.jpg</strong> (475.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+RPG框架可以通过利用ControlNet来扩展文本到图像生成的更多条件(例如姿态、深度和边缘)，与原始的ControlNet相比，RPG通过将"用户输入"分解为基本提示和子提示的组合，显著改善了其提示理解，并通过执行区域感知的扩散生成进一步增强了生成图像的组合语义对齐
+
+<img src="https://img.saraba1st.com/forum/202401/24/064520bigq5h5gim5lcnk5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063840__01.jpg</strong> (181.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+RPG框架用于文本到图像生成的概览图
+
+<img src="https://img.saraba1st.com/forum/202401/24/064524v5g2pxpgjhgxzp2k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063854__01.jpg</strong> (110.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+区域划分的示例说明
+
+<img src="https://img.saraba1st.com/forum/202401/24/064530rackigcu48uccaml.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063905__01.jpg</strong> (471.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+区域互补扩散中的每个采样步骤的演示
+
+<img src="https://img.saraba1st.com/forum/202401/24/064534qokjshj6xwcaoktt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063918__01.jpg</strong> (473 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+RPG以闭环的方式整合了文本引导的图像生成和编辑
+
+<img src="https://img.saraba1st.com/forum/202401/24/064540gbvz9xo66svz9eaf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063929__01.jpg</strong> (761.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+RPG与SOTA文本到图像模型SDXL和DALL-E 3以及LLM基准扩散模型LMD+之间的定性对比
+
+<img src="https://img.saraba1st.com/forum/202401/24/064545p1bp9z4u9x1xhqup.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063935__01__01.jpg</strong> (288.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+在T2I-CompBench上的评估结果，RPG在属性绑定、对象关系和复杂组合方面始终表现出最佳性能，用蓝色表示最佳得分，绿色表示次佳得分，基线数据引用自Chen等人(2023a)
+
+<img src="https://img.saraba1st.com/forum/202401/24/064550h8gn4ad2ifv22aya.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-063951__01.jpg</strong> (649.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+分层区域扩散的演示，具有更多层次的扩散可以产生更令人满意的结果
+
+<img src="https://img.saraba1st.com/forum/202401/24/064554i1jf0jj2mjm1ay12.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-064000__01.jpg</strong> (797.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+将RPG推广到不同的扩散骨干网络，包括稳定扩散v2.1和最新的SOTA扩散模型ConPreDiff
+
+<img src="https://img.saraba1st.com/forum/202401/24/064558innzoss1r1s4ssgn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-064008__01.jpg</strong> (453.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:45 上传
+
+在文本引导的图像编辑方面进行的定性对比，本文方法的表现优于以前的各种方法，包括Prompt2Prompt、InstructPix2Pix和MasaCtrl等
+
+<img src="https://img.saraba1st.com/forum/202401/24/064603hxpnnr6pksyxtp9k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-064023__01.jpg</strong> (534.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:46 上传
+
+使用RPG框架进行多轮文本引导的图像编辑
+
+<img src="https://img.saraba1st.com/forum/202401/24/064608a3f9fhsmfsz5ms95.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-064029__01.jpg</strong> (783.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:46 上传
+
+RPG中关于重述的消融实验
+
+<img src="https://img.saraba1st.com/forum/202401/24/064612h3o11w1goo1devoz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-064040__01.jpg</strong> (475.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:46 上传
+
+RPG中CoT规划的消融实验
+
+<img src="https://img.saraba1st.com/forum/202401/24/064616xqudvqn99cddr9rq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-064049__01.jpg</strong> (320.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 06:46 上传
+
+区域互补扩散中基本提示的消融实验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

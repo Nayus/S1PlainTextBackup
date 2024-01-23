@@ -2236,3 +2236,27 @@ Licht Alter.  你俩不是兄弟啊
 
 大哥和面具男这么基情洋溢吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，平心而论，彼方也有点进步了，问题是面具男也不是菜逼，这样一来性能上差异以及诺娃一般状态对白雪目前也没啥优势，被这样暴打也正常
 
+
+*****
+
+####  aptx8285144  
+##### 3530#       发表于 2024-1-23 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63740012&amp;ptid=2092345" target="_blank">UnrealApartheid 发表于 2024-1-22 23:38</a>
+
+与水星魔女里阿斯提卡西亚高等专门学园发生的多次决斗相比，哪个表现更好呢？
+
+  -- 来自 能搜索的 Stage1 ...</blockquote>
+这个更加干净利落（
+
+*****
+
+####  charlespfan  
+##### 3531#       发表于 2024-1-23 13:39
+
+ 本帖最后由 charlespfan 于 2024-1-23 13:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63668939&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-1-16 18:40</a>
+
+大哥在主角快输的时候及时赶到，开始正义的群殴（）</blockquote>
+猜得大差不差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

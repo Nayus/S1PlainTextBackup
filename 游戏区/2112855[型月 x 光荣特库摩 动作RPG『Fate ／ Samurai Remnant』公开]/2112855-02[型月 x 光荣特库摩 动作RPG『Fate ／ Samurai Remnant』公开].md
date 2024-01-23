@@ -29,3 +29,11 @@
 
 我看了下我打了5周目白金了也才40+h
 
+
+*****
+
+####  johnkamsar  
+##### 1679#       发表于 2024-1-23 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fgo这不明夜if续写里某人也太过败犬了吧….满满的恶意
+

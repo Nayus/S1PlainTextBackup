@@ -1139,3 +1139,18 @@ HEX名字实际上是游戏内PID的16进制版本。
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  HSJ1992  
+##### 70#       发表于 2024-1-23 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749366&amp;ptid=2168983" target="_blank">moeblack 发表于 2024-1-23 19:05</a>
+
+用那个python脚本就能进行存档迁移
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+邀请码的P2P联机存档，转LXC 的linux docker服务器，地图能成功，角色数据不行。
+
+不知道接下去咋搞了。。。
+

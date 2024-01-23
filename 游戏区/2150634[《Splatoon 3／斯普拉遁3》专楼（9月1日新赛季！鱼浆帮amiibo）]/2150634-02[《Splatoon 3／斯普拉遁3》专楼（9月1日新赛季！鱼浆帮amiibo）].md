@@ -10496,3 +10496,13 @@ X赛永远只会掉大分，加分都没试过加大分
 
 今天网络情况不对劲
 
+
+*****
+
+####  罗克萨斯  
+##### 2551#       发表于 2024-1-23 21:54
+
+雷神延迟比UU还高，免费又如何<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

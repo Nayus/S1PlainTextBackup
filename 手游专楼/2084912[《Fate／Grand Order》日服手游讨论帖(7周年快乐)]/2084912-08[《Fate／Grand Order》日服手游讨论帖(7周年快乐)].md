@@ -6669,3 +6669,13 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 自己痛苦，又如何？.....罢了。正雪默默收拾东西，准备离开......
 
+
+*****
+
+####  花枝鱿鱼面  
+##### 11124#       发表于 2024-1-23 22:58
+
+那么多正雪怎么不送我一个（
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

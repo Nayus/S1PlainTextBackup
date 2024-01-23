@@ -1646,3 +1646,13 @@ MX5算是豪华卡丁车，和这个不是一个赛道<img src="https://static.s
 我寻思不就小几百吗</blockquote>
 现在300多是产能受限 稳定的话1000左右应该没问题
 
+
+*****
+
+####  yuni14646  
+##### 154#       发表于 2024-1-23 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686407&amp;ptid=2168461" target="_blank">hcho 发表于 2024-1-18 10:39</a>
+钱脸太丑了，跟马利克一样</blockquote>
+恨不能加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

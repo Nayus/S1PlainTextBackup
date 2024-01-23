@@ -6283,3 +6283,14 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 2024-1-23 01:41 上传
 
+
+*****
+
+####  qixinno2  
+##### 11089#       发表于 2024-1-23 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63740003&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-22 23:37</a>
+
+虽然但是 正雪啊 萌新的正雪啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我把剩下的石头扔了 我出正雪了
+

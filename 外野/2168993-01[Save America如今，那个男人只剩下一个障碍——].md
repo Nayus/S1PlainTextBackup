@@ -1534,3 +1534,14 @@ you know who？
 
 —— 来自 motorola XT2321-2, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  LilyWhite  
+##### 158#       发表于 2024-1-23 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735741&amp;ptid=2168993" target="_blank">双面人 发表于 2024-1-22 16:33</a>
+
+要是有阴兵使用权限还至于输2020吗，懂王动用阴兵取胜的可能性不如睡王用使用阴兵的罪名送懂王入狱呢 ...</blockquote>
+有没有一种可能，4年前两党都不想让**赢才把拜登给拱上去的，而现在，某些人吃相太差，而另外一些人看了麦卡锡的下场，再怎么不想让**赢，但也必须想办法不能输了？
+

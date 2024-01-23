@@ -2278,3 +2278,40 @@ Licht Alter.  你俩不是兄弟啊
 猜得大差不差，只是没想到大哥一波突袭偷吸单枪匹马车翻黑面具 ...</blockquote>
 面具男看上去对哥俩都没啥仇恨心态，无法发挥百分百实力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3534#       发表于 2024-1-23 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63739910&amp;ptid=2092345" target="_blank">wzm96816 发表于 2024-1-22 23:26</a>
+
+节奏不错，说实话这么看第一季没必要这么拖，即使是铺垫也太长了点。</blockquote>
+吃喝PIAO 赌，多姿多彩的生活满足水魔没能满足的遗憾（
+
+*****
+
+####  aptx8285144  
+##### 3535#       发表于 2024-1-23 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63739832&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-1-22 23:16</a>
+
+装备差距太离谱了点</blockquote>
+隔壁还有人不满意彼方说太菜了，可是人家明明进步很大，还和诺娃想到了火轰战术而干掉了卫浴柜麾下的杂兵们，奈何面具男身边的白雪是直接克火的（
+
+*****
+
+####  cauchua2  
+##### 3536#       发表于 2024-1-23 14:21
+
+男主在第一季第一话的时间之前参加隔壁入团测试没过，说明是操纵真菜吧，不是什么莫名其妙的伏笔限制实力
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aptx8285144  
+##### 3537#       发表于 2024-1-23 14:22
+
+于是诺娃保住了，接下来是一边找乐园一边追回大哥?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

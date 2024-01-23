@@ -28673,3 +28673,149 @@ S-Seg的概览图，一个MaskFormer模型从图像输入中计算掩码和掩�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1214#       发表于 2024-1-24 04:59
+
+ 本帖最后由 Machinery 于 2024-1-24 05:01 编辑 
+
+mllm-nvar
+
+多模态大型语言模型的非言语抽象推理(Nonverbal Abstract Reasoning)的奇怪案例
+
+github项目主页:https://github.com/kahrabian/mllm-nvar
+
+尽管大型语言模型(LLMs)仍然不断应用于新的领域并在新应用中发挥作用，但当前依然在经历新一代基础模型的不断涌入，即多模态大型语言模型(MLLMs)，这些模型整合了语言和视觉信息，为这两种模态的交错点上的更复杂的推理能力开辟了新的可能性
+
+然而，尽管MLLMs非常具有前景，但目前对它们的推理能力的理解还很有限，在这项研究中，使用变种Raven的渐进矩阵式(Raven's Progressive Matrices)评估了开源和闭源MLLMs的非言语抽象推理能力
+
+实验揭示了解决这类问题的困难，同时展现了开源和闭源模型之间的巨大差距，还揭示了个别视觉和文本模块的关键缺陷，使模型的性能受到限制，最后，为了提高MLLMs的性能，尝试了各种方法，如CoT提示等，在性能上取得了显著的提升
+
+<img src="https://img.saraba1st.com/forum/202401/24/045828u8fjnljr8je7phlj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045325__01.jpg</strong> (292.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:58 上传
+
+在IQ50数据集的示例上的模型对样本的预测结果，给定一个带有视觉难题(visual puzzle)的提示(顶部)，模型生成一个包含所选选项的推理响应
+
+<img src="https://img.saraba1st.com/forum/202401/24/045833qffff55findllfox.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045337__01.jpg</strong> (403.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:58 上传
+
+使用广泛的下一个Token得分方法在IQ50、RAVEN-S和Marvel数据集上的零样本准确率，对于每个数据集，MLLMs的最佳性能以粗体显示，第二好的性能以下划线显示
+
+T→运行一周后超时
+∗→使用半精度(例如bfloat16)运行以适应GPU显存
+‡→性能优于随机基线
+
+<img src="https://img.saraba1st.com/forum/202401/24/045841asla20t2kve1a2cd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045403__01.jpg</strong> (377.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:58 上传
+
+使用广泛的下一个Token得分方法对相关参数数量进行零样本准确率对比，模型按照从最小到最大排序，同一族类的模型颜色相同，红色虚线表示随机基线
+
+<img src="https://img.saraba1st.com/forum/202401/24/045848hkju766zwlllx7d3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045416__01.jpg</strong> (105.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:58 上传
+
+使用一一对比(one by one)和广泛的下一个Token得分方法在IQ50数据集上的零样本准确率对比
+
+带有†标记的结果来自于Zhao等人(2023)的研究，  取决于运行错误，无法复制它们(无论是Huggingface还是GitHub版本)，红色虚线表示随机基线
+
+<img src="https://img.saraba1st.com/forum/202401/24/045859zfbn76oawfvyoy9o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045425__01.jpg</strong> (103.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:58 上传
+
+通过人工检查评估在IQ50上进行指令调整的模型的推理正确性表现，答案和推理分别用A和R表示，最佳性能以粗体显示，第二好的性能以下划线显示
+
+<img src="https://img.saraba1st.com/forum/202401/24/045905yk0e4yk4sk49dukt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045432__01.jpg</strong> (57.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:59 上传
+
+在IQ50上使用仅文本提示的零样本CoT准确率
+
+<img src="https://img.saraba1st.com/forum/202401/24/045909o1nlyyb4fuy1ln0a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045445__01.jpg</strong> (146.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:59 上传
+
+在IQ50的子集上的视觉感知问题表现
+
+<img src="https://img.saraba1st.com/forum/202401/24/045915jqkvt7jqtgxdq07z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045451__01.jpg</strong> (66.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:59 上传
+
+在IQ50上使用不同类型提醒(hints)的gpt-4v和gemini-pro-vision的引导提示表现
+
+ Z-S → Zero-shot
+Gen → General
+
+Sam → Sample-specific
+Cor → Corrective
+
+<img src="https://img.saraba1st.com/forum/202401/24/045925v3gs1133554h54p5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045507__01.jpg</strong> (215.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:59 上传
+
+在IQ50上的零样本和对称少样本准确率
+
+在(a)分布内(In-Distribution)，演示取自IQ50，而在(b)超出分布(Out-of-Distribution)中，演示取自RAVEN-S，每个变体都使用不同的种子执行了五次，以减少随机抽样的影响，红色虚线表示随机基线
+
+<img src="https://img.saraba1st.com/forum/202401/24/045936jp5fhvv5y305ydvv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045515__01.jpg</strong> (48.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:59 上传
+
+在IQ50上的对称少样本CoT准确率
+
+<img src="https://img.saraba1st.com/forum/202401/24/045940sf1b0iibvybafo2i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124-045520__01.jpg</strong> (45.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 04:59 上传
+
+在IQ50上的非对称少样本CoT准确率
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -209,3 +209,14 @@
 尽管讲就是了，能回答我会尽量回答。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">为何中文圈对蒜的评价那么低啊，剧情我感觉起码有及格呀，而且补之前看见各种骂绿毛，真看的时候感觉也就是各种作品里常见的ego反派啊
 
+
+*****
+
+####  夜游宫  
+##### 1513#       发表于 2024-1-23 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63751994&amp;ptid=2152053" target="_blank">ml1642879 发表于 2024-1-23 23:02</a>
+
+为何中文圈对蒜的评价那么低啊，剧情我感觉起码有及格呀，总体的话我能给个8分吧，而且补之前看见 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很简单，你重看一遍，然后标记下哪些正常看了，哪些直接跳过了，就知道剧情问题出在哪了。
+

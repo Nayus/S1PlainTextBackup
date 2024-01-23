@@ -2373,3 +2373,11 @@ Noir Rain</blockquote>
 
 这集分镜吉泽俊一是高达nt的监督，g复国剧场版的演出，效果还是挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3543#       发表于 2024-1-23 19:13
+
+不过这翻译水平真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">，不知道是不是比当年的g复国还在灾难性，比如这话大哥，面具男，白雪，管家之间的台词还有卫浴柜的评论台词翻得完全只能“意会”
+

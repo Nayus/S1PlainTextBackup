@@ -9028,3 +9028,21 @@ hhw在土豪斗法，ras在本格乐队大战赚米乐队，蝶在大战理事�
 
 2024-1-23 10:15 上传
 
+
+*****
+
+####  arachnid  
+##### 9931#       发表于 2024-1-23 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63740825&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-23 02:25</a>
+
+1st大概率毛都不会公布</blockquote>
+应该不至于什么都没有，感觉至少也会公布2nd的时间
+
+*****
+
+####  NODY  
+##### 9932#       发表于 2024-1-23 11:11
+
+我还挺期待像少歌那个出个前传漫画的，反正动画肯定要删掉一大堆背景设定还要等访谈和手游补，不如丢漫画里
+

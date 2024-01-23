@@ -1654,3 +1654,11 @@ you know who？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">凳子民调都到35%了，和神皇下台前一个水平，正常怎么赢？
 
+
+*****
+
+####  条码人  
+##### 170#       发表于 2024-1-23 13:28
+
+前段时间米帝内部爆黑料互撕的萝莉岛名单似乎也是给ykw造势，ykw上台可能性挺大的。我倒是希望ykw能上台，ww问题也比较好解决
+

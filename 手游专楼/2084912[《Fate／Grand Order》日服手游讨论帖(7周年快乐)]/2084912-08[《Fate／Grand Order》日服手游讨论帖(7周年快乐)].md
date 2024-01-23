@@ -6629,3 +6629,11 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 等 ...</blockquote>
 这类挺多的吧，恶魔城里也有，我记得前段时间漫区有个帖就是讨论这个的[https://bbs.saraba1st.com/2b/thread-2160496-1-1.html](https://bbs.saraba1st.com/2b/thread-2160496-1-1.html) 这帖
 
+
+*****
+
+####  kidoo  
+##### 11120#       发表于 2024-1-23 21:01
+
+正雪太惨了，抽一个
+

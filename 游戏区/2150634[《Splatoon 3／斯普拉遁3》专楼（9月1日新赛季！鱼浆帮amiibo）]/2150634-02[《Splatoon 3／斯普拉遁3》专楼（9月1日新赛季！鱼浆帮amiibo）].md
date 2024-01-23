@@ -10488,3 +10488,11 @@ X赛永远只会掉大分，加分都没试过加大分
 
 （这显得我昨天因为白嫖到一点AK加速器而沾沾自喜的样子好蠢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 2550#       发表于 2024-1-23 21:02
+
+今天网络情况不对劲
+

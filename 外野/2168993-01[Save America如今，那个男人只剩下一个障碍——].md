@@ -1646,3 +1646,11 @@ you know who？
 
 民主党阴兵这么牛怎么2016输了，共和党这么代表民意敢不敢把投票日定在休息日，你看4v就是周六<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RlphaDo  
+##### 169#         楼主| 发表于 2024-1-23 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">凳子民调都到35%了，和神皇下台前一个水平，正常怎么赢？
+

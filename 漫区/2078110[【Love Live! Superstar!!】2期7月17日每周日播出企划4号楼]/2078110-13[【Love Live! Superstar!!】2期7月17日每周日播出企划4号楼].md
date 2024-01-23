@@ -2280,3 +2280,11 @@ pay好high</blockquote>
 
 更新下游戏，看今晚能不能狙击到<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkendless  
+##### 19342#       发表于 2024-1-23 10:36
+
+终于看到了live版的クレッシェンドゆ・ら，不管是不是粉丝应该都是我在llsp企划最喜欢的一首歌，也算了却一桩心愿了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

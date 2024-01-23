@@ -2354,3 +2354,14 @@ EPISODE 16
 Noir Rain</blockquote>
 好像不知道是声优还是谁说彼方是不太会真正消沉下去的类型，所以是诺娃哭泣的意思吗（
 
+
+*****
+
+####  aptx8285144  
+##### 3541#       发表于 2024-1-23 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63740473&amp;ptid=2092345" target="_blank">reficul 发表于 2024-1-23 00:44</a>
+
+不愧是大哥。不过这样子第 ...</blockquote>
+你忘了前半部分最终话最后那里呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，大哥就是看到了面具男和白雪出现在附近而吃惊，所以他在后半部分开始就带着管家在找人（因此应该是在找面具男而不是卫浴柜）
+

@@ -37,3 +37,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fgo这不明夜if续写里某人也太过败犬了吧….满满的恶意
 
+
+*****
+
+####  Shabadadoo  
+##### 1680#       发表于 2024-1-23 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63750960&amp;ptid=2112855" target="_blank">DARKGRAY 发表于 2024-1-23 21:32</a>
+二周目不升难度的话没啥阻力吧</blockquote>
+就是太无聊了，这作c技也算是精心加料了，依然架不住战斗无聊透顶。
+

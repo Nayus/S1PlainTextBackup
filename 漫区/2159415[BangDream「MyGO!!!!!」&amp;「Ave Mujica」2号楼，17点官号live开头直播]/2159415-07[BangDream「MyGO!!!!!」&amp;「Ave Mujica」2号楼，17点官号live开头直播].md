@@ -9154,3 +9154,13 @@ https://www.pixiv.net/artworks/115386937<img src="https://p.sda1.dev/15/14e58344
 立希的问题，一个是只一喷三没平等得一喷四；另一个是那两次揪人脖领子——这行为太逊了，甚至不如直接打人 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立希又不是king那样有身高又够凶，揪领子谁信你敢打人
 
+
+*****
+
+####  DarthAka  
+##### 9944#       发表于 2024-1-23 19:41
+
+<blockquote>6030sylar 发表于 2024-1-23 19:26
+立希又不是king那样有身高又够凶，揪领子谁信你敢打人</blockquote>
+重点是揪领子这行为太减分了
+

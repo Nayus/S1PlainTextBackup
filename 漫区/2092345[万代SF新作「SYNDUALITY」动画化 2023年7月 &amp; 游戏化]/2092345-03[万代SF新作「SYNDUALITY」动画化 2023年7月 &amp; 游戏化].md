@@ -2381,3 +2381,11 @@ Noir Rain</blockquote>
 
 不过这翻译水平真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">，不知道是不是比当年的g复国还在灾难性，比如这话大哥，面具男，白雪，管家之间的台词还有卫浴柜的评论台词翻得完全只能“意会”
 
+
+*****
+
+####  Ichthy  
+##### 3544#       发表于 2024-1-23 19:40
+
+女主这衣服是怎么挂住的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

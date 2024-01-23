@@ -1557,3 +1557,26 @@ you know who？
 你还真信川 普真信maga？
 美国在那几年有没有收缩么
 
+
+*****
+
+####  飞侠小黑  
+##### 160#       发表于 2024-1-23 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735205&amp;ptid=2168993" target="_blank">形式主义 发表于 2024-1-22 15:51</a>
+最多转口贸易，还铁幕，再说懂王任期四年哦，建厂建产线来得及么。要这么预期的，早就该移了 ...</blockquote>
+懂王上了能干一届还是两届啊，能不能连任？
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  形式主义  
+##### 161#       发表于 2024-1-23 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741407&amp;ptid=2168993" target="_blank">飞侠小黑 发表于 2024-1-23 08:45</a>
+懂王上了能干一届还是两届啊，能不能连任？
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 S1Next-鹅版 v2 ...</blockquote>
+一届
+

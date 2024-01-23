@@ -2256,3 +2256,11 @@ pay好high</blockquote>
 
 鲤鱼玩的这游戏好复古啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19339#       发表于 2024-1-23 08:49
+
+记得她官宣加入拉拉企划之前就直播玩过Fall Guys的
+

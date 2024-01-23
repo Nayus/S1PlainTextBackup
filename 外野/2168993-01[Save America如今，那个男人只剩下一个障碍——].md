@@ -1719,3 +1719,15 @@ you know who？
 
 啊懂这种纯粹瞎搞，国会山事件充分暴露啊懂色厉内荏，做事就是为了人设，可是陪他咋呼也是很拉高紧张度的。
 
+
+*****
+
+####  9号单开道岔  
+##### 177#       发表于 2024-1-23 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63735903&amp;ptid=2168993" target="_blank">bwjsif 发表于 2024-01-22 16:46:22</a></blockquote>对民主党，顶上任总统连任是zzzq，否认拜登就是否认民主党过去四年的政绩，是党派内部分裂。
+
+而且，拜登本人就是民主党内最大的政治山头之一，如同清和会宏池会一般，总统位置是拜登抢来的。民主党内挑战拜登连任就是和拜登派开生死战
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

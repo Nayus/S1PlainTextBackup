@@ -10522,3 +10522,21 @@ X赛永远只会掉大分，加分都没试过加大分
 
 今天用双5感度玩鹦鹉螺感觉aim还行，甚至玩中加都觉得和负感度aim差别不大，难道我身体变异了？双5感度的中加甚至能和小枪近距离拉扯，灵活的一笔！也许像我这种手腕流，最终归宿还是高感度，低感度手臂流也不是所有人都适合，根深蒂固的习惯太难更改了。
 
+
+*****
+
+####  罗克萨斯  
+##### 2554#       发表于 2024-1-23 22:50
+
+大招流就这么好玩嘛，这配装都不知道看过多少遍了，还没腻呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/23/224741b7791r9kf297c5f1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-23-22-44-18-616_com.nintendo.znca-edit.jpg</strong> (91.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 22:47 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

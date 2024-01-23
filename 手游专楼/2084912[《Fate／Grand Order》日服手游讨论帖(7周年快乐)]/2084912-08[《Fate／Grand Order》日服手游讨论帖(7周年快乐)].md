@@ -6656,3 +6656,16 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 惨到底后面才有的救么，倒是伊织这记忆我觉得没时间给他拿回来了，弄不好要这样一直失忆到底了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武男  
+##### 11123#       发表于 2024-1-23 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63748542&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-23 18:03</a>
+
+好多正雪，和更多的正雪...活動還要逼害完正雪，還要更進一步逼害正雪</blockquote>
+正雪看着伊织。既然伊织有武尊，那何必强求？伊织得到幸福，正雪已感到安慰。
+
+自己痛苦，又如何？.....罢了。正雪默默收拾东西，准备离开......
+

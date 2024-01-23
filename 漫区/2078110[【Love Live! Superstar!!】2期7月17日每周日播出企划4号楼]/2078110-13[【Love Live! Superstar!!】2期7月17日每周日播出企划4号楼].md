@@ -2385,3 +2385,11 @@ pay好high</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  csolfans  
+##### 19353#       发表于 2024-1-23 23:51
+
+索尼不给Pay的1st发张BD真是可惜
+

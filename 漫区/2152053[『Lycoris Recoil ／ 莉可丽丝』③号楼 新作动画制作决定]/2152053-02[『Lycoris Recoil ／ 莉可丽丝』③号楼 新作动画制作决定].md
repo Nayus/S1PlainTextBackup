@@ -234,3 +234,19 @@
 
 2024-1-23 23:35 上传
 
+
+*****
+
+####  Saber琪  
+##### 1515#       发表于 2024-1-23 23:43
+
+ 本帖最后由 Saber琪 于 2024-1-23 23:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63751994&amp;ptid=2152053" target="_blank">ml1642879 发表于 2024-1-23 23:02</a>
+为何中文圈对蒜的评价那么低啊，剧情我感觉起码有及格呀，总体的话我能给个8分吧，而且补之前看见 ...</blockquote>
+你得看清楚蒜吸引人的点是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“美少女”可以吸引豚豚老婆党萌萌人，“枪战”可以吸引军宅
+这两点，“枪战”无疑拉了，于是乎军宅开始拉踩<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+然后是“美少女”前期因为千泷吸引了很多豚豚甚至有人期待值是“真百”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这无疑与老婆党相冲突，于是乎前期两者互撕，引起化学反应牵扯到了厨厨（虽然本来就会牵扯）以及本来无关的萌萌人
+到后期，枪战（x）超能力对决（✓），以及sb足立追求绿毛高大上的“balance”理论实则狗屁不通的逻辑加大化豚豚厨厨之间的战争引起“青蒜”，到12集千佛还有最后的花之塔电梯让战争的天平开始倾斜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">直到13集一系列sb操作包饺子以“豚豚破防”“厨厨青蒜”“萌萌人听从up的观点，还有所谓‘我只看到xx集就知道xxx于是弃了’的伪婆罗门萌萌人”“乐子人搅局”的大混沌结局结尾
+
+至于对于绿毛的评价低，除去足立那个狗屁不通三输局面“balance”理论，还有厨厨为了鲨豚硬贴某对cp，包括破防豚豚怒其不争也开始乐子人贴某cp，以及豚豚本来就不待见破坏“千泷”的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -1154,3 +1154,27 @@ HEX名字实际上是游戏内PID的16进制版本。
 
 不知道接下去咋搞了。。。
 
+
+*****
+
+####  moeblack  
+##### 71#         楼主| 发表于 2024-1-23 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63751261&amp;ptid=2168983" target="_blank">HSJ1992 发表于 2024-1-23 22:00</a>
+
+邀请码的P2P联机存档，转LXC 的linux docker服务器，地图能成功，角色数据不行。
+
+不知道接下去咋搞了。。 ...</blockquote>
+bilibili的视频
+
+[https://www.bilibili.com/video/B ... 28d247272fd4347d79f](https://www.bilibili.com/video/BV1UW4y1F7Vn/?vd_source=cb9821ce4e92428d247272fd4347d79f)
+
+*****
+
+####  Litccc  
+##### 72#       发表于 2024-1-23 23:53
+
+arm服务器可以直接拉这个docker镜像：[https://hub.docker.com/r/czy0612/palworld-server](https://hub.docker.com/r/czy0612/palworld-server)
+
+已经集成好server，手动改下配置就可以运行了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

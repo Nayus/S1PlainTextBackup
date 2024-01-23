@@ -1731,3 +1731,20 @@ you know who？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  starrin  
+##### 178#       发表于 2024-1-23 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741407&amp;ptid=2168993" target="_blank">飞侠小黑 发表于 2024-1-23 08:45</a>
+
+懂王上了能干一届还是两届啊，能不能连任？
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 S1Next-鹅版 v2 ...</blockquote>
+美国宪法第二十二修正案明确写了无论何人当选担任美国总统不得超过两次
+
+**这事之前美国宪法里没有明说，基本上是靠自觉只干两届就退下
+
+然后罗斯福一口气干了四届，死在了第四次任期上，他死后两年国会把这条修正案写进宪法了
+

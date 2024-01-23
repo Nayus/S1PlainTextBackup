@@ -1625,3 +1625,14 @@ mg.jpg
 
 MX5算是豪华卡丁车，和这个不是一个赛道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lacusforever  
+##### 152#       发表于 2024-1-23 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686370&amp;ptid=2168461" target="_blank">johnie 发表于 2024-1-18 10:36</a>
+
+这车不看屁股一切都好 圈速也还不错 以他的价位来说月销量1000左右应该没问题 ...</blockquote>
+我寻思不就小几百吗
+

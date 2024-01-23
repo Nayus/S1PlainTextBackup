@@ -1076,3 +1076,26 @@ HEX名字实际上是游戏内PID的16进制版本。
 
 炸内存这个写个systemd服务每天定时重启服务端并清理系统缓存是否可行 还是一定要重启服务器？
 
+
+*****
+
+####  qianoooo  
+##### 65#       发表于 2024-1-23 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63748687&amp;ptid=2168983" target="_blank">Mikumiku831 发表于 2024-1-23 18:12</a>
+炸内存这个写个systemd服务每天定时重启服务端并清理系统缓存是否可行 还是一定要重启服务器？ ...</blockquote>
+一定要重启服务器端
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 66#       发表于 2024-1-23 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63730332&amp;ptid=2168983" target="_blank">moeblack 发表于 2024-1-22 09:20</a>
+
+有问题直接回帖问我，看到了就回答。</blockquote>
+请问按目前经验
+10人左右一起玩的话，服务器配置多少才够？谢谢
+

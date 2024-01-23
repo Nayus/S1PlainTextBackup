@@ -6487,3 +6487,11 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 40连出了丑御前 没出正雪
 
+
+*****
+
+####  保罗赫伯特  
+##### 11108#       发表于 2024-1-23 18:27
+
+干脆送个正雪得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

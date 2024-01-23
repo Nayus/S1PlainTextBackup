@@ -1700,3 +1700,14 @@ you know who？
 
 阿川上台本质上对我们差别不大，但是网络上的恶心玩意儿和西大的小伙伴们日子好不好过就难说了。
 
+
+*****
+
+####  乾理央  
+##### 175#       发表于 2024-1-23 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲真，我支持懂王，就跟前几年我支持睡王一样。
+
+这俩党竞争最大好处就是他们必须在头一年清理对方的政治遗产，并在第三年为自己党派连任做准备，第四年给自己党派拉票，实际工作时间只有一年到一年半。
+虽然看懂王现在的身体素质大概率4年后依然能吼出“MAGAAA”，而凳子明天跟说要换个mega身体我也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

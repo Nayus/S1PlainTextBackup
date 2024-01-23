@@ -148,3 +148,18 @@
 前排骑金时，双哈贝喵献祭掉一只，后排cba换上来，也可以6加成</blockquote>
 感谢分享，但是我rba还得留着带伯爵冲……现在研究了一下用的是巴沙+哈贝+助战道满+船长，哈贝第一面开炮然后换后排船长，二面道满宝具，三面高贵的混沌恶打爆击！就是按键多了点……
 
+
+*****
+
+####  khxooo  
+##### 45937#       发表于 2024-1-23 14:50
+
+26到28号广州fes 估计是“芜”声一片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 45938#       发表于 2024-1-23 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啸！！
+

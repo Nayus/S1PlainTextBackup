@@ -2315,3 +2315,16 @@ Licht Alter.  你俩不是兄弟啊
 
 于是诺娃保住了，接下来是一边找乐园一边追回大哥?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 3538#       发表于 2024-1-23 14:45
+
+EPISODE 16
+Noir Rain
+
+Noir learns her personality may disappear once Mystere's self-repair sequence is completed. She accepts her fate, believing Kanata is better served with Mystere at his side. Hearts misalign as Kanata is unaware of her decision. As a final gesture, Noir decides to make him a meal.
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

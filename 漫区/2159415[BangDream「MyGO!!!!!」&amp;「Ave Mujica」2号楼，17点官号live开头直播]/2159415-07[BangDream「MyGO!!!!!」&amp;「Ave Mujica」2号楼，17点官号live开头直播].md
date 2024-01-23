@@ -9106,3 +9106,17 @@ https://www.pixiv.net/artworks/115386937<img src="https://p.sda1.dev/15/14e58344
 
 官方卖了两天tksy了，我在此宣布撤回之前所有想和go团切割的言论，我们立希推将成为黑暗中的利剑，长城上的守卫，抵御寒冷的烈焰，破晓时分的光线，唤醒眠者的号角，守护Mygo的坚盾。我将生命与荣耀献给椎名立希，今夜如此，夜夜皆然。
 
+
+*****
+
+####  6030sylar  
+##### 9940#       发表于 2024-1-23 19:02
+
+<img src="https://img.saraba1st.com/forum/202401/23/190228hqp3s4xttq7gzxpg.jpg" referrerpolicy="no-referrer">
+
+<strong>Z]TI)FQEK4N_ZFP_(C4OX6S_tmb.jpg</strong> (47.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 19:02 上传
+

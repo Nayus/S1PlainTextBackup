@@ -2365,3 +2365,11 @@ Noir Rain</blockquote>
 不愧是大哥。不过这样子第 ...</blockquote>
 你忘了前半部分最终话最后那里呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，大哥就是看到了面具男和白雪出现在附近而吃惊，所以他在后半部分开始就带着管家在找人（因此应该是在找面具男而不是卫浴柜）
 
+
+*****
+
+####  oi99o  
+##### 3542#       发表于 2024-1-23 18:55
+
+这集分镜吉泽俊一是高达nt的监督，g复国剧场版的演出，效果还是挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

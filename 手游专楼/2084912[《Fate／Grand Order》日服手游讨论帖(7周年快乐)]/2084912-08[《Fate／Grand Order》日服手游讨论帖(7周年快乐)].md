@@ -6505,3 +6505,54 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 还有TM的竟然还不给砍树，拖死掉拖啊。昨天加今天就是拖时间
 
+
+*****
+
+####  quanlix  
+##### 11110#       发表于 2024-1-23 18:54
+
+看完剧情想把正雪这倒霉孩子抽回迦了，听说fsr本篇就是被一路迫害？
+
+*****
+
+####  シャル  
+##### 11111#       发表于 2024-1-23 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63748542&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-23 18:03</a>
+
+好多正雪，和更多的正雪...活動還要逼害完正雪，還要更進一步逼害正雪</blockquote>
+你仔细看啊
+
+太猎奇了
+
+5A54A606-C838-4504-839B-F8668B806031.png
+(753.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 18:55 上传
+
+<img src="https://img.saraba1st.com/forum/202401/23/185540iwcxefw9xj0hw09w.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 11112#       发表于 2024-1-23 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749238&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-1-23 18:54</a>
+
+看完剧情想把正雪这倒霉孩子抽回迦了，听说fsr本篇就是被一路迫害？</blockquote>
+对啊，一条被抓回去、一条死亡，真结局就现在这样
+
+*****
+
+####  保罗赫伯特  
+##### 11113#       发表于 2024-1-23 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749250&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-23 18:55</a>
+
+你仔细看啊
+
+太猎奇了</blockquote>
+原来全是人堆的啊，不仔细看还真没发现，想到了新版哥斯拉的尾巴<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

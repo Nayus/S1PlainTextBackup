@@ -1588,3 +1588,11 @@ you know who？
 
 不怕，睡王可以召唤民主党历代先人阴兵投票的，亡者也有投票权！<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ncr110  
+##### 163#       发表于 2024-1-23 09:06
+
+没有邮寄选票毫无悬念了
+

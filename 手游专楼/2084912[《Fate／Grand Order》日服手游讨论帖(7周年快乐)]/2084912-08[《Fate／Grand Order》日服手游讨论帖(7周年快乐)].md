@@ -6317,3 +6317,42 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 所以到底要不要抽啊....对角色是真没多少爱...非洲人是真的想继续存 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没觉得哪里像人权 估计是满宝的那种可能会比较强 1宝也就是收藏用了
 
+
+*****
+
+####  Jamaisvu  
+##### 11092#       发表于 2024-1-23 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741339&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-1-23 08:35</a>
+
+看别的地方说正雪好像是人权卡?
+
+所以到底要不要抽啊....对角色是真没多少爱...非洲人是真的想继续存 ...</blockquote>
+二技能20群充30宝威，三技能30自充+单体蓝卡30up，宝具给有红卡up的角色加20—30宝威。
+
+自充50，开个NP被动+10，C呆一技能30，配合陈宫二技能直接开宝具帮着叠OC，陈宫三技能魔放给自己可以吃到宝威buff，完美的炮弹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 11093#       发表于 2024-1-23 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741480&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-23 08:53</a>
+
+没觉得哪里像人权 估计是满宝的那种可能会比较强 1宝也就是收藏用了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就安心PASS了.....4星只要个1宝还能丢几颗石头看看有没有水花.....5宝那是想都不要想
+
+*****
+
+####  UNISONIA  
+##### 11094#       发表于 2024-1-23 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741339&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-1-23 08:35</a>
+
+看别的地方说正雪好像是人权卡?
+
+所以到底要不要抽啊....对角色是真没多少爱...非洲人是真的想继续存 ...</blockquote>
+副拐地位的无所谓人权不人权的，换代也很快
+
+要开宝具的副拐在周回里侧地位也很低
+

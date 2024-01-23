@@ -913,3 +913,13 @@ Top4牛沢都出視頻了 kiyo如果也出視頻的話 我不知道彩虹如果�
 
 還有都玩genshin了還怕個palworld？
 
+
+*****
+
+####  吃咸菜的  
+##### 2940#       发表于 2024-1-23 17:21
+
+所有人都在播，只有虹不播，这么忠诚任天堂会高看一眼吗
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

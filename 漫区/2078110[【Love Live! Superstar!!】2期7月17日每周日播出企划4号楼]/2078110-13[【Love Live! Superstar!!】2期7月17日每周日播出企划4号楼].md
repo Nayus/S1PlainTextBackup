@@ -2355,3 +2355,33 @@ pay好high</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 19351#       发表于 2024-1-23 20:48
+
+今晚小花做了纸箱恐龙，emo煮了饭，pay写了书法，双N画了年卡，鱼当了游戏黑洞<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 19352#       发表于 2024-1-23 21:37
+
+花
+<img src="https://p.sda1.dev/15/0524cfe851f5ed438b07dc6bc20814f3/img-1706016496761e94fbf2c1abc5f064245c52038ad2333915a3f99b379a7182029633693241dc4.jpg" referrerpolicy="no-referrer">
+
+彩
+<img src="https://p.sda1.dev/15/c7485d754fe87e6f6d23c48fa29dc90d/CMP_20240123213223314.jpg" referrerpolicy="no-referrer">
+
+双N
+<img src="https://p.sda1.dev/15/10edae3083a256885945b8de13c9862d/CMP_20240123213223210.jpg" referrerpolicy="no-referrer">
+
+佩
+<img src="https://p.sda1.dev/15/b38a318faa3d24ec4a8022cca93388aa/CMP_20240123213223037.jpg" referrerpolicy="no-referrer">
+
+不到半年就发售3单，还有配合CD发售的手渡会，live结束后会员限定见送会，看来挺重视这次2nd live
+<img src="https://p.sda1.dev/15/3f9ab86af3a7a1030b7f8cec68cf4e20/CMP_20240123213223410.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

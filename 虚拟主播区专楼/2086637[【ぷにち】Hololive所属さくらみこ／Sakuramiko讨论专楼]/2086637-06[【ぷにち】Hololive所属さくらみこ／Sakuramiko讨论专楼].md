@@ -5856,3 +5856,19 @@ holo相关问题的题库现在有130问
 
 miko是作为年轻人代表请来接受日本网络文化历史教育是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8058#         楼主| 发表于 2024-1-23 21:34
+
+<img src="https://img.saraba1st.com/forum/202401/23/213411tzdoggr7g0uheohy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 21:34 上传
+
+今天起你就是AA之王了
+

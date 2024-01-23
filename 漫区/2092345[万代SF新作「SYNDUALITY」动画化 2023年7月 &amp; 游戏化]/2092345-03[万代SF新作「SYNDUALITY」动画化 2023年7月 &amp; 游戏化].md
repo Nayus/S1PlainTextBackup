@@ -2455,3 +2455,17 @@ Noir Rain</blockquote>
 
 之前大哥和黑假面他俩到底发生啥事了？时生叫小光这是第一次知道吗？（我都记不真切了）  怎么全都谜语人？
 
+
+*****
+
+####  NeloAngelo  
+##### 3551#       发表于 2024-1-23 21:33
+
+ 本帖最后由 NeloAngelo 于 2024-1-23 21:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63750612&amp;ptid=2092345" target="_blank">管理员我不敢了 发表于 2024-1-23 20:57</a>
+之前大哥和黑假面他俩到底发生啥事了？时生叫小光这是第一次知道吗？（我都记不真切了）  怎么全都谜语人？ ...</blockquote>
+是的, 真名是第一次知道. 他们的谜语背景故事也是还没正式开讲.(第一季第10集的闪回是铺垫)
+大哥和黑假面以及Ideal组织 (和不知道还出不出场的游戏男主) 负担起了故事苦大仇深的那一侧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

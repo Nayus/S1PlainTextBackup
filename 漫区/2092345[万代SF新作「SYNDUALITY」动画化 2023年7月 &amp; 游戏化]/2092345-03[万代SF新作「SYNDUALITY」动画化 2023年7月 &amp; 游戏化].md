@@ -2260,3 +2260,21 @@ Licht Alter.  你俩不是兄弟啊
 大哥在主角快输的时候及时赶到，开始正义的群殴（）</blockquote>
 猜得大差不差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3532#       发表于 2024-1-23 13:44
+
+面具男如此纠结的心态，对彼方都还有歉意（对大哥的基情就不说了)，感觉跳反的可能性很大，管家和白雪看上去交情也匪浅，好奇他们的过去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3533#       发表于 2024-1-23 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63744942&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-1-23 13:39</a>
+
+猜得大差不差，只是没想到大哥一波突袭偷吸单枪匹马车翻黑面具 ...</blockquote>
+面具男看上去对哥俩都没啥仇恨心态，无法发挥百分百实力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -6406,3 +6406,14 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 感觉不如水小黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 11100#       发表于 2024-1-23 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63737475&amp;ptid=2084912" target="_blank">yangun22 发表于 2024-1-22 18:54</a>
+
+今天剧情不是写清楚了么，正雪关于丑御前的记忆和对自己令咒的认知都被黑幕扭曲了，这个正雪看起来也是量产 ...</blockquote>
+恐怕这剧情里就好几个正雪了。感觉那个试图用令咒叫丑御前回来的大概嘎了成了圣杯
+

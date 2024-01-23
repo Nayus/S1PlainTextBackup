@@ -1048,3 +1048,16 @@ HEX名字实际上是游戏内PID的16进制版本。
 —— 来自 HONOR PGT-AN10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 很早之前开的，现在热门地区除非升级号应该都没有配额了
 
+
+*****
+
+####  diohanmilton  
+##### 62#       发表于 2024-1-23 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63744873&amp;ptid=2168983" target="_blank">Litccc 发表于 2024-1-23 13:33</a>
+很早之前开的，现在热门地区除非升级号应该都没有配额了</blockquote>
+现在免费的只有amd 1核用了，不知道哪个区还能开四核arm。
+1核amd性能太低了，上次开了个为知笔记的docker把服务器卡死了，ssh进不去只能删了服务器重建。
+
+—— 来自 HONOR PGT-AN10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

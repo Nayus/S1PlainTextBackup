@@ -1688,3 +1688,15 @@ you know who？
 
 稀宗真和观海结婚有没有救？
 
+
+*****
+
+####  cube  
+##### 174#       发表于 2024-1-23 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63744822&amp;ptid=2168993" target="_blank">条码人 发表于 2024-1-23 13:28</a>
+前段时间米帝内部爆黑料互撕的萝莉岛名单似乎也是给ykw造势，ykw上台可能性挺大的。我倒是希望ykw能上台，w ...</blockquote>
+那个问题短时间内没啥好解决的，现在看上面大有学黄裳武功不大成不出山最好能把人都熬死的架势。
+
+阿川上台本质上对我们差别不大，但是网络上的恶心玩意儿和西大的小伙伴们日子好不好过就难说了。
+

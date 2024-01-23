@@ -10466,3 +10466,25 @@ ps刚看了奶啤的新视频，怎么会有香槟这么强的武器<img src="ht
 
 推上有个饭制新赛季pv还挺丁真的https://twitter.com/OctaSpla2n，确实希望dlc是2月出（
 
+
+*****
+
+####  晴岚  
+##### 2548#       发表于 2024-1-23 20:05
+
+X赛永远只会掉大分，加分都没试过加大分
+
+*****
+
+####  胖胖Ω  
+##### 2549#       发表于 2024-1-23 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63738981&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-1-22 21:39</a>
+
+但是雷神加速喷射战士是是免费啊</blockquote>
+卧槽，一直听说雷神是减速器，所以没试，原来免费加速喷喷么！？
+
+试了下（江苏电信的网），居然比想象中的还稳，涂地也基本没人掉。
+
+（这显得我昨天因为白嫖到一点AK加速器而沾沾自喜的样子好蠢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

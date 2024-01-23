@@ -1193,3 +1193,23 @@ https://www.bilibili.com/video/BV1UW4y1F7Vn/?vd_source=cb9821ce4e92428d247272fd4
 
 是否因为视频里它是用windows版的steamcmd执行的，后面实际使用的服务端也是windows版的服务端，而我是linux版？
 
+
+*****
+
+####  iccccccccc  
+##### 74#       发表于 2024-1-24 06:35
+
+ 本帖最后由 iccccccccc 于 2024-1-24 06:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63752845&amp;ptid=2168983" target="_blank">HSJ1992 发表于 2024-1-24 00:11</a>
+
+就是按照视频操作的。无效。
+
+是否因为视频里它是用windows版的steamcmd执行的，后面实际使用的服务端也是 ...</blockquote>
+[https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887](https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887)
+
+🐟老汉的回复
+
+（作好备份）
+
+他的意思是你登录 steam 后，从 steam 运行服务器。这时候steam会修改你的 saved 文件夹（转而使用 steam账号 加密存档）。就能转移存档了，转移后需要在新的服务器也要安装 steam，还原你的备份，首次通过 steam 运行服务器（可能是多此一举），以后可以直接运行 PalServer，无需登录steam。
+

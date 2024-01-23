@@ -220,3 +220,17 @@
 为何中文圈对蒜的评价那么低啊，剧情我感觉起码有及格呀，总体的话我能给个8分吧，而且补之前看见 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很简单，你重看一遍，然后标记下哪些正常看了，哪些直接跳过了，就知道剧情问题出在哪了。
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1514#       发表于 2024-1-23 23:35
+
+<img src="https://img.saraba1st.com/forum/202401/23/233545mw5ew5m6i6mkxozk.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-01-23 214059 (31).JPG</strong> (106.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 23:35 上传
+

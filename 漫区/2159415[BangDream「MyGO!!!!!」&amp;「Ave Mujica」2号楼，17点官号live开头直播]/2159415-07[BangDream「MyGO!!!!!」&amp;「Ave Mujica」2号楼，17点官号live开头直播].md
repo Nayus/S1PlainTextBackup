@@ -9128,3 +9128,29 @@ https://www.pixiv.net/artworks/115386937<img src="https://p.sda1.dev/15/14e58344
 
 立希的问题，一个是只一喷三没平等得一喷四；另一个是那两次揪人脖领子——这行为太逊了，甚至不如直接打人
 
+
+*****
+
+####  6030sylar  
+##### 9942#       发表于 2024-1-23 19:23
+
+<img src="https://img.saraba1st.com/forum/202401/23/192344zs5v5ac55dwmqeua.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0b2c9b3a56e73b88a06aa3e5016ab68a.jpeg</strong> (158.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 19:23 上传
+
+网游废人
+
+*****
+
+####  6030sylar  
+##### 9943#       发表于 2024-1-23 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749588&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-23 19:21</a>
+
+立希的问题，一个是只一喷三没平等得一喷四；另一个是那两次揪人脖领子——这行为太逊了，甚至不如直接打人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立希又不是king那样有身高又够凶，揪领子谁信你敢打人
+

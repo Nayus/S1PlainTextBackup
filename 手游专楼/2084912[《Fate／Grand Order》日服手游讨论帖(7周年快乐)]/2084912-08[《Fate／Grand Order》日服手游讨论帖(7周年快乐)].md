@@ -6591,3 +6591,28 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 正雪这败犬姑姑看到都要说声甘拜下风<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 11117#       发表于 2024-1-23 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749430&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-23 19:09</a>
+
+對啊，第一眼就見到是由人類堆出來，但不知道為主有非常熟悉的既視感?
+
+好像那套N年前兒時看過的TV動畫也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔神柱也是人类堆的啊，但感觉这树是正雪堆出来的【
+
+*****
+
+####  eilot  
+##### 11118#       发表于 2024-1-23 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749601&amp;ptid=2084912" target="_blank">v22325 发表于 2024-1-23 19:22</a>
+
+魔神柱也是人类堆的啊，但感觉这树是正雪堆出来的【</blockquote>
+魔神柱就是近鏡都已經是一堆大眼球看不到人體，印象中小時候真是有套動畫是近鏡有一大堆人類堆成巨樹
+
+等等，未必是動畫，好像是日本電影???總之肯定是電視看，不是看VHS，總之就非常噁心
+

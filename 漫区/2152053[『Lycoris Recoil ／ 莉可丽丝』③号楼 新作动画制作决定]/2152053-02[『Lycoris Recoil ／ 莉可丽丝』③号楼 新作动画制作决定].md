@@ -250,3 +250,23 @@
 
 至于对于绿毛的评价低，除去足立那个狗屁不通三输局面“balance”理论，还有厨厨为了鲨豚硬贴某对cp，包括破防豚豚怒其不争也开始乐子人贴某cp，以及豚豚本来就不待见破坏“千泷”的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ml1642879  
+##### 1516#       发表于 2024-1-23 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63752506&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-1-23 23:43</a>
+
+你得看清楚蒜吸引人的点是什么“美少女枪战”“美少女”可以吸引豚豚老婆党萌萌人，“枪战 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">追番的群众搞这么复杂吗。。。补番确实没感受到这些
+
+*****
+
+####  Saber琪  
+##### 1517#       发表于 2024-1-24 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63752664&amp;ptid=2152053" target="_blank">ml1642879 发表于 2024-1-23 23:56</a>
+追番的群众搞这么复杂吗。。。补番确实没感受到这些</blockquote>
+补番的观感雀食跟追番不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是无法预测命运之舞台（）
+

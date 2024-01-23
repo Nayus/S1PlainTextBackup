@@ -6356,3 +6356,16 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 要开宝具的副拐在周回里侧地位也很低
 
+
+*****
+
+####  森兰丸  
+##### 11095#       发表于 2024-1-23 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63741624&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-1-23 09:09</a>
+
+二技能20群充30宝威，三技能30自充+单体蓝卡30up，宝具给有红卡up的角色加20—30宝威。
+
+自充50，开个NP ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是我就没用陈宫的习惯啊....玩到现在印象里那些90++阴间本好像也没几个是要用到陈宫的
+

@@ -95,3 +95,19 @@ timeless是真的好玩，倾家荡产做了一套风暴一套泰坦僵尸地一
 
 看到狗哥说要卖号的消息，有种感觉一个时代过去了的失落感...<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  楠城旧篱  
+##### 72#       发表于 2024-1-23 10:02
+
+四个混血法术力的牌来了，如何评价
+
+<img src="https://img.saraba1st.com/forum/202401/23/100241sx77z7kxkq0g1dx7.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1705975314349.jpg</strong> (110.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 10:02 上传
+

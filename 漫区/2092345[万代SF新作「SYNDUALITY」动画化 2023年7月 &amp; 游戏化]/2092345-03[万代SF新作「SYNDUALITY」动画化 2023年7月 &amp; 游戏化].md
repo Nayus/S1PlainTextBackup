@@ -2186,3 +2186,29 @@ Licht Alter.  你俩不是兄弟啊
 
 自说自话这味才对啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 3527#       发表于 2024-1-23 12:27
+
+看来大哥以前也是那个组织的人了
+
+<img src="https://img.saraba1st.com/forum/202401/23/122645x6n66bbukf9be06g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-23-12-24-52-641_com.viva.note.jpg</strong> (676.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 12:26 上传
+
+<img src="https://img.saraba1st.com/forum/202401/23/122645zxja6t651ppnuj1j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-01-23-12-25-55-751_com.viva.note.jpg</strong> (348.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-23 12:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

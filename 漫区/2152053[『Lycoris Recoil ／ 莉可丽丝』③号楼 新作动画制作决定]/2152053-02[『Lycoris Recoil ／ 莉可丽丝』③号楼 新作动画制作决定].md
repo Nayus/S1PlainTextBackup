@@ -270,3 +270,14 @@
 追番的群众搞这么复杂吗。。。补番确实没感受到这些</blockquote>
 补番的观感雀食跟追番不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是无法预测命运之舞台（）
 
+
+*****
+
+####  HANDAIYV  
+##### 1518#       发表于 2024-1-24 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63752664&amp;ptid=2152053" target="_blank">ml1642879 发表于 2024-1-23 23:56</a>
+
+追番的群众搞这么复杂吗。。。补番确实没感受到这些</blockquote>
+就我追番经历来看，第一集有骂躲子弹的，第二集有骂不杀人的，第三集有黑举高高工业糖精的，第四集有骂过地铁站而不入的，这些说是尬黑不为过了。前面已经是这样了，后面更是群魔乱舞，什么豚豚厨厨杂食人老婆党婆罗门萌萌人还有洁癖豚豚都下场了。到最后质量究竟怎么样已经不重要了，评价几乎全是靠立场决定的
+

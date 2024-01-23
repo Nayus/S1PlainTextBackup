@@ -9217,3 +9217,11 @@ BanG Dream! 8th☆LIVE DAY3 「Special Live ～Summerly Tone♪～」Pastel＊Pa
 
 amit真是三次元PP的孤独偶像，政委远程合唱加应援，感动得泪流满面<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 9948#       发表于 2024-1-23 22:04
+
+喵祥同居致敬花千，鼓手胜利的法则已经决定了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

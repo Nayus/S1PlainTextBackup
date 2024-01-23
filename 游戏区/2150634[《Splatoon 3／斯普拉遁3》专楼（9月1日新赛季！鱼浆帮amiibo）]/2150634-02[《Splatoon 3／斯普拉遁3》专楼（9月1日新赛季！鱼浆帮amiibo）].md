@@ -10506,3 +10506,11 @@ X赛永远只会掉大分，加分都没试过加大分
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Junakr  
+##### 2552#       发表于 2024-1-23 22:10
+
+我也换雷神了，反正只打工，比裸连强就行<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。
+

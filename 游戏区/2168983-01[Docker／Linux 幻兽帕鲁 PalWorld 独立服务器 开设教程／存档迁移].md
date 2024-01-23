@@ -1099,3 +1099,17 @@ HEX名字实际上是游戏内PID的16进制版本。
 请问按目前经验
 10人左右一起玩的话，服务器配置多少才够？谢谢
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 67#       发表于 2024-1-23 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63743653&amp;ptid=2168983" target="_blank">moeblack 发表于 2024-1-23 11:37</a>
+我正好遇到过这个事情
+
+HEX名字实际上是游戏内PID的16进制版本。
+
+所以在游戏内知道玩家PID之后就可以找到 ...</blockquote>
+所以请问可以跨服务器且跨世界的移植某个角色存档吗？
+

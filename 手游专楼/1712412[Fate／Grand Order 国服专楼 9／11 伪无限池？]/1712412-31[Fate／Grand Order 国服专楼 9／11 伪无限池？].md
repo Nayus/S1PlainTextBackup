@@ -126,3 +126,14 @@
 
 本来是无脑双C呆结果发现这本用徐福完全可以取代
 
+
+*****
+
+####  拖鞋脚后跟  
+##### 45935#       发表于 2024-1-23 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63686230&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2024-1-18 10:25</a>
+
+为了省道满现在五加成刷qp中，问就是没有faker不能走双哈贝喵faker……反正我中间弃坑也错过了医生礼装，缺 ...</blockquote>
+前排骑金时，双哈贝喵献祭掉一只，后排cba换上来，也可以6加成
+

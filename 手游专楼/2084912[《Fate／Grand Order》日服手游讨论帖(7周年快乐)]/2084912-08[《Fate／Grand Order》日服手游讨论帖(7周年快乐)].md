@@ -6369,3 +6369,11 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 自充50，开个NP ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是我就没用陈宫的习惯啊....玩到现在印象里那些90++阴间本好像也没几个是要用到陈宫的
 
+
+*****
+
+####  沼蝇  
+##### 11096#       发表于 2024-1-23 09:42
+
+正雪也就赢一手cost优势了
+

@@ -1629,3 +1629,20 @@ you know who？
 可惜当年专楼砍了，不然现在看很有意思</blockquote>
 本楼也可以转型为专楼嘛
 
+
+*****
+
+####  和平保卫者  
+##### 167#       发表于 2024-1-23 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63736526&amp;ptid=2168993" target="_blank">bonnwang 发表于 2024-1-22 17:34</a>
+硬度裔女性 小心爆头</blockquote>
+那谁是老乡啊？
+
+*****
+
+####  九皋  
+##### 168#       发表于 2024-1-23 09:52
+
+民主党阴兵这么牛怎么2016输了，共和党这么代表民意敢不敢把投票日定在休息日，你看4v就是周六<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

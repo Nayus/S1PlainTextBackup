@@ -6443,3 +6443,39 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道你们什么感受 我反正觉得这是最垃圾的活动了    非要这么搞恶心人不知道图什么
 
+
+*****
+
+####  eilot  
+##### 11104#       发表于 2024-1-23 18:03
+
+ 本帖最后由 eilot 于 2024-1-23 18:04 编辑 
+
+好多正雪，和更多的正雪...活動還要逼害完正雪，還要更進一步逼害正雪
+
+*****
+
+####  v22325  
+##### 11105#       发表于 2024-1-23 18:05
+
+<blockquote>alucardcz 发表于 2024-1-23 18:01
+不知道你们什么感受 我反正觉得这是最垃圾的活动了    非要这么搞恶心人不知道图什么
+
+ ...</blockquote>
+每天扣扣索索的放一点太恶心人了……就这点东西一次性放出来得了。
+
+*****
+
+####  eilot  
+##### 11106#       发表于 2024-1-23 18:10
+
+ 本帖最后由 eilot 于 2024-1-23 18:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63748509&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-23 18:01</a>
+
+不知道你们什么感受 我反正觉得这是最垃圾的活动了    非要这么搞恶心人不知道图什么
+
+ ...</blockquote>
+雖然以前活動都是每天吐些少，每天都要1700時可能再更新1~150MB，這點已經好噁心了，要等7天才能看完整編劇情，之後7天就是刷刷刷，就算活動變成15天後都是這安排
+
+但今次前數天內容還算正常，但這兩天就短得多，還要拖到明天才是正式完結
+

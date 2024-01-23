@@ -2328,3 +2328,16 @@ Noir learns her personality may disappear once Mystere's self-repair sequence is
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RE㐅ia  
+##### 3539#       发表于 2024-1-23 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63745759&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-1-23 14:45</a>
+
+EPISODE 16
+
+Noir Rain</blockquote>
+坏了，真给孩子整玉玉了
+

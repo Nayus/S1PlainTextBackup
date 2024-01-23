@@ -8991,3 +8991,13 @@ hhw在土豪斗法，ras在本格乐队大战赚米乐队，蝶在大战理事�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Aendst  
+##### 9928#       发表于 2024-1-23 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1st能放个新视觉图出来都不错了
+
+别惦记一图多吃一柄多卖了，想骗钱连新图都不愿意给一张，抠门成这样
+

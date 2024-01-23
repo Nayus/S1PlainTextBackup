@@ -6294,3 +6294,13 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 虽然但是 正雪啊 萌新的正雪啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我把剩下的石头扔了 我出正雪了
 
+
+*****
+
+####  森兰丸  
+##### 11090#       发表于 2024-1-23 08:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">看别的地方说正雪好像是人权卡?
+
+所以到底要不要抽啊....对角色是真没多少爱...非洲人是真的想继续存石
+

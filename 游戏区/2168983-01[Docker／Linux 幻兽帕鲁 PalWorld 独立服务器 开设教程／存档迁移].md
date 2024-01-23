@@ -1178,3 +1178,18 @@ arm服务器可以直接拉这个docker镜像：[https://hub.docker.com/r/czy061
 
 已经集成好server，手动改下配置就可以运行了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HSJ1992  
+##### 73#       发表于 2024-1-24 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63752568&amp;ptid=2168983" target="_blank">moeblack 发表于 2024-1-23 23:48</a>
+
+bilibili的视频
+
+https://www.bilibili.com/video/BV1UW4y1F7Vn/?vd_source=cb9821ce4e92428d247272fd434 ...</blockquote>
+就是按照视频操作的。无效。
+
+是否因为视频里它是用windows版的steamcmd执行的，后面实际使用的服务端也是windows版的服务端，而我是linux版？
+

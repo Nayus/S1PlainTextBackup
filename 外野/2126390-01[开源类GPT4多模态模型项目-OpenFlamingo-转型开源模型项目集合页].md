@@ -28464,3 +28464,212 @@ github项目页说明截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1213#       发表于 2024-1-24 00:05
+
+S-Seg
+
+探索简单的开放词汇语义分割(Open-Vocabulary Semantic Segmentation)
+
+github项目主页:https://github.com/zlai0/S-Seg
+
+开放词汇的语义分割模型旨在从一组任意的开放词汇文本(a set of arbitrary open-vocabulary texts)中为图像中的每个像素精准地分配语义标签(semantic label)
+
+为了学习这种像素级(pixel-level)的对齐，当前的方法通常依赖于以下组合:
+(i)图像级(image-level)的视觉语言模型(例如CLIP)
+(ii)人工标注的基准掩码答案
+(iii)使用定制编码器进行分组
+
+在本文中，引入了一种新颖的模型，S-Seg，可以在不依赖以上任何元素的情况下取得令人惊讶的强大性能，S-Seg利用伪掩码(pseudo-mask)和语言训练MaskFormer，并且可以从公开可用的图像文本数据集中进行简单训练
+
+与先前的工作相反，本文模型直接训练像素级特征并与语言对齐，一旦训练完成，S-Seg可以很好的在多个测试数据集上泛化，而无需进行微调，此外，S-Seg在使用数据进行缩放以及与自训练相结合时，拥有可以持续改进的额外好处，可以相信，本文简单而有效的方法将为未来的研究提供一个坚实的基线
+
+<img src="https://img.saraba1st.com/forum/202401/24/000336y27vxvwzza7cvhld.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235614__01.jpg</strong> (53.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:03 上传
+
+对网络图像分割的S-Seg结果，目标是对所有物体进行分割，包括虚构角色(例如minions)
+
+<img src="https://img.saraba1st.com/forum/202401/24/000343s6reu6ijgipvhkhr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235614__02.jpg</strong> (76.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:03 上传
+
+S-Seg框架利用伪掩码和语言来训练MaskFormer，展示了本文方法直接训练像素级特征和语言对齐，也能产生优秀的结果
+
+<img src="https://img.saraba1st.com/forum/202401/24/000350k78pyd8yc9c3fdgk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235638__01.jpg</strong> (456.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:03 上传
+
+使用所有的数据集类别作为查询进行评估的S-Seg的定性结果，本文模型能够应对挑战性情况，例如重叠物体和小物体，还能够处理“stuff”类别，比如水和地板，此外，本文的S-Seg+模型能够纠正S-Seg方法中的小错误
+
+最后，即使在COCO数据集中，本文模型仍能在预测中保持高准确率，即使该数据集包含更多的物体
+
+<img src="https://img.saraba1st.com/forum/202401/24/000401k1v0csmcb6s77c2c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235651__01.jpg</strong> (178.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:04 上传
+
+使用图像文本对训练S-Seg的伪代码(Pseudocode)
+
+<img src="https://img.saraba1st.com/forum/202401/24/000408a3qmhk9ktirjipsp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235708__01.jpg</strong> (223.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:04 上传
+
+S-Seg的概览图，一个MaskFormer模型从图像输入中计算掩码和掩码特征，一个伪掩码生成器(pseudo-mask generator)产生用于监督掩码预测的分割图，而描述图像的文本通过语言模型编码并与MaskFormer一起训练，使用图像文本对比损失(image-text contrastive loss)来提供对掩码特征的监督
+
+<img src="https://img.saraba1st.com/forum/202401/24/000419uxx22g3jk2cza3zx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235725__01.jpg</strong> (67.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:04 上传
+
+在S-Seg上进行测试，在推理过程中，S-Seg通过利用文本中的候选类别(a list of candidate classes in text)生成的语言特征(language features)来推广到新的类别(new categories)
+
+<img src="https://img.saraba1st.com/forum/202401/24/000426z3ibr8sgs5tygbr5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235725__02.jpg</strong> (45.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:04 上传
+
+伪掩码生成器在训练过程中生成伪掩码来监督预测的掩码，该模块以图像作为输入，使用经过DINO预训练的ViT提取其特征，然后应用K-means聚类将像素分组成分割(segments)
+
+<img src="https://img.saraba1st.com/forum/202401/24/000432yhs0kddhavi4z22z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235725__03.jpg</strong> (85.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:04 上传
+
+伪掩码生成器迅速实现了出色的预示(oracle)性能，使其成为理想的掩码监督，报告了在一个批次中的128个样本上的分期的运行时间，模拟训练时的场景
+
+*以H/8 × W/8分辨率处理降采样的图像，以获得合理的运行时间
+
+<img src="https://img.saraba1st.com/forum/202401/24/000438ja5zxaeruozug161.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235734__01.jpg</strong> (151.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:04 上传
+
+伪掩码示例，伪掩码生成器能够生成高质量的人工掩码，当提供预示标签时，这些掩码与基准答案标注之间有很高的重叠度
+
+<img src="https://img.saraba1st.com/forum/202401/24/000453gz9lsjri99i21tlr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235756__01.jpg</strong> (491.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:04 上传
+
+与现有方法的定性对比，CLIP主要用于分类，在分割方面表现不佳，而MaskCLIP将CLIP用于分割，但会产生噪声预测，并且不能处理背景类别，GroupViT是一个强有力的竞争对手，但在挑战性的场景中会遇到困难
+
+<img src="https://img.saraba1st.com/forum/202401/24/000458nnnn3r3sjlv333c6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235801__01.jpg</strong> (59.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:04 上传
+
+用于开放词汇语义分割的简单基线，所有模型都在CC12M上进行过训练，数值越高效果越好，即使使用了本文的伪掩码和更多的训练数据，两个简单的基线也无法获得令人满意的结果
+
+<img src="https://img.saraba1st.com/forum/202401/24/000503g7ics8riyatmzb9y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235813__01.jpg</strong> (231.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:05 上传
+
+开放词汇语义分割结果(评估中包括背景像素)，在Pascal VOC (P. VOC)，Pascal Context (P. Context)和COCO上进行评估，按照无标注掩码的开放词汇模型的标准评估协议进行评估
+
+本文方法得到了第二好的平均表现，并且在所有数据集上都比GroupViT更好
+
+†表示重新计算的结果，数值越高越好
+
+<img src="https://img.saraba1st.com/forum/202401/24/000516o47f5o6gx551w5y4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235819__01.jpg</strong> (280.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:05 上传
+
+开放词汇语义分割结果(评估中排除了背景像素)，按照使用标注掩码的开放词汇模型的标准协议进行评估，与之前的方法相比，S-Seg在此设置下实现了有竞争力的性能
+
+†表示重新计算的结果，*COCO用于训练，数值越高越好
+
+<img src="https://img.saraba1st.com/forum/202401/24/000523adpwijvww86xz7bj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235838__01.jpg</strong> (193.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:05 上传
+
+自训练的改进，在图上展示了相对改进的平均值，观察到，在所有的训练和测试数据设置中，自训练始终显著提高了S-Seg的性能
+
+<img src="https://img.saraba1st.com/forum/202401/24/000528vo55ap5qrzaijqiq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235846__01.jpg</strong> (58.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:05 上传
+
+自训练效果可视化，自训练的S-Seg+模型展示了在S-Seg忽略的区域准确预测的能力，如彩色矩形所示
+
+<img src="https://img.saraba1st.com/forum/202401/24/000535n3bovv73k3vovso3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235846__02.jpg</strong> (123.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:05 上传
+
+扩大训练数据规模可以提高性能，无论是否进行自训练，使用不同规模的数据进行模型训练:CC12M(12M)、CC12M+CC3M(15M)和CC12M+CC3M+RedCaps(26M)，注意到，随着数据规模的增加，性能稳步提高
+
+<img src="https://img.saraba1st.com/forum/202401/24/000542w66rrr6xwst6vyrr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240123-235854__01.jpg</strong> (237.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 00:05 上传
+
+网络图像的定性结果，右侧显示了查询类别名称
+
+第一行:S-Seg能够分割动画场景中的虚构角色
+第二行:虽然进行了泥浴，但仍然能轻松识别和分割老虎
+第三行:S-Seg能够识别特定的地标
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

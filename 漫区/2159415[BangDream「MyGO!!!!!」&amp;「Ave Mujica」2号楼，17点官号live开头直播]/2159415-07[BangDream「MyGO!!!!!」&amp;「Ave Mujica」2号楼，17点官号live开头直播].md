@@ -9054,3 +9054,31 @@ hhw在土豪斗法，ras在本格乐队大战赚米乐队，蝶在大战理事�
 
 出个设定集
 
+
+*****
+
+####  Kasroz  
+##### 9934#       发表于 2024-1-23 11:38
+
+ 本帖最后由 Kasroz 于 2024-1-23 11:40 编辑 
+
+1st至少有一单的情报吧
+
+话说声优已经算解禁了吧，mygo的话解禁之前的前三场live都是没有任何新情报的
+
+*****
+
+####  Kasroz  
+##### 9935#       发表于 2024-1-23 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63743520&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-1-23 11:28</a>
+出个设定集</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">mygo那本公式书里不知道有没有新内容
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9936#       发表于 2024-1-23 11:42
+
+https://www.pixiv.net/artworks/115386937<img src="https://p.sda1.dev/15/14e5834412f743ad4dbf6e89f098d04d/CMP_20240123114240612.jpg" referrerpolicy="no-referrer">
+

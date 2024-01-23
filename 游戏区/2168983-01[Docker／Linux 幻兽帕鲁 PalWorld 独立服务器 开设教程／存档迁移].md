@@ -1113,3 +1113,29 @@ HEX名字实际上是游戏内PID的16进制版本。
 所以在游戏内知道玩家PID之后就可以找到 ...</blockquote>
 所以请问可以跨服务器且跨世界的移植某个角色存档吗？
 
+
+*****
+
+####  moeblack  
+##### 68#         楼主| 发表于 2024-1-23 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63748981&amp;ptid=2168983" target="_blank">DRAGONBLEAPIECE 发表于 2024-1-23 18:34</a>
+请问按目前经验
+10人左右一起玩的话，服务器配置多少才够？谢谢</blockquote>
+32G内存吧
+
+我就是16G内存炸了换了64
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  moeblack  
+##### 69#         楼主| 发表于 2024-1-23 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749104&amp;ptid=2168983" target="_blank">DRAGONBLEAPIECE 发表于 2024-1-23 18:42</a>
+所以请问可以跨服务器且跨世界的移植某个角色存档吗？</blockquote>
+用那个python脚本就能进行存档迁移
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

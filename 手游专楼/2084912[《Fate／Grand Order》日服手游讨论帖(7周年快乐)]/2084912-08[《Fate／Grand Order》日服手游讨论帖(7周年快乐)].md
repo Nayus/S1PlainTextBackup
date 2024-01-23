@@ -6556,3 +6556,30 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 太猎奇了</blockquote>
 原来全是人堆的啊，不仔细看还真没发现，想到了新版哥斯拉的尾巴<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 11114#       发表于 2024-1-23 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63748509&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-23 18:01</a>
+
+不知道你们什么感受 我反正觉得这是最垃圾的活动了    非要这么搞恶心人不知道图什么
+
+ ...</blockquote>
+异议！最垃圾的活动明明是绘里世那个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 11115#       发表于 2024-1-23 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749250&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-23 18:55</a>
+
+你仔细看啊
+
+太猎奇了</blockquote>
+對啊，第一眼就見到是由人類堆出來，但不知道為主有非常熟悉的既視感?
+
+好像那套N年前兒時看過的TV動畫也有類似一幕，全是由人類堆出來巨樹非常噁心???
+

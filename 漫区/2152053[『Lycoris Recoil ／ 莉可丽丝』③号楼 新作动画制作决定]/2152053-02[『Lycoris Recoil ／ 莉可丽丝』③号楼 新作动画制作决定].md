@@ -417,3 +417,14 @@
 
 没想到蒜楼突然冒出这么多人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ardito  
+##### 1529#       发表于 2024-1-24 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63751994&amp;ptid=2152053" target="_blank">ml1642879 发表于 2024-1-23 23:02</a>
+
+为何中文圈对蒜的评价那么低啊，剧情我感觉起码有及格呀，总体的话我能给个8分吧，而且补之前看见 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可能这就事德不配位吧
+

@@ -9423,3 +9423,31 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 啊 是🐓团啊 那没事了
 
+
+*****
+
+####  Kasroz  
+##### 9969#       发表于 2024-1-24 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762959&amp;ptid=2159415" target="_blank">すぴぱら 发表于 2024-1-24 20:50</a>
+这就是团魂吧，烧烤师傅出来说话！
+
+啊 是🐓团啊 那没事了</blockquote>
+能不能把羊宫妃那的中之人换一个？
+
+*****
+
+####  すぴぱら  
+##### 9970#       发表于 2024-1-24 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63763002&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-1-24 20:53</a>
+能不能把羊宫妃那的中之人换一个？</blockquote>
+有一说一，羊的营业方针已经更新了  未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 9971#       发表于 2024-1-24 20:57
+
+那面具确实难绷，wsd什么时候换个做工好点的，怕掉也可以用绳子系啊
+

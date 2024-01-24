@@ -6747,3 +6747,11 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 圣诞掉落只能说将就，主要是池子里的材料难得能马上用出去
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 11132#       发表于 2024-1-24 15:43
+
+想抽二宝正雪结果一发单抽抽了个二宝丑御前，还好下一发双倍就出了，算完美毕业吧
+

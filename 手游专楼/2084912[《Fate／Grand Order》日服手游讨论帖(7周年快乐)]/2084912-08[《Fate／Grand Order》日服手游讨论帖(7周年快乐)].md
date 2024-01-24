@@ -6709,3 +6709,18 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 这掉率差的也太大了
 
+
+*****
+
+####  quanlix  
+##### 11128#       发表于 2024-1-24 13:59
+
+下次再更新ex任务应该就够点满ex2盘了，但是现在狂金棋子只剩60了
+
+*****
+
+####  洛克萨斯  
+##### 11129#       发表于 2024-1-24 14:00
+
+正雪这次活动待遇就很离谱，你月有史以来最惨的一个r阶从者的御主了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+

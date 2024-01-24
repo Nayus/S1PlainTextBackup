@@ -129,3 +129,11 @@
 
 机器人玩大卡组要么就是能力流 要么就是很多过牌 搜寻 冷头 快检 内核这些必须都要有 不然就通用的缩减卡组 打运转。
 
+
+*****
+
+####  tansapple  
+##### 448#       发表于 2024-1-24 15:38
+
+还是观者好玩，就讲究一个乱拳打死心脏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

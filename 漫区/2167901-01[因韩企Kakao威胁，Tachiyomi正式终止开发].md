@@ -1297,3 +1297,11 @@ Android 12之后试试文件访问的权限只给媒体文件。
 
 更新APP时发现仓库归档了，终于走到了这一步么<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  king520kyo  
+##### 105#       发表于 2024-1-24 12:13
+
+所以现在用mihon用什么插件仓库？
+

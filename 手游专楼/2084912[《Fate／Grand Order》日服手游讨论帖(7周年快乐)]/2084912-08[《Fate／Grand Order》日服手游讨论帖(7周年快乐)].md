@@ -7298,3 +7298,52 @@ A：治不了，只能失忆排毒
 
 也能合理解釋正雪加入迦勒底
 
+
+*****
+
+####  シャル  
+##### 11178#       发表于 2024-1-24 23:34
+
+ 本帖最后由 シャル 于 2024-1-24 23:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764383&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-24 23:20</a>
+
+这个贞德也能落地？不是吧，这都行</blockquote>
+这次没给黑贞灵衣啊
+
+而且枪贞是2种新宝具，要加的也得重做<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+不过FSR一堆排队呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 11179#       发表于 2024-1-24 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764487&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-24 23:30</a>
+
+劍鬼你根本恢復了記憶，所以今次才交回聖杯
+
+他都能推算出他最後是和武尊打了一場甚至...
+
+所以今次決定交回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正雪老师成了他们两的结婚蛋糕了
+
+*****
+
+####  乾理央  
+##### 11180#       发表于 2024-1-24 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63763974&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-24 22:36</a>
+
+枪贞比白贞立派多了
+
+白贞简直有病的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想啥呢，东出惯例的切割而已，这样一来剧情中出现的不是白贞也不是黑贞，而是会为五右卫门共赴地狱的灰贞
+
+*****
+
+####  保罗赫伯特  
+##### 11181#       发表于 2024-1-24 23:42
+
+切割是门学问啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

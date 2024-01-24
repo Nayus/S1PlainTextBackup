@@ -11196,3 +11196,21 @@ http://t.cn/A6jJkMBB
 
 （突然想到去年你任株主总会上那个控诉epd搞性别歧视的厄介大哥了
 
+
+*****
+
+####  罗克萨斯  
+##### 2615#       发表于 2024-1-24 23:33
+
+这俩图是真难打，很容易连败，尤其是昆布赛道，和各种带隐游不需要aim的武器玩捉迷藏，打得太憋了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/24/233339jb3buqbltcq2n245.jpg" referrerpolicy="no-referrer">
+
+<strong>2024012422495400-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (243.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 23:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

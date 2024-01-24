@@ -11232,3 +11232,20 @@ http://t.cn/A6jJkMBB
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 2618#       发表于 2024-1-25 00:46
+
+4号的英雄武器图标是做了的，而且游戏里有几个名牌上有，估计会是通关奖励<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 2619#       发表于 2024-1-25 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764377&amp;ptid=2150634" target="_blank">星野航 发表于 2024-1-24 23:20</a>
+ 而且很有意思的，4号跟8号在官方这里出现最多的全是女孩 4号是短发元气女乌，8号是恬静迷人女章 （ ...</blockquote>
+历代都是以女主为主，3代穿着英雄服的男新三号更是似乎只存在于设定集封面，就是那个蓝色中分头章鱼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

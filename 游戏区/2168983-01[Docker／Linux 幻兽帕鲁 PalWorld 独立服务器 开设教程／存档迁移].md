@@ -1213,3 +1213,13 @@ https://www.bilibili.com/video/BV1UW4y1F7Vn/?vd_source=cb9821ce4e92428d247272fd4
 
 他的意思是你登录 steam 后，从 steam 运行服务器。这时候steam会修改你的 saved 文件夹（转而使用 steam账号 加密存档）。就能转移存档了，转移后需要在新的服务器也要安装 steam，还原你的备份，首次通过 steam 运行服务器（可能是多此一举），以后可以直接运行 PalServer，无需登录steam。
 
+
+*****
+
+####  天地不仁  
+##### 75#       发表于 2024-1-24 10:13
+
+问怎么查看自己和朋友开主机联机的延迟，朋友说有点卡和闪回
+
+—— 来自 vivo V2218A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

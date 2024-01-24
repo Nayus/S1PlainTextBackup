@@ -336,3 +336,35 @@
 
 很难不生气 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1524#       发表于 2024-1-24 11:44
+
+是不是可以听cstk讲中文了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/24/114417nht0330jgagz1zj4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124_114345.jpg</strong> (139.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 11:44 上传
+
+<img src="https://img.saraba1st.com/forum/202401/24/114426cufc68l7cycc64fv.jpg" referrerpolicy="no-referrer">
+
+<strong>1706067397602.jpg</strong> (182.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 11:44 上传
+
+<img src="https://img.saraba1st.com/forum/202401/24/114432o3gzc6rcgirgim0q.jpg" referrerpolicy="no-referrer">
+
+<strong>1706067400758.jpg</strong> (187.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 11:44 上传
+

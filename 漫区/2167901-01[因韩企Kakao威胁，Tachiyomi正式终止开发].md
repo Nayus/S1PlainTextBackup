@@ -1267,3 +1267,13 @@ J2K也更新了，可以自定义插件列表了
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  不垃圾屌丝  
+##### 102#       发表于 2024-1-24 09:31
+
+怎么才能让微信不显示下载下来的漫画，加nomedia也没用<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

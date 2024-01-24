@@ -10596,3 +10596,20 @@ zap:单发伤害从28调整至30
 
 审查者190→200
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2556#       发表于 2024-1-24 09:25
+
+电锯砍了宽度不错，香槟不痛不痒的更新
+
+贴牌绿桶和审查者都加了sp，研究所也知道饮料太强了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无印铅笔sp没改？
+
+*****
+
+####  美式咖啡  
+##### 2557#       发表于 2024-1-24 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">电锯实在太难玩了
+

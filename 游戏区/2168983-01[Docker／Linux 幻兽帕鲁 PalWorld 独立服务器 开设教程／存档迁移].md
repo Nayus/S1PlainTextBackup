@@ -1233,3 +1233,37 @@ https://www.bilibili.com/video/BV1UW4y1F7Vn/?vd_source=cb9821ce4e92428d247272fd4
 
 —— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  moeblack  
+##### 77#         楼主| 发表于 2024-1-24 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63755261&amp;ptid=2168983" target="_blank">天地不仁 发表于 2024-1-24 10:13</a>
+
+请问怎么查看自己和朋友开主机联机的延迟，朋友说有点卡和闪回
+
+—— 来自 vivo V2218A, Android 13上的 S1 ...</blockquote>
+朋友esc看RTT，RTT在100以下都没什么闪回
+
+*****
+
+####  万里小路さん  
+##### 78#       发表于 2024-1-24 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63755511&amp;ptid=2168983" target="_blank">woblitent 发表于 2024-1-24 10:32</a>
+服务端从一台电脑迁移到另一台电脑，整个saved文件夹复制过去之后，世界还在，但所有玩家都得重建角色该怎 ...</blockquote>
+事实上同一台电脑不同用户启动服务器也会这样，不清楚是只跟用户名挂钩还是别的
+
+*****
+
+####  moeblack  
+##### 79#         楼主| 发表于 2024-1-24 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63755511&amp;ptid=2168983" target="_blank">woblitent 发表于 2024-1-24 10:32</a>
+
+服务端从一台电脑迁移到另一台电脑，整个saved文件夹复制过去之后，世界还在，但所有玩家都得重建角色该怎 ...</blockquote>
+[https://github.com/xNul/palworld-host-save-fix?tab=readme-ov-file](https://github.com/xNul/palworld-host-save-fix?tab=readme-ov-file)
+
+Github更新了，照着做
+

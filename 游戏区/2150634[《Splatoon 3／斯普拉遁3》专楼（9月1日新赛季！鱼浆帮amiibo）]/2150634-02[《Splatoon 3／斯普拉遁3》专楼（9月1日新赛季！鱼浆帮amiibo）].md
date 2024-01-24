@@ -10783,3 +10783,19 @@ zap:单发伤害从28调整至30
 香槟这算大砍吗，我没玩过这武器纯第一感觉</blockquote>
 香槟的所有点射都算初弹
 
+
+*****
+
+####  秋月孝三  
+##### 2575#       发表于 2024-1-24 10:36
+
+为了防止你楼新玩家误解我来说明一下，你喷大砍主墨应该是这样的水平：
+
+<img src="https://img.saraba1st.com/forum/202401/24/103636degs7f8g1fy83s1z.jpg" referrerpolicy="no-referrer">
+
+<strong>minknerf.jpg</strong> (6.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 10:36 上传
+

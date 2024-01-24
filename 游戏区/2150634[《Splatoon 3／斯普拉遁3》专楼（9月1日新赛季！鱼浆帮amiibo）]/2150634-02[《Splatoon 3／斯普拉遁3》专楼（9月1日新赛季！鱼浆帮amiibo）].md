@@ -11288,3 +11288,14 @@ http://t.cn/A6jJkMBB
 
 （就2代最终祭典来看，4号没司令那么扑克脸，笑得很阳光）
 
+
+*****
+
+####  KBAC  
+##### 2623#       发表于 2024-1-25 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63765211&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-1-25 01:52</a>
+ 同时也很想知道4号究竟要怎么塑造233 4号联系比较深的人物只有小萤，在小萤和小拟、新老3号组队去搞定幻 ...</blockquote>
+<img src="https://s2.loli.net/2024/01/25/Apfi7IbCK8xvegu.png" referrerpolicy="no-referrer">
+3号就一直很帅气，而4号就有点搞笑角色的成分在里面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

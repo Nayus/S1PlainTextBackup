@@ -6772,3 +6772,14 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 别急，败犬回收站会出手的</blockquote>
 根据现在的剧情和房间对话，正雪完全就是对咕哒没有想法，还是向着伊织这个白月光。咕哒这回收站都没办法回收啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 11135#       发表于 2024-1-24 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63760366&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-1-24 16:57</a>
+
+根据现在的剧情和房间对话，正雪完全就是对咕哒没有想法，还是向着伊织这个白月光。咕哒这回收站都没办法 ...</blockquote>
+给立香当文书秘书，有天草开导她，有巴妈和她聊天...........还能和伊织当同事，不用被坑就行了
+

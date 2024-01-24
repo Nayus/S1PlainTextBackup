@@ -47,3 +47,14 @@
 二周目不升难度的话没啥阻力吧</blockquote>
 就是太无聊了，这作c技也算是精心加料了，依然架不住战斗无聊透顶。
 
+
+*****
+
+####  Piano-Forest  
+##### 1681#         楼主| 发表于 2024-1-25 00:55
+
+[https://twitter.com/tarutaruiiigo/status/1750171752695820416](https://twitter.com/tarutaruiiigo/status/1750171752695820416)
+
+DLCでも活躍するみたいので、どうぞお楽しみに
+<img src="https://p.sda1.dev/15/dd35c42d8166a702cdb95e943d5fc3e5/20240125_005357.jpg" referrerpolicy="no-referrer">
+

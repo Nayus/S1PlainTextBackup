@@ -10750,3 +10750,36 @@ zap:单发伤害从28调整至30
 
 声呐和雨都是中后排大招，又是一个前线绞肉机版本
 
+
+*****
+
+####  罗克萨斯  
+##### 2572#       发表于 2024-1-24 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63755009&amp;ptid=2150634" target="_blank">紫菜粉丝煲 发表于 2024-1-24 09:56</a>
+不就因为饮料太强了么</blockquote>
+更稳定供应饮料的铅笔却没有削就很奇怪，现在区域环境铅笔比审查者强势多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绿冰  
+##### 2573#         楼主| 发表于 2024-1-24 10:30
+
+<blockquote>罗克萨斯 发表于 2024-1-24 10:24
+更稳定供应饮料的铅笔却没有削就很奇怪，现在区域环境铅笔比审查者强势多了
+
+—— 来自 S1Fun ...</blockquote>
+狙击整体弱只剩铅笔一个强，不好削吧
+
+*****
+
+####  leyenda  
+##### 2574#       发表于 2024-1-24 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63754952&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-1-24 09:52</a>
+
+香槟这算大砍吗，我没玩过这武器纯第一感觉</blockquote>
+香槟的所有点射都算初弹
+

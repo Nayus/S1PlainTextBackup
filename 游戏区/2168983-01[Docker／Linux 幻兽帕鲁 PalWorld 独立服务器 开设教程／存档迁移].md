@@ -1223,3 +1223,13 @@ https://www.bilibili.com/video/BV1UW4y1F7Vn/?vd_source=cb9821ce4e92428d247272fd4
 
 —— 来自 vivo V2218A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  woblitent  
+##### 76#       发表于 2024-1-24 10:32
+
+服务端从一台电脑迁移到另一台电脑，整个saved文件夹复制过去之后，世界还在，但所有玩家都得重建角色该怎么解决，只能一个个对照新老玩家id，手动改玩家存档名字吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

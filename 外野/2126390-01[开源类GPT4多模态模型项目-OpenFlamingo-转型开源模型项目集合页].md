@@ -29411,3 +29411,63 @@ github项目页说明截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1220#       发表于 2024-1-25 06:02
+
+Yi-VL 6B/34B
+
+Yi Vision Language(Yi-VL)多模态语言大模型
+
+Yi-VL项目主页:https://github.com/01-ai/Yi/tree/main/VL
+
+Yi-VL 6B模型权重:https://huggingface.co/01-ai/Yi-VL-6B
+
+Yi-VL 34B模型权重https://huggingface.co/01-ai/Yi-VL-34B
+
+机器之心相关介绍:https://www.jiqizhixin.com/articles/2024-01-22-10
+
+量子位相关介绍:https://www.qbitai.com/2024/01/115765.html
+
+构架信息
+
+<img src="https://img.saraba1st.com/forum/202401/25/060212j2qs7d372smfds7c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-060053.jpg</strong> (94.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 06:02 上传
+
+相关英文与中文基准测试结果
+
+<img src="https://img.saraba1st.com/forum/202401/25/060230oq6rxt7u4f1ftxrq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-060107.jpg</strong> (107.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 06:02 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/060230rz1gbzrhogbp0rzb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-060115.jpg</strong> (139.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 06:02 上传
+
+实际用例
+
+<img src="https://img.saraba1st.com/forum/202401/25/060243pzki6qtnikzy6546.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-060134.jpg</strong> (396.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 06:02 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

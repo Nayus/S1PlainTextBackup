@@ -6732,3 +6732,18 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 别急，败犬回收站会出手的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 11131#       发表于 2024-1-24 15:25
+
+ 本帖最后由 exiaexa 于 2024-1-24 15:28 编辑 
+
+单说爽的话，最爽的不是砍柱子吗，打得快不磨叽，什么鬼阵容都能上
+
+只恨沙雕运营没有开个10倍
+
+圣诞掉落只能说将就，主要是池子里的材料难得能马上用出去
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

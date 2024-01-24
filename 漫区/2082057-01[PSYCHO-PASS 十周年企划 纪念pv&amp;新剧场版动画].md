@@ -2438,3 +2438,14 @@ S1E23《血之褒赏》，看见大叔殉职，kino血肉模糊的惨样，狡�
 
 有些角度的朱看上去肥的不能直视<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stormist  
+##### 237#       发表于 2024-1-24 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63761366&amp;ptid=2082057" target="_blank">wyhman 发表于 2024-1-24 18:11</a>
+
+话说，我重新开始看作品了，现在看到了狼狗哥在国外收徒然后跟金毛大洋马回去的那个剧场版，接下来看什么能 ...</blockquote>
+就看这部剧场版，看完可以视精神状态决定是否要看PP3
+

@@ -9291,3 +9291,31 @@ ave的大家要約一起去唱KTV，泥們記得給repo<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/bc43af0538171a9bad0139b1ce1cac87/CMP_20240124192607384.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 9956#       发表于 2024-1-24 19:44
+
+---在那个时候有决定向剧本家努力吗？
+绫奈：那时候只是觉得喜欢动画想要做动画相关的工作，而确定要做剧本家的契机是大河内一楼先生，高中的时候偶然得到了大河内先生的工作现场观看的机会，在剧本作业停滞的现场中大河内先生飒爽出现，很快地写下了精彩的剧本。看到了这样的表现后，我觉得大河内先生特别厉害，剧本家很厉害，也憧憬着能做成那样的事。之前还对于将来要怎么做，上大学有没有意义这些事烦恼了很久，不过在这之后我就决定了要成为剧本家。
+
+---那大河内先生是您的师父吗？
+绫奈：是内心认的师父，内心里还有着好几位师父在。首先是在剧本出道作中照顾我的贺东招二先生，被他怒吼“你的剧本完全没意思！”之后我第一次开始思考“有趣的剧本是什么”。当时还一直带着我直到把剧本做成决定稿，真的十分感谢。在剧本书写方式上，我是受了大野木宽先生和高山文彦先生、水上清资先生的影响，或者说是努力去模仿他们。大野木先生在“香格里拉”的现场里教会了我怎样去写“柱”（场景切换时的场面说明）。他们都是我内心中的师父。
+
+---有很憧憬的剧本家吗？
+绫奈：有很多，不过我内心的神是仓田英之先生，是搅乱了我人生的人······或者说是通过“ROD”让我的人生向着好的一面崩坏了的人。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 9957#       发表于 2024-1-24 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63760823&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-24 17:29</a>
+ave的大家要約一起去唱KTV，泥們記得給repo</blockquote>
+我们仍未知道当初第三集祥子在陪练的时候唱了没有<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

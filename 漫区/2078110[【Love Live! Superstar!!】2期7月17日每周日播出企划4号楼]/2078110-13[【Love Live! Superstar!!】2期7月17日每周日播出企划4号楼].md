@@ -2404,3 +2404,13 @@ pay好high</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  s3081260  
+##### 19355#       发表于 2024-1-25 00:17
+
+要是k组有罗密欧与灰姑娘这样的歌就好了，这三人的嗓音很适合
+
+【【AI翻唱】Romeo and Cinderella「ロミオとシンデレラ」- KALEIDOSCORE (Lyric Video)-哔哩哔哩】 https://b23.tv/BHcgf7T
+

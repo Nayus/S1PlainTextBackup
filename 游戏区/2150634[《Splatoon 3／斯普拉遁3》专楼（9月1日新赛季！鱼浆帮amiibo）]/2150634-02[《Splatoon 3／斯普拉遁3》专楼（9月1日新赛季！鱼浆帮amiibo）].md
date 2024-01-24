@@ -10880,3 +10880,22 @@ zap主武器伤害早就该和双枪一样加到30了。唉，墨甲
 起猛了笔系刷系加强了。
 重刷...能不能再把墨水概率衰减解决一下（祈祷做法
 
+
+*****
+
+####  shirolin  
+##### 2585#       发表于 2024-1-24 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63755135&amp;ptid=2150634" target="_blank">紫菜粉丝煲 发表于 2024-1-24 10:05</a>
+对，是微博上那个资料站翻译错了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我翻错了2处，一早被公司推去寒风下拍周年视频没来得及校对
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  KBAC  
+##### 2586#       发表于 2024-1-24 12:52
+
+4月9号喷1的线上模式就彻底结束了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

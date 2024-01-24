@@ -10990,3 +10990,19 @@ zap主武器伤害早就该和双枪一样加到30了。唉，墨甲
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 2595#       发表于 2024-1-24 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63761053&amp;ptid=2150634" target="_blank">晴岚 发表于 2024-1-24 17:45</a>
+大哥，你这么喜欢涂地怎么不去涂地匹配，全程不参加团战，只顾着涂
+
+—— 来自 S1Fun ...</blockquote>
+APP上看一下，是不是那套很典的配装：逆强+2.9SP增<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+不出意外应该是演员，前面掉分破防后就开始摆烂了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

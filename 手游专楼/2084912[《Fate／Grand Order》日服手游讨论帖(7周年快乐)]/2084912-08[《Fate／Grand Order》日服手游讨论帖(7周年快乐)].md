@@ -6844,3 +6844,25 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  v22325  
+##### 11141#       发表于 2024-1-24 18:03
+
+草  颠佬站圣杯面前不说话我以为他又要来了
+
+*****
+
+####  angelooo  
+##### 11142#       发表于 2024-1-24 18:03
+
+于是姑姑不再是迦里最败犬的那个了，可喜可贺！
+
+*****
+
+####  cenhr  
+##### 11143#       发表于 2024-1-24 18:12
+
+话说伯爵抄道满作业是为了恶心主角，但为啥我觉得这次最惨的是正雪。主角在得知是伐树后就进入状态，对伯爵的感觉也是烦人的苍蝇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

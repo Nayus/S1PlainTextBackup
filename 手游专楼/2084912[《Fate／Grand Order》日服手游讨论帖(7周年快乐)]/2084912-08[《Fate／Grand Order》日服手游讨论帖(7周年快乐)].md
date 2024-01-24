@@ -6926,3 +6926,22 @@ F88FDA4B-DE0E-4E03-9963-E6454448DB86.jpeg
 
 最后伊织拿杯子那段配乐就是有意误导啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 11148#       发表于 2024-1-24 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63761193&amp;ptid=2084912" target="_blank">琴酒 发表于 2024-1-24 17:55</a>
+
+吃狗粮</blockquote>
+左边人伸左手，右边人伸右手，这两公婆不会要使出什么石破天惊的招式吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/24/185346lm2wk843tx585k3m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240124_185229.jpg</strong> (121.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 18:53 上传
+

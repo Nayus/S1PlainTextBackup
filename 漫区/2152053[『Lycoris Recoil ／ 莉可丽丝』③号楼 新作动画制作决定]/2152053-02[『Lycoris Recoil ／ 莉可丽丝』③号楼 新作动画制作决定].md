@@ -585,3 +585,25 @@
 —— 来自 S1Fun</blockquote>
 还没确定，预计是note照本搬过来加插画，note的时间线第一章而言是1-3集之间，后面也不太清楚了
 
+
+*****
+
+####  qz66618  
+##### 1545#       发表于 2024-1-24 16:13
+
+还有就是如果不理解蒜的节奏直接回看蒜一楼到蒜二楼就行了，我感觉那个大体上能代表豚豚的心路历程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qz66618  
+##### 1546#       发表于 2024-1-24 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63759734&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-1-24 16:12</a>
+还没确定，预计是note照本搬过来加插画，note的时间线第一章而言是1-3集之间，后面也不太清楚了
+不过note ...</blockquote>
+好的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

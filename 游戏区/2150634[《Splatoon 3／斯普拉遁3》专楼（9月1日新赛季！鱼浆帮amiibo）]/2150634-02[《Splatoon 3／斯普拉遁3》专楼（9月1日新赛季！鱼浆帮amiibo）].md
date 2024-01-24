@@ -11057,3 +11057,48 @@ dlc 2.22
 ……虽然赢了两三把但真觉得太弱智了还是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">起码肯下中场，这个B就没过过半场，被对面中刷电梯上来我死了下来第一件事是把家涂了
 
+
+*****
+
+####  Tachikoma88  
+##### 2601#       发表于 2024-1-24 21:13
+
+2.22可还行
+
+*****
+
+####  Teiume  
+##### 2602#       发表于 2024-1-24 21:16
+
+好突然的dlc2.22，但是pv都是旧画面啊不安中。
+算了信乌爱乌等乌。
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2603#       发表于 2024-1-24 21:22
+
+ 唐突的pv，新视觉图倒是还不错
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  shirolin  
+##### 2604#       发表于 2024-1-24 21:22
+
+鱿鱼速报 20240124-3
+【斯普拉遁3】的DLC(付费追加下载内容):
+扩展通行证第2弹【秩序篇】的发布日期已确定！
+预计将于2月22日（星期四）发布。
+让我们与新的主人公一起挑战秩序的世界吧。
+
+随着游戏的发布日期，新的图片也被公开了。
+8号和小姬致力于逃离秩序的世界。
+他们将攀登一座被异形军团守卫着的塔楼，
+逐渐揭示这个失去色彩的世界的真相。
+
+http://t.cn/A6jJkMBB
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

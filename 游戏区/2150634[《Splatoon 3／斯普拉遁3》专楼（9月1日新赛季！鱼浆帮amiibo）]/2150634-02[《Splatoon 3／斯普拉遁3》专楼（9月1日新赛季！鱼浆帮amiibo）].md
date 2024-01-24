@@ -10635,3 +10635,49 @@ zap:单发伤害从28调整至30
 
 只能说铅笔不动=无事发生，甚至5B更强了
 
+
+*****
+
+####  罗克萨斯  
+##### 2561#       发表于 2024-1-24 09:47
+
+声呐和墨雨都加强了，等于是加强了中加和鹦鹉螺
+
+圆珠笔和审查者削的有点莫名其妙
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绿冰  
+##### 2562#         楼主| 发表于 2024-1-24 09:48
+
+<blockquote>Kiyohara_Yasuke 发表于 2024-1-24 09:25
+电锯砍了宽度不错，香槟不痛不痒的更新
+
+贴牌绿桶和审查者都加了sp，研究所也知道饮料太强了啊无印铅 ...</blockquote>
+我倒是觉得电锯不痛不痒，就大招周转效率
+
+香槟这已经是大砍了吧
+
+*****
+
+####  DeltaStriker  
+##### 2563#       发表于 2024-1-24 09:51
+
+我超 zap喜提伤害加强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 爽
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2564#       发表于 2024-1-24 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63754879&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-1-24 09:48</a>
+
+我倒是觉得电锯不痛不痒，就大招周转效率
+
+香槟这已经是大砍了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">香槟这算大砍吗，我没玩过这武器纯第一感觉
+

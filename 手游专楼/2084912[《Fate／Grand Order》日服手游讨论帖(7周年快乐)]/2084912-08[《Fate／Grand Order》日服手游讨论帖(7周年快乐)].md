@@ -6697,3 +6697,15 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  UNISONIA  
+##### 11127#       发表于 2024-1-24 12:37
+
+圣诞好的地方是前面那堆90+基本没组队难度，而且能用的组合很多
+
+不好的地方是前面刷金蛋的人被终本背刺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这掉率差的也太大了
+

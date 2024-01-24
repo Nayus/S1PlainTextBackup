@@ -2393,3 +2393,14 @@ pay好high</blockquote>
 
 索尼不给Pay的1st发张BD真是可惜
 
+
+*****
+
+####  starring  
+##### 19354#       发表于 2024-1-24 20:09
+
+🐬🍤🐟
+<img src="https://p.sda1.dev/15/7a0702d7f03092148c4186cf9d539f6d/CMP_20240124200828944.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/8c40c7ef35ed6967085b1207983e1276/CMP_20240124200828892.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

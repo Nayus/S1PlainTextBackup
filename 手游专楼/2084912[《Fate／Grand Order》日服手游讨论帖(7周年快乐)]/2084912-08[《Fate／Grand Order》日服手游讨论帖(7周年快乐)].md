@@ -6984,3 +6984,31 @@ F88FDA4B-DE0E-4E03-9963-E6454448DB86.jpeg
 我去有男同这是我认识的类型月亮吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可问题是武尊老婆都登场了啊.....还是夫妻感情非常好的那种
 
+
+*****
+
+####  森兰丸  
+##### 11153#       发表于 2024-1-24 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">通了....所以伊织到底为什么会没有记忆啊....也从来没有听说过哪个英灵会丢失生前记忆的啊
+
+还有那么多御主为什么就地右卫门登场了....比起别的御主他也没什么特别的啊
+
+*****
+
+####  angelooo  
+##### 11154#       发表于 2024-1-24 20:06
+
+<blockquote>森兰丸 发表于 2024-1-24 20:01
+可问题是武尊老婆都登场了啊.....还是夫妻感情非常好的那种</blockquote>
+答案是武尊是双，但类型月亮不敢越红线一步，所以才要性别不明23333
+
+*****
+
+####  Saber琪  
+##### 11155#       发表于 2024-1-24 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762389&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-1-24 20:01</a>
+可问题是武尊老婆都登场了啊.....还是夫妻感情非常好的那种</blockquote>
+第橘在我看来就是“我来专程告诉你，不用在意生前，好好卖腐吧！”<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

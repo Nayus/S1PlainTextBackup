@@ -5907,3 +5907,11 @@ miko是作为年轻人代表请来接受日本网络文化历史教育是吧<img
 
 这下ARK重现了，这游戏也是有点意思的
 
+
+*****
+
+####  rs5621  
+##### 8062#       发表于 2024-1-24 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死，rust时候也是这样
+

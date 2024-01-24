@@ -11299,3 +11299,27 @@ http://t.cn/A6jJkMBB
 <img src="https://s2.loli.net/2024/01/25/Apfi7IbCK8xvegu.png" referrerpolicy="no-referrer">
 3号就一直很帅气，而4号就有点搞笑角色的成分在里面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 2624#       发表于 2024-1-25 03:04
+
+8号忧郁确实也忧郁<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">我蛮喜欢这个人设的
+4号的话，只有ホタル的一些话来描述，比如4号其实黏人啊，而且会担心4号朋友多不多，平时有没有什么娱乐活动之类的
+跟8号凑一组蛮好的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星野航  
+##### 2625#       发表于 2024-1-25 03:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63765228&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-1-25 03:00</a>
+3号就一直很帅气，而4号就有点搞笑角色的成分在里面</blockquote>
+阿卡林是会比较搞笑一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且4号还是个运动系少女+美版翻译出错导致的“比3号大跟爱干净”人设，有反差萌
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

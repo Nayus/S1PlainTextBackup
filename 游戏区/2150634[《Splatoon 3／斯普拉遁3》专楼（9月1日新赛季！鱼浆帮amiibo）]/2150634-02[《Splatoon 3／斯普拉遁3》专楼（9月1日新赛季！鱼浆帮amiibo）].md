@@ -11165,3 +11165,12 @@ http://t.cn/A6jJkMBB
 
 如果真的是4，到时候看看84关系走到哪一步了
 
+
+*****
+
+####  Junakr  
+##### 2612#       发表于 2024-1-24 22:04
+
+还真有人做过一段心中四号的小动画。
+[https://www.bilibili.com/video/BV1sh411N78K/](https://www.bilibili.com/video/BV1sh411N78K/)
+

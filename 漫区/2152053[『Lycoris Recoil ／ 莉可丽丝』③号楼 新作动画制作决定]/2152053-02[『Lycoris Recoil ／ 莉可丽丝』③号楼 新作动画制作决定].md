@@ -562,3 +562,26 @@
 
 2024-1-24 15:42 上传
 
+
+*****
+
+####  qz66618  
+##### 1543#       发表于 2024-1-24 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63749715&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-1-23 19:34</a>
+新小说定名</blockquote>
+这个是新剧情吗，时间线是啥时候
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Saber琪  
+##### 1544#       发表于 2024-1-24 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63759714&amp;ptid=2152053" target="_blank">qz66618 发表于 2024-1-24 16:10</a>
+这个是新剧情吗，时间线是啥时候
+
+—— 来自 S1Fun</blockquote>
+还没确定，预计是note照本搬过来加插画，note的时间线第一章而言是1-3集之间，后面也不太清楚了
+

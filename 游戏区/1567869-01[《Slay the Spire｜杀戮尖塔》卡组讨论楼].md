@@ -112,3 +112,20 @@
 
 机器人的心脏胜率很高，因为不强的机器人卡组都死在矛盾了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忽上忽下  
+##### 447#       发表于 2024-1-24 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63757854&amp;ptid=1567869" target="_blank">Amelia_1812 发表于 2024-1-24 13:41</a>
+
+40血有
+
+为了这个在商店买的勺子</blockquote>
+有回收 就不能拿勺子 拿金字塔是为了快速过牌烧牌 加快运转
+
+你有回响灵体就更不用拿勺子了
+
+机器人玩大卡组要么就是能力流 要么就是很多过牌 搜寻 冷头 快检 内核这些必须都要有 不然就通用的缩减卡组 打运转。
+

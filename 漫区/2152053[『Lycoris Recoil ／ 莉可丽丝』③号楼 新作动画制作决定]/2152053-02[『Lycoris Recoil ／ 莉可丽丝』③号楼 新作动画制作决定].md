@@ -458,3 +458,28 @@
 
 [表情包自取喵](https://weibo.com/1706756551/4993447312232405)
 
+
+*****
+
+####  aptx8285144  
+##### 1534#       发表于 2024-1-24 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63751994&amp;ptid=2152053" target="_blank">ml1642879 发表于 2024-1-23 23:02</a>
+
+为何中文圈对蒜的评价那么低啊，剧情我感觉起码有及格呀，总体的话我能给个8分吧，而且补之前看见 ...</blockquote>
+真岛这种三流的反派，千佛和他交换饮料喝也是绝了，另外倒数第二话的演出之灾难性就不用说多说，愤怒的情绪也并非完全指向真岛一人
+
+*****
+
+####  Saber琪  
+##### 1535#       发表于 2024-1-24 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全过来倒污泥了是吧，又来一个
+
+*****
+
+####  ardito  
+##### 1536#       发表于 2024-1-24 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这不是在讨论作品吗
+

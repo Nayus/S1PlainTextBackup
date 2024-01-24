@@ -7255,3 +7255,20 @@ A：治不了，只能失忆排毒
 
 换句话说就是剑鬼是FSR独占<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11175#       发表于 2024-1-24 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764034&amp;ptid=2084912" target="_blank">yangun22 发表于 2024-1-24 22:42</a>
+
+反正按照这次的剧情，剑鬼伊织是不会成为从者的，那一夜他彻底满足了，不会再出来和人打交了。
+
+换句话说 ...</blockquote>
+其实剑鬼之心还在的
+
+柳生姥爷追加语音
+
+「おぉ、宮本伊織……。よもや剣の鬼とは。人とは、ほとほと分からぬものよなぁ……」
+

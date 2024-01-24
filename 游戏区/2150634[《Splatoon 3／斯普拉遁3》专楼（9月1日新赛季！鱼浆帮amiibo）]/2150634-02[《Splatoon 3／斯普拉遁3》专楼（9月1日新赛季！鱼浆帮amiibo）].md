@@ -11174,3 +11174,13 @@ http://t.cn/A6jJkMBB
 还真有人做过一段心中四号的小动画。
 [https://www.bilibili.com/video/BV1sh411N78K/](https://www.bilibili.com/video/BV1sh411N78K/)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2613#       发表于 2024-1-24 23:06
+
+我发誓我真的再也不打鱼模式了，队友全在梦游不知道在干什么，好歹也是2200分不至于这样吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

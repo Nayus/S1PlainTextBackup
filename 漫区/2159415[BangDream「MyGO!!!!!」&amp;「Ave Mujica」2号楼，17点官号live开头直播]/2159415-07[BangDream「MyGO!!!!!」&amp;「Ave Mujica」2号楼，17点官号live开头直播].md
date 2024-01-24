@@ -9477,3 +9477,27 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 [https://twitter.com/takoo_p/status/1750047538173063590](https://twitter.com/takoo_p/status/1750047538173063590)
 
+
+*****
+
+####  NODY  
+##### 9975#       发表于 2024-1-24 23:09
+
+大鼓队员速度真快啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/24/230853p8njjn0eb78tdube.jpg" referrerpolicy="no-referrer">
+
+<strong>GEnU8QqXgAAcQnZ.jpg</strong> (622.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 23:08 上传
+
+<img src="https://img.saraba1st.com/forum/202401/24/230857ypbbm99jjejgntqq.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (37.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 23:08 上传
+

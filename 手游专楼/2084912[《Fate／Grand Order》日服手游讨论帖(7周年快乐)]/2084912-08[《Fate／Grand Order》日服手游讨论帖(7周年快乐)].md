@@ -6866,3 +6866,47 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 话说伯爵抄道满作业是为了恶心主角，但为啥我觉得这次最惨的是正雪。主角在得知是伐树后就进入状态，对伯爵的感觉也是烦人的苍蝇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 11144#       发表于 2024-1-24 18:15
+
+<img src="https://img.saraba1st.com/forum/202401/24/181237aui4gmsyisr7r74h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9AA7AD60-809F-42C0-9AC1-AA8D3D1E35BF.jpeg</strong> (525.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 18:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/24/181239eb3ns48azyezsteh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>227A2C74-3C46-4B98-83AA-11FD61E13E5C.jpeg</strong> (545.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 18:12 上传
+
+F88FDA4B-DE0E-4E03-9963-E6454448DB86.jpeg
+(674.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 18:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/24/181242xq9mzt0klq9lqkkl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 11145#       发表于 2024-1-24 18:17
+
+<blockquote>exiaexa 发表于 2024-1-24 15:25
+单说爽的话，最爽的不是砍柱子吗，打得快不磨叽，什么鬼阵容都能上
+
+只恨沙雕运营没有开个10倍
+
+</blockquote>
+柱子时间太短了啊，生怕玩家多打了。
+

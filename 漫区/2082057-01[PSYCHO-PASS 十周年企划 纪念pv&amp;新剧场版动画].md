@@ -2430,3 +2430,11 @@ S1E23《血之褒赏》，看见大叔殉职，kino血肉模糊的惨样，狡�
 
 话说，我重新开始看作品了，现在看到了狼狗哥在国外收徒然后跟金毛大洋马回去的那个剧场版，接下来看什么能衔接上剧情啊...
 
+
+*****
+
+####  ardito  
+##### 236#       发表于 2024-1-24 18:20
+
+有些角度的朱看上去肥的不能直视<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

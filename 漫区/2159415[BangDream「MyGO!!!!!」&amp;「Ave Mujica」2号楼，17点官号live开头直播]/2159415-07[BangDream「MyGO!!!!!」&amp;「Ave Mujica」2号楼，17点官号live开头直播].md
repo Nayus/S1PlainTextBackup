@@ -9366,3 +9366,33 @@ ave的大家要約一起去唱KTV，泥們記得給repo</blockquote>
 
 都怪mygo没舞蹈，动画该收录影色舞了
 
+
+*****
+
+####  6030sylar  
+##### 9964#       发表于 2024-1-24 20:35
+
+<img src="https://img.saraba1st.com/forum/202401/24/203508sh6woue3zww6wvua.jpg" referrerpolicy="no-referrer">
+
+<strong>I8CH_SJQ3JKJ@1Y8S)P}5BM.jpg</strong> (802.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 20:35 上传
+
+*****
+
+####  千千千千鸟  
+##### 9965#       发表于 2024-1-24 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762786&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-24 20:35</a></blockquote>
+主要还是人家coser好看，声优就不要追去什么外形了，3天后的live估计还是这个面具的
+
+*****
+
+####  Kasroz  
+##### 9966#       发表于 2024-1-24 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762786&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-24 20:35</a></blockquote>
+live上动作激烈，这种估计很容易脱落，而且现场不太会注意面具细节的
+

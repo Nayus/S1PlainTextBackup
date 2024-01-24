@@ -7069,3 +7069,57 @@ Saber，你，很美——</blockquote>
 
 90++有没有不换五的纯宝具解
 
+
+*****
+
+####  KOBI  
+##### 11161#       发表于 2024-1-24 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要还是剑鬼不太好安排剧情吧
+
+但不颠的伊织还是有点无趣，说是另一条路他也太缺乏主动性
+
+真就专心卖腐了（
+
+*****
+
+####  alucardcz  
+##### 11162#       发表于 2024-1-24 20:37
+
+ 本帖最后由 alucardcz 于 2024-1-24 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762684&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-1-24 20:26</a>
+
+90++有没有不换五的纯宝具解</blockquote>
+王姐（倍卡）  活动从者  奥
+
+1t爆鸡  2t王姐宝具（120+2000+4宝会剩点血皮） 3t全buff 活动从者宝具（必须5宝）
+
+纯宝具难的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这样刷不太爽 直接用黑呆单c无双了
+[https://www.bilibili.com/video/BV1Ck4y1U7s5](https://www.bilibili.com/video/BV1Ck4y1U7s5)
+
+*****
+
+####  無個性  
+##### 11163#       发表于 2024-1-24 20:37
+
+104来点正雪偷看小两口做的本啊
+
+*****
+
+####  白金口袋  
+##### 11164#       发表于 2024-1-24 20:37
+
+感觉剧情除了迫害雪老师之外跟啥也没讲一样
+
+Q：癫佬怎么治疗？
+
+A：治不了，只能失忆排毒
+
+我还以为最后一节会是伊织恢复记忆但看到雪老师大树那个惨样知道了自己过于执着盈月的话也会是这种下场然后彻底放下，真正意义上走回人道
+
+实在不行就被咕哒暴打一顿然后以一种“反正都是死人了不再执着了，这样也不错”的心态跟着走了也算可以接受
+
+结果现在是直接是一副空壳，大家二创的各种来迦后的癫佬幻想根本没有，那还有啥意思？说真的这样的话还不如赠送地右卫门好玩
+

@@ -384,3 +384,36 @@
 
 单看动画已经很有趣了，没想到观众反应更有趣系列
 
+
+*****
+
+####  Saber琪  
+##### 1527#       发表于 2024-1-24 14:06
+
+[https://twitter.com/GatoHobby/status/1749990404416557137?s=19](https://twitter.com/GatoHobby/status/1749990404416557137?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/24/140611tsql66qz9plkwkz6.jpg" referrerpolicy="no-referrer">
+
+<strong>20240124_140603.jpg</strong> (779.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 14:06 上传
+
+[https://twitter.com/sango3_3/status/1749881607790743554?s=19](https://twitter.com/sango3_3/status/1749881607790743554?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/24/140636f4n777r71qmjo14n.jpg" referrerpolicy="no-referrer">
+
+<strong>20240124_140620.jpg</strong> (89.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 14:06 上传
+
+*****
+
+####  Saber琪  
+##### 1528#       发表于 2024-1-24 14:08
+
+没想到蒜楼突然冒出这么多人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

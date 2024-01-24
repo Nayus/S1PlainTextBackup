@@ -9249,3 +9249,13 @@ amit真是三次元PP的孤独偶像，政委远程合唱加应援，感动得�
 
 <img src="https://s2.loli.net/2024/01/24/5pOgEDZT7w4qybR.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 9952#       发表于 2024-1-24 14:06
+
+喵老师第13集要是手滑抓到小祥的扔子可以无视诅咒
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

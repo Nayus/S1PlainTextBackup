@@ -11016,3 +11016,44 @@ APP上看一下，是不是那套很典的配装：逆强+2.9SP增<img src="http
 
 除了牵引击杀大鲑、瞄准胸口红叉外还有什么别的我不知道的技巧吗。
 
+
+*****
+
+####  carroy  
+##### 2597#       发表于 2024-1-24 21:05
+
+dlc 2.22
+
+*****
+
+####  绿冰  
+##### 2598#         楼主| 发表于 2024-1-24 21:07
+
+<blockquote>晴岚 发表于 2024-1-24 17:45
+大哥，你这么喜欢涂地怎么不去涂地匹配，全程不参加团战，只顾着涂
+
+—— 来自 S1Fun ...</blockquote>
+我也遇到过一个绿双，全程在后面涂地，涂满螃蟹才到中间位开大
+
+……虽然赢了两三把但真觉得太弱智了还是退了
+
+*****
+
+####  carroy  
+##### 2599#       发表于 2024-1-24 21:08
+
+这新pv全是兼用镜头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大的在春直是吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  晴岚  
+##### 2600#       发表于 2024-1-24 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63763123&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-1-24 21:07</a>
+
+我也遇到过一个绿双，全程在后面涂地，涂满螃蟹才到中间位开大
+
+……虽然赢了两三把但真觉得太弱智了还是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">起码肯下中场，这个B就没过过半场，被对面中刷电梯上来我死了下来第一件事是把家涂了
+

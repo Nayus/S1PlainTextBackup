@@ -9451,3 +9451,13 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 那面具确实难绷，wsd什么时候换个做工好点的，怕掉也可以用绳子系啊
 
+
+*****
+
+####  PDQ4  
+##### 9972#       发表于 2024-1-24 21:11
+
+指望wsd换面具，不如指望换新演出服<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+怎么神蠢还能出谷的，哪怕你出双月和CSC呢，之前还说抓着黑色生日和假面舞会出谷是wsd有审美，我收回<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

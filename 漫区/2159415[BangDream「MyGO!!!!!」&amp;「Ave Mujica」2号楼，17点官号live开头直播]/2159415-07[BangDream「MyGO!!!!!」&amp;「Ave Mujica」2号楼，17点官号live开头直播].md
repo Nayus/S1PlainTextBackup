@@ -9350,3 +9350,19 @@ ave的大家要約一起去唱KTV，泥們記得給repo</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">为了给b站送审，把初祥婚礼删掉了
 
+
+*****
+
+####  仟音一心  
+##### 9962#       发表于 2024-1-24 20:23
+
+2024.1.24抖音 我心危二期OP 上半身舞蹈
+<img src="https://p.sda1.dev/15/1a105cbf2592aa5dd1f019b2dc1ab4db/Screenshot_20240124_201705_edit_1487216979974700.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 9963#       发表于 2024-1-24 20:27
+
+都怪mygo没舞蹈，动画该收录影色舞了
+

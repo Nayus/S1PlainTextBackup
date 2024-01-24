@@ -10799,3 +10799,11 @@ zap:单发伤害从28调整至30
 
 2024-1-24 10:36 上传
 
+
+*****
+
+####  Ryuuseigun  
+##### 2576#       发表于 2024-1-24 10:59
+
+重刷钢笔刷一年半终于喜迎加强<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">电锯香槟给我狠狠滴削
+

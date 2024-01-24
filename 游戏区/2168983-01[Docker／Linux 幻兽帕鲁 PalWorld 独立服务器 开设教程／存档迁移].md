@@ -1275,3 +1275,17 @@ Github更新了，照着做
 
 有无组织啊，我想和人一起玩服务器版
 
+
+*****
+
+####  HSJ1992  
+##### 81#       发表于 2024-1-24 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63753625&amp;ptid=2168983" target="_blank">iccccccccc 发表于 2024-1-24 06:35</a>
+https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887
+
+🐟老汉的回复</blockquote>
+我跟视频教程步骤不同的是没本地运行windows版steamcmd服务器端，而是直接用实际linux服务器上的docker服务器端。
+
+我如果想迁移邀请码联机的存档，是要让房主装windows版服务端按视频执行，然后后面的问题就是windows服务端存档如何迁移到linux服务端？
+

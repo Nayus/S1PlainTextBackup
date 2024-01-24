@@ -9259,3 +9259,19 @@ amit真是三次元PP的孤独偶像，政委远程合唱加应援，感动得�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 9953#       发表于 2024-1-24 17:29
+
+<img src="https://img.saraba1st.com/forum/202401/24/172834hqgewh7newn7g7bb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 17:28 上传
+
+ave的大家要約一起去唱KTV，泥們記得給repo<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+

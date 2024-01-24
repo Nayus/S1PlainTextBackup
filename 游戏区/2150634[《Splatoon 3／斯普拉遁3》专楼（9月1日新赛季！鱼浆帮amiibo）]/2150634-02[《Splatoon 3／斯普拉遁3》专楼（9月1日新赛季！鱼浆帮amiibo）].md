@@ -10613,3 +10613,25 @@ zap:单发伤害从28调整至30
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">电锯实在太难玩了
 
+
+*****
+
+####  秋月孝三  
+##### 2558#       发表于 2024-1-24 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回、回血
+
+*****
+
+####  紫菜粉丝煲  
+##### 2559#       发表于 2024-1-24 09:38
+
+我桶又又又被削了
+
+*****
+
+####  秋月孝三  
+##### 2560#       发表于 2024-1-24 09:41
+
+只能说铅笔不动=无事发生，甚至5B更强了
+

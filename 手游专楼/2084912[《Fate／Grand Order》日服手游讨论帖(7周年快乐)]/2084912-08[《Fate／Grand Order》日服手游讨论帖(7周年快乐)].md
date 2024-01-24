@@ -7389,3 +7389,35 @@ A：治不了，只能失忆排毒
 4星枪贞，给泳装</blockquote>
 职介再来个伪装者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 11185#       发表于 2024-1-24 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764573&amp;ptid=2084912" target="_blank">乾理央 发表于 2024-1-24 23:40</a>
+
+想啥呢，东出惯例的切割而已，这样一来剧情中出现的不是白贞也不是黑贞，而是会为五右卫门共赴地 ...</blockquote>
+反正白贞的设定本来就是干完活之后本体离座去找人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 11186#       发表于 2024-1-25 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762684&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-1-24 20:26</a>
+
+90++有没有不换五的纯宝具解</blockquote>
+找到一个
+
+陈宫炮3回合
+
+屏幕截图 2024-01-25 000020.png
+(210.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 00:02 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/000243pk2wed05zm4dk7y5.png" referrerpolicy="no-referrer">
+

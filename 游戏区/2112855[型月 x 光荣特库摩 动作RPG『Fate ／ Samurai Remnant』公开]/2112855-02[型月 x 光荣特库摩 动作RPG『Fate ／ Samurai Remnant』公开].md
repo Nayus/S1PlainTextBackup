@@ -58,3 +58,11 @@
 DLCでも活躍するみたいので、どうぞお楽しみに
 <img src="https://p.sda1.dev/15/dd35c42d8166a702cdb95e943d5fc3e5/20240125_005357.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  makar0601  
+##### 1682#       发表于 2024-1-25 07:50
+
+fgo这fsr活动正雪牢师也太惨了来自: iPhone客户端
+

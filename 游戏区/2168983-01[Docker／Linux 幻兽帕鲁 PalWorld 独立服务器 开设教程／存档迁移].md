@@ -1310,3 +1310,14 @@ https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887
 
 咨询一下独立服务器迁间迁移，需要转换存档吗？还是只需要复制 \PalServer\Pal\Saved 里的内容就行？
 
+
+*****
+
+####  moeblack  
+##### 84#         楼主| 发表于 2024-1-24 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63760131&amp;ptid=2168983" target="_blank">匿名用户 发表于 2024-1-24 16:41</a>
+
+咨询一下独立服务器迁间迁移，需要转换存档吗？还是只需要复制 \PalServer\Pal\Saved 里的内容就行？ ...</blockquote>
+都要，参考github帖子，实在不行私信我吧
+

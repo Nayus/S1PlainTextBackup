@@ -9396,3 +9396,30 @@ ave的大家要約一起去唱KTV，泥們記得給repo</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762786&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-1-24 20:35</a></blockquote>
 live上动作激烈，这种估计很容易脱落，而且现场不太会注意面具细节的
 
+
+*****
+
+####  yaneis  
+##### 9967#       发表于 2024-1-24 20:48
+
+<blockquote>NODY 发表于 2024-1-24 20:13
+独角兽偶像是大河内，果然第二季有百合婚吧</blockquote>
+那还用说，都叫她yurikon了（
+
+*****
+
+####  すぴぱら  
+##### 9968#       发表于 2024-1-24 20:50
+
+<img src="https://img.saraba1st.com/forum/202401/24/205018rtmsu4zs4qex2oct.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5061.jpeg</strong> (158.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 20:50 上传
+
+这就是团魂吧，烧烤师傅出来说话！
+
+啊 是🐓团啊 那没事了
+

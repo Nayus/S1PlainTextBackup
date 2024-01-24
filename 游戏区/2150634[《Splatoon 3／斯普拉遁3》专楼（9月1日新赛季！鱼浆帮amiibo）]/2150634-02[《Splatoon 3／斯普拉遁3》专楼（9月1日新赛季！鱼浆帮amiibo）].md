@@ -11155,3 +11155,13 @@ http://t.cn/A6jJkMBB
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实有点像四号哈哈哈w
 
+
+*****
+
+####  raii  
+##### 2611#       发表于 2024-1-24 21:58
+
+从正作剧情来说，8和4是不认识的。加上推特贺图，8和4是认识的。再加上tower record的联动，8和4甚至是一起听歌的室友。
+
+如果真的是4，到时候看看84关系走到哪一步了
+

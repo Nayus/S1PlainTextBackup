@@ -10964,3 +10964,29 @@ zap主武器伤害早就该和双枪一样加到30了。唉，墨甲
 三十塞尔达音乐会，初一喷喷音乐会
 老任的春晚了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 2594#       发表于 2024-1-24 17:45
+
+<img src="https://img.saraba1st.com/forum/202401/24/174458yiubhb6jfij89xpi.jpg" referrerpolicy="no-referrer">
+
+<strong>328AD783-36B7-4B80-8A1E-D5B08A2E640A.jpg</strong> (461.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 17:44 上传
+
+<img src="https://img.saraba1st.com/forum/202401/24/174458uv4ht4qprrvtshv1.jpg" referrerpolicy="no-referrer">
+
+<strong>68B8F06C-147B-4560-87AC-0EB58214B912.jpg</strong> (613.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 17:44 上传
+
+大哥，你这么喜欢涂地怎么不去涂地匹配，全程不参加团战，只顾着涂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

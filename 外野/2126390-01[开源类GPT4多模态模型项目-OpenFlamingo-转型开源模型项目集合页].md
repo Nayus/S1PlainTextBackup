@@ -29351,3 +29351,63 @@ Cons.、Know.和Rej.分别代表一致的角色身份、准确的角色相关知
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1219#       发表于 2024-1-25 05:12
+
+Orion-14B
+
+开源多语言大型语言模型
+
+github项目主页:https://github.com/OrionStarAI/Orion
+
+技术报告:https://arxiv.org/abs/2401.12246
+
+Orion-14B-Base是一个具有140亿参数的多语种大模型，该模型在一个包含2.5万亿token的多样化数据集上进行了训练，涵盖了中文、英语、日语、韩语等多种语言，在多语言环境下的一系列任务中展现出卓越的性能，在主流的公开基准评测中，Orion-14B系列模型表现优异，多项指标显著超越同等参数基本的其他模型，具体技术细节请参考技术报告
+
+github项目页说明截图:
+
+<img src="https://img.saraba1st.com/forum/202401/25/051213ymbfrnmb8xznbnql.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-050942.jpg</strong> (339.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 05:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/051213t0uu00brpm0rp3p3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-051007.jpg</strong> (313.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 05:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/051213epnp2vp9rjnkznpu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-051020.jpg</strong> (250.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 05:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/051213sus4imcu71c514zc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-051051.jpg</strong> (139.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 05:12 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/051213atvt8s00uj77b8f7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-051111.jpg</strong> (411.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 05:12 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

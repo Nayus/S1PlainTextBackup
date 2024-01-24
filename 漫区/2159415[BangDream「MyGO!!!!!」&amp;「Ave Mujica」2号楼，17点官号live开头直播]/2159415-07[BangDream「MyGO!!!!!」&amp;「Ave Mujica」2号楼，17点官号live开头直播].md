@@ -9327,3 +9327,26 @@ ave的大家要約一起去唱KTV，泥們記得給repo</blockquote>
 
 普通票位子在二楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  希望视野能好点
 
+
+*****
+
+####  NODY  
+##### 9959#       发表于 2024-1-24 20:13
+
+独角兽偶像是大河内，果然第二季有百合婚吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 9960#       发表于 2024-1-24 20:17
+
+明天到了日本不知道还有人卖票没<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kasroz  
+##### 9961#       发表于 2024-1-24 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">为了给b站送审，把初祥婚礼删掉了
+

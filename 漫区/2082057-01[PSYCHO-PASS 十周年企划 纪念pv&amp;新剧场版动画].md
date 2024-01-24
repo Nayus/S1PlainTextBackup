@@ -2468,3 +2468,15 @@ S1E23《血之褒赏》，看见大叔殉职，kino血肉模糊的惨样，狡�
 就看这部剧场版，看完可以视精神状态决定是否要看PP3</blockquote>
 但是不是说PP3的时间线实际上还隔了一个那个博士挂掉的剧场版吗（就是最近出资源）的那个，看的我也是云里雾里。。。
 
+
+*****
+
+####  aptx8285144  
+##### 240#       发表于 2024-1-24 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762346&amp;ptid=2082057" target="_blank">wyhman 发表于 2024-1-24 19:56</a>
+
+但是不是说PP3的时间线实际上还隔了一个那个博士挂掉的剧场版吗（就是最近出资源）的那个，看的我也是云 ...</blockquote>
+
+最近出了资源的剧场版就是PP3的前传
+

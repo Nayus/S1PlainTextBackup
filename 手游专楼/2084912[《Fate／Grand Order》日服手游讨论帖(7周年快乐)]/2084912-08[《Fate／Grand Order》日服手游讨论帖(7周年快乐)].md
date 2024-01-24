@@ -7012,3 +7012,52 @@ F88FDA4B-DE0E-4E03-9963-E6454448DB86.jpeg
 可问题是武尊老婆都登场了啊.....还是夫妻感情非常好的那种</blockquote>
 第橘在我看来就是“我来专程告诉你，不用在意生前，好好卖腐吧！”<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 11156#       发表于 2024-1-24 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太哈人了，伊织把武尊攻略弯了
+
+“师傅也是坏心眼，这不是还能靠剑交到朋友吗”
+
+*****
+
+####  洛克萨斯  
+##### 11157#       发表于 2024-1-24 20:19
+
+<img src="https://img.saraba1st.com/forum/202401/24/201853kr9v42mz3pv2344j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 20:18 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">Saber，你，很美——
+
+*****
+
+####  森兰丸  
+##### 11158#       发表于 2024-1-24 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762459&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-1-24 20:06</a>
+
+答案是武尊是双，但类型月亮不敢越红线一步，所以才要性别不明23333</blockquote>
+单是性别不明我记得有人提起过在FGO里也有一堆
+
+像是神祖...道满....平景清....鬼一法眼....果心居士等都是性别不明
+
+然而这些人的性别不都是很明显的么<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 11159#       发表于 2024-1-24 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762602&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-24 20:19</a>
+
+Saber，你，很美——</blockquote>
+有一说一这句话在原作里最后发癫和武尊对决时伊织就说过了
+

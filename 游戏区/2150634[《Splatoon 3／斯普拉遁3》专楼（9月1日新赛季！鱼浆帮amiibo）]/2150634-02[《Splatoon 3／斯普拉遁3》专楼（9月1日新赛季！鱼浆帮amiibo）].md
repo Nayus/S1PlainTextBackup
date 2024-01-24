@@ -10827,3 +10827,29 @@ zap:单发伤害从28调整至30
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  星野航  
+##### 2579#       发表于 2024-1-24 11:23
+
+贴牌绿桶需求从180增加到210了，这才是针对好吧w
+香槟肯定是大砍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上不少人直言这枪废了哈哈
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  秋月孝三  
+##### 2580#       发表于 2024-1-24 11:25
+
+zap主武器伤害早就该和双枪一样加到30了。唉，墨甲
+
+
+*****
+
+####  紫菜粉丝煲  
+##### 2581#       发表于 2024-1-24 11:28
+
+唉，重桶可不可以把暴风范围加回来啊
+

@@ -7229,3 +7229,29 @@ A：治不了，只能失忆排毒
 
 <img src="https://img.saraba1st.com/forum/202401/24/222825j0t7nvn0vmlj2ovv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11173#       发表于 2024-1-24 22:36
+
+ 本帖最后由 シャル 于 2024-1-24 22:40 编辑 
+
+枪贞比白贞立派多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+白贞简直有病的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 11174#       发表于 2024-1-24 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63763835&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-24 22:22</a>
+
+从者只能召唤一侧面
+
+就算叫出颠佬剑鬼那个也是狂阶吧</blockquote>
+反正按照这次的剧情，剑鬼伊织是不会成为从者的，那一夜他彻底满足了，不会再出来和人打交了。
+
+换句话说就是剑鬼是FSR独占<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

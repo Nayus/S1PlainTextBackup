@@ -1289,3 +1289,16 @@ https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887
 
 我如果想迁移邀请码联机的存档，是要让房主装windows版服务端按视频执行，然后后面的问题就是windows服务端存档如何迁移到linux服务端？
 
+
+*****
+
+####  iccccccccc  
+##### 82#       发表于 2024-1-24 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63755942&amp;ptid=2168983" target="_blank">HSJ1992 发表于 2024-1-24 11:02</a>
+
+已编辑。
+
+看了新更新的github教程，知道什么问题了。</blockquote>
+额，我搞到早上才弄好，找最后一层楼回复的没细看。sorry
+

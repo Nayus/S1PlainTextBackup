@@ -7179,3 +7179,15 @@ A：治不了，只能失忆排毒
 
 在B站看到一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过奥伯龙要求满练，因为第一面要靠C呆叠奥伯龙宝具打小怪...很悬。
 
+
+*****
+
+####  シャル  
+##### 11169#       发表于 2024-1-24 22:14
+
+ 本帖最后由 シャル 于 2024-1-24 22:16 编辑 
+
+丑御前只是自己把职介改了下，本质还是骑阶，所以性格宝具性能啥的没变化，铠甲那个是隐藏身份单纯不用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+危险人物<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

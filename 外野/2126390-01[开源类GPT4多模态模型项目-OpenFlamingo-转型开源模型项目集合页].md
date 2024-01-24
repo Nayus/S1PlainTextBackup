@@ -29131,3 +29131,111 @@ RPG中CoT规划的消融实验
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1217#       发表于 2024-1-25 04:15
+
+Vary-toy
+
+小型语言模型结合强化视觉词汇(Reinforced Vision Vocabulary)
+
+项目主页:https://varytoy.github.io/
+
+github项目代码仓库:https://github.com/Ucas-HaoranWei/Vary-toy
+
+演示demo:https://vary.xiaomy.net/
+
+当前时代，在AI社区中使用大规模视觉语言模型(LVLMs)已经成为一种潮流，然而流行的LVLMs通常拥有相对较多的参数(超过70亿)，这使得在消费级GPU上进行训练和部署变得困难，并让许多资源有限的研究人员望而却步，想象一下，如果能在唯一拥有的游戏卡(个人用户)GTX1080ti上体验当前LVLMs的所有功能是多么酷！
+
+因此，在这份报告中介绍了Vary-toy，它是一个小型的Vary模型，使用Qwen-1.8B作为基础的“大型”语言模型，在Vary-toy中，引入了一个改进的视觉词汇表，使模型不仅具备Vary的所有特性，还能够具备更多的通用性
+
+具体而言，在生成视觉词汇表的过程中，通过使用目标检测驱动的正样本数据(positive sample)替换了自然图像的负样本(negative samples of natural images)，更充分地利用了词汇网络的容量，并使其能够高效地编码与自然对象相对应的视觉信息
+
+在实验中，Vary-toy在DocVQA上可以达到65.6%的ANLS，ChartQA准确率为59.1%，RefCOCO准确率为88.1%，MMVet准确率为29%
+
+<img src="https://img.saraba1st.com/forum/202401/25/041505ac2dqd2szploebxs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-041146__01.jpg</strong> (524.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:15 上传
+
+Vary-toy的特点，基于一个18亿参数的语言模型，Vary-toy可以实现原生Vary-base的所有功能，包括文档OCR、图像字幕说明、VQA、一般对话等等，此外，还为Vary-toy引入了自然物体(位置)感知能力，最重要的是，只需要一块单独的GTX1080ti GPU，您就可以体验到上述所有功能
+
+<img src="https://img.saraba1st.com/forum/202401/25/041514y0xe4knpppbay4o9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-041157__01.jpg</strong> (296.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:15 上传
+
+Vary-toy的架构，通过利用Vary-tiny+工作流程生成Vary-toy的新视觉词汇表，这种视觉词汇表可以有效地将密集文本和自然物体位置信息编码成Token，基于改进后的词汇表，Vary-toy不仅具备了之前所有的功能(文档OCR)，还能很好地处理对象检测任务
+
+<img src="https://img.saraba1st.com/forum/202401/25/041519pmlmhbbrtmmmtrcc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-041216__01.jpg</strong> (851.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:15 上传
+
+Vary-tiny+使用的图像文本对可视化，对于PDF图像文本对，只有一个提示，而对于对象检测任务，使用了图中右半部分显示的两种类型的提示，因为一些图像可能会有太多对象，以至于超过OPT125M的最大Token长度(4096)
+
+<img src="https://img.saraba1st.com/forum/202401/25/041524w0k2bqufrz2q2xsn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-041225__01.jpg</strong> (357.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:15 上传
+
+多任务训练数据，在预训练阶段引入了5种类型的数据，包括弱监督数据对、PDF图像文本数据对、检测数据、纯文本自回归数据和VQA数据，所有数据标注都被重新组织成对话格式
+
+<img src="https://img.saraba1st.com/forum/202401/25/041529raamhvnhxjn0jjnj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-041232__01.jpg</strong> (149.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:15 上传
+
+在DocVQA和ChartQA上与流行方法的性能对比，Vary-toy在DocVQA上可以达到65.6%的ANLS，与7B的Qwen-VL-chat相当，并且在ChartQA上可以达到59.1%的准确率，高于7B规模的mPLUG-DocOwl
+
+<img src="https://img.saraba1st.com/forum/202401/25/041533djpoqzb9bymbbozf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-041238__01.jpg</strong> (202.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:15 上传
+
+在RefCOCO上与流行方法的对比，由于新视觉词汇表的帮助，Vary-toy在RefCOCO val上可以达到88.1%的准确率，与7B的Qwen-VL-chat相当
+
+<img src="https://img.saraba1st.com/forum/202401/25/041538chbaassaej0shszs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-041242__01.jpg</strong> (190.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:15 上传
+
+在MMVet上与流行的LVLM方法对比，只需要一个18亿参数的语言模型，Vary-toy就能够获得29.0%的准确率
+
+Rec：识别；Know：知识；Gen：语言生成；Spat：空间意识
+
+<img src="https://img.saraba1st.com/forum/202401/25/041543ay7hyj9yymg8cstl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-041256__01.jpg</strong> (543.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:15 上传
+
+本文模型在四个常用领域的高质量可视化结果，可以看到，Vary-toy具有令人满意的通用能力，并且具备强大的文本和物体感知能力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

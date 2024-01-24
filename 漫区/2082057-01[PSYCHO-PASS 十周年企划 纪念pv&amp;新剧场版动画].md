@@ -2457,3 +2457,14 @@ S1E23《血之褒赏》，看见大叔殉职，kino血肉模糊的惨样，狡�
 
 建立集团心理系数，吸收将军和彩虹桥的西比拉不就是狡朱的小孩吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wyhman  
+##### 239#       发表于 2024-1-24 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63761679&amp;ptid=2082057" target="_blank">stormist 发表于 2024-1-24 18:45</a>
+
+就看这部剧场版，看完可以视精神状态决定是否要看PP3</blockquote>
+但是不是说PP3的时间线实际上还隔了一个那个博士挂掉的剧场版吗（就是最近出资源）的那个，看的我也是云里雾里。。。
+

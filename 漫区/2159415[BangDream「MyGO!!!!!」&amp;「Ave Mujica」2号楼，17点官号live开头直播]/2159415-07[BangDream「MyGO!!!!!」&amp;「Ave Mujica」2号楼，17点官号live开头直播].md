@@ -9319,3 +9319,11 @@ ave的大家要約一起去唱KTV，泥們記得給repo</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jerryoq1  
+##### 9958#       发表于 2024-1-24 19:54
+
+普通票位子在二楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  希望视野能好点
+

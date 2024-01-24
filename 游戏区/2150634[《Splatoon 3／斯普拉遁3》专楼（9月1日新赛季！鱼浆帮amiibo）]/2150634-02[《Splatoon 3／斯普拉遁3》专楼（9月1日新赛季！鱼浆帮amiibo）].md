@@ -11006,3 +11006,13 @@ APP上看一下，是不是那套很典的配装：逆强+2.9SP增<img src="http
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Junakr  
+##### 2596#       发表于 2024-1-24 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打工我现在最大的问题还是大嘴到底怎么打，不管是在达人三四还是传说四百以上、各种地图涨潮退潮都尝试过，至今零击杀，最好也不过打掉八成血。
+
+除了牵引击杀大鲑、瞄准胸口红叉外还有什么别的我不知道的技巧吗。
+

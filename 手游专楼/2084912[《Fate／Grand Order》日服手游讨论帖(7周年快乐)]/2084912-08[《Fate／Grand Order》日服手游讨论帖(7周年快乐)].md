@@ -7437,3 +7437,11 @@ A：治不了，只能失忆排毒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是看多免疫这傻逼立绘了，认识的路人都在骂
 
+
+*****
+
+####  angelooo  
+##### 11189#       发表于 2024-1-25 07:41
+
+现在国服的氛围搞得一副不抽烟雾镜的人会被80似的，给了阿B这种立绘你们已经全部接受甚至已经沉溺其中的自信吧23333
+

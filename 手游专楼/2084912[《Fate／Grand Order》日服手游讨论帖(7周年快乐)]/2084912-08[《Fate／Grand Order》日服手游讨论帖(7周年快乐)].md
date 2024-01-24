@@ -7166,3 +7166,16 @@ A：治不了，只能失忆排毒
 </blockquote>
 枪组倒是真的救回来一点（主要是地右卫门太可靠了），灰贞么又果断切了，我也不评价，因为在fsr里这组塑造真的是……现在这里相对正常多了，而且在这里也不再是主从了可以各管各的做事
 
+
+*****
+
+####  Jamaisvu  
+##### 11168#       发表于 2024-1-24 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762684&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-1-24 20:26</a>
+
+90++有没有不换五的纯宝具解</blockquote>
+【【FGO日服】FSR联动90++ 呆奥武尊不换人六加成-哔哩哔哩】 [https://b23.tv/4VLhyUu](https://b23.tv/4VLhyUu)
+
+在B站看到一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过奥伯龙要求满练，因为第一面要靠C呆叠奥伯龙宝具打小怪...很悬。
+

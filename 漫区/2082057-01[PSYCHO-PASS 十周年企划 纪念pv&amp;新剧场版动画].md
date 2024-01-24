@@ -2414,3 +2414,11 @@ S1E23《血之褒赏》，看见大叔殉职，kino血肉模糊的惨样，狡�
 
 看完有个疑问，最后救朱爷的时候刻意让狗哥扔了dominator用左轮，有什么用意吗，为了让狗哥可以不受拘束执行正义吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  摸鱼先锋  
+##### 234#       发表于 2024-1-24 13:17
+
+感觉pp真的没啥能讲的了，赶紧狡朱老婆孩子热炕头得了
+

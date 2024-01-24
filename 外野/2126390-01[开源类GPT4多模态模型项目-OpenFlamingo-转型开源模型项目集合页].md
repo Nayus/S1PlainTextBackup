@@ -29239,3 +29239,115 @@ Rec：识别；Know：知识；Gen：语言生成；Spat：空间意识
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1218#       发表于 2024-1-25 04:56
+
+ 本帖最后由 Machinery 于 2024-1-25 05:00 编辑 
+
+Ditto
+
+大语言模型是所有角色的叠加:通过自对齐(Self-Alignment)实现任意角色扮演(Arbitrary Role-play)
+
+github项目仓库:https://github.com/OFA-Sys/Ditto
+
+社区对于开源大型语言模型(LLM)进行角色扮演能力增强方面付出了大量努力，这些模型试图通过模仿对应的专有模型进行增强，然而，本文认为LLM原生具有角色扮演能力，这是由于其广阔训练语料库中已经蕴含了角色知识和广泛的潜在对话能力
+
+因此，在这项研究中引入了Ditto，一种用于角色扮演的自对齐方法，Ditto充分利用了角色知识，鼓励一个遵循指令的LLM模拟角色扮演对话，作为阅读理解的一种变体
+
+该方法创建了一个包含4000个角色的角色扮演训练集，相对于当前可用数据集的角色，数量增加了十倍，随后使用这个自动生成的数据集对LLM进行微调，以增强其角色扮演能力
+
+在评估精心构建且可复现的角色扮演基准和MT-Bench的角色扮演子集时，Ditto在各种参数规模下始终维持了一致的角色身份，并在多轮角色扮演对话中提供了准确的角色特定知识，值得注意的是，它超越了所有开源角色扮演基线，展现了可与高级专有聊天机器人相媲美的性能水平
+
+此外，还展现了在角色扮演领域的首个全面的交叉监督对齐实验(cross-supervision alignment experiment)，揭示了LLM的内在能力限制了角色扮演中的知识，与此同时，角色扮演风格可以在较小模型的指导下轻松获得
+
+<img src="https://img.saraba1st.com/forum/202401/25/045516zvunj7uueiobzcf6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-045218.jpg</strong> (120.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:55 上传
+
+DITTO通过自对齐提升了LLMs的角色扮演能力，在各种角色文档和对话中进行了预训练
+
+<img src="https://img.saraba1st.com/forum/202401/25/045521zu5vvelyfeu8pn7n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-045235__01.jpg</strong> (433.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:55 上传
+
+DITTO示意图，DITTO由三阶段组成以进行角色扮演的自对齐
+
+首先，DITTO从知识库中收集角色文档，如上部分所示，然后使用现成的聊天机器人生成角色特定和对比性的问题，接着通过知识增强的自回应(knowledge-augmented self-response)构建角色扮演监督数据集(对话模拟)，最后，DITTO在监督模型上微调数据集，增强角色扮演能力
+
+<img src="https://img.saraba1st.com/forum/202401/25/045533xywhwf7wo47foow0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-045305__01.jpg</strong> (586.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:55 上传
+
+LLM角色扮演的客观评估，提出了三个度量标准
+
+<img src="https://img.saraba1st.com/forum/202401/25/045537b0gpv9fgfdq29911.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-045325.jpg</strong> (64.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:55 上传
+
+数据集统计，将WIKIROLE与现有的开源角色扮演数据集进行了对比，WIKIROLE训练集中的查询由种子LLM生成，而测试集由GPT-4生成
+
+<img src="https://img.saraba1st.com/forum/202401/25/045541qcczlkd8dzl1kixz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-045342.jpg</strong> (279 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:55 上传
+
+DITTO的主要结果
+
+Cons.、Know.和Rej.分别代表一致的角色身份、准确的角色相关知识和未知问题拒绝，“En”代表英文，“Zh”代表中文，“All”列显示双语测试样本的聚合得分
+
+报告了一致性和拒绝评估的准确率，以及知识的1-10分，较深的背景颜色表示更好的性能，封闭源LLMs的参数数量未知，因此省略
+
+<img src="https://img.saraba1st.com/forum/202401/25/045548mae83aaaswe44e3e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-045358.jpg</strong> (71.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:55 上传
+
+查询模拟质量的人工标注
+
+<img src="https://img.saraba1st.com/forum/202401/25/045554g0tde7jwedjj3jzg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-045417__01.jpg</strong> (200.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:55 上传
+
+不同监督和种子LLMs之间的泛化分析，监督性能表示在DITTO模拟配方下进行角色扮演的性能，包括知识增强，模仿性能是指种子LLM在某些监督LLM的模拟上进行微调时的性能
+
+<img src="https://img.saraba1st.com/forum/202401/25/045604i5r4ru365pktpkcr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240125-045440.jpg</strong> (48.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 04:56 上传
+
+对话模拟中知识注入的有效性，报告了Qwen-1.8B-Chat在测试集上具有和不具有角色知识注入的对话模拟性能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

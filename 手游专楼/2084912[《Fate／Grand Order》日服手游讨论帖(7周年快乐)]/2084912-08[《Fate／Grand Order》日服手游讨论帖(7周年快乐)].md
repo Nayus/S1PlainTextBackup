@@ -7191,3 +7191,41 @@ A：治不了，只能失忆排毒
 
 危险人物<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11170#       发表于 2024-1-24 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762896&amp;ptid=2084912" target="_blank">yangun22 发表于 2024-1-24 20:44</a>
+
+颠佬治好了啊，夜不明结局其实是治愈结局，他心愿满足了，所以颠佬不会成为英灵，英灵是他切除的剩余部分， ...</blockquote>
+从者只能召唤一侧面
+
+就算叫出颠佬剑鬼那个也是狂阶吧
+
+*****
+
+####  洛克萨斯  
+##### 11171#       发表于 2024-1-24 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丑御前的所作所为，建议让金时去教育她
+
+*****
+
+####  シャル  
+##### 11172#       发表于 2024-1-24 22:29
+
+试了试高难发动剑鬼模式
+
+强三倍啊
+
+75808DFA-74F8-403A-A791-3F80697D304A.jpeg
+(899.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202401/24/222825j0t7nvn0vmlj2ovv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

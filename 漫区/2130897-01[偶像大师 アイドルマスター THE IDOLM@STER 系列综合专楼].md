@@ -25,3 +25,11 @@
 
 u149建议漫画，手游。本家得看能不能接受古早3d能的话，就2代，s4u，和星耀季节。不能的话，就星光舞台和星耀季节。
 
+
+*****
+
+####  acacaclove  
+##### 1032#       发表于 2024-1-25 03:36
+
+本家第一场mini live都已经20年了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

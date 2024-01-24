@@ -1289,3 +1289,11 @@ J2K也更新了，可以自定义插件列表了
 —— 来自 Sony XQ-AT72, Android 12上的 S ...</blockquote>
 Android 12之后试试文件访问的权限只给媒体文件。
 
+
+*****
+
+####  sannaha  
+##### 104#       发表于 2024-1-24 11:22
+
+更新APP时发现仓库归档了，终于走到了这一步么<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

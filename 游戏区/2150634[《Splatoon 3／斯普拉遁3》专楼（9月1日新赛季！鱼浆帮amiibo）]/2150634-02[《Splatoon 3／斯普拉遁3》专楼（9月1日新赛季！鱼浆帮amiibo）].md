@@ -10807,3 +10807,23 @@ zap:单发伤害从28调整至30
 
 重刷钢笔刷一年半终于喜迎加强<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">电锯香槟给我狠狠滴削
 
+
+*****
+
+####  清浦刹那  
+##### 2577#       发表于 2024-1-24 11:21
+
+下雨 AOE 回血
+
+是玛法里奥开大了！
+
+*****
+
+####  星野航  
+##### 2578#       发表于 2024-1-24 11:22
+
+其实200这砍得难度不高的，以审查者的涂地很快就涂回来了，只能说小削弱。
+但下雨能回血，这鹦鹉螺爆吃香，肯定舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鹦鹉螺一年到头不见削弱了这几本也是
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -6755,3 +6755,20 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 想抽二宝正雪结果一发单抽抽了个二宝丑御前，还好下一发双倍就出了，算完美毕业吧
 
+
+*****
+
+####  quanlix  
+##### 11133#       发表于 2024-1-24 16:55
+
+圣诞活动害我图鉴316号从灰的变成未召唤了
+
+*****
+
+####  khxooo  
+##### 11134#       发表于 2024-1-24 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63758444&amp;ptid=2084912" target="_blank">乾理央 发表于 2024-1-24 14:32</a>
+别急，败犬回收站会出手的</blockquote>
+根据现在的剧情和房间对话，正雪完全就是对咕哒没有想法，还是向着伊织这个白月光。咕哒这回收站都没办法回收啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

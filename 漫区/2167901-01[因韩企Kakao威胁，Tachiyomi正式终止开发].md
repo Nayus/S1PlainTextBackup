@@ -1277,3 +1277,15 @@ J2K也更新了，可以自定义插件列表了
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  linux40  
+##### 103#       发表于 2024-1-24 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63754602&amp;ptid=2167901" target="_blank">不垃圾屌丝 发表于 2024-1-24 09:31</a>
+怎么才能让微信不显示下载下来的漫画，加nomedia也没用
+
+—— 来自 Sony XQ-AT72, Android 12上的 S ...</blockquote>
+Android 12之后试试文件访问的权限只给媒体文件。
+

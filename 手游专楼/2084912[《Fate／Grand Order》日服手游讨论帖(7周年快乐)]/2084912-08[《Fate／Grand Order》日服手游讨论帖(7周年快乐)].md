@@ -6687,3 +6687,13 @@ free本一面六怪是好文明<img src="https://static.saraba1st.com/image/smil
 
 最近玩得舒服的活动大概是圣诞。
 
+
+*****
+
+####  fengzijiang  
+##### 11126#       发表于 2024-1-24 11:05
+
+圣诞最爽的是奥伯龙c呆自出一个就能活动从者六加成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

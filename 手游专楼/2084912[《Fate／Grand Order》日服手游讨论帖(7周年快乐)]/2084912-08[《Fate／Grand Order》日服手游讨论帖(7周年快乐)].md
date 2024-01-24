@@ -7347,3 +7347,45 @@ A：治不了，只能失忆排毒
 
 切割是门学问啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11182#       发表于 2024-1-24 23:45
+
+ 本帖最后由 シャル 于 2024-1-24 23:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764591&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-24 23:42</a>
+
+切割是门学问啊</blockquote>
+我想到了，下次泳装可以加啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+4星枪贞，给泳装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+问就是夏天惯例的灵基变异
+
+*****
+
+####  eilot  
+##### 11183#       发表于 2024-1-24 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63763974&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-24 22:36</a>
+
+枪贞比白贞立派多了
+
+白贞简直有病的</blockquote>
+喂喂小姐，今次灰貞理論上就是白貞你啊，還好意思說有新妹妹預感嗎，是想切割出新馬甲，不想被黑貞追著你來燒吧?
+
+還有你何時才有強化本補一補啊
+
+*****
+
+####  保罗赫伯特  
+##### 11184#       发表于 2024-1-24 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764617&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-24 23:45</a>
+
+我想到了，下次泳装可以加啊
+
+4星枪贞，给泳装</blockquote>
+职介再来个伪装者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

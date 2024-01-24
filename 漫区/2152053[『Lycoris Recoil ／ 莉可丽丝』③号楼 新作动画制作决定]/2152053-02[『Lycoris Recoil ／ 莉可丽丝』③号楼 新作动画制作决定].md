@@ -607,3 +607,19 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Saber琪  
+##### 1547#       发表于 2024-1-24 16:30
+
+[极好的偷袭](https://twitter.com/0606oneday/status/1750069137991417896?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/24/163022a8at324xszu8lz3r.jpg" referrerpolicy="no-referrer">
+
+<strong>20240124_162842.jpg</strong> (171.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-24 16:30 上传
+

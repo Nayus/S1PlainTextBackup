@@ -11222,3 +11222,13 @@ http://t.cn/A6jJkMBB
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本赛季久违的打回S+10。真格加了连胜王冠以后就知道该集火谁了，体验非常良好，以后完全可以只玩区域叻
 
+
+*****
+
+####  罗克萨斯  
+##### 2617#       发表于 2024-1-25 00:07
+
+这赛季能五连胜我就满足了，在考虑赛季剩余时间只打区域，然后武器限定鹦鹉螺/中加/圆珠笔/审查者，其它的根本没空练了<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -11249,3 +11249,11 @@ http://t.cn/A6jJkMBB
  而且很有意思的，4号跟8号在官方这里出现最多的全是女孩 4号是短发元气女乌，8号是恬静迷人女章 （ ...</blockquote>
 历代都是以女主为主，3代穿着英雄服的男新三号更是似乎只存在于设定集封面，就是那个蓝色中分头章鱼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 2620#       发表于 2024-1-25 01:07
+
+所以可能本来是要在计划的演唱会结束时公布这个pv的，结果演唱会被搅黄了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

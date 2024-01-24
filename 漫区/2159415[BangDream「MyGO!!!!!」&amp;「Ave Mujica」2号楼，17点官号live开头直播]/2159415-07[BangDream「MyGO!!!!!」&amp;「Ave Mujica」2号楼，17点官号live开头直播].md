@@ -9587,3 +9587,15 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 [https://twitter.com/this_is_nn/status/1750172208671121683](https://twitter.com/this_is_nn/status/1750172208671121683)
 
+
+*****
+
+####  傘木希美  
+##### 9978#       发表于 2024-1-25 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764437&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-24 23:25</a>
+就等她的祥子，ave人齊了！！ </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">怎么到了大祥老师这里画风就不太对了
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

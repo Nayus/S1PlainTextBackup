@@ -11347,3 +11347,17 @@ http://t.cn/A6jJkMBB
 
 趁着dlc发售前把英雄模式速通了，大部分关卡其实都没打，就把必须打的鱼桨帮boss战打了。打了1200h pvp了本来还以为英雄模式简单切菜，结果还是翻车了不少次，特别是最后打boss的时候。 最后的的演出还真的挺不错的，英雄射击枪到手比在别人手上好看！开始刷第三把5星小绿。
 
+
+*****
+
+####  shirolin  
+##### 2628#       发表于 2024-1-25 08:57
+
+<img src="https://img.saraba1st.com/forum/202401/25/085716ppo0wgglrlqfmjrp.jpg" referrerpolicy="no-referrer">
+
+<strong>20240124_214402.jpg</strong> (27.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 08:57 上传
+

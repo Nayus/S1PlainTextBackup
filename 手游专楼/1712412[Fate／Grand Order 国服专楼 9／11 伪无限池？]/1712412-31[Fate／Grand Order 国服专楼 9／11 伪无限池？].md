@@ -217,3 +217,18 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 吃夜宵回来打开b站吓得手机差点掉地上<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姬萩九郎  
+##### 45945#       发表于 2024-1-25 08:54
+
+家人们，谁懂啊！半夜打开B站，迎面开屏广告就是烟雾镜怼脸大特写
+
+*****
+
+####  天人五衰  
+##### 45946#       发表于 2024-1-25 09:01
+
+丢人丢到国际水平了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

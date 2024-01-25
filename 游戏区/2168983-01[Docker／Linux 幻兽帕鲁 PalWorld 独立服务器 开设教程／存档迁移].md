@@ -1507,3 +1507,67 @@ steam为什么比学习版帧数低那么多？3060ti都没30帧，什么原因<
 
 <img src="https://img.saraba1st.com/forum/202401/26/074100isjz2lkm9jjyysj7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeblack  
+##### 100#         楼主| 发表于 2024-1-26 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779500&amp;ptid=2168983" target="_blank">sunzhenfeinan 发表于 2024-1-26 07:41</a>
+学习版设置，就是想不麻烦以后更新才买的，本来是xgp画质太差。
+
+不太会捣鼓配置 ...</blockquote>
+要不你把视距拉倒中吧，我5800X+4090都不敢开最高……
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  sunzhenfeinan  
+##### 101#       发表于 2024-1-26 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779506&amp;ptid=2168983" target="_blank">moeblack 发表于 2024-1-26 07:44</a>
+
+要不你把视距拉倒中吧，我5800X+4090都不敢开最高……
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 S1Ne ...</blockquote>
+我奇怪地是同一台电脑，同样设置，学习版帧数高太多，是不是steam服务器还是什么问题
+
+*****
+
+####  moeblack  
+##### 102#         楼主| 发表于 2024-1-26 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779508&amp;ptid=2168983" target="_blank">sunzhenfeinan 发表于 2024-1-26 07:45</a>
+我奇怪地是同一台电脑，同样设置，学习版帧数高太多，是不是steam服务器还是什么问题 ...</blockquote>
+学习版谁知道调了什么……
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  sunzhenfeinan  
+##### 103#       发表于 2024-1-26 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779519&amp;ptid=2168983" target="_blank">moeblack 发表于 2024-1-26 07:46</a>
+
+学习版谁知道调了什么……
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是观感很好，设置一样，我这个调最低画质帧数都很低，我觉得是平台问题
+
+*****
+
+####  sunzhenfeinan  
+##### 104#       发表于 2024-1-26 07:52
+
+<img src="https://img.saraba1st.com/forum/202401/26/075237tkwc0qprphygw9u9.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20240126075208320.jpg</strong> (137.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 07:52 上传
+
+这样还是只有10几帧
+

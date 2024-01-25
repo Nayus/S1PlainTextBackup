@@ -1444,3 +1444,66 @@ steam为什么比学习版帧数低那么多？3060ti都没30帧，什么原因<
 —— 来自 HUAWEI ALN-AL80, Android 12上的 S1Next-鹅版 v2.1.2 ...</blockquote>
 为什么学习版不会这样
 
+
+*****
+
+####  moeblack  
+##### 96#         楼主| 发表于 2024-1-26 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779481&amp;ptid=2168983" target="_blank">sunzhenfeinan 发表于 2024-1-26 07:32</a>
+为什么学习版不会这样</blockquote>
+重启游戏就不炸了吧。
+配置设置呢
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  sunzhenfeinan  
+##### 97#       发表于 2024-1-26 07:37
+
+重启了也没用，关键同样设置学习版就很流畅
+
+360截图20240126073629811.jpg
+(37.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 07:37 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/073743aq7qut7dr59li2xx.jpg" referrerpolicy="no-referrer">
+
+360截图20240126073709541.jpg
+(126.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 07:37 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/073743dovzc0u0n7jm96uf.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  sunzhenfeinan  
+##### 98#       发表于 2024-1-26 07:38
+
+就是我现在很卡，但是退出直接玩学习版就很流畅，而且设置一样，不理解
+
+*****
+
+####  sunzhenfeinan  
+##### 99#       发表于 2024-1-26 07:41
+
+学习版设置，就是想不麻烦以后更新才买的，本来是xgp画质太差。
+
+不太会捣鼓配置
+
+360截图20240126074005671.jpg
+(139.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 07:41 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/074100isjz2lkm9jjyysj7.jpg" referrerpolicy="no-referrer">
+

@@ -120,3 +120,14 @@
 
 最搞笑的是放这个片段时候环球影城奥兰多的老板正在说“我们很兴奋的看到一部分的员工已经搬进了他们在epic world的新家。”看来青沼和宫本都成功应聘成为环球影城奥兰多的建筑工了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15634#       发表于 2024-1-25 15:30
+
+说起来万代那个大师剑发售了吗？
+前几天在推特看到一个日本人发的日亚链接，有一款图片看起来像模像样的大师剑，还自带totk的断剑款替换，当时一念之差没收藏，现在怎么也找不到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

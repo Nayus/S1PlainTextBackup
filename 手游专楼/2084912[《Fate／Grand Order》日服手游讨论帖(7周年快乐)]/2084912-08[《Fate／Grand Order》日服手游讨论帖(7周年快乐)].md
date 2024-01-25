@@ -7601,3 +7601,15 @@ A：治不了，只能失忆排毒
 真是没想到，这次联动伊织一边梦游一遍买南通，梦游着逛了几圈街，最后高光居然在90++
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11202#       发表于 2024-1-25 15:25
+
+欧罗拉要是有抱妖兰时候的萝莉形态那还能考虑一下，再来点铝铜卖ml就更乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+仔细想想，作为反派，她和奥伯龙一个在明，一个在暗，直接干脏活的观感比背地里谋划的差很多，而且办事的格调也确实低，从设计上就是被喷位了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

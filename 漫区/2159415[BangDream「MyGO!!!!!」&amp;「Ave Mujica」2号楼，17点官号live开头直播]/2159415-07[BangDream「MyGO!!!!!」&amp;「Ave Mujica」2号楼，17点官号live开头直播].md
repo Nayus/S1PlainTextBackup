@@ -9702,3 +9702,12 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 武士道说要砍营收低的游戏还以为少歌危了，结果把sif砍了，爆笑，看来少歌成本低也是有好处的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  特拉·特尔特  
+##### 9989#       发表于 2024-1-25 15:27
+
+<img src="https://p.sda1.dev/15/56da2e2a3272518a5fd9bd8978149dfc/CMP_20240125152618507.jpg" referrerpolicy="no-referrer">
+[kusakayosituki1](https://twitter.com/kusakayosituki1/status/1750404296964022623?s=19)
+

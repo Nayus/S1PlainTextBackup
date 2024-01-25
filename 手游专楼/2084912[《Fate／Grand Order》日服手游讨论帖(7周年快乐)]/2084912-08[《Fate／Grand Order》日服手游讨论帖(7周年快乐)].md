@@ -7738,3 +7738,41 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MD以为没有新卡池了，为了正雪老师早上起来在丑御前池丢了2发10连，结果下午开武藏池
 
+
+*****
+
+####  alucardcz  
+##### 11215#       发表于 2024-1-25 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63773677&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-25 18:05</a>
+
+两发十连 水武藏出了 请问能换成其他我没有的常驻五星么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 为什么萌新就没欧过
+
+*****
+
+####  Jamaisvu  
+##### 11216#       发表于 2024-1-25 18:18
+
+武尊和弟橘媛、伊织和香耶，三个人三对CP，虽然很合理但还是有点生草...
+
+话说之前有人说过武尊长得像斗罗大陆的海神唐三，唐三和霍雨浩恰好适用于武神凤凰的刑海定型文，我突发奇想，写了一下武尊版的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">：
+
+伊织：saber，我刚才看见香耶，她说自你给她梳头之后，性情大变，多次尝试去...侵犯她，这到底是不是真的？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+武尊：唉，你听我说，伊织，你也知道，弟橘媛投海后，我是如何的痛苦。我一直以为永远地失去了她，但最近才发现不是这样。我发现香耶长得很像弟橘媛啊，本来我不觉得的，但最近真的越看越像...你知道吗，一定是弟橘媛的灵魂附身到香耶身上啊。是千真万确的，我已感觉到弟橘媛复活了...<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+伊织：saber，你疯了吗？你老婆早死了，你这样对香耶，让她以后如何嫁人啊？！<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+武尊：唔，够了！伊织，不要再以这种质问的语气跟我说话！你懂不懂什么叫盈月之仪啊？！召唤我出来，让我补个魔开心一下也不行吗？再烦的话，嘎，我连你也同样的艹呀！！<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 11217#       发表于 2024-1-25 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63773817&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-25 18:17</a>
+
+欧 羡慕 为什么萌新就没欧过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗萌新水武藏不都2宝了 我甚至没狂阶棋子了 没法突破
+

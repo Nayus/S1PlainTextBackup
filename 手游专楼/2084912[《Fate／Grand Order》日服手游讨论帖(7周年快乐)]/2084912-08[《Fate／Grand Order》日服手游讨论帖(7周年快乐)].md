@@ -7701,3 +7701,25 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 中午打的高难本，狂武藏冲浪（用了令咒），结果下午就宝具本加特攻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11211#       发表于 2024-1-25 17:57
+
+伊织和武尊除了搞gay外，如果写手愿意，甚至是有同一个老婆，弟橘媛/香耶
+
+虽然史实伊织有自己的老婆，但我怀疑你月史正常情况是伊织娶了小笠原家小公主香耶，加上自己能力出众，所以升职才会升得这么快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 11212#       发表于 2024-1-25 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63773387&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-1-25 17:44</a>
+
+好像是第一个开宝具本的泳装5星从者？</blockquote>
+确实，泳装五星以前都只开技能本，狂武藏起了个好头啊。
+
+而且她还没自充，技能本也迟早会来吧...
+

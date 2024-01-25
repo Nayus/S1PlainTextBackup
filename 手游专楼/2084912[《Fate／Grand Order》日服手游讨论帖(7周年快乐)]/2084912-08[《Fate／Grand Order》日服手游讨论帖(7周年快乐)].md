@@ -7723,3 +7723,18 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 而且她还没自充，技能本也迟早会来吧...
 
+
+*****
+
+####  qixinno2  
+##### 11213#       发表于 2024-1-25 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两发十连 水武藏出了 请问能换成其他我没有的常驻五星么 
+
+*****
+
+####  qb0079  
+##### 11214#       发表于 2024-1-25 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MD以为没有新卡池了，为了正雪老师早上起来在丑御前池丢了2发10连，结果下午开武藏池
+

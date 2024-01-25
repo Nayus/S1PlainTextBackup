@@ -10066,3 +10066,42 @@ IMG_2828.jpeg
 
 终于等到邦tv<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10020#       发表于 2024-1-25 22:37
+
+仔细看了一下，甚至不是没写完，直接说了这次活动无剧情，而不是没写完之后补上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nebulanoby  
+##### 10021#       发表于 2024-1-25 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776515&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-25 22:37</a>
+仔细看了一下，甚至不是没写完，直接说了这次活动无剧情，而不是没写完之后补上 ...</blockquote>
+说明下一个关服的就是你邦<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  凡人  
+##### 10022#       发表于 2024-1-25 22:40
+
+ 本帖最后由 凡人 于 2024-1-25 22:41 编辑 
+
+估计工艺弹的人交接给武士道之前没把剧情写完，武士道不知道怎么续，直接摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  剪切线  
+##### 10023#       发表于 2024-1-25 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776564&amp;ptid=2159415" target="_blank">凡人 发表于 2024-1-25 22:40</a>
+
+估计工艺弹的人交接给武士刀之前没把剧情写完，武士刀不知道怎么续，直接摆烂了 ...</blockquote>
+难道不是原定剧本版权在工艺蛋那里，武士道没法用，一时写不出
+

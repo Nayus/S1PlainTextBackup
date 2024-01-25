@@ -107,3 +107,16 @@
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  竜破斬  
+##### 15633#       发表于 2024-1-25 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63769573&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2024-1-25 13:16</a>
+
+奥兰多环球影城发布的ins上，出现了青沼和猫叔，主题园区快来了</blockquote>
+我在环球影城奥兰多ins上找半天没找到，最后发现实际上是宣传招工账号上的给新的epic world主题乐园的招工宣传视频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最搞笑的是放这个片段时候环球影城奥兰多的老板正在说“我们很兴奋的看到一部分的员工已经搬进了他们在epic world的新家。”看来青沼和宫本都成功应聘成为环球影城奥兰多的建筑工了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

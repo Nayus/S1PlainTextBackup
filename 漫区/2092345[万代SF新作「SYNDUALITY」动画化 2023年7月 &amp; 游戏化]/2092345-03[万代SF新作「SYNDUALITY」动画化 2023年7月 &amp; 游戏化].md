@@ -2493,3 +2493,11 @@ Noir Rain</blockquote>
 
 我要是大老板，大概会更看中大哥的身手而不是面具男的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，当然问题是时雄愿意给这个组织一直效力吗（
 
+
+*****
+
+####  洛克萨斯  
+##### 3555#       发表于 2024-1-25 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大哥的技术是不是仅次于游戏主角了，好强啊
+

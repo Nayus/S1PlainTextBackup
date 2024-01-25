@@ -10528,3 +10528,46 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 早就不续约，那早就该安排新剧本了，手游剧本能写的人才那么多，还是说不通 ...</blockquote>
 问题就是wsd现在表现出来的就是很草台啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剪切线  
+##### 10068#       发表于 2024-1-25 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777466&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-25 23:41</a>
+
+问题就是wsd现在表现出来的就是很草台啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不知道草台到什么程度
+
+*****
+
+####  狐式重型坦克  
+##### 10069#       发表于 2024-1-25 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无数历史证明，当大家都觉得不至于这么草台的时候，事实只会更草台
+
+*****
+
+####  Aendst  
+##### 10070#       发表于 2024-1-25 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再这样草台下去手游真的能活到明年吗
+
+*****
+
+####  yoyodream  
+##### 10071#       发表于 2024-1-25 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777231&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-25 23:28</a>
+太草台了，鸡以后再也不碰WSD的任何东西了，这么多年只有草台技术一直进步是吧。 ...</blockquote>
+只能说要是早个5年，在那个r组热度爆炸的年度，两年换了两声优才是真让不少人一键出脑。。。现在，现在至少声优选人靠谱了不少。
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10072#       发表于 2024-1-25 23:50
+
+靠谱不少。。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

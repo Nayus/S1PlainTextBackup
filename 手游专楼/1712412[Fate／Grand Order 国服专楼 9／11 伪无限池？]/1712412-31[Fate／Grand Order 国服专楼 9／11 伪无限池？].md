@@ -290,3 +290,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 毕竟是去年唯一出圈的卡，待遇真好
 
+
+*****
+
+####  GuDaZi  
+##### 45954#       发表于 2024-1-25 19:09
+
+炸服可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

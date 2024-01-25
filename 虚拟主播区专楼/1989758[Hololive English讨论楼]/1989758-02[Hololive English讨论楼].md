@@ -102,3 +102,12 @@ maybe 2024 will be the year of the shark after all
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shimmy1996  
+##### 1913#       发表于 2024-1-25 12:17
+
+<img src="https://p.sda1.dev/15/040a78ad6f6294dd7bef57a554c3ce60/5thame.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

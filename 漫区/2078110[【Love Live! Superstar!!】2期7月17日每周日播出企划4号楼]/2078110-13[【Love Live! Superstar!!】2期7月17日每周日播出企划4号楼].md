@@ -2537,3 +2537,20 @@ sif2就是一个笑话<img src="https://static.saraba1st.com/image/smiley/face20
 
 2月20号在上海办FMT
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19369#       发表于 2024-1-25 20:23
+
+老哥们手速挺快啊，打开楼已经发了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  csolfans  
+##### 19370#       发表于 2024-1-25 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">太尴尬了这个时间点。。。上班第一天，这个真没办法去了
+

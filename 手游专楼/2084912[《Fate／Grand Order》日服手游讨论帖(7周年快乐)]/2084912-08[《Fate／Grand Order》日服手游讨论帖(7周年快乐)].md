@@ -7486,3 +7486,14 @@ A：治不了，只能失忆排毒
 
 <img src="https://img.saraba1st.com/forum/202401/25/094956emqq2y8atmfy7q2u.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 11193#       发表于 2024-1-25 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63766509&amp;ptid=2084912" target="_blank">武男 发表于 2024-1-25 09:50</a>
+
+正雪老师应该可以参选了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">一次活动就能成为你月有史以来迫害力度最大的角色之一，活动里每段文案都充斥着恶意，用惨去形容都显得修辞水平不够
+

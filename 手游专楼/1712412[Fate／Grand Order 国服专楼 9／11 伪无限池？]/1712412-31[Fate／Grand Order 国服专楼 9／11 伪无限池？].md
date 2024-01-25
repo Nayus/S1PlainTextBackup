@@ -240,3 +240,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 是哪个天才想出来把烟雾镜大脸放开屏的，现在都上热搜了，有个不玩fgo的朋友都给我发了，艹笑死
 
+
+*****
+
+####  6030sylar  
+##### 45948#       发表于 2024-1-25 09:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">**一早上厕所看见烟雾镜差点把手机扔了
+

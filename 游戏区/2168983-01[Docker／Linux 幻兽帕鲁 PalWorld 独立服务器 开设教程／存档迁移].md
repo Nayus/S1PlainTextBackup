@@ -1384,3 +1384,63 @@ https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887
 
 设虚拟内存+定时清理内存可以有改善作用吗？
 
+
+*****
+
+####  moeblack  
+##### 91#         楼主| 发表于 2024-1-26 07:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777789&amp;ptid=2168983" target="_blank">匿名用户 发表于 2024-1-26 00:06</a>
+5个人，16G 物理内存玩一晚上有几率会爆一次。
+
+设虚拟内存+定时清理内存可以有改善作用吗？ ...</blockquote>
+可以
+比如6小时关机一次
+虚拟内存设置成能多大多大
+
+swap和虚拟内存不是一个东西，但是可以这么理解
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  sunzhenfeinan  
+##### 92#       发表于 2024-1-26 07:27
+
+steam为什么比学习版帧数低那么多？3060ti都没30帧，什么原因
+
+*****
+
+####  moeblack  
+##### 93#         楼主| 发表于 2024-1-26 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779470&amp;ptid=2168983" target="_blank">sunzhenfeinan 发表于 2024-1-26 07:27</a>
+steam为什么比学习版帧数低那么多？3060ti都没30帧，什么原因</blockquote>
+内存炸了进虚拟内存了应该
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  sunzhenfeinan  
+##### 94#       发表于 2024-1-26 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779471&amp;ptid=2168983" target="_blank">moeblack 发表于 2024-1-26 07:28</a>
+
+内存炸了进虚拟内存了应该
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+请问要怎么做？
+
+*****
+
+####  sunzhenfeinan  
+##### 95#       发表于 2024-1-26 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779471&amp;ptid=2168983" target="_blank">moeblack 发表于 2024-1-26 07:28</a>
+
+内存炸了进虚拟内存了应该
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+为什么学习版不会这样
+

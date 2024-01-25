@@ -6143,3 +6143,14 @@ ARK再来
 
 一把新武器的耐久一天就耗完了……
 
+
+*****
+
+####  gaotiya  
+##### 8081#       发表于 2024-1-25 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63769348&amp;ptid=2086637" target="_blank">holoan 发表于 2024-1-25 13:02</a>
+
+仔细看了一下EXPO的KV，非常奇怪的就是，miko作为0期生并不排在0期生的阵营单独自己跑来跟fbk排而其他4位0 ...</blockquote>
+景区特供实在是。。还有才发现这背景里还有男人，这个衬衫四角短裤真是土爆了
+

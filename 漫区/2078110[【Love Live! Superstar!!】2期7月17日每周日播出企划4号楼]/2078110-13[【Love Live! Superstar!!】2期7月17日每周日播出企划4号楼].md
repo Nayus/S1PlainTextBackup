@@ -2570,3 +2570,11 @@ sif2就是一个笑话<img src="https://static.saraba1st.com/image/smiley/face20
 
 刚上班，领导之前还跟我聊了一天我小组的请假问题<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">真不敢去
 
+
+*****
+
+####  cybernetics31  
+##### 19373#       发表于 2024-1-25 21:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">去不了啊去不了，这工作日真去不了，而且还是年后没几天的工作日，根本请不了假
+

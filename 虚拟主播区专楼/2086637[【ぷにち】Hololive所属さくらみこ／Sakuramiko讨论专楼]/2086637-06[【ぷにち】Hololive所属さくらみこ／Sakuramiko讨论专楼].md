@@ -6104,3 +6104,34 @@ ZR84PI@EDBOBBZ)}_D[GCY2.jpg
 
 这个画师的画法就是有点问题
 
+
+*****
+
+####  holoan  
+##### 8078#         楼主| 发表于 2024-1-25 21:09
+
+<img src="https://img.saraba1st.com/forum/202401/25/210539dxilb8ssihyw86h6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 21:05 上传
+
+笑死了，刚才服务器强制更新——〉游戏中程序强制登出下线——〉miko的steam主程序卡死，系统异常——〉PC重启然后突然发评论说PC坏掉了——〉现在说游戏更新非常慢，要等
+
+*****
+
+####  holoan  
+##### 8079#         楼主| 发表于 2024-1-25 21:11
+
+<img src="https://img.saraba1st.com/forum/202401/25/211120yqx8qvdw3d8cjx8j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 21:11 上传
+
+ARK再来
+

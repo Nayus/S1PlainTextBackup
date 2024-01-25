@@ -56,3 +56,16 @@ sf用追越了吗
 sf用追越了吗</blockquote>
 还真没用，你不说我都不知道R3有这个功能。。。
 
+
+*****
+
+####  iou90  
+##### 1850#       发表于 2024-1-25 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63766029&amp;ptid=2027972" target="_blank">SergeGlenn 发表于 2024-1-25 09:04</a>
+
+还真没用，你不说我都不知道R3有这个功能。。。</blockquote>
+[https://www.gtplanet.net/forum/t ... culty.418876/unread](https://www.gtplanet.net/forum/threads/super-formula-fuji-race-difficulty.418876/unread)
+
+这个帖子挺有帮助的
+

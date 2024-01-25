@@ -1364,3 +1364,13 @@ https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887
 为什么朋友发邀请码我加他的游戏玩都非常卡
 在想是不是去弄个服务器来玩了
 
+
+*****
+
+####  Gundamslave  
+##### 89#       发表于 2024-1-25 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63774075&amp;ptid=2168983" target="_blank">Mikumiku831 发表于 2024-1-25 18:41</a>
+弄了个Linux一键部署+配置修改 等研究完存档迁移再整一个</blockquote>
+可以docker吗
+

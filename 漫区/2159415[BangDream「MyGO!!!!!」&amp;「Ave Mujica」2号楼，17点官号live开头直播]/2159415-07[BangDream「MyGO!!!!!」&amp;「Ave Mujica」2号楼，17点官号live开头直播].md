@@ -10579,3 +10579,20 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 别搞这些有的没的，先把动画放出来
 
+
+*****
+
+####  PDQ4  
+##### 10074#       发表于 2024-1-26 00:04
+
+ 本帖最后由 PDQ4 于 2024-1-26 00:09 编辑 
+
+按照漏油滑坡鸡的剧本不是全寄了，绫奈原案脚本跟着手工蛋一起带着版权随风逝去。只能品鉴到WSD的草台剧本。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10075#       发表于 2024-1-26 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道有人写剧本吗，快进到皇帝的新剧本皇帝的新动画
+

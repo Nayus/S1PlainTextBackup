@@ -131,3 +131,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  冷泉夜月  
+##### 15635#       发表于 2024-1-25 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63771435&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-01-25 15:30:49</a>
+说起来万代那个大师剑发售了吗？
+前几天在推特看到一个日本人发的日亚链接，有一款图片看起来像模像样的大 ...</blockquote>没呢，详细情报都还没出，最快也要今年下半年发售吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

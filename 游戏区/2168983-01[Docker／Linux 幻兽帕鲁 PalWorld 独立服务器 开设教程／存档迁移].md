@@ -1339,3 +1339,19 @@ https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887
 
 视频教程里一切顺利，都不知道是哪里出了问题。[https://www.bilibili.com/video/BV18c411x7tq/?p=1&amp;t=19](https://www.bilibili.com/video/BV18c411x7tq/?p=1&amp;t=19)
 
+
+*****
+
+####  Mikumiku831  
+##### 87#       发表于 2024-1-25 18:41
+
+<img src="https://img.saraba1st.com/forum/202401/25/184116ctfebnbeeevtfck8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240125184055.png</strong> (38.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 18:41 上传
+
+弄了个Linux一键部署+配置修改 等研究完存档迁移再整一个 
+

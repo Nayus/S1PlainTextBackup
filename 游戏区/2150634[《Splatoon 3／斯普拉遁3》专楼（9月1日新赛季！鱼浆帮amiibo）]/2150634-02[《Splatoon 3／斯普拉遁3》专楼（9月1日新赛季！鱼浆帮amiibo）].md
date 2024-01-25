@@ -11411,3 +11411,20 @@ http://t.cn/A6jJkMBB
 
 这网络大概顶多就只能在400分拿个首胜跑的程度
 
+
+*****
+
+####  罗克萨斯  
+##### 2634#       发表于 2024-1-25 11:24
+
+关于新碎金属，看了07的视频，第一印象竟然还不错，掩体多了不少，利好加特林<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2635#       发表于 2024-1-25 11:31
+
+声纳改的有点恶心了，鱼肉碎金属看上去还行，不知道实战怎么样
+

@@ -338,3 +338,30 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 开服了
 
+
+*****
+
+####  Ousia  
+##### 45960#       发表于 2024-1-25 19:46
+
+井了，不过反正要满雨神<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  advancedigger  
+##### 45961#       发表于 2024-1-25 19:48
+
+10连+10符最后一抽出雨神，没有靓仔镜，完美，收工<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 45962#       发表于 2024-1-25 19:51
+
+终于轮到我了，第二发十连一个四星一个五星
+
+既然如此那大姐姐也可以考虑抽了
+
+如果大姐姐在400石内搞定就把兽尼禄追加到计划中
+

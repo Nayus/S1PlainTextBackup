@@ -7833,3 +7833,13 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 都是幻觉</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">献祭狗萌新 希望我下一次限定池还能出货
 
+
+*****
+
+####  都谷捻柏  
+##### 11224#       发表于 2024-1-25 19:45
+
+<blockquote>qixinno2 发表于 2024-1-25 18:30
+水武藏再给个自充多好</blockquote>
+她伤害和自充都缺，这次补了下伤害，希望以后还有机会来个自充技能本，30都行233
+

@@ -9805,3 +9805,16 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 除此之外高的就是7-8月的泳装期和年末年初的管人联动了，话说回来这两次刚好都有屁股怼镜头卡面，难道卖屁股真的有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 9996#       发表于 2024-1-25 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63771723&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-25 15:52</a>
+
+查sif流水顺便看了眼你邦，这两个月流水怪高的，管人真的这么赚吗
+
+ ...</blockquote>
+不可否認VT人氣很高，但你不能忘記年末年始本來就是手遊大賺特賺的日子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

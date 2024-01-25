@@ -7791,3 +7791,14 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水武藏再给个自充多好
 
+
+*****
+
+####  alucardcz  
+##### 11220#       发表于 2024-1-25 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63773845&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-25 18:20</a>
+
+狗萌新水武藏不都2宝了 我甚至没狂阶棋子了 没法突破</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幻觉都是幻觉
+

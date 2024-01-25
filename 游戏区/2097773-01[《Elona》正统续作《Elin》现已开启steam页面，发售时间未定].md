@@ -780,3 +780,23 @@ noa在X上表示，alpha测试今年年底开始，EA计划2024年年中。
 
 elona老玩家也可以重新体验到被恶棍吊打狗头人秒杀的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Duke72  
+##### 73#       发表于 2024-1-25 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776622&amp;ptid=2097773" target="_blank">欠损 发表于 2024-1-25 22:45</a>
+
+才发现去年底A测开了，目&amp;#x5 ...</blockquote>
+钱筹了不少，人倒是没看怎么招，按这速度猴年马月才能正式版啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blackll7  
+##### 74#       发表于 2024-1-25 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">反正猫说今年要上了
+
+—— 来自 OnePlus CPH2487, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

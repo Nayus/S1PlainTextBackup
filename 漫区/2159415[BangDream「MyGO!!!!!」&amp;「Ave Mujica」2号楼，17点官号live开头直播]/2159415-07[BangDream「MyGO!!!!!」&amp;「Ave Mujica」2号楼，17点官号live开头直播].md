@@ -10238,3 +10238,75 @@ ras真是因为存货没了被跳活动也太惨了，本来看统计ras就是�
 
 随便拍个苹果作证据说人家拿你草莓是吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yoyodream  
+##### 10038#       发表于 2024-1-25 22:53
+
+没道理的啊，哪有活动不是提前个3个月到半年准备的。请声优都要预约时间的。这当初搞切割到底是武士道切割工艺蛋，还是工艺蛋反过来预谋已久切割武士道的。
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  狐式重型坦克  
+##### 10039#       发表于 2024-1-25 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么一副要完的氛围
+
+*****
+
+####  CyDiablo  
+##### 10040#       发表于 2024-1-25 22:53
+
+就武士道和工艺蛋运营交接拖成那个德行，应得的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不知道会不会影响之后几期活动
+
+*****
+
+####  凡人  
+##### 10041#       发表于 2024-1-25 22:54
+
+要新官上任三把火吗？那先至少给老团实锤三对情侣吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 10042#       发表于 2024-1-25 22:54
+
+和动画剧本又没关系<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">手游寄就寄呗
+
+*****
+
+####  6030sylar  
+##### 10043#       发表于 2024-1-25 22:56
+
+release 绫奈系构剧本
+
+*****
+
+####  御幸一也  
+##### 10044#       发表于 2024-1-25 22:57
+
+[https://bbs.saraba1st.com/2b/for ... age=182#pid63369936](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2159415&amp;page=182#pid63369936)
+
+手工蛋負責的是什麼，我再丟一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+手工蛋影響不了動畫劇情，會參與進去也只是為了不和遊戲劇情有衝突
+
+*****
+
+####  Kasroz  
+##### 10045#       发表于 2024-1-25 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776724&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-25 22:52</a>
+找手工蛋确认那是因为手工蛋有负责人设和游戏剧情的部分，动画需要不跟这些内容冲突，手工蛋跑没跑跟动画有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">刚才我是打算回复10023楼的，没引用上，可能一些设定的著作权或者别的什么权利在工艺蛋手上，或者干脆武士道自己不想再用了，现在更换团队了这些设定不能用，这就需要更改一些动画上的设定
+
+*****
+
+####  Aendst  
+##### 10046#       发表于 2024-1-25 23:02
+
+跟毫无业内常识的人说理确实是对牛弹琴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

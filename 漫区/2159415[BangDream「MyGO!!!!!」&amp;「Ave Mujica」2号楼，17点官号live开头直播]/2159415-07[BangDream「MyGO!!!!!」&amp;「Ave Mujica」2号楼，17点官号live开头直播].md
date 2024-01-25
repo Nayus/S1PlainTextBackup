@@ -10596,3 +10596,24 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道有人写剧本吗，快进到皇帝的新剧本皇帝的新动画
 
+
+*****
+
+####  基神的强袭自由  
+##### 10076#       发表于 2024-1-26 01:14
+
+ 本帖最后由 基神的强袭自由 于 2024-1-26 01:23 编辑 
+
+花了29531日元买了一张1st站票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能给点鹅🪿鼓励一下吗
+
+—— 来自 [url=h<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ttps://s1fun.koalcat.com]S1Fun[/url]
+
+*****
+
+####  阿斯顿氢气球  
+##### 10077#       发表于 2024-1-26 01:19
+
+这就搞笑了，这么说独角兽跑路纯卡合同就乐了
+

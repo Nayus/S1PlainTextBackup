@@ -6094,3 +6094,13 @@ ZR84PI@EDBOBBZ)}_D[GCY2.jpg
 
 <img src="https://img.saraba1st.com/forum/202401/25/205020khnhkrzrmhcnnjpz.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8077#         楼主| 发表于 2024-1-25 20:54
+
+角度不错就是胸太小了
+
+这个画师的画法就是有点问题
+

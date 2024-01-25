@@ -383,3 +383,26 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 400多石+36呼符成功沉船，不过好歹雨神满宝了，也行，这下全世界就我没烟宝了
 
+
+*****
+
+####  kyonkoism  
+##### 45965#       发表于 2024-1-25 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">210石头出了贞德和周黑鸭 他妈的，狂给我出常驻五星 还好出了雨神 赶快跑
+
+*****
+
+####  atomicink  
+##### 45966#       发表于 2024-1-25 20:57
+
+巨大沉船<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 45967#       发表于 2024-1-25 20:59
+
+四十连两雨神一烟雾镜，收工
+后面再试试库库尔坎
+

@@ -2562,3 +2562,11 @@ sif2就是一个笑话<img src="https://static.saraba1st.com/image/smiley/face20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚开年忙不过来啊………………看看能不能偷半天假…………前提是要抢得到票
 
+
+*****
+
+####  csolfans  
+##### 19372#       发表于 2024-1-25 20:56
+
+刚上班，领导之前还跟我聊了一天我小组的请假问题<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">真不敢去
+

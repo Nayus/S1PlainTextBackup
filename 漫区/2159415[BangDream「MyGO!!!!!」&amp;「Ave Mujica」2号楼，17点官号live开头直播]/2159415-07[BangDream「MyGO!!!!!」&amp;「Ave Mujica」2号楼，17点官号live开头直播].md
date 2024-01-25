@@ -10434,3 +10434,47 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 —— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  御幸一也  
+##### 10060#       发表于 2024-1-25 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777104&amp;ptid=2159415" target="_blank">yoyodream 发表于 2024-1-25 23:21</a>
+
+人好歹是个公司，做企划预案有没考虑的情况是正常的，哪有直接连预案都不做的。手工蛋早就打算跑路，然后 ...</blockquote>
+是手工蛋想跑路還是武士道想踢掉手工蛋感覺還能再討論一下，
+
+而且我也是對目前這樣很難以置信的立場，因為以我手遊痴那麼久的經驗，就 現在看武士道這樣我難以置信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10061#       发表于 2024-1-25 23:27
+
+ 本帖最后由 Aendst 于 2024-1-25 23:32 编辑 
+
+游戏脚本（シナリオ）在很多家用机游戏公司是算在企划/planner/designer职里的，连细分职位都没有
+
+动画脚本很多都是脚本家联盟的会员，大白话就是正儿八经编剧，两边不是同一个行业，确切地说动画脚本地位要比游戏文案高很多
+
+也存在跨界脚本，但大部分跨界脚本都不太行，也有工作内容和流程不同难以适应的原因在
+
+当然几十年前的ADV游戏脚本有很多是本来打算出道成为小说家的人试水写的，这批人的含金量和现在的文案含金量完全不一样
+
+*****
+
+####  PDQ4  
+##### 10062#       发表于 2024-1-25 23:28
+
+太草台了，鸡以后再也不碰WSD的任何东西了，这么多年只有草台技术一直进步是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枕头46  
+##### 10063#       发表于 2024-1-25 23:33
+
+不知道这和独角兽删mygo相关推特是不是有关联，bang这剧情写到这里换剧本要怎么续<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

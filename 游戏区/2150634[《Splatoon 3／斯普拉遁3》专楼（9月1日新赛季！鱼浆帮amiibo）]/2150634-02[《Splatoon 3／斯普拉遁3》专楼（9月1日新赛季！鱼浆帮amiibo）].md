@@ -11559,3 +11559,21 @@ http://t.cn/A6jJkMBB
 
 想想重刷，熬到现在才迎来了加强。
 
+
+*****
+
+####  carroy  
+##### 2650#       发表于 2024-1-26 01:24
+
+ 本帖最后由 carroy 于 2024-1-26 01:32 编辑 
+
+太久没打喷了
+
+已经连不要信任野工队友这件事都忘记了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+&gt;这期破船武器真好 打一打
+
+&gt;技术下滑到200开始一上线连掉40分 草
+
+&gt;打了三把掉了一把：喷喷真的不好玩<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 
+

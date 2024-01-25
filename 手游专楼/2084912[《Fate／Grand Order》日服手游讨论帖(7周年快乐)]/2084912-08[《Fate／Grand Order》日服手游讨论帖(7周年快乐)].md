@@ -7625,3 +7625,20 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 仔细想想，作为反派，她 ...</blockquote>
 就问你有没有流量，黑红也是红<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11204#       发表于 2024-1-25 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63768078&amp;ptid=2084912" target="_blank">清河子 发表于 2024-1-25 11:43</a>
+
+草，我知道社长结婚了，原来蘑菇也婚了么，这下火星了
+
+有一说一他们俩怎么可能真男同，rps说着玩 ...</blockquote>
+奈须结婚这个时间上相对来说确实是个新闻（而且聊嗨了的当事人已经自肃掉了），不知道也正常
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">型月不止崆男峒，也崆女峒的，你看菌自己在忘却录音和宵待闲话里怎么写的，几原纪念那篇里怎么理解欧蒂娜、安茜和凤晓生。点6那俩本质上是参考了高老大和她收养的孤儿们，所以你嚼来嚼去还是掺杂着奇怪的BG味
+
+弟橘媛（神名中的比卖其实是一个词，就是hime=姫）的作用确实太都合了，按照FSR的角色关系kaya和她都挺工具人的
+

@@ -7497,3 +7497,18 @@ A：治不了，只能失忆排毒
 正雪老师应该可以参选了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">一次活动就能成为你月有史以来迫害力度最大的角色之一，活动里每段文案都充斥着恶意，用惨去形容都显得修辞水平不够
 
+
+*****
+
+####  UNISONIA  
+##### 11194#       发表于 2024-1-25 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63762385&amp;ptid=2084912" target="_blank">清河子 发表于 2024-1-24 20:00</a>
+
+性别不明是最后的遮羞布何时能光明正大地官宣男同何时社长和蘑菇也就公布婚讯了罢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为武内和蘑菇也只是卖腐而已（包括但是不限于型月轨迹那本书）
+
+武内的老婆业内相关人员不少都见过了，他去外地出差很喜欢带夫人一起去的；奈须在疫情年后也憋不住结婚了（之前那个播客提到了一嘴）
+
+你有看过奈须参与的几原纪念那个访谈内容就能知道他崆峒了，武内还稍微好一点
+

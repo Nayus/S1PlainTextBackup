@@ -38,3 +38,13 @@
 
 而且是全球无死角投送。
 
+
+*****
+
+####  lipo  
+##### 86#       发表于 2024-1-25 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63520837&amp;ptid=2164773" target="_blank">commcody 发表于 2024-1-3 11:49</a>
+看大规模量产下能把成本压到多少了。光看目前，猛禽2的产量是一天一台，未来有能力做到一天四台。 ...</blockquote>
+再大规模量产，边际成本也不会无限降低。
+

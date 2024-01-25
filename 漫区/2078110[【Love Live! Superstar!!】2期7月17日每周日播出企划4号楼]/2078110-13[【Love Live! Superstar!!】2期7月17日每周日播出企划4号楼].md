@@ -2522,3 +2522,18 @@ sif2就是一个笑话<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  离心  
+##### 19367#       发表于 2024-1-25 20:22
+
+2.20上海第一场fmt
+
+*****
+
+####  starring  
+##### 19368#       发表于 2024-1-25 20:22
+
+2月20号在上海办FMT
+

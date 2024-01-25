@@ -2480,3 +2480,11 @@ sif2凉了，享年不到一年
 
 太幽默了，sif的美术组是武士道还是自己的，建议改编进杂志每个月多画几张或者给每个团开漫画栏目，我想比你这不思进取的破游戏对粉丝来说有用。
 
+
+*****
+
+####  nh_zzz  
+##### 19362#       发表于 2024-1-25 15:02
+
+所以隔壁少歌手游怎么还活着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

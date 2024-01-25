@@ -11540,3 +11540,14 @@ http://t.cn/A6jJkMBB
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">中刷三代待遇还不行吗？要不换回砸地再看看？更不用说贴牌帝王乌贼在摸蛤风生水起叻
 
+
+*****
+
+####  晴岚  
+##### 2648#       发表于 2024-1-25 17:31
+
+罩子跟帝王鱿鱼在塔楼跟蛤蜊都算不错的大招了，中低段位索敌差点的玩家基本都会被刷子偷。
+真说弱还得是无印碳刷，贴牌出来之后无印我都不知道除了整活惩罚自己有什么用的必要。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

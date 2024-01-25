@@ -7686,3 +7686,18 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 不過，還是等有沒金閃閃的池開
 
+
+*****
+
+####  khxooo  
+##### 11209#       发表于 2024-1-25 17:44
+
+好像是第一个开宝具本的泳装5星从者？
+
+*****
+
+####  Jamaisvu  
+##### 11210#       发表于 2024-1-25 17:45
+
+中午打的高难本，狂武藏冲浪（用了令咒），结果下午就宝具本加特攻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

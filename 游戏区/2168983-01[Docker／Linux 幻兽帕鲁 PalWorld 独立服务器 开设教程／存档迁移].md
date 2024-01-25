@@ -1329,3 +1329,13 @@ https://tieba.baidu.com/p/8872696062?pid=149664251887&amp;cid=0#149664251887
 
 自建服务器难度有办法调整吗？difficulty那里改设置不起作用啊
 
+
+*****
+
+####  HSJ1992  
+##### 86#       发表于 2024-1-25 17:48
+
+好难啊。。。我连自己尝试新建多人存档然后迁移到当前电脑的windows服务端都一直失败，最后总是要我新建角色。
+
+视频教程里一切顺利，都不知道是哪里出了问题。[https://www.bilibili.com/video/BV18c411x7tq/?p=1&amp;t=19](https://www.bilibili.com/video/BV18c411x7tq/?p=1&amp;t=19)
+

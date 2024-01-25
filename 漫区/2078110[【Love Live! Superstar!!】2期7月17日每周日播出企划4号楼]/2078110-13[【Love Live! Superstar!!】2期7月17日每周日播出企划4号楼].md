@@ -2414,3 +2414,28 @@ pay好high</blockquote>
 
 【【AI翻唱】Romeo and Cinderella「ロミオとシンデレラ」- KALEIDOSCORE (Lyric Video)-哔哩哔哩】 https://b23.tv/BHcgf7T
 
+
+*****
+
+####  仟音一心  
+##### 19356#       发表于 2024-1-25 14:38
+
+sif2凉了，享年不到一年
+<img src="https://p.sda1.dev/15/20e0b1158d848987f37800eee3a90b75/CMP_20240125143740020.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/63d396d154f57fe854c4129997b80401/Image_1706163716245.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 19357#       发表于 2024-1-25 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/25/143940hgnayuy3gdapdn11.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 14:39 上传
+

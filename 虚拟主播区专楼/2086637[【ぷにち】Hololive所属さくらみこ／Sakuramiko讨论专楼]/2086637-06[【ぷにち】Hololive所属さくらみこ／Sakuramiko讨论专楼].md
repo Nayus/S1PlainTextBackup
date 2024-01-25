@@ -5989,3 +5989,30 @@ pal是突发raid你不防的话敌人会把你家全拆了，但是损失情况�
 
 只能说感谢地震了虽然有点缺德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8068#         楼主| 发表于 2024-1-25 11:46
+
+ 本帖最后由 holoan 于 2024-1-25 11:52 编辑 
+
+fbkmiko CP官方认定！？这有点厉害了
+
+<img src="https://img.saraba1st.com/forum/202401/25/115237c449o523xwh8xf9w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (267.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 11:52 上传
+
+*****
+
+####  holoan  
+##### 8069#         楼主| 发表于 2024-1-25 11:52
+
+官方live立绘已经特么把七字母要合唱的情报透光了
+
+连pose都是特地做成一对的
+

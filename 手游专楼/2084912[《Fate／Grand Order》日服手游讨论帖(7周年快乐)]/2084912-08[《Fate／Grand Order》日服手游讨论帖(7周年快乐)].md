@@ -7557,3 +7557,30 @@ A：治不了，只能失忆排毒
 
 昨晚天气冷没打，现在打最后几节，边打边觉得太可怜了，整个活动都在迫害正雪老师。
 
+
+*****
+
+####  清河子  
+##### 11198#       发表于 2024-1-25 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63766686&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-1-25 10:06</a>
+因为武内和蘑菇也只是卖腐而已（包括但是不限于型月轨迹那本书）
+
+武内的老婆业内相关人员不少都见 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，我知道社长结婚了，原来蘑菇也婚了么，这下火星了
+有一说一他们俩怎么可能真男同，rps说着玩玩辣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+弟橘比这个套路尤其经典，多少年前搞男同同人的作者处理不来原作老婆就对角色使用变腐女激光，多少年后还在使用如此都合主义的套路<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 11199#       发表于 2024-1-25 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63767382&amp;ptid=2084912" target="_blank">乾理央 发表于 2024-1-25 10:58</a>
+
+蘑菇不是早结婚了吗，之前看相关人士采访提到2.4时，还说蘑菇老婆正好也很沉迷印度神话（当时日本刚好有部 ...</blockquote>
+不是，19年有个采访还在提他还没结婚，如果那个内容可靠，就是疫情爆发以后的事情（后面也有提到这人戒掉通宵打游戏是21年以后，时间上挺合理的）
+
+而且社长确认有小孩，蘑菇没有。周导跟他们商量八周年PV制作细节的时间点是晚于七周年台场FES的时间的
+

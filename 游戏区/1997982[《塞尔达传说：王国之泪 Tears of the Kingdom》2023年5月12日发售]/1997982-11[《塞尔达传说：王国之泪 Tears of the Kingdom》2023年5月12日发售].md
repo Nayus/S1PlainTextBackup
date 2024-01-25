@@ -84,3 +84,26 @@
 
 奥兰多环球影城发布的ins上，出现了青沼和猫叔，主题园区快来了
 
+
+*****
+
+####  牛奶笛  
+##### 15631#       发表于 2024-1-25 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63759575&amp;ptid=1997982" target="_blank">黄泉川此方 发表于 2024-1-24 15:59</a>
+
+哎不搞DLC，更新下大师模式在吗</blockquote>
+基本只有一种可能，就是新机发售后，新作开发团队更新些内容作为新硬件的试水、磨合。
+
+否则王泪确实就这么完结了
+
+*****
+
+####  冷泉夜月  
+##### 15632#       发表于 2024-1-25 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63769573&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2024-01-25 13:16:46</a>
+奥兰多环球影城发布的ins上，出现了青沼和猫叔，主题园区快来了</blockquote>这样看后面确实是三角力量的logo唉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

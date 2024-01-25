@@ -7512,3 +7512,32 @@ A：治不了，只能失忆排毒
 
 你有看过奈须参与的几原纪念那个访谈内容就能知道他崆峒了，武内还稍微好一点
 
+
+*****
+
+####  武男  
+##### 11195#       发表于 2024-1-25 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63766527&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-1-25 09:52</a>
+
+一次活动就能成为你月有史以来迫害力度最大的角色之一，活动里每段文案都充斥着恶意，用惨去形容 ...</blockquote>
+确实如此，后续还有DLC，说不定害得再补刀
+
+-9lddQ2t-6uqiK18T3cSqn-d4.jpg
+(46.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 10:43 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/104319o3fw115n35n7az5s.jpg" referrerpolicy="no-referrer">
+
+-9lddQ2t-ijidK1kT3cSim-ds.jpg
+(59.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 10:43 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/104323fxellxe3lx8qlmgn.jpg" referrerpolicy="no-referrer">
+

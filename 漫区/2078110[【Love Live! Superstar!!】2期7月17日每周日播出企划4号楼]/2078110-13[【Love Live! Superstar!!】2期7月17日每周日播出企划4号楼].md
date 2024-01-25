@@ -2512,3 +2512,13 @@ sif2从诞生开始就是幽默的代名词。。。
 
 笑嘻。但是妹子们收入突然少了游戏这一块啊
 
+
+*****
+
+####  starring  
+##### 19366#       发表于 2024-1-25 15:42
+
+sif2就是一个笑话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

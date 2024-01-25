@@ -11481,3 +11481,11 @@ http://t.cn/A6jJkMBB
 因为秩序片确定日期了，刚刚把DLC买了，终于来到了尚兴市，发现做装备的老哥离对战大厅是不是有点远了，感 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感受城市氛围啦，这点路就不要嫌远了w
 
+
+*****
+
+####  秋月孝三  
+##### 2641#       发表于 2024-1-25 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为一代的时候这老哥就坐那里
+

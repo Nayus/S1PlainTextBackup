@@ -50,3 +50,18 @@ u149建议漫画，手游。本家得看能不能接受古早3d能的话，就2�
 
 <img src="https://img.saraba1st.com/forum/202401/25/152302wvl6286n32wllz5m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 1034#       发表于 2024-1-25 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63764951&amp;ptid=2130897" target="_blank">11116等 发表于 2024-1-25 00:37</a>
+
+我擦，这个月刚补完149入坑然后补了本家，怎么网上各种看评论感觉刚入坑这个企划就要半死不活了如果 ...</blockquote>
+确实有点晚了（
+
+灰刚收缩运营规模，本家基本上是退休倒计时，百万相比较来说营收一般，sc过了扩张期天天整烂活
+
+至于男人更是惨中惨，唯一无游戏企划，给人感觉就是不受待见，惨到甚至有声优“逼宫”运营的事情
+

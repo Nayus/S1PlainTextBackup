@@ -154,3 +154,18 @@
 所以那个OST什么时候发售</blockquote>
 同望眼欲穿OST，我可太期待PV3那首纯BGM了
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15637#       发表于 2024-1-25 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63771856&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2024-1-25 16:02</a>
+
+没呢，详细情报都还没出，最快也要今年下半年发售吧
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+哦哦好的，那我之前看到的那个就肯定是山寨了，松了一口气
+
+那款山寨大师剑定价99刀，不知道万代版的会是多少……但F4F的海利亚盾99刀，感觉万代的也不会低于这个数吧……想想要交的关税真头疼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

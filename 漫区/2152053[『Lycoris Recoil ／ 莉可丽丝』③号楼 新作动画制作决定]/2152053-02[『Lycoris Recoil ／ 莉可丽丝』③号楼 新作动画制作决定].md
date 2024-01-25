@@ -799,3 +799,49 @@
 
 顺带一提这篇提到了cst“只穿内衣睡沙发上”，跟动画第二集开头是连起来的，这样看起来note的总体时间线应该就是在动画1-3集之间喵
 
+
+*****
+
+####  Saber琪  
+##### 1556#       发表于 2024-1-25 13:03
+
+[https://twitter.com/shioneko114/status/1750230852326555991?s=19](https://twitter.com/shioneko114/status/1750230852326555991?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/25/130006z3cswiw23cc2x2ww.jpg" referrerpolicy="no-referrer">
+
+<strong>20240125_125934.jpg</strong> (345.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 13:00 上传
+
+[https://twitter.com/Doodle943545/status/1750266118361506122?s=19](https://twitter.com/Doodle943545/status/1750266118361506122?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/25/130044gn2vkfnf2nn5bufm.jpg" referrerpolicy="no-referrer">
+
+<strong>20240125_130025.jpg</strong> (99.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 13:00 上传
+
+[https://twitter.com/175banasi/status/1750163662482841841?s=19](https://twitter.com/175banasi/status/1750163662482841841?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/25/130144i97db3knnxn19cca.jpg" referrerpolicy="no-referrer">
+
+<strong>20240125_130124.jpg</strong> (227.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 13:01 上传
+
+[怀疑犬神这个是不是双开门（）](https://twitter.com/TabunnInu/status/1750228677311496288?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/25/130311llr3mztdkflr9888.jpg" referrerpolicy="no-referrer">
+
+<strong>20240125_130243.jpg</strong> (77.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 13:03 上传
+

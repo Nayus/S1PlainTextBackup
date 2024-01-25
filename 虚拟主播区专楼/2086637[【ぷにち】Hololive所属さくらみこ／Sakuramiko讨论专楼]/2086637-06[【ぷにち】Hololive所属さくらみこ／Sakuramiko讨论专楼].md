@@ -6026,3 +6026,21 @@ fbkmiko CP官方认定！？这有点厉害了
 
 可以说是相当刻意的安排了，或者说可以期待EXPO上fbkmiko组合运用有没有安排什么特别节目
 
+
+*****
+
+####  holoan  
+##### 8071#         楼主| 发表于 2024-1-25 13:06
+
+<img src="https://img.saraba1st.com/forum/202401/25/130532bs2w2ww261612dvl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 13:05 上传
+
+说起来刚才直播里第一次看视频放出来miko的live服立绘的时候我第一反应也是吐槽：miko的胸好小啊
+
+然后才有的跟星街对比之下星街的显得更大的问题
+

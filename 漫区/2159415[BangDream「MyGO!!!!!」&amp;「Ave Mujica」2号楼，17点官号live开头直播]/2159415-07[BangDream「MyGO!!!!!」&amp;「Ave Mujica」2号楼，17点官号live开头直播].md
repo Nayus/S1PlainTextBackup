@@ -10310,3 +10310,39 @@ release 绫奈系构剧本
 
 跟毫无业内常识的人说理确实是对牛弹琴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 10047#       发表于 2024-1-25 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776586&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-25 22:42</a>
+
+难道不是原定剧本版权在工艺蛋那里，武士道没法用，一时写不出</blockquote>
+你是否搞錯了什麼，武士道是IP方，IP方才是最大的，開發方是打工的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+武士道沒法用手工蛋的劇本也太搞笑了，你搞反了兄弟，誇張一點說是武士道不說OK手工蛋一個字都無法寫
+
+*****
+
+####  yoyodream  
+##### 10048#       发表于 2024-1-25 23:07
+
+哪怕手工蛋真一个字都没写，wsd起自己干的念头之后找不到团队也不至于先临时找个写手都找不到吧，这也太邪门了。
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  星空冻结  
+##### 10049#       发表于 2024-1-25 23:11
+
+目前来看最大的可能性是两边早就决定不续约了，手工蛋所有活动只做到合同结束，所以没有存货，wsd完全没想到这茬或者是交接就闹的一塌糊涂根本没有顾到这个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 10050#       发表于 2024-1-25 23:12
+
+草台班子
+

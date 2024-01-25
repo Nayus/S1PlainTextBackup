@@ -11470,3 +11470,14 @@ http://t.cn/A6jJkMBB
 
 因为秩序片确定日期了，刚刚把DLC买了，终于来到了尚兴市，发现做装备的老哥离对战大厅是不是有点远了，感觉还不如蛮颓镇实用
 
+
+*****
+
+####  星野航  
+##### 2640#       发表于 2024-1-25 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63769580&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-1-25 14:17</a>
+
+因为秩序片确定日期了，刚刚把DLC买了，终于来到了尚兴市，发现做装备的老哥离对战大厅是不是有点远了，感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感受城市氛围啦，这点路就不要嫌远了w
+

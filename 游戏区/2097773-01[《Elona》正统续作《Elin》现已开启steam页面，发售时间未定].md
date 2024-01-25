@@ -800,3 +800,18 @@ elona老玩家也可以重新体验到被恶棍吊打狗头人秒杀的感觉<im
 
 —— 来自 OnePlus CPH2487, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  欠损  
+##### 75#       发表于 2024-1-25 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776778&amp;ptid=2097773" target="_blank">Duke72 发表于 2024-1-25 22:56</a>
+
+钱筹了不少，人倒是没看怎么招，按这速度猴年马月才能正式版啊</blockquote>
+ks筹的就是个人独立开发者加上几个画师的标准，就算超额达标也远到不了开工作室的程度<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+建议不要想猫计划中的那个“正式版”，猫是准备在这一作把整个大地图全做完的，那怕不是得再做十五年。
+
+按现在的进度已经能玩了，而且更新频率不低，今年上半年目测能完成&amp;#x3B1;&amp;#x3B2;进EA，2025年内能把第一章米西利亚王国的部分做完再挖挖坑，达到类似elona1.22的进度就差不多了。
+

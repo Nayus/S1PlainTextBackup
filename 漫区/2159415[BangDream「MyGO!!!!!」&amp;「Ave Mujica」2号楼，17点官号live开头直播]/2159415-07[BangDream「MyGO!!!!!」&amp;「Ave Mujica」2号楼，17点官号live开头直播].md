@@ -10346,3 +10346,91 @@ release 绫奈系构剧本
 
 草台班子
 
+
+*****
+
+####  御幸一也  
+##### 10051#       发表于 2024-1-25 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776913&amp;ptid=2159415" target="_blank">yoyodream 发表于 2024-1-25 23:07</a>
+
+哪怕手工蛋真一个字都没写，wsd起自己干的念头之后找不到团队也不至于先临时找个写手都找不到吧，这也太邪 ...</blockquote>
+要不就是真的草台成這樣，那就要擔心遊戲今年是不是真的要倒了
+
+要不就是武士道對劇本的品質很不滿意，改了幾個月了還是怎麼改都不給過<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 10052#       发表于 2024-1-25 23:12
+
+又一副要完的样子
+
+*****
+
+####  NODY  
+##### 10053#       发表于 2024-1-25 23:14
+
+ras那边涉及主线确实需要反复调整，但情人节这种日常灌水活动应该没什么需要仔细监修的地方，所以至少情人节可能真的是没写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 10054#       发表于 2024-1-25 23:15
+
+游戏剧本和动画剧本两回事吧
+
+*****
+
+####  剪切线  
+##### 10055#       发表于 2024-1-25 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776871&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-25 23:04</a>
+
+你是否搞錯了什麼，武士道是IP方，IP方才是最大的，開發方是打工的
+
+武士道沒法用手工蛋的劇本也太 ...</blockquote>
+工艺蛋参与那么多，可说不准合同上是怎么写的
+
+*****
+
+####  剪切线  
+##### 10056#       发表于 2024-1-25 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776953&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-25 23:11</a>
+
+目前来看最大的可能性是两边早就决定不续约了，手工蛋所有活动只做到合同结束，所以没有存货，wsd完全没想 ...</blockquote>
+早就不续约，那早就该安排新剧本了，手游剧本能写的人才那么多，还是说不通
+
+*****
+
+####  PDQ4  
+##### 10057#       发表于 2024-1-25 23:20
+
+草台到文案团队都没准备吗，感觉更像是交接导致手工蛋文案组摆了，全去忙交接了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就这样现成的鸡剧本还不拿来用，宁愿出无剧情活动纯卡池捞钱，太智慧了，别真似了，最近WSD似的手游可有点多。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10058#       发表于 2024-1-25 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777047&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-25 23:17</a>
+
+工艺蛋参与那么多，可说不准合同上是怎么写的</blockquote>
+開發方本來就要幹最累的活，有什麼辦法呢IP方人就是手握IP可以躺著賺錢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yoyodream  
+##### 10059#       发表于 2024-1-25 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776962&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-25 23:12</a>
+要不就是真的草台成這樣，那就要擔心遊戲今年是不是真的要倒了
+
+要不就是武士道對劇本的品質很不滿意，改 ...</blockquote>
+人好歹是个公司，做企划预案有没考虑的情况是正常的，哪有直接连预案都不做的。手工蛋早就打算跑路，然后一直搪塞武士道那边的进度检查，合同到期了不续了了，给wsd整蒙的概率都比这个大。
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

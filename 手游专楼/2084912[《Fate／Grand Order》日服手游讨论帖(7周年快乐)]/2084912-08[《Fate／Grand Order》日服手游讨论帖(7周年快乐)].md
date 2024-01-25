@@ -7659,3 +7659,11 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 角色定位上……因为情报头子这个设定实在太过巧合了，倒是蛮明显有高老大和律香川的那种定位差别的感觉的
 
+
+*****
+
+####  alucardcz  
+##### 11206#       发表于 2024-1-25 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水武藏唐突强化。。
+

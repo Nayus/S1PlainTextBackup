@@ -9660,3 +9660,37 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 2024-1-25 14:48 上传
 
+
+*****
+
+####  ddy2811  
+##### 9984#       发表于 2024-1-25 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63770802&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-25 14:49</a>
+
+死得好快喔，這就是武士道嗎</blockquote>
+做得那么烂，也是意料之中<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 9985#       发表于 2024-1-25 14:57
+
+压力来到了.......<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 9986#       发表于 2024-1-25 14:58
+
+隔壁少歌不是wsd的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 9987#       发表于 2024-1-25 14:59
+
+我不服，为什么wsd这么做少歌还没似<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -2457,3 +2457,26 @@ sif2凉了，享年不到一年
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63770677&amp;ptid=2078110" target="_blank">Kfly 发表于 2024-1-25 14:39</a></blockquote>
 傻逼运营傻逼游戏，我刚回坑sif没多久就推出2然后停了1，问题是你2不但没什么新东西还负优化，我都不知道怎么好意思推出的
 
+
+*****
+
+####  Kfly  
+##### 19360#       发表于 2024-1-25 14:53
+
+还有个难绷的，“三个月创造难忘回忆”<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/25/145328f424r46bz5skr44n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (172.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 14:53 上传
+
+*****
+
+####  ViyViy  
+##### 19361#       发表于 2024-1-25 14:59
+
+太幽默了，sif的美术组是武士道还是自己的，建议改编进杂志每个月多画几张或者给每个团开漫画栏目，我想比你这不思进取的破游戏对粉丝来说有用。
+

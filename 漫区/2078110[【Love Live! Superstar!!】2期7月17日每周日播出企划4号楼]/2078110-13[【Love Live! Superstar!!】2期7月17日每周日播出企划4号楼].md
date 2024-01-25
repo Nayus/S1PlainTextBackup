@@ -2628,3 +2628,14 @@ QQ图片20240125213251.jpg
 
 鱼2月太忙了，周末在日本都有安排，团队的，还有个人新专活动，挑这天应该是日本工作后有几天假可以回国过年就顺便一起办了。她今年应该会多安排国内活动的，接下来还有国内的演唱会，所以量力而行就是
 
+
+*****
+
+####  DFM_otto  
+##### 19379#       发表于 2024-1-26 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776169&amp;ptid=2078110" target="_blank">优妮可 发表于 2024-01-25 22:05:19</a>
+不会这些场子过年也要放假。所以得年后才能租之类的？</blockquote>可以租，但是上海的livehouse周末很难租，一般都是提前半年
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

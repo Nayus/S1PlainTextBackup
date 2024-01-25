@@ -7541,3 +7541,11 @@ A：治不了，只能失忆排毒
 
 <img src="https://img.saraba1st.com/forum/202401/25/104323fxellxe3lx8qlmgn.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 11196#       发表于 2024-1-25 10:58
+
+蘑菇不是早结婚了吗，之前看相关人士采访提到2.4时，还说蘑菇老婆正好也很沉迷印度神话（当时日本刚好有部热门的印度电视剧）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

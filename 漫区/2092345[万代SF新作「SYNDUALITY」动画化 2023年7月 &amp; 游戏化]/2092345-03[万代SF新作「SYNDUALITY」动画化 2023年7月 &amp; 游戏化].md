@@ -2511,3 +2511,14 @@ Noir Rain</blockquote>
 大哥的技术是不是仅次于游戏主角了，好强啊</blockquote>
 确实没想到一套组合拳能把黑甲面干成这本弔样。打桩机这么强所以为啥彼方不给自己安排一个？
 
+
+*****
+
+####  洛克萨斯  
+##### 3557#       发表于 2024-1-25 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63770835&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-1-25 14:51</a>
+
+确实没想到一套组合拳能把黑甲面干成这本弔样。打桩机这么强所以为啥彼方不给自己安排一个？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩飞盘刮痧死路一条！
+

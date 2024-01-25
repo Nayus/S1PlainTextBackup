@@ -9694,3 +9694,11 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 我不服，为什么wsd这么做少歌还没似<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 9988#       发表于 2024-1-25 15:18
+
+武士道说要砍营收低的游戏还以为少歌危了，结果把sif砍了，爆笑，看来少歌成本低也是有好处的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

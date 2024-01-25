@@ -2488,3 +2488,27 @@ sif2凉了，享年不到一年
 
 所以隔壁少歌手游怎么还活着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 19363#       发表于 2024-1-25 15:17
+
+想要自己的ip不想当打工人咯。哪怕自己的ip再不赚钱好歹都是自己的不用分出去
+
+*****
+
+####  ads147147  
+##### 19364#       发表于 2024-1-25 15:21
+
+sif2从诞生开始就是幽默的代名词。。。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  lj205  
+##### 19365#       发表于 2024-1-25 15:21
+
+笑嘻。但是妹子们收入突然少了游戏这一块啊
+

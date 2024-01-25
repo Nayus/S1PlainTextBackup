@@ -11489,3 +11489,11 @@ http://t.cn/A6jJkMBB
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为一代的时候这老哥就坐那里
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2642#       发表于 2024-1-25 16:11
+
+后知后觉，中刷这代是不是挺惨的，感觉从地图到大招都在针对这个武器
+

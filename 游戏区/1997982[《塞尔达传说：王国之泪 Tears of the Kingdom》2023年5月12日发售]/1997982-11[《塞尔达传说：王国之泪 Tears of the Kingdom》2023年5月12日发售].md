@@ -143,3 +143,14 @@
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  luffy0085  
+##### 15636#       发表于 2024-1-25 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63759542&amp;ptid=1997982" target="_blank">liekong 发表于 2024-1-24 15:56</a>
+
+所以那个OST什么时候发售</blockquote>
+同望眼欲穿OST，我可太期待PV3那首纯BGM了
+

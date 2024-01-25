@@ -10015,3 +10015,54 @@ mujica要上邦tv了
 工期和交接出问题的可能性越来越大了，活动剧情没写完</blockquote>
 可以确定母鸡卡动画延期，是因为游戏实装的工期问题了吧
 
+
+*****
+
+####  CyDiablo  
+##### 10015#       发表于 2024-1-25 22:13
+
+活动剧情和卡面这种应该都是提前一段时间弄好有存货的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是程序员的问题，唉，屎山
+
+*****
+
+####  6030sylar  
+##### 10016#       发表于 2024-1-25 22:14
+
+<img src="https://img.saraba1st.com/forum/202401/25/221449h3exmtqvlxhehf3z.png" referrerpolicy="no-referrer">
+
+<strong>c498d821bd0f383380814994b2d14320.png</strong> (67.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 22:14 上传
+
+*****
+
+####  cckuku11  
+##### 10017#       发表于 2024-1-25 22:15
+
+只能希望这张卡面是工艺蛋存货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+IMG_2828.jpeg
+(159.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/221514l0uj6j1ppkkkh097.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  icoywt  
+##### 10018#       发表于 2024-1-25 22:18
+
+这卡面是邪神risa一个画师画的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下cp了
+
+*****
+
+####  笋干爆炸碱  
+##### 10019#       发表于 2024-1-25 22:18
+
+终于等到邦tv<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

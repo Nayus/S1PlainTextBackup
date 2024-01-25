@@ -232,3 +232,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 丢人丢到国际水平了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akakaka  
+##### 45947#       发表于 2024-1-25 09:09
+
+是哪个天才想出来把烟雾镜大脸放开屏的，现在都上热搜了，有个不玩fgo的朋友都给我发了，艹笑死
+

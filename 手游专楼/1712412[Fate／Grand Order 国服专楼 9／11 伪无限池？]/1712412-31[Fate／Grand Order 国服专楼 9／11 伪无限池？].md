@@ -315,3 +315,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 45957#       发表于 2024-1-25 19:25
+
+开门啊放我进去！！！！烟哥还在等我！！！
+

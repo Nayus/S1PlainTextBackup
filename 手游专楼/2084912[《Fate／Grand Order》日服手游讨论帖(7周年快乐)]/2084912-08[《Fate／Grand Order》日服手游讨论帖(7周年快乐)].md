@@ -7802,3 +7802,34 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 狗萌新水武藏不都2宝了 我甚至没狂阶棋子了 没法突破</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幻觉都是幻觉
 
+
+*****
+
+####  qixinno2  
+##### 11221#       发表于 2024-1-25 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63774186&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-25 18:53</a>
+
+幻觉都是幻觉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一堆辣鸡一宝只能仓管 完全不如随便就能二三宝的狗萌新
+
+*****
+
+####  alucardcz  
+##### 11222#       发表于 2024-1-25 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63774499&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-25 19:24</a>
+
+我一堆辣鸡一宝只能仓管 完全不如随便就能二三宝的狗萌新</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉
+
+*****
+
+####  qixinno2  
+##### 11223#       发表于 2024-1-25 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63774529&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-25 19:27</a>
+
+都是幻觉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">献祭狗萌新 希望我下一次限定池还能出货
+

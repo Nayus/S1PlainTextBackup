@@ -10105,3 +10105,136 @@ IMG_2828.jpeg
 估计工艺弹的人交接给武士刀之前没把剧情写完，武士刀不知道怎么续，直接摆烂了 ...</blockquote>
 难道不是原定剧本版权在工艺蛋那里，武士道没法用，一时写不出
 
+
+*****
+
+####  Kasroz  
+##### 10024#       发表于 2024-1-25 22:45
+
+<img src="https://img.saraba1st.com/forum/202401/25/224437s2vk5upxezy2xnrs.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1706193849911.jpg</strong> (29.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 22:44 上传
+
+这下武士道为什么要改剧本的谜团也解开了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|思路窄|
+
+查看全部评分
+
+*****
+
+####  Kasroz  
+##### 10025#       发表于 2024-1-25 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776586&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-25 22:42</a>
+
+难道不是原定剧本版权在工艺蛋那里，武士道没法用，一时写不出</blockquote>
+回复这楼
+
+*****
+
+####  ytttsuuuba  
+##### 10026#       发表于 2024-1-25 22:46
+
+改什么剧本？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10027#       发表于 2024-1-25 22:47
+
+再怎么换运营至少剧本班底得保留吧，还是说武士道真的惊世智慧觉得自己可以把剧情续下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  多莉DOLLY  
+##### 10028#       发表于 2024-1-25 22:49
+
+ras的团活也被跳了，难不成工艺蛋是真没给wsd留存货？我还以为存货起码够用到周年的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasroz  
+##### 10029#       发表于 2024-1-25 22:49
+
+扣什么鹅，本来找工艺蛋确认的剧本部分，现在换了负责人了还能留着不改？我也没说大改，小改不是默认的吗
+
+*****
+
+####  凡人  
+##### 10030#       发表于 2024-1-25 22:50
+
+原本的剧情班底本来就都是公艺蛋的人啊，现在看来，真的是得重新找人写了。
+
+*****
+
+####  枫林不见  
+##### 10031#       发表于 2024-1-25 22:50
+
+周年?<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">漏油真的不知道日本人是什么尿性吗？
+
+*****
+
+####  御幸一也  
+##### 10032#       发表于 2024-1-25 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63776216&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-25 22:10</a>
+
+工期和交接出问题的可能性越来越大了，活动剧情没写完</blockquote>
+我只能說正常不會這樣，不要以為一個遊戲活動做出來就馬上能上，還要給時間QA去測試的，
+
+所以遊戲製作才會提前半年去做活動留點緩衝，像CY這種大公司甚至是提前計劃做一年的份
+
+如果武士道真的這麼不正常，那真的今年要島了捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 10033#       发表于 2024-1-25 22:50
+
+说不定真是武士道惊天智慧，毕竟sif2开服前谁也没想到会这么快关服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10034#       发表于 2024-1-25 22:50
+
+ras真是因为存货没了被跳活动也太惨了，本来看统计ras就是所有团里面箱活最少的（不算鸡狗）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 10035#       发表于 2024-1-25 22:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也太草台了吧武士道
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kasroz  
+##### 10036#       发表于 2024-1-25 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">工艺蛋才跑路多久，哪会没存货，明显是武士道想推倒重来了
+
+*****
+
+####  Aendst  
+##### 10037#       发表于 2024-1-25 22:52
+
+找手工蛋确认那是因为手工蛋有负责人设和游戏剧情的部分，动画需要不跟这些内容冲突，跟有没有改剧本的关系约等于人和胎盘的关系
+
+随便拍个苹果作证据说人家拿你草莓是吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

@@ -2501,3 +2501,13 @@ Noir Rain</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大哥的技术是不是仅次于游戏主角了，好强啊
 
+
+*****
+
+####  RE㐅ia  
+##### 3556#       发表于 2024-1-25 14:51
+
+<blockquote>洛克萨斯 发表于 2024-1-25 13:49
+大哥的技术是不是仅次于游戏主角了，好强啊</blockquote>
+确实没想到一套组合拳能把黑甲面干成这本弔样。打桩机这么强所以为啥彼方不给自己安排一个？
+

@@ -2439,3 +2439,21 @@ sif2凉了，享年不到一年
 
 2024-1-25 14:39 上传
 
+
+*****
+
+####  Unlight  
+##### 19358#       发表于 2024-1-25 14:48
+
+人生自古谁无死！不幸的，SIF2即将停服，因此无法与您继续互动，让我们永远的缅怀它，，，
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  言可  
+##### 19359#       发表于 2024-1-25 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63770677&amp;ptid=2078110" target="_blank">Kfly 发表于 2024-1-25 14:39</a></blockquote>
+傻逼运营傻逼游戏，我刚回坑sif没多久就推出2然后停了1，问题是你2不但没什么新东西还负优化，我都不知道怎么好意思推出的
+

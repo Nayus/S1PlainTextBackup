@@ -9644,3 +9644,19 @@ live上动作激烈，这种估计很容易脱落，而且现场不太会注意�
 
 <blockquote>小白一到月之森，所有上学的人便都看着她笑，有的叫道，“小白，你脸上又添上新香蕉皮了！”她不回答，对筑紫说，“炒两盘菌子，要一碟素拍黄瓜。”便排出九文大钱。她们又故意的高声嚷道，“你一定又翻垃圾桶了！”小白睁大眼睛说，“你怎么这样凭空污人清白……”“什么清白？我前天亲眼见你丢了黑色的本，到处翻。”小白便涨红了脸，额上的青筋条条绽出，争辩道，“丢本不能算丢……丢本！……中二人的事，能算丢么？”接连便是难懂的话，什么“菌子固琼”，什么“者乎”之类，引得众人都哄笑起来：月之森内外充满了快活的空气。</blockquote>
 
+
+*****
+
+####  御幸一也  
+##### 9983#       发表于 2024-1-25 14:49
+
+死得好快喔，這就是武士道嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/25/144838q04k0xq8f0tpfqj4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1582.jpeg</strong> (297.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 14:48 上传
+

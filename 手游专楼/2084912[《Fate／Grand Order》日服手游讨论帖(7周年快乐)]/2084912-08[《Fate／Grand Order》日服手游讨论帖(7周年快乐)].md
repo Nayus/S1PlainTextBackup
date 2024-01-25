@@ -7776,3 +7776,18 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 欧 羡慕 为什么萌新就没欧过</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗萌新水武藏不都2宝了 我甚至没狂阶棋子了 没法突破
 
+
+*****
+
+####  保罗赫伯特  
+##### 11218#       发表于 2024-1-25 18:25
+
+武藏也可以是刑海位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 11219#       发表于 2024-1-25 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水武藏再给个自充多好
+

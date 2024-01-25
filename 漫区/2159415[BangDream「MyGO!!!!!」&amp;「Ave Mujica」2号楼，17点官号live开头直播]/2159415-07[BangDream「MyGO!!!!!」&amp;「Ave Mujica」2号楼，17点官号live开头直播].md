@@ -10478,3 +10478,53 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  剪切线  
+##### 10064#       发表于 2024-1-25 23:34
+
+ 本帖最后由 剪切线 于 2024-1-25 23:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777096&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-25 23:20</a>
+
+開發方本來就要幹最累的活，有什麼辦法呢IP方人就是手握IP可以躺著賺錢 ...</blockquote>
+工艺蛋要是只赚打工费，武士道也不会想着踢开工艺蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10065#       发表于 2024-1-25 23:36
+
+ 本帖最后由 御幸一也 于 2024-1-25 23:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777330&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-25 23:34</a>
+
+工艺蛋要是获益少，武士道也不会想着踢开工艺蛋了</blockquote>
+我覺得還是別混為一談，分錢是一回事，版權是一回事，
+
+怎麼可能手遊的這種IP方會放出手上的版權，手工蛋就是在你邦裡拉了一坨屎，那坨屎也是武士道的
+
+所以我覺得，不存在武士道用不了手工蛋寫的劇本這回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不然的話又要懷疑武士道的草台程度了捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  剪切线  
+##### 10066#       发表于 2024-1-25 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777355&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-25 23:36</a>
+
+我覺得還是別混為一談，分錢是一回事，版權是一回事，
+
+怎麼可能手遊的這種IP方會放出手上的版權，手工蛋就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能世界上只有草台和更草台的区别
+
+*****
+
+####  星空冻结  
+##### 10067#       发表于 2024-1-25 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777063&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-25 23:18</a>
+早就不续约，那早就该安排新剧本了，手游剧本能写的人才那么多，还是说不通 ...</blockquote>
+问题就是wsd现在表现出来的就是很草台啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

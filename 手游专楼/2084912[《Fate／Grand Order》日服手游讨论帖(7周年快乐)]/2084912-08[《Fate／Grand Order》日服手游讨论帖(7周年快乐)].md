@@ -7862,3 +7862,24 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 因为没有两个满破礼装，用普通的蓝放宝威50NP礼装给花嫁试了一下，剩几万需要补刀，没满破的礼装倒是伤害溢出了...
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">反正我打本就是图个方便，太麻烦的话反倒影响刷图动力...愿意换人的话五加成还是更好的。
 
+
+*****
+
+####  シャル  
+##### 11226#       发表于 2024-1-25 23:34
+
+ 本帖最后由 シャル 于 2024-1-25 23:36 编辑 
+
+英灵化后伊织连自己本质起源和人生目标都忘了
+
+所以是空壳嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+屏幕截图 2024-01-25 210232.png
+(44.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-25 23:34 上传
+
+<img src="https://img.saraba1st.com/forum/202401/25/233446t6n86196bc8lcloe.png" referrerpolicy="no-referrer">
+

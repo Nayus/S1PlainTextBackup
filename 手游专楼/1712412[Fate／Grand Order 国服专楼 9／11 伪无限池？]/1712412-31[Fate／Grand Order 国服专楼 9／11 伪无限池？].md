@@ -298,3 +298,20 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 炸服可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  待宵  
+##### 45955#       发表于 2024-1-25 19:13
+
+强行复刻
+
+*****
+
+####  JackTitor  
+##### 45956#       发表于 2024-1-25 19:14
+
+绝赞炸服，话说有泥潭q群号吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

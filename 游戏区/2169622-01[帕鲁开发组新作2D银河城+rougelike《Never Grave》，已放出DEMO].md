@@ -664,3 +664,13 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 没人说这公司但凡出个游戏都挂个EA阶段的名头吗? 只要不是发售即成品，要喷都有点难度，"毕竟是EA阶 ...</blockquote>
 估计下一款游戏还是EA且缝合怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dumplingpro  
+##### 67#         楼主| 发表于 2024-1-26 19:09
+
+<blockquote>tureleona 发表于 2024-1-26 18:52
+估计下一款游戏还是EA且缝合怪</blockquote>
+韧 天 堂 
+

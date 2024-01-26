@@ -1308,3 +1308,28 @@ tkn脸上还有道黑印，草台！
 [https://twitter.com/ama_ekaku/status/1750140127194800618](https://twitter.com/ama_ekaku/status/1750140127194800618)
 <img src="https://p.sda1.dev/15/ea5f4ebe6ae02c17c127fdbeb20eec80/20240126_223614.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1578#       发表于 2024-1-26 23:57
+
+[https://twitter.com/yohukasi23/status/1750880853268558189?s=19](https://twitter.com/yohukasi23/status/1750880853268558189?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/26/235750l8q3q7okkdfwsw3w.jpg" referrerpolicy="no-referrer">
+
+<strong>20240126_235608.jpg</strong> (60.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:57 上传
+
+*****
+
+####  Saber琪  
+##### 1579#       发表于 2024-1-26 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63789423&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-1-26 22:11</a>
+传上来了</blockquote>
+看了眼网页好像看不见<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

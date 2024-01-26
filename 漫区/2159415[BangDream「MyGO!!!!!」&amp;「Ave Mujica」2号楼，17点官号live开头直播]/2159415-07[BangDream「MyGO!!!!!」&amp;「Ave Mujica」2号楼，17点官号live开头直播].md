@@ -11273,3 +11273,11 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 [https://twitter.com/rousei13/status/1750881878138319140/photo/1](https://twitter.com/rousei13/status/1750881878138319140/photo/1)
 
+
+*****
+
+####  NODY  
+##### 10133#       发表于 2024-1-26 23:54
+
+没关系，你邦并没有火到跨团摩擦会有大影响的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

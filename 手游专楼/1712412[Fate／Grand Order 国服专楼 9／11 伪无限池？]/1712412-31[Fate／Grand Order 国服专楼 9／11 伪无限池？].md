@@ -555,3 +555,13 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 人形ORT战可能是超级班杨最有用的一集
 
+
+*****
+
+####  电波系腑海林  
+##### 45985#       发表于 2024-1-26 18:14
+
+今年活动摆烂卡池也摆烂了，抽完烟雾镜突然连泳装池也没有那么想抽了，希望泳九能出雨神的泳装，不然这四星常驻要升到120得猴年马月<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

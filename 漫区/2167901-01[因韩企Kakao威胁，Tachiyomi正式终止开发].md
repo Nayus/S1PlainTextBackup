@@ -1361,3 +1361,20 @@ mihon连动不了bangumi了点进去报错是啥情况？
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Junakr  
+##### 112#       发表于 2024-1-26 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63786950&amp;ptid=2167901" target="_blank">亚瑟邓特 发表于 2024-1-26 18:50</a>
+
+mihon连动不了bangumi了点进去报错是啥情况？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版 v ...</blockquote>
+第一版批量替换了 mihon 关键字，把 BGM Tracker 的回调地址也改了。
+
+因为这是社区开发的功能，应该没有通知到原 OAuth 应用创建者更新对应的回调。
+
+最新代码已经更新了 OAuth 应用客户端，等新版发布吧。
+

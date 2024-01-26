@@ -1513,3 +1513,13 @@ b站可以投稿了？
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  往世雷书  
+##### 16209#       发表于 2024-1-26 19:46
+
+如果一开始没玩，就应该一直不玩，金身不破
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

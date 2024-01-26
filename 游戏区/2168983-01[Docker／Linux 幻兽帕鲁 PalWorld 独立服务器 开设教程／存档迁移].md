@@ -1607,3 +1607,11 @@ openwrt后台开转发，然后先用telnet手机网络看能否通端口
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  蒜苗  
+##### 108#       发表于 2024-1-27 01:40
+
+今天出了非官方的服务端优化版，楼主有尝试吗
+

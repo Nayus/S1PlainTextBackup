@@ -29569,3 +29569,68 @@ w/Idk-DPO:使用偏好感知优化(如DPO)可以减轻模型的过度保守，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1222#       发表于 2024-1-26 21:18
+
+ 本帖最后由 Machinery 于 2024-1-26 21:20 编辑 
+
+MaLA-500
+
+大型语言模型的大规模语言适配
+
+hugface权重下载:https://huggingface.co/MaLA-LM/mala-500
+
+大型语言模型在自然语言处理方面取得了领先地位，然而，它们主要被设计用于英语或一组有限的语言，这导致了对于资源稀缺的语言而言，它们的效果存在较大的差距
+
+为了弥补这一差距，本文推出了MaLA-500，一个新颖的大型语言模型，旨在覆盖广泛的534种语言，为了训练MaLA-500，采用了词汇扩展和在LLaMA上使用Glot500-c进行持续预训练的方法
+
+在SIB-200上的实验表明，MaLA-500取得了SOTA上下文学习结果
+
+<img src="https://img.saraba1st.com/forum/202401/26/211843km8k8moq3iq14s33.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-210309.jpg</strong> (64.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 21:18 上传
+
+使用不同LLM在SIB-200上的3-shot上下文学习宏平均(macro-average)准确率(%)的结果，mGPT没有约70亿参数的模型版本，因此选择了参数130亿的更大模型
+
+<img src="https://img.saraba1st.com/forum/202401/26/211848b2ttl9k7vv57lzok.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-210333.jpg</strong> (70.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 21:18 上传
+
+在SIB-200上的3-shot上下文学习详细结果
+X轴:不同准确率范围内的语言数量(%)
+
+<img src="https://img.saraba1st.com/forum/202401/26/211852lir0paqo5y5siqrc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-210347.jpg</strong> (69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 21:18 上传
+
+MaLA-500在SIB-200上不同样本数量的上下文学习宏平均准确率(%)
+
+<img src="https://img.saraba1st.com/forum/202401/26/211856hpba7ojxwhmohav1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-210400.jpg</strong> (92.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 21:18 上传
+
+使用MaLA-500在SIB-200上进行上下文学习的详细结果
+X轴:不同准确率范围内的语言数量(%)
+Y轴:样本数量
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

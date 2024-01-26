@@ -2570,3 +2570,30 @@ Noir Rain</blockquote>
 《奇异贤伴 爱达之歌》个人化宣传视频
 [https://youtu.be/icj1w_s8Mw0](https://youtu.be/icj1w_s8Mw0)
 
+
+*****
+
+####  Piano-Forest  
+##### 3563#         楼主| 发表于 2024-1-26 21:16
+
+第16話「Noir Rain」
+
+[https://youtu.be/J2sgUdpwpmU](https://youtu.be/J2sgUdpwpmU)
+
+ミステルの自己修復が完了すると人格が消えてしまうかもしれないことを告げられるノワール。しかし、カナタのためには自分ではなくミステルが寄り添うことが正しいと、ノワールはそれを受け入れる。カナタの知らないところですれ違う思い―
+
+そんなノワールは最後にカナタのために料理をすることを思いつく。
+<img src="https://p.sda1.dev/15/e141f9954814a3f31246c3ab28a26df4/8515a7e3da85222d1f80f07f6df5f19a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/d56dea3183ba0f00b03b2ae54e8f886a/e856f045a104c1afbadb80233ed7b118.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/3b3333686792613af33e00e813f4b93f/714da3ce421a2c63656834882d9dc076.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4e95a88be735a19a88efb2cfc4e63a8d/f46851883906ace24e6d79f5a0803b34.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/d5eafde0d8023e545ff31c8b51157dc9/36e71c4895b0d6a9cd9d8be2a086c39c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/7e532b42a80362c9ff763d2bb8b79005/d77f350b2f62583f9d0929ca79082a05.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  竹様  
+##### 3564#       发表于 2024-1-26 21:20
+
+还以为穆顿只是个普通贤士，结果你丫是PVP专精么，直接一招把对面零式干断联了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

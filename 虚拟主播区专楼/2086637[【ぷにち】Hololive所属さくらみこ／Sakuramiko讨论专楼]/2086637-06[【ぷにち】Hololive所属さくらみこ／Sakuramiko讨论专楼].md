@@ -6196,3 +6196,21 @@ kanata的那个合作翻唱曲原来是你啊，完全看不出来
 
 如果说她主动去协助夸拿下传说级那还可以
 
+
+*****
+
+####  holoan  
+##### 8085#         楼主| 发表于 2024-1-26 17:43
+
+<img src="https://img.saraba1st.com/forum/202401/26/174334vzy2023a613s3osp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 17:43 上传
+
+做梦
+
+先看看现在跟夸的差距再说
+

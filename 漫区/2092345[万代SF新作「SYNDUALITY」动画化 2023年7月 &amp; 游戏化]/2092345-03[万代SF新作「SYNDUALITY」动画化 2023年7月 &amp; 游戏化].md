@@ -2532,3 +2532,20 @@ Noir Rain</blockquote>
 
 诺娃和米斯缇的对话来了，双人格之间的交流<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚瑟邓特  
+##### 3559#       发表于 2024-1-26 17:46
+
+第二季没小剧场吗？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cauchua2  
+##### 3560#       发表于 2024-1-26 17:50
+
+现在字幕组熟肉还是只有到13话吗
+

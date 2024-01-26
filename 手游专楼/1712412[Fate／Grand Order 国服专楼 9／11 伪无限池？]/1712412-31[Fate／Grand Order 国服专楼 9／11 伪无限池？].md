@@ -481,3 +481,29 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 虽然我一直不信，友情池的峰值抽卡法让我60石尼托和烟雾镜各+1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Huanghaozheng  
+##### 45976#       发表于 2024-1-26 11:15
+
+主线不是药系天王出击？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我灵脉石砸都砸死你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天人五衰  
+##### 45977#       发表于 2024-1-26 11:18
+
+<img src="https://p.sda1.dev/15/52241fdeeb7709e2fa5b16dabc3994af/CMP_20240126111806969.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  超电波系MK2  
+##### 45978#       发表于 2024-1-26 11:21
+
+常驻四星想要120真的好难啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

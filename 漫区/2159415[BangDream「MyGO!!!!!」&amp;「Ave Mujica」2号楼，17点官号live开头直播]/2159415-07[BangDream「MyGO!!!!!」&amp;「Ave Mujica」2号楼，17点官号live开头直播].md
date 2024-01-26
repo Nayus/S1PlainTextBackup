@@ -11203,3 +11203,49 @@ A子最近变得经常做梦，不仅是晚上，有时白天梦也忽然朝她�
 
 S子最近经常做梦，梦中她会占据另一个女孩的身体，她看到那个女孩的意识惊慌失措，瑟缩在角落里，她觉得很抱歉。她看到喜欢的女孩朝自己的身体打招呼，无法回应，不知道怎么回应。对面的孩子怯生生地捏住自己的衣角呼唤自己身体的名字，S子忽然变得讨厌这具身体。她站在镜子面前，盯着那副沉默的灰色瞳孔，镜子里的她朝自己伸出手，“一起迷失吧”
 
+
+*****
+
+####  星空冻结  
+##### 10127#       发表于 2024-1-26 22:53
+
+wsd并两个团的号不如把所有团（管人团除外）都并一块得了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 10128#       发表于 2024-1-26 22:53
+
+<img src="https://img.saraba1st.com/forum/202401/26/225337ydxtfj8j1q77qhfp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>59cf0604421180667a5044e7063f61d2.jpeg</strong> (139.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/225402wrtn4cay8dr4yjn7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>b6c349490657fb7549265c8283209e54.jpeg</strong> (150.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:54 上传
+
+*****
+
+####  Toki_Ai  
+##### 10129#       发表于 2024-1-26 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我更想看老东西四合一，或者2x2
+
+*****
+
+####  御幸一也  
+##### 10130#       发表于 2024-1-26 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63789909&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-26 22:53</a>
+
+wsd并两个团的号不如把所有团（管人团除外）都并一块得了</blockquote>
+本來就是，現在就逮著搞噁心ave粉的操作是什麼事，何況go粉不爽的也有呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -29748,3 +29748,155 @@ AR(自回归)建模和NAR(非自回归)建模的整合生成、语义解耦生�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1224#       发表于 2024-1-26 22:57
+
+InstructDoc
+
+通过指令进行视觉文档理解的零样本泛化数据集
+
+github项目代码仓库:https://github.com/nttmdlab-nlp/InstructDoc
+
+本文研究了如何通过人工编写的指令完成各种视觉文档理解(VDU/visual document understanding)任务，例如问答和信息提取等
+
+为此，本文提出了InstructDoc，这是第一个包含30个公开可用的VDU数据集的大规模集合，每个数据集都采用统一的格式包含多样化的指令，涵盖了12种不同的任务，包括各种开放的文档类型/格式
+
+此外，为了提高VDU任务的泛化性能，还设计了一种新的基于指令的文档阅读和理解模型，称为InstructDr，它通过可训练的桥接模块(trainable bridging module)连接文档图像、图像编码器和大型语言模型
+
+实验证明，InstructDr能够通过给定的指令有效地适应新的VDU数据集、任务和领域，并且在没有特定训练的情况下优于现有的多模态LLMs和ChatGPT
+
+<img src="https://img.saraba1st.com/forum/202401/26/225555ud1gxgdx5kgh7ggw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225150__01.jpg</strong> (360.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:55 上传
+
+InstructDoc数据集的示例，输入定义了意图(蓝色)、查询和选项(绿色)和答案风格(红色)
+
+查询和选项以及输出来自原始数据集，只对意图和答案风格组成的或仅意图组成的指令进行了标注
+
+<img src="https://img.saraba1st.com/forum/202401/26/225601s9nnqpdr6up55nnd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225158__01.jpg</strong> (363.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+InstructDoc使用的数据集，涵盖了各种VDU任务和文档类型和格式
+
+<img src="https://img.saraba1st.com/forum/202401/26/225608hmais7kna7e3ewx3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225207__01.jpg</strong> (316 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+InstructDr模型，在训练过程中，只更新Document-former的参数和投影FFN层的参数
+
+<img src="https://img.saraba1st.com/forum/202401/26/225614tnnnf5kgrj5qj67k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225213__01.jpg</strong> (154.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+InstructDoc和其他VDU指令调整数据集的统计数据，排除了DocOwl中除了VDU任务之外的数据，IT代表指令模板(instruction templates)
+
+<img src="https://img.saraba1st.com/forum/202401/26/225622bfmzmmc6r6tcom66.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225223__01.jpg</strong> (423.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+InstructDr和MLLMs在VDU任务上的零样本性能
+“T/L/V”表示文档的“text/layout/visual”模态
+#TuP/#ToP表示调整/总参数的数量
+最高的零样本性能以粗体标记
+†表示原论文中报告的监督性能，因为它并不公开可用
+IDoc表示InstructDoc
+
+<img src="https://img.saraba1st.com/forum/202401/26/225631l3gkxofxx3rz8bf8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225230__01.jpg</strong> (248.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+InstructDr和监督SOTA模型以及强大的基于文本的LLMs在VDU任务上的零样本性能
+
+*表示使用不同的拆分进行评估，因为它们在排行榜上进行评估，无法使用F1进行评估
+
+<img src="https://img.saraba1st.com/forum/202401/26/225636gr1lbz1cgnykiizn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225242__01.jpg</strong> (158.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+架构和指令的消融实验，报告了可以进行消融的得分
+
+<img src="https://img.saraba1st.com/forum/202401/26/225640fohonvvacknvcqq9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225249__01.jpg</strong> (86.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+在DUDE上五个不同指令的零样本性能对比
+w/o Multiple instructions表示本文模型在每个数据集上使用单指令进行训练
+
+<img src="https://img.saraba1st.com/forum/202401/26/225647o55up39gg93ujjkr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225249__02.jpg</strong> (90.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+模型性能随训练中使用的任务聚类数量变化，(·)表示任务数量
+
+<img src="https://img.saraba1st.com/forum/202401/26/225653hlxo7oh16wfh6k3c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225306__01.jpg</strong> (488.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+定性示例，输出是正确/充分(绿色)和不正确/不充分(红色)的答案，(...)表示省略号
+
+<img src="https://img.saraba1st.com/forum/202401/26/225658djf1ttll83iakpek.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225311__01.jpg</strong> (84.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:56 上传
+
+在测试集上进行的held-in(VisualMRC)和held-out(DUDE/SlideVQA)任务的微调性能
+
+<img src="https://img.saraba1st.com/forum/202401/26/225703c6nptptn6w8ptazz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-225311__02.jpg</strong> (91.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:57 上传
+
+场景文本VQA任务的零样本性能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

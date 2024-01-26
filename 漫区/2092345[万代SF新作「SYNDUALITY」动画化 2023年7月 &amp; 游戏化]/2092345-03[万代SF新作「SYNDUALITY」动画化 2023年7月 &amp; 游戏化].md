@@ -2607,3 +2607,26 @@ Noir Rain</blockquote>
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  aptx8285144  
+##### 3566#       发表于 2024-1-26 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63789702&amp;ptid=2092345" target="_blank">亚瑟邓特 发表于 2024-1-26 22:34</a>
+
+第二集出了
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+感谢奶茶屋没有忘记sy<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3567#       发表于 2024-1-26 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63786295&amp;ptid=2092345" target="_blank">cauchua2 发表于 2024-1-26 17:50</a>
+
+现在字幕组熟肉还是只有到13话吗</blockquote>
+已经更新到14话了
+

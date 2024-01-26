@@ -1296,3 +1296,15 @@ tkn脸上还有道黑印，草台！
 <img src="https://p.sda1.dev/15/76fc9c2b43d094fddbb2879775b29c09/CMP_20240126221054249.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/1d8304c10e0d1a70471b1943fef18b2d/CMP_20240126221111999.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1577#         楼主| 发表于 2024-1-26 22:59
+
+[https://twitter.com/NiiiSn/status/1750827172254941478](https://twitter.com/NiiiSn/status/1750827172254941478)
+<img src="https://p.sda1.dev/15/60e7fe17f116513fb3a27a7af810dd13/20240126_223447.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/ama_ekaku/status/1750140127194800618](https://twitter.com/ama_ekaku/status/1750140127194800618)
+<img src="https://p.sda1.dev/15/ea5f4ebe6ae02c17c127fdbeb20eec80/20240126_223614.jpg" referrerpolicy="no-referrer">
+

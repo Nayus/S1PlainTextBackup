@@ -10727,3 +10727,17 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 一月都快过了，母鸡卡怎么还没开播<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 10086#       发表于 2024-1-26 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63782478&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-26 12:05</a>
+根本P發話了，以後不會再有這樣的沒有劇情的活動 
+
+並且會努力做好遊戲哦</blockquote>
+把服务器关了就不会再有无剧情活动力（智将）<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

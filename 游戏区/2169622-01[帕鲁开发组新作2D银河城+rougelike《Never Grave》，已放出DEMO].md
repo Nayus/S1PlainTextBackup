@@ -702,3 +702,14 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 
 太中规中矩了，也许ea版藏着什么逆天玩意也说不准
 
+
+*****
+
+####  dumplingpro  
+##### 71#         楼主| 发表于 2024-1-26 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63788915&amp;ptid=2169622" target="_blank">ddwhzh 发表于 2024-1-26 21:22</a>
+
+太中规中矩了，也许ea版藏着什么逆天玩意也说不准</blockquote>
+爆款没那么容易出，中规中矩、完成度不错，在独立游戏里面就属于好的了。
+

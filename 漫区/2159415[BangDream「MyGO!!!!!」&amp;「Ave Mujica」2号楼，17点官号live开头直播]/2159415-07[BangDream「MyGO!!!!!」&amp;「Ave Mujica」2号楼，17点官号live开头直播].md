@@ -11153,3 +11153,11 @@ A-Musik『反日ラップ』 - 1981年に結成されたA-Musik[19]による即�
 
 过去（指没有舰）的我已经死了
 
+
+*****
+
+####  Mr.Giraffe  
+##### 10121#       发表于 2024-1-26 21:41
+
+那……头像的事怎么算<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

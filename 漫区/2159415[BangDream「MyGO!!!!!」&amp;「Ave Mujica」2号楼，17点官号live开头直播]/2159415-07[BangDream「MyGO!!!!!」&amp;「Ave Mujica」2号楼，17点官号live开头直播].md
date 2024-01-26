@@ -10783,3 +10783,36 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 独角兽这意思是第二季真有百合婚？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 10091#       发表于 2024-1-26 15:35
+
+绫奈不开心的原因还是女儿被绑架了吧（
+
+*****
+
+####  屑猫猫  
+##### 10092#       发表于 2024-1-26 15:36
+
+鸡真要结婚么，这可比ras ppp和狗都要更进一步了啊。这好好好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Nomind96  
+##### 10093#       发表于 2024-1-26 15:37
+
+百合婚也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 10094#       发表于 2024-1-26 15:39
+
+就隔壁d5j那樣，只能說wsd可以燒紙了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

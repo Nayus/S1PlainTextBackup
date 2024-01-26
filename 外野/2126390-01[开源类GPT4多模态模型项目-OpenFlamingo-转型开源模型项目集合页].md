@@ -29900,3 +29900,174 @@ w/o Multiple instructions表示本文模型在每个数据集上使用单指令�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1225#       发表于 2024-1-27 01:08
+
+ConTextual
+
+评估大型多模态模型上下文相关的富文本(Context-Sensitive Text-Rich )视觉推理
+
+项目主页:https://con-textual.github.io/
+
+github项目代码仓库:https://github.com/rohan598/ConTextual
+
+hugface数据集下载:https://huggingface.co/datasets/ucla-contextual/contextual_all
+
+评估排行榜:https://con-textual.github.io/#leaderboard
+
+最近的人工智能发展引领了大型多模态模型(LMMs)的进步，这些模型能够处理涉及文本和图像内容的复杂任务(例如在公共场所中导航地图)
+
+本文介绍了ConTextual，一个新颖的基准测试，其中包含专门设计用于评估LMMs在执行上下文相关的富文本视觉推理能力方面的指令，ConTextual强调多样化的现实场景(例如，读时钟、导航、购物等)，要求更深入地理解文本和视觉元素之间的交互
+
+研究发现，最佳的LMM，即GPT-4V(ision)，与人类评估的人类能力相比存在30.8%的性能差距，这表明在上下文相关的富文本视觉推理方面还有很大的改进空间，值得注意的是，虽然GPT-4V在抽象类别(如表情包和引用解释)方面表现出色，但其整体性能仍落后于人类，除了人类评估，还使用了GPT-4进行了自动评估指标，发现了类似的性能差距趋势，通过对不同的视觉环境进行细致的评估，并提供了定性分析，为LMM设计的未来发展提供了一个强大的框架
+
+<img src="https://img.saraba1st.com/forum/202401/27/010620wwpabhzkwdhhww6h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010036__01.jpg</strong> (284.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:06 上传
+
+GPT-4V、Gemini-Pro-Vision、ShareGPT-4V-7B和人类在CONTEXTUAL数据集上的表现
+
+(a)人类评估和基于GPT-4的自动评估的响应正确性
+(b)使用基于GPT-4的评估在视觉上下文变化中的细粒度性能
+
+<img src="https://img.saraba1st.com/forum/202401/27/010628cz69oozo0k9rjr22.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010054__01.jpg</strong> (400.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:06 上传
+
+现有数据集(如ESTVQA)和CONTEXTUAL数据集在富文本视觉推理方面的特性对比
+
+(a)之前的数据集主要测试LMM的阅读能力，因此，它们的问题可以通过对准确的OCR检测结果进行纯文本推理来解决，然而，本文希望评估现代模型在更具挑战性的场景中的能力，因为它们已经展现出了增强的视觉感知和推理能力
+(b)CONTEXTUAL的实例构造成可以测试模型捕捉图像中文本和视觉内容交互的上下文能力，在这里，仅仅依靠检测到的OCR进行纯文本推理是不够的
+
+<img src="https://img.saraba1st.com/forum/202401/27/010649mej3brra4y4ienb4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010115__01.jpg</strong> (231.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:06 上传
+
+用于评估大型多模态模型在富文本视觉推理方面的相关工作的对比，将上下文相关缩写为Consens.，生成缩写为Gen
+
+<img src="https://img.saraba1st.com/forum/202401/27/010713yjous89o8j3c8l9o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010124__01.jpg</strong> (542.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:07 上传
+
+CONTEXTUAL中的8种视觉上下文示例各取其一，大型多模态模型应该能够遵循
+
+<img src="https://img.saraba1st.com/forum/202401/27/010727p3hhyq9z9qhnicv1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010131__01.jpg</strong> (233.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:07 上传
+
+数据收集工作流程:
+(1)短列表图像，利用手动和自动方法从源数据集中筛选出要进行标注的图像
+(2)指令与响应创建，将作者分为两个独立的组(绿色表示第一组，紫色表示第二组)，分配给每个组对应四个类别的图像进行标注
+(3)数据样本验证，仔细检查在前一阶段标注的&lt;图像，指令，响应&gt;三元组，其中一组交叉验证另一组所做的标注
+
+<img src="https://img.saraba1st.com/forum/202401/27/010741os54u28ssj85x5sw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010141__01.jpg</strong> (192.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:07 上传
+
+CONTEXTUAL的关键统计数据
+
+<img src="https://img.saraba1st.com/forum/202401/27/010747ts9jq5v2qhhz8968.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010141__02.jpg</strong> (369.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:07 上传
+
+指令中出现的最频繁的前40个发生动词(内圈)和它们的前4个直接名词(外圈)
+
+<img src="https://img.saraba1st.com/forum/202401/27/010810dhjhqhqmvexet4j2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010207__01.jpg</strong> (158.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:08 上传
+
+在CONTEXTUAL数据集上对比各种基础模型(增强LLM和LMMs)和人类的性能，使用人工评估、自动GPT-4和基于GPT-4V的评估来报告响应接受率，此外，还报告了标准的文本生成质量评估指标，包括BLEURT、Rouge-L和BERTScore
+
+可以发现人类在数据集上表现优于所有现有模型，而最好的LMM GPT-4V与人类性能相差30%
+
+<img src="https://img.saraba1st.com/forum/202401/27/010817jkwvx5v1te5ett8f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010214__01.jpg</strong> (77.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:08 上传
+
+使用ROC-AUC和spearman相关性对比人工和自动评估指标，基于GPT-4和GPT-4V的评估在两种方法中与人类相关性最高
+
+<img src="https://img.saraba1st.com/forum/202401/27/010823szgm6gmj1zm0me91.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010228__01.jpg</strong> (94.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:08 上传
+
+CONTEXTUAL数据集上的少样本性能
+
+<img src="https://img.saraba1st.com/forum/202401/27/010830vwxxcw6wktz1zzcx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010234__01.jpg</strong> (469.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:08 上传
+
+基于GPT-4评估，对CONTEXTUAL数据集上的基础模型(增强LLM和LMMs)和人类的性能进行细粒度对比
+
+平均响应接受率缩写为Avg.，购物为Shop.，导航为Nav.，摘要为Abs.，应用使用为App.，网络使用为Web，信息图为Info.，其他自然场景为NS
+
+GPT-4V在大多数类别上优于所有模型基线，而Gemini-Pro-Vision在网络使用和自然场景方面表现最好
+
+<img src="https://img.saraba1st.com/forum/202401/27/010842irh6omqwehmeormn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010250__01.jpg</strong> (275.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:08 上传
+
+在这个例子中，尽管具有逻辑推理能力，GPT-4V对指令提供了一个错误的回答，绿色表示与参考答案匹配的回答，红色突出显示回答中的错误，此外，还提供了总结推理来概述GPT-4V得出答案所使用的基本原理
+
+<img src="https://img.saraba1st.com/forum/202401/27/010854sjuhuwbc0uzudvf0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-010250__02.jpg</strong> (203.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 01:08 上传
+
+在这个例子中，GPT-4V对指令作出了正确的回答，然而，ShareGPT-4V-7B(表现最佳的开源LMM)和带有布局感知的OCR+字幕说明的GPT-4(增强LLM)给出了错误的回答，因为它们缺乏对文本和图像的联合推理能力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

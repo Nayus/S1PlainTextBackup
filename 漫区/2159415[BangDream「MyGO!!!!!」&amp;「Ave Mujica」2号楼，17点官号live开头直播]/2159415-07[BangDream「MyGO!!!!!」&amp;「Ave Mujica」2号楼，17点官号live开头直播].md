@@ -11127,3 +11127,13 @@ A-Musik『反日ラップ』 - 1981年に結成されたA-Musik[19]による即�
 
 就国内搞这骚操作，日本还是正常的。
 
+
+*****
+
+####  爱丁堡official  
+##### 10118#       发表于 2024-1-26 20:55
+
+加了个中文字幕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

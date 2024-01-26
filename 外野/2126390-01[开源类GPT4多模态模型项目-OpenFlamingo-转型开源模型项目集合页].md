@@ -29634,3 +29634,117 @@ Y轴:样本数量
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1223#       发表于 2024-1-26 22:12
+
+SpeechGPT-Gen
+
+拓展信息链(Chain-of-Information)语音生成
+
+github项目主页:https://github.com/0nutation/SpeechGPT
+
+得益于有效的语音建模，当前的语音大型语言模型(SLLMs/Speech Large Language Models)在上下文语音生成和对未见的说话者(unseen speakers)方面展现了高效泛化的卓越能力，然而，当前的信息建模过程存在某些冗余，导致语音生成效率低下
+
+本文提出了信息链生成(CoIG/Chain-of-Information Generation)的方法，用于在大规模语音生成中解耦语义和感知信息(perceptual information)，在此基础上开发了SpeechGPT-Gen，一个8亿参数的SLLM，能够高效地建模语义和感知信息，它包括一个基于LLM的用于语义信息建模的自回归模型，以及一个采用流匹配(flow matching)进行感知信息建模的非自回归模型，此外，还引入了将语义信息注入先验分布以增强流匹配效率的新方法
+
+广泛的实验结果表明，SpeechGPT-Gen在零样本文本转语音(zero-shot text-to-speech)、零样本声音转换(zero-shot voice conversion)和语音到语音对话(speech-to-speech dialogue)方面表现出色，展现了CoIG在捕捉和建模语音语义和感知维度方面的卓越能力
+
+<img src="https://img.saraba1st.com/forum/202401/26/221138p1gcn4qrz0lkn5gk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-220855.jpg</strong> (102.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:11 上传
+
+三种语音生成方法的示意图，整合建模(Integrated modeling)表示同时进行语义建模和感知建模
+
+(a)整合生成
+(b)语义解耦生成
+(c)信息链生成
+
+<img src="https://img.saraba1st.com/forum/202401/26/221154lmqdredqlygq8r9q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-220913.jpg</strong> (94.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:11 上传
+
+SpeechGPT-Gen的概览图，解码器代表SpeechTokenizer解码器，不同颜色的块代表包含不同信息的表征
+
+<img src="https://img.saraba1st.com/forum/202401/26/221158npa9y5f5t3t45y4i.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-220940.jpg</strong> (101.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:11 上传
+
+零样本文本到语音和声音转换的结果
+
+<img src="https://img.saraba1st.com/forum/202401/26/221202pd75ymbzfr7bpjwm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-220948.jpg</strong> (47.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:12 上传
+
+语音到语音对话的结果
+
+<img src="https://img.saraba1st.com/forum/202401/26/221207geiuu9s1s6wu39uw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-221019.jpg</strong> (94.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:12 上传
+
+AR(自回归)建模和NAR(非自回归)建模的整合生成、语义解耦生成和信息链生成的训练损失
+
+<img src="https://img.saraba1st.com/forum/202401/26/221211pukrahnua6u5u6rv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-221026.jpg</strong> (105.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:12 上传
+
+整合生成、语义解耦生成和信息链生成相关的零样本TTS的单词错误率和说话者相似度
+
+<img src="https://img.saraba1st.com/forum/202401/26/221217cfaz3kne8gk6kfe7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-221043.jpg</strong> (76.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:12 上传
+
+使用标准高斯先验和语义先验进行流匹配的零样本语音转换的单词错误率和说话者相似度
+
+<img src="https://img.saraba1st.com/forum/202401/26/221223gaxfuuxleoo25fkf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-221050.jpg</strong> (67.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:12 上传
+
+不同大小的流匹配模型的训练损失和零样本语音转换的单词错误率和说话者相似度
+
+<img src="https://img.saraba1st.com/forum/202401/26/221229la5r33rm3aqmg083.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-221108.jpg</strong> (45.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 22:12 上传
+
+离散感知建模和连续感知建模的零样本语音转换的单词错误率和说话者相似度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

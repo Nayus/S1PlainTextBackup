@@ -7883,3 +7883,11 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 <img src="https://img.saraba1st.com/forum/202401/25/233446t6n86196bc8lcloe.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11227#       发表于 2024-1-26 09:13
+
+联动有一部分用意还是在于反向引流FGO的玩家去接触FSR
+

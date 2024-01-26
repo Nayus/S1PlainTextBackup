@@ -450,3 +450,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  MMIno  
+##### 45973#       发表于 2024-1-26 09:29
+
+5发十连出了一个烟雾镜一个雨神和7张5星礼装，绝了
+

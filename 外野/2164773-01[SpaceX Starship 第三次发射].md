@@ -64,3 +64,20 @@ B12在当地时间24号转移至Megabay，预计将开始安装33台猛禽2
 
 看起来好帅啊
 
+
+*****
+
+####  亚尔古水手  
+##### 89#       发表于 2024-1-26 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63766883&amp;ptid=2164773" target="_blank">参考消息 发表于 2024-1-25 10:21</a>
+真1000万刀战斗部投送成本就低于目前的性价比之王——沙赫德136一个数量级了，小摩托假设3万刀一架，战斗 ...</blockquote>
+这玩意不是用来扔弹药的，是用于运输补给的啊
+
+*****
+
+####  亚尔古水手  
+##### 90#       发表于 2024-1-26 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

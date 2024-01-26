@@ -18,3 +18,16 @@
 刷宝石做饰品 以及正在三倍的活动
 抽卡目前的版本只推荐抽雷夏洛组雷爷队一条路走到底<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  胖达君  
+##### 1444#       发表于 2024-1-26 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63783936&amp;ptid=2050204" target="_blank">eyeego 发表于 2024-1-26 14:19</a>
+
+刷宝石做饰品 以及正在三倍的活动
+
+抽卡目前的版本只推荐抽雷夏洛组雷爷队一条路走到底 ...</blockquote>
+雷队之前看G8攻略也是最推荐的，只是KEY角色目前都抽不到
+

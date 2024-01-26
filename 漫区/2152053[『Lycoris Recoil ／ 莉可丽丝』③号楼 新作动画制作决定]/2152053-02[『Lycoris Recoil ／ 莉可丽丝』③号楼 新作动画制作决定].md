@@ -1115,3 +1115,21 @@
 
 不过想想联动商品（和宣传图）比较多的作品，绘柄不统一还挺常见的
 
+
+*****
+
+####  Saber琪  
+##### 1568#       发表于 2024-1-26 17:34
+
+农家小妹来咯（）
+<img src="https://p.sda1.dev/15/cad93a00cb5f82efa76f413f6ccd7623/CMP_20240126173422344.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 1569#       发表于 2024-1-26 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63786099&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-1-26 17:34</a>
+农家小妹来咯（）</blockquote>
+tkn脸上还有道黑印，草台！
+

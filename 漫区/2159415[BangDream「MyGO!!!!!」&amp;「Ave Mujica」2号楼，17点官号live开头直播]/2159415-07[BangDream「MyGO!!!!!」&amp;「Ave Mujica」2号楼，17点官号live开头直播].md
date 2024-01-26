@@ -10939,3 +10939,13 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 还要继续聊改没改剧本的话题吗（感觉依旧不够实锤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剪切线  
+##### 10102#       发表于 2024-1-26 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63785812&amp;ptid=2159415" target="_blank">Kfly 发表于 2024-1-26 17:10</a>
+还要继续聊改没改剧本的话题吗（感觉依旧不够实锤</blockquote>
+还是母鸡卡定档太晚没话题了，不然剧本写的好就夸奖，写的差就骂，改没改没那么重要
+

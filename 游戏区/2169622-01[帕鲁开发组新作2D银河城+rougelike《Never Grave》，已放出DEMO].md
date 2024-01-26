@@ -723,3 +723,11 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 爆款没那么容易出，中规中矩、完成度不错，在独立游戏里面就属于好的了。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">完成度不错这个要求才是最要命的吧
 
+
+*****
+
+####  quanlix  
+##### 73#       发表于 2024-1-27 01:04
+
+玩了玩，感觉像死亡细胞+空洞骑士+盗贼遗产，数值有点离谱，初期50hp只能挨敌人一次攻击，2层boss血那叫一个厚
+

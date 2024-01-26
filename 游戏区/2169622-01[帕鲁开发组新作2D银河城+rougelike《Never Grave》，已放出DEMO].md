@@ -652,3 +652,15 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下动作手感挺拉的，但想玩横版肉鸽的话，目前这内容看起来还有点吸引。
 
+
+*****
+
+####  tureleona  
+##### 66#       发表于 2024-1-26 18:52
+
+ 本帖最后由 tureleona 于 2024-1-26 18:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63786082&amp;ptid=2169622" target="_blank">夜之城的兰迪 发表于 2024-1-26 17:33</a>
+
+没人说这公司但凡出个游戏都挂个EA阶段的名头吗? 只要不是发售即成品，要喷都有点难度，"毕竟是EA阶 ...</blockquote>
+估计下一款游戏还是EA且缝合怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

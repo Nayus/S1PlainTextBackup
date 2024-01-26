@@ -1341,3 +1341,23 @@ tks
 
 现在都在用什么插件？换到mihon之后发现之前的vomic之类的都不行了。
 
+
+*****
+
+####  pgain2004  
+##### 110#         楼主| 发表于 2024-1-26 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63785514&amp;ptid=2167901" target="_blank">NaAgfykp 发表于 2024-1-26 16:43</a>
+现在都在用什么插件？换到mihon之后发现之前的vomic之类的都不行了。</blockquote>
+一样的啊。先信任扩展就能用，都没变
+扩展库链接我私信给你吧
+
+*****
+
+####  亚瑟邓特  
+##### 111#       发表于 2024-1-26 18:50
+
+mihon连动不了bangumi了点进去报错是啥情况？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

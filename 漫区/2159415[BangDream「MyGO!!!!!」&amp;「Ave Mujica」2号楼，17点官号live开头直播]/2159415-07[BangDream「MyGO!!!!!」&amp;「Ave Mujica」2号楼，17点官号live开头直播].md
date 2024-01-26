@@ -11291,3 +11291,13 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 没关系，你邦并没有火到跨团摩擦会有大影响的程度</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Reinhold  
+##### 10135#       发表于 2024-1-27 01:57
+
+你楼新人，我觉得，鉴于两团之间的爱恨情仇，合在一起也不错<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7912,3 +7912,19 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 本来就对fsr没兴趣，打完联动活动更不想碰了，惦记卖腐又不敢直接把性别写成男，怂炮
 
+
+*****
+
+####  exiaexa  
+##### 11230#       发表于 2024-1-26 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63773965&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-1-25 18:30</a>
+
+水武藏再给个自充多好</blockquote>
+现在自充已经无所谓了
+
+特攻倍率是200%，完全实现力大砖飞
+
+谁敢不服下次就再放一个查理曼
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

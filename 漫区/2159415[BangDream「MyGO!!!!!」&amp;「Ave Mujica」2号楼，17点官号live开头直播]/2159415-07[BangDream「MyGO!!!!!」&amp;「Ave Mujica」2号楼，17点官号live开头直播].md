@@ -11161,3 +11161,13 @@ A-Musik『反日ラップ』 - 1981年に結成されたA-Musik[19]による即�
 
 那……头像的事怎么算<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 10122#       发表于 2024-1-26 21:43
+
+也就国内搞这手骚操作，这么看重国内b号，我还说wsd不给老团宣传是想拥立狗为邦邦正统切割老团呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+合一半不如不合，什么时候出打榜活动恰米了我再来称赞合号是一招妙棋。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

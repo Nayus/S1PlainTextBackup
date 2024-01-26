@@ -10635,3 +10635,33 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 该派鼓子出去和亲促进鸡狗共荣了
 
+
+*****
+
+####  穗波殊  
+##### 10080#       发表于 2024-1-26 10:26
+
+[https://twitter.com/Yurichtofen/status/1750469991101788180?s=19](https://twitter.com/Yurichtofen/status/1750469991101788180?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/26/102629qqx3xroxfsqsfy63.jpg" referrerpolicy="no-referrer">
+
+<strong>20240126_102558.jpg</strong> (239.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 10:26 上传
+
+
+*****
+
+####  6030sylar  
+##### 10081#       发表于 2024-1-26 10:29
+
+<img src="https://img.saraba1st.com/forum/202401/26/102910dtwyde2tdwpt3hh2.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-ibxcK1hT1kSg1-g4.jpg</strong> (57.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 10:29 上传
+

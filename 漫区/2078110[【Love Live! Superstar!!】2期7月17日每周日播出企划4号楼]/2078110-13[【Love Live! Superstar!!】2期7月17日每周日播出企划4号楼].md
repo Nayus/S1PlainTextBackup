@@ -2676,3 +2676,15 @@ QQ图片20240125213251.jpg
 疫情防控放开之后鱼越来越忙了，日本的个人活动和星团活动，国内也要挤出空来举办活动，时不时得唠个磕，还 ...</blockquote>
 那必然是极小部分。而且鱼应该是歌手+偶像，应该不算声优偶像
 
+
+*****
+
+####  super_uni  
+##### 19384#       发表于 2024-1-26 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63770863&amp;ptid=2078110" target="_blank">Kfly 发表于 2024-1-25 14:53</a>
+还有个难绷的，“三个月创造难忘回忆”</blockquote>
+改成398买断一锤子买卖得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

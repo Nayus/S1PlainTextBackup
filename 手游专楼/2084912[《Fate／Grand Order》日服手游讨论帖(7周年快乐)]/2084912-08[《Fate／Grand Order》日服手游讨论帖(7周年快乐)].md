@@ -7891,3 +7891,16 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 
 联动有一部分用意还是在于反向引流FGO的玩家去接触FSR
 
+
+*****
+
+####  cenhr  
+##### 11228#       发表于 2024-1-26 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777340&amp;ptid=2084912" target="_blank">シャル 发表于 2024-1-25 23:34</a>
+
+英灵化后伊织连自己本质起源和人生目标都忘了
+
+所以是空壳嘛</blockquote>
+联动解释是剑鬼舍弃的人性，同时因为剑鬼爽够了，不想把记忆给舍弃部分，所以就这样了。最后一战就是武藏叫伊织这次跟着星光走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

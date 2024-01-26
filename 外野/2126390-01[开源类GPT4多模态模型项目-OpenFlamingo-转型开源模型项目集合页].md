@@ -29471,3 +29471,101 @@ Yi-VL 34B模型权重https://huggingface.co/01-ai/Yi-VL-34B
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1221#       发表于 2024-1-26 10:23
+
+Say-I-Dont-Know
+
+人工智能助理能否了解他们自身不知道什么
+
+github项目仓库:https://github.com/OpenMOSS/Say-I-Dont-Know
+
+最近，基于大型语言模型(LLMs)的AI助手在许多任务中展现出惊人的性能，比如对话、解决数学问题、编写代码与使用工具，虽然LLMs具有丰富的世界知识，但在面对一些知识密集型任务(如开放域问答)时，它们仍然会出现事实错误，这些不真实的回应可能会在实际应用中带来重大风险
+
+因此，可以认为AI助手拒绝回答它不知道的问题是减少幻觉和保持助手真实性的关键方法，在本文中提出了一个问题:“AI助手能否知道自己不知道什么，并用自然语言表达出来？”
+
+为了回答这个问题，针对一个助手构建了一个特定于模型的“我不知道”(Idk)数据集，其中包含它所知道和不知道的问题，基于现有的开放域问答数据集，然后将助手与相应的Idk数据集进行对齐，观察在对齐后它是否能够拒绝回答自己不知道的问题
+
+实验结果显示，在与Idk数据集对齐后，助手可以拒绝回答大多数未知问题，而对于它们尝试回答的问题，准确率显著提高
+
+<img src="https://img.saraba1st.com/forum/202401/26/102247lomoymyznoxqxhmo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-102011.jpg</strong> (103.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 10:22 上传
+
+AI助手的知识象限图
+
+“Unknowns”表示AI实际上不知道的内容
+“Knowns”表示AI实际上知道的内容
+“Known”表示AI认为自己知道的内容
+“Unknown”表示AI认为自己不知道的内容
+
+<img src="https://img.saraba1st.com/forum/202401/26/102253mbfucc6trivr9uuf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-102040.jpg</strong> (79.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 10:22 上传
+
+基于Idk数据集的AI助手的知识象限图(Ik阈值=1.0)
+
+IK-IK表示AI正确回答了问题
+IDK-IK表示AI知道答案但拒绝回答问题
+IDK-IDK表示AI错误回答了问题
+IK-IDK表示AI不知道答案并拒绝回答问题
+
+w/Idk-Prompting:使用提示可以将某些IDK-IDK问题转化为IK-IDK问题
+w/Idk-SFT:Idk-SFT允许模型拒绝回答更多它不知道的问题，但这也往往会使模型更加保守，导致错误地拒绝回答一些实际上它知道的问题
+w/Idk-DPO:使用偏好感知优化(如DPO)可以减轻模型的过度保守，并减少IDK-IK问题的数量
+
+<img src="https://img.saraba1st.com/forum/202401/26/102258nkmawfvg67a2wmf8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-102101.jpg</strong> (162.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 10:22 上传
+
+上方:Idk数据集的构建过程
+下方:偏好对构建过程，绿色回答表示正确答案，红色回答表示错误答案，“I don’t know”表示拒绝回答的模板
+
+<img src="https://img.saraba1st.com/forum/202401/26/102305zyxfg0z7j70yx7qq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-102116.jpg</strong> (111.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 10:23 上传
+
+基于TriviaQA和分布外(OOD)测试集构建的Idk数据集的测试集整体结果
+
+<img src="https://img.saraba1st.com/forum/202401/26/102310oqe9010mo0ax1qkf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-102137.jpg</strong> (96.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 10:23 上传
+
+在不同规模的模型上的Idk-SFT实验结果
+
+<img src="https://img.saraba1st.com/forum/202401/26/102316bkhhfwmzt3qc24q4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240126-102210.jpg</strong> (86.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 10:23 上传
+
+左侧:根据不同Ik阈值构建的Idk数据集中Ik和Idk问题的比例变化
+右侧:在不同Idk数据集上进行Idk-SFT后，IK-IK比率、IK-IDK比率和TRUTHFUL比率的变化
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

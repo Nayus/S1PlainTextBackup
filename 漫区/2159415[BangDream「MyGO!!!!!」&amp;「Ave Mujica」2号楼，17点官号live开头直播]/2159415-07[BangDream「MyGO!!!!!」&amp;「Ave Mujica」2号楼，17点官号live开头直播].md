@@ -11257,3 +11257,19 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 要么分号，要么合成大号取官号而代之，鸡狗以后摩擦会越来越多的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 10132#       发表于 2024-1-26 23:47
+
+<img src="https://img.saraba1st.com/forum/202401/26/234713icexsxjrfkonnon1.jpg" referrerpolicy="no-referrer">
+
+<strong>GExhyXuacAAAYYU.jpg</strong> (219.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:47 上传
+
+[https://twitter.com/rousei13/status/1750881878138319140/photo/1](https://twitter.com/rousei13/status/1750881878138319140/photo/1)
+

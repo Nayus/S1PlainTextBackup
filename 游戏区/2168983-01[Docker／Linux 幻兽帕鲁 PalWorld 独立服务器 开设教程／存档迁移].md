@@ -1585,3 +1585,11 @@ steam为什么比学习版帧数低那么多？3060ti都没30帧，什么原因<
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  fat  
+##### 106#       发表于 2024-1-26 08:04
+
+有人试过用有公网ip的家里pc搭建成功吗？我还是没搞成不知道是不是端口转发有问题
+

@@ -2597,3 +2597,13 @@ Noir Rain</blockquote>
 
 还以为穆顿只是个普通贤士，结果你丫是PVP专精么，直接一招把对面零式干断联了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚瑟邓特  
+##### 3565#       发表于 2024-1-26 22:34
+
+第二集出了
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

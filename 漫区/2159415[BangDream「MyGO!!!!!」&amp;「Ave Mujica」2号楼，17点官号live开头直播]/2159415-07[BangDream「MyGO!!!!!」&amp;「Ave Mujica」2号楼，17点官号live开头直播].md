@@ -10699,3 +10699,23 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 [https://twitter.com/sasakirico/status/1750699944842059975](https://twitter.com/sasakirico/status/1750699944842059975)
 
+
+*****
+
+####  御幸一也  
+##### 10084#       发表于 2024-1-26 12:05
+
+<img src="https://img.saraba1st.com/forum/202401/26/120431hjggai9eyesmwge4.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (44.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 12:04 上传
+
+根本P發話了，以後不會再有這樣的沒有劇情的活動<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+並且會努力做好遊戲哦
+
+今年一定島
+

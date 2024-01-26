@@ -11110,3 +11110,20 @@ A-Musik『反日ラップ』 - 1981年に結成されたA-Musik[19]による即�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方都先强行合并了，还指望分家，这可是wsd啊
 
+
+*****
+
+####  鲍里斯  
+##### 10116#       发表于 2024-1-26 20:34
+
+老账号黑色生日都84万播放了，要搬不早搬
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ytttsuuuba  
+##### 10117#       发表于 2024-1-26 20:40
+
+就国内搞这骚操作，日本还是正常的。
+

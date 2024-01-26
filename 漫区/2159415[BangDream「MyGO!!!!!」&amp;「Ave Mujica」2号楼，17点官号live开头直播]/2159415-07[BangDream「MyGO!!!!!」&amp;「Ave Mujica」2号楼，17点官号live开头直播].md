@@ -10914,3 +10914,20 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 <img src="https://img.saraba1st.com/forum/202401/25/173149ptcmk81njbq37c5c.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剪切线  
+##### 10099#       发表于 2024-1-26 16:34
+
+救命，复制粘贴图片错了，而且附件里找不到，删不了
+
+*****
+
+####  yoyodream  
+##### 10100#       发表于 2024-1-26 16:41
+
+懂了，pago的脚本是很早以前就写好的，百合浓度非常高，我已经完全理解了。（
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

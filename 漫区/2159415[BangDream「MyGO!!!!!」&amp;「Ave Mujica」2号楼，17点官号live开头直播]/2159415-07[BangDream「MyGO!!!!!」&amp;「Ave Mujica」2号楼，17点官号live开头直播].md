@@ -11249,3 +11249,11 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了<i
 wsd并两个团的号不如把所有团（管人团除外）都并一块得了</blockquote>
 本來就是，現在就逮著搞噁心ave粉的操作是什麼事，何況go粉不爽的也有呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 10131#       发表于 2024-1-26 23:33
+
+要么分号，要么合成大号取官号而代之，鸡狗以后摩擦会越来越多的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

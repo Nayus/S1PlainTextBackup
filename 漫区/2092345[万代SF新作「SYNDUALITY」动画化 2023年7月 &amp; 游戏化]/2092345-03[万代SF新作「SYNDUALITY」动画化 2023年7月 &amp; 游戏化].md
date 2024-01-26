@@ -2630,3 +2630,81 @@ Noir Rain</blockquote>
 现在字幕组熟肉还是只有到13话吗</blockquote>
 已经更新到14话了
 
+
+*****
+
+####  aptx8285144  
+##### 3568#       发表于 2024-1-26 23:40
+
+<img src="https://img.saraba1st.com/forum/202401/26/233700s00jfaawzdanh58u.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240126231622.png</strong> (73.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:37 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/233715vep5eqyttyeqreye.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240126231655.png</strong> (32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:37 上传
+
+op翻译得不错
+
+<img src="https://img.saraba1st.com/forum/202401/26/233748setdt8tj8qv6ydne.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240126233125.png</strong> (58.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:37 上传
+
+先说翻得不好地方，这里怎么看都不是“要看好”
+
+<img src="https://img.saraba1st.com/forum/202401/26/233832mzd24udgejzqw0u0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240126232924.png</strong> (61.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/233851dt2p7uip9t9sj9c9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240126232954.png</strong> (58.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:38 上传
+
+当初官方字幕能翻译成朋友也是人才呀
+
+<img src="https://img.saraba1st.com/forum/202401/26/233926bat2htlfhacyvt2f.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240126233327.png</strong> (43.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:39 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/233935cvogicvgrbocg6jt.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240126233350.png</strong> (29.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:39 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/233945ibqt3cq8ubd1dqgu.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240126233444.png</strong> (41.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 23:39 上传
+
+这里夏尔和米斯提的对话也翻得还行
+

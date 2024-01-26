@@ -2549,3 +2549,24 @@ Noir Rain</blockquote>
 
 现在字幕组熟肉还是只有到13话吗
 
+
+*****
+
+####  Piano-Forest  
+##### 3561#         楼主| 发表于 2024-1-26 21:11
+
+第14話「Mysterious journey」原画
+<img src="https://p.sda1.dev/15/46083bb7a9c4fa94d558eee58e77fca9/20240126_124919.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/a9e87dfa5da9eccc3198349cae1490bc/20240126_124922.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/d3a1787a4f4f5e85680e0dd206c3a302/20240126_124926.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 3562#         楼主| 发表于 2024-1-26 21:12
+
+游戏方面
+
+《奇异贤伴 爱达之歌》个人化宣传视频
+[https://youtu.be/icj1w_s8Mw0](https://youtu.be/icj1w_s8Mw0)
+

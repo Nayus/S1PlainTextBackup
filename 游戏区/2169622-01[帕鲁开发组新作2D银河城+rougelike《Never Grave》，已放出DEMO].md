@@ -674,3 +674,15 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 估计下一款游戏还是EA且缝合怪</blockquote>
 韧 天 堂 
 
+
+*****
+
+####  FROM-SOFTWARE  
+##### 68#       发表于 2024-1-26 19:57
+
+ 本帖最后由 FROM-SOFTWARE 于 2024-1-26 20:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63786595&amp;ptid=2169622" target="_blank">病態極端 发表于 2024-1-26 18:19</a>
+
+想太多了，黑帝斯為期2年的搶先體驗賣了70萬份。</blockquote>
+虽然但是，hades卖得这么少有当时是epic独占了一年的原因
+

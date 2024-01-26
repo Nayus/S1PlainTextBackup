@@ -10751,3 +10751,27 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 —— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  ydsbbt  
+##### 10088#       发表于 2024-1-26 14:18
+
+<img src="https://img.saraba1st.com/forum/202401/26/141355f11dff1g111fl1j9.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1706247100557.jpg</strong> (63.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-1-26 14:13 上传
+
+排除了一下，能对得上的只有mujica，和去年年初她写的博客内容也对的上。当然不排除她有个未发表的系构原创百合企划（不太可能）另外楼友可以试着找找这篇小说，也许有剧情上的提示
+
+*****
+
+####  ydsbbt  
+##### 10089#       发表于 2024-1-26 14:18
+
+这样看来应该可以放心了，并没有改剧本
+

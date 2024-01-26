@@ -644,3 +644,11 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 不出意外也会是个小爆款（奶个首月200万份？） ...</blockquote>
 想太多了，黑帝斯為期2年的搶先體驗賣了70萬份。
 
+
+*****
+
+####  zyxsqw  
+##### 65#       发表于 2024-1-26 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下动作手感挺拉的，但想玩横版肉鸽的话，目前这内容看起来还有点吸引。
+

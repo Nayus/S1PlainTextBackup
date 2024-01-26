@@ -11281,3 +11281,13 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 没关系，你邦并没有火到跨团摩擦会有大影响的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toki_Ai  
+##### 10134#       发表于 2024-1-27 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63790490&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-26 23:54</a>
+没关系，你邦并没有火到跨团摩擦会有大影响的程度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

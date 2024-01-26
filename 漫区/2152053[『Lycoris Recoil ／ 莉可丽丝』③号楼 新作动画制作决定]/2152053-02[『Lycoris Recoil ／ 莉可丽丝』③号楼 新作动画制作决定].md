@@ -1031,3 +1031,77 @@
 就今年一月新番来看，让人能看下去第一要素果然还是有趣。这点 ...</blockquote>
 谁说没新情报了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1564#       发表于 2024-1-26 14:47
+
+[https://twitter.com/0tyaro/status/1750677917376581956?s=19](https://twitter.com/0tyaro/status/1750677917376581956?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/26/144724uyy9zzbz4yyri1um.jpg" referrerpolicy="no-referrer">
+
+<strong>20240126_144641.jpg</strong> (358.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 14:47 上传
+
+<img src="https://img.saraba1st.com/forum/202401/26/144729i56cfq4rkcq0mcer.jpg" referrerpolicy="no-referrer">
+
+<strong>20240126_144648.jpg</strong> (323.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 14:47 上传
+
+*****
+
+####  Saber琪  
+##### 1565#       发表于 2024-1-26 14:49
+
+[https://twitter.com/TeteAkira/status/1750554709730193546?s=19](https://twitter.com/TeteAkira/status/1750554709730193546?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/26/144807ugq8nskgivjwsogd.jpg" referrerpolicy="no-referrer">
+
+<strong>20240126_144748.jpg</strong> (288.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 14:48 上传
+
+[好久没看犬神](https://twitter.com/TabunnInu/status/1750641537850183715?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/26/144842sh7h065meecd0c3x.jpg" referrerpolicy="no-referrer">
+
+<strong>20240126_144815.jpg</strong> (103.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 14:48 上传
+
+[https://twitter.com/Mush_0106/status/1750483540821893356?s=19](https://twitter.com/Mush_0106/status/1750483540821893356?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/26/144906iam5ypdbbvvbrxaw.jpg" referrerpolicy="no-referrer">
+
+<strong>20240126_144850.jpg</strong> (464.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 14:49 上传
+
+*****
+
+####  Saber琪  
+##### 1566#       发表于 2024-1-26 14:50
+
+[yysy觉得这个柄两个人的表情都好唐](https://twitter.com/lycoreco_check/status/1750730780572332488?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/26/145022pmhmd99dd0rw8zyw.jpg" referrerpolicy="no-referrer">
+
+<strong>20240126_144943.jpg</strong> (146.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-26 14:50 上传
+

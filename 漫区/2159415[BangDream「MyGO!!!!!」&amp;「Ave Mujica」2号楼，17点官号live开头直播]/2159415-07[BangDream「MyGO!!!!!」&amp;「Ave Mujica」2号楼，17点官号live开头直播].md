@@ -10741,3 +10741,13 @@ ras那边涉及主线确实需要反复调整，但情人节这种日常灌水�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yoyodream  
+##### 10087#       发表于 2024-1-26 13:52
+
+原来wsd知道自个游戏没做好啊，令人感动（
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

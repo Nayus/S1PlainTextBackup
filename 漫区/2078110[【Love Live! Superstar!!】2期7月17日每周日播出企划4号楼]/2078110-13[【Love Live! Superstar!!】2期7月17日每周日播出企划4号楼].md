@@ -2688,3 +2688,11 @@ QQ图片20240125213251.jpg
 
 — from Xiaomi 23049RAD8C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  ViyViy  
+##### 19385#       发表于 2024-1-26 13:52
+
+看板娘手办延期了，虽然就没想过能按时出货
+

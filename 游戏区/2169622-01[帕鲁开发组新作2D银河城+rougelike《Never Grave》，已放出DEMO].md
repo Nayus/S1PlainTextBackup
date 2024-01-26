@@ -731,3 +731,11 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 
 玩了玩，感觉像死亡细胞+空洞骑士+盗贼遗产，数值有点离谱，初期50hp只能挨敌人一次攻击，2层boss血那叫一个厚
 
+
+*****
+
+####  105gun  
+##### 74#       发表于 2024-1-27 02:08
+
+这个感觉一般，我一个特讨厌空洞手感+死亡细胞的roguelite元素的看见这游戏就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

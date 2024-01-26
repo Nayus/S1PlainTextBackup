@@ -1571,3 +1571,17 @@ steam为什么比学习版帧数低那么多？3060ti都没30帧，什么原因<
 
 这样还是只有10几帧
 
+
+*****
+
+####  moeblack  
+##### 105#         楼主| 发表于 2024-1-26 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779533&amp;ptid=2168983" target="_blank">sunzhenfeinan 发表于 2024-1-26 07:52</a>
+这样还是只有10几帧</blockquote>
+优质答案
+
+我不知道。
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

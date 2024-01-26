@@ -458,3 +458,18 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 5发十连出了一个烟雾镜一个雨神和7张5星礼装，绝了
 
+
+*****
+
+####  destroyworlder  
+##### 45974#       发表于 2024-1-26 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63774785&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-1-25 19:51</a>
+
+终于轮到我了，第二发十连一个四星一个五星
+
+既然如此那大姐姐也可以考虑抽了
+
+如果大姐姐在400石内搞定就把 ...</blockquote>
+我是抽完呼符一发10连
+

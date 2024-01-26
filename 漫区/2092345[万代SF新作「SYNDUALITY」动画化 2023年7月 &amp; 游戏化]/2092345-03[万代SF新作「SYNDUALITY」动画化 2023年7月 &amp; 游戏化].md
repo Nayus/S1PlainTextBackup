@@ -2522,3 +2522,13 @@ Noir Rain</blockquote>
 确实没想到一套组合拳能把黑甲面干成这本弔样。打桩机这么强所以为啥彼方不给自己安排一个？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩飞盘刮痧死路一条！
 
+
+*****
+
+####  aptx8285144  
+##### 3558#       发表于 2024-1-26 17:25
+
+【「SYNDUALITY Noir」第16話「Noir Rain」WEB予告-哔哩哔哩】 [https://b23.tv/XeQrcuy](https://b23.tv/XeQrcuy)
+
+诺娃和米斯缇的对话来了，双人格之间的交流<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

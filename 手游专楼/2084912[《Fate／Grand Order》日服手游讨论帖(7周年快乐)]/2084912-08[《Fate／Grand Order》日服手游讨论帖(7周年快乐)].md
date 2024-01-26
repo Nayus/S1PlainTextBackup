@@ -7904,3 +7904,11 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 所以是空壳嘛</blockquote>
 联动解释是剑鬼舍弃的人性，同时因为剑鬼爽够了，不想把记忆给舍弃部分，所以就这样了。最后一战就是武藏叫伊织这次跟着星光走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 11229#       发表于 2024-1-26 10:34
+
+本来就对fsr没兴趣，打完联动活动更不想碰了，惦记卖腐又不敢直接把性别写成男，怂炮
+

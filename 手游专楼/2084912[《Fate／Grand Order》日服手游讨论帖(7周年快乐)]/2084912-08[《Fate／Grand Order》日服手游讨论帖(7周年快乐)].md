@@ -7928,3 +7928,20 @@ syl 看到阿B的烟雾镜开屏了，我觉得这就是一种自信<img src="ht
 谁敢不服下次就再放一个查理曼
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11231#       发表于 2024-1-26 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63782184&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-1-26 11:42</a>
+
+现在自充已经无所谓了
+
+特攻倍率是200%还带oc，完全实现力大砖飞
+
+谁敢不服下次就再放一个查理曼</blockquote>
+再貪心一點，藍綠卡隊最好都有自充和NP率(笑)
+
+水武藏本身有NP率，現在寶具加了劍特攻，簡單粗暴
+

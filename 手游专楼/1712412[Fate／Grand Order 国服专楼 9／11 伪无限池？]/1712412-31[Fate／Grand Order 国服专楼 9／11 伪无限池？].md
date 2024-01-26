@@ -581,3 +581,13 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 艾蕾灵衣日服去年是延迟开的吗？记不起来了
 
+
+*****
+
+####  khxooo  
+##### 45988#       发表于 2024-1-27 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63790260&amp;ptid=1712412" target="_blank">AbigailWilliams 发表于 2024-1-26 23:28</a>
+艾蕾灵衣日服去年是延迟开的吗？记不起来了</blockquote>
+2800WDL 才给灵衣。
+

@@ -1019,3 +1019,15 @@
 
 本季卖肉确实有点文艺复兴的感觉
 
+
+*****
+
+####  Saber琪  
+##### 1563#       发表于 2024-1-26 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777476&amp;ptid=2152053" target="_blank">wzm96816 发表于 2024-1-25 23:43</a>
+看到楼浮起来还以为有情报啊，结果全是图。
+
+就今年一月新番来看，让人能看下去第一要素果然还是有趣。这点 ...</blockquote>
+谁说没新情报了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+

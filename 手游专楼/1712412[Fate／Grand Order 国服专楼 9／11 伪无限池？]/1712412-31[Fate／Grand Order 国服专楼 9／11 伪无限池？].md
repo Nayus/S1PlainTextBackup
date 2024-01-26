@@ -473,3 +473,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 如果大姐姐在400石内搞定就把 ...</blockquote>
 我是抽完呼符一发10连
 
+
+*****
+
+####  Ousia  
+##### 45975#       发表于 2024-1-26 10:53
+
+虽然我一直不信，友情池的峰值抽卡法让我60石尼托和烟雾镜各+1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

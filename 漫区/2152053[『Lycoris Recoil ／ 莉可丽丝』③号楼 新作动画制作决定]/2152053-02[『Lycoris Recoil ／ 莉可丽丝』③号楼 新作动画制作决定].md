@@ -1333,3 +1333,24 @@ tkn脸上还有道黑印，草台！
 传上来了</blockquote>
 看了眼网页好像看不见<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 1580#       发表于 2024-1-27 01:29
+
+朝浦这新连载的小说这么纯良啊，最开始那一本为啥不这样写<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Saber琪  
+##### 1581#       发表于 2024-1-27 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63791079&amp;ptid=2152053" target="_blank">qz66618 发表于 2024-1-27 01:29</a>
+朝浦这新连载的小说这么纯良啊，最开始那一本为啥不这样写
+
+—— 来自 S1Fun ...</blockquote>
+第一本就刚开始那点有烂活，本质土味yuri<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这本也是土味yuri，唯一不变的是对吃的描写依旧很多
+

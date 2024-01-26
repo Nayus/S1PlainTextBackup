@@ -739,3 +739,13 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 
 这个感觉一般，我一个特讨厌空洞手感+死亡细胞的roguelite元素的看见这游戏就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杉田悠一  
+##### 75#       发表于 2024-1-27 06:55
+
+害，看地图以为是城，细胞就算了，
+
+—— 来自 Xiaomi 2311DRK48C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

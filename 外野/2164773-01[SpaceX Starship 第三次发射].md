@@ -81,3 +81,14 @@ B12在当地时间24号转移至Megabay，预计将开始安装33台猛禽2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madbird023  
+##### 91#       发表于 2024-1-27 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63780402&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-26 09:41</a>
+
+这玩意不是用来扔弹药的，是用于运输补给的啊</blockquote>
+美军也动过运人的心思
+

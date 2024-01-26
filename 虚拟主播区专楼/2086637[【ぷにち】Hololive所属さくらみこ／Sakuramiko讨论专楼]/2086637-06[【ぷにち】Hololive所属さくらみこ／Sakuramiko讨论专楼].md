@@ -6234,3 +6234,13 @@ miko要学高手玩微操
 
 结果就是自己很快就死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8088#         楼主| 发表于 2024-1-26 22:21
+
+今天抓的几个够强了
+
+唯一的问题就是玩家自身等级不够
+

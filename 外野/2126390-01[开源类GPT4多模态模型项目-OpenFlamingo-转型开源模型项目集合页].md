@@ -30071,3 +30071,133 @@ GPT-4V在大多数类别上优于所有模型基线，而Gemini-Pro-Vision在网
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1226#       发表于 2024-1-27 04:58
+
+ 本帖最后由 Machinery 于 2024-1-27 05:01 编辑 
+
+ChatterBox
+
+多轮多模态指代和基准(Referring and Grounding)
+
+github项目主页:https://github.com/sunsmarterjie/ChatterBox
+
+在这项研究中，为一项名为多模态多轮指代与基准(MRG/multimodal multi-round referring and grounding)的新任务建立了一个新基线，为实例级多模态对话开辟了一个有前景的方向，为此，构造了一个新的基准测试集CB-300K，以及一个高效的视觉语言模型ChatterBox，CB-300K基准测试集涵盖多轮对话、多个实例之间的复杂空间关系、一致的推理等挑战，超越了现有基准测试集
+
+提出的模型名为ChatterBox，采用了一个双分支(two-branch)架构来协同处理视觉和语言任务，通过对实例区域进行分词化(tokenizing)，语言分支获得了感知指代信息的能力，同时，ChatterBox将视觉分支中的查询嵌入馈送给一个Token接收器进行视觉基准，还设计了一个两阶段的优化策略，利用CB-300K和辅助外部数据来改进模型在实例级理解方面的稳定性和能力
+
+实验证明，ChatterBox在MRG方面，定量和定性实验中都优于现有模型，为复杂而精确的多模态对话场景铺就了一条新的道路
+
+<img src="https://img.saraba1st.com/forum/202401/27/045558b2m3niilzuiu1zvf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045048__01.jpg</strong> (612.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:55 上传
+
+多轮指代和视觉基准(MRG)任务的示例，在对话过程中，机器人可以收到用于指代表达的[REF] Token或用于视觉基准的[GND] Token，如果没有这些Token，任务就变成了通常的视觉问答
+
+所有的答案都是由ChatterBox代理者生成的，展示了它在视觉识别方面的强大能力，特别是，ChatterBox可以理解逻辑相关的问题，并结合上下文信息提供答案，例如，在右边的对话中，问题“‘Where is the other one?”需要识别“one”指代的是一个人，然后定位“另一个”与之前提到的那个人所不同的人物
+
+<img src="https://img.saraba1st.com/forum/202401/27/045616rtj1o87t4d1t7v1o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045055__01.jpg</strong> (134.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:56 上传
+
+ChatterBox与最近的研究方法在进行多轮对话(包括区域级指代和视觉基准)方面的能力、提出的新数据(†表示需要生成新的对话数据而不仅仅是重新组织现有数据)，训练成本方面的差异，N/R表示未报告
+
+<img src="https://img.saraba1st.com/forum/202401/27/045633up04osh5ybmsaw68.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045108__01.jpg</strong> (697.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:56 上传
+
+CB-300K数据集包含了四个不同目的的子集
+
+图像和元数据(物体位置和描述)来自Visual Genome，同一张图片可以出现在不同的子集中，前两个子集CB-MRG和CB-LC是通过提示GPT-4阅读元数据并生成问题和答案来获得的，后两个子集CB-REF和CB-GND是使用手动设计的规则生成的，并经由GPT-3.5修订
+
+<img src="https://img.saraba1st.com/forum/202401/27/045659aablmci9i5ii8w5v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045118__01.jpg</strong> (68.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:56 上传
+
+每个独立子集和整个基准测试的关联列数量和问题答案对数量
+
+<img src="https://img.saraba1st.com/forum/202401/27/045721csa64245ltsscczk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045129__01.jpg</strong> (328.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:57 上传
+
+ChatterBox模型的架构，它接收图像和当前问题以及对话历史作为输入，并生成语言输出和必要时的视觉输出(即视觉基准结果)，放大了位置解码器说明查询Token和视觉特征之间的互动
+
+<img src="https://img.saraba1st.com/forum/202401/27/045733fdhxk6sdykkca3fa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045140__01.jpg</strong> (148.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:57 上传
+
+ChatterBox与之前的工作之间的基于MRG指标的定量对比
+
+<img src="https://img.saraba1st.com/forum/202401/27/045745jb3uuyujk38uoluw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045148__01.jpg</strong> (586.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:57 上传
+
+LISA，Kosmos-2和ChatterBox之间多轮对话的定性对比，本文模型在理解多轮对话和进行推理方面展现了卓越的能力，值得强调的是，更强的视觉识别能力是由明确的视觉模块带来的
+
+<img src="https://img.saraba1st.com/forum/202401/27/045805nmqeumjldzwyq0ss.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045155__01.jpg</strong> (52.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:58 上传
+
+在RefCOCOg数据集上针对单轮指代表达进行定量对比
+
+<img src="https://img.saraba1st.com/forum/202401/27/045810px43dfdryhxvwf9r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045155__02.jpg</strong> (52.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:58 上传
+
+在COCO 2017测试集上针对单轮视觉基准进行定量对比
+
+<img src="https://img.saraba1st.com/forum/202401/27/045814ztcw3kje2j9q3zkk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240127-045200__01.jpg</strong> (77.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 04:58 上传
+
+以BERT得分和T得分为指标的诊断结果
+
+CB-300K:是否使用CB-300K进行训练
+Ref. Words:在推理阶段是否使用指代表达
+注意:第三行不是一个公平的对比，因为它比MRG更容易
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

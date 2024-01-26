@@ -1593,3 +1593,17 @@ steam为什么比学习版帧数低那么多？3060ti都没30帧，什么原因<
 
 有人试过用有公网ip的家里pc搭建成功吗？我还是没搞成不知道是不是端口转发有问题
 
+
+*****
+
+####  moeblack  
+##### 107#         楼主| 发表于 2024-1-26 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63779576&amp;ptid=2168983" target="_blank">fat 发表于 2024-1-26 08:04</a>
+有人试过用有公网ip的家里pc搭建成功吗？我还是没搞成不知道是不是端口转发有问题 ...</blockquote>
+我就是
+openwrt后台开转发，然后先用telnet手机网络看能否通端口
+成功之后关闭telnet开服务器
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

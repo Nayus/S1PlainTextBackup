@@ -997,3 +997,11 @@ Top4牛沢都出視頻了 kiyo如果也出視頻的話 我不知道彩虹如果�
 
 她这么上心不会是想在pal复现ark吧
 
+
+*****
+
+####  帕克桑  
+##### 2948#       发表于 2024-1-26 09:10
+
+这b游戏不是只能开32人服吗，虹要玩人也挤不下。而且人多了，谁触发个毁档bug下场怎么样我都不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

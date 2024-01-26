@@ -2647,3 +2647,22 @@ QQ图片20240125213251.jpg
 
 疫情防控放开之后鱼越来越忙了，日本的个人活动和星团活动，国内也要挤出空来举办活动，时不时得唠个磕，还要套皮直个播，虽然说快30了是得冲刺一下，但这工作强度真的是声优偶像的常态吗
 
+
+*****
+
+####  ads147147  
+##### 19381#       发表于 2024-1-26 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63778719&amp;ptid=2078110" target="_blank">280041437 发表于 2024-1-26 01:08</a>
+疫情防控放开之后鱼越来越忙了，日本的个人活动和星团活动，国内也要挤出空来举办活动，时不时得唠个磕，还 ...</blockquote>
+她这个年纪上不拼也不行（而且可预见的星3会多拉，得自救）
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  奥柏伦亲王  
+##### 19382#       发表于 2024-1-26 09:00
+
+2月20基本只有学生和休假时间本来就长的社畜可以去了，再加上一部分真正的核心铁粉<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">啥时候能来北京啊，这两年是真的走不开
+

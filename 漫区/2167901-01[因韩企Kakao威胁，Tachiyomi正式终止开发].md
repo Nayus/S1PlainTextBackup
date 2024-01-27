@@ -1438,3 +1438,16 @@ mihon连动不了bangumi了点进去报错是啥情况？
 扩展库链接我私信给你吧</blockquote>
 大佬，求扩展库链接
 
+
+*****
+
+####  chaos7  
+##### 119#       发表于 2024-1-27 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63786935&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-1-26 18:49</a>
+
+一样的啊。先信任扩展就能用，都没变
+
+扩展库链接我私信给你吧</blockquote>
+大佬，同求扩展库链接。
+

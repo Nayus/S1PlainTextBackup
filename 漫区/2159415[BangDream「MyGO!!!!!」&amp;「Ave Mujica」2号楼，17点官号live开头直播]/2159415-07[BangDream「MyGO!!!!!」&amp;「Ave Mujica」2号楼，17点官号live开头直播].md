@@ -13791,3 +13791,50 @@ Requiescat in pace （安息吧）</blockquote>
 海鈴：：R.I.P.（Requiescat in pace）。悼念世界的死吧</blockquote>
 live的时候就在和群友激烈讨论了，海铃渴望悖德感是什么暗示，难道说海铃=真希可能性微存？（不是
 
+
+*****
+
+####  cindy355  
+##### 10396#       发表于 2024-1-27 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63798745&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-27 21:41</a>
+
+因为拉丁语里c就是念k，并且这个词实际上是写作pāce，a是长音。这里完全没念错。
+
+英语人特有的傲慢会按 ...</blockquote>
+居然是这样，是意大利语才念チェ吗
+
+*****
+
+####  假药入脑不可取  
+##### 10397#       发表于 2024-1-27 21:44
+
+<blockquote>cindy355 发表于 2024-1-27 21:44
+居然是这样，是意大利语才念チェ吗</blockquote>
+比如贝阿朵莉切
+
+*****
+
+####  爱丁堡official  
+##### 10398#       发表于 2024-1-27 21:45
+
+这就是月之森的传承吗？中二少女，大方地展现自己的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ecauchy  
+##### 10399#       发表于 2024-1-27 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63798783&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-27 21:44</a>
+
+居然是这样，是意大利语才念チェ吗</blockquote>
+念「切」的是教会式拉丁语。
+
+简单说拉丁语作为一种死语言，它现在有三种念法：
+
+1. 古典式。说白了就是正确念法，按照历史上罗马帝国时期的发音念。按照古典式的发音，ce念「剋」。
+
+2. 通用式。就是各地没文化的蛮子的方言念法。其中最重要的是英美人的英式念法，按这个发音，ce念「丝」。
+
+3. 教会式。就是梵蒂冈教廷的念法。一开始还是继承古典式不动，后来到20世纪初坚持不动了，转而拥抱意大利的通用式念法（类似同期中国的白话文运动）。那么按照意大利人的拼法，ce的发音是「切」。
+

@@ -14347,3 +14347,13 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行</bloc
 
 数字单曲会是角色曲吗，5首歌正好数量很合适，不过这样2nd是不是就要没有翻唱，堕天是不是可以放出来了，一定要把live版放出来啊，太劲儿了。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  utotqe  
+##### 10439#       发表于 2024-1-28 07:48
+
+六月七月不选在满月live是因为这次小剧场3创造了私人便携月亮可以随便活动了吗
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

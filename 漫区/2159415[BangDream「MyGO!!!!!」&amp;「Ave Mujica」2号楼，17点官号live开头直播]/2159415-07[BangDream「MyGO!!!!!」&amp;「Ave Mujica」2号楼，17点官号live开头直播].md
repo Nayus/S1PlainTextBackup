@@ -14215,3 +14215,16 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行</bloc
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ddy2811  
+##### 10428#       发表于 2024-1-28 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63799721&amp;ptid=2159415" target="_blank">黑夜落叶秋天 发表于 2024-1-27 23:12</a>
+
+草 这样一看好中二 祥子你脑子里都想着什么（）</blockquote>
+祥子一直都是个重度中二病吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且这应该来源于她想要“破坏”什么或者叫“毁灭世界”来创造新世界的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

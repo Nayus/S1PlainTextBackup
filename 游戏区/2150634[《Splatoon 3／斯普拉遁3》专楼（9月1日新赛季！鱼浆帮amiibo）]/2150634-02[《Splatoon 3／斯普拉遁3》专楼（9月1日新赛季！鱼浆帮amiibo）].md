@@ -11633,3 +11633,13 @@ http://t.cn/A6jJkMBB
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Junakr  
+##### 2657#       发表于 2024-1-27 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不知道有些野人要金蛋没有要红蛋也很少也不杀大鲑是来干嘛的。
+
+不想打的话玩啥游戏不好。
+

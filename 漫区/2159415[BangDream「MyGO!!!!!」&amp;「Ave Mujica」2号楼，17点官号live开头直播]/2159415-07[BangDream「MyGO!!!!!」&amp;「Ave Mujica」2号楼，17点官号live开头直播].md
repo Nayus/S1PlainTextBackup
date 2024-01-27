@@ -11358,3 +11358,13 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 外战，是指东映滚？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yicihanshu  
+##### 10141#       发表于 2024-1-27 10:20
+
+东映搞得那个能算滚么，不是一眼拉拉。花田十辉，酒井和男，平山理志，整个一个水团动画核心班底，一看竞争对象就应该是幻日夜羽。
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

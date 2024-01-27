@@ -11630,3 +11630,11 @@ mygo团内撕、mujica团内撕，转为mygo和mujica撕<img src="https://static
 
 不知道官方是不是拿台北试水看看场子能不能坐满再决定上海场地多大，希望看了这个情况能给上海那边整个2-3k的场子吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10167#       发表于 2024-1-27 14:15
+
+看到有现地的人说看到mggm了，老登还真是场场不缺席<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

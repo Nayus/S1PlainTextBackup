@@ -818,3 +818,22 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 
 —— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kazepollar  
+##### 83#       发表于 2024-1-27 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63792402&amp;ptid=2169622" target="_blank">空洞骑士 发表于 2024-1-27 10:26</a>
+ 刚下试玩，之前都没注意到，原来这个游戏只是Pocketpair发行，根本不是他们做的感觉之前看到的那个星露谷" ...</blockquote>
+应该是一个公司？点进这个开发商的页面还是那些游戏
+
+*****
+
+####  helix  
+##### 84#       发表于 2024-1-27 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63792623&amp;ptid=2169622" target="_blank">Kazepollar 发表于 2024-1-27 10:46</a>
+应该是一个公司？点进这个开发商的页面还是那些游戏</blockquote>
+steam有些小开发商点进去就直接是发行的页面
+

@@ -11394,3 +11394,18 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 喜歡合號是吧，那武士道你可要平等地噁心所有人才行捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  skives  
+##### 10144#       发表于 2024-1-27 10:45
+
+出发 向横须贺冲刺<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10145#       发表于 2024-1-27 10:50
+
+樓友現地勢加油，多喊點call<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

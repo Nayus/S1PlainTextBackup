@@ -12434,3 +12434,39 @@ A团的歌，鼓手真的够累。
 话说都是提前录的，为什么不搞个字幕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 还是小剧场要之后再投？
 
+
+*****
+
+####  剪切线  
+##### 10269#       发表于 2024-1-27 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这小剧场姐妹论和怀孕论都成真了
+
+*****
+
+####  skill  
+##### 10270#       发表于 2024-1-27 17:04
+
+什么哦没得多，我一下就跳到台长的笑话大全去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  depthlee  
+##### 10271#       发表于 2024-1-27 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63795968&amp;ptid=2159415" target="_blank">skill 发表于 2024-1-27 17:04</a>
+
+什么哦没得多，我一下就跳到台长的笑话大全去了
+
+—— 来自 OPPO PEDM00, Android 13上的 S1Next-鹅 ...</blockquote>
+那么，台长上舰了吗！
+
+*****
+
+####  沃尔斯·弗兰德  
+##### 10272#       发表于 2024-1-27 17:09
+
+Angles，最初祥的一集<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -14228,3 +14228,53 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行</bloc
 
 而且这应该来源于她想要“破坏”什么或者叫“毁灭世界”来创造新世界的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 10429#       发表于 2024-1-28 00:25
+
+不知道6-7月份的live里有没有正常人MC，别搞得动画播出前都是舞台剧MC<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 10430#       发表于 2024-1-28 00:28
+
+ 本帖最后由 基神的强袭自由 于 2024-1-28 00:29 编辑 
+
+<img src="https://img.saraba1st.com/forum/202401/28/002812x8b87dzs5b1bdib7.png" referrerpolicy="no-referrer">
+
+<strong>L)AAG[@ZD]}`8R[QCJ{(O]4.png</strong> (45.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 00:28 上传
+
+无人在意的角落，灰姑娘的水晶鞋时间到了
+
+<img src="https://img.saraba1st.com/forum/202401/28/002926ad8dvef45zdi1ei1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 00:29 上传
+
+<img src="https://img.saraba1st.com/forum/202401/28/002912qa2ltkda2kkwkbqv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 00:29 上传
+
+*****
+
+####  Reinhold  
+##### 10431#       发表于 2024-1-28 00:28
+
+ 本帖最后由 Reinhold 于 2024-1-28 00:29 编辑 
+
+幕间腹语小剧场原来是没有对口型啊。还有，大祥老师的鼻子确实出戏<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

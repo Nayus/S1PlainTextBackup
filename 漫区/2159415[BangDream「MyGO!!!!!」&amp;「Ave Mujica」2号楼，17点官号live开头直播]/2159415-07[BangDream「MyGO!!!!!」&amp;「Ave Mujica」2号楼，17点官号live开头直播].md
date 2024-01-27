@@ -11427,3 +11427,32 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 10148#       发表于 2024-1-27 11:21
+
+<img src="https://img.saraba1st.com/forum/202401/27/112037q33ca0ac32j35vz2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1630.jpeg</strong> (259.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 11:20 上传
+
+是本人 就是本人ㄅ<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  剪切线  
+##### 10149#       发表于 2024-1-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63787880&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-26 20:02</a>
+如果23年7月的推是有關聯的，說的是同一件事，就不太會是在說ave mujica。
+
+因為動畫劇本是要提前至少一年製 ...</blockquote>
+拿比较熟悉的水魔举例，水魔s1播放完了之后，大河内还在写s2的剧本，这时距离s2播放已经不到3个月了，剧本要提前一年是不一定的。
+动画制作不是工业化流水线，而是手工作坊，工期上不一定会那么井井有条，有完成的快的也有完成的慢的，只要赶在死线前做完就行。脚本也不是流水线产物，也要和监督以及各方进行商议，编剧个人有写的顺利的和遇到瓶颈期也很正常。
+回到母鸡卡，从绫奈8月份的推特来看这个“最近”也可能指的是整个23年，如果是23年初写好整部动画的剧本，那么22年就写好可以用来配音的前几集剧本从时间上来说也来得及，也和mygo第五集完稿时间对得上。
+

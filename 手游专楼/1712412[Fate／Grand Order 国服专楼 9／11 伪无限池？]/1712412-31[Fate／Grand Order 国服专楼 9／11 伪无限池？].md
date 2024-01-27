@@ -609,3 +609,16 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  shimotsuki14  
+##### 45991#       发表于 2024-1-27 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63791776&amp;ptid=1712412" target="_blank">Kon-El 发表于 2024-1-27 08:43</a>
+烟雾镜卡材料了
+
+—— 来自 vivo V1990A, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+216个，没想到吧
+我也没想到<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

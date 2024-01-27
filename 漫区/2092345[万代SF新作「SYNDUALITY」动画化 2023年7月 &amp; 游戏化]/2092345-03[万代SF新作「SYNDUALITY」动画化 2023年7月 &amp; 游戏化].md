@@ -2708,3 +2708,23 @@ op翻译得不错
 
 这里夏尔和米斯提的对话也翻得还行
 
+
+*****
+
+####  Evomenon  
+##### 3569#       发表于 2024-1-27 09:54
+
+感谢奶茶屋！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3570#       发表于 2024-1-27 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63788831&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-1-26 21:16</a>
+
+第16話「Noir Rain」
+
+https://youtu.be/J2sgUdpwpmU</blockquote>
+神奇的是第一张图，预告里面好像没看到（
+

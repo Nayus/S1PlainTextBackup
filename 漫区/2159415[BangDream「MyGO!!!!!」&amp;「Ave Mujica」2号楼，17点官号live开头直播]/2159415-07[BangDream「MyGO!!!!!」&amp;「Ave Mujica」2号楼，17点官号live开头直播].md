@@ -12291,3 +12291,78 @@ wsd的调音还是那么令人绝望<img src="https://static.saraba1st.com/image
 键盘手有点太惜命了，镜头切过去都在跳舞是怎么回事</blockquote>
 这是我们mujica的主舞，很敬业的！
 
+
+*****
+
+####  剪切线  
+##### 10251#       发表于 2024-1-27 16:43
+
+这默剧是接动画13集最后的舞台剧的，那么脚本会是谁
+
+*****
+
+####  笋干爆炸碱  
+##### 10252#       发表于 2024-1-27 16:49
+
+无缝衔接堕天，最喜欢的一集
+
+*****
+
+####  KirigawaMaki  
+##### 10253#       发表于 2024-1-27 16:50
+
+无缝衔接太爽了
+
+*****
+
+####  yevvet  
+##### 10254#       发表于 2024-1-27 16:51
+
+李子这唱功太牛了吧
+
+*****
+
+####  秘银mithril  
+##### 10255#       发表于 2024-1-27 16:51
+
+爽到了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Talandar  
+##### 10256#       发表于 2024-1-27 16:51
+
+感觉睦头人和初华在进行拉克希尔仪式，谁赢了谁就能迎娶祥零嫂(つд⊂)
+
+*****
+
+####  Kfly  
+##### 10257#       发表于 2024-1-27 16:52
+
+火力无限哇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 10258#       发表于 2024-1-27 16:52
+
+茜姨不愧是职业的，无限火力啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10259#       发表于 2024-1-27 16:52
+
+喵梦活下去！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 10260#       发表于 2024-1-27 16:52
+
+茜姨累趴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

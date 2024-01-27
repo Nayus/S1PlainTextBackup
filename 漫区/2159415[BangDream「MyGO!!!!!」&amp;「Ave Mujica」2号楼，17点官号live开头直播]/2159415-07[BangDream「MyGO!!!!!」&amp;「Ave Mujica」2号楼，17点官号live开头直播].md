@@ -12911,3 +12911,139 @@ eplus回放快點吐出來<img src="https://static.saraba1st.com/image/smiley/fa
 
 喜极而泣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 10321#       发表于 2024-1-27 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天喵梦上身的米泽神情严肃，唯一受伤的人找到了
+
+*****
+
+####  PDQ4  
+##### 10322#       发表于 2024-1-27 17:43
+
+这场的李子真的太初华了，好疯好喜欢，除了身高。双月李子和结月俩人背靠背的时候直接笑出声，李子本来就矮，结月还有帽子，更明显了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10323#       发表于 2024-1-27 17:43
+
+eplus好没用，怎么还没放出来<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 10324#       发表于 2024-1-27 17:44
+
+<img src="https://img.saraba1st.com/forum/202401/27/174431k5mg9vvvotzjg95v.jpg" referrerpolicy="no-referrer">
+
+<strong>719C8F55-C8DC-4D67-B387-BBE0747D8E59.jpg</strong> (338.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 17:44 上传
+
+祥子已经在等车了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  PDQ4  
+##### 10325#       发表于 2024-1-27 17:45
+
+本来看到睦哭还以为为世界死了而悲伤，结果是喜极而泣，查询祥子精神状态，或许应该查询鸡团全员精神状态。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10326#       发表于 2024-1-27 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/27/174645c0wus0tunm0we00w.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240127-093627_1751177337398497725_photo.jpg</strong> (574.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 17:46 上传
+
+[https://twitter.com/Kanon_Takao/status/1751177337398497725](https://twitter.com/Kanon_Takao/status/1751177337398497725)
+
+*****
+
+####  cindy355  
+##### 10327#       发表于 2024-1-27 17:48
+
+在客厅用超大屏幕爽看，我爹突然坐到我身边，幕间小剧场我汗流浃背地介绍这是这个乐队特有的幕间舞台剧，他点点头不说话，结果看到第四首突然说弹键盘的人鼻子有点大，我差点没绷住。
+
+*****
+
+####  すぴぱら  
+##### 10328#       发表于 2024-1-27 17:49
+
+大鼻子姐姐可爱！
+
+*****
+
+####  御幸一也  
+##### 10329#       发表于 2024-1-27 17:49
+
+好看捏
+
+<img src="https://img.saraba1st.com/forum/202401/27/174912l5j4nq5mtv6zjggd.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_SCHECTER GUITAR JPN(@Schecter_JAPAN)_20240127-071651_1751142208047305017_photo.jpg</strong> (678.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 17:49 上传
+
+[https://twitter.com/Schecter_JAPAN/status/1751142208047305017](https://twitter.com/Schecter_JAPAN/status/1751142208047305017)
+
+*****
+
+####  利维豚  
+##### 10330#       发表于 2024-1-27 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796436&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-27 17:48</a>
+在客厅用超大屏幕爽看，我爹突然坐到我身边，幕间小剧场我汗流浃背地介绍这是这个乐队特有的幕间舞台剧，他 ...</blockquote>
+不信，肯定是段子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10331#       发表于 2024-1-27 17:50
+
+李子你是完美的初華！
+就是有點矮<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/27/174945pkahffquyuqkqkub.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240127-093814_1751177788965732453_photo.jpg</strong> (726.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 17:49 上传
+
+[https://twitter.com/sasakirico/status/1751177788965732453](https://twitter.com/sasakirico/status/1751177788965732453)
+
+*****
+
+####  skives  
+##### 10332#       发表于 2024-1-27 17:50
+
+太炸裂了  整个人已经是缺氧状态
+总感觉第二个舞台剧演的是祥子发现其他四个人和自己一样疯时产生的惊喜
+
+*****
+
+####  御幸一也  
+##### 10333#       发表于 2024-1-27 17:52
+
+這次舞台劇確實很癲，又中二又狂氣，查詢祥子的精神狀態<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

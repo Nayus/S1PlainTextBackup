@@ -13597,3 +13597,38 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行</bloc
 
 想起之前看见B站某个灯祥up主奶过喵睦，结果竟然真有这对啊
 
+
+*****
+
+####  星空冻结  
+##### 10383#       发表于 2024-1-27 20:53
+
+睦是🐔团团宠的可能性很高好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 10384#       发表于 2024-1-27 20:54
+
+真快啊
+
+*****
+
+####  PDQ4  
+##### 10385#       发表于 2024-1-27 20:57
+
+团外不好说，团内乱炖才正常，不如说海铃现在疑似只和喵睦拉上线才是不正常的，祥子明明是招募人现在还缺对手戏，动画赶紧抬上来吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要是每次live都有世界观小剧场更好了，我自己脑补小动画。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 10386#       发表于 2024-1-27 20:59
+
+ 本帖最后由 穗波殊 于 2024-1-27 21:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63798290&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-27 20:53</a>
+
+睦是🐔团团宠的可能性很高好吧</blockquote>
+编辑。进错楼了
+

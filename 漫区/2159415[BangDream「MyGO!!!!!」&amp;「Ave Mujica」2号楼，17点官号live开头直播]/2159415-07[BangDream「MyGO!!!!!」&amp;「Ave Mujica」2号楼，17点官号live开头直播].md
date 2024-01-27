@@ -12366,3 +12366,71 @@ wsd的调音还是那么令人绝望<img src="https://static.saraba1st.com/image
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  z2150966  
+##### 10261#       发表于 2024-1-27 16:53
+
+鼓手活下去！
+
+*****
+
+####  黄昏现白骨  
+##### 10262#       发表于 2024-1-27 16:53
+
+真听爽了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  剪切线  
+##### 10263#       发表于 2024-1-27 16:56
+
+安可，还有两首了
+
+*****
+
+####  フミさん  
+##### 10264#       发表于 2024-1-27 16:57
+
+大喵老师太拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  6030sylar  
+##### 10265#       发表于 2024-1-27 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结月这头盔是吧
+
+<img src="https://img.saraba1st.com/forum/202401/27/165837cw42z5vvu475o740.png" referrerpolicy="no-referrer">
+
+<strong>2G2230[V)1N57ZW_)4{PZ(U.png</strong> (50.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 16:58 上传
+
+*****
+
+####  Fragment  
+##### 10266#       发表于 2024-1-27 17:00
+
+默剧时间，前面这几首串下来好爽<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">给鼓手猛上强度
+
+*****
+
+####  Case  
+##### 10267#       发表于 2024-1-27 17:01
+
+A团的歌，鼓手真的够累。
+
+*****
+
+####  阿萨德飞过去  
+##### 10268#       发表于 2024-1-27 17:02
+
+话说都是提前录的，为什么不搞个字幕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+还是小剧场要之后再投？
+

@@ -11716,3 +11716,39 @@ mygo团内撕、mujica团内撕，转为mygo和mujica撕<img src="https://static
 叔叔赚麻了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/c4634c20174f538634a6fb9e6b1be0bf/IMG_CMP_223588220.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 10177#       发表于 2024-1-27 15:03
+
+要是国内live门票也138还不用担心食宿那确实能开。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狐式重型坦克  
+##### 10178#       发表于 2024-1-27 15:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一看也不离谱，也就头部管人的水平
+
+*****
+
+####  PDQ4  
+##### 10179#       发表于 2024-1-27 15:06
+
+这还是有超低价票，没有live看有多少人续，怎么比得过管人<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 10180#         楼主| 发表于 2024-1-27 15:07
+
+年轻人的第一次上舰
+
+*****
+
+####  狐式重型坦克  
+##### 10181#       发表于 2024-1-27 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">什么？只要138吗，我还买贵了
+

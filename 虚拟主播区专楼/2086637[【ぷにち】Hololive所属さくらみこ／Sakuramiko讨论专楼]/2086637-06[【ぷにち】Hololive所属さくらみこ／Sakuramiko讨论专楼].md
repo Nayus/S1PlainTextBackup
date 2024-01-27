@@ -6276,3 +6276,13 @@ miko要学高手玩微操
 
 这就是fubumiko的开始吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8091#         楼主| 发表于 2024-1-27 13:33
+
+今天486直播说下周旅行时间是周一到周三
+
+难怪说周末要赶紧抓到传说级，不过这么看大概率是今天先抓，明天播会限这个日程会比较理想，看看什么情况了
+

@@ -14198,3 +14198,20 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行</bloc
 
 我都懒得翻，果然是没发。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狐式重型坦克  
+##### 10426#       发表于 2024-1-28 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">失败主义谋士又出动了
+
+*****
+
+####  dqtql  
+##### 10427#       发表于 2024-1-28 00:08
+
+独角兽继续祥化，观众继续素食化<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

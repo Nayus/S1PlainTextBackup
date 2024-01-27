@@ -14008,3 +14008,66 @@ live的时候就在和群友激烈讨论了，海铃渴望悖德感是什么暗�
 祥子：我特別地，讓你也看到這一切吧。開始之時，以及新世界的所有。因為，你那雙眼睛，都看到了吧。看到了世界被毀滅，然後重新創造出來的瞬間。你看到了這一切。也就是說，你是目擊者。然後，也是我們的共犯。
 初華：今夜，新的世界開始了。我們將會重生為真正的自己。
 
+
+*****
+
+####  御幸一也  
+##### 10410#       发表于 2024-1-27 22:24
+
+沒有校對，如果有錯找一下我<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 10411#       发表于 2024-1-27 22:27
+
+最后这段，赛博小祥电梯那里是不是神预言了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 10412#       发表于 2024-1-27 22:29
+
+<img src="https://img.saraba1st.com/forum/202401/27/222750jszdc4zolo4cdccz.png" referrerpolicy="no-referrer">
+
+<strong>YMARBEVT`EM{A{_}X}6WRZ8_tmb.png</strong> (168.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 22:27 上传
+
+<img src="https://img.saraba1st.com/forum/202401/27/222800fg29a93m92id3f13.png" referrerpolicy="no-referrer">
+
+<strong>}VA)YIP32_]Y[6RK7RX{D)J_tmb.png</strong> (150.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202401/27/222806xcnj4rrsk7zn5jb4.png" referrerpolicy="no-referrer">
+
+<strong>~{XT_BFK5XTM2(]NYLDS1Q8_tmb.png</strong> (77.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202401/27/222813vd9fz61huq9ddkds.png" referrerpolicy="no-referrer">
+
+<strong>]{H0UVE31OE3]@KFLM)N_tmb.png</strong> (110.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202401/27/222817crbcjneararhrcc3.png" referrerpolicy="no-referrer">
+
+<strong>85[VGKBG384`AIS2A}{LH6E_tmb.png</strong> (343.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 22:28 上传
+
+看完了以后没什么感想，只能说楼顶跟楼下是两个世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12605,3 +12605,177 @@ Angles，最初祥的一集<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://p.sda1.dev/15/f5e552300839ace5ef2f3717a25ab163/CMP_20240127162515635.jpg" referrerpolicy="no-referrer">
 顺带一提第一主角是林鼓子。她俩的CP是本作美帝之一。都这样了鸡狗粉丝还不来看美妙频道第二季吗。楼友看了都说好。
 
+
+*****
+
+####  笋干爆炸碱  
+##### 10291#       发表于 2024-1-27 17:21
+
+好像喝了很烈的酒
+
+*****
+
+####  Aendst  
+##### 10292#       发表于 2024-1-27 17:22
+
+但是查询一下舞台剧剧本作者的精神状态，有点担忧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10293#       发表于 2024-1-27 17:23
+
+所以舞台剧剧本是谁写的，可以透露一下吗，这对我很重要<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 10294#       发表于 2024-1-27 17:24
+
+是丰川祥子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10295#       发表于 2024-1-27 17:24
+
+神奈川県民ホール 大ホール 
+
+広い舞台と充実した舞台機構を備え、オペラやバレエ等の大掛かりな公演にも対応できる多目的ホールです。クラシックやポピュラーのコンサートをはじめ、各種の大会や式典など多彩な催しが行われています。
+
+定員（収容人数）2,493人
+
+愛知県芸術劇場 大ホール  
+
+大ホール(2480席)は本格的なオペラやバレエ、ミュージカルが上演できるスケールの大きな舞台機構を備える。 
+
+查了下2nd live的場子大小，不懂為什麼會分2場還隔了一個月，還不在同一個地方……又不是巡演<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+然後果然又都是適合演舞台劇的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Toki_Ai  
+##### 10296#       发表于 2024-1-27 17:25
+
+看了一下日期，2nd七月时间有点麻烦应该那天不开播，那样6月的舰卡不卡时间好像都随意，所以mygo到底下月放还是不放，就看wsd了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 10297#       发表于 2024-1-27 17:25
+
+太爽了，初睦祥互动也看爽了，还捡到了喵睦<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  krowbullet  
+##### 10298#       发表于 2024-1-27 17:26
+
+好爽
+
+*****
+
+####  PDQ4  
+##### 10299#       发表于 2024-1-27 17:26
+
+祥子有收妹妹的癖好，你到底有几个好妹妹，不会世界观里大家都是你妹妹吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10300#       发表于 2024-1-27 17:27
+
+今天真的很棒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/27/172654t1nqmek92cpkp2u1.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_バンドリ！ BanG Dream! 公式(@bang_dream_info)_20240127-092035_1751173346.jpg</strong> (133.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 17:26 上传
+
+[https://twitter.com/bang_dream_info/status/1751173346082050124](https://twitter.com/bang_dream_info/status/1751173346082050124)
+
+*****
+
+####  PDQ4  
+##### 10301#       发表于 2024-1-27 17:27
+
+我要回看，eplus赶紧放出来啊！
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10302#       发表于 2024-1-27 17:27
+
+祥子是最小的，但看谁都是妹<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10303#       发表于 2024-1-27 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796213&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-27 17:26</a>
+
+祥子有收妹妹的癖好，你到底有几个好妹妹，不会世界观里大家都是你妹妹吧 ...</blockquote>
+年齡最小的人利用職務之便到處讓人叫她姐姐，祥子真是壞女人<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 10304#       发表于 2024-1-27 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">看high了，这场的收音很好，有爽到！
+
+eplus快点开录播，我要回溜无缝衔接堕天
+
+*****
+
+####  剪切线  
+##### 10305#       发表于 2024-1-27 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796071&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-27 17:15</a>
+新单曲+五个月连发新歌，看来2nd不怕没歌了</blockquote>
+原本8首+5首，mygo动画前都没这么多歌，现在没人怀疑武士道怠慢母鸡卡了吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|观察物种多样脑回路|
+| 御幸一也|-1|您好急，那我也急了|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 10306#       发表于 2024-1-27 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796227&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-27 17:27</a>
+
+年齡最小的人利用職務之便到處讓人叫她姐姐，祥子真是壞女人</blockquote>
+这台上吃得便宜台下不得狠狠吐出来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10307#       发表于 2024-1-27 17:31
+
+你要是动画一月播，那两团原创曲数量是一样的。俩ppt的mv新曲好意思跟动画比？
+
+要不这个待遇给狗吧，这么好的待遇和曲子呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10308#       发表于 2024-1-27 17:33
+
+大喜的日子大家看爽了，有些人只想着拉踩攀比，就这还讲不切割，确实和本人id很符合就是了，直接给我干阳痿了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

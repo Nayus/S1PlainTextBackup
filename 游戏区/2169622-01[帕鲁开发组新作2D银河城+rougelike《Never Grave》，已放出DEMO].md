@@ -889,3 +889,11 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202401/27/113848t8jj5jdj2hxllmzb.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fuochai  
+##### 90#       发表于 2024-1-27 12:59
+
+构思优化 电脑带不动 是demo没给关特效的选项？第一次见我笔电带不动的2d游戏
+

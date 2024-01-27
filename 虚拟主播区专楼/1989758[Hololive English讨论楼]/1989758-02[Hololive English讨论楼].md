@@ -167,3 +167,13 @@ She is too perfect
 
 忙完一天回来才发现gura和mumei今儿都开了台，今天什么大好日子
 
+
+*****
+
+####  shimmy1996  
+##### 1918#       发表于 2024-1-27 12:59
+
+<img src="https://p.sda1.dev/15/72ca6d0e96f3f48d8fb8c7798c1cdff8/primary-color-ame.jpg" referrerpolicy="no-referrer">
+
+RYB AME<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

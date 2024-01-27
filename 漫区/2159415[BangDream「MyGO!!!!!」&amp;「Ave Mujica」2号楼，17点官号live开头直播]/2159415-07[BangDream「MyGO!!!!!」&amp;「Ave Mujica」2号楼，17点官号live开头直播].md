@@ -14071,3 +14071,24 @@ live的时候就在和群友激烈讨论了，海铃渴望悖德感是什么暗�
 
 看完了以后没什么感想，只能说楼顶跟楼下是两个世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 10413#         楼主| 发表于 2024-1-27 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63799171&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-27 22:24</a>
+
+沒有校對，如果有錯找一下我</blockquote>
+翻完整合一下到置顶的那层吧
+
+*****
+
+####  御幸一也  
+##### 10414#       发表于 2024-1-27 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63799302&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-1-27 22:35</a>
+
+翻完整合一下到置顶的那层吧</blockquote>
+合了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

@@ -2696,3 +2696,14 @@ QQ图片20240125213251.jpg
 
 看板娘手办延期了，虽然就没想过能按时出货
 
+
+*****
+
+####  csolfans  
+##### 19386#       发表于 2024-1-27 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63777456&amp;ptid=2078110" target="_blank">lj205 发表于 2024-1-25 23:41</a>
+
+鱼2月太忙了，周末在日本都有安排，团队的，还有个人新专活动，挑这天应该是日本工作后有几天假可以回国过 ...</blockquote>
+鱼刚开完国内生日会那时，我提了一嘴星5th+LL企划本身活动+二专准备发售，各种广播，拼盘演出+3巡，鱼大几率也是照旧5月份回国办live。只能说我太低估了鱼的决心，没想到就算挤时间回国也要把国内FMT挤出来，原因直播也提到了，觉得一年才回来一次办活动，实在不太好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是这个时间段只能说对大部分外省粉丝（特别是社畜）都不太友好，当然也顺便调研一下核心粉丝的数量。（哎有一说一我更喜欢鱼的fmt，这次不能去，实在太气了。
+

@@ -765,3 +765,14 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 
 女主立绘一眼吉田明彦
 
+
+*****
+
+####  Byooon  
+##### 78#       发表于 2024-1-27 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63782197&amp;ptid=2169622" target="_blank">魔法酪饼 发表于 2024-1-26 11:43</a>
+
+这厂子挺有灵性的，从超载地牢开始产品定位就很有品位，不知道研发核心是哪个，老板么？ ...</blockquote>
+亦或者是核心团队里某只帕鲁。
+

@@ -12132,3 +12132,98 @@ wsd的调音还是那么令人绝望<img src="https://static.saraba1st.com/image
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  紫吹兰  
+##### 10231#         楼主| 发表于 2024-1-27 16:22
+
+<img src="https://img.saraba1st.com/forum/202401/27/162224b6lsoi6ioeqsdrcp.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240127162128.png</strong> (9.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 16:22 上传
+
+你是？
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10232#       发表于 2024-1-27 16:22
+
+睦的攻击力我认可了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苟富贵daze  
+##### 10233#       发表于 2024-1-27 16:22
+
+腹语人偶，符合世界观<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10234#       发表于 2024-1-27 16:24
+
+虽然日语听不懂，但是这个姐姐大人是真蚌埠住，祥子看谁都是妹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10235#       发表于 2024-1-27 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听不懂纯看默剧有点难绷
+
+*****
+
+####  Amoris  
+##### 10236#       发表于 2024-1-27 16:25
+
+难绷
+
+*****
+
+####  我有一个朋友  
+##### 10237#       发表于 2024-1-27 16:25
+
+祥子怎么总想着收妹妹啊，真就年下才爱装成熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  盐星  
+##### 10238#       发表于 2024-1-27 16:26
+
+腹语中二小短剧太有笑果了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 10239#       发表于 2024-1-27 16:26
+
+祥子多少沾点妹控吧，见人就叫妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10240#       发表于 2024-1-27 16:27
+
+6730舰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可以了
+
+*****
+
+####  6030sylar  
+##### 10241#       发表于 2024-1-27 16:28
+
+1st才是13集的live而不是0th吧，所以退场时小祥还要自己坐电车
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10242#       发表于 2024-1-27 16:32
+
+披头散发的鼓手太拼命了
+

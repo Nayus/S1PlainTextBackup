@@ -784,3 +784,37 @@ demo的完成度很高，角色动作相当细腻，手感有点硬不过适应�
 
 试玩的bug有点多啊，开始玩刚十分钟就给我卡了一个强制战斗房间门关上人没进去……绕了两圈发现不是机关门只能重开，后面人踩上去会自动消失的砖块还能把人卡在空中的。行动设计也有点怪，非跳跃离开平台就可以在空中再次跳跃，平a三连有超长攻击冷却但上劈和蹲劈可以快速无限连，感觉能力增多之后会有很多奇技淫巧。试玩的地图不太有特色，但看pv里后面可能还有不少跳跳乐，是不是有点离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空洞骑士  
+##### 80#       发表于 2024-1-27 10:26
+
+刚下试玩，之前都没注意到，原来这个游戏只是Pocketpair发行，根本不是他们做的
+
+<img src="https://img.saraba1st.com/forum/202401/27/102531d9gnmcczz8nmnhmf.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-01-27_10-24-30.png</strong> (39.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 10:25 上传
+
+感觉之前看到的那个星露谷"原班人马"游戏也挺适合找他们发行的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂谈物语  
+##### 81#       发表于 2024-1-27 10:29
+
+6，去试试
+
+*****
+
+####  棍机凹升龙  
+##### 82#       发表于 2024-1-27 10:30
+
+好家伙，搞快点
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

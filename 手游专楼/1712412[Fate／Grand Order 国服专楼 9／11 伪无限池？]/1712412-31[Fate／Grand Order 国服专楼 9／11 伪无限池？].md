@@ -622,3 +622,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 216个，没想到吧
 我也没想到<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 45992#       发表于 2024-1-27 10:26
+
+就是和当年艾蕾一个数量嘛，只是当年艾蕾可以提前刷，烟雾镜要从现在开始而已。
+

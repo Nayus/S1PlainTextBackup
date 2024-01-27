@@ -11368,3 +11368,13 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 —— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  御幸一也  
+##### 10142#       发表于 2024-1-27 10:29
+
+東映那個不是一眼暴死，難道真的有人期待的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但有一說一歌還可以，就是一看3D我就萎了
+

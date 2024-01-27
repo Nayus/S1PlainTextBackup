@@ -2728,3 +2728,23 @@ op翻译得不错
 https://youtu.be/J2sgUdpwpmU</blockquote>
 神奇的是第一张图，预告里面好像没看到（
 
+
+*****
+
+####  罗克萨斯  
+##### 3571#       发表于 2024-1-27 10:24
+
+青梅竹马和歌姬都好萌，这不开后宫能忍<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  terminator1990  
+##### 3572#       发表于 2024-1-27 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63790358&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-01-26 23:40:11</a>
+这里夏尔和米斯提的对话也翻得还行</blockquote>那个看好的“看”读第一声的话应该也不能算错
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

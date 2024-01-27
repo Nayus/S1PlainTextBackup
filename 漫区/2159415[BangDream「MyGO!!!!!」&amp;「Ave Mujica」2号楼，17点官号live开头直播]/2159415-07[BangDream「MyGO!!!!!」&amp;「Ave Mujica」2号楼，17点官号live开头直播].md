@@ -13246,3 +13246,39 @@ Mujica才会有安可环节
 
 真舞台剧还有弹唱，是不是有点太累了，真没休息时间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 10354#       发表于 2024-1-27 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796637&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-27 18:05</a>
+
+话说2nd的剧场能坐多少人啊？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+
+神奈川県民ホール 大ホール
+
+2,493
+
+愛知県芸術劇場 大ホール  
+
+2,480
+
+又是都找的適合演劇的劇場
+
+*****
+
+####  NODY  
+##### 10355#       发表于 2024-1-27 18:13
+
+放录音明显是为了照顾米泽老师的体力和工作量，再加个演舞台剧和背台词真的是要人命了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10356#       发表于 2024-1-27 18:18
+
+鼓手太拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

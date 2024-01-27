@@ -11623,3 +11623,13 @@ http://t.cn/A6jJkMBB
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2656#       发表于 2024-1-27 11:25
+
+怎么还有开炮都能不过的，抽到个熊武器就开始浪，你浪你妈呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

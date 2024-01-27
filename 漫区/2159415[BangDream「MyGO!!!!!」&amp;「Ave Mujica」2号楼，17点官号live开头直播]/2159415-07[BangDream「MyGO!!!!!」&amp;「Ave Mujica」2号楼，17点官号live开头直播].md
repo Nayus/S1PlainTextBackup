@@ -11475,3 +11475,13 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 不過你後半我覺得可以這樣說，23年7月綾奈完成的是ave mujica動畫最後幾話的劇本，年初部落格那邊說的是整個ave動畫的劇本，這樣還是有道理的
 
+
+*****
+
+####  御幸一也  
+##### 10151#       发表于 2024-1-27 11:57
+
+不過，推這些不拿常識和訪談推，難道拿你腦補的東西去推嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+你不會覺得水魔那種亂成一團的製作現場才是正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

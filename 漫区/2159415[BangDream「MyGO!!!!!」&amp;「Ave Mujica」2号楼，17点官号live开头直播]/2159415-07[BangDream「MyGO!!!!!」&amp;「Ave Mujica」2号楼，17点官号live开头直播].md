@@ -13884,3 +13884,34 @@ live的时候就在和群友激烈讨论了，海铃渴望悖德感是什么暗�
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  基神的强袭自由  
+##### 10404#       发表于 2024-1-27 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63797995&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-27 20:29</a>
+幕間劇場1
+
+祥子：Doloris…Doloris！</blockquote>
+在现场只能听懂三分之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 10405#       发表于 2024-1-27 22:05
+
+<img src="https://img.saraba1st.com/forum/202401/27/220515dgi4em4zamym5vza.jpg" referrerpolicy="no-referrer">
+
+<strong>70112F0F-EF67-4EF6-A4DA-420E2BB5A99B.jpg</strong> (444.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 22:05 上传
+
+你敢违抗拥有巴耶力的初华吗（摊手）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

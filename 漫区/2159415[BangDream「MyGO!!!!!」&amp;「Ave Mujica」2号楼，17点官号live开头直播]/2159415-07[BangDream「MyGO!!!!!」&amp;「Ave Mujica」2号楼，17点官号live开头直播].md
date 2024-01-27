@@ -11561,3 +11561,34 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 你不會覺得水魔那種亂成一團的製作現場才 ...</blockquote>
 很随意的发言是经不起严谨的推测的啊，只能说不一定，全都是猜测
 
+
+*****
+
+####  御幸一也  
+##### 10160#       发表于 2024-1-27 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63793436&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-27 12:11</a>
+
+很随意的发言是经不起严谨的推测的啊，只能说不一定，全都是猜测</blockquote>
+大家不都是猜測，至少那個猜測能說得通，而且我也希望綾奈說的是ave mujica<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+討論不就是提供不同的觀點，你可以看不慣我喜歡引用訪談，無所謂，反正我就喜歡看各種亂七八糟的訪談<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  特拉·特尔特  
+##### 10161#       发表于 2024-1-27 12:15
+
+<img src="https://p.sda1.dev/15/e1ef12ccbb02b74a81fd0462296d4052/CMP_20240127121431602.jpg" referrerpolicy="no-referrer">
+
+[animegirls_do_i](https://twitter.com/animegirls_do_i/status/1751089368855634352?s=19)
+
+*****
+
+####  御幸一也  
+##### 10162#       发表于 2024-1-27 12:20
+
+真服了我還期待了一下是不是系統有問題，RAS台北票是真全沒了，
+
+看了下甚至1分鐘不到就全賣光了，到底是不是有黃牛入場啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

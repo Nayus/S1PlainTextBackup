@@ -1615,3 +1615,14 @@ openwrt后台开转发，然后先用telnet手机网络看能否通端口
 
 今天出了非官方的服务端优化版，楼主有尝试吗
 
+
+*****
+
+####  moeblack  
+##### 109#         楼主| 发表于 2024-1-27 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63791119&amp;ptid=2168983" target="_blank">蒜苗 发表于 2024-1-27 01:40</a>
+
+今天出了非官方的服务端优化版，楼主有尝试吗</blockquote>
+bilibili我发了视频了（）
+

@@ -12470,3 +12470,138 @@ A团的歌，鼓手真的够累。
 
 Angles，最初祥的一集<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 10273#       发表于 2024-1-27 17:15
+
+退勤草
+
+*****
+
+####  cherryjia12  
+##### 10274#       发表于 2024-1-27 17:15
+
+母鸡卡的live突出一个干净利落啊，没安可没mc没广告，唱完直接走
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  NODY  
+##### 10275#       发表于 2024-1-27 17:15
+
+新单曲+五个月连发新歌，看来2nd不怕没歌了
+
+*****
+
+####  rslika  
+##### 10276#       发表于 2024-1-27 17:15
+
+？？？没了 就一个小时出头
+
+*****
+
+####  6030sylar  
+##### 10277#       发表于 2024-1-27 17:15
+
+祥子要坐电车了
+
+*****
+
+####  DarthAka  
+##### 10278#       发表于 2024-1-27 17:17
+
+完了？有歌单么？
+
+*****
+
+####  Aliceblue  
+##### 10279#       发表于 2024-1-27 17:17
+
+忘记直播了 5点才来听了两曲就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10280#       发表于 2024-1-27 17:17
+
+结束了，好爽，但是好短。比想象的还要疯，假面舞会李子那一嗓子真爽啊，够疯！<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  寒星  
+##### 10281#       发表于 2024-1-27 17:17
+
+太短了
+
+*****
+
+####  JY要塞  
+##### 10282#       发表于 2024-1-27 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再不快点走大祥老师要挤晚高峰了
+
+*****
+
+####  苟富贵daze  
+##### 10283#       发表于 2024-1-27 17:18
+
+不愧是银河战舰，这现场太稳健了
+
+*****
+
+####  近月  
+##### 10284#       发表于 2024-1-27 17:18
+
+爽啊，太爽<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10285#       发表于 2024-1-27 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">2nd都是剧场，难道一直要到母鸡卡播出才不玩面具吗，这面具真的难绷啊
+
+*****
+
+####  御幸一也  
+##### 10286#       发表于 2024-1-27 17:19
+
+好爽的live，我的幼馴染組賣好大，有初祥 有睦祥 也有初睦，爽死啦！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10287#       发表于 2024-1-27 17:19
+
+相比0th真的是稳太多了，真正的未来可期，太爽了。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10288#       发表于 2024-1-27 17:20
+
+这场初睦卖的好大，感觉是初华中心场，果然主唱是星星啊。喵睦也对视了好几次，爽到。
+
+我要狠狠押宝初睦和喵睦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10289#       发表于 2024-1-27 17:21
+
+小剧场不是纯中二自捏而是真的有暗示的话，感觉一年下来基本上已经把第二季剧情剧透得差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 10290#       发表于 2024-1-27 17:21
+
+<img src="https://p.sda1.dev/15/2af83802b3efb235c159685c01427939/CMP_20240127162457381.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">大家！喜欢听佐佐木李子唱歌的话可以来看美妙频道第二季吗，她在这部动画里有四个形态，同时是第二主角和最终BOSS，角色形象是全系列第一的复杂，还在全系列人气投票中拿过第一。动画里她第一次唱歌的时候全体观众都被歌力震惊了。
+<img src="https://p.sda1.dev/15/b56de003359352b54c68043a04b926d1/CMP_20240127162515592.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/f5e552300839ace5ef2f3717a25ab163/CMP_20240127162515635.jpg" referrerpolicy="no-referrer">
+顺带一提第一主角是林鼓子。她俩的CP是本作美帝之一。都这样了鸡狗粉丝还不来看美妙频道第二季吗。楼友看了都说好。
+

@@ -13416,3 +13416,31 @@ syl，所以有没有小剧场的翻译
 
 祥子那个惊讶理解成幕后黑手看到自己亲自选择的成员真的和自己思考回路一致，心中窃喜但是表面依然要装一装感觉也行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10373#       发表于 2024-1-27 20:11
+
+小剧场不是独角兽写的，不过也是动画组的人
+
+<img src="https://img.saraba1st.com/forum/202401/27/201113tsjyy82bdsy5sz2h.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-8t3pZiT3cSxf-p3.jpg</strong> (104.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 20:11 上传
+
+*****
+
+####  御幸一也  
+##### 10374#       发表于 2024-1-27 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63797573&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-1-27 19:57</a>
+
+祥子那个惊讶更像是以为只有自己一个人真癫，但是发现你们几个怎么也是真癫子的那种吧
+
+syl，所以有 ...</blockquote>
+在翻了在翻了，顧著研究抓elpus源了發現抓不了，氣死了！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

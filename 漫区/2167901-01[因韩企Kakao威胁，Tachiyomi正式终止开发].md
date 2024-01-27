@@ -1410,3 +1410,18 @@ mihon连动不了bangumi了点进去报错是啥情况？
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  a_b  
+##### 116#       发表于 2024-1-27 20:11
+
+怎么刚开始用就出这么个事，有点霉了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  很久就在那边l  
+##### 117#       发表于 2024-1-27 20:12
+
+以前不用翻墙，现在手动添加的扩展源翻墙才能用
+

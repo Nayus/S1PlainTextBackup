@@ -1372,3 +1372,47 @@ tkn脸上还有道黑印，草台！
 
 [https://twitter.com/musihara/status/1751049929500626969/photo/1](https://twitter.com/musihara/status/1751049929500626969/photo/1)
 
+
+*****
+
+####  Saber琪  
+##### 1584#       发表于 2024-1-27 14:59
+
+[https://twitter.com/N26026258/status/1751089031562383515?s=19](https://twitter.com/N26026258/status/1751089031562383515?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/27/145741pl6vb6yx3ctvaz6s.jpg" referrerpolicy="no-referrer">
+
+<strong>20240127_145700.jpg</strong> (200.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 14:57 上传
+
+[https://twitter.com/asada7101/status/1750938162493595705?s=19](https://twitter.com/asada7101/status/1750938162493595705?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/27/145827ceaqs5xqoefk8x5x.jpg" referrerpolicy="no-referrer">
+
+<strong>20240127_145758.jpg</strong> (666.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 14:58 上传
+
+<img src="https://img.saraba1st.com/forum/202401/27/145832uia1c176n7cg6dzn.jpg" referrerpolicy="no-referrer">
+
+<strong>20240127_145800.jpg</strong> (691.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 14:58 上传
+
+[https://twitter.com/TabunnInu/status/1750944394151403719?s=19](https://twitter.com/TabunnInu/status/1750944394151403719?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/27/145900m1bsmvt2avo13w7g.jpg" referrerpolicy="no-referrer">
+
+<strong>20240127_145843.jpg</strong> (111.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 14:58 上传
+

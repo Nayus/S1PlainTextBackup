@@ -11671,3 +11671,48 @@ mygo团内撕、mujica团内撕，转为mygo和mujica撕<img src="https://static
 
 好好好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 10172#       发表于 2024-1-27 14:54
+
+官号头像变了，后面会换回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10173#       发表于 2024-1-27 14:55
+
+那不是100%會換回去的事嗎，他要是一直保持我倒要看看樂子<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  剪切线  
+##### 10174#       发表于 2024-1-27 14:55
+
+4500了，完全够在国内开live了
+
+*****
+
+####  skives  
+##### 10175#       发表于 2024-1-27 15:00
+
+经典复刻
+
+<img src="https://img.saraba1st.com/forum/202401/27/150018hgokrgygdhjdt9td.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7287.jpeg</strong> (588.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 15:00 上传
+
+*****
+
+####  Mr.Giraffe  
+##### 10176#       发表于 2024-1-27 15:02
+
+叔叔赚麻了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/c4634c20174f538634a6fb9e6b1be0bf/IMG_CMP_223588220.jpeg" referrerpolicy="no-referrer">
+

@@ -30201,3 +30201,112 @@ Ref. Words:在推理阶段是否使用指代表达
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1227#       发表于 2024-1-28 06:06
+
+Multimodal Pathway
+
+通过其他模态的交错数据改进Transformers
+
+github项目主页:https://github.com/AILab-CVC/M2PT
+
+本文提出了利用其他模态的无关数据来改进特定模态的transformers，例如，使用音频或点云数据集(audio or point cloud datasets)来改进ImageNet模型，值得强调的是，目标模态的数据样本与其他模态无关，这与其他利用不同模态的配对数据(例如CLIP)或交错数据的方法有所区别
+
+提出了一种名为Multimodal Pathway的方法，给定一个目标模态和为其设计的transformer，使用经过另一模态数据训练的辅助transformer，并构建路径来连接两个模型的组件，这样目标模态的数据就可以被两个模型处理，通过这种方式，利用从两个模态获得的transformer通用序列到序列建模能力
+
+作为具体实现，通常使用模态特定的分词器(tokenizer)和任务特定的head，但通过一种名为跨模态重参数化(Cross-Modal Re-parameterization)的方法，可以利用辅助模型的transformer blocks而不产生任何推理成本
+
+在图像、点云、视频和音频识别任务中，观察到通过来自其他模态的无关数据，获得了显著且一致的性能改进
+
+<img src="https://img.saraba1st.com/forum/202401/28/060524zaq45eqjo4z9e6sp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-055817__01.jpg</strong> (364.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:05 上传
+
+与使用对齐良好的多模态数据的已知范式相比，本文关注的是利用来自多个模态但是无关的场景的数据样本，这是目前待解决的开放问题
+
+<img src="https://img.saraba1st.com/forum/202401/28/060529jdzd5dhtb51btwdb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-055826__01.jpg</strong> (298.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:05 上传
+
+(左)M2PT(Multimodal Pathway Transformer)的框架，以点云和图像模态为例子
+
+与transformer的常见做法遵循相同的流程:
+1.使用分词器将输入数据转换为序列
+2.使用transformer block处理序列
+3.使用head解码序列
+
+通过在不同模态的组件之间建立路径来更新序列到序列的建模，因此处理特定模态的token可以利用另一个模态训练的transformer block
+
+(中间)M2PT的概念设计，其中路径是通过让目标模型中的线性层(包括注意力block中的Query/Key/Value/投影层和FFN block中的层)与辅助模型中的对应层进行合作来实现的
+
+(右边)跨模态重参数化通过使用辅助模型的参数重新参数化目标模型的权重来高效实现M2PT，引入了边际训练成本，但完全没有推理成本
+
+<img src="https://img.saraba1st.com/forum/202401/28/060547pfrof8tcpfv6rtcj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-055836__01.jpg</strong> (83.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:05 上传
+
+M2PT在图像、视频、点云和音频四个模态的每对之间都带来了一致改进，指标分别为ImageNet-1K准确率、Kinetics-400准确率、Part-Net mIoU和AudioSet准确率
+
+这些数字表示M2PT模型相对于分别在四种模态上使用MAE式方法进行预训练的基线模型性能的改进百分比
+
+<img src="https://img.saraba1st.com/forum/202401/28/060554ho9nhhqx88y9ohhq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-055845__01.jpg</strong> (225.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:05 上传
+
+在图像识别任务上的实验结果
+
+在ImageNet上，报告了线性层微调(tune acc)或固定(fix acc)的transformer block结果
+
+∗:结果是通过原版代码得出的，每个模型的架构都是ViT-B，相对于基线模型的改进显示为绿色
+
+<img src="https://img.saraba1st.com/forum/202401/28/060601gsgb2bdgqelmmsqm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-055854__01.jpg</strong> (164.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:06 上传
+
+在点云数据集上的实验结果，报告了ShapeNet-Part上的类别mIoU(mIoUC)和实例mIoUI以及PartNet上的mIoU，相对于基线模型的改进显示为绿色
+
+<img src="https://img.saraba1st.com/forum/202401/28/060605hekhd4tsetej4zg4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-055854__02.jpg</strong> (124.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:06 上传
+
+在AudioSet-2k上的实验结果，绿色同上
+
+<img src="https://img.saraba1st.com/forum/202401/28/060610qwacxz77mzo5b110.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-055901__01.jpg</strong> (101.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:06 上传
+
+在Kinetics-400上的实验结果，绿色同上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

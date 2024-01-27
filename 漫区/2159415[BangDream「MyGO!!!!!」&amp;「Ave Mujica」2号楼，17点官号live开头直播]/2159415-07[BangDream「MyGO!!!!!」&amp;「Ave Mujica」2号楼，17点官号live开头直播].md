@@ -12000,3 +12000,135 @@ wsd的调音还是那么令人绝望<img src="https://static.saraba1st.com/image
 
 初祥看来是鸡团美帝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 10213#       发表于 2024-1-27 16:13
+
+初祥这么卖的啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10214#       发表于 2024-1-27 16:15
+
+梦以！
+
+*****
+
+####  我有一个朋友  
+##### 10215#       发表于 2024-1-27 16:16
+
+李子也太帅了吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  火箭助推电锯  
+##### 10216#       发表于 2024-1-27 16:16
+
+三首连唱，主唱太拼命了！<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 10217#       发表于 2024-1-27 16:18
+
+真稳啊
+
+*****
+
+####  阿萨德飞过去  
+##### 10218#       发表于 2024-1-27 16:18
+
+真是操了，穿梭搞半天都不行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+终于进来了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">（真得把这个设计面具的开除了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10219#       发表于 2024-1-27 16:18
+
+母鸡卡真的感觉比以前好了非常多
+
+*****
+
+####  林登·万  
+##### 10220#       发表于 2024-1-27 16:19
+
+母鸡卡万岁<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秘银mithril  
+##### 10221#       发表于 2024-1-27 16:19
+
+开始舞台剧
+
+*****
+
+####  沃尔斯·弗兰德  
+##### 10222#       发表于 2024-1-27 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">开场三连实在是太劲了
+
+*****
+
+####  剪切线  
+##### 10223#       发表于 2024-1-27 16:20
+
+小剧场不是现场配音差评
+
+*****
+
+####  Nomind96  
+##### 10224#       发表于 2024-1-27 16:20
+
+提前录制的是吧
+
+*****
+
+####  6030sylar  
+##### 10225#       发表于 2024-1-27 16:20
+
+默剧吗
+
+*****
+
+####  秘银mithril  
+##### 10226#       发表于 2024-1-27 16:21
+
+人偶剧是这样的，毕竟人偶不会说话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨德飞过去  
+##### 10227#       发表于 2024-1-27 16:21
+
+艹，什么腹语。不过人偶确实不会说话<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10228#       发表于 2024-1-27 16:21
+
+估计台词本背不下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10229#       发表于 2024-1-27 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">坏了，听不懂
+
+*****
+
+####  傘木希美  
+##### 10230#       发表于 2024-1-27 16:22
+
+艹被睦头人撅了
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -13321,3 +13321,21 @@ eplus回放吐出來了！！
 
 初祥卖得我灵魂都在颤抖，从对视到二人镜头到对称甩头的疯狂小情侣再到最后结束曲圣光照耀你弹我唱，对戒含金量，谢谢款待
 
+
+*****
+
+####  lhwang11  
+##### 10362#       发表于 2024-1-27 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796151&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-1-27 17:21</a>
+
+大家！喜欢听佐佐木李子唱歌的话可以来看美妙频道第二季吗，她在这部动画里有四个形态，同时是第二 ...</blockquote>
+需要先看第一季吗
+
+*****
+
+####  PDQ4  
+##### 10363#       发表于 2024-1-27 19:10
+
+5人创造的新世界这种说法，总感觉还挺浪漫。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

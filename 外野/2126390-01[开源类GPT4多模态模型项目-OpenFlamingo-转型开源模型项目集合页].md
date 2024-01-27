@@ -30310,3 +30310,161 @@ M2PT在图像、视频、点云和音频四个模态的每对之间都带来了�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1228#       发表于 2024-1-28 06:40
+
+DeepSeek-Coder
+
+当大型语言模型遇上编程——代码智能的崛起
+
+github项目主页:https://github.com/deepseek-ai/DeepSeek-Coder
+
+大型语言模型的急速发展已经在软件开发中彻底改变了代码智能化，然而，闭源模型的主导地位限制了广泛的研究和开发，为了解决这个问题，本文介绍了DeepSeek-Coder系列，这是一系列的开源代码模型，大小从1.3B到33B不等，在2万亿Token上从头开始训练，这些模型在一个高质量的项目级代码语料库上进行了预训练，并采用了一个16K窗口的fill-in-the-blank任务来增强代码生成和填充能力
+
+进行的广泛评估表明，DeepSeek-Coder不仅在多个基准测试中取得了开源代码模型SOTA性能，还超过了现有的闭源模型，如Codex和GPT-3.5等，此外，DeepSeek-Coder模型采用宽松的许可证，允许同时进行研究和无限制的商业使用
+
+<img src="https://img.saraba1st.com/forum/202401/28/063933g63kf66uw2ko2ehm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063410__01.jpg</strong> (346.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:39 上传
+
+DeepSeek-Coder的性能
+
+<img src="https://img.saraba1st.com/forum/202401/28/063937mgmhmgwhwgjr21gy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063418__01.jpg</strong> (67.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:39 上传
+
+数据集创建过程
+
+<img src="https://img.saraba1st.com/forum/202401/28/063943tmok8zotm3mjfmcm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063439__01.jpg</strong> (315.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:39 上传
+
+选择的编程语言的清洁训练数据总结
+
+<img src="https://img.saraba1st.com/forum/202401/28/063950eq4l36z6qxux0iue.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063453__01.jpg</strong> (193.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:39 上传
+
+使用FIM作为目标的效果
+
+<img src="https://img.saraba1st.com/forum/202401/28/063954gpdgkgk6hrdjugrw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063503__01.jpg</strong> (242.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:39 上传
+
+DeepSeek-Coder的超参数
+
+<img src="https://img.saraba1st.com/forum/202401/28/064000witdht9nvkvqxdkj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063514__01.jpg</strong> (298.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+在多轮对话环境中，DeepSeek-Coder-Instruct 33B的响应示例
+
+<img src="https://img.saraba1st.com/forum/202401/28/064004ki3dat6eeze6isee.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063522__01.jpg</strong> (496.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+在多语言HumanEval和MBPP基准上的方法性能
+
+<img src="https://img.saraba1st.com/forum/202401/28/064009a88w53z8l5lwfw9w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063528__01.jpg</strong> (256.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+在DS-1000-Tasks上的不同方法性能
+
+<img src="https://img.saraba1st.com/forum/202401/28/064013cp3bvbvucosypylx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063532__01.jpg</strong> (330.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+在LeetCode Contest基准上的不同模型性能
+
+<img src="https://img.saraba1st.com/forum/202401/28/064017nocq3qoykyq9sddq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063538__01.jpg</strong> (190.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+在FIM-Tasks上的不同方法的性能
+
+<img src="https://img.saraba1st.com/forum/202401/28/064022d3btj58gw9f8cvtt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063544__01.jpg</strong> (327.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+在跨文件代码补全上的不同模型性能
+
+<img src="https://img.saraba1st.com/forum/202401/28/064026cuj3b7dd74rxzff3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063550__01.jpg</strong> (325.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+在程序辅助的数学推理任务上的不同方法性能
+
+<img src="https://img.saraba1st.com/forum/202401/28/064032lwydflfxdf5n7dst.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063555__01.jpg</strong> (121.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+DeepSeek-Coder-v1.5 7B预训练数据来源
+
+<img src="https://img.saraba1st.com/forum/202401/28/064037yvlb2v7rucrr353y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240128-063600__01.jpg</strong> (212.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 06:40 上传
+
+通过编程解决数学任务对DeepSeek-Coder-Base和DeepSeek-Coder-Base-v1.5性能进行对比分析
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

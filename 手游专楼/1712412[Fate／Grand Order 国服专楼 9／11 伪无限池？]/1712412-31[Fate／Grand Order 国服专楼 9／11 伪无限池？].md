@@ -638,3 +638,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 车轮战最后一轮只上了俩，没带牵绊礼装，出来一看1w牵绊，想死的心都有了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackjeo1  
+##### 45994#       发表于 2024-1-28 03:11
+
+    这车轮战也太多了，不是从者数量不够而是打到后面重复作业有点烦了，数量减半还差不多
+

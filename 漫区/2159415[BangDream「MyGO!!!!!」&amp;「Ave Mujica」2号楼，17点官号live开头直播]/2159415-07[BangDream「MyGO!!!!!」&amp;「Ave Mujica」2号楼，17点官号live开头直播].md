@@ -13138,3 +13138,111 @@ eplus好没用，怎么还没放出来<img src="https://static.saraba1st.com/ima
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  cindy355  
+##### 10344#       发表于 2024-1-27 18:03
+
+ 本帖最后由 cindy355 于 2024-1-27 18:04 编辑 
+
+为了赶三十个乐队在已经毁灭的世界里念着ticktock化作人形计时器的缇摩里斯小姐.jpg
+
+<img src="https://img.saraba1st.com/forum/202401/27/180422tpzffk44n4unn2fz.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240127180409.jpg</strong> (107.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 18:04 上传
+
+*****
+
+####  skives  
+##### 10345#       发表于 2024-1-27 18:04
+
+估计要等到动画出现揭面剧情后
+Mujica才会有安可环节
+
+*****
+
+####  鲍里斯  
+##### 10346#       发表于 2024-1-27 18:05
+
+话说2nd的剧场能坐多少人啊？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 10347#       发表于 2024-1-27 18:05
+
+一直没有安可也挺好的，只要曲子数量跟上就行，还是太短了不够听。就是提前配的小剧场还是挺难蚌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 10348#       发表于 2024-1-27 18:06
+
+ 本帖最后由 cindy355 于 2024-1-27 18:12 编辑 
+
+<img src="https://img.saraba1st.com/forum/202401/27/180627o1scstsbgorro9pv.jpg" referrerpolicy="no-referrer">
+
+<strong>[(}MO8{XNHLD%8[J2F@99QC.jpg</strong> (28.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202401/27/180627nehiwmqw33udmwuv.jpg" referrerpolicy="no-referrer">
+
+<strong>X4H0QS149WTA4L6@BVW7]$W.jpg</strong> (23.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 18:06 上传
+
+小剧场里最喜欢的部分就是缇摩里斯神父带着大家祈祷的这段了。海铃作为领导地位的演出是否意味着动画里海铃不会像go团的猫那么边缘呢？
+
+*****
+
+####  相坂君  
+##### 10349#       发表于 2024-1-27 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796637&amp;ptid=2159415" target="_blank">鲍里斯 发表于 2024-1-27 18:05</a>
+
+话说2nd的剧场能坐多少人啊？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+两个场子都2500人
+
+*****
+
+####  天球仪观测者  
+##### 10350#       发表于 2024-1-27 18:08
+
+没安可和mc是小剧场环节难道不是为了维持世界观吗（）
+
+
+*****
+
+####  PDQ4  
+##### 10351#       发表于 2024-1-27 18:10
+
+癫成这样动画可以砸吉他吗，不砸合适吗，砸一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 10352#       发表于 2024-1-27 18:12
+
+下次能不能表演真舞台剧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10353#       发表于 2024-1-27 18:13
+
+真舞台剧还有弹唱，是不是有点太累了，真没休息时间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

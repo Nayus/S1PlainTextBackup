@@ -13676,3 +13676,33 @@ Requiescat in pace （安息吧）
 
 这句子在日语里怎么是读インパーケ啊好崩溃
 
+
+*****
+
+####  假药入脑不可取  
+##### 10388#       发表于 2024-1-27 21:24
+
+<blockquote>cindy355 发表于 2024-1-27 21:21
+レクイエスカットインパーケ
+
+Requiescat in pace （安息吧）
+
+</blockquote>
+按拉丁语发音来的吧
+
+*****
+
+####  屑猫猫  
+##### 10389#       发表于 2024-1-27 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">能不能表演一个火烧吉他，就像看到发癫小睦头，总得让她排解一下的
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  后藤一里  
+##### 10390#       发表于 2024-1-27 21:32
+
+看来喵姆亲曾经有个形影不离洗澡都在一起后来又抛弃喵姆亲的幼驯染，快去检查一下你邦有没有和喵姆亲年纪相仿的嫌疑犯<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

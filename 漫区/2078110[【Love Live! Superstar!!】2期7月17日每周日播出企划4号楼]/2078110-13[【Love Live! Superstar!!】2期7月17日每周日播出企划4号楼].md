@@ -2715,3 +2715,15 @@ QQ图片20240125213251.jpg
 
 放心吧，她那天可是亲口跟我说今年争取多回国的，应该很多事都在谈了
 
+
+*****
+
+####  csolfans  
+##### 19388#       发表于 2024-1-27 23:44
+
+ 本帖最后由 csolfans 于 2024-1-27 23:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63800016&amp;ptid=2078110" target="_blank">lj205 发表于 2024-1-27 23:39</a>
+
+放心吧，她那天可是亲口跟我说今年争取多回国的，应该很多事都在谈了</blockquote>
+羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望多多照顾广州，让我钱包轻松点（想我这种不敢坐飞机的，高铁和动车还是太贵了
+

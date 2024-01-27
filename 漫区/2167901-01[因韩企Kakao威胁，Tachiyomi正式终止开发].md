@@ -1378,3 +1378,13 @@ mihon连动不了bangumi了点进去报错是啥情况？
 
 最新代码已经更新了 OAuth 应用客户端，等新版发布吧。
 
+
+*****
+
+####  yorktown  
+##### 113#       发表于 2024-1-27 15:56
+
+插个题外话，拷贝是不是最近几周的漫画都没更新？
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

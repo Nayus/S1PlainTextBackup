@@ -13400,3 +13400,19 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行<img s
 
 明明貌似是掌控一切的oblivious小姐，结果大伙一起癫了觉醒想独立的时候反而有点吃惊，怎么感觉祥子又成食物链底端了，四个妹妹（？）都造反啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 10371#       发表于 2024-1-27 19:57
+
+祥子那个惊讶更像是以为只有自己一个人真癫，但是发现你们几个怎么也是真癫子的那种吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+syl，所以有没有小剧场的翻译
+
+*****
+
+####  skives  
+##### 10372#       发表于 2024-1-27 20:01
+
+祥子那个惊讶理解成幕后黑手看到自己亲自选择的成员真的和自己思考回路一致，心中窃喜但是表面依然要装一装感觉也行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

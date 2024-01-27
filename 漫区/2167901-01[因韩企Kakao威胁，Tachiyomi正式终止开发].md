@@ -1396,3 +1396,17 @@ mihon连动不了bangumi了点进去报错是啥情况？
 
 怎么更新了插件签名不一致了
 
+
+*****
+
+####  亚瑟邓特  
+##### 115#       发表于 2024-1-27 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63795290&amp;ptid=2167901" target="_blank">yorktown 发表于 2024-1-27 15:56</a>
+插个题外话，拷贝是不是最近几周的漫画都没更新？
+
+—— 来自 Xiaomi 2211133C, Android 14上的 S1Next-鹅 ...</blockquote>
+我拷贝源又连不进去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，挂梯也进不了webview
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

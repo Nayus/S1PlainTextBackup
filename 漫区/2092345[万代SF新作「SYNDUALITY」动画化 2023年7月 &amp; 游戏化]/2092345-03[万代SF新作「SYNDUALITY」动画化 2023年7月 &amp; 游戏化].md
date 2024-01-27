@@ -2767,3 +2767,16 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  cauchua2  
+##### 3575#       发表于 2024-1-27 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63794310&amp;ptid=2092345" target="_blank">ParadiseMartyr 发表于 2024-1-27 13:52</a>
+
+住在男主家…
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
+男主家不是除了进门机库只剩浴室厕所和男主卧室了么。。。
+

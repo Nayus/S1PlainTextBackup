@@ -11378,3 +11378,19 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 但有一說一歌還可以，就是一看3D我就萎了
 
+
+*****
+
+####  御幸一也  
+##### 10143#       发表于 2024-1-27 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63791950&amp;ptid=2159415" target="_blank">yuyin589 发表于 2024-1-27 09:20</a>
+
+搞合号当然可以，但是别搞得好像mujica粉寄人篱下一样就行了某个已经死了的字幕组都知道搞个合并头 ...</blockquote>
+
+沒有關係，現在說不在意 合得好的go粉，
+
+就等帳號頭像變ave mujica，然後粉絲牌也變ave mujica還叫他們買艦長的時候，這些人會是什麼反應<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+喜歡合號是吧，那武士道你可要平等地噁心所有人才行捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+

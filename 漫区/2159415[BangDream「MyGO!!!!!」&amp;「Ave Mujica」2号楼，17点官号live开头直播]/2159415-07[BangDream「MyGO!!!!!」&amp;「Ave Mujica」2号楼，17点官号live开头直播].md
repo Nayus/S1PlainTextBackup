@@ -13379,3 +13379,24 @@ eplus回放吐出來了！！
 
 eplus的源好難扒啊，想抓下來自己看各種方法試過都不行<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10369#       发表于 2024-1-27 19:45
+
+小剧场最后那段感觉是祥子有点缩了但另外四个已经颠了的又把她带回来，大概第二季真的有类似祥子炸团被另外四个拉回来的剧情，如果要致敬前辈的话可能是另外四个在祥子生日当天对祥子唱黑色生日，符合黑色生日为什么钢琴部分那么少的设定
+
+*****
+
+####  PDQ4  
+##### 10370#       发表于 2024-1-27 19:49
+
+确实海铃好像完全没有参与互动，不知道是海铃人设，还是timoris人设，或者单纯梦以不适应。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+键盘放在前排的理由也有了，方便前面仨互动。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+神蠢那儿为了方便睦祥互动，初睦还击掌换了个位置，总感觉这俩幼驯染会背地里串通一气盘算好怎么好好处理祥子。<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+明明貌似是掌控一切的oblivious小姐，结果大伙一起癫了觉醒想独立的时候反而有点吃惊，怎么感觉祥子又成食物链底端了，四个妹妹（？）都造反啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

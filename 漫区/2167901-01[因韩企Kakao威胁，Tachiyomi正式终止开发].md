@@ -1388,3 +1388,11 @@ mihon连动不了bangumi了点进去报错是啥情况？
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  acejoe  
+##### 114#       发表于 2024-1-27 18:42
+
+怎么更新了插件签名不一致了
+

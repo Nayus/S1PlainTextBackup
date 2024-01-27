@@ -11301,3 +11301,32 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 —— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  基神的强袭自由  
+##### 10136#       发表于 2024-1-27 09:08
+
+ 本帖最后由 基神的强袭自由 于 2024-1-27 09:13 编辑 
+
+就睡了五个小时
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 10137#       发表于 2024-1-27 09:12
+
+<img src="https://img.saraba1st.com/forum/202401/27/090736pp909g0mlg57fmxx.jpg" referrerpolicy="no-referrer">
+
+<strong>4EE34297-1556-4DDF-879D-F10844CB7C09.jpg</strong> (464.86 KB, 下载次数: )
+
+下载附件
+
+2024-1-27 09:07 上传
+
+9点左右来的，好多中国人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

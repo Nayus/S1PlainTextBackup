@@ -11330,3 +11330,13 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yuyin589  
+##### 10138#       发表于 2024-1-27 09:20
+
+搞合号当然可以，但是别搞得好像mujica粉寄人篱下一样就行了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

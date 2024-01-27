@@ -13047,3 +13047,94 @@ eplus好没用，怎么还没放出来<img src="https://static.saraba1st.com/ima
 
 這次舞台劇確實很癲，又中二又狂氣，查詢祥子的精神狀態<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 10334#         楼主| 发表于 2024-1-27 17:53
+
+ 本帖最后由 紫吹兰 于 2024-1-27 17:55 编辑 
+
+高尾这个面具主要太突出鼻子了，她鼻子本来就大，这面具把上半脸一遮视线都被鼻子吸引了<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10335#       发表于 2024-1-27 17:53
+
+海铃有点出乎意料的疯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，睦虽然也知道可能比较疯但是程度也超过了预期
+
+*****
+
+####  PDQ4  
+##### 10336#       发表于 2024-1-27 17:54
+
+更喜欢了，希望能一直狂气一直疯，动画也可以这么癫吗，癫点好啊，看鸡哪有不疯的。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+印象最深刻的还是李子那一嗓子，虽然很爽，但是这么嚎真的不伤嗓子吗，有点担心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 10337#       发表于 2024-1-27 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796458&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-1-27 17:49</a>
+
+不信，肯定是段子</blockquote>
+之后又说他才反应过来是女子乐队，一开始没看出来其中几个的性别，我没敢问没看出来的是哪几个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 10338#       发表于 2024-1-27 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796436&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-27 17:48</a>
+
+在客厅用超大屏幕爽看，我爹突然坐到我身边，幕间小剧场我汗流浃背地介绍这是这个乐队特有的幕间舞台剧，他 ...</blockquote>
+我在电脑上看，到五点被爹喊去吃晚饭，然后他说“你在电脑上看啥乱七八糟的东西”<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 10339#       发表于 2024-1-27 17:58
+
+感觉祥子真的是什么癫人吸引装置，稳定把癫佬吸到自己身边<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 10340#       发表于 2024-1-27 17:59
+
+说到底为什么会没看出性别啊，难道是刻板印象搞音乐的长发男吗。
+
+*****
+
+####  半年  
+##### 10341#       发表于 2024-1-27 18:00
+
+<img src="https://img.saraba1st.com/forum/202401/27/180000begveejcu1uzjfe5.jpg" referrerpolicy="no-referrer">
+
+<strong>GE1qXGtaMAAJysV.jpg</strong> (133.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 18:00 上传
+
+[https://twitter.com/bang_dream_i ... 46082050124/photo/1](https://twitter.com/bang_dream_info/status/1751173346082050124/photo/1)
+
+*****
+
+####  jerryoq1  
+##### 10342#       发表于 2024-1-27 18:00
+
+李子现场真的爆炸啊 太稳了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 10343#       发表于 2024-1-27 18:02
+
+太短了，安可都没法上，我还想听听中之人真心坦白环节呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -13838,3 +13838,49 @@ live的时候就在和群友激烈讨论了，海铃渴望悖德感是什么暗�
 
 3. 教会式。就是梵蒂冈教廷的念法。一开始还是继承古典式不动，后来到20世纪初坚持不动了，转而拥抱意大利的通用式念法（类似同期中国的白话文运动）。那么按照意大利人的拼法，ce的发音是「切」。
 
+
+*****
+
+####  cindy355  
+##### 10400#       发表于 2024-1-27 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63798835&amp;ptid=2159415" target="_blank">Ecauchy 发表于 2024-1-27 21:48</a>
+
+念「切」的是教会式拉丁语。
+
+简单说拉丁语作为一种死语言，它现在有三种念法：
+
+1. 古典式。说白了就是正 ...</blockquote>
+原来如此，感谢科普！
+
+*****
+
+####  6030sylar  
+##### 10401#       发表于 2024-1-27 21:57
+
+<img src="https://img.saraba1st.com/forum/202401/27/215739p1h9tk1kzh5wv1gt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>46640d9c6c98a96d502d7dd166486fcb.jpeg</strong> (94.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 21:57 上传
+
+*****
+
+####  NODY  
+##### 10402#       发表于 2024-1-27 21:58
+
+不会真的海铃暗恋真希找立希代餐吧，这很背德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 10403#       发表于 2024-1-27 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63798661&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-27 21:32</a>
+看来喵姆亲曾经有个形影不离洗澡都在一起后来又抛弃喵姆亲的幼驯染，快去检查一下你邦有没有和喵姆亲年纪相 ...</blockquote>
+总不能是六花吧，怎么脑海里第一想到的都是lock，但这位妥妥的好孩子也不沾花惹草来着啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

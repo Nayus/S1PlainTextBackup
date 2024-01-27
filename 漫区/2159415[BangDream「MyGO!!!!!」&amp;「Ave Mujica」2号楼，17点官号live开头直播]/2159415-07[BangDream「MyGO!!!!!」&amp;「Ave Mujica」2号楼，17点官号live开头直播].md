@@ -12227,3 +12227,67 @@ wsd的调音还是那么令人绝望<img src="https://static.saraba1st.com/image
 
 披头散发的鼓手太拼命了
 
+
+*****
+
+####  rslika  
+##### 10243#       发表于 2024-1-27 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">李子也太强了
+
+*****
+
+####  笋干爆炸碱  
+##### 10244#       发表于 2024-1-27 16:34
+
+怎么感觉初睦卖好多<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 10245#       发表于 2024-1-27 16:35
+
+初睦背靠背和面对面都有了，第二季必大卖好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  阿萨德飞过去  
+##### 10246#       发表于 2024-1-27 16:39
+
+键盘手有点太惜命了，镜头切过去都在跳舞是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lays  
+##### 10247#       发表于 2024-1-27 16:39
+
+每次镜头转到小祥，要不在眺望远方，要不就在跳舞
+
+*****
+
+####  千千千千鸟  
+##### 10248#       发表于 2024-1-27 16:40
+
+小祥确实摸的厉害
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星空冻结  
+##### 10249#       发表于 2024-1-27 16:40
+
+初睦感觉火药味拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 10250#       发表于 2024-1-27 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63795750&amp;ptid=2159415" target="_blank">阿萨德飞过去 发表于 2024-1-27 16:39</a>
+
+键盘手有点太惜命了，镜头切过去都在跳舞是怎么回事</blockquote>
+这是我们mujica的主舞，很敬业的！
+

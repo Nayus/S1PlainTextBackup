@@ -11417,3 +11417,13 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 睡过头，还好谷子都先买好，不用排场贩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 10147#       发表于 2024-1-27 11:09
+
+还是不如北京排队，北京凌晨真的🥶
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

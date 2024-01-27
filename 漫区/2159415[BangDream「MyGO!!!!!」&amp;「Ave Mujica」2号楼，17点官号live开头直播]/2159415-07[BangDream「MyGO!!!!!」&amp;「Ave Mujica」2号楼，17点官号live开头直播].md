@@ -13347,3 +13347,27 @@ eplus回放吐出來了！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">おめでとう，新世界的亚当夏娃（但是很多人版）
 
+
+*****
+
+####  PDQ4  
+##### 10365#       发表于 2024-1-27 19:27
+
+没想到这次live还满足了我一个愿望，就是想看狂笑的祥子，虽然只笑了几声也不够狂，能不能再癫一点再坏女人一点。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 10366#       发表于 2024-1-27 19:30
+
+做进动画就太好了，想看狂笑祥子和哭哭睦。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10367#       发表于 2024-1-27 19:32
+
+这次live上初祥睦两两互动塞满，还有一点喵睦互动，好像只有海铃基本上没怎么和人互动都是站原地不动，这也是人设吗，我记得mygo那边蜜柑其实会去找鼓和凛互动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+镜头那么贝斯笑话大概也是因为她基本上不和人互动所以不拍罢
+

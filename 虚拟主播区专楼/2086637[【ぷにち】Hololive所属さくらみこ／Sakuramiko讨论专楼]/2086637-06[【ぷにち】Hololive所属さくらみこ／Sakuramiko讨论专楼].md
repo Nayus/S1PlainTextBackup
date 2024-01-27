@@ -6294,3 +6294,21 @@ miko要学高手玩微操
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">好好好，又有旅游趣闻可以听了
 
+
+*****
+
+####  holoan  
+##### 8093#         楼主| 发表于 2024-1-27 18:25
+
+<img src="https://img.saraba1st.com/forum/202401/27/182333lrjypddjhzfhhipl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (386.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 18:23 上传
+
+[https://twitter.com/usirometai_/status/1751170314573353356](https://twitter.com/usirometai_/status/1751170314573353356)
+
+kanata发的翻唱曲MV的单人绘
+

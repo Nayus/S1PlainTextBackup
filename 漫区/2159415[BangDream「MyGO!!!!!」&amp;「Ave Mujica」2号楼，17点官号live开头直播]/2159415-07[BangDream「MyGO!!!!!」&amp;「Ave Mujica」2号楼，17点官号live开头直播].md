@@ -13282,3 +13282,20 @@ Mujica才会有安可环节
 
 鼓手太拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  近月  
+##### 10357#       发表于 2024-1-27 18:23
+
+一单4.24才发售，6.8就开第一场了，不知道抽选时间会给多长，担心海淘回来来不及<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  御幸一也  
+##### 10358#       发表于 2024-1-27 18:28
+
+eplus回放吐出來了！！
+

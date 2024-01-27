@@ -14337,3 +14337,13 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行</bloc
 
 我又想起羊的那首斜阳<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 10438#       发表于 2024-1-28 02:24
+
+本来想说再看一遍live就睡，结果给看清醒了，已经迫不及待想知道2nd什么主题，又有什么腹语人偶小剧场了。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+数字单曲会是角色曲吗，5首歌正好数量很合适，不过这样2nd是不是就要没有翻唱，堕天是不是可以放出来了，一定要把live版放出来啊，太劲儿了。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

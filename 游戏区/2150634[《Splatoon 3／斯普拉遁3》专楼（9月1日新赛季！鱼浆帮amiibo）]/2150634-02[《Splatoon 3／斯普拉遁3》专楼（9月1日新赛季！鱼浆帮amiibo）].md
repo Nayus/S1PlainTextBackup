@@ -11680,3 +11680,13 @@ http://t.cn/A6jJkMBB
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2662#       发表于 2024-1-27 15:49
+
+580打到450，呵呵<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在是都默认不打伞的雨弹吗，家里都是雨一点没人管
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

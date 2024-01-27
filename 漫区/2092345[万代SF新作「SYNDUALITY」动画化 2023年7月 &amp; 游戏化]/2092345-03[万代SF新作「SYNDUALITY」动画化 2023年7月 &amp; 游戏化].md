@@ -2780,3 +2780,14 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 —— 来自 Xiaomi 23054RA19C, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
 男主家不是除了进门机库只剩浴室厕所和男主卧室了么。。。
 
+
+*****
+
+####  novyDC  
+##### 3576#       发表于 2024-1-27 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63794373&amp;ptid=2092345" target="_blank">cauchua2 发表于 2024-01-27 14:01:10</a>
+男主家不是除了进门机库只剩浴室厕所和男主卧室了么。。。</blockquote>有房车
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

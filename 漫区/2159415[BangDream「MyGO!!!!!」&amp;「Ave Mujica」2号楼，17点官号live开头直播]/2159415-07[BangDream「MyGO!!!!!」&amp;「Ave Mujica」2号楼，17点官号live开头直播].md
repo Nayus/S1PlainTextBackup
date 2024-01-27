@@ -11592,3 +11592,15 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 看了下甚至1分鐘不到就全賣光了，到底是不是有黃牛入場啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 10163#       发表于 2024-1-27 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63792105&amp;ptid=2159415" target="_blank">Toki_Ai 发表于 2024-1-27 09:47</a>
+外战，是指东映滚？</blockquote>
+楼上说的隔壁团内撕是指pjsk的话，
+那么这里的内战转外战应该是指
+mygo团内撕、mujica团内撕，转为mygo和mujica撕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

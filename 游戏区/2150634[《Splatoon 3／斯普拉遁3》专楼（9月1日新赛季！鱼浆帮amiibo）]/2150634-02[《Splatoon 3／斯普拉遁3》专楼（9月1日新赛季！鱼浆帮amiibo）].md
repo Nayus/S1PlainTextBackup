@@ -11661,3 +11661,22 @@ http://t.cn/A6jJkMBB
 
 天太冷了玩不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  米酒马路  
+##### 2660#       发表于 2024-1-27 14:48
+
+康了，绿问号还是舒服<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 2661#       发表于 2024-1-27 14:52
+
+灭龙哥打上4500了，恐怖如斯😱
+
+奶狗拉最近狂掉分，从和灭龙差距两位数到四位数，心态问题么？加特林系能不能打上4000分就指望他了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

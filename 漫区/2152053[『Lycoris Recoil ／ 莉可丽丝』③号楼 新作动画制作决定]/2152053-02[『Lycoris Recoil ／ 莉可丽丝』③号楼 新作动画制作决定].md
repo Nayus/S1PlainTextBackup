@@ -1362,3 +1362,13 @@ tkn脸上还有道黑印，草台！
 
 第一本给你们一点小小的bg震撼，做好心理准备<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 1583#       发表于 2024-1-27 14:47
+
+<img src="https://p.sda1.dev/15/b242a4017e352189c913b8d25df6a4c9/GEz6XoeaUAAPGVS.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/musihara/status/1751049929500626969/photo/1](https://twitter.com/musihara/status/1751049929500626969/photo/1)
+

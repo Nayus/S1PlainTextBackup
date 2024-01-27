@@ -14092,3 +14092,29 @@ live的时候就在和群友激烈讨论了，海铃渴望悖德感是什么暗�
 翻完整合一下到置顶的那层吧</blockquote>
 合了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 10415#       发表于 2024-1-27 22:44
+
+原来母鸡卡粉丝是毁灭世界的见证者和帮凶，感觉有点中二有点帅。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 10416#       发表于 2024-1-27 22:45
+
+具体怎么毁灭呢，寒冰之剑和末日之刃相互碰撞吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  屑猫猫  
+##### 10417#       发表于 2024-1-27 22:52
+
+答案是启动潘多拉魔盒，就把黑色生日里那个正方体盒子当成魔盒吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

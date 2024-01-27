@@ -13339,3 +13339,11 @@ eplus回放吐出來了！！
 
 5人创造的新世界这种说法，总感觉还挺浪漫。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 10364#       发表于 2024-1-27 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">おめでとう，新世界的亚当夏娃（但是很多人版）
+

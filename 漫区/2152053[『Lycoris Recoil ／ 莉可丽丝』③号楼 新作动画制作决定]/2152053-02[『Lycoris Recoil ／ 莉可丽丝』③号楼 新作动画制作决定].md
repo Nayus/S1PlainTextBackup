@@ -1354,3 +1354,11 @@ tkn脸上还有道黑印，草台！
 —— 来自 S1Fun ...</blockquote>
 第一本就刚开始那点有烂活，本质土味yuri<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这本也是土味yuri，唯一不变的是对吃的描写依旧很多
 
+
+*****
+
+####  osore  
+##### 1582#       发表于 2024-1-27 10:59
+
+第一本给你们一点小小的bg震撼，做好心理准备<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

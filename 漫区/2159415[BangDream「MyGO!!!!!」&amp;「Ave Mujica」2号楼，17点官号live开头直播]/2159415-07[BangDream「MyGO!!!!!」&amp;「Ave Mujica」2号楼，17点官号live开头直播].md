@@ -11340,3 +11340,13 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  yoyodream  
+##### 10139#       发表于 2024-1-27 09:25
+
+根据隔壁的经验，团真火之后，团内撕逼也是经常的事，合号是否能算一种内战转外战的合理方式。（
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -2748,3 +2748,22 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cauchua2  
+##### 3573#       发表于 2024-1-27 13:43
+
+歌姬平时是住哪的，为啥大晚上男主和女主对话场合能很自然的呆在现场
+
+*****
+
+####  ParadiseMartyr  
+##### 3574#       发表于 2024-1-27 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63794218&amp;ptid=2092345" target="_blank">cauchua2 发表于 2024-1-27 13:43</a>
+歌姬平时是住哪的，为啥大晚上男主和女主对话场合能很自然的呆在现场</blockquote>
+住在男主家…
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

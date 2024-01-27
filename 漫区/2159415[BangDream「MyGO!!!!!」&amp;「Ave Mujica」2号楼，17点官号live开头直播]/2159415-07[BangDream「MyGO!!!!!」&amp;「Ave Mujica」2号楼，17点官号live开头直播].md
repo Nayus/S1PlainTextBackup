@@ -11604,3 +11604,29 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 那么这里的内战转外战应该是指
 mygo团内撕、mujica团内撕，转为mygo和mujica撕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 10164#       发表于 2024-1-27 13:48
+
+<img src="https://p.sda1.dev/15/0dbdfa1db7060b4a5d28c2b7f6e86e0c/image.png" referrerpolicy="no-referrer">
+
+如果都上舰就不得了了
+
+*****
+
+####  PDQ4  
+##### 10165#       发表于 2024-1-27 13:49
+
+台北都没得这么快，那上海场不是更寄了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 
+
+我还想带现充朋友去呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10166#       发表于 2024-1-27 13:51
+
+不知道官方是不是拿台北试水看看场子能不能坐满再决定上海场地多大，希望看了这个情况能给上海那边整个2-3k的场子吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -12779,3 +12779,135 @@ eplus快点开录播，我要回溜无缝衔接堕天
 
 大喜的日子大家看爽了，有些人只想着拉踩攀比，就这还讲不切割，确实和本人id很符合就是了，直接给我干阳痿了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 10309#       发表于 2024-1-27 17:33
+
+<img src="https://img.saraba1st.com/forum/202401/27/173242i12mb1sbw3zuds22.jpg" referrerpolicy="no-referrer">
+
+<strong>GE1p5t6a4AAf8Kb.jpg</strong> (163.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202401/27/173247xs22oswr1v8r7u7o.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (1).jpg</strong> (116.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202401/27/173250mc8kd9hk6k614c6d.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (2).jpg</strong> (79.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 17:32 上传
+
+滿月開live的設定是不是沒了！
+
+6/8、7/7 都不是滿月
+
+*****
+
+####  Aendst  
+##### 10310#       发表于 2024-1-27 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能本来就没有这样的设定，都是假药
+
+*****
+
+####  剪切线  
+##### 10311#       发表于 2024-1-27 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796269&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-27 17:31</a>
+你要是动画一月播，那两团原创曲数量是一样的。俩ppt的mv新曲好意思跟动画比？
+
+要不这个待遇给狗吧，这么好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提醒一下mygo动画播放前包括op只有8首歌，母鸡卡显然要走卖歌的路子
+
+*****
+
+####  NODY  
+##### 10312#       发表于 2024-1-27 17:35
+
+新月满月什么的，哪有把live放周六周日赚米重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| salic428| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 10313#       发表于 2024-1-27 17:37
+
+可是6月7月的滿月都是週末，不像這個月滿月其實是昨天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10314#       发表于 2024-1-27 17:37
+
+eplus回放快點吐出來<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10315#       发表于 2024-1-27 17:37
+
+1st这场3.31就ANIMAX回放了，水平高就是好，不需要花太多时间修音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10316#       发表于 2024-1-27 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63796304&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-27 17:34</a>
+
+提醒一下mygo动画播放前包括op只有8首歌，母鸡卡显然要走卖歌的路子</blockquote>
+这不是理所当然，不卖歌为什么找李子这个有经验的当主唱。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+和以前一样真人团都是一个偏专业实力走商业路线，另一个是校园路线<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10317#       发表于 2024-1-27 17:40
+
+樓友在影射什麼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sxfox  
+##### 10318#       发表于 2024-1-27 17:40
+
+还用影射吗，直接烤吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10319#       发表于 2024-1-27 17:41
+
+看这场节约宝的表现感觉睦在c团不开心是因为玩不了重金属的可能性大增，进了重金属乐队都笑到流泪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 10320#       发表于 2024-1-27 17:42
+
+喜极而泣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

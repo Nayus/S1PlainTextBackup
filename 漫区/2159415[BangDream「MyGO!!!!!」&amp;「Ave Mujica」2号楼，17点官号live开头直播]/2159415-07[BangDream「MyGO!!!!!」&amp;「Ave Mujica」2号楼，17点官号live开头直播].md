@@ -11485,3 +11485,79 @@ wsd并两个团的号不如把所有团（管人团除外）都并一块得了</
 
 你不會覺得水魔那種亂成一團的製作現場才是正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 10152#       发表于 2024-1-27 12:06
+
+大航海自动续费是不是在支付宝里关了就可以
+
+*****
+
+####  御幸一也  
+##### 10153#       发表于 2024-1-27 12:07
+
+不是，怎麼你這個場2000人都能秒沒，拉斯太人氣了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/27/120620cn6w1f3fcq3afk3a.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (81.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-27 12:06 上传
+
+*****
+
+####  剪切线  
+##### 10154#       发表于 2024-1-27 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63793161&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-27 11:43</a>
+兄弟你能不能別那麼搞笑，舉例也別拿水魔，那是不正常的。
+
+還是說你覺得武士道的財力有他們那麼厚，能抓 ...</blockquote>
+水魔成本高除了人工费以外，给电视台的赔偿金才是大头动画工期都是不一定的，根据第五集已有信息也只能推测个大概，绫奈在推特上的发言也是很随意的，这个“最近”指多久都不清楚，根据文脉可能是几天，也可能是几个月，甚至一年以上。
+
+*****
+
+####  wzm96816  
+##### 10155#       发表于 2024-1-27 12:08
+
+东映那个，虽然PV没什么东西。但mygo最开始的pv或者说角色预告也没信息量，不过一辈子已经在台词中了。我最开始看mygoPV时，因为玩过一点bang所以不抱希望，没想到剧本这么来。所以没出就有希望。
+
+*****
+
+####  Aendst  
+##### 10156#       发表于 2024-1-27 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以能换话题了吗
+
+*****
+
+####  御幸一也  
+##### 10157#       发表于 2024-1-27 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63793399&amp;ptid=2159415" target="_blank">剪切线 发表于 2024-1-27 12:08</a>
+
+水魔成本高除了人工费以外，给电视台的赔偿金才是大头动画工期都是不一定的，根据第五集已有信息也只能推 ...</blockquote>
+你很希望綾奈說的是ave mujica，我也希望是，如果按照你剛剛最後那段的結論我覺得是能說通的，那就這樣吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10158#       发表于 2024-1-27 12:11
+
+三次元工期还是很健康的吧，3d流水线还技术进步，又不是业界公司人均马趴和沙发套，制作现场真混乱要么动画本身崩，要么小道消息早满天飞了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  剪切线  
+##### 10159#       发表于 2024-1-27 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63793297&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-27 11:57</a>
+不過，推這些不拿常識和訪談推，難道拿你腦補的東西去推嗎
+
+你不會覺得水魔那種亂成一團的製作現場才 ...</blockquote>
+很随意的发言是经不起严谨的推测的啊，只能说不一定，全都是猜测
+

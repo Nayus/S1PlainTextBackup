@@ -1574,3 +1574,72 @@ tkn脸上还有道黑印，草台！
 
 2024-1-28 17:43 上传
 
+
+*****
+
+####  Saber琪  
+##### 1591#       发表于 2024-1-28 17:51
+
+[https://twitter.com/_jo_er_/status/1751490604440428839?s=19](https://twitter.com/_jo_er_/status/1751490604440428839?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/28/174730hfxfzqfjdxrdk94k.jpg" referrerpolicy="no-referrer">
+
+<strong>20240128_174634.jpg</strong> (158.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 17:47 上传
+
+[dai佬的r18以及futa注意](https://twitter.com/daimyo0208/status/1751447847197938162?s=19)
+[https://twitter.com/Ntani_2/status/1751250321169674550?s=19](https://twitter.com/Ntani_2/status/1751250321169674550?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/28/174828e9uw9959nfwuxiti.jpg" referrerpolicy="no-referrer">
+
+<strong>20240128_174811.jpg</strong> (212.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 17:48 上传
+
+[https://twitter.com/kageoch/status/1751234648406102294?s=19](https://twitter.com/kageoch/status/1751234648406102294?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/28/174859wdgrwraxlbdrwrae.jpg" referrerpolicy="no-referrer">
+
+<strong>20240128_174845.jpg</strong> (324.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 17:48 上传
+
+[https://twitter.com/rui_rui_rui0122/status/1751243876357280110?s=19](https://twitter.com/rui_rui_rui0122/status/1751243876357280110?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/28/174956ipnaea5nxq8znu7z.jpg" referrerpolicy="no-referrer">
+
+<strong>20240128_174941.jpg</strong> (206.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 17:49 上传
+
+[https://twitter.com/Mush_0106/status/1751229502557188328?s=19](https://twitter.com/Mush_0106/status/1751229502557188328?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/28/175046uq77lbqndsd2nhqh.jpg" referrerpolicy="no-referrer">
+
+<strong>20240128_175031.jpg</strong> (414.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 17:50 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 灼眼的夏娜酱| + 2||
+
+查看全部评分
+

@@ -152,3 +152,20 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 祥子去世</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">鸡动画又不是刺伤这个白月光前男友爱好者写剧本
 
+
+*****
+
+####  基神的强袭自由  
+##### 10514#       发表于 2024-1-29 01:38
+
+提前回国到家了，像是喝了很烈的酒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤魔法师  
+##### 10515#       发表于 2024-1-29 01:41
+
+之前看到很多黑现场的段子
+
+但第一次听了狗的现场感觉唱得还是很好啊
+

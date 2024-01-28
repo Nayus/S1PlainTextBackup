@@ -1459,3 +1459,16 @@ mihon连动不了bangumi了点进去报错是啥情况？
 
 漫画柜的拓展不知道为什么连不上了。。
 
+
+*****
+
+####  Junakr  
+##### 121#       发表于 2024-1-28 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63786950&amp;ptid=2167901" target="_blank">亚瑟邓特 发表于 2024-1-26 18:50</a>
+
+mihon连动不了bangumi了点进去报错是啥情况？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版 v ...</blockquote>
+v0.16.2 更新了可以试下有没有修复。
+

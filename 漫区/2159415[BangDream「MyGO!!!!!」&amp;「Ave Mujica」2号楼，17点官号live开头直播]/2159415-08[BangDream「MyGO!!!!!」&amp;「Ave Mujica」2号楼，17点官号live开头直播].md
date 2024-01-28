@@ -50,3 +50,22 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 是否可以一窥第二季cp走向<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 10505#       发表于 2024-1-28 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63808021&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-28 20:25</a>
+
+去年是五月份才有的直播版</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">卧槽，这么晚
+
+*****
+
+####  后藤一里  
+##### 10506#       发表于 2024-1-28 20:42
+
+小日向女士是有点壮，不过右手手势疑似有点下头，不会想对你羊姐做坏坏的事情吧
+<img src="https://p.sda1.dev/15/479608ac81686f7fa0f42acd9c7d78c2/CMP_20240128204153858.jpg" referrerpolicy="no-referrer">
+

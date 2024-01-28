@@ -11728,3 +11728,15 @@ http://t.cn/A6jJkMBB
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DeltaStriker  
+##### 2667#       发表于 2024-1-28 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63806360&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-1-28 17:32</a>
+掉线镭射BUG我以为修好了原来依然在，下午打真格观察了一下，同场有两个以上的武器开镭射十有八九掉线一个 ...</blockquote>
+tm还有这种bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1635,3 +1635,13 @@ b站可以投稿了？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  十九号大侠  
+##### 16222#       发表于 2024-1-28 14:44
+
+我能去随份子吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

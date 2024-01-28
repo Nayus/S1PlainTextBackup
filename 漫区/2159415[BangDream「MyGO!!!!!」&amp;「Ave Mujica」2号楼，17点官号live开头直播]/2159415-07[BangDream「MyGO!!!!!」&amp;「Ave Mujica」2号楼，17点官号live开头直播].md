@@ -14402,3 +14402,12 @@ mujica赛亚人说
 —— 来自 Xiaomi 23127PN0 ...</blockquote>
 哇靠，好像能說通！居然還是聯動劇情的<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 10445#       发表于 2024-1-28 09:21
+
+重看录播这导播真的难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+希望BD修好点，也别像0th一样疯狂切镜头
+

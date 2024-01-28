@@ -340,3 +340,14 @@ https://twitter.com/sc_ome/status/1751516715715100976
 
 要这么说，第一集主宠不是都睡一起的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 530#       发表于 2024-1-28 19:59
+
+好家伙今年三个骗钱大师的
+声优没有问题了 白猫人形看剪影还不错
+
+现在就怕和去年一样开播前送再扔一个大炸弹<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

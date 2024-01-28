@@ -1008,3 +1008,14 @@ NeverGrave体験版のアップデートを行いました。
 
 而且公司从几个人扩张到40人，总有一些不能用的人力，新人啊、5倍美术的天才女子大生啊、游戏开发收尾阶段不需要使用的人啊，次要项目也可以用上。
 
+
+*****
+
+####  ShiKi847  
+##### 101#       发表于 2024-1-28 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63807974&amp;ptid=2169622" target="_blank">pgain2004 发表于 2024-1-28 20:19</a>
+
+要么你把前面的楼看完？</blockquote>
+前面的楼不是说这工作室是这公司内部工作室么，不是单纯发行
+

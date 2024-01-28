@@ -1562,3 +1562,31 @@ jmtt能进去列表，就是读不出章节，提示cloudflare拦截
 我就是在Mihon上用的啊……很顺利</blockquote>
 我拿旧平板安装试试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能是小米系统的问题吧
 
+
+*****
+
+####  pgain2004  
+##### 131#         楼主| 发表于 2024-1-28 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63809190&amp;ptid=2167901" target="_blank">LLLLLuB 发表于 2024-1-28 22:20</a>
+我拿旧平板安装试试可能是小米系统的问题吧</blockquote>
+……我就是用的小米系统<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  LLLLLuB  
+##### 132#       发表于 2024-1-28 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63809356&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-1-28 22:36</a>
+……我就是用的小米系统</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pgain2004  
+##### 133#         楼主| 发表于 2024-1-28 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63809385&amp;ptid=2167901" target="_blank">LLLLLuB 发表于 2024-1-28 22:39</a>
+我是刚开机的米14，装了github里最新版的mihon，请教一下这个是不是我系统里一些安全设置的问题， ...</blockquote>
+可能需要给它读取应用列表的权限？
+

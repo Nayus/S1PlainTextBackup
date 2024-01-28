@@ -722,3 +722,13 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 2.7出的alter都不错，什么时候把小麻雀落地啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JackTitor  
+##### 46002#       发表于 2024-1-28 22:38
+
+蝙蝠哥太帅了吧，集全文明之力打爆ort太他妈热血了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

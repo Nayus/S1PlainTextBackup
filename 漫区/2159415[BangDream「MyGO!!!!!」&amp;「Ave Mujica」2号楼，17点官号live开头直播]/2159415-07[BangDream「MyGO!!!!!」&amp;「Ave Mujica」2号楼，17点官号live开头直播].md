@@ -14979,3 +14979,18 @@ mujica动画睦哭哭是不是必有了。想看<img src="https://static.saraba1
 
 唉，泪洒武道馆，要和解了
 
+
+*****
+
+####  NODY  
+##### 10493#       发表于 2024-1-28 19:14
+
+不愧是武道馆的含金量，突然理解为什么6th一下就给塞了个怎么看都有点太大的两天万人场，武士道为了让羊给你邦尽力也是拼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10494#       发表于 2024-1-28 19:17
+
+挥泪武道馆，从此踏上上东蛋的梦想切割邦邦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

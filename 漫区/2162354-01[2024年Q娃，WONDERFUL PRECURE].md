@@ -351,3 +351,17 @@ https://twitter.com/sc_ome/status/1751516715715100976
 
 现在就怕和去年一样开播前送再扔一个大炸弹<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 531#       发表于 2024-1-28 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63807782&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-01-28 19:59:58</a>
+好家伙今年三个骗钱大师的
+声优没有问题了 白猫人形看剪影还不错
+
+现在就怕和去年一样开播前送再扔一个大炸 ...</blockquote>去年的炸弹是啥，鸟吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

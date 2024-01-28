@@ -130,3 +130,25 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 渡濑的返图给两个花篮都写了小作文，好用心，有点想gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  后藤一里  
+##### 10512#       发表于 2024-1-28 23:53
+
+结月脸又圆又可爱，懂得欣赏的人有福了
+不过live脸全都被面具挡住了，圆脸能量缺失，有点遗憾
+<img src="https://p.sda1.dev/15/b231e4301ce2d9d7663c57ce4330d566/CMP_20240128235248722.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kobushi  
+##### 10513#       发表于 2024-1-28 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63808041&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-28 20:26</a>
+
+看到有人用mygo来形容独角兽的那个男同动画given的剧情哭笑
+
+祥子去世</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">鸡动画又不是刺伤这个白月光前男友爱好者写剧本
+

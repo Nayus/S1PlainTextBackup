@@ -125,3 +125,38 @@ https://youtu.be/zIPWeCbgx6E</blockquote>
 第一集开头+OP部分
 [https://m.weibo.cn/detail/4995175716227854](https://m.weibo.cn/detail/4995175716227854)
 
+
+*****
+
+####  linhaitora  
+##### 508#       发表于 2024-1-28 15:39
+
+<blockquote>没有爱就看不见 发表于 2024-1-28 15:16
+</blockquote>
+这就开始抢男人了？
+
+*****
+
+####  帝下室の年糕  
+##### 509#       发表于 2024-1-28 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63805338&amp;ptid=2162354" target="_blank">linhaitora 发表于 2024-1-28 15:39</a>
+这就开始抢男人了？</blockquote>
+抢女人（指正）
+当然不排除后期一转抢男人
+
+*****
+
+####  按时间灵活  
+##### 510#       发表于 2024-1-28 15:44
+
+<img src="https://img.saraba1st.com/forum/202401/28/154340je03x43fwy4cj0p7.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-01-28 15.41.57.png</strong> (313.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 15:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

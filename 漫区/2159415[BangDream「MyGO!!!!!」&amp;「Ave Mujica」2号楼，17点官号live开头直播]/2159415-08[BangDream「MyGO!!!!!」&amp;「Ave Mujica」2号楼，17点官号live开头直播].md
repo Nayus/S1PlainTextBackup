@@ -169,3 +169,11 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 但第一次听了狗的现场感觉唱得还是很好啊
 
+
+*****
+
+####  sweet.  
+##### 10516#       发表于 2024-1-29 03:35
+
+刚有空闲下来看完Live，李子这场发挥的也太好了吧，感觉茜姐一场下来已经要累死了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">，所以为什么海玲基本没有成员互动，甚至感觉没多少镜头
+

@@ -293,3 +293,35 @@ https://twitter.com/sc_ome/status/1751516715715100976
 
 不是这op的贴贴浓度也太高了，又是十指相扣又是深情对视的，魔法使都没这么贴，这是要把河豚骗进来杀？
 
+
+*****
+
+####  a85982313  
+##### 524#       发表于 2024-1-28 19:24
+
+本体是狗能怎么样
+
+*****
+
+####  噗哩噗  
+##### 525#       发表于 2024-1-28 19:24
+
+没见过小学女生十指相扣读的是男校？
+
+*****
+
+####  Sliurus  
+##### 526#       发表于 2024-1-28 19:25
+
+猫怎么还没有人间体
+
+*****
+
+####  pokemon最爱  
+##### 527#       发表于 2024-1-28 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63807400&amp;ptid=2162354" target="_blank">wou 发表于 2024-1-28 19:21</a>
+
+不是这op的贴贴浓度也太高了，又是十指相扣又是深情对视的，魔法使都没这么贴，这是要把河豚骗进来杀？ ...</blockquote>
+经验丰富的大友在看到成田良美四个字时就已经不会上当受骗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11740,3 +11740,17 @@ tm还有这种bug<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  晴岚  
+##### 2668#       发表于 2024-1-28 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63807313&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-1-28 19:11</a>
+tm还有这种bug
+
+—— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+镭射掉线bug好久了，打工怪多开镭射也会卡掉队友或者自己
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

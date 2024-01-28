@@ -774,3 +774,11 @@ ORT终战频繁消Buff削血太难受，另外每条血破后的伤害耐性也�
 
 不说了，为了ORT战花了不少QP，得刷点准备下一场战斗
 
+
+*****
+
+####  6030sylar  
+##### 46006#       发表于 2024-1-29 02:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">蝙蝠王怎么就喜欢上尼托，这里感觉像在看蹩脚恋爱剧
+

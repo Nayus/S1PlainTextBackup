@@ -95,3 +95,33 @@ https://youtu.be/zIPWeCbgx6E</blockquote>
 乐，还禁美国ip的</blockquote>
 这种一般都是限定日本 IP 的
 
+
+*****
+
+####  花开安菲路  
+##### 505#       发表于 2024-1-28 15:14
+
+1.5w观众有多少大友啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+儿童节目不给开实时聊天，乐趣少一半<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没有爱就看不见  
+##### 506#       发表于 2024-1-28 15:16
+
+<img src="https://img.saraba1st.com/forum/202401/28/151621smkk5mngoo1a1oop.png" referrerpolicy="no-referrer">
+
+<strong>GQ.png</strong> (93.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 15:16 上传
+
+*****
+
+####  犬飼いろは  
+##### 507#       发表于 2024-1-28 15:24
+
+第一集开头+OP部分
+[https://m.weibo.cn/detail/4995175716227854](https://m.weibo.cn/detail/4995175716227854)
+

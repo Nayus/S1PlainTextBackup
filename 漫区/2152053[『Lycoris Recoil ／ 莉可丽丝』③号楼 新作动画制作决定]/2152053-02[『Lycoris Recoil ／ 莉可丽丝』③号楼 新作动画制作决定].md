@@ -1530,3 +1530,11 @@ tkn脸上还有道黑印，草台！
 
 [https://twitter.com/imigimuru/status/1751228251253666145/photo/1](https://twitter.com/imigimuru/status/1751228251253666145/photo/1)
 
+
+*****
+
+####  Fake_news  
+##### 1589#       发表于 2024-1-28 15:21
+
+要是新一季能多来点美少女打枪环节就好了，动作戏搞好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

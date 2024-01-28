@@ -660,3 +660,13 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Huanghaozheng  
+##### 45996#       发表于 2024-1-28 09:51
+
+抽了60石头不到2宝烟烟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哈，已经双烟带芝诺比阿上班刷烟烟的材料了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

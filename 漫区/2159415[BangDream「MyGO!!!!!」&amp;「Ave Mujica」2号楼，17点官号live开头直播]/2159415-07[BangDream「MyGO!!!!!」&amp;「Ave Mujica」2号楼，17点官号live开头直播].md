@@ -14380,3 +14380,25 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行</bloc
 
 mujica赛亚人说
 
+
+*****
+
+####  友情的结晶  
+##### 10443#       发表于 2024-1-28 08:37
+
+最符合世界观的一集
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  御幸一也  
+##### 10444#       发表于 2024-1-28 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63801550&amp;ptid=2159415" target="_blank">utotqe 发表于 2024-1-28 07:48</a>
+
+六月七月不选在满月live是因为这次小剧场3创造了私人便携月亮可以随便活动了吗
+
+—— 来自 Xiaomi 23127PN0 ...</blockquote>
+哇靠，好像能說通！居然還是聯動劇情的<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

@@ -187,3 +187,14 @@ https://youtu.be/zIPWeCbgx6E</blockquote>
 为什么op画面里战斗的部分会是抓看起来毫无威慑力的暗黑小动物啊……</blockquote>
 会不会这次不肉搏，就是抓动物呢
 
+
+*****
+
+####  犬飼いろは  
+##### 514#       发表于 2024-1-28 16:12
+
+今天直播的官方回放链接（注意：与直播相比有删减，初步发现是删掉了直播时公开的第 1 集开头+OP）
+[https://youtu.be/rb5ae1iTuN8](https://youtu.be/rb5ae1iTuN8)
+
+幸好之前手快保留了一份完整直播：magnet:?xt=urn:btih:b4c4bc0ff0310188de97ba61608a9ff258d5d5c8
+

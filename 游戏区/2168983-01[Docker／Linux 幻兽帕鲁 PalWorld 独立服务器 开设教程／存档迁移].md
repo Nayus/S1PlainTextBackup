@@ -1662,3 +1662,13 @@ bilibili我发了视频了（）
 
 两个人玩，4g的nas能带动吗
 
+
+*****
+
+####  蒜苗  
+##### 114#       发表于 2024-1-28 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63801829&amp;ptid=2168983" target="_blank">chaoswing 发表于 2024-1-28 09:02</a>
+两个人玩，4g的nas能带动吗</blockquote>
+两个人应该可以，就是下地下城可能会爆内存
+

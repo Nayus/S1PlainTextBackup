@@ -14411,3 +14411,30 @@ mujica赛亚人说
 重看录播这导播真的难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 希望BD修好点，也别像0th一样疯狂切镜头
 
+
+*****
+
+####  6030sylar  
+##### 10446#       发表于 2024-1-28 10:24
+
+<img src="https://img.saraba1st.com/forum/202401/28/102404rrrl7xan7nyorr8i.jpg" referrerpolicy="no-referrer">
+
+<strong>912e25b70bee46e40c576b7943dcb03c.jpg</strong> (476.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 10:24 上传
+
+*****
+
+####  基神的强袭自由  
+##### 10447#       发表于 2024-1-28 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63801550&amp;ptid=2159415" target="_blank">utotqe 发表于 2024-1-28 07:48</a>
+六月七月不选在满月live是因为这次小剧场3创造了私人便携月亮可以随便活动了吗
+
+—— 来自 Xiaomi 23127PN0 ...</blockquote>
+卧槽这是什么牛逼的黑科技<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

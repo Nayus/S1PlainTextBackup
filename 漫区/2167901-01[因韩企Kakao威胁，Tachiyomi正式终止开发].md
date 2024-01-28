@@ -1472,3 +1472,13 @@ mihon连动不了bangumi了点进去报错是啥情况？
 —— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版 v ...</blockquote>
 v0.16.2 更新了可以试下有没有修复。
 
+
+*****
+
+####  navarra  
+##### 122#       发表于 2024-1-28 12:06
+
+jmtt能进去列表，就是读不出章节，提示cloudflare拦截
+
+—— 来自 samsung SM-X710, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

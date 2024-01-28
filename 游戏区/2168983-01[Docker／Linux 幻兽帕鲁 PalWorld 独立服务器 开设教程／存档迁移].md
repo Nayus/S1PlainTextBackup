@@ -1672,3 +1672,24 @@ bilibili我发了视频了（）
 两个人玩，4g的nas能带动吗</blockquote>
 两个人应该可以，就是下地下城可能会爆内存
 
+
+*****
+
+####  moeblack  
+##### 115#         楼主| 发表于 2024-1-28 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63801829&amp;ptid=2168983" target="_blank">chaoswing 发表于 2024-1-28 09:02</a>
+
+两个人玩，4g的nas能带动吗</blockquote>
+2个人玩可以用邀请码开房！
+
+*****
+
+####  moeblack  
+##### 116#         楼主| 发表于 2024-1-28 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63801627&amp;ptid=2168983" target="_blank">雨中曲 发表于 2024-1-28 08:09</a>
+
+这菜鸡公司每次更新，都得重新下本体，卧槽里的</blockquote>
+为什么？不是steam直接修补吗
+

@@ -678,3 +678,15 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 付费单抽真的有用，烟雾镜2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电波系腑海林  
+##### 45998#       发表于 2024-1-28 16:58
+
+回过头来看2.7写得还不如2.6，唯一亮点卡玛佐兹还是个纯NPC，作为兽搞半天图鉴都进不去。
+
+烟雾镜和库库尔坎塑造都挺莫名其妙的，当初看那么多剧透感觉一大半都是脑补。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

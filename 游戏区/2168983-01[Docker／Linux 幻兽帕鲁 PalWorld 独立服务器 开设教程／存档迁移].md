@@ -1646,3 +1646,11 @@ bilibili我发了视频了（）
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  雨中曲  
+##### 112#       发表于 2024-1-28 08:09
+
+这菜鸡公司每次更新，都得重新下本体，卧槽里的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

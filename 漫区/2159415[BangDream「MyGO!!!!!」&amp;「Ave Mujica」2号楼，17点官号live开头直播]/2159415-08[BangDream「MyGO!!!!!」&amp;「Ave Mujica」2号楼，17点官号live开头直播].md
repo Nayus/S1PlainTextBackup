@@ -81,3 +81,11 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 果然是累趴了啊，昨天就数她和米泽最累的吧，一直没停，而且连小剧场其他四人可以坐着就她没坐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akirakira  
+##### 10508#       发表于 2024-1-28 21:17
+
+半夜2点发推，看来是休整了一整天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -646,3 +646,17 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
     这车轮战也太多了，不是从者数量不够而是打到后面重复作业有点烦了，数量减半还差不多
 
+
+*****
+
+####  电波系腑海林  
+##### 45995#       发表于 2024-1-28 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">ＢＢ 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情 ...</blockquote>
+自回体打完了，感觉后半篇有点平淡呢，很多角色还没有盛大告别就退场了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

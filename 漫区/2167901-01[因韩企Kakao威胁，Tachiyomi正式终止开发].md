@@ -1514,3 +1514,15 @@ jmtt已经懒得用了，还屏蔽某些地区ip
 求分享下mihon拓展库</blockquote>
 76楼。只有拷贝是另外的
 
+
+*****
+
+####  linux40  
+##### 126#       发表于 2024-1-28 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63803282&amp;ptid=2167901" target="_blank">navarra 发表于 2024-1-28 12:06</a>
+jmtt能进去列表，就是读不出章节，提示cloudflare拦截
+
+—— 来自 samsung SM-X710, Android 14上的 S1Next ...</blockquote>
+得在webview里打开进行人机认证。而且app默认的user-agent不行，我从网上找了个我用的android对应版本的user-agent就可以了。只是每回使用前都得认证。
+

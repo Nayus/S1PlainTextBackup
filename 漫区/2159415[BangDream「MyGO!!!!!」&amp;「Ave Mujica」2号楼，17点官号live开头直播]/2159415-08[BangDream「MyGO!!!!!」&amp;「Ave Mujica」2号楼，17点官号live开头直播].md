@@ -177,3 +177,14 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 刚有空闲下来看完Live，李子这场发挥的也太好了吧，感觉茜姐一场下来已经要累死了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">，所以为什么海玲基本没有成员互动，甚至感觉没多少镜头
 
+
+*****
+
+####  kivz  
+##### 10517#       发表于 2024-1-29 06:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63811304&amp;ptid=2159415" target="_blank">sweet. 发表于 2024-1-29 03:35</a>
+刚有空闲下来看完Live，李子这场发挥的也太好了吧，感觉茜姐一场下来已经要累死了。这次初祥卖得独 ...</blockquote>
+老登导播全责，切得莫名其妙的镜头太多了
+哦，还有 摄像切到茜的时候没对准直接给我看笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

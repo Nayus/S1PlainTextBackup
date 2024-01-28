@@ -985,3 +985,13 @@ NeverGrave体験版のアップデートを行いました。
 
 这公司不是说做帕鲁做没钱了么，怎么还有钱同时做这游戏
 
+
+*****
+
+####  pgain2004  
+##### 99#       发表于 2024-1-28 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63806802&amp;ptid=2169622" target="_blank">ShiKi847 发表于 2024-1-28 18:19</a>
+这公司不是说做帕鲁做没钱了么，怎么还有钱同时做这游戏</blockquote>
+要么你把前面的楼看完？
+

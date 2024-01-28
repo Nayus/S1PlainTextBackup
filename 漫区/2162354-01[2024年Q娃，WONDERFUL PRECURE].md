@@ -365,3 +365,21 @@ https://twitter.com/sc_ome/status/1751516715715100976
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  放哨的狼  
+##### 532#       发表于 2024-1-28 20:19
+
+标题还有个黄色没出，主角团有个男人带兔，算是明牌了吧
+
+*****
+
+####  帝下室の年糕  
+##### 533#       发表于 2024-1-28 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63807967&amp;ptid=2162354" target="_blank">放哨的狼 发表于 2024-1-28 20:19</a>
+标题还有个黄色没出，主角团有个男人带兔，算是明牌了吧</blockquote>
+但是银兽有六只，搞不好眼镜男本体也会变身
+<img src="https://p.sda1.dev/15/bb229b5bb6ecf59ccb52bb3e5f77fa51/CMP_20240128201951126.jpg" referrerpolicy="no-referrer">
+

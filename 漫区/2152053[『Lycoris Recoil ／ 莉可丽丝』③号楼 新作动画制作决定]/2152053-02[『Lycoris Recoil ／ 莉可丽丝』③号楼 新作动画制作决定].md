@@ -1876,3 +1876,26 @@ tkn脸上还有道黑印，草台！
 
 2024-1-28 22:58 上传
 
+
+*****
+
+####  半年  
+##### 1597#       发表于 2024-1-28 23:14
+
+<img src="https://img.saraba1st.com/forum/202401/28/231456z1dn800rzcez8x0n.jpg" referrerpolicy="no-referrer">
+
+<strong>GE7cNzdasAAOX6R.jpg</strong> (138.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 23:14 上传
+
+[https://twitter.com/imigimuru/status/1751579438704464157/photo/1](https://twitter.com/imigimuru/status/1751579438704464157/photo/1)
+
+*****
+
+####  osore  
+##### 1598#       发表于 2024-1-28 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不营业，没说不杀河豚
+

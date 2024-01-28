@@ -188,3 +188,11 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 老登导播全责，切得莫名其妙的镜头太多了
 哦，还有 摄像切到茜的时候没对准直接给我看笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10518#       发表于 2024-1-29 07:51
+
+海铃明明能走动却不和幼驯染三人组互动可能是第二季打算卖幼驯染三角+海喵配平，提前避嫌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

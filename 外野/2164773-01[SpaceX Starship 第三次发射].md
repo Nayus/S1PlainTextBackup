@@ -118,3 +118,14 @@ B12在当地时间24号转移至Megabay，预计将开始安装33台猛禽2
 这玩意不是用来扔弹药的，是用于运输补给的啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是被什么东西包围了么需要这东西对着包围圈砸下去运补给？下面有合适的着陆场么？
 
+
+*****
+
+####  madbird023  
+##### 95#       发表于 2024-1-29 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63791265&amp;ptid=2164773" target="_blank">laotoutou 发表于 2024-1-27 02:40</a>
+
+不过运那么点美军过去，现如今也没人屌你了。意义有限。</blockquote>
+当初美军设想用火箭快速布置部队，但是看了飞船的着陆方式估计也放弃了
+

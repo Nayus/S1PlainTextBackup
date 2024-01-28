@@ -1019,3 +1019,14 @@ NeverGrave体験版のアップデートを行いました。
 要么你把前面的楼看完？</blockquote>
 前面的楼不是说这工作室是这公司内部工作室么，不是单纯发行
 
+
+*****
+
+####  病態極端  
+##### 102#       发表于 2024-1-28 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63804518&amp;ptid=2169622" target="_blank">ddwhzh 发表于 2024-1-28 14:15</a>
+
+鉴抄侠太多都没法好好讨论了。目前看游戏走魔法打怪路线，技能突出一个手长，每个小房子设计比细胞好太多， ...</blockquote>
+上+攻擊無硬直，不知道是做壞了還是有意為之
+

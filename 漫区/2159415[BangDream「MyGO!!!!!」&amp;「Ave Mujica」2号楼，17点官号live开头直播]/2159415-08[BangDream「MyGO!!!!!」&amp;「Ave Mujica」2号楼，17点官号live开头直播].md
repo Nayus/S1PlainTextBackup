@@ -89,3 +89,19 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 半夜2点发推，看来是休整了一整天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JY要塞  
+##### 10509#       发表于 2024-1-28 23:12
+
+[https://twitter.com/kimiJUNN/status/1751576328066027987](https://twitter.com/kimiJUNN/status/1751576328066027987)
+
+<img src="https://img.saraba1st.com/forum/202401/28/231226xllcclvs1lvglwzg.jpg" referrerpolicy="no-referrer">
+
+<strong>GE7ZYcgaYAAmNQH.jpg</strong> (68.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 23:12 上传
+

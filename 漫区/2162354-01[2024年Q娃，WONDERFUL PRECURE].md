@@ -383,3 +383,47 @@ https://twitter.com/sc_ome/status/1751516715715100976
 但是银兽有六只，搞不好眼镜男本体也会变身
 <img src="https://p.sda1.dev/15/bb229b5bb6ecf59ccb52bb3e5f77fa51/CMP_20240128201951126.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 534#       发表于 2024-1-28 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63807981&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-1-28 20:20</a>
+
+但是银兽有六只，搞不好眼镜男本体也会变身</blockquote>
+虽然但是这个**是本作的收集要素和变身完全没有关系<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+我个人偏向于眼镜男和兔子合体变一个追加男Q
+
+*****
+
+####  帝下室の年糕  
+##### 535#       发表于 2024-1-28 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63808027&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-1-28 20:25</a>
+虽然但是这个**是本作的收集要素和变身完全没有关系
+我个人偏向于眼镜男和兔子合体变一个追加 ...</blockquote>
+ 已经有情报了吗？感觉颜色也太对应了
+
+*****
+
+####  modedd  
+##### 536#       发表于 2024-1-28 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63808044&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-01-28 20:26:43</a>
+已经有情报了吗？感觉颜色也太对应了</blockquote>你看456楼，这玩意一大堆呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 帝下室の年糕| + 1||
+
+查看全部评分
+

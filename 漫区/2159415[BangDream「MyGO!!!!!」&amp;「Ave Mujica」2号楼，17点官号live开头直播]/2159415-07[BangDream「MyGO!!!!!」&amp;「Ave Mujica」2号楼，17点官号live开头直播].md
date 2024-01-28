@@ -14902,3 +14902,11 @@ doloris一直很受，像個純真的小孩子，感覺就是要被ob子大姐�
 
 [https://twitter.com/Kanon_Takao/status/1751513258329268485](https://twitter.com/Kanon_Takao/status/1751513258329268485)
 
+
+*****
+
+####  kivz  
+##### 10486#       发表于 2024-1-28 16:22
+
+溜了好多遍Angles……如果第二季用上能不能让李子重录一版<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

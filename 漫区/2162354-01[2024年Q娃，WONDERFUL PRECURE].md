@@ -198,3 +198,17 @@ https://youtu.be/zIPWeCbgx6E</blockquote>
 
 幸好之前手快保留了一份完整直播：magnet:?xt=urn:btih:b4c4bc0ff0310188de97ba61608a9ff258d5d5c8
 
+
+*****
+
+####  Piano-Forest  
+##### 515#       发表于 2024-1-28 16:21
+
+ 本帖最后由 Piano-Forest 于 2024-1-28 16:22 编辑 
+
+内田阳子 绘
+[https://twitter.com/sc_ome/status/1751516715715100976](https://twitter.com/sc_ome/status/1751516715715100976)
+
+わんぷり、来週からスタートします！宜しくお願い致します🐶
+<img src="https://p.sda1.dev/15/ac3df38a68c6500f1a37d28451a0254f/20240128_162015.jpg" referrerpolicy="no-referrer">
+

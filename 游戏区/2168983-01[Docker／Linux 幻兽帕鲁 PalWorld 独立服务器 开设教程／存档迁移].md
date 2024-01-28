@@ -1634,3 +1634,15 @@ bilibili我发了视频了（）
 
 听说今天的更新优化了内存泄露问题？
 
+
+*****
+
+####  moeblack  
+##### 111#         楼主| 发表于 2024-1-28 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63798363&amp;ptid=2168983" target="_blank">蒜苗 发表于 2024-1-27 21:01</a>
+听说今天的更新优化了内存泄露问题？</blockquote>
+修复了应该
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

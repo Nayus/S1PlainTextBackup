@@ -14357,3 +14357,11 @@ eplus的源好難扒啊，想抓下來自己看各種方法試過都不行</bloc
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  高松燈  
+##### 10440#       发表于 2024-1-28 07:54
+
+所以要用我的声线唱赞歌吗
+

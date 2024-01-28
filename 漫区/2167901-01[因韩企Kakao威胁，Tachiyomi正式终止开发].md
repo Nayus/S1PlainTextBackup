@@ -1552,3 +1552,13 @@ jmtt能进去列表，就是读不出章节，提示cloudflare拦截
 很神奇，在mihon用了76楼的插件仓库安装插件后，在mihon里找不到，反而在原来的立读里能找到，今天刚换了小 ...</blockquote>
 我就是在Mihon上用的啊……很顺利
 
+
+*****
+
+####  LLLLLuB  
+##### 130#       发表于 2024-1-28 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63809006&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-1-28 22:04</a>
+我就是在Mihon上用的啊……很顺利</blockquote>
+我拿旧平板安装试试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能是小米系统的问题吧
+

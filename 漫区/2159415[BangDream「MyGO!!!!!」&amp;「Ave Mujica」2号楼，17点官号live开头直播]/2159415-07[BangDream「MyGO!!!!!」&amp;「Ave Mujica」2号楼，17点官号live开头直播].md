@@ -14438,3 +14438,15 @@ mujica赛亚人说
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  可爱美味祥子  
+##### 10448#       发表于 2024-1-28 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63801550&amp;ptid=2159415" target="_blank">utotqe 发表于 2024-1-28 07:48</a>
+六月七月不选在满月live是因为这次小剧场3创造了私人便携月亮可以随便活动了吗
+
+—— 来自 Xiaomi 23127PN0 ...</blockquote>
+私人月亮可以随时恢复洛希极限毁灭旧世界，很合理
+

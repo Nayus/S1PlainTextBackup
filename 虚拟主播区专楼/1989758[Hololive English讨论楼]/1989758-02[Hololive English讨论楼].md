@@ -185,3 +185,13 @@ RYB AME<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" ref
 
 EN is healing<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimmy1996  
+##### 1920#       发表于 2024-1-28 17:21
+
+mel最后给ame发的消息是生日祝福和♥，ame也回复了♥
+
+ame今天还唱了astrogirl（sana原创曲）...<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+

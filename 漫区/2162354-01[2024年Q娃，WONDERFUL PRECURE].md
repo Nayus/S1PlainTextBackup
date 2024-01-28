@@ -223,3 +223,35 @@ https://youtu.be/zIPWeCbgx6E</blockquote>
 为什么op画面里战斗的部分会是抓看起来毫无威慑力的暗黑小动物啊……</blockquote>
 PV2小麦的台词里对着黑化的动物（汪Q小怪Garugaru）说的是不要Garugaru了一起来玩吧，结合标题变全平假名和OP那个欢快的氛围，感觉可能汪Q的战斗是比较柔和的不像传统Q娃那么激烈吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 517#       发表于 2024-1-28 17:10
+
+「わんだふるぷりきゅあ！」キュアニャミー役は松田颯水、キュアリリアン役に上田麗奈 <blockquote>キュアニャミー（CV：松田颯水）。名乗りは「気高くかわいくきらめく世界！キュアニャミー！ 仕方ない、構ってあげる」。
+<img src="https://p.sda1.dev/15/fab90a49279a2dbbf61c672a8ec0963d/curenyammy.jpeg" referrerpolicy="no-referrer">
+
+キュアリリアン（CV：上田麗奈）。名乗りは「結んで紡いでつながる世界！ キュアリリアン！ こわくない、こわくない」。
+<img src="https://p.sda1.dev/15/cbfc84211882b48ca774e7dc2c335e05/curelilian.jpeg" referrerpolicy="no-referrer"></blockquote>
+
+*****
+
+####  renkan119  
+##### 518#       发表于 2024-1-28 17:10
+
+pv里提到小麦是彩羽小时候就开始养的 所以在狗的年龄里小麦已经是成年了
+
+*****
+
+####  Cloudslin  
+##### 519#       发表于 2024-1-28 17:18
+
+ 本帖最后由 Cloudslin 于 2024-1-28 17:21 编辑 
+
+虽然知道是对照蝴蝶犬，但不得不说小麦狗形态真的很像内裤套头，然后人形态只穿个卫衣给人一种在儿童⭕情边缘试探的美。op某个分镜，让人感叹你们是不是茶几十周年也要专门纪念一下（）
+
+仔细看了看那个镜头原来大福也蹲在旁边，所以后期你们是不是要（）
+
+—— 来自 OPPO PHY110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

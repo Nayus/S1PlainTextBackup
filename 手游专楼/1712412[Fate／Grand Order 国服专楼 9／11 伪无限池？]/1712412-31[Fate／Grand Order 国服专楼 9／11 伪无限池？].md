@@ -782,3 +782,13 @@ ORT终战频繁消Buff削血太难受，另外每条血破后的伤害耐性也�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">蝙蝠王怎么就喜欢上尼托，这里感觉像在看蹩脚恋爱剧
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 46007#       发表于 2024-1-29 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63811053&amp;ptid=1712412" target="_blank">6030sylar 发表于 2024-1-29 02:07</a>
+蝙蝠王怎么就喜欢上尼托，这里感觉像在看蹩脚恋爱剧</blockquote>
+没有到喜欢，就是惺惺相惜而已，考虑到肤色说不定还和自己过去的臣民重叠了
+

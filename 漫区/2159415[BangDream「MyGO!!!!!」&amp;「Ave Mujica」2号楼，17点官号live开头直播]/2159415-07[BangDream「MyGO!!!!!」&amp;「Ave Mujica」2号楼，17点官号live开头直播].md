@@ -14852,3 +14852,27 @@ doloris一直很受，像個純真的小孩子，感覺就是要被ob子大姐�
 
 2024-1-28 15:02 上传
 
+
+*****
+
+####  EBe  
+##### 10482#       发表于 2024-1-28 15:04
+
+可惜海铃没有逆输出成10人最高，也是小矮子<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  JY要塞  
+##### 10483#       发表于 2024-1-28 15:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事，精神身高一米八
+
+*****
+
+####  NODY  
+##### 10484#       发表于 2024-1-28 15:09
+
+怎么还能有这种事故的，今天那个武道馆リスアニ的live好像有机器人在刷诈骗广告，导致现在这个活动和包括mygo在内的所有参演人员的实时搜索全被屏蔽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1538,3 +1538,39 @@ tkn脸上还有道黑印，草台！
 
 要是新一季能多来点美少女打枪环节就好了，动作戏搞好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1590#       发表于 2024-1-28 17:44
+
+[https://twitter.com/sengokuchidori/status/1751177785379622959?s=19](https://twitter.com/sengokuchidori/status/1751177785379622959?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/28/174123nuu9uu9utf6tz69h.jpg" referrerpolicy="no-referrer">
+
+<strong>20240128_174029.jpg</strong> (174.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 17:41 上传
+
+[https://twitter.com/ama_ekaku/status/1751438503899287863?s=19](https://twitter.com/ama_ekaku/status/1751438503899287863?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/28/174317ynsgsu2u9un2njln.jpg" referrerpolicy="no-referrer">
+
+<strong>20240128_174247.jpg</strong> (264.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 17:43 上传
+
+[https://twitter.com/ama_ekaku/status/1751530291158769829?s=19](https://twitter.com/ama_ekaku/status/1751530291158769829?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/28/174348ekngdboo41sfuno4.jpg" referrerpolicy="no-referrer">
+
+<strong>20240128_174331.jpg</strong> (185.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 17:43 上传
+

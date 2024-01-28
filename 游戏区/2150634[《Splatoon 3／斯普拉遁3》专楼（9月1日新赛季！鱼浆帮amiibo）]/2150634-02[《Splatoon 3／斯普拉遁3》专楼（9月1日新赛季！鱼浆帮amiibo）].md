@@ -11716,3 +11716,15 @@ http://t.cn/A6jJkMBB
 
 掉线镭射BUG我以为修好了原来依然在，下午打真格观察了一下，同场有两个以上的武器开镭射十有八九掉线一个
 
+
+*****
+
+####  晴岚  
+##### 2666#       发表于 2024-1-28 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63806360&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-1-28 17:32</a>
+掉线镭射BUG我以为修好了原来依然在，下午打真格观察了一下，同场有两个以上的武器开镭射十有八九掉线一个 ...</blockquote>
+打工也是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

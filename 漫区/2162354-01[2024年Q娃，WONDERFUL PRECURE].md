@@ -160,3 +160,13 @@ https://youtu.be/zIPWeCbgx6E</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 511#       发表于 2024-1-28 15:49
+
+会有那个吗，“你永远都没法跟她那么亲近，永远都.jpg”
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

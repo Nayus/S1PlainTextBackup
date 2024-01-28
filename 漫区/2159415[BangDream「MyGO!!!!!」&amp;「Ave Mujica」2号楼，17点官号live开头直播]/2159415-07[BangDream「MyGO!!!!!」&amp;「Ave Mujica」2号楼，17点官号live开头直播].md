@@ -14876,3 +14876,29 @@ doloris一直很受，像個純真的小孩子，感覺就是要被ob子大姐�
 
 怎么还能有这种事故的，今天那个武道馆リスアニ的live好像有机器人在刷诈骗广告，导致现在这个活动和包括mygo在内的所有参演人员的实时搜索全被屏蔽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 10485#       发表于 2024-1-28 16:02
+
+中の人真是賣太大了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/28/160148p227tccunnu3cnhn.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240128-075116_1751513258329268485_photo-0.jpg</strong> (750.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 16:01 上传
+
+<img src="https://img.saraba1st.com/forum/202401/28/160149fpjt11wyqxxx0691.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240128-075116_1751513258329268485_photo-1.jpg</strong> (327.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 16:01 上传
+
+[https://twitter.com/Kanon_Takao/status/1751513258329268485](https://twitter.com/Kanon_Takao/status/1751513258329268485)
+

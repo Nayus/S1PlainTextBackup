@@ -69,3 +69,15 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 小日向女士是有点壮，不过右手手势疑似有点下头，不会想对你羊姐做坏坏的事情吧
 <img src="https://p.sda1.dev/15/479608ac81686f7fa0f42acd9c7d78c2/CMP_20240128204153858.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 10507#       发表于 2024-1-28 20:48
+
+ 本帖最后由 PDQ4 于 2024-1-28 20:49 编辑 
+
+结月宝复活了，马上返图
+
+果然是累趴了啊，昨天就数她和米泽最累的吧，一直没停，而且连小剧场其他四人可以坐着就她没坐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

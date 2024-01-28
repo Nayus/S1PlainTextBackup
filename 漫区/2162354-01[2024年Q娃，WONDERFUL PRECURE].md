@@ -427,3 +427,13 @@ https://twitter.com/sc_ome/status/1751516715715100976
 
 查看全部评分
 
+
+*****
+
+####  maoyou  
+##### 537#       发表于 2024-1-28 20:56
+
+哎呀，我果然我还是最喜欢白妖女和紫妖女这一对<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -714,3 +714,11 @@ TMD，BGO开屏雷击，搜烟雾镜更是会整活，B站现在是回想起谁�
 
 然后拖延症剧情还在前篇，别说刷材料了。。。
 
+
+*****
+
+####  GuDaZi  
+##### 46001#       发表于 2024-1-28 20:58
+
+2.7出的alter都不错，什么时候把小麻雀落地啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

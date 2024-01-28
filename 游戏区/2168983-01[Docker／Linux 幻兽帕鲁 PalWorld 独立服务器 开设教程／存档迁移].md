@@ -1654,3 +1654,11 @@ bilibili我发了视频了（）
 
 这菜鸡公司每次更新，都得重新下本体，卧槽里的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chaoswing  
+##### 113#       发表于 2024-1-28 09:02
+
+两个人玩，4g的nas能带动吗
+

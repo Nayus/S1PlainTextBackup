@@ -14963,3 +14963,11 @@ mujica动画睦哭哭是不是必有了。想看<img src="https://static.saraba1
 
 2nd再来首劲的吧<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 10491#       发表于 2024-1-28 18:32
+
+这么说来按照之后的新曲配信预告来看，一单后面大概率还是会接个迷你专？角色曲可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

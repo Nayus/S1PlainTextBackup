@@ -11764,3 +11764,14 @@ tm还有这种bug
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  蓝色的眷念  
+##### 2670#       发表于 2024-1-29 03:49
+
+<img src="https://p.sda1.dev/15/74d67dce439a7b38a47afae7fc8034b0/CMP_20240129034827321.png" referrerpolicy="no-referrer">
+痛苦
+
+—— 来自 meizu MEIZU 20 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

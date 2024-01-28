@@ -14687,3 +14687,40 @@ y1s1 还是发了的
 团魂的含金量，居然还是不重复的</blockquote>
 她們好愛啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 10467#       发表于 2024-1-28 14:26
+
+米澤要休息幾天啊，期待米澤的全員合照<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10468#       发表于 2024-1-28 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10469#       发表于 2024-1-28 14:28
+
+媽耶仔細看了下是真的肉麻，你們邦多利這麼肉麻的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10470#       发表于 2024-1-28 14:31
+
+今天的武道馆好像有生放，但是要账号，b站也没有直播
+
+<img src="https://img.saraba1st.com/forum/202401/28/143125wg99tu4t00qmy4m0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240128143058.png</strong> (55.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-28 14:31 上传
+

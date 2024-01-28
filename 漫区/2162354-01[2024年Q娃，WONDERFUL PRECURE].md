@@ -212,3 +212,14 @@ https://youtu.be/zIPWeCbgx6E</blockquote>
 わんぷり、来週からスタートします！宜しくお願い致します🐶
 <img src="https://p.sda1.dev/15/ac3df38a68c6500f1a37d28451a0254f/20240128_162015.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 516#       发表于 2024-1-28 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63805500&amp;ptid=2162354" target="_blank">深渊魔魂 发表于 2024-1-28 15:59</a>
+
+为什么op画面里战斗的部分会是抓看起来毫无威慑力的暗黑小动物啊……</blockquote>
+PV2小麦的台词里对着黑化的动物（汪Q小怪Garugaru）说的是不要Garugaru了一起来玩吧，结合标题变全平假名和OP那个欢快的氛围，感觉可能汪Q的战斗是比较柔和的不像传统Q娃那么激烈吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

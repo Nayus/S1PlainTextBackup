@@ -14490,3 +14490,13 @@ mujica赛亚人说
 
 所以mujica他们是充电型的么 原来哪些不是灵魂宝石 是电池（）
 
+
+*****
+
+####  NODY  
+##### 10452#       发表于 2024-1-28 13:09
+
+推特看到的日本现地佬写的大长篇感想
+
+[https://note.com/girlover_buxi/n/ncf1fb8a719e9?sub_rt=share_pb](https://note.com/girlover_buxi/n/ncf1fb8a719e9?sub_rt=share_pb)
+

@@ -949,3 +949,14 @@ NeverGrave体験版のアップデートを行いました。
 
 只要积累就能稳步变强，适合非硬核玩家。
 
+
+*****
+
+####  chizuru  
+##### 95#       发表于 2024-1-28 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63791578&amp;ptid=2169622" target="_blank">滋啦球 发表于 2024-1-27 07:48</a>
+
+女主立绘一眼吉田明彦</blockquote>
+不是第一次有人抄了，之前有个韩国网游也是这样的立绘。
+

@@ -995,3 +995,16 @@ NeverGrave体験版のアップデートを行いました。
 这公司不是说做帕鲁做没钱了么，怎么还有钱同时做这游戏</blockquote>
 要么你把前面的楼看完？
 
+
+*****
+
+####  dumplingpro  
+##### 100#         楼主| 发表于 2024-1-28 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63806802&amp;ptid=2169622" target="_blank">ShiKi847 发表于 2024-1-28 18:19</a>
+
+这公司不是说做帕鲁做没钱了么，怎么还有钱同时做这游戏</blockquote>
+留条退路吧……。
+
+而且公司从几个人扩张到40人，总有一些不能用的人力，新人啊、5倍美术的天才女子大生啊、游戏开发收尾阶段不需要使用的人啊，次要项目也可以用上。
+

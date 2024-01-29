@@ -296,3 +296,18 @@ Will Starship Fall Over?</blockquote>
 
 当然不会倒是最好了
 
+
+*****
+
+####  commcody  
+##### 107#         楼主| 发表于 2024-1-29 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63820755&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-29 21:01</a>
+
+现在月球轨道上还没有可以测量落月地区浮尘厚度和压强的详查手段吧，如果有的话还想请教下？还有n ...</blockquote>
+1：根据雷达、激光雷达数据可以从月球轨道甚至从地面雷达对月壤数据进行探测和推演。
+[https://www.doc88.com/p-3445358395670.html](https://www.doc88.com/p-3445358395670.html)
+
+2：没有听说过。自2022年阿尔忒弥斯3位于月球南极的13个候选着陆点公布后NASA仍未决定最终着陆点。最终着陆点的候选会根据LRO的探测数据和历史文献，综合地面坡度、地月通讯和光照条件，确保着陆安全。
+[https://www.nasa.gov/news-releas ... -americans-on-moon/](https://www.nasa.gov/news-release/nasa-identifies-candidate-regions-for-landing-next-americans-on-moon/)
+

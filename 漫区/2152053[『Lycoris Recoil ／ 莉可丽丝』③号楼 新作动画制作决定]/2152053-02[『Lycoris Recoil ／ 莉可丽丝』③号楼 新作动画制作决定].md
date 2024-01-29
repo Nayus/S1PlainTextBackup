@@ -2074,3 +2074,29 @@ tkn脸上还有道黑印，草台！
 
 2024-1-29 22:32 上传
 
+
+*****
+
+####  Saber琪  
+##### 1604#       发表于 2024-1-29 23:06
+
+[这是犬神什么新paro嘛？](https://twitter.com/TabunnInu/status/1751689151966232663?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/29/230623z9i97ycyczqyyt90.jpg" referrerpolicy="no-referrer">
+
+<strong>20240129_230550.jpg</strong> (87.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 23:06 上传
+
+[https://twitter.com/Mush_0106/status/1751907725368541551?s=19](https://twitter.com/Mush_0106/status/1751907725368541551?s=19)
+
+<img src="https://img.saraba1st.com/forum/202401/29/230652xohlympvc0lqbp7b.jpg" referrerpolicy="no-referrer">
+
+<strong>20240129_230632.jpg</strong> (158.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 23:06 上传
+

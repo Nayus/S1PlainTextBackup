@@ -2727,3 +2727,13 @@ QQ图片20240125213251.jpg
 放心吧，她那天可是亲口跟我说今年争取多回国的，应该很多事都在谈了</blockquote>
 羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望多多照顾广州，让我钱包轻松点（想我这种不敢坐飞机的，高铁和动车还是太贵了
 
+
+*****
+
+####  仟音一心  
+##### 19389#       发表于 2024-1-30 00:02
+
+甲子园小组投票
+
+<img src="https://p.sda1.dev/15/6375330b3da54441b801fd1b033bfa3b/CMP_20240130000223809.jpg" referrerpolicy="no-referrer">
+

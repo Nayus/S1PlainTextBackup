@@ -311,3 +311,27 @@ Will Starship Fall Over?</blockquote>
 2：没有听说过。自2022年阿尔忒弥斯3位于月球南极的13个候选着陆点公布后NASA仍未决定最终着陆点。最终着陆点的候选会根据LRO的探测数据和历史文献，综合地面坡度、地月通讯和光照条件，确保着陆安全。
 [https://www.nasa.gov/news-releas ... -americans-on-moon/](https://www.nasa.gov/news-release/nasa-identifies-candidate-regions-for-landing-next-americans-on-moon/)
 
+
+*****
+
+####  FeliciaCWells  
+##### 108#       发表于 2024-1-30 00:01
+
+友商蓝箭发生小爆炸
+
+<img src="https://img.saraba1st.com/forum/202401/30/000032tn35w4fkk5ukf45k.jpg" referrerpolicy="no-referrer">
+
+<strong>GFA7EqsW8AANHzo.jpg</strong> (74.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 00:00 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/000041u00h45ssh79d27o0.jpg" referrerpolicy="no-referrer">
+
+<strong>GFA7EqjWwAAnM2o.jpg</strong> (36.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 00:00 上传
+

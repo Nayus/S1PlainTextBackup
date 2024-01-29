@@ -30633,3 +30633,43 @@ pix2gestalt是一种使用潜在扩散架构的非模态补全模型，在输入
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1230#       发表于 2024-1-30 03:07
+
+SliceGPT
+
+通过删除行和列(Rows and Columns)来压缩大型语言模型
+
+github项目主页:https://github.com/microsoft/TransformerCompression
+
+大型语言模型已成为自然语言处理的基石，但在计算和显存资源等方面付出了巨大代价，稀疏化(Sparsification)提供了一种减轻这些资源限制的解决方案，最近的研究表明，训练好的模型可以在训练后期进行稀疏化处理，现有的稀疏化技术面临挑战，因为它们需要额外的数据结构，并且在当前硬件上的加速程度有限
+
+在本文中，提出了SliceGPT，一种全新的训练后稀疏方案，它用较小的密集矩阵替代了每个权重矩阵，从而减小了网络的嵌入维度，通过广泛的实验，SliceGPT可以在保持LLAMA2-70B、OPT 66B和Phi-2模型零样本任务性能分别为99%、99%和90%的情况下，删除多达25%的模型参数(包括嵌入)
+
+SliceGPT可以在较少的GPU上运行更快，而且无需额外的代码优化:在24GB的消费级GPU上，可以将LLAMA2-70B的推理计算总量减少到稠密模型的64%；在40GB的A100 GPU上，可以将其减少到66%
+
+本文提供了一个新的见解，即Transformer网络中的计算不变性，这使SliceGPT成为可能，希望本文能够激发更多促进未来减少预训练模型的显存和计算需求的方法
+
+github项目说明页截图:
+
+<img src="https://img.saraba1st.com/forum/202401/30/030720bfhemsfodo6c81os.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240130-030431.jpg</strong> (161.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 03:07 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/030720tcbc7cdc1ejeh6cs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240130-030441.jpg</strong> (361.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 03:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

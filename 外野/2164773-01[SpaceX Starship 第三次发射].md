@@ -180,3 +180,15 @@ B12在当地时间24号转移至Megabay，预计将开始安装33台猛禽2
 运人成本太高了，安全系数也低</blockquote>
 尤其是飞船最后着陆前那下大G动作，我估计没有灵长类遭得住
 
+
+*****
+
+####  laotoutou  
+##### 100#       发表于 2024-1-29 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63812011&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-29 09:03</a>
+一次性的，用完就扔，估计是战时工兵推一个着陆场吧。
+
+预想中是第一岛链被封锁，制空权丧失，然后扔各个 ...</blockquote>
+他回大气层的时候那么大个目标，有什么不好拦截的。就算是中段，也是雷达信号及其明显
+

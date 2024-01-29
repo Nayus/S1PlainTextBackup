@@ -2746,3 +2746,15 @@ QQ图片20240125213251.jpg
 <img src="https://p.sda1.dev/15/1ec601d4b00aa4877434c5aa8aaec751/CMP_20240130001132129.jpg" referrerpolicy="no-referrer">
 lovelive综合杂志liella部分
 
+
+*****
+
+####  ads147147  
+##### 19391#       发表于 2024-1-30 07:08
+
+圣雪第二没想到啊，虽然有预计会上榜。阿水的人气倒是毋庸置疑的。
+
+卡农x玛格丽特越来越有春希x冬马的感觉了。。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

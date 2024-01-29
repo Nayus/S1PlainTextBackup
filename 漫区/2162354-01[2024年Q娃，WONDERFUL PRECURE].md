@@ -576,3 +576,23 @@ op的猫猫也是一股子母性慈爱的样子<img src="https://static.saraba1s
 
 这么贴贴，别再又是骗河豚进来杀
 
+
+*****
+
+####  pokemon最爱  
+##### 553#       发表于 2024-1-29 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63820274&amp;ptid=2162354" target="_blank">宅音 发表于 2024-1-29 20:16</a>
+
+这么贴贴，别再又是骗河豚进来杀</blockquote>
+有必要再提醒一下，系 列 构 成 ： 成 田 良 美<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+虽然成田大妈写小女孩贴贴的剧情写得比她的破BG戏好到不知道哪里去是真的好嗑，但真信了成田大妈的邪肯定是要被雷炸到的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帝下室の年糕  
+##### 554#       发表于 2024-1-29 20:30
+
+眼睛男和华哥应该锁死了，豚豚可以捡点猫组（不空降反派的前提下）
+

@@ -526,3 +526,24 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 平行世界小羊在这张图的左边，立石凛牵的不是伞而是小羊的手<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/4fcb98c6b27911ea0d745f3f419cb83e/CMP_20240129201854784.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 10547#       发表于 2024-1-29 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63808041&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-28 20:26</a>
+看到有人用mygo来形容独角兽的那个男同动画given的剧情哭笑
+
+祥子去世</blockquote>
+你这个未免过于抽象了，至少现在看来素世更偏向爱音而不是立希女士<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且祥子怎么说也是邦2.0核心角色，随便噶了还怎么玩
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DarthAka  
+##### 10548#       发表于 2024-1-29 20:32
+
+李世林和羊是不是俩团唯二的关西人，羊那个声优学校还是跑到大坂读的——老家估计没有
+

@@ -596,3 +596,13 @@ op的猫猫也是一股子母性慈爱的样子<img src="https://static.saraba1s
 
 眼睛男和华哥应该锁死了，豚豚可以捡点猫组（不空降反派的前提下）
 
+
+*****
+
+####  有骨气的百合  
+##### 555#       发表于 2024-1-29 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63820415&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-1-29 20:30</a>
+眼睛男和华哥应该锁死了，豚豚可以捡点猫组（不空降反派的前提下）</blockquote>
+又不是华哥脸红怎么就锁死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

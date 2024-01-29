@@ -547,3 +547,14 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 李世林和羊是不是俩团唯二的关西人，羊那个声优学校还是跑到大坂读的——老家估计没有
 
+
+*****
+
+####  紫吹兰  
+##### 10549#         楼主| 发表于 2024-1-29 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63819355&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-29 18:41</a>
+
+傳到了裡面的人那的那張初祥圖 </blockquote>
+转天是吧
+

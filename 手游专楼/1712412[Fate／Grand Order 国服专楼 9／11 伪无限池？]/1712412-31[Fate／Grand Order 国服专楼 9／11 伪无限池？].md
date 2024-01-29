@@ -913,3 +913,27 @@ all in 还不算，靠主线给的石头单抽上岸<img src="https://static.sar
 
 不过出弓我第一个反应还真的就是俄里翁
 
+
+*****
+
+####  khxooo  
+##### 46021#       发表于 2024-1-29 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63816569&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2024-1-29 15:00</a>
+拿破仑已经歪过了，这次俄里翁4宝了，源为朝我也就人了
+
+不过出弓我第一个反应还真的就是俄里翁 ...</blockquote>
+同月神4宝，还是国日都4宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyzzhj| + 1||
+
+查看全部评分
+

@@ -1096,3 +1096,40 @@ https://x.com/clearusui/status/1750334064010354903?s=20
 
 krkr和mfmf连完卖fan太就开播了草
 
+
+*****
+
+####  毛头小希  
+##### 2959#       发表于 2024-1-29 11:31
+
+一刷推发现推荐趋势里有老爱的名字，点进去一看又是在讨论vtb定义的变迁……
+
+真是时不时就要被重提一次的话题啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+Screenshot_20240129_092848.jpg
+(77.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202401/29/113125wahcl1a3aha8c5zh.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20240129_092822.jpg
+(162.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202401/29/113130aqzzm0vhm50hz6hh.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20240129_092833.jpg
+(149.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202401/29/113138band5m1zmzs5ikr5.jpg" referrerpolicy="no-referrer">
+

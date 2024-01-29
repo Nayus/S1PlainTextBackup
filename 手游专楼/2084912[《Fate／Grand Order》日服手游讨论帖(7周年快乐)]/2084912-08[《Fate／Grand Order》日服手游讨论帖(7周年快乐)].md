@@ -179,3 +179,20 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 好吧，FSN的7人會有強化嗎?
 
+
+*****
+
+####  希望之花  
+##### 11251#       发表于 2024-1-29 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">七选一就一个五星
+
+*****
+
+####  不垃圾屌丝  
+##### 11252#       发表于 2024-1-29 18:46
+
+什么罕贵度霸凌现场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1049,3 +1049,12 @@ NeverGrave体験版のアップデートを行いました。
 没必要，其他厂出的游戏和其他游戏撞脸有可能是没办法，pocket pair就是故意的，他们出的游戏都是这种做法，拿其他游戏的玩法来缝合
 但这有问题吗，反正我觉得没有
 
+
+*****
+
+####  堆雪若叶  
+##### 105#       发表于 2024-1-29 18:44
+
+[https://twitter.com/NeverGrave_JP/status/1751873936198115395](https://twitter.com/NeverGrave_JP/status/1751873936198115395) <blockquote>特に中国での人気が凄まじいです！</blockquote>
+官推还特意提了句在中国很火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2849,3 +2849,45 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 错过直播了kuso
 
+
+*****
+
+####  novyDC  
+##### 3584#       发表于 2024-1-29 23:26
+
+好家伙 这就开虐
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  何处分可  
+##### 3585#       发表于 2024-1-29 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节奏又慢下来了，24集够吗这之后
+
+*****
+
+####  Freakyyu  
+##### 3586#       发表于 2024-1-29 23:26
+
+宕机了？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  无音命题  
+##### 3587#       发表于 2024-1-29 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 3588#       发表于 2024-1-29 23:30
+
+这算是安全卫士抢主机搞出bug宕机吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

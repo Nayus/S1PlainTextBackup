@@ -616,3 +616,20 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 2024-1-30 00:18 上传
 
+
+*****
+
+####  フミさん  
+##### 10554#       发表于 2024-1-30 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我羊真的是。MyGO，Live？不如CV。。。
+
+*****
+
+####  nebulanoby  
+##### 10555#       发表于 2024-1-30 00:31
+
+动物朋友每次都能精准地在🐶粉快要和她和解的时候送上孜然
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1693,3 +1693,22 @@ bilibili我发了视频了（）
 这菜鸡公司每次更新，都得重新下本体，卧槽里的</blockquote>
 为什么？不是steam直接修补吗
 
+
+*****
+
+####  Mikumiku831  
+##### 117#       发表于 2024-1-29 10:14
+
+有啥方法知道服务端更新了没 想弄个计划任务自动更新
+
+*****
+
+####  moeblack  
+##### 118#         楼主| 发表于 2024-1-29 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63812866&amp;ptid=2168983" target="_blank">Mikumiku831 发表于 2024-1-29 10:14</a>
+有啥方法知道服务端更新了没 想弄个计划任务自动更新</blockquote>
+启动的时候把你安装服务器使用的命令加在批处理文件里
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

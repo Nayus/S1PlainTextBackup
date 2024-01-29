@@ -169,3 +169,14 @@ B12在当地时间24号转移至Megabay，预计将开始安装33台猛禽2
 
 【图7】搞FLEX月球车的Astrolab公司也来蹭热点
 
+
+*****
+
+####  madbird023  
+##### 99#       发表于 2024-1-29 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63811986&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-29 09:02</a>
+
+运人成本太高了，安全系数也低</blockquote>
+尤其是飞船最后着陆前那下大G动作，我估计没有灵长类遭得住
+

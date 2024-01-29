@@ -11969,3 +11969,11 @@ tm还有这种bug
 
 明明是武器很好的配置，但是总有种4K不在我手上就容易翻车的感觉
 
+
+*****
+
+####  Ryuuseigun  
+##### 2690#       发表于 2024-1-30 01:23
+
+4K只要不停把视野内出现的鲑鱼蓄力一击就行了，高分段后拿4K想着拉怪回家打的野人统统视为不会玩<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

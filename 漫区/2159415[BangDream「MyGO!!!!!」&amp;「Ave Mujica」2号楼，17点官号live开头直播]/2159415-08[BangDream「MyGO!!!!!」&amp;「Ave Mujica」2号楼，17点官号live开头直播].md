@@ -670,3 +670,38 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 挺可惜的，要是狗也有个唱功好有团魂的主唱没准热度还能再上一层，现在可能就这样不上不下了，明年鸡团主场一来武士道就不用想方设法让动物朋友干活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 10561#       发表于 2024-1-30 01:17
+
+动物朋友这都不是什么不会读空气立本人失格了吧，这种场合无论黄白黑皮，有点素养的都会说场面话的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+隔壁都绷不住了，顶着杀头风险都要烤了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  フミさん  
+##### 10562#       发表于 2024-1-30 01:21
+
+别急 等🐑尬伴舞醒来就是人头滚滚 空中楼阁了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NODY  
+##### 10563#       发表于 2024-1-30 01:21
+
+访谈配合泪洒武道馆更是忍俊不禁，热度和咖位是唯一让羊营业的解药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 10564#       发表于 2024-1-30 01:23
+
+可以让平手来接替主唱不<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

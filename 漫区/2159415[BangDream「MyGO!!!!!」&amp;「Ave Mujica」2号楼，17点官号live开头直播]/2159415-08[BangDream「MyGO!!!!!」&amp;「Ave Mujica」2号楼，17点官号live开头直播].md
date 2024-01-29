@@ -510,3 +510,19 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 要求不要太高，MyGO还是先做到五人来齐私下团建再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ytttsuuuba  
+##### 10545#       发表于 2024-1-29 20:18
+
+口吐芬芳这个反差不是很带感吗，一口一个敬语就算放狠话也是敬语，目前唯一一次解锁kuso就是对老爹，不知道下次什么时候解锁了。
+
+*****
+
+####  后藤一里  
+##### 10546#       发表于 2024-1-29 20:20
+
+平行世界小羊在这张图的左边，立石凛牵的不是伞而是小羊的手<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4fcb98c6b27911ea0d745f3f419cb83e/CMP_20240129201854784.jpg" referrerpolicy="no-referrer">
+

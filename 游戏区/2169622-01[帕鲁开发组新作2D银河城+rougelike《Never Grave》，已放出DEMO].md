@@ -1038,3 +1038,14 @@ NeverGrave体験版のアップデートを行いました。
 
 我就说个暴论了，从任天堂卖fc以来40年间各种主机pc手机平台发售了数万游戏，到如今要想做个游戏并且丝毫没有其他游戏影子的根本做不到
 
+
+*****
+
+####  schneehertz  
+##### 104#       发表于 2024-1-29 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63812140&amp;ptid=2169622" target="_blank">overmindoyj 发表于 2024-1-29 09:16</a>
+我就说个暴论了，从任天堂卖fc以来40年间各种主机pc手机平台发售了数万游戏，到如今要想做个游戏并且丝毫没 ...</blockquote>
+没必要，其他厂出的游戏和其他游戏撞脸有可能是没办法，pocket pair就是故意的，他们出的游戏都是这种做法，拿其他游戏的玩法来缝合
+但这有问题吗，反正我觉得没有
+

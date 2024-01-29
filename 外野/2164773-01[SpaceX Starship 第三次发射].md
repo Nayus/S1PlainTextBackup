@@ -204,3 +204,47 @@ B12在当地时间24号转移至Megabay，预计将开始安装33台猛禽2
 
 更不用说退后到硫磺岛和其他离岛了，附近甚至都没有海基平台
 
+
+*****
+
+####  commcody  
+##### 102#         楼主| 发表于 2024-1-29 19:01
+
+上周SpaceX仍忙于发射场的整备和改造工作，老马的“一月完成发射硬件的准备”看来是不可能了。
+
+在Mega Bay 1的B10重新安装了热分离环。
+
+<img src="https://img.saraba1st.com/forum/202401/29/185734ayjlllze0l68f667.jpg" referrerpolicy="no-referrer">
+
+<strong>GE3IdKIWwAEphkC.jpg</strong> (411.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 18:57 上传
+
+S28从High Bay中推出，转移至Rocket Garden的猛禽发动机安装平台上开展工作。
+
+<img src="https://img.saraba1st.com/forum/202401/29/185812c2zp5zlo5bvm26pz.jpg" referrerpolicy="no-referrer">
+
+<strong>GE2ngBEXMAABTrF.jpg</strong> (499.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202401/29/185822syn0y9lrxpzjpv40.jpg" referrerpolicy="no-referrer">
+
+<strong>GE8GV2JW4AAtWVE.jpg</strong> (571.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202401/29/185827h7bh598hwfppb5m8.jpg" referrerpolicy="no-referrer">
+
+<strong>GE8x6bhWwAAFZ8O.jpg</strong> (1016.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 18:58 上传
+

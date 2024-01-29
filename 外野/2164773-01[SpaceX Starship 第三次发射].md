@@ -248,3 +248,37 @@ S28从High Bay中推出，转移至Rocket Garden的猛禽发动机安装平台�
 
 2024-1-29 18:58 上传
 
+
+*****
+
+####  ryj  
+##### 103#       发表于 2024-1-29 19:03
+
+摆这么近不怕多米诺吗
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  commcody  
+##### 104#         楼主| 发表于 2024-1-29 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63780416&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-26 09:42</a>
+
+说回来了，HLS是如何解决重心问题的，楼主有看到资料嘛，这玩意在月面倒了真的很可怕 ...</blockquote>
+在第二发贴中已讨论过该问题。
+
+Will Starship Fall Over?
+[https://www.youtube.com/watch?v=mVhhwjVlNGA](https://www.youtube.com/watch?v=mVhhwjVlNGA)
+
+极简化模型，干重下倾斜15度会倒，有燃料下倾斜21度会倒。
+
+而且现在已有相当多对预定月面着陆场的勘察手段，为什么要找一个可能倒的地点着陆呢？
+
+*****
+
+####  madbird023  
+##### 105#       发表于 2024-1-29 19:05
+
+看来B10距离安装引擎还有段时间
+

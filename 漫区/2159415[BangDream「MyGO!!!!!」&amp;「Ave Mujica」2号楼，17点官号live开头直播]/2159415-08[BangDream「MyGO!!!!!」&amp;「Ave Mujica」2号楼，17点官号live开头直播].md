@@ -402,3 +402,38 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  PDQ4  
+##### 10534#       发表于 2024-1-29 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63819309&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-29 18:36</a>
+
+飯圈警告哦</blockquote>
+真路人眼里，都看二偶了不全是饭圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你邦粉丝就是既要又要才在这里卡住不上不下，本身还糊糊的被骑脸了都没法反驳。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 10535#       发表于 2024-1-29 19:06
+
+<img src="https://img.saraba1st.com/forum/202401/29/190620lz7une3ts4ohn6kq.jpg" referrerpolicy="no-referrer">
+
+<strong>GE82YlhWgAAOH5j.jpg</strong> (602.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:06 上传
+
+[https://twitter.com/Raito_Taisha ... 54938343757/photo/1](https://twitter.com/Raito_Taisha/status/1751758554938343757/photo/1)
+
+*****
+
+####  NODY  
+##### 10536#       发表于 2024-1-29 19:06
+
+live表现力和各种三次元互动果然还是挺重要的，mujica1st刚结束就出了一大堆同人图，但mygo武道馆live返图就看到一个人在画，live相关的二创也基本在吃动画老本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

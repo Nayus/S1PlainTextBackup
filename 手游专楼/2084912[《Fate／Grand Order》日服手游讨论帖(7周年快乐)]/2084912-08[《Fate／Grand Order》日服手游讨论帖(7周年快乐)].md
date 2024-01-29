@@ -196,3 +196,20 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Jamaisvu  
+##### 11253#       发表于 2024-1-29 19:08
+
+感觉呆毛王之外的六个从者对应礼装图册不太好开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过武内画的小次郎确实比原版好看，FSN这帮老角色的粉丝都比较长情，应该有换的吧...比如呆毛五星的玩家...
+
+*****
+
+####  kidoo  
+##### 11254#       发表于 2024-1-29 19:11
+
+好耶，呆毛终于开图鉴了
+

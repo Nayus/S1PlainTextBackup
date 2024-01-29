@@ -30673,3 +30673,53 @@ github项目说明页截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1231#       发表于 2024-1-30 04:24
+
+Taiyi-Diffusion-XL
+
+通过大型视觉语言模型支持从而促进双语文本到图像生成发展
+
+hugface权重下载:https://huggingface.co/IDEA-CCNL/Taiyi-Stable-Diffusion-XL-3.5B
+
+Tech Report 技术报告:https://arxiv.org/abs/2401.14688
+
+Demo 体验地址:https://huggingface.co/spaces/IDEA-CCNL/Taiyi-Stable-Diffusion-XL-3.5B
+
+Deployment Webui 推理部署:https://github.com/IDEA-CCNL/Fooocus-Taiyi-XL
+
+最近文本到图像模型的进展显著增强了图像生成能力，但在双语或中文语言支持方面仍存在明显的开源模型缺口，为了解决这个需求，本文提出了Taiyi-Diffusion-XL，这是一个新的中英双语文本到图像模型，通过对CLIP和Stable-Diffusion-XL进行双语连续预训练开发，其中包括将常用汉字整合到CLIP的分词器和嵌入层中，以及绝对位置编码的扩展，从而实现词汇的高效扩充
+
+此外，通过大型视觉语言模型丰富了文本提示，从而产生更好的图像字幕说明并具有更高的视觉质量，这些增强策略随后应用于下游的文本到图像模型，实证结果表明，所开发的CLIP模型在双语图像文本检索方面表现出色，此外，Taiyi-Diffusion-XL的双语图像生成能力超过了先前的模型，Taiyi-Diffusion-XL模型的开发和开源，代表了图像生成领域的一个显著进展，特别适用于中文应用，这一贡献在多模态研究中为更多语言支持的需求迈出了一步
+
+hugface项目说明截图:
+
+<img src="https://img.saraba1st.com/forum/202401/30/042454b8vfmlln8ovu8lll.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240130-042136__01.jpg</strong> (784.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 04:24 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/042454nrdmilw1n6re6mbv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240130-042136__02.jpg</strong> (237.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 04:24 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/042454qoqlweveeqp4nc4f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240130-042136__03.jpg</strong> (953.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 04:24 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

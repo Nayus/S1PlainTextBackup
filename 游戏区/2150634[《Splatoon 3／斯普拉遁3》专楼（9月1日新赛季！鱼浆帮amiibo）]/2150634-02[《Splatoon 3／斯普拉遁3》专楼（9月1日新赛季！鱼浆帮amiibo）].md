@@ -11916,3 +11916,11 @@ tm还有这种bug
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  carroy  
+##### 2684#       发表于 2024-1-29 17:06
+
+高分段：传说600及以上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

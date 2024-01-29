@@ -129,3 +129,13 @@ B12在当地时间24号转移至Megabay，预计将开始安装33台猛禽2
 不过运那么点美军过去，现如今也没人屌你了。意义有限。</blockquote>
 当初美军设想用火箭快速布置部队，但是看了飞船的着陆方式估计也放弃了
 
+
+*****
+
+####  亚尔古水手  
+##### 96#       发表于 2024-1-29 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63791231&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-1-27 02:22</a>
+美军也动过运人的心思</blockquote>
+运人成本太高了，安全系数也低
+

@@ -719,3 +719,20 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 —— 来自 S1Fun</blockquote>
 没脚本的话有点累的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 10566#       发表于 2024-1-30 01:57
+
+这是狗专访？动物朋友真性情连演都不演啊，哇哦真有点厉害的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 10567#       发表于 2024-1-30 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63822789&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-30 00:18</a>
+笑了，这个访谈里面问2024年的目标，另外四个都在说希望mygo能跑更多活动和live，只有动物朋友说希望接到更 ...</blockquote>
+邦邦都给她抬进武道馆了，居然还是这种态度，不愧是大牌姐
+

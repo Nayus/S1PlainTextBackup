@@ -1611,3 +1611,14 @@ jmtt能进去列表，就是读不出章节，提示cloudflare拦截
 可能需要给它读取应用列表的权限？</blockquote>
 将权限调整后，重启软件的确就读出来了，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十元立没  
+##### 136#       发表于 2024-1-29 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63806808&amp;ptid=2167901" target="_blank">ml1642879 发表于 2024-1-28 18:20</a>
+平板电脑横屏双页最舒服的还是J2K的fork吧，mihon如何？还没准备换</blockquote>
+我觉得tachiyomisy还行，也有双页，还有r18设置
+感觉比j2k强在更的勤快
+

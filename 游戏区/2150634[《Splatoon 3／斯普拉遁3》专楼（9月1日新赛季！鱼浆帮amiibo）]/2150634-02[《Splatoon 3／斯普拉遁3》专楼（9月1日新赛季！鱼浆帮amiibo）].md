@@ -11885,3 +11885,11 @@ tm还有这种bug
 
 反正我已经气到遇到至少两个队友明显不会打光蝇烤架就挂机下一把了，过不了就去看教程视频学啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  Variks  
+##### 2681#       发表于 2024-1-29 16:40
+
+透支现实生活打了两天，打到900再也上不去了
+

@@ -1768,3 +1768,34 @@ bilibili我发了视频了（）
 
 但是我有公网IP，现在开着服务器自己设置选全低，看看到底能带几个人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeblack  
+##### 124#         楼主| 发表于 2024-1-30 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63820711&amp;ptid=2168983" target="_blank">哈迪斯兜帽 发表于 2024-1-29 20:58</a>
+房间转windows服务端
+
+我只替换了自己单机的存档，然后自己替换了单机的地图。
+
+但是之前一起玩的伙计进来就 ...</blockquote>
+本来就只需要转换主机的，不需要转换两个好友的存档数据……
+
+Git hub上面有一个那个逆向帕鲁的项目，你可以去看一下，所有人物的存档数据全部在你的地图数据里面！……
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  moeblack  
+##### 125#         楼主| 发表于 2024-1-30 07:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63820803&amp;ptid=2168983" target="_blank">哈迪斯兜帽 发表于 2024-1-29 21:04</a>
+我自己2700x+rx480，自己都跑不到60帧
+
+但是我有公网IP，现在开着服务器自己设置选全低，看看到底能带几个人 ...</blockquote>
+10个人
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

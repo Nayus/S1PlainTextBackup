@@ -196,3 +196,13 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 海铃明明能走动却不和幼驯染三人组互动可能是第二季打算卖幼驯染三角+海喵配平，提前避嫌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 10519#       发表于 2024-1-29 08:36
+
+看了爱祥if线的同人，虽然最开始和祥子关系好的爱音就是情报爱音吧，但是后面开始往wa2方向走就看不下去。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">为什么要伤害灯！我现在要化身立希好好教训下你！
+

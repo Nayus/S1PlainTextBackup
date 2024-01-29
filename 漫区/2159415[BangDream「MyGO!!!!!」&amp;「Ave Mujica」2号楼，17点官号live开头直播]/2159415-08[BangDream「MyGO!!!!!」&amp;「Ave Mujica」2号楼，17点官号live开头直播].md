@@ -814,3 +814,14 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 动画粉丝是喜欢这部动画所以喜欢里面的cv，cv粉丝是喜欢cv所以喜欢动画，优先级和价值各不相同<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Reinhold  
+##### 10577#       发表于 2024-1-30 06:23
+
+第一次看偶像企划就被恶心到了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+狗团确实已经塑造的差不多了，还是当鸡团粉丝吧，至少1st看得很爽，我很满意<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

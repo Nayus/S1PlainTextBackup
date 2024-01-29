@@ -266,3 +266,14 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63804959&amp;ptid=2159415" target="_blank">半年 发表于 2024-1-28 15:02</a></blockquote>
 冈田的手指修长又关节分明
 
+
+*****
+
+####  akirakira  
+##### 10527#       发表于 2024-1-29 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63818451&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-29 17:15</a>
+不是我说，部分爱音推就是素质高胆子大，可以理直气壮地在跟自推无关的二创下面深挖这二创和自推的关系，还 ...</blockquote>
+习惯就好，初睦祥二创的评论也经常会看到soyo和灯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这就是玩梗路人的热心肠，你们其他企划粉丝有没有这种包容心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

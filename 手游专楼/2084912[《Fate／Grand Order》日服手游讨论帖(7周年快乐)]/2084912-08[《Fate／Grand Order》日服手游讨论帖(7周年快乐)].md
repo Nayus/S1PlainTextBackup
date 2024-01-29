@@ -107,3 +107,48 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  GuDaZi  
+##### 11244#       发表于 2024-1-29 17:54
+
+还不如直接送看板娘得了，还能显得大方点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 11245#       发表于 2024-1-29 17:57
+
+这是什么黑色幽默……
+
+*****
+
+####  布伦史塔德  
+##### 11246#       发表于 2024-1-29 17:58
+
+<img src="https://img.saraba1st.com/forum/202401/29/175833h0gzlypp880t8glx.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2t-97h6K1hT1kSgh-7u.jpg</strong> (31.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202401/29/175833pv6djvyi2v1zyzob.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2t-12kyK1rT1kSgi-b3.jpg</strong> (37.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 17:58 上传
+
+这里带闪闪和咒腕玩自选就不带了
+
+*****
+
+####  quanlix  
+##### 11247#       发表于 2024-1-29 17:58
+
+麻了，我这呆毛歪到6宝了，这是逼我升个至高呆毛出来
+

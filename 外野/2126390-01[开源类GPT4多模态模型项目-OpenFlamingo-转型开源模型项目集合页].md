@@ -30468,3 +30468,168 @@ DeepSeek-Coder-v1.5 7B预训练数据来源
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1229#       发表于 2024-1-29 19:27
+
+pix2gestalt
+
+通过合成整体进行非模态切割(Amodal Segmentation)
+
+项目主页:https://gestalt.cs.columbia.edu/
+
+github项目代码仓库:https://github.com/cvlab-columbia/pix2gestalt
+
+pix2gestalt，一个零样本非模态分割框架，通过学习估计在遮挡后仅部分可见的整个对象的形状和外观，利用扩散模型将它们的表征迁移到这个任务中，学习了一个条件扩散模型用于在具有挑战性的零样本用例中重建整个物体，甚至在违背自然和物理先验的艺术作品示例中也能适用，作为训练数据，使用了一个构造的合成数据集，其中包含带有遮挡物的物体与它们的完整对应物
+
+实验证明，本文方法在基准测试中优于监督基线，此外，在存在遮挡的情况下，本文模型还可以显著提高现有的目标识别和3D重建方法的性能
+
+<img src="https://img.saraba1st.com/forum/202401/29/192527dkbdkblc3b5lc6zw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-191802__01.jpg</strong> (355.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:25 上传
+
+通过合成实现的非模态分割和重建，pix2gestalt方法可以从部分可见的对象中合成整个对象，实现非模态分割、识别、新视图合成和遮挡对象的3D重建
+
+<img src="https://img.saraba1st.com/forum/202401/29/192533c3dfh93frkdd79df.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-191836__01.jpg</strong> (119.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:25 上传
+
+预训练的扩散模型能够生成整个对象，展示了以类别为条件生成的Stable Diffusion样本，通过利用这种合成能力可以进行零样本非模态重建和分割
+
+<img src="https://img.saraba1st.com/forum/202401/29/192540ecz7c25o79y97a8y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-191849__01.jpg</strong> (403.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:25 上传
+
+pix2gestalt是一种使用潜在扩散架构的非模态补全模型，在输入遮挡图像和感兴趣区域的条件下，合成整体(非模态)形式，从而允许进行其他视觉任务
+
+<img src="https://img.saraba1st.com/forum/202401/29/192545o2k2ezert9x3itfe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-191901__01.jpg</strong> (577.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:25 上传
+
+构建训练数据，为了确保只遮挡整个物体，使用一种启发式方法，即比相邻物体更靠近摄像机的物体更可能是整个物体，物体周围的绿色轮廓显示估计的深度比背景更靠近摄像机的位置(红色则相反)
+
+<img src="https://img.saraba1st.com/forum/202401/29/192550c8ohdt7pybyiy9t7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-191911__01.jpg</strong> (651.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:25 上传
+
+ 真实自然场景的非模态补全和分割，pix2gestalt能够在新状况下合成整个对象，包括艺术作品、iPhone拍摄的图像和错觉图像
+
+<img src="https://img.saraba1st.com/forum/202401/29/192555iigeiudejymjk6us.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-191916__01.jpg</strong> (100.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:25 上传
+
+非模态分割结果，报告了在非模态COCO和非模态伯克利分割数据集上的mIoU(%)↑
+
+∗PCNet-Sup使用来自COCO-Amodal的非模态基准答案掩码进行训练
+
+<img src="https://img.saraba1st.com/forum/202401/29/192613qn3nl688r0nuudjd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-191948__01.jpg</strong> (352.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:26 上传
+
+在非模态COCO上的非模态补全和分割定性结果，在蓝色圆圈中，展示了PCNet基线中存在纹理扭曲的补全区域，而本文结果则是正确的纹理
+
+<img src="https://img.saraba1st.com/forum/202401/29/192621zjjvhdv58giwjgwj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-192009__01.jpg</strong> (518.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:26 上传
+
+非模态伯克利分割数据集的定性结果，本文方法提供了准确、完整的遮挡物体重建
+
+<img src="https://img.saraba1st.com/forum/202401/29/192626a92ncfwcshz92dsy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-192033__01.jpg</strong> (105.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:26 上传
+
+样本的多样性，非模补全具有固有的不确定性，通过扩散过程中的多次采样，该方法合成了多个可能与输入观察一致的整体物体
+
+<img src="https://img.saraba1st.com/forum/202401/29/192631g5ijirlhzlr0np6n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-192033__02.jpg</strong> (109.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:26 上传
+
+遮挡物体识别，在遮挡和分离COCO数据集上报告了零样本分类准确率，简单的基线方法无法在更具挑战性的分离COCO场景中提高CLIP性能，本文方法则始终以较大的优势提高了识别准确性
+
+<img src="https://img.saraba1st.com/forum/202401/29/192635w27m5orzo4d4cj5n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-192041__01.jpg</strong> (127.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:26 上传
+
+常识和物理错误
+
+左图:重建结果中汽车朝着错误的方向行驶
+右图:重建结果违反物理，未能捕捉到手必须拿着甜甜圈盒子的情况
+
+<img src="https://img.saraba1st.com/forum/202401/29/192641fid1nrx1mz9dz1g7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-192057__01.jpg</strong> (431.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:26 上传
+
+非模态3D重建的定性结果，其中感兴趣的物体由黄色点提示指定，将pix2gestalt作为现有SOTA 3D重建模型的插件，能够更轻松的解决用例中具有挑战性的多样化遮挡场景
+
+<img src="https://img.saraba1st.com/forum/202401/29/192647h5e5w1tdcmmz4aff.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-192103__01.jpg</strong> (93.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:26 上传
+
+单视图3D重建，报告了Scanned Objects的Chamfer距离和体积IoU
+
+<img src="https://img.saraba1st.com/forum/202401/29/192652gnkppgbpa4zmbplm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240129-192103__02.jpg</strong> (112.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 19:26 上传
+
+从单张图像中合成新视图，报告了在Scanned Objects上的结果，请注意SSIM衡量的是图像质量，而不是新视图的准确率
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

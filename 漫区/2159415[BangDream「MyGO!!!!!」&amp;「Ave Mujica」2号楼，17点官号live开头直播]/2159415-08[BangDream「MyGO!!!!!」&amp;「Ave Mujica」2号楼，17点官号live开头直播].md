@@ -445,3 +445,28 @@ live表现力和各种三次元互动果然还是挺重要的，mujica1st刚结�
 
 可能是🐶的武道馆太短了，也可能是🐔粉饿太久了
 
+
+*****
+
+####  相坂君  
+##### 10538#       发表于 2024-1-29 19:25
+
+鸡 饿 营 销 ！
+量多了说不定就没这么多同人
+
+*****
+
+####  NODY  
+##### 10539#       发表于 2024-1-29 19:25
+
+12th和asl也没什么人画啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然也可能是因为狗三次元live尽卖灯希或者爱希这种和二次元差别太大的cp所以大家都没兴趣
+
+*****
+
+####  后藤一里  
+##### 10540#       发表于 2024-1-29 19:32
+
+只要立石凛和小羊手牵手在水族馆约会，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

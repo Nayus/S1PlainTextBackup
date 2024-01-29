@@ -825,3 +825,24 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 —— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  凡人  
+##### 10578#       发表于 2024-1-30 06:44
+
+难以想象狗粉的心情，还好我是鸡粉，看见的时候只觉得笑翻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10579#       发表于 2024-1-30 06:44
+
+ 本帖最后由 PDQ4 于 2024-1-30 06:47 编辑 
+
+羊gachi的话术太典了，还好我主推不是狗，gachi很满意说明羊这个营业很对嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+太感谢社长i83amita大姐头李子狠狠维护我的幻想了，miku和佐仓不推，音宝负责可爱和大叔笑，太感动了，完美避开你邦不会满足幻想的主唱，我好幸福。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+可惜逃不开傻逼wsd<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

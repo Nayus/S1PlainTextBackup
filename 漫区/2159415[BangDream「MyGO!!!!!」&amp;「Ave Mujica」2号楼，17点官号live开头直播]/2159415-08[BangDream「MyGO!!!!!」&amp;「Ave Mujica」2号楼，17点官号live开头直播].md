@@ -806,3 +806,11 @@ MyGO什么的就不要管了，换个人吧
 
 wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
+
+*****
+
+####  66367749  
+##### 10576#       发表于 2024-1-30 06:10
+
+动画粉丝是喜欢这部动画所以喜欢里面的cv，cv粉丝是喜欢cv所以喜欢动画，优先级和价值各不相同<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -335,3 +335,16 @@ Will Starship Fall Over?</blockquote>
 
 2024-1-30 00:00 上传
 
+
+*****
+
+####  亚尔古水手  
+##### 109#       发表于 2024-1-30 06:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63822140&amp;ptid=2164773" target="_blank">commcody 发表于 2024-1-29 23:10</a>
+1：根据雷达、激光雷达数据可以从月球轨道甚至从地面雷达对月壤数据进行探测和推演。
+
+https://www.doc88. ...</blockquote>
+1只着重于月表测绘，并没有精确测量月表着陆区地表压强的功能吧，LRO只有LOLA和宽窄角相机是针对对地观测的，没有分析着陆压强的功能，会不会打新的观测卫星？
+2我刚刚提问有误，应该说HLS对于地面压强和地形的敏感度是否在nasa的容许范围之内，或者说设计上它对于地形的敏感度和阿波罗一样低？
+

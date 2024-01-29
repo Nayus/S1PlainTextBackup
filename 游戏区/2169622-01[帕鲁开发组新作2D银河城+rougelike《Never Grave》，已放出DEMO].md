@@ -1058,3 +1058,16 @@ NeverGrave体験版のアップデートを行いました。
 [https://twitter.com/NeverGrave_JP/status/1751873936198115395](https://twitter.com/NeverGrave_JP/status/1751873936198115395) <blockquote>特に中国での人気が凄まじいです！</blockquote>
 官推还特意提了句在中国很火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缺德猫  
+##### 106#       发表于 2024-1-29 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63819392&amp;ptid=2169622" target="_blank">堆雪若叶 发表于 2024-1-29 18:44</a>
+
+https://twitter.com/NeverGrave_JP/status/1751873936198115395
+
+官推还特意提了句在中国很火 ...</blockquote>
+国内很多自媒体都发了这游戏的内容（蹭帕鲁热度恰流量），不知道国外啥样
+

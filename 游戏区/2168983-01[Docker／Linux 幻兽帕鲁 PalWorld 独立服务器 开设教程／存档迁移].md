@@ -1758,3 +1758,13 @@ bilibili我发了视频了（）
 
 —— 来自 samsung SM-G9980, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 123#       发表于 2024-1-29 21:04
+
+我自己2700x+rx480，自己都跑不到60帧
+
+但是我有公网IP，现在开着服务器自己设置选全低，看看到底能带几个人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

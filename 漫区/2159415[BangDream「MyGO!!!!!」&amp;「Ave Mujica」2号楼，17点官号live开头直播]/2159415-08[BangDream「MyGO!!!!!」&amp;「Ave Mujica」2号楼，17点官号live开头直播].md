@@ -566,3 +566,13 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 其实看着像点兔。智乃x 心爱
 
+
+*****
+
+####  NODY  
+##### 10551#       发表于 2024-1-29 21:11
+
+找了一下given的pv，虽然知道这些台词都不算少见，但点进去就是“我什么都愿意做”和“不需要我了吧”还是绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+搜了一下人物和剧情介绍也确实和mygo有一些相似点，可能独角兽真的从这里面找到了部分灵感，不过具体内容比mygo黑多了，你邦果然还是温柔的8+世界
+

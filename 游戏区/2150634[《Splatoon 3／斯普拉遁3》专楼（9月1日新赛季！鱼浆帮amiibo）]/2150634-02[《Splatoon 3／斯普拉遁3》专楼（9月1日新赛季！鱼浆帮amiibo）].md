@@ -11924,3 +11924,14 @@ tm还有这种bug
 
 高分段：传说600及以上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 2685#       发表于 2024-1-29 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63818309&amp;ptid=2150634" target="_blank">carroy 发表于 2024-1-29 18:06</a>
+
+高分段：传说600及以上</blockquote>
+至少是solo上银章比较有说服力，组排康的，一solo立马露馅的我见过好多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

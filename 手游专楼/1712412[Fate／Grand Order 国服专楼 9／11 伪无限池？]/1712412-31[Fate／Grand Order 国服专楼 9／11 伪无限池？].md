@@ -855,3 +855,13 @@ ORT终战频繁消Buff削血太难受，另外每条血破后的伤害耐性也�
 
 今年确实无甚好抽的，本来水妖兰泛用卡面也好看，虽然整体性能不如强度美，但是厨力做主力也还行，结果宝具比本体降了规格以外甚至演出还很无语，最需要的甚至只是水小黑，今年就是每个池都可以跳，实在不行allin兽尼得了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 46015#       发表于 2024-1-29 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63813194&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2024-1-29 10:37</a>
+烟雾镜池子彩圈出弓，日他大爷！</blockquote>
+我也烟雾镜池子出彩弓，还是New源为朝
+

@@ -875,3 +875,11 @@ ort300万用小恩一炮就秒了
 ort前边多血条战真的毫无压力，知道最终战可以复原的话随便上5星，3回合一条血
 后边ort从者战wiki没写羁绊，看的攻略也没提，结果抄徐福单挑出来之后亏麻了
 
+
+*****
+
+####  collincollin  
+##### 46017#       发表于 2024-1-29 14:01
+
+all in 还不算，靠主线给的石头单抽上岸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

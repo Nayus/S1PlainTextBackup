@@ -744,3 +744,11 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 为什么每次羊宝都能在我们准备忘记很多事情的时候给自己上孜然送到我们面前呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10569#       发表于 2024-1-30 02:39
+
+只能说羊宝对二偶是真的不是那么上心，也不愿意上心
+

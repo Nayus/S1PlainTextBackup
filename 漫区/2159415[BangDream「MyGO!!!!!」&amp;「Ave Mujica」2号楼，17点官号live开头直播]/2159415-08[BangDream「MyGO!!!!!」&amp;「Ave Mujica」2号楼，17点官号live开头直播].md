@@ -277,3 +277,26 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 习惯就好，初睦祥二创的评论也经常会看到soyo和灯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 这就是玩梗路人的热心肠，你们其他企划粉丝有没有这种包容心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 10528#       发表于 2024-1-29 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63818906&amp;ptid=2159415" target="_blank">akirakira 发表于 2024-1-29 17:57</a>
+
+习惯就好，初睦祥二创的评论也经常会看到soyo和灯
+
+这就是玩梗路人的热心肠，你们其他企划粉丝有没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你邦对这种情况的宽容度高得根本不像一个偶像企划
+
+*****
+
+####  Arrogate  
+##### 10529#       发表于 2024-1-29 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63818451&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-29 17:15</a>
+
+不是我说，部分爱音推就是素质高胆子大，可以理直气壮地在跟自推无关的二创下面深挖这二创和自推的关系，还 ...</blockquote>
+原来……不止我这样想，而且，一般吃哪对很明显了但就是会用杂食党做借口去ky呢<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

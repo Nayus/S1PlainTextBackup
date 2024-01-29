@@ -152,3 +152,22 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 麻了，我这呆毛歪到6宝了，这是逼我升个至高呆毛出来
 
+
+*****
+
+####  ——啧  
+##### 11248#       发表于 2024-1-29 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63818823&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-29 17:48</a>
+因为闪闪是高贵的限定
+
+话说也没小安，默认他不存在了</blockquote>
+可以等FHA20周年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 11249#       发表于 2024-1-29 18:21
+
+闪闪这是被黑泥吞了吗233，这也太难看了
+

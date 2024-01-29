@@ -787,3 +787,14 @@ MyGO什么的就不要管了，换个人吧
 可以让平手来接替主唱不</blockquote>
 那我还是支持西条和
 
+
+*****
+
+####  ddy2811  
+##### 10574#       发表于 2024-1-30 04:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823387&amp;ptid=2159415" target="_blank">樱祈 发表于 2024-1-30 04:01</a>
+
+这么看二偶粉和皮套狗没啥区别，自顾自的感动，自顾自的破防，自顾自的用自己幻想的东西想要她们 ...</blockquote>
+这又不是二偶皮套什么的问题，这已经是最基本的工作要求了吧，谁在单位里这么干都免不了要被提醒一下的，如果不提醒要么业务能力真的强到足以忽略这些，要么已经打算边缘化甚至开人了<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+

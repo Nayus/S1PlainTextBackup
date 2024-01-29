@@ -139,3 +139,17 @@ B12在当地时间24号转移至Megabay，预计将开始安装33台猛禽2
 美军也动过运人的心思</blockquote>
 运人成本太高了，安全系数也低
 
+
+*****
+
+####  亚尔古水手  
+##### 97#       发表于 2024-1-29 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63791276&amp;ptid=2164773" target="_blank">hacisiki 发表于 2024-1-27 02:47</a>
+是被什么东西包围了么需要这东西对着包围圈砸下去运补给？下面有合适的着陆场么？ ...</blockquote>
+一次性的，用完就扔，估计是战时工兵推一个着陆场吧。
+
+预想中是第一岛链被封锁，制空权丧失，然后扔各个岛屿，确实很难拦截。
+
+关键这玩意不是开玩笑是真的在论证<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

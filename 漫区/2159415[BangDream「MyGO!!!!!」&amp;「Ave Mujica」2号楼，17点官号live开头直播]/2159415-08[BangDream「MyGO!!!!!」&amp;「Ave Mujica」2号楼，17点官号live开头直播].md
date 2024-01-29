@@ -470,3 +470,13 @@ live表现力和各种三次元互动果然还是挺重要的，mujica1st刚结�
 
 只要立石凛和小羊手牵手在水族馆约会，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 10541#       发表于 2024-1-29 19:52
+
+立石凛和小羊出去玩，简直无法想象的画面
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

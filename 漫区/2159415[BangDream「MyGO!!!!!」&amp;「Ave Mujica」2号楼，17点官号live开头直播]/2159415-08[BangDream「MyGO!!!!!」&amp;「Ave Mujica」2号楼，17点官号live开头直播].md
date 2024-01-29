@@ -300,3 +300,14 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 不是我说，部分爱音推就是素质高胆子大，可以理直气壮地在跟自推无关的二创下面深挖这二创和自推的关系，还 ...</blockquote>
 原来……不止我这样想，而且，一般吃哪对很明显了但就是会用杂食党做借口去ky呢<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 10530#       发表于 2024-1-29 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63819106&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-29 18:16</a>
+
+你邦对这种情况的宽容度高得根本不像一个偶像企划</blockquote>
+飯圈警告哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

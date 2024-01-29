@@ -2799,3 +2799,11 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 怎么感觉大哥要李代桃僵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3578#       发表于 2024-1-29 13:42
+
+【【1月】奇异贤伴 黑色天使 SYNDUALITY Noir 第16话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/409FxcP](https://b23.tv/409FxcP)   16话预告汉化版
+

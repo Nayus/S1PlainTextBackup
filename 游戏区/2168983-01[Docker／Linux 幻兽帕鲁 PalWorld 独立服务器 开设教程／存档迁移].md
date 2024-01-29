@@ -1712,3 +1712,15 @@ bilibili我发了视频了（）
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  qianoooo  
+##### 119#       发表于 2024-1-29 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63812866&amp;ptid=2168983" target="_blank">Mikumiku831 发表于 2024-1-29 10:14</a>
+有啥方法知道服务端更新了没 想弄个计划任务自动更新</blockquote>
+看steamdb
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

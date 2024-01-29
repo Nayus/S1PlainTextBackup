@@ -11775,3 +11775,33 @@ tm还有这种bug
 
 —— 来自 meizu MEIZU 20 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Ryuuseigun  
+##### 2671#       发表于 2024-1-29 11:48
+
+半夜没人了810分就被拉壮丁去打MAX
+
+*****
+
+####  Dedalus  
+##### 2672#       发表于 2024-1-29 11:50
+
+ 本帖最后由 Dedalus 于 2024-1-29 11:52 编辑 
+
+航母关实在太无聊了，是个人就能过，赢了毫无成就感输了只会上火骂奇葩队友，完全零正反馈浪费三分钟
+随机武器更凸显这个问题，好不容易随机到一把好武器结果是航母关真想骂脏话<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+想到这暴论一下，干脆取消所有夜间关卡好了，夜间关卡都是固定套路随机性弱，玩多了就是不如普通关有乐子。再加上不同夜间关卡难度平衡性做的很差，简单的关无聊到让人不想玩，难的关连续遇到头疼，唯二好玩的大炮关和雾关也是因为和普通关相似才好玩，感觉设计挺失败的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2673#       发表于 2024-1-29 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">快递关也遇到过没过的，不知道队友都在干什么
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

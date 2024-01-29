@@ -891,3 +891,25 @@ all in 还不算，靠主线给的石头单抽上岸<img src="https://static.sar
 
 我还在等情人节的茶壶给了以后用灵脉石把羁绊队砸过去那几个一万羁绊的本<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46019#       发表于 2024-1-29 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63813194&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2024-1-29 10:37</a>
+烟雾镜池子彩圈出弓，日他大爷！</blockquote>
+源为朝或者拿破仑还好，月神或者阿周那那就惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  flyzzhj  
+##### 46020#       发表于 2024-1-29 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63816549&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-1-29 14:59</a>
+
+源为朝或者拿破仑还好，月神或者阿周那那就惨了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿破仑已经歪过了，这次俄里翁4宝了，源为朝我也就人了
+
+不过出弓我第一个反应还真的就是俄里翁
+

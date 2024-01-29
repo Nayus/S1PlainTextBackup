@@ -11935,3 +11935,13 @@ tm还有这种bug
 高分段：传说600及以上</blockquote>
 至少是solo上银章比较有说服力，组排康的，一solo立马露馅的我见过好多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 2686#       发表于 2024-1-29 21:20
+
+虽然四个图我都是野康的，但是总感觉800分以上我就是划水的那个
+
+400-600感觉还有机会能carry
+

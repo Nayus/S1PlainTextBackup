@@ -1601,3 +1601,13 @@ jmtt能进去列表，就是读不出章节，提示cloudflare拦截
 借楼问下ios除了aidoku还有什么用阅读源的漫画app啊……yealico不好用了aidoku测试名额抢不到 ...</blockquote>
 老老实实用皮皮喵吧，这个事件还是网友发我的，iOS有tachimanga
 
+
+*****
+
+####  LLLLLuB  
+##### 135#       发表于 2024-1-29 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63809415&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-1-28 22:43</a>
+可能需要给它读取应用列表的权限？</blockquote>
+将权限调整后，重启软件的确就读出来了，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

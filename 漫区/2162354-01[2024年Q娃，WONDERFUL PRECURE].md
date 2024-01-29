@@ -482,3 +482,14 @@ op的猫猫也是一股子母性慈爱的样子<img src="https://static.saraba1s
 
 再看一遍op发现彩羽常服是漏腰的，这小朋友看了哪顶得住啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 543#       发表于 2024-1-29 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63812239&amp;ptid=2162354" target="_blank">ehen 发表于 2024-1-29 09:24</a>
+
+再看一遍op发现彩羽常服是漏腰的，这小朋友看了哪顶得住啊</blockquote>
+小友前辈们都是幼女怎么会顶不住，狗大友们才会顶不住好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

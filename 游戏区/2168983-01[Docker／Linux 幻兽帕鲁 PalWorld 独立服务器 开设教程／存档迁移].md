@@ -1745,3 +1745,16 @@ bilibili我发了视频了（）
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 122#       发表于 2024-1-29 20:58
+
+房间转windows服务端
+我只替换了自己单机的存档，然后自己替换了单机的地图。
+但是之前一起玩的伙计进来就有数据，他说帕鲁也都在，虽然是一个公会的，总不能房间主机也存了会员的数据吧。
+等等另一个成员也来了我再问问他。
+
+—— 来自 samsung SM-G9980, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

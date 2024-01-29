@@ -606,3 +606,20 @@ op的猫猫也是一股子母性慈爱的样子<img src="https://static.saraba1s
 眼睛男和华哥应该锁死了，豚豚可以捡点猫组（不空降反派的前提下）</blockquote>
 又不是华哥脸红怎么就锁死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zyw0  
+##### 556#       发表于 2024-1-29 21:01
+
+这兔子到底是公的还是母的
+
+*****
+
+####  帝下室の年糕  
+##### 557#       发表于 2024-1-29 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63820503&amp;ptid=2162354" target="_blank">有骨气的百合 发表于 2024-1-29 20:40</a>
+又不是华哥脸红怎么就锁死了</blockquote>
+不会真以为能在成田手下掐死明确的BG箭头吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -282,3 +282,17 @@ Will Starship Fall Over?
 
 看来B10距离安装引擎还有段时间
 
+
+*****
+
+####  亚尔古水手  
+##### 106#       发表于 2024-1-29 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63819580&amp;ptid=2164773" target="_blank">commcody 发表于 2024-1-29 19:03</a>
+在第二发贴中已讨论过该问题。
+
+Will Starship Fall Over?</blockquote>
+现在月球轨道上还没有可以测量落月地区浮尘厚度和压强的详查手段吧，如果有的话还想请教下？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">还有nasa对于重心比较敏感的事确有其事嘛？这个似乎也没有公开文章谈过。
+
+当然不会倒是最好了
+

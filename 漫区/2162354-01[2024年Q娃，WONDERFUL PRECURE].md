@@ -542,3 +542,13 @@ op的猫猫也是一股子母性慈爱的样子<img src="https://static.saraba1s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">今年的常规战士能尽快入队，就尽快入队吧，干耗着没意思
 
+
+*****
+
+####  leleq  
+##### 550#       发表于 2024-1-29 18:29
+
+其实今年按理应该是恶の女干部洗白年才对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+眼镜完全有可能是动物王国的王子啥的更符合成田大妈的路子。
+

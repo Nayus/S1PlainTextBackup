@@ -39,3 +39,15 @@ SD 和 ROG Ally 都是刚出的时候被质疑 <img src="https://static.saraba1s
 
 风怒，编辑掉。
 
+
+*****
+
+####  酷乐  
+##### 1094#       发表于 2024-1-29 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63811710&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-29 08:23</a>
+咦，在哪看到有说 50w 销量呀，我看原文里面只说了印度的销量。50w 的话我觉得应该高于预期了，不能跟 SD ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-2167388-1-1.html](https://bbs.saraba1st.com/2b/thread-2167388-1-1.html)
+
+根据销售额估算的，再说印度都能卖7到8万，全球50万都估少了吧。
+

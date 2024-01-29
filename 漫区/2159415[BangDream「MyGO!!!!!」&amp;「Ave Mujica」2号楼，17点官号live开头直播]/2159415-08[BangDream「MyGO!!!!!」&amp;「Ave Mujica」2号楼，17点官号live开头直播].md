@@ -576,3 +576,19 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 搜了一下人物和剧情介绍也确实和mygo有一些相似点，可能独角兽真的从这里面找到了部分灵感，不过具体内容比mygo黑多了，你邦果然还是温柔的8+世界
 
+
+*****
+
+####  JY要塞  
+##### 10552#       发表于 2024-1-29 21:27
+
+[https://twitter.com/athyrabunlord/status/1751917891228983528](https://twitter.com/athyrabunlord/status/1751917891228983528)
+
+<img src="https://img.saraba1st.com/forum/202401/29/212710r8nmc4rsor56p5l6.jpg" referrerpolicy="no-referrer">
+
+<strong>GFAP5PMaAAADRr5.jpg</strong> (77.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-29 21:27 上传
+

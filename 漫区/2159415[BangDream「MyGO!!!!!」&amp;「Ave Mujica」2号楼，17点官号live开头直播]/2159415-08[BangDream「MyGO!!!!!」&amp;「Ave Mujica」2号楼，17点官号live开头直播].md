@@ -705,3 +705,17 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 可以让平手来接替主唱不<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 10565#       发表于 2024-1-30 01:36
+
+ 本帖最后由 基神的强袭自由 于 2024-1-30 01:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823141&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-30 01:21</a>
+
+别急 等🐑尬伴舞醒来就是人头滚滚 空中楼阁了
+
+—— 来自 S1Fun</blockquote>
+没脚本的话有点累的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

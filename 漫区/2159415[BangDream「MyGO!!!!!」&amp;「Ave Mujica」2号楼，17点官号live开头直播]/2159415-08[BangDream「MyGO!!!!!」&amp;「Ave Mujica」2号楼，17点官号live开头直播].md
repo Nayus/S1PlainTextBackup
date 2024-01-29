@@ -752,3 +752,20 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 只能说羊宝对二偶是真的不是那么上心，也不愿意上心
 
+
+*****
+
+####  ddy2811  
+##### 10570#       发表于 2024-1-30 03:42
+
+祝小羊的CV事业一帆风顺
+
+MyGO什么的就不要管了，换个人吧
+
+*****
+
+####  实津二三  
+##### 10571#       发表于 2024-1-30 03:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">不要骂小羊了，我是小羊肉体厨。
+

@@ -223,3 +223,11 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 有分流吗，在阿姨那不是等着人上门打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 10522#       发表于 2024-1-29 10:48
+
+希望bd的镜头能正常点，直播源的摄影和导播都感觉多喝了二两
+

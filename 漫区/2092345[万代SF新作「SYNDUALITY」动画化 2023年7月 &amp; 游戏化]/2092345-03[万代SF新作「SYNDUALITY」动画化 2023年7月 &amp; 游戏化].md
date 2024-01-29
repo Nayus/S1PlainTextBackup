@@ -2807,3 +2807,13 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 【【1月】奇异贤伴 黑色天使 SYNDUALITY Noir 第16话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/409FxcP](https://b23.tv/409FxcP)   16话预告汉化版
 
+
+*****
+
+####  novyDC  
+##### 3579#       发表于 2024-1-29 22:54
+
+该上线看直播了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

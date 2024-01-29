@@ -11805,3 +11805,15 @@ tm还有这种bug
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  蓝色的眷念  
+##### 2674#       发表于 2024-1-29 14:12
+
+<img src="https://p.sda1.dev/15/db47f3b24d2ed01370ab23c1b4c7fdea/CMP_20240129141154408.png" referrerpolicy="no-referrer">
+
+康的最折磨的一次，总感觉任天堂在CPU我
+
+—— 来自 meizu MEIZU 20 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

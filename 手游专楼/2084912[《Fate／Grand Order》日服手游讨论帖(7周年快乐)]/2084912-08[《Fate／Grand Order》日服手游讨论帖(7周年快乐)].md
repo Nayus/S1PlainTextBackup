@@ -221,3 +221,11 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 我国服五宝呆毛，日服图鉴没开，这波是悲喜交加<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 11256#       发表于 2024-1-29 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我棉被光靠歪都3宝了 这次换完看来五宝指日可待了
+

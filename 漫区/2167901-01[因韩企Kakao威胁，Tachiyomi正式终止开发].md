@@ -1622,3 +1622,13 @@ jmtt能进去列表，就是读不出章节，提示cloudflare拦截
 我觉得tachiyomisy还行，也有双页，还有r18设置
 感觉比j2k强在更的勤快
 
+
+*****
+
+####  孟沁瑶  
+##### 137#       发表于 2024-1-30 00:53
+
+j2k 更新漫画人插件后，漫画人提示用户id已清楚，有人知道什么问题吗
+
+—— 来自 OnePlus HD1900, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

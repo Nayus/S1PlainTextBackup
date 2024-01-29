@@ -662,3 +662,11 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 唉，同框异梦
 
+
+*****
+
+####  NODY  
+##### 10560#       发表于 2024-1-30 00:49
+
+挺可惜的，要是狗也有个唱功好有团魂的主唱没准热度还能再上一层，现在可能就这样不上不下了，明年鸡团主场一来武士道就不用想方设法让动物朋友干活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

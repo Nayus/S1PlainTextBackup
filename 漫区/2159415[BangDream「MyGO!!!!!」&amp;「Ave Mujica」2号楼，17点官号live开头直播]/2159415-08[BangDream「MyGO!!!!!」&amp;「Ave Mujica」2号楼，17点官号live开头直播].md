@@ -592,3 +592,27 @@ https://x.com/same_427/status/1751641879039615316?s=20<img src="https://p.sda1.d
 
 2024-1-29 21:27 上传
 
+
+*****
+
+####  NODY  
+##### 10553#       发表于 2024-1-30 00:18
+
+笑了，这个访谈里面问2024年的目标，另外四个都在说希望mygo能跑更多活动和live，只有动物朋友说希望接到更多的角色，这怎么说也是mygo的采访吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/30/001836t7sbjzsptjkn607e.jpg" referrerpolicy="no-referrer">
+
+<strong>da99ba395343fbf2c4da711bf67eca8064388f5f.jpg</strong> (283.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/001851allellkenri52zmg.jpg" referrerpolicy="no-referrer">
+
+<strong>10319baccbef7609ccfd4ea768dda3cc7dd99e5f.jpg</strong> (284.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 00:18 上传
+

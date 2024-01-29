@@ -213,3 +213,11 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 好耶，呆毛终于开图鉴了
 
+
+*****
+
+####  清河子  
+##### 11255#       发表于 2024-1-29 19:13
+
+我国服五宝呆毛，日服图鉴没开，这波是悲喜交加<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

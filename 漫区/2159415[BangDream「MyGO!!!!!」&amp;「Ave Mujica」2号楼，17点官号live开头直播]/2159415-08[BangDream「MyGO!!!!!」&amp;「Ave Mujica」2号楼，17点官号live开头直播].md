@@ -437,3 +437,11 @@ Live后的返图表明她变成立牌了，MGGM正在百度把人变回来的方
 
 live表现力和各种三次元互动果然还是挺重要的，mujica1st刚结束就出了一大堆同人图，但mygo武道馆live返图就看到一个人在画，live相关的二创也基本在吃动画老本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 10537#       发表于 2024-1-29 19:19
+
+可能是🐶的武道馆太短了，也可能是🐔粉饿太久了
+

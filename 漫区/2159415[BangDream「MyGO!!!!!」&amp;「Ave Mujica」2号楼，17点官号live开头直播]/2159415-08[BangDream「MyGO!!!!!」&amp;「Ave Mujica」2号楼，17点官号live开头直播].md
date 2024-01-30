@@ -5725,3 +5725,16 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 本质是紫吧抽象乐子人才是符合中文互联网版本的，成 ...</blockquote>
 除了不涉及大事原则问题外有啥区别？几年前给那位大厨辩护的人，大部分今年11月都在开骂，正如9月、10月还在给她辩护的人一样。（一厢情愿的）信任被透支一空、“以前还不相信，这下才发现居然是真的”后破防和青蒜就是加倍的。
 
+
+*****
+
+####  makece  
+##### 11097#       发表于 2024-1-31 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63834265&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-30 23:45</a>
+
+说楠木灯的真是凑热闹连版本都赶不上，稍微查查就知道前年11月宣换人之后，基本啥二偶都没接过
+
+ ...</blockquote>
+连换都不会换 人选不都图一乐
+

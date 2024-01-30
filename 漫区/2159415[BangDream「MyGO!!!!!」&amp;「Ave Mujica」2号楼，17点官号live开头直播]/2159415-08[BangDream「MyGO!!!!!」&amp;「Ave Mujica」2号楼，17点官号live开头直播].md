@@ -3182,3 +3182,51 @@ gachi很拼命算不算优势<img src="https://static.saraba1st.com/image/smiley
 音宝现在除了爱蹭好像也没太大缺点了（话说她怎么那么爱蹭李+啊）</blockquote>
 她可是真爱
 
+
+*****
+
+####  hijack997  
+##### 10842#       发表于 2024-1-30 13:13
+
+当年虹选人的时候，贴吧有猜响社会进去几个
+
+*****
+
+####  Aendst  
+##### 10843#       发表于 2024-1-30 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">蝶新专还挺好听的，有没有熟悉音宝的漏油科普一下现在现场怎么样
+
+武士道能不能把老歌重录一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 10844#       发表于 2024-1-30 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63827484&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-30 13:13</a>
+蝶新专还挺好听的，有没有熟悉音宝的漏油科普一下现在现场怎么样
+
+武士道能不能把老歌重录一下[f:068 ...</blockquote>
+上次来沪的现场不就净化了音黑
+你音体能杠杠的
+
+*****
+
+####  NODY  
+##### 10845#       发表于 2024-1-30 13:19
+
+音宝挺有自觉的，知道自己没啥唱歌天赋，至少把体力和音量练起来
+
+*****
+
+####  Aendst  
+##### 10846#       发表于 2024-1-30 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63827516&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-30 13:16</a>
+
+上次来沪的现场不就净化了音黑
+
+你音体能杠杠的</blockquote>
+听说过上海场发挥很好，年纪也蛮小的十分未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

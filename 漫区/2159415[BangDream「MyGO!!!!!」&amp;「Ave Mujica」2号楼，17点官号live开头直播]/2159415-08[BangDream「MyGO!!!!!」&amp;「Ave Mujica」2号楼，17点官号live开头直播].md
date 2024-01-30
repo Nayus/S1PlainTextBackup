@@ -2515,3 +2515,148 @@ non酱在邦邦又没怎么耍大牌
 
 i83伟大，无需多言。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 10770#       发表于 2024-1-30 11:43
+
+tymm也就是业务不行，营业态度没得说吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  QuattroVageena  
+##### 10771#       发表于 2024-1-30 11:43
+
+羊宫只有mygo就不会被烤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+gachi可以用新人不懂事堵嘴，然后和女大组成不读空气cp碰瓷mhai
+
+*****
+
+####  假药入脑不可取  
+##### 10772#       发表于 2024-1-30 11:43
+
+都是主唱，i83的爱意满满没学到，i83的八面玲珑没学到，只学到3贴是吧（烂炒）
+
+*****
+
+####  Nieven  
+##### 10773#       发表于 2024-1-30 11:44
+
+有意思的事是
+这次几个论坛一起上阵烤羊，唯独我加的几个现地群一片祥和，完全get不了这次要烤的点
+大概是因为现地民还是更关注live实际表现，拷打唱功之类的能有点说道但这些场外的东西就不会去太理会了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10774#       发表于 2024-1-30 11:44
+
+上周有个神奇的小号冲进来给你楼盖章祥孝楼，那么NGA专楼现在叫什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 10775#       发表于 2024-1-30 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826246&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-1-30 11:38</a>
+
+有没有可能这里是mygo专楼要不你自己出去建个羊宫真爱楼？
+
+—— 来自 Xiaomi Redmi K30 Pro, Andro ...</blockquote>
+要不是我看一眼标题「MyGO!!!!!」&amp;「Ave Mujica」，我就信了这里是mygo专楼
+
+什么你说的是 【BanG Dream新作动画《BanG Dream!It's MyGO!!!!! 》13: 唯一能相信的只有自己】吗？
+
+好的没问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱祈  
+##### 10776#       发表于 2024-1-30 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826317&amp;ptid=2159415" target="_blank">Nieven 发表于 2024-1-30 11:44</a>
+有意思的事是
+这次几个论坛一起上阵烤羊，唯独我加的几个现地群一片祥和，完全get不了这次要烤的点
+大概是 ...</blockquote>
+主要烤羊的人低龄用户占比多，很多小孩子心智还不成熟，没有明辨是非和独立思考的能力，容易被风向带偏
+
+*****
+
+####  江口夕  
+##### 10777#       发表于 2024-1-30 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826285&amp;ptid=2159415" target="_blank">lactone 发表于 2024-1-30 11:41</a>
+这就不得不提roselia了
+
+换了两个人气角色cv还能继续是你邦人气最高团</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5th可是传奇，那场交接还算得当没怎么滑坡罢了。
+志崎女士就不告说了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ads147147  
+##### 10778#       发表于 2024-1-30 11:50
+
+ 本帖最后由 ads147147 于 2024-1-30 11:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826289&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-30 11:42</a>
+
+反正这事如果糟糕不到成海那种水平基本是换不了的，只能说mygo粉丝有福了
+
+—— 来自 Xiaomi M2012K ...</blockquote>
+其实吧。成海女士那种级别可遇不可求，毕竟完全没办法否认被石锤了。
+
+换拉这边已经被岁月史书成缪黑造谣了。。（还有更过分的说是水厨造谣，只能说老师已经提高了我对cv事件的抗性）
+
+*****
+
+####  相坂君  
+##### 10779#       发表于 2024-1-30 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">过年就是好，还是漏油真会说吉祥话夸人，泥楼的一部分漏油都变年轻了，真好
+
+*****
+
+####  贝恩德塔  
+##### 10780#       发表于 2024-1-30 11:52
+
+等审核
+
+<img src="https://img.saraba1st.com/forum/202401/30/115204x6szn22h8rr8q2wh.png" referrerpolicy="no-referrer">
+
+<strong>%WGDHW}}`1@YJ%L~9L5QONT.png</strong> (74.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 11:52 上传
+
+*****
+
+####  杂兵敬业先锋  
+##### 10781#       发表于 2024-1-30 11:52
+
+偷点NGA专楼被MUTE笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+台长在**台上说：下面认为mygo团很有团魂的人站在左边，没有团魂的人站在右边
+
+大多数人站在了左边 少数人站在了右边 有一个人站在中间
+
+台长问：这位同学，你认为mygo有没有团魂？
+
+她回答到：我不知道mygo有没有团魂 但是大家今晚能来听我唱的心危的翻唱吗
+
+台长大惊道：羊宫妃那小姐请赶快到**台上来！
+
+*****
+
+####  PDQ4  
+##### 10782#       发表于 2024-1-30 11:52
+
+自信点，泥漏绝大部分漏油都变年轻了，要是肩颈和老腰也能年轻就好喽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

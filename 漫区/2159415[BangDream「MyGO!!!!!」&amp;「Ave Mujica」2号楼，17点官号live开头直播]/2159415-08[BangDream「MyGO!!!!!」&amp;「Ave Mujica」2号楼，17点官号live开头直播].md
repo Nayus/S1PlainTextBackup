@@ -1883,3 +1883,170 @@ ng2羊嘎有点过激了<img src="https://static.saraba1st.com/image/smiley/face
 
 只能说看人想不想做吧
 
+
+*****
+
+####  lactone  
+##### 10700#       发表于 2024-1-30 10:53
+
+支持西条和上位，整合227的gachi粉，到时候第二专大卖十万份<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jerryoq1  
+##### 10701#       发表于 2024-1-30 10:53
+
+隔壁确实不怎待见mujica<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨姆1405  
+##### 10702#       发表于 2024-1-30 10:53
+
+上次见到这般空中楼阁还是在少前吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dayahal  
+##### 10703#       发表于 2024-1-30 10:53
+
+太拼命了属实超越版本<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 10704#       发表于 2024-1-30 10:54
+
+放出来了，那十几页全给炸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给泥哥伴舞唐完了
+
+提都不能提的那位现在什么评价，我觉得大家都是有数的吧？
+
+*****
+
+####  NODY  
+##### 10705#       发表于 2024-1-30 10:54
+
+删掉了整整二十页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 10706#       发表于 2024-1-30 10:55
+
+羊以后叫ykw好了
+
+*****
+
+####  yaneis  
+##### 10707#       发表于 2024-1-30 10:55
+
+<blockquote>ddy2811 发表于 2024-1-30 10:54
+放出来了，那十几页全给炸了给泥哥伴舞唐完了
+
+提都不能提的那位现在什么评价，我觉得大家都是有数的 ...</blockquote>
+这不喜提外号那位大人，这下真大牌了
+
+*****
+
+####  PDQ4  
+##### 10708#       发表于 2024-1-30 10:56
+
+看来伴舞不够爱啊，够勇的话复刻一次舟版全炸了那乐子大的很<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天之歌  
+##### 10709#       发表于 2024-1-30 10:56
+
+原来想说jp六小龄童灵堂卖片的，结果六老师的基本功和实力远超羊了，尬黑了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10710#       发表于 2024-1-30 10:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">居然没炸，拉了啊
+
+
+*****
+
+####  NODY  
+##### 10711#       发表于 2024-1-30 10:58
+
+nga走廊和专楼撕祥子撕立希撕soyo的时候从来不见版务出现，一烤羊直接飞速锁楼删帖一条龙，太gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10712#       发表于 2024-1-30 10:58
+
+不待见mujica和泥漏还要因为烤羊跑来泥漏避难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是为难隔壁了
+
+*****
+
+####  椎名mahuyo  
+##### 10713#       发表于 2024-1-30 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不装了也好，这态度确实只能当声优团看了
+
+不过上心程度估计不如声优团
+
+*****
+
+####  庸necro  
+##### 10714#       发表于 2024-1-30 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825671&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-30 10:56</a>
+
+看来伴舞不够爱啊，够勇的话复刻一次舟版全炸了那乐子大的很还是你邦太糊了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 10715#       发表于 2024-1-30 10:59
+
+所以下次有谁再骂这里鸡团楼，直接一句羊gachi楼顶回去吧<img src="https://static.saraba1st.com/image/smiley/carton2017/398.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10716#       发表于 2024-1-30 11:00
+
+鸡团楼怎么是骂，喜欢mujica是坏事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十天10  
+##### 10717#       发表于 2024-1-30 11:00
+
+太乐了
+
+*****
+
+####  lactone  
+##### 10718#       发表于 2024-1-30 11:00
+
+ 本帖最后由 lactone 于 2024-1-30 11:02 编辑 
+
+你邦邦真人团里羊也不是最大牌的吧，怎么别人至少表面就能营业的不错
+
+林鼓子高尾奏音都比羊资格老
+隔壁中岛由贵又是爱马仕又是邦又是烤
+hego更是重量级老江湖
+
+哪怕声优团，佐仓和miku和amita营业态度也没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  相坂君  
+##### 10719#       发表于 2024-1-30 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为再看一次粥四张红纸，班务不够爱啊，来点追杀看看噶力
+

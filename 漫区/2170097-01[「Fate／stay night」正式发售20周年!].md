@@ -597,3 +597,13 @@ nga那边传来消息<img src="https://static.saraba1st.com/image/smiley/face201
 
 goa做个特别篇动画差不多了，月姬r里线都还没出指望菌哥出力的新作不太可能
 
+
+*****
+
+####  Saber琪  
+##### 67#       发表于 2024-1-30 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63822992&amp;ptid=2170097" target="_blank">Lawliet.L 发表于 2024-1-30 00:51</a>
+拍个呆毛王版的《亚瑟王之死》怎么样？</blockquote>
+那不就是goa阿瓦隆之庭嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

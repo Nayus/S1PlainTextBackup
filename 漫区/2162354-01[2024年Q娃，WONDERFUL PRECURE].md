@@ -672,3 +672,29 @@ op的猫猫也是一股子母性慈爱的样子<img src="https://static.saraba1s
 
 上一部男小鸟当常规，这部就要有男兔子当追加了吗，什么时候把真小男孩追加抬上来啊
 
+
+*****
+
+####  碎镜子  
+##### 564#       发表于 2024-1-30 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825204&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-1-30 10:25</a>
+
+上一部男小鸟当常规，这部就要有男兔子当追加了吗，什么时候把真小男孩追加抬上来啊 ...</blockquote>
+OP都是主仆组合，追加大概率两个人吧。
+
+*****
+
+####  碎镜子  
+##### 565#       发表于 2024-1-30 10:56
+
+脸红感觉两个镜头是连着得吗，作为一个怀疑主义者老觉得有人要骗我。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是对着狗形态的小麦脸红就有乐子了。
+
+*****
+
+####  帝下室の年糕  
+##### 566#       发表于 2024-1-30 10:57
+
+一共五种颜色，追加两人难道是双人变身，坂冈锦的追加南通双人变身bank要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+

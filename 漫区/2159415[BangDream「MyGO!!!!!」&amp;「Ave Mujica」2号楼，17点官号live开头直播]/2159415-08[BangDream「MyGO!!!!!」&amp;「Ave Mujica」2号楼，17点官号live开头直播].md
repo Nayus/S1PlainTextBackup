@@ -922,3 +922,20 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Aendst  
+##### 10589#       发表于 2024-1-30 08:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">别跳舞了，2nd能不能来点能好好弹琴的新曲
+
+*****
+
+####  Aloereed  
+##### 10590#       发表于 2024-1-30 08:44
+
+国航这机上wifi太慢了，大早上只能刷刷各个论坛看烤羊了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

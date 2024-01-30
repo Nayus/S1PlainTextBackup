@@ -1146,3 +1146,11 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 没事，接下来轮到等型月20周年了，啊，不对，20周年好像也已经过了？那该等30周年了！ ...</blockquote>
 错误的，明年fha20周年，还有fgo十周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圈量子  
+##### 123#       发表于 2024-1-31 00:05
+
+请记住galgame和乙女游戏这些不需要性能的文字游戏在发售时基本是跟着掌机跑的
+

@@ -305,3 +305,16 @@ FZ20周年呆毛是不是又能再上一次自选了
 虽然预计上场率不会比黑呆高，但能白嫖一个呆毛还是蛮爽的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑呆那次强化和已经和本体不是一个级别的了
 
+
+*****
+
+####  eilot  
+##### 11265#       发表于 2024-1-31 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63834306&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-1-30 23:50</a>
+
+黑呆那次强化和已经和本体不是一个级别的了</blockquote>
+唯一分別
+
+藍傻可以在任何池都能出到，但黑呆只能等抽故事池或PU池...
+

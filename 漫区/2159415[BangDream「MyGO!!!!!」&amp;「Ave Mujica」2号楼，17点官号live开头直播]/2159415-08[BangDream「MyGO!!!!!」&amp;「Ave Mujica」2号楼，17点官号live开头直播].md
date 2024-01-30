@@ -5271,3 +5271,40 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 
 山根绮也是青二的来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 11052#       发表于 2024-1-30 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832946&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-30 21:30</a>
+
+突然好奇想问一下，李子这个金发染了多久了？</blockquote>
+12/24染的
+[https://twitter.com/sasakirico/status/1738871746793771139](https://twitter.com/sasakirico/status/1738871746793771139)
+
+而且我真的有點感覺她是為了演得更像初華才去染的，1st看完我已經狠狠入腦，
+
+李子就是初華本華！而且初華喜歡祥子，李子也喜歡奏音！<strong>完全吻合</strong><img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  微尘众  
+##### 11053#       发表于 2024-1-30 22:16
+
+鸭鸭和川口都是青二的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">营业也没落下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Seabiscuit  
+##### 11054#       发表于 2024-1-30 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832586&amp;ptid=2159415" target="_blank">亚尔古水手 发表于 2024-1-30 20:51</a>
+
+谁啊</blockquote>
+17年拜年祭1p22:30
+
+低情商的说法，羊比这人情商都要低<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

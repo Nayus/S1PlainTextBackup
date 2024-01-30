@@ -16,3 +16,11 @@
 
 （也许这意味着会很难？）
 
+
+*****
+
+####  ヒトニナル  
+##### 531#       发表于 2024-1-30 22:16
+
+船长玛丽终于要来了，但是这次抓的是红鲸<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

@@ -1072,3 +1072,34 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 
 觉得失望的都是伪厨，真厨早就不抱任何希望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  natmk  
+##### 115#       发表于 2024-1-30 21:04
+
+另开个工作室炒fsn冷饭不行吗
+
+*****
+
+####  Mr1z  
+##### 116#       发表于 2024-1-30 21:05
+
+你哪怕多出点儿周边圈米呢？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天剑流星  
+##### 117#       发表于 2024-1-30 21:05
+
+居然还有冷饭端出来啊，我还以为什么都没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 118#       发表于 2024-1-30 21:10
+
+要不是早上看到有游戏新官推出现，我的预期还会更低，之前想的是办点展会和活动就结了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

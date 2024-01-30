@@ -5157,3 +5157,23 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 
 要说的话我想要山根绮，这样就能偶马邦制霸了
 
+
+*****
+
+####  yoyodream  
+##### 11041#       发表于 2024-1-30 21:01
+
+户松遥有没有说法（
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  makece  
+##### 11042#       发表于 2024-1-30 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832679&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-30 21:01</a>
+
+羊宫虽然平时站桩也断气起&amp;# ...</blockquote>
+山根绮有灯这种声线吗
+

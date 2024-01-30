@@ -1565,3 +1565,126 @@ nga专楼炸了，爽<img src="https://static.saraba1st.com/image/smiley/face201
 猪油嘎嘎香
 <img src="https://p.sda1.dev/15/0367f60c36a753009cee3dda8d18cdbe/Screenshot_20240130_103017.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 10660#       发表于 2024-1-30 10:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，隔壁楼一个小时前还在说烤羊楼炸了主楼这波会不会爆破
+
+这就真没了？
+
+*****
+
+####  易筋经  
+##### 10661#       发表于 2024-1-30 10:34
+
+尼姑庵版主是疯了吗？把几万层的专楼爆破了会发生什么，他们没考虑过吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10662#       发表于 2024-1-30 10:34
+
+3k多页的专楼说炸就炸，羊gachi恐怖如斯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10663#       发表于 2024-1-30 10:35
+
+啊？nga专楼这就炸了？有羊gachi打滚吗？
+
+伴舞疑似有点太急了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10664#       发表于 2024-1-30 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好炸，ng2最高楼死于私心也太棒了
+
+*****
+
+####  Develde_001  
+##### 10665#       发表于 2024-1-30 10:37
+
+ 本帖最后由 Develde_001 于 2024-1-30 10:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga版务真是铁血羊gachi啊，上次烤羊楼和这次专楼都是啥也没说也没吵起来楼就没了
+
+*****
+
+####  luozijin000  
+##### 10666#       发表于 2024-1-30 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始锁隐相关贴了，刚看到一个中之人讨论不到20楼就没了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10667#       发表于 2024-1-30 10:38
+
+在12个小时里泥潭烤羊烤了至少10来页，有人估计是急了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 10668#       发表于 2024-1-30 10:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问专楼怎么没了的帖子也瞬间被锁隐了，估计不是主楼编辑，就是给炸了？
+
+*****
+
+####  假药入脑不可取  
+##### 10669#       发表于 2024-1-30 10:39
+
+问专楼哪去了的楼一瞬间也被隐藏了是最好笑的，小羊啊，ng2版主会给你一个没有烧烤的世界～
+
+*****
+
+####  实津二三  
+##### 10670#       发表于 2024-1-30 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">nga版务可以向他们论坛的太监管人区学习，以后只允许讨论手游动画的二次元部分，不能讨论中之人。
+
+*****
+
+####  NODY  
+##### 10671#       发表于 2024-1-30 10:40
+
+上次那个几十页的烤羊楼也是，里面的羊gachi打滚说不过一边倒的烤羊，然后没多久就锁了
+
+只是没想到羊gachi版务真爱到专楼都敢锁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 10672#       发表于 2024-1-30 10:41
+
+这才是真的加了把大火吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dayahal  
+##### 10673#       发表于 2024-1-30 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">nga专楼被隐藏了 我哭死
+
+刚打算看专楼摸会鱼然后被叫去干活了，回来就锁隐了，错亿
+
+*****
+
+####  フミさん  
+##### 10674#       发表于 2024-1-30 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">只能说毫不意外好吧，这就是nga！
+
+*****
+
+####  PDQ4  
+##### 10675#       发表于 2024-1-30 10:42
+
+难道打滚的羊gachi就是版主小号吗，发现辩不过直接开始为爱出击，哪怕只有一个论坛也要保住动物朋友的名声<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

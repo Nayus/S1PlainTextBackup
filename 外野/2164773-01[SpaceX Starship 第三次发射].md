@@ -360,3 +360,16 @@ https://www.doc88. ...</blockquote>
 —— 来自 OPPO PEDM00, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 这玩意重心很低的
 
+
+*****
+
+####  commcody  
+##### 111#         楼主| 发表于 2024-1-30 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823471&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-30 06:10</a>
+
+1只着重于月表测绘，并没有精确测量月表着陆区地表压强的功能吧，LRO只有LOLA和宽窄角相机是针对对地观测 ...</blockquote>
+1：月壤条件根据探测结果在地球是可以模拟复现的。阿波罗时代担心的问题之一就是着陆后是否会下陷，然而实际并没有。
+
+2：我不是NASA或者SpaceX。
+

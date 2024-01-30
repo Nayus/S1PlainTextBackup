@@ -2247,3 +2247,271 @@ wsd不会换人的，你们别想太多，志崎女士都没换
 个人说啥是言论自由，出了问题自己承担；经过审校的杂志刊载代表了编辑部或者投放 ...</blockquote>
 艹 我摸鱼刷s1不是为了看angew的啊！
 
+
+*****
+
+####  Aendst  
+##### 10741#       发表于 2024-1-30 11:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我觉得可以先观望一下，虽然不应该那么吓人但是还是有把1st视觉图扣下来继续做店特的可能性的
+
+这次店特是钥匙扣和文件夹不是吧唧了，不好说会不会有新图
+
+*****
+
+####  阿斯顿氢气球  
+##### 10742#       发表于 2024-1-30 11:32
+
+<blockquote>江口夕 发表于 2024-1-30 11:28
+wsd不会换人的，你们别想太多，志崎女士都没换
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 ...</blockquote>
+顶真5的换了啊
+
+*****
+
+####  PDQ4  
+##### 10743#       发表于 2024-1-30 11:32
+
+这里是羊gachi楼，该滚的是你们邦批吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 10744#       发表于 2024-1-30 11:32
+
+这里是羊gachi楼，该滚的是你们邦批吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿斯顿氢气球  
+##### 10745#       发表于 2024-1-30 11:32
+
+<blockquote>江口夕 发表于 2024-1-30 11:28
+wsd不会换人的，你们别想太多，志崎女士都没换
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 ...</blockquote>
+non酱在邦邦又没怎么耍大牌
+
+*****
+
+####  樱祈  
+##### 10746#       发表于 2024-1-30 11:33
+
+你们不先aoe说实话谁关心你mygo啊，烤就烤mygo的羊，但是总能看到有些人气急败坏搞喜欢羊的都是xx人这种aoe，怎么还不能抱怨几句？被霸凌还要忍气吞声啊！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 -4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cherryjia12|-1|欢乐多|
+| PDQ4|-1|好评加鹅|
+| JY要塞|-2|思路广|
+
+查看全部评分
+
+*****
+
+####  贝恩德塔  
+##### 10747#       发表于 2024-1-30 11:33
+
+话说我寻思天音妹妹都有自己的专楼，羊gachi去走廊单开贴简直有理可据有法可为<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 10748#       发表于 2024-1-30 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826147&amp;ptid=2159415" target="_blank">阿斯顿氢气球 发表于 2024-1-30 11:32</a>
+顶真5的换了啊</blockquote>
+那边可以随便换，这边不一样。换一个人一个团处理不当都得遭殃
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  JY要塞  
+##### 10749#       发表于 2024-1-30 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826169&amp;ptid=2159415" target="_blank">樱祈 发表于 2024-1-30 11:33</a>
+
+你们不先aoe说实话谁关心你mygo啊，烤就烤mygo的羊，但是总能看到有些人气急败坏搞喜欢羊的都是xx人这种aoe ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不爽可以去走廊开专楼
+
+*****
+
+####  天之歌  
+##### 10750#       发表于 2024-1-30 11:35
+
+也太急了吧，我在抗吧骂hz都没见过这么急的
+
+*****
+
+####  Aendst  
+##### 10751#       发表于 2024-1-30 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自信能不能分漏油一点
+
+*****
+
+####  yaneis  
+##### 10752#       发表于 2024-1-30 11:35
+
+太纯了，不会NGA版主已经派人过来了吧
+
+*****
+
+####  ads147147  
+##### 10753#       发表于 2024-1-30 11:36
+
+夸张，摸鱼进你楼才发现乐子再现。
+
+*****
+
+####  阿斯顿氢气球  
+##### 10754#       发表于 2024-1-30 11:36
+
+<blockquote>江口夕 发表于 2024-1-30 11:34
+那边可以随便换，这边不一样。换一个人一个团处理不当都得遭殃
+
+—— 来自 Xiaomi M2012K11AC, Android 1 ...</blockquote>
+其他还好，主唱是最容易换的，况且还没有团魂
+
+*****
+
+####  贝恩德塔  
+##### 10755#       发表于 2024-1-30 11:36
+
+话说之前烤天音妹妹的时候有这么多天音妹妹gachi出来抗议吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是天音anti本质都是天音粉
+
+*****
+
+####  HANDAIYV  
+##### 10756#       发表于 2024-1-30 11:36
+
+不会弱男营业真这么有效果吧
+
+*****
+
+####  有骨气的百合  
+##### 10757#       发表于 2024-1-30 11:36
+
+传说中的羊gachi群有没有人指下路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yoyodream  
+##### 10758#       发表于 2024-1-30 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826185&amp;ptid=2159415" target="_blank">天之歌 发表于 2024-1-30 11:35</a>
+也太急了吧，我在抗吧骂hz都没见过这么急的</blockquote>
+这就是脱粉回踩的含金量吧，一粉顶10黑，脱了粉少说变11个黑子的战力吧（
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  实津二三  
+##### 10759#       发表于 2024-1-30 11:37
+
+羊gachi杀进来了，害怕。
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">反转了，我也喜欢羊，不要打我好吗。
+
+*****
+
+####  yaneis  
+##### 10760#       发表于 2024-1-30 11:37
+
+还有只烤mygo的羊是个什么操作，不给烤全羊羊gachi先切割了是吧
+
+*****
+
+####  笋干爆炸碱  
+##### 10761#       发表于 2024-1-30 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826145&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-30 11:32</a>
+
+我觉得可以先观望一下，虽然不应该那么吓人但是还是有把1st视觉图扣下来继续做店特的可能性的
+
+这次 ...</blockquote>
+算了算了，真继续用1st视觉图的话我能安慰自己吧唧和ブロマイド属于两种制品，我赚
+
+有丰富的和解经验
+
+*****
+
+####  cherryjia12  
+##### 10762#       发表于 2024-1-30 11:38
+
+有没有可能这里是mygo专楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不你自己出去建个羊宫真爱楼？
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  LeonsCat  
+##### 10763#       发表于 2024-1-30 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826133&amp;ptid=2159415" target="_blank">lidocaine39 发表于 2024-1-30 11:31</a>
+
+艹 我摸鱼刷s1不是为了看angew的啊！</blockquote>
+这篇应该是近几年内影响最大没有之一的angew了吧，干掉了整个编委会。
+
+*****
+
+####  kosou  
+##### 10764#       发表于 2024-1-30 11:39
+
+只烤mygo真有点幽默了  这里是邦企划的楼 她在别的地方怎么样关我什么事<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 10765#       发表于 2024-1-30 11:40
+
+这么喜欢羊宫为什么不去我心危啊，我也喜欢羊宫，跳舞甜甜甜
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  PDQ4  
+##### 10766#       发表于 2024-1-30 11:41
+
+这下五等分的动物朋友咧，只给烤个羊腿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+羊拿的角色够分5份吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 10767#       发表于 2024-1-30 11:41
+
+这就不得不提roselia了
+
+换了两个人气角色cv还能继续是你邦人气最高团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不得不说相羽爱奈为r团付出太多
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  江口夕  
+##### 10768#       发表于 2024-1-30 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这事如果糟糕不到成海那种水平基本是换不了的，只能说mygo粉丝有福了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  PDQ4  
+##### 10769#       发表于 2024-1-30 11:42
+
+i83伟大，无需多言。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

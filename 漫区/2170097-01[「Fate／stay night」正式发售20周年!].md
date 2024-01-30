@@ -861,3 +861,11 @@ pc版的语音是后来拿ps2版的语音逆移植回来的。
 
 月姬2还有希望么，想看个结局
 
+
+*****
+
+####  Saber琪  
+##### 93#       发表于 2024-1-30 20:21
+
+刚刚看完电影点进去看，还是来早了，现在在回顾15周年的展子<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

@@ -5633,3 +5633,13 @@ https://www.youtube.com/watch?v=sXR7WC1TaCA</blockquote>
 
 羊这人窝还是上次那个观点，拿她当常熟阿诺看就得了
 
+
+*****
+
+####  爱丁堡official  
+##### 11088#       发表于 2024-1-31 00:25
+
+二台要进场输出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

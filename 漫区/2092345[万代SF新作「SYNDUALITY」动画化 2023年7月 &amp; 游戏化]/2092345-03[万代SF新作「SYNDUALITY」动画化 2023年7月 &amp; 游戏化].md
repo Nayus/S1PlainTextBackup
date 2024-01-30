@@ -3057,3 +3057,14 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 等诺瓦回来男主能好好抱抱她就好了，byd这也太自卑了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3607#       发表于 2024-1-30 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833139&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-1-30 21:51</a>
+
+等诺瓦回来男主能好好抱抱她就好了，byd这也太自卑了</blockquote>
+自卑还是因为这两个人还是实力不太够，彼方也挺努力了但是这和大哥的实力以及面具男的机体性能可不好弥补，至于诺娃，米斯特出现后，她的失落感也进一步加剧了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

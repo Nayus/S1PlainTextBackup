@@ -287,3 +287,21 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 话说这破游戏快10年了，我终于有了蓝色过气棉被<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11263#       发表于 2024-1-30 23:48
+
+虽然预计上场率不会比黑呆高，但能白嫖一个呆毛还是蛮爽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11264#       发表于 2024-1-30 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63834293&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-1-30 23:48</a>
+
+虽然预计上场率不会比黑呆高，但能白嫖一个呆毛还是蛮爽的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑呆那次强化和已经和本体不是一个级别的了
+

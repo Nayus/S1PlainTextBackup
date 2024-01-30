@@ -3321,3 +3321,88 @@ YoumiyaHinaの水玛琳石
 
 —— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  可爱美味祥子  
+##### 10857#       发表于 2024-1-30 13:54
+
+希望灯“组一辈子乐队”不会成为回旋镖吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 10858#       发表于 2024-1-30 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">音宝靠着一身肌肉翻身了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aloereed  
+##### 10859#       发表于 2024-1-30 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63827841&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-30 13:41</a>
+当年一开始开出来说是羊的时候为什么会有人不信，不就是因为她是青二的，觉得她没必要来wsd接邦这种血汗工 ...</blockquote>
+形势变化的快啊。当时签约的时候还是刚动画出道的小声优，现在已经是（按台长的话说）光速走向人生巅峰了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  LeonsCat  
+##### 10860#       发表于 2024-1-30 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63827695&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-30 13:31</a>
+
+這……為什麼會引申到覺得武士道有問題，雖然武士道確實很有問題但這件事…… ...</blockquote>
+前面说了，如果这是live现场或者采访直播，那羊宫的绝对主要责任。
+
+但是特么的都付印了，这种标准商业稿，武士道和青二才是需要把关负责、乃至亲自操刀写稿子的。能放出来就说明，青二不论，武士道自己都不觉得这种泥潭和隔壁已然爆破的发言有任何问题……
+
+
+*****
+
+####  septer  
+##### 10861#       发表于 2024-1-30 13:58
+
+要真场外演绎只能说黑色幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寺川愛美  
+##### 10862#       发表于 2024-1-30 13:59
+
+剛被老闆蹂躪了，有人可以解說一下這波撕聲優是什麼回事嗎
+
+— from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 可爱美味祥子| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  氷川日菜  
+##### 10863#       发表于 2024-1-30 13:59
+
+唉，素素戏里抱祥子腿，戏外要抱羊腿了，羊酱，啊不hina酱，不要走，我什么都会做的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寺川愛美  
+##### 10864#       发表于 2024-1-30 14:01
+
+沒事，看到那篇訪談了
+
+— from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

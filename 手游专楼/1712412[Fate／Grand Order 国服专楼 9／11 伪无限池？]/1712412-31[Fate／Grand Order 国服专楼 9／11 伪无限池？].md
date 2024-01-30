@@ -1001,3 +1001,13 @@ ORT最后战本来打算最后麻婆单挑的，结果不知道怎么回事脑�
 
 33回合！！！！你们知道我这33回合怎么打的吗！！！！啊！！！！
 
+
+*****
+
+####  khxooo  
+##### 46028#       发表于 2024-1-30 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829394&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2024-1-30 16:02</a>
+ORT最后战本来打算最后麻婆单挑的，结果不知道怎么回事脑子一抽开了他三技能，被ORT一个宝具送走…………… ...</blockquote>
+我日服开荒因为不知道机制，只留下梅莉一个，逆克制打了40多回合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -853,3 +853,11 @@ pc版的语音是后来拿ps2版的语音逆移植回来的。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jiezi  
+##### 92#       发表于 2024-1-30 16:45
+
+月姬2还有希望么，想看个结局
+

@@ -2985,3 +2985,22 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 这片觉得机设要背大锅，太土了</blockquote>
 一般土点没啥，主要还是太像马桶机了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3600#       发表于 2024-1-30 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829960&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-1-30 16:39</a>
+
+一般土点没啥，主要还是太像马桶机了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">机设炫酷一点人气都不会这么惨淡，哎
+
+
+*****
+
+####  三合一出现  
+##### 3601#       发表于 2024-1-30 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">这下不分离成两个真的没办法解决了。
+

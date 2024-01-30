@@ -279,3 +279,11 @@ FZ20周年呆毛是不是又能再上一次自选了
 果然沒期待就不會失望</blockquote>
 到现在还对那群抠门的懒狗有期待吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ネロ  
+##### 11262#       发表于 2024-1-30 22:29
+
+话说这破游戏快10年了，我终于有了蓝色过气棉被<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

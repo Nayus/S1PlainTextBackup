@@ -3088,3 +3088,14 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 彼方安慰人的技巧真的是太糟糕了，前面两集反复铺垫的是诺瓦在黑皮来了之后，深感自己性能不如人。这集宕机之前还在自责自己是个没用的贤伴，先不说诺瓦在操纵上真的帮了彼方很多，这种时候即使是说谎也该先否定掉诺瓦说自己没用自己帮不上忙的话吧，结果彼方开口就来一句”这种事情无所谓“，这种事情是指诺瓦没用帮不上你这种事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3610#       发表于 2024-1-30 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833277&amp;ptid=2092345" target="_blank">reficul 发表于 2024-1-30 22:05</a>
+
+什么鬼翻译，怎么冒出来的&amp;# ...</blockquote>
+这片的迪士尼字幕组习惯就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

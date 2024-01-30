@@ -1136,3 +1136,13 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 
 可惜saber线的最终结局也不出个短片什么的。
 
+
+*****
+
+####  Saber琪  
+##### 122#       发表于 2024-1-30 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832823&amp;ptid=2170097" target="_blank">hkguty 发表于 2024-1-30 21:15</a>
+没事，接下来轮到等型月20周年了，啊，不对，20周年好像也已经过了？那该等30周年了！ ...</blockquote>
+错误的，明年fha20周年，还有fgo十周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -939,3 +939,30 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  狮子咕  
+##### 10591#       发表于 2024-1-30 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63820319&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-1-29 20:20</a>
+
+平行世界小羊在这张图的左边，立石凛牵的不是伞而是小羊的手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一种灯出意外没了，爱音独自来水族馆里缅怀的美（半透明的灯握着爱音的手哭泣）
+
+*****
+
+####  NODY  
+##### 10592#       发表于 2024-1-30 08:56
+
+好羡慕鸡团粉，自推有技术有团魂，对手团核心还拼命摆烂作死气走粉丝生怕热度太高<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+就是可惜了狗团另外四个尤其是蜜柑，青鼓凛起码有别的长期饭票
+
+*****
+
+####  DarthAka  
+##### 10593#       发表于 2024-1-30 09:02
+
+说实话，所有人都一点不演真是很新奇的打法，颇有一种已经定好了今年万人场结束就换人的感觉——甚至第二季拖到25年是为了等新人
+

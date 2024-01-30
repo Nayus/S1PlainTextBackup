@@ -5829,3 +5829,11 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 —— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11106#       发表于 2024-1-31 05:17
+
+https://x.com/sorawo5084/status/1752313561509208126?s=20<img src="https://p.sda1.dev/15/f286e1fbd191beb93bc930d5cfb9d53f/CMP_20240131051658671.jpg" referrerpolicy="no-referrer">
+

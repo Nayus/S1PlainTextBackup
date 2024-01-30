@@ -5837,3 +5837,13 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 https://x.com/sorawo5084/status/1752313561509208126?s=20<img src="https://p.sda1.dev/15/f286e1fbd191beb93bc930d5cfb9d53f/CMP_20240131051658671.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arteryesrerday  
+##### 11107#       发表于 2024-1-31 05:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63835268&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-1-31 05:17</a>
+https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
+哥，咱能不能不发ai
+

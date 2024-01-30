@@ -5603,3 +5603,33 @@ Mas?uerade Rhapsody Re?uest中的悲鳴，是有受到什麼啟發嗎？
 
 企划肯定是不会有改变的，顶天就赛里斯范围内人气滑落而已，毕竟年一二偶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  フミさん  
+##### 11085#       发表于 2024-1-31 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63834437&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-31 00:05</a>
+
+李子今天生放的一些個人感興趣的matome(?)
+
+https://www.youtube.com/watch?v=sXR7WC1TaCA</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11086#       发表于 2024-1-31 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63834458&amp;ptid=2159415" target="_blank">Arteryesrerday 发表于 2024-1-31 00:08</a>
+
+大家都这么干你不这么干所以你很不懂读空气这有点反本作基调了（倒不是认可她）但是这人出道待遇好像特别好 ...</blockquote>
+她如果率直表达自己不喜欢这一套然后换人，也不会有多少人再去找她事了，各有各路分道扬镳就行，毕竟什么工作都不是人人想做的；但她一直用车轱辘话找补别人对此观感能好么？再说了本作的角色确实没那么读空气，但说话不考虑别人该爆炸还是要爆炸的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 11087#       发表于 2024-1-31 00:22
+
+羊这人窝还是上次那个观点，拿她当常熟阿诺看就得了
+

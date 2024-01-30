@@ -4971,3 +4971,30 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 
 只能说羊的操作确实影响我对灯歌声的观感，什么时候她的操作升级到让我连听到mygo的歌都受不了就能退坑了，反正喜欢的角色剧内边缘垫脚剧外被骂，也没什么好处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 11022#       发表于 2024-1-30 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">只能祝愿大家都能安心了，换人是不太可能的，还是早点习惯吧，我看前面漏油说的好，之前有只有主唱的CV团，你就把这个当作没有主唱的乐器团好了，抱怨自己改变不了的事情只会越来越难受，唉，我们立希推先进经验太多了。
+
+*****
+
+####  cindy355  
+##### 11023#       发表于 2024-1-30 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63831527&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-30 18:52</a>
+
+結月這個大好き我要狠狠地代 
+
+可愛可愛</blockquote>
+鸡团的营业浓度太令人羡慕了有点，虽然我现在真不会推真人了，但还是好羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 11024#       发表于 2024-1-30 19:58
+
+只能说积怨太大，那个场刊翻译晚出一天都炸不成这样……话说反正已经炸了，就别收摊，哪怕按掀屋顶理论也应该咬死降板换人，不光去B站，还要去推特，不然现在这力度又装死混过去了
+

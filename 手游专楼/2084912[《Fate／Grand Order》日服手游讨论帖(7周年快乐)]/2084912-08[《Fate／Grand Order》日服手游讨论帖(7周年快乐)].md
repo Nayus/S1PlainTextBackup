@@ -267,3 +267,15 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 果然沒期待就不會失望
 
+
+*****
+
+####  khxooo  
+##### 11261#       发表于 2024-1-30 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832074&amp;ptid=2084912" target="_blank">eilot 发表于 2024-1-30 19:51</a>
+7人甚至FSN系都沒強化、沒幕間，甚麼都沒有
+
+果然沒期待就不會失望</blockquote>
+到现在还对那群抠门的懒狗有期待吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

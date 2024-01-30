@@ -969,3 +969,25 @@ all in 还不算，靠主线给的石头单抽上岸<img src="https://static.sar
 
 2024-1-30 15:06 上传
 
+
+*****
+
+####  khxooo  
+##### 46025#       发表于 2024-1-30 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63819905&amp;ptid=1712412" target="_blank">GALLADE 发表于 2024-1-29 19:40</a>
+我是不是遇到什么BUG了，怎么从者ORT退场了我一号位马纳南</blockquote>
+你是不是开了巴姐的宝具？有嘲讽的啊。
+
+*****
+
+####  GALLADE  
+##### 46026#       发表于 2024-1-30 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829203&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-1-30 15:47</a>
+
+你是不是开了巴姐的宝具？有嘲讽的啊。</blockquote>
+这个讲道理应该是程序的锅，这种本来是独立的特殊行动才对
+
+本来那回合他就走了，又得改成等到他送走人才行，蛋疼，好不容易巴姐有个舒服高光的场合
+

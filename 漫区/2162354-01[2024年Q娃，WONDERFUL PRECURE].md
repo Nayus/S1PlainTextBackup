@@ -724,3 +724,13 @@ OP都是主仆组合，追加大概率两个人吧。
 
 这个op如果没有诈骗的话，我认为绝对是个好兆头，当然看到系构名字之后就已经没有任何妥协的可能性了
 
+
+*****
+
+####  阿狸狸狸狸狸  
+##### 570#       发表于 2024-1-30 15:47
+
+为什么总有种我和我的帕鲁们一起对战的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

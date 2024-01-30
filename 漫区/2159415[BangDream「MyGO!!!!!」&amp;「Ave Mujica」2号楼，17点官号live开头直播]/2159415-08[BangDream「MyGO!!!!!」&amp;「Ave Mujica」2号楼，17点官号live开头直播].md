@@ -3798,3 +3798,21 @@ PS.最近推立希推得怎么感觉越来越平常心了，已经渐渐要从�
 
 不过确实得感谢🐏桑，在鸡团开播前的日子里，少了她确实少了很多乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10904#       发表于 2024-1-30 15:45
+
+看开了，羊这么表演也挺好的，一烤起来所有车角色的话题都消停了，她多递点弹药或许真的能让鸡狗厨和角色厨通过烤羊达成一年的和平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 10905#       发表于 2024-1-30 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829123&amp;ptid=2159415" target="_blank">友情的结晶 发表于 2024-1-30 15:40</a>
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+

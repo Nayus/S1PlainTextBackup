@@ -708,3 +708,11 @@ OP都是主仆组合，追加大概率两个人吧。
 
 反正目前猫组的玩具情报（变身道具和净化道具）完全没消息，可能猫组跟天Q的蝴蝶姐一样名为常驻实质追加在20集左右正式变身入队并享受追加待遇，然后真正的追加的玩具丢PB限定入队放30集左右<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lxh00770077  
+##### 568#       发表于 2024-1-30 11:22
+
+现在隔壁骑士棚每年都有女骑士，所以Q娃棚每年也要有男Q娃啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

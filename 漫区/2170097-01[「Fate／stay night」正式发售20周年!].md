@@ -635,3 +635,14 @@ next ten years 是吧
 太短了，像是POV节选，少了点儿宿命感，至少应该把“拔剑—抗敌—迎娶桂妮薇儿—组建圆桌—圣杯—圆桌解 ...</blockquote>
 真要动画化这些肯定要讲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过goa是用兰斯洛特他们的角度讲的
 
+
+*****
+
+####  Lawliet.L  
+##### 71#       发表于 2024-1-30 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825939&amp;ptid=2170097" target="_blank">Saber琪 发表于 2024-1-30 11:14</a>
+
+真要动画化这些肯定要讲啊不过goa是用兰斯洛特他们的角度讲的</blockquote>
+当然是少了重量级的两位女主角—公主与王后的POV，我早就想看这史诗级扭曲大戏了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

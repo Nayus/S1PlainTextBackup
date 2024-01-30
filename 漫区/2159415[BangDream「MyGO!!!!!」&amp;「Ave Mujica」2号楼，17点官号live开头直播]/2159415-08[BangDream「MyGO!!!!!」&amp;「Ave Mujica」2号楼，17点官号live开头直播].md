@@ -5341,3 +5341,53 @@ yysy，动画结束后最大的乐趣是去z8看cv的乐子，没想到现在已
 
 这回实属压死骆驼的那根草……给路人复盘都觉得魔幻
 
+
+*****
+
+####  makece  
+##### 11059#       发表于 2024-1-30 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833195&amp;ptid=2159415" target="_blank">Nungesser 发表于 2024-1-30 21:57</a>
+
+羊这个事情感觉像啥呢？两个月前某个网红大厨事件的重演，又带点几年前Holo事件的影子，细究起来其实都不是 ...</blockquote>
+什么心态能拿两个繁华事件举例子？有半点可比性吗？
+
+本质是紫吧抽象乐子人才是符合中文互联网版本的，成为显学只是时间问题
+
+亚文化圈子能压制住z87才是暂时的
+
+*****
+
+####  yaneis  
+##### 11060#       发表于 2024-1-30 22:57
+
+我角色和声优是分开看的，🐏这态度让我把她归到角色黑的位置上去了，无法原谅啊ygfn！（不是）
+
+*****
+
+####  66367749  
+##### 11061#       发表于 2024-1-30 23:00
+
+ 本帖最后由 66367749 于 2024-1-30 23:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833840&amp;ptid=2159415" target="_blank">makece 发表于 2024-1-30 22:56</a>
+什么心态能拿两个繁华事件举例子？有半点可比性吗？
+
+本质是紫吧抽象乐子人才是符合中文互联网版本的，成 ...</blockquote>
+这事在论坛和b站闹挺大是有点抽象，但事本身并不抽象，态度摆那儿了，邦动画/🐶团粉丝不满也是在所难免。
+
+*****
+
+####  微尘众  
+##### 11062#       发表于 2024-1-30 23:00
+
+希望之后别影响到小市民的讨论环境<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  笋狐  
+##### 11063#       发表于 2024-1-30 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">访谈是导火索，nga和b站捂嘴算得上火上浇油吧，情绪宣泄完了以后芥蒂只会越来越深，而且目前来看bbq大会肯定不会是最后一次
+

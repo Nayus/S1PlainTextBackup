@@ -2974,3 +2974,14 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片觉得机设要背大锅，太土了
 
+
+*****
+
+####  aptx8285144  
+##### 3599#       发表于 2024-1-30 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828996&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-1-30 15:27</a>
+
+这片觉得机设要背大锅，太土了</blockquote>
+一般土点没啥，主要还是太像马桶机了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -838,3 +838,18 @@ pc版的语音是后来拿ps2版的语音逆移植回来的。
 
 高概率某个版本的原汁原味，问题是哪个版本。
 
+
+*****
+
+####  oi99o  
+##### 91#       发表于 2024-1-30 16:35
+
+ 本帖最后由 oi99o 于 2024-1-30 16:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829809&amp;ptid=2170097" target="_blank">Abba-il-Aeons 发表于 2024-1-30 16:29</a>
+我就意思就是，连第三方移植的PSP版都没有啦…
+
+不过玩的人确实相对少得多，全的资源也没那么好找，我记 ...</blockquote>
+怎么样都不可能有补魔语音的，语音本质是全年龄版移植之后配的。r18原版都是无语音的，有语音的r18版都是粉丝把全年龄版语音再移植回去的改版，补魔片段没有语音就空着了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

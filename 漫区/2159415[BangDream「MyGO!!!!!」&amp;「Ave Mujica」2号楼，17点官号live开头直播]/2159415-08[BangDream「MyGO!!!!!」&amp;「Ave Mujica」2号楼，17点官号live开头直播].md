@@ -3262,3 +3262,52 @@ gachi很拼命算不算优势<img src="https://static.saraba1st.com/image/smiley
 
 這……為什麼會引申到覺得武士道有問題，雖然武士道確實很有問題但這件事……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  car123  
+##### 10851#       发表于 2024-1-30 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63827695&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-30 13:31</a>
+
+這……為什麼會引申到覺得武士道有問題，雖然武士道確實很有問題但這件事…… ...</blockquote>
+啊我不是单说这件事，包括手游最新的活动，现在连新团的主唱都管不住<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 10852#       发表于 2024-1-30 13:34
+
+毕竟人不是自己的管不了，青二也不想管
+
+怎么了，放羊呗
+
+*****
+
+####  御幸一也  
+##### 10853#       发表于 2024-1-30 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63827734&amp;ptid=2159415" target="_blank">car123 发表于 2024-1-30 13:33</a>
+
+啊我不是单说这件事，包括手游最新的活动，现在连新团的主唱都管不住 ...</blockquote>
+那確實應該要擔心一下了
+
+*****
+
+####  フミさん  
+##### 10854#       发表于 2024-1-30 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63827618&amp;ptid=2159415" target="_blank">Dark_Zagi 发表于 2024-1-30 13:24</a>
+
+问一下翻译组用户名是什么，没找到</blockquote>
+[https://space.bilibili.com/24886720](https://space.bilibili.com/24886720)
+
+YoumiyaHinaの水玛琳石
+
+*****
+
+####  滑稽Captain  
+##### 10855#       发表于 2024-1-30 13:41
+
+当年一开始开出来说是羊的时候为什么会有人不信，不就是因为她是青二的，觉得她没必要来wsd接邦这种血汗工厂大长期企划，专精声优发展路子多得很；事实上她也确实更看重声优而不是2.5，我没意见
+

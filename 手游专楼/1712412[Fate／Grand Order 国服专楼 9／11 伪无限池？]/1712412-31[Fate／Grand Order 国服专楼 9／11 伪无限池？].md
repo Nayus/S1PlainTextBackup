@@ -1021,3 +1021,15 @@ cheldea是不是用不了了<img src="https://static.saraba1st.com/image/smiley/
 
 应该总共15单左右5宝，令人很不爽，上头继续抽了3单没有6宝更不爽，真是比卡莲还要坏的人😡
 
+
+*****
+
+####  johnkamsar  
+##### 46030#       发表于 2024-1-30 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63830520&amp;ptid=1712412" target="_blank">Ousia 发表于 2024-1-30 17:19</a>
+cheldea是不是用不了了
+
+应该总共15单左右5宝，令人很不爽，上头继续抽了3单没有6宝更不爽，真是比卡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">抽烟雾镜？没必要满宝啊
+

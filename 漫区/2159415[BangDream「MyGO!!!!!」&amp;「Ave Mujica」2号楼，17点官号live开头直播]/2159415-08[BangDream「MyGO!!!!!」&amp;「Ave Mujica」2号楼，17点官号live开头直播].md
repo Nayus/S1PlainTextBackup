@@ -3467,3 +3467,34 @@ YoumiyaHinaの水玛琳石
 
 不出所料 隔壁祥黑又开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akirakira  
+##### 10871#       发表于 2024-1-30 14:25
+
+烤羊也是祥推的错，不仅是动画里的万恶之源还是现实里的万恶之源，这下背负别人的人生了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kosou  
+##### 10872#       发表于 2024-1-30 14:26
+
+自称祥厨然后给祥子扣反派帽子真的有够好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 10873#       发表于 2024-1-30 14:29
+
+你祥这把是真的夏亚了
+
+啥时候再来个伪鸭
+
+*****
+
+####  NODY  
+##### 10874#       发表于 2024-1-30 14:31
+
+你们确定那个是祥黑？先是在其他人烤羊的时候说二次元的讨论楼应该讨论动画不该聊太多三次元，开祥子，现在发现开祥子没用转头开立希，到底是什么目的我暂且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

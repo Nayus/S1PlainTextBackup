@@ -5712,3 +5712,16 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">叠一下甲我老是提不推里面的人只是因为自己有ptsd不是说推里面的人不好的意思，不给自己强调几遍我真怕又重蹈覆辙。
 
+
+*****
+
+####  Nungesser  
+##### 11096#       发表于 2024-1-31 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833840&amp;ptid=2159415" target="_blank">makece 发表于 2024-1-30 22:56</a>
+
+什么心态能拿两个繁华事件举例子？有半点可比性吗？
+
+本质是紫吧抽象乐子人才是符合中文互联网版本的，成 ...</blockquote>
+除了不涉及大事原则问题外有啥区别？几年前给那位大厨辩护的人，大部分今年11月都在开骂，正如9月、10月还在给她辩护的人一样。（一厢情愿的）信任被透支一空、“以前还不相信，这下才发现居然是真的”后破防和青蒜就是加倍的。
+

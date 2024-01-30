@@ -5755,3 +5755,11 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NODY  
+##### 11100#       发表于 2024-1-31 01:59
+
+去年年底就开始了吧，生放无精打采广播复读live表现不行，年初开始变本加厉直接文体两开花宣传别的了，难道真是动画播了以后嫌弃热度不够<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -1729,3 +1729,13 @@ b站可以投稿了？
 
 电竞男，韩国人，yamero！<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 16233#       发表于 2024-1-31 00:33
+
+前地偶不懂为什么有人每次都能买到前排正中间的票
+
+另外大概是今年或者更早一点开始嗓子状态很差，真声唱歌基本都会破音，不知道是什么情况，因为是冬天？
+

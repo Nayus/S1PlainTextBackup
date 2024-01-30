@@ -4653,3 +4653,100 @@ mggm还说音宝是下任三森呢，老登说的屁话听听就行。<img src="
 
 换人还是太敢梦了，除非羊事业蒸蒸日上变成真大牌，不然放着长期饭票为什么不要，说不定过两年没有主役了就会营业了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10994#       发表于 2024-1-30 18:34
+
+羊当初手上没活，接灯的时候说自己很拼命拿到了灯这个角色还给灯写了歌，然后就没有然后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 10995#       发表于 2024-1-30 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63831379&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-1-30 18:32</a>
+mggm还说音宝是下任三森呢，老登说的屁话听听就行。
+
+换人还是太敢梦了，除非羊事业蒸蒸日上变成真大 ...</blockquote>
+按她现在这样，再过两年mygo就要寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 10996#       发表于 2024-1-30 18:36
+
+只是不营业而已，不是什么大问题
+更不用说羊是主唱，主唱基本不可能会换的
+
+*****
+
+####  有骨气的百合  
+##### 10997#       发表于 2024-1-30 18:36
+
+评论区还真开精选评论了
+
+*****
+
+####  大槻ヨヨコ  
+##### 10998#       发表于 2024-1-30 18:37
+
+小访谈而已，武士道都没意见，太君估计更是不理解有啥可闹的。不如多给一点夸奖让🐏姐更飘逸起来，再坐等下次爆个大活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Dark_Zagi  
+##### 10999#       发表于 2024-1-30 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63827831&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-30 13:40</a>
+
+https://space.bilibili.com/24886720
+
+YoumiyaHinaの水玛琳石</blockquote>
+感谢
+
+*****
+
+####  虚无缥缈的光阴  
+##### 11000#       发表于 2024-1-30 18:41
+
+怎么可能真因为这点小事就换人，说出这种言论的有点像21年的国v观众<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cindy355  
+##### 11001#       发表于 2024-1-30 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829969&amp;ptid=2159415" target="_blank">氷川日菜 发表于 2024-1-30 16:40</a>
+
+结月宝宝的脸是独一无二的珍宝</blockquote>
+可爱可爱可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11002#         楼主| 发表于 2024-1-30 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63831192&amp;ptid=2159415" target="_blank">勇者仁杰 发表于 2024-1-30 18:13</a>
+
+大家觉得下一任CV谁比较能胜任？</blockquote>
+栞【AI泷川美羽】
+[https://www.bilibili.com/video/BV1Tp4y1Z782](https://www.bilibili.com/video/BV1Tp4y1Z782)
+
+来点灯宝本灯
+
+*****
+
+####  御幸一也  
+##### 11003#       发表于 2024-1-30 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829814&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-30 16:30</a>
+
+补款的时候看了一眼其他人的补款链接，只有我是个位数，其他人都是三十多，你楼的睦推祥推不得羡慕 ...</blockquote>
+笑吐了 樓友可愛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

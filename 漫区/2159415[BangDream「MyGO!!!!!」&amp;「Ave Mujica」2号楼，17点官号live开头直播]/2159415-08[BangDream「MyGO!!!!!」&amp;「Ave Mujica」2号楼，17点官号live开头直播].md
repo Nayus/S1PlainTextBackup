@@ -3230,3 +3230,35 @@ gachi很拼命算不算优势<img src="https://static.saraba1st.com/image/smiley
 你音体能杠杠的</blockquote>
 听说过上海场发挥很好，年纪也蛮小的十分未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dark_Zagi  
+##### 10847#       发表于 2024-1-30 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824857&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-30 09:59</a>
+
+而且这场刊的扫图和翻嵌还是b站仅有1400+粉丝的小羊转推翻译组做的（应该是首发吧，昨晚八点半发的 ...</blockquote>
+问一下翻译组用户名是什么，没找到<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓬莱妹红  
+##### 10848#       发表于 2024-1-30 13:24
+
+一觉醒来音宝粉怎么开始翻身了，泪目
+
+*****
+
+####  car123  
+##### 10849#       发表于 2024-1-30 13:26
+
+昨天贴吧没看仔细今天爬楼又把访谈看了遍，真的有点离谱，字数也少的可怜，不过作为只看动画的也没太大波动，就是wsd现在的表现有点担心25年的动画啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10850#       发表于 2024-1-30 13:31
+
+這……為什麼會引申到覺得武士道有問題，雖然武士道確實很有問題但這件事……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

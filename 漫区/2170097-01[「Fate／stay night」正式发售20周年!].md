@@ -748,3 +748,11 @@ PS2上的无限代码今天在日本还是有游玩群体的吧 重制一下上�
 
 好几年前（可能十年前？）有过无限代码PSV版的传闻后来搁置了
 
+
+*****
+
+####  bgmilk  
+##### 83#       发表于 2024-1-30 13:30
+
+    无限代码的手感可以把你月目前所有出的游戏都给爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

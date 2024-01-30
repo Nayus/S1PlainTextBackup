@@ -11977,3 +11977,11 @@ tm还有这种bug
 
 4K只要不停把视野内出现的鲑鱼蓄力一击就行了，高分段后拿4K想着拉怪回家打的野人统统视为不会玩<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 2691#       发表于 2024-1-30 18:46
+
+在现实中被鱿鱼攻击了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天晚饭的鱿鱼没处理干净肚子里有半只已经臭了的虾头，没看见吃嘴里了现在嘴里都一股臭味，疯狂漱口。
+

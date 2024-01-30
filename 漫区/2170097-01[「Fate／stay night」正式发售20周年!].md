@@ -607,3 +607,21 @@ goa做个特别篇动画差不多了，月姬r里线都还没出指望菌哥出�
 拍个呆毛王版的《亚瑟王之死》怎么样？</blockquote>
 那不就是goa阿瓦隆之庭嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沼蝇  
+##### 68#       发表于 2024-1-30 11:05
+
+next ten years 是吧
+
+*****
+
+####  Lawliet.L  
+##### 69#       发表于 2024-1-30 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825720&amp;ptid=2170097" target="_blank">Saber琪 发表于 2024-1-30 10:59</a>
+
+那不就是goa阿瓦隆之庭嘛</blockquote>
+太短了，像是POV节选，少了点儿宿命感，至少应该把“拔剑—抗敌—迎娶桂妮薇儿—组建圆桌—圣杯—圆桌解体—桂妮薇儿被劫—内战—还剑”这完美的环形叙事写清楚
+

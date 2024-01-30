@@ -698,3 +698,13 @@ OP都是主仆组合，追加大概率两个人吧。
 
 一共五种颜色，追加两人难道是双人变身，坂冈锦的追加南通双人变身bank要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 567#       发表于 2024-1-30 11:05
+
+我是倾向于追加是主宠合体成一个Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正目前猫组的玩具情报（变身道具和净化道具）完全没消息，可能猫组跟天Q的蝴蝶姐一样名为常驻实质追加在20集左右正式变身入队并享受追加待遇，然后真正的追加的玩具丢PB限定入队放30集左右<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

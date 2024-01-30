@@ -2050,3 +2050,45 @@ hego更是重量级老江湖
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为再看一次粥四张红纸，班务不够爱啊，来点追杀看看噶力
 
+
+*****
+
+####  PDQ4  
+##### 10720#       发表于 2024-1-30 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825717&amp;ptid=2159415" target="_blank">庸necro 发表于 2024-1-30 10:58</a>
+
+炸猴区也太需要勇气了，而且炸猴区到时候屎盆子扣整个go粉丝上，只会是更糟糕的结局 ...</blockquote>
+没事，可以不炸猴区，炸邦版<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 10721#       发表于 2024-1-30 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825776&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-1-30 11:02</a>
+
+还以为再看一次粥四张红纸，班务不够爱啊，来点追杀看看噶力</blockquote>
+版主和圣子不能一概而论<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  假药入脑不可取  
+##### 10722#       发表于 2024-1-30 11:06
+
+要不gachi内部打一架吧，现在不让大伙烤了，当初是声优粉丝自己烤肉出来的场刊送到大家伙手里的啊，不然哥几个都不知道这回事的，你们是顺丰冷链吗
+
+*****
+
+####  半年  
+##### 10723#       发表于 2024-1-30 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">炸楼捂嘴太夸张了
+
+*****
+
+####  Toki_Ai  
+##### 10724#       发表于 2024-1-30 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就好奇，这管不住的情况，要是发武道馆隔壁的图，ng2玩不玩大静谧
+

@@ -869,3 +869,33 @@ pc版的语音是后来拿ps2版的语音逆移植回来的。
 
 刚刚看完电影点进去看，还是来早了，现在在回顾15周年的展子<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  任天索尼子  
+##### 94#       发表于 2024-1-30 20:42
+
+究极烂活 单纯高清化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 95#       发表于 2024-1-30 20:42
+
+<img src="https://img.saraba1st.com/forum/202401/30/204158gtn4ctfb77ygnvq3.png" referrerpolicy="no-referrer">
+
+<strong>X)PS%@GS{0}[U0FZ8{YH9KK.png</strong> (304.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 20:41 上传
+
+毫不意外
+
+*****
+
+####  少少小司  
+##### 96#       发表于 2024-1-30 20:42
+
+艹，为啥没ps4/5，想拿一套杯呢
+

@@ -2959,3 +2959,18 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  约翰里德  
+##### 3597#       发表于 2024-1-30 15:27
+
+说起古贺葵就想起刀剑关键斗士里面的桑尼亚，那真是吵翻天的类型<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 3598#       发表于 2024-1-30 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片觉得机设要背大锅，太土了
+

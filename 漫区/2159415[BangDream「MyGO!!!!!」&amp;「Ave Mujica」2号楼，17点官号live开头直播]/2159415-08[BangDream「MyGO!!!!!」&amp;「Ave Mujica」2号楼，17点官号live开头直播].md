@@ -3659,3 +3659,86 @@ YoumiyaHinaの水玛琳石
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来以后是上不了万舰了，可惜了
 
+
+*****
+
+####  Aendst  
+##### 10891#       发表于 2024-1-30 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828671&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-30 14:57</a>
+
+只能说糊邦不上不下卡在这里了，作为偶像企划浓度不足，作为乐队企划依赖偶像模式去经营粉丝，没辙。 ...</blockquote>
+本质上还是偶像企划，如果是乐队企划那就该重视音乐内容了
+
+不说换成业界top的MONACA，把EG留下来我都当武士道努力过了，结果武士道端上来的是supa love<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 10892#       发表于 2024-1-30 15:23
+
+霓虹阿宅没有直球辱骂吗
+
+当年tymm横空出世的时候推上霓虹阿宅可是骂的挺难听的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  穗波殊  
+##### 10893#       发表于 2024-1-30 15:24
+
+大概是你邦太糊了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10894#       发表于 2024-1-30 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">tymm把如日中天的邦的进程给干挺了，现在第二春不知道会不会被羊给干挺
+
+*****
+
+####  椎名mahuyo  
+##### 10895#       发表于 2024-1-30 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在比以前糊多了，所以重心都不怎么放这块了吧，可惜乐队是个团体（
+
+*****
+
+####  cindy355  
+##### 10896#       发表于 2024-1-30 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828929&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-30 15:21</a>
+
+本质上还是偶像企划，如果是乐队企划那就该重视音乐内容了
+
+不说换成业界top的MONACA，把EG留下来我都当武 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是说他明明是个偶像企划但粉丝浓度又严重不足（话又说回来虽然整体粉丝浓度不足，但看连路人都开始烤羊了看来这部分粉丝还是有浓度的，笑死）。
+
+*****
+
+####  NODY  
+##### 10897#       发表于 2024-1-30 15:27
+
+音宝出来那会你邦还是蒸蒸日上的时候呢，卖碟稳定五位数的级别，闹的声音当然大，现在已经是糊邦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10898#       发表于 2024-1-30 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828982&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-30 15:26</a>
+
+就是说他明明是个偶像企划但粉丝浓度又严重不足（话又说回来虽然整体粉丝浓度不足，但看连路人都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各种意义上的不上不下，实在是难以形容
+
+*****
+
+####  ads147147  
+##### 10899#       发表于 2024-1-30 15:32
+
+想起不知道是不是你楼看的：mygo店来的三波两拨人都是中国人，唯一一波日本人在门口喊了句bangdori哒就走了。
+
+就是卡在糊和不糊中间了。仿佛看到了幻日夜羽。。
+

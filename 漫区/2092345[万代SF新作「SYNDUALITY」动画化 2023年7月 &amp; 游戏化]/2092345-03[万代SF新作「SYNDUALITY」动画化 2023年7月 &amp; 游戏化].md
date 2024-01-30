@@ -2949,3 +2949,13 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集文戏真好啊，好想看下一集
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3596#       发表于 2024-1-30 15:16
+
+看哭了，我的noir
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

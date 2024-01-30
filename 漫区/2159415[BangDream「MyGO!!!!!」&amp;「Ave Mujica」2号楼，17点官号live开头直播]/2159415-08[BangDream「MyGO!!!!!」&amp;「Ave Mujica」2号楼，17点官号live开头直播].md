@@ -3630,3 +3630,32 @@ YoumiyaHinaの水玛琳石
 
 都说z8要z不扩大z不扩大，这下z确实没有扩大，是z化的人越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Reinhold  
+##### 10888#       发表于 2024-1-30 15:16
+
+应该是不屑于跟低龄烤羊人对线吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+我是动画党，第一次追了live，还下了手游，这动物朋友真隔应到我幼小的心灵了。
+从没觉得乐队有意思过<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  杂兵敬业先锋  
+##### 10889#       发表于 2024-1-30 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828648&amp;ptid=2159415" target="_blank">寺川愛美 发表于 2024-1-30 14:55</a>
+
+好，看了回放，其實這事真不那麼大，大家喜歡烤個羊樂一下其實也沒啥，大家口嗨甚至沒上推特直球辱罵，我就 ...</blockquote>
+就B站官号下面大伙彬彬有礼地架烤架的样子，我是不信他们会上推直球辱骂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10890#       发表于 2024-1-30 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来以后是上不了万舰了，可惜了
+

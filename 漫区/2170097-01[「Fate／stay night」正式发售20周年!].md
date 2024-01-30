@@ -1154,3 +1154,11 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 
 请记住galgame和乙女游戏这些不需要性能的文字游戏在发售时基本是跟着掌机跑的
 
+
+*****
+
+####  fshzx  
+##### 124#       发表于 2024-1-31 01:01
+
+虽然但是原版游戏是pc版，就算不登陆steam也能玩
+

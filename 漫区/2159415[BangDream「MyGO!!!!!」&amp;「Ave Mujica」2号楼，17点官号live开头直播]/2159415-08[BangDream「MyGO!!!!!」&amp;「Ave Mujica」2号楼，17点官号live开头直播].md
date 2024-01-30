@@ -5697,3 +5697,18 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 就怕羊早和wsd摊过牌了，然后wsd非要留人，这下可不就有恃无恐了
 
+
+*****
+
+####  tiro_finale  
+##### 11094#       发表于 2024-1-31 00:59
+
+台长偷的那些笑话还不如今天这几个原文/台词引用好笑
+
+*****
+
+####  cindy355  
+##### 11095#       发表于 2024-1-31 00:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">叠一下甲我老是提不推里面的人只是因为自己有ptsd不是说推里面的人不好的意思，不给自己强调几遍我真怕又重蹈覆辙。
+

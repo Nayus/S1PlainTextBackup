@@ -2989,3 +2989,73 @@ APTX4869分我一颗<img src="https://static.saraba1st.com/image/smiley/face2017
 
 从来没觉得在邦多利开心过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 10818#       发表于 2024-1-30 12:34
+
+音宝也就唱歌不行还有啥态度问题吗，生放能力不比羊强多了，而且现在真比唱歌羊能不能比过音宝还不好说呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 10819#       发表于 2024-1-30 12:36
+
+ 本帖最后由 66367749 于 2024-1-30 12:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826918&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-30 12:31</a>
+看了眼隔壁還真的有人開始把鍋推到ave粉頭上了，終究是ave粉背負了一切 ...</blockquote>
+嗦一口奶嘴，锅总得有人背<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10820#       发表于 2024-1-30 12:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下mujica真的有神秘莫测的超自然能力了，可以把粉丝返老还童的
+
+*****
+
+####  御幸一也  
+##### 10821#       发表于 2024-1-30 12:39
+
+唉 唉唉<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/30/123854mm544ye1hhdye45b.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (1).jpg</strong> (19.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 12:38 上传
+
+*****
+
+####  Aendst  
+##### 10822#       发表于 2024-1-30 12:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来隔壁是祥黑聚集地啊，难怪嫌弃泥漏呢
+
+*****
+
+####  无证madam  
+##### 10823#       发表于 2024-1-30 12:40
+
+霸凌有点搞 不知道的还以为是其他四个怎么排挤动物朋友了
+
+*****
+
+####  NODY  
+##### 10824#       发表于 2024-1-30 12:42
+
+昨天要不是你羊姐访谈爆出，nga原本是准备车立希的，只能说本来有个共同目标可以让大家不要车轱辘纸片人，奈何gachi不愿意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 10825#       发表于 2024-1-30 12:42
+
+我一直都是🐔粉啊，🐶大牌和我有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

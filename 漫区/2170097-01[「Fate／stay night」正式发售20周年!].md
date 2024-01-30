@@ -899,3 +899,41 @@ pc版的语音是后来拿ps2版的语音逆移植回来的。
 
 艹，为啥没ps4/5，想拿一套杯呢
 
+
+*****
+
+####  eugene1208  
+##### 97#       发表于 2024-1-30 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63822775&amp;ptid=2170097" target="_blank">KDConan 发表于 2024-1-30 00:17</a>
+
+要有FHA能不能别给飞碟了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+现在想让飞碟做估计也做不到了，鬼灭不比fate赚钱？
+
+fate继续给a社做吧，最好每集绑定小太刀<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 98#         楼主| 发表于 2024-1-30 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr1z  
+##### 99#       发表于 2024-1-30 20:52
+
+就这啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  忧郁  
+##### 100#       发表于 2024-1-30 20:53
+
+阿索独不占笑死了
+

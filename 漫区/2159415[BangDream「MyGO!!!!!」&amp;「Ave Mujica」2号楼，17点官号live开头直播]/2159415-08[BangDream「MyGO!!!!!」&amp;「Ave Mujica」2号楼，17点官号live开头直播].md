@@ -5070,3 +5070,67 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 
 在2024年第一印象寄那就是寄，以后她改还是不改都好不了了，唯一解就是换人，所以去推特刷降板是在**
 
+
+*****
+
+####  HANDAIYV  
+##### 11032#       发表于 2024-1-30 20:43
+
+只能说楼友也别想太多滑坡太多，该切割cv和角色就切割了吧，羊干的事也不能全让灯去承担
+
+*****
+
+####  acgreen  
+##### 11033#       发表于 2024-1-30 20:43
+
+拿羊宫和祥子扯到一起去是个什么新发明？这两人做的事情有一点相似性吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ddy2811  
+##### 11034#       发表于 2024-1-30 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63830763&amp;ptid=2159415" target="_blank">純田まな 发表于 2024-1-30 17:37</a>
+
+一起吃甜甜圈什么的也太甜了吧</blockquote>
+什么时候能和初华一起吃呢？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 11035#       发表于 2024-1-30 20:46
+
+你们三次元偶像声优出事也要拉二刺螈纸片人下水吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+这波…围祥/希救羊？
+
+*****
+
+####  cindy355  
+##### 11036#       发表于 2024-1-30 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832030&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-30 19:46</a>
+
+伟大，无需多言</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">偷偷发贴还设权限是吧
+
+*****
+
+####  亚尔古水手  
+##### 11037#       发表于 2024-1-30 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832264&amp;ptid=2159415" target="_blank">Seabiscuit 发表于 2024-1-30 20:14</a>
+额，突然想起b站某个600万粉游戏区up主曾经在拜年祭这种别的嘉宾都在送祝福的环节自己却在招聘女友的事情， ...</blockquote>
+谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高规格ik  
+##### 11038#       发表于 2024-1-30 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832510&amp;ptid=2159415" target="_blank">HANDAIYV 发表于 2024-1-30 20:43</a>
+
+只能说楼友也别想太多滑坡太多，该切割cv和角色就切割了吧，羊干的事也不能全让灯去承担 ...</blockquote>
+什么叫做不能全让<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -3133,3 +3133,52 @@ APTX4869分我一颗<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以前还能说天音妹妹唱功不行，现在羊对比音宝还有什么优势区间吗
 
+
+*****
+
+####  PDQ4  
+##### 10836#       发表于 2024-1-30 13:04
+
+gachi很拼命算不算优势<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 10837#       发表于 2024-1-30 13:07
+
+不是有烤肉man从狗推变成羊推了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 10838#       发表于 2024-1-30 13:07
+
+音爆蹭是因为她几乎除了武士道什么都没有呀，就靠蹭把推特粉丝蹭高了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  有骨气的百合  
+##### 10839#       发表于 2024-1-30 13:07
+
+要进入超级小羊世界线了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 10840#       发表于 2024-1-30 13:08
+
+昨天还看人猜拉拉莲团加人有没有可能把tymm加进去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  阿斯顿氢气球  
+##### 10841#       发表于 2024-1-30 13:12
+
+<blockquote>Arrogate 发表于 2024-1-30 12:54
+音宝现在除了爱蹭好像也没太大缺点了（话说她怎么那么爱蹭李+啊）</blockquote>
+她可是真爱
+

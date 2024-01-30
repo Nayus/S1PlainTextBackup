@@ -1031,3 +1031,61 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 强推之耻这词儿摸摸猫头和圈吧那股子味道一下就起来了，我看一次笑一次属于是，想起了青春岁月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 10602#       发表于 2024-1-30 09:23
+
+羊不会是真的崆峒吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10603#       发表于 2024-1-30 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824408&amp;ptid=2159415" target="_blank">skives 发表于 2024-1-30 09:23</a>
+
+羊不会是真的崆峒吧</blockquote>
+不是据传她在转天片场营业也挺正常的吗，那还是上垒的真百呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 10604#       发表于 2024-1-30 09:25
+
+公 式 对 手 团 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liu461  
+##### 10605#       发表于 2024-1-30 09:25
+
+动物朋友这真的是都懒得掩的想切割了啊。。
+
+*****
+
+####  友情的结晶  
+##### 10606#       发表于 2024-1-30 09:25
+
+懂了，爱灯的kiss戏被改没了所以羊不乐意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  kivz  
+##### 10607#       发表于 2024-1-30 09:25
+
+反正续作都25了，改改更健康
+根本找个能唱的新人不难吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狐式重型坦克  
+##### 10608#       发表于 2024-1-30 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824419&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-30 09:24</a>
+不是据传她在转天片场营业也挺正常的吗，那还是上垒的真百呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">反转了，原来你羊是纯正河豚，看不上你邦这种半调子百合
+

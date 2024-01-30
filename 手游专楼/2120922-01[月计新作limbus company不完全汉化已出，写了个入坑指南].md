@@ -24,3 +24,14 @@
 
 船长玛丽终于要来了，但是这次抓的是红鲸<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 532#       发表于 2024-1-30 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833388&amp;ptid=2120922" target="_blank">ヒトニナル 发表于 2024-1-30 22:16</a>
+
+船长玛丽终于要来了，但是这次抓的是红鲸</blockquote>
+“白鲸被染红了，这都是你的错，以实玛利！”
+

@@ -3099,3 +3099,30 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 什么鬼翻译，怎么冒出来的&amp;# ...</blockquote>
 这片的迪士尼字幕组习惯就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 3611#       发表于 2024-1-30 22:46
+
+【转载巴哈：万代机甲游戏《奇异贤伴：爱达之歌》12分钟试玩-哔哩哔哩】 [https://b23.tv/SgPPmKX](https://b23.tv/SgPPmKX)
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  reficul  
+##### 3612#       发表于 2024-1-30 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833483&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-1-30 22:25</a>
+
+这片的迪士尼字幕组习惯就好，我对日文只知道一点皮毛 都感觉很多翻译太离谱了，每 ...</blockquote>
+迪士尼的话大概是日翻英再翻中？什么英文俗语直译过来了吧2333
+
+*****
+
+####  aptx8285144  
+##### 3613#       发表于 2024-1-30 22:51
+
+不过彼方安慰诺娃时那段<strong>更像</strong>自己的独白很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，比起贤士带来的强大，他更在意是多了个家人，大哥早年好像在回忆里和他有隔阂，艾女士嘲笑过他的梦想，所以呆呆傻傻（划去  的诺娃更符合他心中的家人吧（
+

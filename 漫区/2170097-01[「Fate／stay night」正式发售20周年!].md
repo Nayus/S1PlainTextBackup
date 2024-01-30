@@ -937,3 +937,138 @@ fate继续给a社做吧，最好每集绑定小太刀<img src="https://static.sa
 
 阿索独不占笑死了
 
+
+*****
+
+####  Saber琪  
+##### 101#       发表于 2024-1-30 20:54
+
+省流：steam switch上线，并且三语<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">比15周年还要敷衍
+
+*****
+
+####  ナルバレック  
+##### 102#       发表于 2024-1-30 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832505&amp;ptid=2170097" target="_blank">少少小司 发表于 2024-1-30 20:42</a>
+
+艹，为啥没ps4/5，想拿一套杯呢</blockquote>
+我有PSV版的一套杯，这个就是PSV版的再移植加个官方语言哈哈
+
+*****
+
+####  无动于衷  
+##### 103#       发表于 2024-1-30 20:54
+
+复刻啊，没劲
+
+*****
+
+####  oi99o  
+##### 104#       发表于 2024-1-30 20:55
+
+索索有psv版了，要知足<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 105#       发表于 2024-1-30 20:56
+
+『Fate/stay night』重置（HD复刻）
+
+PV：[https://youtu.be/2WEGvgyDf7w](https://youtu.be/2WEGvgyDf7w)
+
+支持简中
+
+「Fateの原点にして、『原典』」に、再び出会う。
+
+「Fate/stay night REMASTERED」
+
+Steam®・Nintendo Switch™にて
+
+2024年発売決定！
+
+※本作はPS VITAソフト「Fate/stay night [Realta Nua]」をもとに、グラフィックをHDリマスターし、英語・簡体字に対応したタイトルです。
+<img src="https://p.sda1.dev/15/c6c741b1050bfc4262e4cc6a142a0fe9/20240130_205419.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  任天索尼子  
+##### 106#       发表于 2024-1-30 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832608&amp;ptid=2170097" target="_blank">忧郁 发表于 2024-1-30 20:53</a>
+
+阿索独不占笑死了</blockquote>
+PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 107#       发表于 2024-1-30 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832608&amp;ptid=2170097" target="_blank">忧郁 发表于 2024-1-30 20:53</a>
+
+阿索独不占笑死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">，没准明年FHA还要再移植一波水一水，毕竟因为懒，至今FHA的语音版还在小V上...
+
+*****
+
+####  Piano-Forest  
+##### 108#       发表于 2024-1-30 20:57
+
+<img src="https://p.sda1.dev/15/5232b24778765c0be89e70effb69cd08/20240130_205627.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/0433ef428aa31fdd7c0ec88e49efb57d/20240130_205628.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/e424ccfdfae8acc8ca30de706b157721/20240130_205629.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/6c7080940df294801341f74c20add80b/20240130_205632.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b84909fd92f84bcd5beffbae1a0a62fa/20240130_205633.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/c5eb8d72a6b3389450f0dfec8d750a26/20240130_205634.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2f3feedb82b8322bd53ebad070e9380c/20240130_205624.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  枫雨  
+##### 109#       发表于 2024-1-30 20:59
+
+炒个冷饭，闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 110#       发表于 2024-1-30 20:59
+
+笑死，在令人失望方面从不令人失望
+
+*****
+
+####  花枝鱿鱼面  
+##### 111#       发表于 2024-1-30 21:00
+
+把大家叫出来就这点事啊.jpg
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ナルバレック  
+##### 112#       发表于 2024-1-30 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832661&amp;ptid=2170097" target="_blank">hkguty 发表于 2024-1-30 20:59</a>
+
+笑死，在令人失望方面从不令人失望</blockquote>
+本社就十五个人不到，在月姬R里线没磨出来之前分不了身是必然的，菌菇御用指定的UFO也是忙麻了
+
+*****
+
+####  Saber琪  
+##### 113#       发表于 2024-1-30 21:01
+
+型月已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b385a3fd6f105d02d0dfc30a23ddc09d/CMP_20240130210114506.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  任天索尼子  
+##### 114#       发表于 2024-1-30 21:01
+
+觉得失望的都是伪厨，真厨早就不抱任何希望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

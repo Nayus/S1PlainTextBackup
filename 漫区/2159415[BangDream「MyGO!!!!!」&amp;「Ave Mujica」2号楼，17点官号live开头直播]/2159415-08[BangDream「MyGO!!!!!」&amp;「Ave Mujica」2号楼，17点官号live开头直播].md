@@ -5134,3 +5134,26 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 只能说楼友也别想太多滑坡太多，该切割cv和角色就切割了吧，羊干的事也不能全让灯去承担 ...</blockquote>
 什么叫做不能全让<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  makece  
+##### 11039#       发表于 2024-1-30 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63831192&amp;ptid=2159415" target="_blank">勇者仁杰 发表于 2024-1-30 18:13</a>
+
+大家觉得下一任CV谁比较能胜任？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">楠木灯！
+
+*****
+
+####  QuattroVageena  
+##### 11040#       发表于 2024-1-30 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832613&amp;ptid=2159415" target="_blank">makece 发表于 2024-1-30 20:54</a>
+
+楠木灯！</blockquote>
+羊宫虽然平时站桩也断气起码影色舞还能跳，她是真没法跳了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要说的话我想要山根绮，这样就能偶马邦制霸了
+

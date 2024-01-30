@@ -675,3 +675,20 @@ UFO和月社压根没空做新企划吧，不炒冷饭就等于不圈钱了
 千万别saber线再动画化，ubw线tv已经把凛画成锥子脸，画得还不如deen剧场版，saber线再来也请不了川井宪次 ...</blockquote>
 ubw 剧场版的凛脸是最好看的，其次是06凛，我是因为06才成凛党的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  拖鞋脚后跟  
+##### 75#       发表于 2024-1-30 12:10
+
+UFO现在做着碗里的鬼灭看着锅里的○和魔夜，怎么可能有空再开新作
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  シャル  
+##### 76#       发表于 2024-1-30 12:12
+
+FSN格斗的话
+

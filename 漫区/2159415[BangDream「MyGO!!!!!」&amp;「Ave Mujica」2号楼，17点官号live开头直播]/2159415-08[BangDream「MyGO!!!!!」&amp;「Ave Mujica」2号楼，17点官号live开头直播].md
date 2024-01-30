@@ -2771,3 +2771,59 @@ S1都沒開<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 那我建议搞个动画专楼，给纯动画党降点功耗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 10796#       发表于 2024-1-30 12:04
+
+你邦没那热度到不了奇迹紫的
+
+*****
+
+####  ReginaldMorgan  
+##### 10797#       发表于 2024-1-30 12:07
+
+很少在这楼回过贴，毕竟我其实是炸梦箱推&amp;彩卫兵，对mygo的感情也就是动画让我和炸梦的动画和解了
+
+但是这个烤羊都是心智不成熟实在给我整笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10798#       发表于 2024-1-30 12:09
+
+为了烤羊叛变那是不是也可以算一种羊gachi的特殊形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别叛变了还是自己烤想烤的吧
+
+*****
+
+####  ReginaldMorgan  
+##### 10799#       发表于 2024-1-30 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826289&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-30 11:42</a>
+反正这事如果糟糕不到成海那种水平基本是换不了的，只能说mygo粉丝有福了
+
+—— 来自 Xiaomi M2012K ...</blockquote>
+其实成海不是bn主动要换的而是她自己跑了的吧
+
+imas企划主动踢人我只记得落合女士了，但是落合女士太重量级了，对比之下羊宫已经算非常非常敬业了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10800#       发表于 2024-1-30 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825696&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-30 10:58</a>
+
+nga走廊和专楼撕祥子撕立希撕soyo的时候从来不见版务出现，一烤羊直接飞速锁楼删帖一条龙，太gachi了[f:037 ...</blockquote>
+
+看了眼被這個笑吐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/30/121041y4q1whvomh8tbhvl.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (9.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 12:10 上传
+

@@ -2925,3 +2925,11 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 古贺葵的演技很好，双人格纠结和“最后的冲突”，可惜这话作画已经有些不稳了，诺娃以及其他人还不太明显，安洁有几个镜头的作画已经明显不太对劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3593#       发表于 2024-1-30 12:08
+
+白诺娃“托孤”彼方给艾女士，感觉是不是通过米斯特看穿夏尔心里有鬼了（
+

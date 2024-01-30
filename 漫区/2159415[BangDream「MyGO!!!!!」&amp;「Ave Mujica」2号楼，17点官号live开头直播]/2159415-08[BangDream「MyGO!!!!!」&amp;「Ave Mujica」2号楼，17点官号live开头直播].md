@@ -4998,3 +4998,42 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 
 只能说积怨太大，那个场刊翻译晚出一天都炸不成这样……话说反正已经炸了，就别收摊，哪怕按掀屋顶理论也应该咬死降板换人，不光去B站，还要去推特，不然现在这力度又装死混过去了
 
+
+*****
+
+####  nopa  
+##### 11025#       发表于 2024-1-30 20:06
+
+祥子第七话的时候是不是还没有想要组建乐队的计划？
+
+*****
+
+####  Aendst  
+##### 11026#       发表于 2024-1-30 20:07
+
+按照大部分推测来说是ep07末尾联系初华的时候~ep08期间有了计划
+
+*****
+
+####  -LYRE-  
+##### 11027#       发表于 2024-1-30 20:08
+
+ 本帖最后由 -LYRE- 于 2024-1-30 20:09 编辑 
+
+看到了节约宝的二人约会返图了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+不得不说mujica的访谈还是很有含金量的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+第一次访谈提到高尾经常团建还每月给剪小视频，
+虽然没能看到小视频，但是团建的合照去年年底发了很多<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+上次访谈是节约宝提到和高尾两人爱好相投，有很多类似的衣服，今天这就有了二人约会<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+所以我们有机会看到高尾公布mujica五人群里发的小视频吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安洁莉娜  
+##### 11028#       发表于 2024-1-30 20:10
+
+换CV和姐妹说一样，离谱但是让人忍不住往上面想，越想越斯巴拉西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+正好，第二季还有一年，mygo戏份又是次要的，改改嘛，就当灯变声期了，反正我没意见，我只想好好代入进去看剧情
+

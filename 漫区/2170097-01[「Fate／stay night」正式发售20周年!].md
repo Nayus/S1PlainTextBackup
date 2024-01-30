@@ -766,3 +766,16 @@ PS2上的无限代码今天在日本还是有游玩群体的吧 重制一下上�
 
 说不定就和魔夜就加个语音一样，完全不动文本添添补补一些CG啊演出之类的东西
 
+
+*****
+
+####  ナルバレック  
+##### 85#       发表于 2024-1-30 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828085&amp;ptid=2170097" target="_blank">格林卡罗尔 发表于 2024-1-30 14:01</a>
+
+要说是fsn衍生作也不太对，一般衍生作名字也会完全不同的，感觉仍然是重置
+
+说不定就和魔夜就加个语音一样， ...</blockquote>
+十年前的PSV版就有新OP，新小游戏和极少部分新CG了，可能就是PSV版的再移植？
+

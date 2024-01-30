@@ -3406,3 +3406,38 @@ YoumiyaHinaの水玛琳石
 
 — from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  6030sylar  
+##### 10865#       发表于 2024-1-30 14:05
+
+艹，社长戏服
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  フミさん  
+##### 10866#       发表于 2024-1-30 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">唉蜜柑，好可怜一孩子。看了z8的蜜柑分析贴之后泪目了
+
+*****
+
+####  EBe  
+##### 10867#       发表于 2024-1-30 14:11
+
+番位第三的男cv都敢在杂志跳脸女主说自己是真主角，你说青二管不管自己cv离谱言论？
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  EBe  
+##### 10868#       发表于 2024-1-30 14:11
+
+要我看青二也是帮凶<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -716,3 +716,11 @@ OP都是主仆组合，追加大概率两个人吧。
 
 现在隔壁骑士棚每年都有女骑士，所以Q娃棚每年也要有男Q娃啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 569#       发表于 2024-1-30 14:06
+
+这个op如果没有诈骗的话，我认为绝对是个好兆头，当然看到系构名字之后就已经没有任何妥协的可能性了
+

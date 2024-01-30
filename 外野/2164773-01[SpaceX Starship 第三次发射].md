@@ -373,3 +373,14 @@ https://www.doc88. ...</blockquote>
 
 2：我不是NASA或者SpaceX。
 
+
+*****
+
+####  commcody  
+##### 112#         楼主| 发表于 2024-1-30 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823471&amp;ptid=2164773" target="_blank">亚尔古水手 发表于 2024-1-30 06:10</a>
+
+1只着重于月表测绘，并没有精确测量月表着陆区地表压强的功能吧，LRO只有LOLA和宽窄角相机是针对对地观测 ...</blockquote>
+阿尔忒弥斯计划包含一些商业登月合同，会有一些商业登月载具尝试登月探测，包括南极。目前发射的都已经寄了。能不能成都看天命。
+

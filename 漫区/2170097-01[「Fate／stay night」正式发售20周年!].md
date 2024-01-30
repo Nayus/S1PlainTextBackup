@@ -654,3 +654,24 @@ next ten years 是吧
 
 真成炒冷饭专业户了？
 
+
+*****
+
+####  ナルバレック  
+##### 73#       发表于 2024-1-30 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826243&amp;ptid=2170097" target="_blank">TiiTiiLL 发表于 2024-1-30 11:38</a>
+
+真成炒冷饭专业户了？</blockquote>
+UFO和月社压根没空做新企划吧，不炒冷饭就等于不圈钱了
+
+*****
+
+####  aptx8285144  
+##### 74#       发表于 2024-1-30 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824428&amp;ptid=2170097" target="_blank">fshzx 发表于 2024-1-30 09:25</a>
+
+千万别saber线再动画化，ubw线tv已经把凛画成锥子脸，画得还不如deen剧场版，saber线再来也请不了川井宪次 ...</blockquote>
+ubw 剧场版的凛脸是最好看的，其次是06凛，我是因为06才成凛党的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

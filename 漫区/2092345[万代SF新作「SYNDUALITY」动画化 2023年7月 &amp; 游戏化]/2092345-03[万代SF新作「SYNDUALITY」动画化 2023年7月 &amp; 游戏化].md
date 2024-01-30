@@ -2917,3 +2917,11 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 感觉确实除了不能生，人类已经比不过贤士了，你看艾女士在安洁面前这么狼狈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3592#       发表于 2024-1-30 11:56
+
+古贺葵的演技很好，双人格纠结和“最后的冲突”，可惜这话作画已经有些不稳了，诺娃以及其他人还不太明显，安洁有几个镜头的作画已经明显不太对劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

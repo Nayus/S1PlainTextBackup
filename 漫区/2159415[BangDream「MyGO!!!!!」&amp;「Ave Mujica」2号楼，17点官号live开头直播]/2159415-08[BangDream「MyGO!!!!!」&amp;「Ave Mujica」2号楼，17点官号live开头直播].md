@@ -1136,3 +1136,39 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油把握一下度，别再复刻背锅了还被没常识的锅主反过来扫兴的悲剧
 
+
+*****
+
+####  LeonsCat  
+##### 10615#       发表于 2024-1-30 09:43
+
+港真，这又不是直播采访或者live上感言，特么都落了铅字了，有问题技术性的找编辑、方向性的找经纪公司和企划P，无论如何羊宫责任是最小的好伐。
+
+*****
+
+####  JY要塞  
+##### 10616#       发表于 2024-1-30 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824641&amp;ptid=2159415" target="_blank">LeonsCat 发表于 2024-1-30 09:43</a>
+
+港真，这又不是直播采访或者live上感言，特么都落了铅字了，有问题技术性的找编辑、方向性的找经纪公司和企 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你说这话你自己信吗
+
+*****
+
+####  Anatoly  
+##### 10617#       发表于 2024-1-30 09:49
+
+说不定编辑听错了呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10618#       发表于 2024-1-30 09:52
+
+看了下到处都在烤，泥漏这次是顺应潮流，专场访谈一枝独秀还是太行为艺术了。
+
+总不能是编辑欺上瞒下移花接木忽悠羊以为是单人访谈占的不是狗版面吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+接下来一年，不知道动物朋友还会带来怎样的欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

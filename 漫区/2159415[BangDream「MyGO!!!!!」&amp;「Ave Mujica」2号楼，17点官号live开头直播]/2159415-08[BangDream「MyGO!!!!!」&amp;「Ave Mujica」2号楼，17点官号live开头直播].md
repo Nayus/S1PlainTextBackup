@@ -5789,3 +5789,15 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 纯木耳听不出来差别，唱歌的话区别还挺大的，但是修音可救
 
+
+*****
+
+####  lactone  
+##### 11104#       发表于 2024-1-31 03:08
+
+现在也就是羊其他资源多，所以这边可能觉得又累又没钱
+
+但说实话长期饭票对cv来说还是意义挺大的
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

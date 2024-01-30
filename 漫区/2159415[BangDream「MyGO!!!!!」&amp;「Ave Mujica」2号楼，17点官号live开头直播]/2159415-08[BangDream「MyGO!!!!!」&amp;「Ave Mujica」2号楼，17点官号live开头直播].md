@@ -4605,3 +4605,51 @@ TV访谈时，羊不就是一副游离的样子，emo不会说话真不是人设
 
 精选评论有点太幽默了。
 
+
+*****
+
+####  Case  
+##### 10989#       发表于 2024-1-30 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63831232&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-30 18:17</a>
+
+当初要是羊配甜甜圈嫡系反田配灯可能就没这么多事了，估计武士道也没觉得狗能火随便找了点人凑合然后太子青 ...</blockquote>
+木谷高明倒是一开始就蛮看好GO和羊的……
+
+宣布卸任那次的现场活动上，还特意提到说在后台听到主唱练习，觉得GO一定能像前辈一样成为“巨大的乐团”。
+
+*****
+
+####  凡人  
+##### 10990#       发表于 2024-1-30 18:24
+
+最好的两个选择，
+
+A.楠木灯，tomori的牵绊 
+
+B.西条和，人皮合一的电波
+
+*****
+
+####  skives  
+##### 10991#       发表于 2024-1-30 18:25
+
+其实正常的羊挺好的
+
+*****
+
+####  QuattroVageena  
+##### 10992#       发表于 2024-1-30 18:26
+
+没和蒜水一样冲羊推不就说明只是不满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+真要换人团推又要堵嘴，现在不知道还有多少觉得楠木灯才是雪菜的呢
+
+*****
+
+####  PDQ4  
+##### 10993#       发表于 2024-1-30 18:32
+
+mggm还说音宝是下任三森呢，老登说的屁话听听就行。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+换人还是太敢梦了，除非羊事业蒸蒸日上变成真大牌，不然放着长期饭票为什么不要，说不定过两年没有主役了就会营业了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

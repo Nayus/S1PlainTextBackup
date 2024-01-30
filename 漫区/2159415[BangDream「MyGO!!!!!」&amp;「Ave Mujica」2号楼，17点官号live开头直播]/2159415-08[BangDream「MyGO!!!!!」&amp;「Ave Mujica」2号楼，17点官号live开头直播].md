@@ -4334,3 +4334,42 @@ b站关评论区了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 真关评论啊
 
+
+*****
+
+####  天之歌  
+##### 10960#       发表于 2024-1-30 17:23
+
+国内可是越捂嘴越要找个道理的啊，这波是不是nga伴舞全锅，本来都要结束了自己来添火
+
+*****
+
+####  novalli  
+##### 10961#       发表于 2024-1-30 17:25
+
+越捂嘴越是坐实了心虚，马上要转进微博可就不是那么好办了，说不定还会外溢到Twitter。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 10962#       发表于 2024-1-30 17:26
+
+这一堆堆的事配上这个联动真就有点抽象了
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">武士道面对青二到底是有多卑微啊
+
+*****
+
+####  CyDiablo  
+##### 10963#       发表于 2024-1-30 17:29
+
+还好你邦这边我只把声优当添头，不然真要样衰了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 10964#       发表于 2024-1-30 17:32
+
+精选评论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

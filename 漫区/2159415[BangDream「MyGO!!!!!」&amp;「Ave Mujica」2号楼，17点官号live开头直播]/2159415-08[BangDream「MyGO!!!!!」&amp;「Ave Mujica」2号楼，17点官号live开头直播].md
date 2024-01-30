@@ -5738,3 +5738,20 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
  ...</blockquote>
 连换都不会换 人选不都图一乐
 
+
+*****
+
+####  基神的强袭自由  
+##### 11098#       发表于 2024-1-31 01:48
+
+写了半个晚上NGA专楼代码忘记在哪个QQ群看的李子直播repo了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 11099#       发表于 2024-1-31 01:51
+
+羊就是过年后以来突然恶疾般反向营销，不知道是搞什么行为艺术还是真情流露<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，我宁愿她跟以前一样少说几句，最多被贴社恐标签
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

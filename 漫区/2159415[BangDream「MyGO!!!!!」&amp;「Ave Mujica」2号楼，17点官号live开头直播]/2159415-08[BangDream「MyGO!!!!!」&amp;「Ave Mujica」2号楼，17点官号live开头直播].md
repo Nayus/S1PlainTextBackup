@@ -1688,3 +1688,198 @@ nga专楼炸了，爽<img src="https://static.saraba1st.com/image/smiley/face201
 
 难道打滚的羊gachi就是版主小号吗，发现辩不过直接开始为爱出击，哪怕只有一个论坛也要保住动物朋友的名声<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  臭鱼烂虾吉雉鸡  
+##### 10676#       发表于 2024-1-30 10:42
+
+真和管人痴一样，泥爹的孝子果然和泥爹一个味
+
+下一步是不是追杀到s1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 10677#       发表于 2024-1-30 10:43
+
+只讨论二次元那不是小祥要被来回殴打了吗<img src="https://static.saraba1st.com/image/smiley/normal/035.gif" referrerpolicy="no-referrer">我心善，看不到的这些
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  狮子咕  
+##### 10678#       发表于 2024-1-30 10:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">刚播完的时候，专楼：大家要在专楼里聊一辈子mygo哦。现在专楼和锁帖子的一辈子都结束了
+
+*****
+
+####  一定会成功的  
+##### 10679#       发表于 2024-1-30 10:44
+
+ng2羊嘎有点过激了<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天之歌  
+##### 10680#       发表于 2024-1-30 10:44
+
+快进到nga以后不许聊mygo
+
+
+*****
+
+####  Anatoly  
+##### 10681#       发表于 2024-1-30 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825455&amp;ptid=2159415" target="_blank">狮子咕 发表于 2024-1-30 10:43</a>
+
+刚播完的时候，专楼：大家要在专楼里聊一辈子mygo哦。现在专楼和锁帖子的一辈子都结束了 ...</blockquote>
+这把鸡狗专楼制度先进了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10682#       发表于 2024-1-30 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825455&amp;ptid=2159415" target="_blank">狮子咕 发表于 2024-1-30 10:43</a>
+刚播完的时候，专楼：大家要在专楼里聊一辈子mygo哦。现在专楼和锁帖子的一辈子都结束了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">天才，属于mygo的故事已经结束啦
+
+*****
+
+####  狮子咕  
+##### 10683#       发表于 2024-1-30 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825478&amp;ptid=2159415" target="_blank">Anatoly 发表于 2024-1-30 10:44</a>
+
+这把鸡狗专楼制度先进了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">gachi先杀尼姑庵，下一个目标说不定就是这儿了
+
+*****
+
+####  NODY  
+##### 10684#       发表于 2024-1-30 10:46
+
+昨天nga专楼差点为了立希打起来结果访谈马上出来一转烤羊大战，羊gachi没能理解动物朋友成为此世全部之恶的苦心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 10685#       发表于 2024-1-30 10:46
+
+大草，居然炸楼了，泰gachi力！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我能不能看到圣子降临再演，直接追杀有anti发言包括阴阳怪气的，全部叉出猴区
+
+*****
+
+####  阿萨姆1405  
+##### 10686#       发表于 2024-1-30 10:46
+
+感觉狗团开一下换主唱的先河说不定也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+羊合同还有多久啊，到时候能自己走人吗
+
+*****
+
+####  harukage  
+##### 10687#       发表于 2024-1-30 10:47
+
+唉，NGA迷子的一生是戛然而止的一生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 10688#       发表于 2024-1-30 10:47
+
+过去各路大牌至少对邦挺上心的
+佐仓不说了，中岛由贵在争议下接替有利息，live营业也很卖力，现在几乎没人质疑由贵的lisa了
+
+羊可能感觉自己青二出身，要当专业cv，不太看得上乐队路线？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10689#       发表于 2024-1-30 10:47
+
+那么，NGA可以开一个avemujica专楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  假药入脑不可取  
+##### 10690#       发表于 2024-1-30 10:48
+
+感觉ng2是黑子装gachi，酱紫锁贴删帖不准讨论大伙只会更逆反，目的就是把五团联烤浇一捧热辣辣的油，跟你爆了！
+
+*****
+
+####  Aendst  
+##### 10691#       发表于 2024-1-30 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁不是一直嫌弃泥漏mujica含量太高吗，哪来的热心肠建mujica专楼
+
+*****
+
+####  相坂君  
+##### 10692#       发表于 2024-1-30 10:49
+
+那nga开avemujica专楼禁不禁团外啊，万一引来……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再炸一次？
+
+*****
+
+####  kivz  
+##### 10693#       发表于 2024-1-30 10:49
+
+来追杀吧，正好重生mujica专楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  实津二三  
+##### 10694#       发表于 2024-1-30 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不管怎么说我还是很喜欢羊宫的配音和歌的，换人我可能是接受不了的。
+
+*****
+
+####  NODY  
+##### 10695#       发表于 2024-1-30 10:50
+
+看了一眼z8，里面好几个说自己去nga发帖问锁楼相关的都被秒炸，羊gachi太拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱祈  
+##### 10696#       发表于 2024-1-30 10:50
+
+怎么整得好像羊好像ru了一样，一看原来是这种鸡毛蒜皮事，二偶痴真能小事化大
+
+*****
+
+####  HANDAIYV  
+##### 10697#       发表于 2024-1-30 10:51
+
+在z8看见楼主说楼回来了，但烧烤部分全没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 10698#       发表于 2024-1-30 10:52
+
+这下gachi比主唱本人还拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 10699#       发表于 2024-1-30 10:52
+
+别青二问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+佐仓先不提，青二新生代的两位，山根绮和川口莉奈，前者在偶像大师和赛马娘都深入人心，后者连妆都一直和角色同步
+
+只能说看人想不想做吧
+

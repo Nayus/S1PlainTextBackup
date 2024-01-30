@@ -572,3 +572,28 @@ UFO也没空，鬼灭魔夜原神在排队呢，这回从时间逻辑上压根�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Saber琪  
+##### 64#       发表于 2024-1-30 10:48
+
+ 本帖最后由 Saber琪 于 2024-1-30 10:50 编辑 
+
+nga那边传来消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/7aedb9249de62c78284b5104da2dea0f/Image_1706582816463.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 65#       发表于 2024-1-30 10:48
+
+新游戏？那可以不用期待了，如果是fsn重制，反正再等5年游戏也不知道出来未
+
+*****
+
+####  红鲤鱼与黑化肥  
+##### 66#       发表于 2024-1-30 10:49
+
+goa做个特别篇动画差不多了，月姬r里线都还没出指望菌哥出力的新作不太可能
+

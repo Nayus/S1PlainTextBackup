@@ -4932,3 +4932,42 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 
 磕磕磕
 
+
+*****
+
+####  关注二人关系性  
+##### 11018#       发表于 2024-1-30 19:44
+
+我也很不解，羊宮女士聯動hololive的時候在大陸沒炎上，為什麼現在炎上了呢？
+<img src="https://p.sda1.dev/15/acbdbf66c7984b4ca19a4bf0cd48b2b9/IMG_CMP_104249736.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 11019#       发表于 2024-1-30 19:46
+
+<strong>伟大，无需多言</strong>
+
+1E}748A[6I3$R1$JCB[%9[5.png
+(56.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 19:45 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/194543qvuz07uj8fz6g7d8.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11020#       发表于 2024-1-30 19:51
+
+还木口呢，木口在b站都活了，炎上什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11021#       发表于 2024-1-30 19:52
+
+只能说羊的操作确实影响我对灯歌声的观感，什么时候她的操作升级到让我连听到mygo的歌都受不了就能退坑了，反正喜欢的角色剧内边缘垫脚剧外被骂，也没什么好处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

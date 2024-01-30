@@ -1799,3 +1799,13 @@ Git hub上面有一个那个逆向帕鲁的项目，你可以去看一下，所�
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  狂马王  
+##### 126#       发表于 2024-1-30 19:43
+
+请教下怎么修改服务器基地数量和工作帕鲁数量？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -902,3 +902,23 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 唉，动物朋友
 
+
+*****
+
+####  御幸一也  
+##### 10587#       发表于 2024-1-30 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823813&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-30 08:24</a>
+
+高尾这两天都挺晚才发早上好阿</blockquote>
+可能1st<strong>跳舞</strong>跳得太累了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 10588#       发表于 2024-1-30 08:41
+
+羊的活太多太狠
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

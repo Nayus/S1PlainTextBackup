@@ -3068,3 +3068,23 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 等诺瓦回来男主能好好抱抱她就好了，byd这也太自卑了</blockquote>
 自卑还是因为这两个人还是实力不太够，彼方也挺努力了但是这和大哥的实力以及面具男的机体性能可不好弥补，至于诺娃，米斯特出现后，她的失落感也进一步加剧了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reficul  
+##### 3608#       发表于 2024-1-30 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833020&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-1-30 21:39</a>
+
+安杰那么细腻的吗（</blockquote>
+什么鬼翻译，怎么冒出来的布朗尼
+
+”这种事就是要老老实实地学才会给人高印象分“
+
+*****
+
+####  reficul  
+##### 3609#       发表于 2024-1-30 22:11
+
+彼方安慰人的技巧真的是太糟糕了，前面两集反复铺垫的是诺瓦在黑皮来了之后，深感自己性能不如人。这集宕机之前还在自责自己是个没用的贤伴，先不说诺瓦在操纵上真的帮了彼方很多，这种时候即使是说谎也该先否定掉诺瓦说自己没用自己帮不上忙的话吧，结果彼方开口就来一句”这种事情无所谓“，这种事情是指诺瓦没用帮不上你这种事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

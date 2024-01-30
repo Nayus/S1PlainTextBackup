@@ -1172,3 +1172,44 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 接下来一年，不知道动物朋友还会带来怎样的欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 10619#       发表于 2024-1-30 09:56
+
+怎么都开始联合烤羊了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一起度过每一天，那羊今年能给灯过生日吗。本来大家也不想烤羊的，但是羊偏偏自己要上烤架，那也别怪大家烤了。真不想干了能不能赶紧换人啊，从dj那边拉过来一个不行吗，我还挺希望李宝才能来邦邦的
+
+*****
+
+####  NODY  
+##### 10620#       发表于 2024-1-30 09:58
+
+大家好不容易要无视新年发布会我心危两开花的事，转手又来个大的，再升级怕不是要在巡演上带货了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  易筋经  
+##### 10621#       发表于 2024-1-30 09:58
+
+你这洗涤手法用晚了，你应该在她x摆烂的时候就直接运营编辑甩锅一条龙的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フミさん  
+##### 10622#       发表于 2024-1-30 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且这场刊的扫图和翻嵌还是b站仅有1400+粉丝的小羊转推翻译组做的（应该是首发吧，昨晚八点半发的）。
+
+倒不是说不能宣传一下自己，哪怕你就简简单单说一句“希望2024年作为MyGO的主唱和CV都能有更出色的表现和更多的机会”呢
+
+不禁对我🐑的小脑瓜产生了深深的担忧。。。
+
+*****
+
+####  枞枞那年  
+##### 10623#       发表于 2024-1-30 10:02
+
+只能说你是故意的还是有意的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

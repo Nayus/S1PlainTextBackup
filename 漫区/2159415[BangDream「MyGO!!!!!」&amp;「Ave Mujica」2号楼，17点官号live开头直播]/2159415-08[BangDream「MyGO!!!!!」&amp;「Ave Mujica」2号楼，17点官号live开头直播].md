@@ -3565,3 +3565,46 @@ YoumiyaHinaの水玛琳石
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寺川愛美  
+##### 10881#       发表于 2024-1-30 14:55
+
+好，看了回放，其實這事真不那麼大，大家喜歡烤個羊樂一下其實也沒啥，大家口嗨甚至沒上推特直球辱罵，我就不信能傷害到聲優，就是nga版主的太監操作比較難繃。
+
+— from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  フミさん  
+##### 10882#       发表于 2024-1-30 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825063&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-30 10:16</a>
+
+滑坡到后台打架——她和李世林青木离打一架也不远了</blockquote>
+根据wsd工作人员透露，从组团开始，🐏就一直压力其他队友，每日训练之后的一顿压力，对于mygo其他四人来说是再正常不过了，不过也有队友被激怒的时候，记得在🐏耍大牌拆队一事之后，大鼓队员被气的怒火中烧。训练结束后，鼓子怒视着🐏——这一切的根源，顺手拿起手里刚给全队买但只有🍊一个人吃的蜜瓜包扔了过去，当时的🍊和其他队员再也无法容忍🐏的所作所为，无法阻止的一幕发生了，🍊直接抡起贝斯砸向🐏，随之而来的便是不管不顾的一顿猛踹，在一旁的青木更是拍手叫好，不断大喊：“给我打,给我狠狠的打，让你耍大牌！”
+
+“当发生那件事后，🐑的更衣室里多了根铁棍，我想他是用来防身的吧。” 在这次团魂输给ave mujica后，🐏正是用这根铁棍报复了🍊。在live前的休息室里，🍊躺在沙发上讽刺地说：“跳舞跳的真好呀鼓子酱，你一定比nmdi酱强多了吧？” 大鼓脸色铁青，但也没有说什么，只是默默走出休息室，这不像她欺软怕硬的性格，果然，在大鼓从休息室出来时手里握着根打鼓用的木棍，趁着🍊没有防备一棍子从🍊头上敲了下去，🍊挨那一下着实不轻，趴在地上痛苦的抬起头才看到打他的人正是鼓子，不等🍊起身，鼓子又是一顿暴打，🍊在地上满地打滚不停求饶。在一旁的🐑可不会放过这样的机会不断地说：“鼓子，打底边，用力打，往死里给我打，打底边怎能少了我。” 🐑的防身铁棍终于派上了用场，可惜一棍下去🍊就昏死了过去，打的兴起的鼓子怒了，朝着🐑吼道：“这下还怎么打？你该滚一边去！” 🐑也不甘示弱：“你再说一遍，有种你重复一遍！” 鼓子没有回应🐑什么，如果🐑手上没有铁棍那么她们肯定会打起来。李士林在一旁不断地摇头边说：“疯了，疯了，都已经疯了！”
+
+*****
+
+####  cindy355  
+##### 10883#       发表于 2024-1-30 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63819309&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-29 18:36</a>
+
+飯圈警告哦</blockquote>
+只能说糊邦不上不下卡在这里了，作为偶像企划浓度不足，作为乐队企划依赖偶像模式去经营粉丝，没辙。
+
+*****
+
+####  寺川愛美  
+##### 10884#       发表于 2024-1-30 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828653&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-1-30 14:55</a>
+根据wsd工作人员透露，从组团开始，🐏就一直压力其他队友，每日训练之后的一顿压力，对于mygo其他四人来 ...</blockquote>
+怎麼還有mygo三棍客<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

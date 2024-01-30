@@ -134,3 +134,58 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202401/30/222628ao3nwr3p3g39l553.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  screeper  
+##### 1039#       发表于 2024-1-30 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63778269&amp;ptid=2130897" target="_blank">グラフ 发表于 2024-1-26 00:36</a>
+这里也发一下</blockquote>
+之前也尝试过本地自建音乐流媒体，发现对比大厂服务差距还是比较大，主要是检索和智能推荐这方面功能太弱
+单纯搭建一个subsonic协议的流媒体服务可能并不能解决这些问题，如果能实现按标签分类以及多演唱者分割的话就好了
+
+*****
+
+####  斑鳩ルカ  
+##### 1040#       发表于 2024-1-31 00:01
+
+无可救药的我自己…生日快乐
+
+<img src="https://img.saraba1st.com/forum/202401/31/000113u8gesi0fbng82bgj.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (148.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 00:01 上传
+
+<img src="https://img.saraba1st.com/forum/202401/31/000114p0zfzzyt62qfb22f.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (791.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 00:01 上传
+
+<img src="https://img.saraba1st.com/forum/202401/31/000114uzaozn1nwwx2xo3s.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (370.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 00:01 上传
+
+<img src="https://img.saraba1st.com/forum/202401/31/000114lx8jzkylnlnarhkf.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (138.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 00:01 上传
+
+[https://twitter.com/WalkingBoring/status/1752353587328676245](https://twitter.com/WalkingBoring/status/1752353587328676245)
+[https://twitter.com/P_mikoluka/status/1752345926096834930](https://twitter.com/P_mikoluka/status/1752345926096834930)
+[https://twitter.com/blue_nr31/status/1752351541376549165](https://twitter.com/blue_nr31/status/1752351541376549165)
+[https://twitter.com/bwuubw2/status/1752345938780135526](https://twitter.com/bwuubw2/status/1752345938780135526)
+

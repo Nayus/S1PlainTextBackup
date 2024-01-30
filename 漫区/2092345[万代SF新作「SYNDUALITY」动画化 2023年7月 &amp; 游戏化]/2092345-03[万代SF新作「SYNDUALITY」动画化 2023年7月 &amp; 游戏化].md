@@ -3126,3 +3126,23 @@ https://youtu.be/J2sgUdpwpmU</blockquote>
 
 不过彼方安慰诺娃时那段<strong>更像</strong>自己的独白很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，比起贤士带来的强大，他更在意是多了个家人，大哥早年好像在回忆里和他有隔阂，艾女士嘲笑过他的梦想，所以呆呆傻傻（划去  的诺娃更符合他心中的家人吧（
 
+
+*****
+
+####  NeloAngelo  
+##### 3614#       发表于 2024-1-31 07:48
+
+<img src="https://img.saraba1st.com/forum/202401/31/074805cz5angb4b5hzmd7h.jpg" referrerpolicy="no-referrer">
+
+<strong>5085adb6-0b92-45b8-b76d-47e737e9365c.jpg</strong> (34.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 07:48 上传
+
+EPISODE 17
+
+Greyish Zone
+
+Noir's reckless behavior causes both her and Mystere to stop functioning. When neither will wake up, Kanata turns to Alba for help. However, Alba tells Kanata he will need another Type Zero Magus in order to save them. There might be one in the ruins of Amasia, so Kanata and Ciel set out to find it.
+

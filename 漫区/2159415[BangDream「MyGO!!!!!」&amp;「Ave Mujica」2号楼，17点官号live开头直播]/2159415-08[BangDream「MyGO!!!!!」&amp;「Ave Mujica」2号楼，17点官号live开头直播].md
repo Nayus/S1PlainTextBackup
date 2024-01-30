@@ -2923,3 +2923,69 @@ imas企划主动踢人我只记得落合女士了，但是落合女士太重量 
 
 音宝的笑声真的充满jk活力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 10810#       发表于 2024-1-30 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，音宝这笑声跟我前推一个品种，爱了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rollingusagi  
+##### 10811#       发表于 2024-1-30 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">音宝最初被烤只是因为菜啊，人家态度可一点问题都没有，哪像羊是又菜又作。音宝现在长熟了rt厨一堆一堆的，歌力也提升了不少，还是蝶团的开心果兼主心骨，真正的未来可期好吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  月光的道标  
+##### 10812#       发表于 2024-1-30 12:29
+
+小孩那桌有烤全羊这种硬菜吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外，我一直是tymm的口合口合口合口合粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10813#       发表于 2024-1-30 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下玩乐队从来没有开心过了
+
+*****
+
+####  御幸一也  
+##### 10814#       发表于 2024-1-30 12:31
+
+看了眼隔壁還真的有人開始把鍋推到ave粉頭上了，終究是ave粉背負了一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 10815#       发表于 2024-1-30 12:31
+
+你羊能有音1/10的营业能力能像现在这样？
+你音连假面骑士都能蹭上，营业能力拉满的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 10816#       发表于 2024-1-30 12:31
+
+APTX4869分我一颗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 10817#       发表于 2024-1-30 12:31
+
+下次live的MC上可以表演一下这个：
+
+从来没觉得在邦多利开心过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

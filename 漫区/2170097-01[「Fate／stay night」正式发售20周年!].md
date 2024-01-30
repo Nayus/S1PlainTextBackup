@@ -713,3 +713,18 @@ FSN格斗的话</blockquote>
 FSN格斗的话</blockquote>
 卡普空：我做过了，但是最近没空<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忧郁  
+##### 79#       发表于 2024-1-30 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">当然是继续找光荣做啦
+
+*****
+
+####  takitaki  
+##### 80#       发表于 2024-1-30 12:29
+
+把c妈线和伊利亚线给我吐出来<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

@@ -1213,3 +1213,79 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 只能说你是故意的还是有意的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeonsCat  
+##### 10624#       发表于 2024-1-30 10:03
+
+ 本帖最后由 LeonsCat 于 2024-1-30 10:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824676&amp;ptid=2159415" target="_blank">JY要塞 发表于 2024-1-30 09:46</a>
+
+你说这话你自己信吗</blockquote>
+10.1002/anie.202006717
+
+个人说啥是言论自由，出了问题自己承担；经过审校的杂志刊载代表了编辑部或者投放者的意见，对于具体个人反而真的洒洒水靠边站了。
+
+*****
+
+####  Toki_Ai  
+##### 10625#       发表于 2024-1-30 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，看了一圈，团结!
+
+*****
+
+####  NODY  
+##### 10626#       发表于 2024-1-30 10:04
+
+悟了，正确心态应该是把mygo当成半个声优团，之前的三个声优团是只有主唱，这边就当做是只有主唱不在吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 10627#       发表于 2024-1-30 10:04
+
+我🐏真性情罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  惠痴  
+##### 10628#       发表于 2024-1-30 10:07
+
+刚来刚来刚来
+
+S1现在anti和🐏噶哪边占上风，这次总归能放孜然了吧？
+
+*****
+
+####  后藤一里  
+##### 10629#       发表于 2024-1-30 10:07
+
+羊豚不了一点好吧，有期迷子集会有观众（男）来信咨询恋爱问题，羊兴致盎然大谈特谈，蜜柑在一旁附和哎呀虽然我没有经验但是能理解呢，立石凛就兴趣索然旁边嗯嗯啊啊开混，木谷高明还是找个纯正bg企划给你羊安排一下吧，说不定爱屋及乌多看你狗两眼
+
+*****
+
+####  PDQ4  
+##### 10630#       发表于 2024-1-30 10:11
+
+ 本帖最后由 PDQ4 于 2024-1-30 10:12 编辑 
+
+你别说，当cv团还真能解决一些事，ag就有抓不到佐仓，找三泽上场。🐏要效仿大前辈吗，不过佐仓生放的营业力可不好学啊，和社长在一起不知道对多少小妹妹下了毒手。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 10631#       发表于 2024-1-30 10:11
+
+还行，文火慢烤，可能现在有心理预期了，我感觉这事还不如她以前做的离谱
+
+*****
+
+####  6030sylar  
+##### 10632#       发表于 2024-1-30 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在羊就像哪家关系户孩子，对感兴趣的工作就上心，不喜欢的就推脱等老板炒人，哪怕你装死呢
+

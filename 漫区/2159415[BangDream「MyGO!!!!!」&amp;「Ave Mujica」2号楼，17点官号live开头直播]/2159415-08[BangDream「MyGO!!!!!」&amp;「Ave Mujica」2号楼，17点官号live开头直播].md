@@ -1289,3 +1289,80 @@ S1现在anti和🐏噶哪边占上风，这次总归能放孜然了吧？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在羊就像哪家关系户孩子，对感兴趣的工作就上心，不喜欢的就推脱等老板炒人，哪怕你装死呢
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10633#       发表于 2024-1-30 10:13
+
+看了一圈，不同的地方不同的拷法，除了撒孜然上烤架的还有猛火爆炒和小火慢炖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 10634#       发表于 2024-1-30 10:13
+
+所以还是那个问题，为什么不让圣青木当主唱，让羊当主唱还大力给资源结果成了热脸贴冷屁股了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10635#       发表于 2024-1-30 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824377&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-30 09:20</a>
+
+强推之耻这词儿摸摸猫头和圈吧那股子味道一下就起来了，我看一次笑一次属于是，想起了青春岁月 ...</blockquote>
+看來樓友也喜歡過數字女團哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 10636#       发表于 2024-1-30 10:16
+
+<blockquote>NODY 发表于 2024-1-30 09:58
+大家好不容易要无视新年发布会我心危两开花的事，转手又来个大的，再升级怕不是要在巡演上带货了 ...</blockquote>
+滑坡到后台打架——她和李世林青木离打一架也不远了
+
+*****
+
+####  DarthAka  
+##### 10637#       发表于 2024-1-30 10:18
+
+青木想当solo歌手，不愿意被绑死吧……小飞哥那是刚出道没办法，而且也不影响她到处跑
+
+*****
+
+####  yaneis  
+##### 10638#       发表于 2024-1-30 10:18
+
+不想做能不能换个人，别苦了我灯皇
+
+*****
+
+####  DarthAka  
+##### 10639#       发表于 2024-1-30 10:19
+
+别猫头了，元旦大松井都结婚了
+
+*****
+
+####  Anatoly  
+##### 10640#       发表于 2024-1-30 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">邦邦松井珠是吧（
+
+*****
+
+####  フミさん  
+##### 10641#       发表于 2024-1-30 10:20
+
+<img src="https://img.saraba1st.com/forum/202401/30/102027zz2nnn2jss7vm7m7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 10:20 上传
+
+翻译：没米重做狗团了，凑合看吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

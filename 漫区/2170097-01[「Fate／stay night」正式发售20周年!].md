@@ -560,3 +560,15 @@ UFO也没空，鬼灭魔夜原神在排队呢，这回从时间逻辑上压根�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KDConan  
+##### 63#       发表于 2024-1-30 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63822816&amp;ptid=2170097" target="_blank">桥田至 发表于 2024-1-30 00:22</a>
+现在还有人不明白飞碟才是你月的伯乐吗。你看你月那些不是飞碟做的动画是什么臭鱼烂虾。 ...</blockquote>
+伯乐我承认，FZ、HF也很棒，就是UBW的饼脸凛无法原谅<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">气氛也怪怪的
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

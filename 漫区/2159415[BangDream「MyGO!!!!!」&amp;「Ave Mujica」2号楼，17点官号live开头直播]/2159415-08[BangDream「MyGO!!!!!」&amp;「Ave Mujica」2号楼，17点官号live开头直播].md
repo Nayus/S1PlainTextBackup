@@ -5177,3 +5177,16 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 羊宫虽然平时站桩也断气起&amp;# ...</blockquote>
 山根绮有灯这种声线吗
 
+
+*****
+
+####  QuattroVageena  
+##### 11043#       发表于 2024-1-30 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832691&amp;ptid=2159415" target="_blank">makece 发表于 2024-1-30 21:02</a>
+
+山根绮有灯这种声线吗</blockquote>
+美琴声线捏一点吧
+
+反正既能绯田美琴又能太阳神，业务能力很强
+

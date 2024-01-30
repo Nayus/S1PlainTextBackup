@@ -1103,3 +1103,24 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 
 要不是早上看到有游戏新官推出现，我的预期还会更低，之前想的是办点展会和活动就结了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 119#       发表于 2024-1-30 21:15
+
+ 本帖最后由 hkguty 于 2024-1-30 21:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832678&amp;ptid=2170097" target="_blank">ナルバレック 发表于 2024-1-30 21:01</a>
+
+本社就十五个人不到，在月姬R里线没磨出来之前分不了身是必然的，菌菇御用指定的UFO也是忙麻了 ...</blockquote>
+没事，接下来轮到等型月20周年了，啊，不对，20周年好像也已经过了？那该等30周年了！
+
+*****
+
+####  被子十三  
+##### 120#       发表于 2024-1-30 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？我已经很满意了啊，居然还有人会失望的吗
+
+— from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -30723,3 +30723,57 @@ hugface项目说明截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1232#       发表于 2024-1-31 06:33
+
+InternLM-XComposer2
+
+掌握大型视觉语言模型中的自由形式文本图像组合与理解
+
+github项目主页:https://github.com/InternLM/InternLM-XComposer
+
+InternLM-XComposer2，在自由形式的文本图像组合与理解方面表现出色的尖端视觉语言模型，该模型超越了传统的视觉语言理解，从多样的输入中，如轮廓、详细的文本规范和参考图像(outlines, detailed textual specifications, and reference images)中巧妙地构建交替的文本图像内容，实现高度可定制的内容创作
+
+InternLM-XComposer2提出了一种部分LoRA(PLoRA/Partial LoRA)方法，将额外的LoRA参数仅应用于图像Token，以保留预训练语言知识的完整性，在精确的视觉理解和具有文学才艺的文本构成之间取得平衡
+
+实验结果表明，基于InternLM2-7B的InternLM-XComposer2在生成高质量的长文本多模态内容方面具有显著优势，在各种基准测试中展现了卓越的视觉语言理解性能，它不仅显著优于现有的多模态模型，还在某些评估中与GPT-4V和Gemini Pro相匹敌甚至超越，这凸显了它在多模态理解领域的能力
+
+github中文项目说明页截图:
+
+<img src="https://img.saraba1st.com/forum/202401/31/063300rsez4gcpz473z6up.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-063128.jpg</strong> (318.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 06:33 上传
+
+<img src="https://img.saraba1st.com/forum/202401/31/063300aekhhlz6v2a2nwa0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-063159.jpg</strong> (266.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 06:33 上传
+
+<img src="https://img.saraba1st.com/forum/202401/31/063300lpo45jjowpwfoehf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-063211.jpg</strong> (268.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 06:33 上传
+
+<img src="https://img.saraba1st.com/forum/202401/31/063300gstip8xs6el7l63t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-063227.jpg</strong> (169.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 06:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

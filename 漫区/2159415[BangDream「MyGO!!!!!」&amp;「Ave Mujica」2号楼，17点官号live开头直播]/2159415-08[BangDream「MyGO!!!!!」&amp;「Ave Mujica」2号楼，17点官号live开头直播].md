@@ -5434,3 +5434,37 @@ yysy，动画结束后最大的乐趣是去z8看cv的乐子，没想到现在已
 
 偶像厨闹麻了，什么时候才能tie上热门动画啊，鬼灭之刃那个我肯定比鬼头干得好
 
+
+*****
+
+####  lactone  
+##### 11069#       发表于 2024-1-30 23:23
+
+你们想太多了，还楠木灯，铃木实里
+干脆再来个佐藤日向和田边留依吧
+
+反正佐藤日向在隔壁d5j也有活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  6030sylar  
+##### 11070#       发表于 2024-1-30 23:26
+
+<img src="https://img.saraba1st.com/forum/202401/30/232611j6pts9im9c220tmz.jpg" referrerpolicy="no-referrer">
+
+<strong>U]W[CA]`MW17H`ZJ3B}3CSS.jpg</strong> (280.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/232620xob7880qe4e4jq1q.jpg" referrerpolicy="no-referrer">
+
+<strong>A]9X[9GF8R4MV4$$CL3Y(C2.jpg</strong> (138.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 23:26 上传
+

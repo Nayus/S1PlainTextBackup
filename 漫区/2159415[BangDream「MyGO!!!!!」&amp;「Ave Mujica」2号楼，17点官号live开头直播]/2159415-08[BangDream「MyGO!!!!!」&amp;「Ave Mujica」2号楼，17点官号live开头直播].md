@@ -966,3 +966,46 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 说实话，所有人都一点不演真是很新奇的打法，颇有一种已经定好了今年万人场结束就换人的感觉——甚至第二季拖到25年是为了等新人
 
+
+*****
+
+####  杂兵敬业先锋  
+##### 10594#       发表于 2024-1-30 09:03
+
+动物朋友这个真不能拿“一份工作而已”来说事。我在工作单位见过不少下个月要辞职，这个月还在积极转发公司各种朋友圈的。转个推，说两句好话又不是什么劳神费时的事情，但凡有一点情商都不至于连一点场面样子都不做，除非你是真的跟公司有深仇大恨<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10595#       发表于 2024-1-30 09:06
+
+拖到25年是因为灯的部分根本还没配音是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 10596#       发表于 2024-1-30 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大早上就闻到孜然羊肉香味……
+
+别拐鸡了，就对比对比团内吧，等会羊噶吃起床又要批泥楼鸡粉楼了
+
+*****
+
+####  狮子咕  
+##### 10597#       发表于 2024-1-30 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824108&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-30 08:56</a>
+
+好羡慕鸡团粉，自推有技术有团魂，对手团核心还拼命摆烂作死气走粉丝生怕热度太高
+
+就是可惜了狗团另 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">soyo：tomori酱！ano酱！taki桑！猫！不要再一次丢下我……
+
+*****
+
+####  阿斯顿氢气球  
+##### 10598#       发表于 2024-1-30 09:11
+
+什么时候能把和皇拉过来当灯啊，看见灯立马就想起啊和了
+

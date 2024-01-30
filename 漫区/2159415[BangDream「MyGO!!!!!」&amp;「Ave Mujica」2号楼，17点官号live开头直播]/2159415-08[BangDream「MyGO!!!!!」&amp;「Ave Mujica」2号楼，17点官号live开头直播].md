@@ -4538,3 +4538,70 @@ B站评论区又开了，删的不干净还是没删？
 —— 来自 S1Fun</blockquote>
 我就知道这楼要香起来了，刚才赶紧把饭买回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  勇者仁杰  
+##### 10981#       发表于 2024-1-30 18:13
+
+大家觉得下一任CV谁比较能胜任？
+
+*****
+
+####  Nomind96  
+##### 10982#       发表于 2024-1-30 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63831192&amp;ptid=2159415" target="_blank">勇者仁杰 发表于 2024-1-30 18:13</a>
+大家觉得下一任CV谁比较能胜任？</blockquote>
+石见舞菜香？
+
+*****
+
+####  爱丁堡official  
+##### 10983#       发表于 2024-1-30 18:16
+
+响社自己人拿吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NODY  
+##### 10984#       发表于 2024-1-30 18:17
+
+当初要是羊配甜甜圈嫡系反田配灯可能就没这么多事了，估计武士道也没觉得狗能火随便找了点人凑合然后太子青木给个边缘人练手，看到意外赚了点想多开点活动，结果动物朋友不愿意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 10985#       发表于 2024-1-30 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评论区貌似压了一点，弹幕直接冲了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yanghuangu  
+##### 10986#       发表于 2024-1-30 18:17
+
+TV访谈时，羊不就是一副游离的样子，emo不会说话真不是人设吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Besthounddog  
+##### 10987#       发表于 2024-1-30 18:18
+
+还是响社出人吧。
+其实千春真可以。
+当然，把隔壁227的西条和拉进来和阿灯是真的挺配的。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  凡人  
+##### 10988#       发表于 2024-1-30 18:21
+
+精选评论有点太幽默了。
+

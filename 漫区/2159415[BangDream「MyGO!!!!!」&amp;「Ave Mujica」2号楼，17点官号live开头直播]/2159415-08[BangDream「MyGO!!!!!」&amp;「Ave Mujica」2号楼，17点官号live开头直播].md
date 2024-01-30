@@ -3441,3 +3441,29 @@ YoumiyaHinaの水玛琳石
 
 —— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  御幸一也  
+##### 10869#       发表于 2024-1-30 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828047&amp;ptid=2159415" target="_blank">LeonsCat 发表于 2024-1-30 13:57</a>
+
+前面说了，如果这是live现场或者采访直播，那羊宫的绝对主要责任。
+
+但是特么的都付印了，这种标准商业稿 ...</blockquote>
+這，我當然知道訪談要官方過目的
+
+武士道覺得沒問題是一回事，可是這些話又不是武士道摁著人的頭逼她說出來的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+算了再說感覺我也要被打上烤羊tag了，只是今天各種事情太好笑看樂了
+
+就這樣吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 10870#       发表于 2024-1-30 14:17
+
+不出所料 隔壁祥黑又开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

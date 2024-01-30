@@ -779,3 +779,14 @@ PS2上的无限代码今天在日本还是有游玩群体的吧 重制一下上�
 说不定就和魔夜就加个语音一样， ...</blockquote>
 十年前的PSV版就有新OP，新小游戏和极少部分新CG了，可能就是PSV版的再移植？
 
+
+*****
+
+####  格林卡罗尔  
+##### 86#       发表于 2024-1-30 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828154&amp;ptid=2170097" target="_blank">ナルバレック 发表于 2024-1-30 14:07</a>
+
+十年前的PSV版就有新OP，新小游戏和极少部分新CG了，可能就是PSV版的再移植？ ...</blockquote>
+以前已经移植到手机上了，感觉不会只有这种程度
+

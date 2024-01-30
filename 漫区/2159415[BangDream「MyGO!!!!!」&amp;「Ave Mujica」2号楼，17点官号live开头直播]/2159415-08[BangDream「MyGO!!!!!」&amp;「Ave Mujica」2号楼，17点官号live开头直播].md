@@ -3957,3 +3957,47 @@ mujica去唱大人法q也太怪了<img src="https://static.saraba1st.com/image/s
 
 纸片人也是摘了面具好看
 
+
+*****
+
+####  滑稽Captain  
+##### 10916#       发表于 2024-1-30 16:24
+
+主要结月是饼饼脸，戴这种面具全覆盖就一点都看不出来了（
+
+*****
+
+####  cindy355  
+##### 10917#       发表于 2024-1-30 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829550&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-30 16:12</a>
+
+早就是结月gachi了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">虽然我不准备推里面的人，但不得不说结月确实很可爱，看1st的时候歪歪头就觉得乖乖的。
+
+*****
+
+####  cindy355  
+##### 10918#       发表于 2024-1-30 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829733&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-1-30 16:24</a>
+
+主要结月是饼饼脸，戴这种面具全覆盖就一点都看不出来了（</blockquote>
+不戴也很可爱啊……这点婴儿肥的气态很完美。
+
+*****
+
+####  cindy355  
+##### 10919#       发表于 2024-1-30 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">补款的时候看了一眼其他人的补款链接，只有我是个位数，其他人都是三十多，你楼的睦推祥推不得羡慕死我们立希推？
+
+*****
+
+####  笋干爆炸碱  
+##### 10920#       发表于 2024-1-30 16:30
+
+就喜欢圆脸的，手也肉肉的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+再说下去要转进肉体厨环节了，我还是打住在这里
+

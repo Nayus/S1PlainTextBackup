@@ -798,3 +798,43 @@ PS2上的无限代码今天在日本还是有游玩群体的吧 重制一下上�
 
 一转眼真快啊
 
+
+*****
+
+####  Abba-il-Aeons  
+##### 88#       发表于 2024-1-30 16:29
+
+<blockquote>被子十三 发表于 2024-1-30 06:08
+FHA有PSV的全年龄&amp;语音版，但是除了PSV之外没上其他平台
+
+因为平台和汉化的原因国内绝大多数人应该没玩过 ...</blockquote>
+我就意思就是，连第三方移植的PSP版都没有啦…
+
+不过玩的人确实相对少得多，全的资源也没那么好找，我记得我疫情前找的PC版好像就没补魔语音
+
+*****
+
+####  adretyu67.  
+##### 89#       发表于 2024-1-30 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829809&amp;ptid=2170097" target="_blank">Abba-il-Aeons 发表于 2024-1-30 16:29</a>
+
+我就意思就是，连第三方移植的PSP版都没有啦…
+
+不过玩的人确实相对少得多，全的资源也没那么好找，我记 ...</blockquote>
+pc原版无语音，语音是后来ps2版全年龄补的。
+
+pc版的语音是后来拿ps2版的语音逆移植回来的。
+
+*****
+
+####  adretyu67.  
+##### 90#       发表于 2024-1-30 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828278&amp;ptid=2170097" target="_blank">格林卡罗尔 发表于 2024-1-30 14:18</a>
+
+以前已经移植到手机上了，感觉不会只有这种程度</blockquote>
+现在也不是20年前做移植不加点剧情和新CG对不起二次购买的粉丝年代了。
+
+高概率某个版本的原汁原味，问题是哪个版本。
+

@@ -1011,3 +1011,13 @@ ORT最后战本来打算最后麻婆单挑的，结果不知道怎么回事脑�
 ORT最后战本来打算最后麻婆单挑的，结果不知道怎么回事脑子一抽开了他三技能，被ORT一个宝具送走…………… ...</blockquote>
 我日服开荒因为不知道机制，只留下梅莉一个，逆克制打了40多回合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ousia  
+##### 46029#       发表于 2024-1-30 17:19
+
+cheldea是不是用不了了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+应该总共15单左右5宝，令人很不爽，上头继续抽了3单没有6宝更不爽，真是比卡莲还要坏的人😡
+

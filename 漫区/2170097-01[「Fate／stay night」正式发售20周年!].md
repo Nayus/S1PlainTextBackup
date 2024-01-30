@@ -625,3 +625,13 @@ next ten years 是吧
 那不就是goa阿瓦隆之庭嘛</blockquote>
 太短了，像是POV节选，少了点儿宿命感，至少应该把“拔剑—抗敌—迎娶桂妮薇儿—组建圆桌—圣杯—圆桌解体—桂妮薇儿被劫—内战—还剑”这完美的环形叙事写清楚
 
+
+*****
+
+####  Saber琪  
+##### 70#       发表于 2024-1-30 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825917&amp;ptid=2170097" target="_blank">Lawliet.L 发表于 2024-1-30 11:13</a>
+太短了，像是POV节选，少了点儿宿命感，至少应该把“拔剑—抗敌—迎娶桂妮薇儿—组建圆桌—圣杯—圆桌解 ...</blockquote>
+真要动画化这些肯定要讲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过goa是用兰斯洛特他们的角度讲的
+

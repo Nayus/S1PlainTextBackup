@@ -2092,3 +2092,25 @@ hego更是重量级老江湖
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就好奇，这管不住的情况，要是发武道馆隔壁的图，ng2玩不玩大静谧
 
+
+*****
+
+####  soranoguiji  
+##### 10725#       发表于 2024-1-30 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 怎么我现在还在登录的几个社区都在烤羊啊，看来确实是惹众怒了
+
+*****
+
+####  Aendst  
+##### 10726#       发表于 2024-1-30 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥漏基本无关心，不算避难者平均下来一页也就有三四楼在烤吧
+
+*****
+
+####  PDQ4  
+##### 10727#       发表于 2024-1-30 11:21
+
+纯正狗厨怒不怒不是很清楚，但是我觉得动物朋友的操作抽象的成分更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

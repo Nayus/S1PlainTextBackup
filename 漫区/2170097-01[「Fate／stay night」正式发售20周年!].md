@@ -728,3 +728,23 @@ FSN格斗的话</blockquote>
 
 把c妈线和伊利亚线给我吐出来<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纱布光环  
+##### 81#       发表于 2024-1-30 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是学隔壁数码，让声优喊你的名字100分钟
+
+*****
+
+####  被子十三  
+##### 82#       发表于 2024-1-30 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826680&amp;ptid=2170097" target="_blank">シャル 发表于 2024-1-30 12:12</a>
+
+FSN格斗的话</blockquote>
+PS2上的无限代码今天在日本还是有游玩群体的吧 重制一下上本世代主机也不是不可能
+
+好几年前（可能十年前？）有过无限代码PSV版的传闻后来搁置了
+

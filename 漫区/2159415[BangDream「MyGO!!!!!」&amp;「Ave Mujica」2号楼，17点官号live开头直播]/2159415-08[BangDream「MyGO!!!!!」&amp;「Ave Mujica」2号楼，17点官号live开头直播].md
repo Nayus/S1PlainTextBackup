@@ -3097,3 +3097,39 @@ APTX4869分我一颗<img src="https://static.saraba1st.com/image/smiley/face2017
 
 四年音宝粉看你们从昨晚烤到今天已经笑麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 10831#       发表于 2024-1-30 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立希脑控soyo之外的所有人退出crychic然后在一年后突然发现自己漏了soyo所以紧急脑控soyo来结束乐队是吧
+
+*****
+
+####  Arrogate  
+##### 10832#       发表于 2024-1-30 12:54
+
+音宝现在除了爱蹭好像也没太大缺点了（话说她怎么那么爱蹭李+啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  PDQ4  
+##### 10833#       发表于 2024-1-30 12:56
+
+音宝那是爱蹭吗，真心的好吧！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10834#       发表于 2024-1-30 12:56
+
+只要对你邦本身够上心努力，蹭点有什么问题，我就是因为音宝也是拉拉人才对她有好感的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狐式重型坦克  
+##### 10835#       发表于 2024-1-30 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以前还能说天音妹妹唱功不行，现在羊对比音宝还有什么优势区间吗
+

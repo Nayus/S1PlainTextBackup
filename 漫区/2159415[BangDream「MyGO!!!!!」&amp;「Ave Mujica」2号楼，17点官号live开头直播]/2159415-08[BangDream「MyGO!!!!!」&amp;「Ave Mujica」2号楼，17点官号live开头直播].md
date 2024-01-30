@@ -1009,3 +1009,25 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 什么时候能把和皇拉过来当灯啊，看见灯立马就想起啊和了
 
+
+*****
+
+####  须贺兰  
+##### 10599#       发表于 2024-1-30 09:17
+
+能不能设定灯转学了，灯爸的私生女灯（akari）被接回来住，然后参团MyGO？
+
+*****
+
+####  Aendst  
+##### 10600#       发表于 2024-1-30 09:18
+
+别对手团了，拐mujica到时候又有正义路人进来说什么强推之耻云云mujica推漏油可遭不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 10601#       发表于 2024-1-30 09:20
+
+强推之耻这词儿摸摸猫头和圈吧那股子味道一下就起来了，我看一次笑一次属于是，想起了青春岁月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

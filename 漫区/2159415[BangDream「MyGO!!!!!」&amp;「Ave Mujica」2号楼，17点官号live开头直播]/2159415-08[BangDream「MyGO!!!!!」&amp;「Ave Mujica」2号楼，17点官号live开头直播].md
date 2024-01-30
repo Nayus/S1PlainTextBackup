@@ -3893,3 +3893,50 @@ IMG_0994.jpeg
 昨天我就想说了，后来工作忙 ...</blockquote>
 所以才说你邦浓度不足了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，只能说也好，已经不推里面的人了。
 
+
+*****
+
+####  cindy355  
+##### 10910#       发表于 2024-1-30 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829312&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-30 15:56</a>
+
+全部人都發和另外4人的單獨合照 </blockquote>
+我是真觉得结月戴这个全覆面具戴出了很可爱的感觉，真的很可爱啊。
+
+*****
+
+####  Aendst  
+##### 10911#       发表于 2024-1-30 16:05
+
+面具遮盖、打光、自拍近景镜头距离和角度都有影响
+
+这个面具设计虽然花了心思但是真的算不上好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纸片人那边也只是看习惯了所以觉得还行，三次元演出服材质和实际效果就更是
+
+*****
+
+####  紫吹兰  
+##### 10912#         楼主| 发表于 2024-1-30 16:10
+
+ 本帖最后由 紫吹兰 于 2024-1-30 16:11 编辑 
+
+剪了一下Q娃20周年李子唱法Q ED
+[https://www.bilibili.com/video/BV1rv421i746](https://www.bilibili.com/video/BV1rv421i746)
+
+还有她自己的派Q ED2
+[https://www.bilibili.com/video/BV1vy421a7TX](https://www.bilibili.com/video/BV1vy421a7TX)
+
+你们烤羊烤的太热烈，都不好意思发了
+
+大人法Q能不能真的让李子甚至Mujica唱<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 10913#       发表于 2024-1-30 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63829413&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-30 16:03</a>
+
+我是真觉得结月戴这个全覆面具戴出了很可爱的感觉，真的很可爱啊。</blockquote>
+早就是结月gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

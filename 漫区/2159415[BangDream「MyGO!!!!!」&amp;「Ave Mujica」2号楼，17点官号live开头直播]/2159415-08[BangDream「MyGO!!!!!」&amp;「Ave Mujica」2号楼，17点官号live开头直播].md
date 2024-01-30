@@ -5801,3 +5801,31 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 —— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lactone  
+##### 11105#       发表于 2024-1-31 04:00
+
+ 本帖最后由 lactone 于 2024-1-31 04:01 编辑 
+
+话说227退了这么多人，能不能搞过来几个
+
+宫濑玲奈不就挺好，颜值态度声线都不错，就是不太符合灯宝人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  lactone  
+##### 11105#       发表于 2024-1-31 04:00
+
+ 本帖最后由 lactone 于 2024-1-31 04:01 编辑 
+
+话说227退了这么多人，能不能搞过来几个
+
+宫濑玲奈不就挺好，颜值态度声线都不错，就是不太符合灯宝人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

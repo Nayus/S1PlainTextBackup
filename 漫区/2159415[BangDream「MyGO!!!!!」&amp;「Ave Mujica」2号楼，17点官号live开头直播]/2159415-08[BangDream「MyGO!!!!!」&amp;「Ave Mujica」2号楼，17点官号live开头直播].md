@@ -1089,3 +1089,50 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 不是据传她在转天片场营业也挺正常的吗，那还是上垒的真百呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">反转了，原来你羊是纯正河豚，看不上你邦这种半调子百合
 
+
+*****
+
+####  PDQ4  
+##### 10609#       发表于 2024-1-30 09:36
+
+纯正河豚怎么搁我心危营业那么开心。你还不如说羊其实内心小男生只喜欢大乃美女。灯爽不是官配羊不满捏，劝老登速速满足羊的愿望。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MERCCCP  
+##### 10610#       发表于 2024-1-30 09:36
+
+过来看看这边是怎么烤羊的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yoyodream  
+##### 10611#       发表于 2024-1-30 09:37
+
+不是，wsd这都过了多少年了，怎么选上了的主推还是会出岔子啊。不愧是他
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  友情的结晶  
+##### 10612#       发表于 2024-1-30 09:39
+
+羊是ftm<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Toki_Ai  
+##### 10613#       发表于 2024-1-30 09:41
+
+可惜了，mygo的歌我还挺喜欢的，能不能换个主唱<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10614#       发表于 2024-1-30 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油把握一下度，别再复刻背锅了还被没常识的锅主反过来扫兴的悲剧
+

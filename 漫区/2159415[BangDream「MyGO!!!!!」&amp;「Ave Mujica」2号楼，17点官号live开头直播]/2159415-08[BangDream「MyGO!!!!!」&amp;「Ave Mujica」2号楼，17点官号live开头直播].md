@@ -3608,3 +3608,25 @@ YoumiyaHinaの水玛琳石
 
 — from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  天之歌  
+##### 10885#       发表于 2024-1-30 15:07
+
+怎么一觉醒来羊gachi没动静了，没有经典的生活不如意环节吗
+
+*****
+
+####  NODY  
+##### 10886#       发表于 2024-1-30 15:09
+
+羊gachi在隔壁试图通过车角色转移话题，但似乎没什么效果，所有人还是在烤，不知道下午会不会炸第二次楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 10887#       发表于 2024-1-30 15:11
+
+都说z8要z不扩大z不扩大，这下z确实没有扩大，是z化的人越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5763,3 +5763,11 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 去年年底就开始了吧，生放无精打采广播复读live表现不行，年初开始变本加厉直接文体两开花宣传别的了，难道真是动画播了以后嫌弃热度不够<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 11101#       发表于 2024-1-31 02:18
+
+觉得邦邦没名气工作还不轻松，想切割又舍不得长期饭票，时间一长就成现在这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

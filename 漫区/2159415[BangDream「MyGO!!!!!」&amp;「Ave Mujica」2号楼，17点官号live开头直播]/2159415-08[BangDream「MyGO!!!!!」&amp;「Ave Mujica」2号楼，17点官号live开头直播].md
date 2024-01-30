@@ -2827,3 +2827,99 @@ nga走廊和专楼撕祥子撕立希撕soyo的时候从来不见版务出现，�
 
 2024-1-30 12:10 上传
 
+
+*****
+
+####  笋干爆炸碱  
+##### 10801#       发表于 2024-1-30 12:11
+
+听得我都要心动了，本来无关心划过的
+
+请问现在加入的话我也能变年轻吗？怕不是要年纪打个对折才能符合上面那位想象中的烤羊年龄层<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|樓友好幽默|
+
+查看全部评分
+
+*****
+
+####  阿斯顿氢气球  
+##### 10802#       发表于 2024-1-30 12:12
+
+<blockquote>Aendst 发表于 2024-1-30 12:09
+为了烤羊叛变那是不是也可以算一种羊gachi的特殊形态别叛变了还是自己烤想烤的吧 ...</blockquote>
+等一个彻底沦陷
+
+*****
+
+####  阿斯顿氢气球  
+##### 10803#       发表于 2024-1-30 12:13
+
+<blockquote>笋干爆炸碱 发表于 2024-1-30 12:11
+听得我都要心动了，本来无关心划过的
+
+请问现在加入的话我也能变年轻吗？怕不是要年纪打个对折才能符合上面 ...</blockquote>
+没事我也对折了
+
+*****
+
+####  Aendst  
+##### 10804#       发表于 2024-1-30 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2024还能看到落合女士的大名
+
+*****
+
+####  江口夕  
+##### 10805#       发表于 2024-1-30 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826659&amp;ptid=2159415" target="_blank">ReginaldMorgan 发表于 2024-1-30 12:10</a>
+其实成海不是bn主动要换的而是她自己跑了的吧
+
+imas企划主动踢人我只记得落合女士了，但是落合女士太重量 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要还是成海被事务所踢了，sc那边挽留的可能性其实挺大
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ReginaldMorgan  
+##### 10806#       发表于 2024-1-30 12:13
+
+【各种不同品种的音宝笑声-哔哩哔哩】 [https://b23.tv/A1DRnJU](https://b23.tv/A1DRnJU)
+
+昨天睡前朋友给我发了这个，感想是我音宝真可爱真自然真开放哇（
+
+*****
+
+####  御幸一也  
+##### 10807#       发表于 2024-1-30 12:19
+
+音寶一直可愛的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10808#       发表于 2024-1-30 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826707&amp;ptid=2159415" target="_blank">ReginaldMorgan 发表于 2024-1-30 12:13</a>
+【各种不同品种的音宝笑声-哔哩哔哩】 https://b23.tv/A1DRnJU
+
+昨天睡前朋友给我发了这个，感想是我音宝真 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初还是被爱美佐仓围着的青涩女孩
+
+*****
+
+####  PDQ4  
+##### 10809#       发表于 2024-1-30 12:19
+
+音宝的笑声真的充满jk活力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

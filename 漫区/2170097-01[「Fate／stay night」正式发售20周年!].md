@@ -692,3 +692,24 @@ UFO现在做着碗里的鬼灭看着锅里的○和魔夜，怎么可能有空�
 
 FSN格斗的话
 
+
+*****
+
+####  任天索尼子  
+##### 77#       发表于 2024-1-30 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826680&amp;ptid=2170097" target="_blank">シャル 发表于 2024-1-30 12:12</a>
+
+FSN格斗的话</blockquote>
+废狗街机直接移植就行了
+
+*****
+
+####  ナルバレック  
+##### 78#       发表于 2024-1-30 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826680&amp;ptid=2170097" target="_blank">シャル 发表于 2024-1-30 12:12</a>
+
+FSN格斗的话</blockquote>
+卡普空：我做过了，但是最近没空<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

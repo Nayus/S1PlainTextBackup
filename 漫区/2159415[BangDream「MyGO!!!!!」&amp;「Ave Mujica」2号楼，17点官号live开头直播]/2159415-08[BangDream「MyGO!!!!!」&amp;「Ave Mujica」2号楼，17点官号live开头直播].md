@@ -5198,3 +5198,27 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我�
 
 突然好奇想问一下，李子这个金发染了多久了？
 
+
+*****
+
+####  紫吹兰  
+##### 11045#         楼主| 发表于 2024-1-30 21:33
+
+ 本帖最后由 紫吹兰 于 2024-1-30 21:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832679&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-30 21:01</a>
+
+羊宫虽然平时站桩也断气起&amp;# ...</blockquote>
+邦最缺的其实是鼓手，mika教练都拉上场了，山根绮作为练过鼓而且作为鼓手上过live的声优还真有可能进邦，但是真进邦肯定让她打鼓好吧。
+
+何况真要从棉花糖找人，棉花糖的双主唱一个纯血武士道人一个半血武士道人，都比山根绮当主唱可能大。
+
+*****
+
+####  基神的强袭自由  
+##### 11046#       发表于 2024-1-30 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63832564&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-30 20:49</a>
+
+偷偷发贴还设权限是吧</blockquote>
+我突然想起来我以前当吧主的时候号被盗过，所以调了点东西至今忘记调回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

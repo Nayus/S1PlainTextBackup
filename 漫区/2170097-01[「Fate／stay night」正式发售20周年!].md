@@ -1124,3 +1124,15 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 
 — from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  SorroFrost  
+##### 121#       发表于 2024-1-30 21:40
+
+ 本帖最后由 SorroFrost 于 2024-1-30 21:41 编辑 
+
+意料之内，就是不知道ns版会不会出实体的，买个收藏来完事，也没报啥期待。
+
+可惜saber线的最终结局也不出个短片什么的。
+

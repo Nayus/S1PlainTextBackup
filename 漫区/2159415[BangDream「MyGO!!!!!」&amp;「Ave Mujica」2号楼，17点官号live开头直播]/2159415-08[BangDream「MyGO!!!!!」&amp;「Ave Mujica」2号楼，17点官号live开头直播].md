@@ -4829,3 +4829,72 @@ nga真的有ave粉嗎，我以為早就全來S1祥樓避難了<img src="https://
 
 2024-1-30 18:52 上传
 
+
+*****
+
+####  whzfjd  
+##### 11008#       发表于 2024-1-30 18:53
+
+GO团也要有自己的大祥老师吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 11009#       发表于 2024-1-30 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63831455&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-01-30 18:43:12</a>
+nga真的有ave粉嗎，我以為早就全來S1祥樓避難了</blockquote>我就是去年看尼姑庵骂睦祥骂到专楼，才注册的s1账号，合着动画专楼不删角色黑的言论，删烤羊的倒是很勤快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Anatoly  
+##### 11010#       发表于 2024-1-30 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63830000&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-30 16:42</a>
+川口也是青二啊线下遇到还是那副卢卡妆</blockquote>
+川口应该是个人真爱
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她贼喜欢转那种地雷系少女的图
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  笋干爆炸碱  
+##### 11011#       发表于 2024-1-30 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63831527&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-1-30 18:52</a>
+
+結月這個大好き我要狠狠地代 
+
+可愛可愛</blockquote>
+真好啊真好啊，给我可爱晕了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11012#       发表于 2024-1-30 18:58
+
+说缎带像猫耳那句<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11013#       发表于 2024-1-30 18:59
+
+看著她們我滿腦子都是睦祥約會，睦祥是真的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

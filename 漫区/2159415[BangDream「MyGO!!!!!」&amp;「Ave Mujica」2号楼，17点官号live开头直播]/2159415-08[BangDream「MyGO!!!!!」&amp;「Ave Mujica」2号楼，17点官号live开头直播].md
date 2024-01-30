@@ -854,3 +854,22 @@ wsd也不知道怎么想的，新团主唱竟然不找自己人？
 
 就算这不是二偶是个普通作品，在一部作品的相关访谈问感想，回答不是这部作品相关而是想要配更多其他的作品也已经是很离谱的行为了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  harukage  
+##### 10581#       发表于 2024-1-30 08:06
+
+我大受震撼，羊这么说已经很离谱了，更离谱的是武士道怎么让这种发言刊发出来的？什么都不审吗？连表面的团队感都不维持一下？
+
+*****
+
+####  フミさん  
+##### 10582#       发表于 2024-1-30 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823374&amp;ptid=2159415" target="_blank">实津二三 发表于 2024-1-30 03:44</a>
+不要骂小羊了，我是小羊肉体厨。</blockquote>
+肉体厨也来一起烤🐑吧，嘎嘎香<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">你羊气的我今晚要去嗯造十根家乡羊肉串了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

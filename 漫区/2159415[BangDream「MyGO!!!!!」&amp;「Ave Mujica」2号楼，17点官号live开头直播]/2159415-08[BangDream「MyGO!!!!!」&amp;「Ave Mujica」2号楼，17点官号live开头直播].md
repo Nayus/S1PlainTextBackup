@@ -5771,3 +5771,13 @@ https://twitter.com/sasakirico/status/1738871746793771139</blockquote>
 
 觉得邦邦没名气工作还不轻松，想切割又舍不得长期饭票，时间一长就成现在这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ReginaldMorgan  
+##### 11102#       发表于 2024-1-31 02:51
+
+虽然我不喜欢楠木有利，但是更多是对索尼资源嗯喂和她配音水准属于凑合够用但是确实顶不起来一些角色的不满，今天意外发现好像还是一个好用的对羊宫宝具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+用超级大牌姐打败大牌姐是吧
+

@@ -1366,3 +1366,202 @@ S1现在anti和🐏噶哪边占上风，这次总归能放孜然了吧？
 
 翻译：没米重做狗团了，凑合看吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  惠痴  
+##### 10642#       发表于 2024-1-30 10:24
+
+邦在烤，战在烤，z8在烤，S1在烤，尼哥在烤！<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+动物朋友，爽，太爽！<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/30/102343lwr7obvze86fc4ez.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (47.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 10:23 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/102343e3zbixinsi44ckxs.png" referrerpolicy="no-referrer">
+
+<strong>无标题2.png</strong> (44.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 10:23 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/102343b6v7okf7soip66if.jpg" referrerpolicy="no-referrer">
+
+<strong>d7d6e3550923dd54e29271509709b3de9d824868.jpg</strong> (88.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 10:23 上传
+
+*****
+
+####  NODY  
+##### 10643#       发表于 2024-1-30 10:25
+
+nga专楼被整个炸了，版务真有羊gachi啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂兵敬业先锋  
+##### 10644#       发表于 2024-1-30 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824937&amp;ptid=2159415" target="_blank">惠痴 发表于 2024-1-30 10:07</a>
+
+刚来刚来刚来
+
+S1现在anti和🐏噶哪边占上风，这次总归能放孜然了吧？</blockquote>
+现在是大联欢好吧，Z8战吧邦吧NG2S1五团联合烤羊，我们赛里斯邦人（？）也要有自己的五团联演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 10645#       发表于 2024-1-30 10:26
+
+实际上数字女团粉和2.5企划粉重合度就是很高，微博上见了一窝前熟人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+昨天我就想说了，后来工作忙忘了，饭圈起码直球在别家下面ky可以被默认为自己找喷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 10646#       发表于 2024-1-30 10:26
+
+nga专楼炸了，爽<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yaneis  
+##### 10647#       发表于 2024-1-30 10:26
+
+现在哪里羊gachi最多，b站吗？
+
+*****
+
+####  ddy2811  
+##### 10648#       发表于 2024-1-30 10:26
+
+“只道军民尽耳聋”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10649#       发表于 2024-1-30 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63824419&amp;ptid=2159415" target="_blank">NODY 发表于 2024-1-30 09:24</a>
+
+不是据传她在转天片场营业也挺正常的吗，那还是上垒的真百呢</blockquote>
+
+你問到轉天我就幫答一下，她在轉天訪談蠻少的，一次bd裡面，一次是fanbook裡面
+
+反正我感覺很好的人，朗讀劇還和加隈亜衣賣得挺好的
+
+而且朗讀劇兩天她們四個人髮飾都特地找的和角色像的，特別用心 
+
+<img src="https://img.saraba1st.com/forum/202401/30/102255f8aau8ly1xgyuuxg.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_62A57C486378-1.jpg</strong> (392.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 10:22 上传
+
+<img src="https://img.saraba1st.com/forum/202401/30/102254mu4ytyc4tuitm97u.png" referrerpolicy="no-referrer">
+
+<strong>90.png</strong> (509.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 10:22 上传
+
+*****
+
+####  harukage  
+##### 10650#       发表于 2024-1-30 10:27
+
+正在NGA专楼看原文呢，看完就炸了
+
+
+*****
+
+####  狮子咕  
+##### 10651#       发表于 2024-1-30 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">尼姑庵专楼爆破，锁妖塔炸了，不快点恢复怕不是全都心态爆炸外溢出去了
+
+*****
+
+####  Arrogate  
+##### 10652#       发表于 2024-1-30 10:27
+
+隔壁专楼被炸了，还以为高楼不会锁呢<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 10653#       发表于 2024-1-30 10:28
+
+啊这，发生什么事了.jpg
+
+早上一起来发现nga多了十多页，然后就隐藏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这下不能一辈子go了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 10654#       发表于 2024-1-30 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">综合看你羊的运营业务能力也不算差把，估计就是单纯的对邦不上心，在一群努力运营的角色里把灯给踢出去了
+
+*****
+
+####  QuattroVageena  
+##### 10655#       发表于 2024-1-30 10:29
+
+与此同时，昨天的羊：
+<img src="https://p.sda1.dev/15/fd9a3b22f7cbb0f939bf78702fbc2898/IMG_CMP_125651960.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10656#       发表于 2024-1-30 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63825257&amp;ptid=2159415" target="_blank">狮子咕 发表于 2024-1-30 10:28</a>
+
+综合看你羊的运营业务能力也不算差把，估计就是单纯的对邦不上心，在一群努力运营的角色里把灯给踢 ...</blockquote>
+本来就烤的双标，我本来对她耍大牌不团建无所谓，毕竟她出演的生放和广播确实无聊
+
+就是从新年发布会她看到她对我心危和你邦双标才忍不了的，这次更是装都不装了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 10657#       发表于 2024-1-30 10:31
+
+泥潭的烧烤架被拆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 10658#       发表于 2024-1-30 10:31
+
+这下泥漏又要结界大开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，烤羊指路紫吧，mujica推不想背你们烤羊的锅了
+
+*****
+
+####  QuattroVageena  
+##### 10659#       发表于 2024-1-30 10:31
+
+回旋镖啊嗯
+猪油嘎嘎香
+<img src="https://p.sda1.dev/15/0367f60c36a753009cee3dda8d18cdbe/Screenshot_20240130_103017.jpg" referrerpolicy="no-referrer">
+

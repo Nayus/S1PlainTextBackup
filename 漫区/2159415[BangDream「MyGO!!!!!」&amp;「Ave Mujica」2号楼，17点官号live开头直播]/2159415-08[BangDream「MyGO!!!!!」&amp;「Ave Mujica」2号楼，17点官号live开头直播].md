@@ -4373,3 +4373,78 @@ b站关评论区了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 精选评论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10965#       发表于 2024-1-30 17:33
+
+谁说的想看动物朋友卖灯祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/30/173349cvjso4b86jomtl4s.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-30cjZkT3cSni-sg.jpg</strong> (121.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-30 17:33 上传
+
+*****
+
+####  爱丁堡official  
+##### 10966#       发表于 2024-1-30 17:36
+
+nga臭棋啊，但是这应该不是nga羊gachi最后 一次捂嘴，期待好戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安洁莉娜  
+##### 10967#       发表于 2024-1-30 17:37
+
+你换我我也捂，本来动画党一堆人并不知道，这下不得年一烤了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但是我还是懒得烤她，我就觉得她很抽象，很逆天，但是又似乎知道自己的死线在哪儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  純田まな  
+##### 10968#       发表于 2024-1-30 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63830082&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-1-30 17:48</a>
+
+天上突然掉馅饼了
+
+我猛吃一口睦祥</blockquote>
+一起吃甜甜圈什么的也太甜了吧<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10969#       发表于 2024-1-30 17:38
+
+在无人注意的角落，ppp要寄了<img src="https://p.sda1.dev/15/f14d1ba473ce18911f28b7a4a13972d6/DACC6973CE734C6F542C1B5CB876CA90.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 10970#       发表于 2024-1-30 17:39
+
+反转了，羊是对cp分配不满才不上心的，wsd是不是你打的有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 10971#       发表于 2024-1-30 17:41
+
+去看了羊那个访谈，每个问题都是长篇大论的回答还激动得加了一堆感叹号，和在mygo访谈短短几行字形成鲜明对比，她真的太爱我心危了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寺川愛美  
+##### 10972#       发表于 2024-1-30 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63830769&amp;ptid=2159415" target="_blank">Toki_Ai 发表于 2024-1-30 17:38</a>
+
+在无人注意的角落，ppp要寄了</blockquote>
+壞起來了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

@@ -783,3 +783,14 @@ OP都是主仆组合，追加大概率两个人吧。
 要是追加公兔子，那皮卡里奥真是生错了时代</blockquote>
 反正也有满薰这种到了希望之力都不给正编的生错时代的前辈在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zyw0  
+##### 575#       发表于 2024-1-31 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843541&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-1-31 18:51</a>
+
+反正也有满薰这种到了希望之力都不给正编的生错时代的前辈在</blockquote>
+满薰我记得说是成田良美接手剧本后才加进去的，所以商业上根本没有q娃的位置给她俩留（不过还是惨）
+

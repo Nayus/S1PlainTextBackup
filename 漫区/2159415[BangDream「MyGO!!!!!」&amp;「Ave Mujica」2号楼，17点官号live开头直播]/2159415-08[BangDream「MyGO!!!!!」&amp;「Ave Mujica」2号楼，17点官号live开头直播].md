@@ -7625,3 +7625,23 @@ damedesu
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回旋在自己心里就行了，不然下次再出问题被人截图很丢人的
 
+
+*****
+
+####  septer  
+##### 11279#       发表于 2024-1-31 19:23
+
+mygo的确是好作品
+各种戏和效果很多，看爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 11280#       发表于 2024-1-31 19:27
+
+ 本帖最后由 爱丁堡official 于 2024-1-31 19:29 编辑 
+
+堪比第十集诗超绊的回旋，绫奈，你把人变成soyo<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

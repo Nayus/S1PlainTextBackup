@@ -6192,3 +6192,11 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 大概是鬼圣吧，但这个是大牌以后反而对糊逼企划更用心的正面案例<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  soranoguiji  
+##### 11147#       发表于 2024-1-31 12:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 像爱马仕那边的p吉，马娘的高野麻里佳，感觉偶像企划被车的多的都有一些共性，就是拿了很多资源但不喜欢谈自己企划，伊波杏树也是后面一直发水相关才风评好起来的
+

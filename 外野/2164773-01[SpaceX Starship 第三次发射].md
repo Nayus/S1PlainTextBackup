@@ -384,3 +384,13 @@ https://www.doc88. ...</blockquote>
 1只着重于月表测绘，并没有精确测量月表着陆区地表压强的功能吧，LRO只有LOLA和宽窄角相机是针对对地观测 ...</blockquote>
 阿尔忒弥斯计划包含一些商业登月合同，会有一些商业登月载具尝试登月探测，包括南极。目前发射的都已经寄了。能不能成都看天命。
 
+
+*****
+
+####  亚尔古水手  
+##### 113#       发表于 2024-1-31 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63826263&amp;ptid=2164773" target="_blank">commcody 发表于 2024-1-30 11:39</a>
+1：月壤条件根据探测结果在地球是可以模拟复现的。阿波罗时代担心的问题之一就是着陆后是否会下陷，然而 ...</blockquote>
+阿波罗的重心还是没法比的，这个话题就到这里了，祝hls早日搓出来，拖太久了
+

@@ -6039,3 +6039,20 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 明天邦tv能不能给mujica推一点比较友好的讨论环境<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋干爆炸碱  
+##### 11129#       发表于 2024-1-31 10:58
+
+昨天的讨论内容只记得看结月宝和non看爽了这件事了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+哦还有年龄打对折，这个也忘不了，年前太吉利了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Zendless  
+##### 11130#       发表于 2024-1-31 11:00
+
+没觉得一个声优说这话有什么值得烤的，直到看到偶像厨的反应才懂，这是寄生在她身上的美梦被戳破了的应激反应
+

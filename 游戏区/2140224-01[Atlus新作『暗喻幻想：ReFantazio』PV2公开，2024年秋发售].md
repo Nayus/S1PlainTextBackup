@@ -2618,3 +2618,16 @@ http://www.famitsu.com/news/201612/201233 ...</blockquote>
 <img src="https://p.sda1.dev/15/2b8dceac7f2771ba528939b3f8b21e4d/a2vo5-hot9s-005.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/cb3555b2ca1dc0f8e20ebea4fb3b6dd7/a2vo5-hot9s-006.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 156#         楼主| 发表于 2024-1-31 13:07
+
+？为Netflix推出衍生作？
+[https://twitter.com/MbKKssTBhz5/status/1752268436565106845](https://twitter.com/MbKKssTBhz5/status/1752268436565106845)
+
+There are plans to expand Metaphor: ReFantazio as a new IP in different ways. 
+
+A Netflix game is part of this plan.
+

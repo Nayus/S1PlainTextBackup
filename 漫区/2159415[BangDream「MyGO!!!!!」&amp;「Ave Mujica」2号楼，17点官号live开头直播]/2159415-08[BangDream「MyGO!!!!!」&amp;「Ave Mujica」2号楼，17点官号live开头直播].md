@@ -6504,3 +6504,41 @@ MyGO动画的访谈哪次不是直接快速翻译然后讨论的？这楼里就�
 
 我个人来说只要台上唱得够好其他的都不算是事，但是台上不行了台下就起码做足表面功夫，偶像嘛也不一定要奢求本身过硬水平。但台上不行台下还这副模样这次不点燃下次也能点燃。粉丝如果对这种最基本的业务水平都欠缺的还无脑爱戴或者还能洗，那不就是正宗饭圈？讲真饭圈起码表面上也很顾粉丝颜面呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 11175#       发表于 2024-1-31 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839481&amp;ptid=2159415" target="_blank">Zendless 发表于 2024-1-31 12:57</a>
+
+辛辛苦苦台上台下，却因为访谈几句话被炎，也望周知</blockquote>
+那也得看看台上是个啥水平啊，比当年音宝强点的水平还要我嘴下留情的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liu461  
+##### 11176#       发表于 2024-1-31 13:29
+
+真的比音宝强嘛<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+要不让大牌动物朋友复刻下音宝车祸名场面的流程看看谁崩的更彻底好吧<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寺川愛美  
+##### 11177#       发表于 2024-1-31 13:30
+
+只在音樂課聽過捕鳥人那首歌，你們懂好多啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11178#       发表于 2024-1-31 13:32
+
+魔笛要说剧情的话确实很难对应，但是如果真扯到上一辈人的恩怨的话也许
+
+比如公主被大祭司关在日之世界不准她见自己的亲妈夜后，随着剧情发展后面夜后认为公主背叛了她，唱着復讐の炎は地獄のように我が心に燃え来逼她杀大祭司，否则就与她断绝关系。但是实际公主亲爹认同的是大祭司的理念，所以公主并不认为这是种背叛之类的
+
+复仇的火焰在我心中熊熊燃烧一下就想到13集的“现在正是复权之时了”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

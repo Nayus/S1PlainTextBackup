@@ -318,3 +318,11 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 藍傻可以在任何池都能出到，但黑呆只能等抽故事池或PU池...
 
+
+*****
+
+####  qixinno2  
+##### 11266#       发表于 2024-1-31 07:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">棉被还有领导力可以强化 
+

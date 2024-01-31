@@ -7764,3 +7764,11 @@ mygo的确是好作品
 
 循环呗。反正今年还是会继续发新单开live接新动画、9月份还是会有yamada生日，11月还是会有tomori生日，明年还是会有采访问新年愿望<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 11292#       发表于 2024-1-31 22:16
+
+高尾不会用加湿器<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">  又是符合祥子的一集
+

@@ -5945,3 +5945,11 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 不是b站被冲到精选评论了吗，这待遇少见的了
 
+
+*****
+
+####  NODY  
+##### 11118#       发表于 2024-1-31 09:58
+
+微博对二偶向来是很宽容的，当初水团那谁把企划当跳板发言比羊还离谱，微博照样表示人家只是有自己的追求有什么错是宅宅玻璃心<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

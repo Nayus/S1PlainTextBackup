@@ -7263,3 +7263,32 @@ go团有福了，这么着急开割
 —— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next- ...</blockquote>
 一专也有那场的抽选劵，说不定还有救
 
+
+*****
+
+####  基神的强袭自由  
+##### 11245#       发表于 2024-1-31 17:13
+
+ 本帖最后由 基神的强袭自由 于 2024-1-31 17:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63840299&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-31 14:04</a>
+
+随便发散下，一定要说的话如果设定上夜后确实存在的话，人偶们自己创造新世界这件事夜后大概不会很开心[f ...</blockquote>
+这个我熟，出门左转《和平的代价》
+
+<img src="https://img.saraba1st.com/forum/202401/31/171340oj0fjkhn0ednjkho.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 17:13 上传
+
+*****
+
+####  novalli  
+##### 11246#       发表于 2024-1-31 17:15
+
+烤羊已经外溢到B站的一些和MyGO或者邦邦有关的up主了，我看到有两个人声明不再讨论和羊宫有关的事情。不过这也算是NGA被炸和官方运营捂嘴可以预见的发展吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

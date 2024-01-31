@@ -7772,3 +7772,20 @@ mygo的确是好作品
 
 高尾不会用加湿器<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">  又是符合祥子的一集
 
+
+*****
+
+####  Aendst  
+##### 11293#       发表于 2024-1-31 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63845436&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-31 22:16</a>
+
+高尾不会用加湿器  又是符合祥子的一集
+
+另外还真的是am的立德阿  同时还是吐槽役
+
+ ...</blockquote>
+今晚的あぐのん提到的吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+完全没关注感觉错过了一个亿<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

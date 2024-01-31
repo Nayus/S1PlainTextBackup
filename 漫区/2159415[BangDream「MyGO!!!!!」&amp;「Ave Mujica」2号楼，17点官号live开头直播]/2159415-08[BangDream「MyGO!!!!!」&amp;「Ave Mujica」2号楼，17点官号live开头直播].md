@@ -7043,3 +7043,45 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 财报不是说大头是live吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，手游流水已经大不如从前了吧
 
+
+*****
+
+####  NODY  
+##### 11221#       发表于 2024-1-31 16:22
+
+工艺蛋倒闭被母公司回收，武士道只能紧急把邦邦收回自己手上导致存货和交接都有问题，手游里怕不是鸡的内容还没做好呢，更别说提前实装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11222#       发表于 2024-1-31 16:24
+
+还有卡牌业务呢
+
+等母鸡卡的ws预组和补充包等的好辛苦<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11223#       发表于 2024-1-31 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63841795&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-31 16:20</a>
+财报不是说大头是live吗，手游流水已经大不如从前了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那也和mygo没啥关系不是 先定个小目标5000人场再说吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aendst  
+##### 11224#       发表于 2024-1-31 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经要连开两天万人场了
+
+*****
+
+####  Nomind96  
+##### 11225#       发表于 2024-1-31 16:33
+
+万人场能去6-7k就烧高香了
+

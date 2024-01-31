@@ -5970,3 +5970,27 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 微博都是过气app了，n手资讯，土的批爆
 
+
+*****
+
+####  杂兵敬业先锋  
+##### 11121#       发表于 2024-1-31 10:39
+
+笑yue我了，就日本ACGN这一块微博不是消化链的菊花部位？钢门在评价别人厕所之前先把里神乐、贞德蘸酱这种搓N手屎的屎壳郎取关了再说吧<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11122#       发表于 2024-1-31 10:40
+
+早说了烤羊要背锅，这不就来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 11123#       发表于 2024-1-31 10:41
+
+一个动画没买，游戏没到版本，CD销量也是算进日本的地区炎上说破天就这样了
+
+人家日本人都不关心这个，早点认清多好，说不定以后全民低温烤羊变成一个梗也是追番乐趣
+

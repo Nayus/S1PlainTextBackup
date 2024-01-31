@@ -1632,3 +1632,30 @@ j2k 更新漫画人插件后，漫画人提示用户id已清楚，有人知道�
 
 —— 来自 OnePlus HD1900, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 138#       发表于 2024-1-31 08:24
+
+折腾了一会发现
+
+这楼里90%以上的插件问题都可以通过在安卓系统里搜索对应的插件名字卸载后在mihon重新安装解决，原理不明，别用mihon自带的卸载
+
+包括但不限于安不进插件，安进了插件不显示，更新无效，权限信任无效，id无效，拓展不显示，等等等等稀奇古怪的提示,还是不行就是插件本身有问题，等更新
+
+[@LLLLLuB](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=514709) [@孟沁瑶](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=512817) [@rainyblue](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=187611)
+
+*****
+
+####  白色的120  
+##### 139#       发表于 2024-1-31 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63835624&amp;ptid=2167901" target="_blank">海风的巴萨诺瓦 发表于 2024-1-31 08:24</a>
+折腾了一会发现
+
+这楼里90%以上的插件问题都可以通过在安卓系统里搜索对应的插件名字卸载后在mihon重新安装 ...</blockquote>
+虽然可能名字一样，但原来的插件跟现在的插件好像签名不同，我是建议卸载全部插件，重新安装
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

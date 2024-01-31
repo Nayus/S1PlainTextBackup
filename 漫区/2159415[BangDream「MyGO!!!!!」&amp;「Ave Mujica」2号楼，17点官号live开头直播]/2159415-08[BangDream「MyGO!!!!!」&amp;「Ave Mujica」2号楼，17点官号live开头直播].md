@@ -7813,3 +7813,18 @@ mygo的确是好作品
 
 2024-1-31 23:41 上传
 
+
+*****
+
+####  御幸一也  
+##### 11296#       发表于 2024-1-31 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63845436&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-31 22:16</a>
+
+高尾不会用加湿器  又是符合祥子的一集
+
+另外还真的是am的立德阿  同时还是吐槽役
+
+ ...</blockquote>
+本來就是ave的立德，其他四個人都認，聚會發起機貼貼永動機她太穩了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

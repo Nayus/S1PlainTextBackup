@@ -7712,3 +7712,25 @@ mygo的确是好作品
 唉，还是得青木凛，立石凛的hina有且仅有一个
 <img src="https://p.sda1.dev/15/9980043344b1f9d4d5f6bf34d82ab955/CMP_20240131210645224.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  氷川日菜  
+##### 11289#       发表于 2024-1-31 21:21
+
+该说不说，这次广播羊姐展现了高超的营业水准，“凛酱的笑脸和爱音酱一模一样，和凛酱对上目光的一瞬，内心所有的紧张与不安全都消失了”
+
+要是能把这种营业水准稍微用在工作时间外的话<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+已经在期待母鸡卡有广播羊当嘉宾的灯祥回了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11290#       发表于 2024-1-31 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63844496&amp;ptid=2159415" target="_blank">66367749 发表于 2024-1-31 20:50</a>
+
+其实没nga版务的核弹，本身也是发泄一下就过了的吧，这种事越堵越来劲 ...</blockquote>
+“防民之口甚于防川”我觉得很多人是读过的，可总有人手上拿着点权力就开始一点不好听的都不想听了然后直接公器私用，后果就是这样的<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+

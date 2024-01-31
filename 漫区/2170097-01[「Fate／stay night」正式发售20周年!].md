@@ -1233,3 +1233,26 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 —— 来自 S1Fun</blockquote>
 楼上也说了，假如真有FSN完全重制版的话（现在已经确定没有了），那么换不换声优主要取决于跳票多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得当时在活动现场他们应该是认为自己到时候是可以拿到这张饭票的
 
+
+*****
+
+####  茴香蚪的马甲  
+##### 132#       发表于 2024-1-31 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823109&amp;ptid=2170097" target="_blank">漆黑之花 发表于 2024-1-30 01:15</a>
+
+主持人就是声优，直播里宣布自己被换了也太地狱笑话了
+
+—— 来自 S1Fun</blockquote>
+楼上也说了，假如真有FSN完全重制版的话（现在已经确定没有了），那么换不换声优主要取决于跳票多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得当时在活动现场他们应该是认为自己到时候是可以拿到这张饭票的
+
+*****
+
+####  茴香蚪的马甲  
+##### 133#       发表于 2024-1-31 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63834796&amp;ptid=2170097" target="_blank">fshzx 发表于 2024-1-31 01:01</a>
+
+虽然但是原版游戏是pc版，就算不登陆steam也能玩</blockquote>
+带语音的FSN新星还真没有在售的PC版，以前有段时间日本亚马逊上面卖过三线分割的FSN新星PC版，但早就下架了。无语音的 18 禁 FSN和FHA只发售实体版，也没有在FANZA之类的平台上架数字版。所以即将在Steam上架的FSN复刻版应该将是唯一在售的FSN PC数字版了，同时也将是在售的唯一FSN官方PC语音版。
+

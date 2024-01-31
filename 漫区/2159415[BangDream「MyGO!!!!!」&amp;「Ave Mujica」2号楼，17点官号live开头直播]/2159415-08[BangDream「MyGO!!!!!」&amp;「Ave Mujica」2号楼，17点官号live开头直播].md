@@ -7848,3 +7848,18 @@ mygo的确是好作品
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KirigawaMaki  
+##### 11299#       发表于 2024-2-1 04:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63845436&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-1-31 22:16</a>
+
+高尾不会用加湿器  又是符合祥子的一集
+
+另外还真的是am的立德阿  同时还是吐槽役
+
+ ...</blockquote>
+nonnon竟然是队里的吐槽役吗，原以为会是和米泽李子一起的ボケ三人组<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

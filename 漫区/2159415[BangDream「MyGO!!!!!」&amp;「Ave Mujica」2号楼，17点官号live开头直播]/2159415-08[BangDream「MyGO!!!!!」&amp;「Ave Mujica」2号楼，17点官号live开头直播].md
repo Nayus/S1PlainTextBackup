@@ -6937,3 +6937,29 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 感觉mujica应该是温暖人心的结局
 
+
+*****
+
+####  NODY  
+##### 11211#       发表于 2024-1-31 15:48
+
+原来工艺蛋是寄了又被收购，难怪紧急分割交接混乱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/31/154821szpljsvamslbsf87.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-c4hxK19T1kSe8-ar.jpg</strong> (45.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 15:48 上传
+
+*****
+
+####  江口夕  
+##### 11212#       发表于 2024-1-31 15:51
+
+老实说利益分配感觉都是ip方大头，不管是棒棒还是pjsk，至少都是大火过的产品，能混成这样也是绝了。
+这换国内少说也是吃香喝辣
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

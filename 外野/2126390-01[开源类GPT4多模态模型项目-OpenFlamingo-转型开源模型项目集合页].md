@@ -31181,3 +31181,183 @@ Mobile-Agent在Mobile-Eval上取得的整体评估结果，其中RE的两个值�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1235#       发表于 2024-1-31 23:46
+
+MouSi
+
+多视觉专家(Poly-Visual-Expert)视觉语言模型
+
+github项目主页:https://github.com/FudanNLPLAB/MouSi
+
+最近的大型视觉语言模型(VLMs)经常会遇到诸如单个视觉组件的能力不足和过长的视觉Token之类的挑战，这些问题可能会限制模型在准确解释复杂的视觉信息和过长的上下文信息方面的效果，解决这些挑战对于提高VLM的性能和适用性至关重要
+
+本文提出了聚合专家技术(ensemble experts technique)，通过与单独视觉编码器协作处理，包括擅长图像文本匹配、OCR、图像分割等能力的专家，该技术引入了一个融合网络，统一处理来自不同视觉专家的输出，并弥合了图像编码器和预训练LLMs之间的差距
+
+此外，还探索了不同的位置编码方案，以减少由于长图像特征序列问题引起的位置编码的浪费，有效解决了位置溢出(position overflow)和长度限制(length limitations)的问题，例如，在本文的具体实现中，这项技术显著减少了像SAM这样的模型中的位置占用，从4096减少到更高效和可管理的64甚至1
+
+实验结果表明，具有多个专家的VLMs在性能上表现出一致的优势，相比孤立的视觉编码器，集成更多的专家可以更显著提升性能
+
+<img src="https://img.saraba1st.com/forum/202401/31/234444o1iu5d5dur4du1zy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233609__01.jpg</strong> (280.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:44 上传
+
+左侧:对比InstructBLIP、Qwen-VL-Chat、LLaVA-1.5-7B，poly-visual-expert MouSi在九个基准测试中达到了SoTA
+
+右侧:在九个基准数据集上，不同数量的专家的最佳模型表现，总体而言，三个专家比两个专家更好，而两个专家又比一个专家更好
+
+<img src="https://img.saraba1st.com/forum/202401/31/234451a3o2e232l2l9e3hg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233630__01.jpg</strong> (279.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:44 上传
+
+MouSi模型结构概览图，多视觉专家MouSi模型支持集成具有不同类型和能力的视觉专家
+
+<img src="https://img.saraba1st.com/forum/202401/31/234458f58vnzuuj1keum5t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233651__01.jpg</strong> (195.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:44 上传
+
+六个预训练视觉专家的对比
+
+Res.表示图像分辨率，d_hid表示隐藏维度，Param.表示参数数量
+
+<img src="https://img.saraba1st.com/forum/202401/31/234504vw5b55dutw5ty4tb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233701__01.jpg</strong> (207.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+两种多专家融合网络的示例，展示了MLP方法如何使用“2-patches-1-token”压缩视觉信息，以及Q-Former方法如何使用3个可训练的查询压缩信息，具有渐变颜色的模块表示多个专家之间参数共享以传递知识
+
+<img src="https://img.saraba1st.com/forum/202401/31/234512xts3a03iffc7asfa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233715__01.jpg</strong> (219.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+四种位置编码方案的示意图，⊕运算符表示行位置编码和列位置编码相加
+
+<img src="https://img.saraba1st.com/forum/202401/31/234518jmfoz6mhlfi0eaee.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233732__01.jpg</strong> (221.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+九个基准测试上的六个视觉专家的对比
+
+Param表示参数数量
+
+<img src="https://img.saraba1st.com/forum/202401/31/234523f9knno9u5nzkru2n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233749__01.jpg</strong> (448.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+不同的双专家方法的性能对比，∆标记的行与单专家方法进行对比，蓝色单元格表示双专家模型更好，红色单元格表示单专家模型更好
+
+<img src="https://img.saraba1st.com/forum/202401/31/234529eqqw2quzfqqqfq56.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233758__01.jpg</strong> (245.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+不同的三专家方法的性能对比，∆标记的行与双专家方法进行对比，蓝色单元格表示三专家模型更好，红色单元格表示双专家模型更好
+
+<img src="https://img.saraba1st.com/forum/202401/31/234534u3hq0ef7c9o8ag81.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233806__01.jpg</strong> (160.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+不同多专家融合方法的性能对比
+
+<img src="https://img.saraba1st.com/forum/202401/31/234538mh0iu4im4d31em6g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233812__01.jpg</strong> (168.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+不同专家顺序的性能对比，交换了“DINOv2+CLIP”和“ConvNext+CLIP”中的专家顺序
+
+<img src="https://img.saraba1st.com/forum/202401/31/234543k00cddiduqchnfds.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233817__01.jpg</strong> (178.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+九个基准测试上的四种位置编码方案的对比
+
+<img src="https://img.saraba1st.com/forum/202401/31/234548nqy9ykfy309x5iu0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233824__01.jpg</strong> (59.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+“LayoutLMv3+DINOv2+CLIP”三专家视觉编码器的平均注意力概率(%)分配
+
+<img src="https://img.saraba1st.com/forum/202401/31/234553g1kwjycw17w1m12m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233829__01.jpg</strong> (335.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:45 上传
+
+对三专家模型(LayoutLMv3+DINOv2+CLIP)进行的扰动实验，具体扰动是屏蔽对应视觉专家的所有输出
+
+<img src="https://img.saraba1st.com/forum/202401/31/234606e8gkvg7gkmom2oul.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233837__01.jpg</strong> (283.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:46 上传
+
+数据增强对九个基准测试的影响
+
+Param.表示参数数量
+
+<img src="https://img.saraba1st.com/forum/202401/31/234613kllbnozlboehjotc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-233930__01.jpg</strong> (395.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 23:46 上传
+
+由Mousi生成的定性示例
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

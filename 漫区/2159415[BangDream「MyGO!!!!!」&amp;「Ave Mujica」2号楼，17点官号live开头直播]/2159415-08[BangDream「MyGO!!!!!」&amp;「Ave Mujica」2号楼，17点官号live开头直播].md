@@ -7703,3 +7703,12 @@ mygo的确是好作品
 
 其实没nga版务的核弹，本身也是发泄一下就过了的吧，这种事越堵越来劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  氷川日菜  
+##### 11288#       发表于 2024-1-31 21:07
+
+唉，还是得青木凛，立石凛的hina有且仅有一个
+<img src="https://p.sda1.dev/15/9980043344b1f9d4d5f6bf34d82ab955/CMP_20240131210645224.jpg" referrerpolicy="no-referrer">
+

@@ -1094,3 +1094,13 @@ bgo运营怎么突然诈尸了
 这游戏没法玩了...</blockquote>
 明天就是大姐姐了，忍一下吧
 
+
+*****
+
+####  此方之泉  
+##### 46037#       发表于 2024-1-31 11:08
+
+<img src="https://p.sda1.dev/15/d2ec1e6af2fff2ee1c1d098787754475/IMG_CMP_86563198.jpeg" referrerpolicy="no-referrer">胖尼禄，你好强大
+
+—— 来自 realme RMX2121, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

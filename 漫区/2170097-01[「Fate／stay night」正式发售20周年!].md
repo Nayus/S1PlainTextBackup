@@ -1186,3 +1186,11 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社长让小山用现代画风重新画一次cg和立绘也可以吧，老画风复刻还能拿出来专门说....
 
+
+*****
+
+####  550616  
+##### 128#       发表于 2024-1-31 11:04
+
+steam版出了必补票，虽然我PS2版本就买过了
+

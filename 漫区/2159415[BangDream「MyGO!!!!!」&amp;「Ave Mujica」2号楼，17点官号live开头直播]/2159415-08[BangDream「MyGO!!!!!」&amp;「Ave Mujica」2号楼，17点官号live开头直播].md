@@ -6056,3 +6056,18 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 没觉得一个声优说这话有什么值得烤的，直到看到偶像厨的反应才懂，这是寄生在她身上的美梦被戳破了的应激反应
 
+
+*****
+
+####  Aendst  
+##### 11131#       发表于 2024-1-31 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">最近大吃特吃了，期待一下明天会不会有更多小细节和后台状况披露
+
+*****
+
+####  rslika  
+##### 11132#       发表于 2024-1-31 11:09
+
+什么已经滑坡到换人了？mygo是什么年轻人第一款二次元偶像企划吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

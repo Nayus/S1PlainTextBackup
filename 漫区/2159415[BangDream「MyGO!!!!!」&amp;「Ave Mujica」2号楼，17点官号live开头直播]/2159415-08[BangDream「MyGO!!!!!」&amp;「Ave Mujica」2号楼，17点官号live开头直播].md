@@ -5886,3 +5886,19 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 她有挑肥拣瘦的资本，更多人连份工作都难找，来个人像在节目里调侃淳皇一样说句“接到十个电话通知有十五到二十次中选”之类，那个场面也没那么尴尬了
 
+
+*****
+
+####  6030sylar  
+##### 11112#       发表于 2024-1-31 09:24
+
+<img src="https://img.saraba1st.com/forum/202401/31/092347zkblwjplmpv22lvw.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (55.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 09:23 上传
+
+一早就看见泥潭被挂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

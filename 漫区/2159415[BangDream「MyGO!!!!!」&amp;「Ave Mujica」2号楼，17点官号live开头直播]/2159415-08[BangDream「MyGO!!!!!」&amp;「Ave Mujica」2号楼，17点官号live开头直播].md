@@ -7143,3 +7143,61 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 配合羊这个摆烂的态度，怕不是武士道也觉得今年趁着ylgo还没跑光赶紧把钱赚了吃一波断头饭，明年开始就可以对狗放养了，除非羊这套真的歪打正着戳中日本宅宅的心导致狗热度不降反增
 
+
+*****
+
+####  Nomind96  
+##### 11232#       发表于 2024-1-31 16:43
+
+<img src="https://img.saraba1st.com/forum/202401/31/164339thjo204xkwll22z2.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1023.png</strong> (150.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 16:43 上传
+
+就是这么自信
+
+*****
+
+####  Nomind96  
+##### 11233#       发表于 2024-1-31 16:44
+
+日本阿宅都吃弱男营业这套吗？应该不会吧
+
+*****
+
+####  Aendst  
+##### 11234#       发表于 2024-1-31 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63842053&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-31 16:40</a>
+
+感觉要成go团黑历史了，上届太子音宝有单团万人么
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邦10th蝶有过万人场，完全单独的还真没有
+
+为什么这么自信，可能是武士道有特别的数据收集方法有强力数据打底吧
+
+*****
+
+####  NODY  
+##### 11235#       发表于 2024-1-31 16:49
+
+武士道莫不是打着给个大场满足羊女士的热度需求来让她回心转意的心思，毕竟给个武道馆已经可以让她现场落泪了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11236#       发表于 2024-1-31 16:50
+
+七月底还是大热天，羊宮记得到时候多补点水<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 11237#       发表于 2024-1-31 16:52
+
+别给羊姐整的当场吐一地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

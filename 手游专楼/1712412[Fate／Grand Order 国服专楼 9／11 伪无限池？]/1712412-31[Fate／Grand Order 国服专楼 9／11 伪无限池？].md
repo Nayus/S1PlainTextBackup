@@ -1112,3 +1112,15 @@ bgo运营怎么突然诈尸了
 
 戴先生的身世挺有1.5.4塞勒姆的感觉的，希望这部分能再展开说说
 
+
+*****
+
+####  Blackson  
+##### 46039#       发表于 2024-1-31 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63837909&amp;ptid=1712412" target="_blank">此方之泉 发表于 2024-1-31 11:08</a>
+胖尼禄，你好强大
+
+—— 来自 realme RMX2121, Android 12上的 S1Next-鹅版 v2.4.4.1</blockquote>
+后面有艾蕾Buff后部分低星能开两次宝具（带宝石翁开第一次，后面红绿蓝连携打NP开宝具，有能力一人干掉一管）
+

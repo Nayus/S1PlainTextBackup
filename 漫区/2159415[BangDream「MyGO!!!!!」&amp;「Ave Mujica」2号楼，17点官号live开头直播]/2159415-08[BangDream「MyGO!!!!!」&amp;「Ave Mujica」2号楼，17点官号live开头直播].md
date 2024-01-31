@@ -6210,3 +6210,50 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Zendless  
+##### 11149#       发表于 2024-1-31 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63838082&amp;ptid=2159415" target="_blank">HATENA 发表于 2024-1-31 11:20</a>
+
+一个组合上演唱会，场刊采访所有成员都在谈组合，结果那个唱得本身就不怎么样的主唱提都不提还说2 ...</blockquote>
+采访的是声优又不是采访角色，被问24年的打算，回答说想有更多工作有问题？
+
+*****
+
+####  Arteryesrerday  
+##### 11150#       发表于 2024-1-31 12:24
+
+在这个各行业不景气的年头怎么看都有点不识抬举了吧，但是也确实有资本，没办法了这种
+
+*****
+
+####  rslika  
+##### 11151#       发表于 2024-1-31 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mygo主题的访谈不去看（是看不懂吗）就盯着国内的二手屎咬文嚼字，现在冲锋的里八成都是这种人
+
+*****
+
+####  星空冻结  
+##### 11152#       发表于 2024-1-31 12:29
+
+二偶和粉丝就是台上台下两边一起演戏啊，你台上的不演戏了总不能还让台下的接着演吧，有点欺负人了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フミさん  
+##### 11153#       发表于 2024-1-31 12:32
+
+<img src="https://img.saraba1st.com/forum/202401/31/123216mvvehzh0yy0s00yy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (156.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 12:32 上传
+
+关注可爱的蜜柑🍊喵，关注可爱的蜜柑🍊谢谢喵
+

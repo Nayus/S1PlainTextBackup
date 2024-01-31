@@ -7201,3 +7201,23 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 别给羊姐整的当场吐一地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 11238#       发表于 2024-1-31 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63842024&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-31 16:37</a>
+
+单团，七月连着两天万人场，闪耀着自信的光芒ppp那场是四月的</blockquote>
+就算和ppp开那也是寄啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 11239#       发表于 2024-1-31 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1184,3 +1184,11 @@ bgo运营怎么突然诈尸了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明天抽大姐姐，希望能抽出3宝阿妹开被动….大姐姐完全没兴趣
 
+
+*****
+
+####  苍蓝之枪  
+##### 46044#       发表于 2024-1-31 23:33
+
+给大姐姐的宽限是400石
+

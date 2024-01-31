@@ -3232,3 +3232,16 @@ OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smile
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  aptx8285144  
+##### 3624#       发表于 2024-1-31 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63836926&amp;ptid=2092345" target="_blank">oi99o 发表于 2024-1-31 10:13</a>
+
+昨天听了青山姐的广播切片，不停地说希望夏尔一定要幸福
+
+论坛助手,iPhone ...</blockquote>
+听起来就像诀别之语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

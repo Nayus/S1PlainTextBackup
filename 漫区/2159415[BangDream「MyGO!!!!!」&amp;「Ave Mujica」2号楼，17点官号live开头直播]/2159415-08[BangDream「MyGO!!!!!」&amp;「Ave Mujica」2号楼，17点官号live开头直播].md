@@ -6542,3 +6542,44 @@ MyGO动画的访谈哪次不是直接快速翻译然后讨论的？这楼里就�
 
 复仇的火焰在我心中熊熊燃烧一下就想到13集的“现在正是复权之时了”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 11179#       发表于 2024-1-31 13:38
+
+是 是我的初睦<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+結月誇那個撥片盒好厲害，然後李子就說，結月會用的撥片也有放裡面，要用的時候就找她拿<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+雙吉他就該有這種互動<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/31/133740enjwsjn1cenkc519.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (37.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 13:37 上传
+
+*****
+
+####  Zendless  
+##### 11180#       发表于 2024-1-31 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839813&amp;ptid=2159415" target="_blank">江戸前ルナ 发表于 2024-1-31 13:22</a>
+
+本来就是吃个瓜的，但看到这句“辛辛苦苦台上台下“真是喷了，是指台上的现场水平倒退，台下可以发推说其 ...</blockquote>
+炎的是粉圈，护的也是粉圈，和你不同看法的都是粉圈，你对
+
+*****
+
+####  御幸一也  
+##### 11181#       发表于 2024-1-31 13:41
+
+真的有點感覺李子和結月關係好了好多<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+0th的時候，兩個人live裡的互動一股公事公辦的感覺，互相都使勁逮著高尾貼
+
+這次1st就感覺這兩個人之間也有了火花<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

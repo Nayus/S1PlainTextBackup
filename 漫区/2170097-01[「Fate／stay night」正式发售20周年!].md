@@ -1194,3 +1194,11 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 
 steam版出了必补票，虽然我PS2版本就买过了
 
+
+*****
+
+####  浅井惠  
+##### 129#       发表于 2024-1-31 13:34
+
+补个票完事，希望REMASTERED多少能加点料吧
+

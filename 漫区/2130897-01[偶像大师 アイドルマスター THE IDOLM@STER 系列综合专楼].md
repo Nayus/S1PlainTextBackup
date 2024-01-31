@@ -211,3 +211,14 @@ image.png
 之前说实话关注 ...</blockquote>
 1stlive前开最终审查投票，并且在1st上马上公布投票结果。单人加算票数达到5000可以出道。一个账号有四票，卖的live票数给三人各算一票，正常来讲三人都能出道。
 
+
+*****
+
+####  花开安菲路  
+##### 1043#       发表于 2024-1-31 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63835364&amp;ptid=2130897" target="_blank">柏崎Sena 发表于 2024-1-31 07:14</a>
+1stlive前开最终审查投票，并且在1st上马上公布投票结果。单人加算票数达到5000可以出道。一个账号有四票 ...</blockquote>
+看到前几次的审查投票结果了，除了黄毛弱了点，算上live票5000随便过，
+万南这么亚撒西有自知之明的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

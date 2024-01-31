@@ -1068,3 +1068,15 @@ bgo运营怎么突然诈尸了
 
 看了下小绯的账号彻底死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyzzhj  
+##### 46035#       发表于 2024-1-31 08:39
+
+今早金圈海妈
+
+这次四五星全歪
+
+这游戏没法玩了...<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

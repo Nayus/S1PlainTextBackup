@@ -6453,3 +6453,54 @@ MyGO动画的访谈哪次不是直接快速翻译然后讨论的？这楼里就�
 
 这样的话可以期待2nd有更加劲爆的展开了吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 11171#       发表于 2024-1-31 13:14
+
+为啥要被追杀<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  狐式重型坦克  
+##### 11172#       发表于 2024-1-31 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839481&amp;ptid=2159415" target="_blank">Zendless 发表于 2024-1-31 12:57</a>
+辛辛苦苦台上台下，却因为访谈几句话被炎，也望周知</blockquote>
+真的辛苦吗
+
+*****
+
+####  御幸一也  
+##### 11173#       发表于 2024-1-31 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839560&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-31 13:04</a>
+
+午休突然想起来的，可能我2g网了，但是1st幕间出现的夜の女王这个词儿让我有点在意
+
+随便发散一下
+
+这 ...</blockquote>
+樓友好博學<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+但我隨便看了下wiki感覺魔笛劇情有點難代<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+不過夜の女王那句台詞 「復讐の炎は地獄のように我が心に燃え」，
+
+真的很中二很ave mujica，說不定真的有參考<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 11174#       发表于 2024-1-31 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839481&amp;ptid=2159415" target="_blank">Zendless 发表于 2024-1-31 12:57</a>
+
+辛辛苦苦台上台下，却因为访谈几句话被炎，也望周知</blockquote>
+本来就是吃个瓜的，但看到这句“辛辛苦苦台上台下“真是喷了，是指台上的现场水平倒退，台下可以发推说其他但转个相关推贺个角色生日这种表面功夫都不愿做吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+我个人来说只要台上唱得够好其他的都不算是事，但是台上不行了台下就起码做足表面功夫，偶像嘛也不一定要奢求本身过硬水平。但台上不行台下还这副模样这次不点燃下次也能点燃。粉丝如果对这种最基本的业务水平都欠缺的还无脑爱戴或者还能洗，那不就是正宗饭圈？讲真饭圈起码表面上也很顾粉丝颜面呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

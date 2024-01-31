@@ -6714,3 +6714,23 @@ https://twitter.com/GirLover_Buxl/status/1751603501736853922?t=fkIteuy83GXJxNZfx
 
 最近主要是在循环1st堕天的互动，那个转圈当时就把我看晕了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋干爆炸碱  
+##### 11189#       发表于 2024-1-31 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839705&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-1-31 13:14</a>
+
+为啥要被追杀
+
+—— 来自 S1Fun</blockquote>
+随便发散下，一定要说的话如果设定上夜后确实存在的话，人偶们自己创造新世界这件事夜后大概不会很开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11190#       发表于 2024-1-31 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">面对面那一段的眼神交流也很好，1st追加的小演出都可以循环好久
+

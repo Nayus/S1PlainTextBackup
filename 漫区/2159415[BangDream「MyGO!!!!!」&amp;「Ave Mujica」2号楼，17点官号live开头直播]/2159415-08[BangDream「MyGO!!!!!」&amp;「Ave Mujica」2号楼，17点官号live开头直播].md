@@ -7671,3 +7671,20 @@ mygo的确是好作品
 
 能和队友表演个啵嘴吗，说不定大家就回旋了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 11284#       发表于 2024-1-31 20:35
+
+羊可能是看到中国热度高心动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最近几次已经消磨我的信任了，羊态度热情要么是看观众多热度高要么是和我心危有关，反正不是因为你狗和高松灯
+
+*****
+
+####  寺川愛美  
+##### 11285#       发表于 2024-1-31 20:44
+
+報，武士道是保羊派
+

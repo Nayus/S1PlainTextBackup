@@ -30817,3 +30817,185 @@ Diffutoon的中间结果，在主要的卡通渲染流程中，依据轮廓视�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1234#       发表于 2024-1-31 22:28
+
+Mobile-Agent
+
+具有视觉感知的自主多模态移动设备代理者(Agent)
+
+github项目代码仓库:https://github.com/X-PLUG/MobileAgent
+
+基于多模态大型语言模型(MLLM)的移动设备代理者正成为流行应用，在本文中，介绍了Mobile-Agent，一种自主多模态移动设备代理者
+
+Mobile-Agent首先利用视觉感知工具准确识别和定位应用前端界面中的视觉和文本元素，根据感知到的视觉内容，它自主规划和分解复杂的操作任务，并通过逐步操作导航移动应用程序，与之前依赖于应用程序的XML文件或移动系统元数据的解决方案不同，Mobile-Agent以视觉为中心的方式在各种移动操作环境中具有更高的适应性，从而消除了对系统进行特定定制的必要性
+
+为了评估Mobile-Agent的性能，引入了Mobile-Eval，用于评估移动设备操作的基准测试，基于Mobile-Eval，对Mobile-Agent进行了全面的评估
+
+实验结果表明，Mobile-Agent实现了显著的准确性和完成率，即使在具有挑战性的指令(例如多应用程序操作)下，Mobile-Agent依然能够完成要求
+
+<img src="https://img.saraba1st.com/forum/202401/31/222655utgnbnfbh4jif3tr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-221959__01.jpg</strong> (358.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:26 上传
+
+移动代理者是用于操作移动设备的自主代理者，基于用户指令，移动代理者可以规划一系列操作来完成需求
+
+<img src="https://img.saraba1st.com/forum/202401/31/222700pa3rfaf433j7arzr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222020__01.jpg</strong> (331.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+移动代理者的框架
+
+<img src="https://img.saraba1st.com/forum/202401/31/222705x4m10sitttdphih4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222039__01.jpg</strong> (370.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+Mobile-Eval中使用的应用程序和指令
+
+<img src="https://img.saraba1st.com/forum/202401/31/222710brar66rat57gw6gs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222045__01.jpg</strong> (205.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+Mobile-Agent在Mobile-Eval上取得的整体评估结果，其中RE的两个值分别代表Mobile-Agent和人类花费的步骤数
+
+<img src="https://img.saraba1st.com/forum/202401/31/222716mknslrdsf9mm94m1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222058__01.jpg</strong> (599.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+指令理解和执行规划的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222722hf99pv2syrb6c8gg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222106__01.jpg</strong> (539.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+进行无效操作后的自我反思和错误修正用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222727ex9gyss4i4euh49d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222113__01.jpg</strong> (424.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+使用无效和不正确操作后的自我反思和错误修正用例，其中操作“点击文本(添加评论)”导致了错误的页面，而操作“点击文本(发布)”是一个无效操作，无效和不正确操作以红色突出显示
+
+<img src="https://img.saraba1st.com/forum/202401/31/222732gzajfpqwmjfh4mfg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222120__01.jpg</strong> (337.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+操作多个应用程序以搜索游戏结果的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222736g7ue187eiese81fp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222127__01.jpg</strong> (252.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+操作多个应用程序以撰写温度分析的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222742ax2601fw6tvtex8j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222136__01.jpg</strong> (150.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+操作中文系统和应用的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222746x7j4thgajt3jonhb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222147__01.jpg</strong> (485.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+玩游戏的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222752d2iyly4f7f44amzf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222159__01.jpg</strong> (382.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+从Alibaba.com批发帽子的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222759uly6ckhcpmd6j9yk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222211__01.jpg</strong> (390.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:27 上传
+
+搜索YouTube视频并评论该视频的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222804kv4v5bsn227nsyb9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222222__01.jpg</strong> (404.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:28 上传
+
+在Google Play下载特定应用程序的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222809mpxtpx7vqp708v8s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222236__01.jpg</strong> (265.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:28 上传
+
+使用地图应用程序进行导航的用例
+
+<img src="https://img.saraba1st.com/forum/202401/31/222814ihq2q77r7rq25i7z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240131-222247__01.jpg</strong> (334.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 22:28 上传
+
+使用Amazon Music搜索和播放特定内容音乐的用例
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

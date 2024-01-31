@@ -1080,3 +1080,17 @@ bgo运营怎么突然诈尸了
 
 这游戏没法玩了...<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46036#       发表于 2024-1-31 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63835729&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2024-1-31 08:39</a>
+今早金圈海妈
+
+这次四五星全歪
+
+这游戏没法玩了...</blockquote>
+明天就是大姐姐了，忍一下吧
+

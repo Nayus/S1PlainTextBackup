@@ -5855,3 +5855,21 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 青二前辈佐仓还真是神预言，声优接二偶的话工作会源源不断，不喜欢最好别接，不过人佐仓不说喜不喜欢你邦这活但起码还是敬业的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 11109#       发表于 2024-1-31 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833955&amp;ptid=2159415" target="_blank">Toki_Ai 发表于 2024-1-30 23:10</a>
+
+说起来管人团现在到底上不上真人啊，一点消息都没有，跟编外似的</blockquote>
+我的看法是，九成会有真人live
+
+*****
+
+####  星空冻结  
+##### 11110#       发表于 2024-1-31 09:12
+
+那佐仓说的真没问题吧，你如果觉得二偶活多你就别接，你接了就好好干
+

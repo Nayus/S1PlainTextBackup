@@ -7838,3 +7838,13 @@ mygo的确是好作品
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  基神的强袭自由  
+##### 11298#       发表于 2024-2-1 02:17
+
+到时候母鸡卡实装了，第一期卡池初睦祥三个五星，第二期卡池海喵两个五星<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

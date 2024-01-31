@@ -342,3 +342,11 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 蚌埠住了，庄主这抽卡怎么这么有梗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 11268#       发表于 2024-2-1 03:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">今天给的石头抽到水武藏了……练完才发现以前攒的钱和经验都用完了……下次无限池得好好刷一下了……
+

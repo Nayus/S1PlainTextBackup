@@ -772,3 +772,14 @@ OP都是主仆组合，追加大概率两个人吧。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要是追加公兔子，那皮卡里奥真是生错了时代
 
+
+*****
+
+####  pokemon最爱  
+##### 574#       发表于 2024-1-31 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843357&amp;ptid=2162354" target="_blank">宅音 发表于 2024-1-31 18:32</a>
+
+要是追加公兔子，那皮卡里奥真是生错了时代</blockquote>
+反正也有满薰这种到了希望之力都不给正编的生错时代的前辈在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1178,3 +1178,11 @@ PSV还独占FHA语音版呢<img src="https://static.saraba1st.com/image/smiley/f
 
 到时候补个票就得了，玩还是算了
 
+
+*****
+
+####  洛克萨斯  
+##### 127#       发表于 2024-1-31 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社长让小山用现代画风重新画一次cg和立绘也可以吧，老画风复刻还能拿出来专门说....
+

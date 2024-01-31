@@ -5912,3 +5912,36 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  lactone  
+##### 11114#       发表于 2024-1-31 09:47
+
+单纯这一次确实小题大做了
+
+主要是这么多次事件累积起来的压力直接炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Arteryesrerday  
+##### 11115#       发表于 2024-1-31 09:49
+
+你谭十块钱怎么就和这两个一个水平了，太不公平了
+
+*****
+
+####  平昭·南宫司卿  
+##### 11116#       发表于 2024-1-31 09:52
+
+说难听点这已经是情商低到不做人的程度了，还「这种程度」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arteryesrerday  
+##### 11117#       发表于 2024-1-31 09:52
+
+不是b站被冲到精选评论了吗，这待遇少见的了
+

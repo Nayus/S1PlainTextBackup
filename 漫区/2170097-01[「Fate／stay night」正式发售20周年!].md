@@ -1301,3 +1301,14 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 
 换声优你得先看看FGO里的一堆马甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茴香蚪的马甲  
+##### 138#       发表于 2024-1-31 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63845825&amp;ptid=2170097" target="_blank">CQTK 发表于 2024-1-31 23:01</a>
+
+换声优你得先看看FGO里的一堆马甲</blockquote>
+假设真有FSN完全重制版，并且一再跳票，直到不得不换CV的程度，恐怕到那时候FGO也已经关服了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

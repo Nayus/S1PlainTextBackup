@@ -6200,3 +6200,13 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 像爱马仕那边的p吉，马娘的高野麻里佳，感觉偶像企划被车的多的都有一些共性，就是拿了很多资源但不喜欢谈自己企划，伊波杏树也是后面一直发水相关才风评好起来的
 
+
+*****
+
+####  爱丁堡official  
+##### 11148#       发表于 2024-1-31 12:23
+
+盲猜nga版物要么是纯种羊gachi，要么是收了青二/wsd好处<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

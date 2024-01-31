@@ -6920,3 +6920,20 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 不是完全对应但大概就是这个感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寺川愛美  
+##### 11209#       发表于 2024-1-31 15:35
+
+這也太陽光了，陽光得像另一個世界
+
+— from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  skives  
+##### 11210#       发表于 2024-1-31 15:43
+
+感觉mujica应该是温暖人心的结局
+

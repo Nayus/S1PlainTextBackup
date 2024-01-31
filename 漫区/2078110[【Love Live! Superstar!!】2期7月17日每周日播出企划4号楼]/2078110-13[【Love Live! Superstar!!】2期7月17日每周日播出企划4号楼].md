@@ -2790,3 +2790,14 @@ lovelive综合杂志liella部分
 
 鱼fmt场地和信息公布了
 
+
+*****
+
+####  starring  
+##### 19395#       发表于 2024-1-31 15:43
+
+nagi直播三连
+<img src="https://p.sda1.dev/15/68b89915439584bc31f1ab475f95d007/CMP_20240131154339105.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

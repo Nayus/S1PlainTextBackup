@@ -1322,3 +1322,28 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 蘑菇退休了魔夜2月姬2谁给我补啊</blockquote>
 魔夜要我说剧场版要是票房不错干脆就用剧场版补完得了
 
+
+*****
+
+####  Malok  
+##### 140#       发表于 2024-2-1 00:29
+
+<img src="https://img.saraba1st.com/forum/202402/01/002849zbqsppbzzsyb4v66.jpg" referrerpolicy="no-referrer">
+
+<strong>GFBVodJa8AAs8r_.jpg</strong> (115.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/01/002849ev00oiz3l03le5sk.jpg" referrerpolicy="no-referrer">
+
+<strong>GFF-SCpbsAEgL-o.jpg</strong> (75.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 00:28 上传
+
+笑死力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://twitter.com/hnoj31130/status/1751994412308332654](https://twitter.com/hnoj31130/status/1751994412308332654)
+

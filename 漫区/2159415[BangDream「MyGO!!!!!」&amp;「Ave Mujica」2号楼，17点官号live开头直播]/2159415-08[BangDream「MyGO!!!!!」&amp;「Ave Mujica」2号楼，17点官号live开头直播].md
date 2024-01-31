@@ -7653,3 +7653,21 @@ mygo的确是好作品
 
 狠狠回旋，剑指水族馆约会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 11282#       发表于 2024-1-31 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843555&amp;ptid=2159415" target="_blank">QuattroVageena 发表于 2024-1-31 18:53</a>
+
+不懂就问，是不是该回旋了</blockquote>
+几个月积累的怨气不会一次两次就消失的，不过这次的事应该是差不多了
+
+*****
+
+####  Mr.Giraffe  
+##### 11283#       发表于 2024-1-31 20:32
+
+能和队友表演个啵嘴吗，说不定大家就回旋了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+

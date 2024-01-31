@@ -7005,3 +7005,41 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Aendst  
+##### 11217#       发表于 2024-1-31 16:16
+
+ 本帖最后由 Aendst 于 2024-1-31 16:18 编辑 
+
+2.5也不是离了手游就会化灰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟隔壁一样重心往跨媒体上移出点什么dramaCD，能开live也就还能继续苟，手游还有机会找下家
+
+武士道要真的重视游戏业务也该自己组个开发部门了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没组还承诺之后不会有没剧情的活动，那起码要有点可执行方案吧
+
+*****
+
+####  makece  
+##### 11218#       发表于 2024-1-31 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839416&amp;ptid=2159415" target="_blank">Saber琪 发表于 2024-1-31 12:53</a>
+
+看贴吧烤羊已经扩散到什么吧去了，某冻鳗糕手百大的吧，甚至我心危吧，事态是不是都有点控制不住了 ...</blockquote>
+都冲到羊的X下面骂表字了你还担心这些？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11219#       发表于 2024-1-31 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道这步子迈这么大不都是因为手游尝到甜头。没了手游，怕不是扯到蛋
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aendst  
+##### 11220#       发表于 2024-1-31 16:20
+
+财报不是说大头是live吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，手游流水已经大不如从前了吧
+

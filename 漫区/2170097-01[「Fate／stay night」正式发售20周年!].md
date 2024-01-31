@@ -1385,3 +1385,23 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 
 — from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  被子十三  
+##### 142#       发表于 2024-2-1 01:21
+
+不是，怎么都在做FSN重制的美梦
+
+FSN重制的最大问题在于蘑菇根本不想继续写这个故事
+他在各种访谈里都说了，FSN这条线已经很完整了，几个角色也塑造得很完全
+这也是为什么FGO主线里完全不碰蓝Saber的原因，想看她的故事请通FSN
+
+其它几个主角也都是以皮套人的形式出现的
+
+对蘑菇本人来说可能月姬2和魔夜3的优先级都比重写FSN高
+
+接下来这几年FSN相关的企划估计只剩下全语音FHA逆移植PC/Switch了。顶了天让ufo给FHA做个动画。型月本社应该不会再动Fate了
+
+— from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

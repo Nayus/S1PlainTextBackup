@@ -3146,3 +3146,11 @@ Greyish Zone
 
 Noir's reckless behavior causes both her and Mystere to stop functioning. When neither will wake up, Kanata turns to Alba for help. However, Alba tells Kanata he will need another Type Zero Magus in order to save them. There might be one in the ruins of Amasia, so Kanata and Ciel set out to find it.
 
+
+*****
+
+####  AkaiSuisei  
+##### 3615#       发表于 2024-1-31 08:20
+
+双系统xjb删导致两个系统分区都坏了可还行
+

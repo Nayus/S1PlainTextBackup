@@ -7309,3 +7309,37 @@ go今年的日程和发售计划确实就写着割韭菜，万人场是比较便
 就这？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 真是p事多，反向管人痴是吧。
 
+
+*****
+
+####  Aendst  
+##### 11249#       发表于 2024-1-31 17:43
+
+ 本帖最后由 Aendst 于 2024-1-31 17:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得好像经常在泥漏发言似的，你们正义路人跨时段带节奏能不能装点好的
+
+*****
+
+####  cindy355  
+##### 11250#       发表于 2024-1-31 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839560&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-1-31 13:04</a>
+
+午休突然想起来的，可能我2g网了，但是1st幕间出现的夜の女王这个词儿让我有点在意
+
+随便发散一下
+
+这 ...</blockquote>
+我感觉只是指月亮吧，因为是月亮赐予了ave的人偶们暂时的生命，自然就是独属于她们的夜之女王了。
+
+
+*****
+
+####  Anatoly  
+##### 11251#       发表于 2024-1-31 17:47
+
+日本程序员是这样的，总能整出比较抽象但活，而且不是个例<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

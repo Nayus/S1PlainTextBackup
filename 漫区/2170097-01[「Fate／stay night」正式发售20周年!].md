@@ -1312,3 +1312,13 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 换声优你得先看看FGO里的一堆马甲</blockquote>
 假设真有FSN完全重制版，并且一再跳票，直到不得不换CV的程度，恐怕到那时候FGO也已经关服了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 139#       发表于 2024-1-31 23:20
+
+<blockquote>Saber琪 发表于 2024-1-31 22:38
+蘑菇退休了魔夜2月姬2谁给我补啊</blockquote>
+魔夜要我说剧场版要是票房不错干脆就用剧场版补完得了
+

@@ -6257,3 +6257,90 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 关注可爱的蜜柑🍊喵，关注可爱的蜜柑🍊谢谢喵
 
+
+*****
+
+####  御幸一也  
+##### 11154#       发表于 2024-1-31 12:33
+
+有些人怎麼又來引戰了啊，說真的這裡ave粉多，蠻多人都偏向無關心的，
+
+我覺得你們去nga引可能比較有效果哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kivz| + 1||
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 11155#       发表于 2024-1-31 12:35
+
+ 本帖最后由 Aendst 于 2024-1-31 12:36 编辑 
+
+这边现在都没几个人聊你们羊宮了，钓鱼的和刻意引战的gachi可以出门右转吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11156#       发表于 2024-1-31 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63837791&amp;ptid=2159415" target="_blank">Zendless 发表于 2024-1-31 11:00</a>
+
+没觉得一个声优说这话有什么值得烤的，直到看到偶像厨的反应才懂，这是寄生在她身上的美梦被戳破了的应激反 ...</blockquote>
+她不给面子，我们也没必要给
+
+再说了这是二偶企划，你用纯声优的标准来要求没道理吧？
+
+*****
+
+####  ddy2811  
+##### 11157#       发表于 2024-1-31 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63838989&amp;ptid=2159415" target="_blank">Zendless 发表于 2024-1-31 12:23</a>
+
+采访的是声优又不是采访角色，被问24年的打算，回答说想有更多工作有问题？ ...</blockquote>
+采访的是MyGO乐队的主唱，望周知<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11158#       发表于 2024-1-31 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839044&amp;ptid=2159415" target="_blank">rslika 发表于 2024-1-31 12:26</a>
+
+mygo主题的访谈不去看（是看不懂吗）就盯着国内的二手屎咬文嚼字，现在冲锋的里八成都是这种人 ...</blockquote>
+MyGO动画的访谈哪次不是直接快速翻译然后讨论的？这楼里就讨论得不少吧？
+
+*****
+
+####  御幸一也  
+##### 11159#       发表于 2024-1-31 12:40
+
+還是來看一下李子特地定做的 中二撥片盒吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+五個人的代表色都有，而且滿滿的齒輪月亮星星，非常的ave mujica ，非常的中二<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202401/31/123834xdwgqpi9qwn7dcm7.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (122.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 12:38 上传
+
+*****
+
+####  Aendst  
+##### 11160#       发表于 2024-1-31 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

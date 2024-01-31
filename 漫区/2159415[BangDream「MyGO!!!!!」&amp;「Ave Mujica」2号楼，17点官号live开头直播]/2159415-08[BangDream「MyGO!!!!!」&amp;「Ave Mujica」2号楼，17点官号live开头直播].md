@@ -6380,3 +6380,31 @@ MyGO动画的访谈哪次不是直接快速翻译然后讨论的？这楼里就�
 
 感觉扎手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 11166#       发表于 2024-1-31 12:53
+
+看贴吧烤羊已经扩散到什么吧去了，某冻鳗糕手百大的吧，甚至我心危吧，事态是不是都有点控制不住了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">都已经把一些不相干的引过来了（）
+
+*****
+
+####  Zendless  
+##### 11167#       发表于 2024-1-31 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839192&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-31 12:38</a>
+
+采访的是MyGO乐队的主唱，望周知</blockquote>
+辛辛苦苦台上台下，却因为访谈几句话被炎，也望周知
+
+*****
+
+####  滑稽Captain  
+##### 11168#       发表于 2024-1-31 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839217&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-1-31 12:39</a>
+
+MyGO动画的访谈哪次不是直接快速翻译然后讨论的？这楼里就讨论得不少吧？ ...</blockquote>
+不要对号入座，这里显然指的是最新的联动翻唱的访谈
+

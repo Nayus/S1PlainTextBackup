@@ -6973,3 +6973,35 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 翻译：我们真的还有存货，别润
 
+
+*****
+
+####  Aendst  
+##### 11214#       发表于 2024-1-31 16:06
+
+ 本帖最后由 Aendst 于 2024-1-31 16:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+绫奈毕竟也不是中村，大概还是会有比较不一样的地方
+
+手工蛋有好多stf感觉对邦挺有感情的，可惜武士道似乎没有真正意义上的游戏开发部门，不然能收编一部分原开发人员也是一件好事
+
+*****
+
+####  江口夕  
+##### 11215#       发表于 2024-1-31 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实说这游戏整不明白的话不管鸡狗都是要完，也就没什么烤不烤羊了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  基神的强袭自由  
+##### 11216#       发表于 2024-1-31 16:13
+
+能不能提前放母鸡卡出来抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

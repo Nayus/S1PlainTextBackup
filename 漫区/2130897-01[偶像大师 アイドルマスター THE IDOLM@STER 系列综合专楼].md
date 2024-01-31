@@ -337,3 +337,27 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Anatoly  
+##### 1053#       发表于 2024-1-31 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正的孤独患者，领了也没人能发啊（
+
+*****
+
+####  水莲寺流歌  
+##### 1054#       发表于 2024-1-31 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">错过了，这会儿去看已经领完了
+
+*****
+
+####  Unlight  
+##### 1055#         楼主| 发表于 2024-1-31 21:27
+
+我领到了，但朋友说好像领完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1220,3 +1220,16 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 
 在让人失望上从来没有让人失望，虽然本来就没有什么期望
 
+
+*****
+
+####  茴香蚪的马甲  
+##### 132#       发表于 2024-1-31 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823109&amp;ptid=2170097" target="_blank">漆黑之花 发表于 2024-1-30 01:15</a>
+
+主持人就是声优，直播里宣布自己被换了也太地狱笑话了
+
+—— 来自 S1Fun</blockquote>
+楼上也说了，假如真有FSN完全重制版的话（现在已经确定没有了），那么换不换声优主要取决于跳票多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得当时在活动现场他们应该是认为自己到时候是可以拿到这张饭票的
+

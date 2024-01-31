@@ -1293,3 +1293,11 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CQTK  
+##### 137#       发表于 2024-1-31 23:01
+
+换声优你得先看看FGO里的一堆马甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

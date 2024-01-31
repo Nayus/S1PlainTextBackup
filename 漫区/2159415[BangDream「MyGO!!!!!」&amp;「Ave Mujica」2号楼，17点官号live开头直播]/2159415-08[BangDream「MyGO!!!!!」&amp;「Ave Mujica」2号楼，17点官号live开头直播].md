@@ -7514,3 +7514,45 @@ go今年的日程和发售计划确实就写着割韭菜，万人场是比较便
 
 2024-1-31 18:31 上传
 
+
+*****
+
+####  羊宮妃那  
+##### 11266#       发表于 2024-1-31 18:33
+
+只要和女大百合营业，中国人就会像垃圾一样涌过来
+
+*****
+
+####  Arrogate  
+##### 11267#       发表于 2024-1-31 18:36
+
+太有节目效果了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 11268#       发表于 2024-1-31 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843138&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-31 18:10</a>
+
+希腊神话的月女神是不是有5名来着？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不记得了，我只记得游戏王相关的了。
+
+*****
+
+####  Aendst  
+##### 11269#       发表于 2024-1-31 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843410&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-31 18:37</a>
+
+不记得了，我只记得游戏王相关的了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">草生
+
+*****
+
+####  狐式重型坦克  
+##### 11270#       发表于 2024-1-31 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再想到这期其实早就录好了，反而更难绷了
+

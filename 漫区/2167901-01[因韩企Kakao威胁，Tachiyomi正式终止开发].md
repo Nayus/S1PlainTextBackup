@@ -1659,3 +1659,40 @@ j2k 更新漫画人插件后，漫画人提示用户id已清楚，有人知道�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  jiezi  
+##### 140#       发表于 2024-1-31 11:26
+
+<blockquote>海风的巴萨诺瓦 发表于 2024-1-31 08:24
+折腾了一会发现
+
+这楼里90%以上的插件问题都可以通过在安卓系统里搜索对应的插件名字卸载后在mihon重新安装 ...</blockquote>
+请问在mihon重装插件后，全部显示废弃，怎么办
+
+*****
+
+####  十元立没  
+##### 141#       发表于 2024-1-31 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63823003&amp;ptid=2167901" target="_blank">孟沁瑶 发表于 2024-1-30 00:53</a>
+
+j2k 更新漫画人插件后，漫画人提示用户id已清楚，有人知道什么问题吗
+
+—— 来自 OnePlus HD1900, Android  ...</blockquote>
+下载漫画人官方客户端，打开，就能成功打开tachiyomi的漫画人插件了
+
+之后的使用不用先打开漫画人客户端也行，不过为了不出错还是别卸载了
+
+*****
+
+####  十元立没  
+##### 142#       发表于 2024-1-31 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63838172&amp;ptid=2167901" target="_blank">jiezi 发表于 2024-1-31 11:26</a>
+
+请问在mihon重装插件后，全部显示废弃，怎么办</blockquote>
+导入插件库
+[https://github.com/keiyoushi/extensions](https://github.com/keiyoushi/extensions)
+

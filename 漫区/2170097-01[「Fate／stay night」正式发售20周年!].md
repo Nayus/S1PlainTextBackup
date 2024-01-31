@@ -1272,3 +1272,24 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 
 啥时候能让小山重做一下人设，还是让社长去享福吧，别工作了
 
+
+*****
+
+####  Saber琪  
+##### 135#       发表于 2024-1-31 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63845592&amp;ptid=2170097" target="_blank">TiiTiiLL 发表于 2024-1-31 22:33</a>
+啥时候能让小山重做一下人设，还是让社长去享福吧，别工作了</blockquote>
+蘑菇退休了魔夜2月姬2谁给我补啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漆黑之花  
+##### 136#       发表于 2024-1-31 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63844780&amp;ptid=2170097" target="_blank">茴香蚪的马甲 发表于 2024-1-31 21:19</a>
+楼上也说了，假如真有FSN完全重制版的话（现在已经确定没有了），那么换不换声优主要取决于跳票多久[f:06 ...</blockquote>
+月姬太小众了，换了就换了。fate你把川澄换了可是大问题，你要问问那些萌二同不同意
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3326,3 +3326,11 @@ OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smile
 
  神tm需要另外一个零式才行救noir，这下看懂op了
 
+
+*****
+
+####  cybernetics31  
+##### 3629#       发表于 2024-1-31 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">男主你有种学雷老板都收了啊
+

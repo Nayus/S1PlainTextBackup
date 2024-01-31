@@ -6118,3 +6118,20 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">楼友在说些什么我怎么看不懂 艺人工作都要走事务所审核的有几个真单干的
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 11139#       发表于 2024-1-31 11:38
+
+不是，真有觉得没问题的话，那让官方别锁评删评啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+都到捂嘴这个份上了，既然真的什么问题没有，怕啥呀
+
+*****
+
+####  rslika  
+##### 11140#       发表于 2024-1-31 11:41
+
+爆的是羊宫又不是mygo，运营只管保住自己这块的舆论这是工作
+

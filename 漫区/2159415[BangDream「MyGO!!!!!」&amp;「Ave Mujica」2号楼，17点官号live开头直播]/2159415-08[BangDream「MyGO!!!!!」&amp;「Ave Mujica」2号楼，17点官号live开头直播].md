@@ -6779,3 +6779,27 @@ https://twitter.com/GirLover_Buxl/status/1751603501736853922?t=fkIteuy83GXJxNZfx
 动物朋友不在乎mygo本身，但是对外表示在意灯祥的关系性，但是灯祥是mygo关系性的一部分，那么。。。。[f:0 ...</blockquote>
 但灯祥的“平行线”早就讨论过很多遍了，而且各自有一番理解只等Mujica开示了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 11195#       发表于 2024-1-31 14:24
+
+听说羊女士以前为了争取灯这个角色还特意写了歌，然而，以前是以前现在是现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11196#       发表于 2024-1-31 14:26
+
+釣魚哥真是夠了，之前打滾哥訪談圖一樂，你來一個樓友怎麼都不看訪談是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+泥樓不是早就被隔壁認證的祥厨樓了，當然天天討論ave啦<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11197#       发表于 2024-1-31 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁唯一指定鸡粉楼，正义路人金牌认证孝祥楼，泥漏名号还挺多
+

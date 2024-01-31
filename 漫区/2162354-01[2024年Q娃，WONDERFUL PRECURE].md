@@ -734,3 +734,25 @@ OP都是主仆组合，追加大概率两个人吧。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  青蛙佬  
+##### 571#       发表于 2024-1-31 16:33
+
+<img src="https://img.saraba1st.com/forum/202401/31/163044j720mlkml77lh75h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 16:30 上传
+
+换个想法，也许这个图里最扭曲的不是右边三位,反而是最左边的兔子君呢，
+
+和我天天生活在一起的主人，被2个雌性包围了。
+
+明明我都还没和主人一起做过这样的事情！
+
+然后因为嫉妒开始了变身。
+

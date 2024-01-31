@@ -7085,3 +7085,61 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 万人场能去6-7k就烧高香了
 
+
+*****
+
+####  Aendst  
+##### 11226#       发表于 2024-1-31 16:33
+
+反正武士道挺自信的，不知道对手游业务是不是也有一样的自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 11227#       发表于 2024-1-31 16:34
+
+本来做完两部roselia剧场版给护国公ykn立传，邦就该差不多了，狗动画给续了一口，怕不是让武士道产生真能续的错觉
+
+*****
+
+####  江口夕  
+##### 11228#       发表于 2024-1-31 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63841947&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-31 16:31</a>
+已经要连开两天万人场了</blockquote>
+单团开的？不是吧。看了眼是和ppp的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aendst  
+##### 11229#       发表于 2024-1-31 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63842016&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-31 16:37</a>
+
+单团开的？不是吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.2.2.1</blockquote>
+单团，七月连着两天万人场，闪耀着自信的光芒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ppp那场是四月的
+
+*****
+
+####  江口夕  
+##### 11230#       发表于 2024-1-31 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63842024&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-1-31 16:37</a>
+单团，七月连着两天万人场，闪耀着自信的光芒ppp那场是四月的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉要成go团黑历史了，上届太子音宝有单团万人么
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 11231#       发表于 2024-1-31 16:41
+
+两天万人场并且抽选不塞cd里面而是塞两万日的bd里，简直把割韭菜写脸上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+配合羊这个摆烂的态度，怕不是武士道也觉得今年趁着ylgo还没跑光赶紧把钱赚了吃一波断头饭，明年开始就可以对狗放养了，除非羊这套真的歪打正着戳中日本宅宅的心导致狗热度不降反增
+

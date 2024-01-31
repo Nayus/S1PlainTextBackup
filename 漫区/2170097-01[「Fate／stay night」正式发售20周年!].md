@@ -1202,3 +1202,13 @@ steam版出了必补票，虽然我PS2版本就买过了
 
 补个票完事，希望REMASTERED多少能加点料吧
 
+
+*****
+
+####  pokemon最爱  
+##### 130#       发表于 2024-1-31 15:22
+
+虽然毫不意外但纯炒冷饭还是很令人难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对得上吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

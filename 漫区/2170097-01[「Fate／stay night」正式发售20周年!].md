@@ -1372,3 +1372,16 @@ FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对�
 笑死力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [https://twitter.com/hnoj31130/status/1751994412308332654](https://twitter.com/hnoj31130/status/1751994412308332654)
 
+
+*****
+
+####  被子十三  
+##### 141#       发表于 2024-2-1 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63845646&amp;ptid=2170097" target="_blank">Saber琪 发表于 2024-1-31 22:38</a>
+蘑菇退休了魔夜2月姬2谁给我补啊</blockquote>
+型月社长是武内不是蘑菇
+你看型月相关各种企划里制作人也都是竹内友崇，没蘑菇什么事
+
+— from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

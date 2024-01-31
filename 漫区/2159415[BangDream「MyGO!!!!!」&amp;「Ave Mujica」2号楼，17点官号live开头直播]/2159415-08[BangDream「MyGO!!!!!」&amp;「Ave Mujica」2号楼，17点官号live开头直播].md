@@ -5902,3 +5902,13 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 一早就看见泥潭被挂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 11113#       发表于 2024-1-31 09:42
+
+微博都是觉得你们烤羊无理取闹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

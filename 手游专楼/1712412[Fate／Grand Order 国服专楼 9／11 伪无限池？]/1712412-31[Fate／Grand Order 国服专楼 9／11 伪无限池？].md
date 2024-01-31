@@ -1165,3 +1165,22 @@ bgo运营怎么突然诈尸了
 居然
 断签了
 
+
+*****
+
+####  shimotsuki14  
+##### 46042#       发表于 2024-1-31 21:38
+
+喷了。
+两千多天
+我
+居然
+断签了
+
+*****
+
+####  johnkamsar  
+##### 46043#       发表于 2024-1-31 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明天抽大姐姐，希望能抽出3宝阿妹开被动….大姐姐完全没兴趣
+

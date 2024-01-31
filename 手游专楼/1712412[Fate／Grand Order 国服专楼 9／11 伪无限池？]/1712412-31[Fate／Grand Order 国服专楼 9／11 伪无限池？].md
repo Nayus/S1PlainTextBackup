@@ -1124,3 +1124,15 @@ bgo运营怎么突然诈尸了
 —— 来自 realme RMX2121, Android 12上的 S1Next-鹅版 v2.4.4.1</blockquote>
 后面有艾蕾Buff后部分低星能开两次宝具（带宝石翁开第一次，后面红绿蓝连携打NP开宝具，有能力一人干掉一管）
 
+
+*****
+
+####  电波系腑海林  
+##### 46040#       发表于 2024-1-31 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63835335&amp;ptid=1712412" target="_blank">atomicink 发表于 2024-1-31 06:54</a>
+看了下小绯的账号彻底死了</blockquote>
+运营已经换人了吧，上次直播出来的不是一个肥宅吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -6660,3 +6660,57 @@ MyGO动画的访谈哪次不是直接快速翻译然后讨论的？这楼里就�
 
 没讨论是因为泥漏大部分是mujica粉，对羊宮，对翻唱，mygo三次元都没什么兴趣，你不会不知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 11185#       发表于 2024-1-31 13:53
+
+https://twitter.com/GirLover_Buxl/status/1751603501736853922?t=fkIteuy83GXJxNZfxsd3dw&amp;s=19
+
+<img src="https://img.saraba1st.com/forum/202401/31/135235p7rrkg5rwi5ggrss.jpg" referrerpolicy="no-referrer">
+
+<strong>f6067f1d-3033-489b-9ff4-bb4890aaf03c.jpg</strong> (298.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 13:52 上传
+
+<img src="https://img.saraba1st.com/forum/202401/31/135235weht6eehfkav642g.jpg" referrerpolicy="no-referrer">
+
+<strong>20240131_135149.jpg</strong> (737.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 13:52 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aendst  
+##### 11186#       发表于 2024-1-31 13:56
+
+ 本帖最后由 Aendst 于 2024-1-31 14:02 编辑 
+
+这次看到不少repo提到睦在神蠢的祈祷动作<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">（好像不止神蠢？）
+
+私心安利0th祈祷的特写镜头，非常好非常有气氛
+
+海铃腿长相关repo大草
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11187#       发表于 2024-1-31 14:02
+
+首先，我是灯祥人，这篇采访我昨天就在群里看到了，按道理我是应该高兴一点
+但是考虑到动物朋友这位00后最强女声优对mygo的态度，我实在不知道她说的有几分是真情实感的，也就失去了讨论的欲望
+
+*****
+
+####  笋干爆炸碱  
+##### 11188#       发表于 2024-1-31 14:02
+
+最近主要是在循环1st堕天的互动，那个转圈当时就把我看晕了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

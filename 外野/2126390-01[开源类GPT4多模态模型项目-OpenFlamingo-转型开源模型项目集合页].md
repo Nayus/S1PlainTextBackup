@@ -30777,3 +30777,43 @@ github中文项目说明页截图:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1233#       发表于 2024-1-31 10:12
+
+Diffutoon
+
+通过扩散模型进行高分辨率可编辑卡通着色(Shading)
+
+项目主页:https://ecnu-cilab.github.io/DiffutoonProjectPage/
+
+github DiffSynth-Studio综合主页:https://github.com/Artiprocher/DiffSynth-Studio
+
+卡通渲染(Toon shading)是一种非照片真实渲染任务的动画化技术，主要目的是以扁平和风格化的外观渲染物体，随着扩散模型在图像合成方法中的崛起，本文探讨了一种基于扩散模型的创新化卡通渲染方法，旨在将逼真的视频直接渲染成动画风格，当前的视频风格化方法面临着持续挑战，尤其是在保持一致性和实现高视觉质量
+
+在本文中，将卡通渲染问题建模为四个子问题:风格化、一致性增强、结构引导和色彩着色(stylization, consistency enhancement, structure guidance, and colorization)
+
+为了解决视频风格化的挑战，提出了一种有效的卡通渲染方法，称为Diffutoon，Diffutoon能够以动画风格渲染出极其详细、高分辨率的长期视频，它还可以通过额外分支根据提示(prompts)编辑内容
+
+通过定量指标和人类评估，测试了Diffutoon的有效性，实验结果表明，Diffutoon同时超过了开源和闭源基线
+
+Diffutoon的整体架构，上方是主要的卡通渲染工作流程，下方是编辑分支，编辑分支可以为主要的卡通渲染工作流程生成色彩视频帧的编辑信号
+
+各种方法的定量结果
+
+人类评估研究中的用户偏好
+
+与其他方法的视觉对比，用于编辑的提示为“best quality, perfect anime illustration, a girl is dancing, smile, solo, orange dress , black hair , white shoes , blue sky”
+
+Diffutoon的中间结果，在主要的卡通渲染流程中，依据轮廓视频和色彩视频合成视频，当启用编辑分支时，生成的色彩视频包含编辑信号
+
+没有轮廓信息渲染的视频
+
+没有色彩信息渲染的视频
+
+使用Animate-Diff作为编辑分支渲染的视频
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

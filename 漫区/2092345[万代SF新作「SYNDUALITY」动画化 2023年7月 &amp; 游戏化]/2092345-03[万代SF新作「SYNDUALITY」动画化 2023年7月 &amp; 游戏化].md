@@ -3222,3 +3222,13 @@ Greyish Zone
 我倒是担心歌姬被刀掉，经典套路不就是良心发现、弃恶从善、编剧发刀么不过现在剧情还没展开，应该 ...</blockquote>
 OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 3623#       发表于 2024-1-31 10:13
+
+昨天听了青山姐的广播切片，不停地说夏尔一定要幸福<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

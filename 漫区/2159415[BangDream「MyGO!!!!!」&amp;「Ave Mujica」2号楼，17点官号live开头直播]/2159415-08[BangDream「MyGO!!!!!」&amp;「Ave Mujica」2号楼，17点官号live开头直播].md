@@ -6175,3 +6175,20 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 炸楼是火上浇油，版务把这件事抬到不该有的高度
 
+
+*****
+
+####  rslika  
+##### 11145#       发表于 2024-1-31 11:54
+
+别的我不清楚，但我很想知道虹的大牌姐是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  NODY  
+##### 11146#       发表于 2024-1-31 11:57
+
+大概是鬼圣吧，但这个是大牌以后反而对糊逼企划更用心的正面案例<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6833,3 +6833,45 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 嘿，这话说的，难道就不准人天音妹妹努力进步吗？总不能希望她初心不改一步不挪，甚至倒退几步吧？
 
+
+*****
+
+####  Aendst  
+##### 11201#       发表于 2024-1-31 14:54
+
+天音妹妹和蝶团挺好的，这么嫌弃的话可以把对邦名额分一点给mujica<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还挺想听对邦限定小提琴编曲的
+
+*****
+
+####  NODY  
+##### 11202#       发表于 2024-1-31 14:55
+
+ 本帖最后由 NODY 于 2024-1-31 14:58 编辑 
+
+前面提到上一辈的恩怨，难不成ppp初设上一辈支离破碎的乐队通过命运分别传承给了下一代的五个人的设定要给mujica用吗，看起来只是为了利益凑出来的乐队其实是命中注定，还挺浪漫的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 11203#       发表于 2024-1-31 14:57
+
+抽到ykn了，把那套蔷薇婚纱让soyo穿一下试试<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aendst  
+##### 11204#       发表于 2024-1-31 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初设大概是啥样的，老看到有人说但是又没有个比较概括性的总结
+
+*****
+
+####  ikozhneg  
+##### 11205#       发表于 2024-1-31 15:02
+
+烤羊真是扩散了，引了好多路人来指点江山<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

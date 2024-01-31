@@ -3154,3 +3154,24 @@ Noir's reckless behavior causes both her and Mystere to stop functioning. When n
 
 双系统xjb删导致两个系统分区都坏了可还行
 
+
+*****
+
+####  765事务所  
+##### 3616#       发表于 2024-1-31 08:45
+
+歌姬这回要上线跟彼方搭档了吗，期待<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 3617#       发表于 2024-1-31 08:50
+
+<blockquote>NeloAngelo 发表于 2024-1-31 07:48
+EPISODE 17
+
+Greyish Zone
+
+</blockquote>
+游戏男主限时返场
+

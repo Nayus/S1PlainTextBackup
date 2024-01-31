@@ -5847,3 +5847,11 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20<img src="https://p.sda1
 https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 哥，咱能不能不发ai
 
+
+*****
+
+####  NODY  
+##### 11108#       发表于 2024-1-31 08:46
+
+青二前辈佐仓还真是神预言，声优接二偶的话工作会源源不断，不喜欢最好别接，不过人佐仓不说喜不喜欢你邦这活但起码还是敬业的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

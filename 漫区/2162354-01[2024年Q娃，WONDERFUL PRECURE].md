@@ -764,3 +764,11 @@ OP都是主仆组合，追加大概率两个人吧。
 
 惯例的喜欢人形态和动物形态述说的情节也会有的吧，反过来……也不是不行
 
+
+*****
+
+####  宅音  
+##### 573#       发表于 2024-1-31 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要是追加公兔子，那皮卡里奥真是生错了时代
+

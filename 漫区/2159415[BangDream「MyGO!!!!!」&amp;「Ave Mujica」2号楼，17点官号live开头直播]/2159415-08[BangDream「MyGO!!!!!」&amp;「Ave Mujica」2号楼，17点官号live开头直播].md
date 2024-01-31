@@ -7472,3 +7472,45 @@ go今年的日程和发售计划确实就写着割韭菜，万人场是比较便
 
 场刊熟肉晚发三天，听现场佬先吹个逼，这期迷子再一放少说也能回旋两天，结果连一个月初录得广播下面都变烧烤摊了
 
+
+*****
+
+####  寺川愛美  
+##### 11263#       发表于 2024-1-31 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843229&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-1-31 18:18</a>
+这周鼻姐是上邦TV吧
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+啊對，看到了！我編輯一下
+
+— from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Aendst  
+##### 11264#       发表于 2024-1-31 18:28
+
+ 本帖最后由 Aendst 于 2024-1-31 18:30 编辑 
+
+关于希腊神话的月女神
+
+目前我能查到的不可证相关说法中，除了漏油提到的三相女神阿耳特弥斯、塞勒涅和赫卡忒之外
+
+还有Φοίϐη/Phoebe/ポイベー（第一代的泰坦神，司掌光亮，不算严格意义的月神）以及小月女神Achelois/アチェロイス（司掌治愈（待考证），也有认知为缪斯女神）
+
+*****
+
+####  NODY  
+##### 11265#       发表于 2024-1-31 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202401/31/183156qoaptz59zut9iusq.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-71dwK17T3cSsg-cs.jpg</strong> (43.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-1-31 18:31 上传
+

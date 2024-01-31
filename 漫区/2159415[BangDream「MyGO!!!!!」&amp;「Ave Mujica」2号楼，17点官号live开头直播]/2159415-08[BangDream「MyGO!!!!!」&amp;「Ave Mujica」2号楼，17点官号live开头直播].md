@@ -7388,3 +7388,59 @@ go今年的日程和发售计划确实就写着割韭菜，万人场是比较便
 快速浏览了一下，不就是geigei划伤手指一样的事情吗？为什么楼友对这些真实人类抱有如此热情我暂时蒙在鼓里。
 第二季的消息呢？搞这些怕不是一直在炒热度不干事情哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 11255#       发表于 2024-1-31 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843034&amp;ptid=2159415" target="_blank">萌萌人_ 发表于 2024-1-31 18:01</a>
+
+我姑且认为你在说我。
+
+路人可从来没有正义的，只有混沌邪恶的。
+
+快速浏览了一下，不就是geigei划 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也很疑惑的，所以这几天我都懒得聊这个话题，好不容易清净了然后又有其他人进来轮回，我觉得轮回太无聊了提醒你一下
+
+*****
+
+####  笋干爆炸碱  
+##### 11256#       发表于 2024-1-31 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843020&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-31 18:00</a>
+
+果然没记错，之前考据时候看到过日维记述着古希腊神话的月之女神塞勒涅有着“夜之女王”的别称，goddess of ...</blockquote>
+很有意思
+
+待我上班能摸鱼的时候继续研究<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 11257#       发表于 2024-1-31 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843020&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-31 18:00</a>
+
+果然没记错，之前考据时候看到过日维记述着古希腊神话的月之女神塞勒涅有着“夜之女王”的别称，goddess of ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">刚准备研究才反应过来祥子本身就已经能对应月的三相了，先圆再缺后盈，原来祥子你还是芭一波卡赫啊。
+
+*****
+
+####  ykyin09  
+##### 11258#       发表于 2024-1-31 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这周的迷子集会是李世林和羊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Aendst  
+##### 11259#       发表于 2024-1-31 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63843020&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-31 18:00</a>
+
+果然没记错，之前考据时候看到过日维记述着古希腊神话的月之女神塞勒涅有着“夜之女王”的别称，goddess of ...</blockquote>
+希腊神话的月女神是不是有5名来着？
+

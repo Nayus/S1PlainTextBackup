@@ -1212,3 +1212,11 @@ steam版出了必补票，虽然我PS2版本就买过了
 
 FGO出来后你月都版本更新多少次了原FSN剧本的设定真的还对得上吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 131#       发表于 2024-1-31 18:12
+
+在让人失望上从来没有让人失望，虽然本来就没有什么期望
+

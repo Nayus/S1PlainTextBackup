@@ -6135,3 +6135,43 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 爆的是羊宫又不是mygo，运营只管保住自己这块的舆论这是工作
 
+
+*****
+
+####  lactone  
+##### 11141#       发表于 2024-1-31 11:46
+
+团魂这玩意儿确实可遇不可求
+
+但是营业也算基本职业道德吧
+
+不过话说到现在各大偶像企划不闹幺蛾子的确实少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+缪啊水啊各种破事也不少，虹咲不也有大牌姐
+反而好像星cv本身没啥节奏，节奏都给staff了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寺川愛美  
+##### 11142#       发表于 2024-1-31 11:46
+
+這倒是同意，營運要保的是河蟹能理解，看不懂的是nga，你給大家留個專樓隨便跟個風發洩一下能有多大事，現在更多人了，我覺得該怪nga版主
+
+— from samsung SM-G970W, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Arteryesrerday  
+##### 11143#       发表于 2024-1-31 11:49
+
+我b站刷到好多，推荐直达战场了
+
+*****
+
+####  Arrogate  
+##### 11144#       发表于 2024-1-31 11:50
+
+炸楼是火上浇油，版务把这件事抬到不该有的高度
+

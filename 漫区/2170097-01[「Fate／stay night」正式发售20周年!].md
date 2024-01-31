@@ -1405,3 +1405,17 @@ FSN重制的最大问题在于蘑菇根本不想继续写这个故事
 
 — from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  starcraft3  
+##### 143#       发表于 2024-2-1 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63847073&amp;ptid=2170097" target="_blank">被子十三 发表于 2024-2-1 01:21</a>
+不是，怎么都在做FSN重制的美梦
+
+FSN重制的最大问题在于蘑菇根本不想继续写这个故事</blockquote>
+fsn正统后续都扔给三田了 二世冒险 讲的就是五战完结以后 类似ubw后续。
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -31361,3 +31361,101 @@ Param.表示参数数量
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1236#       发表于 2024-2-1 02:43
+
+ 本帖最后由 Machinery 于 2024-2-1 02:44 编辑 
+
+H2O-Danube-1.8B
+
+H2O.ai训练的18亿参数基础模型系列
+
+arxiv技术报告:https://arxiv.org/abs/2401.16818
+
+hugface Base模型权重下载:https://huggingface.co/h2oai/h2o-danube-1.8b-base
+
+hugface Chat模型权重下载:https://huggingface.co/h2oai/h2o-danube-1.8b-chat
+
+H2O-Danube-1.8B，一个遵循LLama 2和Mistral核心原则，在1T Token上训练的1.8B参数语言模型，通过利用和改进各种预训练大型语言模型技术，尽管本系列模型训练的总Token数量相比类似规模的参考模型要少得多，但在多项基准测试中表现出了极具竞争力的指标结果
+
+此外，还发布了一个通过监督微调(supervised fine-tuning)和直接偏好优化(direct preference optimization)训练获得的聊天模型，本系列模型以Apache 2.0许可协议公开发布提供，以使更广泛的经济受众能够进一步使用LLM
+
+<img src="https://img.saraba1st.com/forum/202402/01/024230lm787ih5w7ow4wpp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240201-024025.jpg</strong> (153.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 02:42 上传
+
+训练日志
+
+训练(左上角)和验证(右上角)的交叉熵损失，学习率调度(左下角)和序列长度(右下角)，X轴则是训练到该步骤的Token数
+
+<img src="https://img.saraba1st.com/forum/202402/01/024236trh8rpjp3blkqkr3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240201-024045.jpg</strong> (175.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 02:42 上传
+
+常识推理、世界知识和阅读理解基准测试
+
+与其他相似规模的模型相比，H2O-Danube-1.8B在所有基准测试中表现均一致且良好，它在所有基准测试中的表现都优于Qwen(除了BoolQ)，尽管大小相同，但训练的Token数少了2.2倍，Stable LM 2在大多数基准测试中略优于H2O-Danube-1.8B，但它的训练Token数是H2O-Danube-1.8B的4倍
+
+此外，Qwen和Stable LM 2模型都不具备Apache 2.0许可证，而且商业使用还需要满足额外条件
+
+<img src="https://img.saraba1st.com/forum/202402/01/024302gw408w81pttkw5lw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240201-024104.jpg</strong> (174.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 02:43 上传
+
+Open LLM排行榜，对于表中的每个模型，报告了所有独立基准测试的得分，以及不包括GSM8k基准测试的平均得分
+
+H2O-Danube-1.8B在大多数基准测试中的结果与Qwen和Stable LM 2模型相似，除了GSM8k和MMLU，这可以通过模型训练使用的数据来解释，例如，Qwen在数学推理上使用了更好的gsm8k-ScRel数据集
+
+<img src="https://img.saraba1st.com/forum/202402/01/024308hticw1p6j6xcyiyh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240201-024125.jpg</strong> (120.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 02:43 上传
+
+Mt-bench聊天基准测试
+
+该表展示了mt-bench除了编码类别之外的第1轮和第2轮评估结果，结果突出了H2O-Danube-1.8B-Chat的出色表现，尤其是在单轮对话中，它在多个类别和平均Mt-bench得分中都表现最高
+
+<img src="https://img.saraba1st.com/forum/202402/01/024313hodv9fmuxxuzhxm5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240201-024147.jpg</strong> (84.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 02:43 上传
+
+聊天模型的常识推理、世界知识和阅读理解基准测试
+
+H2O-Danube-1.8B-Chat在所有零样本常识推理基准测试中的表现都优于TinyLlama-Chat和Qwen-Chat模型，并与Stablelm-2-Zephyr模型相当
+
+<img src="https://img.saraba1st.com/forum/202402/01/024318u91cvjv6nnt8iq0n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240201-024159.jpg</strong> (80.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 02:43 上传
+
+聊天模型的Open LLM排行榜
+
+H2O-Danube-1.8B-Chat在大多数基准测试中的表现优于TinyLlama-Chat，并与Qwen-Chat和Stablelm-2-Zephyr模型在大多数基准测试中表现相似，除了GSM8k和MMLU
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

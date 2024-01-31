@@ -5994,3 +5994,48 @@ https://x.com/sorawo5084/status/1752313561509208126?s=20</blockquote>
 
 人家日本人都不关心这个，早点认清多好，说不定以后全民低温烤羊变成一个梗也是追番乐趣
 
+
+*****
+
+####  ddy2811  
+##### 11124#       发表于 2024-1-31 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63836571&amp;ptid=2159415" target="_blank">平昭·南宫司卿 发表于 2024-1-31 09:52</a>
+
+说难听点这已经是情商低到不做人的程度了，还「这种程度」</blockquote>
+想想微博用户里面什么人多，不就知道为什么了么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+仗着比萨斜塔胡作非为的东西还指望什么共情？<img src="https://static.saraba1st.com/image/smiley/carton2017/406.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11125#       发表于 2024-1-31 10:45
+
+一烤起来车角色的楼和讨论全没了，比起三天两头看自己喜欢的角色被车，还是烤羊常态化愉快点<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 11126#       发表于 2024-1-31 10:46
+
+这不是熟脸么
+
+[@巴莱-银河漂流](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=486486)
+
+*****
+
+####  金钱与民主  
+##### 11127#       发表于 2024-1-31 10:46
+
+微博这种女厕所上的XXN巴不得你们“ZNG”社区吃瘪呢，有必要搭理牠们的意见吗？
+
+*****
+
+####  Aendst  
+##### 11128#       发表于 2024-1-31 10:52
+
+不过其他地方车角色内容被刷过去没人讨论是好事，但泥漏正常讨论也被烤羊的刷过去了，体验蛮差的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+明天邦tv能不能给mujica推一点比较友好的讨论环境<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

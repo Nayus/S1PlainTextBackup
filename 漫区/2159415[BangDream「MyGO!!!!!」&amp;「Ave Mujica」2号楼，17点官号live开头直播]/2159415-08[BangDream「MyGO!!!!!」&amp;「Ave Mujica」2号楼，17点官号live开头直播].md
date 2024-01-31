@@ -7221,3 +7221,45 @@ tymm已經進化到能和羊寶比了? 上次聽tymm唱歌還是她唱水星魔�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  HANDAIYV  
+##### 11240#       发表于 2024-1-31 17:04
+
+离谱，wsd不会是看不少现地佬去了，指望国人去坐满万人场吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11241#       发表于 2024-1-31 17:07
+
+感觉4月就要遭重，有抽选卷的ppp碟子才4000<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 11242#       发表于 2024-1-31 17:09
+
+武士道这一波本来全是迷惑操作啊，明明把6th这个最大场子的抽选塞新单曲里面还能趁着中华炮没消再刷一波销量的，结果硬要塞bd里面，这不是bd和四单销量双双寄了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿斯顿氢气球  
+##### 11243#       发表于 2024-1-31 17:09
+
+go团有福了，这么着急开割
+
+*****
+
+####  Nomind96  
+##### 11244#       发表于 2024-1-31 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63842380&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-1-31 17:07</a>
+感觉4月就要遭重，有抽选卷的ppp碟子才4000
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next- ...</blockquote>
+一专也有那场的抽选劵，说不定还有救
+

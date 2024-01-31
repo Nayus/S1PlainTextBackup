@@ -7756,3 +7756,11 @@ mygo的确是好作品
 其实没nga版务的核弹，本身也是发泄一下就过了的吧，这种事越堵越来劲 ...</blockquote>
 “防民之口甚于防川”我觉得很多人是读过的，可总有人手上拿着点权力就开始一点不好听的都不想听了然后直接公器私用，后果就是这样的<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 11291#       发表于 2024-1-31 22:00
+
+循环呗。反正今年还是会继续发新单开live接新动画、9月份还是会有yamada生日，11月还是会有tomori生日，明年还是会有采访问新年愿望<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

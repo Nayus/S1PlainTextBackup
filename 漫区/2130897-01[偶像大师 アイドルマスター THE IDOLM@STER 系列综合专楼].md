@@ -361,3 +361,18 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  没取名啊  
+##### 1056#       发表于 2024-1-31 21:57
+
+领到了，但是我不发红包啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 1057#       发表于 2024-1-31 21:58
+
+领了也只能发给家里人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

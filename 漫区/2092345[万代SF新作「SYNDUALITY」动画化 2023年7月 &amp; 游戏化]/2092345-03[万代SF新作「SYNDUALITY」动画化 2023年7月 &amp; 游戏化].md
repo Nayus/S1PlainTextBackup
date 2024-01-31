@@ -3309,3 +3309,20 @@ OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3627#       发表于 2024-1-31 21:44
+
+这咋物理切割啊
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  secretgarnet  
+##### 3628#       发表于 2024-1-31 22:09
+
+ 神tm需要另外一个零式才行救noir，这下看懂op了
+

@@ -6344,3 +6344,39 @@ MyGO动画的访谈哪次不是直接快速翻译然后讨论的？这楼里就�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 11161#       发表于 2024-1-31 12:43
+
+明天能透一下新曲吗 1st听痒了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11162#       发表于 2024-1-31 12:44
+
+才刚开完1st，我觉得新曲可能要等二月下旬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11163#       发表于 2024-1-31 12:44
+
+不敢夢新曲，但我現在在做寶可夢，我希望下期guest是夢以結月茜<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寺川愛美  
+##### 11164#       发表于 2024-1-31 12:45
+
+假如是平面圖那挺好看的，但想到這是個小包總覺得有點怪
+
+*****
+
+####  Aendst  
+##### 11165#       发表于 2024-1-31 12:52
+
+感觉扎手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

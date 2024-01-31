@@ -222,3 +222,16 @@ image.png
 看到前几次的审查投票结果了，除了黄毛弱了点，算上live票5000随便过，
 万南这么亚撒西有自知之明的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰与火的协奏曲  
+##### 1044#       发表于 2024-1-31 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63833503&amp;ptid=2130897" target="_blank">acacaclove 发表于 2024-1-30 22:26</a>
+
+万代终于要有点动作了吗</blockquote>
+梦想成真？
+
+梦醒时分！
+

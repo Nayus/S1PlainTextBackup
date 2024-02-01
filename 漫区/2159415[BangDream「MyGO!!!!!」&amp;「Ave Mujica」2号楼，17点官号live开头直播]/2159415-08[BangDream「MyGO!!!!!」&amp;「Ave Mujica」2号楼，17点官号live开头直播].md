@@ -8578,3 +8578,222 @@ CCC团祥子初三组建。整个第三集都是长袖校服而且没有冬装�
 给鼓子一点母鸡卡震撼</blockquote>
 错误的，祥子大人oblivionis大人这种中二叫法大鼓喊得比粉丝都早，明显最开始就接受这个世界观了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 11371#       发表于 2024-2-1 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854936&amp;ptid=2159415" target="_blank">凡人 发表于 2024-2-1 16:23</a>
+今晚节目是几点来着，想看直播</blockquote>
+9点
+
+*****
+
+####  Nomind96  
+##### 11372#       发表于 2024-2-1 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854936&amp;ptid=2159415" target="_blank">凡人 发表于 2024-2-1 16:23</a>
+今晚节目是几点来着，想看直播</blockquote>
+9点开始
+
+*****
+
+####  实津二三  
+##### 11373#       发表于 2024-2-1 16:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">如果要换楼的话要不要趁此机会分家。
+
+*****
+
+####  笋干爆炸碱  
+##### 11374#       发表于 2024-2-1 16:42
+
+又在卡页？
+
+*****
+
+####  Aendst  
+##### 11375#       发表于 2024-2-1 16:43
+
+ 本帖最后由 Aendst 于 2024-2-1 17:29 编辑 
+
+曲子叫“春日影”，ep03的回忆也明显是只有春天意向，多半是初三春学期限定
+
+学校内的这种演奏会随时都可以办，并不一定定期举行，而且春季开学社团招人可能就会办
+
+按照东京的雨季来说，大概是五月中下旬就会变得多雨，六月进入梅雨季，换校服时间是六月~七月和十月~十一月，如果要移动到十月~次年三月，那应该是会出现冬装的
+
+总的来说，在初三那年的四月末组成乐队、祥子在大致五月末退出，对得上这个只有两首歌的进程，也对的上只有春天回忆戛然而止然后接春天毕业和入学的叙事逻辑
+
+*****
+
+####  实津二三  
+##### 11376#       发表于 2024-2-1 16:52
+
+感觉s1炸了。
+
+*****
+
+####  NODY  
+##### 11377#       发表于 2024-2-1 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854889&amp;ptid=2159415" target="_blank">novalli 发表于 2024-2-1 16:21</a>
+
+日本初中4月开学、7月暑假、9月开学、12月寒假、1月开学、3月毕业
+
+CCC团祥子初三组建。整个第三集都是长袖 ...</blockquote>
+c团并没有活那么久，灯祥春天相遇组团后大概率没到夏天就解散了，也就活了一两个月，不如说如果c团真的感情好到能组满一年那很多东西都会变了
+
+初华明确说过“去年的（c团）演唱会”，所以c团初演是隔年春季可能性直接排除，因为全员穿着长袖校服也排除夏天，外面天气没下雪全员没穿厚衣服也不是冬天
+
+歌名叫春日影也能看出来c团故事主要在春季吧，而且以祥子的看人眼光和队伍管理能力，组个乐队要大半年才能上台演出是不太可能的，一两个月就上台才会被立希说是不是太快
+
+*****
+
+####  NODY  
+##### 11378#       发表于 2024-2-1 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854889&amp;ptid=2159415" target="_blank">novalli 发表于 2024-2-1 16:21</a>
+
+日本初中4月开学、7月暑假、9月开学、12月寒假、1月开学、3月毕业
+
+CCC团祥子初三组建。整个第三集都是长袖 ...</blockquote>
+c团并没有活那么久，灯祥春天相遇组团后大概率没到夏天就解散了，也就活了一两个月，不如说如果c团真的感情好到能组满一年那很多东西都会变了
+
+初华明确说过“去年的（c团）演唱会”，所以c团初演是隔年春季可能性直接排除，因为全员穿着长袖校服也排除夏天，外面天气没下雪全员没穿厚衣服也不是冬天
+
+歌名叫春日影也能看出来c团故事主要在春季吧，而且以祥子的看人眼光和队伍管理能力，组个乐队要大半年才能上台演出是不太可能的，一两个月就上台才会被立希说是不是太快
+
+*****
+
+####  Aendst  
+##### 11379#       发表于 2024-2-1 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡页卡成这样今晚还能正常讨论吗
+
+*****
+
+####  笋干爆炸碱  
+##### 11380#       发表于 2024-2-1 17:07
+
+卡的死去活来了这下<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11381#       发表于 2024-2-1 17:16
+
+ 本帖最后由 御幸一也 于 2024-2-1 17:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854889&amp;ptid=2159415" target="_blank">novalli 发表于 2024-2-1 16:21</a>
+
+日本初中4月开学、7月暑假、9月开学、12月寒假、1月开学、3月毕业
+
+CCC团祥子初三组建。整个第三集都是长袖 ...</blockquote>
+C團沒有活那麼久，日本換夏服一般在6月上旬，她們到炸團那天，一次也沒換夏服，
+
+而且炸團那天的雨看起來像梅雨季節（5月～7月），當然，這個也可以說是剛好那天下雨罷了。
+
+然後高一初祥在天橋上，初華說了是“去年”的live，也就是說演出時間已經不可能是畢業前的春天。
+
+而她們的歌叫 春 日影，觀眾不用在意，但創作者感覺會是故意的，所以我傾向C團只活了一個春天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以C團的活動期間，應該撐死就是4月～6月。
+
+*****
+
+####  御幸一也  
+##### 11382#       发表于 2024-2-1 17:17
+
+我天啊 S1這也太卡了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11383#       发表于 2024-2-1 17:17
+
+到底發生了什麼<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 11384#       发表于 2024-2-1 17:17
+
+🐔团人上节目了，该开新楼了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  凡人  
+##### 11385#       发表于 2024-2-1 17:18
+
+fy
+
+*****
+
+####  Aendst  
+##### 11386#       发表于 2024-2-1 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好奇翻页卡了多少楼
+
+*****
+
+####  凡人  
+##### 11387#       发表于 2024-2-1 17:18
+
+fy
+
+*****
+
+####  凡人  
+##### 11388#       发表于 2024-2-1 17:18
+
+fy
+
+*****
+
+####  御幸一也  
+##### 11389#       发表于 2024-2-1 17:19
+
+這不會吞了半頁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11390#       发表于 2024-2-1 17:20
+
+為什麼要今天出bug，這下不能和樓友愉快看生放了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11391#       发表于 2024-2-1 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会达成卡一整页的壮举吗
+
+*****
+
+####  akirakira  
+##### 11392#       发表于 2024-2-1 17:25
+
+翻页<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11393#       发表于 2024-2-1 17:26
+
+ 本帖最后由 御幸一也 于 2024-2-1 17:29 编辑 
+
+剛翻頁，就又到了要翻下一頁的時候了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+吞了22樓，到第23樓才翻頁，這……
+
+*****
+
+####  笋干爆炸碱  
+##### 11394#       发表于 2024-2-1 17:30
+
+刚被放出来又要卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

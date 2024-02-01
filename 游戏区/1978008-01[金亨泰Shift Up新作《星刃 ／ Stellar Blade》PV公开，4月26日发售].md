@@ -2077,3 +2077,11 @@ NIKKE我不充钱这玩意可以买回来当充了<img src="https://static.sarab
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Onelooker  
+##### 225#       发表于 2024-2-1 17:26
+
+脸比起上两个版本已经救回来不少了
+

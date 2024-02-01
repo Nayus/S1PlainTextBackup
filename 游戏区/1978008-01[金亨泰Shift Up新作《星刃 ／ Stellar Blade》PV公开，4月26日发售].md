@@ -1428,3 +1428,53 @@ PSN页面：
 
 我是真的馋这个游戏，等6月要是没有PC的消息，感觉可以买个PS5了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 157#       发表于 2024-2-1 09:55
+
+有日配就买，脸不太行
+
+*****
+
+####  黑修士  
+##### 158#       发表于 2024-2-1 09:57
+
+感觉整场SOP字面意义上最好看的一个片了，好几件服装都很诱人。
+
+*****
+
+####  Mr.Hopp  
+##### 159#       发表于 2024-2-1 09:57
+
+感觉不如去玩H游戏。。。
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 160#       发表于 2024-2-1 09:58
+
+整备小妹非常好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  热风疾风  
+##### 161#       发表于 2024-2-1 09:59
+
+这人的画风（油腻+小脚女人）是真的看不来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 162#       发表于 2024-2-1 10:00
+
+为啥我感觉女角色都加了雀斑，之前的片子也有吗
+
+*****
+
+####  缺德猫  
+##### 163#       发表于 2024-2-1 10:00
+
+衣服太美了
+

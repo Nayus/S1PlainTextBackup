@@ -1208,3 +1208,11 @@ bgo运营怎么突然诈尸了
 
 最后一天付费石出了仇尼托 这满破卡面真顶啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾尔特翔  
+##### 46047#       发表于 2024-2-1 10:02
+
+打完，小刀低于先放下，妈的QP快见底了，自回体先刷完减半再说
+

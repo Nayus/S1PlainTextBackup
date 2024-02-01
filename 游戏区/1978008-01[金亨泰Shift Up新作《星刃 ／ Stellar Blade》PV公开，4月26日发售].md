@@ -1236,3 +1236,15 @@ PSN页面：
 
 英配和这张脸真对不上吧，强烈要求日配<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iou90  
+##### 136#       发表于 2024-2-1 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848367&amp;ptid=1978008" target="_blank">zhouaa 发表于 2024-2-1 08:56</a>
+别的没看出来换装是真的多
+
+场景美术有点小菜  全是一个色调  感觉回到了虚幻4的时候 ...</blockquote>
+迷宫啥的估计也挺没劲的？怪物好像多样了一些
+

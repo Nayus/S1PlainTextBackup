@@ -58,3 +58,25 @@ jp 百特曼
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hkguty  
+##### 537#       发表于 2024-2-1 09:05
+
+看看对马卧仁王
+
+*****
+
+####  附庸风雅者  
+##### 538#       发表于 2024-2-1 09:10
+
+啊，没刷宝吗，同样是动作类rpg，我喜欢玩仁王高过老头环，就是因为能刷宝<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 539#       发表于 2024-2-1 09:12
+
+唉作作骂作作买，这玩着应该比对马岛爽吧
+

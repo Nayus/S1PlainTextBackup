@@ -7946,3 +7946,22 @@ mujica这一单封面也是纯黑
 
 哎，拉娘<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 11308#       发表于 2024-2-1 11:53
+
+这就是人气前二cp的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11309#         楼主| 发表于 2024-2-1 12:03
+
+<blockquote>hkguty 发表于 2024-2-1 11:01
+第一次看，似乎这系列角色全是用的esp，是esp赞助的系列？但是女主给的吉他感觉外观好朴素，要卖吉他的话不 ...</blockquote>
+esp是赞助商，你说的是顶楼薄荷色那把的话确实素，mygo这两把这是这个系列第5/6把esp吉他了。其实两个都不是常见型号。
+
+前面四把里卖得最好的m2 sayo确实是最华丽的一把（也是人气最高的吉他手），mygo这次销售主力应该是猫猫那把，毕竟猫猫是主音吉他爱音是节奏吉他。邦邦的乐器是在公布加新乐队的时候就一起公布了，分配乐器和设计吉他时间应该更早，那时候esp也不知道谁戏份更重……
+

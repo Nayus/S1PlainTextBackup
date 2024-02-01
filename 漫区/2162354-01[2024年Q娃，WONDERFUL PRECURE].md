@@ -840,3 +840,14 @@ logo 大概率只有一个追加
 也不是没可能，说到底今年op两人物语含量在历代都是数一数二了，估计今年蓝绿都是伪追加待遇，真追加待遇超 ...</blockquote>
 那今年的男q概率下降了不少，不过男同学是第一集就常驻的传统支援役，粉紫关系性我持谨慎悲观态度，蓝绿戏份少点无所谓别来烂活就行，成田大妈主笔也没法期待太多<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 580#       发表于 2024-2-1 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63849671&amp;ptid=2162354" target="_blank">凡人 发表于 2024-2-1 10:23</a>
+
+也不是没可能，说到底今年op两人物语含量在历代都是数一数二了，估计今年蓝绿都是伪追加待遇，真追加待遇超 ...</blockquote>
+猫组的道具一点消息没有，入队估计得10集后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

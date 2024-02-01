@@ -238,3 +238,40 @@ jp 百特曼
 
 火枪连发再带手枪处决，时代确实，变了啊啊啊啊（唱）
 
+
+*****
+
+####  雨翼free  
+##### 558#       发表于 2024-2-1 10:24
+
+这个片比之前好很多，万恶的索尼不出试玩。要是KT自己发行的早有试玩了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 559#       发表于 2024-2-1 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63849302&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-2-1 10:00</a>
+还有两个月就发售了，怎么试玩一版都没有？sony这次极度自信吗？
+
+我记得仁王12都是有两次试玩的 ...</blockquote>
+说了不给demo
+
+*****
+
+####  byisme001  
+##### 560#       发表于 2024-2-1 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63849302&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-2-1 10:00</a>
+还有两个月就发售了，怎么试玩一版都没有？sony这次极度自信吗？
+
+我记得仁王12都是有两次试玩的 ...</blockquote>
+说了不给demo
+
+*****
+
+####  stair楼梯  
+##### 561#       发表于 2024-2-1 10:28
+
+他这个架势系统果然就是特典送的那个流派，可以绑定三个流派，会改变平a动作，所以隼流就是龙哥的动作模组喽……现阶段还不知道武技系统是啥样，太刀那个打断红光的上挑感觉也许是类似卧龙双手剑蓄力化解的gp机制，然后有轻攻击蓄力派生，有很多足踢动作应该是c派生吧，现阶段这个右摇杆架势切换确实蠢 ，不知道正式发售能不能改成之前的三键，或者说r1+四键还有别的用处？
+

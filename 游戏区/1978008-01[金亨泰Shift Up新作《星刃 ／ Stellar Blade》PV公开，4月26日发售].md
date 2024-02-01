@@ -1539,3 +1539,18 @@ PSN页面：
 
 人设建模太好看，没有替代品啊
 
+
+*****
+
+####  社友者  
+##### 172#       发表于 2024-2-1 10:25
+
+联动下nikke的皮肤，谢谢茄子<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonberry  
+##### 173#       发表于 2024-2-1 10:28
+
+官方中文名字确认为《剑星》，专楼标题是不是可以改改
+

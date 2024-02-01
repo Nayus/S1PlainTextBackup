@@ -1419,3 +1419,24 @@ fsn正统后续都扔给三田了 二世冒险 讲的就是五战完结以后 �
 
 —— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Saber琪  
+##### 144#       发表于 2024-2-1 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63846999&amp;ptid=2170097" target="_blank">被子十三 发表于 2024-2-1 01:08</a>
+型月社长是武内不是蘑菇
+你看型月相关各种企划里制作人也都是竹内友崇，没蘑菇什么事</blockquote>
+怎么没蘑菇事了，武内干这些一切的起点不都是让蘑菇的故事被别人看见嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 145#       发表于 2024-2-1 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63846999&amp;ptid=2170097" target="_blank">被子十三 发表于 2024-2-1 01:08</a>
+型月社长是武内不是蘑菇
+你看型月相关各种企划里制作人也都是竹内友崇，没蘑菇什么事</blockquote>
+怎么没蘑菇事了，武内干这些一切的起点不都是让蘑菇的故事被别人看见嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

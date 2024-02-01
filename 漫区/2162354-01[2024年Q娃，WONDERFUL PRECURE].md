@@ -878,3 +878,18 @@ logo 大概率只有一个追加
 毕竟凡是以 ...</blockquote>
 问题在于一切结束后还会变回去狗吗
 
+
+*****
+
+####  凡人  
+##### 583#       发表于 2024-2-1 13:18
+
+主角已经是成年狗了，要变回去也没几年可活，那不如直接在大结局战死算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 584#       发表于 2024-2-1 13:22
+
+我建议是决战前刀掉两只宠物让她们寿终正寝然后灵魂给主人开新形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

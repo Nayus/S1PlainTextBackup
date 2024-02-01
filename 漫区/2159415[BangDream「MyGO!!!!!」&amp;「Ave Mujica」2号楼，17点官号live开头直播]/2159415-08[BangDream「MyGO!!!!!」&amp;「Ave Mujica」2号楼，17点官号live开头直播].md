@@ -8058,3 +8058,49 @@ esp是赞助商，大部分吉他贝斯都是esp的。不过邦邦几个乐队�
 
 我想奶个动画限定的咖啡厅或者服装店联动之类的新柄，鸡狗十个人的那种，刚好今晚生放是鸡狗的人都有<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 11321#       发表于 2024-2-1 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63852236&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-1 13:13</a>
+
+不太相信他们连图都不愿意正常约，但是立绘复用和一柄多卖实在是太震撼了直接更改了我的常识引领时 ...</blockquote>
+武士道是这样的，隔壁少歌手游角色那几个手游立绘柄反反复复卖了五年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11322#       发表于 2024-2-1 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63852236&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-1 13:13</a>
+
+不太相信他们连图都不愿意正常约，但是立绘复用和一柄多卖实在是太震撼了直接更改了我的常识引领时 ...</blockquote>
+因为初华是隐藏pr，其他人大概是没啥希望了。
+
+出预组的话倒是可能有别的柄，所以我在剑指武士道的tcg春季大发表<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11323#       发表于 2024-2-1 13:16
+
+最近又不是没有mygo新柄，mygo五人新柄那还有戏。但mujica查无此团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，怎么还有勇气梦cafe和联动的
+
+*****
+
+####  NODY  
+##### 11324#       发表于 2024-2-1 13:20
+
+ 本帖最后由 NODY 于 2024-2-1 13:22 编辑 
+
+mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说武士道确实是很懒狗的，在少歌体会过喜欢的角色五年都没几个新柄的我很清楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11325#       发表于 2024-2-1 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">感觉可以梦一下卡，就是不知道什么时候才能端上来了
+

@@ -1726,3 +1726,14 @@ PS5
 
 感觉动作有点硬
 
+
+*****
+
+####  缺德猫  
+##### 191#       发表于 2024-2-1 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851239&amp;ptid=1978008" target="_blank">Cranberries 发表于 2024-2-1 11:59</a>
+
+感觉动作有点硬</blockquote>
+片子里除了qte，没怎么展示动作，仅有的几个画面来看，挺垃的
+

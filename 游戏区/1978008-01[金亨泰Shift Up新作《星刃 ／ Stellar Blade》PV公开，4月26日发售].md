@@ -1478,3 +1478,39 @@ PSN页面：
 
 衣服太美了
 
+
+*****
+
+####  zpower  
+##### 164#       发表于 2024-2-1 10:06
+
+喜欢短发妹
+
+*****
+
+####  qiyu1234  
+##### 165#       发表于 2024-2-1 10:06
+
+我感觉这游戏除了处决动作和QTE演出以外，eve的常规战斗机动性似乎没有想象中那么灵活或者说飘逸？
+
+*****
+
+####  jacket  
+##### 166#       发表于 2024-2-1 10:10
+
+正面硬刚长发勇气可嘉，看得人头皮发痒（想洗头）
+
+*****
+
+####  amanohanei  
+##### 167#       发表于 2024-2-1 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">就喜欢第一版又油又幼的,现在的不好看
+
+*****
+
+####  宛若青空  
+##### 168#       发表于 2024-2-1 10:14
+
+我也更喜欢第一版的，感觉要是能把那个造型做成DLC皮肤就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

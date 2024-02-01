@@ -1216,3 +1216,13 @@ bgo运营怎么突然诈尸了
 
 打完，小刀低于先放下，妈的QP快见底了，自回体先刷完减半再说
 
+
+*****
+
+####  Kon-El  
+##### 46048#       发表于 2024-2-1 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">就剩100多石了，大姐姐这次还是放弃了
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

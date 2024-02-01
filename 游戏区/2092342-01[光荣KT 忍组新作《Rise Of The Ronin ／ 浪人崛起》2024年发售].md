@@ -219,3 +219,14 @@ jp 百特曼
 
 我记得仁王12都是有两次试玩的
 
+
+*****
+
+####  Mr.Hopp  
+##### 556#       发表于 2024-2-1 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848769&amp;ptid=2092342" target="_blank">ShiKi847 发表于 2024-2-1 09:31</a>
+
+感觉卖相比龙信2好啊</blockquote>
+龙信1销量700W，光荣500W销量的游戏还没影呢。
+

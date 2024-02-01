@@ -8197,3 +8197,23 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 
 2024-2-1 13:44 上传
 
+
+*****
+
+####  Aendst  
+##### 11333#       发表于 2024-2-1 13:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到了卡名叫毁灭一切 xxxx/xxx/xxxxx的未来
+
+*****
+
+####  DarthAka  
+##### 11334#       发表于 2024-2-1 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63820430&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-1-29 20:32</a>
+
+李世林和羊是不是俩团唯二的关西人，羊那个声优学校还是跑到大坂读的——老家估计没有 ...</blockquote>
+兜兜转转，羊凛关系还是回到关西老乡上去了
+
+估计青木羊应该是迷子集会二人组合里出现可能性最低的，无论角色还是演员都不知道聊啥
+

@@ -903,3 +903,11 @@ logo 大概率只有一个追加
 
 至于寿命论？“爱的力量是无限的！”
 
+
+*****
+
+####  上坂莲华  
+##### 586#       发表于 2024-2-1 13:53
+
+格局打开点，结局是宠物无限寿命了结果主人老死了，快进到我已经失去你300年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

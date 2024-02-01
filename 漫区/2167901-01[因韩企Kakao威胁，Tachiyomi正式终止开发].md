@@ -1696,3 +1696,42 @@ j2k 更新漫画人插件后，漫画人提示用户id已清楚，有人知道�
 导入插件库
 [https://github.com/keiyoushi/extensions](https://github.com/keiyoushi/extensions)
 
+
+*****
+
+####  fredomone  
+##### 143#       发表于 2024-2-1 13:59
+
+ 本帖最后由 fredomone 于 2024-2-1 14:00 编辑 
+
+卡了
+
+*****
+
+####  fredomone  
+##### 144#       发表于 2024-2-1 13:59
+
+ 本帖最后由 fredomone 于 2024-2-1 14:01 编辑 
+
+卡了
+
+*****
+
+####  fredomone  
+##### 145#       发表于 2024-2-1 13:59
+
+ 本帖最后由 fredomone 于 2024-2-1 14:01 编辑 
+
+卡了
+
+*****
+
+####  fredomone  
+##### 146#       发表于 2024-2-1 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63804421&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-1-28 14:03</a>
+76楼。只有拷贝是另外的</blockquote>
+请问，为什么我在插件仓库里加入链接后还是只能看到我已经安装过的插件？
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1186,3 +1186,11 @@ PSN页面：
 
 买买买
 
+
+*****
+
+####  小贝伦  
+##### 130#       发表于 2024-2-1 07:55
+
+什么时候上PC，我要打各种MOD<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

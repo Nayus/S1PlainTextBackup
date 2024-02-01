@@ -1287,3 +1287,37 @@ PSN页面：
 
 不知道会独占多久，打算首发了
 
+
+*****
+
+####  意大利面  
+##### 141#       发表于 2024-2-1 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848443&amp;ptid=1978008" target="_blank">JoelBirch 发表于 2024-2-1 09:04</a>
+
+英配和这张脸真对不上吧，强烈要求日配</blockquote>
+那讲道理岂不是应该韩配？西巴拉玛
+
+*****
+
+####  雨翼free  
+##### 142#       发表于 2024-2-1 09:30
+
+换装好<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">，现在担心的就是游戏体量了
+
+*****
+
+####  洛克萨斯  
+##### 143#       发表于 2024-2-1 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">老金的审美在这个白左牛鬼蛇神横行的年代简直是清流
+
+*****
+
+####  qiyu1234  
+##### 144#       发表于 2024-2-1 09:33
+
+这游戏好多地方有简体中文啊
+
+衣服上 闪烁 超光速，还有原始的那件“撕开”
+

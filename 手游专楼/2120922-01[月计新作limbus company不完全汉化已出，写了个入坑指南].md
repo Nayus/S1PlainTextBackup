@@ -35,3 +35,13 @@
 船长玛丽终于要来了，但是这次抓的是红鲸</blockquote>
 “白鲸被染红了，这都是你的错，以实玛利！”
 
+
+*****
+
+####  Yuzutea  
+##### 533#       发表于 2024-2-1 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啥难度
+
+YJ不会下周又开个80回合的框吧
+

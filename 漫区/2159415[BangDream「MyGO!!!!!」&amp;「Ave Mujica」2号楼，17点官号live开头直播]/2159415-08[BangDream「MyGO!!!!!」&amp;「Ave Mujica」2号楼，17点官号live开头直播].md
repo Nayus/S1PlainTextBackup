@@ -8876,3 +8876,13 @@ CCC团祥子初三组建。整个第三集都是长袖 ...</blockquote>
 
 [https://twitter.com/ki3wii/status/1752627446808224098](https://twitter.com/ki3wii/status/1752627446808224098)
 
+
+*****
+
+####  acgreen  
+##### 11398#       发表于 2024-2-1 18:11
+
+可以参考一下月之森音乐节的时间，祥子听到蝶团的演奏后很快邀请了爽世，应该算是C团的一个起点（如果不考虑祥子和睦）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

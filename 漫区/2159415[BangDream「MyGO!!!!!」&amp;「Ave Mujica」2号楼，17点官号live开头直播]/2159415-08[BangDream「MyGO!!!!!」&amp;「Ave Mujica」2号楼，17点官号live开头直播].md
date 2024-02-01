@@ -7863,3 +7863,12 @@ mygo的确是好作品
  ...</blockquote>
 nonnon竟然是队里的吐槽役吗，原以为会是和米泽李子一起的ボケ三人组<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 11300#       发表于 2024-2-1 10:47
+
+mujica这一单封面也是纯黑
+如果特典还是1st那套图 消费欲望真的大降<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

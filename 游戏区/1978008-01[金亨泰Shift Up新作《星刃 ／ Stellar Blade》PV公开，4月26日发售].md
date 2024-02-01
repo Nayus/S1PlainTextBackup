@@ -1568,3 +1568,19 @@ PSN页面：
 上pc之前好赖有个代餐</blockquote>
 PC上倒是有剑灵风格的小制作H游戏，不过都几年前的了。还有H版生化危机等等。
 
+
+*****
+
+####  BadYanL  
+##### 175#       发表于 2024-2-1 10:51
+
+<img src="https://img.saraba1st.com/forum/202402/01/105123s0vrrzqslyi7ws71.png" referrerpolicy="no-referrer">
+
+<strong>image (2).png</strong> (195.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 10:51 上传
+
+都这程度了，还需要mod吗？
+

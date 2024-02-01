@@ -8886,3 +8886,14 @@ CCC团祥子初三组建。整个第三集都是长袖 ...</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  KirigawaMaki  
+##### 11399#       发表于 2024-2-1 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63856226&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-1 17:58</a>
+
+https://twitter.com/ki3wii/status/1752627446808224098</blockquote>
+双子服装太美好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

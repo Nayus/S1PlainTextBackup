@@ -24,3 +24,13 @@
 
 —— 来自 OnePlus KB2005, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Duncan_Spurs  
+##### 1460#       发表于 2024-2-1 18:33
+
+Test
+
+—— 来自 Google Pixel 6, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

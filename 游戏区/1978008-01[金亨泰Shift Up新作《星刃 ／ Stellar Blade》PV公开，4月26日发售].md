@@ -2018,3 +2018,25 @@ NIKKE我不充钱这玩意可以买回来当充了<img src="https://static.sarab
 
 风怒
 
+
+*****
+
+####  refiver  
+##### 219#       发表于 2024-2-1 16:29
+
+又有人代表别人总结XX不色XX油腻XX的设计根本没人喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们不会真的以为如果没有美术撑着shift up那依托屎一样的游戏玩法能让他们撑到NIKKE和星之刃发售吧
+
+*****
+
+####  cedarmil1  
+##### 220#       发表于 2024-2-1 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853851&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-2-1 16:17</a>
+
+反正也就差60HKD，感觉差不多是DLC价格
+
+看了下日服通常版8980日元，数字豪华版9980日元</blockquote>
+这价格啊, 零售店估计能打成7200円
+

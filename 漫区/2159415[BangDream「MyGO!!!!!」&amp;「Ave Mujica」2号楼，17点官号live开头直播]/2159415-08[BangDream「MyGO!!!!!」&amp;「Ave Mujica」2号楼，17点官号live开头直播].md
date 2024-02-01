@@ -8560,3 +8560,21 @@ CCC团祥子初三组建。整个第三集都是长袖校服而且没有冬装�
 
 如果猜测的时间差不多的话，那么应该是先遇到灯，然后是初华出道，然后是乐队解散。
 
+
+*****
+
+####  凡人  
+##### 11369#       发表于 2024-2-1 16:23
+
+今晚节目是几点来着，想看直播
+
+*****
+
+####  NODY  
+##### 11370#       发表于 2024-2-1 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854690&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-1 16:08</a>
+
+给鼓子一点母鸡卡震撼</blockquote>
+错误的，祥子大人oblivionis大人这种中二叫法大鼓喊得比粉丝都早，明显最开始就接受这个世界观了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

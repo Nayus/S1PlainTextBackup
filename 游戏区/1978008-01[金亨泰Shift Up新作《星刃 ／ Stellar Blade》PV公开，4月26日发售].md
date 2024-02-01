@@ -1825,3 +1825,14 @@ pv五分四十秒左右闪过的那件肚兜？衣服真不错</blockquote>
 
 预购实体版的顾客有机会获得「剑星原声带黑胶唱片」及/或「剑星USB随身碟」等预购特典
 
+
+*****
+
+####  ybfelix  
+##### 198#       发表于 2024-2-1 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63850852&amp;ptid=1978008" target="_blank">ybfelix 发表于 2024-2-1 11:34</a>
+
+看这个pv的口气，什么灭绝另一个种族，后面歌姬还开始唱歌，不会是Macross走向吧 ...</blockquote>
+另外之前没注意过故事背景，这个pv才看到主角是外星还乡团反攻地球，感觉越来越像其实你才是外星人，敌人是变种地球人这种展开的前置
+

@@ -1267,3 +1267,11 @@ bgo运营怎么突然诈尸了
 
 900石头2宝，强行将烟雾镜的狗叫还回来了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 46053#       发表于 2024-2-1 20:05
+
+哇，又轮到我了，10连直接出，这是弥补我去年夏天连吃两井，还是预示着后面要翻车呢?
+

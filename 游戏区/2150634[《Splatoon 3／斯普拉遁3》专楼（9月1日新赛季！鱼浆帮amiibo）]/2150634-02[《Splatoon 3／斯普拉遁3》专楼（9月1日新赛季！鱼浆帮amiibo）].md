@@ -12157,3 +12157,25 @@ tm还有这种bug
 
 我之前一直是日服，但上次分区祭典又不是日服主题，为什么
 
+
+*****
+
+####  KBAC  
+##### 2706#       发表于 2024-2-1 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63857148&amp;ptid=2150634" target="_blank">紫菜粉丝煲 发表于 2024-2-1 19:53</a>
+ 我之前一直是日服，但上次分区祭典又不是日服主题，为什么</blockquote>
+账号分区和游戏内祭典分区是分别选的
+如果你账号是日服账号，进游戏祭典分区没选日区就不能参加日区祭典
+
+*****
+
+####  KBAC  
+##### 2707#       发表于 2024-2-1 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63857148&amp;ptid=2150634" target="_blank">紫菜粉丝煲 发表于 2024-02-01 19:53:47</a>
+我之前一直是日服，但上次分区祭典又不是日服主题，为什么</blockquote>账号分区和游戏内祭典分区是分别选的
+如果你账号是日服账号，进游戏祭典分区没选日区就不能参加日区祭典
+
+ -- 傲娇地来自 Stage1未知客户端
+

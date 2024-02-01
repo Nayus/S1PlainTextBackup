@@ -8260,3 +8260,22 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 
 好像以目前已知的東西也推不出吧
 
+
+*****
+
+####  御幸一也  
+##### 11339#       发表于 2024-2-1 15:27
+
+不過立希當ave第六人我是支持的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11340#       发表于 2024-2-1 15:30
+
+ 本帖最后由 PDQ4 于 2024-2-1 15:32 编辑 
+
+还串门呢，就wsd这个抠比样子，怕不是轮到鸡团有广播得等狗团广播完结，问就是小厂子永远只有精力推一个团。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+已经全身心投入live咧，邦tv能多上几次就是胜利，往好里想已经露脸过了，2nd两个场子那至少保底四五次登场吧。加上杂七杂八，感觉平均每个月看一次鸡团还是有希望的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

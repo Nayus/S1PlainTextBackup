@@ -513,3 +513,14 @@ l可以啊忍组，这次全缝上了
 
 都是实体版70刀，怎么tb价格比龙信贵了小80块<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sopp  
+##### 591#       发表于 2024-2-1 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851923&amp;ptid=2092342" target="_blank">stair楼梯 发表于 2024-2-1 12:47</a>
+
+老实说他现在这个架势系统，看起来是在模仿对马岛，但是收益在什么地方靠这个演示又不咋能看出来，别搞得就 ...</blockquote>
+仁王不就有架势系统么，攻击动作和技能随着架势不同会有变化，需要模仿什么对马岛
+

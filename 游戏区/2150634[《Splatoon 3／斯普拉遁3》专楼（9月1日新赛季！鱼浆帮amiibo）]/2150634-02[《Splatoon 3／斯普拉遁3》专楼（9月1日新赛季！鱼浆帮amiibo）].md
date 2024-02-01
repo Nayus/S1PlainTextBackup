@@ -12112,3 +12112,14 @@ tm还有这种bug
 
 反正打工里文森特给我感觉很差，平时塞一个么算了，毕竟火力是真的高，但这期鲑坝就是三把武器都是抬个手期间就能被拍死的瘸腿武器，针管根本carry不动
 
+
+*****
+
+####  KBAC  
+##### 2701#       发表于 2024-2-1 18:17
+
+<img src="https://s2.loli.net/2024/02/01/y7jZRCXxWBQfoiI.png" referrerpolicy="no-referrer">
+欧服的。
+谁会选周日啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+话说这次分区墨水颜色终于不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

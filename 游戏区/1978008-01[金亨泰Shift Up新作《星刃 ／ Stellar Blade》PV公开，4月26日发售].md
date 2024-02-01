@@ -1745,3 +1745,23 @@ PS5
 
 繁体中文这翻译剑星也太屎了，为啥不用官方的星刃
 
+
+*****
+
+####  mjzs07  
+##### 193#       发表于 2024-2-1 12:26
+
+xb ns pc 手机我都有就是没有ps5 完了
+
+*****
+
+####  缺德猫  
+##### 194#       发表于 2024-2-1 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851598&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-2-1 12:24</a>
+
+繁体中文这翻译剑星也太屎了，为啥不用官方的星刃</blockquote>
+剑灵→剑星
+
+大概是这个思路....
+

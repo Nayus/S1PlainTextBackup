@@ -7976,3 +7976,32 @@ esp是赞助商，你说的是顶楼薄荷色那把的话确实素，mygo这两�
 esp是赞助商，大部分吉他贝斯都是esp的。不过邦邦几个乐队版权和所属比较复杂，也有个别不是esp，你说的是 ...</blockquote>
 因为我对esp的第一印象是frx，看到女主的那把也有在卖就有种这也是esp？的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  氷川日菜  
+##### 11311#       发表于 2024-2-1 12:23
+
+母鸡卡什么时候开广播，想看两队互相串门，感觉节目效果会很好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11312#       发表于 2024-2-1 12:24
+
+唉，卡页
+
+*****
+
+####  氷川日菜  
+##### 11313#       发表于 2024-2-1 12:24
+
+还在卡<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11314#       发表于 2024-2-1 12:25
+
+翻页成功了吗
+

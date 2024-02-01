@@ -1268,3 +1268,11 @@ Selen这很难收场吧，只能说暂时没死
 
 今年总该死了吧，2434！
 
+
+*****
+
+####  バーチャルS1er  
+##### 2975#       发表于 2024-2-1 23:45
+
+复活能力当然是越强越好，如果等几个月再复活，粉丝纯度会下降的厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

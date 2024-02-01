@@ -553,3 +553,15 @@ l可以啊忍组，这次全缝上了
 
 苇名一心模拟器<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  asakura20005  
+##### 595#       发表于 2024-2-1 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851923&amp;ptid=2092342" target="_blank">stair楼梯 发表于 2024-2-1 12:47</a>
+老实说他现在这个架势系统，看起来是在模仿对马岛，但是收益在什么地方靠这个演示又不咋能看出来，别搞得就 ...</blockquote>
+第一个敌人演示那里，在转换架势时可以看到人架势有一个上箭头，天架势有一个下箭头，可能是对特定武器的敌人不同的架势会有加成或惩罚吧，但不确定是和架势有关还是和架势绑定的流派有关
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

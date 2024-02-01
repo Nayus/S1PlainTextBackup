@@ -8228,3 +8228,13 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 兜兜转转，羊凛关系还是回到关西老乡上去了</blockquote>
 灯猫角色回什么地狱绘图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 11336#       发表于 2024-2-1 15:06
+
+有没有go学家解答我一个时间线问题：
+
+是初华先出道，还是祥子先在桥上遇到灯？
+

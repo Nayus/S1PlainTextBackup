@@ -2801,3 +2801,30 @@ nagi直播三连
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lj205  
+##### 19396#       发表于 2024-2-1 15:03
+
+1 9 岁
+
+<img src="https://img.saraba1st.com/forum/202402/01/150251aqf0i1i4ikdvsf63.jpg" referrerpolicy="no-referrer">
+
+<strong>6CF83BB9053ED7427EA2F6AA10B9BB20.jpg</strong> (86.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 15:02 上传
+
+*****
+
+####  渡辺梨加  
+##### 19397#       发表于 2024-2-1 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853675&amp;ptid=2078110" target="_blank">lj205 发表于 2024-2-1 15:03</a>
+1 9 岁</blockquote>
+草，好像是日本在东京奥运会前搞的新要求，不许未成年人拍大尺度写真，AKB48的衰落其实跟这个也有一定关系。估计是这个原因才备注的吧。不过鲤鱼姐的写真也没啥尺度啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

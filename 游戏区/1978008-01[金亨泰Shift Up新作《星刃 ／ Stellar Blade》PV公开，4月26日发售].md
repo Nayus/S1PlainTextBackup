@@ -1844,3 +1844,28 @@ pv五分四十秒左右闪过的那件肚兜？衣服真不错</blockquote>
 
 想要皮肤，又觉得豪华版仅皮肤买了有点凯（）
 
+
+*****
+
+####  虚无连斩  
+##### 200#       发表于 2024-2-1 15:05
+
+有人数了PV说是有22套衣服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BadYanL  
+##### 201#       发表于 2024-2-1 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853485&amp;ptid=1978008" target="_blank">ybfelix 发表于 2024-2-1 14:48</a>
+
+另外之前没注意过故事背景，这个pv才看到主角是外星还乡团反攻地球，感觉越来越像其实你才是外星人，敌人 ...</blockquote>
+敌人的英文名叫NA:tive，属于画公仔画出肠了。
+
+*****
+
+####  Rainwedell  
+##### 202#       发表于 2024-2-1 15:12
+
+NIKKE我不充钱这玩意可以买回来当充了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，PV后半段也看着还算有些意思
+

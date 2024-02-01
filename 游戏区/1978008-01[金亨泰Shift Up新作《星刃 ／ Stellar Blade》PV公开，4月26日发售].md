@@ -1219,3 +1219,20 @@ PSN页面：
 
 还的是屁股来自: iPhone客户端
 
+
+*****
+
+####  zhouaa  
+##### 134#       发表于 2024-2-1 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别的没看出来换装是真的多
+
+场景美术有点小菜  全是一个色调  感觉回到了虚幻4的时候
+
+*****
+
+####  JoelBirch  
+##### 135#       发表于 2024-2-1 09:04
+
+英配和这张脸真对不上吧，强烈要求日配<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -25,3 +25,36 @@
 
 最讨厌的残心回来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 看演示把仁王卧龙都缝进去了，3.22还是先玩浪人了
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 533#       发表于 2024-2-1 08:54
+
+选择和敌人相性好的架势，感觉就是对马岛同款啊
+
+*****
+
+####  zqqwe  
+##### 534#       发表于 2024-2-1 08:59
+
+没刷宝但是耐力还残心回来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  彩虹肥宅  
+##### 535#       发表于 2024-2-1 09:00
+
+jp 百特曼
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  jf8350143  
+##### 536#       发表于 2024-2-1 09:03
+
+这代主角还能捏人么……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

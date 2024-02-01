@@ -1974,3 +1974,47 @@ NIKKE我不充钱这玩意可以买回来当充了<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么感觉su真的好多尼尔粉.....剑星给我感觉就很尼尔2
 
+
+*****
+
+####  RinQ0326  
+##### 214#       发表于 2024-2-1 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854673&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2024-2-1 16:06</a>
+我怎么感觉su真的好多尼尔粉.....剑星给我感觉就很尼尔2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你怎么不说nikke就是在各种致敬nierA，从设定到剧情。
+
+*****
+
+####  RinQ0326  
+##### 215#       发表于 2024-2-1 16:14
+
+风怒
+
+*****
+
+####  汪达  
+##### 216#       发表于 2024-2-1 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854257&amp;ptid=1978008" target="_blank">酒巻真希菜 发表于 2024-2-1 15:39</a>
+
+下载了4k视频驻帧看了，我觉得实机应该是受到ps5的6700显卡拖后腿了，每次预告片都比前一版画质劣化了，现 ...</blockquote>
+感觉看着画面水准和FF7RE差不多啊，国产独立游戏是啥概念？反正今天出的古龙风云录相比是远没这个水平的
+
+*****
+
+####  skgaminger1988  
+##### 217#       发表于 2024-2-1 16:21
+
+ 本帖最后由 skgaminger1988 于 2024-2-1 16:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854257&amp;ptid=1978008" target="_blank">酒巻真希菜 发表于 2024-2-1 15:39</a>
+下载了4k视频驻帧看了，我觉得实机应该是受到ps5的6700显卡拖后腿了，每次预告片都比前一版画质劣化了，现 ...</blockquote>
+这个公司的品味一直很一般，玩过他们手游的话就知道了，角色经常是叠一堆色情要素却得出一点不色甚至有点滑稽的结果
+
+*****
+
+####  skgaminger1988  
+##### 218#       发表于 2024-2-1 16:21
+
+风怒
+

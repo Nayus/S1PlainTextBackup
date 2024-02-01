@@ -1398,3 +1398,33 @@ PSN页面：
 
 韩版尼尔，虽然是动作游戏但其实主要还是冲着女主身材去的
 
+
+*****
+
+####  404489039  
+##### 153#       发表于 2024-2-1 09:45
+
+真好最期待的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eulereld  
+##### 154#       发表于 2024-2-1 09:47
+
+頭飾存在感太高了，可不可以搬到左邊
+
+*****
+
+####  hypnossz86  
+##### 155#       发表于 2024-2-1 09:51
+
+赌一手爆死
+然后光速半价steam开售
+
+*****
+
+####  虚无连斩  
+##### 156#       发表于 2024-2-1 09:53
+
+我是真的馋这个游戏，等6月要是没有PC的消息，感觉可以买个PS5了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

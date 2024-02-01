@@ -41,3 +41,30 @@ artless新作：蜡笔计算机（demo 2月5号发布） [https://store.steampow
 
 宣传片 https: ...</blockquote>风怒编辑
 
+
+*****
+
+####  weiyun  
+##### 170#         楼主| 发表于 2024-2-2 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63855135&amp;ptid=2017380" target="_blank">choukouun 发表于 2024-2-1 16:35</a>
+
+artless新作：蜡笔计算机（demo 2月5号发布） https://store.steampowered.com/app/2650830/
+
+宣传片 https: ...</blockquote>
+14mv2也是快了，新品节有试玩
+
+[https://store.steampowered.com/a ... sweeper_Variants_2/](https://store.steampowered.com/app/2631960/14_Minesweeper_Variants_2/)
+
+*****
+
+####  weiyun  
+##### 171#         楼主| 发表于 2024-2-2 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63855135&amp;ptid=2017380" target="_blank">choukouun 发表于 2024-2-1 16:35</a>
+
+artless新作：蜡笔计算机（demo 2月5号发布） https://store.steampowered.com/app/2650830/
+
+宣传片 https: ...</blockquote>
+蜡笔计算机本身还是物理模拟，只不过目标改成了分类，和蜡笔物理学一样比较有名2d物理游戏world of goo要出2代了
+

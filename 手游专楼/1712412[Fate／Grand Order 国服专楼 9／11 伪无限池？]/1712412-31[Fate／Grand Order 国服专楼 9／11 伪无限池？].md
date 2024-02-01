@@ -1320,3 +1320,11 @@ bgo运营怎么突然诈尸了
 
       300多石又是四宝雨神而库库尔坎一宝都没有，问题是在烟雾镜已经五宝雨神也是一宝烟雾镜也没有，直接把我气笑了，不如跳坑算球<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46059#       发表于 2024-2-1 23:25
+
+烟雾镜要100抽了还是什么都没有……我已经一滴都榨不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
+

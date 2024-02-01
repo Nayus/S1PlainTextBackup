@@ -8174,3 +8174,26 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 动画刚完结那会b站官号10w粉的时候自己约了个稿，然后那个图被旧素材复用又出了一批谷，好像是半个月前就 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……武士道是有什么害怕失传的绝学吗
 
+
+*****
+
+####  skives  
+##### 11331#       发表于 2024-2-1 13:43
+
+所以黑色生日柄的立牌和钥匙链什么时候出
+
+*****
+
+####  笋干爆炸碱  
+##### 11332#       发表于 2024-2-1 13:44
+
+绷，我刚去翻了下狗预组的卡表，之前完全没注意，现在发现原来基本全都直接抠的live视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/01/134408pwmq8n78nomv7ggl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 13:44 上传
+

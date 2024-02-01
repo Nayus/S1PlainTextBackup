@@ -2067,3 +2067,13 @@ NIKKE我不充钱这玩意可以买回来当充了<img src="https://static.sarab
 
 来个demo品鉴一下，P话发售前很多人也不看好甚至有点小透明，成功靠demo扭转局面。
 
+
+*****
+
+####  jy000129  
+##### 224#       发表于 2024-2-1 17:15
+
+对棒游的游戏性一直没啥信心，观望，顺便黄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黑站见
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

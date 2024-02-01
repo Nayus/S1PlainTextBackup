@@ -350,3 +350,13 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">今天给的石头抽到水武藏了……练完才发现以前攒的钱和经验都用完了……下次无限池得好好刷一下了……
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11269#       发表于 2024-2-1 17:22
+
+还有谁的直感没强化过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

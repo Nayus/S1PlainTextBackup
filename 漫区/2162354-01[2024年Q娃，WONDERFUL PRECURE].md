@@ -927,3 +927,20 @@ logo 大概率只有一个追加
 
 就不能是赛博格牵着机械狗看夕阳吗
 
+
+*****
+
+####  linhaitora  
+##### 589#       发表于 2024-2-1 17:18
+
+<blockquote>有骨气的百合 发表于 2024-2-1 17:13
+就不能是赛博格牵着机械狗看夕阳吗</blockquote>
+这个可以有
+
+*****
+
+####  Mr.Giraffe  
+##### 590#       发表于 2024-2-1 17:22
+
+小麦都吃巧克力了，哪里还有什么狗勾寿命论，长大了也要每天和主人戴项圈全果散步哦<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+

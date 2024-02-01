@@ -1554,3 +1554,17 @@ PSN页面：
 
 官方中文名字确认为《剑星》，专楼标题是不是可以改改
 
+
+*****
+
+####  Mr.Hopp  
+##### 174#       发表于 2024-2-1 10:40
+
+ 本帖最后由 Mr.Hopp 于 2024-2-1 10:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63849570&amp;ptid=1978008" target="_blank">hypnossz86 发表于 2024-2-1 10:17</a>
+
+求推荐这种水平的h游戏
+
+上pc之前好赖有个代餐</blockquote>
+PC上倒是有剑灵风格的小制作H游戏，不过都几年前的了。还有H版生化危机等等。
+

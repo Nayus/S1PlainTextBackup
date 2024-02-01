@@ -408,3 +408,11 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 
 没领到，但转念一想我也不给是谁发红包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 1061#       发表于 2024-2-1 10:36
+
+有没有人能解惑一下，为什么近藤玲奈唱歌声音变化这么大，我很喜欢トライアングル这首，这个时候感觉声音还挺软的，怎么到后面完全像换了个人在唱歌？
+

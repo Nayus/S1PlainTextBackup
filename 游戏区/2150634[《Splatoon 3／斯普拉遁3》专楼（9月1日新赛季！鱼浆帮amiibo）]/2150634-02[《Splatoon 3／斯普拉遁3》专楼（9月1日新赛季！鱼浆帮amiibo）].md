@@ -12057,3 +12057,21 @@ tm还有这种bug
 
 又是鲑坝消防栓，满蓄时间够被拍死三回了
 
+
+*****
+
+####  罗克萨斯  
+##### 2697#       发表于 2024-2-1 11:39
+
+竹子似乎很适合参加这类活动，击杀快、能扔垃圾、有强力大招
+
+<img src="https://img.saraba1st.com/forum/202402/01/114009acbbzq8aws2gomgw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-01-11-00-12-124_com.nintendo.znca-edit.jpg</strong> (512.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 11:40 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

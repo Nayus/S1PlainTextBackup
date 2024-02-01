@@ -7895,3 +7895,29 @@ random star的外形还朴素吗<img src="https://static.saraba1st.com/image/smi
 
 合作是有合作的，但外形太非主流的應該也不好賣，就例如random start，外形普通點起碼必要能賣給一般路過群眾
 
+
+*****
+
+####  yoyodream  
+##### 11304#       发表于 2024-2-1 11:36
+
+ 本帖最后由 yoyodream 于 2024-2-1 11:41 编辑 
+
+woc，mygo单团万人场？这么有实力嘛。呜呜呜，mygo真的要让bang换血换成了（
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  笋干爆炸碱  
+##### 11305#       发表于 2024-2-1 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63850037&amp;ptid=2159415" target="_blank">skives 发表于 2024-2-1 10:47</a>
+
+mujica这一单封面也是纯黑
+
+如果特典还是1st那套图 消费欲望真的大降</blockquote>
+我觉得大概率是的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+往好处想起码1st出的是立牌和吧唧，而特典是文件夹生写钥匙扣之类的，制品不一样就是赢
+

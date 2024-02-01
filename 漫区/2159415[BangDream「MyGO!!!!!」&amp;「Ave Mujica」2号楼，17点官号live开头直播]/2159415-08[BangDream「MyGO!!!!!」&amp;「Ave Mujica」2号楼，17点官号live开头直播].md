@@ -8279,3 +8279,191 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 
 已经全身心投入live咧，邦tv能多上几次就是胜利，往好里想已经露脸过了，2nd两个场子那至少保底四五次登场吧。加上杂七杂八，感觉平均每个月看一次鸡团还是有希望的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 11341#       发表于 2024-2-1 15:34
+
+画喵祥黄图的作者被米泽老师点赞了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/01/153432fvizb5tgtp55mtmt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-bfkcXfZ47T3cS140-2ds.jpeg</strong> (507.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 15:34 上传
+
+*****
+
+####  御幸一也  
+##### 11342#       发表于 2024-2-1 15:34
+
+期待今晚<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/01/153411cydnjbziy4bfbfvc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1823.jpeg</strong> (98.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 15:34 上传
+
+[https://twitter.com/morito_shs/status/1752754940983066796](https://twitter.com/morito_shs/status/1752754940983066796)
+
+*****
+
+####  NODY  
+##### 11343#       发表于 2024-2-1 15:35
+
+翻页
+
+*****
+
+####  御幸一也  
+##### 11344#       发表于 2024-2-1 15:35
+
+怎麼泥樓又開始卡頁了，這才到哪裡<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11345#       发表于 2024-2-1 15:36
+
+这楼是不是卡得太早了点，之前那个楼起码是七八百页才开始卡的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11346#       发表于 2024-2-1 15:39
+
+5层才能翻页？之前那楼也没有这么久吧
+
+*****
+
+####  相坂君  
+##### 11347#       发表于 2024-2-1 15:40
+
+个人推测是初华先出道
+
+c团的活动时间大概是初三的4-6月，遇到灯4月这样，然后消失一年
+
+初祥天台约会在高一的换夏季校服前，应该是6月以前，说是一年没见，到底是一年多还是一年不好说
+
+sumimi出现在公众视线，应该也是在初三上半年
+
+但是加入事务所，初华给祥子发消息应该是在初二，具体什么时候无法推定，因为出道也是要培训和准备时间
+
+*****
+
+####  NODY  
+##### 11348#       发表于 2024-2-1 15:41
+
+再翻，卡成这样要不再换个楼吧
+
+*****
+
+####  akirakira  
+##### 11349#       发表于 2024-2-1 15:42
+
+又开始卡页了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11350#       发表于 2024-2-1 15:43
+
+我重新开始研究月亮意象之后创作出了一篇，论Timoris为什么在舞台剧中总是在提示时间<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+月亮意象与时间本身是强相关的，比如月亮历法。我好像在一号楼发过，母鸡卡五个人的名字都可以和月亮联结，分别是祥月，睦月，初月，若月（高度怀疑汉字被定成若麦就是为了这叠醋）以及海月。其中只有海月是完全不指向时间的。
+
+海月最常见的解释-水母，也许与海铃的发型有关系，发尾乱翘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外的意思是文学解，比如海面上映照的月光。
+
+那么这个四人中只有她一个不一样，充满了异质感，Timoris的唱名和其他人偶略有不同，是我毋惧恐惧。如果说因为海月本身缺乏时间指向，所以才在舞台剧中反复提示时间。那么不恐惧恐惧本身可能是因为她之前并没有什么可恐惧的么？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| akirakira| + 1|思路广|
+| Aendst| + 1|思路广|
+| PDQ4| + 1|思路广|
+| 御幸一也| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 11351#       发表于 2024-2-1 15:45
+
+泥樓怎麼這就開始吞得那麼嚴重了
+
+*****
+
+####  相坂君  
+##### 11352#       发表于 2024-2-1 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么卡页了，到底吞了多少条！
+
+*****
+
+####  PDQ4  
+##### 11353#       发表于 2024-2-1 15:47
+
+提到柄就想到难蚌的神蠢曲绘，沙贝wsd竟然还敢拿来出谷。
+
+唉下一套鸡的美图什么时候能看到，爆米的欲望极大的被削弱了。1st那些时尚小垃圾我最喜欢的竟然是俩钥匙扣。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+不知道一单能不能约点好看的图，钥匙扣和杯垫总不能再抠主视觉图吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11354#       发表于 2024-2-1 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854262&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-1 15:39</a>
+
+5层才能翻页？之前那楼也没有这么久吧</blockquote>
+喜報 12樓才翻頁 有點離譜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11355#       发表于 2024-2-1 15:47
+
+这页卡的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11356#       发表于 2024-2-1 15:48
+
+10楼才翻，三分之一页了，要开个临时避难楼方便今晚聊生放吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11357#       发表于 2024-2-1 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854336&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-2-1 15:43</a>
+
+我重新开始研究月亮意象之后创作出了一篇，论Timoris为什么在舞台剧中总是在提示时间
+
+月亮意象与时 ...</blockquote>
+喜歡樓友的解釋<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11358#       发表于 2024-2-1 15:51
+
+水母？海铃hhw推+花音推说<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

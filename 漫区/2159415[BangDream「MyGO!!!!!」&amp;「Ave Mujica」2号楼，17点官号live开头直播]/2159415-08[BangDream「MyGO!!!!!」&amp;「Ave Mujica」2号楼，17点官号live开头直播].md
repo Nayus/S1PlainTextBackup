@@ -8104,3 +8104,62 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">感觉可以梦一下卡，就是不知道什么时候才能端上来了
 
+
+*****
+
+####  Aendst  
+##### 11326#       发表于 2024-2-1 13:24
+
+ 本帖最后由 Aendst 于 2024-2-1 13:29 编辑 
+
+10w粉约稿又是什么，又有新谷了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得双月那套还不错，可惜没有武士道眼光毒辣，体会不到1st视觉图的好
+
+*****
+
+####  Akari  
+##### 11327#       发表于 2024-2-1 13:28
+
+鸡粉只希望黑色生日的柄能多出点谷
+
+海景房太痛了。
+
+柄不在多，在于它是否美。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|正论|
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 11328#       发表于 2024-2-1 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63852352&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-1 13:24</a>
+
+10w粉约稿又是什么，又有新谷了？</blockquote>
+动画刚完结那会b站官号10w粉的时候自己约了个稿，然后那个图被旧素材复用又出了一批谷，好像是半个月前就偷跑的情报了吧
+
+*****
+
+####  Aendst  
+##### 11329#       发表于 2024-2-1 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63852408&amp;ptid=2159415" target="_blank">Akari 发表于 2024-2-1 13:28</a>
+
+鸡粉只希望黑色生日的柄能多出点谷
+
+海景房太痛了。
+
+柄不在多，在于它是否美。 ...</blockquote>
+确实，如果1st视觉图人均黑生日水平他们多抓着卖也没什么怨言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

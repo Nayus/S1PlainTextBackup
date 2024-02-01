@@ -1194,3 +1194,20 @@ PSN页面：
 
 什么时候上PC，我要打各种MOD<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剑起苍斓  
+##### 131#       发表于 2024-2-1 08:23
+
+还是第一版的脸好看
+
+—— 来自 motorola XT2301-5, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ultraseven  
+##### 132#       发表于 2024-2-1 08:24
+
+最开始的脸太幼了吧，现在挺好的
+

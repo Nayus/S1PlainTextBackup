@@ -1584,3 +1584,52 @@ PC上倒是有剑灵风格的小制作H游戏，不过都几年前的了。还�
 
 都这程度了，还需要mod吗？
 
+
+*****
+
+####  宛若青空  
+##### 176#       发表于 2024-2-1 10:58
+
+ 本帖最后由 宛若青空 于 2024-2-1 11:01 编辑 
+
+看了下PlayStation Blog的介绍文章，总结几个要点
+
+·在荒原和沙漠相连的半开放世界冒险
+
+·冒险过程会获得的Exospines和Gears等物品
+
+·解锁天赋树的SP EXP
+
+·服装、配饰、发型都能在游戏里获得各种各样的改变（说不定能还原初版造型，脸的话就没办法了）
+
+·支持HD震动触觉反馈和自适应扳机
+
+·标准版售价：$69.99 / £69.99/ €79.99/ ¥8,980 MSRP
+
+·数字豪华版售价：$79.99 / £79.99/ €89.99/ ¥9,980 MSRP
+
+[https://blog.playstation.com/202 ... ly-on-ps5-april-26/](https://blog.playstation.com/2024/01/31/stellar-blade-arrives-only-on-ps5-april-26/)
+
+*****
+
+####  jyqt  
+##### 177#       发表于 2024-2-1 10:59
+
+有没有nikke mod让我代餐下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 178#       发表于 2024-2-1 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nikke今年的联动还没公布呢，不会就是和这个联动吧
+
+*****
+
+####  crosz85  
+##### 179#       发表于 2024-2-1 11:04
+
+本来不想买的，但是二弟叫我买
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

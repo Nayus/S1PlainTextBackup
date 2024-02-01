@@ -7872,3 +7872,11 @@ nonnon竟然是队里的吐槽役吗，原以为会是和米泽李子一起的�
 mujica这一单封面也是纯黑
 如果特典还是1st那套图 消费欲望真的大降<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 11301#       发表于 2024-2-1 11:01
+
+第一次看，似乎这系列角色全是用的esp，是esp赞助的系列？但是女主给的吉他感觉外观好朴素，要卖吉他的话不是应该给个酷炫一点的
+

@@ -8907,3 +8907,315 @@ https://twitter.com/ki3wii/status/1752627446808224098</blockquote>
 
 然后c团也是光速建团光速散团
 
+
+*****
+
+####  Oneessa  
+##### 11401#       发表于 2024-2-1 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63856002&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-02-01 17:34:46</a>
+我推定的是4月遇到灯，然后开始组乐队，6月换夏季校服前C团解散，C团存在时间大概2个半月左右。
+
+月之森演 ...</blockquote>我印象中很多考证都认为crychic的组建到解散是2019年五月到六月
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Oneessa  
+##### 11402#       发表于 2024-2-1 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63856002&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-02-01 17:34:46</a>
+我推定的是4月遇到灯，然后开始组乐队，6月换夏季校服前C团解散，C团存在时间大概2个半月左右。
+
+月之森演 ...</blockquote>我印象中很多考证都认为crychic的组建到解散是2019年五月到六月
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 11403#       发表于 2024-2-1 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63856816&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-1 19:09</a>
+
+根据蝶动画是蝶两次主线后的时间点且在暑假，月之森音乐祭最多也就是四五月，也就是说蝶团建团也就一两个月 ...</blockquote>
+祥子掉坑好快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Oneessa  
+##### 11404#       发表于 2024-2-1 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63857027&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-02-01 19:40:00</a>
+祥子掉坑好快啊</blockquote>应该就是听说有这么回事或者是听了一次live就上头开始找人了？类似赶时髦那种
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  紫吹兰  
+##### 11405#         楼主| 发表于 2024-2-1 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63855786&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-1 17:17</a>
+
+到底發生了什麼</blockquote>
+看了下两三页的帖子里外楼数都不一样，至少从第二页就开始卡了
+
+*****
+
+####  紫吹兰  
+##### 11406#         楼主| 发表于 2024-2-1 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854412&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-1 15:48</a>
+
+10楼才翻，三分之一页了，要开个临时避难楼方便今晚聊生放吗</blockquote>
+我估计临时楼不超过一页就要卡
+
+*****
+
+####  66367749  
+##### 11407#       发表于 2024-2-1 20:35
+
+晚上的节目网上在哪能看？
+
+*****
+
+####  kivz  
+##### 11408#       发表于 2024-2-1 20:42
+
+这mujica不得多来点傻白甜小祥回忆录<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寺川愛美  
+##### 11409#       发表于 2024-2-1 20:47
+
+ 本帖最后由 寺川愛美 于 2024-2-1 20:48 编辑 
+
+【新春特番】新春特别定制大富翁游戏 之 青木VS进藤 Part.1】[https://www.bilibili.com/video/B ... fc3bf216bc91&amp;t=1286](https://www.bilibili.com/video/BV1dw411j7iE/?share_source=copy_web&amp;vd_source=dd3f27175069efffb209fc3bf216bc91&amp;t=1286)
+
+行吧，括號有點加戲了，能體諒
+
+*****
+
+####  acgreen  
+##### 11410#       发表于 2024-2-1 20:47
+
+如果月之森音乐节只有一天，那么祥子就是当天邀请了爽世。我一直觉得祥子是个很率性的人，把她的想法和经历分析得很复杂有点怪
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  IWS2000  
+##### 11411#       发表于 2024-2-1 20:58
+
+<img src="https://img.saraba1st.com/forum/202402/01/205853fwf6dalabbzllfzh.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1706792325744.jpg</strong> (26.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 20:58 上传
+
+Image_1706792256536.jpg
+(252.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202402/01/205825g3zasxd4nt4s6xus.jpg" referrerpolicy="no-referrer">
+
+Image_1706792259754.jpg
+(276.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202402/01/205826ln7ggirz77uoiovk.jpg" referrerpolicy="no-referrer">
+
+Image_1706792262717.jpg
+(243.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202402/01/205826lyte6ev0vfcrf9cn.jpg" referrerpolicy="no-referrer">
+
+Image_1706792265709.jpg
+(216.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202402/01/205826ydvjkhifdbkvnz0h.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 11412#       发表于 2024-2-1 21:02
+
+<img src="https://img.saraba1st.com/forum/202402/01/210147rv8bpgj5zjjpk4vr.png" referrerpolicy="no-referrer">
+
+<strong>)R8PA0VC6VAEADKPC0VU@EO.png</strong> (58.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 21:01 上传
+
+开 幕 雷 击
+
+*****
+
+####  凡人  
+##### 11413#       发表于 2024-2-1 21:03
+
+高尾的衣服很鸡团
+
+*****
+
+####  Aloereed  
+##### 11414#       发表于 2024-2-1 21:10
+
+s1炸了？
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11415#       发表于 2024-2-1 21:16
+
+你们这是在破壊母鸡卡世界观啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フミさん  
+##### 11416#       发表于 2024-2-1 21:16
+
+上邦tv也要保持的母鸡卡的世界观。。。
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11417#       发表于 2024-2-1 21:16
+
+怎么又卡了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11418#       发表于 2024-2-1 21:16
+
+还不能翻页？
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11419#       发表于 2024-2-1 21:16
+
+1
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11420#       发表于 2024-2-1 21:16
+
+2
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11421#       发表于 2024-2-1 21:17
+
+。。。。。。能开新楼吗？<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novalli  
+##### 11422#       发表于 2024-2-1 21:18
+
+我说C团可能在很后面只是最极端的猜想，也就是假设第三集直接把夏天跳过去了，从排练直接跳到公演，当然这种假设的可能性很小。
+实际上我在排时间的时候在想，初华家应该不在东京吧？如果她出道时间不是很久的话，那么有可能是高中到东京读书的，那么初中的时候她只是为了看C团演出去了东京？还是有其他事情？还是初中她已经在东京上学了？从小时候到高中之前的初华明显和祥子还有联系，但却完全没有表现，有点奇怪。出道这种事对人生轨迹的影响应该是很大的，一点点生活细节都有可能看出明显的区别，说不定“出道”本身也有暗线，所以要完全隐藏起来。
+另外初华在学校里似乎没有任何和其他人超出打招呼的交流，那么海玲是初华推荐的还是祥子直接找的？似乎都有可能。
+话说C团是在哪演出的？circle？还是学校？从有公开讨论来看应该不是学校里。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  jerryoq1  
+##### 11423#       发表于 2024-2-1 21:18
+
+卡页了？
+
+*****
+
+####  6030sylar  
+##### 11424#       发表于 2024-2-1 21:21
+
+<img src="https://img.saraba1st.com/forum/202402/01/212151vp2rrc4n2og4kler.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>32df5c7214d3fa0bbde82cdb859fb621.jpeg</strong> (9.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 21:21 上传
+
+*****
+
+####  ytttsuuuba  
+##### 11425#       发表于 2024-2-1 21:24
+
+又卡了
+
+*****
+
+####  安洁莉娜  
+##### 11426#       发表于 2024-2-1 21:25
+
+赶在成为客服小妹之前拯救三个问题儿童，大祥老师的操作我给满分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 11427#       发表于 2024-2-1 21:25
+
+<img src="https://img.saraba1st.com/forum/202402/01/212551rdfqq6yifodniyll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 21:25 上传
+
+*****
+
+####  KirigawaMaki  
+##### 11428#       发表于 2024-2-1 21:26
+
+笑场率100%
+
+*****
+
+####  kivz  
+##### 11429#       发表于 2024-2-1 21:26
+
+ 本帖最后由 kivz 于 2024-2-1 21:40 编辑 
+
+狠狠地卡楼<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+还不翻页，咱重开吧 @紫吹兰  
+
+*****
+
+####  salic428  
+##### 11430#       发表于 2024-2-1 21:33
+
+路过说一句，至少安卓鹅球是能看到“正确的”楼层数的，比如我点进来发这一条的时候显示是11399，所以我发完之后下一条应该就能翻页了
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

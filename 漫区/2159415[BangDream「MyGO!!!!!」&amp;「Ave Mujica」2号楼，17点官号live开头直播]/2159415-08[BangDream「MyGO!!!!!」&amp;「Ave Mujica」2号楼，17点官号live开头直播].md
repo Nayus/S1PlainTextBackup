@@ -8217,3 +8217,14 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 
 估计青木羊应该是迷子集会二人组合里出现可能性最低的，无论角色还是演员都不知道聊啥
 
+
+*****
+
+####  ddy2811  
+##### 11335#       发表于 2024-2-1 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63852814&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-1 13:59</a>
+
+兜兜转转，羊凛关系还是回到关西老乡上去了</blockquote>
+灯猫角色回什么地狱绘图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -67,3 +67,13 @@ test
 
 —— 来自 Google Pixel C, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  闻道沐心  
+##### 1464#       发表于 2024-2-1 23:19
+
+测试
+
+—— 来自 Xiaomi M2105K81AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1238,3 +1238,18 @@ http://yaraon-blog.com/archives/251362
 
 怎么selen没死kyo死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  请问有猪扒饭吗  
+##### 2971#       发表于 2024-2-1 23:01
+
+不如说kyo被那么多人劈了那么久，怎么才死
+
+*****
+
+####  CarlSteve  
+##### 2972#       发表于 2024-2-1 23:14
+
+Selen这很难收场吧，只能说暂时没死
+

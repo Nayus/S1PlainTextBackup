@@ -416,3 +416,14 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 
 有没有人能解惑一下，为什么近藤玲奈唱歌声音变化这么大，我很喜欢トライアングル这首，这个时候感觉声音还挺软的，怎么到后面完全像换了个人在唱歌？
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1062#       发表于 2024-2-1 11:05
+
+我们学校的p群为了这个专门拉了个微信群发红包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+再说了，可以不发，但不能没有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

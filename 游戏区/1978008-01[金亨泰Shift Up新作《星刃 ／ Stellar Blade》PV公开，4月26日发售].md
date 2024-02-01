@@ -1633,3 +1633,30 @@ PC上倒是有剑灵风格的小制作H游戏，不过都几年前的了。还�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  雨翼free  
+##### 180#       发表于 2024-2-1 11:06
+
+怎么这游戏也要70美刀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  diectt  
+##### 181#       发表于 2024-2-1 11:10
+
+随便数了下，10套衣服往上跑，而且绝大部分衣服都不错，馋了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 182#       发表于 2024-2-1 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63850222&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-2-1 10:58</a>
+看了下PlayStation Blog的介绍文章，总结几个要点
+
+·在荒原和沙漠相连的半开放世界冒险</blockquote>
+平台是啥
+

@@ -294,3 +294,16 @@ jp 百特曼
 
 看着卖相比卧龙好不少啊，后面会上pc吗？来自: iPhone客户端
 
+
+*****
+
+####  izayoi39  
+##### 564#       发表于 2024-2-1 11:07
+
+ 本帖最后由 izayoi39 于 2024-2-1 11:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63849302&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-2-1 10:00</a>
+还有两个月就发售了，怎么试玩一版都没有？sony这次极度自信吗？
+
+我记得仁王12都是有两次试玩的 ...</blockquote>
+因为浪人本质上是索尼的第二方游戏，索尼的游戏基本上是不会出试玩的。顺带一提上pc也可以参考现在索尼的操作，基本就是一年以后开始上pc
+

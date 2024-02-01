@@ -7965,3 +7965,14 @@ esp是赞助商，你说的是顶楼薄荷色那把的话确实素，mygo这两�
 
 前面四把里卖得最好的m2 sayo确实是最华丽的一把（也是人气最高的吉他手），mygo这次销售主力应该是猫猫那把，毕竟猫猫是主音吉他爱音是节奏吉他。邦邦的乐器是在公布加新乐队的时候就一起公布了，分配乐器和设计吉他时间应该更早，那时候esp也不知道谁戏份更重……
 
+
+*****
+
+####  hkguty  
+##### 11310#       发表于 2024-2-1 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851288&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-1 12:03</a>
+
+esp是赞助商，大部分吉他贝斯都是esp的。不过邦邦几个乐队版权和所属比较复杂，也有个别不是esp，你说的是 ...</blockquote>
+因为我对esp的第一印象是frx，看到女主的那把也有在卖就有种这也是esp？的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

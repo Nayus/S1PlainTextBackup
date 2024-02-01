@@ -851,3 +851,17 @@ logo 大概率只有一个追加
 也不是没可能，说到底今年op两人物语含量在历代都是数一数二了，估计今年蓝绿都是伪追加待遇，真追加待遇超 ...</blockquote>
 猫组的道具一点消息没有，入队估计得10集后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  毛头小希  
+##### 581#       发表于 2024-2-1 12:14
+
+ 本帖最后由 毛头小希 于 2024-2-1 12:16 编辑 
+
+看有人感慨两人待遇多么厉害我就去看了眼OP，感觉……如果代换成一人一狗的话也就一般般的程度
+
+毕竟凡是以狗为主题的二次元作品，99%以上都会不遗余力地描述狗有多么知恩图报粘主人。一个人类少女粘另一个人类少女还会感叹一下多么深厚的感情多么贴贴或者好奇一下这个关系是怎么产生的，狗粘主人就，啊这不理所当然么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+估计到了正片里也会是差不多的效果吧，或许能演出很感人的段子，但是不会当成百合贴贴，而是当成写给霓虹汪星人名作比如《忠犬xx》或者《xxxx的犬》的情书<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

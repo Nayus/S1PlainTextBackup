@@ -2048,3 +2048,14 @@ NIKKE我不充钱这玩意可以买回来当充了<img src="https://static.sarab
 
 感觉像韩版暗黑血统
 
+
+*****
+
+####  n5965315  
+##### 222#       发表于 2024-2-1 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851598&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-2-1 12:24</a>
+
+繁体中文这翻译剑星也太屎了，为啥不用官方的星刃</blockquote>
+繁中翻译不是一直一坨？
+

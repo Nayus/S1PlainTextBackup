@@ -911,3 +911,11 @@ logo 大概率只有一个追加
 
 格局打开点，结局是宠物无限寿命了结果主人老死了，快进到我已经失去你300年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 587#       发表于 2024-2-1 17:01
+
+大决战开打前寿命论来了，带着必死的决心去打boss，打完了做好准备去死了气氛都到了，竟然没有死吗，原来是因为巴拉巴拉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

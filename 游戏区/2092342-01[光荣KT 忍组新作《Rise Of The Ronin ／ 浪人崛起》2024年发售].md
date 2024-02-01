@@ -565,3 +565,16 @@ l可以啊忍组，这次全缝上了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  放大镜  
+##### 596#       发表于 2024-2-1 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854232&amp;ptid=2092342" target="_blank">stair楼梯 发表于 2024-2-1 15:37</a>
+
+我的意思是他现在的这个架势克制系统。。。。</blockquote>
+你有没有听说过一个叫三国无双的游戏
+
+怎么一个锭剪帕系统都能认亲的？
+

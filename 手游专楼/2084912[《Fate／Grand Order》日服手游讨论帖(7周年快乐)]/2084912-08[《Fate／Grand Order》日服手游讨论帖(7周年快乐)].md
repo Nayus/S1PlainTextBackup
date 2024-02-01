@@ -360,3 +360,20 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  khxooo  
+##### 11270#       发表于 2024-2-1 17:35
+
+终于，最后一个活动从者到手了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 11271#       发表于 2024-2-1 17:39
+
+終於都補回聖誕黑貞和黑呆了
+
+但聖誕小太陽你又來?
+

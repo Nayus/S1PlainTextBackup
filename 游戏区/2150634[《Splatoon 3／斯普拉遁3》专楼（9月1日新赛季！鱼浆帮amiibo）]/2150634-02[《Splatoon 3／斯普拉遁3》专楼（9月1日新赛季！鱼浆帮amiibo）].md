@@ -12094,3 +12094,13 @@ tm还有这种bug
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Humpy  
+##### 2699#       发表于 2024-2-1 17:42
+
+之前一直涂地和打工最近两个赛季才开始打真格的人终于上了s+0了……
+
+文森贴牌虽然在大佬眼里评价不高但对我这种中老年反应的人来说真是好武器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

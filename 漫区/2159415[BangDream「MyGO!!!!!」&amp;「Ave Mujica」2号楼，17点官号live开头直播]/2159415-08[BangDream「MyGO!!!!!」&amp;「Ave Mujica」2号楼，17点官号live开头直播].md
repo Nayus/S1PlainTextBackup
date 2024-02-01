@@ -8897,3 +8897,13 @@ CCC团祥子初三组建。整个第三集都是长袖 ...</blockquote>
 https://twitter.com/ki3wii/status/1752627446808224098</blockquote>
 双子服装太美好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 11400#       发表于 2024-2-1 19:09
+
+根据蝶动画是蝶两次主线后的时间点且在暑假，月之森音乐祭最多也就是四五月，也就是说蝶团建团也就一两个月祥子就被打动了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+然后c团也是光速建团光速散团
+

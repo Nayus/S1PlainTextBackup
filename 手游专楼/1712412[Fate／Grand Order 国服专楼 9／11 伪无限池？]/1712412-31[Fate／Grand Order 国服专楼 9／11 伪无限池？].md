@@ -1295,3 +1295,20 @@ bgo运营怎么突然诈尸了
 
 今天十连就出了库库尔坎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 46056#       发表于 2024-2-1 22:04
+
+最后的呼符单抽出了，不用氪金了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+*****
+
+####  溯夜  
+##### 46057#       发表于 2024-2-1 22:10
+
+补了一宝艾蕾，二宝有机会上班了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

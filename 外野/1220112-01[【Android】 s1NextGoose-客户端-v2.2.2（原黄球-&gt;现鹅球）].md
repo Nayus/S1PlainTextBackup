@@ -34,3 +34,13 @@ Test
 
 —— 来自 Google Pixel 6, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  macos  
+##### 1461#       发表于 2024-2-1 22:11
+
+回复会服务器解析错误
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

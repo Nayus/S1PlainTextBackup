@@ -57,3 +57,13 @@ Test
 —— 来自 HUAWEI KKG-AN00, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
 主要还是因为论坛服务器炸了，现在所有回复数都不会更新，返回给客户端的参数应该也出问题了
 
+
+*****
+
+####  EP2  
+##### 1463#       发表于 2024-2-1 23:05
+
+test
+
+—— 来自 Google Pixel C, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

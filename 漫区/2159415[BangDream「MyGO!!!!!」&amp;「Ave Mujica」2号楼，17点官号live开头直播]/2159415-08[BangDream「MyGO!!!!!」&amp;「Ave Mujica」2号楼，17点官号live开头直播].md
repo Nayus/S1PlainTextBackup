@@ -9219,3 +9219,259 @@ s1炸了？
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kivz  
+##### 11431#       发表于 2024-2-1 21:35
+
+干脆开新楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 11432#       发表于 2024-2-1 21:36
+
+又卡了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 11433#       发表于 2024-2-1 21:37
+
+<img src="https://img.saraba1st.com/forum/202402/01/213749aaeay62d0w6004qe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 21:37 上传
+
+*****
+
+####  miomio123  
+##### 11434#       发表于 2024-2-1 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63857966&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-1 21:25</a></blockquote>
+什么b表情啊
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  紫吹兰  
+##### 11435#         楼主| 发表于 2024-2-1 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63857983&amp;ptid=2159415" target="_blank">kivz 发表于 2024-2-1 21:26</a>
+
+狠狠地卡楼
+
+还不翻页，咱&amp;#x9 ...</blockquote>
+重开估计也卡，现在新楼很多翻不到第二页……
+
+*****
+
+####  Arrogate  
+##### 11436#       发表于 2024-2-1 21:44
+
+还在卡？
+
+*****
+
+####  ytttsuuuba  
+##### 11437#       发表于 2024-2-1 21:45
+
+完全看不到最新的了
+
+*****
+
+####  九陌狂游  
+##### 11438#       发表于 2024-2-1 21:45
+
+明明这么精彩的晚上我却看不到漏油的解读，我恨<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フミさん  
+##### 11439#       发表于 2024-2-1 21:51
+
+<img src="https://img.saraba1st.com/forum/202402/01/215142lyq2epw3pppsg3cc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (199.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 21:51 上传
+
+*****
+
+####  傘木希美  
+##### 11440#       发表于 2024-2-1 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63858044&amp;ptid=2159415" target="_blank">salic428 发表于 2024-2-1 21:33</a>
+路过说一句，至少安卓鹅球是能看到“正确的”楼层数的，比如我点进来发这一条的时候显示是11399，所以我发 ...</blockquote>
+但好像不回复还是会卡
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 11441#       发表于 2024-2-1 22:02
+
+爽看，期待下一次有鸡团的生放，想看米泽。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+初祥成分狠狠补充了，等一个烤肉<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 11442#       发表于 2024-2-1 22:03
+
+还不翻页<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  harukage  
+##### 11443#       发表于 2024-2-1 22:05
+
+下一期还有乐子看，mika羊凛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以期待到时候要怎么烤羊了
+
+*****
+
+####  kivz  
+##### 11444#       发表于 2024-2-1 22:05
+
+要不搞个备用群吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 11445#       发表于 2024-2-1 22:11
+
+第1次看邦tv，感觉好水啊
+
+*****
+
+####  skives  
+##### 11446#       发表于 2024-2-1 22:13
+
+这衣品一看就是爱音
+
+*****
+
+####  寺川愛美  
+##### 11447#       发表于 2024-2-1 22:13
+
+是S1不行了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11448#       发表于 2024-2-1 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63857871&amp;ptid=2159415" target="_blank">novalli 发表于 2024-2-1 21:18</a>
+
+我说C团可能在很后面只是最极端的猜想，也就是假设第三集直接把夏天跳过去了，从排练直接跳到公演，当然这 ...</blockquote>
+空窗期假药是造过一些的，但已知情报实在太少了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 11449#       发表于 2024-2-1 22:18
+
+ave mujica的世界观破坏了
+
+IMG_1044.jpeg
+(187.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 22:17 上传
+
+<img src="https://img.saraba1st.com/forum/202402/01/221740ak7q1iw44iws2wa5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  septer  
+##### 11450#       发表于 2024-2-1 22:21
+
+卡页吗？
+
+*****
+
+####  [皆神孝介]  
+##### 11451#       发表于 2024-2-1 22:30
+
+用网页和S1 next goose客户端看到的最新楼层都是11430L
+
+*****
+
+####  Aendst  
+##### 11452#       发表于 2024-2-1 22:34
+
+第一次觉得邦tv时间过得好快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 11453#       发表于 2024-2-1 22:34
+
+好像卡页拉完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安洁莉娜  
+##### 11454#       发表于 2024-2-1 22:42
+
+原来灯和祥子的部分设定来自初设的ksm和saaya，唉，初设好有意思。尤其是二人是坐在同一个位置的笔友这个设定，为什么要放弃啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+我们高三的考试会换教室的，我曾经就和一个位子的原主人聊天，现在印象还很深，第一次把写的诗给不认识的人看
+
+*****
+
+####  NODY  
+##### 11455#       发表于 2024-2-1 22:45
+
+鼓这次生放强调了好几次羡慕mujica感情好，还强调mygo才刚刚开始，是在暗示什么我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11456#         楼主| 发表于 2024-2-1 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854412&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-1 15:48</a>
+
+10楼才翻，三分之一页了，要开个临时避难楼方便今晚聊生放吗</blockquote>
+我估计临时楼不超过一页就要卡
+
+*****
+
+####  御幸一也  
+##### 11457#       发表于 2024-2-1 22:51
+
+S1今天炸了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11458#       发表于 2024-2-1 22:54
+
+立希孕妇装+民工外套，猫猫乞丐补丁+情趣蕾丝睡衣外穿，邦邦的画师脑子真的没被车创过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+记得之前楼里有mujica厨问我愿不愿意交换我推的待遇，我只能说这个逼衣服谁爱穿谁穿吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11459#       发表于 2024-2-1 23:06
+
+我只是好奇這邊到底卡了多少樓，要多久才能翻頁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 11460#       发表于 2024-2-1 23:07
+
+笑死我了 这楼
+

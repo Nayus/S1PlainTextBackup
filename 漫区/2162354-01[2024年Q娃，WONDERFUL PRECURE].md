@@ -794,3 +794,30 @@ OP都是主仆组合，追加大概率两个人吧。
 反正也有满薰这种到了希望之力都不给正编的生错时代的前辈在</blockquote>
 满薰我记得说是成田良美接手剧本后才加进去的，所以商业上根本没有q娃的位置给她俩留（不过还是惨）
 
+
+*****
+
+####  凡人  
+##### 576#       发表于 2024-2-1 10:14
+
+<img src="https://img.saraba1st.com/forum/202402/01/101406gp3q3q3dygafvsdx.jpg" referrerpolicy="no-referrer">
+
+<strong>4066f503738da97786a74513f651f8198718e371.jpg</strong> (8.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 10:14 上传
+
+logo 大概率只有一个追加
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  modedd  
+##### 577#       发表于 2024-2-1 10:20
+
+这颜色不像兔子啊，有没有可能追加不是初期登场角色
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

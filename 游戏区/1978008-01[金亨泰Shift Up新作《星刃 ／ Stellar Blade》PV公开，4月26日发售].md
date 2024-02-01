@@ -1514,3 +1514,28 @@ PSN页面：
 
 我也更喜欢第一版的，感觉要是能把那个造型做成DLC皮肤就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hypnossz86  
+##### 169#       发表于 2024-2-1 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63849237&amp;ptid=1978008" target="_blank">Mr.Hopp 发表于 2024-2-1 09:57</a>
+感觉不如去玩H游戏。。。</blockquote>
+求推荐这种水平的h游戏
+上pc之前好赖有个代餐
+
+*****
+
+####  霖岚_  
+##### 170#       发表于 2024-2-1 10:21
+
+为啥死活不公布售价……
+
+*****
+
+####  sandro  
+##### 171#       发表于 2024-2-1 10:23
+
+人设建模太好看，没有替代品啊
+

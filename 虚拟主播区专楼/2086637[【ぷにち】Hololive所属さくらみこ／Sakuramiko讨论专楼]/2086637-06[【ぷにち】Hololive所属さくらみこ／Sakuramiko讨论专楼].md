@@ -6462,3 +6462,14 @@ miko出门之后fbk和星街好像昨天也没玩pal了，怎么就突然一起�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊，还以为你瞎说的
 
+
+*****
+
+####  渡鸦骑士  
+##### 8110#       发表于 2024-2-2 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828976&amp;ptid=2086637" target="_blank">holoan 发表于 2024-1-30 15:26</a>
+miko出门之后fbk和星街好像昨天也没玩pal了，怎么就突然一起停了</blockquote>
+星街说都是无聊的准备工作没什么好玩的了。
+然后正好等咪口回来了明天一起打传说<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

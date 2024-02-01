@@ -44,3 +44,16 @@ Test
 
 —— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pgain2004  
+##### 1462#       发表于 2024-2-1 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63858390&amp;ptid=1220112" target="_blank">macos 发表于 2024-2-1 22:11</a>
+
+回复会服务器解析错误
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+主要还是因为论坛服务器炸了，现在所有回复数都不会更新，返回给客户端的参数应该也出问题了
+

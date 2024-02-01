@@ -865,3 +865,16 @@ logo 大概率只有一个追加
 
 估计到了正片里也会是差不多的效果吧，或许能演出很感人的段子，但是不会当成百合贴贴，而是当成写给霓虹汪星人名作比如《忠犬xx》或者《xxxx的犬》的情书<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 582#       发表于 2024-2-1 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851456&amp;ptid=2162354" target="_blank">毛头小希 发表于 2024-2-1 12:14</a>
+
+看有人感慨两人待遇多么厉害我就去看了眼OP，感觉……如果代换成一人一狗的话也就一般般的程度
+
+毕竟凡是以 ...</blockquote>
+问题在于一切结束后还会变回去狗吗
+

@@ -8020,3 +8020,41 @@ esp是赞助商，大部分吉他贝斯都是esp的。不过邦邦几个乐队�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到制品不一样就会想到那个动画视觉图一柄多卖，真的一点消费欲望都没有，可能这就是武士道吧
 
+
+*****
+
+####  skives  
+##### 11317#       发表于 2024-2-1 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63850999&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-2-1 11:43</a>
+我觉得大概率是的
+
+往好处想起码1st出的是立牌和吧唧，而特典是文件夹生写钥匙扣之类的，制品不一 ...</blockquote>
+那真完了 还是期待下一张碟吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11318#       发表于 2024-2-1 13:04
+
+ 本帖最后由 笋干爆炸碱 于 2024-2-1 13:07 编辑 
+
+谁能想到最近最新的一个柄是出现在买蛋白棒送的pr卡上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理那张新图的初华效果很不错的，什么卡组都可以下一到二，我很推荐有打牌需求的点个一两张
+
+登场开潮能到一万五千攻击力，1费控室找个潮呢
+
+*****
+
+####  Aendst  
+##### 11319#       发表于 2024-2-1 13:13
+
+不太相信他们连图都不愿意正常约，但是立绘复用和一柄多卖实在是太震撼了直接更改了我的常识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">引领时代潮流的武士道创新能力恐怖如斯
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">不懂打牌，这样的话有可能会在后面补全一套卡吗
+
+*****
+
+####  NODY  
+##### 11320#       发表于 2024-2-1 13:13
+
+我想奶个动画限定的咖啡厅或者服装店联动之类的新柄，鸡狗十个人的那种，刚好今晚生放是鸡狗的人都有<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

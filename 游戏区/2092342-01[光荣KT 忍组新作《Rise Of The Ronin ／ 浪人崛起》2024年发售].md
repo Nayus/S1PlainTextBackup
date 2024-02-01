@@ -307,3 +307,25 @@ jp 百特曼
 我记得仁王12都是有两次试玩的 ...</blockquote>
 因为浪人本质上是索尼的第二方游戏，索尼的游戏基本上是不会出试玩的。顺带一提上pc也可以参考现在索尼的操作，基本就是一年以后开始上pc
 
+
+*****
+
+####  ちにそら  
+##### 565#       发表于 2024-2-1 11:13
+
+摇杆切段。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wtyrambo  
+##### 566#       发表于 2024-2-1 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">熟悉的那股子lowB味道，可以安心买了
+
+*****
+
+####  ybfelix  
+##### 567#       发表于 2024-2-1 11:22
+
+这个画面和动画… <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer"> 已经是光荣的极限了吗
+

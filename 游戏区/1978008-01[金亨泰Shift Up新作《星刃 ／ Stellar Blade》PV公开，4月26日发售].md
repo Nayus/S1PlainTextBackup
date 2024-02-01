@@ -1248,3 +1248,42 @@ PSN页面：
 场景美术有点小菜  全是一个色调  感觉回到了虚幻4的时候 ...</blockquote>
 迷宫啥的估计也挺没劲的？怪物好像多样了一些
 
+
+*****
+
+####  宛若青空  
+##### 137#       发表于 2024-2-1 09:16
+
+这次PV让我决定必买了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+主人公服装真的好多还是有各种各样类型满足各种喜好的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">动作感觉也还可以。
+
+该有的也都有该摇的也摇，本来还挺担心SIE发行会被和谐的，希望有实体限定版。
+
+*****
+
+####  Piano-Forest  
+##### 138#         楼主| 发表于 2024-2-1 09:19
+
+<img src="https://p.sda1.dev/15/a27f93626f5b63b0da3c7d1ee719d4aa/20240201_091725.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/91828b4f857c6f04aee2f8b6e4ca05e9/53501368354_c9e99e9c57_4k.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/437d5ca27891fc5146735965e4a6a79c/53501368359_70bfa9e593_4k.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 139#       发表于 2024-2-1 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63847900&amp;ptid=1978008" target="_blank">小贝伦 发表于 2024-2-1 07:55</a>
+
+什么时候上PC，我要打各种MOD</blockquote>
+原版就已经很色啦没有MOD一样爽玩啊
+
+金亨泰你为何要做索尼的<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡博雷z  
+##### 140#       发表于 2024-2-1 09:24
+
+不知道会独占多久，打算首发了
+

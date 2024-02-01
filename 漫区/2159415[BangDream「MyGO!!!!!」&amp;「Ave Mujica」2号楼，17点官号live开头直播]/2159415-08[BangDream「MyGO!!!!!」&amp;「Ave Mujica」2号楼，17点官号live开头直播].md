@@ -8163,3 +8163,14 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 柄不在多，在于它是否美。 ...</blockquote>
 确实，如果1st视觉图人均黑生日水平他们多抓着卖也没什么怨言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 11330#       发表于 2024-2-1 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63852429&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-1 13:29</a>
+
+动画刚完结那会b站官号10w粉的时候自己约了个稿，然后那个图被旧素材复用又出了一批谷，好像是半个月前就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……武士道是有什么害怕失传的绝学吗
+

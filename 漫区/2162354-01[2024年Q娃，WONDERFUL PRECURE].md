@@ -893,3 +893,13 @@ logo 大概率只有一个追加
 
 我建议是决战前刀掉两只宠物让她们寿终正寝然后灵魂给主人开新形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 585#       发表于 2024-2-1 13:38
+
+结局应该是给了个永久变人的机会最后还是放弃了
+
+至于寿命论？“爱的力量是无限的！”
+

@@ -1276,3 +1276,18 @@ Selen这很难收场吧，只能说暂时没死
 
 复活能力当然是越强越好，如果等几个月再复活，粉丝纯度会下降的厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  _Ra1nMaker  
+##### 2976#       发表于 2024-2-1 23:58
+
+虹EN这是排队毕业？能不能别插selen的队了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 2977#       发表于 2024-2-1 23:58
+
+这毕业的速度望尘莫及阿
+

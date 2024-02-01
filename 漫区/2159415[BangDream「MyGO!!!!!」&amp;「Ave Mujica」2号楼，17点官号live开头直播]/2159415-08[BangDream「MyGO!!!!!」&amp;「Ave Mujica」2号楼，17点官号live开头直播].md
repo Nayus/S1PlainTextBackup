@@ -8467,3 +8467,63 @@ sumimi出现在公众视线，应该也是在初三上半年
 
 水母？海铃hhw推+花音推说<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 11359#       发表于 2024-2-1 15:55
+
+感覺是s1出問題欸，新樓好像也卡頁
+
+*****
+
+####  紫吹兰  
+##### 11360#         楼主| 发表于 2024-2-1 15:56
+
+今晚生放能戴面具上吗
+
+*****
+
+####  凡人  
+##### 11361#       发表于 2024-2-1 15:57
+
+不是你楼的问题，隔壁百合楼新开了1楼也卡。
+
+*****
+
+####  御幸一也  
+##### 11362#       发表于 2024-2-1 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854512&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-1 15:56</a>
+
+今晚生放能戴面具上吗</blockquote>
+啊？那種事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11363#       发表于 2024-2-1 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">桥上遇到的时间点可以通过白花的花期大致估计一下，不过不记得那是什么花了虽然官方有提过，目测四月末~五月初
+
+初华出道时间完全不明朗，约一年不见有可能是祥子这边的事导致的，初华在那之前或者之后出道的可能性都存在
+
+大体来说同期的可能性比较高
+
+*****
+
+####  Aendst  
+##### 11364#       发表于 2024-2-1 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854512&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-1 15:56</a>
+
+今晚生放能戴面具上吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">惊 喜 登 场
+
+*****
+
+####  ffam  
+##### 11365#       发表于 2024-2-1 16:01
+
+比起假面我更想看穿披风登场
+

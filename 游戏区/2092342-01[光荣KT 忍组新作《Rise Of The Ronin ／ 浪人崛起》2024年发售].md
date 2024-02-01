@@ -535,3 +535,13 @@ l可以啊忍组，这次全缝上了
 仁王不就有架势系统么，攻击动作和技能随着架势不同会有变化，需要模仿什么对马岛 ...</blockquote>
 我的意思是他现在的这个架势克制系统。。。。
 
+
+*****
+
+####  廖化  
+##### 593#       发表于 2024-2-1 15:55
+
+等pc了，实在不想买p5<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

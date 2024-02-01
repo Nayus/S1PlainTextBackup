@@ -8238,3 +8238,25 @@ mygo那个不是新柄，是之前b站10w粉的时候官号约的稿，所以说
 
 是初华先出道，还是祥子先在桥上遇到灯？
 
+
+*****
+
+####  御幸一也  
+##### 11337#       发表于 2024-2-1 15:21
+
+串門，什麼串門，ave如果有廣播自己五個人關係就夠好了，為什麼要玩串門<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11338#       发表于 2024-2-1 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853712&amp;ptid=2159415" target="_blank">Akari 发表于 2024-2-1 15:06</a>
+
+有没有go学家解答我一个时间线问题：
+
+是初华先出道，还是祥子先在桥上遇到灯？ ...</blockquote>
+優質回答：窩不知道
+
+好像以目前已知的東西也推不出吧
+

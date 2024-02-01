@@ -505,3 +505,11 @@ GTA6明年首发也是主机限时独占 pc一样要等一年或者二年 只能
 
 l可以啊忍组，这次全缝上了
 
+
+*****
+
+####  医生狼多  
+##### 590#       发表于 2024-2-1 15:20
+
+都是实体版70刀，怎么tb价格比龙信贵了小80块<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

@@ -1869,3 +1869,63 @@ pv五分四十秒左右闪过的那件肚兜？衣服真不错</blockquote>
 
 NIKKE我不充钱这玩意可以买回来当充了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，PV后半段也看着还算有些意思
 
+
+*****
+
+####  404489039  
+##### 203#       发表于 2024-2-1 15:16
+
+为什么不送兔女郎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 204#       发表于 2024-2-1 15:17
+
+ 本帖最后由 宛若青空 于 2024-2-1 15:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853607&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-2-1 14:57</a>
+
+想要皮肤，又觉得豪华版仅皮肤买了有点凯（）</blockquote>
+
+反正也就差60HKD，感觉差不多是DLC价格
+
+看了下日服通常版8980日元，数字豪华版9980日元
+
+现在70刀的游戏算起来还是日服便宜多了，希望全区中文<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  naclken.  
+##### 205#       发表于 2024-2-1 15:19
+
+好啊，坚持独占是吧
+
+云了<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  断翼  
+##### 206#       发表于 2024-2-1 15:20
+
+<blockquote>缺德猫 发表于 2024-2-1 11:44
+看配角就知道能捏得很好看，主角脸应该是金亨泰故意的，我总感觉这脸有点像他老婆，但翻他老婆照片对比又不 ...</blockquote>
+基于网红模特Shin Jae-eun
+
+*****
+
+####  asakura20005  
+##### 207#       发表于 2024-2-1 15:21
+
+让我们相信老二的判断
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  宛若青空  
+##### 208#       发表于 2024-2-1 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853897&amp;ptid=1978008" target="_blank">断翼 发表于 2024-2-1 15:20</a>
+基于网红模特Shin Jae-eun</blockquote>
+那个不是说只扫描了身材吗，脸不是她吧
+

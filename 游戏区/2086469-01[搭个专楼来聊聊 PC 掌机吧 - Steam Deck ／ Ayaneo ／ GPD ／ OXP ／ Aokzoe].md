@@ -51,3 +51,13 @@ SD 和 ROG Ally 都是刚出的时候被质疑 <img src="https://static.saraba1s
 
 根据销售额估算的，再说印度都能卖7到8万，全球50万都估少了吧。
 
+
+*****
+
+####  bypass  
+##### 1095#         楼主| 发表于 2024-2-1 09:41
+
+Aya 家的 Flip：
+
+<img src="https://imgur.ihainan.me/keA5IhL.jpg" referrerpolicy="no-referrer">
+

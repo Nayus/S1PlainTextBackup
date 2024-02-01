@@ -3334,3 +3334,13 @@ OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">男主你有种学雷老板都收了啊
 
+
+*****
+
+####  novyMS  
+##### 3630#       发表于 2024-2-1 09:42
+
+【【IGN】《奇异贤伴 爱达之歌》自定义内容宣传视频-哔哩哔哩】 [https://b23.tv/AHo4UWT](https://b23.tv/AHo4UWT) 游戏自定义还挺多的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

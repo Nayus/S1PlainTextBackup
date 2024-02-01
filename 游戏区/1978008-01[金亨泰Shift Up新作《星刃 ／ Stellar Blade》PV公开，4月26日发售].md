@@ -1321,3 +1321,80 @@ PSN页面：
 
 衣服上 闪烁 超光速，还有原始的那件“撕开”
 
+
+*****
+
+####  S1的巨巨  
+##### 145#       发表于 2024-2-1 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848817&amp;ptid=1978008" target="_blank">qiyu1234 发表于 2024-2-1 09:33</a>
+这游戏好多地方有简体中文啊
+
+衣服上 闪烁 超光速，还有原始的那件“撕开” ...</blockquote>
+懂不懂大股东腾讯的含金量啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  S1的巨巨  
+##### 146#       发表于 2024-2-1 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848817&amp;ptid=1978008" target="_blank">qiyu1234 发表于 2024-2-1 09:33</a>
+这游戏好多地方有简体中文啊
+
+衣服上 闪烁 超光速，还有原始的那件“撕开” ...</blockquote>
+懂不懂大股东腾讯的含金量啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ShiKi847  
+##### 147#       发表于 2024-2-1 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848616&amp;ptid=1978008" target="_blank">naclken. 发表于 2024-2-1 09:19</a>
+
+原版就已经很色啦没有MOD一样爽玩啊
+
+金亨泰你为何要做索尼的</blockquote>
+因为shift up 没发行，nikke也是找的腾讯发行
+
+*****
+
+####  SergeGlenn  
+##### 148#       发表于 2024-2-1 09:37
+
+这几个预告看到现在，感觉招式动作设计的很平庸，不够帅
+
+*****
+
+####  JoelBirch  
+##### 149#       发表于 2024-2-1 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848712&amp;ptid=1978008" target="_blank">意大利面 发表于 2024-2-1 09:26</a>
+那讲道理岂不是应该韩配？西巴拉玛</blockquote>
+就是不想听韩语啊，折中一下<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  siebten  
+##### 150#       发表于 2024-2-1 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">pv五分四十秒左右闪过的那件肚兜？衣服真不错 
+
+
+*****
+
+####  纱布光环  
+##### 151#       发表于 2024-2-1 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉女主的脸每一部预告都微妙的不一样，而且没有之前的顺眼
+
+*****
+
+####  hkguty  
+##### 152#       发表于 2024-2-1 09:44
+
+韩版尼尔，虽然是动作游戏但其实主要还是冲着女主身材去的
+

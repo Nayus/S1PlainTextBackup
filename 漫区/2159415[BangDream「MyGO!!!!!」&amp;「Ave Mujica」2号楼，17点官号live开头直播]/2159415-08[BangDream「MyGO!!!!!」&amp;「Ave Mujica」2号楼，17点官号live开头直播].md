@@ -7921,3 +7921,28 @@ mujica这一单封面也是纯黑
 
 往好处想起码1st出的是立牌和吧唧，而特典是文件夹生写钥匙扣之类的，制品不一样就是赢
 
+
+*****
+
+####  NODY  
+##### 11306#       发表于 2024-2-1 11:47
+
+大概说的是爱音的吉他吧，她的吉他确实放在邦邦内部都显得格外的朴素
+
+其他像ksm的random star，六花的无头琴，纱夜的刀片琴都挺有个性的，猫猫的战损，mujica的亮片七弦也很特色
+
+*****
+
+####  阿姆罗二世  
+##### 11307#       发表于 2024-2-1 11:50
+
+<img src="https://img.saraba1st.com/forum/202402/01/115033tqjmapqma5jzt0jm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240201_102638.jpg</strong> (177.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 11:50 上传
+
+哎，拉娘<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

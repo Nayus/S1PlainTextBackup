@@ -12131,3 +12131,13 @@ tm还有这种bug
 
 周六最爽，不过我合影还差鬼福的
 
+
+*****
+
+####  KBAC  
+##### 2703#       发表于 2024-2-1 19:25
+
+港服和欧服一个主题。
+3代分区祭典看样子是只分日区和非日区了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+日区这次有711联动商品还有专属主题图<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -1312,3 +1312,11 @@ bgo运营怎么突然诈尸了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  blackjeo1  
+##### 46058#       发表于 2024-2-1 22:57
+
+      300多石又是四宝雨神而库库尔坎一宝都没有，问题是在烟雾镜已经五宝雨神也是一宝烟雾镜也没有，直接把我气笑了，不如跳坑算球<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

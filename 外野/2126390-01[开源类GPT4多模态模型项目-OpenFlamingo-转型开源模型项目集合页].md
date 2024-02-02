@@ -31459,3 +31459,53 @@ H2O-Danube-1.8B-Chat在大多数基准测试中的表现优于TinyLlama-Chat，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1237#       发表于 2024-2-2 09:50
+
+ 本帖最后由 Machinery 于 2024-2-2 09:53 编辑 
+
+LongAlign
+
+大型语言模型的长上下文对齐秘方
+
+github项目主页:https://github.com/THUDM/LongAlign
+
+拓展大型语言模型以有效处理长上下文需要对相似长度的输入序列进行指令微调，为了解决这个问题，本文提出了LongAlign，一种用于长上下文对齐的指令数据、训练和评估方法
+
+首先，通过使用自指导(Self-Instruct)构建了一个长指令跟随数据集，为了确保数据的多样性，它涵盖了来自各种长上下文来源的广阔任务，其次，采用了打包和排序批处理(packing and sorted batching)策略，以加速对具有不同长度分布的数据进行监督微调的速度，此外，还开发了一种损失加权(loss weighting)方法，在打包训练期间平衡不同序列对损失的贡献，最后还引入了LongBench-Chat基准测试，用于评估在长度为10k-100k的查询上的指令跟随能力
+
+实验证明，LongAlign在长上下文任务中的性能比现有的LLM配方提高了多达30％，同时也维持了它们处理较短的通用任务的熟练程度
+
+<img src="https://img.saraba1st.com/forum/202402/02/095301giex07hkznntmiko.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240202-094503.jpg</strong> (157.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 09:53 上传
+
+LongBench-Chat上的测试结果，包含10k-100k长度的真实世界查询
+
+数据构建示例
+
+在长尾数据长度分布下，打包或排序批处理可以减少空闲时间并加速训练过程，在打包过程中需要进行损失加权，以平衡序列的损失贡献
+
+标注者之间的相关性，GPT-4(有无Few-shot)与人类之间的相关性
+
+在不同数量和类型的长指令数据上训练后的ChatGLM3-6B-64k性能
+
+与ShareGPT混合的不同套件的长数据上训练的ChatGLM3-6B-64k的1k-60k Needle测试性能
+
+ChatGLM3-6B-64k和Llama-2-7B-64k在不同的训练方法下的性能
+
+不同的训练方法下，使用8个A800 80G GPU的训练时间(小时)
+
+LLama-2-13B上的LongAlign
+
+ChatGLM3-6B-64k在长任务和短任务上至始至终的相对性能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

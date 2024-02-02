@@ -394,3 +394,41 @@ https://www.doc88. ...</blockquote>
 1：月壤条件根据探测结果在地球是可以模拟复现的。阿波罗时代担心的问题之一就是着陆后是否会下陷，然而 ...</blockquote>
 阿波罗的重心还是没法比的，这个话题就到这里了，祝hls早日搓出来，拖太久了
 
+
+*****
+
+####  commcody  
+##### 114#         楼主| 发表于 2024-2-2 09:45
+
+位于猛禽发动机安装工作台上的S28被目击到至少有一台猛禽发动机被拆下，有可能更换了新发动机。之后是否需要重新完成静点测试是个未知数。
+
+德州星舰基地第二座发射塔的8号和9号分段在星舰基地开始组装。
+
+此前在卡角SpaceX基地建成的7号分段已被船运至德州星舰基地附近布朗斯维尔的码头。
+
+其余建成的3号和6号分段已被转运至卡角码头准备装船运往德州星舰基地。1、2、4和5号分段目前仍在卡角SpaceX基地。
+
+<img src="https://img.saraba1st.com/forum/202402/02/093740tiv0339u9rb0o9v0.jpg" referrerpolicy="no-referrer">
+
+<strong>GFMKfp5XYAAVIjQ.jpg</strong> (554.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 09:37 上传
+
+<img src="https://img.saraba1st.com/forum/202402/02/093848uqzfpsrpxww16p1p.jpg" referrerpolicy="no-referrer">
+
+<strong>GFQ5CLjXcAAmgGR.jpg</strong> (310.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 09:38 上传
+
+<img src="https://img.saraba1st.com/forum/202402/02/093820twtld0do3wfo9f8d.jpg" referrerpolicy="no-referrer">
+
+<strong>GFSjc_2WMAAVE8O.jpg</strong> (81.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 09:38 上传
+

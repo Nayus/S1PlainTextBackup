@@ -1425,3 +1425,11 @@ bgo运营怎么突然诈尸了
 
 各抽一宝的话，目前2100石，考虑到可能还债，优先抽兽尼和泳装
 
+
+*****
+
+####  sosgame67  
+##### 46071#       发表于 2024-2-2 20:40
+
+上半年就兽尼（提妈火力太弱了，2宝各种不够用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">）当然考虑去年活动的拉跨，完全没必要强度焦虑，抽了强卡也只能拿来长草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

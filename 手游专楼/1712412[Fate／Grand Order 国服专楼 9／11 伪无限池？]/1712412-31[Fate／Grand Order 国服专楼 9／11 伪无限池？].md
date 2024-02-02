@@ -1364,3 +1364,11 @@ bgo运营怎么突然诈尸了
 
 当初是哪个策划发明的常驻硬币比限定硬币少的，被恶心到了
 
+
+*****
+
+####  izumilee  
+##### 46064#       发表于 2024-2-2 14:53
+
+60石头10护符，大姐姐1宝，雨神又出了2个，7宝雨神了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

@@ -1242,3 +1242,14 @@ logo 大概率只有一个追加
 杂志都说了重点肯定是超越种族的人宠羁绊，金月倒确实从始至终没忘了蓝白关系性，那就让我们看看成田能不能贯彻到底吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/da70985a4c134bf0bf1bfb0693801908/CMP_20240202140857497.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Giraffe  
+##### 614#       发表于 2024-2-2 14:58
+
+ 本帖最后由 Mr.Giraffe 于 2024-2-2 15:01 编辑 
+
+成田能再写些超越性别的羁绊吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl：充满活力与好奇心的狗勾太可爱了，会有小麦同款狗绳蝴蝶结项圈周边吗<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">人可以，至少要试试
+

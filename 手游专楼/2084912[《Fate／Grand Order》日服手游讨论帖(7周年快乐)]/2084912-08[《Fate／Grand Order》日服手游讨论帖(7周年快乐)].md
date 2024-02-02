@@ -427,3 +427,14 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 国服那堆强度焦虑和虚空造本计算机竞速是线下pvp的一环啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 11277#       发表于 2024-2-2 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63856414&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-2-1 18:21</a>
+
+氪（恶魔的低语）[f:254]</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这次连福袋都没氪 再氪是狗
+

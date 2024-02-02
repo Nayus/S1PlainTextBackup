@@ -28,3 +28,16 @@
 
 话说这次的积分挑战新的入江SS也太好用了吧，很难不怀疑是故意的
 
+
+*****
+
+####  叶雾  
+##### 1451#       发表于 2024-2-2 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63863901&amp;ptid=2050204" target="_blank">lxshhh 发表于 2024-2-2 17:07</a>
+
+我想知道通用技能的加成效果是吃原来形态的还是正在使用的形态？就比方说孔明原皮的大招，通用化后雷孔明用 ...</blockquote>
+宝珠强化只影响当前皮
+
+没写回合数就是永续
+

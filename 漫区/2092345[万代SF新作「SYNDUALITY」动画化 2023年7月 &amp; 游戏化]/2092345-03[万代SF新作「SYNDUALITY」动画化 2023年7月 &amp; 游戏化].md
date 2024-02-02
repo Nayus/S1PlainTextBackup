@@ -3352,3 +3352,13 @@ OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smile
 
 诺娃，太痛了
 
+
+*****
+
+####  aptx8285144  
+##### 3632#       发表于 2024-2-2 17:38
+
+【「SYNDUALITY Noir」第17話「Greyish zone」WEB予告-哔哩哔哩】 [https://b23.tv/H3uOlAE](https://b23.tv/H3uOlAE)
+
+预告，感觉夏尔的表情柔和得已经不太自然了，旗子在飞（
+

@@ -2848,3 +2848,13 @@ nagi直播三连
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 19400#       发表于 2024-2-2 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/226f2b4db92cdc3c294a5023401a65da/QQ截图20240202201304.jpg" referrerpolicy="no-referrer">
+

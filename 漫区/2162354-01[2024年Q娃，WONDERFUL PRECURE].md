@@ -1224,3 +1224,21 @@ logo 大概率只有一个追加
 
 希望不要男q追加[f:217]
 
+
+*****
+
+####  有骨气的百合  
+##### 612#       发表于 2024-2-2 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看op不就是眼镜男想要接近华哥然后被狗狗阻碍的桥段吗，最多眼镜男和狗狗变欢喜冤家
+
+*****
+
+####  帝下室の年糕  
+##### 613#       发表于 2024-2-2 14:09
+
+ 本帖最后由 帝下室の年糕 于 2024-2-2 14:10 编辑 
+
+杂志都说了重点肯定是超越种族的人宠羁绊，金月倒确实从始至终没忘了蓝白关系性，那就让我们看看成田能不能贯彻到底吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/da70985a4c134bf0bf1bfb0693801908/CMP_20240202140857497.jpg" referrerpolicy="no-referrer">
+

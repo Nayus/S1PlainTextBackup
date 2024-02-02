@@ -1380,3 +1380,11 @@ bgo运营怎么突然诈尸了
 
 本来打算把石头都留给兽尼，新卡池一个十连意思一下算了，没想到一下出了雨神和大姐姐，去年非了一整年总算欧一把
 
+
+*****
+
+####  FrozenA  
+##### 46066#       发表于 2024-2-2 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">最近300石头还在还债，不急，还不是关键卡池
+

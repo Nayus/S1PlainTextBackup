@@ -3398,3 +3398,32 @@ OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smile
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 3636#       发表于 2024-2-2 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63866660&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-2-2 22:48</a>
+
+第17話「Greyish zone」
+
+https://youtu.be/2j0E9jOOZ8w</blockquote>
+第三张图里的艾达的表情好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三合一出现  
+##### 3637#       发表于 2024-2-2 23:19
+
+预告这笑容，要死了吗<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 3638#       发表于 2024-2-2 23:20
+
+要黑化的节奏
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

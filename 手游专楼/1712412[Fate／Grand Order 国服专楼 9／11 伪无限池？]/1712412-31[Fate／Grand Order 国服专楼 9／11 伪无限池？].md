@@ -1372,3 +1372,11 @@ bgo运营怎么突然诈尸了
 
 60石头10护符，大姐姐1宝，雨神又出了2个，7宝雨神了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 46065#       发表于 2024-2-2 16:39
+
+本来打算把石头都留给兽尼，新卡池一个十连意思一下算了，没想到一下出了雨神和大姐姐，去年非了一整年总算欧一把
+

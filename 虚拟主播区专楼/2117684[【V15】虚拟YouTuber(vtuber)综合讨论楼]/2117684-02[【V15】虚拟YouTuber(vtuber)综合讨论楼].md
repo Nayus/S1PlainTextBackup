@@ -1307,3 +1307,20 @@ Selen这很难收场吧，只能说暂时没死
 
 难道是我错看了selen，实际上是个比pomu还高纯度的虹信？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 2980#       发表于 2024-2-2 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63857783&amp;ptid=2117684" target="_blank">Mar1juanaS 发表于 2024-2-1 21:05</a></blockquote>
+这都21年千皇妹妹推特被运营查封的远古事件了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">这也要挖
+
+*****
+
+####  winda  
+##### 2981#       发表于 2024-2-2 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63857783&amp;ptid=2117684" target="_blank">Mar1juanaS 发表于 2024-2-1 21:05</a></blockquote>
+这都21年千皇妹妹推特被运营查封的远古事件了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">这也要挖
+

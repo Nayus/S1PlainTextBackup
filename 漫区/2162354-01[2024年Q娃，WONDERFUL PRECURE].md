@@ -1253,3 +1253,11 @@ logo 大概率只有一个追加
 成田能再写些超越性别的羁绊吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 syl：充满活力与好奇心的狗勾太可爱了，会有小麦同款狗绳蝴蝶结项圈周边吗<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">人可以，至少要试试
 
+
+*****
+
+####  wly  
+##### 615#       发表于 2024-2-2 15:47
+
+父母双全性格开朗的样子，很难想象深刻刻画人宠羁绊能玩出什么花活。搞三角恋说不定真的是正道。
+

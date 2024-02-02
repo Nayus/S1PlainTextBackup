@@ -465,3 +465,21 @@ FZ20周年呆毛是不是又能再上一次自选了
 我这次连福袋都没氪 再氪是狗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是你课保底  附带才几个钱（
 
+
+*****
+
+####  qixinno2  
+##### 11281#       发表于 2024-2-2 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63864575&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-2-2 18:22</a>
+
+但是你课保底  附带才几个钱（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我自从去年水妖兰保底后至今一毛没氪 实在贫穷了 玩不起 花钱就吃保底 太怨种了
+
+*****
+
+####  保罗赫伯特  
+##### 11282#       发表于 2024-2-2 18:50
+
+现在跟着活动进度走，到90艹开放的时候，想拿的基本都快拿完了，随便组个队打两三次就结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -438,3 +438,11 @@ FZ20周年呆毛是不是又能再上一次自选了
 氪（恶魔的低语）[f:254]</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这次连福袋都没氪 再氪是狗
 
+
+*****
+
+####  AbigailWilliams  
+##### 11278#       发表于 2024-2-2 18:00
+
+国服哪个游戏都这样，b站这堆人不吹风，有的是人吹风
+

@@ -1433,3 +1433,11 @@ bgo运营怎么突然诈尸了
 
 上半年就兽尼（提妈火力太弱了，2宝各种不够用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">）当然考虑去年活动的拉跨，完全没必要强度焦虑，抽了强卡也只能拿来长草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 46072#       发表于 2024-2-2 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">算了一下320-350石头，满宝烟雾镜，2宝库库，1宝福利多，3宝阿妹，不错不错
+

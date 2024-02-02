@@ -1336,3 +1336,13 @@ bgo运营怎么突然诈尸了
 
 无敌了280石10护符，两宝大姐姐歪了个尼莫，四宝雨神，叔叔今天全家活光
 
+
+*****
+
+####  电波系腑海林  
+##### 46061#       发表于 2024-2-2 08:43
+
+居然120石出了库库，本来以为没希望了。现在安心攒石到泳8了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

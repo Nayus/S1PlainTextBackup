@@ -2838,3 +2838,13 @@ nagi直播三连
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  一个陆仁贾  
+##### 19399#       发表于 2024-2-2 08:47
+
+笑死，水水许久不见的直播就开始整活上热搜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

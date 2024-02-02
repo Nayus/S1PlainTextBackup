@@ -1196,3 +1196,13 @@ logo 大概率只有一个追加
 彩羽魅魔可能性微存</blockquote>
 不会走常盘绿路线吧。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 609#       发表于 2024-2-2 09:59
+
+怎么都在贷款吃男q的屎，停一停
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -2866,3 +2866,13 @@ nagi直播三连
 
 真的假的(
 
+
+*****
+
+####  ads147147  
+##### 19402#       发表于 2024-2-2 21:58
+
+当然是假的，鱼哪有这个水平哦。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

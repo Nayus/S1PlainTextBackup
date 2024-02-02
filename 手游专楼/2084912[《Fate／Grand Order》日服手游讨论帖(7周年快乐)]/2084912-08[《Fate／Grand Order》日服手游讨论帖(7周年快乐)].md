@@ -454,3 +454,14 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 主要你抽也没地用啊，现在一年才几个活动，就像以前那样打金银铜本都毕业了
 
+
+*****
+
+####  alucardcz  
+##### 11280#       发表于 2024-2-2 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63864147&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-2-2 17:35</a>
+
+我这次连福袋都没氪 再氪是狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是你课保底  附带才几个钱（
+

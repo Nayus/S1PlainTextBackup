@@ -1299,3 +1299,11 @@ Selen这很难收场吧，只能说暂时没死
 
 看来你虹真没竞业协议，完全可以实现无缝衔接光速转生，对管人痴来说是好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 2979#       发表于 2024-2-2 16:04
+
+难道是我错看了selen，实际上是个比pomu还高纯度的虹信？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -403,3 +403,27 @@ FZ20周年呆毛是不是又能再上一次自选了
 抽黑骑呆又失败了 好像要啊</blockquote>
 氪（恶魔的低语）<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 11275#       发表于 2024-2-2 17:23
+
+ 本帖最后由 exiaexa 于 2024-2-2 17:24 编辑 
+
+感叹一下，你游一个抠着脚毕业的游戏，国服讨论环境变成现在这逼样，这堆B站UP真的是一个都跑不掉
+
+这两天看了几个自动推过来的up，上来就考虑不换人5和不换人6，还顺带暗戳戳对好友提出要求
+
+几年前的风气还是能过就行，90++一开始的推荐甚至是默认带黑杯
+
+想起现在FF14的狗屎路人环境，只能说求仁得仁，大家一起加速
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 11276#       发表于 2024-2-2 17:25
+
+国服那堆强度焦虑和虚空造本计算机竞速是线下pvp的一环啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

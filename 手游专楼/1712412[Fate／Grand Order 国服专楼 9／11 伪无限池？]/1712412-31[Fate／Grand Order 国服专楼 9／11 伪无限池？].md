@@ -1441,3 +1441,13 @@ bgo运营怎么突然诈尸了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">算了一下320-350石头，满宝烟雾镜，2宝库库，1宝福利多，3宝阿妹，不错不错
 
+
+*****
+
+####  lcn  
+##### 46073#       发表于 2024-2-2 23:08
+
+2.7的土著和2.6的相比真是两个极端
+一个太完美，一个太屑
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

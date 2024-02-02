@@ -3388,3 +3388,13 @@ OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smile
 <img src="https://p.sda1.dev/15/b87293b0a9eb1c256d0a3408f48f0f33/460be5c473c9c092cb9004a755356a71.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/c840a6a078aeb47286d38b086a3a2805/6bef91ef5dfb5f202fb70ffdb9fb691c.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 3635#       发表于 2024-2-2 23:07
+
+去A国了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

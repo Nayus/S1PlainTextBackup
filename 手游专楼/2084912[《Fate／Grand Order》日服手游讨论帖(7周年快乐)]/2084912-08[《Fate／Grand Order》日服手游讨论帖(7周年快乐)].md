@@ -483,3 +483,13 @@ FZ20周年呆毛是不是又能再上一次自选了
 
 现在跟着活动进度走，到90艹开放的时候，想拿的基本都快拿完了，随便组个队打两三次就结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11283#       发表于 2024-2-2 18:53
+
+十張符丟去黑呆騎池，沒事發生，禮裝也不見，
+
+結束這回合
+

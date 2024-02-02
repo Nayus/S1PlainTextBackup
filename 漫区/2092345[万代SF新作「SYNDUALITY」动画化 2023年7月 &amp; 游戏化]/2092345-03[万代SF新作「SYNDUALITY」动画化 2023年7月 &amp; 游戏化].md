@@ -3463,3 +3463,91 @@ https://youtu.be/2j0E9jOOZ8w</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  王留美  
+##### 3642#       发表于 2024-2-3 00:24
+
+万代SF新作系列《SYNDUALITY》HJ 2024年3月号刊载内容。
+
+含动画《SYNDUALITY Noir》资讯及外传小说《SYNDUALITY Kaleido》第4话。
+
+自购 ​​​
+
+<img src="https://img.saraba1st.com/forum/202402/03/002440tv8wopadveoldein.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00124.jpeg</strong> (544.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/002441sfc7ichynbisqwvs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00125.jpeg</strong> (402.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/002441tvmfdn3jdjrrec24.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00126.jpeg</strong> (296.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/002441jt0d7zd2mvw3dvzt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00127.jpeg</strong> (424.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/002442mcvzjujvpih8sjiu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00128.jpeg</strong> (289.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/002442lzgggsop3g3u5vv4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00129.jpeg</strong> (388.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/002442uz4zg44re4ns55mc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00130.jpeg</strong> (426.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/002443q0nqzjprj6jrzre5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00131.jpeg</strong> (522.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:24 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NeloAngelo| + 1|好评加鹅|
+
+查看全部评分
+

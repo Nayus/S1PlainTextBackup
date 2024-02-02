@@ -1404,3 +1404,14 @@ bgo运营怎么突然诈尸了
 
 后面还有啥值得抽的，双兽周年泳装？
 
+
+*****
+
+####  khxooo  
+##### 46069#       发表于 2024-2-2 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63864380&amp;ptid=1712412" target="_blank">sandro 发表于 2024-2-2 18:04</a>
+
+后面还有啥值得抽的，双兽周年泳装？</blockquote>
+差不多了，好的卡池都集中在上半年，下半年都是很差的卡池。也就上杉谦信值得抽一下。
+

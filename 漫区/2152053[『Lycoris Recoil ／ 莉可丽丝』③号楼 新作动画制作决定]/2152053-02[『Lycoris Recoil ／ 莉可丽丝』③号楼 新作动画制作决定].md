@@ -2479,3 +2479,16 @@ tkn脸上还有道黑印，草台！
 
 2024-2-2 00:27 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 1614#         楼主| 发表于 2024-2-2 22:46
+
+[https://twitter.com/imigimuru/status/1753422433548431615](https://twitter.com/imigimuru/status/1753422433548431615)
+
+たきなさん。
+
+#ツインテールの日（双马尾之日）
+<img src="https://p.sda1.dev/15/a32217a87e927928022b55cf9c94133b/20240202_224546.jpg" referrerpolicy="no-referrer">
+

@@ -3370,3 +3370,21 @@ OP画面已经把FLAG立好了<img src="https://static.saraba1st.com/image/smile
 
 草，夏尔原来还有一个“挺好颜容”吗，不会下一话末尾就要摊牌吧
 
+
+*****
+
+####  Piano-Forest  
+##### 3634#         楼主| 发表于 2024-2-2 22:48
+
+第17話「Greyish zone」
+
+[https://youtu.be/2j0E9jOOZ8w](https://youtu.be/2j0E9jOOZ8w)
+
+ノワールの暴走により、ミステルとしても機能を停止してしまった。目を覚まさない2人を助けるべく、アルバに助けを求めるカナタ。アルバから2人を救うにはもう1体のゼロ型メイガスの素体が必要であることを告げられたカナタは、シエルと共にゼロ型メイガスがある可能性を求めてアメイジアの跡地へと向かう。
+<img src="https://p.sda1.dev/15/66a8d654ebf1095fca0d3dee4f29896f/518db14c854e296372b7396d017659ca.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/e47c9fcef2528f7687b332f999e038e7/1fe21f1cf4f33f144706213babd13a10.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4b8133e370cba04e726544edb01f9f9d/ef8062909967f3d3f2ac2cee10c793e0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/041c4845005f91e1d60d74c3e2bba295/4284de3fd2321108512f91738577b77d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b87293b0a9eb1c256d0a3408f48f0f33/460be5c473c9c092cb9004a755356a71.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/c840a6a078aeb47286d38b086a3a2805/6bef91ef5dfb5f202fb70ffdb9fb691c.jpg" referrerpolicy="no-referrer">
+

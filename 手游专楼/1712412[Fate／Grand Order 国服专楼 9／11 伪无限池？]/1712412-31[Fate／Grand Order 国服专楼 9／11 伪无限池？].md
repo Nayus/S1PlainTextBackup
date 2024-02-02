@@ -1388,3 +1388,11 @@ bgo运营怎么突然诈尸了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">最近300石头还在还债，不急，还不是关键卡池
 
+
+*****
+
+####  destroyworlder  
+##### 46067#       发表于 2024-2-2 17:14
+
+3个10连 1个大姐姐一个象神
+

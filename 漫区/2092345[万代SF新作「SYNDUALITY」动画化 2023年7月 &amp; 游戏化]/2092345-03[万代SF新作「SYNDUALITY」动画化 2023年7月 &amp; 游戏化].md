@@ -3443,3 +3443,23 @@ https://youtu.be/2j0E9jOOZ8w</blockquote>
 
 我懂了，是把ciel血祭拉回mistel<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 3641#       发表于 2024-2-2 23:53
+
+ 本帖最后由 NeloAngelo 于 2024-2-2 23:55 编辑 
+
+下集预告的标志是 Ideal的标志<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/02/235457ul87z23cs3ll5ox8.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0523.PNG</strong> (740.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 23:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -77,3 +77,11 @@ test
 
 —— 来自 Xiaomi M2105K81AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  再买自检星剁手  
+##### 1465#       发表于 2024-2-3 00:09
+
+回复数这个是需要服务端修吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

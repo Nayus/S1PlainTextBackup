@@ -69,3 +69,19 @@
 
 相比之下东京最强，虽然难用但是花样模组真是多得一逼，操作上限和伤害上限完全不是一个档次的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 911#         楼主| 发表于 2024-2-3 00:11
+
+<img src="https://img.saraba1st.com/forum/202402/03/001055n9p4gn8h943adhhb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240203001009.png</strong> (528.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 00:10 上传
+
+贴吧见到的之前沙雕图的后续<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

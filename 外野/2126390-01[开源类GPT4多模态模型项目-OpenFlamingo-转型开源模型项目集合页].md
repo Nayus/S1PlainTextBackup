@@ -31509,3 +31509,97 @@ ChatGLM3-6B-64k在长任务和短任务上至始至终的相对性能
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Machinery  
+##### 1238#       发表于 2024-2-2 20:58
+
+ 本帖最后由 Machinery 于 2024-2-2 20:59 编辑 
+
+OLMo
+
+加速语言模型学科的发展
+
+技术报告:https://arxiv.org/abs/2402.00838
+
+hugface模型权重:https://huggingface.co/allenai/OLMo-7B
+
+github项目代码仓库:https://github.com/allenai/OLMo
+
+hugface预训练数据集下载:https://huggingface.co/datasets/allenai/dolma
+
+github模型评估套件:https://github.com/allenai/OLMo-Eval
+
+微调适配项目页:https://github.com/allenai/open-instruct
+
+语言模型(LM)已经在自然语言处理研究和商业产品中变得无处不在，随着它们在商业上的重要性日益增长，最强力的模型逐渐变得封闭，通常只能通过专有接口访问，其训练数据、架构和开发的重要细节也未公开，鉴于这些细节对于科学研究这些模型、包括它们的偏见和潜在风险的重要性，研究界访问功能强大且真正开放的语言模型因此变得至关重要
+
+为此，本技术报告详细介绍了OLMo的首次发布，这是一个SOTA的、真正开放的语言模型及其构建和研究语言建模科学的框架，与以往只发布模型权重和推理代码的大多数研究不同，本次发布了OLMo和整个框架，包括训练数据、训练和评估代码，希望这次发布能为开源研究社区提供动力和支持，并激发新一轮的创新
+————
+模型描述与细节
+
+<img src="https://img.saraba1st.com/forum/202402/02/205832h3cmlan98g9a3wjg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240202-205205.jpg</strong> (326.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202402/02/205832kz66fukh7lklunn1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240202-205222.jpg</strong> (116.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202402/02/205832vm3xzprx3124753k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240202-205327.jpg</strong> (205.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 20:58 上传
+
+————
+模型的使用以及微调与评估
+
+<img src="https://img.saraba1st.com/forum/202402/02/205902qnrsttngt9txyfnw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240202-205240.jpg</strong> (221.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 20:59 上传
+
+<img src="https://img.saraba1st.com/forum/202402/02/205902w977fqk6dqczxq56.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240202-205250.jpg</strong> (73.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 20:59 上传
+
+<img src="https://img.saraba1st.com/forum/202402/02/205902b8n1zpeza8vm0e1a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240202-205304.jpg</strong> (174.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 20:59 上传
+
+————
+训练环境的影响与偏差风险限制等
+
+<img src="https://img.saraba1st.com/forum/202402/02/205908aw4ho4ah8hg778gh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240202-205443.jpg</strong> (109.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-2 20:59 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1206,3 +1206,13 @@ logo 大概率只有一个追加
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  凡人  
+##### 610#       发表于 2024-2-2 13:46
+
+ 本帖最后由 凡人 于 2024-2-2 13:48 编辑 
+
+看了看，动画里悟脸红就是紫q说我现在的愿望就是和你一个班级吧这段吧，女魅魔<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

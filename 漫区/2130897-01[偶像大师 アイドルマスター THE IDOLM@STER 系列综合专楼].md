@@ -535,3 +535,11 @@ https://idolmaster-official.jp/news/01_10632</blockquote>
 
 夜场开了，这live原来真是照着声优活动的规模做的啊
 
+
+*****
+
+####  acacaclove  
+##### 1075#       发表于 2024-2-3 17:04
+
+这他妈就是省油活动的规模啊
+

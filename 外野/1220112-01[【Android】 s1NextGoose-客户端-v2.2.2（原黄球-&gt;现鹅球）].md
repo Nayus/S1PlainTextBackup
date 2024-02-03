@@ -157,3 +157,13 @@ bug修好了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png
 
 test
 
+
+*****
+
+####  寻龙分金看缠山  
+##### 1473#       发表于 2024-2-3 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63871197&amp;ptid=1220112" target="_blank">eldritchmask 发表于 2024-2-3 16:37</a>
+bug修好了</blockquote>
+为什么要设置5000积分隐藏啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

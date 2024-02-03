@@ -138,3 +138,22 @@ github上鹅球的版本只到2.5.3,我也没办法<img src="https://static.sara
 我用楼主github上的代码自己胡乱改了一下,把麻将脸更新了,每页回复数也改成了40,先分享给有需求的坛友暂时 ...</blockquote>
 bug修好了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  無始無終  
+##### 1471#       发表于 2024-2-3 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63870200&amp;ptid=1220112" target="_blank">eldritchmask 发表于 2024-2-3 13:59</a>
+我用楼主github上的代码自己胡乱改了一下,把麻将脸更新了,每页回复数也改成了40,先分享给有需求的坛友暂时 ...</blockquote>
+你要不要fork一下
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Schwarzess  
+##### 1472#       发表于 2024-2-3 16:48
+
+test
+

@@ -220,3 +220,15 @@ test
 
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  eldritchmask  
+##### 1480#       发表于 2024-2-4 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63873011&amp;ptid=1220112" target="_blank">主人ハム子 发表于 2024-2-3 20:47</a>
+高楼的翻页bug好像还是没办法？
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 S1Next-鹅版 v2.5.3-play ...</blockquote>
+目前我这里把之前的楼层数缓存数据清空或者覆盖掉就一切正常了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

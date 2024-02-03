@@ -1469,3 +1469,11 @@ q娃楼想要臊皮大几百页的话，相当难吧
 现在好了吗，明天怎么也要多盖几楼吧</blockquote>
 虽然但是，明天上班<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 638#       发表于 2024-2-3 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能随时变狗还能在狗形态说话也太恐怖了
+

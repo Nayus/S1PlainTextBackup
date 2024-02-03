@@ -128,3 +128,13 @@ github上鹅球的版本只到2.5.3,我也没办法<img src="https://static.sara
 
 所以最新版是在贴中地址更新吗
 
+
+*****
+
+####  eldritchmask  
+##### 1470#       发表于 2024-2-3 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63870200&amp;ptid=1220112" target="_blank">eldritchmask 发表于 2024-2-3 13:59</a>
+我用楼主github上的代码自己胡乱改了一下,把麻将脸更新了,每页回复数也改成了40,先分享给有需求的坛友暂时 ...</blockquote>
+bug修好了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -510,3 +510,13 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 https://idolmaster-official.jp/news/01_10632</blockquote>
 怕不是代孙💰没给够<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1072#       发表于 2024-2-3 16:36
+
+<img src="https://p.sda1.dev/15/a277d4fd192e170333e9b3d06cfe7b36/CMP_20240203163603093.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

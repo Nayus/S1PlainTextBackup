@@ -210,3 +210,13 @@ test
 
 test
 
+
+*****
+
+####  Idea  
+##### 1479#       发表于 2024-2-4 01:42
+
+test
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

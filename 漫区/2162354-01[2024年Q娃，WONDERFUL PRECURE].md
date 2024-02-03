@@ -1360,3 +1360,19 @@ q娃楼想要臊皮大几百页的话，相当难吧
 华哥一共许了两个愿望，一个是和小麦讲话，一个是和眼镜男同班</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帝下室の年糕  
+##### 625#       发表于 2024-2-3 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63869180&amp;ptid=2162354" target="_blank">黑白金兽 发表于 2024-2-3 11:42</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后一个愿望可能是随口瞎说的就是了
+
+*****
+
+####  jaewoongh_  
+##### 626#       发表于 2024-2-3 12:51
+
+粉主：狗大友给你两拳
+

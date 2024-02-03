@@ -498,3 +498,15 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 
 从宣布这次live巡演开始就只有缩水二字，不要有过高的期待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 1071#       发表于 2024-2-3 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63869955&amp;ptid=2130897" target="_blank">前夜秋星 发表于 2024-2-3 13:13</a>
+モ誰你在干什么，站桩影响发挥吗
+
+https://idolmaster-official.jp/news/01_10632</blockquote>
+怕不是代孙💰没给够<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+

@@ -189,7 +189,7 @@ async def UpdateThread(threaddict,semaphore):
 # async def UpdateThread(threaddict):
     try:
         async with semaphore:
-            lastpage = threaddict['totalreply']//30
+            lastpage = threaddict['totalreply']//40
             async with aiohttp.ClientSession(headers=headers,cookies=cookies) as session:
                 url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
                 async with session.get(url,headers=headers) as response:

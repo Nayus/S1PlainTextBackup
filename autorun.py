@@ -28,7 +28,7 @@ def parse_html(html,threadict):
                 level = re.sub(r'</a></span>','',str(levels.group(0)))
                 lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
                 replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
-                if(int(level) > 2) and ((int(time.time()) - replytime ) < 259200):
+                if(int(level) > 1) and ((int(time.time()) - replytime ) < 259200):
                     # 3天之内回复过
                     threadict[threadid] = {}
                     threadict[threadid]['replytime'] = replytime
@@ -70,8 +70,8 @@ if __name__ == '__main__':
         for l in threadict.keys():
             if (int(l) not in blacklist):
                 if l in ids:
-                    if thdata[l]['totalreply']//30 > high_level:
-                        if thdata[l]['totalreply']//30 < int(threadict[l]['level']):
+                    if thdata[l]['totalreply']//40 > high_level:
+                        if thdata[l]['totalreply']//40 < int(threadict[l]['level']):
                             thdata[l]['active'] = True
                     else:
                         thdata[l]['active'] = True
@@ -92,7 +92,7 @@ if __name__ == '__main__':
             thdata=json.load(f)
     for i in thdata.keys():
         # if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > high_level):
-        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or(thdata[i]['totalreply'] // 30 > high_level):
+        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or(thdata[i]['totalreply'] // 40 > high_level):
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))

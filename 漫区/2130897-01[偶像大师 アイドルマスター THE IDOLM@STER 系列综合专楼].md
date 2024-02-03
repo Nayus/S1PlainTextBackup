@@ -481,3 +481,12 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 <img src="https://cmsapi-frontend.idolmaster-official.jp/sitern/api/idolmaster/Image/get?path=/idolmaster/jp/article/017/2024/02/7gPKbMoKsfzLkqvCtkWze11YAffOLnDX.jpeg" referrerpolicy="no-referrer">
 <img src="https://cmsapi-frontend.idolmaster-official.jp/sitern/api/idolmaster/Image/get?path=/idolmaster/jp/article/017/2024/02/GQq2bHbyiA8BcrkkzrxJX1i6vrZREY7Z.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a1370303  
+##### 1069#       发表于 2024-2-3 14:52
+
+灰今天这组合live也太短了，一个半小时，以后就是常态了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+不过今天的新衣服还挺好看
+

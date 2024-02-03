@@ -1452,3 +1452,30 @@ QQ图片20240203213814.jpg
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  御幸一也  
+##### 150#       发表于 2024-2-3 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63874251&amp;ptid=2170547" target="_blank">6030sylar 发表于 2024-2-3 23:12</a>
+
+再开一楼试试？外野那些新发的贴好像都没事
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5. ...</blockquote>
+回貼好像都不會提示，這個還能忍，主要還是想確認卡頁好沒好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 151#       发表于 2024-2-3 23:28
+
+試試翻頁
+
+*****
+
+####  Aendst  
+##### 152#       发表于 2024-2-3 23:30
+
+泥漏好像还在亚健康状态
+

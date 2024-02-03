@@ -12269,3 +12269,14 @@ RPG要是能加个前摇就好了，开的瞬间根本没机会躲，二人轮�
 
 泥潭应该没有比我这更毒的号了，我发誓我真的没有故意要往输了打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/5df3233d8e0bb8d481f8d84c4713ed28/IMG_20240204_020930.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 2718#       发表于 2024-2-4 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63875041&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-2-4 02:09</a>
+
+泥潭应该没有比我这更毒的号了，我发誓我真的没有故意要往输了打挑战打了开放打了涂地打了，武器换 ...</blockquote>
+换把武器吧
+

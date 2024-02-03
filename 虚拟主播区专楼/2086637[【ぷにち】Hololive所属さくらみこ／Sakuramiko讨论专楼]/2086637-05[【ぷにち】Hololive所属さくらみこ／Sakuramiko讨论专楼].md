@@ -7531,3 +7531,11 @@ holoALT那边的漫画今天发布新的一话miko作为作品内角色正式出
 
 期间限定miko<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8119#         楼主| 发表于 2024-2-3 21:45
+
+第一次看到cos游戏内UI的，天才了
+

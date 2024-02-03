@@ -520,3 +520,18 @@ https://idolmaster-official.jp/news/01_10632</blockquote>
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  acacaclove  
+##### 1073#       发表于 2024-2-3 16:54
+
+这live是真的有点敷衍了（指时间）
+
+*****
+
+####  Vacuolar  
+##### 1074#       发表于 2024-2-3 17:01
+
+夜场开了，这live原来真是照着声优活动的规模做的啊
+

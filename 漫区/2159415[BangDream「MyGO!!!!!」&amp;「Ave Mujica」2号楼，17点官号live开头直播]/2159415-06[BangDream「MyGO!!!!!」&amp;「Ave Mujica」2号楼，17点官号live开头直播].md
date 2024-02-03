@@ -16028,3 +16028,162 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 插了两个剧场版还这么搞，那只能引用漏油名言了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> <blockquote>观众也不计较吗</blockquote>
 
+
+*****
+
+####  skives  
+##### 11461#       发表于 2024-2-1 23:07
+
+让人产生强烈的好奇
+
+*****
+
+####  skives  
+##### 11462#       发表于 2024-2-1 23:08
+
+这种所有乐队都出周边的联动什么时候能加上mujica
+
+*****
+
+####  skives  
+##### 11463#       发表于 2024-2-1 23:08
+
+我不好说
+
+*****
+
+####  skives  
+##### 11464#       发表于 2024-2-1 23:08
+
+下一次bangtv真的无法想象
+
+*****
+
+####  氷川日菜  
+##### 11465#       发表于 2024-2-1 23:09
+
+出来吧，被囚禁的灵魂
+
+*****
+
+####  salic428  
+##### 11466#       发表于 2024-2-1 23:13
+
+从数字看现在应该是刚好差了一页，也就是每一页最后一个发言的人才能刷出这一页的30条回复……
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Akari  
+##### 11467#       发表于 2024-2-1 23:16
+
+看了go团新柄后，我深深为自己是鸡粉感到幸运。
+
+真的太一言难尽了，不会出就别出了。
+
+*****
+
+####  ddy2811  
+##### 11468#       发表于 2024-2-1 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63858702&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-1 22:45</a>
+
+鼓这次生放强调了好几次羡慕mujica感情好，还强调mygo才刚刚开始，是在暗示什么我不好说 ...</blockquote>
+唉，饭馆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 11469#       发表于 2024-2-1 23:17
+
+一晚上都在骂这B楼卡页卡页，邦TV都没人聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11470#       发表于 2024-2-1 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63858663&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-2-1 22:42</a>
+
+原来灯和祥子的部分设定来自初设的ksm和saaya，唉，初设好有意思。尤其是二人是坐在同一个位置的笔友这个设 ...</blockquote>
+初设这个设定确实很浪漫（不如说初设旧乐队和新乐队的命运和传承整个都很浪漫）
+
+所以我前面才奶如果mujica参考初设的话会不会来个睦祥在一个钢琴教室分别上白天和晚上的课，两个人通过互相留言认识的设定，两个人分别只在白天和黑夜出现的设定也符合希腊神话双子座的传说，也就是“半身”
+
+*****
+
+####  septer  
+##### 11471#       发表于 2024-2-1 23:23
+
+下期更精彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  likeny  
+##### 11472#       发表于 2024-2-1 23:39
+
+卡了整整一页<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  翎羽  
+##### 11473#       发表于 2024-2-1 23:59
+
+看来今天S1所有专楼都出现这个问题了……
+
+*****
+
+####  基神的强袭自由  
+##### 11474#       发表于 2024-2-2 04:21
+
+备用群拉我
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nebulanoby  
+##### 11475#       发表于 2024-2-2 07:58
+
+卡楼了……吗
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枫林不见  
+##### 11476#       发表于 2024-2-2 08:02
+
+偷摸铃这一身衣服，整的要一扣四一样<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 11477#       发表于 2024-2-2 09:09
+
+卡页整得都没发言欲望了
+
+*****
+
+####  kosou  
+##### 11478#       发表于 2024-2-2 09:42
+
+还在卡页吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 11479#       发表于 2024-2-2 09:42
+
+这是卡了多少楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 11480#       发表于 2024-2-2 13:39
+
+刚才在维护，现在能进了但是看不了图片<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

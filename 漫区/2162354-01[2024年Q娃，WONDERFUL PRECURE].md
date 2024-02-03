@@ -1322,3 +1322,41 @@ q娃楼想要臊皮大几百页的话，相当难吧
 
 吃醋狗勾更可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 622#       发表于 2024-2-3 11:09
+
+第 01 話　はじまりは『わんだふる！』
+
+脚本：成田良美
+
+演出：広末悠奈
+
+絵コンテ：佐藤雅教
+
+作画監督：爲我井克美、飯田花緒
+
+美術：今井美紀
+<img src="https://p.sda1.dev/15/3771033c9e3898f69816a571951c8a80/1824d67df78e292fa9cbc769e8f0ecdc65bcf3f1c76c12_06623849_3f0323c717086f254f6388aacabed1812b3085d2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/a4eeb79a459277f765c062f75937c07e/46d37956b24c53ba0439eddb3eef35ca65bcf4048f3d88_74930204_597b4788cbe04814df46ca2432b3ef499b1c3546.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/5476115d0ac3db686548fc817de2c7ff/896c5a26845cf2b47982bf1ae457e9d765bcf405c62165_66654028_bcbd591239a6d7d9c7c4993289772e5f6a73529e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/ddfb7fe6aeb429b52ff055fa89928e23/a4f5a3d100a1b165f612abc610412afb65bcf40717dc98_32149616_f9bd62ef9dbd4f7b58c7d7228697a89f769b47a8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  幸福在裆下  
+##### 623#       发表于 2024-2-3 11:17
+
+第一集脸怎么就开始崩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑白金兽  
+##### 624#       发表于 2024-2-3 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63859701&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-2 00:29</a>
+华哥一共许了两个愿望，一个是和小麦讲话，一个是和眼镜男同班</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

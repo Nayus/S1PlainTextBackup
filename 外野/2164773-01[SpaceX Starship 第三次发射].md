@@ -460,3 +460,55 @@ https://www.doc88. ...</blockquote>
 
 —— 来自 meizu MEIZU 18 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  commcody  
+##### 117#         楼主| 发表于 2024-2-3 12:39
+
+至少一台真空猛禽被从S28拆下
+
+SpaceX公布了Mega Bay内的照片。从左至右分别是B13液氧段、B10、B12、B11、B13甲烷段。B11、B12正在安装发动机，将承担第四和第五发的任务。
+
+又有两个发射塔分段被从卡角SpaceX基地转运，等待船运至德州星舰基地。
+
+<img src="https://img.saraba1st.com/forum/202402/03/123547e208czgkkb1k2a8x.jpg" referrerpolicy="no-referrer">
+
+<strong>GFXDlQEXAAAVScl.jpg</strong> (341.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/123547l33wkxdccpb6xqj7.jpg" referrerpolicy="no-referrer">
+
+<strong>GFWnh0kbkAAbiUf.jpg</strong> (761.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/123547p9qqhqzeinduiwgi.jpg" referrerpolicy="no-referrer">
+
+<strong>GFWnissbkAAUqPr.jpg</strong> (544.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/123547l45rbj844vbdge2t.jpg" referrerpolicy="no-referrer">
+
+<strong>GFWnj35bkAElHSV.jpg</strong> (856.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202402/03/123547zhuk35w77h7zwpr5.jpg" referrerpolicy="no-referrer">
+
+<strong>GFYayD3XEAEvKLf.jpg</strong> (480.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-3 12:35 上传
+

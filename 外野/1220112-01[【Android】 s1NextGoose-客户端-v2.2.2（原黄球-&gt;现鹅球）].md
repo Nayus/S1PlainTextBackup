@@ -110,3 +110,13 @@ https://send.aurorabilisim.com/download/f4d6e0c263193e3d/#yJ8qDXJ2fRpscgpAeskg-Q
 我用楼主github上的代码自己胡乱改了一下,把麻将脸更新了,每页回复数也改成了40,先分享给有需求的坛友暂时 ...</blockquote>
 github代码和最新版不同步的
 
+
+*****
+
+####  eldritchmask  
+##### 1468#       发表于 2024-2-3 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63870268&amp;ptid=1220112" target="_blank">Prushka 发表于 2024-2-3 14:10</a>
+github代码和最新版不同步的</blockquote>
+github上鹅球的版本只到2.5.3,我也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

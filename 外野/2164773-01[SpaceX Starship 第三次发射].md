@@ -446,3 +446,17 @@ https://www.doc88. ...</blockquote>
 
 2024-2-3 03:12 上传
 
+
+*****
+
+####  第八协奏曲  
+##### 116#       发表于 2024-2-3 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63524656&amp;ptid=2164773" target="_blank">xdescat01 发表于 2024-1-3 16:51</a>
+星舰有制导系统的，150吨战斗部打固定目标也不需要什么精密的制导了
+
+至于战斗部有多贵我倒是不清楚，有 ...</blockquote>
+单纯的高爆战斗部还放宽了重量限制，贵啥哦，就一堆tnt
+
+—— 来自 meizu MEIZU 18 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

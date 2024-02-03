@@ -490,3 +490,11 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 灰今天这组合live也太短了，一个半小时，以后就是常态了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 不过今天的新衣服还挺好看
 
+
+*****
+
+####  yuuuuuuuu  
+##### 1070#       发表于 2024-2-3 15:07
+
+从宣布这次live巡演开始就只有缩水二字，不要有过高的期待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

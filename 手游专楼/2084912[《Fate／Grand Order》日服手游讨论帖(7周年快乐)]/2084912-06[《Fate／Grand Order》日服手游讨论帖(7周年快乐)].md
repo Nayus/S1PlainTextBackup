@@ -48,3 +48,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就当送2石头了
 
+
+*****
+
+####  希望之花  
+##### 11290#       发表于 2024-2-3 18:55
+
+我觉得还行，平时艾雷上班就是带宝石和双杀狐+减CD服，要是伤害要求高就用换人奥博龙
+
+一技能打地铺是用不到的，这次加个减CD刚好能增加衣服选择，三个技能都有用了
+
+然而宝具动画的地面还是有马赛克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

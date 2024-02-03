@@ -102,3 +102,16 @@ BGO的狗托罢了
 
 有没可能明天弓凛强化，后天宇宙凛宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11295#       发表于 2024-2-3 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63873793&amp;ptid=2084912" target="_blank">cckuku11 发表于 2024-2-3 22:09</a>
+
+有没可能明天弓凛强化，后天宇宙凛宝具本</blockquote>
+伊斯塔2月2日已经PU过了，S伊斯塔这次不PU
+
+最近几年，除非是幕间强化/强化本强化，否则别的强化都是跟着PU当天来的
+

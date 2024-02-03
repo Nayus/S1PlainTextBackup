@@ -120,3 +120,11 @@ github代码和最新版不同步的
 github代码和最新版不同步的</blockquote>
 github上鹅球的版本只到2.5.3,我也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  静滞场  
+##### 1469#       发表于 2024-2-3 14:23
+
+所以最新版是在贴中地址更新吗
+

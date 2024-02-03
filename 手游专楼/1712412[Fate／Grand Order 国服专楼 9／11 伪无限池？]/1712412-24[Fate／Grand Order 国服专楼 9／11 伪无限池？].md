@@ -84,3 +84,14 @@
 
 2024-2-3 16:16 上传
 
+
+*****
+
+####  史艳文  
+##### 46080#       发表于 2024-2-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63869995&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-2-3 13:19</a>
+
+没有了，就是仓管，我小号2宝都在仓库吃灰</blockquote>
+又丢了270石头，出了一个烟雾镜和4个雨神，抽卡太不稳定了
+

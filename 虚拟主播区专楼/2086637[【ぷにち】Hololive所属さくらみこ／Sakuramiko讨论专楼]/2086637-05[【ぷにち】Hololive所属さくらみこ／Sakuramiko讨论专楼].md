@@ -7523,3 +7523,11 @@ holoALT那边的漫画今天发布新的一话miko作为作品内角色正式出
 
 怎么还有人cos舰C的这个年代了不可思议
 
+
+*****
+
+####  holoan  
+##### 8118#         楼主| 发表于 2024-2-3 21:33
+
+期间限定miko<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

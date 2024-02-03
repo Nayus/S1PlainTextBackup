@@ -470,3 +470,14 @@ https://mp.weixin.qq.com/s/NLEFeWrgeBB54sRxJouZCw
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+*****
+
+####  前夜秋星  
+##### 1068#       发表于 2024-2-3 13:13
+
+モ誰你在干什么，站桩影响发挥吗<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+[https://idolmaster-official.jp/news/01_10632](https://idolmaster-official.jp/news/01_10632)
+<img src="https://cmsapi-frontend.idolmaster-official.jp/sitern/api/idolmaster/Image/get?path=/idolmaster/jp/article/017/2024/02/7gPKbMoKsfzLkqvCtkWze11YAffOLnDX.jpeg" referrerpolicy="no-referrer">
+<img src="https://cmsapi-frontend.idolmaster-official.jp/sitern/api/idolmaster/Image/get?path=/idolmaster/jp/article/017/2024/02/GQq2bHbyiA8BcrkkzrxJX1i6vrZREY7Z.jpeg" referrerpolicy="no-referrer">
+

@@ -199,17 +199,22 @@ async def UpdateThread(threaddict,semaphore):
         thdata[threaddict['id']]['newtitle'] = newtitles
         if(thdata[threaddict['id']]['title'] =='待更新'):
             titles = newtitles
+        if(totalpage == 1):
+            #将1页帖子排除
+            if(newtitles == '[]'):
+                #优先处理无法查看帖子
+                thdata[threaddict['id']]['active'] = False
+                filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
+                mkdir(filedir)
+                with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
+                    f.write('1')
+            #else:
+                #单纯的1页帖子保存着先不动
         #采取增量更新后仅第一次更新标题
-        if (totalpage == 1):
-            thdata[threaddict['id']]['active'] = False
-            filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
-            mkdir(filedir)
-            with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
-                f.write('1')
         elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 172800):
-            #1天过期
+            #2天过期
             thdata[threaddict['id']]['active'] = False
-            if(totalpage > 50):
+            if(totalpage > 37):
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
             else:
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
@@ -228,7 +233,7 @@ async def UpdateThread(threaddict,semaphore):
                 shutil.move(filedir_src,filedir_des)
         elif(totalpage >= lastpage):
         # else:
-            if(totalpage > 50):
+            if(totalpage > 37):
                 filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles+'/'
                 mkdir(filedir)
             else:

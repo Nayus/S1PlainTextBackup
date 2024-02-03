@@ -33,11 +33,10 @@ def parse_html(html,threadict):
                     # 1天之内回复过
                 threadict[threadid] = {}
                 threadict[threadid]['replytime'] = replytime
-                threadict[threadid]['level'] = 1
 
 if __name__ == '__main__':
     blacklist = [2104652,2056385,1842868,334540,1971007,1915305,2023780,2085181,2105283,2045161,2106883,2068300,2098345,2120403,2119905,2096884,2143473,2100013]
-    high_level = 14
+    high_level = 10
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
     with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
@@ -71,12 +70,9 @@ if __name__ == '__main__':
         for l in threadict.keys():
             if (int(l) not in blacklist):
                 if l in ids:
-                    if thdata[l]['totalreply']//40 > high_level:
-                        if thdata[l]['totalreply']//40 < int(threadict[l]['level']):
-                            thdata[l]['active'] = True
-                    else:
+                    if thdata[l]['totalreply']//40 > 1:
                         thdata[l]['active'] = True
-                    thdata[l]['lastedit'] = int(threadict[l]['replytime'])
+                        thdata[l]['lastedit'] = int(threadict[l]['replytime'])
                 else:
                     thdata[l] = {}
                     thdata[l]['totalreply'] =0
@@ -93,7 +89,7 @@ if __name__ == '__main__':
             thdata=json.load(f)
     for i in thdata.keys():
         # if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > high_level):
-        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 604800) or(thdata[i]['totalreply'] // 40 > high_level):
+        if(thdata[i]['active']) or ((int(time.time()) - thdata[i]['lastedit']) < 604800) or(thdata[i]['totalreply'] // 40 > high_level):
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))

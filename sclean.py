@@ -15,6 +15,7 @@ newthdata = deepcopy(thdata)
 for i in thdata.keys():
     if thdata[i]['totalreply'] // 40 < 15 and not thdata[i]['active']:
         if thdata[i]['newtitle'] == '[]':
+    # if thdata[i]['totalreply'] < 40:
             newthdata.pop(i)
 with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
         f.write(json.dumps(newthdata,indent=2,ensure_ascii=False))

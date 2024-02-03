@@ -14,4 +14,4 @@ for line in out.splitlines():
         print(pid)
     pidkill(pid)
     
-os.system("python s1.py")
+# os.system("python s1.py")

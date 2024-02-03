@@ -29,8 +29,8 @@ def parse_html(html,threadict):
             lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
             replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
             # if(int(level) > 1) and ((int(time.time()) - replytime ) < 259200):
-            if((int(time.time()) - replytime) <86400):
-                    # 1天之内回复过
+            if((int(time.time()) - replytime) < 43200):
+                    # 0.5天之内回复过
                 threadict[threadid] = {}
                 threadict[threadid]['replytime'] = replytime
 
@@ -90,6 +90,7 @@ if __name__ == '__main__':
     for i in thdata.keys():
         # if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > high_level):
         if(thdata[i]['active']) or ((int(time.time()) - thdata[i]['lastedit']) < 604800) or(thdata[i]['totalreply'] // 40 > high_level):
+            #缓存7天
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))

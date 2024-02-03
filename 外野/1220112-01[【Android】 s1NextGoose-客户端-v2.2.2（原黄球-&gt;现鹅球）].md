@@ -85,3 +85,17 @@ test
 
 回复数这个是需要服务端修吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eldritchmask  
+##### 1466#       发表于 2024-2-3 13:59
+
+我用楼主github上的代码自己胡乱改了一下,把麻将脸更新了,每页回复数也改成了40,先分享给有需求的坛友暂时试用,最好还是等楼主正式更新吧
+
+以下内容需要积分高于 5000 才可浏览
+
+https://send.aurorabilisim.com/download/f4d6e0c263193e3d/#yJ8qDXJ2fRpscgpAeskg-Q
+密码:mimamima
+解压密码:stage1stage1
+

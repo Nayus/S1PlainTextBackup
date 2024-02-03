@@ -60,3 +60,37 @@
 
 然而宝具动画的地面还是有马赛克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 11291#       发表于 2024-2-3 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63864050&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-2-2 17:23</a>
+感叹一下，你游一个抠着脚毕业的游戏，国服讨论环境变成现在这逼样，这堆B站UP真的是一个都跑不掉
+
+这两天看 ...</blockquote>
+BGO的狗托罢了
+
+*****
+
+####  beer  
+##### 11292#       发表于 2024-2-3 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63864050&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-2-2 17:23</a>
+感叹一下，你游一个抠着脚毕业的游戏，国服讨论环境变成现在这逼样，这堆B站UP真的是一个都跑不掉
+
+这两天看 ...</blockquote>
+BGO的狗托罢了
+
+*****
+
+####  UNISONIA  
+##### 11293#       发表于 2024-2-3 20:31
+
+艾蕾的攻击力增加本来就是带在套三技能特殊状态以后宝具的副效果里的，基于这点本来就不太可能给普通的攻击力提高
+
+减CD的意义还是凑5CD来玩冷却一轮技能的组队，但是因为2技依然是1T外加绑充能，还是很难叠在第三面（就算叠在三面了，210%~260%的总魔放也很容易边际效应），跟伊斯塔3技能不能重复近似，本质上还是倾向于分两回合开
+
+这个技能本最乐的大概是在凛的生日把艾蕾开除凛籍了（不再有概率性技能，参见之前对配布的水着伊斯塔的解说），虽然奈须对于第七章和冥府圣诞的设定上本来就不是
+

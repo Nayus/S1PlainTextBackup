@@ -185,3 +185,13 @@ bug修好了</blockquote>
 
 妈的，没Android<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  主人ハム子  
+##### 1476#       发表于 2024-2-3 20:47
+
+ 高楼的翻页bug好像还是没办法？
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

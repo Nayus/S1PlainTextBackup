@@ -1412,3 +1412,43 @@ QQ图片20240203213814.jpg
 有翻看高楼需要的坛友可以换成黑球试试。</blockquote>
 [https://bbs.saraba1st.com/2b/thread-2170759-1-1.html](https://bbs.saraba1st.com/2b/thread-2170759-1-1.html)
 
+
+*****
+
+####  御幸一也  
+##### 145#       发表于 2024-2-3 23:10
+
+修好沒<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 146#       发表于 2024-2-3 23:10
+
+還是卡！aaaa<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 147#       发表于 2024-2-3 23:12
+
+再开一楼试试？外野那些新发的贴好像都没事
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  相坂君  
+##### 148#       发表于 2024-2-3 23:12
+
+修好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 149#       发表于 2024-2-3 23:12
+
+再开一楼试试？外野那些新发的贴好像都没事
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

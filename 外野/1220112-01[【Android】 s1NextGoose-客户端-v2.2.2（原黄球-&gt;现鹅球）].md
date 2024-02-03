@@ -195,3 +195,18 @@ bug修好了</blockquote>
 
 —— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  模拟测试WiFi  
+##### 1477#       发表于 2024-2-3 23:07
+
+test
+
+*****
+
+####  模拟测试WiFi  
+##### 1478#       发表于 2024-2-3 23:07
+
+test
+

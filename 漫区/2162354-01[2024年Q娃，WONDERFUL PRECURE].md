@@ -1314,3 +1314,11 @@ q娃楼想要臊皮大几百页的话，相当难吧
 
 狗这里竟然是故意的打断两人说话的，还没给狗正脸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Giraffe  
+##### 621#       发表于 2024-2-3 09:50
+
+吃醋狗勾更可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

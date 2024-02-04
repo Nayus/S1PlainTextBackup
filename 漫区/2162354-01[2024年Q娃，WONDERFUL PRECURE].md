@@ -1672,3 +1672,13 @@ OP作画，马越我喜欢你
 
 第 01 集的 TVer 源（含日字）：magnet:?xt=urn:btih:97a84c727515211ac722204e8fd65ac5dd7ac7d3
 
+
+*****
+
+####  bandage_n2_ki  
+##### 659#       发表于 2024-2-4 09:22
+
+ 本帖最后由 bandage_n2_ki 于 2024-2-4 09:29 编辑 
+
+今年的赢兽好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">但我不想再遭受Q娃的折磨了……但是真的好可爱
+

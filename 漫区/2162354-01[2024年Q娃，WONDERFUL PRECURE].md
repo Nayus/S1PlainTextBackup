@@ -1682,3 +1682,43 @@ OP作画，马越我喜欢你
 
 今年的赢兽好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">但我不想再遭受Q娃的折磨了……但是真的好可爱
 
+
+*****
+
+####  Piano-Forest  
+##### 660#       发表于 2024-2-4 09:37
+
+[https://twitter.com/sc_ome/status/1753931672595333605](https://twitter.com/sc_ome/status/1753931672595333605)
+
+1年よろしくおねがいします🐶
+<img src="https://p.sda1.dev/15/45a334883f46f4f618ea2f668315d881/20240204_093417.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/yamamotojunichi/status/1753931458341986657](https://twitter.com/yamamotojunichi/status/1753931458341986657)
+
+＃わんだふるぷりきゅあ！のオープニングアニメの
+
+絵コンテと演出を担当させていただきました。
+
+こむぎが、大好きないろはと一緒に見るわんだふるな世界、そんな世界を思いっきり走れる楽しさや希望を
+
+ぎゅっと詰め込めたらと思いながら制作しました！
+<img src="https://p.sda1.dev/15/62330ca2d3737b1b036598d33a37da28/20240204_093421.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/sugimoto_mi_ho_/status/1753932417507975364](https://twitter.com/sugimoto_mi_ho_/status/1753932417507975364)
+
+わんぷり
+
+OPの原画で参加させて頂きました。
+
+夕景の河川敷に座っているシーンと
+
+ラストカットを担当してます🐶🐾
+
+ありがとうございました！
+<img src="https://p.sda1.dev/15/eee05f1889e075212e3d7ecaa5bb24a7/20240204_093428.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/u7hirosue/status/1753938483788538046](https://twitter.com/u7hirosue/status/1753938483788538046)
+
+わんぷり第一話　演出を務めさせていただきました！
+<img src="https://p.sda1.dev/15/440f6865538e34e74fb01f5b3d56fe4d/20240204_093446.jpg" referrerpolicy="no-referrer">
+

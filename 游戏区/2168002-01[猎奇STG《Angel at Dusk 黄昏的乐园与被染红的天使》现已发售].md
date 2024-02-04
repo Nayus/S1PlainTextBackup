@@ -774,3 +774,33 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">请问一下有人遇到和我一样的问题吗？故事模式从中途续关之后明明显示是3hp但是被碰了一下立马归零，这是bug还是续关惩罚机制？
 
+
+*****
+
+####  糟糕喵  
+##### 57#       发表于 2024-2-4 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63800101&amp;ptid=2168002" target="_blank">beanstar 发表于 2024-1-27 23:48</a>
+
+故事挺好的
+
+但是结尾和那个贴吧以前的水晶焰段子一样整段垮掉
+
+当然也可能是我没理解对 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 就是在结尾的地方结了个尾。本来冲出地球就已经是结局了，后面的大概算是ED后的事后谈吧。。
+
+*****
+
+####  糟糕喵  
+##### 58#       发表于 2024-2-4 10:15
+
+ 本帖最后由 糟糕喵 于 2024-2-4 10:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63800101&amp;ptid=2168002" target="_blank">beanstar 发表于 2024-1-27 23:48</a>
+
+故事挺好的
+
+但是结尾和那个贴吧以前的水晶焰段子一样整段垮掉
+
+当然也可能是我没理解对 ...</blockquote>
+麻了，这几天发帖怎么都卡了都不知道到底有没有发出去。。。
+

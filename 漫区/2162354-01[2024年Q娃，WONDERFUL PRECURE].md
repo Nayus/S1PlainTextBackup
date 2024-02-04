@@ -1738,3 +1738,26 @@ OPの原画で参加させて頂きました。
 
 没变q娃之前这狗就已经很不正常了啊
 
+
+*****
+
+####  按时间灵活  
+##### 663#       发表于 2024-2-4 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63875476&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-4 08:07</a>
+
+漫画和动画都有华哥许愿和眼睛小哥同班，看来也是比较重点的内容了
+去年同时出现在漫画和动画的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cloudslin  
+##### 664#       发表于 2024-2-4 10:20
+
+脚本和演出思路给我一种深入贯彻落实鹫尾p关于“q娃的本质就是手牵手”的最新指示精神，的感觉。
+立花时隔多年再次上线，大福还在瞒，然后兔山同学的声音，总感觉会和拓海很不对付<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+《为了你变成光之美少女》，《夕阳下的约定》什么的，成田阿姨表示这都我十年前玩剩下的了。
+<img src="https://pic.imgdb.cn/item/65bef3f6871b83018a126991.jpg" referrerpolicy="no-referrer">
+<img src="https://pic.imgdb.cn/item/65bef40b871b83018a129de7.jpg" referrerpolicy="no-referrer">
+

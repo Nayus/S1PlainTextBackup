@@ -2287,3 +2287,19 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 
 都在业界混的，哪能说翻脸就翻脸。
 
+
+*****
+
+####  基神的强袭自由  
+##### 234#       发表于 2024-2-4 22:55
+
+#强烈要求X开放简介字数上限#
+
+*****
+
+####  氷川日菜  
+##### 235#       发表于 2024-2-4 22:59
+
+为了点捕风捉影的猜测精神内耗破防自己死缠烂打太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+不如像祥子一样不看她的笔记祝她幸福转身就走<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

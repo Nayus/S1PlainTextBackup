@@ -325,3 +325,21 @@ Up四星掉率提升了，歪的也少了
 
 关键是五星别歪，现在五星常驻也就个太公感兴趣点
 
+
+*****
+
+####  Ousia  
+##### 46104#       发表于 2024-2-4 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63882807&amp;ptid=1712412" target="_blank">史艳文 发表于 2024-2-4 21:16</a>
+
+有2宝以上的烟雾镜坛友来加一下好友吗，我iosb服的100,100,599,137</blockquote>
+申请了，但窝小刀没够，还得几天才能挂出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ousia  
+##### 46105#       发表于 2024-2-4 22:58
+
+风怒
+

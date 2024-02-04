@@ -55,3 +55,28 @@
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lxshhh  
+##### 3820#       发表于 2024-2-4 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63879882&amp;ptid=2098044" target="_blank">otakun 发表于 2024-2-4 16:12</a>
+
+阿奴丽斯的头巾是出厂配置，身体的一部分，不是真的头巾，具有备份功能 ...</blockquote>
+还有这设定吗，细的，但是金毛给人的感觉更加重口了...
+
+*****
+
+####  lxshhh  
+##### 3821#       发表于 2024-2-4 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63880130&amp;ptid=2098044" target="_blank">牙狼GARO 发表于 2024-2-4 16:41</a>
+
+荒谬难度进终章了，打死了武神，魔女
+
+龙神妖精王水井打不过，是继续练级刷晶体还是直接终章冲？</blockquote>
+感觉一周目刷太多不是很合算，真要狂刷的话还是留着新章打盖亚的时候刷吧，到时候有了装备盘再去打多半没什么压力了就。反正这些东西现阶段不打完也就影响拿一个最强护甲，那个宇宙漫步的护甲先凑合用用也差不多其实。
+
+而且后面真的还有挺多流程挺消磨人耐心的，如果你现在刷得太过猛我感觉你近期之内应该是没啥心情通关了...
+

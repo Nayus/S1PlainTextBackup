@@ -812,3 +812,21 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 夜光蛾系列有资源么<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白河响剑  
+##### 60#       发表于 2024-2-4 12:49
+
+首发打了挺久 各种意义上都很棒的游戏
+
+美术设定很有意思
+
+等级上升自机外观变大既糊逼又有气势 尤其后面敌我都很大个 拆的很爽
+
+鼓励贴脸和部位破坏 消弹给的也很慷慨 菜鸡如我也会产生“原来我也能做到这种操作！”的心态
+
+虽然没什么卵用但很上心的新手教学 如图FTG那边近几年细化教学一样 这边的教程也很用心
+
+抛开画风问题我感觉可以推荐给每个想入坑STG的人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

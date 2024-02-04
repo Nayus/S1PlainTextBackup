@@ -1929,3 +1929,31 @@ S1到底修了什麼，卡頁bug根本沒好嘛 ...</blockquote>
 <strong>[其他] 网页版修复回复数，每页目前增加到40回复 </strong> 发表于 2024-2-3 11:08
 [https://bbs.saraba1st.com/2b/thread-2170687-1-1.html](https://bbs.saraba1st.com/2b/thread-2170687-1-1.html)
 
+
+*****
+
+####  蒜苗  
+##### 196#       发表于 2024-2-4 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63878438&amp;ptid=2170547" target="_blank">[皆神孝介] 发表于 2024-2-4 13:40</a>
+论坛管理员发的：
+
+[其他] 网页版修复回复数，每页目前增加到40回复  发表于 2024-2-3 11:08
+
+https://bbs. ...</blockquote>
+没用，该卡还是卡，必须要楼主回复才会刷新
+
+*****
+
+####  jerryoq1  
+##### 197#       发表于 2024-2-4 14:36
+
+既然修复了 是不是该重开四号楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  这楼只能看到楼主的帖
+
+*****
+
+####  蒜苗  
+##### 198#       发表于 2024-2-4 14:36
+
+修复个鬼，狗叔自己发的那楼就卡页了你们没发现吗，只有第一页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

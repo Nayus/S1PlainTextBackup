@@ -18,3 +18,13 @@
 
 4.城里npc小女孩新章里不是说盖屋她妹有个小秘密吗，是不是指她妹是兄控这事，还是指治愈能力。
 
+
+*****
+
+####  otakun  
+##### 3817#       发表于 2024-2-4 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63879665&amp;ptid=2098044" target="_blank">lxshhh 发表于 2024-2-4 15:47</a>
+通了通了，这游戏跟dq11还挺像的，一周目体验都非常完美，新章就跟dq11的二周目一样，有点为了大团圆而硬搞 ...</blockquote>
+阿奴丽斯的头巾是出厂配置，身体的一部分，不是真的头巾，居然备份功能
+

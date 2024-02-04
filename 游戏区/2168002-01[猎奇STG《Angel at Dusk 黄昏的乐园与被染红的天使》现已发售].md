@@ -851,3 +851,11 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">原来是夜光蛾那个大佬
 
+
+*****
+
+####  quanlix  
+##### 63#       发表于 2024-2-4 16:11
+
+编年史后期被摸一下好像最多能扣5点hp
+

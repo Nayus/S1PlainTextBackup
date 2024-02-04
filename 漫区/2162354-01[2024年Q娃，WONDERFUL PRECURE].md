@@ -1495,3 +1495,172 @@ q娃楼想要臊皮大几百页的话，相当难吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">今年bg年真的有甜甜的bg吗？感觉东映不待见眼镜男，貌似成功跟Q娃处过对象的眼镜男只有惠美瑠她哥，希望不要激寒复刻
 
+
+*****
+
+####  宅音  
+##### 641#       发表于 2024-2-4 01:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人宠羁绊，眼镜和兔子卖腐可能性微存
+
+*****
+
+####  噗哩噗  
+##### 642#       发表于 2024-2-4 01:53
+
+突然意识到今年是狗先变身，第一主角不是用来给小友代入的吗
+
+*****
+
+####  HGCG3  
+##### 643#       发表于 2024-2-4 07:38
+
+这啥重型犬
+
+*****
+
+####  linhaitora  
+##### 644#       发表于 2024-2-4 07:47
+
+猫组是猫上位吗
+
+*****
+
+####  HGCG3  
+##### 645#       发表于 2024-2-4 07:51
+
+变身了
+
+*****
+
+####  linhaitora  
+##### 646#       发表于 2024-2-4 07:57
+
+首战略无聊
+
+*****
+
+####  按时间灵活  
+##### 647#       发表于 2024-2-4 08:01
+
+看来真的没有打戏了？
+
+*****
+
+####  jaewoongh_  
+##### 648#       发表于 2024-2-4 08:02
+
+OP作画，马越我喜欢你
+
+<img src="https://img.saraba1st.com/forum/202402/04/080202d1tlts1zt5invm11.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240204080150.png</strong> (287.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 08:02 上传
+
+*****
+
+####  linhaitora  
+##### 649#       发表于 2024-2-4 08:04
+
+<blockquote>达达葱2 发表于 2023-11-29 18:40
+明年会不会没肉搏了</blockquote>
+会
+
+*****
+
+####  Mr.Giraffe  
+##### 650#       发表于 2024-2-4 08:05
+
+居然是话疗抱一抱就净化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/04/080254ny1j12ydt41911na.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (215.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 08:02 上传
+
+<img src="https://img.saraba1st.com/forum/202402/04/080255hgg7wg50uf1p7is7.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (42.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 08:02 上传
+
+<img src="https://img.saraba1st.com/forum/202402/04/080255j5tftli859e6ytz9.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (176.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 08:02 上传
+
+好想做小麦小姐的狗啊
+
+*****
+
+####  帝下室の年糕  
+##### 651#       发表于 2024-2-4 08:07
+
+ 本帖最后由 帝下室の年糕 于 2024-2-4 08:17 编辑 
+
+漫画和动画都有华哥许愿和眼睛小哥同班，看来也是比较重点的内容了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+去年同时出现在漫画和动画的还是晴少侠单膝跪地向真白小姐宣誓忠诚
+
+*****
+
+####  HGCG3  
+##### 652#       发表于 2024-2-4 08:08
+
+反正官方目前没像甜点那样说这部不肉搏，等缺乏点子了自然会拍拍灰拿回来
+
+*****
+
+####  最强惠酱  
+##### 653#       发表于 2024-2-4 08:11
+
+第一集小麦太会动了，可爱到爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+不过没想到今年的妈妈也那么猛<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犬飼いろは  
+##### 654#       发表于 2024-2-4 08:14
+
+「わんだふるぷりきゅあ！」オープニング主題歌「わんだふるぷりきゅあ！evolution!!」(ノンテロップver)：[https://youtu.be/wfB-OvWKCvc](https://youtu.be/wfB-OvWKCvc)
+
+「わんだふるぷりきゅあ！」エンディング主題歌「FUN☆FUN☆わんだふるDAYS！」(ノンテロップver)：[https://youtu.be/RYSbKdeXlgg](https://youtu.be/RYSbKdeXlgg)
+
+*****
+
+####  lawsherman  
+##### 655#       发表于 2024-2-4 08:24
+
+<blockquote>Mr.Giraffe 发表于 2024-2-4 08:05
+居然是话疗抱一抱就净化了不过非常可爱哦
+
+</blockquote>
+醒醒，小麦小姐已经是狗了
+
+*****
+
+####  千恋万花  
+##### 656#       发表于 2024-2-4 08:49
+
+いろは 蹲下来的姿势有点爷们
+<img src="https://p.sda1.dev/15/d807b96596fd977fe2b7fa9d9d6ef011/2024-02-04-0849_00.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  过气页游  
+##### 657#       发表于 2024-2-4 08:50
+
+原来狗狗才是主角吗
+

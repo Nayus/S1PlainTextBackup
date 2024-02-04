@@ -117,3 +117,14 @@
 
 话说这游戏新角色池子是不是up也就是up四星的，我京和乌友的三星都没捞到（现在一票也没了，也不知道下个池子是啥
 
+
+*****
+
+####  江戸前ルナ  
+##### 916#         楼主| 发表于 2024-2-4 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63874887&amp;ptid=2104259" target="_blank">madcow 发表于 2024-2-4 01:02</a>
+
+话说这游戏新角色池子是不是up也就是up四星的，我京和乌友的三星都没捞到（现在一票也没了，也不知道下个池 ...</blockquote>
+二星三星就没UP过
+

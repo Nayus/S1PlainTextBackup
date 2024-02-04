@@ -2238,3 +2238,11 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 左边三个人跳挺高的，只有结月跳不起来<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/cea0026f8859c17aae8b39f1b297d7f2/CMP_20240204214344509.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 229#       发表于 2024-2-4 22:01
+
+要求放出绫奈系构版剧本
+

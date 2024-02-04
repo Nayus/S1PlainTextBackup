@@ -867,3 +867,17 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 9/10。开年玩过最惊艳的游戏，随着流程推进变强变大，摧枯拉朽破坏血肉的感觉会让人越打越上头，尤其是后期自机变得跟boss机一个体格互A，真的很爽。剧情也意外的挺有深度，明明是纯粹的STG，文本量不少而且世界观特别有意思。 血肉飞升到重金属。推荐。
 
+
+*****
+
+####  IRIS虹  
+##### 65#       发表于 2024-2-4 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63860425&amp;ptid=2168002" target="_blank">白色有角 发表于 2024-2-2 07:12</a>
+打出朗茉丽芙最终形态了
+
+第一次在stg里看到这么大的自机，所以这个体积越大判定点越小是个什么理( ...</blockquote>
+貌似判定点一直都是交叉线中间那个小点吧
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

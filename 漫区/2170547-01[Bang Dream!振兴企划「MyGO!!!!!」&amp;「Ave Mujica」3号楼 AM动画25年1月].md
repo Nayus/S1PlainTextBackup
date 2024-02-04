@@ -1735,3 +1735,35 @@ QQ图片20240203213814.jpg
 https://twitter.com/nanamizu_kayu/status/1753040970600612086</blockquote>
 https://weibo.com/u/7360854409 老师微博还有其他图
 
+
+*****
+
+####  ddy2811  
+##### 175#       发表于 2024-2-4 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63877715&amp;ptid=2170547" target="_blank">hkguty 发表于 2024-2-4 12:20</a>
+
+看完感觉风格好像跟孤独摇滚完全相反，比较沉重，前面感觉祥子有点不可理喻，但是最后一话仅几个镜头就完美 ...</blockquote>
+到了有人追债的地步应该是没法空手套白狼拉起那么多赞助的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且看第8集和第13集我觉得老家并没有败落，是祥子因为某些原因出去了
+
+*****
+
+####  kosou  
+##### 176#       发表于 2024-2-4 12:28
+
+初华用的是斯科特自家ar-06的改款ar-07  虽然都是offset但其实和jm关系不大
+
+*****
+
+####  紫吹兰  
+##### 177#         楼主| 发表于 2024-2-4 12:30
+
+现在一页变成40楼了?
+
+*****
+
+####  kosou  
+##### 178#       发表于 2024-2-4 12:31
+
+另外斯科特日本和esp是同一个厂做的 所以大概率单纯是场外商业因素<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -881,3 +881,16 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  鋼島刃織  
+##### 66#       发表于 2024-2-4 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63878725&amp;ptid=2168002" target="_blank">库德里尔 发表于 2024-02-04 14:14:05</a>
+我现在知道在编年体模式里面关卡数越高，被弹时扣的血就增加，比如在第七关开始中弹就-2，
+
+具体在多少关 ...</blockquote>编年史有个装等/抗魔值系统，自身三件武器平均等级越接近敌人等级，敌弹越不痛。这个可以在进关卡后看右上角，关卡数上面那行代表当前装等下本关难度，vh1弹1血 ex2血 fex3血这样，总之就是尽可能用高等级武器就好。话虽如此后面的关卡还是会一下3血的，毕竟装备等级上限就到那了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

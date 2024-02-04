@@ -830,3 +830,16 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 抛开画风问题我感觉可以推荐给每个想入坑STG的人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 61#       发表于 2024-2-4 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63876042&amp;ptid=2168002" target="_blank">磨牙棒 发表于 2024-2-4 09:34</a>
+
+请问一下有人遇到和我一样的问题吗？故事模式从中途续关之后明明显示是3hp但是被碰了一下立马归零， ...</blockquote>
+我现在知道在编年体模式里面关卡数越高，被弹时扣的血就增加，比如在第七关开始中弹就-2，
+
+具体在多少关突变，以及是否和机体的配装有关，我还没有测试过
+

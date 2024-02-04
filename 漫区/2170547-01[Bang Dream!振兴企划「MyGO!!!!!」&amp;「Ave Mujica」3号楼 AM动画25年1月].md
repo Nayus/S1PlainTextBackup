@@ -2045,3 +2045,22 @@ https://bbs. ...</blockquote>
 
 我型号抄萌娘百科的应该没什么问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  重言式  
+##### 208#       发表于 2024-2-4 18:24
+
+<blockquote>kosou 发表于 2024-2-4 12:28
+初华用的是斯科特自家ar-06的改款ar-07  虽然都是offset但其实和jm关系不大</blockquote>
+Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系还不大么
+
+*****
+
+####  重言式  
+##### 209#       发表于 2024-2-4 18:30
+
+<blockquote>御幸一也 发表于 2024-2-4 12:59
+原來斯科特說的是Schecter，這個中文為什麼會是斯科特啊，我還以為斯科特是scott ...</blockquote>
+要是翻译成筛科特就不会有歧义了。不过那样听起来像卖滤纸的
+

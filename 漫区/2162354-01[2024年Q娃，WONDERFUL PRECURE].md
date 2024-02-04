@@ -1722,3 +1722,11 @@ OPの原画で参加させて頂きました。
 わんぷり第一話　演出を務めさせていただきました！
 <img src="https://p.sda1.dev/15/440f6865538e34e74fb01f5b3d56fe4d/20240204_093446.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 661#       发表于 2024-2-4 09:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好想当华哥的狗啊，这样就可以（
+

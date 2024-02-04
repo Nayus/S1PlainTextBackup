@@ -804,3 +804,11 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 当然也可能是我没理解对 ...</blockquote>
 麻了，这几天发帖怎么都卡了都不知道到底有没有发出去。。。
 
+
+*****
+
+####  sakuranosibe  
+##### 59#       发表于 2024-2-4 10:27
+
+夜光蛾系列有资源么<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

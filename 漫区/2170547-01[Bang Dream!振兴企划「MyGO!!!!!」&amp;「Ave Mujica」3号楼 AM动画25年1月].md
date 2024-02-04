@@ -2246,3 +2246,18 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 
 要求放出绫奈系构版剧本
 
+
+*****
+
+####  xuziang111  
+##### 230#       发表于 2024-2-4 22:15
+
+该赴日买剧本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Giraffe  
+##### 231#       发表于 2024-2-4 22:17
+
+我不会说绫奈由仁子是MyGO药劲的灵魂，但这是事实<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

@@ -1926,3 +1926,256 @@ OPの原画で参加させて頂きました。
 今年超人肉体是彩羽吧，这肉身和嘎鲁嘎鲁跑这么久，轻松翻越比自己高一个头的障碍，下集预告还有个镜头变身 ...</blockquote>
 毕竟第一话彩羽就有给体育系社团帮忙比赛的传统体育万能粉主的设定了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 681#       发表于 2024-2-4 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63879353&amp;ptid=2162354" target="_blank">花开安菲路 发表于 2024-02-04 15:17:03</a>
+测试，卡楼了？手机端看不到回复，网页端可以。。。</blockquote>现在整个泥潭都在卡，已经好几天了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Mr.Giraffe  
+##### 682#       发表于 2024-2-4 15:39
+
+ 本帖最后由 Mr.Giraffe 于 2024-2-4 16:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63879453&amp;ptid=2162354" target="_blank">凡人 发表于 2024-2-4 15:25</a>
+
+没有了，没有奇迹了</blockquote>
+小麦不被公兔子拐跑就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/8a135ac1bf0abf53702a048e60f15da0/IMG_CMP_87716862.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leleq  
+##### 683#       发表于 2024-2-4 16:05
+
+成田大妈这不是能正常写么，希望这个状态能持续下去吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+运动部助手标准Q娃设定了，但彩羽并不是Q娃标准粉主<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+小麦和怪没斗两下就开始玩起来了可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+没大招因为双人大招吧，小麦变身bank预备时间长实际变身时间短感觉双人bank有戏！
+
+悟应该就是拓海进编制版了吧
+
+打斗的话看op可能以制服控制为主不至于没打斗但第一集就这质量后面还是的动作戏质量不太乐观啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牛油  
+##### 684#       发表于 2024-2-4 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63875476&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-4 08:07</a>
+
+漫画和动画都有华哥许愿和眼睛小哥同班，看来也是比较重点的内容了
+去年同时出现在漫画和动画的 ...</blockquote>
+动画这表现，华哥还只是以朋友的角度讲的，脸红的是男人
+
+问题还不大……不过也可能是制作组就好这一口<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牛油  
+##### 685#       发表于 2024-2-4 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63875476&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-4 08:07</a>
+
+漫画和动画都有华哥许愿和眼睛小哥同班，看来也是比较重点的内容了
+去年同时出现在漫画和动画的 ...</blockquote>
+动画这表现，华哥还只是以朋友的角度讲的，脸红的是男人
+
+问题还不大……不过也可能是制作组就好这一口<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zyw0  
+##### 686#       发表于 2024-2-4 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63876521&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-02-04 10:20:35</a>
+脚本和演出思路给我一种深入贯彻落实鹫尾p关于“q娃的本质就是手牵手”的最新指示精神，的感觉。
+立花时隔 ...</blockquote>上个月刚和人鱼官宣的拓海:这黑面具谁给我塞得
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zyw0  
+##### 687#       发表于 2024-2-4 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63876521&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-02-04 10:20:35</a>
+脚本和演出思路给我一种深入贯彻落实鹫尾p关于“q娃的本质就是手牵手”的最新指示精神，的感觉。
+立花时隔 ...</blockquote>上个月刚和人鱼官宣的拓海:这黑面具谁给我塞得
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  放哨的狼  
+##### 688#       发表于 2024-2-4 16:40
+
+今年怎么都得给个双人bank了吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 689#       发表于 2024-2-4 16:46
+
+塞男Q娃要成定番了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青蛙佬  
+##### 690#       发表于 2024-2-4 17:17
+
+<img src="https://img.saraba1st.com/forum/202402/04/171637if5nlqbn5iglgqnh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202402/04/171639mmn14wirr42vkk1f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 17:16 上传
+
+如果大友变成怪物了，是不是就可以被小麦抱抱了，一起做快乐的事情了。而且还不用被殴打。
+
+*****
+
+####  cxj649  
+##### 691#       发表于 2024-2-4 17:58
+
+翻页试试
+
+*****
+
+####  maoyou  
+##### 692#       发表于 2024-2-4 18:15
+
+一只狗还讲什么重不重的，狗主人本来就只有一个啊
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  tengu_desu  
+##### 693#       发表于 2024-2-4 18:15
+
+未曾设想的道路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/04/181449l9777c9qzw5mexec.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9756.jpeg</strong> (281.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 18:14 上传
+
+*****
+
+####  猫屋敷まゆ  
+##### 694#       发表于 2024-2-4 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+[https://twitter.com/mars_oekaki/status/1754070283160592727](https://twitter.com/mars_oekaki/status/1754070283160592727)
+<img src="https://p.sda1.dev/15/842052dde4d353eb6279ff751eced2c0/mars_oekaki-1754070283160592727-img1.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  HGCG3  
+##### 695#       发表于 2024-2-4 20:08
+
+华哥正在朝日台晚间新闻讲大谷翔平和他的爱犬
+
+*****
+
+####  qb0079  
+##### 696#       发表于 2024-2-4 20:41
+
+第一话只能说中规中矩吧，没有肉搏和战斗这太微妙了
+
+*****
+
+####  jaewoongh_  
+##### 697#       发表于 2024-2-4 21:04
+
+社恐大小姐前辈
+
+<img src="https://img.saraba1st.com/forum/202402/04/210430f7llh1tl7l1tttv1.jpg" referrerpolicy="no-referrer">
+
+<strong>GFfhgt9bgAAXnq0.jpg</strong> (874.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 21:04 上传
+
+[https://twitter.com/silkru_gakky_2/status/1754118760271921493](https://twitter.com/silkru_gakky_2/status/1754118760271921493)
+
+*****
+
+####  毛头小希  
+##### 698#       发表于 2024-2-4 21:29
+
+看完第一话了，什么重力母狗，魅魔狗主，腹黑猫猫和社恐猫主，眼镜男完全是被无意识魅魔耍得团团转的存在吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我补的Q娃也不算很多，以个人标准而言算是挺平淡的第一话
+
+*****
+
+####  不能摸的屁屁  
+##### 699#       发表于 2024-2-4 21:35
+
+白猫姐看上去不简单，狗变人是想和华哥一起玩，猫变人怕不是想指导自家社恐少女该怎么交朋友
+
+*****
+
+####  linhaitora  
+##### 700#       发表于 2024-2-4 23:25
+
+<blockquote>青蛙佬 发表于 2024-2-4 17:17
+如果大友变成怪物了，是不是就可以被小麦抱抱了，一起做快乐的事情了。而且还不用被殴打。
+
+ ...</blockquote>
+可能殴打的待遇要留给干部
+
+*****
+
+####  alialex  
+##### 701#       发表于 2024-2-4 23:40
+
+好重力的一只狗...话说因为粉主是狗变的日常聊天就在摇屁股太糟糕了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屈江鸟  
+##### 702#       发表于 2024-2-5 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是，猫这眼睛也太媚了
+
+*****
+
+####  天风绯炎  
+##### 703#       发表于 2024-2-5 00:33
+
+翻页
+
+*****
+
+####  上坂莲华  
+##### 704#       发表于 2024-2-5 00:39
+
+卡楼了吧，外面看不到
+
+看了遍熟肉，这变身台词用了evolution，加上打异世界怪物，我有点担心后面跳出来个Cure Susanoomon啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

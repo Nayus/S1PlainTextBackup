@@ -20183,3 +20183,12 @@ s1看起来药丸的样子
 
 网页应该没问题了吧，鹅球会卡<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡辺梨加  
+##### 1634#       发表于 2024-2-5 00:39
+
+<blockquote>#Event速报# 2024.5.26，上海摩登天空，sayuri（酸欠少女） ​​​</blockquote>
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

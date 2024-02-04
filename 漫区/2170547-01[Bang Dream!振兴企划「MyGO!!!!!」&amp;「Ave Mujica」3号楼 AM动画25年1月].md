@@ -2082,3 +2082,18 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  紫吹兰  
+##### 212#         楼主| 发表于 2024-2-4 19:46
+
+手机翻页
+
+*****
+
+####  星空冻结  
+##### 213#       发表于 2024-2-4 19:52
+
+反正还需要楼主手动翻页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

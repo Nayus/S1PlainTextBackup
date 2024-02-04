@@ -92,3 +92,14 @@
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  三千珈蓝  
+##### 3823#       发表于 2024-2-4 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63880270&amp;ptid=2098044" target="_blank">lxshhh 发表于 2024-2-4 16:53</a>
+
+还有这设定吗，细的，但是金毛给人的感觉更加重口了...</blockquote>
+你看培养皿里几个阶段的金毛后面成熟体就突然有了衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

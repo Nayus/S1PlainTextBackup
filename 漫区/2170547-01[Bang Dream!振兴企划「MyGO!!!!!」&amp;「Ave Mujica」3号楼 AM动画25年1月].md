@@ -2072,3 +2072,13 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 
 所以现在楼正常了？能发出来，看来是正常了捏
 
+
+*****
+
+####  nebulanoby  
+##### 211#       发表于 2024-2-4 19:35
+
+现在好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

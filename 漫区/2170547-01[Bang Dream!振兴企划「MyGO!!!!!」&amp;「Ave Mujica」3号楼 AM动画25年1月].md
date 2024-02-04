@@ -1767,3 +1767,45 @@ https://weibo.com/u/7360854409 老师微博还有其他图
 
 另外斯科特日本和esp是同一个厂做的 所以大概率单纯是场外商业因素<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 179#         楼主| 发表于 2024-2-4 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63877836&amp;ptid=2170547" target="_blank">kosou 发表于 2024-2-4 12:31</a>
+
+另外斯科特日本和esp是同一个厂做的 所以大概率单纯是场外商业因素</blockquote>
+esp和schector是一个老板
+
+*****
+
+####  一定会成功的  
+##### 180#       发表于 2024-2-4 12:36
+
+泥潭使用体验比屎黄色论坛还差<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一定会成功的  
+##### 181#       发表于 2024-2-4 12:36
+
+泥潭使用体验比屎黄色论坛还差<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一定会成功的  
+##### 182#       发表于 2024-2-4 12:38
+
+泥潭使用体验比屎黄色论坛还差<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 183#       发表于 2024-2-4 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63877800&amp;ptid=2170547" target="_blank">kosou 发表于 2024-2-4 12:28</a>
+
+初华用的是斯科特自家ar-06的改款ar-07  虽然都是offset但其实和jm关系不大</blockquote>
+原来还是七弦，这乐队可能突出一个老鸟初出道
+

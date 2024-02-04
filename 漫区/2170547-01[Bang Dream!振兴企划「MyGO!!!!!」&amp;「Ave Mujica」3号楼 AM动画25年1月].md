@@ -2105,3 +2105,11 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 
 唉，结月的声音太有中气了，非母鸡卡活动很难和睦宝联系在一起
 
+
+*****
+
+####  笋干爆炸碱  
+##### 215#       发表于 2024-2-4 20:31
+
+睦音有睦音的好，原声有原声的好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

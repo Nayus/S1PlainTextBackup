@@ -2113,3 +2113,11 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 
 睦音有睦音的好，原声有原声的好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akirakira  
+##### 216#       发表于 2024-2-4 20:38
+
+结月的声音一听就很靠谱很有安全感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

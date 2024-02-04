@@ -210,7 +210,7 @@ async def UpdateThread(threaddict,semaphore):
                     f.write('1')
             else:
                 #单纯的1页帖子保存着先不动，仅不停更新标题
-                thdata[threaddict['id']]['title'] = titles
+                thdata[threaddict['id']]['title'] = newtitles
         #采取增量更新后仅第一次更新标题
         elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 86400):
             #1天过期

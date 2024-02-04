@@ -12280,3 +12280,14 @@ RPG要是能加个前摇就好了，开的瞬间根本没机会躲，二人轮�
 泥潭应该没有比我这更毒的号了，我发誓我真的没有故意要往输了打挑战打了开放打了涂地打了，武器换 ...</blockquote>
 换把武器吧
 
+
+*****
+
+####  laosai13  
+##### 2719#       发表于 2024-2-4 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63875041&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-2-4 02:09</a>
+
+泥潭应该没有比我这更毒的号了，我发誓我真的没有故意要往输了打挑战打了开放打了涂地打了，武器换 ...</blockquote>
+脸黑的时候是这样的，找朋友或者网友组排吧， 边打边聊天输了也不那么难受
+

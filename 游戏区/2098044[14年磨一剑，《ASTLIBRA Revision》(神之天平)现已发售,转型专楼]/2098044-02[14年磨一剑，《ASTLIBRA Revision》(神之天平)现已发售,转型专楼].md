@@ -28,3 +28,19 @@
 通了通了，这游戏跟dq11还挺像的，一周目体验都非常完美，新章就跟dq11的二周目一样，有点为了大团圆而硬搞 ...</blockquote>
 阿奴丽斯的头巾是出厂配置，身体的一部分，不是真的头巾，居然备份功能
 
+
+*****
+
+####  tansapple  
+##### 3818#       发表于 2024-2-4 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63879665&amp;ptid=2098044" target="_blank">lxshhh 发表于 2024-2-4 15:47</a>
+通了通了，这游戏跟dq11还挺像的，一周目体验都非常完美，新章就跟dq11的二周目一样，有点为了大团圆而硬搞 ...</blockquote>
+1.游戏里的没明说，但是相关信息都暗示就是沼泽那家人的后代。
+
+2.头巾是阿奴丽斯给自己捏的身体的一部分，硬解释也是能说的过去，甚至可以说是爱的奇迹也可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+3.面包妹对男主是有憧憬的感情的，外传里里会有一小段文字提到这个。
+
+4.NPC这句话我自己没啥印象，可以结合NPC说这句话时的前后关联剧情来推测一下指代的是哪件事。
+

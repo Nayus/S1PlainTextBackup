@@ -12301,3 +12301,48 @@ RPG要是能加个前摇就好了，开的瞬间根本没机会躲，二人轮�
 
 其实根本没有这么多人在玩这游戏，三代真格还分流到x赛，挑战和开放三个模式里，匹配时间长分数差距大估计也有这一层的原因
 
+
+*****
+
+####  罗克萨斯  
+##### 2721#       发表于 2024-2-4 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63875041&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-2-4 02:09</a>
+泥潭应该没有比我这更毒的号了，我发誓我真的没有故意要往输了打挑战打了开放打了涂地打了，武器换 ...</blockquote>
+印象里见过近50场胜场个位数的4K使，但人家并不是萌新狙，枪法很好的，只能说运气背的时候你怎么C都没用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  罗克萨斯  
+##### 2722#       发表于 2024-2-4 20:01
+
+玩后排武器真能锻炼心态，我现在并不生气，只想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/04/200153q0pep1pp59f5n9cp.jpg" referrerpolicy="no-referrer">
+
+<strong>2024020419571600-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (236.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 20:01 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  carroy  
+##### 2723#       发表于 2024-2-4 20:46
+
+破船烤架怎么这么多人喜欢拉在蛋框旁边
+很容易大家一起暴毙诶<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  carroy  
+##### 2724#       发表于 2024-2-4 20:56
+
+哦我知道了
+不会是因为团工打乱获所以打普通工忘记了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2303,3 +2303,13 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 为了点捕风捉影的猜测精神内耗破防自己死缠烂打太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 不如像祥子一样不看她的笔记祝她幸福转身就走<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 236#         楼主| 发表于 2024-2-4 23:41
+
+[https://bbs.saraba1st.com/2b/thread-2170889-1-1.html](https://bbs.saraba1st.com/2b/thread-2170889-1-1.html) 4号楼已开
+
+百楼似乎能自动翻页了，不过好像识别还是有问题应该是没有完全修好....不管怎么说先开个新楼试试吧
+

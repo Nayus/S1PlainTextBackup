@@ -2179,3 +2179,18 @@ OPの原画で参加させて頂きました。
 
 看了遍熟肉，这变身台词用了evolution，加上打异世界怪物，我有点担心后面跳出来个Cure Susanoomon啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 705#       发表于 2024-2-5 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">兔子后脑勺和小麦小雪一样都有个爱心，化身人形至少是肯定了的
+
+*****
+
+####  car123  
+##### 706#       发表于 2024-2-5 01:14
+
+今年的女人（狗）还挺不错的，狗人还是挺有新意的，宠物不仅能做不少人做不到的事，还能**方方的粘人，小麦真是太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

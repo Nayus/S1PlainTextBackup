@@ -20192,3 +20192,20 @@ s1看起来药丸的样子
 <blockquote>#Event速报# 2024.5.26，上海摩登天空，sayuri（酸欠少女） ​​​</blockquote>
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  Saber琪  
+##### 1635#       发表于 2024-2-5 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63884440&amp;ptid=2152053" target="_blank">渡辺梨加 发表于 2024-2-5 00:39</a>
+—— 来自 samsung SM-N9860, Android 13上的 S1Next-鹅版 v2.5.3-play</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">有花之塔嘛
+
+*****
+
+####  Saber琪  
+##### 1636#       发表于 2024-2-5 01:06
+
+鹅球开始卡了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

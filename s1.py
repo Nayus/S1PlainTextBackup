@@ -208,8 +208,9 @@ async def UpdateThread(threaddict,semaphore):
                 mkdir(filedir)
                 with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
                     f.write('1')
-            #else:
-                #单纯的1页帖子保存着先不动
+            else:
+                #单纯的1页帖子保存着先不动，仅不停更新标题
+                thdata[threaddict['id']]['title'] = titles
         #采取增量更新后仅第一次更新标题
         elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 86400):
             #1天过期

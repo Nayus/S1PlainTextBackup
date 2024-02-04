@@ -1847,3 +1847,23 @@ esp和schector是一个老板
 
 看了下手机版还是30楼一页，卡在180，电脑版是40楼一页能看到后面
 
+
+*****
+
+####  御幸一也  
+##### 188#       发表于 2024-2-4 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63878087&amp;ptid=2170547" target="_blank">紫吹兰 发表于 2024-2-4 13:01</a>
+
+看了下手机版还是30楼一页，卡在180，电脑版是40楼一页能看到后面</blockquote>
+好像昨天還是前天開始，電腦版就變40樓一頁了
+
+S1到底修了什麼，卡頁bug根本沒好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 189#       发表于 2024-2-4 13:04
+
+变成40一页所以页数也变了不知道是不是吐出来了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是好像对后续的卡页依旧没有什么用
+

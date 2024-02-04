@@ -305,3 +305,13 @@ Up四星掉率提升了，歪的也少了
 
 有2宝以上的烟雾镜坛友来加一下好友吗，我iosb服的100,100,599,137
 
+
+*****
+
+####  khxooo  
+##### 46102#       发表于 2024-2-4 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63882807&amp;ptid=1712412" target="_blank">史艳文 发表于 2024-2-4 21:16</a>
+有2宝以上的烟雾镜坛友来加一下好友吗，我iosb服的100,100,599,137</blockquote>
+可惜是最远的距离
+

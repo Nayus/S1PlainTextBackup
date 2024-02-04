@@ -1709,3 +1709,29 @@ QQ图片20240203213814.jpg
 
 睦真是很關心前隊友，不僅成團前的live都有去看，連送給前隊友的東西都越看越用心<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 172#       发表于 2024-2-4 12:17
+
+才发现新楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  hkguty  
+##### 173#       发表于 2024-2-4 12:20
+
+看完感觉风格好像跟孤独摇滚完全相反，比较沉重，前面感觉祥子有点不可理喻，但是最后一话仅几个镜头就完美交代了她的窘境还是蛮吊的，又挺合情合理，所以故意疏远mygo成员以及新乐队搞蒙面风是为了追债的不连累他人？下一季是Ave Mujica，剧场版是总集篇么，Ave Mujica那边用的全是斯科特，原来贝斯手和睦在一众ESP里弹斯科特其实也是一个伏笔吗？主唱使用的似乎是斯科特版的Jazzmaster，挺冷门的琴，不过睦使用的双线圈tele感觉也满怪，我印象中tele好像大多是单线圈吧，看来这次是要跟斯科特联动，虽然看esp那一堆男不男女不女的签约艺人，我感觉他们跟哥特风乐队联动才是最搭的，看来是割爱给兄弟厂了，不过对于想买联动琴的人来说可能是好事，斯科特贴牌感觉要比ESP便宜得多。
+
+*****
+
+####  nh_zzz  
+##### 174#       发表于 2024-2-4 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63858797&amp;ptid=2170547" target="_blank">御幸一也 发表于 2024-2-1 22:55</a>
+https://twitter.com/nanamizu_kayu/status/1753040970600612086</blockquote>
+https://weibo.com/u/7360854409 老师微博还有其他图
+

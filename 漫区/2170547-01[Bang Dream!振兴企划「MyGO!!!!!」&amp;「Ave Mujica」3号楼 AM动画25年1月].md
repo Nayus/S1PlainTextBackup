@@ -1904,3 +1904,28 @@ S1到底修了什麼，卡頁bug根本沒好嘛<img src="https://static.saraba1s
 
 但如果你期待的是初祥的親密關係性，我建議現在就和我大力入股<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 194#       发表于 2024-2-4 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63878087&amp;ptid=2170547" target="_blank">紫吹兰 发表于 2024-2-4 13:01</a>
+
+看了下手机版还是30楼一页，卡在180，电脑版是40楼一页能看到后面</blockquote>
+参考本主题[114L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2170547&amp;pid=63869759)、[133L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2170547&amp;pid=63873139)的发言。
+
+*****
+
+####  [皆神孝介]  
+##### 195#       发表于 2024-2-4 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63878104&amp;ptid=2170547" target="_blank">御幸一也 发表于 2024-2-4 13:03</a>
+
+好像昨天還是前天開始，電腦版就變40樓一頁了
+
+S1到底修了什麼，卡頁bug根本沒好嘛 ...</blockquote>
+论坛管理员发的：
+<strong>[其他] 网页版修复回复数，每页目前增加到40回复 </strong> 发表于 2024-2-3 11:08
+[https://bbs.saraba1st.com/2b/thread-2170687-1-1.html](https://bbs.saraba1st.com/2b/thread-2170687-1-1.html)
+

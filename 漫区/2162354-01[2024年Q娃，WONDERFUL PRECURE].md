@@ -1867,3 +1867,18 @@ OPの原画で参加させて頂きました。
 
 甜点的气息太严重了
 
+
+*****
+
+####  暗黑能乐  
+##### 676#       发表于 2024-2-4 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63877284&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-4 11:37</a>
+
+小麦好重一小狗，建议进挺好萌
+
+但是好可爱啊
+
+第一话和漫画第一话的区别仅在小麦变身的时间， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉上田配有病角或者社恐角已经是标签摘不掉了。。
+

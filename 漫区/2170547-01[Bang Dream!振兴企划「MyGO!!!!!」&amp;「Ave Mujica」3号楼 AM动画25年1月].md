@@ -1543,3 +1543,65 @@ QQ图片20240203213814.jpg
 
 这样我会担心我打了一堆字然后被卡
 
+
+*****
+
+####  [皆神孝介]  
+##### 161#       发表于 2024-2-4 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63876152&amp;ptid=2170547" target="_blank">笋干爆炸碱 发表于 2024-2-4 09:46</a>
+
+我难得有个很有意思（？）的发现想要发表
+
+这样我会担心我打了一堆字然后被卡 ...</blockquote>
+找个文字编辑软件打字先保存再发<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arachnid  
+##### 162#       发表于 2024-2-4 11:03
+
+看见2号楼这两天一直有人回帖，但是只能刷到2天前的……这两天的完全刷不出
+
+*****
+
+####  御幸一也  
+##### 163#       发表于 2024-2-4 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63876152&amp;ptid=2170547" target="_blank">笋干爆炸碱 发表于 2024-2-4 09:46</a>
+
+我难得有个很有意思（？）的发现想要发表
+
+这样我会担心我打了一堆字然后被卡 ...</blockquote>
+其實都有回成功，只是S1沒有提示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+實在擔心可以發之前備份一個，點了發表F5看看有沒有出來
+
+*****
+
+####  arachnid  
+##### 164#       发表于 2024-2-4 11:03
+
+看见2号楼这两天一直有人回帖，但是只能刷到2天前的……这两天的完全刷不出
+
+*****
+
+####  御幸一也  
+##### 165#       发表于 2024-2-4 11:03
+
+這不還是有卡頁bug嘛 哪時能好啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arachnid  
+##### 166#       发表于 2024-2-4 11:07
+
+看见2号楼这两天一直有人回帖，但是只能刷到2天前的……这两天的完全刷不出
+
+*****
+
+####  紫吹兰  
+##### 167#         楼主| 发表于 2024-2-4 11:08
+
+人工翻页
+

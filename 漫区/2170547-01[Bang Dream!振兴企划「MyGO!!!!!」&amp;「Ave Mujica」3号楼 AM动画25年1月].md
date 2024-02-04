@@ -2121,3 +2121,39 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 
 结月的声音一听就很靠谱很有安全感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋干爆炸碱  
+##### 217#       发表于 2024-2-4 20:47
+
+意外的很适合当背景音，昨天我看wgp比赛直播来着，她是司会，但是打的没啥意思于是挂着写我的月之森园艺部考据去了
+
+结月宝一直嗯嗯真的吗哇哇哇的敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 218#       发表于 2024-2-4 20:50
+
+ 本帖最后由 NODY 于 2024-2-4 20:52 编辑 
+
+如何看待独角兽老师列代表作无狗无鸡甚至整个邦邦都没有（里面那个魔法少女还没开播，不存在没播第二季才不列的情况）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/04/205130p1cwv7k7ww1wvyxi.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-61goK1qT3cSwh-67.jpg</strong> (37.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 20:51 上传
+
+*****
+
+####  ddy2811  
+##### 219#       发表于 2024-2-4 20:51
+
+<img src="https://img.nga.178.com/attachments/mon_202402/04/-9lddQ2t-61goK1qT3cSwh-67.jpg" referrerpolicy="no-referrer">
+
+独角兽老师新推讲代表作邦邦提都没提啊……
+

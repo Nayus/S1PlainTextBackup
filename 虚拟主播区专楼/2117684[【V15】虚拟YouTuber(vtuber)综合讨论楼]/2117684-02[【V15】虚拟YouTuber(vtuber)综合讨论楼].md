@@ -46,3 +46,38 @@
 
 你们也太直接了
 
+
+*****
+
+####  格林卡罗尔  
+##### 2987#       发表于 2024-2-4 20:47
+
+ 本帖最后由 格林卡罗尔 于 2024-2-4 20:49 编辑 
+
+这些管人速成的lol这就又安排上比赛了？
+
+<img src="https://img.saraba1st.com/forum/202402/04/204941czl144eoghae2lge.png" referrerpolicy="no-referrer">
+
+<strong>42e3cdd881da982de54959c634cec761871019.png</strong> (272.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 20:49 上传
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  poipanchao  
+##### 2988#       发表于 2024-2-4 20:48
+
+<img src="https://img.saraba1st.com/forum/202402/04/204817h8eqc8m1mm3r1ic1.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240204203934.png</strong> (394.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 20:48 上传
+
+超正式赛程
+

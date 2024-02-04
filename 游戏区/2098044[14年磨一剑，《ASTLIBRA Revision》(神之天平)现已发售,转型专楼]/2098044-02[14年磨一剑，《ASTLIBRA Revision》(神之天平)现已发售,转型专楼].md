@@ -80,3 +80,15 @@
 
 而且后面真的还有挺多流程挺消磨人耐心的，如果你现在刷得太过猛我感觉你近期之内应该是没啥心情通关了...
 
+
+*****
+
+####  牙狼GARO  
+##### 3822#       发表于 2024-2-4 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63880336&amp;ptid=2098044" target="_blank">lxshhh 发表于 2024-2-4 16:59</a>
+感觉一周目刷太多不是很合算，真要狂刷的话还是留着新章打盖亚的时候刷吧，到时候有了装备盘再去打多半没 ...</blockquote>
+那我直接冲到新章了，荒谬感觉最大的难点是凭依没有暂停了，不能靠时停凭依能量回收耍赖
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

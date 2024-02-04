@@ -1819,3 +1819,11 @@ OPの原画で参加させて頂きました。
 
 就看看猫组好了，狗组再可爱也没用<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qq853360293  
+##### 671#       发表于 2024-2-4 13:14
+
+[https://www.bilibili.com/video/BV1vU421Z7x1/](https://www.bilibili.com/video/BV1vU421Z7x1/) 发现一位野生的翻译
+

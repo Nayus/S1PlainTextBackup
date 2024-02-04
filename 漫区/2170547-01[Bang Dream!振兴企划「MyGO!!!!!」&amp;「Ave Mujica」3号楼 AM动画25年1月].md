@@ -1867,3 +1867,18 @@ S1到底修了什麼，卡頁bug根本沒好嘛<img src="https://static.saraba1s
 
 变成40一页所以页数也变了不知道是不是吐出来了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是好像对后续的卡页依旧没有什么用
 
+
+*****
+
+####  acg_gyanc  
+##### 190#       发表于 2024-2-4 13:16
+
+换楼了就想重新问下，刚补完mygo，在b站刷了很多二创很开心<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 就是想问问在有个地方看到人说初华是最重的是不是真的？没看过其他邦邦，暂时也不会去补，但确实挺好奇的
+
+*****
+
+####  Aendst  
+##### 191#       发表于 2024-2-4 13:18
+
+假的，都是假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说有个别小细节可能会让观众比较容易往那方向想，但假药终归是假药
+

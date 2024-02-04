@@ -2166,3 +2166,40 @@ Ar-06仿的是Jaguar。Jag是Fender根据JM的反馈改出来的，这样关系�
 也不存在只列在播待播作品的情况，因为第一个列出来的黄图就是旧作，最新的剧场版也是2021年的。
 已经不用再战斗了……
 
+
+*****
+
+####  Aendst  
+##### 221#       发表于 2024-2-4 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……
+
+*****
+
+####  阿萨德飞过去  
+##### 222#       发表于 2024-2-4 21:09
+
+也争论许久，你楼也背负不少骂名
+可以不用再战斗了呢<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一定会成功的  
+##### 223#       发表于 2024-2-4 21:09
+
+已经开始ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 224#       发表于 2024-2-4 21:12
+
+怎么还有nga水印<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 225#       发表于 2024-2-4 21:12
+
+重复编辑
+

@@ -1777,3 +1777,17 @@ OPの原画で参加させて頂きました。
 
 贴吧看到一篇给对方挤腺液的文<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 667#       发表于 2024-2-4 11:37
+
+小麦好重一小狗，建议进挺好萌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+第一话和漫画第一话的区别仅在小麦变身的时间，漫画是已经变身了然后遇到兔山和真由动画是先遇到两人再遇怪变身，不过真由这反应原来真是社恐啊这是哪儿来的喵内（
+
+话说结尾CAST表装都不装直接写的猫屋敷小雪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -843,3 +843,11 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 具体在多少关突变，以及是否和机体的配装有关，我还没有测试过
 
+
+*****
+
+####  jojog  
+##### 62#       发表于 2024-2-4 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">原来是夜光蛾那个大佬
+

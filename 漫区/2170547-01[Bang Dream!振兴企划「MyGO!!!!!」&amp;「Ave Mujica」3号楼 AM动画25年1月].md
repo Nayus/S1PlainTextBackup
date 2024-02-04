@@ -1882,3 +1882,25 @@ S1到底修了什麼，卡頁bug根本沒好嘛<img src="https://static.saraba1s
 
 假的，都是假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说有个别小细节可能会让观众比较容易往那方向想，但假药终归是假药
 
+
+*****
+
+####  Arrogate  
+##### 192#       发表于 2024-2-4 13:26
+
+第二季没实锤之前都算假药
+
+*****
+
+####  御幸一也  
+##### 193#       发表于 2024-2-4 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63878223&amp;ptid=2170547" target="_blank">acg_gyanc 发表于 2024-2-4 13:16</a>
+
+换楼了就想重新问下，刚补完mygo，在b站刷了很多二创很开心 就是想问问在有个地方看到人说初华是最 ...</blockquote>
+祥子的訊息她可以那樣看一年，這感情確實是蠻重的，至於是不是最重，窩不知道
+
+而且初華再怎麼樣，也絕對不會去做傷害祥子的事情，所以如果你是期待一些很怪的東西，我覺得不太會有，
+
+但如果你期待的是初祥的親密關係性，我建議現在就和我大力入股<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

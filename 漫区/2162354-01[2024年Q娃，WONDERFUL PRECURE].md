@@ -1827,3 +1827,25 @@ OPの原画で参加させて頂きました。
 
 [https://www.bilibili.com/video/BV1vU421Z7x1/](https://www.bilibili.com/video/BV1vU421Z7x1/) 发现一位野生的翻译
 
+
+*****
+
+####  暗黑能乐  
+##### 672#       发表于 2024-2-4 13:31
+
+这楼这么快就卡页了？
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  千恋万花  
+##### 673#       发表于 2024-2-4 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63878332&amp;ptid=2162354" target="_blank">暗黑能乐 发表于 2024-2-4 13:31</a>
+
+这楼这么快就卡页了？
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+论坛这几天出毛病，很多楼都卡页，暂时还没修好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1900,3 +1900,29 @@ OPの原画で参加させて頂きました。
 
 测试，卡楼了？手机端看不到回复，网页端可以。。。
 
+
+*****
+
+####  凡人  
+##### 679#       发表于 2024-2-4 15:25
+
+<img src="https://img.saraba1st.com/forum/202402/04/152555th8abc2h220dh88y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (558.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-4 15:25 上传
+
+没有了，没有奇迹了
+
+*****
+
+####  pokemon最爱  
+##### 680#       发表于 2024-2-4 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63879252&amp;ptid=2162354" target="_blank">暗黑能乐 发表于 2024-2-4 15:07</a>
+
+今年超人肉体是彩羽吧，这肉身和嘎鲁嘎鲁跑这么久，轻松翻越比自己高一个头的障碍，下集预告还有个镜头变身 ...</blockquote>
+毕竟第一话彩羽就有给体育系社团帮忙比赛的传统体育万能粉主的设定了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

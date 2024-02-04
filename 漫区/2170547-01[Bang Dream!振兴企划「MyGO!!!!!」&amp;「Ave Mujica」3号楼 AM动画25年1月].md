@@ -1990,3 +1990,13 @@ https://bbs. ...</blockquote>
 
 只是外面看不到页数
 
+
+*****
+
+####  傘木希美  
+##### 203#       发表于 2024-2-4 15:29
+
+鹅球能看到最新的回复了？就是外面看卡着
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

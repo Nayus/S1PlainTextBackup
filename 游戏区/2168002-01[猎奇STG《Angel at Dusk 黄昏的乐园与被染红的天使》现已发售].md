@@ -894,3 +894,28 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  瓦格雷  
+##### 67#       发表于 2024-2-5 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63860425&amp;ptid=2168002" target="_blank">白色有角 发表于 2024-2-2 07:12</a>
+
+打出朗茉丽芙最终形态了
+
+第一次在stg里看到这么大的自机，所以这个体积越大判定点越小是个什么理( ...</blockquote>
+可能判定点尺寸不变  但你自机不断变大  所以视觉体验是判定点越来越小 
+
+*****
+
+####  瓦格雷  
+##### 68#       发表于 2024-2-5 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63860425&amp;ptid=2168002" target="_blank">白色有角 发表于 2024-2-2 07:12</a>
+
+打出朗茉丽芙最终形态了
+
+第一次在stg里看到这么大的自机，所以这个体积越大判定点越小是个什么理( ...</blockquote>
+可能判定点尺寸不变  但你自机不断变大  所以视觉体验是判定点越来越小 
+

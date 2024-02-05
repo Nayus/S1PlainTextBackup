@@ -2314,3 +2314,14 @@ OPの原画で参加させて頂きました。
 
 狗对主人感情重挺正常，但只对主人家的小女孩感情重，妈妈逗它理都不理的就不正常了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  car123  
+##### 714#       发表于 2024-2-5 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63886164&amp;ptid=2162354" target="_blank">alialex 发表于 2024-2-5 12:57</a>
+
+狗对主人感情重挺正常，但只对主人家的小女孩感情重，妈妈逗它理都不理的就不正常了 ...</blockquote>
+妈妈在那里一本正经的劝狗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是现实中看到我绝对要担心主人的精神状态
+

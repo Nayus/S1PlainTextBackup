@@ -905,3 +905,35 @@ ST1也想过春节放假是吧？
 
 这楼看样子还是不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圆  
+##### 44#       发表于 2024-2-5 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63884827&amp;ptid=2170889" target="_blank">矢吹奈子 发表于 2024-2-5 02:53</a>
+
+邦邦游戏是有什么我不知道的玩法吗，为什么匹配到的人都是s难度full combo，我打个hard都手指抽经•᷄ࡇ• ...</blockquote>
+熟悉的话，hard应该大部分能fc的
+
+*****
+
+####  蒜苗  
+##### 45#       发表于 2024-2-5 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63886293&amp;ptid=2170889" target="_blank">紫吹兰 发表于 2024-2-5 13:07</a>
+
+先人肉翻一下
+
+@活久见 还是只能楼主翻页和顶贴</blockquote>
+你楼看来没有天选之子，只能楼主本人来翻页了
+
+如果你有长期开机的电脑可以挂机开着网页的话，我有脚本可以用
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 46#       发表于 2024-2-5 13:30
+
+这楼看样子还是不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

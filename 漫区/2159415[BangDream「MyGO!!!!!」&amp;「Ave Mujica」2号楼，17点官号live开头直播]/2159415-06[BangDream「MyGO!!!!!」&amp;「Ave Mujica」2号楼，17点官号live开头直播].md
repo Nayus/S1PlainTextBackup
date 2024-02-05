@@ -17822,3 +17822,56 @@ test
 
 soyo名场面
 
+
+*****
+
+####  Aendst  
+##### 11595#       发表于 2024-2-5 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">既然基本正常了我要开始问问题了
+
+你邦之前会像其他一般校园社团动画一样详写一些学园祭合宿之类的东西吗
+
+*****
+
+####  笋干爆炸碱  
+##### 11596#       发表于 2024-2-5 16:06
+
+猜你想搜，bangdream第二季第九集——校园文化节交响曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11597#       发表于 2024-2-5 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63888402&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-5 16:03</a>
+
+既然基本正常了我要开始问问题了
+
+你邦之前会像其他一般校园社团动画一样详写一些学园祭合宿之类的东 ...</blockquote>
+会啊，但是第一季已经跳过了，羽丘和花女的学园祭都是六月左右<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11598#       发表于 2024-2-5 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">立刻去看
+
+*****
+
+####  NODY  
+##### 11599#       发表于 2024-2-5 16:08
+
+为什么修好以后少了100多页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11600#       发表于 2024-2-5 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63888456&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-5 16:08</a>
+
+为什么修好以后少了100多页</blockquote>
+因為現在40樓1頁了
+

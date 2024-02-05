@@ -76,3 +76,38 @@ DLC第1弾「断章・慶安神前試合」の
 
 謎に包まれた闘技大会が今、ここに開幕する。
 
+
+*****
+
+####  死宅真恶心  
+##### 1687#       发表于 2024-2-5 15:15
+
+DLC第1弾「断章・慶安神前試合」の
+
+配信日が2月9日に決定！
+
+若旦那によって謎の闘技場に閉じ込められる、
+
+マスターとサーヴァントたち。
+
+突如「慶安神前試合」の開幕が高らかに宣言され、
+
+謎に包まれた闘技大会が今、ここに開幕する。
+
+*****
+
+####  无动于衷  
+##### 1688#       发表于 2024-2-5 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887655&amp;ptid=2112855" target="_blank">洛克萨斯 发表于 2024-2-5 14:49</a>
+
+好像有问卷调查下次想看什么游戏，感觉光荣拿到长期饭票了，不如做老本行无双吧，无双组这个fsr也不对味， ...</blockquote>
+呵呵，万一某部重制版做的还不如fsr呢 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 1689#       发表于 2024-2-5 15:44
+
+好奇这个DLC是独立结局还是直接独立模式，武道会打完原本的故事根本讲不下去嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

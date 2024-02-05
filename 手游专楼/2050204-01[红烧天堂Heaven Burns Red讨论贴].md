@@ -48,3 +48,21 @@
 
 新的AB联动角色如何？感觉这种限定池都不敢抽
 
+
+*****
+
+####  道双晨曦  
+##### 1456#       发表于 2024-2-5 13:19
+
+ 本帖最后由 道双晨曦 于 2024-2-5 13:27 编辑 
+
+都不咋地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小奏定位冰斩C，目前看下来打不过冰忍，继承原皮大招去光队吃不了四叶的buff，而且打不过光月城，我是想不到有啥就业方向的，yuri继承原皮大招倒是可以去火队继续当大C
+
+主要问题是当前环境冰队太弱势了，最好的玩法就是带鱼鱼网球打od流走快速回合，但是极限伤害都不如其他属性队
+
+新玩家要力大砖飞就夏洛雷队，快速成型就火队
+
+二周年就这些东西本来想喷的，看完第五章pv和解了，宅宅就是那么容易被满足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

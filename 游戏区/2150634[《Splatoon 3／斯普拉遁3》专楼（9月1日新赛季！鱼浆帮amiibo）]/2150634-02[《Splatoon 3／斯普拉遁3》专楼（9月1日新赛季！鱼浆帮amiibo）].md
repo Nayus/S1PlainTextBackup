@@ -12354,3 +12354,13 @@ RPG要是能加个前摇就好了，开的瞬间根本没机会躲，二人轮�
 
 破船什么都难打，打了四条岗涨了50分，太傻了
 
+
+*****
+
+####  Kaede_Akamatsu  
+##### 2726#       发表于 2024-2-5 13:29
+
+有时候拿狙连着十几把都手感不对劲，对面都撞在准星上了也狙不掉，结果换了个加速器节点治好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

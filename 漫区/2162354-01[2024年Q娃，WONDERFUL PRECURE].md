@@ -2213,3 +2213,14 @@ OPの原画で参加させて頂きました。
 未曾设想的道路</blockquote>
 倒是不奇怪，很明显小麦的性格表现以及心理描写在心理年龄和精神构造上更贴近幼女前辈，那么幼女前辈们不是带入主人彩羽而是带入狗狗小麦其实挺正常的（
 
+
+*****
+
+####  pokemon最爱  
+##### 708#       发表于 2024-2-5 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63881062&amp;ptid=2162354" target="_blank">tengu_desu 发表于 2024-2-4 18:15</a>
+
+未曾设想的道路</blockquote>
+倒是不奇怪，很明显小麦的性格表现以及心理描写在心理年龄和精神构造上更贴近幼女前辈，那么幼女前辈们不是带入主人彩羽而是带入狗狗小麦其实挺正常的（
+

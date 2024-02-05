@@ -1272,3 +1272,64 @@ ras那个看命了，两个千人场太难抢<img src="https://static.saraba1st.
 
 难道要剑指5号楼了么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 69#       发表于 2024-2-5 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">怎麼還沒好！
+
+*****
+
+####  紫吹兰  
+##### 70#         楼主| 发表于 2024-2-5 14:19
+
+现在4号和3号是一样的问题，只有我能顶贴和翻页，开个脚本勉强能将就。
+
+2号楼所有人都能顶贴但是正序不会显示，倒序是可以看到最新回复的，不过s1不能默认倒序，而且这倒序按钮还是隐藏的……
+
+*****
+
+####  徒然枕草  
+##### 71#       发表于 2024-2-5 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 72#       发表于 2024-2-5 14:22
+
+再测试一下，还是解析错误<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  taybmq  
+##### 73#       发表于 2024-2-5 14:23
+
+test
+
+*****
+
+####  小糸侑KoitoYuu  
+##### 74#       发表于 2024-2-5 14:26
+
+这个号试试看
+
+*****
+
+####  leitingkai3  
+##### 75#       发表于 2024-2-5 14:29
+
+这楼估计只有楼主能翻<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  novalli  
+##### 76#       发表于 2024-2-5 14:29
+
+好像差不多好了，2号楼之前的信息放出来了，又顶上来了。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

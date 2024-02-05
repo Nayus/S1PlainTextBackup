@@ -511,3 +511,20 @@ cd74f5130041d8d6aa90d84f26084461_720.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  狸狸狐  
+##### 3672#       发表于 2024-2-6 00:05
+
+等等，这标题不是xb1片尾曲么
+
+*****
+
+####  NeloAngelo  
+##### 3673#       发表于 2024-2-6 00:10
+
+这个全员内鬼的节奏确实很xb1<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

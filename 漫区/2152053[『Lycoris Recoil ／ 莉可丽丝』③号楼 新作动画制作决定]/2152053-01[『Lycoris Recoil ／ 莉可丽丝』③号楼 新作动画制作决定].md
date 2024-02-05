@@ -20658,3 +20658,11 @@ buzz mod的脸特别唐，max factory看着还行
 
 2024-2-6 00:34 上传
 
+
+*****
+
+####  Saber琪  
+##### 1658#       发表于 2024-2-6 01:27
+
+[repeat3翻译，怕鬼的tkn（其实自己以前发电写过类似怕鬼的cst 小声……）太可爱了我以前怎么站泷1<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

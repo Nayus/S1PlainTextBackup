@@ -610,3 +610,11 @@ f396ce0c101a72d46f722969d08983ee.jpg
 <img src="https://p.sda1.dev/15/7ebd263c45ddb39580fc63a84e183f99/Screenshot_2024-02-06-00-23-21-74_63b72b1c741c8066a2ad0047b01f9be3.jpg" referrerpolicy="no-referrer">
 可爱捏
 
+
+*****
+
+####  Ditfran  
+##### 3680#       发表于 2024-2-6 01:23
+
+下一话该英雄救场了吧？这男主每次都要别人救场看的火大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

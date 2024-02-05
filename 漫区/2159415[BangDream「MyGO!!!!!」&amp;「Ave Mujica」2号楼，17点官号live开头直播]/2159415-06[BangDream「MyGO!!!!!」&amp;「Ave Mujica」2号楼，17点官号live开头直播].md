@@ -19610,3 +19610,381 @@ s1都那么久了不该有这种问题啊。
 
 体感爱祥二创大部分风气是狗团都在80爱音只有祥子对爱音温柔or鸡团救不了祥子只有爱音能和祥子相互理解这种画风的，我作为狗团魂爱好者（二次元限定）看不太得这个，可能角色厨很喜欢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 11675#       发表于 2024-2-5 18:41
+
+经典爱all罢了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NODY  
+##### 11676#       发表于 2024-2-5 18:42
+
+这就是两个人气top组cp的含金量，现在带底边的cp已经连前五都进不去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉爱祥在动画前有机会成为仅次于爱素的爆款
+
+*****
+
+####  PDQ4  
+##### 11677#       发表于 2024-2-5 18:43
+
+你说的爱祥二创是指爱音暴打80祥子泄愤的二创吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥厨习惯了避雷，想查询爱音厨感想，真爱看这种吗。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 11678#       发表于 2024-2-5 18:47
+
+s1都那么久了不该有这种问题啊。
+
+大概是有哪位同好用的客户端写的发帖逻辑有问题<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 11679#       发表于 2024-2-5 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890172&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-02-05 18:43:41</a>
+你说的爱祥二创是指爱音暴打80祥子泄愤的二创吗。</blockquote>可能那个爱睦互换身体的二创里那种爱祥更吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NODY  
+##### 11680#       发表于 2024-2-5 18:50
+
+体感爱祥二创大部分风气是狗团都在80爱音只有祥子对爱音温柔or鸡团救不了祥子只有爱音能和祥子相互理解这种画风的，我作为狗团魂爱好者（二次元限定）看不太得这个，可能角色厨很喜欢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jerryoq1  
+##### 11681#       发表于 2024-2-5 18:50
+
+所以这楼好了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 11682#       发表于 2024-2-5 18:51
+
+<img src="https://img.saraba1st.com/forum/202402/05/185127q708hz20o97gzek7.jpg" referrerpolicy="no-referrer">
+
+<strong>g8768528.jpg</strong> (30.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 18:51 上传
+
+20年前的大姐头<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11683#       发表于 2024-2-5 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890221&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-2-5 18:48</a>
+
+可能那个爱睦互换身体的二创里那种爱祥更吸引人
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+不吃不懂，反正点进祥子tag已经被一些同人吓晕了，上次被二创这么创还是搁手游里<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11684#       发表于 2024-2-5 18:53
+
+ 本帖最后由 御幸一也 于 2024-2-5 19:16 编辑 
+
+你要說單純看臉拉娘，這對我個人是可以吃的，我覺得愛音很可愛
+
+但我隨便看了眼二創感覺非常一言難盡，而且為什麼好像都是愛音在拯救一切啊，往這種方向寫我就不是很吃這套了，因為我覺得祥子不需要其他人去“拯救”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+算了我想了想我雙標，如果是幼馴染的兩個去“拯救”我大吃特吃，其他人好微妙捏<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  acgreen  
+##### 11685#       发表于 2024-2-5 18:54
+
+鸡狗的二创就图一乐吧，大部分图一乐都不行
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 11686#       发表于 2024-2-5 18:56
+
+又卡了，泥漏天选之人在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11687#       发表于 2024-2-5 18:58
+
+漏油回复我已经不弹提醒了 看来s1吞的很开心<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11688#       发表于 2024-2-5 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890247&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-5 18:50</a>
+
+体感爱祥二创大部分风气是狗团都在80爱音只有祥子对爱音温柔or鸡团救不了祥子只有爱音能和祥子相互理解这种 ...</blockquote>
+有點不理解都什麼人在喜歡這對了，我僅代表我個人，單純看臉拉娘我還能吃一點，搞成這種畫風的CP的話……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11689#       发表于 2024-2-5 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11690#       发表于 2024-2-5 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11691#       发表于 2024-2-5 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11692#       发表于 2024-2-5 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11693#       发表于 2024-2-5 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11694#       发表于 2024-2-5 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11695#       发表于 2024-2-5 19:02
+
+怎麼還沒吐出來還在卡還在卡<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  池袋西柚  
+##### 11696#       发表于 2024-2-5 19:06
+
+话说现在谷子在哪买比较靠谱  阿b能买吗
+
+*****
+
+####  阿姆罗二世  
+##### 11697#       发表于 2024-2-5 19:06
+
+爱祥同人文长篇连载的多，一个长篇就是几十个tag，水的快，但是图根本没几张<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 11698#       发表于 2024-2-5 19:08
+
+感觉圣爱音只存在于二创中
+
+*****
+
+####  御幸一也  
+##### 11699#       发表于 2024-2-5 19:10
+
+還是翻不了，真的服了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 11700#       发表于 2024-2-5 19:10
+
+感觉我这边看楼已经正常了
+
+*****
+
+####  特别快乐的一天  
+##### 11701#       发表于 2024-2-5 19:10
+
+这两个人互动还蛮可以的，一面相敬如宾，最后一面吹胡子瞪眼
+
+*****
+
+####  徒然枕草  
+##### 11702#       发表于 2024-2-5 19:10
+
+泥漏有老邦邦人么，想问下翻唱的话每个成员都能捞到一首么，想听听鸡团其他成员唱唱歌的意思
+
+*****
+
+####  徒然枕草  
+##### 11703#       发表于 2024-2-5 19:11
+
+遇到翻页就不正常了，要不还是换回四号楼或者开辟五号楼吧，前者至少楼主能翻，后者能赌赌摇出天选
+
+*****
+
+####  御幸一也  
+##### 11704#       发表于 2024-2-5 19:13
+
+如果40+1理論是對的，那理論上快翻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11705#       发表于 2024-2-5 19:13
+
+還真是40+1翻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dayahal  
+##### 11706#       发表于 2024-2-5 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱睦互换那个劲是真大
+
+甚至还有基于这个的三创
+
+*****
+
+####  novalli  
+##### 11707#       发表于 2024-2-5 19:14
+
+还是会卡页。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  紫吹兰  
+##### 11708#         楼主| 发表于 2024-2-5 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890462&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-5 19:13</a>
+
+還真是40+1翻</blockquote>
+其实是外面显示40+0，因为外面那个计数没算顶楼
+
+*****
+
+####  septer  
+##### 11709#       发表于 2024-2-5 19:17
+
+也不是不能理解，毕竟爱祥存在非常强大戏剧张力的可能，也就是if展开
+
+*****
+
+####  御幸一也  
+##### 11710#       发表于 2024-2-5 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890495&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-5 19:16</a>
+
+其实是外面显示40+0，因为外面那个计数没算顶楼</blockquote>
+是的，我就是盯著外面那個數字看什麼時候能翻，還真是40倍數翻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11711#       发表于 2024-2-5 19:18
+
+买谷的话不想抱盒就去加一些团，你邦是真的爱出盲盒，单团就算了经常跨团出，被迫学习一些黑话了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+最靠谱的话还是各种官店吧，就是相对贵一点
+
+*****
+
+####  novalli  
+##### 11712#       发表于 2024-2-5 19:19
+
+如果和楼层数有关的话，大概是中间某些层因为各种原因删除之后后台没有处理好，或者后台某个模块删了、另一个没更新。高楼因为楼层多、时间长更容易出这些问题。
+
+怎么感觉跟癌症似的，果然还是新陈代谢掉吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11713#       发表于 2024-2-5 19:21
+
+每個樓都有問題，那能怎麼辦，這樓起碼還能樓友大家一起翻(?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11714#       发表于 2024-2-5 19:22
+
+非主唱能不能轮上唱歌全看缘分的，无论是原创还是翻唱都没有什么具体的规律，我也很奇怪为什么明明老团一堆歌都是一人一句，mygo羊都唱得这么辛苦了也不来几首一人一句的歌让其他人分担一下
+
+*****
+
+####  紫吹兰  
+##### 11715#         楼主| 发表于 2024-2-5 19:23
+
+倒叙可以看到最新楼的，但是S1倒叙比较麻烦，不仅不能一劳永逸保留设置，倒叙按钮还是隐藏的
+
+*****
+
+####  凡人  
+##### 11716#       发表于 2024-2-5 19:26
+
+没事，我作为c团爱好者也看不得这个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 11717#       发表于 2024-2-5 19:27
+
+大姐头真的烧<img src="https://p.sda1.dev/15/cab0629eab8bc92a0aad3cfa4650c546/Image_1707132351675.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11718#       发表于 2024-2-5 19:27
+
+爱祥堪称mygo最强拉娘配。据说增量增速最狠的时候能达到mygo全cp线tag里第二。但是抛开原作主线剧情不谈，考虑到祥子的三条主cp线对应角色是灯睦初，她们三个的共同点就是电波系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子是个非常能共情的人，在不自闭的时候是个标准的电波台角色，能够理解灯睦初她们的细微感情变化，这也是她能吸引电波女的主要原因。爱音却是全剧相对而言最“正常”的人。就从相性问题上看哪怕邦邦是cp扭成麻花的企划这对cp也不像可以贷款的样子
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11719#       发表于 2024-2-5 19:27
+
+看起来这楼还是不正常啊
+
+*****
+
+####  御幸一也  
+##### 11720#       发表于 2024-2-5 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890576&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-5 19:23</a>
+
+倒叙可以看到最新楼的，但是S1倒叙比较麻烦，不仅不能一劳永逸保留设置，倒叙按钮还是隐藏的 ...</blockquote>
+我根本不知道哪裡有倒序<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

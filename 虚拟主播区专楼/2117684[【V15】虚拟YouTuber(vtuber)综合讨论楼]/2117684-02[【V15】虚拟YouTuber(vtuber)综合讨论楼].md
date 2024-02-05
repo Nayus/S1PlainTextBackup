@@ -564,3 +564,11 @@ niji en的运营是不是也是集美，这么喜欢写小作文</blockquote>
 
 [https://x.com/Liverary_JP/status/1734936212702744955?s=20](https://x.com/Liverary_JP/status/1734936212702744955?s=20)
 
+
+*****
+
+####  80proof  
+##### 3019#       发表于 2024-2-5 20:56
+
+那传闻的自鲨未遂很可能是真的，还有霸凌<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

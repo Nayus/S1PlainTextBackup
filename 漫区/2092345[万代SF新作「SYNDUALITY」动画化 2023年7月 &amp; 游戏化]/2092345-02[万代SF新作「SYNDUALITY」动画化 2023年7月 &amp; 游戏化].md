@@ -58,3 +58,13 @@
 —— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 奶茶屋已经更新至15话
 
+
+*****
+
+####  diectt  
+##### 3647#       发表于 2024-2-5 17:08
+
+看的喵萌的字幕版所以我才看到15集
+
+不是，magus你们怎么回事，在驾驶舱里不是全息投影吗？怎么机体倒过来，米丝缇还要找个地方拉着的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

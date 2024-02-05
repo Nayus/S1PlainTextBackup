@@ -20445,3 +20445,78 @@ buzz mod的脸特别唐，max factory看着还行
 
 好像回复别人还是会显示错误<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1650#       发表于 2024-2-5 14:32
+
+应该是只有鹅球有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 1651#       发表于 2024-2-5 14:32
+
+我这鹅球没啥问题
+
+*****
+
+####  蒜苗  
+##### 1652#       发表于 2024-2-5 14:32
+
+蒜楼好像一直都是正常的吧
+这楼就是鹅球回复的，正常刷新了
+
+*****
+
+####  Saber琪  
+##### 1653#       发表于 2024-2-5 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887462&amp;ptid=2152053" target="_blank">蒜苗 发表于 2024-2-5 14:32</a>
+蒜楼好像一直都是正常的吧
+这楼就是鹅球回复的，正常刷新了</blockquote>
+我回复会显示服务器错误，清了下缓存然后好了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 1654#       发表于 2024-2-5 14:35
+
+好像回复别人还是会显示错误<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 1655#       发表于 2024-2-5 14:43
+
+[https://twitter.com/sakuranoiro/status/1754140759509569912?s=19](https://twitter.com/sakuranoiro/status/1754140759509569912?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/05/144245upp3eckqw9g5e9kz.jpg" referrerpolicy="no-referrer">
+
+<strong>20240204_235157.jpg</strong> (21.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 14:42 上传
+
+[https://twitter.com/sango3_3/status/1754185378351952331?s=19](https://twitter.com/sango3_3/status/1754185378351952331?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/05/144312f3s403gn6450hkqj.jpg" referrerpolicy="no-referrer">
+
+<strong>20240205_144253.jpg</strong> (174.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 14:43 上传
+
+[https://twitter.com/cguanjen/status/1754178598897176763?s=19](https://twitter.com/cguanjen/status/1754178598897176763?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/05/144349ulboo5iubmmoobu8.jpg" referrerpolicy="no-referrer">
+
+<strong>20240205_144328.jpg</strong> (82.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 14:43 上传
+

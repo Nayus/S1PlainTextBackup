@@ -627,3 +627,20 @@ niji en的运营是不是也是集美，这么喜欢写小作文</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">才注意到虹这边办大会呢，aki和女神直接转发了千皇的转生出道直播，一期生特权阶级的丑恶嘴脸
 
+
+*****
+
+####  purdre  
+##### 3027#       发表于 2024-2-6 00:43
+
+Selen脾气暴是真的，但是这EN声明不也一副全是Selen错的样子把锅甩干净了吗，让我信那垃圾EN运营不如让我去信给我发诈骗短信的人是秦始皇<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 3028#       发表于 2024-2-6 00:48
+
+虹嗯那是欧美文化圈和日企刻板管理差异导致的必然冲突，本社这边相羽走完感觉统合后出道现在还留着的除了世怜女都还挺稳定
+
+（主要这两年也没再有那种很突出又一眼跟虹方向不和的新人了
+

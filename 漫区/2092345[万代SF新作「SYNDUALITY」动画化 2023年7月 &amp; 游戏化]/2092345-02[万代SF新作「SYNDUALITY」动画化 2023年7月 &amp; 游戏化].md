@@ -88,3 +88,124 @@
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  novyMS  
+##### 3648#       发表于 2024-2-5 17:33
+
+今晚去探险A国了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aptx8285144  
+##### 3649#       发表于 2024-2-5 19:50
+
+<img src="https://img.saraba1st.com/forum/202402/05/165452ep50xnx0cpwoqz4w.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205165314.png</strong> (86.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 16:54 上传
+
+这片其实经常在用一种轻松的笔调写一些比较艰难的事情，大灾害之后，海洋大概率也受到影响了
+
+<img src="https://img.saraba1st.com/forum/202402/05/171519uafebv7hfz8jmh84.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205171457.png</strong> (83.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 17:15 上传
+
+这个要杀驾驶员的翻译更好
+
+<img src="https://img.saraba1st.com/forum/202402/05/191550iv8pkb8g8j2o8gj2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205191029.png</strong> (85.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:15 上传
+
+只有这里还有电，翻得不错
+
+<img src="https://img.saraba1st.com/forum/202402/05/191631qtigesbout1tibgl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205191121.png</strong> (38.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:16 上传
+
+这里传给艾女士的意思更明确一些
+
+<img src="https://img.saraba1st.com/forum/202402/05/194257k8t3ifc1vthf1htz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205194046.png</strong> (98.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:42 上传
+
+<img src="https://img.saraba1st.com/forum/202402/05/194309yxikozmzlysyzmis.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205194158.png</strong> (50.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:43 上传
+
+都有差异的翻译
+
+<img src="https://img.saraba1st.com/forum/202402/05/194328s799cbq0909ssme9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205194234.png</strong> (57.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:43 上传
+
+奶茶翻译大哥是里希托，官方字幕好像是小光（
+
+<img src="https://img.saraba1st.com/forum/202402/05/194559a58nh9ir2yin8rid.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205194550.png</strong> (43.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:45 上传
+
+再见
+
+<img src="https://img.saraba1st.com/forum/202402/05/194727jr0cclnzjs6syns3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205194640.png</strong> (41.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:47 上传
+
+<img src="https://img.saraba1st.com/forum/202402/05/194736zvpvdxlszlpmkphs.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205194700.png</strong> (43.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:47 上传
+
+关键的来了，按照卫浴柜的评价，先是嘲讽面具男的慌慌张张，接着明确了卫浴柜也是认识大哥的
+
+<img src="https://img.saraba1st.com/forum/202402/05/195001iszjsexvv5w4vwvz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240205194947.png</strong> (60.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:50 上传
+
+这里翻译指向了无法从组织中逃脱，官方字幕则是乐园，我到是觉得奶茶屋更准确
+

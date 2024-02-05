@@ -19988,3 +19988,314 @@ s1都那么久了不该有这种问题啊。
 倒叙可以看到最新楼的，但是S1倒叙比较麻烦，不仅不能一劳永逸保留设置，倒叙按钮还是隐藏的 ...</blockquote>
 我根本不知道哪裡有倒序<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 11721#       发表于 2024-2-5 19:29
+
+你说灯电波就算了，睦初哪电波了，一个因为容易被外界误解所以不爱说话。一个大明星人际交往一看就处理很好。
+
+有基本共情力的人哪里电波了，纯度大幅度降低了，至少沾点认知异于常人才算电波吧，整个鸡狗里也就猫灯电波。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 11722#       发表于 2024-2-5 19:30
+
+fy
+
+*****
+
+####  紫吹兰  
+##### 11723#         楼主| 发表于 2024-2-5 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890648&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-5 19:29</a>
+
+我根本不知道哪裡有倒序</blockquote>
+顶楼只看大图边上那个箭头.....
+
+*****
+
+####  PDQ4  
+##### 11724#       发表于 2024-2-5 19:32
+
+说不了几句话就被s1吞了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11725#       发表于 2024-2-5 19:37
+
+ 本帖最后由 NODY 于 2024-2-5 19:48 编辑 
+
+爱祥二创很多作者代入逆袭后宫文，爱音被不识好歹的狗团80，被祥子八抬大轿抬去鸡团当团宠走上人生巅峰，狗团追妻火葬场抱憾终生，只能说喜欢这个的也未必是角色厨，只是找了个好用的皮套罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  织部琴音  
+##### 11726#       发表于 2024-2-5 19:38
+
+翻页需要的帖数倒是减少了
+
+*****
+
+####  PDQ4  
+##### 11727#       发表于 2024-2-5 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  织部琴音  
+##### 11728#       发表于 2024-2-5 19:38
+
+99
+
+*****
+
+####  PDQ4  
+##### 11729#       发表于 2024-2-5 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11730#         楼主| 发表于 2024-2-5 19:41
+
+现在好像是看倒叙那个页数
+
+*****
+
+####  紫吹兰  
+##### 11731#         楼主| 发表于 2024-2-5 19:42
+
+倒叙701
+
+*****
+
+####  凡人  
+##### 11732#       发表于 2024-2-5 19:43
+
+<img src="https://img.saraba1st.com/forum/202402/05/194346cr1lksec8mct8c9c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:43 上传
+
+*****
+
+####  氷川日菜  
+##### 11733#       发表于 2024-2-5 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11734#       发表于 2024-2-5 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11735#       发表于 2024-2-5 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11736#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11737#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11738#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11739#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11740#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11741#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11742#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 11743#       发表于 2024-2-5 19:45
+
+感觉倒序的楼数应该跟外面回复数是一致的，泥楼的话还要加上两个置顶
+
+*****
+
+####  氷川日菜  
+##### 11744#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11745#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11746#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11747#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11748#       发表于 2024-2-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11749#       发表于 2024-2-5 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉还是不能用啊
+
+*****
+
+####  PDQ4  
+##### 11750#       发表于 2024-2-5 19:47
+
+凑合用吧，比之前全面禁言好多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11751#       发表于 2024-2-5 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890675&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-5 19:31</a>
+
+顶楼只看大图边上那个箭头.....</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……好吧
+
+*****
+
+####  ddy2811  
+##### 11752#       发表于 2024-2-5 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890632&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-2-5 19:27</a>
+
+爱祥堪称mygo最强拉娘配。据说增量增速最狠的时候能达到mygo全cp线tag里第二。但是抛开原作主线剧情不谈， ...</blockquote>
+所以自闭的祥子是挺适合爱音的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11753#       发表于 2024-2-5 19:48
+
+樓友別洗版了，大家乖乖倒序看新的樓算了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11754#         楼主| 发表于 2024-2-5 19:51
+
+现在几个方案
+
+第一种就是本楼倒叙，但是我暂时把顶楼大部分图片删了，并且把两个长置顶先暂时下架方便倒叙看帖
+
+第二种就是回归4号楼我开脚本翻页，但是那个楼你们没法顶贴，不翻页会掉到下面去
+
+第三种就是开5号楼碰运气，但是我估计大概率和4号楼差不多，因为我看了下漫区今天维护后开的新帖也是一样读取不了普通回帖
+
+*****
+
+####  凡人  
+##### 11755#       发表于 2024-2-5 19:51
+
+草，听你这么一说爱祥同人味也太冲了
+
+*****
+
+####  PDQ4  
+##### 11756#       发表于 2024-2-5 19:52
+
+倒叙挺好，至少能用了，唉<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11757#       发表于 2024-2-5 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890933&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-5 19:51</a>
+
+现在几个方案
+
+第一种就是本楼倒叙，但是我暂时把顶楼大部分图片删了，并且把两个长置顶先暂时下架方便倒叙 ...</blockquote>
+支持1 感謝樓主<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11758#       发表于 2024-2-5 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 11759#       发表于 2024-2-5 20:07
+
+先倒叙用着吧
+
+*****
+
+####  Kfly  
+##### 11760#       发表于 2024-2-5 20:10
+
+非要说吸引电波那也是白祥时期，现在一副生人勿近的样子还提啥相性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

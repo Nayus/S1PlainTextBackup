@@ -413,3 +413,66 @@
 
 歌姬这气氛到了啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  何处分可  
+##### 3661#       发表于 2024-2-5 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全员内鬼
+
+*****
+
+####  zero12  
+##### 3662#       发表于 2024-2-5 23:26
+
+全员内鬼是吧
+
+*****
+
+####  无音命题  
+##### 3663#       发表于 2024-2-5 23:26
+
+虽然有预想，但是没想到是这种形式全聚在一起引爆绝了，不黑化能忍吗这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 3664#       发表于 2024-2-5 23:26
+
+全员内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RE㐅ia  
+##### 3665#       发表于 2024-2-5 23:26
+
+全员内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约翰里德  
+##### 3666#       发表于 2024-2-5 23:27
+
+下一话，kanata的黑化<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 3667#       发表于 2024-2-5 23:28
+
+该奶游戏男主是不是要来捞人了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NeloAngelo  
+##### 3668#       发表于 2024-2-5 23:29
+
+至少noir还在alba那<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">  还有粉毛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

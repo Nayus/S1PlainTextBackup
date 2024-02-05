@@ -554,3 +554,50 @@ f396ce0c101a72d46f722969d08983ee.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主比noir还白
 
+
+*****
+
+####  novyDC  
+##### 3676#       发表于 2024-2-6 00:33
+
+ 本帖最后由 novyDC 于 2024-2-6 00:40 编辑 
+
+果然要找个新机身分家了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/06/003949x0yono0lke1ljfk1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-06-00-35-26-598_com.viva.note.jpg</strong> (655.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 00:39 上传
+
+<img src="https://img.saraba1st.com/forum/202402/06/003949cjz8hlflwtoh8efr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-06-00-38-53-384_com.viva.note.jpg</strong> (632.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 00:39 上传
+
+*****
+
+####  cauchua2  
+##### 3677#       发表于 2024-2-6 00:36
+
+15 话男主他们是从哪里开到突尼斯的？这马桶机是啥能源形式路上都不用补给的么
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novyDC  
+##### 3678#       发表于 2024-2-6 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893664&amp;ptid=2092345" target="_blank">cauchua2 发表于 2024-02-06 00:36:22</a>
+15 话男主他们是从哪里开到突尼斯的？这马桶机是啥能源形式路上都不用补给的么
+
+—— 来自 Xiaomi 2112123A ...</blockquote>车载
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

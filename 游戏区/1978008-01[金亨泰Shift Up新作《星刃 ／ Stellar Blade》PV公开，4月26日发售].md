@@ -186,3 +186,13 @@ Fami通和IGN日本采访了《星刃》(Stellar Blade)的制作人金亨泰和�
 
 不行吧不够骚
 
+
+*****
+
+####  199april  
+##### 235#       发表于 2024-2-6 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这女主的设计品味比2B差远了
+
+不过能和nikke联动让我薅一波能给个好评
+

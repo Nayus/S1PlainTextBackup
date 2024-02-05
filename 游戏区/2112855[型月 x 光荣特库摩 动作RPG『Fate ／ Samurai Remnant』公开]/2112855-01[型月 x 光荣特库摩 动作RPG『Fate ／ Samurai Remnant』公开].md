@@ -121,3 +121,13 @@ DLC第1弾「断章・慶安神前試合」の
 好奇这个DLC是独立结局还是直接独立模式，武道会打完原本的故事根本讲不下去嘛 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">接在金先生结局后面不就完事了
 
+
+*****
+
+####  忧郁  
+##### 1690#       发表于 2024-2-5 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63888157&amp;ptid=2112855" target="_blank">DARKGRAY 发表于 2024-2-5 15:44</a>
+好奇这个DLC是独立结局还是直接独立模式，武道会打完原本的故事根本讲不下去嘛 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">接在金先生结局后面不就完事了
+

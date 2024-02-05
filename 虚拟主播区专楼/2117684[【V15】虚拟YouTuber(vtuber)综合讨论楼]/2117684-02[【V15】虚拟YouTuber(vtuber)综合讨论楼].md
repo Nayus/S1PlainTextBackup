@@ -139,3 +139,34 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  meatybobby  
+##### 2993#       发表于 2024-2-5 19:02
+
+Selen無了
+
+*****
+
+####  D-JoeII  
+##### 2994#       发表于 2024-2-5 19:03
+
+Selen走了,寫的解除契約
+
+起碼她有機會能再直播了(雖然很可惜不再是以Selen的身份)
+
+*****
+
+####  _Ra1nMaker  
+##### 2995#       发表于 2024-2-5 19:03
+
+虹每个月准备毕业几个人啊 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mar1juanaS  
+##### 2996#       发表于 2024-2-5 19:03
+
+花了一个月去列罪刑了笑死
+

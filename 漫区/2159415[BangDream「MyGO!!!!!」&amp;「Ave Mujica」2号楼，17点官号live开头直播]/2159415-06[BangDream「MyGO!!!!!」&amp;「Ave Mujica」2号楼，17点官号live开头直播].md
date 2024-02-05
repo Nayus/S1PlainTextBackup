@@ -20988,3 +20988,385 @@ fy
 
 非要说吸引电波那也是白祥时期，现在一副生人勿近的样子还提啥相性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  salic428  
+##### 11761#       发表于 2024-2-5 20:11
+
+fy
+现在鹅球显示11729，所以30页客户端这一条翻页（大概）
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  紫吹兰  
+##### 11762#         楼主| 发表于 2024-2-5 20:18
+
+ 本帖最后由 紫吹兰 于 2024-2-5 22:57 编辑 
+
+倒序指南：
+鼠标放到只看大图变的箭头，会出现隐藏的倒序浏览（为什么把唯一有用的按钮隐藏....
+注:倒序状态收藏本楼首页，从收藏夹打开可以保留倒序
+
+移动端最靠谱的办法是手机浏览器打开电脑版网页，选择倒序浏览后收藏本楼首页，之后从收藏夹进可以保留倒序（至少小米手机浏览器可以）
+
+<img src="https://img.saraba1st.com/forum/202402/05/224851nvxypxvmvurwfv5u.png" referrerpolicy="no-referrer">
+
+<strong>倒序1.png</strong> (46.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202402/05/224851nzccsjrqryjsh444.png" referrerpolicy="no-referrer">
+
+<strong>倒序2.png</strong> (37.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 22:48 上传
+
+*****
+
+####  氷川日菜  
+##### 11763#       发表于 2024-2-5 20:19
+
+爱祥有交集之后应该会是互相憧憬的关系，祥子憧憬爱音平凡快乐的jk生活，夹杂了一丝嫉妒，爱音憧憬祥子的天赋才华和黑暗华丽的舞台风格，这两个人有时会想如果我是对方会怎样，然后有一天忽然醒来发现身体互换了，两个人身体互换的过程中通过与周围人的相处对对方的了解不再浮于表面像理解自己一样了解了对方，最后对对方萌生感情，感觉很适合这种展开<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 11764#       发表于 2024-2-5 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890353&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-5 19:01</a>
+
+有點不理解都什麼人在喜歡這對了，我僅代表我個人，單純看臉拉娘我還能吃一點，搞成這種畫風的CP的話…… ...</blockquote>
+是路人go粉最喜欢的粉毛救世主狂攻一切吧大概
+
+*****
+
+####  氷川日菜  
+##### 11765#       发表于 2024-2-5 20:22
+
+再翻页就要翻28楼了，已经。。已经翻不动了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 11766#       发表于 2024-2-5 20:25
+
+有些爱音的二创给我的感觉就是，很想第二季变成大爱传
+
+*****
+
+####  圆  
+##### 11767#       发表于 2024-2-5 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891242&amp;ptid=2159415" target="_blank">氷川日菜 发表于 2024-2-5 20:22</a>
+
+再翻页就要翻28楼了，已经。。已经翻不动了</blockquote>
+先倒着吧，说不定再有两页就差40整了<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 11768#       发表于 2024-2-5 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890275&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-02-05 18:53:51</a></blockquote>这个我也思考过，我觉得初睦不仅是站在祥子一边还会考虑祥子的感受，所以我希望祥子回应初睦的感情。当然最好别搞救赎你那套，搞了也能勉强接受
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 11769#       发表于 2024-2-5 20:39
+
+ 本帖最后由 PDQ4 于 2024-2-5 20:41 编辑 
+
+真搞救赎也是双向救赎才行。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+非常不喜欢那种离了对方就活不下去的关系，先爱自己的人才能真正的爱别人。
+
+所以我觉得母鸡卡里一定会展现初睦两人对祥子来讲的重要性，初华有自己的理想和目标，睦则是会找到自己的定位或者说愿意展现自我，变成live上渡濑表现出的mortis。搞成挂件那就太下头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  acgreen  
+##### 11770#       发表于 2024-2-5 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891338&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-02-05 20:39:42</a></blockquote>赞同<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kivz  
+##### 11771#       发表于 2024-2-5 21:29
+
+网页勉强能看了，泥潭别到年中live也抽风<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+所以有漏油有空管理的建个群备着吗
+
+*****
+
+####  御幸一也  
+##### 11772#       发表于 2024-2-5 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891215&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-5 20:19</a>
+
+是路人go粉最喜欢的粉毛救世主狂攻一切吧大概</blockquote>
+…有點呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11773#       发表于 2024-2-5 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891297&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-5 20:31</a>
+
+这个我也思考过，我觉得初睦不仅是站在祥子一边还会考虑祥子的感受，所以我希望祥子回应初睦的感情。当然最 ...</blockquote>
+樓友很懂！完全get到！<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11774#       发表于 2024-2-5 21:52
+
+ 本帖最后由 Aendst 于 2024-2-5 21:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">复读一下某名台词，人只能自救，谁也无法救别人
+
+一定程度的帮助和助攻也挺好，完全拯救戏码就未免有点太土了
+
+*****
+
+####  NODY  
+##### 11775#       发表于 2024-2-5 21:53
+
+有了灯希悲惨的前车之鉴我觉得独角兽应该不会再写一次挂件cp了，大可放心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11776#       发表于 2024-2-5 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫奈不是挺喜欢灯希吗，说不准她觉得挺好呢
+
+*****
+
+####  凡人  
+##### 11777#       发表于 2024-2-5 21:57
+
+你觉得的前车之鉴，说不定在独角兽看来是巍巍丰碑，当然前提是第二季她还是系构
+
+*****
+
+####  紫吹兰  
+##### 11778#         楼主| 发表于 2024-2-5 22:13
+
+ 本帖最后由 紫吹兰 于 2024-2-5 22:16 编辑 
+
+倒序状态收藏本帖首页似乎可以一直倒序，至少我现在小米手机浏览器浏览网页版是这样。漏油可以在网页试试
+
+*****
+
+####  凡人  
+##### 11779#       发表于 2024-2-5 22:30
+
+ 本帖最后由 凡人 于 2024-2-5 22:34 编辑 
+
+bj
+
+*****
+
+####  煌煌其烨  
+##### 11780#       发表于 2024-2-5 22:41
+
+感觉最后爱祥关系怎样还得看灯祥关系怎样，搞不好最后结果是军训爱音的人里又多了一个祥子，毕竟13集两个人已经有点互相都看不顺眼了，一深交更加难以想象祥子对爱音这容易得意忘形的性格会有好脸色，来一句“爱音，你才是最需要练习的那个”也不是不可能，然后从第九集看海铃爱音多半不会有啥互动，爱睦更是完全陌生人，感觉爱音的团外关系里只能指望大喵老师和初华能对小粉丝好点了，不过团外关系这点估计猫才会是最“惨”的一个。总之虽然我觉得这两人确实挺有cp感的，但指望她俩第二季单独搭条线是基本没可能了，我记得之前不是有访谈提到爱音和祥子有不少相似之处，问独角兽是不是故意为之，独角兽的回答是她没有特意这么写，只是因为爱音和祥子都是将灯带到阳光下的定位才看起来像而已<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  傘木希美  
+##### 11781#       发表于 2024-2-5 22:50
+
+鹅球还是不行？
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  紫吹兰  
+##### 11782#         楼主| 发表于 2024-2-5 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63892592&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-2-5 22:50</a>
+
+鹅球还是不行？
+
+—— 来自 vivo V2227A, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+手机版端最靠谱的办法就是手机浏览器看网页版，选择倒序浏览后添加收藏夹，然后从收藏夹打开
+
+*****
+
+####  acgreen  
+##### 11783#       发表于 2024-2-5 23:08
+
+祥子为啥要军训爱音？13集祥子不高兴箭头也不是指向爱音的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NODY  
+##### 11784#       发表于 2024-2-5 23:10
+
+灯希的关系在第一季分别垫给了灯祥/爱灯/素灯/猫灯，如果独角兽喜欢的话大概也是作为一个方便的衬托用cp在喜欢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11785#         楼主| 发表于 2024-2-5 23:13
+
+ 本帖最后由 紫吹兰 于 2024-2-6 00:22 编辑 
+
+似乎引用的刚发会没法被楼外面读取，但是在倒序里又有正常楼号。
+
+我现在就是不知道如果差了40楼是会把楼变正常，还是直接卡一整页......后者的可能性大概更大吧<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 11786#       发表于 2024-2-5 23:14
+
+复权试试
+
+*****
+
+####  实津二三  
+##### 11787#       发表于 2024-2-5 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">爱祥怎么拉娘了，爱音转学第一天就和祥子在音乐教室来了一场浪漫的girl meets girl，后续祥子也来主动关心爱音，只是因为阴差阳错的巧合两个人才彻底断了来往。如果剧情走错一步可能被爱音拉着组乐队的就是祥子了。
+类比一下就是车万里的灵梦x爱丽丝，在美帝主角组和苏修咏唱组的挤压下缺少生存空间，但人就是有资格自称「原点」。
+
+*****
+
+####  acgreen  
+##### 11788#       发表于 2024-2-5 23:37
+
+虽然但是，祥子关心爱音找队友应该是因为看到爱音拉着灯跑出去，本质是关心前队友灯（我觉得祥子对爱音初印象不错，看好爱灯在一起组乐队）。根据访谈来看爱音也不想介入老C团，估计是不会继续邀请祥子
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  煌煌其烨  
+##### 11789#       发表于 2024-2-5 23:48
+
+13集祥子走出钢琴室不是瞟了眼爱音，然后爱音露出了一副不知道是无奈还是无语的表情吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  acgreen  
+##### 11790#       发表于 2024-2-5 23:56
+
+所以说不是互相看不顺眼，至少祥子对爱音没什么恶感。爱音也只会对熟悉的甚至说知根知底的人开玩笑，平时的爱音挺常识人的，祥子跟爱音熟到那种程度的契机我现在是没看到
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  相坂君  
+##### 11791#       发表于 2024-2-6 00:01
+
+感觉有些人怎么天天惦记祥子军训别的队的人，这不太好吧……
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那这样我能看到祥希吗？
+
+*****
+
+####  PDQ4  
+##### 11792#       发表于 2024-2-6 00:04
+
+ 本帖最后由 PDQ4 于 2024-2-6 00:06 编辑 
+
+漏油太离谱了，怎么爱祥还能对比原点组的，别太离谱<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+灵爱有黑历史，灵爱有yym对话明示以前认识，萝莉丝还被抓去神社打工。初见对话作为旧友重逢的礼物收下你的性命，面对魔理沙都没这样。这么有渊源的俩人竟然被漏油和只有几面之缘的爱祥对比。
+
+想对比先空降个爱祥是天降青梅再说，虽然这个生态位大概是被初华占据了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11793#       发表于 2024-2-6 00:09
+
+ 本帖最后由 PDQ4 于 2024-2-6 00:11 编辑 
+
+祥子是那种没事军训别人的人吗，狗又没出道，也不是自己乐队的人。对鸡有要求是因为真的要上台演出，拉了不光为难自己也对不起观众好不好。祥子得多没礼貌才天天军训别的乐队人。
+
+想奶军训，真不如立希想为了狗尽力去跟祥子精进作曲，来个作曲家混活谢谢，最好能再让我看一眼真希姐，这个设定真的不露脸当有声重要npc吗。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+syl，独角兽喜欢灯希和海希应该不是假的，但是她喜欢迫害立希也是真的，太恶趣味了。手游文案学点好的别整天惦记刻板印象了<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 11794#       发表于 2024-2-6 00:13
+
+不过军训这个设定算二设吗？
+
+*****
+
+####  Aendst  
+##### 11795#       发表于 2024-2-6 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说有些想看的东西可以去指望在同人里看到
+
+*****
+
+####  煌煌其烨  
+##### 11796#       发表于 2024-2-6 00:14
+
+所以我说爱祥关系看灯祥啊，灯不就是那个契机吗？典中典之爱音挟灯皇挟令诸侯忘了，爱音能和素世立希搭上线不也是靠灯，最后灯祥要是重归于好，两个人要交流爱音总不至于还要特意跑开留二人空间吧，像13集的时候门外观望挺正常，假如重归于好后还这样多少有点当黄毛当成苦主的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ddy2811  
+##### 11797#       发表于 2024-2-6 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891129&amp;ptid=2159415" target="_blank">Kfly 发表于 2024-2-5 20:10</a>
+
+非要说吸引电波那也是白祥时期，现在一副生人勿近的样子还提啥相性</blockquote>
+就是这样才有一步步开解的价值嘛<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11798#       发表于 2024-2-6 00:16
+
+翻页
+
+*****
+
+####  JY要塞  
+##### 11799#       发表于 2024-2-6 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等什么时候爱睦起来了让漏油见识一下
+

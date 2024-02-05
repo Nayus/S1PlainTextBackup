@@ -16187,3 +16187,497 @@ https://x.com/__kurokurokuro/status/1746213042768212195?s=20
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  skives  
+##### 11481#       发表于 2024-2-2 14:01
+
+好了？
+
+*****
+
+####  harukage  
+##### 11482#       发表于 2024-2-2 14:02
+
+现在能翻页吗
+
+*****
+
+####  Aendst  
+##### 11483#       发表于 2024-2-2 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">泥漏还能刷出新页吗
+
+*****
+
+####  紫吹兰  
+##### 11484#         楼主| 发表于 2024-2-2 14:23
+
+每栋楼卡得方式还不一样
+
+*****
+
+####  skives  
+##### 11485#       发表于 2024-2-2 18:31
+
+太搞笑了
+
+*****
+
+####  skives  
+##### 11486#       发表于 2024-2-2 19:30
+
+mujica神户那场居然要唱40分钟
+
+*****
+
+####  ddy2811  
+##### 11487#       发表于 2024-2-3 00:17
+
+这382页卡了一天了……384页都快到了……
+
+*****
+
+####  傘木希美  
+##### 11488#       发表于 2024-2-3 00:24
+
+为什么我还看不到新的内容<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  屑猫猫  
+##### 11489#       发表于 2024-2-3 09:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么亚迪会成为母鸡卡赞助商，这真不是fake news么
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dqtql  
+##### 11490#       发表于 2024-2-3 09:29
+
+所以群号有吗？
+
+*****
+
+####  ytttsuuuba  
+##### 11491#       发表于 2024-2-3 10:04
+
+楼内发言一直不刷新了啊
+
+*****
+
+####  ytttsuuuba  
+##### 11492#       发表于 2024-2-3 10:05
+
+发了个新消息一刷新也看不到了
+
+*****
+
+####  Aendst  
+##### 11493#       发表于 2024-2-3 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63859032&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-1 23:19</a>
+
+初设这个设定确实很浪漫（不如说初设旧乐队和新乐队的命运和传承整个都很浪漫）
+
+所以我前面才奶如果muji ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双子那是片割れ，通常不会用半身形容
+
+*****
+
+####  Akari  
+##### 11494#       发表于 2024-2-3 11:16
+
+是不卡了么大家？
+
+*****
+
+####  6030sylar  
+##### 11495#       发表于 2024-2-3 11:25
+
+好了吗
+
+*****
+
+####  NODY  
+##### 11496#       发表于 2024-2-3 11:30
+
+为什么少了100多页
+
+*****
+
+####  [皆神孝介]  
+##### 11497#       发表于 2024-2-3 12:52
+
+网页版修复回复数，每页目前增加到40回复
+[https://bbs.saraba1st.com/2b/thread-2170687-1-1.html](https://bbs.saraba1st.com/2b/thread-2170687-1-1.html)
+
+管理员说修好了，也不知道效果如何
+
+*****
+
+####  氷川日菜  
+##### 11498#       发表于 2024-2-3 12:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11499#       发表于 2024-2-3 13:01
+
+我翻
+
+*****
+
+####  氷川日菜  
+##### 11500#       发表于 2024-2-3 13:02
+
+封印解除
+
+*****
+
+####  ytttsuuuba  
+##### 11501#       发表于 2024-2-3 13:04
+
+正常了？
+
+*****
+
+####  ytttsuuuba  
+##### 11502#       发表于 2024-2-3 13:05
+
+好吧没事了，一发出去就看不到了
+
+*****
+
+####  jerryoq1  
+##### 11503#       发表于 2024-2-3 13:09
+
+一下翻了五页
+
+*****
+
+####  伊迪潘宫森  
+##### 11504#       发表于 2024-2-3 14:00
+
+两天看完十三集
+
+感觉太短，最想看的乐队喝茶日常好少
+
+爱音这么喜欢出风头，结果最后还是在乐队里成了边缘人<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+看了评论有人看完第一集觉得棒读，我的第一感觉反而是声优在故意用真实的语调配音，毕竟这个片主打一个真实女高中生
+
+*****
+
+####  jerryoq1  
+##### 11505#       发表于 2024-2-3 14:22
+
+正常了吗
+
+*****
+
+####  Aendst  
+##### 11506#       发表于 2024-2-3 15:26
+
+翻页
+
+*****
+
+####  紫吹兰  
+##### 11507#         楼主| 发表于 2024-2-3 15:45
+
+test
+
+*****
+
+####  [皆神孝介]  
+##### 11508#       发表于 2024-2-3 22:36
+
+刚才维护了，不知道现在如何
+
+*****
+
+####  acg_gyanc  
+##### 11509#       发表于 2024-2-4 08:43
+
+刚补完mygo，这几天高强度刷各种二创，很爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是想问一下，为啥看到有人说初华是最重的？其他邦邦的片子没看过不知道有否提到？
+
+*****
+
+####  爱丁堡official  
+##### 11510#       发表于 2024-2-4 09:31
+
+楼正常了吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  相坂君  
+##### 11511#       发表于 2024-2-4 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">好几天了，邦楼都卡页，还没有人创群吗！想看楼友吹水
+
+*****
+
+####  紫吹兰  
+##### 11512#         楼主| 发表于 2024-2-4 12:31
+
+放出来了吗
+
+*****
+
+####  凡人  
+##### 11513#       发表于 2024-2-5 14:27
+
+test
+
+*****
+
+####  蒜苗  
+##### 11514#       发表于 2024-2-5 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887367&amp;ptid=2159415" target="_blank">凡人 发表于 2024-2-5 14:27</a>
+
+test</blockquote>
+咦，你这个回复在外面可以看到了
+
+*****
+
+####  qz66618  
+##### 11515#       发表于 2024-2-5 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 11516#       发表于 2024-2-5 14:28
+
+顶上来了
+
+*****
+
+####  qz66618  
+##### 11517#       发表于 2024-2-5 14:28
+
+这个楼可以正常回复
+
+*****
+
+####  笋干爆炸碱  
+##### 11518#       发表于 2024-2-5 14:28
+
+2号楼怎么又上来了
+
+*****
+
+####  徒然枕草  
+##### 11519#       发表于 2024-2-5 14:29
+
+这个楼凡人和qz都能正常显示，要不让鸡狗楼先回到2号得了
+
+*****
+
+####  qz66618  
+##### 11520#       发表于 2024-2-5 14:29
+
+因为这个楼的回复可以正常返回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫吹兰  
+##### 11521#         楼主| 发表于 2024-2-5 14:29
+
+不行2号楼复辟吧
+
+*****
+
+####  笋干爆炸碱  
+##### 11522#       发表于 2024-2-5 14:29
+
+复权，复权<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  harukage  
+##### 11523#       发表于 2024-2-5 14:30
+
+2号楼又活了？
+
+*****
+
+####  蒜苗  
+##### 11524#       发表于 2024-2-5 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887402&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-5 14:29</a>
+
+不行2号楼复辟吧</blockquote>
+脚本私信发给你了，建议使用TamperMonkey运行脚本
+
+*****
+
+####  凡人  
+##### 11525#       发表于 2024-2-5 14:32
+
+第二罗马，复活！
+
+*****
+
+####  Mr.Giraffe  
+##### 11526#       发表于 2024-2-5 14:33
+
+此刻正是，复权之时！<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/de8748c6dd98af5a2ec0100d8ed58104/IMG_CMP_150683146.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  徒然枕草  
+##### 11527#       发表于 2024-2-5 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887467&amp;ptid=2159415" target="_blank">Mr.Giraffe 发表于 2024-2-5 14:33</a>
+
+此刻正是，复权之时！</blockquote>
+还挺应景，因为这楼你也是天选<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 11528#       发表于 2024-2-5 14:34
+
+说明和回复量没啥关系，因为我第一次回复<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 11529#       发表于 2024-2-5 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">腿接上了！！复权！！
+
+*****
+
+####  nh_zzz  
+##### 11530#       发表于 2024-2-5 14:35
+
+首先让我们恭喜青木阳菜小姐在泥潭投票荣获第4
+
+*****
+
+####  利维豚  
+##### 11531#       发表于 2024-2-5 14:35
+
+最Ave Mujica的一集<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  徒然枕草  
+##### 11532#       发表于 2024-2-5 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887492&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-2-5 14:35</a>
+
+最Ave Mujica的一集</blockquote>
+这楼狸皮套也能帮着翻呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 11533#       发表于 2024-2-5 14:36
+
+我天我在这楼也是天选<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+Ave Mujica！伟大！
+
+*****
+
+####  凡人  
+##### 11534#       发表于 2024-2-5 14:36
+
+回复数理论还没开始砌砖就已经倒塌了。
+
+*****
+
+####  Kongumo  
+##### 11535#       发表于 2024-2-5 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天選太多了
+
+*****
+
+####  Mr.Giraffe  
+##### 11536#       发表于 2024-2-5 14:37
+
+有没有可能，是因为二号楼是现在为数不多正常运作的楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  徒然枕草  
+##### 11537#       发表于 2024-2-5 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887520&amp;ptid=2159415" target="_blank">Kongumo 发表于 2024-2-5 14:37</a>
+
+天選太多了</blockquote>
+很可怕的是，你也显示回复了，这下鸡狗楼不担心卡页了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  圆  
+##### 11538#       发表于 2024-2-5 14:39
+
+最符合世界观的一集
+
+*****
+
+####  凡人  
+##### 11539#       发表于 2024-2-5 14:40
+
+祥孝楼的power！天选如巨浪般增长
+
+*****
+
+####  特别快乐的一天  
+##### 11540#       发表于 2024-2-5 14:40
+
+好了
+
+*****
+
+####  selight  
+##### 11541#       发表于 2024-2-5 14:41
+
+这楼是正常的？
+
+*****
+
+####  利维豚  
+##### 11542#       发表于 2024-2-5 14:41
+
+相信Ave Mujica就可以成为天选<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11543#       发表于 2024-2-5 14:41
+
+这非常符合Ave Mujica的世界观
+
+*****
+
+####  Aendst  
+##### 11544#       发表于 2024-2-5 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么是2号楼复活了
+
+*****
+
+####  徒然枕草  
+##### 11545#       发表于 2024-2-5 14:42
+
+好像还真是正常的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

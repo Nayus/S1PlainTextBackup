@@ -204,3 +204,14 @@ Fami通和IGN日本采访了《星刃》(Stellar Blade)的制作人金亨泰和�
 
 主角这脸真的不太行，我还是喜欢最早PV那版，这改的已经不是一个人了吧，现在感觉不少NPC都比主角好看
 
+
+*****
+
+####  printer22  
+##### 237#       发表于 2024-2-6 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893956&amp;ptid=1978008" target="_blank">cst3108 发表于 2024-2-6 01:38</a>
+
+主角这脸真的不太行，我还是喜欢最早PV那版，这改的已经不是一个人了吧，现在感觉不少NPC都比主角好看 ...</blockquote>
+最早那版正脸很幼很好看但是侧脸非常惊悚，后来就改成偏写实一点的了，负责幼的部分被莉莉拿去了，女主变成成年人了。
+

@@ -493,3 +493,11 @@ cd74f5130041d8d6aa90d84f26084461_720.jpg
 
 <img src="https://img.saraba1st.com/forum/202402/05/233430nblggn1b1j0646kr.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 3670#       发表于 2024-2-5 23:47
+
+大哥开枪时还在说“要躲开哦” 然后彼方就全中了…
+

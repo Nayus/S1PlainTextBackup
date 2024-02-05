@@ -321,3 +321,11 @@
 
 这里翻译指向了无法从组织中逃脱，官方字幕则是乐园，我到是觉得奶茶屋更准确
 
+
+*****
+
+####  亚瑟邓特  
+##### 3650#       发表于 2024-2-5 21:55
+
+修捏装十几集被近身破防了，破功了啊小老弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

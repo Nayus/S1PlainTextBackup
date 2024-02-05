@@ -21370,3 +21370,13 @@ syl，独角兽喜欢灯希和海希应该不是假的，但是她喜欢迫害�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等什么时候爱睦起来了让漏油见识一下
 
+
+*****
+
+####  acgreen  
+##### 11800#       发表于 2024-2-6 00:31
+
+我是觉得祥子看爱音不顺眼→祥子军训爱音没啥根据。至于爱音通过灯和祥子熟到跟mygo团员一样，我觉得不大可能，灯都不一定熟到这程度，灯祥都在探讨平行线问题了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

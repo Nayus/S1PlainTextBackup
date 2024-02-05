@@ -20556,3 +20556,19 @@ buzz mod的脸特别唐，max factory看着还行
 
 2024-2-5 14:43 上传
 
+
+*****
+
+####  Saber琪  
+##### 1656#       发表于 2024-2-6 00:27
+
+[https://twitter.com/Neko_4cfantasy/status/1754497603830763689?s=19](https://twitter.com/Neko_4cfantasy/status/1754497603830763689?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/002724jwsxwngygpyh53py.jpg" referrerpolicy="no-referrer">
+
+<strong>20240206_002653.jpg</strong> (272.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 00:27 上传
+

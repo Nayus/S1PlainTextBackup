@@ -17293,3 +17293,122 @@ Ave Mujica！伟大！
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  特别快乐的一天  
+##### 11546#       发表于 2024-2-5 14:44
+
+能转移到这里聊产品吗，我想看初华示好祥子然后被喵梦发现狠狠的扣了视频留档然后被初华发现，坏了，怎么感觉看过这种剧情，有点失去想象力了，母鸡卡就是祥嬷团体吧
+
+*****
+
+####  御幸一也  
+##### 11547#       发表于 2024-2-5 14:46
+
+聽說2號樓好了？試試<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 11548#       发表于 2024-2-5 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Arrogate  
+##### 11549#       发表于 2024-2-5 14:46
+
+没想到是二号楼
+
+*****
+
+####  紫吹兰  
+##### 11550#         楼主| 发表于 2024-2-5 14:47
+
+2号楼现在成天选之楼了，似乎所有人都能识别
+
+*****
+
+####  御幸一也  
+##### 11551#       发表于 2024-2-5 14:47
+
+2號樓我可以被識別<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  特别快乐的一天  
+##### 11552#       发表于 2024-2-5 14:47
+
+尼哥算了吧，就那个狗都不用
+
+*****
+
+####  特别快乐的一天  
+##### 11553#       发表于 2024-2-5 14:47
+
+又坏了
+
+*****
+
+####  氷川日菜  
+##### 11554#       发表于 2024-2-5 14:49
+
+噜起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11555#       发表于 2024-2-5 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887627&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-2-5 14:46</a>
+
+事实证明S1使用体验确实不如泥潭
+
+—— 来自 S1Fun</blockquote>
+難用那不是大家都難用嗎，來這裡是因為這裡有很多ave粉想一起聊天而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+重點是人，而不是地方
+
+*****
+
+####  Aendst  
+##### 11556#       发表于 2024-2-5 14:50
+
+现在具体什么情况，还是没有特别稳定的样子？
+
+*****
+
+####  novalli  
+##### 11557#       发表于 2024-2-5 14:50
+
+复权时刻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  氷川日菜  
+##### 11558#       发表于 2024-2-5 14:50
+
+噜不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11559#       发表于 2024-2-5 14:50
+
+现在就是复权之时！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novalli  
+##### 11560#       发表于 2024-2-5 14:51
+
+似乎有点延迟，不过大概问题不大？
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

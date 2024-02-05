@@ -339,3 +339,39 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NeloAngelo  
+##### 3652#       发表于 2024-2-5 23:06
+
+草, 歌姬flag确实插满了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zero12  
+##### 3653#       发表于 2024-2-5 23:08
+
+这对是游戏的男女主吗？
+
+*****
+
+####  novyDC  
+##### 3654#       发表于 2024-2-5 23:11
+
+大哥你怎么变了面具男了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  novyDC  
+##### 3655#       发表于 2024-2-5 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63892827&amp;ptid=2092345" target="_blank">zero12 发表于 2024-02-05 23:08:03</a>
+这对是游戏的男女主吗？</blockquote>对
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

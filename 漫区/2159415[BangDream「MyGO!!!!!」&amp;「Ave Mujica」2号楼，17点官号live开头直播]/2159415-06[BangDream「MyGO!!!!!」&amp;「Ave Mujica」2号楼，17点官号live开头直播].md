@@ -17875,3 +17875,172 @@ soyo名场面
 为什么修好以后少了100多页</blockquote>
 因為現在40樓1頁了
 
+
+*****
+
+####  御幸一也  
+##### 11601#       发表于 2024-2-5 16:10
+
+讓我來試試翻頁<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11602#       发表于 2024-2-5 16:10
+
+翻失敗了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11603#       发表于 2024-2-5 16:13
+
+結果還是卡頁嘛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11604#       发表于 2024-2-5 16:17
+
+说起来月之森校园祭是啥时候啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11605#       发表于 2024-2-5 16:18
+
+好正常的学园祭回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+时间是在6月上旬，看来是不打算讲了
+
+*****
+
+####  cindy355  
+##### 11606#       发表于 2024-2-5 16:19
+
+居然复权了，赞美！
+
+*****
+
+####  紫吹兰  
+##### 11607#         楼主| 发表于 2024-2-5 16:20
+
+看来还是需要我来翻
+
+*****
+
+####  笋干爆炸碱  
+##### 11608#       发表于 2024-2-5 16:20
+
+哦呦看起来还是有点卡页
+
+*****
+
+####  笋干爆炸碱  
+##### 11609#       发表于 2024-2-5 16:21
+
+fy
+
+*****
+
+####  黑夜落叶秋天  
+##### 11610#       发表于 2024-2-5 16:21
+
+测试
+
+*****
+
+####  圆  
+##### 11611#       发表于 2024-2-5 16:22
+
+能翻过来吗
+
+*****
+
+####  徒然枕草  
+##### 11612#       发表于 2024-2-5 16:22
+
+外面显示明明是正常的
+
+*****
+
+####  紫吹兰  
+##### 11613#         楼主| 发表于 2024-2-5 16:22
+
+翻页试试
+
+*****
+
+####  NODY  
+##### 11614#       发表于 2024-2-5 16:23
+
+花女和羽丘两个学校都是有给过学园祭明确时间点在六月初的（具体日期可以自选），并且都有学园祭后才换夏季校服的表现，剧情也对得上
+
+非常可惜的就是邦三年学园祭时间点鸡狗互相都不熟，所以是看不到高一这届的学园祭剧情了（前辈倒是已经有了这一年的学园祭活动），到了明年重新分班估计也不好写
+
+<img src="https://img.saraba1st.com/forum/202402/05/162136prerrer5lczctd1y.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240205161937.jpg</strong> (168.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 16:21 上传
+
+*****
+
+####  笋干爆炸碱  
+##### 11615#       发表于 2024-2-5 16:24
+
+所以月之森学院祭呢（again）
+
+我出蝶那时候退坑导致完全不知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11616#         楼主| 发表于 2024-2-5 16:25
+
+似乎是里面显示40倍数和外面显示40倍数之间的会卡……不知道这个差额怎么形成的
+
+*****
+
+####  NODY  
+##### 11617#       发表于 2024-2-5 16:29
+
+鸡狗这一届没一个学校凑得出五个人，所以要搞学园祭活只能等两边熟了以后和第二季那样搞多校联合了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  徒然枕草  
+##### 11618#       发表于 2024-2-5 16:31
+
+楼主该开翻页脚本了
+
+*****
+
+####  御幸一也  
+##### 11619#       发表于 2024-2-5 16:36
+
+是樓主翻頁成功的嗎？還是和以前的樓到了卡頁癌後期一樣，要吞個幾樓才會顯示出來啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11620#       发表于 2024-2-5 16:37
+
+相比学园祭更期待新活动怎么和老团拉上关系，鸡团这边感觉可以期待一些商演之类的合作吧，和萝和pp都好拉，几个演艺世家点凑一桌也很期待。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11621#       发表于 2024-2-5 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63888715&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-5 16:29</a>
+
+鸡狗这一届没一个学校凑得出五个人，所以要搞学园祭活只能等两边熟了以后和第二季那样搞多校联合了 ...</blockquote>
+可以讓祥子轉學花咲川，這不就人齊了，祥子去了那睦也要跟去吧，那我們就有完美的5人了
+
+※貓貓是中學生對不起沒算你
+
+不過就武士道這個樣子，實裝ave前說不定遊戲會先倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

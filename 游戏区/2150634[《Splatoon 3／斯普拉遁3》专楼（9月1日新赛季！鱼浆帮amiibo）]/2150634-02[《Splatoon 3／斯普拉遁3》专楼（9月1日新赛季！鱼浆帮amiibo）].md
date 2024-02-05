@@ -12430,3 +12430,12 @@ RPG要是能加个前摇就好了，开的瞬间根本没机会躲，二人轮�
 
 结果700开始又疯狂坐牢了
 
+
+*****
+
+####  Teiume  
+##### 2732#       发表于 2024-2-6 01:02
+
+有点后悔上次重伞电锯喇叭那次没一把康掉，晚上越打脑子越不清醒&amp;不会用炮,上了700就开始坐牢无限loop<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+金工，金工快点降临工坊吧。
+

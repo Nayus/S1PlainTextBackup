@@ -68,3 +68,13 @@
 
 不是，magus你们怎么回事，在驾驶舱里不是全息投影吗？怎么机体倒过来，米丝缇还要找个地方拉着的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyMS  
+##### 3648#       发表于 2024-2-5 17:33
+
+今晚去探险A国了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

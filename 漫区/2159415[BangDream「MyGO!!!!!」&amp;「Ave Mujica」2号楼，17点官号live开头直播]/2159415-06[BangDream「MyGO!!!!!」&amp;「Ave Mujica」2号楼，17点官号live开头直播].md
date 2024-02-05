@@ -17412,3 +17412,151 @@ Ave Mujica！伟大！
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Aendst  
+##### 11561#       发表于 2024-2-5 14:52
+
+试试翻页
+
+*****
+
+####  PDQ4  
+##### 11562#       发表于 2024-2-5 14:54
+
+感觉s1怎么卡卡的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+ras上海场两天才总共2000票，这下漏油都是敌人了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无端崖之辞  
+##### 11563#       发表于 2024-2-5 14:55
+
+翻页
+
+*****
+
+####  爱丁堡official  
+##### 11564#       发表于 2024-2-5 14:56
+
+复权了吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  selight  
+##### 11565#       发表于 2024-2-5 14:57
+
+fy?
+
+*****
+
+####  PDQ4  
+##### 11566#       发表于 2024-2-5 14:58
+
+怎么好像又卡了，fy<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜苗  
+##### 11567#       发表于 2024-2-5 14:59
+
+坏了，好像又卡页了，PC看不到11560之后的楼，鹅球可以，但是预计11580以后还是会卡
+
+*****
+
+####  圆  
+##### 11568#       发表于 2024-2-5 15:00
+
+有天选翻页吗
+
+*****
+
+####  蒜苗  
+##### 11569#       发表于 2024-2-5 15:00
+
+看来复权结束了，满月过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜苗  
+##### 11570#       发表于 2024-2-5 15:01
+
+用倒序模式可以看到最新回复
+
+*****
+
+####  御幸一也  
+##### 11571#       发表于 2024-2-5 15:01
+
+試試翻頁
+
+*****
+
+####  selight  
+##### 11572#       发表于 2024-2-5 15:02
+
+翻过来了
+
+*****
+
+####  御幸一也  
+##### 11573#       发表于 2024-2-5 15:02
+
+我是不是能翻 好像可以翻<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 11574#       发表于 2024-2-5 15:04
+
+test
+
+*****
+
+####  selight  
+##### 11575#       发表于 2024-2-5 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887774&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-5 15:02</a>
+
+我是不是能翻 好像可以翻</blockquote>
+你翻之前这一页就出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11576#       发表于 2024-2-5 15:04
+
+能翻就好，能翻就好<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11577#       发表于 2024-2-5 15:07
+
+复权之时到来了么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11578#       发表于 2024-2-5 15:08
+
+無所謂 有樓友能翻頁就行！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 2號樓該復辟了
+
+*****
+
+####  ddy2811  
+##### 11579#       发表于 2024-2-5 15:09
+
+终于可以直接把回复发出来不用专门刷新了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 11580#       发表于 2024-2-5 15:10
+
+理論上回覆能直接出來的都能翻頁吧，我在這邊也是回了馬上能看到和以前一樣，等下翻頁再來試試看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

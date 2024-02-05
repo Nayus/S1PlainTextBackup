@@ -17732,3 +17732,72 @@ test
 
 又卡在11580
 
+
+*****
+
+####  紫吹兰  
+##### 11584#         楼主| 发表于 2024-2-5 15:25
+
+ 本帖最后由 紫吹兰 于 2024-2-5 15:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887942&amp;ptid=2159415" target="_blank">harukage 发表于 2024-2-5 15:23</a>
+
+又卡在11580</blockquote>
+有回复没显示出来吗，也可能只是那段时间没人发帖，或者是手机版的问题，手机用浏览器切网页版可以
+
+*****
+
+####  6030sylar  
+##### 11585#       发表于 2024-2-5 15:25
+
+外面看11573
+
+*****
+
+####  笋干爆炸碱  
+##### 11586#       发表于 2024-2-5 15:26
+
+test
+
+*****
+
+####  笋干爆炸碱  
+##### 11587#       发表于 2024-2-5 15:27
+
+好像还行哦<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 11588#       发表于 2024-2-5 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">好像基本重生成功了
+
+*****
+
+####  蒜苗  
+##### 11589#       发表于 2024-2-5 15:36
+
+网页版没问题了，鹅球卡在11580了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  selight  
+##### 11590#       发表于 2024-2-5 15:38
+
+test
+
+*****
+
+####  紫吹兰  
+##### 11591#         楼主| 发表于 2024-2-5 15:39
+
+手机版确实，可能要手机回帖才能解锁翻页?
+
+*****
+
+####  salic428  
+##### 11592#       发表于 2024-2-5 15:39
+
+鹅球显示回复11577，所以还需要3个才能触发30翻页吧——这也就是说鹅球的计数相差了12
+编辑：没错这条发出来之后就能翻页了
+

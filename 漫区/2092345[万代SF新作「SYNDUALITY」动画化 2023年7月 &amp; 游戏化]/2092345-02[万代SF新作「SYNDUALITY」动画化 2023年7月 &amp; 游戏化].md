@@ -618,3 +618,73 @@ f396ce0c101a72d46f722969d08983ee.jpg
 
 下一话该英雄救场了吧？这男主每次都要别人救场看的火大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cauchua2  
+##### 3681#       发表于 2024-2-6 01:35
+
+截止 15 话 男主弱很正常吧，本人的技术是真不行，机体也不是啥特机。超算虽然不菜决斗的黑假面超算和她也是一个水平的，能让黑假面说意外性拉满已经说明男主脑子好了
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  NeloAngelo  
+##### 3682#       发表于 2024-2-6 01:43
+
+卫浴柜这个欠打的样子也很像xb1克劳乌斯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyDC  
+##### 3683#       发表于 2024-2-6 01:47
+
+原来是二代目
+
+<img src="https://img.saraba1st.com/forum/202402/06/014728q14ozz7rlomfdoqg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-06-01-46-21-033_com.viva.note.jpg</strong> (694.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 01:47 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  三合一出现  
+##### 3684#       发表于 2024-2-6 02:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">需要一个原型做备份，你们不要总是给夏尔立flag
+
+*****
+
+####  novyDC  
+##### 3685#       发表于 2024-2-6 02:33
+
+管家以前是黑假面的贤士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  三合一出现  
+##### 3686#       发表于 2024-2-6 02:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">终于大伙都一起跳反了。
+
+球员、裁判、球场全是我的人，你怎么踢啊。
+
+*****
+
+####  novyDC  
+##### 3687#       发表于 2024-2-6 02:49
+
+黑假面反水预定
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

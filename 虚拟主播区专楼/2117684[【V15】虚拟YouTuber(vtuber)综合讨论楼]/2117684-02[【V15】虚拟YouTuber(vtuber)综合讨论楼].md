@@ -129,3 +129,13 @@
 
 黑粉还是运营信
 
+
+*****
+
+####  OldGlory  
+##### 2992#       发表于 2024-2-5 09:23
+
+其实去年写的就是Chinese new year了，无人在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年所谓的被冲也就是一群人在推下面互相复读罢了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

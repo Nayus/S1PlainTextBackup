@@ -698,3 +698,21 @@ f396ce0c101a72d46f722969d08983ee.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyDC  
+##### 3689#       发表于 2024-2-6 07:26
+
+ 本帖最后由 novyDC 于 2024-2-6 07:30 编辑 
+
+感觉要献祭歌姬复活诺瓦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/06/073025odmnkem2mnka056b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-06-07-29-45-763_com.viva.note.jpg</strong> (566.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 07:30 上传
+

@@ -457,3 +457,13 @@ Up四星掉率提升了，歪的也少了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">氪了一单 连个四星都没出 我是傻逼
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46115#       发表于 2024-2-6 15:11
+
+住了两天坠机点都要刷吐了终于给自迦一宝烟哥技能点了10108被动2也点满了………安卓B服求一些烟哥好友<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> id 100,100,418,517
+
+双烟味道太强劲了根本停不下来
+

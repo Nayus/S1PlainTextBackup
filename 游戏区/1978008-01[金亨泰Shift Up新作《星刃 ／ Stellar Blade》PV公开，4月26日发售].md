@@ -267,3 +267,19 @@ Kim told us that there’ll be around 30 different costumes to unlock for Eve in
 
 The developer stressed that none of these outfits will require additional purchases, and all are included within the game.
 
+
+*****
+
+####  hypnossz86  
+##### 242#       发表于 2024-2-6 15:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">日语独占，太傻逼了
+只好不买等pc版了
+
+*****
+
+####  奈叶魔王控  
+##### 243#       发表于 2024-2-6 15:05
+
+这是嫌弃宣传好了，要给自己上难度啊，锁语音精神病吧
+

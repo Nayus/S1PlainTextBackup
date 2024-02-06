@@ -459,3 +459,11 @@ The developer stressed that none of these outfits will require additional purcha
 
 看语言是不是全区同步吧，不同步就只能听韩配了，金亨泰也别装了，直接石川由依吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roxassix  
+##### 265#       发表于 2024-2-6 19:01
+
+啊？日配日版独占？这大概率只有日文字幕，md整血缘这一出是吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">都2024了有什么大病嘛
+

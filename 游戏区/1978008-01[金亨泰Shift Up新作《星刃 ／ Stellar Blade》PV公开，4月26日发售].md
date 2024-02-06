@@ -432,3 +432,11 @@ The developer stressed that none of these outfits will require additional purcha
 你就说为什么nikke腾讯发行能做到全区全语音吧
 上面那个英文voice actors用的是复数，明显不是个别声优耍大牌
 
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 262#       发表于 2024-2-6 18:39
+
+九种配音有中配不过分吧
+

@@ -440,3 +440,22 @@ The developer stressed that none of these outfits will require additional purcha
 
 九种配音有中配不过分吧
 
+
+*****
+
+####  宛若青空  
+##### 263#       发表于 2024-2-6 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63900037&amp;ptid=1978008" target="_blank">hypnossz86 发表于 2024-2-6 18:33</a>
+省这点钱这不正符合索尼扣扣缩缩的刻板印象么
+你就说为什么nikke腾讯发行能做到全区全语音而索尼不行吧
+ ...</blockquote>
+只能说要是日版还整出存在只有20种语言切割中文字幕的操作那在国内活该被骂<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 264#       发表于 2024-2-6 18:48
+
+看语言是不是全区同步吧，不同步就只能听韩配了，金亨泰也别装了，直接石川由依吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

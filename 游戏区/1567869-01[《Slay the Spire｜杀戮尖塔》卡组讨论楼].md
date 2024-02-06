@@ -5018,3 +5018,20 @@ nos ...</blockquote>
 
 2024-2-6 10:56 上传
 
+
+*****
+
+####  闷吸  
+##### 450#       发表于 2024-2-6 11:14
+
+24年回来爬楼，看到老玩家都是英文卡组，充满敬意<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  摩天城  
+##### 451#       发表于 2024-2-6 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63895900&amp;ptid=1567869" target="_blank">Amelia_1812 发表于 2024-2-6 10:57</a>
+这个是不是不太好打老头呀</blockquote>
+这15张是不好说，没啥上限，没有回收和过牌，既转不起来，每回合打的牌也有限。不过34层后面还有发育空间。
+

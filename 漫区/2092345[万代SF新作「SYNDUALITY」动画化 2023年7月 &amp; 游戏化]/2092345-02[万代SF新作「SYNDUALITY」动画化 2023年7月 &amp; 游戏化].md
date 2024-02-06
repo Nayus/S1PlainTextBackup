@@ -732,3 +732,14 @@ f396ce0c101a72d46f722969d08983ee.jpg
 
 太惨了男主，好不容易捡一个机体能开机架圆一下小时候的梦，然后联手被几个老油条暴打
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3692#       发表于 2024-2-6 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894533&amp;ptid=2092345" target="_blank">reficul 发表于 2024-2-6 08:34</a>
+
+彼方是少有的没背景没血统没特殊能力的男主角了吧，操作打不过登场有名有姓的大多数角色，只是个普通人，反 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是他戏份多，说他不是男主都没问题了
+

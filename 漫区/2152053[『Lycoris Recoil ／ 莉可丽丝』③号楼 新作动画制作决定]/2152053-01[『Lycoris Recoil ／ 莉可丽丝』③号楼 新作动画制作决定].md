@@ -20752,3 +20752,30 @@ buzz mod的脸特别唐，max factory看着还行
 
 2024-2-6 21:12 上传
 
+
+*****
+
+####  Saber琪  
+##### 1660#       发表于 2024-2-6 21:24
+
+[作者：お茶　さん（推特：@ocharicorico ）    翻译嵌字：见链接来源作者](https://weibo.com/6179331185/4998520515864069)
+
+<img src="https://img.saraba1st.com/forum/202402/06/212302hu095t1hl819i9i4.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1707225773518.jpg</strong> (529.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:23 上传
+
+[前言链接，详细图见链接或楼上搬运](https://weibo.com/5912535944/4997425389635423)
+[https://weibo.com/5912535944/4998395826276097](https://weibo.com/5912535944/4998395826276097)
+
+<img src="https://img.saraba1st.com/forum/202402/06/212444e5o84jffns58gs5s.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1707225880076.jpg</strong> (419.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:24 上传
+

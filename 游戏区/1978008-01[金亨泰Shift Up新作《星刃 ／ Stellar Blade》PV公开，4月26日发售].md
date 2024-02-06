@@ -301,3 +301,25 @@ The developer stressed that none of these outfits will require additional purcha
 
 —— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ultraseven  
+##### 246#       发表于 2024-2-6 15:34
+
+日版光盘或日区数字版
+
+*****
+
+####  洛克萨斯  
+##### 247#       发表于 2024-2-6 15:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nikke联动没准是他老婆画立绘
+
+*****
+
+####  ShiKi847  
+##### 248#       发表于 2024-2-6 15:42
+
+问题是日区没中文啊，吐了，只能听英配了，韩配真的欣赏不来
+

@@ -421,3 +421,13 @@ Up四星掉率提升了，歪的也少了
 
 昨天灵光一现投了九十石来了第二个大姐姐，本来是指望着多来一两宝雨神的，还是就此打住吧
 
+
+*****
+
+####  Kon-El  
+##### 46111#       发表于 2024-2-6 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">小刀才刷了56个，216个这得刷到什么时候
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

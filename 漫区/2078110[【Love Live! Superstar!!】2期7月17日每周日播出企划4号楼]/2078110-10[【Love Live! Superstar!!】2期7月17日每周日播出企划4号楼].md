@@ -85,3 +85,20 @@
 
 不过我夜场也没买到VIP啊……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 19418#       发表于 2024-2-6 10:53
+
+夜场VIP我去看的时候可是秒无啊
+
+*****
+
+####  仟音一心  
+##### 19419#       发表于 2024-2-6 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891864&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-2-5 21:32</a>
+夜场VIP感觉好抢多了</blockquote>
+？？？日场没看，夜场VIP不是秒无吗？
+

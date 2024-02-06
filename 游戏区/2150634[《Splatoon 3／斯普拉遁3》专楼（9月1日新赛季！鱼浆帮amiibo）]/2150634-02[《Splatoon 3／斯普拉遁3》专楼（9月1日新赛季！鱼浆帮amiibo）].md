@@ -12491,3 +12491,11 @@ RPG要是能加个前摇就好了，开的瞬间根本没机会躲，二人轮�
 还有工坊这图是不是很多人在练一确垃圾桶啊，右下角只 ...</blockquote>
 看视频说是要打从下往上数第三节
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2738#       发表于 2024-2-6 17:00
+
+卖不过是板上钉钉的事了，我个人是不看好dlc的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

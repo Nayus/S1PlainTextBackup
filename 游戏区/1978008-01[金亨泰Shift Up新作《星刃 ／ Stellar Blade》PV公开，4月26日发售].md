@@ -331,3 +331,18 @@ The developer stressed that none of these outfits will require additional purcha
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不买了，等吧
 
+
+*****
+
+####  泉美  
+##### 250#       发表于 2024-2-6 16:57
+
+<blockquote> The Japanese text will be available, but it’s the voiceover that won’t be. This is due to the voice actors, as they’ll only be available in the Japanese region.</blockquote>很好奇是哪位声优这么大牌，以后可以绕个道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 251#       发表于 2024-2-6 16:57
+
+这什么市场调研，还能不给中文区听日语的，也没中配啊，合着 nikke 真的是腾讯当幕后英雄？
+

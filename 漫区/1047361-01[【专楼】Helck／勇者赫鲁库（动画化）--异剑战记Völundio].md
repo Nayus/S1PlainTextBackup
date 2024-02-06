@@ -24,3 +24,18 @@
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TR4835  
+##### 1159#       发表于 2024-2-6 17:47
+
+至少单行本能买齐了
+
+*****
+
+####  Hyzk  
+##### 1160#       发表于 2024-2-6 17:52
+
+其实我觉得第一章最后那几段是发糖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

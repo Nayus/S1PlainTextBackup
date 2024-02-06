@@ -467,3 +467,15 @@ The developer stressed that none of these outfits will require additional purcha
 
 啊？日配日版独占？这大概率只有日文字幕，md整血缘这一出是吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">都2024了有什么大病嘛
 
+
+*****
+
+####  碎月  
+##### 266#       发表于 2024-2-6 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63899587&amp;ptid=1978008" target="_blank">PYY 发表于 2024-02-06 17:42:56</a>
+第一次对韩配游戏有了兴趣，
+是指对游戏的韩语配音。</blockquote>二十年前创世纪战3韩语配音水平也很高的，也是金亨泰设计角色
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

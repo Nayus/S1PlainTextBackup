@@ -7565,3 +7565,11 @@ holoALT那边的漫画今天发布新的一话miko作为作品内角色正式出
 
 房间企划和radio风会限企划同时开了，最近又有得忙了
 
+
+*****
+
+####  holoan  
+##### 8122#         楼主| 发表于 2024-2-6 10:34
+
+笑死了miko要去做那个PS版第一人称喷射的工商，等一下任爹生气了不让你以后播喷了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

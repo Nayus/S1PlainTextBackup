@@ -75,3 +75,13 @@
 原来以为夜场难抢，没想到反而是日场难抢</blockquote>
 的确……没想到呢，感觉很多都是外地来看完下午场就走人回家
 
+
+*****
+
+####  辻木LiG  
+##### 19417#       发表于 2024-2-6 10:38
+
+日场心急就买了普通票，结果20分钟过后点进去还能买VIP……属实大意了。
+
+不过我夜场也没买到VIP啊……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

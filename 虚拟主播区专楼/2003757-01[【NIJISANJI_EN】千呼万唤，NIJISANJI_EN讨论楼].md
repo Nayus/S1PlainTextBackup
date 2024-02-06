@@ -2818,3 +2818,14 @@ feels like an all out war
 
 2024-2-6 10:19 上传
 
+
+*****
+
+####  Artanis  
+##### 162#       发表于 2024-2-6 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63895505&amp;ptid=2003757" target="_blank">wiig 发表于 2024-2-6 10:19</a></blockquote>
+不开玩笑，的确差点了，可能鬼门关走一趟大彻大悟了<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

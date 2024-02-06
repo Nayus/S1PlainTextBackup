@@ -396,3 +396,20 @@ The developer stressed that none of these outfits will require additional purcha
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Schwarzess  
+##### 258#       发表于 2024-2-6 17:55
+
+这么喜欢尼尔，那盲猜石川由依。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 259#       发表于 2024-2-6 17:58
+
+整个游戏估计也就那三个人语音会多一些吧，都成为SIE第二方游戏了有必要省那点全球范围发行使用权的费用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我反正买日版，只能希望字幕是全区语言了。
+

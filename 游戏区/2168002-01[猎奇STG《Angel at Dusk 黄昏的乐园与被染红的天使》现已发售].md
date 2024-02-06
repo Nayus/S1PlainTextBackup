@@ -952,3 +952,16 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 终于把编年史都打完了，双火柱+四泡泡+大激光能算是逃课配置了
 
+
+*****
+
+####  猫出没注意  
+##### 70#       发表于 2024-2-6 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893960&amp;ptid=2168002" target="_blank">quanlix 发表于 2024-2-6 01:42</a>
+
+终于把编年史都打完了，双火柱+四泡泡+大激光能算是逃课配置了</blockquote>
+主武器为啥选两火柱的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">？我还拿到了一个3火柱和8泡泡。不应该是越多越好吗，还是说分裂越多伤害会越低。
+
+瞎玩了几天这这origin模式还挺上头的，有点像玩前中期档的吸血鬼幸存者。
+

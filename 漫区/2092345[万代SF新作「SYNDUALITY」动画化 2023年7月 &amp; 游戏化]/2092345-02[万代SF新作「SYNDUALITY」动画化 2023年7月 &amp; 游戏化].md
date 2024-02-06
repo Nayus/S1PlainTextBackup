@@ -937,3 +937,14 @@ QQ图片20240206194841.jpg
 
 <img src="https://img.saraba1st.com/forum/202402/06/195432iz9qyjv3rj97z29t.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 3708#       发表于 2024-2-7 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63900518&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-6 19:35</a>
+
+如果按照访谈说法，彼方不是那种性格特别消沉的类型，所以黑化也难？</blockquote>
+太难了，菜鸡主角变强的最佳捷径他都用不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

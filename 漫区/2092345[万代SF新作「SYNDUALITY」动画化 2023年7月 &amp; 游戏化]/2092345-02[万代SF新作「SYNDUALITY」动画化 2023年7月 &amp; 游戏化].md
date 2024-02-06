@@ -819,3 +819,14 @@ f396ce0c101a72d46f722969d08983ee.jpg
 
 感觉歌姬可以反水放走彼方，但是以现在的彼方连个正经的贤士都没有情况，面具男随便打都足够，好像只有外传男主可以指望了
 
+
+*****
+
+####  aptx8285144  
+##### 3700#       发表于 2024-2-6 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894533&amp;ptid=2092345" target="_blank">reficul 发表于 2024-2-6 08:34</a>
+
+彼方是少有的没背景没血统没特殊能力的男主角了吧，操作打不过登场有名有姓的大多数角色，只是个普通人，反 ...</blockquote>
+相叶昂治:彼方还能上机体，我作为SFor萝卜片的主角经常只能靠嘴炮更憋屈jpg
+

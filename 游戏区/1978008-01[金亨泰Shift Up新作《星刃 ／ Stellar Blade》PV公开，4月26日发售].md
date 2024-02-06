@@ -479,3 +479,11 @@ The developer stressed that none of these outfits will require additional purcha
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  yyman  
+##### 267#       发表于 2024-2-6 19:34
+
+  第一次听棒语游戏是2000年初PC上的格兰蒂亚2，不知为啥没有日语只有棒语配音
+

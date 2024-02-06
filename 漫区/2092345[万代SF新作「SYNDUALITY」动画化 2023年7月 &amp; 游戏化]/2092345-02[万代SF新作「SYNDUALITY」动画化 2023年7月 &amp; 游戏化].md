@@ -869,3 +869,14 @@ f396ce0c101a72d46f722969d08983ee.jpg
 感觉要献祭歌姬复活诺瓦</blockquote>
 感觉蜜丝蒂要做终极牺牲，把能力和挂留给诺瓦自己就见主人去了（
 
+
+*****
+
+####  aptx8285144  
+##### 3705#       发表于 2024-2-6 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893036&amp;ptid=2092345" target="_blank">约翰里德 发表于 2024-2-5 23:27</a>
+
+下一话，kanata的黑化</blockquote>
+如果按照访谈说法，彼方不是那种性格特别消沉的类型，所以黑化也难？
+

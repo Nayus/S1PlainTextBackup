@@ -2406,3 +2406,384 @@ fy
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">星闪之后就没再看了，这几年有什么推荐好看的嘛
 
+
+*****
+
+####  帝下室の年糕  
+##### 721#       发表于 2024-2-5 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+星闪之后只有热带比较好看，但也是弱主线的优秀喜剧，看你接受能力吧
+
+如果你喜欢星闪也可以看天Q，这俩各种意义上都挺像的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果就是星闪把你创退坑了那就算了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leghorn00  
+##### 722#       发表于 2024-2-5 19:33
+
+这什么Jewel Pet？
+
+*****
+
+####  迪米特里  
+##### 723#       发表于 2024-2-5 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">窜线了
+
+<img src="https://img.saraba1st.com/forum/202402/05/194822yxbkrdlb6qqiroqz.png" referrerpolicy="no-referrer">
+
+<strong>火狐截图_2024-02-05T11-47-30.747Z.png</strong> (88.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:48 上传
+
+*****
+
+####  披头破落户  
+##### 724#       发表于 2024-2-5 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带，去年的天q挑其中几集空白回
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  待宵  
+##### 725#       发表于 2024-2-5 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+治愈和热带
+
+*****
+
+####  待宵  
+##### 726#       发表于 2024-2-5 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+治愈和热带
+
+*****
+
+####  水薰叶  
+##### 727#       发表于 2024-2-5 21:35
+
+第一集还行，希望别删了打戏
+
+*****
+
+####  lyuhiu  
+##### 728#       发表于 2024-2-5 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带和治愈都可以看，比派q和天q都好
+
+*****
+
+####  1096beam  
+##### 729#       发表于 2024-2-5 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热Q
+
+*****
+
+####  1096beam  
+##### 730#       发表于 2024-2-5 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热Q
+
+*****
+
+####  1096beam  
+##### 731#       发表于 2024-2-5 22:05
+
+Pretty Holic的大老板究竟是谁啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有骨气的百合  
+##### 732#       发表于 2024-2-5 22:06
+
+fy
+
+*****
+
+####  王留美  
+##### 733#       发表于 2024-2-5 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+今年很有好看的有潜力
+
+*****
+
+####  chentry  
+##### 734#       发表于 2024-2-5 22:23
+
+<blockquote>zzy516232108 发表于 2024-2-5 19:23
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带啊
+
+*****
+
+####  twit  
+##### 735#       发表于 2024-2-5 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+仅推荐热Q
+
+*****
+
+####  twit  
+##### 736#       发表于 2024-2-5 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+近年仅推荐热Q
+
+*****
+
+####  twit  
+##### 737#       发表于 2024-2-5 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+近年仅推荐热Q
+
+*****
+
+####  lyz1196  
+##### 738#       发表于 2024-2-5 22:36
+
+喵内你怎么跑Q娃片场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 739#       发表于 2024-2-5 22:41
+
+第一集还行，不过这条狗有点重啊，而且变人后还用握手指令各种意义都太糟糕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 740#       发表于 2024-2-5 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 741#       发表于 2024-2-5 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63892502&amp;ptid=2162354" target="_blank">starring 发表于 2024-2-5 22:41</a>
+ 第一集还行，不过这条狗有点重啊，而且变人后还用握手指令各种意义都太糟糕了 ...</blockquote>
+以狗来说很正常，但是你把它拟人了就有点糟糕，更不要说还能变成人了，太糟糕了
+
+*****
+
+####  王留美  
+##### 742#       发表于 2024-2-5 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63892502&amp;ptid=2162354" target="_blank">starring 发表于 2024-02-05 22:41:48</a>
+第一集还行，不过这条狗有点重啊，而且变人后还用握手指令各种意义都太糟糕了 ...</blockquote>以狗来说很正常，但是你把它拟人了就有点糟糕，更不要说还能变成人了，太糟糕了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+*****
+
+####  modedd  
+##### 743#       发表于 2024-2-5 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63892502&amp;ptid=2162354" target="_blank">starring 发表于 2024-02-05 22:41:48</a>
+第一集还行，不过这条狗有点重啊，而且变人后还用握手指令各种意义都太糟糕了 ...</blockquote>最重量级的是坐下呀，那场面简直要一脚踩进幼女番的红线了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  collincollin  
+##### 744#       发表于 2024-2-6 03:15
+
+看预告，那羊有可能是导师役，总不能上手先锤一顿吧
+
+公兔子已经不是关键了，按狗+抱狗丫环的模式，我现在怕他把眼镜男也算上
+
+*****
+
+####  舞野咲  
+##### 745#       发表于 2024-2-6 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+盛夏的热带Q娃，好看！
+
+*****
+
+####  最强惠酱  
+##### 746#       发表于 2024-2-6 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热q
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  青蛙佬  
+##### 747#       发表于 2024-2-6 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+可以去看下剧场版F，看新人物哪个顺眼看哪个
+
+*****
+
+####  豚豚不想输  
+##### 748#       发表于 2024-2-6 09:37
+
+卡楼怎么这么严重
+
+*****
+
+####  灼眼的夏娜酱  
+##### 749#       发表于 2024-2-6 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带是星闪之后还算不错的。
+
+*****
+
+####  modedd  
+##### 750#       发表于 2024-2-6 09:52
+
+ 本帖最后由 modedd 于 2024-2-6 11:12 编辑 
+
+这个求推荐的漏油刚好是卡页前的的最后一层，后面全被卡住了看不到，现在在被围起来安利热q<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  杂灰  
+##### 751#       发表于 2024-2-6 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带吧，天q虽然好像风评不行但其实也没犯什么大错误，单纯是平
+
+*****
+
+####  sheshiro  
+##### 752#       发表于 2024-2-6 12:23
+
+我的雷达响了，前八集之前决定不碰这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪城穗乃香  
+##### 753#       发表于 2024-2-6 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63880500&amp;ptid=2162354" target="_blank">青蛙佬 发表于 2024-2-4 17:17</a>
+
+如果大友变成怪物了，是不是就可以被小麦抱抱了，一起做快乐的事情了。而且还不用被殴打。
+
+ ...</blockquote>
+对动物给与爱的抱抱
+
+对人类她重拳出击
+
+*****
+
+####  雪城穗乃香  
+##### 754#       发表于 2024-2-6 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63880500&amp;ptid=2162354" target="_blank">青蛙佬 发表于 2024-2-4 17:17</a>
+
+如果大友变成怪物了，是不是就可以被小麦抱抱了，一起做快乐的事情了。而且还不用被殴打。
+
+ ...</blockquote>
+对动物给与爱的抱抱
+
+对人类她重拳出击
+
+*****
+
+####  lydia5989  
+##### 755#       发表于 2024-2-6 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带素质很不错，而且有乐子
+
+*****
+
+####  lydia5989  
+##### 756#       发表于 2024-2-6 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带素质不错
+
+*****
+
+####  暗黑能乐  
+##### 757#       发表于 2024-2-6 15:35
+
+又卡页了，太辣鸡了泥潭
+
+*****
+
+####  ダイヤモンド  
+##### 758#       发表于 2024-2-6 15:47
+
+测试
+
+*****
+
+####  宅音  
+##### 759#       发表于 2024-2-6 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这吞页也太严重了，换楼能解吗
+
+*****
+
+####  wou  
+##### 760#       发表于 2024-2-6 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带挺不错的，天空基本上只有开头结尾能看
+

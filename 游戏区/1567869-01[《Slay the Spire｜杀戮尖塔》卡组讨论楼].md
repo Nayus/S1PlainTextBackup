@@ -5110,3 +5110,34 @@ nos ...</blockquote>
 这deck加一张skim直接无敌，但没&amp;#x6 ...</blockquote>
 啊，碰到几次都没拿<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dclara1  
+##### 459#       发表于 2024-2-6 13:05
+
+ 本帖最后由 dclara1 于 2024-2-6 13:11 编辑 
+
+话说蛇眼开局基本无敌，从第0层开始就能围绕它来构筑太强了。
+
+我专门玩过一阵手动调蛇眼swap+棱镜开局的ironclad，nosl a20碎心胜率能到8 9成
+
+*****
+
+####  dclara1  
+##### 460#       发表于 2024-2-6 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63897005&amp;ptid=1567869" target="_blank">Amelia_1812 发表于 2024-2-6 13:03</a>
+
+啊，碰到几次都没拿</blockquote>
+玩多了对card draw的价值的理解更深之后就知道该拿skim了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平昭·南宫司卿  
+##### 461#       发表于 2024-2-6 13:08
+
+ 本帖最后由 平昭·南宫司卿 于 2024-2-6 13:09 编辑 
+
+没集中是硬伤，虽然有回响循环多重，但没防还要想办法理球感觉有点麻烦，不过 a6 应该还是够乱杀了，又不是低数值循环，老头什么臭弟弟
+

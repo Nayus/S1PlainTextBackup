@@ -2842,3 +2842,11 @@ feels like an all out war
 —— 来自 HUAWEI ELE-AL00, Android 10上的 ...</blockquote>
 基德基德
 
+
+*****
+
+####  wiig  
+##### 164#       发表于 2024-2-6 13:08
+
+Niji should just go all-in and hire Mikeneko. If you are going to blow out, do it supernova style.
+

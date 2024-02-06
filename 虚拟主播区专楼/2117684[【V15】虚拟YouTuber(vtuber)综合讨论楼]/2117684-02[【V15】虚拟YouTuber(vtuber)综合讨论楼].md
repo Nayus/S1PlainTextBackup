@@ -667,3 +667,11 @@ Selen脾气暴是真的，但是这EN声明不也一副全是Selen错的样子�
 
 好久没看en管人，最近嫩多抓马啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 3032#       发表于 2024-2-6 11:35
+
+原来开除甚至不需要通知本人的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

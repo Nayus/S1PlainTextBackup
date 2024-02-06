@@ -5046,3 +5046,49 @@ nos ...</blockquote>
 24年回来爬楼，看到老玩家都是英文卡组，充满敬意</blockquote>
 我是连10层都还没到的轻度玩家<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Amelia_1812  
+##### 453#       发表于 2024-2-6 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896098&amp;ptid=1567869" target="_blank">摩天城 发表于 2024-2-5 22:14</a>
+
+这15张是不好说，没啥上限，没有回收和过牌，既转不起来，每回合打的牌也有限。不过34层后面还有发育空间 ...</blockquote>
+我觉得我无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/05/223531nj9zj1tqzw1v9pfv.png" referrerpolicy="no-referrer">
+
+<strong>ww.png</strong> (172.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 11:35 上传
+
+*****
+
+####  山形石雄  
+##### 454#       发表于 2024-2-6 11:38
+
+<blockquote>Amelia_1812 发表于 2024-2-6 10:57
+这个是不是不太好打老头呀</blockquote>
+进阶6随便打，进阶20这个卡组应该过不了，不好起防
+
+*****
+
+####  山形石雄  
+##### 455#       发表于 2024-2-6 11:39
+
+<blockquote>Amelia_1812 发表于 2024-2-6 10:57
+这个是不是不太好打老头呀</blockquote>
+进阶6应该有概率能打过，进阶20就很难了
+
+*****
+
+####  山形石雄  
+##### 456#       发表于 2024-2-6 11:41
+
+<blockquote>Amelia_1812 发表于 2024-2-6 10:57
+这个是不是不太好打老头呀</blockquote>
+进阶6应该有概率能过，进阶20就很难了
+

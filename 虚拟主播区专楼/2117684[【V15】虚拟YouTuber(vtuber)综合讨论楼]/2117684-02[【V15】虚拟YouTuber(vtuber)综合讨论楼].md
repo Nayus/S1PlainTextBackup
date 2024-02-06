@@ -690,3 +690,35 @@ test，似乎卡页了
 
 test
 
+
+*****
+
+####  渡鸦骑士  
+##### 3035#       发表于 2024-2-6 12:16
+
+test
+
+*****
+
+####  渡鸦骑士  
+##### 3036#       发表于 2024-2-6 12:17
+
+这铁卡了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 3037#       发表于 2024-2-6 12:19
+
+@tiro_finale
+楼主该开新楼了，这问题很严重了
+
+*****
+
+####  格林卡罗尔  
+##### 3038#       发表于 2024-2-6 12:21
+
+其实其他区卡页也很严重，甚至把回复内容卡没
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -145,3 +145,16 @@
 合鲤彩花</blockquote>
 像是把猫组拆散了和另外两个组匀了一下。
 
+
+*****
+
+####  starring  
+##### 19423#       发表于 2024-2-6 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896585&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-2-6 12:12</a>
+
+像是把猫组拆散了和另外两个组匀了一下。</blockquote>
+更像是每组都安排会做饭的保底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+A组岬薮，B组彩花，C组结那都会做饭，彩结花更是会做甜品
+

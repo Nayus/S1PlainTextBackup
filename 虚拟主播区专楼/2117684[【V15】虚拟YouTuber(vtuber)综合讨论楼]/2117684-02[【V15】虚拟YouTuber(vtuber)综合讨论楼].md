@@ -722,3 +722,22 @@ test
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  卡拉德利姆  
+##### 3039#       发表于 2024-2-6 12:26
+
+不是一个楼的问题 整个s1都是这毛病
+
+*****
+
+####  losstoY  
+##### 3040#       发表于 2024-2-6 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891230&amp;ptid=2117684" target="_blank">格林卡罗尔 发表于 2024-2-5 20:21</a>
+日本集美写出来的文章应该像是お気持ち的感觉，比如这个
+
+https://x.com/Liverary_JP/status/1734936212702 ...</blockquote>
+哇这个文章看得也是气哦，还把别人私下的抱怨说出来是多急，是以为真的能打击粉丝吗。
+

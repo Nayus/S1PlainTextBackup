@@ -965,3 +965,11 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 瞎玩了几天这这origin模式还挺上头的，有点像玩前中期档的吸血鬼幸存者。
 
+
+*****
+
+####  秘银mithril  
+##### 71#       发表于 2024-2-6 21:50
+
+教学关疯狂夸夸太好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

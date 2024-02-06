@@ -233,3 +233,13 @@ Fami通和IGN日本采访了《星刃》(Stellar Blade)的制作人金亨泰和�
 
 这脸真不行，不会建模不能找个脸模吗  跟匹诺曹比差太多了
 
+
+*****
+
+####  CyborgIP  
+##### 240#       发表于 2024-2-6 13:57
+
+感觉女主的脸确实不如pv里的机械师(应该是？
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

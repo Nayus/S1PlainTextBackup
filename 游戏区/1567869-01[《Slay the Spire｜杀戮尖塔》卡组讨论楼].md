@@ -5141,3 +5141,16 @@ nos ...</blockquote>
 
 没集中是硬伤，虽然有回响循环多重，但没防还要想办法理球感觉有点麻烦，不过 a6 应该还是够乱杀了，又不是低数值循环，老头什么臭弟弟
 
+
+*****
+
+####  Amelia_1812  
+##### 462#       发表于 2024-2-6 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63897039&amp;ptid=1567869" target="_blank">dclara1 发表于 2024-2-6 00:07</a>
+
+玩多了对card draw的价值的理解更&amp; ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">最早开始玩这游戏的时候一直玩silent经常拿一堆滤抽，然后发现打起来又累又没伤害还会被有些怪物制裁
+
+所以我现在不太敢拿滤抽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

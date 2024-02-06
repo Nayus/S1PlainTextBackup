@@ -20666,3 +20666,89 @@ buzz mod的脸特别唐，max factory看着还行
 
 [repeat3翻译，怕鬼的tkn（其实自己以前发电写过类似怕鬼的cst 小声……）太可爱了我以前怎么站泷1<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1659#       发表于 2024-2-6 21:12
+
+[https://twitter.com/sengokuchidori/status/1754521221021270449?s=19](https://twitter.com/sengokuchidori/status/1754521221021270449?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/210715fg9b6g0goonion98.jpg" referrerpolicy="no-referrer">
+
+<strong>20240206_210641.jpg</strong> (203.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:07 上传
+
+[https://twitter.com/fullhon88/status/1754776368125256056?s=19](https://twitter.com/fullhon88/status/1754776368125256056?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/210746ex6ooo91zhpjxkv9.jpg" referrerpolicy="no-referrer">
+
+<strong>20240206_210730.jpg</strong> (411.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:07 上传
+
+[https://twitter.com/komainu_mainu/status/1754835104600674759?s=19](https://twitter.com/komainu_mainu/status/1754835104600674759?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/210824xzy7ttq747t7t7k7.jpg" referrerpolicy="no-referrer">
+
+<strong>20240206_210810.jpg</strong> (220.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:08 上传
+
+[https://twitter.com/YU12040309a/status/1754830486080503877?s=19](https://twitter.com/YU12040309a/status/1754830486080503877?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/211004xhhq99zk5ahka9nk.gif" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024_0206_210939.gif</strong> (264.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:10 上传
+
+[https://twitter.com/suhukit/status/1754835357533896736?s=19](https://twitter.com/suhukit/status/1754835357533896736?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/211031su5chzmr9cvakxwv.jpg" referrerpolicy="no-referrer">
+
+<strong>20240206_211015.jpg</strong> (581.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:10 上传
+
+[https://twitter.com/rui_rui_rui0122/status/1754835226537386402?s=19](https://twitter.com/rui_rui_rui0122/status/1754835226537386402?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/211056hrihfd6gq6i9ddf9.jpg" referrerpolicy="no-referrer">
+
+<strong>20240206_211038.jpg</strong> (441.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:10 上传
+
+[https://twitter.com/rui_rui_rui0122/status/1754714306112049242?s=19](https://twitter.com/rui_rui_rui0122/status/1754714306112049242?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/211127c2j4coagnogfyfkf.jpg" referrerpolicy="no-referrer">
+
+<strong>20240206_211104.jpg</strong> (364.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:11 上传
+
+[https://twitter.com/Ap3U0/status/1754825806310969814?s=19](https://twitter.com/Ap3U0/status/1754825806310969814?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/06/211221t5vxyy2k5g6iz55x.gif" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024_0206_211159.gif</strong> (479.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 21:12 上传
+

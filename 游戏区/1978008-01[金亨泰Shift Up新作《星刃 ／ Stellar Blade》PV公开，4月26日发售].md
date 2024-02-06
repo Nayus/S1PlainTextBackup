@@ -413,3 +413,22 @@ The developer stressed that none of these outfits will require additional purcha
 
 不过我反正买日版，只能希望字幕是全区语言了。
 
+
+*****
+
+####  恋妖壶  
+##### 260#       发表于 2024-2-6 18:24
+
+9种配音是哪9种了，9种的话其实中文有戏？
+
+*****
+
+####  hypnossz86  
+##### 261#       发表于 2024-2-6 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63899727&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-2-6 17:58</a>
+整个游戏估计也就那三个人语音会多一些吧，都成为SIE第二方游戏了有必要省那点全球范围发行使用权的费用吗[ ...</blockquote>
+省这点钱这不正符合索尼扣扣缩缩的刻板印象么
+你就说为什么nikke腾讯发行能做到全区全语音吧
+上面那个英文voice actors用的是复数，明显不是个别声优耍大牌
+

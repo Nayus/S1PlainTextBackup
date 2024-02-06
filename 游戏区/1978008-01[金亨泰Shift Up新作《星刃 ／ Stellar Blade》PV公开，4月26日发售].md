@@ -243,3 +243,27 @@ Fami通和IGN日本采访了《星刃》(Stellar Blade)的制作人金亨泰和�
 
 —— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Piano-Forest  
+##### 241#         楼主| 发表于 2024-2-6 14:29
+
+ 本帖最后由 Piano-Forest 于 2024-2-6 14:31 编辑 
+
+[https://www.pushsquare.com/news/ ... -but-korean-will-be](https://www.pushsquare.com/news/2024/02/stellar-blades-japanese-dub-wont-be-available-worldwide-but-korean-will-be)
+
+支持22种语言，9种配音（日语日区独占；英韩日配音有口型同步）
+
+[https://www.pushsquare.com/news/ ... -world-korean-model](https://www.pushsquare.com/news/2024/02/stellar-blades-protagonists-body-is-based-on-this-real-world-korean-model)
+
+主角身材基于韩模Shin Jae-eun，脸由工作室自己创建
+[https://twitter.com/zennyrt/](https://twitter.com/zennyrt/)
+[https://www.instagram.com/love_zennyrt/](https://www.instagram.com/love_zennyrt/)
+
+30+种服装（无需额外购买，全部都包含在游戏中获取）
+
+Kim told us that there’ll be around 30 different costumes to unlock for Eve in Stellar Blade, all of which will be obtainable through gameplay in the game. You’ll earn some by completing quests, while others can be purchased from an in-universe shop using virtual currency. 
+
+The developer stressed that none of these outfits will require additional purchases, and all are included within the game.
+

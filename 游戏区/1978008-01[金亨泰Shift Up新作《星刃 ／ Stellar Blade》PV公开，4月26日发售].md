@@ -346,3 +346,11 @@ The developer stressed that none of these outfits will require additional purcha
 
 这什么市场调研，还能不给中文区听日语的，也没中配啊，合着 nikke 真的是腾讯当幕后英雄？
 
+
+*****
+
+####  astrayl  
+##### 252#       发表于 2024-2-6 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考验lsp购买力的时刻到了
+

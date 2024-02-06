@@ -5092,3 +5092,21 @@ nos ...</blockquote>
 这个是不是不太好打老头呀</blockquote>
 进阶6应该有概率能过，进阶20就很难了
 
+
+*****
+
+####  dclara1  
+##### 457#       发表于 2024-2-6 13:01
+
+这deck加一张skim直接无敌，但没有就难说，就缺抽卡能力了
+
+*****
+
+####  Amelia_1812  
+##### 458#       发表于 2024-2-6 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896985&amp;ptid=1567869" target="_blank">dclara1 发表于 2024-2-6 00:01</a>
+
+这deck加一张skim直接无敌，但没&amp;#x6 ...</blockquote>
+啊，碰到几次都没拿<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

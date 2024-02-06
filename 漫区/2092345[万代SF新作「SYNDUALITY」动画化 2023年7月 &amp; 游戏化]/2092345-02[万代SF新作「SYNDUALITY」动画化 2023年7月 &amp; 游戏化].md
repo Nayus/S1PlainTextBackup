@@ -743,3 +743,40 @@ f396ce0c101a72d46f722969d08983ee.jpg
 彼方是少有的没背景没血统没特殊能力的男主角了吧，操作打不过登场有名有姓的大多数角色，只是个普通人，反 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是他戏份多，说他不是男主都没问题了
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3693#       发表于 2024-2-6 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893508&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-2-6 00:17</a>
+
+下集揭露歌姬过去...
+
+只能说慢走不送，走之前记得把完整版daydream和新歌留下来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">你这机翻好像不太行……
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3694#       发表于 2024-2-6 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893508&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-2-6 00:17</a>
+
+下集揭露歌姬过去...
+
+只能说慢走不送，走之前记得把完整版daydream和新歌留下来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">你这机翻好像不太行……
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3695#       发表于 2024-2-6 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893508&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-2-6 00:17</a>
+
+下集揭露歌姬过去...
+
+只能说慢走不送，走之前记得把完整版daydream和新歌留下来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">你这机翻好像不太行……
+

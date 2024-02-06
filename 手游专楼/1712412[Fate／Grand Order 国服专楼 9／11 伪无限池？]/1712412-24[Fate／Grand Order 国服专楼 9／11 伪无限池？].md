@@ -441,3 +441,11 @@ Up四星掉率提升了，歪的也少了
 
 就是不知道后面有没有哪个活动的主刷本会掉这个
 
+
+*****
+
+####  当光停止  
+##### 46113#       发表于 2024-2-6 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">rnmd五单一个库库尔坎，这井还不能井二宝。
+

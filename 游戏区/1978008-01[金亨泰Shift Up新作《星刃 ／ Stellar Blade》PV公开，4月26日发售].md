@@ -283,3 +283,11 @@ The developer stressed that none of these outfits will require additional purcha
 
 这是嫌弃宣传好了，要给自己上难度啊，锁语音精神病吧
 
+
+*****
+
+####  TheOccuria  
+##### 244#       发表于 2024-2-6 15:18
+
+怎么2024年还有日语独占的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

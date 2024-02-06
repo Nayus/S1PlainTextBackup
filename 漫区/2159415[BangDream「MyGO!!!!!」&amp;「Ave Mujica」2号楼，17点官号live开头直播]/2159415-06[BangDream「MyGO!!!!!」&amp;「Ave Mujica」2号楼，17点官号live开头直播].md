@@ -21380,3 +21380,351 @@ syl，独角兽喜欢灯希和海希应该不是假的，但是她喜欢迫害�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 11801#       发表于 2024-2-6 00:31
+
+体感大部分同人反而是爱音被立希军训以后被祥子温柔安慰，虽然感觉这个目前看来可能比祥子军训爱音还不合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 11802#       发表于 2024-2-6 00:38
+
+爱音祥子的羽丘学生会故事我先期待一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  skives  
+##### 11803#       发表于 2024-2-6 00:39
+
+爱音和祥子还是有同一个学校，钢琴室初遇的缘分的
+两个人身上的对称性也很有想象空间
+不过很多爱祥文确实太模版化了 连情节都差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 11804#       发表于 2024-2-6 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887662&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-5 14:50</a>
+難用那不是大家都難用嗎，來這裡是因為這裡有很多ave粉想一起聊天而已
+
+重點是人，而不是地方 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚睡醒，我随便说说的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 11805#       发表于 2024-2-6 03:27
+
+爱祥我记得基本都是BE啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Arrogate  
+##### 11806#       发表于 2024-2-6 07:09
+
+疑似有点二创入脑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  66367749  
+##### 11807#       发表于 2024-2-6 07:59
+
+访谈是不有说过爱音怕c团真复辟了就没自己位置了，所以对𬡘子是避开还是怎么的？
+
+*****
+
+####  屑猫猫  
+##### 11808#       发表于 2024-2-6 08:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">祥子只需要意识到完全依赖自己是不太行的就行，具体还是自救，过程中初睦提供些帮助也不伤及她的自尊心即可
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  凡人  
+##### 11809#       发表于 2024-2-6 08:17
+
+参考以前邦邦的手游处理，只要手游能活到鸡实装，以及到时候活动还能有剧情，爱祥混熟是必然的，不用扯什么鸡狗姐妹团和贷款第二季，光靠目前的纠葛和同校就够了
+
+*****
+
+####  氷川日菜  
+##### 11810#       发表于 2024-2-6 08:18
+
+祥子和六花同样是特招生进来，同样家境不好，六花马上还要当学生会长，俩人走的还都是职业乐队路线，不如期待一下六祥关系性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11811#       发表于 2024-2-6 08:18
+
+祥子和六花同样是特招生进来，同样家境不好，六花马上还要当学生会长，俩人走的还都是职业乐队路线，不如期待一下六祥关系性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11812#       发表于 2024-2-6 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894380&amp;ptid=2159415" target="_blank">66367749 发表于 2024-2-6 07:59</a>
+
+访谈是不有说过爱音怕c团真复辟了就没自己位置了，所以对𬡘子是避开还是怎么的？ ...</blockquote>
+是觉得把祥子一起拉来会影响自己和灯组新团所以不找祥子
+
+*****
+
+####  凡人  
+##### 11813#       发表于 2024-2-6 08:23
+
+说来感觉ras二次元人气低也有wsd把五人都安排到外校的原因，都没法搞校友圈，和其他角色联系的难度凭空提了一截，这么看若麦是成年人的概率又低了
+
+*****
+
+####  氷川日菜  
+##### 11814#       发表于 2024-2-6 08:32
+
+tomorin得到了前前代学生会长的孤本和传承，不知道有没有机会登上羽丘权力之巅<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11815#       发表于 2024-2-6 08:42
+
+按照目前规律，羽丘学生会长都是从学生会后辈里面提拔，花女学生会长都是从没进过学生会的一般学生里面指名，所以羽丘那边看明年谁进学生会就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11816#       发表于 2024-2-6 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894439&amp;ptid=2159415" target="_blank">凡人 发表于 2024-2-6 08:17</a>
+
+参考以前邦邦的手游处理，只要手游能活到鸡实装，以及到时候活动还能有剧情，爱祥混熟是必然的，不用扯什么 ...</blockquote>
+hgm和ksm有同校+同班（前）+幼驯染三重buff加身也没混得多熟啊。还是看官方打不打算推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nh_zzz  
+##### 11817#       发表于 2024-2-6 09:06
+
+x上的鸡投票，睦荣获小黄瓜最大的称号，目前还有祥麽的祥子胸肌大小投票
+目前是d领先
+
+*****
+
+####  NODY  
+##### 11818#       发表于 2024-2-6 09:15
+
+感觉邦邦（或者说武士道）推cp基本就看官方喜不喜欢推，以及本土那边热度高不高
+
+官方喜欢的话就算冷也会经常发点糖端水，然后民间热度高的话官方也会给加戏，不过鸡狗cp热度有一些中日差距很大（比如爱祥爱睦算国内特供），不知道官方是会按本土情况来还是会受国内影响<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 11819#       发表于 2024-2-6 09:26
+
+ 本帖最后由 月珊瑚与紫鸢尾 于 2024-2-6 09:33 编辑 
+
+当初看第一集还以为会有白二展开，祥子来教爱音弹吉他，拉起灯组建天文部乐队三人行什么的<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 11820#       发表于 2024-2-6 09:36
+
+祥子攻击性没那么强的，只有想要深入她的人她才会展现刺猬的那一面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 11821#       发表于 2024-2-6 09:42
+
+第二季主🐔团，爱音又不是老C团人，她第二季怕不是要变成路人了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  swessia  
+##### 11822#       发表于 2024-2-6 09:46
+
+ 本帖最后由 swessia 于 2024-2-6 11:25 编辑 
+
+电脑端看起来正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+md正常个屁，新回复看不到<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能倒序了
+
+*****
+
+####  笋干爆炸碱  
+##### 11823#       发表于 2024-2-6 10:48
+
+这楼现在变得好神奇<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+指显示机制
+
+*****
+
+####  基神的强袭自由  
+##### 11824#       发表于 2024-2-6 11:01
+
+S1fun用不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 11825#       发表于 2024-2-6 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894086&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-2-6 03:23</a>
+ 刚睡醒，我随便说说的  —— 来自 S1Fun</blockquote>
+我的意思是我得找好多个APP才能顺利聊天，iOS上S1mufu可以正常看到楼层<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 11826#       发表于 2024-2-6 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894248&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-2-6 07:09</a>
+ 疑似有点二创入脑了    -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+都是以前上班时候看的，现在休息了看都看不过来，还要打魔兽世界和帝国时代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 11827#       发表于 2024-2-6 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894248&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-02-06 07:09:47</a>
+疑似有点二创入脑了</blockquote>都是以前上班时候看的，现在休息了看都看不过来，还要打魔兽世界和帝国时代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+*****
+
+####  基神的强袭自由  
+##### 11828#       发表于 2024-2-6 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894248&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-2-6 07:09</a>
+ 疑似有点二创入脑了    -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+都是以前上班时候看的，现在休息了看都看不过来，还要打魔兽世界和帝国时代
+
+*****
+
+####  基神的强袭自由  
+##### 11829#       发表于 2024-2-6 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894248&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-02-06 07:09:47</a>
+疑似有点二创入脑了</blockquote>都是以前上班时候看的，现在休息了看都看不过来，还要打魔兽世界和帝国时代
+
+ -- 傲娇地来自 Stage1未知客户端
+
+*****
+
+####  基神的强袭自由  
+##### 11830#       发表于 2024-2-6 11:11
+
+都是以前上班时候看的，现在休息了看都看不过来，还要打魔兽世界和帝国时代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzm96816  
+##### 11831#       发表于 2024-2-6 11:17
+
+怎么说呢，mygo在播的时候什么假药，什么可能得互动都被大家提出来，各种cp乱炖都可以。当时讨我还呼吁把ooc的假药都排除出讨论，怀孕论、姐妹论、二周目等各种奇怪的玩意太影响讨论了。不过那时还是野蛮生长而积极的环境。
+
+至于现在很多人开始有明显的倾向了，动画党、纯路人和各个团粉乃至个人粉视角都不一样。明年可能有真正的火药味了。
+
+*****
+
+####  相坂君  
+##### 11832#       发表于 2024-2-6 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">手机看不了新楼层，倒是有回复顶上去……泥潭这情况不会要持续很久吧？
+
+*****
+
+####  NODY  
+##### 11833#       发表于 2024-2-6 11:50
+
+手机app我不清楚，但是网页切电脑版能看
+
+*****
+
+####  PDQ4  
+##### 11834#       发表于 2024-2-6 11:54
+
+漏油发送没反应记得刷新一下，有可能已经发出去了不自动跳转而已，这算不算老年论坛老年病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 11835#       发表于 2024-2-6 12:19
+
+你是？
+<img src="https://p.sda1.dev/15/cd94afde2b9685a71fdaad4a37b4147d/IMG_20240206_110550.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 11836#       发表于 2024-2-6 12:27
+
+电脑倒序收藏，退出去从移动端进来的确是倒序
+
+*****
+
+####  爱丁堡official  
+##### 11837#       发表于 2024-2-6 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896646&amp;ptid=2159415" target="_blank">氷川日菜 发表于 2024-02-06 12:19:38</a>
+你是？</blockquote>杰克爱（幻视）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 11838#       发表于 2024-2-6 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是太久不播导致的，空白期这么长期间要么淡坑要么留下来不断巩固自己的想法，空白期越长之后的讨论越容易吵起来
+
+*****
+
+####  基神的强袭自由  
+##### 11839#       发表于 2024-2-6 12:39
+
+ 本帖最后由 基神的强袭自由 于 2024-2-6 14:46 编辑 
+
+<img src="https://s2.loli.net/2024/02/06/X5qUoDsIMQmYPy7.png" referrerpolicy="no-referrer">
+
+前几天突发恶疾把这里面的群加了个7788<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/06/144643vydkndff98n8idd8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 14:46 上传
+
+*****
+
+####  相坂君  
+##### 11840#       发表于 2024-2-6 12:43
+
+母鸡卡你不播害了多少人啊！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

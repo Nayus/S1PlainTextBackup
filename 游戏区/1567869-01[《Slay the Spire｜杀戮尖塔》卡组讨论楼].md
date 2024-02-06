@@ -5154,3 +5154,14 @@ nos ...</blockquote>
 
 所以我现在不太敢拿滤抽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dclara1  
+##### 463#       发表于 2024-2-6 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63897465&amp;ptid=1567869" target="_blank">Amelia_1812 发表于 2024-2-6 14:02</a>
+
+最早开始玩这游戏的时候一直玩silent经常拿一堆滤抽，然后发现打起来又累又没伤害还会被有些怪物制 ...</blockquote>
+ 这deck加张skim，多重+能量球=大概率首回合999能量999冰球999黑球随便炸了
+

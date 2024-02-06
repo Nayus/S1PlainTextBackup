@@ -291,3 +291,13 @@ The developer stressed that none of these outfits will require additional purcha
 
 怎么2024年还有日语独占的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hanabi丶  
+##### 245#       发表于 2024-2-6 15:30
+
+啥意思，是ps游戏光盘要买日版才有日语语音，还是说要用日服账号玩才有日语语音?<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

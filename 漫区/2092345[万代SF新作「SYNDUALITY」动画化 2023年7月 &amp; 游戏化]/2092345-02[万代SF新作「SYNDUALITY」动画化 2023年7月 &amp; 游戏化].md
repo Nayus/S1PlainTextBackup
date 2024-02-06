@@ -830,3 +830,21 @@ f396ce0c101a72d46f722969d08983ee.jpg
 彼方是少有的没背景没血统没特殊能力的男主角了吧，操作打不过登场有名有姓的大多数角色，只是个普通人，反 ...</blockquote>
 相叶昂治:彼方还能上机体，我作为SFor萝卜片的主角经常只能靠嘴炮更憋屈jpg
 
+
+*****
+
+####  三合一出现  
+##### 3701#       发表于 2024-2-6 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">就看结局可不可以喜欢大家了。
+
+*****
+
+####  aptx8285144  
+##### 3702#       发表于 2024-2-6 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893949&amp;ptid=2092345" target="_blank">cauchua2 发表于 2024-2-6 01:35</a>
+
+截止 15 话 男主弱很正常吧，本人的技术是真不行，机体也不是啥特机。超算虽然不菜决斗的黑假面超算和她也 ...</blockquote>
+严格来说白诺瓦受制于负载过重（初见外传主角们时检查后的评价）是不如修涅的实力，米斯缇到还能和修涅差不多水平
+

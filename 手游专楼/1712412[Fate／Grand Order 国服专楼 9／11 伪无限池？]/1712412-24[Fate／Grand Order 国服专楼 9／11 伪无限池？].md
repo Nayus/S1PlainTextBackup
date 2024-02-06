@@ -449,3 +449,11 @@ Up四星掉率提升了，歪的也少了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">rnmd五单一个库库尔坎，这井还不能井二宝。
 
+
+*****
+
+####  qixinno2  
+##### 46114#       发表于 2024-2-6 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">氪了一单 连个四星都没出 我是傻逼
+

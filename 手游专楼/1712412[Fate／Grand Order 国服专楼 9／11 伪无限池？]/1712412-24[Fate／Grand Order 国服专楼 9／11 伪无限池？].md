@@ -514,3 +514,11 @@ Up四星掉率提升了，歪的也少了
 申请了，但窝小刀没够，还得几天才能挂出来</blockquote>
 OK，加到了
 
+
+*****
+
+####  Ousia  
+##### 46120#       发表于 2024-2-6 23:39
+
+用双烟前是没觉得比公主或冲浪队什么的更有优势，用之后发现关键在带狗上。相当于少上个打手多上个练羁绊的角色，这个意义还是很重大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

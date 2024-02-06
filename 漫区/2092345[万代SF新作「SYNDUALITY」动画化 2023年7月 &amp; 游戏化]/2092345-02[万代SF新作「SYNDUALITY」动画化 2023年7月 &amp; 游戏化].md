@@ -848,3 +848,14 @@ f396ce0c101a72d46f722969d08983ee.jpg
 截止 15 话 男主弱很正常吧，本人的技术是真不行，机体也不是啥特机。超算虽然不菜决斗的黑假面超算和她也 ...</blockquote>
 严格来说白诺瓦受制于负载过重（初见外传主角们时检查后的评价）是不如修涅的实力，米斯缇到还能和修涅差不多水平
 
+
+*****
+
+####  aptx8285144  
+##### 3703#       发表于 2024-2-6 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63898266&amp;ptid=2092345" target="_blank">三合一出现 发表于 2024-2-6 15:28</a>
+
+就看结局可不可以喜欢大家了。</blockquote>
+如果“大家”还齐整的话（
+

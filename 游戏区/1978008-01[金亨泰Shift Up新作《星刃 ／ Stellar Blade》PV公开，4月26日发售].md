@@ -354,3 +354,20 @@ The developer stressed that none of these outfits will require additional purcha
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考验lsp购买力的时刻到了
 
+
+*****
+
+####  医生狼多  
+##### 253#       发表于 2024-2-6 17:14
+
+别告诉是我日版独占日语然后没中文的天才组合
+
+*****
+
+####  hypnossz86  
+##### 254#       发表于 2024-2-6 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63899111&amp;ptid=1978008" target="_blank">泉美 发表于 2024-2-6 16:57</a>
+很好奇是哪位声优这么大牌，以后可以绕个道</blockquote>
+说白了没买世界范围内的发行权，估计是想省点小钱钱
+

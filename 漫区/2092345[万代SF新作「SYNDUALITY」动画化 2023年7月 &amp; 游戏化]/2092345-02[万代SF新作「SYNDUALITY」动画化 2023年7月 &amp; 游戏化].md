@@ -880,3 +880,60 @@ f396ce0c101a72d46f722969d08983ee.jpg
 下一话，kanata的黑化</blockquote>
 如果按照访谈说法，彼方不是那种性格特别消沉的类型，所以黑化也难？
 
+
+*****
+
+####  aptx8285144  
+##### 3706#       发表于 2024-2-6 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893050&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-2-5 23:28</a>
+
+该奶游戏男主是不是要来捞人了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+
+阿尔巴和艾达这对还挺好磕的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3707#       发表于 2024-2-6 19:56
+
+阿尔巴和艾达这对还挺好磕的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，这台词互补笑死我了
+
+QQ图片20240206195351.png
+(81.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202402/06/195505hm2foy162z1dfan1.png" referrerpolicy="no-referrer">
+
+QQ图片20240206195333.png
+(47.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202402/06/195456ji9c3ccgmi5ggd7g.png" referrerpolicy="no-referrer">
+
+QQ图片20240206195237.png
+(36.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202402/06/195446nu1eki11jxlg4rqr.png" referrerpolicy="no-referrer">
+
+QQ图片20240206194841.jpg
+(32.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202402/06/195432iz9qyjv3rj97z29t.jpg" referrerpolicy="no-referrer">
+

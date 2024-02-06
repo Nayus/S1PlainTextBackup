@@ -788,3 +788,16 @@ f396ce0c101a72d46f722969d08983ee.jpg
 
 男主太惨了吧，身边的人几乎全是内鬼，该让粉毛青梅赢了吧，该到青梅发力了吧，哦青梅不在啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3697#       发表于 2024-2-6 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63897035&amp;ptid=2092345" target="_blank">AAAzzz 发表于 2024-2-6 13:07</a>
+
+男主太惨了吧，身边的人几乎全是内鬼，该让粉毛青梅赢了吧，该到青梅发力了吧，哦青梅不在啊 ...</blockquote>
+艾莉也没比彼方强太多，去了也是拖后腿的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在这剧情不上不下的只剩下一个破局点，就怕是资方入场为了给游戏的男主加戏才改成这样的剧本
+

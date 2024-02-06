@@ -487,3 +487,11 @@ The developer stressed that none of these outfits will require additional purcha
 
   第一次听棒语游戏是2000年初PC上的格兰蒂亚2，不知为啥没有日语只有棒语配音
 
+
+*****
+
+####  rainsheep  
+##### 268#       发表于 2024-2-6 19:53
+
+语音独占感觉对目标用户没个清晰的画像，韩配完全听不懂，英配配这画风听着又有些违和
+

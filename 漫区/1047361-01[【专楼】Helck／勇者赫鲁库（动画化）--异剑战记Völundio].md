@@ -14,3 +14,13 @@
 
 终于有点消息了，不过时间还没确定的样子
 
+
+*****
+
+####  starring  
+##### 1158#       发表于 2024-2-6 17:42
+
+终于要复刊了，第一章结尾看得心痛
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

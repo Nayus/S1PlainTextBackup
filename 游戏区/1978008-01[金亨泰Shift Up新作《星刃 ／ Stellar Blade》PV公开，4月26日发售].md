@@ -371,3 +371,28 @@ The developer stressed that none of these outfits will require additional purcha
 很好奇是哪位声优这么大牌，以后可以绕个道</blockquote>
 说白了没买世界范围内的发行权，估计是想省点小钱钱
 
+
+*****
+
+####  寂长无星夜  
+##### 255#       发表于 2024-2-6 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">无所谓吧，为什么韩国游戏你们一定要听日配
+
+*****
+
+####  wiig  
+##### 256#       发表于 2024-2-6 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">我选择信赖nikke组的韩配声优
+
+*****
+
+####  PYY  
+##### 257#       发表于 2024-2-6 17:42
+
+第一次对韩配游戏有了兴趣，
+是指对游戏的韩语配音。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

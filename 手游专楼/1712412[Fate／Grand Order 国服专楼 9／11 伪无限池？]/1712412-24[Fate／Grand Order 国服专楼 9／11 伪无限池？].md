@@ -503,3 +503,14 @@ Up四星掉率提升了，歪的也少了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63898188&amp;ptid=1712412" target="_blank">布伦史塔德 发表于 2024-2-6 15:21</a></blockquote>
 独树一帜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  史艳文  
+##### 46119#       发表于 2024-2-6 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63883747&amp;ptid=1712412" target="_blank">Ousia 发表于 2024-2-4 22:58</a>
+
+申请了，但窝小刀没够，还得几天才能挂出来</blockquote>
+OK，加到了
+

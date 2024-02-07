@@ -980,3 +980,14 @@ QQ图片20240206194841.jpg
 本編ではあんな事になってますが（笑）新OP原画の世良コータさんからいただいた笑顔のシエルです。
 <img src="https://p.sda1.dev/15/1c021b4578b1914cb1ad7b75ac4036eb/20240207_225521.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3712#       发表于 2024-2-7 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63910061&amp;ptid=2092345" target="_blank">星降る森 发表于 2024-2-7 21:37</a>
+
+米斯提看起来也不能变成小绿，不知道这要怎么翻盘了</blockquote>
+面具男动摇甚至反水的可能性其实都存在，加上大哥大概率在玩无间，翻盘的希望很大
+

@@ -22471,3 +22471,19 @@ live会露脸吗，不会也带这个上场吧<img src="https://static.saraba1st
 
 应该不会戴这个上场，至少主唱收音很困难啊，倒是可以明年mujica真人暴露后把面具退役给她们
 
+
+*****
+
+####  江口夕  
+##### 11920#       发表于 2024-2-7 23:06
+
+ 本帖最后由 江口夕 于 2024-2-7 23:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可別美化當初了，當時你說個soyo面具人，一堆人跟你屁股後面噴你。所謂的媽媽黨，笑死了。
+
+就說祥睦素關係，樓里這麼多祥廚當時連個屁都不敢放，這麼明顯的台面上關係還放著所謂素睦黨在那ooc。
+
+在播的時候某直播間放出這麼多不知名生物（云素世廚）都因為主播後來改當祥廚不了了之了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

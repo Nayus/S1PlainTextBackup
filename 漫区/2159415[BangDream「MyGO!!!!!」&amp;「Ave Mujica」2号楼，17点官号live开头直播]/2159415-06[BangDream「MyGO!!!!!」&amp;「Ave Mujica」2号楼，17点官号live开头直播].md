@@ -22049,3 +22049,28 @@ test
 
 呃，现在外面比里面楼层数多了，似乎有可能正常了?
 
+
+*****
+
+####  笋干爆炸碱  
+##### 11876#       发表于 2024-2-7 11:00
+
+又成功复权了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  圆  
+##### 11877#       发表于 2024-2-7 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63904666&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-7 10:43</a>
+
+呃，现在外面比里面楼层数多了，似乎有可能正常了?我这楼外面和倒序879，里面和正序875 ...</blockquote>
+测试楼层数
+
+*****
+
+####  jerryoq1  
+##### 11878#       发表于 2024-2-7 11:01
+
+修好了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

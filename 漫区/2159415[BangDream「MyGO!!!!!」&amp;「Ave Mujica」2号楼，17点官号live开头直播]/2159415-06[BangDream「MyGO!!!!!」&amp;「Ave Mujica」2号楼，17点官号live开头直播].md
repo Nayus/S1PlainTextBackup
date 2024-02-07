@@ -21728,3 +21728,292 @@ S1fun用不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/14
 
 母鸡卡你不播害了多少人啊！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿萨德飞过去  
+##### 11841#       发表于 2024-2-6 12:50
+
+第一集的相遇确实有点典<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+很多二创都是无限放大角色的一个片面，极端化来找乐子罢了
+
+*****
+
+####  acgreen  
+##### 11842#       发表于 2024-2-6 13:36
+
+没觉得在播的时候讨论氛围有多好，烂炒力度确实大就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 11843#       发表于 2024-2-6 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说的也是，播的时候祥推经常没有呼吸权
+
+*****
+
+####  长空雁叫霜晨月  
+##### 11844#       发表于 2024-2-6 14:44
+
+现在这楼是啥情况
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  圆  
+##### 11845#       发表于 2024-2-6 15:13
+
+[@相坂君](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=440787) 顶楼有手机指南
+
+*****
+
+####  Kfly  
+##### 11846#       发表于 2024-2-6 15:51
+
+我是觉得再怎么说也比现在为一些莫名其妙的话题吵架强，还是不在去年十月/今年一月播导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11847#       发表于 2024-2-6 15:57
+
+确实，要是早点播就能有官方解读把一些弱智假药当鸡毛令箭的人干闭嘴了，纯动画党和路人看完也散了。可惜wsd菜比永远只能推一个团，鸡团广告要拖到明年。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  cindy355  
+##### 11848#       发表于 2024-2-6 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火药味，只能说我尽量只针对那些满脑子粉毛救世主想看大爱传的个别人。
+
+*****
+
+####  紫吹兰  
+##### 11849#         楼主| 发表于 2024-2-6 16:11
+
+[@长空雁叫霜晨月](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=521358) 
+
+参考顶楼，电脑版倒序能看最新回帖，倒序后浏览器收藏首页可以从收藏夹进可以保留倒序，手机需要从浏览器切换到电脑版选择倒序，电脑版倒序状态下浏览器收藏再进应该也能保留倒序
+
+*****
+
+####  6030sylar  
+##### 11850#       发表于 2024-2-6 16:24
+
+<img src="https://img.saraba1st.com/forum/202402/06/162441frm5chhcgzzshwpw.jpg" referrerpolicy="no-referrer">
+
+<strong>e4dc2c19367adab483d7147acdd4b31c8601e4cf.jpg</strong> (44.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 16:24 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太喜庆了
+
+*****
+
+####  6030sylar  
+##### 11851#       发表于 2024-2-6 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896646&amp;ptid=2159415" target="_blank">氷川日菜 发表于 2024-2-6 12:19</a>
+
+你是？</blockquote>
+<img src="http://regengbaike.com/uploads/20230618/6ca09a9b30704b6607959c9f74e07e72.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11852#       发表于 2024-2-6 18:56
+
+这破场地卖这么贵，感觉你邦这几个月不少东西都很割韭菜是我的错觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/06/185631w5rfcig5a1mrenh5.jpg" referrerpolicy="no-referrer">
+
+<strong>igQ2t-h1xiZgT3cSpf-l2.jpg</strong> (92.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 18:56 上传
+
+*****
+
+####  PDQ4  
+##### 11853#       发表于 2024-2-6 20:43
+
+幽默海日，虽然该抢还是抢，这个定价随缘了就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11854#         楼主| 发表于 2024-2-6 21:51
+
+我看了下几个今天（2月6号）发的帖子，基本可以确定引用的帖子就不会被外面的计数器计算到，这至少应该是2号楼这种楼层错位的主要原因，至于3号4号和百楼那种普通账号怎么发帖都读取不到的就不知道什么情况了。
+
+不过这修了这么多天了还没修好今天新发的帖子还是一样的毛病，S1这维护能力也是够呛，这周要过年了估计也就只能这样了。
+
+*****
+
+####  御幸一也  
+##### 11855#       发表于 2024-2-6 21:59
+
+算了，倒序加減看一下吧，反正現在也沒什麼情報<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  长空雁叫霜晨月  
+##### 11856#       发表于 2024-2-6 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63898678&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-02-06 16:11:12</a>
+参考顶楼，电脑版倒序能看最新回帖，倒序后浏览器收藏首页可以从收藏夹进可以保留倒序，手机需要从浏览器 ...</blockquote>好的，谢谢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NODY  
+##### 11857#       发表于 2024-2-6 23:03
+
+信泽居然给管人邦画了生日贺图，这是不是反向说明管人确实不会进动画或者手游了，不然应该会和鸡狗那样进了手游才画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 11858#         楼主| 发表于 2024-2-6 23:07
+
+[@NODY](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=276670) 
+
+难说，RAS一开始可能也没准备进手游，管人团只能说目前不准备进手游吧，未来谁知道
+
+*****
+
+####  ddy2811  
+##### 11859#       发表于 2024-2-6 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63898551&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-6 15:57</a>
+
+确实，要是早点播就能有官方解读把一些弱智假药当鸡毛令箭的人干闭嘴了，纯动画党和路人看完也散了。可惜ws ...</blockquote>
+但说不定官方会选弹幕最多的打法，这也是无法预知的命运舞台的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 11860#       发表于 2024-2-6 23:44
+
+要是鸡为了热度搞纯噱头剧本那直接开润，水魔已经受过伤了，独角兽如果要学习大河内恕我不奉陪。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11861#       发表于 2024-2-7 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63902577&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-6 23:44</a>
+
+要是鸡为了热度搞纯噱头剧本那直接开润，水魔已经受过伤了，独角兽如果要学习大河内恕我不奉陪。 ...</blockquote>
+MyGO里面剧情和人物的走向还是挺接近一些很夸张的假药的，不过收得还是很不错的
+
+*****
+
+####  likeny  
+##### 11862#       发表于 2024-2-7 00:07
+
+鸡1st之后有点纠结，想问下大家的想法。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+我们先假设1st的整个人偶剧是对mujica五人的隐喻。
+
+在现实中，人偶剧的作者是绫奈、小川瞳（先暂定为这两人），人偶剧承担着对应角色的任务，剧本就不可避免地受到这一任务的影响。
+
+我们在用人偶剧去猜测角色的时候，是用Mortis去猜睦，用Doloris去猜初华（当然人偶剧中的角色并不是完全对应睦她们，角色和演绎者有差异）。
+
+祥子既是动画中人偶剧的作者，同时也是人偶剧中角色演绎者之一，那么是剧中的Oblivionis更能反映祥子，还是整个剧本更能反映到祥子身上？我们应该用Oblivionis还是人偶剧的作者这一身份去猜祥子？
+
+还有一个问题就是通过作品去猜测作者本身本来就挺不靠谱的，作品和作者差异很大的例子不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 11863#       发表于 2024-2-7 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63902486&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-2-6 23:32</a>
+
+但说不定官方会选弹幕最多的打法，这也是无法预知的命运舞台的一部分 ...</blockquote>
+13话就已经是弹幕最多的打法啦  延期一年一季更是添了几桶油  国内还有特供的迷惑合号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 11864#       发表于 2024-2-7 00:49
+
+目前来看小剧场更多的是祥子塑造的世界观，至于会不会回旋镖到🐔团其他人只能等动画出来才知道<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11865#       发表于 2024-2-7 01:12
+
+按设定来看应该是祥子用自己来创作的世界观吧，至于能不能对应上其他成员、是不是祥子把自己分开的产物，那就等第二季了
+
+*****
+
+####  NODY  
+##### 11866#       发表于 2024-2-7 01:18
+
+小剧场目前看来是对应两首新歌的，所以以后可能是每次出新歌都会有新的小剧场，不会百分百对应剧情
+
+不然“世界毁灭但我们自由”的剧情总不能是暗示经纪公司被mujica背刺倒闭然后她们可以自由玩乐队吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  圆  
+##### 11867#       发表于 2024-2-7 04:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63889466&amp;ptid=2159415" target="_blank">圆 发表于 2024-2-5 17:34</a>
+
+翻页</blockquote>
+测试
+
+*****
+
+####  紫吹兰  
+##### 11868#         楼主| 发表于 2024-2-7 04:19
+
+测试了一下，4号楼普通账户自己回复自己可以被外面读取，也可以翻页，类似百楼的天选，正常回复不行，2号楼自己回复自己翻不了页，毕竟我自己都翻不了。
+
+似乎4号楼这种状态比2号楼要方便一些？当然，3号楼和4号楼是一样的情况，现在4号楼本质上没有有用内容，要回3号楼也行。
+
+*****
+
+####  凡人  
+##### 11869#       发表于 2024-2-7 08:19
+
+我建议用人造天选开始用三号楼吧
+
+*****
+
+####  实津二三  
+##### 11870#       发表于 2024-2-7 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我流爱祥的前提是灯灯在爱音转学过来之前已经转学离开这个伤心地了。
+
+*****
+
+####  氷川日菜  
+##### 11871#       发表于 2024-2-7 09:11
+
+外面正好两栋楼不如一楼鸡楼一楼狗楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

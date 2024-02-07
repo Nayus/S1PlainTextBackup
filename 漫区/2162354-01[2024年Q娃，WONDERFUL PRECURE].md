@@ -2787,3 +2787,186 @@ fy
 星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
 热带挺不错的，天空基本上只有开头结尾能看
 
+
+*****
+
+####  wou  
+##### 761#       发表于 2024-2-6 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890579&amp;ptid=2162354" target="_blank">zzy516232108 发表于 2024-2-5 19:23</a>
+星闪之后就没再看了，这几年有什么推荐好看的嘛</blockquote>
+热带挺不错的，天空基本上只有开头结尾能看
+
+*****
+
+####  pokemon最爱  
+##### 762#       发表于 2024-2-6 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63899675&amp;ptid=2162354" target="_blank">宅音 发表于 2024-2-6 17:53</a>
+
+这吞页也太严重了，换楼能解吗</blockquote>
+泥潭的问题，换楼大概没用<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 763#       发表于 2024-2-6 18:59
+
+这楼又卡了是吧，外面看一直有新回复，泥潭还能不能好的了了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 764#       发表于 2024-2-6 19:17
+
+我看有的楼正常了，怎么这楼还在卡啊，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  按时间灵活  
+##### 765#       发表于 2024-2-6 19:57
+
+fy
+
+*****
+
+####  粉儿alice  
+##### 766#       发表于 2024-2-6 21:13
+
+上班年前太忙了 泥潭又抽风
+第一集和天空比可以说一个天一个地的级别
+假如今年就这个状态平平淡淡过去就可以了 毕竟已经两年都翻车了 粉丝要求已经很低很低了
+
+然而宠物现在有两个爆雷点 
+第一是隐藏追加是谁
+第二感情戏问题
+
+*****
+
+####  cenhr  
+##### 767#       发表于 2024-2-6 22:21
+
+对CP假药每啥兴趣，但根据设定，狗狗是10岁了，如果最后一集是死别就变神作了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犬飼いろは  
+##### 768#       发表于 2024-2-6 22:36
+
+ 本帖最后由 犬飼いろは 于 2024-2-6 22:41 编辑 
+
+[https://weibo.com/3888885364/NFl9Diuwk](https://weibo.com/3888885364/NFl9Diuwk) <blockquote>旺Q预告
+
+02（成田良美/佐佐木宪世/飞田刚）变回原样的咩咩管家告诉小麦和彩羽，他们住在被称为“动物的乐园”，名叫微笑花园的地方。有一天花园突然被黑暗包围，他们也变成了噶路噶路。咩咩希望小麦能救出其他的微笑动物们，但小麦表示必须和彩羽一起否则不干。后来彩羽还在烦恼回家以后怎么和父母解释，没想到一进家门小麦就变回了小狗
+
+03（成田良美/顶真司/岩井隆央）咩咩带着小麦和彩羽一起来到微笑花园。看到漂亮的景色两人很是感动，但仔细一看到处都是倒下的花草树木，塔上的宝石似乎也不见了，连微笑动物们和花园的创造主妮可大人也去向不明。咩咩再次拜托两人救救动物们，但彩羽也不知道从何下手，想找小悟小哥商量一下，但又得对花园和Q娃的事情保密。后来小悟送两人回家，归来途中在森林里发现了黑色的蛋。
+
+04（成田良美/今千秋/野本雄也）今天是Pretty Holic开店的日子，店主正是真由的妈妈·堇女士。小麦彩羽本打算和小悟一起去调查噶路噶路，又收到了咩咩的联络，再次前往花园。多亏了上次救下来的兔子的归来，花园的一部分已经修好了。只要把所有动物找回，就能完全修复花园，妮可大人应该也能回来。然而要参加开店仪式，话说了一半就回来了。在店里堇女士请他们体验化妆，而在店外，真由养的猫小雪也向小麦搭话。
+
+05 相连的牵绊 友情指挥棒</blockquote>
+
+*****
+
+####  modedd  
+##### 769#       发表于 2024-2-6 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63901265&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-02-06 21:13:25</a>
+上班年前太忙了 泥潭又抽风
+第一集和天空比可以说一个天一个地的级别
+假如今年就这个状态平平淡淡过去就可 ...</blockquote>q娃现在的bg戏真是想相信东大妈都找不到说服自己的理由呀，上一部bg正作食q和最近的希望之力都挺一言难尽的，如果兔子是追加男q两个高度参与剧情的适龄男角色很难不担心会不会有贵乱桥段<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  pokemon最爱  
+##### 770#       发表于 2024-2-6 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63901910&amp;ptid=2162354" target="_blank">犬飼いろは 发表于 2024-2-6 22:36</a>
+
+https://weibo.com/3888885364/NFl9Diuwk</blockquote>
+啊？Friendy第二集就入队结果你告诉我净化武器第5集才入手？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 771#       发表于 2024-2-6 23:54
+
+悟君第三话就入团了啊？进度比猫组还快
+
+*****
+
+####  不能摸的屁屁  
+##### 772#       发表于 2024-2-7 00:30
+
+以后会把小麦和小雪交给眼镜男来抱吗？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  按时间灵活  
+##### 773#       发表于 2024-2-7 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63876503&amp;ptid=2162354" target="_blank">按时间灵活 发表于 2024-2-4 10:18</a></blockquote>
+翻页测试
+
+*****
+
+####  按时间灵活  
+##### 774#       发表于 2024-2-7 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63876503&amp;ptid=2162354" target="_blank">按时间灵活 发表于 2024-2-4 10:18</a></blockquote>
+翻页测试
+
+*****
+
+####  帝下室の年糕  
+##### 775#       发表于 2024-2-7 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890694&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-5 19:33</a>
+
+星闪之后只有热带比较好看，但也是弱主线的优秀喜剧，看你接受能力吧
+
+如果你喜欢星闪也可以看天Q，这俩各 ...</blockquote>
+听说回复自己能翻页，测试
+
+*****
+
+####  按时间灵活  
+##### 776#       发表于 2024-2-7 00:37
+
+ 本帖最后由 按时间灵活 于 2024-2-7 00:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63876503&amp;ptid=2162354" target="_blank">按时间灵活 发表于 2024-2-4 10:18</a></blockquote>
+只翻成功一次的样子（）
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  梦诗歌雪  
+##### 777#       发表于 2024-2-7 00:50
+
+<blockquote>collincollin 发表于 2024-2-6 03:15
+看预告，那羊有可能是导师役，总不能上手先锤一顿吧
+
+公兔子已经不是关键了，按狗+抱狗丫环的模式，我现在怕 ...</blockquote>
+漫画版说了这个羊是那个动物王国的管家，下一集应该就是羊给两人介绍情况分配q娃的任务
+
+*****
+
+####  梦诗歌雪  
+##### 778#       发表于 2024-2-7 00:53
+
+<blockquote>王留美 发表于 2024-2-5 22:56
+以狗来说很正常，但是你把它拟人了就有点糟糕，更不要说还能变成人了，太糟糕了 ...</blockquote>
+反过来这集过后在狗形态也已经是能说话的有人类智慧的狗了，出门还拿狗绳牵着似乎就有点那啥
+
+*****
+
+####  千恋万花  
+##### 779#       发表于 2024-2-7 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63901910&amp;ptid=2162354" target="_blank">犬飼いろは 发表于 2024-2-6 22:36</a>
+
+https://weibo.com/3888885364/NFl9Diuwk</blockquote>
+翻页问题好像修好了？测试测试
+

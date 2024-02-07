@@ -1024,3 +1024,11 @@ QQ图片20240206194841.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cybernetics31  
+##### 3716#       发表于 2024-2-7 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉还是得游戏男主出场救人啊
+

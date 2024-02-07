@@ -572,3 +572,14 @@ OK，加到了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天带的是狗，以后可能带的是毫无自充的自buff的神
 
+
+*****
+
+####  xy1041  
+##### 46126#       发表于 2024-2-7 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两个号都玄学狗叫了烟先生
+借一个5宝的大腿感觉一样可以带狗啊，地铺白字一面拿自己的清就行了
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

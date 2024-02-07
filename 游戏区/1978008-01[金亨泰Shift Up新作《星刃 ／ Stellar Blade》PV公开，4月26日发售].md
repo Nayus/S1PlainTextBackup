@@ -634,3 +634,16 @@ The developer stressed that none of these outfits will require additional purcha
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">9国配音无中文
 
+
+*****
+
+####  stormquantage  
+##### 279#       发表于 2024-2-7 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63899699&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-2-6 17:55</a>
+
+这么喜欢尼尔，那盲猜石川由依。</blockquote>
+石川已经在nikke追星成功了。
+
+真要石川再来且nikke联动那就是2b石川，nikke石川，星刃石川<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

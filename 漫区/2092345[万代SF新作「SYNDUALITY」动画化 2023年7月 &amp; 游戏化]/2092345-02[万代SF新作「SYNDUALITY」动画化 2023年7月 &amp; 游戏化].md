@@ -948,3 +948,14 @@ QQ图片20240206194841.jpg
 如果按照访谈说法，彼方不是那种性格特别消沉的类型，所以黑化也难？</blockquote>
 太难了，菜鸡主角变强的最佳捷径他都用不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3709#       发表于 2024-2-7 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63903327&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-2-7 01:46</a>
+
+太难了，菜鸡主角变强的最佳捷径他都用不了</blockquote>
+不过“你”是个好人jpg，还是能影响别人的好人，所以这点连对面具男都有一点杀伤力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

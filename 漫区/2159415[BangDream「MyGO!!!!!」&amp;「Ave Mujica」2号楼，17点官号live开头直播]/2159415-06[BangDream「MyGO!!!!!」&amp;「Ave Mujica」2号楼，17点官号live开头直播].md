@@ -22638,3 +22638,75 @@ ansy本来就是爽世亏欠爱音更多，爱音对此心知肚明，如果真�
 
 立希那个直性子玩不来爱音这套，我倾向于不知道怎么写和解了，让立希说个可以勉强圆过去的理由把饺子一大包。前期真没看出来立希知道啥了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穗波殊  
+##### 11935#       发表于 2024-2-8 03:03
+
+半夜睡不着。爱灯回能不能少提立希。这种莫名其妙的角色迫害能不能少。。。我觉得对角色形象是一种破坏。还有那张汤姆图在灯群见了一次，想着泥漏立希厨多，结果又见了一次。。
+
+*****
+
+####  相坂君  
+##### 11936#       发表于 2024-2-8 03:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">提到那时候祥厨没呼吸，7-12话时期最为掐脖子，12话讨论氛围更是一边倒
+别说她cp有没有呼吸，她本人都快没呼吸了，祥子被搞投票黑，各种黑祥言论，为她说一句话就被摁着打，现在也不见得有多受欢迎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+停播那时，姐妹假药让讨论环境改变，睦祥居然能喘口气。之前那些个利用啊传话筒啊，送黄瓜啊，睦所有行动被解读都是为了爽世。结果回头再去盘睦的那些操作，只要涉及祥的原则性问题上一点也没让过步，再者访谈添砖加瓦，重量级的愧疚和半身出来后，睦祥活了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+哎呀可喜可贺可喜可贺，丰川小姐你不再是拆散人幼驯染cp的罪魁祸首了！
+
+*****
+
+####  特别快乐的一天  
+##### 11937#       发表于 2024-2-8 03:05
+
+我想说放在五年前盲盒调价都没这么马太，睦厨有这么多吗价格逼近祥<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  特别快乐的一天  
+##### 11938#       发表于 2024-2-8 03:06
+
+ 本帖最后由 特别快乐的一天 于 2024-2-8 03:12 编辑 
+
+。
+
+*****
+
+####  特别快乐的一天  
+##### 11939#       发表于 2024-2-8 03:08
+
+ 本帖最后由 特别快乐的一天 于 2024-2-8 03:09 编辑 
+
+唉，如果素食是妈妈系角色，如果狗真是家庭系那这个家庭我觉得底色挺残酷的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">一个曾经试图抛弃孩子和宠物的妈，其实我真心会感到难受，我觉得还是放课后女高逻辑更友善一点
+
+*****
+
+####  江口夕  
+##### 11940#       发表于 2024-2-8 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63911788&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-8 03:02</a>
+有些人就是越吵越好的。爱音和立希也是类似关系，她叫rikki就是因为她不在意会拿对方开玩笑。
+
+ansy本来就是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是因為你這樣理解才會ooc，人家關係才剛開始，你就幫人家結束了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  特别快乐的一天  
+##### 11941#       发表于 2024-2-8 03:12
+
+糟了，看到封面不要引用
+
+*****
+
+####  PDQ4  
+##### 11942#       发表于 2024-2-8 03:13
+
+别提周边了，十人混盒我买睦祥俩人的感觉调价都够吃两个立希了，不愿再+20。日本是真喜欢盲盒，单独鸡出还可以抱个盒。
+
+就希望以后和老团混的时候能有其他我喜欢的角色，捆着买能舒服些，要是和萝pp混就更好，好看直接all。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

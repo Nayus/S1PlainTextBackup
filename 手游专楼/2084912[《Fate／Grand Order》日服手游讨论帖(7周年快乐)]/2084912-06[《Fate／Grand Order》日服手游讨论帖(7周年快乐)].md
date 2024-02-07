@@ -12,3 +12,16 @@
 
 清少納言開了強化本?又賺多2石
 
+
+*****
+
+####  exiaexa  
+##### 11298#       发表于 2024-2-7 17:18
+
+ 本帖最后由 exiaexa 于 2024-2-7 17:23 编辑 
+
+草，阿清出息了，能拆的50充，虽然回收还是一坨
+
+但是高杉UCCU，你特攻啥时候能装上去
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

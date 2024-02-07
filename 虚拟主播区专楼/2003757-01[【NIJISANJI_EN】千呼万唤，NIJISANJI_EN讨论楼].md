@@ -2876,3 +2876,16 @@ Niji should just go all-in and hire Mikeneko. If you are going to blow out, do i
 
 &gt;still manages to host the best branch wide Among Us collab in vtuber history
 
+
+*****
+
+####  lhawp  
+##### 167#       发表于 2024-2-8 05:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63911893&amp;ptid=2003757" target="_blank">wuzhengkai 发表于 2024-2-8 04:37</a>
+
+&gt;gets terminated
+
+&gt;still manages to host the best branch wide Among Us collab in vtuber history</blockquote>
+比起蛋蛋炸箱还是差点，大概能争个第二
+

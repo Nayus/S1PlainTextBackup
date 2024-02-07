@@ -22839,3 +22839,13 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 莓兰葵可一间房<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  特别快乐的一天  
+##### 11959#       发表于 2024-2-8 04:38
+
+ 本帖最后由 特别快乐的一天 于 2024-2-8 04:39 编辑 
+
+我是7年前看的偶活，至今忘不了二期那个选朋友的兰空尤里卡枫的狠活，太狠了所以烙dna里了，没想到童年（并不是）的纸飞机再次飞回我手里<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">但我觉得细想一下还是挺那个的，狗也是。。当年只顾着乐呵了，不过尤里卡也算嫁入豪门了有一个很爱很爱她的人（🙏）
+

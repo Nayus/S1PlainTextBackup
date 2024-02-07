@@ -22576,3 +22576,20 @@ live会露脸吗，不会也带这个上场吧<img src="https://static.saraba1st
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  PDQ4  
+##### 11928#       发表于 2024-2-8 02:44
+
+说soyorin是爱音不原谅爽世我不太赞同。爽世不演了暴露真面目后直接给爱音滤镜干碎了，爱音本来就有个喜欢瞎起名的人设，起昵称反而是她把爽世当损友了。毕竟以前是“soyo桑love”这种尊敬加看人月之森想蹭的疏离状态，第十集发现你爽世原来是个人就才敢开玩笑拿捏对方。
+
+不过关系虽然亲近了，地位确实更低了，这样才好嗑啊。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  特别快乐的一天  
+##### 11929#       发表于 2024-2-8 02:50
+
+别说了，人麻了
+

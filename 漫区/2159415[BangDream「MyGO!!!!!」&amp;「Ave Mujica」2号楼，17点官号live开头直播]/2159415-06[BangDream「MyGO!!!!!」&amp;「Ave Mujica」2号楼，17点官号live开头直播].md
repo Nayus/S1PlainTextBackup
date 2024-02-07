@@ -22564,3 +22564,15 @@ live会露脸吗，不会也带这个上场吧<img src="https://static.saraba1st
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥楼这几楼COMBO……回头外面就该说「就是你们这群祥厨毒唯斤斤计较，我们才不喜欢她的」
 孝祥楼帽子摘不掉咯，明天就改成毒唯楼<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 11927#       发表于 2024-2-8 02:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其實還有很多沒講呢，就怕素世廚破防。
+其實soyorin這個說法恰巧說明愛音當時鬧彆扭並沒有根本上原諒soyo不過是看燈面子罷了，真根本上原諒起碼要叫回一次soyo桑或者直接叫，這兩之間起碼還差至少一個event。在這個event之前，soyo就是任粉毛魚肉的存在。
+立希這個愣頭青直接就原諒了，太菜了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

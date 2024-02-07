@@ -1002,3 +1002,25 @@ QQ图片20240206194841.jpg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 3714#       发表于 2024-2-7 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63910835&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-2-7 23:16</a>
+
+卫浴柜都不信他们
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+惊喜，蓝色提醒功能恢复了？ 没事，只有一个卫浴柜就是打大boss了jpg
+
+*****
+
+####  oi99o  
+##### 3715#       发表于 2024-2-7 23:33
+
+关键是卫浴柜他们要的是诺娃/密斯缇，光抓一个彼方没啥用，各种转机方式都有可能存在
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -101,3 +101,17 @@ ns版不知道啥时候上外传<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等ns版
 
+
+*****
+
+####  Hieda  
+##### 3835#       发表于 2024-2-7 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">赶在外传出之前打完了，虽然是ns版一时半会玩不上外传
+
+一周目俩爱情和恶魔城带回小不点都没搞，本来是想着打完之后重来一次，没想到剧情这么长<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">死了这条心了
+
+本体到中后期游戏玩法上没啥变化、剧情也差不多水落石出了，还是有点疲倦的。而且演出手法上多少有点重复了。
+
+新章倒是很上头，一扫本体的绝望气氛，爽得一口气打完了
+

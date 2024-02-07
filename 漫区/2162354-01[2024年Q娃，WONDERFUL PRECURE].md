@@ -3014,3 +3014,22 @@ https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 如果是猫做主角的话就没这么麻烦了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猫也有牵绳的，你不牵它要是跑了你可就追不上了
 
+
+*****
+
+####  Blackson  
+##### 784#       发表于 2024-2-7 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63901801&amp;ptid=2162354" target="_blank">cenhr 发表于 2024-2-6 22:21</a>
+对CP假药每啥兴趣，但根据设定，狗狗是10岁了，如果最后一集是死别就变神作了 ...</blockquote>
+这肯定不可能，毕竟未来会参加全明星。就算真会死，东映也会让你吐便当
+
+*****
+
+####  最强惠酱  
+##### 785#       发表于 2024-2-7 10:33
+
+不要演后日谈不就好了
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

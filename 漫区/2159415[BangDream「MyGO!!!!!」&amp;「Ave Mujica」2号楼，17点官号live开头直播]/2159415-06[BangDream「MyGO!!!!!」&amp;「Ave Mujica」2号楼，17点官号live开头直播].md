@@ -22025,3 +22025,27 @@ MyGO里面剧情和人物的走向还是挺接近一些很夸张的假药的，�
 
 test
 
+
+*****
+
+####  安洁莉娜  
+##### 11873#       发表于 2024-2-7 10:33
+
+呃，台长视频老不出，我自己去查了查网友投票，睦和乐奈都是INTP？？soyo和mana都是ESFJ？？前一对有些道理，后一对我TM好兴奋啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 11874#       发表于 2024-2-7 10:37
+
+当前情况说明你邦真火了，S1绝赞致敬WSD中（指离了手工蛋的WSD）
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  紫吹兰  
+##### 11875#         楼主| 发表于 2024-2-7 10:43
+
+呃，现在外面比里面楼层数多了，似乎有可能正常了?
+

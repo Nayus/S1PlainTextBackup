@@ -991,3 +991,14 @@ QQ图片20240206194841.jpg
 米斯提看起来也不能变成小绿，不知道这要怎么翻盘了</blockquote>
 面具男动摇甚至反水的可能性其实都存在，加上大哥大概率在玩无间，翻盘的希望很大
 
+
+*****
+
+####  novyDC  
+##### 3713#       发表于 2024-2-7 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63910784&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-02-07 23:05:21</a>
+面具男动摇甚至反水的可能性其实都存在，加上大哥大概率在玩无间，翻盘的希望很大 ...</blockquote>卫浴柜都不信他们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

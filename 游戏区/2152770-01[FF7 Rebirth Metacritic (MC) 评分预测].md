@@ -457,3 +457,15 @@ remake 什么都好 二周目要素实在很烦 现在还放着没打 ...</block
 
 95！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ff2077  
+##### 50#       发表于 2024-2-7 12:41
+
+ 本帖最后由 ff2077 于 2024-2-7 12:44 编辑 
+
+- 野村：目前为止玩家对本作的反应非常好。要有转折的话估计就是剧情了吧。
+
+- 野村：前作也没有完全按照原作演绎，玩家对此的态度有正面也有负面。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 评分大概还是看剧本吧
+

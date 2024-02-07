@@ -22297,3 +22297,29 @@ test
 
 wsd：你以为我不想吗？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 11903#         楼主| 发表于 2024-2-7 19:18
+
+[@氷川日菜](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=571202) 
+
+二次元和三次元分开挺好的，最典型的就是kdai和ykls，基本也没互相影响
+
+*****
+
+####  cindy355  
+##### 11904#       发表于 2024-2-7 19:22
+
+无法从这种官方产出得到快乐是我脑子的问题。
+
+*****
+
+####  傘木希美  
+##### 11905#       发表于 2024-2-7 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">才发现巡演那天是大年初三啊，不一定能回来
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

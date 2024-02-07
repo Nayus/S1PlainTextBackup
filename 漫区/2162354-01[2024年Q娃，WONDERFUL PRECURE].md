@@ -3001,3 +3001,16 @@ https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+*****
+
+####  暗黑能乐  
+##### 783#       发表于 2024-2-7 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63904329&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-7 09:59</a>
+
+但是不牵的话难道不怕幼女前辈有样学样带大狗上街不牵狗绳嘛……
+
+如果是猫做主角的话就没这么麻烦了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猫也有牵绳的，你不牵它要是跑了你可就追不上了
+

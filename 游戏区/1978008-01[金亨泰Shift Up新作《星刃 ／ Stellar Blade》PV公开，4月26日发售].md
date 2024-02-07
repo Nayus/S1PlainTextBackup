@@ -495,3 +495,11 @@ The developer stressed that none of these outfits will require additional purcha
 
 语音独占感觉对目标用户没个清晰的画像，韩配完全听不懂，英配配这画风听着又有些违和
 
+
+*****
+
+####  洛克萨斯  
+##### 269#       发表于 2024-2-7 10:17
+
+买日版到不是不行，有没有中文字幕很关键
+

@@ -647,3 +647,11 @@ The developer stressed that none of these outfits will require additional purcha
 
 真要石川再来且nikke联动那就是2b石川，nikke石川，星刃石川<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 280#       发表于 2024-2-7 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">日语配音只有日版，但是日版没有中文？su何意啊
+

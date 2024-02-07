@@ -545,3 +545,27 @@ SE唯一底裤！
 
 ff16之后我对se已经很害怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，保守一点88
 
+
+*****
+
+####  miraclePTSD  
+##### 60#       发表于 2024-2-7 18:37
+
+保守95吧，剧情咋可能会雷呢
+
+*****
+
+####  雨翼free  
+##### 61#       发表于 2024-2-7 18:40
+
+现在只要肯堆料分数就不会低，猜一个91<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  子夜的黑暗  
+##### 62#       发表于 2024-2-7 18:41
+
+跟隔壁p系列一比，se使上吃奶的力气都不一定能稳上90，不知道该说啥好
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

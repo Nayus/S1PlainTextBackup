@@ -3195,3 +3195,14 @@ https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 配阿光时成濑瑛美用的本音，很尖。加芙娃那就更尖了。一集集看下来折 ...</blockquote>
 天Q开头比星闪更惊艳，结局包的饺子也更圆满一点吧，整的黑化活也比福娃炸弹好多了
 
+
+*****
+
+####  脚底心，洗则白  
+##### 798#       发表于 2024-2-7 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908317&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-7 18:28</a>
+
+天Q开头比星闪更惊艳，结局包的饺子也更圆满一点吧，整的黑化活也比福娃炸弹好多了 ...</blockquote>
+其实单论趣味来说，咱觉得福娃炸弹比黑化少侠要有趣。村山脑洞还是大的。
+

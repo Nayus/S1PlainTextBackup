@@ -12568,3 +12568,22 @@ RPG要是能加个前摇就好了，开的瞬间根本没机会躲，二人轮�
 
 世界冠军赛4.13和14
 
+
+*****
+
+####  秋月孝三  
+##### 2745#       发表于 2024-2-7 16:13
+
+bbz在线上是无法夺冠的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  罗克萨斯  
+##### 2746#       发表于 2024-2-7 16:23
+
+铅笔+短弓+贴牌电锯+贴牌红双，涂地模式最强组合？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

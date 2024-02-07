@@ -22222,3 +22222,13 @@ test
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有可能直接进新乐队吗
 
+
+*****
+
+####  PDQ4  
+##### 11894#       发表于 2024-2-7 16:23
+
+舞台剧虽然是有扮演和世界观的成分在，但大概率是有角色本身一定的对照与暗示在，从创作的角度讲搞五等分的祥子根本没太大意义，虽然都是猜测就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+以及纯粹个人理解，正好前段时间回顾海猫。世界观的设定和棋盘还挺像的，借鉴一下海猫的设定，五个人在舞台上和棋盘上的棋子类似，虽然受制于gm（剧外编剧/剧内祥子），但是棋子是不会做出自身无法做出的事。舞台上的五个人就算有一部分祥子的投射，行为本身仍旧是符合自身本质的。
+

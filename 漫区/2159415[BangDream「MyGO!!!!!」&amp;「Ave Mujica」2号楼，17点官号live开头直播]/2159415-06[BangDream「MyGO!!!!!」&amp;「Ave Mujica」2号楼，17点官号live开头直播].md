@@ -22126,3 +22126,20 @@ test
 
 目前内外差3层，勉强能用，问题出在引用回复上，回复别人就不会被计数造成楼层错乱，所以要保持3层楼差距只能避免引用回复，这样和需要自己回复自己的3/4号楼哪个方便?
 
+
+*****
+
+####  御幸一也  
+##### 11884#       发表于 2024-2-7 12:24
+
+都是有問題，不如蹲在這等徹底修好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+……會修好的吧？
+
+*****
+
+####  PDQ4  
+##### 11885#       发表于 2024-2-7 12:31
+
+会员购这什么比系统，看见有票进去就被踢出来，什么随缘抢票<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

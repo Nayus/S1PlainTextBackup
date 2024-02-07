@@ -469,3 +469,11 @@ remake 什么都好 二周目要素实在很烦 现在还放着没打 ...</block
 
 - 野村：前作也没有完全按照原作演绎，玩家对此的态度有正面也有负面。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 评分大概还是看剧本吧
 
+
+*****
+
+####  zhacaizn  
+##### 51#       发表于 2024-2-7 12:49
+
+剧情影响在玩家里的口碑，媒体评分没什么影响，还是得看这个大地图探索什么样，后期系统深度如何
+

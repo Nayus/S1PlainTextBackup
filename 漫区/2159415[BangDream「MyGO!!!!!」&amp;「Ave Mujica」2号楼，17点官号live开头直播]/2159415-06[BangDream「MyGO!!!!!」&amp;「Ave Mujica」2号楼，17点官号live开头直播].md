@@ -22151,3 +22151,20 @@ test
 
 完全抢不到一点，这下省钱了
 
+
+*****
+
+####  QuattroVageena  
+##### 11887#       发表于 2024-2-7 12:45
+
+狗日的叔叔，狗日的海日<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 11888#       发表于 2024-2-7 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">day1 svip拿下了 day2一般比svip还难抢
+
+按海日的尿性给一般的票是最少的
+

@@ -1,0 +1,407 @@
+
+*****
+
+####  iou90  
+##### 1#       楼主       发表于 2023-9-14 18:39
+
+<input name="formhash" type="hidden" value="1ec6225b"/)
+
+<strong>单选投票</strong> , 投票后结果可见, 共有 309 人参与投票
+
+距结束还有:
+
+<strong>
+
+4 天6 小时45 分钟
+
+</strong>
+
+1.  99
+
+2.  98
+
+3.  97
+
+4.  96
+
+5.  95
+
+6.  94
+
+7.  93
+
+8.  92
+
+9.  91
+
+10.  90
+
+11.  89
+
+12.  88
+
+13.  87
+
+14.  86
+
+15.  85
+
+16.  84
+
+17.  83
+
+18.  82
+
+19.  81
+
+20.  80
+
+21.  75-79
+
+22.  70-74
+
+23.  60-69
+
+24.  &lt;60
+
+ 
+提交
+
+FF7 Rebirth Metacritic (MC) 评分预测
+
+这次评分的选项细一些了
+
+*****
+
+####  shudushimo  
+##### 2#       发表于 2023-9-14 18:40
+
+能上90就算成功
+
+*****
+
+####  飞甩姬猫  
+##### 3#       发表于 2023-9-14 18:50
+
+来个90分
+
+*****
+
+####  zakki  
+##### 4#       发表于 2023-9-14 18:55
+
+还有大半年呢，这么早投票干嘛，就算投也等等明天早上的新预告再投啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5#       发表于 2023-9-14 18:58
+
+连开2贴我还以为穿越时空马上就要发售了呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 6#       发表于 2023-9-14 19:01
+
+早了点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  皮卡丘跑快快  
+##### 7#       发表于 2023-9-14 19:04
+
+89
+
+*****
+
+####  变老的大二  
+##### 8#       发表于 2023-9-14 19:06
+
+没突破的情况下，应该是89分的水平
+
+*****
+
+####  u2deack  
+##### 9#       发表于 2023-9-14 19:45
+
+搞得好像明天就要卖了
+你们是约好了集体水贴么
+游戏都没公布什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫不萌  
+##### 10#       发表于 2023-9-14 19:46
+
+这游戏公布发售日了吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 11#       发表于 2023-9-14 19:46
+
+上作PS4版87 PS5版（+DLC）89吧
+
+*****
+
+####  秦南心  
+##### 12#       发表于 2023-9-14 20:02
+
+保底是个口碑之作
+
+*****
+
+####  昆仑之巅  
+##### 13#       发表于 2023-9-14 20:32
+
+先过狒狒16的87吧。
+
+*****
+
+####  张叔夜  
+##### 14#       发表于 2023-9-14 21:04
+
+这游戏存在的意义就是EVA新剧场版，看个剧情得了，mc评分又不跟着剧情来
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kelveen  
+##### 15#       发表于 2023-9-14 21:34
+
+投了89，能过90就赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十六夜镜月  
+##### 16#       发表于 2023-9-14 21:38
+
+投89
+
+*****
+
+####  bbbbffff  
+##### 17#       发表于 2023-9-14 21:43
+
+85左右
+
+*****
+
+####  iou90  
+##### 18#         楼主| 发表于 2023-9-15 07:46
+
+刚开帖子投了91 
+
+早上看完帖子大爷的太喜欢了 200分！
+本来打算三部曲合集再买实体 这次忍不住了
+
+*****
+
+####  iou90  
+##### 19#         楼主| 发表于 2023-9-15 07:47
+
+早上看完视频
+
+大爷的太激动了
+
+*****
+
+####  小ghoul  
+##### 20#       发表于 2023-9-15 09:24
+
+ff7这是要吃一辈子么
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雨翼free  
+##### 21#       发表于 2023-9-15 09:36
+
+看完pv，直接投90
+
+*****
+
+####  mjzs07  
+##### 22#       发表于 2023-9-15 09:45
+
+jrpg虚高 p5石榴xb3让我评我直接砍十到二十分
+
+*****
+
+####  richardkisser  
+##### 23#       发表于 2023-9-15 09:55
+
+我是看懂了，提前整个销量预测、评分预测，游戏发售后不如意好清算是吧？！
+
+*****
+
+####  blackll7  
+##### 24#       发表于 2023-9-15 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我上次看你们这么信誓旦旦还是狒狒16试玩
+
+*****
+
+####  zzzplht  
+##### 25#       发表于 2023-9-15 10:39
+
+评分比第一步低三分，销量减半
+
+*****
+
+####  iou90  
+##### 26#         楼主| 发表于 2023-9-15 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62413545&amp;ptid=2152770" target="_blank">richardkisser 发表于 2023-9-15 09:55</a>
+我是看懂了，提前整个销量预测、评分预测，游戏发售后不如意好清算是吧？！ ...</blockquote>
+老了 比起打游戏还是期待游戏更得劲 
+remake 什么都好 二周目要素实在很烦 现在还放着没打
+
+*****
+
+####  猫将军  
+##### 27#       发表于 2023-9-15 10:46
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">充分融合了尤菲dlc的双人系统！劲到扯旗！这才是ff嘛！
+
+*****
+
+####  SorroFrost  
+##### 28#       发表于 2023-9-15 10:54
+
+85到90就是胜利
+
+*****
+
+####  Arisita  
+##### 29#       发表于 2023-9-15 11:01
+
+开放、续作、三部曲、可操控角色超多无疑89啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iou90  
+##### 30#         楼主| 发表于 2023-9-15 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62414151&amp;ptid=2152770" target="_blank">zzzplht 发表于 2023-9-15 10:39</a>
+
+评分比第一步低三分，销量减半</blockquote>
+[https://bbs.saraba1st.com/2b/thread-2152769-1-2.html](https://bbs.saraba1st.com/2b/thread-2152769-1-2.html)
+
+销量帖子在这
+
+*****
+
+####  eilot  
+##### 31#       发表于 2023-9-15 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62414203&amp;ptid=2152770" target="_blank">iou90 发表于 2023-9-15 10:43</a>
+
+老了 比起打游戏还是期待游戏更得劲 
+
+remake 什么都好 二周目要素实在很烦 现在还放着没打 ...</blockquote>
+2周目元素太懶了，單純是全章節及分支遇到的BOSS打多次，還要調到H難度，希望rebirth的2周目不是那麼簡單/貪懶
+
+不過今次有黃金圓盤，2周目解封更高難度小遊戲就已足夠了，電單車當年最喜歡玩的，但新版流程實在太長而且不能卡死敵人，2周目直接跳了，
+
+單是養鳥中見到有藍色，不知道能否生到黑色，之後再生到金色
+
+2周目有本事的話，塞飛我方版可以克隆人加入，而且和其他人都有合體技吧
+
+*****
+
+####  herryk159  
+##### 32#       发表于 2023-9-15 11:56
+
+奶个88<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  昆仑之巅  
+##### 33#       发表于 2023-9-15 12:22
+
+先过87，再过89吧。
+
+*****
+
+####  司马千晶  
+##### 34#       发表于 2023-9-15 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62414243&amp;ptid=2152770" target="_blank">猫将军 发表于 2023-9-15 10:46</a>
+充分融合了尤菲dlc的双人系统！劲到扯旗！这才是ff嘛！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吃一堑长一智，这次长点心眼以实物为准。
+
+*****
+
+####  lucky95  
+##### 35#       发表于 2023-9-15 13:02
+
+这么早开香槟啊
+
+90起步吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  变老的大二  
+##### 36#       发表于 2023-9-15 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62415280&amp;ptid=2152770" target="_blank">herryk159 发表于 2023-9-15 11:56</a>
+
+奶个88</blockquote>
+提示一下，ff16 mc88分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  herryk159  
+##### 37#       发表于 2023-9-15 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62416968&amp;ptid=2152770" target="_blank">变老的大二 发表于 2023-9-15 14:17</a>
+
+提示一下，ff16 mc88分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">草，这样搞到我想奶死它一样
+
+*****
+
+####  byisme001  
+##### 38#       发表于 2023-9-15 14:33
+
+比xb4低2分的水平
+
+*****
+
+####  wswseven  
+##### 39#       发表于 2023-9-15 19:00
+
+你好歹一楼放一下评分啊，mc oc steam啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bazingar  
+##### 40#       发表于 2023-9-16 16:45
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+*****
+
+####  iou90  
+##### 41#         楼主| 发表于 2024-2-7 11:40
+
+提前一周开分 也就是还有两周...
+
+这次91感觉保守了
+
+大家再投一投XD
+
+*****
+
+####  ネコカイザー  
+##### 42#       发表于 2024-2-7 11:48
+
+95
+

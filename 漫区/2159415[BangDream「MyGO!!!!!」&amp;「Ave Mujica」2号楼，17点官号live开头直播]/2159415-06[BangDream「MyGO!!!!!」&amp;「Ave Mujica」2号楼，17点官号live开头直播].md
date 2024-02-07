@@ -22593,3 +22593,48 @@ live会露脸吗，不会也带这个上场吧<img src="https://static.saraba1st
 
 别说了，人麻了
 
+
+*****
+
+####  江口夕  
+##### 11930#       发表于 2024-2-8 02:54
+
+ 本帖最后由 江口夕 于 2024-2-8 02:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63911763&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-8 02:44</a>
+说soyorin是爱音不原谅爽世我不太赞同。爽世不演了暴露真面目后直接给爱音滤镜干碎了，爱音本来就有个喜欢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">給立希叫riki不就是因為之前口角，你們看片還是再仔細點，別想當然。和帶濾鏡有什麼區別。愛音對稱呼這種小技巧早就門清了，你們下意識把她心機的一面去掉了自己不知道
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  江口夕  
+##### 11931#       发表于 2024-2-8 02:54
+
+。
+
+*****
+
+####  特别快乐的一天  
+##### 11932#       发表于 2024-2-8 02:54
+
+简中社媒感觉就是素食厨最多，不过我觉得按照调价阿诺更贵，但一般有10人调价睦祥一般都论外。。不过不是很意外，立希基本上free （（））
+
+*****
+
+####  特别快乐的一天  
+##### 11933#       发表于 2024-2-8 02:56
+
+祥证睦证都起飞了
+
+*****
+
+####  PDQ4  
+##### 11934#       发表于 2024-2-8 03:02
+
+有些人就是越吵越好的。爱音和立希也是类似关系，她叫rikki就是因为她不在意会拿对方开玩笑。
+
+ansy本来就是爽世亏欠爱音更多，爱音对此心知肚明，如果真不愿意原谅才不会起这种会被对方嫌弃的名字，因为开玩笑本身就是和解的象征之一，不原谅还瞎开玩笑这不是给自己加债吗，爱音多调戏玩弄对方，时间久了双方就都有债本了，越吵越骂关系越好。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+立希那个直性子玩不来爱音这套，我倾向于不知道怎么写和解了，让立希说个可以勉强圆过去的理由把饺子一大包。前期真没看出来立希知道啥了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

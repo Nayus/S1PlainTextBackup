@@ -46,3 +46,11 @@
 
 ns版不知道啥时候上外传<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagamasa  
+##### 3828#       发表于 2024-2-7 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">steam的成就列表已经更新了
+

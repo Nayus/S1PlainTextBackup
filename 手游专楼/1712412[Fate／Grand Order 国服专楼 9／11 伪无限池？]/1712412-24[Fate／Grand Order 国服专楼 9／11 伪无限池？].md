@@ -554,3 +554,13 @@ OK，加到了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63903616&amp;ptid=1712412" target="_blank">布伦史塔德 发表于 2024-2-7 07:32</a></blockquote>
 淫荡（笑
 
+
+*****
+
+####  khxooo  
+##### 46124#       发表于 2024-2-7 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896876&amp;ptid=1712412" target="_blank">qixinno2 发表于 2024-2-6 12:47</a>
+氪了一单 连个四星都没出 我是傻逼</blockquote>
+你还是忍不住啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

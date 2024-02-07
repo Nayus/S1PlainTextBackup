@@ -572,3 +572,11 @@ The developer stressed that none of these outfits will require additional purcha
 
 没日语配音那就不买了
 
+
+*****
+
+####  洛克萨斯  
+##### 273#       发表于 2024-2-7 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文字幕不会只有港服有吧..............那就只能选英配和韩配？
+

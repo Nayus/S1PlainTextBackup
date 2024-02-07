@@ -22074,3 +22074,23 @@ test
 
 修好了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圆  
+##### 11879#       发表于 2024-2-7 11:04
+
+ 本帖最后由 圆 于 2024-2-7 11:10 编辑 
+
+外面又减少了4层，难道是回复的问题，回复前外面876
+
+*****
+
+####  圆  
+##### 11880#       发表于 2024-2-7 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63904880&amp;ptid=2159415" target="_blank">圆 发表于 2024-2-7 11:04</a>
+
+外面又减少了4层，难道是回复的问题，回复前外面876</blockquote>
+引用测试，回复前外面877
+

@@ -22415,3 +22415,34 @@ wsd你是真的很抠门
 
 对特典完全不抱期待 大概率是1st那套图<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 11915#       发表于 2024-2-7 20:54
+
+武士道用来解决管人露脸问题的手段是不是太粗暴了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/07/205421wue7s1mlffdyeeb7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240207_205226.jpg</strong> (158.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-7 20:54 上传
+
+<img src="https://img.saraba1st.com/forum/202402/07/205428s1c9n9999mjznb9c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240207_205302.jpg</strong> (153.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-7 20:54 上传
+
+*****
+
+####  JY要塞  
+##### 11916#       发表于 2024-2-7 20:57
+
+高情商：台长同款
+

@@ -22331,3 +22331,31 @@ wsd：你以为我不想吗？<img src="https://static.saraba1st.com/image/smile
 
 睦特是文件夹帮我省钱了，买通常盘要个生写就行，对文件夹没有诉求。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋干爆炸碱  
+##### 11907#       发表于 2024-2-7 19:35
+
+如果是新图文件夹的话我可以有诉求<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+但是这种事情大概率不存在的
+
+*****
+
+####  PDQ4  
+##### 11908#       发表于 2024-2-7 19:38
+
+我在想会不会把双月或者csc的图拿上来用，神蠢好像是跟假面舞会一样赠送了吧。
+
+wsd再抠比也不至于拿1st视觉图当特典吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 11909#       发表于 2024-2-7 19:43
+
+只能说武士道在让我失望这件事上从没让我失望过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+根本不期待能有好看的新柄
+

@@ -2970,3 +2970,34 @@ https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 翻页问题好像修好了？测试测试
 
+
+*****
+
+####  linhaitora  
+##### 780#       发表于 2024-2-7 09:56
+
+不卡了！！？？？？
+
+*****
+
+####  王留美  
+##### 781#       发表于 2024-2-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63903081&amp;ptid=2162354" target="_blank">梦诗歌雪 发表于 2024-2-7 00:53</a>
+ 反过来这集过后在狗形态也已经是能说话的有人类智慧的狗了，出门还拿狗绳牵着似乎就有点那啥 ...</blockquote>
+但是不牵的话难道不怕幼女前辈有样学样带大狗上街不牵狗绳嘛……
+
+如果是猫做主角的话就没这么麻烦了
+
+*****
+
+####  王留美  
+##### 782#       发表于 2024-2-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63903081&amp;ptid=2162354" target="_blank">梦诗歌雪 发表于 2024-02-07 00:53:13</a>
+反过来这集过后在狗形态也已经是能说话的有人类智慧的狗了，出门还拿狗绳牵着似乎就有点那啥 ...</blockquote>但是不牵的话难道不怕幼女前辈有样学样带大狗上街不牵狗绳嘛……
+
+如果是猫做主角的话就没这么麻烦了
+
+ -- 傲娇地来自 Stage1未知客户端
+

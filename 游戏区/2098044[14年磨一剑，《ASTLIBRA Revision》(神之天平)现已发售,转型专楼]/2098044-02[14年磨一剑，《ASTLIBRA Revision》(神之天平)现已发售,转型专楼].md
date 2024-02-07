@@ -115,3 +115,11 @@ ns版不知道啥时候上外传<img src="https://static.saraba1st.com/image/smi
 
 新章倒是很上头，一扫本体的绝望气氛，爽得一口气打完了
 
+
+*****
+
+####  lion_or_judas  
+##### 3836#       发表于 2024-2-8 00:07
+
+ns上刚刚荒谬通关不久，啥时候dlc上ns啊，急急急
+

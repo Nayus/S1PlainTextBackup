@@ -485,3 +485,11 @@ remake 什么都好 二周目要素实在很烦 现在还放着没打 ...</block
 
 从demo感觉小细节挺多的，有种SE用尽全力的感觉，盲猜个95
 
+
+*****
+
+####  casualice  
+##### 53#       发表于 2024-2-7 14:48
+
+如龙8和p3r的分数让我感觉最近JRPG的分数似乎有点通货膨胀的趋势<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这代看起来也量大管饱，我猜91
+

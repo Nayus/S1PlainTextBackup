@@ -569,3 +569,13 @@ ff16之后我对se已经很害怕了<img src="https://static.saraba1st.com/image
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Dorohedoro  
+##### 63#       发表于 2024-2-7 19:00
+
+<blockquote>雨翼free 发表于 2024-2-7 18:40
+现在只要肯堆料分数就不会低，猜一个91</blockquote>
+你说这话让星空猴子信条这些真欧美堆料游戏情何以堪
+

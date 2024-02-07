@@ -967,3 +967,16 @@ QQ图片20240206194841.jpg
 
 米斯提看起来也不能变成小绿，不知道这要怎么翻盘了
 
+
+*****
+
+####  Piano-Forest  
+##### 3711#         楼主| 发表于 2024-2-7 22:55
+
+[https://twitter.com/nutszero1/status/1754527704622539257](https://twitter.com/nutszero1/status/1754527704622539257)
+
+シンデュアリティ ノワール17話ご覧いただきありがとうございました！
+
+本編ではあんな事になってますが（笑）新OP原画の世良コータさんからいただいた笑顔のシエルです。
+<img src="https://p.sda1.dev/15/1c021b4578b1914cb1ad7b75ac4036eb/20240207_225521.jpg" referrerpolicy="no-referrer">
+

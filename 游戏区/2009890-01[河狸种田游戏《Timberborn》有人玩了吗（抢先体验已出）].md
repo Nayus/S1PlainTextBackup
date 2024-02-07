@@ -1966,3 +1966,13 @@ Timberborn_jhtAfjZ25s.jpg
 
 新版本都没人玩么？
 
+
+*****
+
+####  屑猫猫  
+##### 166#       发表于 2024-2-7 08:30
+
+在找新品节里的种田建造游戏，现在还是这个游戏看起来品相好，准备入手了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

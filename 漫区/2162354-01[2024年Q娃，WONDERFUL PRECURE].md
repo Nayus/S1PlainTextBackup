@@ -3033,3 +3033,23 @@ https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  粉儿alice  
+##### 786#       发表于 2024-2-7 10:45
+
+第5集出武器 这就是说明春季主力是卖武器 猫组要夏季才追加了？
+
+*****
+
+####  pokemon最爱  
+##### 787#       发表于 2024-2-7 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63904597&amp;ptid=2162354" target="_blank">Blackson 发表于 2024-2-7 10:33</a>
+
+这肯定不可能，毕竟未来会参加全明星。就算真会死，东映也会让你吐便当
+
+ ...</blockquote>
+公主到星闪几组结局长大分开甚至封号不能变身又没影响她们继续客串<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">星闪组的封号可是决战完了就被封号一直封到感谢祭舞台广播剧星闪组重聚酒会都没解（我记得说拉拉是特地学了日语，所以说明虽然Fuwa力量恢复了但吊坠还没有）
+

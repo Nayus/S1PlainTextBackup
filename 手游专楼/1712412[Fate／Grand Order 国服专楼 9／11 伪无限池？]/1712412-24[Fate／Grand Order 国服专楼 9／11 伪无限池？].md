@@ -603,3 +603,13 @@ OK，加到了
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  溯夜  
+##### 46129#       发表于 2024-2-8 00:30
+
+打完2.7了，这个最后几节打得好爽，信息量也足够大，感觉比2.6那个突然完结的寸止要爽太多了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

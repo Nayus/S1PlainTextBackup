@@ -76,3 +76,20 @@ ns版不知道啥时候上外传<img src="https://static.saraba1st.com/image/smi
 
 有多长流程？
 
+
+*****
+
+####  七氷  
+##### 3832#       发表于 2024-2-7 22:26
+
+幸运，刚通没多久就来dlc
+
+*****
+
+####  慕容断月  
+##### 3833#       发表于 2024-2-7 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63910450&amp;ptid=2098044" target="_blank">alucardcz 发表于 2024-2-7 22:18</a>
+有多长流程？</blockquote>
+这玩意是肉鸽，但是商业版大量加料，不好说
+

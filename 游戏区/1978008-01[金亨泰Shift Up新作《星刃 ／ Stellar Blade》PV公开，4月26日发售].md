@@ -719,3 +719,14 @@ A：如果只通关主线剧情的话，大概要20-25小时左右，如果要�
 
 有机会上PC吗?不想买ps5
 
+
+*****
+
+####  SergeGlenn  
+##### 285#       发表于 2024-2-7 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908089&amp;ptid=1978008" target="_blank">LrGsite 发表于 2024-2-7 18:02</a>
+
+有机会上PC吗?不想买ps5</blockquote>
+kotaku的文章好像结尾写了会上PC，只是限时独占
+

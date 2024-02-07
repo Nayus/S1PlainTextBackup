@@ -12587,3 +12587,11 @@ bbz在线上是无法夺冠的<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  raii  
+##### 2747#       发表于 2024-2-7 21:44
+
+RIP BBz  另外瓜刚才这XP跳水堪比某证指数了，5k还有希望吗？
+

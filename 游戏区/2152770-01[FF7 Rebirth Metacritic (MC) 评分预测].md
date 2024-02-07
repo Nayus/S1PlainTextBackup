@@ -493,3 +493,21 @@ remake 什么都好 二周目要素实在很烦 现在还放着没打 ...</block
 
 如龙8和p3r的分数让我感觉最近JRPG的分数似乎有点通货膨胀的趋势<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这代看起来也量大管饱，我猜91
 
+
+*****
+
+####  woaimiyabi  
+##### 54#       发表于 2024-2-7 17:32
+
+大概率90以上 
+
+*****
+
+####  woaimiyabi  
+##### 55#       发表于 2024-2-7 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62416968&amp;ptid=2152770" target="_blank">变老的大二 发表于 2023-9-15 14:17</a>
+
+提示一下，ff16 mc88分</blockquote>
+变成86了吧 很多游戏首发分后续稳不住
+

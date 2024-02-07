@@ -3115,3 +3115,14 @@ https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 
 再观望几集看看走向
 
+
+*****
+
+####  青蛙佬  
+##### 794#       发表于 2024-2-7 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63905415&amp;ptid=2162354" target="_blank">最强惠酱 发表于 2024-2-7 11:55</a>
+
+索拉的原谅和猫的原谅确实一脉相承天q好评更多是豚豚的偏爱吧（</blockquote>
+但貌似星Q风评也没那么差 和天Q很像
+

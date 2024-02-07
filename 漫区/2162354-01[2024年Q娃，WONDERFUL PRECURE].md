@@ -3206,3 +3206,26 @@ https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 天Q开头比星闪更惊艳，结局包的饺子也更圆满一点吧，整的黑化活也比福娃炸弹好多了 ...</blockquote>
 其实单论趣味来说，咱觉得福娃炸弹比黑化少侠要有趣。村山脑洞还是大的。
 
+
+*****
+
+####  ΣPRC  
+##### 799#       发表于 2024-2-7 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908317&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-7 18:28</a>
+
+天Q开头比星闪更惊艳，结局包的饺子也更圆满一点吧，整的黑化活也比福娃炸弹好多了 ...</blockquote>
+能把一地细碎的后半段最后五六集全包进饺子里面，金月流石包饺子仙人
+
+*****
+
+####  pokemon最爱  
+##### 800#       发表于 2024-2-7 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908405&amp;ptid=2162354" target="_blank">脚底心，洗则白 发表于 2024-2-7 18:40</a>
+
+其实单论趣味来说，咱觉得福娃炸弹比黑化少侠要有趣。村山脑洞还是大的。 ...</blockquote>
+Fuwa炸弹这个设计对于子贡向作品来说实在是过于劲爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且虽然可能制作组不是有意的，但是一结合星闪组在Fuwa自爆前唯心被常态蛇夫暴打，然后在蛇夫拿到Fuwa的力量强化了一波把宇宙炸了后强化蛇夫反而被唯心变身的星闪组按着头暴打的事，我是真的怀疑这群屑星座公主们怕Q娃知道了Fuwa炸弹的事要报复自己所以有意限制了星闪组的变身器输出功率所以前面星闪组才吃瘪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

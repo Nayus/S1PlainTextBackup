@@ -38,3 +38,11 @@
 通了通了，这游戏跟dq11还挺像的，一周目体验都非常完美，新章就跟dq11的二周目一样，有点为了大团圆而硬搞 ...</blockquote>
 真结局推进过程里把失忆妹子养在家里的时候 面包妹对话就变成失落的说果然是有对象的
 
+
+*****
+
+####  xmakoto  
+##### 3827#       发表于 2024-2-7 19:27
+
+ns版不知道啥时候上外传<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

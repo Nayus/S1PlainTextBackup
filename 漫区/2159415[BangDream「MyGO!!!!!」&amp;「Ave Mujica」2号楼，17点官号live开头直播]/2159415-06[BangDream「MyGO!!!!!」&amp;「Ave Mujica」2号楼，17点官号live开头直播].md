@@ -22323,3 +22323,11 @@ wsd：你以为我不想吗？<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  PDQ4  
+##### 11906#       发表于 2024-2-7 19:29
+
+睦特是文件夹帮我省钱了，买通常盘要个生写就行，对文件夹没有诉求。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

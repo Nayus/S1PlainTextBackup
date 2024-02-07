@@ -590,3 +590,13 @@ ff16之后我对se已经很害怕了<img src="https://static.saraba1st.com/image
 你说这话让星空猴子信条这些真欧美堆料游戏情何以堪</blockquote>
 你指堆料的是1000颗大部分雷同的星球，还是一键自动生成的据点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dorohedoro  
+##### 65#       发表于 2024-2-7 19:34
+
+<blockquote>MobyDickStudio 发表于 2024-2-7 19:04
+你指堆料的是1000颗大部分雷同的星球，还是一键自动生成的据点</blockquote>
+你说的没错啊，堆料这个词当然更适合那种造1000颗星球和一堆据点的游戏，ff7rb只不过是日式游戏这些年标准的规模提升而已，这和堆料有什么关系，如果ff7rb地图设计本身一塌糊涂把地图做的再大有啥用
+

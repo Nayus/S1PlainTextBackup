@@ -22487,3 +22487,69 @@ live会露脸吗，不会也带这个上场吧<img src="https://static.saraba1st
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  Aendst  
+##### 11921#       发表于 2024-2-8 00:12
+
+当时部分角色黑到处明目张胆乱黑，反驳他们还会被追着咬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥楼已经算相对正常点的了也还是有比较一言难尽的情况
+
+确实客观来说容易掐起来的环境比单方面靠假药踩头的环境要好。不过可能也就泥楼有点变化，其他地方估计还是老样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 11922#       发表于 2024-2-8 00:48
+
+啊这，追番和素睦解撕的是睦厨阿，祥厨有呼吸权吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+时不时就"都是祥厨逆天我们才讨厌祥子的"。
+现在祥厨除了泥漏其他地方也不能看阿，隔壁前几天还在撕呢，匿名直接指着祥厨骂挂了几天了也没处理，远不如烤羊直接爆破专楼的速度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|笑吐 還真是|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 11923#       发表于 2024-2-8 01:32
+
+当时环境就记得睦祥厨人下人了，想说点睦祥其实很在乎对方就会被素睦堵嘴，传声筒是素睦的，睦的行动都是为了素世的，和祥子是不熟的，对素世是铁暗恋的。到了12集刚播完更是巅峰，一堆人骂祥子不是东西利用幼驯染，说素世压力睦就用12集说祥子对睦更差劲，好一个王母娘娘，反正人素睦小情侣都怪你祥子控制利用睦。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当时用小脑都想不明白怎么大环境角色理解能飞成这个样，看的是一部片子吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 11924#       发表于 2024-2-8 01:35
+
+樓友們好會說，我好喜歡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 11925#       发表于 2024-2-8 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

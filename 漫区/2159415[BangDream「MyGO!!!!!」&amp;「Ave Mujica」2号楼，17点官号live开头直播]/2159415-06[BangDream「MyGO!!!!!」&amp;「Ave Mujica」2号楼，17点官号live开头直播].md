@@ -22359,3 +22359,43 @@ wsd再抠比也不至于拿1st视觉图当特典吧<img src="https://static.sara
 
 根本不期待能有好看的新柄
 
+
+*****
+
+####  笋干爆炸碱  
+##### 11910#       发表于 2024-2-7 19:45
+
+那可真不好说，毕竟1st收录的两首本身曲绘就是从live视觉图里抠的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+wsd你是真的很抠门
+
+*****
+
+####  6030sylar  
+##### 11911#       发表于 2024-2-7 19:49
+
+<img src="https://img.saraba1st.com/forum/202402/07/194855mpqut2bjqchczpje.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>eaa6e4ddd4fbbd574896460db539119f.jpeg</strong> (247.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-7 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202402/07/194903ggfjxgj2td73f3gx.jpg" referrerpolicy="no-referrer">
+
+<strong>9fb0c1575bde70d3cef3f0618f3c3a4d.jpg</strong> (168.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-7 19:49 上传
+
+*****
+
+####  NODY  
+##### 11912#       发表于 2024-2-7 19:49
+
+狗团一年前的柄现在还在卖呢，更悲伤的是一年前的图还比现在好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很好奇武士道把品位差写进人设并且坚持在周边里还原设定是生怕卖得出去吗
+

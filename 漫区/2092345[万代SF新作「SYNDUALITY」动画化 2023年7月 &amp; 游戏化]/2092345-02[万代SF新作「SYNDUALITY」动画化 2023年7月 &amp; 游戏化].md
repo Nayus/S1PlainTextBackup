@@ -959,3 +959,11 @@ QQ图片20240206194841.jpg
 太难了，菜鸡主角变强的最佳捷径他都用不了</blockquote>
 不过“你”是个好人jpg，还是能影响别人的好人，所以这点连对面具男都有一点杀伤力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星降る森  
+##### 3710#       发表于 2024-2-7 21:37
+
+米斯提看起来也不能变成小绿，不知道这要怎么翻盘了
+

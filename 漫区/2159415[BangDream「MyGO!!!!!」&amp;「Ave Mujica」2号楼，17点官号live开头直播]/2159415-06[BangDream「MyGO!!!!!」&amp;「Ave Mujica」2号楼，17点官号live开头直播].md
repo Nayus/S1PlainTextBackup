@@ -22399,3 +22399,11 @@ wsd你是真的很抠门
 
 很好奇武士道把品位差写进人设并且坚持在周边里还原设定是生怕卖得出去吗
 
+
+*****
+
+####  PDQ4  
+##### 11913#       发表于 2024-2-7 19:58
+
+反正真的又是一图n吃也能接受就是了，虽然1st一般但至少不鬼图。盘封面包装能像迷你专一样好看就是大胜利。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -1984,3 +1984,11 @@ Timberborn_jhtAfjZ25s.jpg
 
 解决恶水流向的水道，就基本又就进入垃圾时间。
 
+
+*****
+
+####  wthall  
+##### 168#       发表于 2024-2-7 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我买了，玩了以后就一个感觉，城镇扩大以后远点的地方海里都不去建造了，那我就开新的城镇中心。然后发现新的城镇中心啥都没，需要手动点所有的资源送过去才能慢慢开拓，直接麻烦的我不想玩了
+

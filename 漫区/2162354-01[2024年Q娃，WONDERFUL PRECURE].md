@@ -3182,3 +3182,16 @@ https://weibo.com/3888885364/NFl9Diuwk</blockquote>
 
 第二应该是CP。星闪整部能明显看出来阿圆对阿光的感情是不一样的，光拉上线是在中后期了。最后的那点糖渣有点……阿圆默默支撑阿光十五年什么的，是直女最爱的百合闺蜜情口牙。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">天Q从一开始就在推蓝白，虽然队长实在太棒，但咱的心没有动摇过。只是可惜了鸟蝶。鸟蝶姬什么乱七八糟的。
 
+
+*****
+
+####  帝下室の年糕  
+##### 797#       发表于 2024-2-7 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908256&amp;ptid=2162354" target="_blank">脚底心，洗则白 发表于 2024-2-7 18:19</a>
+
+其实个人觉得天Q比星闪要好一些的。
+
+配阿光时成濑瑛美用的本音，很尖。加芙娃那就更尖了。一集集看下来折 ...</blockquote>
+天Q开头比星闪更惊艳，结局包的饺子也更圆满一点吧，整的黑化活也比福娃炸弹好多了
+

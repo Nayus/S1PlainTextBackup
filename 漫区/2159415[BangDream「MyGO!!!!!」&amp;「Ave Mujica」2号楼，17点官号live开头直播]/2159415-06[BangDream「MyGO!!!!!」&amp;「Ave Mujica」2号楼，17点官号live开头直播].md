@@ -22454,3 +22454,20 @@ wsd你是真的很抠门
 
 这是头套？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuyin589  
+##### 11918#       发表于 2024-2-7 21:59
+
+live会露脸吗，不会也带这个上场吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  紫吹兰  
+##### 11919#         楼主| 发表于 2024-2-7 22:04
+
+应该不会戴这个上场，至少主唱收音很困难啊，倒是可以明年mujica真人暴露后把面具退役给她们
+

@@ -564,3 +564,11 @@ OK，加到了
 氪了一单 连个四星都没出 我是傻逼</blockquote>
 你还是忍不住啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GALLADE  
+##### 46125#       发表于 2024-2-7 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天带的是狗，以后可能带的是毫无自充的自buff的神
+

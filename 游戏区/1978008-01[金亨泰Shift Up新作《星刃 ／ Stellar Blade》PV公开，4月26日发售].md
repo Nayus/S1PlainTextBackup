@@ -580,3 +580,57 @@ The developer stressed that none of these outfits will require additional purcha
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文字幕不会只有港服有吧..............那就只能选英配和韩配？
 
+
+*****
+
+####  rainsheep  
+##### 274#       发表于 2024-2-7 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63904927&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2024-2-7 11:08</a>
+中文字幕不会只有港服有吧..............那就只能选英配和韩配？</blockquote>
+日服商店没写有哪些字幕，港服写明了有哪些字幕和语音的。感觉日版多半没有中文
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Piano-Forest  
+##### 275#         楼主| 发表于 2024-2-7 11:14
+
+港服：
+[https://store.playstation.com/zh ... 00-STELLARBLADE0000](https://store.playstation.com/zh-hans-hk/product/HP9000-PPSA13198_00-STELLARBLADE0000)
+
+语音: 英文, 韩文
+
+字幕: 英文, 繁体中文, 简体中文, 韩文, 泰文
+
+日服：
+[https://store.playstation.com/ja ... 00-STELLARBLADE0000](https://store.playstation.com/ja-jp/product/JP9000-PPSA13195_00-STELLARBLADE0000)
+
+*****
+
+####  subject07  
+##### 276#       发表于 2024-2-7 11:15
+
+一个韩国游戏公司能把油腻师姐做的这么丑也是不多见，不上mod玩不了一点
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  宛若青空  
+##### 277#       发表于 2024-2-7 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63904994&amp;ptid=1978008" target="_blank">rainsheep 发表于 2024-2-7 11:14</a>
+日服商店没写有哪些字幕，港服写明了有哪些字幕和语音的。感觉日版多半没有中文
+
+—— 来自 vivo V2241A, ...</blockquote>
+港服一直有习惯发售前先写字幕，但是这次标题写着有日文字幕，详情里却没有，很怪
+
+*****
+
+####  椎名mahuyo  
+##### 278#       发表于 2024-2-7 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">9国配音无中文
+

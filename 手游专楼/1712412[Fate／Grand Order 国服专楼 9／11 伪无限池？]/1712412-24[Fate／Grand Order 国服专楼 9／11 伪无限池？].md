@@ -593,3 +593,13 @@ OK，加到了
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  fengzijiang  
+##### 46128#       发表于 2024-2-7 19:03
+
+每次看到烟雾镜二破就想起“你也很为我着迷吧.jpg”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

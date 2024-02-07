@@ -579,3 +579,14 @@ ff16之后我对se已经很害怕了<img src="https://static.saraba1st.com/image
 现在只要肯堆料分数就不会低，猜一个91</blockquote>
 你说这话让星空猴子信条这些真欧美堆料游戏情何以堪
 
+
+*****
+
+####  MobyDickStudio  
+##### 64#       发表于 2024-2-7 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908570&amp;ptid=2152770" target="_blank">Dorohedoro 发表于 2024-2-7 19:00</a>
+
+你说这话让星空猴子信条这些真欧美堆料游戏情何以堪</blockquote>
+你指堆料的是1000颗大部分雷同的星球，还是一键自动生成的据点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

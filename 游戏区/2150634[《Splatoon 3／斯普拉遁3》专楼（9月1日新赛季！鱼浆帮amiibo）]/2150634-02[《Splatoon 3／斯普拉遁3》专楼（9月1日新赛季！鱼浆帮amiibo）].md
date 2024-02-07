@@ -12523,3 +12523,31 @@ RPG要是能加个前摇就好了，开的瞬间根本没机会躲，二人轮�
 
 870不打了，最后一把max局还打赢了嘴岗，可以了，700-800坐牢太严重
 
+
+*****
+
+####  罗克萨斯  
+##### 2742#       发表于 2024-2-7 13:38
+
+怪不得上位势们喜欢2+1的组合，这样的装备可复用性确实要比1.3或者0.3强些。有碎片且懒得重新洗装备观星时，直接用碎片也更省些
+
+<img src="https://img.saraba1st.com/forum/202402/07/133901ydq79g4gaaznte2t.jpg" referrerpolicy="no-referrer">
+
+<strong>share_image(10).jpg</strong> (176.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-7 13:39 上传
+
+<img src="https://img.saraba1st.com/forum/202402/07/133901ar88498m142pvtzv.jpg" referrerpolicy="no-referrer">
+
+<strong>share_image(1)(2).jpg</strong> (175.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-7 13:39 上传
+
+然后我的理想配装（非理想穿搭）完成了，可以安心攒走速碎片给海月海牛套头衫用了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

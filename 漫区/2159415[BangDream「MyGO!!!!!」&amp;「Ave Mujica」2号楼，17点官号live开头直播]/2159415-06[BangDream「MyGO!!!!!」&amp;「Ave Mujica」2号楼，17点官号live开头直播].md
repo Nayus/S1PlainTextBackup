@@ -22940,3 +22940,34 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 虽然纸片人没有人权，但是部分观众的恶意还是有点让人摸不着头脑
 
+
+*****
+
+####  笋干爆炸碱  
+##### 11969#       发表于 2024-2-8 09:27
+
+想起了一些我家被美帝拉去扮演类似黄片里熟睡丈夫角色的恐怖回忆<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 11970#       发表于 2024-2-8 09:30
+
+12集过后，祥黑真的是群魔乱舞，Q群NGA贴吧集体狂欢，我记得金汁论坛好像还直接开贴你最喜欢的鸡狗团的角色但只能选9个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姐妹论算是帮祥子度过了最黑暗的那段时间。13集出来以后一直到现在，黑粉少说也是五五开，虽然尼姑庵还是动不动把祥子拉出来车一下，但其他地方总的来说没那么多无脑黑的了（虽然玩烂梗的也多就是了）
+
+*****
+
+####  安洁莉娜  
+##### 11971#       发表于 2024-2-8 09:33
+
+哎，ccc和mygo的角色都有各种问题，这本是公认的，而在二创里，大家却又淡化甚至美化这些缺点，所以矛盾就来了
+
+该说是二创的本性如此，还是人的本性如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 11972#       发表于 2024-2-8 09:33
+
+反正我是没觉得播放期间的讨论氛围跟现在比好在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说第8集之前确实正常讨论的多，但第8集开始讨论环境就已经开始不对劲了，越到后面越是乌烟瘴气群魔乱舞。
+

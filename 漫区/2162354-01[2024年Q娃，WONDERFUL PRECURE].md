@@ -3384,3 +3384,16 @@ fy
 
 2024-2-8 09:04 上传
 
+
+*****
+
+####  modedd  
+##### 815#       发表于 2024-2-8 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63912274&amp;ptid=2162354" target="_blank">犬飼いろは 发表于 2024-02-08 08:53:42</a>
+前 2 张：月刊アニメージュ 2024年3月号
+
+后 2 张：アニメディア 2024年3月号</blockquote>悟和兔子的存在感真的好高，狗组下集主人就变身了，猫组感觉也是高度绑定，今年真的会有双男q嘛<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

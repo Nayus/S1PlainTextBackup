@@ -15692,3 +15692,39 @@ s1应该是修好了，现在所有楼只差一层楼，不过回复跳转，消
 
 行吧，又成我逻辑不顺了，争议大指是风气，随你定义呗，我提出“问题在于争议大且未完成”的时候你又看懂我的定义了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 12077#       发表于 2024-2-8 12:44
+
+只抓到关键字就兴奋了是这样，毕竟隔壁祥厨哪怕是先叠满甲"祥子很多缺点"，都会被一转"祥厨又来洗地了" "承认自己厨的角色有黑点很难吗？"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12078#       发表于 2024-2-8 12:44
+
+那确实就是和漏油说的一样，如果你的逻辑是：问题在于争议大且未完成，所以争议大未完成就可以随便黑角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的建议是隔壁比较凉快你可以左转出门
+
+*****
+
+####  Kfly  
+##### 12079#       发表于 2024-2-8 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63914183&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-8 12:41</a>
+
+這個樓友不會真的是覺得“爭議大”就可以隨便罵隨便黑了吧</blockquote>
+我最开始都说了此时定死的结论到时候或多或少都会被打脸，你还觉得“可以随便黑”，我也不知说啥好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12080#       发表于 2024-2-8 12:45
+
+很簡單的事，樓友在說當時的祥廚沒有呼吸權，嘴當時的風氣很多人直球黑祥子罵祥子，你就說你覺得這種行為可取不可取嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+既然你覺得不可取，那你突然提一個“祥子爭議大”又是想幹嘛，不會是想說“祥子爭議大所以被隨便罵隨便黑都是應該的”吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哇哦。
+

@@ -634,3 +634,17 @@ The long is long.
 
 另外西方龙都是恶龙倒不至于，魔兽世界巨龙时代还让玩家玩小龙人呢。不过西方龙不如东方龙形象高贵确实是真的。
 
+
+*****
+
+####  poppin  
+##### 65#       发表于 2024-2-9 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919042&amp;ptid=2171337" target="_blank">螺纹 发表于 2024-2-8 23:24</a>
+西方的龙不也细分很多么，wyrm什么的
+
+—— 来自 HONOR PGT-AN10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://p.sda1.dev/15/ca0430358b96dde2b5ae9be2dbd92035/003451lkglf355lyl75txf.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

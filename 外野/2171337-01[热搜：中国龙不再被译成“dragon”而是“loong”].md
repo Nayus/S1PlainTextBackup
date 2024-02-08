@@ -798,3 +798,59 @@ The long is long.
 
 异体字其实不是很恰当，但确实能和大众认知的龙还有繁体龍区分开来
 
+
+*****
+
+####  火樹銀華  
+##### 81#       发表于 2024-2-9 05:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919928&amp;ptid=2171337" target="_blank">月夜凝雪 发表于 2024-2-9 03:16</a>
+就是西游记里的龙都没什么好高贵的
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.5.2-p ...</blockquote>
+那又是印度来的龙了
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  4396777  
+##### 82#       发表于 2024-2-9 05:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919112&amp;ptid=2171337" target="_blank">mysterysilent 发表于 2024-2-8 18:34</a>
+
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
+但其实更多的是用饺子的罗马音代替的汉语拼音，至少在这一方面我们要做的其实还真不少
+
+*****
+
+####  4396777  
+##### 83#       发表于 2024-2-9 05:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919112&amp;ptid=2171337" target="_blank">mysterysilent 发表于 2024-2-8 18:34</a>
+
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
+但其实更多的是用日文饺子的了罗马音代替汉语拼音
+
+*****
+
+####  星之卡比  
+##### 84#       发表于 2024-2-9 06:06
+
+是的，把饺子叫做jiaozi我现实中一次都没见过。
+
+但是包子普及的就很好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大概跟某连锁店有关。
+
+*****
+
+####  JustWWW  
+##### 85#       发表于 2024-2-9 06:10
+
+<blockquote>Hydro 发表于 2024-2-9 01:27
+激进一点，快进到无翻译主义
+
+龙的唯一合法表述就是龙，读作龙写作龙，必须以汉语输入法输入此符号
+
+同样发源 ...</blockquote>
+虽然不至于快进到只能用中文输入法，但自己主动去考虑或者纠正一个中文单词怎么翻译成英文，已经是英语绝对中心且有韩国这样混淆视听的情况下的权宜之计了。我看白皮们讨论的很多anime的标题都是硬用罗马音的，说明主要还是看有没有兴趣。
+

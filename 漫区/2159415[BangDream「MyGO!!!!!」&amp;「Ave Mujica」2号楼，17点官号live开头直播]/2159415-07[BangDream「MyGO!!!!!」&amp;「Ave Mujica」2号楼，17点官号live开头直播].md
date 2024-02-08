@@ -16682,3 +16682,13 @@ https://moegirl.uk/Ryona
 
 《孤独摇滚》的同人没太关注，我觉得坛友说的是《K-ON！》（如：蛸壷屋）
 
+
+*****
+
+####  PDQ4  
+##### 12185#       发表于 2024-2-8 17:06
+
+真是所有角色都套皮搞r18g那我反而可以当笑话看小众xp出来搞露阴癖。有些大作遭殃的永远只有几个人还一堆粉丝叫好追捧，我不好说什么成分，感觉情绪输出很明显。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+lof和p这种地方还可以拉黑作者，公共论坛之类就没什么办法，毕竟环境风气这样，只能自己开润到相对比较和谐的地方。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

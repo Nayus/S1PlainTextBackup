@@ -15460,3 +15460,138 @@ s1应该是修好了，现在所有楼只差一层楼，不过回复跳转，消
 
 不懂就差一岁怎么叫铜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不过猫希相处还挺有温度的比较喜欢
 
+
+*****
+
+####  相坂君  
+##### 12052#       发表于 2024-2-8 12:24
+
+泥楼没否认过祥子缺陷吧，争议处楼里都有讨论过，也没少吵
+前面在说祥厨背负，讨论环境没有呼吸权怎么又拐到角色身上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 12053#       发表于 2024-2-8 12:24
+
+ 本帖最后由 Kfly 于 2024-2-8 12:26 编辑 
+
+你要觉得我是争议大就是黑祥子那没啥好说的了，有东西去争本身能说明啥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当时扯祥子组ave就是为了赚米之类的话题我可是直接去否定，但只要提祥子楼层数立马飞升也是事实，这算不算争议大？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安洁莉娜  
+##### 12054#       发表于 2024-2-8 12:25
+
+那我放心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+立希对猫猫难道不是像照顾妹妹一样吗？立希和姐姐的关系说不定会因此变得更近
+
+*****
+
+####  相坂君  
+##### 12055#       发表于 2024-2-8 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">所以这里也要开分锅大会吗？
+
+*****
+
+####  Aendst  
+##### 12056#       发表于 2024-2-8 12:25
+
+ 本帖最后由 Aendst 于 2024-2-8 12:27 编辑 
+
+打滚开始了，上次是围绕所谓的“chrisma”歪话题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只要我不提单方面踩头黑角色就没人知道原本本来是在聊单方面踩头黑角色<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12057#       发表于 2024-2-8 12:27
+
+這個樓友都天天泡在隔壁了，還在睜眼說什麼瞎話啊？
+
+爭議大是爭議大，正常討論沒問題，但隔壁一大堆都什麼東西？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12058#       发表于 2024-2-8 12:27
+
+我看得还是很开的，炼铜劈这种没啥恶意的梗流传起来总比一本正经车立希80犯压力怪舔狗要好<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12059#       发表于 2024-2-8 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来又是结界大开了，隔壁这么嫌弃泥漏可以不屈尊过来勇闯迷宫的
+
+*****
+
+####  -LYRE-  
+##### 12060#       发表于 2024-2-8 12:28
+
+ 本帖最后由 -LYRE- 于 2024-2-8 12:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913977&amp;ptid=2159415" target="_blank">Kfly 发表于 2024-2-8 12:14</a>
+没见过无争议还提呼吸权的，都为祥子说话了还扭捏啥呢，说就说呗
+
+“当时”倒是我看错了，不过第七集 ...</blockquote>
+这楼不都直球说自己祥厨、祥孝吗？
+谁扭捏了？扭捏的不是你吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 12061#       发表于 2024-2-8 12:29
+
+这楼不都直球说自己祥厨、祥孝吗？
+谁扭捏了？扭捏的不是12045楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 12062#       发表于 2024-2-8 12:31
+
+有争议就好好讨论争议的点，而不是直球黑角色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有直接给角色扣二创刻板印象的帽子的，随便就歪楼了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|就是說|
+
+查看全部评分
+
+*****
+
+####  安洁莉娜  
+##### 12063#       发表于 2024-2-8 12:31
+
+艹，你楼的武德突然很是犀利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 12064#       发表于 2024-2-8 12:31
+
+吓死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">新漏油又是隔壁的我还以为指我呢
+
+*****
+
+####  Kfly  
+##### 12065#       发表于 2024-2-8 12:32
+
+ 本帖最后由 Kfly 于 2024-2-8 12:33 编辑 
+
+先说祥子争议不大的是谁啊，我这又成转移话题了，本来只要承认这点就没啥额外好聊的，我啥时候否定当时针对祥子的风气了？又不是没统计过角色提及次数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说祥子争议不大我是觉得挺扭捏的，既然都觉得这里是祥楼的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

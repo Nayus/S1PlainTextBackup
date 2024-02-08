@@ -765,3 +765,14 @@ The long is long.
 
 搜了下“loong”，不是china daily就是CGTN，说白了还是自嗨罢了，人家也没人用啊
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 78#       发表于 2024-2-9 05:11
+
+我反正一直致力于恶心公司的棒子，坚持用Chinese New Year（谁让他们天天Korean Lunar New Year），不过我看白皮同事门儿清，还有几个配合我说Chinese New Year的。
+但推广Loong确实任重道远，今天给同事群发贺卡，斟酌了半天Year of the Dragon还是Year of Loong，考虑到普适性还是用了dragon<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

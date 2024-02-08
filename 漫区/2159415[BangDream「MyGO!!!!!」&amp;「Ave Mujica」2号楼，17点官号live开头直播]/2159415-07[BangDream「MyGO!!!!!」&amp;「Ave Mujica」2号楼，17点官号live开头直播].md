@@ -15728,3 +15728,126 @@ s1应该是修好了，现在所有楼只差一层楼，不过回复跳转，消
 
 哇哦。
 
+
+*****
+
+####  Aendst  
+##### 12081#       发表于 2024-2-8 12:46
+
+说实话，从一般逻辑出发，一群人说角色被黑风气很差的时候突然有人跳出来说什么是因为角色没完成有争议
+
+颇有一种苍蝇不叮无缝蛋的恶臭味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12082#       发表于 2024-2-8 12:48
+
+都不用“當時”了，現在隔壁也還是捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甚至還有愛祥80文，代入了作者多少情緒我不好說，隨便看一眼就覺得，哇哦 好恨祥子哦 好吧<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 12083#       发表于 2024-2-8 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63914203&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-8 12:44</a>
+
+那确实就是和漏油说的一样，如果你的逻辑是：问题在于争议大且未完成，所以争议大未完成就可以随便黑角色[f ...</blockquote>
+现在看来你们才是没看懂我最初的发言，“现在就定死的评价到第二季多少都会在某方面被打脸”这能看出偏袒谁了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12084#       发表于 2024-2-8 12:50
+
+<blockquote>“现在就定死的评价到第二季多少都会在某方面被打脸”这能看出偏袒谁了</blockquote><blockquote>没见过无争议还提呼吸权的，都为祥子说话了还扭捏啥呢，说就说呗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你好扭捏啊，原来扭捏是自我介绍
+
+*****
+
+####  相坂君  
+##### 12085#       发表于 2024-2-8 12:51
+
+原来现在是不能吐槽祥厨待遇…
+看来要贷款明年才能改待遇，一块大饼，先啃11个月<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 12086#       发表于 2024-2-8 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63914241&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-8 12:50</a>
+
+那你好扭捏啊，原来扭捏是自我介绍</blockquote>
+兄弟觉得争议不大不也挺扭捏的，不过你重新定义后就不扭捏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 12087#       发表于 2024-2-8 12:53
+
+其实这么多年，争议大的角色被人追着车也是定番了，但是go这边主要是车的莫名其妙的，有时候感觉大家看的不是同一部番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12088#       发表于 2024-2-8 12:54
+
+柄图美丑影响价格实例演示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平时调价一般是爱灯素＞猫＞＞立希，猫能沦为和立希不相上下的价格说明衣服真的很丑，武士道不要再坚持还原衣品烂的人设了
+
+<img src="https://img.saraba1st.com/forum/202402/08/125341yx4rslw1cjrwodif.jpg" referrerpolicy="no-referrer">
+
+<strong>D381BD36600E652E2DB0BF4CB72E4D76.jpg</strong> (120.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-8 12:53 上传
+
+*****
+
+####  PDQ4  
+##### 12089#       发表于 2024-2-8 12:55
+
+争议大所以呢，争议大活该被剥夺呼吸权是吧。而且这个争议大还是祥厨被单方面踩头的状态，祥厨说一句对面骂十句加一个扇祥子两巴掌，在你这叫五五开是吧，反正被骂的是祥子祥厨不是你，搁这替别人阿q精神可太抽象了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有一种你看祥厨还会说话，根本没被憋死，所以没被剥夺呼吸权的美感。兄弟你是美团装瞎十级的商家吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12090#       发表于 2024-2-8 12:57
+
+ 本帖最后由 Aendst 于 2024-2-8 13:02 编辑 
+
+泥漏结界大开不明生物打滚的气氛怎么都是一样的，你说东我说西，能歪话题就歪话题，拽住关键字不放没完没了抓着人回复（不知道是不是故意的反正可以让泥漏卡页更严重）
+
+没关系，我已经学会了，只要让话题恢复正轨就好了
+
+之前还说现在环境变好了的我撤回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+角色黑怎么了，角色有争议就是可以瞎黑，角色塑造没完成就是角色自己的问题，都可以黑
+
+虽然全网id但没关系，有祥厨呼吸的地方就可以出警，我们正义路人从来不缺正义感
+
+之前在播的时候也差不多这个样子，有祥厨说话反驳就是祥子问题大上天，你们祥厨这样我们才不喜欢祥子
+
+*****
+
+####  御幸一也  
+##### 12091#       发表于 2024-2-8 12:59
+
+回12087#
+
+太多人代入了吧，之前還有一個計較哥 “爽世不計較了但觀眾計較”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+真的蠻問號的，還是如樓友所說，要不第二季祥子對著螢幕外磕個頭算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12092#       发表于 2024-2-8 13:01
+
+怎么是祥子磕头，能不能mggm出来磕个头，真整这种活我真的会爆米的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

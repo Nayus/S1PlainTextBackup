@@ -3463,3 +3463,13 @@ fy
 
 猫是成熟可靠的大姐姐，至福……
 
+
+*****
+
+####  starring  
+##### 823#       发表于 2024-2-8 18:43
+
+没肉搏戏？复刻甜点，寄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

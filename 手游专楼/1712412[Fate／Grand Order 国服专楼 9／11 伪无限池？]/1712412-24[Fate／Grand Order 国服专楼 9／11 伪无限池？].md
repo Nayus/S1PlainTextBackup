@@ -720,3 +720,11 @@ RP还是守恒的，上一单石沉大海<img src="https://static.saraba1st.com/
 
 看了看礼物盒把前几天累计登录给的30石放进去，最后出了女教皇，收工
 
+
+*****
+
+####  Urakawa  
+##### 46141#       发表于 2024-2-8 22:00
+
+30抽 教皇desu<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

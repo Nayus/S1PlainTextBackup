@@ -858,3 +858,14 @@ Eve 19-24年的人设变化
 Eve 19-24年的人设变化</blockquote>
 好像还是21年那版最平衡。
 
+
+*****
+
+####  persona  
+##### 298#       发表于 2024-2-8 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913723&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-2-8 11:44</a>
+
+Eve 19-24年的人设变化</blockquote>
+好像还是21年那版最平衡。
+

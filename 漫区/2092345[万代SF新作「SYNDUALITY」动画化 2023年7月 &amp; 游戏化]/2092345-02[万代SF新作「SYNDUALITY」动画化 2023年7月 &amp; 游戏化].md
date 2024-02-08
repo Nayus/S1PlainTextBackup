@@ -1070,3 +1070,14 @@ QQ图片20240206194841.jpg
 <img src="https://p.sda1.dev/15/7ea9c3fa9aac21c981b93c535a573d9f/20240208_221408.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/07335dd42098c859f7d3410548c8bc3e/20240208_221411.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3720#       发表于 2024-2-8 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63893949&amp;ptid=2092345" target="_blank">cauchua2 发表于 2024-2-6 01:35</a>
+
+截止 15 话 男主弱很正常吧，本人的技术是真不行，机体也不是啥特机。超算虽然不菜决斗的黑假面超算和她也 ...</blockquote>
+彼方想事情也还是比较周到的，去遗址前还特意希望如果回不来就让艾达他们把诺娃送回小镇
+

@@ -12611,3 +12611,11 @@ RIP BBz  另外瓜刚才这XP跳水堪比某证指数了，5k还有希望吗�
 
 好队友难求啊，坐牢到800，最后六连胜到930，可惜没时间了
 
+
+*****
+
+####  藏獒·烨  
+##### 2750#       发表于 2024-2-9 01:27
+
+UU这几天坐牢概率猛增啊，地瓜说最近裸连成功率高了就试了试，还真是<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

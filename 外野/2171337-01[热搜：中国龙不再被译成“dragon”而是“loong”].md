@@ -550,3 +550,30 @@ The long is long.
 歪个楼，中东这个词带着欧洲中心论遗毒，西亚又不包括埃及，有没有合适的词呢 ...</blockquote>
 不就是阿拉伯地区//**教地区/**地区么，以色列是地区的另类不惯着它∠( ᐛ 」∠)_
 
+
+*****
+
+####  Hydro  
+##### 58#       发表于 2024-2-9 01:27
+
+激进一点，快进到无翻译主义
+
+龙的唯一合法表述就是龙，读作龙写作龙，必须以汉语输入法输入此符号
+
+同样发源于各个文化的概念必须以其原文的符号输入传输，法语德语阿拉伯语希伯来语，翻译后自动认定为是异端学说
+
+上帝直呼内行（指摧毁巴别塔计划）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中国科学院  
+##### 59#       发表于 2024-2-9 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919741&amp;ptid=2171337" target="_blank">Hydro 发表于 2024-2-9 01:27</a>
+激进一点，快进到无翻译主义
+
+龙的唯一合法表述就是龙，读作龙写作龙，必须以汉语输入法输入此符号
+
+同样发源 ...</blockquote>
+什么古兰经化
+

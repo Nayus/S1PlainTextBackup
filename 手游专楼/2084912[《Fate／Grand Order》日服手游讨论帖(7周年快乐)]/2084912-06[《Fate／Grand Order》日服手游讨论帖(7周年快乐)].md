@@ -86,3 +86,20 @@
 好急好想知道情人节新女人是谁宇宙樱魂兮归来……爱神魂兮归来……虽然据说又 ...</blockquote>
 也看到有人奶是西班牙女王伊莎贝拉一世，哥伦布的大金主<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11306#       发表于 2024-2-8 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63909152&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-2-7 19:56</a>
+
+https://www.bilibili.com/video/BV1J2421c7n9/
+
+丢个新高难3t  用切嗣baba 技能111直接可以秒了 ...</blockquote>
+照炒功課完成
+
+不過切嗣看了他的技能後，感覺FGO真是太懶了，怪不得3技都不用強化，因為根本用不上...
+
+順便丟了30石去巴姐池，7張都是同一張4星禮裝，當場呆了...
+

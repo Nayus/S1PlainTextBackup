@@ -1057,3 +1057,16 @@ QQ图片20240206194841.jpg
 论坛助手,iPhone ...</blockquote>
 转机不像在彼方身上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仮思海（梶裕貴配音那个角色）都要求雪儿（Ciel）杀了彼方了
 
+
+*****
+
+####  Piano-Forest  
+##### 3719#         楼主| 发表于 2024-2-8 22:15
+
+第16話原画
+<img src="https://p.sda1.dev/15/3a37aea8b7eab7fc7bc96a66a12819c4/20240208_221356.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/f71e7e083aaf7a1a4e355a5dfe6e12b5/20240208_221401.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/8cd8b6f8e4e77314d173e0f56f5b7415/20240208_221403.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/7ea9c3fa9aac21c981b93c535a573d9f/20240208_221408.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/07335dd42098c859f7d3410548c8bc3e/20240208_221411.jpg" referrerpolicy="no-referrer">
+

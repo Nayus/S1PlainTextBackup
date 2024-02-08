@@ -17130,3 +17130,13 @@ z8经验包组合<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 最有团魂的一集
 
+
+*****
+
+####  基神的强袭自由  
+##### 12235#       发表于 2024-2-8 22:46
+
+s1fun更新了，好像可以用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

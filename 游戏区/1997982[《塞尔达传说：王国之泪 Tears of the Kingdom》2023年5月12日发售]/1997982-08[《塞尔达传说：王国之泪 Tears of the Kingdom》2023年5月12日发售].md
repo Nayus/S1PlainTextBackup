@@ -31,3 +31,16 @@
 
 对比起来王泪在日本也卖的太快了
 
+
+*****
+
+####  冷泉夜月  
+##### 15643#       发表于 2024-2-8 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63916632&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2024-02-08 17:53:05</a>
+这个不错，预定了一个</blockquote>墨策这波价格确实不错2只都订了，别的代购店都要180以上，他这边只要150<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+顺带F4F还要出希卡之石的手办，估计是能发光的，但是应该没有音声，未来看来还是得靠财团B<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

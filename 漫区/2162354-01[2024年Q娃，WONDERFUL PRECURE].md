@@ -3229,3 +3229,158 @@ Fuwa炸弹这个设计对于子贡向作品来说实在是过于劲爆了<img sr
 
 而且虽然可能制作组不是有意的，但是一结合星闪组在Fuwa自爆前唯心被常态蛇夫暴打，然后在蛇夫拿到Fuwa的力量强化了一波把宇宙炸了后强化蛇夫反而被唯心变身的星闪组按着头暴打的事，我是真的怀疑这群屑星座公主们怕Q娃知道了Fuwa炸弹的事要报复自己所以有意限制了星闪组的变身器输出功率所以前面星闪组才吃瘪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 801#       发表于 2024-2-7 21:38
+
+无印才7分区，我是不服的
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Sliurus  
+##### 802#       发表于 2024-2-7 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908256&amp;ptid=2162354" target="_blank">脚底心，洗则白 发表于 2024-2-7 18:19</a>
+ 其实个人觉得天Q比星闪要好一些的。  配阿光时成濑瑛美用的本音，很尖。加芙娃那就更尖了。一集集看下来折 ...</blockquote>
+粉紫真是意难平，能感受到有人偷偷在推但是大方向拗不过粉绿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 803#       发表于 2024-2-7 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908256&amp;ptid=2162354" target="_blank">脚底心，洗则白 发表于 2024-02-07 18:19:54</a>
+其实个人觉得天Q比星闪要好一些的。
+
+配阿光时成濑瑛美用的本音，很尖。加芙娃那就更尖了。一集集看下来折 ...</blockquote>粉紫真是意难平，能感受到有人偷偷在推但是大方向拗不过粉绿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+*****
+
+####  帝下室の年糕  
+##### 804#       发表于 2024-2-7 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908317&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-7 18:28</a>
+
+天Q开头比星闪更惊艳，结局包的饺子也更圆满一点吧，整的黑化活也比福娃炸弹好多了 ...</blockquote>
+翻页
+
+*****
+
+####  Sliurus  
+##### 805#       发表于 2024-2-7 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908256&amp;ptid=2162354" target="_blank">脚底心，洗则白 发表于 2024-2-7 18:19</a>
+ 其实个人觉得天Q比星闪要好一些的。  配阿光时成濑瑛美用的本音，很尖。加芙娃那就更尖了。一集集看下来折 ...</blockquote>
+粉紫真是意难平，能感受到有人偷偷在推但是大方向拗不过粉绿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 806#       发表于 2024-2-7 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63908256&amp;ptid=2162354" target="_blank">脚底心，洗则白 发表于 2024-02-07 18:19:54</a>
+其实个人觉得天Q比星闪要好一些的。
+
+配阿光时成濑瑛美用的本音，很尖。加芙娃那就更尖了。一集集看下来折 ...</blockquote>粉紫真是意难平，能感受到有人偷偷在推但是大方向拗不过粉绿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+*****
+
+####  modedd  
+##### 807#       发表于 2024-2-7 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63902346&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-6 23:18</a>
+
+q娃现在的bg戏真是想相信东大妈都找不到说服自己的理由呀，上一部bg正作食q和最近的希望之力都挺一言难尽的 ...</blockquote>
+test
+
+*****
+
+####  深渊魔魂  
+##### 808#       发表于 2024-2-7 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63904867&amp;ptid=2162354" target="_blank">深渊魔魂 发表于 2024-2-7 11:02</a>
+
+第一集
+
+……就挺普通地表现了q娃的家庭，以及怀着强烈的保护主人的心情而变身的wonderful……什么的
+
+这剧情 ...</blockquote>
+翻页
+
+*****
+
+####  钟鸣法隆寺  
+##### 809#       发表于 2024-2-7 22:41
+
+翻页？
+
+*****
+
+####  HANDAIYV  
+##### 810#       发表于 2024-2-7 22:57
+
+要我说星闪和天空半斤八两吧，人物塑造普普通通还都有边缘化的，比水也是都挺水的，原谅蚱蜢和原谅艾旺都很离谱，英雄主题和想象力主题也都抓得不太行。我认为单元回天空好一点，最终战星闪好一点
+
+*****
+
+####  按时间灵活  
+##### 811#       发表于 2024-2-7 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63902969&amp;ptid=2162354" target="_blank">按时间灵活 发表于 2024-2-7 00:37</a>
+
+只翻成功一次的样子（）
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+fy
+
+*****
+
+####  梦诗歌雪  
+##### 812#       发表于 2024-2-8 00:39
+
+<blockquote>王留美 发表于 2024-2-7 09:59
+但是不牵的话难道不怕幼女前辈有样学样带大狗上街不牵狗绳嘛……
+
+如果是猫做主角的话就没这么麻烦了 ...</blockquote>
+是这样，不能教坏小孩所以遛狗还是必须栓绳。我本以为会是常态普通狗在需要时才变人，没想到狗形态也能说话
+
+*****
+
+####  犬飼いろは  
+##### 813#       发表于 2024-2-8 08:53
+
+前 2 张：月刊アニメージュ 2024年3月号
+
+后 2 张：アニメディア 2024年3月号
+<img src="https://p.sda1.dev/15/e9a70e1b3f43d0a73848e83d8c692523/Animage-202403-086.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b0db496b6b878a7b5d4110baad83cc22/Animage-202403-087.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/5f19ff3b36973833df953717954fbcba/Animedia-202403-076.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/3741b1aadc2c85c2586f518ec96c01d4/Animedia-202403-077.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  renkan119  
+##### 814#       发表于 2024-2-8 09:04
+
+因为去年是战斗很多的英雄题材 今年就反过来远离战斗 以追逐戏为主
+
+因为犬Q的主题是拯救动物 不可以伤害动物 因此要用安抚的方式净化它
+
+看访谈的说法今年确实是没有肉搏戏了？
+
+<img src="https://img.saraba1st.com/forum/202402/08/090403jzal4zg3ggb9lg0h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5685.jpeg</strong> (341.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-8 09:04 上传
+

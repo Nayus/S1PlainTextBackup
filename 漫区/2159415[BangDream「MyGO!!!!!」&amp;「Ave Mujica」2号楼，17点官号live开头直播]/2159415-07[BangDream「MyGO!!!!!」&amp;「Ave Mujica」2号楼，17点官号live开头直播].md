@@ -17140,3 +17140,14 @@ s1fun更新了，好像可以用<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nebulanoby  
+##### 12236#       发表于 2024-2-8 23:12
+
+中间两个z8公主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过meguchi不打牌吧
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

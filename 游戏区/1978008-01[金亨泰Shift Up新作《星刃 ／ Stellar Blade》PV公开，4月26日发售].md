@@ -780,3 +780,13 @@ PV里能看到解锁天赋树各节点需要消耗2~5点SP，然后简介里说�
 无所谓吧，为什么韩国游戏你们一定要听日配</blockquote>
 因为sie张罗的日语吹替往往出奇迹
 
+
+*****
+
+####  宛若青空  
+##### 291#       发表于 2024-2-8 11:44
+
+Eve 19-24年的人设变化
+
+<img src="https://img.gejiba.com/images/7bfb66a70288931c4591ea17feb4a0f8.jpg" referrerpolicy="no-referrer">
+

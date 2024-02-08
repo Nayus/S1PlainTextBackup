@@ -15214,3 +15214,67 @@ mujica动画睦哭哭是不是必有了。想看<img src="https://static.saraba1
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  笋干爆炸碱  
+##### 12022#       发表于 2024-2-8 11:44
+
+怎么不能捡呢，我又要说了立希回忆里那柔光滤镜打的可是足足的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12023#       发表于 2024-2-8 11:45
+
+从独角兽肉眼可见的喜好来说我个人是不太希望立希第二季和鸡团的任何一个有互动，感觉垫的概率90%以上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 12024#       发表于 2024-2-8 11:47
+
+因为隔壁第一次车祥厨的帖就是C团车立希后面转火祥厨洗地阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12025#       发表于 2024-2-8 11:47
+
+可是裡面的人關係好呀，帶點濾鏡也是可以的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 12026#       发表于 2024-2-8 11:48
+
+祥子和立希的问题还是“争议大且人物形象未完成”，尤其祥子，现在就定死的评价到第二季多少都会在某方面被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+素世的形象不是早从第八第九集就开始逐渐大变样 成搞笑角色 了？女诸葛是那个落后版本的产物<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12027#       发表于 2024-2-8 11:49
+
+ 本帖最后由 Aendst 于 2024-2-8 11:50 编辑 
+
+人物形象未完成就能黑和随便车了？那性质更恶劣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+爽在ep0809的形象是最难让普通人接受的（坏的意义上）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪来的搞笑角色
+
+*****
+
+####  相坂君  
+##### 12028#       发表于 2024-2-8 11:49
+
+我只是希望立希不要老是死绑全肯定，或者给乐队当爹当妈苦劳人还不讨喜，立希跟祥子关系差不也挺好，要是吵一架打一架（不可能出现的情况）我也挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12029#       发表于 2024-2-8 11:52
+
+睦希关系性可以关注吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+立希显然是懂礼貌的常识人，但是跟睦发消息的口气很直接，是否可以说明她们蛮熟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

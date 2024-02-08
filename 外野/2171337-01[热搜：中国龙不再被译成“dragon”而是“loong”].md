@@ -648,3 +648,11 @@ The long is long.
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  adonai  
+##### 66#       发表于 2024-2-9 02:56
+
+啥时候春节也直译个chunjie，让棒子无空可钻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

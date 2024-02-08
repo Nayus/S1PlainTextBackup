@@ -3418,3 +3418,16 @@ fy
 
 从访谈看 今年打戏和大招就不指望了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 818#       发表于 2024-2-8 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63912318&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-2-8 09:04</a>
+
+因为去年是战斗很多的英雄题材 今年就反过来远离战斗 以追逐戏为主
+
+因为犬Q的主题是拯救动物 不可以伤害动 ...</blockquote>
+估计在干部出来前不会有肉搏戏吧（
+

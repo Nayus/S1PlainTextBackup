@@ -769,3 +769,14 @@ PV里能看到解锁天赋树各节点需要消耗2~5点SP，然后简介里说�
 
 一个韩国游戏至少韩语配音应该是标配吧
 
+
+*****
+
+####  cedarmil1  
+##### 290#       发表于 2024-2-8 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63899486&amp;ptid=1978008" target="_blank">寂长无星夜 发表于 2024-2-6 17:34</a>
+
+无所谓吧，为什么韩国游戏你们一定要听日配</blockquote>
+因为sie张罗的日语吹替往往出奇迹
+

@@ -23130,3 +23130,20 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  yuyin589  
+##### 11989#       发表于 2024-2-8 10:28
+
+不怕二创多离谱，就怕有些人认为原作就如此<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 11990#       发表于 2024-2-8 10:32
+
+你們是不是在嘴第一爛梗“鐵暗戀”啊，我很懷疑也沒有證據，但我想加入一起嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

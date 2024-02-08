@@ -23120,3 +23120,13 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  九陌狂游  
+##### 11988#       发表于 2024-2-8 10:17
+
+二创的角色形象奇奇怪怪就算了，我会自己躲开的。别写着理性讨论，却拿二创形象硬分析剧情就行<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

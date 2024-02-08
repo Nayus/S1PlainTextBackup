@@ -656,3 +656,36 @@ The long is long.
 
 啥时候春节也直译个chunjie，让棒子无空可钻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 67#       发表于 2024-2-9 03:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919831&amp;ptid=2171337" target="_blank">星之卡比 发表于 2024-2-9 02:09</a>
+本来就应该用Long. 多元化的时代谁也不比谁低一头。凭什么我的Long就要给你英文单词让步写成loong？
+
+另外 ...</blockquote>
+就是西游记里的龙都没什么好高贵的
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  我是大鲨鱼1453  
+##### 68#       发表于 2024-2-9 03:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919313&amp;ptid=2171337" target="_blank">巨魔型美羽 发表于 2024-2-8 23:57</a>
+
+歪个楼，中东这个词带着欧洲中心论遗毒，西亚又不包括埃及，有没有合适的词呢 ...</blockquote>
+亚欧非大陆的正中心位置，“中土”其实是最合适的称呼，midearth
+
+托尔金的版权也差不多该过期了吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crystalspire  
+##### 69#       发表于 2024-2-9 03:19
+
+我觉得是微博闲的没事干自己创造的话题，这件事情你在国内改不改完全没有影响
+

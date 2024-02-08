@@ -847,3 +847,14 @@ Eve 19-24年的人设变化
 支持语言是厂商自己写的，可写可不写没有强制棒子他不写客服也没辙。客服知道的也不比我们多[f:06 ...</blockquote>
 说得对，我去问问<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（我也是在想是不是厂商没给到信息
 
+
+*****
+
+####  persona  
+##### 298#       发表于 2024-2-8 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913723&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-2-8 11:44</a>
+
+Eve 19-24年的人设变化</blockquote>
+好像还是21年那版最平衡。
+

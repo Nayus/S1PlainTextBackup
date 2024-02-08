@@ -2923,3 +2923,22 @@ I kneel
 
 pomu:你知道的，kiara是我的好姐妹，我将把天赋带到杏en
 
+
+*****
+
+####  whitersnake  
+##### 171#       发表于 2024-2-8 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913224&amp;ptid=2003757" target="_blank">wiig 发表于 2024-2-8 10:44</a>
+pomu:你知道的，kiara是我的好姐妹，我将把天赋带到杏en</blockquote>
+炸来炸去都习惯了，🌈之前的疯狂扩张肯定是有后遗症的，本社1期都有了一个走的，vta制度也和炸弹差不多，日企弊端很明显，运营思路都是日式的，现在en这边只是集中爆发了而已
+
+*****
+
+####  whitersnake  
+##### 172#       发表于 2024-2-8 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913224&amp;ptid=2003757" target="_blank">wiig 发表于 2024-2-8 10:44</a>
+pomu:你知道的，kiara是我的好姐妹，我将把天赋带到杏en</blockquote>
+炸来炸去都习惯了，🌈之前的疯狂扩张肯定是有后遗症的，本社1期都有了一个走的，vta制度也和炸弹差不多，日企弊端很明显，运营思路都是日式的，现在en这边只是集中爆发了而已
+

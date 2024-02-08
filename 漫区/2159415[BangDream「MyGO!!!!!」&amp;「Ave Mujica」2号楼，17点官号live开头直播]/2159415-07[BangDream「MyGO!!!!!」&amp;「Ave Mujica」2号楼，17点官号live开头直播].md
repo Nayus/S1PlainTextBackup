@@ -15150,3 +15150,50 @@ mujica动画睦哭哭是不是必有了。想看<img src="https://static.saraba1
 
 还有经常厨黑一车就是多页的立希待遇问题，觉得立希人设塑造完整的和觉得动画把立希当工具人的在车轱辘
 
+
+*****
+
+####  jerryoq1  
+##### 12014#       发表于 2024-2-8 11:24
+
+隔壁车祥子都是那几个论调也腻了 现在改车祥厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  
+
+车立希的是祥厨 烤羊的是祥厨 到处拉踩的也是祥厨
+
+*****
+
+####  相坂君  
+##### 12015#       发表于 2024-2-8 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">哎哟没事，来了来了祥厨背负，问就是祥厨的错！
+
+*****
+
+####  御幸一也  
+##### 12016#       发表于 2024-2-8 11:29
+
+早說了你們祥廚怎麼可以有呼吸權，你看，一呼吸就要被罵的，現在還要背鍋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 12017#       发表于 2024-2-8 11:31
+
+当时把爽世塑成女诸葛也挺难绷的。爽世从头到尾没能拿捏狗团任何一个人，第四集开头找祥子被拒绝，第四五集立希要开live，猫要进来玩一个都没拦住，第六集接着找祥子两回，如果爽世真想组原版C团，她到底想要祥子做什么我不好说。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 12018#       发表于 2024-2-8 11:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们不会真的觉得这么甩锅有意义吧，这就是最潮最in的赛博此地无银三百两吗
+
+*****
+
+####  凡人  
+##### 12019#       发表于 2024-2-8 11:32
+
+虽然作为祥厨希祥作曲我是喜闻乐见，但以独角兽的尿性，真出现这种剧情利息肯定会被拿来垫脚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

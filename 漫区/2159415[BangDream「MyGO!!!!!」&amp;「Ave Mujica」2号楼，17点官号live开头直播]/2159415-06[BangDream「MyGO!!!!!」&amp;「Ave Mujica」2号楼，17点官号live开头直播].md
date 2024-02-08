@@ -22997,3 +22997,31 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 不然怎麼都看泥樓不順眼，居然有這麼多祥廚敢呼吸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 11976#       发表于 2024-2-8 09:47
+
+还有试图用论坛投票结果来证明客观上制作组就是要把祥子塑造成讨人厌反派的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小心思昭然若揭还要拙劣地盗铃掩耳一下
+
+*****
+
+####  御幸一也  
+##### 11977#       发表于 2024-2-8 09:50
+
+可能在某些人眼裡祥子真成“反派”了，真的第二季別太破防捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+感覺他們可能忘了<strong>ave mujica</strong>也是獨立的一個要推的團，還真當成是什麼的附屬品了啊？<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11978#       发表于 2024-2-8 09:52
+
+喜报，现在已经2月了，也就是说还有11个月就有动画了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+2月过了一周多了，我新歌呢
+

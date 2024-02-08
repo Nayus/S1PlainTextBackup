@@ -663,3 +663,14 @@ OK，加到了
 
 被楼里又骗石头了，大姐姐冲击失败雨神+1<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾尔特翔  
+##### 46135#       发表于 2024-2-8 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913514&amp;ptid=1712412" target="_blank">qixinno2 发表于 2024-2-8 11:18</a>
+
+氪金也有差距 欧 羡慕</blockquote>
+RP还是守恒的，上一单石沉大海<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

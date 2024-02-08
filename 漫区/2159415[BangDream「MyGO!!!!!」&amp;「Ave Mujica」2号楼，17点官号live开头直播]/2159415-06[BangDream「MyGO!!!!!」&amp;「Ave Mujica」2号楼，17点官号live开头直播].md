@@ -23147,3 +23147,41 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 你們是不是在嘴第一爛梗“鐵暗戀”啊，我很懷疑也沒有證據，但我想加入一起嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋干爆炸碱  
+##### 11991#       发表于 2024-2-8 10:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 11992#       发表于 2024-2-8 10:39
+
+其实泥漏的版本还是有点落后的，现在的版本是车祥子和车立希二分天下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11993#       发表于 2024-2-8 10:42
+
+难道不是因为这里有大量祥厨和立希厨游动，生态不一样罢了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+隔壁车这俩才是经验包，时不时就要蕉笼手一番
+
+*****
+
+####  御幸一也  
+##### 11994#       发表于 2024-2-8 10:43
+
+泥樓包容所有無家可歸的祥廚和立希廚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  可爱美味祥子  
+##### 11995#       发表于 2024-2-8 10:43
+
+但是祥子真好啊，白祥黑祥傻祥挨打祥都好好看<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+

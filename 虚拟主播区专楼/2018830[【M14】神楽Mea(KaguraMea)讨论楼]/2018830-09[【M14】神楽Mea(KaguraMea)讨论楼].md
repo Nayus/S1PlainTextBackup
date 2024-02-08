@@ -60,3 +60,13 @@
 
 牢咩能不能喜欢c罗啊
 
+
+*****
+
+####  十九号大侠  
+##### 16253#       发表于 2024-2-8 15:52
+
+小麻肯定不喜欢侏儒啊，他都说喜欢高大的
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

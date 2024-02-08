@@ -577,3 +577,18 @@ The long is long.
 同样发源 ...</blockquote>
 什么古兰经化
 
+
+*****
+
+####  镜面不锈钢  
+##### 60#       发表于 2024-2-9 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919633&amp;ptid=2171337" target="_blank">wtf317 发表于 2024-2-9 00:55</a>
+为啥不用标准拼音long，而是用奇怪的loong，是因为龙有两个蛋嘛？
+
+本质上还是跪着站不起来，一脸献媚的想向 ...</blockquote>
+因为loong这词至少在19世纪初就被传教士使用了，有据可查足以说明是洋大人慕名而来主动接触东方文化。
+大清都亡了一百多年，还有人自己缺蛋蛋，还要拉着别人一起跪。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

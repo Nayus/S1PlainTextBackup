@@ -455,3 +455,39 @@ The long is long.
 
 本质上还是跪着站不起来，想向洋大人推销自己的文化又怕洋大人和其他常用词弄混<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安德尼特人  
+##### 49#       发表于 2024-2-9 00:56
+
+这破事儿隔几年就有所谓的学者跳出来炒一次，真的有点看烦了，不就是因为dragon在西方传统观念里是邪恶的化身吗？咱们泱泱文明古国的神兽怎么能和西方的邪恶四脚蜥蜴混为一谈呢？这事儿说白了还是没有民族自信的表现，老子就是以dragon为图腾的邪恶帝国，不服气你来打我啊，啊？
+
+*****
+
+####  猪圈傻事  
+##### 50#       发表于 2024-2-9 01:00
+
+为什么不直接用汉字龙，让西方人学中文，还是跪太久了😓
+
+*****
+
+####  wszweill  
+##### 51#       发表于 2024-2-9 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919626&amp;ptid=2171337" target="_blank">snailium 发表于 2024-2-8 11:53</a>
+
+对于具体的事物用拼音代替没啥问题，毕竟只是用作区分的。但是节日还是意译比较好。
+
+比如，没人说</blockquote>
+中文跟英文翻译习惯又不一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+比如Mardi Gras之类的直接抄的一堆，我是不太信美国人人均外语水平有多高的（）
+
+*****
+
+####  尼奥  
+##### 52#       发表于 2024-2-9 01:05
+
+靠翅膀才能飞的是哆啦罐，能操控天气打雷闪电的是龙
+

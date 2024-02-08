@@ -790,3 +790,14 @@ Eve 19-24年的人设变化
 
 <img src="https://img.gejiba.com/images/7bfb66a70288931c4591ea17feb4a0f8.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tmmd  
+##### 292#       发表于 2024-2-8 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63900508&amp;ptid=1978008" target="_blank">yyman 发表于 2024-2-6 19:34</a>
+
+第一次听棒语游戏是2000年初PC上的格兰蒂亚2，不知为啥没有日语只有棒语配音 ...</blockquote>
+因为pc版本是授权给棒子移植的(类似于法老空当甩手掌柜),棒子自己替换成了韩语.国内代理哦上引进的时候字直接找棒子买的,不过后来代理商后来自己放出了日文语音包让玩家自己去替换
+

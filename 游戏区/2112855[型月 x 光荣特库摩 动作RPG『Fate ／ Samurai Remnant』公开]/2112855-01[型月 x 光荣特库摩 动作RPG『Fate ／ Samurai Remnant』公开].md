@@ -38,3 +38,22 @@ DLC1新增的英灵居然是伊吹童子吗，看样子好像丑御前和闪闪�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  eilot  
+##### 1696#       发表于 2024-2-9 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63888157&amp;ptid=2112855" target="_blank">DARKGRAY 发表于 2024-2-5 15:44</a>
+
+好奇这个DLC是独立结局还是直接独立模式，武道会打完原本的故事根本讲不下去嘛 ...</blockquote>
+感覺是獨立，而且再開新技能樹，看到伊織都能用到王財
+
+應該能在本編也用回吧?
+
+丑御前還是穿裝甲騎士版，而不是八爪魚博士版本
+
+國姓爺看來應該也能使用，終於完成了他全部動作模組嗎?
+
+大小姐就不知道能否用到了
+

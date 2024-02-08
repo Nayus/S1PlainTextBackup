@@ -592,3 +592,14 @@ The long is long.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  熊边上  
+##### 61#       发表于 2024-2-9 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919178&amp;ptid=2171337" target="_blank">herryk159 发表于 2024-2-8 10:40</a>
+日本是不是分Ryu跟doragon？
+我们也可以细分嘛</blockquote>
+混在一起用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

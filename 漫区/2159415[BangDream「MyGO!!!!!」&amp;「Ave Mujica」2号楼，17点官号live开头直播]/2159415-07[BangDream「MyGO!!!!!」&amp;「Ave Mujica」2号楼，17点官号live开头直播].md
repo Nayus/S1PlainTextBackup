@@ -16822,3 +16822,125 @@ Staff提前给大家拜年！
 
 要是当初没合号各上各的舰长各播各的live现在估计有zepp看了，现在整得想挣华子钱但是舰长没到期只能拿一年前的live糊弄一下有点尴尬
 
+
+*****
+
+####  Toki_Ai  
+##### 12201#       发表于 2024-2-8 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合号的代价.jpg
+
+*****
+
+####  屑猫猫  
+##### 12202#       发表于 2024-2-8 18:35
+
+这就是当初怎么不搞邦多利综合号的代价，只合并鸡狗非常意味不明，这ppp双r在国内好歹有热度呢
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wuzhilv2  
+##### 12203#       发表于 2024-2-8 18:35
+
+这波操作真的零分，感觉迟早出事
+
+*****
+
+####  Toki_Ai  
+##### 12204#       发表于 2024-2-8 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我好期待后续的惊世操作在b站会玩成什么样呢，毕竟是wsd
+
+*****
+
+####  PDQ4  
+##### 12205#       发表于 2024-2-8 18:43
+
+只能说不愧是wsd，中国运营一样草台，还好我本来就看不起阿b，很后悔当初合号的操作吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12206#       发表于 2024-2-8 18:47
+
+哎呀，喜歡搞合號這種噁心操作被反噬，那不是很樂嗎，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 12207#       发表于 2024-2-8 18:49
+
+不想放两场也没啥代价，也就7000舰慢慢减少到几百舰<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12208#       发表于 2024-2-8 18:49
+
+这已经不是鸡狗端水的问题了，你邦可不缺那种单团连续两天的live，难不成这个也要单独挑一天播？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要赚米就直接点，开三四个专门直播的号错开时间播算了，你邦live密度算高的，一个月只播一场怎么都不现实
+
+*****
+
+####  Arrogate  
+##### 12209#       发表于 2024-2-8 19:03
+
+现在想分也分不了了，以后只怕会有更大的乱子
+
+*****
+
+####  凡人  
+##### 12210#       发表于 2024-2-8 19:04
+
+干大事而惜身,见小利而忘命<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12211#       发表于 2024-2-8 19:14
+
+专门去看了一眼日程，鸡的2nd两天在一个月内，狗的6th两天在一个月内，两者还有重合，这下亏钱亏大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/08/191404hiiamni8jifoi75f.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231012215941.png</strong> (56.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-8 19:14 上传
+
+*****
+
+####  御幸一也  
+##### 12212#       发表于 2024-2-8 19:15
+
+ 本帖最后由 御幸一也 于 2024-2-8 19:17 编辑 
+
+有什麼不能分的，一直合著噁心你我也噁心大家武士道還少賺錢，
+
+反正我無所謂，都是買eplus他播不播都不影響我，只是看合號操作不爽罷了，他高興就好，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12213#       发表于 2024-2-8 19:20
+
+最不能理解的就是不开几个小号来分开直播，反正赚的钱不一样归武士道吗，总不能是皮下有抽成怕热度被分吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhilv2  
+##### 12214#       发表于 2024-2-8 19:20
+
+mujica原号 武士道的号 甚至再开新号都可以，人家就是摸了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12215#       发表于 2024-2-8 19:23
+
+可能这就是武士道吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

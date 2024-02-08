@@ -70,3 +70,13 @@
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  往世雷书  
+##### 16254#       发表于 2024-2-8 17:23
+
+我记得她自己就比较高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

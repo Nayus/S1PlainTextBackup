@@ -684,3 +684,13 @@ RP还是守恒的，上一单石沉大海<img src="https://static.saraba1st.com/
 
 为什么还会被骗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JackTitor  
+##### 46137#       发表于 2024-2-8 17:14
+
+像我，一井俩个大公8宝雨神，保底才出库库，已经不想玩了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

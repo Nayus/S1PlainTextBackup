@@ -613,3 +613,11 @@ OK，加到了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  flyzzhj  
+##### 46130#       发表于 2024-2-8 08:17
+
+早上彩圈骑，太公望二宝了，这游戏真的没法玩了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

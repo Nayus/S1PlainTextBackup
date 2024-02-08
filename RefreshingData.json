@@ -4984,12 +4984,12 @@
     "active": false
   },
   "2139166": {
-    "totalreply": 6071,
+    "totalreply": 6072,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1707289080,
+    "lastedit": 1707433483,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2125110": {
     "totalreply": 2851,
@@ -5819,7 +5819,7 @@
     "totalreply": 4511,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，Who's Next？怒裁1900]",
-    "lastedit": 1707432851,
+    "lastedit": 1707432300,
     "category": "游戏区",
     "active": true
   },
@@ -7339,7 +7339,7 @@
     "totalreply": 3756,
     "title": "[【Dota2】龙年Dota千斤顶楼]",
     "newtitle": "[【Dota2】龙年Dota讨论楼]",
-    "lastedit": 1707432885,
+    "lastedit": 1707432720,
     "category": "游戏区",
     "active": true
   },
@@ -7352,10 +7352,10 @@
     "active": false
   },
   "2170332": {
-    "totalreply": 219,
+    "totalreply": 220,
     "title": "[中式逆转推荐：山河旅探]",
     "newtitle": "[中式逆转推荐：山河旅探]",
-    "lastedit": 1707395220,
+    "lastedit": 1707433511,
     "category": "游戏区",
     "active": true
   },
@@ -7568,10 +7568,10 @@
     "active": true
   },
   "2170696": {
-    "totalreply": 3299,
+    "totalreply": 3301,
     "title": "[【B87】VUP综合讨论楼]",
     "newtitle": "[【B87】VUP综合讨论楼（完全康复）]",
-    "lastedit": 1707416820,
+    "lastedit": 1707433511,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -11371,7 +11371,7 @@
     "totalreply": 453,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼  8号大决战勒]",
-    "lastedit": 1707432892,
+    "lastedit": 1707412500,
     "category": "手游专楼",
     "active": true
   },
@@ -12824,10 +12824,10 @@
     "active": true
   },
   "2171337": {
-    "totalreply": 86,
+    "totalreply": 87,
     "title": "[热搜：中国龙不再被译成“dragon”而是“loong”]",
     "newtitle": "[热搜：中国龙不再被译成“dragon”而是“loong”]",
-    "lastedit": 1707431940,
+    "lastedit": 1707433534,
     "category": "外野",
     "active": true
   },
@@ -12916,6 +12916,14 @@
     "title": "[Gal归漫区fault milestone系列(第2章a已更新官方中文)]",
     "newtitle": "[Gal归漫区fault milestone系列(第2章a已更新官方中文)]",
     "lastedit": 1707431940,
+    "category": "漫区",
+    "active": true
+  },
+  "2110102": {
+    "totalreply": 533,
+    "title": "[家里蹲吸血姬的苦闷 TV动画化 2023年10月]",
+    "newtitle": "[家里蹲吸血姬的苦闷 TV动画化 2023年10月]",
+    "lastedit": 1707433550,
     "category": "漫区",
     "active": true
   }

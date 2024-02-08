@@ -868,3 +868,18 @@ The long is long.
 
 — from Google Pixel 4a (5G), Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  Jet.Black  
+##### 87#       发表于 2024-2-9 06:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919084&amp;ptid=2171337" target="_blank">仟音一心 发表于 2024-2-8 23:30</a>
+目前其实两个词还是混用的，没有完全换。
+话说凤凰和Phoenix也不是同一种东西。 ...</blockquote>
+凤凰，Phoenix, Simurgh, Bar Juchne, Garuda
+
+细讲起来就太复杂了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

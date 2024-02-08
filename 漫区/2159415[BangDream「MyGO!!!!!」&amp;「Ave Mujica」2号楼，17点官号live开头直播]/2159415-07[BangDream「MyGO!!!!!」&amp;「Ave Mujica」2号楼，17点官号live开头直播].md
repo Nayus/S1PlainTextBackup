@@ -16485,3 +16485,121 @@ WS卡功能倒是还挺多……母鸡卡现在卡出的太少了看不出什么
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  NODY  
+##### 12161#       发表于 2024-2-8 15:16
+
+现在讨论环境大抵还是比早期要好点，车祥子车立希的多但车的和帮忙说话的大概还是有个六|四开五五开，现在唯一能做到一边倒八二开甚至九一开的话题只有烤，厨子每次都炸楼就是因为拦不住大部队<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12162#       发表于 2024-2-8 15:20
+
+开始有10层楼误差了，看来还是得倒序
+
+*****
+
+####  紫吹兰  
+##### 12163#         楼主| 发表于 2024-2-8 15:24
+
+其实倒序最后一页可以看见最后是-6楼……中间还有几楼没有楼号……
+
+*****
+
+####  御幸一也  
+##### 12164#       发表于 2024-2-8 15:31
+
+樓友想說的不就是覺得大家不要不接受批評，但這和前面說的角色黑不是一回事。上班無聊可以去隔壁隨便感受一下祥黑魅力時刻<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+已經不是“個人討厭”了，是恨一個紙片人恨之入骨，我反正有點難以理解
+
+我完全可以接受有人不喜歡祥子，這有什麼，我也有喜歡和不喜歡，
+
+我不能接受的是對角色的辱罵，二創有時還能看到莫名其妙的讓祥子去80別人，或者毆打祥子各種奇怪東西，到底多恨喔。
+
+如果樓友覺得上述這些都是可以接受的，那不用回我了，我真的看了十幾年紙片人沒遇過這樣的圈子。
+
+*****
+
+####  Aendst  
+##### 12165#       发表于 2024-2-8 15:42
+
+ 本帖最后由 Aendst 于 2024-2-8 15:45 编辑 
+
+我觉得拿毫无统计学意义的社区投票去论证祥子客观上一定是讨人厌的反派、用片面的臆想做不像样的论据去指责和攻击她坏已经很过分了
+
+辱骂霸凌和殴打又是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说难听点是不是有点魔怔了
+
+*****
+
+####  可爱美味祥子  
+##### 12166#       发表于 2024-2-8 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63915402&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-8 15:31</a>
+樓友想說的不就是覺得大家不要不接受批評，但這和前面說的角色黑不是一回事。上班無聊可以去隔壁隨便感受一 ...</blockquote>
+有些是Ryona爱好者吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+https://moegirl.uk/Ryona
+
+*****
+
+####  凡人  
+##### 12167#       发表于 2024-2-8 15:49
+
+我是木箱黑，也是睦黑，不过对于不喜欢的角色我都是尽量不聊的，不喜欢还非要谈论给自己和他人添堵，何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12168#       发表于 2024-2-8 15:54
+
+12156#說得很對<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12169#       发表于 2024-2-8 15:54
+
+这圈子现在的环境就是这样，也不只是祥子一个被骂，你去贴吧还能看到不少说狗团是一个圣人和四个80队友的出生（原话）这种说法的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+包括同人殴打这种，也是这个火了以后引来了一大堆爱好就是暗黑猎奇r18g死人的爱好者在拿鸡狗的角色当皮套在发泄xp
+
+*****
+
+####  Aendst  
+##### 12170#       发表于 2024-2-8 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是世风日下导致的，呼吁互联网用户关注身心健康
+
+*****
+
+####  jerryoq1  
+##### 12171#       发表于 2024-2-8 16:12
+
+我不看舒适圈以外的二创就是被创过太多了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  氷川日菜  
+##### 12172#       发表于 2024-2-8 16:18
+
+这几年的二创环境是这样的，小众爱好群体开始不满足于报团取暖小圈子自嗨开始把自己之前见不得人的爱好拿到大众面前品鉴一番，并且引了相当多的跟风狗开始一起哗众取宠，这群人创作二创并不是出于对角色和作品的热爱，而是随便找个热门载体好把自己的恶意和阴私癖好暴露给更多人看，越是热门的作品越容易遭到这群人的毒手，上一个被这群人荼毒的百合作品正好也是个乐队动画，霸凌吸○滥○死人能想到的不能想到的一应俱有五毒俱全，不好说我现在不主动找二创看有没有受到之前的影响
+
+怪不得漏油怨气这么大原来是接触了我没有接触的东西，楼里的东西原来经过了层层筛选来保护大家纯洁的灵魂吗，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12173#       发表于 2024-2-8 16:22
+
+似乎确实要倒序10楼左右才会吐出新的一页<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12174#       发表于 2024-2-8 16:23
+
+这还是你邦有武士道这个大背景所以筛掉了相当一部分人的成果，更严重的就像楼上说的滚一样有大量带男性向r18甚至r18g二创的（你邦现在也不是没有但很少）
+

@@ -776,3 +776,25 @@ The long is long.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  哈扎马大尉  
+##### 79#       发表于 2024-2-9 05:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919975&amp;ptid=2171337" target="_blank">脑洞 发表于 2024-2-9 04:41</a>
+
+龙宫龙王不都在海里吗</blockquote>
+龙王和龙宫这些个概念不纯，是被佛教那帮那迦龙王（多头眼镜蛇）夺舍才出现的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">佛教前的中国龙也和海没关系
+
+*****
+
+####  philing  
+##### 80#       发表于 2024-2-9 05:42
+
+要不dragon 翻译成
+竜
+如何？
+
+异体字其实不是很恰当，但确实能和大众认知的龙还有繁体龍区分开来
+

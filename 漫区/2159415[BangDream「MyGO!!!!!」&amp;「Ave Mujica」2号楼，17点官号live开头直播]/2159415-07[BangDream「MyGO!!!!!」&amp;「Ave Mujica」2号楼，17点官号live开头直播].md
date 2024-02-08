@@ -16990,3 +16990,18 @@ ios可以的啊？an不知道
 
 以前可以直接复制网址去手机网页端看，后来改成手机网页端不能看必须下个专门的app还锁ip，反正我鼓捣了半天实在搞不定就买了票然后去白嫖其他人的直播间了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 12221#         楼主| 发表于 2024-2-8 20:05
+
+说白了合号的时候还没有大航海直播的计划
+
+*****
+
+####  ddy2811  
+##### 12222#       发表于 2024-2-8 20:09
+
+走一步看一步的策略，出各种问题是正常的，看后面是开直播号还是怎么着了，想赚钱就自己想办法去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

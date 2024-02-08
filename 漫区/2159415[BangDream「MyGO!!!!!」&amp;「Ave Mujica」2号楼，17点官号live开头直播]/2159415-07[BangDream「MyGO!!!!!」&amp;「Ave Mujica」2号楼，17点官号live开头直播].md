@@ -15994,3 +15994,102 @@ tcg卡包鸡美图不会比邦这边更多吧，这下不得不研究打牌了<i
 
 那有tcg美图出其他谷的先例吗，那张初华太好看了，能不能出点其他时尚小垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 12109#       发表于 2024-2-8 13:14
+
+這麼摳的武士道，不一圖多用我不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 12110#       发表于 2024-2-8 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63914360&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-2-8 13:05</a>
+什么角色黑，别人叫扭曲的祥子厨，漏油懂都不懂啊，虽然我想祥子哭哭，还想扇她巴掌，但是我还是爱 ...</blockquote>
+想到了nga也是有个“虽然我说祥子是个有多次伤害观众喜爱角色记录的反派角色、虽然我在烤羊这个和祥完全无关的话题上唐突顺劈纸片人导致引火烧祥子、‘你们X厨又开始甩锅了？’，但我就是祥gachi”捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12111#       发表于 2024-2-8 13:15
+
+很遗憾似乎暂无，除非TCG卡面本来就是复用其他绘柄或者直球动画截图
+
+不给点完全新绘怎么骗人买卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然效果够强的话倒是也还行(
+
+*****
+
+####  Aendst  
+##### 12112#       发表于 2024-2-8 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥漏之前打滚那位就自称祥gachi，搞得好像有人在乎他怎么说一样，留下了深刻的笑柄
+
+*****
+
+####  御幸一也  
+##### 12113#       发表于 2024-2-8 13:17
+
+武士道的卡圖居然沒有一圖多用<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+那只好等發售了拿回來掃圖把卡牌能力的部分摳掉自己美美收藏了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+要是能另外出個海報什麼的就不用摳圖了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12114#       发表于 2024-2-8 13:17
+
+起码侧面说明了泥楼名声在外，过来打滚要套个头套，比直球打滚多了一道步骤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12115#       发表于 2024-2-8 13:19
+
+卡牌能力的部分很伟大的好不好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+唉这张初华太伟大了，我已经忍不住幻想凑齐一套是不是能暴打我兄弟的电锯人了
+
+*****
+
+####  相坂君  
+##### 12116#       发表于 2024-2-8 13:19
+
+大过年的，那能不能说一句吉祥话，祝福一下祥厨变年轻，想听捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12117#       发表于 2024-2-8 13:19
+
+不考虑出谷的话，卡图会有可能在别的场合公开原图吗？
+
+真的完全是卡牌限定的话那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12118#       发表于 2024-2-8 13:19
+
+真的是卡牌限定图的话可能会当云玩家，学一下入个门能看懂效果啥的，方便造个假药。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12119#       发表于 2024-2-8 13:20
+
+卡片的新图应该是单独版权不会另外出周边的，这是我在少歌那边的印象
+
+*****
+
+####  御幸一也  
+##### 12120#       发表于 2024-2-8 13:21
+
+武士道TCG綁架了我的初華美圖 我很生氣<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

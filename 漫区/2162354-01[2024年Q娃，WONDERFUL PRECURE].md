@@ -3497,3 +3497,14 @@ fy
 
 有没有可能，干部也可以抱抱然后就感化了，毕竟都有boss抱抱就感化的例子
 
+
+*****
+
+####  modedd  
+##### 827#       发表于 2024-2-8 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63917385&amp;ptid=2162354" target="_blank">qb0079 发表于 2024-2-8 19:34</a>
+
+有没有可能，干部也可以抱抱然后就感化了，毕竟都有boss抱抱就感化的例子</blockquote>
+到时候看干部是偏人型还是偏怪物就知道了，其实打斗和感化也不冲突，完全可以先揍趴下再切月神形态感化呀<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

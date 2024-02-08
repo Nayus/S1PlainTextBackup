@@ -23185,3 +23185,41 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 但是祥子真好啊，白祥黑祥傻祥挨打祥都好好看<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuyin589  
+##### 11996#       发表于 2024-2-8 10:44
+
+感觉第一烂梗还是“代餐论”，三个角色没一个尊重到的还有人当真呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 穗波殊| + 1|我很赞同|
+
+查看全部评分
+
+*****
+
+####  九陌狂游  
+##### 11997#       发表于 2024-2-8 10:45
+
+说起隔壁，嘴小羊一句就是锁楼，祥子和立希打到大道都磨灭了都没人管，我真的很难评<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  御幸一也  
+##### 11998#       发表于 2024-2-8 10:51
+
+我覺得“代餐論”和“鐵暗戀”一樣的惡臭，都是狗屎為什麼要爭哪坨更臭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

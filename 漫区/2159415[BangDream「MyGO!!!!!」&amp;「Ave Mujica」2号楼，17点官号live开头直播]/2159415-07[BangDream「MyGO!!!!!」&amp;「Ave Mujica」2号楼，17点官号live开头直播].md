@@ -17097,3 +17097,20 @@ z8经验包组合<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 向前辈取经是吧
 
+
+*****
+
+####  Nomind96  
+##### 12232#       发表于 2024-2-8 22:08
+
+询问切割经验是吧
+
+*****
+
+####  江口夕  
+##### 12233#       发表于 2024-2-8 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">請教怎麼打牌
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

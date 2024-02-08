@@ -728,3 +728,27 @@ RP还是守恒的，上一单石沉大海<img src="https://static.saraba1st.com/
 
 30抽 教皇desu<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ousia  
+##### 46142#       发表于 2024-2-8 22:05
+
+<img src="https://img.saraba1st.com/forum/202402/08/220433r9fxfn8c9cfivnal.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1887.png</strong> (270.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-8 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202402/08/220433t28jcs4cvgqseoa2.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1888.png</strong> (299.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-8 22:04 上传
+
+塔马的，喜欢的都是这种倒霉玩意儿🥰
+

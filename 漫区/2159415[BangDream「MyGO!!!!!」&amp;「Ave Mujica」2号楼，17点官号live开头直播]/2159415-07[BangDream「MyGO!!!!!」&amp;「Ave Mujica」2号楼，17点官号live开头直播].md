@@ -16093,3 +16093,135 @@ tcg卡包鸡美图不会比邦这边更多吧，这下不得不研究打牌了<i
 
 武士道TCG綁架了我的初華美圖 我很生氣<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 12121#       发表于 2024-2-8 13:25
+
+卡的效果会有和角色本身有一定程度的对应吗
+
+*****
+
+####  安洁莉娜  
+##### 12122#       发表于 2024-2-8 13:25
+
+不怎么逛各种论坛，我本以为13集以后祥厨遍地走呢，原来是S1限制了我的想象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12123#       发表于 2024-2-8 13:26
+
+ 本帖最后由 笋干爆炸碱 于 2024-2-8 13:31 编辑 
+
+如果他们之后给mujica出很多很好（很强）的新卡，我当然是选择和解<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">ws卡的效果基本都和角色或剧情有对应关系的。比如海铃pr可以直接当联动打（雇佣兵）
+
+祥目前出的pr是后排应援，给队友加攻击力之类的
+
+*****
+
+####  Aendst  
+##### 12124#       发表于 2024-2-8 13:26
+
+S1是特例中的特例，所以其他地方会瞧不上泥漏也不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12125#       发表于 2024-2-8 13:31
+
+正常設計卡牌會和角色有一定的關聯，我玩shadowverse是這樣的，不知道武士道TCG<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 12126#       发表于 2024-2-8 13:31
+
+ 本帖最后由 -LYRE- 于 2024-2-8 13:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63914416&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-8 13:12</a>
+
+新漏油竟然觉得黑祥子是不正常的，那还不来跟漏油一起骂当时大环境风气，我当时想正经讨论都没啥地方才摸到 ...</blockquote>
+谁都可能没看论坛就他不可能没看论坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+专楼发言top1选手怎么可能没看论坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+IMG_20240208_133046.jpg
+(175.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-8 13:33 上传
+
+<img src="https://img.saraba1st.com/forum/202402/08/133315lpw5azgsuwwbwg4h.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 赫尔墨斯的权杖| + 1||
+
+查看全部评分
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12127#       发表于 2024-2-8 13:34
+
+<blockquote>-LYRE- 发表于 2024-2-8 13:31
+谁都可能没看论坛就他不可能没看论坛
+
+专楼发言top1选手怎么可能没看论坛 ...</blockquote>
+好挖
+
+*****
+
+####  相坂君  
+##### 12128#       发表于 2024-2-8 13:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">噫～全网同名的是不是要贡献10块钱了
+
+*****
+
+####  Aendst  
+##### 12129#       发表于 2024-2-8 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">加攻击力大草
+
+完全不懂打牌，ws有细分职能功能吗，比如奶妈（？）之类的
+
+*****
+
+####  PDQ4  
+##### 12130#       发表于 2024-2-8 13:39
+
+草，所以这是来出征的吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 12131#       发表于 2024-2-8 13:40
+
+我一向赞同基于现有条件讨论，不如说一下什么是“现在就定死的评价”，争议大到底争在哪里
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  笋干爆炸碱  
+##### 12132#       发表于 2024-2-8 13:42
+
+WS卡功能倒是还挺多……母鸡卡现在卡出的太少了看不出什么思路。但是根据我观察一般负责斩杀高攻击力i的三级卡都是主唱，然后配合的一级卡用来攒资源，调整手牌之类的，一般都是主唱老婆（？）起码应该是官推
+
+*****
+
+####  jerryoq1  
+##### 12133#       发表于 2024-2-8 13:43
+
+我一点都不觉得这叫有争议  
+单方面殴打能算争议吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

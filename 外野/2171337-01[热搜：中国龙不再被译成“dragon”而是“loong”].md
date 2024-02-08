@@ -513,3 +513,40 @@ The long is long.
 歪个楼，中东这个词带着欧洲中心论遗毒，西亚又不包括埃及，有没有合适的词呢 ...</blockquote>
 想着给中东这个欧洲中心论遗毒换名之前，还是先把亚洲这个欧洲中心论遗毒的词换了吧。
 
+
+*****
+
+####  钦念以忱  
+##### 55#       发表于 2024-2-9 01:20
+
+西方龙的形象已经受到影响发生变迁了，现在的西方龙经常是创世或者灭世或者某种龙神，已经和传统恶龙大为不同了。当然，东西方的龙也都受到恐龙的影响，洪荒有龙凤初劫，DND有巨龙时代，都是远古时期世界上的统治文明。
+
+*****
+
+####  snailium  
+##### 56#       发表于 2024-2-9 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919663&amp;ptid=2171337" target="_blank">wszweill 发表于 2024-2-9 01:04</a>
+中文跟英文翻译习惯又不一样 
+
+比如Mardi Gras之类的直接抄的一堆，我是不太信美国人人均外语水平 ...</blockquote>
+是的，很多就是直接拿原文来凑数，尤其是印度节日和**节日。但是那些别扭的名词，老百姓记不住啊。
+
+这个官方翻译其实是用来做文化推广的。
+
+中文社区推广了多少年Chinese New Year，就连商家都开始搞Chinese New Year sale，本来是件好事，然后就有人跳出来说东亚国家都过这个节，遂改为Lunar New Year，韩国/越南/泰国社区纷纷摘桃子，中文社区多年的宣传就这样做了嫁衣。
+
+所以我才说，官方应该推出一个中英文化词典，不光是节日和神物/特殊吉祥物，还要包括像24节气这种中国特有名词的翻译。至少要求海外媒体都按照词典来翻译（与人名/地名同规格）
+
+— from OnePlus CPH2451, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Vneeto  
+##### 57#       发表于 2024-2-9 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919313&amp;ptid=2171337" target="_blank">巨魔型美羽 发表于 2024-2-8 23:57</a>
+
+歪个楼，中东这个词带着欧洲中心论遗毒，西亚又不包括埃及，有没有合适的词呢 ...</blockquote>
+不就是阿拉伯地区//**教地区/**地区么，以色列是地区的另类不惯着它∠( ᐛ 」∠)_
+

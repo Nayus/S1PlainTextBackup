@@ -23025,3 +23025,77 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 2月过了一周多了，我新歌呢
 
+
+*****
+
+####  御幸一也  
+##### 11979#       发表于 2024-2-8 09:56
+
+2024年居然這就過了一個月，有點恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+沒事，官方裝死就裝死吧，這個月保底都有2/14的祥子生日可以大吃特吃<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JY要塞  
+##### 11980#       发表于 2024-2-8 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一你邦没活到明年呢
+
+*****
+
+####  凡人  
+##### 11981#       发表于 2024-2-8 09:57
+
+<img src="https://img.saraba1st.com/forum/202402/08/095517uh3als13zhknqa50.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-8 09:55 上传
+
+什么抽象合照
+
+*****
+
+####  御幸一也  
+##### 11982#       发表于 2024-2-8 09:58
+
+回11974#
+
+喜歡舞這些的大概都是覺得睦欠了他吧，什麼成分我不好說
+
+而且大概率的，同時會覺得祥子也有虧欠他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 11983#       发表于 2024-2-8 09:59
+
+ 本帖最后由 赫尔墨斯的权杖 于 2024-2-8 10:00 编辑 
+
+手游活不活的到明年无关紧要，第二季再怎么样磨磨蹭蹭做的也差不多了，邦游真崩了到时候也不用再追游戏剧情了，所有的人际关系以母鸡卡完结为准
+
+*****
+
+####  Aendst  
+##### 11984#       发表于 2024-2-8 10:00
+
+续篇动画标题写那么清楚，谁是主人公在日本人社群里也没看到任何争议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贷款反派多多少少有点跟自己过不去
+
+12月基本会有制作发表会和op放出，煎熬的结束可以提前一个月<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 11985#       发表于 2024-2-8 10:03
+
+那就是还剩10个月，中间还会有2nd和3rd（会有吧）<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+以及目前还是饼状态的新曲，存在在我梦里的各类拼盘live
+
+和完全不知道什么时候进的TCG
+
+好充实啊（棒读
+

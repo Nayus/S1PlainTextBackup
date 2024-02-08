@@ -16603,3 +16603,54 @@ https://moegirl.uk/Ryona
 
 这还是你邦有武士道这个大背景所以筛掉了相当一部分人的成果，更严重的就像楼上说的滚一样有大量带男性向r18甚至r18g二创的（你邦现在也不是没有但很少）
 
+
+*****
+
+####  穗波殊  
+##### 12175#       发表于 2024-2-8 16:26
+
+最受不了的是灯灯上吊，立希掌掴的图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我甚至在睦单推群都看见了。太逆天了见一次喷一次。明明在dmzj画的cp漫挺纯良的啊。
+
+*****
+
+####  米拉苏尔  
+##### 12176#       发表于 2024-2-8 16:28
+
+人都有猎奇心里，出格的同人容易被传播
+
+*****
+
+####  Aendst  
+##### 12177#       发表于 2024-2-8 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这下不知道泥漏要多久才能修好了，好不容易接近完全复活
+
+*****
+
+####  米拉苏尔  
+##### 12178#       发表于 2024-2-8 16:29
+
+可以传播纯良同人来抑制猎奇同人
+你想想猎奇同人有人满世界发给作者引流，纯良同人作者的图反而只有几个人点赞是不是很不公平
+
+*****
+
+####  ytttsuuuba  
+##### 12179#       发表于 2024-2-8 16:30
+
+能用就行，倒序快习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 12180#       发表于 2024-2-8 16:31
+
+这几天nga手综天天清算mygo，还鼓捣了一个邦孕吧，给我恶心坏了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">单是知道有这么一帮下贱的蛆虫存在就不好受
+
+*****
+
+####  Aendst  
+##### 12181#       发表于 2024-2-8 16:32
+
+世风日下，再加上网络匿名和从众去责任化的特性，很多人就真的把基本道德都给丢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

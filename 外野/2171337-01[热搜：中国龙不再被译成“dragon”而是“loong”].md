@@ -883,3 +883,49 @@ The long is long.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  redsouris  
+##### 88#       发表于 2024-2-9 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919178&amp;ptid=2171337" target="_blank">herryk159 发表于 2024-2-8 23:40</a>
+日本是不是分Ryu跟doragon？
+我们也可以细分嘛</blockquote>
+本子龙龍竜DRAGON RYU都混用的，各种二次元小说一本一套说法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  太极八爪鱼  
+##### 89#       发表于 2024-2-9 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919007&amp;ptid=2171337" target="_blank">caupollen 发表于 2024-2-8 07:21</a>
+
+没事，已经在反噬了</blockquote>
+但是Vyverns是双足飞龙啊，就算在西幻里和dragon也是不同的。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  baizhi  
+##### 90#       发表于 2024-2-9 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919112&amp;ptid=2171337" target="_blank">mysterysilent 发表于 2024-2-8 23:34</a>
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
+春节一般不就两种翻译嘛，字面上的spring，或者Chinese new year。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">对于外国人来说无论那种都比chunjie好吧，翻译又不是给本国人看的。
+
+—— 来自 OPPO PGBM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  caupollen  
+##### 91#       发表于 2024-2-9 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919952&amp;ptid=2171337" target="_blank">HOBBITXDD 发表于 2024-2-9 03:59</a>
+
+这两年世嘉刚把龍が如く英文名改成like a dragon呢</blockquote>
+你这例子也不太对，如龙之前的英语名翻译是yakuza<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+改成like a deagon不知道高到哪里去了
+

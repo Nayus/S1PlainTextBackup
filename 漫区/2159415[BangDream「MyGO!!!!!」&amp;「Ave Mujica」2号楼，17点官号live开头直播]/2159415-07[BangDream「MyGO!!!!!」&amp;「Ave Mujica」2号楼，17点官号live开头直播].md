@@ -16454,3 +16454,34 @@ WS卡功能倒是还挺多……母鸡卡现在卡出的太少了看不出什么
 
 樓友也別理中客了，隔壁那些無腦黑看多幾眼都知道不是這回事
 
+
+*****
+
+####  Aendst  
+##### 12157#       发表于 2024-2-8 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">泥漏刚复活就要因为凭空多出来的引用回复又半残了
+
+*****
+
+####  ddy2811  
+##### 12158#       发表于 2024-2-8 15:08
+
+雷灯祥是对角色关系性的看法啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这当然不能说明楼友是灯黑或者祥黑，因为本来就不是必要条件，不过说是“灯祥cp黑”倒是没什么问题的
+
+*****
+
+####  Aendst  
+##### 12159#       发表于 2024-2-8 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，难怪有好多追星小妹妹老是觉得别人黑自己家哥哥，原来是这种脑回路
+
+*****
+
+####  九陌狂游  
+##### 12160#       发表于 2024-2-8 15:11
+
+看到楼修好了心中只有欣慰，这下春节无聊的时候有东西看了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

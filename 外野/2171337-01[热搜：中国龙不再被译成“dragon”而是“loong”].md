@@ -689,3 +689,53 @@ The long is long.
 
 我觉得是微博闲的没事干自己创造的话题，这件事情你在国内改不改完全没有影响
 
+
+*****
+
+####  HOBBITXDD  
+##### 70#       发表于 2024-2-9 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919178&amp;ptid=2171337" target="_blank">herryk159 发表于 2024-2-8 23:40</a>
+日本是不是分Ryu跟doragon？
+我们也可以细分嘛</blockquote>
+这两年世嘉刚把龍が如く英文名改成like a dragon呢
+
+*****
+
+####  HOBBITXDD  
+##### 71#       发表于 2024-2-9 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919178&amp;ptid=2171337" target="_blank">herryk159 发表于 2024-2-8 23:40</a>
+日本是不是分Ryu跟doragon？
+我们也可以细分嘛</blockquote>
+这两年世嘉刚把龍が如く英文名改成like a dragon呢
+
+*****
+
+####  HOBBITXDD  
+##### 72#       发表于 2024-2-9 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919178&amp;ptid=2171337" target="_blank">herryk159 发表于 2024-2-8 23:40</a>
+日本是不是分Ryu跟doragon？
+我们也可以细分嘛</blockquote>
+这两年世嘉刚把龍が如く英文名改成like a dragon呢
+
+*****
+
+####  HOBBITXDD  
+##### 73#       发表于 2024-2-9 04:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919178&amp;ptid=2171337" target="_blank">herryk159 发表于 2024-2-8 23:40</a>
+日本是不是分Ryu跟doragon？
+我们也可以细分嘛</blockquote>
+这两年世嘉刚把龍が如く英文名改成like a dragon呢
+
+*****
+
+####  白香宁  
+##### 74#       发表于 2024-2-9 04:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+飞天大蜥蜴
+

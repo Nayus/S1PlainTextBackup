@@ -16225,3 +16225,43 @@ WS卡功能倒是还挺多……母鸡卡现在卡出的太少了看不出什么
 我一点都不觉得这叫有争议  
 单方面殴打能算争议吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 12134#       发表于 2024-2-8 13:44
+
+草，为什么我有这么多赞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 12135#       发表于 2024-2-8 13:46
+
+ 本帖最后由 Kfly 于 2024-2-8 13:48 编辑 
+
+看你们挺起劲，我反而看不懂你们想攻击什么。
+
+出征都来了，有没有可能我一号楼也有过发言只是相对不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12136#       发表于 2024-2-8 13:52
+
+泥漏不就直球点草当时大环境对睦祥厨尤其祥厨不友好吗，有什么看不懂的。不如新漏油说说你到底不满漏油点草什么，又想给什么正名。看你nga发言这么多肯定对那里当时直球嘴祥子很有记忆才对。
+
+总不能是不满泥漏光批判车祥子不看车立希吧。不过当时车立希的好像没有现在多？反正我跑前印象是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+

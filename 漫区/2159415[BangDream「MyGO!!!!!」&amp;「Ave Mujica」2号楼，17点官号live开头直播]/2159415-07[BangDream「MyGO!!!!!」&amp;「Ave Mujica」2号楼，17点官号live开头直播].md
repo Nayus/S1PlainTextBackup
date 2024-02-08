@@ -15041,3 +15041,112 @@ mujica动画睦哭哭是不是必有了。想看<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">渡瀬和米泽感觉都在休养生息
 
+
+*****
+
+####  有骨气的百合  
+##### 12001#       发表于 2024-2-8 10:59
+
+卡楼了？
+
+*****
+
+####  Arrogate  
+##### 12002#       发表于 2024-2-8 11:00
+
+立希冤死了，做的那些事也不至于被反复车，但在NGA那边确实是经验包<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ddy2811  
+##### 12003#       发表于 2024-2-8 11:01
+
+倒序和正序显示楼层还能不一样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 12004#       发表于 2024-2-8 11:05
+
+我一直觉得希祥分锅大会就是给别的角色吸引火力的，这两人有错也没到定性就是她们的问题的地步，硬是要争，那不就是把别的角色隐藏了吗？
+
+*****
+
+####  笋干爆炸碱  
+##### 12005#       发表于 2024-2-8 11:06
+
+似乎有点卡页
+
+*****
+
+####  NODY  
+##### 12006#       发表于 2024-2-8 11:06
+
+车立希的范围比车祥子还广，车祥子一般也就是车轱辘一下退团发言和对老队友的态度不会车能力，车立希的不仅和祥子一样车炸团分锅，甚至会车她其实不会作曲全靠抱猫大腿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12007#       发表于 2024-2-8 11:08
+
+現在是有8樓對不上所以卡頁了，這期間倒序看一下就好了
+
+總之不要引用回覆，越引用錯位越多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 12008#       发表于 2024-2-8 11:09
+
+分锅就是车角色的由头罢了，主要是车祥子算传统艺能，车立希我没想明白是干嘛
+
+*****
+
+####  穗波殊  
+##### 12009#       发表于 2024-2-8 11:12
+
+万物一转分锅就搞不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">动不动就是“这把是不是你打的有问题”。又不是什么体育比赛，最后包好饺子不就成了
+
+*****
+
+####  Aendst  
+##### 12010#       发表于 2024-2-8 11:12
+
+ 本帖最后由 Aendst 于 2024-2-8 11:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能慢慢发现制作组是祥推车不动了，然后换了个受害者
+
+猫嘛无关心，其他人可能是自己推，那当然就会车立希了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大概还有大主播带头的原因在
+
+*****
+
+####  相坂君  
+##### 12011#       发表于 2024-2-8 11:15
+
+ 本帖最后由 相坂君 于 2024-2-8 11:19 编辑 
+
+怎么还有这种车法…怜爱立希推了…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+说来那作曲这块立希不太成熟，那能不能补一下希祥互动，都一起被车了，来点同甘共苦情谊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+不过现在车祥还是解散c团，凶灯，对爽世态度差，利用幼驯染，利欲熏心等…老几套没什么新意，建议整点我没看过的新活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 12012#       发表于 2024-2-8 11:16
+
+我觉得最烂的是什么都和电竞梗扯上关系  搞的我对电竞圈有点敬而远之了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12013#       发表于 2024-2-8 11:21
+
+车立希包括不限于：老样子双标舔狗压力怪、C团/mygo本来不会解散都怪立希多嘴、80队友、作曲水平不行全靠抱大腿等等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还有经常厨黑一车就是多页的立希待遇问题，觉得立希人设塑造完整的和觉得动画把立希当工具人的在车轱辘
+

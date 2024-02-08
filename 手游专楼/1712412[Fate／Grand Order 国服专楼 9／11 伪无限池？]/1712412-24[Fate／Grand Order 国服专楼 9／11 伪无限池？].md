@@ -642,3 +642,16 @@ OK，加到了
 
 前四个十连都是垃圾，想着完了完了，倒数第二发10连，终于2宝来了，顺带又一个雨神，然后也就剩一个10连，去隔壁碰碰运气吧，彩光卧槽，转过来尺阶贞德麻了，等等还有金光不会又一个雨神吧，转过来外星人，哦哦哦，库库尔坎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 46133#       发表于 2024-2-8 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913317&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2024-2-8 10:53</a>
+
+没忍住又氪 了一单，这是兽尼前的最后一单了（内心，你真确定）
+
+前四个十连都是垃圾，想着完了完了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">氪金也有差距 欧 羡慕
+

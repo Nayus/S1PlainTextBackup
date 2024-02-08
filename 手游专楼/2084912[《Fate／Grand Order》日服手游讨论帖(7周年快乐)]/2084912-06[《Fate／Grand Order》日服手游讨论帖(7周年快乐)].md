@@ -103,3 +103,24 @@ https://www.bilibili.com/video/BV1J2421c7n9/
 
 順便丟了30石去巴姐池，7張都是同一張4星禮裝，當場呆了...
 
+
+*****
+
+####  シャル  
+##### 11307#       发表于 2024-2-9 00:50
+
+ 本帖最后由 シャル 于 2024-2-9 00:52 编辑 
+
+FSR的伊吹竟然是大人半蛇形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+又能出一个了
+
+屏幕截图 2024-02-09 005120.png
+(158.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 00:51 上传
+
+<img src="https://img.saraba1st.com/forum/202402/09/005155v28oz2ly9ihveeq9.png" referrerpolicy="no-referrer">
+

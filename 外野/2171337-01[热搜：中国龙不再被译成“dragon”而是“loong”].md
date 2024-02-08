@@ -404,3 +404,54 @@ The long is long.
 
 —— 来自 Xiaomi M2102K1C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  延津酒咏  
+##### 45#       发表于 2024-2-9 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+竜<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 46#       发表于 2024-2-9 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919241&amp;ptid=2171337" target="_blank">Milky牛奶 发表于 2024-2-8 23:47</a>
+怎么还多加一个o啊…
+
+我周五准备去我女儿班上讲的ppt上写的Long，我女儿之前在班里读过的一本书也叫Long go ...</blockquote>
+因为long读作浪
+
+*****
+
+####  snailium  
+##### 47#       发表于 2024-2-9 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919112&amp;ptid=2171337" target="_blank">mysterysilent 发表于 2024-2-8 23:34</a>
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
+对于具体的事物用拼音代替没啥问题，毕竟只是用作区分的。但是节日还是意译比较好。
+
+比如，没人说
+- 伊斯特日（复活节）
+- 克里斯莫斯日（圣诞节）
+- 散克斯给吴英节
+
+现在需要做的其实是官方统一中国节日的英文翻译，比如春节，到底是用Spring Festival还是Chinese New Year。
+
+再比如中秋的Mid-Autumn，还不如用Mooncake Festival（其实应该叫Harvest Festival更好一些）
+
+— from OnePlus CPH2451, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  wtf317  
+##### 48#       发表于 2024-2-9 00:55
+
+为啥不用标准拼音long，而是用奇怪的loong，是因为龙有两个蛋嘛？
+
+本质上还是跪着站不起来，想向洋大人推销自己的文化又怕洋大人和其他常用词弄混<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

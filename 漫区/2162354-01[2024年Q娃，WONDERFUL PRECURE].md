@@ -3397,3 +3397,16 @@ fy
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  キュアリズム  
+##### 816#       发表于 2024-2-8 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63912511&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-8 09:31</a>
+
+悟和兔子的存在感真的好高，狗组下集主人就变身了，猫组感觉也是高度绑定，今年真的会有双男q嘛
+
+   ...</blockquote>
+弊啊,我不要看两个男人追着动物跑啊!
+

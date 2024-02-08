@@ -22971,3 +22971,29 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 反正我是没觉得播放期间的讨论氛围跟现在比好在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说第8集之前确实正常讨论的多，但第8集开始讨论环境就已经开始不对劲了，越到后面越是乌烟瘴气群魔乱舞。
 
+
+*****
+
+####  acgreen  
+##### 11973#       发表于 2024-2-8 09:34
+
+这种创作在mygo圈不是司空见惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  笋狐  
+##### 11974#       发表于 2024-2-8 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉，80。要不要鉴定一下喜欢在素睦里嗑80家暴流血雷普guro和素x其他里舞小黄瓜哭哭的都是什么成分
+
+*****
+
+####  御幸一也  
+##### 11975#       发表于 2024-2-8 09:39
+
+現在也沒什麼區別吧，只在泥樓還有呼吸權，外面稍微講幾句就是“你們祥廚”怎麼怎麼，反正直球黑祥子才是對的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不然怎麼都看泥樓不順眼，居然有這麼多祥廚敢呼吸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

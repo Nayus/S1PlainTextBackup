@@ -1,0 +1,406 @@
+
+*****
+
+####  仟音一心  
+##### 1#       楼主       发表于 2024-2-8 23:09
+
+<img src="https://p.sda1.dev/15/c9c80dc2d4fc5d30a13c381e02dadce7/CMP_20240208230846233.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  0WHan0  
+##### 2#       发表于 2024-2-8 23:10
+
+反过来的也能不能改一下，给dragon另想一个中文名
+
+*****
+
+####  梅德韦杰娃  
+##### 3#       发表于 2024-2-8 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+大衮
+
+*****
+
+####  kiririn007  
+##### 4#       发表于 2024-2-8 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">问题是，可能是中国龙形象最广为人知的作品是dragon ball
+
+*****
+
+####  logiccat  
+##### 5#       发表于 2024-2-8 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+早就有了啊，恶龙呗
+
+*****
+
+####  启叔  
+##### 6#       发表于 2024-2-8 23:14
+
+多拉贡
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  0WHan0  
+##### 7#       发表于 2024-2-8 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918947&amp;ptid=2171337" target="_blank">logiccat 发表于 2024-2-8 23:13</a>
+
+早就有了啊，恶龙呗</blockquote>
+当然不要带“龙”字更好
+
+*****
+
+####  Rugal_Bernstein  
+##### 8#       发表于 2024-2-8 23:18
+
+也该给希腊文和拉丁文的Draco正本溯源了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jamboo  
+##### 9#       发表于 2024-2-8 23:19
+
+哈哈，业内有个梗，长龙航空的英文名<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Indolencoma  
+##### 10#       发表于 2024-2-8 23:20
+
+多拉贡、拽根，都可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wizardry  
+##### 11#       发表于 2024-2-8 23:21
+
+抓根
+
+*****
+
+####  caupollen  
+##### 12#       发表于 2024-2-8 23:21
+
+<img src="https://img.saraba1st.com/forum/202402/08/232034kd2o9wn08a4aoi9v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (425.68 KB, 下载次数: 1)
+
+下载附件
+
+2024-2-8 23:20 上传
+
+没事，已经在反噬了
+
+*****
+
+####  螺纹  
+##### 13#       发表于 2024-2-8 23:24
+
+西方的龙不也细分很多么，wyrm什么的
+
+—— 来自 HONOR PGT-AN10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  humphrey  
+##### 14#       发表于 2024-2-8 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919007&amp;ptid=2171337" target="_blank">caupollen 发表于 2024-2-8 23:21</a>
+没事，已经在反噬了</blockquote>
+这分类怕是传统西幻爱好者看了要暴毙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三度音  
+##### 15#       发表于 2024-2-8 23:26
+
+ 本帖最后由 三度音 于 2024-2-8 23:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919007&amp;ptid=2171337" target="_blank">caupollen 发表于 2024-2-8 23:21</a>
+
+没事，已经在反噬了</blockquote>
+可以。下个世纪再翻拍霍比特人的时候就是中国龙守龙宫了
+
+*****
+
+####  飞火  
+##### 16#       发表于 2024-2-8 23:27
+
+多拉贡？
+
+蕨根？
+
+鸡翅蜥蜴？
+
+*****
+
+####  仟音一心  
+##### 17#         楼主| 发表于 2024-2-8 23:30
+
+目前其实两个词还是混用的，没有完全换。
+话说凤凰和Phoenix也不是同一种东西。
+
+*****
+
+####  宇宙大爆炸  
+##### 18#       发表于 2024-2-8 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+日文，东方龙和西方龙不是一个汉字，可以参考
+
+*****
+
+####  newise  
+##### 19#       发表于 2024-2-8 23:32
+
+龙
+
+竜
+
+龍
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mysterysilent  
+##### 20#       发表于 2024-2-8 23:34
+
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译
+
+*****
+
+####  yoki42  
+##### 21#       发表于 2024-2-8 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919084&amp;ptid=2171337" target="_blank">仟音一心 发表于 2024-2-8 23:30</a>
+目前其实两个词还是混用的，没有完全换。
+话说凤凰和Phoenix也不是同一种东西。 ...</blockquote>
+菲尼克斯变凤凰纯粹是郭沫若的锅了
+
+*****
+
+####  酷乐  
+##### 22#       发表于 2024-2-8 23:39
+
+ 本帖最后由 酷乐 于 2024-2-8 23:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919130&amp;ptid=2171337" target="_blank">yoki42 发表于 2024-2-8 23:35</a>
+
+菲尼克斯变凤凰纯粹是郭沫若的锅了</blockquote>
+并不是，日本人早就把Phoenix座叫凤凰座。
+
+*****
+
+####  不见不散  
+##### 23#       发表于 2024-2-8 23:39
+
+这是好事,什么时候把凤凰和不死鸟也分开
+
+*****
+
+####  herryk159  
+##### 24#       发表于 2024-2-8 23:40
+
+日本是不是分Ryu跟doragon？
+我们也可以细分嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  1303312165  
+##### 25#       发表于 2024-2-8 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+拽根<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  其实我饿了  
+##### 26#       发表于 2024-2-8 23:42
+
+什么时候分下凤凰和菲尼克斯，现在提到凤凰就凤凰涅槃这个郭沫若整的终极缝合怪<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酷乐  
+##### 27#       发表于 2024-2-8 23:45
+
+ 本帖最后由 酷乐 于 2024-2-9 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919200&amp;ptid=2171337" target="_blank">其实我饿了 发表于 2024-2-8 23:42</a>
+
+什么时候分下凤凰和菲尼克斯，现在提到凤凰就凤凰涅槃这个郭沫若整的终极缝合怪 ...</blockquote>
+
+并不是，日本人早就把Phoenix座写作凤凰座了。 <blockquote>日本では明治末期に既に「鳳凰」という訳語が充てられていた。これは、1908年（明治41年）に創刊された日本天文学会の会誌『天文月報』の第1巻7号に掲載された「十月の空」と題する星図で確認できる[30]。この名称は、1910年2月に星座の訳名が改訂された際も据え置かれ[31]、1925年（大正14年）に初版が刊行された『理科年表』にも「鳳凰（ほうわう）」として引き継がれた[32]。1944年（昭和19年）に天文学用語が見直された際もこの呼称が継続して採用された[33]。戦後の1952年（昭和27年）7月に日本天文学会が「星座名はひらがなまたはカタカナで表記する」[34]とした際に、Phoenix の日本語の学名は「ほうおう」と改められた[35]。この改定以降は「ほうおう」が星座名として継続して用いられている。</blockquote>
+
+*****
+
+####  再迷  
+##### 28#       发表于 2024-2-8 23:46
+
+长翅膀的蛇一般叫风蛇或者羽蛇，那dargon可以叫风蜥蜴或者羽蜥蜴？
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Milky牛奶  
+##### 29#       发表于 2024-2-8 23:47
+
+怎么还多加一个o啊…
+
+我周五准备去我女儿班上讲的ppt上写的Long，我女儿之前在班里读过的一本书也叫Long goes to dragon school.
+
+*****
+
+####  木葉梟  
+##### 30#       发表于 2024-2-8 23:47
+
+long行不行，多一个o干什么，还是传教士来源？
+
+*****
+
+####  BetterCall  
+##### 31#       发表于 2024-2-8 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918937&amp;ptid=2171337" target="_blank">kiririn007 发表于 2024-2-8 23:12</a>
+问题是，可能是中国龙形象最广为人知的作品是dragon ball</blockquote>
+以后叫龙宝了
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 32#       发表于 2024-2-8 23:49
+
+别想着给洋人的东西如何信达雅意译了，不论是进口的还是出口的东西一律音译才是应该的
+
+*****
+
+####  الطائر  
+##### 33#       发表于 2024-2-8 23:51
+
+不如就叫 Lo2ng 和 Fe4ng，保证没有歧义
+
+*****
+
+####  pagedown  
+##### 34#       发表于 2024-2-8 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919007&amp;ptid=2171337" target="_blank">caupollen 发表于 2024-2-8 23:21</a>
+没事，已经在反噬了</blockquote>
+我记得西方的大翅膀喷火蜥蜴也是4条腿的，符合生物进化理论的造型应该是前肢进化成的一对翅膀和2条后腿，4条腿加一对翅膀正好说明了这是编出来的生物
+
+*****
+
+####  巨魔型美羽  
+##### 35#       发表于 2024-2-8 23:57
+
+歪个楼，中东这个词带着欧洲中心论遗毒，西亚又不包括埃及，有没有合适的词呢
+
+*****
+
+####  宇宙大爆炸  
+##### 36#       发表于 2024-2-9 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919313&amp;ptid=2171337" target="_blank">巨魔型美羽 发表于 2024-2-8 23:57</a>
+
+歪个楼，中东这个词带着欧洲中心论遗毒，西亚又不包括埃及，有没有合适的词呢 ...</blockquote>
+西亚和北非，地理教科书就这么划分命名
+
+*****
+
+####  用户名已注册  
+##### 37#       发表于 2024-2-9 00:02
+
+我这几天给客户写邮件都用的是loong的～
+
+这个是dragon
+
+<img src="https://img.saraba1st.com/forum/202402/09/000233ba4k71agg31rhg41.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 00:02 上传
+
+*****
+
+####  送盾大鳖ame  
+##### 38#       发表于 2024-2-9 00:04
+
+把豆腐也改一改吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星零影  
+##### 39#       发表于 2024-2-9 00:07
+
+我搜过词源，说dragon最早是在希腊语里的drakon，而且形象是蛇？
+那怎么现在变成巨型蜥蜴了？
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  MeursaulT  
+##### 40#       发表于 2024-2-9 00:14
+
+ 本帖最后由 MeursaulT 于 2024-2-9 00:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919242&amp;ptid=2171337" target="_blank">木葉梟 发表于 2024-2-8 23:47</a>
+long行不行，多一个o干什么，还是传教士来源？</blockquote>
+应该就跟陕西英文叫shaan xi而不是山西的shan xi一样，用来避免和另一个词long重叠吧，我猜的
+
+查了一下，最早用loong这个说法的人，的确是传教士
+1809年，英国传教士马希曼在一本研究汉字的小册子里把龙注音为 loong
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Vneeto  
+##### 41#       发表于 2024-2-9 00:25
+
+多一个o大概是为了跟long做区分吧，long这个还是常用词
+
+*****
+
+####  macos  
+##### 42#       发表于 2024-2-9 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919007&amp;ptid=2171337" target="_blank">caupollen 发表于 2024-2-8 23:21</a>
+没事，已经在反噬了</blockquote>
+歪办是这一大类吗，感觉更小的双足龙才叫做歪办啊
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  eulereld  
+##### 43#       发表于 2024-2-9 00:29
+
+The long is long.
+是挺煩的
+
+*****
+
+####  夏胧  
+##### 44#       发表于 2024-2-9 00:33
+
+拽根，忘了从哪里看来的了，反正极为喜感
+
+—— 来自 Xiaomi M2102K1C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

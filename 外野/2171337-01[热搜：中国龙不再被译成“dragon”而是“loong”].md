@@ -603,3 +603,24 @@ The long is long.
 我们也可以细分嘛</blockquote>
 混在一起用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nekomimimode  
+##### 62#       发表于 2024-2-9 01:57
+
+你是龙，也好...
+
+*****
+
+####  MeursaulT  
+##### 63#       发表于 2024-2-9 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919633&amp;ptid=2171337" target="_blank">wtf317 发表于 2024-2-9 00:55</a>
+为啥不用标准拼音long，而是用奇怪的loong，是因为龙有两个蛋嘛？
+
+本质上还是跪着站不起来，一脸献媚的想向 ...</blockquote>
+那都不应该用long year，应该用long nian<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

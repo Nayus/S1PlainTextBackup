@@ -16654,3 +16654,31 @@ https://moegirl.uk/Ryona
 
 世风日下，再加上网络匿名和从众去责任化的特性，很多人就真的把基本道德都给丢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 12182#       发表于 2024-2-8 16:34
+
+小众癖好还是得有点自觉<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  acgreen  
+##### 12183#       发表于 2024-2-8 16:38
+
+所以一个有共识性的群体/平台对现在的网络冲浪挺重要的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  [皆神孝介]  
+##### 12184#       发表于 2024-2-8 16:39
+
+[@NODY](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=276670)  回复你发表于 2024-2-8 16:23的帖子
+
+《孤独摇滚》的同人没太关注，我觉得坛友说的是《K-ON！》（如：蛸壷屋）
+

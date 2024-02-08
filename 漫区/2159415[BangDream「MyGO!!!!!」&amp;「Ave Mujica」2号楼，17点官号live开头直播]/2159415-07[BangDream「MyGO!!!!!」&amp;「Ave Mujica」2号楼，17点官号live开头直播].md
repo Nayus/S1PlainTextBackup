@@ -15398,3 +15398,65 @@ s1应该是修好了，现在所有楼只差一层楼，不过回复跳转，消
 
 手工便携月亮搓好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kfly  
+##### 12045#       发表于 2024-2-8 12:14
+
+ 本帖最后由 Kfly 于 2024-2-8 12:16 编辑 
+
+没见过无争议还提呼吸权的，都为祥子说话了还扭捏啥呢，说就说呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+“当时”倒是我看错了，不过第七集前素世觉得自己是女诸葛怕是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sweet.  
+##### 12046#       发表于 2024-2-8 12:15
+
+测试测试
+
+*****
+
+####  安洁莉娜  
+##### 12047#       发表于 2024-2-8 12:17
+
+也云了游戏剧情，但一直不懂立希炼铜是从何说起呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12048#       发表于 2024-2-8 12:18
+
+新樓友在說什麼啊，人家說的是“爭議大就可以直接角色黑了嗎？”，你就一直在說祥子有爭議，
+
+確實有爭議，然後，怎麼了，有爭議就可以直球黑了齁？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12049#       发表于 2024-2-8 12:18
+
+ 本帖最后由 Aendst 于 2024-2-8 12:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要以己度人，这不叫扭捏，争议是意见不一致有争吵争论，泥漏从早上开始说的就是祥子在播期间被不明生物单方面踩头乱黑的事，这是一码事？
+
+混淆概念？还是来带节奏歪话题的？提到有人黑祥子祥黑坐不住了要洗一洗自己是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+认为不能乱黑角色就是为祥子说话了，你都这么想了那我只能说我确实是祥厨，那你呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12050#       发表于 2024-2-8 12:21
+
+接下來是不是要《圖一樂》警告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 12051#       发表于 2024-2-8 12:21
+
+不懂就差一岁怎么叫铜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不过猫希相处还挺有温度的比较喜欢
+

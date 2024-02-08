@@ -23223,3 +23223,23 @@ Ok我注意，thx 你还没睡啊，是不是瞒着小莓偷偷去找小葵了<i
 
 我覺得“代餐論”和“鐵暗戀”一樣的惡臭，都是狗屎為什麼要爭哪坨更臭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  氷川日菜  
+##### 11999#       发表于 2024-2-8 10:55
+
+大家活动范围这么广<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 12000#       发表于 2024-2-8 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913237&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-2-8 10:45</a>
+
+说起隔壁，嘴小羊一句就是锁楼，祥子和立希打到大道都磨灭了都没人管，我真的很难评
+
+论坛助手,iPho ...</blockquote>
+这次以后应该会好一些吧，至少能让人知道粉丝哪怕被打成批字辈该骂的还是要骂的，论坛不给骂就到其他地方让大家都看看，早该给动物朋友的gachi版务上点嘴脸了<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+

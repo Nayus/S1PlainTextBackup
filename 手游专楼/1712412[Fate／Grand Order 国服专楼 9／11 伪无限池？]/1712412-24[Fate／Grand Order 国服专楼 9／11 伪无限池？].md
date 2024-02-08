@@ -632,3 +632,13 @@ OK，加到了
 你还是忍不住啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是傻逼
 
+
+*****
+
+####  艾尔特翔  
+##### 46132#       发表于 2024-2-8 10:53
+
+没忍住又氪 了一单，这是兽尼前的最后一单了（内心，你真确定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+前四个十连都是垃圾，想着完了完了，倒数第二发10连，终于2宝来了，顺带又一个雨神，然后也就剩一个10连，去隔壁碰碰运气吧，彩光卧槽，转过来尺阶贞德麻了，等等还有金光不会又一个雨神吧，转过来外星人，哦哦哦，库库尔坎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

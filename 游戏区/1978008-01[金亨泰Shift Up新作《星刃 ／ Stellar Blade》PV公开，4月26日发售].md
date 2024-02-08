@@ -816,3 +816,11 @@ Eve 19-24年的人设变化
 
 问了日服SIE，对面回去查了两遍然后今天回邮件跟我说现在不确定日版收录的语言有哪些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 295#       发表于 2024-2-8 20:58
+
+这么草台的吗？客服都不知道
+

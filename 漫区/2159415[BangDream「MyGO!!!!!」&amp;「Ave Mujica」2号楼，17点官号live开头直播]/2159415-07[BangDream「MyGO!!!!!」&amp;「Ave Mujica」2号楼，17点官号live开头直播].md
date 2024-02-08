@@ -15851,3 +15851,146 @@ s1应该是修好了，现在所有楼只差一层楼，不过回复跳转，消
 
 怎么是祥子磕头，能不能mggm出来磕个头，真整这种活我真的会爆米的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笋干爆炸碱  
+##### 12093#       发表于 2024-2-8 13:04
+
+说起来，在无人在意的角落，木谷老头四月要来上海视察卡店<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12094#       发表于 2024-2-8 13:05
+
+又沒有ave mujica，確實是無關心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 12095#       发表于 2024-2-8 13:05
+
+什么角色黑，别人叫扭曲的祥子厨，漏油懂都不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">，虽然我想祥子哭哭，还想扇她巴掌，但是我还是爱祥子的捏，诶嘿
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 12096#       发表于 2024-2-8 13:06
+
+我现在当老头gachi去围观他可以让鸡早点出吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12097#       发表于 2024-2-8 13:06
+
+万一呢，我还在剑指TCG发表呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+我对着现有pr卡研究了半天出卡规律，得出的结论是mujica之后很可能会单独出高级补充包或者必闪包，这种新图概率就大了，新图！新图！
+
+*****
+
+####  御幸一也  
+##### 12098#       发表于 2024-2-8 13:07
+
+餅都沒吃完呢，樓友就開始做寶可夢了，快醒醒<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12099#       发表于 2024-2-8 13:08
+
+tcg卡包鸡美图不会比邦这边更多吧，这下不得不研究打牌了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12100#       发表于 2024-2-8 13:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">别梦了，到最后梦醒了伤的是自己
+
+*****
+
+####  Kfly  
+##### 12101#       发表于 2024-2-8 13:09
+
+这类衍生出的“觉得争议大所以黑祥子是正常的”的结论能不能停停，可太能脑补了，有种自己画靶子打的既视感，还挺起劲，我在边上倒是看的懵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 12102#       发表于 2024-2-8 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">完了，提醒我一专可能要用1st图的现实
+
+*****
+
+####  -LYRE-  
+##### 12103#       发表于 2024-2-8 13:09
+
+原来还能这么不看前后文硬抓关键字打滚歪楼的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+泥楼漏油还是太友善了
+隔壁楼没少隔空内涵这楼，一直潜水因为扭曲事实没忍住怼了几句就要围着阴阳“楼外势力入侵打破了原本良好的其乐融融的环境”
+泥楼还大多按发言内容来怼
+应该学习发扬一下隔壁直球排外精神的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12104#       发表于 2024-2-8 13:09
+
+卡牌遊戲的入坑難度很高捏，當個雲玩家收個卡牌觀賞就差不多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12105#       发表于 2024-2-8 13:10
+
+毕竟目前mujica最新的一张图是蛋白棒pr卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我选择相信TCG部门的努力
+
+*****
+
+####  PDQ4  
+##### 12106#       发表于 2024-2-8 13:12
+
+新漏油竟然觉得黑祥子是不正常的，那还不来跟漏油一起骂当时大环境风气，我当时想正经讨论都没啥地方才摸到s1来，难道新漏油当时没看各种论坛吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 12107#       发表于 2024-2-8 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新曲能放出来点新图吗，都二月中旬了应该可以梦一下了吧！
+
+*****
+
+####  PDQ4  
+##### 12108#       发表于 2024-2-8 13:13
+
+那有tcg美图出其他谷的先例吗，那张初华太好看了，能不能出点其他时尚小垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

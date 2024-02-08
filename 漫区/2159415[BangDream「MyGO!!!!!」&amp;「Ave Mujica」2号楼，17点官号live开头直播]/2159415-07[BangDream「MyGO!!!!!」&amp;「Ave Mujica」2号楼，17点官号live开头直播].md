@@ -16692,3 +16692,43 @@ https://moegirl.uk/Ryona
 
 lof和p这种地方还可以拉黑作者，公共论坛之类就没什么办法，毕竟环境风气这样，只能自己开润到相对比较和谐的地方。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 12186#       发表于 2024-2-8 17:27
+
+滚和邦现在有的同人确实隔应人，本子什么的就算了，有时候找粮莫名其妙一个的东西糊你脸上真挺无语的<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nh_zzz  
+##### 12187#       发表于 2024-2-8 17:29
+
+少歌很多新谷都是联动的，或者是对应舞台的谷，相关内容可以去看#ライセンス裏話这个tag
+手游那边ateam能有新卡面就算赢，别指望有新卡面谷了
+
+*****
+
+####  米拉苏尔  
+##### 12188#       发表于 2024-2-8 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63915893&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-2-8 16:31</a>
+这几天nga手综天天清算mygo，还鼓捣了一个邦孕吧，给我恶心坏了单是知道有这么一帮下贱的蛆虫存在就 ...</blockquote>
+这种人目的就是恶心别人，恶心到你就算成功了
+所以你要做的应该是无视而不是在别的地方提<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有骨气的百合  
+##### 12189#       发表于 2024-2-8 17:30
+
+坏了我也引用了
+
+*****
+
+####  米拉苏尔  
+##### 12190#       发表于 2024-2-8 17:30
+
+翻页翻页
+

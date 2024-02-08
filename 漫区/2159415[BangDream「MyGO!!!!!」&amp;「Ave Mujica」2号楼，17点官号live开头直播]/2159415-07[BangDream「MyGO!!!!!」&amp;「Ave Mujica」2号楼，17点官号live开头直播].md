@@ -16973,3 +16973,20 @@ mujica先不论，羊女士这不思进取的唱功让我买e+总觉得肉痛，
 
 初三那天我应该还没回来，可恶<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 12219#       发表于 2024-2-8 20:00
+
+ios可以的啊？an不知道
+
+*****
+
+####  NODY  
+##### 12220#       发表于 2024-2-8 20:00
+
+@傘木希美
+
+以前可以直接复制网址去手机网页端看，后来改成手机网页端不能看必须下个专门的app还锁ip，反正我鼓捣了半天实在搞不定就买了票然后去白嫖其他人的直播间了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -16944,3 +16944,22 @@ mujica原号 武士道的号 甚至再开新号都可以，人家就是摸了<im
 
 可能这就是武士道吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 12216#       发表于 2024-2-8 19:24
+
+还是E+吧，虽然贵得一比。
+
+也好歹是乡绅如数奉还，不用大锅饭。
+
+*****
+
+####  NODY  
+##### 12217#       发表于 2024-2-8 19:26
+
+mujica先不论，羊女士这不思进取的唱功让我买e+总觉得肉痛，最烦人的是e+现在手机端不能看了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+先买个第一站试试水吧，希望不要太惨烈
+

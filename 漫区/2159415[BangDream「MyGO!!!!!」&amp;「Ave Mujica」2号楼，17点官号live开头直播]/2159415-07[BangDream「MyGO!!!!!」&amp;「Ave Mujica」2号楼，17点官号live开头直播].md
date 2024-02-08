@@ -15595,3 +15595,100 @@ s1应该是修好了，现在所有楼只差一层楼，不过回复跳转，消
 
 说祥子争议不大我是觉得挺扭捏的，既然都觉得这里是祥楼的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 12066#       发表于 2024-2-8 12:34
+
+有人说祥子争议不大吗？你要不要睁眼看看楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 12067#       发表于 2024-2-8 12:34
+
+我也没提89集。完结之后还有很多“爽世这种人精折在祥子这里”这种论调好吧。我的重点是老有人觉得素祥关系里爽世是受害者，我不同意这种观点。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 12068#       发表于 2024-2-8 12:34
+
+我建議你去點草，因為我隨便看了下還真是從你開始的捏<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12069#       发表于 2024-2-8 12:35
+
+前有第一个说强推之耻的，后有第一个说争议不大的，然后都反过来说是泥漏先说的，结界大开每次都能给我一些惊喜
+
+*****
+
+####  Kfly  
+##### 12070#       发表于 2024-2-8 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63914129&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-8 12:34</a>
+
+有人说祥子争议不大吗？你要不要睁眼看看楼啊</blockquote>
+兄弟，你是来自首的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> <blockquote>哪来的争议大，楼里都说了一页没有呼吸权的事了大雄的消息真是不灵通</blockquote>
+
+*****
+
+####  笋干爆炸碱  
+##### 12071#       发表于 2024-2-8 12:36
+
+这楼现在是确认能引用回复了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这样隔空确实看着蛮乱的
+
+*****
+
+####  Aendst  
+##### 12072#       发表于 2024-2-8 12:36
+
+ 本帖最后由 Aendst 于 2024-2-8 12:39 编辑 
+
+那只能说明你逻辑能力不好，这里争议大指的是当前话题提到的当时的风气，所以后接的是呼吸权，没想到会有人看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+简单来说，漏油讨论的是一直都是<strong>单方面角色黑盛行，所谓的角色争议大是另一个完全无关的只有你在纠结的话题</strong>
+
+*****
+
+####  Arrogate  
+##### 12073#       发表于 2024-2-8 12:41
+
+这楼真的好了吗，别又像之前一会好一会坏的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 12074#       发表于 2024-2-8 12:41
+
+ 本帖最后由 御幸一也 于 2024-2-8 12:43 编辑 
+
+這個樓友不會真的是覺得“爭議大”就可以隨便罵隨便黑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12075#       发表于 2024-2-8 12:42
+
+回12073#
+
+感覺已經好了吧，你看這不又新鮮的吵起來了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+泥樓今天的KPI又有了呢，可喜可賀
+
+*****
+
+####  Kfly  
+##### 12076#       发表于 2024-2-8 12:43
+
+行吧，又成我逻辑不顺了，争议大指是风气，随你定义呗，我提出“问题在于争议大且未完成”的时候你又看懂我的定义了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

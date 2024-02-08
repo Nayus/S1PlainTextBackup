@@ -1014,3 +1014,14 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 自机全都打出来了，不知道有没有勇士能用每系最后一架自机打通最高难度的，全都没vom（分裂机烧血分裂），蓄力攻击没有消弹能力
 
+
+*****
+
+####  猫出没注意  
+##### 76#       发表于 2024-2-8 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63902447&amp;ptid=2168002" target="_blank">quanlix 发表于 2024-2-6 23:29</a>
+
+测dps的时候面板3411%的三向火柱（32级）极限伤害能到19w，3583%的双向火柱（31级，自带了20%攻击修正） ...</blockquote>
+还有一点就是这游戏的爬塔模式虽然能从中途接关，但血量上限的升级居然给的是空血而不是满血，进图后还是只有3点血得慢慢回。而越高层的关卡敌人打自己一次可能掉3血甚至更多，经常是刚续关不久就被秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">……这个有解吗，还是只能读更低的关卡慢慢打上去。
+

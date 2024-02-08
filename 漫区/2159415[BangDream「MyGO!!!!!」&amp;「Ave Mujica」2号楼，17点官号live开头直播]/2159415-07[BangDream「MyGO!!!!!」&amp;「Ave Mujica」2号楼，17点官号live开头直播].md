@@ -15278,3 +15278,75 @@ mujica动画睦哭哭是不是必有了。想看<img src="https://static.saraba1
 
 立希显然是懂礼貌的常识人，但是跟睦发消息的口气很直接，是否可以说明她们蛮熟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12030#       发表于 2024-2-8 11:54
+
+立希不垫的唯一可能是就是中之人关系逆输入，但鉴于大鼓生放都明说羡慕鸡团关系好狗团刚起步了，很显然官方并没有打算参考三次元关系性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 12031#       发表于 2024-2-8 11:54
+
+对立希的角色塑造表示悲观<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">之前写文的时候去补了补手游剧情，几分钟小剧场里比动画塑造还要差劲。立希设定是很丰富的人，但是动画只给了一集个人回的集中描写。包括那一集也是有大量爱音和灯的戏份。后面作为事实上的队长位的塑造，国内讨论根本没注意到。
+
+*****
+
+####  Kfly  
+##### 12032#       发表于 2024-2-8 11:55
+
+还有个问题是“争议大”，换成海玲喵梦这两个未完成也没见有啥吵的
+
+素世主要想否定女诸葛，都第八第九集还能看出女诸葛形象吗，这时候还算“逐渐”，第十集“我是来结束一切的”则是彻底破除<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12033#       发表于 2024-2-8 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 12034#       发表于 2024-2-8 11:58
+
+立希和🐔团的关系能不能中之人逆输入一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12035#       发表于 2024-2-8 11:58
+
+ 本帖最后由 Aendst 于 2024-2-8 12:03 编辑 
+
+哪来的争议大，楼里都说了一页没有呼吸权的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大雄的消息真是不灵通
+
+女诸葛漏油不都说了是“当时”，人说当时你说之后，话题都不是一个话题，有什么好否定的
+
+*****
+
+####  御幸一也  
+##### 12036#       发表于 2024-2-8 11:59
+
+立希鼓子早就是ave mujica第六人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+突然悟了，難怪泥樓住著的立希廚也不少，這下ave mujica大家庭了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12037#       发表于 2024-2-8 12:02
+
+但凡能逆输入一下希祥希初股票早就上天了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">她们可是大亲友啊
+
+*****
+
+####  Dayahal  
+##### 12038#       发表于 2024-2-8 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立希在nga以及刻板印象成炼铜和被铜炼了
+

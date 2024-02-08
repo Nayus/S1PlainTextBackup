@@ -491,3 +491,25 @@ The long is long.
 
 靠翅膀才能飞的是哆啦罐，能操控天气打雷闪电的是龙
 
+
+*****
+
+####  snailium  
+##### 53#       发表于 2024-2-9 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919672&amp;ptid=2171337" target="_blank">尼奥 发表于 2024-2-9 01:05</a>
+靠翅膀才能飞的是哆啦罐，能操控天气打雷闪电的是龙</blockquote>
+会喷火的怎么说？
+
+— from OnePlus CPH2451, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  钦念以忱  
+##### 54#       发表于 2024-2-9 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919313&amp;ptid=2171337" target="_blank">巨魔型美羽 发表于 2024-2-8 23:57</a>
+
+歪个楼，中东这个词带着欧洲中心论遗毒，西亚又不包括埃及，有没有合适的词呢 ...</blockquote>
+想着给中东这个欧洲中心论遗毒换名之前，还是先把亚洲这个欧洲中心论遗毒的词换了吧。
+

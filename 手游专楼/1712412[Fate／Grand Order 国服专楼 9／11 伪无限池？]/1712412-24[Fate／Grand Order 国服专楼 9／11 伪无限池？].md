@@ -694,3 +694,11 @@ RP还是守恒的，上一单石沉大海<img src="https://static.saraba1st.com/
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  khxooo  
+##### 46138#       发表于 2024-2-8 18:06
+
+看来2.7这波鼠鼠这波吃肥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

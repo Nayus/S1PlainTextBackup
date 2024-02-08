@@ -16766,3 +16766,34 @@ Staff提前给大家拜年！
 新春佳节来临之际，让我们一同“呐喊”[打call]
 <img src="https://p.sda1.dev/15/3c27d1b08cd4b3847b185192c70a9fd4/CMP_20240208180202874.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12194#       发表于 2024-2-8 18:04
+
+觉得这些同人只有少数角色被针对说明还是看得少了，不过我觉得这是好事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12195#       发表于 2024-2-8 18:08
+
+为什么一个一年多以前的live还是剪辑版要开大航海才能看，韭菜这么好割的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 12196#       发表于 2024-2-8 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">还是看看祥祥和结月宝吧。天音妹妹的笑声太魔性了未免，天音妹妹节目效果这点确实好
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 12197#       发表于 2024-2-8 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">天音妹妹的魔性笑声也是萌点
+

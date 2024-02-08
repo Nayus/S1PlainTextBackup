@@ -747,3 +747,13 @@ The long is long.
 
 下一个问题，龙到底应该在海里还是天上，平时休息不干活时
 
+
+*****
+
+####  脑洞  
+##### 76#       发表于 2024-2-9 04:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919961&amp;ptid=2171337" target="_blank">oyss 发表于 2024-2-9 04:08</a>
+下一个问题，龙到底应该在海里还是天上，平时休息不干活时</blockquote>
+龙宫龙王不都在海里吗
+

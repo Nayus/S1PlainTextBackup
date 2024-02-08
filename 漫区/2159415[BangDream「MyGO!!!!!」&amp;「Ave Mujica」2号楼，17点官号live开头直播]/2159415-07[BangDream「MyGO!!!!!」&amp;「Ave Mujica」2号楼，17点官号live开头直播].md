@@ -15197,3 +15197,20 @@ mujica动画睦哭哭是不是必有了。想看<img src="https://static.saraba1
 
 虽然作为祥厨希祥作曲我是喜闻乐见，但以独角兽的尿性，真出现这种剧情利息肯定会被拿来垫脚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12020#       发表于 2024-2-8 11:35
+
+错误的，车立希除了c团相关外其实不怎么和祥子祥厨扯得上关系，主要是狗团内部厨黑在车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 12021#       发表于 2024-2-8 11:41
+
+希祥肉眼可见的关系差吧，漏油都在脑希祥不太理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

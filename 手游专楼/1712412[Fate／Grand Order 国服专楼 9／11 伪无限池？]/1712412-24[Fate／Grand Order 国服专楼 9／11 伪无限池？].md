@@ -621,3 +621,14 @@ OK，加到了
 
 早上彩圈骑，太公望二宝了，这游戏真的没法玩了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 46131#       发表于 2024-2-8 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63904941&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-2-7 11:09</a>
+
+你还是忍不住啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是傻逼
+

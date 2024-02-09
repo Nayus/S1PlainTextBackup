@@ -1081,3 +1081,27 @@ QQ图片20240206194841.jpg
 截止 15 话 男主弱很正常吧，本人的技术是真不行，机体也不是啥特机。超算虽然不菜决斗的黑假面超算和她也 ...</blockquote>
 彼方想事情也还是比较周到的，去遗址前还特意希望如果回不来就让艾达他们把诺娃送回小镇
 
+
+*****
+
+####  NeloAngelo  
+##### 3721#       发表于 2024-2-9 07:37
+
+ 本帖最后由 NeloAngelo 于 2024-2-9 07:44 编辑 
+
+EPISODE 18
+
+Beyond the Sky
+
+Betrayed by a trusted ally, Kanata is taken prisoner. To make matters worse, two more of his friends are seen standing among Ideal's members. With a final twist of the proverbial knife, Weisheit reveals a shocking past.
+
+<img src="https://img.saraba1st.com/forum/202402/09/073659h6b4m99b9r7z77mz.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0542.PNG</strong> (612.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 07:36 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

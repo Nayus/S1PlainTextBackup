@@ -950,3 +950,11 @@ The long is long.
 我们也可以细分嘛</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">竜龍ドラゴン
 
+
+*****
+
+####  Tienx  
+##### 94#       发表于 2024-2-9 08:42
+
+前脚还吐槽日本人天天整片假名，后脚就要全盘音译了
+

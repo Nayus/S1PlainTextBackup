@@ -17195,3 +17195,134 @@ s1fun更新了，好像可以用<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  基神的强袭自由  
+##### 12241#       发表于 2024-2-8 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63914471&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-2-8 13:19</a>
+卡牌能力的部分很伟大的好不好
+
+唉这张初华太伟大了，我已经忍不住幻想凑齐一套是不是能暴打我兄弟的 ...</blockquote>
+我1st在现场买了一整盒出了两张10000的初华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 12242#       发表于 2024-2-8 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63915821&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-8 16:23</a>
+这还是你邦有武士道这个大背景所以筛掉了相当一部分人的成果，更严重的就像楼上说的滚一样有大量带男性向r1 ...</blockquote>
+我忏悔，昨天在EH上看了韩国人画的七深男性向同人志<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 12243#       发表于 2024-2-9 00:00
+
+坏了，好像引用多了，今天s1fun更新把前面十几页补完了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ddy2811  
+##### 12244#       发表于 2024-2-9 00:04
+
+那天烤羊根本算不上人身攻击的，只是很正常地讨论了18页，而且真有那么正当的理由也不会走廊开了好几帖都秒删了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フミさん  
+##### 12245#       发表于 2024-2-9 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">蜜柑，开心地炫耀来自羊爹羊妈的项链。。。
+
+<img src="https://img.saraba1st.com/forum/202402/09/000721mtgtgalfhu8xmuqu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 00:07 上传
+
+*****
+
+####  笋干爆炸碱  
+##### 12246#       发表于 2024-2-9 00:11
+
+因为我也不知道这楼现在啥情况所以这样回12223＃
+
+母鸡卡现在只有六张卡完全不够的，ws一个卡组需要五十张，真的要玩的话只能等出预组和补充包<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+起码需要八张高潮卡，和八张高潮联动卡，这十六张基本决定一个卡组的上限。以及二十张左右的各种功能的丝滑低级卡，决定卡组强度下限。和杂七杂八其他功能卡，目前母鸡卡六张只能说都在第三类里
+
+*****
+
+####  基神的强袭自由  
+##### 12247#       发表于 2024-2-9 00:23
+
+S1fun引用多了还是有问题，还得是iOS的S1mufu<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以我以前的NGA管理经验，想找空子处理太简单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我玩不来实体卡牌，到时候楼友想要一张初华的话可以联系我邮寄给你<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋干爆炸碱| + 1|感谢，虽然我已经闲鱼买了（|
+
+查看全部评分
+
+*****
+
+####  江口夕  
+##### 12248#       发表于 2024-2-9 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">老r那可是滿足你對2點5次元樂隊所有幻想的團，特別是初代。
+哪怕是志崎女士也是從不凹人設，堅持本我（），特別是你也黑5dj的話那都是自己人（），7th之前剛加入幾個月練十幾首大家看在眼裡（）
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  江口夕  
+##### 12249#       发表于 2024-2-9 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有一说一志琦女士坚持本我（，对于不看d5j的人来说黑点寥寥，不想干就不干（，加上7th之前表现确实可圈可点。再加上身材控制。虽然科技了点。
+
+自从有了羊，志琦女士完全是站在道德高地俯瞰的级别<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 12250#       发表于 2024-2-9 02:39
+
+你楼恢复了啊，看到聊这么多还当有什么重大新情报呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看了最近的一些粉圈相关的事情，深刻感受到了deja vu，包括思考方式和转进打滚的话术<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12251#       发表于 2024-2-9 02:49
+
+是要過年了泥樓在提前完成本週KPI罷了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 12252#       发表于 2024-2-9 03:51
+
+邦邦这样的企划，粉圈不是很正常？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

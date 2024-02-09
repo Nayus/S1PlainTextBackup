@@ -1072,3 +1072,13 @@ long行不行，多一个o干什么，还是传教士来源？</blockquote>
 
 2024-2-9 09:53 上传
 
+
+*****
+
+####  minysun  
+##### 105#       发表于 2024-2-9 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919007&amp;ptid=2171337" target="_blank">caupollen 发表于 2024-2-8 23:21</a>
+没事，已经在反噬了</blockquote>
+wyvern中文其实更多译作双足龙算低等的不如四足带翅，类似mh中竜和龍的差异<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

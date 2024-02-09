@@ -1105,3 +1105,16 @@ Betrayed by a trusted ally, Kanata is taken prisoner. To make matters worse, two
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aptx8285144  
+##### 3722#       发表于 2024-2-9 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920170&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-9 07:37</a>
+
+EPISODE 18
+
+Beyond the Sky</blockquote>
+那手明显是卫浴柜的手，歌姬一副强化人的表情（
+

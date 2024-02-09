@@ -258,3 +258,38 @@
 
 2024-2-8 22:35 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 1666#         楼主| 发表于 2024-2-9 21:01
+
+／
+
+    小説第２弾‼️
+
+    『リコリス・リコイル Recovery days』
+
+    カバーイラスト公開🎉
+
+＼
+
+千束やたきなをはじめとしたキャラクターが織りなす、喫茶リコリコのありふれた非日常を原案者自らがノベライズ✨
+
+2024年3月8日発売 
+<img src="https://p.sda1.dev/15/580beb36fda78bc0c965e4698be51af9/322310000916.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  夜游宫  
+##### 1667#       发表于 2024-2-9 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63926569&amp;ptid=2152053" target="_blank">Piano-Forest 发表于 2024-2-9 21:01</a>
+
+／
+
+    小説第２弾‼️
+
+    『リコリス・リコイル Recovery days』</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">千束你的腿怎么这么不老实！
+

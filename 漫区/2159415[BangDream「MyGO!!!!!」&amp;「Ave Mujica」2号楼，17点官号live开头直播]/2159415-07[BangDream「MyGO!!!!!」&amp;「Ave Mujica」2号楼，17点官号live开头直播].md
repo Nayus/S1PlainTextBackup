@@ -18004,3 +18004,39 @@ Megabox那边，九楼
 
 新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 12321#       发表于 2024-2-10 00:51
+
+漏油新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nh_zzz  
+##### 12322#       发表于 2024-2-10 00:51
+
+新的一年㊗️各位女声优噶比抽选必中，ライブ必神席，イベント必能届到，发推必被点赞，推的女声优身体健康，通告多多，没有小男友
+
+*****
+
+####  紫吹兰  
+##### 12323#         楼主| 发表于 2024-2-10 00:51
+
+第二季开播前最后一个新年快乐
+
+*****
+
+####  阿萨德飞过去  
+##### 12324#       发表于 2024-2-10 00:55
+
+楼友新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，希望今年大家都顺顺利利吧
+
+*****
+
+####  CyDiablo  
+##### 12325#       发表于 2024-2-10 01:00
+
+又要当一年邦孝子了，希望今年狗和鸡能有来华的计划（bml除外），老东西们要是能来更好了，米娜新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+

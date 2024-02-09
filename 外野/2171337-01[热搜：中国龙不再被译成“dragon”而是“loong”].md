@@ -1454,3 +1454,18 @@ loong和dragon有啥区别…一个是从注音迁就外国人，一个是从理
 
 外国人爱怎么叫“春节”你也要管，你这有点多管闲事了。
 
+
+*****
+
+####  snailium  
+##### 143#       发表于 2024-2-9 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919990&amp;ptid=2171337" target="_blank">游戏列表 发表于 2024-2-9 05:04</a>
+搜了下“loong”，不是china daily就是CGTN，说白了还是自嗨罢了，人家也没人用啊 ...</blockquote>
+这个要参考汉城改名首尔，要国家层面提出正确的翻译方式，对方国家直接拿来用就对了。美国总统的中文译名也是类似流程。
+
+那些说long的，还不如直接写汉字，非要用拉丁文字是不是跪多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2451, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -82,3 +82,15 @@ watch?v=hY9lSAZQfbk
 《浪人崛起》幕后花絮
 [https://www.bilibili.com/video/BV1J642137HF](https://www.bilibili.com/video/BV1J642137HF)
 
+
+*****
+
+####  病態極端  
+##### 611#       发表于 2024-2-9 11:48
+
+<img src="https://p.sda1.dev/15/960fc30671c6a0858724cd404f84136d/ror-yoshihara.png" referrerpolicy="no-referrer">
+
+明暗效果好奇怪啊，感覺近景NPC浮在畫面上。
+
+畫面切到逛吉原的時候似乎還會掉幀。
+

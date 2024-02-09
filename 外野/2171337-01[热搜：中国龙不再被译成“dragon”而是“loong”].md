@@ -1210,3 +1210,23 @@ wyrm没有脚，确实好像没有可以准确形容中国龙的英语单词
 
 长龙航空大喜！！！
 
+
+*****
+
+####  朔方原的星  
+##### 120#       发表于 2024-2-9 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63921345&amp;ptid=2171337" target="_blank">Milky牛奶 发表于 2024-2-9 11:32</a>
+这又无所谓，非要改一个自己人也不常用的词干嘛？既然要用拼音，当然是用大家都能想到的拼音好啊。
+
+哪怕 ...</blockquote>
+你可能把一个新词或魔改词引入，但永远不可能把一个常用词改成别的读音，硬撞常用词只会被常用词吃掉再也搜索不出来
+
+
+*****
+
+####  shoel  
+##### 121#       发表于 2024-2-9 11:51
+
+中国龙的确是一种极其奇特的生物，是得有个专用的名词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

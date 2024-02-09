@@ -57,3 +57,23 @@ DLC1新增的英灵居然是伊吹童子吗，看样子好像丑御前和闪闪�
 
 大小姐就不知道能否用到了
 
+
+*****
+
+####  exiaexa  
+##### 1697#       发表于 2024-2-9 08:20
+
+ 本帖最后由 exiaexa 于 2024-2-9 08:23 编辑 
+
+以前的联动是fgo蹭前作热度
+
+这次联动是给fsr引流（顺带迫害新任挺王大雪老师）
+
+那能一样吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+伊织跟武藏最后那战那气氛，都快给你看直接开宝具本了就硬是给你憋回去
+
+想知道咋回事儿？去玩fsr啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

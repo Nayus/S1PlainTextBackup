@@ -1229,3 +1229,16 @@ Beyond the Sky</blockquote>
 
 看预告下集雪露反水帮彼方逃亡的可能性更大吧，大哥还不至于这么快反复横跳
 
+
+*****
+
+####  aptx8285144  
+##### 3732#       发表于 2024-2-9 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63926709&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-2-9 21:06</a>
+
+第18話「Beyond the sky」
+
+https://youtu.be/YezArQ8QWDI</blockquote>
+这作画感觉，这几个人突然更帅了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

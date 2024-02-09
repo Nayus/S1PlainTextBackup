@@ -12721,3 +12721,28 @@ UU这几天坐牢概率猛增啊，地瓜说最近裸连成功率高了就试了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今晚的塞尔达live真棒，期待明天的蛮颓live
 
+
+*****
+
+####  Ryuuseigun  
+##### 2759#       发表于 2024-2-9 21:56
+
+吃完年夜饭我寻思摸两把打工都说武器好，确实武器好400分开工三波贵物<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打完390分，野人有一种路都不会走的美
+
+*****
+
+####  罗克萨斯  
+##### 2760#       发表于 2024-2-9 21:59
+
+激动，刚刚见证了XP4000的鹦鹉螺，奶狗拉--加特林唯一神！一度降到3200，却能在短时间内升回来，乃至打破自己记录，太了不起了，也让我坚定了把鹦鹉螺作为主武器的决心
+
+<img src="https://img.saraba1st.com/forum/202402/09/215946l3skt7k9zk09nelx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-09-21-53-04-976_com.google.android.youtube-edit.jpg</strong> (474.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 21:59 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

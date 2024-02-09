@@ -1118,3 +1118,25 @@ EPISODE 18
 Beyond the Sky</blockquote>
 那手明显是卫浴柜的手，歌姬一副强化人的表情（
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3723#       发表于 2024-2-9 10:05
+
+感觉配合op是要ciel献出body了…
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  aptx8285144  
+##### 3724#       发表于 2024-2-9 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920768&amp;ptid=2092345" target="_blank">ParadiseMartyr 发表于 2024-2-9 10:05</a>
+
+感觉配合op是要ciel献出body了…
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+献给诺娃还好，希望别是献给卫浴柜（
+

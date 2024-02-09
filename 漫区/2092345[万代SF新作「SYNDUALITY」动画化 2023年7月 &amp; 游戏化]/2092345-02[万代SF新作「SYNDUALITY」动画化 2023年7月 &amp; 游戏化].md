@@ -1242,3 +1242,14 @@ Beyond the Sky</blockquote>
 https://youtu.be/YezArQ8QWDI</blockquote>
 这作画感觉，这几个人突然更帅了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 3733#       发表于 2024-2-9 22:36
+
+大哥潜入的目的大概率是想把黑假面捞出来.  总之, Ideal和阿美这条线还有的是要展开的
+这片一般是很俗套的展开. 不过上半部分大哥一副便当相, 结果只是虚晃一枪, 还算没有那么土<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

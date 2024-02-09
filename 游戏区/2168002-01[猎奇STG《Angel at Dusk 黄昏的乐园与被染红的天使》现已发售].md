@@ -1080,3 +1080,15 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以主线第三个篇章怎么才能出来
 
+
+*****
+
+####  quanlix  
+##### 82#       发表于 2024-2-10 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63929426&amp;ptid=2168002" target="_blank">liuqy 发表于 2024-2-9 23:26</a>
+所以主线第三个篇章怎么才能出来</blockquote>
+打通编年史，32关出现条件有人说是打完所有金骷髅关卡，我是直接把所有分支全清了，之后重新打过31关就可以进32关了，32关没打过之前不会直接出现需要从31关重新打
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

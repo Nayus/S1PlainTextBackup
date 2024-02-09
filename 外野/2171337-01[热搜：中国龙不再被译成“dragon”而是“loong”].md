@@ -1242,3 +1242,16 @@ dragon是四爪着地背生大翼，wyvern是前肢带翼膜，dragon血统要�
 wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 中国龙也复杂的很，蛟龙，蟠龙，螭龙，虬龙，应龙等等等等，还有龙生九种呢，有些按传统（虽然也未必很古）描述到还挺能跟这些西方形象对上。
 
+
+*****
+
+####  Milky牛奶  
+##### 123#       发表于 2024-2-9 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63921432&amp;ptid=2171337" target="_blank">朔方原的星 发表于 2024-2-9 11:47</a>
+
+你可能把一个新词或魔改词引入，但永远不可能把一个常用词改成别的读音，硬撞常用词只会被常用词吃掉再也 ...</blockquote>
+嗯…这也是…
+
+也许我就是气急败坏了，我都铺垫了两礼拜long了，明天我是改ppt成loong还是硬讲long啊，愁死我了
+

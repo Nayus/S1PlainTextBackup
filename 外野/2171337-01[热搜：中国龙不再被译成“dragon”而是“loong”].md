@@ -1230,3 +1230,15 @@ wyrm没有脚，确实好像没有可以准确形容中国龙的英语单词
 
 中国龙的确是一种极其奇特的生物，是得有个专用的名词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  听剑客  
+##### 122#       发表于 2024-2-9 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920910&amp;ptid=2171337" target="_blank">徐天霸 发表于 2024-2-9 10:26</a>
+dragon是四爪着地背生大翼，wyvern是前肢带翼膜，dragon血统要高一点
+
+wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
+中国龙也复杂的很，蛟龙，蟠龙，螭龙，虬龙，应龙等等等等，还有龙生九种呢，有些按传统（虽然也未必很古）描述到还挺能跟这些西方形象对上。
+

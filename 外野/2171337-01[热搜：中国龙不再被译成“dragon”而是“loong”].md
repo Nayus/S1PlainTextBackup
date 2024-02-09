@@ -1153,3 +1153,20 @@ wyrm没有脚，确实好像没有可以准确形容中国龙的英语单词
 
 龙哥就是龙
 
+
+*****
+
+####  酷乐  
+##### 114#       发表于 2024-2-9 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920595&amp;ptid=2171337" target="_blank">nightrap 发表于 2024-2-9 09:27</a>
+凤凰这个更麻烦，因为受《女神》这类作品的影响，有些人已经分不清哪些才是真正属于凤凰的属性了，还有多 ...</blockquote>
+那你知道巴哈姆特最初是啥吗，它的现代形象也来自DND，FF那个是借鉴的。
+
+*****
+
+####  隔壁老黄  
+##### 115#       发表于 2024-2-9 11:15
+
+那还china？不得叫zhongguo？
+

@@ -1767,3 +1767,14 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 古希腊时候dragon就是四脚蛇，变蜥蜴要等基教传开</blockquote>
 不，是大蛇
 
+
+*****
+
+####  古凌锋  
+##### 172#       发表于 2024-2-9 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919261&amp;ptid=2171337" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2024-2-8 23:49</a>
+
+别想着给洋人的东西如何信达雅意译了，不论是进口的还是出口的东西一律音译才是应该的 ...</blockquote>
+干脆用字母好了，许日本人片假名不许咱拼音吗
+

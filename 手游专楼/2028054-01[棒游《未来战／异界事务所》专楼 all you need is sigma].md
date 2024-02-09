@@ -16,3 +16,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">天鹅是那种可获取角色吗，我馋好久了还没点消息
 
+
+*****
+
+####  rgauss  
+##### 970#         楼主| 发表于 2024-2-9 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920550&amp;ptid=2028054" target="_blank">拍不到脑袋 发表于 2024-2-9 09:17</a>
+天鹅是那种可获取角色吗，我馋好久了还没点消息</blockquote>
+是 据说现在的立绘只是普通版ssr的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

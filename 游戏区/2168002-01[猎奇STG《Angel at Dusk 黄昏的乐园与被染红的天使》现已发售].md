@@ -1072,3 +1072,11 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 还有一点就是这游戏的爬塔模式虽然能从中途接关，但血量上限的升级居然给的是空血而不是满血，进图后还是 ...</blockquote>
 强化自机回血能力可以稍微缓解下，剩下的就只能多练了
 
+
+*****
+
+####  liuqy  
+##### 81#       发表于 2024-2-9 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以主线第三个篇章怎么才能出来
+

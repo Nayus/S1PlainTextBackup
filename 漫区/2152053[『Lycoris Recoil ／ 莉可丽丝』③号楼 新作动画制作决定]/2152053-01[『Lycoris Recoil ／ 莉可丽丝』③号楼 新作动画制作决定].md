@@ -416,3 +416,35 @@
 我只觉得手指很怪</blockquote>
 我也觉得，某伊这tkn的姿势我反正模仿不出来，中指像是有四节，比某社长的鸡爪还要离谱
 
+
+*****
+
+####  Saber琪  
+##### 1672#       发表于 2024-2-9 23:28
+
+蒜楼好像没人搬夏威夷手办，我来搬搬，yysy，小肚肚都hso（）
+
+<img src="https://img.saraba1st.com/forum/202402/09/232819l834pz28q2n4lyud.jpg" referrerpolicy="no-referrer">
+
+<strong>DCB152DA12C36DAE6C3C2523E63DC81D.jpg</strong> (64.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/09/232826hgttfkxffff2fkfk.jpg" referrerpolicy="no-referrer">
+
+<strong>217AF5738AA7A137C2902181DDE5E5B1.jpg</strong> (72.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/09/232830tce766fsssvw73gs.jpg" referrerpolicy="no-referrer">
+
+<strong>8A63B174F6FB9B137BB498DBE9FB162E.jpg</strong> (80.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:28 上传
+

@@ -52,3 +52,14 @@
 
 这玩偶尺寸大概多大？
 
+
+*****
+
+####  冷泉夜月  
+##### 15645#       发表于 2024-2-9 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918617&amp;ptid=1997982" target="_blank">清浦刹那 发表于 2024-02-08 22:32:13</a>
+这玩偶尺寸大概多大？</blockquote>高度17cm多一点
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -958,3 +958,27 @@ The long is long.
 
 前脚还吐槽日本人天天整片假名，后脚就要全盘音译了
 
+
+*****
+
+####  mixtycomeon  
+##### 95#       发表于 2024-2-9 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920024&amp;ptid=2171337" target="_blank">philing 发表于 2024-2-9 05:42</a>
+
+要不dragon 翻译成
+
+竜
+
+如何？</blockquote>
+我第一反应竜是龟的异体字，这字和龙有啥关系
+
+*****
+
+####  zfz4869  
+##### 96#       发表于 2024-2-9 09:04
+
+词源是draco是吧？那好，就叫拽哥马粪
+
+—— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

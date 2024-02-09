@@ -12631,3 +12631,11 @@ UU这几天坐牢概率猛增啊，地瓜说最近裸连成功率高了就试了
 
 这就是开门工的实力吗，每个W都恨不得搬50个蛋
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2752#       发表于 2024-2-9 08:54
+
+这期配置不错，可惜已经康过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下期怎么又是鲑坝配消防栓，研究所这么喜欢把消防栓放鲑坝啊
+

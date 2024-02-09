@@ -1197,3 +1197,25 @@ Beyond the Sky</blockquote>
 —— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 这动画其实也算是怎么俗套怎么来的水平，有活但不算多，能平稳落地就算可以了。
 
+
+*****
+
+####  Piano-Forest  
+##### 3730#         楼主| 发表于 2024-2-9 21:06
+
+第18話「Beyond the sky」
+
+[https://youtu.be/YezArQ8QWDI](https://youtu.be/YezArQ8QWDI)
+
+シエルの裏切りによって囚われの身となってしまったカナタ。
+
+イデアールには仮面をかぶったトキオとムートンの姿もあった。
+
+さらに追い打ちをかけるように、シエルはヴァイスハイトからカナタの始末を命じられてしまう。そして明らかになるシエルの衝撃の過去とはー
+<img src="https://p.sda1.dev/15/f2b9aa3cad1c6f3c36fb2910343238ca/89ce0270e38b47feb46c5337787564d3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/79a32abfef69846d02385c184226bd39/SYN18_02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/07b98de71f65882224b5e5c840d834f2/SYN18_03.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/20ab1cc29b98369e3ce320343d98dd6d/SYN18_04.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/ffa23ac3de551c8cbbc08e348b07bc40/SYN18_05.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/ac4d16dbf67ea5fbea7c6d78a7dd03b9/SYN18_06.jpg" referrerpolicy="no-referrer">
+

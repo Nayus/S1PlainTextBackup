@@ -99,3 +99,13 @@ DLC怎么进？steam更新完进去什么变化都没有，不会有主线进度
  ...</blockquote>
 主线里能自由行动的时候去大地图找闪闪图标
 
+
+*****
+
+####  シャル  
+##### 1700#       发表于 2024-2-9 12:27
+
+丑御前挺好用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这盔甲
+

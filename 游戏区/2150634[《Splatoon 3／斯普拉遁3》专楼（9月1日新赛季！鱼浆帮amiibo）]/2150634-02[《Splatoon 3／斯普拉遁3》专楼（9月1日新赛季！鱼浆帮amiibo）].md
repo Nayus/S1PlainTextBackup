@@ -12655,3 +12655,25 @@ UU这几天坐牢概率猛增啊，地瓜说最近裸连成功率高了就试了
 
 港店上架了一个鱼卵钥匙扣。
 
+
+*****
+
+####  罗克萨斯  
+##### 2754#       发表于 2024-2-9 11:29
+
+ 本帖最后由 罗克萨斯 于 2024-2-9 11:34 编辑 
+
+咬咬牙用了279个碎片，把 罗肯贝格T恤 白色 的大技能换成走速，以后可以定向刷走速碎片了<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/09/113040fhhwt0cllmlh9hml.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-09-11-27-18-975_com.nintendo.znca-edit.jpg</strong> (66.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 11:30 上传
+
+宽松版型的纯白T恤和短裤帆布鞋非常搭，同一种风格可以适配多种武器多种配装，看着不要太顺眼<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

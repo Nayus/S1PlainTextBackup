@@ -1189,3 +1189,16 @@ wyrm没有脚，确实好像没有可以准确形容中国龙的英语单词
 搜了下“loong”，不是china daily就是CGTN，说白了还是自嗨罢了，人家也没人用啊 ...</blockquote>
 自己不先用难道还能指望别人上赶着用吗
 
+
+*****
+
+####  Milky牛奶  
+##### 118#       发表于 2024-2-9 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920663&amp;ptid=2171337" target="_blank">紫吹兰 发表于 2024-2-9 09:42</a>
+
+有没有可能，有一个常用词拼写就是long</blockquote>
+这又无所谓，非要改一个自己人也不常用的词干嘛？既然要用拼音，当然是用大家都能想到的拼音好啊。
+
+哪怕是乌龙茶里的龙它也是long啊，oolong tea,这么多年不都用过来了
+

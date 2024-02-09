@@ -1701,3 +1701,16 @@ Gyoza指的是煎饺，跟煮的Jiaozi不一样，Tortellini大概也是饺子</
 
 哦
 
+
+*****
+
+####  overlorder  
+##### 166#       发表于 2024-2-9 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919527&amp;ptid=2171337" target="_blank">夏胧 发表于 2024-2-9 00:33</a>
+
+拽根，忘了从哪里看来的了，反正极为喜感
+
+—— 来自 Xiaomi M2102K1C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不是翻成多拉贡吗？就类似对特没普的翻译一样，不翻译成川噗
+

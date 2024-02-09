@@ -12677,3 +12677,21 @@ UU这几天坐牢概率猛增啊，地瓜说最近裸连成功率高了就试了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  苍蓝之枪  
+##### 2755#       发表于 2024-2-9 18:02
+
+<img src="https://img.saraba1st.com/forum/202402/09/180140cehigjsrhh91bhsb.jpg" referrerpolicy="no-referrer">
+
+<strong>无败野康.jpg</strong> (245.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 18:01 上传
+
+无败野康，而且一条嘴岗都没放过
+
+这期是真正的神仙配置，不亚于金工
+

@@ -1638,3 +1638,41 @@ CDA30E89-6998-49D1-B68D-646095B39869.jpeg
 
 有点无聊。这就是传说中的咬文嚼字么？
 
+
+*****
+
+####  巴特爱素子  
+##### 160#       发表于 2024-2-9 17:57
+
+<blockquote>bubeby 发表于 2024-2-9 17:37
+古希腊时候dragon就是四脚蛇，变蜥蜴要等基教传开</blockquote>
+不是，Draco是大蛇啊 没腿
+
+
+*****
+
+####  JustWWW  
+##### 161#       发表于 2024-2-9 18:01
+
+ 本帖最后由 JustWWW 于 2024-2-9 18:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922348&amp;ptid=2171337" target="_blank">snailium 发表于 2024-2-9 13:52</a>
+
+Gyoza指的是煎饺，跟煮的Jiaozi不一样，Tortellini大概也是饺子</blockquote>
+嗯…严格来说餃子并没有限定必须要是煎饺，只是日本人更习惯吃煎饺，中华料理里也默认是煎饺，但煮的饺子也是有的，水餃子就是国内最常见的那种煮的水饺了，超市就能买到
+
+*****
+
+####  JustWWW  
+##### 162#       发表于 2024-2-9 18:02
+
+ 本帖最后由 JustWWW 于 2024-2-9 18:03 编辑 
+
+风怒
+
+*****
+
+####  JustWWW  
+##### 163#       发表于 2024-2-9 18:02
+
+翻页？
+

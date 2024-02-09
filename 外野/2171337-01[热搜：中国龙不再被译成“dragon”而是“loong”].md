@@ -1356,3 +1356,54 @@ A long long is longing for a year of long for so long XDD
 
 looooooooooooooooooooog 是什么梗，象形文字龙么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  银光闪耀  
+##### 135#       发表于 2024-2-9 13:27
+
+早就该了，傻逼翻译“家”的翻译错误还一直引以为傲
+
+龙是神祇，dragon是大蜥蜴
+
+*****
+
+####  nuqzyc  
+##### 136#       发表于 2024-2-9 13:28
+
+黑神话的英文版翻译会是loong吗
+
+*****
+
+####  银光闪耀  
+##### 137#       发表于 2024-2-9 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920024&amp;ptid=2171337" target="_blank">philing 发表于 2024-2-9 05:42</a>
+
+要不dragon 翻译成
+
+竜
+
+如何？</blockquote>
+竜仍然还是ryu
+
+不如直接把dragon翻译成多拉贡更好
+
+你日片假名在这种时候反而领先了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOTEUS  
+##### 138#       发表于 2024-2-9 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919112&amp;ptid=2171337" target="_blank">mysterysilent 发表于 2024-2-8 23:34</a>
+
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
+应该废除的是春节
+
+袁世凯延续了孙中山等人的政策，把原属于农历新年的元旦名称让给了公历新年。他还要求公历新年这一天商铺必须休息，饭馆必须关门，一定要让所有人回家过年（公历）。如果不按照规定执行就会面临罚款。对于农历新年，袁世凯则要求人们要继续工作。袁世凯要求政府官员以身作则，带头过公历新年。
+
+袁世凯的命令引发了民间的强烈抵制，1913年农历新年当天（公历2月6日），从城市到乡村依然是一片热闹的景象。为了改变两个新年并存的情况，同时也为了缓解民愤。1914年1月21日，内政部总长朱启钤向袁世凯建议，将农历新年、端午、中秋、冬至分别定为春夏秋冬四节。
+
+朱启钤提到了实行公历的必要性，但也强调应尊重民俗与社会习惯，不该猛然废除农历新年，1月23日，袁世凯欣然批准了朱启钤的建议。3天后（1914年1月26日）便是农历新年，春节从1914年开始成为农历新年的新名字。
+

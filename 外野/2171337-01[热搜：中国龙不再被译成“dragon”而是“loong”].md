@@ -982,3 +982,34 @@ The long is long.
 
 —— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  macos  
+##### 97#       发表于 2024-2-9 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920075&amp;ptid=2171337" target="_blank">dclara1 发表于 2024-2-9 06:39</a>
+汉字用音译缺失太多信息了，要是各种文化概念全用音译，混淆问题肯定很严重
+
+但多拉贡这种译法又牵强附会</blockquote>
+是在声调和同音字，声调不是太大问题，方言就有很多变调也照用，同音字得等语言逐渐简化
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Genhime  
+##### 98#       发表于 2024-2-9 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+恶蜥、蜥怪或者飞蜥
+
+*****
+
+####  蔷薇下  
+##### 99#       发表于 2024-2-9 09:22
+
+按照现在的溯源结果不是说霸王龙真正的亲戚是鸡嘛，所以西幻龙是不是应该叫菲尼克斯/凤凰<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

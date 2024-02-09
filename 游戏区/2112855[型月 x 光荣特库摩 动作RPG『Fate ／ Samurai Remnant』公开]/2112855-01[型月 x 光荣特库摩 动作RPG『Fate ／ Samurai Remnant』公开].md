@@ -77,3 +77,25 @@ DLC1新增的英灵居然是伊吹童子吗，看样子好像丑御前和闪闪�
 想知道咋回事儿？去玩fsr啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空洞骑士  
+##### 1698#       发表于 2024-2-9 09:15
+
+ 本帖最后由 空洞骑士 于 2024-2-9 09:20 编辑 
+
+DLC怎么进？steam更新完进去什么变化都没有，不会有主线进度要求吧。。。看到了在大地图里有个图标。
+
+*****
+
+####  yangun22  
+##### 1699#       发表于 2024-2-9 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920532&amp;ptid=2112855" target="_blank">空洞骑士 发表于 2024-2-9 09:15</a>
+
+DLC怎么进？steam更新完进去什么变化都没有，不会有主线进度要求吧。。。看到了在大地图里有个图标。
+
+ ...</blockquote>
+主线里能自由行动的时候去大地图找闪闪图标
+

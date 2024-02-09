@@ -303,3 +303,116 @@
 千束你的腿怎么这么不老实！</blockquote>
 我们蒜也有自己的夹腿（）
 
+
+*****
+
+####  osore  
+##### 1669#       发表于 2024-2-9 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只觉得手指很怪
+
+*****
+
+####  Saber琪  
+##### 1670#       发表于 2024-2-9 23:22
+
+[https://twitter.com/yohukasi23/status/1755584770166362384?s=19](https://twitter.com/yohukasi23/status/1755584770166362384?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/231658ieee2rafbbby885e.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_231611.jpg</strong> (351.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:16 上传
+
+[https://twitter.com/rui_rui_rui0122/status/1755849609514229824?s=19](https://twitter.com/rui_rui_rui0122/status/1755849609514229824?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/231752kl944sjo49lvlsl4.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_231719.jpg</strong> (144.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:17 上传
+
+[https://twitter.com/sango3_3/status/1755675248853487697?s=19](https://twitter.com/sango3_3/status/1755675248853487697?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/231815z9jallvar1apsy1q.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_231758.jpg</strong> (82.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:18 上传
+
+[https://twitter.com/uonuma_yu/status/1755772608459747641?s=19](https://twitter.com/uonuma_yu/status/1755772608459747641?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/231925h76noz6ddojdq00o.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_231823.jpg</strong> (455.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:19 上传
+
+[https://twitter.com/rui_rui_rui0122/status/1755737940251296127?s=19](https://twitter.com/rui_rui_rui0122/status/1755737940251296127?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/232030ik8viyhqirbyvhs9.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_232024.jpg</strong> (265.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:20 上传
+
+[https://twitter.com/TabunnInu/status/1755677637685702992?s=19](https://twitter.com/TabunnInu/status/1755677637685702992?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/232055uq2iqj7knjobvosb.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_232037.jpg</strong> (62.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:20 上传
+
+[https://twitter.com/TabunnInu/status/1755647793258262785?s=19](https://twitter.com/TabunnInu/status/1755647793258262785?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/232124q3mpgpxe39xo74g4.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_232107.jpg</strong> (130.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:21 上传
+
+[https://twitter.com/uya__yuu/status/1755723088266952849?s=19](https://twitter.com/uya__yuu/status/1755723088266952849?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/232158ft89889cy169acrq.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_232137.jpg</strong> (559 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:21 上传
+
+[https://twitter.com/sakura_1110ssmm/status/1755896581164032400?s=19](https://twitter.com/sakura_1110ssmm/status/1755896581164032400?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/09/232237xn4uu2anqxxuonon.jpg" referrerpolicy="no-referrer">
+
+<strong>20240209_232209.jpg</strong> (205.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 23:22 上传
+
+*****
+
+####  Saber琪  
+##### 1671#       发表于 2024-2-9 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63929265&amp;ptid=2152053" target="_blank">osore 发表于 2024-2-9 23:17</a>
+
+我只觉得手指很怪</blockquote>
+我也觉得，某伊这tkn的姿势我反正模仿不出来，中指像是有四节，比某社长的鸡爪还要离谱
+

@@ -1013,3 +1013,25 @@ The long is long.
 
 按照现在的溯源结果不是说霸王龙真正的亲戚是鸡嘛，所以西幻龙是不是应该叫菲尼克斯/凤凰<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightrap  
+##### 100#       发表于 2024-2-9 09:27
+
+<blockquote>仟音一心 发表于 2024-2-8 23:30
+目前其实两个词还是混用的，没有完全换。
+
+话说凤凰和Phoenix也不是同一种东西。 ...</blockquote>
+凤凰这个更麻烦，因为受《女神》这类作品的影响，有些人已经分不清哪些才是真正属于凤凰的属性了，还有多少人清楚“Phoenix”的本意是不死鸟来着。
+
+*****
+
+####  spiece  
+##### 101#       发表于 2024-2-9 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920434&amp;ptid=2171337" target="_blank">mixtycomeon 发表于 2024-2-9 08:55</a>
+
+我第一反应竜是龟的异体字，这字和龙有啥关系</blockquote>
+是龙的异体字。
+

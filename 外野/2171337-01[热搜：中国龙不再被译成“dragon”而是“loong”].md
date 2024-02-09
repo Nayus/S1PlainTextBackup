@@ -1046,3 +1046,29 @@ The long is long.
 long行不行，多一个o干什么，还是传教士来源？</blockquote>
 有没有可能，有一个常用词拼写就是long
 
+
+*****
+
+####  Rincewind  
+##### 103#       发表于 2024-2-9 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919703&amp;ptid=2171337" target="_blank">钦念以忱 发表于 2024-2-9 01:14</a>
+想着给中东这个欧洲中心论遗毒换名之前，还是先把亚洲这个欧洲中心论遗毒的词换了吧。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">查了下亚洲的词源，并不欧洲中心论啊，本来只是爱琴海东岸一个地区的名字。
+除非你说的是“亚”这个译名。
+
+*****
+
+####  yth329  
+##### 104#       发表于 2024-2-9 09:54
+
+不早就是这样了
+
+<img src="https://img.saraba1st.com/forum/202402/09/095348xyr211ojoyyyy4r8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 09:53 上传
+

@@ -81,3 +81,11 @@
 
 LIVE一晃就结束了，感觉时间好快，不知道会不会卖碟，现在是不是可以期待下OST和大师之书了。
 
+
+*****
+
+####  forzen  
+##### 15648#       发表于 2024-2-9 23:07
+
+看不到黄金怪物的角真的有点遗憾，只有一点微弱的希望在NS2发售的时候有一次更新<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

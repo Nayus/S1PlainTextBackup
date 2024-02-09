@@ -1061,3 +1061,14 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 草，按照坛友说的换了主武器喷火器，真尼玛BUG，十级喷火器烧到了十八层。。。 
 
+
+*****
+
+####  quanlix  
+##### 80#       发表于 2024-2-9 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63916510&amp;ptid=2168002" target="_blank">猫出没注意 发表于 2024-2-8 17:39</a>
+
+还有一点就是这游戏的爬塔模式虽然能从中途接关，但血量上限的升级居然给的是空血而不是满血，进图后还是 ...</blockquote>
+强化自机回血能力可以稍微缓解下，剩下的就只能多练了
+

@@ -1171,3 +1171,16 @@ Beyond the Sky</blockquote>
 —— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 死棋比较多，不意外，看会不会有变数吧
 
+
+*****
+
+####  novyDC  
+##### 3728#       发表于 2024-2-9 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63924085&amp;ptid=2092345" target="_blank">aruruu 发表于 2024-02-09 17:40:17</a>
+真给夏尔发便当就落了俗套，太刻意了
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的  v2.5.4 ...</blockquote>没主人这个伏笔好久了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

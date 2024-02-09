@@ -1714,3 +1714,45 @@ Gyoza指的是煎饺，跟煮的Jiaozi不一样，Tortellini大概也是饺子</
 —— 来自 Xiaomi M2102K1C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 不是翻成多拉贡吗？就类似对特没普的翻译一样，不翻译成川噗
 
+
+*****
+
+####  benjin  
+##### 167#       发表于 2024-2-9 19:56
+
+有一说一，抓根这个名字的龙原本的形象也不是现在这种长有双翼的大肚子蜥蜴，原本的形象更像是长蛇巨蛇。
+
+B站的龙女之声最近就有一期视频说了西方的龙的来源以及中国古代的龙的形象的演变
+[https://www.bilibili.com/video/BV1jy421h7q6](https://www.bilibili.com/video/BV1jy421h7q6)
+
+*****
+
+####  benjin  
+##### 168#       发表于 2024-2-9 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919633&amp;ptid=2171337" target="_blank">wtf317 发表于 2024-2-9 00:55</a>
+
+为啥不用标准拼音long，而是用奇怪的loong，是因为龙有两个蛋嘛？
+
+本质上还是跪着站不起来，一脸献媚的想向 ...</blockquote>
+因为对于看英文的人来说看到LONG只会觉得这是英语单词“长”而不是“龙”
+
+*****
+
+####  灵魂熔炉  
+##### 169#       发表于 2024-2-9 20:00
+
+其实为啥要琢磨怎么翻译，真自信就应该不翻译，只有汉字，别人理解不理解关我啥事<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  benjin  
+##### 170#       发表于 2024-2-9 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920910&amp;ptid=2171337" target="_blank">徐天霸 发表于 2024-2-9 10:26</a>
+
+dragon是四爪着地背生大翼，wyvern是前肢带翼膜，dragon血统要高一点
+
+wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
+虽然但是，这些形象也是在欧洲流行奇幻小说以后才定性的啊
+

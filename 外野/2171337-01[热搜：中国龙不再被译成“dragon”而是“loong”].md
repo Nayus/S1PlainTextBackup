@@ -1790,3 +1790,13 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 但多拉贡这种译法又牵强附会</blockquote>
 文化传播是给人看而不是自嗨的
 
+
+*****
+
+####  隔壁老黄  
+##### 174#       发表于 2024-2-9 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63925306&amp;ptid=2171337" target="_blank">灵魂熔炉 发表于 2024-2-9 20:00</a>
+其实为啥要琢磨怎么翻译，真自信就应该不翻译，只有汉字，别人理解不理解关我啥事 ...</blockquote>
+这不就是圈地自萌嘛，除了给某些人自信了，没有丝毫的意义
+

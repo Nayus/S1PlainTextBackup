@@ -124,3 +124,18 @@ watch?v=hY9lSAZQfbk
 
 Team NINJA新作《浪人崛起》公开开发幕后花絮影片第一集“起点”（自带中文字幕）。影片中创作者们介绍游戏的开发过程，并会详细说明游戏如何呈现19世纪日本的细节。《浪人崛起》预定于3月22日登陆PS5平台。 http://t.cn/A6YbutGa ​​​
 
+
+*****
+
+####  drx66  
+##### 615#       发表于 2024-2-9 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63921434&amp;ptid=2092342" target="_blank">病態極端 发表于 2024-2-9 11:48</a>
+
+明暗效果好奇怪啊，感覺近景NPC浮在畫面上。
+
+畫面切到逛吉原的時候似乎還會掉幀。 ...</blockquote>
+因为npc脚下都没有阴影
+
+这天一黑，熟悉的味道就回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

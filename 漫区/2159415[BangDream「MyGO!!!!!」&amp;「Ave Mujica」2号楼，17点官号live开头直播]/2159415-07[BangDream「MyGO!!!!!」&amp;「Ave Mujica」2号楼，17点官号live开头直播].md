@@ -17810,3 +17810,11 @@ Megabox那边，九楼
 
 是不是领了这个红包就不能再磕其他cp了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 12300#       发表于 2024-2-9 18:35
+
+真发啊，从红包数额来看，楼友是初祥党<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

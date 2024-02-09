@@ -3540,3 +3540,16 @@ fy
 
 还有白猫人间体是金毛来着
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 830#       发表于 2024-2-9 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63905011&amp;ptid=2162354" target="_blank">ダイヤモンド 发表于 2024-2-7 11:15</a>
+
+不要扩大交友圈，不要
+
+我会PTSD……不是，这样对猫不好，不如让猫表演钢管舞 ...</blockquote>
+喵~？
+

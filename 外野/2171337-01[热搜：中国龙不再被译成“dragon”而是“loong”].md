@@ -1035,3 +1035,14 @@ The long is long.
 我第一反应竜是龟的异体字，这字和龙有啥关系</blockquote>
 是龙的异体字。
 
+
+*****
+
+####  紫吹兰  
+##### 102#       发表于 2024-2-9 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919242&amp;ptid=2171337" target="_blank">木葉梟 发表于 2024-2-8 23:47</a>
+
+long行不行，多一个o干什么，还是传教士来源？</blockquote>
+有没有可能，有一个常用词拼写就是long
+

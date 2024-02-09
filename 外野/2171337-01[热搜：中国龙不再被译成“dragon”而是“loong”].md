@@ -929,3 +929,24 @@ The long is long.
 
 改成like a deagon不知道高到哪里去了
 
+
+*****
+
+####  widder  
+##### 92#       发表于 2024-2-9 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+拽根
+
+*****
+
+####  hypnossz86  
+##### 93#       发表于 2024-2-9 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919178&amp;ptid=2171337" target="_blank">herryk159 发表于 2024-2-8 23:40</a>
+日本是不是分Ryu跟doragon？
+我们也可以细分嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">竜龍ドラゴン
+

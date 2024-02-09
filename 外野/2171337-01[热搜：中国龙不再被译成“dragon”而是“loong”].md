@@ -1756,3 +1756,14 @@ dragon是四爪着地背生大翼，wyvern是前肢带翼膜，dragon血统要�
 wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 虽然但是，这些形象也是在欧洲流行奇幻小说以后才定性的啊
 
+
+*****
+
+####  benjin  
+##### 171#       发表于 2024-2-9 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63924069&amp;ptid=2171337" target="_blank">bubeby 发表于 2024-2-9 17:37</a>
+
+古希腊时候dragon就是四脚蛇，变蜥蜴要等基教传开</blockquote>
+不，是大蛇
+

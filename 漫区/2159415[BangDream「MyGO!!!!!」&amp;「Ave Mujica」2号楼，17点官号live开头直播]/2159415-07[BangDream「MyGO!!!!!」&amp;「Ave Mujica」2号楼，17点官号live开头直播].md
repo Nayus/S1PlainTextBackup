@@ -18040,3 +18040,13 @@ Megabox那边，九楼
 
 又要当一年邦孝子了，希望今年狗和鸡能有来华的计划（bml除外），老东西们要是能来更好了，米娜新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 12326#       发表于 2024-2-10 02:27
+
+楼友新春快乐~~
+
+祝大家今年都能抽到想要的场次！
+

@@ -179,3 +179,13 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 楼友讲讲这个dlc性价比怎么样，内容多吗</blockquote>
 不算多，撇开限定的剧情，更多是补全了本篇不能操控其他人的遗憾
 
+
+*****
+
+####  死宅真恶心  
+##### 1708#       发表于 2024-2-9 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63923523&amp;ptid=2112855" target="_blank">桥洞底下盖小被 发表于 2024-2-9 16:22</a>
+楼友讲讲这个dlc性价比怎么样，内容多吗</blockquote>
+重复内容很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

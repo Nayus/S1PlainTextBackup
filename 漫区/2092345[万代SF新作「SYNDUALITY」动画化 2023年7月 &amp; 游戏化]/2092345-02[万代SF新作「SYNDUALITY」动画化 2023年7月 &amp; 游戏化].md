@@ -1184,3 +1184,16 @@ Beyond the Sky</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3729#       发表于 2024-2-9 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63924085&amp;ptid=2092345" target="_blank">aruruu 发表于 2024-2-9 17:40</a>
+
+真给夏尔发便当就落了俗套，太刻意了
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这动画其实也算是怎么俗套怎么来的水平，有活但不算多，能平稳落地就算可以了。
+

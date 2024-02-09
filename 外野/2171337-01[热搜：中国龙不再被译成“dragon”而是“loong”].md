@@ -1778,3 +1778,15 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 别想着给洋人的东西如何信达雅意译了，不论是进口的还是出口的东西一律音译才是应该的 ...</blockquote>
 干脆用字母好了，许日本人片假名不许咱拼音吗
 
+
+*****
+
+####  隔壁老黄  
+##### 173#       发表于 2024-2-9 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920075&amp;ptid=2171337" target="_blank">dclara1 发表于 2024-2-9 06:39</a>
+汉字用音译缺失太多信息了，要是各种文化概念全用音译，混淆问题肯定很严重
+
+但多拉贡这种译法又牵强附会</blockquote>
+文化传播是给人看而不是自嗨的
+

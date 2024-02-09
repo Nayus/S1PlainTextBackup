@@ -17443,3 +17443,15 @@ S1fun引用多了还是有问题，还得是iOS的S1mufu<img src="https://static
 
 s1mufu 多重攻击的几率有点大了
 
+
+*****
+
+####  Aendst  
+##### 12266#       发表于 2024-2-9 11:22
+
+ 本帖最后由 Aendst 于 2024-2-9 11:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少来了，小众爱好私下爱怎么样怎么样没人管你，无视大部分人意愿公开舞就是站在道德盆地里理所当然遭人唾弃
+
+还想用老油条和新鲜血液说事，简直可笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">见不得人的东西大摇大摆放出来很自豪是吧，建议早点接受治疗
+

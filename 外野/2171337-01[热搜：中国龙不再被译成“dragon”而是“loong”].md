@@ -1170,3 +1170,22 @@ wyrm没有脚，确实好像没有可以准确形容中国龙的英语单词
 
 那还china？不得叫zhongguo？
 
+
+*****
+
+####  隔壁老黄  
+##### 116#       发表于 2024-2-9 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920595&amp;ptid=2171337" target="_blank">nightrap 发表于 2024-2-9 09:27</a>
+凤凰这个更麻烦，因为受《女神》这类作品的影响，有些人已经分不清哪些才是真正属于凤凰的属性了，还有多 ...</blockquote>
+玩宝可梦都知道
+
+*****
+
+####  朔方原的星  
+##### 117#       发表于 2024-2-9 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919990&amp;ptid=2171337" target="_blank">游戏列表 发表于 2024-2-9 05:04</a>
+搜了下“loong”，不是china daily就是CGTN，说白了还是自嗨罢了，人家也没人用啊 ...</blockquote>
+自己不先用难道还能指望别人上赶着用吗
+

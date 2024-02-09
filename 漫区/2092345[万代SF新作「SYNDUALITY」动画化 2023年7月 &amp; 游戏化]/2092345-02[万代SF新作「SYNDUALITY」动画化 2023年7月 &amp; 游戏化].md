@@ -1219,3 +1219,13 @@ Beyond the Sky</blockquote>
 <img src="https://p.sda1.dev/15/ffa23ac3de551c8cbbc08e348b07bc40/SYN18_05.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/ac4d16dbf67ea5fbea7c6d78a7dd03b9/SYN18_06.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 3731#       发表于 2024-2-9 21:52
+
+我都差点把阿美面具的设定忘了，不看那本设定一定很莫名其妙吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看预告下集雪露反水帮彼方逃亡的可能性更大吧，大哥还不至于这么快反复横跳
+

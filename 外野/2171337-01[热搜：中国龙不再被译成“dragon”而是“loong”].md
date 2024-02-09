@@ -1320,3 +1320,39 @@ A long long is longing for a year of long for so long XDD
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  婉兮  
+##### 131#       发表于 2024-2-9 13:19
+
+再升级一下，long long time ago there was a long long longing for the year of long for so long XDD 
+
+*****
+
+####  菲特妹  
+##### 132#       发表于 2024-2-9 13:21
+
+实际上多拉贡波撸里面，神龙叫shenron。既不是ryu 也不是dragon 
+
+*****
+
+####  Milky牛奶  
+##### 133#       发表于 2024-2-9 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922095&amp;ptid=2171337" target="_blank">黑暗之眼 发表于 2024-2-9 13:15</a>
+
+合着就是你脸过不去而已嘛
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+脸倒不是问题，但是总不至于让我给一帮小朋友解释你看虽然我们读的书上写着long，我教你们了long，但是因为这些这些那些那些原因，我们还是以后管他们叫loong吧。给小朋友们推广外国文化概念，能记住一个不错了，中途还得改一遍就记不住了。
+
+只求赶紧出一本官方翻译手册，我好对着照抄，要不之后元宵节我又教错了又头大一回。
+
+*****
+
+####  拭泪之翼  
+##### 134#       发表于 2024-2-9 13:25
+
+looooooooooooooooooooog 是什么梗，象形文字龙么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

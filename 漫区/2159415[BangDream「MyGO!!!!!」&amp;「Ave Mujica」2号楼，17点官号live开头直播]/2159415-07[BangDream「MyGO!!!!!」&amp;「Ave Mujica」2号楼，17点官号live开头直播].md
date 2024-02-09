@@ -17986,3 +17986,13 @@ Megabox那边，九楼
 
 漏油新年快乐，新年新气象，希望今年mujica情报多多<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  池袋西柚  
+##### 12319#       发表于 2024-2-10 00:30
+
+漏油们新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -904,3 +904,11 @@ Eve 19-24年的人设变化</blockquote>
 
 官推发了数字豪华版服装的动图，这里发不了
 
+
+*****
+
+####  crosz1985  
+##### 302#       发表于 2024-2-10 01:43
+
+“Stellar Blade's pre-orders have reached #2 on the PS Store US, thank you!”
+

@@ -1092,3 +1092,30 @@ wyvern中文其实更多译作双足龙算低等的不如四足带翅，类似mh
 亚欧非大陆的正中心位置，&amp;# ...</blockquote>
 中土听起来就是我国自古以来的土地
 
+
+*****
+
+####  徐天霸  
+##### 107#       发表于 2024-2-9 10:26
+
+dragon是四爪着地背生大翼，wyvern是前肢带翼膜，dragon血统要高一点
+
+wyrm没有脚，确实好像没有可以准确形容中国龙的英语单词
+
+*****
+
+####  Victorino  
+##### 108#       发表于 2024-2-9 10:34
+
+凤凰和不死鸟也值得清算，郭沫若罪大恶极
+
+*****
+
+####  overmindoyj  
+##### 109#       发表于 2024-2-9 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+竜
+

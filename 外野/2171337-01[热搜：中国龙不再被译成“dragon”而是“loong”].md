@@ -1270,3 +1270,23 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 
 外国大概接受ryu都比接受loong要快
 
+
+*****
+
+####  Lokad  
+##### 126#       发表于 2024-2-9 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63921850&amp;ptid=2171337" target="_blank">嘉术2015 发表于 2024-2-9 12:45</a>
+
+外国大概接受ryu都比接受loong要快</blockquote>
+4ch都是chink Dragon
+
+*****
+
+####  lc122448  
+##### 127#       发表于 2024-2-9 13:05
+
+我记得大概10年前看吹loong得时候就有建议把dragon翻译成毒辣㹴
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

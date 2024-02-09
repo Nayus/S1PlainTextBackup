@@ -17636,3 +17636,11 @@ s1mufu 多重攻击的几率有点大了
 
 [https://twitter.com/sasakirico/status/1755811987920216151](https://twitter.com/sasakirico/status/1755811987920216151)
 
+
+*****
+
+####  相坂君  
+##### 12280#       发表于 2024-2-9 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不猜猜为什么r18还得再分一个r18g，还是觉得人人能接受小众xp，颇有一种众人皆醉我独醒的中二味
+

@@ -1140,3 +1140,34 @@ Beyond the Sky</blockquote>
 —— 来自 Xiaomi 23054RA19C, Android 13上的 S1Next-鹅版 v2.1.2 ...</blockquote>
 献给诺娃还好，希望别是献给卫浴柜（
 
+
+*****
+
+####  aptx8285144  
+##### 3725#       发表于 2024-2-9 17:16
+
+ 本帖最后由 aptx8285144 于 2024-2-9 17:27 编辑 
+
+【「SYNDUALITY Noir」第18話「Beyond the sky」WEB予告-哔哩哔哩】 [https://b23.tv/ZTDKuuW](https://b23.tv/ZTDKuuW)   大部分镜头都是夏尔的，穿着黑色制服到是有一种奇特之美（，神色严峻，基本上是她的主场了
+
+*****
+
+####  aruruu  
+##### 3726#       发表于 2024-2-9 17:40
+
+真给夏尔发便当就落了俗套，太刻意了
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aptx8285144  
+##### 3727#       发表于 2024-2-9 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63924085&amp;ptid=2092345" target="_blank">aruruu 发表于 2024-2-9 17:40</a>
+
+真给夏尔发便当就落了俗套，太刻意了
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+死棋比较多，不意外，看会不会有变数吧
+

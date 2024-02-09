@@ -109,3 +109,73 @@ DLC怎么进？steam更新完进去什么变化都没有，不会有主线进度
 
 这盔甲
 
+
+*****
+
+####  死宅真恶心  
+##### 1701#       发表于 2024-2-9 14:14
+
+暴击一刀就能放无双卧槽
+
+*****
+
+####  シャル  
+##### 1702#       发表于 2024-2-9 14:42
+
+要打七次，每组一次
+
+这次不迫害正雪了
+
+*****
+
+####  johnkamsar  
+##### 1703#       发表于 2024-2-9 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919231&amp;ptid=2112855" target="_blank">绿冰 发表于 2024-2-8 23:45</a>
+型月和光荣算计的挺厉害的，DLC1公布和更新好像是完全卡着FGO的活动来的？</blockquote>
+都是有现成设计，直接搬来用就行<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woaimiyabi  
+##### 1704#       发表于 2024-2-9 16:13
+
+dlc能控制的新角色 本篇能用吗。
+
+*****
+
+####  桥洞底下盖小被  
+##### 1705#       发表于 2024-2-9 16:22
+
+楼友讲讲这个dlc性价比怎么样，内容多吗
+
+*****
+
+####  シャル  
+##### 1706#       发表于 2024-2-9 16:24
+
+<blockquote>woaimiyabi 发表于 2024-2-9 16:13
+dlc能控制的新角色 本篇能用吗。</blockquote>
+可以
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| woaimiyabi| + 1|感谢解答|
+
+查看全部评分
+
+*****
+
+####  johnkamsar  
+##### 1707#       发表于 2024-2-9 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63923523&amp;ptid=2112855" target="_blank">桥洞底下盖小被 发表于 2024-2-9 16:22</a>
+楼友讲讲这个dlc性价比怎么样，内容多吗</blockquote>
+不算多，撇开限定的剧情，更多是补全了本篇不能操控其他人的遗憾
+

@@ -877,3 +877,30 @@ Eve 19-24年的人设变化</blockquote>
 
 有个据说是测试玩家泄漏的剧情摘要，真实性不明，几乎是尼尔Automata一比一拼多多复刻版
 
+
+*****
+
+####  Piano-Forest  
+##### 300#         楼主| 发表于 2024-2-9 14:35
+
+30秒预购PV：[https://youtu.be/KEhO8UCGVNk](https://youtu.be/KEhO8UCGVNk)
+
+*****
+
+####  宛若青空  
+##### 301#       发表于 2024-2-9 16:57
+
+ 本帖最后由 宛若青空 于 2024-2-9 16:59 编辑 
+
+<img src="https://img.saraba1st.com/forum/202402/09/165537fqae7kkjvz4zaw7e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A5B8049D-004F-4DFF-8305-5D2C4CDA67BD.jpeg</strong> (334.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 16:55 上传
+
+新视觉图
+
+官推发了数字豪华版服装的动图，这里发不了
+

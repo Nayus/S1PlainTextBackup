@@ -1469,3 +1469,172 @@ loong和dragon有啥区别…一个是从注音迁就外国人，一个是从理
 
 — from OnePlus CPH2451, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  酷乐  
+##### 144#       发表于 2024-2-9 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922399&amp;ptid=2171337" target="_blank">snailium 发表于 2024-2-9 13:57</a>
+这个要参考汉城改名首尔，要国家层面提出正确的翻译方式，对方国家直接拿来用就对了。美国总统的中文译名 ...</blockquote>
+白俄罗斯早就换成白罗斯，但中文网上还是一堆白俄罗斯。
+
+*****
+
+####  novalli  
+##### 145#       发表于 2024-2-9 14:21
+
+ 本帖最后由 novalli 于 2024-2-9 14:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922353&amp;ptid=2171337" target="_blank">bas3721 发表于 2024-2-9 13:52</a>
+loong和dragon有啥区别…一个是从注音迁就外国人，一个是从理解上迁就外国人。
+为啥不叫long？是怕外国人读 ...</blockquote>
+因为中国的龙和dragon本来就不一样，只是当时翻译的时候借用了已有的词汇和某种程度上相似的意象，改回去只是为了将这两个意象明确的区分开来。一个反面例子就是中文语境下的凤凰的意象已经被不死鸟污染了。
+不用long是因为这个词已经是一个常用词了，一定要改成这个反而会被原有的意思污染（岔开来说一句，这也是土耳其想改英文名的原因之一），而且毕竟是翻译为英语，不可能不考虑英语的发音规则。目前国内的翻译总体还是尊重原语言的发音的（比如希腊和德国是本国人的自称，和英语发音完全不同），翻译过去的话也采用这种原则比较好。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  酷乐  
+##### 146#       发表于 2024-2-9 14:24
+
+ 本帖最后由 酷乐 于 2024-2-9 14:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922138&amp;ptid=2171337" target="_blank">菲特妹 发表于 2024-2-9 13:21</a>
+
+实际上多拉贡波撸里面，神龙叫shenron。既不是ryu 也不是dragon</blockquote>
+那是地球人的叫法，那美克星人的龙叫波仑伽（ポルンガ），西利亚尔星人的龙叫托隆波（トロンボ），还有始祖龙神萨拉玛（ザラマ）。
+
+*****
+
+####  酷乐  
+##### 147#       发表于 2024-2-9 14:26
+
+ 本帖最后由 酷乐 于 2024-2-9 14:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922569&amp;ptid=2171337" target="_blank">novalli 发表于 2024-2-9 14:21</a>
+
+因为中国的龙和dragon本来就不一样，只是当时翻译的时候借用了已有的词汇和某种程度上相似的意象，改回去 ...</blockquote>
+怎么老觉得中文语境才不分凤凰和Phoenix，前面我就说了，日本人早在江沪时代就命名了凤凰座。
+
+圣斗士的Phoenix一辉，用的招式是凤凰幻魔拳、凤翼天翔，外号是不死鸟，会浴火重生。
+
+*****
+
+####  天下何人不通共  
+##### 148#       发表于 2024-2-9 14:29
+
+这不挺好么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Waldeinsamkeit  
+##### 149#       发表于 2024-2-9 14:38
+
+<blockquote>nuqzyc 发表于 2024-2-9 13:28
+黑神话的英文版翻译会是loong吗</blockquote>
+这个放心，看过科隆试玩的英文视频，里面的龙鳞翻译的是Loong scale
+
+*****
+
+####  afsd109  
+##### 150#       发表于 2024-2-9 14:42
+
+<blockquote>snailium 发表于 2024-2-9 13:57
+这个要参考汉城改名首尔，要国家层面提出正确的翻译方式，对方国家直接拿来用就对了。美国总统的中文译名 ...</blockquote>
+这种单纯就是看自己心情想用啥就用啥，汉城改叫首尔这边可以跟着，美国总统他们自己给的中文就是欧巴马和**，国内照样用奥巴马和**
+
+*****
+
+####  酷乐  
+##### 151#       发表于 2024-2-9 14:48
+
+ 本帖最后由 酷乐 于 2024-2-9 15:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922199&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-9 13:29</a>
+
+竜仍然还是ryu
+
+不如直接把dragon翻译成多拉贡更好
+
+你日片假名在这种时候反而领先了 ...</blockquote>
+日本人恰恰不分，像尾田化用龙生九子的典故，把天竜人和Monkey D. Dragon都设计成有九名大将，而吃了鱼鱼果实的“青龍”凯多，手下也有三灾六子，正好九人。
+
+*****
+
+####  变性中的lo娘  
+##### 152#       发表于 2024-2-9 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919822&amp;ptid=2171337" target="_blank">MeursaulT 发表于 2024-2-9 02:01</a>
+那都不应该用long year，应该用long nian
+
+—— 来自 S1Fun</blockquote>
+那搜索引擎想搜龙会很麻烦吧
+
+*****
+
+####  LOTEUS  
+##### 153#       发表于 2024-2-9 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922341&amp;ptid=2171337" target="_blank">cxn 发表于 2024-2-9 13:51</a>
+
+元是始，旦是日，元旦是初始之日，就是每年的一月一日，旧时用农历，元旦是农历一月一日，民国开始官方改 ...</blockquote>
+元旦给公历就算了，但不应该把农历新年叫春节，这等于把新年这个名字也给公历了，只不过民间暂时没有完全接受，但是这种替换在潜移默化地进行
+
+*****
+
+####  氪金萌新  
+##### 154#       发表于 2024-2-9 15:44
+
+ 本帖最后由 氪金萌新 于 2024-2-9 17:15 编辑 
+
+看过一个分类，有意思的是都属于蜥形纲
+
+CDA30E89-6998-49D1-B68D-646095B39869.jpeg
+(146.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-9 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202402/09/155026twi33io33xwf77g3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  bearYou  
+##### 155#       发表于 2024-2-9 16:05
+
+就叫盎撒蜥蜴不就得了，白皮猪的东西有什么好美化的。
+
+*****
+
+####  涂鸦恶魔  
+##### 156#       发表于 2024-2-9 17:24
+
+早该分分了，dragon/drake/wyvern等等这些都有专门名词，反而龙相差那么大却被归类成dragon
+
+*****
+
+####  wangandh  
+##### 157#       发表于 2024-2-9 17:33
+
+形式主义
+
+*****
+
+####  bubeby  
+##### 158#       发表于 2024-2-9 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922187&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-9 13:27</a>
+
+早就该了，傻逼翻译“家”的翻译错误还一直引以为傲
+
+龙是神祇，dragon是大蜥蜴
+
+ ...</blockquote>
+古希腊时候dragon就是四脚蛇，变蜥蜴要等基教传开
+
+*****
+
+####  飞火  
+##### 159#       发表于 2024-2-9 17:44
+
+有点无聊。这就是传说中的咬文嚼字么？
+

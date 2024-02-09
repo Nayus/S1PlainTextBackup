@@ -17698,3 +17698,94 @@ s1mufu 多重攻击的几率有点大了
 
 李子姐太会营业了，你们有没有这样会营业的主唱啊
 
+
+*****
+
+####  氷川日菜  
+##### 12288#       发表于 2024-2-9 14:07
+
+等小羊解开推特只发自己和七点半发推的限制再来B站开个号一定会大营特营的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 12289#       发表于 2024-2-9 14:22
+
+那我就拭目以待这个平行世界了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12290#       发表于 2024-2-9 14:24
+
+如果狗团以后能爆更多米的话没准真能看到羊女士换成热衷营业的4.0版本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12291#       发表于 2024-2-9 14:40
+
+电波台又更新了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nh_zzz  
+##### 12292#       发表于 2024-2-9 15:49
+
+jtty微博这是开了什么店，香港的店铺年三十开业有点抽象
+
+<img src="https://p.sda1.dev/15/0091dcd9a04ab4f9a5e734675c41bbe1/CMP_20240209154908531.jpg" referrerpolicy="no-referrer">
+看了眼谷歌地图有个类似的店网址写迪士尼的
+<img src="https://p.sda1.dev/15/9b75540f9e8b43483909f7099b281703/CMP_20240209154754102.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 12293#       发表于 2024-2-9 16:04
+
+<img src="https://p.sda1.dev/15/a516721f5eab101861f9e2c306a6ab55/IMG_CMP_20980649.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  笋干爆炸碱  
+##### 12294#       发表于 2024-2-9 16:07
+
+就武士道官店，卖点卡牌之类的
+
+香港其实是2月7号开的，天音妹妹刚想起来发吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nh_zzz  
+##### 12295#       发表于 2024-2-9 16:17
+
+有具体地址吗，下次路过看看
+
+*****
+
+####  笋干爆炸碱  
+##### 12296#       发表于 2024-2-9 16:39
+
+Megabox那边，九楼
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nh_zzz| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  sweet.  
+##### 12297#       发表于 2024-2-9 17:44
+
+新年快乐
+

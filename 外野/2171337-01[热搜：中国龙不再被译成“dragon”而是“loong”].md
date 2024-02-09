@@ -1290,3 +1290,33 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  婉兮  
+##### 128#       发表于 2024-2-9 13:14
+
+A long long is longing for a year of long for so long XDD
+
+*****
+
+####  inouesayuri  
+##### 129#       发表于 2024-2-9 13:14
+
+<blockquote>Tienx 发表于 2024-2-9 09:42
+前脚还吐槽日本人天天整片假名，后脚就要全盘音译了</blockquote>
+只针对专有名词，不要二极管
+
+*****
+
+####  黑暗之眼  
+##### 130#       发表于 2024-2-9 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63921618&amp;ptid=2171337" target="_blank">Milky牛奶 发表于 2024-2-9 12:14</a>
+嗯…这也是…
+
+也许我就是气急败坏了，我都铺垫了两礼拜long了，明天我是改ppt成loong还是硬讲long啊，愁 ...</blockquote>
+合着就是你脸过不去而已嘛
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

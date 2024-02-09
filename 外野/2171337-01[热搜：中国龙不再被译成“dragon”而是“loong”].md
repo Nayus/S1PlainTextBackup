@@ -1407,3 +1407,50 @@ looooooooooooooooooooog 是什么梗，象形文字龙么<img src="https://stati
 
 朱启钤提到了实行公历的必要性，但也强调应尊重民俗与社会习惯，不该猛然废除农历新年，1月23日，袁世凯欣然批准了朱启钤的建议。3天后（1914年1月26日）便是农历新年，春节从1914年开始成为农历新年的新名字。
 
+
+*****
+
+####  cxn  
+##### 139#       发表于 2024-2-9 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922200&amp;ptid=2171337" target="_blank">LOTEUS 发表于 2024-2-9 13:29</a>
+
+应该废除的是春节
+
+袁世凯延续了孙中山等人的政策，把原属于农历新年的元旦名称让给了公历新年。他还要求 ...</blockquote>
+元是始，旦是日，元旦是初始之日，就是每年的一月一日，旧时用农历，元旦是农历一月一日，民国开始官方改用公历，元旦变成公历一月一日也合情合理。如果农历一月一日还继续叫元旦的话，就要分旧历元旦和新历元旦，太啰嗦了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snailium  
+##### 140#       发表于 2024-2-9 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920030&amp;ptid=2171337" target="_blank">4396777 发表于 2024-2-9 05:50</a>
+但其实更多的是用日文饺子的了罗马音代替汉语拼音</blockquote>
+Gyoza指的是煎饺，跟煮的Jiaozi不一样，Tortellini大概也是饺子
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2451, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  bas3721  
+##### 141#       发表于 2024-2-9 13:52
+
+loong和dragon有啥区别…一个是从注音迁就外国人，一个是从理解上迁就外国人。
+为啥不叫long？是怕外国人读不对吗？
+
+*****
+
+####  hunterkiller  
+##### 142#       发表于 2024-2-9 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919626&amp;ptid=2171337" target="_blank">snailium 发表于 2024-2-9 00:53</a>
+
+对于具体的事物用拼音代替没啥问题，毕竟只是用作区分的。但是节日还是意译比较好。
+
+比如，没人说</blockquote>
+官方应该做的是统一外文翻译到中文，中文怎么翻译到外文，你还一个一个国家去研究？
+
+外国人爱怎么叫“春节”你也要管，你这有点多管闲事了。
+

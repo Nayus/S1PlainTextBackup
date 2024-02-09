@@ -17326,3 +17326,13 @@ S1fun引用多了还是有问题，还得是iOS的S1mufu<img src="https://static
 
 邦邦这样的企划，粉圈不是很正常？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 12253#         楼主| 发表于 2024-2-9 08:48
+
+ 本帖最后由 紫吹兰 于 2024-2-9 08:49 编辑 
+
+又和之前某天一样突然外面比里面多了，现在倒序看最后一页，第一个回帖是#7，至今没摸清外面突然刷新到比里面多的原理，不过至少这两天在里面反超太多之前应该不会太卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

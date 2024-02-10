@@ -92,3 +92,11 @@
 
 渚鱼都忘词还给特写了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qty  
+##### 19444#       发表于 2024-2-10 19:32
+
+这导播是不是有什么毛病，从福冈开始好几次轮到鲤鱼唱的时候镜头给到一半就切走，要不干脆就不给镜头。这次MC的时候好几次鲤鱼说话的时候不给镜头，搞什么
+

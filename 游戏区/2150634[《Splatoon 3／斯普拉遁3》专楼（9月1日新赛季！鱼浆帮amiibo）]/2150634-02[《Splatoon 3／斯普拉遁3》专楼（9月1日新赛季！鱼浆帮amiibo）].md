@@ -12848,3 +12848,22 @@ UU这几天坐牢概率猛增啊，地瓜说最近裸连成功率高了就试了
 
 等下这首上次是批斗鬼福和初代偶像鬼混的吧，这次换二代又来一遍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  shirolin  
+##### 2773#       发表于 2024-2-10 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935330&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-10 19:28</a>
+等下这首上次是批斗鬼福和初代偶像鬼混的吧，这次换二代又来一遍。</blockquote>
+笑死
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2774#       发表于 2024-2-10 19:42
+
+初代完全没踪影？别的不说好歹dlc第一弹还是她俩呢，也太不给面子了，我真的好想听英雄模式的ed和她俩鬼福合作的那首祭典对战曲
+

@@ -1959,3 +1959,15 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 路要一步一步走，现在的首要任务是摆脱dragon这个傻逼译名</blockquote>
 我也理解loong比dragon好，但是我认为应该一步到位，因为分布走很容易就停在loong这步了。没有必要为了洋大人的撞词去接受loong这么一个中国人和外国人都看不懂的词。
 
+
+*****
+
+####  nanrendu  
+##### 189#       发表于 2024-2-10 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919112&amp;ptid=2171337" target="_blank">mysterysilent 发表于 2024-2-8 23:34</a>
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
+希望中文这边也把一些容易混淆的翻译改一改，当然如果把八国联军的国名改音译，不用我们最美好的字是更好了。
+
+—— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

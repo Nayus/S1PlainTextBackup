@@ -43,3 +43,11 @@
 
 听完米奇奇妙屋，鲤鱼和pay今天的状态抛开其她人一截，有点亢奋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qty  
+##### 19438#       发表于 2024-2-10 17:26
+
+这次yura鲤鱼调整唱法了，听感比上回好多了
+

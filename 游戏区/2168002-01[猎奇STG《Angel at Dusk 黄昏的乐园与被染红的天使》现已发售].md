@@ -1102,3 +1102,13 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  秘银mithril  
+##### 84#       发表于 2024-2-10 17:25
+
+32关打完了
+
+一看story才156个<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

@@ -3610,3 +3610,14 @@ fy
 
 狗狗表情可爱捏，这兔子可以肯定是追加了吧？变身后是男q？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 836#       发表于 2024-2-10 15:32
+
+ 本帖最后由 66367749 于 2024-2-10 15:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933565&amp;ptid=2162354" target="_blank">花开安菲路 发表于 2024-2-10 13:45</a>
+狗狗表情可爱捏，这兔子可以肯定是追加了吧？变身后是男q？</blockquote>
+目前来看追加可能是玩具解包的🦄
+

@@ -18211,3 +18211,25 @@ Megabox那边，九楼
 
 万能的淘宝真买到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 12345#       发表于 2024-2-10 15:36
+
+<img src="https://s2.loli.net/2024/02/10/Ta7jcn8eg46WP1B.png" referrerpolicy="no-referrer">
+
+大<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 可爱美味祥子| + 1|好评加鹅|
+
+查看全部评分
+

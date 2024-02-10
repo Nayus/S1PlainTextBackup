@@ -12957,3 +12957,24 @@ hime穿着大号外套像没腿了一样<img src="https://static.saraba1st.com/i
 
 没观众太可惜了，都可以想象到2代偶像登场时观众的惊呼。下次live一定要正常开啊
 
+
+*****
+
+####  罗克萨斯  
+##### 2782#       发表于 2024-2-10 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935465&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-2-10 19:45</a>
+
+登场的衣服就是发的那首歌的封面</blockquote>
+她的定位是rapper么？倒是让我想到现实中说唱歌手会有的穿搭，戴大链子的粉色服装也很有嘻哈味（刷amiibo获得的那套还挺好看，不过需要换掉大技能才能用）
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2783#       发表于 2024-2-10 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935499&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-10 19:50</a>
+
+她的定位是rapper么？倒是让我想到现实中说唱歌手会有的穿搭，戴大链子的粉色服装也很有嘻哈味（刷amiibo ...</blockquote>
+是的，不过这次登场的衣服属于是rapper刻板印象拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

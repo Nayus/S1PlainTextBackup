@@ -246,3 +246,15 @@
 
 最让我深刻的一点，水煮鱼唱yura前。她俩一个小组我也想不起有啥互动了，变跟结那贴了。
 
+
+*****
+
+####  starring  
+##### 19455#       发表于 2024-2-11 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63936719&amp;ptid=2078110" target="_blank">s3081260 发表于 2024-2-10 23:56</a>
+真的好久没看到薮鱼互动了，当年鱼第一个发的二期合影就是薮，那次带货俩人也是搂搂抱抱，鱼个人巡演薮更 ...</blockquote>
+IM对员工的SNS管得很严吧，yabu的推全是工商，鱼可能因为这个不怎么发和她相关的。
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

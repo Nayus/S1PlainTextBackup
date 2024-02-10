@@ -1122,3 +1122,13 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  JackTitor  
+##### 85#       发表于 2024-2-11 00:41
+
+爽，好玩，我这种小白也能很容易上手<img src="https://static.saraba1st.com/image/smiley/face2017/208.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

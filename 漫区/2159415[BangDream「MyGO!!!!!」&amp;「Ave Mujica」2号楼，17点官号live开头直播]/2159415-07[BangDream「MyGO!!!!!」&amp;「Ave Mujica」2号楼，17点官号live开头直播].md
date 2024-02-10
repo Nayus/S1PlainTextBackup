@@ -18312,3 +18312,11 @@ mujica上拼盘live的话应该不会演舞台剧吧，像farbe那样上去二�
 
 感觉mujica上asl这种拼盘的话会参考少歌那边的策略，就是唱几首自己的歌+翻唱有舞台要素的老作品，然后来点搂搂抱抱的互动之类的（少歌那边翻唱凡尔赛玫瑰的时候都直接躺怀里了）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  氷川日菜  
+##### 12351#       发表于 2024-2-10 19:16
+
+仿生羊会抱到电子小凛吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -18,3 +18,13 @@ G：Everything is way more efficient in the past year, stuff gets done way earli
 
 谢谢你，Jap！
 
+
+*****
+
+####  karastar  
+##### 1923#       发表于 2024-2-11 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63937002&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2024-2-11 00:47</a>
+G：Everything is way more efficient in the past year, stuff gets done way earlier, everyone is way b ...</blockquote>
+g是谁，gura吗，什么时候说的
+

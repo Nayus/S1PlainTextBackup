@@ -1006,3 +1006,16 @@
 反正能看见瓶叔的建筑、怪设我就很爽了
 希骑还有些味，但人形之国和新作之后再也回不到blame时期怪异的画风了。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北山玖公  
+##### 54#       发表于 2024-2-10 20:58
+
+ 本帖最后由 北山玖公 于 2024-2-10 21:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搜了一下日推，还真不是我一个人幻视，瓶叔画风往自己粉丝藤本树那边靠了。
+
+反正能看见瓶叔的建筑、怪设我就很爽了
+希骑还有些味，但人形之国和新作之后再也回不到blame时期怪异的画风了。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

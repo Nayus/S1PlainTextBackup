@@ -13145,3 +13145,39 @@ hime穿着大号外套像没腿了一样<img src="https://static.saraba1st.com/i
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绿冰  
+##### 2787#         楼主| 发表于 2024-2-10 20:23
+
+<blockquote>carroy 发表于 2024-2-10 20:12
+草 hime这个看人设图不觉得
+
+这模型怎么这么小一只</blockquote>
+小姬官图都是花式掩盖身高的233，不只是矮一个头，还是穿了增高鞋的情况下
+
+*****
+
+####  苍蓝之枪  
+##### 2788#       发表于 2024-2-10 20:31
+
+鲑坝的通过概率和涨潮出现的频率成反比
+
+*****
+
+####  罗克萨斯  
+##### 2789#       发表于 2024-2-10 20:32
+
+2代鱿鱼偶像的上衣，4K倒是可以直接拿来用，加特林还是老老实实换成走速
+
+<img src="https://img.saraba1st.com/forum/202402/10/203221eook86hgzgo9cvgx.jpg" referrerpolicy="no-referrer">
+
+<strong>2024021020224700-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (212.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-10 20:32 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

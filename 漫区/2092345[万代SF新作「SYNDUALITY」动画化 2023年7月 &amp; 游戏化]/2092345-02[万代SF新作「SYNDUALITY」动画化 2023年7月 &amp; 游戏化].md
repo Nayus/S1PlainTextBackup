@@ -1253,3 +1253,13 @@ https://youtu.be/YezArQ8QWDI</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  苍蓝之枪  
+##### 3734#       发表于 2024-2-10 14:16
+
+难道夏尔还有什么隐藏的能力反水并翻盘?
+
+drifting soul.mp3
+

@@ -12867,3 +12867,93 @@ UU这几天坐牢概率猛增啊，地瓜说最近裸连成功率高了就试了
 
 初代完全没踪影？别的不说好歹dlc第一弹还是她俩呢，也太不给面子了，我真的好想听英雄模式的ed和她俩鬼福合作的那首祭典对战曲
 
+
+*****
+
+####  shirolin  
+##### 2773#       发表于 2024-2-10 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935330&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-10 19:28</a>
+等下这首上次是批斗鬼福和初代偶像鬼混的吧，这次换二代又来一遍。</blockquote>
+笑死
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2774#       发表于 2024-2-10 19:42
+
+初代完全没踪影？别的不说好歹dlc第一弹还是她俩呢，也太不给面子了，我真的好想听英雄模式的ed和她俩鬼福合作的那首祭典对战曲
+
+*****
+
+####  罗克萨斯  
+##### 2775#       发表于 2024-2-10 19:44
+
+ 本帖最后由 罗克萨斯 于 2024-2-10 19:46 编辑 
+
+怪不得舞台屏幕这么宽，原来会和2代偶像一起登场
+
+莎莎的腰臀比感觉比游戏里女章的还要夸张<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+2代鱿鱿偶像登场服装太失败了，本来就矮，穿得那么臃肿像是冬装的凶恶大妈
+
+2代偶像登场唱的曲目是2代就有的么？
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2776#       发表于 2024-2-10 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935455&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-10 19:44</a>
+
+怪不得舞台屏幕这么宽，原来会和2代偶像一起登场
+
+2代鱿鱿偶像登场服装太失败，了本来就矮，穿得那么臃肿像 ...</blockquote>
+登场的衣服就是发的那首歌的封面
+
+*****
+
+####  绿冰  
+##### 2777#         楼主| 发表于 2024-2-10 19:45
+
+ 本帖最后由 绿冰 于 2024-2-10 19:47 编辑 
+<blockquote>罗克萨斯 发表于 2024-2-10 19:44
+怪不得舞台屏幕这么宽，原来会和2代偶像一起登场
+
+2代鱿鱿偶像登场服装太失败，了本来就矮，穿得那么臃肿像 ...</blockquote>
+但饭田的很不错啊，上了演唱会才发觉西装下面还是比基尼233
+
+唱的歌2代没有的，是3代的常规对战曲
+
+*****
+
+####  绿冰  
+##### 2778#         楼主| 发表于 2024-2-10 19:46
+
+<blockquote>Kiyohara_Yasuke 发表于 2024-2-10 19:42
+初代完全没踪影？别的不说好歹dlc第一弹还是她俩呢，也太不给面子了，我真的好想听英雄模式的ed和她俩鬼福 ...</blockquote>
+两次演唱会都没唱最经典的now or never，下次估计要3组人一起上了
+
+*****
+
+####  墨染白泉  
+##### 2779#       发表于 2024-2-10 19:47
+
+hime穿着大号外套像没腿了一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 2780#       发表于 2024-2-10 19:48
+
+这次演唱会挺满意的，期待以后三代同框<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 2781#       发表于 2024-2-10 19:49
+
+没观众太可惜了，都可以想象到2代偶像登场时观众的惊呼。下次live一定要正常开啊
+

@@ -867,3 +867,16 @@
 
 怎么真有人急了
 
+
+*****
+
+####  哈扎马大尉  
+##### 56#       发表于 2024-2-11 07:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934653&amp;ptid=2171494" target="_blank">mikeymouse874 发表于 2024-2-10 17:24</a>
+
+啥事独创？
+
+塞尔达王泪那个吹飞的伸缩臂不是抄别人的？</blockquote>
+又开始了，滑坡到这份上不如来个彻底的单标，阁下这辈子任何形式产出和发言都默认放弃所有版权署名权专利权，因为文字和符号全是抄别人的。
+

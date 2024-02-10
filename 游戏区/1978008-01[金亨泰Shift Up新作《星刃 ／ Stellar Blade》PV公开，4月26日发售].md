@@ -922,3 +922,15 @@ Eve 19-24年的人设变化</blockquote>
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  宛若青空  
+##### 304#       发表于 2024-2-10 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63932395&amp;ptid=1978008" target="_blank">rainsheep 发表于 2024-2-10 10:43</a>
+豪华版服装是提前给你解锁了，还是豪华版独有
+
+—— 来自 vivo V2241A, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+预购服装写着是提前解锁，豪华版服装没提到所以应该是豪华版独有的内容
+

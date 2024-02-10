@@ -205,3 +205,14 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 
 结果为了接上用了剪定的梦结局？那不是更不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1711#       发表于 2024-2-10 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63928989&amp;ptid=2112855" target="_blank">シャル 发表于 2024-2-9 23:04</a>
+
+阿礼这次还是不行，没加，等下个</blockquote>
+阿礼人型版根本沒上場打，上場已經是80禍津日神
+

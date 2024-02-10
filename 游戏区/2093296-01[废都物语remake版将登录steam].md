@@ -34,3 +34,11 @@
 
 —— 来自 vivo V2218A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  嘉术2015  
+##### 576#       发表于 2024-2-10 12:57
+
+昨天1周目骑士线通关了，我可爱死这浪漫至死的TE<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">后面的内容就等到重制版再体验
+

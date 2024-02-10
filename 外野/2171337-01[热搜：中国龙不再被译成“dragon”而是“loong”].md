@@ -1843,3 +1843,13 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 反过来的也能不能改一下，&amp;#x7 ...</blockquote>
 竜
 
+
+*****
+
+####  AmberWu  
+##### 179#       发表于 2024-2-10 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919112&amp;ptid=2171337" target="_blank">mysterysilent 发表于 2024-2-8 23:34</a>
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
+其实平常见gyoza比较多
+

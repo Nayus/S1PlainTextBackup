@@ -24,3 +24,13 @@
 
 今年还有希望上正式版吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiiTiiLL  
+##### 575#       发表于 2024-2-10 12:08
+
+啥时候能有demo玩玩
+
+—— 来自 vivo V2218A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

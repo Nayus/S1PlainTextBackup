@@ -51,3 +51,11 @@
 
 这次yura鲤鱼调整唱法了，听感比上回好多了
 
+
+*****
+
+####  仟音一心  
+##### 19439#       发表于 2024-2-10 18:30
+
+这三天歌单完全不换的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+

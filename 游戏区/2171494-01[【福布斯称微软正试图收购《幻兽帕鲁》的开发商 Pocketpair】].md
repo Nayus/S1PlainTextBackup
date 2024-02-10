@@ -880,3 +880,22 @@
 塞尔达王泪那个吹飞的伸缩臂不是抄别人的？</blockquote>
 又开始了，滑坡到这份上不如来个彻底的单标，阁下这辈子任何形式产出和发言都默认放弃所有版权署名权专利权，因为文字和符号全是抄别人的。
 
+
+*****
+
+####  Vladimeow  
+##### 57#       发表于 2024-2-11 07:48
+
+吃屎都赶不上热乎的
+
+*****
+
+####  kuluwu  
+##### 58#       发表于 2024-2-11 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63937145&amp;ptid=2171494" target="_blank">🐳❕ 发表于 2024-2-11 01:20</a>
+看得出泥潭真的有很多人不玩游戏脑子只有屁股了按你的逻辑CF一定是最有底蕴的FPS，腾讯是最有底蕴 ...</blockquote>
+cf作为ip当然算有底蕴的吧，虽然我也觉得cf和帕鲁都不怎么样，但因为不怎么样就否认商业价值不也是在用屁股说话
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

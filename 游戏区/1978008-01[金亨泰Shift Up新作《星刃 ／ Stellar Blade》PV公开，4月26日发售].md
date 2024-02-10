@@ -912,3 +912,13 @@ Eve 19-24年的人设变化</blockquote>
 
 “Stellar Blade's pre-orders have reached #2 on the PS Store US, thank you!”
 
+
+*****
+
+####  rainsheep  
+##### 303#       发表于 2024-2-10 10:43
+
+豪华版服装是提前给你解锁了，还是豪华版独有
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

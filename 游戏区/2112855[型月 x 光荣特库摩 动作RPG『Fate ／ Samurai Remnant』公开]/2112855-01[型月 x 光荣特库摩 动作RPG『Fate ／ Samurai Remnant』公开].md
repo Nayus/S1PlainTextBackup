@@ -261,3 +261,11 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 并不是梦</blockquote>
 首先基型就是剪定的嘛，分支没解决剪定要素那再怎么结局不还是得剪，然后让这里的伊织梦到，那不就是梦结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 1716#       发表于 2024-2-10 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">快速打完了大部分，除了剑和术是可以认为是完全不同的体验部分，其他雷同地方太多了….
+

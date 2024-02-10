@@ -1059,3 +1059,28 @@
 有新作的话不懂前作的企划会不会上，贰瓶勉作品也不缺动画企划了（有企划归有企划，有没有落地倒是另说） ...</blockquote>
 鬼知道Polygon签的什么合同，是不是绑定必须从东亚重工production控股走
 
+
+*****
+
+####  鱼雷鲨  
+##### 58#       发表于 2024-2-11 05:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935927&amp;ptid=2159012" target="_blank">北山玖公 发表于 2024-2-10 20:58</a>
+
+搜了一下日推，还真不是我一个人幻视，瓶叔画风往自己粉丝藤本树那边靠了。
+
+反正能看见瓶叔的建筑 ...</blockquote>
+希骑前期的建筑根本就是素材拼贴，真•重力祭的时候特别明显藤本树也总用拼贴，炎拳用了印度和以色列的城市
+
+*****
+
+####  鱼雷鲨  
+##### 59#       发表于 2024-2-11 05:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935927&amp;ptid=2159012" target="_blank">北山玖公 发表于 2024-2-10 20:58</a>
+
+搜了一下日推，还真不是我一个人幻视，瓶叔画风往自己粉丝藤本树那边靠了。
+
+反正能看见瓶叔的建筑 ...</blockquote>
+希骑前期的建筑根本就是素材拼贴，真•重力祭的时候特别明显藤本树也总用pin tie
+

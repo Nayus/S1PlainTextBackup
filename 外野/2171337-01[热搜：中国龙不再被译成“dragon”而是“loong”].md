@@ -1931,3 +1931,31 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+*****
+
+####  wlhlz  
+##### 186#       发表于 2024-2-10 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63925334&amp;ptid=2171337" target="_blank">benjin 发表于 2024-2-9 20:04</a>
+虽然但是，这些形象也是在欧洲流行奇幻小说以后才定性的啊</blockquote>
+其实也没有定型，这些词到现在也没有确定的对应形象
+
+*****
+
+####  星之卡比  
+##### 187#       发表于 2024-2-10 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933513&amp;ptid=2171337" target="_blank">UmarIbnLaAhad 发表于 2024-2-10 13:32</a>
+路要一步一步走，现在的首要任务是摆脱dragon这个傻逼译名</blockquote>
+我也理解loong比dragon好，但是我认为应该一步到位，因为分布走很容易就停在loong这步了。没有必要为了洋大人的撞词去接受loong这么一个中国人和外国人都看不懂的词。
+
+*****
+
+####  星之卡比  
+##### 188#       发表于 2024-2-10 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933513&amp;ptid=2171337" target="_blank">UmarIbnLaAhad 发表于 2024-2-10 13:32</a>
+路要一步一步走，现在的首要任务是摆脱dragon这个傻逼译名</blockquote>
+我也理解loong比dragon好，但是我认为应该一步到位，因为分布走很容易就停在loong这步了。没有必要为了洋大人的撞词去接受loong这么一个中国人和外国人都看不懂的词。
+

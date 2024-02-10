@@ -78,3 +78,13 @@ steam版确定13日晚上9点解锁
 
 请问下新章打完湿地进度大概是多少？看新章的强化系统好像可以无限刷，不过实在有点疲惫想快点把剧情走完了
 
+
+*****
+
+####  syndrome2032  
+##### 3845#       发表于 2024-2-10 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63936309&amp;ptid=2098044" target="_blank">Niyah 发表于 2024-2-10 22:06</a>
+请问下新章打完湿地进度大概是多少？看新章的强化系统好像可以无限刷，不过实在有点疲惫想快点把剧情走完了 ...</blockquote>
+新章=mini版本篇再走一遍
+

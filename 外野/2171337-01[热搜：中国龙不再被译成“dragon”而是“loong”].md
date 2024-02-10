@@ -1867,3 +1867,38 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 
 我觉得解决办法就是Long首字母大写作为专有名词。不要任何的异体或变形。
 
+
+*****
+
+####  シャル  
+##### 181#       发表于 2024-2-10 13:19
+
+ 本帖最后由 シャル 于 2024-2-10 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920098&amp;ptid=2171337" target="_blank">Jet.Black 发表于 2024-2-9 06:57</a>
+
+凤凰，Phoenix, Simurgh, Bar Juchne, Garuda
+
+细讲起来就太复杂了</blockquote>
+真女神转生分的很明确、是一个就一个，没有混用的情况
+
+凤凰 houoh
+
+不死鸟phoenix
+
+贝奴鸟bennu
+
+*****
+
+####  シャル  
+##### 182#       发表于 2024-2-10 13:26
+
+真女神转生黄龙青龙的英文就是直接日音译
+
+黄龙wongron
+
+青龙seiryu
+
+白龙pekyong（棒子）
+
+用拽根的都有病的，大蜥蜴和龙是一回事吗
+

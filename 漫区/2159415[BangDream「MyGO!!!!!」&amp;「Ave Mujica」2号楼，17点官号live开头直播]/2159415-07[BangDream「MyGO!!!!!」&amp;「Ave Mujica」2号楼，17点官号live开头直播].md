@@ -18328,3 +18328,11 @@ mujica上拼盘live的话应该不会演舞台剧吧，像farbe那样上去二�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞台要素的老作品风格大部分似乎和mujica世界观也不太合，不过翻唱倒是没什么门槛，都能改都能唱
 
+
+*****
+
+####  nh_zzz  
+##### 12353#       发表于 2024-2-10 20:13
+
+少歌asl感觉还是cast自己选的？我记得有疫情有一年三森solo翻唱就是说希望之后能够九九唱，然后恢复正常之后九九就唱了
+

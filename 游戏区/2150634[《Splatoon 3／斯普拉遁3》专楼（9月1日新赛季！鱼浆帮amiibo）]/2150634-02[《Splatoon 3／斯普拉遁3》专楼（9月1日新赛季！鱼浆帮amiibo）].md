@@ -13199,3 +13199,13 @@ hime穿着大号外套像没腿了一样<img src="https://static.saraba1st.com/i
 栓是好武器，可惜我不会在鲑坝用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 连续随到几次重武后遂放弃还是去看肯师傅直播算了。
 
+
+*****
+
+####  绿冰  
+##### 2791#         楼主| 发表于 2024-2-10 22:11
+
+【【IGN】《斯普拉遁》「蛮颓Live轟」全程视频-哔哩哔哩】 https://b23.tv/tvxgj8K
+
+IGN发了港任的中文版的了
+

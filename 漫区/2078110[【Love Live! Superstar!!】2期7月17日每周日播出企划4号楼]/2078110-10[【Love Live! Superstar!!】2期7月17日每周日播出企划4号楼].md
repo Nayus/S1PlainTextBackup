@@ -35,3 +35,11 @@
 
 感觉这场收音有点问题，所有人的声音比之前都有么一点沙
 
+
+*****
+
+####  starring  
+##### 19437#       发表于 2024-2-10 17:08
+
+听完米奇奇妙屋，鲤鱼和pay今天的状态抛开其她人一截，有点亢奋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

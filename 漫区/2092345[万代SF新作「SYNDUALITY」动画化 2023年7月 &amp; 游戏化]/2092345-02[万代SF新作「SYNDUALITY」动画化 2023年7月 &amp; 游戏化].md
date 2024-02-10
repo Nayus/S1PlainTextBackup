@@ -1342,3 +1342,16 @@ drifting soul.mp3
 https://youtu.be/YezArQ8QWDI</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">这标题不是XB1的ed吗，果然是写给高桥giegie的情书啊
 
+
+*****
+
+####  cazedor  
+##### 3739#       发表于 2024-2-10 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63926709&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-2-9 21:06</a>
+
+第18話「Beyond the sky」
+
+https://youtu.be/YezArQ8QWDI</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">这标题不是XB1的ed吗，果然是写给高桥giegie的情书啊
+

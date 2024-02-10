@@ -1032,3 +1032,11 @@
 反正能看见瓶叔的建筑、怪设我就很爽了
 希骑还有些味，但人形之国和新作之后再也回不到blame时期怪异的画风了。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  astrayl  
+##### 55#       发表于 2024-2-11 01:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">生活所迫啊，二叔这混得也挺惨的
+

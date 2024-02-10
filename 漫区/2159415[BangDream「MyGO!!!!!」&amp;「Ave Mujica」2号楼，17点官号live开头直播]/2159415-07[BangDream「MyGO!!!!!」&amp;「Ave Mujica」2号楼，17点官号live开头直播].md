@@ -18320,3 +18320,11 @@ mujica上拼盘live的话应该不会演舞台剧吧，像farbe那样上去二�
 
 仿生羊会抱到电子小凛吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 12352#       发表于 2024-2-10 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞台要素的老作品风格大部分似乎和mujica世界观也不太合，不过翻唱倒是没什么门槛，都能改都能唱
+

@@ -16,3 +16,11 @@
 
 新年快乐，应该快上Steam页面和DEMO了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tansapple  
+##### 574#       发表于 2024-2-10 11:54
+
+今年还有希望上正式版吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

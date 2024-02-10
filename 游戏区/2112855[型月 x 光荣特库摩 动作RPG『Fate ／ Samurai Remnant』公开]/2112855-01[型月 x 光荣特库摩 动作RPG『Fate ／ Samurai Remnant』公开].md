@@ -235,3 +235,16 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 
 并不是啊，是有所不同的世界
 
+
+*****
+
+####  シャル  
+##### 1714#       发表于 2024-2-10 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933278&amp;ptid=2112855" target="_blank">eilot 发表于 2024-2-10 12:52</a>
+
+阿礼人型版根本沒上場打，上場已經是80禍津日神</blockquote>
+哪里没有上场啊，80之前的战斗
+
+还有回忆战
+

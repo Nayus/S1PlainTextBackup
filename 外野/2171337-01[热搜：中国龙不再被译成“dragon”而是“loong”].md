@@ -1902,3 +1902,32 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 
 用拽根的都有病的，大蜥蜴和龙是一回事吗
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 183#       发表于 2024-2-10 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933155&amp;ptid=2171337" target="_blank">星之卡比 发表于 2024-2-10 12:38</a>
+ 我看了几天，还是觉得应该用long而不是loong。  假设一下，最后loong取代了dragon。很多中国人不会立刻明白 ...</blockquote>
+路要一步一步走，现在的首要任务是摆脱dragon这个傻逼译名
+
+*****
+
+####  wakener2  
+##### 184#       发表于 2024-2-10 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-2-8 23:10</a>
+ 反过来的也能不能改一下，&amp;#x7 ...</blockquote>
+结棍
+
+*****
+
+####  wakener2  
+##### 185#       发表于 2024-2-10 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63918916&amp;ptid=2171337" target="_blank">0WHan0 发表于 2024-02-08 23:10:24</a>
+反过来的也能不能改一下，&amp;#x7 ...</blockquote>结棍
+
+ -- 傲娇地来自 Stage1未知客户端
+

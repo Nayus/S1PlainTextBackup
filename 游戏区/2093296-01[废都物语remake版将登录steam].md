@@ -50,3 +50,13 @@
 
 好好好,我要和小龙女走天涯,说起来没请作者扩写日后谈吗
 
+
+*****
+
+####  Evomenon  
+##### 578#       发表于 2024-2-10 13:45
+
+新年上个Demo吧，求求了
+
+—— 来自 HUAWEI SCMR-W09, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

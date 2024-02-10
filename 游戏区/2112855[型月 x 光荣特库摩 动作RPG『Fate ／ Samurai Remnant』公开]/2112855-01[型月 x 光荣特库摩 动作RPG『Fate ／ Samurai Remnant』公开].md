@@ -248,3 +248,16 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 
 还有回忆战
 
+
+*****
+
+####  DARKGRAY  
+##### 1715#       发表于 2024-2-10 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933537&amp;ptid=2112855" target="_blank">シャル 发表于 2024-2-10 13:37</a>
+
+不是啊，DLC结局是有所差异的不同世界
+
+并不是梦</blockquote>
+首先基型就是剪定的嘛，分支没解决剪定要素那再怎么结局不还是得剪，然后让这里的伊织梦到，那不就是梦结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

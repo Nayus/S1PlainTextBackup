@@ -214,3 +214,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s3081260  
+##### 19452#       发表于 2024-2-10 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63936154&amp;ptid=2078110" target="_blank">starring 发表于 2024-2-10 21:41</a></blockquote>
+真的好久没看到薮鱼互动了，当年鱼第一个发的二期合影就是薮，那次带货俩人也是搂搂抱抱，鱼个人巡演薮更是扑倒鱼怀里哭，结果慢慢就没什么互动了，鱼和大熊玩的好，薮和小百合玩的好，整得我还猜测俩人因为什么事生疏了，看到今天这一幕放心了，俩人关系还是挺好的
+

@@ -1812,3 +1812,12 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 —— 来自 Xiaomi M2102K1C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 拽哥，马粪
 
+
+*****
+
+####  bwjsif  
+##### 176#       发表于 2024-2-10 11:26
+
+破案了，都怪马可波罗和马礼逊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[【“龙”到底该怎么译？-哔哩哔哩】 https://b23.tv/yMy7Z2h](https://www.bilibili.com/video/BV1j642137TX)
+

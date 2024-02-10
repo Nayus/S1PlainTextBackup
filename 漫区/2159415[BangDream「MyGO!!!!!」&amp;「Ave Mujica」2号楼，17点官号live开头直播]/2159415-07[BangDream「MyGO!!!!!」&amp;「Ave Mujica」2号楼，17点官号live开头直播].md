@@ -18116,3 +18116,25 @@ Megabox那边，九楼
 
 10团同台，那岂不是5个动物头套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 12334#       发表于 2024-2-10 12:00
+
+后面放个大屏幕，皮套人在上面出现就可以了
+
+*****
+
+####  NODY  
+##### 12335#       发表于 2024-2-10 12:01
+
+你邦十个团的粉丝体量加起来有机会拿下东蛋吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 12336#       发表于 2024-2-10 12:07
+
+西蛋能上座5/6就是大成功<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">太糊了
+

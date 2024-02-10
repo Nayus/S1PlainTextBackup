@@ -18344,3 +18344,25 @@ mujica上拼盘live的话应该不会演舞台剧吧，像farbe那样上去二�
 
 少歌asl感觉还是cast自己选的？我记得有疫情有一年三森solo翻唱就是说希望之后能够九九唱，然后恢复正常之后九九就唱了
 
+
+*****
+
+####  6030sylar  
+##### 12354#       发表于 2024-2-10 20:48
+
+<img src="https://img.saraba1st.com/forum/202402/10/204824f88jyi0cs09c0jsj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-7vh4Z1iT3cSqo-k0.jpeg</strong> (154.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-10 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202402/10/204829hrhey8x2gjghgrgy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-2maaK2qT3cSqo-k0.jpeg</strong> (123.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-10 20:48 上传
+

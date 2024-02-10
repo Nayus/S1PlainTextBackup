@@ -18285,3 +18285,15 @@ mujica上拼盘live的话应该不会演舞台剧吧，像farbe那样上去二�
 
 不过邦邦内部拼盘倒是能演，虽然带上老团的话有可能会被往搞笑方向写<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">武士道内部拼盘好像也行，如果带少歌玩的话理论上应该可以无缝融入mujica世界观
 
+
+*****
+
+####  NODY  
+##### 12348#       发表于 2024-2-10 18:28
+
+ 本帖最后由 NODY 于 2024-2-10 18:34 编辑 
+
+mujica上拼盘live的话应该不会演舞台剧吧，像farbe那样上去二话不说唱了然后介绍两句直接下去比较有可能<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+不过邦邦内部拼盘倒是能演，虽然带上老团的话有可能会被往搞笑方向写<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">武士道内部拼盘好像也行，如果带少歌玩的话理论上应该可以无缝融入mujica世界观
+

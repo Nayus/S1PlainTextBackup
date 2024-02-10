@@ -18153,3 +18153,11 @@ Megabox那边，九楼
 
 明年鸡团起步且狗团和萝还没有开始大糊的时候或许就是你邦开大场子最后的机会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 12339#       发表于 2024-2-10 12:31
+
+武士道这么抠门，大场能给开SSA和西武都不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东蛋不敢想
+

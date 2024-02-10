@@ -18297,3 +18297,18 @@ mujica上拼盘live的话应该不会演舞台剧吧，像farbe那样上去二�
 
 不过邦邦内部拼盘倒是能演，虽然带上老团的话有可能会被往搞笑方向写<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">武士道内部拼盘好像也行，如果带少歌玩的话理论上应该可以无缝融入mujica世界观
 
+
+*****
+
+####  御幸一也  
+##### 12349#       发表于 2024-2-10 18:51
+
+那個MEGA VEGAS 2024，ave可是要演40min，看之前RAS的repo是7首歌，沒MC的話這樣連敲7曲米澤小姐真的撐得住嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12350#       发表于 2024-2-10 18:56
+
+感觉mujica上asl这种拼盘的话会参考少歌那边的策略，就是唱几首自己的歌+翻唱有舞台要素的老作品，然后来点搂搂抱抱的互动之类的（少歌那边翻唱凡尔赛玫瑰的时候都直接躺怀里了）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

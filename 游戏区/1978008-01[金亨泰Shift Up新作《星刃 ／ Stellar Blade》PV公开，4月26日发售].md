@@ -943,3 +943,15 @@ Eve 19-24年的人设变化</blockquote>
 有中文，语音日语韩语就行，英语实在听不惯，
 现在就傻逼索尼还大搞特搞地区语言版本
 
+
+*****
+
+####  rainsheep  
+##### 306#       发表于 2024-2-10 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933254&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-2-10 12:49</a>
+预购服装写着是提前解锁，豪华版服装没提到所以应该是豪华版独有的内容 ...</blockquote>
+多谢
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -813,3 +813,22 @@
 
 我很难说Minecraft在微软手里到底有多少提升
 
+
+*****
+
+####  🐳❕  
+##### 50#       发表于 2024-2-11 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934432&amp;ptid=2171494" target="_blank">mikeymouse874 发表于 2024-2-10 16:47</a>
+一个有可能卖3000万的游戏，被国人玩家说没有“底蕴”“价值”。
+
+哦，任畜啊，乐。 ...</blockquote>
+看得出泥潭真的有很多人不玩游戏脑子只有屁股了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按你的逻辑CF一定是最有底蕴的FPS，腾讯是最有底蕴的厂商吧，脖子以上就是屁股的人除了放屁吐不出什么人话我倒也能理解
+
+*****
+
+####  🐳❕  
+##### 51#       发表于 2024-2-11 01:21
+
+风怒
+

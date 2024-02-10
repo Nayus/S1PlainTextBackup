@@ -1048,3 +1048,14 @@
 
 二叔接受捐款吗来自: iPhone客户端
 
+
+*****
+
+####  鱼雷鲨  
+##### 57#       发表于 2024-2-11 05:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63813886&amp;ptid=2159012" target="_blank">永恒的武嘉 发表于 2024-1-29 11:24</a>
+
+有新作的话不懂前作的企划会不会上，贰瓶勉作品也不缺动画企划了（有企划归有企划，有没有落地倒是另说） ...</blockquote>
+鬼知道Polygon签的什么合同，是不是绑定必须从东亚重工production控股走
+

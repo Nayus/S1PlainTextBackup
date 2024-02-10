@@ -42,3 +42,11 @@
 
 昨天1周目骑士线通关了，我可爱死这浪漫至死的TE<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">后面的内容就等到重制版再体验
 
+
+*****
+
+####  七千星  
+##### 577#       发表于 2024-2-10 13:09
+
+好好好,我要和小龙女走天涯,说起来没请作者扩写日后谈吗
+

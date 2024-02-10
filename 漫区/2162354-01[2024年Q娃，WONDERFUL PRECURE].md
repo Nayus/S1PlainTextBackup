@@ -3632,3 +3632,35 @@ fy
 狗狗表情可爱捏，这兔子可以肯定是追加了吧？变身后是男q？</blockquote>
 目前来看追加可能是玩具解包的🦄
 
+
+*****
+
+####  最强惠酱  
+##### 837#       发表于 2024-2-10 17:44
+
+太好了，谢天谢地不是男q
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  UnrealApartheid  
+##### 838#       发表于 2024-2-10 17:51
+
+ 本帖最后由 UnrealApartheid 于 2024-2-10 17:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933150&amp;ptid=2162354" target="_blank">tengu_desu 发表于 2024-02-10 12:36:42</a>
+
+みんな友達！みんなアイドル！(走错片场)</blockquote>
+千年以上生きた魔法使い キュアフリーレン登場！（走错片场）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+Screenshot_2024-02-04-22-11-12-24_a252b927494330cdc2c8ba3b3f952e5e.jpg
+(234.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-10 17:52 上传
+
+<img src="https://img.saraba1st.com/forum/202402/10/175224gfgfrgfvrwvmbame.jpg" referrerpolicy="no-referrer">
+

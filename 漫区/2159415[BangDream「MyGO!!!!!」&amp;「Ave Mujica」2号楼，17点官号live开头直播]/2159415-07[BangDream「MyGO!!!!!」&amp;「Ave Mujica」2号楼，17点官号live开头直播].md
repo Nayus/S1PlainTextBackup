@@ -18265,3 +18265,11 @@ Megabox那边，九楼
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  11A511  
+##### 12347#       发表于 2024-2-10 18:05
+
+可以先来个 NHK Hall 两日，应该是日本乃至东亚最大的同类设施了（
+

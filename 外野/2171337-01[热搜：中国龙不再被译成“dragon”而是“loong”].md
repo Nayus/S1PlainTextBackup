@@ -1821,3 +1821,15 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 破案了，都怪马可波罗和马礼逊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [【“龙”到底该怎么译？-哔哩哔哩】 https://b23.tv/yMy7Z2h](https://www.bilibili.com/video/BV1j642137TX)
 
+
+*****
+
+####  哈德斯  
+##### 177#       发表于 2024-2-10 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919633&amp;ptid=2171337" target="_blank">wtf317 发表于 2024-2-9 00:55</a>
+为啥不用标准拼音long，而是用奇怪的loong，是因为龙有两个蛋嘛？
+
+本质上还是跪着站不起来，一脸献媚的想向 ...</blockquote>
+什么傻逼
+

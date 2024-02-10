@@ -18101,3 +18101,18 @@ Megabox那边，九楼
 
 什么时候能够九团同台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toki_Ai  
+##### 12332#       发表于 2024-2-10 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在10团50人，嘉年华怕是塞不满了
+
+*****
+
+####  PDQ4  
+##### 12333#       发表于 2024-2-10 11:43
+
+10团同台，那岂不是5个动物头套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

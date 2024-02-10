@@ -3664,3 +3664,11 @@ Screenshot_2024-02-04-22-11-12-24_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 <img src="https://img.saraba1st.com/forum/202402/10/175224gfgfrgfvrwvmbame.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 839#       发表于 2024-2-10 18:18
+
+兔子和悟目前看来有点像成田系惯用的“王子”役（coco不鲁）战力基本废物一个撑死了能召唤个外挂
+

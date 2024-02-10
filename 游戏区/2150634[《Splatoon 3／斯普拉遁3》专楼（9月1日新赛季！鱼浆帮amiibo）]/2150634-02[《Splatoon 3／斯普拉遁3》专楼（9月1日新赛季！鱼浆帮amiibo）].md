@@ -13209,3 +13209,11 @@ hime穿着大号外套像没腿了一样<img src="https://static.saraba1st.com/i
 
 IGN发了港任的中文版的了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2792#       发表于 2024-2-10 23:03
+
+歌词和几段对话都挺有趣的，hime和iida的对话还cue到了8号，不会dlc2的剧情就跟在这段后面吧，去尚兴广场然后两人失联
+

@@ -464,3 +464,12 @@
 
 [https://twitter.com/sengokuchido ... 71023534341/photo/1](https://twitter.com/sengokuchidori/status/1756136071023534341/photo/1)
 
+
+*****
+
+####  Saber琪  
+##### 1674#       发表于 2024-2-10 22:55
+
+与猫猫大战300回合于是申请明日再搬图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+今天起码把猫猫一个月多少逗猫棒都玩完了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

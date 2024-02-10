@@ -18138,3 +18138,18 @@ Megabox那边，九楼
 
 西蛋能上座5/6就是大成功<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">太糊了
 
+
+*****
+
+####  紫吹兰  
+##### 12337#         楼主| 发表于 2024-2-10 12:22
+
+手游团到齐太难了，7个真人团+3主唱能到齐就已经是奇迹了，手游团乐手能到的都是惊喜
+
+*****
+
+####  NODY  
+##### 12338#       发表于 2024-2-10 12:27
+
+明年鸡团起步且狗团和萝还没有开始大糊的时候或许就是你邦开大场子最后的机会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

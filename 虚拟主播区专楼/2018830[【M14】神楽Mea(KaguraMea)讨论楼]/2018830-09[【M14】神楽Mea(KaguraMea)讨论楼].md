@@ -122,3 +122,13 @@ Mea说最近官号不活动的原因是什么？感觉fafa并没有把她说的�
 
 有很多原因，但是谁都没有错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  往世雷书  
+##### 16272#       发表于 2024-2-10 12:25
+
+云在青天水在瓶，有人是云有人是水，都是忠臣没有奸臣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

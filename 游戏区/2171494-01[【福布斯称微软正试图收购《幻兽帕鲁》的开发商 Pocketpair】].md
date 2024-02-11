@@ -1342,3 +1342,52 @@ Another Crab's Treasure</blockquote>
 
 一眼若智小号钓鱼的有啥跟他讨论的必要吗？
 
+
+*****
+
+####  baizhi  
+##### 106#       发表于 2024-2-11 13:05
+
+真收购的话，感觉微软是真没游戏品味的，这工作室除了套壳有任何核心优势吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帕鲁比起工作室自身，感觉更多是体现了宝可梦这个ip的强悍。
+
+*****
+
+####  windtrack_qh  
+##### 107#       发表于 2024-2-11 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938474&amp;ptid=2171494" target="_blank">blackll7 发表于 2024-2-11 11:16</a>
+
+你哪怕多看几眼游戏区也知道，我这两天才在喷鳄鱼头的时候提到了班卓熊和围攻与王国之泪的例子。
+
+——  ...</blockquote>
+然而你到现在还是没给我解释雾锁王国的改造地形+建筑构件爬山和英灵神殿到底有啥区别<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blackll7  
+##### 108#       发表于 2024-2-11 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63939133&amp;ptid=2171494" target="_blank">windtrack_qh 发表于 2024-2-11 13:06</a>
+然而你到现在还是没给我解释雾锁王国的改造地形+建筑构件爬山和英灵神殿到底有啥区别 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看你回我我取一下抹布，我一开始就说了，你说雾锁和英灵殿没什么不同于你说王国之泪和班卓熊于围攻没什么不同完全一样，可以进行的类似实现形式与游戏设计上的完全不同思路你都可以当成是一回事，你纯粹就是杠精上脑和泥潭的那些奇怪生物融为一体，你一句不要提王国之泪就好像你有什么理了似的。
+
+好了，是我的错，求你别再回复我了，求你互相拉黑可以吗？我受够了。
+
+—— 来自 OnePlus CPH2487, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  windtrack_qh  
+##### 109#       发表于 2024-2-11 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63939159&amp;ptid=2171494" target="_blank">blackll7 发表于 2024-2-11 13:10</a>
+
+看你回我我取一下抹布，我一开始就说了，你说雾锁和英灵殿没什么不同于你说王国之泪和班卓熊于围 ...</blockquote>
+就麻烦你解释解释雾锁王国的破坏地形+建筑构建爬山到底和英灵神殿有啥区别
+
+雾锁王国的这两种玩法，英灵神殿里是做不到，还是做起来和雾锁王国方法不一样
+
+求你了别再套什么王泪班卓熊围攻了，解释一下到底区别在哪很难吗
+
+还是你根本解释不了只能生搬硬套呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

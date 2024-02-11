@@ -2083,3 +2083,22 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 
 幸亏现在不显示踩了
 
+
+*****
+
+####  巴特爱素子  
+##### 199#       发表于 2024-2-11 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938929&amp;ptid=2171337" target="_blank">yly88528 发表于 2024-2-11 12:30</a>
+
+这些东西都细枝末节的东西，真要正本清源就要让他们都学中文，就用  龙这个字，其他都是扯淡。 ...</blockquote>
+这点还是看老马
+
+<img src="https://img.saraba1st.com/forum/202402/11/130536slgg4adc0zgw4il0.jpg" referrerpolicy="no-referrer">
+
+<strong>54140CB2A1BC15CF0CA88C680CA551330CF2C9B3_size80_w967_h1063.jpg</strong> (74.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 13:05 上传
+

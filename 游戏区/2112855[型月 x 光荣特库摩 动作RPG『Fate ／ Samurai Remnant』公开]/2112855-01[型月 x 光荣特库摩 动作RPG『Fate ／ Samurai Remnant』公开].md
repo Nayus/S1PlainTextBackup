@@ -297,3 +297,11 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打完全部了，tnnd这次有完整新剧情的就tm剑弓术三组啊….而且弓组剧情也太tm完整了…..果然是暗耻有私心啊…..
 
+
+*****
+
+####  johnkamsar  
+##### 1720#       发表于 2024-2-11 13:06
+
+再补充个吐槽，普通结局跑出来的无名ruler除了金皮卡就是伊吹，但是不明夜跑出来的就多出个阿育王可还行…..<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啥时候fgo联动剧情能落地到fsr里啊，俺要看伊织砍树啊….
+

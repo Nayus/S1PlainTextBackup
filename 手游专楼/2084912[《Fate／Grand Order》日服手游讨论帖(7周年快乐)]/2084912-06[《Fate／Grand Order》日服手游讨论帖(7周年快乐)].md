@@ -201,3 +201,11 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 光荣：我为了推我的冷门cp可以不择手段的
 
+
+*****
+
+####  johnkamsar  
+##### 11313#       发表于 2024-2-11 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打完dlc了，这剑弓术三个才是dlc有内容的东西，其他就是附赠的….剧情太完整了….
+

@@ -307,3 +307,23 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 声优应该是铃代纱弓吧？
 
+
+*****
+
+####  シャル  
+##### 11325#       发表于 2024-2-11 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+为啥仙女座是操纵巨鲸座啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11326#       发表于 2024-2-11 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940655&amp;ptid=2084912" target="_blank">シャル 发表于 2024-2-11 17:55</a>
+
+为啥仙女座是操纵巨鲸座啊</blockquote>
+复仇，生前被绑，身后反过来操纵<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -269,3 +269,11 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">快速打完了大部分，除了剑和术是可以认为是完全不同的体验部分，其他雷同地方太多了….
 
+
+*****
+
+####  DARKGRAY  
+##### 1717#       发表于 2024-2-11 08:59
+
+打了几个人突然想到，其实要看成同时存在又有混交关系的世界最难圆的是不能有从者分身的武藏吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

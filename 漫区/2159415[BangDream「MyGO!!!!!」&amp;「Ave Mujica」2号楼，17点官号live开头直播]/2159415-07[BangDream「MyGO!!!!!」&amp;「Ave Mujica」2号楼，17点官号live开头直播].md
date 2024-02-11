@@ -18761,3 +18761,33 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 好消息（？）是睦的谷都挺贵的（迷你专吧唧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 12390#       发表于 2024-2-11 23:08
+
+感觉狗团真的没人能带队的，特别青木十分自我又习惯于观察和打量他人，跟着做些具体事情是可以的，但真的要相处不一定很舒服，感召力也有限吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12391#       发表于 2024-2-11 23:09
+
+@nohee07
+
+<img src="https://img.saraba1st.com/forum/202402/11/230920if8xh88773fw888w.jpg" referrerpolicy="no-referrer">
+
+<strong>GGEHjDHaMAAd8bQ_format=jpg&amp;amp;name=large.jpg</strong> (433.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 23:09 上传
+
+*****
+
+####  NODY  
+##### 12392#       发表于 2024-2-11 23:13
+
+青木怎么说也是狗团唯一一个每次出征都记得给团员买特产的人，还每次都给的全员，已经很努力在当大姐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

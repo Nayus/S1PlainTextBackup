@@ -267,3 +267,28 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抱着绿色鲸鱼的那个造型还是觉得挺色的。其他两个都不好看
 
+
+*****
+
+####  alucardcz  
+##### 11320#       发表于 2024-2-11 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这大饼脸
+
+
+*****
+
+####  不垃圾屌丝  
+##### 11321#       发表于 2024-2-11 17:29
+
+卫星的卫星也是卫星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  保罗赫伯特  
+##### 11322#       发表于 2024-2-11 17:33
+
+能穿仙女座圣衣吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3872,3 +3872,11 @@ ps:这屏蔽词是……**？
 不过从这两集汪Q来看，我猜应该挺受小友欢迎的，题材好小麦可爱)(彩羽也很适合带入（虽然有小友们带入小麦 ...</blockquote>
 第一集的刷肚皮毛，换成人就挺牙白的了。不知道会不会有不小心尿床的环节<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 857#       发表于 2024-2-11 18:17
+
+动物作画难度很高的，跟打斗比卷的是另一个赛道罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

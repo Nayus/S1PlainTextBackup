@@ -316,3 +316,36 @@ Image_1707628310642.jpg
 
 该出小组单了
 
+
+*****
+
+####  仟音一心  
+##### 19461#       发表于 2024-2-11 18:19
+
+情报，小组fmt
+三期TV动画10月
+
+*****
+
+####  starring  
+##### 19462#       发表于 2024-2-11 18:20
+
+小组Live&amp;FMT，还有新小组单
+
+3期10月
+
+<img src="https://img.saraba1st.com/forum/202402/11/182044k2jbcz2jssil0211.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240211181912.jpg</strong> (435.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 18:20 上传
+
+*****
+
+####  ViyViy  
+##### 19463#       发表于 2024-2-11 18:24
+
+等于是从完结起给了整整两年时间让你"好好调整"了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然，看5th的小头动画还是模板化的怼人套可可身上，我觉得就算给二十年都一样。
+

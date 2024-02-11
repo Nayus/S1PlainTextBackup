@@ -529,3 +529,70 @@
 
 [https://twitter.com/gsc_kahotan/ ... 93465059806/photo/1](https://twitter.com/gsc_kahotan/status/1756482693465059806/photo/1)
 
+
+*****
+
+####  Saber琪  
+##### 1677#       发表于 2024-2-11 20:42
+
+[https://twitter.com/Ap3U0/status/1756641441961664675?s=19](https://twitter.com/Ap3U0/status/1756641441961664675?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/11/203846jztl2qx2j22x3p62.jpg" referrerpolicy="no-referrer">
+
+<strong>20240211_203756.jpg</strong> (54.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 20:38 上传
+
+[https://twitter.com/oiun461/status/1756329727172981013?s=19](https://twitter.com/oiun461/status/1756329727172981013?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/11/203911juac1g1cng1c9ygu.jpg" referrerpolicy="no-referrer">
+
+<strong>20240211_203854.jpg</strong> (182.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 20:39 上传
+
+[山葵のりこと蒲焼太郎(2/3) ダイレクト・アタック編](https://twitter.com/Kayura_draw/status/1756524272150052911?s=19)
+[前回のお話(1/3)](https://twitter.com/Kayura_draw/status/1756524280568074423?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/11/204031m9j99t22cjccc9ot.jpg" referrerpolicy="no-referrer">
+
+<strong>20240211_203927.jpg</strong> (558.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 20:40 上传
+
+[https://twitter.com/daimyo0208/status/1756644125854802245?s=19](https://twitter.com/daimyo0208/status/1756644125854802245?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/11/204057vtbtmty2kbzwztyw.jpg" referrerpolicy="no-referrer">
+
+<strong>20240211_204040.jpg</strong> (205.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 20:40 上传
+
+[https://twitter.com/Ap3U0/status/1756287534039261215?s=19](https://twitter.com/Ap3U0/status/1756287534039261215?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/11/204118c4ip34fbiv9b5k4d.jpg" referrerpolicy="no-referrer">
+
+<strong>20240211_204102.jpg</strong> (65.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 20:41 上传
+
+[https://twitter.com/Ntani_2/status/1756322027815014862?s=19](https://twitter.com/Ntani_2/status/1756322027815014862?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/11/204143m39l300ytywwcyi3.jpg" referrerpolicy="no-referrer">
+
+<strong>20240211_204126.jpg</strong> (234.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 20:41 上传
+

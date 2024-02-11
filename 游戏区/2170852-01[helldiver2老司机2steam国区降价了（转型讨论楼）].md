@@ -1920,3 +1920,33 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 
 有群吗，来个群好组队
 
+
+*****
+
+####  -v-  
+##### 220#       发表于 2024-2-12 00:46
+
+我艹，能登陆，能联机，但是每次结算成功后都不给经验和素材
+
+白肝了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琦乐无穷  
+##### 221#       发表于 2024-2-12 00:46
+
+又是一晚上神奇bug不带重样的，已经不知道该怎么骂这垃圾服务器了。
+
+登录界面卡死，任务小游戏面板卡死，撤离卡死，跑完一张图结算完实际一分都没有到账。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+顺便求个PC玩家群
+
+*****
+
+####  vviosonia  
+##### 222#       发表于 2024-2-12 00:53
+
+地狱老司机1肝到二三十级弃坑了，2还是观望一阵子再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 LENOVO TB371FC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

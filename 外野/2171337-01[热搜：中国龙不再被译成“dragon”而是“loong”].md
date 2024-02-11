@@ -2209,3 +2209,15 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 
 — from OnePlus CPH2451, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  manysun  
+##### 210#       发表于 2024-2-12 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63943564&amp;ptid=2171337" target="_blank">snailium 发表于 2024-2-12 00:20</a>
+
+咱先把“希腊众神”改成“格力克的一众高德”</blockquote>
+你以为希腊不是音译？没有比音译Hellas更贴切的音译词了，Greek才是西方人对希腊人的误读。你偏偏举了个中国人比欧洲人更尊重希腊语的例子
+[https://www.bilibili.com/video/BV1a5411o7W7/](https://www.bilibili.com/video/BV1a5411o7W7/)
+

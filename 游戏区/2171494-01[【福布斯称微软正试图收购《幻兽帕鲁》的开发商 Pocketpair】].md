@@ -1615,3 +1615,16 @@ That’s why in all this chaos I believe something else is no doubt happening be
 
 只看到任任在疯狂输出软软，软软什么时候挺起来呀
 
+
+*****
+
+####  法拉  
+##### 133#       发表于 2024-2-12 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940506&amp;ptid=2171494" target="_blank">chm007 发表于 2024-2-11 17:22</a>
+
+确实不如O神，O设计二次元烧鸡的水平好歹也是国内顶尖的
+
+  -- 来自 能搜索的 Stage1官方 Android客 ...</blockquote>
+感觉人体彩绘忍冬纹午餐肉不如佐伊……烧鸡
+

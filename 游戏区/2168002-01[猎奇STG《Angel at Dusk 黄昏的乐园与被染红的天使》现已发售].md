@@ -1164,3 +1164,19 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 反正我做不到高速模式下躲弹幕
 
+
+*****
+
+####  kimmmmmm  
+##### 89#       发表于 2024-2-11 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63939510&amp;ptid=2168002" target="_blank">秘银mithril 发表于 2024-2-11 14:14</a>
+唉 难受
+
+这个重攻击推子弹的设定太难受了
+
+大片红色子弹的时候需要减速躲弹幕，但减速的同时会放重攻击把红 ...</blockquote>
+故意不加低速自动模式就是逼你蓄力攻击推子弹
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

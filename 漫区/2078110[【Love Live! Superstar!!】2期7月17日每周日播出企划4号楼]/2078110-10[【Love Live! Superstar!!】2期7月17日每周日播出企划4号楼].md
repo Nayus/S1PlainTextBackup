@@ -415,3 +415,27 @@ Image_1707628310642.jpg
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  ViyViy  
+##### 19472#       发表于 2024-2-11 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940924&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-2-11 18:47</a>
+
+调整个毛线哦，花田从星2结束开始哪个季度没活要干的。不过感觉大概还是京极主导，京极的精神状态也不容 ...</blockquote>
+上头想明白了最重要<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 19473#       发表于 2024-2-11 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940966&amp;ptid=2078110" target="_blank">优妮可 发表于 2024-2-11 18:53</a>
+要么是调整了，要么就是没做，之前去做幻夜和虹的剧场去了</blockquote>
+大概率是没做的。花田排期满的，不可能给别人做改编的时候还有空给你写。京极倒是有空，但是他还要琢磨剧中至少五个mv的事，剧情这方面<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+前段时间虹剧场版1宣布做完（大概率虹四格也做完了），人手就该投入去星3，7月确实赶了，前期工作怎么着也该有个一年时间。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

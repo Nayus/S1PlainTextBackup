@@ -18444,3 +18444,13 @@ mujica上拼盘live的话应该不会演舞台剧吧，像farbe那样上去二�
 
 祝各位新年快樂<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 12359#       发表于 2024-2-11 17:04
+
+[https://youtu.be/h9fy0-uqarw?si=UUKrjcw0V2Dr0bDN](https://youtu.be/h9fy0-uqarw?si=UUKrjcw0V2Dr0bDN)
+
+李子自己投了翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

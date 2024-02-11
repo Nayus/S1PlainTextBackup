@@ -3850,3 +3850,15 @@ ps：狗变人还是太糟糕了啊<img src="https://static.saraba1st.com/image/
 
 ps:这屏蔽词是……**？
 
+
+*****
+
+####  最强惠酱  
+##### 855#       发表于 2024-2-11 16:59
+
+不打斗等于降本吗，这2集动物还是角色跑步还是小动作怎么看都作画卡路里爆表，画面一直在动绘柄也稳，怎么看都比以前敷衍的打斗强得多，还有q娃抱抱卖萌<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+不过第三话预告看起来就打回原形了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+今年的bank稍短不过加入了变人bank，这个才是有点太拖时间又不太好看<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

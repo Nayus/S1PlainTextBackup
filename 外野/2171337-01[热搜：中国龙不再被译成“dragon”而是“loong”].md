@@ -2139,3 +2139,20 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 查了一下 ...</blockquote>
 并不是，汉语拼音方案，可以用双写元音表示上声
 
+
+*****
+
+####  fneasag  
+##### 203#       发表于 2024-2-11 16:56
+
+部分高华挺破防的，对于英语词汇的解释权怎么能由中国决定？
+
+*****
+
+####  UmarIbnLaAhad  
+##### 204#       发表于 2024-2-11 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933639&amp;ptid=2171337" target="_blank">星之卡比 发表于 2024-2-10 13:54</a>
+ 我也理解loong比dragon好，但是我认为应该一步到位，因为分布走很容易就停在loong这步了。没有必要为了洋 ...</blockquote>
+一步到位本身就很难，撞到常用词上一不小心就撞死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以这个妥协我个人还是接受的，总不能说你看你们没法一步到位所以还是dragon得了
+

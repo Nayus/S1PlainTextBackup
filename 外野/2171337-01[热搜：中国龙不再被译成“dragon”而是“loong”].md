@@ -2031,3 +2031,25 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 白俄罗斯早就换成白罗斯，但中文网上还是一堆白俄罗斯。</blockquote>
 外交部网站上还写的白俄罗斯，应该是还没有正式通过外交渠道改过来
 
+
+*****
+
+####  巴特爱素子  
+##### 195#       发表于 2024-2-11 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933639&amp;ptid=2171337" target="_blank">星之卡比 发表于 2024-2-10 13:54</a>
+
+我也理解loong比dragon好，但是我认为应该一步到位，因为分布走很容易就停在loong这步了。没有必要为了洋 ...</blockquote>
+并不好，loong读作lung，你要想又发long的音又想搞象形文字只能搞四不像。如果只想发龙的音不如改成lorng
+
+*****
+
+####  dclara1  
+##### 196#       发表于 2024-2-11 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63925915&amp;ptid=2171337" target="_blank">隔壁老黄 发表于 2024-2-9 20:36</a>
+文化传播是给人看而不是自嗨的</blockquote>
+把信息量传达到位才是真的让人看而不是自嗨好吧
+
+— from Google Pixel 4a (5G), Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

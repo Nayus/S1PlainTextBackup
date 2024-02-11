@@ -1884,3 +1884,11 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 有1代，没玩明白，能肝什么？</blockquote>
 反正1代的话主要是解锁武器，如果你不在意外观披风之类的东西的话
 
+
+*****
+
+####  runningch  
+##### 216#       发表于 2024-2-12 00:08
+
+不知道ps5和pc的玩家比例是多少？ps5的体验会比pc好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

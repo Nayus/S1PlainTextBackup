@@ -18684,3 +18684,11 @@ MP3檔
 
 自从看到青木凛北京访谈凛说爱音抱着领导者的的位置带领大家前进后，我已经做好第二季或者手游立希连队长位置都垫出去的准备了，毕竟监督只说了有适性没说她是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 12381#       发表于 2024-2-11 22:10
+
+队长都垫出去那立希可是真的青出于蓝胜于蓝了，AG都没说绯玛丽不是队长，这么搞真不会炎上吗，我不厨都看不下去立希现在的待遇。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

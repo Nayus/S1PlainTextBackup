@@ -53,3 +53,57 @@
 
 塞尔达也是可动？？
 
+
+*****
+
+####  冷泉夜月  
+##### 15653#       发表于 2024-2-11 22:10
+
+ 本帖最后由 冷泉夜月 于 2024-2-11 22:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63942374&amp;ptid=1997982" target="_blank">清浦刹那 发表于 2024-2-11 22:02</a>
+
+塞尔达也是可动？？</blockquote>
+对，figma都是可动人偶，可动林克塞尔达加侬应该还是第一次齐聚<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/11/220840luo3t298b3u23t4z.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1707632744648efe2cea3ec6759f2f566525ee95240e5339f1cda84c8b27127b856ee05b8bd75.jpg</strong> (208.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/220833cqe8negg7ngp2g27.jpg" referrerpolicy="no-referrer">
+
+<strong>img-170763273222289aaf0c8b2ee7ce568a6b982aa2dd4bdb92332f9c72a5610d499a629994421c5.jpg</strong> (302.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/220821lvhzvfr1sd58vfw5.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17076330431484e8a49fcf5ee35a6e06b843257581ff41d16f695d4077c566a1caa16e265977e.jpg</strong> (221.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/220811cyyq01101ax0px6q.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1707626636347fca09e3af2af6df5a7dfa0d4753765596c15d5aeaf2b0304646fd0a48027550a.jpg</strong> (375.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/220741ynzcn5kcn5c99w9z.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1707632737613582cd3abcabb8e6563ed258e555f27b111d6fc27440624c1ecb03d21a0c5da0c.jpg</strong> (418.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 22:07 上传
+
+林克的披风是布制的好评（虽然兜帽本身不是）
+

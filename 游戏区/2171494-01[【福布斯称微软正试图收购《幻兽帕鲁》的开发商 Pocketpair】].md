@@ -1559,3 +1559,13 @@ pocketpair自己就会做手游，他们第一款游戏就是手游。其实收�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微软搞死的开发组还少么，神鬼寓言那个破玩意demo都出来了直接都整个砍，我知道不好玩，但你ip和开发室直接不要了简直人才，然后23年又神神叨叨上了个系列新宣传片，恶心人的玩意
 
+
+*****
+
+####  horizonwalker  
+##### 127#       发表于 2024-2-11 22:13
+
+That’s why in all this chaos I believe something else is no doubt happening behind the scenes. I <strong>absolutely have to think</strong> that Microsoft is trying to buy Pocketpair, the developer of Palworld, and lock up that explosive hit of a franchise for themselves. Well, for themselves to potentially release on other platforms, but as something they full own.
+
+福布斯拉的三无屎泥潭还有这么多人抢着吃的，整篇文章就是作者的臆想<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

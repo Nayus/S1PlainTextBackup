@@ -60,3 +60,32 @@ cs真正的超人出现了，纯粹的枪法纯粹的准<img src="https://static
 
 哎,看大表哥哭是真的难受啊,被一个小孩撕碎的感觉好痛啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  你来搞笑  
+##### 3966#       发表于 2024-2-12 03:14
+
+这尼玛把走第一个邦邦打两个怎么玩
+
+*****
+
+####  cwlo  
+##### 3967#       发表于 2024-2-12 03:20
+
+太变态了，而且由于导播太辣鸡，很多时候根本没看到他怎么连杀<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  櫻井智代  
+##### 3968#       发表于 2024-2-12 03:21
+
+你们说大表哥这场决赛打完,会不会有那种虚无的感觉,做什么都没用的无力感,会不会突然就明确了自己的退役时间<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼陀罗肥  
+##### 3969#       发表于 2024-2-12 03:23
+
+这种人已经接近了射击游戏的本质，就是枪法就是准，把把保底杀1-2人，谁来都没意义
+

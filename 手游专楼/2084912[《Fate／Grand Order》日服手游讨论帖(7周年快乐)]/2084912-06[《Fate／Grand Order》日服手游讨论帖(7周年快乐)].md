@@ -376,3 +376,11 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">空降卫星，毫无波动，我13号直接怒战嫁尼禄了
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">已经是四战嫁王了口口你跟我回迦吧
 
+
+*****
+
+####  保罗赫伯特  
+##### 11333#       发表于 2024-2-11 21:32
+
+每年几个抽卡高峰期，新年，联动，主线和泳装/周年，今年到奏二前是没啥可抽的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

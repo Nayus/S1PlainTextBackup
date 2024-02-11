@@ -54,3 +54,13 @@
 
 想弄个情人节四星礼装，一发十连只有两个三星，然后单抽两次就来了女教皇，前途一片光明啊（赞赏）
 
+
+*****
+
+####  天人五衰  
+##### 46151#       发表于 2024-2-11 21:44
+
+两百多石头莉莉丝二宝成功，还是最后双黄来的，最开心的是傻屌男人没来添堵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

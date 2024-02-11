@@ -3927,3 +3927,17 @@ ps:这屏蔽词是……**？
 
 华哥变身词怎么也是我的进化，难道还能从人变成狗吗？以后双人大招是牙通牙么？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 863#       发表于 2024-2-11 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63941411&amp;ptid=2162354" target="_blank">不能摸的屁屁 发表于 2024-2-11 20:00</a>
+华哥变身词怎么也是我的进化，难道还能从人变成狗吗？以后双人大招是牙通牙么？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">少女的进化我怎么想到了糟糕的东西
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

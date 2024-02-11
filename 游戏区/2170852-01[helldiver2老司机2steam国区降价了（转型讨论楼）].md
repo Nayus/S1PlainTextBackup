@@ -1950,3 +1950,17 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 
 —— 来自 LENOVO TB371FC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  风萧飒  
+##### 223#       发表于 2024-2-12 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63942831&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-2-11 22:43</a>
+目前应该是自动喷最强，近中远全能
+
+因为这代加入了肢体伤害和细化的部位，对付装甲单位（中型镰刀虫、步 ...</blockquote>
+喷子确实爽，手感太棒了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

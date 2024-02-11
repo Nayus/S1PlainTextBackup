@@ -1314,3 +1314,19 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 没找到街机机体打编年史的入口，街机模式慢慢磨了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 102#       发表于 2024-2-12 01:10
+
+<img src="https://img.saraba1st.com/forum/202402/12/011044e6n9twq67e6hiq4q.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240212010749.jpg</strong> (71.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 01:10 上传
+
+我这是有的，打完啥解锁的就不知道了
+

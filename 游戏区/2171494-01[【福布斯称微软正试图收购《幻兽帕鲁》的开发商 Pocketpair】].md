@@ -1114,3 +1114,57 @@ cf作为ip当然算有底蕴的吧，虽然我也觉得cf和帕鲁都不怎么�
 
 这辣鸡公司有啥好收购的，收来和bgs比谁bug多吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 83#       发表于 2024-2-11 10:56
+
+所以真的没人解释下伸缩臂到底是啥吗，究极手也不是自己伸长出去打胶呀<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  mikeymouse874  
+##### 84#       发表于 2024-2-11 11:00
+
+<blockquote>modedd 发表于 2024-2-11 10:56
+所以真的没人解释下伸缩臂到底是啥吗，究极手也不是自己伸长出去打胶呀
+
+  -- 来自 能手机投票的 St ...</blockquote>
+就是那个手嘛，我又不玩ns我哪知道学名。
+
+但被说抄袭好几年前的一个小游戏我还是知道的。
+
+当然，任天堂过去现在未来都没有抄袭
+
+*****
+
+####  紫菜粉丝煲  
+##### 85#       发表于 2024-2-11 11:00
+
+看起来伸缩臂又是属于小圈子黑话，散了散了
+
+*****
+
+####  紫菜粉丝煲  
+##### 86#       发表于 2024-2-11 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938379&amp;ptid=2171494" target="_blank">mikeymouse874 发表于 2024-2-11 11:00</a>
+就是那个手嘛，我又不玩ns我哪知道学名。
+
+但被说抄袭好几年前的一个小游戏我还是知道的。
+
+当然，任天堂过 ...</blockquote>
+所以是什么小游戏
+
+*****
+
+####  mikeymouse874  
+##### 87#       发表于 2024-2-11 11:04
+
+<blockquote>紫菜粉丝煲 发表于 2024-2-11 11:01
+所以是什么小游戏</blockquote>
+Another Crab's Treasure
+

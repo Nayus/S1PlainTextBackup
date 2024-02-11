@@ -1132,3 +1132,11 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  AdoringBeast  
+##### 86#       发表于 2024-2-11 10:57
+
+贪欲天使容错也太低了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

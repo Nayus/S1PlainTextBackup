@@ -1974,3 +1974,18 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 
 —— 来自 HONOR TNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  琦乐无穷  
+##### 225#       发表于 2024-2-12 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63943862&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-2-12 01:17</a>
+
+老兵债券那个燃烧喷子不知道打起来怎么样，不过那玩意也太肝了
+
+—— 来自 HONOR TNA-AN00, Android 12上的 ...</blockquote>
+每次把一个完整星球任务（2~3局）做完，解锁起来还是蛮快的。
+
+燃烧喷能让虫子挂上火，视觉上是挺爽的。就是看不到数值，不太懂能打出多少附加伤害。
+

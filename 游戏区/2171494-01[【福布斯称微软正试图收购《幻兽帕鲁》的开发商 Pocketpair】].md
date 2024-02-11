@@ -1485,3 +1485,22 @@ Another Crab's Treasure</blockquote>
 
 寄居蟹作者吐槽的不是创意撞了余料建造吗，怎么成究极手抄袭了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sherlock08  
+##### 119#       发表于 2024-2-11 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934432&amp;ptid=2171494" target="_blank">mikeymouse874 发表于 2024-2-10 16:47</a>
+一个有可能卖3000万的游戏，被国人玩家说没有“底蕴”“价值”。
+
+哦，任畜啊，乐。 ...</blockquote>
+感觉不如o神
+
+*****
+
+####  何处分可  
+##### 120#       发表于 2024-2-11 16:18
+
+怎么后面又跳出来一个傻逼，笑死
+

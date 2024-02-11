@@ -270,3 +270,12 @@ IM对员工的SNS管得很严吧，yabu的推全是工商，鱼可能因为这�
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  仟音一心  
+##### 19457#       发表于 2024-2-11 12:36
+
+【【中字】装傻与吐槽是10:1 NHK节目Liella出演部份-】 [https://b23.tv/6sXQw2r](https://b23.tv/6sXQw2r)
+<img src="https://p.sda1.dev/15/09ca1c27f96c26b4f6c3e7bf51237444/CMP_20240211123457109.jpg" referrerpolicy="no-referrer">
+

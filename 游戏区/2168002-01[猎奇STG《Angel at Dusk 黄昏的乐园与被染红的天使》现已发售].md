@@ -1295,3 +1295,14 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 三系机体横向解锁，每一系机体在街机模式下收集足够的绿血球，蓝血球，脂质和Lv8神经节就能解锁后继机， ...</blockquote>
 编年史不是只能用自定义机体吗
 
+
+*****
+
+####  quanlix  
+##### 100#       发表于 2024-2-11 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63941192&amp;ptid=2168002" target="_blank">AdoringBeast 发表于 2024-2-11 19:23</a>
+
+编年史不是只能用自定义机体吗</blockquote>
+街机模式点进去之后也可以选择打编年史，适合贪婪这种需要长时间发展的机体，boss挑战适合刷蓝血球
+

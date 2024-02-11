@@ -2180,3 +2180,11 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 — from Google Pixel 4a (5G), Android 14 of S1 Next  ...</blockquote>
 传达到位就是完全不翻译？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  西人  
+##### 207#       发表于 2024-2-11 18:50
+
+龙族，幻龙族
+

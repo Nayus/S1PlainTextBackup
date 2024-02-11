@@ -350,3 +350,20 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 完全忘了生放送……这人谁啊OTZ
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 11330#       发表于 2024-2-11 18:51
+
+宙斯难道要有消息了吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 11331#       发表于 2024-2-11 18:54
+
+中原版的五星Rider珀尔修斯因为大人的原因可能出不了
+
+不会改出タスクオーナ画的Lancer珀了吧，然后跟忒修斯一样出成三星塞在什么角落里
+

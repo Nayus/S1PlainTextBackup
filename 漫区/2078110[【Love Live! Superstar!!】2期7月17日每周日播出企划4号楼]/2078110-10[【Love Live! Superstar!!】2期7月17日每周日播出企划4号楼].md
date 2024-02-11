@@ -386,3 +386,22 @@ Image_1707628310642.jpg
 
 假有点难请，4月每周都要去，6月1.2还要去田村的
 
+
+*****
+
+####  ads147147  
+##### 19469#       发表于 2024-2-11 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940795&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-2-11 18:24</a>
+等于是从完结起给了整整两年时间让你"好好调整"了然，看5th的小头动画还是模板化的怼人套可可身上， ...</blockquote>
+调整个毛线哦，花田从星2结束开始哪个季度没活要干的。不过感觉大概还是京极主导，京极的精神状态也不容乐观
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  优妮可  
+##### 19470#       发表于 2024-2-11 18:53
+
+要么是调整了，要么就是没做，之前去做幻夜和虹的剧场去了
+

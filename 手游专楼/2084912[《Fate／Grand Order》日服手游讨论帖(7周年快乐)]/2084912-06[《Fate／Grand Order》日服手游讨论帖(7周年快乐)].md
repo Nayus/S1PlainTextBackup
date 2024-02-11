@@ -384,3 +384,17 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 每年几个抽卡高峰期，新年，联动，主线和泳装/周年，今年到奏二前是没啥可抽的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 11334#       发表于 2024-2-12 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">用攒了1年不到的材料把狂的职介树点满了....AE的也点了大半部分....直接把我QP清空了3分之2
+
+本来还想用兽印强化下指令卡的....看到要消耗的QP我放弃了
+
+是真的没想到这辣鸡游戏玩到现在还能缺QP
+
+不过我上次刷宝物库也都是好几年前的事了
+

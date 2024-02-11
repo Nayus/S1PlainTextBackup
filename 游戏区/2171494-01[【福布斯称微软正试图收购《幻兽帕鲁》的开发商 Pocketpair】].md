@@ -899,3 +899,13 @@ cf作为ip当然算有底蕴的吧，虽然我也觉得cf和帕鲁都不怎么�
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  mikeymouse874  
+##### 59#       发表于 2024-2-11 08:10
+
+<blockquote>🐳❕ 发表于 2024-2-11 01:20
+看得出泥潭真的有很多人不玩游戏脑子只有屁股了按你的逻辑CF一定是最有底蕴的FPS，腾讯是最有底蕴 ...</blockquote>
+看来是真的急了。
+

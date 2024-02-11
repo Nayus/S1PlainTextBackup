@@ -18631,3 +18631,56 @@ MP3檔
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nebulanoby  
+##### 12377#       发表于 2024-2-11 21:55
+
+不是鼓跌就是蜜柑吧
+
+反正你狗说团魂，和罗拉鸡比都是被薄纱
+
+*****
+
+####  PDQ4  
+##### 12378#       发表于 2024-2-11 21:59
+
+不怎么关注狗三次元，立德的话盲猜青木or鼓子吧，也就这俩相对阳角一点了，其他仨不是都说是阴角吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dark_Zagi  
+##### 12379#       发表于 2024-2-11 22:00
+
+ 本帖最后由 Dark_Zagi 于 2024-2-11 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63942255&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-2-11 21:48</a>
+
+狗团二次元的立德是立希，那三次元的立德是谁，想了一圈，好像三次元都无人能堪大任啊 ...</blockquote>
+青木吧，大鼓认证过两次
+
+<img src="https://img.saraba1st.com/forum/202402/11/220157p9gqggtwc9ullvoz.jpg" referrerpolicy="no-referrer">
+
+<strong>90913eeff01f3a2930d58ef7df25bc315c607c34.jpg</strong> (196.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/220157bbk29lhs3lcs8szp.jpg" referrerpolicy="no-referrer">
+
+<strong>bb4363167f3e67098d2c1ec67dc79f3df8dc5525.jpg</strong> (190.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 22:01 上传
+
+<img src="https://tiebapic.baidu.com/forum/pic/item/bb4363167f3e67098d2c1ec67dc79f3df8dc5525.jpg?tbpicau=2024-02-13-05_5bec9cd73f598e3d9288dcd0246366cc" id="aimg_y2TW6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://tiebapic.baidu.com/forum/pic/item/90913eeff01f3a2930d58ef7df25bc315c607c34.jpg?tbpicau=2024-02-13-05_706ba82e979eaf6c6ed0278e375e4625" id="aimg_M2Od0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  NODY  
+##### 12380#       发表于 2024-2-11 22:01
+
+自从看到青木凛北京访谈凛说爱音抱着领导者的的位置带领大家前进后，我已经做好第二季或者手游立希连队长位置都垫出去的准备了，毕竟监督只说了有适性没说她是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

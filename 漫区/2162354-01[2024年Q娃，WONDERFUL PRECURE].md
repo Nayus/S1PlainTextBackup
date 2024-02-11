@@ -3949,3 +3949,13 @@ ps:这屏蔽词是……**？
 
 从人类到Q娃当然也是一种进化（确信）
 
+
+*****
+
+####  花开安菲路  
+##### 865#       发表于 2024-2-11 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63941383&amp;ptid=2162354" target="_blank">davchen 发表于 2024-2-11 19:55</a>
+看书包 小学的时候捡的 现在是初中 狗的寿命还有几年</blockquote>
+都修炼成人形了，寿命自动加100年啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

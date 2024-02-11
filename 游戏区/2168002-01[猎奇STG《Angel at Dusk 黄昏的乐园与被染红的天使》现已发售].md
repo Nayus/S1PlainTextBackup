@@ -1306,3 +1306,11 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 编年史不是只能用自定义机体吗</blockquote>
 街机模式点进去之后也可以选择打编年史，适合贪婪这种需要长时间发展的机体，boss挑战适合刷蓝血球
 
+
+*****
+
+####  AdoringBeast  
+##### 101#       发表于 2024-2-11 22:01
+
+没找到街机机体打编年史的入口，街机模式慢慢磨了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

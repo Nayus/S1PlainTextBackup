@@ -2053,3 +2053,33 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 
 — from Google Pixel 4a (5G), Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  yly88528  
+##### 197#       发表于 2024-2-11 12:30
+
+这些东西都细枝末节的东西，真要正本清源就要让他们都学中文，就用  龙这个字，其他都是扯淡。
+
+*****
+
+####  酷乐  
+##### 198#       发表于 2024-2-11 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938882&amp;ptid=2171337" target="_blank">dclara1 发表于 2024-2-11 12:22</a>
+
+把信息量传达到位才是真的让人看而不是自嗨好吧
+
+— from Google Pixel 4a (5G), Android 14 of S1 Next  ...</blockquote>
+这是YouTube上关于Loong播放最高的视频
+
+<img src="https://img.saraba1st.com/forum/202402/11/123455ya5rmoz1hgrnvjg3.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-02-11_12-32-48.jpg</strong> (71.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 12:34 上传
+
+幸亏现在不显示踩了
+

@@ -68,3 +68,50 @@
 
 照片看着真壮观
 
+
+*****
+
+####  commcody  
+##### 124#         楼主| 发表于 2024-2-11 12:28
+
+SpaceX的B10和S28运输官照
+
+<img src="https://img.saraba1st.com/forum/202402/11/122813ncvk8zpphlbchdnc.jpg" referrerpolicy="no-referrer">
+
+<strong>GGAD6hjbQAA7e6P.jpg</strong> (419.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 12:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/122814vpxotmjlric1zjci.jpg" referrerpolicy="no-referrer">
+
+<strong>GGAD6tcbsAA8Jsa.jpg</strong> (331.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 12:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/122814k7p9y1hh6nhy779j.jpg" referrerpolicy="no-referrer">
+
+<strong>GGAD7sbbAAAgaxj.jpg</strong> (209.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 12:28 上传
+
+*****
+
+####  commcody  
+##### 125#         楼主| 发表于 2024-2-11 12:31
+
+RGV Aerial Photography航拍的发射台。可以清晰的看到助推器保持环和用于启动外圈猛禽发动机的快速脱开管路。
+
+<img src="https://img.saraba1st.com/forum/202402/11/122907izjy2uj9bb7ivb72.jpg" referrerpolicy="no-referrer">
+
+<strong>GF_5im-WgAE73G2.jpg</strong> (530.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 12:29 上传
+

@@ -3836,3 +3836,17 @@ Screenshot_2024-02-04-22-11-12-24_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 什么地狱笑话 
 
+
+*****
+
+####  leleq  
+##### 854#       发表于 2024-2-11 16:35
+
+ 本帖最后由 leleq 于 2024-2-11 16:37 编辑 
+
+不过从这两集汪Q来看，我猜应该挺受小友欢迎的，题材好小麦可爱)(彩羽也很适合带入（虽然有小友们带入小麦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+ps：狗变人还是太糟糕了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+ps:这屏蔽词是……**？
+

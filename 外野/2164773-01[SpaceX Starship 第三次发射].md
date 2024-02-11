@@ -115,3 +115,29 @@ RGV Aerial Photography航拍的发射台。可以清晰的看到助推器保持�
 
 2024-2-11 12:29 上传
 
+
+*****
+
+####  commcody  
+##### 126#         楼主| 发表于 2024-2-11 16:40
+
+ 本帖最后由 commcody 于 2024-2-11 16:42 编辑 
+
+2月11日，S28与B10第一次合体
+
+<img src="https://img.saraba1st.com/forum/202402/11/164014ja1rh67i51b25r76.jpg" referrerpolicy="no-referrer">
+
+<strong>GGCnLkHWUAAcsoW.jpg</strong> (421.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 16:40 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/164014l6ujtbikuksk6zuj.jpg" referrerpolicy="no-referrer">
+
+<strong>GGCjzTbWgAAz3mn.jpg</strong> (186.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 16:40 上传
+

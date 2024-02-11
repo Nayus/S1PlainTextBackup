@@ -34,3 +34,14 @@
 
 仔细看了下林克也修正过造型了，右臂不是破烂的英杰服了而是游戏里的完整版～
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15651#       发表于 2024-2-11 16:36
+
+过年啦，买买买<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+这种骗钱请加大力度！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

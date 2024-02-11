@@ -1457,3 +1457,31 @@ Another Crab's Treasure</blockquote>
 
 这贴怎么那么混沌
 
+
+*****
+
+####  rzsxd  
+##### 116#       发表于 2024-2-11 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934153&amp;ptid=2171494" target="_blank">RGm 发表于 2024-2-10 15:47</a>
+
+建议任天堂截胡。</blockquote>
+左手买帕鲁 右手让GF授权，直接模型全部替换，NS2首发护航大作 真正得宝可梦方舟，完美
+
+*****
+
+####  rzsxd  
+##### 117#       发表于 2024-2-11 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934260&amp;ptid=2171494" target="_blank">雨中曲 发表于 2024-2-10 16:12</a>
+
+现在回看当年25亿美金收购Mojang工作室，微软真是赚麻了。《我的世界》这IP影响力远远超出游戏界人士的想象 ...</blockquote>
+是不是现在已经回本了那二十五亿了
+
+*****
+
+####  helix  
+##### 118#       发表于 2024-2-11 16:04
+
+寄居蟹作者吐槽的不是创意撞了余料建造吗，怎么成究极手抄袭了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

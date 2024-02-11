@@ -99,3 +99,13 @@ cs真正的超人出现了，纯粹的枪法纯粹的准<img src="https://static
 
 最强和最年轻同时出现在一个人身上，前途无量
 
+
+*****
+
+####  绯影汐岚  
+##### 3971#       发表于 2024-2-12 07:33
+
+太哈人了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -165,3 +165,14 @@ Team NINJA新作《浪人崛起》公开开发幕后花絮影片第一集“起�
 不会祖传的20种怪填满整个开放世界地图吧，感觉忍组敢这么做。</blockquote>
 它这背景设定也设计不了太多种吧
 
+
+*****
+
+####  printer22  
+##### 619#       发表于 2024-2-11 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63936811&amp;ptid=2092342" target="_blank">ddwhzh 发表于 2024-2-11 00:11</a>
+
+不会祖传的20种怪填满整个开放世界地图吧，感觉忍组敢这么做。</blockquote>
+这次没有妖怪了全是人类，只会比20种更少
+

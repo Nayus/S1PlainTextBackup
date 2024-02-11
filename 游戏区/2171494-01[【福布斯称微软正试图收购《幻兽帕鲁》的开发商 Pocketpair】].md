@@ -1012,3 +1012,18 @@ cf作为ip当然算有底蕴的吧，虽然我也觉得cf和帕鲁都不怎么�
 
 有点弱智到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mikeymouse874  
+##### 71#       发表于 2024-2-11 10:20
+
+你们随便笑，反正玩家在那里放着呢
+
+*****
+
+####  贝恩德塔  
+##### 72#       发表于 2024-2-11 10:23
+
+这是要学nga要来轰炸机轰炸了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3733,3 +3733,13 @@ Screenshot_2024-02-04-22-11-12-24_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 是的哇
 
+
+*****
+
+####  最强惠酱  
+##### 845#       发表于 2024-2-11 10:24
+
+小麦被捡的时候有项圈<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

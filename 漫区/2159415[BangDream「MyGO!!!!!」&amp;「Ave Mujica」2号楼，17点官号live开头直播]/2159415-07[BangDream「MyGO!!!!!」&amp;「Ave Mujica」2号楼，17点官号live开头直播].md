@@ -18746,3 +18746,18 @@ MP3檔
 
 答案是最为先进的一门三队长，立希是外交队长，爱音是气氛队长，爽世是内务队长，猫猫是猫猫。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 12388#       发表于 2024-2-11 22:57
+
+AG都来了，声优团和真人团亮不两码事么，就算退一百步真一起论，年龄最大、出道时间最早、最大牌……毫无争疑好吧
+
+*****
+
+####  基神的强袭自由  
+##### 12389#       发表于 2024-2-11 22:58
+
+好消息（？）是睦的谷都挺贵的（迷你专吧唧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

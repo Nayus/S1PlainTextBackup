@@ -508,3 +508,86 @@ K组这每场都和猫差了1000多也太。。。
 
 这会场相差是不是有点大了，鲤鱼个人live场地容纳总人数都比k组的多<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 19481#       发表于 2024-2-11 20:04
+
+从猫组到5组到k组，第1章大概600人递减，第2章大概300人递减，差不多，这个安排是在我预期内的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 19482#       发表于 2024-2-11 20:33
+
+结束后有见送
+
+<img src="https://img.saraba1st.com/forum/202402/11/203339afra98d8ad7pannv.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240211203023.jpg</strong> (94.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 20:33 上传
+
+*****
+
+####  优妮可  
+##### 19483#       发表于 2024-2-11 20:36
+
+<blockquote>starring 发表于 2024-2-11 19:50
+虹和星不是同一组人做吧</blockquote>
+分组的吗？那幻夜是哪一组
+
+*****
+
+####  cat1230  
+##### 19484#       发表于 2024-2-11 20:45
+
+k组不是小组投票第三吗？为啥作为最少
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ads147147  
+##### 19485#       发表于 2024-2-11 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63941342&amp;ptid=2078110" target="_blank">starring 发表于 2024-2-11 19:50</a>
+虹和星不是同一组人做吧</blockquote>
+虹星幻日都是二组
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  280041437  
+##### 19486#       发表于 2024-2-11 22:18
+
+虽然k组歌是有点优雅不容易带动观众，但怎么也得分个2000人的场吧，这跟其他俩组比相差有点明显啊
+
+*****
+
+####  csolfans  
+##### 19487#       发表于 2024-2-11 22:29
+
+场子一般也是提前不少时间预约的，目前这情况只能说企划严重低估K组
+
+*****
+
+####  cybernetics31  
+##### 19488#       发表于 2024-2-11 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甲子园投票第三呢好歹
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">国内专场真的没一点水花啊，亚巡gkd啊
+
+*****
+
+####  lj205  
+##### 19489#       发表于 2024-2-11 22:59
+
+不如k组单独在上海开一场吧
+

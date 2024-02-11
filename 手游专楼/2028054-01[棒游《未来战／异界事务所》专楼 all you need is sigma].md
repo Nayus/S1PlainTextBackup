@@ -28,3 +28,18 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rgauss  
+##### 971#         楼主| 发表于 2024-2-11 22:52
+
+ 本帖最后由 rgauss 于 2024-2-11 23:00 编辑 
+
+天鹅提到了并非所有都受困于那位 
+那位就是塔米尔呗 但她跟一个制限于该规则下的人合作就能突破规则么
+
+非受困就是有另外的生命树吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

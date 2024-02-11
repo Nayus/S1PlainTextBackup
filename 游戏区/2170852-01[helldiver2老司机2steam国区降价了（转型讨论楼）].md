@@ -1866,3 +1866,21 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 又好了，妈的正在结算呢</blockquote>
 没好吧……直接卡登录了，淦
 
+
+*****
+
+####  zdn  
+##### 214#       发表于 2024-2-11 23:36
+
+有1代，没玩明白，能肝什么？
+
+*****
+
+####  mdk11223344  
+##### 215#       发表于 2024-2-11 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63943253&amp;ptid=2170852" target="_blank">zdn 发表于 2024-2-11 23:36</a>
+
+有1代，没玩明白，能肝什么？</blockquote>
+反正1代的话主要是解锁武器，如果你不在意外观披风之类的东西的话
+

@@ -2102,3 +2102,14 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 
 2024-2-11 13:05 上传
 
+
+*****
+
+####  skytales1  
+##### 200#       发表于 2024-2-11 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922193&amp;ptid=2171337" target="_blank">nuqzyc 发表于 2024-2-9 13:28</a>
+
+黑神话的英文版翻译会是loong吗</blockquote>
+去年试玩版就改成loong了
+

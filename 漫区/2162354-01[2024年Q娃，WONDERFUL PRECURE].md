@@ -3888,3 +3888,24 @@ ps:这屏蔽词是……**？
 
 今年的目标就是成为噶噜噶噜<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 859#       发表于 2024-2-11 19:00
+
+我劝你们不要有啥非分之想，这才2集玩具还没出呢自然表现的好一点等5-6集以后再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过目前看来小麦动来动去应该还是能保证的毕竟主力商品加卖点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+然后是工期好像好一点天Q第一个青山回是第几集来着的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 860#       发表于 2024-2-11 19:01
+
+没有打戏看着还是有点难受，希望后面打反派干部的时候能有点打戏。另外男同学啥描写啥互动都没有呢，彩羽这心理活动都这么多，小心思有点明显了
+
+话说今年变身bank时间这么短还没有打戏，后面不会要直接放五个完整版撑时长吧
+

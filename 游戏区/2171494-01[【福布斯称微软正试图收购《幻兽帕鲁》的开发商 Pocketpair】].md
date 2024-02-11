@@ -1417,3 +1417,20 @@ Another Crab's Treasure</blockquote>
 
 你让我举证也行啊，雾锁里面所有有关建筑的玩法，英灵神殿里都支持，如果哪个不支持，你可以反驳我
 
+
+*****
+
+####  ParukiaMKII  
+##### 112#       发表于 2024-2-11 13:38
+
+微软的品味一如既往
+
+*****
+
+####  blackll7  
+##### 113#       发表于 2024-2-11 13:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">是是是你说的都对，一切效果都可以敲机械码得到。我累了，您爱去哪去哪，爱说啥说啥。
+
+坛友们，血的教训啊,请务必拉黑鳄鱼头。
+

@@ -64,3 +64,13 @@
 
 —— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  麻花疼  
+##### 46152#       发表于 2024-2-11 21:46
+
+刚打推完2.7，个人觉得比2.6强太多了。
+
+不抽卡了，对我来说有艾蕾新灵衣就够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

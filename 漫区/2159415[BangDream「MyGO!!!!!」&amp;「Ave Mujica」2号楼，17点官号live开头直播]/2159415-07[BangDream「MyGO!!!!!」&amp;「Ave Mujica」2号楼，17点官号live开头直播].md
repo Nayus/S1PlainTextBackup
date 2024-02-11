@@ -18614,3 +18614,20 @@ MP3檔
 引流✓的头衔，用着 椎名立希 做群名片，红包封面图是长崎爽世打得若叶睦头破血流…
 哇偶（后仰 真难评<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 12375#       发表于 2024-2-11 21:48
+
+突然想起来，狗团二次元立德是立希，那三次元的立德是谁
+
+*****
+
+####  acgreen  
+##### 12376#       发表于 2024-2-11 21:54
+
+睦到底招谁惹谁了，前有睦背刺爽世，后有“良かったね”涉嫌阴阳怪气，总有人能让睦背上一些令人意想不到的锅<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

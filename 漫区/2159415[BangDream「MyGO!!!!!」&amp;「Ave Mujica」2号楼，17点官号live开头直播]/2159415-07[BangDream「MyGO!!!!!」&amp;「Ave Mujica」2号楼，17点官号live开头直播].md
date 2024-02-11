@@ -18700,3 +18700,27 @@ MP3檔
 
 没人适合队长，所以从前大家组团哪怕人气低也至少要找一个姨
 
+
+*****
+
+####  6030sylar  
+##### 12383#       发表于 2024-2-11 22:26
+
+立希有自己追求的，搞不好最先闹离队的是立希
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  HANDAIYV  
+##### 12384#       发表于 2024-2-11 22:30
+
+队长又不是啥重要的身份，ag绯玛丽hhwhgm蝶团土笔，要是这都不愿意给我是真没啥好说的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12385#       发表于 2024-2-11 22:32
+
+就绯玛丽和土笔这俩非核心队长都是负责缓和气氛的情况来看最后真让爱音当队长好像也没毛病，就是立希配合杂志那句多少有点溜粉了，哦立希没几个粉可以溜，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

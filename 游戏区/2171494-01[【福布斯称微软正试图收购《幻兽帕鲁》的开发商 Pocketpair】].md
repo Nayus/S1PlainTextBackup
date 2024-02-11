@@ -1569,3 +1569,14 @@ That’s why in all this chaos I believe something else is no doubt happening be
 
 福布斯拉的三无屎泥潭还有这么多人抢着吃的，整篇文章就是作者的臆想<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 128#       发表于 2024-2-11 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63942490&amp;ptid=2171494" target="_blank">horizonwalker 发表于 2024-2-11 22:13</a>
+
+That’s why in all this chaos I believe something else is no doubt happening behind the scenes. I ab ...</blockquote>
+整栋楼讨论的重点本来也不在收购这件事本身上呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

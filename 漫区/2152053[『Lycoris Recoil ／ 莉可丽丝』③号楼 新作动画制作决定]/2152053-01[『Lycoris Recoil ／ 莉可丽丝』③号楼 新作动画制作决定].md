@@ -473,3 +473,43 @@
 与猫猫大战300回合于是申请明日再搬图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 今天起码把猫猫一个月多少逗猫棒都玩完了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 1675#       发表于 2024-2-11 11:43
+
+<img src="https://img.saraba1st.com/forum/202402/11/114259fvjjaazvvztgsva3.jpg" referrerpolicy="no-referrer">
+
+<strong>GGBGXxFbAAAhVPt.jpg</strong> (119.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 11:42 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/114300sxmvu1f13mtqf111.jpg" referrerpolicy="no-referrer">
+
+<strong>GGBGZf5bwAEIDmu.jpg</strong> (97.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 11:43 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/114259t40r77zzgsgw09l7.jpg" referrerpolicy="no-referrer">
+
+<strong>GGBGhTUb0AA_foD.jpg</strong> (141.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 11:42 上传
+
+<img src="https://img.saraba1st.com/forum/202402/11/114259fkrr005pryp3pa5n.jpg" referrerpolicy="no-referrer">
+
+<strong>GGBGhTobsAAcu7x.jpg</strong> (116.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 11:42 上传
+
+[https://twitter.com/aniplex_plus ... 60948942913/photo/4](https://twitter.com/aniplex_plus/status/1756502060948942913/photo/4)
+

@@ -1892,3 +1892,23 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 
 不知道ps5和pc的玩家比例是多少？ps5的体验会比pc好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 217#       发表于 2024-2-12 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63943482&amp;ptid=2170852" target="_blank">runningch 发表于 2024-2-12 00:08</a>
+
+不知道ps5和pc的玩家比例是多少？ps5的体验会比pc好吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">起码画面体验是完全不行的
+
+*****
+
+####  cloudcc  
+##### 218#       发表于 2024-2-12 00:23
+
+<blockquote>zdn 发表于 2024-2-11 23:36
+有1代，没玩明白，能肝什么？</blockquote>
+游戏资源分支援，主武，副武，榴弹，盔甲，头盔，披风，胜利动作，这些都是肝的部分
+

@@ -2198,3 +2198,14 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 
 英文名称做区分，并不是因为单词的发音问题，而是因为英语的dragon所特指的形象跟中国龙相差极大。 所以才要另外创造一个英文单词来特指中国龙。 在long本身就是英文常用单词的情况下，没必要因为拼音的原因非要写成一样的，毕竟这个词创造出来主要还是给说英语的人用的。当然有些人要是觉得不用拼音long就是给洋人下跪，那以后鱼也可以不用fish，鸟也不用bird，这些字的英文翻译都用拼音好了，老外看不懂是他们的事情，还得再学习，反正咱中国人容易看懂了。
 
+
+*****
+
+####  snailium  
+##### 209#       发表于 2024-2-12 00:20
+
+咱先把“希腊众神”改成“格力克的一众高德”
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2451, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

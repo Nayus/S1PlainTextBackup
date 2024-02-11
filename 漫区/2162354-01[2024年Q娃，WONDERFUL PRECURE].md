@@ -3672,3 +3672,19 @@ Screenshot_2024-02-04-22-11-12-24_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 兔子和悟目前看来有点像成田系惯用的“王子”役（coco不鲁）战力基本废物一个撑死了能召唤个外挂
 
+
+*****
+
+####  Mr.Giraffe  
+##### 840#       发表于 2024-2-11 07:58
+
+这战斗机制是什么啊，两个人一起话疗抱抱净化能量会更大吗，现在一人一翅膀，后面是不是四个人一人一条腿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/11/075730ab1u4zu41jn1bxp3.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-02-11_07-52-04.png</strong> (70.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 07:57 上传
+

@@ -1580,3 +1580,11 @@ That’s why in all this chaos I believe something else is no doubt happening be
 That’s why in all this chaos I believe something else is no doubt happening behind the scenes. I ab ...</blockquote>
 整栋楼讨论的重点本来也不在收购这件事本身上呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lanius42  
+##### 129#       发表于 2024-2-11 23:21
+
+微软要是能再一次用资本大棒把这个sb工作室调教到只会定期产出good enough for gamepass的垃圾让逆天单机○批闭嘴，那我举双手支持
+

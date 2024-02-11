@@ -43,3 +43,24 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 <img src="https://p.sda1.dev/15/01cb3326eec1b51799c6bf745cde43e5/20240212_011713.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/c4fd888eb7c44e88cc108478d1eff61b/20240212_011717.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 3741#       发表于 2024-2-12 04:29
+
+<blockquote>不灭的旋律 发表于 2024-2-9 21:52
+我都差点把阿美面具的设定忘了，不看那本设定一定很莫名其妙吧
+
+看预告下集雪露反水帮彼方逃亡的可能 ...</blockquote>
+我看过但完全忘了，说的啥来着（
+
+*****
+
+####  RE㐅ia  
+##### 3742#       发表于 2024-2-12 04:29
+
+ 本帖最后由 RE㐅ia 于 2024-2-12 04:31 编辑 
+
+原画这么好看以后干脆别上色了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

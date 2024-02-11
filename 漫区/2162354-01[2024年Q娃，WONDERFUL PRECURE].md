@@ -3862,3 +3862,13 @@ ps:这屏蔽词是……**？
 
 今年的bank稍短不过加入了变人bank，这个才是有点太拖时间又不太好看<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 856#       发表于 2024-2-11 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940224&amp;ptid=2162354" target="_blank">leleq 发表于 2024-2-11 16:35</a>
+不过从这两集汪Q来看，我猜应该挺受小友欢迎的，题材好小麦可爱)(彩羽也很适合带入（虽然有小友们带入小麦 ...</blockquote>
+第一集的刷肚皮毛，换成人就挺牙白的了。不知道会不会有不小心尿床的环节<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

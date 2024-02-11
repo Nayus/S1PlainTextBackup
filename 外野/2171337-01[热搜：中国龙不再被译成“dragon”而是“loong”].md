@@ -2156,3 +2156,27 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
  我也理解loong比dragon好，但是我认为应该一步到位，因为分布走很容易就停在loong这步了。没有必要为了洋 ...</blockquote>
 一步到位本身就很难，撞到常用词上一不小心就撞死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以这个妥协我个人还是接受的，总不能说你看你们没法一步到位所以还是dragon得了
 
+
+*****
+
+####  dclara1  
+##### 205#       发表于 2024-2-11 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938959&amp;ptid=2171337" target="_blank">酷乐 发表于 2024-2-11 12:34</a>
+
+你看看这播放量和点赞的比例：</blockquote>
+这个loong节奏的确是在自嗨没问题
+
+但我那个回复不是聊的这个，只是想探讨一下中文文化概念在外语译文中应该怎么表达才能准确传达信息，不单单是怎么翻译的问题
+
+*****
+
+####  隔壁老黄  
+##### 206#       发表于 2024-2-11 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938882&amp;ptid=2171337" target="_blank">dclara1 发表于 2024-2-11 12:22</a>
+把信息量传达到位才是真的让人看而不是自嗨好吧
+
+— from Google Pixel 4a (5G), Android 14 of S1 Next  ...</blockquote>
+传达到位就是完全不翻译？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

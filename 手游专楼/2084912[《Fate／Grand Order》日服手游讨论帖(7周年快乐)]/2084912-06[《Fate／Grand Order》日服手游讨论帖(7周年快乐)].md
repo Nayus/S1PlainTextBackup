@@ -292,3 +292,18 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 能穿仙女座圣衣吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11323#       发表于 2024-2-11 17:39
+
+我还是记得蘑菇当年在FHA把希腊英雄中公私德都较佳的珀尔修斯诬捏成是成功的渣二就觉得恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 11324#       发表于 2024-2-11 17:39
+
+声优应该是铃代纱弓吧？
+

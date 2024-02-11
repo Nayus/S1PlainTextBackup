@@ -1069,3 +1069,40 @@ cf作为ip当然算有底蕴的吧，虽然我也觉得cf和帕鲁都不怎么�
 
 怎么还没举报关掉啊
 
+
+*****
+
+####  blackll7  
+##### 78#       发表于 2024-2-11 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看你们这样搞下去迟早帕鲁要和不能提的游戏一个待遇。
+
+—— 来自 OnePlus CPH2487, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  病態極端  
+##### 79#       发表于 2024-2-11 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934587&amp;ptid=2171494" target="_blank">时空之旅 发表于 2024-2-10 17:15</a>
+
+卖再多又如何，一个缝合怪能有啥底蕴，连怪物不都是AI口袋来的嘛，底蕴肯定得有自己独创的东西，要不然平 ...</blockquote>
+<img src="https://p.sda1.dev/15/f2d9bac07404618e092416369469c89e/kkdk.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  布里兰特  
+##### 80#       发表于 2024-2-11 10:39
+
+我周围已经没人玩帕鲁了，就是一波流
+
+
+*****
+
+####  贝恩德塔  
+##### 81#       发表于 2024-2-11 10:44
+
+ 本帖最后由 贝恩德塔 于 2024-2-11 10:45 编辑 
+
+问题来了，是怎么通过查身份知道我是宝批加上国v的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫非宝批是指宝马？艾琳也不是国v啊
+

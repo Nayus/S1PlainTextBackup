@@ -258,3 +258,15 @@ IM对员工的SNS管得很严吧，yabu的推全是工商，鱼可能因为这�
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ads147147  
+##### 19456#       发表于 2024-2-11 10:39
+
+天音假面骑士的客串都捞得到，不会拉拉的客串捞不到吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+还是挺期待天音能在拉这边露脸的。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

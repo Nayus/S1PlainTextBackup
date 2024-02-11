@@ -3909,3 +3909,21 @@ ps:这屏蔽词是……**？
 
 话说今年变身bank时间这么短还没有打戏，后面不会要直接放五个完整版撑时长吧
 
+
+*****
+
+####  davchen  
+##### 861#       发表于 2024-2-11 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63937985&amp;ptid=2162354" target="_blank">maoyou 发表于 2024-2-11 09:44</a>
+
+是的哇</blockquote>
+看书包 小学的时候捡的 现在是初中 狗的寿命还有几年
+
+*****
+
+####  不能摸的屁屁  
+##### 862#       发表于 2024-2-11 20:00
+
+华哥变身词怎么也是我的进化，难道还能从人变成狗吗？以后双人大招是牙通牙么？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -3790,3 +3790,14 @@ Screenshot_2024-02-04-22-11-12-24_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 看下集预告大概率也是男闺蜜撞到Q娃，比另一组还先进队是吧，看能不能坚持到另一组变身吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高规格ik  
+##### 850#       发表于 2024-2-11 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63937607&amp;ptid=2162354" target="_blank">Mr.Giraffe 发表于 2024-2-11 07:58</a>
+
+这战斗机制是什么啊，两个人一起话疗抱抱净化能量会更大吗，现在一人一翅膀，后面合体技是不是四人一人抱一 ...</blockquote>
+想当反派了，被两人一起抱抱什么的想想就<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

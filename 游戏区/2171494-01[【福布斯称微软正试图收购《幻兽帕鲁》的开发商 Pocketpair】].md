@@ -1434,3 +1434,18 @@ Another Crab's Treasure</blockquote>
 
 坛友们，血的教训啊,请务必拉黑鳄鱼头。
 
+
+*****
+
+####  windtrack_qh  
+##### 114#       发表于 2024-2-11 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63939349&amp;ptid=2171494" target="_blank">blackll7 发表于 2024-2-11 13:43</a>
+
+是是是你说的都对，一切效果都可以敲机械码得到。我累了，您爱去哪去哪，爱说啥说啥。
+
+坛友们，血 ...</blockquote>
+讨论游戏就会扯套话，让举具体例子拿不出来，别人提出问题无力反驳，最后除了喷人就是拉黑，然后到别的帖子里继续阴阳怪气别人
+
+出息
+

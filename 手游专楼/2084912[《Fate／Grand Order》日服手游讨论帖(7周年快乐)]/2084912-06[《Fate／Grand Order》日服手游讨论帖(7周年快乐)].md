@@ -406,3 +406,17 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">抽卡莲池最后一发彩圈！！！孔明…………
 
+
+*****
+
+####  alucardcz  
+##### 11336#       发表于 2024-2-12 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63943761&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-2-12 00:54</a>
+
+用攒了1年不到的材料把狂的职介树点满了....AE的也点了大半部分....直接把我QP清空了3分之2
+
+本来还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新 欧 年 羡 快 慕 乐
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">萌新甚至钱又上限了 根本没地方用
+

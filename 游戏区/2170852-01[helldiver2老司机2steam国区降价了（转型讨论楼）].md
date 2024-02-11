@@ -1964,3 +1964,13 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风萧飒  
+##### 224#       发表于 2024-2-12 01:17
+
+老兵债券那个燃烧喷子不知道打起来怎么样，不过那玩意也太肝了
+
+—— 来自 HONOR TNA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

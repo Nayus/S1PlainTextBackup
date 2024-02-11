@@ -513,3 +513,19 @@
 
 [https://twitter.com/aniplex_plus ... 60948942913/photo/4](https://twitter.com/aniplex_plus/status/1756502060948942913/photo/4)
 
+
+*****
+
+####  半年  
+##### 1676#       发表于 2024-2-11 18:43
+
+<img src="https://img.saraba1st.com/forum/202402/11/184328pt26imumzfbti5fx.jpg" referrerpolicy="no-referrer">
+
+<strong>GGBHs64bsAA2fcs.jpg</strong> (104.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 18:43 上传
+
+[https://twitter.com/gsc_kahotan/ ... 93465059806/photo/1](https://twitter.com/gsc_kahotan/status/1756482693465059806/photo/1)
+

@@ -1246,3 +1246,15 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 打了一下午爬塔，问下街机模式的后续机体解锁是得靠场数堆出来吗
 
+
+*****
+
+####  quanlix  
+##### 95#       发表于 2024-2-11 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940773&amp;ptid=2168002" target="_blank">AdoringBeast 发表于 2024-2-11 18:20</a>
+打了一下午爬塔，问下街机模式的后续机体解锁是得靠场数堆出来吗</blockquote>
+三系机体横向解锁，每一系机体在街机模式下收集足够的绿血球，蓝血球，脂质和Lv8神经节就能解锁后继机，街机模式下boss挑战和编年史获得对应资源同样计数
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

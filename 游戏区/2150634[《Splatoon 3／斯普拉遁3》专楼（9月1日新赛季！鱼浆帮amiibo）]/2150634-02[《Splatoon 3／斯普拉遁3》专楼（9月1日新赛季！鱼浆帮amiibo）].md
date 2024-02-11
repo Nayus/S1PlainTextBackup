@@ -13370,3 +13370,12 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  screeper  
+##### 2807#       发表于 2024-2-12 01:41
+
+还以为能康的，看来鲑坝注定与我无缘啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/5aeabf7156e4f14aaeff8822f4de5545/1000034653.jpg" referrerpolicy="no-referrer">
+

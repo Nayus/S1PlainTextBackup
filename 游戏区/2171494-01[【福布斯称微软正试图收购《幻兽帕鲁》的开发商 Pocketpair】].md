@@ -1293,3 +1293,19 @@ Another Crab's Treasure</blockquote>
 
 哦不对，他心里还得感谢任天堂呢。
 
+
+*****
+
+####  贝恩德塔  
+##### 101#       发表于 2024-2-11 11:27
+
+ 本帖最后由 贝恩德塔 于 2024-2-11 11:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938509&amp;ptid=2171494" target="_blank">mikeymouse874 发表于 2024-2-11 11:25</a>
+
+抄没抄任天堂知道，发售前的网友知道，至于螃蟹魂作者他哪敢真翻脸。
+
+哦不对，他心里还得感谢任天 ...</blockquote>
+搁这打滚呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">甚至你还得感谢坛友认为你是弱智呢
+
+太过于小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

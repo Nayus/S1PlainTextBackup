@@ -428,3 +428,20 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 还在敲碗等开EX1的飘过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 11338#       发表于 2024-2-12 05:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63943869&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-2-12 01:20</a>
+
+新 欧 年 羡 快 慕 乐
+
+萌新甚至钱又上限了 根本没地方用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新该换个打招呼的方式了....非洲人都已经好几个月没有抽卡了
+
+马上要出的仙女座也是一点兴趣也没有
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在石头又仓鼠到了4位数
+

@@ -18692,3 +18692,11 @@ MP3檔
 
 队长都垫出去那立希可是真的青出于蓝胜于蓝了，AG都没说绯玛丽不是队长，这么搞真不会炎上吗，我不厨都看不下去立希现在的待遇。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 12382#       发表于 2024-2-11 22:17
+
+没人适合队长，所以从前大家组团哪怕人气低也至少要找一个姨
+

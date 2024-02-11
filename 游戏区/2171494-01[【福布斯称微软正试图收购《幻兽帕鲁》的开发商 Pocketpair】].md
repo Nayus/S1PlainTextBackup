@@ -1391,3 +1391,29 @@ Another Crab's Treasure</blockquote>
 
 还是你根本解释不了只能生搬硬套呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 110#       发表于 2024-2-11 13:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+所以说嘛，王国之泪针对他的建造系统设计了整套匹配的谜题，地图与挑战，有着他独特的逻辑，并且与前作的魔改havok引擎相互之间保持住良好互动。无论从体量上还是质量上都和班卓熊于围攻差距巨大，但是不可否认的是班卓熊于围攻，gmod依然有着王国之泪没有的特独立特点。
+
+雾锁王国针对他的体素建造体系，从零重新构成了整个引擎，即便玩家任意拆毁地形依然有着每个方块之间的平滑连接与自造逻辑。游戏思路上针对玩家手里拥有的工具也同样建立了相对应的多解密玩法。你小子除了一句育碧一句都一样以外就开始让别人举证，我tm不会累的吗？谁指控谁举证的道理都不懂？
+
+—— 来自 OnePlus CPH2487, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  windtrack_qh  
+##### 111#       发表于 2024-2-11 13:32
+
+ 本帖最后由 windtrack_qh 于 2024-2-11 13:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63939266&amp;ptid=2171494" target="_blank">blackll7 发表于 2024-2-11 13:28</a>
+
+所以说嘛，王国之泪针对他的建造系统设计了整套匹配的谜题，地图与挑战，有着他独特的逻辑，并且与 ...</blockquote><blockquote>即便玩家任意拆毁地形依然有着每个方块之间的平滑连接与自造逻辑</blockquote>
+你能举个游戏里的具体例子来说明在地形破坏上他和英灵神殿哪里不同吗？
+
+你让我举证也行啊，雾锁里面所有有关建筑的玩法，英灵神殿里都支持，如果哪个不支持，你可以反驳我
+

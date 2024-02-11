@@ -1235,3 +1235,61 @@ Another Crab's Treasure</blockquote>螃蟹魂制作组抱怨过这是撞创意�
 
 不是，你这脑萎缩轰炸机的效果还不如nga啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 95#       发表于 2024-2-11 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938400&amp;ptid=2171494" target="_blank">mikeymouse874 发表于 2024-2-11 11:04</a>
+Another Crab's Treasure</blockquote>
+你哪怕多看几眼游戏区也知道，我这两天才在喷鳄鱼头的时候提到了班卓熊和围攻与王国之泪的例子。
+
+—— 来自 OnePlus CPH2487, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  河水  
+##### 96#       发表于 2024-2-11 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934252&amp;ptid=2171494" target="_blank">时空之旅 发表于 2024-2-10 16:10</a>
+反正我觉得这家公司要技术没技术要核心品牌没核心品牌，一个帕鲁说明不了啥，这公司本身没底蕴没啥价值 ...</blockquote>
+他有 idea，他知道游戏怎么好玩，其他大公司有技术有核心品牌，但是做出来的游戏好玩吗？
+
+*****
+
+####  贝恩德塔  
+##### 97#       发表于 2024-2-11 11:20
+
+ 本帖最后由 贝恩德塔 于 2024-2-11 11:22 编辑 
+
+期待这位了解围攻和班卓熊甚至gmod的概率大概不亚于让他说话能利索点多说点人话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  世界冠军，呸  
+##### 98#       发表于 2024-2-11 11:23
+
+卧槽，好奇怪的车任方式。只蟹是咋抄王泪的？还有这游戏里没啥“手”相关吧……还是说螃蟹顶个马克杯也算“手”？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗箭  
+##### 99#       发表于 2024-2-11 11:24
+
+<blockquote>何处分可 发表于 2024-2-11 09:58
+看来微软确实是没啥品味难道微软准备火一部就买一家吗</blockquote>
+没品味能做到世一市值吗？3.125万亿。
+
+*****
+
+####  mikeymouse874  
+##### 100#       发表于 2024-2-11 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938459&amp;ptid=2171494" target="_blank">贝恩德塔 发表于 2024-2-11 11:13</a>
+
+不是，你这脑萎缩轰炸机的效果还不如nga啊能不能像隔壁看齐，憋个半天就憋出一个甚至还没有发售的螃 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">抄没抄任天堂知道，发售前的网友知道，至于螃蟹魂作者他哪敢真翻脸。
+
+哦不对，他心里还得感谢任天堂呢。
+

@@ -2241,3 +2241,15 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 
 2024-2-12 01:52 上传
 
+
+*****
+
+####  dclara1  
+##### 212#       发表于 2024-2-12 04:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940611&amp;ptid=2171337" target="_blank">隔壁老黄 发表于 2024-2-11 17:45</a>
+传达到位就是完全不翻译？</blockquote>
+我说的是汉字原文+注音，long和loong什么的本质也是注音，这能叫翻译吗
+
+— from Google Pixel 4a (5G), Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

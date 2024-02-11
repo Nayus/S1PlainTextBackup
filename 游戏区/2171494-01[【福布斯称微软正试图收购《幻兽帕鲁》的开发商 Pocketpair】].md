@@ -1325,3 +1325,20 @@ Another Crab's Treasure</blockquote>
 
 不就第二个MC
 
+
+*****
+
+####  洛拉斯  
+##### 104#       发表于 2024-2-11 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934252&amp;ptid=2171494" target="_blank">时空之旅 发表于 2024-2-10 16:10</a>
+反正我觉得这家公司要技术没技术要核心品牌没核心品牌，一个帕鲁说明不了啥，这公司本身没底蕴没啥价值 ...</blockquote>
+如果帕鲁没技术，那请问宝可梦游戏技术是不是负数啊？
+
+*****
+
+####  Rainwedell  
+##### 105#       发表于 2024-2-11 12:55
+
+一眼若智小号钓鱼的有啥跟他讨论的必要吗？
+

@@ -1140,3 +1140,11 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 贪欲天使容错也太低了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  awertg  
+##### 87#       发表于 2024-2-11 11:07
+
+这画风好像做夜光蛾那家
+

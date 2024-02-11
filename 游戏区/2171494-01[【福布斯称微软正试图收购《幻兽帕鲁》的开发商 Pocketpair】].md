@@ -1168,3 +1168,70 @@ cf作为ip当然算有底蕴的吧，虽然我也觉得cf和帕鲁都不怎么�
 所以是什么小游戏</blockquote>
 Another Crab's Treasure
 
+
+*****
+
+####  闽明  
+##### 88#       发表于 2024-2-11 11:07
+
+伸缩手还以为说的横井军平的超级怪手
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  贝恩德塔  
+##### 89#       发表于 2024-2-11 11:07
+
+ 本帖最后由 贝恩德塔 于 2024-2-11 11:09 编辑 
+<blockquote>mikeymouse874 发表于 2024-2-11 11:04
+Another Crab's Treasure</blockquote>
+原来抄袭了个跳票到今年才正式发售还没发售的类魂恶搞小游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blackll7  
+##### 90#       发表于 2024-2-11 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938400&amp;ptid=2171494" target="_blank">mikeymouse874 发表于 2024-2-11 11:04</a>
+Another Crab's Treasure</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏不是和王国之泪撞车的吗？怎么变抄袭了............
+
+—— 来自 OnePlus CPH2487, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  modedd  
+##### 91#       发表于 2024-2-11 11:09
+
+ 本帖最后由 modedd 于 2024-2-11 11:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938400&amp;ptid=2171494" target="_blank">mikeymouse874 发表于 2024-02-11 11:04:21</a>
+Another Crab's Treasure</blockquote>螃蟹魂制作组抱怨过这是撞创意啊，他和王泪本来同期的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  敏感词好多  
+##### 92#       发表于 2024-2-11 11:12
+
+游戏区的弱智度最近上升了26%，你们有什么头猪吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  电磁炮233  
+##### 93#       发表于 2024-2-11 11:12
+
+有点小丑了，gmod都没玩过吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  贝恩德塔  
+##### 94#       发表于 2024-2-11 11:13
+
+不是，你这脑萎缩轰炸机的效果还不如nga啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

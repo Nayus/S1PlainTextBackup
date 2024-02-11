@@ -1225,3 +1225,16 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 </blockquote>
 街机模式用破灭灾厄这几个基本就是无脑过，FEX都随便打
 
+
+*****
+
+####  秘银mithril  
+##### 93#       发表于 2024-2-11 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940426&amp;ptid=2168002" target="_blank">liuqy 发表于 2024-2-11 17:11</a>
+
+街机模式用破灭灾厄这几个基本就是无脑过，FEX都随便打</blockquote>
+我街机模式解锁的几个机体都是近距离攻击，玩得我无语，通关都用的标准配置
+
+我刷刷看把最后这点尾巴给清掉
+

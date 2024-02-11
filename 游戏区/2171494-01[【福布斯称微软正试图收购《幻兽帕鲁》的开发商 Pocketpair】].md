@@ -1504,3 +1504,24 @@ Another Crab's Treasure</blockquote>
 
 怎么后面又跳出来一个傻逼，笑死
 
+
+*****
+
+####  穗乃果  
+##### 121#       发表于 2024-2-11 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934147&amp;ptid=2171494" target="_blank">间宮夏生 发表于 2024-2-10 15:46</a>
+
+不如腾讯入股，pocketpair目前需要的是技术和人才支援，现在一点不缺钱好不，腾讯入股，然后当个二道贩子支 ...</blockquote>
+我也希望是腾讯，主要不是微软没技术，而是微软做手游不行，当然了，如果高价请中国手游人才也不是不行，但是微软大概对手游不感兴趣，而且也不如腾讯重视中国市场
+
+*****
+
+####  chm007  
+##### 122#       发表于 2024-2-11 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940104&amp;ptid=2171494" target="_blank">Sherlock08 发表于 2024-02-11 16:16:07</a>
+感觉不如o神</blockquote>确实不如O神，O设计二次元烧鸡的水平好歹也是国内顶尖的<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

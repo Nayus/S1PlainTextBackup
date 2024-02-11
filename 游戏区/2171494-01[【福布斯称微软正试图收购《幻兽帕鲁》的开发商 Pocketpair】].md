@@ -1588,3 +1588,22 @@ That’s why in all this chaos I believe something else is no doubt happening be
 
 微软要是能再一次用资本大棒把这个sb工作室调教到只会定期产出good enough for gamepass的垃圾让逆天单机○批闭嘴，那我举双手支持
 
+
+*****
+
+####  11116等  
+##### 130#       发表于 2024-2-12 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938507&amp;ptid=2171494" target="_blank">黑暗箭 发表于 2024-2-11 11:24</a>
+没品味能做到世一市值吗？3.125万亿。</blockquote>
+可是软的市值也不是靠游戏升上去的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">顺便看家产品Windows也是被印度人搞得越来越low吧
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  11116等  
+##### 131#       发表于 2024-2-12 00:26
+
+风怒
+

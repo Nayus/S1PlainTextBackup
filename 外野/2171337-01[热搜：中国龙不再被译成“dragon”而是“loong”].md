@@ -2113,3 +2113,29 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 黑神话的英文版翻译会是loong吗</blockquote>
 去年试玩版就改成loong了
 
+
+*****
+
+####  隔壁老黄  
+##### 201#       发表于 2024-2-11 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933155&amp;ptid=2171337" target="_blank">星之卡比 发表于 2024-2-10 12:38</a>
+我看了几天，还是觉得应该用long而不是loong。
+
+假设一下，最后loong取代了dragon。很多中国人不会立刻明白 ...</blockquote>
+苹果人家商标就是一个苹果，人家就是要别人联想到
+
+龙对于中国人特别，对于外国人不过是普通的幻想生物，跟多拉贡菲尼克斯基本没分别，人家爱国小将估计觉得他们多拉贡比龙拉风多了，还给大写<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arikawa  
+##### 202#       发表于 2024-2-11 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919421&amp;ptid=2171337" target="_blank">MeursaulT 发表于 2024-2-9 00:14</a>
+
+应该就跟陕西英文叫shaan xi而不是山西的shan xi一样，用来避免和另一个词long重叠吧，我猜的
+
+查了一下 ...</blockquote>
+并不是，汉语拼音方案，可以用双写元音表示上声
+

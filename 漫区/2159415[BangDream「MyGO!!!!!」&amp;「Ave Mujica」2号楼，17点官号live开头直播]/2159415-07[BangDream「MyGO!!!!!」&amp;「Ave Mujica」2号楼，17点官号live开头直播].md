@@ -18799,3 +18799,28 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 感觉这几个红包二创拜年二创都好抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">有一种被创在脸上的感觉
 
+
+*****
+
+####  ddy2811  
+##### 12394#       发表于 2024-2-11 23:28
+
+不同的人用同一招作用是不相同的，内功比架势重要得多，知其所以然比知其然更重要<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+当然，一个“大家都很珍惜自己的时间”的团，也真的不是一般人能带得来的，只能期待有些什么机缘了
+
+*****
+
+####  NODY  
+##### 12395#       发表于 2024-2-11 23:29
+
+羊姐要是能和真大牌前辈学学营业就好了
+
+<img src="https://img.saraba1st.com/forum/202402/11/232949vcsrcyc5fyxctxwc.jpg" referrerpolicy="no-referrer">
+
+<strong>5C7FCEBA9A24977BA0D2DEC51495DD05_edit_1242788784807734.jpg</strong> (179.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-11 23:29 上传
+

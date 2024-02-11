@@ -1854,3 +1854,15 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 
 又好了，妈的正在结算呢<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绚烂航迹云  
+##### 213#       发表于 2024-2-11 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63942845&amp;ptid=2170852" target="_blank">-v- 发表于 2024-2-11 22:45</a>
+淦哦，服务器又炸了？
+
+又好了，妈的正在结算呢</blockquote>
+没好吧……直接卡登录了，淦
+

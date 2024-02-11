@@ -74,3 +74,11 @@
 
 不抽卡了，对我来说有艾蕾新灵衣就够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  饭太稀  
+##### 46153#       发表于 2024-2-12 04:23
+
+为了烟雾镜第2宝，共扔了9单，加上最近的免费资源，源高达、玉藻前、1001、刑部姬4连歪，烟雾镜0<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

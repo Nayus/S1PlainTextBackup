@@ -3743,3 +3743,28 @@ Screenshot_2024-02-04-22-11-12-24_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  水至清则无豚  
+##### 846#       发表于 2024-2-11 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938205&amp;ptid=2162354" target="_blank">最强惠酱 发表于 2024-2-11 10:24</a>
+小麦被捡的时候有项圈
+
+—— 來自 samsung SM-S9110, Android 14上的 S1Next-鵝版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/1d69c360c347a1058ac0591bd07d2c5c/CMP_20240211104759222.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 847#       发表于 2024-2-11 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938205&amp;ptid=2162354" target="_blank">最强惠酱 发表于 2024-2-11 10:24</a>
+
+小麦被捡的时候有项圈
+
+—— 來自 samsung SM-S9110, Android 14上的 S1Next-鵝版 v2.5.4 ...</blockquote>
+有牛！
+

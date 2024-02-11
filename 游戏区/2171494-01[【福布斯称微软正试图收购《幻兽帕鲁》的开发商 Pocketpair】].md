@@ -1106,3 +1106,11 @@ cf作为ip当然算有底蕴的吧，虽然我也觉得cf和帕鲁都不怎么�
 
 问题来了，是怎么通过查身份知道我是宝批加上国v的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫非宝批是指宝马？艾琳也不是国v啊
 
+
+*****
+
+####  tureleona  
+##### 82#       发表于 2024-2-11 10:53
+
+这辣鸡公司有啥好收购的，收来和bgs比谁bug多吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

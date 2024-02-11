@@ -1971,3 +1971,27 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 
 —— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  酷乐  
+##### 190#       发表于 2024-2-11 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933639&amp;ptid=2171337" target="_blank">星之卡比 发表于 2024-2-10 13:54</a>
+
+我也理解loong比dragon好，但是我认为应该一步到位，因为分布走很容易就停在loong这步了。没有必要为了洋 ...</blockquote>
+流不流行只看文创水平，Cthulhu、R'lyeh这样在原作中都描述难念的词汇能大流行，只因为本身水平高。而东方顶着一个非非非非常常用的词汇，还能在搜索引擎第一页占据一席之地。
+
+*****
+
+####  macos  
+##### 191#       发表于 2024-2-11 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933477&amp;ptid=2171337" target="_blank">シャル 发表于 2024-2-10 13:26</a>
+真女神转生黄龙青龙的英文就是直接日音译
+
+黄龙wongron</blockquote>
+第一个粤语，第二个日语，没个统一的
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

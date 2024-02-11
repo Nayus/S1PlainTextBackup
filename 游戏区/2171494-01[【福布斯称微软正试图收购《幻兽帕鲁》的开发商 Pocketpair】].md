@@ -1525,3 +1525,13 @@ Another Crab's Treasure</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  greyair  
+##### 123#       发表于 2024-2-11 18:06
+
+<blockquote>穗乃果 发表于 2024-2-11 16:30
+我也希望是腾讯，主要不是微软没技术，而是微软做手游不行，当然了，如果高价请中国手游人才也不是不行， ...</blockquote>
+pocketpair自己就会做手游，他们第一款游戏就是手游。其实收购应该主要是收购人，这公司ceo是个人才。
+

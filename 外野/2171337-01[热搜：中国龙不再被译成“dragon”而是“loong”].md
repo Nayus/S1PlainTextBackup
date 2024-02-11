@@ -1995,3 +1995,39 @@ wyrm没有脚，确实好像没有可以准确形 ...</blockquote>
 
 —— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  巴特爱素子  
+##### 192#       发表于 2024-2-11 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63920098&amp;ptid=2171337" target="_blank">Jet.Black 发表于 2024-2-9 06:57</a>
+
+凤凰，Phoenix, Simurgh, Bar Juchne, Garuda
+
+细讲起来就太复杂了</blockquote>
+Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
+
+*****
+
+####  シャル  
+##### 193#       发表于 2024-2-11 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938751&amp;ptid=2171337" target="_blank">macos 发表于 2024-2-11 11:59</a>
+
+第一个粤语，第二个日语，没个统一的
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+第三个棒语
+
+所以翻英文直接音译最好
+
+*****
+
+####  longlivedick  
+##### 194#       发表于 2024-2-11 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63922545&amp;ptid=2171337" target="_blank">酷乐 发表于 2024-2-9 14:17</a>
+白俄罗斯早就换成白罗斯，但中文网上还是一堆白俄罗斯。</blockquote>
+外交部网站上还写的白俄罗斯，应该是还没有正式通过外交渠道改过来
+

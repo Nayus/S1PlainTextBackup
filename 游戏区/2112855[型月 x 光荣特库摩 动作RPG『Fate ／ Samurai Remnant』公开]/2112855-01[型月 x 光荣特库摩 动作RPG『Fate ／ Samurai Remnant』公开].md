@@ -289,3 +289,11 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 
 對了，都忘了阿禮是和國姓爺一起出場打的
 
+
+*****
+
+####  johnkamsar  
+##### 1719#       发表于 2024-2-11 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打完全部了，tnnd这次有完整新剧情的就tm剑弓术三组啊….而且弓组剧情也太tm完整了…..果然是暗耻有私心啊…..
+

@@ -482,3 +482,21 @@ Image_1707651118159.jpg
 
 真实反应，可以可以
 
+
+*****
+
+####  CaptainPenguin  
+##### 19478#       发表于 2024-2-11 19:48
+
+K组这每场都和猫差了1000多也太。。。
+
+*****
+
+####  starring  
+##### 19479#       发表于 2024-2-11 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63941123&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-2-11 19:12</a>
+
+大概率是没做的。花田排期满的，不可能给别人做改编的时候还有空给你写。京极倒是有空，但是他还要琢磨剧 ...</blockquote>
+虹和星不是同一组人做吧
+

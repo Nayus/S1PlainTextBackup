@@ -1738,3 +1738,49 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 
 高级样本也太少了。七级八级图打了不下十把一次都没见到
 
+
+*****
+
+####  looptube  
+##### 201#       发表于 2024-2-11 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935839&amp;ptid=2170852" target="_blank">wasian 发表于 2024-2-10 20:41</a>
+为什么有时候会显示主线任务没完成，明明全做完了</blockquote>
+个人观察是一个星球上有复数个任务，一次只能打完其中一个
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  looptube  
+##### 202#       发表于 2024-2-11 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63935839&amp;ptid=2170852" target="_blank">wasian 发表于 2024-2-10 20:41</a>
+为什么有时候会显示主线任务没完成，明明全做完了</blockquote>
+个人观察是一个星球上有复数个任务，一次只能打完其中一个
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  cloudcc  
+##### 203#       发表于 2024-2-11 17:28
+
+<blockquote>PlasmaSnake 发表于 2024-2-11 14:26
+高级样本也太少了。七级八级图打了不下十把一次都没见到</blockquote>
+要在地图上做支线收集，比如回收舱就基本必出稀有
+
+*****
+
+####  runningch  
+##### 204#       发表于 2024-2-11 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是因为我移动了安装文件夹还是因为服务器抽风了，今天怎登不上了
+
+*****
+
+####  yujie  
+##### 205#       发表于 2024-2-11 19:54
+
+大概是服务器抽了，下午能玩的现在也登不了游戏了
+

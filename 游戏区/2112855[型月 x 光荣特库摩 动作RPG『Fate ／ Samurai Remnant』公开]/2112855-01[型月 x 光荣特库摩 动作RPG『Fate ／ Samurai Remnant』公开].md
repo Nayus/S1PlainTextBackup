@@ -305,3 +305,11 @@ dlc能控制的新角色 本篇能用吗。</blockquote>
 
 再补充个吐槽，普通结局跑出来的无名ruler除了金皮卡就是伊吹，但是不明夜跑出来的就多出个阿育王可还行…..<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啥时候fgo联动剧情能落地到fsr里啊，俺要看伊织砍树啊….
 
+
+*****
+
+####  空洞骑士  
+##### 1721#       发表于 2024-2-11 23:58
+
+打完了，看了下也就6，7个小时的剧情量吧。有一种大过年的，给每个FSR主从发个圣杯许个愿，大家一起包饺子的感觉。虽然每组御主从者的剧情都做了单独的处理台词剧情不完全一样，但是过程真的好重复，同一套流程重复7遍有点枯燥了。另外光荣夹带私货太明显了，就只有弓组在最后一战加了段主从感情戏。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

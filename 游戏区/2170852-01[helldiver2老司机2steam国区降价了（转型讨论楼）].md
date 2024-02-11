@@ -1811,3 +1811,34 @@ sos怎么基本摇不到人呢，全靠插别人房玩了<img src="https://stati
 
 太灾难了，发售这几天各种让人直接没法玩的问题一个接一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 209#       发表于 2024-2-11 22:36
+
+这游戏细节的东西好多，怎么就是搞不好服务器，唉
+
+*****
+
+####  sodah  
+##### 210#       发表于 2024-2-11 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">升上去队里一定要有人带激光无人机，清小虫压力大幅下降。缺点是容易滋死队友。
+
+*****
+
+####  eno_emos  
+##### 211#       发表于 2024-2-11 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63934793&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-2-10 17:53</a>
+
+主武器是没啥好用的吗
+
+—— 来自 S1Fun</blockquote>
+目前应该是自动喷最强，近中远全能
+
+因为这代加入了肢体伤害和细化的部位，对付装甲单位（中型镰刀虫、步兵高达）可以打弱点直接糊死
+
+对付侦察兵非常好用，一扫一大片
+

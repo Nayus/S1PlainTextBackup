@@ -2271,3 +2271,31 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 磁轨步枪解除安全限制后蓄力多久是最大伤害啊？我看别人用这枪可以两枪爆头秒泰坦，我自己打要打十多枪，不 ...</blockquote>
 泰坦张嘴的时候打头
 
+
+*****
+
+####  旋转吧，米糕  
+##### 255#       发表于 2024-2-12 15:04
+
+服了，昨晚朋友下线我差个200+经验升10级，说自己打一把，结果直接吞结算报酬，今天下午跟朋友一起打了一把还是吞报酬，什么都没有，玩个吉尔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  旋转吧，米糕  
+##### 256#       发表于 2024-2-12 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63945631&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-2-12 13:03</a>
+真的被这游戏的bug气笑了
+导弹发射任务手动解锁发射井时被虫子杀了，互动键直接消失，四个人面面相觑拖到时 ...</blockquote>
+昨晚有一把撤退的时候我都走到飞机口了，不懂哪里来的一发机器人的飞弹，飞机直接伴随着一个爆炸特效消失了，然后看着另外三个队友在我面前上机消失，我怎么转都没法上机，最后只有我撤离失败<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  旋转吧，米糕  
+##### 257#       发表于 2024-2-12 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63945631&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-2-12 13:03</a>
+真的被这游戏的bug气笑了
+导弹发射任务手动解锁发射井时被虫子杀了，互动键直接消失，四个人面面相觑拖到时 ...</blockquote>
+昨晚有一把撤退的时候我都走到飞机口了，不懂哪里来的一发机器人的飞弹，飞机直接伴随着一个爆炸特效消失了，然后看着另外三个队友在我面前上机消失，我怎么转都没法上机，最后只有我撤离失败<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

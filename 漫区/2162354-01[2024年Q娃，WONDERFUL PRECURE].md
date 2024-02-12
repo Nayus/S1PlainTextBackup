@@ -4217,3 +4217,13 @@ fy
 
 派Q夜礼服假面可是真能C的，哪怕去对标美塔领域工具人人家日常也是贴心男大姐，你一个手机谷歌一下就能替代的百科全书有啥用捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 892#       发表于 2024-2-12 22:53
+
+考虑到目前是玩具解包的疑似妮可大人的独角兽最有可能是追加，我就奶兔山变甜点的皮卡利奥和派对的黑胡椒一样的男性辅助位特殊战士吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+毕竟前两年的常驻男战士（黑胡椒和鸟）整体评价其实不算差，像隔壁令和来打年年出常驻女骑一样把男战士常驻化对于Q娃IP的发展来说应该还是能有积极意义的。
+

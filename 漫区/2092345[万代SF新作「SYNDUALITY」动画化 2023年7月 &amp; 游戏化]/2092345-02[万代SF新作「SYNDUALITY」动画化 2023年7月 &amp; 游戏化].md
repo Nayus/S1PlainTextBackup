@@ -107,3 +107,22 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  novyMS  
+##### 3747#       发表于 2024-2-12 23:01
+
+啊? master?
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NeloAngelo  
+##### 3748#       发表于 2024-2-12 23:02
+
+有master倒也不意外. 女人都是谎话精啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

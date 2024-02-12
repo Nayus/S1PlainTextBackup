@@ -19493,3 +19493,24 @@ MFS的Nothing in the Story（）
 
 四单mv就拿巡演宣传图抠图+无路矢背景复用应付是吧，我们武士道真是太环保了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 12470#       发表于 2024-2-12 20:27
+
+<img src="https://img.saraba1st.com/forum/202402/12/202722rac4zmzhpjggawfi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>54c0417cd002b2b87422c663aad39568.jpeg</strong> (271.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 20:27 上传
+
+*****
+
+####  NODY  
+##### 12471#       发表于 2024-2-12 20:28
+
+溜了几遍新歌，感觉狗团四单目前公开的两首歌都是光听乐器部分很劲，结果一开口就拉胯了，怀疑是羊女士最不上心的那段时间录的，不够拼命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

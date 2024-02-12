@@ -13404,3 +13404,15 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 2v2活动小枪优势大啊，排到一把对面是4k+重刷，报了平时被射程霸凌的仇<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 2811#       发表于 2024-2-12 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63945284&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-2-12 11:41</a>
+2v2活动小枪优势大啊，排到一把对面是4k+重刷，报了平时被射程霸凌的仇 ...</blockquote>
+只能说明对面4K不强，你看pyon能把刘坤和灭龙杀到一直等复活<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

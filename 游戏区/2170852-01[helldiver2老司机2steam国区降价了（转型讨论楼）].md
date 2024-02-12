@@ -2068,3 +2068,11 @@ Johan
 
 太幽默喇，知道服务器被挤爆了，没关系你们先挤一下，等我们睡一觉起来再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cloudcc  
+##### 233#       发表于 2024-2-12 10:32
+
+买的人还是太多了，赚的太多了，国外服务器真是弱鸡，不到4w人在线就爆了，国内手游哪个开服不是几十w
+

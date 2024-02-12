@@ -2184,3 +2184,13 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 
 他奶奶的，好不容易连上还组了个pin正常的队伍，都打到呼叫撤离了，直接闪退
 
+
+*****
+
+####  gnleez  
+##### 247#       发表于 2024-2-12 13:35
+
+昨天晚上到现在吞结算特别严重，出来所有人都是0级，直接白打
+
+就冲这点就得给负分<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

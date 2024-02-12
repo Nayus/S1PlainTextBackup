@@ -18884,3 +18884,27 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 2024-2-12 15:41 上传
 
+
+*****
+
+####  蒜苗  
+##### 12401#       发表于 2024-2-12 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946306&amp;ptid=2159415" target="_blank">黑道复制人 发表于 2024-2-12 15:41</a>
+开什么玩笑啊kora-！</blockquote>
+这是官方的花篮？
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12402#       发表于 2024-2-12 17:13
+
+这收音，有一种第七集的美<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QuattroVageena  
+##### 12403#       发表于 2024-2-12 17:17
+
+一如既往的没气，这次声音都小了
+

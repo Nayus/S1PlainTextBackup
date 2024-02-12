@@ -19880,3 +19880,27 @@ soyo发现祥子、睦开新乐队时应该就是这个眼神吧<img src="https:
 
 看了一下，柿本监督居然也完全没有任何感想和转发，你狗团是不是真的要被官方放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 12511#       发表于 2024-2-13 00:38
+
+是的，狗团年中6th开完就要宣final live了，这个答案楼友喜欢吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤魔法师  
+##### 12512#       发表于 2024-2-13 00:41
+
+这次感觉确实1/3都是中国人
+
+白天外面聊天的几乎都是中文
+
+*****
+
+####  Toki_Ai  
+##### 12513#       发表于 2024-2-13 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不就和舞台烧酒一样了，全在公式书里
+

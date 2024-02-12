@@ -2042,3 +2042,29 @@ I know the progression issue is frustrating, especially for newer divers that wa
 
 对游戏最大的不满就是战舰上三个尼哥还都是光头，整天还逼逼赖赖的，能不能弄个mod全部换成美少女，这样回战舰还有点归属感
 
+
+*****
+
+####  FLZB  
+##### 232#       发表于 2024-2-12 10:23
+
+[12 Feb 2024] Server Update
+
+Hey Everyone,
+
+Thank you for your patience during the server maintenance. With it we deployed three “rapid-fixes” aimed at improving the situation with rewards often not being handed out properly, login-issues, and server capacity.
+
+To speak in technical terms, our services as well as our partner services have a rate limiter that denies connections beyond a volume per minute to prevent the entire system from failing. We managed to increase the rate limit from 10,000/min to 20,000/min and the total capacity of concurrent players was increased from 250,000 total to 360,000 total. This was however still not enough as the player count jumped to 360k after 5 1⁄2 minutes.
+
+As such, the issue with login remains. If for any reason you get the “Failed to connect to server”issue it means that the maximum number of login requests for that particular minute is exceeded and/or that the servers are full and will require someone to log out before allowing new players in. As mentioned above, the increased capacity should require less retries to get in.
+
+As for the reward issue, the fix was mitigated but not resolved. And without additional server maintenance this will still not work as intended. If you get the issue you can try rebooting the game to increase the chances of it being reset. This is due to the high traffic on the servers leading to rewards not being tracked correctly by our servers.
+
+I know the progression issue is frustrating, especially for newer divers that want to unlock sweet gear. For now, please once again accept our sincere apologies for the issues you’re facing and rest assured, we’re doing our utmost to make it right. In order to do so, right now it is crucial that our team gets some sleep and we will be back at this again in a few hours.
+
+Regards,
+
+Johan
+
+太幽默喇，知道服务器被挤爆了，没关系你们先挤一下，等我们睡一觉起来再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

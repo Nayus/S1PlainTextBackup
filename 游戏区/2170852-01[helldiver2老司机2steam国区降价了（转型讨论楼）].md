@@ -2133,3 +2133,36 @@ Johan
 
 这不就是卡人口是我暴兵猛，余钱多是我运营好吗，真是让你牛逼完啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ivly  
+##### 241#       发表于 2024-2-12 12:36
+
+twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有一个主播支持掉落的呢，到底哪个主播才有掉落奖励啊。
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  山风短  
+##### 242#       发表于 2024-2-12 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63945502&amp;ptid=2170852" target="_blank">ivly 发表于 2024-2-12 12:36</a>
+twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有一个主播支持掉落的呢，到底哪个主播才有掉落奖励 ...</blockquote>
+淘宝8块钱……
+
+*****
+
+####  山风短  
+##### 243#       发表于 2024-2-12 12:41
+
+吞结算的bug修了吗？昨天打了三把全是白打工
+
+*****
+
+####  m98626  
+##### 244#       发表于 2024-2-12 12:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让人不经感叹这就是tm的索尼第一方，服务器问题修nm十几小时都没动静，买超级凯子版真是助纣为虐了
+

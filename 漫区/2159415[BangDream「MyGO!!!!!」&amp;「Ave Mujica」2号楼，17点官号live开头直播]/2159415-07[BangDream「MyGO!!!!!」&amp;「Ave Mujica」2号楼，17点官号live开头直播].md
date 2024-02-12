@@ -19679,3 +19679,20 @@ IMG_1138.jpeg
 
 老话重谈，支持8月宣换人好吧
 
+
+*****
+
+####  DarthAka  
+##### 12492#       发表于 2024-2-12 22:04
+
+万人场和第二季中间的空档正好找个新人
+
+*****
+
+####  nebulanoby  
+##### 12493#       发表于 2024-2-12 22:13
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=42e6c7002d63f6241c5d390bb745eb32/5b1f79391f30e9240860d0080a086e061c95f7d8.jpg?tbpicau=2024-02-14-05_66241addf82f3bf55aacc22f54c964e7" id="aimg_VId5F" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -19857,3 +19857,26 @@ soyo发现祥子、睦开新乐队时应该就是这个眼神吧<img src="https:
 
 2024-2-12 23:40 上传
 
+
+*****
+
+####  NODY  
+##### 12509#       发表于 2024-2-13 00:24
+
+独角兽安定的没有对live相关发表任何感想，倒是又在聊LBGTQ话题了，所以说第二季的对戒还在不在了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/13/002423zbzpc5vdgk58vkxg.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (43.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 00:24 上传
+
+*****
+
+####  NODY  
+##### 12510#       发表于 2024-2-13 00:27
+
+看了一下，柿本监督居然也完全没有任何感想和转发，你狗团是不是真的要被官方放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

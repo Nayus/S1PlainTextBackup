@@ -2613,3 +2613,13 @@ C:%users%user-id\ ...</blockquote>
 
 —— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NEIN  
+##### 293#       发表于 2024-2-13 02:05
+
+优化真没问题，但是这网络是真的太整蛊了
+
+—— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -19104,3 +19104,117 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 观众都不想喊encore了
 
+
+*****
+
+####  屑猫猫  
+##### 12429#       发表于 2024-2-12 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63943046&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-11 23:13</a>
+青木怎么说也是狗团唯一一个每次出征都记得给团员买特产的人，还每次都给的全员，已经很努力在当大姐了[f:0 ...</blockquote>
+圆菜的魅力，每次都能挺好的带动氛围，还挺关照自家队友的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">实至名归的狗团大姐
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  氷川日菜  
+##### 12430#       发表于 2024-2-12 18:15
+
+双主唱狠狠救场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 12431#       发表于 2024-2-12 18:15
+
+<img src="https://img.saraba1st.com/forum/202402/12/181507on4x3pxfp337oxwf.png" referrerpolicy="no-referrer">
+
+<strong>{MCCIDRE05XWQ[E~_}{7RU5.png</strong> (55.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 18:15 上传
+
+大
+
+*****
+
+####  黑道复制人  
+##### 12432#       发表于 2024-2-12 18:18
+
+哦哦，鼓子=san实际丰满…
+
+*****
+
+####  6030sylar  
+##### 12433#       发表于 2024-2-12 18:20
+
+<img src="https://img.saraba1st.com/forum/202402/12/182028t9g0gtpdpdxx8g9z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 18:20 上传
+
+饱了
+
+*****
+
+####  爱丁堡official  
+##### 12434#       发表于 2024-2-12 18:20
+
+🐑🍬🍊🌲🥁谁犯罪谁尽力
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  6030sylar  
+##### 12435#       发表于 2024-2-12 18:21
+
+<img src="https://img.saraba1st.com/forum/202402/12/182121nrutagavlta2k4tq.png" referrerpolicy="no-referrer">
+
+<strong>F194L_E9[%AG966_~D_)]TR.png</strong> (38.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 18:21 上传
+
+意义明确的特写
+
+*****
+
+####  nebulanoby  
+##### 12436#       发表于 2024-2-12 18:21
+
+ 本帖最后由 nebulanoby 于 2024-2-12 18:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+Z8，启动！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12437#       发表于 2024-2-12 18:21
+
+鼓子是真的鼓<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑道复制人  
+##### 12438#       发表于 2024-2-12 18:23
+
+212
+
+<img src="https://img.saraba1st.com/forum/202402/12/182326yn0z7zjtxu50h970.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 18:23 上传
+

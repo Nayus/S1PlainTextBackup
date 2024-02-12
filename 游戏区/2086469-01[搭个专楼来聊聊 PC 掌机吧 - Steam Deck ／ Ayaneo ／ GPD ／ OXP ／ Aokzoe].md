@@ -18,3 +18,11 @@ Claw 这个表现也太丢人 <img src="https://static.saraba1st.com/image/smile
 Claw 这个表现也太丢人</blockquote>
 I家工艺+低功耗场景=翻车，这不是理所当然的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫不萌  
+##### 1105#       发表于 2024-2-12 18:22
+
+没想到intel驱动还是这么差啊，渲染错误都有
+

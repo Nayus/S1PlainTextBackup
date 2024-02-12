@@ -19514,3 +19514,11 @@ MFS的Nothing in the Story（）
 
 溜了几遍新歌，感觉狗团四单目前公开的两首歌都是光听乐器部分很劲，结果一开口就拉胯了，怀疑是羊女士最不上心的那段时间录的，不够拼命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  氷川日菜  
+##### 12472#       发表于 2024-2-12 20:38
+
+你狗应该多搞一点双主唱的歌，有青木给羊挽尊，听感应该不会太差<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

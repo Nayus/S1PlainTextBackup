@@ -19561,3 +19561,18 @@ IMG_1138.jpeg
 
 现在烤羊状况如何
 
+
+*****
+
+####  DarthAka  
+##### 12477#       发表于 2024-2-12 21:10
+
+上次烤过劲了，这次没啥动力
+
+*****
+
+####  Aendst  
+##### 12478#       发表于 2024-2-12 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懒得掺和了而已，毕竟不关心
+

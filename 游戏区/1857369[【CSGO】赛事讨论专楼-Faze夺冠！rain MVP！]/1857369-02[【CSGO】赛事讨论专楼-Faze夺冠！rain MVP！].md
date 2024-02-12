@@ -196,3 +196,11 @@ donk的突破ob都经常切不过来，突然一个大拉启动哐哐就俩爆�
 
 本来想看绿龙与g2遇见，让donk和小孩碰一碰，但感觉对披萨，批特有点残忍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宝儿  
+##### 3982#       发表于 2024-2-12 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">  错过了 simple zywoo 可决不能再错过donk了！
+

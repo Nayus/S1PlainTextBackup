@@ -18868,3 +18868,19 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 [https://twitter.com/Rainy_NEGI/status/1756660973019238665](https://twitter.com/Rainy_NEGI/status/1756660973019238665)
 
+
+*****
+
+####  黑道复制人  
+##### 12400#       发表于 2024-2-12 15:41
+
+开什么玩笑啊kora-！
+
+<img src="https://img.saraba1st.com/forum/202402/12/154146wzc3bqcayixceice.bmp" id="aimg_1542843" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>]~9~GWLW6KBQA~{%VZK2T}E.bmp</strong> (585.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 15:41 上传
+

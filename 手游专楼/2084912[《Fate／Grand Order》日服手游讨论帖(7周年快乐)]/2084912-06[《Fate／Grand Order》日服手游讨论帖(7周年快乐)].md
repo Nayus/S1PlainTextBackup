@@ -461,3 +461,21 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 ........这位，海格力斯叫她嫂子还是太祖母？
 
+
+*****
+
+####  cenhr  
+##### 11341#       发表于 2024-2-12 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946056&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-2-12 14:33</a>
+
+........这位，海格力斯叫她嫂子还是太祖母？</blockquote>
+太祖母，毕竟帕尔修斯是太祖父<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 11342#       发表于 2024-2-12 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以关服前能出完全体的B叔么 三个零件都能弄出三个冠位
+

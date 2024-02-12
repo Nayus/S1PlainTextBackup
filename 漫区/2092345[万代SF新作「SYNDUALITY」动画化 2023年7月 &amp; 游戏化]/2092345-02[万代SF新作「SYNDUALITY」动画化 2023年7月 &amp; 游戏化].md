@@ -97,3 +97,13 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 
 【【1月】奇异贤伴 黑色天使 SYNDUALITY Noir 第18话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/l0qm7yG](https://b23.tv/l0qm7yG)    预告的汉化，提到了夏尔的愿望
 
+
+*****
+
+####  novyMS  
+##### 3746#       发表于 2024-2-12 22:53
+
+准备上线看直播了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -2117,3 +2117,11 @@ Johan
 今天联网匹配又经常失败，屑</blockquote>
 快速匹配90%的时间都是无法进入大厅<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">开了加速器也没用
 
+
+*****
+
+####  mdk11223344  
+##### 239#       发表于 2024-2-12 11:19
+
+昨晚就进不去，现在还是进不去，这些鬼佬所谓睡觉是去冬眠吗
+

@@ -19233,3 +19233,67 @@ Z8，启动！
 
 krkrdkdk
 
+
+*****
+
+####  6030sylar  
+##### 12441#       发表于 2024-2-12 18:31
+
+kirakiradokidoki来了
+
+*****
+
+####  Nomind96  
+##### 12442#       发表于 2024-2-12 18:32
+
+<img src="https://img.saraba1st.com/forum/202402/12/183225q1sujj1uqofr1fh1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1133.jpeg</strong> (136.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 18:32 上传
+
+*****
+
+####  krowbullet  
+##### 12443#       发表于 2024-2-12 18:35
+
+唱的再烂，这件对邦t还是要买的
+
+*****
+
+####  黑道复制人  
+##### 12444#       发表于 2024-2-12 18:37
+
+青木鞠躬羊不屑
+
+<img src="https://img.saraba1st.com/forum/202402/12/183707dc0z8cmqj0x0aj8j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 18:37 上传
+
+*****
+
+####  6030sylar  
+##### 12445#       发表于 2024-2-12 18:37
+
+有人晕了？
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12446#       发表于 2024-2-12 18:37
+
+这是有人听完live昏咕七了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12447#       发表于 2024-2-12 18:39
+
+这场live的时间分配也太离谱了吧，前面不到五分钟的mc连唱一小时，后面工商环节聊了快半小时了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

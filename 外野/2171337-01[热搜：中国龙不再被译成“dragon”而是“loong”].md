@@ -2266,3 +2266,13 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 这个是dragon</blockquote>
 你这个鹿角青麟明显是龙，不是多拉贡
 
+
+*****
+
+####  酷乐  
+##### 214#       发表于 2024-2-12 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946500&amp;ptid=2171337" target="_blank">berserk28 发表于 2024-2-12 16:27</a>
+你这个鹿角青麟明显是龙，不是多拉贡</blockquote>
+她这个就是蜥蜴眼，和上古卷轴的亚龙人女仆一样。
+

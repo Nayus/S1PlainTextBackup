@@ -2423,3 +2423,14 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 
 乐，睡觉笑了，幸好我没买，这帮白皮做游戏的还是日子太好过了
 
+
+*****
+
+####  Alexgrave  
+##### 272#       发表于 2024-2-12 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946520&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-2-12 16:31</a>
+官方说法是服务器超载导致扫描奖励数据不及时，建议玩家尝试反复进出游戏，有较大希望刷出之前漏掉的奖励
+ ...</blockquote>
+还真有……我刚重新进，有了
+

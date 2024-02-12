@@ -4080,3 +4080,13 @@ fy
 
 进化这个，会让人想到本作SD佐藤雅教本身是看了数码宝贝大冒险才进入东映做动画这个轶事，然后小麦bank是大西亮，之前有在DA棚活跃，冥冥之中的一些联系。
 
+
+*****
+
+####  66367749  
+##### 879#       发表于 2024-2-12 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946592&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-2-12 16:42</a>
+进化这个，会让人想到本作SD佐藤雅教本身是看了数码宝贝大冒险才进入东映做动画这个轶事，然后小麦bank是大 ...</blockquote>
+这么说我看Friendy变身前彩叶对小麦感同身受那段有数码34的人/数码兽合体进化的感觉，原来不是错觉的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

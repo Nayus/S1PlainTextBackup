@@ -2034,3 +2034,11 @@ I know the progression issue is frustrating, especially for newer divers that wa
 
 就是神奇bug一样没少，刚就碰上个撤离不刷怪的局。
 
+
+*****
+
+####  cloudcc  
+##### 231#       发表于 2024-2-12 09:49
+
+对游戏最大的不满就是战舰上三个尼哥还都是光头，整天还逼逼赖赖的，能不能弄个mod全部换成美少女，这样回战舰还有点归属感
+

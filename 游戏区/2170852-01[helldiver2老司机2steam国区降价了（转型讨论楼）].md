@@ -2166,3 +2166,13 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让人不经感叹这就是tm的索尼第一方，服务器问题修nm十几小时都没动静，买超级凯子版真是助纣为虐了
 
+
+*****
+
+####  smdzh2  
+##### 245#       发表于 2024-2-12 13:03
+
+真的被这游戏的bug气笑了
+导弹发射任务手动解锁发射井时被虫子杀了，互动键直接消失，四个人面面相觑拖到时间结束<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+还有召唤飞鹰时被坦克虫撞倒，爬起来主武器副武器凭空消失<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

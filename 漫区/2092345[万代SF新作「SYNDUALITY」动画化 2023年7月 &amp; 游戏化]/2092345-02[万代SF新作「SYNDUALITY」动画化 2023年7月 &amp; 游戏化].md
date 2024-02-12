@@ -126,3 +126,31 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyMS  
+##### 3749#       发表于 2024-2-12 23:06
+
+什么战损版
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  novyMS  
+##### 3750#       发表于 2024-2-12 23:11
+
+一个气象卫星造成世界毁灭?
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NeloAngelo  
+##### 3751#       发表于 2024-2-12 23:12
+
+你也是总帅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

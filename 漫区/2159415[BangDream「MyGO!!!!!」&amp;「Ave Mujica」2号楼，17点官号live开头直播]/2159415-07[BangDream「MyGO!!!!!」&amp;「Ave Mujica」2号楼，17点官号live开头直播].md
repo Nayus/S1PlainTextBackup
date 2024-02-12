@@ -19786,3 +19786,23 @@ IMG_1138.jpeg
 
 MyGO场一半中国人很正常。
 
+
+*****
+
+####  ddy2811  
+##### 12504#       发表于 2024-2-12 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63948767&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-12 21:50</a>
+
+我是千早爱音.jpg
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+丸山家族是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 12505#       发表于 2024-2-12 23:08
+
+如果真的不能换人，那么给动物朋友安排一个现实点的强度然后在指导下慢慢提升能力或许更容易达成吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -158,3 +158,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是没有一个友情池玄学是用lily和哈贝的
 
+
+*****
+
+####  溯夜  
+##### 46160#       发表于 2024-2-12 23:12
+
+烟这个技能组的确超模，随便按了一下我的二宝黑狗直接对单17w了太哈人了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

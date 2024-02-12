@@ -372,3 +372,13 @@ kanata就是男版<img src="https://static.saraba1st.com/image/smiley/carton2017
 
 现在有两个机体和三个操作系统，你们凑合一下
 
+
+*****
+
+####  novyMS  
+##### 3779#       发表于 2024-2-12 23:58
+
+因为担心彼方而追上来的艾莉，看到的是失神地抱着一动不动雪儿的彼方。彼方认为是自己的过错。但是诺瓦儿和蜜丝缇儿分离的时间已经迫在眉睫，被各种事羁绊的彼方必须要做出选择了。 看来真g了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

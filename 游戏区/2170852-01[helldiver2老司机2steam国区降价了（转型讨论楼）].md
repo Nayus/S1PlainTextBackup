@@ -2261,3 +2261,13 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 
 磁轨步枪解除安全限制后蓄力多久是最大伤害啊？我看别人用这枪可以两枪爆头秒泰坦，我自己打要打十多枪，不知道是哪里操作不对来自: iPhone客户端
 
+
+*****
+
+####  山风短  
+##### 254#       发表于 2024-2-12 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946007&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-2-12 14:21</a>
+磁轨步枪解除安全限制后蓄力多久是最大伤害啊？我看别人用这枪可以两枪爆头秒泰坦，我自己打要打十多枪，不 ...</blockquote>
+泰坦张嘴的时候打头
+

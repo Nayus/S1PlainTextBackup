@@ -4026,3 +4026,13 @@ ps:这屏蔽词是……**？
 
 不行了这bg戏好多，彩羽同学你其实也没什么其他朋友的吗？除了家人就想到男同学
 
+
+*****
+
+####  pokemon最爱  
+##### 873#       发表于 2024-2-12 10:54
+
+想到男同学主要是因为在动物知识这方面彩羽最先想到的就是父母和男同学吧，毕竟兔山还是有个动物相关知识渊博的设定在的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就目前来说我们的魅魔彩羽小姐应该还只是单方面的散发魅力沾花惹草的罪恶的女人，对兔山是没有恋爱箭头的（反过来是真的有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）。
+

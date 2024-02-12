@@ -357,3 +357,18 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">xb2小绿这不就来了
 
+
+*****
+
+####  约翰里德  
+##### 3777#       发表于 2024-2-12 23:45
+
+kanata就是男版<img src="https://static.saraba1st.com/image/smiley/carton2017/278.png" referrerpolicy="no-referrer">是骑一个残一个
+
+*****
+
+####  6030sylar  
+##### 3778#       发表于 2024-2-12 23:46
+
+现在有两个机体和三个操作系统，你们凑合一下
+

@@ -19725,3 +19725,25 @@ IMG_1138.jpeg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949003&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-2-12 22:13</a></blockquote>
 有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 12497#       发表于 2024-2-12 22:24
+
+狗团不是快要开巡回了吗，现在给羊上上强度，不然后面几场巡回怕是撑不住
+
+*****
+
+####  DarthAka  
+##### 12498#       发表于 2024-2-12 22:26
+
+现实一点，指望好好唱歌基本没戏了，不如写信表达羊或者青木已胖到出戏——希望减肥
+
+*****
+
+####  NODY  
+##### 12499#       发表于 2024-2-12 22:30
+
+主要是吃胖了还不锻炼体力，约等于白吃了，人带鼓也吃得多但好歹营养都给用到正确的地方了（无论是体力还是肉体）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

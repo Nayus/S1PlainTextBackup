@@ -18850,3 +18850,21 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 致死鼓凛含量，我接受不了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 12399#       发表于 2024-2-12 14:50
+
+貓貓祥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/12/145036yllsos8q877ko77k.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_リンゴ雨🌷︎(@Rainy_NEGI)_20240211-124627_1756660973019238665_photo.jpg</strong> (173.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 14:50 上传
+
+[https://twitter.com/Rainy_NEGI/status/1756660973019238665](https://twitter.com/Rainy_NEGI/status/1756660973019238665)
+

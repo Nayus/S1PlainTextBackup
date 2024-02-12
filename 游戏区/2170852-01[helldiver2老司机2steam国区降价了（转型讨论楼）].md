@@ -2364,3 +2364,20 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 现在的情况是自己当主机就能结算到，但是加其他人的局，大概率会卡结算打白工，这体验实在太差了。 ...</blockquote>
 我之前没挂加速器连自己主机都会卡结算<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山风短  
+##### 265#       发表于 2024-2-12 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946390&amp;ptid=2170852" target="_blank">XXXG01H2 发表于 2024-2-12 16:02</a>
+现在的情况是自己当主机就能结算到，但是加其他人的局，大概率会卡结算打白工，这体验实在太差了。 ...</blockquote>
+我昨晚特地单人跑了次图，一样卡结算<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alexgrave  
+##### 266#       发表于 2024-2-12 16:11
+
+打两局 两局吞奖励<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

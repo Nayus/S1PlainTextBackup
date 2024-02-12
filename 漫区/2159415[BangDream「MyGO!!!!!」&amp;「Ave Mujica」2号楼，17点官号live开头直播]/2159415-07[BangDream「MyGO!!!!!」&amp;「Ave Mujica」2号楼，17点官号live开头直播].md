@@ -19420,3 +19420,43 @@ MFS的Nothing in the Story（）
 
 感觉还是应该调整一下节目安排扎扎实实练好唱好几首歌，本来体力和水平就差了，就别每次一个多点小时十几首这样瞎折腾了吧<img src="https://static.saraba1st.com/image/smiley/carton2017/402.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 12462#       发表于 2024-2-12 19:37
+
+林小姐志向也不在乐队，无所谓了，不沾锅挺好，队长是青木，主唱是羊，儿邦梦是小日向，不沾锅是林，李世林负责打瓦
+
+*****
+
+####  ddy2811  
+##### 12463#       发表于 2024-2-12 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63947146&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-12 18:28</a>
+
+羊女士这拉胯的文化水平</blockquote>
+乡下来的没上过大学是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过现役大学生也读错汉字就是了
+
+*****
+
+####  6030sylar  
+##### 12464#       发表于 2024-2-12 19:38
+
+这时间安排不如砍两首给人休息一下，武士道血汗工厂真不是盖的
+
+*****
+
+####  すぴぱら  
+##### 12465#       发表于 2024-2-12 19:43
+
+<img src="https://img.saraba1st.com/forum/202402/12/194310euvdfnvifa0vazy0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5354.jpeg</strong> (130.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 19:43 上传
+
+好大的鼓 一秒沦陷
+

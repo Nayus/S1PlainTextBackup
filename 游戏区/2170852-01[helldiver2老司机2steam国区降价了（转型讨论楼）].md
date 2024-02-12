@@ -2389,3 +2389,29 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 
 唉…………那这样的话就是真的服务器问题了，服务器没有反馈你上传的结算信息，无响应一段时间后就卡掉了这次验证，咱就打白工了……
 
+
+*****
+
+####  梦诗歌雪  
+##### 268#       发表于 2024-2-12 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">开了一个月奇游，结果挂着加速时老匹配不上关了加速就能了，以及怪堆多时除了容易掉帧外声音会出现特别明显的卡顿，这应该不是配置问题吧，也是网络问题？
+
+*****
+
+####  Lorraine_Kinney  
+##### 269#       发表于 2024-2-12 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946507&amp;ptid=2170852" target="_blank">梦诗歌雪 发表于 2024-2-12 16:28</a>
+
+开了一个月奇游，结果挂着加速时老匹配不上关了加速就能了，以及怪堆多时除了容易掉帧外声音会出现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">贴吧说关闭设置里的数据共享可以改善一下
+
+*****
+
+####  smdzh2  
+##### 270#       发表于 2024-2-12 16:31
+
+官方说法是服务器超载导致扫描奖励数据不及时，建议玩家尝试反复进出游戏，有较大希望刷出之前漏掉的奖励
+顺便一提他们发完公告就去睡觉了，有什么事起来再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

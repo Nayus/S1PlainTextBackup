@@ -2253,3 +2253,16 @@ Garuda是个鸟人，跟一堆神话里的鸟其实都不是一类
 
 — from Google Pixel 4a (5G), Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  berserk28  
+##### 213#       发表于 2024-2-12 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919354&amp;ptid=2171337" target="_blank">用户名已注册 发表于 2024-2-9 00:02</a>
+
+我这几天给客户写邮件都用的是loong的～
+
+这个是dragon</blockquote>
+你这个鹿角青麟明显是龙，不是多拉贡
+

@@ -4062,3 +4062,13 @@ fy
 不是。这汪q等后面人多了要怎么办。一起抱上去也太夸张了</blockquote>
 第5集入手净化武器，之后应该就是净化技去净化了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最强惠酱  
+##### 877#       发表于 2024-2-12 13:17
+
+想被5个q娃抱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

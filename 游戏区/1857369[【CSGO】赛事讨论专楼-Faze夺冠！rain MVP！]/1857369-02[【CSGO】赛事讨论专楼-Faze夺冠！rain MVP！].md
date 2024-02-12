@@ -159,3 +159,14 @@ donk的突破ob都经常切不过来，突然一个大拉启动哐哐就俩爆�
 
 阀门干什么吃的  有人在IEM决赛上炸鱼  还管不管了啊  
 
+
+*****
+
+####  那由  
+##### 3978#       发表于 2024-2-12 13:19
+
+最恐怖的是这个人不仅强还自信，整个正赛1.7压倒全部人
+第二的孩才1.35，你什么小孩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

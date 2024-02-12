@@ -2176,3 +2176,11 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 导弹发射任务手动解锁发射井时被虫子杀了，互动键直接消失，四个人面面相觑拖到时间结束<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 还有召唤飞鹰时被坦克虫撞倒，爬起来主武器副武器凭空消失<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lzw1990  
+##### 246#       发表于 2024-2-12 13:22
+
+他奶奶的，好不容易连上还组了个pin正常的队伍，都打到呼叫撤离了，直接闪退
+

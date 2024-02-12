@@ -661,3 +661,19 @@ K组去上海不知道能不能填满5K人
 
 fmt第一弹线上配信确保
 
+
+*****
+
+####  starring  
+##### 19499#       发表于 2024-2-12 13:04
+
+去年十一月当月度嘉宾的节目,首次作为solo artist参加拼盘live
+
+<img src="https://img.saraba1st.com/forum/202402/12/130115kl70cdfciig75y1t.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240212125628.jpg</strong> (122.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 13:01 上传
+

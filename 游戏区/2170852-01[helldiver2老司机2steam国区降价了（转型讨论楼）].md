@@ -2299,3 +2299,39 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 导弹发射任务手动解锁发射井时被虫子杀了，互动键直接消失，四个人面面相觑拖到时 ...</blockquote>
 昨晚有一把撤退的时候我都走到飞机口了，不懂哪里来的一发机器人的飞弹，飞机直接伴随着一个爆炸特效消失了，然后看着另外三个队友在我面前上机消失，我怎么转都没法上机，最后只有我撤离失败<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 258#       发表于 2024-2-12 15:46
+
+不是说才修了服务器问题吗....行不行啊...
+
+*****
+
+####  PlasmaSnake  
+##### 259#       发表于 2024-2-12 15:48
+
+ 本帖最后由 PlasmaSnake 于 2024-2-12 15:50 编辑 
+
+红迪上看到个刷紫样本的简单套路，找个难度7以上的12分钟炸虫巢任务，降落后找到一根上粗下细、有点像鸡腿形状的黑色岩石，图里所有的紫样本都会在这根岩石底下，不用做任务躲满12分钟直接撤离，一小时差不多能刷20几个紫样本
+
+*****
+
+####  山风短  
+##### 260#       发表于 2024-2-12 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946329&amp;ptid=2170852" target="_blank">PlasmaSnake 发表于 2024-2-12 15:48</a>
+红迪上看到个刷紫样本的简单套路，找个难度7以上的12分钟炸虫巢任务，降落后找到一根上粗下细、有点像鸡腿 ...</blockquote>
+现在的问题是打完了不结算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PlasmaSnake  
+##### 261#       发表于 2024-2-12 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946332&amp;ptid=2170852" target="_blank">山风短 发表于 2024-2-12 15:49</a>
+
+现在的问题是打完了不结算</blockquote>
+感觉不同人网络情况不同，我是挂了加速器就能结算，但是完全匹配不了任何人只能单人玩，不挂加速器能匹配但是疯狂掉线+不结算
+

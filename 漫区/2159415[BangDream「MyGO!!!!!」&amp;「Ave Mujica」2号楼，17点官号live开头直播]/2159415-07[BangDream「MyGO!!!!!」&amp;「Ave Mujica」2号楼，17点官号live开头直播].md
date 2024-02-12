@@ -19591,3 +19591,39 @@ IMG_1138.jpeg
 
 ↑楼上的羊姐是机器人吗
 
+
+*****
+
+####  NODY  
+##### 12481#       发表于 2024-2-12 21:21
+
+或许武士道这年给了狗这么高强度的live，就是想靠着现场表现把动画引来的大量ylgo全都气跑去推老团和鸡，目前看来效果拔群，也能解释为啥羊女士这么多迷惑行为也没人劝劝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12482#       发表于 2024-2-12 21:22
+
+我还以为这次我心危官方送花篮，主唱看了羊心大悦能爆种呢，看repo全点在拼命上了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12483#       发表于 2024-2-12 21:25
+
+鼓子呢，我还挺喜欢鼓子和立希的，可以真的成为鸡第六人吗，我仅代表个人宣布没意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 12484#       发表于 2024-2-12 21:26
+
+羊这真感觉不如音宝了，比拼命也不一定能比过啊，要是能让蝶团刚开始时的tymm和羊对邦一次就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12485#       发表于 2024-2-12 21:32
+
+哪怕蝶刚开始的tymm也有伟大的肉体，和羊对邦羊不担心gachi都被吸走吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

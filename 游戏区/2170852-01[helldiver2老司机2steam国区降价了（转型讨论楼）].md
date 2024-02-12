@@ -2335,3 +2335,32 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 现在的问题是打完了不结算</blockquote>
 感觉不同人网络情况不同，我是挂了加速器就能结算，但是完全匹配不了任何人只能单人玩，不挂加速器能匹配但是疯狂掉线+不结算
 
+
+*****
+
+####  XXXG01H2  
+##### 262#       发表于 2024-2-12 16:02
+
+<blockquote>PlasmaSnake 发表于 2024-2-12 15:52
+感觉不同人网络情况不同，我是挂了加速器就能结算，但是完全匹配不了任何人只能单人玩，不挂加速器能匹配 ...</blockquote>
+现在的情况是自己当主机就能结算到，但是加其他人的局，大概率会卡结算打白工，这体验实在太差了。
+
+*****
+
+####  山风短  
+##### 263#       发表于 2024-2-12 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946343&amp;ptid=2170852" target="_blank">PlasmaSnake 发表于 2024-2-12 15:52</a>
+感觉不同人网络情况不同，我是挂了加速器就能结算，但是完全匹配不了任何人只能单人玩，不挂加速器能匹配 ...</blockquote>
+只能说箭头和索尼确实低估了10年累积下来的口碑了，看几次公告的口气，箭头好像预计这作的生涯销量就一百来万左右<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PlasmaSnake  
+##### 264#       发表于 2024-2-12 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946390&amp;ptid=2170852" target="_blank">XXXG01H2 发表于 2024-2-12 16:02</a>
+
+现在的情况是自己当主机就能结算到，但是加其他人的局，大概率会卡结算打白工，这体验实在太差了。 ...</blockquote>
+我之前没挂加速器连自己主机都会卡结算<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

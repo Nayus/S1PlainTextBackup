@@ -2381,3 +2381,11 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 
 打两局 两局吞奖励<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  XXXG01H2  
+##### 267#       发表于 2024-2-12 16:14
+
+唉…………那这样的话就是真的服务器问题了，服务器没有反馈你上传的结算信息，无响应一段时间后就卡掉了这次验证，咱就打白工了……
+

@@ -227,3 +227,133 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 
 没话说的, 真就这样写啊.<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyMS  
+##### 3761#       发表于 2024-2-12 23:30
+
+等下看下汉化才知道是不是挂了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 3762#       发表于 2024-2-12 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">拒绝初始化可不就……………………
+
+*****
+
+####  NeloAngelo  
+##### 3763#       发表于 2024-2-12 23:31
+
+ 本帖最后由 NeloAngelo 于 2024-2-12 23:32 编辑 
+
+自杀了吧, 成空壳了呗. 
+
+最后的期待只能是歌姬还能在结局时返场不<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  zero12  
+##### 3764#       发表于 2024-2-12 23:31
+
+下集肯定就重启认主彼方了，套路
+
+*****
+
+####  cybernetics31  
+##### 3765#       发表于 2024-2-12 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">xb没死老婆啊老鸭
+
+*****
+
+####  cybernetics31  
+##### 3766#       发表于 2024-2-12 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">xb没死老婆啊老鸭
+
+*****
+
+####  NeloAngelo  
+##### 3767#       发表于 2024-2-12 23:33
+
+第19話「Body double」
+
+カナタを心配して後を追っていたエリーが見つけたのは、動かなくなったシエルを抱えた放心状態のカナタだった。自分のせいだと己を責めるカナタ。ノワールとミステル分離のタイムリミットが迫るなか、様々な葛藤を抱えたカナタに決断が迫られる―
+
+*****
+
+####  DARK_HGCG  
+##### 3768#       发表于 2024-2-12 23:34
+
+反派真是人渣
+
+*****
+
+####  charlespfan  
+##### 3769#       发表于 2024-2-12 23:35
+
+感觉还能抢救一下……
+
+*****
+
+####  NeloAngelo  
+##### 3770#       发表于 2024-2-12 23:35
+
+不用抢救了, 下集预告已经出来了, 一眼望到头的展开<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 3771#       发表于 2024-2-12 23:36
+
+这战斗中唱歌的风格太tony光明了
+
+*****
+
+####  NeloAngelo  
+##### 3772#       发表于 2024-2-12 23:36
+
+一定要有奇迹, 那只能是下集歌姬和noir融合了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约翰里德  
+##### 3773#       发表于 2024-2-12 23:37
+
+下集-超融合，穿越时空的羁绊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 3774#       发表于 2024-2-12 23:38
+
+<blockquote>NeloAngelo 发表于 2024-2-12 23:31
+自杀了吧, 成空壳了呗. 
+
+最后的期待只能是歌姬还能在结局时返场不</blockquote>
+看对话最后靠戒指挡了，预告也只是说不能行动了。之前noir是说要找台空机子转移，这不就来了。
+
+就看这歌姬和noir合体能不能回光返照一下
+
+*****
+
+####  皮悠  
+##### 3775#       发表于 2024-2-12 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949923&amp;ptid=2092345" target="_blank">cybernetics31 发表于 2024-2-12 23:33</a>
+
+这动画最好看的就是歌姬相关的了xb没死老婆啊老鸭</blockquote>
+不是也有一个能控场的最后。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3776#       发表于 2024-2-12 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">xb2小绿这不就来了
+

@@ -382,3 +382,11 @@ kanata就是男版<img src="https://static.saraba1st.com/image/smiley/carton2017
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  星降る森  
+##### 3780#       发表于 2024-2-13 00:06
+
+但我觉得很可能结局寄的是米斯提，noir不可能一直塞在歌姬身体里，到最后大几率还是各回各家
+

@@ -410,3 +410,32 @@ Weisheit Blaurecht
 这动画最好看的就是歌姬相关的了xb没死老婆啊老鸭</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这动画就是什么作品都要“致敬”一下，所以什么都像又什么都不完全像
 
+
+*****
+
+####  NeloAngelo  
+##### 3783#       发表于 2024-2-13 00:46
+
+<img src="https://img.saraba1st.com/forum/202402/13/004516w0jjn8n229yt7nw9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>58D0D7BE-E4A9-43B4-81DD-353D03CA9F2C.jpeg</strong> (284.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 00:45 上传
+
+卫浴柜被牛太多次了吧<img src="https://static.saraba1st.com/image/smiley/carton2017/366.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnrealApartheid  
+##### 3784#       发表于 2024-2-13 00:50
+
+ 本帖最后由 UnrealApartheid 于 2024-2-13 00:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949902&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-02-12 23:31:11</a><blockquote>自杀了吧, 成空壳了呗.</blockquote>最后的期待只能是歌姬还能在结局时返场不</blockquote>
+感觉还不如玛哈在颤抖时一狙击中断有冲击力
+
+在制造爆点上，鸭志田只能说依旧比不过大河内……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

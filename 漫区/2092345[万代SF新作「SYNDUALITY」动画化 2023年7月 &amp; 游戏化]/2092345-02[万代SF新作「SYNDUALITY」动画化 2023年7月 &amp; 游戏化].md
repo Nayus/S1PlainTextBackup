@@ -64,3 +64,28 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 
 原画这么好看以后干脆别上色了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 3743#       发表于 2024-2-12 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62019186&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2023-8-14 02:43</a>
+
+奇异贤伴 C102
+
+适用对象：秘密信息权限B</blockquote>
+设定在这
+
+*****
+
+####  NeloAngelo  
+##### 3744#       发表于 2024-2-12 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62019186&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2023-8-14 02:43</a>
+
+奇异贤伴 C102
+
+适用对象：秘密信息权限B</blockquote>
+设定在这
+

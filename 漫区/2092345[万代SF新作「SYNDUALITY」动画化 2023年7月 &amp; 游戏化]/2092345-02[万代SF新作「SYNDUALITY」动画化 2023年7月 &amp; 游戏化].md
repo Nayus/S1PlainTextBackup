@@ -189,3 +189,41 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyMS  
+##### 3756#       发表于 2024-2-12 23:27
+
+这就没呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NeloAngelo  
+##### 3757#       发表于 2024-2-12 23:28
+
+ＳＹＮＤＵＡＬＩＴＹ　Ｎｏｉｒ《19話》Body　double
+
+*****
+
+####  Ditfran  
+##### 3758#       发表于 2024-2-12 23:28
+
+看来不会寄了
+
+*****
+
+####  星降る森  
+##### 3759#       发表于 2024-2-12 23:29
+
+这随便按按就能死了吗？还是初始化了？
+
+*****
+
+####  NeloAngelo  
+##### 3760#       发表于 2024-2-12 23:29
+
+没话说的, 真就这样写啊.<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

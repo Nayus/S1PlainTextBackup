@@ -14,3 +14,24 @@
 
 2024-2-12 22:15 上传
 
+
+*****
+
+####  瓦格雷  
+##### 129#       发表于 2024-2-12 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940250&amp;ptid=2164773" target="_blank">commcody 发表于 2024-2-11 16:40</a>
+
+2月11日，S28与B10第一次合体</blockquote>
+为什么右面的真空内侧全白?
+
+*****
+
+####  瓦格雷  
+##### 130#       发表于 2024-2-12 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63940250&amp;ptid=2164773" target="_blank">commcody 发表于 2024-2-11 16:40</a>
+
+2月11日，S28与B10第一次合体</blockquote>
+为什么右面的真空内侧全白?
+

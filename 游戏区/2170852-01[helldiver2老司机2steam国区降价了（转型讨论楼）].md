@@ -2015,3 +2015,12 @@ ps单排野队到23级，如果没配合的话，连喷+激光无人机+电弧�
 
 电弧用习惯了还挺好使 就是队友和怪太近得切武器 还有被机器人的跳脸背包兵炸死几次(
 
+
+*****
+
+####  Launce  
+##### 229#       发表于 2024-2-12 09:19
+
+I know the progression issue is frustrating, especially for newer divers that want to unlock sweet gear. For now, please once again accept our sincere apologies for the issues you’re facing and rest assured, we’re doing our utmost to make it right. In order to do so, right now it is crucial that our team gets some sleep and we will be back at this again in a few hours.
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不想修可以不修
+

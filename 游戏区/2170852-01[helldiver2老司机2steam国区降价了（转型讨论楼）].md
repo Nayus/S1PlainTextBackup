@@ -2106,3 +2106,14 @@ Johan
 
 钱要赚的，服务器要扣的，真的是
 
+
+*****
+
+####  梦诗歌雪  
+##### 238#       发表于 2024-2-12 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63945023&amp;ptid=2170852" target="_blank">sixgun 发表于 2024-2-12 10:49</a>
+
+今天联网匹配又经常失败，屑</blockquote>
+快速匹配90%的时间都是无法进入大厅<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">开了加速器也没用
+

@@ -19371,3 +19371,20 @@ MFS的Nothing in the Story（）
 
 你可能错过了15岁的进藤天音，但你不能错过24岁的羊宫妃那。<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 12456#       发表于 2024-2-12 19:15
+
+技术好还算啥朋克
+
+*****
+
+####  6030sylar  
+##### 12457#       发表于 2024-2-12 19:15
+
+<img src="https://p.sda1.dev/15/df0f2db1b46d4da6cbfe42752b4f90d7/6546EE1DE185ACC6287CF84A45254229_0.gif" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

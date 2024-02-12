@@ -2566,3 +2566,16 @@ discord Reddit X均无事发生</blockquote>
 C:\Users\user-id\AppData\Roaming\Arrowhead\Helldivers2\crash_data\attachments
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 288#       发表于 2024-2-12 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63948433&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-12 21:19</a>
+
+报错文件 user-settings.config，里面有个survey_url = "https://youtu.be/dQw4w9WgXcQ"
+
+C:%users%user-id\ ...</blockquote>
+艹，怎么还嘲讽玩家的，素质太差了
+

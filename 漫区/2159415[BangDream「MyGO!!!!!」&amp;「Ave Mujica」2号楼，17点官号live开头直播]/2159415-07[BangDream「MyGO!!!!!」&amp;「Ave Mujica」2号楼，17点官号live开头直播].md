@@ -19627,3 +19627,47 @@ IMG_1138.jpeg
 
 哪怕蝶刚开始的tymm也有伟大的肉体，和羊对邦羊不担心gachi都被吸走吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 12486#       发表于 2024-2-12 21:45
+
+我都怕羊憋死在台上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+太惨烈了
+
+*****
+
+####  NODY  
+##### 12487#       发表于 2024-2-12 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63948499&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-12 21:25</a>
+
+鼓子呢，我还挺喜欢鼓子和立希的，可以真的成为鸡第六人吗，我仅代表个人宣布没意见 ...</blockquote>
+节奏组都在C，可惜臭底边无力回天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 12488#       发表于 2024-2-12 21:47
+
+别让她在现场唱君の神様なりたい了 我害怕…<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12489#       发表于 2024-2-12 21:48
+
+之前烤羊那么惨烈都一大堆人反对换声优，认为换声优会跑掉一大堆人的，现在不好说了，再这样下去换声优跑的人还真不一定有被羊女士气走的人多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 12490#       发表于 2024-2-12 21:50
+
+ 本帖最后由 6030sylar 于 2024-2-12 21:51 编辑 
+
+我是千早爱音.jpg<img src="https://p.sda1.dev/15/34e712b5aef61b22c82f1e8b513c18f0/Image_1707745557110.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

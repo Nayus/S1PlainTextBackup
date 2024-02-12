@@ -19468,3 +19468,28 @@ MFS的Nothing in the Story（）
 
 <[img src="https://iili.io/J1iqDwg.md.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  すぴぱら  
+##### 12467#       发表于 2024-2-12 20:04
+
+新歌前三句原来真的是那样唱的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">错怪羊忘词了
+
+*****
+
+####  基神的强袭自由  
+##### 12468#       发表于 2024-2-12 20:10
+
+<img src="https://s2.loli.net/2024/02/12/d93YjIu1q6ecpmS.png" referrerpolicy="no-referrer">
+
+打野的走位就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12469#       发表于 2024-2-12 20:10
+
+四单mv就拿巡演宣传图抠图+无路矢背景复用应付是吧，我们武士道真是太环保了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

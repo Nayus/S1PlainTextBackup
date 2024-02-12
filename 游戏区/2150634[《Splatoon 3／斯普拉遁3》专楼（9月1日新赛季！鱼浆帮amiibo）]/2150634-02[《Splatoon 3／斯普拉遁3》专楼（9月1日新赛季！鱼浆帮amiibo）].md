@@ -13396,3 +13396,11 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 表面上消防栓坑，但是北斋也很坑
 
+
+*****
+
+####  墨染白泉  
+##### 2810#       发表于 2024-2-12 11:41
+
+2v2活动小枪优势大啊，排到一把对面是4k+重刷，报了平时被射程霸凌的仇<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

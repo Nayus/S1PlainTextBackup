@@ -2024,3 +2024,13 @@ ps单排野队到23级，如果没配合的话，连喷+激光无人机+电弧�
 I know the progression issue is frustrating, especially for newer divers that want to unlock sweet gear. For now, please once again accept our sincere apologies for the issues you’re facing and rest assured, we’re doing our utmost to make it right. In order to do so, right now it is crucial that our team gets some sleep and we will be back at this again in a few hours.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不想修可以不修
 
+
+*****
+
+####  琦乐无穷  
+##### 230#       发表于 2024-2-12 09:44
+
+实测开了一局游戏，进游戏还是会转圈，只能无限挤进去。社交功能恢复，可以看到在线好友，结算也恢复正常了。
+
+就是神奇bug一样没少，刚就碰上个撤离不刷怪的局。
+

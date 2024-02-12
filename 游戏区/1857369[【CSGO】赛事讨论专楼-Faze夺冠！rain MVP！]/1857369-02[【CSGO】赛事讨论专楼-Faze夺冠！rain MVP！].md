@@ -117,3 +117,21 @@ cs真正的超人出现了，纯粹的枪法纯粹的准<img src="https://static
 
 三张图82-40……
 
+
+*****
+
+####  曼彻斯特联  
+##### 3973#       发表于 2024-2-12 09:38
+
+donk有一种把集锦压缩进完整比赛的美感<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+看看在哥本哈根有没有战术大师能拿出东西钳制他吧。
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rainwedell  
+##### 3974#       发表于 2024-2-12 09:40
+
+donk打不过的是上帝和李子那套，真要针对估计从那边学。ykd当初那个打法强了3个月大家才给他关的差不多了，donk打的明显更聪明，major前还真不一定关的住
+

@@ -19297,3 +19297,33 @@ kirakiradokidoki来了
 
 这场live的时间分配也太离谱了吧，前面不到五分钟的mc连唱一小时，后面工商环节聊了快半小时了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 12448#       发表于 2024-2-12 18:45
+
+也太有节目效果了
+
+*****
+
+####  6030sylar  
+##### 12449#       发表于 2024-2-12 18:46
+
+<img src="https://img.saraba1st.com/forum/202402/12/184623qcdrqcdqywke8q6u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 18:46 上传
+
+对观众使出炎拳吧
+
+*****
+
+####  氷川日菜  
+##### 12450#       发表于 2024-2-12 18:49
+
+大鼓怎么丢拨片不丢鼓棒
+

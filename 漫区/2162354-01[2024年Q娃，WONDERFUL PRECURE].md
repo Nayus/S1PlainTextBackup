@@ -4098,3 +4098,20 @@ fy
 
 所以最后就是猫组跟兔子在外面给小麦和彩羽加油，然后小麦跟彩羽手捏10个毛茸茸之魂合体进化成Cure Susanoomon是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 881#       发表于 2024-2-12 18:43
+
+这几年q娃一直弱化反派战斗要素 都这样了学学隔壁美妙把ip本名プリキュア给全改了 这样美其名曰不用画打戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有 不怕今年没有反派 就怕再整一个恶心绿毛男人凑cp<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 882#       发表于 2024-2-12 18:46
+
+能请小中千昭来写q娃吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

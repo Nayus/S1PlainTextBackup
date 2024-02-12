@@ -4269,3 +4269,22 @@ fy
 
 今年是来干什么的
 
+
+*****
+
+####  放哨的狼  
+##### 897#       发表于 2024-2-13 06:18
+
+第二集成田那点卖bg的小九九还是挺明显，但还是不如Bpart小麦战前的直球告白，成田写小女孩贴贴的水平薄纱她写的那点bg
+
+然而抵不住成田就爱写bg，这么多年她都忘不掉那套一个part贴贴下个part就转去给男人戏份的结构<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maoyou  
+##### 898#       发表于 2024-2-13 06:20
+
+就喜欢成田这口贵乱，男女，女女都有份<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -2125,3 +2125,11 @@ Johan
 
 昨晚就进不去，现在还是进不去，这些鬼佬所谓睡觉是去冬眠吗
 
+
+*****
+
+####  PlasmaSnake  
+##### 240#       发表于 2024-2-12 12:26
+
+这不就是卡人口是我暴兵猛，余钱多是我运营好吗，真是让你牛逼完啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

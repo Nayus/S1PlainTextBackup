@@ -4051,3 +4051,14 @@ ps:这屏蔽词是……**？
 
 fy
 
+
+*****
+
+####  pokemon最爱  
+##### 876#       发表于 2024-2-12 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63945427&amp;ptid=2162354" target="_blank">zyw0 发表于 2024-2-12 12:19</a>
+
+不是。这汪q等后面人多了要怎么办。一起抱上去也太夸张了</blockquote>
+第5集入手净化武器，之后应该就是净化技去净化了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -19576,3 +19576,18 @@ IMG_1138.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懒得掺和了而已，毕竟不关心
 
+
+*****
+
+####  羊宮妃那  
+##### 12479#       发表于 2024-2-12 21:17
+
+老老实实淹没在gachi里歌颂我吧
+
+*****
+
+####  Arrogate  
+##### 12480#       发表于 2024-2-12 21:20
+
+↑楼上的羊姐是机器人吗
+

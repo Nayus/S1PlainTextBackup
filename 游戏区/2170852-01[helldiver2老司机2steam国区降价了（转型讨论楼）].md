@@ -2555,3 +2555,14 @@ discord Reddit X均无事发生<img src="https://static.saraba1st.com/image/smil
 discord Reddit X均无事发生</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">玛戈几，这公关缩头乌龟倒是挺会当的
 
+
+*****
+
+####  Launce  
+##### 287#       发表于 2024-2-12 21:19
+
+报错文件 user-settings.config，里面有个survey_url = "https://youtu.be/dQw4w9WgXcQ"
+
+C:\Users\user-id\AppData\Roaming\Arrowhead\Helldivers2\crash_data\attachments
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

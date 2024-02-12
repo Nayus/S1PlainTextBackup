@@ -19806,3 +19806,15 @@ MyGO场一半中国人很正常。
 
 如果真的不能换人，那么给动物朋友安排一个现实点的强度然后在指导下慢慢提升能力或许更容易达成吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 12506#       发表于 2024-2-12 23:14
+
+@nebulanoby
+
+发表于 2024-2-12 22:13
+
+soyo发现祥子、睦开新乐队时应该就是这个眼神吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

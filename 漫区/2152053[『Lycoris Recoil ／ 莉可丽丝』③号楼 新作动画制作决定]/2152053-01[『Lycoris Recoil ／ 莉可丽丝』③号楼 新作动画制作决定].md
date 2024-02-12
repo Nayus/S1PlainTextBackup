@@ -970,3 +970,42 @@
 
 2024-2-12 23:08 上传
 
+
+*****
+
+####  Saber琪  
+##### 1690#       发表于 2024-2-12 23:14
+
+https://twitter.com/Lifeissoloud/status/1756904355511599573?s=19
+
+GIF动画，录制了没法上传<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+[https://twitter.com/Bee_EK101021/status/1756897638522536052?s=19](https://twitter.com/Bee_EK101021/status/1756897638522536052?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/12/231102kzc1f6f9fifohc8c.jpg" referrerpolicy="no-referrer">
+
+<strong>20240212_231046.jpg</strong> (254.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 23:11 上传
+
+[https://twitter.com/sango3_3/status/1757053876044464324?s=19](https://twitter.com/sango3_3/status/1757053876044464324?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/12/231219jx10g00f2n3pu1c3.jpg" referrerpolicy="no-referrer">
+
+<strong>20240212_231137.jpg</strong> (70.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 23:12 上传
+
+[https://twitter.com/toka_toka/status/1757032678040424611?s=19](https://twitter.com/toka_toka/status/1757032678040424611?s=19)
+
+<img src="https://img.saraba1st.com/forum/202402/12/231357gc1sggc7ynsyzkjn.jpg" referrerpolicy="no-referrer">
+
+<strong>20240212_231337.jpg</strong> (219.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 23:13 上传
+

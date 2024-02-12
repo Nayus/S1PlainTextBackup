@@ -154,3 +154,38 @@ SYNDUALITY Noir 16話、少しだけLOと原画しておりました。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyMS  
+##### 3752#       发表于 2024-2-12 23:15
+
+歌姬这flag拉满了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  novyMS  
+##### 3753#       发表于 2024-2-12 23:20
+
+全部演员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zero12  
+##### 3754#       发表于 2024-2-12 23:21
+
+这是谁牛谁啊？
+
+*****
+
+####  NeloAngelo  
+##### 3755#       发表于 2024-2-12 23:23
+
+要 来 了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

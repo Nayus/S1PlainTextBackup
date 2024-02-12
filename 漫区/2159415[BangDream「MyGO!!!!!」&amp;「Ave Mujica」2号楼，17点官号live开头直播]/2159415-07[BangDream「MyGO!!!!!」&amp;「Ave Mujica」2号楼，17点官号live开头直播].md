@@ -19696,3 +19696,32 @@ IMG_1138.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  K·os  
+##### 12494#       发表于 2024-2-12 22:14
+
+楼友好快的滑坡速度，这个live强度是邦多利惯例，都是“故事的一部分”
+
+*****
+
+####  Aloereed  
+##### 12495#       发表于 2024-2-12 22:17
+
+单说曲目数量其实确实只能算惯例。
+
+只能说曲目编排可能有点问题
+
+再加上羊宫妃那女士真的感觉完全没按照声理学的唱法
+
+就显得很声嘶力竭了
+
+*****
+
+####  蒜苗  
+##### 12496#       发表于 2024-2-12 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949003&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-2-12 22:13</a></blockquote>
+有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

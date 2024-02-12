@@ -4249,3 +4249,11 @@ fy
 
 不过卖bg的话目前男主的设定上来看属实看不出有啥戏份好写的——但我感觉男主那个人设迟早要黑化一波（讲道理，人也是动物啊hhh），到时让女主感化时还能卖卖bg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 895#       发表于 2024-2-13 02:56
+
+看到派Q帖子里有人吹甜梦猫，看了一集，这不是吊打派Q，乐子拉满了，先当代餐吃起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

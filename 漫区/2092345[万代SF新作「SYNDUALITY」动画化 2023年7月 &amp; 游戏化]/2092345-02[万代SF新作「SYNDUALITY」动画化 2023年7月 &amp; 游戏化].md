@@ -439,3 +439,15 @@ Weisheit Blaurecht
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  亚瑟邓特  
+##### 3785#       发表于 2024-2-13 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63950389&amp;ptid=2092345" target="_blank">UnrealApartheid 发表于 2024-2-13 00:50</a>
+感觉还不如“玛哈在颤抖时一狙击中并中断希耶尔能力”有冲击力
+
+在制造爆点上，鸭志田只能说依旧比不过大河 ...</blockquote>
+辱大河内了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，老鸭主业都越写越拉稀了
+

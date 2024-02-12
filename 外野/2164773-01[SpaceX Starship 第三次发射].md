@@ -35,3 +35,14 @@
 2月11日，S28与B10第一次合体</blockquote>
 为什么右面的真空内侧全白?
 
+
+*****
+
+####  FeliciaCWells  
+##### 131#       发表于 2024-2-13 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949845&amp;ptid=2164773" target="_blank">瓦格雷 发表于 2024-2-12 23:24</a>
+
+为什么右面的真空内侧全白?</blockquote>
+99新仅开箱未激活
+

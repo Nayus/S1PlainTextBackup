@@ -19747,3 +19747,11 @@ IMG_1138.jpeg
 
 主要是吃胖了还不锻炼体力，约等于白吃了，人带鼓也吃得多但好歹营养都给用到正确的地方了（无论是体力还是肉体）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 12500#       发表于 2024-2-12 22:35
+
+先争取不忘词然后别倒嗓再然后减肥，唱歌和营业已经不指望了，不换人就是这么个情况
+

@@ -451,3 +451,23 @@ Weisheit Blaurecht
 在制造爆点上，鸭志田只能说依旧比不过大河 ...</blockquote>
 辱大河内了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，老鸭主业都越写越拉稀了
 
+
+*****
+
+####  RE㐅ia  
+##### 3786#       发表于 2024-2-13 01:03
+
+错过直播了，这集爆了什么大的没（
+
+*****
+
+####  NeloAngelo  
+##### 3787#       发表于 2024-2-13 01:07
+
+这是个毛的爆点, 只存在于剧本形式上的爆点吧, 这毫无意外的展开, 鸭志田自己相信这能成为爆点吗
+
+不过想到第一季"黑假面就是幕后黑手组织的一员"似乎也被突出成爆点, 我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但第一季也有"tokio认识黑假面"这种爆点, 所以我是觉得鸭志田还是有点逼数的吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2544,3 +2544,14 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 卡结算修复了吗？</blockquote>
 discord Reddit X均无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 286#       发表于 2024-2-12 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63947953&amp;ptid=2170852" target="_blank">山风短 发表于 2024-2-12 20:28</a>
+
+discord Reddit X均无事发生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">玛戈几，这公关缩头乌龟倒是挺会当的
+

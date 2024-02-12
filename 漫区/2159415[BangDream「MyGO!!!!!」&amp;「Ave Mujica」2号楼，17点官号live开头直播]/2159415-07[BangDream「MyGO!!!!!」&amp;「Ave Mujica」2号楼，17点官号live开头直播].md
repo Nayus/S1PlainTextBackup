@@ -19522,3 +19522,11 @@ MFS的Nothing in the Story（）
 
 你狗应该多搞一点双主唱的歌，有青木给羊挽尊，听感应该不会太差<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 12473#       发表于 2024-2-12 20:46
+
+放完假我要学习下GPT-SoVITS手动搞个🐏版envy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

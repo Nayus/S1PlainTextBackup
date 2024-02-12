@@ -2235,3 +2235,29 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 
 侦查甲护卫犬磁轨炮应该就是野排版本答案了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 251#       发表于 2024-2-12 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63945835&amp;ptid=2170852" target="_blank">wasian 发表于 2024-2-12 14:47</a>
+和朋友9级爽刷了，说点心得
+
+磁轨枪非常强，万金油武器，改射击模式不安全什么终结虫泰坦蘑菇孢子机器人都是 ...</blockquote>
+机炮也可以清虫巢，在虫巢外的高地游走，看到巢穴就给一炮，卡好距离比榴弹更安逸
+
+*****
+
+####  桥洞底下盖小被  
+##### 252#       发表于 2024-2-12 14:18
+
+游戏确实可以，但服务器真尼玛的屎<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 253#       发表于 2024-2-12 14:21
+
+磁轨步枪解除安全限制后蓄力多久是最大伤害啊？我看别人用这枪可以两枪爆头秒泰坦，我自己打要打十多枪，不知道是哪里操作不对来自: iPhone客户端
+

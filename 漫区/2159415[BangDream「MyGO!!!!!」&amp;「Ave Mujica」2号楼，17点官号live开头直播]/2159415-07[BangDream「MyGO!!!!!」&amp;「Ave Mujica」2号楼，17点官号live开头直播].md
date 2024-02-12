@@ -19032,3 +19032,43 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 访谈说的是每周会练习一次，真实性就不好说了，不过神明大人这首至少够拼命，比有气无力要顺眼点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tuichu0425  
+##### 12420#       发表于 2024-2-12 17:56
+
+不得不说 拼命是真的太拼命了
+
+*****
+
+####  NODY  
+##### 12421#       发表于 2024-2-12 17:57
+
+让人充分理解为何“主唱太拼命了”是贬义的唱腔，不过至少给我带来了快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フミさん  
+##### 12422#       发表于 2024-2-12 17:59
+
+卧槽连唱，羊姐太拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 12423#       发表于 2024-2-12 18:00
+
+这团解散前我想看一次比较完美的音一会<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+很认真的考虑力劝朋友的硬核团翻一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aliceblue  
+##### 12424#       发表于 2024-2-12 18:01
+
+太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -19072,3 +19072,35 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 12425#       发表于 2024-2-12 18:03
+
+好消息：主唱很拼命
+
+坏消息：主唱只剩拼命了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12426#       发表于 2024-2-12 18:06
+
+新歌还是直接等录音室版本吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑道复制人  
+##### 12427#       发表于 2024-2-12 18:08
+
+开什么玩笑啊混账！耍我啊混账！
+
+*****
+
+####  6030sylar  
+##### 12428#       发表于 2024-2-12 18:13
+
+观众都不想喊encore了
+

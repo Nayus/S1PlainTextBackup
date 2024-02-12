@@ -390,3 +390,23 @@ kanata就是男版<img src="https://static.saraba1st.com/image/smiley/carton2017
 
 但我觉得很可能结局寄的是米斯提，noir不可能一直塞在歌姬身体里，到最后大几率还是各回各家
 
+
+*****
+
+####  NeloAngelo  
+##### 3781#       发表于 2024-2-13 00:18
+
+Weisheit Blaurecht
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3782#       发表于 2024-2-13 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949927&amp;ptid=2092345" target="_blank">cybernetics31 发表于 2024-2-12 23:33</a>
+
+这动画最好看的就是歌姬相关的了xb没死老婆啊老鸭</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这动画就是什么作品都要“致敬”一下，所以什么都像又什么都不完全像
+

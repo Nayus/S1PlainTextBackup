@@ -2498,3 +2498,39 @@ twitch现在绝地潜兵有掉落奖励活动，但是进去看直播，没有�
 闪退是直接掉出对局，不能重连了是吗？</blockquote>
 除非好友，否则基本就是退了
 
+
+*****
+
+####  梦诗歌雪  
+##### 281#       发表于 2024-2-12 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63946514&amp;ptid=2170852" target="_blank">Lorraine_Kinney 发表于 2024-2-12 16:30</a>
+
+贴吧说关闭设置里的数据共享可以改善一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">是向官方共享数据那个吗，关了声音还是一样卡。而且感觉今天bug尤其多，连续四把看不到撤离飞船或者看到了上不去
+
+*****
+
+####  Gmlazy  
+##### 282#       发表于 2024-2-12 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63947518&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-2-12 19:26</a>
+除非好友，否则基本就是退了</blockquote>
+打到终盘掉出去……这挫折感一下就上来了…
+
+*****
+
+####  Gmlazy  
+##### 283#       发表于 2024-2-12 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63947518&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-2-12 19:26</a>
+除非好友，否则基本就是退了</blockquote>
+打到终盘掉出去……这挫折感一下就上来了…
+
+*****
+
+####  jy000129  
+##### 284#       发表于 2024-2-12 19:57
+
+卡结算修复了吗？
+

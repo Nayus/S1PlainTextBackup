@@ -92,3 +92,35 @@
 
 一宝仓管就仓管了，看着乐
 
+
+*****
+
+####  麻花疼  
+##### 46155#       发表于 2024-2-12 17:49
+
+这次抽卡真玄学了，本来根本没打算抽的，结果中午喝了几杯酒，竟然梦到2.7的剧情了，烟哥对着我笑着说了句什么话，我没听清就醒了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+醒后感觉身上不舒服，准备出门跑步散步，回家洗澡后打开游戏，心想着今天的友情池还没抽。
+
+结果10连出了lily，于是又想起中午的梦了。
+
+大概天启抽卡就是这样吧。。。
+
+<img src="https://img.saraba1st.com/forum/202402/12/174547bru9tccr6czr3ru8.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (753.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202402/12/174546fbq0d7bbu36otur7.png" referrerpolicy="no-referrer">
+
+<strong>222.png</strong> (456.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-12 17:45 上传
+
+660石，50护符，出了2雨神2烟哥，歪了个双子剑五星，其他四星没算，意外之喜是CEO歪出来了，可以开硬币被动了！
+

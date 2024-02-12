@@ -4090,3 +4090,11 @@ fy
 进化这个，会让人想到本作SD佐藤雅教本身是看了数码宝贝大冒险才进入东映做动画这个轶事，然后小麦bank是大 ...</blockquote>
 这么说我看Friendy变身前彩叶对小麦感同身受那段有数码34的人/数码兽合体进化的感觉，原来不是错觉的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 880#       发表于 2024-2-12 17:44
+
+所以最后就是猫组跟兔子在外面给小麦和彩羽加油，然后小麦跟彩羽手捏10个毛茸茸之魂合体进化成Cure Susanoomon是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

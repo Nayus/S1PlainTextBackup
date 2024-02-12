@@ -18989,3 +18989,46 @@ AG都来了，声优团和真人团亮不两码事么，就算退一百步真一
 
 感觉动物朋友有的时候会很微妙的不在调上，是无调性先锋派唱法吗
 
+
+*****
+
+####  滑稽Captain  
+##### 12415#       发表于 2024-2-12 17:45
+
+👊擅长领域：念经！
+
+*****
+
+####  stygian  
+##### 12416#       发表于 2024-2-12 17:45
+
+ 本帖最后由 stygian 于 2024-2-12 17:48 编辑 
+
+潜在表明还行
+
+直接翻envy或者la dispute算了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 12417#       发表于 2024-2-12 17:48
+
+光吼了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我听都觉得辛苦
+
+*****
+
+####  rslika  
+##### 12418#       发表于 2024-2-12 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会是平时不怎么练巡演半天排练半天演出吧
+歌舞能这么搞乐队真的能这么搞吗
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  NODY  
+##### 12419#       发表于 2024-2-12 17:50
+
+访谈说的是每周会练习一次，真实性就不好说了，不过神明大人这首至少够拼命，比有气无力要顺眼点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

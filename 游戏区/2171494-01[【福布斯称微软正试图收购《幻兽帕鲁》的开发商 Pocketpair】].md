@@ -1636,3 +1636,16 @@ That’s why in all this chaos I believe something else is no doubt happening be
 
 只是一个记者觉得会收购怎么就开始喷微软了 无语了
 
+
+*****
+
+####  kuarwbwe  
+##### 135#       发表于 2024-2-12 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63938262&amp;ptid=2171494" target="_blank">blackll7 发表于 2024-2-11 10:35</a>
+
+我看你们这样搞下去迟早帕鲁要和不能提的游戏一个待遇。
+
+—— 来自 OnePlus CPH2487, Android 13上 ...</blockquote>
+本来两家早期也就是差一个不开盒，现在连盒都开了，那除了帕鲁官方没有直接下场引导玩家网暴以外也没啥区别了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

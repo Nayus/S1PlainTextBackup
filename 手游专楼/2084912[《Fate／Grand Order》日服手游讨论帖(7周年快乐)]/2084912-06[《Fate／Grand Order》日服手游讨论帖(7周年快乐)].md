@@ -479,3 +479,15 @@ A2D126AD-2CA6-4EFD-A124-52F804A2BF30.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以关服前能出完全体的B叔么 三个零件都能弄出三个冠位
 
+
+*****
+
+####  eilot  
+##### 11343#       发表于 2024-2-12 17:07
+
+ 本帖最后由 eilot 于 2024-2-12 17:09 编辑 
+
+30石卡連池，沒事發生
+
+90石，BX池，1隻4星的帕西瓦爾(一早寶5...第8張)，其中一次是11張有8張都是3星大河吃巧克力的卡....
+

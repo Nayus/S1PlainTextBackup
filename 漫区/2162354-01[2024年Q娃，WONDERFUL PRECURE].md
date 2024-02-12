@@ -4072,3 +4072,11 @@ fy
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Cloudslin  
+##### 878#       发表于 2024-2-12 16:42
+
+进化这个，会让人想到本作SD佐藤雅教本身是看了数码宝贝大冒险才进入东映做动画这个轶事，然后小麦bank是大西亮，之前有在DA棚活跃，冥冥之中的一些联系。
+

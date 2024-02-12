@@ -19388,3 +19388,35 @@ MFS的Nothing in the Story（）
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  stygian  
+##### 12458#       发表于 2024-2-12 19:25
+
+林我觉得表现的还行了
+当然我不否认虹人滤镜因素
+
+*****
+
+####  tuichu0425  
+##### 12459#       发表于 2024-2-12 19:27
+
+1小时15首歌 这还烤个p的羊 烤mggm吧 羊没似我手机里已经很给面子了
+
+*****
+
+####  NODY  
+##### 12460#       发表于 2024-2-12 19:30
+
+带鼓队员从live表现到mc到肉体全都在c，却摊上了一个待遇最差的角色，令人唏嘘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 12461#       发表于 2024-2-12 19:33
+
+羊确实还是唱得太拉了，真的是只剩拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然这个安排确实比较难顶，也不能全怪她
+
+感觉还是应该调整一下节目安排扎扎实实练好唱好几首歌，本来体力和水平就差了，就别每次一个多点小时十几首这样瞎折腾了吧<img src="https://static.saraba1st.com/image/smiley/carton2017/402.png" referrerpolicy="no-referrer">
+

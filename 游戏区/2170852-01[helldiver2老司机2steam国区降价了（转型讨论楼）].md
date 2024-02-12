@@ -2603,3 +2603,13 @@ C:%users%user-id\ ...</blockquote>
 
 我艹，吞结算就算了连日常奖励都吞？<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  佑叶  
+##### 292#       发表于 2024-2-13 01:53
+
+遇到了奇怪的bug，我自己日常早上就完成了，刚刚带2两个新买游戏的朋友，一盘拿了49个勋章，应该是3个人的日常奖励15x3和任务奖励4个。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

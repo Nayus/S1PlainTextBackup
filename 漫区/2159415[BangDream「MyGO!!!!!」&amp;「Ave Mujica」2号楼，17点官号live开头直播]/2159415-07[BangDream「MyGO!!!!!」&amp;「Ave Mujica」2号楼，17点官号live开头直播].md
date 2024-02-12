@@ -19904,3 +19904,24 @@ soyo发现祥子、睦开新乐队时应该就是这个眼神吧<img src="https:
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不就和舞台烧酒一样了，全在公式书里
 
+
+*****
+
+####  nh_zzz  
+##### 12514#       发表于 2024-2-13 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949089&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-12 22:26</a>
+现实一点，指望好好唱歌基本没戏了，不如写信表达羊或者青木已胖到出戏——希望减肥 ...</blockquote>
+已经在减肥了，海猫已经开始排练了
+加上7月少歌军训不瘦都挺难的
+
+*****
+
+####  nh_zzz  
+##### 12515#       发表于 2024-2-13 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949089&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-12 22:26</a>
+现实一点，指望好好唱歌基本没戏了，不如写信表达羊或者青木已胖到出戏——希望减肥 ...</blockquote>
+已经在减肥了，海猫已经开始排练了
+加上7月少歌军训不瘦都挺难的
+

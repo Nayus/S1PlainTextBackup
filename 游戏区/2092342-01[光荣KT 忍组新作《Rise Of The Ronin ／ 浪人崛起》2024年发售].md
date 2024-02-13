@@ -124,3 +124,13 @@ baidu了下没啥特别过火的？</blockquote>
 
 快进到doa待遇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s1mic  
+##### 634#       发表于 2024-2-14 00:50
+
+<blockquote>ultraseven 发表于 2024-2-14 00:23
+但也很奇怪，照这个口嗨标准，整个东亚、东南亚地区都不该发售啊</blockquote>
+現在還可以説，你信不信萬一浪人火了會有一推人跳出來反
+

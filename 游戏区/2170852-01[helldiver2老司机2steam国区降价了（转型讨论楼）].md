@@ -2783,3 +2783,13 @@ C:%users%user-id\ ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花式吞结算，结算闪退，这游戏的服务器到底做的是个啥啊
 
+
+*****
+
+####  airshit  
+##### 308#       发表于 2024-2-13 15:26
+
+怎么还不修，开发组也过年是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

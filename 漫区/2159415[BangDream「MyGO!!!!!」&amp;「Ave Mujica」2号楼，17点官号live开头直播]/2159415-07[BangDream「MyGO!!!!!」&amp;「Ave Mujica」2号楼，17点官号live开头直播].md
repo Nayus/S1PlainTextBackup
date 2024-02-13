@@ -20306,3 +20306,13 @@ https://stagegear.jp/20240127avemujica
 
 [@氷川日菜](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=571202) 加起来攻击性不如真白
 
+
+*****
+
+####  PDQ4  
+##### 12547#       发表于 2024-2-13 20:09
+
+ 本帖最后由 PDQ4 于 2024-2-13 20:11 编辑 
+
+不如指望下这期邦tv羊会说点什么，表面好好反省一下gachi大概马上就和解了，反正下两场没有配信。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道会不会放切片，萝的两位看了有什么想法。
+

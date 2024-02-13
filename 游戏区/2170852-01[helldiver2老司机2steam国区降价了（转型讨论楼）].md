@@ -2827,3 +2827,18 @@ C:%users%user-id\ ...</blockquote>
 
 说到日常任务，昨天上午看的击杀五百个机器人，午睡前看还差一百来个再开一把应该就满了，看时间还剩十五小时就准备下午再继续做。，结果下午一进游戏日常就变成机枪杀两百个敌人了，这日常倒计时怎么还骗人呢
 
+
+*****
+
+####  smdzh2  
+##### 313#       发表于 2024-2-13 21:49
+
+被坦克虫撞到卵巢地底，直接贴脸呼叫500kg精准打击，整个巢穴连同泰坦一起炸飞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 314#       发表于 2024-2-13 21:50
+
+不知道箭头这帮懒狗睡醒没有，能不能修一下无法空投队友的bug<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

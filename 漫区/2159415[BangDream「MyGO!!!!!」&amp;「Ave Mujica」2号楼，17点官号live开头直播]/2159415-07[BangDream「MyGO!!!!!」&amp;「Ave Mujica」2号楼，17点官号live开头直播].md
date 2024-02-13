@@ -20431,3 +20431,11 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 怎么感觉镜头切到青木就在低头看弦<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/4c530231307aae2623b137603bcc8b04/CMP_20240213214209189.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12560#       发表于 2024-2-13 21:47
+
+众所周知你邦只有一个声优不会给角色发生日祝福
+

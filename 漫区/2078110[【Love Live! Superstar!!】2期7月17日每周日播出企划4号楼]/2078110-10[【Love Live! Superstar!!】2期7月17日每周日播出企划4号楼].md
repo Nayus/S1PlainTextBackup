@@ -753,3 +753,32 @@ X上还有讨论这个的么？
 我说这两天怎么刷X的时候看见TM有人连鱼的有天籁之音的人都要嘴的，还说鱼看上去不想和可可一心同体的，莫 ...</blockquote>
 X上还有讨论这个的么？
 
+
+*****
+
+####  csolfans  
+##### 19508#       发表于 2024-2-13 10:51
+
+<blockquote>starring 发表于 2024-2-13 09:13
+正面的没人看，负面的一下子扩散出去，某人的mc真给自己和团队招黑</blockquote>
+那视频下面，有人刷屏式地评论说相关话题在X已经史诗级炎上。我倒想知道是真是假
+
+*****
+
+####  ViyViy  
+##### 19509#       发表于 2024-2-13 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951634&amp;ptid=2078110" target="_blank">伊卡石 发表于 2024-2-13 10:41</a>
+
+X上还有讨论这个的么？</blockquote>
+也就这两个，第一个是我首页推给我的，第二个是我搜可可的关键词跳出来的，第二个最后还叠了个甲说并不是讨厌鱼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 19510#       发表于 2024-2-13 10:53
+
+<blockquote>ruffian 发表于 2024-2-13 10:24
+只想知道那个青叶真司什么时候死？要么阿b出个拉黑能把回复一起屏蔽的功能，一看别人给他的回复就知道这傻 ...</blockquote>
+这确实是出生，到处跳
+

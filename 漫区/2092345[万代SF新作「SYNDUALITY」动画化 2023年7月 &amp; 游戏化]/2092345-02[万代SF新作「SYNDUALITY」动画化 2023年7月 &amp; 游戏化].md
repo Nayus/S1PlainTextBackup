@@ -785,3 +785,26 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  aptx8285144  
+##### 3821#       发表于 2024-2-13 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952350&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-2-13 12:44</a>
+
+这集观感就是一个（被）NTR爱好者玩脱老婆真跟别人跑了上一季最后已经暗示雪露主人是卫浴柜，上一集 ...</blockquote>
+面具男与修涅不但有第一季末尾对方脸红“作证”，还有大哥这话言语做包票，大哥看人应该还是挺准的（
+
+卫浴柜可以自己掏出个大萝卜或者大杀器啥的（
+
+*****
+
+####  aptx8285144  
+##### 3822#       发表于 2024-2-13 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952350&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-2-13 12:44</a>
+
+这集观感就是一个（被）NTR爱好者玩脱老婆真跟别人跑了上一季最后已经暗示雪露主人是卫浴柜，上一集 ...</blockquote>
+这话面具男都在问修涅你对大老板是什么感想了，这简直做好反水前的思想预备jpg
+

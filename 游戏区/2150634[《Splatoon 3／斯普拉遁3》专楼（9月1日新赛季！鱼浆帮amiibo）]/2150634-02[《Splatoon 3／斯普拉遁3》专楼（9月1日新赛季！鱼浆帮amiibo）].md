@@ -13575,3 +13575,11 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 下赛季大量2代元素是确定的，应该新双和新伞，刚好下周还有dlc
 
+
+*****
+
+####  skicerse  
+##### 2828#       发表于 2024-2-13 16:40
+
+你游真正的抽卡就是roll队友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

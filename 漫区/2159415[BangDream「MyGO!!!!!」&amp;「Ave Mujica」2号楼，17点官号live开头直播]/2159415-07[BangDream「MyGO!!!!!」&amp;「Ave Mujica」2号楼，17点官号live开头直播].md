@@ -19971,3 +19971,131 @@ mygo不是邦换血的重要一环嘛，真放弃嘛（
 
 wdnmd，我果然着了mygo的相了。这两天看老三国，看到徐庶被曹操派回来劝降刘备，我感觉有什么东西觉醒了，好想看徐庶见到刘备和诸葛亮鱼水相得直接破防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12521#       发表于 2024-2-13 09:31
+
+高强度巡演理论上是吸粉固粉的，狗这样开一次live就跑一波人真的少见，不过跑去推邦邦别的团也不是不行，总得来说也是给邦邦做贡献<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说幸好有个好动画吸了一大波角色粉可以继续作，就是不知道这样消耗一年还能剩多少就是，要是明年第二季某角色还是在给人垫脚我也要跑了
+
+*****
+
+####  氷川日菜  
+##### 12522#       发表于 2024-2-13 09:39
+
+<img src="https://p.sda1.dev/15/9f3ca7f25f1b4dc795a1c840d2f5e377/CMP_20240213093646045.jpg" referrerpolicy="no-referrer">
+原来是M×××××××的××××啊，还以为说的是我们M×××!!!!!的××××呢
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 可爱美味祥子| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 12523#       发表于 2024-2-13 09:50
+
+音宝至少真的有角色音要夹，纯本音唱歌的羊这下真输光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑道复制人  
+##### 12524#       发表于 2024-2-13 09:54
+
+羊宫现在这状态，高音嘶吼，幻想踩花，自由发挥歌词等等小细节，而且现在稳的一笔，真的看湿了，一天20首的ive真的是有效果的，天道酬勤。
+
+*****
+
+####  Aloereed  
+##### 12525#       发表于 2024-2-13 09:59
+
+监督也不可能次次live都去看。
+
+*****
+
+####  DarthAka  
+##### 12526#       发表于 2024-2-13 10:03
+
+剧场版重新剪一版“搏击俱乐部”，加一段灯爸是猫奶奶女婿，猫是灯幻想出来的，实际乐队就4个人
+
+*****
+
+####  DarthAka  
+##### 12527#       发表于 2024-2-13 10:43
+
+<blockquote>CyDiablo 发表于 2024-2-13 00:38
+是的，狗团年中6th开完就要宣final live了，这个答案楼友喜欢吗</blockquote>
+也挺好，去年林小姐明显工作过多了，年底直打蔫儿，这其中邦的性价比又最低
+
+*****
+
+####  可爱美味祥子  
+##### 12528#       发表于 2024-2-13 11:09
+
+ 本帖最后由 可爱美味祥子 于 2024-2-13 12:01 编辑 
+
+【MyGO!!!!! 壱雫空 现场版-哔哩哔哩】 https://b23.tv/RyfAgoL
+
+评论区笑死，想起以前一个天音妹妹唱CQCQ的切片，ayase绷不住笑出来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+【【邦邦/蝶团】6分钟听天音妹妹令人落泪的现场【Morfonica】-哔哩哔哩】 https://b23.tv/08tALM4
+04:50
+
+*****
+
+####  氷川日菜  
+##### 12529#       发表于 2024-2-13 11:28
+
+唉，回旋镖
+<img src="https://p.sda1.dev/15/cb5e5f538eeba06373a6d20e8e694834/CMP_20240213112649871.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/f4bc6b9b429ef685a2ffd9f7609609a0/CMP_20240213112728968.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12530#       发表于 2024-2-13 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/13/120640ttt8tqvmmask8a8b.jpg" referrerpolicy="no-referrer">
+
+<strong>D0D4672CCA14BC054FB20EDDBE8AAF06.jpg</strong> (42.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 12:06 上传
+
+*****
+
+####  蒜苗  
+##### 12531#       发表于 2024-2-13 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63950726&amp;ptid=2159415" target="_blank">とらドラ! 发表于 2024-2-13 02:23</a>
+现地佬很满意</blockquote>
+图床裂了
+
+*****
+
+####  剪切线  
+##### 12532#       发表于 2024-2-13 13:08
+
+【【中字直播切片】现役乐队人锐评MyGO zeppu live：作为个人技术还都不算很高，但是真的是一支乐队-哔哩哔哩】 [https://b23.tv/IBUb99p](https://b23.tv/IBUb99p)
+
+*****
+
+####  yevvet  
+##### 12533#       发表于 2024-2-13 13:43
+
+raychell早年写真帖吧都发不出去<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

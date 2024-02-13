@@ -87,3 +87,20 @@ baidu了下没啥特别过火的？</blockquote>
 baidu了下没啥特别过火的？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本传统那套扩张理论呗 先征朝鲜 再打中国印度 最后称霸亚洲 还是丰臣秀吉那一套
 
+
+*****
+
+####  奥F特  
+##### 630#       发表于 2024-2-14 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63956823&amp;ptid=2092342" target="_blank">ultraseven 发表于 2024-2-14 00:23</a>
+但也很奇怪，照这个口嗨标准，整个东亚、东南亚地区都不该发售啊</blockquote>
+那有丰臣秀吉的游戏有难了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">第一个实践者 也真攻打了朝鲜
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 631#       发表于 2024-2-14 00:26
+
+安田不懂叠甲，如果用上虽然但是句式......可能有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

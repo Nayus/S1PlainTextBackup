@@ -13993,3 +13993,12 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 
 52听说是冰壶，大招给什么 
 
+
+*****
+
+####  KBAC  
+##### 2872#       发表于 2024-2-14 00:29
+
+研究所从上个赛季就喜欢上了藏东西，新赛季宣传片怎么就一张对战图，连这个也藏？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+新东西留着慢慢挤半个月牙膏是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

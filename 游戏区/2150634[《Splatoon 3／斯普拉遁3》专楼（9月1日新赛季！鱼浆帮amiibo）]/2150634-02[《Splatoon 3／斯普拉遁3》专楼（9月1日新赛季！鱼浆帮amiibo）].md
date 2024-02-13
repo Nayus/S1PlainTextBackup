@@ -13488,3 +13488,11 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 霉比原理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Variks  
+##### 2820#       发表于 2024-2-13 09:03
+
+与其说是在和大鲑鱼、搬蛋数量对抗，不如说是是在和刷新鲑鱼的种类、匹配到队友的水平这样的运气对抗
+

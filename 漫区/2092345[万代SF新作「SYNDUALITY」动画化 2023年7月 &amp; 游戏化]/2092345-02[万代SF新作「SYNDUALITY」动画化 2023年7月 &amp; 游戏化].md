@@ -615,3 +615,173 @@ Weisheit Blaurecht
 
 面具男都在问修涅你怎么看大老板了，这是最后全反了的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星降る森  
+##### 3801#       发表于 2024-2-13 10:03
+
+<blockquote>砂糖续香香 发表于 2024-2-13 09:40
+这不是我们霞的技能操纵以太嘛
+
+眼神如此悲伤
+
+我明白了，是食刃种</blockquote>
+米斯提不够光，这下塞歌姬身体里以后，可真是凑齐一个短发一个金毛了
+
+*****
+
+####  oi99o  
+##### 3802#       发表于 2024-2-13 10:05
+
+看到逃跑的时候夏尔还说有找到零式贤士的方法了就知道是终极牺牲的戏码了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3803#       发表于 2024-2-13 10:09
+
+大哥真是又当爹又当妈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，其实这话最关键的并不是战术赶着彼方跑路而是他和管家谈到夏尔不记得他们，为夏尔的动摇又推了一把，这样一来夏尔就不仅仅是对彼方的内疚还有对反派的面目认识更清醒了
+
+*****
+
+####  oi99o  
+##### 3804#       发表于 2024-2-13 10:35
+
+其实我现在觉得夏尔才是尼娅位，指跟反派有关联，一直默默陪在男主身边。跟男主一起想办法救女主，最后正式成为男主的异刃/贤士，奉献自己。（只不过一个牺牲了一个没牺牲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  RE㐅ia  
+##### 3805#       发表于 2024-2-13 11:16
+
+没看过xb的ce
+
+*****
+
+####  RE㐅ia  
+##### 3806#       发表于 2024-2-13 11:16
+
+没看过xb的ce
+
+*****
+
+####  ParadiseMartyr  
+##### 3807#       发表于 2024-2-13 11:26
+
+ 本帖最后由 ParadiseMartyr 于 2024-2-13 11:28 编辑 
+
+ciel可能不会g，真g了换身体落俗套了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+换了相当于把kanata的原则“人和magus没有区分”给否定了，kanata不就是靠这套吧ciel给感动了吗，最后还是用身体就完全是否定了kanata这个人了
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  RE㐅ia  
+##### 3808#       发表于 2024-2-13 11:36
+
+看完了，表示好惨一ed。不会直接雪藏到结局吧（
+
+*****
+
+####  aptx8285144  
+##### 3809#       发表于 2024-2-13 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63950366&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-13 00:46</a>
+
+卫浴柜被牛太多次了吧</blockquote>
+是反派玩弄歌姬的感情和记忆在先的！！<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3810#       发表于 2024-2-13 12:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正男主啥没被反过
+
+*****
+
+####  不灭的旋律  
+##### 3811#       发表于 2024-2-13 12:44
+
+这集观感就是一个（被）NTR爱好者玩脱老婆真跟别人跑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上一季最后已经暗示雪露主人是卫浴柜，上一集雪露说了自己是0式所以没什么意外，就是之前其他0式对雪露没什么反应有点奇怪。
+
+这集轻描淡写就把蓝雨和enders的来源解释了，世界观除了帕斯卡计划已经没什么迷了。
+
+黑衣小弟喊自己magus名字时都很和善，卫浴柜真是要众叛亲离了。不过没magus卫浴柜怎么当boss，不会NTR诺娃秘银吧
+
+*****
+
+####  aptx8285144  
+##### 3812#       发表于 2024-2-13 12:46
+
+<blockquote>oi99o 发表于 2024-2-13 10:35
+其实我现在觉得夏尔才是尼娅位，指跟反派有关联，一直默默陪在男主身边。跟男主一起想办法救女主，最后正式 ...</blockquote>
+主要是歌姬没有被“迫害”过（
+
+*****
+
+####  aptx8285144  
+##### 3813#       发表于 2024-2-13 12:48
+
+<blockquote>oi99o 发表于 2024-2-13 10:35
+其实我现在觉得夏尔才是尼娅位，指跟反派有关联，一直默默陪在男主身边。跟男主一起想办法救女主，最后正式 ...</blockquote>
+夏尔缺一个感情被迫害的名场面（
+
+*****
+
+####  Boliva  
+##### 3814#       发表于 2024-2-13 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolf1997  
+##### 3815#       发表于 2024-2-13 13:50
+
+虽然套路挺土的，但胜在足够受用，好歹确实是个爆点，最后放着录音的设计也挺好的。剧情到西史多瓦的时候应该还得再反转一次。
+
+*****
+
+####  aptx8285144  
+##### 3816#       发表于 2024-2-13 13:51
+
+<blockquote>RE㐅ia 发表于 2024-2-13 11:36
+看完了，表示好惨一ed。不会直接雪藏到结局吧（</blockquote>
+这话OP和ED都没了（
+
+*****
+
+####  AAAzzz  
+##### 3817#       发表于 2024-2-13 15:05
+
+又好又烂，就这样吊着
+
+*****
+
+####  AkaiSuisei  
+##### 3818#       发表于 2024-2-13 15:22
+
+Ciel那个外挂戒指就是U盘备份吧，这是kaji一出来直接把C盘格了
+
+*****
+
+####  aptx8285144  
+##### 3819#       发表于 2024-2-13 15:45
+
+ 本帖最后由 aptx8285144 于 2024-2-13 15:47 编辑 
+
+S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 3820#       发表于 2024-2-13 15:49
+
+倒序查看，你值得拥有，其他专楼用过的都说好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -782,3 +782,34 @@ X上还有讨论这个的么？</blockquote>
 只想知道那个青叶真司什么时候死？要么阿b出个拉黑能把回复一起屏蔽的功能，一看别人给他的回复就知道这傻 ...</blockquote>
 这确实是出生，到处跳
 
+
+*****
+
+####  伊卡石  
+##### 19511#       发表于 2024-2-13 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951692&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-2-13 10:51</a>
+那视频下面，有人刷屏式地评论说相关话题在X已经史诗级炎上。我倒想知道是真是假 ...</blockquote>
+没有，有讨论的，但基本没泛起什么水花
+
+*****
+
+####  ads147147  
+##### 19512#       发表于 2024-2-13 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951565&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-2-13 10:24</a>
+只想知道那个青叶真司什么时候死？要么阿b出个拉黑能把回复一起屏蔽的功能，一看别人给他的回复就知道这傻 ...</blockquote>
+用京阿尼纵火犯名字的人神经什么时候正常了。。总觉得是发帖串子，有时候回复别人正常回他都会跳出来莫名转方向。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  starring  
+##### 19513#       发表于 2024-2-13 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951692&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-2-13 10:51</a>
+
+那视频下面，有人刷屏式地评论说相关话题在X已经史诗级炎上。我倒想知道是真是假 ...</blockquote>
+X上没到炎上的程度，小部分人抱怨连直球开骂都没有
+

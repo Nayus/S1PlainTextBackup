@@ -13862,3 +13862,15 @@ ika研选择把才能带到喷4(✓)
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 2857#       发表于 2024-2-13 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955580&amp;ptid=2150634" target="_blank">nor000 发表于 2024-2-13 22:07</a>
+新双枪3确吗，还是我眼花了？
+
+----发送自 STAGE1 App for Android.</blockquote>
+听声音应该是4确，翻滚后有提射速
+

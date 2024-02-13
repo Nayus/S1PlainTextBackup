@@ -1178,3 +1178,14 @@ IP大战略呗，21年开始到起码25年每年都有IP的动画看，先相信
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ruffian  
+##### 19554#       发表于 2024-2-13 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955183&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-02-13 21:20:35</a>
+这事儿能不能对二期生的G店看板有些影响因动画组懒鬼的原因，我个人是不怎么喜欢看可可和土妹子站一块的， ...</blockquote>应该不会，在意这事的本来就不会投她，投她的不会在意这事或者不会因为这事就不再投她
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -2793,3 +2793,11 @@ C:%users%user-id\ ...</blockquote>
 
 —— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Alexgrave  
+##### 309#       发表于 2024-2-13 18:37
+
+今天日常的强袭虫，打了好几只怎么还是0……
+

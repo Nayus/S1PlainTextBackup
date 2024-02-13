@@ -13786,3 +13786,53 @@ DLC估计全部类型武器的标准款都有把白色版的了
 
 不过也可以预见很多人不感冒了，想当初 Prey 的 DLC 也做成了一个质量很高的 roguelike，基本上也是褒贬不一。
 
+
+*****
+
+####  炮炮鸽  
+##### 2849#       发表于 2024-2-13 21:54
+
+这点牙膏量是准备新机出个喷3DX，续订两年内容更新当护航作吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2850#       发表于 2024-2-13 21:58
+
+这次的贴牌武器还是不多啊，感觉是真的没有第二贴牌了，打工也没有新的头目<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dedalus  
+##### 2851#       发表于 2024-2-13 22:03
+
+感觉至少还会有一个旧sp打赢复活赛，难道是泡泡？毕竟竹子长热泡贴牌到现在都没出
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DeltaStriker  
+##### 2852#       发表于 2024-2-13 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955461&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-2-13 21:58</a>
+这次的贴牌武器还是不多啊，感觉是真的没有第二贴牌了，打工也没有新的头目 ...</blockquote>
+没有头目(×)
+ika研选择把才能带到喷4(✓)
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DeltaStriker  
+##### 2853#       发表于 2024-2-13 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955461&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-2-13 21:58</a>
+这次的贴牌武器还是不多啊，感觉是真的没有第二贴牌了，打工也没有新的头目 ...</blockquote>
+没有头目(×)
+ika研选择把才能带到喷4(✓)
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

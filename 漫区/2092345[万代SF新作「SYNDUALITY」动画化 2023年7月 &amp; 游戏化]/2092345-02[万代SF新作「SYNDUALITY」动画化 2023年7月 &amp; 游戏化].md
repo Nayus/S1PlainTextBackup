@@ -901,3 +901,24 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 不过剧情就应该加速，目前到是放心了一部分，不会太过家家（
 
+
+*****
+
+####  RE㐅ia  
+##### 3831#       发表于 2024-2-13 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955344&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-13 21:41</a>
+
+不过剧情就应该加速，目前到是放心了一部分，不会太过家家（</blockquote>
+我倒是觉得这番过家家好点，最后包个饺子啥的大家都开心
+
+*****
+
+####  aptx8285144  
+##### 3832#       发表于 2024-2-13 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955483&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-2-13 22:01</a>
+
+我倒是觉得这番过家家好点，最后包个饺子啥的大家都开心</blockquote>
+也许除了卫浴柜的角色外 都会包饺子（
+

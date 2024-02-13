@@ -1346,3 +1346,19 @@ vh和ex之间难度跨度太大了，第一次用痛苦打ex连第一关都没�
 
 加愿望单
 
+
+*****
+
+####  秘银mithril  
+##### 105#       发表于 2024-2-13 15:04
+
+3miss通关打不过（还只是觉醒篇）
+
+换了几个机体都会有一个boss做不到稳定处理
+
+boss不会处理，打得时候心里没底
+
+靠运气硬打也是越打越糟<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+顺便楼友说的灾厄机体，那重攻击双激光我一用就是稳定自杀，完全没法玩<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

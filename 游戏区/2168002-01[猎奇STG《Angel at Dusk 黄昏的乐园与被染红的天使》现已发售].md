@@ -1407,3 +1407,13 @@ boss不会处理，打得时候心里没底
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  NEIN  
+##### 109#       发表于 2024-2-13 23:07
+
+爬塔能调等级吗，打到14层，每次都得从头打好难受
+
+—— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

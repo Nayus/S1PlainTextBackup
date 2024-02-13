@@ -79,3 +79,13 @@ DLC 30块，好便宜，立刻入手
 
 我还是不喜欢keizo的随机地图生成 高的地方太高了
 
+
+*****
+
+####  TiiTiiLL  
+##### 3856#       发表于 2024-2-13 23:12
+
+已经买了，血亏一杯可乐
+
+—— 来自 vivo V2218A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

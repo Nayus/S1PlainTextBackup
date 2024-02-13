@@ -2850,3 +2850,14 @@ C:%users%user-id\ ...</blockquote>
 
 一代的联网人有没有复活的迹象？ 我之前登1代的时候超级地球爆了....估计是没人打
 
+
+*****
+
+####  FLZB  
+##### 316#       发表于 2024-2-13 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955816&amp;ptid=2170852" target="_blank">iqbsh38 发表于 2024-2-13 22:33</a>
+
+一代的联网人有没有复活的迹象？ 我之前登1代的时候超级地球爆了....估计是没人打 ...</blockquote>
+早没人玩了，初代游戏寿命太短了，几十小时装备全解锁就没东西玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

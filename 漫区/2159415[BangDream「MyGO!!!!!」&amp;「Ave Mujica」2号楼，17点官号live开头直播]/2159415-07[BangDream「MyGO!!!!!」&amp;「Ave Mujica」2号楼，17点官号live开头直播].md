@@ -20439,3 +20439,216 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 众所周知你邦只有一个声优不会给角色发生日祝福
 
+
+*****
+
+####  jerryoq1  
+##### 12561#       发表于 2024-2-13 22:23
+
+只能说不要看不起学生，学生比不过职业正常，但也不是想上台就上台的阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想上台也是得先验曲的，翻车太严重根本过不了。
+
+而且学生演出不收费，全靠用爱发电，性质完全不同。
+
+*****
+
+####  御幸一也  
+##### 12562#       发表于 2024-2-13 22:25
+
+還是來看接力吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+祥子生日飯好多
+
+初祥：
+[https://weibo.com/6520104116/5000946486346667](https://weibo.com/6520104116/5000946486346667)
+
+初祥R18:
+[https://weibo.com/7903022425/5000638586424060](https://weibo.com/7903022425/5000638586424060)
+
+睦祥：
+[https://weibo.com/7876617315/5000987102413997](https://weibo.com/7876617315/5000987102413997)
+
+喵祥：
+[https://dongyuzhudonking.lofter.com/post/1f0f54c7_2bb2452c9](https://dongyuzhudonking.lofter.com/post/1f0f54c7_2bb2452c9)
+
+*****
+
+####  PDQ4  
+##### 12563#       发表于 2024-2-13 22:57
+
+ 本帖最后由 PDQ4 于 2024-2-13 23:03 编辑 
+
+小哥也挺幽默的，部活乐队也有流水线帮忙作词作曲作mv吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12564#       发表于 2024-2-13 22:58
+
+还有两分钟小祥生日了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12565#       发表于 2024-2-13 23:00
+
+最终利益—98.4（疑似是因为把钱砸去搞主机游戏然后打水漂了），武士道能不能活到mujica播出啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/13/225945i1nnfp20eh7o1io7.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-a14tZ1lT3cSn4-2ju.png</strong> (591.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 22:59 上传
+
+*****
+
+####  笋干爆炸碱  
+##### 12566#       发表于 2024-2-13 23:00
+
+祥子生日到了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 12567#       发表于 2024-2-13 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63954786&amp;ptid=2159415" target="_blank">金钱与民主 发表于 2024-2-13 20:18</a>
+有个暴论啊：是不是国内学生时代玩过乐队或者看过同校玩乐队的表演的人毕竟还是少数，隔着屏幕也体会不到现 ...</blockquote>
+对一般玩票性质的是这样，但商业团队。。。总不见得说是还原原作吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12568#       发表于 2024-2-13 23:03
+
+丰川祥子的受难日到了（指今天的二创<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  PDQ4  
+##### 12569#       发表于 2024-2-13 23:04
+
+日本跨天了，祥子生日快乐，希望能看到游戏里mujica大家给小祥一起庆生顺便过五人情人节！<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12570#       发表于 2024-2-13 23:07
+
+<img src="https://p.sda1.dev/15/810c2d1c04dd34a47e75f8a93028a51e/CMP_20240213230629800.png" referrerpolicy="no-referrer">关于那个问题在日本时间0点高尾就给出了答案
+
+*****
+
+####  御幸一也  
+##### 12571#       发表于 2024-2-13 23:07
+
+<img src="https://img.saraba1st.com/forum/202402/13/230716jp3ypehyu5zh973q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2050.jpeg</strong> (179.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 23:07 上传
+
+神中神
+
+*****
+
+####  凡人  
+##### 12572#       发表于 2024-2-13 23:11
+
+可以猜的就狗团会不会有人贺吧，还有灯会不会，🐔团都没什么好猜的。
+
+*****
+
+####  PDQ4  
+##### 12573#       发表于 2024-2-13 23:12
+
+神，高尾太好了，要gachi了，怎么这么会营业，等队友祝福了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 12574#       发表于 2024-2-13 23:13
+
+小祥生日快乐捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+希望Mujica能好好解决她的问题<img src="https://static.saraba1st.com/image/smiley/carton2017/402.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 12575#       发表于 2024-2-13 23:13
+
+卡点发，有心了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  米拉苏尔  
+##### 12576#       发表于 2024-2-13 23:14
+
+祝你幸福.jpg
+
+*****
+
+####  近月  
+##### 12577#       发表于 2024-2-13 23:16
+
+小祥生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12578#       发表于 2024-2-13 23:17
+
+安心与信赖的高尾<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 12579#       发表于 2024-2-13 23:20
+
+好帅的贝多芬像啊
+
+*****
+
+####  基神的强袭自由  
+##### 12580#       发表于 2024-2-13 23:22
+
+加的群太多看不过来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12581#       发表于 2024-2-13 23:22
+
+<img src="https://img.saraba1st.com/forum/202402/13/232151x8pz868ueni8y8vv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2052.jpeg</strong> (99.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 23:21 上传
+
+是誰又在代！原來是我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  NODY  
+##### 12582#       发表于 2024-2-13 23:23
+
+这就是我们亲友啊，真是亲亲又友友<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/13/232321ino2aayfqoy02yye.jpg" referrerpolicy="no-referrer">
+
+<strong>E065C5717BEBE7AC9E1FCE3EDA2790F8_edit_1358637943738072.jpg</strong> (152.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 23:23 上传
+

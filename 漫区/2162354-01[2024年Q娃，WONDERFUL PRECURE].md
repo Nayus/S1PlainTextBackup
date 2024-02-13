@@ -4325,3 +4325,18 @@ fy
 
 “帅哥舔狗青梅”就是幼女和家长都能接受的选择所以派Q立即出了拓海，今年这个悟感觉也是同类型的。
 
+
+*****
+
+####  leleq  
+##### 903#       发表于 2024-2-13 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949038&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-2-12 22:18</a>
+
+主要是这眼镜男现在给人的感觉除了卖BG以外屁用没有，当然后面不排除让他当雅虎智慧袋负责找敌人弱点的可能 ...</blockquote>
+然而废物男才是Q娃主流啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+成田更是coco一个成年男性天天被三爷保护战力上完全废物一个到了后期才能召唤个玩具外挂（好不容易有了战力还是黑化家暴），不鲁能开盾也要到中后期了。
+
+女人保护男人算是成田大妈的xp了吧
+

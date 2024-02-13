@@ -46,3 +46,14 @@
 为什么右面的真空内侧全白?</blockquote>
 99新仅开箱未激活
 
+
+*****
+
+####  commcody  
+##### 132#         楼主| 发表于 2024-2-13 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63949843&amp;ptid=2164773" target="_blank">瓦格雷 发表于 2024-2-12 23:24</a>
+
+为什么右面的真空内侧全白?</blockquote>
+有可能就是这次在发动机安装平台上换的新发动机。但按道理从McGregor出厂时都会试车。
+

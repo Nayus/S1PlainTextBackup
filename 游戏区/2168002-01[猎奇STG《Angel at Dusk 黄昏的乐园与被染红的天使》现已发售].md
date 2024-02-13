@@ -1393,3 +1393,17 @@ boss不会处理，打得时候心里没底
 之前看楼友说后边解锁的机体强，没太当回事（因为楼友说的灾厄我觉得非常难用，现在我确 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">是我说错了应该是终焉，反正就是每排的第5个，其中破灭确实是最无脑的
 
+
+*****
+
+####  quanlix  
+##### 108#       发表于 2024-2-13 19:36
+
+ 本帖最后由 quanlix 于 2024-2-13 19:41 编辑 
+
+剧情176作者说应该是前175条全解锁的时候跟着一块解锁，好像是有什么问题，之后1月29号作者说过近期公布全剧情条目解锁条件，到时候看看啥情况
+
+看推上有人解锁了叫重金属篇1，但是条件不明
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -583,3 +583,35 @@ Weisheit Blaurecht
 
 即不相信贤士，也不相信人类的大老板太适合当最终BOSS了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，夏尔有没有强行重置失去记忆再会的可能?
 
+
+*****
+
+####  aptx8285144  
+##### 3798#       发表于 2024-2-13 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63950418&amp;ptid=2092345" target="_blank">亚瑟邓特 发表于 2024-2-13 00:55</a>
+
+辱大河内了，老鸭主业都越写越拉稀了</blockquote>
+大河内没有好的监督在的情况下，重要人物之间的冲突（而不是重要人物与边缘角色）写得经常宛如智障<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，鸭田还有点自知之明，喜剧也好，悲剧也好俗套就俗套点吧jpg
+
+*****
+
+####  aptx8285144  
+##### 3799#       发表于 2024-2-13 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951253&amp;ptid=2092345" target="_blank">aruruu 发表于 2024-2-13 09:22</a>
+
+夏尔真死了这番还有啥看点吗
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+女性人物们都还挺好看的（
+
+大哥也很帅气（
+
+*****
+
+####  aptx8285144  
+##### 3800#       发表于 2024-2-13 10:01
+
+面具男都在问修涅你怎么看大老板了，这是最后全反了的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

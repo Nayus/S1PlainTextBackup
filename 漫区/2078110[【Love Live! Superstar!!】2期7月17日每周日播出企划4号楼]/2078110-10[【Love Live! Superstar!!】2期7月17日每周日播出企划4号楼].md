@@ -711,3 +711,45 @@ fmt第一弹线上配信确保
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cat1230  
+##### 19504#       发表于 2024-2-13 10:36
+
+<blockquote>引用第19499楼starring于2024-02-13 09:13发表的  :
+
+正面的没人看，负面的一下子扩散出去，某人的mc真给自己和团队招黑</blockquote>
+@starring
+
+我看了下live切片，确实挺怪的，到底是不是剧本啊，照理说mc都有剧本的吧？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ViyViy  
+##### 19505#       发表于 2024-2-13 10:39
+
+我说这两天怎么刷X的时候看见TM有人连鱼的有天籁之音的人都要嘴的，还说鱼看上去不想和可可一心同体的，莫名其妙，感情是被拉下水当盾的…
+
+可惜本土炎上的点不在切割角色，是团队live搞太明显的个人营业，不然三期扶土妹子上来你去营业尴不尴尬啊。。
+
+*****
+
+####  伊卡石  
+##### 19506#       发表于 2024-2-13 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951617&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-2-13 10:39</a>
+我说这两天怎么刷X的时候看见TM有人连鱼的有天籁之音的人都要嘴的，还说鱼看上去不想和可可一心同体的，莫 ...</blockquote>
+X上还有讨论这个的么？
+
+*****
+
+####  伊卡石  
+##### 19507#       发表于 2024-2-13 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951617&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-2-13 10:39</a>
+我说这两天怎么刷X的时候看见TM有人连鱼的有天籁之音的人都要嘴的，还说鱼看上去不想和可可一心同体的，莫 ...</blockquote>
+X上还有讨论这个的么？
+

@@ -829,3 +829,16 @@ X上没到炎上的程度，小部分人抱怨连直球开骂都没有
 
 这很难评<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 19516#       发表于 2024-2-13 12:09
+
+ 本帖最后由 ruffian 于 2024-2-13 12:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951617&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-02-13 10:39:42</a>
+
+我说这两天怎么刷X的时候看见TM有人连鱼的有天籁之音的人都要嘴的，还说鱼看上去不想和可可一心同体的，莫 ...</blockquote>鱼哪看出来不想跟可可一心同体了？鱼mc提可可次数少了？某些小日本就难伺候
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

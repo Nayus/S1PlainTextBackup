@@ -2720,3 +2720,34 @@ C:%users%user-id\ ...</blockquote>
 
 超级睡球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 302#       发表于 2024-2-13 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952096&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-2-13 11:59</a>
+
+"# Update on the patch, everyone
+
+# We have rolled back the patch due to some users experiencing sig ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上个优化更新后，A卡的都严重闪退
+
+*****
+
+####  XXXG01H2  
+##### 303#       发表于 2024-2-13 12:06
+
+<blockquote>conanoysq 发表于 2024-2-13 09:49
+虫子9级难度已经可以畅游，超级样本是6个只比8级多一个，但是整体难度和8级差不多，也就是泰坦刷得频繁了些 ...</blockquote>
+今天估计这星球就要解放了，怕是之后有段时间没法找到这石头了……先开的两个星球一个沙漠一个雪地，得找新的刷材料点了吧？
+
+*****
+
+####  XXXG01H2  
+##### 304#       发表于 2024-2-13 12:10
+
+<blockquote>Launce 发表于 2024-2-13 12:05
+上个优化更新后，A卡的都严重闪退</blockquote>
+怪不得朋友的ROG掌机这两天状况不断，昨天开黑的时候他都愤而下线了，几次登陆舱还没落地就闪退掉线了……太离谱了
+

@@ -12,7 +12,7 @@
     "title": "[【C1】巧克拉拉／哔哩哔哩vup综合讨论楼]",
     "lastedit": 1707776580,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "newtitle": "[【C1】巧克拉拉／哔哩哔哩vup综合讨论楼]"
   },
   "1540825": {
@@ -5568,10 +5568,10 @@
     "active": false
   },
   "2150634": {
-    "totalreply": 2884,
+    "totalreply": 2885,
     "title": "[《Splatoon 3／斯普拉遁3》专楼（9月1日新赛季！鱼浆帮amiibo）]",
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（蛮颓Live轰，17日起祭典）]",
-    "lastedit": 1707858000,
+    "lastedit": 1707863646,
     "category": "游戏区",
     "active": true
   },
@@ -6963,7 +6963,7 @@
     "totalreply": 7733,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1707863060,
+    "lastedit": 1707861600,
     "category": "漫区",
     "active": true
   },
@@ -12901,6 +12901,14 @@
     "newtitle": "[萨鲁曼在能力限制没解除就叛变是不是挺蠢的。]",
     "lastedit": 1707844320,
     "category": "外野",
+    "active": true
+  },
+  "2171787": {
+    "totalreply": 0,
+    "title": "[小木曾雪菜 生日快乐！]",
+    "newtitle": "[小木曾雪菜 生日快乐！]",
+    "lastedit": 1707863040,
+    "category": "漫区",
     "active": true
   }
 }

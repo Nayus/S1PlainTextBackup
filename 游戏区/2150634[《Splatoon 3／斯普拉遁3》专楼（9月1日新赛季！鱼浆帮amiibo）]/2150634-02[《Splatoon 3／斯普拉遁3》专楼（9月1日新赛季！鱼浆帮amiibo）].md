@@ -14122,3 +14122,15 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 
 摸鱼看了一眼choco冲分，然后就掉线了笑死了。
 
+
+*****
+
+####  幽灵部长助理  
+##### 2885#       发表于 2024-2-14 06:32
+
+想耍竹伞，看起来好风流
+
+DLC我几乎从没玩过roguelike所以倒还有点新鲜感，就怕不耐玩
+
+白色的8号好色<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

@@ -13836,3 +13836,29 @@ ika研选择把才能带到喷4(✓)
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  laosai13  
+##### 2854#       发表于 2024-2-13 22:04
+
+ 本帖最后由 laosai13 于 2024-2-13 22:06 编辑 
+
+看试玩之后的评价感觉dlc会比打工好玩的欸，6种武器可以选，可以自己定制副武器和大招，如果关卡设计的好的话应该还挺耐玩的。后期难度好像不低，职业玩家也就一命最多到17层，总共好像三十层？
+
+*****
+
+####  墨染白泉  
+##### 2855#       发表于 2024-2-13 22:04
+
+新双枪原型看着像加油站的加油枪
+
+*****
+
+####  nor000  
+##### 2856#       发表于 2024-2-13 22:07
+
+新双枪3确吗，还是我眼花了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

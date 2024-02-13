@@ -104,3 +104,23 @@ baidu了下没啥特别过火的？</blockquote>
 
 安田不懂叠甲，如果用上虽然但是句式......可能有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油条小贩  
+##### 632#       发表于 2024-2-14 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63956823&amp;ptid=2092342" target="_blank">ultraseven 发表于 2024-2-14 00:23</a>
+
+但也很奇怪，照这个口嗨标准，整个东亚、东南亚地区都不该发售啊</blockquote>
+是不是和20年前网络流行的什么田中奏折很像。。。
+
+至今不知这奏折真的假的
+
+*****
+
+####  bm7号  
+##### 633#       发表于 2024-2-14 00:41
+
+快进到doa待遇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

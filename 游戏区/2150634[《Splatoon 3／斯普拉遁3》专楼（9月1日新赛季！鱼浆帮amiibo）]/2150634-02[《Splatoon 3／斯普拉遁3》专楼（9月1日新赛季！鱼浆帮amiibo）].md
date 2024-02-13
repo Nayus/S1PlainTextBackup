@@ -14002,3 +14002,24 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 研究所从上个赛季就喜欢上了藏东西，新赛季宣传片怎么就一张对战图，连这个也藏？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 新东西留着慢慢挤半个月牙膏是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 2873#       发表于 2024-2-14 00:34
+
+我在想 DLC 做成 hades 那样如何，初始从几种不同类型主武器里选一把，然后一路推塔加 buff 组 build，感觉难点在于喷喷主副武器大招之间相对独立，很难组合产生化学反应。
+
+最后落实到强化 buff 要是只有增加输出、扩大范围之类的调参就很无聊了。
+
+*****
+
+####  绿冰  
+##### 2874#         楼主| 发表于 2024-2-14 00:41
+
+<blockquote>Dedalus 发表于 2024-2-13 22:03
+感觉至少还会有一个旧sp打赢复活赛，难道是泡泡？毕竟竹子长热泡贴牌到现在都没出
+
+—— 来自 S1Fun ...</blockquote>
+如果真要说这个，很可能是大喇叭的，毕竟做进大乱斗还是小姬的招牌
+

@@ -2751,3 +2751,16 @@ C:%users%user-id\ ...</blockquote>
 上个优化更新后，A卡的都严重闪退</blockquote>
 怪不得朋友的ROG掌机这两天状况不断，昨天开黑的时候他都愤而下线了，几次登陆舱还没落地就闪退掉线了……太离谱了
 
+
+*****
+
+####  Launce  
+##### 305#       发表于 2024-2-13 12:25
+
+ 本帖最后由 Launce 于 2024-2-13 12:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952182&amp;ptid=2170852" target="_blank">XXXG01H2 发表于 2024-2-13 12:10</a>
+
+怪不得朋友的ROG掌机这两天状况不断，昨天开黑的时候他都愤而下线了，几次登陆舱还没落地就闪退掉线了… ...</blockquote>
+得把SSGI关了，保险点也把抗锯齿关了，接着渲染比例选原始，按我测试能保证1小时左右不闪退
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">AMD的CPU的可以的话，还得去把这睡球的多线程关了，目前看到的说法是这吊游戏会把A系CPU和显卡用量吃满，导致强行超频造成闪退
+

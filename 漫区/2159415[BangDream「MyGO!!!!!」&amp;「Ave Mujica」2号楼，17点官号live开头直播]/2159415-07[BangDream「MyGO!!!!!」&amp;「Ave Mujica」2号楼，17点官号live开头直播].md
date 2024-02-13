@@ -20378,3 +20378,36 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 类似的说法我在足球圈见过，说现场助威的感觉完全不一样，所以很多小球队和踢得不怎么样的球队同样也有很多狂热拥趸
 
+
+*****
+
+####  kivz  
+##### 12554#       发表于 2024-2-13 20:56
+
+@271938 直播看的就是乐队表演啊 难道还专门把镜头和麦给到现场观众大家一起high
+
+你票卖便宜点，大家容忍度也会变高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 12555#       发表于 2024-2-13 20:57
+
+只要求气氛不管水平，你让其他有气氛有水平的乐队很尴尬啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  skives  
+##### 12556#       发表于 2024-2-13 21:01
+
+假如mygo的歌全是羊原创的作品 我倒是可以接受她唱不好
+
+*****
+
+####  kivz  
+##### 12557#       发表于 2024-2-13 21:02
+
+现场气氛这种东西嘛 可以翻录播参考下直播弹幕，基本没啥营养<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

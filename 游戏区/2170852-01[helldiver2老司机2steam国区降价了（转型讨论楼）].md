@@ -2811,3 +2811,11 @@ C:%users%user-id\ ...</blockquote>
 今天日常的强袭虫，打了好几只怎么还是0……</blockquote>
 要最后一击，叫的炮台激光轰炸打死也算，不行自己开难度4单刷，刷完扯腿不用完成任务
 
+
+*****
+
+####  新庄運切  
+##### 311#       发表于 2024-2-13 20:59
+
+今天服务器修好那么一点了没，假期都过半了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

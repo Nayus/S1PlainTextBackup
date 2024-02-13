@@ -14083,3 +14083,13 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 哦那个置物柜是和武器有关的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 话说二代广场不知道还会实装吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skicerse  
+##### 2881#       发表于 2024-2-14 02:09
+
+一直在想打工为什么不做成可选装备的RPG啊不同工服对应不同buff
+
+— from Google Pixel 7, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

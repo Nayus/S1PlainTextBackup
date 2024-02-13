@@ -852,3 +852,20 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 2024-2-13 20:06 上传
 
+
+*****
+
+####  ibcsa  
+##### 3826#       发表于 2024-2-13 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951253&amp;ptid=2092345" target="_blank">aruruu 发表于 2024-2-13 09:22</a>
+
+夏尔真死了这番还有啥看点吗
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
++1
+
+还等着daydream完整版呢
+
+弃了弃了
+

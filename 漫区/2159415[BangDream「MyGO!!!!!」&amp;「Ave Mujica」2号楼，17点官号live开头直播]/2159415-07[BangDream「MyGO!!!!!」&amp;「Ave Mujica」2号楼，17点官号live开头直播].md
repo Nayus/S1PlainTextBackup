@@ -20316,3 +20316,19 @@ https://stagegear.jp/20240127avemujica
 
 不如指望下这期邦tv羊会说点什么，表面好好反省一下gachi大概马上就和解了，反正下两场没有配信。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道会不会放切片，萝的两位看了有什么想法。
 
+
+*****
+
+####  金钱与民主  
+##### 12548#       发表于 2024-2-13 20:18
+
+有个暴论啊：是不是国内学生时代玩过乐队或者看过同校玩乐队的表演的人毕竟还是少数，隔着屏幕也体会不到现场live的所谓“气氛”，所以对乐队live反而有种“水平一定要高”的误会。
+
+<img src="https://img.saraba1st.com/forum/202402/13/201727xprneezjj0ne61e6.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240213201708.jpg</strong> (21.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 20:17 上传
+

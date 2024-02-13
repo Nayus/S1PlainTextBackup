@@ -13594,3 +13594,11 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Ryuuseigun  
+##### 2830#       发表于 2024-2-13 20:18
+
+尾工卷堡居然没有地狱很顺的打到760，龙年的辰龙一个金都没给<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

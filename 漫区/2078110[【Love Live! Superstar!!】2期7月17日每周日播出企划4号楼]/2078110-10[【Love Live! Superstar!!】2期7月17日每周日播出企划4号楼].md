@@ -1138,3 +1138,14 @@ IP大战略呗，21年开始到起码25年每年都有IP的动画看，先相信
 
 草，四个小时前网页回的终于刷出来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19550#       发表于 2024-2-13 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63954660&amp;ptid=2078110" target="_blank">starring 发表于 2024-2-13 19:56</a>
+
+还有一点很恼火，其她人都在救场，把她那情景里所谓的前辈往角色里靠，然后nagi都快把话题掰回去了，她还 ...</blockquote>
+没听错的话似乎从nako叫停到nagi开始mc，她是一句道歉都没，可能是真的觉得挺有趣的吧<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+

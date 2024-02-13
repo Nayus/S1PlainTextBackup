@@ -1380,3 +1380,16 @@ boss不会处理，打得时候心里没底
 
 唯一的缺点就是解锁条件比较麻烦？需要花时间刷，尤其是8级神经节，只能慢慢打
 
+
+*****
+
+####  liuqy  
+##### 107#       发表于 2024-2-13 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63953934&amp;ptid=2168002" target="_blank">秘银mithril 发表于 2024-2-13 18:11</a>
+
+我现在心情很复杂
+
+之前看楼友说后边解锁的机体强，没太当回事（因为楼友说的灾厄我觉得非常难用，现在我确 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">是我说错了应该是终焉，反正就是每排的第5个，其中破灭确实是最无脑的
+

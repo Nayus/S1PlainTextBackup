@@ -13539,3 +13539,23 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 现在一点打不了 天天刚开打三百分就连败
 都不知道当初金章怎么拿的
 
+
+*****
+
+####  罗克萨斯  
+##### 2825#       发表于 2024-2-13 13:26
+
+ 本帖最后由 罗克萨斯 于 2024-2-13 13:27 编辑 
+
+开放绝对是最好玩的模式，匹配总是能个给你惊喜，开场看到本方三后排就乐了，立马上前线陪小牙刷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/13/132656xq1t55xjmqtxazpg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-13-13-18-57-277_com.nintendo.znca-edit.jpg</strong> (512.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 13:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

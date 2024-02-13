@@ -2890,3 +2890,13 @@ C:%users%user-id\ ...</blockquote>
 开了两局单刷，都没一个</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服务器还是有问题，个人任务结算还是抽风
 
+
+*****
+
+####  smdzh2  
+##### 320#       发表于 2024-2-13 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63956354&amp;ptid=2170852" target="_blank">琦乐无穷 发表于 2024-2-14 00:34</a>
+难度8全支线清空，加起来30+样本，最后撤离20秒四人游戏崩溃</blockquote>
+现在已经不敢做支线了，拿完样本直奔主线，鬼知道什么时候会闪退<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

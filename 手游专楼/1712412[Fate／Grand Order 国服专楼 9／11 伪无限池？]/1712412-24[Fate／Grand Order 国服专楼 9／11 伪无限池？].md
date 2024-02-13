@@ -255,3 +255,14 @@
 
 玛达是满宝的，问题是副手没有符合标准的，副手的要求是得打两面剩下那只吧.......而且硬性指标得有60以上自充或者回收+自充&gt;60
 
+
+*****
+
+####  艾尔特翔  
+##### 46169#       发表于 2024-2-14 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955847&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-2-13 22:36</a>
+
+笑死，根本找不到给了祝福巧克力的满配公主</blockquote>
+5宝116级1760攻击力的公主（麻痹手贱点了2和3的附加技能，导致没有币升120了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">），我一直挂第一个ALL位置，应该也够。
+

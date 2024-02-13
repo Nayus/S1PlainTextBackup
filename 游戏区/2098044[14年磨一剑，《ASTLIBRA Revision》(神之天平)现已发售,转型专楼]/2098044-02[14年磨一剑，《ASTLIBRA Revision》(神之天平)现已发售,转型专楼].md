@@ -207,3 +207,13 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 但
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这剧情总感觉又要来波大的
 
+
+*****
+
+####  caupollen  
+##### 3869#       发表于 2024-2-14 02:03
+
+换装的地方太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都是小黄油的配置，可惜不是小黄油
+

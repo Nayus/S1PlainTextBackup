@@ -217,3 +217,16 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 
 都是小黄油的配置，可惜不是小黄油
 
+
+*****
+
+####  果汁机构  
+##### 3870#       发表于 2024-2-14 03:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957160&amp;ptid=2098044" target="_blank">caupollen 发表于 2024-2-14 02:03</a>
+
+换装的地方太懂了
+
+都是小黄油的配置，可惜不是小黄油</blockquote>
+怎么没有女神的衣服啊，这才是重点<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

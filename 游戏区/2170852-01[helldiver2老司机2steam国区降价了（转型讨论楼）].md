@@ -2677,3 +2677,11 @@ C:%users%user-id\ ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以今天的服务器问题是快速匹配炸了吗
 
+
+*****
+
+####  sixgun  
+##### 298#       发表于 2024-2-13 11:33
+
+今天完全连不上了，屑
+

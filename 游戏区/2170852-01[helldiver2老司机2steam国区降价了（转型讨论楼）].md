@@ -2775,3 +2775,11 @@ C:%users%user-id\ ...</blockquote>
 今天估计这星球就要解放了，怕是之后有段时间没法找到这石头了……先开的两个星球一个沙漠一个雪地，得找 ...</blockquote>
 好像每个星球都是这个石头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我还没去验证过
 
+
+*****
+
+####  105gun  
+##### 307#       发表于 2024-2-13 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花式吞结算，结算闪退，这游戏的服务器到底做的是个啥啊
+

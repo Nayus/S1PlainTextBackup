@@ -870,3 +870,14 @@ X上没到炎上的程度，小部分人抱怨连直球开骂都没有
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ruffian  
+##### 19520#       发表于 2024-2-13 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952343&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-02-13 12:43:14</a>
+看到推送了，对non是没啥好评价的。主要是反应出来星3这动画，10月播，差不多也开始拿到台本（起码初版台本 ...</blockquote>到底是谁说的铃原只输给小百合？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

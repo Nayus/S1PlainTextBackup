@@ -20358,3 +20358,11 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 只要涉及到角色内容都得过IP方监修的，所以除非武士道监修特别草台，否则这个基本上就是过了审核的。
 
+
+*****
+
+####  ddy2811  
+##### 12552#       发表于 2024-2-13 20:38
+
+孤独摇滚也演示过水平真烂得不行连个小型livehouse都上不去吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

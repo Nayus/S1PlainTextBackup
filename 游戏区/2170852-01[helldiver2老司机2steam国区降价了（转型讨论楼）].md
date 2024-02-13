@@ -2879,3 +2879,14 @@ C:%users%user-id\ ...</blockquote>
 
 难度8全支线清空，加起来30+样本，最后撤离20秒四人游戏崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 319#       发表于 2024-2-13 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63956350&amp;ptid=2170852" target="_blank">Alexgrave 发表于 2024-2-13 23:33</a>
+
+开了两局单刷，都没一个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服务器还是有问题，个人任务结算还是抽风
+

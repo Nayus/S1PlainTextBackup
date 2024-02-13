@@ -30,3 +30,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">安田大概没想那么多
 
+
+*****
+
+####  病態極端  
+##### 624#       发表于 2024-2-13 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955759&amp;ptid=2092342" target="_blank">性兽阿怪 发表于 2024-2-13 22:25</a>
+
+光荣平时不给忍组这帮人上上历史课啊？</blockquote>
+不過就算安田不吹吉田松陰，吉田松陰也就在遊戲裡，無論遊戲裡有沒有征韓論，顯然都是乳韓了。
+

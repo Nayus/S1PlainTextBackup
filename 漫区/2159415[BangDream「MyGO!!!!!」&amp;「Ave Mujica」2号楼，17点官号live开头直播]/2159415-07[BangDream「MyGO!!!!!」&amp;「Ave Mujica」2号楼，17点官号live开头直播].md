@@ -19963,3 +19963,11 @@ soyo发现祥子、睦开新乐队时应该就是这个眼神吧<img src="https:
 
 mygo不是邦换血的重要一环嘛，真放弃嘛（
 
+
+*****
+
+####  安洁莉娜  
+##### 12520#       发表于 2024-2-13 09:25
+
+wdnmd，我果然着了mygo的相了。这两天看老三国，看到徐庶被曹操派回来劝降刘备，我感觉有什么东西觉醒了，好想看徐庶见到刘备和诸葛亮鱼水相得直接破防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

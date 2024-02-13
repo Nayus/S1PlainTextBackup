@@ -228,3 +228,22 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  苍蓝之枪  
+##### 46166#       发表于 2024-2-13 22:36
+
+笑死，根本找不到给了祝福巧克力的满配公主
+
+*****
+
+####  一个陆仁贾  
+##### 46167#       发表于 2024-2-13 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63933168&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2024-2-10 12:39</a>
+没有水芬奇，水马达也只有一宝，这次90++感觉是一点都刷不了</blockquote>
+我水马达库库尔坎都是一宝照样刷，顶多要第三四回合补刀而已
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -13874,3 +13874,26 @@ ika研选择把才能带到喷4(✓)
 ----发送自 STAGE1 App for Android.</blockquote>
 听声音应该是4确，翻滚后有提射速
 
+
+*****
+
+####  Ryuuseigun  
+##### 2858#       发表于 2024-2-13 22:39
+
+https://youtu.be/v1JuHHgzl3U?si=ireRsYluVv1MCct9
+DLC抢先试玩感想
+
+*****
+
+####  秋月孝三  
+##### 2859#       发表于 2024-2-13 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新伞副武器是标、标线器？
+
+*****
+
+####  popchong  
+##### 2860#       发表于 2024-2-13 22:44
+
+从头到尾都是白色风格？时髦值比2代DLC差太多了吧
+

@@ -1417,3 +1417,11 @@ boss不会处理，打得时候心里没底
 
 —— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  丛林驼  
+##### 110#       发表于 2024-2-14 00:55
+
+不注意就打了快七个钟，好爽好爽好爽，贴脸硬干真的好爽<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

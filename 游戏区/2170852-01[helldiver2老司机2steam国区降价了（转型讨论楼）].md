@@ -2900,3 +2900,11 @@ C:%users%user-id\ ...</blockquote>
 难度8全支线清空，加起来30+样本，最后撤离20秒四人游戏崩溃</blockquote>
 现在已经不敢做支线了，拿完样本直奔主线，鬼知道什么时候会闪退<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Case  
+##### 321#       发表于 2024-2-14 00:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">可以设置单刷么。每次进任务默认组野队了。
+

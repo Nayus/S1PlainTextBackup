@@ -181,3 +181,18 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 
 道具店还是武器店的宝箱可以开地图功能，二段跳上去拿
 
+
+*****
+
+####  tansapple  
+##### 3866#       发表于 2024-2-14 00:58
+
+剧情如果和旧版差不多的话应该没什么惊天大剧情，就是把某个在本篇里已经被主角揍过两次的傻逼再揍一次而已。外传按照时间线来说甚至是在本篇的第七章之前，因为那个时候面包妹已经能单刷群魔了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tansapple  
+##### 3867#       发表于 2024-2-14 00:59
+
+另外游戏开局可以多回城，初期的各项系统解锁和回城次数有关<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

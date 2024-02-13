@@ -230,3 +230,18 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 都是小黄油的配置，可惜不是小黄油</blockquote>
 怎么没有女神的衣服啊，这才是重点<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白河响剑  
+##### 3871#       发表于 2024-2-14 03:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草草过了 整个剧情就是那句话
+
+相信的心就是你的魔法.MP3
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你这主角（本篇）就是训啦.JPG
+
+以及
+
+果然又是你小子在搞事
+

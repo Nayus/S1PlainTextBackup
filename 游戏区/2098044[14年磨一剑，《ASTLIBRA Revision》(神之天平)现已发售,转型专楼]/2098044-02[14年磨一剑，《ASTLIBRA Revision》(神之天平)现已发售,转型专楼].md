@@ -46,3 +46,28 @@ DLC 30块，好便宜，立刻入手
 
 30块，还行
 
+
+*****
+
+####  悍劲老萌逼  
+##### 3852#       发表于 2024-2-13 21:35
+
+记得买和本体的捆绑包省杯可乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  库德里尔  
+##### 3853#       发表于 2024-2-13 21:39
+
+我直接买了，忘记买捆绑包，血亏四块钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超法拉  
+##### 3854#       发表于 2024-2-13 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955296&amp;ptid=2098044" target="_blank">悍劲老萌逼 发表于 2024-2-13 21:35</a>
+
+记得买和本体的捆绑包省杯可乐</blockquote>
+艹了 还能这样
+

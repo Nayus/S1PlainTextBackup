@@ -1149,3 +1149,11 @@ IP大战略呗，21年开始到起码25年每年都有IP的动画看，先相信
 还有一点很恼火，其她人都在救场，把她那情景里所谓的前辈往角色里靠，然后nagi都快把话题掰回去了，她还 ...</blockquote>
 没听错的话似乎从nako叫停到nagi开始mc，她是一句道歉都没，可能是真的觉得挺有趣的吧<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  优妮可  
+##### 19551#       发表于 2024-2-13 21:06
+
+所以ins小作文是被上头骂了之后的道歉嘛
+

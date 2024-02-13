@@ -877,3 +877,11 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 说起来，我看到有人提说夏尔是不是还有一首歌？还是说完整版就是（
 
+
+*****
+
+####  Ichthy  
+##### 3828#       发表于 2024-2-13 21:09
+
+这下确实有原型了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

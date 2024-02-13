@@ -20411,3 +20411,14 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 现场气氛这种东西嘛 可以翻录播参考下直播弹幕，基本没啥营养<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 12558#       发表于 2024-2-13 21:11
+
+明天会有生日祝福吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉又要烤了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -13602,3 +13602,33 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 尾工卷堡居然没有地狱很顺的打到760，龙年的辰龙一个金都没给<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 2831#       发表于 2024-2-13 21:04
+
+ 本帖最后由 秋月孝三 于 2024-2-13 21:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴牌重桶砸地是吧
+
+52冰壶(存疑)
+
+钢笔吸盘(基本确定)
+
+4k信标(基本确定)
+
+*****
+
+####  oi99o  
+##### 2832#       发表于 2024-2-13 21:11
+
+这祭典烟花也太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  carroy  
+##### 2833#       发表于 2024-2-13 21:12
+
+dlc第二个pv来啦
+

@@ -2908,3 +2908,14 @@ C:%users%user-id\ ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">可以设置单刷么。每次进任务默认组野队了。
 
+
+*****
+
+####  寅就一个字  
+##### 322#       发表于 2024-2-14 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957009&amp;ptid=2170852" target="_blank">Case 发表于 2024-2-14 00:59</a>
+
+可以设置单刷么。每次进任务默认组野队了。</blockquote>
+游戏里不就有选项，是否公开跟是否跨平台
+

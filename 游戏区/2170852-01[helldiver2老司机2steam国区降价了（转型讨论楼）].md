@@ -2842,3 +2842,11 @@ C:%users%user-id\ ...</blockquote>
 
 不知道箭头这帮懒狗睡醒没有，能不能修一下无法空投队友的bug<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iqbsh38  
+##### 315#       发表于 2024-2-13 22:33
+
+一代的联网人有没有复活的迹象？ 我之前登1代的时候超级地球爆了....估计是没人打
+

@@ -14,3 +14,11 @@
 
 宣发鬼才忍者组
 
+
+*****
+
+####  性兽阿怪  
+##### 622#       发表于 2024-2-13 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光荣平时不给忍组这帮人上上历史课啊？
+

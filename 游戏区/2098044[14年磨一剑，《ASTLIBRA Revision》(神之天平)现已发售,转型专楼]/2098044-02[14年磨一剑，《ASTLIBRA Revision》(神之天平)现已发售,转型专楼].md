@@ -196,3 +196,14 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 
 另外游戏开局可以多回城，初期的各项系统解锁和回城次数有关<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白河响剑  
+##### 3868#       发表于 2024-2-14 01:04
+
+初感就是个扩充版新章
+
+但
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这剧情总感觉又要来波大的
+

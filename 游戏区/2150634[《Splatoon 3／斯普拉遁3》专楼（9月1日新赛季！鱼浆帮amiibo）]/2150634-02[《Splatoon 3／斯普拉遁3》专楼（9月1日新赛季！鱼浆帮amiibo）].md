@@ -14032,3 +14032,15 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 宣传片8号掉悬崖之后飞出来的灵魂是鱿鱼灵魂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 上次老任的广告就搞出了章鱼脸鱿鱼，总是搞出混种生物真不知道是bug还是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 2876#         楼主| 发表于 2024-2-14 01:06
+
+<blockquote>KBAC 发表于 2024-2-14 00:47
+宣传片8号掉悬崖之后飞出来的灵魂是鱿鱼灵魂
+
+上次老任的广告就搞出了章鱼脸鱿鱼，总是搞出混种生物 ...</blockquote>
+这次依然有一瞬间新3号坐在火车上瞌睡的镜头，剧情上肯定不是单单8号这么简单
+

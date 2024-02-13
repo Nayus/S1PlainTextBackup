@@ -13506,3 +13506,15 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Junakr  
+##### 2822#       发表于 2024-2-13 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到 leanny 在推上发了一个快速获得预定装备金徽章的 Bug。
+
+需要购买 DLC，实施方法是在一个广场订购然后去另一个广场取消再回到前一个广场再次订购。
+
+[https://twitter.com/LeanYoshi/status/1757070547282780583](https://twitter.com/LeanYoshi/status/1757070547282780583)
+

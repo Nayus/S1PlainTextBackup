@@ -194,3 +194,33 @@ syl今天火建延期了,谁的原因不知道而且看上去并不是popo
 
 笑死了游戏下不下来临时改奥德赛
 
+
+*****
+
+####  holoan  
+##### 8145#         楼主| 发表于 2024-2-13 19:19
+
+<img src="https://img.saraba1st.com/forum/202402/13/191856e4i6ppc5btpb1zzf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 19:18 上传
+
+非常偶然巧合的是PSN在和直播预定时间相同的时间段突然出现日本部分地域限定的连接故障，至今未恢复
+
+<img src="https://img.saraba1st.com/forum/202402/13/190607v5a02qz73771d319.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 19:06 上传
+
+也有可能不一定是PSN的锅<blockquote>名無しさん@転載禁止 (ﾜｯﾁｮｲ 6c9d-xyKH) 2024/02/13(火) 19:49:44.22 ID:1NZflt61
+
+楽天銀行とかTrelloも逝ってるからなんかクラウドのネットワークサービスとかが逝ってそう</blockquote>
+
+直接突击奥德赛通关耐久了，非常便利的马里奥直播
+

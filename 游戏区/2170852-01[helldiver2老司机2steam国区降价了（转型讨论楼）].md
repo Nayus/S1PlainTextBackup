@@ -2701,3 +2701,22 @@ C:%users%user-id\ ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锁上摆烂睡觉了吗
 
+
+*****
+
+####  FLZB  
+##### 300#       发表于 2024-2-13 11:59
+
+"# Update on the patch, everyone
+
+# We have rolled back the patch due to some users experiencing significant degradation in performance. **The mission reward fix will not be affected by this.**"
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 301#       发表于 2024-2-13 12:02
+
+超级睡球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

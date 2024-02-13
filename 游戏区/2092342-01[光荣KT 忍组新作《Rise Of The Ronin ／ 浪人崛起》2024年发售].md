@@ -150,3 +150,16 @@ baidu了下没啥特别过火的？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然有点搞笑，但也没多大点事吧
 
+
+*****
+
+####  ywwuyi  
+##### 637#       发表于 2024-2-14 05:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吉田松阴的话，一些学者认为他是现代日本**的源头，所以中韩忌讳公开大肆宣扬他。
+
+问题浪人开篇他都被砍头了游戏里肯定不会有大戏份，为什么安田还拿出来吹甚至跟苏格拉底比，因为都是被处死的么，有点地狱了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吹两句长州藩人杰地灵得了，这段为什么会被剪进去放出来，都不知道是索尼还是KT的责任了
+
+我只希望别闹大炎上到我不能直播了，我买了浪人还没买龙信<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

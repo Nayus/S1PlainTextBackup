@@ -2764,3 +2764,14 @@ C:%users%user-id\ ...</blockquote>
 得把SSGI关了，保险点也把抗锯齿关了，接着渲染比例选原始，按我测试能保证1小时左右不闪退
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">AMD的CPU的可以的话，还得去把这睡球的多线程关了，目前看到的说法是这吊游戏会把A系CPU和显卡用量吃满，导致强行超频造成闪退
 
+
+*****
+
+####  PlasmaSnake  
+##### 306#       发表于 2024-2-13 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952159&amp;ptid=2170852" target="_blank">XXXG01H2 发表于 2024-2-13 12:06</a>
+
+今天估计这星球就要解放了，怕是之后有段时间没法找到这石头了……先开的两个星球一个沙漠一个雪地，得找 ...</blockquote>
+好像每个星球都是这个石头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我还没去验证过
+

@@ -508,3 +508,29 @@ Weisheit Blaurecht
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyDC  
+##### 3792#       发表于 2024-2-13 07:54
+
+这么快就预见战争呢
+
+<img src="https://img.saraba1st.com/forum/202402/13/075427akqrrbpfcvzumz66.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-13-07-53-19-584_com.viva.note.jpg</strong> (810.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 07:54 上传
+
+<img src="https://img.saraba1st.com/forum/202402/13/075427v655k52abkp8pk65.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-13-07-53-24-380_com.viva.note.jpg</strong> (821.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 07:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

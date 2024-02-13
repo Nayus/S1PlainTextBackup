@@ -13526,3 +13526,16 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 连续刷塔，铁球，垃圾桶的时候就是有种摆明不让你过的感觉，尤其是铁球，完全没办法快速处理，可能5秒前还是环境很干净突然就全体跳大绳
 
+
+*****
+
+####  carroy  
+##### 2824#       发表于 2024-2-13 13:07
+
+发现通过与否和我的水平没啥关系之后就放弃上分了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+摇到三个大佬带我就能过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+明明感觉前段时间进步不少了
+现在一点打不了 天天刚开打三百分就连败
+都不知道当初金章怎么拿的
+

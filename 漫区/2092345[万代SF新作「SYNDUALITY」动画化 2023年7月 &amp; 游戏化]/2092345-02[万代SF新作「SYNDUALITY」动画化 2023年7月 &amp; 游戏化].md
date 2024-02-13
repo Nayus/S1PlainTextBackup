@@ -542,3 +542,15 @@ Weisheit Blaurecht
 
 刚补了今天这集，哇这weishait也太下头了反复格式化玩弄magus……歌姬这段歌还是挺惊喜的，本来以为和第七集一样会是配合机战的快歌，没想到配合能力来了一首抒情曲；剧情倒是不意外，毕竟之前alba说需要一副零式的躯体时就想到会有这一出了，不过歌姬给自己装的那个程序应该还有说法吧，我倒是觉得彼方不会这么轻易接受歌姬送的这副躯体，最后还是都要救的
 
+
+*****
+
+####  罗克萨斯  
+##### 3794#       发表于 2024-2-13 09:13
+
+我要是歌姬的master，不知道会多疼爱她<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+这前任纯纯的畜生啊<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

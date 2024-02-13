@@ -1110,3 +1110,23 @@ IP大战略呗，21年开始到起码25年每年都有IP的动画看，先相信
 
 另外，铃原不是只输给小百合，她是众多输给小百合和青山的候选人中的一个，不是说一个人同意坐一年冷板凳就是最佳第六人了，初大人那么强怎么没跑来当staff看一单发售活动呢，是因为她傻吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19547#       发表于 2024-2-13 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63954405&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-2-13 19:20</a>
+
+手机app感觉是被论坛这一波卡顿给整废了，可算回家了，可以打开电脑骂铃原了……
+
+她这个吊毛MC，开头惯例 ...</blockquote>
+还有一点很恼火，其她人都在救场，把她那情景里所谓的前辈往角色里靠，然后nagi都快把话题掰回去了，她还说一句“这样做很有趣”，这情商简直灾难<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 19548#       发表于 2024-2-13 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青二再怎样都比ab强吧 初大人的选择不要太对
+

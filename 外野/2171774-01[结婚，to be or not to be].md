@@ -679,3 +679,54 @@
 
 女人一开始可以骗自己是只想要物质条件，但是往后很难说会不会变得既要又要，还是建议慎重选择<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xu1985129  
+##### 73#       发表于 2024-2-13 23:34
+
+楼主成都这条件不缺的，体感成都现在相亲市场缺男人，我这边全是长辈求着帮忙推荐好男人的，没一个男找女的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+— from HUAWEI ALP-TL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  xu1985129  
+##### 74#       发表于 2024-2-13 23:34
+
+风怒
+
+*****
+
+####  影法师  
+##### 75#       发表于 2024-2-13 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63956348&amp;ptid=2171774" target="_blank">cdy111222 发表于 2024-2-13 23:33</a>
+反正给我的感觉就是这位正在多线程操作，你就只是备胎之一，只不过你在备胎中属于条件比较好，成功 ...</blockquote>
+看谈结婚就知道了啊，没有彩礼嫁妆，没有存款，结婚条件几乎等于没有（可以理解成一切从简？），反正自己不想掏钱，但是姿态摆的挺漂亮，我也不要你掏钱。然后钱给父母准备买第二套房，大概率结婚后拎包入住，开销你负责，女方的收入继续给父母<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  廿九  
+##### 76#       发表于 2024-2-13 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955927&amp;ptid=2171774" target="_blank">匿名者 发表于 2024-2-13 22:45</a>
+不确定。相当不确定。
+
+上网这么多年也听说过不少婚后不给草的惨案了。
+
+顺便跨年元旦前后各请假一起旅游了 ...</blockquote>
+emmmm，看你回复要么明天情人节你再试一次，不行就直球和她聊一聊吧，她都下最后通牒了你也别耽误人家时间了。
+最重要的问题只有一个，她能接受和你过性生活吗？哪怕不是婚前做，她至少要给个肯定答案吧。
+当然可以委婉一点，从“我对你有性吸引力吗？”这个问题开始，坦诚说下你接吻尝试失败的困惑，然后说你不确定你们现在的感情和身体做好了结婚的准备，问问她怎么想的，她觉得结婚前你们俩的感情和身体亲密程度应该是什么样的？再交往三个月可以达到这样吗？
+她要是再敷衍你，就散了吧
+
+*****
+
+####  devillee  
+##### 77#       发表于 2024-2-13 23:44
+
+先同居至少1年再说
+

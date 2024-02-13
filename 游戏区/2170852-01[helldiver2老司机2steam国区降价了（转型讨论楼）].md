@@ -2871,3 +2871,11 @@ C:%users%user-id\ ...</blockquote>
 要最后一击，叫的炮台激光轰炸打死也算，不行自己开难度4单刷，刷完扯腿不用完成任务 ...</blockquote>
 开了两局单刷，都没一个<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琦乐无穷  
+##### 318#       发表于 2024-2-13 23:34
+
+难度8全支线清空，加起来30+样本，最后撤离20秒四人游戏崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

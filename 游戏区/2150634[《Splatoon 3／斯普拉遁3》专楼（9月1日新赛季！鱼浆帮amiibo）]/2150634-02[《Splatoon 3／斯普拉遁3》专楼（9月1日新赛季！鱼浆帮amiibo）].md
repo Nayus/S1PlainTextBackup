@@ -13670,3 +13670,62 @@ dlc第二个pv来啦
 
 DLC的银色武器都好好看啊，乌研所把DLC通关奖励给我设成对战自选武器银色皮肤！！！
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 2839#       发表于 2024-2-13 21:24
+
+哈哈，贴牌重桶砸地，天才
+不过给了雨帘，感觉挺好玩的
+
+*****
+
+####  苍蓝之枪  
+##### 2840#       发表于 2024-2-13 21:29
+
+最后还是打了野康，900以上反而比800段好打
+
+
+*****
+
+####  墨染白泉  
+##### 2841#       发表于 2024-2-13 21:29
+
+dlc通关后有武器基本款的白色换皮拿
+
+*****
+
+####  carroy  
+##### 2842#       发表于 2024-2-13 21:31
+
+草 dlc介绍看起来好无聊这是可以说的吗
+
+竹伞很帅
+
+小姬和饭田有包机了这是wwwww
+
+<img src="https://img.saraba1st.com/forum/202402/13/213204iy3w535a5j5k4jfh.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1271.png</strong> (312.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202402/13/213202zg71bpo47soaia7g.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1274.png</strong> (376.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202402/13/213205o758jc7f58cpjd3f.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1275.png</strong> (356.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-13 21:32 上传
+

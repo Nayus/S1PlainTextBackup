@@ -20099,3 +20099,22 @@ wdnmd，我果然着了mygo的相了。这两天看老三国，看到徐庶被�
 
 raychell早年写真帖吧都发不出去<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  QuattroVageena  
+##### 12534#       发表于 2024-2-13 13:59
+
+<img src="https://p.sda1.dev/15/fb8193293eaffdd4f51a0ed4e8253c6c/IMG_CMP_90931171.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 12535#       发表于 2024-2-13 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952670&amp;ptid=2159415" target="_blank">yevvet 发表于 2024-2-13 13:43</a>
+raychell早年写真帖吧都发不出去</blockquote>
+自购吗，我找到个有密码的压缩包但是没密码
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

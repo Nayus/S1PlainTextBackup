@@ -14064,3 +14064,11 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+*****
+
+####  KBAC  
+##### 2879#       发表于 2024-2-14 01:32
+
+秩序塔门口有个带编号的疑似5x8的置物柜，有40关？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

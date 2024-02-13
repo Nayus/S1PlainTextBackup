@@ -14072,3 +14072,14 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 
 秩序塔门口有个带编号的疑似5x8的置物柜，有40关？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 2880#       发表于 2024-2-14 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957093&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-2-14 01:32</a>
+ 秩序塔门口有个带编号的疑似5x8的置物柜，有40关？</blockquote>
+哦那个置物柜是和武器有关的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+话说二代广场不知道还会实装吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

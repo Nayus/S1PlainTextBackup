@@ -575,3 +575,11 @@ Weisheit Blaurecht
 我明白了，是食刃种
 歌姬和彼方合体，诺瓦尔用用歌姬身体<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3797#       发表于 2024-2-13 09:48
+
+即不相信贤士，也不相信人类的大老板太适合当最终BOSS了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，夏尔有没有强行重置失去记忆再会的可能?
+

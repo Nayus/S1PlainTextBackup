@@ -14044,3 +14044,23 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 上次老任的广告就搞出了章鱼脸鱿鱼，总是搞出混种生物 ...</blockquote>
 这次依然有一瞬间新3号坐在火车上瞌睡的镜头，剧情上肯定不是单单8号这么简单
 
+
+*****
+
+####  KBAC  
+##### 2877#       发表于 2024-2-14 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957031&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-2-14 01:06</a>
+ 这次依然有一瞬间新3号坐在火车上瞌睡的镜头，剧情上肯定不是单单8号这么简单 ...</blockquote>
+然后就发现这次宣传片新3号的发型不是三股辫而是老3号发型<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 2878#       发表于 2024-2-14 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957031&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-02-14 01:06:53</a>
+这次依然有一瞬间新3号坐在火车上瞌睡的镜头，剧情上肯定不是单单8号这么简单 ...</blockquote>然后就发现这次宣传片新3号的发型不是三股辫而是老3号发型<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+

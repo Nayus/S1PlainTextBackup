@@ -554,3 +554,13 @@ Weisheit Blaurecht
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aruruu  
+##### 3795#       发表于 2024-2-13 09:22
+
+夏尔真死了这番还有啥看点吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

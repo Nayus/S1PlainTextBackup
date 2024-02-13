@@ -19955,3 +19955,11 @@ soyo发现祥子、睦开新乐队时应该就是这个眼神吧<img src="https:
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yoyodream  
+##### 12519#       发表于 2024-2-13 09:23
+
+mygo不是邦换血的重要一环嘛，真放弃嘛（
+

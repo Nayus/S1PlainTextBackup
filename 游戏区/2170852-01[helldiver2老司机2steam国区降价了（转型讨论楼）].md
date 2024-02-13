@@ -2861,3 +2861,13 @@ C:%users%user-id\ ...</blockquote>
 一代的联网人有没有复活的迹象？ 我之前登1代的时候超级地球爆了....估计是没人打 ...</blockquote>
 早没人玩了，初代游戏寿命太短了，几十小时装备全解锁就没东西玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alexgrave  
+##### 317#       发表于 2024-2-13 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63954528&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-2-13 19:37</a>
+要最后一击，叫的炮台激光轰炸打死也算，不行自己开难度4单刷，刷完扯腿不用完成任务 ...</blockquote>
+开了两局单刷，都没一个<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

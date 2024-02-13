@@ -1189,3 +1189,11 @@ IP大战略呗，21年开始到起码25年每年都有IP的动画看，先相信
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cat1230  
+##### 19555#       发表于 2024-2-13 23:32
+
+non的MC接青山的时候导播给的青山面部特学，伟大的脸让我忘记了前面小剧场的怪异<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">青山太好看了。
+

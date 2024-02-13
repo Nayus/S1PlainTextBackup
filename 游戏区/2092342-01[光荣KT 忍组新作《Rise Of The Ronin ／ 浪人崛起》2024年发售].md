@@ -22,3 +22,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光荣平时不给忍组这帮人上上历史课啊？
 
+
+*****
+
+####  奥F特  
+##### 623#       发表于 2024-2-13 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">安田大概没想那么多
+

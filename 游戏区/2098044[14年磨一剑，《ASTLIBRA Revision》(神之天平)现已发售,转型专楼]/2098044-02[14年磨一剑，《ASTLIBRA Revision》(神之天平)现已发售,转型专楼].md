@@ -89,3 +89,28 @@ DLC 30块，好便宜，立刻入手
 
 —— 来自 vivo V2218A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  christiny  
+##### 3857#       发表于 2024-2-13 23:26
+
+ 本帖最后由 christiny 于 2024-2-13 23:28 编辑 
+
+dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成配方怎么拿。
+
+预感评价不高，除非后期有惊天剧情。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白河响剑  
+##### 3858#       发表于 2024-2-13 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一路砍瓜切菜拿了天平还纳闷怎么没对应选项以为BUG了
+
+结果得中途回城解锁魔法然后才能看到天平
+
+你这菜单解锁怎么还带前置的啊
+

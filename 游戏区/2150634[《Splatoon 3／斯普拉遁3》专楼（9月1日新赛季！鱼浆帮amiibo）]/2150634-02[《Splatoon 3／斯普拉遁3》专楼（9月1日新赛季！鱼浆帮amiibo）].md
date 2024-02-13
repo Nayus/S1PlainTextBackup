@@ -13968,3 +13968,11 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 
 虽说早就决心不玩任何roguelike游戏了，不过2代dlc给我的印象实在太棒，所以还是玩玩看好了
 
+
+*****
+
+####  炫夜鳞  
+##### 2869#       发表于 2024-2-13 23:26
+
+有种正式发售的美<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

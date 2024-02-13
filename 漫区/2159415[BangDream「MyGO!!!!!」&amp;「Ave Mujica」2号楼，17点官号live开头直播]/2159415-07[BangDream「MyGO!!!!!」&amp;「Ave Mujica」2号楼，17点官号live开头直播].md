@@ -20652,3 +20652,36 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 2024-2-13 23:23 上传
 
+
+*****
+
+####  傘木希美  
+##### 12583#       发表于 2024-2-13 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">祥子！祝你幸福
+
+*****
+
+####  [皆神孝介]  
+##### 12584#       发表于 2024-2-13 23:25
+
+@御幸一也
+
+发表于 2024-2-13 23:07
+
+把链接发一下啊：[https://twitter.com/Kanon_Takao/status/1757419963822854213](https://twitter.com/Kanon_Takao/status/1757419963822854213)
+
+*****
+
+####  [皆神孝介]  
+##### 12585#       发表于 2024-2-13 23:25
+
+祥子，生日快乐~<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 12586#       发表于 2024-2-13 23:27
+
+掐点发月光三 太好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

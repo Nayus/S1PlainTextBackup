@@ -20134,3 +20134,15 @@ raychell早年写真帖吧都发不出去</blockquote>
 
 2024-2-13 15:43 上传
 
+
+*****
+
+####  yevvet  
+##### 12537#       发表于 2024-2-13 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952751&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-13 14:02</a>
+自购吗，我找到个有密码的压缩包但是没密码
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
+自购了一本。尺度没有很大，但就是发不出去
+

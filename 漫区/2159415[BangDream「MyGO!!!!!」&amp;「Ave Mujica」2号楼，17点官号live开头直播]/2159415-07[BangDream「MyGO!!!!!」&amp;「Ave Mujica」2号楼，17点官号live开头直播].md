@@ -19942,3 +19942,16 @@ soyo发现祥子、睦开新乐队时应该就是这个眼神吧<img src="https:
 
 找切片听了听，一言以蔽之，好烂。
 
+
+*****
+
+####  屑猫猫  
+##### 12518#       发表于 2024-2-13 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63947285&amp;ptid=2159415" target="_blank">氷川日菜 发表于 2024-2-12 18:49</a>
+大鼓怎么丢拨片不丢鼓棒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">夏芽之前丢过么
+那就期待一波coco丢鼓棒
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

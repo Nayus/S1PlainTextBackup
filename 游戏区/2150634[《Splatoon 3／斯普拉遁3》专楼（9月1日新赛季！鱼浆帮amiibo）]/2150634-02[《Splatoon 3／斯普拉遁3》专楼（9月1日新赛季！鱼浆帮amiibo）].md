@@ -14093,3 +14093,16 @@ dlc最后白武器那个图，左侧有2个剪影是没见过的武器，应该�
 
 — from Google Pixel 7, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  晴岚  
+##### 2882#       发表于 2024-2-14 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957107&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-2-14 01:40</a>
+哦那个置物柜是和武器有关的
+话说二代广场不知道还会实装吗</blockquote>
+2代广场就留给四代dlc吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

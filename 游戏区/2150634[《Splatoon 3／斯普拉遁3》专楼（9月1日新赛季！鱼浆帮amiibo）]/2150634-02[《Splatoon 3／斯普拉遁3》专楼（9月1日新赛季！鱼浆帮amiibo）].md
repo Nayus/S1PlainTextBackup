@@ -13583,3 +13583,14 @@ melon真是恐怖如斯，XP3000+的鹦鹉螺主播犹如小喽啰一般<img src
 
 你游真正的抽卡就是roll队友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 2829#       发表于 2024-2-13 18:47
+
+还是看看22号的DLC成色如何吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其他的 我也不觉得他能有啥大幅度的改善了
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

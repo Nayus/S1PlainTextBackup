@@ -20163,3 +20163,13 @@ QQ图片20240213175607.jpg
 
 <img src="https://img.saraba1st.com/forum/202402/13/175622frq9x5xlq5184xx1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCauchy  
+##### 12539#       发表于 2024-2-13 18:04
+
+纯k没有春日影，只能投屏b站，但是好像兼容性不行，总是中断<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，总之不许演奏春日影
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

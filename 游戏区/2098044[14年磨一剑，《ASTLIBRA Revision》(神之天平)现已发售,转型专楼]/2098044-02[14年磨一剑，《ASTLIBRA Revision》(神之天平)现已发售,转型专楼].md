@@ -257,3 +257,13 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 
 歇了 护肝要紧
 
+
+*****
+
+####  ——啧  
+##### 3873#       发表于 2024-2-14 04:47
+
+黑这个大开叉真的顶，就是怎么又……是你<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

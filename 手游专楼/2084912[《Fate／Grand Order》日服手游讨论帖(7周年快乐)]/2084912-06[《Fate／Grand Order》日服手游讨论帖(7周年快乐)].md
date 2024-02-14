@@ -272,3 +272,15 @@
 
 —— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  angelooo  
+##### 11371#       发表于 2024-2-15 01:08
+
+<blockquote>保罗赫伯特 发表于 2024-2-14 19:49
+汇呆现在是真不如摩根一根吧，不如当时搞水镜传送咕哒了</blockquote>
+隔壁也有人提这个if，结果撕到现在了
+
+我不理解.jpg
+

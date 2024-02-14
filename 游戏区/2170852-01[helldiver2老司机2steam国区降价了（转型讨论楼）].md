@@ -3507,3 +3507,13 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 这代没有枪械强化了吗
 
+
+*****
+
+####  晨汐听雨  
+##### 383#       发表于 2024-2-15 07:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63963984&amp;ptid=2170852" target="_blank">机动三轮 发表于 2024-2-15 02:24</a>
+这代没有枪械强化了吗</blockquote>
+目前看上去没有，可能是故意加难度了
+

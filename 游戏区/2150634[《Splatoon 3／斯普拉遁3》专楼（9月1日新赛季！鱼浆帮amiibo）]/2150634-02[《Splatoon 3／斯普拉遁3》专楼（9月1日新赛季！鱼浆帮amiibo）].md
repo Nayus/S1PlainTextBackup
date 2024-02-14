@@ -14630,3 +14630,21 @@ ps:被网友快速发现外观是仙台国际空港
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 2930#       发表于 2024-2-15 07:13
+
+两个金X加特林玩家也是可以坐队友的么<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/15/071341oxle29elju565e27.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-15-07-06-38-805_com.google.android.youtube-edit.jpg</strong> (745.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 07:13 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

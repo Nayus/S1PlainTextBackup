@@ -665,3 +665,27 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 后面没交战过
 
+
+*****
+
+####  白軍浪  
+##### 3910#       发表于 2024-2-15 00:14
+
+金卡买到多少合适呢?
+
+5000以后的挡位还要买吗?
+
+*****
+
+####  超法拉  
+##### 3911#       发表于 2024-2-15 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63963153&amp;ptid=2098044" target="_blank">白軍浪 发表于 2024-2-15 00:14</a>
+金卡买到多少合适呢?
+
+5000以后的挡位还要买吗?</blockquote>
+买到6000还是7000就没得买了
+建议是全买
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

@@ -3471,3 +3471,13 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 超级气球都发不起工资了，就不要奢望服务器了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -v-  
+##### 380#       发表于 2024-2-15 00:57
+
+哎不是，天使投资解放完了我的1w块呢？？？？
+
+又卡没了？？？
+

@@ -287,3 +287,23 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  荆棘花冠  
+##### 3876#       发表于 2024-2-14 08:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">女王衣服太勇气了，必须入手
+
+*****
+
+####  caupollen  
+##### 3877#       发表于 2024-2-14 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957415&amp;ptid=2098044" target="_blank">立派的首陀罗 发表于 2024-2-14 07:58</a>
+
+能合成更高一级的药吧？
+
+—— 来自 S1Fun</blockquote>
+是的，300血药=试管+100血果子，商店购买合成和直接买的成本是一样的，后面高级血药直接买就血亏了
+

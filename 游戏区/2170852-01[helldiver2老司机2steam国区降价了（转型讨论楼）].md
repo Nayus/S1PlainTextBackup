@@ -2927,3 +2927,20 @@ C:%users%user-id\ ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瑞典人还在睡觉？STEAM评论区都闹麻了，DISCORD那边什么情况，也在装死？
 
+
+*****
+
+####  ab20000801  
+##### 324#       发表于 2024-2-14 10:49
+
+<blockquote>Launce 发表于 2024-2-14 10:42
+瑞典人还在睡觉？STEAM评论区都闹麻了，DISCORD那边什么情况，也在装死？看了下评论区，没空 ...</blockquote>
+早就醒了，现在在紧急招人呢，ceo都在推特上招聘了
+
+*****
+
+####  ab20000801  
+##### 325#       发表于 2024-2-14 10:49
+
+又玩了一晚上不得不感慨这游戏的底子真的太好了......
+

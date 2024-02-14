@@ -21026,3 +21026,35 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 有位哥能不能別那麼晦氣，祥子生日搬點正常的圖行不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 12623#       发表于 2024-2-14 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晦气物会凑上来但没关系可以多看点好的洗一下眼
+
+比如天音妹妹回了高尾推特<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/14/104935s72ijehtvv3t3tim.jpg" referrerpolicy="no-referrer">
+
+<strong>20240214114902.jpg</strong> (14.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 10:49 上传
+
+*****
+
+####  skives  
+##### 12624#       发表于 2024-2-14 10:50
+
+看完高尾的视频 越来越相信祥子贝多芬论了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12625#       发表于 2024-2-14 10:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

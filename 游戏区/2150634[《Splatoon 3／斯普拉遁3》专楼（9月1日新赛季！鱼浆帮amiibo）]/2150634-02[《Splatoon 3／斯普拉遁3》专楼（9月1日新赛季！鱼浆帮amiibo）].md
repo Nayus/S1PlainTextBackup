@@ -14226,3 +14226,14 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  leyenda  
+##### 2894#       发表于 2024-2-14 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958827&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-14 13:42</a>
+
+这些装备会是第二贴牌，还是无印换皮肤（类似英雄小绿）？</blockquote>
+无印换皮，新贴牌那就成了付费武器了
+

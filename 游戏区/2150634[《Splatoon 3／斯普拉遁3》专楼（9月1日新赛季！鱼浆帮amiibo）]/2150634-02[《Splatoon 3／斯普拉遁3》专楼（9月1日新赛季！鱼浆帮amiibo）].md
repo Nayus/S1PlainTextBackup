@@ -14134,3 +14134,15 @@ DLC我几乎从没玩过roguelike所以倒还有点新鲜感，就怕不耐玩
 
 白色的8号好色<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 2886#       发表于 2024-2-14 09:10
+
+DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特林吧
+
+【【Splatoon2】英雄模式刷英雄中加特林录像【大概算速通】-哔哩哔哩】 https://b23.tv/zp6qHa4
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

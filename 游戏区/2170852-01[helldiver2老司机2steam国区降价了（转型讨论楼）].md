@@ -2961,3 +2961,16 @@ C:%users%user-id\ ...</blockquote>
 Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是神奇。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 昨晚试了下匹配还是反复失败成功几率低，地图上直接选房却能直接进去
 
+
+*****
+
+####  Launce  
+##### 328#       发表于 2024-2-14 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958112&amp;ptid=2170852" target="_blank">泉美 发表于 2024-2-14 11:24</a>
+
+Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是神奇。
+
+昨晚试了下匹配还是反复失败成功 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为官方公告确实说修好了，地图选房我一直都是失败，只有直接进好友房才行
+

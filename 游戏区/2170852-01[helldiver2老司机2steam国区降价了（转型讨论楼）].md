@@ -3372,3 +3372,13 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  leoray  
+##### 369#       发表于 2024-2-14 20:06
+
+野队体验不要太好，排了好几把基本都在结算后发表情互拥<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

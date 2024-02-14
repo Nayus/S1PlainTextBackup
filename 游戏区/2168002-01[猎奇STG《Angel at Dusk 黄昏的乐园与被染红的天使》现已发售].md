@@ -1438,3 +1438,13 @@ syl 狠狠的吐槽一下贪欲天使，真的好菜好菜 ...</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  quanlix  
+##### 112#       发表于 2024-2-14 08:25
+
+贪欲适合打编年史全制霸，后期攒到二三十个僚机之后火力就炸裂了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

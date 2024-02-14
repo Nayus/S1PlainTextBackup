@@ -388,3 +388,18 @@ KPI而已，有没有用看独权
 
 — from Xiaomi 23049RAD8C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  b0207191  
+##### 46#       发表于 2024-2-14 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960091&amp;ptid=2171759" target="_blank">super_uni 发表于 2024-2-14 18:13</a>
+
+这倒是事实，好几千呢
+
+— from Xiaomi 23049RAD8C, Android 13 of S1 Next Goose v2.5.4 ...</blockquote>
+是不是国家对每个专利有统一的补贴或者免税政策，好像每个要求写专利的公司奖金都是几千？
+
+有没有公司每个专利奖金是几百或者几万的？
+

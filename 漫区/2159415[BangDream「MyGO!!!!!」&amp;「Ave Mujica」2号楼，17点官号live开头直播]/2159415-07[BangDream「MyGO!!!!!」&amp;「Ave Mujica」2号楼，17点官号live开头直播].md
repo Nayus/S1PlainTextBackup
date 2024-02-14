@@ -21981,3 +21981,33 @@ https://www.animatetimes.com/news/details.php?id=1707447433&amp;utm_source=twitt
 
 你说是烂梗就是咯，毕竟梗有不烂的吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 12715#       发表于 2024-2-14 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960233&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-14 18:29</a>
+
+https://www.animatetimes.com/news/details.php?id=1707447433&amp;p=2
+
+提到了一點ave所以翻譯一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">啊啊啊……一辈子支持鼓李non三人行
+
+*****
+
+####  御幸一也  
+##### 12716#       发表于 2024-2-14 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/14/204319s43z48k4bqqtf8sv.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_無音零(@MuonRei00)_20240214-092541_1757697610784395322_photo.jpg</strong> (244.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 20:43 上传
+
+[https://twitter.com/MuonRei00/status/1757697610784395322](https://twitter.com/MuonRei00/status/1757697610784395322)
+

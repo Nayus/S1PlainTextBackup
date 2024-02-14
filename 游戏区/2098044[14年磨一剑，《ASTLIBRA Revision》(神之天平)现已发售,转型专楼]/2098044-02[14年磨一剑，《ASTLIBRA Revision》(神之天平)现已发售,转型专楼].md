@@ -738,3 +738,17 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  后会莫急  
+##### 3917#       发表于 2024-2-15 06:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最终肩甲在去王宫的路上，需要合成出本篇的安眠药迷晕卫兵
+
+最终武器需要几件装备熟练度满给的绳子和监狱钥匙，从井里去本编主角被关的牢房打隐藏boss拿到心天平，然后给老妈换宝石，再去猪猪那做成武器
+
+最终盾牌在去监狱的另一条路走到底打完boss
+

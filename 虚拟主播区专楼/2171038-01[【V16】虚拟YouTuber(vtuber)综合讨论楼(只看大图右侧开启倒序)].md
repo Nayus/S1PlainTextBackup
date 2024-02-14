@@ -248,3 +248,18 @@ You can't make this shit up
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wuzhengkai  
+##### 111#       发表于 2024-2-15 02:39
+
+现在vt最新最in的rrat是说 从头到尾 EN管理就是Elira及其小圈子 
+
+*****
+
+####  wuzhengkai  
+##### 112#       发表于 2024-2-15 02:40
+
+虽然极其扯淡 但好像真的只有这个解释才能说得通你虹这一堆操作 为什么这么大公司搞得跟私人恩怨一样 因为本来就是私人恩怨 而且为什么天骄路和Elira的视频说法又很大程度不一样
+

@@ -21153,3 +21153,23 @@ mygo吧原住民出来了哈哈哈
 
 mygo第9集炸是因为mygo的故事第10集就结束了（访谈语），如果mujica没这个限制的话10集或者11集才炸也是有可能的吧，除非mujica也是10集结束然后结尾给第三个团入场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 12638#       发表于 2024-2-14 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">续篇构成和前篇可能会比较不一样，因为展开大概会完全衔接，所以开端部分极端点的情况下可以直接跳过，7~9差不多刚好也能撞上剧本发展后期~高潮部分的大区间
+
+当然不一定会炸，但是不太可能会是开心喝茶的时间段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TTAA  
+##### 12639#       发表于 2024-2-14 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957966&amp;ptid=2159415" target="_blank">skives 发表于 2024-2-14 10:50</a>
+
+看完高尾的视频 越来越相信祥子贝多芬论了</blockquote>
+是说祥子和贝多芬一样失聪吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

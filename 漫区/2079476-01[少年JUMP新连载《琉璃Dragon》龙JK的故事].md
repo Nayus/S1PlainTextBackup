@@ -818,3 +818,11 @@ http://m.muwai.com/info/64259.html
 
 龙龙也是够神奇的，原作内容不多休刊两年，不仅本土进漫画评选榜单，宝岛少年也连载，大陆甚至引进加周边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  跳瓶器  
+##### 90#       发表于 2024-2-15 03:58
+
+特装版带2吧唧特典，才58还包邮，忍不住直接剁手了<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+

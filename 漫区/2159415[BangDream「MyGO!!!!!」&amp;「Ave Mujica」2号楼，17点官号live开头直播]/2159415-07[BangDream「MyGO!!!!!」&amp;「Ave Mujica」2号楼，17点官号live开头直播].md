@@ -21173,3 +21173,13 @@ mygo第9集炸是因为mygo的故事第10集就结束了（访谈语），如果
 看完高尾的视频 越来越相信祥子贝多芬论了</blockquote>
 是说祥子和贝多芬一样失聪吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 12640#       发表于 2024-2-14 12:07
+
+如果有新团的话，今年是不是该动了，可以参考一下。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+除非真要把管人团也做进去。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

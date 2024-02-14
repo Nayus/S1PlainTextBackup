@@ -1197,3 +1197,11 @@ IP大战略呗，21年开始到起码25年每年都有IP的动画看，先相信
 
 non的MC接青山的时候导播给的青山面部特学，伟大的脸让我忘记了前面小剧场的怪异<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">青山太好看了。
 
+
+*****
+
+####  caicaistar  
+##### 19556#       发表于 2024-2-14 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">non的MC除了切割，最有劲的是前面几次抹眼泪搁那摸眼霜呢，最后才酝酿出一点
+

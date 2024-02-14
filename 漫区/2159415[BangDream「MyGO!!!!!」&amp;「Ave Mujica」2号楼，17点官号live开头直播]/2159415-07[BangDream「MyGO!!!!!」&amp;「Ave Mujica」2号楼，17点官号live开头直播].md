@@ -22011,3 +22011,11 @@ https://www.animatetimes.com/news/details.php?id=1707447433&amp;p=2
 
 [https://twitter.com/MuonRei00/status/1757697610784395322](https://twitter.com/MuonRei00/status/1757697610784395322)
 
+
+*****
+
+####  NODY  
+##### 12717#       发表于 2024-2-14 21:22
+
+按访谈的说法（起码在鼓已知的范围内）基本可以确定立希和祥子在c团解散后一直没见过面而且对祥子情况不知情了吧，第二季或者手游打补丁另说
+

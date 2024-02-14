@@ -3068,3 +3068,18 @@ Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是�
 —— 来自 Xiaomi 2201123C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 应该就是巡逻的机器人小兵，打了一两把机器人图，出来看就做完了
 
+
+*****
+
+####  runningch  
+##### 340#       发表于 2024-2-14 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有没有用加速器的，有用吗？
+
+*****
+
+####  RockingHorse  
+##### 341#       发表于 2024-2-14 13:13
+
+个人体感用不用加速器没啥本质区别，该加不进去还是进不去
+

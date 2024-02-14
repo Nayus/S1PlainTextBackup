@@ -642,3 +642,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 奇怪的风怒
 
+
+*****
+
+####  Nihlathak  
+##### 3908#       发表于 2024-2-14 21:55
+
+有没有老哥总体评价一下DLC做的怎么样
+
+—— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

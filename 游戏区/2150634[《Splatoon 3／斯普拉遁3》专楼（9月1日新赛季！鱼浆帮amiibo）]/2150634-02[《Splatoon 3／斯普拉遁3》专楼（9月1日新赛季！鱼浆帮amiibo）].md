@@ -14349,3 +14349,11 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 想想算了又不是不能玩，打了三把工 -10、-20（大嘴掉线）、-10，光速下线<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 2906#       发表于 2024-2-14 18:36
+
+新双枪似乎只能翻滚一次？
+

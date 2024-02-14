@@ -3281,3 +3281,18 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 —— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Gmlazy  
+##### 360#       发表于 2024-2-14 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960247&amp;ptid=2170852" target="_blank">KafuuChino 发表于 2024-2-14 18:31</a>
+
+更新结束→快速匹配→无法加入游戏大厅
+
+不过好像少按了几次R；闪退问题靠N卡控制面板强行限制帧数解 ...</blockquote>
+电弧确实强，带个喷子预防追踪虫跳脸就更好了。
+
+2代电弧只会在目标周边扇区形成电链，比1代打面前扇形要强得多，这下也不太担心队友的站位，实用性真是上了一个新台阶。
+

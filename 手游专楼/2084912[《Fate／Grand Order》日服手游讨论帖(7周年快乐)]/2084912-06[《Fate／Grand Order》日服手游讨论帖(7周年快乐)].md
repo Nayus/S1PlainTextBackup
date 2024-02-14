@@ -110,3 +110,19 @@
 没想到活动给的护符居然是有灵魂的  该开始存石了！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新怎么总在豹跳 妈的 我怎么什么都不出 
 
+
+*****
+
+####  里村紅葉  
+##### 11354#       发表于 2024-2-14 18:40
+
+<img src="https://img.saraba1st.com/forum/202402/14/183951rc88fsf4j9fd9f2x.jpg" referrerpolicy="no-referrer">
+
+<strong>GGSO-UFacAAtR2c.jpg</strong> (357.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 18:39 上传
+
+捏麻麻的，这不是画的挺好看的吗，游戏里那个大饼脸是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

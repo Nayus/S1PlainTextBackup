@@ -506,3 +506,13 @@ DLC小徽章有什么用啊，好像不能在猪屋那边抽奖了
 
 防御者的战技怎么是尖叫啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiiTiiLL  
+##### 3896#       发表于 2024-2-14 19:10
+
+dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
+
+—— 来自 vivo V2218A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

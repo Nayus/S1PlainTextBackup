@@ -555,3 +555,16 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 用反射</blockquote>
 也可能我正好站台子下面了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白河响剑  
+##### 3901#       发表于 2024-2-14 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959906&amp;ptid=2098044" target="_blank">虚无缥缈的光阴 发表于 2024-2-14 17:42</a>
+
+是要攒够60个才能换吗？我现在十几个小徽章了，和会长对话还是只有挑战内容
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">酒馆那个
+

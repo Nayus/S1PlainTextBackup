@@ -21058,3 +21058,11 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 12626#       发表于 2024-2-14 11:03
+
+贝多芬父亲也酗酒，这么说就懂了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

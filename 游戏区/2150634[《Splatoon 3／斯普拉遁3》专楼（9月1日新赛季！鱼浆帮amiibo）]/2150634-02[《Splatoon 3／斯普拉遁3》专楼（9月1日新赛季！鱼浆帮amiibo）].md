@@ -14167,3 +14167,16 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晴岚  
+##### 2889#       发表于 2024-2-14 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958037&amp;ptid=2150634" target="_blank">星野航 发表于 2024-2-14 11:07</a>
+5确高射速远距离双枪
+造型帅的，实战感觉歇逼</blockquote>
+对标旁边的太空枪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3463,3 +3463,11 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 再科普一遍初代的服务器仅限于打完任务给超级地球上传进度分，联机战斗纯P2P
 
+
+*****
+
+####  smdzh2  
+##### 379#       发表于 2024-2-14 23:30
+
+超级气球都发不起工资了，就不要奢望服务器了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

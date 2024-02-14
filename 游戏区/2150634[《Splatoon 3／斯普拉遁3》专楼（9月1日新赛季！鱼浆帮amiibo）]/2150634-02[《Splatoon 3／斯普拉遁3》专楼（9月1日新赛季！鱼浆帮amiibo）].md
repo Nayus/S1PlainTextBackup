@@ -14568,3 +14568,16 @@ ps:被网友快速发现外观是仙台国际空港
 
 终于摆脱200开局了，以后鲑坝和破船都是300开了，什么时候给金工?
 
+
+*****
+
+####  Junakr  
+##### 2924#       发表于 2024-2-14 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63962117&amp;ptid=2150634" target="_blank">君往何处 发表于 2024-2-14 22:29</a>
+
+你多久没玩了……祭典区域是日服的话，进入分区祭典的时候界面会切到日语，上次就是这样的，要一直到祭典 ...</blockquote>
+打工一直断断续续的随缘上线随便打，上次打对战的话估计都在去年国庆前了，最后一次参与的周年祭典也只上去打了两把，完全不想再碰 PVP 了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+不过研究所居然真的不认为统一将所有选择日区的玩家游戏语言改成日语会有问题吗，两次都这样影响正常游玩还搞什么区域祭典啊。
+

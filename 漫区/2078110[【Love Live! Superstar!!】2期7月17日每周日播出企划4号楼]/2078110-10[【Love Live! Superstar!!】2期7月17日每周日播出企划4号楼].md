@@ -1253,3 +1253,17 @@ pay 三单
 
 —— 来自 OPPO PEGM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  starring  
+##### 19560#       发表于 2024-2-14 23:33
+
+【[Liella! CLUB] バレンタインBチーム（伊達・Liyuu・絵森・坂倉）24.02.12 (Day1)】 [https://www.bilibili.com/video/B ... ac28d8cf8e031afff27](https://www.bilibili.com/video/BV12C411s724/?share_source=copy_web&amp;vd_source=2cc77ebe129bdac28d8cf8e031afff27)
+
+【[Liella! CLUB] バレンタインAチーム（岬・鈴原・薮島・大熊）24.02.13 (day2)】 [https://www.bilibili.com/video/B ... ac28d8cf8e031afff27](https://www.bilibili.com/video/BV1nH4y1a7cw/?share_source=copy_web&amp;vd_source=2cc77ebe129bdac28d8cf8e031afff27)
+
+【[Liella! CLUB] バレンタインCチーム（ペイトン・青山・結那）(24.02.14) day3】 [https://www.bilibili.com/video/B ... ac28d8cf8e031afff27](https://www.bilibili.com/video/BV12v421C7Zf/?share_source=copy_web&amp;vd_source=2cc77ebe129bdac28d8cf8e031afff27)
+
+B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

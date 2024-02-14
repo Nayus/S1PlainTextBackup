@@ -1213,3 +1213,29 @@ non的MC接青山的时候导播给的青山面部特学，伟大的脸让我忘
 
 套用最近大火的春山学的说法，跟bjt一样就不是傻，而是职场绿茶那套明着有心算击体面人和照顾大局人呗<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19558#       发表于 2024-2-14 19:15
+
+pay 三单
+
+第三首歌自己作曲作词
+
+<img src="https://img.saraba1st.com/forum/202402/14/191540cw5wteteeulwwbwt.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240214191333.jpg</strong> (31.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202402/14/191543rm5x7payaysmphax.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240214191426.png</strong> (76.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 19:15 上传
+

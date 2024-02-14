@@ -14396,3 +14396,14 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 风怒
 
+
+*****
+
+####  KBAC  
+##### 2911#       发表于 2024-2-14 19:23
+
+看了下官网，秩序篇给多人游戏用的道具、装备和武器应该是游戏过程中获得的，不是剧情通关奖励。剧情通关奖励是什么没有提，只有更新了才能知道。
+要我猜就是4号的全套英雄武器和二代广场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

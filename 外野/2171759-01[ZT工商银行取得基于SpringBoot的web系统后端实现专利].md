@@ -347,3 +347,13 @@ KPI而已，有没有用看独权
 
 发明专利很多都这样，我上学的时候还把自己的破论文改改成专利了呢，无所谓的
 
+
+*****
+
+####  hyde_caesar  
+##### 42#         楼主| 发表于 2024-2-14 14:44
+
+不是很懂专利起诉这方面的, 这个他能告我写的代码侵犯他专利吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个实在是太常见了主要是
+

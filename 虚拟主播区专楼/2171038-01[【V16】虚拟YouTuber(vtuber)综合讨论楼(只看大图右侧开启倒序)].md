@@ -263,3 +263,22 @@ You can't make this shit up
 
 虽然极其扯淡 但好像真的只有这个解释才能说得通你虹这一堆操作 为什么这么大公司搞得跟私人恩怨一样 因为本来就是私人恩怨 而且为什么天骄路和Elira的视频说法又很大程度不一样
 
+
+*****
+
+####  IL282  
+##### 113#       发表于 2024-2-15 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63964006&amp;ptid=2171038" target="_blank">wuzhengkai 发表于 2024-2-15 02:40</a>
+虽然极其扯淡 但好像真的只有这个解释才能说得通你虹这一堆操作 为什么这么大公司搞得跟私人恩怨一样 因为 ...</blockquote>
+这故事编的（留个余地，不排除是真的）极其的绝，就大部分要素都是能找到出处的公开信息，我看着看着都能发现好多事我看直播的时候听主播自己说过
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IL282  
+##### 114#       发表于 2024-2-15 02:53
+
+好好好，楼又抽风了
+

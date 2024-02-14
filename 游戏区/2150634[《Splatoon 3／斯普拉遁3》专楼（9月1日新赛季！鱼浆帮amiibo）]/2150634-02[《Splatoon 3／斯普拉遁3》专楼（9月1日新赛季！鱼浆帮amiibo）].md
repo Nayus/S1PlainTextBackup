@@ -14480,3 +14480,15 @@ ps:被网友快速发现外观是仙台国际空港
 
 顺便应该不能改了现在 要等祭典过了才能改
 
+
+*****
+
+####  Teiume  
+##### 2917#       发表于 2024-2-14 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63961814&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-14 21:55</a>
+感觉被研究所针对，测试了一下游戏语言突然被切到日语的情况。
+
+- 出现问题的是日服号，机身地区日本、语 ...</blockquote>
+等祭典结束就好。祭典期间日区会强制改日文。
+

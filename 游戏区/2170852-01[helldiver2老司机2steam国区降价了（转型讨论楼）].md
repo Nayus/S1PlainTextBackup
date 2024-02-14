@@ -3205,3 +3205,31 @@ Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是�
 
 更新了晚上看看实力，昨天刚买游戏进教程掉线3次也绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 352#       发表于 2024-2-14 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，一溜的FIX CRASH
+
+*****
+
+####  hisousihou  
+##### 353#       发表于 2024-2-14 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这公司到底对自己产品有没有底数啊。一代就是感觉挺火的结果压根没有后续更新了。二代一上来bug加服务器问题。
+
+想玩，但是感觉可以再等几波修复
+
+*****
+
+####  gnleez  
+##### 354#       发表于 2024-2-14 17:14
+
+PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
+
+有一局拿了好多样本，运输机到了直接掉线2个好友，还好没人上飞机，等了快5分钟都回来才撤退
+
+另外昨天还遇到了一些离谱的bug，比如：两架运输机叠叠乐，坦克虫弹射起飞等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

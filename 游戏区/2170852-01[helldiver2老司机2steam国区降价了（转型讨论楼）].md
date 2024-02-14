@@ -3233,3 +3233,11 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 另外昨天还遇到了一些离谱的bug，比如：两架运输机叠叠乐，坦克虫弹射起飞等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 355#       发表于 2024-2-14 18:03
+
+依然会闪退，懒狗箭头还是回去补觉吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

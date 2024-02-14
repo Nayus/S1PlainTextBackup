@@ -65,3 +65,11 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  angelooo  
+##### 11350#       发表于 2024-2-14 17:55
+
+卡面和强度全寄了……但尼托礼装太棒啦
+

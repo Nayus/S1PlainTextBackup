@@ -14319,3 +14319,11 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  实津二三  
+##### 2903#       发表于 2024-2-14 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好久没开游戏了，原来贴牌小绿已经废了吗。
+

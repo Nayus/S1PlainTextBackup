@@ -22027,3 +22027,18 @@ https://www.animatetimes.com/news/details.php?id=1707447433&amp;p=2
 
 有一说一，ayasa应该算挺喜欢音宝的，上次拍自己小提琴和琴盒后面露出来了音宝的写真
 
+
+*****
+
+####  枫林不见  
+##### 12719#       发表于 2024-2-14 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 虽然但是台长 哎 天音妹妹 哎 小羊
+
+*****
+
+####  PDQ4  
+##### 12720#       发表于 2024-2-14 22:19
+
+自家孩子搞翻车了除了无奈宠溺还能怎么办，毕竟音宝那时候确实未成年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

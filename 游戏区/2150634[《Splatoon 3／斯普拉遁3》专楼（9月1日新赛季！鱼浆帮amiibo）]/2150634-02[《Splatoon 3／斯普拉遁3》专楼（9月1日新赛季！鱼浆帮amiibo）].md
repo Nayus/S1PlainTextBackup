@@ -14492,3 +14492,31 @@ ps:被网友快速发现外观是仙台国际空港
 - 出现问题的是日服号，机身地区日本、语 ...</blockquote>
 等祭典结束就好。祭典期间日区会强制改日文。
 
+
+*****
+
+####  KBAC  
+##### 2918#       发表于 2024-2-14 22:20
+
+新伞演示视频有人发现标线器似乎带穿透了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  清浦刹那  
+##### 2919#       发表于 2024-2-14 22:21
+
+新的竹伞是不是第一把适合那几件和风穿搭暖暖的武器<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junakr  
+##### 2920#       发表于 2024-2-14 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊是这样吗，又是我看不懂的操作。
+
+我是当祭典不存在的，一周年祭典后之后就没有再投过票了，这次也不准备参与。
+
+上次的区域祭典前我大概没有打开游戏看过，是我大惊小怪了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">。
+

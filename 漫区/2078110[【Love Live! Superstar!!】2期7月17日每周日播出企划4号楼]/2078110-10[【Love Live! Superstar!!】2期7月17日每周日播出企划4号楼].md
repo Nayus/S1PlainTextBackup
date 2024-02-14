@@ -1239,3 +1239,17 @@ pay 三单
 
 2024-2-14 19:15 上传
 
+
+*****
+
+####  梶原ひかり  
+##### 19559#       发表于 2024-2-14 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960558&amp;ptid=2078110" target="_blank">starring 发表于 2024-2-14 19:15</a>
+pay 三单
+
+第三首歌自己作曲作词</blockquote>
+好像出单曲..一直没意思给拍MV?
+
+—— 来自 OPPO PEGM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

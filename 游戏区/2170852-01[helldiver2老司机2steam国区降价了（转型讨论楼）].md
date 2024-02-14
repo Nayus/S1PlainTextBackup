@@ -3446,3 +3446,20 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 每天总有新的姿势小霸王，我服了
 
+
+*****
+
+####  runningch  
+##### 377#       发表于 2024-2-14 23:00
+
+这垃圾服务器，真的是服了。初代的服务器有这么<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">吗？
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  你可以试试  
+##### 378#       发表于 2024-2-14 23:02
+
+再科普一遍初代的服务器仅限于打完任务给超级地球上传进度分，联机战斗纯P2P
+

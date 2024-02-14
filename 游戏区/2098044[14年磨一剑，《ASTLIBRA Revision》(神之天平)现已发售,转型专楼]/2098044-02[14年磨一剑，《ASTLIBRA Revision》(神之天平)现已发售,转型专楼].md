@@ -322,3 +322,11 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 
 外传买了 怎么开啊  进游戏本体没看到新选项啊
 
+
+*****
+
+####  cym887  
+##### 3880#       发表于 2024-2-14 09:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">买完DLC安装的时候只有本体 删了重装才行
+

@@ -20828,3 +20828,183 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 今天打算下午出门点一杯伯爵红茶，晚上去日料店点朝日啤酒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 12601#       发表于 2024-2-14 01:03
+
+祥子一看就讨厌酒，我决定今天这个大喜的日子不喝酒。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 12602#       发表于 2024-2-14 01:07
+
+【【Ave Mujica手书/睦祥】转生林檎-哔哩哔哩】 [https://b23.tv/m2FLQl4](https://b23.tv/m2FLQl4)
+强啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12603#       发表于 2024-2-14 01:10
+
+真没想到竟然是用转生林檎做的手书，太强了。
+
+不得不说睦祥确实适合各种paro，就是刚看到小章鱼的时候笑出声了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 12604#         楼主| 发表于 2024-2-14 01:13
+
+ 本帖最后由 紫吹兰 于 2024-2-14 01:15 编辑 
+
+祝你幸福<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  庸necro  
+##### 12605#       发表于 2024-2-14 01:22
+
+丰川祥子小姐生日快乐
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  KirigawaMaki  
+##### 12606#       发表于 2024-2-14 01:39
+
+好棒的月光<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asda  
+##### 12607#       发表于 2024-2-14 01:42
+
+<blockquote>凡人 发表于 2024-2-13 23:11
+可以猜的就狗团会不会有人贺吧，还有灯会不会，🐔团都没什么好猜的。</blockquote>
+大鼓是最快的那个，比李子都快，鼓音是真亲友
+
+*****
+
+####  穗波殊  
+##### 12608#       发表于 2024-2-14 01:46
+
+祝祥子生日快乐！（没想到竟然和情人节同一天，今天估计要在各类24h里累脱水了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  阿姆罗二世  
+##### 12609#       发表于 2024-2-14 02:02
+
+骂归骂，看还是要看，不矛盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 12610#       发表于 2024-2-14 02:06
+
+24h？30h！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://s2.loli.net/2024/02/14/T3Pfhe2kqO6XzU8.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12611#       发表于 2024-2-14 02:50
+
+<img src="https://img.saraba1st.com/forum/202402/14/024950z0amvysdhyg44a1a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2057.jpeg</strong> (432.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 02:49 上传
+
+[https://twitter.com/bpdne/status/1757444623902064994](https://twitter.com/bpdne/status/1757444623902064994)
+
+*****
+
+####  凡人  
+##### 12612#       发表于 2024-2-14 06:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63956935&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-14 00:41</a>
+哦对了，今天的あぐのん应该也会有祥子庆生环节</blockquote>
+生日快乐祥，希望明年的这个时候邦邦还没死
+
+*****
+
+####  长空雁叫霜晨月  
+##### 12613#       发表于 2024-2-14 07:43
+
+祥子生日快乐
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  可爱美味祥子  
+##### 12614#       发表于 2024-2-14 07:57
+
+被净化了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12615#       发表于 2024-2-14 08:29
+
+好多的贺图还有强力营业看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+希望明年今日再度生日的时候故事已经向好的方向前进了好几步吧
+
+*****
+
+####  凡人  
+##### 12616#       发表于 2024-2-14 09:46
+
+我在想如果是每xl一翻页，然后引用回复造成的错误数据识别不了，那当引用回复达到x或者x+1l是不是就不卡了
+
+*****
+
+####  6030sylar  
+##### 12617#       发表于 2024-2-14 09:57
+
+<img src="https://img.saraba1st.com/forum/202402/14/095739c86p80lzft3q535p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>45124c2b45b4bef8d08d23e8c39c1f9d.jpeg</strong> (200.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 09:57 上传
+
+*****
+
+####  6030sylar  
+##### 12618#       发表于 2024-2-14 10:18
+
+<img src="https://img.saraba1st.com/forum/202402/14/101800nm2p3b7zdf9u152p.jpg" referrerpolicy="no-referrer">
+
+<strong>16A8I][YWW6WD@P7P}NCKHW.jpg</strong> (136.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 10:18 上传
+
+*****
+
+####  佟柚子  
+##### 12619#       发表于 2024-2-14 10:20
+
+为什么在外面看很多新回复  里面看不到
+
+*****
+
+####  鳥栖朝  
+##### 12620#       发表于 2024-2-14 10:24
+
+难绷，怎么会有人卡在生日发拷打贴的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

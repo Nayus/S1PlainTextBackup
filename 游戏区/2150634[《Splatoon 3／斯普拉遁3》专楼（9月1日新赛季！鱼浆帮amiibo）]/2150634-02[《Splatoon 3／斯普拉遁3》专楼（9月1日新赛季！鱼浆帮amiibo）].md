@@ -14256,3 +14256,13 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 感觉最近网又不太行了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 2897#       发表于 2024-2-14 16:46
+
+脱离达人4的标准当然是找到稳定车队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

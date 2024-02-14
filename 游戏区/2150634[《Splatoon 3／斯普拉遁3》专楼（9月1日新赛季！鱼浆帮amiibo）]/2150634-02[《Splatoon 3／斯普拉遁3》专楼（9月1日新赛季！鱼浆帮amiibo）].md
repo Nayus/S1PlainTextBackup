@@ -14327,3 +14327,13 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好久没开游戏了，原来贴牌小绿已经废了吗。
 
+
+*****
+
+####  秋月孝三  
+##### 2904#       发表于 2024-2-14 18:10
+
+好，这下抹布桶副武器99%是鱼雷了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

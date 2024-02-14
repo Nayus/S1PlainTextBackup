@@ -3241,3 +3241,18 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 依然会闪退，懒狗箭头还是回去补觉吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 356#       发表于 2024-2-14 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不闪退了，变成稳定蓝屏了
+
+*****
+
+####  冰箱研会长  
+##### 357#       发表于 2024-2-14 18:13
+
+和野人12min清了Helldive难度全图，英语最有用的一天。
+

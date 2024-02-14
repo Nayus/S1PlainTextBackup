@@ -375,3 +375,16 @@ KPI而已，有没有用看独权
 
 —— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  super_uni  
+##### 45#       发表于 2024-2-14 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958062&amp;ptid=2171759" target="_blank">lightdog 发表于 2024-2-14 11:11</a>
+可是真的能发钱啊~
+不寒碜！</blockquote>
+这倒是事实，好几千呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

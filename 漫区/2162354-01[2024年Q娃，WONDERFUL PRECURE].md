@@ -4371,3 +4371,14 @@ fy
 
 今年的ed1是2人专场，还是合唱，本来正合适给声优唱的，可是却第一次选了2个歌手。估计官方现在更侧重未来可能的演唱会了。
 
+
+*****
+
+####  粉儿alice  
+##### 907#       发表于 2024-2-14 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959763&amp;ptid=2162354" target="_blank">bilibilius 发表于 2024-2-14 17:16</a>
+今年的ed1是2人专场，还是合唱，本来正合适给声优唱的，可是却第一次选了2个歌手。估计官方现在更侧重未来 ...</blockquote>
+这和谁主p关系比较大 内藤p两代魔法拥抱都是声优唱ed
+去年天空ed1也是两个歌手唱
+

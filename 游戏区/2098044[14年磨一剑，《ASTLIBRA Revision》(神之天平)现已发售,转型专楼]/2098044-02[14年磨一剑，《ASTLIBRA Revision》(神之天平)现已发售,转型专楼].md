@@ -275,3 +275,15 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 
 老妈的刺刺果150块钱300，饰品店的血瓶100块回300，还是秒回，这老妈是不是来纯坑女儿的
 
+
+*****
+
+####  立派的首陀罗  
+##### 3875#       发表于 2024-2-14 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957331&amp;ptid=2098044" target="_blank">caupollen 发表于 2024-2-14 07:04</a>
+老妈的刺刺果150块钱300，饰品店的血瓶100块回300，还是秒回，这老妈是不是来纯坑女儿的 ...</blockquote>
+能合成更高一级的药吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

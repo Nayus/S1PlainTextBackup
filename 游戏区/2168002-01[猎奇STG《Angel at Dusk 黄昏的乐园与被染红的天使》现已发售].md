@@ -1425,3 +1425,16 @@ boss不会处理，打得时候心里没底
 
 不注意就打了快七个钟，好爽好爽好爽，贴脸硬干真的好爽<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藤井紫  
+##### 111#       发表于 2024-2-14 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63956992&amp;ptid=2168002" target="_blank">丛林驼 发表于 2024-2-14 00:55</a>
+不注意就打了快七个钟，好爽好爽好爽，贴脸硬干真的好爽
+syl 狠狠的吐槽一下贪欲天使，真的好菜好菜 ...</blockquote>
+设置里可以调整主机判定点的颜色，调整后会舒服些
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

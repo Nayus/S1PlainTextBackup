@@ -14614,3 +14614,19 @@ ps:被网友快速发现外观是仙台国际空港
 
 日本上位都卷到不睡觉的吗，昨天是choco今天abyss naegora 全都不睡觉半夜在播
 
+
+*****
+
+####  罗克萨斯  
+##### 2929#       发表于 2024-2-15 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63964165&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-2-15 06:43</a>
+日本上位都卷到不睡觉的吗，昨天是choco今天abyss naegora 全都不睡觉半夜在播
+
+ ...</blockquote>
+奶狗拉昨晚8点的区域没开直播，看APP掉了大分，肯定是想尽快打回来
+
+巧、abyss、奶狗拉这几个，搁中国肯定被归类为网瘾少年，要接受电疗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

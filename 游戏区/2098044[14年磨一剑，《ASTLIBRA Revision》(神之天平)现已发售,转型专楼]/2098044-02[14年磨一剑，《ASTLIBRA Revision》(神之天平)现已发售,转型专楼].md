@@ -623,3 +623,22 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 —— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  Ivent  
+##### 3906#       发表于 2024-2-14 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959457&amp;ptid=2098044" target="_blank">白河响剑 发表于 2024-2-14 16:07</a>
+说是晚些要上NS 所以PC就开着CE草草过了一遍
+
+本质本篇新章威力增强版，如果喜欢新章刷刷刷那这DLC挺 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">啊。。。那个成就不是后续再打，而是当时就得胜利吗？
+
+*****
+
+####  超法拉  
+##### 3907#       发表于 2024-2-14 21:42
+
+奇怪的风怒
+

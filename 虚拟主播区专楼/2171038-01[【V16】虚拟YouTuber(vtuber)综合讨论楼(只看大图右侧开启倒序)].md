@@ -238,3 +238,13 @@ You can't make this shit up
 
 我感觉这个楼已经cursed
 
+
+*****
+
+####  格林卡罗尔  
+##### 110#       发表于 2024-2-15 00:53
+
+.live搞成这样更多的是运营净干蠢事停播几个月，liver对运营失去信心离开。不得不说是有不少相似之处，但现在这事舆论几乎是一边倒...想想也是难绷，doki应该是打算官司私下解决的，结果en这边反应恁大
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

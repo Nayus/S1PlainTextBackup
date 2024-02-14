@@ -14280,3 +14280,32 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  墨染白泉  
+##### 2899#       发表于 2024-2-14 17:24
+
+演示视频新伞强度还行
+
+*****
+
+####  DeltaStriker  
+##### 2900#       发表于 2024-2-14 17:31
+
+之前就觉得小枪很适配墨墙 没想到给了52 毕竟刻板印象是这玩意涂地立回性能一般
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  来看你  
+##### 2901#       发表于 2024-2-14 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959769&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-2-14 17:16</a>
+
+新伞 标线器+巨大防护罩，2确武器
+
+52贴牌 冰壶炸弹+浮墨幕墙</blockquote>
+废了啊 52 操
+

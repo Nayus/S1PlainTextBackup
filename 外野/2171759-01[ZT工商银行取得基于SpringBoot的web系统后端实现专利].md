@@ -365,3 +365,13 @@ KPI而已，有没有用看独权
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难绷
 
+
+*****
+
+####  八里流  
+##### 44#       发表于 2024-2-14 17:26
+
+完成任务而已，我们公司也要求每年交一篇专利，谁管你写的什么
+
+—— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

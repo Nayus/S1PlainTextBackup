@@ -21018,3 +21018,11 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 12622#       发表于 2024-2-14 10:36
+
+有位哥能不能別那麼晦氣，祥子生日搬點正常的圖行不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

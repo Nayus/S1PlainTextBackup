@@ -2919,3 +2919,11 @@ C:%users%user-id\ ...</blockquote>
 可以设置单刷么。每次进任务默认组野队了。</blockquote>
 游戏里不就有选项，是否公开跟是否跨平台
 
+
+*****
+
+####  Launce  
+##### 323#       发表于 2024-2-14 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瑞典人还在睡觉？STEAM评论区都闹麻了，DISCORD那边什么情况，也在装死？
+

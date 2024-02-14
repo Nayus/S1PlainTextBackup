@@ -14146,3 +14146,13 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  darkddragon  
+##### 2887#       发表于 2024-2-14 10:37
+
+我去，这新双枪
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

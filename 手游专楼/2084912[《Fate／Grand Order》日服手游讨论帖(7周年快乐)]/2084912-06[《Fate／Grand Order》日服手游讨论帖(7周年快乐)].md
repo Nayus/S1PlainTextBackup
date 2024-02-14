@@ -83,3 +83,19 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  alucardcz  
+##### 11352#       发表于 2024-2-14 18:21
+
+<img src="https://img.saraba1st.com/forum/202402/14/182115kfgpyvpoyqzhyp3z.jpg" referrerpolicy="no-referrer">
+
+<strong>23232.jpg</strong> (559 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 18:21 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">没想到活动给的护符居然是有灵魂的  该开始存石了！
+

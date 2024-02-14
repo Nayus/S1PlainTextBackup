@@ -14337,3 +14337,15 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Junakr  
+##### 2905#       发表于 2024-2-14 18:15
+
+半个多月没开游戏，上线一看怎么播新闻变成日语了……哦区域祭典没有做中文文本是吗。
+
+退出一看，啊？怎么全部变成日语了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，重启游戏……没用，游戏语言不是跟 NS 主机语言的吗，我没动过啊一直简中。
+
+想想算了又不是不能玩，打了三把工 -10、-20（大嘴掉线）、-10，光速下线<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+

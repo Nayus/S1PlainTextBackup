@@ -486,3 +486,15 @@ DLC小徽章有什么用啊，好像不能在猪屋那边抽奖了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  这是马甲  
+##### 3894#       发表于 2024-2-14 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959906&amp;ptid=2098044" target="_blank">虚无缥缈的光阴 发表于 2024-2-14 17:42</a>
+是要攒够60个才能换吗？我现在十几个小徽章了，和会长对话还是只有挑战内容
+
+—— 来自 S1Fun ...</blockquote>
+是酒馆里那个，打完3-9就能进了
+

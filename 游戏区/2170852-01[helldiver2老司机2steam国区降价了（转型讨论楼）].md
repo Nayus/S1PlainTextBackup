@@ -3436,3 +3436,13 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 我还以为天使今天解放不了了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ChirstDR  
+##### 376#       发表于 2024-2-14 22:51
+
+天使解放然后服务器就小霸王了
+
+每天总有新的姿势小霸王，我服了
+

@@ -14520,3 +14520,51 @@ ps:被网友快速发现外观是仙台国际空港
 
 上次的区域祭典前我大概没有打开游戏看过，是我大惊小怪了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  君往何处  
+##### 2921#       发表于 2024-2-14 22:29
+
+ 本帖最后由 君往何处 于 2024-2-14 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63961814&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-14 21:55</a>
+
+感觉被研究所针对，测试了一下游戏语言突然被切到日语的情况。
+
+- 出现问题的是日服号，机身地区日本、语 ...</blockquote>
+你多久没玩了……祭典区域是日服的话，进入分区祭典的时候界面会切到日语，上次就是这样的，要一直到祭典结算完了
+
+回复完才看到前面的已经说了，泥潭目前吞楼显示有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 2922#       发表于 2024-2-14 22:33
+
+在4K神图里打赢了4K<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/14/223356v36avw16ww6wywsz.jpg" referrerpolicy="no-referrer">
+
+<strong>2024021422293800-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (242.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 22:33 上传
+
+<img src="https://img.saraba1st.com/forum/202402/14/223356sx1s0tb1eebeeeps.jpg" referrerpolicy="no-referrer">
+
+<strong>2024021422295000-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (242.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 22:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  苍蓝之枪  
+##### 2923#       发表于 2024-2-14 22:46
+
+终于摆脱200开局了，以后鲑坝和破船都是300开了，什么时候给金工?
+

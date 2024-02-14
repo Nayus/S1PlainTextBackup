@@ -980,3 +980,21 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 喵萌是不做了吗。。到现在只更到15
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3839#       发表于 2024-2-14 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960687&amp;ptid=2092345" target="_blank">whitefangzero 发表于 2024-2-14 19:32</a>
+
+喵萌是不做了吗。。到现在只更到15</blockquote>
+喵萌估计是大学生的组，春节放假了不更也很正常……不过他们延误的天数确实是越来越多了。
+
+*****
+
+####  洛克萨斯  
+##### 3840#       发表于 2024-2-14 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">雪儿+诺瓦一起宕机，这下怎么展开啊
+

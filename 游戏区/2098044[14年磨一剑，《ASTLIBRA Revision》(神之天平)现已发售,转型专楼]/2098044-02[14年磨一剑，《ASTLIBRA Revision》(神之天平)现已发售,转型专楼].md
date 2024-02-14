@@ -534,3 +534,24 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 好像还真是，要站在跳跃平台下方
 
+
+*****
+
+####  这是马甲  
+##### 3899#       发表于 2024-2-14 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960742&amp;ptid=2098044" target="_blank">amazarashi 发表于 2024-2-14 19:40</a>
+洞窟boss，举盾也被海啸秒杀
+
+这总不能是机制杀吧</blockquote>
+用反射
+
+*****
+
+####  这是马甲  
+##### 3900#       发表于 2024-2-14 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960895&amp;ptid=2098044" target="_blank">这是马甲 发表于 2024-2-14 19:59</a>
+用反射</blockquote>
+也可能我正好站台子下面了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

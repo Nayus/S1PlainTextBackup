@@ -3355,3 +3355,20 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">11号的更新补丁之后PC的A卡就开始疯狂闪退了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS5也是A，哼，想逃
 
+
+*****
+
+####  smdzh2  
+##### 367#       发表于 2024-2-14 19:58
+
+喷了，越更新越离谱，出击界面人物反复进出空降舱的bug都给我卡出来了，整个屏幕都在鬼畜抖动<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  runningch  
+##### 368#       发表于 2024-2-14 20:03
+
+单人能玩，但真的是又累又缺少乐趣。
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

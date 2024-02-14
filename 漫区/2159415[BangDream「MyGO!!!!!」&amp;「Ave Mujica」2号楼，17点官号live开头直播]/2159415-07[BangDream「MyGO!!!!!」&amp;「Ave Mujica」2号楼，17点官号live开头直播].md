@@ -21971,3 +21971,13 @@ https://www.animatetimes.com/news/details.php?id=1707447433&amp;utm_source=twitt
 
 <img src="http://i0.hdslb.com/bfs/new_dyn/ed57cc2992706622070d20818a35f869588051389.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安洁莉娜  
+##### 12714#       发表于 2024-2-14 19:59
+
+因为台长有段时间被观众怀疑“被公司优化了”，加上台长是邦浓度最高的动漫杂谈UP，更多的是调侃台长本人吧？
+
+你说是烂梗就是咯，毕竟梗有不烂的吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

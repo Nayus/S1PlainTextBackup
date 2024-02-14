@@ -262,3 +262,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">仇尼托礼装补足了仇尼托满破卡图露出度不够的缺憾，能抽到就好了
 
+
+*****
+
+####  棍机凹升龙  
+##### 11370#       发表于 2024-2-14 23:55
+
+丢了一发10连居然2宝，用了下还是切回狂武藏
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

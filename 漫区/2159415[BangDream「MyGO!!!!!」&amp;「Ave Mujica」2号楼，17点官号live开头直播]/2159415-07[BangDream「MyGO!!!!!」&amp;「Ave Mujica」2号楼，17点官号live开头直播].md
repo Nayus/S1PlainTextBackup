@@ -21465,3 +21465,29 @@ gachi笑话，b站所有巡演羊忘词且播放量比较高的切片都被精�
 
 https://weibo.com/7157361492/5001211556397146<img src="https://p.sda1.dev/15/7ba9020d0e0e71c16d0f5a710bf35738/CMP_20240214140805934.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 12670#       发表于 2024-2-14 14:14
+
+今天吃到了萌萌初祥<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 12671#       发表于 2024-2-14 14:17
+
+提到25.2.14，只可惜母鸡卡动画大概不会真到睦祥生日这个时间点，感觉圣诞也到不了，不然对应生日来个血色圣诞可太像绫奈会干的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 12672#       发表于 2024-2-14 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957792&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-14 10:18</a></blockquote>
+原图
+<img src="https://p.sda1.dev/15/a0109d370d62f9157ca3adcdd3f52ae5/CMP_20240214141925938.jpg" referrerpolicy="no-referrer">
+

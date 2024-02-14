@@ -14156,3 +14156,14 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 —— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  星野航  
+##### 2888#       发表于 2024-2-14 11:07
+
+5确高射速远距离双枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+造型帅的，实战感觉歇逼
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

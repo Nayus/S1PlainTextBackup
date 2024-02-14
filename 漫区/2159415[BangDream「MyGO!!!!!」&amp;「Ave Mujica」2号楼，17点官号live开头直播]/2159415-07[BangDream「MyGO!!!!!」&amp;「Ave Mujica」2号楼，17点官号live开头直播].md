@@ -21066,3 +21066,32 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 贝多芬父亲也酗酒，这么说就懂了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ytttsuuuba  
+##### 12627#       发表于 2024-2-14 11:06
+
+说起来，明年1月如果也是三集联播，那第9集播完第二天就是祥子的生日，第9集这个节点一般都是矛盾爆发的最高潮（），如果不是3集联播，那就是第7集结束后接祥子的生日，第7集一般也是剧情的巨大转折点的位置。总之明年祥子的生日结合剧情应该会有别样的感受。<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 12628#       发表于 2024-2-14 11:08
+
+简单来说就是祥子的处境不是非常坏就是更坏
+
+*****
+
+####  Aendst  
+##### 12629#       发表于 2024-2-14 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">制作组能不能做个好人写点好的，糟心展开搭配生日有点地狱了
+
+*****
+
+####  ytttsuuuba  
+##### 12630#       发表于 2024-2-14 11:09
+
+祝豊川祥子さん情人节、生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

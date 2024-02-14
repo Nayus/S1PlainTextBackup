@@ -206,3 +206,11 @@
 
 蘑菇这家伙情人节特地搞个FGO版的公主来媚宅，但来到狂C呆就要提醒玩家她真爱是士郎/村正<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11364#       发表于 2024-2-14 19:49
+
+汇呆现在是真不如摩根一根吧，不如当时搞水镜传送咕哒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1205,3 +1205,11 @@ non的MC接青山的时候导播给的青山面部特学，伟大的脸让我忘
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">non的MC除了切割，最有劲的是前面几次抹眼泪搁那摸眼霜呢，最后才酝酿出一点
 
+
+*****
+
+####  liu461  
+##### 19557#       发表于 2024-2-14 16:19
+
+套用最近大火的春山学的说法，跟bjt一样就不是傻，而是职场绿茶那套明着有心算击体面人和照顾大局人呗<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+

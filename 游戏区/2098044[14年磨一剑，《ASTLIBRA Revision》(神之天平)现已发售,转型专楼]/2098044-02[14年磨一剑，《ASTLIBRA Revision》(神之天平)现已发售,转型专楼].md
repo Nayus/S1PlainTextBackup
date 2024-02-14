@@ -728,3 +728,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 —— 来自 vivo V2218A, Android 13上的 S1Next-鹅版  ...</blockquote>
 大概15-20小时通关，我19h通了还差几个成就...
 
+
+*****
+
+####  伊塔库亚  
+##### 3916#       发表于 2024-2-15 04:27
+
+地狱难度第五层打的是真的费劲，进图就是堆怪，怪的伤害又高，基本都是互相秒的节奏。什么狂暴进图直接一个牛头人冲锋怼脸都是日常了。而且作为肉鸽游戏，刷图的时候除了等级没有其他的提升属性手段是不是有点奇怪。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -3296,3 +3296,35 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 2代电弧只会在目标周边扇区形成电链，比1代打面前扇形要强得多，这下也不太担心队友的站位，实用性真是上了一个新台阶。
 
+
+*****
+
+####  Case  
+##### 361#       发表于 2024-2-14 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959484&amp;ptid=2170852" target="_blank">leviathan 发表于 2024-2-14 16:14</a>
+
+单机能玩吗？</blockquote>
+能单刷。但会很累。
+
+而且完全单人游玩是感受不到这游戏互坑的核心乐趣的。
+
+只剩下突突突的打怪太枯燥了。
+
+甚至地图上一些需要两个人开启的机关一个人都没法开。
+
+*****
+
+####  crosz1985  
+##### 362#       发表于 2024-2-14 18:53
+
+没朋友的问下这游戏野队体验怎么样
+
+*****
+
+####  DawnGuardian  
+##### 363#       发表于 2024-2-14 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960394&amp;ptid=2170852" target="_blank"> crosz1985 发表于 2024-2-14 18:53</a> 没朋友的问下这游戏野队体验怎么样 </blockquote>
+野队体验还不错，前提是能匹配上人来自: iPhone客户端
+

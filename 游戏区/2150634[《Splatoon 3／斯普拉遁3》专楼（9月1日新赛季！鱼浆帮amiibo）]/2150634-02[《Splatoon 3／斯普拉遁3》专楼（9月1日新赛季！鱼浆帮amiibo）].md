@@ -14365,3 +14365,34 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 冰壶接触20或爆风30+大招30&gt;48。这下52也有1确手段了
 
+
+*****
+
+####  晴岚  
+##### 2908#       发表于 2024-2-14 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959990&amp;ptid=2150634" target="_blank">实津二三 发表于 2024-2-14 17:57</a>
+
+好久没开游戏了，原来贴牌小绿已经废了吗。</blockquote>
+贴牌小绿就算龙卷风加强了也是贴牌针管的下位，无论是小绿还是52的无印都太强了，粘雷比三角雷可能弱一点，但RPG比龙卷风强多了。
+
+2跟雨帘是最好的搭配，贴牌52无论怎么搭都很难超越无印的，镭射就算一开始不算强力大招但也绝对不算弱的那一档
+
+*****
+
+####  KBAC  
+##### 2909#       发表于 2024-2-14 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959931&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-14 17:47</a>
+ 镭射现在强的一笔，幕墙早就削废了，贴牌52最终会和贴牌小绿一样无人问津  —— 来自 S1Fun ...</blockquote>
+墨墙要达到以前的效果还要不触发光敏性癫痫估计只能再下调亮度了，直接关灯流<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 2910#       发表于 2024-2-14 19:00
+
+ 本帖最后由 KBAC 于 2024-2-14 19:02 编辑 
+
+风怒
+

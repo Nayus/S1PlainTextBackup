@@ -498,3 +498,11 @@ DLC小徽章有什么用啊，好像不能在猪屋那边抽奖了
 —— 来自 S1Fun ...</blockquote>
 是酒馆里那个，打完3-9就能进了
 
+
+*****
+
+####  白軍浪  
+##### 3895#       发表于 2024-2-14 18:54
+
+防御者的战技怎么是尖叫啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

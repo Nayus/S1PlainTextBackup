@@ -21572,3 +21572,386 @@ https://weibo.com/7157361492/5001211556397146<img src="https://p.sda1.dev/15/7ba
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">圣诞节事件不也挺适合惊悚片吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ytttsuuuba  
+##### 12681#       发表于 2024-2-14 14:52
+
+我还挺想看时间线推进到圣诞夜的，因为肯定没好事（），这个节日太适合发生各种事件了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过，应该不可能就是了，推这么快的话老团也要随之变动挺麻烦的。
+
+*****
+
+####  穗波殊  
+##### 12682#       发表于 2024-2-14 14:57
+
+祥厨太多了，实名羡慕
+
+Screenshot_20240214_145638.jpg
+(282.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 14:57 上传
+
+<img src="https://img.saraba1st.com/forum/202402/14/145708h98e7r197r16xprm.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 12683#       发表于 2024-2-14 15:07
+
+<img src="https://img.saraba1st.com/forum/202402/14/150735x82wrqzsbbkzoo8b.jpg" referrerpolicy="no-referrer">
+
+<strong>a0d761e6f5fa0c8f2cee78d40de1080b.jpg</strong> (460.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 15:07 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 可爱美味祥子| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  友情的结晶  
+##### 12684#       发表于 2024-2-14 15:10
+
+要说烂梗那我觉得啥啥台长和祥爹这梗也挺烂的
+
+*****
+
+####  御幸一也  
+##### 12685#       发表于 2024-2-14 15:27
+
+泥們祥廚戰鬥力真的好高啊，怎麼還有人做了個遊戲出來<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/14/152536ibeigg5bbgxzq3uy.jpg" referrerpolicy="no-referrer">
+
+<strong>0077nR1Tgy1hmsylehic6j318g0ow7wh (1).jpg</strong> (298.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 15:25 上传
+
+[https://weibo.com/6522049569/5001320727840175](https://weibo.com/6522049569/5001320727840175)
+
+DL：
+[https://pan.baidu.com/s/1kbUyNAqJog73Cj2t2U_pcg](https://pan.baidu.com/s/1kbUyNAqJog73Cj2t2U_pcg)
+
+PW：0214
+
+*****
+
+####  紫吹兰  
+##### 12686#         楼主| 发表于 2024-2-14 15:41
+
+ 本帖最后由 紫吹兰 于 2024-2-14 15:44 编辑 
+
+mygo和mujica合号也正常，目前最迷惑的其实是TCG那个号实际上把响官号给合了，声优视频现在都在没几个人知道的TCG号发，实际上音宝和青木那个视频游戏号保守翻个倍放鸡狗号估计能翻个5倍，而且鸡狗号还没给TCG的视频引流。
+
+*****
+
+####  御幸一也  
+##### 12687#       发表于 2024-2-14 15:53
+
+@友情的结晶
+
+那是什麼<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12688#       发表于 2024-2-14 16:01
+
+如果以后不出动画了，第二季结尾时间线直接推到三年后全员毕业给个后日谈都行，毕竟你邦手游感觉活不到剧情时间的三年后鸡狗毕业时间点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正已经有少歌这个动画结局直接出到大学后日谈，但手游时间线还在跑高中主线的先例了
+
+*****
+
+####  icoywt  
+##### 12689#       发表于 2024-2-14 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959024&amp;ptid=2159415" target="_blank">我cp结婚了 发表于 2024-2-14 14:32</a>
+堵嘴，很神奇吧？</blockquote>
+羊姐的大手，好汉
+
+*****
+
+####  基神的强袭自由  
+##### 12690#       发表于 2024-2-14 16:32
+
+<img src="https://s2.loli.net/2024/02/14/lkMSsDZKj8LnvOI.png" referrerpolicy="no-referrer">
+
+点一杯伯爵红茶<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 可爱美味祥子| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 12691#       发表于 2024-2-14 16:34
+
+是说台长喜欢祥子还爱玩梗迫害祥子，评论区表示台长三次元祥爹存疑。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+你说烂梗确实烂梗，但是我个人无所谓，因为我是沙爹派的，台长放心飞，有事自己背<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cnlmaa  
+##### 12692#       发表于 2024-2-14 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mygo这新歌和现场版不是一个听感啊
+
+*****
+
+####  461757753  
+##### 12693#       发表于 2024-2-14 17:20
+
+<img src="https://img.saraba1st.com/forum/202402/14/171830h1100oa96a3whs46.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 17:18 上传
+
+[https://www.bilibili.com/read/cv31259367](https://www.bilibili.com/read/cv31259367)
+
+自宣，黑魂×mygo之类的吧，能球个点赞吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12694#       发表于 2024-2-14 17:28
+
+https://www.animatetimes.com/news/details.php?id=1707447433&amp;utm_source=twitter&amp;utm_medium=social
+
+大鼓都说到这份上了，官方真不考虑逆输入一点大鼓和高尾的人际关系吗（除了让立希垫脚外）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/14/172733pr4zlzt4oitvotot.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024_0214_172536.png</strong> (218.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 17:27 上传
+
+*****
+
+####  Akari  
+##### 12695#       发表于 2024-2-14 17:30
+
+<img src="https://wx3.sinaimg.cn/mw2000/628a06f2ly1hmt3htvy4uj22c03404qr.jpg" referrerpolicy="no-referrer">
+<img src="https://wx3.sinaimg.cn/mw2000/628a06f2ly1hmt3htvy4uj22c03404qr.jpg" referrerpolicy="no-referrer">
+
+来个mujica团建，小祥一定要幸福赚大钱。
+
+*****
+
+####  Kfly  
+##### 12696#       发表于 2024-2-14 17:35
+
+甚至还有游戏，而且看描述内容量还不小，牛的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  微尘众  
+##### 12697#       发表于 2024-2-14 17:55
+
+天音妹妹翻车的切片多少年了都没下架，怎么羊就这么快
+
+*****
+
+####  ytttsuuuba  
+##### 12698#       发表于 2024-2-14 17:56
+
+鼓子：在立希看来，和（丰川）祥子的缘分。。。在半途中就分别了，她们对彼此应该有各种各样的想法，很在意今后的发展呢。
+
+因为是原C团的成员，立希在心境上是很复杂的。在她的潜意识中，祥子是憧憬的存在。虽然她本人是不想承认的，但像是在作曲的时候祥子会浮现出来。立希明明也做得很好，但因为有祥子这个绝对的领袖在，她一直都很烦恼。我觉得也是存在这种形式的憧憬的。把自己这些人拉进乐队的世界的人，在最后说了“混蛋老爸”。竟然变成了那样，如果立希知道了，会变成什么样呢？
+
+*****
+
+####  实津二三  
+##### 12699#       发表于 2024-2-14 17:59
+
+[https://weibo.com/5206926018/5001249057409966](https://weibo.com/5206926018/5001249057409966)
+分享一篇朋友的朋友写的纯良睦祥文。
+
+*****
+
+####  NODY  
+##### 12700#       发表于 2024-2-14 18:04
+
+楽奈の話としては、再編集劇場版も決まっているので、きっと何かあるんじゃないかなって。なんていったって、タイトルが「春の陽だまり、迷い猫」ですから。一方で、愛音と立希は今まで通りかな、なんて思っています。
+
+看大鼓这说法，总集篇爱音和立希基本可以确定没什么新东西了，大概率就是加点猫的回忆杀然后动画片段剪辑+猫旁白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 12701#       发表于 2024-2-14 18:07
+
+<img src="https://s2.loli.net/2024/02/14/UhqlQNjXMFV1Gb4.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">晚上点的朝日生啤还有下酒の小菜
+
+*****
+
+####  PDQ4  
+##### 12702#       发表于 2024-2-14 18:19
+
+游戏打完了，奇怪的线也很有趣，非常喜欢睦线奇怪的支线，甚至觉得没那么奇怪，隐藏线也是好的不能再好，cg都很可爱。
+
+厨力很足的诚意大作，祥厨不玩血亏。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 12703#       发表于 2024-2-14 18:24
+
+立希第二季能不能当着爽世的面把祥子牵走，报一箭之仇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 12704#       发表于 2024-2-14 18:25
+
+牵走之后在天桥上发表人格补完宣言吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  構本海  
+##### 12705#       发表于 2024-2-14 18:26
+
+翻页
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御幸一也  
+##### 12706#       发表于 2024-2-14 18:29
+
+[https://www.animatetimes.com/new ... =1707447433&amp;p=2](https://www.animatetimes.com/news/details.php?id=1707447433&amp;p=2)
+
+提到了一點ave所以翻譯一下
+
+<strong>——最終話Ave Mujica登場了。今後會如何，讓人很期待，也有點害怕呢。</strong>
+林：作為立希來說，和祥子的因緣……。她們是以一種很不徹底的方式分別的，互相之間應該會有很多想法才對，我很在意這邊會變得如何。
+
+（立希）原本是CRYCHIC的成員，所以她的心態很複雜。在立希的潛意識中，祥子是她憧憬的存在。雖然她本人不想承認這件事，但她作曲的時候腦袋中會浮現出祥子。明明立希已經做得夠好了，但因為有祥子這樣的絕對的超凡領袖（charisma カリスマ）存在，讓她一直很煩惱。我覺得憧憬，也會有這樣的形式。
+
+這樣一個將自己和大家帶入樂隊世界的人，在最後說出一句「爛老爸」。事情居然變成了這樣，我想的是「立希如果知道了，會怎麼樣呢？」。
+立石：配音的時候就感覺到了，Ave Mujica的問題，和MyGO!!!!!的問題，方向性是不同的……。厲害。
+林：不知道說什麼好……。只能說「厲害」了。震撼邦多利人的大家。
+
+<strong>——是說會有這樣的劇情發展在等著嗎。</strong>
+林：人際關係會更加混亂的感覺。還有就是Ave Mujica他們演唱會的風格很有趣。
+立石：像是在演劇呢。
+林：我感覺她們「真的是表演者呢」，所以也敬請大家期待『BanG Dream! Ave Mujica』裡那樣的演出場面。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 九陌狂游| + 1||
+| kosou| + 1|好评加鹅|
+| PDQ4| + 1||
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 12707#       发表于 2024-2-14 18:30
+
+质疑立希，理解立希，感谢羊女士身体力行向大家证明了当一个乐队里真的有人摆烂的时候其他队友会有多么高血压<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/14/182923q22njjvyfbrxk2dy.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-rmK21T3cSt6-9j.jpg</strong> (75.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202402/14/183038thuwtww65drh0hrd.jpg" referrerpolicy="no-referrer">
+
+<strong>0C943F4A45674EAC03204D25AA6027DD.jpg</strong> (48.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 18:30 上传
+
+*****
+
+####  氷川日菜  
+##### 12708#       发表于 2024-2-14 18:36
+
+唉，今时往日
+<img src="https://p.sda1.dev/15/ad0e4a232a254d4c967b59d876840f3b/GIF 2024-2-14 17-03-47.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/504e5011f92738910697dc0949482dc0/GIF 2024-2-14 17-07-17.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 12709#       发表于 2024-2-14 18:44
+
+妈呀，ayasa笑的有点宠溺<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  [皆神孝介]  
+##### 12710#       发表于 2024-2-14 18:53
+
+ 本帖最后由 [皆神孝介] 于 2024-2-14 18:55 编辑 
+
+@实津二三
+
+发表于 2024-2-14 17:59
+
+怎么还有被和谐的图片？
+
+<img src="https://img.saraba1st.com/forum/202402/14/185520oubyznb0kxrnwojr.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-02-14_18-51-15.png</strong> (101.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 18:55 上传
+
+*****
+
+####  基神的强袭自由  
+##### 12711#       发表于 2024-2-14 19:03
+
+<img src="https://s2.loli.net/2024/02/14/B3T86G7yvlNkcUE.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在在楼里看到这个词嘴角已经开始笑了
+

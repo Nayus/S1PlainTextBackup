@@ -516,3 +516,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 —— 来自 vivo V2218A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  amazarashi  
+##### 3897#       发表于 2024-2-14 19:40
+
+洞窟boss，举盾也被海啸秒杀
+
+这总不能是机制杀吧
+

@@ -182,3 +182,27 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大惊小怪 你看高桥他的庆图不也挺好的
 
+
+*****
+
+####  cenhr  
+##### 11361#       发表于 2024-2-14 19:33
+
+最值钱的回礼应该是武尊的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 11362#       发表于 2024-2-14 19:35
+
+当我没看资料往里面扔了1护肤开始读条的时候我就明白大事不好了，能让我这么容易抽出来的强度不可能好到哪去
+
+抽完了一看数据果然，都8014年了为什么还有这种卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11363#       发表于 2024-2-14 19:42
+
+蘑菇这家伙情人节特地搞个FGO版的公主来媚宅，但来到狂C呆就要提醒玩家她真爱是士郎/村正<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

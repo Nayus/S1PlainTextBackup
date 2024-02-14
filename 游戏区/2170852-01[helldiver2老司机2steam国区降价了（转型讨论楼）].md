@@ -3343,3 +3343,15 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 为什么ps5也会闪退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 366#       发表于 2024-2-14 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960698&amp;ptid=2170852" target="_blank">nagisa123 发表于 2024-2-14 19:34</a>
+
+为什么ps5也会闪退</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">11号的更新补丁之后PC的A卡就开始疯狂闪退了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS5也是A，哼，想逃
+

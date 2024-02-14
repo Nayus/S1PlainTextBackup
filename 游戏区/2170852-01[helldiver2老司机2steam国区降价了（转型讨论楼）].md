@@ -2952,3 +2952,12 @@ C:%users%user-id\ ...</blockquote>
 
 呃啊，又死活连不上匹配了
 
+
+*****
+
+####  泉美  
+##### 327#       发表于 2024-2-14 11:24
+
+Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是神奇。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+昨晚试了下匹配还是反复失败成功几率低，地图上直接选房却能直接进去
+

@@ -21095,3 +21095,36 @@ mujica这几篇媒体repo里面都掺了一些很笔者个人感的东西，虽�
 
 祝豊川祥子さん情人节、生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 12631#       发表于 2024-2-14 11:16
+
+2025年的2月14日是禮拜五，這意味著動畫剛播完緊接著就是祥子生日……
+
+然後綾奈非常仰慕大河內，她會搞出什麼我不好說<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 12632#       发表于 2024-2-14 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转卖票走高跟场馆和地点有很大关系的 毕竟是巡演
+
+*****
+
+####  长空雁叫霜晨月  
+##### 12633#       发表于 2024-2-14 11:22
+
+mygo吧原住民出来了哈哈哈
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 12634#       发表于 2024-2-14 11:23
+
+是ep07-09这个区间，动画内时间有可能刚好撞上圣诞夜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

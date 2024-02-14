@@ -705,3 +705,26 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 还有公会门前那个说面包超好吃的红发女是谁啊，看着好眼熟
 
+
+*****
+
+####  晨汐听雨  
+##### 3914#       发表于 2024-2-15 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960511&amp;ptid=2098044" target="_blank">TiiTiiLL 发表于 2024-2-14 19:10</a>
+dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
+
+—— 来自 vivo V2218A, Android 13上的 S1Next-鹅版  ...</blockquote>
+大概15-20小时通关，我19h通了还差几个成就...
+
+*****
+
+####  晨汐听雨  
+##### 3915#       发表于 2024-2-15 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960511&amp;ptid=2098044" target="_blank">TiiTiiLL 发表于 2024-2-14 19:10</a>
+dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
+
+—— 来自 vivo V2218A, Android 13上的 S1Next-鹅版  ...</blockquote>
+大概15-20小时通关，我19h通了还差几个成就...
+

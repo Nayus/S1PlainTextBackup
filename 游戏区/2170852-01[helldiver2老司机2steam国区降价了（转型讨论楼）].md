@@ -3328,3 +3328,18 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960394&amp;ptid=2170852" target="_blank"> crosz1985 发表于 2024-2-14 18:53</a> 没朋友的问下这游戏野队体验怎么样 </blockquote>
 野队体验还不错，前提是能匹配上人来自: iPhone客户端
 
+
+*****
+
+####  绚烂航迹云  
+##### 364#       发表于 2024-2-14 19:32
+
+野队体验可以的，地图标点和聊天盘用惯了，沟通效率还行
+
+*****
+
+####  nagisa123  
+##### 365#       发表于 2024-2-14 19:34
+
+为什么ps5也会闪退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

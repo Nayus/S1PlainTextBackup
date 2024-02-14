@@ -652,3 +652,16 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 —— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  白河响剑  
+##### 3909#       发表于 2024-2-14 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63961625&amp;ptid=2098044" target="_blank">Ivent 发表于 2024-2-14 21:34</a>
+
+啊。。。那个成就不是后续再打，而是当时就得胜利吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">应该是当时胜利 
+
+后面没交战过
+

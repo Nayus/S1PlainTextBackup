@@ -21183,3 +21183,277 @@ mygo第9集炸是因为mygo的故事第10集就结束了（访谈语），如果
 
 除非真要把管人团也做进去。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 12641#       发表于 2024-2-14 12:13
+
+小祥生日快乐哦
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS.是不是部分mmr被锻炼出敏感肌了，终于意识到睦希生日什么都不发、灯生日转发贺图、爱祥生日自己发图是区别对待了吗，明明以前的气氛下可没人会指出这种自讨没趣的事情呢。
+
+虽然大部分人还是在其乐融融地玩着staffA客服S的梗喊着爱祥爱祥呢，哈哈。
+
+*****
+
+####  Aendst  
+##### 12642#       发表于 2024-2-14 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国区运营水平很尴尬从合号起基本就是泥漏普遍共识了，漏油可以早日取关多关注一下官推和ytb
+
+翻官推还能顺便看到不少中之人营业
+
+*****
+
+####  cindy355  
+##### 12643#       发表于 2024-2-14 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958379&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-14 12:20</a>
+
+国区运营水平很尴尬从合号起基本就是泥漏普遍共识了，漏油可以早日取关多关注一下官推和ytb
+
+翻官推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">跟漏油说应该是没用的，只能说给运营套的滤镜越深碎了就越痛，希望别到时候又来一波大炎上吧。
+
+*****
+
+####  须贺兰  
+##### 12644#       发表于 2024-2-14 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958276&amp;ptid=2159415" target="_blank">TTAA 发表于 2024-2-14 12:02</a>
+
+是说祥子和贝多芬一样失聪吗</blockquote>
+动画还在播的时候关于祥子的手不是什么有什么猜测吗？渐冻症之类的
+
+*****
+
+####  Aendst  
+##### 12645#       发表于 2024-2-14 12:31
+
+尴尬语C没个完，合号，用换头像换头图吸引眼球，mujica俩新曲mv全都放错时间甚至半夜就给你提前泄露出来，角色生日区别对待，这才不到半年缺乏职业道德凸显表演欲的运营事故或者迷惑操作已经不要太多
+
+搞噱头抓热度倒是可以，但只能说水能载舟亦能覆舟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 12646#       发表于 2024-2-14 12:40
+
+staff和客服掌控账号的特权（确信）<img src="https://p.sda1.dev/15/6cd5eb7cc0cc02dab1a6fbd243df9363/-13228723291707883531498_edit_1350872971547181.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  御幸一也  
+##### 12647#       发表于 2024-2-14 12:49
+
+@cindy355
+
+這麼區別對待的嗎，合號這噁心操作別說兩團端水了，這糞營運居然連團內端水都沒做好，嘔嘔嘔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12648#       发表于 2024-2-14 12:53
+
+gachi笑话，b站所有巡演羊忘词且播放量比较高的切片都被精准爆破了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不得不说能把公认营业完美的鼓给气到黑脸是真的有本事，再这样下去祥子嘴灯不练习那句话要成为邦邦界流传千古的醒世名言了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12649#       发表于 2024-2-14 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958525&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-14 12:49</a>
+
+@cindy355
+
+這麼區別對待的嗎，合號這噁心操作別說兩團端水了，這糞營運居然連團內端水都沒做好，嘔嘔嘔[f:0 ...</blockquote>
+我之前就说过了这个官号在立希生日前一天和后一天都专门发文宣传了动画限时观看，唯独跳过了立希生日那天什么都不发，底下还有人洗爱音和立希不好所以不发是符合爱音人设，多少有点乳爱音了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 12650#       发表于 2024-2-14 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958556&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-14 12:55</a>
+
+我之前就说过了这个官号在立希生日前一天和后一天都专门发文宣传了动画限时观看，唯独跳过了立希生日那天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩梗玩着玩着就给运营上了一层干什么都能理解的滤镜
+
+*****
+
+####  御幸一也  
+##### 12651#       发表于 2024-2-14 13:01
+
+這很難評<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 12652#       发表于 2024-2-14 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958525&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-14 12:49</a>
+
+@cindy355
+
+這麼區別對待的嗎，合號這噁心操作別說兩團端水了，這糞營運居然連團內端水都沒做好，嘔嘔嘔[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说要么凑合过要么分呗，上网要学会点红叉，我都推立希了.jpg
+
+*****
+
+####  御幸一也  
+##### 12653#       发表于 2024-2-14 13:07
+
+ 本帖最后由 御幸一也 于 2024-2-14 13:08 编辑 
+
+@须贺兰
+
+祥子貝多芬大概說的這篇吧
+[https://movie.douban.com/review/15455520/?dt_dapp=1](https://movie.douban.com/review/15455520/?dt_dapp=1)
+
+看個樂就行了。
+
+*****
+
+####  Akari  
+##### 12654#       发表于 2024-2-14 13:13
+
+又开始吞页了
+
+*****
+
+####  御幸一也  
+##### 12655#       发表于 2024-2-14 13:14
+
+美美美<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/14/131404n2661i8x3i8226cx.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_踊野ラタ(@Bullfalk)_20240214-045107_1757628514889769151_photo.jpg</strong> (235.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 13:14 上传
+
+[https://twitter.com/Bullfalk/status/1757628514889769151](https://twitter.com/Bullfalk/status/1757628514889769151)
+
+*****
+
+####  cindy355  
+##### 12656#       发表于 2024-2-14 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958655&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-14 13:14</a>
+
+美美美 </blockquote>
+这位老师不整蛊的时候画的图是真美啊……不过我印象里他好像换过一次号了，是那种粉丝到达一定程度就会自爆换号的类型
+
+*****
+
+####  cindy355  
+##### 12657#       发表于 2024-2-14 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">该说不说的处救生和砂寸奏的乐器部分我都很喜欢，砂寸奏的前奏鼓声部分听得人脑子都要飞掉了
+
+*****
+
+####  御幸一也  
+##### 12658#       发表于 2024-2-14 13:20
+
+@cindy355
+
+我還以為他是換坑所以換號呢……
+
+我看他新號幾乎全在蓮，偶爾邦……
+
+*****
+
+####  星空冻结  
+##### 12659#       发表于 2024-2-14 13:25
+
+你邦那个官号端水就没端好过啊，合号之后更是幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说幸好爱音和祥子人气够高，还能压着点不然早被冲了
+
+*****
+
+####  cindy355  
+##### 12660#       发表于 2024-2-14 13:27
+
+https://www.bilibili.com/video/BV1Rp421R7TB/
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">原来邦的B站新春会的节目这么硬的吗，乐队场完全爽到了，以前都没注意过
+
+*****
+
+####  蒜苗  
+##### 12661#       发表于 2024-2-14 13:35
+
+大祥老师生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜苗  
+##### 12662#       发表于 2024-2-14 13:36
+
+现在泥楼是怎么个卡页法来着
+
+*****
+
+####  御幸一也  
+##### 12663#       发表于 2024-2-14 13:38
+
+無所謂，卡頁了就倒序看，已經不在意卡頁了()
+
+*****
+
+####  66367749  
+##### 12664#       发表于 2024-2-14 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958540&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-14 12:53</a>
+gachi笑话，b站所有巡演羊忘词且播放量比较高的切片都被精准爆破了
+
+不得不说能把公认营业完美的鼓给 ...</blockquote>
+看别人发的是用的版权理由<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 12665#       发表于 2024-2-14 13:42
+
+不要对b站账号运营有不切实际的期待，别的各路官号私用也挺常见，很可能就一两个年轻打工仔负责，喜欢什么来什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 12666#       发表于 2024-2-14 13:44
+
+<img src="https://img.saraba1st.com/forum/202402/14/134438n68ci8quq5qib4m9.jpg" referrerpolicy="no-referrer">
+
+<strong>GGOaYRVWwAEMokS.jpg</strong> (191.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 13:44 上传
+
+[https://twitter.com/RegitionLee/status/1757419635887030332](https://twitter.com/RegitionLee/status/1757419635887030332)
+
+*****
+
+####  御幸一也  
+##### 12667#       发表于 2024-2-14 13:56
+
+這圖都有人發過一次了，再發一次是覺得不夠晦氣嗎，祥子生日好看的圖那麼多就挑爛梗發唄<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12668#       发表于 2024-2-14 14:03
+
+放平心态啦，烂梗和刁图国内传播图就是更广，动画播放期间不就知道了。蒸么，你不服气？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+你看b号运营都要入乡随俗玩语擦烂梗呢。
+
+我是不知道把运营和角色绑定有什么好处，它甚至做不到端水。
+
+只能说还好不是国内企划，不然光凭这个运营号就弃坑了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

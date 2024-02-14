@@ -14180,3 +14180,22 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  苍蓝之枪  
+##### 2890#       发表于 2024-2-14 12:26
+
+我觉得这期破船还可以的，结果200开门就涨了60分，太吓人了
+
+不搬蛋的烤架不会引的车不带会家的到处都是，这都脱离达人4了还这样?
+
+*****
+
+####  DeltaStriker  
+##### 2891#       发表于 2024-2-14 12:31
+
+我以为坛友的脱离达人4标准是400？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

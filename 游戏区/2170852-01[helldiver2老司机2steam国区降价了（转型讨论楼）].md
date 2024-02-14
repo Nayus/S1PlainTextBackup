@@ -3014,3 +3014,20 @@ Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是�
 
 高难比较好匹配，我现在都刷7-8的。
 
+
+*****
+
+####  雪地白狼  
+##### 334#       发表于 2024-2-14 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">下载完运行都运行不了，开任务管理器看了一眼进程是已挂起的状态
+
+*****
+
+####  LYYL  
+##### 335#       发表于 2024-2-14 12:33
+
+之后会更新大机器人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

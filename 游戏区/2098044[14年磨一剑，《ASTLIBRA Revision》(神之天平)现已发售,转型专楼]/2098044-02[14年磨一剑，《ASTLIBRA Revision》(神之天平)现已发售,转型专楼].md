@@ -409,3 +409,18 @@ dlc从哪里进啊
 一路肝到火山的龙，扛不住了，得去刷刷数值了，你们一般道中前面刷几次再去打BOSS？ ...</blockquote>
 本体？刷满可以获得的所有装备的熟练度
 
+
+*****
+
+####  白河响剑  
+##### 3889#       发表于 2024-2-14 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958911&amp;ptid=2098044" target="_blank">虚无缥缈的光阴 发表于 2024-2-14 14:06</a>
+
+DLC小徽章有什么用啊，好像不能在猪屋那边抽奖了
+
+—— 来自 S1Fun</blockquote>
+公会会长给奖励
+
+总计60个徽章
+

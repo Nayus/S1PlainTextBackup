@@ -3390,3 +3390,26 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 有联机群吗，野队排不进去，solo打好累
 
+
+*****
+
+####  Launce  
+##### 371#       发表于 2024-2-14 20:48
+
+<img src="https://img.saraba1st.com/forum/202402/14/204746phayjp0fffaqgyf7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 20:47 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刷到的，我绷不住了
+
+*****
+
+####  FLZB  
+##### 372#       发表于 2024-2-14 20:53
+
+更新的什么勾史玩意，solo一把捡了一堆材料顶着3分多钟的部署时间在撤离点极限走位生死血战，结果最后飞机舱门直接被空气墙挡住进不去（之前从来没碰到过这种bug），我累死累活半小时全白打，傻逼箭头的亲妈今晚必被飞鹰500KG灌入
+

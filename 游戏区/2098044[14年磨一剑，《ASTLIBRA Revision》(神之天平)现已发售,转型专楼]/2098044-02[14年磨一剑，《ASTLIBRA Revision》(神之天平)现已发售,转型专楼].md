@@ -443,3 +443,32 @@ DLC小徽章有什么用啊，好像不能在猪屋那边抽奖了
 
 —— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  白河响剑  
+##### 3892#       发表于 2024-2-14 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说是晚些要上NS 所以PC就开着CE草草过了一遍
+
+本质本篇新章威力增强版，如果喜欢新章刷刷刷那这DLC挺对味，够劲
+
+但如果因为本篇剧情而想在DLC里看点新花活，那体验不是很好。碍于肉鸽分割放送以及整体不长的剧情，多少有些墨迹。当然也不是没有亮点
+
+前期的小爆点和“新章”部分也是有些乐子
+
+来点流程有用的
+
+城门口左侧的树打掉能开传送阵进间隙，里面的世界树敲敲能随进度给对应的回复道具，算是小补给
+
+而里面的NPC则会提示城内几个重要NPC
+
+妹妹材料兑换、服装店门口王女纸巾兑换、公会会长徽章兑换
+
+和本篇不同，竞技场给成长石，可以不急着打
+
+本篇的一些流程道具则放在后期的装备精通上，所以原本城里的那些地点DLC也能去
+
+成就方面，没有难度杯
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但有剧情杀反杀杯
+

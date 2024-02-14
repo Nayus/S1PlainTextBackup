@@ -385,3 +385,27 @@ DLC小徽章有什么用啊，好像不能在猪屋那边抽奖了
 
 一路肝到火山的龙，扛不住了，得去刷刷数值了，你们一般道中前面刷几次再去打BOSS？
 
+
+*****
+
+####  矮矮人  
+##### 3886#       发表于 2024-2-14 14:56
+
+dlc从哪里进啊
+
+*****
+
+####  魔法酪饼  
+##### 3887#       发表于 2024-2-14 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">有老哥知道连发是哪一件装备么
+
+*****
+
+####  clyde-wang  
+##### 3888#       发表于 2024-2-14 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959010&amp;ptid=2098044" target="_blank">wolfwood 发表于 2024-2-14 14:29</a>
+一路肝到火山的龙，扛不住了，得去刷刷数值了，你们一般道中前面刷几次再去打BOSS？ ...</blockquote>
+本体？刷满可以获得的所有装备的熟练度
+

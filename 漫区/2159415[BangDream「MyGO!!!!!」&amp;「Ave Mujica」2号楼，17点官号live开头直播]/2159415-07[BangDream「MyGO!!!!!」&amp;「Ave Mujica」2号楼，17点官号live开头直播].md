@@ -21457,3 +21457,11 @@ gachi笑话，b站所有巡演羊忘词且播放量比较高的切片都被精�
 
 只能说还好不是国内企划，不然光凭这个运营号就弃坑了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12669#       发表于 2024-2-14 14:08
+
+https://weibo.com/7157361492/5001211556397146<img src="https://p.sda1.dev/15/7ba9020d0e0e71c16d0f5a710bf35738/CMP_20240214140805934.jpg" referrerpolicy="no-referrer">
+

@@ -3173,3 +3173,35 @@ Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是�
 
 改善了匹配体验和成功几率。
 
+
+*****
+
+####  -v-  
+##### 349#       发表于 2024-2-14 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958516&amp;ptid=2170852" target="_blank">佑叶 发表于 2024-2-14 12:48</a>
+
+今天日常是打啥？侦查纵步者是什么怪
+
+—— 来自 Xiaomi 2201123C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+就那种上半身是个正方体还插着两挺枪的机器人
+
+*****
+
+####  -v-  
+##### 350#       发表于 2024-2-14 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958516&amp;ptid=2170852" target="_blank">佑叶 发表于 2024-2-14 12:48</a>
+
+今天日常是打啥？侦查纵步者是什么怪
+
+—— 来自 Xiaomi 2201123C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+就那种上半身是个正方体还插着两挺枪的机器人
+
+*****
+
+####  新庄運切  
+##### 351#       发表于 2024-2-14 16:58
+
+更新了晚上看看实力，昨天刚买游戏进教程掉线3次也绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

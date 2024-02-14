@@ -576,3 +576,50 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 哥斯拉需要打头,哪个法术好用?
 
+
+*****
+
+####  amazarashi  
+##### 3903#       发表于 2024-2-14 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63961471&amp;ptid=2098044" target="_blank">白軍浪 发表于 2024-2-14 21:18</a>
+
+哥斯拉需要打头,哪个法术好用?</blockquote>
+半屏AOE无脑丢就完事了
+
+   
+
+法师循环太赖皮了，荒谬我不知道、地狱难度这里我是碾压过去的
+
+  
+
+水系下雨，土系一大一小两个冲击波，雷系宙斯，光系治疗
+
+*****
+
+####  白軍浪  
+##### 3904#       发表于 2024-2-14 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63961528&amp;ptid=2098044" target="_blank">amazarashi 发表于 2024-2-14 21:25</a>
+
+半屏AOE无脑丢就完事了
+
+   
+
+法师循环太赖皮了，荒谬我不知道、地狱难度这里我是碾压过去的</blockquote>
+我是1跳起来放旋风,它自己用头撞上去了
+
+*****
+
+####  超法拉  
+##### 3905#       发表于 2024-2-14 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960742&amp;ptid=2098044" target="_blank">amazarashi 发表于 2024-2-14 19:40</a>
+洞窟boss，举盾也被海啸秒杀
+
+这总不能是机制杀吧</blockquote>
+还真是
+你站台底下就行了
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

@@ -14266,3 +14266,17 @@ DLC出了后只要通过相应关卡应该也能在PVP里用那个银色加特�
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2898#       发表于 2024-2-14 17:16
+
+ 本帖最后由 Kiyohara_Yasuke 于 2024-2-14 17:18 编辑 
+
+新伞 标线器+巨大防护罩，2确武器
+52贴牌 冰壶炸弹+浮墨幕墙
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

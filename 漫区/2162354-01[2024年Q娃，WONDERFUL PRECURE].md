@@ -4363,3 +4363,11 @@ fy
 
 虽然最后只剩他和追加战士保持了力量<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bilibilius  
+##### 906#       发表于 2024-2-14 17:16
+
+今年的ed1是2人专场，还是合唱，本来正合适给声优唱的，可是却第一次选了2个歌手。估计官方现在更侧重未来可能的演唱会了。
+

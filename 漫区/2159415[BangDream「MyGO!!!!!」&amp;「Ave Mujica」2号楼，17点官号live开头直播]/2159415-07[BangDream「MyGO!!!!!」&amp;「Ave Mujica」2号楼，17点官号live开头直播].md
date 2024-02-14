@@ -21145,3 +21145,11 @@ mygo吧原住民出来了哈哈哈
 
 我們ave mujica也要有自己的happy birthday to you<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12637#       发表于 2024-2-14 11:48
+
+mygo第9集炸是因为mygo的故事第10集就结束了（访谈语），如果mujica没这个限制的话10集或者11集才炸也是有可能的吧，除非mujica也是10集结束然后结尾给第三个团入场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

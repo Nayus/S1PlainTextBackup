@@ -2974,3 +2974,12 @@ Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是�
 昨晚试了下匹配还是反复失败成功 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为官方公告确实说修好了，地图选房我一直都是失败，只有直接进好友房才行
 
+
+*****
+
+####  swrrt  
+##### 329#       发表于 2024-2-14 11:48
+
+火箭背包上高台可以把坦克虫完全卡呆住，这个时候做空投补给砸死坦克虫的成就几乎一定成功。不过要记得先垫一点伤害，坦克虫满血一下砸不死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+平时上高台打虫子也挺舒坦的，几乎没什么致命威胁
+

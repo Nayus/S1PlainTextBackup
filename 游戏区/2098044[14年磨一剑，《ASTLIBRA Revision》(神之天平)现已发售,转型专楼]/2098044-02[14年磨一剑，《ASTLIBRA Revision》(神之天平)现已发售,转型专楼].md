@@ -472,3 +472,17 @@ DLC小徽章有什么用啊，好像不能在猪屋那边抽奖了
 成就方面，没有难度杯
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但有剧情杀反杀杯
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3893#       发表于 2024-2-14 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63959203&amp;ptid=2098044" target="_blank">白河响剑 发表于 2024-2-14 15:07</a>
+公会会长给奖励
+
+总计60个徽章</blockquote>
+是要攒够60个才能换吗？我现在十几个小徽章了，和会长对话还是只有挑战内容
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

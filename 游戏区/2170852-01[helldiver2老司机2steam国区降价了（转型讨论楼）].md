@@ -3055,3 +3055,16 @@ Steam在线峰值过 20W 了。这游戏服务器一边崩人数一边涨也是�
 
 到底是百万大作，兄弟基友联机一下子就是四份，再加游戏确实不错
 
+
+*****
+
+####  RockingHorse  
+##### 339#       发表于 2024-2-14 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958516&amp;ptid=2170852" target="_blank">佑叶 发表于 2024-2-14 12:48</a>
+
+今天日常是打啥？侦查纵步者是什么怪
+
+—— 来自 Xiaomi 2201123C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+应该就是巡逻的机器人小兵，打了一两把机器人图，出来看就做完了
+

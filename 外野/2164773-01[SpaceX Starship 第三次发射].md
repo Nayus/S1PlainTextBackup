@@ -57,3 +57,43 @@
 为什么右面的真空内侧全白?</blockquote>
 有可能就是这次在发动机安装平台上换的新发动机。但按道理从McGregor出厂时都会试车。
 
+
+*****
+
+####  commcody  
+##### 133#         楼主| 发表于 2024-2-14 09:20
+
+2月13日，S28与B10再次合体。SpaceX公布合体官照，同时宣布，团队正在为第三飞前的全流程彩排做准备。
+
+<img src="https://img.saraba1st.com/forum/202402/14/091923qci86ca3znjfg6gr.jpg" referrerpolicy="no-referrer">
+
+<strong>GGPhTSlboAASRV6.jpg</strong> (345.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 09:19 上传
+
+<img src="https://img.saraba1st.com/forum/202402/14/091923ud8reprlbblllr0h.jpg" referrerpolicy="no-referrer">
+
+<strong>GGPhUSZaUAAjTVl.jpg</strong> (345.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 09:19 上传
+
+<img src="https://img.saraba1st.com/forum/202402/14/091923hxdqoikqkdy0mid8.jpg" referrerpolicy="no-referrer">
+
+<strong>GGPhVVIbgAA_obJ.jpg</strong> (226.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 09:19 上传
+
+<img src="https://img.saraba1st.com/forum/202402/14/091923eoxxy3r5hbwizhi5.jpg" referrerpolicy="no-referrer">
+
+<strong>GGPhWVTbkAAolsX.jpg</strong> (451.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 09:19 上传
+

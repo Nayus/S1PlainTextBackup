@@ -21491,3 +21491,50 @@ https://weibo.com/7157361492/5001211556397146<img src="https://p.sda1.dev/15/7ba
 原图
 <img src="https://p.sda1.dev/15/a0109d370d62f9157ca3adcdd3f52ae5/CMP_20240214141925938.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 12673#       发表于 2024-2-14 14:26
+
+ 本帖最后由 PDQ4 于 2024-2-14 14:27 编辑 
+
+三回啊三回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 12674#       发表于 2024-2-14 14:28
+
+都能整出合号，你还在期待什么。日常幽默微操大家笑一笑就好
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 12675#       发表于 2024-2-14 14:29
+
+同一张烂梗图在两页里发了三遍可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还能共振急速拉低泥漏平均审美水平的
+
+倒是挺好奇动画时间线要怎么处理，虽然秋季部分讲太快讲到冬天的话老团又要毕业一批人，但要说春学期可以快速略过去却完全不能延长时间线到秋冬学期也有点奇怪
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">个人还是挺想看圣诞夜有没有大事件的
+
+*****
+
+####  我cp结婚了  
+##### 12676#       发表于 2024-2-14 14:32
+
+堵嘴，很神奇吧？
+<img src="https://p.sda1.dev/15/c60fff923ee8d4f0211cbc4a98493e0d/1707892289324.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/71ac571ffe9b6b0876b8feb3a1c789a3/1707892293884.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 12677#       发表于 2024-2-14 14:32
+
+如果真的动画能搞到圣诞夜，考虑鸡动画的基调大概率见不得好事，要不祥爹献身一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+台长可以物色下一个身份了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

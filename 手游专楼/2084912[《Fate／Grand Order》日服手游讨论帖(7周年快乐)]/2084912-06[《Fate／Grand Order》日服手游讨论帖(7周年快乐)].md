@@ -99,3 +99,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">没想到活动给的护符居然是有灵魂的  该开始存石了！
 
+
+*****
+
+####  qixinno2  
+##### 11353#       发表于 2024-2-14 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960171&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-2-14 18:21</a>
+
+没想到活动给的护符居然是有灵魂的  该开始存石了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新怎么总在豹跳 妈的 我怎么什么都不出 
+

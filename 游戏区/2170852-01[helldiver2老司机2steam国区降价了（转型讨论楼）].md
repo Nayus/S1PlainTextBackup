@@ -3256,3 +3256,28 @@ PS5版本昨天开始稳定了一些，但掉线、闪退还是很严重
 
 和野人12min清了Helldive难度全图，英语最有用的一天。
 
+
+*****
+
+####  Gmlazy  
+##### 358#       发表于 2024-2-14 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958336&amp;ptid=2170852" target="_blank">looptube 发表于 2024-2-14 12:12</a>
+
+有没有加速器推荐下，用的UU，根本进不了游戏。挂梯子倒是可以进游戏，但是一直会断联 ...</blockquote>
+服务器问题。
+
+直连就行了，有没有加速器都是进不去房间。
+
+*****
+
+####  KafuuChino  
+##### 359#       发表于 2024-2-14 18:31
+
+更新结束→快速匹配→无法加入游戏大厅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过好像少按了几次R；闪退问题靠N卡控制面板强行限制帧数解决了（至少解决了大部分）；
+
+电弧杀虫子绝对是一等一的，伤害高、不吃甲、一发电仨、不耗子弹不用装填。目前野排难7，不刷坦克虫和泰坦甚至能堵门杀，坦克虫也能无视护甲十几发摁刮死，一局下来都没碰过几次主副武器；唯一的缺点也就偶尔给队友电疗了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

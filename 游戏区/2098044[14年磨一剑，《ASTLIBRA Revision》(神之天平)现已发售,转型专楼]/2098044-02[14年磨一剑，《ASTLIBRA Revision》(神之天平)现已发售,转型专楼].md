@@ -330,3 +330,22 @@ dlc基本上是个换皮的本篇，换汤不换药。目前还没发现合成�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">买完DLC安装的时候只有本体 删了重装才行
 
+
+*****
+
+####  ——啧  
+##### 3881#       发表于 2024-2-14 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957610&amp;ptid=2098044" target="_blank">cym887 发表于 2024-2-14 09:33</a>
+外传买了 怎么开啊  进游戏本体没看到新选项啊</blockquote>
+在steam进游戏前会让你选进本体还是DLC的
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cenhr  
+##### 3882#       发表于 2024-2-14 10:04
+
+主角这个纯爱狂人是被先天影响还是后天养出来的感情？狂到完全没有党争的余地，除非算上他选择放弃的小结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

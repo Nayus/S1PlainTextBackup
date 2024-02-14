@@ -432,3 +432,14 @@ DLC小徽章有什么用啊，好像不能在猪屋那边抽奖了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试出来勒，是手锯
 
+
+*****
+
+####  超法拉  
+##### 3891#       发表于 2024-2-14 15:43
+
+魔法使那个回精力的速度和武器速度是挂钩的
+就是不知道还有没有消弹回血的技能了
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

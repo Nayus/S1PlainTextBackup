@@ -878,3 +878,11 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 最终boss比本篇难好多，子弹频率太高了，吸血都有点顶不住，好像还有即死招，最后速战速决干掉的
 
+
+*****
+
+####  wolfwood  
+##### 3932#       发表于 2024-2-15 23:34
+
+最终BOSS的光炮原来只要举盾防御就行了，莽太久都忘了还可以举盾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

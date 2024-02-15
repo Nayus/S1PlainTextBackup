@@ -370,3 +370,14 @@ syl 仔细想想，公主和汇呆的区别，前者是把蛋糕分成三块，�
 单抽嫁王的狗萌新去死啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了 你王那池根本不出新礼装
 
+
+*****
+
+####  qixinno2  
+##### 11381#       发表于 2024-2-15 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965545&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-2-15 19:24</a>
+
+想少了 你王那池根本不出新礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我想要新礼装抽的新池子啊 然而毛都没出
+

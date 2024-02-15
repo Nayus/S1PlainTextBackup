@@ -22304,3 +22304,38 @@ TEST
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  御幸一也  
+##### 12748#       发表于 2024-2-15 19:25
+
+喜歡二創的大姐姐喵夢所以翻譯一下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/15/192031i8h1w25rme36m2k3.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_やぶのき(@yabunoki69)_20240215-090351_1758054504011063755_photo.jpg</strong> (1002.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 19:20 上传
+
+[https://twitter.com/yabunoki69/status/1758054504011063755](https://twitter.com/yabunoki69/status/1758054504011063755)
+
+*****
+
+####  御幸一也  
+##### 12749#       发表于 2024-2-15 19:28
+
+@枕头46
+
+一切都是因為一個翻面小章魚的玩具太能代餐白祥和黑祥了()
+
+<img src="https://img.saraba1st.com/forum/202402/15/192804v88gb8huudp1urmj.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_바구니(@tongbaguni)_20231008-223306_1711147737503432781_photo-0.jpg</strong> (66.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 19:28 上传
+

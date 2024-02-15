@@ -70,3 +70,11 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 —— 来自 Xiaomi 23046RP50C, Android 14上的 S1Next-鹅版 v2.5. ...</blockquote>
 目前在用的：dmzj、vomic、拷贝、bato.to、古风漫画、COLAMANGA、包子漫画，最后两个水印重。
 
+
+*****
+
+####  septer  
+##### 168#       发表于 2024-2-16 00:55
+
+一直无法安装mihon，原来是不支持我旧平板android7.0的系统<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

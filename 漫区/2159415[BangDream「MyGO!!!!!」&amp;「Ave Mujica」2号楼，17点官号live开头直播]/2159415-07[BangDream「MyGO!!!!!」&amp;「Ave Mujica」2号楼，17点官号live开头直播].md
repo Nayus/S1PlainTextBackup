@@ -22601,3 +22601,13 @@ IMG_1173.jpeg
 
 跳转成功咯！复活了！
 
+
+*****
+
+####  1732256631  
+##### 12771#       发表于 2024-2-15 23:09
+
+mujica1单的特典图出了吗？
+
+—— 来自 realme RMX3700, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

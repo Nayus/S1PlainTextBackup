@@ -3687,3 +3687,13 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 吐了，还遇到bug，最后剩几个d民卡在门不进去，弄死了还是会卡，直接卡到失败<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 403#       发表于 2024-2-15 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">机器人那个护送科学家的任务应该怎么做，中盘的时候已经到处都是机器人了....一看五十个人的营救目标才救了二十多个。
+
+每次野排都是这个任务灭散。
+

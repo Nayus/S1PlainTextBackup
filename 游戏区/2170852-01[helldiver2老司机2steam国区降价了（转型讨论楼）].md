@@ -3552,3 +3552,14 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Anhydrite  
+##### 388#       发表于 2024-2-15 20:54
+
+刚买游戏，独狼玩家缺队友，有群没有啊，没有我自己建个
+759191327
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

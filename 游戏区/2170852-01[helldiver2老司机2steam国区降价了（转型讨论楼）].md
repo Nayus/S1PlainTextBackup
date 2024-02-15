@@ -3618,3 +3618,22 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  FLZB  
+##### 395#       发表于 2024-2-15 22:13
+
+匹进把难4撤离跟三个新手差点被打崩，你多方向进攻也就算了，直接往脸上空投谁顶得住啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑屑代沟尼亚  
+##### 396#       发表于 2024-2-15 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打个难3机器人都打得汗流浃背 
+
+还总有抽象队友往点里铺雷 
+
+回去打虫子了 有时间匹配打完八把这一万打虫子早赚到了
+

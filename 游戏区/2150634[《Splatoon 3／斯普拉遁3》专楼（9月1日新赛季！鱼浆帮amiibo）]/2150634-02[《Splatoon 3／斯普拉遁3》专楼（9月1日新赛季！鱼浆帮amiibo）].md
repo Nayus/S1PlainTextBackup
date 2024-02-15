@@ -14750,3 +14750,11 @@ FF 陷阱+镭射
 
 目前980，休息了一会儿后队友质量明显下降，开门工无败的都已经下了吧
 
+
+*****
+
+####  秋月孝三  
+##### 2942#       发表于 2024-2-15 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灭火器这走射涂地力可以和开尔文一较高下了，下赛季八成没它啥事
+

@@ -904,3 +904,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 4层boss 全屏海啸怎么档，是要拼输出么
 
+
+*****
+
+####  菟原手兒奈  
+##### 3935#       发表于 2024-2-16 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968177&amp;ptid=2098044" target="_blank">愛の唄 发表于 2024-2-16 00:14</a>
+4层boss 全屏海啸怎么档，是要拼输出么</blockquote>
+有个风魔法是放一个反弹的风墙出来，海啸前放出来就可以不吃伤害
+

@@ -413,3 +413,14 @@ syl 仔细想想，公主和汇呆的区别，前者是把蛋糕分成三块，�
 
 OKSG空下来了估计会整魔箱的活作为微型联动（类似之前班扬一期小联动一样）
 
+
+*****
+
+####  qb0079  
+##### 11385#       发表于 2024-2-16 05:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965521&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-2-15 19:21</a>
+
+萌新也没有5星礼装 甚至4星的都没有 欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我也没抽到4星5星礼装，半夜起来抽卡是我的玄学
+

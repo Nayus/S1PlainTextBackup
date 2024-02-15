@@ -3679,3 +3679,11 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 机器人难度感觉比虫子高一截
 
+
+*****
+
+####  nagamasa  
+##### 402#       发表于 2024-2-15 22:55
+
+吐了，还遇到bug，最后剩几个d民卡在门不进去，弄死了还是会卡，直接卡到失败<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -3661,3 +3661,21 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">机器人是赛博满广志合成旅
 
+
+*****
+
+####  LrGsite  
+##### 400#       发表于 2024-2-15 22:45
+
+有时候高难度感觉简单了是队友和你分散拉怪去了,实际体验下来这几天难度9分散去做任务比较好
+
+反而大伙说简单的机器人我是真打不过,八百里开外就开始火力压制,带了个人护盾在那种火力密度下也抬不起头没法造成有效反击,而且真的是满广志合成旅,火炮支援,运兵船空降,步坦无畏协同,还有电子干扰和区域防空<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他妈的感觉制作组后面肯定要来卖强力dlc武器的
+
+
+*****
+
+####  tuiskusuomaa  
+##### 401#       发表于 2024-2-15 22:50
+
+机器人难度感觉比虫子高一截
+

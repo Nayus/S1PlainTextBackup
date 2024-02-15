@@ -1019,3 +1019,14 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 <img src="https://p.sda1.dev/15/2926a87e8c0269356a4d0008808db79d/20240215_185101.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/a9db26c79b00bc6f6b07ff20c260f795/20240215_185102.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3843#       发表于 2024-2-15 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965213&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-2-15 18:51</a>
+
+第17話原画</blockquote>
+这部的原画也很好看<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

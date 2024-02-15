@@ -316,3 +316,48 @@ baidu了下没啥特别过火的？</blockquote>
 
 日本人吹吉田松阴只能说挺正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们又从来没有真正反思过他们自己 只能希望游戏里面别塞点恶心人的玩意了
 
+
+*****
+
+####  rainsheep  
+##### 655#       发表于 2024-2-15 19:53
+
+看了下港服商店，是做了韩语字幕的，韩国的主机市场大概什么规模，现在的游戏好像基本都有韩语来着
+
+*****
+
+####  xzzfft  
+##### 656#       发表于 2024-2-15 19:54
+
+看了看信野和太阁也没有韩文版，kt是个明白人
+
+*****
+
+####  rainsheep  
+##### 657#       发表于 2024-2-15 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965782&amp;ptid=2092342" target="_blank">xzzfft 发表于 2024-2-15 19:54</a>
+
+看了看信野和太阁也没有韩文版，kt是个明白人</blockquote>
+但浪人港服商店里写的有韩语字幕
+
+*****
+
+####  病態極端  
+##### 658#       发表于 2024-2-15 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965432&amp;ptid=2092342" target="_blank">艹艹牛逼 发表于 2024-2-15 19:11</a>
+
+在给IGN的一份声明中，索尼反驳了针对该消息出现的各种报道，明确表示：“PS5的《浪人崛起》从未正式宣布在 ...</blockquote>
+但是浪人崛起有韓文
+<img src="https://p.sda1.dev/15/8d97bed2325d3ef922987c51c2324ef9/rotr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 659#       发表于 2024-2-15 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965777&amp;ptid=2092342" target="_blank">rainsheep 发表于 2024-2-15 19:53</a>
+看了下港服商店，是做了韩语字幕的，韩国的主机市场大概什么规模，现在的游戏好像基本都有韩语来着 ...</blockquote>
+主机游戏有韩语应该比有汉语要早
+

@@ -292,3 +292,13 @@ You can't make this shit up
 这故事编的（留个余地，不排除是真的）极其的绝，就大部分要素都是能找到出处的公开信息，我看着看着都能 ...</blockquote>
 是的 你虹种种操作现在证明vt当初的各种rrat都是真的 简直是不可思议
 
+
+*****
+
+####  垃圾网站上  
+##### 116#       发表于 2024-2-15 21:17
+
+虹把毕业的人频道放出来了，订阅总数瞬间变绿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

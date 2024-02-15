@@ -3571,3 +3571,13 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 请问键鼠怎么标记目标单位的？
 
+
+*****
+
+####  Gmlazy  
+##### 390#       发表于 2024-2-15 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63966340&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-2-15 21:05</a>
+请问键鼠怎么标记目标单位的？</blockquote>
+默认按Q键，指向地点就是标定地点，指向敌人就是标定敌人，标定将会跟随目标敌人。
+

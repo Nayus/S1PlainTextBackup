@@ -22509,3 +22509,60 @@ r化病毒
 所以是可以引用了嗎</blockquote>
 可以了，至少泥楼是可以了，外野有些楼好像还是卡页
 
+
+*****
+
+####  Kfly  
+##### 12766#       发表于 2024-2-15 21:54
+
+ 本帖最后由 Kfly 于 2024-2-15 21:58 编辑 
+
+游戏小而精，不过有些梗没全搞懂。喵梦那段解谜是乱猜的，话说不应该加一个能看成就的按钮吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/15/213428ssktoixstkidndjm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (299.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 21:34 上传
+
+<img src="https://img.saraba1st.com/forum/202402/15/213351wsxx4xj4hjyxdfpd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202402/15/215059i7ubv8yu678u7jeu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.21 KB, 下载次数: 0)
+
+下载附件
+
+分支图
+2024-2-15 21:50 上传
+
+海玲：作为第一条线没啥难度 
+喵梦：口红色号的选择摸不着头脑，有什么梗吗？ 
+初华：看似比喵梦好应付，但心思很细腻，判定能不能进NE的规律总结为祥子的泄气话累积三次就进不了NE，举例：稍微说教、注意休息、、名人的自觉、委婉拒绝 
+睦：内容量比前面多得多！？而且有足足三张CG且只要度过前期不管选什么（除特殊选项）都能进NE，这就是祥睦的含金量吗 制作者成分暴露存疑  
+???：祥子生日快乐！
+
+*****
+
+####  Nomind96  
+##### 12767#       发表于 2024-2-15 21:56
+
+俩歪嘴战神
+
+IMG_1173.jpeg
+(137.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202402/15/215641tzrtrjnkc8rrrywu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

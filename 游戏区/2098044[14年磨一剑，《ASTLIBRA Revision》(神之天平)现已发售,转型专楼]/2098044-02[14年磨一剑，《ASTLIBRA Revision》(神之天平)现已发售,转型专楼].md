@@ -822,3 +822,11 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 2-10，打掉凯伊，有个成就，奖励凯撒戒指</blockquote>
 啊，这...没拿到是不是要重开了
 
+
+*****
+
+####  tansapple  
+##### 3925#       发表于 2024-2-15 22:00
+
+外传的成就不分难度，错过凯的剧情反杀成就的，可以开个简单的档补做，减少翻车几率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

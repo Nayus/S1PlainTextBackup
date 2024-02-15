@@ -22399,3 +22399,21 @@ TEST
 
 加速翻页<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  矢吹奈子  
+##### 12757#       发表于 2024-2-15 20:42
+
+邦邦手游真的要完蛋了吗？我刚充钱૮ ºﻌºა
+国服什么时候更新mygo!!!!!啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  笋干爆炸碱  
+##### 12758#       发表于 2024-2-15 20:42
+
+应该也复活了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

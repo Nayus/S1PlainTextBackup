@@ -25,3 +25,14 @@
 金字塔财报不行啊，去年赤字1亿4800万日元，前年还是盈利2亿7100万日元的。按理说不会突然亏这么多，这是拿 ...</blockquote>
 TV动画和连载漫画？
 
+
+*****
+
+####  江戸前ルナ  
+##### 926#         楼主| 发表于 2024-2-15 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965252&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-2-15 18:55</a>
+
+金字塔财报不行啊，去年赤字1亿4800万日元，前年还是盈利2亿7100万日元的。按理说不会突然亏这么多，这是拿 ...</blockquote>
+去年没做啥，也没公布新的啥，大概只能说做动画真的很败家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

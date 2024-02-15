@@ -5915,3 +5915,14 @@ VL后期能用的枪也不少 ...</blockquote>
 
 发现今天上steam了，但是锁国区
 
+
+*****
+
+####  江戸前ルナ  
+##### 554#         楼主| 发表于 2024-2-15 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63967246&amp;ptid=1497755" target="_blank">MobyDickStudio 发表于 2024-2-15 22:41</a>
+
+发现今天上steam了，但是锁国区</blockquote>
+上steam的是1代，人物是TOHEART的
+

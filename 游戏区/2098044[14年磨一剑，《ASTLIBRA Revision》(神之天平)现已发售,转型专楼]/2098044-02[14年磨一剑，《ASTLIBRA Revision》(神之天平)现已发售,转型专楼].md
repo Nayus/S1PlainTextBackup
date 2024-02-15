@@ -778,3 +778,19 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 有没有人记得本篇的黑龙石化是怎么解的来着，又被秒了</blockquote>
 防御。石化光线打不动防条吧
 
+
+*****
+
+####  christiny  
+##### 3921#       发表于 2024-2-15 09:43
+
+<img src="https://img.saraba1st.com/forum/202402/15/094238gxpc6st7e5pek6pt.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240215094302.png</strong> (166.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 09:42 上传
+
+2-10，打掉凯伊，有个成就，奖励凯撒戒指
+

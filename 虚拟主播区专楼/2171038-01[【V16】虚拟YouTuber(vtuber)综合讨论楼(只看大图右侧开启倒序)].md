@@ -343,3 +343,13 @@ You can't make this shit up
 
 你不會把那個蹭子當八號出口的作者了吧
 
+
+*****
+
+####  purdre  
+##### 122#       发表于 2024-2-16 06:11
+
+Elira clique的那个rrat太有说服力了
+
+现在一想虹EN女出谷子基本就是Elira，Enna和Millie三人里面选两个人+其余token成员这样的情况太多了，特别是Elira
+

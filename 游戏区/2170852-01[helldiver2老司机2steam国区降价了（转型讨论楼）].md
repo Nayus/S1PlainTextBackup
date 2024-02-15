@@ -3581,3 +3581,12 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 请问键鼠怎么标记目标单位的？</blockquote>
 默认按Q键，指向地点就是标定地点，指向敌人就是标定敌人，标定将会跟随目标敌人。
 
+
+*****
+
+####  Launce  
+##### 391#       发表于 2024-2-15 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这防守撤离人员的空投密度也太抽象了，测过没有啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不够这抽象的修复补丁，感觉压根没怎么跑过测试
+

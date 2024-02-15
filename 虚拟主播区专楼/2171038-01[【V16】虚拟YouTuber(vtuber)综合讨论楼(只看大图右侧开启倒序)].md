@@ -302,3 +302,11 @@ You can't make this shit up
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  _Ra1nMaker  
+##### 117#       发表于 2024-2-15 21:26
+
+不得不感叹 还是虹花样多啊 金鱼和mrr都复活了！
+

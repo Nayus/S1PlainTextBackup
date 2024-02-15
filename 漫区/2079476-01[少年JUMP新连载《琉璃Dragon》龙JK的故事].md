@@ -834,3 +834,18 @@ http://m.muwai.com/info/64259.html
 
 还以为复活了
 
+
+*****
+
+####  krowbullet  
+##### 92#       发表于 2024-2-15 08:45
+
+草，买了日版的感觉有点亏
+
+*****
+
+####  saverok  
+##### 93#       发表于 2024-2-15 08:48
+
+一卷传奇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

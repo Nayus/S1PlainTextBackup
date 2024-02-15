@@ -3590,3 +3590,21 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这防守撤离人员的空投密度也太抽象了，测过没有啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不够这抽象的修复补丁，感觉压根没怎么跑过测试
 
+
+*****
+
+####  KafuuChino  
+##### 392#       发表于 2024-2-15 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">难7撤离科研人员，场上光是坦克都比手头的火力支援和摔炮多，刷怪量绝对有问题，等修
+
+*****
+
+####  東云研究所  
+##### 393#       发表于 2024-2-15 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63966628&amp;ptid=2170852" target="_blank">KafuuChino 发表于 2024-2-15 21:42</a>
+
+难7撤离科研人员，场上光是坦克都比手头的火力支援和摔炮多，刷怪量绝对有问题，等修 ...</blockquote>
+几个？不会超过三个吧
+

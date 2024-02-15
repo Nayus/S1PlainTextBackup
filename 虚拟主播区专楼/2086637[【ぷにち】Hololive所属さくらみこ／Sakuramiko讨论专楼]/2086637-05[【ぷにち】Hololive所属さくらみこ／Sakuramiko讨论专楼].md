@@ -122,3 +122,11 @@
 
 两个不懂规则的人打了一小时国际象棋能打成平手，全世界就你们俩了
 
+
+*****
+
+####  rs5621  
+##### 8159#       发表于 2024-2-15 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打麻将还行
+

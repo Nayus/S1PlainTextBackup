@@ -22677,3 +22677,36 @@ mujica1单的特典图出了吗？
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 虽然不是很懂，不过红白馒头里的说法大概是红是生白是死。所以组合在一起/两个人分一半是好的意象，单独拿出白馒头就不行了？
 
+
+*****
+
+####  池袋西柚  
+##### 12776#       发表于 2024-2-16 04:27
+
+ 本帖最后由 池袋西柚 于 2024-2-16 04:28 编辑 
+
+说到手游药丸这一点，有个好笑的事。
+我刚入坑手游，买的初始号，玩了几天后想着把新手任务过一下。
+
+本来就日语苦手，一边翻译一边做，死活有一个任务过不了，更新之前我一直以为是我的问题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/16/042427g55tnw1kut6nknwn.png" referrerpolicy="no-referrer">
+
+<strong>bangbang.png</strong> (446.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-16 04:24 上传
+
+*****
+
+####  Kfly  
+##### 12777#       发表于 2024-2-16 04:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968892&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-2-16 03:54</a>
+搞不懂为什么给睦白馒头就转进不可名状线
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+好像就是楼上那个意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/7f848bc1d0c344c2fe8cb2eba2f3a6ba/CMP_20240216042734331.jpg" referrerpolicy="no-referrer">
+

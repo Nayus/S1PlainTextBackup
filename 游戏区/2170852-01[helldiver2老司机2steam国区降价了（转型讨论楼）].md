@@ -3766,3 +3766,33 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 有，但是坦克泰坦那些血也厚，这代不能一发砸死
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我解锁的泰坦成就就是2轮空投仓砸死拿的
 
+
+*****
+
+####  smdzh2  
+##### 412#       发表于 2024-2-16 00:23
+
+带迫击炮和蛋壳盾，做最优质的绝地战兵，让西方星球的朋友们做出回答<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gnleez  
+##### 413#       发表于 2024-2-16 00:27
+
+晚上更新的防卫战难度有点夸张，机器人比虫子都多，第一次直接打8级，基本落地成盒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+刁民也很难存活，扣钱能扣个几百上千
+
+不过这个地图奖励特别多，一局能拿30-50超级货币和5-9个奖章
+
+我后来直接跟队友开1级，3个人去中间放刁民，我就绕地图把样本和奖励都搜刮了
+
+*****
+
+####  ChirstDR  
+##### 414#       发表于 2024-2-16 00:31
+
+[https://www.bilibili.com/video/BV1oy421b7HJ/](https://www.bilibili.com/video/BV1oy421b7HJ/)
+
+B站有主播发了难9保卫。炮兵营蚌埠住了
+

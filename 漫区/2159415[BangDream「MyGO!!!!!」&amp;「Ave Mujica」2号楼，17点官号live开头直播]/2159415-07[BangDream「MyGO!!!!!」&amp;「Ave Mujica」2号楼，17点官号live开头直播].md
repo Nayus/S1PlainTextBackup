@@ -22655,3 +22655,13 @@ mujica1单的特典图出了吗？
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  鳥栖朝  
+##### 12774#       发表于 2024-2-16 03:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63966762&amp;ptid=2159415" target="_blank">Kfly 发表于 2024-02-15 21:54:38</a></blockquote>搞不懂为什么给睦白馒头就转进不可名状线
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

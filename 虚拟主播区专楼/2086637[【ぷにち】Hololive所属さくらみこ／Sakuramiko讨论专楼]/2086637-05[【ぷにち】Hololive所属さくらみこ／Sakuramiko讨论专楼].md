@@ -130,3 +130,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打麻将还行
 
+
+*****
+
+####  rs5621  
+##### 8160#       发表于 2024-2-15 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两人吃吃字牌和风牌还能勉强和下
+

@@ -830,3 +830,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 外传的成就不分难度，错过凯的剧情反杀成就的，可以开个简单的档补做，减少翻车几率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suija  
+##### 3926#       发表于 2024-2-15 22:06
+
+艹，我都打到第七章了告诉我初见凯有成就和装备？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+不知道戒指后面还有没有别的途径入手了不然这装备少一个要重打还挺蛋疼的<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

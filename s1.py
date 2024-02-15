@@ -212,8 +212,8 @@ async def UpdateThread(threaddict,semaphore):
                 #单纯的1页帖子保存着先不动，仅不停更新标题
                 thdata[threaddict['id']]['title'] = newtitles
         #采取增量更新后仅第一次更新标题
-        elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 86400):
-            #1天过期
+        elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 259200):
+            #3天过期
             thdata[threaddict['id']]['active'] = False
             if(totalpage > 37):
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles

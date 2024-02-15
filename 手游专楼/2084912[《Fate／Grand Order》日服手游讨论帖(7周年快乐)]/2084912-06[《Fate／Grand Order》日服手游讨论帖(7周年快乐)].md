@@ -315,3 +315,58 @@ syl 仔细想想，公主和汇呆的区别，前者是把蛋糕分成三块，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武尊这小男娘追的这么紧的么 明明是伊织的剧情 结果基本都是武尊相关
 
+
+*****
+
+####  v22325  
+##### 11375#       发表于 2024-2-15 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又是罗摩找老婆，这都快10年了快让他们夫妻团聚吧。
+
+*****
+
+####  alucardcz  
+##### 11376#       发表于 2024-2-15 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63964158&amp;ptid=2084912" target="_blank">qb0079 发表于 2024-2-15 06:30</a>
+
+一共丢了10护符，第2抽就仙女座了，还出了个童谣，可以没抽到礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6点半！ 欧羡慕
+
+*****
+
+####  qixinno2  
+##### 11377#       发表于 2024-2-15 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们都那么狗 我连个五星礼装都没出 对非洲人太不友好了
+
+*****
+
+####  alucardcz  
+##### 11378#       发表于 2024-2-15 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965513&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-2-15 19:20</a>
+
+为什么你们都那么狗 我连个五星礼装都没出 对非洲人太不友好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新也没有5星礼装 甚至4星的都没有 欧羡慕
+
+*****
+
+####  qixinno2  
+##### 11379#       发表于 2024-2-15 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965521&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-2-15 19:21</a>
+
+萌新也没有5星礼装 甚至4星的都没有 欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单抽嫁王的狗萌新去死啊
+
+*****
+
+####  alucardcz  
+##### 11380#       发表于 2024-2-15 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965534&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-2-15 19:23</a>
+
+单抽嫁王的狗萌新去死啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想少了 你王那池根本不出新礼装
+

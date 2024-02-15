@@ -22611,3 +22611,33 @@ mujica1单的特典图出了吗？
 
 —— 来自 realme RMX3700, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  6030sylar  
+##### 12772#       发表于 2024-2-15 23:25
+
+<img src="https://img.saraba1st.com/forum/202402/15/232434dhvwrwnfhryffw7n.bmp" id="aimg_1544770" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>72ab0657a8d1d15c82b9ec6d161b8585.bmp</strong> (105.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/15/232440vu2o03883qu23nv8.bmp" id="aimg_1544771" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8c3fac06dab8820dd2d34f55884cbff6.bmp</strong> (130.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/15/232503p6wf50upkhq5g76t.jpg" referrerpolicy="no-referrer">
+
+<strong>13334464ed4836740309ee62886ba7ad.jpg</strong> (338.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 23:25 上传
+

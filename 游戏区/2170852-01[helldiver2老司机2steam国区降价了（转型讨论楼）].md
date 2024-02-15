@@ -3712,3 +3712,11 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 野队打4难度的机器人，护送任务打到一半，见势不妙，我果断退出降难度。我觉得这轮机器人的任务，刷点低难度拿个奖励算了。
 
+
+*****
+
+####  DawnGuardian  
+##### 406#       发表于 2024-2-15 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">护送任务在一代也没几个人想做，都是直接就地枪决完事来自: iPhone客户端
+

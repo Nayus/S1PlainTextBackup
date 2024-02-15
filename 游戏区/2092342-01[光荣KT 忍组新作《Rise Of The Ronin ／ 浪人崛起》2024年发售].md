@@ -299,3 +299,20 @@ baidu了下没啥特别过火的？</blockquote>
 
 怪不得一直在宣传上打压
 
+
+*****
+
+####  变老的大二  
+##### 653#       发表于 2024-2-15 19:43
+
+吉田死前提出的“草莽崛起”，用浪人，工农来推翻幕府。对应的正是这部作品名“浪人崛起”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+人家就是冲着吉田来搞的作品，可以说是灵魂所在。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 654#       发表于 2024-2-15 19:47
+
+日本人吹吉田松阴只能说挺正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们又从来没有真正反思过他们自己 只能希望游戏里面别塞点恶心人的玩意了
+

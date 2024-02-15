@@ -381,3 +381,11 @@ syl 仔细想想，公主和汇呆的区别，前者是把蛋糕分成三块，�
 想少了 你王那池根本不出新礼装</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我想要新礼装抽的新池子啊 然而毛都没出
 
+
+*****
+
+####  khxooo  
+##### 11382#       发表于 2024-2-15 19:47
+
+没有抽卡，白情更加不可能抽，4月落地伯爵不是人权也不会抽，感谢YLS<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

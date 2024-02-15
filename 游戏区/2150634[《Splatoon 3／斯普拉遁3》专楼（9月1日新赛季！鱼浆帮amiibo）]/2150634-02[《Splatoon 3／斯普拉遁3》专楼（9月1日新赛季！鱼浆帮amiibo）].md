@@ -14790,3 +14790,15 @@ FF 陷阱+镭射
 
 说起来大王乌贼怎么防啊，感觉只能跑
 
+
+*****
+
+####  DeltaStriker  
+##### 2946#       发表于 2024-2-16 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968094&amp;ptid=2150634" target="_blank">maomaoying 发表于 2024-2-16 00:02</a>
+说起来大王乌贼怎么防啊，感觉只能跑</blockquote>
+没抓住前后摇打死就跑路
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

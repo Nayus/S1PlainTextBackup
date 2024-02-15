@@ -22665,3 +22665,15 @@ mujica1单的特典图出了吗？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  盐星  
+##### 12775#       发表于 2024-2-16 04:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968892&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-2-16 03:54</a>
+搞不懂为什么给睦白馒头就转进不可名状线
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+虽然不是很懂，不过红白馒头里的说法大概是红是生白是死。所以组合在一起/两个人分一半是好的意象，单独拿出白馒头就不行了？
+

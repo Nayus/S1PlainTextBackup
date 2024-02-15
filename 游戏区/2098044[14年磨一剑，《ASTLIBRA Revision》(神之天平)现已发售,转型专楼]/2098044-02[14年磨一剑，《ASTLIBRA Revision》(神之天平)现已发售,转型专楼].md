@@ -794,3 +794,21 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 2-10，打掉凯伊，有个成就，奖励凯撒戒指
 
+
+*****
+
+####  jy000129  
+##### 3922#       发表于 2024-2-15 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63964547&amp;ptid=2098044" target="_blank">christiny 发表于 2024-02-15 09:43:16</a>
+2-10，打掉凯伊，有个成就，奖励凯撒戒指</blockquote>完全打不过，地狱难度一下就没了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  stygian  
+##### 3923#       发表于 2024-2-15 18:11
+
+地狱第九章有事没事全屏怪，近战bd不停暴毙，老老实实洗了法师，**轻松<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

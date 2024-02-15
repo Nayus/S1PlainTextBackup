@@ -292,3 +292,18 @@
 
 一共丢了10护符，第2抽就仙女座了，还出了个童谣，可以没抽到礼装
 
+
+*****
+
+####  保罗赫伯特  
+##### 11373#       发表于 2024-2-15 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63963588&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-2-15 01:08</a>
+
+隔壁也有人提这个if，结果撕到现在了
+
+我不理解.jpg</blockquote>
+那个楼后来都是楼主和另一个人在相互骂了，真讨论剧情的倒没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 仔细想想，公主和汇呆的区别，前者是把蛋糕分成三块，开始就说明白了，可以拿一块专属的。后者是本来订了一整个蛋糕，到上桌了才说要切一半走，给人的观感就要差很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

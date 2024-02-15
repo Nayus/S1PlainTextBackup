@@ -3517,3 +3517,20 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 这代没有枪械强化了吗</blockquote>
 目前看上去没有，可能是故意加难度了
 
+
+*****
+
+####  runningch  
+##### 384#       发表于 2024-2-15 18:27
+
+这沙雕中箭头，明明默认的键盘键位就是转视角和地图的移动是重复的（都是移动鼠标），我改键的时候手滑改了一下转视角之后，居然不让重复键位，而且还没有还原默认设置的选项。真是太沙雕了<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Launce  
+##### 385#       发表于 2024-2-15 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最新补丁压根不提优化、闪退和服务器了
+

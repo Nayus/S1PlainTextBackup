@@ -22347,3 +22347,24 @@ TEST
 
 看起来是好了，就是不知道被引用回复有没有提醒
 
+
+*****
+
+####  Aloereed  
+##### 12751#       发表于 2024-2-15 20:08
+
+维修成功
+
+*****
+
+####  枕头46  
+##### 12752#       发表于 2024-2-15 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965578&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-15 19:28</a>
+@枕头46
+
+一切都是因為一個翻面小章魚的玩具太能代餐白祥和黑祥了()</blockquote>
+可还行
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

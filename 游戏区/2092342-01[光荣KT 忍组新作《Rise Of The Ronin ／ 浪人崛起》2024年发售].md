@@ -361,3 +361,15 @@ baidu了下没啥特别过火的？</blockquote>
 看了下港服商店，是做了韩语字幕的，韩国的主机市场大概什么规模，现在的游戏好像基本都有韩语来着 ...</blockquote>
 主机游戏有韩语应该比有汉语要早
 
+
+*****
+
+####  rainsheep  
+##### 660#       发表于 2024-2-15 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965802&amp;ptid=2092342" target="_blank">病態極端 发表于 2024-2-15 19:56</a>
+
+但是浪人崛起有韓文</blockquote>
+psn韩服网页上翻了一下，确实没找到有浪人
+[https://store.playstation.com/ko-kr/pages/latest](https://store.playstation.com/ko-kr/pages/latest)
+

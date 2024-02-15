@@ -22641,3 +22641,17 @@ mujica1单的特典图出了吗？
 
 2024-2-15 23:25 上传
 
+
+*****
+
+####  矢吹奈子  
+##### 12773#       发表于 2024-2-16 03:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63967420&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-2-15 23:00</a>
+啥，怎么就要完蛋了，我也开了krpass
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+游戏开发公司工艺蛋解散了，后续开发运营给了武士道，武士道好像没整明白游戏架构，日服新活动没剧情了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

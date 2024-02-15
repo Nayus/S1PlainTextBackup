@@ -855,3 +855,11 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 你们职业战技开吗?好多职业的战技都有位移,不小心就把自己撞死,还不如不开<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolfwood  
+##### 3929#       发表于 2024-2-15 22:41
+
+本篇里的王城苹果和哥布林石板，DLC不知道在哪可以派上用场
+

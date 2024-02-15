@@ -3653,3 +3653,11 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 试了把难7机器人防守，匹配了一个刚玩的好友和俩野人，最后就撤离了15个，对面空投增援不带停的，这怎么打，必须全程潜行过来吗。野人老哥锐评"this mission is freaky hard"
 
+
+*****
+
+####  Launce  
+##### 399#       发表于 2024-2-15 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">机器人是赛博满广志合成旅
+

@@ -196,3 +196,80 @@ baidu了下没啥特别过火的？</blockquote>
 
 爽哥都来了……来自: iPhone客户端
 
+
+*****
+
+####  karastar  
+##### 641#       发表于 2024-2-14 11:04
+
+军国思想太正常了，那个时期军国思想可以说是更进步的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  千秋难诉  
+##### 642#       发表于 2024-2-14 11:28
+
+实事比不过胜海舟，理念比不过佐久间，吹谁不好吹吉田松阴
+
+*****
+
+####  卡拉德利姆  
+##### 643#       发表于 2024-2-14 12:08
+
+也没再中国（正式）发售啊，这就是我国市场的奇妙之处了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 644#       发表于 2024-2-14 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957451&amp;ptid=2092342" target="_blank">ywwuyi 发表于 2024-2-14 08:23</a>
+
+主角不是自建么，龙马重要npc</blockquote>
+可能我搞错了，但是这自建主角和游戏里龙马也长得太像了
+
+*****
+
+####  汪达  
+##### 645#       发表于 2024-2-14 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957287&amp;ptid=2092342" target="_blank">ywwuyi 发表于 2024-2-14 05:33</a>
+
+吉田松阴的话，一些学者认为他是现代日本**的源头，所以中韩忌讳公开大肆宣扬他。
+
+问题浪人开篇他都 ...</blockquote>
+那感觉不如比喻成罗伯斯庇尔，死法更贴切
+
+*****
+
+####  你好s1  
+##### 646#       发表于 2024-2-14 14:24
+
+就跟卡普空大逆转裁判没国区一样，属于自主规避吧
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桥洞底下盖小被  
+##### 647#       发表于 2024-2-14 21:34
+
+草，韩国禁售了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桥洞底下盖小被  
+##### 648#       发表于 2024-2-14 21:34
+
+草，韩国禁售了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  peipei6955  
+##### 649#       发表于 2024-2-15 04:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63957334&amp;ptid=2092342" target="_blank">培根芝士蛋堡XD 发表于 2024-2-14 07:08</a>
+
+吉田松阴是日本近代化的思想先驱，但也是菌国扩张理论的重要奠基人之一。严格来说，幕末的基本所有人思想 ...</blockquote>
+龙马的死没那么大影响。实际掌权的是维新三杰啊，这三个里面长州的桂小五郎相对还是温和的，然后西乡在萨摩叛乱，桂很快又死了，独揽大权的是另一位萨摩人大久保利通，他被暗杀后长州人才算是把持朝政。
+

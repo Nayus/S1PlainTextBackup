@@ -22042,3 +22042,190 @@ https://www.animatetimes.com/news/details.php?id=1707447433&amp;p=2
 
 自家孩子搞翻车了除了无奈宠溺还能怎么办，毕竟音宝那时候确实未成年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 12721#       发表于 2024-2-14 22:27
+
+祥子生日，奏音彈琴，李子畫畫
+
+祥子你真是被大家所愛著，初祥好真<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/14/222615b4c4rlaxnkl1c4ok.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240214-142321_1757772519036330156_photo.jpg</strong> (917.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 22:26 上传
+
+[https://twitter.com/sasakirico/status/1757772519036330156](https://twitter.com/sasakirico/status/1757772519036330156)
+
+*****
+
+####  黑猫桑  
+##### 12722#       发表于 2024-2-14 22:29
+
+<img src="https://p.sda1.dev/15/ed03829e4ad15867d7fcfaff5a5aedfb/GGTane0aMAAEEZ3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  黑猫桑  
+##### 12723#       发表于 2024-2-14 22:30
+
+.
+
+*****
+
+####  御幸一也  
+##### 12724#       发表于 2024-2-14 22:33
+
+就是第8話那座橋！<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/14/223304tvcq7czcpygyjfqy.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (78.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-14 22:33 上传
+
+*****
+
+####  66367749  
+##### 12725#       发表于 2024-2-14 22:36
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 12726#       发表于 2024-2-14 22:37
+
+啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑猫桑  
+##### 12727#       发表于 2024-2-14 22:50
+
+佐佐木李子你怎么这么会营业，你是要干嘛，这是要毁了木箱党吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 12728#       发表于 2024-2-14 22:52
+
+初祥大卖<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 12729#       发表于 2024-2-14 22:56
+
+不慌，等高尾和结月的下次营业☺️
+
+*****
+
+####  ytttsuuuba  
+##### 12730#       发表于 2024-2-14 22:59
+
+其实就算没有这个访谈，从第一季立希对祥子的那个态度，就能看出之间没见过面且不知情了吧。这访谈完全就是在说期待第二季立希知情后的反应了。
+
+*****
+
+####  基神的强袭自由  
+##### 12731#       发表于 2024-2-14 23:24
+
+那只能说东京确实很大，大到互相见不了面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nh_zzz  
+##### 12732#       发表于 2024-2-14 23:43
+
+昨天发了财报然后今天应声下跌
+450→370
+游戏类盈利主要是把手游和主机一起说了，主机现在大饼好几个尚未发售，前期开发费用还没填上；手游最近关服3个整体收入也下降，有将中心转移到主机的打算（手游收入再创新低）
+
+卡牌市场整体萎缩，但是bushiroad expo还会继续搞，上海会有单独活，cicaf，cicf，ido会有摊位
+
+*****
+
+####  NODY  
+##### 12733#       发表于 2024-2-14 23:48
+
+真人cp和纸片人并不是百分百的对应关系，看到那边三篇访谈连续发糖外加情人节互相拍男女友视角的鼓凛了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 12734#       发表于 2024-2-14 23:59
+
+武士道是真的不怕死，别人都全平台他还敢进军主机市场
+
+*****
+
+####  NODY  
+##### 12735#       发表于 2024-2-15 00:06
+
+武士道向来是盲目自信又头铁作死的，从之前在手游+音乐侧把大火的邦邦和小火的少歌放置几年全力去推没什么水花的DJ就能看出来，也就是摔跤和TCG赚的钱够他们作才没倒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12736#       发表于 2024-2-15 00:16
+
+美好的一天過去了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 意猶未盡
+
+*****
+
+####  skives  
+##### 12737#       发表于 2024-2-15 00:21
+
+这图太神了
+
+<img src="https://img.saraba1st.com/forum/202402/15/002042cct0nkrcpt2ryrw4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7EC36783-2C3B-4A86-B918-F32BE6B76EF5.jpeg</strong> (776.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-15 00:20 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kfly| + 1|整挺好 补一下X:@onepearblow|
+
+查看全部评分
+
+*****
+
+####  jerryoq1  
+##### 12738#       发表于 2024-2-15 02:36
+
+奏音和李子的操作把我撑死了，没想到能看到这种等级的营业<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 12739#         楼主| 发表于 2024-2-15 04:49
+
+[@御幸一也](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=263923) 
+
+这个金银双心<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  septer  
+##### 12740#       发表于 2024-2-15 06:32
+
+哎，烤羊，哎，讨论环境，b站滑得真够快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

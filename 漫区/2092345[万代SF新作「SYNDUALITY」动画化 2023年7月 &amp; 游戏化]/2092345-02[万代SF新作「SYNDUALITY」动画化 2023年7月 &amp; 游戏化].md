@@ -998,3 +998,11 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">雪儿+诺瓦一起宕机，这下怎么展开啊
 
+
+*****
+
+####  洛克萨斯  
+##### 3841#       发表于 2024-2-14 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前任的xp也太怪了
+

@@ -1006,3 +1006,16 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前任的xp也太怪了
 
+
+*****
+
+####  Piano-Forest  
+##### 3842#         楼主| 发表于 2024-2-15 18:51
+
+第17話原画
+<img src="https://p.sda1.dev/15/9adccf083e317437ac710e31c5271ec1/20240215_185053.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/630e3d0a9615cdbf5ee99b1b34f6e6d2/20240215_185057.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/c46dbe066da28bb9811ef497b97a98f7/20240215_185100.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2926a87e8c0269356a4d0008808db79d/20240215_185101.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/a9db26c79b00bc6f6b07ff20c260f795/20240215_185102.jpg" referrerpolicy="no-referrer">
+

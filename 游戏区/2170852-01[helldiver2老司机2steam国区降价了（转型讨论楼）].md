@@ -3720,3 +3720,11 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">护送任务在一代也没几个人想做，都是直接就地枪决完事来自: iPhone客户端
 
+
+*****
+
+####  bladethunder  
+##### 407#       发表于 2024-2-15 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">就刷三级撤离吧，靠集束炸弹和榴弹发射器打，榴弹发射器一个弹链能一轮灭掉3级一架空投的量，6分半一个撤离任务3分半一个防守任务加起来10分钟6牌子低保
+

@@ -768,3 +768,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 有没有人记得本篇的黑龙石化是怎么解的来着，又被秒了
 
+
+*****
+
+####  syndrome2032  
+##### 3920#       发表于 2024-2-15 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63964501&amp;ptid=2098044" target="_blank">果汁机构 发表于 2024-2-15 09:32</a>
+有没有人记得本篇的黑龙石化是怎么解的来着，又被秒了</blockquote>
+防御。石化光线打不动防条吧
+

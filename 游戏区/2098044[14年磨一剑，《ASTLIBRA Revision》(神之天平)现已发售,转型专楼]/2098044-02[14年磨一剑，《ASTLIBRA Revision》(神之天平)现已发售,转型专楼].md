@@ -840,3 +840,18 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 不知道戒指后面还有没有别的途径入手了不然这装备少一个要重打还挺蛋疼的<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolfwood  
+##### 3927#       发表于 2024-2-15 22:22
+
+最终BOSS变身之后第三个全屏光炮怎么躲啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白軍浪  
+##### 3928#       发表于 2024-2-15 22:26
+
+你们职业战技开吗?好多职业的战技都有位移,不小心就把自己撞死,还不如不开<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

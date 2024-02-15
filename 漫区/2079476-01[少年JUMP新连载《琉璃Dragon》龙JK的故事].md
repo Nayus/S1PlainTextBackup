@@ -901,3 +901,33 @@ http://m.muwai.com/info/64259.html
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这漫画到底现在什么情况，真就一话都磨不出来了吗？
 
+
+*****
+
+####  dddty  
+##### 100#       发表于 2024-2-15 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965418&amp;ptid=2079476" target="_blank">北山玖公 发表于 2024-2-15 19:10</a>
+
+这漫画到底现在什么情况，真就一话都磨不出来了吗？</blockquote>
+先保证作者还活着把<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北山玖公  
+##### 101#       发表于 2024-2-15 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63967068&amp;ptid=2079476" target="_blank">dddty 发表于 2024-2-15 22:25</a>
+先保证作者还活着把</blockquote>
+我记得新年作者还画了贺图，活肯定还活着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 102#       发表于 2024-2-15 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63967068&amp;ptid=2079476" target="_blank">dddty 发表于 2024-2-15 22:25</a>
+
+先保证作者还活着把</blockquote>
+活着，说是今年大概能有动静
+

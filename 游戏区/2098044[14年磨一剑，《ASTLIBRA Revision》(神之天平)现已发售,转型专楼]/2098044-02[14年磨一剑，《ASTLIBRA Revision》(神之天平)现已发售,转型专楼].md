@@ -886,3 +886,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 最终BOSS的光炮原来只要举盾防御就行了，莽太久都忘了还可以举盾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菟原手兒奈  
+##### 3933#       发表于 2024-2-16 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">凯撒的成就是只要反杀就行是吗，那还能开个简单档补一下？
+
+如果要看装备收集数来给个成就就恶心了
+

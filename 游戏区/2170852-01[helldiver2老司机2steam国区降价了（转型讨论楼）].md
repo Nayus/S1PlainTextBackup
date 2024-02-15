@@ -3728,3 +3728,41 @@ ps5版本37级了，这几天开黑野队都有，现在难度9虫子4人无论�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">就刷三级撤离吧，靠集束炸弹和榴弹发射器打，榴弹发射器一个弹链能一轮灭掉3级一架空投的量，6分半一个撤离任务3分半一个防守任务加起来10分钟6牌子低保
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 408#       发表于 2024-2-16 00:07
+
+机器人那个比火箭筒和炮台是真的恶心
+
+*****
+
+####  ykyin09  
+##### 409#       发表于 2024-2-16 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这代的空投仓究竟有没有伤害，好几次专门砸敌人头上直接穿模了来自: iPhone客户端
+
+*****
+
+####  Lorraine_Kinney  
+##### 410#       发表于 2024-2-16 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63958336&amp;ptid=2170852" target="_blank">looptube 发表于 2024-2-14 12:12</a>
+
+有没有加速器推荐下，用的UU，根本进不了游戏。挂梯子倒是可以进游戏，但是一直会断联 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别挂加速器，玩了几天感觉加速器只是会让你匹配到欧美房间，对匹配成功率没啥帮助
+
+进不去游戏，疯狂摁空格可以卡进去，单纯服务器满了
+
+*****
+
+####  Launce  
+##### 411#       发表于 2024-2-16 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968134&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-2-16 00:08</a>
+
+话说这代的空投仓究竟有没有伤害，好几次专门砸敌人头上直接穿模了</blockquote>
+有，但是坦克泰坦那些血也厚，这代不能一发砸死
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我解锁的泰坦成就就是2轮空投仓砸死拿的
+

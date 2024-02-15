@@ -288,3 +288,11 @@
 
 —— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  苍蓝之枪  
+##### 46172#       发表于 2024-2-16 00:05
+
+其实是都不缺，赶紧毕业去刷小刀吧
+

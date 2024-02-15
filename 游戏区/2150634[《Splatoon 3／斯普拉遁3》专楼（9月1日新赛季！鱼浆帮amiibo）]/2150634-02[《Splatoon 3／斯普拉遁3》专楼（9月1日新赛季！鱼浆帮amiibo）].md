@@ -14688,3 +14688,15 @@ FF 陷阱+镭射
 
 入门级双枪
 
+
+*****
+
+####  DeltaStriker  
+##### 2936#       发表于 2024-2-15 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63965177&amp;ptid=2150634" target="_blank">幽香 发表于 2024-2-15 18:48</a>
+大王4k赶紧回归吧。</blockquote>
+心之壁这么厚的狙还是不要回来了
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

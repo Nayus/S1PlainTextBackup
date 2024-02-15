@@ -812,3 +812,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 地狱第九章有事没事全屏怪，近战bd不停暴毙，老老实实洗了法师，**轻松<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yla  
+##### 3924#       发表于 2024-2-15 19:13
+
+<blockquote>christiny 发表于 2024-2-15 09:43
+2-10，打掉凯伊，有个成就，奖励凯撒戒指</blockquote>
+啊，这...没拿到是不是要重开了
+

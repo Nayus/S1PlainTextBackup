@@ -14982,3 +14982,15 @@ FF 陷阱+镭射
 那个ID叫Kotaji的的绿双使真的是天才，花了很少的时间就打上了4000，这天赋感觉和灭龙不相上下，看不到上限 ...</blockquote>
 kotaji毕竟是最强绿双使，现在绿双也很强势
 
+
+*****
+
+####  罗克萨斯  
+##### 2966#       发表于 2024-2-16 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975586&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-2-16 22:57</a>
+kotaji毕竟是最强绿双使，现在绿双也很强势</blockquote>
+绿双性能排不上前五吧，然而花了比巧少很多的时间便达成了4000，这效率差不多和瓜一个级别，却很少被人提及，低调的可怕
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

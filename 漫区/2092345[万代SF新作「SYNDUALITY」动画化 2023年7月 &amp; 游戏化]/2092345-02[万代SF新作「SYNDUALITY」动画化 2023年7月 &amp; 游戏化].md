@@ -1153,3 +1153,14 @@ drifting soul都已经开始放了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aptx8285144  
+##### 3856#       发表于 2024-2-16 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975597&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-2-16 22:59</a>
+
+【SYNDUALITY 科学讲座 第9话『什么是Rain Tight』【宿風个人汉化】-哔哩哔哩】 https://www.bilibili.co ...</blockquote>
+血中因子，感觉可能是先天的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

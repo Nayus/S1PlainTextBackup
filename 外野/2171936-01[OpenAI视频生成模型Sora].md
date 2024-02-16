@@ -508,3 +508,11 @@ ai图进化不是还挺快的
 
 新闻学和自媒体的好时代来临了，以后辟谣可不是跑断腿这么简单了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">也不一定是好时代
 
+
+*****
+
+####  216kk  
+##### 55#       发表于 2024-2-16 23:21
+
+只有不好的预感，估计对人类社会弊大于利
+

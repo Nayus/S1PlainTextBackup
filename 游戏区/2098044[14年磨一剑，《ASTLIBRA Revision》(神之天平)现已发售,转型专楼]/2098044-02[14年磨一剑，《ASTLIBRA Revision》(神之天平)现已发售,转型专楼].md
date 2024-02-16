@@ -1110,3 +1110,24 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 10个小时打完dlc本篇，开始新内容
 
+
+*****
+
+####  yourSwaTer  
+##### 3956#       发表于 2024-2-16 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973778&amp;ptid=2098044" target="_blank">菟原手兒奈 发表于 2024-2-16 19:35</a>
+全成就了，刷的还是挺开心的</blockquote>
+问一下，dlc新成就有难度杯吗？没有的话我就简单难度刷刷刷了
+
+*****
+
+####  liyropen  
+##### 3957#       发表于 2024-2-16 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975738&amp;ptid=2098044" target="_blank">yourSwaTer 发表于 2024-2-16 23:16</a>
+问一下，dlc新成就有难度杯吗？没有的话我就简单难度刷刷刷了</blockquote>
+没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

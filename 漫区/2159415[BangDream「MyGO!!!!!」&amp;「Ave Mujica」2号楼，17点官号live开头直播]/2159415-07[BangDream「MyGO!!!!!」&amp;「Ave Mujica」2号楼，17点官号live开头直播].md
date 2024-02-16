@@ -23389,3 +23389,20 @@ https://weibo.com/5318188745/5001485879084367
 楼友老想着换人干嘛羊只是摆了点，2.5次元企划一般没到无可救药的地步不会换人的 ...</blockquote>
 想換人的一直都是go粉，希望自己樂隊更好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 12846#       发表于 2024-2-16 19:44
+
+我倒是觉得羊活多起来的话绝逼跑路，wsd还是提前做好准备比较好。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12847#       发表于 2024-2-16 19:45
+
+我对武士道一直是推的角色被绑架了只能给他们送钱的态度，但之前推的企划顶多是角色二次元待遇不行但三次元live看着还是乐的，狗团这样连三次元都要花钱看折磨的还是第一次，而且你邦三次元如果被作糊了是会影响二次元待遇的吧，人跑光的话手游到时候学蝶团再来个被前辈狠狠薄纱的剧情怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且分了不也对羊女士是好事吗，这个输出全靠撕心裂肺的唱法她嗓子还能撑多久？
+

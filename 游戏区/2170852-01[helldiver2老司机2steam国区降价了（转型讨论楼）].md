@@ -4250,3 +4250,23 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 傻卵反作弊更新炸了好像，这个无解，重复启动或者搞个梯加速器什么的，老外也在吐槽 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">多启动几次就提示让我更新nProtect，允许然后就好了。果然是每次都要更新新的bug
 
+
+*****
+
+####  sigeren  
+##### 454#       发表于 2024-2-16 19:43
+
+绷，服务器怎么又爆满了
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  丹德里恩  
+##### 455#       发表于 2024-2-16 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973117&amp;ptid=2170852" target="_blank">bladethunder 发表于 2024-2-16 17:51</a>
+
+今天这个绿色虫子在哪啊？6级？</blockquote>
+就那个肚子大会喷毒液的大绿虫子，3级还是4级就有了吧，我打了一把5级都不知道杀了多少个
+

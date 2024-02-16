@@ -451,3 +451,32 @@ AGI 还是慢慢来，但创意产业从劳动密集变成自动化工业流水�
 
 ai画图之前就说碉堡，现在呢？还是一眼ai图
 
+
+*****
+
+####  脚本水平  
+##### 50#       发表于 2024-2-16 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973645&amp;ptid=2171936" target="_blank">thisism 发表于 2024-2-16 19:15</a>
+早呢。背景还在扭动呢。
+
+ai画图之前就说碉堡，现在呢？还是一眼ai图</blockquote>
+ai图进化不是还挺快的
+之前x上一个人突然说自己的画是novelai画的让不少画师破防了
+
+*****
+
+####  jojog  
+##### 51#       发表于 2024-2-16 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973864&amp;ptid=2171936" target="_blank">脚本水平 发表于 2024-2-16 19:45</a>
+
+ai图进化不是还挺快的
+
+之前x上一个人突然说自己的画是novelai画的让不少画师破防了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是自己说的 是别人揪出来的
+
+现在好多拿novelai直接直球prompt里面写画师名然后放出来也不说ai的
+
+要破防的话半年多钱就都破过一次了
+

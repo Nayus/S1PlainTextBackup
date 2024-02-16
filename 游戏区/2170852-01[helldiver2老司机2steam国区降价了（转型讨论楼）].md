@@ -3828,3 +3828,47 @@ Defend Events - updated content for major orders
 
 Defend Events have been fixed and received an update
 
+
+*****
+
+####  jy000129  
+##### 418#       发表于 2024-2-16 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968323&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-2-16 00:35</a>
+建议不要折磨自己，还是用复制战略武器的bug来吧，这机器人护送科学家的任务，感觉难度配置过于夸张了。 ...</blockquote>
+请问怎么复制？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  琦乐无穷  
+##### 419#       发表于 2024-2-16 11:28
+
+ 本帖最后由 琦乐无穷 于 2024-2-16 11:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63970492&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-2-16 11:23</a>
+
+请问怎么复制？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+选好一个支援后，点四号位的“空槽”。如果四号位有人，就是“准备就绪”，总之就是同一个位置。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jy000129| + 1|谢谢，回去试试|
+
+查看全部评分
+
+*****
+
+####  FLZB  
+##### 420#       发表于 2024-2-16 11:29
+
+所以这作不让重复带战略装备不知道怎么想的，玩法单一导致玩家强度跟不上，玩家强度跟不上又进一步导致玩法单一（只能跑跑跑），直接陷入恶性循环。初代先不说武器装备多得多，我地狱潜兵会有火力不足这种说法？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

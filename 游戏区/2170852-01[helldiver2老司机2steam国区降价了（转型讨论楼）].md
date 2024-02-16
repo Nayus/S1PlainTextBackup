@@ -3906,3 +3906,25 @@ GaaS嘛，都是先砍内容然后慢慢补。
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  センコウ  
+##### 424#       发表于 2024-2-16 12:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我现在都只带飞鹰，又快又准威力又大CD又短，科技点出来还+1弹数，轨道炮除了个激光都是抓瞎，激光用完一看CD直接下一把见了
+
+还有昨天那破日常，下次是不是准备380炸100个啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 425#       发表于 2024-2-16 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63970763&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-16 11:59</a>
+
+装备单一主要原因就是主武器升级砍了。
+
+火力不行一是装备空投都没直接的火力升级，二是轨道 ...</blockquote>
+踏马的一波游走火力网洗据点运气拉满炸死两三个站街的属实给我气笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -20,3 +20,14 @@
 日本怎么样不知道，S1里快充的青梅竹马观众还是挺吃的，只是死大夫不给面子 ...</blockquote>
 快充就是bg戏最灾难的一个，本篇就不提了，访谈里居然还能补一个小爱还在等蓝神，狠狠喂了磕诚司x小爱的一大口屎，可惜质量那么高的失恋回了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 911#       发表于 2024-2-16 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971458&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-16 13:26</a>
+
+快充就是bg戏最灾难的一个，本篇就不提了，访谈里居然还能补一个小爱还在等蓝神，狠狠喂了磕诚司x小爱的一 ...</blockquote>
+个人感觉吧，虽然红蓝贵物经常和星座公主们并列，但二者还是有本质区别的——村山在星闪里是有意把星座公主们塑造成一群屑的，所以觉得星座公主们屑是角色塑造成功的体现；相反，红蓝贵物那是纯纯的成田大妈形象塑造失败的结果而且恐怕成田大妈还没有这个自觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

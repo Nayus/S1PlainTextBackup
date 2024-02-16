@@ -14994,3 +14994,11 @@ kotaji毕竟是最强绿双使，现在绿双也很强势</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  墨染白泉  
+##### 2967#       发表于 2024-2-17 00:40
+
+打x赛碰到个2代+3代一共3000+小时的老玩家，开局被对面扔进一个大蛤蜊后就挂机摆烂按赞，还把我们家里的大蛤蜊扔下悬崖，太恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+

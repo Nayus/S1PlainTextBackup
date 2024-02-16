@@ -561,3 +561,18 @@ ai图进化不是还挺快的
 ai画图之前就说碉堡，现在呢？还是一眼ai图</blockquote>
 早啥啊，你看看22年1月的ai图，小圆。再看看2年后的mj6。这进步比游戏引擎快多了。你知道大家为啥震惊吗？23年的时候，大家还在追捧runway这样的独角兽。结果，半年就被openai干死了。相当于大家还在惊叹ue3的光影，结果半年后人家直接推出了ue5,还告诉你，其实半年前我们就开发完了。网上有runway和这个相同prompt的对比，碾压。如果没有法律问题的话，两年时间，我估计人们很难分辨刻意伪造的ai短视频了
 
+
+*****
+
+####  nekomimimode  
+##### 60#       发表于 2024-2-17 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971479&amp;ptid=2171936" target="_blank">Swanfal 发表于 2024-2-16 13:30</a>
+
+我一直觉得特别迷的一点是为什么AI相关话题下总有人说拿来伪造的事情，搞得好像AI之前用AE、PS做不 ...</blockquote>
+因为ae，ps，或者胶片的伪造门槛都挺高的，至少你得会那门技，你得先投入去研究是不是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而现在或者可见的未来，大概只需要一句模棱两可的话就能生成，谁还不会说话啊，基数的增加必然导致突破下限的人增多，成本更低，数量更多的犯罪一定程度上会让司法取证的难度成倍增加，
+
+除非今后以魔抗魔，ai识别ai伪造，完美！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

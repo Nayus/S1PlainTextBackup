@@ -23526,3 +23526,11 @@ wsd血汗工厂这么坑的吗？没有声乐老师教发音吗？
  唱烂嗓子又不止羊，社长，i8，樱小姐都伤得严重，也就天音年轻还受得了，羊心不在邦也不怪她，人各有志，羊 ...</blockquote>
 原来是mggm打的有问题<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 12860#       发表于 2024-2-17 00:38
+
+这两页也太关注羊了吧，感觉比我这个自称go推的要关注，阿勒，<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">难道是因为我是立希厨？
+

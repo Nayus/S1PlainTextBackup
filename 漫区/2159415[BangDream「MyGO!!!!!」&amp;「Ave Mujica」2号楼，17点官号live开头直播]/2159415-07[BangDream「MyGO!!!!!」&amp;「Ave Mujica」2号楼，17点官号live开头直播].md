@@ -22926,3 +22926,24 @@ mujica1单的特典图出了吗？
 不过远景回放看到了猫猫跳，可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/8b41b3d54fce21c7fbf3ee44de5808eb/GIF 2024-2-16 15-11-20.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12799#       发表于 2024-2-16 15:23
+
+上次mujica的live回顾环节至少放了三个eplus源的高清回放切片，这次mygo的live回顾先是拿歌名怎么念来硬生生拖了十分钟，然后意思意思放了个没怎么翻还听不清声音的远景切片，看得出官方也是汗流浃背了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 12800#       发表于 2024-2-16 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971873&amp;ptid=2159415" target="_blank">凡人 发表于 2024-2-16 14:40</a>
+虽然紫吧喜欢嘲讽🐑粉说的00后最强，女声优不过看起来羊的声优发展确实不错啊，挺好 ...</blockquote>
+虽然主要角色数上面高尾老师还是遥遥领先，但是她出道早，已经过了资源期而且接的都是糊逼厕纸，所以求导打不过动物朋友。想真的翻身挤上一线只能期望拣到个黑马，还不能是狗这种本土不火的。
+
+说实话去年年末Z8烧烤摊拿当时已宣布的24年角色来嘲笑动物朋友本来就很中场开香槟，24年的角色就没理由要在23年把CV全部公布
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

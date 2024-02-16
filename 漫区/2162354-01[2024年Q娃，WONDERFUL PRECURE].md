@@ -192,3 +192,27 @@ Q娃这个系列沦落到今天这个德性就是在幼女向圈子里呆太久�
 
 说到底女主作品里边男角色尴尬太正常了，隔壁少年漫画里面女性角色不是一样尴尬。
 
+
+*****
+
+####  月夜凝雪  
+##### 927#       发表于 2024-2-16 16:53
+
+ 本帖最后由 月夜凝雪 于 2024-2-16 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972631&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-2-16 16:40</a>
+魔法少女题材本身是战斗题材，战斗题材从来都是战友或者宿敌之间的感情更好卖，不能参与战斗或者战力定位上 ...</blockquote>
+去年上男Q娃了却完全没有恋爱迹象真就全部都是亲情友情，看看今年的青梅竹马怎么样吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  杂灰  
+##### 928#       发表于 2024-2-16 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972722&amp;ptid=2162354" target="_blank">月夜凝雪 发表于 2024-2-16 16:53</a>
+去年上男Q娃了却完全没有恋爱迹象真就全部都是亲情友情，看看今年的青梅竹马怎么样吧
+
+—— 来自 Xiaomi  ...</blockquote>
+那是因为precure这个词本身没有限定性别<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">东大妈自己消除了precure的性别限定，所以鸟人可以作为男性享有魔法少女编制的待遇
+

@@ -23183,3 +23183,62 @@ mujica1单的特典图出了吗？
 
 所以羊小姐什么时候好聚好散去追自己的声优梦，虽然老有gachi说换人会毁了这个企划，但偶像大师换人萝换人两次虹咲换人不都活得好好的蒸蒸日上吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 12825#       发表于 2024-2-16 16:52
+
+https://weibo.com/5318188745/5001485879084367
+
+<img src="https://img.saraba1st.com/forum/202402/16/165254l29oite5q45z8axq.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1708073223475b71f7654e0853592c88b08c885377f1b963ac09745d0a262a3e713a0d95f7228.jpg</strong> (99.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-16 16:52 上传
+
+*****
+
+####  可爱美味祥子  
+##### 12826#       发表于 2024-2-16 16:53
+
+在各种地方被高尾奏音的👻图突击以后，我觉得我是所有人的肉体厨了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|水平太差|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 12827#       发表于 2024-2-16 16:56
+
+真是晦氣
+
+*****
+
+####  DarthAka  
+##### 12828#       发表于 2024-2-16 16:59
+
+羊要和玻一样家有钱不在乎违约，没准已经跑了，这不是乡下来得没上过学连汉字都不认识么
+
+*****
+
+####  Aendst  
+##### 12829#       发表于 2024-2-16 17:00
+
+换声优本身对企划影响不大，但是羊宮目前确实也没到要被换的程度
+
+爱马仕那边落合和成海都相当重量级，其他换声优的状况基本上跟隐退或者伤病挂钩，所以可能早点和解才是唯一的路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

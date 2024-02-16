@@ -4072,3 +4072,39 @@ HE高爆，AT穿甲弹，就问你有什么错
 
 特意转去英文看了看，翻译没问题，英文版也没写说明
 
+
+*****
+
+####  梦诗歌雪  
+##### 440#       发表于 2024-2-16 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972053&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-16 15:08</a>
+
+HE高爆，AT穿甲弹，就问你有什么错
+
+重點整理(隱藏屬性)：</blockquote>
+侦察兵头盔的buff好像是bug，本来所有头盔都是没有属性差异的
+
+
+*****
+
+####  XXXG01H2  
+##### 441#       发表于 2024-2-16 17:01
+
+这些机器人都很残暴啊，把人类关在笼子里，把尸体做成图腾，大型哨站里还有类似献祭台一样的地方，堆满了人类尸体，机械邪教吗？
+
+*****
+
+####  梦诗歌雪  
+##### 442#       发表于 2024-2-16 17:01
+
+<img src="https://img.saraba1st.com/forum/202402/16/170145mcbxury2rmq7jgur.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240216170101.png</strong> (97.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-16 17:01 上传
+
+佛了，现在一启动游戏就提示这个，这又是什么毛病，验证游戏文件完整性也没用
+

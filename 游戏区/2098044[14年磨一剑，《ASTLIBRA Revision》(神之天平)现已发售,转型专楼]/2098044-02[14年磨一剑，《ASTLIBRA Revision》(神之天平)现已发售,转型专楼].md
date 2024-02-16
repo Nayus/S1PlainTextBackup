@@ -1164,3 +1164,13 @@ DLC怎么提升属性来着？升级不加？
 
 问一下最后一个风格怎么获得 全成就就差这个了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菟原手兒奈  
+##### 3961#       发表于 2024-2-17 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976470&amp;ptid=2098044" target="_blank">Ivent 发表于 2024-2-17 00:30</a>
+问一下最后一个风格怎么获得 全成就就差这个了</blockquote>
+最后个职业无名英雄我就是 11 层普通宝箱开出来的，要不刷一下？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

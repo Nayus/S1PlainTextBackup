@@ -610,3 +610,23 @@ ai画图之前就说碉堡，现在呢？还是一眼ai图</blockquote>
 
 —— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 65#       发表于 2024-2-17 03:15
+
+chatgpt里倒是有一个sora了，不过嘛
+
+<img src="https://img.saraba1st.com/forum/202402/17/031118abbl2rmkbltktzz2.png" referrerpolicy="no-referrer">
+
+<strong>-757a31ae5d0033bc.png</strong> (126.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 03:11 上传
+
+他发的地址内容是理查德金曲
+
+就不知道是不是同名模型，专用来恶搞
+

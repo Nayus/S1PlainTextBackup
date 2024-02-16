@@ -4620,3 +4620,22 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 修好了！这次箭头动作快。
 
+
+*****
+
+####  Launce  
+##### 490#       发表于 2024-2-17 03:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是暗调了？虫族所有星球的5-9难度都全刷了遍，全是坦克，黄绿胆汁虫一个没有
+
+*****
+
+####  风萧飒  
+##### 491#       发表于 2024-2-17 03:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977037&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-17 03:13</a>
+这是暗调了？虫族所有星球的5-9难度都全刷了遍，全是坦克，黄绿胆汁虫一个没有 ...</blockquote>
+绿胖子我昨晚打难7的时候碰到很多，后面打难8就只有黄胖子了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

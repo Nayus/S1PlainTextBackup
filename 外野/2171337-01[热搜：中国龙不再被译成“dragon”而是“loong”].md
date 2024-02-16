@@ -171,3 +171,14 @@ dragon是形象为中国龙或西方龙的生物的统一副类别
 
 是的，万智牌的"多元宇宙"就是个流行文化符号大杂烩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wuuuuuud  
+##### 223#       发表于 2024-2-17 04:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975996&amp;ptid=2171337" target="_blank">蒹葭公子 发表于 2024-2-16 23:38</a>
+日本奈须蘑菇把圣经里的怪物塔拉克斯（就是dnd里的泰拉奎斯泰乌龟）当成龙，FF里还把尘世巨蟒耶梦加得当成 ...</blockquote>
+日本人把什么都能当成龙：https://dragalialost.wiki/w/Dragon_Grid
+根本没有讨论的意义
+

@@ -23362,3 +23362,11 @@ https://weibo.com/5318188745/5001485879084367
 
 楼友老想着换人干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊只是摆了点，2.5次元企划一般没到无可救药的地步不会换人的
 
+
+*****
+
+####  蒜苗  
+##### 12843#       发表于 2024-2-16 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把泥楼截图发出去会不会被认为是z8分部
+

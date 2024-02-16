@@ -17,3 +17,11 @@
 
 一向弱势的局外人与暂无强者的剑契将擦出怎样的火花？是否能够成功负负得正？！
 
+
+*****
+
+####  erratic璃月  
+##### 543#       发表于 2024-2-16 19:00
+
+好家伙，yj憋了个大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

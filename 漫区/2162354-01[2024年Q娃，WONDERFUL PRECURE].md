@@ -660,3 +660,14 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 所以你的意思是战斗/格斗是题材中不必要不讨喜已经在逐渐被优化掉的部分吗？ ...</blockquote>
 那不是单纯是东映抠+q娃棚无人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就海贼棚现在这个蒸蒸日上，真有新锐演出家大概也会被丢去那边先。
 
+
+*****
+
+####  bilibilius  
+##### 967#       发表于 2024-2-17 02:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976451&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-17 00:28</a>
+
+难道不是所谓的轻百合其实才是百合这个词的原始定义用于区分硬核姛的GL（蕾丝）吗只是后来含义泛 ...</blockquote>
+不是的，百合这个词本来就是日本先用来指代女同性恋的。你说的是典型的误解，将轻百合和百合混用。已经有很多文章科普过这个词的起源了。
+

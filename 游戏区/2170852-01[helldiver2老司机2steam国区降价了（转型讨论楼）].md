@@ -4639,3 +4639,13 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  旋转吧，米糕  
+##### 492#       发表于 2024-2-17 04:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977037&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-17 03:13</a>
+这是暗调了？虫族所有星球的5-9难度都全刷了遍，全是坦克，黄绿胆汁虫一个没有 ...</blockquote>
+屁啦，刚打完一轮难7三连系列任务，坦克黄绿大屁股混潮从头刷到尾……
+

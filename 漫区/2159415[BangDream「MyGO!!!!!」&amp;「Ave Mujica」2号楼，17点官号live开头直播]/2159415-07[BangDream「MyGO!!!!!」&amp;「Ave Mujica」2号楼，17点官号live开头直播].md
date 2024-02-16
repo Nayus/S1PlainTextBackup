@@ -22907,3 +22907,11 @@ mujica1单的特典图出了吗？
 羊黑确实说不了话，B站live翻车视频在不断减少中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/7e19fb0a0d7c21dab01efdd6df2ac029/1000138426.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 12797#       发表于 2024-2-16 14:53
+
+今天公布🐑出演这个角色，5月10号上映。中间mygo在3月有2场live，4月3场live，时间挺紧的
+

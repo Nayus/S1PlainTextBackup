@@ -42,3 +42,15 @@
 个人感觉吧，虽然红蓝贵物经常和星座公主们并列，但二者还是有本质区别的——村山在星闪里是有意把星座公 ...</blockquote>
 所以我从来不觉得屑星神们能跟红蓝神这对卧龙凤雏相提并论，蓝神已经十足的惊天地了，红神能用两话的戏份就把自己也拉低到跟他同一档次更是妥妥的泣鬼神，这两兄弟一对宝崽放眼整个幼女番的历史也绝对是浓墨重彩的一笔啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 913#       发表于 2024-2-16 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971458&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-16 13:26</a>
+快充就是bg戏最灾难的一个，本篇就不提了，访谈里居然还能补一个小爱还在等蓝神，狠狠喂了磕诚司x小爱的一 ...</blockquote>
+感情戏写成什么样那又是另一个问题了，但起来观众对青梅竹马本身是挺满意的，只不过是编剧没给机会
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

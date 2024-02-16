@@ -536,3 +536,15 @@ ai图进化不是还挺快的
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+*****
+
+####  星零影  
+##### 58#       发表于 2024-2-16 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971479&amp;ptid=2171936" target="_blank">Swanfal 发表于 2024-2-16 13:30</a>
+我一直觉得特别迷的一点是为什么AI相关话题下总有人说拿来伪造的事情，搞得好像AI之前用AE、PS做不 ...</blockquote>
+都不用AE、PS，就算是胶片也有办法伪造
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

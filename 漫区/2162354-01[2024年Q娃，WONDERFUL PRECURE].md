@@ -530,3 +530,14 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 
 <img src="https://img.saraba1st.com/forum/202402/16/200603b7dgncc44x5av57g.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 956#       发表于 2024-2-16 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973346&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-16 18:31</a>
+ 你逻辑有问题吧，可能性这个东西只要没被否定就一直存在，换句话说，都承认了那就不叫可能性了，比如组曲 ...</blockquote>
+比起没接触过的“偶像”，更喜欢身边的人是什么很罕见的事情吗？
+没否认=有可能，很会偷换概念啊，可以在绝大多数作品上宣告胜利了
+

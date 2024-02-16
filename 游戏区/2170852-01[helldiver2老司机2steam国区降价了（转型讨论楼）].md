@@ -4390,3 +4390,28 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水
 
 看这个大兄弟,然后你会发现还是很难在地图混杂的场景里发现这个地标...
 
+
+*****
+
+####  风萧飒  
+##### 468#       发表于 2024-2-16 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975420&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-16 22:37</a>
+B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</blockquote>
+看过视频了，就没见过这个柱子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  风萧飒  
+##### 469#       发表于 2024-2-16 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975604&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-2-16 22:59</a>
+超级样本到底在哪里？！《地狱潜兵2》入门篇
+
+看这个大兄弟,然后你会发现还是很难在地图混杂的场景里发现 ...</blockquote>
+反正就没见过<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -14944,3 +14944,13 @@ FF 陷阱+镭射
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 2962#       发表于 2024-2-16 22:25
+
+那个ID叫Kotaji的的绿双使真的是天才，花了很少的时间就打上了4000，这天赋感觉和灭龙不相上下，看不到上限在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+他的直播看得不多，毕竟我也不怎么玩前排武器了。不过每每看到那丝滑的操作真的惊为天人，吊打不知多少大UP主，然而这家伙**才2000多粉丝你敢信？
+

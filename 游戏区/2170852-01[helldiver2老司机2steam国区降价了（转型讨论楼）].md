@@ -4327,3 +4327,21 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 
 现在经常会卡在任务结算回驱逐舰前的那一段黑幕加载....开了加速器也不行。
 
+
+*****
+
+####  风萧飒  
+##### 462#       发表于 2024-2-16 22:25
+
+超级样本没见过一次<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  旋转吧，米糕  
+##### 463#       发表于 2024-2-16 22:32
+
+这游戏是不是对大小核cpu的兼容性也有问题？
+今天更新前后和朋友联机就我闪退特别频繁<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+

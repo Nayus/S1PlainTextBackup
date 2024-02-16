@@ -1095,3 +1095,34 @@ drifting soul都已经开始放了
 
 可能是老了，想不到有一天竟然要考虑”相信饺子“<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 3851#         楼主| 发表于 2024-2-16 22:27
+
+第19話「Body double」
+
+[https://youtu.be/m1Xia6_ivWY](https://youtu.be/m1Xia6_ivWY)
+
+カナタを心配して後を追っていたエリーが見つけたのは、
+
+動かなくなったシエルを抱えた放心状態のカナタだった。
+
+自分のせいだと己を責めるカナタ。ノワールとミステル分離のタイムリミットが迫るなか、様々な葛藤を抱えたカナタに決断が迫られるー
+<img src="https://p.sda1.dev/15/5ff30fccbf451927837fd1393eafe859/123f59a18afadf8910aea719b7ddcc4e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/0444625003268d6faacd9b59184a456b/0a3407cbb5ab9b066539e0ead71c54e4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/f93691110e91ad09adf68aba55137dee/f43fc9c8e87d69c482c841e278da3c52.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/9de55ffb04986244fe9008fafafd9a87/eb4afe18844802346cb92b214b764c7d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2c38540a4694c9c7a91aaf2376a71f11/fe6601dabbfd1ff3c87761ae16c848cc.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b2a481eb44f9aeff332abd298d52d3f8/d58a3a181083dc119e4713a3105e3a0d.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NeloAngelo  
+##### 3852#       发表于 2024-2-16 22:30
+
+男主淋雨.会不会得马赛克病<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

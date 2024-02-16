@@ -1174,3 +1174,20 @@ DLC怎么提升属性来着？升级不加？
 问一下最后一个风格怎么获得 全成就就差这个了</blockquote>
 最后个职业无名英雄我就是 11 层普通宝箱开出来的，要不刷一下？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ivent  
+##### 3962#       发表于 2024-2-17 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976633&amp;ptid=2098044" target="_blank">菟原手兒奈 发表于 2024-2-17 00:52</a>
+最后个职业无名英雄我就是 11 层普通宝箱开出来的，要不刷一下？</blockquote>
+刷出来了 我刷了四五次都没出我还以为是有特殊条件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ivent  
+##### 3963#       发表于 2024-2-17 01:09
+
+草 我最后一个成就没拿到是什么情况，不会因为我凯撒的成就是另一个档打的导致的吧<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+

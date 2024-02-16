@@ -575,3 +575,16 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 明明在聊谭友定义的百合符不符合q娃，你却纠结起可能性的定义
 你也会说具体情况具体分析，q娃自然不缺广泛含义的百合cp，但“以女性恋上女性为前提的女女关系性”，你认为适合概括整个系列吗？如果你认为是，那就没必要多费口舌了
 
+
+*****
+
+####  modedd  
+##### 960#       发表于 2024-2-16 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974037&amp;ptid=2162354" target="_blank">高规格ik 发表于 2024-2-16 20:06</a>
+
+想要变成怪物被q娃抱抱的大友们这下怕了吧</blockquote>
+冷知识，日本允许合法持枪，但需要考取相关资格证<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+热知识，q娃是传说中的战士，发把狙压根不算个事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

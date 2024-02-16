@@ -4299,3 +4299,11 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 如果是大屁股那个我们发打了两把杀了一堆，结算一个都没有</blockquote>
 橙色的不是，得绿色的
 
+
+*****
+
+####  andychen  
+##### 459#       发表于 2024-2-16 21:23
+
+有点想当民主战士了，求问这游戏现在修Bug修得能玩了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

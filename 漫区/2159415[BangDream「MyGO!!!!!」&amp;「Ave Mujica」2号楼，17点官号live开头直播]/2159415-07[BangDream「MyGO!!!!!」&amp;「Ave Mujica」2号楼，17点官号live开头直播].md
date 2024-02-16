@@ -23467,3 +23467,25 @@ https://weibo.com/5318188745/5001485879084367
 
 换人大约也算是mygo的回旋镖之一罢，尽管最近一位这么干的人已经人称月之森の惊世の智慧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 12854#       发表于 2024-2-16 21:27
+
+给资源他有这个本事用才行啊<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ddy2811  
+##### 12855#       发表于 2024-2-16 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972210&amp;ptid=2159415" target="_blank">harukage 发表于 2024-2-16 15:34</a>
+
+我说怎么想回顾一下新春会的小羊圣经却找不到切片视频了</blockquote>
+【幽默小羊，谁的生日？祝你新年快乐！颤抖着盖不上毯子的手诉说着她没日没夜的努力，忘词了又看不懂台本体现了她对rp的上心！既营了业又卖了灯希，令人无可挑剔的高水准！-哔哩哔哩】 [https://b23.tv/L6mJvio](https://b23.tv/L6mJvio)
+
+还有的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

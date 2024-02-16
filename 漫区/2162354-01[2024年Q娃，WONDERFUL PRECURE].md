@@ -681,3 +681,13 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 
 作品の場合、女性同士の恋愛だけでなく恋愛に近い友愛や広く友情を含んだ作品も百合と言うことが多い。1990年代以降の日本の漫画、ライトノベル、アニメ、同人誌のジャンルをさすことが多いが、戦前の少女小説や一般のレズビアン文学、実写映画も含まれる場合がある</blockquote>by wiki<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 969#       发表于 2024-2-17 06:55
+
+真下头，怎么在这楼里念起经了，你们河豚倒是造点假药啊<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

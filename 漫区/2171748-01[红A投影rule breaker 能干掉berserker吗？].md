@@ -525,3 +525,13 @@ Caliburn原本是儀式用劍。若將其用作武器，
 
 伊莉雅这说的不是废话，军刀和咖喱棒早被蘑菇吹上天了，神造兵装全力一击可是秒杀游星尖兵的，给B叔120条命都接不下来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 50#       发表于 2024-2-16 20:23
+
+满电的saber<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">只会当主角的敌人出现啦
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

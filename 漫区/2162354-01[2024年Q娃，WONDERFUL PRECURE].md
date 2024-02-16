@@ -407,3 +407,35 @@ u1s1，炎上的小友cp厨卜是影响不到霓虹的天朝小友嘛
 
 我觉得初代肉搏强那才是后续客串（特别是ASNS以后）带来的错误的历史记忆——黑白本篇基本上只有中期拿到手环后戴上手环才比较秀，其他大部分时候肉搏纯负责吃瘪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 946#       发表于 2024-2-16 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973173&amp;ptid=2162354" target="_blank">脚底心，洗则白 发表于 2024-2-16 18:02</a>
+ 那百合又是什么呢？在咱的认知里百合是以女性恋上女性的可能为前提的女女关系性总结。以这个认知去看，Q娃 ...</blockquote>
+按你的认知，Q娃才真叫没卖百合，官方可从来没有承认过女性间恋爱感情的可能，最多是如同家人一般感情的擦边球，不存在“恋上”这个前提
+不要把一厢情愿当真，你直说觉得女性间关系好就叫百合还差不多
+
+*****
+
+####  杂灰  
+##### 947#       发表于 2024-2-16 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973048&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-16 17:41</a>
+但是追根溯源，藤P是什么？基利亚又是什么？藤P和基同学是会被观众嫌弃讨厌的角色吗？
+或者说直白一点，黑 ...</blockquote>
+关键是没必要<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一个题材内哪些部分不必要不讨喜会随着观众口味逐渐被优化掉
+
+*****
+
+####  月夜凝雪  
+##### 948#       发表于 2024-2-16 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973173&amp;ptid=2162354" target="_blank">脚底心，洗则白 发表于 2024-2-16 18:02</a>
+那百合又是什么呢？在咱的认知里百合是以女性恋上女性的可能为前提的女女关系性总结。以这个认知去看，Q娃 ...</blockquote>
+相对的要是觉得OP之类都是卖腐的话
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

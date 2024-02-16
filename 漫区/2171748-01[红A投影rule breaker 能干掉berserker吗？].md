@@ -504,3 +504,16 @@ Caliburn原本是儀式用劍。若將其用作武器，
 
 伊莉雅说了，如果呆毛魔力够的话，exc能直接杀光剩下的7条命
 
+
+*****
+
+####  DARKGRAY  
+##### 48#       发表于 2024-2-16 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972800&amp;ptid=2171748" target="_blank">eilot 发表于 2024-2-16 17:04</a>
+
+找到了，就是SABER LILY的說明</blockquote>
+呃，那里没有解放真名啊，参考这个干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+因为投影复制筋力平A就打得动，这时候就可以拿瞬间多段输出偷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

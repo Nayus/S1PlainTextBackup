@@ -4018,3 +4018,35 @@ GaaS嘛，都是先砍内容然后慢慢补。
 
 好像有翻译问题 很多特效翻译中文没加上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 436#       发表于 2024-2-16 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971932&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-2-16 14:49</a>
+
+好像有翻译问题 很多特效中文翻译没加上比如联邦护佑不单单胸口不会出血，还有百分之50概率抵挡致命 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">HE高爆，AT穿甲弹，就问你有什么错
+
+重點整理(隱藏屬性)：
+
+【普票(第7頁)】SC-30開拓者偵查兵頭盔，加6跑速。
+
+【豪華】DP-53自由救世主、【普票(第5頁)】DP-40聯邦英雄它的效果，除了胸口流血可以免疫四肢流血，還有受到傷害時50%機率免死，可以連續觸發，英文說明有，中文說明沒有。
+
+【豪華(第1頁)】P-4參議員(左輪手槍)，這把說明寫輕甲，實際上可以穿中甲。
+
+【普票(第8頁)】SG-8S制裁者散彈槍，這把說明寫輕甲，實際上可以穿中甲。
+
+【普票(第9頁)】SG-225SP掃射破裂者(散彈槍)，這把說明寫輕甲，實際上無穿甲(連輕甲都不能穿)。
+
+【普票(第10頁)】PLAS-1焦土，這把說明寫輕甲，但打在中甲不會彈。 (已編輯)
+
+*****
+
+####  BadYanL  
+##### 437#       发表于 2024-2-16 15:10
+
+原来如此，没关系了，喷子只是解锁最后一把武器的垫脚石。
+

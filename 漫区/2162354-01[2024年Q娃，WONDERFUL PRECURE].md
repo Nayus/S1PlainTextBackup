@@ -54,3 +54,25 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  王留美  
+##### 914#       发表于 2024-2-16 15:08
+
+我本来想说今年旺德福会不会在出门牵狗绳这件事上会不会有点微妙感，直到我想起了大空的王者兽王鹰的主武器……对，就那个Eag Riser，这玩意的意象可比旺德福缺德多了 
+
+<img src="https://s2.loli.net/2024/02/16/vkWCxB4EHmba1rs.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modedd  
+##### 915#       发表于 2024-2-16 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971990&amp;ptid=2162354" target="_blank">月夜凝雪 发表于 2024-02-16 14:58:20</a>
+感情戏写成什么样那又是另一个问题了，但起来观众对青梅竹马本身是挺满意的，只不过是编剧没给机会
+
+—— ...</blockquote>所以你看，诚司其实是我上面提到的两种还要惨的那一档，人是个好小伙子，观众接受，存在感还行，但是官方盖章你就是没戏，q娃的bg戏一直不尽如人意跟这种倾向性多少脱不开关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

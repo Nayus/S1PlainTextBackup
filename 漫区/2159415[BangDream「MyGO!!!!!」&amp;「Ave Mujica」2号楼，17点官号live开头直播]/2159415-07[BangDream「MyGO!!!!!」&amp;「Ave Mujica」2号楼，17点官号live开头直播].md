@@ -23304,3 +23304,28 @@ https://weibo.com/5318188745/5001485879084367
 
 唱得不符合部分观众要求 也不至于被换掉呀 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">妮邦是二次元乐队 又不是三次元乐队
 
+
+*****
+
+####  すぴぱら  
+##### 12836#       发表于 2024-2-16 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还换人呢？日本人可不在乎这个 羊噶吃多的是
+你们啊 矫情
+
+*****
+
+####  Toki_Ai  
+##### 12837#       发表于 2024-2-16 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换人是不可能换人的，将就过，就看中华炮好久散完
+
+*****
+
+####  PDQ4  
+##### 12838#       发表于 2024-2-16 17:59
+
+不可能因为现在烤的原因换人的，可能羊把嗓子霍霍到不能唱了换人可能性更高。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+日本本土不是一点风声没有吗，mygo粉里羊gachi占比很大吧，唉，糊邦。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

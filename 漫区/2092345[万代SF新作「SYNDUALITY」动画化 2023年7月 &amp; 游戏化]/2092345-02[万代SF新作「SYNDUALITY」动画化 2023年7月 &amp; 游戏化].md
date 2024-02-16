@@ -1059,3 +1059,13 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 这个更完整一些，不但有艾女士，还有外传的两位主角，艾达的表情看上去也很忧伤
 
+
+*****
+
+####  罗克萨斯  
+##### 3847#       发表于 2024-2-16 18:01
+
+原画歌姬太太太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

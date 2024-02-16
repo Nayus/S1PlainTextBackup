@@ -14932,3 +14932,15 @@ FF 陷阱+镭射
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 2961#       发表于 2024-2-16 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973085&amp;ptid=2150634" target="_blank">紫菜粉丝煲 发表于 2024-2-16 17:47</a>
+贴牌墨爆淋还整个pv墨水线欺诈，给个信标能干嘛，比无印还弱</blockquote>
+搞不好是下赛季跳点削墨水线呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

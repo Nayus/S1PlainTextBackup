@@ -488,3 +488,19 @@ Caliburn原本是儀式用劍。若將其用作武器，
 然而fgo已经多次证明，真的是13条血连着的</blockquote>
 不然怎么办，13次ready~go!全部打赢才算赢？
 
+
+*****
+
+####  广西桂系兵  
+##### 47#       发表于 2024-2-16 18:02
+
+<img src="https://img.saraba1st.com/forum/202402/16/180138egz3v8dmv78f5t5f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-16 18:01 上传
+
+伊莉雅说了，如果呆毛魔力够的话，exc能直接杀光剩下的7条命
+

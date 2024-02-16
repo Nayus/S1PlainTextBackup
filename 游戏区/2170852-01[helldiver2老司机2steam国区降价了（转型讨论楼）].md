@@ -4229,3 +4229,13 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天这个绿色虫子在哪啊？6级？
 
+
+*****
+
+####  Anhydrite  
+##### 452#       发表于 2024-2-16 18:03
+
+今天更新了两次把挂的漏洞修了，上外网作弊论坛看了一圈都在哀嚎，这两天大概能清净下<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -357,3 +357,23 @@ Q娃这个系列沦落到今天这个德性就是在幼女向圈子里呆太久�
 结果是小友cp厨炎上  ...</blockquote>
 u1s1，炎上的小友cp厨卜是影响不到霓虹的天朝小友嘛
 
+
+*****
+
+####  cxj649  
+##### 942#       发表于 2024-2-16 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973048&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-16 17:41</a>
+
+但是追根溯源，藤P是什么？基利亚又是什么？藤P和基同学是会被观众嫌弃讨厌的角色吗？
+
+或者说直白一点，黑 ...</blockquote>
+有一说一，藤P一直是被吐槽莫名其妙的人物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脚底心，洗则白  
+##### 943#       发表于 2024-2-16 18:02
+
+那百合又是什么呢？在咱的认知里百合是以女性恋上女性的可能为前提的女女关系性总结。以这个认知去看，Q娃系列一直有在卖百合。
+

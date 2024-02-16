@@ -4591,3 +4591,24 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 梦回2/8晚上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeblack  
+##### 487#       发表于 2024-2-17 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976879&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-17 01:48</a>
+我操 接连打下来好多 细节做的真的是蛮好的</blockquote>
+机器人天兵狂暴鸿儒超级气球
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  runningch  
+##### 488#       发表于 2024-2-17 02:08
+
+今天补丁还说修复了匹配系统，结果越修越炸可还行<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

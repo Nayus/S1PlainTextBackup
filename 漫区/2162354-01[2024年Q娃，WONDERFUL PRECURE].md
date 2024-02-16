@@ -649,3 +649,14 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 
 但是你要说怎么解决？没有亏成狗几次怕是没办法的
 
+
+*****
+
+####  杂灰  
+##### 966#       发表于 2024-2-17 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973350&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-16 18:32</a>
+
+所以你的意思是战斗/格斗是题材中不必要不讨喜已经在逐渐被优化掉的部分吗？ ...</blockquote>
+那不是单纯是东映抠+q娃棚无人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就海贼棚现在这个蒸蒸日上，真有新锐演出家大概也会被丢去那边先。
+

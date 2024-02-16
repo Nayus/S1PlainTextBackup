@@ -1191,3 +1191,13 @@ DLC怎么提升属性来着？升级不加？
 
 草 我最后一个成就没拿到是什么情况，不会因为我凯撒的成就是另一个档打的导致的吧<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  诸君何弃疗  
+##### 3964#       发表于 2024-2-17 02:05
+
+才发现出了dlc但没上ns，进dlc需要打通本体吗还是新档直接就能进<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

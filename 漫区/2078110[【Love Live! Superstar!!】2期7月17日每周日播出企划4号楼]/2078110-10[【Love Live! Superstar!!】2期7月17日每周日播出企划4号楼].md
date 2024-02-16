@@ -1396,3 +1396,14 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  csolfans  
+##### 19576#       发表于 2024-2-16 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63967547&amp;ptid=2078110" target="_blank">lj205 发表于 2024-2-15 23:08</a>
+
+特种兵，上午公司报个到就开车去机场，第二天最早一班飞机回直接回公司</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以
+

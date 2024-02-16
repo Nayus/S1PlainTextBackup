@@ -23061,3 +23061,42 @@ mujica1单的特典图出了吗？
 00后第一之前一直是林小姐吧——疫情前81P就给塞了新人奖，自己主演了100多集的美频，东蛋也去了，不过现在 ...</blockquote>
 之前推特关注数第一音宝第二大鼓
 
+
+*****
+
+####  ryuusu  
+##### 12813#       发表于 2024-2-16 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972357&amp;ptid=2159415" target="_blank">ryuusu 发表于 2024-2-16 15:56</a>
+
+原作是主角一头热动机不纯交友拉人组偶像吧，主角憧憬成为偶像的梦想强加到朋友身上，出道后其他人做偶像 ...</blockquote>
+主角最后也在努力做偶像，虽然自己觉得开心不后悔，但也理解不是人人都向往偶像。羊照这学就更应该专注自己的喜欢的工作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  近月  
+##### 12814#       发表于 2024-2-16 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972350&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-16 15:55</a>
+
+這有點做寶可夢啊，不如期待高尾快點進馬娘撈一個人氣馬</blockquote>
+梦一个贵妇人或者杏目<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12815#       发表于 2024-2-16 16:06
+
+這個00後限定也是很難繃，如果富田美憂晚出生1.5個月楠木燈晚出生10天早就絕殺比賽了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+又不是差了好幾歲，完全是同一批人。
+
+而且搞笑的是，日本是把羊宮劃到1999年度的，因為她3月出生，確實和楠木燈、富田美憂是同級生
+
+*****
+
+####  Aendst  
+##### 12816#       发表于 2024-2-16 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本根本没有00后这种说法吧
+

@@ -1019,3 +1019,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 等不及看了下剧透，其他浮空大陆果然也是有超人在的，这次要等几年
 
+
+*****
+
+####  绕指流光  
+##### 3947#       发表于 2024-2-16 16:04
+
+通了通了，最后小徽章刷的太难受直接改了数量
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

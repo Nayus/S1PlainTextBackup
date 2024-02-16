@@ -31,3 +31,14 @@
 快充就是bg戏最灾难的一个，本篇就不提了，访谈里居然还能补一个小爱还在等蓝神，狠狠喂了磕诚司x小爱的一 ...</blockquote>
 个人感觉吧，虽然红蓝贵物经常和星座公主们并列，但二者还是有本质区别的——村山在星闪里是有意把星座公主们塑造成一群屑的，所以觉得星座公主们屑是角色塑造成功的体现；相反，红蓝贵物那是纯纯的成田大妈形象塑造失败的结果而且恐怕成田大妈还没有这个自觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 912#       发表于 2024-2-16 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971679&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-16 14:01</a>
+
+个人感觉吧，虽然红蓝贵物经常和星座公主们并列，但二者还是有本质区别的——村山在星闪里是有意把星座公 ...</blockquote>
+所以我从来不觉得屑星神们能跟红蓝神这对卧龙凤雏相提并论，蓝神已经十足的惊天地了，红神能用两话的戏份就把自己也拉低到跟他同一档次更是妥妥的泣鬼神，这两兄弟一对宝崽放眼整个幼女番的历史也绝对是浓墨重彩的一笔啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

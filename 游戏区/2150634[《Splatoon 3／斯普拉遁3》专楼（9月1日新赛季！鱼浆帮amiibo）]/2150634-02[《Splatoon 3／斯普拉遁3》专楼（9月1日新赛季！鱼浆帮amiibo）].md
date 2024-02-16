@@ -14810,3 +14810,13 @@ FF 陷阱+镭射
 
 往铁丝网跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有铁丝网的图开出来就跑
 
+
+*****
+
+####  罗克萨斯  
+##### 2948#       发表于 2024-2-16 08:45
+
+中加是不是也有必要带隐跳？跳自家高台都能被4K长弓轮番一确<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

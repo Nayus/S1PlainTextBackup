@@ -3964,3 +3964,37 @@ GaaS嘛，都是先砍内容然后慢慢补。
 
 还有没有武器平衡了？
 
+
+*****
+
+####  センコウ  
+##### 430#       发表于 2024-2-16 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在主武器不是只分勉强能用一下和完全不能用两种么，能快速清理小怪的连喷基本就是最优解了
+
+*****
+
+####  looptube  
+##### 431#       发表于 2024-2-16 13:17
+
+拯救人质任务选的难度1，误杀一个人质-50，通关给500，打完一把还要亏钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安瓦尔阿明  
+##### 432#       发表于 2024-2-16 13:18
+
+护送科学团队这任务确实挺奇怪，我尝试单人潜行做，发现在未暴露的情况下，我走到哪，机器人的运输船就在哪空投援军，空投下来的敌人继续巡逻，基本上很快被发现然后被敌群淹没。
+
+*****
+
+####  FLZB  
+##### 433#       发表于 2024-2-16 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971307&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-16 13:06</a>
+
+解锁了第8页的喷子“重炮手”，射速伤害后坐力全面落后于“破裂者”，还单发装弹。
+
+还有没有武器平衡了？ ...</blockquote>
+那把是独头弹，打机器人的
+

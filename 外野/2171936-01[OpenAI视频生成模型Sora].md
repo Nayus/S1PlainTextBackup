@@ -600,3 +600,13 @@ ai画图之前就说碉堡，现在呢？还是一眼ai图</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NaAgfykp  
+##### 64#       发表于 2024-2-17 02:31
+
+闲话少说，来点京都脸或者诚哥风格的里番先。
+
+—— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

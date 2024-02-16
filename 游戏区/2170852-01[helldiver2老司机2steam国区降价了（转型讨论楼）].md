@@ -4612,3 +4612,11 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  BadYanL  
+##### 489#       发表于 2024-2-17 02:24
+
+修好了！这次箭头动作快。
+

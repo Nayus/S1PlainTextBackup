@@ -4513,3 +4513,11 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Sayuki1025  
+##### 480#       发表于 2024-2-17 01:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">箭头你的服务器炸了
+

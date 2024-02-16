@@ -23579,3 +23579,11 @@ wsd血汗工厂这么坑的吗？没有声乐老师教发音吗？
 
 垂涎羊腿的鼓<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12864#       发表于 2024-2-17 03:24
+
+再怎么厨立希也做不到当羊全肯定bot吧，不如说羊再继续摆下去立希除了舔狗外估计还得多一个没眼光的罪名了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

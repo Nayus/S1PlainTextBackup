@@ -14820,3 +14820,15 @@ FF 陷阱+镭射
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 2949#       发表于 2024-2-16 09:33
+
+炸房后会连败到底啥情况，我会这样，90%胜率的上位势也会这样是不是有点离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+【【熟切/ちょこぺろ】蛤蜊4000之路被任天堂制裁，从一蹶不振到精神失常-哔哩哔哩】 https://b23.tv/H7DIMWY
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -22746,3 +22746,15 @@ mujica1单的特典图出了吗？
 
 呃，所以说这其实是Cy的业务调整导致Bushiroad受到影响，结果两边没交接好？难不成Craft Egg是被强行拆散的？
 
+
+*****
+
+####  nebulanoby  
+##### 12781#       发表于 2024-2-16 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63969459&amp;ptid=2159415" target="_blank">novalli 发表于 2024-2-16 09:05</a>
+刚搜了一下Craft Egg的新闻，发现一个1月底的新闻，说Craft Egg将不再是独立公司，而是成为CyberAgent（Cyg ...</blockquote>
+应该是这样的，主要是武士道曾经主动干过🥚一次，配上老登去年Q4那阵子的发言，一度让人以为武士道又主动跳了。现在看来不是武士道自作孽，那应该不会不可活
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -14883,3 +14883,35 @@ FF 陷阱+镭射
 
 北极星那张图的节奏放3代环境估计不好改，不过这就直接盖棺没新地图追加了，有点不知道该怎么说.....本来还期待后面多整点好活再多更久一点，只是回光返照嘛
 
+
+*****
+
+####  Junakr  
+##### 2956#       发表于 2024-2-16 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在只想着大润图以后还有机会开放吗。
+
+常规七张，大润五张，加起来也蛮多了。
+
+*****
+
+####  nor000  
+##### 2957#       发表于 2024-2-16 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63969634&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-16 09:33</a>
+
+炸房后会连败到底啥情况，我会这样，90%胜率的上位势也会这样是不是有点离谱了
+
+【【熟切/ちょこぺ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连败多了任天堂怕你输得太难看也会开始炸房送连胜
+
+*****
+
+####  KBAC  
+##### 2958#       发表于 2024-2-16 17:38
+
+墨墙这玩意低分段丢出去队友先变无头苍蝇了
+但是这玩意改成只挡敌方视线会不会又太强了？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

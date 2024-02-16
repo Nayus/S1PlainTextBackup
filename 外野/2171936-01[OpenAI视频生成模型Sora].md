@@ -423,3 +423,13 @@ context长度有限，游戏过场之类的和上下文关系紧密的都不合�
 
 AGI 还是慢慢来，但创意产业从劳动密集变成自动化工业流水线感觉快了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然后对证据确实是个挑战，但证据讲的是链
 
+
+*****
+
+####  乾理央  
+##### 47#       发表于 2024-2-16 17:38
+
+目前看最大受益者应该是短视频创作者，因为他们不需要什么真实性，只要把露馅的地方截了或者配上一些后期特效+字体啥的蒙混过去就好
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">肉眼可见以后社交媒体上这种乱七八糟的视频会越来越多，煽动xx会更简单
+

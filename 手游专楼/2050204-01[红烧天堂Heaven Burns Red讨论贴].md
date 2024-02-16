@@ -14,3 +14,21 @@
 
 这逼打牌有什么比较稳的全自动刷分配置吗？补开大碰到几次道中BOSS就要嗝屁，开大打不到最终BOSS
 
+
+*****
+
+####  bobosnader  
+##### 1467#       发表于 2024-2-16 17:39
+
+最近出的角色都是功能角--不知道是不是要转型，现在就是比输出--
+
+*****
+
+####  bobosnader  
+##### 1468#       发表于 2024-2-16 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972987&amp;ptid=2050204" target="_blank">poor 发表于 2024-2-16 17:30</a>
+
+这逼打牌有什么比较稳的全自动刷分配置吗？不开大碰到几次道中BOSS就要嗝屁，开大打不到最终BOSS ...</blockquote>
+那啥别的手游有的早晚都会加上这样--
+

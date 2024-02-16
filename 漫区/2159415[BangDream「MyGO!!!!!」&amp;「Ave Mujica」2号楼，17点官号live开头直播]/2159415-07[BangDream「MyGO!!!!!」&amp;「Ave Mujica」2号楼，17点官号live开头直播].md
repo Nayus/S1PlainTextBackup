@@ -23337,3 +23337,13 @@ https://weibo.com/5318188745/5001485879084367
 
 除非主动切割不然不会换人的，non和武士道都撕破脸了也没把rinrin换成入江
 
+
+*****
+
+####  爱丁堡official  
+##### 12840#       发表于 2024-2-16 18:40
+
+这发型<img src="https://p.sda1.dev/15/f5ae37e3dfd553cbdb3944681c75e06a/IMG_CMP_41052100.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

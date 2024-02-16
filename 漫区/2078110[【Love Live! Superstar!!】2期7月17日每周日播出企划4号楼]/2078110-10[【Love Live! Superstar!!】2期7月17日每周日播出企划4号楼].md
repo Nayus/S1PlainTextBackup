@@ -1417,3 +1417,18 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 那切片6千条评论是春晚那边引流了。难以想象的一天，LL和春晚撞上热点。</blockquote>
 这都能引到的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 19578#       发表于 2024-2-16 18:36
+
+<blockquote>引用第19576楼adw667于2024-02-16 16:37发表的  :
+
+引用:cat1230 发表于 2024-2-15 22:21那切片6千条评论是春晚那边引流了。难以想......</blockquote>
+@adw667
+
+还有更奇葩的，从春山学引流到non这个切片在再右边推荐里关联到day1那天鲤鱼新年快乐的切片再评论区发帖问到鲤鱼然后关注。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

@@ -4239,3 +4239,14 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  梦诗歌雪  
+##### 453#       发表于 2024-2-16 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972866&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-16 17:14</a>
+
+傻卵反作弊更新炸了好像，这个无解，重复启动或者搞个梯加速器什么的，老外也在吐槽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">多启动几次就提示让我更新nProtect，允许然后就好了。果然是每次都要更新新的bug
+

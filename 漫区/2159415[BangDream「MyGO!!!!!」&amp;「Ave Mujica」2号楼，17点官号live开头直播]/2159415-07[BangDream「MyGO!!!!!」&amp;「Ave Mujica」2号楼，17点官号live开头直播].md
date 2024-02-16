@@ -23347,3 +23347,18 @@ https://weibo.com/5318188745/5001485879084367
 
 —— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Aloereed  
+##### 12841#       发表于 2024-2-16 18:42
+
+说实话唱的比羊难听的多了去了。现在这表现顶多少卖点配信票
+
+*****
+
+####  星空冻结  
+##### 12842#       发表于 2024-2-16 18:44
+
+楼友老想着换人干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊只是摆了点，2.5次元企划一般没到无可救药的地步不会换人的
+

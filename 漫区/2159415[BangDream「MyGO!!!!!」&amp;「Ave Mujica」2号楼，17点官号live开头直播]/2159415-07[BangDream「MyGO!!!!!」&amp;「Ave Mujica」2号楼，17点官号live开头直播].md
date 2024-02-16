@@ -22975,3 +22975,48 @@ mujica1单的特典图出了吗？
 
 说00后肯定是说im松冈美里或者81P永濑安奈这种，林小姐和高尾这种疫情前就出道的，还拿出来比就多少有点跌份了……5月播的片子，应该是配完了
 
+
+*****
+
+####  NODY  
+##### 12804#       发表于 2024-2-16 15:43
+
+从爱音可以看出你邦这企划配音水平高不高确实不是影响人气的必要因素，真不如换个对live上心的糊逼底边声优来配灯算了，不然羊整天这样摆烂懒得练习然后live全靠吼把嗓子唱坏也影响她自己前途<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12805#       发表于 2024-2-16 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972148&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-2-16 15:25</a>
+
+虽然主要角色数上面高尾老师还是遥遥领先，但是她出道早，已经过了资源期而且接的都是糊逼厕纸，所以求导 ...</blockquote>
+高尾還年輕，不急<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 12806#       发表于 2024-2-16 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972268&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-16 15:43</a>
+高尾還年輕，不急</blockquote>
+只能希望你鸡大火了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DarthAka  
+##### 12807#       发表于 2024-2-16 15:45
+
+00后第一之前一直是林小姐吧——疫情前81P就给塞了新人奖，自己主演了100多集的美频，东蛋也去了，不过现在明显志向已经不在配音了，试音新角色什么的不存在
+
+*****
+
+####  可爱美味祥子  
+##### 12808#       发表于 2024-2-16 15:46
+
+三月估计会成为“斋月”，素食一个月，看四月能不能再爽食烤羊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+在此期间也就看看迷子集会和bangtv了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

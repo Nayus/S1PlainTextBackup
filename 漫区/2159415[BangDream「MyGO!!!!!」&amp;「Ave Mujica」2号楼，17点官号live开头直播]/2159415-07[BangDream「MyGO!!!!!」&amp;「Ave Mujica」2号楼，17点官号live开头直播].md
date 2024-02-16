@@ -22758,3 +22758,14 @@ mujica1单的特典图出了吗？
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  鳥栖朝  
+##### 12782#       发表于 2024-2-16 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968914&amp;ptid=2159415" target="_blank">盐星 发表于 2024-02-16 04:12:15</a>
+虽然不是很懂，不过红白馒头里的说法大概是红是生白是死。所以组合在一起/两个人分一半是好的意象，单独 ...</blockquote>原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

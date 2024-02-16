@@ -3882,3 +3882,15 @@ Defend Events have been fixed and received an update
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  BadYanL  
+##### 422#       发表于 2024-2-16 11:51
+
+GaaS嘛，都是先砍内容然后慢慢补。
+
+不过Arrow head老大说所有内容免费更新，不会像一代那样DLC地狱。
+
+现在就怕产能跟不上，突然爆火了才开始招人。
+

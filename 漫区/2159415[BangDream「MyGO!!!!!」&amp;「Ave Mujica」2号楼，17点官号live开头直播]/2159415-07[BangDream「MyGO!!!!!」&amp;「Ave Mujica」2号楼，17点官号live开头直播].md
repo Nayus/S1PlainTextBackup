@@ -23020,3 +23020,44 @@ mujica1单的特典图出了吗？
 
 在此期间也就看看迷子集会和bangtv了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 12809#       发表于 2024-2-16 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972210&amp;ptid=2159415" target="_blank">harukage 发表于 2024-2-16 15:34</a>
+我说怎么想回顾一下新春会的小羊圣经却找不到切片视频了</blockquote>
+新春会那个还在 BV1ok4y1X746
+
+*****
+
+####  御幸一也  
+##### 12810#       发表于 2024-2-16 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972277&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-2-16 15:45</a>
+
+只能希望你鸡大火了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+這有點做寶可夢啊，不如期待高尾快點進馬娘撈一個人氣馬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryuusu  
+##### 12811#       发表于 2024-2-16 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971785&amp;ptid=2159415" target="_blank">Nomind96 发表于 2024-2-16 14:26</a>
+
+原作讲偶像文化，希望🐏好好学一下偶像怎么做吧</blockquote>
+原作是主角一头热动机不纯交友拉人组偶像吧，主角憧憬成为偶像的梦想强加到朋友身上，出道后其他人做偶像不开心产生矛盾解散和解了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 12812#         楼主| 发表于 2024-2-16 16:00
+
+<blockquote>DarthAka 发表于 2024-2-16 15:45
+00后第一之前一直是林小姐吧——疫情前81P就给塞了新人奖，自己主演了100多集的美频，东蛋也去了，不过现在 ...</blockquote>
+之前推特关注数第一音宝第二大鼓
+

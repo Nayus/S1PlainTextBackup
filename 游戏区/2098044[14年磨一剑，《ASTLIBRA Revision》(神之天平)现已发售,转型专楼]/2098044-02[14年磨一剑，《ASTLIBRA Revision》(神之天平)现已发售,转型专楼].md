@@ -1011,3 +1011,11 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  soranoguiji  
+##### 3946#       发表于 2024-2-16 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 等不及看了下剧透，其他浮空大陆果然也是有超人在的，这次要等几年
+

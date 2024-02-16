@@ -101,3 +101,28 @@
 
 当年战队真的是站在雷区里蹦迪结果愣是运气好没踩到雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  modedd  
+##### 918#       发表于 2024-2-16 15:55
+
+ 本帖最后由 modedd 于 2024-2-16 16:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972205&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-16 15:33</a>
+可是除了魔法组外官方又盖章哪对百合了呢？
+一样样的情况凭什么bg这边就是不尽人意百合那边就是大受好评 ...</blockquote>
+首先角色间的互动写的是好是坏和是bg还是女女无关，本来也不存在就因为是bg或者百合所以就会被踩/捧的情况，我q娃入坑作就是茶几，诚司是个好小伙子，但这不代表他和魔神爱的bg戏就也是优秀的，蓝神的存在让他们两个人之间的关系完全没法往深了想，这点就算把这三个人全换成女也是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  王留美  
+##### 919#       发表于 2024-2-16 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972221&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-16 15:36</a>
+ 根本上来说我觉得还是你Q娃整体就和BG描写天生犯冲吧 毕竟你Q娃故事的原点是什么，是一哥一嫂两个 ...</blockquote>
+你要这么说那就不能不往上翻Q娃在战斗美少女系统的直系前辈水兵月了，都知道地场卫的战斗力是笑话，可是怎么地月就成了呢
+
+嘛虽然大家都知道Q娃的直系亲辈是龙球……
+

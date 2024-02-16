@@ -126,3 +126,24 @@
 
 嘛虽然大家都知道Q娃的直系亲辈是龙球……
 
+
+*****
+
+####  cxj649  
+##### 920#       发表于 2024-2-16 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972367&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-16 15:59</a>
+
+你要这么说那就不能不往上翻Q娃在战斗美少女系统的直系前辈水兵月了，都知道地场卫的战斗力是笑话，可是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三爷CO也成了啊
+
+
+*****
+
+####  新条アカネ  
+##### 921#       发表于 2024-2-16 16:28
+
+那结衣品田也成了，阿花年轻社长也成了，为什么爱小爱城司不能成呢，是监督不愿意吗
+
+对，还真是监督不愿意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

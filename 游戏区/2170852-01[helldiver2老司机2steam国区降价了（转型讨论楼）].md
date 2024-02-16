@@ -4365,3 +4365,13 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水
 
 哇这难5的机器人救援就这么上强度的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aestivalls  
+##### 466#       发表于 2024-2-16 22:47
+
+机器人救援已经削过了，是人能玩的程度了
+
+----发送自 [Sony H8296,Android 10](http://stage1.5j4m.com/?1.37)
+

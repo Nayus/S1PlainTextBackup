@@ -345,3 +345,15 @@ Q娃这个系列沦落到今天这个德性就是在幼女向圈子里呆太久�
 
 所以Q娃或者说魔法少女天生和BG不合完全没道理吧
 
+
+*****
+
+####  深渊魔魂  
+##### 941#       发表于 2024-2-16 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972948&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-2-16 17:26</a>
+去看看天空周边 鸟蝶开大车cp味不要卖太厉害哦
+正片又整出了骑士公主cp 也有人吃这套
+结果是小友cp厨炎上  ...</blockquote>
+u1s1，炎上的小友cp厨卜是影响不到霓虹的天朝小友嘛
+

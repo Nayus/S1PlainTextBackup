@@ -1054,3 +1054,11 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 带好盾，他的飞行道具破防值很低的
 
+
+*****
+
+####  nagamasa  
+##### 3950#       发表于 2024-2-16 17:46
+
+最终武器给的这最后一个狗狗技能逆转生死之理是干嘛用的？以为是跟最终boss挂钩，带和没带都打了一遍没区别啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

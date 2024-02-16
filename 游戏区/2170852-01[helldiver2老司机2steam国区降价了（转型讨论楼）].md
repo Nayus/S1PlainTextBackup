@@ -4221,3 +4221,11 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 反作弊反了个寂寞，前几天匹配了个开无敌和无限开火的路人，一次性反坦克像机枪一样。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这贵物不就是冒险岛时代的反作弊，外挂岛表示理解
 
+
+*****
+
+####  bladethunder  
+##### 451#       发表于 2024-2-16 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天这个绿色虫子在哪啊？6级？
+

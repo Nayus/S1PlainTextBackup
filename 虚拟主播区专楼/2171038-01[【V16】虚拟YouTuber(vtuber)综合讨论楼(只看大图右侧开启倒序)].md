@@ -385,3 +385,18 @@ Elira clique的那个rrat太有说服力了
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  tiro_finale  
+##### 127#       发表于 2024-2-16 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63969739&amp;ptid=2171038" target="_blank">格林卡罗尔 发表于 2024-2-16 09:50</a>
+
+话说回来是不是该考虑换新楼了，好不容易维护该离开这诅咒之地了
+
+@tiro_finale 
+
+—— 来自 Xiaomi M2012K11 ...</blockquote>
+现在是什么症状来着，我这边看怎么能正常翻页+顶起了
+

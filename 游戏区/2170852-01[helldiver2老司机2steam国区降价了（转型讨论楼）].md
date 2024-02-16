@@ -3894,3 +3894,15 @@ GaaS嘛，都是先砍内容然后慢慢补。
 
 现在就怕产能跟不上，突然爆火了才开始招人。
 
+
+*****
+
+####  Launce  
+##### 423#       发表于 2024-2-16 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63970537&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-02-16 11:29:42</a>
+所以这作不让重复带战略装备不知道怎么想的，玩法单一导致玩家强度跟不上，玩家强度跟不上又进一步导致玩法 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">装备单一主要原因就是主武器升级砍了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火力不行一是装备空投都没直接的火力升级，二是轨道炮击准确度全白给
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

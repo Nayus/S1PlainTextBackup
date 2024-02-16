@@ -22769,3 +22769,14 @@ mujica1单的特典图出了吗？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  鳥栖朝  
+##### 12783#       发表于 2024-2-16 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968941&amp;ptid=2159415" target="_blank">Kfly 发表于 2024-02-16 04:27:44</a>
+好像就是楼上那个意思</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

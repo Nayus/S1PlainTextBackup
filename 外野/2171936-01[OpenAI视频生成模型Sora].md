@@ -415,3 +415,11 @@ context长度有限，游戏过场之类的和上下文关系紧密的都不合�
 
 就这
 
+
+*****
+
+####  Midnight.Coup  
+##### 46#       发表于 2024-2-16 17:18
+
+AGI 还是慢慢来，但创意产业从劳动密集变成自动化工业流水线感觉快了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然后对证据确实是个挑战，但证据讲的是链
+

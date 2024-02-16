@@ -477,3 +477,14 @@ Caliburn原本是儀式用劍。若將其用作武器，
 
 那最後如果士朗學了孔明和高尾大夫，用盡3發令咒當成補魔力手段，能否幫EX充到能7殺的電?
 
+
+*****
+
+####  天下何人  
+##### 46#       发表于 2024-2-16 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960919&amp;ptid=2171748" target="_blank">ac死或生 发表于 2024-2-14 20:01</a>
+
+然而fgo已经多次证明，真的是13条血连着的</blockquote>
+不然怎么办，13次ready~go!全部打赢才算赢？
+

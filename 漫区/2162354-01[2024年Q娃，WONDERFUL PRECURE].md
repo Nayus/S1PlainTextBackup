@@ -265,3 +265,24 @@ Q娃这个系列沦落到今天这个德性就是在幼女向圈子里呆太久�
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  pokemon最爱  
+##### 934#       发表于 2024-2-16 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972852&amp;ptid=2162354" target="_blank">月夜凝雪 发表于 2024-2-16 17:12</a>
+
+公主这箭头是对着所有人的啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+从结婚回以后大艾露对鸟的态度看公主对鸟的箭头应该是恋爱意思上的喜欢跟对其他人的稍微有点不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聖あげは  
+##### 935#       发表于 2024-2-16 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972795&amp;ptid=2162354" target="_blank">夕凪ツバサ 发表于 2024-2-16 17:04</a></blockquote>
+别灰心，少年，下次让你搭便车不收你油钱
+

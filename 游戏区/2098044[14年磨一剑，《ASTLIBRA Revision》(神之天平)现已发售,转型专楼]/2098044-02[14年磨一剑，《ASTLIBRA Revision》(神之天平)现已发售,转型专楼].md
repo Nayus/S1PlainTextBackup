@@ -1029,3 +1029,15 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 —— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Ivent  
+##### 3948#       发表于 2024-2-16 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972397&amp;ptid=2098044" target="_blank">绕指流光 发表于 2024-2-16 16:04</a>
+通了通了，最后小徽章刷的太难受直接改了数量
+
+—— 来自 vivo V2302A, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+问一下小徽章要求是多少个啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">现在快通了55个，想先做好预期
+

@@ -1038,3 +1038,11 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 【「SYNDUALITY Noir」第19話「Body double」WEB予告-哔哩哔哩】 [https://b23.tv/2tOFuh8](https://b23.tv/2tOFuh8)    回忆为主的预告，刀，刀，刀
 
+
+*****
+
+####  NeloAngelo  
+##### 3845#       发表于 2024-2-16 17:14
+
+"magus一直在你身边" 都没了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

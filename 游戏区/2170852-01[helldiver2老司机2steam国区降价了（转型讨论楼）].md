@@ -4160,3 +4160,23 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，粒子渲染和布娃娃引起的崩溃
 
+
+*****
+
+####  Launce  
+##### 444#       发表于 2024-2-16 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972783&amp;ptid=2170852" target="_blank">梦诗歌雪 发表于 2024-2-16 17:01</a>
+
+佛了，现在一启动游戏就提示这个，这又是什么毛病，验证游戏文件完整性也没用 ...</blockquote>
+傻卵反作弊更新炸了好像，这个无解，重复启动或者搞个梯加速器什么的，老外也在吐槽
+
+*****
+
+####  lazycat233  
+##### 445#       发表于 2024-2-16 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972783&amp;ptid=2170852" target="_blank">梦诗歌雪 发表于 2024-2-16 17:01</a>
+佛了，现在一启动游戏就提示这个，这又是什么毛病，验证游戏文件完整性也没用 ...</blockquote>
+亲测把防火墙关了就能进<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

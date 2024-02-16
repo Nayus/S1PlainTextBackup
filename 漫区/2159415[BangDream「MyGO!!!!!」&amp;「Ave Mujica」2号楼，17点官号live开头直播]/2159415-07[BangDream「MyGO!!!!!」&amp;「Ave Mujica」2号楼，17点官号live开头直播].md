@@ -23291,3 +23291,16 @@ https://weibo.com/5318188745/5001485879084367
 
 羊如果有一天真被换了，那也不会是因为目前被烤的这些原因。
 
+
+*****
+
+####  梶原ひかり  
+##### 12835#       发表于 2024-2-16 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972860&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-16 17:13</a>
+
+什么虹团、马娘，一场一个人顶多两首solo，团曲一人一句，大合唱垫音一开光张嘴不出声都行，有个别人拉胯根 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我羊又不是没去LIVE 也没跟志崎一样 队员开活动 自己去逛街
+
+唱得不符合部分观众要求 也不至于被换掉呀 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">妮邦是二次元乐队 又不是三次元乐队
+

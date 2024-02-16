@@ -14865,3 +14865,21 @@ FF 陷阱+镭射
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 2954#       发表于 2024-2-16 17:26
+
+本来以为秩序篇是新的开始结果现在一股要结束的味，连惯例的第二贴牌都没个影<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+就看甲子园决赛野上恒会不会出来露面放几个响屁了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  clvan_  
+##### 2955#       发表于 2024-2-16 17:30
+
+北极星那张图的节奏放3代环境估计不好改，不过这就直接盖棺没新地图追加了，有点不知道该怎么说.....本来还期待后面多整点好活再多更久一点，只是回光返照嘛
+

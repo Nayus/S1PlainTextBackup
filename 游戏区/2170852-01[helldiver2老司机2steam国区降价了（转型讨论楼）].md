@@ -4180,3 +4180,44 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 佛了，现在一启动游戏就提示这个，这又是什么毛病，验证游戏文件完整性也没用 ...</blockquote>
 亲测把防火墙关了就能进<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  旋转吧，米糕  
+##### 446#       发表于 2024-2-16 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972879&amp;ptid=2170852" target="_blank">lazycat233 发表于 2024-2-16 17:16</a>
+亲测把防火墙关了就能进</blockquote>
+我是看网上一个视频教的重置防火墙默认配置就行，关掉反而没用
+
+*****
+
+####  ab20000801  
+##### 447#       发表于 2024-2-16 17:24
+
+新布丁出了，我这边匹配起来快多了，基本一次就能匹配上
+
+*****
+
+####  ab20000801  
+##### 448#       发表于 2024-2-16 17:24
+
+新布丁出了，我这边匹配起来快多了，基本一次就能匹配上
+
+*****
+
+####  BadYanL  
+##### 449#       发表于 2024-2-16 17:25
+
+反作弊反了个寂寞，前几天匹配了个开无敌和无限开火的路人，一次性反坦克像机枪一样。
+
+*****
+
+####  Launce  
+##### 450#       发表于 2024-2-16 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972941&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-16 17:25</a>
+
+反作弊反了个寂寞，前几天匹配了个开无敌和无限开火的路人，一次性反坦克像机枪一样。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这贵物不就是冒险岛时代的反作弊，外挂岛表示理解
+

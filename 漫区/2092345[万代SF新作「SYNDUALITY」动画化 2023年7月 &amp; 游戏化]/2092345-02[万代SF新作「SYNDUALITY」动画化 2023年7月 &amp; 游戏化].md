@@ -1046,3 +1046,16 @@ S1的卡楼问题太严重了，看不到的回复一大堆<img src="https://sta
 
 "magus一直在你身边" 都没了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3846#       发表于 2024-2-16 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972864&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-16 17:14</a>
+
+"magus一直在你身边" 都没了</blockquote>
+[https://tieba.baidu.com/p/889835 ... 71CB26C88D71B43AE1B](https://tieba.baidu.com/p/8898353286?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.55.1.0&amp;st=1708075362&amp;is_video=false&amp;unique=71CF5AE122C4A71CB26C88D71B43AE1B)
+
+这个更完整一些，不但有艾女士，还有外传的两位主角，艾达的表情看上去也很忧伤
+

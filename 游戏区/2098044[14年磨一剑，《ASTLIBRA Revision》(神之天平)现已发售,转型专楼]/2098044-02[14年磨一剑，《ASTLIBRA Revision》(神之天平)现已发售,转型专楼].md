@@ -1041,3 +1041,16 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 —— 来自 vivo V2302A, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 问一下小徽章要求是多少个啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">现在快通了55个，想先做好预期
 
+
+*****
+
+####  adretyu67.  
+##### 3949#       发表于 2024-2-16 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63964751&amp;ptid=2098044" target="_blank">jy000129 发表于 2024-2-15 10:48</a>
+
+完全打不过，地狱难度一下就没了
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+带好盾，他的飞行道具破防值很低的
+

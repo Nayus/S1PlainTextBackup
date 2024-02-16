@@ -286,3 +286,48 @@ Q娃这个系列沦落到今天这个德性就是在幼女向圈子里呆太久�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972795&amp;ptid=2162354" target="_blank">夕凪ツバサ 发表于 2024-2-16 17:04</a></blockquote>
 别灰心，少年，下次让你搭便车不收你油钱
 
+
+*****
+
+####  粉儿alice  
+##### 936#       发表于 2024-2-16 17:26
+
+去看看天空周边 鸟蝶开大车cp味不要卖太厉害哦
+正片又整出了骑士公主cp 也有人吃这套
+结果是小友cp厨炎上 大友吃瓜<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+当然天空士大夫是一群没有水平又菜又怂东西 都这样了有本事敢玩党争吗 这样热度就来了吗 
+
+*****
+
+####  夕凪ツバサ  
+##### 937#       发表于 2024-2-16 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972905&amp;ptid=2162354" target="_blank">聖あげは 发表于 2024-2-16 17:20</a>
+别灰心，少年，下次让你搭便车不收你油钱</blockquote>
+不坐车了，身为公主殿下的骑士必须学会骑陆行鸟才行<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聖あげは  
+##### 938#       发表于 2024-2-16 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972948&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-2-16 17:26</a>
+
+去看看天空周边 鸟蝶开大车cp味不要卖太厉害哦
+
+正片又整出了骑士公主cp 也有人吃这套
+
+结果是小友cp厨炎上  ...</blockquote>
+在幼女片玩党争是什么下场，心跳和茶几的财报已经很明显了
+
+我们并不需要在面对幼女的片子里继续玩这种狗大友才喜欢的东西，除非众筹复活柴田
+
+*****
+
+####  Sliurus  
+##### 939#       发表于 2024-2-16 17:30
+
+复数女性主角就肯定百合的呼声比bg大，比如小马<img src="https://static.saraba1st.com/image/smiley/carton2017/217.png" referrerpolicy="no-referrer">。日常向尚且如此，有战斗情节的更加难安排，男角色戏份太多会偏题，太少观众又不认可，本身就是个死局，除非像小樱一样单兵作战
+虽然人shou有点重口，但银兽确实是可以名正言顺在女孩子堆里刷存在感又不会太偏题，可能也是为什么这么多年只有co希认可度比较高
+

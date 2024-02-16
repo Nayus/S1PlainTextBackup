@@ -14964,3 +14964,21 @@ FF 陷阱+镭射
 
 只能说下个赛季还能出新武器...希望还是能延长一下寿命（
 
+
+*****
+
+####  carroy  
+##### 2964#       发表于 2024-2-16 22:56
+
+赶紧结束喷4再见吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laosai13  
+##### 2965#       发表于 2024-2-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975299&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-16 22:25</a>
+
+那个ID叫Kotaji的的绿双使真的是天才，花了很少的时间就打上了4000，这天赋感觉和灭龙不相上下，看不到上限 ...</blockquote>
+kotaji毕竟是最强绿双使，现在绿双也很强势
+

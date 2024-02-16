@@ -4375,3 +4375,18 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水
 
 ----发送自 [Sony H8296,Android 10](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  Gmlazy  
+##### 467#       发表于 2024-2-16 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975302&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-2-16 22:25</a>
+
+超级样本没见过一次
+
+—— 来自 S1Fun</blockquote>
+[超级样本到底在哪里？！《地狱潜兵2》入门篇](https://www.bilibili.com/video/BV1iF4m1M73R)
+
+看这个大兄弟,然后你会发现还是很难在地图混杂的场景里发现这个地标...
+

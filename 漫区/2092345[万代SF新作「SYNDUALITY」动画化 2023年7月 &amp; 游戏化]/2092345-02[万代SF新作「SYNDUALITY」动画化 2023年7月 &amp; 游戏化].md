@@ -1141,3 +1141,15 @@ drifting soul都已经开始放了
 
 外传的两位淋毒雨比普通人淋雨都轻松的表现，不知道有啥是不是免疫体质（
 
+
+*****
+
+####  charlespfan  
+##### 3855#       发表于 2024-2-16 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975453&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-16 22:41</a>
+外传的两位淋毒雨比普通人淋雨都轻松的表现，不知道有啥是不是免疫体质（ ...</blockquote>
+【SYNDUALITY 科学讲座 第9话『什么是Rain Tight』【宿風个人汉化】-哔哩哔哩】 https://www.bilibili.com/video/BV1z34y1T7xx
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

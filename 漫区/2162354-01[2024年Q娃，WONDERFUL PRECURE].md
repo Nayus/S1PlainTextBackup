@@ -600,3 +600,14 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 你也会说具体情况具体分析，q娃自然不缺广 ...</blockquote>
 我翻了下也没人用这个可能性来概括整个系列啊你急什么，他说的是Q娃系列一直有卖百合，又没说Q娃系列每一部都在卖百合，你也可以说Q娃系列一直在卖bg，即使法q星q热带本篇一点bg都没有但确实很多部Q娃都有在卖笔记，所以我觉得也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  脚底心，洗则白  
+##### 962#       发表于 2024-2-16 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974264&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-2-16 20:31</a>
+比起没接触过的“偶像”，更喜欢身边的人是什么很罕见的事情吗？
+没否认=有可能，很会偷换概念啊，可以在 ...</blockquote>
+那个……可以被当做百合与是百合作品并不等同，这点咱是能分清楚的。Q娃是持续二十年都有在卖百合也就在私下YY。宣告胜利这事不能做，咱没有这个权力，任何人也不应该有。
+

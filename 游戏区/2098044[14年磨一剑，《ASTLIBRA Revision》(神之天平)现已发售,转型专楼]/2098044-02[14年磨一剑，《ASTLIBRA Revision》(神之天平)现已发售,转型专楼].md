@@ -1086,3 +1086,11 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 最终送一个改造图，让11层变成随机的场景</blockquote>
 感谢 那还好 要是运气好打个一回就能凑齐了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菟原手兒奈  
+##### 3953#       发表于 2024-2-16 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">全成就了，刷的还是挺开心的
+

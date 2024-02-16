@@ -3938,3 +3938,11 @@ GaaS嘛，都是先砍内容然后慢慢补。
 
 希望后期能出一个缩短战略武器冷却的强化，狠狠的炸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 427#       发表于 2024-2-16 12:39
+
+稀有样本怎么刷比较好~有推荐的任务类型吗？每次都要扫图效率太低了
+

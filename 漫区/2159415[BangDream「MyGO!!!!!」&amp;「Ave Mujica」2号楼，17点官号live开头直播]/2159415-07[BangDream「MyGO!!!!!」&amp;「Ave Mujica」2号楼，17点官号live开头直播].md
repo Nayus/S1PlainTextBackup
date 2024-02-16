@@ -22808,3 +22808,13 @@ mujica1单的特典图出了吗？
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  爱丁堡official  
+##### 12786#       发表于 2024-2-16 12:34
+
+今天是烤羊结束又回到滑坡独角兽了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

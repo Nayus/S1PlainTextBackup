@@ -517,3 +517,11 @@ Caliburn原本是儀式用劍。若將其用作武器，
 
 因为投影复制筋力平A就打得动，这时候就可以拿瞬间多段输出偷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 49#       发表于 2024-2-16 18:32
+
+伊莉雅这说的不是废话，军刀和咖喱棒早被蘑菇吹上天了，神造兵装全力一击可是秒杀游星尖兵的，给B叔120条命都接不下来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

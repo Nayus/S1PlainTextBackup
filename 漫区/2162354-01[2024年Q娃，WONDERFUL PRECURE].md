@@ -439,3 +439,22 @@ u1s1，炎上的小友cp厨卜是影响不到霓虹的天朝小友嘛
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  帝下室の年糕  
+##### 949#       发表于 2024-2-16 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973267&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-2-16 18:20</a>
+按你的认知，Q娃才真叫没卖百合，官方可从来没有承认过女性间恋爱感情的可能，最多是如同家人一般感情的 ...</blockquote>
+你逻辑有问题吧，可能性这个东西只要没被否定就一直存在，换句话说，都承认了那就不叫可能性了，比如组曲小说直接明确了奏太太比起王子更喜欢响，这就是可能性转化为女同的结果了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 950#       发表于 2024-2-16 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973283&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-2-16 18:22</a>
+ 关键是没必要一个题材内哪些部分不必要不讨喜会随着观众口味逐渐被优化掉 ...</blockquote>
+所以你的意思是战斗/格斗是题材中不必要不讨喜已经在逐渐被优化掉的部分吗？
+

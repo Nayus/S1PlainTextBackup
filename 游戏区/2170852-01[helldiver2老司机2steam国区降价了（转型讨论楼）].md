@@ -3812,3 +3812,19 @@ B站有主播发了难9保卫。炮兵营蚌埠住了
 
 看了下主播打难2撤退科学家，这怪物设置绝对有问题吧，机器人空降全程不断的
 
+
+*****
+
+####  我不是夏承凛  
+##### 417#       发表于 2024-2-16 10:34
+
+PATCH 01.000.007(PC &amp; PS5)
+
+For this patch, our area of focus is
+
+Defend Events - updated content for major orders
+
+🔧 Fixes
+
+Defend Events have been fixed and received an update
+

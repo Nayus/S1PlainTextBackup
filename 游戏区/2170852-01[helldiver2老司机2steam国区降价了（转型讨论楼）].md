@@ -4686,3 +4686,22 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 单兵武器最好打吐酸泰坦的是磁轨炮吗
 
+
+*****
+
+####  2VYBGp94  
+##### 497#       发表于 2024-2-17 05:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977083&amp;ptid=2170852" target="_blank">ssd 发表于 2024-2-17 04:08</a>
+最新的任务 至少在8场对抗机器人的保卫战中获胜 怎么算完成一场？</blockquote>
+建议不做，一万两千五普通任务刷刷就有
+
+*****
+
+####  2VYBGp94  
+##### 498#       发表于 2024-2-17 05:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977131&amp;ptid=2170852" target="_blank">桥洞底下盖小被 发表于 2024-2-17 04:58</a>
+单兵武器最好打吐酸泰坦的是磁轨炮吗</blockquote>
+飞矛也可以单兵，装弹不慢
+

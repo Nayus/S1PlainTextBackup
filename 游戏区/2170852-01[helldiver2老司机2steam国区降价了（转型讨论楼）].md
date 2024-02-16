@@ -4415,3 +4415,13 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Gmlazy  
+##### 470#       发表于 2024-2-16 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">机器人高难难度也比虫子高多了吧,虫子一时打不过还能玩二人转;
+
+这机器人是一点面子都不给,什么绝地老司机二人转,全给你轰了看你还转不转.
+

@@ -1131,3 +1131,13 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Nihlathak  
+##### 3958#       发表于 2024-2-16 23:25
+
+DLC怎么提升属性来着？升级不加？
+
+—— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

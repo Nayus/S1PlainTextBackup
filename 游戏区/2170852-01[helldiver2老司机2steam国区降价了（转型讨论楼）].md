@@ -3872,3 +3872,13 @@ Defend Events have been fixed and received an update
 
 所以这作不让重复带战略装备不知道怎么想的，玩法单一导致玩家强度跟不上，玩家强度跟不上又进一步导致玩法单一（只能跑跑跑），直接陷入恶性循环。初代先不说武器装备多得多，我地狱潜兵会有火力不足这种说法？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hlz1239  
+##### 421#       发表于 2024-2-16 11:42
+
+这游戏已经25万steam了，后劲很足啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -22736,3 +22736,13 @@ mujica1单的特典图出了吗？
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  novalli  
+##### 12780#       发表于 2024-2-16 09:05
+
+刚搜了一下Craft Egg的新闻，发现一个1月底的新闻，说Craft Egg将不再是独立公司，而是成为CyberAgent（Cygames母公司）旗下的事业群，4月合并。[https://gamebiz.jp/news/381113](https://gamebiz.jp/news/381113)
+
+呃，所以说这其实是Cy的业务调整导致Bushiroad受到影响，结果两边没交接好？难不成Craft Egg是被强行拆散的？
+

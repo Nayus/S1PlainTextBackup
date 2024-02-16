@@ -963,3 +963,14 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 经验条上那个紫色的条是干啥用的？
 
+
+*****
+
+####  christiny  
+##### 3941#       发表于 2024-2-16 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63969260&amp;ptid=2098044" target="_blank">syndrome2032 发表于 2024-2-16 08:15</a>
+
+经验条上那个紫色的条是干啥用的？</blockquote>
+职业技能槽，满了可以放职业技能。
+

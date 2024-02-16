@@ -22710,3 +22710,29 @@ mujica1单的特典图出了吗？
 好像就是楼上那个意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/7f848bc1d0c344c2fe8cb2eba2f3a6ba/CMP_20240216042734331.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 12778#       发表于 2024-2-16 08:36
+
+邦多利tv#205 邦邦前辈在后辈面前也太放的开了，从预告开始就没绷住。
+邦多利TV原来是这种节目啊.jpg
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  nebulanoby  
+##### 12779#       发表于 2024-2-16 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968852&amp;ptid=2159415" target="_blank">矢吹奈子 发表于 2024-2-16 03:18</a>
+游戏开发公司工艺蛋解散了，后续开发运营给了武士道，武士道好像没整明白游戏架构，日服新活动没剧情了
+
+ ...</blockquote>
+这个旧闻了，蛋定
+
+等武士道再整活再说吧，蛋跑路这事之前还以为是武士道惊世智慧，现在看来是蛋那边出了问题交接得太赶了，武士道这边没有太多奇怪想法的话给点时间应该可以稳住
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

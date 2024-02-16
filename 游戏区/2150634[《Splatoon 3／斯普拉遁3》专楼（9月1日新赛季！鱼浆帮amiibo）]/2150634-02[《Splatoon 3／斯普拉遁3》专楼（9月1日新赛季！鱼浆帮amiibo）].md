@@ -15052,3 +15052,11 @@ kotaji毕竟是最强绿双使，现在绿双也很强势</blockquote>
 
 两次横岗之间隔了25把<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ryuuseigun  
+##### 2972#       发表于 2024-2-17 03:33
+
+停止更新前能给我把大润地图和大润工做成随机工一样的常驻或者额外模式我就谢天谢地了
+

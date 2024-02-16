@@ -1450,3 +1450,12 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 19581#       发表于 2024-2-16 19:55
+
+序章，意味着每次一轮巡演完了就有这种类型的生放了吗（或者fmt放后续）
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">快整点这种的挤掉无聊的读信吧，这回就挺少的，一直不明白反正都是特挑的直播读录播读有啥区别呢
+

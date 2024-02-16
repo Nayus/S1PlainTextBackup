@@ -23378,3 +23378,14 @@ https://weibo.com/5318188745/5001485879084367
 
 你楼是永远的孝祥楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 12845#       发表于 2024-2-16 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973435&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-2-16 18:44</a>
+
+楼友老想着换人干嘛羊只是摆了点，2.5次元企划一般没到无可救药的地步不会换人的 ...</blockquote>
+想換人的一直都是go粉，希望自己樂隊更好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

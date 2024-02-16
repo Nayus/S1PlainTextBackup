@@ -548,3 +548,16 @@ ai图进化不是还挺快的
 
 —— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  无面  
+##### 59#       发表于 2024-2-17 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973645&amp;ptid=2171936" target="_blank">thisism 发表于 2024-2-16 19:15</a>
+
+早呢。背景还在扭动呢。
+
+ai画图之前就说碉堡，现在呢？还是一眼ai图</blockquote>
+早啥啊，你看看22年1月的ai图，小圆。再看看2年后的mj6。这进步比游戏引擎快多了。你知道大家为啥震惊吗？23年的时候，大家还在追捧runway这样的独角兽。结果，半年就被openai干死了。相当于大家还在惊叹ue3的光影，结果半年后人家直接推出了ue5,还告诉你，其实半年前我们就开发完了。网上有runway和这个相同prompt的对比，碾压。如果没有法律问题的话，两年时间，我估计人们很难分辨刻意伪造的ai短视频了
+

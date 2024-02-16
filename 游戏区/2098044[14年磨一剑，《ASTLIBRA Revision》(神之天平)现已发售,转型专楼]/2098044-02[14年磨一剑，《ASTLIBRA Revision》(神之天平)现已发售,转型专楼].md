@@ -1156,3 +1156,11 @@ DLC怎么提升属性来着？升级不加？
 
 等级反正斗技场默认10级，你可以理解成迷宫带全套加成也就从1级练到10级。
 
+
+*****
+
+####  Ivent  
+##### 3960#       发表于 2024-2-17 00:30
+
+问一下最后一个风格怎么获得 全成就就差这个了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

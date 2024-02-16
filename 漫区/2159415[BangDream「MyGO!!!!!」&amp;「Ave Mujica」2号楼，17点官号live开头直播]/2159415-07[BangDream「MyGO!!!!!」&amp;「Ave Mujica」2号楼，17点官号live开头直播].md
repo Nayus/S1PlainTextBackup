@@ -23507,3 +23507,22 @@ https://weibo.com/5318188745/5001485879084367
 
 本楼有人去现地么？
 
+
+*****
+
+####  蒜苗  
+##### 12858#       发表于 2024-2-17 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974401&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-16 20:47</a>
+唱烂嗓子又不止羊，社长，i8，樱小姐都伤得严重，也就天音年轻还受得了，羊心不在邦也不怪她，人各有志，羊 ...</blockquote>
+wsd血汗工厂这么坑的吗？没有声乐老师教发音吗？
+
+*****
+
+####  基神的强袭自由  
+##### 12859#       发表于 2024-2-17 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974401&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-16 20:47</a>
+ 唱烂嗓子又不止羊，社长，i8，樱小姐都伤得严重，也就天音年轻还受得了，羊心不在邦也不怪她，人各有志，羊 ...</blockquote>
+原来是mggm打的有问题<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

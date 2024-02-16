@@ -623,3 +623,29 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 
 倒不如说，正统的bg剧情才是常见的，18代里有大半（12/18）都有恋爱剧情。（贴吧“历代光之美少女感情进展梯度排行”一贴的数据）
 
+
+*****
+
+####  pokemon最爱  
+##### 964#       发表于 2024-2-17 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976276&amp;ptid=2162354" target="_blank">bilibilius 发表于 2024-2-17 00:05</a>
+
+首先需要确定的一点是，“百合”一词自其诞生到现在，就是指代“女同性恋”的。在这个角度来说，Q娃系列不 ...</blockquote>
+难道不是所谓的轻百合其实才是百合这个词的原始定义用于区分硬核姛的GL（蕾丝）吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是后来含义泛化了，事到如今就跟魔法少女一样其实没有个明确的公认定义了。
+
+正统BG在Q娃里常见不假，但Q娃磕CP的主流还是百合CP为主，最典型的，罗武哥CP很明显是罗刹党比罗辅党人气高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 965#       发表于 2024-2-17 00:32
+
+话说回来，我觉得Precure的问题还是前面说过的那个，在幼女向的圈子里呆的太久了，思维固化了
+
+现在的Staff也好Cast也好，动不动就是从小看着长大的系列粉丝，作画班和声优也就罢了，到P和SD和系构如果也是这种状态，那对于整个系列来说其实就是慢性死亡
+
+这点本家那两个SHT的前辈IP也好，隔壁圆谷日升的长篇IP也罢，都有过血淋淋的历史
+
+但是你要说怎么解决？没有亏成狗几次怕是没办法的
+

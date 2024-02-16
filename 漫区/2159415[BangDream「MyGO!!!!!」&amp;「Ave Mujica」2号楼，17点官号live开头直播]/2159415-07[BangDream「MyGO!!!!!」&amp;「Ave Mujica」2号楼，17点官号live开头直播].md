@@ -23151,3 +23151,35 @@ mujica1单的特典图出了吗？
 
 就只能說反正年輕慢慢來，運氣好能接到大爆角色知名度就有了
 
+
+*****
+
+####  凡人  
+##### 12822#       发表于 2024-2-16 16:44
+
+真的麻烦吗？我怎么感觉🐑日后对麦狗会上多少心和独角兽有没有切割一样都是一目了然的事。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12823#       发表于 2024-2-16 16:45
+
+我一直是米澤的肉體廚呀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/16/164516phb8hiz4o8aqi1cy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2138.jpeg</strong> (463.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-16 16:45 上传
+
+[https://twitter.com/akaney_banu/status/1758411654818336777](https://twitter.com/akaney_banu/status/1758411654818336777)
+
+*****
+
+####  NODY  
+##### 12824#       发表于 2024-2-16 16:46
+
+所以羊小姐什么时候好聚好散去追自己的声优梦，虽然老有gachi说换人会毁了这个企划，但偶像大师换人萝换人两次虹咲换人不都活得好好的蒸蒸日上吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

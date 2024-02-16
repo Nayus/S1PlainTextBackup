@@ -129,3 +129,45 @@ dragon是形象为中国龙或西方龙的生物的统一副类别
 饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
 但是饺子从袁枚那会儿就已经叫dumpling了……想改不容易啊
 
+
+*****
+
+####  Hydro  
+##### 222#       发表于 2024-2-17 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976622&amp;ptid=2171337" target="_blank">manysun 发表于 2024-2-17 00:51</a>
+
+有点好奇，万智牌里面的naga和dragon会有联动效应吗？因为西方人也一度把印度的naga翻译成dragon，直到现 ...</blockquote>
+娜迦副类别的绝对数量很少，查了一下全系列只有40张，而且是直到14年才开始出现的，所以所有的娜迦在万智牌里都是正常的蛇相关的形象
+
+其实不少生理特性可以归为娜迦的生物的副类别只是蛇+XXX，但娜迦和蛇的待遇都是普通生物级别的（都是通用卡，跟“鸟”类别类似，所以没有部族联动或与其他生物类别的联动等待遇）
+
+其实阿芒凯（埃及）和鞑契（龙与部落）会出现娜迦也没什么道理，可能只是因为强调一下是更强的蛇就被归为娜迦了
+
+一些在阿芒凯环境出现的"娜迦"
+
+<img src="https://img.saraba1st.com/forum/202402/17/015744mnvqnrylt9tgygoz.png" referrerpolicy="no-referrer">
+
+<strong>d8e82e3e-71bf-41f6-a6d6-02c2cd9a000b.png</strong> (286.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 01:57 上传
+
+一些非常奇怪的"蛇"
+
+<img src="https://img.saraba1st.com/forum/202402/17/020337tmws24v3m2vdt8u2.png" referrerpolicy="no-referrer">
+
+<strong>fc2544ce-2e7c-4832-8ea7-73bcdabe7208.png</strong> (302 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 02:03 上传
+
+万智牌卡查，可以看到更多奇怪的"蛇"生物
+[https://scryfall.com/search?as=g ... 29&amp;unique=cards](https://scryfall.com/search?as=grid&amp;dir=desc&amp;order=released&amp;page=2&amp;q=type%3Asnake+%28game%3Apaper%29&amp;unique=cards)
+
+其实monk, cleric, shaman, druid之类的真要说的话问题也很大，因为本质也是从各个体系里剥离context拿过来的，只不过除了第一个其他的都被艹翻了
+
+是的，万智牌的"多元宇宙"就是个流行文化符号大杂烩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

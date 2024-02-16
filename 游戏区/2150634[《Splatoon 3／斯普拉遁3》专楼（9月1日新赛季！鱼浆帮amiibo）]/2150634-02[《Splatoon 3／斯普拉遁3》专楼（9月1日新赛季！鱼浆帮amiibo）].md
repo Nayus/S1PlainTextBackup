@@ -15002,3 +15002,14 @@ kotaji毕竟是最强绿双使，现在绿双也很强势</blockquote>
 
 打x赛碰到个2代+3代一共3000+小时的老玩家，开局被对面扔进一个大蛤蜊后就挂机摆烂按赞，还把我们家里的大蛤蜊扔下悬崖，太恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 2968#       发表于 2024-2-17 02:22
+
+感觉要么是新机出喷3DX，要么就是两年承诺更新完毕之后用第二贴牌再糊弄一年，反正排列组合武器配置又没有啥工作量<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+我不觉得这帮懒狗会放弃喷3这个现成的底子为了新机从头做个喷4出来，除非有非常大的革新。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

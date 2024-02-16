@@ -1201,3 +1201,16 @@ DLC怎么提升属性来着？升级不加？
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  tansapple  
+##### 3965#       发表于 2024-2-17 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976915&amp;ptid=2098044" target="_blank">诸君何弃疗 发表于 2024-2-17 02:05</a>
+
+才发现出了dlc但没上ns，进dlc需要打通本体吗还是新档直接就能进
+
+  -- 来自 能手机投票的 Stage1官 ...</blockquote>
+算是独立游戏，不继承本体的存档。但是本体没通关的话，会被DLC提前剧透一些内容。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -78,3 +78,11 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 
 一直无法安装mihon，原来是不支持我旧平板android7.0的系统<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iceddd  
+##### 169#       发表于 2024-2-17 04:21
+
+为什么我mihon看不见第三方拷贝插件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 仓库也弄了单独插件也下载了 不管是插件列表还是仓库里都看不见
+

@@ -41,3 +41,16 @@ FGOのバレンタインイベントでフフフとなった後にお侍を起�
 
 —— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  UNISONIA  
+##### 1727#       发表于 2024-2-17 03:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976346&amp;ptid=2112855" target="_blank">星之幻想曲 发表于 2024-2-17 00:14</a>
+
+什么意思，不明夜结局加剧情了吗？
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+他说的应该是FGO的联动
+

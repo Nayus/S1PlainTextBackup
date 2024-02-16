@@ -1467,3 +1467,15 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 
 5组的颜色怎么成黄色了？之前不是粉色吗？
 
+
+*****
+
+####  starring  
+##### 19583#       发表于 2024-2-16 21:01
+
+没怎么读信,也没多少看点<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+唯一感受就是🌸从5th唱完喝水歌后整个人都活泼起来
+
+<img src="https://p.sda1.dev/15/5ba26ae714db3ae3f152a81db21398ce/QQ图片20240216205636.png" referrerpolicy="no-referrer">
+

@@ -564,3 +564,14 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 没否认=有可能，很会偷换概念啊，可以在 ...</blockquote>
 是否宣布胜利具体作品具体分析，我只是指出你的逻辑问题，要不你重新定义一下什么是可能性？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 959#       发表于 2024-2-16 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974338&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-2-16 20:39</a>
+ 是否宣布胜利具体作品具体分析，我只是指出你的逻辑问题，要不你重新定义一下什么是可能性？ 另外关于组 ...</blockquote>
+明明在聊谭友定义的百合符不符合q娃，你却纠结起可能性的定义
+你也会说具体情况具体分析，q娃自然不缺广泛含义的百合cp，但“以女性恋上女性为前提的女女关系性”，你认为适合概括整个系列吗？如果你认为是，那就没必要多费口舌了
+

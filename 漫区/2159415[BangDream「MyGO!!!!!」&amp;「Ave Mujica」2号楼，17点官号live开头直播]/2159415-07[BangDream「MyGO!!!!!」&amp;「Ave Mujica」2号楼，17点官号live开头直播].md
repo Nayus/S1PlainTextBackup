@@ -23329,3 +23329,11 @@ https://weibo.com/5318188745/5001485879084367
 
 日本本土不是一点风声没有吗，mygo粉里羊gachi占比很大吧，唉，糊邦。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 12839#         楼主| 发表于 2024-2-16 18:12
+
+除非主动切割不然不会换人的，non和武士道都撕破脸了也没把rinrin换成入江
+

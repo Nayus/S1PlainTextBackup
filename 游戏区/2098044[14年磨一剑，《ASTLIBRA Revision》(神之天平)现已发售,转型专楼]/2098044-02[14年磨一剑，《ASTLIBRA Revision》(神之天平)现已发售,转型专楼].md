@@ -1075,3 +1075,14 @@ dlc游戏流程多长，考虑下是玩完p3r再说还是穿插着玩
 
 —— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Ivent  
+##### 3952#       发表于 2024-2-16 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973164&amp;ptid=2098044" target="_blank">绕指流光 发表于 2024-2-16 17:59</a>
+60
+最终送一个改造图，让11层变成随机的场景</blockquote>
+感谢 那还好 要是运气好打个一回就能凑齐了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

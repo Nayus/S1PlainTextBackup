@@ -377,3 +377,33 @@ u1s1，炎上的小友cp厨卜是影响不到霓虹的天朝小友嘛
 
 那百合又是什么呢？在咱的认知里百合是以女性恋上女性的可能为前提的女女关系性总结。以这个认知去看，Q娃系列一直有在卖百合。
 
+
+*****
+
+####  粉儿alice  
+##### 944#       发表于 2024-2-16 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972984&amp;ptid=2162354" target="_blank">聖あげは 发表于 2024-2-16 17:30</a>
+在幼女片玩党争是什么下场，心跳和茶几的财报已经很明显了
+
+我们并不需要在面对幼女的片子里继续玩这种狗 ...</blockquote>
+首先请柴田有多远滚多远
+还有去年财报数据出了 
+而然q娃卖怎么样已经没人关心了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer"> 全部在关心战队来打
+
+*****
+
+####  pokemon最爱  
+##### 945#       发表于 2024-2-16 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973048&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-16 17:41</a>
+
+但是追根溯源，藤P是什么？基利亚又是什么？藤P和基同学是会被观众嫌弃讨厌的角色吗？
+
+或者说直白一点，黑 ...</blockquote>
+基里亚作为后代光堕Q娃模板原型的角色还好（然而满心查无此人），但藤P作为表现一哥少女心并迫害一哥用的工具人还是会被观众讨厌的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+黑白肯定不会官方定义为百合，但初代主推的关系肯定是黑白二人间的关系，15周年以后以ASM为首的各种企划等对黑白CP的宣传根源是初代42话的名场景（ASF里也出现过的那个）以及雪空对黑白关系诠释的延长线。
+
+我觉得初代肉搏强那才是后续客串（特别是ASNS以后）带来的错误的历史记忆——黑白本篇基本上只有中期拿到手环后戴上手环才比较秀，其他大部分时候肉搏纯负责吃瘪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

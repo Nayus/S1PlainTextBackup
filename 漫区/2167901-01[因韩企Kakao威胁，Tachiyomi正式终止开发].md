@@ -86,3 +86,15 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 
 为什么我mihon看不见第三方拷贝插件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 仓库也弄了单独插件也下载了 不管是插件列表还是仓库里都看不见
 
+
+*****
+
+####  ☆炫  
+##### 170#       发表于 2024-2-17 05:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63968439&amp;ptid=2167901" target="_blank">septer 发表于 2024-2-16 00:55</a>
+一直无法安装mihon，原来是不支持我旧平板android7.0的系统</blockquote>
+自从mihon出来取代tachiyomi，就陷入换平板的焦虑…小尺寸的观漫设备几乎没得选，二手又都是传家宝，纠结
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

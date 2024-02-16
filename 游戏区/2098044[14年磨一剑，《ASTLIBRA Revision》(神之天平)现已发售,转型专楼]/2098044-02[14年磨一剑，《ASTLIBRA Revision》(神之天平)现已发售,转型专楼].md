@@ -1141,3 +1141,18 @@ DLC怎么提升属性来着？升级不加？
 
 —— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  adretyu67.  
+##### 3959#       发表于 2024-2-17 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975829&amp;ptid=2098044" target="_blank">Nihlathak 发表于 2024-2-16 23:25</a>
+
+DLC怎么提升属性来着？升级不加？
+
+—— 来自 samsung SM-S916U, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+职业补正，成长系统，开箱子抽彩票拿晶石调整。吃卡
+
+等级反正斗技场默认10级，你可以理解成迷宫带全套加成也就从1级练到10级。
+

@@ -1523,3 +1523,13 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 [https://twitter.com/KISAYU_/status/1758511143465984371](https://twitter.com/KISAYU_/status/1758511143465984371)
 <img src="https://p.sda1.dev/15/adfe6ef11139755ce2987340ffb345fc/20240216_235549.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19588#       发表于 2024-2-17 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974626&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-2-16 21:14</a>
+甚至有白敬亭x铃原希实的MAD</blockquote>
+有点抽象<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">勉强算好的地方是给星引流，黑流也是流量
+

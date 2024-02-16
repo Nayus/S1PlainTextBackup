@@ -368,3 +368,20 @@ Elira clique的那个rrat太有说服力了
 
 虹en版的狐皇的大手 狐皇的水军
 
+
+*****
+
+####  格林卡罗尔  
+##### 125#       发表于 2024-2-16 09:49
+
+不要这样啊，elira是坏女人，是en头头什么的我不想听到<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 126#       发表于 2024-2-16 09:50
+
+话说回来是不是该考虑换新楼了，好不容易维护该离开这诅咒之地了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

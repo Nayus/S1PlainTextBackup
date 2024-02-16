@@ -205,3 +205,20 @@ dragon是形象为中国龙或西方龙的生物的统一副类别
 
 英文里的Dragon是个大类，很容易说服外国人Chinese Dragon=Loong，但是在分类上还是Dragon这个大类下面。
 
+
+*****
+
+####  芦-中-人  
+##### 226#       发表于 2024-2-17 05:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975811&amp;ptid=2171337" target="_blank">蒹葭公子 发表于 2024-2-16 23:23</a>
+我这个跑团人看这个贴过于难绷……从神话上来说，古早的西方龙比如撒旦尼德霍格法芙娜不都是长条形的？从词 ...</blockquote>
+dragon是可以长条，龙也可以短条，这点许慎也是支持的，
+但你后半截是怎么一转认为龙是dragon的子分类的，就不能dragon是龙的子分类？
+实际上是平行分类，只是有交集而已。数学上不能因为有交集就取子集吧。
+
+顺别借你这里说下打趣的看法:
+dragon意译是蛇怪蜥怪物，是骇人之物，是要关进宛平南路非正常虫类研究中心的。而龙是万物鳞长，怎么说也得叫蛇皇蜥帝才对，小同志你把伟大光明正确的鳞中央龙大人和嘿社会小混混相提并论是不正确滴<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">。
+假如有一天冒出来一个爬行类国家，我们肯定是和龙王爷的合法政府建交，坚决支持他们打击dragon黑社会走私偷盗非法集团的一切行动的。
+dragon译为多拉贡蛮好的，能让人联想到德古拉伯爵。冷知识，两个是同源词，是精怪。
+

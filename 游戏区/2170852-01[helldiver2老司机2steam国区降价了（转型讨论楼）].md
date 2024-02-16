@@ -4319,3 +4319,11 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 [https://steamcommunity.com/app/553850/eventcomments/](https://steamcommunity.com/app/553850/eventcomments/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关注每天最新发布的补丁评论，没有刷闪退就可以玩了
 
+
+*****
+
+####  Gmlazy  
+##### 461#       发表于 2024-2-16 22:12
+
+现在经常会卡在任务结算回驱逐舰前的那一段黑幕加载....开了加速器也不行。
+

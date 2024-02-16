@@ -23489,3 +23489,11 @@ https://weibo.com/5318188745/5001485879084367
 
 还有的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 12856#       发表于 2024-2-16 22:09
+
+羊唯一的一番原来还是叔叔投了钱出品：阿鲁斯的巨兽制作委员会（DMM.com、bilibili、网易游戏、SENTAI、MBS、Bit grooove promotion）
+

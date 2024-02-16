@@ -22947,3 +22947,31 @@ mujica1单的特典图出了吗？
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nebulanoby  
+##### 12801#       发表于 2024-2-16 15:30
+
+感觉这两年可能真的是动物朋友的主推期，如果她确定了要专注配音路线的话那怎么安排给🐶的时间就成了很麻烦的问题了，不是每个人都是鼓跌那样的超人的
+
+不过她在🐶摆烂是真的对不起像鼓子蜜柑这种对狗或者说这个企划尽心尽力的人
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  harukage  
+##### 12802#       发表于 2024-2-16 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971929&amp;ptid=2159415" target="_blank">可爱美味祥子 发表于 2024-2-16 14:48</a>
+羊黑确实说不了话，B站live翻车视频在不断减少中</blockquote>
+我说怎么想回顾一下新春会的小羊圣经却找不到切片视频了
+
+*****
+
+####  DarthAka  
+##### 12803#       发表于 2024-2-16 15:42
+
+说00后肯定是说im松冈美里或者81P永濑安奈这种，林小姐和高尾这种疫情前就出道的，还拿出来比就多少有点跌份了……5月播的片子，应该是配完了
+

@@ -4050,3 +4050,17 @@ GaaS嘛，都是先砍内容然后慢慢补。
 
 原来如此，没关系了，喷子只是解锁最后一把武器的垫脚石。
 
+
+*****
+
+####  jy000129  
+##### 438#       发表于 2024-2-16 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972053&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-16 15:08</a>
+HE高爆，AT穿甲弹，就问你有什么错
+
+重點整理(隱藏屬性)：</blockquote>
+艹，什么鸡掰翻译，啥都没翻
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

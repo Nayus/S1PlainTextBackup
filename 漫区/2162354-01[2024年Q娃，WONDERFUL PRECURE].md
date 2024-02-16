@@ -76,3 +76,28 @@
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  王留美  
+##### 916#       发表于 2024-2-16 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972072&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-16 15:10</a>
+ 所以你看，诚司其实是我上面提到的两种还要惨的那一档，人是个好小伙子，观众接受，存在感还行，但是官方盖 ...</blockquote>
+可是除了魔法组外官方又盖章哪对百合了呢？
+一样样的情况凭什么bg这边就是不尽人意百合那边就是大受好评？
+
+*****
+
+####  pokemon最爱  
+##### 917#       发表于 2024-2-16 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972072&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-16 15:10</a>
+
+所以你看，诚司其实是我上面提到的两种还要惨的那一档，人是个好小伙子，观众接受，存在感还行，但是官方盖 ...</blockquote>
+根本上来说我觉得还是你Q娃整体就和BG描写天生犯冲吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+毕竟你Q娃故事的原点是什么，是一哥一嫂两个性格爱好完全没有交集形同陌路的小女孩因为一起成为传说中的战士Q娃而相知相识成为无可替代的挚友的故事，是描写女性英雄而非男性英雄的故事，男性角色在作品中的定位本来就很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而优秀的CP塑造前提就是CP两边的角色都有足够优秀的塑造。
+
+当年战队真的是站在雷区里蹦迪结果愣是运气好没踩到雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

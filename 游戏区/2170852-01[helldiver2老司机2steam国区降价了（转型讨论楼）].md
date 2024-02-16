@@ -4571,3 +4571,23 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我操 接连打下来好多 细节做的真的是蛮好的
 
+
+*****
+
+####  BadYanL  
+##### 485#       发表于 2024-2-17 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976844&amp;ptid=2170852" target="_blank">李喜睡 发表于 2024-2-17 01:36</a>
+
+现在能匹到但是进不了是我网的问题吗</blockquote>
+官方说匹配系统发现问题，目前不能用。
+
+只能加朋友局
+
+*****
+
+####  smdzh2  
+##### 486#       发表于 2024-2-17 01:56
+
+梦回2/8晚上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -23439,3 +23439,23 @@ https://weibo.com/5318188745/5001485879084367
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Arrogate  
+##### 12852#       发表于 2024-2-16 21:03
+
+现在强推你是资源期，什么叫硬上，不想要资源可以给需要的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊知耻而后勇努力练歌那皆大欢喜，要是摆烂那也没办法了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+

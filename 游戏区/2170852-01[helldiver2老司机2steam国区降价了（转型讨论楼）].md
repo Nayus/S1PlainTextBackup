@@ -4278,3 +4278,13 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 
 不好说这游戏和S1谁的服务器更屎一点。
 
+
+*****
+
+####  旋转吧，米糕  
+##### 457#       发表于 2024-2-16 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973887&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-2-16 19:48</a>
+就那个肚子大会喷毒液的大&amp;# ...</blockquote>
+如果是大屁股那个我们发打了两把杀了一堆，结算一个都没有<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

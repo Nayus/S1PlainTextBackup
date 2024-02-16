@@ -22915,3 +22915,14 @@ mujica1单的特典图出了吗？
 
 今天公布🐑出演这个角色，5月10号上映。中间mygo在3月有2场live，4月3场live，时间挺紧的
 
+
+*****
+
+####  氷川日菜  
+##### 12798#       发表于 2024-2-16 15:14
+
+昨天回放live都只敢放远景不敢近景，这是可以说的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  我记得上次母鸡卡回回放的都是近景吧
+
+不过远景回放看到了猫猫跳，可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/8b41b3d54fce21c7fbf3ee44de5808eb/GIF 2024-2-16 15-11-20.gif" referrerpolicy="no-referrer">
+

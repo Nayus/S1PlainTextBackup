@@ -4010,3 +4010,11 @@ GaaS嘛，都是先砍内容然后慢慢补。
 还有没有武器平衡了？ ...</blockquote>
 虽然面板没写，但好像能穿中甲。
 
+
+*****
+
+####  kalavinka  
+##### 435#         楼主| 发表于 2024-2-16 14:49
+
+好像有翻译问题 很多特效翻译中文没加上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

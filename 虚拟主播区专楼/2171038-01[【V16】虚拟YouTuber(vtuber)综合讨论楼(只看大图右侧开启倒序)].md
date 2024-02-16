@@ -400,3 +400,14 @@ Elira clique的那个rrat太有说服力了
 —— 来自 Xiaomi M2012K11 ...</blockquote>
 现在是什么症状来着，我这边看怎么能正常翻页+顶起了
 
+
+*****
+
+####  格林卡罗尔  
+##### 128#       发表于 2024-2-16 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63970742&amp;ptid=2171038" target="_blank">tiro_finale 发表于 2024-2-16 11:56</a>
+
+现在是什么症状来着，我这边看怎么能正常翻页+顶起了</blockquote>
+外面看不到里面是几页，也就无法直接跳转到最新一页
+

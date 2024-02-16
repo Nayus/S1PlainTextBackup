@@ -243,3 +243,13 @@ syl 之前猜会给浮
 
 脑叶安吉拉，一切开始的地方，谁能拒绝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 550#       发表于 2024-2-16 20:44
+
+安吉拉好像签到14天免费送，商店提前买的话应该会有赠品？
+
+如果商店购买能送点抽卡券我就认了，安宝可是少数能让我心甘情愿爆金币的呀。
+

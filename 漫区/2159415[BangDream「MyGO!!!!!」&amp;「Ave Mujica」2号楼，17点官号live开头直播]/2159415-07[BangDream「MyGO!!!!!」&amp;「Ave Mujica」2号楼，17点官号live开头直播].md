@@ -23422,3 +23422,20 @@ https://weibo.com/5318188745/5001485879084367
 
 我们小灯有羊宫的防沉迷系统，你们其他角色有没有这样的系统呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12850#       发表于 2024-2-16 20:46
+
+或许剧场版总集篇就是武士道为了挽留被live吓跑的ylgo的最后挣扎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 12851#       发表于 2024-2-16 20:47
+
+唱烂嗓子又不止羊，社长，i8，樱小姐都伤得严重，也就天音年轻还受得了，羊心不在邦也不怪她，人各有志，羊唱不了你武士道就不要硬上啊，这巡回就翻车，观众也难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

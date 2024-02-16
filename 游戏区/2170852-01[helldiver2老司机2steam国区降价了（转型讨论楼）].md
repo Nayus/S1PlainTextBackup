@@ -4345,3 +4345,23 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 这游戏是不是对大小核cpu的兼容性也有问题？
 今天更新前后和朋友联机就我闪退特别频繁<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 464#       发表于 2024-2-16 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975302&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-2-16 22:25</a>
+
+超级样本没见过一次
+
+—— 来自 S1Fun</blockquote>
+B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水
+
+*****
+
+####  kalavinka  
+##### 465#         楼主| 发表于 2024-2-16 22:40
+
+哇这难5的机器人救援就这么上强度的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

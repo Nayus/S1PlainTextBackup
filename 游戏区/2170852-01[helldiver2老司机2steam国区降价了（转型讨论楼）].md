@@ -3928,3 +3928,13 @@ GaaS嘛，都是先砍内容然后慢慢补。
 火力不行一是装备空投都没直接的火力升级，二是轨道 ...</blockquote>
 踏马的一波游走火力网洗据点运气拉满炸死两三个站街的属实给我气笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 426#       发表于 2024-2-16 12:24
+
+主要是战略武器冷却时间变长了，1代筒子阵，地雷阵，无限招飞机的大场面还是很有意思的。
+
+希望后期能出一个缩短战略武器冷却的强化，狠狠的炸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -118,3 +118,14 @@ dragon是形象为中国龙或西方龙的生物的统一副类别
 
 那迦王的女儿，龙女被译作 Longnü 或者 dragon girl。大家心心念的音译率先被龙女实现了，即使龙女本身既不来自中国也不来自西方<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Demi.Albertini  
+##### 221#       发表于 2024-2-17 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63919112&amp;ptid=2171337" target="_blank">mysterysilent 发表于 2024-2-8 23:34</a>
+
+饺子在国外也逐渐推广jiaozi代替dumpling，正本溯源是好事，希望chunjie能代替现在乱七八糟的翻译 ...</blockquote>
+但是饺子从袁枚那会儿就已经叫dumpling了……想改不容易啊
+

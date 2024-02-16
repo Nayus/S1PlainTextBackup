@@ -4521,3 +4521,22 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">箭头你的服务器炸了
 
+
+*****
+
+####  旋转吧，米糕  
+##### 481#       发表于 2024-2-17 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976796&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-17 01:23</a>
+这不光是快速匹配的问题，现在根本找不着任何开放的游戏房间，如果没有好友那就只能一个人下任务
+
+—— 来 ...</blockquote>
+我现在变成了要不然匹配几分钟，要不然秒排然后继续进不了大厅<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  李喜睡  
+##### 482#       发表于 2024-2-17 01:36
+
+现在能匹到但是进不了是我网的问题吗
+

@@ -576,3 +576,11 @@ ai画图之前就说碉堡，现在呢？还是一眼ai图</blockquote>
 
 除非今后以魔抗魔，ai识别ai伪造，完美！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Skymoon  
+##### 61#       发表于 2024-2-17 01:38
+
+进步太快了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

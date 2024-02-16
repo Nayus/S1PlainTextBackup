@@ -190,3 +190,18 @@ dragon是形象为中国龙或西方龙的生物的统一副类别
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我个人特别喜欢蠕虫和dargon，蛇和龙的对照
 
+
+*****
+
+####  革萌  
+##### 225#       发表于 2024-2-17 04:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63943142&amp;ptid=2171337" target="_blank">Ryo 发表于 2024-2-11 23:24</a>
+
+我觉得只要跟dragon区分开来就可以了，没必要强求写成拼音long。
+
+英文名称做区分，并不是因为单词的发音问 ...</blockquote>
+范畴定义不清的话很容易区分不开。
+
+英文里的Dragon是个大类，很容易说服外国人Chinese Dragon=Loong，但是在分类上还是Dragon这个大类下面。
+

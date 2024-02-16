@@ -4657,3 +4657,24 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 最新的任务 至少在8场对抗机器人的保卫战中获胜 怎么算完成一场？
 
+
+*****
+
+####  Launce  
+##### 494#       发表于 2024-2-17 04:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977083&amp;ptid=2170852" target="_blank">ssd 发表于 2024-2-17 04:08</a>
+
+最新的任务 至少在8场对抗机器人的保卫战中获胜 怎么算完成一场？</blockquote>
+那是社区任务，防守目标达成就算一场
+
+*****
+
+####  Launce  
+##### 495#       发表于 2024-2-17 04:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977076&amp;ptid=2170852" target="_blank">旋转吧，米糕 发表于 2024-2-17 04:00</a>
+
+屁啦，刚打完一轮难7三连系列任务，坦克黄绿大屁股混潮从头刷到尾……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快速加入了个难7野人房，被坦克从头撵到尾，就是没有黄绿大屁股
+

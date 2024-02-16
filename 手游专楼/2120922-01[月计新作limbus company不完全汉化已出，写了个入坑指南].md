@@ -176,3 +176,51 @@
 
 活动剧情应该是剑契与黑云会之间的帮派争斗，PV里出现了帅气的金笠本笠，被动应该有经典的故土剑术吧。
 
+
+*****
+
+####  Yuzutea  
+##### 546#       发表于 2024-2-16 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下大的来了
+
+YJ估计后续是每赛季都按六个赛季三灯这么出了
+
+syl 之前猜会给浮
+
+没想到是两个三灯啊
+
+*****
+
+####  Jamaisvu  
+##### 547#       发表于 2024-2-16 19:15
+
+<img src="https://img.saraba1st.com/forum/202402/16/191212u49kf522m5tr32k9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240216_190656.jpg</strong> (147.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-16 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202402/16/191219asrqmunrc2apdjsu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240216_190713.jpg</strong> (177.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-16 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202402/16/191220b2fczvaaqafaqalf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240216_190737.jpg</strong> (137.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-16 19:12 上传
+
+默尔索的反击估计能在特殊情况下能变成当身技（类似中唐反击），看着挺炫的，希望条件别太苛刻。
+

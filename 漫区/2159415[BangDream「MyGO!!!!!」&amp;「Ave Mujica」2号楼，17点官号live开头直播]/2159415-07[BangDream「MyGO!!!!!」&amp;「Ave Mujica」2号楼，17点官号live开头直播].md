@@ -22860,3 +22860,26 @@ mujica1单的特典图出了吗？
 
 羊黑说话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 12791#       发表于 2024-2-16 14:26
+
+原作讲偶像文化，希望🐏好好学一下偶像怎么做吧
+
+*****
+
+####  可爱美味祥子  
+##### 12792#       发表于 2024-2-16 14:28
+
+<img src="https://p.sda1.dev/15/44fa31f977ab4db82ad0fa713de36bdd/1000138423.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12793#       发表于 2024-2-16 14:31
+
+活更多了说明更没时间练歌了，看来mygo三次元live暂时是救不回来了，看看到第二季播出前能跑路多少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

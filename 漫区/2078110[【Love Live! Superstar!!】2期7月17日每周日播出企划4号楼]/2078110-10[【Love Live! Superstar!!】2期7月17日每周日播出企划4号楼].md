@@ -1505,3 +1505,21 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 
 唠嗑来了
 
+
+*****
+
+####  Piano-Forest  
+##### 19587#       发表于 2024-2-17 00:02
+
+<img src="https://p.sda1.dev/15/036e8e74788c92190f65daa6c5ddd905/20240216_235445.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/0dcfd16dee1a9afe2bf6a13ae443a8ee/20240216_235450.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/953f1695682eb68e70bca7b18f89c96f/20240216_235457.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/d7199d81ceb35fa70832cebe09607b73/20240216_235501.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/43dd5ed839c0a0baa031d0535c012c17/20240216_235506.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/kousin22/status/1756180749299102023](https://twitter.com/kousin22/status/1756180749299102023)
+<img src="https://p.sda1.dev/15/ad614d2f15ff4e9f3017ea88d159b395/20240216_235529.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/KISAYU_/status/1758511143465984371](https://twitter.com/KISAYU_/status/1758511143465984371)
+<img src="https://p.sda1.dev/15/adfe6ef11139755ce2987340ffb345fc/20240216_235549.jpg" referrerpolicy="no-referrer">
+

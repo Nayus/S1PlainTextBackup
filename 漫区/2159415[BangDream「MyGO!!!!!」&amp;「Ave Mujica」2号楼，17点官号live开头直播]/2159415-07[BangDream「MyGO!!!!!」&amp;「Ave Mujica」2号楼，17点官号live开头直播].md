@@ -23100,3 +23100,13 @@ mujica1单的特典图出了吗？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本根本没有00后这种说法吧
 
+
+*****
+
+####  DarthAka  
+##### 12817#       发表于 2024-2-16 16:19
+
+<blockquote>紫吹兰 发表于 2024-2-16 16:00
+之前推特关注数第一音宝第二大鼓</blockquote>
+林小姐那8万多粉现在还是虹团垫底，林小姐当年要和音宝互换东家就好了，蝶团主唱有樱桃炸弹那个水平当年估计就吵不起来了，艾回也不会让音宝走人
+

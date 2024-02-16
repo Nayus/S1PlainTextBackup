@@ -32,3 +32,74 @@
 
 这也太“文化自信”了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hydro  
+##### 218#       发表于 2024-2-16 23:59
+
+说个别的，万智牌里god这个词真的就是包含希腊神话主题环境（赛洛斯）和古埃及主题环境（阿芒凯）等基于不同文化创作的环境的所有"神性存在"生物的统一的副类别
+
+dragon是形象为中国龙或西方龙的生物的统一副类别
+
+而这两个副类别都是有联动效应的
+
+<img src="https://img.saraba1st.com/forum/202402/16/235047ee666we94z46he9e.jpg" referrerpolicy="no-referrer">
+
+<strong>thb-231-altar-of-the-pantheon.jpg</strong> (167.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-16 23:50 上传
+
+<img src="https://img.saraba1st.com/forum/202402/16/235047h7adb480h4qqhrzq.jpg" referrerpolicy="no-referrer">
+
+<strong>pl24-7-dragon-tempest.jpg</strong> (150.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-16 23:50 上传
+
+要是真改了威失智这还有坨屎要铲
+
+不过就威失智能因为政治正确直接删卡这一事实考虑，可能问题也不怎么大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/16/235901bf0vj5qrqq0u030f.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240217_000151.png</strong> (199.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-16 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202402/16/235901pjjva3zm4nnvj4lj.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240217_000159.png</strong> (193.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-16 23:59 上传
+
+*****
+
+####  Hydro  
+##### 219#       发表于 2024-2-17 00:01
+
+补充资料
+
+<img src="https://img.saraba1st.com/forum/202402/17/000116wk592u5u59b99buh.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240217_000327.png</strong> (102.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 00:01 上传
+
+<img src="https://img.saraba1st.com/forum/202402/17/000116nzgxug7ubn7sbn6b.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240217_000412.png</strong> (134.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 00:01 上传
+

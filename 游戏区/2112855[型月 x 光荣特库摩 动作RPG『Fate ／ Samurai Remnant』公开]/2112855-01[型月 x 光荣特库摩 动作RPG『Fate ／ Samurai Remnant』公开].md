@@ -18,3 +18,14 @@ FGOのバレンタインイベントでフフフとなった後にお侍を起�
 
 高尾大夫这头发感觉两天不洗就滂臭了
 
+
+*****
+
+####  毛利提督  
+##### 1725#       发表于 2024-2-16 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63975961&amp;ptid=2112855" target="_blank">桥洞底下盖小被 发表于 2024-2-16 23:35</a>
+
+高尾大夫这头发感觉两天不洗就滂臭了</blockquote>
+所以大小姐那个奇葩刺猬头是因为就算整天戴帽子也可以偷懒不做发型吗（
+

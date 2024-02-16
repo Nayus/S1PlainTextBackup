@@ -308,3 +308,15 @@
 —— 来自 Xiaomi 2304FPN6DC, Android 14 ...</blockquote>
 我那天接了个五宝大姐姐打了下，带上杀狐奥伯龙……还是不稳定，后来想了想为何不给自己rba上黑杯，接个午茶rba，奥宝技能放完还能上个雨神触发rba宝具前置，一宝也能爽刷！
 
+
+*****
+
+####  fengzijiang  
+##### 46174#       发表于 2024-2-17 00:02
+
+花嫁尼禄抽了百抽一张五星没有，非非非<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -449,3 +449,31 @@ nmd怎么给我推这个
 
 还有游戏里卫宫士郎做梦梦到的CG里剑鞘不是石中剑的吗，他投影出来的剑鞘怎么是湖中剑的
 
+
+*****
+
+####  eilot  
+##### 45#       发表于 2024-2-16 17:04
+
+ 本帖最后由 eilot 于 2024-2-16 17:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63964384&amp;ptid=2171748" target="_blank">DARKGRAY 发表于 2024-2-15 08:54</a>
+
+虽然不记得这个新加设定是哪里说的，但EX要手动填魔上A才能打得动就是个大门槛 ...</blockquote>
+找到了，就是SABER LILY的說明
+ <blockquote>Caliburn與Excalibur是不同的聖劍。
+
+Caliburn也就是王權，
+
+為了將亞瑟王培養成一名王的存在。
+
+Caliburn原本是儀式用劍。若將其用作武器，
+
+一旦解放真名，甚至能發揮與Excalibur同規模的威力，
+
+然而其劍身並不能承受阿爾托莉雅的魔力，
+
+想必會崩潰吧。</blockquote>
+但是，就算是同規模威力(由B升到限定A+)，但用令咒的EX才一殺...愛情合體攻擊就7殺...都是初次使用應該沒抗性?
+
+那最後如果士朗學了孔明和高尾大夫，用盡3發令咒當成補魔力手段，能否幫EX充到能7殺的電?
+

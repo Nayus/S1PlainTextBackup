@@ -216,3 +216,52 @@ Q娃这个系列沦落到今天这个德性就是在幼女向圈子里呆太久�
 —— 来自 Xiaomi  ...</blockquote>
 那是因为precure这个词本身没有限定性别<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">东大妈自己消除了precure的性别限定，所以鸟人可以作为男性享有魔法少女编制的待遇
 
+
+*****
+
+####  夕凪ツバサ  
+##### 929#       发表于 2024-2-16 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 930#       发表于 2024-2-16 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972623&amp;ptid=2162354" target="_blank">盐盐盐盐盐 发表于 2024-2-16 16:39</a>
+
+诚司和惠那根本就是全世界除了编剧都希望他俩成吧诚司多好一小伙啊他和q娃谈恋爱随便哪个我都百分百 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看来成田大妈嫌他“不成熟”呗，现在知道蓝神其实COCO模版。这点细思生草
+
+*****
+
+####  pokemon最爱  
+##### 931#       发表于 2024-2-16 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972722&amp;ptid=2162354" target="_blank">月夜凝雪 发表于 2024-2-16 16:53</a>
+
+去年上男Q娃了却完全没有恋爱迹象真就全部都是亲情友情，看看今年的青梅竹马怎么样吧
+
+—— 来自 Xiaomi  ...</blockquote>
+鸟姑且身上还是有公主指过来的很明确的箭头的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过去年噱头大但是实际剧情写的太保守了是真的（追加直球对着俩常驻叫妈的魔法组以及在CP问题上最自由的拥抱组表示这个后辈就是逊啦！）
+
+*****
+
+####  粉儿alice  
+##### 932#       发表于 2024-2-16 17:10
+
+快充访谈我没有看过
+但一直认为相乐诚司就是女版菱川六花 就是柴田用来恶心人搞迫害用的
+
+*****
+
+####  月夜凝雪  
+##### 933#       发表于 2024-2-16 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972823&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-16 17:08</a>
+鸟姑且身上还是有公主指过来的很明确的箭头的不过去年噱头大但是实际剧情写的太保守了是真的（追 ...</blockquote>
+公主这箭头是对着所有人的啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

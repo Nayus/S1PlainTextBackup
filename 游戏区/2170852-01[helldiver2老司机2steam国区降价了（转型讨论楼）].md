@@ -4705,3 +4705,13 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 单兵武器最好打吐酸泰坦的是磁轨炮吗</blockquote>
 飞矛也可以单兵，装弹不慢
 
+
+*****
+
+####  swrrt  
+##### 499#       发表于 2024-2-17 05:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976879&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-17 01:48</a>
+我操 接连打下来好多 细节做的真的是蛮好的</blockquote>
+玩了那个疏散人员任务就知道“我的机器人无穷无尽，而你的绝地潜兵每时每刻都在伤2亡”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -20,3 +20,15 @@
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  蒹葭公子  
+##### 217#       发表于 2024-2-16 23:38
+
+日本奈须蘑菇把圣经里的怪物塔拉克斯（就是dnd里的泰拉奎斯泰乌龟）当成龙，FF里还把尘世巨蟒耶梦加得当成龙，这本来就是龙这种幻想生物的扩张，我觉得对于文化创作来说不是坏事。
+
+如果非要把中国龙用特定的单词翻译，那dragon真的要翻译成抓根或者拽哥？什么泰乌龟尘世幻龙都是拽哥？国人创作西幻也不准叫龙要叫抓根？
+
+这也太“文化自信”了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

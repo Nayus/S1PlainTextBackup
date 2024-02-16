@@ -1479,3 +1479,13 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 
 <img src="https://p.sda1.dev/15/5ba26ae714db3ae3f152a81db21398ce/QQ图片20240216205636.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 19584#       发表于 2024-2-16 21:14
+
+<blockquote>adw667 发表于 2024-2-16 16:37
+这都能引到的？</blockquote>
+甚至有白敬亭x铃原希实的MAD
+

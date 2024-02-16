@@ -4288,3 +4288,14 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 就那个肚子大会喷毒液的大&amp;# ...</blockquote>
 如果是大屁股那个我们发打了两把杀了一堆，结算一个都没有<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ChirstDR  
+##### 458#       发表于 2024-2-16 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974572&amp;ptid=2170852" target="_blank">旋转吧，米糕 发表于 2024-2-16 21:07</a>
+
+如果是大屁股那个我们发打了两把杀了一堆，结算一个都没有</blockquote>
+橙色的不是，得绿色的
+

@@ -22883,3 +22883,18 @@ mujica1单的特典图出了吗？
 
 活更多了说明更没时间练歌了，看来mygo三次元live暂时是救不回来了，看看到第二季播出前能跑路多少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 12794#       发表于 2024-2-16 14:38
+
+还能说话吗羊黑<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 12795#       发表于 2024-2-16 14:40
+
+虽然紫吧喜欢嘲讽🐑粉说的00后最强，女声优不过看起来羊的声优发展确实不错啊，挺好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

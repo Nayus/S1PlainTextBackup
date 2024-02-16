@@ -3998,3 +3998,15 @@ GaaS嘛，都是先砍内容然后慢慢补。
 还有没有武器平衡了？ ...</blockquote>
 那把是独头弹，打机器人的
 
+
+*****
+
+####  WGTCorp  
+##### 434#       发表于 2024-2-16 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971307&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-16 13:06</a>
+解锁了第8页的喷子“重炮手”，射速伤害后坐力全面落后于“破裂者”，还单发装弹。
+
+还有没有武器平衡了？ ...</blockquote>
+虽然面板没写，但好像能穿中甲。
+

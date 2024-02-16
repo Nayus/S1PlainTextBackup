@@ -3954,3 +3954,13 @@ GaaS嘛，都是先砍内容然后慢慢补。
 
 闪退太搞心态了，好不容易快撤离了一个闪退一局白干<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 429#       发表于 2024-2-16 13:06
+
+解锁了第8页的喷子“重炮手”，射速伤害后坐力全面落后于“破裂者”，还单发装弹。
+
+还有没有武器平衡了？
+

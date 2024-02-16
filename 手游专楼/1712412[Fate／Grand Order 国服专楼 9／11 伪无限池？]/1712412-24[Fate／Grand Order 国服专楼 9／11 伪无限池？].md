@@ -296,3 +296,15 @@
 
 其实是都不缺，赶紧毕业去刷小刀吧
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46173#       发表于 2024-2-16 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63955867&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2024-2-13 22:39</a>
+我水马达库库尔坎都是一宝照样刷，顶多要第三四回合补刀而已
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14 ...</blockquote>
+我那天接了个五宝大姐姐打了下，带上杀狐奥伯龙……还是不稳定，后来想了想为何不给自己rba上黑杯，接个午茶rba，奥宝技能放完还能上个雨神触发rba宝具前置，一宝也能爽刷！
+

@@ -1382,3 +1382,17 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 
 只能说原创番的**病，前期引流的时候最屌，然而其它的原创番后面烂了就烂了，又没什么后续大企划，你不一样，挂着一个长期企划的烂了要花多久抬头？现在四个团玩矮子拔将军真的是整个IP想看到的？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 19575#       发表于 2024-2-16 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63969155&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-2-16 07:24</a>
+只能说原创番的**病，前期引流的时候最屌，然而其它的原创番后面烂了就烂了，又没什么后续大企划，你不一样 ...</blockquote>
+花田能撑三集然后偶尔正常点，幻日只撑了一集后面就开始不知所谓，硬要说花田前面写了两部拉拉加两个剧场版，能写的桥段真的用差不多了（后面一股小南极4人组架构塞进Liella的味道）。从创作者的角度我可以理解花田老师的难处，反过来说从创作者的角度更难接受一期中部后面对恋的诡异操作，还有结尾那带点矛头的香音传。
+
+或许放在现实世界来说，jk去南极确实是比去当学院偶像简单的多的事吧。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

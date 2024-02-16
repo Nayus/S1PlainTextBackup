@@ -1407,3 +1407,13 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 特种兵，上午公司报个到就开车去机场，第二天最早一班飞机回直接回公司</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以
 
+
+*****
+
+####  adw667  
+##### 19577#       发表于 2024-2-16 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63967031&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-2-15 22:21</a>
+那切片6千条评论是春晚那边引流了。难以想象的一天，LL和春晚撞上热点。</blockquote>
+这都能引到的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

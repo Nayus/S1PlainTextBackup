@@ -4064,3 +4064,11 @@ HE高爆，AT穿甲弹，就问你有什么错
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  BadYanL  
+##### 439#       发表于 2024-2-16 16:40
+
+特意转去英文看了看，翻译没问题，英文版也没写说明
+

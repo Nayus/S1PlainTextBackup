@@ -182,3 +182,11 @@ dragon是形象为中国龙或西方龙的生物的统一副类别
 日本人把什么都能当成龙：https://dragalialost.wiki/w/Dragon_Grid
 根本没有讨论的意义
 
+
+*****
+
+####  黄泉川此方  
+##### 224#       发表于 2024-2-17 04:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我个人特别喜欢蠕虫和dargon，蛇和龙的对照
+

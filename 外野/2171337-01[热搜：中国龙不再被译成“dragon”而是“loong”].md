@@ -103,3 +103,18 @@ dragon是形象为中国龙或西方龙的生物的统一副类别
 
 2024-2-17 00:01 上传
 
+
+*****
+
+####  manysun  
+##### 220#       发表于 2024-2-17 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976220&amp;ptid=2171337" target="_blank">Hydro 发表于 2024-2-16 23:59</a>
+
+说个别的，万智牌里god这个词真的就是包含希腊神话主题环境（赛洛斯）和古埃及主题环境（阿芒凯）等基于不 ...</blockquote>
+有点好奇，万智牌里面的naga和dragon会有联动效应吗？因为西方人也一度把印度的naga翻译成dragon，直到现在还有这种现象。
+
+本来印度的naga源自于蛇，跟随佛教传入中国后，中国人看到naga的样子，也想当然的把naga翻译为了龙，并且中国龙的概念又反作用于naga身上，然后又传播到了其他文明。更搞笑的是我发现了维基上有Longnü这个页面，
+
+那迦王的女儿，龙女被译作 Longnü 或者 dragon girl。大家心心念的音译率先被龙女实现了，即使龙女本身既不来自中国也不来自西方<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

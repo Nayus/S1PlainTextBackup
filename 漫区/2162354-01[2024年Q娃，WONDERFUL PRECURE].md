@@ -588,3 +588,15 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 
 热知识，q娃是传说中的战士，发把狙压根不算个事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帝下室の年糕  
+##### 961#       发表于 2024-2-16 21:33
+
+ 本帖最后由 帝下室の年糕 于 2024-2-16 21:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974524&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-2-16 21:02</a>
+明明在聊谭友定义的百合符不符合q娃，你却纠结起可能性的定义
+你也会说具体情况具体分析，q娃自然不缺广 ...</blockquote>
+我翻了下也没人用这个可能性来概括整个系列啊你急什么，他说的是Q娃系列一直有卖百合，又没说Q娃系列每一部都在卖百合，你也可以说Q娃系列一直在卖bg，即使法q星q热带本篇一点bg都没有但确实很多部Q娃都有在卖笔记，所以我觉得也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -4307,3 +4307,15 @@ Playfab 环境优化 - 所有大厅现在都有正确的数据来运行更有效
 
 有点想当民主战士了，求问这游戏现在修Bug修得能玩了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 460#       发表于 2024-2-16 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974697&amp;ptid=2170852" target="_blank">andychen 发表于 2024-2-16 21:23</a>
+
+有点想当民主战士了，求问这游戏现在修Bug修得能玩了吗</blockquote>
+[https://steamcommunity.com/app/553850/eventcomments/](https://steamcommunity.com/app/553850/eventcomments/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关注每天最新发布的补丁评论，没有刷闪退就可以玩了
+

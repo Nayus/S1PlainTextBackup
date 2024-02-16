@@ -541,3 +541,26 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 比起没接触过的“偶像”，更喜欢身边的人是什么很罕见的事情吗？
 没否认=有可能，很会偷换概念啊，可以在绝大多数作品上宣告胜利了
 
+
+*****
+
+####  粉儿alice  
+##### 957#       发表于 2024-2-16 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63973628&amp;ptid=2162354" target="_blank">聖あげは 发表于 2024-2-16 19:12</a>
+说的Q娃财报有人关心过一样
+
+国内Q娃出圈的就那些梗而且玩梗的拉一百个出来一百个没看过原作</blockquote>
+前几年财报出了 提到q娃起码还有各种嘲讽担心什么的
+天空可是20年纪念作这一整年玩整这么大 疯狂爆了这么多金币 到头来就点个数据 同样是15年纪念作拥抱赢麻了都 是不是改狠狠的吐槽一下吗
+
+*****
+
+####  帝下室の年糕  
+##### 958#       发表于 2024-2-16 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63974264&amp;ptid=2162354" target="_blank">Sliurus 发表于 2024-2-16 20:31</a>
+比起没接触过的“偶像”，更喜欢身边的人是什么很罕见的事情吗？
+没否认=有可能，很会偷换概念啊，可以在 ...</blockquote>
+是否宣布胜利具体作品具体分析，我只是指出你的逻辑问题，要不你重新定义一下什么是可能性？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

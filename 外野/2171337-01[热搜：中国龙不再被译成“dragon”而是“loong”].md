@@ -501,3 +501,32 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 
 有没有一种可能性是瞎几把改翻译并不能展现文化自信反而是反面？
 
+
+*****
+
+####  银光闪耀  
+##### 245#       发表于 2024-2-17 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978363&amp;ptid=2171337" target="_blank">蒹葭公子 发表于 2024-2-17 11:12</a>
+
+经典自己喜欢亮屁股看谁都是屁股……
+
+有没有一种可能性是瞎几把改翻译并不能展现文化自信反而是反面？ ...</blockquote>
+“经典自己喜欢亮屁股看谁都是屁股……
+
+有没有一种可能性是瞎几把改翻译并不能展现文化自信反而是反面？”
+
+是不是该反思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都说了这味还是多藏藏
+
+*****
+
+####  蒹葭公子  
+##### 246#       发表于 2024-2-17 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978395&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-17 11:16</a>
+
+“经典自己喜欢亮屁股看谁都是屁股……
+
+有没有一种可能性是瞎几把改翻译并不能展现文化自信反而是反面？ ...</blockquote>
+那确实你该反思一下为什么这么爱在网上说批话
+

@@ -790,3 +790,18 @@ Q娃现在还有哪里有海外播放的？
 <img src="https://p.sda1.dev/15/ed3374835950f2cdac8fb7b3c182867b/003_2_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/b7c5d026bae6d7b3e60ed92161adb400/004_2_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 978#       发表于 2024-2-17 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978270&amp;ptid=2162354" target="_blank">ΣPRC 发表于 2024-2-17 10:59</a>
+
+狗Q是真的低开啊……
+
+难得翻了一页竟然是在吵百合定义，根本没人聊狗Q
+
+（决定重温天Q前5集） ...</blockquote>
+目前的展开没什么可讨论的吧，舔小麦舔彩羽就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

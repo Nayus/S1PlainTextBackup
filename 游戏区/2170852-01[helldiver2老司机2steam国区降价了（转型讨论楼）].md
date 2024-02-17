@@ -5052,3 +5052,47 @@ sony说万一你们这蝗了一波就不玩了呢？我这服务器多租了不�
 
 忍不住想买这游戏，看steam差评和坛友的讨论又不敢买了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 538#       发表于 2024-2-17 16:37
+
+xbox收了中箭头吧
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  kalavinka  
+##### 539#         楼主| 发表于 2024-2-17 16:37
+
+现在每次闪退都要验证完整性 什么远古弱智反作弊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星野心叶  
+##### 540#       发表于 2024-2-17 16:39
+
+垃圾服务器造就了这几年最差的联机体验
+
+*****
+
+####  2VYBGp94  
+##### 541#       发表于 2024-2-17 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977461&amp;ptid=2170852" target="_blank">XXXG01H2 发表于 2024-2-17 08:53</a>
+
+机器人那疏散任务，我6级以上就没赢过，40个人员每次疏散到28个基本上就崩盘了，空投艇扔坦克一辆接一辆， ...</blockquote>
+你需要四个人每人两门迫击炮台，减速的和轰炸的，然后你会发现难度9的机器人也根本下不得飞机，带个飞矛补坦克就够了。
+
+*****
+
+####  2VYBGp94  
+##### 542#       发表于 2024-2-17 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980801&amp;ptid=2170852" target="_blank">星野心叶 发表于 2024-2-17 16:39</a>
+
+垃圾服务器造就了这几年最差的联机体验</blockquote>
+一切为了微交易
+

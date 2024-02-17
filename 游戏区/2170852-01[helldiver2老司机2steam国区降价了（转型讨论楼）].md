@@ -5721,3 +5721,11 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 刚发现自己飞船上飞船名贴图是不是也反了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 604#       发表于 2024-2-18 02:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跟朋友三个任务都做完上不去飞机通了难7  有没有轻松点拿超级样本的打法
+

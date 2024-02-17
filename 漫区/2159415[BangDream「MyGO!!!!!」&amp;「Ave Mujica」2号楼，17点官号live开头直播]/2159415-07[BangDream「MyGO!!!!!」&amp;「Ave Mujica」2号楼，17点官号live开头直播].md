@@ -25058,3 +25058,33 @@ Q.E.D.
 
 可惜这是突破不了那层界限的邦邦，祥子也不是神。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安洁莉娜  
+##### 13009#       发表于 2024-2-17 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982450&amp;ptid=2159415" target="_blank">须贺兰 发表于 2024-2-17 20:20</a>
+
+这个场景是接在幼儿园之后，暗示这是幼儿园的活动（如果不是，就是私下一起玩的活动，那关系更加亲密）， ...</blockquote>
+我不是都说了吗，先入为主的理解，从看番一开始就是这么理解一直到现在而已。那个场景第一想法就在家附近公园之类的地方玩，不行吗？怎么我正常跟你讨论你这么急啊？从我的角度看，“为什么故意无视动画明确给出的信息”可以原样奉还。你觉得我的理解很牵强，这是你的自由，就算我完全理解错了，那也没有什么预设的立场。别这么恶意揣测别人，行不行？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 13010#         楼主| 发表于 2024-2-17 20:57
+
+<blockquote>acgreen 发表于 2024-2-17 20:41
+应该是柿本监督很早的一篇访谈，楼内有访谈汇总但我找不到了
+
+  -- 来自 有消息提醒的 Stage1官方 Android ...</blockquote>
+置顶……
+
+*****
+
+####  Aendst  
+##### 13011#       发表于 2024-2-17 21:02
+
+<blockquote>彼女のCRYCHICに対する思いの強さはキャラクターを作り上げる段階で決めていて</blockquote><blockquote>そよは犯人探しをする中で、睦がCRYCHICにとどめを刺した犯人ということにしてしまいたいんです。CRYCHIC解散におけるそよのフィルターですよね。そして「あんたが壊したんだから、当然CRYCHIC復活に力を貸してくれるよね？」という理屈で睦を責められると思っている、というのがあの会話です。</blockquote><blockquote>そして祥子に違うバンドで「春日影」を演奏する自分を見られたことで、CRYCHIC復活の夢も潰えてしまったという絶望と怒り。</blockquote>
+<strong>设定如此</strong>，按照制作组的思路，爽的本质之一就是执着于crychic<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -937,3 +937,36 @@ Q娃29，性别比59:41？消费欲望2700日元
 主人这边人设倒是挺明晰的，考虑到犬 Q 的大主题是人宠关系，加上已经明示了对彩羽的感情，应该会两手抓吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 不过考虑到成田大妈的口味，希望后面不会空降一个犬 Q 版社长吧。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 991#       发表于 2024-2-17 20:55
+
+然后成田大妈来一手，眼镜男喜欢的其实是Amulet Heart，啊呸，Cure Friendly这样的女孩子，最后让猫，啊呸，兔子把彩羽偷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modedd  
+##### 992#       发表于 2024-2-17 20:58
+
+ 本帖最后由 modedd 于 2024-2-17 20:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982596&amp;ptid=2162354" target="_blank">HazukiShion 发表于 2024-2-17 20:38</a>
+
+兔组如果和主线剧情有关联的话，重点应该在兔子身上。
+
+主人这边人设倒是挺明晰的，考虑到犬 Q 的大 ...</blockquote>
+如果兔子要跟主线强相关，那么轮到他的剧情时悟作为主人也应该是解决问题的关键要素才对，所以我们今年难道真的能在光之美少女里看到一位正式在编q娃和男性角色之间的男男关系性吗？这个想法太巨魔了，搞得我根本没法不去想，哪怕就卖一集也行，希望成田大妈给点力整点大的，主宠这么有拓展空间的题材不多深挖太浪费了下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于帅哥男干部感觉完全是既定事项了，反而没啥好聊的，干部到时候先行图看一眼人设就知道到底是来干嘛的了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 993#       发表于 2024-2-17 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982739&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-2-17 20:55</a>
+
+然后成田大妈来一手，眼镜男喜欢的其实是Amulet Heart，啊呸，Cure Friendly这样的女孩子，最后让猫，啊呸 ...</blockquote>
+什么宝石宠物 Sunshine。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

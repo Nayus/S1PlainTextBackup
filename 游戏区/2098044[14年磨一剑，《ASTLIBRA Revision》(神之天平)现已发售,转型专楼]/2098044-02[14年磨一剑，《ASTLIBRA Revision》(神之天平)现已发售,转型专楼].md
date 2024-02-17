@@ -1214,3 +1214,11 @@ DLC怎么提升属性来着？升级不加？
   -- 来自 能手机投票的 Stage1官 ...</blockquote>
 算是独立游戏，不继承本体的存档。但是本体没通关的话，会被DLC提前剧透一些内容。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 3966#       发表于 2024-2-17 13:27
+
+说个没用的，六个球掉晶体那个房，用两次冰系最终的全屏大招能把球打爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

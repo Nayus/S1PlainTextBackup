@@ -23999,3 +23999,14 @@ https://www.bilibili.com ...</blockquote>
 
 总的来说在他眼里go整体都显得名过其实，看完不算浪费时间但也绝对不会给出好评（我认为存在被风评拔高太多期待的因素），虽然我知道他对剧本要求挺高的（他很喜欢少歌），不过我也没想到我觉得可以宽容的一些问题在其他人眼里会变得那么难以接受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不过仔细一想路人社群里火的都是那么些烂梗，好吧，也正常，人和人总归是不一样的。
 
+
+*****
+
+####  鳥栖朝  
+##### 12906#       发表于 2024-2-17 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979094&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-02-17 12:36:14</a>
+看了眼，其实只要抓住态度问题、理由不重要就行这可太孝了</blockquote>这可太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

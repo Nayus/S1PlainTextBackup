@@ -554,3 +554,14 @@ Caliburn原本是儀式用劍。若將其用作武器，
 红A最强的攻击方式是幻想崩坏啊同志们，把投影宝具直接炸掉，威力比直接使用要强得多，威力跟流星一条是一 ...</blockquote>
 威力再强等级不够打不动，等级够的又没必要拿来炸了，虽然肯炸伊莉雅的话倒是好办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 53#       发表于 2024-2-17 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979477&amp;ptid=2171748" target="_blank">DARKGRAY 发表于 2024-2-17 13:22</a>
+
+威力再强等级不够打不动，等级够的又没必要拿来炸了，虽然肯炸伊莉雅的话倒是好办 ...</blockquote>
+等级够就算能炸，也只是1條命，火力再多也只是燒多一條血，之後就耐性提高到近無效
+

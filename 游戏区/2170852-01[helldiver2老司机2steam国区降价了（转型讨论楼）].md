@@ -5456,3 +5456,11 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 
 都不是匹配不到人的问题，都看不到人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gnleez  
+##### 577#       发表于 2024-2-17 21:40
+
+野队顶着队友狂送人头的压力带着超级样本挺到最后，结果临上飞机掉线，然后就排队上不去了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

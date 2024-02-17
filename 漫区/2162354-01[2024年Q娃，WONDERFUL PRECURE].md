@@ -1011,3 +1011,14 @@ Q娃29，性别比59:41？消费欲望2700日元
 
 2024-2-17 21:26 上传
 
+
+*****
+
+####  HazukiShion  
+##### 997#       发表于 2024-2-17 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983041&amp;ptid=2162354" target="_blank">bilibilius 发表于 2024-2-17 21:28</a>
+
+在netorabo上看到个有意思的投票结果，是社会人选择的最喜欢Q娃系列排行2023。虽然结果很夸张，但竟然有点 ...</blockquote>
+这初代占比这么大，感觉就是单纯的认知度测试，而且票数也太少了。<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

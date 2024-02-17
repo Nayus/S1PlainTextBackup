@@ -1276,3 +1276,11 @@ DLC怎么提升属性来着？升级不加？
 
 一早告诉我是盖亚迷宫加量我也少点落差
 
+
+*****
+
+####  Rakuen  
+##### 3972#       发表于 2024-2-17 21:41
+
+打斗技场老板死了好多次了……结果最终BOSS就这……开狂暴几刀就没了，不过我只是地狱难度<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

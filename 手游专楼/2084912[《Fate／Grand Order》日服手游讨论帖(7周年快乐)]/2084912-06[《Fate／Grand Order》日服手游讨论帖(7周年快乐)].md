@@ -455,3 +455,16 @@ OKSG空下来了估计会整魔箱的活作为微型联动（类似之前班扬�
 
 术呆除外<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 11389#       发表于 2024-2-17 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981913&amp;ptid=2084912" target="_blank">シャル 发表于 2024-2-17 19:19</a>
+妖精国这帮人真是太甜了
+
+甜的发腻了</blockquote>
+最经典的还是兰斯洛特
+这个封名真是封对了.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

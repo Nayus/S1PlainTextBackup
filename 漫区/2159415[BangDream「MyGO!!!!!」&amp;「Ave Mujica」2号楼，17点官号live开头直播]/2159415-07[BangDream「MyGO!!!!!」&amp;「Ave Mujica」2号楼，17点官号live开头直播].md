@@ -25292,3 +25292,113 @@ Q.E.D.
 
 睦睦的黄瓜是送给mygo的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 13029#       发表于 2024-2-17 21:34
+
+ 本帖最后由 Aendst 于 2024-2-17 21:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983087&amp;ptid=2159415" target="_blank">tuichu0425 发表于 2024-2-17 21:32</a>
+
+那你解释不了soyo退黄瓜之后的小睦破大防啊
+
+就是爱情 就是爱情</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次看到这种发言我都很想推荐从一号楼开始翻
+
+唉，爱情，唉，铁暗恋，唉，黄瓜
+
+*****
+
+####  缪斯替  
+##### 13030#       发表于 2024-2-17 21:35
+
+阿爽到底重视的是什么，这个问题我也没什么坚持<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+我的理解主要是阿爽没明白人与人之间的关系就是关系本身，不拘泥于特定的形式
+
+就像她对亲情缺失的理解是家庭破碎、家中没有人气（混淆本质上的亲情与形式上的家庭）、
+
+她对同龄人之间亲密关系的理解也是一定要依附于某个特定形式的。在学校社团里拉琴的时候没体会到，这个形式不行。在C团玩春日影的时候体会到了，这个形式行！
+
+她混淆了自己渴望的同龄人之间的亲密关系和引发这种亲密关系的形式，因此她不理解，所以也不追求C团这个形式之上更进一步的亲密关系
+
+至于其中和祥子的亲密关系是不是有超出其他人之上的特殊性，我觉得是怎么样都可以说得通的
+
+*****
+
+####  穗波殊  
+##### 13031#       发表于 2024-2-17 21:35
+
+睦睦向素食传达的观念是mygo已经很好了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 13032#       发表于 2024-2-17 21:37
+
+那黃瓜還是送給mygo的，不是送給個人的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+就算破防也不是對爽世，而是覺得被前隊友們拒絕了而破防，何況也沒多破防<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 13033#       发表于 2024-2-17 21:37
+
+ 本帖最后由 PDQ4 于 2024-2-17 21:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983087&amp;ptid=2159415" target="_blank">tuichu0425 发表于 2024-2-17 21:32</a>
+
+那你解释不了soyo退黄瓜之后的小睦破大防啊
+
+就是爱情 就是爱情</blockquote>
+送老队友被公开退货原来不会破防吗，而且那是送给mygo的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">破防就是爱情你邦爱情有点多。
+
+个人关于这个还有个延伸的假药，爽世代表mygo其余三人把睦切了，爽世的独断专行完全是可以这么理解的，本来指望有个知道黄瓜是啥的人帮忙传达睦对三人的祝福，结果人家不需要。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RedSpecial  
+##### 13034#       发表于 2024-2-17 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983084&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-2-17 21:32</a>
+
+虽然不喜欢素食，说成大家长感觉太虾头了本质是好女孩啊</blockquote>
+孩子她爸（祥子）快回库莱西库吧，都是为了孩子们好（虽然完全不懂孩子在想什么）<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13035#       发表于 2024-2-17 21:38
+
+反了吧，不是大家长而是熊孩子才对，爽姐更像是平时在家也要给亲妈当妈导致缺少家庭关爱，导致破防后才老做出大喊大叫、下跪耍赖、摆烂不上学不练习这些看起来像是熊孩子闹脾气一样的行为<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 13036#       发表于 2024-2-17 21:38
+
+靠近D5J就有个问题，能不能出现三人行，我是初睦祥三人婚的坚定支持者，mujica如果有暗示一定是三人成行。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缪斯替  
+##### 13037#       发表于 2024-2-17 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983049&amp;ptid=2159415" target="_blank">RedSpecial 发表于 2024-2-17 21:29</a>
+
+我还是倾向家长论，对一个没有深交的集体依恋，因为她把自己当上位者，当家长。踩立希劣等感雷，不知道灯 ...</blockquote>
+自以为为别人好，这种行为逻辑本来也不局限于家长和家庭成员这一种关系间嘛。像是感情问题中常说的“自我感动”其实也差不多
+
+我还是倾向于把这些东西都解释成缺乏交心能力的阿爽试图照猫画虎构筑亲密关系，为此而做出的笨拙尝试<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 13038#       发表于 2024-2-17 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983145&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 21:38</a>
+
+反了吧，不是大家长而是熊孩子才对，爽姐更像是平时在家也要给亲妈当妈导致缺少家庭关爱，导致破防后才老做 ...</blockquote>
+考虑爽世的家庭环境，好像还真没错，毕竟干这些事的不是妈是爽世本人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

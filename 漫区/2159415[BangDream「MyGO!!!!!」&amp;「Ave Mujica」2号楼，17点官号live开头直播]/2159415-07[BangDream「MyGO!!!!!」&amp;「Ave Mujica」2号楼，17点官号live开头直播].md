@@ -26082,3 +26082,21 @@ mio说还想跟灯玩这句，如果mio本身不愿跟灯玩，不论mio妈还�
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  御幸一也  
+##### 13094#       发表于 2024-2-18 03:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/18/033915cryjqtbrtntz9uqg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ki君mi(@kimiJUNN)_20240217-150757_1758870909665124477_photo.jpg</strong> (146.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 03:39 上传
+
+[https://twitter.com/kimiJUNN/status/1758870909665124477](https://twitter.com/kimiJUNN/status/1758870909665124477)
+

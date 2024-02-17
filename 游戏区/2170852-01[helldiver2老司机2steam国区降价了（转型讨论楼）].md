@@ -5761,3 +5761,13 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 本名都叫地狱老司机了，回归初心4披风蟑螂分散跑酷就很轻松了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可我们只有两只蟑螂 最后等撤离都是一个人在天上看着另一个被两只泰坦追着跑
 
+
+*****
+
+####  LT_Harry  
+##### 608#       发表于 2024-2-18 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984830&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-2-18 02:12</a>
+刚发现自己飞船上飞船名贴图是不是也反了</blockquote>
+文本排布顺序没有依据汉语习惯修改，切换成英文版显示的内容就符合逻辑
+

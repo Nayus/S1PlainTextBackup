@@ -5464,3 +5464,20 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 
 野队顶着队友狂送人头的压力带着超级样本挺到最后，结果临上飞机掉线，然后就排队上不去了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reimei  
+##### 578#       发表于 2024-2-17 21:47
+
+什么垃圾游戏，找朋友联机任务都进不去直接闪退<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  bladethunder  
+##### 579#       发表于 2024-2-17 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下午匹配还好好的，就是匹配到的都是鬼佬，而且感觉星球人数暴增
+

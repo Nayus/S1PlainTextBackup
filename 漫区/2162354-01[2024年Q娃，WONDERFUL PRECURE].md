@@ -1022,3 +1022,35 @@ Q娃29，性别比59:41？消费欲望2700日元
 在netorabo上看到个有意思的投票结果，是社会人选择的最喜欢Q娃系列排行2023。虽然结果很夸张，但竟然有点 ...</blockquote>
 这初代占比这么大，感觉就是单纯的认知度测试，而且票数也太少了。<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 998#       发表于 2024-2-17 21:44
+
+ 本帖最后由 modedd 于 2024-2-17 21:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983041&amp;ptid=2162354" target="_blank">bilibilius 发表于 2024-2-17 21:28</a>
+
+在netorabo上看到个有意思的投票结果，是社会人选择的最喜欢Q娃系列排行2023。虽然结果很夸张，但竟然有点 ...</blockquote>
+元祖之下法q第一，战队第二，天q水果并列第三，公主心跳和茶几一起垫底，抓心抱q海岛悍匪统统并列倒数第二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patapon3  
+##### 999#       发表于 2024-2-17 21:44
+
+哭哭小雪
+https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.sda1.dev/15/33edb882944a316e97616eb6c0dbb531/IMG_CMP_211568128.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  bilibilius  
+##### 1000#       发表于 2024-2-17 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983182&amp;ptid=2162354" target="_blank">HazukiShion 发表于 2024-2-17 21:41</a>
+
+这初代占比这么大，感觉就是单纯的认知度测试，而且票数也太少了。 ...</blockquote>
+调查对象是日本的社会人，确实就是靠知名度，还有身边熟人了。
+

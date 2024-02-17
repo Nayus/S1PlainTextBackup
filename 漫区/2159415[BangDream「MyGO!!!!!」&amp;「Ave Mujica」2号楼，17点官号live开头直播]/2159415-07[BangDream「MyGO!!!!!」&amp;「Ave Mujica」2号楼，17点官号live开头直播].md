@@ -25402,3 +25402,34 @@ Q.E.D.
 反了吧，不是大家长而是熊孩子才对，爽姐更像是平时在家也要给亲妈当妈导致缺少家庭关爱，导致破防后才老做 ...</blockquote>
 考虑爽世的家庭环境，好像还真没错，毕竟干这些事的不是妈是爽世本人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  L7lv6  
+##### 13039#       发表于 2024-2-17 21:45
+
+我记得贴吧有篇分析素世的就挺不错的，素世在c团里既扮演妈妈又扮演女儿。
+
+*****
+
+####  半年  
+##### 13040#       发表于 2024-2-17 21:46
+
+<img src="https://img.saraba1st.com/forum/202402/17/214612lxocnlb7xlzbwxr1.jpg" referrerpolicy="no-referrer">
+
+<strong>GGik_ELaUAANpyB.jpg</strong> (132.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 21:46 上传
+
+<img src="https://img.saraba1st.com/forum/202402/17/214612rkllivop77i67lkk.jpg" referrerpolicy="no-referrer">
+
+<strong>GGik_D5aoAA87vf.jpg</strong> (137.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 21:46 上传
+
+[https://twitter.com/Slug10000/status/1758837061271138564/photo/2](https://twitter.com/Slug10000/status/1758837061271138564/photo/2)
+

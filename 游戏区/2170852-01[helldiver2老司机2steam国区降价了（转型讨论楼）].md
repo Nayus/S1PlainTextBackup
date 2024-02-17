@@ -5165,3 +5165,39 @@ xbox收了中箭头吧
 这游戏的外网社区真的很有意思，算是这几年看过的最有意思的社区了哈哈哈 ...</blockquote>
 比如？
 
+
+*****
+
+####  siebten  
+##### 551#       发表于 2024-2-17 17:24
+
+索尼连服务器都搞不定还做个屁的20个gaas<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超极巨鲨鲨  
+##### 552#       发表于 2024-2-17 17:24
+
+下午steam刚买，进去开场cg就字幕错位，按键显示ps手柄，然后半天连不上服务器，好不容易进去了直接死机，又开了一次终于进教程蹲下之后就没反应了，太牛了这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 553#       发表于 2024-2-17 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MD服了，船上挂机屁事没有，降落下地不出20分钟必定掉线闪退
+
+*****
+
+####  御风沐雪  
+##### 554#       发表于 2024-2-17 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏真是从内到外体现出了索尼的那股子抠搜劲，这么好的底子，太可惜了
+
+*****
+
+####  looptube  
+##### 555#       发表于 2024-2-17 17:34
+
+掉线了再回去，发现等级加了2级，多了10000多R点，30+勋章<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

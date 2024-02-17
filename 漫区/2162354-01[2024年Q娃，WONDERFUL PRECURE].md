@@ -727,3 +727,27 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 
 我走错进到百合楼了？
 
+
+*****
+
+####  ΣPRC  
+##### 973#       发表于 2024-2-17 10:59
+
+狗Q是真的低开啊……
+
+难得翻了一页竟然是在吵百合定义，根本没人聊狗Q
+
+（决定重温天Q前5集）
+
+*****
+
+####  月夜凝雪  
+##### 974#       发表于 2024-2-17 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977867&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-17 09:57</a>
+海外以播放权为主吧，这个收益是东A的，和万南无关</blockquote>
+说起来就连面包超人这种超古董都有海外玩具收益，
+Q娃现在还有哪里有海外播放的？
+
+—— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

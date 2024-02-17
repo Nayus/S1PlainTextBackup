@@ -408,3 +408,24 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 外交部都不用，哪来的规定 ...</blockquote>
 所以没规定扯什么淡呢？幻想文化自信吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  银光闪耀  
+##### 238#       发表于 2024-2-17 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978219&amp;ptid=2171337" target="_blank">蒹葭公子 发表于 2024-2-17 10:52</a>
+
+所以没规定扯什么淡呢？幻想文化自信吗？一个多拉贡波撸都能干爆你，你还能脑控外国人觉得dragon≠ ...</blockquote>
+站在实用角度默默忍受也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定会爱上这种感觉
+
+*****
+
+####  蒹葭公子  
+##### 239#       发表于 2024-2-17 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978262&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-17 10:58</a>
+
+站在实用角度默默忍受也挺好的说不定会爱上这种感觉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">笑cry惹原来是口嗨怪，你这么牛逼就赶紧先把dragon的翻译改了，这算是我觉得还有点可能的点，不然说你妈批话呢？
+

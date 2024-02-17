@@ -23795,3 +23795,89 @@ https://www.bilibili.com ...</blockquote>
 感觉这两年可能真的是动物朋友的主推期，如果她确定了要专注配音路线的话那怎么安排给🐶的时间就成了很麻烦 ...</blockquote>
 鼓路线不同，她就不像想当声优的，现在是2.5次元特化，就拉邦和舞台剧
 
+
+*****
+
+####  相坂君  
+##### 12885#       发表于 2024-2-17 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">已到下旬，我新曲呢！？
+
+*****
+
+####  木谷高明  
+##### 12886#       发表于 2024-2-17 12:35
+
+一想到2025播之前还得车轱辘十几到几十遍就感觉好崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 12887#       发表于 2024-2-17 12:36
+
+不确定的东西吵起来可太正常了，更何况退团理由还是整个故事的原点之一。不过其中一些看法是挺离谱<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 12888#       发表于 2024-2-17 12:36
+
+就愛看祥子叫喵夢祐天寺小姐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/17/123536yee8i1wzowoii87q.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_眠いᙏ̤̮我好睏(@zaosoap20)_20240216-120505_1758462501388484634_photo.jpg</strong> (208.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 12:35 上传
+
+[https://twitter.com/zaosoap20/status/1758462501388484634](https://twitter.com/zaosoap20/status/1758462501388484634)
+
+*****
+
+####  -LYRE-  
+##### 12889#       发表于 2024-2-17 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978818&amp;ptid=2159415" target="_blank">蒜苗 发表于 2024-2-17 12:04</a>
+什么退团，祥子退c团吗？这玩意现在怎么汴啊，战争迷雾还没开呢</blockquote>
+看了眼，其实只要抓住态度问题、理由不重要就行<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+隔壁都有个爆典“你就算爸妈都死了也不能这个b态度”的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可太孝了
+
+*****
+
+####  cindy355  
+##### 12890#       发表于 2024-2-17 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977051&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 03:24</a>
+
+再怎么厨立希也做不到当羊全肯定bot吧，不如说羊再继续摆下去立希除了舔狗外估计还得多一个没眼光的罪名了[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？厨立希的不是大部分都对灯或多或少有点意见吗（
+
+*****
+
+####  紫吹兰  
+##### 12891#         楼主| 发表于 2024-2-17 12:40
+
+【【新春特番】新春特别定制大富翁游戏 之 青木VS进藤 Part.2-哔哩哔哩】 [https://b23.tv/3KyTwZs](https://b23.tv/3KyTwZs)
+
+不如来看被响社官号夺舍的TCG官号新发的音宝和青木春节特供。
+
+说实话我还是挺郁闷一定要用TCG号发响社视频，用手游号发点击至少翻倍，鸡狗号能翻个5倍。而且鸡狗号和手游号每次都不转发TCG发的这些响社视频
+
+*****
+
+####  Aendst  
+##### 12892#       发表于 2024-2-17 12:40
+
+本来想说怎么又是态度，能不能有点新意的
+
+但是爸妈都不重要这种说法对正常人类来说还是太超前了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点太过崭新了吧
+
+*****
+
+####  穗波殊  
+##### 12893#       发表于 2024-2-17 12:41
+
+现在退团有意义的只有退团这一事实。退团理由是不必要的。就像等待戈多里，戈多的形象是不必要的。纠结于这一点破坏了mygo的结构美，所以mygo粉天天辩这个感觉很没品。
+

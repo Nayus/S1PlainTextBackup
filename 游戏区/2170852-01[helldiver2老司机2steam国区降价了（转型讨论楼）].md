@@ -4844,3 +4844,60 @@ sony说万一你们这蝗了一波就不玩了呢？我这服务器多租了不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sigeren  
+##### 514#       发表于 2024-2-17 12:34
+
+游戏里无法奔跑、用不了战略技能是什么bug？而且在舰桥上也买不了东西
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wzy200912345  
+##### 515#       发表于 2024-2-17 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979078&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-17 12:34</a>
+
+游戏里无法奔跑、用不了战略技能是什么bug？而且在舰桥上也买不了东西
+
+—— 来自 Xiaomi 22081212C, Andro ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是服务器炸了的bug，你进去了≠让你玩
+
+*****
+
+####  wzy200912345  
+##### 516#       发表于 2024-2-17 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978744&amp;ptid=2170852" target="_blank">绚烂航迹云 发表于 2024-2-17 11:54</a>
+
+我开uu自动匹配老外啥的，感觉都挺好的呀，没卡结算没卡进房间，能正常打完
+
+看uu显示的服务器都在欧美，所 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上哪的玩家都服务器炸，炸不炸到看RP
+
+*****
+
+####  sigeren  
+##### 517#       发表于 2024-2-17 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979098&amp;ptid=2170852" target="_blank">wzy200912345 发表于 2024-2-17 12:36</a>
+是服务器炸了的bug，你进去了≠让你玩</blockquote>
+太奇怪了，明明开枪也能开，扎针也能扎，结算也能结算，就只有奔跑和战略技能不能用，理解不能
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wzy200912345  
+##### 518#       发表于 2024-2-17 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979106&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-17 12:38</a>
+
+太奇怪了，明明开枪也能开，扎针也能扎，结算也能结算，就只有奔跑和战略技能不能用，理解不能
+
+—— 来 ...</blockquote>
+我开服的时候是一模一样的bug,研究了半天发现就是服务器自己的问题，稳定的时候就没事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

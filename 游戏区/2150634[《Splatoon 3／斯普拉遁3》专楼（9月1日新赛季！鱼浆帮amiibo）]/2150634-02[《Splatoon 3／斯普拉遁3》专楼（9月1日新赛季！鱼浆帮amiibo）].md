@@ -15084,3 +15084,12 @@ kotaji毕竟是最强绿双使，现在绿双也很强势</blockquote>
 
 24 号要打 DLC 呢，研究所难道对 DLC 这么没自信吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  Teiume  
+##### 2976#       发表于 2024-2-17 12:37
+
+啊这昨天刚康完工坊，那24可以专心dlc了。
+dlc要是难到打不下去再来工坊爽金工。
+

@@ -26052,3 +26052,33 @@ mio说还想跟灯玩这句，如果mio本身不愿跟灯玩，不论mio妈还�
 
 当然可以说这是一种有些矫情的“第一世界问题”，但这种第一世界问题的确是很多观众经历着的，何况至少按目前的发展来看，还是可以期待编剧把更加冷峻真实的“第三世界问题”放到双子团中去解决。
 
+
+*****
+
+####  基神的强袭自由  
+##### 13092#       发表于 2024-2-18 02:56
+
+[[中字]Abema'BanG Dream!'采访特辑(羊宫妃那·立石凛·小日向美香)](https://www.bilibili.com/read/cv25399571/)
+[[中字]月刊武士道2023年7月号 MyGO!!!!!部分](https://www.bilibili.com/read/cv25360845/)
+[[中字]请看青春期特有的冲动与想法交织而生的新生女子乐队·MyGO!!!!!](https://www.bilibili.com/read/cv25613692/)
+[“不是成员成长的故事，而是想描写成员的相遇带来的化学反应”——MyGo柿本广大访谈](https://www.bilibili.com/read/cv26092103/)
+[[中字]绫奈由仁子×武田绫乃对谈](https://www.bilibili.com/read/cv26438100/)
+[迷你动画《MyGO成员的日常!!!!!》制作者专访](https://www.bilibili.com/read/cv26509235/)
+[Ave Mujica リスアニ初次采访](https://www.bilibili.com/read/cv26565306/)
+[月光下的轮舞曲——It’s MyGO!!!!!监督访谈Ave Mujica篇](https://www.bilibili.com/read/cv26794554)
+[笨拙的迷途之子之歌——脚本綾奈ゆにこX监督柿本広大采访](https://www.bilibili.com/read/cv26796616/)
+[直面自身的苦恼与自我，终点的'心情'汇聚成故事"MyGo!!!!!"系构綾奈ゆにこ采访](https://www.bilibili.com/read/cv27383427/)
+[直面自身的苦恼与自我，终点的'心情'汇聚成故事"MyGo!!!!!"系构綾奈ゆにこ采访](https://www.bilibili.com/read/cv27400355/)
+[直面自身的苦恼与自私，终点的'心情'汇聚成故事"MyGo!!!!!"系构綾奈ゆにこ采访](https://www.bilibili.com/read/cv27423394/)
+["BanG Dream! It’s MyGO!!!!!"柿本广大监督全集回顾采访前篇](https://www.bilibili.com/read/cv27620793/)
+["BanG Dream! It’s MyGO!!!!!"柿本广大监督全集回顾采访后篇](https://www.bilibili.com/read/cv27662465/)   
+
+*****
+
+####  KokutouMikiya  
+##### 13093#       发表于 2024-2-18 02:58
+
+栞的歌词是给mygo动画定调的注脚，高松灯这个第一主角从自己写诗到（被初华点了一下）意识到写诗可以传达心意，就是一种冲破内心屏障（不用“心之壁”这个词了，怕漏油误会）的体现。在剧烈的外部冲突中人内部向外的动力觉醒了，不是被动地被谁拯救，不是依靠温柔的安慰和包容解决问题，而是意识到了要直面问题并与它一同活下去。
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

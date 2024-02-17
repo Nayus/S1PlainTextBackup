@@ -15076,3 +15076,11 @@ kotaji毕竟是最强绿双使，现在绿双也很强势</blockquote>
 
 工坊都康了两次了，来点鲑坝啊
 
+
+*****
+
+####  Junakr  
+##### 2975#       发表于 2024-2-17 12:14
+
+24 号要打 DLC 呢，研究所难道对 DLC 这么没自信吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

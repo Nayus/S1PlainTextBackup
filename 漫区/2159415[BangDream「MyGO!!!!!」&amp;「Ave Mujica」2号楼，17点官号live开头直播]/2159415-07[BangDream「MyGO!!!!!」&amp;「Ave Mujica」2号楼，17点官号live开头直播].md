@@ -23734,3 +23734,27 @@ https://www.bilibili.com ...</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 12878#       发表于 2024-2-17 12:13
+
+看了一下那个楼，里面大部分论点好像都是“和c团（除了睦以外的人）不熟，切就切了”，辩起来还是嘴队友的部分（后面好像还开始辩祥子爹了）
+
+当然，就算是嘴队友这个问题，有羊小姐的精彩表现，已经快变成祥子的先见之明了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12879#       发表于 2024-2-17 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退团到底有什么好吵的，都2024了
+
+*****
+
+####  NODY  
+##### 12880#       发表于 2024-2-17 12:20
+
+祥子也就嘴灯不练习和开命运共同体空头支票的问题，前者已经逐渐被三次元回旋镖了，后者反正也只有soyo一个人信（刚好隔壁也开了另一个楼在车soyo是小丑，可以说是相映成趣）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

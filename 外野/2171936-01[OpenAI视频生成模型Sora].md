@@ -759,3 +759,13 @@ gemini ultra我在用
 
 我觉得和gpt4差别已经很小了，我两个都用
 
+
+*****
+
+####  mimighost  
+##### 78#       发表于 2024-2-17 12:17
+
+讲真这个被滥用真的很可怕啊
+
+谁把你家人的照片搜出来，然后生成一个ta被绑架的视频<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

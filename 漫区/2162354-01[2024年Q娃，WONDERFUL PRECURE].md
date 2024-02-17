@@ -827,3 +827,36 @@ Q娃现在还有哪里有海外播放的？</blockquote>
 别的地方不知道，至少有陆港台韩啊
 大B不是才上了派对
 
+
+*****
+
+####  王留美  
+##### 981#       发表于 2024-2-17 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978272&amp;ptid=2162354" target="_blank">月夜凝雪 发表于 2024-2-17 10:59</a>
+ 说起来就连面包超人这种超古董都有海外玩具收益， Q娃现在还有哪里有海外播放的？ </blockquote>
+越是这种角色奇奇怪怪的收益就越多啊
+你想想三丽鸥和哆啦A梦
+
+*****
+
+####  月夜凝雪  
+##### 982#       发表于 2024-2-17 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978900&amp;ptid=2162354" target="_blank">王留美 发表于 2024-2-17 12:13</a>
+越是这种角色奇奇怪怪的收益就越多啊
+你想想三丽鸥和哆啦A梦</blockquote>
+面包超人和海螺小姐差不多出了日本认识的都很少，哆啦A梦很早就全球知名了还是不同的
+
+—— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  HazukiShion  
+##### 983#       发表于 2024-2-17 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976451&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-17 00:28</a>
+
+难道不是所谓的轻百合其实才是百合这个词的原始定义用于区分硬核姛的GL（蕾丝）吗只是后来含义泛 ...</blockquote>
+该使用泥潭自创的新时代百合分类法了，法 Q 热 Q 属于纯良轻百，犬 Q 战队抱 Q 这类算赢面百合。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

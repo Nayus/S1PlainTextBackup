@@ -901,3 +901,14 @@ Q娃29，性别比59:41？消费欲望2700日元
 该使用泥潭自创的新时代百合分类法了，法 Q 热 Q 属于纯良轻百，犬 Q 战队抱 Q 这类算赢面百合。 ...</blockquote>
 深井冰豚滚回豚楼
 
+
+*****
+
+####  HazukiShion  
+##### 988#       发表于 2024-2-17 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979840&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-17 14:12</a>
+
+第三集应该就是兔组的主场了，说真的我犬q最好奇的就是两个男性的这对主宠剧情会咋发展，双男q？（woc，男 ...</blockquote>
+我觉得大概率只有兔子，眼镜小哥按设定更像解说+辅助+感情发展位，毕竟一下子来两个男 Q 还是追加也太激进了，当然也有可能重回派对的模式。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

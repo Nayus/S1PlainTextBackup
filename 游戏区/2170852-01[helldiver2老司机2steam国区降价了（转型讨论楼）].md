@@ -5432,3 +5432,11 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 
 又卡在登录了，这新补丁修复了个寂寞来自: iPhone客户端
 
+
+*****
+
+####  runningch  
+##### 574#       发表于 2024-2-17 20:14
+
+我倒是感觉更新之后，跟基友的联机变稳定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

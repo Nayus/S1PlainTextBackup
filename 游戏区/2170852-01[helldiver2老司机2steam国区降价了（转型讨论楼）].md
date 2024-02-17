@@ -5668,3 +5668,22 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 唯一强沟通就是和熊弟口腔体操 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转盘有点类似apex嘛，那还可以，我整个玩玩
 
+
+*****
+
+####  sigeren  
+##### 598#       发表于 2024-2-18 01:06
+
+既然不让我匹配，那我只好用bug单人刷超级货币了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sayuki1025  
+##### 599#       发表于 2024-2-18 01:12
+
+昨天入坑的萌新：这游戏是不是进不去啊
+
+今天入坑的萌新：这游戏是不是没人玩啊
+

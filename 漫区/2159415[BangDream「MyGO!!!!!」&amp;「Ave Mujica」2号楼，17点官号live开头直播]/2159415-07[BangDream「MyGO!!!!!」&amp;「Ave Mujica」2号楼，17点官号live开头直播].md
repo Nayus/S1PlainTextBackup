@@ -24126,3 +24126,122 @@ https://www.bilibili.com ...</blockquote>
 
 我以為能吃到貓希，結果給我端出了別的東西。
 
+
+*****
+
+####  须贺兰  
+##### 12917#       发表于 2024-2-17 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979480&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 13:22</a>
+
+虽然我知道他对剧本要求挺高的（他很喜欢少歌）</blockquote>
+这是在开玩笑对不对？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安洁莉娜  
+##### 12918#       发表于 2024-2-17 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979480&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 13:22</a>
+
+昨晚和一个刚看完go的社畜朋友聊了挺久，和我不一样他对go评价相对较低，但是有几个观点跟我特别一 ...</blockquote>
+我还以为第一点是公认的呢。虽然我是灯推，但我要指出制作组在处理灯这一角色上的问题。灯是小众人设，大多数人不能从内部代入，只能从外部理解，而她的外部形象又太妥协。包括日本人也认为，灯这种孤僻的行事风格，很难成为大家都关心的吉祥物，能不被讨厌、孤立就不错了。很多人无法注意到她十几年交不到朋友，而是注意到周围人都在关心她或者拉拢她，且不说这两点本身就很别扭。另外，她的行为也有矛盾之处。在天桥上对立希的含蓄表白无动于衷，听了初华的两句劝慰就能反攻爱音，除了制作组有意为之没有别的解释。睦也有类似的问题，已经成了下一季我最担心的角色，塑造的难度个人感觉超越祥子。
+
+*****
+
+####  cindy355  
+##### 12919#       发表于 2024-2-17 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979716&amp;ptid=2159415" target="_blank">须贺兰 发表于 2024-2-17 13:53</a>
+
+这是在开玩笑对不对？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我少歌只看了一遍TV，因为情感上共鸣不足没有产生推这个企划的欲望，不太能聊这个问题（
+
+*****
+
+####  Aendst  
+##### 12920#       发表于 2024-2-17 13:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来漏油也对少歌剧本不满意，但是我七话就觉得剧本不行跑路了不太能评价整体（
+
+
+*****
+
+####  cindy355  
+##### 12921#       发表于 2024-2-17 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979704&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-17 13:52</a>
+
+貓希活動我特地看了，把我看萎了
+
+我以為能吃到貓希，結果給我端出了別的東西。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">嘛……怎么说呢……能稍微讲一下猫和立希两个人对live的追求我就已经很满足了，是我太卑微了吗，猫希活动之前我甚至觉得这个团只有1.5个人在乎开live（音乐性）这件事，一个立希半只猫，看了猫希活至少知道猫也是渴求音乐这个归宿本身的了。
+
+*****
+
+####  安洁莉娜  
+##### 12922#       发表于 2024-2-17 13:59
+
+只要承认制作组的水平有限，不去神化某些创作者，很多问题都是妥协产物，真的至于车纸片人吗？
+
+*****
+
+####  安洁莉娜  
+##### 12923#       发表于 2024-2-17 13:59
+
+风怒
+
+*****
+
+####  cindy355  
+##### 12924#       发表于 2024-2-17 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979728&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-2-17 13:55</a>
+
+我还以为第一点是公认的呢。虽然我是灯推，但我要指出制作组在处理灯这一角色上的问题。灯是小众人设，大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我之前很巨魔地说过，“电波系角色对编剧来说很方便，因为编剧无论想让她干啥都能用电波系来解释”，其实阿斯伯格特质也是一样的。
+
+*****
+
+####  相坂君  
+##### 12925#       发表于 2024-2-17 14:00
+
+对剧本要求高？喜欢少歌……
+我对其他观点有部分认同，这句话略有难蚌。
+利益相关，我是克洛推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 12926#       发表于 2024-2-17 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979741&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-17 13:57</a>
+
+原来漏油也对少歌剧本不满意，但是我七话就觉得剧本不行跑路了不太能评价整体（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">该说不说的可能我那朋友也是因为对少歌的情感共鸣充分所以能忽视这些问题了吧，但我真对少歌了解不多，不能这么说。
+
+*****
+
+####  RedSpecial  
+##### 12927#       发表于 2024-2-17 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979598&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-2-17 13:39</a>
+感觉国内对立希的看法多半是塑造不足，和灯绑定太死，又很容易滑到负面形象，如果能和灯松一下绑也喜闻乐见 ...</blockquote>
+立希属于被扭曲怪迫害了，立希虽说和灯绑定，类似书记的王子与燕子，并没有很强的占有欲，而且处世也是六花那种认真，甚至认真过头给自己都上压力。劣等感也是大多数人能共情的，立希喜欢
+
+*****
+
+####  Aendst  
+##### 12928#       发表于 2024-2-17 14:01
+
+睦和灯差远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12929#       发表于 2024-2-17 14:02
+
+独角兽写剧本一直很都合啊，第二第三季的问题基本上都是雷声大雨点小，看起来很严重的事情唱个歌就完美解决，和mygo一个样，毕竟邦邦底层逻辑就是玩乐队，只是国内很多人不能接受这种唐突解决才导致一点小问题老是被车，比如祥子退团嘴灯、mygo素希对爱音队内霸凌，独角兽压根没打算写得那么深刻现实，就像隔壁现在在车灯到底是不是精神病一样，一堆人用三次元标准来判断纸片人行为了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过mygo音乐性要素确实很低，这也是立希沦为灯作曲挂件的一个重要原因，前辈团的音乐性都能体现在无论作词还是作曲都有自己的想法“我想要做这样的音乐”，而狗团的情况是只要表达词好就行了，作曲的人没有自己想写什么曲子的想法，极端一点说就是“灯的歌词很厉害，曲子不是立希写也可以，不用曲子也可以”，这就是把作曲位给了一个没戏份的臭底边的弊端，而三次元羊多次忘词更是有了再高一层的喜剧效果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -5515,3 +5515,11 @@ pc优化真是一坨屎啊，ps版直接加朋友房免去排队，打了这几�
 pc优化真是一坨屎啊，ps版直接加朋友房免去排队，打了这几天除了偶尔闪退/换不了武器/卡第一人称视角/主机 ...</blockquote>
 steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5一个也跑不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 583#       发表于 2024-2-17 22:32
+
+一看战区活跃人数为0，急了，上steam讨论区看还有一帮人也这样，不急了。
+

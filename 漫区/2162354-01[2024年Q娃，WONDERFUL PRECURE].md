@@ -1094,3 +1094,43 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我说学长明明没啥戏份为什么还能一直赖在OP里不走，原来是这么回事啊，果然还是得当大友番进行最恶毒的猜测才行
 
+
+*****
+
+####  jaewoongh_  
+##### 1006#       发表于 2024-2-17 22:27
+
+来点小母狗twi: @hoppetoonaka3
+
+<img src="https://img.saraba1st.com/forum/202402/17/222721hfy9m5s9u11wgwss.jpg" referrerpolicy="no-referrer">
+
+<strong>GGdkfQOaMAAtyOQ.jpg</strong> (62.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 22:27 上传
+
+<img src="https://img.saraba1st.com/forum/202402/17/222721tek5zn7ynkizhe7n.jpg" referrerpolicy="no-referrer">
+
+<strong>GGf9MjSbcAAKfTt.jpg</strong> (89.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 22:27 上传
+
+<img src="https://img.saraba1st.com/forum/202402/17/222722qo111f11tltubbj1.jpg" referrerpolicy="no-referrer">
+
+<strong>GGhsT5TbkAAuwds.jpg</strong> (104.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 22:27 上传
+
+<img src="https://img.saraba1st.com/forum/202402/17/222723bsbql8b89is8abh4.jpg" referrerpolicy="no-referrer">
+
+<strong>GGipENba8AAZJDZ.jpg</strong> (100.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 22:27 上传
+

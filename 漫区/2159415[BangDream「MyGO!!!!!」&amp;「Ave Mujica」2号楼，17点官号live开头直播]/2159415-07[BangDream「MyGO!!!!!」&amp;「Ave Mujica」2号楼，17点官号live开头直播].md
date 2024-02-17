@@ -25708,3 +25708,66 @@ B站cv26092103
 
 我重看才發現原來這麼早就提到祥子カリスマ了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  PDQ4  
+##### 13064#       发表于 2024-2-17 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983600&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-2-17 22:22</a>
+
+可以去玉玉乐队25时没有洁癖可以去玩ba，豚综大伙都说好</blockquote>
+有旺仔头卖麻辣不玩，25时听说轮战马妈还有mzk不玩！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 13065#       发表于 2024-2-17 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983602&amp;ptid=2159415" target="_blank">氷川日菜 发表于 2024-2-17 22:22</a>
+
+生日直播就200人看，好底边一姐妹</blockquote>
+我就在看<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 13066#       发表于 2024-2-17 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982930&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-02-17 21:18:06</a>
+邦邦不会突破这种界限的，不如真期待一下绫奈有生之年会不会有这种百合原创。
+
+不过官方说的话的时候我会当 ...</blockquote>当设定尊重+1，有时候看到半身不重要和把访谈当圣经最后第二季别破防（原话）就很难绷得住<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 13067#       发表于 2024-2-17 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983609&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-17 22:23</a>
+
+我重看才發現原來這麼早就提到祥子カリスマ了</blockquote>
+三回啊三回，监督好喜欢祥子的カリスマ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 13068#       发表于 2024-2-17 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983602&amp;ptid=2159415" target="_blank">氷川日菜 发表于 2024-2-17 22:22</a>
+
+生日直播就200人看，好底边一姐妹</blockquote>
+怎么才200人，火速注册去捧场。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 13069#       发表于 2024-2-17 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983620&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-17 22:24</a>
+
+有旺仔头卖麻辣不玩，25时听说轮战马妈还有mzk不玩！</blockquote>
+说实话不健全的关系感觉还是看漫画轻小说好<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">动画和手游都会包饺子感觉。我最喜欢的糖果子弹也是轻小说。
+

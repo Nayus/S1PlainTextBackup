@@ -25033,3 +25033,28 @@ Q.E.D.
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  缪斯替  
+##### 13007#       发表于 2024-2-17 20:49
+
+ 本帖最后由 缪斯替 于 2024-2-17 20:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+因此她也一直对团内的其它人有滤镜，而且也没怎么尝试过和团里的其它人加深关系……<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">都唱过春日影了还加深什么关系？その必要はない！
+
+而在go的故事里恰好阿爽身边的C团人是对她也很有滤镜愿意给她当信鸽忙前忙后的小睦头……要是换成立希可能这俩就得先打一架了
+
+*****
+
+####  PDQ4  
+##### 13008#       发表于 2024-2-17 20:51
+
+如果是都市言情剧，我毫不怀疑爽世会被设置成对祥子一见钟情拉满滤镜因而无法触及真心的单相思
+
+如果是西幻冒险剧，我私心会觉得爽世会是把祥子当作神明化神崇拜，最虔诚最偏执也最疯癫的信徒。
+
+可惜这是突破不了那层界限的邦邦，祥子也不是神。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

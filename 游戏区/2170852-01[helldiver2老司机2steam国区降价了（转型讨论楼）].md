@@ -4744,3 +4744,11 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 — from Xiaomi 2304FPN6DC, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+*****
+
+####  XXXG01H2  
+##### 503#       发表于 2024-2-17 09:29
+
+反正之前的预告片里是有的：https://b23.tv/7s6jqMX
+

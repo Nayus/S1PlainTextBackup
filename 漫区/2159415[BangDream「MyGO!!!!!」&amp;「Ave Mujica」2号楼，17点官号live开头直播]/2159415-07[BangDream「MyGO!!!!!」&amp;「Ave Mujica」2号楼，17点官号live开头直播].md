@@ -24010,3 +24010,44 @@ https://www.bilibili.com ...</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  基神的强袭自由  
+##### 12907#       发表于 2024-2-17 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978495&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-17 11:26</a>
+ 初華的吉他真的好帥啊    </blockquote>
+是的，我就是那个吉他<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 12908#       发表于 2024-2-17 13:39
+
+感觉国内对立希的看法多半是塑造不足，和灯绑定太死，又很容易滑到负面形象，如果能和灯松一下绑也喜闻乐见，比如上次的猫希活动，官方稍微推了一下立希的和其他人关系，各大论坛就颇有点普天同庆的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12909#       发表于 2024-2-17 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979480&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 13:22</a>
+
+昨晚和一个刚看完go的社畜朋友聊了挺久，和我不一样他对go评价相对较低，但是有几个观点跟我特别一 ...</blockquote>
+这3点都很赞同
+
+1是在邦多利这个人均天使的大背景下挑战所谓的“真实感”方向，并且为“乐队动画所以要靠乐队解决问题”让步所产生的都合主义问题，我觉得是一种基调变动的水土不服，确实存在这个问题，虽然可以理解
+
+2已经骂过很多遍了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+3也是确实存在的剧本上的逻辑问题，mygo成团的过程只能自己去额外理解形成一个自圆其说的找补理由，对剧本有一定逻辑或者框架上的要求自然会觉得奇怪甚至不满意，整体确实就是显得太随意了
+
+出现这些问题的原因我个人认为主要是女性编剧团队擅长情感和关系性的处理但不善于梳理剧本逻辑以及写一些架构严谨的内容，商业上的放送形式决策迷惑，以及基调大改的后遗症
+
+女性编剧的长短板和基调大改导致的问题大概率也会影响续篇动画，所以对剧本要求比较高的话我个人觉得需要降低期待去看
+
+个人认为前篇动画剧本的有趣之处在于符合观众期望的套路（王道）但又有偏离套路给人眼前一亮观感的处理（比如爽世这个角色的塑造，和对偶像题材来说相对少见一点的八点档氛围）以及台本的完成度（回旋镖）
+
+但相应的，有很多地方是真的有“只能认为世界观如此设定如此不然讲不通”的问题
+

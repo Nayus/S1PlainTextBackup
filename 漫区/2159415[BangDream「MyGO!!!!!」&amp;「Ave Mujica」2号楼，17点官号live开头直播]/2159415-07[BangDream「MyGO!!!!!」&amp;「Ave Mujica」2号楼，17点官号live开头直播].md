@@ -25181,3 +25181,42 @@ Q.E.D.
 
 还不如说爽世被祥子魅惑了
 
+
+*****
+
+####  Aendst  
+##### 13018#       发表于 2024-2-17 21:14
+
+ 本帖最后由 Aendst 于 2024-2-17 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982877&amp;ptid=2159415" target="_blank">RedSpecial 发表于 2024-2-17 21:13</a>
+
+设定如此，俗手
+
+还不如说爽世被祥子魅惑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也觉得不如单恋祥子有说服力，可惜是监督原话
+
+绫奈也说过类似的 <blockquote>あとは、CRYCHICにこだわっている子がほしかった。燈は過去から目を逸らしたい気持ちがあって、立希は燈がいればいいと思っている子ですから（笑）。その役目を担うために生まれたのがそよです。</blockquote>
+不知道是不是8+企划带来的限制<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单恋真的会合理很多
+
+*****
+
+####  PDQ4  
+##### 13019#       发表于 2024-2-17 21:18
+
+邦邦不会突破这种界限的，不如真期待一下绫奈有生之年会不会有这种百合原创。
+
+不过官方说的话的时候我会当设定尊重，不涉及这方面讨论的时候我会造谣。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缪斯替  
+##### 13020#       发表于 2024-2-17 21:19
+
+是啊，阿爽这种多少有点自闭的优等生，突然对某种事物产生巨大感动之后的行动模式我感觉是不算夸张的
+
+庸碌麻木的平凡人突然被某个事业、事物或者宗教启发然后产生巨大热情甚至飞蛾扑火也算是个很常见的母题了。
+
+而我对阿爽的理解就是她本质上是个会伪装成社牛的社交苦手，灯是希望比别人互相理解但是做不到，而阿爽是遗忘了人与人的深入交流到底是什么样的
+
+缺乏自主建立亲密关系以及和人交心的能力，却在C团的春日影中恰好对上电波体会到了强烈的情感共鸣，始终没能理解其中真谛的阿爽把C团这个形式和事件中共鸣共感的本质相混淆，导致她一直以为C团这个形式和她理想中的亲密关系是绑定的
+

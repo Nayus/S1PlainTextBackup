@@ -5612,3 +5612,13 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 这吊游戏的制作组到底玩不玩自己的游戏？机器人的高难度撤退任务制作组自己到底有没有通过？尼玛的40个人撤 ...</blockquote>
 高难靠炮台，四个人八门炮很容易的
 
+
+*****
+
+####  smdzh2  
+##### 593#       发表于 2024-2-17 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984090&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-18 00:27</a>
+草，什么鬼BUG</blockquote>
+这个bug从开服就有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

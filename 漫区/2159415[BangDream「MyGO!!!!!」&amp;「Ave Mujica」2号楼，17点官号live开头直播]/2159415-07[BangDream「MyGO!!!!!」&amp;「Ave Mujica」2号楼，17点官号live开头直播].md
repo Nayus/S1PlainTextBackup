@@ -24891,3 +24891,20 @@ mio是能和灯的一起 ...</blockquote>
 
 ccc是什么爽世特攻的锁情咒吗，还得祥子本人一对一去解。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穗波殊  
+##### 12993#       发表于 2024-2-17 19:41
+
+还有一点不满是前期那个台词表，里面的台词全是以我没想象过的地方出现的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不过到最后那张表全是整蛊，反而感到一种幽默感。
+
+*****
+
+####  RedSpecial  
+##### 12994#       发表于 2024-2-17 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982002&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-2-17 19:30</a>
+遇见不能细想的问题我的做法都是不细想不去理解去感受，大喊哇布洗就行。 ...</blockquote>
+可当你细想的时候，别人的动机与行为都息息相关，不由击节称快，到爽姐这就抽象了
+

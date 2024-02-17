@@ -689,3 +689,47 @@ Ubw线里呆毛在前线扛着，红a在远程狙击，结果红a所有箭矢通
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  突发性哮喘病患  
+##### 64#       发表于 2024-2-17 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981925&amp;ptid=2171748" target="_blank">漆黑之花 发表于 2024-2-17 19:20</a>
+
+saber是用了令咒，你说三、四秒就可以跑完四公里那就是时速3600公里，海无力这数据你不觉得有问题？
+
+— ...</blockquote>
+
+是卫宫士郎没出息，没法提供足够的魔力进行魔力放出的爆发移动，只能选择用令咒填充魔力，换成伊利亚就解决了。
+
+<img src="https://img.saraba1st.com/forum/202402/17/193711qj42n44yfk4sk2ck.png" referrerpolicy="no-referrer">
+
+<strong>AH7`SHYHQM`]XK~[[]WVN6J.png</strong> (53.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 19:37 上传
+
+简单的来说机体性能没有问题，魔力填充有问题
+
+*****
+
+####  DARKGRAY  
+##### 65#       发表于 2024-2-17 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981013&amp;ptid=2171748" target="_blank">eilot 发表于 2024-2-17 17:07</a>
+
+等级够就算能炸，也只是1條命，火力再多也只是燒多一條血，之後就耐性提高到近無效 ...</blockquote>
+能打死1条就能多准备几把低级的来炸几条，虽然没这魔给12条全炸完，而且在短时间内依次炸定点也没啥可能炸得完吧，甚至这还得建立在情报红A的基础上，果然还是炸伊莉雅才靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 66#       发表于 2024-2-17 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981974&amp;ptid=2171748" target="_blank">广西桂系兵 发表于 2024-2-17 19:26</a>
+
+Ubw线里呆毛在前线扛着，红a在远程狙击，结果红a所有箭矢通通不破防，只有用伪螺旋剑幻想崩坏收了狂海一 ...</blockquote>
+就最早涉及到多血条的论据来看，我还是倾向于早期人们的论点，游戏里的幻崩也只是炸了个爽，并没有什么卵用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

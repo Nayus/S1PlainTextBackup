@@ -5414,3 +5414,13 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 孤狼不配玩</blockquote>
 这个真是局域网的问题
 
+
+*****
+
+####  星野心叶  
+##### 572#       发表于 2024-2-17 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982021&amp;ptid=2170852" target="_blank">2VYBGp94 发表于 2024-2-17 19:33</a>
+这个真是局域网的问题</blockquote>
+大概没关系，他们最新的一条推特下面各个国家的人都表示匹配不到SOS信号
+

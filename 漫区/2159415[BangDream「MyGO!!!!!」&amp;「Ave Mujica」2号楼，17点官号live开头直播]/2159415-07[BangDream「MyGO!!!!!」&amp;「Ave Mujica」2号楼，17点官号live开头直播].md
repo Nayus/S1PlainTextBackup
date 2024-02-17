@@ -24362,3 +24362,92 @@ https://www.bilibili.com ...</blockquote>
 有一说一，羊那么摆烂都能吸引一堆gachi，灯受欢迎至少比羊受欢迎要合理吧，灯至少性格确实不错还有（设定 ...</blockquote>
 你认真的吗，有几个是灯厨转羊噶，全TM是肉体，肉体！
 
+
+*****
+
+####  cindy355  
+##### 12942#       发表于 2024-2-17 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979868&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-2-17 14:15</a>
+
+并不是，我除了灯对立希的态度都能代入，至少按我自己的理解和情绪去代入。对我来说这是一个刻画得很细腻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">确实如此吧，人和人终归还是不可能相互理解，只能相互包容的，在这点上倒也不是不能接受灯的自闭，哪怕其他人再包容，没有能互相理解的人还是会很痛苦的（永恒的痛苦，在这点上我很悲观，所以反而我认为爱音和灯也不是互相理解，只是在互相包容，所以我不理解为什么灯就不痛苦了……）。
+
+*****
+
+####  须贺兰  
+##### 12943#       发表于 2024-2-17 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979728&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-2-17 13:55</a>
+
+很多人无法注意到她十几年交不到朋友</blockquote>
+抛开你的观点不谈，灯怎么就“十几年交不到朋友”？她在幼儿园就有mio这个愿意和她玩，还有一定共鸣的朋友
+
+<img src="https://img.saraba1st.com/forum/202402/17/142639wv8lzhnwh5nzb7hk.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-02-17_14-18-32.png</strong> (87.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 14:26 上传
+
+甚至在送了西瓜虫后还愿意继续交往
+
+<img src="https://img.saraba1st.com/forum/202402/17/142639mv0jjtt6r78trirx.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-02-17_14-18-55.png</strong> (29.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 14:26 上传
+
+后面在她的笔记本里也提过交到了朋友，从表现上看，至少是能在上学途中一起交流昨晚电视节目的表面朋友
+
+<img src="https://img.saraba1st.com/forum/202402/17/142639rt7q9lzt2x3e3xz9.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-02-17_14-23-08.png</strong> (281.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 14:26 上传
+
+*****
+
+####  NODY  
+##### 12944#       发表于 2024-2-17 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979925&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-2-17 14:22</a>
+
+你认真的吗，有几个是灯厨转羊噶，全TM是肉体，肉体！</blockquote>
+我的意思就是羊整天演一些一眼就能看出来的天然电波行为还在live摆烂都能吸引一堆觉得她这样可爱又真实的gachi
+
+那灯起码电波不是演的，会主动和人打交道，live也不会忘词不会唱劈，在剧情设定上受欢迎不是很合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tuichu0425  
+##### 12945#       发表于 2024-2-17 14:30
+
+<blockquote>安洁莉娜 发表于 2024-2-17 14:22
+你认真的吗，有几个是灯厨转羊噶，全TM是肉体，肉体！</blockquote>
+** 真是肉体厨就来和我一起厨立石凛啊
+
+凛酱笑起来超可爱的
+
+*****
+
+####  安洁莉娜  
+##### 12946#       发表于 2024-2-17 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979940&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 14:24</a>
+
+确实如此吧，人和人终归还是不可能相互理解，只能相互包容的，在这点上倒也不是不能接受灯的自闭 ...</blockquote>
+可能我没有表达清楚，我的意思是我代入灯的时候自动把人际难度调高，忽略动画里原本的路人环境，因为我觉得太假了只是向邦世界观妥协的结果。或者说，我把世界观换成了魔圆那种氛围的。
+
+*****
+
+####  RedSpecial  
+##### 12947#       发表于 2024-2-17 14:33
+
+车mygo都合，我躺地上想了想就诗超绊即兴都合了吧，也不是不能找补——灯猫立三个人一直在演奏，可以有个谱；爱音上午在学校被灯抓拿归案，下午才堵爽，中午可以看谱。然后爽是天才
+

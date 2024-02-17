@@ -4948,3 +4948,18 @@ sony说万一你们这蝗了一波就不玩了呢？我这服务器多租了不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">死都进不去咋整
 
+
+*****
+
+####  ykyin09  
+##### 525#       发表于 2024-2-17 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进去了打了一盘没钱没经验
+
+*****
+
+####  Launce  
+##### 526#       发表于 2024-2-17 14:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瑞典好像不太加班，每次周末都是纯摆烂
+

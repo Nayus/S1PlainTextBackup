@@ -5713,3 +5713,11 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 还没修好啊 现在变成单机了
 
+
+*****
+
+####  kalavinka  
+##### 603#         楼主| 发表于 2024-2-18 02:12
+
+刚发现自己飞船上飞船名贴图是不是也反了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

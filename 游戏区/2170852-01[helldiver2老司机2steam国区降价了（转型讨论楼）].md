@@ -5687,3 +5687,13 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 今天入坑的萌新：这游戏是不是没人玩啊
 
+
+*****
+
+####  Sayuki1025  
+##### 600#       发表于 2024-2-18 01:24
+
+想跟野队混点粉色样本 结果匹配不到人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

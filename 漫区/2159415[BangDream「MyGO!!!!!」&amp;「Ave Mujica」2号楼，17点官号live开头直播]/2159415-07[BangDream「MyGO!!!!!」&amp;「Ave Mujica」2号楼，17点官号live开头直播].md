@@ -24846,3 +24846,48 @@ mio是能和灯的一起 ...</blockquote>
 
 爽姐念念不忘C团单纯就是把命运共同体这个虚假广告当真，觉得家庭破碎的自己能找到一个永远不会变的家，所以一直预设一个祥子还愿意回来的前提，直到惊天一跪才意识到只有她自己把这话当真了，其他人早就不打算重建C团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RedSpecial  
+##### 12988#       发表于 2024-2-17 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981884&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 19:14</a>
+爽姐念念不忘C团单纯就是把命运共同体这个虚假广告当真，觉得家庭破碎的自己能找到一个永远不会变的家，所 ...</blockquote>
+还是解释不了她和几个队员都不熟，除非这么一说，她认为这个家，祥子是家长掌管一切，她是好女儿是润滑剂，现在妈妈不要这个家了我得发挥作用团结姐妹，把妈拉回来。谁知道妈是真不要这个家了
+
+*****
+
+####  PDQ4  
+##### 12989#       发表于 2024-2-17 19:28
+
+你萝还是无敌，有点看悸动了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12990#       发表于 2024-2-17 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">萝最后这个合唱安排真不错
+
+*****
+
+####  穗波殊  
+##### 12991#       发表于 2024-2-17 19:30
+
+遇见不能细想的问题我的做法都是不细想<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不去理解去感受，大喊哇布洗就行。
+
+*****
+
+####  PDQ4  
+##### 12992#       发表于 2024-2-17 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981884&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 19:14</a>
+
+爽姐念念不忘C团单纯就是把命运共同体这个虚假广告当真，觉得家庭破碎的自己能找到一个永远不会变的家，所 ...</blockquote>
+说到这个有点搞笑，解散那一天以后，所有人都默认回不去了，就爽世抓着祥子当初说的话当救命稻草。
+
+结果到了狗这，爱音局外人观望，反而是爽世一开始就把回应灯的一辈子当假话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ccc是什么爽世特攻的锁情咒吗，还得祥子本人一对一去解。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

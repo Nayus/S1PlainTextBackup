@@ -5396,3 +5396,21 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 修正了789难度过于简单的问题……</blockquote>
 官方说too easy呢，难以想象这些关卡还要怎么往上堆怪...
 
+
+*****
+
+####  一之江瑞江  
+##### 570#       发表于 2024-2-17 19:27
+
+修了个甚么 直接卡在搜SOS信号了
+
+*****
+
+####  2VYBGp94  
+##### 571#       发表于 2024-2-17 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981859&amp;ptid=2170852" target="_blank">星野心叶 发表于 2024-2-17 19:13</a>
+匹配不到人
+孤狼不配玩</blockquote>
+这个真是局域网的问题
+

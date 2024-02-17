@@ -1595,3 +1595,14 @@ btw，所以这个大炮听说就是之前带菜宝节奏的，那这个传到�
 
 说实话，星这个企划搞得，从一开始就不应该出现铃原这种一期海选落榜坐冷板凳等一年半载去当二期生这个空子，这个位置比鼓子接手灯还难崩。说实话这还没到绷不住的时候呢，等g店二期看板投出来才是炸的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 19595#       发表于 2024-2-17 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977433&amp;ptid=2078110" target="_blank">we89623 发表于 2024-02-17 08:46:37</a>
+国内一些人现在玩命黑non，但鱼还要跟non搞好关系，以后如果还有之前那样鱼带全队给国内拜年那种“福利” ...</blockquote>你想的有点远，鱼是因为这点破事就避嫌的人吗？她要不带铃原玩只能说俩人关系不咋好国内黑不黑都不影响，她俩关系好鱼带她玩要是有谁阴阳那是阴阳的人有病，而且这种煞风景的傻逼到时候就会有人骂了，昨天在情人节花絮蹦跶的黑子不就被人骂删评了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

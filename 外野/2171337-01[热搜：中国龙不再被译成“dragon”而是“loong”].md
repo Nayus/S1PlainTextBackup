@@ -222,3 +222,40 @@ dragon意译是蛇怪蜥怪物，是骇人之物，是要关进宛平南路非�
 假如有一天冒出来一个爬行类国家，我们肯定是和龙王爷的合法政府建交，坚决支持他们打击dragon黑社会走私偷盗非法集团的一切行动的。
 dragon译为多拉贡蛮好的，能让人联想到德古拉伯爵。冷知识，两个是同源词，是精怪。
 
+
+*****
+
+####  蒹葭公子  
+##### 227#       发表于 2024-2-17 09:03
+
+ 本帖最后由 蒹葭公子 于 2024-2-17 09:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977134&amp;ptid=2171337" target="_blank">芦-中-人 发表于 2024-2-17 05:00</a>
+
+dragon是可以长条，龙也可以短条，这点许慎也是支持的，所谓能大能小，能升能隐嘛。
+
+但你后半截是怎么一 ...</blockquote>
+你是怎么会理解成这样的？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我是说dragon=龙，有翼四脚蛇跟中国龙都是这个概念的子集……
+
+至于什么打趣说法dragon怎么翻译这个基本上就没法实现，也不必讨论了。
+
+以及纠结原义也没啥必要，我只是单纯认为dragon和龙本质上都能涵盖极大范围，wyvern是dragon，双足飞龙也有龙字，那么把dragon翻译成龙并作为最大合集没有任何不方便。
+
+*****
+
+####  蒹葭公子  
+##### 228#       发表于 2024-2-17 09:05
+
+ 本帖最后由 蒹葭公子 于 2024-2-17 09:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977103&amp;ptid=2171337" target="_blank">wuuuuuud 发表于 2024-2-17 04:30</a>
+
+日本人把什么都能当成龙：[https://dragalialost.wiki/w/Dragon_Grid](https://dragalialost.wiki/w/Dragon_Grid)
+
+根本没有讨论的意义 ...</blockquote>
+不是……
+
+你们都不看我表达的内核去纠结一些细枝末节是什么意思？
+
+我当然知道日本人把什么玩意儿都当成龙，我的意思是难道你在翻译的时候把这些东西统统排除龙这个概念？都要生造一个什么词来对应？
+

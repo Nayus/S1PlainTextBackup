@@ -4723,3 +4723,14 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 机器人那疏散任务，我6级以上就没赢过，40个人员每次疏散到28个基本上就崩盘了，空投艇扔坦克一辆接一辆，刚打掉一辆，一回头，又出现两辆，喷火的巨型机甲还追着你嗷嗷喷，刚落下来就脸接了两发导弹被肢解，这任务不用复制轨道武器的bug到底怎么才能过啊…………
 
+
+*****
+
+####  FLZB  
+##### 501#       发表于 2024-2-17 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977131&amp;ptid=2170852" target="_blank">桥洞底下盖小被 发表于 2024-2-17 04:58</a>
+
+单兵武器最好打吐酸泰坦的是磁轨炮吗</blockquote>
+飞矛稳定性高一点，磁轨炮可能是一枪，也可能是两枪，还可能是三四五六七八九十枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

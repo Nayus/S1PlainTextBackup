@@ -805,3 +805,14 @@ Q娃现在还有哪里有海外播放的？
 （决定重温天Q前5集） ...</blockquote>
 目前的展开没什么可讨论的吧，舔小麦舔彩羽就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 979#       发表于 2024-2-17 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978272&amp;ptid=2162354" target="_blank">月夜凝雪 发表于 2024-2-17 10:59</a>
+说起来就连面包超人这种超古董都有海外玩具收益，
+Q娃现在还有哪里有海外播放的？</blockquote>
+现在我就记得港台还有在播Q娃（香港从之前的TVB更换到ViuTV）
+

@@ -129,3 +129,13 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 为什么我mihon看不见第三方拷贝插件 仓库也弄了单独插件也下载了 不管是插件列表还是仓库里都看不见 ...</blockquote>
 在确认给了mihon应用列表读取权限、在设置-浏览-勾选显示18+图源、在插件列表筛选中勾选“中文”（不是简中和繁中）的前提下，在插件列表那直接搜索“copy”看看？
 
+
+*****
+
+####  iceddd  
+##### 174#       发表于 2024-2-18 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981569&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-2-17 18:32</a>
+在确认给了mihon应用列表读取权限、在设置-浏览-勾选显示18+图源、在插件列表筛选中勾选“中文”（不是简 ...</blockquote>
+弄好了 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

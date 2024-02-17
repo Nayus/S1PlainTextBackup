@@ -24838,3 +24838,11 @@ mio是能和灯的一起 ...</blockquote>
 
 我在说自己被邪恶的α男思想浸润这件事，需要灵魂深处闹革命，没有车素食的意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 12987#       发表于 2024-2-17 19:14
+
+爽姐念念不忘C团单纯就是把命运共同体这个虚假广告当真，觉得家庭破碎的自己能找到一个永远不会变的家，所以一直预设一个祥子还愿意回来的前提，直到惊天一跪才意识到只有她自己把这话当真了，其他人早就不打算重建C团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

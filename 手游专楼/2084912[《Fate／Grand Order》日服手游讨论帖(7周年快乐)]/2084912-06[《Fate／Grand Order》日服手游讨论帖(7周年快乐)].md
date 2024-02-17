@@ -432,3 +432,26 @@ OKSG空下来了估计会整魔箱的活作为微型联动（类似之前班扬�
 
 走错楼
 
+
+*****
+
+####  シャル  
+##### 11387#       发表于 2024-2-17 19:15
+
+单抽一把出五星礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个卡面好看
+
+*****
+
+####  シャル  
+##### 11388#       发表于 2024-2-17 19:19
+
+ 本帖最后由 シャル 于 2024-2-17 19:20 编辑 
+
+妖精国这帮人真是太甜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甜的发腻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+术呆除外<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

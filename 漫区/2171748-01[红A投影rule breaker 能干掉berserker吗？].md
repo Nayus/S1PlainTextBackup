@@ -643,3 +643,15 @@ saber线打近战都能杀五命了，红A专注打狙击B叔怎么打？红A射
 
 海无力根本防不了远程攻击
 
+
+*****
+
+####  漆黑之花  
+##### 60#       发表于 2024-2-17 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981769&amp;ptid=2171748" target="_blank">突发性哮喘病患 发表于 2024-2-17 19:02</a>
+四公里对于海格力斯这种级别的英灵来说大概也就三四秒爆发吧，实际上不管士郎saber能直接轰到红A ...</blockquote>
+saber是用了令咒，你说三、四秒就可以跑完四公里那就是时速3600公里，海无力这数据你不觉得有问题？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

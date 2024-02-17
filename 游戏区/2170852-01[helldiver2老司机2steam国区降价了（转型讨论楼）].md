@@ -5622,3 +5622,36 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 草，什么鬼BUG</blockquote>
 这个bug从开服就有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 594#       发表于 2024-2-18 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏需要强沟通吗，还是每个人做好自己的部分就行了
+
+有点想买，但是好兄弟估计不会买
+
+*****
+
+####  Launce  
+##### 595#       发表于 2024-2-18 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984380&amp;ptid=2170852" target="_blank">zzy516232108 发表于 2024-2-18 00:09</a>
+
+这游戏需要强沟通吗，还是每个人做好自己的部分就行了
+
+有点想买，但是好兄弟估计不会买 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不需要，游戏自带的Q转盘+PING基本解决所有问题了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">唯一强沟通就是和熊弟口腔体操
+
+*****
+
+####  Launce  
+##### 596#       发表于 2024-2-18 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984313&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-2-17 23:59</a>
+
+这个bug从开服就有了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我是今天补丁后才遇到的
+

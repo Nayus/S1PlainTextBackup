@@ -25869,3 +25869,22 @@ MyGO动画制作的幕后 BanG Dream! It’s MyGO!!!!!セッション
 
 总之负面百合是豚综好球点，欢迎入驻豚综讨论<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13076#       发表于 2024-2-17 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983741&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-02-17 22:37:29</a></blockquote>对的，赞一个
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 13077#       发表于 2024-2-17 22:51
+
+节约宝儿熊熊睡衣好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+朱紫御三家竟然喜欢火主，起名也是ホゲホゲ，喜欢呆呆的人是吗，代了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

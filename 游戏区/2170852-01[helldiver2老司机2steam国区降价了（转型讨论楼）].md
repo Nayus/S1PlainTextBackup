@@ -5523,3 +5523,11 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 一看战区活跃人数为0，急了，上steam讨论区看还有一帮人也这样，不急了。
 
+
+*****
+
+####  逆袭的黑月  
+##### 584#       发表于 2024-2-17 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">匹配是不是又炸了
+

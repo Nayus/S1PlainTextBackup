@@ -15139,3 +15139,13 @@ dlc要是难到打不下去再来工坊爽金工。
 
 这次发电厂59场康，反而比工坊艰难.....卷管枪那玩意真的难玩
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 2982#       发表于 2024-2-18 00:55
+
+好耶工坊金工
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

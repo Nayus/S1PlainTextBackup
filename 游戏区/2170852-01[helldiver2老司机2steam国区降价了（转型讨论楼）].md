@@ -5096,3 +5096,28 @@ xbox收了中箭头吧
 垃圾服务器造就了这几年最差的联机体验</blockquote>
 一切为了微交易
 
+
+*****
+
+####  looptube  
+##### 543#       发表于 2024-2-17 16:47
+
+遇到了新bug，按E和物品互动后人物就完全卡死了，只有视角可以操作其他都不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cloudcc  
+##### 544#       发表于 2024-2-17 16:48
+
+怎么连防作弊软件更新都能出事，这瑞典傻逼还能搞得成什么，用飞矛打进ass爆炸么
+
+*****
+
+####  2VYBGp94  
+##### 545#       发表于 2024-2-17 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980853&amp;ptid=2170852" target="_blank">looptube 发表于 2024-2-17 16:47</a>
+
+遇到了新bug，按E和物品互动后人物就完全卡死了，只有视角可以操作其他都不行 ...</blockquote>
+不算新bug，找队友用手雷离远点炸一下，或者多罚站一会
+

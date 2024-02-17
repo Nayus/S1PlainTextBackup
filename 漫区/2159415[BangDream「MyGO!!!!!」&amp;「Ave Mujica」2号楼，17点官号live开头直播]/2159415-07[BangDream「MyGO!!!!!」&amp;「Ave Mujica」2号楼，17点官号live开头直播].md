@@ -24704,3 +24704,27 @@ mio是能和灯的一起 ...</blockquote>
 ……那个啥，我是真不懂少歌，只看了tv而且就一遍没怎么细看，只是我因为没觉得mygo的剧本问题有这 ...</blockquote>
 按母鸡卡的说法就是接不接受世界观的事而已<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 12972#       发表于 2024-2-17 16:48
+
+少歌的剧本挺一般的，尤其tv，古川终究还没到出师的程度。整个动画只能去放空大脑feel，你朋友就算对剧本要求高，可能看少歌的时候对上电波脑子被雷普了，根本没法思考剧本吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过revue的形式我确实很馋，想在mujica里也看到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 12973#       发表于 2024-2-17 16:51
+
+ 本帖最后由 66367749 于 2024-2-17 16:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980311&amp;ptid=2159415" target="_blank">须贺兰 发表于 2024-2-17 15:21</a>
+那不是因为动画时间有限，单纯没提，怎么能说明她们后来（幼儿园毕业前）没继续交流？
+
+mio是能和灯的一起 ...</blockquote>
+这是灯对别人有隔阂，不是别人对灯有深的隔阂，至少班上对她都挺友善的。朋友也没说样样事情都要有同样兴趣。
+她没有强的驱动力和能动性去深入了解接触别人，听到别人和她聊不懂的电视节目话题也不会去进行了解，而是加深了特立独行的孤独感，这能保护自己不受伤害。
+所以在剧情中后段灯能主动去拉队友回乐队，表达强烈的个人想法，这是这个角色的成长和高光。至少我是这么觉得的。
+

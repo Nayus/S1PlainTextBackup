@@ -416,3 +416,24 @@ https://bbs.saraba1st.com/2b/thread-2162715-1-1.html
 
 —— 来自 realme RMX3560, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  SinoWarrior  
+##### 44#       发表于 2024-2-17 22:13
+
+<img src="https://img.saraba1st.com/forum/202402/17/221328wc1ie9rxiv3xr53v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (161.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 22:13 上传
+
+*****
+
+####  hunterkiller  
+##### 45#       发表于 2024-2-17 22:14
+
+这玩意全世界用的厂就3家了，为啥还要组装调试完了拆掉再运到foundry厂装起来？不能一开始就去foundry的厂房里安装么？
+

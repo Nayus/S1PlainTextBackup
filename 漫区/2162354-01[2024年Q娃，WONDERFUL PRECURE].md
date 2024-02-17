@@ -1054,3 +1054,25 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 这初代占比这么大，感觉就是单纯的认知度测试，而且票数也太少了。 ...</blockquote>
 调查对象是日本的社会人，确实就是靠知名度，还有身边熟人了。
 
+
+*****
+
+####  pokemon最爱  
+##### 1001#       发表于 2024-2-17 22:01
+
+法Q和5gogo感觉还是吃了去年公布成Q系列企划刷了波知名度，无印满心差这么多而且第一对第二这个碾压说明这应该单纯是认知度榜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟就算没看过片子“两个人是Precure”这个句子本身也是很有名的梗了（
+
+*****
+
+####  猫屋敷ゆき  
+##### 1002#       发表于 2024-2-17 22:05
+
+喵~<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 1003#       发表于 2024-2-17 22:10
+
+话说好像天Q感谢祭出现了黑天空侠（Black Sky，据说设定和本篇的暗堕天空侠Dark Sky设定不太一样），那么汪Q后面会不会有小麦被反派暗算变成Garugaru的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

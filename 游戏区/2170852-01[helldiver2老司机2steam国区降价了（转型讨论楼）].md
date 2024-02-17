@@ -5481,3 +5481,26 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下午匹配还好好的，就是匹配到的都是鬼佬，而且感觉星球人数暴增
 
+
+*****
+
+####  Launce  
+##### 580#       发表于 2024-2-17 22:11
+
+<img src="https://img.saraba1st.com/forum/202402/17/221117ltwz04e2g4wi4ggq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (289.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 22:11 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，发现氪金也改RMB了
+
+*****
+
+####  conanoysq  
+##### 581#       发表于 2024-2-17 22:11
+
+pc优化真是一坨屎啊，ps版直接加朋友房免去排队，打了这几天除了偶尔闪退/换不了武器/卡第一人称视角/主机卡帧以外也没有什么bug了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

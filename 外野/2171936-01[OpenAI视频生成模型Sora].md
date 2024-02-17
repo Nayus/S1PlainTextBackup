@@ -675,3 +675,15 @@ GPT Category: productivity
 
 调用的能力只有dalle、网页访问、代码解释器
 
+
+*****
+
+####  byfaith  
+##### 70#       发表于 2024-2-17 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63971014&amp;ptid=2171936" target="_blank">可爱美味祥子 发表于 2024-2-16 12:30</a>
+这玩意可以大批量产出污染短视频平台的片段么，以后赛博营销号会不会就是这么运作的 ...</blockquote>
+不用以前。现在的营销号已经铺天盖地的ai图 ai配音 ai生产文案了
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

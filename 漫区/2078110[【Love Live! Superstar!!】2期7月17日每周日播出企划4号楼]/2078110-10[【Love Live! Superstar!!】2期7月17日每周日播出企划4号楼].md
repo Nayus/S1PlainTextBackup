@@ -1575,3 +1575,13 @@ btw，所以这个大炮听说就是之前带菜宝节奏的，那这个传到�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  we89623  
+##### 19593#       发表于 2024-2-17 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977403&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-2-17 08:36</a>
+差不多得了，引流狗傻逼，但也别动不动友邦惊诧行吗？这事到底跟鱼有啥关系？跟外国人怎么看又有什么关系？ ...</blockquote>
+国内一些人现在玩命黑non，但鱼还要跟non搞好关系，以后如果还有之前那样鱼带全队给国内拜年那种“福利”还带不带non玩了？ 带到时候会被人阴阳，不带更会变一种方式阴阳，最后就是这种“福利”不会有了。
+

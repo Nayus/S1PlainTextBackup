@@ -23758,3 +23758,40 @@ https://www.bilibili.com ...</blockquote>
 
 祥子也就嘴灯不练习和开命运共同体空头支票的问题，前者已经逐渐被三次元回旋镖了，后者反正也只有soyo一个人信（刚好隔壁也开了另一个楼在车soyo是小丑，可以说是相映成趣）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 12881#         楼主| 发表于 2024-2-17 12:28
+
+<blockquote>Aendst 发表于 2024-2-17 12:14
+退团到底有什么好吵的，都2024了</blockquote>
+今年才2024?这个问题至少要2025才可能解决。
+
+*****
+
+####  相坂君  
+##### 12882#       发表于 2024-2-17 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为有什么新论调…哦！还真有！
+高中生哪有多少生活压力！爹妈和自尊要来干嘛啊！哇塞<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 12883#       发表于 2024-2-17 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">快住手，一想到2025才播就会感到很崩溃
+
+联想到新曲有可能是一单发售后才会开始放出更崩溃了
+
+*****
+
+####  asda  
+##### 12884#       发表于 2024-2-17 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63972183&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-2-16 15:30</a>
+
+感觉这两年可能真的是动物朋友的主推期，如果她确定了要专注配音路线的话那怎么安排给🐶的时间就成了很麻烦 ...</blockquote>
+鼓路线不同，她就不像想当声优的，现在是2.5次元特化，就拉邦和舞台剧
+

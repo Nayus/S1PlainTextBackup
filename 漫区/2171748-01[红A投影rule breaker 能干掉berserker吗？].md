@@ -605,3 +605,15 @@ Caliburn原本是儀式用劍。若將其用作武器，
 
 海无力能横行完全只有在对面输出不够的情况下
 
+
+*****
+
+####  漆黑之花  
+##### 57#       发表于 2024-2-17 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981586&amp;ptid=2171748" target="_blank">广西桂系兵 发表于 2024-2-17 18:35</a>
+真把赫拉克勒斯当成希腊木桩了吗</blockquote>
+saber线打近战都能杀五命了，红A专注打狙击B叔怎么打？红A射程可是在四公里以上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

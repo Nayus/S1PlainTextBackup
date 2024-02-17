@@ -24800,3 +24800,11 @@ mio是能和灯的一起 ...</blockquote>
 
 这也注定祥子和爱音两个人在爽世心里占有与众不同的份量<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穗波殊  
+##### 12982#       发表于 2024-2-17 18:51
+
+因为我觉得感情这样很丑陋<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">虽然日常聊天喜欢用土下座表情，实属宽以律己了
+

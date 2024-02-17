@@ -5333,3 +5333,35 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RockingHorse  
+##### 563#       发表于 2024-2-17 18:45
+
+一天一修复，修了个寂寞
+
+*****
+
+####  XXXG01H2  
+##### 564#       发表于 2024-2-17 18:48
+
+修正了789难度过于简单的问题……
+
+*****
+
+####  FLZB  
+##### 565#       发表于 2024-2-17 18:52
+
+更新完匹配又坏了，就自己solo刷点超级样本，折腾差不多20分钟就做完一个主线目标，太踏马累了，同类型游戏我真是从来没玩过这么坐牢的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 566#       发表于 2024-2-17 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981710&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-2-17 18:52</a>
+
+更新完匹配又坏了，就自己solo刷点超级样本，折腾差不多20分钟就做完一个主线目标，太踏马累了，同类型游戏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不止匹配坏了，星球活动记录也废了，全是0
+

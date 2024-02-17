@@ -24502,3 +24502,27 @@ https://www.bilibili.com ...</blockquote>
 诗超绊反倒是被三次元乐队人明确论证过节奏吉他和贝斯部分没什么难度所以理论上可以做到的，被车都合的是为 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说之前确实有点太神化独角兽了，还是平常心以普通的推2偶企划的心态来推这个企划吧……（诶，立希推真的做得到吗，一想到这应该是个2偶企划又对立希的待遇坐不住了）。
 
+
+*****
+
+####  RedSpecial  
+##### 12953#       发表于 2024-2-17 14:44
+
+ 本帖最后由 RedSpecial 于 2024-2-17 14:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980014&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 14:35</a>
+但是编剧自己盖板不可能再演出第二次了，无非就是为了12话要放两首新曲的MV所以直接把诗超绊打成 ...</blockquote>
+11-13话在结构上就没前十话剧情重要
+怎么就发出来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12954#       发表于 2024-2-17 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980053&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 14:41</a>
+
+只能说之前确实有点太神化独角兽了，还是平常心以普通的推2偶企划的心态来推这个企划吧……（诶， ...</blockquote>
+事实上你不在意国内讨论圈子的话立希待遇其实还可以，武士道其他企划有待遇边缘到几年没出过活动剧情的真底边，邦邦还是比较端水的，只看海外讨论的话立希风评也没那么烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我对邦邦唯一的意见就是三次元live质量差到让我直呼退钱，武士道又不肯把歌词分给mygo其他人唱，什么时候把羊换了或者改策略以后每首歌都让其他人多唱几句我就满意了
+

@@ -1658,3 +1658,14 @@ btw，所以这个大炮听说就是之前带菜宝节奏的，那这个传到�
 
 FC的票到手，感觉给小日子留的票都比较靠后呢
 
+
+*****
+
+####  csolfans  
+##### 19602#       发表于 2024-2-17 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977400&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-2-17 08:35</a>
+
+放宽心，那个视频哪怕鬼佬只看默认热评也看不出多少成分明显是鲤鱼粉丝，更别说倒序现在一堆免责声明自己是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">菜宝那次70w啊；话说叔叔的确喜欢给大炮引流，我一个40+的亲戚，B站只留意航空相关，首页都能出现大炮的视频
+

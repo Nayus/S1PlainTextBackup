@@ -547,3 +547,11 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 
 啧啧啧，用心果然恶毒！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油条小贩  
+##### 248#       发表于 2024-2-17 12:02
+
+高楼必有智障
+

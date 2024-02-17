@@ -746,3 +746,16 @@ sora➕nerf/3dgs手快的人已经跑完了<img src="https://static.saraba1st.co
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mimighost  
+##### 77#       发表于 2024-2-17 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977918&amp;ptid=2171936" target="_blank">ddwhzh 发表于 2024-2-17 10:07</a>
+
+求谷歌什么时候不造假再说ai水平，信谷歌不如信meta开源，至少对社会有利 ...</blockquote>
+gemini ultra我在用
+
+我觉得和gpt4差别已经很小了，我两个都用
+

@@ -23712,3 +23712,25 @@ https://www.bilibili.com ...</blockquote>
 
 隔壁二极管罢了，要么对要么错，没汴出来只会一直汴下去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜苗  
+##### 12876#       发表于 2024-2-17 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978683&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-2-17 11:46</a>
+隔壁潭怎么又开始辩退团理由了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+什么退团，祥子退c团吗？这玩意现在怎么汴啊，战争迷雾还没开呢
+
+*****
+
+####  爱丁堡official  
+##### 12877#       发表于 2024-2-17 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978818&amp;ptid=2159415" target="_blank">蒜苗 发表于 2024-02-17 12:04:28</a>
+什么退团，祥子退c团吗？这玩意现在怎么汴啊，战争迷雾还没开呢</blockquote>是祥子退团啊，但是打开猴区就是个200层的楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

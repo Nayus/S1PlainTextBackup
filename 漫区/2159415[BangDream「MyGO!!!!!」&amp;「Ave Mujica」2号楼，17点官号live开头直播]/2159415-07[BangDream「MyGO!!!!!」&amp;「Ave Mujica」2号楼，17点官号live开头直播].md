@@ -25433,3 +25433,105 @@ Q.E.D.
 
 [https://twitter.com/Slug10000/status/1758837061271138564/photo/2](https://twitter.com/Slug10000/status/1758837061271138564/photo/2)
 
+
+*****
+
+####  acgreen  
+##### 13041#       发表于 2024-2-17 21:47
+
+退团时是“是因为我们的原因退出吗”，退团后是“是因为我们的原因转学吗”，其实爽世对祥子的感情挺值得玩味的，她不关心祥子究竟遭受了什么甚至她根本不敢去想象，她迫切地希望祥子回来扭转她面对的不利局面，为此一次次地违背祥子的意愿。我觉得这种感情不是爱，也许是一种狂热
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1|大家应该都来品味下最狂热的信徒.|
+| Aendst| + 1|狂热这个词完美概括|
+
+查看全部评分
+
+*****
+
+####  acgreen  
+##### 13042#       发表于 2024-2-17 21:51
+
+楼里有一个官方访谈链接汇总楼的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RedSpecial  
+##### 13043#       发表于 2024-2-17 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983145&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 21:38</a>
+
+反了吧，不是大家长而是熊孩子才对，爽姐更像是平时在家也要给亲妈当妈导致缺少家庭关爱，导致破防后才老做 ...</blockquote>
+爽看起来也不是为了满足自己撒娇任性才迷恋C团啊，她在C团不是无情的夸夸机器。大喊大叫、下跪耍赖、摆烂不上学不练习还是这个人缺乏自我保护机制，立希灯爱音破防了还知道跑，就爽姐还搁那输出，越输出越小丑，早该治治讨好型人格了。
+
+顺着这个往下捋，还能得出长子立希活在爸爸的阴影下，被妈妈曲球点破不如爹导致无能狂怒，最后还是父死娶母的故事。
+
+家族计划 ~its mygo~，堂堂连载。
+
+*****
+
+####  RedSpecial  
+##### 13044#       发表于 2024-2-17 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983215&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-2-17 21:45</a>
+
+我记得贴吧有篇分析素世的就挺不错的，素世在c团里既扮演妈妈又扮演女儿。 ...</blockquote>
+哪个贴吧有链接吗，急急急
+
+*****
+
+####  御幸一也  
+##### 13045#       发表于 2024-2-17 21:58
+
+吃點毛絨絨睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/17/215807veg1fnj7xp5n31c7.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_リンゴ雨🌷︎(@Rainy_NEGI)_20240216-135206_1758489433404510331_photo.jpg</strong> (177.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 21:58 上传
+
+[https://twitter.com/Rainy_NEGI/status/1758489433404510331](https://twitter.com/Rainy_NEGI/status/1758489433404510331)
+
+*****
+
+####  实津二三  
+##### 13046#       发表于 2024-2-17 22:01
+
+楼里有a粉m粉，有没有c团亡灵粉。
+
+*****
+
+####  NODY  
+##### 13047#       发表于 2024-2-17 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983294&amp;ptid=2159415" target="_blank">RedSpecial 发表于 2024-2-17 21:53</a>
+
+爽看起来也不是为了满足自己撒娇任性才迷恋C团啊，她在C团不是无情的夸夸机器。大喊大叫、下跪耍赖、摆烂 ...</blockquote>
+我觉得不矛盾，在C团是当懂事的大女儿，结果发现乖乖懂事也没用就开始小孩子耍赖，可惜祥子不吃这一套
+
+*****
+
+####  RedSpecial  
+##### 13048#       发表于 2024-2-17 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983239&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-17 21:47</a>
+
+退团时是“是因为我们的原因退出吗”，退团后是“是因为我们的原因转学吗”，其实爽世对祥子的感情挺值得玩 ...</blockquote>
+一辈子也忘不了CRYCHIC ×
+
+一辈子也忘不了丰川祥子 √
+

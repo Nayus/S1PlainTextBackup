@@ -399,3 +399,20 @@ https://bbs.saraba1st.com/2b/thread-2162715-1-1.html
 衍生阅读</blockquote>
 嗯嗯，看了下，应该b站那个up很多内容也是节选自这篇文章和提到的相关资料。
 
+
+*****
+
+####  曲终人未散  
+##### 42#       发表于 2024-2-17 21:59
+
+真的龙吟了
+
+*****
+
+####  adonai  
+##### 43#       发表于 2024-2-17 22:03
+
+咱们的传说中的光刻厂快出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3560, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

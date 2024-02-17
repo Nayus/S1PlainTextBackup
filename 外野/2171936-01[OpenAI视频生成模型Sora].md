@@ -712,3 +712,17 @@ GPT Category: productivity
 
 靠数据量参数量力大砖飞，告诉你该买老黄股票了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泡茶  
+##### 74#       发表于 2024-2-17 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63970762&amp;ptid=2171936" target="_blank">windtrack_qh 发表于 2024-2-16 11:59</a>
+这玩意太JB牛逼了，结合AI配音以后福利姬是不是没活路了？
+
+另外拿来做游戏过场动画似乎也不错 ...</blockquote>
+错误的
+
+这玩意既利于福利姬p图，又利于福利姬洗白
+

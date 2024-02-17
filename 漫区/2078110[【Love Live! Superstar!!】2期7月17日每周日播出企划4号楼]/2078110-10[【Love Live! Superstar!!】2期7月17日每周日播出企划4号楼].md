@@ -1650,3 +1650,11 @@ btw，所以这个大炮听说就是之前带菜宝节奏的，那这个传到�
 
 鱼受的阴阳有少过吗，因为non这事特别处理还是想太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 19601#       发表于 2024-2-17 10:38
+
+FC的票到手，感觉给小日子留的票都比较靠后呢
+

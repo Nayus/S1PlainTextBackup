@@ -382,3 +382,16 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 
 至于什么恐龙变色龙也要改这种论调，我是无所谓的，因为我只是站在实用角度出发，非要畅想未来那我也没办法不是吗？而且既然都畅想未来了，不如直接畅享没有英文的未来不是更好，什么麻烦都没有了……
 
+
+*****
+
+####  银光闪耀  
+##### 236#       发表于 2024-2-17 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978031&amp;ptid=2171337" target="_blank">蒹葭公子 发表于 2024-2-17 10:28</a>
+
+不是，因为日本人也用汉字，你要把汉字龙翻译成别的玩意儿，你这么规定，下面的人干不干还是个问题，而我 ...</blockquote>
+还是你想得远，想到规定好了该怎么反制了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+外交部都不用，哪来的规定
+

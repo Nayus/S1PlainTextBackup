@@ -5275,3 +5275,21 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 
 轻/中/重装甲的装甲值目前无法按预期发挥作用。
 
+
+*****
+
+####  blackeyed  
+##### 557#       发表于 2024-2-17 18:29
+
+这游戏能跨平台联机吗
+
+*****
+
+####  Launce  
+##### 558#       发表于 2024-2-17 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981554&amp;ptid=2170852" target="_blank">blackeyed 发表于 2024-2-17 18:29</a>
+
+这游戏能跨平台联机吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以，但是目前游戏服务器正常联机都不稳定，我基本关了跨平台
+

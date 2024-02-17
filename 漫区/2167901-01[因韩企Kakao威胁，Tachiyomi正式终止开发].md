@@ -119,3 +119,13 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 去作者githhub 他更新插件源了 把老的卸了加新的源安装就好了</blockquote>
 是1.4.53吗 早上卸载重装了好多次都没用<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pgain2004  
+##### 173#         楼主| 发表于 2024-2-17 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977096&amp;ptid=2167901" target="_blank">iceddd 发表于 2024-2-17 04:21</a>
+为什么我mihon看不见第三方拷贝插件 仓库也弄了单独插件也下载了 不管是插件列表还是仓库里都看不见 ...</blockquote>
+在确认给了mihon应用列表读取权限、在设置-浏览-勾选显示18+图源、在插件列表筛选中勾选“中文”（不是简中和繁中）的前提下，在插件列表那直接搜索“copy”看看？
+

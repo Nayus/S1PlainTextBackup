@@ -777,3 +777,30 @@ Ubw线里呆毛在前线扛着，红a在远程狙击，结果红a所有箭矢通
 
 以前說法就是伊利雅在，12戀給他時間就能慢慢補回，
 
+
+*****
+
+####  DARKGRAY  
+##### 71#       发表于 2024-2-17 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982185&amp;ptid=2171748" target="_blank">septemsky 发表于 2024-2-17 19:51</a>
+
+炸了一条命吧，不然伊莉雅直接撤退就很莫名其妙了</blockquote>
+战况不合她心意就会走，去柳洞寺的时候也一样，而且当时士郎也伤到了
+
+*****
+
+####  hypnossz86  
+##### 72#       发表于 2024-2-17 19:57
+
+好家伙，感觉很多年没在漫区看过这么正统的战蘑菇设定了
+
+*****
+
+####  シャル  
+##### 73#       发表于 2024-2-17 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只要输出时间够久就能烧光12条命
+

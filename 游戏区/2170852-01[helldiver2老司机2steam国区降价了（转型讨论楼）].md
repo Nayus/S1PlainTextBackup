@@ -5121,3 +5121,21 @@ xbox收了中箭头吧
 遇到了新bug，按E和物品互动后人物就完全卡死了，只有视角可以操作其他都不行 ...</blockquote>
 不算新bug，找队友用手雷离远点炸一下，或者多罚站一会
 
+
+*****
+
+####  2VYBGp94  
+##### 546#       发表于 2024-2-17 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980866&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-2-17 16:48</a>
+
+怎么连防作弊软件更新都能出事，这瑞典傻逼还能搞得成什么，用飞矛打进ass爆炸么 ...</blockquote>
+不是真的因为更新出问题，一般重启游戏几次就没了
+
+*****
+
+####  旋转吧，米糕  
+##### 547#       发表于 2024-2-17 16:58
+
+这游戏真是有什么bug都不奇怪……<img src="https://p.sda1.dev/15/0474f807285fff7fc3f7a710516f8e52/IMG_2AAFA636F7B51CFFF8FE7A93AB8426D3.jpeg" referrerpolicy="no-referrer">
+

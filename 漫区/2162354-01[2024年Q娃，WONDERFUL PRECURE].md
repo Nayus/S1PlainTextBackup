@@ -970,3 +970,26 @@ Q娃29，性别比59:41？消费欲望2700日元
 然后成田大妈来一手，眼镜男喜欢的其实是Amulet Heart，啊呸，Cure Friendly这样的女孩子，最后让猫，啊呸 ...</blockquote>
 什么宝石宠物 Sunshine。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HazukiShion  
+##### 994#       发表于 2024-2-17 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982763&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-17 20:58</a>
+
+如果兔子要跟主线强相关，那么轮到他的剧情时悟作为主人也应该是解决问题的关键要素才对，所以我们今年难 ...</blockquote>
+说实话，现在小麦对彩羽这种病态的感情我觉得会被当作一种反面教材，后面随着成长会被修正掉的那种。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+至于其他两组，现在的线索太少了不太能看出来。猫组的重心应该在真由身上？兔组就真没啥思路了，从希望加深对动物的了解进行切入？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modedd  
+##### 995#       发表于 2024-2-17 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982854&amp;ptid=2162354" target="_blank">HazukiShion 发表于 2024-2-17 21:09</a>
+
+说实话，现在小麦对彩羽这种病态的感情我觉得会被当作一种反面教材，后面随着成长会被修正掉的那种。[f:0 ...</blockquote>
+兔子现在除了一个无口呆萌的宠设啥也没有呀，等明天第三集看看什么情况吧，我还挺期待他其实是个闷骚之类反差萌的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

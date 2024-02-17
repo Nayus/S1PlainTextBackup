@@ -1252,3 +1252,14 @@ DLC怎么提升属性来着？升级不加？
 
 打了前五层，有点失望啊，剧情先撇一边，这游戏模式和本篇结尾好像没啥差别……没随机体验也没有多样化构筑，还是刷刷老一套<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tansapple  
+##### 3970#       发表于 2024-2-17 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982172&amp;ptid=2098044" target="_blank">盐星 发表于 2024-2-17 19:50</a>
+
+打了前五层，有点失望啊，剧情先撇一边，这游戏模式和本篇结尾好像没啥差别……没随机体验也没有多样化构筑 ...</blockquote>
+外传整体来说就是盖亚迷宫的加量版，新剧情其实集中在6层以后，算是本篇的故事完结之后的一个小后日谈，然后也是给续作挖坑的意思。
+

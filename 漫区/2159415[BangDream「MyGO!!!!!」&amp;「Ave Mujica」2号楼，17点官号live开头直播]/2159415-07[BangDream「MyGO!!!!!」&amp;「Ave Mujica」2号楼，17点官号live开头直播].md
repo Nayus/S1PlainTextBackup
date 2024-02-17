@@ -25088,3 +25088,96 @@ Q.E.D.
 <blockquote>彼女のCRYCHICに対する思いの強さはキャラクターを作り上げる段階で決めていて</blockquote><blockquote>そよは犯人探しをする中で、睦がCRYCHICにとどめを刺した犯人ということにしてしまいたいんです。CRYCHIC解散におけるそよのフィルターですよね。そして「あんたが壊したんだから、当然CRYCHIC復活に力を貸してくれるよね？」という理屈で睦を責められると思っている、というのがあの会話です。</blockquote><blockquote>そして祥子に違うバンドで「春日影」を演奏する自分を見られたことで、CRYCHIC復活の夢も潰えてしまったという絶望と怒り。</blockquote>
 <strong>设定如此</strong>，按照制作组的思路，爽的本质之一就是执着于crychic<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13012#       发表于 2024-2-17 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982749&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-02-17 20:57:29</a>
+置顶……</blockquote>不是那一篇
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 13013#       发表于 2024-2-17 21:07
+
+樓友要找的應該是megami的第一篇訪談吧，你要原圖我可以提供，翻譯我就沒有了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 13014#       发表于 2024-2-17 21:07
+
+如果soyo桑对箱是爱情很多事就合理了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 13015#       发表于 2024-2-17 21:08
+
+ 本帖最后由 Aendst 于 2024-2-17 21:10 编辑 
+
+当信鸽指的是除了爽世想让她传话的“想复活crychic找回祥子”之外的爽世情报全都透露给祥子并且爽世想要拿到手的祥子的信息完全不透露给爽世吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 13016#       发表于 2024-2-17 21:09
+
+睦对爽世反而是最没有滤镜的那一个，被她表象骗到的人才会不知道她想复辟ccc，一个个都在第九集破防了。
+
+睦知道爽世捞不到祥子快蚌埠住了没办法才被迫帮忙传话，盘动画的时候就发现爽世的要求睦都是首先拒绝，被反复追问才去，我很难说这算得上自愿，如果愧疚心也算滤镜，那确实有滤镜。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反过来讲，我认为爽世对人的滤镜的人只有祥子一个，其他人的滤镜属实是没品出来，要有也是对ccc这个集体有不切实际的滤镜。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  RedSpecial  
+##### 13017#       发表于 2024-2-17 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982788&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-17 21:02</a>
+
+设定如此，按照制作组的思路，爽的本质之一就是执着于crychic</blockquote>
+设定如此，俗手
+
+还不如说爽世被祥子魅惑了
+

@@ -5779,3 +5779,20 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 好友局很稳，晚上一直拼到了38级，还有90多勋章就解锁最后一页了，爽！
 
+
+*****
+
+####  kalavinka  
+##### 610#         楼主| 发表于 2024-2-18 03:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984910&amp;ptid=2170852" target="_blank">LT_Harry 发表于 2024-2-18 03:09</a>
+文本排布顺序没有依据汉语习惯修改，切换成英文版显示的内容就符合逻辑 ...</blockquote>
+但是我记得好像刚开始几天是对的 要么是我记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新庄運切  
+##### 611#       发表于 2024-2-18 03:53
+
+SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
+

@@ -543,3 +543,14 @@ Caliburn原本是儀式用劍。若將其用作武器，
 
 红A最强的攻击方式是幻想崩坏啊同志们，把投影宝具直接炸掉，威力比直接使用要强得多，威力跟流星一条是一个级别的
 
+
+*****
+
+####  DARKGRAY  
+##### 52#       发表于 2024-2-17 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978060&amp;ptid=2171748" target="_blank">卢武铉 发表于 2024-2-17 10:30</a>
+
+红A最强的攻击方式是幻想崩坏啊同志们，把投影宝具直接炸掉，威力比直接使用要强得多，威力跟流星一条是一 ...</blockquote>
+威力再强等级不够打不动，等级够的又没必要拿来炸了，虽然肯炸伊莉雅的话倒是好办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

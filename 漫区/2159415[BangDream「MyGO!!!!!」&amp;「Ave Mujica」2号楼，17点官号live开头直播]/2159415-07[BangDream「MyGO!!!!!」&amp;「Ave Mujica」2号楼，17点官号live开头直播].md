@@ -25771,3 +25771,101 @@ B站cv26092103
 有旺仔头卖麻辣不玩，25时听说轮战马妈还有mzk不玩！</blockquote>
 说实话不健全的关系感觉还是看漫画轻小说好<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">动画和手游都会包饺子感觉。我最喜欢的糖果子弹也是轻小说。
 
+
+*****
+
+####  PDQ4  
+##### 13070#       发表于 2024-2-17 22:37
+
+节约宝儿笑起来好可爱，想gachi了。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L7lv6  
+##### 13071#       发表于 2024-2-17 22:37
+
+<blockquote>RedSpecial 发表于 2024-2-17 22:03
+一辈子也忘不了CRYCHIC ×
+
+一辈子也忘不了丰川祥子 √</blockquote>
+素世由于自小父母离婚，在单亲家庭里长大，对于完整家庭的体验是缺失的，也是渴望的。
+
+而c团对素世来说，就是她找到的第一个完整的家庭，而组建者的祥子在素世看来，自然就是扮演着父亲的形象。
+
+c团的解散与小时候父母的离婚重叠对应，小时候的素世什么都做不到，只能眼睁睁看着父母离婚。但长大的素世就不一样了，即是对小时候的代偿，也是对完整家庭的渴望，重组c团成为了素世的执念，为此不惜一切。
+
+但素世本质是个不成熟的孩子，对于怎么做其实是不清晰，而且从她不敢追问祥子原因可以看出，素世是没有承担责任的能力，所以下意识的逃避。只能在重组c团这个执念越陷越深。直到被祥子点破。
+
+顺便说下，我觉得只有灯把祥子当成神明来对待的，素世并没有把祥子当成神明来看待。
+
+*****
+
+####  [皆神孝介]  
+##### 13072#       发表于 2024-2-17 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983283&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-17 21:51</a>
+
+楼里有一个官方访谈链接汇总楼的
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+这个吗？
+
+[2788L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2159415&amp;pid=63077693) <blockquote>这篇是动画放送期间的
+
+“不是成员成长的故事，而是想描写成员的相遇带来的化学反应”——MyGo柿本广大访谈
+
+以下是动画放送完后的
+
+翻译：Ave Mujica的初次访谈
+
+Ave Mujica采访前篇
+
+Ave Mujica采访后篇
+
+MyGo!!!!!完结访谈
+
+（代发中字）It s MyGO!!!!!系列构成·绫奈由仁子访谈①
+
+（代发中字）It s MyGO!!!!!系列构成·绫奈由仁子访谈②
+
+（代发中字）It s MyGO!!!!!系列构成·绫奈由仁子访谈③
+
+【个人翻译】《BanG Dream! It’s MyGO!!!!!》柿本广大监督的全集回顾访谈·前篇
+
+【翻译】《BanG Dream! It’s MyGO!!!!!》柿本广大监督的全集回顾访谈·后篇
+
+三次元staff讲座这个视频是生肉，但是up有在评论区总结翻译内容
+
+MyGO动画制作的幕后 BanG Dream! It’s MyGO!!!!!セッション
+
+绫奈这个直播聊MyGO动画内容不多，因为是开播前而且是她个人的纪念直播
+
+但是有些重要情报出自这个直播，比如那个神秘的秋季新番
+
+[中字全熟]脚本出道15周年杂谈（上）
+
+[中字全熟]脚本出道15周年杂谈（下）
+
+我自己保存了的就这些，还有其他的请楼友补充</blockquote>
+
+*****
+
+####  NODY  
+##### 13073#       发表于 2024-2-17 22:37
+
+要看不健全关系可以看看独角兽最近一直在推特上刷的那个乐队男同番given，非常扭曲非常不健全<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 13074#       发表于 2024-2-17 22:37
+
+偏爱不正常的关系推一波冬虫カイコ，尤其是短篇集少女之茧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">反正负面到我受不了
+
+*****
+
+####  穗波殊  
+##### 13075#       发表于 2024-2-17 22:43
+
+总之负面百合是豚综好球点，欢迎入驻豚综讨论<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

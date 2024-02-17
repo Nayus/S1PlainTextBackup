@@ -5796,3 +5796,11 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
+
+*****
+
+####  LT_Harry  
+##### 612#       发表于 2024-2-18 04:14
+
+我已经卡在登录上限进不去两天了，现在在线人数已经进入 Steam 历史记录前三十名，三十多万都是怎么登录的啊<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

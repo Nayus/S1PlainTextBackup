@@ -23881,3 +23881,65 @@ https://www.bilibili.com ...</blockquote>
 
 现在退团有意义的只有退团这一事实。退团理由是不必要的。就像等待戈多里，戈多的形象是不必要的。纠结于这一点破坏了mygo的结构美，所以mygo粉天天辩这个感觉很没品。
 
+
+*****
+
+####  江口夕  
+##### 12894#       发表于 2024-2-17 12:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">【【羊百科/羊考古学】决定了！向着声优进发！少女羊宫妃那追梦之路【きゅうり篇】-哔哩哔哩】 https://b23.tv/2iykEFu
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 12895#       发表于 2024-2-17 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979097&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 12:36</a>
+
+啊？厨立希的不是大部分都对灯或多或少有点意见吗（</blockquote>
+你这个可能要打个国内限定，因为海外灯希好像不少也没见有意见的，国内好像也不是全都有意见，我就看到一些，顺说我一直是立希在利用灯这个论点所以对灯也没什么意见，唯一绷不住的就是三次元live的时候每次羊唱劈了大鼓还得在旁边继续凹灯吹人设而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这下理解PP的制作公司为什么希望假唱了，羊要不试试看放录音吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安洁莉娜  
+##### 12896#       发表于 2024-2-17 12:44
+
+泥漏有些学员的说话艺术真的越发有水平了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 12897#       发表于 2024-2-17 12:46
+
+什么羊学大师
+
+*****
+
+####  cindy355  
+##### 12898#       发表于 2024-2-17 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979148&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 12:43</a>
+
+你这个可能要打个国内限定，因为海外灯希好像不少也没见有意见的，国内好像也不是全都有意见，我就看到一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那也确实，灯希在国内对路人来说都有点算得上“雷”了，真是可悲，推特关注的一些老师还是动画开播前就吃灯希的，惨中惨
+
+*****
+
+####  Aendst  
+##### 12899#       发表于 2024-2-17 12:47
+
+按照访谈从制作组的角度来说，退团就是为了实现“故事从失败的乐队开始”这一情节，是为整个剧本的真实感服务的
+
+都说乐队失败才很正常了，为了车角色抓着这一点不放某种意义上真是费尽心思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种初中语文考试作文跑题的美
+
+*****
+
+####  穗波殊  
+##### 12900#       发表于 2024-2-17 12:51
+
+本来也有点雷灯希，上次被灯希条漫感动到了。但还是很讨厌官方的塑造。（尤其是手游凹设定）
+

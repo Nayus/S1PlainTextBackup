@@ -4760,3 +4760,14 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 
 什么垃圾服务器，才27万就爆满，进都进不去。
 
+
+*****
+
+####  wzy200912345  
+##### 505#       发表于 2024-2-17 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977770&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-17 09:43</a>
+
+什么垃圾服务器，才27万就爆满，进都进不去。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为他们服务器上限之前就36W刚开服的时候每5分钟就挤满一次，假设升级了可能就50-60W，27W再加上PS的玩家一下子就超了
+

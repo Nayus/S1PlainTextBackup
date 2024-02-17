@@ -5560,3 +5560,36 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 新手教程一直闪退是什么毛病
 
+
+*****
+
+####  ssd  
+##### 588#       发表于 2024-2-17 23:25
+
+无线搜索sos
+
+*****
+
+####  Launce  
+##### 589#       发表于 2024-2-17 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983910&amp;ptid=2170852" target="_blank">逆袭的黑月 发表于 2024-2-17 22:58</a>
+
+10点半前我匹配体验都还挺好。。。补丁还是有点用 然后就没然后了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我6点半更新后直接就排不到人
+
+*****
+
+####  Launce  
+##### 590#       发表于 2024-2-17 23:27
+
+<img src="https://img.saraba1st.com/forum/202402/17/232719zxcgb5ssu52hqhp9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (366.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 23:27 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，什么鬼BUG
+

@@ -24808,3 +24808,11 @@ mio是能和灯的一起 ...</blockquote>
 
 因为我觉得感情这样很丑陋<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">虽然日常聊天喜欢用土下座表情，实属宽以律己了
 
+
+*****
+
+####  御幸一也  
+##### 12983#       发表于 2024-2-17 18:57
+
+我沒搞錯吧，爽世應該是女的對吧？而且日本“下跪的意義”樓裡也討論過了對吧？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

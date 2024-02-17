@@ -617,3 +617,16 @@ saber线打近战都能杀五命了，红A专注打狙击B叔怎么打？红A射
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  突发性哮喘病患  
+##### 58#       发表于 2024-2-17 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981718&amp;ptid=2171748" target="_blank">漆黑之花 发表于 2024-2-17 18:53</a>
+
+saber线打近战都能杀五命了，红A专注打狙击B叔怎么打？红A射程可是在四公里以上
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">四公里对于海格力斯这种级别的英灵来说大概也就三四秒爆发吧，实际上不管士郎saber能直接轰到红A脸上去
+

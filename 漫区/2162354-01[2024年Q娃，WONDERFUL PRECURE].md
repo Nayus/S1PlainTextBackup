@@ -890,3 +890,14 @@ Q娃29，性别比59:41？消费欲望2700日元
 
 给男人塞猫这主意到底是谁想出来的，简直笑死了，今年的兔子不知道能不能起到同样的效果，成败就在明天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ΣPRC  
+##### 987#       发表于 2024-2-17 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978964&amp;ptid=2162354" target="_blank">HazukiShion 发表于 2024-2-17 12:21</a>
+
+该使用泥潭自创的新时代百合分类法了，法 Q 热 Q 属于纯良轻百，犬 Q 战队抱 Q 这类算赢面百合。 ...</blockquote>
+深井冰豚滚回豚楼
+

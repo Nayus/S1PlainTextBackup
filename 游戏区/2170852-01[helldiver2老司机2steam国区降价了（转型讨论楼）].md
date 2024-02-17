@@ -5293,3 +5293,43 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 这游戏能跨平台联机吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以，但是目前游戏服务器正常联机都不稳定，我基本关了跨平台
 
+
+*****
+
+####  blackeyed  
+##### 559#       发表于 2024-2-17 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981577&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-17 18:33</a>
+
+可以，但是目前游戏服务器正常联机都不稳定，我基本关了跨平台</blockquote>
+能跨平台就好, 不用纠结买哪个平台, 不然还要问一圈朋友都哪个平台玩……
+
+感觉玩游戏的朋友还是steam党多, 我其实也倾向于steam, 但我家是两个人玩…… steam要买两份, PSN只需要买一份
+
+*****
+
+####  Sayuki1025  
+##### 560#       发表于 2024-2-17 18:38
+
+可以将多个相同策略带入任务的问题已修复。
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Anhydrite  
+##### 561#       发表于 2024-2-17 18:40
+
+今天下午六点半更新把配置四个相同战略配备给修了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  风萧飒  
+##### 562#       发表于 2024-2-17 18:43
+
+又给我补多了一堆奖励，超级地球发福利了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

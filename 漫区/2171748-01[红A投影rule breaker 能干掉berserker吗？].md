@@ -575,3 +575,33 @@ Caliburn原本是儀式用劍。若將其用作武器，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  广西桂系兵  
+##### 55#       发表于 2024-2-17 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981183&amp;ptid=2171748" target="_blank">漆黑之花 发表于 2024-2-17 17:34</a>
+
+红A只要炸十二把A级武器理论上就能打光十二条命吧，他库存那么多不至于拿不出吧。主要还是他不是主角，士郎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+真把赫拉克勒斯当成希腊木桩了吗
+
+*****
+
+####  シャル  
+##### 56#       发表于 2024-2-17 18:41
+
+ 本帖最后由 シャル 于 2024-2-17 18:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">十二试炼
+
+海无力不是被异闻带的月神炮二炮12命就打死了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只要输出够没有打不死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一剑七杀是基本的基本
+
+海无力能横行完全只有在对面输出不够的情况下
+

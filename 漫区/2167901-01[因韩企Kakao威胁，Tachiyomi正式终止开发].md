@@ -109,3 +109,13 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 为什么我mihon看不见第三方拷贝插件 仓库也弄了单独插件也下载了 不管是插件列表还是仓库里都看不见 ...</blockquote>
 去作者githhub 他更新插件源了 把老的卸了加新的源安装就好了
 
+
+*****
+
+####  iceddd  
+##### 172#       发表于 2024-2-17 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979288&amp;ptid=2167901" target="_blank">runningcost 发表于 2024-2-17 13:00</a>
+去作者githhub 他更新插件源了 把老的卸了加新的源安装就好了</blockquote>
+是1.4.53吗 早上卸载重装了好多次都没用<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

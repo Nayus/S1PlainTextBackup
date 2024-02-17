@@ -4963,3 +4963,25 @@ sony说万一你们这蝗了一波就不玩了呢？我这服务器多租了不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瑞典好像不太加班，每次周末都是纯摆烂
 
+
+*****
+
+####  ledo  
+##### 527#       发表于 2024-2-17 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又炸了草
+
+*****
+
+####  Launce  
+##### 528#       发表于 2024-2-17 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">Everyday got a new surprise, each day facing a new never-seen problem, cool game.
+
+*****
+
+####  Launce  
+##### 529#       发表于 2024-2-17 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">草，难绷，登陆舱一砸地就黑屏，接着瞬移回自己飞船
+

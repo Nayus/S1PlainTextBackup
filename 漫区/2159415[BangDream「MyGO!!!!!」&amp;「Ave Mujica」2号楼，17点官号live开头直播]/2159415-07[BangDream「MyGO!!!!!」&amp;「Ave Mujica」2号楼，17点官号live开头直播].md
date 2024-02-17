@@ -24560,3 +24560,38 @@ https://www.bilibili.com ...</blockquote>
 灯老想着抓人道歉，爽不惜变成stk也要接近祥子，这哪有心之 ...</blockquote>
 目前看起来和过去切割的祥子是心之壁最厚的了，切割不完全就是完全没切割。期待大祥老师再破一防。
 
+
+*****
+
+####  NODY  
+##### 12958#       发表于 2024-2-17 15:04
+
+日本那边看mygo动画的绝大部分是前三季加剧场版一路追过来的，早就知道独角兽有什么优缺点和恶趣味了，自然不会对里面一些剧情有什么意见，可能还觉得跟前辈比起来程度算轻的了
+
+但对大部分国内或者鬼佬来说属于年一偶年一邦，所以老代入现实问题车什么对内霸凌冷暴力心机算计，觉得角色之间有深仇大恨的，人独角兽真的没想那么多
+
+*****
+
+####  Aendst  
+##### 12959#       发表于 2024-2-17 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980177&amp;ptid=2159415" target="_blank">RedSpecial 发表于 2024-2-17 15:02</a>
+
+目前看起来和过去切割的祥子是心之壁最厚的了，切割不完全就是完全没切割。期待大祥老师再破一防。 ...</blockquote>
+是，目前能称得上有心之壁的就是祥子了，很明显的强烈拒否态度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+破防估计要等她自己逞强出问题了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有那样的医院场景给我看吗
+
+*****
+
+####  DarthAka  
+##### 12960#       发表于 2024-2-17 15:07
+
+<blockquote>Akari 发表于 2024-2-17 14:07
+其实我发现鼓子和偶像大师SC的几位关系不错，还参加过节目。
+
+感觉她属于到处当编外成员的那种感觉。 ...</blockquote>
+没根儿，艾回不要她了，她自己又从81跑了
+
+灯这事让窝想起滚播的时候有人说过，为啥没人霸凌波奇，不过灯这边更接近hhw神隐，属于世界观冲突……顺便之前有人车立希作曲，窝说隔壁凉先辈人气铁第4都没人说作曲不行
+

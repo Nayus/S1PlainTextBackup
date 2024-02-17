@@ -912,3 +912,14 @@ Q娃29，性别比59:41？消费欲望2700日元
 第三集应该就是兔组的主场了，说真的我犬q最好奇的就是两个男性的这对主宠剧情会咋发展，双男q？（woc，男 ...</blockquote>
 我觉得大概率只有兔子，眼镜小哥按设定更像解说+辅助+感情发展位，毕竟一下子来两个男 Q 还是追加也太激进了，当然也有可能重回派对的模式。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 989#       发表于 2024-2-17 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982315&amp;ptid=2162354" target="_blank">HazukiShion 发表于 2024-2-17 20:04</a>
+
+我觉得大概率只有兔子，眼镜小哥按设定更像解说+辅助+感情发展位，毕竟一下子来两个男 Q 还是追加也太激进 ...</blockquote>
+只变兔子算是最保守稳定的做法，我本来也觉得这个可能最大，不过现在解包出来了跟logo能对上的独角兽，又有了新变数，所以我现在看犬q动力之一就是想看看成田打算怎么安排兔组这对明显会深度参与剧情的男角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

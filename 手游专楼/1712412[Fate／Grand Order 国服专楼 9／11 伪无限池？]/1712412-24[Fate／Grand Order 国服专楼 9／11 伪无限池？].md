@@ -359,3 +359,14 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  xy1041  
+##### 46179#       发表于 2024-2-17 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980635&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-2-17 16:15</a>
+ 满宝马达我实测单奥伯龙伤害不够，还得上个增伤拐，而且衣服加工也得开..... 话说这次礼装大概什么程度可以 ...</blockquote>
+我5宝百级没金芙的马达用公主奥伯龙buff加极地服就直接把大象揍死，都不用公主宝具补刀，90级应该也够伤害吧
+合礼装？不是说自回体直接毕业吗，我立刻就合了剩下全上羁绊礼装了
+

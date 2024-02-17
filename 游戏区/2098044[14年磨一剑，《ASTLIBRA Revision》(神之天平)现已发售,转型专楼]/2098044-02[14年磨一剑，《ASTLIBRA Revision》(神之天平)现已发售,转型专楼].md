@@ -1233,3 +1233,14 @@ DLC怎么提升属性来着？升级不加？
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  魔法酪饼  
+##### 3968#       发表于 2024-2-17 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979521&amp;ptid=2098044" target="_blank">stygian 发表于 2024-2-17 13:27</a>
+
+说个没用的，六个球掉晶体那个房，用两次冰系最终的全屏大招能把球打爆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">应该是有血量的，球甚至可以上风魔法的魔法易伤
+

@@ -15111,3 +15111,15 @@ dlc要是难到打不下去再来工坊爽金工。
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  carroy  
+##### 2979#       发表于 2024-2-17 17:17
+
+看了巧克的掉分切片
+只能说众生平等乌贼研<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这连胜居然给我看出一点作业感
+实在是太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

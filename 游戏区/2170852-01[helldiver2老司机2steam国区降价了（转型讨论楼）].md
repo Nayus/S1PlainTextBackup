@@ -5139,3 +5139,29 @@ xbox收了中箭头吧
 
 这游戏真是有什么bug都不奇怪……<img src="https://p.sda1.dev/15/0474f807285fff7fc3f7a710516f8e52/IMG_2AAFA636F7B51CFFF8FE7A93AB8426D3.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 548#       发表于 2024-2-17 17:19
+
+刚才打了把难8拿了3个超级样品，结果出来没给。然后重进了下发现变成15个了，是不是补偿多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  梦诗歌雪  
+##### 549#       发表于 2024-2-17 17:21
+
+我昨天和前天还都遇到了一个bug，受击后血量没掉还是满血但一直处于受伤状态，没法恢复体力疯狂喘，血条也是红的并且提示按v治疗，但因为是满血所以扎不了针，直到后面挨了机器人一枪掉了点血才能扎针。还是说这就是游戏中一种特殊的受伤状态不是bug？
+
+*****
+
+####  jbjack1215  
+##### 550#       发表于 2024-2-17 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980591&amp;ptid=2170852" target="_blank">ab20000801 发表于 2024-2-17 16:08</a>
+这游戏的外网社区真的很有意思，算是这几年看过的最有意思的社区了哈哈哈 ...</blockquote>
+比如？
+

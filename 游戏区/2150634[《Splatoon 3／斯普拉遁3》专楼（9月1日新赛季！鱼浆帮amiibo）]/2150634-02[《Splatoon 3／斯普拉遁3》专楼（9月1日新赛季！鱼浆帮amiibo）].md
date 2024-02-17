@@ -15123,3 +15123,11 @@ dlc要是难到打不下去再来工坊爽金工。
 这连胜居然给我看出一点作业感
 实在是太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ryuuseigun  
+##### 2980#       发表于 2024-2-17 23:39
+
+这次日区祭典倍数比赛的出现率是不是有点低了，大厅挂机五六分钟没有一次胜利播报<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">以前几乎是不断的
+

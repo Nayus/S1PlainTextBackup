@@ -5593,3 +5593,11 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，什么鬼BUG
 
+
+*****
+
+####  leafS  
+##### 591#       发表于 2024-2-17 23:36
+
+这吊游戏的制作组到底玩不玩自己的游戏？机器人的高难度撤退任务制作组自己到底有没有通过？尼玛的40个人撤退打到猴年马月还不间断刷怪，做个任务倒贴钱给超级地球
+

@@ -23678,3 +23678,20 @@ https://www.bilibili.com ...</blockquote>
 
 [https://twitter.com/sasakirico/status/1758693782709739557](https://twitter.com/sasakirico/status/1758693782709739557)
 
+
+*****
+
+####  爱丁堡official  
+##### 12872#       发表于 2024-2-17 11:46
+
+隔壁潭怎么又开始辩退团理由了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 12873#       发表于 2024-2-17 11:52
+
+劇中角色都不計較了但是觀眾計較呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

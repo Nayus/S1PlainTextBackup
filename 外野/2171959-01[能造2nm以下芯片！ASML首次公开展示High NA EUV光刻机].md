@@ -437,3 +437,20 @@ https://bbs.saraba1st.com/2b/thread-2162715-1-1.html
 
 这玩意全世界用的厂就3家了，为啥还要组装调试完了拆掉再运到foundry厂装起来？不能一开始就去foundry的厂房里安装么？
 
+
+*****
+
+####  holmesjerry  
+##### 46#       发表于 2024-2-17 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983509&amp;ptid=2171959" target="_blank">hunterkiller 发表于 2024-2-17 22:14</a>
+这玩意全世界用的厂就3家了，为啥还要组装调试完了拆掉再运到foundry厂装起来？不能一开始就去foundry的厂 ...</blockquote>
+FAT
+
+*****
+
+####  推倒大叔  
+##### 47#       发表于 2024-2-17 22:21
+
+光刻技术在半导体行业中发挥着至关重要的作用，特别是在芯片制造中。光刻厂通常是指半导体制造厂中用于进行光刻工艺的设施。这些工厂使用光刻机将芯片设计图案投影到硅片上，从而制造微小的电路和元件。随着科技的发展，光刻技术也在不断进步，光刻厂的建设和更新也是半导体产业发展的重要组成部分。
+

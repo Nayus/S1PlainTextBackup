@@ -1076,3 +1076,21 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 话说好像天Q感谢祭出现了黑天空侠（Black Sky，据说设定和本篇的暗堕天空侠Dark Sky设定不太一样），那么汪Q后面会不会有小麦被反派暗算变成Garugaru的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 1004#       发表于 2024-2-17 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983466&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-17 22:10</a>
+
+话说好像天Q感谢祭出现了黑天空侠（Black Sky，据说设定和本篇的暗堕天空侠Dark Sky设定不太一样），那么汪 ...</blockquote>
+然后被彩羽小姐用爱的抱抱净化再插入点回忆杀和伏笔回收什么的感觉已经可以提前预定神回了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 1005#       发表于 2024-2-17 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我说学长明明没啥戏份为什么还能一直赖在OP里不走，原来是这么回事啊，果然还是得当大友番进行最恶毒的猜测才行
+

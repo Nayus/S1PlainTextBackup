@@ -383,3 +383,14 @@
 话说这次礼装大概什么程度可以 ...</blockquote>
 前面垫个宝具就够，我是给了公主巧克力刷羁绊，正好拿来垫
 
+
+*****
+
+####  苍蓝之枪  
+##### 46181#       发表于 2024-2-18 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981746&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2024-2-17 18:58</a>
+
+前面垫个宝具就够，我是给了公主巧克力刷羁绊，正好拿来垫</blockquote>
+肯定是垫了的，如果有差异点的话，应该是1T就需要开公主1技能，不然杂兵会剩血皮，难道你们是2T开的?
+

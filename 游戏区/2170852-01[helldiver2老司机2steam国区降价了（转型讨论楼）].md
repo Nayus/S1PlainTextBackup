@@ -5365,3 +5365,23 @@ Helldivers，我们今天准备了一个补丁。这继续关注稳定性和配�
 更新完匹配又坏了，就自己solo刷点超级样本，折腾差不多20分钟就做完一个主线目标，太踏马累了，同类型游戏 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不止匹配坏了，星球活动记录也废了，全是0
 
+
+*****
+
+####  jy000129  
+##### 567#       发表于 2024-2-17 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980853&amp;ptid=2170852" target="_blank">looptube 发表于 2024-2-17 16:47</a>
+遇到了新bug，按E和物品互动后人物就完全卡死了，只有视角可以操作其他都不行 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早遇到过了，只能喊队友鲨了我
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星野心叶  
+##### 568#       发表于 2024-2-17 19:13
+
+匹配不到人
+孤狼不配玩
+

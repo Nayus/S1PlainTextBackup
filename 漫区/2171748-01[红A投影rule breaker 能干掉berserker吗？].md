@@ -630,3 +630,16 @@ saber线打近战都能杀五命了，红A专注打狙击B叔怎么打？红A射
 —— 来自 S1Fun ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">四公里对于海格力斯这种级别的英灵来说大概也就三四秒爆发吧，实际上不管士郎saber能直接轰到红A脸上去
 
+
+*****
+
+####  シャル  
+##### 59#       发表于 2024-2-17 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63981586&amp;ptid=2171748" target="_blank">广西桂系兵 发表于 2024-2-17 18:35</a>
+
+真把赫拉克勒斯当成希腊木桩了吗</blockquote>
+难道不是木桩吗？
+
+海无力根本防不了远程攻击
+

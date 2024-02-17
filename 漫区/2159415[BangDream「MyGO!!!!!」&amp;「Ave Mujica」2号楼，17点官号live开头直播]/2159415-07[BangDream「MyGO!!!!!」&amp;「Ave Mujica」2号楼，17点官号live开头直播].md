@@ -24816,3 +24816,25 @@ mio是能和灯的一起 ...</blockquote>
 
 我沒搞錯吧，爽世應該是女的對吧？而且日本“下跪的意義”樓裡也討論過了對吧？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RedSpecial  
+##### 12984#       发表于 2024-2-17 19:03
+
+主要是爽世这个动机不能细想，她对C团念念不忘没来由，因为她和C团几个人关系就不深。我理解的是在单亲家庭中，照顾自己妈照顾出了小家长的控制欲，讨好型人格让她无法满足控制欲，在C团有了发泄的口，也和祥子说的只想着自己对得上。但和她的后悔也对不上，团又不是你炸的。
+
+*****
+
+####  PDQ4  
+##### 12985#       发表于 2024-2-17 19:04
+
+萝期间限定radio复活，我是在做梦吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 12986#       发表于 2024-2-17 19:05
+
+我在说自己被邪恶的α男思想浸润这件事，需要灵魂深处闹革命，没有车素食的意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

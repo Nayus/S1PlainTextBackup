@@ -24314,3 +24314,51 @@ https://www.bilibili.com ...</blockquote>
 该说不说的可能我那朋友也是因为对少歌的情感共鸣充分所以能忽视这些问题了吧，但我真对少歌了解 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">喜欢毕竟都是主观的，既然能喜欢我觉得多多少少是有情感共鸣作为体验的一环在
 
+
+*****
+
+####  NODY  
+##### 12937#       发表于 2024-2-17 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979807&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-2-17 14:07</a>
+
+灯负责写词，羊负责忘词，让我们分清二次元和三次元，比庵野秀明犯病还效果拔群 ...</blockquote>
+一个二次元设定中极端强调作词重要性甚至因此把作曲位边缘化的团，三次元的主唱却连歌词都记不住，只能说太有节目效果了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安洁莉娜  
+##### 12938#       发表于 2024-2-17 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979758&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 13:59</a>
+
+我之前很巨魔地说过，“电波系角色对编剧来说很方便，因为编剧无论想让她干啥都能用电波系来解释 ...</blockquote>
+并不是，我除了灯对立希的态度都能代入，至少按我自己的理解和情绪去代入。对我来说这是一个刻画得很细腻并且绝大部分时候都很真实的角色，所以我才能喜欢。当然我真的不相信周围人会对我/灯这么友好，我体会的最深的就是人类社会天然就是一个性格歧视的环境，无论你的性格是如何形成的。
+
+*****
+
+####  NODY  
+##### 12939#       发表于 2024-2-17 14:20
+
+有一说一，羊那么摆烂都能吸引一堆gachi，灯受欢迎至少比羊受欢迎要合理吧，灯至少性格确实不错还有（设定上的）才华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 12940#       发表于 2024-2-17 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979810&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 14:07</a>
+
+现在隔壁都有不少讨论认为“立希本人其实毫无作曲创意只有理论知识，全靠猫在旁边弹即兴才能写出新歌”呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">别说了哥求你别说了，看到这种拷打我的感觉就跟上次看到别人夸mujica曲子踩mygo曲子然后说祥子就是比立希有水平一样，我这么佛性的人看了都要昏厥的。
+
+*****
+
+####  安洁莉娜  
+##### 12941#       发表于 2024-2-17 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979910&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 14:20</a>
+
+有一说一，羊那么摆烂都能吸引一堆gachi，灯受欢迎至少比羊受欢迎要合理吧，灯至少性格确实不错还有（设定 ...</blockquote>
+你认真的吗，有几个是灯厨转羊噶，全TM是肉体，肉体！
+

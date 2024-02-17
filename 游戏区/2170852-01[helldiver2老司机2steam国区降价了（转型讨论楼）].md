@@ -5750,3 +5750,14 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 我的就是反的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 超级地球之父变成之父超级地球
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 607#       发表于 2024-2-18 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984875&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-18 02:42</a>
+
+本名都叫地狱老司机了，回归初心4披风蟑螂分散跑酷就很轻松了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可我们只有两只蟑螂 最后等撤离都是一个人在天上看着另一个被两只泰坦追着跑
+

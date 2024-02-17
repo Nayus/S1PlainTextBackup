@@ -24790,3 +24790,13 @@ mio是能和灯的一起 ...</blockquote>
 
 【经典灵魂互换，但是爱音和睦 #5.5-哔哩哔哩】 https://b23.tv/1S0XSl4
 
+
+*****
+
+####  PDQ4  
+##### 12981#       发表于 2024-2-17 18:21
+
+和漏油恰恰相反，最喜欢的爽世的两个场面一是第八集因慌乱不知如何是好而下跪，二是第十集爱爽对谈，用爱音的话说就是有一种人性美。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这也注定祥子和爱音两个人在爽世心里占有与众不同的份量<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

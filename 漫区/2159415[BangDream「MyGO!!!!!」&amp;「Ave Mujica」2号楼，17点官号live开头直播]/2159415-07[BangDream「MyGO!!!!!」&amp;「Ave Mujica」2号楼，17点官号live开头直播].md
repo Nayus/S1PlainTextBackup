@@ -24526,3 +24526,37 @@ https://www.bilibili.com ...</blockquote>
 
 我对邦邦唯一的意见就是三次元live质量差到让我直呼退钱，武士道又不肯把歌词分给mygo其他人唱，什么时候把羊换了或者改策略以后每首歌都让其他人多唱几句我就满意了
 
+
+*****
+
+####  Aendst  
+##### 12955#       发表于 2024-2-17 14:56
+
+ 本帖最后由 Aendst 于 2024-2-17 15:00 编辑 
+
+心之壁厚需要有一定的人际拒否态度，或者说排斥
+
+灯老想着抓人道歉，爽不惜变成stk也要接近祥子，这哪有心之壁厚的样子
+
+不如说是访谈锤过的“自我中心”
+
+*****
+
+####  RedSpecial  
+##### 12956#       发表于 2024-2-17 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980038&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 14:39</a>
+诗超绊反倒是被三次元乐队人明确论证过节奏吉他和贝斯部分没什么难度所以理论上可以做到的，被车都合的是为 ...</blockquote>
+道歉就能原谅这种情节在mygo里也没有出现啊，诗超绊和解堪称神之一手
+
+*****
+
+####  RedSpecial  
+##### 12957#       发表于 2024-2-17 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980142&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-17 14:56</a>
+心之壁厚需要有一定的人际拒否态度，或者说排斥
+
+灯老想着抓人道歉，爽不惜变成stk也要接近祥子，这哪有心之 ...</blockquote>
+目前看起来和过去切割的祥子是心之壁最厚的了，切割不完全就是完全没切割。期待大祥老师再破一防。
+

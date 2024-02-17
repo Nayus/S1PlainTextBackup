@@ -5729,3 +5729,24 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跟朋友三个任务都做完上不去飞机通了难7  有没有轻松点拿超级样本的打法
 
+
+*****
+
+####  Launce  
+##### 605#       发表于 2024-2-18 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984843&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-2-18 02:21</a>
+
+跟朋友三个任务都做完上不去飞机通了难7  有没有轻松点拿超级样本的打法 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本名都叫地狱老司机了，回归初心4披风蟑螂分散跑酷就很轻松了
+
+*****
+
+####  新庄運切  
+##### 606#       发表于 2024-2-18 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984830&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-2-18 02:12</a>
+刚发现自己飞船上飞船名贴图是不是也反了</blockquote>
+我的就是反的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+超级地球之父变成之父超级地球
+

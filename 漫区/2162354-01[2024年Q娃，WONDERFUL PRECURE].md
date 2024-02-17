@@ -709,3 +709,13 @@ CBDB0FEEC4150A060DC9AFE6BC5A1A30.jpg
 
 2024-2-17 09:35 上传
 
+
+*****
+
+####  王留美  
+##### 971#       发表于 2024-2-17 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977732&amp;ptid=2162354" target="_blank">月夜凝雪 发表于 2024-2-17 09:37</a>
+ 说起来，日本国内环境Q娃玩具和战队是半斤八两， 不过Q娃这是完全没有海外市场啊，其他多多少少都会有点， ...</blockquote>
+海外以播放权为主吧，这个收益是东A的，和万南无关
+

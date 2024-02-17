@@ -277,3 +277,22 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 
 3把dragon翻译成多拉贡，并强迫任何外国创作者只有中国龙可以叫long/loong/lung/龍/竜，其他的必须叫dragon/多拉贡或其他专有名词，比如双足飞龙要改成歪文，甚至生物学中的恐龙可能都要改名……
 
+
+*****
+
+####  银光闪耀  
+##### 230#       发表于 2024-2-17 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977687&amp;ptid=2171337" target="_blank">蒹葭公子 发表于 2024-2-17 09:31</a>
+
+我说的严谨一点，应该是“非要强行规定龙这个汉字只能有中国龙这个意思并且翻译成英语只能使用long/loong/l ...</blockquote>
+国人想要夺回作为神祇的龙的释经权都被来自于“内部“的阻力阻止的话那就真的是丢脸丢大发了。
+
+思想阵地，你不去占领，敌人就会去占领。
+
+至于你说给外国人给翻译要改名违反直觉，这不就是典型的不能给人添麻烦的日式思维么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果能造成混乱，甚至影响“恐龙”翻译，那就是太好了，真的有效了。
+
+这堆傻逼拉的屎还真以为是妙手偶得么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

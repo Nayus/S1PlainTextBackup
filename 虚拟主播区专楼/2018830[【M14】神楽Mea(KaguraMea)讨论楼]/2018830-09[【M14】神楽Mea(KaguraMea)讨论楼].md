@@ -123,3 +123,13 @@ emmmmmmmmmmmm
 就是不喜欢b站观众吧</blockquote>
 想多了，官号发的全都是mea在推特上发的推文的翻译，说的也全都是404直播的事，跟b站没有任何关系
 
+
+*****
+
+####  十九号大侠  
+##### 16297#       发表于 2024-2-17 23:45
+
+b站和**确实区别对待了
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

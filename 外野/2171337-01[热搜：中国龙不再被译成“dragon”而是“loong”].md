@@ -530,3 +530,20 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 有没有一种可能性是瞎几把改翻译并不能展现文化自信反而是反面？ ...</blockquote>
 那确实你该反思一下为什么这么爱在网上说批话
 
+
+*****
+
+####  蒹葭公子  
+##### 247#       发表于 2024-2-17 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978395&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-17 11:16</a>
+
+“经典自己喜欢亮屁股看谁都是屁股……
+
+有没有一种可能性是瞎几把改翻译并不能展现文化自信反而是反面？ ...</blockquote>
+哦我懂了，所以其实你是个神友逆民是吧？
+
+就是借着在网上发癫反串一个“文化自信”的魔怔人企图攻击我国文化。
+
+啧啧啧，用心果然恶毒！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

@@ -23660,3 +23660,21 @@ https://www.bilibili.com ...</blockquote>
 
 所以说好的连续五月新曲呢，什么时候端上来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 12871#       发表于 2024-2-17 11:26
+
+初華的吉他真的好帥啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/17/112641yksimga9js2dniee.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240217-032407_1758693782709739557_photo.jpg</strong> (949.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 11:26 上传
+
+[https://twitter.com/sasakirico/status/1758693782709739557](https://twitter.com/sasakirico/status/1758693782709739557)
+

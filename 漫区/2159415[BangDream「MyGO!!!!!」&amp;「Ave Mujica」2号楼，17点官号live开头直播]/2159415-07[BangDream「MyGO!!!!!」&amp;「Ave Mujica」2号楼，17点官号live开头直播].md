@@ -23607,3 +23607,28 @@ wsd血汗工厂这么坑的吗？没有声乐老师教发音吗？
 [https://www.bilibili.com/video/BV18F4m177ZD](https://www.bilibili.com/video/BV18F4m177ZD)
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">太强了 挖了羊的前世今生了 算是
 
+
+*****
+
+####  木谷高明  
+##### 12867#       发表于 2024-2-17 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978022&amp;ptid=2159415" target="_blank">梶原ひかり 发表于 2024-2-17 10:27</a>
+
+【羊百科/羊考古学】决定了！向着声优进发！少女羊宫妃那追梦之路【きゅうり篇】
+
+https://www.bilibili.com ...</blockquote>
+这个UP昨天还投了小小羊以前的投稿，还有配过的音声<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木谷高明  
+##### 12868#       发表于 2024-2-17 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976472&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-2-17 00:30</a>
+
+原来是mggm打的有问题</blockquote>
+红豆泥私密马赛<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+另外这个号是沙包号，烤羊烤累了可以烤我<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

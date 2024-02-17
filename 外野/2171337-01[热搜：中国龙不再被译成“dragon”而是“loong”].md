@@ -395,3 +395,16 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 
 外交部都不用，哪来的规定
 
+
+*****
+
+####  蒹葭公子  
+##### 237#       发表于 2024-2-17 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978098&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-17 10:36</a>
+
+还是你想得远，想到规定好了该怎么反制了
+
+外交部都不用，哪来的规定 ...</blockquote>
+所以没规定扯什么淡呢？幻想文化自信吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

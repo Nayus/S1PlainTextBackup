@@ -24740,3 +24740,14 @@ mio是能和灯的一起 ...</blockquote>
 少歌的剧本挺一般的，尤其tv，古川终究还没到出师的程度。整个动画只能去放空大脑feel，你朋友就算对剧本要 ...</blockquote>
 首先要讨论少歌剧本的话应该先讨论樋口达人，否则只是隔靴搔痒罢了。要说为什么，看看少歌手游就知道了。
 
+
+*****
+
+####  安洁莉娜  
+##### 12975#       发表于 2024-2-17 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980249&amp;ptid=2159415" target="_blank">zzhh0131 发表于 2024-2-17 15:12</a>
+
+大开眼界，先是所谓对剧本要求高的很喜欢少歌（我也很喜欢少歌，但这个对剧本要求高我真的看笑了），然后是 ...</blockquote>
+完了，让哥们炸出真的来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

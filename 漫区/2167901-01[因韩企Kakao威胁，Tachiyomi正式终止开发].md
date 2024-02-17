@@ -98,3 +98,14 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  runningcost  
+##### 171#       发表于 2024-2-17 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977096&amp;ptid=2167901" target="_blank">iceddd 发表于 2024-2-17 04:21</a>
+
+为什么我mihon看不见第三方拷贝插件 仓库也弄了单独插件也下载了 不管是插件列表还是仓库里都看不见 ...</blockquote>
+去作者githhub 他更新插件源了 把老的卸了加新的源安装就好了
+

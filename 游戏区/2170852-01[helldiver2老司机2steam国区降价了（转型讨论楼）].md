@@ -4901,3 +4901,11 @@ sony说万一你们这蝗了一波就不玩了呢？我这服务器多租了不�
 —— 来 ...</blockquote>
 我开服的时候是一模一样的bug,研究了半天发现就是服务器自己的问题，稳定的时候就没事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sayuki1025  
+##### 519#       发表于 2024-2-17 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">进不去了
+

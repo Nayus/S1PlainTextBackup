@@ -24245,3 +24245,72 @@ https://www.bilibili.com ...</blockquote>
 
 不过mygo音乐性要素确实很低，这也是立希沦为灯作曲挂件的一个重要原因，前辈团的音乐性都能体现在无论作词还是作曲都有自己的想法“我想要做这样的音乐”，而狗团的情况是只要表达词好就行了，作曲的人没有自己想写什么曲子的想法，极端一点说就是“灯的歌词很厉害，曲子不是立希写也可以，不用曲子也可以”，这就是把作曲位给了一个没戏份的臭底边的弊端，而三次元羊多次忘词更是有了再高一层的喜剧效果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安洁莉娜  
+##### 12930#       发表于 2024-2-17 14:04
+
+咱们不要谜语人，说明白点，不然怎么讨论
+
+*****
+
+####  cindy355  
+##### 12931#       发表于 2024-2-17 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979769&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 14:02</a>
+
+独角兽写剧本一直很都合啊，第二第三季的问题基本上都是雷声大雨点小，看起来很严重的事情唱个歌就完美解决 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">我已经不记得我车过多少遍第十一话对作曲的省略了，看完第十话还在想诗超绊完成了立希一定很努力吧，下一话就说是全即兴，还把带猫灯回家作曲的片段直接用line吹水略过去了，我超诗里的绊啊。
+
+*****
+
+####  RedSpecial  
+##### 12932#       发表于 2024-2-17 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979728&amp;ptid=2159415" target="_blank">安洁莉娜 发表于 2024-2-17 13:55</a>
+我还以为第一点是公认的呢。虽然我是灯推，但我要指出制作组在处理灯这一角色上的问题。灯是小众人设，大 ...</blockquote>
+灯特质化很重而且第三话都是第一人称大白话还是挺好理解的吧，就看接不接受得了。大家都喜欢她这个就只能用温柔的世界来解释了。
+
+*****
+
+####  安洁莉娜  
+##### 12933#       发表于 2024-2-17 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979769&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-17 14:02</a>
+
+独角兽写剧本一直很都合啊，第二第三季的问题基本上都是雷声大雨点小，看起来很严重的事情唱个歌就完美解决 ...</blockquote>
+灯负责写词，羊负责忘词，让我们分清二次元和三次元，比庵野秀明犯病还效果拔群<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 12934#       发表于 2024-2-17 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979786&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 14:05</a>
+
+我已经不记得我车过多少遍第十一话对作曲的省略了，看完第十话还在想诗超绊完成了立希一定很努力 ...</blockquote>
+现在隔壁都有不少讨论认为“立希本人其实毫无作曲创意只有理论知识，全靠猫在旁边弹即兴才能写出新歌”呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Akari  
+##### 12935#       发表于 2024-2-17 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979276&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-17 12:59</a>
+
+其实假唱这事，狗团前期不露脸假唱也没啥，只要用得是彩排的现场音频，根本锤不出来……林小姐其实和羊有共 ...</blockquote>
+其实我发现鼓子和偶像大师SC的几位关系不错，还参加过节目。
+
+感觉她属于到处当编外成员的那种感觉。
+
+*****
+
+####  Aendst  
+##### 12936#       发表于 2024-2-17 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979763&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 14:00</a>
+
+该说不说的可能我那朋友也是因为对少歌的情感共鸣充分所以能忽视这些问题了吧，但我真对少歌了解 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">喜欢毕竟都是主观的，既然能喜欢我觉得多多少少是有情感共鸣作为体验的一环在
+

@@ -860,3 +860,13 @@ Q娃现在还有哪里有海外播放的？</blockquote>
 难道不是所谓的轻百合其实才是百合这个词的原始定义用于区分硬核姛的GL（蕾丝）吗只是后来含义泛 ...</blockquote>
 该使用泥潭自创的新时代百合分类法了，法 Q 热 Q 属于纯良轻百，犬 Q 战队抱 Q 这类算赢面百合。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 984#       发表于 2024-2-17 14:12
+
+第三集应该就是兔组的主场了，说真的我犬q最好奇的就是两个男性的这对主宠剧情会咋发展，双男q？（woc，男男关系性！）单男q？（是主人还是兔子？）解包的独角兽？（什么美式霸凌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）或者是复刻抱q的编外双人组？
+
+虽然说是光之美少女，但这片目前的未知性全在这两男角色身上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

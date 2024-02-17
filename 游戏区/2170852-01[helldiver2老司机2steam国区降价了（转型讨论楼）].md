@@ -5011,3 +5011,27 @@ sony说万一你们这蝗了一波就不玩了呢？我这服务器多租了不�
 
 花198大洋帮瑞典蠢驴debug，后背被轨道激光暖穿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ab20000801  
+##### 533#       发表于 2024-2-17 16:07
+
+箭头自己都想不到自己一个做小品游戏的怎么突然这么火了...现在外网全是相关的meme
+
+*****
+
+####  ab20000801  
+##### 534#       发表于 2024-2-17 16:08
+
+这游戏的外网社区真的很有意思，算是这几年看过的最有意思的社区了哈哈哈
+
+*****
+
+####  reimei  
+##### 535#       发表于 2024-2-17 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">终于有空来玩了结果进不去，垃圾游戏嗼！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

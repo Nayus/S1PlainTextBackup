@@ -769,3 +769,17 @@ gemini ultra我在用
 
 谁把你家人的照片搜出来，然后生成一个ta被绑架的视频<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Midnight.Coup  
+##### 79#       发表于 2024-2-17 16:05
+
+ 本帖最后由 Midnight.Coup 于 2024-2-17 16:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978929&amp;ptid=2171936" target="_blank">mimighost 发表于 2024-2-17 12:17</a>
+讲真这个被滥用真的很可怕啊
+
+谁把你家人的照片搜出来，然后生成一个ta被绑架的视频 ...</blockquote>
+然后呢，敲诈吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">线下玩真实的还是容易被真实
+倒是极大丰富盒小鬼创作大头照视频的内容，网络暴力的攻击弹药有质的提升
+

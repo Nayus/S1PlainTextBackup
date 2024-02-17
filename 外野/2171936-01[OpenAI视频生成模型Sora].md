@@ -646,3 +646,32 @@ chatgpt里倒是有一个sora了，不过嘛
 
 OpenAI是不是把同行甩得越来越远了？
 
+
+*****
+
+####  mimighost  
+##### 68#       发表于 2024-2-17 08:14
+
+<blockquote>Rary 发表于 2024-2-17 07:36
+OpenAI是不是把同行甩得越来越远了？</blockquote>
+是的，Google可能和它差距最小，但是也有一年。国内算力被封印，sora我觉得，还是先想想比较实际的好一些
+
+*****
+
+####  NBXX  
+##### 69#       发表于 2024-2-17 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977039&amp;ptid=2171936" target="_blank">螺旋的小夜曲 发表于 2024-2-17 03:15</a>
+
+chatgpt里倒是有一个sora了，不过嘛</blockquote>
+这当然是用来蹭热度的GPTs，
+[https://www.gptshunter.com/gpt-store/NTUyYzI1MmIxNzBlNTMzNTJi](https://www.gptshunter.com/gpt-store/NTUyYzI1MmIxNzBlNTMzNTJi)
+
+GPT Hunted: 2024-02-16
+
+GPT Updated: 2024-02-16
+
+GPT Category: productivity
+
+调用的能力只有dalle、网页访问、代码解释器
+

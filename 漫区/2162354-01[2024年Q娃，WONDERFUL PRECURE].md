@@ -923,3 +923,17 @@ Q娃29，性别比59:41？消费欲望2700日元
 我觉得大概率只有兔子，眼镜小哥按设定更像解说+辅助+感情发展位，毕竟一下子来两个男 Q 还是追加也太激进 ...</blockquote>
 只变兔子算是最保守稳定的做法，我本来也觉得这个可能最大，不过现在解包出来了跟logo能对上的独角兽，又有了新变数，所以我现在看犬q动力之一就是想看看成田打算怎么安排兔组这对明显会深度参与剧情的男角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HazukiShion  
+##### 990#       发表于 2024-2-17 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982442&amp;ptid=2162354" target="_blank">modedd 发表于 2024-2-17 20:19</a>
+
+只变兔子算是最保守稳定的做法，我本来也觉得这个可能最大，不过现在解包出来了跟logo能对上的独角兽，又 ...</blockquote>
+兔组如果和主线剧情有关联的话，重点应该在兔子身上。<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+主人这边人设倒是挺明晰的，考虑到犬 Q 的大主题是人宠关系，加上已经明示了对彩羽的感情，应该会两手抓吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不过考虑到成田大妈的口味，希望后面不会空降一个犬 Q 版社长吧。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

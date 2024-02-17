@@ -25008,3 +25008,28 @@ Q.E.D.
   -- 来自 能手机投票的 Stage1官方  ...</blockquote>
 有链接吗，我就看过监督和独角兽的
 
+
+*****
+
+####  NODY  
+##### 13004#       发表于 2024-2-17 20:36
+
+按和武田对谈那个普通的女孩子被擅自当成神明崇拜的说法，就是爽姐擅自把祥子当成万能的神明了，自然是八百米滤镜觉得有祥子在就能光振c团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木谷高明  
+##### 13005#       发表于 2024-2-17 20:38
+
+属于爽世的，年轻人第一次BanG Dream<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 13006#       发表于 2024-2-17 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982495&amp;ptid=2159415" target="_blank">RedSpecial 发表于 2024-02-17 20:25:34</a>
+有链接吗，我就看过监督和独角兽的</blockquote>应该是柿本监督很早的一篇访谈，楼内有访谈汇总但我找不到了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

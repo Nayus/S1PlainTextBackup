@@ -1543,3 +1543,13 @@ B组有两人就是气氛组，C组两个烤箱克星居然没炸厨房<img src=
 
 草了，最不希望的事发生了，今天在油馆看到non那个mc英文烤肉视频，看了下评论连鬼佬都知道中国正在黑她....我看国内某些杂种黑non不是目的，搞臭鲤鱼的人际关系才是。
 
+
+*****
+
+####  adw667  
+##### 19590#       发表于 2024-2-17 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977169&amp;ptid=2078110" target="_blank">we89623 发表于 2024-2-17 05:37</a>
+草了，最不希望的事发生了，今天在油馆看到non那个mc英文烤肉视频，看了下评论连鬼佬都知道中国正在黑她... ...</blockquote>
+我倒是看到叔叔家评论区各种引流宣传其他成员的，病树前头万木春形容这个再合适不过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

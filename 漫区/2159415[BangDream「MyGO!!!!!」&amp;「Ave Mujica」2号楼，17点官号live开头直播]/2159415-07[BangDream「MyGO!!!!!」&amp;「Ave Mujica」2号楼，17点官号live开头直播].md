@@ -23597,3 +23597,13 @@ wsd血汗工厂这么坑的吗？没有声乐老师教发音吗？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  梶原ひかり  
+##### 12866#       发表于 2024-2-17 10:27
+
+【羊百科/羊考古学】决定了！向着声优进发！少女羊宫妃那追梦之路【きゅうり篇】
+[https://www.bilibili.com/video/BV18F4m177ZD](https://www.bilibili.com/video/BV18F4m177ZD)
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">太强了 挖了羊的前世今生了 算是
+

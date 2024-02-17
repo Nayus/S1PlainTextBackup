@@ -697,3 +697,18 @@ GPT Category: productivity
 是的，Google可能和它差距最小，但是也有一年。国内算力被封印，sora我觉得，还是先想想比较实际的好一些 ...</blockquote>
 求谷歌什么时候不造假再说ai水平，信谷歌不如信meta开源，至少对社会有利
 
+
+*****
+
+####  Ollie  
+##### 72#       发表于 2024-2-17 10:27
+
+时代进步太快了
+
+*****
+
+####  lyz1196  
+##### 73#       发表于 2024-2-17 10:29
+
+靠数据量参数量力大砖飞，告诉你该买老黄股票了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

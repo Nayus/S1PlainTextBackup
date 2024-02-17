@@ -5655,3 +5655,16 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 这个bug从开服就有了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我是今天补丁后才遇到的
 
+
+*****
+
+####  zzy516232108  
+##### 597#       发表于 2024-2-18 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984398&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-18 00:13</a>
+
+不需要，游戏自带的Q转盘+PING基本解决所有问题了
+
+唯一强沟通就是和熊弟口腔体操 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转盘有点类似apex嘛，那还可以，我整个玩玩
+

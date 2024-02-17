@@ -25888,3 +25888,24 @@ MyGO动画制作的幕后 BanG Dream! It’s MyGO!!!!!セッション
 
 朱紫御三家竟然喜欢火主，起名也是ホゲホゲ，喜欢呆呆的人是吗，代了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13078#       发表于 2024-2-17 23:02
+
+結月在ins直播，所以問了ave的東西<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+Q: 1st墮天初睦一起轉圈圈是結月的點子嗎？
+
+結月說是她和李子一起想的，說想做得華麗一點，所以就決定一起轉個圈了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+然後剛剛生日瞬間，奏音和李子都是掐著0點祝結月生日快樂，真是太團愛了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 13079#       发表于 2024-2-17 23:03
+
+不僅在ave的line group有祝福，李子還單獨個人祝福！<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

@@ -112,3 +112,14 @@ emmmmmmmmmmmm
 
 就是不喜欢b站观众吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汇聚群光  
+##### 16296#       发表于 2024-2-17 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983671&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2024-2-17 22:29</a>
+
+就是不喜欢b站观众吧</blockquote>
+想多了，官号发的全都是mea在推特上发的推文的翻译，说的也全都是404直播的事，跟b站没有任何关系
+

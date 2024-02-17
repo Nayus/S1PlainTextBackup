@@ -24751,3 +24751,18 @@ mio是能和灯的一起 ...</blockquote>
 大开眼界，先是所谓对剧本要求高的很喜欢少歌（我也很喜欢少歌，但这个对剧本要求高我真的看笑了），然后是 ...</blockquote>
 完了，让哥们炸出真的来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  makece  
+##### 12976#       发表于 2024-2-17 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">他妈的 我少歌躺着都中枪 邦批能不能好好讨论自家那点破事啊
+
+*****
+
+####  Nomind96  
+##### 12977#       发表于 2024-2-17 18:02
+
+正常，我心危都因为🐑躺枪了
+

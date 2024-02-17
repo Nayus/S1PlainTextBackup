@@ -24687,3 +24687,20 @@ mio是能和灯的一起 ...</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cindy355  
+##### 12970#       发表于 2024-2-17 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">……那个啥，我是真不懂少歌，只看了tv而且就一遍没怎么细看，只是我因为没觉得mygo的剧本问题有这么大所以感觉他要求高，看漏油说的话我朋友应该是对少歌有滤镜所以觉得少歌的剧本可以接受，可能引起了误会，对不起。
+
+*****
+
+####  木谷高明  
+##### 12971#       发表于 2024-2-17 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980735&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 16:30</a>
+……那个啥，我是真不懂少歌，只看了tv而且就一遍没怎么细看，只是我因为没觉得mygo的剧本问题有这 ...</blockquote>
+按母鸡卡的说法就是接不接受世界观的事而已<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+

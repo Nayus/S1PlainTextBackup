@@ -1222,3 +1222,14 @@ DLC怎么提升属性来着？升级不加？
 
 说个没用的，六个球掉晶体那个房，用两次冰系最终的全屏大招能把球打爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ——啧  
+##### 3967#       发表于 2024-2-17 16:24
+
+看了下，这属性是不是可以无限增殖的
+那竞速还有啥意义……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

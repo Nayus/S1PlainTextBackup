@@ -5035,3 +5035,20 @@ sony说万一你们这蝗了一波就不玩了呢？我这服务器多租了不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  andychen  
+##### 536#       发表于 2024-2-17 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980582&amp;ptid=2170852" target="_blank">ab20000801 发表于 2024-2-17 16:07</a>
+箭头自己都想不到自己一个做小品游戏的怎么突然这么火了...现在外网全是相关的meme ...</blockquote>
+主要这游戏本身也是玩梗的
+
+*****
+
+####  DioxinsX  
+##### 537#       发表于 2024-2-17 16:31
+
+忍不住想买这游戏，看steam差评和坛友的讨论又不敢买了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

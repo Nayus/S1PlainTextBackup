@@ -5697,3 +5697,11 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  绯想天の天子  
+##### 601#       发表于 2024-2-18 01:32
+
+跟老外匹了几把，语音狂喊freedom。我快憋不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

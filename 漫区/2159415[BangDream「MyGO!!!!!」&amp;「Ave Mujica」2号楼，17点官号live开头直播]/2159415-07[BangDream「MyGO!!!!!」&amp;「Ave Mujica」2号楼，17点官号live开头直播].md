@@ -24051,3 +24051,78 @@ https://www.bilibili.com ...</blockquote>
 
 但相应的，有很多地方是真的有“只能认为世界观如此设定如此不然讲不通”的问题
 
+
+*****
+
+####  cindy355  
+##### 12910#       发表于 2024-2-17 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979598&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-2-17 13:39</a>
+
+感觉国内对立希的看法多半是塑造不足，和灯绑定太死，又很容易滑到负面形象，如果能和灯松一下绑也喜闻乐见 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">借句话，“官方舞得太难嗑了”
+
+*****
+
+####  RedSpecial  
+##### 12911#       发表于 2024-2-17 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979480&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 13:22</a>
+昨晚和一个刚看完go的社畜朋友聊了挺久，和我不一样他对go评价相对较低，但是有几个观点跟我特别一 ...</blockquote>
+少歌唐突再生产真剑胜负不比这抽象多了，说明mygo还不够抽象，祥子退队的原因还算可以接受，她选择与过去切割而不是和解，圆太满反而下一季不太能有爆点。
+灯的剧情还可以用疑似阿斯伯格自圆其说，但爽世的剧情确实模糊，没有走进C团成员内心，却有强烈的认同感，她关键词是后悔也没体现。这个动画用感性的逻辑构建，你能get这些大病少女的思考回路还是非常能共情，只有爽世琢磨不出脑子里想的啥，可能是因为我不住大豪斯。
+
+*****
+
+####  cindy355  
+##### 12912#       发表于 2024-2-17 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979611&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-17 13:41</a>
+
+这3点都很赞同
+
+1是在邦多利这个人均天使的大背景下挑战所谓的“真实感”方向，并且为“乐队动画所以要靠 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说还好我是那种喜欢看柔软关系性（并非扭曲）的问题儿，go在这个方面上的情感表达我个人还是能给满分的。
+
+*****
+
+####  cindy355  
+##### 12913#       发表于 2024-2-17 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979598&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-2-17 13:39</a>
+
+感觉国内对立希的看法多半是塑造不足，和灯绑定太死，又很容易滑到负面形象，如果能和灯松一下绑也喜闻乐见 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">看您头像是海铃，实话说我不怎么在喜欢海铃的朋友面前提海希也是因为现在海铃也有种死绑立希的感觉，我觉得海铃是在非常成熟地把握着两人之间的距离，这点非常美味，不过也没办法，官方信息现在太少了……说到底还是分割商法的锅啊，唉。
+
+*****
+
+####  御幸一也  
+##### 12914#       发表于 2024-2-17 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979480&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-17 13:22</a>
+
+昨晚和一个刚看完go的社畜朋友聊了挺久，和我不一样他对go评价相对较低，但是有几个观点跟我特别一 ...</blockquote>
+第一個觀點好新鮮，還真是。
+
+*****
+
+####  Aendst  
+##### 12915#       发表于 2024-2-17 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979644&amp;ptid=2159415" target="_blank">RedSpecial 发表于 2024-2-17 13:45</a>
+
+少歌唐突再生产真剑胜负不比这抽象多了，说明mygo还不够抽象，祥子退队的原因还算可以接受，她选择与过去 ...</blockquote>
+爽世也不难理解，举个例子就是“会故意躲起来让别人找自己来获得满足感”（朋友语）
+
+*****
+
+####  御幸一也  
+##### 12916#       发表于 2024-2-17 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979598&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-2-17 13:39</a>
+
+感觉国内对立希的看法多半是塑造不足，和灯绑定太死，又很容易滑到负面形象，如果能和灯松一下绑也喜闻乐见 ...</blockquote>
+貓希活動我特地看了，把我看萎了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我以為能吃到貓希，結果給我端出了別的東西。
+

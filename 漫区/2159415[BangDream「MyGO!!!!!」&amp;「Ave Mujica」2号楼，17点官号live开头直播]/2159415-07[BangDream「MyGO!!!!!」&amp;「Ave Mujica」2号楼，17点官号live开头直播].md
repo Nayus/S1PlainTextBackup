@@ -23632,3 +23632,21 @@ https://www.bilibili.com ...</blockquote>
 
 另外这个号是沙包号，烤羊烤累了可以烤我<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 12869#       发表于 2024-2-17 11:04
+
+啥都说就变声优水楼了，比如林小姐要去西雅图
+
+<img src="https://img.saraba1st.com/forum/202402/17/110333sru3f15ffqqdtfqd.jpg" referrerpolicy="no-referrer">
+
+<strong>pic_quark_1708138461611.jpg</strong> (187.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 11:03 上传
+
+林小姐照片一直以来的毛病——脖子黑，相比之下楠木灯的衣服她穿不合身都没啥
+

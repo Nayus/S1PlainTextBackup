@@ -429,3 +429,75 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 站在实用角度默默忍受也挺好的说不定会爱上这种感觉</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">笑cry惹原来是口嗨怪，你这么牛逼就赶紧先把dragon的翻译改了，这算是我觉得还有点可能的点，不然说你妈批话呢？
 
+
+*****
+
+####  银光闪耀  
+##### 240#       发表于 2024-2-17 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978292&amp;ptid=2171337" target="_blank">蒹葭公子 发表于 2024-2-17 11:02</a>
+
+笑cry惹原来是口嗨怪，你这么牛逼就赶紧先把dragon的翻译改了，这算是我觉得还有点可能的点，不然 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谢谢假日最后一天送上的笑点
+
+
+*****
+
+####  蒹葭公子  
+##### 241#       发表于 2024-2-17 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978304&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-17 11:04</a>
+
+谢谢假日最后一天送上的笑点</blockquote>
+从假装理中客开始，到说批话结束。
+
+那还是你的表演精彩。<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银光闪耀  
+##### 242#       发表于 2024-2-17 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978321&amp;ptid=2171337" target="_blank">蒹葭公子 发表于 2024-2-17 11:07</a>
+
+从假装理中客开始，到说批话结束。
+
+那还是你的表演精彩。</blockquote>
+这话题本来就是摆屁股
+
+表演理中客的时候殖味藏一藏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过烂活也是活
+
+*****
+
+####  蒹葭公子  
+##### 243#       发表于 2024-2-17 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977869&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-17 09:57</a>
+
+国人想要夺回作为神祇的龙的释经权都被来自于“内部“的阻力阻止的话那就真的是丢脸丢大发了。
+
+思想阵地 ...</blockquote>
+哦抱歉我错了……
+
+典中典“释经权”；说瞎改翻译没人用是“给别人添麻烦”；抢占舆论高地要依靠某某部……
+
+从说批话开始，到说批话结束才对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒹葭公子  
+##### 244#       发表于 2024-2-17 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978340&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-17 11:09</a>
+
+这话题本来就是摆屁股
+
+表演理中客的时候殖味藏一藏
+
+不过烂活也是活 ...</blockquote>
+经典自己喜欢亮屁股看谁都是屁股……
+
+有没有一种可能性是瞎几把改翻译并不能展现文化自信反而是反面？
+

@@ -4734,3 +4734,13 @@ B站找下视频。固定刷新在一个鸡腿柱下面，浮起来的水</block
 单兵武器最好打吐酸泰坦的是磁轨炮吗</blockquote>
 飞矛稳定性高一点，磁轨炮可能是一枪，也可能是两枪，还可能是三四五六七八九十枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wincle  
+##### 502#       发表于 2024-2-17 09:19
+
+问一下，有更新一代高达的计划吗
+
+— from Xiaomi 2304FPN6DC, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

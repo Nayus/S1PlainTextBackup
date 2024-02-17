@@ -1606,3 +1606,16 @@ btw，所以这个大炮听说就是之前带菜宝节奏的，那这个传到�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  starring  
+##### 19596#       发表于 2024-2-17 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977433&amp;ptid=2078110" target="_blank">we89623 发表于 2024-2-17 08:46</a>
+
+国内一些人现在玩命黑non，但鱼还要跟non搞好关系，以后如果还有之前那样鱼带全队给国内拜年那种“福利” ...</blockquote>
+已经有人带节奏做鲤鱼的视频故意不带铃原
+
+这种带节奏以往又不是没有，鲤鱼本人肯定知道怎么应付。
+

@@ -733,3 +733,47 @@ saber是用了令咒，你说三、四秒就可以跑完四公里那就是时速
 Ubw线里呆毛在前线扛着，红a在远程狙击，结果红a所有箭矢通通不破防，只有用伪螺旋剑幻想崩坏收了狂海一 ...</blockquote>
 就最早涉及到多血条的论据来看，我还是倾向于早期人们的论点，游戏里的幻崩也只是炸了个爽，并没有什么卵用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 67#       发表于 2024-2-17 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982066&amp;ptid=2171748" target="_blank">DARKGRAY 发表于 2024-2-17 19:38</a>
+
+能打死1条就能多准备几把低级的来炸几条，虽然没这魔给12条全炸完，而且在短时间内依次炸定点也没啥可能 ...</blockquote>
+紅A會否去炸姊姊又變成另一問題，還是先問他在UBW線的在換了主人後的藍條長度，和A職的獨立行動這個BUG吧
+
+*****
+
+####  DARKGRAY  
+##### 68#       发表于 2024-2-17 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982148&amp;ptid=2171748" target="_blank">eilot 发表于 2024-2-17 19:47</a>
+
+紅A會否去炸姊姊又變成另一問題，還是先問他在UBW線的在換了主人後的藍條長度，和A職的獨立行動這個BUG吧 ...</blockquote>
+那肯定不会，但炸才是最好的解决方法<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  septemsky  
+##### 69#       发表于 2024-2-17 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982087&amp;ptid=2171748" target="_blank">DARKGRAY 发表于 2024-2-17 19:41</a>
+就最早涉及到多血条的论据来看，我还是倾向于早期人们的论点，游戏里的幻崩也只是炸了个爽，并没有什么卵 ...</blockquote>
+炸了一条命吧，不然伊莉雅直接撤退就很莫名其妙了
+
+*****
+
+####  eilot  
+##### 70#       发表于 2024-2-17 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982025&amp;ptid=2171748" target="_blank">漆黑之花 发表于 2024-2-17 19:33</a>
+
+没有魔力了干麻不撤退，等魔力回复了再去削命。红A魔力没了有办法回复，海无力命没了也能自然恢复吗？
+
+ ...</blockquote>
+大力神無力也只是他的對手相性太差，或戰場太差(伊利雅就在後面)，又或者FGO層次已經完全不同，敵人都是全力而他在我方時大多都是被削，而敵方版時反而是玩家被削(但不是一口氣打12次條而是分3~4場的多血條來打，難度大減)
+
+以前說法就是伊利雅在，12戀給他時間就能慢慢補回，
+

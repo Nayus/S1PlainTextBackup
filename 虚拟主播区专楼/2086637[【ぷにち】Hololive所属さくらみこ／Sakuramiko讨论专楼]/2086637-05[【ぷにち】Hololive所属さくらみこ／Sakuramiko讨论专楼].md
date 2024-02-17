@@ -212,3 +212,48 @@
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63960700&amp;ptid=2086637" target="_blank">holoan 发表于 2024-2-14 19:34</a></blockquote>
 我没有想到就几天后这段neta还能再用上一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8168#         楼主| 发表于 2024-2-17 19:45
+
+下周还会有一场告知专场直播，有2个大的告知
+
+先看看今天是什么再预测后面的
+
+*****
+
+####  holoan  
+##### 8169#         楼主| 发表于 2024-2-17 19:47
+
+第二弹！！！！！！！！！！！！！！！！
+
+*****
+
+####  holoan  
+##### 8170#         楼主| 发表于 2024-2-17 19:48
+
+这么说，每次taiyaki联动都是跟着生日期间的
+
+*****
+
+####  holoan  
+##### 8171#         楼主| 发表于 2024-2-17 19:49
+
+外带袋的那只是本人画的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 8172#         楼主| 发表于 2024-2-17 19:51
+
+46店铺比去年还多得多吧，我找找去年
+
+*****
+
+####  holoan  
+##### 8173#         楼主| 发表于 2024-2-17 19:51
+
+又有もちころりん了，
+

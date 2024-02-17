@@ -24908,3 +24908,27 @@ ccc是什么爽世特攻的锁情咒吗，还得祥子本人一对一去解。<i
 遇见不能细想的问题我的做法都是不细想不去理解去感受，大喊哇布洗就行。 ...</blockquote>
 可当你细想的时候，别人的动机与行为都息息相关，不由击节称快，到爽姐这就抽象了
 
+
+*****
+
+####  穗波殊  
+##### 12995#       发表于 2024-2-17 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63982094&amp;ptid=2159415" target="_blank">RedSpecial 发表于 2024-2-17 19:42</a>
+
+可当你细想的时候，别人的动机与行为都息息相关，不由击节称快，到爽姐这就抽象了 ...</blockquote>
+说不定人就是c版春日影铁粉呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">作为人生第一个女子乐队有点滤镜横正常吧
+
+*****
+
+####  凡人  
+##### 12996#       发表于 2024-2-17 19:51
+
+Q：为什么吹奏部不能融化爽世的心防？
+
+A：因为吹奏部里没有祥子。
+
+Q.E.D.
+
+唉，素祥人的世界就是这么简单<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

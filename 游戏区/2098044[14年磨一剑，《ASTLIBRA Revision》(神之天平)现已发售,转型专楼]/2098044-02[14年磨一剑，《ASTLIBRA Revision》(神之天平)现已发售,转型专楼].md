@@ -1244,3 +1244,11 @@ DLC怎么提升属性来着？升级不加？
 说个没用的，六个球掉晶体那个房，用两次冰系最终的全屏大招能把球打爆 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">应该是有血量的，球甚至可以上风魔法的魔法易伤
 
+
+*****
+
+####  盐星  
+##### 3969#       发表于 2024-2-17 19:50
+
+打了前五层，有点失望啊，剧情先撇一边，这游戏模式和本篇结尾好像没啥差别……没随机体验也没有多样化构筑，还是刷刷老一套<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

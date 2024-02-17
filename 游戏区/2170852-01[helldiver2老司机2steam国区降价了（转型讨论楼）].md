@@ -5705,3 +5705,11 @@ steam一样好友直接进，pc版除了反作弊导致的闪退其他毛病ps5�
 
 跟老外匹了几把，语音狂喊freedom。我快憋不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ssd  
+##### 602#       发表于 2024-2-18 01:48
+
+还没修好啊 现在变成单机了
+

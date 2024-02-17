@@ -296,3 +296,74 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 
 这堆傻逼拉的屎还真以为是妙手偶得么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙出生  
+##### 231#       发表于 2024-2-17 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">无聊
+
+*****
+
+####  酷乐  
+##### 232#       发表于 2024-2-17 10:09
+
+ 本帖最后由 酷乐 于 2024-2-17 10:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977869&amp;ptid=2171337" target="_blank">银光闪耀 发表于 2024-2-17 09:57</a>
+
+国人想要夺回作为神祇的龙的释经权都被来自于“内部“的阻力阻止的话那就真的是丢脸丢大发了。
+
+思想阵地 ...</blockquote>
+
+外交部都不用，哪来的合力，这就是新华社趁龙年赚一波绩效罢了，下次发力要等12年后。
+
+只有三个对接小国的外交机构用了loong，但其中两个都备注了dragon，另一个是用loong作注释。
+
+<img src="https://img.saraba1st.com/forum/202402/17/101026n9fe5u49apu9heew.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5424.png</strong> (211.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 10:10 上传
+
+<img src="https://img.saraba1st.com/forum/202402/17/101026tq3lj9em9ejolmjo.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5423.png</strong> (268.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 10:10 上传
+
+<img src="https://img.saraba1st.com/forum/202402/17/101026n87f0xzsioi7b85g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5422.jpeg</strong> (277.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 10:10 上传
+
+*****
+
+####  银光闪耀  
+##### 233#       发表于 2024-2-17 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977934&amp;ptid=2171337" target="_blank">酷乐 发表于 2024-2-17 10:09</a>
+
+外交部都不用，哪来的合力，这就是新华社趁龙年赚一波绩效罢了，下次发力要等12年后。
+
+ ...</blockquote>
+外卖部为什么要用？国台办和海协会一定希望两岸统一吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JokerTheFool  
+##### 234#       发表于 2024-2-17 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63976622&amp;ptid=2171337" target="_blank">manysun 发表于 2024-2-17 00:51</a>
+有点好奇，万智牌里面的naga和dragon会有联动效应吗？因为西方人也一度把印度的naga翻译成dragon，直到现 ...</blockquote>
+西天也是西方<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

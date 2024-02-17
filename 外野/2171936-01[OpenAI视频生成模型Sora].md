@@ -687,3 +687,13 @@ GPT Category: productivity
 
 —— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ddwhzh  
+##### 71#       发表于 2024-2-17 10:07
+
+<blockquote>mimighost 发表于 2024-2-17 08:14
+是的，Google可能和它差距最小，但是也有一年。国内算力被封印，sora我觉得，还是先想想比较实际的好一些 ...</blockquote>
+求谷歌什么时候不造假再说ai水平，信谷歌不如信meta开源，至少对社会有利
+

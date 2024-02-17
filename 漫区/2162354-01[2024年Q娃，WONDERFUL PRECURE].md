@@ -993,3 +993,21 @@ Q娃29，性别比59:41？消费欲望2700日元
 说实话，现在小麦对彩羽这种病态的感情我觉得会被当作一种反面教材，后面随着成长会被修正掉的那种。[f:0 ...</blockquote>
 兔子现在除了一个无口呆萌的宠设啥也没有呀，等明天第三集看看什么情况吧，我还挺期待他其实是个闷骚之类反差萌的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bilibilius  
+##### 996#       发表于 2024-2-17 21:28
+
+ 本帖最后由 bilibilius 于 2024-2-17 21:30 编辑 
+
+在netorabo上看到个有意思的投票结果，是社会人选择的最喜欢Q娃系列排行2023。虽然结果很夸张，但竟然有点道理，虽然有效票数不多，才149票。
+
+<img src="https://img.saraba1st.com/forum/202402/17/212610ud91h9kaeckec9vb.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (25.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-17 21:26 上传
+

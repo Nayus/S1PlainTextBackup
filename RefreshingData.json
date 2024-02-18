@@ -4470,7 +4470,7 @@
     "lastedit": 1708265114,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2057903": {
     "totalreply": 1182,
@@ -6111,13 +6111,13 @@
     "update": false
   },
   "1992973": {
-    "totalreply": 4414,
+    "totalreply": 4415,
     "title": "[『葬送的芙莉莲』动画化决定！2023年秋]",
     "newtitle": "[『葬送的芙莉莲』动画化决定！2023年秋 剧透请反白]",
-    "lastedit": 1708264520,
+    "lastedit": 1708265416,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2147731": {
     "totalreply": 42844,
@@ -6558,7 +6558,7 @@
     "lastedit": 1708265111,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2082084": {
     "totalreply": 2041,
@@ -6750,13 +6750,13 @@
     "update": false
   },
   "2086008": {
-    "totalreply": 1471,
+    "totalreply": 1472,
     "title": "[迷宫饭 TV动画化 TRIGGER扳机社制作 2024年1月]",
     "newtitle": "[迷宫饭 TV动画化 TRIGGER扳机社制作 2024年1月 剧透请反白]",
-    "lastedit": 1708263022,
+    "lastedit": 1708265411,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2161228": {
     "totalreply": 10429,
@@ -7002,13 +7002,13 @@
     "update": false
   },
   "2163917": {
-    "totalreply": 7190,
+    "totalreply": 7191,
     "title": "[【A39】A-SOUL综合讨论楼（12.29广州线下）]",
     "newtitle": "[【A39】A-SOUL综合讨论楼]",
-    "lastedit": 1708263918,
+    "lastedit": 1708265415,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2164203": {
     "totalreply": 1178,
@@ -7443,22 +7443,22 @@
     "update": false
   },
   "2168695": {
-    "totalreply": 422,
+    "totalreply": 426,
     "title": "[【瞳3】星瞳_Official综合讨论楼｜｜新✨楼新✨气象！]",
     "newtitle": "[【瞳3】星瞳_Official综合讨论楼｜｜2.3深月✨春晚✨！！！]",
-    "lastedit": 1708265113,
+    "lastedit": 1708265417,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
   },
   "2135261": {
-    "totalreply": 135,
+    "totalreply": 136,
     "title": "[『ぶっちぎり？!』原创TV动画 2024年1月]",
     "newtitle": "[『Bucchigiri？! ／ ぶっちぎり？!』原创TV动画 2024年1月]",
-    "lastedit": 1708264814,
+    "lastedit": 1708265413,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2162261": {
     "totalreply": 238,
@@ -7701,22 +7701,22 @@
     "lastedit": 1708265114,
     "category": "手游专楼",
     "active": true,
-    "update": true
-  },
-  "2168002": {
-    "totalreply": 120,
-    "title": "[猎奇STG《Angel at Dusk 黄昏的乐园与被染红的天使》现已发售]",
-    "newtitle": "[猎奇STG《Angel at Dusk 黄昏的乐园与被染红的天使》现已发售]",
-    "lastedit": 1708264516,
-    "category": "游戏区",
-    "active": true,
     "update": false
   },
+  "2168002": {
+    "totalreply": 121,
+    "title": "[猎奇STG《Angel at Dusk 黄昏的乐园与被染红的天使》现已发售]",
+    "newtitle": "[猎奇STG《Angel at Dusk 黄昏的乐园与被染红的天使》现已发售]",
+    "lastedit": 1708265413,
+    "category": "游戏区",
+    "active": true,
+    "update": true
+  },
   "2170869": {
-    "totalreply": 11459,
+    "totalreply": 11470,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708265111,
+    "lastedit": 1708265414,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7866,13 +7866,13 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 1632,
+    "totalreply": 1639,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708264812,
+    "lastedit": 1708265416,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171145": {
     "totalreply": 54,
@@ -9477,13 +9477,13 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1427,
+    "totalreply": 1432,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708264519,
+    "lastedit": 1708265418,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1991734": {
     "totalreply": 161,
@@ -9747,13 +9747,13 @@
     "update": false
   },
   "2171816": {
-    "totalreply": 163,
+    "totalreply": 164,
     "title": "[面多加水水多加面]",
     "newtitle": "[面多加水水多加面]",
-    "lastedit": 1708238580,
+    "lastedit": 1708265414,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2102780": {
     "totalreply": 218,
@@ -10239,7 +10239,7 @@
     "lastedit": 1708265113,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172005": {
     "totalreply": 77,
@@ -10545,7 +10545,7 @@
     "lastedit": 1708265114,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2156413": {
     "totalreply": 44,
@@ -10554,7 +10554,7 @@
     "lastedit": 1708265111,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172001": {
     "totalreply": 91,
@@ -10656,22 +10656,22 @@
     "update": false
   },
   "2172148": {
-    "totalreply": 184,
+    "totalreply": 185,
     "title": "[男女都不结婚的话，年纪大了，到底是男的更急还是女的更急？]",
     "newtitle": "[男女都不结婚的话，年纪大了，到底是男的更急还是女的更急？]",
-    "lastedit": 1708264521,
+    "lastedit": 1708265415,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2022126": {
-    "totalreply": 59,
+    "totalreply": 61,
     "title": "[全斗焕 多发性骨髓瘤确诊]",
     "newtitle": "[全斗焕 多发性骨髓瘤确诊]",
-    "lastedit": 1708261832,
+    "lastedit": 1708265413,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172117": {
     "totalreply": 67,
@@ -10707,7 +10707,7 @@
     "lastedit": 1708265111,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172160": {
     "totalreply": 90,
@@ -10755,10 +10755,10 @@
     "update": false
   },
   "2172155": {
-    "totalreply": 68,
+    "totalreply": 70,
     "title": "[华语乐坛唯一真神在instagram装逼被TaylorSwift粉丝打脸]",
     "newtitle": "[华语乐坛唯一真神在instagram装逼被TaylorSwift粉丝打脸]",
-    "lastedit": 1708265113,
+    "lastedit": 1708265418,
     "category": "外野",
     "active": true,
     "update": true
@@ -10779,7 +10779,7 @@
     "lastedit": 1708265110,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171995": {
     "totalreply": 42,
@@ -10797,7 +10797,7 @@
     "lastedit": 1708265111,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172038": {
     "totalreply": 62,
@@ -10944,13 +10944,13 @@
     "update": false
   },
   "2172240": {
-    "totalreply": 97,
+    "totalreply": 98,
     "title": "[10岁男孩被窜出的烟花炸伤身亡]",
     "newtitle": "[10岁男孩被窜出的烟花炸伤身亡]",
-    "lastedit": 1708263621,
+    "lastedit": 1708265418,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172150": {
     "totalreply": 43,
@@ -11076,7 +11076,7 @@
     "lastedit": 1708265115,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2166949": {
     "totalreply": 42,
@@ -11088,10 +11088,10 @@
     "update": false
   },
   "2171112": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "待更新",
     "newtitle": "[北京房价探讨，到底要不要卖]",
-    "lastedit": 1708265116,
+    "lastedit": 1708265417,
     "category": "外野",
     "active": true,
     "update": true

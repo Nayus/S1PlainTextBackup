@@ -53,3 +53,13 @@
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  希克苏鲁伯  
+##### 121#       发表于 2024-2-18 22:01
+
+我也是看到作者感叹中国销量出乎意料才知道这个名字的
+
+手残能用ce调变速吗
+

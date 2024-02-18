@@ -1293,3 +1293,43 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 话说当初汁波密和玛琳的双人BANK是第几集上线的来着（
 
+
+*****
+
+####  leleq  
+##### 1024#       发表于 2024-2-18 18:23
+
+话聊为主也就这几集了有玩具还是要放大招净化的（虽然为了省钱还会有话聊），就是动作戏大概率都是这集这种停龙车后面加个捆绑吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+最不开心还是没双人bank这2人有很长时间都是双人变身的这都不肯做吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hummysiren  
+##### 1025#       发表于 2024-2-18 18:25
+
+年年招魂bank能超越组曲，但感觉没希望了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宅音  
+##### 1026#       发表于 2024-2-18 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">眼镜虽然存在感高但是应该不会再整一个渣蓝吧，毕竟同龄人
+
+*****
+
+####  leleq  
+##### 1027#       发表于 2024-2-18 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991094&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-18 18:23</a>
+
+虽然但是妮可乐园的动物的叫声都是有且仅有妮可妮可啊
+
+而且妮可乐园的动物们在体型特征等方面和地 ...</blockquote>
+这几个是闪亮动物（高级干部）呗正好也能解决会说话的问题，肯定不能一开始就说清楚啊（不然小麦的玩具怎么卖）总得留点悬念啊小友也不是傻子啊。
+
+猫哪耳朵毛怎么也不能说是正常动物吧（反正我没见过这种猫）
+
+汁波密和玛琳Q娃解散回以后吧……这2人会吵架吗……
+

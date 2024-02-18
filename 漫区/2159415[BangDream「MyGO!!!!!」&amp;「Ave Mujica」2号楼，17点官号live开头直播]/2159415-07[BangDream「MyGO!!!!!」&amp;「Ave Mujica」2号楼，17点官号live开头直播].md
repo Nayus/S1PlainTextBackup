@@ -26411,3 +26411,29 @@ C团回忆杀独白强调的也是灯比较难和周围的人共情，还有没�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  6030sylar  
+##### 13122#       发表于 2024-2-18 16:50
+
+<img src="https://img.saraba1st.com/forum/202402/18/164902pctwihgqv2xvjejz.png" referrerpolicy="no-referrer">
+
+<strong>S[JB@@9{X)~UEWR[OQYGRZ0.png</strong> (41.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 16:49 上传
+
+厄介队友
+
+*****
+
+####  cindy355  
+##### 13123#       发表于 2024-2-18 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990183&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-18 16:50</a>
+
+厄介队友</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

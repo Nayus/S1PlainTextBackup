@@ -5996,3 +5996,39 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
 30万在线了 人太多了
 
+
+*****
+
+####  Launce  
+##### 632#       发表于 2024-2-18 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63987036&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-18 11:28</a>
+
+30万在线了 人太多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑点解析，这是款上线10天，33万人挂机等着进服务器，进去后还得面对各种闪退的在线长运营游戏
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真服了抠唆索尼了，2024还能看到爆款在线游戏服务器容量不够的事，10天了还没解决
+
+*****
+
+####  PlasmaSnake  
+##### 633#       发表于 2024-2-18 11:38
+
+索索这么抠就是为了让大家早日afk腾出空间啊，反正现在扩容了等热度下去了不就浪费了，那我就遂了索索的愿a了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 634#       发表于 2024-2-18 11:41
+
+ 本帖最后由 Launce 于 2024-2-18 11:43 编辑 
+
+<img src="https://img.saraba1st.com/forum/202402/18/114326o6wa6665k6kj5k5l.jpg" referrerpolicy="no-referrer">
+
+<strong>04b27a2815b75.png</strong> (918.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 11:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 草，点星球又给我干闪退了，什么鬼BUG
+

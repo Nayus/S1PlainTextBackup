@@ -465,3 +465,17 @@ FAT
 机床出现200年了，出现在了多少普通人的书桌上？</blockquote>
 这个怎么说呢，现在中国的普通人大部分都能买得起一台机床了，只是大部分普通人既不从事机械加工行业也没有硬核diy的爱好，自然不会去买。
 
+
+*****
+
+####  shiraikuroko  
+##### 49#       发表于 2024-2-18 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63983509&amp;ptid=2171959" target="_blank">hunterkiller 发表于 2024-2-17 22:14</a>
+这玩意全世界用的厂就3家了，为啥还要组装调试完了拆掉再运到foundry厂装起来？不能一开始就去foundry的厂 ...</blockquote>
+光刻机能卖二手是重要优势
+
+之前很多干不下来都卖二手了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

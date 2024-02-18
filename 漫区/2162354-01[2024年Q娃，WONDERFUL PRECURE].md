@@ -1208,3 +1208,18 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 只要反派干部发起进攻，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 1015#       发表于 2024-2-18 14:15
+
+继诚司和抱狗唯之后这是又新增一位常驻普通人？虽然这次是可以成为军师的角色
+
+*****
+
+####  放哨的狼  
+##### 1016#       发表于 2024-2-18 14:17
+
+犬q砍了战斗就算了，话疗部分还加长了，多了男的科普，不会后面都要这么水下去吧
+

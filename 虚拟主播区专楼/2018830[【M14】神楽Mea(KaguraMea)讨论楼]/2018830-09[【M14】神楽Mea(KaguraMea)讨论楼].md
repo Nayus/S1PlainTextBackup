@@ -211,3 +211,11 @@ b站和**确实区别对待了
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TiHaru  
+##### 16307#       发表于 2024-2-19 02:58
+
+好快的切，可惜又翻错了，那条sc最后一句是在聊之前的话题，说主播不是纯洁无垢的
+

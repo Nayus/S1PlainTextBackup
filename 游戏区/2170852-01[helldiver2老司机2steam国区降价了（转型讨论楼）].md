@@ -6178,3 +6178,11 @@ PS5 225k max
 
 十万人玩排队模拟器，tm的还在涨，活该索尼倒闭。
 
+
+*****
+
+####  御风沐雪  
+##### 646#       发表于 2024-2-18 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">傻逼索尼，排了一上午没玩上
+

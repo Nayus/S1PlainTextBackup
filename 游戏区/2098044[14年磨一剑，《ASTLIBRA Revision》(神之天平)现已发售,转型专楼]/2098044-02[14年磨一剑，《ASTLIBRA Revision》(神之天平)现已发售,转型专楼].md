@@ -1362,3 +1362,36 @@ DLC怎么提升属性来着？升级不加？
 不然法师有法杖投射物+被动里的投射物充能组合 ...</blockquote>
 是的,我就是用那个风弹法杖,射程远,弹道好,但只能打气然后魔法输出,根本不出伤的.法杖弹伤害体感那个原地光球最高,不知道本传的大魔女法杖能不能拿到
 
+
+*****
+
+####  syndrome2032  
+##### 3978#       发表于 2024-2-18 08:23
+
+ 本帖最后由 syndrome2032 于 2024-2-18 08:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984209&amp;ptid=2098044" target="_blank">白軍浪 发表于 2024-2-17 23:44</a>
+是的,我就是用那个风弹法杖,射程远,弹道好,但只能打气然后魔法输出,根本不出伤的.法杖弹伤害体感那个原地 ...</blockquote>
+魔女杖应该没了，斗技场打魔女给的是妖刀村正。道具列表里魔女杖也没在掉落范畴里。
+
+*****
+
+####  syndrome2032  
+##### 3979#       发表于 2024-2-18 08:24
+
+世界树场景的蓝发npc应该就是正义女神本人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然没名字但是小细节太多了。
+
+*****
+
+####  jy000129  
+##### 3980#       发表于 2024-2-18 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63985263&amp;ptid=2098044" target="_blank">syndrome2032 发表于 2024-2-18 08:24</a>
+世界树场景的蓝发npc应该就是正义女神本人
+
+虽然没名字但是小细节太多了。</blockquote>
+不是原作的湖中仙女吗，还被店长拿斧头砸过的
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

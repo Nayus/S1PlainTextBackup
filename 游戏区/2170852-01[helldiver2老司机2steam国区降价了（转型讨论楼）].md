@@ -5812,3 +5812,13 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
 昨晚上还正常，今天早上又开始无限黑屏卡加载了。
 
+
+*****
+
+####  萧闻蒲  
+##### 614#       发表于 2024-2-18 08:28
+
+匹到的都是鬼佬，怎么才能匹到国人啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

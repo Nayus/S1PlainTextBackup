@@ -811,3 +811,14 @@ gemini ultra我在用
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978042&amp;ptid=2171936" target="_blank"> lyz1196 发表于 2024-2-17 10:29</a> 靠数据量参数量力大砖飞，告诉你该买老黄股票了 </blockquote>
 奥特曼不是要用7万亿掘老黄祖坟吗来自: iPhone客户端
 
+
+*****
+
+####  leviathan  
+##### 83#       发表于 2024-2-18 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63980573&amp;ptid=2171936" target="_blank">Midnight.Coup 发表于 2024-2-17 16:05</a>
+然后呢，敲诈吗线下玩真实的还是容易被真实
+倒是极大丰富盒小鬼创作大头照视频的内容，网络暴力的 ...</blockquote>
+诈骗这种广撒网有几条被钓到就影响很大了，你以为现在到处宣传反诈是为什么
+

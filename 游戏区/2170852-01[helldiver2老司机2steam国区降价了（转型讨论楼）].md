@@ -6475,3 +6475,23 @@ byd快1天了还进不去
 
 这个游戏本体以首发来讲相当能打，但服务器.....只能说每天都能整出来点新花样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 676#       发表于 2024-2-18 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991906&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-18 20:03</a>
+
+今天虽然没有更新，没有修服务器，但是他把商店的甲涨价了，他真的我哭死
+
+ ...</blockquote>
+125的头盔还怪好看的，等等上线就买。
+
+*****
+
+####  ab20000801  
+##### 677#       发表于 2024-2-18 21:42
+
+看了下和服务器容量其实关系不太大了，纯粹是箭头自己的后端搞的有问题....好像是数据返还的问题
+

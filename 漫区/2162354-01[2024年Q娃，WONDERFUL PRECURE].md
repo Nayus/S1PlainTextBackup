@@ -1446,3 +1446,14 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 打甜点起一直是一年百合一年bg，今年本来就是bg位还把成田良美这种铁血bg战士请来主笔从最开始就没有百合 ...</blockquote>
 治愈有BG吗，难不成你想说和佳x达鲁伊森（震惊）
 
+
+*****
+
+####  modedd  
+##### 1037#       发表于 2024-2-18 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63992716&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-18 21:44</a>
+
+治愈有BG吗，难不成你想说和佳x达鲁伊森（震惊）</blockquote>
+确实有“因为疫情怕影响不好导致剧情修改”这种小道消息，而且愈q也确实没啥百合含量，主要就是捡捡**了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

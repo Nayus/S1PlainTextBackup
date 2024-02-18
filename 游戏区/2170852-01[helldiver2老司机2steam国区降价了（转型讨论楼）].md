@@ -6212,3 +6212,13 @@ PS5 225k max
 
 索尼现在是不是后悔砍美末OL和猪猪侠OL了
 
+
+*****
+
+####  gzGaryC  
+##### 650#       发表于 2024-2-18 14:31
+
+ 本帖最后由 gzGaryC 于 2024-2-18 14:32 编辑 
+
+steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想到这么火，还是等晚上美国佬都睡了再玩吧，至少昨晚开黑还挺稳定的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

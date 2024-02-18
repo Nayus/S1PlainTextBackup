@@ -365,3 +365,28 @@
 
 好像分析得有那么点道理其实并没有
 
+
+*****
+
+####  holoan  
+##### 8182#         楼主| 发表于 2024-2-18 18:08
+
+<img src="https://img.saraba1st.com/forum/202402/18/180813qalsevalttcliihh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 18:08 上传
+
+今天小动画是开列车，直播是著名的列车问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 8183#         楼主| 发表于 2024-2-18 18:10
+
+工商联动的正式媒体公告还没发布，看来真的要等周一
+
+但是特设网站昨天晚上就开放了啊
+

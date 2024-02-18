@@ -5966,3 +5966,33 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 但是我记得好像刚开始几天是对的 要么是我记错了</blockquote>
 没有，首日就是这样了，我船上设的仁慈女王到了任务开始时船身写的就是女王仁慈
 
+
+*****
+
+####  Launce  
+##### 629#       发表于 2024-2-18 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑了，挂着排了半小时，进去点开星图直接闪退
+
+*****
+
+####  绯想天の天子  
+##### 630#       发表于 2024-2-18 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要么进不去，要么进去了匹不了。这服务器还能修好吗？
+
+*****
+
+####  LrGsite  
+##### 631#       发表于 2024-2-18 11:28
+
+<img src="https://img.saraba1st.com/forum/202402/18/112808x1y5f09j1dy099hw.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (12.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 11:28 上传
+
+30万在线了 人太多了
+

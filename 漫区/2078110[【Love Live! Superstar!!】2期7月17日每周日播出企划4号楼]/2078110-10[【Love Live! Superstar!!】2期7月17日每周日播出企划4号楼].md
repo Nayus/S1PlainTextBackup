@@ -1823,3 +1823,15 @@ b站逐渐变成贴吧了，审核没有，只为了流量。鱼春节动态的�
 —— 来自 Sony XQ-DQ72, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 对的，就是偷懒。
 
+
+*****
+
+####  gaayas  
+##### 19620#       发表于 2024-2-18 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63977169&amp;ptid=2078110" target="_blank">we89623 发表于 2024-2-17 05:37</a>
+草了，最不希望的事发生了，今天在油馆看到non那个mc英文烤肉视频，看了下评论连鬼佬都知道中国正在黑她... ...</blockquote>
+友邦惊诧这套就别搞了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

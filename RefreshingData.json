@@ -87,7 +87,7 @@
     "lastedit": 1708282208,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16960,
@@ -7602,7 +7602,7 @@
     "lastedit": 1708282208,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170332": {
     "totalreply": 300,
@@ -7641,10 +7641,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 2946,
+    "totalreply": 2947,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708282208,
+    "lastedit": 1708282505,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -9483,7 +9483,7 @@
     "lastedit": 1708282208,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1991734": {
     "totalreply": 161,
@@ -10527,7 +10527,7 @@
     "lastedit": 1708282207,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172048": {
     "totalreply": 93,

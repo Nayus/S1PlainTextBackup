@@ -402,7 +402,7 @@
     "lastedit": 1708264219,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2086516": {
     "totalreply": 727,
@@ -906,7 +906,7 @@
     "lastedit": 1708264219,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2037235": {
     "totalreply": 996,
@@ -1598,7 +1598,7 @@
     "newtitle": "[S1机核网真爱楼]",
     "lastedit": 1708005060,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2029623": {
@@ -4932,13 +4932,13 @@
     "update": false
   },
   "2106844": {
-    "totalreply": 882,
+    "totalreply": 883,
     "title": "[2023年新超级战队 王様戦队キングオージャー]",
     "newtitle": "[2023年新超级战队 王様戦队キングオージャー]",
-    "lastedit": 1708261230,
+    "lastedit": 1708264520,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1795939": {
     "totalreply": 1006,
@@ -6111,13 +6111,13 @@
     "update": false
   },
   "1992973": {
-    "totalreply": 4413,
+    "totalreply": 4414,
     "title": "[『葬送的芙莉莲』动画化决定！2023年秋]",
     "newtitle": "[『葬送的芙莉莲』动画化决定！2023年秋 剧透请反白]",
-    "lastedit": 1708263918,
+    "lastedit": 1708264520,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2147731": {
     "totalreply": 42844,
@@ -6525,13 +6525,13 @@
     "update": false
   },
   "2156895": {
-    "totalreply": 5193,
+    "totalreply": 5195,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，Who's Next？Timdog回旋辣]",
-    "lastedit": 1708260261,
+    "lastedit": 1708264517,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2157110": {
     "totalreply": 801,
@@ -6873,7 +6873,7 @@
     "lastedit": 1708264219,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2162512": {
     "totalreply": 613,
@@ -7110,13 +7110,13 @@
     "update": false
   },
   "2166322": {
-    "totalreply": 1372,
+    "totalreply": 1373,
     "title": "[缅甸专楼-1月版]",
     "newtitle": "[缅甸专楼-1月版]",
-    "lastedit": 1708244580,
+    "lastedit": 1708264519,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2166321": {
     "totalreply": 2857,
@@ -7344,10 +7344,10 @@
     "update": false
   },
   "2167989": {
-    "totalreply": 5644,
+    "totalreply": 5646,
     "title": "[剧场动画『机动战士高达 SEED FREEDOM』PV公开，24年1月26日上映]",
     "newtitle": "[倒序浏览剧场动画『机动战士高达 SEED FREEDOM』24.01.26上映]",
-    "lastedit": 1708264219,
+    "lastedit": 1708264517,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7443,22 +7443,22 @@
     "update": false
   },
   "2168695": {
-    "totalreply": 417,
+    "totalreply": 418,
     "title": "[【瞳3】星瞳_Official综合讨论楼｜｜新✨楼新✨气象！]",
     "newtitle": "[【瞳3】星瞳_Official综合讨论楼｜｜2.3深月✨春晚✨！！！]",
-    "lastedit": 1708264213,
+    "lastedit": 1708264514,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
   },
   "2135261": {
-    "totalreply": 133,
+    "totalreply": 134,
     "title": "[『ぶっちぎり？!』原创TV动画 2024年1月]",
     "newtitle": "[『Bucchigiri？! ／ ぶっちぎり？!』原创TV动画 2024年1月]",
-    "lastedit": 1708260268,
+    "lastedit": 1708264513,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2162261": {
     "totalreply": 238,
@@ -7620,7 +7620,7 @@
     "lastedit": 1708264214,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170519": {
     "totalreply": 521,
@@ -7629,7 +7629,7 @@
     "lastedit": 1708264219,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170612": {
     "totalreply": 1314,
@@ -7647,7 +7647,7 @@
     "lastedit": 1708264215,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -7704,19 +7704,19 @@
     "update": false
   },
   "2168002": {
-    "totalreply": 119,
+    "totalreply": 120,
     "title": "[猎奇STG《Angel at Dusk 黄昏的乐园与被染红的天使》现已发售]",
     "newtitle": "[猎奇STG《Angel at Dusk 黄昏的乐园与被染红的天使》现已发售]",
-    "lastedit": 1708261832,
+    "lastedit": 1708264516,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170869": {
-    "totalreply": 11434,
+    "totalreply": 11441,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708264219,
+    "lastedit": 1708264517,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7872,7 +7872,7 @@
     "lastedit": 1708264213,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171145": {
     "totalreply": 54,
@@ -8727,7 +8727,7 @@
     "lastedit": 1708264219,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171595": {
     "totalreply": 96,
@@ -9477,10 +9477,10 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1425,
+    "totalreply": 1427,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708264213,
+    "lastedit": 1708264519,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
@@ -10386,13 +10386,13 @@
     "update": false
   },
   "2172055": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[HDR／120hz都出来好几年了，好像没多少人在乎这些]",
     "newtitle": "[HDR／120hz都出来好几年了，好像没多少人在乎这些]",
-    "lastedit": 1708260615,
+    "lastedit": 1708264519,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172075": {
     "totalreply": 76,
@@ -10530,22 +10530,22 @@
     "update": false
   },
   "2172048": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[穷人YY下，富哥有100多万预算，买啥跑车]",
     "newtitle": "[穷人YY下，富哥有100多万预算，买啥跑车]",
-    "lastedit": 1708263620,
+    "lastedit": 1708264517,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172102": {
-    "totalreply": 48,
+    "totalreply": 51,
     "title": "[跟大姐姐谈恋爱真的太刺激了]",
     "newtitle": "[跟大姐姐谈恋爱真的太刺激了]",
-    "lastedit": 1708184697,
+    "lastedit": 1708264519,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2156413": {
     "totalreply": 43,
@@ -10656,13 +10656,13 @@
     "update": false
   },
   "2172148": {
-    "totalreply": 182,
+    "totalreply": 184,
     "title": "[男女都不结婚的话，年纪大了，到底是男的更急还是女的更急？]",
     "newtitle": "[男女都不结婚的话，年纪大了，到底是男的更急还是女的更急？]",
-    "lastedit": 1708263922,
+    "lastedit": 1708264521,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2022126": {
     "totalreply": 59,
@@ -10698,7 +10698,7 @@
     "lastedit": 1708264219,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171154": {
     "totalreply": 129,
@@ -10707,7 +10707,7 @@
     "lastedit": 1708264219,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172160": {
     "totalreply": 90,
@@ -10755,13 +10755,13 @@
     "update": false
   },
   "2172155": {
-    "totalreply": 66,
+    "totalreply": 67,
     "title": "[华语乐坛唯一真神在instagram装逼被TaylorSwift粉丝打脸]",
     "newtitle": "[华语乐坛唯一真神在instagram装逼被TaylorSwift粉丝打脸]",
-    "lastedit": 1708263922,
+    "lastedit": 1708264522,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172032": {
     "totalreply": 52,
@@ -10791,13 +10791,13 @@
     "update": false
   },
   "2172198": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[土(柴)鸡蛋是不是智商税？]",
     "newtitle": "[土(柴)鸡蛋是不是智商税？]",
-    "lastedit": 1708256400,
+    "lastedit": 1708264520,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172038": {
     "totalreply": 62,
@@ -10845,13 +10845,13 @@
     "update": false
   },
   "2172186": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[最近玩了几款武侠游戏  被古龙爆杀了]",
     "newtitle": "[最近玩了几款武侠游戏  被古龙爆杀了]",
-    "lastedit": 1708263024,
+    "lastedit": 1708264519,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172214": {
     "totalreply": 50,
@@ -10935,13 +10935,13 @@
     "update": false
   },
   "2172234": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[2月17日晚福建泉州发生命案，3死一重伤]",
     "newtitle": "[2月17日晚福建泉州发生命案，3死一重伤]",
-    "lastedit": 1708263620,
+    "lastedit": 1708264522,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172240": {
     "totalreply": 97,
@@ -10980,13 +10980,13 @@
     "update": false
   },
   "2172207": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[又看到上海coser进地铁被拦，但是这回站长说了原因]",
     "newtitle": "[又看到上海coser进地铁被拦，但是这回站长说了原因]",
-    "lastedit": 1708260282,
+    "lastedit": 1708264522,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172230": {
     "totalreply": 49,
@@ -11013,7 +11013,7 @@
     "lastedit": 1708264216,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172197": {
     "totalreply": 50,
@@ -11022,7 +11022,7 @@
     "lastedit": 1708264219,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172227": {
     "totalreply": 49,
@@ -11034,13 +11034,13 @@
     "update": false
   },
   "2172217": {
-    "totalreply": 45,
+    "totalreply": 47,
     "title": "待更新",
     "newtitle": "[非珠地区彩礼三万八泥潭什么水平？]",
-    "lastedit": 1708262424,
+    "lastedit": 1708264522,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172208": {
     "totalreply": 43,
@@ -11067,7 +11067,7 @@
     "lastedit": 1708264220,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172089": {
     "totalreply": 42,
@@ -11076,7 +11076,7 @@
     "lastedit": 1708264219,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2166949": {
     "totalreply": 42,
@@ -11085,6 +11085,6 @@
     "lastedit": 1708264222,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   }
 }

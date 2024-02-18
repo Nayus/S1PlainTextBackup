@@ -43,3 +43,13 @@
 
 对于满足于几万份的制作来说，能从中国市场挖点出来确实相当容易远超预期
 
+
+*****
+
+####  JackTitor  
+##### 120#       发表于 2024-2-18 21:49
+
+我就是看到批站一个视频讲解买的，都有50w播放了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

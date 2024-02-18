@@ -26627,3 +26627,47 @@ aiai还是宝刀不及当年，好些没唱上去
 
 一方面我知道她喜欢我，但我不知道她喜欢我什么地方，另一方面她对我喜欢的人态度很糟糕，而且她试图解决问题的方法实实在在把我伤到了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 13141#       发表于 2024-2-18 19:57
+
+ 本帖最后由 江口夕 于 2024-2-18 20:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991806&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-2-18 19:52</a>
+我是灯也会有些怕立希的
+
+一方面我知道她喜欢我，但我不知道她喜欢我什么地方，另一方面她对我喜欢 ...</blockquote>
+要是你腦補的這樣<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">這種ky主唱不要也罷
+
+在燈世界里自己是最不值得原諒的，對其他人都是感謝。正是因為這樣才能吸引別人。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  6030sylar  
+##### 13142#       发表于 2024-2-18 19:59
+
+<img src="https://img.saraba1st.com/forum/202402/18/195924wbhe34mh24vy73hb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 19:59 上传
+
+吃叶子（
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 可爱美味祥子| + 1|好评加鹅|
+
+查看全部评分
+

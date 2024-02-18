@@ -543,3 +543,13 @@ ins 謌
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  note_2  
+##### 59#       发表于 2024-2-18 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990348&amp;ptid=2172155" target="_blank">恐惧之眼是我家 发表于 2024-2-18 17:06</a>
+泰勒斯威夫特为什么今年在外网上这么火？感觉都快成唯一指定真神了，前几年也没这么夸张啊。另外多少得感谢 ...</blockquote>
+疫情期间高质量作品连发，在躺平摆烂的大环境下显得格外突出，去年开放巡演后就往造神的方向走了
+

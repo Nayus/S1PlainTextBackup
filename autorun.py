@@ -72,6 +72,7 @@ if __name__ == '__main__':
                 if l in ids:
                     if thdata[l]['totalreply']//40 > 1:
                         thdata[l]['active'] = True
+                        thdata[l]['update'] = True
                         thdata[l]['lastedit'] = int(threadict[l]['replytime'])
                 else:
                     thdata[l] = {}
@@ -81,6 +82,7 @@ if __name__ == '__main__':
                     thdata[l]['lastedit'] = int(threadict[l]['replytime'])
                     thdata[l]['category']= k
                     thdata[l]["active"] =  True
+                    thdata[l]["update"] =  True
                     print('add:'+l)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))

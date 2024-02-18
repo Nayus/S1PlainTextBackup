@@ -6395,3 +6395,19 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 得 联机服务器又炸了吧,完全匹不到人,好友哪里也都是0
 
+
+*****
+
+####  Launce  
+##### 668#       发表于 2024-2-18 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天虽然没有更新，没有修服务器，但是他把商店的甲涨价了，他真的我哭死
+
+<img src="https://img.saraba1st.com/forum/202402/18/200318uny7ffrfrrbfgcff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (176.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 20:03 上传
+

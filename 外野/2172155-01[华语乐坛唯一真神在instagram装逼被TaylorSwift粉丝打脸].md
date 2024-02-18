@@ -589,3 +589,13 @@ ins 謌
 
 哥练的胸肌如果你还想靠
 
+
+*****
+
+####  一个陆仁贾  
+##### 64#       发表于 2024-2-18 21:14
+
+主楼图3是哪位？
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

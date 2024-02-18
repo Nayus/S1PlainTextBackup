@@ -1491,3 +1491,16 @@ DLC怎么提升属性来着？升级不加？
 
 现在想想最操蛋的大概是短期内很难看到类似水平的jrpg剧本了，真是狗屎。<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 3989#       发表于 2024-2-18 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991326&amp;ptid=2098044" target="_blank">永远的访客 发表于 2024-2-18 18:49</a>
+
+春节旅游就赶着首发打了几小时，今天再补打几小时，地狱才过1层的进度，体验打分不高
+
+作为肉鸽随机房间种 ...</blockquote>
+不怎么改善，基本上就是原作几章的场景随机
+

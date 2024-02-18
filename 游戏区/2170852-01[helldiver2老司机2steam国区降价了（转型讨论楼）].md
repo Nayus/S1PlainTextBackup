@@ -6138,3 +6138,43 @@ PS5 225k max
 
 /您在 Arrowhead 的专业团队 &lt;:arrowhead2:1107644762296696892&gt;
 
+
+*****
+
+####  Gmlazy  
+##### 642#       发表于 2024-2-18 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63987426&amp;ptid=2170852" target="_blank">ssd 发表于 2024-2-18 12:07</a>
+
+这个游戏没网就不能玩了？</blockquote>
+没网确实不能玩，甚至你在单人战局的时候网络波动也会提示无网络连接直接把你踢出游戏。
+
+你可以把本作当作一个需要全程联网的网游。
+
+*****
+
+####  泉美  
+##### 643#       发表于 2024-2-18 12:19
+
+魔幻，现在这个点 pc 居然有32W 在线。
+昨天峰值 27w 一下午就没挤进去过今天更是重量级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 644#       发表于 2024-2-18 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63987558&amp;ptid=2170852" target="_blank">泉美 发表于 2024-2-18 12:19</a>
+
+魔幻，现在这个点 pc 居然有32W 在线。
+
+昨天峰值 27w 一下午就没挤进去过今天更是重量级 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">这不算啥，目前逆天服务器BUG是挤进去了，你一点星球直接崩溃
+
+*****
+
+####  BadYanL  
+##### 645#       发表于 2024-2-18 12:23
+
+十万人玩排队模拟器，tm的还在涨，活该索尼倒闭。
+

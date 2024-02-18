@@ -26147,3 +26147,35 @@ mio说还想跟灯玩这句，如果mio本身不愿跟灯玩，不论mio妈还�
 
 C团回忆杀独白强调的也是灯比较难和周围的人共情，还有没能遇到能让她心痛流泪的事物，后面这点灯爽希在遇到C团前其实都差不多
 
+
+*****
+
+####  NODY  
+##### 13100#       发表于 2024-2-18 12:15
+
+官推贺图
+
+<img src="https://img.saraba1st.com/forum/202402/18/121535pbqxqx8ypzqyc8cc.jpg" referrerpolicy="no-referrer">
+
+<strong>GGf9GLMaQAApC0J_format=jpg&amp;amp;name=large.jpg</strong> (163.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 12:15 上传
+
+*****
+
+####  Aendst  
+##### 13101#       发表于 2024-2-18 12:15
+
+渡瀬生日全员发小作文了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">营业多谢款待
+
+*****
+
+####  Aendst  
+##### 13102#       发表于 2024-2-18 12:18
+
+ 本帖最后由 Aendst 于 2024-2-18 12:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如台长的面包体有意思
+

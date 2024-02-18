@@ -452,3 +452,23 @@ ins 謌
 
 周杰伦和斯威夫特谁咖位高
 
+
+*****
+
+####  johnie  
+##### 49#       发表于 2024-2-18 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990205&amp;ptid=2172155" target="_blank">Tienx 发表于 2024-2-18 16:52</a>
+周杰伦和斯威夫特谁咖位高</blockquote>
+2024年那肯定是霉霉高
+
+*****
+
+####  Holyted  
+##### 50#       发表于 2024-2-18 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990205&amp;ptid=2172155" target="_blank">Tienx 发表于 2024-2-18 16:52</a>
+
+周杰伦和斯威夫特谁咖位高</blockquote>
+谁在台上唱谁高呗，下次周开演唱会送她一张票，看看她来不来<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+

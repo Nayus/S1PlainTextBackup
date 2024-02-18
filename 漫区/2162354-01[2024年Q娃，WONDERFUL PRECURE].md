@@ -1424,3 +1424,14 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 看了三集更加确信狗粉主无非就是噱头，三集下来怎么看都是彩羽更像主角，观众反应也是彩羽印象更深。推主线男人可能还更重要些，已买定bg股，**没前途。
 
+
+*****
+
+####  modedd  
+##### 1035#       发表于 2024-2-18 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63992424&amp;ptid=2162354" target="_blank">wly 发表于 2024-2-18 21:09</a>
+
+看了三集更加确信狗粉主无非就是噱头，三集下来怎么看都是彩羽更像主角，观众反应也是彩羽印象更深。推主线 ...</blockquote>
+打甜点起一直是一年百合一年bg，今年本来就是bg位还把成田良美这种铁血bg战士请来主笔从最开始就没有百合的生存空间吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -472,3 +472,34 @@ ins 謌
 周杰伦和斯威夫特谁咖位高</blockquote>
 谁在台上唱谁高呗，下次周开演唱会送她一张票，看看她来不来<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恐惧之眼是我家  
+##### 51#       发表于 2024-2-18 17:06
+
+泰勒斯威夫特为什么今年在外网上这么火？感觉都快成唯一指定真神了，前几年也没这么夸张啊。另外多少得感谢GFW了，粉圈魔怔人的钱也是钱，留在国内被小鲜肉k也总比被国外霉比赚走强。
+
+*****
+
+####  cay999  
+##### 52#       发表于 2024-2-18 17:10
+
+苞米应该干不过霉粉.
+
+*****
+
+####  混沌的风  
+##### 53#       发表于 2024-2-18 17:12
+
+啥玩意啊，倒是说是谁啊
+
+*****
+
+####  菲星  
+##### 54#       发表于 2024-2-18 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990295&amp;ptid=2172155" target="_blank">johnie 发表于 2024-2-18 17:01</a>
+2024年那肯定是霉霉高</blockquote>
+去掉年份也行
+

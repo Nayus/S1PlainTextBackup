@@ -26437,3 +26437,40 @@ C团回忆杀独白强调的也是灯比较难和周围的人共情，还有没�
 厄介队友</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木谷高明  
+##### 13124#       发表于 2024-2-18 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990183&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-18 16:50</a>
+厄介队友</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 13125#       发表于 2024-2-18 17:05
+
+<img src="https://img.saraba1st.com/forum/202402/18/170552xajevv6l1quuej9e.png" referrerpolicy="no-referrer">
+
+<strong>ZH5FWJHF0`XP`RMKOQFCBWC.png</strong> (36.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 17:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 可爱美味祥子| + 1|好评加鹅|
+
+查看全部评分
+

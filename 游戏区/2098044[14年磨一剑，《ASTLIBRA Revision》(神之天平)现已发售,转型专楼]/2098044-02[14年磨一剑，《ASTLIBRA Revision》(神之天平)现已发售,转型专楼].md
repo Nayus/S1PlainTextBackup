@@ -1481,3 +1481,13 @@ DLC怎么提升属性来着？升级不加？
 
 好评部分则是新音乐和已经让人跃跃欲试的换装系统（不舍得吃药都在买服装）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 3988#       发表于 2024-2-18 19:19
+
+通了本篇和新章。真好啊。为什么这么好。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">接下来等真正的面包房少女上ns了。
+
+现在想想最操蛋的大概是短期内很难看到类似水平的jrpg剧本了，真是狗屎。<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+

@@ -26589,3 +26589,13 @@ aiai还是宝刀不及当年，好些没唱上去
 
 另外我的确没有想用移情作为“共情”，“共鸣”的同义词，不过还是和精神分析上的一般意义发生了偏差吧，抱歉
 
+
+*****
+
+####  木谷高明  
+##### 13137#       发表于 2024-2-18 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991416&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-18 19:00</a>
+你们祥嬷有点太极端了. jpg</blockquote>
+人尽可公<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

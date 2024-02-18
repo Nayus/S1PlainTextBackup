@@ -6368,3 +6368,22 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 这难度还是很离谱啊,2个35级的打不过难度6的保卫战
 
+
+*****
+
+####  DawnGuardian  
+##### 665#       发表于 2024-2-18 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991398&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-18 18:57</a>
+
+这难度还是很离谱啊,2个35级的打不过难度6的保卫战</blockquote>
+说是把撤离任务难度调低，杀怪任务难度调高，我是一点也没感觉出来。。。
+
+*****
+
+####  新庄運切  
+##### 666#       发表于 2024-2-18 19:24
+
+超级地球服务器没有任何问题，请民主的等待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+游戏都上不去了
+

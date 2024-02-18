@@ -651,3 +651,29 @@ ins 謌
 
 前两天在新加坡，林俊杰&amp;黄老板Ed Sheeran共同演唱《不为谁而作的歌》。
 
+
+*****
+
+####  三尖酸努努  
+##### 71#       发表于 2024-2-18 22:14
+
+霉霉粉丝天天吹霉霉演唱会票难抢，当然确实难抢。那问题来了，周杰伦的票哪来的？难不成周杰伦还特地定个时专门抢票？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想都不用想票肯定靠关系拿的啊。怎么说几句霉粉就高潮了
+
+*****
+
+####  三尖酸努努  
+##### 72#       发表于 2024-2-18 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63992687&amp;ptid=2172155" target="_blank">复东生 发表于 2024-2-18 21:41</a>
+不太了解这俩人，问一下，周杰伦为啥叫结巴，以及那个泰勒为啥叫发霉，听着都不是啥好词，但怎么感觉坛友 ...</blockquote>
+结巴是贬义词，但霉是粉丝都用的称呼。是当年霉没有奖运所以说她霉，霉还和美谐音就叫她霉霉。褒义用法
+
+*****
+
+####  熊边上  
+##### 73#       发表于 2024-2-18 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990205&amp;ptid=2172155" target="_blank">Tienx 发表于 2024-2-18 03:52</a>
+周杰伦和斯威夫特谁咖位高</blockquote>
+结巴知道霉，霉知道结巴吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

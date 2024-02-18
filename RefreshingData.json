@@ -6117,7 +6117,7 @@
     "lastedit": 1708279810,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2147731": {
     "totalreply": 42844,
@@ -6444,13 +6444,13 @@
     "update": false
   },
   "2138920": {
-    "totalreply": 1321,
+    "totalreply": 1322,
     "title": "[女神异闻录3RELOAD，首发XGP，2024年2月2日发售]",
     "newtitle": "[女神异闻录3RELOAD，首发XGP，2024年2月2日发售，IGN／GS 双9]",
-    "lastedit": 1708277711,
+    "lastedit": 1708280109,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2155738": {
     "totalreply": 14195,
@@ -7344,13 +7344,13 @@
     "update": false
   },
   "2167989": {
-    "totalreply": 5659,
+    "totalreply": 5660,
     "title": "[剧场动画『机动战士高达 SEED FREEDOM』PV公开，24年1月26日上映]",
     "newtitle": "[倒序浏览剧场动画『机动战士高达 SEED FREEDOM』24.01.26上映]",
-    "lastedit": 1708279512,
+    "lastedit": 1708280108,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125694": {
     "totalreply": 134,
@@ -7713,13 +7713,13 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 11702,
+    "totalreply": 11705,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708278912,
+    "lastedit": 1708280109,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2112844": {
     "totalreply": 544,
@@ -11139,6 +11139,6 @@
     "lastedit": 1708279810,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   }
 }

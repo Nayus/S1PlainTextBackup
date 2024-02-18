@@ -1263,3 +1263,33 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 后面话疗还能编出来怎么聊么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1022#       发表于 2024-2-18 18:17
+
+没双人变身bank不开心<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+目前来看狗猫兔大概率都是这个妮可乐园里跑出来“和你们世界里的动物很像却又不一样”的动物了。（这样就能解决因为小麦是狗的而出现的问题了）
+
+现在就看兔和未知的独角兽是个什么了，我猜兔子就是妮可大人比较符合成田大妈保护我方boss的一贯套路。（正好这集故意没让兔子去妮可乐园）
+
+独角兽猜一个被黑化的我方原干部。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 1023#       发表于 2024-2-18 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991035&amp;ptid=2162354" target="_blank">leleq 发表于 2024-2-18 18:17</a>
+
+没双人变身bank不开心
+
+目前来看狗猫兔大概率都是这个妮可乐园里跑出来“和你们世界里的动物很像却又 ...</blockquote>
+虽然但是妮可乐园的动物的叫声都是有且仅有妮可妮可啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+而且妮可乐园的动物们在体型特征等方面和地球动物是有区别的，小麦小雪的样子就是普通的地球动物<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+话说当初汁波密和玛琳的双人BANK是第几集上线的来着（
+

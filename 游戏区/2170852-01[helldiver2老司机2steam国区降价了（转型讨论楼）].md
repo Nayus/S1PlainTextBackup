@@ -6613,3 +6613,11 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  山风短  
+##### 690#       发表于 2024-2-19 01:37
+
+现在服务器爆满排队都排不进去，刚去看了下，在线人数33w快赶上帕鲁了，热度真吓人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

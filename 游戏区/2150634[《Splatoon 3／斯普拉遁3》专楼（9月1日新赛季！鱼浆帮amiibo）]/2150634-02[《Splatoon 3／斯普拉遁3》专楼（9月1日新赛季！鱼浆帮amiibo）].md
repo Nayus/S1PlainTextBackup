@@ -15277,3 +15277,13 @@ dlc要是难到打不下去再来工坊爽金工。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 2997#       发表于 2024-2-18 23:42
+
+怎么星期五也能连续内战的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

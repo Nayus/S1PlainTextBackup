@@ -1477,3 +1477,33 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 下来就是猫组要来了，看猫组什么情况
 
+
+*****
+
+####  HANDAIYV  
+##### 1040#       发表于 2024-2-18 23:43
+
+达鲁伊森和和佳已经不是好磕难磕的问题，而是这tm都能磕了，死干净千万别复活了
+
+
+*****
+
+####  上坂莲华  
+##### 1041#       发表于 2024-2-18 23:44
+
+<img src="https://img.saraba1st.com/forum/202402/18/233934y5namo5nkudooqoq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240218233931.png</strong> (86.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 23:39 上传
+
+这都经典构图了，成田大妈之心你们还看不出来么，反正我心跳PTSD犯了，直接死刑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这Apart互动还稍微像点人，Bpart简直就是有人在后面拿鞭子抽着往前赶，你们俩必须在这集给我凑到一起
+
+然后这眼镜暖男除了亚撒西和智慧袋屁用没有，这集智慧袋甚至只点了个兔子害怕不是瞎子都能看得出来对面是兔子吧，顺毛还是彩羽自己想到的，鉴定为发只猫秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+藏兔子大概就是大的药来了，但这集都说了妮可大人不在了，那你兔子八成就是日香，成田大妈就这点能耐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -553,3 +553,39 @@ ins 謌
 泰勒斯威夫特为什么今年在外网上这么火？感觉都快成唯一指定真神了，前几年也没这么夸张啊。另外多少得感谢 ...</blockquote>
 疫情期间高质量作品连发，在躺平摆烂的大环境下显得格外突出，去年开放巡演后就往造神的方向走了
 
+
+*****
+
+####  雪影  
+##### 60#       发表于 2024-2-18 20:09
+
+我还以为华辰鱼呢
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 61#       发表于 2024-2-18 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">世一女啊 你以为呢 
+
+*****
+
+####  这个碧池是谁？  
+##### 62#       发表于 2024-2-18 20:16
+
+评论区又殖又拳味好冲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kina  
+##### 63#       发表于 2024-2-18 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986332&amp;ptid=2172155" target="_blank">shineaslin 发表于 2024-2-18 10:24</a>
+
+我最后一次听结巴是那个有蓝色风暴的专辑</blockquote>
+反正我又不是没有人要
+
+哥练的胸肌如果你还想靠
+

@@ -1352,3 +1352,67 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 感觉大福比闪亮兔子更可爱（
 
+
+*****
+
+####  MLP_102  
+##### 1030#       发表于 2024-2-18 20:05
+
+ 本帖最后由 MLP_102 于 2024-2-18 20:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202402/18/200427cje6993b9pbxjayx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 20:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">还以为会有投喂play的 
+
+<img src="https://img.saraba1st.com/forum/202402/18/200742flqlazqivww7ldla.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (201.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 20:07 上传
+
+句句不离主人啊 
+
+*****
+
+####  leleq  
+##### 1031#       发表于 2024-2-18 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991283&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-18 18:45</a>
+闪亮动物有额头宝石这个重要的共通特征啊（</blockquote>
+三个特殊呗……
+
+你要用staff视角来预测剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗猫兔三个是妮可乐园出来的一下就可以解决几乎它们三身上的所有问题这么好的工具不用吗？且这三是动物没有爹妈亲人家人不写个背景剧情就太浅了啊。
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  natmk  
+##### 1032#       发表于 2024-2-18 20:19
+
+能变身的后面都有爱心 兔子后面是圆的会不会是性别原因做了区分呢 这集悟还挺好的聪明不无谋面对彩羽也没有像拓海那样
+
+*****
+
+####  pokemon最爱  
+##### 1033#       发表于 2024-2-18 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991998&amp;ptid=2162354" target="_blank">leleq 发表于 2024-2-18 20:13</a>
+
+三个特殊呗……
+
+你要用staff视角来预测剧情啊狗猫兔三个是妮可乐园出来的一下就可以解决几乎它们 ...</blockquote>
+如果彩羽跟真由这两个主人不变身，或者是像未来李可那样跟宠物共用一个变身器一起变身的话，你说的想法没啥问题，但现在情况是彩羽变身器是单独有一个跟小麦相同的而且分开变身，而且变身器的来源明显是那个奇怪的镜石而不是宠物，那这个设定就没太大意义了，到时候你还是得回到解释为啥主人被镜石选中能变身Q娃这事上。
+
+直接更简单粗暴一切归到镜石的不可思议Power上妮可创建妮可乐园也好猫狗可以变成人会说话变身Q娃也好都可以简单粗暴的归到镜石的力量上。
+
+小麦怎么被抛弃的这事也完全可以展开写（甚至考虑动物镇这个名字还可能是个很大的坑），当年初代就两个主角又不是不能写出一整年的故事。
+

@@ -21,6 +21,9 @@ def parse_html(html,threadict):
         threadids = re.search(r'normalthread_\d{7}',str(i))
         if (threadids):
             levels = re.search(r'\d{1,5}</a></span>',str(i))
+            replycounts = re.search(r'html\">\d+</a><em>',str(i))
+            replycount = re.sub(r'html\">','',str(replycounts.group(0)))
+            replycount = re.sub(r'</a><em>','',replycount)
             threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
             if levels:
                 #在这里进行是否添加的检查
@@ -32,7 +35,8 @@ def parse_html(html,threadict):
                 # if((int(time.time()) - replytime) < 43200):
                         # 1天之内回复过
                     threadict[threadid] = {}
-                    threadict[threadid]['replytime'] = replytime
+                    threadict[threadid]['replytime'] = int(replytime)
+                    threadict[threadid]['replycount'] = int(replycount) + 1 # 外部回帖数会比实际楼层数少1
 
 if __name__ == '__main__':
     blacklist = [2104652,2056385,1842868,334540,1971007,1915305,2023780,2085181,2105283,2045161,2106883,2068300,2098345,2120403,2119905,2096884,2143473,2100013,2171889]
@@ -53,6 +57,10 @@ if __name__ == '__main__':
     forumdict = {'外野': '75','虚拟主播区专楼':'151','游戏区':'4','漫区':'6','手游专楼':'135'}
     # forumdict = {'外野': '75','游戏区':'4','漫区':'6'}
     rootdir = "./"
+    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+        thdata = json.load(f)
+    for i in thdata.keys():
+        thdata[i]['update'] = False
     session = requests.session()
     for k in forumdict.keys():
         threadict = {}
@@ -64,22 +72,23 @@ if __name__ == '__main__':
             # s1.encoding='utf-8'
             data = s1.content
             parse_html(data,threadict)
-        with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
-            thdata = json.load(f)
+        # with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+        #     thdata = json.load(f)
         ids = thdata.keys()
         for l in threadict.keys():
             if (int(l) not in blacklist):
                 if l in ids:
-                    if thdata[l]['totalreply']//40 > 1:
+                    if thdata[l]['totalreply'] < threadict[l]['replycount']:
+                        print(str(thdata[l]['totalreply']) +" : "+ str(threadict[l]['replycount']))
                         thdata[l]['active'] = True
                         thdata[l]['update'] = True
-                        thdata[l]['lastedit'] = int(threadict[l]['replytime'])
+                        thdata[l]['lastedit'] = threadict[l]['replytime']
                 else:
                     thdata[l] = {}
                     thdata[l]['totalreply'] =0
                     thdata[l]['title'] = "待更新"
                     thdata[l]['newtitle'] = "待更新"
-                    thdata[l]['lastedit'] = int(threadict[l]['replytime'])
+                    thdata[l]['lastedit'] = threadict[l]['replytime']
                     thdata[l]['category']= k
                     thdata[l]["active"] =  True
                     thdata[l]["update"] =  True

@@ -188,52 +188,38 @@ with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
 async def UpdateThread(threaddict,semaphore):
 # async def UpdateThread(threaddict):
     try:
-        async with semaphore:
-            lastpage = threaddict['totalreply']//40
-            async with aiohttp.ClientSession(headers=headers,cookies=cookies) as session:
-                url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
-                async with session.get(url,headers=headers) as response:
-                    result = await response.content.read()
-        namelist, replylist,totalpage,newtitles= parse_html(result)
-        titles = threaddict['title']
-        thdata[threaddict['id']]['newtitle'] = newtitles
-        if(thdata[threaddict['id']]['title'] =='待更新'):
-            titles = newtitles
-        if(totalpage == 1):
-            #将1页帖子排除
-            if(newtitles == '[]'):
-                #优先处理无法查看帖子
-                thdata[threaddict['id']]['active'] = False
-                filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
-                mkdir(filedir)
-                with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
-                    f.write('1')
-            else:
-                #单纯的1页帖子保存着先不动，仅不停更新标题
-                thdata[threaddict['id']]['title'] = newtitles
-        #采取增量更新后仅第一次更新标题
-        elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 259200):
+        if not (threaddict['update']):
+            if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 259200):
             #3天过期
-            thdata[threaddict['id']]['active'] = False
-            if(totalpage > 37):
-                filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
-            else:
-                filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
-            filename_des = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',filedir_src)
-            if os.path.exists(filename_des):
-                if os.path.isdir(filedir_src):
-                    filedir_src_list = get_dir_files(filedir_src)
-                    for i in filedir_src_list:
-                        j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',i)
-                        thread_merge(i,j)
+                thdata[threaddict['id']]['active'] = False
+                if(totalpage > 37):
+                    filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
                 else:
-                    thread_merge(filedir_src,filename_des)
-            else:
-                filedir_des = '/home/riko/S1PlainTextArchive2024/' +thdata[threaddict['id']]['category']+'/'
-                mkdir(filedir_des)
-                shutil.move(filedir_src,filedir_des)
-        elif(totalpage >= lastpage):
-        # else:
+                    filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
+                filename_des = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',filedir_src)
+                if os.path.exists(filename_des):
+                    if os.path.isdir(filedir_src):
+                        filedir_src_list = get_dir_files(filedir_src)
+                        for i in filedir_src_list:
+                            j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',i)
+                            thread_merge(i,j)
+                    else:
+                        thread_merge(filedir_src,filename_des)
+                else:
+                    filedir_des = '/home/riko/S1PlainTextArchive2024/' +thdata[threaddict['id']]['category']+'/'
+                    mkdir(filedir_des)
+                    shutil.move(filedir_src,filedir_des)
+        else:
+            async with semaphore:
+                lastpage = threaddict['totalreply']//40
+                async with aiohttp.ClientSession(headers=headers,cookies=cookies) as session:
+                    url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
+                    async with session.get(url,headers=headers) as response:
+                        result = await response.content.read()
+            namelist, replylist,totalpage,newtitles= parse_html(result)
+            titles = threaddict['title']
+            thdata[threaddict['id']]['newtitle'] = newtitles
+            # else:
             if(totalpage > 37):
                 filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles+'/'
                 mkdir(filedir)
@@ -288,6 +274,7 @@ async def main():
             threaddicts[tid]['id'] = tid
             threaddicts[tid]['totalreply'] = int(thdata[tid]['totalreply'])
             threaddicts[tid]['title'] = thdata[tid]['title']
+            threaddicts[tid]['update'] = thdata[tid]['update']
     for thread in threaddicts.keys():
         tasks.append(UpdateThread(threaddicts[thread],semaphore))
         # tasks.append(UpdateThread(threaddicts[thread]))

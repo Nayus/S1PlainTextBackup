@@ -26671,3 +26671,39 @@ aiai还是宝刀不及当年，好些没唱上去
 
 查看全部评分
 
+
+*****
+
+####  cindy355  
+##### 13143#       发表于 2024-2-18 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991868&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-18 19:59</a>
+
+吃叶子（</blockquote>
+为什么会这么可爱
+
+但是我绝对不会再推真人了
+
+*****
+
+####  ddy2811  
+##### 13144#       发表于 2024-2-18 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991854&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-2-18 19:57</a>
+
+要是你腦補的這樣這種ky主唱不要也罷
+
+在燈世界里自己是最不值得原諒的，對其他人都是感謝。正是 ...</blockquote>
+灯确实很倾向于把问题揽在自己身上，但其实内心还是有方向而且相当坚定的，同为infp代入灯的立场，看到立希凶爱音和换soyo即使知道她是为了我好也是会有情绪的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 13145#       发表于 2024-2-18 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63992012&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-2-18 20:15</a>
+灯确实很倾向于把问题揽在自己身上，但其实内心还是有方向而且相当坚定的，同为infp代入灯的立场，看到立 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">開心就好
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

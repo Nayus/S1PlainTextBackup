@@ -414,3 +414,75 @@
 
 反倒是同时视听会不会推掉不好说，今晚这个游戏不长而哈利波特都要3小时
 
+
+*****
+
+####  rs5621  
+##### 8187#       发表于 2024-2-18 20:05
+
+ 本帖最后由 rs5621 于 2024-2-18 20:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/18/200448c1unnmwe5guwsz4z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 20:04 上传
+
+好了？你这什么表情
+
+笑死，原来怒的这个
+
+<img src="https://img.saraba1st.com/forum/202402/18/200601zzpa5am6vgqvrrfr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 20:06 上传
+
+*****
+
+####  rs5621  
+##### 8188#       发表于 2024-2-18 20:31
+
+ 本帖最后由 rs5621 于 2024-2-18 20:33 编辑 
+
+笑死我了，10连杀
+
+<img src="https://img.saraba1st.com/forum/202402/18/203151ic043qz034jfac6a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 20:31 上传
+
+35看到娃娃就走不动路了，不杀娃之誓，下面的忘了
+
+*****
+
+####  rs5621  
+##### 8189#       发表于 2024-2-18 20:38
+
+5个35p和xjhx杀谁，<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rs5621  
+##### 8190#       发表于 2024-2-18 20:45
+
+<img src="https://img.saraba1st.com/forum/202402/18/204500aafardef7n0y7rde.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 20:45 上传
+
+map2！！！死了
+

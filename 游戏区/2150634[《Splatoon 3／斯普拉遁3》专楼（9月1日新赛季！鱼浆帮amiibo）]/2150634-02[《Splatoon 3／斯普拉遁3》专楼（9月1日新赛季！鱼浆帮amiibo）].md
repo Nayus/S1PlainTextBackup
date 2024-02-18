@@ -15172,3 +15172,13 @@ dlc要是难到打不下去再来工坊爽金工。
 
 这三色简直是压着进攻方打
 
+
+*****
+
+####  罗克萨斯  
+##### 2986#       发表于 2024-2-18 09:32
+
+因为祭典，我可能要抽不到这赛季的银扭蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

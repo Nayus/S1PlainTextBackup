@@ -5613,7 +5613,7 @@
     "lastedit": 1708293606,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2125110": {
     "totalreply": 2935,
@@ -7629,7 +7629,7 @@
     "lastedit": 1708293605,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170612": {
     "totalreply": 1314,
@@ -7647,7 +7647,7 @@
     "lastedit": 1708293606,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,

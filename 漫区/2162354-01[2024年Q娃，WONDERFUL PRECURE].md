@@ -1457,3 +1457,11 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 治愈有BG吗，难不成你想说和佳x达鲁伊森（震惊）</blockquote>
 确实有“因为疫情怕影响不好导致剧情修改”这种小道消息，而且愈q也确实没啥百合含量，主要就是捡捡**了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wou  
+##### 1038#       发表于 2024-2-18 23:09
+
+达鲁伊森和佳有拉比琳和佳半点好磕吗？这种阴间人设和阴间cp还是赶紧埋干净吧
+

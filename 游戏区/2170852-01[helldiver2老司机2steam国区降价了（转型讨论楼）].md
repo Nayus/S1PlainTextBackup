@@ -6536,3 +6536,13 @@ byd快1天了还进不去
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">500kg还不如轨道激光有用，轨道激光看着压迫力还更强一点来自: iPhone客户端
 
+
+*****
+
+####  Sayuki1025  
+##### 682#       发表于 2024-2-18 23:06
+
+匹配修好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

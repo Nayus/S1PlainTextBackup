@@ -5822,3 +5822,21 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Launce  
+##### 615#       发表于 2024-2-18 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984964&amp;ptid=2170852" target="_blank">LT_Harry 发表于 2024-2-18 04:14</a>
+
+我已经卡在登录上限进不去两天了，现在在线人数已经进入 Steam 历史记录前三十名，三十多万都是怎么登录的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为挂着有概率挤进去服务器
+
+*****
+
+####  丹德里恩  
+##### 616#       发表于 2024-2-18 09:40
+
+昨晚SOS根本匹不到人，他们真的有在修吗
+

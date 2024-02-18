@@ -1418,3 +1418,13 @@ DLC怎么提升属性来着？升级不加？
 打jjc的贝阿朵，她直接穿墙飞进墙里横跳，这个都算了，关键是发现她放的炸弹看不到，地狱难度因为这个各种暴毙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 而且不开狂暴也是被秒后面jjc都是狂暴打的了，我一开始都没发现，后来一想本篇是能看到的那种倒计时炸弹，后面打女神也有这种炸弹同样有问题，虽然能看到了但是炸弹放在地面位置会被地图上的木栅栏挡在后面，我画质d9d11分辨率窗口桌面都试了，就贝阿朵那个问题最严重<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tansapple  
+##### 3983#       发表于 2024-2-18 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63985758&amp;ptid=2098044" target="_blank">suija 发表于 2024-2-18 09:31</a>
+打jjc的贝阿朵，她直接穿墙飞进墙里横跳，这个都算了，关键是发现她放的炸弹看不到，地狱难度因为这个各种 ...</blockquote>
+你是不是太早去打了，我是打到第9层点满所有当前成长盘之后再去打的，非常轻松就过了。
+

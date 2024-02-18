@@ -26707,3 +26707,11 @@ aiai还是宝刀不及当年，好些没唱上去
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  紫吹兰  
+##### 13146#         楼主| 发表于 2024-2-18 21:37
+
+突击莉莉的舞台剧，好像觉醒人就没同台过，佐仓初毕业后日永丽才转生成功，只能看看吉宫有没有机会和日永丽同台了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

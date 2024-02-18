@@ -2697,7 +2697,7 @@
     "lastedit": 1708283110,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2067736": {
     "totalreply": 1403,
@@ -6567,7 +6567,7 @@
     "lastedit": 1708283108,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1645555": {
     "totalreply": 3299,
@@ -7647,7 +7647,7 @@
     "lastedit": 1708283109,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -7719,7 +7719,7 @@
     "lastedit": 1708283109,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2112844": {
     "totalreply": 544,
@@ -9483,7 +9483,7 @@
     "lastedit": 1708283109,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1991734": {
     "totalreply": 161,
@@ -10725,7 +10725,7 @@
     "lastedit": 1708283109,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172173": {
     "totalreply": 161,
@@ -10941,7 +10941,7 @@
     "lastedit": 1708283110,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172150": {
     "totalreply": 43,
@@ -11079,13 +11079,13 @@
     "update": false
   },
   "2171112": {
-    "totalreply": 66,
+    "totalreply": 67,
     "title": "待更新",
     "newtitle": "[北京房价探讨，到底要不要卖]",
-    "lastedit": 1708281905,
+    "lastedit": 1708283405,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171479": {
     "totalreply": 45,

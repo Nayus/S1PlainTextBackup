@@ -6331,3 +6331,13 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想着拉当年一起玩一代的朋友来联机，可是人家好几个已经有了老婆孩子不要兄弟我了来自: iPhone客户端
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 662#       发表于 2024-2-18 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好友联机还是很稳定的 就算掉了还能重连
+
+匹配就太坐牢了  
+

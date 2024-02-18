@@ -1520,3 +1520,14 @@ ok，带着无名英雄+魔女的组合刷了刷。运气挺好，出了1个四�
 
 可以封盘了。
 
+
+*****
+
+####  quanlix  
+##### 3991#       发表于 2024-2-19 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986291&amp;ptid=2098044" target="_blank">yla 发表于 2024-2-18 10:20</a>
+
+难怪第二个波怎么都躲不掉，然后，我选择在第二个波出来前rush掉</blockquote>
+跳跃力强化+三段跳+空剑+空中步行也可以躲
+

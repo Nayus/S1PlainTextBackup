@@ -531,3 +531,15 @@ ins 謌
 
 结巴是这样的 青蜂侠混个男二之后真把自己当华人真神乐坛交警了 加上自身一直以来对欧美的推崇就成这样了
 
+
+*****
+
+####  zmny  
+##### 58#       发表于 2024-2-18 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990348&amp;ptid=2172155" target="_blank">恐惧之眼是我家 发表于 2024-2-18 17:06</a>
+泰勒斯威夫特为什么今年在外网上这么火？感觉都快成唯一指定真神了，前几年也没这么夸张啊。另外多少得感谢 ...</blockquote>
+去年不是有大电影么
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6387,3 +6387,11 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 超级地球服务器没有任何问题，请民主的等待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 游戏都上不去了
 
+
+*****
+
+####  LrGsite  
+##### 667#       发表于 2024-2-18 19:32
+
+得 联机服务器又炸了吧,完全匹不到人,好友哪里也都是0
+

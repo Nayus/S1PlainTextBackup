@@ -15267,3 +15267,13 @@ dlc要是难到打不下去再来工坊爽金工。
 
 周六人打了一晚上三色全是内战，唯一一场外战还被人掉线判无了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 2996#       发表于 2024-2-18 22:46
+
+这次祭典也是输多赢少，但队友好像比之前几次都仁慈不少，之前都是输了就散队赢了继续，结果这次连败几场队友都不跑，甚至会开始切武器。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

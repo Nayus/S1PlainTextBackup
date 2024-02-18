@@ -63,13 +63,13 @@
     "update": false
   },
   "2018830": {
-    "totalreply": 16307,
+    "totalreply": 16308,
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
-    "lastedit": 1708282806,
+    "lastedit": 1708283708,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【M14】神楽Mea(KaguraMea)讨论楼]",
-    "update": false
+    "update": true
   },
   "2021563": {
     "totalreply": 2973,
@@ -5544,13 +5544,13 @@
     "update": false
   },
   "2076255": {
-    "totalreply": 2357,
+    "totalreply": 2358,
     "title": "[最终幻想7 rebirth公开，开发顺利，正处决定具体发售日期状态]",
     "newtitle": "[最终幻想7 rebirth公开，24年2月29日发售！／2.7demo可下载，后续demo将更新内容]",
-    "lastedit": 1708260263,
+    "lastedit": 1708283708,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1550732": {
     "totalreply": 4424,
@@ -7695,13 +7695,13 @@
     "update": false
   },
   "2170764": {
-    "totalreply": 948,
+    "totalreply": 949,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1708270218,
+    "lastedit": 1708283707,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2168002": {
     "totalreply": 122,
@@ -9608,7 +9608,7 @@
     "newtitle": "[两天看完《晚安布布》十分忧郁（转型真爱记录+资源分享）]",
     "lastedit": 1708024260,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2171927": {
@@ -10935,13 +10935,13 @@
     "update": false
   },
   "2172240": {
-    "totalreply": 117,
+    "totalreply": 118,
     "title": "[10岁男孩被窜出的烟花炸伤身亡]",
     "newtitle": "[10岁男孩被窜出的烟花炸伤身亡]",
-    "lastedit": 1708283110,
+    "lastedit": 1708283708,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172150": {
     "totalreply": 43,
@@ -11085,7 +11085,7 @@
     "lastedit": 1708283405,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171479": {
     "totalreply": 45,

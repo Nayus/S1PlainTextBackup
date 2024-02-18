@@ -6445,3 +6445,16 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 byd快1天了还进不去
 
+
+*****
+
+####  gzGaryC  
+##### 673#       发表于 2024-2-18 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991906&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-18 20:03</a>
+
+今天虽然没有更新，没有修服务器，但是他把商店的甲涨价了，他真的我哭死
+
+ ...</blockquote>
+发售之后第二还是第三个超级商店的轮换就涨到图里这个价，只不过到下一个就马上降回去了
+

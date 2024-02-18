@@ -26126,3 +26126,14 @@ mio说还想跟灯玩这句，如果mio本身不愿跟灯玩，不论mio妈还�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  安洁莉娜  
+##### 13098#       发表于 2024-2-18 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984764&amp;ptid=2159415" target="_blank">pipaopo 发表于 2024-2-18 01:38</a>
+
+mio说还想跟灯玩这句，如果mio本身不愿跟灯玩，不论mio妈还是灯妈编这句都是不合理也无意义。可以设想的 ...</blockquote>
+我真的不想和那个人一样讨论动画还要人身攻击，但是你们真的没有童年吗？很生活化的一个场景，有什么意义不意义的？还都是老用户，这下对泥潭的滤镜彻底破碎
+

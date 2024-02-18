@@ -6222,3 +6222,11 @@ PS5 225k max
 
 steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想到这么火，还是等晚上美国佬都睡了再玩吧，至少昨晚开黑还挺稳定的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cloudcc  
+##### 651#       发表于 2024-2-18 14:58
+
+目前才第一季，武器装备都不齐，深度也差几个职业的edf很远，就这样都30w在线百万大作了
+

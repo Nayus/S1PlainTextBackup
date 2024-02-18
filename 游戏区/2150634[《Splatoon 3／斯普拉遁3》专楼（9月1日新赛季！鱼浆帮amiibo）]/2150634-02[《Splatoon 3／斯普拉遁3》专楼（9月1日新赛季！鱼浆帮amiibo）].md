@@ -15287,3 +15287,13 @@ dlc要是难到打不下去再来工坊爽金工。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  幽灵部长助理  
+##### 2998#       发表于 2024-2-19 06:17
+
+祭典传统艺能之匹配到7个日本人（我住在美国）
+
+还要我carry全队，都是日本人你们怎么就没有对面强，要知耻啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

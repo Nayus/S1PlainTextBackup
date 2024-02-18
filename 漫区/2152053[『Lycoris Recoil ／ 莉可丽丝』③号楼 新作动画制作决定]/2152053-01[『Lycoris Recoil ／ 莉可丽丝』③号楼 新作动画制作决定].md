@@ -330,3 +330,12 @@
 伊右群最会画的一集
 <img src="https://p.sda1.dev/15/58b73a5b790a249d60043a59c2a6dd5e/CMP_20240217184021550.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1703#       发表于 2024-2-19 00:53
+
+dai老师的新表情包，好用
+<img src="https://p.sda1.dev/15/188c5ed4ecc66e4ee42d1b1860f1e8da/img-1708275158178006iMDVsgy1hmxhsgive4g30dc0dctd7.gif" referrerpolicy="no-referrer">
+

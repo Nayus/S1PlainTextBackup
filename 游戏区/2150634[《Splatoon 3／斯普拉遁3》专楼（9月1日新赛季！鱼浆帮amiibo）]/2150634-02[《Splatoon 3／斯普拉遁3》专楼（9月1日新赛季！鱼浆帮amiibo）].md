@@ -15259,3 +15259,11 @@ dlc要是难到打不下去再来工坊爽金工。
 
 还得是输到永远，对枪是对不过任何人的，只能化生投弹兵还能拿点人头
 
+
+*****
+
+####  oi99o  
+##### 2995#       发表于 2024-2-18 21:16
+
+周六人打了一晚上三色全是内战，唯一一场外战还被人掉线判无了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

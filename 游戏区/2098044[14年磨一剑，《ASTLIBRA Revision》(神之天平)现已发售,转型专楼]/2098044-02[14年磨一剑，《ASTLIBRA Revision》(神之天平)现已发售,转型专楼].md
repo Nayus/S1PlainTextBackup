@@ -1590,3 +1590,15 @@ ok，带着无名英雄+魔女的组合刷了刷。运气挺好，出了1个四�
 可算是通关了，这游戏说是肉鸽，其实就还是那个刷子游戏，刷到盘子就原地起飞，刷不到就纯折磨。剧情来说除 ...</blockquote>
 我感觉是单个加成就已经很强了，单个四倍加成是秒天秒地。我初见过最终boss还是靠的风墙吸收黑激光粒子。现在是开场break后直接伤害灌死。理论上应该还有更极端8倍加成和12倍加成，但是这个真的概率很低。我只刷到过8倍加成的正常格子。
 
+
+*****
+
+####  伊塔库亚  
+##### 3996#       发表于 2024-2-19 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63994545&amp;ptid=2098044" target="_blank">syndrome2032 发表于 2024-2-19 07:25</a>
+我感觉是单个加成就已经很强了，单个四倍加成是秒天秒地。我初见过最终boss还是靠的风墙吸收黑激光粒子。 ...</blockquote>
+运气好整个八倍魔石加成我都不知道怎么输，盘子的上下限差距极大。换个盘子随便多一两千主属性。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

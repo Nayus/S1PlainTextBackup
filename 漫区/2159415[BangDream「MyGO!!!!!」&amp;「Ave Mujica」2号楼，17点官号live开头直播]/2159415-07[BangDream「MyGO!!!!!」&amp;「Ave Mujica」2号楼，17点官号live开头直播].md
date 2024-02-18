@@ -26715,3 +26715,11 @@ aiai还是宝刀不及当年，好些没唱上去
 
 突击莉莉的舞台剧，好像觉醒人就没同台过，佐仓初毕业后日永丽才转生成功，只能看看吉宫有没有机会和日永丽同台了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toki_Ai  
+##### 13147#       发表于 2024-2-19 01:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接ppp的十缺一的立德可太立德了，这邦二代开的好头怕是十年企划一语成拙
+

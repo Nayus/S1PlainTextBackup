@@ -688,3 +688,15 @@ ins 謌
 前者说周杰伦吐字不清，后者是TS早期被媒体称为“小美女”，然后被黑粉谐音“霉女”，再之后霉演变成了有 ...</blockquote>
 原来如此。话说以我对周杰伦浅薄的了解，他那种风格如果被吐槽的话应该叫“大舌头”吧，我感觉“大舌头”和“结巴”还是有点不同的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忘归然  
+##### 75#       发表于 2024-2-18 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63992687&amp;ptid=2172155" target="_blank">复东生 发表于 2024-2-18 21:41</a>
+不太了解这俩人，问一下，周杰伦为啥叫结巴，以及那个泰勒为啥叫发霉，听着都不是啥好词，但怎么感觉坛友 ...</blockquote>
+泰勒霉是倒霉的霉。。早年每次发新专打榜都会被泥头车给创下来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -26323,3 +26323,33 @@ C团回忆杀独白强调的也是灯比较难和周围的人共情，还有没�
 其实移情和共情是两个几乎完全无关的概念，什么第一世界第三世界问题也只是公知爱用的外行 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">只能说我不懂，我只能借用他看起来想表达的名词，我只是个一般路过精神病人。
 
+
+*****
+
+####  NODY  
+##### 13115#       发表于 2024-2-18 15:35
+
+反正我是不太建议把三次元心理疾病或者社会问题代入纸片人然后分析角色应该怎么样的，纸片人人设本来就会夸张化和标签化
+
+*****
+
+####  cindy355  
+##### 13116#       发表于 2024-2-18 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63989408&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-18 15:35</a>
+
+反正我是不太建议把三次元心理疾病或者社会问题代入纸片人然后分析角色应该怎么样的，纸片人人设本来就会夸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是混沌一点算了，我就是大家都讨厌的2偶企划角色毒唯！
+
+*****
+
+####  NODY  
+##### 13117#       发表于 2024-2-18 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63989352&amp;ptid=2159415" target="_blank">tuichu0425 发表于 2024-2-18 15:29</a>
+
+大哥你在说啥呢，灯明显是有点怕立希啊（换我我也怕）</blockquote>
+所以我说不能拿三次元代入纸片人，类似你说的“三次元很多都怕立希这种人所以灯肯定也怕”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第九集吵架可以看出灯真的不满意立希的行为会直说，同理灯真的不想立希接近也不会让她送自己回家，访谈也只说了灯只是不知道用什么方法回应立希的好意，而不是因为害怕
+

@@ -26293,3 +26293,33 @@ C团回忆杀独白强调的也是灯比较难和周围的人共情，还有没�
 
 灯的处境说实话反而是不利于引起共情的，因为从一开始就不太可能做到严格地以“诊断”的标准去写角色，反而是相当理想化的、偏离真实性的处理
 
+
+*****
+
+####  tuichu0425  
+##### 13112#       发表于 2024-2-18 15:29
+
+<blockquote>cindy355 发表于 2024-2-18 14:03
+也确实，我很怀疑我对灯的有色眼睛就是基于她对待爱音和立希的温差导致的，在我很主观的评价标准里，我其 ...</blockquote>
+大哥你在说啥呢，灯明显是有点怕立希啊（换我我也怕）
+
+*****
+
+####  江口夕  
+##### 13113#       发表于 2024-2-18 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">溫柔啥啊，月之森那些學生可和溫柔沾不上邊。動畫看不明白回去多看幾邊。
+頂多愛音班幾個還行，祥子那班都談不上好
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  cindy355  
+##### 13114#       发表于 2024-2-18 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63989249&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-18 15:20</a>
+
+其实移情和共情是两个几乎完全无关的概念，什么第一世界第三世界问题也只是公知爱用的外行 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">只能说我不懂，我只能借用他看起来想表达的名词，我只是个一般路过精神病人。
+

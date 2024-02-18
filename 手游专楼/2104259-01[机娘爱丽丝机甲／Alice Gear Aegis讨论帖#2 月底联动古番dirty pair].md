@@ -52,3 +52,14 @@ TV动画和连载漫画？
 
 这动画应该也没别人愿意出钱了吧。
 
+
+*****
+
+####  Picavian  
+##### 929#       发表于 2024-2-18 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63952688&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-2-13 13:47</a>
+
+安吉的绊剧情哪个小天才想出来的，俄乌官员和黑帮打麻将，乌方输了要按点数割让领土，输光就要成为大毛卫星 ...</blockquote>
+渣和无用改革混生化危机诅咒（aga版季莫申科甚至也叫斯维特拉娜，和东斯拉夫那位同名不同姓）。
+

@@ -5840,3 +5840,32 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
 昨晚SOS根本匹不到人，他们真的有在修吗
 
+
+*****
+
+####  Gmlazy  
+##### 617#       发表于 2024-2-18 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63985838&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-2-18 09:40</a>
+
+昨晚SOS根本匹不到人，他们真的有在修吗</blockquote>
+目测是更了最后一个补丁的人进去都识别不了除了好友以外的玩家了，所以活跃玩家显示都是0。
+
+但是没更的人还能正常匹配。
+
+这是什么情形，有没有做程序的朋友说道？
+
+*****
+
+####  丹德里恩  
+##### 618#       发表于 2024-2-18 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986127&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-2-18 10:07</a>
+
+目测是更了最后一个补丁的人进去都识别不了除了好友以外的玩家了，所以活跃玩家显示都是0。
+
+但是没更的人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就是他们菜，没什么好说道的
+
+我猜是修重复战备bug导致的问题
+

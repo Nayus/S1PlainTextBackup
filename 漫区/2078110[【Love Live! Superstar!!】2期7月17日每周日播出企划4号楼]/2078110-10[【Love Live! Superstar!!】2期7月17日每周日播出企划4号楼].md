@@ -1796,3 +1796,17 @@ b站逐渐变成贴吧了，审核没有，只为了流量。鱼春节动态的�
 <img src="https://p.sda1.dev/15/2de89d0240bb1ba929f053a85ed8ac67/CMP_20240218095112092.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/6c48923f5b221e1de15ca2ce2dbb535f/CMP_20240218095112136.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19618#       发表于 2024-2-18 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63985976&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-2-18 09:53</a>
+【我心里危险的东西 第二季第七集 Liyuu登场（-哔哩哔哩】 https://b23.tv/5X77q5r
+
+ ...</blockquote>
+像是把几年前拍下来的照片当素材重新使用
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

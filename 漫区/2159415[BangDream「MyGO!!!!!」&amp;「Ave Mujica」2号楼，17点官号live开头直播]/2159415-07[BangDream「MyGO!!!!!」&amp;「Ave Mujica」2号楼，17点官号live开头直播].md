@@ -26607,3 +26607,23 @@ aiai还是宝刀不及当年，好些没唱上去
 
 那么多人祥子照顾不过来的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 13139#       发表于 2024-2-18 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 13140#       发表于 2024-2-18 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63988481&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-2-18 14:03</a>
+
+也确实，我很怀疑我对灯的有色眼睛就是基于她对待爱音和立希的温差导致的，在我很主观的评价标准里，我其 ...</blockquote>
+我是灯也会有些怕立希的<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+一方面我知道她喜欢我，但我不知道她喜欢我什么地方，另一方面她对我喜欢的人态度很糟糕，而且她试图解决问题的方法实实在在把我伤到了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

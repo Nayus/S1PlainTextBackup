@@ -546,7 +546,7 @@
     "lastedit": 1708271716,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2095306": {
     "totalreply": 1194,
@@ -693,13 +693,13 @@
     "update": false
   },
   "2043123": {
-    "totalreply": 39726,
+    "totalreply": 39727,
     "title": "[🎸孤独摇滚🎸 TV动画 2022年10月]",
     "newtitle": "[2022.10 🎸孤独摇滚🎸 专楼 剧场总集篇 2024年春上映]",
-    "lastedit": 1708270512,
+    "lastedit": 1708272013,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2047770": {
     "totalreply": 691,
@@ -960,7 +960,7 @@
     "lastedit": 1708271717,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1914322": {
     "totalreply": 605,
@@ -1986,7 +1986,7 @@
     "lastedit": 1708271720,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2062303": {
     "totalreply": 1111,
@@ -4938,7 +4938,7 @@
     "lastedit": 1708271714,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1795939": {
     "totalreply": 1006,
@@ -7110,13 +7110,13 @@
     "update": false
   },
   "2166322": {
-    "totalreply": 1377,
+    "totalreply": 1378,
     "title": "[缅甸专楼-1月版]",
     "newtitle": "[缅甸专楼-1月版]",
-    "lastedit": 1708270514,
+    "lastedit": 1708272015,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2166321": {
     "totalreply": 2861,
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 11615,
+    "totalreply": 11622,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708271714,
+    "lastedit": 1708272015,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7773,7 +7773,7 @@
     "lastedit": 1708271713,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171008": {
     "totalreply": 68,
@@ -7866,10 +7866,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 1657,
+    "totalreply": 1658,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708271713,
+    "lastedit": 1708272014,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -8727,7 +8727,7 @@
     "lastedit": 1708271714,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171595": {
     "totalreply": 96,
@@ -9428,7 +9428,7 @@
     "newtitle": "[少年JUMP新连载《琉璃Dragon》龙JK的故事]",
     "lastedit": 1708012680,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2169386": {
@@ -9477,10 +9477,10 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1500,
+    "totalreply": 1506,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708271719,
+    "lastedit": 1708272015,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
@@ -10203,7 +10203,7 @@
     "lastedit": 1708271716,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2168582": {
     "totalreply": 59,
@@ -10446,7 +10446,7 @@
     "lastedit": 1708271718,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171760": {
     "totalreply": 45,
@@ -10752,7 +10752,7 @@
     "lastedit": 1708271720,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172032": {
     "totalreply": 52,
@@ -10788,7 +10788,7 @@
     "lastedit": 1708271717,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172038": {
     "totalreply": 62,
@@ -10818,10 +10818,10 @@
     "update": false
   },
   "2172206": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[什么样的契机，会让一直单身的人，打算结婚？]",
     "newtitle": "[什么样的契机，会让一直单身的人，打算结婚？]",
-    "lastedit": 1708271718,
+    "lastedit": 1708272014,
     "category": "外野",
     "active": true,
     "update": true
@@ -10914,7 +10914,7 @@
     "lastedit": 1708271722,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172130": {
     "totalreply": 41,
@@ -10941,7 +10941,7 @@
     "lastedit": 1708271720,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172150": {
     "totalreply": 43,
@@ -10959,7 +10959,7 @@
     "lastedit": 1708271717,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172245": {
     "totalreply": 83,
@@ -10980,10 +10980,10 @@
     "update": false
   },
   "2172230": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[小车购买推荐，有点难选]",
     "newtitle": "[小车购买推荐，有点难选]",
-    "lastedit": 1708271717,
+    "lastedit": 1708272016,
     "category": "外野",
     "active": true,
     "update": true

@@ -6186,3 +6186,11 @@ PS5 225k max
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">傻逼索尼，排了一上午没玩上
 
+
+*****
+
+####  星野心叶  
+##### 647#       发表于 2024-2-18 12:40
+
+现在进去也玩不了，搜不到野队的BUG还没修复，纯纯坐牢
+

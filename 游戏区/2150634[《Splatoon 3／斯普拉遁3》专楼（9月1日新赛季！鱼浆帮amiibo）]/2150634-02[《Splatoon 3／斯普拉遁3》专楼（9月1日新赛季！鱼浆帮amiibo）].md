@@ -15182,3 +15182,26 @@ dlc要是难到打不下去再来工坊爽金工。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  leyenda  
+##### 2987#       发表于 2024-2-18 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63985773&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-18 09:32</a>
+
+因为祭典，我可能要抽不到这赛季的银扭蛋了
+
+—— 来自 S1Fun</blockquote>
+祭典的序列不影响平时的序列，不乱花钱那结束后该是你的还是你的
+
+*****
+
+####  罗克萨斯  
+##### 2988#       发表于 2024-2-18 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986330&amp;ptid=2150634" target="_blank">leyenda 发表于 2024-2-18 10:24</a>
+
+祭典的序列不影响平时的序列，不乱花钱那结束后该是你的还是你的</blockquote>
+主要是占用了我好多天的首抽，这些要用每抽3W去补，导致钱不太够了，这不是逼我肝嘛<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+

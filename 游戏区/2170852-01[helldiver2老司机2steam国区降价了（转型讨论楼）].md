@@ -6230,3 +6230,21 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 目前才第一季，武器装备都不齐，深度也差几个职业的edf很远，就这样都30w在线百万大作了
 
+
+*****
+
+####  BadYanL  
+##### 652#       发表于 2024-2-18 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63988319&amp;ptid=2170852" target="_blank">ShiKi847 发表于 2024-2-18 13:48</a>
+
+索尼现在是不是后悔砍美末OL和猪猪侠OL了</blockquote>
+看后续能不能保持热度吧，PvE内容产出最难了。
+
+*****
+
+####  FLZB  
+##### 653#       发表于 2024-2-18 15:20
+
+别家游戏火了赶紧加服务器扩容，你索火了撑不住直接限流，抠抠索索名不虚传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

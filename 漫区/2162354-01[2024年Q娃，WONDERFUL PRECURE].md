@@ -1167,3 +1167,20 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 是确定无打戏了吗，难得看到一个人设对味的粉主...前两集不打都有点无聊了不知道能追到什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yguygyu  
+##### 1011#       发表于 2024-2-18 12:44
+
+人类形态能吃 gummy，所以人类形态就能吃巧克力咯？
+
+*****
+
+####  modedd  
+##### 1012#       发表于 2024-2-18 12:46
+
+真的是纯粹的悟个人回啊，我还以为能给大福点戏份呢，你们兔组人宠羁绊行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要么是藏了点啥要么就是兔子真的要底边了，难道大福是这么个呆萌无口宠设就是为了让他少来当电灯泡碍事嘛<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -476,3 +476,13 @@ OKSG空下来了估计会整魔箱的活作为微型联动（类似之前班扬�
 
 后悔去年没有all in水妖兰池了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kisskick  
+##### 11391#       发表于 2024-2-18 12:43
+
+<blockquote>UNISONIA 发表于 2024-2-16 01:35
+今年白情不一定有新鯖。估计和安德洛墨达有联动的Lancer版珀尔修斯是作为三星或者四星塞别的地方了，只有因 ...</blockquote>
+从人物形象看仙女座那个就是fp版吧
+

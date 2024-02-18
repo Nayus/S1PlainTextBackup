@@ -6341,3 +6341,14 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 匹配就太坐牢了  
 
+
+*****
+
+####  FLZB  
+##### 663#       发表于 2024-2-18 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990657&amp;ptid=2170852" target="_blank">flak37 发表于 2024-2-18 17:37</a>
+
+炸裂，两小时就没匹配上，单人打得保卫战也没算进度，这到底啥时候才能爽玩 ...</blockquote>
+保卫战进度是社区任务不是个人任务，解放一个被突袭的星球算一次胜利
+

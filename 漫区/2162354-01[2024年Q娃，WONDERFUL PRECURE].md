@@ -1333,3 +1333,14 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 汁波密和玛琳Q娃解散回以后吧……这2人会吵架吗……
 
+
+*****
+
+####  pokemon最爱  
+##### 1028#       发表于 2024-2-18 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991154&amp;ptid=2162354" target="_blank">leleq 发表于 2024-2-18 18:31</a>
+
+这几个是闪亮动物（高级干部）呗正好也能解决会说话的问题，肯定不能一开始就说清楚啊（不然小麦的玩具怎 ...</blockquote>
+闪亮动物有额头宝石这个重要的共通特征啊（
+

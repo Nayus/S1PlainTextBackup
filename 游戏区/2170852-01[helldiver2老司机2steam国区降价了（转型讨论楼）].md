@@ -5946,3 +5946,23 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Sayuki1025  
+##### 627#       发表于 2024-2-18 11:17
+
+得亏游戏底子没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 要不然如此灾难性首发口碑早炸了
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  梦诗歌雪  
+##### 628#       发表于 2024-2-18 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63984950&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-2-18 03:50</a>
+
+但是我记得好像刚开始几天是对的 要么是我记错了</blockquote>
+没有，首日就是这样了，我船上设的仁慈女王到了任务开始时船身写的就是女王仁慈
+

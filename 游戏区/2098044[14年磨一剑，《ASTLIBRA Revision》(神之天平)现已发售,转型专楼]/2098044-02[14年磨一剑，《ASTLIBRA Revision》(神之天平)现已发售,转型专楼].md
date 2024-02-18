@@ -1428,3 +1428,14 @@ DLC怎么提升属性来着？升级不加？
 打jjc的贝阿朵，她直接穿墙飞进墙里横跳，这个都算了，关键是发现她放的炸弹看不到，地狱难度因为这个各种 ...</blockquote>
 你是不是太早去打了，我是打到第9层点满所有当前成长盘之后再去打的，非常轻松就过了。
 
+
+*****
+
+####  suija  
+##### 3984#       发表于 2024-2-18 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63985831&amp;ptid=2098044" target="_blank">tansapple 发表于 2024-2-18 09:39</a>
+你是不是太早去打了，我是打到第9层点满所有当前成长盘之后再去打的，非常轻松就过了。 ...</blockquote>
+我已经打完了，以前本篇隐藏boss也是提前打的，总体难度还好吧，但是bug导致的蛋疼体验就非常难受了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+毕竟那个炸弹不能防，只能无敌顶一下，因为看不到炸弹在哪去追boss时候突然来一下暴毙还是有点无语的，后面就专门注意她脚下那个紫烟特效，干脆不追了离开一点等等再打了，跪了不少次知道怎么打了，有狂暴输出磨磨总归是过去了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

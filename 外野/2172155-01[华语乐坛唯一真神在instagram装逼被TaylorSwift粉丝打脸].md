@@ -710,3 +710,16 @@ ins 謌
 前者说周杰伦吐字不清，后者是TS早期被媒体称为“小美女”，然后被黑粉谐音“霉女”，再之后霉演变成了有 ...</blockquote>
 什么鬼，不是说泰勒交的男友特别频繁，黑粉就叫她“公交妹”（谁都可以上）→龚娇霉→霉霉吗，你这个说法是哪传来的。
 
+
+*****
+
+####  daqwsde  
+##### 77#       发表于 2024-2-18 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63993507&amp;ptid=2172155" target="_blank">yewenchi 发表于 2024-2-18 23:37</a>
+什么鬼，不是说泰勒交的男友特别频繁，黑粉就叫她“公交妹”（谁都可以上）→龚娇霉→霉霉吗，你这个说法 ...</blockquote>
+公交是四专开始的，霉女是二专开始的。
+泡面头加拿不到冠单
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

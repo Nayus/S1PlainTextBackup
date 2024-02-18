@@ -6556,3 +6556,33 @@ byd快1天了还进不去
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  逆袭的黑月  
+##### 684#       发表于 2024-2-18 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今晚联机还挺稳定的.没有掉线没有卡死和闪退.
+
+就是今天才发现你的房间如果开过一次任务之后,就再也不会进来人了.回舰桥接新任务也不会来人
+
+*****
+
+####  センコウ  
+##### 685#       发表于 2024-2-18 23:54
+
+ 本帖最后由 センコウ 于 2024-2-18 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63993234&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-2-18 22:56</a>
+
+500kg还不如轨道激光有用，轨道激光看着压迫力还更强一点</blockquote>
+500g的正确用法是往脚底下扔
+
+泰坦这种泰坦吐酸你躲开，立刻脚底一发500kg然后跑，泰坦很大几率会被500正中
+
+*****
+
+####  mikimk3  
+##### 686#       发表于 2024-2-18 23:54
+
+现在还是没法匹配吗
+

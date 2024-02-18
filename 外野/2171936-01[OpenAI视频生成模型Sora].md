@@ -802,3 +802,12 @@ gemini ultra我在用
 都几天了怎么还没看到有人试用视频流出，别真就用心筛选结果吧</blockquote>
 只给大企业开放目前
 
+
+*****
+
+####  右代宫嘉音  
+##### 82#       发表于 2024-2-18 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63978042&amp;ptid=2171936" target="_blank"> lyz1196 发表于 2024-2-17 10:29</a> 靠数据量参数量力大砖飞，告诉你该买老黄股票了 </blockquote>
+奥特曼不是要用7万亿掘老黄祖坟吗来自: iPhone客户端
+

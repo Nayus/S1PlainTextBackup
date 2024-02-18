@@ -1450,3 +1450,14 @@ DLC怎么提升属性来着？升级不加？
 最终武器给的这最后一个狗狗技能逆转生死之理是干嘛用的？以为是跟最终boss挂钩，带和没带都打了一遍没区别 ...</blockquote>
 是个小机制，最终Boss有生命光线和死亡光线两种，死亡光线的时候开技能，生命光线的时候把技能关了就可以无视这俩技能。
 
+
+*****
+
+####  yla  
+##### 3986#       发表于 2024-2-18 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986193&amp;ptid=2098044" target="_blank">迦勒尔谜拟Q 发表于 2024-2-18 10:12</a>
+
+是个小机制，最终Boss有生命光线和死亡光线两种，死亡光线的时候开技能，生命光线的时候把技能关了就可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难怪第二个波怎么都躲不掉，然后，我选择在第二个波出来前rush掉
+

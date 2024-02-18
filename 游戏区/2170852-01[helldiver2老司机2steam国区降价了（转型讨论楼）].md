@@ -5869,3 +5869,19 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
 我猜是修重复战备bug导致的问题
 
+
+*****
+
+####  byisme001  
+##### 619#       发表于 2024-2-18 10:16
+
+感觉索尼是单机不给demo做惯了，现在gaas不搞测试也直接上了
+
+*****
+
+####  ykyin09  
+##### 620#       发表于 2024-2-18 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63985275&amp;ptid=2170852" target="_blank"> 萧闻蒲 发表于 2024-2-18 08:28</a> 匹到的都是鬼佬，怎么才能匹到国人啊  —— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.4 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不挂加速器就能匹到中文id，挂着就只有英文id，只是我自己玩的时候的情况来自: iPhone客户端
+

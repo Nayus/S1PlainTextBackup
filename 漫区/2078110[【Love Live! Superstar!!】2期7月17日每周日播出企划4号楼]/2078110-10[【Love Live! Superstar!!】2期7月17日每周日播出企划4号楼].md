@@ -1810,3 +1810,16 @@ b站逐渐变成贴吧了，审核没有，只为了流量。鱼春节动态的�
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仟音一心  
+##### 19619#       发表于 2024-2-18 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986192&amp;ptid=2078110" target="_blank">starring 发表于 2024-2-18 10:12</a>
+
+像是把几年前拍下来的照片当素材重新使用
+
+—— 来自 Sony XQ-DQ72, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+对的，就是偷懒。
+

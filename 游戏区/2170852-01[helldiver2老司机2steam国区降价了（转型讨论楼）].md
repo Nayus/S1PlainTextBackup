@@ -6528,3 +6528,11 @@ byd快1天了还进不去
 500kg特效看着很爽吧,但感觉其实范围没有空袭和集束炸弹那么大,更多的伤害而且在砸的那么一下 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是落弹点水平面5M范围左右，砸你身边卧倒直接有烟无伤了，我用这个干过好几只骑我头上的泰坦和坦克
 
+
+*****
+
+####  ykyin09  
+##### 681#       发表于 2024-2-18 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">500kg还不如轨道激光有用，轨道激光看着压迫力还更强一点来自: iPhone客户端
+

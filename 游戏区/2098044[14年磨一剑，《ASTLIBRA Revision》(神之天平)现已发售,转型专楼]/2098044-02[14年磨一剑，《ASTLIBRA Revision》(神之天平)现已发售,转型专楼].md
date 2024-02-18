@@ -1569,3 +1569,13 @@ ok，带着无名英雄+魔女的组合刷了刷。运气挺好，出了1个四�
 故事最后提到的有外部势力打算进攻这颗星球，这部分涉及到keizo另一部作品MAGICU ...</blockquote>
 最底层有个速通模式 打完会出挑战模式 挑战打到两级就能拿到一个饰品并且解锁这个成就
 
+
+*****
+
+####  伊塔库亚  
+##### 3994#       发表于 2024-2-19 07:07
+
+可算是通关了，这游戏说是肉鸽，其实就还是那个刷子游戏，刷到盘子就原地起飞，刷不到就纯折磨。剧情来说除了那一段cp剧情，其他的就一般，只能说支持作者了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

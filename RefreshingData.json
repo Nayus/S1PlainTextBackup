@@ -6567,7 +6567,7 @@
     "lastedit": 1708285806,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1645555": {
     "totalreply": 3299,
@@ -7641,13 +7641,13 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 2949,
+    "totalreply": 2950,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708285506,
+    "lastedit": 1708286106,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170430": {
     "totalreply": 960,
@@ -9477,13 +9477,13 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1595,
+    "totalreply": 1596,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708285506,
+    "lastedit": 1708286106,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1991734": {
     "totalreply": 161,
@@ -10725,7 +10725,7 @@
     "lastedit": 1708285807,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172173": {
     "totalreply": 161,
@@ -10824,7 +10824,7 @@
     "lastedit": 1708285807,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172164": {
     "totalreply": 52,
@@ -11112,7 +11112,7 @@
     "lastedit": 1708285806,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172237": {
     "totalreply": 42,

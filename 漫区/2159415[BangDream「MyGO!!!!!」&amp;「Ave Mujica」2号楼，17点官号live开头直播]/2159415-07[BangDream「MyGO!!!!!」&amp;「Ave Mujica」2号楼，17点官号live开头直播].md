@@ -26723,3 +26723,14 @@ aiai还是宝刀不及当年，好些没唱上去
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接ppp的十缺一的立德可太立德了，这邦二代开的好头怕是十年企划一语成拙
 
+
+*****
+
+####  ddy2811  
+##### 13148#       发表于 2024-2-19 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63994134&amp;ptid=2159415" target="_blank">Toki_Ai 发表于 2024-2-19 01:25</a>
+
+接ppp的十缺一的立德可太立德了，这邦二代开的好头怕是十年企划一语成拙 ...</blockquote>
+动物朋友这真的抽象<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+

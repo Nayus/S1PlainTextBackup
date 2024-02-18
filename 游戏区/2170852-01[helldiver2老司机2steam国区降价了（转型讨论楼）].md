@@ -6316,3 +6316,18 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 米国人睡了，现在稳定爽玩
 
+
+*****
+
+####  flak37  
+##### 660#       发表于 2024-2-18 17:37
+
+炸裂，两小时就没匹配上，单人打得保卫战也没算进度，这到底啥时候才能爽玩<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 661#       发表于 2024-2-18 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想着拉当年一起玩一代的朋友来联机，可是人家好几个已经有了老婆孩子不要兄弟我了来自: iPhone客户端
+

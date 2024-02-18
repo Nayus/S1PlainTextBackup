@@ -396,13 +396,13 @@
     "update": false
   },
   "2086637": {
-    "totalreply": 8194,
+    "totalreply": 8195,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【テスト満点】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1708264219,
+    "lastedit": 1708271418,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2086516": {
     "totalreply": 727,
@@ -1986,7 +1986,7 @@
     "lastedit": 1708271119,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2062303": {
     "totalreply": 1111,
@@ -2016,13 +2016,13 @@
     "update": false
   },
   "1717712": {
-    "totalreply": 11868,
+    "totalreply": 11869,
     "title": "[推漫：咒术回战]",
     "newtitle": "[（不）推漫：咒术回战]",
-    "lastedit": 1708270812,
+    "lastedit": 1708271414,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1726277": {
     "totalreply": 947,
@@ -4464,13 +4464,13 @@
     "update": false
   },
   "2042115": {
-    "totalreply": 5174,
+    "totalreply": 5176,
     "title": "[《碧蓝幻想 Relink》23年1月21日新情报公开，2023年发售]",
     "newtitle": "[《碧蓝幻想 Relink》2024年2月1日发售，Demo已公开]",
-    "lastedit": 1708269916,
+    "lastedit": 1708271416,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2057903": {
     "totalreply": 1182,
@@ -6117,7 +6117,7 @@
     "lastedit": 1708271119,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2147731": {
     "totalreply": 42844,
@@ -6261,7 +6261,7 @@
     "lastedit": 1708271113,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2130296": {
     "totalreply": 486,
@@ -6873,7 +6873,7 @@
     "lastedit": 1708271121,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2162512": {
     "totalreply": 613,
@@ -7602,7 +7602,7 @@
     "lastedit": 1708271121,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170332": {
     "totalreply": 300,
@@ -7641,10 +7641,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 2933,
+    "totalreply": 2935,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708271114,
+    "lastedit": 1708271415,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 11601,
+    "totalreply": 11607,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708271122,
+    "lastedit": 1708271418,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7866,10 +7866,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 1655,
+    "totalreply": 1656,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708271115,
+    "lastedit": 1708271416,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -8286,7 +8286,7 @@
     "lastedit": 1708271115,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171370": {
     "totalreply": 78,
@@ -9477,13 +9477,13 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1483,
+    "totalreply": 1494,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708270812,
+    "lastedit": 1708271415,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1991734": {
     "totalreply": 161,
@@ -9888,7 +9888,7 @@
     "lastedit": 1708271117,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171620": {
     "totalreply": 99,
@@ -10230,7 +10230,7 @@
     "lastedit": 1708271121,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172019": {
     "totalreply": 80,
@@ -10446,7 +10446,7 @@
     "lastedit": 1708271120,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171760": {
     "totalreply": 45,
@@ -10653,7 +10653,7 @@
     "lastedit": 1708271121,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2022126": {
     "totalreply": 61,
@@ -10683,13 +10683,13 @@
     "update": false
   },
   "2172159": {
-    "totalreply": 157,
+    "totalreply": 158,
     "title": "[一次短暂的相亲]",
     "newtitle": "[一次短暂的相亲]",
-    "lastedit": 1708264219,
+    "lastedit": 1708271416,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171154": {
     "totalreply": 133,
@@ -10698,7 +10698,7 @@
     "lastedit": 1708271118,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172160": {
     "totalreply": 90,
@@ -10770,7 +10770,7 @@
     "lastedit": 1708271118,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171995": {
     "totalreply": 43,
@@ -10818,13 +10818,13 @@
     "update": false
   },
   "2172206": {
-    "totalreply": 68,
+    "totalreply": 70,
     "title": "[什么样的契机，会让一直单身的人，打算结婚？]",
     "newtitle": "[什么样的契机，会让一直单身的人，打算结婚？]",
-    "lastedit": 1708268716,
+    "lastedit": 1708271415,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172164": {
     "totalreply": 51,
@@ -10935,10 +10935,10 @@
     "update": false
   },
   "2172240": {
-    "totalreply": 104,
+    "totalreply": 106,
     "title": "[10岁男孩被窜出的烟花炸伤身亡]",
     "newtitle": "[10岁男孩被窜出的烟花炸伤身亡]",
-    "lastedit": 1708271119,
+    "lastedit": 1708271414,
     "category": "外野",
     "active": true,
     "update": true
@@ -10959,7 +10959,7 @@
     "lastedit": 1708271122,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172245": {
     "totalreply": 83,
@@ -11013,7 +11013,7 @@
     "lastedit": 1708271122,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172227": {
     "totalreply": 49,
@@ -11097,12 +11097,21 @@
     "update": false
   },
   "2170435": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "待更新",
     "newtitle": "[罢 工半年的好莱坞复工了第一集就拍巴以冲突体现歪屁股]",
-    "lastedit": 1708270512,
+    "lastedit": 1708271416,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
+  },
+  "2172243": {
+    "totalreply": 41,
+    "title": "待更新",
+    "newtitle": "[这两组团队对上，你觉得那边更有优势]",
+    "lastedit": 1708271416,
+    "category": "外野",
+    "active": true,
+    "update": true
   }
 }

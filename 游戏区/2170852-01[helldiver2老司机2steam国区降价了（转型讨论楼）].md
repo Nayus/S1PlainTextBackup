@@ -5934,3 +5934,15 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  萧闻蒲  
+##### 626#       发表于 2024-2-18 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986323&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-2-18 10:23</a>
+不挂加速器就能匹到中文id，挂着就只有英文id，只是我自己玩的时候的情况 ...</blockquote>
+我这来不来加速器都是鬼佬，甚至还匹到过棒子和毛子，就是没看到过中文iD<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

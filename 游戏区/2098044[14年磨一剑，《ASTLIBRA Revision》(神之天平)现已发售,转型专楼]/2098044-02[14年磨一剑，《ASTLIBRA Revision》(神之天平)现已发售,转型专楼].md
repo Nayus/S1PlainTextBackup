@@ -1557,3 +1557,15 @@ ok，带着无名英雄+魔女的组合刷了刷。运气挺好，出了1个四�
 
 故事最后提到的有外部势力打算进攻这颗星球，这部分涉及到keizo另一部作品MAGICUS的剧情，不知道keizo是不是真打算再整一部把两作世界观完全融合的作品出来
 
+
+*****
+
+####  Ivent  
+##### 3993#       发表于 2024-2-19 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63994295&amp;ptid=2098044" target="_blank">quanlix 发表于 2024-2-19 02:21</a>
+怪，差个成就没解锁。
+
+故事最后提到的有外部势力打算进攻这颗星球，这部分涉及到keizo另一部作品MAGICU ...</blockquote>
+最底层有个速通模式 打完会出挑战模式 挑战打到两级就能拿到一个饰品并且解锁这个成就
+

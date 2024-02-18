@@ -6290,3 +6290,14 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 2024-2-18 16:20 上传
 
+
+*****
+
+####  逆袭的黑月  
+##### 657#       发表于 2024-2-18 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63989848&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-18 16:16</a>
+
+神TM被个铲子卡住</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这破游戏经常卡人,好几次人被创飞卡到个奇奇怪怪的角落出不来.还有空降时候砸死个坦克虫直接被卡死在尸体下面
+

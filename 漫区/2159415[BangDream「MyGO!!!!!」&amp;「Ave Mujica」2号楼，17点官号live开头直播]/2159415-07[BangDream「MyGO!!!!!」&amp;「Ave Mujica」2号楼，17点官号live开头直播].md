@@ -26385,3 +26385,29 @@ C团回忆杀独白强调的也是灯比较难和周围的人共情，还有没�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nh_zzz  
+##### 13120#       发表于 2024-2-18 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63979811&amp;ptid=2159415" target="_blank">Akari 发表于 2024-2-17 14:07</a>
+其实我发现鼓子和偶像大师SC的几位关系不错，还参加过节目。
+
+感觉她属于到处当编外成员的那种感觉。 ...</blockquote>
+鉴于大鼓最近参加的生放，建议空降少歌
+
+
+*****
+
+####  江口夕  
+##### 13121#       发表于 2024-2-18 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63989489&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-18 15:42</a>
+所以我说不能拿三次元代入纸片人，类似你说的“三次元很多都怕立希这种人所以灯肯定也怕”
+
+第九集 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">三次元可沒有立希這種顏，如果有肯定不帶怕的，何況身材還好。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -1531,3 +1531,29 @@ ok，带着无名英雄+魔女的组合刷了刷。运气挺好，出了1个四�
 难怪第二个波怎么都躲不掉，然后，我选择在第二个波出来前rush掉</blockquote>
 跳跃力强化+三段跳+空剑+空中步行也可以躲
 
+
+*****
+
+####  quanlix  
+##### 3992#       发表于 2024-2-19 02:21
+
+<img src="https://img.saraba1st.com/forum/202402/19/015728ottd7dbj7ljn7pop.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240219013833.jpg</strong> (114.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 01:57 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/015728d4advbv44vtvuad5.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240219015234.jpg</strong> (116.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 01:57 上传
+
+怪，差个成就没解锁。
+
+故事最后提到的有外部势力打算进攻这颗星球，这部分涉及到keizo另一部作品MAGICUS的剧情，不知道keizo是不是真打算再整一部把两作世界观完全融合的作品出来
+

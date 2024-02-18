@@ -677,3 +677,14 @@ ins 謌
 周杰伦和斯威夫特谁咖位高</blockquote>
 结巴知道霉，霉知道结巴吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  复东生  
+##### 74#       发表于 2024-2-18 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63992837&amp;ptid=2172155" target="_blank">嘉峪君 发表于 2024-2-18 22:00</a>
+
+前者说周杰伦吐字不清，后者是TS早期被媒体称为“小美女”，然后被黑粉谐音“霉女”，再之后霉演变成了有 ...</blockquote>
+原来如此。话说以我对周杰伦浅薄的了解，他那种风格如果被吐槽的话应该叫“大舌头”吧，我感觉“大舌头”和“结巴”还是有点不同的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

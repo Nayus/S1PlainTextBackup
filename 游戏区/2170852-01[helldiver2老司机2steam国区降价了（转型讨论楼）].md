@@ -5893,3 +5893,44 @@ SOS直接没了，晚上刚更新还能连上几把。顶级游戏了
 
 排队排个半小时都没能进游戏，箭头这服务器是不是都没怎么弄过<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 622#       发表于 2024-2-18 10:33
+
+官方说服务器上限目前45万，单是steam就33万了，索尼还搞免PS+周末，大概有一半的人在排队。
+
+*****
+
+####  jy000129  
+##### 623#       发表于 2024-2-18 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986323&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-2-18 10:23</a>
+不挂加速器就能匹到中文id，挂着就只有英文id，只是我自己玩的时候的情况 ...</blockquote>
+这服务器链接上来说挺好的，基本不需要挂加速器，一代也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就是扣扣索索舍不得加几台
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Gmlazy  
+##### 624#       发表于 2024-2-18 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986350&amp;ptid=2170852" target="_blank">Poketto 发表于 2024-2-18 10:25</a>
+
+排队排个半小时都没能进游戏，箭头这服务器是不是都没怎么弄过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">老哥是什么平台呢，如果是steam并且已更新到最新版本的话，进去了是完全搜不到其他玩家的，只能看到活跃地狱潜者数为0，无法联机的，建议是今天先做点别的。
+
+但是仍然能看到星球作战进展在上涨，说明还有相当数量的玩家在游戏中。
+
+*****
+
+####  jy000129  
+##### 625#       发表于 2024-2-18 10:38
+
+妈个鸡不能忍了，上STEAM打差评去
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

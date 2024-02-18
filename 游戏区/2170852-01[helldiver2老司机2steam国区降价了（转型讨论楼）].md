@@ -6546,3 +6546,13 @@ byd快1天了还进不去
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  风萧飒  
+##### 683#       发表于 2024-2-18 23:20
+
+我现在是感觉20级以后打虫子带轨道炮和飞鹰空袭好点，空袭可以炸巢穴和清杂，泰坦有轨道炮和磁轨够解决了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

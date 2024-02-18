@@ -6509,3 +6509,22 @@ byd快1天了还进不去
 
 2024-2-18 22:14 上传
 
+
+*****
+
+####  LrGsite  
+##### 679#       发表于 2024-2-18 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63992959&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-18 22:14</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">500kg特效看着很爽吧,但感觉其实范围没有空袭和集束炸弹那么大,更多的伤害而且在砸的那么一下
+
+*****
+
+####  Launce  
+##### 680#       发表于 2024-2-18 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63993185&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-18 22:48</a>
+
+500kg特效看着很爽吧,但感觉其实范围没有空袭和集束炸弹那么大,更多的伤害而且在砸的那么一下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是落弹点水平面5M范围左右，砸你身边卧倒直接有烟无伤了，我用这个干过好几只骑我头上的泰坦和坦克
+

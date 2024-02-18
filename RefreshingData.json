@@ -87,7 +87,7 @@
     "lastedit": 1708299008,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16960,
@@ -2697,7 +2697,7 @@
     "lastedit": 1708299008,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2067736": {
     "totalreply": 1403,
@@ -5613,7 +5613,7 @@
     "lastedit": 1708299008,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2125110": {
     "totalreply": 2935,
@@ -7137,13 +7137,13 @@
     "update": false
   },
   "2166320": {
-    "totalreply": 1738,
+    "totalreply": 1739,
     "title": "[俄乌专楼-1月版]",
     "newtitle": "[俄乌专楼-1月版]",
-    "lastedit": 1708297508,
+    "lastedit": 1708299307,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2164773": {
     "totalreply": 133,
@@ -7350,7 +7350,7 @@
     "lastedit": 1708299008,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2125694": {
     "totalreply": 134,
@@ -9918,13 +9918,13 @@
     "update": false
   },
   "2171978": {
-    "totalreply": 82,
+    "totalreply": 83,
     "title": "[难怪网吧干不下去了]",
     "newtitle": "[难怪网吧干不下去了]",
-    "lastedit": 1708175760,
+    "lastedit": 1708299306,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171934": {
     "totalreply": 47,
@@ -10467,13 +10467,13 @@
     "update": false
   },
   "2172057": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[日经杂志对许多ip的粉丝群性别和年龄结果的统计]",
     "newtitle": "[日经杂志对许多ip的粉丝群性别和年龄结果的统计]",
-    "lastedit": 1708263026,
+    "lastedit": 1708299307,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172071": {
     "totalreply": 82,
@@ -11013,7 +11013,7 @@
     "lastedit": 1708299007,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172227": {
     "totalreply": 49,

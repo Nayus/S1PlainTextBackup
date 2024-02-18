@@ -6248,3 +6248,45 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 
 别家游戏火了赶紧加服务器扩容，你索火了撑不住直接限流，抠抠索索名不虚传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 654#       发表于 2024-2-18 16:16
+
+<img src="https://img.saraba1st.com/forum/202402/18/161557uuwu7kkuva4v9kv0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (572.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 16:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神TM被个铲子卡住
+
+*****
+
+####  eno_emos  
+##### 655#       发表于 2024-2-18 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">这个电棍的电是不是跟磁暴线圈同款的啊？
+
+我怎么老电不死虫子
+
+电棍蓄力到底是在蓄什么，蓄一半打出去和蓄满打出去有区别吗
+
+*****
+
+####  runningch  
+##### 656#       发表于 2024-2-18 16:21
+
+差评比例终于起来了，给我狠狠的刷差评<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/18/162014sn0bovio5v66zkkk.jpg" referrerpolicy="no-referrer">
+
+<strong>SharedScreenshot.jpg</strong> (40.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 16:20 上传
+

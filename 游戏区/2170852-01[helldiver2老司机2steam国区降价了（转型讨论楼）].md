@@ -6352,3 +6352,19 @@ steam峰值33w了，按照楼上50:50的比例有1/3的玩家在排队。没想�
 炸裂，两小时就没匹配上，单人打得保卫战也没算进度，这到底啥时候才能爽玩 ...</blockquote>
 保卫战进度是社区任务不是个人任务，解放一个被突袭的星球算一次胜利
 
+
+*****
+
+####  LrGsite  
+##### 664#       发表于 2024-2-18 18:57
+
+<img src="https://img.saraba1st.com/forum/202402/18/185735emvh44myydbz4znq.png" referrerpolicy="no-referrer">
+
+<strong>O[]ZRAHKL]C{J0`Z8]QO8PE.png</strong> (571.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-18 18:57 上传
+
+这难度还是很离谱啊,2个35级的打不过难度6的保卫战
+

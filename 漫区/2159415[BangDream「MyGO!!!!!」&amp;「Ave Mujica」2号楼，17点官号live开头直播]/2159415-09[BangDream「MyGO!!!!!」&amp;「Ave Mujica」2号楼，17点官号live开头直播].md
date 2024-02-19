@@ -237,3 +237,20 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 老登业务没够让员工带货是吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 13231#       发表于 2024-2-19 23:17
+
+错误的，如果灯素希真的以为她们是太菜才被祥子切割，那这三个就会开始疯狂压力自己为什么这么菜而不是怪祥子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 13232#       发表于 2024-2-19 23:17
+
+說得跟真的一樣，要不是我也看了活動劇情就被騙了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+哪裡一口一個C團了，不是滿滿的燈爽和美帝嗎
+

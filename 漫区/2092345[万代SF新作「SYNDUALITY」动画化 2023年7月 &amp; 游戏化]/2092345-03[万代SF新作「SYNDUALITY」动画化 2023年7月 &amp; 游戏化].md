@@ -72,3 +72,51 @@
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  RE㐅ia  
+##### 3867#       发表于 2024-2-19 23:16
+
+<blockquote>novyMS 发表于 2024-2-19 23:01
+这雨不是有毒么 直接淋?
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+有疫苗的
+
+*****
+
+####  NeloAngelo  
+##### 3868#       发表于 2024-2-19 23:19
+
+意思是游戏结局也是这一套
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NeloAngelo  
+##### 3869#       发表于 2024-2-19 23:19
+
+(虽然游戏可能已经被砍了hhh)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyMS  
+##### 3870#       发表于 2024-2-19 23:22
+
+不会要三合一吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NeloAngelo  
+##### 3871#       发表于 2024-2-19 23:22
+
+来啦来啦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

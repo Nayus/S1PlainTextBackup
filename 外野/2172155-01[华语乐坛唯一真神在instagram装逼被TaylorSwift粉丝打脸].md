@@ -828,3 +828,16 @@ ins 謌
 算上现任打橄榄球的，12个男友里面吸死的都有1任，传闻男方劈腿的有3任 ...</blockquote>
 我靠 惊了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kelveen  
+##### 88#       发表于 2024-2-19 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990348&amp;ptid=2172155" target="_blank">恐惧之眼是我家 发表于 2024-2-18 17:06</a>
+
+泰勒斯威夫特为什么今年在外网上这么火？感觉都快成唯一指定真神了，前几年也没这么夸张啊。另外多少得感谢 ...</blockquote>
+原本1989之后就要接着吹的，中间被金评霉打断，rep和lover过渡之后就是疫情期间两张民谣连发，质量确实也挺不错，三封格莱美，从那时候就开始大力吹了。去年的midnight个人觉得一般，结果今年初四封格莱美，那还不被粉丝吹爆<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过讲道理，欧美女歌手像她这样长红的也没几个，还是会自己写歌的那种，唯一吃亏的就是大白嗓了。至于人品，欧美圈有主打人品的嘛。
+

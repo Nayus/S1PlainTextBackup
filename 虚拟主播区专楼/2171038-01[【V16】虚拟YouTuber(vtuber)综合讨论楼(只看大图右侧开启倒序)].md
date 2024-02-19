@@ -439,3 +439,16 @@ Elira clique的那个rrat太有说服力了
 延迟了一个月之后月见还是被解雇了，最后这个解雇理由简直可以说是屁大点事，甚至错都不在月见，月 ...</blockquote>
 老哥，月见是不赌的那个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 131#       发表于 2024-2-19 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996088&amp;ptid=2171038" target="_blank">catkoto 发表于 2024-2-19 10:36</a>
+
+老哥，月见是不赌的那个实在要说如果她赌了可能还不会被解雇还有nsm的火箭筒跟赌场资金没有关系， ...</blockquote>
+一样，实际上不管你喜欢不喜欢赌，mond经常会带着人进赌场然后逼着你下注，当然月见日常手头紧大概还有上线时间短，每天12点准时下班的关系
+
+叶那边资金力和武力是分开说的啊，并没有说他用了赌场的钱，而是说他手上可控的钱和武器的确就是超过整个组织其他人总和，所谓钱包的余裕就是心之余裕，你永远不可能会看到叶因为几千万甚至1,2e的钱搞出千代田或者月见这种事件，他随手打赏给赌场常客的都可以是每人好几e
+

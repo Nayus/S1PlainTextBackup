@@ -455,3 +455,35 @@ nmb代一看代哥又拉了托大的
 
 学校的偶像，过去一直当成笑话来看的，哪怕是拉拉这种搞兴趣班多少也有点抽象，现在直接当大专开了，少歌捏，你们的b班也是全女吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  QuattroVageena  
+##### 1122#       发表于 2024-2-19 11:47
+
+ba的优势是透明的世界、生动的学生以及出色的二创，游戏性就那样
+基于scsp和sidem，我不认为万南这么傲慢的公司做得到
+<img src="https://p.sda1.dev/15/8f05020d524e12e3142deeb8f978f685/IMG_CMP_183527962.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SinoWarrior  
+##### 1123#       发表于 2024-2-19 11:47
+
+ 本帖最后由 SinoWarrior 于 2024-2-19 11:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996613&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-19 11:17</a>
+有啥不敢的，爱马仕主要市场又不是大陆
+11区可没有有男不玩
+就新作这个设定你怎么就保证制作人班 ...</blockquote>
+爱马仕历史上搞过男女混，结果炎上了，再也没刚搞过
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  花开安菲路  
+##### 1124#       发表于 2024-2-19 11:49
+
+爱马仕pl属性标签很重的，就万南这保守又落后的现状，它真有魄力搞男女混搭通吃吗？
+日本人只是平时在社交媒体会装装样子，读读空气而已，真要触动了利益，炎上比国内狠多了，国内是网上口无遮拦，有不满就会说，所以粉丝内部还有跟运营互动多，形成了撕逼相互试探的风气。
+

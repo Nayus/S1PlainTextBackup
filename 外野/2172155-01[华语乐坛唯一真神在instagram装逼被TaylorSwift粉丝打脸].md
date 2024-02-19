@@ -796,3 +796,14 @@ ins 謌
 原来如此。话说以我对周杰伦浅薄的了解，他那种风格如果被吐槽的话应该叫“大舌头”吧，我感觉“大舌头” ...</blockquote>
 周杰伦唱歌吐字不清是因为他写歌为了旋律性而选择放弃咬字清晰，他想唱的清晰是可以的
 
+
+*****
+
+####  satan023  
+##### 85#       发表于 2024-2-19 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997912&amp;ptid=2172155" target="_blank">变老的大二 发表于 2024-2-19 13:16</a>
+
+她下面发霉都不奇怪</blockquote>
+为啥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -27095,3 +27095,11 @@ soyo的花后不是很满意。
 
 猫还是一个人独自美丽吗<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 13187#       发表于 2024-2-19 13:50
+
+第一时间想起MO的“雨何时停”，不过soyo还没智也那么惨<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

@@ -27191,3 +27191,15 @@ soyo 灯灯你们两个果然做了什么吧，多提提元和二年的事啊
 
 武士道美工还是有些可惜，能看出来卡图想营造什么样的氛围，实际成品稍微差点意思。
 
+
+*****
+
+####  KokutouMikiya  
+##### 13198#       发表于 2024-2-19 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63998734&amp;ptid=2159415" target="_blank">氷川日菜 发表于 2024-2-19 14:30</a>
+剧透反白爱音想用素世同款柔软剂，素世一下猜中爱音去买什么饮料，心有灵犀tomori都笑了 ...</blockquote>
+原来已经可以看剧情了，滚去bestdori了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

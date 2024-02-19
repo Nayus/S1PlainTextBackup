@@ -26920,3 +26920,46 @@ aiai还是宝刀不及当年，好些没唱上去
 —— 来自 HUAWEI NAM-AL00, Android 12上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 这哪壶不开提哪壶的是annon酱吗，不过没叫soyorin
 
+
+*****
+
+####  NODY  
+##### 13169#       发表于 2024-2-19 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997029&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-19 11:52</a>
+
+现在有谁叫soyo桑吗，这哪壶不开提哪壶的是annon?</blockquote>
+原文soyo酱，是灯
+
+其实看活动标题颜色也能看出来了，会有五星角色的代表色
+
+*****
+
+####  ddy2811  
+##### 13170#       发表于 2024-2-19 12:01
+
+白月光就是白月光啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フミさん  
+##### 13171#       发表于 2024-2-19 12:02
+
+为什么要提那天发生的事！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  盐盐盐盐盐  
+##### 13172#       发表于 2024-2-19 12:04
+
+团里叫soyoちゃん的只有灯
+
+*****
+
+####  可爱美味祥子  
+##### 13173#       发表于 2024-2-19 12:04
+
+《重返危机现场》
+

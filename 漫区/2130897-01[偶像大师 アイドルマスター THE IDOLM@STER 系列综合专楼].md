@@ -487,3 +487,61 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 爱马仕pl属性标签很重的，就万南这保守又落后的现状，它真有魄力搞男女混搭通吃吗？
 日本人只是平时在社交媒体会装装样子，读读空气而已，真要触动了利益，炎上比国内狠多了，国内是网上口无遮拦，有不满就会说，所以粉丝内部还有跟运营互动多，形成了撕逼相互试探的风气。
 
+
+*****
+
+####  hypnossz86  
+##### 1125#       发表于 2024-2-19 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996975&amp;ptid=2130897" target="_blank">SinoWarrior 发表于 2024-2-19 11:47</a>
+爱马仕历史上搞过男女混，结果炎上了，再也没刚搞过
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 S1Ne ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">啥男女混啊，没啥印象
+
+*****
+
+####  退行  
+##### 1126#       发表于 2024-2-19 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997082&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-19 11:58</a>
+啥男女混啊，没啥印象</blockquote>
+凉哥那作吧，视角还是偶像自己不是制作人了 不过男女混的还有个pop link也没什么炎上
+
+*****
+
+####  SinoWarrior  
+##### 1127#       发表于 2024-2-19 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997082&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-19 11:58</a>
+啥男女混啊，没啥印象</blockquote>
+https://w.atwiki.jp/aniwotawiki/pages/20811.html
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  koodooliz  
+##### 1128#       发表于 2024-2-19 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997094&amp;ptid=2130897" target="_blank">退行 发表于 2024-2-19 12:00</a>
+凉哥那作吧，视角还是偶像自己不是制作人了 不过男女混的还有个pop link也没什么炎上 ...</blockquote>
+poplink典型合家欢连连看，这都要炎上那也太魔怔了。
+
+*****
+
+####  hypnossz86  
+##### 1129#       发表于 2024-2-19 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997106&amp;ptid=2130897" target="_blank">SinoWarrior 发表于 2024-2-19 12:00</a>
+[https://w.atwiki.jp/aniwotawiki/pages/20811.html](https://w.atwiki.jp/aniwotawiki/pages/20811.html)
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 S1Ne ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这？
+
+2代木星可是开创sidem新路的奠基人好吗？918那是古板粉丝不懂事儿瞎鸡拔炎上
+
+你看后来男团收割女粉不要太开心
+
+至于ds那就更可笑了，就这作的影响力也可以看出炎上也只能是星星之火而已
+

@@ -452,3 +452,14 @@ Elira clique的那个rrat太有说服力了
 
 叶那边资金力和武力是分开说的啊，并没有说他用了赌场的钱，而是说他手上可控的钱和武器的确就是超过整个组织其他人总和，所谓钱包的余裕就是心之余裕，你永远不可能会看到叶因为几千万甚至1,2e的钱搞出千代田或者月见这种事件，他随手打赏给赌场常客的都可以是每人好几e
 
+
+*****
+
+####  catkoto  
+##### 132#       发表于 2024-2-19 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997707&amp;ptid=2171038" target="_blank">高等黑暗 发表于 2024-2-19 12:56</a>
+
+一样，实际上不管你喜欢不喜欢赌，mond经常会带着人进赌场然后逼着你下注，当然月见日常手头紧大概还有上 ...</blockquote>
+月见被解雇的明面理由根本原因是不合群，她根本不去赌场，手头也不紧，allin里是有好几个赌鬼，但是也有不赌的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">mondo是自己喜欢赌+喜欢起哄
+

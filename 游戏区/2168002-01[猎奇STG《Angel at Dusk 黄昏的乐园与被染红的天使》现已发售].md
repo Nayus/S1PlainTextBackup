@@ -105,3 +105,11 @@ Pixiv上相当比例的猎奇画作也是出自国人作者。跟性压抑导致
 
 —— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+*****
+
+####  JB-5th  
+##### 126#       发表于 2024-2-19 19:16
+
+今天刚开始玩。确实不错。他这个解锁fex是要ex从第一关开始打吗
+

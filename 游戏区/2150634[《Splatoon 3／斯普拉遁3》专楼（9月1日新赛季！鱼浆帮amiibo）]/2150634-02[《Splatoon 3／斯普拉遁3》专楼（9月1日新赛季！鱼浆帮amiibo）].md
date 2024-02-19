@@ -15476,3 +15476,15 @@ dlc要是难到打不下去再来工坊爽金工。
 
 砸地…觉得强是不是没有被人一场连打几个砸地而爽过
 
+
+*****
+
+####  KBAC  
+##### 3019#       发表于 2024-2-19 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64001730&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-2-19 18:38</a>
+下次祭典居然给13个装备乌研所是憋了多大的活儿</blockquote>
+没有多大活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，以前springfest就给十多个头饰和鞋子
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

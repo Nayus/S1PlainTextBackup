@@ -887,3 +887,41 @@ bgm上的参与的作品，属于还行一般萌系，肯定不如sc了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我看他微博怎么像他看那ppt上的图猜的，就成舅舅爆料了
 
+
+*****
+
+####  Srchy  
+##### 1163#       发表于 2024-2-19 15:51
+
+<img src="https://img.saraba1st.com/forum/202402/19/155030sge94g98wngdiw7g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 15:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">人设应该是这个
+
+<img src="https://img.saraba1st.com/forum/202402/19/155103phjxkfk0a406ahx0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240219154538.png</strong> (7.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 15:51 上传
+
+和ppt这个キミト宙へ和ペンギン・ハイウェイ就对上了
+
+*****
+
+####  patema  
+##### 1164#       发表于 2024-2-19 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63999661&amp;ptid=2130897" target="_blank">Srchy 发表于 2024-2-19 15:51</a>
+
+人设应该是这个和ppt这个キミト宙へ和ペンギン・ハイウェイ就对上了
+
+ ...</blockquote>
+漂流和企鹅高速公路的人设我挺喜欢的
+

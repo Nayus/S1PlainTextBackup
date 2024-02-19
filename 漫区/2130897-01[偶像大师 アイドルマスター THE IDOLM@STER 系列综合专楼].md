@@ -111,3 +111,18 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ViviR  
+##### 1087#       发表于 2024-2-19 09:00
+
+不太明白特地把舞台设置在校园有什么意义，整得好像之前的偶像都是社会人似的。
+
+*****
+
+####  acacaclove  
+##### 1088#       发表于 2024-2-19 09:03
+
+波公公的烂活吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

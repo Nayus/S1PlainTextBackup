@@ -5085,13 +5085,13 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 1205,
+    "totalreply": 1206,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》已开启限量付费测招募]",
-    "lastedit": 1708368908,
+    "lastedit": 1708371905,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1025935": {
     "totalreply": 2151,
@@ -5720,7 +5720,7 @@
     "newtitle": "[型月 x 光荣特库摩『Fate ／ Samurai Remnant』PV1公开，9月28日发售]",
     "lastedit": 1708112580,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2141239": {
@@ -10734,7 +10734,7 @@
     "lastedit": 1708371608,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172154": {
     "totalreply": 93,
@@ -11346,7 +11346,7 @@
     "lastedit": 1708371608,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2124528": {
     "totalreply": 71,
@@ -11391,7 +11391,7 @@
     "lastedit": 1708371607,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172336": {
     "totalreply": 57,

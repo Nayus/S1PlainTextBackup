@@ -545,3 +545,24 @@ poplink典型合家欢连连看，这都要炎上那也太魔怔了。
 
 至于ds那就更可笑了，就这作的影响力也可以看出炎上也只能是星星之火而已
 
+
+*****
+
+####  kobushi  
+##### 1130#       发表于 2024-2-19 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你问问sideM的女P对线下民骂死的其他马斯大叔有没有好印象,2.5企划让男粉女粉一锅炖是没有好下场的
+
+*****
+
+####  花开安菲路  
+##### 1131#       发表于 2024-2-19 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997134&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-19 12:03</a>
+就这？
+
+2代木星可是开创sidem新路的奠基人好吗？918那是古板粉丝不懂事儿瞎鸡拔炎上
+
+你看后来男团 ...</blockquote>
+有一说一，你搞男团女性向收割女粉，和想男女通吃混搭，是完全不同的方向了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5091,7 +5091,7 @@
     "lastedit": 1708377006,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1025935": {
     "totalreply": 2151,
@@ -11256,7 +11256,7 @@
     "lastedit": 1708377007,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172305": {
     "totalreply": 78,
@@ -11670,6 +11670,6 @@
     "lastedit": 1708377006,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }

@@ -447,3 +447,11 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 nmb代一看代哥又拉了托大的
 
+
+*****
+
+####  ads147147  
+##### 1121#       发表于 2024-2-19 11:44
+
+学校的偶像，过去一直当成笑话来看的，哪怕是拉拉这种搞兴趣班多少也有点抽象，现在直接当大专开了，少歌捏，你们的b班也是全女吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

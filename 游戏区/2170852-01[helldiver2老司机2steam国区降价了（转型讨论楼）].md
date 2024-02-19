@@ -6691,3 +6691,24 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 感觉第三势力最晚也得在彻底消灭一个势力之后赶紧更新，箭头应该意识到前作最后只剩一个势力的残局有多无聊了
 
+
+*****
+
+####  リュウセイ  
+##### 699#       发表于 2024-2-19 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63994771&amp;ptid=2170852" target="_blank">banjia0815 发表于 2024-2-19 08:30</a>
+
+查了下一代steam的peak ccu居然才6744，虽然不是pc同步发售的。当年在ps4首发也没啥别的coop，加上15年那个 ...</blockquote>
+死亡回归打枪还真挺不错，我开了订阅就是为了玩这个
+
+*****
+
+####  Launce  
+##### 700#       发表于 2024-2-19 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63994817&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-2-19 08:37</a>
+
+为什么我steam上要么就是排不进去，要么就是排进去了完全匹配不到别人，但是偶尔又有人能加入我的战局。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 01.000.009补丁对匹配“优化”后，大概率是排不了，小概率会排到人
+

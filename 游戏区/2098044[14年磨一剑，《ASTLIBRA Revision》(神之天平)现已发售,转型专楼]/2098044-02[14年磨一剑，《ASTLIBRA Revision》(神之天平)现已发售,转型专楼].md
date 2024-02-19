@@ -1640,3 +1640,11 @@ ok，带着无名英雄+魔女的组合刷了刷。运气挺好，出了1个四�
 
 最后熟悉的真结局BGM响起又想去重温正传了，狂刷20小时跳两位英雄成就的这一刻前面的疲惫都一扫而空了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caupollen  
+##### 4000#       发表于 2024-2-19 09:11
+
+后半段的剧情密度太淡了，六到十层几乎没剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -42,7 +42,7 @@
     "category": "手游专楼",
     "active": true,
     "newtitle": "[千年戦争アイギス 4.0（？）]",
-    "update": true
+    "update": false
   },
   "1972669": {
     "totalreply": 18516,
@@ -231,7 +231,7 @@
     "lastedit": 1708308619,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2078856": {
     "totalreply": 7876,
@@ -4470,7 +4470,7 @@
     "lastedit": 1708308619,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2057903": {
     "totalreply": 1182,
@@ -5067,13 +5067,13 @@
     "update": false
   },
   "2123406": {
-    "totalreply": 640,
+    "totalreply": 641,
     "title": "[《我不是赛博精神病》专楼]",
     "newtitle": "[《我不是赛博精神病》专楼]",
-    "lastedit": 1708302012,
+    "lastedit": 1708308915,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2074458": {
     "totalreply": 2916,
@@ -5346,13 +5346,13 @@
     "update": false
   },
   "2130897": {
-    "totalreply": 1099,
+    "totalreply": 1102,
     "title": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
     "newtitle": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
-    "lastedit": 1708308319,
+    "lastedit": 1708308916,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1865528": {
     "totalreply": 601,
@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 6308,
+    "totalreply": 6310,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1708308619,
+    "lastedit": 1708308925,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -5820,7 +5820,7 @@
     "lastedit": 1708308619,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1988297": {
     "totalreply": 1177,
@@ -6111,13 +6111,13 @@
     "update": false
   },
   "1992973": {
-    "totalreply": 4425,
+    "totalreply": 4426,
     "title": "[『葬送的芙莉莲』动画化决定！2023年秋]",
     "newtitle": "[『葬送的芙莉莲』动画化决定！2023年秋 剧透请反白]",
-    "lastedit": 1708307113,
+    "lastedit": 1708308919,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2147731": {
     "totalreply": 42844,
@@ -6261,7 +6261,7 @@
     "lastedit": 1708308619,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2130296": {
     "totalreply": 486,
@@ -6552,13 +6552,13 @@
     "update": false
   },
   "2089646": {
-    "totalreply": 1897,
+    "totalreply": 1898,
     "title": "[药屋少女的呢喃 TV动画化 2023年10月]",
     "newtitle": "[药屋少女的呢喃 TV动画化 2023年10月 剧透请反白]",
-    "lastedit": 1708303512,
+    "lastedit": 1708308916,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2082084": {
     "totalreply": 2050,
@@ -6567,7 +6567,7 @@
     "lastedit": 1708308616,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1645555": {
     "totalreply": 3299,
@@ -7137,10 +7137,10 @@
     "update": false
   },
   "2166320": {
-    "totalreply": 1758,
+    "totalreply": 1761,
     "title": "[俄乌专楼-1月版]",
     "newtitle": "[俄乌专楼-1月版]",
-    "lastedit": 1708308619,
+    "lastedit": 1708308920,
     "category": "外野",
     "active": true,
     "update": true
@@ -7344,13 +7344,13 @@
     "update": false
   },
   "2167989": {
-    "totalreply": 5672,
+    "totalreply": 5674,
     "title": "[剧场动画『机动战士高达 SEED FREEDOM』PV公开，24年1月26日上映]",
     "newtitle": "[倒序浏览剧场动画『机动战士高达 SEED FREEDOM』24.01.26上映]",
-    "lastedit": 1708307118,
+    "lastedit": 1708308921,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125694": {
     "totalreply": 134,
@@ -7692,7 +7692,7 @@
     "lastedit": 1708308619,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170764": {
     "totalreply": 955,
@@ -7701,7 +7701,7 @@
     "lastedit": 1708308612,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2168002": {
     "totalreply": 124,
@@ -7713,13 +7713,13 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 11805,
+    "totalreply": 11825,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708308315,
+    "lastedit": 1708308920,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2112844": {
     "totalreply": 544,
@@ -7866,13 +7866,13 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 1687,
+    "totalreply": 1689,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708308316,
+    "lastedit": 1708308921,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171145": {
     "totalreply": 54,
@@ -8727,7 +8727,7 @@
     "lastedit": 1708308619,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171595": {
     "totalreply": 96,
@@ -9117,13 +9117,13 @@
     "update": false
   },
   "2171724": {
-    "totalreply": 256,
+    "totalreply": 257,
     "title": "[春晚竟然发展出春山学]",
     "newtitle": "[春晚竟然发展出春山学]",
-    "lastedit": 1708227300,
+    "lastedit": 1708308918,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2103011": {
     "totalreply": 384,
@@ -9477,13 +9477,13 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1617,
+    "totalreply": 1618,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708308009,
+    "lastedit": 1708308921,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1991734": {
     "totalreply": 161,
@@ -9882,13 +9882,13 @@
     "update": false
   },
   "2171832": {
-    "totalreply": 86,
+    "totalreply": 87,
     "title": "[话说现在小孩子都玩点什么？]",
     "newtitle": "[话说现在小孩子都玩点什么？]",
-    "lastedit": 1708305615,
+    "lastedit": 1708308916,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171620": {
     "totalreply": 99,
@@ -10098,13 +10098,13 @@
     "update": false
   },
   "2172018": {
-    "totalreply": 115,
+    "totalreply": 117,
     "title": "[前几年很火的云南咖啡崩盘了]",
     "newtitle": "[前几年很火的云南咖啡崩盘了]",
-    "lastedit": 1708303512,
+    "lastedit": 1708308924,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172027": {
     "totalreply": 161,
@@ -10239,7 +10239,7 @@
     "lastedit": 1708308619,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172005": {
     "totalreply": 77,
@@ -10413,13 +10413,13 @@
     "update": false
   },
   "2172022": {
-    "totalreply": 82,
+    "totalreply": 83,
     "title": "[ETC这事最体现基层的办事逻辑了]",
     "newtitle": "[ETC这事最体现基层的办事逻辑了]",
-    "lastedit": 1708308012,
+    "lastedit": 1708308920,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2048174": {
     "totalreply": 358,
@@ -10467,13 +10467,13 @@
     "update": false
   },
   "2172057": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "[日经杂志对许多ip的粉丝群性别和年龄结果的统计]",
     "newtitle": "[日经杂志对许多ip的粉丝群性别和年龄结果的统计]",
-    "lastedit": 1708308319,
+    "lastedit": 1708308927,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172071": {
     "totalreply": 82,
@@ -10557,10 +10557,10 @@
     "update": false
   },
   "2172001": {
-    "totalreply": 112,
+    "totalreply": 114,
     "title": "[看了波兰那贴，偶然发现美国的文盲率这么高了]",
     "newtitle": "[看了波兰那贴，偶然发现美国的文盲率这么高了]",
-    "lastedit": 1708308619,
+    "lastedit": 1708308924,
     "category": "外野",
     "active": true,
     "update": true
@@ -10683,10 +10683,10 @@
     "update": false
   },
   "2172159": {
-    "totalreply": 186,
+    "totalreply": 189,
     "title": "[一次短暂的相亲]",
     "newtitle": "[一次短暂的相亲]",
-    "lastedit": 1708308623,
+    "lastedit": 1708308927,
     "category": "外野",
     "active": true,
     "update": true
@@ -10698,13 +10698,13 @@
     "lastedit": 1708308616,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172160": {
-    "totalreply": 104,
+    "totalreply": 106,
     "title": "[80.23亿！2024春节档票房刷新中国影史纪录]",
     "newtitle": "[80.23亿！2024春节档票房刷新中国影史纪录]",
-    "lastedit": 1708308620,
+    "lastedit": 1708308924,
     "category": "外野",
     "active": true,
     "update": true
@@ -10719,10 +10719,10 @@
     "update": false
   },
   "2172169": {
-    "totalreply": 147,
+    "totalreply": 148,
     "title": "[发现如今女性成人玩具销量相比十年前爆炸性增长]",
     "newtitle": "[发现如今女性成人玩具销量相比十年前爆炸性增长]",
-    "lastedit": 1708308623,
+    "lastedit": 1708308924,
     "category": "外野",
     "active": true,
     "update": true
@@ -10746,13 +10746,13 @@
     "update": false
   },
   "2172155": {
-    "totalreply": 78,
+    "totalreply": 79,
     "title": "[华语乐坛唯一真神在instagram装逼被TaylorSwift粉丝打脸]",
     "newtitle": "[华语乐坛唯一真神在instagram装逼被TaylorSwift粉丝打脸]",
-    "lastedit": 1708307713,
+    "lastedit": 1708308922,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172032": {
     "totalreply": 52,
@@ -10773,13 +10773,13 @@
     "update": false
   },
   "2171995": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[求推荐车，今年买方程豹5是否有49年入国军之嫌]",
     "newtitle": "[求推荐SUV，今年买方程豹5是否有49年入国军之嫌]",
-    "lastedit": 1708304715,
+    "lastedit": 1708308927,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172198": {
     "totalreply": 83,
@@ -10824,7 +10824,7 @@
     "lastedit": 1708308623,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172164": {
     "totalreply": 55,
@@ -10908,10 +10908,10 @@
     "update": false
   },
   "2172224": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[对公账户转给我，再让我转给他是什么套路？]",
     "newtitle": "[对公账户转给我，再让我转给他是什么套路？]",
-    "lastedit": 1708308623,
+    "lastedit": 1708308924,
     "category": "外野",
     "active": true,
     "update": true
@@ -10935,13 +10935,13 @@
     "update": false
   },
   "2172240": {
-    "totalreply": 137,
+    "totalreply": 139,
     "title": "[10岁男孩被窜出的烟花炸伤身亡]",
     "newtitle": "[10岁男孩被窜出的烟花炸伤身亡]",
-    "lastedit": 1708308319,
+    "lastedit": 1708308925,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172150": {
     "totalreply": 43,
@@ -10962,10 +10962,10 @@
     "update": false
   },
   "2172245": {
-    "totalreply": 99,
+    "totalreply": 101,
     "title": "[房型求点评]",
     "newtitle": "[房型求点评]",
-    "lastedit": 1708308623,
+    "lastedit": 1708308921,
     "category": "外野",
     "active": true,
     "update": true
@@ -11058,7 +11058,7 @@
     "lastedit": 1708308623,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172089": {
     "totalreply": 46,
@@ -11142,13 +11142,13 @@
     "update": false
   },
   "2172263": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "待更新",
     "newtitle": "[工作关系接触的coser比较多，说说整体印象和见闻]",
-    "lastedit": 1708308319,
+    "lastedit": 1708308925,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2161342": {
     "totalreply": 214,
@@ -11169,19 +11169,28 @@
     "update": false
   },
   "2172216": {
-    "totalreply": 45,
+    "totalreply": 48,
     "title": "待更新",
     "newtitle": "[喷了，列强无不怀念我大清]",
-    "lastedit": 1708308319,
+    "lastedit": 1708308927,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172242": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "待更新",
     "newtitle": "[黄仁勋：学计算机的时代过去了，下一个黄金赛道是生命科学]",
-    "lastedit": 1708308623,
+    "lastedit": 1708308927,
+    "category": "外野",
+    "active": true,
+    "update": true
+  },
+  "2172178": {
+    "totalreply": 43,
+    "title": "待更新",
+    "newtitle": "[今年还有四次调休]",
+    "lastedit": 1708308928,
     "category": "外野",
     "active": true,
     "update": true

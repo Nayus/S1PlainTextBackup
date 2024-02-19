@@ -227,3 +227,30 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 这种设定不会催生什么校园霸凌或者潜规则性骚扰之类的事件吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">二次元的事儿你少管
 
+
+*****
+
+####  Srchy  
+##### 1100#       发表于 2024-2-19 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上海舅舅过时ppt结果这么保真的吗
+
+*****
+
+####  我cp结婚了  
+##### 1101#       发表于 2024-2-19 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63995617&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-19 10:01</a>
+
+二次元的事儿你少管</blockquote>
+但是你@的特点不就是部分的真实性吗
+
+*****
+
+####  hypnossz86  
+##### 1102#       发表于 2024-2-19 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63995729&amp;ptid=2130897" target="_blank">我cp结婚了 发表于 2024-2-19 10:10</a>
+但是你@的特点不就是部分的真实性吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如wug......真实性
+

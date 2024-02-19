@@ -194,3 +194,69 @@
 
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cybernetics31  
+##### 3881#       发表于 2024-2-19 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这下歌姬是半点都不剩了啊
+所以op那个漂浮妹子是谁啊
+
+*****
+
+####  RE㐅ia  
+##### 3882#       发表于 2024-2-19 23:39
+
+<blockquote>cybernetics31 发表于 2024-2-19 23:37
+好歹融出个新面孔也行啊这下歌姬是半点都不剩了啊
+
+所以op那个漂浮妹子是谁啊 ...</blockquote>
+听群友说头发末端是黄色的，但我当时没看见（
+
+*****
+
+####  novyMS  
+##### 3883#       发表于 2024-2-19 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64004302&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-02-19 23:39:36</a>
+听群友说头发末端是黄色的，但我当时没看见（</blockquote>那个是衣领吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星降る森  
+##### 3884#       发表于 2024-2-19 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">好傻逼啊，反派头子是想远程初始化顺便重新注册，然后歌姬拒绝了再启动的要求，最后把身体让给noir，到这里都算能理解，不过没想到换机还能换皮的，虽然确实留了发尖一撮黄毛吧，不过现在感觉是真的死透了，顶多决战灵魂出来说几句话，本来以为最后米斯提再把身体让回去，但现在看很难了
+
+*****
+
+####  secretgarnet  
+##### 3885#       发表于 2024-2-19 23:43
+
+啊不是吧，真的半点都不剩了吗，老鸭你在写瘠薄
+
+*****
+
+####  bandage_n2_ki  
+##### 3886#       发表于 2024-2-19 23:44
+
+发尾确实是黄色的<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 3887#       发表于 2024-2-19 23:45
+
+<img src="https://img.saraba1st.com/forum/202402/19/234419lu57fqacwzd1pksp.png" referrerpolicy="no-referrer">
+
+<strong></strong> (39.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 23:44 上传
+
+头发还有点的
+

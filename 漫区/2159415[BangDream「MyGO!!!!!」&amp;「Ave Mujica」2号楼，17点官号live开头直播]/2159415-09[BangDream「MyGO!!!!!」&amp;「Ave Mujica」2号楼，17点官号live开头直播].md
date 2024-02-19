@@ -282,3 +282,11 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 这种表演性质比较足的，热水就拿着一堆七深的卡，结月拿着美依子的卡。只能评价为基本知道规则就很了不起 ...</blockquote>
 逆转忠实粉丝吗，那我要代一口侦探睦睦，以前都是侦探初华的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 13236#       发表于 2024-2-19 23:40
+
+玄铁绚的母女剧情太唐突了好吧，感觉迟早要变成爱音吃母女丼。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

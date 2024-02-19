@@ -849,3 +849,15 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是哪来的舅舅说人设了
 
+
+*****
+
+####  花开安菲路  
+##### 1159#       发表于 2024-2-19 15:03
+
+ 本帖最后由 花开安菲路 于 2024-2-19 15:05 编辑 
+
+舅舅爆料的画师，就是剃须，然后捡到女高中生的插画师<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+https://bgm.tv/person/21431/works
+bgm上的参与的作品，属于还行一般萌系，肯定不如sc了。
+

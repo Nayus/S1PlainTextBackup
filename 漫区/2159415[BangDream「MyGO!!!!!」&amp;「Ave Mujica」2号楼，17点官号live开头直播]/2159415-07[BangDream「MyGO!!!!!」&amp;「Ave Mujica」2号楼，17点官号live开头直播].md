@@ -27238,3 +27238,40 @@ soyo 灯灯你们两个果然做了什么吧，多提提元和二年的事啊
 灯素一直卖很大，但是看起来太像母女了</blockquote>
 家长说并感
 
+
+*****
+
+####  tuichu0425  
+##### 13203#       发表于 2024-2-19 16:19
+
+<img src="https://img.saraba1st.com/forum/202402/19/161852buqqeq0q7s2lquqe.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-1s6hK1wT3cSki-sg.jpg</strong> (68.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 16:18 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/161858yuj4u34jk4g3zmsi.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-kjfhK1xT3cSk0-rq.jpg</strong> (73.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 16:18 上传
+
+这也太惨烈了
+
+别用镂空了anon酱<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木谷高明  
+##### 13204#       发表于 2024-2-19 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64000059&amp;ptid=2159415" target="_blank">tuichu0425 发表于 2024-2-19 16:19</a>
+这也太惨烈了
+
+别用镂空了anon酱</blockquote>
+还有猫猫垫底，问题不大
+

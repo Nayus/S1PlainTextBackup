@@ -841,3 +841,11 @@ ins 謌
 
 不过讲道理，欧美女歌手像她这样长红的也没几个，还是会自己写歌的那种，唯一吃亏的就是大白嗓了。至于人品，欧美圈有主打人品的嘛。
 
+
+*****
+
+####  老陆lg8  
+##### 89#       发表于 2024-2-19 16:20
+
+大木不一直是隐性香蕉吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2022,7 +2022,7 @@
     "lastedit": 1708341018,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1726277": {
     "totalreply": 947,
@@ -3543,7 +3543,7 @@
     "lastedit": 1708341018,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1569854": {
     "totalreply": 712,
@@ -5085,13 +5085,13 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 1161,
+    "totalreply": 1162,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》已开启限量付费测招募]",
-    "lastedit": 1708340716,
+    "lastedit": 1708341310,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1025935": {
     "totalreply": 2151,
@@ -5607,13 +5607,13 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 6326,
+    "totalreply": 6327,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1708340415,
+    "lastedit": 1708341310,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125110": {
     "totalreply": 2937,
@@ -6255,13 +6255,13 @@
     "update": false
   },
   "2150634": {
-    "totalreply": 3016,
+    "totalreply": 3018,
     "title": "[《Splatoon 3／斯普拉遁3》专楼（9月1日新赛季！鱼浆帮amiibo）]",
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（22日DLC第2弹：秩序篇）]",
-    "lastedit": 1708340711,
+    "lastedit": 1708341318,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2130296": {
     "totalreply": 486,
@@ -6525,13 +6525,13 @@
     "update": false
   },
   "2156895": {
-    "totalreply": 5239,
+    "totalreply": 5241,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，Who's Next？Timdog回旋辣]",
-    "lastedit": 1708329320,
+    "lastedit": 1708341319,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2157110": {
     "totalreply": 801,
@@ -6561,13 +6561,13 @@
     "update": false
   },
   "2082084": {
-    "totalreply": 2064,
+    "totalreply": 2065,
     "title": "[如龙8｜Infinite Wealth，2024年1.26登录ps／xbox／pc，支持中配！]",
     "newtitle": "[如龙8｜Infinite Wealth，2024年1.26登录ps／xbox／pc，支持中配！（剧透请反白）]",
-    "lastedit": 1708337119,
+    "lastedit": 1708341318,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1645555": {
     "totalreply": 3299,
@@ -6756,7 +6756,7 @@
     "lastedit": 1708341018,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2161228": {
     "totalreply": 10429,
@@ -7011,13 +7011,13 @@
     "update": false
   },
   "2164203": {
-    "totalreply": 1192,
+    "totalreply": 1193,
     "title": "[英雄传说 界之轨迹-再见 塞姆利亚]",
     "newtitle": "[《英雄传说 界之轨迹 - 再见 塞姆利亚》-共和国最终章开幕]",
-    "lastedit": 1708340720,
+    "lastedit": 1708341318,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1047621": {
     "totalreply": 1011,
@@ -7098,7 +7098,7 @@
     "lastedit": 1708341018,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2166144": {
     "totalreply": 489,
@@ -7143,7 +7143,7 @@
     "lastedit": 1708341018,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2164773": {
     "totalreply": 133,
@@ -7233,7 +7233,7 @@
     "lastedit": 1708341015,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2058325": {
     "totalreply": 429,
@@ -7596,10 +7596,10 @@
     "update": false
   },
   "2170592": {
-    "totalreply": 10586,
+    "totalreply": 10591,
     "title": "[【Dota2】龙年Dota千斤顶楼]",
     "newtitle": "[【Dota2】龙年Dota讨论楼]",
-    "lastedit": 1708341013,
+    "lastedit": 1708341310,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -7641,10 +7641,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 3216,
+    "totalreply": 3218,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708341015,
+    "lastedit": 1708341318,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7686,10 +7686,10 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 381,
+    "totalreply": 383,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜新年啦]",
-    "lastedit": 1708341011,
+    "lastedit": 1708341314,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 12358,
+    "totalreply": 12367,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708341014,
+    "lastedit": 1708341314,
     "category": "漫区",
     "active": true,
     "update": true
@@ -9477,13 +9477,13 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1913,
+    "totalreply": 1922,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708340720,
+    "lastedit": 1708341319,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1991734": {
     "totalreply": 161,
@@ -10536,7 +10536,7 @@
     "lastedit": 1708341010,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172102": {
     "totalreply": 53,
@@ -10842,7 +10842,7 @@
     "lastedit": 1708341018,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172214": {
     "totalreply": 50,
@@ -11004,7 +11004,7 @@
     "lastedit": 1708341018,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172197": {
     "totalreply": 94,
@@ -11025,13 +11025,13 @@
     "update": false
   },
   "2172217": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "待更新",
     "newtitle": "[非珠地区彩礼三万八泥潭什么水平？]",
-    "lastedit": 1708328111,
+    "lastedit": 1708341310,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172208": {
     "totalreply": 79,
@@ -11175,7 +11175,7 @@
     "lastedit": 1708341021,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172242": {
     "totalreply": 54,
@@ -11313,13 +11313,13 @@
     "update": false
   },
   "2172177": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "待更新",
     "newtitle": "[玩博德之门3感觉太花时间很有负担怎么办]",
-    "lastedit": 1708340721,
+    "lastedit": 1708341318,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172260": {
     "totalreply": 44,
@@ -11340,10 +11340,10 @@
     "update": false
   },
   "2172344": {
-    "totalreply": 112,
+    "totalreply": 113,
     "title": "待更新",
     "newtitle": "[五菱：我是合资车！听说比亚迪要干我]",
-    "lastedit": 1708341018,
+    "lastedit": 1708341318,
     "category": "外野",
     "active": true,
     "update": true
@@ -11382,16 +11382,16 @@
     "lastedit": 1708341021,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172364": {
-    "totalreply": 127,
+    "totalreply": 128,
     "title": "待更新",
     "newtitle": "[因为一个结和媳妇闹了两次矛盾，想听听大家的看法]",
-    "lastedit": 1708340721,
+    "lastedit": 1708341317,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172336": {
     "totalreply": 49,
@@ -11403,10 +11403,10 @@
     "update": false
   },
   "2172366": {
-    "totalreply": 231,
+    "totalreply": 235,
     "title": "待更新",
     "newtitle": "[网传与16岁男生有不当关系的中学女教师已被停职]",
-    "lastedit": 1708341021,
+    "lastedit": 1708341318,
     "category": "外野",
     "active": true,
     "update": true
@@ -11436,13 +11436,13 @@
     "lastedit": 1708341019,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172356": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "待更新",
     "newtitle": "[有哪些游戏用风灵月影小改一下，能明显增加游戏体验？]",
-    "lastedit": 1708341018,
+    "lastedit": 1708341318,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -11499,16 +11499,16 @@
     "lastedit": 1708341018,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172255": {
-    "totalreply": 43,
+    "totalreply": 46,
     "title": "待更新",
     "newtitle": "[【剧透注意】最终幻想7重生剧透／偷跑楼]",
-    "lastedit": 1708340415,
+    "lastedit": 1708341315,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1857186": {
     "totalreply": 171,

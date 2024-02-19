@@ -27016,3 +27016,34 @@ soyo这个怨妇脸莫名的很美
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kangkangsama  
+##### 13179#       发表于 2024-2-19 13:36
+
+<img src="https://img.saraba1st.com/forum/202402/19/133620nioroaooogboor7e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1830.jpeg</strong> (153.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 13:36 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/133621b1u1m1mjbszqharn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1829.jpeg</strong> (314.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 13:36 上传
+
+*****
+
+####  屑猫猫  
+##### 13180#       发表于 2024-2-19 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这猫猫怎么看着比ako还要成熟了，她还只是个初中生啊
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

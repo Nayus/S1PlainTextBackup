@@ -15382,3 +15382,11 @@ dlc要是难到打不下去再来工坊爽金工。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Teiume  
+##### 3009#       发表于 2024-2-19 17:27
+
+鹦鹉螺配置好强，没用过525但贴牌颜色第一反应是装修用的冲击钻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

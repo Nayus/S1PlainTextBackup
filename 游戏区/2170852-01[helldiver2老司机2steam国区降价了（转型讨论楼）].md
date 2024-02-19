@@ -7060,3 +7060,11 @@ reddit今天已经忍不住纷纷开骂了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  FLZB  
+##### 737#       发表于 2024-2-19 20:12
+
+做日常开了公共房，刚落地三个路人就跟着下来了，这匹配到底坏没坏啊？不会是故意限制了部分区域的匹配吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -747,3 +747,11 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1149#       发表于 2024-2-19 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ba那个是灯云ba随口说了句像，别当真
+

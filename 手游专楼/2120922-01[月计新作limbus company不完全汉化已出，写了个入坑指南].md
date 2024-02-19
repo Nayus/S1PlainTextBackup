@@ -263,3 +263,55 @@ syl 之前猜会给浮
 
 金锁的三技能，就看是拼点失败还是反击了，会不会吃到伤害还挺关键的。
 
+
+*****
+
+####  Jamaisvu  
+##### 552#       发表于 2024-2-19 18:00
+
+ 本帖最后由 Jamaisvu 于 2024-2-19 18:03 编辑 
+
+新人格技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202402/19/180324sr5fyafrmpjhfjft.jpg" referrerpolicy="no-referrer">
+
+<strong>C7708ECA077C1246683FE784A5CC446E.jpg</strong> (442.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/180232rknnif1fktck0mlm.jpg" referrerpolicy="no-referrer">
+
+<strong>1BCEAEDC963AAEADF95E4FA60F3F08FE.jpg</strong> (373.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/180233zd66w02dd944s902.jpg" referrerpolicy="no-referrer">
+
+<strong>389AAD9C2B6BFCF2400447AC7BF0F119.jpg</strong> (363.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/180234zojua6jorjj6rn7r.jpg" referrerpolicy="no-referrer">
+
+<strong>F2F32516E29DDC4ED288E5C84BD735B7.jpg</strong> (337.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 18:02 上传
+
+金锁的技能被动都是图书馆经典款：寒芒出鞘、穿刺剑法、舍吾皮肉/断汝筋骨、噬主妖剑、故土剑术。
+
+被动看着还挺复杂的，算是阵营核心。三技能拼点失败后愤怒替换为傲慢，三傲慢其实挺适合搭配船玛。
+
+不过船玛我扔进流血队了，这技能组貌似更适合呼吸队，而且剑箱、剑唐也是纯呼吸...
+
+剑浮的技能算是特殊流血，有红梅的敌人被暴击时会转化成流血并增伤，感觉必须进流血呼吸双体系才好用...
+
+剑唐纯呼吸，黑虫纯流血，进体系队当替补或者被动插件都可以。
+

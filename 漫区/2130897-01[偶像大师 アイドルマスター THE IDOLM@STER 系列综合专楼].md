@@ -319,3 +319,19 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">代孙，想也没想到你会这么low啊，“校园偶像闹麻了，我们imas可是专业的”不是用来黑拉拉的话术吗，怎么企划高层先绷不住了
 
+
+*****
+
+####  koodooliz  
+##### 1108#       发表于 2024-2-19 10:36
+
+波老师想抄现在（？）最潮最in的设定呗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+可是谁知道你企划实现时会不会过时欸
+
+*****
+
+####  hummysiren  
+##### 1109#       发表于 2024-2-19 10:38
+
+不是，这设定不就是es吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

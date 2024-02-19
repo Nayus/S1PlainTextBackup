@@ -942,7 +942,7 @@
     "lastedit": 1708344918,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1976031": {
     "totalreply": 7718,
@@ -1401,7 +1401,7 @@
     "lastedit": 1708344914,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2045115": {
     "totalreply": 919,
@@ -1827,13 +1827,13 @@
     "update": false
   },
   "1957309": {
-    "totalreply": 2279,
+    "totalreply": 2280,
     "title": "[星期一的满杯讨论楼]",
     "newtitle": "[星期一的满杯讨论楼]",
-    "lastedit": 1708341917,
+    "lastedit": 1708345214,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1904473": {
     "totalreply": 3776,
@@ -3168,13 +3168,13 @@
     "update": false
   },
   "2008011": {
-    "totalreply": 5725,
+    "totalreply": 5726,
     "title": "[真女神转生五，11.11中文同步发售；4.18销量破100万！]",
     "newtitle": "[真女神转生五，11.11中文同步发售；4.18销量破100万！]",
-    "lastedit": 1708344145,
+    "lastedit": 1708345210,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2102194": {
     "totalreply": 861,
@@ -5607,13 +5607,13 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 6330,
+    "totalreply": 6331,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1708344138,
+    "lastedit": 1708345212,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125110": {
     "totalreply": 2937,
@@ -6921,13 +6921,13 @@
     "update": false
   },
   "2124265": {
-    "totalreply": 952,
+    "totalreply": 953,
     "title": "[憧憬成为魔法少女 TV动画化 2024年]",
     "newtitle": "[憧憬成为魔法少女 TV动画化 2024年1月]",
-    "lastedit": 1708344148,
+    "lastedit": 1708345212,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1221128": {
     "totalreply": 4635,
@@ -6957,13 +6957,13 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 2773,
+    "totalreply": 2774,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
-    "lastedit": 1708344146,
+    "lastedit": 1708345215,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2092342": {
     "totalreply": 662,
@@ -7092,10 +7092,10 @@
     "update": false
   },
   "2166145": {
-    "totalreply": 1229,
+    "totalreply": 1230,
     "title": "[任天堂病 栋十一号楼，新年新机新剑指！]",
     "newtitle": "[任天堂病 栋十一号楼，新年新机新剑指！／小指春直]",
-    "lastedit": 1708344913,
+    "lastedit": 1708345217,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -7137,13 +7137,13 @@
     "update": false
   },
   "2166320": {
-    "totalreply": 1830,
+    "totalreply": 1831,
     "title": "[俄乌专楼-1月版]",
     "newtitle": "[俄乌专楼-1月版]",
-    "lastedit": 1708344145,
+    "lastedit": 1708345212,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2164773": {
     "totalreply": 133,
@@ -7344,13 +7344,13 @@
     "update": false
   },
   "2167989": {
-    "totalreply": 5743,
+    "totalreply": 5745,
     "title": "[剧场动画『机动战士高达 SEED FREEDOM』PV公开，24年1月26日上映]",
     "newtitle": "[倒序浏览剧场动画『机动战士高达 SEED FREEDOM』24.01.26上映]",
-    "lastedit": 1708344146,
+    "lastedit": 1708345217,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125694": {
     "totalreply": 134,
@@ -7596,10 +7596,10 @@
     "update": false
   },
   "2170592": {
-    "totalreply": 10604,
+    "totalreply": 10605,
     "title": "[【Dota2】龙年Dota千斤顶楼]",
     "newtitle": "[【Dota2】龙年Dota讨论楼]",
-    "lastedit": 1708344912,
+    "lastedit": 1708345212,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -7647,7 +7647,7 @@
     "lastedit": 1708344910,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -7692,7 +7692,7 @@
     "lastedit": 1708344914,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170764": {
     "totalreply": 1068,
@@ -7701,7 +7701,7 @@
     "lastedit": 1708344918,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2168002": {
     "totalreply": 126,
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 12400,
+    "totalreply": 12402,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708344918,
+    "lastedit": 1708345210,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7767,13 +7767,13 @@
     "update": false
   },
   "2170954": {
-    "totalreply": 922,
+    "totalreply": 923,
     "title": "[【明日方舟】国服14.5号楼 2.1怀黍离 2.3生息演算]",
     "newtitle": "[【明日方舟】国服14.5号楼 2.22 引航者试炼04#]",
-    "lastedit": 1708332017,
+    "lastedit": 1708345214,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171008": {
     "totalreply": 68,
@@ -8727,7 +8727,7 @@
     "lastedit": 1708344918,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171595": {
     "totalreply": 96,
@@ -9477,10 +9477,10 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1965,
+    "totalreply": 1970,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708344915,
+    "lastedit": 1708345215,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
@@ -10662,7 +10662,7 @@
     "lastedit": 1708344912,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172117": {
     "totalreply": 67,
@@ -10836,10 +10836,10 @@
     "update": false
   },
   "2172186": {
-    "totalreply": 84,
+    "totalreply": 85,
     "title": "[最近玩了几款武侠游戏  被古龙爆杀了]",
     "newtitle": "[最近玩了几款武侠游戏  被古龙爆杀了]",
-    "lastedit": 1708344910,
+    "lastedit": 1708345215,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -11202,7 +11202,7 @@
     "lastedit": 1708344915,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170660": {
     "totalreply": 101,
@@ -11256,16 +11256,16 @@
     "lastedit": 1708344918,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172305": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[比亚迪秦 PLUS 荣耀版正式上市，售价 7.98 万元起。]",
     "newtitle": "[比亚迪秦 PLUS 荣耀版正式上市，售价 7.98 万元起。]",
-    "lastedit": 1708339814,
+    "lastedit": 1708345215,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172312": {
     "totalreply": 81,
@@ -11382,7 +11382,7 @@
     "lastedit": 1708344918,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172364": {
     "totalreply": 135,
@@ -11403,13 +11403,13 @@
     "update": false
   },
   "2172366": {
-    "totalreply": 271,
+    "totalreply": 273,
     "title": "[网传与16岁男生有不当关系的中学女教师已被停职]",
     "newtitle": "[网传与16岁男生有不当关系的中学女教师已被停职]",
-    "lastedit": 1708344619,
+    "lastedit": 1708345217,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2122591": {
     "totalreply": 196,
@@ -11493,10 +11493,10 @@
     "update": false
   },
   "2172381": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[女星刘雨欣自曝美国家中被偷空，损失几千万]",
     "newtitle": "[女星刘雨欣自曝美国家中被偷空，损失几千万]",
-    "lastedit": 1708344918,
+    "lastedit": 1708345217,
     "category": "外野",
     "active": true,
     "update": true

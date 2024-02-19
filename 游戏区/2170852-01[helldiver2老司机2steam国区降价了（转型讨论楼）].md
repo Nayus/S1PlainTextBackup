@@ -7134,3 +7134,16 @@ reddit今天已经忍不住纷纷开骂了
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Launce  
+##### 744#       发表于 2024-2-19 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003510&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-19 22:01</a>
+
+这咋解决啊
+
+—— 来自 Xiaomi 22081212C, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+无解，非房主退了进，房主只能憋着
+

@@ -6854,3 +6854,15 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 今天的日常蹂躏者是什么东西，没有图鉴真的玩牛魔</blockquote>
 就是能连发4个火箭的那个玩意儿，还有另一种机枪版也算
 
+
+*****
+
+####  looptube  
+##### 717#       发表于 2024-2-19 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997157&amp;ptid=2170852" target="_blank">passerjustby 发表于 2024-2-19 12:06</a>
+就是能连发4个火箭的那个玩意儿，还有另一种机枪版也算</blockquote>
+顺便问下，对着怪按q，有时候会出现名字，有时候不会，到底是什么原理？
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

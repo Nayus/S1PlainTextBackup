@@ -15417,3 +15417,11 @@ dlc要是难到打不下去再来工坊爽金工。
 
 如果可以选的话，我想要冰壶+仓鼠球！
 
+
+*****
+
+####  Ryuuseigun  
+##### 3013#       发表于 2024-2-19 18:38
+
+下次祭典居然给13个装备<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/2de6012b83eca42edff4f469cbd5335d/CMP_20240219183710063.jpg" referrerpolicy="no-referrer">
+

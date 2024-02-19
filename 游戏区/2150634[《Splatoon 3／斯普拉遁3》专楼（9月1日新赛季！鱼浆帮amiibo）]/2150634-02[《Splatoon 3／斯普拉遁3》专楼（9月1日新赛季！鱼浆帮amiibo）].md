@@ -15372,3 +15372,13 @@ dlc要是难到打不下去再来工坊爽金工。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先把bigrun吐出来吧
 
+
+*****
+
+####  Dedalus  
+##### 3008#       发表于 2024-2-19 17:21
+
+这鹦鹉螺可以啊，虽然不太喜欢砸地但全模式超过无印了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

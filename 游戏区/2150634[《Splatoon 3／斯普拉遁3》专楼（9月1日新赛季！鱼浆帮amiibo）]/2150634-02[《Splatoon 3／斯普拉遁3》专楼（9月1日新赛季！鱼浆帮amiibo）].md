@@ -15297,3 +15297,13 @@ dlc要是难到打不下去再来工坊爽金工。
 
 还要我carry全队，都是日本人你们怎么就没有对面强，要知耻啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 2999#       发表于 2024-2-19 10:06
+
+居然没剃光头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7068,3 +7068,16 @@ reddit今天已经忍不住纷纷开骂了
 
 做日常开了公共房，刚落地三个路人就跟着下来了，这匹配到底坏没坏啊？不会是故意限制了部分区域的匹配吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 738#       发表于 2024-2-19 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64002313&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-19 19:39</a>
+
+现在还能匹到人吗？在线数据都是0是啥原因？
+
+—— 来自 Xiaomi 22081212C, Android 14上的 S1Next-鹅版 v2 ...</blockquote>
+官方说在线数据很耗服务器资源，暂时关闭了
+

@@ -1572,3 +1572,11 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 才看了三集就已经有想要跳过变身后所有战斗（？）内容的冲动了，还不如百分百学甜梦猫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 1049#       发表于 2024-2-19 14:24
+
+男主讲话也太夹了 真不如拓海一根<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

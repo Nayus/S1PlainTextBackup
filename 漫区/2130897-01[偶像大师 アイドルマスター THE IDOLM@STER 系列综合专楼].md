@@ -823,3 +823,21 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 人设多半不如莲了，给闪提鞋都不配
 <img src="https://p.sda1.dev/15/154ca3ffd3d81d99b9f4e998ea2fff82/IMG_CMP_238461324.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MELTMOON  
+##### 1156#       发表于 2024-2-19 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63998598&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-2-19 14:19</a>
+
+人设多半不如莲了，给闪提鞋都不配</blockquote>
+那暴死该，能期待的只有中之人的新鲜肉体了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 1157#       发表于 2024-2-19 14:24
+
+看了下画师发表的图，感觉不太好说
+

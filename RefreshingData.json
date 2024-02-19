@@ -779,7 +779,7 @@
     "newtitle": "[『电锯人 第二部』Jump+ 2022年7月12日晚11点连载开启！]",
     "lastedit": 1708066740,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1998862": {
@@ -1032,7 +1032,7 @@
     "lastedit": 1708325718,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1988290": {
     "totalreply": 16260,
@@ -1986,7 +1986,7 @@
     "lastedit": 1708325718,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2062303": {
     "totalreply": 1111,
@@ -4938,7 +4938,7 @@
     "lastedit": 1708325718,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1795939": {
     "totalreply": 1006,
@@ -5814,13 +5814,13 @@
     "update": false
   },
   "1989188": {
-    "totalreply": 6783,
+    "totalreply": 6784,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[新机病栋，谁是大的？]",
-    "lastedit": 1708320911,
+    "lastedit": 1708326012,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1988297": {
     "totalreply": 1177,
@@ -6552,13 +6552,13 @@
     "update": false
   },
   "2089646": {
-    "totalreply": 1905,
+    "totalreply": 1906,
     "title": "[药屋少女的呢喃 TV动画化 2023年10月]",
     "newtitle": "[药屋少女的呢喃 TV动画化 2023年10月 剧透请反白]",
-    "lastedit": 1708323314,
+    "lastedit": 1708326015,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2082084": {
     "totalreply": 2062,
@@ -6963,7 +6963,7 @@
     "lastedit": 1708325710,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2092342": {
     "totalreply": 662,
@@ -7227,13 +7227,13 @@
     "update": false
   },
   "2148913": {
-    "totalreply": 196,
+    "totalreply": 197,
     "title": "[「轮回七次的恶役千金」 动画化 2024年1月播放]",
     "newtitle": "[「轮回七次的恶役千金」 动画化 2024年1月播放]",
-    "lastedit": 1708317318,
+    "lastedit": 1708326013,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2058325": {
     "totalreply": 429,
@@ -7350,7 +7350,7 @@
     "lastedit": 1708325718,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2125694": {
     "totalreply": 134,
@@ -7620,7 +7620,7 @@
     "lastedit": 1708325718,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170519": {
     "totalreply": 537,
@@ -7641,10 +7641,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 3098,
+    "totalreply": 3099,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708325718,
+    "lastedit": 1708326012,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7686,10 +7686,10 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 331,
+    "totalreply": 332,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜新年啦]",
-    "lastedit": 1708325718,
+    "lastedit": 1708326015,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7719,7 +7719,7 @@
     "lastedit": 1708325718,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2112844": {
     "totalreply": 544,
@@ -7866,13 +7866,13 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 1725,
+    "totalreply": 1726,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708324810,
+    "lastedit": 1708326014,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171145": {
     "totalreply": 54,
@@ -9303,7 +9303,7 @@
     "lastedit": 1708325718,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171812": {
     "totalreply": 64,
@@ -9477,10 +9477,10 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1765,
+    "totalreply": 1768,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708325718,
+    "lastedit": 1708326012,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
@@ -9897,7 +9897,7 @@
     "lastedit": 1708325710,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171871": {
     "totalreply": 42,
@@ -10734,7 +10734,7 @@
     "lastedit": 1708325719,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172154": {
     "totalreply": 93,
@@ -10941,7 +10941,7 @@
     "lastedit": 1708325719,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172150": {
     "totalreply": 43,
@@ -10962,10 +10962,10 @@
     "update": false
   },
   "2172245": {
-    "totalreply": 117,
+    "totalreply": 119,
     "title": "[房型求点评]",
     "newtitle": "[房型求点评]",
-    "lastedit": 1708325720,
+    "lastedit": 1708326012,
     "category": "外野",
     "active": true,
     "update": true
@@ -11016,13 +11016,13 @@
     "update": false
   },
   "2172227": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "待更新",
     "newtitle": "[群里有个有逼数的逼人，有点烦]",
-    "lastedit": 1708263620,
+    "lastedit": 1708326009,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172217": {
     "totalreply": 66,
@@ -11040,7 +11040,7 @@
     "lastedit": 1708325720,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2107078": {
     "totalreply": 166,
@@ -11148,7 +11148,7 @@
     "lastedit": 1708325719,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2161342": {
     "totalreply": 214,
@@ -11196,22 +11196,22 @@
     "update": false
   },
   "2172281": {
-    "totalreply": 102,
+    "totalreply": 104,
     "title": "待更新",
     "newtitle": "[今晚儿子跟人打架，我把自己解放了]",
-    "lastedit": 1708325718,
+    "lastedit": 1708326012,
     "category": "外野",
     "active": true,
     "update": true
   },
   "2170660": {
-    "totalreply": 93,
+    "totalreply": 94,
     "title": "待更新",
     "newtitle": "[桐岛聪生前热舞视频放出]",
-    "lastedit": 1708325417,
+    "lastedit": 1708326010,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2169965": {
     "totalreply": 120,
@@ -11250,10 +11250,10 @@
     "update": false
   },
   "2172311": {
-    "totalreply": 61,
+    "totalreply": 63,
     "title": "待更新",
     "newtitle": "[现在开始推伊朗旅游了？]",
-    "lastedit": 1708325720,
+    "lastedit": 1708326012,
     "category": "外野",
     "active": true,
     "update": true
@@ -11268,13 +11268,13 @@
     "update": false
   },
   "2172312": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "待更新",
     "newtitle": "[男士洗面奶是智商税吗]",
-    "lastedit": 1708323921,
+    "lastedit": 1708326015,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172301": {
     "totalreply": 57,
@@ -11286,13 +11286,13 @@
     "update": false
   },
   "2172297": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "待更新",
     "newtitle": "[Yub前CEO之子，加州大学伯克利分校19岁的儿子死于药物过量]",
-    "lastedit": 1708325121,
+    "lastedit": 1708326015,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172137": {
     "totalreply": 43,
@@ -11319,7 +11319,7 @@
     "lastedit": 1708325719,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172260": {
     "totalreply": 44,
@@ -11346,13 +11346,22 @@
     "lastedit": 1708325715,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2124528": {
     "totalreply": 71,
     "title": "待更新",
     "newtitle": "[邻座的艾琳同学偶尔会用俄语悄悄撒娇 TV动画化]",
     "lastedit": 1708325721,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2172202": {
+    "totalreply": 41,
+    "title": "待更新",
+    "newtitle": "[国产原创动画《厨出凤城》公布粤语版预告PV]",
+    "lastedit": 1708326016,
     "category": "漫区",
     "active": true,
     "update": true

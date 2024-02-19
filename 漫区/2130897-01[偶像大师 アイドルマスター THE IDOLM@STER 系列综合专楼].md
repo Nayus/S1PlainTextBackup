@@ -388,3 +388,34 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只能说幽默
 
+
+*****
+
+####  cckuku  
+##### 1115#       发表于 2024-2-19 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996613&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-19 11:17</a>
+ 有啥不敢的，爱马仕主要市场又不是大陆 11区可没有有男不玩 就新作这个设定你怎么就保证制作人班 ...</blockquote>
+这跟有男不玩有什么关系？而且男女混搭又不是说制作人，它真有种就新企划三个偶像来个一男两女或者两男一女呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koodooliz  
+##### 1116#       发表于 2024-2-19 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996613&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-19 11:17</a>
+
+有啥不敢的，爱马仕主要市场又不是大陆
+
+11区可没有有男不玩
+
+就新作这个设定你怎么就保证制作人班 ...</blockquote>
+类似的2.5偶像音游赛道也就近两三年的烤才出了男女混搭吧，而且好多都是玩CP的。你爱马仕最近反倒是强化性的往PL上靠了，敢玩这套麽<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 1117#       发表于 2024-2-19 11:22
+
+五，六年前立项的企划的话，设定其实没啥问题，就是出来太迟了
+

@@ -27,3 +27,11 @@
 
 我弟吗，刚进外传新章，这无限数值培养还带倍率哒，她这回本传来一刀大道都给磨灭了吧，
 
+
+*****
+
+####  nagamasa  
+##### 4004#       发表于 2024-2-19 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么问题来了，究竟是男主菜还是嘉隆菜呢
+

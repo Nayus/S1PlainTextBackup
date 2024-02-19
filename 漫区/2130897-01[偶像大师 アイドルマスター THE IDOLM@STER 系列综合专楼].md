@@ -566,3 +566,35 @@ poplink典型合家欢连连看，这都要炎上那也太魔怔了。
 你看后来男团 ...</blockquote>
 有一说一，你搞男团女性向收割女粉，和想男女通吃混搭，是完全不同的方向了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 1132#       发表于 2024-2-19 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996970&amp;ptid=2130897" target="_blank">QuattroVageena 发表于 2024-2-19 11:47</a>
+ba的优势是透明的世界、生动的学生以及出色的二创，游戏性就那样
+基于scsp和sidem，我不认为万南这么傲慢的 ...</blockquote>
+有点意思，真抄ba的话倒想看看能抄出个什么样子，不过这样的话玩家不还应该设定为sensei比较好吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  何处分可  
+##### 1133#       发表于 2024-2-19 12:11
+
+学ba，看来代哥还是嫌自己游戏业务死的不够快
+
+*****
+
+####  hypnossz86  
+##### 1134#       发表于 2024-2-19 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997180&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-2-19 12:09</a>
+有一说一，你搞男团女性向收割女粉，和想男女通吃混搭，是完全不同的方向了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">所以说要勇于创新
+说了这么多年的918搁现在看也只不过就是阻挡历史车轮滚滚前进螳臂当车的一小撮而已
+看好万代的创新精神，出男女混组也只是一直口碑爆炸
+十年后再看一定会对万代走在时代前列的开拓精神佩服的五体投地
+

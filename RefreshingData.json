@@ -5607,13 +5607,13 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 6334,
+    "totalreply": 6335,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1708356012,
+    "lastedit": 1708372806,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125110": {
     "totalreply": 2937,
@@ -10734,7 +10734,7 @@
     "lastedit": 1708372507,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172154": {
     "totalreply": 93,

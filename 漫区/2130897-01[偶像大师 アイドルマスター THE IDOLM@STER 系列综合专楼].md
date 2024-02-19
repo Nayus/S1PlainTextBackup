@@ -369,3 +369,22 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 现在最新最in的不是男女混搭吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你问问他们敢不敢搞？
 
+
+*****
+
+####  hypnossz86  
+##### 1113#       发表于 2024-2-19 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996575&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-2-19 11:15</a>
+现在最新最in的不是男女混搭吗你问问他们敢不敢搞？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">有啥不敢的，爱马仕主要市场又不是大陆
+11区可没有有男不玩
+就新作这个设定你怎么就保证制作人班就你一个制作人
+
+*****
+
+####  Vacuolar  
+##### 1114#       发表于 2024-2-19 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只能说幽默
+

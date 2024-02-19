@@ -26808,3 +26808,21 @@ aiai还是宝刀不及当年，好些没唱上去
 
 [【图片】来看看大家对🐶团和🐔团的二创嗜好【bangdream吧】_百度贴吧](https://tieba.baidu.com/p/8900573336)
 
+
+*****
+
+####  NODY  
+##### 13157#       发表于 2024-2-19 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996540&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-2-19 11:12</a>
+
+这好像是爱音说的话吧，怕不是要撞枪口哦</blockquote>
+明显灯说的，只有她管爽姐叫酱
+
+*****
+
+####  滑稽Captain  
+##### 13158#       发表于 2024-2-19 11:16
+
+卡池应该是灯素五星，结合标题的颜色，活动剧情主轴应该是灯素祥
+

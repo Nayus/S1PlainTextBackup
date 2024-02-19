@@ -6756,3 +6756,35 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 气的我后面只能看会视频缓缓，等半夜12:30左右貌似服务器又爆了，上去就排队，排20分钟左右终于进去了，然后匹配不到人，没法打，只能下线睡觉去了。
 
+
+*****
+
+####  raragon  
+##### 706#       发表于 2024-2-19 10:59
+
+收集了十几个样本结果飞机下来出bug了无法登机，绝了
+
+*****
+
+####  airshit  
+##### 707#       发表于 2024-2-19 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">匹配这么地狱，我开个UU只跟好友玩还行，体验良好。
+
+这个护送刁民的任务也太难了，炸的我🐎都不认识了
+
+*****
+
+####  smdzh2  
+##### 708#       发表于 2024-2-19 11:01
+
+箭头：你再催<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/61ca47444b6f32fd4ca90e2e91abcadc/61E2C7275F60C85F339B6AF177E87794.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  BadYanL  
+##### 709#       发表于 2024-2-19 11:03
+
+如果有好友登入了，可以用好友列表加入，可以跳过排队。
+

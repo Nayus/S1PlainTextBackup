@@ -73,3 +73,11 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 <img src="https://p.sda1.dev/15/942c0aff6173040b7b593fd010a5d039/CMP_20240219205034624.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 13217#       发表于 2024-2-19 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总之希望再过个一年左右后能少看见一些爱allKY哥吧。
+

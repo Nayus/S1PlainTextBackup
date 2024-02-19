@@ -45,3 +45,13 @@
 
 对不起，先投了喵梦亲，初华和祥子会原谅我的。
 
+
+*****
+
+####  NODY  
+##### 13214#       发表于 2024-2-19 20:29
+
+从祥子和立希对比前一次投票的变化来看，或许多车角色还有助于死忠粉增长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但某cv被车对角色就完全是负加成了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

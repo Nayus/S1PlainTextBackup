@@ -27218,3 +27218,23 @@ soyo 灯灯你们两个果然做了什么吧，多提提元和二年的事啊
 
 灯素一直卖很大，但是看起来太像母女了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 13201#       发表于 2024-2-19 16:09
+
+双面爽世这次暴露出来了，算是c团做不到🐶团才会有的事
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  RedSpecial  
+##### 13202#       发表于 2024-2-19 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63999583&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-19 15:46</a>
+
+灯素一直卖很大，但是看起来太像母女了</blockquote>
+家长说并感
+

@@ -948,3 +948,25 @@ bgm上的参与的作品，属于还行一般萌系，肯定不如sc了。
 去x上看了楼上爆料的画师，作品欣赏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/450ca5279235b4b4a12d146a9adcff06/CMP_20240219160805577.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alicest  
+##### 1168#       发表于 2024-2-19 16:10
+
+小高太懂流量了
+<img src="https://p.sda1.dev/15/1401a9b4ffba0972836716921220dcde/IMG_CMP_129346098.png" referrerpolicy="no-referrer">
+
+*****
+
+####  輝く熾天使  
+##### 1169#       发表于 2024-2-19 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63999888&amp;ptid=2130897" target="_blank">吃饭传说 发表于 2024-2-19 16:06</a>
+前几天不是说万南砍了5个新作吗</blockquote>
+去年就能宣的东西砍不了的
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">而且bnei自己的组已经摆了两年了啥饼都没公开，电子游戏业务烂是很正常的事
+除非代孙董事会真觉得那帮外包漫改能赚钱
+
+—— 来自 vivo V2243A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

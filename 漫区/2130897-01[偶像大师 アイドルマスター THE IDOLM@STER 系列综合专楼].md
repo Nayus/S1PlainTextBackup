@@ -755,3 +755,21 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ba那个是灯云ba随口说了句像，别当真
 
+
+*****
+
+####  Unlight  
+##### 1150#         楼主| 发表于 2024-2-19 12:46
+
+那看来还不是波哥主意，是阪规波随
+
+<img src="https://img.saraba1st.com/forum/202402/19/124643oca7rz79c6w9rh9j.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2567.JPG</strong> (232.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 12:46 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

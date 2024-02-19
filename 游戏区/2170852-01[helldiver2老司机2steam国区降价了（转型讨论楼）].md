@@ -6958,3 +6958,11 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  FLZB  
+##### 728#       发表于 2024-2-19 17:13
+
+服务器不加，也不更新客户端解决匹配问题，箭头这两天跟死了一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

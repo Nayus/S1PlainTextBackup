@@ -7030,3 +7030,11 @@ reddit今天已经忍不住纷纷开骂了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  smdzh2  
+##### 734#       发表于 2024-2-19 18:42
+
+2/8炸服时就有白皮孝子在steam讨论区巡逻发帖不许别人批评制作组了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

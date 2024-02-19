@@ -723,3 +723,13 @@ ins 謌
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  误中副車  
+##### 78#       发表于 2024-2-19 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63990427&amp;ptid=2172155" target="_blank">古屋敷由良 发表于 2024-2-18 17:16</a>
+我才知道结巴这么大年纪了还自称哥，虽然很low但还挺有亲近感</blockquote>
+十年前那种是个人都自称哥啊姐啊的应该是塔带起来的，特别招人烦
+

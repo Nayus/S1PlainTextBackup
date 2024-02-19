@@ -159,3 +159,40 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 阴谋论的话之前ll游戏被砍其实是为了给学马仕让路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 1093#       发表于 2024-2-19 09:46
+
+ 本帖最后由 ViviR 于 2024-2-19 09:49 编辑 
+<blockquote>安广多惠子 发表于 2024-2-19 09:33
+从之前的泄露图来看和莲相似度蛮高的，感觉目标市场很明确，难怪5ch串已经开撕了233
+
+—— 来自 S1Fun ...</blockquote>
+市场真的有多接近吗？莲不是明摆着要大搞女女营业吸引河豚，除非ims这个p是女p<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koodooliz  
+##### 1094#       发表于 2024-2-19 09:52
+
+艺能学校，produce科和idol科？<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 1095#       发表于 2024-2-19 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63995506&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-2-19 09:52</a>
+
+艺能学校，produce科和idol科？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202402/19/095437mszjnh0uahr0djft.png" referrerpolicy="no-referrer">
+
+<strong></strong> (121.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 09:54 上传
+

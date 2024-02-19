@@ -26997,3 +26997,22 @@ soyo这个怨妇脸莫名的很美
 
 —— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  爱丁堡official  
+##### 13177#       发表于 2024-2-19 13:27
+
+这配对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  基神的强袭自由  
+##### 13178#       发表于 2024-2-19 13:27
+
+这一期的卡面总感觉见过同样色彩和衣服的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

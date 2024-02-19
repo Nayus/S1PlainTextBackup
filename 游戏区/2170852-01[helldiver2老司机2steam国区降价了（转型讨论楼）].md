@@ -7018,3 +7018,15 @@ steam讨论区孝子大本营了属于是，但凡敢有点抱怨就会被攻击
 最纯度的一集</blockquote>
 Reddit结晶程度更高
 
+
+*****
+
+####  pharika  
+##### 733#       发表于 2024-2-19 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64001491&amp;ptid=2170852" target="_blank">山风短 发表于 2024-2-19 18:16</a>
+Reddit结晶程度更高</blockquote>
+reddit今天已经忍不住纷纷开骂了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

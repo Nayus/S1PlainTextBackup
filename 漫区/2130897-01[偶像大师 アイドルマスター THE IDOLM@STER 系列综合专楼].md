@@ -662,3 +662,41 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 你爱马仕早就有自己的ba啦，比ba更早的sc不就 ...</blockquote>
 甚至连卑女的梗都🔥出去了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Seeley  
+##### 1141#       发表于 2024-2-19 12:30
+
+反正先骑墙看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我目前是绝对的不看好，如果真是现实意义上的学园这个框架感觉会卡死很多设定<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">如果架空的学园那感觉有些过于奇妙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  SchwarzX  
+##### 1142#       发表于 2024-2-19 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主机游戏就考虑下，手游就算了没动力玩
+
+*****
+
+####  hypnossz86  
+##### 1143#       发表于 2024-2-19 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997387&amp;ptid=2130897" target="_blank">琴酒 发表于 2024-2-19 12:28</a>
+想了一下，除了765学園外，应该还有这些（大概）
+
+玉兎学園
+
+聖ミリオン女学園</blockquote>
+圣百万学园为什么独立于765学园，你这不正统
+
+*****
+
+####  Aureth  
+##### 1144#       发表于 2024-2-19 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经感觉要吐了
+

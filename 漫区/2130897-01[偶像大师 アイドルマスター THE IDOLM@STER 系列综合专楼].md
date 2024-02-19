@@ -141,3 +141,13 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 画猫不成咯<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 1091#       发表于 2024-2-19 09:33
+
+从之前的泄露图来看和莲相似度蛮高的，感觉目标市场很明确，难怪5ch串已经开撕了233
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7038,3 +7038,25 @@ reddit今天已经忍不住纷纷开骂了
 
 2/8炸服时就有白皮孝子在steam讨论区巡逻发帖不许别人批评制作组了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sigeren  
+##### 735#       发表于 2024-2-19 19:39
+
+现在还能匹到人吗？在线数据都是0是啥原因？
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novyDC  
+##### 736#       发表于 2024-2-19 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64002313&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-02-19 19:39:32</a>
+现在还能匹到人吗？在线数据都是0是啥原因？
+
+—— 来自 Xiaomi 22081212C, Android 14上的  v2.5.4 ...</blockquote>服务器炸了呗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

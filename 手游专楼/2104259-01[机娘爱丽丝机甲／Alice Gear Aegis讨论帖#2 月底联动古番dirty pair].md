@@ -85,3 +85,11 @@ TV动画和连载漫画？
 
 还有绊剧情有搞出一个emission指标的新设定。类似碳排放指标，每个国家群都有emission总量的限制。超过或者想增加总量可以从其他没超的国家购买emission总量。剧情里就是东京EAGIS想扩充总量就从乌购买总量顺带援乌。你游剧情设定太杂太细当心跘自己跟头
 
+
+*****
+
+####  madcow  
+##### 932#       发表于 2024-2-19 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻将规则完全不懂，就看过点小泉打麻将，只记得手用力殴打麻将牌把牌弄成白板。雀力就是这个吗（（
+

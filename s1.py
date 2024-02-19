@@ -247,7 +247,7 @@ async def UpdateThread(threaddict,semaphore):
                     for replynum in sorted(list(map(int,contentdict.keys()))):
                         #lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
                         #增量更新不再创建时间戳
-                        pages = '%02d' %math.ceil(contentdict[str(replynum)]['page']/50)
+                        pages = '%02d' %math.ceil(contentdict[str(replynum)]['page']/37)
                         filename = str(threaddict['id'])+'-'+str(pages)+titles+'.md'
                         with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8') as f:
                             f.write(contentdict[str(replynum)]['content'])

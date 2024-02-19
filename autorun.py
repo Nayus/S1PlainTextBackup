@@ -9,7 +9,7 @@ import os
 import json
 
 #2022-09-19
-old_number = 2095520
+# old_number = 2095520
 # old_number = 2095520++int((int(time.time())-1664434472)/86400)*175
 #2021-01-01
 # dead_number = 1980710
@@ -21,9 +21,10 @@ def parse_html(html,threadict):
         threadids = re.search(r'normalthread_\d{7}',str(i))
         if (threadids):
             levels = re.search(r'\d{1,5}</a></span>',str(i))
-            replycounts = re.search(r'html\">\d+</a><em>',str(i))
-            replycount = re.sub(r'html\">','',str(replycounts.group(0)))
-            replycount = re.sub(r'</a><em>','',replycount)
+            replycounts = i.find_all("a","xi2")
+            replycount = re.sub(r'<.+?>','',str(replycounts[0]))
+            titles = i.find_all("a","s xst")
+            title = re.sub(r'<.+?>','',str(titles[0]))
             threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
             if levels:
                 #在这里进行是否添加的检查
@@ -36,6 +37,7 @@ def parse_html(html,threadict):
                         # 1天之内回复过
                     threadict[threadid] = {}
                     threadict[threadid]['replytime'] = int(replytime)
+                    threadict[threadid]['title'] = title
                     threadict[threadid]['replycount'] = int(replycount) + 1 # 外部回帖数会比实际楼层数少1
 
 if __name__ == '__main__':
@@ -86,8 +88,8 @@ if __name__ == '__main__':
                 else:
                     thdata[l] = {}
                     thdata[l]['totalreply'] =0
-                    thdata[l]['title'] = "待更新"
-                    thdata[l]['newtitle'] = "待更新"
+                    thdata[l]['title'] = threadict[l]['title']
+                    thdata[l]['newtitle'] = threadict[l]['title']
                     thdata[l]['lastedit'] = threadict[l]['replytime']
                     thdata[l]['category']= k
                     thdata[l]["active"] =  True

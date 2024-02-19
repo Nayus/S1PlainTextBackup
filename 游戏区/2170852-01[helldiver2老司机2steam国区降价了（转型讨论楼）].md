@@ -6948,3 +6948,13 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  runningch  
+##### 727#       发表于 2024-2-19 16:59
+
+两天没更新，周末放假真好<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

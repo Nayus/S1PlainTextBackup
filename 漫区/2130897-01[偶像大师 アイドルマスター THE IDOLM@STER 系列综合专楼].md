@@ -79,3 +79,25 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  我cp结婚了  
+##### 1083#       发表于 2024-2-19 08:40
+
+学院分produce科和idol科啊
+
+*****
+
+####  hypnossz86  
+##### 1084#       发表于 2024-2-19 08:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这，抄袭拉布来布
+
+*****
+
+####  Vacuolar  
+##### 1085#       发表于 2024-2-19 08:43
+
+其实是抄马娘（
+

@@ -1533,3 +1533,11 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不喜欢弱受眼镜男，还是喜欢内心冰冷的男角色被亚撒西女主慢慢融化的甜甜bg
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 1045#       发表于 2024-2-19 09:22
+
+感觉悟还挺腹黑（？）的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有大福真的好可爱肉乎乎的
+

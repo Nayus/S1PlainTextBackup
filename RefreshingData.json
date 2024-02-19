@@ -2016,13 +2016,13 @@
     "update": false
   },
   "1717712": {
-    "totalreply": 11881,
+    "totalreply": 11882,
     "title": "[推漫：咒术回战]",
     "newtitle": "[（不）推漫：咒术回战]",
-    "lastedit": 1708368909,
+    "lastedit": 1708384806,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1726277": {
     "totalreply": 947,
@@ -6855,7 +6855,7 @@
     "lastedit": 1708384508,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2162351": {
     "totalreply": 611,
@@ -7110,13 +7110,13 @@
     "update": false
   },
   "2166322": {
-    "totalreply": 1399,
+    "totalreply": 1401,
     "title": "[缅甸专楼-1月版]",
     "newtitle": "[缅甸专楼-1月版]",
-    "lastedit": 1708363809,
+    "lastedit": 1708384808,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2166321": {
     "totalreply": 2872,
@@ -7647,7 +7647,7 @@
     "lastedit": 1708384508,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -9456,7 +9456,7 @@
     "lastedit": 1708384508,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2101497": {
     "totalreply": 73,
@@ -11292,7 +11292,7 @@
     "lastedit": 1708384510,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172137": {
     "totalreply": 48,
@@ -11445,7 +11445,7 @@
     "lastedit": 1708384510,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172006": {
     "totalreply": 45,
@@ -11670,6 +11670,6 @@
     "lastedit": 1708384508,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }

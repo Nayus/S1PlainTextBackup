@@ -7081,3 +7081,13 @@ reddit今天已经忍不住纷纷开骂了
 —— 来自 Xiaomi 22081212C, Android 14上的 S1Next-鹅版 v2 ...</blockquote>
 官方说在线数据很耗服务器资源，暂时关闭了
 
+
+*****
+
+####  sigeren  
+##### 739#       发表于 2024-2-19 21:14
+
+怎么好友组队也崩啊，行不行啊，还能修好吗？
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

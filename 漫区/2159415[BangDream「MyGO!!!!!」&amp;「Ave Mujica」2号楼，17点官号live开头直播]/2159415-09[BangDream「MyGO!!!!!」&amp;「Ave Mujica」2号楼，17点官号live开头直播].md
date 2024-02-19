@@ -302,3 +302,28 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 侦探睦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依存香炉  
+##### 13238#       发表于 2024-2-20 00:00
+
+<img src="https://img.saraba1st.com/forum/202402/19/235930rmyg9o1e4zwgxyn9.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-02-19 at 23.59.04.png</strong> (37.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 23:59 上传
+
+*****
+
+####  PDQ4  
+##### 13239#       发表于 2024-2-20 00:04
+
+提到渡濑被台本吓到这一点。感觉鸡要是有传统艺能鬼屋挑战，是不是尖叫役可以预定一个渡濑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过感觉睦宝儿是那种面无表情看鬼片的人，就算害怕也只是多喝两口芒果汁，鸡团建的话会被祥子看出来强行关电视，然后喵梦大概会疯狂嘲笑祥子怕鬼。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后鬼屋录像疯狂嘴祥子你怎么不怕了演的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

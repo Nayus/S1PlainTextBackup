@@ -283,3 +283,39 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 咱要不然还是换成老师吧
 
+
+*****
+
+####  Alicest  
+##### 1104#       发表于 2024-2-19 10:29
+
+另外我很担心的一点是年龄问题
+
+和其他2.5统一的年龄段相比，@上到39下到9岁囊括很大，但是这学院类型岂不是定死了狭小的年龄空间
+
+*****
+
+####  Anatoly  
+##### 1105#       发表于 2024-2-19 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63995984&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-2-19 10:29</a>
+另外我很担心的一点是年龄&amp;#x9 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一边专门学校一边高中吧
+实在不行原创世界观变成硕士吧，毕竟他也没说同龄不是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  没取名啊  
+##### 1106#       发表于 2024-2-19 10:32
+
+人隔壁小学生都在当职业偶像了，你这边还在学校玩偶像过家家，要不干脆设定成初中怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水莲寺流歌  
+##### 1107#       发表于 2024-2-19 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">代孙，想也没想到你会这么low啊，“校园偶像闹麻了，我们imas可是专业的”不是用来黑拉拉的话术吗，怎么企划高层先绷不住了
+

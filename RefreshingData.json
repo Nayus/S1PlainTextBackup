@@ -7647,7 +7647,7 @@
     "lastedit": 1708378806,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -9483,7 +9483,7 @@
     "lastedit": 1708378808,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1991734": {
     "totalreply": 161,
@@ -11403,13 +11403,13 @@
     "update": false
   },
   "2172366": {
-    "totalreply": 336,
+    "totalreply": 337,
     "title": "[网传与16岁男生有不当关系的中学女教师已被停职]",
     "newtitle": "[网传与16岁男生有不当关系的中学女教师已被停职]",
-    "lastedit": 1708376706,
+    "lastedit": 1708379106,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2122591": {
     "totalreply": 196,

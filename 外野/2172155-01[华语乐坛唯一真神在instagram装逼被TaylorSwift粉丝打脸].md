@@ -868,3 +868,13 @@ ins 謌
 别说了别说了，这两位的粉丝我害怕，把集美引来了把你这小破论坛扬咯。</blockquote>
 干脆把侃爷粉丝也拉过来三方混战得了
 
+
+*****
+
+####  赞卡机  
+##### 92#       发表于 2024-2-19 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63999856&amp;ptid=2172155" target="_blank">kelveen 发表于 2024-2-19 16:03</a>
+原本1989之后就要接着吹的，中间被金评霉打断，rep和lover过渡之后就是疫情期间两张民谣连发，质量确实也 ...</blockquote>
+汤姆汉克斯?
+

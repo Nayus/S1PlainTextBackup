@@ -463,3 +463,16 @@ Elira clique的那个rrat太有说服力了
 一样，实际上不管你喜欢不喜欢赌，mond经常会带着人进赌场然后逼着你下注，当然月见日常手头紧大概还有上 ...</blockquote>
 月见被解雇的明面理由根本原因是不合群，她根本不去赌场，手头也不紧，allin里是有好几个赌鬼，但是也有不赌的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">mondo是自己喜欢赌+喜欢起哄
 
+
+*****
+
+####  高等黑暗  
+##### 133#       发表于 2024-2-19 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63999775&amp;ptid=2171038" target="_blank">catkoto 发表于 2024-2-19 15:59</a>
+
+月见被解雇的明面理由根本原因是不合群，她根本不去赌场，手头也不紧，allin里是有好几个赌鬼，但是也有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">可能你觉得的手头不紧和我觉得的手头不紧不是一码事把，她解雇那天手头也就3e不到的钱，对于一个黑帮成员而言这点钱最多5天，努点力2,3天就能赚到（顺便说一句，馅现任成员那须在退出Iris之后作为不能参加大型任务和卖药赚钱的半グレ曾经一周不到赚了5e作为给ウェスカー赔罪的见面礼），也没见她有好几页豪车5,6台飞机的固定资产，手头2,3e日常用的确不缺钱，但是实际想买个车买个飞机都不够用，在我看来这是十分缺钱了，所以才会为了价值不到2000w的两车花来事
+
+另外我说的问题就是Mond喜欢起哄拉着成员去无意义的丢钱啊，Allin整体成员手上的金钱和大型任务成功率不成比例难道不是事实吗，以一次大型任务平均入账2000w来算，ALLIN是少数早班成员多可以拉满每天4次的，按理说一天躺着入账8000w，为什么每个人手头都那么紧想要来事的时候就没钱？之前叶押着エスダーク给焦月赔罪的时候叫他掏2e出来都没有
+

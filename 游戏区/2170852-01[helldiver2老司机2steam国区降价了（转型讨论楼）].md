@@ -7187,3 +7187,16 @@ reddit今天已经忍不住纷纷开骂了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死，奖章有上限，数量250，别屯着一次性解锁，该花就花
 
+
+*****
+
+####  YY骑士  
+##### 750#       发表于 2024-2-19 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003104&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-2-19 21:16</a>
+
+和我一样不能匹配到别人房间的朋友，现在有一个非常奇怪的方法能让你匹配上游戏。
+
+开启寻找SOS信号后，随意 ...</blockquote>
+怪不得。。。我说我怎么选难7，结果快速匹配的都是难6，最低遇到过难4<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

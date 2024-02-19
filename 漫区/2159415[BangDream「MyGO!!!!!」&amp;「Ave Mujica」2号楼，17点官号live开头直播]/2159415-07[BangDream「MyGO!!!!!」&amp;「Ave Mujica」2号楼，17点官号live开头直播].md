@@ -27119,3 +27119,13 @@ soyo的花后不是很满意。
 
 还记得，那也是一个这样的雨天……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 13190#       发表于 2024-2-19 14:10
+
+soyo 灯灯你们两个果然做了什么吧，多提提元和二年的事啊
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

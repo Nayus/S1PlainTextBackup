@@ -345,3 +345,15 @@
 
 我的ciel<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 3898#       发表于 2024-2-20 01:34
+
+第20話「Their narratives」
+
+遺されたパスカルのメッセ―ジから語られるミステルとノワールの過去。それはかつてパスカルが地上を冒険した途上で、偶然イストワールに接触したことから始まっていた。一方、マハトはシュネーと契約を交わした頃のことを思い出していた。明かされる彼らの過去とイデアール創設の秘密。マハトとカナタの対決の時が迫っていた。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

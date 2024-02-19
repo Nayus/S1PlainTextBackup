@@ -7264,3 +7264,18 @@ reddit今天已经忍不住纷纷开骂了
 
 游戏都进不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 758#       发表于 2024-2-20 01:37
+
+"你好，地狱潜兵们
+
+本周我们将针对游戏中最严重的问题推出改进措施：登录、匹配和服务器负载。明天您将看到 PC 版和 PS5 版的更新，但请记住，任何一次更新都无法解决所有问题。相反，我们将在接下来的几天和几周内持续改进。
+
+我们都在努力工作，以确保游戏稳定运行，并将 "管理民主 "传播到银河系的每个星球。
+
+一如既往地感谢你。"
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快端上来罢
+

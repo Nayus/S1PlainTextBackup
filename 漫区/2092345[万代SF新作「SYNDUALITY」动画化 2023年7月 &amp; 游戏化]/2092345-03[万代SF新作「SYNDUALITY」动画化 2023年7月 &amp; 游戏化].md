@@ -10,3 +10,29 @@
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  novyMS  
+##### 3860#       发表于 2024-2-19 22:34
+
+准备上线看直播
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  亚瑟邓特  
+##### 3861#       发表于 2024-2-19 22:35
+
+野狼大学篇说难听点就是依托<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyMS  
+##### 3862#       发表于 2024-2-19 22:36
+
+上来就阿姨洗铁路了 怀念
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

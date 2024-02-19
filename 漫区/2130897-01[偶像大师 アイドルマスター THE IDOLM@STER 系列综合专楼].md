@@ -773,3 +773,23 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  嵐ステリ  
+##### 1151#       发表于 2024-2-19 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63995984&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-2-19 10:29</a>
+另外我很担心的一点是年龄&amp;#x9 ...</blockquote>
+学院也可以下到小学生上到博士后啊（偶像专业博士后到底是啥
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hypnossz86  
+##### 1152#       发表于 2024-2-19 13:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">年龄根本不是问题
+你看就算是ba那种设定上都是高中生，但是也有一眼看起来成熟的年纪比老师还大的和傻乎乎看着跟上幼儿园的智商差不多的
+

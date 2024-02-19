@@ -6866,3 +6866,11 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Launce  
+##### 718#       发表于 2024-2-19 13:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，民主护佑这效果没有CD运气来了是真莽，顶着一堆火箭弹打空了2轮弹夹才死
+

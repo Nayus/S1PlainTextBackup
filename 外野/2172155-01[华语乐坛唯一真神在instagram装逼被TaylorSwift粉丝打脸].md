@@ -919,3 +919,15 @@ travis scott<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 说实话后者有哪些有名的歌来着（不是阴阳是真的好奇问问听歌不记歌手
 
+
+*****
+
+####  炮炮鸽  
+##### 97#       发表于 2024-2-20 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64004422&amp;ptid=2172155" target="_blank">古凌锋 发表于 2024-2-19 23:55</a>
+说实话后者有哪些有名的歌来着（不是阴阳是真的好奇问问听歌不记歌手</blockquote>
+早期饥饿游戏的Safe and Sound，转型成流行乐之后的Welcome to New York、Blank Space之类的都还算可以吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

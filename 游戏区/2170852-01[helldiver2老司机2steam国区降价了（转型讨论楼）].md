@@ -7246,3 +7246,21 @@ reddit今天已经忍不住纷纷开骂了
 请问ps5版要怎么和steam版的加好友，我现在是能看到来自steam的好友申请，但点击接受后没有任何反应 ...</blockquote>
 需要steam玩家先关联psn账号，也许那个玩家没绑定
 
+
+*****
+
+####  SpaceCowboy  
+##### 756#       发表于 2024-2-20 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64004562&amp;ptid=2170852" target="_blank">passerjustby 发表于 2024-2-20 00:20</a>
+
+需要steam玩家先关联psn账号，也许那个玩家没绑定</blockquote>
+感谢！我让我朋友试试
+
+*****
+
+####  李喜睡  
+##### 757#       发表于 2024-2-20 00:35
+
+游戏都进不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

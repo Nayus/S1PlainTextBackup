@@ -327,3 +327,13 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 然后鬼屋录像疯狂嘴祥子你怎么不怕了演的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13240#       发表于 2024-2-20 00:28
+
+灯最需要练习从常理来看是句实话，睦都被看成拆团罪人了不跟祥子走才怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

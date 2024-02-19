@@ -6720,3 +6720,13 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 闹麻了，这统计功能是为了节约服务器资源故意关掉了。然后准备加入长时间挂机不玩自动踢人功能了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 702#       发表于 2024-2-19 10:04
+
+现在是限制了同时在线人数？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -196,3 +196,34 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 2024-2-19 09:54 上传
 
+
+*****
+
+####  07579394  
+##### 1096#       发表于 2024-2-19 09:55
+
+嘲笑ll，理解ll，成为ll<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 1097#       发表于 2024-2-19 09:56
+
+这种设定不会催生什么校园霸凌或者潜规则性骚扰之类的事件吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 1098#       发表于 2024-2-19 09:57
+
+这个设定真的很像黄油是可以说的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 1099#       发表于 2024-2-19 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63995548&amp;ptid=2130897" target="_blank">没取名啊 发表于 2024-2-19 09:56</a>
+这种设定不会催生什么校园霸凌或者潜规则性骚扰之类的事件吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">二次元的事儿你少管
+

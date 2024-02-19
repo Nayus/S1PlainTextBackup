@@ -700,3 +700,50 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经感觉要吐了
 
+
+*****
+
+####  Anatoly  
+##### 1145#       发表于 2024-2-19 12:35
+
+17年就立项的东西，要掀桌也不可能是因为BA掀的桌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想啥呢
+
+*****
+
+####  Unlight  
+##### 1146#         楼主| 发表于 2024-2-19 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996613&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-19 11:17</a>
+有啥不敢的，爱马仕主要市场又不是大陆
+11区可没有有男不玩
+就新作这个设定你怎么就保证制作人班 ...</blockquote>
+话是这么说，查询男人游戏状态
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Anatoly  
+##### 1147#       发表于 2024-2-19 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997316&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-2-19 12:23</a>
+
+前面说是像ba的，不就是现在什么火，就自动往什么上联想嘛，
+
+你爱马仕早就有自己的ba啦，比ba更早的sc不就 ...</blockquote>
+你游的剧情毕竟现实世界（虽然有点超自然要素
+
+又不可能无限往下延伸甚至换地图的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Unlight  
+##### 1148#         楼主| 发表于 2024-2-19 12:39
+
+话说，土豆的那个养成模式最近又有消息了吗？
+又是初代机制，又是765，这不纯纯怀旧服，要不把PvP也加回去罢（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1203,7 +1203,7 @@
     "lastedit": 1708317318,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1471785": {
     "totalreply": 26130,
@@ -1827,13 +1827,13 @@
     "update": false
   },
   "1957309": {
-    "totalreply": 2277,
+    "totalreply": 2278,
     "title": "[星期一的满杯讨论楼]",
     "newtitle": "[星期一的满杯讨论楼]",
-    "lastedit": 1708311320,
+    "lastedit": 1708317613,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1904473": {
     "totalreply": 3776,
@@ -2022,7 +2022,7 @@
     "lastedit": 1708317314,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1726277": {
     "totalreply": 947,
@@ -4470,7 +4470,7 @@
     "lastedit": 1708317318,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2057903": {
     "totalreply": 1182,
@@ -5346,10 +5346,10 @@
     "update": false
   },
   "2130897": {
-    "totalreply": 1144,
+    "totalreply": 1148,
     "title": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
     "newtitle": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
-    "lastedit": 1708317312,
+    "lastedit": 1708317619,
     "category": "漫区",
     "active": true,
     "update": true
@@ -6408,13 +6408,13 @@
     "update": false
   },
   "2079854": {
-    "totalreply": 874,
+    "totalreply": 875,
     "title": "[香格里拉·弗陇提亚 粪作猎人向神作发起挑战 TV动画化 2023.10]",
     "newtitle": "[香格里拉·弗陇提亚 粪作猎人向神作发起挑战 TV动画化 2023.10]",
-    "lastedit": 1708281610,
+    "lastedit": 1708317613,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2000603": {
     "totalreply": 696,
@@ -6450,7 +6450,7 @@
     "lastedit": 1708317318,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2155738": {
     "totalreply": 14195,
@@ -6750,13 +6750,13 @@
     "update": false
   },
   "2086008": {
-    "totalreply": 1478,
+    "totalreply": 1479,
     "title": "[迷宫饭 TV动画化 TRIGGER扳机社制作 2024年1月]",
     "newtitle": "[迷宫饭 TV动画化 TRIGGER扳机社制作 2024年1月 剧透请反白]",
-    "lastedit": 1708316419,
+    "lastedit": 1708317619,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2161228": {
     "totalreply": 10429,
@@ -7137,13 +7137,13 @@
     "update": false
   },
   "2166320": {
-    "totalreply": 1781,
+    "totalreply": 1784,
     "title": "[俄乌专楼-1月版]",
     "newtitle": "[俄乌专楼-1月版]",
-    "lastedit": 1708316716,
+    "lastedit": 1708317614,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2164773": {
     "totalreply": 133,
@@ -7182,13 +7182,13 @@
     "update": false
   },
   "2137424": {
-    "totalreply": 2199,
+    "totalreply": 2200,
     "title": "[Cygames 原创TV动画「勇気爆発バーンブレイバーン」2024年1月]",
     "newtitle": "[Cygames 原创TV动画「勇气爆发Bang Bravern」2024年1月]",
-    "lastedit": 1708245660,
+    "lastedit": 1708317619,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2107824": {
     "totalreply": 534,
@@ -7233,7 +7233,7 @@
     "lastedit": 1708317318,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2058325": {
     "totalreply": 429,
@@ -7344,13 +7344,13 @@
     "update": false
   },
   "2167989": {
-    "totalreply": 5696,
+    "totalreply": 5698,
     "title": "[剧场动画『机动战士高达 SEED FREEDOM』PV公开，24年1月26日上映]",
     "newtitle": "[倒序浏览剧场动画『机动战士高达 SEED FREEDOM』24.01.26上映]",
-    "lastedit": 1708317018,
+    "lastedit": 1708317619,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125694": {
     "totalreply": 134,
@@ -7623,13 +7623,13 @@
     "update": false
   },
   "2170519": {
-    "totalreply": 532,
+    "totalreply": 533,
     "title": "[【#10】hololive综合讨论楼]",
     "newtitle": "[【#10】hololive综合讨论楼]",
-    "lastedit": 1708316110,
+    "lastedit": 1708317619,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170612": {
     "totalreply": 1314,
@@ -7641,13 +7641,13 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 3039,
+    "totalreply": 3049,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708317014,
+    "lastedit": 1708317615,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170430": {
     "totalreply": 960,
@@ -7695,13 +7695,13 @@
     "update": false
   },
   "2170764": {
-    "totalreply": 994,
+    "totalreply": 1001,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1708317018,
+    "lastedit": 1708317615,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2168002": {
     "totalreply": 125,
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 11972,
+    "totalreply": 11981,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708317311,
+    "lastedit": 1708317614,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7767,13 +7767,13 @@
     "update": false
   },
   "2170954": {
-    "totalreply": 905,
+    "totalreply": 908,
     "title": "[【明日方舟】国服14.5号楼 2.1怀黍离 2.3生息演算]",
     "newtitle": "[【明日方舟】国服14.5号楼 2.22 引航者试炼04#]",
-    "lastedit": 1708317014,
+    "lastedit": 1708317610,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171008": {
     "totalreply": 68,
@@ -8127,13 +8127,13 @@
     "update": false
   },
   "2171320": {
-    "totalreply": 63,
+    "totalreply": 65,
     "title": "[高合汽车要完？]",
     "newtitle": "[高合汽车要完？]",
-    "lastedit": 1708315814,
+    "lastedit": 1708317619,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171323": {
     "totalreply": 70,
@@ -9477,10 +9477,10 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 1661,
+    "totalreply": 1669,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708317311,
+    "lastedit": 1708317619,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
@@ -10503,10 +10503,10 @@
     "update": false
   },
   "2172091": {
-    "totalreply": 93,
+    "totalreply": 94,
     "title": "[从NS现在还能创造的利润看，不急着换代是可以理解的]",
     "newtitle": "[从NS现在还能创造的利润看，不急着换代是可以理解的]",
-    "lastedit": 1708317309,
+    "lastedit": 1708317619,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -10518,7 +10518,7 @@
     "lastedit": 1708317318,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172099": {
     "totalreply": 110,
@@ -10941,7 +10941,7 @@
     "lastedit": 1708317318,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172150": {
     "totalreply": 43,
@@ -10959,7 +10959,7 @@
     "lastedit": 1708317312,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172245": {
     "totalreply": 112,
@@ -11040,7 +11040,7 @@
     "lastedit": 1708317318,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2107078": {
     "totalreply": 166,
@@ -11094,7 +11094,7 @@
     "lastedit": 1708317318,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170435": {
     "totalreply": 45,
@@ -11202,7 +11202,7 @@
     "lastedit": 1708317318,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170660": {
     "totalreply": 78,
@@ -11250,13 +11250,13 @@
     "update": false
   },
   "2172311": {
-    "totalreply": 45,
+    "totalreply": 47,
     "title": "待更新",
     "newtitle": "[现在开始推伊朗旅游了？]",
-    "lastedit": 1708316716,
+    "lastedit": 1708317616,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172305": {
     "totalreply": 47,
@@ -11265,7 +11265,7 @@
     "lastedit": 1708317318,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172312": {
     "totalreply": 47,
@@ -11274,13 +11274,13 @@
     "lastedit": 1708317315,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172301": {
-    "totalreply": 49,
+    "totalreply": 52,
     "title": "待更新",
     "newtitle": "[为啥腾讯作为最有钱的厂商自研能力和营收能力反差这么…]",
-    "lastedit": 1708317318,
+    "lastedit": 1708317619,
     "category": "游戏区",
     "active": true,
     "update": true

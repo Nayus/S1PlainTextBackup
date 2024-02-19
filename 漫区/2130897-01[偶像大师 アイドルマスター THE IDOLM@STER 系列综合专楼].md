@@ -606,3 +606,13 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以代孙吃屎都赶不上热乎的效率可能七星了才会想到抄BA吧
 
+
+*****
+
+####  花开安菲路  
+##### 1136#       发表于 2024-2-19 12:23
+
+前面说是像ba的，不就是现在什么火，就自动往什么上联想嘛，
+你爱马仕早就有自己的ba啦，比ba更早的sc不就是嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当初sc也因为剧情美术大火过一波，pl属性也很重，同人也多，和ba简直一个模子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

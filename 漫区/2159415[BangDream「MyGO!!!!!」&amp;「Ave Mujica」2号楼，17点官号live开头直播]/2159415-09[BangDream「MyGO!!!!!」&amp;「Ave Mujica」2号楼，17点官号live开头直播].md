@@ -107,3 +107,14 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 忘记说了今天白鹭千圣捡到了橙斧，可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  utotqe  
+##### 13220#       发表于 2024-2-19 22:12
+
+推荐一个二创系列【【镜像宇宙】倒说MyGO第一回：mujica演出失误大裁员，一辈子乐队不成寻短命-哔哩哔哩】 https://www.bilibili.com/video/BV1jc411s72A?p=1
+从尾倒放到头，量大管饱笑点密集<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">最后一集刚出
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

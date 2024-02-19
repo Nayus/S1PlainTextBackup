@@ -878,3 +878,13 @@ ins 謌
 原本1989之后就要接着吹的，中间被金评霉打断，rep和lover过渡之后就是疫情期间两张民谣连发，质量确实也 ...</blockquote>
 汤姆汉克斯?
 
+
+*****
+
+####  codezwei  
+##### 93#       发表于 2024-2-19 23:17
+
+什么t什么s
+
+—— 来自 LENOVO TB371FC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

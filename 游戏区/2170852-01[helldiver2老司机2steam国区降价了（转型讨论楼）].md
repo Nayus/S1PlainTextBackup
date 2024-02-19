@@ -6903,3 +6903,23 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  逆袭的黑月  
+##### 722#       发表于 2024-2-19 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63998368&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-2-19 14:00</a>
+
+感觉只能等晚上欧美鬼佬下线才能玩了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚上美国鬼佬都睡醒了
+
+*****
+
+####  PlasmaSnake  
+##### 723#       发表于 2024-2-19 15:28
+
+要不是昨天一晚上没排到人我就信了
+

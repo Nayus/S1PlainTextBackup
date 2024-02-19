@@ -52,3 +52,14 @@ yabu还说成长了，这发音跟去年差不多啊
 看ip是回到家了</blockquote>
 我卡了？看到还是霓虹哇
 
+
+*****
+
+####  csolfans  
+##### 19639#       发表于 2024-2-19 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64002862&amp;ptid=2078110" target="_blank">优妮可 发表于 2024-2-19 20:47</a>
+
+我卡了？看到还是霓虹哇</blockquote>
+视频显示ip是上海
+

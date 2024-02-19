@@ -26871,3 +26871,26 @@ aiai还是宝刀不及当年，好些没唱上去
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是灯灯问soyo喜不喜欢下雨，怎么说呢，充满了电波的美吧
 
+
+*****
+
+####  凡人  
+##### 13165#       发表于 2024-2-19 11:35
+
+<img src="https://img.saraba1st.com/forum/202402/19/113540u9zdopmo91ibdfgv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 11:35 上传
+
+*****
+
+####  爱丁堡official  
+##### 13166#       发表于 2024-2-19 11:37
+
+五个人雨天在soyo家会发生什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -93,3 +93,15 @@ Pixiv上相当比例的猎奇画作也是出自国人作者。跟性压抑导致
 
 同作者的其他作品，有在制作精致程度、完善程度上和本作相当或者更好的作品吗？
 
+
+*****
+
+####  Moltres.lv70  
+##### 125#       发表于 2024-2-19 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63994753&amp;ptid=2168002" target="_blank">壶中仙 发表于 2024-2-19 08:28</a>
+同作者的其他作品，有在制作精致程度、完善程度上和本作相当或者更好的作品吗？ ...</blockquote>
+同问，steam还有哪些值得玩的 stg，最近用 deck 玩体验很好 除了不能 16:10
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+

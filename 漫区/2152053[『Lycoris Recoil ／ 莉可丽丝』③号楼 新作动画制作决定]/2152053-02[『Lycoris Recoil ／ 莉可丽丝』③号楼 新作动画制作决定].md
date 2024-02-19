@@ -40,3 +40,19 @@
 
 [https://twitter.com/nozu78/status/1759555372443148739/photo/1](https://twitter.com/nozu78/status/1759555372443148739/photo/1)
 
+
+*****
+
+####  半年  
+##### 1706#       发表于 2024-2-19 23:21
+
+<img src="https://img.saraba1st.com/forum/202402/19/232113oeuumzlmsb0xsz7j.jpg" referrerpolicy="no-referrer">
+
+<strong>GGtOaFYaYAAP3dO.jpg</strong> (162.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 23:21 上传
+
+[https://twitter.com/FUMIOTO_K/status/1759586380940779880/photo/1](https://twitter.com/FUMIOTO_K/status/1759586380940779880/photo/1)
+

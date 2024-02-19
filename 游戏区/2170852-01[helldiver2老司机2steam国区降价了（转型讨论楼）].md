@@ -6712,3 +6712,11 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 为什么我steam上要么就是排不进去，要么就是排进去了完全匹配不到别人，但是偶尔又有人能加入我的战局。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 01.000.009补丁对匹配“优化”后，大概率是排不了，小概率会排到人
 
+
+*****
+
+####  泉美  
+##### 701#       发表于 2024-2-19 09:48
+
+闹麻了，这统计功能是为了节约服务器资源故意关掉了。然后准备加入长时间挂机不玩自动踢人功能了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

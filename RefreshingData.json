@@ -1197,13 +1197,13 @@
     "update": false
   },
   "1986197": {
-    "totalreply": 12608,
+    "totalreply": 12609,
     "title": "[ブルーアーカイブ／Blue Archive／蔚蓝檔案 日服2021／2／4中午…]",
     "newtitle": "[ブルーアーカイブ 综合讨论]",
-    "lastedit": 1708306519,
+    "lastedit": 1708307417,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1471785": {
     "totalreply": 26130,
@@ -1827,13 +1827,13 @@
     "update": false
   },
   "1957309": {
-    "totalreply": 2272,
+    "totalreply": 2273,
     "title": "[星期一的满杯讨论楼]",
     "newtitle": "[星期一的满杯讨论楼]",
-    "lastedit": 1707694800,
+    "lastedit": 1708307414,
     "category": "漫区",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "1904473": {
     "totalreply": 3776,
@@ -4464,10 +4464,10 @@
     "update": false
   },
   "2042115": {
-    "totalreply": 5194,
+    "totalreply": 5196,
     "title": "[《碧蓝幻想 Relink》23年1月21日新情报公开，2023年发售]",
     "newtitle": "[《碧蓝幻想 Relink》2024年2月1日发售，Demo已公开]",
-    "lastedit": 1708307114,
+    "lastedit": 1708307417,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -5352,7 +5352,7 @@
     "lastedit": 1708307118,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1865528": {
     "totalreply": 601,
@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 6287,
+    "totalreply": 6294,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1708307118,
+    "lastedit": 1708307415,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -5814,13 +5814,13 @@
     "update": false
   },
   "1989188": {
-    "totalreply": 6730,
+    "totalreply": 6735,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[新机病栋，谁是大的？]",
-    "lastedit": 1708306812,
+    "lastedit": 1708307412,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1988297": {
     "totalreply": 1177,
@@ -6117,7 +6117,7 @@
     "lastedit": 1708307113,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2147731": {
     "totalreply": 42844,
@@ -6531,7 +6531,7 @@
     "lastedit": 1708307112,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2157110": {
     "totalreply": 801,
@@ -7143,7 +7143,7 @@
     "lastedit": 1708307113,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2164773": {
     "totalreply": 133,
@@ -7350,7 +7350,7 @@
     "lastedit": 1708307118,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2125694": {
     "totalreply": 134,
@@ -7596,13 +7596,13 @@
     "update": false
   },
   "2170592": {
-    "totalreply": 10410,
+    "totalreply": 10411,
     "title": "[【Dota2】龙年Dota千斤顶楼]",
     "newtitle": "[【Dota2】龙年Dota讨论楼]",
-    "lastedit": 1708306812,
+    "lastedit": 1708307412,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170332": {
     "totalreply": 300,
@@ -7641,10 +7641,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 2988,
+    "totalreply": 2990,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708307110,
+    "lastedit": 1708307412,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7692,7 +7692,7 @@
     "lastedit": 1708307113,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170764": {
     "totalreply": 954,
@@ -7701,7 +7701,7 @@
     "lastedit": 1708307118,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2168002": {
     "totalreply": 124,
@@ -7719,7 +7719,7 @@
     "lastedit": 1708307113,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2112844": {
     "totalreply": 544,
@@ -7767,13 +7767,13 @@
     "update": false
   },
   "2170954": {
-    "totalreply": 894,
+    "totalreply": 895,
     "title": "[【明日方舟】国服14.5号楼 2.1怀黍离 2.3生息演算]",
     "newtitle": "[【明日方舟】国服14.5号楼 2.22 引航者试炼04#]",
-    "lastedit": 1708306813,
+    "lastedit": 1708307417,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171008": {
     "totalreply": 68,
@@ -8721,13 +8721,13 @@
     "update": false
   },
   "2170852": {
-    "totalreply": 700,
+    "totalreply": 701,
     "title": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
-    "lastedit": 1708306812,
+    "lastedit": 1708307410,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171595": {
     "totalreply": 96,
@@ -10503,13 +10503,13 @@
     "update": false
   },
   "2172091": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[从NS现在还能创造的利润看，不急着换代是可以理解的]",
     "newtitle": "[从NS现在还能创造的利润看，不急着换代是可以理解的]",
-    "lastedit": 1708305012,
+    "lastedit": 1708307412,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171789": {
     "totalreply": 105,
@@ -10707,7 +10707,7 @@
     "lastedit": 1708307115,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172113": {
     "totalreply": 53,
@@ -10824,7 +10824,7 @@
     "lastedit": 1708307118,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172164": {
     "totalreply": 55,
@@ -10863,13 +10863,13 @@
     "update": false
   },
   "2172139": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[自由之翼是否星际争霸2三部曲战役中游戏性最好的一部？]",
     "newtitle": "[自由之翼是否星际争霸2三部曲战役中游戏性最好的一部？]",
-    "lastedit": 1708246140,
+    "lastedit": 1708307417,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172209": {
     "totalreply": 53,
@@ -10908,13 +10908,13 @@
     "update": false
   },
   "2172224": {
-    "totalreply": 66,
+    "totalreply": 68,
     "title": "[对公账户转给我，再让我转给他是什么套路？]",
     "newtitle": "[对公账户转给我，再让我转给他是什么套路？]",
-    "lastedit": 1708278314,
+    "lastedit": 1708307412,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172130": {
     "totalreply": 42,
@@ -10935,13 +10935,13 @@
     "update": false
   },
   "2172240": {
-    "totalreply": 130,
+    "totalreply": 133,
     "title": "[10岁男孩被窜出的烟花炸伤身亡]",
     "newtitle": "[10岁男孩被窜出的烟花炸伤身亡]",
-    "lastedit": 1708306810,
+    "lastedit": 1708307417,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172150": {
     "totalreply": 43,
@@ -10959,7 +10959,7 @@
     "lastedit": 1708307118,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172245": {
     "totalreply": 95,
@@ -10980,13 +10980,13 @@
     "update": false
   },
   "2172230": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[小车购买推荐，有点难选]",
     "newtitle": "[小车购买推荐，有点难选]",
-    "lastedit": 1708306812,
+    "lastedit": 1708307417,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172215": {
     "totalreply": 52,
@@ -10995,7 +10995,7 @@
     "lastedit": 1708307118,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172195": {
     "totalreply": 58,
@@ -11007,13 +11007,13 @@
     "update": false
   },
   "2172197": {
-    "totalreply": 76,
+    "totalreply": 78,
     "title": "待更新",
     "newtitle": "[东三省今年春节游客人次同比增长翻倍了]",
-    "lastedit": 1708306815,
+    "lastedit": 1708307417,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172227": {
     "totalreply": 49,
@@ -11040,7 +11040,7 @@
     "lastedit": 1708307118,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2107078": {
     "totalreply": 166,
@@ -11052,13 +11052,13 @@
     "update": false
   },
   "2171285": {
-    "totalreply": 144,
+    "totalreply": 145,
     "title": "待更新",
     "newtitle": "[【送福利】杉果新春福袋今日上线，留言赢取P3R]",
-    "lastedit": 1708303512,
+    "lastedit": 1708307417,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172089": {
     "totalreply": 46,
@@ -11169,10 +11169,10 @@
     "update": false
   },
   "2172216": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "待更新",
     "newtitle": "[喷了，列强无不怀念我大清]",
-    "lastedit": 1708307115,
+    "lastedit": 1708307417,
     "category": "外野",
     "active": true,
     "update": true

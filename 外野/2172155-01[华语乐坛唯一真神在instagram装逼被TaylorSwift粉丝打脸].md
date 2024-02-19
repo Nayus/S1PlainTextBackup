@@ -857,3 +857,14 @@ ins 謌
 
 别说了别说了，这两位的粉丝我害怕，把集美引来了把你这小破论坛扬咯。
 
+
+*****
+
+####  变老的大二  
+##### 91#       发表于 2024-2-19 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64000218&amp;ptid=2172155" target="_blank">一瓶汽水5块 发表于 2024-2-19 16:30</a>
+
+别说了别说了，这两位的粉丝我害怕，把集美引来了把你这小破论坛扬咯。</blockquote>
+干脆把侃爷粉丝也拉过来三方混战得了
+

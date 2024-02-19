@@ -28,3 +28,19 @@
 
 这期就傻逼在都不怎么适合出差，能把SB炮换成任何一把小枪都算好工
 
+
+*****
+
+####  carroy  
+##### 3024#       发表于 2024-2-19 21:56
+
+哦所以这里缺一个是dlc是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/19/215658x0f101kjzy0gvijb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1333.png</strong> (335.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 21:56 上传
+

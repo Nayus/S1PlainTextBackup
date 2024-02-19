@@ -181,3 +181,21 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 她还在带货蛋白棒，我哭死</blockquote>
 在无人在意的角落今晚的牌局是热水玩邦邦，结月玩d4dj，然后结月输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 13226#       发表于 2024-2-19 22:42
+
+漏油可以瑞平一下牌技吗，我在思考睦打游戏的水平如何，参考一下结月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 13227#       发表于 2024-2-19 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003760&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-02-19 22:32:10</a>
+这个蛋白棒好吃吗？不好吃的话就整盒收藏了</blockquote>眼瘸了没看到只发卡片，那没事了，之前纠结的我就是个傻子
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

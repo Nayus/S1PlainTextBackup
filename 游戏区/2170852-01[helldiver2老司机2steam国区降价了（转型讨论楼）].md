@@ -6982,3 +6982,29 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 最纯度的一集
 
+
+*****
+
+####  FLZB  
+##### 730#       发表于 2024-2-19 17:55
+
+steam讨论区孝子大本营了属于是，但凡敢有点抱怨就会被攻击被刷小丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/19/175502u60vqaoiqb2vv6e9.jpg" referrerpolicy="no-referrer">
+
+<strong>aklz7qnpv5u91.jpg</strong> (165.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 17:55 上传
+
+*****
+
+####  xinfengj  
+##### 731#       发表于 2024-2-19 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63993234&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-2-18 22:56</a>
+
+500kg还不如轨道激光有用，轨道激光看着压迫力还更强一点</blockquote>
+轨道激光打机器人神器好吧 中型营地扔一个直接扭头不用管 刷刷就给你清完了 四个人带激光打难度9突袭贼快
+

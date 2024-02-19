@@ -15433,3 +15433,16 @@ dlc要是难到打不下去再来工坊爽金工。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">卧槽我的金鹦鹉螺来了，看起来好强，得多攒点复活了（
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 3015#       发表于 2024-2-19 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64001222&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-19 17:54</a>
+
+砸地真的好么？虽然爆发力确实是比绵软无力的墨雨强多了，但是用完多半会死
+
+如果可以选的话，我想要 ...</blockquote>
+只能说要是冰壶+砸地那就是逆天配置，可惜研究所在加特林这一块一直奉行单一配置，极少有重样的，无论是副武器还是大招
+

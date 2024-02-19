@@ -26984,3 +26984,16 @@ soyo这个怨妇脸莫名的很美
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  SakuraのOrigami  
+##### 13176#       发表于 2024-2-19 13:00
+
+作编曲木下龙平，老朋友了（）
+（碧天伴走和影色舞的作编曲）
+（所以SUPA LOVE你们怎么老找木下龙平或者长谷川大介给MyGO/Mujica写歌啊，是当做EG的藤永或者藤田淳平吗.jpg）
+试听听完后，感觉还是存在编的很满，但主唱声音有一些薄的问题（）
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

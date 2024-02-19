@@ -805,3 +805,21 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 你看就算是ba那种设定上都是高中生，但是也有一眼看起来成熟的年纪比老师还大的和 ...</blockquote>
 不如说日系二次元里面追求萌系元素的作品尤其是萌豚片轻百片把角色的心智和行为往幼的感觉写算是常见的套路了。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MELTMOON  
+##### 1154#       发表于 2024-2-19 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓，只要美术人设比VTB企划那个好看都算赢赢赢，不要胎死腹中就行
+
+*****
+
+####  Alicest  
+##### 1155#       发表于 2024-2-19 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63998531&amp;ptid=2130897" target="_blank">MELTMOON 发表于 2024-2-19 14:13</a>
+无所谓，只要美术人设比VTB企划那个好看都算赢赢赢，不要胎死腹中就行 ...</blockquote>
+人设多半不如莲了，给闪提鞋都不配
+<img src="https://p.sda1.dev/15/154ca3ffd3d81d99b9f4e998ea2fff82/IMG_CMP_238461324.png" referrerpolicy="no-referrer">
+

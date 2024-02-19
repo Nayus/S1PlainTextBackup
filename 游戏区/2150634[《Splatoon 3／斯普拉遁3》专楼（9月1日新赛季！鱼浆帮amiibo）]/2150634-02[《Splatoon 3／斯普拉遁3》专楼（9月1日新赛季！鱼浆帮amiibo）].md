@@ -15390,3 +15390,20 @@ dlc要是难到打不下去再来工坊爽金工。
 
 鹦鹉螺配置好强，没用过525但贴牌颜色第一反应是装修用的冲击钻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 3010#       发表于 2024-2-19 17:36
+
+消防栓避开砸地的可能性大幅提升
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  墨染白泉  
+##### 3011#       发表于 2024-2-19 17:39
+
+525一场下来也涂不出几个rpg吧
+

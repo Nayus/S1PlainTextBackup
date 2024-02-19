@@ -290,3 +290,15 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 玄铁绚的母女剧情太唐突了好吧，感觉迟早要变成爱音吃母女丼。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 13237#       发表于 2024-2-19 23:45
+
+渡瀬最近在打逆转456合集，然后记得有说是小学高年级（具体忘了）接触的，推测一下可能是5代发售前后，看起来似乎比较喜欢王泥喜
+
+个人体感现在这个世代会去玩逆转的樱花妹并不算多，真没想到她会是逆转粉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+侦探睦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

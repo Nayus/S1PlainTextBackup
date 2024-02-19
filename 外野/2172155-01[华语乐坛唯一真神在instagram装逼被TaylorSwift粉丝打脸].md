@@ -900,3 +900,14 @@ ins 謌
 —— 来自 LENOVO TB371FC, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 travis scott<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 95#       发表于 2024-2-19 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63991869&amp;ptid=2172155" target="_blank">note_2 发表于 2024-2-18 19:59</a>
+
+疫情期间高质量作品连发，在躺平摆烂的大环境下显得格外突出，去年开放巡演后就往造神的方向走了 ...</blockquote>
+请问有推荐的吗
+

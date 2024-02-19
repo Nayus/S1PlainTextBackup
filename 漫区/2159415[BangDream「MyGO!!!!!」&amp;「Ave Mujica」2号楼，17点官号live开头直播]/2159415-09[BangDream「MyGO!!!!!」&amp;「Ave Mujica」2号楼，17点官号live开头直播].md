@@ -199,3 +199,33 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  笋干爆炸碱  
+##### 13228#       发表于 2024-2-19 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003853&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-19 22:42</a>
+
+漏油可以瑞平一下牌技吗，我在思考睦打游戏的水平如何，参考一下结月 ...</blockquote>
+这种表演性质比较足的，热水就拿着一堆七深的卡，结月拿着美依子的卡。只能评价为基本知道规则就很了不起的程度了
+
+不过ins直播她倒是有提玩逆转裁判，感觉萌萌的可以输入一下给睦睦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 13229#       发表于 2024-2-19 22:56
+
+ 本帖最后由 swessia 于 2024-2-19 22:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次活动soyo一口一个crychic的，等母鸡卡播后发现祥子带着睦头跑了会不会由爱生恨呢
+
+大祥老师新组了银河舰队
+
+大祥老师只带走了专业水平的睦头
+
+大祥老师嘴了灯最需要联系
+
+明白了，祥子是因为crychic太菜才拆散了crychic，可恶竟然是因为这个冷酷的理由<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">说好的命运共同体呢，骗子
+

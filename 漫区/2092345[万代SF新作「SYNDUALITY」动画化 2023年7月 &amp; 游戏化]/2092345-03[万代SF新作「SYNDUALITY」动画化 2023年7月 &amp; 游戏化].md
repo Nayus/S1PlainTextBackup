@@ -36,3 +36,20 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cybernetics31  
+##### 3863#       发表于 2024-2-19 22:53
+
+待机了待机了，今天肯定是小绿出场的！
+
+*****
+
+####  novyMS  
+##### 3864#       发表于 2024-2-19 22:58
+
+歌姬<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

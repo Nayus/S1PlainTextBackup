@@ -271,3 +271,14 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玄铁绚你上大号说话（不是）
 
+
+*****
+
+####  PDQ4  
+##### 13235#       发表于 2024-2-19 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003942&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-2-19 22:53</a>
+
+这种表演性质比较足的，热水就拿着一堆七深的卡，结月拿着美依子的卡。只能评价为基本知道规则就很了不起 ...</blockquote>
+逆转忠实粉丝吗，那我要代一口侦探睦睦，以前都是侦探初华的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

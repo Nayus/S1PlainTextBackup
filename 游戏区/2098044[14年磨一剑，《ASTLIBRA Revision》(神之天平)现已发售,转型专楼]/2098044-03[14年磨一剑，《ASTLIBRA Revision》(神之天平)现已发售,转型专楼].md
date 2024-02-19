@@ -75,3 +75,13 @@
 
 然后外传新章结局里把本篇里天平女神的牺牲都补救回来了，作者这个终极happyend人。邪龙和女神在世间流传的神话里明明是恋人关系，结果实际情况是连恶作剧女神都忍不住要在背后推一把的小学男女生关系，乐死我了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 4010#       发表于 2024-2-20 01:59
+
+gbf relink刷完巴武来这边，玩了玩怎么还是刷刷刷，一堆武器不刷出来又感觉会亏一个亿…剧情每次就那一点…
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

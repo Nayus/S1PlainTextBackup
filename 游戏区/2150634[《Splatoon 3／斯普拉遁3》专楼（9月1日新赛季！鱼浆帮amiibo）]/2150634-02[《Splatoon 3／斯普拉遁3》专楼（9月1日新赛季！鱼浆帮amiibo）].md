@@ -15307,3 +15307,11 @@ dlc要是难到打不下去再来工坊爽金工。
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3000#       发表于 2024-2-19 10:11
+
+奶油投票好多，难怪打了那么多次内战
+

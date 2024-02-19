@@ -6558,7 +6558,7 @@
     "lastedit": 1708363811,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2082084": {
     "totalreply": 2070,
@@ -7092,13 +7092,13 @@
     "update": false
   },
   "2166145": {
-    "totalreply": 1241,
+    "totalreply": 1242,
     "title": "[任天堂病 栋十一号楼，新年新机新剑指！]",
     "newtitle": "[任天堂病 栋十一号楼，新年新机新剑指！／小指春直]",
-    "lastedit": 1708359610,
+    "lastedit": 1708364107,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2166144": {
     "totalreply": 489,
@@ -7116,7 +7116,7 @@
     "lastedit": 1708363809,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2166321": {
     "totalreply": 2871,
@@ -7641,10 +7641,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 3331,
+    "totalreply": 3332,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708363808,
+    "lastedit": 1708364108,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -9483,7 +9483,7 @@
     "lastedit": 1708363811,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1991734": {
     "totalreply": 161,
@@ -9639,13 +9639,13 @@
     "update": false
   },
   "2130715": {
-    "totalreply": 87,
+    "totalreply": 88,
     "title": "[心跳回忆明年就30周年了，能期待KONAMI出纪念新作吗？]",
     "newtitle": "[心跳回忆明年就30周年了，能期待KONAMI出纪念新作吗？]",
-    "lastedit": 1708344153,
+    "lastedit": 1708364108,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171912": {
     "totalreply": 109,
@@ -10113,7 +10113,7 @@
     "lastedit": 1708363811,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2157625": {
     "totalreply": 57,
@@ -10446,7 +10446,7 @@
     "lastedit": 1708363811,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171760": {
     "totalreply": 45,
@@ -10512,13 +10512,13 @@
     "update": false
   },
   "2171789": {
-    "totalreply": 112,
+    "totalreply": 113,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1708340720,
+    "lastedit": 1708364111,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172099": {
     "totalreply": 121,
@@ -10842,7 +10842,7 @@
     "lastedit": 1708363811,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172214": {
     "totalreply": 50,
@@ -11250,13 +11250,13 @@
     "update": false
   },
   "2172311": {
-    "totalreply": 105,
+    "totalreply": 106,
     "title": "[现在开始推伊朗旅游了？]",
     "newtitle": "[现在开始推伊朗旅游了？]",
-    "lastedit": 1708363512,
+    "lastedit": 1708364110,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172305": {
     "totalreply": 78,
@@ -11277,13 +11277,13 @@
     "update": false
   },
   "2172301": {
-    "totalreply": 75,
+    "totalreply": 76,
     "title": "[为啥腾讯作为最有钱的厂商自研能力和营收能力反差这么…]",
     "newtitle": "[为啥腾讯作为最有钱的厂商自研能力和营收能力反差这么…]",
-    "lastedit": 1708363512,
+    "lastedit": 1708364110,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172297": {
     "totalreply": 74,
@@ -11346,7 +11346,7 @@
     "lastedit": 1708363811,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2124528": {
     "totalreply": 71,
@@ -11646,12 +11646,21 @@
     "update": false
   },
   "1568954": {
-    "totalreply": 304,
+    "totalreply": 305,
     "title": "试毒也可以那么销魂《药屋少女的呢喃》",
     "newtitle": "[试毒也可以那么销魂《药屋少女的呢喃》]",
-    "lastedit": 1708363519,
+    "lastedit": 1708364108,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
+  },
+  "2018358": {
+    "totalreply": 0,
+    "title": "『蓝色监狱 / ブルーロック』动画化 TV二期&amp;剧场动画制作...",
+    "newtitle": "[『蓝色监狱 ／ ブルーロック』动画化 TV二期&amp;剧场动画制作…]",
+    "lastedit": 1708363800,
+    "category": "漫区",
+    "active": true,
+    "update": true
   }
 }

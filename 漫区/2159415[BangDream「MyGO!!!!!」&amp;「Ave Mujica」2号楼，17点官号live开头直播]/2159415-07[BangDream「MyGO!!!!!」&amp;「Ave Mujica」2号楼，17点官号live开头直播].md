@@ -26826,3 +26826,26 @@ aiai还是宝刀不及当年，好些没唱上去
 
 卡池应该是灯素五星，结合标题的颜色，活动剧情主轴应该是灯素祥
 
+
+*****
+
+####  基神的强袭自由  
+##### 13159#       发表于 2024-2-19 11:24
+
+破案了，匕下工没唱出来的部分是在暗示下期活动，伟大，无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 13160#       发表于 2024-2-19 11:29
+
+怎么又在回忆c团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cindy355  
+##### 13161#       发表于 2024-2-19 11:29
+
+感觉是灯素
+

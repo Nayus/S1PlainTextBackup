@@ -101,3 +101,13 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 其实是抄马娘（
 
+
+*****
+
+####  liyropen  
+##### 1086#       发表于 2024-2-19 08:46
+
+游戏别又是刷榜音游了，太多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，没这个刷音游的时间
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

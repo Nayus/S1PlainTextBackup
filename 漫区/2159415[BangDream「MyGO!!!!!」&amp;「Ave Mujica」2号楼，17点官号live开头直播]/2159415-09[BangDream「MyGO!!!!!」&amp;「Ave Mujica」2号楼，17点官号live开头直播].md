@@ -55,3 +55,13 @@
 
 但某cv被车对角色就完全是负加成了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13215#       发表于 2024-2-19 20:44
+
+nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看笑了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

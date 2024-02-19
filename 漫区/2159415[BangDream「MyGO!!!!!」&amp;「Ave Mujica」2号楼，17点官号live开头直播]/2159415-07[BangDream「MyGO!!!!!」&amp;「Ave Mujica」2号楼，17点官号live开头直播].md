@@ -27103,3 +27103,11 @@ soyo的花后不是很满意。
 
 第一时间想起MO的“雨何时停”，不过soyo还没智也那么惨<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 13188#       发表于 2024-2-19 13:55
+
+看了一下说的是soyo家里的事，和c团没太大关系，应该是补充🐶团的设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

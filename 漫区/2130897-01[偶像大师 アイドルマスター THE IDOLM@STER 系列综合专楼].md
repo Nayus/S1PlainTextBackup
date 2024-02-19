@@ -793,3 +793,15 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">年龄根本不是问题
 你看就算是ba那种设定上都是高中生，但是也有一眼看起来成熟的年纪比老师还大的和傻乎乎看着跟上幼儿园的智商差不多的
 
+
+*****
+
+####  ViviR  
+##### 1153#       发表于 2024-2-19 13:53
+
+<blockquote>hypnossz86 发表于 2024-2-19 13:08
+年龄根本不是问题
+
+你看就算是ba那种设定上都是高中生，但是也有一眼看起来成熟的年纪比老师还大的和 ...</blockquote>
+不如说日系二次元里面追求萌系元素的作品尤其是萌豚片轻百片把角色的心智和行为往幼的感觉写算是常见的套路了。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

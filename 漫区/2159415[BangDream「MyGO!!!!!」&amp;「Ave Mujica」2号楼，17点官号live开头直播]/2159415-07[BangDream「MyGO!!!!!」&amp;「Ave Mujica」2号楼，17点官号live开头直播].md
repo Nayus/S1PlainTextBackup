@@ -26756,3 +26756,33 @@ aiai还是宝刀不及当年，好些没唱上去
 
 2024-2-19 10:22 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 13151#       发表于 2024-2-19 11:04
+
+<img src="https://img.saraba1st.com/forum/202402/19/110401h14cmxdj4x4ge4g1.jpg" referrerpolicy="no-referrer">
+
+<strong>LU5[Z{9@_HW0A}%Z0~{@@JD_tmb.jpg</strong> (83.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 11:04 上传
+
+买的日服号没有soyo五星，冲刺，冲刺！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 13152#       发表于 2024-2-19 11:09
+
+过年的时候不是说过么，狗团戏里戏外都没有明确立德，理论上戏里是立希，戏外是青木
+
+*****
+
+####  氷川日菜  
+##### 13153#       发表于 2024-2-19 11:10
+
+祥子走的那天也在下雨，不会要回忆克拉希克往事吧
+

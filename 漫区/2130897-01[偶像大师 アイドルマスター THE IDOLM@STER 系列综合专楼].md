@@ -335,3 +335,15 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 不是，这设定不就是es吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1110#       发表于 2024-2-19 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996066&amp;ptid=2130897" target="_blank">水莲寺流歌 发表于 2024-2-19 10:35</a>
+代孙，想也没想到你会这么low啊，“校园偶像闹麻了，我们imas可是专业的”不是用来黑拉拉的话术吗， ...</blockquote>
+臣等正欲死战，陛下何故先降<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

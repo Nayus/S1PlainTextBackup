@@ -27161,3 +27161,16 @@ soyo 灯灯你们两个果然做了什么吧，多提提元和二年的事啊
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  氷川日菜  
+##### 13195#       发表于 2024-2-19 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63998657&amp;ptid=2159415" target="_blank">KokutouMikiya 发表于 2024-2-19 14:23</a>
+
+咋看出来卖爱素的，这不是粉黑+灯素嘛
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+剧透反白爱音想用素世同款柔软剂，素世一下猜中爱音去买什么饮料，心有灵犀tomori都笑了
+

@@ -841,3 +841,11 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 
 看了下画师发表的图，感觉不太好说
 
+
+*****
+
+####  Srchy  
+##### 1158#       发表于 2024-2-19 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是哪来的舅舅说人设了
+

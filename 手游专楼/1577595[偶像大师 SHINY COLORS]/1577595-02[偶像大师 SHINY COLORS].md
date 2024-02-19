@@ -63,3 +63,50 @@
 
 2024-2-19 21:55 上传
 
+
+*****
+
+####  Alicest  
+##### 2909#       发表于 2024-2-19 22:01
+
+无论是之前的情人节还是这次的电影，円香总是和吸血鬼的意象联系在一起
+
+<img src="https://img.saraba1st.com/forum/202402/19/215942rf32js2oosno6jso.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/215951uuufut6audddzuaf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 21:59 上传
+
+*****
+
+####  Alicest  
+##### 2910#       发表于 2024-2-19 22:02
+
+导演太敏锐了，察觉到了円香病态般的占有欲，所以円香这里情绪才下降了吗…？
+
+<img src="https://img.saraba1st.com/forum/202402/19/220139c65wagtalwrag4oa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (235.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/220153p1l4bzs76fpctxkb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (223.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 22:01 上传
+

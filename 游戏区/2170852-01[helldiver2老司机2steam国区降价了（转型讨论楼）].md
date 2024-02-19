@@ -7115,3 +7115,22 @@ reddit今天已经忍不住纷纷开骂了
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  smdzh2  
+##### 742#       发表于 2024-2-19 22:00
+
+这不是开服bug吗，还没修好？
+
+*****
+
+####  sigeren  
+##### 743#       发表于 2024-2-19 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003483&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-2-19 22:00</a>
+这不是开服bug吗，还没修好？</blockquote>
+这咋解决啊
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7008,3 +7008,13 @@ steam讨论区孝子大本营了属于是，但凡敢有点抱怨就会被攻击
 500kg还不如轨道激光有用，轨道激光看着压迫力还更强一点</blockquote>
 轨道激光打机器人神器好吧 中型营地扔一个直接扭头不用管 刷刷就给你清完了 四个人带激光打难度9突袭贼快
 
+
+*****
+
+####  山风短  
+##### 732#       发表于 2024-2-19 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64000863&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-19 17:23</a>
+最纯度的一集</blockquote>
+Reddit结晶程度更高
+

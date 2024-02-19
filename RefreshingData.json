@@ -6849,13 +6849,13 @@
     "update": false
   },
   "2071702": {
-    "totalreply": 1843,
+    "totalreply": 1844,
     "title": "[《战锤40K：行商浪人》发售日确定！2023年12月7日！]",
     "newtitle": "[《战锤40K：行商浪人》发售日确定！2023年12月7日！]",
-    "lastedit": 1708375806,
+    "lastedit": 1708384508,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2162351": {
     "totalreply": 611,
@@ -7641,13 +7641,13 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 3342,
+    "totalreply": 3343,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708378806,
+    "lastedit": 1708384508,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170430": {
     "totalreply": 960,
@@ -7719,7 +7719,7 @@
     "lastedit": 1708384207,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2112844": {
     "totalreply": 544,
@@ -9450,13 +9450,13 @@
     "update": false
   },
   "2171887": {
-    "totalreply": 124,
+    "totalreply": 125,
     "title": "[bug应该修了，discuz可能没觉得自己能活这么久]",
     "newtitle": "[bug应该修了，discuz可能没觉得自己能活这么久]",
-    "lastedit": 1708085640,
+    "lastedit": 1708384508,
     "category": "外野",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2101497": {
     "totalreply": 73,
@@ -9483,7 +9483,7 @@
     "lastedit": 1708384207,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1991734": {
     "totalreply": 161,
@@ -11283,16 +11283,16 @@
     "lastedit": 1708384207,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172297": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[Yub前CEO之子，加州大学伯克利分校19岁的儿子死于药物过量]",
     "newtitle": "[Yub前CEO之子，加州大学伯克利分校19岁的儿子死于药物过量]",
-    "lastedit": 1708335020,
+    "lastedit": 1708384510,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172137": {
     "totalreply": 48,
@@ -11439,13 +11439,13 @@
     "update": false
   },
   "2172356": {
-    "totalreply": 74,
+    "totalreply": 76,
     "title": "[有哪些游戏用风灵月影小改一下，能明显增加游戏体验？]",
     "newtitle": "[有哪些游戏用风灵月影小改一下，能明显增加游戏体验？]",
-    "lastedit": 1708383607,
+    "lastedit": 1708384510,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172006": {
     "totalreply": 45,
@@ -11625,7 +11625,7 @@
     "lastedit": 1708384207,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2150456": {
     "totalreply": 68,
@@ -11664,12 +11664,12 @@
     "update": true
   },
   "2172340": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "我之前一直不信维生素能难吃到哪里去……",
     "newtitle": "[我之前一直不信维生素能难吃到哪里去……]",
-    "lastedit": 1708377006,
+    "lastedit": 1708384508,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   }
 }

@@ -27111,3 +27111,11 @@ soyo的花后不是很满意。
 
 看了一下说的是soyo家里的事，和c团没太大关系，应该是补充🐶团的设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Giraffe  
+##### 13189#       发表于 2024-2-19 14:05
+
+还记得，那也是一个这样的雨天……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

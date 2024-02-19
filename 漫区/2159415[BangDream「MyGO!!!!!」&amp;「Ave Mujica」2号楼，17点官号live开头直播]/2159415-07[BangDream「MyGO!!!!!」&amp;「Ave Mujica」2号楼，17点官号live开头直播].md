@@ -27299,3 +27299,30 @@ c团本来就是滤镜后果，怎么比得上狗里面人关系好。人越亲�
 
 らーなん是有什么日语梗吗
 
+
+*****
+
+####  harukage  
+##### 13208#       发表于 2024-2-19 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64000103&amp;ptid=2159415" target="_blank">木谷高明 发表于 2024-2-19 16:22</a>
+还有猫猫垫底，问题不大</blockquote>
+ 可猫猫是初中生
+
+*****
+
+####  御幸一也  
+##### 13209#       发表于 2024-2-19 19:26
+
+親親貓咪<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/19/192619yttcwsqcen3yqzep.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ki君mi(@kimiJUNN)_20240218-115146_1759183925950476620_photo.jpg</strong> (191.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 19:26 上传
+
+[https://twitter.com/kimiJUNN/status/1759183925950476620](https://twitter.com/kimiJUNN/status/1759183925950476620)
+

@@ -347,3 +347,25 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Anatoly  
+##### 1111#       发表于 2024-2-19 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996089&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-2-19 10:36</a>
+
+波老师想抄现在（？）最潮最in的设定呗
+
+可是谁知道你企划实现时会不会过时欸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">现在最新最in的不是烤吗
+
+虽然这企划是不是2017年就有的，倒也正常
+
+*****
+
+####  cckuku  
+##### 1112#       发表于 2024-2-19 11:15
+
+现在最新最in的不是男女混搭吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你问问他们敢不敢搞？
+

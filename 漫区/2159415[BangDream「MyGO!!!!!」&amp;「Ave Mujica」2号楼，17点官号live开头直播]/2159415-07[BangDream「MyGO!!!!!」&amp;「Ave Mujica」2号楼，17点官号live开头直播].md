@@ -26786,3 +26786,25 @@ aiai还是宝刀不及当年，好些没唱上去
 
 祥子走的那天也在下雨，不会要回忆克拉希克往事吧
 
+
+*****
+
+####  NODY  
+##### 13154#       发表于 2024-2-19 11:10
+
+下雨天，是不是要回忆令和二年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 13155#       发表于 2024-2-19 11:12
+
+这好像是爱音说的话吧，怕不是要撞枪口哦<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 13156#       发表于 2024-2-19 11:14
+
+[【图片】来看看大家对🐶团和🐔团的二创嗜好【bangdream吧】_百度贴吧](https://tieba.baidu.com/p/8900573336)
+

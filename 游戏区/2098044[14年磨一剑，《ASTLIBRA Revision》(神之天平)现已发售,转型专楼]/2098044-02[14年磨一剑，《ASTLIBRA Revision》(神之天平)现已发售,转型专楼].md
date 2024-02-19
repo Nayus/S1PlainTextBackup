@@ -1602,3 +1602,14 @@ ok，带着无名英雄+魔女的组合刷了刷。运气挺好，出了1个四�
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  伊塔库亚  
+##### 3997#       发表于 2024-2-19 08:04
+
+<img src="https://p.sda1.dev/15/03b65bd8b40778576f5cc8db8dccf7cb/IMG_CMP_52485558.jpeg" referrerpolicy="no-referrer">
+贴吧的图，我都不知道这种盘怎么输
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

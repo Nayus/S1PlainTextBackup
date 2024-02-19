@@ -26849,3 +26849,25 @@ aiai还是宝刀不及当年，好些没唱上去
 
 感觉是灯素
 
+
+*****
+
+####  NODY  
+##### 13162#       发表于 2024-2-19 11:31
+
+灯素五星立希四星，歌名是循环，元和二年再演无误了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  harukage  
+##### 13163#       发表于 2024-2-19 11:31
+
+135soyo怀旧246立希嘴臭啊
+
+*****
+
+####  cindy355  
+##### 13164#       发表于 2024-2-19 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是灯灯问soyo喜不喜欢下雨，怎么说呢，充满了电波的美吧
+

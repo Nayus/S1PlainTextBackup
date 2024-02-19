@@ -1564,3 +1564,11 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 第 03 集的 TVer 源（含日字，TVer 今天才添加日字）：magnet:?xt=urn:btih:ddd282c177b986d330db0c2eebb6e6b07a6a06c0
 
+
+*****
+
+####  杂灰  
+##### 1048#       发表于 2024-2-19 11:50
+
+才看了三集就已经有想要跳过变身后所有战斗（？）内容的冲动了，还不如百分百学甜梦猫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

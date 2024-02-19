@@ -9477,13 +9477,13 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 2200,
+    "totalreply": 2202,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708378808,
+    "lastedit": 1708379406,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1991734": {
     "totalreply": 161,
@@ -11409,7 +11409,7 @@
     "lastedit": 1708379106,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2122591": {
     "totalreply": 196,

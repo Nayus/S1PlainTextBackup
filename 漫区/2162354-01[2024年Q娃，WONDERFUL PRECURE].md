@@ -1515,3 +1515,13 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 我法Q2呢
 
+
+*****
+
+####  最强惠酱  
+##### 1043#       发表于 2024-2-19 08:17
+
+不要那么敏感，单纯男人和两个女性在一个画面罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

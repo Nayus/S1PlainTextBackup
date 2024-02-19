@@ -486,3 +486,16 @@ OKSG空下来了估计会整魔箱的活作为微型联动（类似之前班扬�
 今年白情不一定有新鯖。估计和安德洛墨达有联动的Lancer版珀尔修斯是作为三星或者四星塞别的地方了，只有因 ...</blockquote>
 从人物形象看仙女座那个就是fp版吧
 
+
+*****
+
+####  UNISONIA  
+##### 11392#       发表于 2024-2-19 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63987754&amp;ptid=2084912" target="_blank">kisskick 发表于 2024-2-18 12:43</a>
+
+从人物形象看仙女座那个就是fp版吧</blockquote>
+武内版已经没案了
+
+タスクオーナ版和中原版的区别就是用Harpe作为主武装的情况下会变成Lancer（和安娜一样），Rider是用天马作为主武装的
+

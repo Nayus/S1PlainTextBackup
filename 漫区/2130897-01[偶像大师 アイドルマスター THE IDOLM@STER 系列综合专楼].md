@@ -616,3 +616,49 @@ ba的优势是透明的世界、生动的学生以及出色的二创，游戏性
 你爱马仕早就有自己的ba啦，比ba更早的sc不就是嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 当初sc也因为剧情美术大火过一波，pl属性也很重，同人也多，和ba简直一个模子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onesuny123  
+##### 1137#       发表于 2024-2-19 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真变偶像学校那岂不是全员中专
+
+男女混合偶像团体这种真人企划都不敢搞的项目波公公哪来的勇气上
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1138#       发表于 2024-2-19 12:27
+
+学园偶像喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  琴酒  
+##### 1139#       发表于 2024-2-19 12:28
+
+想了一下，除了765学園外，应该还有这些（大概）
+
+玉兎学園
+
+聖ミリオン女学園
+
+とときら学園
+
+超常学園 
+
+剧场版睡美人姑且也算进来吧（
+
+*****
+
+####  koodooliz  
+##### 1140#       发表于 2024-2-19 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63997316&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-2-19 12:23</a>
+前面说是像ba的，不就是现在什么火，就自动往什么上联想嘛，
+你爱马仕早就有自己的ba啦，比ba更早的sc不就 ...</blockquote>
+甚至连卑女的梗都🔥出去了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

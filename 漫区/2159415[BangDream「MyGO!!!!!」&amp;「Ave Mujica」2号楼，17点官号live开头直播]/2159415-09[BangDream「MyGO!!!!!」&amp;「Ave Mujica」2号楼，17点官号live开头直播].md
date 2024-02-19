@@ -81,3 +81,13 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总之希望再过个一年左右后能少看见一些爱allKY哥吧。
 
+
+*****
+
+####  紫吹兰  
+##### 13218#         楼主| 发表于 2024-2-19 21:30
+
+【【羊宫妃那】槙若菜 自我介绍 百合丘新角色 突击莉莉Assault Lily Last Bullet-哔哩哔哩】  [https://b23.tv/Vvzjc0Z](https://b23.tv/Vvzjc0Z)
+
+听起来有点像本渡枫
+

@@ -6931,3 +6931,20 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这匹配什么时候好
 
+
+*****
+
+####  gzGaryC  
+##### 725#       发表于 2024-2-19 16:29
+
+今天白天steam的在线峰值突破40w了
+
+*****
+
+####  jy000129  
+##### 726#       发表于 2024-2-19 16:32
+
+做服务型游戏都做不明白<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

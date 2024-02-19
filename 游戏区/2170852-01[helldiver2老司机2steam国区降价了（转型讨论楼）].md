@@ -6738,3 +6738,11 @@ PS5裸连上去玩起来什么都很稳就是半个人都匹配不到，但是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好评率今天71了，今天40万峰值，有望继续俯冲
 
+
+*****
+
+####  lazycat233  
+##### 704#       发表于 2024-2-19 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">月底会更新不？出点强一点的武器和新任务吧
+

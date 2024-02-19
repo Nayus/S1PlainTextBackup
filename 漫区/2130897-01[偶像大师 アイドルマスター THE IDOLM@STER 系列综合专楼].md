@@ -254,3 +254,32 @@ reirei算是283早四期里唱功最烂的了<img src="https://static.saraba1st.
 但是你@的特点不就是部分的真实性吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如wug......真实性
 
+
+*****
+
+####  Anatoly  
+##### 1103#       发表于 2024-2-19 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63995532&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-2-19 09:54</a></blockquote>
+绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/19/101711zflghghlhhattddp.jpg" referrerpolicy="no-referrer">
+
+<strong>5eb43cf6bbe0aa93dd6fd3d99855fd4.jpg</strong> (163.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 10:17 上传
+
+<img src="https://img.saraba1st.com/forum/202402/19/101718qdteaetswxqyxqda.jpg" referrerpolicy="no-referrer">
+
+<strong>41a0de73d089612e4fe9726d694ffb9.jpg</strong> (170.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-19 10:17 上传
+
+我为我在手游版的错误发言感到抱歉
+
+咱要不然还是换成老师吧
+

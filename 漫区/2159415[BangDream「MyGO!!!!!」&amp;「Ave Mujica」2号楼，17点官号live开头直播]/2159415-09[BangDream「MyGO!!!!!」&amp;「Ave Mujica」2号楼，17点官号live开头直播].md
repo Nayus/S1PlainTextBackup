@@ -1115,3 +1115,54 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13297#       发表于 2024-2-20 18:26
+
+你怎麼知道我們三次元初祥又賣了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">  <strong>我先代！</strong>
+
+<img src="https://img.saraba1st.com/forum/202402/20/182434u5awi02fus8w5z0i.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240220-101446_1759884288571674932_photo-0.jpg</strong> (613.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 18:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/182442jd1uulltuegpzuex.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240220-101446_1759884288571674932_photo-1.jpg</strong> (594.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 18:24 上传
+
+[https://twitter.com/Kanon_Takao/status/1759884288571674932](https://twitter.com/Kanon_Takao/status/1759884288571674932)
+
+<img src="https://img.saraba1st.com/forum/202402/20/182422m97j2mmuzzll9qlh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 18:24 上传
+
+然後原來高尾是怕絶叫系的（高空彈跳/雲霄飛車那類），但還是有和大家一起去玩那種衝很快的遊樂設施，
+
+然後李子就坐她旁邊，還一直對著她喊“奏音！奏音！奏音不錯喔—！” 讓她很開心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+是三次元初祥，總之我先代
+
+*****
+
+####  Akari  
+##### 13298#       发表于 2024-2-20 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64012266&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-20 18:26</a>
+
+你怎麼知道我們三次元初祥又賣了  我先代！</blockquote>
+从李子跳蹦极看，这姑娘胆子很可以。
+
+是那个从树上薅甲虫的味儿。
+

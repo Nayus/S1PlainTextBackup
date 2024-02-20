@@ -74,3 +74,14 @@ a队差点打赢了雪碧还挺意外的，估计major大家适应打法后donk�
 马西西说了就是故意打这张的
 他们之前针对这张图练了很久，不过效果没打出来
 
+
+*****
+
+####  ParadiseMartyr  
+##### 3993#       发表于 2024-2-21 02:20
+
+老鼠队把绿龙拿下了，2：0给绿龙融化了。
+donk咋发挥不出来了？
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

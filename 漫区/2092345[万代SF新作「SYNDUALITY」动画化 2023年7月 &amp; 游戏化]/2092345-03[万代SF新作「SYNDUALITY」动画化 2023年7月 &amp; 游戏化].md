@@ -879,3 +879,36 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  八等绝癔  
+##### 3949#       发表于 2024-2-20 20:25
+
+简介:公元2099年，9岁的爱丽罗斯和艾所居住的超大型都市，突然遭受了深蓝色降雨的袭击。雨水穿透了坚固的墙壁，夺去了所有被它触碰者的生命。在这崩溃的环境中，侥幸活下来的两位童年玩伴驱动着步行式移动机器，试图在这走向末日的世界里构筑新的文明——这是描述经历了四辈的女性搭档努力的故事，《SYNDUALITY》系列所不为人知的名为“开始”的正传小说!
+
+5EA7179FAFDA9E349AB6D6320EA5E24D.jpg
+(202.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/202514ynspvvvzinvwi1hf.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  八等绝癔  
+##### 3950#       发表于 2024-2-20 20:27
+
+看来是一位长寿人类和magus创世的起始物语
+
+但还是想吐槽一句果然还是女人在一起组合赚吗（
+
+*****
+
+####  oi99o  
+##### 3951#       发表于 2024-2-20 20:27
+
+怎么一死人就烂完了，我觉得这两集拍的挺不错的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

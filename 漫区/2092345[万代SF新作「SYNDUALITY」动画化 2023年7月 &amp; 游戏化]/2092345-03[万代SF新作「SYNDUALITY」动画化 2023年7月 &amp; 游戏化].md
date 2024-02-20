@@ -997,3 +997,16 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 3961#       发表于 2024-2-20 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64013813&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-2-20 21:07</a>
+
+诺娃是家人 艾莉是老婆
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+其实如果要严肃来讲，艾女士保底也是一生的家人，机娘们对人类而言是有<strong>几十年</strong>相陪的家人（
+

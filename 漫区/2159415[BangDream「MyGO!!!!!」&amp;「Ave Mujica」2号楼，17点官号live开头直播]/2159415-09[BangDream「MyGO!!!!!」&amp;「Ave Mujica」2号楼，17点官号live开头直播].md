@@ -821,3 +821,18 @@ B站刷到一个专业烧烤师傅<img src="https://static.saraba1st.com/image/s
 
 团魂续的也不是狗命啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 13278#       发表于 2024-2-20 15:11
+
+ave mujica这个团建频率和密切程度，我之前只在虹咲见过。
+
+*****
+
+####  氷川日菜  
+##### 13279#       发表于 2024-2-20 15:13
+
+抽了5个tomori，一井都没有soyo和立希<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

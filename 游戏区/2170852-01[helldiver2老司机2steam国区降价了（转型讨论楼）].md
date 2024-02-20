@@ -7768,3 +7768,14 @@ BC当房主——A可以流畅玩，我玩有非常严重的延迟和丢包问�
 
 nm米国人怎么还不睡觉，这个时段还30万人，明天不用上班吗？
 
+
+*****
+
+####  FLZB  
+##### 804#       发表于 2024-2-20 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64009324&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-20 14:25</a>
+
+笑点解析，这屌游戏大概率还是P2P，建议关了加速器试试</blockquote>
+没有概率，它就是p2p<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

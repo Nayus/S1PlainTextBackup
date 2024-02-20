@@ -347,3 +347,13 @@ dlc有捷豹吗
 
 不打对战再也没生过 4k 的气，给大王 4k 会影响我打 DLC 吗，不会，那你给螃蟹都行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  DeltaStriker  
+##### 3055#       发表于 2024-2-20 19:59
+
+没事 反正出什么都会有太君蒙上眼嗯吹好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

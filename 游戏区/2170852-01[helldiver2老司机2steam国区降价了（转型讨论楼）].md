@@ -7829,3 +7829,26 @@ nm米国人怎么还不睡觉，这个时段还30万人，明天不用上班吗�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风萧飒  
+##### 809#       发表于 2024-2-20 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64013007&amp;ptid=2170852" target="_blank">Anhydrite 发表于 2024-2-20 19:44</a>
+原来是**外国人跑tiktok上征兵去了，怪不得游戏人数直接爆了
+
+—— 来自 S1Fun ...</blockquote>
+啥意思，是去tiktok上宣传这个游戏吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyDC  
+##### 810#       发表于 2024-2-20 20:03
+
+服务器稳定了吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

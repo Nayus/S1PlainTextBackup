@@ -4464,13 +4464,13 @@
     "update": false
   },
   "2042115": {
-    "totalreply": 5320,
+    "totalreply": 5322,
     "title": "[《碧蓝幻想 Relink》23年1月21日新情报公开，2023年发售]",
     "newtitle": "[《碧蓝幻想 Relink》2024年2月1日发售，Demo已公开]",
-    "lastedit": 1708430120,
+    "lastedit": 1708430710,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2057903": {
     "totalreply": 1182,
@@ -5346,13 +5346,13 @@
     "update": false
   },
   "2130897": {
-    "totalreply": 1172,
+    "totalreply": 1173,
     "title": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
     "newtitle": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
-    "lastedit": 1708420810,
+    "lastedit": 1708430713,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1865528": {
     "totalreply": 601,
@@ -6255,13 +6255,13 @@
     "update": false
   },
   "2150634": {
-    "totalreply": 3054,
+    "totalreply": 3055,
     "title": "[《Splatoon 3／斯普拉遁3》专楼（9月1日新赛季！鱼浆帮amiibo）]",
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（22日DLC第2弹：秩序篇）]",
-    "lastedit": 1708427411,
+    "lastedit": 1708430715,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2130296": {
     "totalreply": 486,
@@ -7443,13 +7443,13 @@
     "update": false
   },
   "2168695": {
-    "totalreply": 436,
+    "totalreply": 440,
     "title": "[【瞳3】星瞳_Official综合讨论楼｜｜新✨楼新✨气象！]",
     "newtitle": "[【瞳3】星瞳_Official综合讨论楼｜｜2.3深月✨春晚✨！！！]",
-    "lastedit": 1708427716,
+    "lastedit": 1708430713,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2135261": {
     "totalreply": 140,
@@ -7602,7 +7602,7 @@
     "lastedit": 1708430411,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170332": {
     "totalreply": 300,
@@ -7623,13 +7623,13 @@
     "update": false
   },
   "2170519": {
-    "totalreply": 580,
+    "totalreply": 582,
     "title": "[【#10】hololive综合讨论楼]",
     "newtitle": "[【#10】hololive综合讨论楼]",
-    "lastedit": 1708430111,
+    "lastedit": 1708430713,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170612": {
     "totalreply": 1314,
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 13442,
+    "totalreply": 13455,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708430414,
+    "lastedit": 1708430711,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7872,7 +7872,7 @@
     "lastedit": 1708430411,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171145": {
     "totalreply": 54,
@@ -8721,13 +8721,13 @@
     "update": false
   },
   "2170852": {
-    "totalreply": 808,
+    "totalreply": 810,
     "title": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
-    "lastedit": 1708429818,
+    "lastedit": 1708430711,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171595": {
     "totalreply": 96,
@@ -9483,7 +9483,7 @@
     "lastedit": 1708430413,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1991734": {
     "totalreply": 161,
@@ -10094,7 +10094,7 @@
     "newtitle": "[空之轨迹FC／SC期间在做什么呢？]",
     "lastedit": 1708171491,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2172018": {
@@ -10392,7 +10392,7 @@
     "lastedit": 1708430411,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172075": {
     "totalreply": 76,
@@ -10512,10 +10512,10 @@
     "update": false
   },
   "2171789": {
-    "totalreply": 129,
+    "totalreply": 130,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1708430416,
+    "lastedit": 1708430713,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -11340,10 +11340,10 @@
     "update": false
   },
   "2172344": {
-    "totalreply": 363,
+    "totalreply": 368,
     "title": "[五菱：我是合资车！听说比亚迪要干我]",
     "newtitle": "[五菱：我是合资车！听说比亚迪要干我]",
-    "lastedit": 1708430411,
+    "lastedit": 1708430714,
     "category": "外野",
     "active": true,
     "update": true
@@ -11445,7 +11445,7 @@
     "lastedit": 1708430411,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172006": {
     "totalreply": 56,
@@ -11781,13 +11781,13 @@
     "update": false
   },
   "2172422": {
-    "totalreply": 67,
+    "totalreply": 69,
     "title": "麒麟供应问题解决 华为Mate 60系列渠道开始降价",
     "newtitle": "[麒麟供应问题解决 华为Mate 60系列渠道开始降价]",
-    "lastedit": 1708420524,
+    "lastedit": 1708430713,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2143278": {
     "totalreply": 169,
@@ -11832,7 +11832,7 @@
     "lastedit": 1708430413,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172196": {
     "totalreply": 63,
@@ -11889,13 +11889,13 @@
     "update": false
   },
   "2172458": {
-    "totalreply": 126,
+    "totalreply": 129,
     "title": "首次！大陆海警登船临检金门游艇",
     "newtitle": "[首次！大陆海警登船临检金门游艇]",
-    "lastedit": 1708430116,
+    "lastedit": 1708430711,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172459": {
     "totalreply": 46,
@@ -12030,7 +12030,7 @@
     "lastedit": 1708430416,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992903": {
     "totalreply": 0,
@@ -12066,7 +12066,7 @@
     "lastedit": 1708430410,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172495": {
     "totalreply": 41,
@@ -12087,10 +12087,10 @@
     "update": false
   },
   "2172520": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "上海女教师离职时前往教室当众痛吻男生",
     "newtitle": "[上海女教师离职时前往教室当众痛吻男生]",
-    "lastedit": 1708430416,
+    "lastedit": 1708430715,
     "category": "外野",
     "active": true,
     "update": true
@@ -12102,6 +12102,6 @@
     "lastedit": 1708430416,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }

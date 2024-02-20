@@ -7444,3 +7444,52 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 不懂，全程在线也有人当单机玩，不额外消费
 跟微交易有什么必然关系？
 
+
+*****
+
+####  ykyin09  
+##### 775#       发表于 2024-2-20 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看贴吧貌似有挂哥刷出了6种样本，现在正常玩能收集到的也只有3种，箭头什么时候打算把这些内容放出来来自: iPhone客户端
+
+*****
+
+####  Launce  
+##### 776#       发表于 2024-2-20 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006439&amp;ptid=2170852" target="_blank">jbjack1215 发表于 2024-2-20 10:23</a>
+
+不懂，全程在线也有人当单机玩，不额外消费
+
+跟微交易有什么必然关系？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有可能就是为了微交易才弄的全程在线
+
+*****
+
+####  BK10  
+##### 777#       发表于 2024-2-20 10:27
+
+ 本帖最后由 BK10 于 2024-2-20 10:29 编辑 
+
+都说了愿意单人的可以单人，有离线不影响你联机吧，难度设计就搞笑了payday剑圣一脚你就没了都有大佬单刷最高难度，不就是为了氪金那点破事，还是说喜欢关闭服务器就无法运行游戏？
+
+*****
+
+####  Launce  
+##### 778#       发表于 2024-2-20 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006471&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-2-20 10:25</a>
+
+看贴吧貌似有挂哥刷出了6种样本，现在正常玩能收集到的也只有3种，箭头什么时候打算把这些内容放出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先修好那逼服务器和各种闪退再说内容吧
+
+*****
+
+####  赤井稻妻  
+##### 779#       发表于 2024-2-20 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006482&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-20 10:26</a>
+
+有没有可能就是为了微交易才弄的全程在线</blockquote>
+前作也是全程联网吧，这游戏的敌人设置和正在攻略哪个星球都是根据服务器和社区进度来的
+

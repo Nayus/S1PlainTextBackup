@@ -7433,3 +7433,14 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 
 这游戏如果离线单人不如不玩，整体难度设计就是按照多人合作来的
 
+
+*****
+
+####  jbjack1215  
+##### 774#       发表于 2024-2-20 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006306&amp;ptid=2170852" target="_blank">2VYBGp94 发表于 2024-2-20 10:11</a>
+一切为了微交易，不全程在线钱从哪来</blockquote>
+不懂，全程在线也有人当单机玩，不额外消费
+跟微交易有什么必然关系？
+

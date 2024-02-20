@@ -473,3 +473,33 @@
 
 我记得OP画面到最后是彼方和诺瓦尔的合影，感觉这个可以品一品，仔细品<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3912#       发表于 2024-2-20 10:18
+
+这回忆杀的文戏的后劲太足了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3913#       发表于 2024-2-20 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64004285&amp;ptid=2092345" target="_blank">cybernetics31 发表于 2024-2-19 23:37</a>
+
+好歹融出个新面孔也行啊这下歌姬是半点都不剩了啊
+
+所以op那个漂浮妹子是谁啊 ...</blockquote>
+古贺葵的声音明显变了，带有点青山姐的味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3914#       发表于 2024-2-20 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64004346&amp;ptid=2092345" target="_blank">secretgarnet 发表于 2024-2-19 23:43</a>
+
+啊不是吧，真的半点都不剩了吗，老鸭你在写瘠薄</blockquote>
+感觉古贺葵的声音变了
+

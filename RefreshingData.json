@@ -396,13 +396,13 @@
     "update": false
   },
   "2086637": {
-    "totalreply": 8201,
+    "totalreply": 8202,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【テスト満点】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1708408515,
+    "lastedit": 1708420816,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2086516": {
     "totalreply": 727,
@@ -1203,7 +1203,7 @@
     "lastedit": 1708420520,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1471785": {
     "totalreply": 26130,
@@ -3960,13 +3960,13 @@
     "update": false
   },
   "2109078": {
-    "totalreply": 8100,
+    "totalreply": 8101,
     "title": "[FS社新作《装甲核心 6》正式公开！！2023年发售]",
     "newtitle": "[《装甲核心6 境界天火》12分钟实机演示公开，8月25日发售]",
-    "lastedit": 1708417819,
+    "lastedit": 1708420819,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1061969": {
     "totalreply": 8719,
@@ -5346,13 +5346,13 @@
     "update": false
   },
   "2130897": {
-    "totalreply": 1171,
+    "totalreply": 1172,
     "title": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
     "newtitle": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
-    "lastedit": 1708398624,
+    "lastedit": 1708420810,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1865528": {
     "totalreply": 601,
@@ -5607,13 +5607,13 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 6355,
+    "totalreply": 6356,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1708413920,
+    "lastedit": 1708420814,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125110": {
     "totalreply": 2942,
@@ -5820,7 +5820,7 @@
     "lastedit": 1708420521,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1988297": {
     "totalreply": 1177,
@@ -6261,7 +6261,7 @@
     "lastedit": 1708420516,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2130296": {
     "totalreply": 486,
@@ -6531,7 +6531,7 @@
     "lastedit": 1708420520,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2157110": {
     "totalreply": 801,
@@ -6657,7 +6657,7 @@
     "lastedit": 1708420524,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2022124": {
     "totalreply": 288,
@@ -6957,10 +6957,10 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 2796,
+    "totalreply": 2797,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
-    "lastedit": 1708420520,
+    "lastedit": 1708420819,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7008,7 +7008,7 @@
     "lastedit": 1708420517,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2164203": {
     "totalreply": 1199,
@@ -7098,7 +7098,7 @@
     "lastedit": 1708420524,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2166144": {
     "totalreply": 489,
@@ -7137,13 +7137,13 @@
     "update": false
   },
   "2166320": {
-    "totalreply": 1892,
+    "totalreply": 1893,
     "title": "[俄乌专楼-1月版]",
     "newtitle": "[俄乌专楼-1月版]",
-    "lastedit": 1708417519,
+    "lastedit": 1708420819,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2164773": {
     "totalreply": 133,
@@ -7350,7 +7350,7 @@
     "lastedit": 1708420524,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2125694": {
     "totalreply": 134,
@@ -7641,10 +7641,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 3607,
+    "totalreply": 3609,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1708420516,
+    "lastedit": 1708420816,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7686,22 +7686,22 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 503,
+    "totalreply": 505,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜新年啦]",
-    "lastedit": 1708420516,
+    "lastedit": 1708420819,
     "category": "手游专楼",
     "active": true,
     "update": true
   },
   "2170764": {
-    "totalreply": 1176,
+    "totalreply": 1177,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1708420210,
+    "lastedit": 1708420817,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2168002": {
     "totalreply": 126,
@@ -7719,7 +7719,7 @@
     "lastedit": 1708420519,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2112844": {
     "totalreply": 544,
@@ -7866,10 +7866,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 1949,
+    "totalreply": 1953,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708420524,
+    "lastedit": 1708420817,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -8259,7 +8259,7 @@
     "lastedit": 1708420524,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171365": {
     "totalreply": 42,
@@ -9036,13 +9036,13 @@
     "update": false
   },
   "2167723": {
-    "totalreply": 133,
+    "totalreply": 134,
     "title": "[米泽穗信『小市民系列』TV动画化 2024年7月]",
     "newtitle": "[米泽穗信『小市民系列』TV动画化 2024年7月]",
-    "lastedit": 1707785160,
+    "lastedit": 1708420811,
     "category": "漫区",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2171706": {
     "totalreply": 49,
@@ -9483,7 +9483,7 @@
     "lastedit": 1708420527,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1991734": {
     "totalreply": 161,
@@ -10170,13 +10170,13 @@
     "update": false
   },
   "1795991": {
-    "totalreply": 96,
+    "totalreply": 97,
     "title": "[建个《镖人》的专爱楼~]",
     "newtitle": "[建个《镖人》的专爱楼~]",
-    "lastedit": 1708146120,
+    "lastedit": 1708420817,
     "category": "漫区",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2171273": {
     "totalreply": 46,
@@ -10773,13 +10773,13 @@
     "update": false
   },
   "2171995": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[求推荐车，今年买方程豹5是否有49年入国军之嫌]",
     "newtitle": "[求推荐SUV，今年买方程豹5是否有49年入国军之嫌]",
-    "lastedit": 1708419618,
+    "lastedit": 1708420819,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172198": {
     "totalreply": 83,
@@ -11022,7 +11022,7 @@
     "lastedit": 1708420524,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172217": {
     "totalreply": 73,
@@ -11277,13 +11277,13 @@
     "update": false
   },
   "2172301": {
-    "totalreply": 107,
+    "totalreply": 109,
     "title": "[为啥腾讯作为最有钱的厂商自研能力和营收能力反差这么…]",
     "newtitle": "[为啥腾讯作为最有钱的厂商自研能力和营收能力反差这么…]",
-    "lastedit": 1708420212,
+    "lastedit": 1708420820,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172297": {
     "totalreply": 90,
@@ -11292,7 +11292,7 @@
     "lastedit": 1708420524,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172137": {
     "totalreply": 65,
@@ -11520,10 +11520,10 @@
     "update": false
   },
   "2172273": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[年番：一年一度的个税汇算清缴马上开始了]",
     "newtitle": "[年番：一年一度的个税汇算清缴马上开始了]",
-    "lastedit": 1708420524,
+    "lastedit": 1708420817,
     "category": "外野",
     "active": true,
     "update": true
@@ -11571,7 +11571,7 @@
     "lastedit": 1708420527,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170479": {
     "totalreply": 44,
@@ -11697,7 +11697,7 @@
     "lastedit": 1708420524,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "1791810": {
     "totalreply": 312,
@@ -11733,7 +11733,7 @@
     "lastedit": 1708420527,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2149659": {
     "totalreply": 445,
@@ -11787,7 +11787,7 @@
     "lastedit": 1708420524,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2143278": {
     "totalreply": 169,
@@ -11862,13 +11862,13 @@
     "update": false
   },
   "2172120": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "实际上任天堂switch应该算美国产品吧？",
     "newtitle": "[实际上任天堂switch应该算美国产品吧？]",
-    "lastedit": 1708405521,
+    "lastedit": 1708420820,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172465": {
     "totalreply": 93,
@@ -11889,13 +11889,13 @@
     "update": false
   },
   "2172458": {
-    "totalreply": 91,
+    "totalreply": 92,
     "title": "首次！大陆海警登船临检金门游艇",
     "newtitle": "[首次！大陆海警登船临检金门游艇]",
-    "lastedit": 1708420215,
+    "lastedit": 1708420820,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172459": {
     "totalreply": 46,
@@ -11931,16 +11931,16 @@
     "lastedit": 1708420524,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172307": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "HellDivers2(绝地潜兵2)战略配备看法和一些小发现",
     "newtitle": "[HellDivers2(绝地潜兵2)战略配备看法和一些小发现]",
-    "lastedit": 1708420217,
+    "lastedit": 1708420820,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172489": {
     "totalreply": 59,
@@ -11949,7 +11949,7 @@
     "lastedit": 1708420524,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172332": {
     "totalreply": 42,
@@ -11976,22 +11976,22 @@
     "lastedit": 1708420527,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172499": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "wyb疑似没确诊hiv",
     "newtitle": "[wyb疑似没确诊hiv]",
-    "lastedit": 1708420527,
+    "lastedit": 1708420817,
     "category": "外野",
     "active": true,
     "update": true
   },
   "2172492": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "光速分手，这算是甩了别人还是被甩了",
     "newtitle": "[光速分手，这算是甩了别人还是被甩了]",
-    "lastedit": 1708420527,
+    "lastedit": 1708420820,
     "category": "外野",
     "active": true,
     "update": true

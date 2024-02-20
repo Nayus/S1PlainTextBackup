@@ -1104,3 +1104,16 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NeloAngelo  
+##### 3969#       发表于 2024-2-21 03:09
+
+第17集有点"弱者的视角"的由头了, 后面会开始主题升华了吗.(毕竟是以"弱者也有游戏体验"做起点的PvPvE游戏企划<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+阿美生育控制下产生的人类. "弱者视角". 要是上世纪作品这阿美高低得是S开头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+卫浴柜在排行榜里得分是全S. 这么扭曲又喜欢下大棋的性格.  有可能他就是阿美统领一切的政务AI融进人类身体了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

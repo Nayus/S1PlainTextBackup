@@ -48,3 +48,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那管人吃只爆一次米不够，该死的夕阳游戏还是会暴毙的，不如名字正式改成Starlight holo stage，把负资产190个人删了吧
 
+
+*****
+
+####  gammatau  
+##### 5428#       发表于 2024-2-20 23:05
+
+是不是可以视为承认管人企划玩砸了，要找真管人了
+

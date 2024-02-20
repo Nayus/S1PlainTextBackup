@@ -992,3 +992,20 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 看看她们这么开心，我心情也会跟着变好，真是不可思议。
 
+
+*****
+
+####  swessia  
+##### 13286#       发表于 2024-2-20 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">完了我现在想看 【令和7年，高尾奏音走进ave mujika练习室.avi】 了
+
+*****
+
+####  acgreen  
+##### 13287#       发表于 2024-2-20 16:49
+
+才发现祥子屏保的人偶是金发紫瞳<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

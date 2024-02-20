@@ -7970,3 +7970,19 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yahuchi  
+##### 824#       发表于 2024-2-21 00:21
+
+<img src="https://img.saraba1st.com/forum/202402/21/002125zmewrept3cr33ryx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221002112.png</strong> (151.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 00:21 上传
+
+打娱乐局的时候遇到坦克一个助跑直接飞天了
+

@@ -7751,3 +7751,20 @@ BC当房主——A可以流畅玩，我玩有非常严重的延迟和丢包问�
  ...</blockquote>
 我体感主机板问题少点，晚上玩服务器好点，我这几天基本都是晚上玩没遇到过进不去的情况，各种杂七杂八的反作弊引起的问题也没有，但是各种奇葩bug照样会出，比如什么主机卡帧bug，炸房，这几天好像崩溃次数少了，不知道是不是错觉
 
+
+*****
+
+####  runningch  
+##### 802#       发表于 2024-2-20 14:33
+
+我突然在想，同队的人都进同一个虚拟局域网会不会被有奇效？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  BadYanL  
+##### 803#       发表于 2024-2-20 14:36
+
+nm米国人怎么还不睡觉，这个时段还30万人，明天不用上班吗？
+

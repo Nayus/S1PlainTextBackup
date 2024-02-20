@@ -787,3 +787,21 @@ twitter_佐々木李子(@sasakirico)_20240220-030005_1759774896669028805_photo-0
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  木谷高明  
+##### 13274#       发表于 2024-2-20 14:33
+
+【【MyGO!!!!!】【失误盘点】無路矢(のろし) - 東京ゼップ | Encore-哔哩哔哩】[https://www.bilibili.com/video/BV1PH4y1J7GG/](https://www.bilibili.com/video/BV1PH4y1J7GG/)
+
+B站刷到一个专业烧烤师傅<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+听的真是细<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 13275#       发表于 2024-2-20 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">70连就齐了双5，然后下井才拿到立希4星，啥比武士道。
+

@@ -1010,3 +1010,25 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 其实如果要严肃来讲，艾女士保底也是一生的家人，机娘们对人类而言是有<strong>几十年</strong>相陪的家人（
 
+
+*****
+
+####  不灭的旋律  
+##### 3962#       发表于 2024-2-20 23:29
+
+阿鲁巴大惊小怪的结果就是诺瓦尔太呆萌了需要雪露之路才发现路标吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+难怪只出艾利的胶不出雪露的，这就是剧透啊。不过至少再出个艾利机的胶好不好
+
+*****
+
+####  aptx8285144  
+##### 3963#       发表于 2024-2-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64014971&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-2-20 23:29</a>
+
+阿鲁巴大惊小怪的结果就是诺瓦尔太呆萌了需要雪露之路才发现路标吗
+
+难怪只出艾利的胶不出雪露的，这 ...</blockquote>
+其实我当初就出周边这方面艾莉的待遇仅次于诺娃这点和朋友讨论过，不过真要说“剧透”，那还是op2最明显（歌姬成了影子）
+

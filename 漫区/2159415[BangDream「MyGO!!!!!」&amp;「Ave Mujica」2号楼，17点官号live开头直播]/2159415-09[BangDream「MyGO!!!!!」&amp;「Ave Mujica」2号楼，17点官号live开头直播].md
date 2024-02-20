@@ -1070,3 +1070,48 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Akari  
+##### 13295#       发表于 2024-2-20 18:03
+
+<img src="https://img.saraba1st.com/forum/202402/20/180234xmn5ht8aoqaiootr.png" referrerpolicy="no-referrer">
+
+<strong>(5UE`9P~E)O06N_0{F9F3EA.png</strong> (128.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/180250ougvvp99zibiv2xu.png" referrerpolicy="no-referrer">
+
+<strong>{DPG4P086{J[[@FWEN`_24W.png</strong> (81.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 18:02 上传
+
+不是很深，也可能是灰色，但是我可以脑补成紫色。
+
+顺便小时候第一次见面的是红色。
+
+是不是紫瞳不重要，祥子妥妥金发控。
+
+*****
+
+####  江口夕  
+##### 13296#       发表于 2024-2-20 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡团有点老r开团时候的感觉了。当年老r满足了多少人的幻想
+
+<img src="https://img.saraba1st.com/forum/202402/20/180632uxtnt5vyerxrnyk3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 18:06 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

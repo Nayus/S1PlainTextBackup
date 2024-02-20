@@ -296,3 +296,20 @@ dlc有捷豹吗
 
 晚上回2代看看真格匹配速度怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ryuuseigun  
+##### 3049#       发表于 2024-2-20 18:03
+
+铁屁股后排更铁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 3050#       发表于 2024-2-20 18:04
+
+贴牌4K这下要成塔楼之王了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

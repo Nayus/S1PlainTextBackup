@@ -95,3 +95,14 @@ dlc有点想云掉了
 
 主要本篇的刷实际上有着明确的剧情作为分割点，所以其实强度并不怎么高。到了本篇新章的装备盘我直接带上优先出装备武器的护符、给青梅剑凑满装备盘保证不亏面板就跑路了。dlc一想到我还要重复把武器刷满熟练度、一个技能用三十次、成长树点满就感觉完全不想动了。看了看社区平价好像也没有多长的剧情？
 
+
+*****
+
+####  caupollen  
+##### 4012#       发表于 2024-2-20 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64004921&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2024-2-20 01:59</a>
+
+gbf relink刷完巴武来这边，玩了玩怎么还是刷刷刷，一堆武器不刷出来又感觉会亏一个亿…剧情每次就那一点… ...</blockquote>
+喜欢这套刷后面刷到后面还是有爽点的，光属性技能超大激光一键清全图，不是一屏幕，全图直接清<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看着全地图的结晶和钱往你这飘
+

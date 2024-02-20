@@ -60,3 +60,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个我觉得没二代springfest给的好看
 
+
+*****
+
+####  罗克萨斯  
+##### 3027#       发表于 2024-2-20 09:24
+
+还需要31抽才能有碎片大礼包，已经没时间了，后天就要开始玩DLC了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

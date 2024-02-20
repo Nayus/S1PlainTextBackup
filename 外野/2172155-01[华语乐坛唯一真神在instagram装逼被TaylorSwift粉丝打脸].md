@@ -931,3 +931,13 @@ travis scott<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  嘉峪君  
+##### 98#       发表于 2024-2-20 07:52
+
+<blockquote>古凌锋 发表于 2024-2-19 23:55
+说实话后者有哪些有名的歌来着（不是阴阳是真的好奇问问听歌不记歌手</blockquote>
+在华语圈最出圈的歌应该是Love Story
+

@@ -8056,3 +8056,13 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 睡觉前看了一眼出补丁了。
 
+
+*****
+
+####  KafuuChino  
+##### 828#       发表于 2024-2-21 04:16
+
+至少匹配修了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，等下班睡一觉再看看能不能爽玩
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

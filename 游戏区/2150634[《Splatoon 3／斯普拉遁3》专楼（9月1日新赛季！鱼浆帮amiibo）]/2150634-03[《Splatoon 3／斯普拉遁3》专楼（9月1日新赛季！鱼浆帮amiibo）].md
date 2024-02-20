@@ -98,3 +98,14 @@ dlc开始预载了，2.1g
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  chobitssyf  
+##### 3031#       发表于 2024-2-20 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006650&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-2-20 10:38</a>
+
+dlc开始预载了，2.1g</blockquote>
+更新了么，我这里还是6.1.0版本
+

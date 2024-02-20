@@ -1042,3 +1042,45 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 不过C女士上季度就已经一脸要死的样，真没死反而是一种误导了吧，不过还有机会，不着急
 
+
+*****
+
+####  Piano-Forest  
+##### 3965#         楼主| 发表于 2024-2-21 01:12
+
+第20話「Their narratives」
+
+[https://youtu.be/1FkcZagvGJ8](https://youtu.be/1FkcZagvGJ8)
+
+遺されたパスカルのメッセ―ジから語られるミステルとノワールの過去。それはかつてパスカルが地上を冒険した途上で、偶然イストワールに接触したことから始まっていた。
+
+一方、マハトはシュネーと契約を交わした頃のことを思い出していた。明かされる彼らの過去とイデアール創設の秘密。マハトとカナタの対決の時が迫っていた。
+<img src="https://p.sda1.dev/15/657a5a812fe771ee75969448f5927f0c/7c551ef9705ad067b51a08422d3b2d86.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/748da524607a6707bb62538410c4f7ef/37f48646f21a826a18962d0decbfad33.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/6f05af3265fa81e8999e2a4311a61ffd/77cffb269a0620b3d0a284017c9aba7f.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/5f0205d27144ea18cc1c1aed7cfe97ee/efc650bd0bba36364f452f5687f16018.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/cfecad3e720793931d534dff0220b0cf/cf0071176413ea7c0d2e7c13fd3a89d8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/8c7148aa5824f94ea61f9e4805675124/c4af5a36e49f9529394c56d09b72d27c.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 3966#         楼主| 发表于 2024-2-21 01:13
+
+#SYNDUALITY シリーズ公式小説
+
+『はじまりの青 シンデュアリティ：ルーツ』が
+
+ 創元SF文庫より3/18に発売！
+
+本日は書影を公開✨
+
+旧文明を滅ぼした〈新月の涙〉や
+
+地下都市〈アメイジア〉の建設など…
+
+本作SF考証を務める #高島雄哉 さんが描く
+
+すべての「はじまり」の物語。お楽しみに！
+<img src="https://p.sda1.dev/15/59d6ef673626f30dddfc354ca92a93cf/20240220_143805.jpg" referrerpolicy="no-referrer">
+

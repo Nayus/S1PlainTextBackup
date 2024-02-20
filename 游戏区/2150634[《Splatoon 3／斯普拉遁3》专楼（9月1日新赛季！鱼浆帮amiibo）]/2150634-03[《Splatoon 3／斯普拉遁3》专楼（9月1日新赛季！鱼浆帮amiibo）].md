@@ -365,3 +365,15 @@ dlc有捷豹吗
 
 3月更新能看到4k蓄力保持看没了，研究所还能救回来家里人的骨灰
 
+
+*****
+
+####  DeltaStriker  
+##### 3057#       发表于 2024-2-20 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64013278&amp;ptid=2150634" target="_blank">clvan_ 发表于 2024-2-20 20:12</a>
+3月更新能看到4k蓄力保持看没了，研究所还能救回来家里人的骨灰</blockquote>
+哪里看的
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

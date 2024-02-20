@@ -61,3 +61,16 @@ a队差点打赢了雪碧还挺意外的，估计major大家适应打法后donk�
 
 不过毕竟有绀碧大厦的真核之一，全队的强度还行
 
+
+*****
+
+####  jhjy217  
+##### 3992#       发表于 2024-2-20 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64010322&amp;ptid=1857369" target="_blank">三千珈蓝 发表于 2024-2-20 15:54</a>
+大厦是donk最菜的一张图，打这张看新闻里的意思算是绿龙bp失误了
+
+不过毕竟有绀碧大厦的真核之一，全队的 ...</blockquote>
+马西西说了就是故意打这张的
+他们之前针对这张图练了很久，不过效果没打出来
+

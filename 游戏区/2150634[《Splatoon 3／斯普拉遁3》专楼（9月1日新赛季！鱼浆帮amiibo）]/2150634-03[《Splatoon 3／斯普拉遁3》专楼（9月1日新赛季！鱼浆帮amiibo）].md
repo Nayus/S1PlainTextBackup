@@ -313,3 +313,13 @@ dlc有捷豹吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 3051#       发表于 2024-2-20 18:17
+
+贴牌鹦鹉螺好不容易切到了贴牌4K，正准备开大砸死4K时4K秒变大鱿鱼，然后不幸被创死了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1377,3 +1377,11 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 
 可以让OYU再写一副吗<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 13320#       发表于 2024-2-21 00:47
+
+我心危这mv封面搞的，乍一看我还以为🐏上了THE FIRST TAKE了，惊了一下
+

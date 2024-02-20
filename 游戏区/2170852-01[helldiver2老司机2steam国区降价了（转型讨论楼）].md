@@ -7986,3 +7986,15 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 打娱乐局的时候遇到坦克一个助跑直接飞天了
 
+
+*****
+
+####  WGTCorp  
+##### 825#       发表于 2024-2-21 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64015223&amp;ptid=2170852" target="_blank">萧闻蒲 发表于 2024-2-21 00:04</a>
+今天商店的这个轻甲蛮帅的
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+其实是刚发售时的商店内容，应该是开始轮换了，过两天大概就能买到加榴弹的轻甲了。
+

@@ -135,3 +135,14 @@ gbf relink刷完巴武来这边，玩了玩怎么还是刷刷刷，一堆武器�
 通完竞技场才能开</blockquote>
 打完了最强一套拿了已经，主要钥匙不够<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 4016#       发表于 2024-2-20 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005410&amp;ptid=2098044" target="_blank">荆棘花冠 发表于 2024-2-20 08:29</a>
+
+那个要7把还是8把钥匙开的成长区域里面有啥好玩意么，现在血点满了钥匙也不够开那地方的 ...</blockquote>
+全是蓝水晶
+

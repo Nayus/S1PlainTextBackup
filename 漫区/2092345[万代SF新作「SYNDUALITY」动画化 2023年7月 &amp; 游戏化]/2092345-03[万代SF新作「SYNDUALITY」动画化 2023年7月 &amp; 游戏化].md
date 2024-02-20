@@ -409,3 +409,11 @@
 
 哪怕保留谢尔的外形也好啊，不指望声音保留了。或者声音都保留，让谢尔的声优来演诺尔，还能勉强接受
 
+
+*****
+
+####  亚瑟邓特  
+##### 3905#       发表于 2024-2-20 08:47
+
+老鸭就这比样，相似的桥段玩过几回了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

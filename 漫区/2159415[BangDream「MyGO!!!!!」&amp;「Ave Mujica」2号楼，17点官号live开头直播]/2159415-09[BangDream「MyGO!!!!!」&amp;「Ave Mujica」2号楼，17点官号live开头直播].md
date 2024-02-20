@@ -1209,3 +1209,23 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 好高情 ...</blockquote>
 动画里爽世看着祥子跑出去都弹下来了，现实中也是最稳的一个<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13303#       发表于 2024-2-20 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64012544&amp;ptid=2159415" target="_blank">RedSpecial 发表于 2024-2-20 18:56</a>
+
+羔羔羔
+
+能合上就算成功</blockquote>
+毕竟是“船到桥头自然直”了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13304#       发表于 2024-2-20 19:29
+
+看了一下大概是说节奏三人问题不大，青木吉他问题多但唱的部分基本没问题，又回到当初为什么不让太子主唱的问题了，反正猫猫台词没几句找个专业点的吉他手配应该也没什么区别罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

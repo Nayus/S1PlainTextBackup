@@ -979,3 +979,21 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 他反水的可能性起码六成了（
 
+
+*****
+
+####  约翰里德  
+##### 3959#       发表于 2024-2-20 21:06
+
+下半部分没迫害艾莉好不适应啊。
+到时候等机娘赢得时候再看艾莉被迫害吧
+
+*****
+
+####  novyDC  
+##### 3960#       发表于 2024-2-20 21:07
+
+诺娃是家人 艾莉是老婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

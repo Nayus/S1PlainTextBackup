@@ -7597,3 +7597,17 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 现在有黑屏bug,问就是明天修，我们箭头真是太勤劳了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">没准在北欧这真算勤劳了？
 
+
+*****
+
+####  Sayuki1025  
+##### 790#       发表于 2024-2-20 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007277&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-20 11:23</a>
+https://steamcommunity.com/app/5 ... 599331480040314557/
+
+昨天已经有干机房服务的出来喷了 ...</blockquote>
+已封禁<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

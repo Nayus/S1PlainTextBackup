@@ -729,3 +729,21 @@ ciel可能不会g，真g了换身体落俗套了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rainwedell  
+##### 3933#       发表于 2024-2-20 13:11
+
+md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3934#       发表于 2024-2-20 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008443&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-2-20 13:02</a>
+
+看来这个艾达跟游戏那个不是同一个了</blockquote>
+前半部分就有猜测了，另外我在想是阿尔巴哄骗过艾达还是艾达心知肚明不戳穿他，我觉得是后者<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

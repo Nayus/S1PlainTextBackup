@@ -7713,3 +7713,41 @@ BC当房主——A可以流畅玩，我玩有非常严重的延迟和丢包问�
 
 机器人的坦克有4管机枪的防空型还有带主炮的 xx还有带喷气背包的会突你脸上 
 
+
+*****
+
+####  Launce  
+##### 799#       发表于 2024-2-20 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64009267&amp;ptid=2170852" target="_blank">omoito 发表于 2024-2-20 14:21</a>
+
+有ABC 3个朋友和我一起玩，但有超级古怪的联机问题
+
+我当房主——A可以流畅玩，BC连进来就掉线</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑点解析，这屌游戏大概率还是P2P，建议关了加速器试试
+
+*****
+
+####  PlasmaSnake  
+##### 800#       发表于 2024-2-20 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64009267&amp;ptid=2170852" target="_blank">omoito 发表于 2024-2-20 14:21</a>
+
+有ABC 3个朋友和我一起玩，但有超级古怪的联机问题
+
+我当房主——A可以流畅玩，BC连进来就掉线</blockquote>
+这游戏开加速器没用，甚至是副作用，我开了uu会完全进不去任何房间
+
+
+*****
+
+####  赤井稻妻  
+##### 801#       发表于 2024-2-20 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008848&amp;ptid=2170852" target="_blank">CswStar 发表于 2024-2-20 13:40</a>
+
+云起来感觉挺乐的，现在适合入坑吗？还是再等等？另外这游戏野队体验如何？我不太喜欢老ass狂喷新人的游戏
+
+ ...</blockquote>
+我体感主机板问题少点，晚上玩服务器好点，我这几天基本都是晚上玩没遇到过进不去的情况，各种杂七杂八的反作弊引起的问题也没有，但是各种奇葩bug照样会出，比如什么主机卡帧bug，炸房，这几天好像崩溃次数少了，不知道是不是错觉
+

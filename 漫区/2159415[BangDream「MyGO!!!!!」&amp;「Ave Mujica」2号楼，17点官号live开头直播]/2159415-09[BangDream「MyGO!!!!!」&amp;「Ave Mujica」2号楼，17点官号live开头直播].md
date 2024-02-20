@@ -643,3 +643,45 @@ twitter_佐々木李子(@sasakirico)_20240220-030005_1759774896669028805_photo-0
 
 虽然有人可能会说底边抱团才有时间，但她们应该玩的很开心，🐔真好<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13262#       发表于 2024-2-20 11:59
+
+說真的，米澤的距離感真的很<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 13263#       发表于 2024-2-20 12:04
+
+噴了，李子還送了大家對戒，而且是當時剛認識其他四個人沒多久的時候送的
+
+她還很煩惱剛認識就送這個會不會有點重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+但是沒有關係！大家都有好好珍惜這個禮物，ave的大家一起擁有的回憶也在不斷增加<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/20/120258m38p78d7cdd85vh8.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (29.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/120258tafwfokeoo8r8aoz.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240220-040043_1759790155303653693_photo.jpg</strong> (435.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 12:02 上传
+
+*****
+
+####  Alicest  
+##### 13264#       发表于 2024-2-20 12:05
+
+不会mujica里有戒指戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

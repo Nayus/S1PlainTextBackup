@@ -639,3 +639,24 @@ ciel可能不会g，真g了换身体落俗套了
 其实这集本身做得很好，不过牺牲得比较彻底让人心太痛了（虽然诺娃样子感觉都有些变化），不过经历了某片后 ...</blockquote>
 看完这话我感觉艾莉可能要赢了 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3928#       发表于 2024-2-20 11:58
+
+ 本帖最后由 aptx8285144 于 2024-2-20 12:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007423&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-2-20 11:35</a>
+
+这不会影响驾驶？</blockquote>
+这发型长了一条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 3929#       发表于 2024-2-20 12:03
+
+…无语了只能说
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

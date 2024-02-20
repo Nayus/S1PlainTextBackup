@@ -357,7 +357,7 @@
     "lastedit": 1708428014,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2001539": {
     "totalreply": 5625,
@@ -1152,13 +1152,13 @@
     "update": false
   },
   "2064739": {
-    "totalreply": 3216,
+    "totalreply": 3218,
     "title": "[塔防手游无期迷途8月11日公测]",
     "newtitle": "[塔防手游无期迷途8月11日公测]",
-    "lastedit": 1708387814,
+    "lastedit": 1708428313,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2015087": {
     "totalreply": 4740,
@@ -2904,7 +2904,7 @@
     "lastedit": 1708428015,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1203712": {
     "totalreply": 959,
@@ -4464,13 +4464,13 @@
     "update": false
   },
   "2042115": {
-    "totalreply": 5316,
+    "totalreply": 5317,
     "title": "[《碧蓝幻想 Relink》23年1月21日新情报公开，2023年发售]",
     "newtitle": "[《碧蓝幻想 Relink》2024年2月1日发售，Demo已公开]",
-    "lastedit": 1708427718,
+    "lastedit": 1708428313,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2057903": {
     "totalreply": 1182,
@@ -5949,13 +5949,13 @@
     "update": false
   },
   "2092345": {
-    "totalreply": 3941,
+    "totalreply": 3944,
     "title": "[万代SF新作「SYNDUALITY」动画化 2023年7月 &amp; 游戏化]",
     "newtitle": "[万代SF新作「SYNDUALITY」动画化 2023年7月 &amp; 游戏化]",
-    "lastedit": 1708423819,
+    "lastedit": 1708428316,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1550724": {
     "totalreply": 1869,
@@ -6561,13 +6561,13 @@
     "update": false
   },
   "2082084": {
-    "totalreply": 2072,
+    "totalreply": 2073,
     "title": "[如龙8｜Infinite Wealth，2024年1.26登录ps／xbox／pc，支持中配！]",
     "newtitle": "[如龙8｜Infinite Wealth，2024年1.26登录ps／xbox／pc，支持中配！（剧透请反白）]",
-    "lastedit": 1708414216,
+    "lastedit": 1708428313,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1645555": {
     "totalreply": 3299,
@@ -7137,13 +7137,13 @@
     "update": false
   },
   "2166320": {
-    "totalreply": 1905,
+    "totalreply": 1907,
     "title": "[俄乌专楼-1月版]",
     "newtitle": "[俄乌专楼-1月版]",
-    "lastedit": 1708427112,
+    "lastedit": 1708428313,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2164773": {
     "totalreply": 133,
@@ -7596,10 +7596,10 @@
     "update": false
   },
   "2170592": {
-    "totalreply": 10953,
+    "totalreply": 10961,
     "title": "[【Dota2】龙年Dota千斤顶楼]",
     "newtitle": "[【Dota2】龙年Dota讨论楼]",
-    "lastedit": 1708428013,
+    "lastedit": 1708428315,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -7623,13 +7623,13 @@
     "update": false
   },
   "2170519": {
-    "totalreply": 571,
+    "totalreply": 573,
     "title": "[【#10】hololive综合讨论楼]",
     "newtitle": "[【#10】hololive综合讨论楼]",
-    "lastedit": 1708427710,
+    "lastedit": 1708428319,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170612": {
     "totalreply": 1314,
@@ -7647,7 +7647,7 @@
     "lastedit": 1708428013,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -7686,13 +7686,13 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 512,
+    "totalreply": 513,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜新年啦]",
-    "lastedit": 1708427414,
+    "lastedit": 1708428315,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2170764": {
     "totalreply": 1185,
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 13380,
+    "totalreply": 13388,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708428013,
+    "lastedit": 1708428313,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7866,10 +7866,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 2028,
+    "totalreply": 2034,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708428013,
+    "lastedit": 1708428319,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -8766,13 +8766,13 @@
     "update": false
   },
   "2152801": {
-    "totalreply": 358,
+    "totalreply": 360,
     "title": "[香草社×Atlus SRPG新作《圣兽之王》公开，2024年3月8日发售]",
     "newtitle": "[香草社×Atlus SRPG新作《圣兽之王》公开，2024年3月8日发售]",
-    "lastedit": 1708425612,
+    "lastedit": 1708428319,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1943984": {
     "totalreply": 96,
@@ -9123,7 +9123,7 @@
     "lastedit": 1708428013,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2103011": {
     "totalreply": 384,
@@ -10005,7 +10005,7 @@
     "lastedit": 1708428010,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171801": {
     "totalreply": 44,
@@ -10842,7 +10842,7 @@
     "lastedit": 1708428013,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172214": {
     "totalreply": 50,
@@ -11268,13 +11268,13 @@
     "update": false
   },
   "2172312": {
-    "totalreply": 107,
+    "totalreply": 108,
     "title": "[男士洗面奶是智商税吗]",
     "newtitle": "[男士洗面奶是智商税吗]",
-    "lastedit": 1708427713,
+    "lastedit": 1708428310,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172301": {
     "totalreply": 111,
@@ -11346,7 +11346,7 @@
     "lastedit": 1708428013,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2124528": {
     "totalreply": 71,
@@ -11508,7 +11508,7 @@
     "lastedit": 1708428013,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1857186": {
     "totalreply": 171,
@@ -11571,7 +11571,7 @@
     "lastedit": 1708428012,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170479": {
     "totalreply": 44,
@@ -11628,13 +11628,13 @@
     "update": false
   },
   "2150456": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "《哑铃能举多少公斤》作者新作女子格斗漫画《一胜千金》",
     "newtitle": "[《哑铃能举多少公斤》作者新作女子格斗漫画《一胜千金》]",
-    "lastedit": 1708425914,
+    "lastedit": 1708428319,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2155340": {
     "totalreply": 107,
@@ -11826,13 +11826,13 @@
     "update": false
   },
   "2172450": {
-    "totalreply": 105,
+    "totalreply": 106,
     "title": "欧洲的科技水平是什么时候开始爆发甩开东方的？",
     "newtitle": "[欧洲的科技水平是什么时候开始爆发甩开东方的？]",
-    "lastedit": 1708427716,
+    "lastedit": 1708428319,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172196": {
     "totalreply": 63,
@@ -11886,16 +11886,16 @@
     "lastedit": 1708428015,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172458": {
-    "totalreply": 119,
+    "totalreply": 121,
     "title": "首次！大陆海警登船临检金门游艇",
     "newtitle": "[首次！大陆海警登船临检金门游艇]",
-    "lastedit": 1708426218,
+    "lastedit": 1708428319,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172459": {
     "totalreply": 46,

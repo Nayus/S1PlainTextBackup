@@ -815,3 +815,25 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 <img src="https://img.saraba1st.com/forum/202402/20/180514kc4v7i3cxveeivdz.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  八等绝癔  
+##### 3942#       发表于 2024-2-20 19:17
+
+可算可以说话了.....
+
+*****
+
+####  Ditfran  
+##### 3943#       发表于 2024-2-20 19:20
+
+结尾究极牺牲换来两个人格有了独立的实体，原来你才是小绿位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八等绝癔  
+##### 3944#       发表于 2024-2-20 19:20
+
+这集结尾noir不仅说话的感觉有了点青山姐的味（说话时那一连串的疑问词感觉有很浓厚的歉意和不知所措，给人一种这孩子好像聪明了点儿的感觉（还挺喜欢的
+

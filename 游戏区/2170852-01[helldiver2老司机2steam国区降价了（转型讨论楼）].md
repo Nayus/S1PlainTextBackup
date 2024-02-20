@@ -7415,3 +7415,21 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 笑死，奖章有上限，数量250，别屯着一次性解锁，该花就花</blockquote>
 啊？超级战争债券不是要1000章解锁么？
 
+
+*****
+
+####  gzGaryC  
+##### 772#       发表于 2024-2-20 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006342&amp;ptid=2170852" target="_blank">2VYBGp94 发表于 2024-2-20 10:14</a>
+
+啊？超级战争债券不是要1000章解锁么？</blockquote>
+1000超级货币
+
+*****
+
+####  赤井稻妻  
+##### 773#       发表于 2024-2-20 10:19
+
+这游戏如果离线单人不如不玩，整体难度设计就是按照多人合作来的
+

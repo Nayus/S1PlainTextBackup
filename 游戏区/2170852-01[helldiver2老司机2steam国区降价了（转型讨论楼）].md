@@ -7874,3 +7874,13 @@ nm米国人怎么还不睡觉，这个时段还30万人，明天不用上班吗�
 
 越来越早了
 
+
+*****
+
+####  looptube  
+##### 813#       发表于 2024-2-20 21:22
+
+连着好几天都没办法匹配了，是我的问题还是游戏问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -146,3 +146,14 @@ gbf relink刷完巴武来这边，玩了玩怎么还是刷刷刷，一堆武器�
 那个要7把还是8把钥匙开的成长区域里面有啥好玩意么，现在血点满了钥匙也不够开那地方的 ...</blockquote>
 全是蓝水晶
 
+
+*****
+
+####  荆棘花冠  
+##### 4017#       发表于 2024-2-20 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005479&amp;ptid=2098044" target="_blank">adretyu67. 发表于 2024-2-20 08:40</a>
+
+全是蓝水晶</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">那晚点再开了
+

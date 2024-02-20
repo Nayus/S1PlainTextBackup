@@ -76,7 +76,7 @@ if __name__ == '__main__':
     forumdict = {'外野': '75','虚拟主播区专楼':'151','游戏区':'4','漫区':'6','手游专楼':'135'}
     # forumdict = {'外野': '75','游戏区':'4','漫区':'6'}
     rootdir = "./"
-    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
         thdata = json.load(f)
     for i in thdata.keys():
         thdata[i]['update'] = False
@@ -112,15 +112,15 @@ if __name__ == '__main__':
                     thdata[l]["active"] =  True
                     thdata[l]["update"] =  True
                     print('add:'+l)
-        with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+        with open(rootdir+'RefreshingData.json',"w",encoding='utf-8-sig') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
     activethdata={}
-    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
             thdata=json.load(f)
     for i in thdata.keys():
         # if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number) or(thdata[i]['totalreply'] // 30 > high_level):
         if(thdata[i]['active']) or ((int(time.time()) - thdata[i]['lastedit']) < 1209600) or(thdata[i]['totalreply'] // 40 > high_level):
             #缓存14天
             activethdata[i] = thdata[i]
-    with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+    with open(rootdir+'RefreshingData.json',"w",encoding='utf-8-sig') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))

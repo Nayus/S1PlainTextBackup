@@ -66,7 +66,7 @@ def parse_html(html):
 #         f.write('> ## **本文件最后更新于'+lasttimestamp+'** \n\n'+content)
 
 def thread_dict(thdir,thdict):
-    with open(thdir,'r',encoding='UTF-8') as f:
+    with open(thdir,'r',encoding='UTF-8-sig') as f:
         lines = f.readlines()
         a = ''
         for line in lines:
@@ -85,7 +85,7 @@ def thread_merge(oridir,desdir):
     result = ''
     for i in sorted(list(set(ori.keys())-set(des.keys()))):
         result = result +  ("*****") + ori[i]
-    with open (desdir,'a',encoding='UTF-8')as f:
+    with open (desdir,'a',encoding='UTF-8-sig')as f:
         f.write(result)
     os.remove(oridir)
 
@@ -182,7 +182,7 @@ for line in cookie_str.split(';'):
     # 设置请求头
 headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/60.0.3112.113 Safari/537.36'}
 rootdir="/home/riko/S1PlainTextBackup/"
-with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+with open(rootdir+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
     thdata=json.load(f)
 
 async def UpdateThread(threaddict,semaphore):
@@ -250,12 +250,12 @@ async def UpdateThread(threaddict,semaphore):
                         #增量更新不再创建时间戳
                         pages = '%02d' %math.ceil(contentdict[str(replynum)]['page']/37)
                         filename = str(threaddict['id'])+'-'+str(pages)+titles+'.md'
-                        with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8') as f:
+                        with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8-sig') as f:
                             f.write(contentdict[str(replynum)]['content'])
                     thdata[threaddict['id']]['totalreply'] = max(list(map(int,contentdict.keys())))
                     thdata[threaddict['id']]['lastedit'] = int(time.time())
                     thdata[threaddict['id']]['title'] = titles
-                    with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+                    with open(rootdir+'RefreshingData.json',"w",encoding='utf-8-sig') as f:
                         f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
     except Exception as e:
         # with open(rootdir+'ErrorLog.txt','a',encoding='utf-8') as f:
@@ -282,6 +282,6 @@ async def main():
     await asyncio.gather(*tasks)
 
 if __name__ == '__main__':
-    with open(rootdir+'ErrorLog.txt','w',encoding='utf-8') as f:
+    with open(rootdir+'ErrorLog.txt','w',encoding='utf-8-sig') as f:
         f.write('\n')
     asyncio.run(main())

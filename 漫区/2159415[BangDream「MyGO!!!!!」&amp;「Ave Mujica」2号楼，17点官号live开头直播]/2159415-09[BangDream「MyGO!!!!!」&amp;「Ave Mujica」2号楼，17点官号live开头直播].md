@@ -1060,3 +1060,13 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 金发紫瞳，难道是朝日奈未来<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13294#       发表于 2024-2-20 17:50
+
+外圈感觉有点淡紫色<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -503,3 +503,16 @@
 啊不是吧，真的半点都不剩了吗，老鸭你在写瘠薄</blockquote>
 感觉古贺葵的声音变了
 
+
+*****
+
+####  aptx8285144  
+##### 3915#       发表于 2024-2-20 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005622&amp;ptid=2092345" target="_blank">secretgarnet 发表于 2024-2-20 08:58</a>
+
+唉，实际看完这集除了ciel的结局不能接受以外其他部分做的还挺好的，这下更难受了
+
+有两处很意外的地方：一 ...</blockquote>
+艾女士也就是实验时主动上去握手吧，现在在场的也就她和彼方相伴最久，再不给他一些支持怎么行呢，话说彼方在机舱里回忆杀结束时的BGM应该是新的，真好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

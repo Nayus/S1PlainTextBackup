@@ -1057,3 +1057,13 @@ bgm上的参与的作品，属于还行一般萌系，肯定不如sc了。
 —— 来自 S1Fun</blockquote>
 有的，有一期跟IRIAM的联动直播，不过里面的v我都不认识也没兴趣看。
 
+
+*****
+
+####  Srchy  
+##### 1178#       发表于 2024-2-20 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好消息：不是山寨星街彗星
+
+坏消息：是真星街彗星
+

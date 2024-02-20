@@ -192,7 +192,7 @@ async def UpdateThread(threaddict,semaphore):
             if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 259200):
             #3天过期
                 thdata[threaddict['id']]['active'] = False
-                if(totalpage > 37):
+                if(thdata[threaddict['id']]['totalreply'] > 37*40):
                     filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
                 else:
                     filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'

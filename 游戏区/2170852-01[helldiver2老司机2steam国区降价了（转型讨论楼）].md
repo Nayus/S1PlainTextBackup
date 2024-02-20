@@ -7681,3 +7681,35 @@ https://steamcommunity.com/app/5 ... 599331480040314557/
  ...</blockquote>
 如果你有朋友，或者是相信自己运气好不会碰到各种问题的话可以入，现在就是典型的能玩的朋友在爽玩/已经爽完不说话，运气不好玩不上的朋友就会抓狂狂喷的状态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  omoito  
+##### 797#       发表于 2024-2-20 14:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有ABC 3个朋友和我一起玩，但有超级古怪的联机问题
+
+我当房主——A可以流畅玩，BC连进来就掉线
+
+A当房主——我连进去就掉线，BC可以流畅玩
+
+BC当房主——A可以流畅玩，我玩有非常严重的延迟和丢包问题
+
+啥情况这<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+宽带是深圳电信，加速器是UU<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LrGsite  
+##### 798#       发表于 2024-2-20 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005995&amp;ptid=2170852" target="_blank">nagamasa 发表于 2024-2-20 09:41</a>
+
+指南里有毛子老哥放了敌人图鉴https://steamcommunity.com/sharedfiles/filedetails/?id=3159962969 ...</blockquote>
+他这不全，这代怪物还挺多的
+
+光虫子的那个武斗虫都有带酸的变种 还有小个的单独喷酸的 大的喷酸虫有黄色绿色两种的 另外从宣传图里怕不是以后还有会飞的
+
+机器人的坦克有4管机枪的防空型还有带主炮的 xx还有带喷气背包的会突你脸上 
+

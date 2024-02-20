@@ -945,12 +945,12 @@
     "update": false
   },
   "1976031": {
-    "totalreply": 7718,
+    "totalreply": 7719,
     "title": "[宇宙第一管人论坛（屎黄色）语录鉴赏专楼]",
     "newtitle": "[宇宙第一管人论坛（屎黄色）语录鉴赏专楼]",
-    "lastedit": 1708076160,
+    "lastedit": 1708452610,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2059072": {
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 13710,
+    "totalreply": 13711,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708452309,
+    "lastedit": 1708452610,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9477,10 +9477,10 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 2764,
+    "totalreply": 2768,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708452008,
+    "lastedit": 1708452608,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9504,10 +9504,10 @@
     "update": false
   },
   "2169679": {
-    "totalreply": 126,
+    "totalreply": 127,
     "title": "[【白荆回廊】新年新池送百抽！红玉&amp;百里屠苏！]",
     "newtitle": "[【白荆回廊】新年新池送百抽！红玉&amp;百里屠苏！]",
-    "lastedit": 1707997140,
+    "lastedit": 1708452610,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11232,10 +11232,10 @@
     "update": false
   },
   "2172248": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[请推荐我一些有究极念旧颠佬的作品 感谢！]",
     "newtitle": "[请推荐我一些有究极念旧颠佬的作品 感谢！]",
-    "lastedit": 1708421117,
+    "lastedit": 1708452610,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11889,10 +11889,10 @@
     "update": false
   },
   "2172458": {
-    "totalreply": 145,
+    "totalreply": 146,
     "title": "[首次！大陆海警登船临检金门游艇]",
     "newtitle": "[首次！大陆海警登船临检金门游艇]",
-    "lastedit": 1708452309,
+    "lastedit": 1708452610,
     "category": "外野",
     "active": true,
     "update": false
@@ -12078,10 +12078,10 @@
     "update": false
   },
   "2172408": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[FA动画化如果是在废狗手游之前风评会好吗]",
     "newtitle": "[FA动画化如果是在废狗手游之前风评会好吗]",
-    "lastedit": 1708447212,
+    "lastedit": 1708452610,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12236,6 +12236,15 @@
     "newtitle": "[【NSFW】日南mkt利香nico会限讨论贴]",
     "lastedit": 1708450518,
     "category": "虚拟主播区专楼",
+    "active": true,
+    "update": false
+  },
+  "2167051": {
+    "totalreply": 161,
+    "title": "[重开一个电子卡牌楼]",
+    "newtitle": "[重开一个电子卡牌楼]",
+    "lastedit": 1708452613,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

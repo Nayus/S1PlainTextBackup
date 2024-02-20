@@ -836,3 +836,132 @@ ave mujica这个团建频率和密切程度，我之前只在虹咲见过。
 
 抽了5个tomori，一井都没有soyo和立希<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13280#       发表于 2024-2-20 15:20
+
+結月生日迪士尼聚會的DLC<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+[https://twitter.com/okada_mei0519/status/1759837549177245738](https://twitter.com/okada_mei0519/status/1759837549177245738)
+
+<img src="https://img.saraba1st.com/forum/202402/20/151304b2qwlzl4livt2ov1.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_岡田 夢以(@okada_mei0519)_20240220-070902_1759837549177245738_photo-0.jpg</strong> (439.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:13 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151314bntm063uem6il0lj.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_岡田 夢以(@okada_mei0519)_20240220-070902_1759837549177245738_photo-1.jpg</strong> (315.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:13 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151322fsoggs6pprzpspys.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_岡田 夢以(@okada_mei0519)_20240220-070902_1759837549177245738_photo-2.jpg</strong> (340.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:13 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151325l12536i1hi5wwvwi.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_岡田 夢以(@okada_mei0519)_20240220-070902_1759837549177245738_photo-3.jpg</strong> (267.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:13 上传
+
+[https://twitter.com/Kanon_Takao/status/1759831952612552950](https://twitter.com/Kanon_Takao/status/1759831952612552950)
+
+<img src="https://img.saraba1st.com/forum/202402/20/151332kt560bid5f5kfbfk.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240220-064648_1759831952612552950_photo-0.jpg</strong> (285.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:13 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151341xat3e3kecpp24c1e.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240220-064648_1759831952612552950_photo-1.jpg</strong> (242.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:13 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151351aar2q2x2iia0zcy2.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240220-064648_1759831952612552950_photo-2.jpg</strong> (465.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:13 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151357r6yce6y8o8ke8jy8.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240220-064648_1759831952612552950_photo-3.jpg</strong> (247.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:13 上传
+
+[https://twitter.com/AkaneY_banu/status/1759827828349235335](https://twitter.com/AkaneY_banu/status/1759827828349235335)
+
+<img src="https://img.saraba1st.com/forum/202402/20/151401adc2x2a9bzix3mll.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240220-063024_1759827828349235335_photo-0.jpg</strong> (365.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151409fz2ajmhawc0w0j27.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240220-063024_1759827828349235335_photo-1.jpg</strong> (505.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151417uk7z6607b45556bb.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240220-063024_1759827828349235335_photo-2.jpg</strong> (361.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/151420gy0jlryuzl7zuzk7.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240220-063024_1759827828349235335_photo-3.jpg</strong> (115.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 15:14 上传
+
+
+*****
+
+####  PDQ4  
+##### 13281#       发表于 2024-2-20 15:21
+
+营业有点太多了，被填满了要溢出来了，吃撑了有点，你们能不能每周都营业，每月都团建<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  可爱美味祥子  
+##### 13282#       发表于 2024-2-20 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64009921&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-20 15:20</a>
+結月生日迪士尼聚會的DLC 
+
+https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
+最接近一辈子乐队的一集
+

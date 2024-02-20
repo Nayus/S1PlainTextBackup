@@ -7385,3 +7385,33 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 想绑定psn但是每次都转跳到国服ps界面提示该地区没有该服务，这个怎么解决 ...</blockquote>
 左下角把网站区域语言从中国大陆改成中国香港(简中)
 
+
+*****
+
+####  2VYBGp94  
+##### 769#       发表于 2024-2-20 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005941&amp;ptid=2170852" target="_blank">BK10 发表于 2024-2-20 09:35</a>
+
+纯现代游戏癌症，就是要全程在线，那些想一个人玩的会减少多少服务器压力，就和payday3一样，垃圾小作坊没 ...</blockquote>
+一切为了微交易，不全程在线钱从哪来<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BK10  
+##### 770#       发表于 2024-2-20 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006306&amp;ptid=2170852" target="_blank">2VYBGp94 发表于 2024-2-20 10:11</a>
+一切为了微交易，不全程在线钱从哪来</blockquote>
+知道这么回事，但是依然现代之癌
+
+*****
+
+####  2VYBGp94  
+##### 771#       发表于 2024-2-20 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003943&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-19 22:53</a>
+
+笑死，奖章有上限，数量250，别屯着一次性解锁，该花就花</blockquote>
+啊？超级战争债券不是要1000章解锁么？
+

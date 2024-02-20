@@ -157,3 +157,18 @@ gbf relink刷完巴武来这边，玩了玩怎么还是刷刷刷，一堆武器�
 全是蓝水晶</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">那晚点再开了
 
+
+*****
+
+####  christiny  
+##### 4018#       发表于 2024-2-20 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64004933&amp;ptid=2098044" target="_blank">ReginaldMorgan 发表于 2024-2-20 02:08</a>
+
+dlc有点想云掉了
+
+主要本篇的刷实际上有着明确的剧情作为分割点，所以其实强度并不怎么高。到了本篇新章的 ...</blockquote>
+DLC云都没啥内容可以云<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+玩法就是玩个成长，打新装备。
+

@@ -48,3 +48,16 @@ donk又给ence宰猪了
 
 a队差点打赢了雪碧还挺意外的，估计major大家适应打法后donk轰不出卡托这种现象级表现了。飞猪不就出来玩一会找找状态的，石油佬一共就一个复活赛称得上准一线赛事
 
+
+*****
+
+####  三千珈蓝  
+##### 3991#       发表于 2024-2-20 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64009982&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2024-2-20 15:24</a>
+
+a队差点打赢了雪碧还挺意外的，估计major大家适应打法后donk轰不出卡托这种现象级表现了。飞猪不就出来玩一 ...</blockquote>
+大厦是donk最菜的一张图，打这张看新闻里的意思算是绿龙bp失误了
+
+不过毕竟有绀碧大厦的真核之一，全队的强度还行
+

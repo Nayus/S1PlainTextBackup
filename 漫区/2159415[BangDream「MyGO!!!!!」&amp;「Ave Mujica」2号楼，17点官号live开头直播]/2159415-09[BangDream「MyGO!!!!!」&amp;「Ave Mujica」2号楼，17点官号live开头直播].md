@@ -1197,3 +1197,15 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 好高情商的评价，爽姐看到人跑路手上都没弹劈原来是取材自现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木谷高明  
+##### 13302#       发表于 2024-2-20 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64012615&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-20 19:04</a>
+不过她们的配合还是不错的，纵使主唱跑调再离谱，或者直接没声，演奏都能不停顿继续，直到主唱回来
+
+好高情 ...</blockquote>
+动画里爽世看着祥子跑出去都弹下来了，现实中也是最稳的一个<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

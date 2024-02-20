@@ -699,7 +699,7 @@
     "lastedit": 1708390522,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2047770": {
     "totalreply": 691,
@@ -5955,7 +5955,7 @@
     "lastedit": 1708390522,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1550724": {
     "totalreply": 1869,
@@ -6729,7 +6729,7 @@
     "lastedit": 1708390515,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2160853": {
     "totalreply": 822,
@@ -7602,7 +7602,7 @@
     "lastedit": 1708390522,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170332": {
     "totalreply": 300,
@@ -7647,7 +7647,7 @@
     "lastedit": 1708390522,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -7701,7 +7701,7 @@
     "lastedit": 1708390522,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2168002": {
     "totalreply": 126,
@@ -7719,7 +7719,7 @@
     "lastedit": 1708390522,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2112844": {
     "totalreply": 544,
@@ -8727,7 +8727,7 @@
     "lastedit": 1708390515,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171595": {
     "totalreply": 96,
@@ -10653,7 +10653,7 @@
     "lastedit": 1708390511,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2022126": {
     "totalreply": 69,
@@ -10932,7 +10932,7 @@
     "lastedit": 1708390522,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172240": {
     "totalreply": 162,
@@ -11283,7 +11283,7 @@
     "lastedit": 1708390517,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172297": {
     "totalreply": 81,
@@ -11346,7 +11346,7 @@
     "lastedit": 1708390512,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2124528": {
     "totalreply": 71,
@@ -11391,7 +11391,7 @@
     "lastedit": 1708390522,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172336": {
     "totalreply": 64,
@@ -11436,7 +11436,7 @@
     "lastedit": 1708390522,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172356": {
     "totalreply": 76,
@@ -11499,7 +11499,7 @@
     "lastedit": 1708390526,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172255": {
     "totalreply": 63,
@@ -11508,7 +11508,7 @@
     "lastedit": 1708390526,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1857186": {
     "totalreply": 171,
@@ -11544,7 +11544,7 @@
     "lastedit": 1708344300,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172391": {
     "totalreply": 67,
@@ -11625,7 +11625,7 @@
     "lastedit": 1708390522,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2150456": {
     "totalreply": 68,
@@ -11661,7 +11661,7 @@
     "lastedit": 1708363800,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172340": {
     "totalreply": 45,
@@ -11679,6 +11679,6 @@
     "lastedit": 1708390527,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }

@@ -139,3 +139,13 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 在确认给了mihon应用列表读取权限、在设置-浏览-勾选显示18+图源、在插件列表筛选中勾选“中文”（不是简 ...</blockquote>
 弄好了 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mumulyn  
+##### 175#       发表于 2024-2-20 16:38
+
+漫画柜的插件是出问题了么，可以更新列表，但点进去加载图片失败
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

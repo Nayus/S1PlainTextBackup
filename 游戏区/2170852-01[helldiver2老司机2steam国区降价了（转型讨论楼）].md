@@ -7364,3 +7364,24 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 
 想绑定psn但是每次都转跳到国服ps界面提示该地区没有该服务，这个怎么解决来自: iPhone客户端
 
+
+*****
+
+####  丹德里恩  
+##### 767#       发表于 2024-2-20 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006018&amp;ptid=2170852" target="_blank">御风沐雪 发表于 2024-2-20 09:43</a>
+
+想绑定psn但是每次都转跳到国服ps界面提示该地区没有该服务，这个怎么解决 ...</blockquote>
+挂梯子啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人生短短几个秋  
+##### 768#       发表于 2024-2-20 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006018&amp;ptid=2170852" target="_blank">御风沐雪 发表于 2024-2-20 09:43</a>
+
+想绑定psn但是每次都转跳到国服ps界面提示该地区没有该服务，这个怎么解决 ...</blockquote>
+左下角把网站区域语言从中国大陆改成中国香港(简中)
+

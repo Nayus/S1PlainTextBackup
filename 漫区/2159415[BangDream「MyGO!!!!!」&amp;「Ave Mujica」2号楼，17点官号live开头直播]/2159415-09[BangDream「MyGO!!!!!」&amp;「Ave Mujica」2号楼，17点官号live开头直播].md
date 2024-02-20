@@ -1038,3 +1038,25 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 金发确实，但紫瞳我看不出来<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">说起来，mujica的连续5月新曲呢，都2月底了
 
+
+*****
+
+####  NODY  
+##### 13291#       发表于 2024-2-20 17:41
+
+以mujica追求中二的作风，没准故意放在四年一度的2月29号才发，这不是超酷的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 13292#       发表于 2024-2-20 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">专业的武士道受害者敢于下判断，发一单之前就把二单/迷你专新曲放出来并不合理，所以大胆判断连续五月指的是一单发售后的4月底/五月初开始放出
+
+*****
+
+####  紫吹兰  
+##### 13293#         楼主| 发表于 2024-2-20 17:49
+
+金发紫瞳，难道是朝日奈未来<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

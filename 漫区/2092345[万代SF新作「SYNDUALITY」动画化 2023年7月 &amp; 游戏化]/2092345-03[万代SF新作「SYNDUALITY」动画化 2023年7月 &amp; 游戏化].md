@@ -747,3 +747,31 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 看来这个艾达跟游戏那个不是同一个了</blockquote>
 前半部分就有猜测了，另外我在想是阿尔巴哄骗过艾达还是艾达心知肚明不戳穿他，我觉得是后者<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 3935#       发表于 2024-2-20 13:21
+
+诺瓦变辫子不梳起来变长发了…铁血短发党破防了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 3936#       发表于 2024-2-20 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008542&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-20 13:11</a>
+
+前半部分就有猜测了，另外我在想是阿尔巴哄骗过艾达还是艾达心知肚明不戳穿他，我觉得是后者 ...</blockquote>
+群友脑洞说现在这个艾达是阿尔巴根据死？后的艾达自己造的，毕竟铺垫过他会自己造magus（
+
+*****
+
+####  novyDC  
+##### 3937#       发表于 2024-2-20 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008698&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-02-20 13:24:48</a>
+群友脑洞说现在这个艾达是阿尔巴根据死？后的艾达自己造的，毕竟铺垫过他会自己造magus（ ...</blockquote>身体应该是同一个 只是记忆没了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

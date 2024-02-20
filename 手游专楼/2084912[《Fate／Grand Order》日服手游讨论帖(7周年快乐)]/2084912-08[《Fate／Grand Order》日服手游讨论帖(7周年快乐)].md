@@ -99,3 +99,20 @@ MD绿卡还是太菜了，该给个新增幅器了
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  eilot  
+##### 11404#       发表于 2024-2-20 23:49
+
+一口氣打活動去到最後那個冥界洞穴，動作超卡，
+
+最後手動彈出再重開，就恢復正常
+
+*****
+
+####  清河子  
+##### 11405#       发表于 2024-2-20 23:49
+
+缺精灵根，摸了，拿卡莲脚打90+了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

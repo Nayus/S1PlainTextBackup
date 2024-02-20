@@ -1351,3 +1351,11 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 
 但是这种忍不住尖叫的话鬼屋肯定也会大放异彩，我是这么判断的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  間桐櫻  
+##### 13318#       发表于 2024-2-20 23:51
+
+看到有烤卖狗LIVE全队的, 不吹不黑, 银河舰队的LIVE是不是相对完美<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

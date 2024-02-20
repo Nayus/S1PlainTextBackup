@@ -399,3 +399,12 @@ dlc有捷豹吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Teiume  
+##### 3060#       发表于 2024-2-20 20:56
+
+不是8格射程+全图索敌已经是乌研所往开一面惹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+翻到有解包说大王和螃蟹的装甲加了修正内容，会削吗
+

@@ -40,3 +40,11 @@
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kobushi  
+##### 5427#       发表于 2024-2-20 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那管人吃只爆一次米不够，该死的夕阳游戏还是会暴毙的，不如名字正式改成Starlight holo stage，把负资产190个人删了吧
+

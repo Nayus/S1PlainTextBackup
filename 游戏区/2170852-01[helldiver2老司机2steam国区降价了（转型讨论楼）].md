@@ -7556,3 +7556,26 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 [https://steamcommunity.com/app/5 ... 599331480040314557/](https://steamcommunity.com/app/553850/discussions/0/7599331480040314557/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天已经有干机房服务的出来喷了
 
+
+*****
+
+####  Launce  
+##### 786#       发表于 2024-2-20 11:33
+
+<img src="https://img.saraba1st.com/forum/202402/20/113219gg7ssxy46xxzu4mo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 11:32 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">69%了，感觉新BUG补丁上线还有下探空间
+
+*****
+
+####  赤井稻妻  
+##### 787#       发表于 2024-2-20 11:35
+
+前作单人实在太枯燥了，信标丢全场然后到处做任务捡样本回家，连怪都见不到几个，多人体验又不稳定，几个人心不齐还不如单人
+

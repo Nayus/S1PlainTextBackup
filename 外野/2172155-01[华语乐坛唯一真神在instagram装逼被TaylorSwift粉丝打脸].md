@@ -965,3 +965,13 @@ travis scott<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 后者最有名的应该是残夏
 
+
+*****
+
+####  johnie  
+##### 102#       发表于 2024-2-20 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005231&amp;ptid=2172155" target="_blank">嘉峪君 发表于 2024-2-20 07:52</a>
+在华语圈最出圈的歌应该是Love Story</blockquote>
+应该是纽约市歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 唐人街探案2用来当主题曲
+

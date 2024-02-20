@@ -7339,3 +7339,28 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 
 纯现代游戏癌症，就是要全程在线，那些想一个人玩的会减少多少服务器压力，就和payday3一样，垃圾小作坊没本事就别搞全程在线，让愿意单人去离线能缓解不少压力
 
+
+*****
+
+####  nagamasa  
+##### 764#       发表于 2024-2-20 09:41
+
+指南里有毛子老哥放了敌人图鉴<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PlasmaSnake  
+##### 765#       发表于 2024-2-20 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005887&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-2-20 09:30</a>
+
+贴吧有帖子说替换一个游戏文件成开服数据就能匹配了，然后还能接着卡4迫击炮... ...</blockquote>
+亲测可以，昨天还想在楼里发链接结果没发出来，但是基本上只能匹配到一个人然后双人玩
+
+*****
+
+####  御风沐雪  
+##### 766#       发表于 2024-2-20 09:43
+
+想绑定psn但是每次都转跳到国服ps界面提示该地区没有该服务，这个怎么解决来自: iPhone客户端
+

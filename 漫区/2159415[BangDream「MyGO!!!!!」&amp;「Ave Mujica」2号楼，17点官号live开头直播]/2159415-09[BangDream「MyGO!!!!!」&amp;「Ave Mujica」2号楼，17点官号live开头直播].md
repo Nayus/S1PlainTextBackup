@@ -376,3 +376,25 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 有个问题求助万能的漏油，推上画了一堆初0的kkm338老师账号显示不存在了，这位画师有其他账号吗
 
+
+*****
+
+####  米拉苏尔  
+##### 13245#       发表于 2024-2-20 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005685&amp;ptid=2159415" target="_blank">朔洵千夜 发表于 2024-2-20 09:09</a>
+有个问题求助万能的漏油，&amp;#x6 ...</blockquote>
+是去bluesky了吧，最近日推很多人在转移账号
+她还有一个蓝鸟号来着我看看
+
+*****
+
+####  特拉·特尔特  
+##### 13246#       发表于 2024-2-20 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005685&amp;ptid=2159415" target="_blank">朔洵千夜 发表于 2024-2-20 09:09</a>
+有个问题求助万能的漏油，&amp;#x6 ...</blockquote>
+<img src="https://p.sda1.dev/15/a2722f98c2fb76e0ba026d778d38391e/CMP_20240220092421006.jpg" referrerpolicy="no-referrer">
+本来以为这个是她，现在有点不确定了
+原来那个号一开始是画天Q的，可能是天Q完结就删号了
+

@@ -1359,3 +1359,21 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 
 看到有烤卖狗LIVE全队的, 不吹不黑, 银河舰队的LIVE是不是相对完美<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 13319#       发表于 2024-2-21 00:34
+
+ 本帖最后由 基神的强袭自由 于 2024-2-21 00:37 编辑 
+
+<img src="https://img.saraba1st.com/forum/202402/21/003339cdmv44jqqqm1b282.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 00:33 上传
+
+可以让OYU再写一副吗<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
+

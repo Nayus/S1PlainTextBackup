@@ -7544,3 +7544,15 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 先修好那逼服务器和各种闪退再说内容吧</blockquote>
 服务器容量都有问题，瑞典佬脑子慢几拍，前几天刚换了45万人的服务器，现在单平台都快到这个数字了
 
+
+*****
+
+####  Launce  
+##### 785#       发表于 2024-2-20 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007217&amp;ptid=2170852" target="_blank">ナルバレック 发表于 2024-2-20 11:17</a>
+
+服务器容量都有问题，瑞典佬脑子慢几拍，前几天刚换了45万人的服务器，现在单平台都快到这个数字了 ...</blockquote>
+[https://steamcommunity.com/app/5 ... 599331480040314557/](https://steamcommunity.com/app/553850/discussions/0/7599331480040314557/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天已经有干机房服务的出来喷了
+

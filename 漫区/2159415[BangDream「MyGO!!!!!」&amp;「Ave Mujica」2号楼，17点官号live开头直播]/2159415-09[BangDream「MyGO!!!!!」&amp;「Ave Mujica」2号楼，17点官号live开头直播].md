@@ -1333,3 +1333,11 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 
 绝交系，可以重铸鬼屋荣光吗<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13316#       发表于 2024-2-20 22:38
+
+絕叫系不包括鬼屋，通常指雲霄飛車、海盜船、自由落體這種通過高速的運轉讓人不禁尖叫的遊樂設施<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

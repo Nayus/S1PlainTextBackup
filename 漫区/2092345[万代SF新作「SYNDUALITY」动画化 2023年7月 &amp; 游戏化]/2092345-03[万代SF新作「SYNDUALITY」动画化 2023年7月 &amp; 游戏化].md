@@ -516,3 +516,32 @@
 有两处很意外的地方：一 ...</blockquote>
 艾女士也就是实验时主动上去握手吧，现在在场的也就她和彼方相伴最久，再不给他一些支持怎么行呢，话说彼方在机舱里回忆杀结束时的BGM应该是新的，真好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 3916#       发表于 2024-2-20 10:44
+
+会不会继承歌姬的技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ibcsa  
+##### 3917#       发表于 2024-2-20 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63951905&amp;ptid=2092345" target="_blank">ParadiseMartyr 发表于 2024-2-13 11:26</a>
+
+ciel可能不会g，真g了换身体落俗套了
+
+换了相当于把kanata的原则“人和magus没有区分”给否定了，kan ...</blockquote>
+真 俗套了
+
+*****
+
+####  aptx8285144  
+##### 3918#       发表于 2024-2-20 10:45
+
+彼方在机舱的回忆也算是撑起了前半部分的意义了，只是心会更痛吧，如果说16话对艾女士的托孤以及各种心理活动撑起了诺娃的塑造，那到现在还只是初步理解这个世界的米斯缇和主角团之间的关联就很薄弱，而且按照她对夏尔说过的那样，她认为贤士和人类“终究不同”，总感觉她呆在彼方身边动机是薄弱的
+

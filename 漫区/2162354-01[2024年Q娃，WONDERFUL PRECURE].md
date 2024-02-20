@@ -1612,3 +1612,14 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  zyw0  
+##### 1053#       发表于 2024-2-20 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005475&amp;ptid=2162354" target="_blank">毛头小希 发表于 2024-2-20 08:40</a>
+
+虽然纯属我个人的理解，既然这代的主题是“人与动物的关系”，那猫狗必然要是普通地球动物——顶多后面变获 ...</blockquote>
+考虑到q娃最近一贯的在背景故事上偷懒的毛病，大概率他们真的是这么想的。
+

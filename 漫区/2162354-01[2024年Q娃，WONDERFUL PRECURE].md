@@ -1602,3 +1602,13 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 
 顺带一提眼镜男声优是寺岛，佐藤聪美老公，由于有男大师和歌王子两大偶像企划助阵也是女性向人气声优之一了（就是应该算不上一线），不过我这老古板因为心连情结事件对这位有点梁木，所以声优公布后就对眼镜男没啥兴趣了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 1052#       发表于 2024-2-20 08:53
+
+第三话这眼镜男是有点太抢戏了，后续看戏份吧，真要搞出个男主角戏份就溜了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

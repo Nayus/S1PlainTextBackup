@@ -417,3 +417,13 @@
 
 老鸭就这比样，相似的桥段玩过几回了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  secretgarnet  
+##### 3906#       发表于 2024-2-20 08:58
+
+唉，实际看完这集除了ciel的结局不能接受以外其他部分做的还挺好的，这下更难受了
+
+有两处很意外的地方：一是埋了alba和ada往事的伏笔（游戏时间线），似乎ada以前尝试过自尽？另一个就是艾莉居然主动A上去了，这个完全没想到
+

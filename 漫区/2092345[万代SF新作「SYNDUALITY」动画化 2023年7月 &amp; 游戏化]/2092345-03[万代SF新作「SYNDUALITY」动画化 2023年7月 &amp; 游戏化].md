@@ -601,3 +601,30 @@ ciel可能不会g，真g了换身体落俗套了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyDC  
+##### 3925#       发表于 2024-2-20 11:35
+
+这不会影响驾驶？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/20/113513vmx0oy7zfxm0ey5c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-20-11-33-40-420_tv.danmaku.bili.jpg</strong> (802.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 11:35 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aptx8285144  
+##### 3926#       发表于 2024-2-20 11:36
+
+其实这集本身做得很好，不过牺牲得比较彻底让人心太痛了（虽然诺娃样子感觉都有些变化），不过经历了某片后，我对包饺子不是没有反感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，在那之前唱歌神曲并不能代替间谍线如何处理的关键，而在诺娃的心理活动主场的16话之前，我认为这三个人最立体的反而是艾女士，不仅仅是被迫害与感情戏的乐子，有纠结但识大体，前半部分死守阵地时回忆瞬间的决意，和姐姐谈过后决定一起出发，种种伏笔也为诺娃的托孤埋下了重要的呼应，当然了，如果说另一人格看出夏尔心理纠结而决定“托孤”艾女士的话JPG
+
+所以艾女士快点换成洗澡时候的发型呀JPG
+

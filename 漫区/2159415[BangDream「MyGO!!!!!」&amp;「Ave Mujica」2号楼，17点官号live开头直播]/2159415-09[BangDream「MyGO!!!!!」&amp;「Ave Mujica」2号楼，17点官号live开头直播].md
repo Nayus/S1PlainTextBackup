@@ -1229,3 +1229,11 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 看了一下大概是说节奏三人问题不大，青木吉他问题多但唱的部分基本没问题，又回到当初为什么不让太子主唱的问题了，反正猫猫台词没几句找个专业点的吉他手配应该也没什么区别罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  harukage  
+##### 13305#       发表于 2024-2-20 19:47
+
+soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话，两段对比一下真的太能夹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

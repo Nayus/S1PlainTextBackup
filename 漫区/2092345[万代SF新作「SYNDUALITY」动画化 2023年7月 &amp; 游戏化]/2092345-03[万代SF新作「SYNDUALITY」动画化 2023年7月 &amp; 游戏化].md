@@ -545,3 +545,29 @@ ciel可能不会g，真g了换身体落俗套了
 
 彼方在机舱的回忆也算是撑起了前半部分的意义了，只是心会更痛吧，如果说16话对艾女士的托孤以及各种心理活动撑起了诺娃的塑造，那到现在还只是初步理解这个世界的米斯缇和主角团之间的关联就很薄弱，而且按照她对夏尔说过的那样，她认为贤士和人类“终究不同”，总感觉她呆在彼方身边动机是薄弱的
 
+
+*****
+
+####  aptx8285144  
+##### 3919#       发表于 2024-2-20 10:57
+
+愈发感觉迪士尼的翻译基本上就是比直译还不如的翻译，有些我来翻译都不会这么搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这也太影响观感了
+
+*****
+
+####  支仓爱理  
+##### 3920#       发表于 2024-2-20 11:00
+
+鸭志田一，wcnm，把夏尔还给我 
+
+
+*****
+
+####  洛克萨斯  
+##### 3921#       发表于 2024-2-20 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006925&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-20 10:57</a>
+
+愈发感觉迪士尼的翻译基本上就是比直译还不如的翻译，有些我来翻译都不会这么搞笑，这也太影响观感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都怀疑是机器直接翻译的，但凡找个懂日文的大学生都不至于这么烂
+

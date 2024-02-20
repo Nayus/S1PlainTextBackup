@@ -86,3 +86,15 @@ dlc开始预载了，2.1g
 
 这么提前？还以为为了防解包会放到当天才给预载
 
+
+*****
+
+####  晴岚  
+##### 3030#       发表于 2024-2-20 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003598&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-2-19 22:11</a>
+525和贴牌洗衣机一个配置，主武器应该是完全打不过洗衣机吧</blockquote>
+525跟52一样其实都十分依赖雨帘的，无印525的配置已经足够优秀了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4658,3 +4658,13 @@ Nguyen表示，近期没有相关的发布计划，对此仍有很多事情处�
 【PSP仅用了四个月就成为了PSP？黑客放出PS Portal运行PSP模拟器图片】索尼PS5便携串流设备PS Porta ...</blockquote>
 不知道如果索尼官方愿意支持的话能不能让这玩意运行PSV游戏
 
+
+*****
+
+####  clyde-wang  
+##### 445#       发表于 2024-2-20 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007581&amp;ptid=2149659" target="_blank">ycjiang1337 发表于 2024-2-20 11:49</a>
+不知道如果索尼官方愿意支持的话能不能让这玩意运行PSV游戏</blockquote>
+官方连最适合的云游戏功能都不给
+

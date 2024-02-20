@@ -1237,3 +1237,11 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话，两段对比一下真的太能夹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  池袋西柚  
+##### 13306#       发表于 2024-2-20 20:11
+
+虽然我是素世厨，还兼职烤羊，但是抽了150发，来个5个素世一个灯都没有还是没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

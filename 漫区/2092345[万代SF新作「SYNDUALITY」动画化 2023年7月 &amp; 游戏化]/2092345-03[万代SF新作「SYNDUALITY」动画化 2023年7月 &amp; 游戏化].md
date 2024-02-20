@@ -868,3 +868,14 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 米斯地和老婆婆当年这不知道去的是乐园还是什么地方
 
+
+*****
+
+####  novyDC  
+##### 3948#       发表于 2024-2-20 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64012998&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-02-20 19:43:54</a>
+米斯地和老婆婆当年这不知道去的是乐园还是什么地方</blockquote>A国？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

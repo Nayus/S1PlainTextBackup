@@ -7805,3 +7805,17 @@ nm米国人怎么还不睡觉，这个时段还30万人，明天不用上班吗�
 
 我朋友不开加速器就进不去游戏，卡解冻，只能全队一起开
 
+
+*****
+
+####  leoray  
+##### 807#       发表于 2024-2-20 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64009267&amp;ptid=2170852" target="_blank">omoito 发表于 2024-2-20 14:21</a>
+有ABC 3个朋友和我一起玩，但有超级古怪的联机问题
+
+我当房主——A可以流畅玩，BC连进来就掉线</blockquote>
+**连试试
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -170,3 +170,11 @@ dlc有捷豹吗
 一直在刷红姜大佬的推还没看到dlc解包。
 倒是翻到之前推说新赛季有一张新图+可能复刻一张，其中一个是轴对称地图。排除新图的话,复刻油田or古楼？正好三代还没有轴对称图。
 
+
+*****
+
+####  Junakr  
+##### 3038#       发表于 2024-2-20 16:11
+
+预载没有解包一说，不到 22 号解锁是等不到的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+

@@ -96,3 +96,11 @@ yabu还说成长了，这发音跟去年差不多啊
 这个环节可以拍摄，图转群。
 <img src="https://p.sda1.dev/15/5a80983a522dfb73feaea6252440bf73/CMP_20240220154006011.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 19644#       发表于 2024-2-20 16:10
+
+连手渡都能拍照我去
+

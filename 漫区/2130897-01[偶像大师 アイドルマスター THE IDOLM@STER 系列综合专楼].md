@@ -1025,3 +1025,23 @@ bgm上的参与的作品，属于还行一般萌系，肯定不如sc了。
 
 管马仕没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Seeley  
+##### 1175#       发表于 2024-2-20 20:36
+
+管马士合着这么久连联动直播都没有嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  花开安菲路  
+##### 1176#       发表于 2024-2-20 20:37
+
+ 本帖最后由 花开安菲路 于 2024-2-20 20:38 编辑 
+
+管马仕臭底边不够格啊，无论是跟爱马仕几家联动，还是联动其它大物v，肯定会有老粉骂给人引流的。
+去你土鳖看了下，官号联动视频50分钟4000+播放120评论，真的有流量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

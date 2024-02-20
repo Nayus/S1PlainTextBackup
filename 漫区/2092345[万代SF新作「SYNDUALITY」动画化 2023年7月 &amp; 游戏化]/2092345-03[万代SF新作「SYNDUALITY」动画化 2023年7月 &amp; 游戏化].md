@@ -912,3 +912,39 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 怎么一死人就烂完了，我觉得这两集拍的挺不错的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 3952#       发表于 2024-2-20 20:34
+
+尼亚一部分剧情被拆给了歌姬，还有一部分在青梅这，别慌，还是有机会还有大家
+
+*****
+
+####  aptx8285144  
+##### 3953#       发表于 2024-2-20 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64013405&amp;ptid=2092345" target="_blank">oi99o 发表于 2024-2-20 20:27</a>
+
+怎么一死人就烂完了，我觉得这两集拍的挺不错的啊</blockquote>
+估计是因为上半部分拍得太安逸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 3954#       发表于 2024-2-20 20:38
+
+觉得noir用这身体🐻都缩水了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  八等绝癔  
+##### 3955#       发表于 2024-2-20 20:39
+
+因为大部分人就是冲着Ciel来的吧（ 官推能破2W也是靠Ciel的泳装
+
+反正这两天看下来因为ciel一死所以否定整个动画甚至企划本身的人都不少（
+

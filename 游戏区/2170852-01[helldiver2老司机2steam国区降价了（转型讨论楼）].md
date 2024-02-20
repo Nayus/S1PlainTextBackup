@@ -7943,3 +7943,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，什么死亡地形BUG，走过去直接秒死
 
+
+*****
+
+####  DawnGuardian  
+##### 821#       发表于 2024-2-20 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚跟朋友开黑了一把，结算的是时候又开始0级没奖励了，我就估摸着服务器应该是又寄了。回来了，都回来了。jpg
+

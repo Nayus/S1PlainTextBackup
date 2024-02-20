@@ -1030,3 +1030,11 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 我一直都是初祥其实互为白月光且mujica起源是初祥小时候的计划说的支持者啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ytttsuuuba  
+##### 13290#       发表于 2024-2-20 17:34
+
+金发确实，但紫瞳我看不出来<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">说起来，mujica的连续5月新曲呢，都2月底了
+

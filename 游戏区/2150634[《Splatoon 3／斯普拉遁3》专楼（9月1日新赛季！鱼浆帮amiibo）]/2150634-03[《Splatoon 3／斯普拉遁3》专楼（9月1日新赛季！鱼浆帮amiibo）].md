@@ -339,3 +339,11 @@ dlc有捷豹吗
 
 恶心武器和恶心大招绝配
 
+
+*****
+
+####  Junakr  
+##### 3054#       发表于 2024-2-20 19:05
+
+不打对战再也没生过 4k 的气，给大王 4k 会影响我打 DLC 吗，不会，那你给螃蟹都行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+

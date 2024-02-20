@@ -7323,3 +7323,11 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 
 箭头工作室招聘页面（如果觉得有能力的可以去应聘帮忙）：https://jobs.arrowheadgamestudios.com/jobs
 
+
+*****
+
+####  xinfengj  
+##### 762#       发表于 2024-2-20 09:30
+
+贴吧有帖子说替换一个游戏文件成开服数据就能匹配了，然后还能接着卡4迫击炮...
+

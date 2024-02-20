@@ -435,3 +435,17 @@
 
 上一话以为Ciel装的外挂程式是U盘备份，结果是直接把MBR删了，我饺子呢
 
+
+*****
+
+####  charlespfan  
+##### 3908#       发表于 2024-2-20 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005622&amp;ptid=2092345" target="_blank">secretgarnet 发表于 2024-2-20 08:58</a>
+唉，实际看完这集除了ciel的结局不能接受以外其他部分做的还挺好的，这下更难受了
+
+有两处很意外的地方：一 ...</blockquote>
+大概ada已经失忆过一次了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

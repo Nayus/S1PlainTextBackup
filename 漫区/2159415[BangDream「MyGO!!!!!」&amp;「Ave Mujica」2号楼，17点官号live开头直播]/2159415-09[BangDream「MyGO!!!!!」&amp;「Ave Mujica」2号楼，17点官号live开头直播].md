@@ -361,3 +361,18 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">恶意隐喻，不要命了
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 13243#       发表于 2024-2-20 09:04
+
+看了下隔壁的投票数字，感觉虽然一直喊切割但动物朋友好像还是对灯的人气造成了不那么正面的影响<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">哪怕是单选按道理得票数也不该这么低
+
+*****
+
+####  朔洵千夜  
+##### 13244#       发表于 2024-2-20 09:09
+
+有个问题求助万能的漏油，推上画了一堆初0的kkm338老师账号显示不存在了，这位画师有其他账号吗
+

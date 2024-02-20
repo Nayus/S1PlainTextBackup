@@ -1094,3 +1094,13 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NeloAngelo  
+##### 3968#       发表于 2024-2-21 02:24
+
+才注意到第16集noir可以穿好衣服了(临时地).  之前看的时候从来没有把这片的"死亡"当回事, 现在再看的话这里"noir的死"确实写得还行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

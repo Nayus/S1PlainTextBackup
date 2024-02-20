@@ -693,3 +693,14 @@ the slormancer
 
 有点心动，话说这游戏有没有什么攻略网站？
 
+
+*****
+
+####  stlover  
+##### 66#       发表于 2024-2-20 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007334&amp;ptid=2014466" target="_blank">Yeelolo 发表于 2024-2-20 11:28</a>
+
+有点心动，话说这游戏有没有什么攻略网站？</blockquote>
+[https://www.caimogu.cc/circle/350.html](https://www.caimogu.cc/circle/350.html)
+

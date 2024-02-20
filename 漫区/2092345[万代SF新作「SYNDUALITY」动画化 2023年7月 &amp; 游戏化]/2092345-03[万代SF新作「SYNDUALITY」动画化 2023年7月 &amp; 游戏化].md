@@ -628,3 +628,14 @@ ciel可能不会g，真g了换身体落俗套了
 
 所以艾女士快点换成洗澡时候的发型呀JPG
 
+
+*****
+
+####  支仓爱理  
+##### 3927#       发表于 2024-2-20 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007435&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-20 11:36</a>
+
+其实这集本身做得很好，不过牺牲得比较彻底让人心太痛了（虽然诺娃样子感觉都有些变化），不过经历了某片后 ...</blockquote>
+看完这话我感觉艾莉可能要赢了 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

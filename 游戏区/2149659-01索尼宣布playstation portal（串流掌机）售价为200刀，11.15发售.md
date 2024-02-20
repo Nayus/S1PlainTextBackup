@@ -4637,3 +4637,13 @@ tb了一下2 如果没预定的话，现在吃现得2600多了，，</blockquote
 
 Nguyen表示，近期没有相关的发布计划，对此仍有很多事情处理。
 
+
+*****
+
+####  名字已被吃  
+##### 443#       发表于 2024-2-20 11:41
+
+国行是不是不会出了，好像夕夕也没有把价格打下来，感觉可以省钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

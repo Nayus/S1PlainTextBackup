@@ -602,3 +602,13 @@ twitter_佐々木李子(@sasakirico)_20240220-030005_1759774896669028805_photo-0
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  PDQ4  
+##### 13257#       发表于 2024-2-20 11:41
+
+伟大，竟然真的是鸡团五人一起出去玩，梦都不敢梦的事情，太伟大了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+以及米泽每次都贴好紧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

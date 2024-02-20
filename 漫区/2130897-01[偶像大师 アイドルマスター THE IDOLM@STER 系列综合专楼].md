@@ -1067,3 +1067,39 @@ bgm上的参与的作品，属于还行一般萌系，肯定不如sc了。
 
 坏消息：是真星街彗星
 
+
+*****
+
+####  yuuuuuuuu  
+##### 1179#       发表于 2024-2-20 21:51
+
+等着看联动卡池能爆多少金币<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 1180#       发表于 2024-2-20 21:52
+
+这次管人联动还有卡池，真离谱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1181#       发表于 2024-2-20 21:58
+
+给他们幽默完了
+
+*****
+
+####  上坂莲华  
+##### 1182#       发表于 2024-2-20 22:03
+
+所以蓝毛老女人现在外面人气怎么样，值得你万南这么着急上火的联动么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  微尘众  
+##### 1183#       发表于 2024-2-20 22:17
+
+holo应该比俺们过气偶像有流量吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邦邦联动完imas联动，下个月是不是能看见ll和holo联动
+

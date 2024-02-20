@@ -1283,3 +1283,53 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  屑猫猫  
+##### 13311#       发表于 2024-2-20 21:41
+
+冲个t1000得了，这期看着挺卷来着
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  紫吹兰  
+##### 13312#         楼主| 发表于 2024-2-20 21:43
+
+<blockquote>NODY 发表于 2024-2-20 19:29
+看了一下大概是说节奏三人问题不大，青木吉他问题多但唱的部分基本没问题，又回到当初为什么不让太子主唱的 ...</blockquote>
+老实讲我觉得青木一开始那个泛音效果不错，算不上失误，无非和cd处理不一样，甚至比cd版效果好。结尾确实有点摆或者说怕失误怂了。
+
+*****
+
+####  爱丁堡official  
+##### 13313#       发表于 2024-2-20 21:52
+
+这期游戏剧情的配音立石凛是不是有点进步了，想起少歌里岩田阳葵当初配音一步步的变化。
+
+*****
+
+####  御幸一也  
+##### 13314#       发表于 2024-2-20 22:06
+
+吃點喵祥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/20/220632jkdstd4nkl9nzycd.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_眠いᙏ̤̮我好睏(@zaosoap20)_20240220-125441_1759924533090554288_photo.jpg</strong> (215.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 22:06 上传
+
+[https://twitter.com/zaosoap20/status/1759924533090554288](https://twitter.com/zaosoap20/status/1759924533090554288)
+
+*****
+
+####  PDQ4  
+##### 13315#       发表于 2024-2-20 22:27
+
+绝交系，可以重铸鬼屋荣光吗<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+

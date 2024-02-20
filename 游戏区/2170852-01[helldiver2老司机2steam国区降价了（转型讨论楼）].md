@@ -7894,3 +7894,36 @@ nm米国人怎么还不睡觉，这个时段还30万人，明天不用上班吗�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 815#       发表于 2024-2-20 21:46
+
+超级地球又又又不需要我了
+
+*****
+
+####  ナルバレック  
+##### 816#       发表于 2024-2-20 21:56
+
+貌似箭组说正在扩充百万级的服务器，还有重写代码中，之前的后台程序代码不是为了这种规模的容量而构建的
+
+*****
+
+####  ykyin09  
+##### 817#       发表于 2024-2-20 22:04
+
+贴吧加了个steam讨论组，在里面直接插入别人的队伍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  LT_Harry  
+##### 818#       发表于 2024-2-20 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64013967&amp;ptid=2170852" target="_blank">looptube 发表于 2024-2-20 21:22</a>
+连着好几天都没办法匹配了，是我的问题还是游戏问题
+
+—— 来自 OnePlus GM1910, Android 12上的 S1 ...</blockquote>
+PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八九点吧
+

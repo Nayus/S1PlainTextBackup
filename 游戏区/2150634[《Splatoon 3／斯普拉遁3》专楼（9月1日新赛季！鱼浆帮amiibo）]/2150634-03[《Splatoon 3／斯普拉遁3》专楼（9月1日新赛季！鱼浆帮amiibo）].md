@@ -426,3 +426,11 @@ dlc有捷豹吗
 
 <[img src="https://s11.ax1x.com/2024/02/20/pFtPqa9.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ryuuseigun  
+##### 3063#       发表于 2024-2-20 21:13
+
+强上更有强中强，乌研所哪能不知道每个武器给什么配置更好，都给高配置对战环境等会儿又要削这个又要砍那个费尽心思想怎么让环境平衡，3代懒狗乌研所哪能费这功夫，索性都给平庸配置直接根源减少工作量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

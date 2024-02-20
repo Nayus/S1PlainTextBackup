@@ -113,3 +113,16 @@ Pixiv上相当比例的猎奇画作也是出自国人作者。跟性压抑导致
 
 今天刚开始玩。确实不错。他这个解锁fex是要ex从第一关开始打吗
 
+
+*****
+
+####  月社银  
+##### 127#       发表于 2024-2-21 07:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996786&amp;ptid=2168002" target="_blank">Moltres.lv70 发表于 2024-2-19 11:31</a>
+
+同问，steam还有哪些值得玩的 stg，最近用 deck 玩体验很好 除了不能 16:10
+
+—— 来自 meizu 17, Androi ...</blockquote>
+这个作者不了解，但是东方的同人游戏有些值得一玩
+

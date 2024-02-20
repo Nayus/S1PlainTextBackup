@@ -43,3 +43,24 @@ D500RTQGOZ8%MO9(8J9Y[FJ.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">丢个没什么参考价值的90++6加成配置
 
+
+*****
+
+####  qixinno2  
+##### 11398#       发表于 2024-2-20 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64012292&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-2-20 18:28</a>
+
+这就是欧皇 萌新羡慕都羡慕不来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">辣鸡角色 不如嫁王
+
+*****
+
+####  exiaexa  
+##### 11399#       发表于 2024-2-20 18:37
+
+MD绿卡还是太菜了，该给个新增幅器了
+
+双rba+太公望，铃鹿御前特攻带着黑杯都打不掉
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

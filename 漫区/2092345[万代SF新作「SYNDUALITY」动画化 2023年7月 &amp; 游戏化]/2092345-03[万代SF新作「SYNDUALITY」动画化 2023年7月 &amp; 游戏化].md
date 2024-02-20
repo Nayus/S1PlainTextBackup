@@ -660,3 +660,37 @@ ciel可能不会g，真g了换身体落俗套了
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 3930#       发表于 2024-2-20 12:52
+
+ 本帖最后由 嘴上名作粉碎锤 于 2024-2-20 12:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007230&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-2-20 11:18</a>
+
+怎么没人说系列构成的青岛崇啊？这集脚本也是他吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你有没有想过，鸭志田的原因被喷有其二：
+
+一是这部原创动画的剧本原案挂着他的名字，二是他过往的作品就很喜欢迫害女配（女二）
+
+<img src="https://img.saraba1st.com/forum/202402/20/124608icjeccno8jjicsqn.jpg" referrerpolicy="no-referrer">
+
+<strong>图像 1.jpg</strong> (125.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 12:46 上传
+
+至于青岛崇，他以前就一写萌豚番和狗粮番的，怎么会迫害女配呢
+
+（不得不提一嘴他负责过的原创动画endro~，是那种前期埋了刀子都要强迫吐出来的合家欢水平）
+
+<img src="https://img.saraba1st.com/forum/202402/20/125156poth6etcn5ezhlg6.jpg" referrerpolicy="no-referrer">
+
+<strong>图像 2.jpg</strong> (850.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 12:51 上传
+

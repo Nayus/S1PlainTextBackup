@@ -1261,3 +1261,13 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 
 下午试了好多次，hard还是FC不了，老年人没救了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 13309#       发表于 2024-2-20 21:01
+
+<blockquote>NODY 发表于 2024-2-20 19:29
+看了一下大概是说节奏三人问题不大，青木吉他问题多但唱的部分基本没问题，又回到当初为什么不让太子主唱的 ...</blockquote>
+真太子怎么可能瞧得上
+

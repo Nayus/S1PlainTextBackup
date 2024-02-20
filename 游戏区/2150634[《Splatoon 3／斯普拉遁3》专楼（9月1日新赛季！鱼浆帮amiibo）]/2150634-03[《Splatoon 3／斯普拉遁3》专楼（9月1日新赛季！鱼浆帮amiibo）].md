@@ -408,3 +408,13 @@ dlc有捷豹吗
 不是8格射程+全图索敌已经是乌研所往开一面惹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 翻到有解包说大王和螃蟹的装甲加了修正内容，会削吗
 
+
+*****
+
+####  罗克萨斯  
+##### 3061#       发表于 2024-2-20 21:01
+
+跳点和4K相性很好，蛤蜊模式贴牌4K应该会很多
+
+研究所明显是懂各武器什么配置好，但因为过于偏心导致根本不会一碗水端平<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

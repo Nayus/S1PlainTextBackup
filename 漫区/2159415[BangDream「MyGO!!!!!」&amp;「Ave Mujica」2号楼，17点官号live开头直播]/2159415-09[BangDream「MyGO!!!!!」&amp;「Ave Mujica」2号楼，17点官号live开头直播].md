@@ -1022,3 +1022,11 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 看看她们这么开心，我心情也会跟着变好，真是不可思议。 ...</blockquote>
 这就是梦想的魔法，星之鼓动，心中的キラキラドキドキ！
 
+
+*****
+
+####  NODY  
+##### 13289#       发表于 2024-2-20 17:10
+
+我一直都是初祥其实互为白月光且mujica起源是初祥小时候的计划说的支持者啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

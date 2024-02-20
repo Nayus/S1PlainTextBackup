@@ -7611,3 +7611,38 @@ https://steamcommunity.com/app/5 ... 599331480040314557/
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  CswStar  
+##### 791#       发表于 2024-2-20 13:40
+
+ 本帖最后由 CswStar 于 2024-2-20 13:42 编辑 
+
+云起来感觉挺乐的，现在适合入坑吗？还是再等等？另外这游戏野队体验如何？我不太喜欢老ass狂喷新人的游戏
+
+*****
+
+####  风萧飒  
+##### 792#       发表于 2024-2-20 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008848&amp;ptid=2170852" target="_blank">CswStar 发表于 2024-2-20 13:40</a>
+云起来感觉挺乐的，现在适合入坑吗？还是再等等？另外这游戏野队体验如何？我不太喜欢老ass狂喷新人的游戏
+
+ ...</blockquote>
+有朋友的话可以入坑，没有的话匹配比较蛋疼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  センコウ  
+##### 793#       发表于 2024-2-20 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008848&amp;ptid=2170852" target="_blank">CswStar 发表于 2024-2-20 13:40</a>
+
+云起来感觉挺乐的，现在适合入坑吗？还是再等等？</blockquote>
+现在游戏不小几率进不去，进去不能排野只能开黑，开黑一车bug各种不能结算卡飞机门口不撤离等等
+
+发售到现在就是感觉越来越不能玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

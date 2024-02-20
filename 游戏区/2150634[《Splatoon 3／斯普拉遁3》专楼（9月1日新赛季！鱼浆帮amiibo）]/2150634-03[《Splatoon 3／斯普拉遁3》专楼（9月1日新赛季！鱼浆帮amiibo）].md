@@ -178,3 +178,27 @@ dlc有捷豹吗
 
 预载没有解包一说，不到 22 号解锁是等不到的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  hisousihou  
+##### 3039#       发表于 2024-2-20 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008774&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-20 13:32</a>
+
+某XP3300鹦鹉螺大佬的配装，注重走速的上位势鹦鹉螺越来越多了（我刚入门那会某教程说鹦鹉螺是唯一不需要2. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">鹦鹉螺还是稍微多带点鱿速比较好吧
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3040#       发表于 2024-2-20 17:05
+
+ 本帖最后由 Kiyohara_Yasuke 于 2024-2-20 17:08 编辑 
+
+今天的牙膏好无聊
+
+贴牌4k（镜）    跳点+帝王鱿鱼
+
+贴牌重桶    雨帘+砸地
+

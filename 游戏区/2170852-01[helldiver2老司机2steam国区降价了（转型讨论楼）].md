@@ -7779,3 +7779,29 @@ nm米国人怎么还不睡觉，这个时段还30万人，明天不用上班吗�
 笑点解析，这屌游戏大概率还是P2P，建议关了加速器试试</blockquote>
 没有概率，它就是p2p<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 805#       发表于 2024-2-20 14:52
+
+ 本帖最后由 Launce 于 2024-2-20 14:55 编辑 
+
+<img src="https://img.saraba1st.com/forum/202402/20/145115n68z8hp2m00mocq6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 14:51 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天天新峰值，索索花了多大力气营销，花点力去给箭脑袋技术支援不行吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 看了下评论，好评率68%了，各种忍俊不禁的好评都压不住了
+
+*****
+
+####  赤井稻妻  
+##### 806#       发表于 2024-2-20 15:00
+
+我朋友不开加速器就进不去游戏，卡解冻，只能全队一起开
+

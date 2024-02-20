@@ -7951,3 +7951,22 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚跟朋友开黑了一把，结算的是时候又开始0级没奖励了，我就估摸着服务器应该是又寄了。回来了，都回来了。jpg
 
+
+*****
+
+####  萧闻蒲  
+##### 822#       发表于 2024-2-20 23:56
+
+今天晚上突然能匹配了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  萧闻蒲  
+##### 823#       发表于 2024-2-21 00:04
+
+今天商店的这个轻甲蛮帅的
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

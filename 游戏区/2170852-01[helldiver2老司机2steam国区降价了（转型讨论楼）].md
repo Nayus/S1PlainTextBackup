@@ -7646,3 +7646,38 @@ https://steamcommunity.com/app/5 ... 599331480040314557/
 
 发售到现在就是感觉越来越不能玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CswStar  
+##### 794#       发表于 2024-2-20 13:45
+
+<blockquote>センコウ 发表于 2024-2-20 13:42
+现在游戏不小几率进不去，进去不能排野只能开黑，开黑一车bug各种不能结算卡飞机门口不撤离等等
+
+发售到 ...</blockquote>
+额，那可太糟了，等等党又赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想天の天子  
+##### 795#       发表于 2024-2-20 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008848&amp;ptid=2170852" target="_blank">CswStar 发表于 2024-2-20 13:40</a>
+
+云起来感觉挺乐的，现在适合入坑吗？还是再等等？另外这游戏野队体验如何？我不太喜欢老ass狂喷新人的游戏
+
+ ...</blockquote>
+建议等明天更新后再看，现在网络不稳定。野队的话标点就足够交流了
+
+*****
+
+####  nagamasa  
+##### 796#       发表于 2024-2-20 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008848&amp;ptid=2170852" target="_blank">CswStar 发表于 2024-2-20 13:40</a>
+云起来感觉挺乐的，现在适合入坑吗？还是再等等？另外这游戏野队体验如何？我不太喜欢老ass狂喷新人的游戏
+
+ ...</blockquote>
+如果你有朋友，或者是相信自己运气好不会碰到各种问题的话可以入，现在就是典型的能玩的朋友在爽玩/已经爽完不说话，运气不好玩不上的朋友就会抓狂狂喷的状态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

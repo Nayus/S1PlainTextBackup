@@ -8066,3 +8066,22 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 —— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  novyDC  
+##### 829#       发表于 2024-2-21 07:26
+
+晚上试一下
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  runningch  
+##### 830#       发表于 2024-2-21 07:29
+
+这护甲平衡还没修过来，我猜不是不会修而是不敢修<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

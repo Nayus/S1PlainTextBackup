@@ -180,3 +180,11 @@ DLC云都没啥内容可以云<img src="https://static.saraba1st.com/image/smile
 
 dlc14个小时通关 最终boss不想刷了 用小火球和放魔法的时候吸血配合风墙硬过了 前面6层还行 后面6层实在刷的想吐 给个7分吧 只能说原作还可以导致对人物有感情 不然真刷不下去
 
+
+*****
+
+####  otakun  
+##### 4020#       发表于 2024-2-21 07:34
+
+DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦磨完了银白，看到一下冒出六个boss 关卡，随便进一个发现都是个位数刮痧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

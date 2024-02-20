@@ -965,3 +965,20 @@ ave mujica这个团建频率和密切程度，我之前只在虹咲见过。
 https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 最接近一辈子乐队的一集
 
+
+*****
+
+####  6030sylar  
+##### 13283#       发表于 2024-2-20 15:29
+
+<img src="https://p.sda1.dev/15/8e846076ff6a3883ccd6809e45d50bf1/Image_1708414077394.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cindy355  
+##### 13284#       发表于 2024-2-20 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结月宝鼓嘴真的很像颊囊塞满的小仓鼠
+

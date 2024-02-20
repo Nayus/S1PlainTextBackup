@@ -7935,3 +7935,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 兵源太多，哪怕一小时战死十万绝地战兵都绰绰有余<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 820#       发表于 2024-2-20 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，什么死亡地形BUG，走过去直接秒死
+

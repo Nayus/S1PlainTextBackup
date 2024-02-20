@@ -78,8 +78,8 @@ if __name__ == '__main__':
     rootdir = "./"
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
         thdata = json.load(f)
-    for i in thdata.keys():
-        thdata[i]['update'] = False
+    # for i in thdata.keys():
+    #     thdata[i]['update'] = False
     session = requests.session()
     for k in forumdict.keys():
         threadict = {}

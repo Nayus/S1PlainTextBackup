@@ -1341,3 +1341,13 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 
 絕叫系不包括鬼屋，通常指雲霄飛車、海盜船、自由落體這種通過高速的運轉讓人不禁尖叫的遊樂設施<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  PDQ4  
+##### 13317#       发表于 2024-2-20 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是我孤陋寡闻了
+
+但是这种忍不住尖叫的话鬼屋肯定也会大放异彩，我是这么判断的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

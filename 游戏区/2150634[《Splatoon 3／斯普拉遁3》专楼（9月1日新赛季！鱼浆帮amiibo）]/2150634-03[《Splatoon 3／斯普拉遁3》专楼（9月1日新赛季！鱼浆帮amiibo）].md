@@ -434,3 +434,17 @@ dlc有捷豹吗
 
 强上更有强中强，乌研所哪能不知道每个武器给什么配置更好，都给高配置对战环境等会儿又要削这个又要砍那个费尽心思想怎么让环境平衡，3代懒狗乌研所哪能费这功夫，索性都给平庸配置直接根源减少工作量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 3064#       发表于 2024-2-20 22:43
+
+ 本帖最后由 KBAC 于 2024-2-20 22:44 编辑 
+
+好像就剩4把武器没贴牌了？
+（消防栓、长热泡、竹狙、审查者）
+那这更新计划还蛮怪的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

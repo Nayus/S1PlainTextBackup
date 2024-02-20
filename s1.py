@@ -257,6 +257,7 @@ async def UpdateThread(threaddict,semaphore):
                     thdata[threaddict['id']]['title'] = titles
                     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8-sig') as f:
                         f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
+            thdata[threaddict['id']]['update'] = False
     except Exception as e:
         # with open(rootdir+'ErrorLog.txt','a',encoding='utf-8') as f:
         #     f.write(str(e)+'\n')

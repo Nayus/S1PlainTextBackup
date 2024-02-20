@@ -752,3 +752,16 @@ twitter_佐々木李子(@sasakirico)_20240220-030005_1759774896669028805_photo-0
 立希現在加入ave當第六人！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我一直坚信鼓初non三角会逆输入角色的
 
+
+*****
+
+####  PDQ4  
+##### 13271#       发表于 2024-2-20 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007788&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-20 12:04</a>
+
+噴了，李子還送了大家對戒，而且是當時剛認識其他四個人沒多久的時候送的
+
+她還很煩惱剛認識就送這個會不 ...</blockquote>
+鸡里没有对戒戏份就是wsd打得有问题<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

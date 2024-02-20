@@ -125,3 +125,21 @@ dlc开始预载了，2.1g</blockquote>
 
 我开的自动下载，更新好后本体变成10.3g
 
+
+*****
+
+####  罗克萨斯  
+##### 3034#       发表于 2024-2-20 13:32
+
+某XP3300鹦鹉螺大佬的配装，注重走速的上位势鹦鹉螺越来越多了（我刚入门那会某教程说鹦鹉螺是唯一不需要2.x走速的加特林😅）
+
+<img src="https://img.saraba1st.com/forum/202402/20/133032y3exf6pmr3au11z7.jpg" referrerpolicy="no-referrer">
+
+<strong>20240220_132959.jpg</strong> (59.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 13:30 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

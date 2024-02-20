@@ -106,3 +106,21 @@ dlc有点想云掉了
 gbf relink刷完巴武来这边，玩了玩怎么还是刷刷刷，一堆武器不刷出来又感觉会亏一个亿…剧情每次就那一点… ...</blockquote>
 喜欢这套刷后面刷到后面还是有爽点的，光属性技能超大激光一键清全图，不是一屏幕，全图直接清<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看着全地图的结晶和钱往你这飘
 
+
+*****
+
+####  荆棘花冠  
+##### 4013#       发表于 2024-2-20 08:29
+
+那个要7把还是8把钥匙开的成长区域里面有啥好玩意么，现在血点满了钥匙也不够开那地方的
+
+*****
+
+####  caupollen  
+##### 4014#       发表于 2024-2-20 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64005410&amp;ptid=2098044" target="_blank">荆棘花冠 发表于 2024-2-20 08:29</a>
+
+那个要7把还是8把钥匙开的成长区域里面有啥好玩意么，现在血点满了钥匙也不够开那地方的 ...</blockquote>
+通完竞技场才能开
+

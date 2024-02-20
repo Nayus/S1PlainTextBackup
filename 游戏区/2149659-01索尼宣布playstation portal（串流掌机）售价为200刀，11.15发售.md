@@ -4647,3 +4647,14 @@ Nguyen表示，近期没有相关的发布计划，对此仍有很多事情处�
 
 —— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ycjiang1337  
+##### 444#       发表于 2024-2-20 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006358&amp;ptid=2149659" target="_blank">医生狼多 发表于 2024-2-20 10:15</a>
+
+【PSP仅用了四个月就成为了PSP？黑客放出PS Portal运行PSP模拟器图片】索尼PS5便携串流设备PS Porta ...</blockquote>
+不知道如果索尼官方愿意支持的话能不能让这玩意运行PSV游戏
+

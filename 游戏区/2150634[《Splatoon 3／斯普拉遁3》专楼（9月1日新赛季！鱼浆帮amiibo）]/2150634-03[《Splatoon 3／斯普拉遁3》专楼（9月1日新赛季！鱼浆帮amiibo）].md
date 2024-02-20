@@ -210,3 +210,28 @@ dlc有捷豹吗
 
 草还真是跳点+大王4k啊啊不3k<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 3042#       发表于 2024-2-20 17:20
+
+有二代商店店员的卡牌，但是角色衣服都是旧的，武器店和做装备的也没有新NPC。这么看来是没有二代广场了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  秋月孝三  
+##### 3043#       发表于 2024-2-20 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二代广场秩序化了
+
+*****
+
+####  紫菜粉丝煲  
+##### 3044#       发表于 2024-2-20 17:23
+
+さらにスペシャルウェポン「ウルトラチャクチ」で大爆発も起こせるぞ
+鱿研是会恶心人的
+

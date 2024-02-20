@@ -1271,3 +1271,15 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 看了一下大概是说节奏三人问题不大，青木吉他问题多但唱的部分基本没问题，又回到当初为什么不让太子主唱的 ...</blockquote>
 真太子怎么可能瞧得上
 
+
+*****
+
+####  nebulanoby  
+##### 13310#       发表于 2024-2-20 21:29
+
+<img src="https://p.sda1.dev/15/e7bc06cdc09d6c390b7e7153e9f075d5/CMP_20240220212924270.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -191,7 +191,7 @@ async def UpdateThread(threaddict,semaphore):
         if not (threaddict['update']):
             if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 259200):
             #3天过期
-                thdata[threaddict['id']]['active'] = False
+                titles = threaddict['title']
                 if(thdata[threaddict['id']]['totalreply'] > 37*40):
                     filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
                 else:
@@ -209,6 +209,7 @@ async def UpdateThread(threaddict,semaphore):
                     filedir_des = '/home/riko/S1PlainTextArchive2024/' +thdata[threaddict['id']]['category']+'/'
                     mkdir(filedir_des)
                     shutil.move(filedir_src,filedir_des)
+                thdata[threaddict['id']]['active'] = False
         else:
             async with semaphore:
                 lastpage = threaddict['totalreply']//40

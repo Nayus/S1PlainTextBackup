@@ -13,6 +13,23 @@ import json
 # old_number = 2095520++int((int(time.time())-1664434472)/86400)*175
 #2021-01-01
 # dead_number = 1980710
+def parse_title(title):
+    titles = re.sub(r'<.+?>','',str(title))
+    titles = re.sub(r'[\]\[]','',titles)
+    titles = re.sub(r'\|','｜',titles)
+    titles = re.sub(r'/','／',titles)
+    titles = re.sub(r'\\','＼',titles)
+    titles = re.sub(r':','：',titles)
+    titles = re.sub(r'\*','＊',titles)
+    titles = re.sub(r'\?','？',titles)
+    titles = re.sub(r'"','＂',titles)
+    titles = re.sub(r'<','＜',titles)
+    titles = re.sub(r'>','＞',titles)
+    titles = re.sub(r'\.\.\.','…',titles)
+    titles = re.sub(r'\n',' ',titles)
+    titles = '['+titles+']'
+    return titles
+
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
     soup = BeautifulSoup(html, 'html.parser')
@@ -37,7 +54,7 @@ def parse_html(html,threadict):
                         # 1天之内回复过
                     threadict[threadid] = {}
                     threadict[threadid]['replytime'] = int(replytime)
-                    threadict[threadid]['title'] = title
+                    threadict[threadid]['title'] = parse_title(title)
                     threadict[threadid]['replycount'] = int(replycount) + 1 # 外部回帖数会比实际楼层数少1
 
 if __name__ == '__main__':

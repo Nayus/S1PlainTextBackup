@@ -723,3 +723,14 @@ the slormancer
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  catcoffee  
+##### 69#       发表于 2024-2-20 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006597&amp;ptid=2014466" target="_blank">刘昊霖 发表于 2024-2-20 10:35</a>
+
+刚来，开荒用什么职业</blockquote>
+我也刚入, 看别人推荐走的符文冰川, 现在50多级的体验不错, 生存输出都没问题
+

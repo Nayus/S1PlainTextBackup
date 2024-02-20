@@ -581,3 +581,23 @@ ciel可能不会g，真g了换身体落俗套了
 
 新的预告这么早出来了，彼方和面具男对决应该近了，感觉预告里的米斯缇疯狂吃噶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3923#       发表于 2024-2-20 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007049&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-2-20 11:04</a>
+
+我都怀疑是机器直接翻译的，但凡找个懂日文的大学生都不至于这么烂 ...</blockquote>
+奶茶屋字幕组停滞不前很久了，偏偏在人物群塑造突进前（诺娃的主场回前)，剧情大爆发前停滞了，太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  charlespfan  
+##### 3924#       发表于 2024-2-20 11:18
+
+怎么没人说系列构成的青岛崇啊？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

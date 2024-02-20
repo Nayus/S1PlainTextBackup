@@ -7533,3 +7533,14 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 这代单人反而比1简单，潜行甲自带30%近视，跑得快丢失视野就只会发呆，远远射机枪发出声音就可以无脑引走怪群
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">撤离也可以找个角落猫着当老六，等飞机降了再冲过去上机
 
+
+*****
+
+####  ナルバレック  
+##### 784#       发表于 2024-2-20 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006517&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-20 10:28</a>
+
+先修好那逼服务器和各种闪退再说内容吧</blockquote>
+服务器容量都有问题，瑞典佬脑子慢几拍，前几天刚换了45万人的服务器，现在单平台都快到这个数字了
+

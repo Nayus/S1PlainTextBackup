@@ -571,3 +571,13 @@ ciel可能不会g，真g了换身体落俗套了
 愈发感觉迪士尼的翻译基本上就是比直译还不如的翻译，有些我来翻译都不会这么搞笑，这也太影响观感 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都怀疑是机器直接翻译的，但凡找个懂日文的大学生都不至于这么烂
 
+
+*****
+
+####  aptx8285144  
+##### 3922#       发表于 2024-2-20 11:12
+
+【「SYNDUALITY Noir」第20話「Their narratives」WEB予告-哔哩哔哩】 [https://b23.tv/403Cblh](https://b23.tv/403Cblh)
+
+新的预告这么早出来了，彼方和面具男对决应该近了，感觉预告里的米斯缇疯狂吃噶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

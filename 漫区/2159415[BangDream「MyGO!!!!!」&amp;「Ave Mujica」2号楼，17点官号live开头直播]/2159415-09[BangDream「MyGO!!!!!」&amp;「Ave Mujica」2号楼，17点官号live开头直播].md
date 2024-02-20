@@ -1166,3 +1166,34 @@ https://twitter.com/okada_mei0519/status/1759837549177245738</blockquote>
 
 是那个从树上薅甲虫的味儿。
 
+
+*****
+
+####  RedSpecial  
+##### 13299#       发表于 2024-2-20 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64009422&amp;ptid=2159415" target="_blank">木谷高明 发表于 2024-2-20 14:33</a>
+
+【【MyGO!!!!!】【失误盘点】無路矢(のろし) - 東京ゼップ | Encore-哔哩哔哩】https://www.bilibili.com/v ...</blockquote>
+羔羔羔
+
+能合上就算成功
+
+*****
+
+####  基神的强袭自由  
+##### 13300#       发表于 2024-2-20 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64012344&amp;ptid=2159415" target="_blank">Akari 发表于 2024-2-20 18:34</a>
+ 从李子跳蹦极看，这姑娘胆子很可以。 是那个从树上薅甲虫的味儿。</blockquote>
+狠狠地代了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13301#       发表于 2024-2-20 19:04
+
+不过她们的配合还是不错的，纵使主唱跑调再离谱，或者直接没声，演奏都能不停顿继续，直到主唱回来
+
+好高情商的评价，爽姐看到人跑路手上都没弹劈原来是取材自现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

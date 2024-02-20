@@ -426,3 +426,14 @@ nga的投票还是先图一乐吧，上次贴吧投出个祥子香澄给我看�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  紫吹兰  
+##### 13249#         楼主| 发表于 2024-2-20 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64002196&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-19 19:26</a>
+
+親親貓咪 </blockquote>
+原来和头像不是一张图吗，这只猫手长一点，头像那只感觉完全没推开
+

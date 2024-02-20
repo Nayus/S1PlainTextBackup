@@ -522,13 +522,13 @@
     "update": false
   },
   "2092193": {
-    "totalreply": 6415,
+    "totalreply": 6416,
     "title": "[《太吾绘卷》正式版讨论楼，9月21号发售，倒计时7天]",
     "newtitle": "[《太吾绘卷》正式版攻略交流讨论楼，春夏秋冬]",
-    "lastedit": 1707908646,
+    "lastedit": 1708398621,
     "category": "游戏区",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2094448": {
     "totalreply": 1525,
@@ -1602,13 +1602,13 @@
     "update": false
   },
   "2029623": {
-    "totalreply": 9915,
+    "totalreply": 9916,
     "title": "[游戏王MASTER DUEL，1.19已上架]",
     "newtitle": "[游戏王MASTER DUEL，1.19已上架]",
-    "lastedit": 1708395312,
+    "lastedit": 1708398618,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1998011": {
     "totalreply": 2322,
@@ -5085,13 +5085,13 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 1232,
+    "totalreply": 1233,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》已开启限量付费测招募]",
-    "lastedit": 1708397115,
+    "lastedit": 1708398620,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1025935": {
     "totalreply": 2151,
@@ -5346,13 +5346,13 @@
     "update": false
   },
   "2130897": {
-    "totalreply": 1170,
+    "totalreply": 1171,
     "title": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
     "newtitle": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
-    "lastedit": 1708396220,
+    "lastedit": 1708398624,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1865528": {
     "totalreply": 601,
@@ -5955,7 +5955,7 @@
     "lastedit": 1708398319,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1550724": {
     "totalreply": 1869,
@@ -6450,7 +6450,7 @@
     "lastedit": 1708398316,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2155738": {
     "totalreply": 14195,
@@ -6651,13 +6651,13 @@
     "update": false
   },
   "2159415": {
-    "totalreply": 13250,
+    "totalreply": 13252,
     "title": "[BangDream「MyGO!!!!!」&amp;「Ave Mujica」2号楼，17点官号live开头直播]",
     "newtitle": "[Bang Dream!振兴企划「MyGO!!!!!」&amp;「Ave Mujica」2号楼,复权成功]",
-    "lastedit": 1708398024,
+    "lastedit": 1708398620,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2022124": {
     "totalreply": 288,
@@ -6849,13 +6849,13 @@
     "update": false
   },
   "2071702": {
-    "totalreply": 1845,
+    "totalreply": 1846,
     "title": "[《战锤40K：行商浪人》发售日确定！2023年12月7日！]",
     "newtitle": "[《战锤40K：行商浪人》发售日确定！2023年12月7日！]",
-    "lastedit": 1708390217,
+    "lastedit": 1708398624,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2162351": {
     "totalreply": 611,
@@ -7092,13 +7092,13 @@
     "update": false
   },
   "2166145": {
-    "totalreply": 1300,
+    "totalreply": 1302,
     "title": "[任天堂病 栋十一号楼，新年新机新剑指！]",
     "newtitle": "[任天堂病 栋十一号楼，新年新机新剑指！／2.21晚上十点partner direct，视频形式放出]",
-    "lastedit": 1708398024,
+    "lastedit": 1708398617,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2166144": {
     "totalreply": 489,
@@ -7137,10 +7137,10 @@
     "update": false
   },
   "2166320": {
-    "totalreply": 1871,
+    "totalreply": 1872,
     "title": "[俄乌专楼-1月版]",
     "newtitle": "[俄乌专楼-1月版]",
-    "lastedit": 1708398319,
+    "lastedit": 1708398617,
     "category": "外野",
     "active": true,
     "update": true
@@ -7620,7 +7620,7 @@
     "lastedit": 1708398319,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170519": {
     "totalreply": 553,
@@ -7647,7 +7647,7 @@
     "lastedit": 1708398316,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -7692,16 +7692,16 @@
     "lastedit": 1708398319,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170764": {
-    "totalreply": 1120,
+    "totalreply": 1123,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1708398020,
+    "lastedit": 1708398616,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2168002": {
     "totalreply": 126,
@@ -7719,7 +7719,7 @@
     "lastedit": 1708398319,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2112844": {
     "totalreply": 544,
@@ -7767,10 +7767,10 @@
     "update": false
   },
   "2170954": {
-    "totalreply": 944,
+    "totalreply": 945,
     "title": "[【明日方舟】国服14.5号楼 2.1怀黍离 2.3生息演算]",
     "newtitle": "[【明日方舟】国服14.5号楼 2.22 引航者试炼04#]",
-    "lastedit": 1708398319,
+    "lastedit": 1708398617,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -7866,10 +7866,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 1884,
+    "totalreply": 1885,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708398316,
+    "lastedit": 1708398616,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -8766,13 +8766,13 @@
     "update": false
   },
   "2152801": {
-    "totalreply": 349,
+    "totalreply": 350,
     "title": "[香草社×Atlus SRPG新作《圣兽之王》公开，2024年3月8日发售]",
     "newtitle": "[香草社×Atlus SRPG新作《圣兽之王》公开，2024年3月8日发售]",
-    "lastedit": 1708315811,
+    "lastedit": 1708398624,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1943984": {
     "totalreply": 96,
@@ -9477,10 +9477,10 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 2262,
+    "totalreply": 2263,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708398319,
+    "lastedit": 1708398623,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
@@ -9879,7 +9879,7 @@
     "lastedit": 1708398319,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171832": {
     "totalreply": 105,
@@ -10734,7 +10734,7 @@
     "lastedit": 1708398315,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172154": {
     "totalreply": 93,
@@ -11007,13 +11007,13 @@
     "update": false
   },
   "2172197": {
-    "totalreply": 96,
+    "totalreply": 98,
     "title": "[东三省今年春节游客人次同比增长翻倍了]",
     "newtitle": "[东三省今年春节游客人次同比增长翻倍了]",
-    "lastedit": 1708346721,
+    "lastedit": 1708398625,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172227": {
     "totalreply": 59,
@@ -11148,7 +11148,7 @@
     "lastedit": 1708398320,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2161342": {
     "totalreply": 214,
@@ -11277,13 +11277,13 @@
     "update": false
   },
   "2172301": {
-    "totalreply": 98,
+    "totalreply": 99,
     "title": "[为啥腾讯作为最有钱的厂商自研能力和营收能力反差这么…]",
     "newtitle": "[为啥腾讯作为最有钱的厂商自研能力和营收能力反差这么…]",
-    "lastedit": 1708394122,
+    "lastedit": 1708398627,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172297": {
     "totalreply": 82,
@@ -11295,13 +11295,13 @@
     "update": false
   },
   "2172137": {
-    "totalreply": 56,
+    "totalreply": 58,
     "title": "[突然腰突了, 疼的爬不起床. 练力量举的三年结束了.]",
     "newtitle": "[突然腰突了, 疼的爬不起床. 练力量举的三年结束了.]",
-    "lastedit": 1708398026,
+    "lastedit": 1708398624,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172300": {
     "totalreply": 59,
@@ -11340,13 +11340,13 @@
     "update": false
   },
   "2172344": {
-    "totalreply": 240,
+    "totalreply": 242,
     "title": "[五菱：我是合资车！听说比亚迪要干我]",
     "newtitle": "[五菱：我是合资车！听说比亚迪要干我]",
-    "lastedit": 1708394721,
+    "lastedit": 1708398624,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2124528": {
     "totalreply": 71,
@@ -11385,13 +11385,13 @@
     "update": false
   },
   "2172364": {
-    "totalreply": 210,
+    "totalreply": 211,
     "title": "[因为一个结和媳妇闹了两次矛盾，想听听大家的看法]",
     "newtitle": "[因为一个结和媳妇闹了两次矛盾，想听听大家的看法]",
-    "lastedit": 1708398024,
+    "lastedit": 1708398621,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172336": {
     "totalreply": 70,
@@ -11400,7 +11400,7 @@
     "lastedit": 1708398323,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172366": {
     "totalreply": 393,
@@ -11409,7 +11409,7 @@
     "lastedit": 1708398323,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2122591": {
     "totalreply": 196,
@@ -11448,13 +11448,13 @@
     "update": false
   },
   "2172006": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[说来大家对CAPCOM黑科技有什么印象吗]",
     "newtitle": "[说来大家对CAPCOM黑科技有什么印象吗]",
-    "lastedit": 1708397120,
+    "lastedit": 1708398624,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2153554": {
     "totalreply": 78,
@@ -11484,13 +11484,13 @@
     "update": false
   },
   "2034167": {
-    "totalreply": 494,
+    "totalreply": 495,
     "title": "[【国服】【世界弹射物语】来共斗啦]",
     "newtitle": "[【国服】【世界弹射物语】来共斗啦]",
-    "lastedit": 1708338332,
+    "lastedit": 1708398624,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172381": {
     "totalreply": 133,
@@ -11502,13 +11502,13 @@
     "update": false
   },
   "2172255": {
-    "totalreply": 78,
+    "totalreply": 80,
     "title": "[【剧透注意】最终幻想7重生剧透／偷跑楼]",
     "newtitle": "[【剧透注意】最终幻想7重生剧透／偷跑楼]",
-    "lastedit": 1708397122,
+    "lastedit": 1708398624,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1857186": {
     "totalreply": 171,
@@ -11583,10 +11583,10 @@
     "update": false
   },
   "2172379": {
-    "totalreply": 52,
+    "totalreply": 54,
     "title": "能不能发明一种充电拖车给电车用？增程吊舱",
     "newtitle": "[能不能发明一种充电拖车给电车用？增程吊舱]",
-    "lastedit": 1708398323,
+    "lastedit": 1708398624,
     "category": "外野",
     "active": true,
     "update": true
@@ -11625,7 +11625,7 @@
     "lastedit": 1708398323,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2150456": {
     "totalreply": 68,
@@ -11664,13 +11664,13 @@
     "update": true
   },
   "2172340": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "我之前一直不信维生素能难吃到哪里去……",
     "newtitle": "[我之前一直不信维生素能难吃到哪里去……]",
-    "lastedit": 1708394419,
+    "lastedit": 1708398623,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2172383": {
     "totalreply": 68,
@@ -11679,7 +11679,7 @@
     "lastedit": 1708398323,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172428": {
     "totalreply": 92,
@@ -11688,7 +11688,7 @@
     "lastedit": 1708398323,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172423": {
     "totalreply": 72,
@@ -11697,7 +11697,7 @@
     "lastedit": 1708398323,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "1791810": {
     "totalreply": 312,
@@ -11727,10 +11727,10 @@
     "update": false
   },
   "2172403": {
-    "totalreply": 63,
+    "totalreply": 66,
     "title": "假设NS2硬件可能存在以下缺点，哪几点你最受不了？",
     "newtitle": "[假设NS2硬件可能存在以下缺点，哪几点你最受不了？]",
-    "lastedit": 1708398323,
+    "lastedit": 1708398625,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -11763,10 +11763,10 @@
     "update": false
   },
   "2172436": {
-    "totalreply": 46,
+    "totalreply": 50,
     "title": "来银行办业务看到一群老年人排队取点钱",
     "newtitle": "[来银行办业务看到一群老年人排队取点钱]",
-    "lastedit": 1708398323,
+    "lastedit": 1708398627,
     "category": "外野",
     "active": true,
     "update": true
@@ -11776,6 +11776,24 @@
     "title": "其实独立武侠游戏制作组有一点好，就是够轴",
     "newtitle": "[其实独立武侠游戏制作组有一点好，就是够轴]",
     "lastedit": 1708398324,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2172422": {
+    "totalreply": 42,
+    "title": "麒麟供应问题解决 华为Mate 60系列渠道开始降价",
+    "newtitle": "[麒麟供应问题解决 华为Mate 60系列渠道开始降价]",
+    "lastedit": 1708398628,
+    "category": "外野",
+    "active": true,
+    "update": true
+  },
+  "2143278": {
+    "totalreply": 168,
+    "title": "GBVSR已发售，免费版可玩，DLC预定角色贝阿朵莉丝，2B联动",
+    "newtitle": "[GBVSR已发售，免费版可玩，DLC预定角色贝阿朵莉丝，2B联动]",
+    "lastedit": 1708398630,
     "category": "游戏区",
     "active": true,
     "update": true

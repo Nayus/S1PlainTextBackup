@@ -7511,3 +7511,25 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 前作也是全程联网吧，这游戏的敌人设置和正在攻略哪个星球都是根据服务器和社区进度来的 ...</blockquote>
 没有的，可以纯离线，只不过不能上传战役进度而已，1很多挂哥都是离线拉满进度再联机
 
+
+*****
+
+####  御风沐雪  
+##### 782#       发表于 2024-2-20 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006044&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-2-20 09:46</a>
+
+挂梯子啊</blockquote>
+挂了啊。。自动转跳CN啊
+
+*****
+
+####  Launce  
+##### 783#       发表于 2024-2-20 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006576&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-20 10:32</a>
+
+为什么不能加点ai队友呢？单人不好玩主要就是顾不到方方面面，有ai队友会好不少 ...</blockquote>
+这代单人反而比1简单，潜行甲自带30%近视，跑得快丢失视野就只会发呆，远远射机枪发出声音就可以无脑引走怪群
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">撤离也可以找个角落猫着当老六，等飞机降了再冲过去上机
+

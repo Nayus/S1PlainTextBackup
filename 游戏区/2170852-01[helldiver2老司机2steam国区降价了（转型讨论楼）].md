@@ -7998,3 +7998,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 —— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 其实是刚发售时的商店内容，应该是开始轮换了，过两天大概就能买到加榴弹的轻甲了。
 
+
+*****
+
+####  新庄運切  
+##### 826#       发表于 2024-2-21 01:54
+
+重复武器可以通过复制之前的文件重现<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

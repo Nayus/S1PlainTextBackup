@@ -30,3 +30,13 @@
 
 我为什么要在游戏里produce一个实际存在的人物？😅
 
+
+*****
+
+####  吃咸菜的  
+##### 5426#       发表于 2024-2-20 20:51
+
+要是流水够多万南也用不着请杏奴过来爆米
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1253,3 +1253,11 @@ soyo新卡解放剧情，前半段跟mygo成员讲话，后半跟凛凛子谈话
 
 新歌好听啊 感觉不输影色舞
 
+
+*****
+
+####  基神的强袭自由  
+##### 13308#       发表于 2024-2-20 20:42
+
+下午试了好多次，hard还是FC不了，老年人没救了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

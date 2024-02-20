@@ -1045,3 +1045,15 @@ bgm上的参与的作品，属于还行一般萌系，肯定不如sc了。
 管马仕臭底边不够格啊，无论是跟爱马仕几家联动，还是联动其它大物v，肯定会有老粉骂给人引流的。
 去你土鳖看了下，官号联动视频50分钟4000+播放120评论，真的有流量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 1177#       发表于 2024-2-20 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64013485&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-2-20 20:36</a>
+管马士合着这么久连联动直播都没有嘛
+
+—— 来自 S1Fun</blockquote>
+有的，有一期跟IRIAM的联动直播，不过里面的v我都不认识也没兴趣看。
+

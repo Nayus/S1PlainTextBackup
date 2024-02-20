@@ -948,3 +948,24 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 反正这两天看下来因为ciel一死所以否定整个动画甚至企划本身的人都不少（
 
+
+*****
+
+####  aptx8285144  
+##### 3956#       发表于 2024-2-20 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64013469&amp;ptid=2092345" target="_blank">苍蓝之枪 发表于 2024-2-20 20:34</a>
+
+尼亚一部分剧情被拆给了歌姬，还有一部分在青梅这，别慌，还是有机会还有大家 ...</blockquote>
+艾女士真好，而且识大体又懂事，要是能换成洗澡的发型就更棒了（
+
+*****
+
+####  oi99o  
+##### 3957#       发表于 2024-2-20 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64013475&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-20 20:35</a>
+
+估计是因为上半部分拍得太安逸了，要对付的不是火箭队这种喜剧小啰啰就是大灾害这种众人集体万众一 ...</blockquote>
+我倒觉得后半的节奏看得更舒适，前半的搞笑也就那样
+

@@ -704,3 +704,22 @@ the slormancer
 有点心动，话说这游戏有没有什么攻略网站？</blockquote>
 [https://www.caimogu.cc/circle/350.html](https://www.caimogu.cc/circle/350.html)
 
+
+*****
+
+####  lighttt  
+##### 67#       发表于 2024-2-20 12:04
+
+预购有啥奖励吗，正式版会打折把
+
+*****
+
+####  2474089352  
+##### 68#       发表于 2024-2-20 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007334&amp;ptid=2014466" target="_blank">Yeelolo 发表于 2024-2-20 11:28</a>
+有点心动，话说这游戏有没有什么攻略网站？</blockquote>
+有个last epoch tools 可以看build库和模拟加点
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

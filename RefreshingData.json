@@ -1203,7 +1203,7 @@
     "lastedit": 1708403418,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1471785": {
     "totalreply": 26130,
@@ -3174,7 +3174,7 @@
     "lastedit": 1708403418,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2102194": {
     "totalreply": 861,
@@ -3966,7 +3966,7 @@
     "lastedit": 1708403410,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1061969": {
     "totalreply": 8719,
@@ -3978,13 +3978,13 @@
     "update": false
   },
   "2107517": {
-    "totalreply": 13893,
+    "totalreply": 13895,
     "title": "[2023年 长空Q娃／ひろがるスカイ！プリキュア ​​​​]",
     "newtitle": "[2023年 长空Q娃／ひろがるスカイ！プリキュア ​​​​]",
-    "lastedit": 1708399217,
+    "lastedit": 1708403712,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2086470": {
     "totalreply": 13030,
@@ -4464,13 +4464,13 @@
     "update": false
   },
   "2042115": {
-    "totalreply": 5296,
+    "totalreply": 5297,
     "title": "[《碧蓝幻想 Relink》23年1月21日新情报公开，2023年发售]",
     "newtitle": "[《碧蓝幻想 Relink》2024年2月1日发售，Demo已公开]",
-    "lastedit": 1708403116,
+    "lastedit": 1708403712,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2057903": {
     "totalreply": 1182,
@@ -6255,10 +6255,10 @@
     "update": false
   },
   "2150634": {
-    "totalreply": 3031,
+    "totalreply": 3032,
     "title": "[《Splatoon 3／斯普拉遁3》专楼（9月1日新赛季！鱼浆帮amiibo）]",
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（22日DLC第2弹：秩序篇）]",
-    "lastedit": 1708403412,
+    "lastedit": 1708403712,
     "category": "游戏区",
     "active": true,
     "update": true
@@ -7008,7 +7008,7 @@
     "lastedit": 1708403418,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2164203": {
     "totalreply": 1199,
@@ -7125,7 +7125,7 @@
     "lastedit": 1708403420,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2038209": {
     "totalreply": 387,
@@ -7647,7 +7647,7 @@
     "lastedit": 1708403420,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170430": {
     "totalreply": 960,
@@ -7713,10 +7713,10 @@
     "update": false
   },
   "2170869": {
-    "totalreply": 12823,
+    "totalreply": 12834,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼5.5]",
-    "lastedit": 1708403418,
+    "lastedit": 1708403715,
     "category": "漫区",
     "active": true,
     "update": true
@@ -7773,7 +7773,7 @@
     "lastedit": 1708403418,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2171008": {
     "totalreply": 68,
@@ -7866,13 +7866,13 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 1894,
+    "totalreply": 1896,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼]",
-    "lastedit": 1708401618,
+    "lastedit": 1708403712,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171145": {
     "totalreply": 54,
@@ -8721,13 +8721,13 @@
     "update": false
   },
   "2170852": {
-    "totalreply": 787,
+    "totalreply": 789,
     "title": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
-    "lastedit": 1708400119,
+    "lastedit": 1708403712,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2171595": {
     "totalreply": 96,
@@ -9477,13 +9477,13 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 2287,
+    "totalreply": 2289,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1708403112,
+    "lastedit": 1708403709,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1991734": {
     "totalreply": 161,
@@ -10113,7 +10113,7 @@
     "lastedit": 1708403420,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2157625": {
     "totalreply": 57,
@@ -10149,7 +10149,7 @@
     "lastedit": 1708403418,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2112865": {
     "totalreply": 41,
@@ -10440,10 +10440,10 @@
     "update": false
   },
   "2170136": {
-    "totalreply": 167,
+    "totalreply": 168,
     "title": "[s1 羊宫妃那真爱楼]",
     "newtitle": "[s1 羊宫妃那真爱楼]",
-    "lastedit": 1708403416,
+    "lastedit": 1708403712,
     "category": "漫区",
     "active": true,
     "update": true
@@ -10842,7 +10842,7 @@
     "lastedit": 1708403418,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172214": {
     "totalreply": 50,
@@ -11283,7 +11283,7 @@
     "lastedit": 1708403423,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172297": {
     "totalreply": 83,
@@ -11322,13 +11322,13 @@
     "update": false
   },
   "2172260": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[日本自吹自擂之：H3火箭集结日本“技术皇冠上的明珠”]",
     "newtitle": "[日本自吹自擂之：H3火箭集结日本“技术皇冠上的明珠”]",
-    "lastedit": 1708401621,
+    "lastedit": 1708403712,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2090681": {
     "totalreply": 104,
@@ -11340,10 +11340,10 @@
     "update": false
   },
   "2172344": {
-    "totalreply": 257,
+    "totalreply": 258,
     "title": "[五菱：我是合资车！听说比亚迪要干我]",
     "newtitle": "[五菱：我是合资车！听说比亚迪要干我]",
-    "lastedit": 1708403423,
+    "lastedit": 1708403712,
     "category": "外野",
     "active": true,
     "update": true
@@ -11391,7 +11391,7 @@
     "lastedit": 1708403418,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172336": {
     "totalreply": 71,
@@ -11403,10 +11403,10 @@
     "update": false
   },
   "2172366": {
-    "totalreply": 419,
+    "totalreply": 420,
     "title": "[网传与16岁男生有不当关系的中学女教师已被停职]",
     "newtitle": "[网传与16岁男生有不当关系的中学女教师已被停职]",
-    "lastedit": 1708403423,
+    "lastedit": 1708403712,
     "category": "外野",
     "active": true,
     "update": true
@@ -11427,7 +11427,7 @@
     "lastedit": 1708403423,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172350": {
     "totalreply": 61,
@@ -11625,7 +11625,7 @@
     "lastedit": 1708403423,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2150456": {
     "totalreply": 68,
@@ -11673,10 +11673,10 @@
     "update": false
   },
   "2172383": {
-    "totalreply": 87,
+    "totalreply": 89,
     "title": "首尔大学清洁工因记忆汉字而过劳",
     "newtitle": "[首尔大学清洁工因记忆汉字而过劳]",
-    "lastedit": 1708403420,
+    "lastedit": 1708403714,
     "category": "外野",
     "active": true,
     "update": true
@@ -11688,7 +11688,7 @@
     "lastedit": 1708403423,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2172423": {
     "totalreply": 88,
@@ -11727,13 +11727,13 @@
     "update": false
   },
   "2172403": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "假设NS2硬件可能存在以下缺点，哪几点你最受不了？",
     "newtitle": "[假设NS2硬件可能存在以下缺点，哪几点你最受不了？]",
-    "lastedit": 1708401920,
+    "lastedit": 1708403715,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2149659": {
     "totalreply": 445,

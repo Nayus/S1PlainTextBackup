@@ -7579,3 +7579,21 @@ https://twitter.com/ElCato_762/status/1759587800016384050
 
 前作单人实在太枯燥了，信标丢全场然后到处做任务捡样本回家，连怪都见不到几个，多人体验又不稳定，几个人心不齐还不如单人
 
+
+*****
+
+####  绯想天の天子  
+##### 788#       发表于 2024-2-20 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 789#       发表于 2024-2-20 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64008095&amp;ptid=2170852" target="_blank">绯想天の天子 发表于 2024-2-20 12:29</a>
+
+现在有黑屏bug,问就是明天修，我们箭头真是太勤劳了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">没准在北欧这真算勤劳了？
+

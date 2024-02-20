@@ -777,3 +777,13 @@ twitter_佐々木李子(@sasakirico)_20240220-030005_1759774896669028805_photo-0
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 13273#       发表于 2024-2-20 14:00
+
+鸡才是有团魂的，也太爱节约宝了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1623,3 +1623,16 @@ https://twitter.com/noe_shiranami/status/1758832451730981203<img src="https://p.
 虽然纯属我个人的理解，既然这代的主题是“人与动物的关系”，那猫狗必然要是普通地球动物——顶多后面变获 ...</blockquote>
 考虑到q娃最近一贯的在背景故事上偷懒的毛病，大概率他们真的是这么想的。
 
+
+*****
+
+####  pokemon最爱  
+##### 1054#       发表于 2024-2-20 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006705&amp;ptid=2162354" target="_blank">zyw0 发表于 2024-2-20 10:42</a>
+
+考虑到q娃最近一贯的在背景故事上偷懒的毛病，大概率他们真的是这么想的。 ...</blockquote>
+但是不能解决两个主人获得力量的问题，毕竟彩羽的变身器是镜石直接送的不是小麦身上出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以要偷懒直接把一切甩到镜石的不可思议Power上就完事了，把小麦小雪设定成异世界动物完全是意义不明的设定（
+

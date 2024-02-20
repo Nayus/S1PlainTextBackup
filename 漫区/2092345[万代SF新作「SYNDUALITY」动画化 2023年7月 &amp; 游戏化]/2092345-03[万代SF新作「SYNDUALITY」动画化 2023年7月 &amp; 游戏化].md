@@ -694,3 +694,38 @@ ciel可能不会g，真g了换身体落俗套了
 
 2024-2-20 12:51 上传
 
+
+*****
+
+####  aptx8285144  
+##### 3931#       发表于 2024-2-20 13:01
+
+一个细节，开头安洁没有披着雨衣出来，所以贤士们对毒雨都是有免疫的?如果是这样，卫浴柜对贤士们的猜疑也多少可以找到源头了
+
+*****
+
+####  novyDC  
+##### 3932#       发表于 2024-2-20 13:02
+
+ 本帖最后由 novyDC 于 2024-2-20 13:04 编辑 
+
+看来这个艾达跟游戏那个不是同一个了
+
+<img src="https://img.saraba1st.com/forum/202402/20/130215cfzplb098pk9ll29.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-20-13-01-53-228_com.viva.note.jpg</strong> (658.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202402/20/130443l4rrwkk4wj174jbi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-20-13-04-14-098_com.viva.note.jpg</strong> (551.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-20 13:04 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

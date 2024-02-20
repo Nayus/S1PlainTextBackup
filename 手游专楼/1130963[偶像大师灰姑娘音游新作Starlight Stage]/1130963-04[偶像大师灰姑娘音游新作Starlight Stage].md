@@ -22,3 +22,11 @@
 
 只请管人工商就罢了，还钻进游戏里占卡池资源，还在缩小规模后这样来，不是很清楚这样做除了玩家炎上和V豚无关心外带来的正面效应是什么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 5425#       发表于 2024-2-20 20:48
+
+我为什么要在游戏里produce一个实际存在的人物？😅
+

@@ -377,3 +377,13 @@ dlc有捷豹吗
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  秋月孝三  
+##### 3058#       发表于 2024-2-20 20:44
+
+再给三代新玩家一点小小的3k震憾咯。要我说副武器没给水球已经算野上要脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

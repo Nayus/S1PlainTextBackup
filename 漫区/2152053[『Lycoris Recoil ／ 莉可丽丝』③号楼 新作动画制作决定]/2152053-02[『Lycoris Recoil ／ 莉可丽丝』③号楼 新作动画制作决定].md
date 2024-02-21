@@ -127,3 +127,32 @@ tkn穿这种成熟装都很害羞的亚子，穿再成熟也是0<img src="https:
 今天日亚数小时内从1w4涨到3w3，X上骂声一片</blockquote>
 草台是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nwc32167  
+##### 1714#       发表于 2024-2-21 20:07
+
+当然蒜友早有准备，就防着这一招捏，1.3*2早早拿下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+IMG_3535.JPG
+(683.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 20:05 上传
+
+<img src="https://img.saraba1st.com/forum/202402/21/200547jo9rtoz69rrrzt4t.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Saber琪| + 1||
+
+查看全部评分
+

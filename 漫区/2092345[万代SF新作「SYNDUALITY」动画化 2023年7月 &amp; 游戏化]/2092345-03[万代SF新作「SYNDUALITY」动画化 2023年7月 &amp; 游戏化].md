@@ -1190,3 +1190,14 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 迪士尼的中文字幕实在太粗糙到我对日文只知一些皮毛的人都看傻了</blockquote>
 这么讲究的吗？我好像以前也是，没有字幕组出就不看。现在都不等了，要看最新的，不看最新就会错过网上的讨论，或者被网上剧透。能回到以前不参与网上的讨论默默看动画也不错，不过回不去了
 
+
+*****
+
+####  aptx8285144  
+##### 3977#       发表于 2024-2-21 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016473&amp;ptid=2092345" target="_blank">2296506 发表于 2024-2-21 09:02</a>
+
+这么讲究的吗？我好像以前也是，没有字幕组出就不看。现在都不等了，要看最新的，不看最新就会错过网上的 ...</blockquote>
+我也不喜欢等字幕组，毕竟能看个新鲜就能一起讨论，只要有熟肉就行，问题是迪士尼这次翻译感觉离谱地方太多了，我是忍着凑合着看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

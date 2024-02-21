@@ -8172,3 +8172,31 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 卡结算还好，下次登入会回吐。昨天试过卡成ppt。
 
+
+*****
+
+####  runningch  
+##### 841#       发表于 2024-2-21 12:22
+
+隔壁星河战队能不能再给点力分流一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  sigeren  
+##### 842#       发表于 2024-2-21 12:22
+
+今天的民主任务竟然是幽默大狙，纯纯浪费我的申购点
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  绚烂航迹云  
+##### 843#       发表于 2024-2-21 12:27
+
+据说有个能加移速但中文说明里没提的头盔，是哪个呀？
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+

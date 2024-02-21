@@ -1009,3 +1009,31 @@ travis scott<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 而到了伟作 就是夏洛了 ...</blockquote>
 我的错 等等等最后等出来一个猪油泡真是服了
 
+
+*****
+
+####  时空之旅  
+##### 106#       发表于 2024-2-21 12:20
+
+玛德我还以为是华晨宇。。。。楼主取这标题太容易造成歧义了
+
+*****
+
+####  jy000129  
+##### 107#       发表于 2024-2-21 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018610&amp;ptid=2172155" target="_blank">TNN 发表于 2024-2-21 12:11</a>
+我就惨了。直到最伟大的xx才止损</blockquote>
+最伟大的XX带来了刀区传世名作最伟大的亚军，我觉得还是很不错的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  我要你三更死  
+##### 108#       发表于 2024-2-21 12:22
+
+华人在海外比霉影响力大的基本都是功夫明星人物。下次结巴海外开演唱会带着成龙当嘉宾再让自己团队邀请泰勒。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

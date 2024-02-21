@@ -740,3 +740,13 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不削✏是为了对付4k。如果下赛季帝王4k强度太高搞不好还要再把✏伤害加到70
 
+
+*****
+
+####  罗克萨斯  
+##### 3092#       发表于 2024-2-21 13:23
+
+跳点带0.3推背感就已经很强了，贴牌4K真有必要带那么多副强么？毕竟堆这么多，肯定是要在游速和对物上有所牺牲了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

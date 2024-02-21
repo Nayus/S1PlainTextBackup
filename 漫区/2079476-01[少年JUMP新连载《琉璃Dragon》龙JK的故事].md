@@ -61,3 +61,20 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 112#       发表于 2024-2-21 11:34
+
+终于复刊，变成隔周连载<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  car123  
+##### 113#       发表于 2024-2-21 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真活了，作者你说是不是故意选龙年复活的
+

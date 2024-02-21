@@ -653,3 +653,59 @@ WAVE1とWAVE3の潮位が同じで、WAVE2は異なる潮位のとき、WAVE3で
 
 2024-2-21 11:22 上传
 
+
+*****
+
+####  trhgejk  
+##### 3083#       发表于 2024-2-21 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64017905&amp;ptid=2150634" target="_blank">清浦刹那 发表于 2024-2-21 11:13</a>
+
+红4K这么穿行不行，全员弹射起飞。</blockquote>
+最好主省0.9换成1.0的，你这样刚好打不了5发满蓄
+
+*****
+
+####  hikari0805  
+##### 3084#       发表于 2024-2-21 11:26
+
+什么垃圾调整
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3085#       发表于 2024-2-21 11:27
+
+这平衡是真的看不懂，打工鲨鱼加强了也一样难用
+
+*****
+
+####  清浦刹那  
+##### 3086#       发表于 2024-2-21 11:30
+
+啊？
+
+0.9是完全蓄力攻击 4.96，出空墨提示瞬间满第5枪几乎没影响的。
+
+1.0是5.05，第5枪后溢出一丢丢墨水啥都干不了也是开始回墨，还占一个大技能。
+
+
+*****
+
+####  Junakr  
+##### 3087#       发表于 2024-2-21 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64015581&amp;ptid=2150634" target="_blank">carroy 发表于 2024-2-21 01:09</a>
+
+乌贼研每次削能不能不要连打工的一起削</blockquote>
+zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比对战的弱，这回才想起来增强一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  Dedalus  
+##### 3088#       发表于 2024-2-21 11:31
+
+满墨4k带0.3主省正好5枪就少几帧，打完顺便提升你该回墨，比1.0主省打5.1枪好用省格子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

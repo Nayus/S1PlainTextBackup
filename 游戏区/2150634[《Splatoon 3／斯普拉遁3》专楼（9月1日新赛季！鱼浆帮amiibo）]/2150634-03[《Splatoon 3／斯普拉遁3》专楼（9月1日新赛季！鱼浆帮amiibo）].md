@@ -1053,3 +1053,14 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 给我整不会了，出差清塔的时候永远有条蛇在追你
 
+
+*****
+
+####  oi99o  
+##### 3123#       发表于 2024-2-21 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64024358&amp;ptid=2150634" target="_blank">葵 发表于 2024-2-21 21:49</a>
+
+好久没玩了，想问下这个新的秩序的DLC是单机关卡还是联机的扩充包？</blockquote>
+单机关卡，里面也可以获得联机用的武器皮肤
+

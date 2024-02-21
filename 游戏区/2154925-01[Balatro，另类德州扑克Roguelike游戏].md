@@ -709,3 +709,12 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 这玩意竟然没手游版？想在iPad耍呢
 
+
+*****
+
+####  就是剑鞘  
+##### 64#       发表于 2024-2-21 22:16
+
+很想知道中文是怎么翻译这个牌型的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/ba6da3efde38f8ac2c3d921620bfb1bd/QQ图片20240221221451.png" referrerpolicy="no-referrer">
+

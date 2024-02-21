@@ -205,3 +205,14 @@ yabu还说成长了，这发音跟去年差不多啊
 
 鱼就回日本了？这回国连家都没回呢
 
+
+*****
+
+####  csolfans  
+##### 19657#       发表于 2024-2-21 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64024038&amp;ptid=2078110" target="_blank">lj205 发表于 2024-2-21 21:11</a>
+
+鱼就回日本了？这回国连家都没回呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她自己在fmt也说了，fmt结束后不会在上海玩得马上回去工作
+

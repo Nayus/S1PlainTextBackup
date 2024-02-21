@@ -127,3 +127,45 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  御幸一也  
+##### 13333#       发表于 2024-2-21 15:47
+
+居然還有DLC！結月發文了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">  可愛可愛
+
+[https://twitter.com/Watase_Yuzuki/status/1760208908185108802](https://twitter.com/Watase_Yuzuki/status/1760208908185108802)
+
+<img src="https://img.saraba1st.com/forum/202402/21/154640nwyoqrq5qr7ozm89.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20240221-074441_1760208908185108802_photo-0.jpg</strong> (292.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 15:46 上传
+
+<img src="https://img.saraba1st.com/forum/202402/21/154641s02h70sr0qer200a.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20240221-074441_1760208908185108802_photo-1.jpg</strong> (315.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 15:46 上传
+
+<img src="https://img.saraba1st.com/forum/202402/21/154642c3wyinh3iyy4c41y.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20240221-074441_1760208908185108802_photo-2.jpg</strong> (389.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 15:46 上传
+
+<img src="https://img.saraba1st.com/forum/202402/21/154643wgvbxfk1eu621eqe.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20240221-074441_1760208908185108802_photo-3.jpg</strong> (253.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 15:46 上传
+

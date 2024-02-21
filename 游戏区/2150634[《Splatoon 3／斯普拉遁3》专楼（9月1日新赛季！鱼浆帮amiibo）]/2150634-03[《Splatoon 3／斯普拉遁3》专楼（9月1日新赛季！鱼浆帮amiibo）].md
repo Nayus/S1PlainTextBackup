@@ -581,3 +581,26 @@ https://www.nintendo.co.jp/support/switch/software_support/av5ja/700.html
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Junakr  
+##### 3077#       发表于 2024-2-21 10:23
+
+テッキュウが水中に潜ったとき、水面を撃つとテッキュウにダメージを与えられる問題を修正しました。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啊？能攻击水中的铁球竟然是 bug。
+
+*****
+
+####  oi99o  
+##### 3078#       发表于 2024-2-21 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64017330&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-21 10:23</a>
+テッキュウが水中に潜ったとき、水面を撃つとテッキュウにダメージを与えられる問題を修正しました。
+
+[f:0 ...</blockquote>
+bug是打水面也算伤害吧，瞄准本体打的应该还是没问题
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -1098,3 +1098,11 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  苍蓝之枪  
+##### 3127#       发表于 2024-2-21 23:55
+
+900，感觉上不去了
+

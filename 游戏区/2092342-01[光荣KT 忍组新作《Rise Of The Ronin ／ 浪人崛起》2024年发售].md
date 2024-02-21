@@ -35,3 +35,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 今天什么黄道吉日吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全丢这了
 
+
+*****
+
+####  病態極端  
+##### 667#       发表于 2024-2-21 23:58
+
+可能索尼想讓浪人死吧，發售日撞車，預告片也撞車。
+

@@ -777,3 +777,19 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 而且毫无局外成长，打了一天下来感觉运气因素过重了，刷不到成长型的小丑牌基本等于寄。
 
+
+*****
+
+####  schneehertz  
+##### 71#         楼主| 发表于 2024-2-21 23:31
+
+<img src="https://img.saraba1st.com/forum/202402/21/233139op80nznj0yytleep.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 23:31 上传
+
+这得多胡才能解锁这张卡。。
+

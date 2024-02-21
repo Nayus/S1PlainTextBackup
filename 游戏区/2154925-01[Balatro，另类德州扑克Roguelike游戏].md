@@ -572,3 +572,16 @@ mark，发售了口碑如何？</blockquote>
 
 不过到最后还是同花决胜负了
 
+
+*****
+
+####  周愚  
+##### 49#       发表于 2024-2-21 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018926&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-21 12:36</a>
+
+说 如果恐怖匕首和乌合之众放在一起
+
+是乌合之众先生牌 还是恐怖匕首先开刀 还是按前后顺序来 ...</blockquote>
+牌都是左右顺序触发
+

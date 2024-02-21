@@ -1250,3 +1250,16 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 扣1主控异刃还能救一救吗<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 3983#       发表于 2024-2-21 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018628&amp;ptid=2092345" target="_blank">亚瑟邓特 发表于 2024-2-21 12:13</a>
+
+能力也是硬控
+
+不是我说这约定定的也太晚了，上集定这集就收，是不是之前忘了 ...</blockquote>
+后半部分剧情一直在加速，特别是16话开始，现在就希望鸭田和山本在加速时适当踩一下油门不要掉到悬崖下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

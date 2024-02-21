@@ -791,3 +791,28 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 怪刷得多了，掉帧的同时，感觉角色就走不动路了，鲑鱼的墨水也变得特别黏脚，整个人像是慢动作一样，但是与此同时鲑鱼的动作还是正常速度的。而且不知道是不是网络问题，鲑鱼的攻击判定比看上去的要大，感觉角色离蛇的铁头还有一点距离，但是还是被创到了。
 
+
+*****
+
+####  罗克萨斯  
+##### 3098#       发表于 2024-2-21 14:59
+
+这可能是我最喜欢的更新，之前吐槽过的祭典T恤也可以改长度了<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/21/145727oreex6x361r955v3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-21-14-56-59-424_tv.danmaku.bili-edit.jpg</strong> (234.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 14:57 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  苍蓝之枪  
+##### 3099#       发表于 2024-2-21 15:03
+
+看这架势今天晚上恐怕很难有大腿抱了？750以上正是有难度的地方
+

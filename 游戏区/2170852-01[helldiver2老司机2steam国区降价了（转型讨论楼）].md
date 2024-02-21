@@ -8256,3 +8256,16 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 849#       发表于 2024-2-21 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64019424&amp;ptid=2170852" target="_blank">Anhydrite 发表于 2024-2-21 13:25</a>
+
+今天steam最高在线都45w了，瑞典人脑子纯粹有坑，早上起床排队到现在没进去游戏
+
+—— 来自 S1Fun ...</blockquote>
+直接从steam好友列表加入正在玩的好友可以插队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -57,3 +57,19 @@ xgp可以玩了
 
 这下300w了，新作今年科隆有片吗？<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空洞骑士  
+##### 6798#       发表于 2024-2-21 13:39
+
+这下实打实系列最高销量了，宵星应该还没破300万吧。DLC敷衍成这样都能让本体3个月卖30万啊。
+
+
+*****
+
+####  抽烟的猴  
+##### 6799#       发表于 2024-2-21 13:44
+
+对现在的jrpg来说，卖相大于一切实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

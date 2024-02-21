@@ -1085,3 +1085,16 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  shirolin  
+##### 3126#       发表于 2024-2-21 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64024999&amp;ptid=2150634" target="_blank">Dedalus 发表于 2024-2-21 22:47</a>
+明早一切都见分晓了，先给个玩前印象分，三代dlc播片卖相个人感觉七分左右
+二代英雄模式我给七分，dlc十分 ...</blockquote>
+那我觉得可能只有6分了
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

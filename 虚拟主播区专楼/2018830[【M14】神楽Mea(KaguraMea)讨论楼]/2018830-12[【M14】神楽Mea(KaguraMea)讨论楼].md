@@ -118,3 +118,19 @@
 
 录了音声，还有五个小游戏，可惜是限定的
 
+
+*****
+
+####  aisakahammer  
+##### 16324#       发表于 2024-2-21 23:52
+
+<img src="https://img.saraba1st.com/forum/202402/21/235222vkkkh0zhyptjtht1.jpg" referrerpolicy="no-referrer">
+
+<strong>ETOL}010ST{K4$VCK]N5QYS.jpg</strong> (191.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 23:52 上传
+
+test
+

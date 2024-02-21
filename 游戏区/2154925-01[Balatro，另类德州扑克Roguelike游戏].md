@@ -803,3 +803,11 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 因为听谜叔说中文有问题所以直接用英文玩了，几个专有名词搞懂后基本可以无障碍阅读
 
+
+*****
+
+####  你好s1  
+##### 73#       发表于 2024-2-21 23:54
+
+    没买，看着虽然好玩，但感觉不耐玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -320,3 +320,24 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  油库里  
+##### 4034#       发表于 2024-2-22 03:29
+
+女神和会长的魔法道具封印能用光系最终魔法防住的 提前放一个就行 然后就是砍瓜切菜了 当然早点去挑战的话魔法可能还没点出来
+
+
+*****
+
+####  caupollen  
+##### 4035#       发表于 2024-2-22 03:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64026900&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2024-2-22 03:11</a>
+
+绳子安眠药在哪儿，我打完十一层了没见过
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 S1Next-鹅版 v2.1 ...</blockquote>
+武器没练完
+

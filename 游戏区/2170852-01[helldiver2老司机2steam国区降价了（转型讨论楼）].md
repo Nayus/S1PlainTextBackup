@@ -8156,3 +8156,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">想起昨天路人连着打了几场，结果最后一场打了十五分钟快结束了服务器把我弹出房的事了
 
+
+*****
+
+####  真红眼教授  
+##### 839#       发表于 2024-2-21 11:07
+
+一晚上要么队友掉线被虫海追，要么自己掉线或者卡结算，不知道在玩什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

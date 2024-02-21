@@ -39,3 +39,24 @@
 来点中学时期的高尾奏音写真<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 [https://www.bilibili.com/video/BV1Az421R7zj/](https://www.bilibili.com/video/BV1Az421R7zj/)
 
+
+*****
+
+####  Akari  
+##### 13325#       发表于 2024-2-21 11:14
+
+mujica属于外行人听不太出问题。
+
+最初短板在双吉他，1st进步很大，但是节奏吉他还需要更精进的程度。
+
+节约宝已经很努力了，还没到需要拷打的程度。
+
+*****
+
+####  爱丁堡official  
+##### 13326#       发表于 2024-2-21 11:17
+
+明天是猫猫生日了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

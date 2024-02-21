@@ -1016,3 +1016,24 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Junakr  
+##### 3120#       发表于 2024-2-21 20:36
+
+怎么会是撞到雨帘呢……拿打工教程测试了一下高台会碰到蛇的范围，只有游出边缘才会撞上。
+
+再切一下原视频，判定再怎么离谱也不可能那么远就撞到啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+泥潭附件估计又坏了，要不然我直接传 MP4 省得压缩了。
+
+测试 1：
+<img src="https://p.sda1.dev/15/bef2568f208d9d8c9e4e06d99fcf5c67/测试1.gif" referrerpolicy="no-referrer">
+
+测试 2：
+<img src="https://p.sda1.dev/15/b7e2118f7ed9c4feb3c930d3ad63aa1c/测试2.gif" referrerpolicy="no-referrer">
+
+原视频切片：
+<img src="https://p.sda1.dev/15/470419138160394940e6ecd78eabed35/原视频切片.gif" referrerpolicy="no-referrer">
+

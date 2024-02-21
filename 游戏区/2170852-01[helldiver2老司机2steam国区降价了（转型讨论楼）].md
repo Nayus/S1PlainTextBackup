@@ -8391,3 +8391,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，难绷，直接4人同时闪退
 
+
+*****
+
+####  FLZB  
+##### 863#       发表于 2024-2-21 20:39
+
+匹配好了野队也越来越抽象了，队友磁轨六七枪没打破坦克虫的腿给我看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

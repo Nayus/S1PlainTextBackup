@@ -8235,3 +8235,14 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 ----发送自 Sony XQ-AT72,Android 12 ...</blockquote>
 免费债券第七页那个 开路侦察兵
 
+
+*****
+
+####  FLZB  
+##### 847#       发表于 2024-2-21 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64017572&amp;ptid=2170852" target="_blank">ocean1003cn 发表于 2024-2-21 10:45</a>
+
+有没有跟我一样，一直闪退进不去游戏，我连第一个过场动画都没看完，今天再进不去我就退款了 ...</blockquote>
+禁用steam输入
+

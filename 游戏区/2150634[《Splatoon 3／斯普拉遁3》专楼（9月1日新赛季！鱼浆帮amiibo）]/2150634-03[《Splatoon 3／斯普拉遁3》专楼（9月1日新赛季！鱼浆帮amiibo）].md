@@ -637,3 +637,19 @@ WAVE1とWAVE3の潮位が同じで、WAVE2は異なる潮位のとき、WAVE3で
 
 红4K这么穿行不行，全员弹射起飞。
 
+
+*****
+
+####  Junakr  
+##### 3082#       发表于 2024-2-21 11:22
+
+随手做张不太合适的梗图吐槽下研究所对平衡性调整 vs 没用的装饰品更新之间的态度。
+
+<img src="https://img.saraba1st.com/forum/202402/21/112231ykzfjlf14m2su422.jpg" referrerpolicy="no-referrer">
+
+<strong>photo.jpg</strong> (246.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 11:22 上传
+

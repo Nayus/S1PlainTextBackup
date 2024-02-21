@@ -101,3 +101,14 @@ TV动画和连载漫画？
 
 深沙希是什么特异功能？难道说是隐身？
 
+
+*****
+
+####  江戸前ルナ  
+##### 934#         楼主| 发表于 2024-2-21 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64015979&amp;ptid=2104259" target="_blank">regular 发表于 2024-2-21 06:44</a>
+
+深沙希是什么特异功能？难道说是隐身？</blockquote>
+存在感极其稀薄。类比就是天麻里的桃子（
+

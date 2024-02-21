@@ -916,3 +916,11 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就刚刚在b站看了个2代xp上3000的玩家年龄统计，十几个人最大的21岁
 
+
+*****
+
+####  美式咖啡  
+##### 3111#       发表于 2024-2-21 16:39
+
+反应和视力 这游戏肯定18左右的最有优势
+

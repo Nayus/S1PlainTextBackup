@@ -607,3 +607,26 @@ mark，发售了口碑如何？</blockquote>
 
 这游戏本地化再好一点，热度肯定能再上一个档次，真好玩（虽然有的boss 比如针 好生初见杀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  zyuco  
+##### 52#       发表于 2024-2-21 15:29
+
+本来每一手都可以拿一千万分以为好歹苟住了下一层，结果ante12直接给我来了3亿分小盲注当场去世
+
+<img src="https://img.saraba1st.com/forum/202402/20/232929iaot6ab9txrtdau2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (164.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 15:29 上传
+
+*****
+
+####  Tienx  
+##### 53#       发表于 2024-2-21 15:32
+
+三亿我靠，8层boss30w都把我打爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

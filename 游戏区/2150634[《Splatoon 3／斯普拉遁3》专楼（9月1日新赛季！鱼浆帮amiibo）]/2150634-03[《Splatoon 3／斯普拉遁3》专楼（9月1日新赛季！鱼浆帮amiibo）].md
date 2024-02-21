@@ -847,3 +847,14 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 碰到蛇身了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我都没下高台，连白线处都没游到就死了，怎么会撞到蛇身。
 
+
+*****
+
+####  erewrerwe  
+##### 3103#       发表于 2024-2-21 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64020724&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-21 15:22</a>
+
+我都没下高台，连白线处都没游到就死了，怎么会撞到蛇身。</blockquote>
+卷起来的蛇身判定就是这样子的, 加上潜墨判定范围比较大
+

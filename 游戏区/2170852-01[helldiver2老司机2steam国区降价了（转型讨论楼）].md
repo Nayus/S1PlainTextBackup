@@ -8415,3 +8415,13 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 前几天起码挤进能跟好友组队玩没问题.今天好友组队一路闪退.气炸<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 866#       发表于 2024-2-21 21:09
+
+载具上线预感又要炸一波
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

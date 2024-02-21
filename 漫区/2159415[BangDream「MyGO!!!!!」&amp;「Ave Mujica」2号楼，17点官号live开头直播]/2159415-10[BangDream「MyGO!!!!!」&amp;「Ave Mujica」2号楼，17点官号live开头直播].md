@@ -342,3 +342,13 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 佐佐木李子又重新歌手出道了签约Lantis</blockquote>
 一直都是出道的歌手，只是第一次在爛鐵廠牌出道
 
+
+*****
+
+####  屑猫猫  
+##### 13347#       发表于 2024-2-21 19:43
+
+话说爱美最近发生什么了嘛，突然看到有人提及她把ins全删了，我没法去确认，只能问问有没有坛友关注她
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

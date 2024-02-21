@@ -246,3 +246,13 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 
 dlc新章倒是能解释为啥阿斯特莱亚选男主做自己的尖兵
 
+
+*****
+
+####  suija  
+##### 4027#       发表于 2024-2-21 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016050&amp;ptid=2098044" target="_blank">otakun 发表于 2024-2-21 07:34</a>
+DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦磨完了银白，看到一下冒出六个boss 关卡，随便 ...</blockquote>
+如果不是地狱以上死了什么都没有的话到了7章差不多底子就可以了，前面尽量刷装备被动有一些好用的能用的话就可以开狂暴去打了，这些boss真正麻烦的招其实不算多，一次破防能打掉1/3血的话那就是可以打打了，保命的低消耗魔法和消除弹幕在狂暴强制一血情况下配合使用还是挺有用的，另外金蝉脱壳等于多一次被打的机会，雾影超长回避距离有时候也能比较安全的拉开一段距离再看情况处理，其他的就慢慢适应了，这种收集游戏我很多时候也是喜欢尽量收集全了再过剧情的，所以很多时候最终剧情boss已经没什么难度了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

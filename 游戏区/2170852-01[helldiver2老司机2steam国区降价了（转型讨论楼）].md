@@ -8200,3 +8200,38 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  赤井稻妻  
+##### 844#       发表于 2024-2-21 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018806&amp;ptid=2170852" target="_blank">绚烂航迹云 发表于 2024-2-21 12:27</a>
+
+据说有个能加移速但中文说明里没提的头盔，是哪个呀？
+
+----发送自 Sony XQ-AT72,Android 12 ...</blockquote>
+侦察兵那个，你换上之后再换衣服能看到自己护甲降低速度增加，直接换头盔看不到
+
+*****
+
+####  WGTCorp  
+##### 845#       发表于 2024-2-21 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018806&amp;ptid=2170852" target="_blank">绚烂航迹云 发表于 2024-2-21 12:27</a>
+据说有个能加移速但中文说明里没提的头盔，是哪个呀？
+
+----发送自 Sony XQ-AT72,Android 12 ...</blockquote>
+普通债券第7页那个侦查轻甲的头盔
+
+*****
+
+####  绯想天の天子  
+##### 846#       发表于 2024-2-21 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018806&amp;ptid=2170852" target="_blank">绚烂航迹云 发表于 2024-2-21 12:27</a>
+据说有个能加移速但中文说明里没提的头盔，是哪个呀？
+
+----发送自 Sony XQ-AT72,Android 12 ...</blockquote>
+免费债券第七页那个 开路侦察兵
+

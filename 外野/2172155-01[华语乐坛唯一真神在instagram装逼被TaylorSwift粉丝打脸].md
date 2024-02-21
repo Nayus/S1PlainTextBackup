@@ -1057,3 +1057,13 @@ travis scott<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 看到泰勒就反胃，结巴越来越油腻，跑微博看一圈发现什么陈年旧谣都有
 
+
+*****
+
+####  IG.430  
+##### 111#       发表于 2024-2-21 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64003679&amp;ptid=2172155" target="_blank">变老的大二 发表于 2024-2-19 22:21</a>
+ 干脆把侃爷粉丝也拉过来三方混战得了</blockquote>
+I made that BITCH famous <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

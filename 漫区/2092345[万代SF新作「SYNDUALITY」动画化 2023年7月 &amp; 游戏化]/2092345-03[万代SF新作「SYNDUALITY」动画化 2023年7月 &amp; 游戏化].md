@@ -1134,3 +1134,13 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 以及还有诺艾尔在夺舍完身体后，却依然留下了一撮原发色挑染的这个造型设计，也有可能是个诈尸的铺垫，消失了但又没完全消失
 
+
+*****
+
+####  阿克萌德  
+##### 3972#       发表于 2024-2-21 07:49
+
+诺娃作为贤士安全模式，能修复黑皮妹，自然能修复歌姬，诺娃真正的身体可能在卫星上。
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

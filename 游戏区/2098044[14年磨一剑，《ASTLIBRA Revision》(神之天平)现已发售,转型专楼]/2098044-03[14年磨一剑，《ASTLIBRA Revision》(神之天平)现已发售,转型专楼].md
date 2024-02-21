@@ -188,3 +188,18 @@ dlc14个小时通关 最终boss不想刷了 用小火球和放魔法的时候吸
 
 DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦磨完了银白，看到一下冒出六个boss 关卡，随便进一个发现都是个位数刮痧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 4021#       发表于 2024-2-21 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016050&amp;ptid=2098044" target="_blank">otakun 发表于 2024-2-21 07:34</a>
+DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦磨完了银白，看到一下冒出六个boss 关卡，随便 ...</blockquote>
+六个神。
+战神，魔女，魔神一个档次，妖精强点，龙王和女神最强。
+打完一个解锁对应属性的成长锁。
+
+前面4个把全锁前的全解锁了就行，甚至操作好可以不用解锁那么多属性，把魔法和魔法等级解锁就行。
+龙王和女神最好是正式打之前能解锁多少解锁多少。
+

@@ -836,3 +836,14 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 刚好上轮生筋子就录了一段蛇头延迟杀，第一次粘脚被创，第二次滚行挡了一下，第三次我真没碰到，还是被创死 ...</blockquote>
 碰到蛇身了
 
+
+*****
+
+####  Junakr  
+##### 3102#       发表于 2024-2-21 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64020628&amp;ptid=2150634" target="_blank">erewrerwe 发表于 2024-2-21 15:15</a>
+
+碰到蛇身了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我都没下高台，连白线处都没游到就死了，怎么会撞到蛇身。
+

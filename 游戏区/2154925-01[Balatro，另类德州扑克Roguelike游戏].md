@@ -630,3 +630,11 @@ mark，发售了口碑如何？</blockquote>
 
 三亿我靠，8层boss30w都把我打爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就是剑鞘  
+##### 54#       发表于 2024-2-21 16:09
+
+去collection - blinds里面可以看每一层的基础底注的，我就是看了一眼就决定放弃无尽模式了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

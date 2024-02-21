@@ -1157,3 +1157,14 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 —— 来自 S1Fun</blockquote>
 啊，感谢奶茶屋<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2296506  
+##### 3974#       发表于 2024-2-21 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016161&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-21 08:11</a>
+
+啊，感谢奶茶屋</blockquote>
+周一周二的时候网上也有官方字幕的版本的。不过因为是多国字幕，不是专门的中文字幕，很容易忽略。搜英文名就好
+

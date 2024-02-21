@@ -221,3 +221,20 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 这面包房少女什么来头, 被创世神本人评价实力深不可测还当成最终保险来用 ...</blockquote>
 就是普通人通过奇遇（偶遇狗哥）打通奇经八脉（在原初洞窟里不断修炼）成为一代高手（第二位超兵）。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 4024#       发表于 2024-2-21 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016343&amp;ptid=2098044" target="_blank">滋啦球 发表于 2024-2-21 08:48</a>
+这面包房少女什么来头, 被创世神本人评价实力深不可测还当成最终保险来用 ...</blockquote>
+看老头的意思是绑一块也未必能赢。但是绑一块说不准还能研究出啥。
+
+*****
+
+####  tansapple  
+##### 4025#       发表于 2024-2-21 10:10
+
+说些个人解读相关的。感觉就是烟雾神在外传里搞事的时候，老爷爷就看中了面包妹的资质，而且为了应对外来入侵者的威胁，所以才在本篇新章剧情完结之后，继续诱导面包妹进行修炼，最终关也可以看做是老爷爷自己检验培养结果。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -571,3 +571,13 @@ https://www.nintendo.co.jp/support/switch/software_support/av5ja/700.html
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">マニュコラwww，是C带的砸地太强了吗
 
+
+*****
+
+####  罗克萨斯  
+##### 3076#       发表于 2024-2-21 10:10
+
+新增153种装备，爽啊，希望能给战斗鱿鱼多几双鞋
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -240,3 +240,13 @@ choco原设的欧若拉好色
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  v22325  
+##### 11419#       发表于 2024-2-21 20:21
+
+ 本帖最后由 v22325 于 2024-2-21 20:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便上了卑弥呼c呆耐久队打，突然马老师宝具给我射死一个..…忘了他伤害前解防御，应该带个什么卡他一回合的礼装的。
+

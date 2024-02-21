@@ -221,3 +221,22 @@ choco原设的欧若拉好色
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这高难 就是拖时间 等他们自动退场 然后脚打   据说可以强杀变成超级高难  懒得试了
 
+
+*****
+
+####  beer  
+##### 11417#       发表于 2024-2-21 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64019182&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-2-21 13:00</a>
+兔老师的X放了蝙蝠哥的背后设计</blockquote>
+原来还是双马尾
+
+*****
+
+####  不垃圾屌丝  
+##### 11418#       发表于 2024-2-21 18:50
+
+摩梅呆过了，除了马老师没强解，很难吗
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

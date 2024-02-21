@@ -811,3 +811,13 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
     没买，看着虽然好玩，但感觉不耐玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 74#       发表于 2024-2-22 00:09
+
+这个游戏的最终成就太混沌了
+
+需要把全部的150张joker牌贴上金色贴纸 也就是最高难度通关……
+

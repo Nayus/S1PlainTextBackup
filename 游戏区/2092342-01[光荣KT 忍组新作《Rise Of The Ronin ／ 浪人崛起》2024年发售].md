@@ -43,3 +43,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 可能索尼想讓浪人死吧，發售日撞車，預告片也撞車。
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 668#       发表于 2024-2-22 00:08
+
+摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 浪人销量真难说了
+

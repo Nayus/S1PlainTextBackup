@@ -955,3 +955,22 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 3115#       发表于 2024-2-21 18:18
+
+比无印帅多了，最快明天入手<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+【【Splatoon3搬运】Side order 今日牙膏 2/21 内容稍后见简介-哔哩哔哩】 https://b23.tv/8TP38eO
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  carroy  
+##### 3116#       发表于 2024-2-21 18:21
+
+新歌好听
+

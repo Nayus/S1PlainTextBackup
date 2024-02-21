@@ -8338,3 +8338,13 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 题外话
 灭绝和绝地战兵早就不是一个体量了，前者日活几百、大更新几千，后者峰值四十万，指望分流是不是有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 857#       发表于 2024-2-21 18:23
+
+双端加起来在线峰值估计有九十万了吧，说起来在这几年联机游戏里算个什么水平
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

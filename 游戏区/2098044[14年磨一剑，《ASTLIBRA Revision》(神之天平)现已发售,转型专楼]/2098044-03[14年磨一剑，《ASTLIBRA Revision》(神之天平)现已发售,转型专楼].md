@@ -266,3 +266,16 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 如果不是地狱以上死了什么都没有的话到了7章差不多底子就可以了，前面尽量刷装备被动有一些好用的能用的 ...</blockquote>
 第七章武器打上去个位数伤害，我决定不打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 4029#       发表于 2024-2-21 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64017181&amp;ptid=2098044" target="_blank">tansapple 发表于 2024-2-21 10:10</a>
+
+说些个人解读相关的。感觉就是烟雾神在外传里搞事的时候，老爷爷就看中了面包妹的资质，而且为了应对外来入 ...</blockquote>
+新章剧情里是魔女找的面包妹吧。无限命也是魔女给的。
+
+魔女应该和老爷爷没关系。
+

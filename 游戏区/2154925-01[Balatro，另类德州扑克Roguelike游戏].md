@@ -870,3 +870,15 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 以及提供乘算效果的鬼牌好像大部分都要达成一定条件解锁，虽然大部分前期没啥用但后面能买到还是提升挺大的
 
+
+*****
+
+####  子夜微雪  
+##### 79#       发表于 2024-2-22 03:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64025635&amp;ptid=2154925" target="_blank">schneehertz 发表于 2024-2-21 23:31</a>
+这得多胡才能解锁这张卡。。</blockquote>
+想办法打到底注13就过了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

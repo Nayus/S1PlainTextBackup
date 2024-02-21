@@ -216,3 +216,11 @@ yabu还说成长了，这发音跟去年差不多啊
 鱼就回日本了？这回国连家都没回呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她自己在fmt也说了，fmt结束后不会在上海玩得马上回去工作
 
+
+*****
+
+####  ViyViy  
+##### 19658#       发表于 2024-2-21 22:27
+
+话说我很久之前刷X还见过个跪拜鱼那个代言大广告牌的（第一年拍的那个），不会是同一个人吧。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

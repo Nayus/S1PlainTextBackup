@@ -1263,3 +1263,13 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 不是我说这约定定的也太晚了，上集定这集就收，是不是之前忘了 ...</blockquote>
 后半部分剧情一直在加速，特别是16话开始，现在就希望鸭田和山本在加速时适当踩一下油门不要掉到悬崖下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangqizhi45  
+##### 3984#       发表于 2024-2-21 19:13
+
+这样整说不定最终目的地说不定有恢复记忆的线索，给诺娃整了个新身体顺便给艾达和夏尔复原吧，就是……
+
+你游戏本体都没出就这么着急给看动画的人来个结局不会整得玩游戏剧情的时候气氛全无吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

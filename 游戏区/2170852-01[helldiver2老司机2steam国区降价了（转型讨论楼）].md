@@ -8348,3 +8348,14 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gzGaryC  
+##### 858#       发表于 2024-2-21 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64020954&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-2-21 15:43</a>
+
+昨天晚上玩的时候是一上船就闪退，早上补丁说修了效果怎么样？现在是上完船过动画时候闪退吗？ ...</blockquote>
+结束一局回到船上瞎晃的时候闪退的，没什么征兆
+

@@ -220,3 +220,16 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ddy2811  
+##### 13339#       发表于 2024-2-21 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64022286&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-2-21 17:50</a>
+
+一直以为李子是歌手出道状态
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+应该一直是歌手出道状态吧，歌手工作没断过啊
+

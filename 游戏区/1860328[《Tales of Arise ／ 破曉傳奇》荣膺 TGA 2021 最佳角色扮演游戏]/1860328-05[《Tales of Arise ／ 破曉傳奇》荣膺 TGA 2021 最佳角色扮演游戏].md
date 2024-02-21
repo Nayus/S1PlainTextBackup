@@ -89,3 +89,17 @@ xgp可以玩了
 
 2024-2-21 17:55 上传
 
+
+*****
+
+####  宛若青空  
+##### 6801#       发表于 2024-2-21 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64022349&amp;ptid=1860328" target="_blank">空洞骑士 发表于 2024-2-21 17:56</a>
+
+破300w看了眼游戏，结果steam上昨天出了个新DLC？这不会是主机版DLC的实体版特典吧。
+
+ ...</blockquote>
+
+这个是买DLC相关谷子给的特典
+

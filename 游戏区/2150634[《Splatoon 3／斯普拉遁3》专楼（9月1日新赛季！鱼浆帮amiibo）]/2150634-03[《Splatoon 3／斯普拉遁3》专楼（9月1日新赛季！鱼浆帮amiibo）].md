@@ -1122,3 +1122,13 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 910了，为什么啊，高手都哪里去了
 
+
+*****
+
+####  幽灵部长助理  
+##### 3130#       发表于 2024-2-22 01:32
+
+二代DLC10分，三代英雄模式我给9分，感觉DLC可能也就6分<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+买都买了，玩呗，还能怎样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

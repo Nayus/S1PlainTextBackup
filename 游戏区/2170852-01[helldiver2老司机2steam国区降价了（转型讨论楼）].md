@@ -8476,3 +8476,24 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 这破游戏更新做得一坨屎
 
+
+*****
+
+####  Launce  
+##### 873#       发表于 2024-2-21 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64024893&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-21 22:39</a>
+
+竟然还有出不了冷冻仓的bug</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一直有，复数玩家同时进入会有概率卡在雪柜
+
+*****
+
+####  gzGaryC  
+##### 874#       发表于 2024-2-21 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64024893&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-21 22:39</a>
+
+竟然还有出不了冷冻仓的bug</blockquote>
+这个第一天就有了
+

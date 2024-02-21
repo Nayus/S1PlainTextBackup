@@ -538,3 +538,14 @@ mark，发售了口碑如何？</blockquote>
 
 那个blank遗物有啥作用？买了感觉什么也没啥发生。总不能真的是骗钱货吧。
 
+
+*****
+
+####  高歌  
+##### 46#       发表于 2024-2-21 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64019586&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-21 13:43</a>
+
+那个blank遗物有啥作用？买了感觉什么也没啥发生。总不能真的是骗钱货吧。 ...</blockquote>
+买10张解锁反物质优惠卷，效果是加一小丑栏位
+

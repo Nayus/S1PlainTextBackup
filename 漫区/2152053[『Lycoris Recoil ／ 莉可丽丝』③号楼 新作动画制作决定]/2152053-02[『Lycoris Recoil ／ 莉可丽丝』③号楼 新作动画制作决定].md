@@ -81,3 +81,14 @@
 一番赏<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/12c95c8fc9784aa529efeb4c23eccf8e/CMP_20240221132516253.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 1709#       发表于 2024-2-21 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64019419&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-2-21 13:25</a>
+
+一番赏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来像左边俩成人组、右边俩幼儿组
+

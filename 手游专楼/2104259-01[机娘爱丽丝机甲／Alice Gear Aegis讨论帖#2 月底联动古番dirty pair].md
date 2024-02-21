@@ -112,3 +112,16 @@ TV动画和连载漫画？
 深沙希是什么特异功能？难道说是隐身？</blockquote>
 存在感极其稀薄。类比就是天麻里的桃子（
 
+
+*****
+
+####  Picavian  
+##### 935#       发表于 2024-2-21 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64015979&amp;ptid=2104259" target="_blank">regular 发表于 2024-2-21 06:44</a>
+
+深沙希是什么特异功能？难道说是隐身？</blockquote>
+降低自己的存在感，官推有特地说不是改变自己，而是降低别人脑子对自身的印象。
+
+东京aegis这次和乌克兰打麻将，出奇制胜的一招就是靠着凤这个明面上的东京第一雀士（读作actress）吸引乌克兰第一的安吉，然后深沙希在一边隐身做牌。
+

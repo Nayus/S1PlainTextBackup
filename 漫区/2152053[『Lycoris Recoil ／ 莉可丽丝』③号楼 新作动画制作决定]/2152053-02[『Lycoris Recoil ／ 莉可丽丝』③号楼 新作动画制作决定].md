@@ -100,3 +100,11 @@
 
 日亚这把玩大了，这么多人订千束手办，出货前一刻砍单，伊由群转发gsc声明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nwc32167  
+##### 1711#       发表于 2024-2-21 19:51
+
+今天日亚数小时内从1w4涨到3w3，X上骂声一片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

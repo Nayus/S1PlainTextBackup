@@ -352,3 +352,21 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  相坂君  
+##### 13348#       发表于 2024-2-21 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64022864&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-21 18:57</a>
+
+不知道是不是B站官号30w关注的贺图，上次mygo那个10w关注也是她画的</blockquote>
+画贺图的和这位不是同一只仓鼠，这是画师个人制品
+
+*****
+
+####  NODY  
+##### 13349#       发表于 2024-2-21 19:50
+
+原来不是一个作者吗，是我认错了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

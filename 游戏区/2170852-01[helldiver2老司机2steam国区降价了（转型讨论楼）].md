@@ -8318,3 +8318,23 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  smdzh2  
+##### 855#       发表于 2024-2-21 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018747&amp;ptid=2170852" target="_blank">runningch 发表于 2024-2-21 13:22</a>
+隔壁星河战队能不能再给点力分流一下啊，大家都是打虫子，要支稜起来啊。
+
+—— 来自 Sony S ...</blockquote>
+懒狗世外：不急，4月份更新0.7大版本，职业重做+银河战争，系机动步兵就来砍我
+
+*****
+
+####  smdzh2  
+##### 856#       发表于 2024-2-21 18:14
+
+题外话
+灭绝和绝地战兵早就不是一个体量了，前者日活几百、大更新几千，后者峰值四十万，指望分流是不是有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

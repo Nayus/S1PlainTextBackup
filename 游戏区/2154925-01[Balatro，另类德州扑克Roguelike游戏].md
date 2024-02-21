@@ -585,3 +585,25 @@ mark，发售了口碑如何？</blockquote>
 是乌合之众先生牌 还是恐怖匕首先开刀 还是按前后顺序来 ...</blockquote>
 牌都是左右顺序触发
 
+
+*****
+
+####  88is88  
+##### 50#       发表于 2024-2-21 15:10
+
+本质自走棋玩法，前期运营拿钱，看见关键遗物果断入手，后期买买买叠BUFF
+
+*****
+
+####  库德里尔  
+##### 51#       发表于 2024-2-21 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64020414&amp;ptid=2154925" target="_blank">周愚 发表于 2024-2-21 14:58</a>
+
+牌都是左右顺序触发</blockquote>
+也就是说只要在同一阶段里，能触发的牌张都是从左到右，那是不是也包括未打出的手牌？
+
+这样能调度的空间就更大了。
+
+这游戏本地化再好一点，热度肯定能再上一个档次，真好玩（虽然有的boss 比如针 好生初见杀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+

@@ -816,3 +816,23 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 看这架势今天晚上恐怕很难有大腿抱了？750以上正是有难度的地方
 
+
+*****
+
+####  Junakr  
+##### 3100#       发表于 2024-2-21 15:11
+
+刚好上轮生筋子就录了一段蛇头延迟杀，第一次粘脚被创，第二次滚行挡了一下，第三次我真没碰到，还是被创死了。
+
+<img src="https://p.sda1.dev/15/f4e50dc542e4892ca5a1fd9d7f455d98/photo.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  erewrerwe  
+##### 3101#       发表于 2024-2-21 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64020581&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-21 15:11</a>
+
+刚好上轮生筋子就录了一段蛇头延迟杀，第一次粘脚被创，第二次滚行挡了一下，第三次我真没碰到，还是被创死 ...</blockquote>
+碰到蛇身了
+

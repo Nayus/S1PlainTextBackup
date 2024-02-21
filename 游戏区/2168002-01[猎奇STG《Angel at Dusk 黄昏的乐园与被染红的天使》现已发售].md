@@ -126,3 +126,14 @@ Pixiv上相当比例的猎奇画作也是出自国人作者。跟性压抑导致
 —— 来自 meizu 17, Androi ...</blockquote>
 这个作者不了解，但是东方的同人游戏有些值得一玩
 
+
+*****
+
+####  Moltres.lv70  
+##### 128#       发表于 2024-2-21 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64015994&amp;ptid=2168002" target="_blank">月社银 发表于 2024-2-21 07:03</a>
+
+这个作者不了解，但是东方的同人游戏有些值得一玩</blockquote>
+等cave打折，steam有怒首领蜂大复活 虫姬1 还有个deathsmile没玩过，等波折扣一起收了
+

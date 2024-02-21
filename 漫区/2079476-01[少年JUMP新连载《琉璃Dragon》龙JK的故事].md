@@ -94,3 +94,11 @@
 
 先在周刊少年JUMP放5话存货，然后去少年JUMP+隔号连载，变相变半月刊了
 
+
+*****
+
+####  北山玖公  
+##### 116#       发表于 2024-2-21 13:53
+
+我就知道j+ 是人心所向<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，现在本刊的阵容等头部完结后是越看越拉了
+

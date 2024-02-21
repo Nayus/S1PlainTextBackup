@@ -1168,3 +1168,25 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 啊，感谢奶茶屋</blockquote>
 周一周二的时候网上也有官方字幕的版本的。不过因为是多国字幕，不是专门的中文字幕，很容易忽略。搜英文名就好
 
+
+*****
+
+####  aptx8285144  
+##### 3975#       发表于 2024-2-21 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016399&amp;ptid=2092345" target="_blank">2296506 发表于 2024-2-21 08:54</a>
+
+周一周二的时候网上也有官方字幕的版本的。不过因为是多国字幕，不是专门的中文字幕，很容易忽略。搜英文 ...</blockquote>
+迪士尼的中文字幕实在太粗糙到我对日文只知一些皮毛的人都看傻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2296506  
+##### 3976#       发表于 2024-2-21 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016426&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-21 08:57</a>
+
+迪士尼的中文字幕实在太粗糙到我对日文只知一些皮毛的人都看傻了</blockquote>
+这么讲究的吗？我好像以前也是，没有字幕组出就不看。现在都不等了，要看最新的，不看最新就会错过网上的讨论，或者被网上剧透。能回到以前不参与网上的讨论默默看动画也不错，不过回不去了
+

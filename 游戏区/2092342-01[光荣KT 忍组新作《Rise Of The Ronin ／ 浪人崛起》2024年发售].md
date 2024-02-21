@@ -51,3 +51,20 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 浪人销量真难说了
 
+
+*****
+
+####  waelaZed  
+##### 669#       发表于 2024-2-22 01:09
+
+骚妮限时独占闹别扭了吧
+
+*****
+
+####  渡辺梨加  
+##### 670#       发表于 2024-2-22 01:11
+
+踢箱子那一下真的绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

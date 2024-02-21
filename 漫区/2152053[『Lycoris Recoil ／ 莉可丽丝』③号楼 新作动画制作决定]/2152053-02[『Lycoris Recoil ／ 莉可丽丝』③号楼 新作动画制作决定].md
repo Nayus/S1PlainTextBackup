@@ -108,3 +108,22 @@
 
 今天日亚数小时内从1w4涨到3w3，X上骂声一片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1712#       发表于 2024-2-21 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64019614&amp;ptid=2152053" target="_blank">osore 发表于 2024-2-21 13:47</a>
+看起来像左边俩成人组、右边俩幼儿组</blockquote>
+tkn穿这种成熟装都很害羞的亚子，穿再成熟也是0<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 1713#       发表于 2024-2-21 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64023290&amp;ptid=2152053" target="_blank">nwc32167 发表于 2024-2-21 19:51</a>
+今天日亚数小时内从1w4涨到3w3，X上骂声一片</blockquote>
+草台是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -985,3 +985,23 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 我都没下高台，连白线处都没游到就死了，怎么会撞到蛇身。</blockquote>
 就是撞雨帘了，潜墨状态你的碰撞体积比你想象的要大，可不仅仅是墨水指示线那个点，没墨的地方潜下来观察下
 
+
+*****
+
+####  罗克萨斯  
+##### 3118#       发表于 2024-2-21 20:02
+
+李雷区域4000达成
+
+<img src="https://img.saraba1st.com/forum/202402/21/200058k8rehz72gw7k72xf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-21-20-00-10-824_com.google.android.youtube-edit.jpg</strong> (484.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 20:00 上传
+
+他在上一代不是天才加特林玩家么？结果这代基本都在玩绿双和香槟
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

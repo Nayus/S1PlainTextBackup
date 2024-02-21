@@ -341,3 +341,12 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 —— 来自 Xiaomi 23054RA19C, Android 13上的 S1Next-鹅版 v2.1 ...</blockquote>
 武器没练完
 
+
+*****
+
+####  otakun  
+##### 4036#       发表于 2024-2-22 07:44
+
+出心天平的是还楞了一下，想着女主不穿铠甲啊，一看果然是在道具里，然后居然是女主放面包店里交换的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，只说个叫“变什么的石头”果然就有人来交换了。
+然后变石有实际作用吗，还是只是个彩蛋？
+

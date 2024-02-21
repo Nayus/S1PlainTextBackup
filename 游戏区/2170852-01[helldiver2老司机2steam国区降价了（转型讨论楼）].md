@@ -8468,3 +8468,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  sixgun  
+##### 872#       发表于 2024-2-21 22:51
+
+这破游戏更新做得一坨屎
+

@@ -250,3 +250,14 @@ choco原设的欧若拉好色
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便上了卑弥呼c呆耐久队打，突然马老师宝具给我射死一个..…忘了他伤害前解防御，应该带个什么卡他一回合的礼装的。
 
+
+*****
+
+####  exiaexa  
+##### 11420#       发表于 2024-2-21 22:54
+
+你们还是太坚强了
+
+我就随便拉了烟雾镜+拐进去乱打一通，然后令咒-3完事儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

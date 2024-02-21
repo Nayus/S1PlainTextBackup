@@ -8164,3 +8164,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 一晚上要么队友掉线被虫海追，要么自己掉线或者卡结算，不知道在玩什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 840#       发表于 2024-2-21 11:53
+
+卡结算还好，下次登入会回吐。昨天试过卡成ppt。
+

@@ -8425,3 +8425,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  白昼梦  
+##### 867#       发表于 2024-2-21 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天没排队还流畅匹配了，结果排到大腿一起把图舔干净开始做主任务之后大佬直接掉了
+

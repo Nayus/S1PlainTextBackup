@@ -8457,3 +8457,14 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 越更新越难玩到，真滴幽默，我建议这服务质量回炉吧，别成天浪费程序员生命。
 
+
+*****
+
+####  sigeren  
+##### 871#       发表于 2024-2-21 22:39
+
+竟然还有出不了冷冻仓的bug<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/0037c747a7d0b8be03d115ecf3702860/CMP_20240221223905683.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

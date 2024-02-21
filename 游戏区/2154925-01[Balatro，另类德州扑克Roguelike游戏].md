@@ -718,3 +718,16 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 很想知道中文是怎么翻译这个牌型的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/ba6da3efde38f8ac2c3d921620bfb1bd/QQ图片20240221221451.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 65#       发表于 2024-2-21 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64024622&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-21 22:16</a>
+
+很想知道中文是怎么翻译这个牌型的</blockquote>
+五条
+
+由于可以出现复数张一样的牌，自然还有同花五条和同花葫芦两个隐藏牌型
+

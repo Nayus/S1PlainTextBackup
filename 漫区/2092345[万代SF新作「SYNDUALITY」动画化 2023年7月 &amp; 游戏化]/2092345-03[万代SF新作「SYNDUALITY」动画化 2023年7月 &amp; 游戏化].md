@@ -1285,3 +1285,139 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 你 ...</blockquote>
 游戏原定的发售时间是一期之后 二期之前 结果延期了
 
+
+*****
+
+####  aptx8285144  
+##### 3986#       发表于 2024-2-21 21:38
+
+<img src="https://img.saraba1st.com/forum/202402/21/204744r2614ak6vk4anzh1.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221204453.jpg</strong> (35.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 20:47 上传
+
+从16话开始看奶茶屋，这句翻译就很不错
+
+<img src="https://img.saraba1st.com/forum/202402/21/205443hzncjiqdlotucout.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221205432.png</strong> (48.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 20:54 上传
+
+突尼斯？感觉不知道准不准确
+
+<img src="https://img.saraba1st.com/forum/202402/21/205620qzkmzltm8hiy7hyb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221205613.png</strong> (61.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 20:56 上传
+
+彼方对大哥还挺”宠“的（
+
+<img src="https://img.saraba1st.com/forum/202402/21/210000vbzbupu72hbkeb57.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221205951.png</strong> (59.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:00 上传
+
+在安全模式下的白诺娃拥有高性能？
+
+<img src="https://img.saraba1st.com/forum/202402/21/210322w45jfobhxx5gmh9h.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221210315.png</strong> (42.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:03 上传
+
+你在”擅自使用“的我资源<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/21/210522of6f2a66faf9t6vt.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221210508.png</strong> (42.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:05 上传
+
+会不会给人一种<strong>吹牛的感觉</strong><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，修涅表示你的火攻战术就那样jpg
+
+<img src="https://img.saraba1st.com/forum/202402/21/211401e4kuj3q73b7re343.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221211352.png</strong> (66.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:14 上传
+
+资源问题，这片其实一直都有暗示
+
+<img src="https://img.saraba1st.com/forum/202402/21/211909ap7krv35yswspn5j.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221211903.png</strong> (80.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:19 上传
+
+呆萌的治愈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/21/212219zxscx2zdrgyak2ig.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221212211.png</strong> (79.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:22 上传
+
+玛利亚似乎对三原则也并不是十分一板一眼地重视
+
+<img src="https://img.saraba1st.com/forum/202402/21/212536yavhnsy9bu00h08l.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221212528.png</strong> (70.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:25 上传
+
+ 奶茶屋对托孤这里翻译是”意会“即可
+
+<img src="https://img.saraba1st.com/forum/202402/21/213049oeeer2ue4eesqoxk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221213037.png</strong> (96.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:30 上传
+
+奶茶屋的翻译也强调”家人“比变强更重要
+
+<img src="https://img.saraba1st.com/forum/202402/21/213330bz4f79ddxdo4s6dw.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221213309.png</strong> (107.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:33 上传
+
+仔细一想的话，诺娃的告别的对象正好没有歌姬呀
+
+<img src="https://img.saraba1st.com/forum/202402/21/213558yood5bm5mheevb8b.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240221213549.png</strong> (52.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:35 上传
+
+这个外形还挺酷的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

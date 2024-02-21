@@ -638,3 +638,18 @@ mark，发售了口碑如何？</blockquote>
 
 去collection - blinds里面可以看每一层的基础底注的，我就是看了一眼就决定放弃无尽模式了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  断片集  
+##### 55#       发表于 2024-2-21 16:54
+
+大数字真的太爽了
+
+*****
+
+####  88is88  
+##### 56#       发表于 2024-2-21 16:54
+
+的确，本地化做得太差了，难怪谜叔专门做了一个视频在评论下面喷汉化公司要求给制作组退钱
+

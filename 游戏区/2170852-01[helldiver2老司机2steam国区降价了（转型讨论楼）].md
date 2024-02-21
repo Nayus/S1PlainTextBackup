@@ -8119,3 +8119,24 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 太弱智了，这几天连好友房都花式掉线，不是打一半突然瞬移回自己飞船就是刚进好友飞船直接掉线
 
+
+*****
+
+####  hlz1239  
+##### 835#       发表于 2024-2-21 09:34
+
+到底是谁在玩这个游戏，steamdb显示的在线人数已经超过45万了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ナルバレック  
+##### 836#       发表于 2024-2-21 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016762&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-2-21 09:29</a>
+
+太弱智了，这几天连好友房都花式掉线，不是打一半突然瞬移回自己飞船就是刚进好友飞船直接掉线 ...</blockquote>
+制作组换服务器的可用承载数量没有玩家数量涨得快<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">，所以根本HOLD不住
+

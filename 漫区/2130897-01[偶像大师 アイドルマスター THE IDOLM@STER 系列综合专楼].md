@@ -1111,3 +1111,13 @@ holo应该比俺们过气偶像有流量吧<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">艹，该下回游戏了，这才是我最喜欢的那个灰姑娘
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1185#       发表于 2024-2-21 09:44
+
+ll联动也得有游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

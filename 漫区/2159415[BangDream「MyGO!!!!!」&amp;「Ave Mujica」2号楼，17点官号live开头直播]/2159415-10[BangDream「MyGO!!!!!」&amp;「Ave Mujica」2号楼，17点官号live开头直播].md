@@ -285,3 +285,60 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">李子鼓子怎么就不是队友了。
 
+
+*****
+
+####  yuyin589  
+##### 13343#       发表于 2024-2-21 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64022864&amp;ptid=2159415" target="_blank">NODY 发表于 2024-02-21 18:57:54</a>
+不知道是不是B站官号30w关注的贺图，上次mygo那个10w关注也是她画的</blockquote>应该不是 老师微博说了是新制品预告 应该只是老师的个人制品
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  swessia  
+##### 13344#       发表于 2024-2-21 19:21
+
+<blockquote>NODY 发表于 2024-2-21 18:57
+不知道是不是B站官号30w关注的贺图，上次mygo那个10w关注也是她画的</blockquote>
+仓鼠太太，快快端上来吧
+
+
+*****
+
+####  紫吹兰  
+##### 13345#         楼主| 发表于 2024-2-21 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64022916&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-2-21 19:06</a>
+
+李子鼓子怎么就不是队友了。</blockquote>
+确实不是队友，虹之咲钻石只是阴谋得逞的未来痴汉罢了
+
+<img src="https://img.saraba1st.com/forum/202402/21/192452qhwuq33hi1y3tm03.png" referrerpolicy="no-referrer">
+
+<strong>Dia1.png</strong> (200.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/21/192452m3x2w9kwfow8ke3x.png" referrerpolicy="no-referrer">
+
+<strong>dia.png</strong> (153.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 19:24 上传
+
+*****
+
+####  御幸一也  
+##### 13346#       发表于 2024-2-21 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64021360&amp;ptid=2159415" target="_blank">梶原ひかり 发表于 2024-2-21 16:21</a>
+
+佐佐木李子又重新歌手出道了签约Lantis</blockquote>
+一直都是出道的歌手，只是第一次在爛鐵廠牌出道
+

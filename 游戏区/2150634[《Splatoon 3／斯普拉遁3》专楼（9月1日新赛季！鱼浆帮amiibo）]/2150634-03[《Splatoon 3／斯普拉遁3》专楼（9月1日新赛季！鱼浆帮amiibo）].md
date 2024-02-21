@@ -974,3 +974,14 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 新歌好听
 
+
+*****
+
+####  leyenda  
+##### 3117#       发表于 2024-2-21 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64020724&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-21 15:22</a>
+
+我都没下高台，连白线处都没游到就死了，怎么会撞到蛇身。</blockquote>
+就是撞雨帘了，潜墨状态你的碰撞体积比你想象的要大，可不仅仅是墨水指示线那个点，没墨的地方潜下来观察下
+

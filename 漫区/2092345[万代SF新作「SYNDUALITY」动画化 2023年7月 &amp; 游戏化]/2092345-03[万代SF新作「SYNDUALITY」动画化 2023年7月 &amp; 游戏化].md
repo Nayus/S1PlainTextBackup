@@ -1273,3 +1273,15 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 你游戏本体都没出就这么着急给看动画的人来个结局不会整得玩游戏剧情的时候气氛全无吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 3985#       发表于 2024-2-21 19:23
+
+<blockquote>yangqizhi45 发表于 2024-2-21 19:13
+这样整说不定最终目的地说不定有恢复记忆的线索，给诺娃整了个新身体顺便给艾达和夏尔复原吧，就是……
+
+你 ...</blockquote>
+游戏原定的发售时间是一期之后 二期之前 结果延期了
+

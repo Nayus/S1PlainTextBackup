@@ -1421,3 +1421,21 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 这个外形还挺酷的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 3987#       发表于 2024-2-21 21:55
+
+诺娃应该不是简单的“安全模式”，这里密斯缇说的是“（主人）竟然骗我说是安全模式”，别被机翻误导了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/21/215032hkhllhxwgjlag4h8.png" referrerpolicy="no-referrer">
+
+<strong>[DKB] Synduality Noir - S01E19 [1080p][HEVC x265 10bit][Multi-Subs].mkv_snapshot.png</strong> (95.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 21:50 上传
+
+所以诺娃应该是和密斯缇同地位的贤士人格，才会有“作为安全模式难以置信的高性能”。然后察觉到诺娃离开密斯缇的身体后，原主人的留言才出现来讲述真相。
+

@@ -8441,3 +8441,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这更新，今晚各种闪退
 
+
+*****
+
+####  WGTCorp  
+##### 869#       发表于 2024-2-21 21:58
+
+今天各种闪退进不去房间，之前的联机体验好太多了
+

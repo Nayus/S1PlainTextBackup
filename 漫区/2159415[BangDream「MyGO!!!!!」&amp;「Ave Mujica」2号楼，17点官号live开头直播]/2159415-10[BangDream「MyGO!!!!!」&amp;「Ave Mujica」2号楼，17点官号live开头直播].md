@@ -249,3 +249,39 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 
 2024-2-21 18:50 上传
 
+
+*****
+
+####  NODY  
+##### 13341#       发表于 2024-2-21 18:57
+
+不知道是不是B站官号30w关注的贺图，上次mygo那个10w关注也是她画的
+
+<img src="https://img.saraba1st.com/forum/202402/21/185752g9hrhcocpr9rr0rp.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (31.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 18:57 上传
+
+
+*****
+
+####  本间日阳  
+##### 13342#       发表于 2024-2-21 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64022809&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-21 18:50</a>
+
+队友飞速到场祝贺（虽然最快的那个是队外的）</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202402/21/190558l7n247i4477g8476.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 19:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">李子鼓子怎么就不是队友了。
+

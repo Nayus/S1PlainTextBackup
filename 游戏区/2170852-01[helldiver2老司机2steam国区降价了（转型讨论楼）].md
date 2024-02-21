@@ -8433,3 +8433,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天没排队还流畅匹配了，结果排到大腿一起把图舔干净开始做主任务之后大佬直接掉了
 
+
+*****
+
+####  Launce  
+##### 868#       发表于 2024-2-21 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这更新，今晚各种闪退
+

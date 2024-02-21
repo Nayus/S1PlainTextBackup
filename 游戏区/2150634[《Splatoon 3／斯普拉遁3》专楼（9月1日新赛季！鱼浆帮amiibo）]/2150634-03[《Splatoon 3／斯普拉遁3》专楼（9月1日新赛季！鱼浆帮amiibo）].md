@@ -1037,3 +1037,19 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 原视频切片：
 <img src="https://p.sda1.dev/15/470419138160394940e6ecd78eabed35/原视频切片.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 3121#       发表于 2024-2-21 21:49
+
+好久没玩了，想问下这个新的秩序的DLC是单机关卡还是联机的扩充包？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 3122#       发表于 2024-2-21 21:55
+
+给我整不会了，出差清塔的时候永远有条蛇在追你
+

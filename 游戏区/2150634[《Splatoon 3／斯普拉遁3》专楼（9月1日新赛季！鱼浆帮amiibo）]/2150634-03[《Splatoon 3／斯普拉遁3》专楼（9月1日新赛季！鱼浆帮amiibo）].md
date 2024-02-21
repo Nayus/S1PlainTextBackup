@@ -525,3 +525,41 @@ https://www.nintendo.co.jp/support/switch/software_support/av5ja/700.html
 
 祭典计分修改，各项第一名第二名都有分数
 
+
+*****
+
+####  DeltaStriker  
+##### 3072#       发表于 2024-2-21 09:50
+
+唉 大王乌贼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看到就想笑
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  oi99o  
+##### 3073#       发表于 2024-2-21 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016890&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-2-21 09:41</a>
+宽滚筒：横挥、纵挥耗墨-10%
+
+轻加：更容易涂脚
+
+开尔文：着弹点涂墨半径+10%</blockquote>
+不是无印绿双是金双
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  KBAC  
+##### 3074#       发表于 2024-2-21 09:54
+
+ 本帖最后由 KBAC 于 2024-2-21 09:57 编辑 
+
+真就只有一张新图啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">都二代主题了连张二代图都没
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

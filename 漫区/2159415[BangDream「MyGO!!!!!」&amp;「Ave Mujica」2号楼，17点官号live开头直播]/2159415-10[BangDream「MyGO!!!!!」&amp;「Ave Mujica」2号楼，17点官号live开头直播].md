@@ -29,3 +29,13 @@
 
 那个烤全队的标准是和CD音准不一样的全部算失误，up自己也说了黄绿色虽然有挑出来但可以基本忽略，红色才算明显的失误
 
+
+*****
+
+####  可爱美味祥子  
+##### 13324#       发表于 2024-2-21 09:55
+
+<img src="https://p.sda1.dev/15/89aab935c8ffeee123fbd232060ace55/微信图片_20240221095335.jpg" referrerpolicy="no-referrer">
+来点中学时期的高尾奏音写真<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1Az421R7zj/](https://www.bilibili.com/video/BV1Az421R7zj/)
+

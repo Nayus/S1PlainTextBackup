@@ -502,3 +502,13 @@ mark，发售了口碑如何？</blockquote>
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  库德里尔  
+##### 42#       发表于 2024-2-21 12:36
+
+说 如果恐怖匕首和乌合之众放在一起
+
+是乌合之众先生牌 还是恐怖匕首先开刀 还是按前后顺序来
+

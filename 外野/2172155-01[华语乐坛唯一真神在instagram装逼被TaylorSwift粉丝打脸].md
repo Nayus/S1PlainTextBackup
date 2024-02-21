@@ -1037,3 +1037,23 @@ travis scott<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  TNN  
+##### 109#       发表于 2024-2-21 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018730&amp;ptid=2172155" target="_blank">jy000129 发表于 2024-2-21 12:21</a>
+
+最伟大的XX带来了刀区传世名作最伟大的亚军，我觉得还是很不错的
+
+—— 来自 HUAWEI WLZ-AL10, An ...</blockquote>
+这个可以有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GIN123  
+##### 110#       发表于 2024-2-21 12:32
+
+看到泰勒就反胃，结巴越来越油腻，跑微博看一圈发现什么陈年旧谣都有
+

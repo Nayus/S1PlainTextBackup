@@ -136,3 +136,11 @@ choco原设的欧若拉好色
 
 最后分猪肉给TAa，虽然也知道为啥奈须要求画成这样（基本是参考了某个现实演员的脸），但是不如一起包给Choco来的自洽和风格统一
 
+
+*****
+
+####  qixinno2  
+##### 11408#       发表于 2024-2-21 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">就干聊 把图发出来啊
+

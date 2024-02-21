@@ -1147,3 +1147,16 @@ ll联动也得有游戏吧
 
 不过那个算游戏吗，我怎么听说是看直播的app<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 1188#       发表于 2024-2-22 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64026091&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-2-22 00:09</a>
+
+草，忘了莲
+
+不过那个算游戏吗，我怎么听说是看直播的app</blockquote>
+算，只是那个App重头是每周会有的角色直播和每月底的虚拟Live
+

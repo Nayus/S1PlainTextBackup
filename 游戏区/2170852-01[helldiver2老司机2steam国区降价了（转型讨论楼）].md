@@ -8525,3 +8525,14 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 那种会喷火的重甲机器人怎么杀快？用机炮打将近一个弹匣都干不倒
 
+
+*****
+
+####  LT_Harry  
+##### 878#       发表于 2024-2-22 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64025997&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-2-22 00:03</a>
+
+那种会喷火的重甲机器人怎么杀快？用机炮打将近一个弹匣都干不倒</blockquote>
+打背后的散热片，或者用能穿甲的武器打正面的红眼或手臂（失去作战能力）
+

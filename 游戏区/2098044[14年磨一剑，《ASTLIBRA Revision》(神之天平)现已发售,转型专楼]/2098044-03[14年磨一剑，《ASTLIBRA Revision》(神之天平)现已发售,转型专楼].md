@@ -310,3 +310,13 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 
 骷髅估计只能当天平道具用了，那些特殊道具好像就这个能放天平
 
+
+*****
+
+####  ParadiseMartyr  
+##### 4033#       发表于 2024-2-22 03:11
+
+绳子安眠药在哪儿，我打完十一层了没见过
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

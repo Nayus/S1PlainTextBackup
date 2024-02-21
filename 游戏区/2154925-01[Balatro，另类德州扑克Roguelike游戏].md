@@ -821,3 +821,21 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 需要把全部的150张joker牌贴上金色贴纸 也就是最高难度通关……
 
+
+*****
+
+####  stygian  
+##### 75#       发表于 2024-2-22 00:23
+
+ 本帖最后由 stygian 于 2024-2-22 00:25 编辑 
+
+已经很胡了，但还是不够胡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，碰到个减牌型的boss没法刷掉掉了两级，不然我觉得还能再过一关
+
+<img src="https://img.saraba1st.com/forum/202402/22/002334rs5gz61e71euuqez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 00:23 上传
+

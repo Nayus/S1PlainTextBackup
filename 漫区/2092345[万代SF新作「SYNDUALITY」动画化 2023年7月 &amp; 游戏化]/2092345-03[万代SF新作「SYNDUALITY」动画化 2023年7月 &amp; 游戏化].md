@@ -1144,3 +1144,16 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 —— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  aptx8285144  
+##### 3973#       发表于 2024-2-21 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64015735&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-21 01:54</a>
+
+喵萌三连发, 更新到第18集了
+
+—— 来自 S1Fun</blockquote>
+啊，感谢奶茶屋<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+

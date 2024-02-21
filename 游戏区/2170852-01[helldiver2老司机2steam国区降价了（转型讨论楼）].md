@@ -8306,3 +8306,15 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 不是日常我都不会解锁这大狙，用了一下，怎么会有这么幽默的武器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 854#       发表于 2024-2-21 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64021980&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-2-21 17:20</a>
+感觉小虫子最终解法还是激光护卫犬，人力清小虫子太低效了，也做不到随时掩护队友，等什么时候我狗哥被削了 ...</blockquote>
+激光狗感觉一个队伍带两个最多了，之前打虫子匹配到的一个阵容就是四磁轨两激光两蛋盾，我蛋盾有大半耐久是被激光打掉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

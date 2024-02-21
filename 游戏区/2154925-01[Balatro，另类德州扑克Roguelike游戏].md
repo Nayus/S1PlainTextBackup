@@ -669,3 +669,11 @@ mark，发售了口碑如何？</blockquote>
 
 复制右侧小丑能力的那张牌感觉强度很高啊，就是费点手，搭配把弃牌次数清零加3出牌次数的那张牌可以开局加6hand，而且恰好还有一张弃牌次数=0时加15倍率的小丑，前期摸三张就无敌了，疯狂打对子就完事<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 59#       发表于 2024-2-21 20:30
+
+人头牌使用算金牌和消除使用牌的buff同时给*0.2倍数可以组成combo。。。无脑强
+

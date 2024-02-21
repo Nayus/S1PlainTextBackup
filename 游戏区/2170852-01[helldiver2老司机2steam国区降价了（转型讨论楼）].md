@@ -8383,3 +8383,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 索尼怎么个回事，这ip买了就是拿来糟蹋的？
 
+
+*****
+
+####  Launce  
+##### 862#       发表于 2024-2-21 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，难绷，直接4人同时闪退
+

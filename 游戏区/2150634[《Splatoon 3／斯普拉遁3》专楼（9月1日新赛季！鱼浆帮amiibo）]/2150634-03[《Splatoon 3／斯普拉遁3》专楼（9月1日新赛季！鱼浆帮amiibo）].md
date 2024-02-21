@@ -1005,3 +1005,14 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Dedalus  
+##### 3119#       发表于 2024-2-21 20:31
+
+看到人说什么最后一张图我还以为在说打工呢，仔细一看是占地斗士的地图
+第一反应哦对了还有这功能，第二反应啊这已经结束了？这玩法四代应该不会再有了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -78,3 +78,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真活了，作者你说是不是故意选龙年复活的
 
+
+*****
+
+####  vava  
+##### 114#       发表于 2024-2-21 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 没死真是太好了
+
+
+*****
+
+####  star401  
+##### 115#       发表于 2024-2-21 11:43
+
+先在周刊少年JUMP放5话存货，然后去少年JUMP+隔号连载，变相变半月刊了
+

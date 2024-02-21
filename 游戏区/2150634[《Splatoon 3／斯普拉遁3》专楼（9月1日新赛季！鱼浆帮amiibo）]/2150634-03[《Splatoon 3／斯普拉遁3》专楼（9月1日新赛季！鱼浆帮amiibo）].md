@@ -709,3 +709,14 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  erewrerwe  
+##### 3089#       发表于 2024-2-21 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018083&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-2-21 11:27</a>
+
+这平衡是真的看不懂，打工鲨鱼加强了也一样难用</blockquote>
+能碾死车和不能碾死车明显差别很大
+

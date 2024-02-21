@@ -975,3 +975,37 @@ travis scott<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 在华语圈最出圈的歌应该是Love Story</blockquote>
 应该是纽约市歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 唐人街探案2用来当主题曲
 
+
+*****
+
+####  TNN  
+##### 103#       发表于 2024-2-21 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63986332&amp;ptid=2172155" target="_blank">shineaslin 发表于 2024-2-18 10:24</a>
+
+我最后一次听结巴是那个有蓝色风暴的专辑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">我就惨了。直到最伟大的xx才止损
+
+
+*****
+
+####  johnie  
+##### 104#       发表于 2024-2-21 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018610&amp;ptid=2172155" target="_blank">TNN 发表于 2024-2-21 12:11</a>
+我就惨了。直到最伟大的xx才止损</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得到依然范就止损的话 周可以说是一个少年天才
+而到了伟作 就是夏洛了
+
+*****
+
+####  TNN  
+##### 105#       发表于 2024-2-21 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018657&amp;ptid=2172155" target="_blank">johnie 发表于 2024-2-21 12:15</a>
+
+我觉得到依然范就止损的话 周可以说是一个少年天才
+
+而到了伟作 就是夏洛了 ...</blockquote>
+我的错 等等等最后等出来一个猪油泡真是服了
+

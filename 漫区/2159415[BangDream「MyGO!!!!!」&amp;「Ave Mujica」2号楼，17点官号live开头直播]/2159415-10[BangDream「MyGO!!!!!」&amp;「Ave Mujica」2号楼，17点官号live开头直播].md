@@ -208,3 +208,15 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 
 唉，好想去当一个帮她们合影的路人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 13338#       发表于 2024-2-21 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64021360&amp;ptid=2159415" target="_blank">梶原ひかり 发表于 2024-2-21 16:21</a>
+佐佐木李子又重新歌手出道了签约Lantis</blockquote>
+一直以为李子是歌手出道状态
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

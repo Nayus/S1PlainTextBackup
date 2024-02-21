@@ -73,3 +73,19 @@ xgp可以玩了
 
 对现在的jrpg来说，卖相大于一切实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空洞骑士  
+##### 6800#       发表于 2024-2-21 17:56
+
+破300w看了眼游戏，结果steam上昨天出了个新DLC？这不会是主机版DLC的实体版特典吧。
+
+<img src="https://img.saraba1st.com/forum/202402/21/175525sx68e0f8d8a76fos.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-02-21_17-54-55.png</strong> (117.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 17:55 上传
+

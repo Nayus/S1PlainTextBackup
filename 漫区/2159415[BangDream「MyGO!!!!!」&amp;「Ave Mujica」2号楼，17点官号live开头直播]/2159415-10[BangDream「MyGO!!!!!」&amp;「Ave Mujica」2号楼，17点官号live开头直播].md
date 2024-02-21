@@ -177,3 +177,26 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">说起来我都忘记我和猫猫同一天生日了，没有庆祝生日的习惯。
 
+
+*****
+
+####  梶原ひかり  
+##### 13335#       发表于 2024-2-21 16:21
+
+佐佐木李子又重新歌手出道了签约Lantis
+
+<img src="https://img.saraba1st.com/forum/202402/21/162111jvme4zzz5twe4wtz.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (44.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-21 16:21 上传
+
+*****
+
+####  滑稽Captain  
+##### 13336#       发表于 2024-2-21 16:22
+
+222，猫之日，挺多和猫相关的角色都喜欢用这个日子
+

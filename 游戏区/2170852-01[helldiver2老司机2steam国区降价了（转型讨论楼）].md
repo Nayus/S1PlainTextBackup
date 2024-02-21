@@ -8507,3 +8507,13 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  smdzh2  
+##### 876#       发表于 2024-2-21 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64025121&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-21 23:56</a>
+一直有，复数玩家同时进入会有概率卡在雪柜</blockquote>
+我见过两个人同时卡冷冻舱里面，房主卡在自定义装备里的，实在无解只能退了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -211,3 +211,13 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这面包房少女什么来头, 被创世神本人评价实力深不可测还当成最终保险来用
 
+
+*****
+
+####  tansapple  
+##### 4023#       发表于 2024-2-21 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016343&amp;ptid=2098044" target="_blank">滋啦球 发表于 2024-2-21 08:48</a>
+这面包房少女什么来头, 被创世神本人评价实力深不可测还当成最终保险来用 ...</blockquote>
+就是普通人通过奇遇（偶遇狗哥）打通奇经八脉（在原初洞窟里不断修炼）成为一代高手（第二位超兵）。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

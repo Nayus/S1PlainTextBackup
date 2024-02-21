@@ -1121,3 +1121,16 @@ ll联动也得有游戏吧<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ads147147  
+##### 1186#       发表于 2024-2-21 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64016915&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-2-21 09:44</a>
+
+ll联动也得有游戏吧
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉拉有Link Like Love Live，前两天还和偶像活动联动了。
+

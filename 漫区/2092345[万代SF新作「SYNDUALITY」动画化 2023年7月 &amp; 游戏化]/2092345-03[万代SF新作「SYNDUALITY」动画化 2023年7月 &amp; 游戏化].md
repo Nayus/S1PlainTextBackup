@@ -1677,3 +1677,16 @@ QQ图片20240222225004.png
 
 修捏一遇到穆顿就吃瘪很乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Marianorivera  
+##### 3993#       发表于 2024-2-23 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64037604&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-2-22 23:18</a>
+
+只能祈祷万南砍掉的5个开发中的游戏不是你游了，看PV完成度挺高的</blockquote>
+应该不会，不犯作家性/病大概应该都在DEBUG或者已经完了的阶段了。
+
+大P好像是之前一直做SAO那个，甭管是不是蹭了原作的粉起码有实绩在手，不会优先砍的对象，而且是原创。
+

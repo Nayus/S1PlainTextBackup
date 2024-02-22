@@ -2245,3 +2245,11 @@ woc好肝啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">稳定过关的关键还是火力，其他都是装饰
 
+
+*****
+
+####  yoyokirby  
+##### 3242#       发表于 2024-2-23 00:08
+
+啥玩意啊，东西也太少了吧，就这么嗯排列组合？野上恒做出这种游戏是怎么通过任地狱审批的？
+

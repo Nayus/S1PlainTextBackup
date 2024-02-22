@@ -2316,3 +2316,14 @@ woc好肝啊
 
 还是死在30F了，一条命被最后阶段初见杀233，等明天刷珍珠了
 
+
+*****
+
+####  KBAC  
+##### 3250#       发表于 2024-2-23 01:17
+
+下次祭典该有神秘地带了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+之前鱿鱼研自己说的没有神秘地带是因为饭田没空搞，现在不是有空了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

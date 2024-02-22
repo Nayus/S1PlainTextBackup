@@ -8787,3 +8787,11 @@ PS5 玩家可能会在登录屏幕上遇到错误代码 10003001。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  banjia0815  
+##### 899#       发表于 2024-2-22 19:01
+
+隔壁最后纪元进去7000人排队<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在游戏怎么天天排队
+

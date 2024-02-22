@@ -1967,3 +1967,13 @@ dlc这外边的柜子是不是所有武器都得通一遍才能全开？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">还好上个月打大魔镜打伤了没买喷喷肉鸽，省了省了
 
+
+*****
+
+####  carroy  
+##### 3220#       发表于 2024-2-22 18:54
+
+【秩序之塔:你怎么拿熊狙来打肉鸽啊！【splatoon3】【斯普拉遁3】-哔哩哔哩】 [https://b23.tv/8kqCLQf](https://b23.tv/8kqCLQf)
+
+笑了 有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

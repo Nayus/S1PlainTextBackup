@@ -415,3 +415,11 @@ syl 之前猜会给浮
 
 话说看到个说法：有了悔恨的被动，再开3技能拼输的话，悔恨的加成是算在负骰上的，反击的4骰吃不到？
 
+
+*****
+
+####  Jamaisvu  
+##### 561#       发表于 2024-2-22 20:49
+
+看了金锁的三破剧情，突发奇想，S社的S不会是South Koera的S吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

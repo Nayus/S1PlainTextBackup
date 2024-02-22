@@ -2039,3 +2039,16 @@ https://weibo.com/7766209741/5004262045911305
 
 把常用的几个武器皮肤打出来，后面的就随缘了
 
+
+*****
+
+####  nukecole  
+##### 3227#       发表于 2024-2-22 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64035721&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-2-22 20:17</a>
+
+https://weibo.com/7766209741/5004262045911305
+
+重新下DLC</blockquote>
+感谢<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

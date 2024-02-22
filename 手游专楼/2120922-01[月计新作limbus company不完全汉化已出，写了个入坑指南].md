@@ -439,3 +439,14 @@ syl 之前猜会给浮
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这镜牢活动事件判定太畜生了吧
 
+
+*****
+
+####  erratic璃月  
+##### 564#       发表于 2024-2-22 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64035992&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-2-22 20:49</a>
+
+看了金锁的三破剧情，突发奇想，S社的S不会是South Koera的S吧</blockquote>
+你没想错S社就是南朝鲜，相应的N社就是北韩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

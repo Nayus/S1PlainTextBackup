@@ -611,3 +611,34 @@ PS.啥时候才能在手游打到mujica的歌啊， ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13372#       发表于 2024-2-22 21:50
+
+週年生放捏
+
+<img src="https://img.saraba1st.com/forum/202402/22/215010ogda4tg3h4thztz9.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #206 58-31 screenshot.png</strong> (266.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 21:50 上传
+
+
+*****
+
+####  PDQ4  
+##### 13373#       发表于 2024-2-22 21:53
+
+不知道这次周年有什么东西，应该有个特番小动画，不会只有特番小动画吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 13374#       发表于 2024-2-22 21:55
+
+社长携夫人上场
+

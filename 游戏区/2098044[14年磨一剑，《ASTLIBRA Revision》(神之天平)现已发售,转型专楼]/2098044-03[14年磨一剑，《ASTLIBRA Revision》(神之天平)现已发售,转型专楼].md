@@ -385,3 +385,13 @@ dlc这个段子设计的不错。但问题不是都新章了主角才记得能�
 本篇里兑换心天平用的就是变石，算是一个相互对应的小彩蛋吧。外传里拿到变石之后可以去猪猪那里换最终武 ...</blockquote>
 刚刷了一把在猪猪那里看到了。顺便问下第十层的boss 是设定还是bug，boss 是天平和两个女的，我进去一个空舞刚砍完，boss 战就结束了，看着两边女的血量还有11万没怎么掉过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IRIS虹  
+##### 4040#       发表于 2024-2-22 09:28
+
+为啥神之天平 p 站热度这么低，想找几张同人图看看但是高质量的大部分都还是国人作的？看评论说日本热度不算高，到底真实情况是怎样的
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

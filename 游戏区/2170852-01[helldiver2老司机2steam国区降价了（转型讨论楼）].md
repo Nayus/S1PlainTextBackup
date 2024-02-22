@@ -8570,3 +8570,16 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 直接解锁焦土，这波不亏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 883#       发表于 2024-2-22 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027776&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-22 09:13</a>
+
+卡奖励的回吐有利息？我记得昨天才玩两局，今天回吐给我150个奖章？
+
+直接解锁焦土，这波不亏 ...</blockquote>
+好像真的有，我有一次结算卡了6个超级样本，打完吐给了我快40个，直接毕业
+

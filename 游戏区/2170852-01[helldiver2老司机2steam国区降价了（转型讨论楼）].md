@@ -8970,3 +8970,13 @@ PS端还有个BUG，不退游戏，直接休眠主机。
 这个不是bug，是星球debuff-电子对抗，选任务前能看到</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样的吗？匹配进野队就直接下去了。。。。
 
+
+*****
+
+####  novyMS  
+##### 915#       发表于 2024-2-22 23:54
+
+打着打着突然黑屏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1790,3 +1790,11 @@ ok，3q
 
 唉，研究所对肉鸽build的理解就是简简单单加个数值，所有晶片就是数值加成，一点意思没有，还不如现在一些手游做的肉鸽，怪不得每次补丁就是水多加面面多加水
 
+
+*****
+
+####  寻龙分金看缠山  
+##### 3201#       发表于 2024-2-22 16:13
+
+呃，所以是死刑了吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

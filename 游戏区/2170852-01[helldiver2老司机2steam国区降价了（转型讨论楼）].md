@@ -8795,3 +8795,16 @@ PS5 玩家可能会在登录屏幕上遇到错误代码 10003001。
 
 隔壁最后纪元进去7000人排队<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在游戏怎么天天排队
 
+
+*****
+
+####  我不是夏承凛  
+##### 900#       发表于 2024-2-22 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64034718&amp;ptid=2170852" target="_blank">ロス 发表于 2024-2-22 18:29</a>
+在家挂机15分钟就踢出服务器也算是解决排队的一种方法吧太幽默了 ...</blockquote>
+因为欧美很多玩家去睡觉了就这么挂着。
+
+PS端还有个BUG，不退游戏，直接休眠主机。
+睡一夜过来开机，显示网络断开，但稍微动一下就连上了，等于是瞬连。
+

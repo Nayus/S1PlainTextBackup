@@ -52,3 +52,11 @@
 
 也太快了些。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">意思是不会进院线？
 
+
+*****
+
+####  RainbowSealife  
+##### 1793#       发表于 2024-2-22 22:14
+
+扳机和德凯的剧场版没关注，不过我记得好像泰迦剧场版国内流媒体就同步播放了？
+

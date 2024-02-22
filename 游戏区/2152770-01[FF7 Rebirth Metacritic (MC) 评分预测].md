@@ -634,3 +634,13 @@ ff16之后我对se已经很害怕了<img src="https://static.saraba1st.com/image
 
 mc开分94 就说91低了…
 
+
+*****
+
+####  内森德雷克  
+##### 67#       发表于 2024-2-22 22:13
+
+牛逼，前作才87，完全想不到能到这分数
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -8755,3 +8755,17 @@ PS5 玩家可能会在登录屏幕上遇到错误代码 10003001。
 
 轻型/中型/重型装甲的装甲值目前无法按预期发挥作用。
 
+
+*****
+
+####  ロス  
+##### 896#       发表于 2024-2-22 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64034533&amp;ptid=2170852" target="_blank">绯想天の天子 发表于 2024-2-22 18:13</a>
+# 🛠️ 补丁 1.000.11 ⚙️
+
+🔧 修复
+
+修复了加入其他玩家的船只时触发的多次崩溃。</blockquote>
+在家挂机15分钟就踢出服务器<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太幽默了
+

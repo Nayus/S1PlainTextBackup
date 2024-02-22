@@ -1575,3 +1575,11 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 初见30f
 死于boss水枪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 3177#       发表于 2024-2-22 13:22
+
+6F 固定刷极难？换双枪在这一层翻车两次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

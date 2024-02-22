@@ -8655,3 +8655,23 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  リュウセイ  
+##### 891#       发表于 2024-2-22 16:55
+
+地图上一片片红色的区域就是哨站吗？怎么算清除哨站？一定要全炸平吗？
+
+*****
+
+####  丹德里恩  
+##### 892#       发表于 2024-2-22 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64033311&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-2-22 16:41</a>
+
+索尼还没给技术支持吗
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，在重写代码了
+

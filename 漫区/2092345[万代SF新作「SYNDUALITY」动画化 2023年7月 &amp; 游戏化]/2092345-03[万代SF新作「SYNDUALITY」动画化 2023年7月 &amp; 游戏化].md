@@ -1722,3 +1722,13 @@ Macht Ewigkeit
 
 Blaurecht和Macht不知道什么意思
 
+
+*****
+
+####  charlespfan  
+##### 3995#       发表于 2024-2-23 02:40
+
+顺便，Schnee是德语 雪，Flamme是焰，之前有人提过吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

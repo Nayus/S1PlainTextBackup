@@ -8637,3 +8637,11 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天的日常是被吞了吗？
 
+
+*****
+
+####  ナルバレック  
+##### 889#       发表于 2024-2-22 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">今天STEAM在线人数可能要冲50万了，这服务器不知道过会又能发生什么....
+

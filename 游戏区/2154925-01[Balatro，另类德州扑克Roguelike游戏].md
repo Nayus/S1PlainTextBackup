@@ -1201,3 +1201,14 @@ SL，出牌看完牌面然后关游戏重开
 
 乘法，很神奇吧？
 
+
+*****
+
+####  nma  
+##### 112#       发表于 2024-2-22 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64032233&amp;ptid=2154925" target="_blank">玩玩而已 发表于 2024-2-22 15:12</a>
+
+有用的啊，先加后乘倍率会高一点啊</blockquote>
+那也可以分开按钮嘛
+

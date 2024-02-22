@@ -8645,3 +8645,13 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">今天STEAM在线人数可能要冲50万了，这服务器不知道过会又能发生什么....
 
+
+*****
+
+####  风萧飒  
+##### 890#       发表于 2024-2-22 16:41
+
+索尼还没给技术支持吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

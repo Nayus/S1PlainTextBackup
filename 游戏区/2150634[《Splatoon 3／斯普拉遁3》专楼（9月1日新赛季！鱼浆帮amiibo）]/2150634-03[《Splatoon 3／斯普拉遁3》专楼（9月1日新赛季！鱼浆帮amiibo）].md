@@ -1352,3 +1352,46 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 提醒：上车去秩序篇的时候记得穿的像个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  popchong  
+##### 3153#       发表于 2024-2-22 10:44
+
+我只对暖暖和全收集lore感兴趣，等各位评测了。所以我对3代的英雄模式是满意的，因为填了一个我认为很关键的设定坑
+
+*****
+
+####  raii  
+##### 3154#       发表于 2024-2-22 10:47
+
+直播看到现在看到不少和2代故事的关联，dedf1sh作为饭田老相识能给出不少有意思的细节。另外就是官方开涮4号了，因为如果只把游戏里发生的事情当作正史，那她们确实不认识
+
+
+*****
+
+####  紫菜粉丝煲  
+##### 3155#       发表于 2024-2-22 10:51
+
+二代武器动作是不是买dlc才有
+
+*****
+
+####  popchong  
+##### 3156#       发表于 2024-2-22 10:52
+
+<img src="https://img.saraba1st.com/forum/202402/22/105203duu5uhndsuusn4xh.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222105204.jpg</strong> (139.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 10:52 上传
+
+*****
+
+####  Junakr  
+##### 3157#       发表于 2024-2-22 10:54
+
+哪怕 DLC，螃蟹也是无敌强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+

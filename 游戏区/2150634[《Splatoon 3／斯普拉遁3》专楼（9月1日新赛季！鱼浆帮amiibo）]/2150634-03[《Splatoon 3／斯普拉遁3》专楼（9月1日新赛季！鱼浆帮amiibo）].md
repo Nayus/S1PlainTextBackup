@@ -2368,3 +2368,18 @@ woc好肝啊
 
 顺便，真的别开区域模式，血压飙升<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 3255#       发表于 2024-2-23 05:42
+
+<img src="https://p.sda1.dev/15/01299c81d0476189537d33db5b2e7212/CMP_20240223054002691.jpeg" referrerpolicy="no-referrer">
+↑我就是要看这身衣服口牙 饭田你能不能多穿几次这身 求求你(
+<img src="https://p.sda1.dev/15/f2fdc0721f6ee8819b56c9336d332981/CMP_20240223053925045.jpeg" referrerpolicy="no-referrer">
+↑唯二能得分的点之二 除此以外 就这.jpg
+另外 4号保护协会强烈谴责↓
+<img src="https://p.sda1.dev/15/979b6d9b7f7a6e28f6521f4103049a16/CMP_20240223053925103.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

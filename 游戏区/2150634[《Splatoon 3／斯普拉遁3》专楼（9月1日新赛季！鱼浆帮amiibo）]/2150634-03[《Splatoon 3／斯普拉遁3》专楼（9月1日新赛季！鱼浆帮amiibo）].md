@@ -1755,3 +1755,22 @@ ok，3q
 
 第三层刷极难，拿长弓手贱点进去，DPS 根本不够，打工刷怪还有个上限你这无限刷，一个泉就把我淹死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  carroy  
+##### 3197#       发表于 2024-2-22 15:34
+
+难绷
+赞气蛋+毒雾+弓
+刷了一个不要用主武器打轮子的奖励关<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 3198#       发表于 2024-2-22 15:36
+
+已经打过幸运build ban掉落和无人机build ban无人机叻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

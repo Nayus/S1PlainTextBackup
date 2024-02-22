@@ -1798,3 +1798,13 @@ ok，3q
 
 呃，所以是死刑了吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笔仁SaSaSa  
+##### 3202#       发表于 2024-2-22 16:21
+
+能不能把野上恒开了。这dlc如果卖1980和2代一样我还勉强能忍，比2代dlc贵、提前一年上架收割粉丝还只有这个水平我反正无法接受。
+
+感觉不如土豆兄弟。
+

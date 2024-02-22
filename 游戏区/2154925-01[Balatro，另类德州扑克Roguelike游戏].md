@@ -1212,3 +1212,19 @@ SL，出牌看完牌面然后关游戏重开
 有用的啊，先加后乘倍率会高一点啊</blockquote>
 那也可以分开按钮嘛
 
+
+*****
+
+####  周愚  
+##### 113#       发表于 2024-2-22 16:17
+
+传奇还是有传奇的价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/22/161725u10itzeaijqew0ku.jpg" referrerpolicy="no-referrer">
+
+<strong>bal.jpg</strong> (582.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 16:17 上传
+

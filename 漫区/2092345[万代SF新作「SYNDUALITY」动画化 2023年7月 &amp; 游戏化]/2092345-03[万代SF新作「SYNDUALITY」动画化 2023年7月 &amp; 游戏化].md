@@ -1455,3 +1455,217 @@ md，弃了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png"
 
 显然不可能是安全模式，光也不是完全体，焰也不是光的下位，就应该是平级互补的
 
+
+*****
+
+####  不灭的旋律  
+##### 3990#       发表于 2024-2-22 23:18
+
+只能祈祷万南砍掉的5个开发中的游戏不是你游了，看PV完成度挺高的
+
+*****
+
+####  aptx8285144  
+##### 3991#       发表于 2024-2-22 23:22
+
+<img src="https://img.saraba1st.com/forum/202402/22/203232ytp7ymnkw2mm1zqh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222200712.png</strong> (79.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 20:32 上传
+
+开始看奶茶屋的17话，诺娃是独立的个体
+
+<img src="https://img.saraba1st.com/forum/202402/22/203315v5uphxsr5racrsc5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222201836.png</strong> (60.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 20:33 上传
+
+第一次遇到阿尔巴他们时<strong>发现的黑箱就埋下了米斯特出场的伏笔</strong>，这个看迪士尼的翻译时感觉不明显
+
+<img src="https://img.saraba1st.com/forum/202402/22/205136bpffiyg1i4fvumat.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222205129.png</strong> (40.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 20:51 上传
+
+好甜呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/22/205323k8iys06gkdly3bzc.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222205311.png</strong> (64.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 20:53 上传
+
+奶茶屋这个翻译比迪士尼<strong> 刀太多了</strong>，如今看来
+
+<img src="https://img.saraba1st.com/forum/202402/22/205537jcnhe8rcyrenrxc8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222205530.png</strong> (49.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 20:55 上传
+
+没资格责备我jpg
+
+<img src="https://img.saraba1st.com/forum/202402/22/224511efb0m020fmzu1f75.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222224457.png</strong> (32.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:45 上传
+
+大哥对卫浴柜所在这地方的评价<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/22/224754ome6s404a6c0mnnd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222224712.png</strong> (44.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:47 上传
+
+<img src="https://img.saraba1st.com/forum/202402/22/224805i0u0q1s9c0zq0sqm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222224729.png</strong> (44.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:48 上传
+
+这三是<strong>一个“家族”的？新的预告似乎是如此</strong>
+
+<img src="https://img.saraba1st.com/forum/202402/22/225232un63gaxtx2nxj7ot.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222225222.png</strong> (53.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:52 上传
+
+面具男当年“自愿”留下
+
+<img src="https://img.saraba1st.com/forum/202402/22/225603rekngsfbmgwgs1ki.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222225500.png</strong> (45.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202402/22/225612gksaav6vyoxkywo9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222225550.png</strong> (43.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:56 上传
+
+<strong>重点来了</strong>，按照奶茶屋组的翻译是，组织抵达乐园是为了夺回因为新月之泪而失去的人类世界（<strong>现在的世界被终结者的怪兽们威胁</strong>）
+
+<img src="https://img.saraba1st.com/forum/202402/22/225916z8pczibbizplfctb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222225840.png</strong> (63.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:59 上传
+
+<img src="https://img.saraba1st.com/forum/202402/22/225948kzwy6vw446vzywyp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222225939.png</strong> (65.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:59 上传
+
+然后是<strong>时雄的反驳</strong>
+
+<img src="https://img.saraba1st.com/forum/202402/22/230104ej4jjdezto552o8h.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222230053.png</strong> (36.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 23:01 上传
+
+这个，我觉得彼方他们住的小镇怎么说也不算什么“强者”或上流社会吧（<strong>去个红灯区都要跑到好几公里以外的地方</strong><img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">），虽然按照大灾害后的标准，那也许是，但这里对话很有意思，建议看奶茶屋
+
+<img src="https://img.saraba1st.com/forum/202402/22/230548y48ai01pdypezun4.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222230526.png</strong> (52.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 23:05 上传
+
+以前没赢过时雄
+
+<img src="https://img.saraba1st.com/forum/202402/22/231029zts4ij8iz8g3jete.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222230829.png</strong> (22.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202402/22/231037c8yhvvz147a8876r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222230850.png</strong> (14.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 23:10 上传
+
+这歌词翻译看着都像flag(
+
+<img src="https://img.saraba1st.com/forum/202402/22/231316ftj0rx6vdrvvjj2c.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222231304.png</strong> (40.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 23:13 上传
+
+奶茶屋的翻译下，面具男和修涅好像更甜了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/22/231759kq3bs02jhwsciez3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222231748.png</strong> (68.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 23:17 上传
+
+都在吹牛jpg
+
+<img src="https://img.saraba1st.com/forum/202402/22/232134bechoux4xuch83co.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240222232126.png</strong> (10.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 23:21 上传
+
+其实这话<strong>也</strong>没有ed
+
+QQ图片20240222225004.png
+(79.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202402/22/225013yo7npl2cuoqucd9n.png" referrerpolicy="no-referrer">
+

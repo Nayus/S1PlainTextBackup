@@ -1553,3 +1553,25 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 不管打工还是 DLC，果然塔都非常讨厌，DLC 的塔还只能打头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  幽灵部长助理  
+##### 3175#       发表于 2024-2-22 13:07
+
+ 本帖最后由 幽灵部长助理 于 2024-2-22 00:09 编辑 
+
+真格A-打工传说200的我也一口气推到第17层了，先歇歇明天接着爬塔
+
+这不是很难啊……(flag)
+
+难关可以留到bonus, trouble和boss关，好像打完这些关卡之后所有关卡会随机换成新的
+
+*****
+
+####  carroy  
+##### 3176#       发表于 2024-2-22 13:09
+
+初见30f
+死于boss水枪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

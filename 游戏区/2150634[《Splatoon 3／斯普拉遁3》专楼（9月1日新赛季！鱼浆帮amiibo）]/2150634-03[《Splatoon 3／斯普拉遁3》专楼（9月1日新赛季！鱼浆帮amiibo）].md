@@ -1412,3 +1412,26 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 如图</blockquote>
 阳光开朗大女孩！
 
+
+*****
+
+####  Ryuuseigun  
+##### 3160#       发表于 2024-2-22 11:11
+
+20F无了，隐藏关章鱼兵对战青春版，还是有点难顶<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laosai13  
+##### 3161#       发表于 2024-2-22 11:11
+
+打起来感觉像是真格打工结合体，敌人类似打工目标类似真格
+
+*****
+
+####  carroy  
+##### 3162#       发表于 2024-2-22 11:14
+
+看到饭田画的小姬再次爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

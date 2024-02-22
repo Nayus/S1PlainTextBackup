@@ -1019,3 +1019,11 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 爽了一把：全卡牌视为人物牌+人物牌打出转金砖牌+吃增强牌加0.2乘数的吸血鬼牌。这套combo直接起飞。 ...</blockquote>
 我也组成过，以为要起飞结果关底BOSS是所有人头牌不算分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三度音  
+##### 94#       发表于 2024-2-22 11:30
+
+小丑卡也有结算顺序，从左至右。得自己调整，把乘积放最右侧。
+

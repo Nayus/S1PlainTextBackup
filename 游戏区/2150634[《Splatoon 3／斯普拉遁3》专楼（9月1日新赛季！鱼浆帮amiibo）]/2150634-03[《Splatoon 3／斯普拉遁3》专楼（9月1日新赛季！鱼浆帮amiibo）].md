@@ -1435,3 +1435,11 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 看到饭田画的小姬再次爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 3163#       发表于 2024-2-22 11:28
+
+新伞似乎有点强，一发伤害90
+

@@ -1228,3 +1228,11 @@ SL，出牌看完牌面然后关游戏重开
 
 2024-2-22 16:17 上传
 
+
+*****
+
+####  pRll7R  
+##### 114#       发表于 2024-2-22 16:34
+
+终于打了一把10w的成功过关然后发现你们都在上亿上亿的打<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+

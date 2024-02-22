@@ -373,3 +373,19 @@ syl 之前猜会给浮
 
 锁神降世，一己之力把剑契FW拉成正常人甚至T1。
 
+
+*****
+
+####  salic428  
+##### 557#       发表于 2024-2-22 16:28
+
+<img src="https://img.saraba1st.com/forum/202402/22/162545nbtii07ttby4jm7s.png" referrerpolicy="no-referrer">
+
+<strong>Angela breaks the 4th wall.png</strong> (36.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 16:25 上传
+
+虽然之前就在用“提前录的”圆过去，但直接说这台词多少有点离谱了
+

@@ -1135,3 +1135,32 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 有个boss是除了第一手都是按牌</blockquote>
 翻译错误。只有打出时抽的翻面，弃牌不是。
 
+
+*****
+
+####  匿名用户  
+##### 106#       发表于 2024-2-22 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031126&amp;ptid=2154925" target="_blank">passgan 发表于 2024-2-22 13:43</a>
+
+有没有读暗牌的技巧。。。</blockquote>
+在大小/花色间切换排序，然后仔细观察动画。
+
+*****
+
+####  就是剑鞘  
+##### 107#       发表于 2024-2-22 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64030140&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-22 12:08</a>
+
+- 得发现一手牌不需要打五张，可以少打一些牌保留好牌
+
+- 得发现小丑牌的结算顺序是从左到右，从而把+倍率放 ...</blockquote>
+- 打出的牌也是从左到右结算。如果有“牌效加强”类的小丑就要调整牌序，比如“第一张牌重复触发”就要把效果最强的牌移到最左边。
+
+- 开塔罗包和幽灵包的时候可以顺便使用自己存的塔罗牌。
+
+- tag很有用。很多时候跳过战斗拿tag的收益更多。尤其是前几轮遇到赚钱的tag必选。
+
+- 解锁第十套同花牌组进入简单模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

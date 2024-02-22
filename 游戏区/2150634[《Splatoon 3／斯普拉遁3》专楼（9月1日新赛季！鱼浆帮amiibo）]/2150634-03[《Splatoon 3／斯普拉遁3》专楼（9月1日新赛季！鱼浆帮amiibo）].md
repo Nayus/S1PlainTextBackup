@@ -1609,3 +1609,22 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 钥匙只能拿一次啊，那柜子咋开呢</blockquote>
 每把武器都有进度
 
+
+*****
+
+####  巴尔干炮  
+##### 3181#       发表于 2024-2-22 14:09
+
+片尾曲很棒~
+
+
+*****
+
+####  popchong  
+##### 3182#       发表于 2024-2-22 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031453&amp;ptid=2150634" target="_blank">巴尔干炮 发表于 2024-2-22 14:09</a>
+
+片尾曲很棒~</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">请问DLC整个流程有其他风格的场景美术风格吗？
+

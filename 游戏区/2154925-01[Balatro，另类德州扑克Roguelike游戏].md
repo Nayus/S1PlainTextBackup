@@ -1236,3 +1236,22 @@ SL，出牌看完牌面然后关游戏重开
 
 终于打了一把10w的成功过关然后发现你们都在上亿上亿的打<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  跳瓶器  
+##### 115#       发表于 2024-2-22 17:19
+
+打了把爽局，底注67左右拿到天文台优惠券，底注9拿到佩尔科欧复制手里的消耗品，靠每回合多1张行星多乘1.5倍撑到了底注13
+
+要是成长性鬼牌再多抓点估计还有机会更高
+
+*****
+
+####  库德里尔  
+##### 116#       发表于 2024-2-22 17:20
+
+迷叔都在攻略e12了我白注还没法稳定过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+K和Q都获得x2倍率实在强大
+

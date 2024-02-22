@@ -8857,3 +8857,11 @@ PS端还有个BUG，不退游戏，直接休眠主机。
 还有机器人那种很高的炮塔怎么打？只有接近了扔空中打击么？</blockquote>
 飞鹰110MM和其他带目标锁定功能的轰炸，机炮打背后散热器或者磁轨枪直击
 
+
+*****
+
+####  lzw1990  
+##### 906#       发表于 2024-2-22 20:23
+
+今天更新的这啥补丁啊 一载入就闪退<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

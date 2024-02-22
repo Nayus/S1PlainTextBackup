@@ -2001,3 +2001,19 @@ dlc这外边的柜子是不是所有武器都得通一遍才能全开？
 
 —— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  shirolin  
+##### 3223#       发表于 2024-2-22 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64035415&amp;ptid=2150634" target="_blank">nukecole 发表于 2024-2-22 19:45</a>
+为什么我进不了dlc? dlc买过了，更新也更新过了，去车站就提示我要购买或者更新。更新前我都能去尚兴市
+
+— ...</blockquote>
+https://weibo.com/7766209741/5004262045911305
+
+重新下DLC
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

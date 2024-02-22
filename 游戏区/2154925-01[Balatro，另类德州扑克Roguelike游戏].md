@@ -1263,3 +1263,21 @@ K和Q都获得x2倍率实在强大
 
 六六大顺这卡是干嘛的
 
+
+*****
+
+####  就是剑鞘  
+##### 118#       发表于 2024-2-22 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64035363&amp;ptid=2154925" target="_blank">passgan 发表于 2024-2-22 19:41</a>
+
+六六大顺这卡是干嘛的</blockquote>
+所有用绿色表示的几率数字都翻倍啊，比如幸运卡的触发几率啥的
+
+*****
+
+####  就是剑鞘  
+##### 119#       发表于 2024-2-22 19:46
+
+卡一下午橙注了，突出一个苟都苟不下去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

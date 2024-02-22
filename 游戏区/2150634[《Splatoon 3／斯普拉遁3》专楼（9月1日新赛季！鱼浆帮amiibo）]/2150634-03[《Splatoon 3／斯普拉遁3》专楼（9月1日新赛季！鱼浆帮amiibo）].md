@@ -1500,3 +1500,38 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 20F挂了就没打去云了主播通关，总之4就在对话里出现可还行
 
+
+*****
+
+####  真空管  
+##### 3169#       发表于 2024-2-22 12:06
+
+详细查看芯片盘的界面下芯片能点击发声，不同颜色芯片的音色还不一样，支持触屏。这真能当launchpad玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junakr  
+##### 3170#       发表于 2024-2-22 12:09
+
+敌人图鉴最后一个就是 4 号吧，我相信研究所在藏真 boss。
+
+爬塔怎么可能不碎心（指粉碎心中的 4 号。
+
+
+*****
+
+####  墨染白泉  
+##### 3171#       发表于 2024-2-22 12:13
+
+估计要刷完所有武器才有真boss
+
+*****
+
+####  星野航  
+##### 3172#       发表于 2024-2-22 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027797&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-22 10:14</a>
+
+我开场就在尚兴广场还要我再坐一次车，行不行啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你从新宿也不能走到涩谷吧
+

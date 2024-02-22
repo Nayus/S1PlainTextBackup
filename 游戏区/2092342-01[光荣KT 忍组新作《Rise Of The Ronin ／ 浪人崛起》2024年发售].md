@@ -311,3 +311,19 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">几个片段二十米外的路人都掉帧mhw的翼龙了，至少是实机
 
+
+*****
+
+####  黑修士  
+##### 696#       发表于 2024-2-22 17:32
+
+先说没有试玩，又搞线下试玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/22/173141d97cxbwziwizx77n.jpg" referrerpolicy="no-referrer">
+
+<strong>r.jpg</strong> (377.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 17:31 上传
+

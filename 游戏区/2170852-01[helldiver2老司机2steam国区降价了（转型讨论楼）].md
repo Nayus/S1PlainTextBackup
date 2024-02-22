@@ -8769,3 +8769,11 @@ PS5 玩家可能会在登录屏幕上遇到错误代码 10003001。
 修复了加入其他玩家的船只时触发的多次崩溃。</blockquote>
 在家挂机15分钟就踢出服务器<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太幽默了
 
+
+*****
+
+####  绯想天の天子  
+##### 897#       发表于 2024-2-22 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">如果挂机排队，排进去了。然后15分钟没操作，再被踢出来，你还得排。真是太乐了
+

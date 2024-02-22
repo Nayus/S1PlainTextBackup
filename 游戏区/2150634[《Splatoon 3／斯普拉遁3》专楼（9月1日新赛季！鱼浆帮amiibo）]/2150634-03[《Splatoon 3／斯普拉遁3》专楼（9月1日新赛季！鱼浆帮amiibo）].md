@@ -2349,3 +2349,22 @@ woc好肝啊
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 3253#       发表于 2024-2-23 03:23
+
+没想到首次通关居然是用的刷子，刷子点推行移动速度然后大招换砸地太赖皮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便，真的别开区域模式，血压飙升<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Pumpkin_ccc  
+##### 3254#       发表于 2024-2-23 03:25
+
+没想到首次通关居然是用的刷子，刷子点推行移动速度然后大招换砸地太赖皮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便，真的别开区域模式，血压飙升<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

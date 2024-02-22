@@ -375,3 +375,13 @@ dlc这个段子设计的不错。但问题不是都新章了主角才记得能�
 
 另外面包女穿不了心天平的原因居然是胸太大赛不进去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 4039#       发表于 2024-2-22 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027210&amp;ptid=2098044" target="_blank">tansapple 发表于 2024-2-22 07:58</a>
+本篇里兑换心天平用的就是变石，算是一个相互对应的小彩蛋吧。外传里拿到变石之后可以去猪猪那里换最终武 ...</blockquote>
+刚刷了一把在猪猪那里看到了。顺便问下第十层的boss 是设定还是bug，boss 是天平和两个女的，我进去一个空舞刚砍完，boss 战就结束了，看着两边女的血量还有11万没怎么掉过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

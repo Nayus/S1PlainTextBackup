@@ -412,3 +412,13 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 原来不是一个作者吗，是我认错了</blockquote>
 只是id都带仓鼠<img src="https://p.sda1.dev/15/33477e2dfe53cc31b29a97732746a81d/CMP_20240222004409710.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1732256631  
+##### 13355#       发表于 2024-2-22 10:13
+
+猫猫生日快乐
+
+—— 来自 realme RMX3700, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

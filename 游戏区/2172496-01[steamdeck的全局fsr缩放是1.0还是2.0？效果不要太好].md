@@ -405,3 +405,14 @@ a ...</blockquote>
 设置成功了！感谢！</blockquote>
 请问在哪里开的？最近正在仁王2，正好试试
 
+
+*****
+
+####  Moltres.lv70  
+##### 42#         楼主| 发表于 2024-2-22 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031526&amp;ptid=2172496" target="_blank">Meltina 发表于 2024-2-22 14:15</a>
+
+请问在哪里开的？最近正在仁王2，正好试试</blockquote>
+先按楼上说的调好游戏设置，然后deck控制台里缩放模式选填充，缩放方法选像素或者fsr，像素糊一点，fsr锐利但字体会发虚，看个人选择
+

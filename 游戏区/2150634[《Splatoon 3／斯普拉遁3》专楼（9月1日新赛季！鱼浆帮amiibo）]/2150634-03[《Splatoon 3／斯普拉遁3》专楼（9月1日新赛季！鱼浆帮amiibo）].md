@@ -1661,3 +1661,32 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 尼玛的升降地板能不能滚出 DLC，地图设计也是稀烂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  chobitssyf  
+##### 3187#       发表于 2024-2-22 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031326&amp;ptid=2150634" target="_blank">lazycat233 发表于 2024-2-22 13:59</a>
+
+每把武器都有进度</blockquote>
+ok，3q
+
+*****
+
+####  chobitssyf  
+##### 3188#       发表于 2024-2-22 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031453&amp;ptid=2150634" target="_blank">巴尔干炮 发表于 2024-2-22 14:09</a>
+
+片尾曲很棒~</blockquote>
+是的，很惊艳
+
+
+*****
+
+####  Junakr  
+##### 3189#       发表于 2024-2-22 14:54
+
+极难的疯狂紧迫盯人来回往返楼层，极致折磨，什么人会设计这样的关卡呀。
+

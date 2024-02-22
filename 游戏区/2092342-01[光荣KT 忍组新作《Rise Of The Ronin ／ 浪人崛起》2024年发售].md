@@ -154,3 +154,52 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 音乐也很棒
 
+
+*****
+
+####  nagitoY  
+##### 680#       发表于 2024-2-22 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027852&amp;ptid=2092342" target="_blank">BadYanL 发表于 2024-2-22 09:20</a>
+
+场景比以往的忍者组游戏好多了，画质也比较干净，非常对马岛。
+
+大地图活动好像不多，就看到找猫和滑翔小游 ...</blockquote>
+可能吉原的部分场景不太适合拿出来宣传<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 681#       发表于 2024-2-22 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027030&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-2-22 06:32</a>
+
+目前来看至少在开放世界方面，表现力和玩法比358要强不少</blockquote>
+铃木仙贝的358可是极端大而空的典型啊，地图大到夸张，但是几乎没有内容
+
+*****
+
+####  popchong  
+##### 682#       发表于 2024-2-22 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027658&amp;ptid=2092342" target="_blank">clover293 发表于 2024-2-22 09:04</a>
+
+坛友想的太深刻了，这游戏越看越像明治蜘蛛侠。上天入地的。当个超英爽游玩玩得了
+
+ ...</blockquote>
+滑翔翼到骑马的丝滑切换，还真有点期待有没有类似蜘蛛侠的追逐战
+
+
+*****
+
+####  popchong  
+##### 683#       发表于 2024-2-22 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027852&amp;ptid=2092342" target="_blank">BadYanL 发表于 2024-2-22 09:20</a>
+
+场景比以往的忍者组游戏好多了，画质也比较干净，非常对马岛。
+
+大地图活动好像不多，就看到找猫和滑翔小游 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比对马岛丰富就是胜利（x
+

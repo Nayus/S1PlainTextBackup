@@ -405,3 +405,13 @@ dlc这个段子设计的不错。但问题不是都新章了主角才记得能�
 刚刷了一把在猪猪那里看到了。顺便问下第十层的boss 是设定还是bug，boss 是天平和两个女的，我进去一个 ...</blockquote>
 bug吧，但是我打的时候是正常打完的，不清楚你是触发了什么特殊情况。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 4042#       发表于 2024-2-22 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027946&amp;ptid=2098044" target="_blank">IRIS虹 发表于 2024-2-22 09:28</a>
+为啥神之天平 p 站热度这么低，想找几张同人图看看但是高质量的大部分都还是国人作的？看评论说日本热度不 ...</blockquote>
+有个说法是日本那边很多以前都玩过免费的原版了，这重制版自然是国内比日本热点？
+

@@ -57,3 +57,30 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计经费都被上一部slg浪费完了吧
 
+
+*****
+
+####  schneehertz  
+##### 648#       发表于 2024-2-22 09:58
+
+续作的更像小男孩啊，没有前作的白毛萝莉香
+动作系统原汁原味，连演出都不带改的，感觉像奶粉作
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  莉拉厨  
+##### 649#       发表于 2024-2-22 10:00
+
+新作的是女主？怎么感觉是正太呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 650#       发表于 2024-2-22 10:04
+
+就是正太+女从者吧
+
+跟前作萝莉+男从者反过来
+

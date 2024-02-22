@@ -149,3 +149,11 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  御坂MKII  
+##### 176#       发表于 2024-2-22 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">之前没注意过，试用j2k的时候第一次发现，日漫的跨页都是偶数页在前奇数页在后吗 只会 2+3，4+5 不会 1+2？
+

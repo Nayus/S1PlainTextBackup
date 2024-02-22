@@ -1344,3 +1344,11 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 后面开始难起来了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 3152#       发表于 2024-2-22 10:38
+
+提醒：上车去秩序篇的时候记得穿的像个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1535,3 +1535,13 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 我开场就在尚兴广场还要我再坐一次车，行不行啊。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你从新宿也不能走到涩谷吧
 
+
+*****
+
+####  秋月孝三  
+##### 3173#       发表于 2024-2-22 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没强化打激难真的是磨
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

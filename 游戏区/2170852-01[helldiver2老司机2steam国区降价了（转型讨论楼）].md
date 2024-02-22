@@ -8865,3 +8865,13 @@ PS端还有个BUG，不退游戏，直接休眠主机。
 
 今天更新的这啥补丁啊 一载入就闪退<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 907#       发表于 2024-2-22 20:40
+
+焦土对机器人有奇效，带小范围AoE两三枪可解决atat和盾兵，不用绕背了。
+
+对虫族就是废物，常常贴脸自爆
+

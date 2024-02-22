@@ -263,3 +263,21 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 材质还是那个味道，糊糊的
 
+
+*****
+
+####  你好s1  
+##### 691#       发表于 2024-2-22 13:01
+
+<img src="https://img.saraba1st.com/forum/202402/22/130015kj76lwl2rt228trz.png" referrerpolicy="no-referrer">
+
+<strong>byl.png</strong> (97.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 13:00 上传
+
+  这游戏的第一个宣传片，写的是“主机上PS5独占”
+
+   这次的宣传片这句话也没有了，不会同步上PC吧？
+

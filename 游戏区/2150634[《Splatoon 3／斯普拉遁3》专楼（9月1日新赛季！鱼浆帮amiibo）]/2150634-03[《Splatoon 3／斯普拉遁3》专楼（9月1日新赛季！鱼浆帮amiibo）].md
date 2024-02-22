@@ -1545,3 +1545,11 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Junakr  
+##### 3174#       发表于 2024-2-22 13:05
+
+不管打工还是 DLC，果然塔都非常讨厌，DLC 的塔还只能打头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

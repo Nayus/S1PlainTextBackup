@@ -338,3 +338,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 几个片段二十米外的路人都掉帧mhw的翼龙了，至少是实机</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">祖传引擎是这样的，我记得仁王远处的敌人也是低帧运行
 
+
+*****
+
+####  死宅真恶心  
+##### 698#       发表于 2024-2-23 07:17
+
+卧龙是圈弹反浪人是三角弹反<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -296,3 +296,18 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 会比对马岛好玩吗
 
+
+*****
+
+####  stair楼梯  
+##### 694#       发表于 2024-2-22 14:58
+
+感觉是常年被忍组pua，觉得这街景和地标做的还挺像回事，那个远景富士山的桥好像还真在一些剑戟片看见过，等个战斗特辑了
+
+*****
+
+####  Booorunestud  
+##### 695#       发表于 2024-2-22 15:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">几个片段二十米外的路人都掉帧mhw的翼龙了，至少是实机
+

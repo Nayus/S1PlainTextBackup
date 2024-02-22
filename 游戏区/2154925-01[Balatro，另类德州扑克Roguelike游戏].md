@@ -1164,3 +1164,11 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 - 解锁第十套同花牌组进入简单模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nma  
+##### 108#       发表于 2024-2-22 14:59
+
+怎么没有滑动选牌的操作？明明拖动这个操作没啥用
+

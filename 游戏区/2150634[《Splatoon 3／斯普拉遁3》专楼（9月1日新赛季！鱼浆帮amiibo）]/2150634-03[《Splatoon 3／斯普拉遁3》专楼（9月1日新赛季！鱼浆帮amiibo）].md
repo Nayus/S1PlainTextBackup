@@ -1977,3 +1977,17 @@ dlc这外边的柜子是不是所有武器都得通一遍才能全开？
 
 笑了 有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 3221#       发表于 2024-2-22 19:21
+
+本来想再刷点柜子再打结局的，初见后一直刷高难和问号关不管 build，通过层数都不高。
+
+想想这把红桶刚好主副省都减到了最低，开始粘雷 rush 一路炸过去算了，通关也好空虚。
+
+如此贫瘠的 DLC，我相信研究所是为了填充垃圾时间才搞肉鸽的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。
+
+等大佬所有武器都通一边后看看有没有隐藏了。
+

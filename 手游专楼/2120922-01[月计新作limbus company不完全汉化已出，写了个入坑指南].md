@@ -405,3 +405,13 @@ syl 之前猜会给浮
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金笠默这日常本也太孬了吧
 
+
+*****
+
+####  钟于123  
+##### 560#       发表于 2024-2-22 20:13
+
+还送了10连的狂气
+
+话说看到个说法：有了悔恨的被动，再开3技能拼输的话，悔恨的加成是算在负骰上的，反击的4骰吃不到？
+

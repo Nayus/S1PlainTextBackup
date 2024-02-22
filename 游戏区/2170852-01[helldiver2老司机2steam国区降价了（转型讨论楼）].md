@@ -8844,3 +8844,16 @@ PS端还有个BUG，不退游戏，直接休眠主机。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，就这几套甲啊，今天商店有轻甲榴弹了
 
+
+*****
+
+####  FLZB  
+##### 905#       发表于 2024-2-22 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64035370&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-2-22 19:41</a>
+
+学习了
+
+还有机器人那种很高的炮塔怎么打？只有接近了扔空中打击么？</blockquote>
+飞鹰110MM和其他带目标锁定功能的轰炸，机炮打背后散热器或者磁轨枪直击
+

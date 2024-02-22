@@ -169,3 +169,17 @@ syl今天竟然有联动，如果电脑没搞好那岂不是联动直播就黄�
 
 唯一担心的是店员过劳死
 
+
+*****
+
+####  holoan  
+##### 8209#         楼主| 发表于 2024-2-22 12:05
+
+<img src="https://img.saraba1st.com/forum/202402/22/120553i2qg69z9h528hg7j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 12:05 上传
+

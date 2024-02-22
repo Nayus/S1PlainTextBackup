@@ -513,3 +513,22 @@ b站官号真的会端水吗<img src="https://static.saraba1st.com/image/smiley/
 
 眼镜里倒映着初祥诶<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 13363#       发表于 2024-2-22 21:33
+
+我说我每次想写初祥文，提起笔就写不下去。
+
+是供给的药性太强，直接昏睡了。
+
+*****
+
+####  cindy355  
+##### 13364#       发表于 2024-2-22 21:33
+
+说起来，已经登录手游的歌还有作为活动主题曲参与故事的可能性吗？
+
+PS.啥时候才能在手游打到mujica的歌啊，不能提前登录一下吗
+

@@ -432,3 +432,14 @@ a ...</blockquote>
 
 话说sd的系统好久没更新了吧，v是不是要来个大的
 
+
+*****
+
+####  cscnake  
+##### 45#       发表于 2024-2-22 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031526&amp;ptid=2172496" target="_blank">Meltina 发表于 2024-2-22 14:15</a>
+
+请问在哪里开的？最近正在仁王2，正好试试</blockquote>
+楼主已经回复了，我再补充一下。就是在三个点那个按键呼出的菜单里，电池那一页！
+

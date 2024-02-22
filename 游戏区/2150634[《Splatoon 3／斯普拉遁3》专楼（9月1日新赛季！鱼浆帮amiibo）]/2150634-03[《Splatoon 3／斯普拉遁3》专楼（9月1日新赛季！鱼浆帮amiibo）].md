@@ -1628,3 +1628,28 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 片尾曲很棒~</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">请问DLC整个流程有其他风格的场景美术风格吗？
 
+
+*****
+
+####  Junakr  
+##### 3183#       发表于 2024-2-22 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有点无聊了，纯堆怪刷刷刷，关键怪设计的也没有打工有意思，关卡也是几种模式重复。
+
+不想玩了，研究所还是谢罪吧。
+
+
+*****
+
+####  墨染白泉  
+##### 3184#       发表于 2024-2-22 14:32
+
+现在就有拿白模武器打x的了
+
+*****
+
+####  carroy  
+##### 3185#       发表于 2024-2-22 14:35
+
+机制怪太少了（
+

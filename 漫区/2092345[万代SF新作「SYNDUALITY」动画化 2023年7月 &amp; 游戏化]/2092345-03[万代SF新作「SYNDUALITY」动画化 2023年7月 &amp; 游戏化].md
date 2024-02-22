@@ -1690,3 +1690,35 @@ QQ图片20240222225004.png
 
 大P好像是之前一直做SAO那个，甭管是不是蹭了原作的粉起码有实绩在手，不会优先砍的对象，而且是原创。
 
+
+*****
+
+####  charlespfan  
+##### 3994#       发表于 2024-2-23 02:30
+
+ 本帖最后由 charlespfan 于 2024-2-23 02:32 编辑 
+
+<img src="https://img.saraba1st.com/forum/202402/23/022627eioo4wgnv2fo2wf4.jpg" referrerpolicy="no-referrer">
+
+<strong>WeisheitBlaurech_SSSSS_1.jpg</strong> (307.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 02:26 上传
+
+<img src="https://img.saraba1st.com/forum/202402/23/022627qf40040g11z4s7nc.jpg" referrerpolicy="no-referrer">
+
+<strong>WeisheitBlaurech_SSSSS_2.jpg</strong> (341.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 02:26 上传
+
+Weisheit Blaurecht
+Licht Alter
+Macht Ewigkeit
+
+看弹幕才知道原来奥特光是德语，Weisheit 智慧，Blaurecht ，Licht 光，Alter 年龄，Macht ，Ewigkeit 永恒
+
+Blaurecht和Macht不知道什么意思
+

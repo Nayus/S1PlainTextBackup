@@ -2327,3 +2327,15 @@ woc好肝啊
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  DeltaStriker  
+##### 3251#       发表于 2024-2-23 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64038295&amp;ptid=2150634" target="_blank">炫夜鳞 发表于 2024-2-23 00:40</a>
+一言难尽，头和尾都还行，就是中间这真的是。研究所到底是怎么想的做成肉鸽，xb3也有肉鸽，难道任天堂内部 ...</blockquote>
+甚至side order的主题也和xb3一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

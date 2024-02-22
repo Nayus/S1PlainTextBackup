@@ -1774,3 +1774,11 @@ ok，3q
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Junakr  
+##### 3199#       发表于 2024-2-22 15:49
+
+这 boss 设计真的拉，旋转陀螺 boss 场地放墨水壶我还以为能飞上去打，结果什么都没有吃完碰触伤害下来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

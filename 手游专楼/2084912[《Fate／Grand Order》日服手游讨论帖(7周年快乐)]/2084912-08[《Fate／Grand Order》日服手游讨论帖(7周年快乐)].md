@@ -261,3 +261,11 @@ choco原设的欧若拉好色
 我就随便拉了烟雾镜+拐进去乱打一通，然后令咒-3完事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 11421#       发表于 2024-2-22 15:47
+
+90++血量高到烦，看了下掉落材料居然都有一百多，打90+算了
+

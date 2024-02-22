@@ -1395,3 +1395,20 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 哪怕 DLC，螃蟹也是无敌强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  笔仁SaSaSa  
+##### 3158#       发表于 2024-2-22 10:57
+
+这设定太xb3了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寻龙分金看缠山  
+##### 3159#       发表于 2024-2-22 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64028785&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-2-22 10:25</a>
+如图</blockquote>
+阳光开朗大女孩！
+

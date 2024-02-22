@@ -224,3 +224,26 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 被FF7RB试玩折磨了眼镜，好想快进到浪人，起码卧龙画质也凑合能看
 
+
+*****
+
+####  livelive  
+##### 686#       发表于 2024-2-22 10:56
+
+没有超自然元素吗，目前看只有人形敌人(￣▽￣)
+
+*****
+
+####  byisme001  
+##### 687#       发表于 2024-2-22 10:57
+
+索尼那边做审查的应该禁止忍组做有大面积红色的场景
+
+
+*****
+
+####  kuarwbwe  
+##### 688#       发表于 2024-2-22 11:01
+
+史实游戏就别做超自然元素了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

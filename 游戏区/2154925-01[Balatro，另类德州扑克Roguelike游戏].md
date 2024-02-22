@@ -1000,3 +1000,22 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 复制的幻灵卡和复制的小丑卡叠加各种可以爆倍率的小丑卡爽到无边
 
+
+*****
+
+####  icebarrier  
+##### 92#       发表于 2024-2-22 10:54
+
+昨天一口气玩了一晚，就到了底注4，有个boss一定要不同胡法的真恶心
+
+
+*****
+
+####  rp1993  
+##### 93#       发表于 2024-2-22 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64026922&amp;ptid=2154925" target="_blank">匿名用户 发表于 2024-2-22 03:45</a>
+
+爽了一把：全卡牌视为人物牌+人物牌打出转金砖牌+吃增强牌加0.2乘数的吸血鬼牌。这套combo直接起飞。 ...</blockquote>
+我也组成过，以为要起飞结果关底BOSS是所有人头牌不算分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

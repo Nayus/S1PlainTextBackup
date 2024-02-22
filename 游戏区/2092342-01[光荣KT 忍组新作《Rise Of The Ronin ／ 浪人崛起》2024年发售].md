@@ -133,3 +133,24 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 大地图活动好像不多，就看到找猫和滑翔小游戏，怎么不加一些花牌啊赌博小游戏？
 
+
+*****
+
+####  Garterbelt  
+##### 678#       发表于 2024-2-22 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027852&amp;ptid=2092342" target="_blank">BadYanL 发表于 2024-2-22 09:20</a>
+
+场景比以往的忍者组游戏好多了，画质也比较干净，非常对马岛。
+
+大地图活动好像不多，就看到找猫和滑翔小游 ...</blockquote>
+那不就是如龙维新<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BadYanL  
+##### 679#       发表于 2024-2-22 09:57
+
+音乐也很棒
+

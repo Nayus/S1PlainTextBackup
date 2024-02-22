@@ -8595,3 +8595,17 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 —— 来自 Xiaomi 22081212C, Android 14上的 S1Next- ...</blockquote>
 上限五万块，早晚都是开
 
+
+*****
+
+####  风萧飒  
+##### 885#       发表于 2024-2-22 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027776&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-22 09:13</a>
+卡奖励的回吐有利息？我记得昨天才玩两局，今天回吐给我150个奖章？
+
+直接解锁焦土，这波不亏 ...</blockquote>
+有的，之前奖励多补了很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

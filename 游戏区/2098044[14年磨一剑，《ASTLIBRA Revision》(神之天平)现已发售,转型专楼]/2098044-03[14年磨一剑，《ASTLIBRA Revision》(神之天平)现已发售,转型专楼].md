@@ -361,3 +361,17 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 出心天平的是还楞了一下，想着女主不穿铠甲啊，一看果然是在道具里，然后居然是女主放面包店里交换的[f:066 ...</blockquote>
 本篇里兑换心天平用的就是变石，算是一个相互对应的小彩蛋吧。外传里拿到变石之后可以去猪猪那里换最终武器。
 
+
+*****
+
+####  syndrome2032  
+##### 4038#       发表于 2024-2-22 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027156&amp;ptid=2098044" target="_blank">otakun 发表于 2024-2-22 07:44</a>
+出心天平的是还楞了一下，想着女主不穿铠甲啊，一看果然是在道具里，然后居然是女主放面包店里交换的[f:066 ...</blockquote>
+原版是打完神练武器，武器拿宝石，宝石合变石，变石去面包房换心天平。
+
+dlc这个段子设计的不错。但问题不是都新章了主角才记得能拿变石换新天平这事吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+另外面包女穿不了心天平的原因居然是胸太大赛不进去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

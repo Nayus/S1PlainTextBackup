@@ -70,3 +70,23 @@ ns版什么时候上？只写了ps5的日期？</blockquote>
 ns版什么时候上？只写了ps5的日期？</blockquote>
 上了ns，x1的该骂街了
 
+
+*****
+
+####  陈词与芍药  
+##### 489#         楼主| 发表于 2024-2-23 02:22
+
+https://store.playstation.com/zh-hk/concept/10008685
+
+预购已开，普通版213，豪华版284，ps会员打9折
+
+<img src="https://img.saraba1st.com/forum/202402/22/142216lb34b9wi9wz9wwgy.jpg" referrerpolicy="no-referrer">
+
+<strong>A12A9D58-D1F2-4276-9CEF-6C992142330A.jpg</strong> (625.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 02:22 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

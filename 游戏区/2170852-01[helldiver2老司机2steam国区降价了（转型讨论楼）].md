@@ -8828,3 +8828,19 @@ PS端还有个BUG，不退游戏，直接休眠主机。
 
 今天更新后主界面上的社交和物资采购这几个字被吞掉了
 
+
+*****
+
+####  绯想天の天子  
+##### 903#       发表于 2024-2-22 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新补丁把ps版的服务器搞崩了
+
+
+*****
+
+####  Launce  
+##### 904#       发表于 2024-2-22 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，就这几套甲啊，今天商店有轻甲榴弹了
+

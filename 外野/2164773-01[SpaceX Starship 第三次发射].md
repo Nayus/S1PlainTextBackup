@@ -34,3 +34,12 @@
 
 2024-2-21 12:37 上传
 
+
+*****
+
+####  commcody  
+##### 135#         楼主| 发表于 2024-2-23 00:57
+
+FAA表示，SpaceX正在寻求许可，以在今年发射至少九次星舰。
+[https://arstechnica.com/space/20 ... ne-times-this-year/](https://arstechnica.com/space/2024/02/spacex-seeks-to-launch-starship-at-least-nine-times-this-year/)
+

@@ -1882,3 +1882,11 @@ dlc这剧情，编剧是不是懒得编了直接照搬xb3的模版戏啊<img src
 
 还以为研究所本体更新摆烂要把精力放在dlc上，现在看<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chobitssyf  
+##### 3211#       发表于 2024-2-22 17:41
+
+打了2个武器，总体感觉很不错10分给8分。x上评价也不错。给的衣服非常好
+

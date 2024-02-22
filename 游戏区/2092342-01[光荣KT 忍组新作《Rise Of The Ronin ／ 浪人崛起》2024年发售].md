@@ -327,3 +327,14 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 2024-2-22 17:31 上传
 
+
+*****
+
+####  popchong  
+##### 697#       发表于 2024-2-22 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64032091&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2024-2-22 15:00</a>
+
+几个片段二十米外的路人都掉帧mhw的翼龙了，至少是实机</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">祖传引擎是这样的，我记得仁王远处的敌人也是低帧运行
+

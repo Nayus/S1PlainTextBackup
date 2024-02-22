@@ -162,3 +162,11 @@ duck是不是撞新秀墙了
 
 毕竟单论一个赛事的爆发不能直接下定论，巴黎爆种的波罗斯已经给送走了，论稳定且强大还得看森载，载物那种恐怖的稳定性更是没有竞品了
 
+
+*****
+
+####  wiig  
+##### 4003#       发表于 2024-2-22 13:50
+
+杜啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -1104,3 +1104,34 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 有没有读暗牌的技巧。。。
 
+
+*****
+
+####  三度音  
+##### 103#       发表于 2024-2-22 13:51
+
+<blockquote>passgan 发表于 2024-2-22 13:43
+有没有读暗牌的技巧。。。</blockquote>
+靠弃牌换上来的牌不是暗牌
+
+*****
+
+####  passgan  
+##### 104#       发表于 2024-2-22 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031223&amp;ptid=2154925" target="_blank">三度音 发表于 2024-2-22 13:51</a>
+
+靠弃牌换上来的牌不是暗牌</blockquote>
+有个boss是除了第一手都是按牌
+
+
+*****
+
+####  周愚  
+##### 105#       发表于 2024-2-22 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031242&amp;ptid=2154925" target="_blank">passgan 发表于 2024-2-22 13:52</a>
+
+有个boss是除了第一手都是按牌</blockquote>
+翻译错误。只有打出时抽的翻面，弃牌不是。
+

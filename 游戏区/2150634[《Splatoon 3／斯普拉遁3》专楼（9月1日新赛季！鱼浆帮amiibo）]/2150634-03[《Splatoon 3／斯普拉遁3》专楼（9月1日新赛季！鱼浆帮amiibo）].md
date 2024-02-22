@@ -2143,3 +2143,79 @@ woc好肝啊
 
 开了 17 个柜子肝不动了，十小时全武器 clear 的是什么神人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  raii  
+##### 3237#       发表于 2024-2-22 22:53
+
+发个自己在微博给姐妹看的吐槽，给泥潭也看看笑话<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+ <blockquote>Side Order初见，一把通关，来讲讲感想。
+
+文略长，剧情无透但是会有通关后内容的描述和图透（最后三张）。
+
+美学，确实有如之前期待的，很对我的胃口，极度简洁的未来极简主义图形和大量Octo性格的合成器，Downtempo如梦似幻，塑造出一个虚实莫辨的视听空间。一开始本以为是某个少女的诗歌迷梦，但露出獠牙时又能给你Neurofunk那般的凶狠。这和Octo Expansion时候选择踩当时流行的80s~90s的合成器波和Lo-fi美学来讨好人群的做法不一样，虽也有对“秩序”风格化的借鉴，且白色的关卡看多了仍有些伤眼睛，但是勇气可嘉，做得也还不错，这是我对这作最大的肯定。
+
+角色，先说好的部分——姬饭，她们棒极了！这作的营业很充实，各种小细节都有得磕，通关以后还有类似前作聊天室那样的文档，甜到蛀牙。而且你们看我家ハチ啊，她美不美？[抱一抱] 这作大放送的不只是テンタクルス两个人的互动，也包括小八，她们3人之间的信赖关系真是尊到家了，请把3人的故事继续下去，想守护你们到宇宙的尽头。
+
+游戏性，因为才通关一次，所以保留意见，不褒不贬。
+
+接下来全部都是负面评价了！阅读责任自负！
+
+-
+
+音乐！只说带Vocal的，Octo Expansion准备了整整3首新曲和一批新Remix，Side Order 有几首新曲？就一个ED！就这样还要收更多的钱？
+
+角色！水田 a.k.a. Dedf1sh，本应该是一个很有角色魅力的DJ，全作居然没有为她塑造什么发挥主动性的桥段！仿佛只是一个没事交代两句饭田叛逃前生活掠影的工具角色，她就站在那儿做一个电梯小姐，默默看着其他人拯救世界......
+
+剧情设定！虽然有想办法呼应2代的故事，但是整个设置还是给人一股随便应付的感觉，而且也不激动人心！最后ED部分的演出我都不知道为什么要设置成那样，从塔底打上塔顶，那为什么ED的环境反而是在深海里往上走？这故事和深海又没关系！
+
+演出！游戏Intro部分的演出其实我蛮喜欢的，有危机感，可是最终决战的反而单薄无味。可能是Octo的最终决战实在是太过完美，Side Order稍微一点对着它的致敬在此反倒像是，不想动脑筋的EPD5人员们，在紧迫的纳期前决定就那么凑合下搞点老桥段就交差一样，最终合奏的登场都合到尴尬。2代的英雄模式，Side Order顶多就到这个高度，远不如Octo Expansion和三代的英雄模式的结局那般用心和戳心。
+
+正因为有Octo Expansion珠玉在前，正因为2年更新即将引来最终冲刺，正因为屡屡让人失望的运营，才让我期待Side Order是能够为斯普拉遁3扳回污名的振臂一挥，但它不争气！
+
+还有EPD5我要说脏话了，这装修一新的尚兴广场，连具足虫教父都上到地面了，最重要的英雄去哪里了？我4号呢？阳光快乐大女孩就该被你们这样欺负吗！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202402/22/225202isfqeyrqnjdj1nez.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022221132900-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (91.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202402/22/225202go5li1m6oz20iamp.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022221251700-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (110.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202402/22/225246qyfytoxhydcdc5ps.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022221433000-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (179.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202402/22/225202ojam10jzz3raycu3.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022221460500-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (303.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 22:52 上传
+
+*****
+
+####  shirolin  
+##### 3238#       发表于 2024-2-22 22:54
+
+第一次推到最终boss最后阶段，高压水枪稍微蹭到速度就减到最低，基本躲不掉后续任何攻击……太坑了吧
+
+出来立马把受伤后速度加满<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

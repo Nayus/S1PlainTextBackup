@@ -946,3 +946,29 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 那个回合结束后看剩余的出牌次数和弃牌次数给钱的牌组其实也挺强的，没有10块利息的话其他牌组最多也就五块钱利息，这个牌子很早期能拿五块钱的奖励了，而且还有一张弃牌次数变0加3出牌次数的鬼牌，一回合拿个十几块不成问题
 
+
+*****
+
+####  schneehertz  
+##### 87#         楼主| 发表于 2024-2-22 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027295&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-22 08:20</a>
+这游戏我只会一种压缩牌库的方法
+用塔罗牌和死神什么的染色做同花……
+其他的太抽象了</blockquote>
+同花的上限有点低
+斐波那契和其他低位加强的鬼牌配合低位的四条，或者四条A和配合的鬼牌，能在无尽模式多爬几层
+
+不过还是不知道怎么到达底注13
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  a4ac7  
+##### 88#       发表于 2024-2-22 09:10
+
+艹，只玩到底注6，难度真高
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

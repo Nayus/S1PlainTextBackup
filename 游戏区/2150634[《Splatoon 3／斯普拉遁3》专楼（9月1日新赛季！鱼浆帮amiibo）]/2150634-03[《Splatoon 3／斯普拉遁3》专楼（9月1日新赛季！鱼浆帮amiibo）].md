@@ -1200,3 +1200,26 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">研究所口碑能否逆转就看这一波了
 
+
+*****
+
+####  Junakr  
+##### 3138#       发表于 2024-2-22 09:11
+
+进入了，电台播 DLC 新闻，研究所快给我好康<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  Teiume  
+##### 3139#       发表于 2024-2-22 09:14
+
+可恶我还在下载更新好慢啊
+
+
+*****
+
+####  Junakr  
+##### 3140#       发表于 2024-2-22 09:14
+
+我开场就在尚兴广场还要我再坐一次车，行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+

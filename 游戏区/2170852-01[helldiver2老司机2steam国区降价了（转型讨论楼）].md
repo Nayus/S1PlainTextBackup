@@ -8560,3 +8560,13 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 
 昨天玩了几把，随时随地白干，偷鸡一样做完主线直接走人<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 882#       发表于 2024-2-22 09:13
+
+卡奖励的回吐有利息？我记得昨天才玩两局，今天回吐给我150个奖章？
+
+直接解锁焦土，这波不亏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

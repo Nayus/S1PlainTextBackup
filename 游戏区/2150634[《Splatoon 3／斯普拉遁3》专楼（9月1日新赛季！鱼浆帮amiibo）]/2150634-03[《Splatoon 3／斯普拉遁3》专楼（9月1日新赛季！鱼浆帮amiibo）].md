@@ -1583,3 +1583,11 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 6F 固定刷极难？换双枪在这一层翻车两次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  Junakr  
+##### 3178#       发表于 2024-2-22 13:43
+
+草 10 层遇到图鉴中像 4 号还有出现在之前视觉图最上方的剪影 boss 了，真不是 4 号呀。
+

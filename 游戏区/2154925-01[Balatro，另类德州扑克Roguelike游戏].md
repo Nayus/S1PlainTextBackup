@@ -1096,3 +1096,11 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  passgan  
+##### 102#       发表于 2024-2-22 13:43
+
+有没有读暗牌的技巧。。。
+

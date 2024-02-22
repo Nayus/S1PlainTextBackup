@@ -690,3 +690,11 @@ PS.啥时候才能在手游打到mujica的歌啊， ...</blockquote>
 
 以及老五团缺ag，难道佐仓又被公演NG了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 13379#       发表于 2024-2-22 23:35
+
+奏音还转发一次当初和李子去西武池袋顶楼花园的推<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

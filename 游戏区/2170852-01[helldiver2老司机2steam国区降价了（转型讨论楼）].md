@@ -8959,3 +8959,14 @@ PS端还有个BUG，不退游戏，直接休眠主机。
 又遇到个新BUG，按CTRL投下来的东西全是随机的。。。</blockquote>
 那个是机器人干扰塔的效果
 
+
+*****
+
+####  nukecole  
+##### 914#       发表于 2024-2-22 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64037483&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-2-22 23:08</a>
+
+这个不是bug，是星球debuff-电子对抗，选任务前能看到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样的吗？匹配进野队就直接下去了。。。。
+

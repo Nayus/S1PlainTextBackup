@@ -293,3 +293,16 @@ Nagi参演音乐剧
 
 2024-2-22 23:09 上传
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19666#       发表于 2024-2-22 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64030278&amp;ptid=2078110" target="_blank">starring 发表于 2024-2-22 12:21</a>
+得看烂铁愿不愿意给她突破现在的风格
+二专虽然买了但基本没怎么听，远不如mini专</blockquote>
+个人而言非常喜欢mini专，二专有种又退回去了的感觉。给粉丝开演唱会，那是一定够了，但在此之上更多的东西，烂铁好像完全不愿意给。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

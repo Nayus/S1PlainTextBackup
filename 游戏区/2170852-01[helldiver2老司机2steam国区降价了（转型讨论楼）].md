@@ -8675,3 +8675,23 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，在重写代码了
 
+
+*****
+
+####  xinfengj  
+##### 893#       发表于 2024-2-22 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64033526&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-2-22 16:55</a>
+
+地图上一片片红色的区域就是哨站吗？怎么算清除哨站？一定要全炸平吗？</blockquote>
+对，去炸高亮的虫子洞，炸完会跳此区域已安全，少炸一个洞就是没完成，结算没奖励。虫洞好炸，普通飞鹰炸效率很高，飞鹰炸完冲进去把剩的补了就可以溜了。榴弹炸巢穴很效率，机炮弹道好还可以隔着老远打敞口巢穴。
+
+机器人那边是冒红光的兵营，要用雷往红色窗口里扔
+
+*****
+
+####  clover293  
+##### 894#       发表于 2024-2-22 17:06
+
+我看网上说这游戏的引擎18年就停止更新了。。。
+

@@ -1834,3 +1834,11 @@ ok，3q
 
 dlc这剧情，编剧是不是懒得编了直接照搬xb3的模版戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  炫夜鳞  
+##### 3206#       发表于 2024-2-22 17:03
+
+不如2dlc一根，甚至不如英雄模式<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

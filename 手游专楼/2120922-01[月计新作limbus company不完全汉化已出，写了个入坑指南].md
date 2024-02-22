@@ -423,3 +423,11 @@ syl 之前猜会给浮
 
 看了金锁的三破剧情，突发奇想，S社的S不会是South Koera的S吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 562#       发表于 2024-2-22 21:00
+
+一周年礼包送的直升券会把三破动画吞掉直接进剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好歹优化一下嘛...
+

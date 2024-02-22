@@ -2383,3 +2383,13 @@ woc好肝啊
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 3256#       发表于 2024-2-23 07:42
+
+新伞貌似很强，最高90伤害不说，射程远扩散少，可能没多久就要被削了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

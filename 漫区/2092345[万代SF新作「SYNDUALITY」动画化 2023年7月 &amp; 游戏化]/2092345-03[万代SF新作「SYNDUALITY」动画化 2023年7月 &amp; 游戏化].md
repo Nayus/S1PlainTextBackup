@@ -1732,3 +1732,17 @@ Blaurecht和Macht不知道什么意思
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NeloAngelo  
+##### 3996#       发表于 2024-2-23 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64038869&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-2-23 02:30</a>
+Weisheit Blaurecht
+Licht Alter
+Macht Ewigkeit</blockquote>
+Blau 蓝色, Recht 法律
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

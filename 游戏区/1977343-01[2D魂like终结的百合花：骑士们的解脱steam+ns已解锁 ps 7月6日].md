@@ -49,3 +49,11 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  jxzeroga0  
+##### 647#       发表于 2024-2-22 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计经费都被上一部slg浪费完了吧
+

@@ -8583,3 +8583,15 @@ PC 如果在线超过二十万今晚大概率不用等了，等明天晚上八�
 直接解锁焦土，这波不亏 ...</blockquote>
 好像真的有，我有一次结算卡了6个超级样本，打完吐给了我快40个，直接毕业
 
+
+*****
+
+####  2VYBGp94  
+##### 884#       发表于 2024-2-22 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64018750&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-21 12:22</a>
+今天的民主任务竟然是幽默大狙，纯纯浪费我的申购点
+
+—— 来自 Xiaomi 22081212C, Android 14上的 S1Next- ...</blockquote>
+上限五万块，早晚都是开
+

@@ -395,3 +395,13 @@ dlc这个段子设计的不错。但问题不是都新章了主角才记得能�
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  tansapple  
+##### 4041#       发表于 2024-2-22 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027432&amp;ptid=2098044" target="_blank">otakun 发表于 2024-2-22 08:39</a>
+刚刷了一把在猪猪那里看到了。顺便问下第十层的boss 是设定还是bug，boss 是天平和两个女的，我进去一个 ...</blockquote>
+bug吧，但是我打的时候是正常打完的，不清楚你是触发了什么特殊情况。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

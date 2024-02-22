@@ -8777,3 +8777,13 @@ PS5 玩家可能会在登录屏幕上遇到错误代码 10003001。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">如果挂机排队，排进去了。然后15分钟没操作，再被踢出来，你还得排。真是太乐了
 
+
+*****
+
+####  风萧飒  
+##### 898#       发表于 2024-2-22 18:45
+
+主要是听说很多欧美玩家喜欢晚上睡觉挂着游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这功能用来制裁他们的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

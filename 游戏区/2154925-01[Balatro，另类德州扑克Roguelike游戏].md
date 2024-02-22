@@ -972,3 +972,15 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  鸳鸳相抱  
+##### 89#       发表于 2024-2-22 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027295&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-22 08:20</a>
+这游戏我只会一种压缩牌库的方法
+用塔罗牌和死神什么的染色做同花……
+其他的太抽象了</blockquote>
+有一张鬼牌是黑桃梅花、红桃方片算同花
+

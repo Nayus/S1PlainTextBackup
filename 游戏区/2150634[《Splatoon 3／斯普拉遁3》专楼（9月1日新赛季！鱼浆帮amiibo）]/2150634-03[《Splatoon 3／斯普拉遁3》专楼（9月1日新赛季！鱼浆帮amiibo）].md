@@ -1223,3 +1223,11 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 我开场就在尚兴广场还要我再坐一次车，行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  Kuebiko  
+##### 3141#       发表于 2024-2-22 09:18
+
+墨水怎么这么好看 为什么不放进本体啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

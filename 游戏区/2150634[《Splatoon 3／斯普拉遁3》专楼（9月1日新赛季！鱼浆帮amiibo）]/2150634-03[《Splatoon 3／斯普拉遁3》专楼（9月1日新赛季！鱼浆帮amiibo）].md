@@ -1599,3 +1599,13 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 钥匙只能拿一次啊，那柜子咋开呢
 
+
+*****
+
+####  lazycat233  
+##### 3180#       发表于 2024-2-22 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031255&amp;ptid=2150634" target="_blank">chobitssyf 发表于 2024-2-22 13:53</a>
+钥匙只能拿一次啊，那柜子咋开呢</blockquote>
+每把武器都有进度
+

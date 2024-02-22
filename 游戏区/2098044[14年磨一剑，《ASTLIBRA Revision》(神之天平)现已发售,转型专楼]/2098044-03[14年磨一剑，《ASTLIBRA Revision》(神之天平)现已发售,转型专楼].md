@@ -425,3 +425,22 @@ bug吧，但是我打的时候是正常打完的，不清楚你是触发了什�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ParadiseMartyr  
+##### 4044#       发表于 2024-2-22 17:11
+
+ 本帖最后由 ParadiseMartyr 于 2024-2-22 17:12 编辑 
+
+通了DLC了…后面大的是真痛苦，boss只能上狂暴了…自己太菜了打了23个小时，有点烦说实话，纯刷怪
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  TiiTiiLL  
+##### 4045#       发表于 2024-2-22 17:13
+
+最近忙着刷relink和p3r，还屯着个fsr的dlc没打，外传值得专门抽出时间来打一下吗
+

@@ -1842,3 +1842,43 @@ dlc这剧情，编剧是不是懒得编了直接照搬xb3的模版戏啊<img src
 
 不如2dlc一根，甚至不如英雄模式<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 3207#       发表于 2024-2-22 17:09
+
+肝了十个柜子，建议严查野上组，太无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+27 层困难故障黑暗+全敌墨+五个泉，打不了一点。
+
+*****
+
+####  carroy  
+##### 3208#       发表于 2024-2-22 17:11
+
+评价是不如打工<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  martinium  
+##### 3209#       发表于 2024-2-22 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64032487&amp;ptid=2150634" target="_blank">carroy 发表于 2024-2-22 15:34</a>
+难绷
+赞气蛋+毒雾+弓
+刷了一个不要用主武器打轮子的奖励关</blockquote>
+这肉哥的设计不知道怎么想的，刷出几次区域不用主武器的奖励关了。研究所难道觉得这就是游戏性么？还有能力晶片，我拿小枪也能给我刷子滚筒的强化选项。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3210#       发表于 2024-2-22 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">多谢楼友测评，这下真不用买了
+
+还以为研究所本体更新摆烂要把精力放在dlc上，现在看<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+

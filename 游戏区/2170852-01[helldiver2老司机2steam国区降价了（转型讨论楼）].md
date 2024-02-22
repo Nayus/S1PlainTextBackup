@@ -8980,3 +8980,19 @@ PS端还有个BUG，不退游戏，直接休眠主机。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  我不是夏承凛  
+##### 916#       发表于 2024-2-23 00:14
+
+ 本帖最后由 我不是夏承凛 于 2024-2-23 00:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64033661&amp;ptid=2170852" target="_blank">clover293 发表于 2024-2-22 17:06</a>
+
+我看网上说这游戏的引擎18年就停止更新了。。。</blockquote>
+Arrowhead Game工作室首席执行官Johan Pilestedt最近证实，他们的热门游戏正在使用一款“废弃软件”运行。原名为Bitsquid，这是一个与虚幻和Unity一样的游戏引擎，在2010年代早期许多瑞典独立游戏都使用了这款引擎。
+
+2014年，Autodesk收购了它，并更名为Stingray。不过它已经于2018年停止支持。
+
+在《绝地潜兵2》之前，最后一款使用了 Stingray 的游戏是2022年Fatshark开发的合作射击游戏《战锤40K：暗潮》。
+

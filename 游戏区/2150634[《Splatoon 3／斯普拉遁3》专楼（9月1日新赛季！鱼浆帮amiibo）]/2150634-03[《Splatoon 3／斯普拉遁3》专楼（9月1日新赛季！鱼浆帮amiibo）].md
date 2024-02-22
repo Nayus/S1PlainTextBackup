@@ -1443,3 +1443,30 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 新伞似乎有点强，一发伤害90
 
+
+*****
+
+####  罗克萨斯  
+##### 3164#       发表于 2024-2-22 11:41
+
+本次更新后，有一大堆T恤可以改oversize，袜子可脱，眼镜可放额头，可用装备越来越多了！差不多可以准备多套毕业套装了<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Junakr  
+##### 3165#       发表于 2024-2-22 11:43
+
+初见打到 30F，死于 boss 第三阶段。
+
+什么嘛，不是挺简单的，还是小绿改螃蟹太强了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+<img src="https://img.saraba1st.com/forum/202402/22/114310ag0oi7i0poxx7hne.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1085.jpeg</strong> (199.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 11:43 上传
+

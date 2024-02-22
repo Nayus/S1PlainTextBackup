@@ -350,3 +350,14 @@ DLC斗技场打本体6个隐藏boss 的建议什么时候刷，我6章前辛苦�
 出心天平的是还楞了一下，想着女主不穿铠甲啊，一看果然是在道具里，然后居然是女主放面包店里交换的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，只说个叫“变什么的石头”果然就有人来交换了。
 然后变石有实际作用吗，还是只是个彩蛋？
 
+
+*****
+
+####  tansapple  
+##### 4037#       发表于 2024-2-22 07:58
+
+ 本帖最后由 tansapple 于 2024-2-22 07:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64027156&amp;ptid=2098044" target="_blank">otakun 发表于 2024-2-22 07:44</a>
+出心天平的是还楞了一下，想着女主不穿铠甲啊，一看果然是在道具里，然后居然是女主放面包店里交换的[f:066 ...</blockquote>
+本篇里兑换心天平用的就是变石，算是一个相互对应的小彩蛋吧。外传里拿到变石之后可以去猪猪那里换最终武器。
+

@@ -49,3 +49,24 @@ ns版什么时候上？只写了ps5的日期？
 ns版什么时候上？只写了ps5的日期？</blockquote>
 就没ns啊
 
+
+*****
+
+####  亚瑟摩根  
+##### 487#       发表于 2024-2-22 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64030213&amp;ptid=2116452" target="_blank">树洞专用 发表于 2024-2-22 12:15</a>
+
+ns版什么时候上？只写了ps5的日期？</blockquote>
+没有NS
+
+
+*****
+
+####  byisme001  
+##### 488#       发表于 2024-2-22 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64030213&amp;ptid=2116452" target="_blank">树洞专用 发表于 2024-2-22 12:15</a>
+ns版什么时候上？只写了ps5的日期？</blockquote>
+上了ns，x1的该骂街了
+

@@ -1710,3 +1710,21 @@ ok，3q
 请问DLC整个流程有其他风格的场景美术风格吗？</blockquote>
 因为是“秩序”所以“不变”。<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 3192#       发表于 2024-2-22 15:08
+
+怂了，先把血加到 40（4 条命）再说。
+
+*****
+
+####  八神  
+##### 3193#       发表于 2024-2-22 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64029959&amp;ptid=2150634" target="_blank">Junakr 发表于 2024-2-22 11:53</a>
+
+草，死了还能直接从 30F 开始，这不光速通关，休息下。</blockquote>
+要消耗496珍珠，你这不是根本不够吗。。。
+

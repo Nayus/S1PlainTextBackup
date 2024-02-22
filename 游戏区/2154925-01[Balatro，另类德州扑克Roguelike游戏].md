@@ -1172,3 +1172,22 @@ love2d游戏的i18n倒不算复杂。 return {     ["descriptions"] = {    �
 
 怎么没有滑动选牌的操作？明明拖动这个操作没啥用
 
+
+*****
+
+####  玩玩而已  
+##### 109#       发表于 2024-2-22 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64032076&amp;ptid=2154925" target="_blank">nma 发表于 2024-2-22 14:59</a>
+怎么没有滑动选牌的操作？明明拖动这个操作没啥用</blockquote>
+有用的啊，先加后乘倍率会高一点啊
+
+*****
+
+####  玩玩而已  
+##### 110#       发表于 2024-2-22 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64031126&amp;ptid=2154925" target="_blank">passgan 发表于 2024-2-22 13:43</a>
+有没有读暗牌的技巧。。。</blockquote>
+SL，出牌看完牌面然后关游戏重开
+

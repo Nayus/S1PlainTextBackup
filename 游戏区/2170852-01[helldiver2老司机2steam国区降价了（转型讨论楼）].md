@@ -8921,3 +8921,13 @@ PS端还有个BUG，不退游戏，直接休眠主机。
 
 今天这日场都给吃掉了？
 
+
+*****
+
+####  leoray  
+##### 910#       发表于 2024-2-22 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">捏妈妈滴今天晚上排了把最后到撤离信标，一按屏幕就黑屏回我驱逐舰了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

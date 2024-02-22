@@ -2107,3 +2107,15 @@ woc好肝啊
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 3233#       发表于 2024-2-22 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64036160&amp;ptid=2150634" target="_blank">紫菜粉丝煲 发表于 2024-2-22 21:06</a>
+这啥</blockquote>
+章鱼小绿，英雄模式章鱼兵的小绿
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

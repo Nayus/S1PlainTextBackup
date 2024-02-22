@@ -431,3 +431,11 @@ syl 之前猜会给浮
 
 一周年礼包送的直升券会把三破动画吞掉直接进剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好歹优化一下嘛...
 
+
+*****
+
+####  Yuzutea  
+##### 563#       发表于 2024-2-22 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这镜牢活动事件判定太畜生了吧
+

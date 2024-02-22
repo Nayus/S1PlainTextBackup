@@ -450,3 +450,24 @@ syl 之前猜会给浮
 看了金锁的三破剧情，突发奇想，S社的S不会是South Koera的S吧</blockquote>
 你没想错S社就是南朝鲜，相应的N社就是北韩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 565#       发表于 2024-2-22 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64036616&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-2-22 21:49</a>
+
+你没想错S社就是南朝鲜，相应的N社就是北韩</blockquote>
+草，怪不得N社的人过得这么水深火热，这私货够厉害。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+查了一下仇甫的原型朴泰远，果然跑到朝鲜去了：
+
+朴泰远，号仇甫，出生于汉城。1930年于《新生》杂质上发表短篇《胡须》，登上文坛。以后发表了《行人》、《悔改》、《饿了三天的春月》、《5月的薰风》、《疲劳》、《小说家仇甫氏的一日》、《川边风景》等作品。曾把《水浒传》《西游记》《三国志》等中国古典名著翻译成了朝文。
+
+1933年，参与创办“九人会”。1946年，参加朝鲜文学家同盟。1950年，朝鲜战争爆发后，到朝鲜任平壤文学大学教授，在朝鲜写的历史小说《甲午农民战争》被称为朝鲜最好的历史小说。1986年在朝鲜去世。
+
+其孙子为电影《寄生虫》的导演奉俊昊。
+
+感觉仇甫的显示原型还挺讨喜的，游戏里那个红墨镜的造型我也挺喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">不知道能不能进卡池，反正依附日本的东朗没指望了...
+

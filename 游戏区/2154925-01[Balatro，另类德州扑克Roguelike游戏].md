@@ -1307,3 +1307,19 @@ K和Q都获得x2倍率实在强大
 
  不得不品尝的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nailuo1993  
+##### 122#       发表于 2024-2-23 04:59
+
+<img src="https://img.saraba1st.com/forum/202402/23/045731dhd5hogekafwocwb.jpg" referrerpolicy="no-referrer">
+
+<strong>新建位图图像.jpg</strong> (435 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 04:57 上传
+
+joker牌全堆X系数的终于刷出科学计数法了，看来最后3个盲注还是有希望的
+

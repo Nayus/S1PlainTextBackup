@@ -698,3 +698,13 @@ PS.啥时候才能在手游打到mujica的歌啊， ...</blockquote>
 
 奏音还转发一次当初和李子去西武池袋顶楼花园的推<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木谷高明  
+##### 13380#       发表于 2024-2-23 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64036627&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-22 21:50</a>
+週年生放捏</blockquote>
+还是得ksar<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -1281,3 +1281,13 @@ K和Q都获得x2倍率实在强大
 
 卡一下午橙注了，突出一个苟都苟不下去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a4ac7  
+##### 120#       发表于 2024-2-22 23:37
+
+两对成长卡nb，总算进无尽了，比我昨天的同花build强多了
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

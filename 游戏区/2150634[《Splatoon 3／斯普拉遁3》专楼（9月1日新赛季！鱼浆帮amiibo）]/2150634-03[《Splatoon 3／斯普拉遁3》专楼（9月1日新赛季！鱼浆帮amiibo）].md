@@ -1292,3 +1292,31 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 墨水像指甲油，怎么还不把这些好看墨水加入pvp
 
+
+*****
+
+####  Teiume  
+##### 3148#       发表于 2024-2-22 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64028033&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-22 09:34</a>
+
+偷偷看了菇菇的直播，感觉好简单，二代DLC初期也这样么？
+
+—— 来自 S1Fun</blockquote>
+前面简单的是教程啦，让你熟悉一下。已经看到有主播正式2F高难就挂掉了。
+
+*****
+
+####  Junakr  
+##### 3149#       发表于 2024-2-22 10:19
+
+庆祝喷喷三 beta 测试结束。
+
+<img src="https://img.saraba1st.com/forum/202402/22/101932bbx8brosri6xghxn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1084.jpeg</strong> (36.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 10:19 上传
+

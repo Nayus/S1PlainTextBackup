@@ -1470,3 +1470,33 @@ zap 之前主武器增加伤害，打工专用 zap 忘记调整导致伤害比�
 
 2024-2-22 11:43 上传
 
+
+*****
+
+####  真空管  
+##### 3166#       发表于 2024-2-22 11:51
+
+鱼骨头咋么还帮忙推球的笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junakr  
+##### 3167#       发表于 2024-2-22 11:53
+
+草，死了还能直接从 30F 开始，这不光速通关，休息下。
+
+<img src="https://img.saraba1st.com/forum/202402/22/115343oys3ygrar1ygywaz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1086.jpeg</strong> (201.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-22 11:53 上传
+
+*****
+
+####  Ryuuseigun  
+##### 3168#       发表于 2024-2-22 11:54
+
+20F挂了就没打去云了主播通关，总之4就在对话里出现可还行
+

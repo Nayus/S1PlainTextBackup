@@ -152,3 +152,16 @@ b站简介已官方剧透
 
 —— 来自 Xiaomi Redmi K30 5G, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  duo_wolf  
+##### 1803#       发表于 2024-2-23 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041902&amp;ptid=2104492" target="_blank">王九的哥哥 发表于 2024-2-23 12:11</a>
+
+我是说剧透的……</blockquote>
+剧透那人微博ID就叫“头像是老实人”
+
+这剧情，挺子供向的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -285,3 +285,11 @@ choco原设的欧若拉好色
 
 高难拖到退场是会给玩家上buff，但是buff只给在场人员就很难搞，准备灭马老师的核弹吃不到buff，早上场又苟不住
 
+
+*****
+
+####  khxooo  
+##### 11424#       发表于 2024-2-23 16:33
+
+摩呆梅22回合搞掂，没有强解这队伍就是舒服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

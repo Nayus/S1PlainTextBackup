@@ -9230,3 +9230,16 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 我机炮用多了以后，磁轨炮的击中反馈有点摸不着头脑，分辨不出我是马枪了没打中还是打中了没打死·· ...</blockquote>
 就是一代的特性，不可阻挡直接穿透，这代可以蓄力加伤害
 
+
+*****
+
+####  xinfengj  
+##### 941#       发表于 2024-2-23 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64042400&amp;ptid=2170852" target="_blank">Sayuki1025 发表于 2024-2-23 12:55</a>
+
+在怪堆里疯狂走位跑路偷输出确实爽啊 肾上腺素拉满 泰坦吐酸把坦克虫喷死了 
+
+这个非主机磁轨炮确实 ...</blockquote>
+非主机位可能卡出五倍伤害，磁轨正常打要十枪左右
+

@@ -277,3 +277,11 @@ choco原设的欧若拉好色
 
 德雷克池丢了10呼符，一张常驻五星礼装其他无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 11423#       发表于 2024-2-23 16:23
+
+高难拖到退场是会给玩家上buff，但是buff只给在场人员就很难搞，准备灭马老师的核弹吃不到buff，早上场又苟不住
+

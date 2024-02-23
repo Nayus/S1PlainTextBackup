@@ -549,3 +549,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 难道还能用之前预告里背着的飞龙桥大剑<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stair楼梯  
+##### 718#       发表于 2024-2-24 01:13
+
+看到有些流派的演示被泄露了，好像流派确实会改变平a的动作模组，不知道之后有没有演示
+

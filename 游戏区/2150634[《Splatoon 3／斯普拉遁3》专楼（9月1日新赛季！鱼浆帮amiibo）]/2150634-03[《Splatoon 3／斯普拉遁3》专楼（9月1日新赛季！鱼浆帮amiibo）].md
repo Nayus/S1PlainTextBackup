@@ -2969,3 +2969,14 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 需要一个刷珍珠的最优解，开高风险高收益太累了</blockquote>
 同色系晶片越多加分越多，现在的话应该是北斋叠速度晶片刷珍珠最快
 
+
+*****
+
+####  D麦林  
+##### 3310#       发表于 2024-2-24 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64049124&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-2-24 00:20</a>
+同色系晶片越多加分越多，现在的话应该是北斋叠速度晶片刷珍珠最快</blockquote>
+速度系有啥转输出的芯片吗感觉到高层会清不动怪啊
+我看到是用加特林刷无人机同色芯片的
+

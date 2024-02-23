@@ -2618,3 +2618,33 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 另外最终BOSS被揍出PTSD了啊哈哈</blockquote>
 有个无限徽章好像没拿？
 
+
+*****
+
+####  hagiwara  
+##### 3277#       发表于 2024-2-23 14:54
+
+首通用的小绿冰壶镭射，求生欲拉满，4命boss房前浪了两条，结果进去一命通关
+
+有空刷下中加通关吧，道中有些阴间关卡有点腻
+
+*****
+
+####  幽香  
+##### 3278#       发表于 2024-2-23 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64043592&amp;ptid=2150634" target="_blank">Xerxes_2 发表于 2024-2-23 14:39</a>
+
+有个无限徽章好像没拿？</blockquote>
+怎么拿？应该要先刷出珍珠把骇解调低再用小八小绿通关吗？
+
+*****
+
+####  Xerxes_2  
+##### 3279#       发表于 2024-2-23 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64043848&amp;ptid=2150634" target="_blank">幽香 发表于 2024-2-23 14:59</a>
+
+怎么拿？应该要先刷出珍珠把骇解调低再用小八小绿通关吗？</blockquote>
+无骇解（高风险高收益除外）用小八通关
+

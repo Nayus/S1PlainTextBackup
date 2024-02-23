@@ -9201,3 +9201,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 感谢补充，我拼了下放到主楼了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RockingHorse  
+##### 938#       发表于 2024-2-23 14:56
+
+我机炮用多了以后，磁轨炮的击中反馈有点摸不着头脑，分辨不出我是马枪了没打中还是打中了没打死··
+

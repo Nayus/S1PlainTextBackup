@@ -9004,3 +9004,11 @@ Arrowhead Game工作室首席执行官Johan Pilestedt最近证实，他们的热
 
 这机器人救人也太构式了，刷怪频率太有问题
 
+
+*****
+
+####  smdzh2  
+##### 918#       发表于 2024-2-23 08:51
+
+这游戏没救了，撤离飞船上不去、结算闪退、进房间卡在飞船跳跃画面，俺寻思这些蜜汁bug总不能都赖服务器容量不够吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

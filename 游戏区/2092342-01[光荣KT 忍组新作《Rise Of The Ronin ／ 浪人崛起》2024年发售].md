@@ -477,3 +477,14 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 说实话...要还是卧龙那水平的话...挺不好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ouyang菌  
+##### 711#       发表于 2024-2-23 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041821&amp;ptid=2092342" target="_blank">霖岚_ 发表于 2024-2-23 12:02</a>
+
+为啥忍组这么执着于加入NPC羁绊这类东西……我卧龙从头到尾都没带过NPC，结果翻奖杯列表才发现还有个羁绊奖 ...</blockquote>
+看泄露的战斗篇预告，这次战斗中是可以随时无缝切人的，估计是既然都做了套多人战斗系统那正好需要npc羁绊这些东西来补足剧情上的需要了
+

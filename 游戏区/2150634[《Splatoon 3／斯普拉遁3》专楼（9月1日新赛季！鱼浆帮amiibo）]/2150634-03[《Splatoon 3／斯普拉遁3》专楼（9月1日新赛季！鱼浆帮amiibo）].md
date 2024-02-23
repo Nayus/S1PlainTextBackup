@@ -2678,3 +2678,18 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 无骇解（高风险高收益除外）用小八通关</blockquote>
 小开一点也行，我开了2级减伤和满级加攻，也拿到了徽章
 
+
+*****
+
+####  DeltaStriker  
+##### 3283#       发表于 2024-2-23 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64044041&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-23 15:13</a>
+用中加轻松刷新各种记录，用绿双和小绿就打得就很烦。是我用不惯小枪？还是因为这破肉鸽纯靠DPS？
+
+—— 来 ...</blockquote>
+小绿通是没问题的 我无人机+主武器过的
+绿双我感觉是真的不行 体感初始状态射程耗墨乱数感觉都大削
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

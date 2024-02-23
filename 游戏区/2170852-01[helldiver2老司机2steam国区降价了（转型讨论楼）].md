@@ -9070,3 +9070,12 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 今天峰值人数好像降下来了，是15分钟踢人的功劳吗？</blockquote>
 数字又开始往上跑了，但是这个十五分钟踢人我感觉本质就是瑞典佬一时半会搞不定，找机会踹点人出去，美国佬本身就有一定的挂机党，换国内厂商这热度肯定三班倒了
 
+
+*****
+
+####  绯想天の天子  
+##### 925#       发表于 2024-2-23 11:23
+
+好消息加服务器了，坏消息才加到70w
+<img src="https://p.sda1.dev/15/32b54bdda4a9dca36f6eb7459aa4148b/IMG_CMP_76998287.png" referrerpolicy="no-referrer">
+

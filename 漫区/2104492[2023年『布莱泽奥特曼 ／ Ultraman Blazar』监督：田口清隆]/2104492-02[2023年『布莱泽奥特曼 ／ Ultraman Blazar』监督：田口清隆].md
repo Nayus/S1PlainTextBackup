@@ -78,3 +78,29 @@
 
 舞台挨拶时队长先出来摆变身pose结果第一次忘了开开关没点亮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星火龙  
+##### 1796#       发表于 2024-2-23 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64034764&amp;ptid=2104492" target="_blank">猫兔同笼 发表于 2024-2-22 18:34</a>
+
+国内直接上流媒体
+
+新华创历史地位最高的一天</blockquote>
+我记得罗布剧场版也是差不多的时间
+
+*****
+
+####  星火龙  
+##### 1797#       发表于 2024-2-23 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64034683&amp;ptid=2104492" target="_blank">Piano-Forest 发表于 2024-2-22 18:25</a>
+
+《布莱泽奥特曼 大电影 大怪兽东京决战》中、日双语配音版将于2月24日07:00上线，敬请期待！
+
+播出时间：20 ...</blockquote>
+《布莱泽奥特曼 大电影 大怪兽东京决战》 60sPV
+[https://b23.tv/ep815616](https://b23.tv/ep815616)
+

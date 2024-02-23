@@ -157,3 +157,14 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">之前没注意过，试用j2k的时候第一次发现，日漫的跨页都是偶数页在前奇数页在后吗 只会 2+3，4+5 不会 1+2？
 
+
+*****
+
+####  索道  
+##### 177#       发表于 2024-2-23 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64037488&amp;ptid=2167901" target="_blank">御坂MKII 发表于 2024-2-22 23:09</a>
+
+之前没注意过，试用j2k的时候第一次发现，日漫的跨页都是偶数页在前奇数页在后吗 只会 2+3，4+5 不 ...</blockquote>
+也不光日漫，正规图书的页码都是这样的，因为1和2或者说（2n-1）和（2n）是同一页纸的正反面
+

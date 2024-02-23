@@ -9012,3 +9012,20 @@ Arrowhead Game工作室首席执行官Johan Pilestedt最近证实，他们的热
 
 这游戏没救了，撤离飞船上不去、结算闪退、进房间卡在飞船跳跃画面，俺寻思这些蜜汁bug总不能都赖服务器容量不够吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 919#       发表于 2024-2-23 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油们，我找到图鉴了
+[https://www.playstation.com/zh-hans-hk/games/helldivers-2/](https://www.playstation.com/zh-hans-hk/games/helldivers-2/)
+
+
+*****
+
+####  runningch  
+##### 920#       发表于 2024-2-23 10:53
+
+今天峰值人数好像降下来了，是15分钟踢人的功劳吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

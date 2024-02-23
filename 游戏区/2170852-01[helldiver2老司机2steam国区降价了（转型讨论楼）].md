@@ -9126,3 +9126,17 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 931#       发表于 2024-2-23 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041862&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-2-23 12:07</a>
+
+扩容之前服务器容量是多少来着
+
+—— 来自 S1Fun</blockquote>
+36-&gt;50-&gt;70
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抠抠索索
+

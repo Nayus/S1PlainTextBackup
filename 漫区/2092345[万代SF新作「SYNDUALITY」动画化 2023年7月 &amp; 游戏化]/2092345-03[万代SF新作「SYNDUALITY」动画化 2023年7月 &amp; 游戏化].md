@@ -1906,3 +1906,35 @@ QQ图片20240223215321.png
 
 <img src="https://img.saraba1st.com/forum/202402/23/215327fq3lpn9c2nv3u29q.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 4002#       发表于 2024-2-23 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64038869&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-2-23 02:30</a>
+
+Weisheit Blaurecht
+
+Licht Alter
+
+Macht Ewigkeit</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202402/23/234346t6bibgecqbeg6zi8.jpg" referrerpolicy="no-referrer">
+
+<strong>[Nekomoe kissaten][SYNDUALITY Noir][10][720p][JPSC].mp4_20240223_234107.393.jpg</strong> (112.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 23:43 上传
+
+<img src="https://img.saraba1st.com/forum/202402/23/234346kzs0y0frszz62sef.jpg" referrerpolicy="no-referrer">
+
+<strong>[Nekomoe kissaten][SYNDUALITY Noir][10][720p][JPSC].mp4_20240223_234131.021.jpg</strong> (82.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 23:43 上传
+
+滤镜误导了发色, 但这和黑假面还是有点差别啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">  只能说故意误导观众把他看成Kanata了
+

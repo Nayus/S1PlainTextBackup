@@ -9521,3 +9521,15 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 —— 来自 S1Fun</blockquote>
 懂了是保卫完成8个星球是吧
 
+
+*****
+
+####  风萧飒  
+##### 970#       发表于 2024-2-23 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64048539&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-2-23 23:07</a>
+懂了是保卫完成8个星球是吧</blockquote>
+是的，这任务也不用管他，反正这游戏不怎么缺钱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

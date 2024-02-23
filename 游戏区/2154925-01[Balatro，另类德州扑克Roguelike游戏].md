@@ -1728,3 +1728,19 @@ flush five的星球牌是不是要另外解锁啊 商店都没见到过</blockqu
 
 我的黑色卡组终于转起来了，好 tmd 爽，不依赖任何牌型已经 9 张小丑了
 
+
+*****
+
+####  lilod  
+##### 158#       发表于 2024-2-23 23:36
+
+<img src="https://img.saraba1st.com/forum/202402/23/233553vaoxdbtd8bdxbbbo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (278.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 23:35 上传
+
+这局 most played 牌型就是 单牌 高张
+

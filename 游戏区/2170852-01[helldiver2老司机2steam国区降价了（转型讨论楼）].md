@@ -9219,3 +9219,14 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Launce  
+##### 940#       发表于 2024-2-23 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64043819&amp;ptid=2170852" target="_blank">RockingHorse 发表于 2024-2-23 14:56</a>
+
+我机炮用多了以后，磁轨炮的击中反馈有点摸不着头脑，分辨不出我是马枪了没打中还是打中了没打死·· ...</blockquote>
+就是一代的特性，不可阻挡直接穿透，这代可以蓄力加伤害
+

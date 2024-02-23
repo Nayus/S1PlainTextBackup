@@ -1712,3 +1712,19 @@ flush five的星球牌是不是要另外解锁啊 商店都没见到过</blockqu
 这还真不是，同花以外很多东西都可以玩，毕竟同花才 X4</blockquote>
 凑完同花过渡以后还可以接着往同花顺/同花四五条/同花葫芦的方向发展嘛
 
+
+*****
+
+####  lilod  
+##### 157#       发表于 2024-2-23 23:29
+
+<img src="https://img.saraba1st.com/forum/202402/23/232919up70j779zjnx40hq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (230.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 23:29 上传
+
+我的黑色卡组终于转起来了，好 tmd 爽，不依赖任何牌型已经 9 张小丑了
+

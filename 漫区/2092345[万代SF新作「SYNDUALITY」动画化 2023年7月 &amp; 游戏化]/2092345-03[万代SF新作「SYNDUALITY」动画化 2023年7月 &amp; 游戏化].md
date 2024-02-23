@@ -1793,3 +1793,116 @@ Macht Ewigkeit</blockquote>
 说起来op里有老女人年轻的样子，但动画里全是老太婆，不知道是不是伏笔。 ...</blockquote>
 op里那个不是希尔吗
 
+
+*****
+
+####  aptx8285144  
+##### 4001#       发表于 2024-2-23 23:31
+
+<img src="https://img.saraba1st.com/forum/202402/23/214754ybggziaoon94q3nl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223214425.png</strong> (32.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 21:47 上传
+
+开始看奶茶屋的18，威思这角色对贤士已经厌恶到这个程度了
+
+<img src="https://img.saraba1st.com/forum/202402/23/215133ktfu2ulns3yadyqp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223215126.png</strong> (68.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 21:51 上传
+
+三个男人都是被阿尔美亚制造出来的
+
+<img src="https://img.saraba1st.com/forum/202402/23/215336qdnwaq0ad8fjicwq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223215321.png</strong> (45.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 21:53 上传
+
+当年还有个复兴派，不过时雄后来受够了而逃出来
+
+<img src="https://img.saraba1st.com/forum/202402/23/215852t9xh8jh8g4gg0t4h.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223215845.png</strong> (57.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 21:58 上传
+
+修涅对歌姬的提醒在奶茶屋翻译这里<strong>更加直接了</strong>，其实她对彼方似乎也没有恶感
+
+<img src="https://img.saraba1st.com/forum/202402/23/220930czmaw1a8n1abiz8w.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223220925.png</strong> (40.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 22:09 上传
+
+牵挂，不过吗有时候或许翻译为 羁绊
+
+<img src="https://img.saraba1st.com/forum/202402/23/221042hjjlzwr6luppkkja.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223221034.png</strong> (56.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 22:10 上传
+
+这里连在一起很顺畅的翻译
+
+<img src="https://img.saraba1st.com/forum/202402/23/224916gq0kx0x7kky0ukz4.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223224907.png</strong> (46.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 22:49 上传
+
+如此悲伤，这里翻译更顺畅
+
+<img src="https://img.saraba1st.com/forum/202402/23/225039wm59mxku7bbm9m9v.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223225030.png</strong> (27.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 22:50 上传
+
+现在想想彼方这里<strong>也挺厉害的</strong>，明明手无寸铁且只是嘴炮，差点被子弹打中了脸部，<strong>却神色丝毫未变</strong><img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/23/230036h1z9uceac5v5988m.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223230022.png</strong> (82.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202402/23/231615tkxmmhsd6hiamkpz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240223231601.png</strong> (80.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 23:16 上传
+
+按照奶茶屋的翻译，大哥认为已经了解海斯特的目的
+
+QQ图片20240223215321.png
+(45.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 21:53 上传
+
+<img src="https://img.saraba1st.com/forum/202402/23/215327fq3lpn9c2nv3u29q.png" referrerpolicy="no-referrer">
+

@@ -573,3 +573,26 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 官网的招式展示突出一个量大管饱
 
+
+*****
+
+####  BadYanL  
+##### 721#       发表于 2024-2-24 02:14
+
+<img src="https://img.saraba1st.com/forum/202402/24/021357rdddmfl2wwfd0lwz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>image0.jpeg</strong> (97.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 02:13 上传
+
+可以4人合作
+
+*****
+
+####  医生狼多  
+##### 722#       发表于 2024-2-24 02:16
+
+《浪人崛起》有在线合作模式，允许玩家邀请最多三名玩家一起执行主线任务 ​​。有三种不同的难度可选，支持角色创建（脸部、身体、头发、声音等）。 ​​​
+

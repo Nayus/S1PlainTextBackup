@@ -9475,3 +9475,26 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Launce  
+##### 966#       发表于 2024-2-23 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64047958&amp;ptid=2170852" target="_blank">狂风DKC 发表于 2024-2-23 21:56</a>
+
+刚下游戏，请问服务器爆满请稍后再试   咋办</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退款，现在快速匹配也炸了
+
+*****
+
+####  Launce  
+##### 967#       发表于 2024-2-23 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64048107&amp;ptid=2170852" target="_blank">novyMS 发表于 2024-2-23 22:15</a>
+
+无法重生又是什么新型bug
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+一直有，服务器越炸越容易出现这情况
+

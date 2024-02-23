@@ -1654,3 +1654,40 @@ flush five的星球牌是不是要另外解锁啊 商店都没见到过</blockqu
 
 黑色牌组好难
 
+
+*****
+
+####  lilod  
+##### 152#       发表于 2024-2-23 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64047936&amp;ptid=2154925" target="_blank">stygian 发表于 2024-2-23 21:52</a>
+
+同花以外的卡组支持不够，即便你运气好凑足了核心鬼牌也经常是没有乘法系数，到后面一样要死
+
+无尽的指数成 ...</blockquote>
+这还真不是，同花以外很多东西都可以玩，毕竟同花才 X4 
+
+*****
+
+####  nma  
+##### 153#       发表于 2024-2-23 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64047037&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-23 20:19</a>
+
+应该是时点问题，给牌附加特效（XX牌when scored）类的小丑会先发动，然后才是普通的加算/乘算小丑。 ...</blockquote>
+放最右的uncommon joker each give 1.5x也是先于左边的按价格+mult，如此又不知道万一+mult是uncommon是怎么算了
+
+
+*****
+
+####  stygian  
+##### 154#       发表于 2024-2-23 22:21
+
+ 本帖最后由 stygian 于 2024-2-23 22:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64048120&amp;ptid=2154925" target="_blank">lilod 发表于 2024-2-23 22:16</a>
+
+这还真不是，同花以外很多东西都可以玩，毕竟同花才 X4</blockquote>
+当然可以玩，但是同花毕竟好凑啊，相对而言好度过前期还不太吃特定鬼牌
+
+而且比如我之前玩过一套，四张就能出同花/顺子+顺子可以跳着出的两张鬼牌，直接开始玩同花顺，但是直接吃掉你两张鬼牌位，到后期没刷出乘法的话一样要死
+

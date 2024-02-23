@@ -2897,3 +2897,23 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 挺好
 
+
+*****
+
+####  Junakr  
+##### 3302#       发表于 2024-2-23 23:50
+
+真希望可以自定义调色盘，啊不，launchpad，也能多点游戏性了。
+
+顺便下月 9 号鳗鲶区大润你楼还没有人转吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，奖励嘴纲模型。
+
+
+*****
+
+####  Dedalus  
+##### 3303#       发表于 2024-2-23 23:56
+
+还有一个不爽的点，全通后惯例的隐藏关没了，本来还指望三代能有堪比真三号一样的boss，结果打通发现啥也没有，英雄模式好歹还有5个关卡，dlc是钱骗到装都不装了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

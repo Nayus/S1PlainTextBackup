@@ -1744,3 +1744,11 @@ flush five的星球牌是不是要另外解锁啊 商店都没见到过</blockqu
 
 这局 most played 牌型就是 单牌 高张
 
+
+*****
+
+####  玩玩而已  
+##### 159#       发表于 2024-2-23 23:50
+
+英文全还回去了，但就算这样英文也比中文好懂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -1585,3 +1585,14 @@ flush five的星球牌是不是要另外解锁啊 商店都没见到过
 flush five的星球牌是不是要另外解锁啊 商店都没见到过</blockquote>
 每一局里面的five of a kind、flush house和flush five这三种星球牌都需要先打出来一次牌型才会出现
 
+
+*****
+
+####  就是剑鞘  
+##### 146#       发表于 2024-2-23 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64045841&amp;ptid=2154925" target="_blank">nma 发表于 2024-2-23 18:07</a>
+
+从左到右并不是绝对的啊，左边放个holographic这种异变效果，右边放个Baron每个K x1.5，结果还是先乘最后+1 ...</blockquote>
+应该是时点问题，给牌附加特效（XX牌when scored）类的小丑会先发动，然后才是普通的加算/乘算小丑。
+

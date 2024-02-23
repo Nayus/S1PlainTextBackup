@@ -1373,3 +1373,53 @@ joker牌全堆X系数的终于刷出科学计数法了，看来最后3个盲注�
 
 不过然后开了几把那个小丑牌组都是直接暴毙，起始出牌减一 小丑牌上限加一感觉太debuff了 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  damien  
+##### 128#       发表于 2024-2-23 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64040520&amp;ptid=2154925" target="_blank">猫出没注意 发表于 2024-2-23 10:21</a>
+
+“四指”这张牌中间缺了一张的顺子没法自动补完？感觉判定没有想象中宽松啊
+
+而且感觉这游戏有的boss随机出 ...</blockquote>
+另有一张joker牌是顺子可以隔一个数连起来，这个单纯指4张同花或者顺子
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 猫出没注意| + 1|原来如此|
+
+查看全部评分
+
+*****
+
+####  空集  
+##### 129#       发表于 2024-2-23 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64026977&amp;ptid=2154925" target="_blank">盐盐盐盐盐 发表于 2024-2-22 04:58</a>
+
+玩了好几局感觉只会改花色做flush然后刷牌型等级………没有x倍数牌的话只能死命苟
+
+难以想象玩别的牌型的咋 ...</blockquote>
+其实同花的基础倍率没啥优势，主要优点只是五张牌都能计分，还有就是初期好凑，我目前理解是能不太晚拿到所有打出牌都能计分的就没必要同花了。当然了因为花色牌给4倍率的小丑牌也很过度强势所以确实还是很可能玩同花就是了。
+
+
+*****
+
+####  空集  
+##### 130#       发表于 2024-2-23 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64030140&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-22 12:08</a>
+
+- 得发现一手牌不需要打五张，可以少打一些牌保留好牌
+
+- 得发现小丑牌的结算顺序是从左到右，从而把+倍率放 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 但是没必要出五牌的时候多出的牌可以相当于免费弃牌。只能说这游戏最优解思考难度挺大
+

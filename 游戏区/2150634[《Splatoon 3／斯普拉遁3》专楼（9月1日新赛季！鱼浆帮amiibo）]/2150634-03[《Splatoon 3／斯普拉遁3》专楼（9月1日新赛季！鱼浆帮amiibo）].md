@@ -2844,3 +2844,19 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  carroy  
+##### 3298#       发表于 2024-2-23 21:47
+
+从dlc里也能感受到ika研不会做平衡
+
+<img src="https://img.saraba1st.com/forum/202402/23/214749ywpo5f0cfva1cpvf.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1354.png</strong> (1.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 21:47 上传
+

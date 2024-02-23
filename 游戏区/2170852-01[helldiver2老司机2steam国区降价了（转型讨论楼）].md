@@ -9426,3 +9426,25 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 这个周常8场保卫战怎么完成？感觉打了十几把了一看才算完成了4场
 
+
+*****
+
+####  新庄運切  
+##### 961#       发表于 2024-2-23 21:44
+
+写错了，是解放8个星球，社区任务所有人一起打的，目前进度估计是完成不了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  风萧飒  
+##### 962#       发表于 2024-2-23 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64047840&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-2-23 21:40</a>
+这个周常8场保卫战怎么完成？感觉打了十几把了一看才算完成了4场</blockquote>
+这个是全服的任务
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

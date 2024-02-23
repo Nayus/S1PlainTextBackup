@@ -2393,3 +2393,11 @@ woc好肝啊
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  实津二三  
+##### 3257#       发表于 2024-2-23 07:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">从来没用过伞，秩序篇的伞到底怎么玩，感觉射程短攻击一般射速极慢，打起来好痛苦。
+

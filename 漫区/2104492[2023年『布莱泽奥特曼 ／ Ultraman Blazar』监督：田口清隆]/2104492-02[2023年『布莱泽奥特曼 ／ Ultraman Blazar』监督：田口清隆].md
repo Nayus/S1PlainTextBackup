@@ -68,3 +68,13 @@
 
 上面都没看过罗布和捷德的剧场版么，不都是同步上线的，且特利迦开始日本那边圆谷会员频道也都直接上了，只是这次终于给日语版了
 
+
+*****
+
+####  王九的哥哥  
+##### 1795#       发表于 2024-2-23 09:35
+
+看完了，还行，就是感觉相对这碟饺子而言这醋碟子数量有点大，摆了一桌子……挨个蘸过来有点儿齁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+舞台挨拶时队长先出来摆变身pose结果第一次忘了开开关没点亮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

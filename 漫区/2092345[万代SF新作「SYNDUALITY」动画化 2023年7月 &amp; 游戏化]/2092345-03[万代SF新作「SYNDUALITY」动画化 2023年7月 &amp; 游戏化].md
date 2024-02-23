@@ -1772,3 +1772,13 @@ Macht Ewigkeit</blockquote>
 修捏一遇到穆顿就吃瘪很乐</blockquote>
 面具男一遇到大哥更有喜剧感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，大哥也“挑逗”他好多次了，如果这剧有BL，那时雄和马哈特也许就有本子JPG
 
+
+*****
+
+####  星降る森  
+##### 3999#       发表于 2024-2-23 09:41
+
+<blockquote>oi99o 发表于 2024-2-21 21:55
+诺娃应该不是简单的“安全模式”，这里密斯缇说的是“（主人）竟然骗我说是安全模式”，别被机翻误导了[f:0 ...</blockquote>
+说起来op里有老女人年轻的样子，但动画里全是老太婆，不知道是不是伏笔。
+

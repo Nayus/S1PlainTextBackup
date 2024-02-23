@@ -9314,3 +9314,14 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202402/23/171406owe5zmwuuurwxzhr.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 949#       发表于 2024-2-23 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64045339&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-2-23 17:09</a>
+
+看星球地图，理想情况是光能回归+1个新种族</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">光能和中重甲种族合体回归是吧
+

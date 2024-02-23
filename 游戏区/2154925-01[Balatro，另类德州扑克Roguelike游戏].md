@@ -1517,3 +1517,13 @@ joker牌全堆X系数的终于刷出科学计数法了，看来最后3个盲注�
 
 最胡的一把 那张碎老头给乘倍率的传说卡也太刁了
 
+
+*****
+
+####  mjwells  
+##### 140#       发表于 2024-2-23 17:02
+
+一直不明白“双倍标签”是什么鬼意思，后来百度才知道 是双倍跳小怪的奖励<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+这鬼翻译 人都麻了
+

@@ -9253,3 +9253,30 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  smdzh2  
+##### 943#       发表于 2024-2-23 16:57
+
+机甲和庄稼切都有了，新敌人走魔幻路线？牢能，是你吗？
+
+
+*****
+
+####  Anhydrite  
+##### 944#       发表于 2024-2-23 17:02
+
+希望超级地球能搞点牢能和虫子结合的混合体呀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  jy000129  
+##### 945#       发表于 2024-2-23 17:05
+
+别想了，能正常把灵能族做出来不出大BUG就够可以了
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -9087,3 +9087,21 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 一直没搞懂怎么继续没做完的任务，可能因为任务失败、掉线各种原因，奖励最多的最后一关，跑去控制台就找不到了
 
+
+*****
+
+####  smdzh2  
+##### 927#       发表于 2024-2-23 11:35
+
+又闪退，超级气球不要我了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  WGTCorp  
+##### 928#       发表于 2024-2-23 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041381&amp;ptid=2170852" target="_blank">mdk11223344 发表于 2024-2-23 11:26</a>
+一直没搞懂怎么继续没做完的任务，可能因为任务失败、掉线各种原因，奖励最多的最后一关，跑去控制台就找不 ...</blockquote>
+任务失败就没了，但是闪退掉线这种情况任务应该不会消失啊。
+

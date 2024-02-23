@@ -104,3 +104,11 @@
 《布莱泽奥特曼 大电影 大怪兽东京决战》 60sPV
 [https://b23.tv/ep815616](https://b23.tv/ep815616)
 
+
+*****
+
+####  永恒的王牌  
+##### 1798#       发表于 2024-2-23 11:44
+
+WB那个剧情剧透也太？了，我选择不信<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

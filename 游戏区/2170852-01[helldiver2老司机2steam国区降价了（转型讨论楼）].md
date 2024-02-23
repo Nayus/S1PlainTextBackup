@@ -9364,3 +9364,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 一代光能一段时间不受伤就会回盾，所以经常带几个火墙克制。这代又不能带同种支援，搬1代设定的话想都不敢想。
 
+
+*****
+
+####  cloudcc  
+##### 954#       发表于 2024-2-23 18:34
+
+最近两天怎么连日常都没了
+

@@ -1189,3 +1189,13 @@ ll联动也得有游戏吧
 6th都不来，唱歌还是苍c最难听的，干脆叫你sc羊宫得了
 <img src="https://p.sda1.dev/15/0904ec0ad6f2ab8e9fd208592f955051/IMG_CMP_159210112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 1192#       发表于 2024-2-23 18:29
+
+人员齐整信号灯（）
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

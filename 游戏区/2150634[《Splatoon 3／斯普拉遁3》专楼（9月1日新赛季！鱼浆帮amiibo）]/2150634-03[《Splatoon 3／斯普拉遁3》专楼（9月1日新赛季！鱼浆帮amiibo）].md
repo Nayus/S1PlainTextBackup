@@ -2769,3 +2769,13 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 <img src="https://img.saraba1st.com/forum/202402/23/180307io76h5793x9703ks.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3291#       发表于 2024-2-23 19:15
+
+拿到银白中加后动力骤减，犹豫要不要继续全收集，还是回归日常PVP，有空再说<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

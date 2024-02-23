@@ -812,3 +812,13 @@ PS.啥时候才能在手游打到mujica的歌啊， ...</blockquote>
 
 2024-2-23 17:36 上传
 
+
+*****
+
+####  傘木希美  
+##### 13390#       发表于 2024-2-23 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

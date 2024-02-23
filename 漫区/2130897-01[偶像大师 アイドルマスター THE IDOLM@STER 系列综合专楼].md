@@ -1180,3 +1180,12 @@ ll联动也得有游戏吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">高山怎么找了一堆臭底边管人搞播sfp大逃杀还给第一送歌
 
+
+*****
+
+####  Alicest  
+##### 1191#       发表于 2024-2-23 18:07
+
+6th都不来，唱歌还是苍c最难听的，干脆叫你sc羊宫得了
+<img src="https://p.sda1.dev/15/0904ec0ad6f2ab8e9fd208592f955051/IMG_CMP_159210112.png" referrerpolicy="no-referrer">
+

@@ -2779,3 +2779,15 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 3292#       发表于 2024-2-23 19:25
+
+轻加涂脚能力加强蛮多的，可以试试只带0.1了
+
+https://youtu.be/8PkfiIhRmg8?si=wdUsRRo28rd5Ftr7
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -168,3 +168,11 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 之前没注意过，试用j2k的时候第一次发现，日漫的跨页都是偶数页在前奇数页在后吗 只会 2+3，4+5 不 ...</blockquote>
 也不光日漫，正规图书的页码都是这样的，因为1和2或者说（2n-1）和（2n）是同一页纸的正反面
 
+
+*****
+
+####  御坂MKII  
+##### 178#       发表于 2024-2-24 04:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">再问个可能很傻的问题，tachiyomi这些插件是不是没法把登录的账号收藏的漫画直接加到书架，b漫插件不进webview都看不到收藏
+

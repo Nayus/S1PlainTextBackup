@@ -9372,3 +9372,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 最近两天怎么连日常都没了
 
+
+*****
+
+####  ledo  
+##### 955#       发表于 2024-2-23 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">貌似没看到新主武器的样子,那么会开武器改造么,起码能把那几把渣渣改成能用呀
+

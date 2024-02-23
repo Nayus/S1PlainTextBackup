@@ -9533,3 +9533,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  WGTCorp  
+##### 971#       发表于 2024-2-24 00:14
+
+被难7机器人爆杀了，每局都把20条命用完了还不够，最后一把撤离科学家，死了一轮之后更是连疏散区那个基地都进不去了，坦克和大机器人实在太多了。
+

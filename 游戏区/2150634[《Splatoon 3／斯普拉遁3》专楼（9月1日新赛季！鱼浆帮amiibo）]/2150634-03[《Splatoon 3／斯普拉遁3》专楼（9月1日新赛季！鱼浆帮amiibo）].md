@@ -2941,3 +2941,21 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 打会金工再继续dlc
 
+
+*****
+
+####  炫夜鳞  
+##### 3307#       发表于 2024-2-24 00:12
+
+几个武器相关的芯片是要武器通关之后才解锁吗？就差这几个没遇到过了
+
+
+*****
+
+####  KBAC  
+##### 3308#       发表于 2024-2-24 00:15
+
+フルスロットル・テンタクル就是小姬饭田的盐辛节吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

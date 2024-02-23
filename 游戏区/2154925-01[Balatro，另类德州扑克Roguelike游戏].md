@@ -1574,3 +1574,14 @@ joker牌全堆X系数的终于刷出科学计数法了，看来最后3个盲注�
 
 flush five的星球牌是不是要另外解锁啊 商店都没见到过
 
+
+*****
+
+####  就是剑鞘  
+##### 145#       发表于 2024-2-23 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64046454&amp;ptid=2154925" target="_blank">盐盐盐盐盐 发表于 2024-2-23 19:16</a>
+
+flush five的星球牌是不是要另外解锁啊 商店都没见到过</blockquote>
+每一局里面的five of a kind、flush house和flush five这三种星球牌都需要先打出来一次牌型才会出现
+

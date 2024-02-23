@@ -176,3 +176,15 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">再问个可能很傻的问题，tachiyomi这些插件是不是没法把登录的账号收藏的漫画直接加到书架，b漫插件不进webview都看不到收藏
 
+
+*****
+
+####  拉鲁拉丝  
+##### 179#       发表于 2024-2-24 04:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64037488&amp;ptid=2167901" target="_blank">御坂MKII 发表于 2024-2-22 23:09</a>
+之前没注意过，试用j2k的时候第一次发现，日漫的跨页都是偶数页在前奇数页在后吗 只会 2+3，4+5 不 ...</blockquote>
+可以自己调整。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

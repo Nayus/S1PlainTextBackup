@@ -9243,3 +9243,13 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 这个非主机磁轨炮确实 ...</blockquote>
 非主机位可能卡出五倍伤害，磁轨正常打要十枪左右
 
+
+*****
+
+####  风萧飒  
+##### 942#       发表于 2024-2-23 16:50
+
+看到贴吧发了国外解包内容，就是不知道什么时候更新
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

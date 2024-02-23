@@ -9140,3 +9140,26 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 36-&gt;50-&gt;70
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抠抠索索
 
+
+*****
+
+####  ナルバレック  
+##### 932#       发表于 2024-2-23 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64042097&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-23 12:29</a>
+
+36-&gt;50-&gt;70
+
+抠抠索索</blockquote>
+今天工作室CEO好像还说不敢一下子大型扩招之类的话
+
+
+*****
+
+####  Sayuki1025  
+##### 933#       发表于 2024-2-23 12:55
+
+在怪堆里疯狂走位跑路偷输出确实爽啊 肾上腺素拉满<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 泰坦吐酸把坦克虫喷死了 
+
+这个非主机磁轨炮确实有bug吧 两枪干死泰坦 比坦克还好解决
+

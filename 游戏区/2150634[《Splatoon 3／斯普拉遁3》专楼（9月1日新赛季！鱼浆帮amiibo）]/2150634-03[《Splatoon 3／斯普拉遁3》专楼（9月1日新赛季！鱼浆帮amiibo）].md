@@ -2574,3 +2574,32 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 很多技能4级和5级差距挺大的，蓄力时间3级是71%，5级直接35％ ...</blockquote>
 升满5%狙直接枪枪满蓄，配合墨水性能类的有点爽，暂时和解1秒钟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 3274#         楼主| 发表于 2024-2-23 14:20
+
+听了下原声，发现生日歌居然是BOSS自己在唱，不是bgm，也是绝了
+
+*****
+
+####  幽香  
+##### 3275#       发表于 2024-2-23 14:25
+
+<img src="https://imgse.com/i/pFUPQg0" id="aimg_AT7rn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgse.com/i/pFUPlvV" id="aimg_H7u23" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgse.com/i/pFUPtUJ" id="aimg_yaoTv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgse.com/i/pFUPGbF" id="aimg_f6bBz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgse.com/i/pFUP3uT" id="aimg_umY4M" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgse.com/i/pFUPYE4" id="aimg_s2dP8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+应该没隐藏BOSS了吧，
+
+还差几个彩色插件没触发
+
+另外最终BOSS被揍出PTSD了啊哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://imgse.com/i/pFUPlvV" id="aimg_nnNZP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgse.com/i/pFUPQg0" id="aimg_lhf4i" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

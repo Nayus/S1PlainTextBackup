@@ -439,3 +439,18 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 哪怕是怪谈之类的也行
 
+
+*****
+
+####  黑修士  
+##### 708#       发表于 2024-2-23 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64042467&amp;ptid=2092342" target="_blank">woshenc 发表于 2024-2-23 13:02</a>
+
+我个人希望能在隐藏元素里放点超自然要素
+
+哪怕是怪谈之类的也行</blockquote>
+说不定还是有的，可以学对马岛DLC
+
+实在不行自己捏个古神当气氛组<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

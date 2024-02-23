@@ -9558,3 +9558,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 又出新bug，炸开集装箱的门有可能直接把战局爆破，导致房主和（部分）队友掉线，今天已经碰到两次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 974#       发表于 2024-2-24 01:23
+
+上线直接闪退，牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

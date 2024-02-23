@@ -9116,3 +9116,13 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 任务失败就没了，但是闪退掉线这种情况任务应该不会消失啊。</blockquote>
 就是重新进飞船，跑控制台一看，又要选区域了，不记得之前是哪个任务了
 
+
+*****
+
+####  风萧飒  
+##### 930#       发表于 2024-2-23 12:07
+
+扩容之前服务器容量是多少来着
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

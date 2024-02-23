@@ -2712,3 +2712,20 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 需要一个刷珍珠的最优解，开高风险高收益太累了
 
+
+*****
+
+####  幽香  
+##### 3286#       发表于 2024-2-23 17:44
+
+4号只是在拿到调色盘的时候提了一嘴，这次dlc的8号球比起2代来说太简单了，自带空气墙不会掉出去，离球框近了还会自动被吸进去。
+
+*****
+
+####  秋月孝三  
+##### 3287#       发表于 2024-2-23 17:45
+
+打完0hacking才发觉这不是最高难度。有空试试瞎hacking的6槽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

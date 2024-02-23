@@ -1746,3 +1746,18 @@ Blau 蓝色, Recht 法律
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aptx8285144  
+##### 3997#       发表于 2024-2-23 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64038869&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-2-23 02:30</a>
+
+Weisheit Blaurecht
+
+Licht Alter
+
+Macht Ewigkeit</blockquote>
+时雄原来的发型不如现在（
+

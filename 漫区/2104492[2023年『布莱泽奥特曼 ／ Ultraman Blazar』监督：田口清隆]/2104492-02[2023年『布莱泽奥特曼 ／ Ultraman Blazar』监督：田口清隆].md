@@ -142,3 +142,13 @@ WB那个剧情剧透也太？了，我选择不信</blockquote>
 头像是老实人</blockquote>
 我是说剧透的……
 
+
+*****
+
+####  逸yi  
+##### 1802#       发表于 2024-2-23 12:37
+
+b站简介已官方剧透
+
+—— 来自 Xiaomi Redmi K30 5G, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

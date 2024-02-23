@@ -2493,3 +2493,14 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 两个广场相当于多做四首祭典曲和配套舞台动作，两首新曲两首旧曲，旧曲也要重新编曲重新录制。这么想是不是可以觉得稍微值了一点点？
 
+
+*****
+
+####  KBAC  
+##### 3267#       发表于 2024-2-23 12:35
+
+终于能好好逛逛二代广场了，二代广场散步转弯的时候镜头有个很快的视角自动回正，每次都给我整得晕3D要吐，逛不了一点，三代就好很多。
+顺带一说二代广场武器店墙上挂了一把重刷，从外观上看是紫重刷or黑重刷，第二贴牌实装可能性up。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

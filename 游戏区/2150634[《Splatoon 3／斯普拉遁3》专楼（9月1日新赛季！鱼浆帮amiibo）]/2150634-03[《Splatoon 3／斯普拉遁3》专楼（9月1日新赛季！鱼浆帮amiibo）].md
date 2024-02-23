@@ -2562,3 +2562,15 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 全通关送章鱼射击枪，如果用小八调色盘通关且没有装高风险高收益以外的hack的话送一个徽章
 
+
+*****
+
+####  真空管  
+##### 3273#       发表于 2024-2-23 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64039530&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-2-23 08:54</a>
+商店应该是必定库存3个的，屯3000进去买
+
+很多技能4级和5级差距挺大的，蓄力时间3级是71%，5级直接35％ ...</blockquote>
+升满5%狙直接枪枪满蓄，配合墨水性能类的有点爽，暂时和解1秒钟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

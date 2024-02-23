@@ -1782,3 +1782,14 @@ Macht Ewigkeit</blockquote>
 诺娃应该不是简单的“安全模式”，这里密斯缇说的是“（主人）竟然骗我说是安全模式”，别被机翻误导了[f:0 ...</blockquote>
 说起来op里有老女人年轻的样子，但动画里全是老太婆，不知道是不是伏笔。
 
+
+*****
+
+####  RE㐅ia  
+##### 4000#       发表于 2024-2-23 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64040053&amp;ptid=2092345" target="_blank">星降る森 发表于 2024-2-23 09:41</a>
+
+说起来op里有老女人年轻的样子，但动画里全是老太婆，不知道是不是伏笔。 ...</blockquote>
+op里那个不是希尔吗
+

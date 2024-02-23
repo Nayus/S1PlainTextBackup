@@ -2504,3 +2504,19 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  carroy  
+##### 3268#       发表于 2024-2-23 13:39
+
+还想点出熊双build
+最后发现dps不够墨水也不够 狼狈的要死<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+凹了幸运流螃蟹双枪
+极难就是螃蟹连螃蟹
+爽了两层结束了 笑
+
+看楼上都打通了
+看来没有心中的四号了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

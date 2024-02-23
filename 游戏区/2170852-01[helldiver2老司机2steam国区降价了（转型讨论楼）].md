@@ -9541,3 +9541,20 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 被难7机器人爆杀了，每局都把20条命用完了还不够，最后一把撤离科学家，死了一轮之后更是连疏散区那个基地都进不去了，坦克和大机器人实在太多了。
 
+
+*****
+
+####  泉美  
+##### 972#       发表于 2024-2-24 00:33
+
+？今晚这匹配真被他修好了？
+几场下来都是秒匹，但这统计数据怎么还是关着的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FLZB  
+##### 973#       发表于 2024-2-24 00:45
+
+又出新bug，炸开集装箱的门有可能直接把战局爆破，导致房主和（部分）队友掉线，今天已经碰到两次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

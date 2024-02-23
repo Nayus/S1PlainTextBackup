@@ -9059,3 +9059,14 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 这游戏是不是优化不行啊，我3060的本子风扇不咋转，但帧率不太行，特别是和机器人打的时候，敌人一多就爆卡 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次补丁说优化，实际评价都在说帧数掉了5-10，前天那个补丁后会出现突然掉帧卡顿的情况
 
+
+*****
+
+####  ナルバレック  
+##### 924#       发表于 2024-2-23 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64040960&amp;ptid=2170852" target="_blank">runningch 发表于 2024-2-23 10:53</a>
+
+今天峰值人数好像降下来了，是15分钟踢人的功劳吗？</blockquote>
+数字又开始往上跑了，但是这个十五分钟踢人我感觉本质就是瑞典佬一时半会搞不定，找机会踹点人出去，美国佬本身就有一定的挂机党，换国内厂商这热度肯定三班倒了
+

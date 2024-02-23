@@ -384,3 +384,19 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 光荣跟fs资源差距挺大的
 
+
+*****
+
+####  黑修士  
+##### 703#       发表于 2024-2-23 11:09
+
+数了一下至少有十种武器类型（含空手）
+
+<img src="https://img.saraba1st.com/forum/202402/23/110920z9ja6z6xgjxzmj9k.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (212.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 11:09 上传
+

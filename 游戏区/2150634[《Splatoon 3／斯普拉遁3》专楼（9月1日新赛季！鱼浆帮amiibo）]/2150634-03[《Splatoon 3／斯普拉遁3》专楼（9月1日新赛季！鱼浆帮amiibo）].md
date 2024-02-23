@@ -2831,3 +2831,16 @@ https://youtu.be/8PkfiIhRmg8?si=wdUsRRo28rd5Ftr7
 
 再打一次30f还是没赢，加特林得蓄力，3阶段甚至找不到输出窗口，难度还挺高的
 
+
+*****
+
+####  DeltaStriker  
+##### 3297#       发表于 2024-2-23 21:41
+
+↓以下为个人主观情绪发泄
+ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+从3一开始说地图简化和匹配改动“服务新手” 再到pvp与pve的更新和平衡改动偷懒 时尚小垃圾倒是做不少 不少人指望挽回风评的DLC也是毛坯(说实话 一个本体是联网的游戏 要靠单机部分挽回 我也不太能理解) 我觉得ika研现在是既不知道自己该做什么 在现在扩展受众和以前路线上患得患失 更有可能怕是做好的能力都没有 虽然有部分楼友会说ika研一直就这样
+我还是觉得 游戏说到底还是拿来玩的 你整天惦记边角料功能扩展受众 非得教玩家怎么玩游戏 游戏本身没整好让人痛苦也是白搭
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

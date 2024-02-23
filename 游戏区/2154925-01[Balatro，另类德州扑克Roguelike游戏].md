@@ -1443,3 +1443,20 @@ joker牌全堆X系数的终于刷出科学计数法了，看来最后3个盲注�
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  fireflies  
+##### 133#       发表于 2024-2-23 12:01
+
+昨天打了把开局能出两张模板小丑的局，×5×5前期直接起飞了。后期靠紫腊封刷塔罗牌养吸血鬼小丑。带着模板小丑打上12轮
+
+20240223115829.jpg
+(502.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202402/23/120054urnjzwpr8ukckoak.jpg" referrerpolicy="no-referrer">
+

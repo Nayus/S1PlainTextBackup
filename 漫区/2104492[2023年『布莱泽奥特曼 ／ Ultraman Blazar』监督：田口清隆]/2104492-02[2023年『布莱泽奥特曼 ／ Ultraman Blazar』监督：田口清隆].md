@@ -122,3 +122,13 @@ WB那个剧情剧透也太？了，我选择不信<img src="https://static.sarab
 WB那个剧情剧透也太？了，我选择不信</blockquote>
 来个链接？
 
+
+*****
+
+####  永恒的王牌  
+##### 1800#       发表于 2024-2-23 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041728&amp;ptid=2104492" target="_blank">王九的哥哥 发表于 2024-2-23 11:55</a>
+来个链接？</blockquote>
+头像是老实人
+

@@ -9209,3 +9209,13 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 我机炮用多了以后，磁轨炮的击中反馈有点摸不着头脑，分辨不出我是马枪了没打中还是打中了没打死··
 
+
+*****
+
+####  runningch  
+##### 939#       发表于 2024-2-23 15:27
+
+磁轨炮的优势是射爆一切护甲的泛用性，比较适合这代栏位紧张的单兵作战。
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -2658,3 +2658,23 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  幽香  
+##### 3281#       发表于 2024-2-23 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64043869&amp;ptid=2150634" target="_blank">Xerxes_2 发表于 2024-2-23 14:59</a>
+无骇解（高风险高收益除外）用小八通关</blockquote>
+哦，不急了反正芯片还没刷齐
+
+*****
+
+####  事象变移机关  
+##### 3282#       发表于 2024-2-23 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64043869&amp;ptid=2150634" target="_blank">Xerxes_2 发表于 2024-2-23 14:59</a>
+
+无骇解（高风险高收益除外）用小八通关</blockquote>
+小开一点也行，我开了2级减伤和满级加攻，也拿到了徽章
+

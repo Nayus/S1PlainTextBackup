@@ -454,3 +454,18 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 实在不行自己捏个古神当气氛组<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  病態極端  
+##### 709#       发表于 2024-2-23 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041821&amp;ptid=2092342" target="_blank">霖岚_ 发表于 2024-2-23 12:02</a>
+
+为啥忍组这么执着于加入NPC羁绊这类东西……我卧龙从头到尾都没带过NPC，结果翻奖杯列表才发现还有个羁绊奖 ...</blockquote>
+降低難度啊。
+
+有不少玩家水平跟NPC差不多，一通無效操作把自己打空精。
+
+同行武將引仇恨，給玩家重整旗鼓的空間。
+

@@ -211,3 +211,29 @@ syl今天竟然有联动，如果电脑没搞好那岂不是联动直播就黄�
 
 现在按照这个尿性看，不是新歌发表而是联动咖啡厅时隔3年再开的可能性非常大了，今年在线下活动上还有什么大动作确实很期待了
 
+
+*****
+
+####  holoan  
+##### 8212#         楼主| 发表于 2024-2-23 09:56
+
+<img src="https://img.saraba1st.com/forum/202402/23/095433mgi2001u4igrng01.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (116.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 09:54 上传
+
+不错不错确实比去年有考虑，去年周边一次性卖光就不再补货了，今年还能第二天就补上，要不有的人开店4小时前就来等的不是很遗憾
+
+<img src="https://img.saraba1st.com/forum/202402/23/095621hfiqqm7ws7zriws7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 09:56 上传
+
+关键是4小时前竟然还有人已经在等了，有点可怕了
+

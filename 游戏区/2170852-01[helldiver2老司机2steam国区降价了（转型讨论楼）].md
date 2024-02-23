@@ -9280,3 +9280,37 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kalavinka  
+##### 946#         楼主| 发表于 2024-2-23 17:09
+
+看星球地图，理想情况是光能回归+1个新种族<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 947#       发表于 2024-2-23 17:10
+
+一代就不喜欢打光能，虫子和生化人血肉乱飞爽多了。不过这代生化人机械飞升肉变少了，感觉爽感变少了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kalavinka  
+##### 948#         楼主| 发表于 2024-2-23 17:14
+
+挂哥调出来的资源图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+024f78f0f736afc3ab7cea5cf519ebc4b7451293-2.jpg
+(57.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202402/23/171406owe5zmwuuurwxzhr.jpg" referrerpolicy="no-referrer">
+

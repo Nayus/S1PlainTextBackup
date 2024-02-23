@@ -182,3 +182,13 @@ b站简介已官方剧透
 
 <img src="https://img.saraba1st.com/forum/202402/23/133323ieehhx06h0vrk30y.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 1805#       发表于 2024-2-24 07:35
+
+一起床b站就有剧场版看了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

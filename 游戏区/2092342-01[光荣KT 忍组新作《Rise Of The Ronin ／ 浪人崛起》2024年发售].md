@@ -346,3 +346,12 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 卧龙是圈弹反浪人是三角弹反<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  海豹墨鱼卷  
+##### 699#       发表于 2024-2-23 08:00
+
+官号零时工放出了一部分开发人员介绍游戏的短片，信息不多但有几帧的ui和战斗画面。
+类似卧龙队友羁绊等级给道具和技能，战斗能切人打技能再切回去。
+

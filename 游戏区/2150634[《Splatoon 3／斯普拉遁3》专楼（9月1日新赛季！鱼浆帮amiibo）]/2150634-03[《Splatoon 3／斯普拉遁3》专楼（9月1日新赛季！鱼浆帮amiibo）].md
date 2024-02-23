@@ -2729,3 +2729,24 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 3288#       发表于 2024-2-23 17:59
+
+提升难度最简单的方法是全程禁止使用无人机<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绿冰  
+##### 3289#         楼主| 发表于 2024-2-23 18:01
+
+<blockquote>罗克萨斯 发表于 2024-2-23 17:59
+提升难度最简单的方法是全程禁止使用无人机
+
+—— 来自 S1Fun</blockquote>
+0骇客的情况下无人机其实挺没用的，1个大招槽，要有点实用几乎得升满，不然也就三角雷勉强能指望
+

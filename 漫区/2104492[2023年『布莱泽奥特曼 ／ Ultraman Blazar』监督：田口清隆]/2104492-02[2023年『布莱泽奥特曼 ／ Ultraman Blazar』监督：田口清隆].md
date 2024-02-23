@@ -112,3 +112,13 @@
 
 WB那个剧情剧透也太？了，我选择不信<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 1799#       发表于 2024-2-23 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041595&amp;ptid=2104492" target="_blank">永恒的王牌 发表于 2024-2-23 11:44</a>
+WB那个剧情剧透也太？了，我选择不信</blockquote>
+来个链接？
+

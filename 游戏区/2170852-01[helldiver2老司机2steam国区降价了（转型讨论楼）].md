@@ -9105,3 +9105,14 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 一直没搞懂怎么继续没做完的任务，可能因为任务失败、掉线各种原因，奖励最多的最后一关，跑去控制台就找不 ...</blockquote>
 任务失败就没了，但是闪退掉线这种情况任务应该不会消失啊。
 
+
+*****
+
+####  mdk11223344  
+##### 929#       发表于 2024-2-23 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041551&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-2-23 11:40</a>
+
+任务失败就没了，但是闪退掉线这种情况任务应该不会消失啊。</blockquote>
+就是重新进飞船，跑控制台一看，又要选区域了，不记得之前是哪个任务了
+

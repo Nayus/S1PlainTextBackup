@@ -2959,3 +2959,13 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 3309#       发表于 2024-2-24 00:20
+
+<blockquote>Xerxes_2 发表于 2024-2-23 17:11
+需要一个刷珍珠的最优解，开高风险高收益太累了</blockquote>
+同色系晶片越多加分越多，现在的话应该是北斋叠速度晶片刷珍珠最快
+

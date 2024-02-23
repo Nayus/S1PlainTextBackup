@@ -2750,3 +2750,22 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 —— 来自 S1Fun</blockquote>
 0骇客的情况下无人机其实挺没用的，1个大招槽，要有点实用几乎得升满，不然也就三角雷勉强能指望
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 3290#       发表于 2024-2-23 18:20
+
+中加应该是最简单的一类了吧，远程武器真的难度骤减
+
+不过拿到外边用，不是晶莹墨水还是少了些许味道<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+捕获.PNG
+(918.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202402/23/180307io76h5793x9703ks.png" referrerpolicy="no-referrer">
+

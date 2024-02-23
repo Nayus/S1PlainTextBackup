@@ -1691,3 +1691,24 @@ flush five的星球牌是不是要另外解锁啊 商店都没见到过</blockqu
 
 而且比如我之前玩过一套，四张就能出同花/顺子+顺子可以跳着出的两张鬼牌，直接开始玩同花顺，但是直接吃掉你两张鬼牌位，到后期没刷出乘法的话一样要死
 
+
+*****
+
+####  就是剑鞘  
+##### 155#       发表于 2024-2-23 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64048140&amp;ptid=2154925" target="_blank">nma 发表于 2024-2-23 22:18</a>
+
+放最右的uncommon joker each give 1.5x也是先于左边的按价格+mult，如此又不知道万一+mult是uncommon是 ...</blockquote>
+感觉棒球卡应该是最先发动，提前给每一张罕见卡附一个x1.5倍率，然后剩余的卡再从左到右依次结算。
+
+*****
+
+####  就是剑鞘  
+##### 156#       发表于 2024-2-23 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64048120&amp;ptid=2154925" target="_blank">lilod 发表于 2024-2-23 22:16</a>
+
+这还真不是，同花以外很多东西都可以玩，毕竟同花才 X4</blockquote>
+凑完同花过渡以后还可以接着往同花顺/同花四五条/同花葫芦的方向发展嘛
+

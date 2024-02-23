@@ -2791,3 +2791,11 @@ https://youtu.be/8PkfiIhRmg8?si=wdUsRRo28rd5Ftr7
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Tachikoma88  
+##### 3293#       发表于 2024-2-23 19:47
+
+我觉得epd5是任天堂本部组里最需扩张或者拆分的组了，本部里好像只有epd5是负责两个千万级销量并需要持续更新两年的游戏，而无论是新动森还是喷3都有被老玩家吐槽内容比前作少的，可是动森的单机内容占比喷高，销量也是爆炸，组内肯定是对动森新作更重视的，说不定新机1年内就会掏出来新作呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -2860,3 +2860,19 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 2024-2-23 21:47 上传
 
+
+*****
+
+####  罗克萨斯  
+##### 3299#       发表于 2024-2-23 22:10
+
+ 本帖最后由 罗克萨斯 于 2024-2-23 22:12 编辑 
+
+被4K和RPG打爆的一晚<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+小绿和贴牌重伞轮番开RPG太难顶了，直接被打开，一点对策都没<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+下赛季还有能变大鱿鱼的4K，要怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

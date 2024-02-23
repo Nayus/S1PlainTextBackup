@@ -9456,3 +9456,22 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 964#       发表于 2024-2-23 22:15
+
+肯定完成不了，那个越南小溪星的进度简直惨。
+
+其实刷难9守卫战，带16个迫击炮是最有效率的。
+
+*****
+
+####  novyMS  
+##### 965#       发表于 2024-2-23 22:15
+
+无法重生又是什么新型bug
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1207,3 +1207,14 @@ ll联动也得有游戏吧
 
 有体调什么不良能提前2个月
 
+
+*****
+
+####  王九的哥哥  
+##### 1194#       发表于 2024-2-23 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64046599&amp;ptid=2130897" target="_blank">三度音 发表于 2024-2-23 19:31</a>
+
+有体调什么不良能提前2个月</blockquote>
+因为要排练吧……
+

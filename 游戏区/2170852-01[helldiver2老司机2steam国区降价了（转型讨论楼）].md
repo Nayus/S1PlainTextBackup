@@ -9188,3 +9188,16 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 又匹配了一把 这次感觉磁轨炮毫无伤害
 
+
+*****
+
+####  kalavinka  
+##### 937#         楼主| 发表于 2024-2-23 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64040852&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-23 10:45</a>
+
+漏油们，我找到图鉴了
+
+https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
+感谢补充，我拼了下放到主楼了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

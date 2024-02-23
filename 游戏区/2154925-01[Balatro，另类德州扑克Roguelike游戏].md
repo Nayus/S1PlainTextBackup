@@ -1501,3 +1501,19 @@ joker牌全堆X系数的终于刷出科学计数法了，看来最后3个盲注�
 
 这游戏是gpt本地化的吗，翻译错误不少
 
+
+*****
+
+####  MiteOra  
+##### 139#       发表于 2024-2-23 14:41
+
+<img src="https://img.saraba1st.com/forum/202402/23/144110uc02mdz1l1brlldu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 14:41 上传
+
+最胡的一把 那张碎老头给乘倍率的传说卡也太刁了
+

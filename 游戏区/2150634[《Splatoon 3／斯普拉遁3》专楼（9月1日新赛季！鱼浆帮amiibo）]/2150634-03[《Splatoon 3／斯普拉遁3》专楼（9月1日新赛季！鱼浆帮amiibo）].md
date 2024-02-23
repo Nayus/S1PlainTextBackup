@@ -2603,3 +2603,18 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 <img src="https://imgse.com/i/pFUPlvV" id="aimg_nnNZP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://imgse.com/i/pFUPQg0" id="aimg_lhf4i" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  Xerxes_2  
+##### 3276#       发表于 2024-2-23 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64043418&amp;ptid=2150634" target="_blank">幽香 发表于 2024-2-23 14:25</a>
+
+应该没隐藏BOSS了吧，
+
+还差几个彩色插件没触发
+
+另外最终BOSS被揍出PTSD了啊哈哈</blockquote>
+有个无限徽章好像没拿？
+

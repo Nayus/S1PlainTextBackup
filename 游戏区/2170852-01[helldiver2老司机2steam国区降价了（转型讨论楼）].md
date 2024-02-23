@@ -9029,3 +9029,33 @@ Arrowhead Game工作室首席执行官Johan Pilestedt最近证实，他们的热
 
 今天峰值人数好像降下来了，是15分钟踢人的功劳吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CswStar  
+##### 921#       发表于 2024-2-23 11:03
+
+这游戏是不是优化不行啊，我3060的本子风扇不咋转，但帧率不太行，特别是和机器人打的时候，敌人一多就爆卡
+
+*****
+
+####  琦乐无穷  
+##### 922#       发表于 2024-2-23 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64040852&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-23 10:45</a>
+
+漏油们，我找到图鉴了
+
+https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
+这代不把图鉴放进游戏，还藏的那么深，确实是脑袋中箭了。
+
+*****
+
+####  Launce  
+##### 923#       发表于 2024-2-23 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64041068&amp;ptid=2170852" target="_blank">CswStar 发表于 2024-2-23 11:03</a>
+
+这游戏是不是优化不行啊，我3060的本子风扇不咋转，但帧率不太行，特别是和机器人打的时候，敌人一多就爆卡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次补丁说优化，实际评价都在说帧数掉了5-10，前天那个补丁后会出现突然掉帧卡顿的情况
+

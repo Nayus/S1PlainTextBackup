@@ -1752,3 +1752,12 @@ flush five的星球牌是不是要另外解锁啊 商店都没见到过</blockqu
 
 英文全还回去了，但就算这样英文也比中文好懂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 160#       发表于 2024-2-24 00:06
+
+在过去的72小时里，balatro在全平台售出了250000份游戏。
+steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注，1.9%的人击败了黑注，11.5%的人击败了红注，60.8%的人通关了。
+

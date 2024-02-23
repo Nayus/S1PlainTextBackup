@@ -2917,3 +2917,27 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Dedalus  
+##### 3304#       发表于 2024-2-24 00:00
+
+这dlc出了后不知道研究所还会不会追加更新，我觉得至少追加一个无限模式吧，30层实在太少，每次刚开始爽就结束了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Junakr  
+##### 3305#       发表于 2024-2-24 00:01
+
+异界卡农要是能作为加强版英雄模式隐藏茶壶最后一关还能打打，现在是什么脆皮，我放个声纳都能炸死两个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  墨染白泉  
+##### 3306#       发表于 2024-2-24 00:03
+
+打会金工再继续dlc
+

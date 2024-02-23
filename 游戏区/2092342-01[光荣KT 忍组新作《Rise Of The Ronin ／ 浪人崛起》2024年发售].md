@@ -519,3 +519,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 [https://youtu.be/kgdjrXQEgHA](https://youtu.be/kgdjrXQEgHA)
 [https://blog.ja.playstation.com/2024/02/24/20240224-ronin/](https://blog.ja.playstation.com/2024/02/24/20240224-ronin/)
 
+
+*****
+
+####  医生狼多  
+##### 715#       发表于 2024-2-24 00:06
+
+索尼的密集宣传终于要开始了吗，发售前再来个sop？
+

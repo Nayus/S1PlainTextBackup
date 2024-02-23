@@ -509,3 +509,13 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 目前来看至少在开放世界方面，表现力和玩法比358要强不少</blockquote>
 358何德何能去和这游戏比，另外忍者组和无双组两个八杆子打不着的工作室，我一直奇怪为什么会有人用358来预判浪人的地图设计水平
 
+
+*****
+
+####  Piano-Forest  
+##### 714#         楼主| 发表于 2024-2-23 23:19
+
+幕后第二弹“战斗篇”：
+[https://youtu.be/kgdjrXQEgHA](https://youtu.be/kgdjrXQEgHA)
+[https://blog.ja.playstation.com/2024/02/24/20240224-ronin/](https://blog.ja.playstation.com/2024/02/24/20240224-ronin/)
+

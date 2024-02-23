@@ -454,3 +454,15 @@ bug吧，但是我打的时候是正常打完的，不清楚你是触发了什�
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  liyropen  
+##### 4047#       发表于 2024-2-23 23:15
+
+进度到关底前了，清理其他的成就，我最想扣分的就是这职业获取了。
+就没一个增加职业获取概率的饰品，而且还能重复获取同个职业的，什么时候能全职业齐活真就撞大运。
+说个好笑的，我主要玩法就是玩魔杖的，但是都只在别人的截图里见过魔女职业<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">。感觉今天躺床上有四分之一是被气咳的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

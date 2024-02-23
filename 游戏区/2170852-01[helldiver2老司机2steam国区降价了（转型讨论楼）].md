@@ -9079,3 +9079,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 好消息加服务器了，坏消息才加到70w
 <img src="https://p.sda1.dev/15/32b54bdda4a9dca36f6eb7459aa4148b/IMG_CMP_76998287.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mdk11223344  
+##### 926#       发表于 2024-2-23 11:26
+
+一直没搞懂怎么继续没做完的任务，可能因为任务失败、掉线各种原因，奖励最多的最后一关，跑去控制台就找不到了
+

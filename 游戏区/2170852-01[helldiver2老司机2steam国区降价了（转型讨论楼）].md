@@ -9508,3 +9508,16 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 箭头的阴谋
 
+
+*****
+
+####  リュウセイ  
+##### 969#       发表于 2024-2-23 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64047928&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-2-23 21:50</a>
+
+这个是全服的任务
+
+—— 来自 S1Fun</blockquote>
+懂了是保卫完成8个星球是吧
+

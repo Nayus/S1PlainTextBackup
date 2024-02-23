@@ -469,3 +469,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 同行武將引仇恨，給玩家重整旗鼓的空間。
 
+
+*****
+
+####  waelaZed  
+##### 710#       发表于 2024-2-23 19:32
+
+说实话...要还是卧龙那水平的话...挺不好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

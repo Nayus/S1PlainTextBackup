@@ -2693,3 +2693,14 @@ DLC困扰你的唯一因素只有DPS不足，因为这一因素，极难可以�
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  幽香  
+##### 3284#       发表于 2024-2-23 16:45
+
+<img src="https://i2.100024.xyz/2024/02/23/r5wzeb.webp" referrerpolicy="no-referrer">
+<img src="https://i2.100024.xyz/2024/02/23/r5x0do.webp" referrerpolicy="no-referrer">
+
+拿到无限徽章了，好惊险一次过了，用方块档骷髅鱼群那图简单都危险的要死，差点被挤爆。。。
+

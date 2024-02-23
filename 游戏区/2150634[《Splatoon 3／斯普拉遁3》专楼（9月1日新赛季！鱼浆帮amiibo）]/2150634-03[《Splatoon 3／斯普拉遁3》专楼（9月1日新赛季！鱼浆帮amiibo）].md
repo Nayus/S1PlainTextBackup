@@ -2876,3 +2876,14 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yoyokirby  
+##### 3300#       发表于 2024-2-23 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64038026&amp;ptid=2150634" target="_blank">yoyokirby 发表于 2024-2-23 00:08</a>
+
+啥玩意啊，东西也太少了吧，就这么嗯排列组合？野上恒做出这种游戏是怎么通过任地狱审批的？ ...</blockquote>
+今天再打，通了，感觉好一些。前面几个小时有点坐牢了，感觉可以再优化一点挫败感低一些。总体评价可以修回及格。
+

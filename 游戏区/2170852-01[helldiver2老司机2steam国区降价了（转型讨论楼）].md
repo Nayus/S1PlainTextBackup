@@ -9498,3 +9498,13 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 一直有，服务器越炸越容易出现这情况
 
+
+*****
+
+####  BadYanL  
+##### 968#       发表于 2024-2-23 22:32
+
+试了一把虫族，匹配不到，转去打机器人，秒匹。
+
+箭头的阴谋
+

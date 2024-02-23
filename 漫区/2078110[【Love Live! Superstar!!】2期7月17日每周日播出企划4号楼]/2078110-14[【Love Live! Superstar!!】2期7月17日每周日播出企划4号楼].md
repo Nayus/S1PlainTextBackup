@@ -388,3 +388,11 @@ emo在自己的活动上也唱了自己写的原创曲
 
 我已经笑累了
 
+
+*****
+
+####  csolfans  
+##### 19676#       发表于 2024-2-23 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来也是非洲人呢
+

@@ -9325,3 +9325,26 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 看星球地图，理想情况是光能回归+1个新种族</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">光能和中重甲种族合体回归是吧
 
+
+*****
+
+####  FLZB  
+##### 950#       发表于 2024-2-23 17:27
+
+星图看起来起码还能加两个种族，只希望这作别整光能，走位坐牢杀起来也不够爽
+
+*****
+
+####  Launce  
+##### 951#       发表于 2024-2-23 17:29
+
+<img src="https://img.saraba1st.com/forum/202402/23/172837rn3xqf1l77w0cno8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 17:28 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢能BOSS设计图（确信
+

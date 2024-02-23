@@ -2823,3 +2823,11 @@ https://youtu.be/8PkfiIhRmg8?si=wdUsRRo28rd5Ftr7
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绿冰  
+##### 3296#         楼主| 发表于 2024-2-23 21:13
+
+再打一次30f还是没赢，加特林得蓄力，3阶段甚至找不到输出窗口，难度还挺高的
+

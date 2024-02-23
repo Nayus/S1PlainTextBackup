@@ -9448,3 +9448,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  狂风DKC  
+##### 963#       发表于 2024-2-23 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

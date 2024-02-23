@@ -9380,3 +9380,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">貌似没看到新主武器的样子,那么会开武器改造么,起码能把那几把渣渣改成能用呀
 
+
+*****
+
+####  smdzh2  
+##### 956#       发表于 2024-2-23 18:48
+
+别的无所谓，解放者能加回刺刀吗
+

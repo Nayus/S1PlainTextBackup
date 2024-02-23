@@ -178,3 +178,19 @@ duck是不是撞新秀墙了
 
 沟槽的hltv野榜！
 
+
+*****
+
+####  Rainwedell  
+##### 4005#       发表于 2024-2-23 21:19
+
+今年应该没有比a队更小丑的战队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，花大价钱坑点子哥，拆x队，组4top。本意是保证丹麦第一和哥本哈根major资格，结果换完被重组x队当彩笔揍两把，诸葛揍一把，家乡major也进不去。从没见过哪个年轻当家top像蛇鼠一样直接开送的，一点即战力没有
+
+
+*****
+
+####  櫻井智代  
+##### 4006#       发表于 2024-2-23 21:22
+
+提前学中文了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

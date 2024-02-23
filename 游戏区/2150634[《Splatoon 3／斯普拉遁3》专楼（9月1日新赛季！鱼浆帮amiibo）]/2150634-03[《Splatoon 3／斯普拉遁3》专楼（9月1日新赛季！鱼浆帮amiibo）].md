@@ -2988,3 +2988,46 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 咸鱼玩家冲到200快乐下工！
 
+
+*****
+
+####  墨染白泉  
+##### 3312#       发表于 2024-2-24 02:07
+
+<blockquote>D麦林 发表于 2024-2-24 00:32
+速度系有啥转输出的芯片吗感觉到高层会清不动怪啊
+
+我看到是用加特林刷无人机同色芯片的 ...</blockquote>
+有突进伤害加强的芯片，推着刷子走和大锤都有伤害加成
+
+
+*****
+
+####  墨染白泉  
+##### 3313#       发表于 2024-2-24 02:10
+
+<img src="https://img.saraba1st.com/forum/202402/24/021052wtxfttk8mebh87xb.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1708711816132.jpg</strong> (241.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-24 02:10 上传
+
+<img src="https://img.saraba1st.com/forum/202402/24/021057kxgee9kb8dyzmhrz.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1708711818439.jpg</strong> (236.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-24 02:10 上传
+
+*****
+
+####  墨染白泉  
+##### 3314#       发表于 2024-2-24 02:12
+
+之前朋友还没把倍率调高就刷了这么多
+

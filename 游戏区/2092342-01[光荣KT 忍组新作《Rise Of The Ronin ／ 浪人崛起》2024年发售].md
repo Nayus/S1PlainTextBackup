@@ -371,3 +371,16 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 黑的场景还是黑<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jbjack1215  
+##### 702#       发表于 2024-2-23 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64040379&amp;ptid=2092342" target="_blank">这是马甲 发表于 2024-2-23 10:09</a>
+
+黑的场景还是黑</blockquote>
+感觉技术美术还是不行，忍组的进步有限
+
+光荣跟fs资源差距挺大的
+

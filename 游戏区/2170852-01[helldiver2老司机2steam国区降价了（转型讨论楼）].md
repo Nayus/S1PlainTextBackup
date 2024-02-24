@@ -9631,3 +9631,16 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 今天是防爆轻甲，第一轮不懂得珍惜，现在终于凑齐了，试了下脸接飞弹半血，无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jago2051  
+##### 981#       发表于 2024-2-24 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64056850&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-2-24 23:08</a>
+
+今天是防爆轻甲，第一轮不懂得珍惜，现在终于凑齐了，试了下脸接飞弹半血，无敌 ...</blockquote>
+谢谢提醒，赶紧去买了一个，真香。
+
+不过为啥轻甲卖250，重甲卖400？防御值是不是还没实装？
+

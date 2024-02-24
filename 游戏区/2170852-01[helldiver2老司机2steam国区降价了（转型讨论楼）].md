@@ -9605,3 +9605,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，第一见到这种BUG，操控面板断电了
 
+
+*****
+
+####  LrGsite  
+##### 978#       发表于 2024-2-24 21:24
+
+机器人的运兵船可以用EAT或者无后座力筒子打引擎一发射下来....电磁炮还没试
+

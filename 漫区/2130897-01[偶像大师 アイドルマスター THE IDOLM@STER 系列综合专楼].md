@@ -2387,3 +2387,20 @@ ratata编曲确实牛逼
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1318#       发表于 2024-2-24 20:27
+
+<img src="https://p.sda1.dev/15/d2061f00c6eaa324384e35b88e315279/Image_1708777507087.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  声优  
+##### 1319#       发表于 2024-2-24 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">  百百 COME BACK了嘛
+

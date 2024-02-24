@@ -664,3 +664,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  手铐君  
+##### 730#       发表于 2024-2-25 00:05
+
+这游戏ip是在光荣手上还是索尼手上啊..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

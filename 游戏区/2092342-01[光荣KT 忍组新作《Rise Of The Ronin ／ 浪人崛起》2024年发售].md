@@ -650,3 +650,17 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 似乎并没有公布大地图的细节，这个开放世界是一张图包含所有主城及近郊和各种地貌的大开放世界呢，还是一个 ...</blockquote>
 分区域的 几个城呢 放一张图上不现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  旧梦囚心  
+##### 729#       发表于 2024-2-24 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64052903&amp;ptid=2092342" target="_blank">冷泉夜月 发表于 2024-2-24 15:04</a>
+肯定不可能是一整张大地图，有江户和京都，这俩之间几百公里路，多半就是巫师3那种吧
+
+  -- 来自 能 ...</blockquote>
+路程距离在游戏里可以等比缩小的，像刺客信条不就做了整个埃及和希腊吗，但是忍组这种小作坊可能不会花这种精力做大地图填充物就是了。不过做成巫师3这种也还能够勉为其难的接受就是，最受不了的是做成龙腾世纪审判这种副本式开放地图。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

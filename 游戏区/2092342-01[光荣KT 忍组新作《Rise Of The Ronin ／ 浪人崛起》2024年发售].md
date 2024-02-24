@@ -604,3 +604,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 【【浪人崛起】Playstation Blog招式系统看图说话-哔哩哔哩】 https://b23.tv/hFOwUvU b站有人翻了系统详解和几个流派介绍，逐渐和忍组和解
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 724#       发表于 2024-2-24 14:10
+
+感觉就是加量版的仁王三了 希望早点上pc
+

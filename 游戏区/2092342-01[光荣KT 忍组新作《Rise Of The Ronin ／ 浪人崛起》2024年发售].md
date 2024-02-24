@@ -620,3 +620,33 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 现在看卧龙算是边角料都不能算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  旧梦囚心  
+##### 726#       发表于 2024-2-24 14:55
+
+似乎并没有公布大地图的细节，这个开放世界是一张图包含所有主城及近郊和各种地貌的大开放世界呢，还是一个区域一个开放地图的这种开放世界？后一者其实我不太喜欢。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  冷泉夜月  
+##### 727#       发表于 2024-2-24 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64052858&amp;ptid=2092342" target="_blank">旧梦囚心 发表于 2024-02-24 14:55:52</a>
+似乎并没有公布大地图的细节，这个开放世界是一张图包含所有主城及近郊和各种地貌的大开放世界呢，还是一个 ...</blockquote>肯定不可能是一整张大地图，有江户和京都，这俩之间几百公里路，多半就是巫师3那种吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ff2077  
+##### 728#       发表于 2024-2-24 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64052858&amp;ptid=2092342" target="_blank">旧梦囚心 发表于 2024-2-24 14:55</a>
+似乎并没有公布大地图的细节，这个开放世界是一张图包含所有主城及近郊和各种地貌的大开放世界呢，还是一个 ...</blockquote>
+分区域的 几个城呢 放一张图上不现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

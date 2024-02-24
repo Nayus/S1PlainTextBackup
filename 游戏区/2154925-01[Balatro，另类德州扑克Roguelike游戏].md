@@ -2144,3 +2144,23 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 没有4张同花和跨点顺子的joke都不会玩了
 
+
+*****
+
+####  stygian  
+##### 191#       发表于 2024-2-25 01:50
+
+ 本帖最后由 stygian 于 2024-2-25 01:52 编辑 
+
+<img src="https://img.saraba1st.com/forum/202402/25/014424bxgkml23j5rflutk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 01:44 上传
+
+终于打掉金注了，用的红黑桃各26张牌的套牌
+
+这把运气属实好，开局摸到全部出牌都视为人头牌和人头牌1/2给钱，中间还拿了张卖掉顶次boss技能，财务解放之后陆续拿到人头变金，卡组至少16增强牌给3倍率，吸血鬼和星座，钱全部拿来疯狂开星球包然后就是一路同花平推<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+

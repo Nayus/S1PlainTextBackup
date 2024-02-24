@@ -1870,3 +1870,14 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  leyenda  
+##### 167#       发表于 2024-2-24 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64049247&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-24 00:41</a>
+
+炉石传说没有完爆！</blockquote>
+真当稀有度白写的
+

@@ -2412,3 +2412,11 @@ ratata编曲确实牛逼
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Kraz的单手遮脸meme，这么多年终于有人接班了
 
+
+*****
+
+####  黛冬优子  
+##### 1321#       发表于 2024-2-25 00:36
+
+明天直接宣布动画第二季，然后接全员新曲
+

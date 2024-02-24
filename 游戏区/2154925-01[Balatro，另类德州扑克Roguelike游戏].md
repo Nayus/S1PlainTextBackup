@@ -2120,3 +2120,11 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 下午刚开始摸，打到现在游戏时间七个多小时了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">用黑牌三四次一直没打通，跑去红蓝黄都是两次内过原来不是我的问题（
 
+
+*****
+
+####  KevinGraham  
+##### 188#       发表于 2024-2-25 00:31
+
+中午买了然后就打了一天<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

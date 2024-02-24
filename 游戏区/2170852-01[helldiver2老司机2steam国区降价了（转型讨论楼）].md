@@ -9644,3 +9644,16 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 不过为啥轻甲卖250，重甲卖400？防御值是不是还没实装？
 
+
+*****
+
+####  FLZB  
+##### 982#       发表于 2024-2-25 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64057150&amp;ptid=2170852" target="_blank">jago2051 发表于 2024-2-24 23:42</a>
+
+谢谢提醒，赶紧去买了一个，真香。
+
+不过为啥轻甲卖250，重甲卖400？防御值是不是还没实装？ ...</blockquote>
+重甲应该是调过价的，记得第一轮是150还是多少来着。护甲还没修复，这套特色是重甲+额外垫料，修复后估计是套梆硬的甲。
+

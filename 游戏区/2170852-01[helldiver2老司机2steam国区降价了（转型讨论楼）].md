@@ -9566,3 +9566,26 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 上线直接闪退，牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 975#       发表于 2024-2-24 12:47
+
+<img src="https://img.saraba1st.com/forum/202402/24/124735g1ylo7chox5vzt96.png" referrerpolicy="no-referrer">
+
+<strong>E8D[X}{CG){(632II[Z%B%O_tmb.png</strong> (22.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 12:47 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌了啊，箭脑袋
+
+*****
+
+####  BadYanL  
+##### 976#       发表于 2024-2-24 12:48
+
+服务器和匹配算是修好了，现在最大问题是每日没了。
+

@@ -3272,3 +3272,20 @@ dlc这套内容我个人觉得喷4会融合到本体里，玩法底子还是好�
 
 DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关没让爽。
 
+
+*****
+
+####  wantong  
+##### 3339#       发表于 2024-2-24 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64053525&amp;ptid=2150634" target="_blank">幽灵部长助理 发表于 2024-2-24 16:47</a>
+
+打了两天DLC我感觉明白了，水平越菜的人越能体会到DLC的乐趣，因为芯片和珍珠强化对于我这种双枪都打了八遍 ...</blockquote>
+是。我也是菜，觉得还挺好玩的。
+
+十几张地图，大部分刷出来的是最普通的地图，看得多了都会背了。
+
+偶尔能遇到有趣的特殊图，像满地是蹦床的房间，许多滑索的房间，但是出率太低了，许久才遇到一次。
+
+要是有更多地图就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

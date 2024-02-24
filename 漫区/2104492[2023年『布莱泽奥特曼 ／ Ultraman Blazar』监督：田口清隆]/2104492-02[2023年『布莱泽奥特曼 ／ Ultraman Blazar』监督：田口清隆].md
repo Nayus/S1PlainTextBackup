@@ -272,3 +272,16 @@ b站简介已官方剧透
 </blockquote>
 很遗憾那是个翻译问题，那熊孩子就是因为接触了怪兽被隔离治疗，爹才是倒霉了引咎辞职
 
+
+*****
+
+####  Case  
+##### 1814#       发表于 2024-2-24 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64054825&amp;ptid=2104492" target="_blank">angelooo 发表于 2024-2-24 19:31</a>
+
+很遗憾那是个翻译问题，那熊孩子就是因为接触了怪兽被隔离治疗，爹才是倒霉了引咎辞职 ...</blockquote>
+啊……可惜了。
+
+毕竟主要受众还是孩子。不好真的把孩子怎么着。
+

@@ -2420,3 +2420,13 @@ ratata编曲确实牛逼
 
 明天直接宣布动画第二季，然后接全员新曲
 
+
+*****
+
+####  rgauss  
+##### 1322#       发表于 2024-2-25 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64057564&amp;ptid=2130897" target="_blank">黛冬优子 发表于 2024-2-25 00:36</a>
+明天直接宣布动画第二季，然后接全员新曲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议jungo来一首dreaming
+

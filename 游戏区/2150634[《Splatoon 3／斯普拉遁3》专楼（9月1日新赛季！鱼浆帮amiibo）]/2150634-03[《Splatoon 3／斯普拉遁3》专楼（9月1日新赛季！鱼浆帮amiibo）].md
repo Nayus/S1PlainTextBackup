@@ -3327,3 +3327,21 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 3344#         楼主| 发表于 2024-2-25 01:14
+
+<img src="https://img.saraba1st.com/forum/202402/25/011234fdzrv2vebrunaxie.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-24-22-05-11-37_ddeaecd32494ea01189cfb481b91c95b.jpg</strong> (227.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 01:12 上传
+
+0骇解通了，最终BOSS容错率还是挺低了，重打了好几次
+
+骇解了打了两次分别死27F和30F，果然是简单多了233
+

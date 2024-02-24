@@ -2430,3 +2430,11 @@ ratata编曲确实牛逼
 明天直接宣布动画第二季，然后接全员新曲</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议jungo来一首dreaming
 
+
+*****
+
+####  一杯淡定红茶  
+##### 1323#       发表于 2024-2-25 06:05
+
+这次来好多中国人，场子外到处都是中文对话
+

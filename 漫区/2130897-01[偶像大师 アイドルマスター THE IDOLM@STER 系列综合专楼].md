@@ -2240,3 +2240,51 @@ good sign？
 
 能出第二季动画片吗，别逼我求你
 
+
+*****
+
+####  Seeley  
+##### 1302#       发表于 2024-2-24 19:56
+
+剧场隔音不是很理想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Vacuolar  
+##### 1303#       发表于 2024-2-24 19:58
+
+小的结束喽
+
+*****
+
+####  acacaclove  
+##### 1304#       发表于 2024-2-24 19:59
+
+我最喜欢的crossing
+
+*****
+
+####  Seeley  
+##### 1305#       发表于 2024-2-24 19:59
+
+crossing
+那明天安可是什么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 1306#       发表于 2024-2-24 20:00
+
+真就crossing
+
+*****
+
+####  Vacuolar  
+##### 1307#       发表于 2024-2-24 20:00
+
+crossing的前奏确实牛逼，副歌要是更易听就真的成了
+

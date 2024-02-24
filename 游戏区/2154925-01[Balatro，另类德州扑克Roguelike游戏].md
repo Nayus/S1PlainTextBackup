@@ -1793,3 +1793,29 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 金注打下来感觉最关键的问题在于中期开始拆包贵的吓人，拆星球包又不能稳定出你想要的牌，打的是真的举步维艰
 
+
+*****
+
+####  稲穂信  
+##### 164#       发表于 2024-2-24 10:10
+
+用了几次幻灵牌里的占卜牌配合着塔罗里的力量、死神、倒吊人和愚者把手里的点数大规模统一成一大半都是K和9，然后疯狂加强葫芦和4条，结果……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/24/100848n14acc9y2m9na49h.png" referrerpolicy="no-referrer">
+
+<strong>001.png</strong> (211.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 10:08 上传
+
+<img src="https://img.saraba1st.com/forum/202402/24/100848x7e6pp6pbzps7ml1.png" referrerpolicy="no-referrer">
+
+<strong>002.png</strong> (22.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 10:08 上传
+
+但是明显我只用过两次占卜牌，怎么也想不通为啥进阶着进阶着就只有2张手牌了啊，有什么设定我看漏了吗
+

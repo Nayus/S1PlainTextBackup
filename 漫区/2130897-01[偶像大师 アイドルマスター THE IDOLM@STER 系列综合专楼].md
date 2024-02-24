@@ -1230,3 +1230,29 @@ ll联动也得有游戏吧
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  kria  
+##### 1196#       发表于 2024-2-24 09:31
+
+ 本帖最后由 kria 于 2024-2-24 09:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64045850&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-2-23 18:07</a>
+
+6th都不来，唱歌还是苍c最难听的，干脆叫你sc羊宫得了</blockquote>
+他有动画工作壓力大
+
+想叫她回来很简单带她和小松未可子一起去迪士尼玩会开心
+
+*****
+
+####  kria  
+##### 1197#       发表于 2024-2-24 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64048283&amp;ptid=2130897" target="_blank">江口夕 发表于 2024-2-23 22:34</a>
+
+其他也停了，说是医生建议的，应该没什么假的吧。而且只是看情况提前告知，没说一定不来。
+
+—— 来自 Xiao ...</blockquote>
+高生不是一年搞Live 欠席正常,另一个关根瞳已有两人组合歌手唱动漫主题歌
+

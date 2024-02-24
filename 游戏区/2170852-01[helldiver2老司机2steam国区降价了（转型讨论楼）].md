@@ -9623,3 +9623,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  FLZB  
+##### 980#       发表于 2024-2-24 23:08
+
+今天是防爆轻甲，第一轮不懂得珍惜，现在终于凑齐了，试了下脸接飞弹半血，无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

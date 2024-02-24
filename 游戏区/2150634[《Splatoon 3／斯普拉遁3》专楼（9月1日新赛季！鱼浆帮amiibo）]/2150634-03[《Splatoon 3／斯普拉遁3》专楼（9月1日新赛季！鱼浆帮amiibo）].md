@@ -3158,3 +3158,13 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 问问有没有国人玩家的占地斗士频道？感觉下赛季的打牌新地图挺有趣的
 
+
+*****
+
+####  罗克萨斯  
+##### 3328#       发表于 2024-2-24 15:42
+
+贴牌鹦鹉螺砸地要210P，研究所傻逼吧，又不是啥T0大招，更别说涂地效率还不如审查者<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2008,3 +2008,14 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 第一次过关了，存款+倍率的小丑，屯几百块，高牌直接秒boss，可惜后面成长跟不上了
 
+
+*****
+
+####  カタカナジゴク  
+##### 178#       发表于 2024-2-24 15:34
+
+烂分奶奶牌，四指＋捷径，随便怎么出都是同花顺，妈妈再也不怕我手滑啦
+这个组合也是最能利用A2358加成的牌，不然这张卡实在带不动<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

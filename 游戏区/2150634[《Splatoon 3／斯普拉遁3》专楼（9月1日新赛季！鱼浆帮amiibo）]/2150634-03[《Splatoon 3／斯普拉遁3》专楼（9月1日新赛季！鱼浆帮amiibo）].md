@@ -3074,3 +3074,19 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 还得把每个晶片肝满
 
+
+*****
+
+####  蓝色的眷念  
+##### 3319#       发表于 2024-2-24 10:41
+
+<img src="https://p.sda1.dev/15/1c7a460f006e428275eab758e308d816/CMP_20240224104015283.jpg" referrerpolicy="no-referrer">
+
+折磨终于结束了，感谢金工
+
+<img src="https://p.sda1.dev/15/ee61b54d8577d4b7a2d8f25dee5b1db3/CMP_20240224104015307.png" referrerpolicy="no-referrer">
+
+就差船了
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

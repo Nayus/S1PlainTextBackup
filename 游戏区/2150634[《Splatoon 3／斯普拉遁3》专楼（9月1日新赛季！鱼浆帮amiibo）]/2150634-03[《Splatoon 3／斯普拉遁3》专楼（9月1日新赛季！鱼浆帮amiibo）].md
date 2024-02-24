@@ -3210,3 +3210,13 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 4代我是不会预购的，我和某些漏油不同，我说到做到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 3332#       发表于 2024-2-24 17:39
+
+一定要说到做到啊，成年人唯一能做的就是用钱包投票
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

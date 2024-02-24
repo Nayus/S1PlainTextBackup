@@ -9657,3 +9657,13 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 不过为啥轻甲卖250，重甲卖400？防御值是不是还没实装？ ...</blockquote>
 重甲应该是调过价的，记得第一轮是150还是多少来着。护甲还没修复，这套特色是重甲+额外垫料，修复后估计是套梆硬的甲。
 
+
+*****
+
+####  LrGsite  
+##### 983#       发表于 2024-2-25 01:42
+
+<img src="https://img.chkaja.com/e54662b7e52a1199.gif" referrerpolicy="no-referrer">
+
+熟悉了打运兵船之后感觉效率直线上升，去防守战练了练，现在机器人我就空袭+磁轨+个人护盾+EAT，只要没能打掉发信号弹的杂鱼来了运兵船，我直接原地叫EAT打运兵船<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

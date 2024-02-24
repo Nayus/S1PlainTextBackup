@@ -3289,3 +3289,13 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 要是有更多地图就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 3340#       发表于 2024-2-24 20:44
+
+<blockquote>Kiriz 发表于 2024-2-24 19:21
+DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关没让爽。</blockquote>
+入口大厅可以回想
+

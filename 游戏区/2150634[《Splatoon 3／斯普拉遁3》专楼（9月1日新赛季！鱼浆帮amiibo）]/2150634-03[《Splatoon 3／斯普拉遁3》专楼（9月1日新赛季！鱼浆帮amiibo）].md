@@ -3345,3 +3345,11 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 骇解了打了两次分别死27F和30F，果然是简单多了233
 
+
+*****
+
+####  hisousihou  
+##### 3345#       发表于 2024-2-25 03:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不光100%追踪，高击飞也是坑啊，有些远程怪不及时打死就很危险，用桶去泼的话越泼越远，追都追不上
+

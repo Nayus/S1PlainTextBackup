@@ -3194,3 +3194,19 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  幽灵部长助理  
+##### 3331#       发表于 2024-2-24 16:47
+
+ 本帖最后由 幽灵部长助理 于 2024-2-24 03:48 编辑 
+
+打了两天DLC我感觉明白了，水平越菜的人越能体会到DLC的乐趣，因为芯片和珍珠强化对于我这种双枪都打了八遍才通关的菜比是有意义的，能感受到逐步变强这一肉鸽游戏的基本要素，楼里大家都是满级号了所以没感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但制作的敷衍还是藏不住的，5种模式十几张简陋的地图，别说2代DLC了，都不配给3代英雄模式提鞋，只有八号这个全世界最可爱的小章鱼维持着一点脸面，姬饭也没多少
+
+很唏嘘，这是一个做了两代结果不知道自己游戏哪里好玩的故事，在这个篇章告一段落之际，我衷心地希望4代能好起来，当然这离不开严查野上恒<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+4代我是不会预购的，我和某些漏油不同，我说到做到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

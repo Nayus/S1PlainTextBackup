@@ -3244,3 +3244,11 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 出喷4的话我还是会买，这套玩法确实独一无二还很对我胃口，喷批最后的底线只有研究所美术音乐全拉时我才会退坑吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 3336#       发表于 2024-2-24 18:49
+
+dlc这套内容我个人觉得喷4会融合到本体里，玩法底子还是好的，不过也就剩一个底子<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，能加入的东西很多，多到够研究所搞个持续更新了
+

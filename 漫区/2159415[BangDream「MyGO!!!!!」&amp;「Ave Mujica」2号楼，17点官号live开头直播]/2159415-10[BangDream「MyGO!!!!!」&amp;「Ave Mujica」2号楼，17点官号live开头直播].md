@@ -976,3 +976,15 @@ soyo好腹黑。。。是想接anon的机会复活crychic？
 
 好奇管人团招人的时候是不是看上了小妹妹会画画还愿意打白工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苇原雪道  
+##### 13408#       发表于 2024-2-24 15:45
+
+#9 u1s1，taki的确只要有tomori就够了，啥时候灯说不组团了，taki估计也就退出了。
+soyo是只要crychic，外加祥子。。。
+祥子个罪孽深重的女人啊！
+
+话说看到现在，anno作为女主戏份意外的少啊。。。就逃避那集是她主场，然后就是偶尔当当剧情推进机器。。。
+

@@ -1819,3 +1819,54 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 但是明显我只用过两次占卜牌，怎么也想不通为啥进阶着进阶着就只有2张手牌了啊，有什么设定我看漏了吗
 
+
+*****
+
+####  库德里尔  
+##### 165#       发表于 2024-2-24 11:06
+
+1.0.0k史诗级更新 
+
+手臂再也不会把牌型等级降低到0了
+
+- Made the Arm less bad (Cannot downgrade poker hand below level 1)
+
+- Fixed bug where returning to main menu when unlocking achievement sometimes crashed the game
+
+- Fixed bug where enhancement/seal in standard pack were not tied to the Ante in seeded run
+
+- Fixed various grammer/nomenclature issues with Jokers [english]
+
+- Fixed bug where Black Hole/Soul did not appear based on Ante
+
+- Changed wording on Foil, Holographic, Polychrome, Negative tags to be more clear about their effect
+
+- Fixed bug where Chicot disabling the Manacle was not drawing a card to fill out the empty space in hand
+
+- Fixed bug where destroying any non-glass card with hanged man caused a message under Glass Joker
+
+- Fixed bug where Raised Fist was not triggering in order with face cards/10s
+
+- Fixed wording for perishable challenge - "all Jokers are eternal"
+
+- Fixed bug where 'Mid Stakes' achievement was being unlocked on Blue stake instead of Black stake
+
+- Fixed bug where unlocked Deck name was not localized
+
+- Fixed bug where Deck view in challenge run didn't have localized challenge name
+
+- Fixed bug where Jokers that give end of round money were not showing their localized name
+
+- Fixed Controller mapping when selecting hand - you may now cycle around bot the right and left of the hand when selecting cards
+
+*****
+
+####  a4ac7  
+##### 166#       发表于 2024-2-24 11:07
+
+<img src="https://p.sda1.dev/15/ebed1a2e98ba909321f51ab774211192/CMP_20240224110636322.png" referrerpolicy="no-referrer">
+
+这算胡吗
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

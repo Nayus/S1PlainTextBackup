@@ -2202,3 +2202,14 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 方尖碑咋用，我知道用最常用的牌型会重置倍率。问题是多个使用次数一样的牌型，只要用了其中一个也会重置，好像没办法无限叠<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 195#       发表于 2024-2-25 05:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64058263&amp;ptid=2154925" target="_blank">杜文乐超神归来 发表于 2024-2-25 04:02</a>
+
+方尖碑咋用，我知道用最常用的牌型会重置倍率。问题是多个使用次数一样的牌型，只要用了其中一个也会重置， ...</blockquote>
+方尖碑其实不怎样，最有用的是当你打了很多次单牌\双牌后准备转别的就可以拿，或者是同花卡组转同花顺，有时候能救急，但大部分时候都是占稀有格子的fw
+

@@ -1312,3 +1312,44 @@ welcome先辈终于<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  magicc  
+##### 1205#       发表于 2024-2-24 16:34
+
+jungo终于肯放出来了吗
+
+*****
+
+####  Seeley  
+##### 1206#       发表于 2024-2-24 16:35
+
+我们追加就该和解专场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  acacaclove  
+##### 1207#       发表于 2024-2-24 16:35
+
+好齐的call声啊
+
+
+*****
+
+####  rgauss  
+##### 1208#       发表于 2024-2-24 16:40
+
+不嘴jungo了
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  acacaclove  
+##### 1209#       发表于 2024-2-24 16:42
+
+jungo你是我爹
+

@@ -935,3 +935,11 @@ soyo好腹黑。。。是想接anon的机会复活crychic？
 
 管人团新mv的曲绘是管人团成员自己画的，武士道真是省钱省到了新境界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toki_Ai  
+##### 13403#       发表于 2024-2-24 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">真不愧是wsd啊
+

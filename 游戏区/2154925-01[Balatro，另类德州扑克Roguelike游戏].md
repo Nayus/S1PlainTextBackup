@@ -2019,3 +2019,23 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  就是剑鞘  
+##### 179#       发表于 2024-2-24 16:06
+
+<img src="https://p.sda1.dev/15/85a3f8118b3391047fdbdaf18c4c882b/23.png" referrerpolicy="no-referrer">
+
+小丑牌的顺序判定真挺搞的吧。
+
+牌都挺常见的就不写效果了。
+
+关键在于最左边的致胜之拳和最右边的男爵都是给手牌附加效果的。（拳头这个真没看出来）
+
+所以它们的发动顺序和本身排序无关，反而和手牌牌序有关。
+
+想收益最大化就得把手里最小的那张牌移到最左边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+更搞的是如果你一手全是K那么它就会自动把最右边那张认定为最小牌，必然先乘后加，收益最小化了属于是。
+

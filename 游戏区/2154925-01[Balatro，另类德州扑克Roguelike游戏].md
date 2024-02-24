@@ -1972,3 +1972,16 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 前期攒钱很重要，弄一堆紫蜡封的卡在手里，可以刷出大量塔罗牌，改善经济和牌型，后期拿分靠复制小丑+倍率卡和重复触发，红蜡封+钢铁+玻璃+多彩
 
+
+*****
+
+####  就是剑鞘  
+##### 174#       发表于 2024-2-24 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64051353&amp;ptid=2154925" target="_blank">lilod 发表于 2024-2-24 11:54</a>
+
+有可以欠债的小丑牌
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+两码事，负债小丑牌是给你个最后一搏的机会，boss扣钱扣到负数纯属恶心人
+

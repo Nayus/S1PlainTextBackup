@@ -3118,3 +3118,13 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  苍蓝之枪  
+##### 3323#       发表于 2024-2-24 14:01
+
+真的是麻了，本想再挑战一下无败野康的
+
+结果900倒了，并且持续坐牢了好几把
+

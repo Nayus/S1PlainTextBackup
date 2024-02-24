@@ -1908,3 +1908,72 @@ jungo你真是我爹
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">act3的憋屈在这儿伸张了，谢谢你藏招jungo
 
+
+*****
+
+####  Vacuolar  
+##### 1262#       发表于 2024-2-24 19:07
+
+草，结尾怎么是孤岛危机
+
+*****
+
+####  Vacuolar  
+##### 1263#       发表于 2024-2-24 19:11
+
+从没听完过这首歌，这首歌后半这么可怕？真唱哭一个
+
+*****
+
+####  Seeley  
+##### 1264#       发表于 2024-2-24 19:11
+
+还挺好奇这之后接什么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  rgauss  
+##### 1265#       发表于 2024-2-24 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64054691&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-2-24 19:11</a>
+从没听完过这首歌，这首歌后半这么可怕？真唱哭一个</blockquote>
+这歌的相关活动就是个恐怖活动 我记得纱了人的
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  magicc  
+##### 1266#       发表于 2024-2-24 19:13
+
+元宵闹鬼
+
+*****
+
+####  rgauss  
+##### 1267#       发表于 2024-2-24 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">不是 今天machico出来唱了两首吗 憋明天是吧
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Vacuolar  
+##### 1268#       发表于 2024-2-24 19:15
+
+百万的牌太多了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Seeley  
+##### 1269#       发表于 2024-2-24 19:16
+
+马小姐好像确实就第一首？pyon也不多<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+等明天信号灯嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

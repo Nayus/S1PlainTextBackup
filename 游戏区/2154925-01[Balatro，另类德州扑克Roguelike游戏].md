@@ -2077,3 +2077,12 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 所以真不知道后者存在的意义是啥，解锁条件还贼麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玩玩而已  
+##### 183#       发表于 2024-2-24 19:10
+
+[https://share.weiyun.com/12Zj3ToH](https://share.weiyun.com/12Zj3ToH)
+群主去隔壁群偷得自制汉化，感觉还行
+

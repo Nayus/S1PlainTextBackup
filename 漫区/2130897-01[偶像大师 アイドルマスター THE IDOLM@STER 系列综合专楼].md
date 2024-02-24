@@ -2288,3 +2288,69 @@ crossing
 
 crossing的前奏确实牛逼，副歌要是更易听就真的成了
 
+
+*****
+
+####  Seeley  
+##### 1308#       发表于 2024-2-24 20:07
+
+<img src="https://img.saraba1st.com/forum/202402/24/200734d28m441idimhh1h4.jpg" referrerpolicy="no-referrer">
+
+<strong>Cache_-3c474bb1a62b5594.jpg</strong> (135.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 20:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Seeley  
+##### 1309#       发表于 2024-2-24 20:08
+
+ 本帖最后由 Seeley 于 2024-2-24 20:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">拉塔塔
+suji哭了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  acacaclove  
+##### 1310#       发表于 2024-2-24 20:08
+
+开敲
+
+*****
+
+####  Vacuolar  
+##### 1311#       发表于 2024-2-24 20:08
+
+ratata编曲确实牛逼
+
+*****
+
+####  rgauss  
+##### 1312#       发表于 2024-2-24 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Vacuolar  
+##### 1313#       发表于 2024-2-24 20:12
+
+アイマス！
+
+*****
+
+####  Vacuolar  
+##### 1314#       发表于 2024-2-24 20:15
+
+这搂腰，哇哇哇
+

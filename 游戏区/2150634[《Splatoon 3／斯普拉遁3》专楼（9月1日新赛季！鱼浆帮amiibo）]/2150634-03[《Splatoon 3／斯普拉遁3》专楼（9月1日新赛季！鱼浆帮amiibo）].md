@@ -3176,3 +3176,21 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 与此同时，4k贴牌点数200
 
+
+*****
+
+####  罗克萨斯  
+##### 3330#       发表于 2024-2-24 16:33
+
+下赛季依然不打算削这把武器么？
+
+<img src="https://img.saraba1st.com/forum/202402/24/163318kqnmarmr0ary0qmq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-24-16-30-51-896_com.nintendo.znca-edit.jpg</strong> (291.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 16:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

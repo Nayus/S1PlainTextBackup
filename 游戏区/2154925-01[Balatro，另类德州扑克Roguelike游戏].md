@@ -1881,3 +1881,56 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 炉石传说没有完爆！</blockquote>
 真当稀有度白写的
 
+
+*****
+
+####  fireflies  
+##### 168#       发表于 2024-2-24 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64049247&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-02-24 00:41:32</a>
+炉石传说没有完爆！</blockquote>罕见贵几块钱
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  就是剑鞘  
+##### 169#       发表于 2024-2-24 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64050588&amp;ptid=2154925" target="_blank">稲穂信 发表于 2024-2-24 10:10</a>
+
+用了几次幻灵牌里的占卜牌配合着塔罗里的力量、死神、倒吊人和愚者把手里的点数大规模统一成一大半都是K和9 ...</blockquote>
+玩的英文，好像相同的幻灵牌第一张是-1手牌上限，第二张就变成了-2手牌上限
+
+只遇见过一次，不确定
+
+*****
+
+####  幻想风靡_  
+##### 170#       发表于 2024-2-24 11:50
+
+打了好久才意识到卡是可以拖动的，也就是说那张让左边的牌变成右边的牌的塔罗牌并不是只能让大的牌变成小的牌
+
+*****
+
+####  就是剑鞘  
+##### 171#       发表于 2024-2-24 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64050965&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-24 11:06</a>
+
+1.0.0k史诗级更新 
+
+手臂再也不会把牌型等级降低到0了</blockquote>
+为什么不把扣钱会扣成负数一起改了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lilod  
+##### 172#       发表于 2024-2-24 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64051337&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-02-24 11:52:58</a>
+为什么不把扣钱会扣成负数一起改了</blockquote>有可以欠债的小丑牌
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

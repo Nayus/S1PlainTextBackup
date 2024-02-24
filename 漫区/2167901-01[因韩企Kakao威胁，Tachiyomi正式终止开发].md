@@ -188,3 +188,13 @@ https://github.com/keiyoushi/extensions-source/issues/1254
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  拉鲁拉丝  
+##### 180#       发表于 2024-2-24 11:48
+
+现在是不是更新了软件就不能用了？我原版和j2k都没敢升级，用的好好的。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

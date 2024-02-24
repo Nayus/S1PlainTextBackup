@@ -63,3 +63,13 @@
 我感觉我都快毕业了，一看活动还九天结束
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xy1041  
+##### 46193#       发表于 2024-2-24 12:42
+
+已经毕业两天了，开始为双烟找狗刷小刀了，什么，术龙娘虽然开不了被动但是三技能带毅力还一级就能加20np？就你了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

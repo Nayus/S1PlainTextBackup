@@ -1777,3 +1777,51 @@ J`MOP0}L`@(SEQDV5FOE{0A_tmb.jpg
 
 jungo你真是我爹
 
+
+*****
+
+####  rgauss  
+##### 1249#       发表于 2024-2-24 18:16
+
+都是我喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Seeley  
+##### 1250#       发表于 2024-2-24 18:21
+
+我超这一block后半要燃尽了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  acacaclove  
+##### 1251#       发表于 2024-2-24 18:21
+
+<img src="https://img.saraba1st.com/forum/202402/24/182129irayya77hzgriq8v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 18:21 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 1252#       发表于 2024-2-24 18:23
+
+<img src="https://img.saraba1st.com/forum/202402/24/182325phepq2lmu2pzoidi.jpg" referrerpolicy="no-referrer">
+
+<strong>mvQ2t-jurzK1vT3cSsg-he.jpg</strong> (70.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 18:23 上传
+

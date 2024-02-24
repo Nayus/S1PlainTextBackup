@@ -478,3 +478,24 @@ emo在自己的活动上也唱了自己写的原创曲
 
 我猜是葛女士<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 19687#       发表于 2024-2-24 18:15
+
+带上皮套才能展现真正的自己，是鲤鱼璃<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+某种意义上节目效果爆表，鱼也放松了，我们也放松了，pvz真是伟大的游戏。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  仟音一心  
+##### 19688#       发表于 2024-2-24 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64052024&amp;ptid=2078110" target="_blank">280041437 发表于 2024-2-24 13:07</a>
+说是视频联动的话说不定范围会广点，能不能把菜宝邀过来呀</blockquote>
+菜宝事务所不让，不行。
+

@@ -672,3 +672,13 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 这游戏ip是在光荣手上还是索尼手上啊..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雪城穗乃香  
+##### 731#       发表于 2024-2-25 01:19
+
+从能选难度看来这次的游戏定位应该比较偏大众了，希望综合体验能不输对马岛
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

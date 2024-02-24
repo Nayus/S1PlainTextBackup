@@ -1977,3 +1977,119 @@ jungo你真是我爹
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1270#       发表于 2024-2-24 19:16
+
+马池口来了
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Vacuolar  
+##### 1271#       发表于 2024-2-24 19:16
+
+真被叫出来了machico
+
+*****
+
+####  magicc  
+##### 1272#       发表于 2024-2-24 19:17
+
+你点的machico
+
+*****
+
+####  rgauss  
+##### 1273#       发表于 2024-2-24 19:17
+
+马池口竟然放最后了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Kreis  
+##### 1274#       发表于 2024-2-24 19:18
+
+machico还是稳，久经历练的老艺术家
+
+*****
+
+####  Seeley  
+##### 1275#       发表于 2024-2-24 19:18
+
+ 本帖最后由 Seeley 于 2024-2-24 19:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">少人了哇，我suwa呢
+syl，这歌我头几次听分马小姐跟suwa声线一直分不开，给suwa选的声线有点高了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Vacuolar  
+##### 1276#       发表于 2024-2-24 19:20
+
+电满了哈哈哈
+
+*****
+
+####  rgauss  
+##### 1277#       发表于 2024-2-24 19:20
+
+好耶
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  acacaclove  
+##### 1278#       发表于 2024-2-24 19:20
+
+初めての感情わたしの本能🥵🥵そのポーカーフェイス剝がしたいのわからないなんてたまらない🧠🧠🧠反発するのに離れない不可視光線ラブコール解けないエラーコード焦がれるくらいがちょうどいいの触れあえないから何度だって🫂永遠を求めてしまうわ電波感傷Warning!Warning!Ah Ah応答セヨLost Emotion A-A-Ah! ‍
+
+*****
+
+####  Seeley  
+##### 1279#       发表于 2024-2-24 19:20
+
+电波好歌<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RhmBWT_Wu  
+##### 1280#       发表于 2024-2-24 19:20
+
+初めての感情😃😘😄わたしの本能🥵😡🥵そのポーカーフェイス🃏🃏🃏剝がしたいの✋🏻🤚🏻🖐🏻わからないなんてたまらない🧠🧠🧠反発するのに離れない😣😫😩不可視光線ラブコール❤📞❤📞解けないエラーコード⛔️🚫❌焦がれるくらいがちょうどいいの😩😫😄触れあえないから何度だって👤👥🫂永遠を求めてしまうわ💑🏻💑🏻💑🏻電波感傷⚡Warning!Warning!Ah Ah⚠️⚠️⚠️応答セヨLost Emotion A-A-Ah! ❤️💔❤️‍🔥
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Alicest  
+##### 1281#       发表于 2024-2-24 19:21
+
+woc 电波感伤
+
+*****
+
+####  水莲寺流歌  
+##### 1282#       发表于 2024-2-24 19:21
+
+好爽好爽好爽好爽<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acacaclove  
+##### 1283#       发表于 2024-2-24 19:24
+
+我服了jungo，你真的是我爹
+

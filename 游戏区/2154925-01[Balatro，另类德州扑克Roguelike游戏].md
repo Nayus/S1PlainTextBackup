@@ -2086,3 +2086,13 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 [https://share.weiyun.com/12Zj3ToH](https://share.weiyun.com/12Zj3ToH)
 群主去隔壁群偷得自制汉化，感觉还行
 
+
+*****
+
+####  fuochai  
+##### 184#       发表于 2024-2-24 19:18
+
+数学系爽到高超了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+打了把顺子升到14级的 可惜无尽有一把只组了一个顺子出来 分不够了
+

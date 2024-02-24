@@ -927,3 +927,11 @@ soyo好腹黑。。。是想接anon的机会复活crychic？
 一起，结果变成一生，然后又变成一星期哈哈哈哈。。。
 你们这个团好重啊！全员重女是吧？也就爱音稍微好点。。。
 
+
+*****
+
+####  NODY  
+##### 13402#       发表于 2024-2-24 14:22
+
+管人团新mv的曲绘是管人团成员自己画的，武士道真是省钱省到了新境界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -558,3 +558,14 @@ emo在自己的活动上也唱了自己写的原创曲
 
 这是现地了吗<img src="https://p.sda1.dev/15/1f96c8915224574b6dfaf798dbd425e6/CMP_20240224225006301.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 19696#       发表于 2024-2-25 04:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64055439&amp;ptid=2078110" target="_blank">後藤正文 发表于 2024-2-24 20:35</a>
+
+不会是鸡脖的皮套吧，明显是一个运营的套路</blockquote>
+鸡脖是谁？
+

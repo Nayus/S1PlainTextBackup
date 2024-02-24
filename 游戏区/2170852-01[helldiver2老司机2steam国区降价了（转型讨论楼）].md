@@ -9613,3 +9613,13 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 机器人的运兵船可以用EAT或者无后座力筒子打引擎一发射下来....电磁炮还没试
 
+
+*****
+
+####  sigeren  
+##### 979#       发表于 2024-2-24 22:12
+
+现在匹配没啥问题了，但是组队好像很有问题，老是加不进去朋友的房
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

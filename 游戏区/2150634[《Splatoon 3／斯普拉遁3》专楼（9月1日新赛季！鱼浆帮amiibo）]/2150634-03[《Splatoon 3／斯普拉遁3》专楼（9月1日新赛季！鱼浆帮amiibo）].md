@@ -3307,3 +3307,13 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 带着高风险高回报，拿着章鱼小绿一条命打到30层，boss第三阶段最后一下时放砸地，结果浮空时被打死了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3342#       发表于 2024-2-24 22:10
+
+天天打消防栓，有点审美疲劳，是消防栓在水沟局更强么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

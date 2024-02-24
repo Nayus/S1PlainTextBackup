@@ -2047,3 +2047,33 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">原来四张牌算同花和顺子的 可以实现顺子里三张红桃一张黑桃，然后随便单独选一张不连号的红桃都能同花顺的效果
 
+
+*****
+
+####  鸳鸳相抱  
+##### 181#       发表于 2024-2-24 17:24
+
+快乐的81倍
+
+微信图片_20240224172350.png
+(71.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-24 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202402/24/172412hccb7np87kah870q.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就是剑鞘  
+##### 182#       发表于 2024-2-24 17:26
+
+<img src="https://p.sda1.dev/15/09ada4c06ecb9631efceed612a991193/125.png" referrerpolicy="no-referrer">
+
+没啥用的小测试：
+
+【蓝图】会先复制右侧的【方形小丑】，将自己的能力覆盖掉，使得【头脑风暴】同样复制【方形小丑】
+
+所以真不知道后者存在的意义是啥，解锁条件还贼麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

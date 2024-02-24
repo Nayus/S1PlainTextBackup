@@ -988,3 +988,11 @@ soyo是只要crychic，外加祥子。。。
 
 话说看到现在，anno作为女主戏份意外的少啊。。。就逃避那集是她主场，然后就是偶尔当当剧情推进机器。。。
 
+
+*****
+
+####  Aendst  
+##### 13409#       发表于 2024-2-24 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是我们武士道的独门绝学
+

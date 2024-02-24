@@ -31,3 +31,13 @@
 
 喵~<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1057#       发表于 2024-2-24 17:14
+
+猫对狗应该是血脉压制了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -2404,3 +2404,11 @@ ratata编曲确实牛逼
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">  百百 COME BACK了嘛
 
+
+*****
+
+####  MELTMOON  
+##### 1320#       发表于 2024-2-24 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Kraz的单手遮脸meme，这么多年终于有人接班了
+

@@ -3106,3 +3106,15 @@ ika研：这里是合家欢游戏 该滚的是你们吧<img src="https://static.
 
 新赛季几号呀
 
+
+*****
+
+####  shirolin  
+##### 3322#       发表于 2024-2-24 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64051290&amp;ptid=2150634" target="_blank">幽香 发表于 2024-2-24 11:47</a>
+研究所偷偷加了1代专属pose没有的武器新动作</blockquote>
+没有偷偷啊，更新说明里面写了
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -542,3 +542,11 @@ emo在自己的活动上也唱了自己写的原创曲
 鱼作为现役拉拉偶像不好和男的联动吧</blockquote>
 打铁都能演妈呢
 
+
+*****
+
+####  大哀之君  
+##### 19694#       发表于 2024-2-24 22:20
+
+私联肯定不行，但拉拉人在男性共演方面没那么敏感吧，都经历过小宫那部电影的大风大浪考验过了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

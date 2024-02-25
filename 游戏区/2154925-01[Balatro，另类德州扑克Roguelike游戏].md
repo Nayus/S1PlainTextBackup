@@ -2373,3 +2373,19 @@ discord社区几个人做的校对版翻译 适配了1.0.0k
 
 捷径+四手的组合在这套没啥用 前面用不到随便丢个高牌都能爆 而且占卜师+吸血鬼算分很快 后期很快就膨胀到同花顺也顶不住了 牌面太素加没用加蓝导致的
 
+
+*****
+
+####  schneehertz  
+##### 211#         楼主| 发表于 2024-2-25 17:05
+
+<img src="https://img.saraba1st.com/forum/202402/25/170505m2xaktdla6akjtfz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (440.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:05 上传
+
+结束了
+

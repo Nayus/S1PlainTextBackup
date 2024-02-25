@@ -589,3 +589,14 @@ emo在自己的活动上也唱了自己写的原创曲
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 19699#       发表于 2024-2-25 17:03
+
+八月份在广州
+<img src="https://p.sda1.dev/15/5c9475f1349627ecb221b12ea8cd0394/CMP_20240225170313268.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

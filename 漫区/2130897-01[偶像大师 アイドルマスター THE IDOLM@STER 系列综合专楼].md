@@ -2721,3 +2721,89 @@ ho<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrer
 
 角圆那么能跳，户田也那么能跳。真的最后了啊，这绝对伤膝盖。
 
+
+*****
+
+####  natmk  
+##### 1356#       发表于 2024-2-25 16:58
+
+我想起了我是歌织P
+
+*****
+
+####  Mc凉月奏酱  
+##### 1357#       发表于 2024-2-25 16:58
+
+<img src="https://img.saraba1st.com/forum/202402/25/165856xytoucu5euvtorrz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225165846.png</strong> (251.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 16:58 上传
+
+*****
+
+####  rgauss  
+##### 1358#       发表于 2024-2-25 16:59
+
+海风 好耶
+
+*****
+
+####  acacaclove  
+##### 1359#       发表于 2024-2-25 16:59
+
+大牌姐回来了
+
+*****
+
+####  RhmBWT_Wu  
+##### 1360#       发表于 2024-2-25 16:59
+
+难道动画曲要齐？
+act3有两首没唱吧？
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 1361#       发表于 2024-2-25 17:03
+
+果然
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 1362#       发表于 2024-2-25 17:03
+
+啊 要牺牲mc了吧 不然不好排
+
+
+*****
+
+####  Kreis  
+##### 1363#       发表于 2024-2-25 17:04
+
+人多，插MC也没那么必要了，想说的话放最后也感动。
+
+*****
+
+####  Seeley  
+##### 1364#       发表于 2024-2-25 17:05
+
+真正应该就是考虑前7组，MC也不会牺牲太多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mc凉月奏酱  
+##### 1365#       发表于 2024-2-25 17:07
+
+田丽大牌了吗（不可思议）<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

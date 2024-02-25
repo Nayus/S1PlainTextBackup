@@ -2337,3 +2337,19 @@ discord社区几个人做的校对版翻译 适配了1.0.0k
 
 感觉这游戏最大问题就是没有挣扎余地，尤其是遇到阴间boss的时候，杀戮尖塔之类的打不过还能尝试挣扎一下，这游戏bd没成型又手黑一下就直接烧水了
 
+
+*****
+
+####  高歌  
+##### 208#       发表于 2024-2-25 16:09
+
+玩了二十多个小时才发现，长按R键可以快速重开<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/25/160910tmkznefff72k7k21.jpg" referrerpolicy="no-referrer">
+
+<strong>Collectible_R_Key_icon.webp.jpg</strong> (526 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-2-25 16:09 上传
+

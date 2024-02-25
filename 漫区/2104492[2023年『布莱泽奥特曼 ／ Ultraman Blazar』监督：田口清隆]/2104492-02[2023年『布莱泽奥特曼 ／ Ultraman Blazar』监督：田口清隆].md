@@ -370,3 +370,13 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 
 结果只是剪了个头发换了身行头，坐下一聊就漏馅了，端着又没货，想想还不如搞个新形态或者请个话题NPC来整下活呢。
 
+
+*****
+
+####  nonodundun  
+##### 1824#       发表于 2024-2-25 20:49
+
+看贴吧泥潭感觉田口风评又从封神到稀碎了，这下和武居坂本殊途同归了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这不就剩下今年的辻本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

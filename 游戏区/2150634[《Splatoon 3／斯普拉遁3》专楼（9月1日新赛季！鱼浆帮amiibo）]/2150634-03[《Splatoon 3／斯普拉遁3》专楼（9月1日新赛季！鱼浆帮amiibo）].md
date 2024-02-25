@@ -3580,3 +3580,15 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 研究所能不能把审查者子弹伤害加到30，然后射程和鹦鹉螺持平？极限射程5确是故意的吧，逼你前压，不然很容 ...</blockquote>
 加到30就对中加太不公平了，除了射程比中加短蓄力慢一点，其他性能都好一截<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3367#       发表于 2024-2-25 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64064855&amp;ptid=2150634" target="_blank">Pumpkin_ccc 发表于 2024-2-25 23:29</a>
+加到30就对中加太不公平了，除了射程比中加短蓄力慢一点，其他性能都好一截 ...</blockquote>
+某XP3000的加特林使给的现环境排行是：鹦鹉螺、无印圆珠笔、无印中加、审查者、贴牌中加。审查者感觉单排不那么好发挥，连上位势都是组排用得多，作为饮料机也竞争不过铅笔。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9824,3 +9824,16 @@ p2p联机，别挂代理
 无敌了啊，箭脑袋</blockquote>
 今天卡出来了两次，9级难度全程不少于5道激光护驾，阵地战20台破击炮放烟花<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 999#       发表于 2024-2-25 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64062735&amp;ptid=2170852" target="_blank">狂风DKC 发表于 2024-2-25 19:24</a>
+
+感谢诸位解答，刚玩还在摸索阶段，浪费不少时间。
+
+另外请教下超级货币是攒1000解锁高阶通行证还是直 ...</blockquote>
+先买甲，目前+2雷、+2针、防爆这三件轻甲都是很不错的选择，高级债卷那点东西基本可有可无
+

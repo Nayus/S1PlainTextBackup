@@ -239,3 +239,22 @@ mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 还是说他其实是会被羊直接认出来的q娃大腿/老板这种定位？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 1078#       发表于 2024-2-25 22:54
+
+真由感觉好重啊，彩羽小姐真是一个罪孽深重的女人。小雪这集嫌弃小麦，期待小雪也变人后两个人的相处。话说咩咩和眼睛男关系这么好吗，能不能期待一个未来兔子吃醋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 1079#       发表于 2024-2-25 22:54
+
+看到某字幕组まゆ翻成茉优 想吐槽一下
+一般女性人名まゆ可以翻译成 茧 眉 真由 麻友等
+官方没有明确的汉字以及意义可以随便这么翻译
+我不知道某字幕组翻成茉优 是参考了声优相良茉优 还是峰田茉优
+但别忘了q娃有两位歌手一位叫工藤真由 另一位叫渡边麻友 起码这两位まゆ在q娃大友心里地位远远高于这上面两位まゆ吧
+

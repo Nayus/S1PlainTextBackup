@@ -471,3 +471,11 @@ syl 之前猜会给浮
 
 感觉仇甫的显示原型还挺讨喜的，游戏里那个红墨镜的造型我也挺喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">不知道能不能进卡池，反正依附日本的东朗没指望了...
 
+
+*****
+
+####  Yuzutea  
+##### 566#       发表于 2024-2-25 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把剑辛和剑奥拉了四破试了下纯剑契还挺爽的
+

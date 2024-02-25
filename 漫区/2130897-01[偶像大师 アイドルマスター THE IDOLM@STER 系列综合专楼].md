@@ -2627,3 +2627,97 @@ ratata编曲确实牛逼
 
 上来就这么劲的
 
+
+*****
+
+####  acacaclove  
+##### 1346#       发表于 2024-2-25 16:48
+
+<img src="https://img.saraba1st.com/forum/202402/25/164810pptottte56efaape.png" referrerpolicy="no-referrer">
+
+<strong>KDU}4$XDJKO86XDD1K{~~CO_tmb.png</strong> (87.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 16:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acacaclove  
+##### 1347#       发表于 2024-2-25 16:48
+
+<img src="https://img.saraba1st.com/forum/202402/25/164819pq11loos3tl28g65.png" referrerpolicy="no-referrer">
+
+<strong>XD38QV)_H[]VGC(JGD(K`I4.png</strong> (177.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 16:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水莲寺流歌  
+##### 1348#       发表于 2024-2-25 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">一上来看到种田直接泪目了，接下来还有什么大的
+
+*****
+
+####  Vacuolar  
+##### 1349#       发表于 2024-2-25 16:49
+
+这次导播真的牛逼了，意义明确，特写深入人心，甚至可以部分还原动画分镜。
+
+直播人看了那么多次抽象镜头终于等来了高人。
+
+*****
+
+####  rgauss  
+##### 1350#       发表于 2024-2-25 16:49
+
+Ho
+
+*****
+
+####  acacaclove  
+##### 1351#       发表于 2024-2-25 16:50
+
+ho
+
+*****
+
+####  Seeley  
+##### 1352#       发表于 2024-2-25 16:50
+
+ho<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  acacaclove  
+##### 1353#       发表于 2024-2-25 16:55
+
+户田<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 1354#       发表于 2024-2-25 16:56
+
+户田是什么伤啊，之前看到说好像都有积液了？
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Vacuolar  
+##### 1355#       发表于 2024-2-25 16:56
+
+角圆那么能跳，户田也那么能跳。真的最后了啊，这绝对伤膝盖。
+

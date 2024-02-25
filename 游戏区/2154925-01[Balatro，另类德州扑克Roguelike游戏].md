@@ -2512,3 +2512,11 @@ NS版没中文？
 感觉这个游戏很懂roguelike的爽点，叠倍率的设计非常令人舒适</blockquote>
 而且弃牌的选择和鬼牌的排列给回合制游戏带来了一丢丢并不机械的操作空间，又没有丢掉回合制游戏的节奏
 
+
+*****
+
+####  Sens  
+##### 224#       发表于 2024-2-25 19:58
+
+确实不错，不过对于我这种数学不好的还是有点思考，目前到几万就过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

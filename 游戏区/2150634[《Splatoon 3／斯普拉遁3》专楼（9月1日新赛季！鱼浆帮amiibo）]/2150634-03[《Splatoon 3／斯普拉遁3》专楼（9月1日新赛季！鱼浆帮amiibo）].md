@@ -3471,3 +3471,11 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  huge_cat  
+##### 3357#       发表于 2024-2-25 19:59
+
+打完无限徽章收工完事，对dlc期待太高导致现在只能打个6分<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -1274,3 +1274,31 @@ MYGO live结 ...</blockquote>
 [https://twitter.com/AkaneY_banu/status/1761683345883509165](https://twitter.com/AkaneY_banu/status/1761683345883509165)</blockquote>
 倒数第二图是什么偷/拍视角<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜苗  
+##### 13424#       发表于 2024-2-25 19:58
+
+泥潭也有mygo直播了？好起来了
+
+*****
+
+####  蒜苗  
+##### 13425#       发表于 2024-2-25 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64053882&amp;ptid=2159415" target="_blank">苇原雪道 发表于 2024-2-24 17:32</a>
+然后最后那段送黄瓜🥒剧情没看懂。。。睦这个无口到底是咋想的，当初炸团那时候为啥说那句话？
+MYGO live结 ...</blockquote>
+soyo只是不再强求c团复活了，不代表她不在意c团解散的帮凶了，睦头人的补刀怕是要被她记恨一辈子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于睦头人为什么要说那些，目前还没有实锤的定论，不过有个staff访谈提到了这一段，并点出了睦祥二人的半身关系
+
+*****
+
+####  蒜苗  
+##### 13426#       发表于 2024-2-25 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64054373&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-2-24 18:31</a>
+很多已经讨论过了，不如去翻翻1号楼</blockquote>
+爬高楼对新人太不友好了，在没有目录的情况下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

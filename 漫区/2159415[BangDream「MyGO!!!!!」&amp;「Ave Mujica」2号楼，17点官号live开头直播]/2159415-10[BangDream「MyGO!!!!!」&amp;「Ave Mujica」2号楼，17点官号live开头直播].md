@@ -1437,3 +1437,16 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 2024-2-25 21:39 上传
 
+
+*****
+
+####  ddy2811  
+##### 13436#       发表于 2024-2-25 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64063891&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-25 21:25</a>
+
+爽世“寻找犯人”这事本来就很抽象了，第六话这样思考，到第十二话还能这样思考？
+
+  -- 来自 能搜索的 Sta ...</blockquote>
+我放下了不代表我不记得是谁干的，哪怕最后重归于好，这也是拔出钉子以后留下的钉孔
+

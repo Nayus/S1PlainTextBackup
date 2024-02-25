@@ -3569,3 +3569,14 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 4把武器了才遇到一局很有意思的全弹床+全敌方墨水+黑暗关卡，可惜这种特殊地图太少了，真心希望可以多出一点特殊地图和故障种类，随机搭配带来的有趣程度也会提升。
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 3366#       发表于 2024-2-25 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64063646&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-25 21:00</a>
+
+研究所能不能把审查者子弹伤害加到30，然后射程和鹦鹉螺持平？极限射程5确是故意的吧，逼你前压，不然很容 ...</blockquote>
+加到30就对中加太不公平了，除了射程比中加短蓄力慢一点，其他性能都好一截<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

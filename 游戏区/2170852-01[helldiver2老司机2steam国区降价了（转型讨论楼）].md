@@ -9813,3 +9813,14 @@ p2p联机，别挂代理
 高级债券给的东西目前都不算好用，先不推荐解锁。
 目前护甲装甲值有bug不生效，超级货币想买的话推荐买商店里特性不错的轻甲。
 
+
+*****
+
+####  リュウセイ  
+##### 998#       发表于 2024-2-25 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64051832&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-24 12:47</a>
+
+无敌了啊，箭脑袋</blockquote>
+今天卡出来了两次，9级难度全程不少于5道激光护驾，阵地战20台破击炮放烟花<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

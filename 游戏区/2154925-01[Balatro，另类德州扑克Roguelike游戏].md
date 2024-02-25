@@ -2442,3 +2442,14 @@ discord社区几个人做的校对版翻译 适配了1.0.0k
 
 这是唯一一张能用自身能力覆盖boss能力的小丑牌吧？不考虑那些专门封印boss的小丑牌的话
 
+
+*****
+
+####  lilod  
+##### 217#       发表于 2024-2-25 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64061436&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-02-25 16:31:27</a>
+还是被卡牌元素迷惑了，感觉这游戏根本不该和爬塔比，更像是简化版的另类以撒 ...</blockquote>自走棋是最好的描述
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

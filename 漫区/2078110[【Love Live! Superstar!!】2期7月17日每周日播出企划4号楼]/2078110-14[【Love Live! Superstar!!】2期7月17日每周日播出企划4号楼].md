@@ -600,3 +600,31 @@ emo在自己的活动上也唱了自己写的原创曲
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仟音一心  
+##### 19700#       发表于 2024-2-25 18:07
+
+ 本帖最后由 仟音一心 于 2024-2-25 18:10 编辑 
+
+这就是我推的偶像
+<img src="https://p.sda1.dev/15/d526baca2d216ba542f4dbb69bf6685c/7ix7ejdtb8u651oihscbk926p.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/36221969221ccb6f394d9611218604b3/1a1n1dpin6qpszwq2utonyy3f.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/0e8bf8203f3a23b3ed41673447f6048e/59cwlxdtgs8qobfx824zg9fj4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/75ff63cd8d7947f4a48a746d413839cd/17euvs15xm4bcbi18xep3e3cq.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b373ea51ca4048c60d387c4a3221ad4d/329ctcdz2mbnnl678u8olec90.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/ac3676a50ce681b5210fc293df218651/9006xlicsi9p7ge8a6ucj0hm.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/9f72d15c61117276a638f97077ae0bfa/4okc0r9x90221gwjaw8n1vs5o.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b71a1efbeea92ba65f49db3f09afef53/3sqstmbb46vh3e64gkrjll118.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/3b4a0be2c43ce6c9767905c6571b1e6f/4elgt39ddxoaagyxnak8pjjv5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b9d405b0625bcea74e0ee819d0404ebb/41hsmtg1btrwq0c4dim7ou7bx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/58a0b61af849acc9f40f250c0c877f2d/Image_1708855445764.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 19701#       发表于 2024-2-25 18:08
+
+啥？药皂团来？
+

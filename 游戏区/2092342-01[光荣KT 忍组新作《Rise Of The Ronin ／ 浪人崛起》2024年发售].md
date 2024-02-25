@@ -698,3 +698,14 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 感觉是强化版的侍道
 
+
+*****
+
+####  popchong  
+##### 734#       发表于 2024-2-25 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64057328&amp;ptid=2092342" target="_blank">手铐君 发表于 2024-2-25 00:05</a>
+
+这游戏ip是在光荣手上还是索尼手上啊..</blockquote>
+这次应该是索尼，忍者组连官网和官推都没有，宣发完全是索尼在做，等等看有没有SOP
+

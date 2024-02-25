@@ -9777,3 +9777,16 @@ p2p联机，别挂代理
 攒钱出一次性筒子，对配合有信心可以出无后坐力炮，两人一个背炮一个背弹药箱
 难度5以下重甲敌人数量不多，穿轻甲避战跑路也是一种选择
 
+
+*****
+
+####  fn_herstal  
+##### 995#       发表于 2024-2-25 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64061754&amp;ptid=2170852" target="_blank">狂风DKC 发表于 2024-2-25 17:16</a>
+
+新手和朋友打了两天，有点意思。如果碰到加不进朋友房间的话自己单开一局然后退后，然后就能继续和 ...</blockquote>
+上面的你都看到了
+
+信标是可以粘在敌人（和自己人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> ）身上的，扔准了轨道精准攻击可以一发秒重甲
+

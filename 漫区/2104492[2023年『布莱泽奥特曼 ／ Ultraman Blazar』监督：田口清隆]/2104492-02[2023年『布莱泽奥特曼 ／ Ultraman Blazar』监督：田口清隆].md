@@ -390,3 +390,17 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 
 没第一时间看，看完后感觉没有那么糟糕。其实我个人感觉，已经明确说小孩做的是错误的了，群子队也都认为小孩是错的，就算没有惩罚，那三观也是没有问题的。而且惩罚也确实不好给，直接杀了肯定不可能，打一顿或者少管所啥的照样还会有人说太轻了。要说对孩子要有教育意义，我个人认为让孩子明白错误而不去做和让孩子害怕惩罚而不去做比起来，还是前面更好。感觉还是最近反原谅洗白的风气加几部冥著冲击太狠，很多人都更想看杀杀杀和赎罪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1826#         楼主| 发表于 2024-2-26 00:36
+
+[https://twitter.com/deletoku/status/1760799828018405444](https://twitter.com/deletoku/status/1760799828018405444)
+
+映画『ウルトラマンブレーザー THE MOVIE 大怪獣首都激突』本日公開！
+
+監督助手で参加させて頂きました。
+<img src="https://p.sda1.dev/15/aaecec63c66b4612ca2b1f1063ca8b7d/20240226_003554.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/f9f6914f6cea7a4f888d1daf23362d8e/20240226_003555.jpg" referrerpolicy="no-referrer">
+

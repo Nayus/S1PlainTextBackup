@@ -2624,3 +2624,24 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 花色强化小丑牌+同花强化星球牌安排上，就是强度不太够一般会输惨。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ppp爱好者  
+##### 234#       发表于 2024-2-26 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64064987&amp;ptid=2154925" target="_blank">lilod 发表于 2024-2-25 23:43</a>
+
+想吐，有毒。。。</blockquote>
+这个搭配价格变倍率 很舒服的 你这个还带负片 不占格子 后面两个卡+50没问题 搭礼物盒三卡+100没问题
+
+*****
+
+####  schneehertz  
+##### 235#         楼主| 发表于 2024-2-26 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64064987&amp;ptid=2154925" target="_blank">lilod 发表于 2024-2-25 23:43</a>
+
+想吐，有毒。。。</blockquote>
+负片不占格子只要不缺钱我都买，这个还有成长
+

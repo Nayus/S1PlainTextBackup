@@ -1509,3 +1509,21 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 当然不排除监督或者当集脚本就想搞个切割画面但是用力过猛的可能，不过至少理解成恨意的话爽世对睦的表现上是可以逻辑自洽的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13442#       发表于 2024-2-26 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065132&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 00:03</a>
+
+真搁这带入爽世把睦当犯人了？搞出了无视旧c团和mygo所有人的心意的复辟事件，要是还是体会不到乐队是需要 ...</blockquote>
+我觉得这就是人性，而就像爱音所说“soyo还是很有人性的”，知道这个又怎么样？知道这没意义又怎么样？知道是一厢情愿又怎么样？难道就不去记恨了么？
+
+*****
+
+####  凡人  
+##### 13443#       发表于 2024-2-26 00:30
+
+有时候比起对家同担更让我觉得离谱。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

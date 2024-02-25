@@ -46,3 +46,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本来准备回坑，看了看隔壁的全ss简评，手里的ss整个差了一个世代，打分低保线也高了好多，这个伤害叠叠乐确实还是另一个伊甸那味，根本追不上，算了还是云着吧
 
+
+*****
+
+####  eyeego  
+##### 1476#       发表于 2024-2-26 02:10
+
+麻子绝逼是一开始想写be的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

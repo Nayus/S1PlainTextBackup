@@ -842,3 +842,13 @@ act4没能现地已经成为遗憾了...
 
 直播都没看，梨衣熊咋了
 
+
+*****
+
+####  rgauss  
+##### 1583#       发表于 2024-2-26 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065742&amp;ptid=2130897" target="_blank">游蜓 发表于 2024-2-26 01:44</a>
+直播都没看，梨衣熊咋了</blockquote>
+组合曲不给镜头 solo曲不给怼脸镜头 只有中远镜头 合唱基本不给镜头 给了也很快切了
+

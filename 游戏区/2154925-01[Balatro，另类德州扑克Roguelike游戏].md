@@ -2545,3 +2545,13 @@ NS版没中文？
 
 我觉得有钱不买的唯一情况就是单纯冲高进阶，build成型后为了节约时间少打一轮。
 
+
+*****
+
+####  子夜微雪  
+##### 227#       发表于 2024-2-25 21:14
+
+其实还是有不买象形文字的时候的，1层买了进0层结果一穷二白啥也买不起，白白丢一次出牌or弃牌<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

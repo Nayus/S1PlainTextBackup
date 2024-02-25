@@ -1345,3 +1345,15 @@ soyo只是不再强求c团复活了，不代表她不在意c团解散的帮凶�
 <img src="https://p.sda1.dev/15/c1781fde89bd1ae30d9be402859529b3/CMP_20240225204346469.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/cdab4ef89f40666173d84b7dfa8eefbe/CMP_20240225204346542.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜苗  
+##### 13431#       发表于 2024-2-25 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64063480&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-25 20:40</a>
+爽世要是真记恨睦那这个角色烂完了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+又不是要报仇，只是记一下罢了，怎么就烂完了
+

@@ -95,3 +95,22 @@
 
 “想抽你一巴掌，但是又怕你舔我的手”
 
+
+*****
+
+####  天风绯炎  
+##### 1064#       发表于 2024-2-25 14:31
+
+抛开没有打戏不谈，这集拉新带货的内容，还是挺舒服的，所以下集出棒子了，真的不打吗<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 1065#       发表于 2024-2-25 14:37
+
+这猫大部分时候都嫌弃脸也太盐了，变人之后蓝战士能hold住么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+眼镜男跟羊管家郎才羊貌天生一对，建议成田大妈不要不识好歹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集连跑步抓怪都能崩，真打起来怕是全PPT了，还是就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

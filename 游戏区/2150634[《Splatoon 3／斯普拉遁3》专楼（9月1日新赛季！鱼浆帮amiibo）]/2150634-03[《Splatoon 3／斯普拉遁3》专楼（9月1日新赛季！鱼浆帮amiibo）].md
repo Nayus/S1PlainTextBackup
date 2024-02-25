@@ -3413,3 +3413,21 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 3352#       发表于 2024-2-25 14:28
+
+终于终止连负了，感谢队友<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/25/142732x608l4dof8yoneyp.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022514251500-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (228.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 14:27 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

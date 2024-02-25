@@ -9685,3 +9685,13 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">发现匹配到低难度的时候带电弧枪和激光犬遨游起来有点大脑按摩啊
 
+
+*****
+
+####  novyDC  
+##### 986#       发表于 2024-2-25 11:49
+
+进朋友房间还是有问题 老是进不去
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

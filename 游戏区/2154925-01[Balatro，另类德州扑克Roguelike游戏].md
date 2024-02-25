@@ -2353,3 +2353,11 @@ discord社区几个人做的校对版翻译 适配了1.0.0k
 
 2024-2-25 16:09 上传
 
+
+*****
+
+####  就是剑鞘  
+##### 209#       发表于 2024-2-25 16:31
+
+还是被卡牌元素迷惑了，感觉这游戏根本不该和爬塔比，更像是简化版的另类以撒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -764,3 +764,14 @@ kraz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 <img src="https://img.saraba1st.com/forum/202402/25/205024o0tzabe0baibl2lq.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1574#       发表于 2024-2-25 21:45
+
+<img src="https://p.sda1.dev/15/cd871bd3081ba7738257bc5fa633467e/CMP_20240225214510182.jpg" referrerpolicy="no-referrer">
+怎么做到每次都这么糊的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

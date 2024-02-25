@@ -1462,3 +1462,31 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 虽然我作为吃爽世→祥子这么讲肯定有个人立场，但是只要认了这个箭头爽世恨睦可太合情合理了，对方还是自己唯一能想办法联系到祥子的人，恨上加恨。本来就看不顺眼，反正祥子都追不回来了为什么还要跟你演好脸色。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 13438#       发表于 2024-2-25 23:58
+
+去年11月访谈就锤死了的东西漏油怎么还能争。素世不仅记恨睦，13集播完了还没放过睦呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 13439#       发表于 2024-2-26 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64064861&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-25 23:30:23</a>
+我放下了不代表我不记得是谁干的，哪怕最后重归于好，这也是拔出钉子以后留下的钉孔 ...</blockquote>真搁这带入爽世把睦当犯人了？搞出了无视旧c团和mygo所有人的心意的复辟事件，要是还是体会不到乐队是需要五个人的意志，那我无话可说
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  acgreen  
+##### 13440#       发表于 2024-2-26 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64064955&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-02-25 23:40:12</a></blockquote>访谈说的是第六话把睦当做被发现的犯人，要是到第十二话还是这样，这塑造了个啥
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

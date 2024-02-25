@@ -3592,3 +3592,11 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  笔仁SaSaSa  
+##### 3368#       发表于 2024-2-26 00:05
+
+小猫戴耳机的剧情坑不会扔到喷4去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

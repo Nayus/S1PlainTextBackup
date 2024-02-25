@@ -3371,3 +3371,15 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  晴岚  
+##### 3348#       发表于 2024-2-25 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64059967&amp;ptid=2150634" target="_blank">Dedalus 发表于 2024-2-25 12:34</a>
+你游以后能不能给特工换把武器别小绿了，英雄模式送一把dlc送两把加上原本的两把快凑一局游戏了，哪怕换个 ...</blockquote>
+让玩家自己选最好，皮肤只给选的那个，不能换，选老婆的时候到了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

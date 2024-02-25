@@ -3506,3 +3506,27 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绿冰  
+##### 3361#         楼主| 发表于 2024-2-25 21:34
+
+<img src="https://img.saraba1st.com/forum/202402/25/212755ex3cl99sslsbpk9n.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022514415200-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (173.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 21:27 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/212803fllbxomgmgiiqopb.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022520493400-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (173.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 21:28 上传
+
+2倍珍珠还是比之前单色少了一大截，单色调色盘的加成太夸张了
+

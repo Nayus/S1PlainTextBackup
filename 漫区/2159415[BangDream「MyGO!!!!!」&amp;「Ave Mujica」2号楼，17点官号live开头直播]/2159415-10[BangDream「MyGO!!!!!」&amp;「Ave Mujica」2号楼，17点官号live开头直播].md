@@ -1249,3 +1249,28 @@ MYGO live结 ...</blockquote>
 
 2024-2-25 17:28 上传
 
+
+*****
+
+####  TTAA  
+##### 13422#       发表于 2024-2-25 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64060351&amp;ptid=2159415" target="_blank">rukimin 发表于 2024-2-25 13:26</a>
+
+我发现好像但凡是有现实要素又带点艺术加工的五人故事，多多少少都能对得上，例如：
+
+关羽：《做一辈子兄弟 ...</blockquote>
+12集有人用关羽降汉不降曹解释素睦真是绝配
+
+*****
+
+####  TTAA  
+##### 13423#       发表于 2024-2-25 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64061858&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-25 17:29</a>
+
+團建DLC還有！ 
+
+[https://twitter.com/AkaneY_banu/status/1761683345883509165](https://twitter.com/AkaneY_banu/status/1761683345883509165)</blockquote>
+倒数第二图是什么偷/拍视角<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

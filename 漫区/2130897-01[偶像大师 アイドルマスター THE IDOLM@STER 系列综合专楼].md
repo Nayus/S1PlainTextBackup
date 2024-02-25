@@ -3570,3 +3570,134 @@ dear....<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" re
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Mc凉月奏酱  
+##### 1452#       发表于 2024-2-25 18:48
+
+能不特写就不特写<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  声优  
+##### 1453#       发表于 2024-2-25 18:50
+
+応援するよ   <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  好多听过的 这么怀旧的嘛 
+
+*****
+
+####  rgauss  
+##### 1454#       发表于 2024-2-25 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1455#       发表于 2024-2-25 18:51
+
+被喊出来了
+
+*****
+
+####  rgauss  
+##### 1456#       发表于 2024-2-25 18:51
+
+神神神神
+
+*****
+
+####  Seeley  
+##### 1457#       发表于 2024-2-25 18:51
+
+真有<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+那门司雪是不是也能想想
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  acacaclove  
+##### 1458#       发表于 2024-2-25 18:51
+
+<img src="https://img.saraba1st.com/forum/202402/25/185142xfbx1kiiy7nhnfn2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (149.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 18:51 上传
+
+爆爆爆爆
+
+*****
+
+####  馬斯特壺  
+##### 1459#       发表于 2024-2-25 18:52
+
+clover days<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mc凉月奏酱  
+##### 1460#       发表于 2024-2-25 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太欺负人了吧 一个腰部以上的特写镜头都不给 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1461#       发表于 2024-2-25 18:52
+
+是不是真会有アイル了
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lz741990563  
+##### 1462#       发表于 2024-2-25 18:52
+
+奶出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  声优  
+##### 1463#       发表于 2024-2-25 18:53
+
+来个 アイル呗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer"> 梦回下3rd幕张就在眼前
+
+
+*****
+
+####  馬斯特壺  
+##### 1464#       发表于 2024-2-25 18:55
+
+アイル不是act1的day2唱过了吗，不过也说不定
+
+*****
+
+####  acacaclove  
+##### 1465#       发表于 2024-2-25 18:55
+
+アイル唱过了也不是不能唱
+
+*****
+
+####  RhmBWT_Wu  
+##### 1466#       发表于 2024-2-25 18:56
+
+大的这就来了？
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Seeley  
+##### 1467#       发表于 2024-2-25 18:56
+
+rr@也这么早<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

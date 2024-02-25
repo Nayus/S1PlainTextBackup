@@ -47,3 +47,14 @@ sokobond express 3.5h 过了这么多关，感觉如果剩下关没有特别卡�
 确实很有spacechem的感觉；感觉作者在机制和难度上还是挺克制的，他一开始宣传的时候说sokobond+cosmic e ...</blockquote>
 确实克制，即使不加推动原子之前 sokobond 有个可以断键的红加号的机制也没放进来，有的话设计空间还能大很多，可能是考虑会让预览系统变复杂吧虽然我感觉也不是真的不兼容
 
+
+*****
+
+####  BRAVADO  
+##### 180#       发表于 2024-2-25 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64060565&amp;ptid=2017380" target="_blank">铃森冬 发表于 2024-2-25 13:59</a>
+
+确实克制，即使不加推动原子之前 sokobond 有个可以断键的红加号的机制也没放进来，有的话设计空间还能大 ...</blockquote>
+我似乎遇到了通关不跳成就的bug<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，当然我也可能理解错了那个成就的意思，可能有什么隐藏没发现？
+

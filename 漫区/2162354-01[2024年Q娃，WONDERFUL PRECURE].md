@@ -229,3 +229,13 @@ mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face20
 虽然但是，每个闪亮动物的宝石样子是不一样的（9个闪亮动物在OP里出现了6个） ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">原来是这样，好，脑洞被毙
 
+
+*****
+
+####  modedd  
+##### 1077#       发表于 2024-2-25 21:05
+
+说起来如果兔子一直不给进妮可乐园是在藏，那具体的原因会是是啥，进了就会变身/黑化？
+
+还是说他其实是会被羊直接认出来的q娃大腿/老板这种定位？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

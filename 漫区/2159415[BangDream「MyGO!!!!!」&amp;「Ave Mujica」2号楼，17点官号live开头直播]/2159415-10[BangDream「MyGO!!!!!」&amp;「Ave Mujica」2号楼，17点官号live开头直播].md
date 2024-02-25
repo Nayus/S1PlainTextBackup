@@ -1527,3 +1527,25 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 有时候比起对家同担更让我觉得离谱。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 13444#       发表于 2024-2-26 00:44
+
+感觉是大家的雷点和萌点没对上啊。。。
+有人觉得“记恨”是重女带来的萌点，是重女的一种表现；有人首先就接受不了“记恨”，认为是雷点，又被人按在了喜欢的角色上，自然不高兴。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  PDQ4  
+##### 13445#       发表于 2024-2-26 00:47
+
+角色理解都是汴京汴出来的，毕竟狗动画的剧本和演出都是优点，我觉得大部分基于动画的角色理解辅以访谈论证都是有讨论余地的。
+
+爽世姐的形象我自己脑内都汴京完十几轮了，可能也固步自封了，来点新视角。
+
+不得不说爽世是真的有意思，不愧是台长都认可的反派主角，着实下了笔墨。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

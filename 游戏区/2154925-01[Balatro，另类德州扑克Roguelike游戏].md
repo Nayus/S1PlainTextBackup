@@ -2645,3 +2645,19 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 想吐，有毒。。。</blockquote>
 负片不占格子只要不缺钱我都买，这个还有成长
 
+
+*****
+
+####  lilod  
+##### 236#       发表于 2024-2-26 00:36
+
+<img src="https://img.saraba1st.com/forum/202402/26/003544al8edllf7feadeaj.png" referrerpolicy="no-referrer">
+
+<strong>L$(MW2]`H(XN`M9}]37HS@U.png</strong> (310.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 00:35 上传
+
+回复楼上两位，不选有毒的蛋，得到的就是这个福报（好爽
+

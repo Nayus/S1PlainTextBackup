@@ -41,3 +41,21 @@
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  DARK_HGCG  
+##### 1058#       发表于 2024-2-25 07:45
+
+啊啊化妆了
+
+
+*****
+
+####  6030sylar  
+##### 1059#       发表于 2024-2-25 07:53
+
+猫猫拳
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

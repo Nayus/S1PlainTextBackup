@@ -2309,3 +2309,11 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 discord社区几个人做的校对版翻译 适配了1.0.0k
 
+
+*****
+
+####  妄想中毒  
+##### 205#       发表于 2024-2-25 15:24
+
+打了几天每次无尽模式都死在底注12，底注11boss100w分，底注12第一个盲注就要700w分<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+

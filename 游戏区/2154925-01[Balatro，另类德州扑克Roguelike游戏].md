@@ -2613,3 +2613,14 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 
 想吐，有毒。。。
 
+
+*****
+
+####  naclken.  
+##### 233#       发表于 2024-2-26 00:24
+
+同花强化简单顺手，突出一个无脑大范围换牌，没有就再换，换到不能换为止
+
+花色强化小丑牌+同花强化星球牌安排上，就是强度不太够一般会输惨。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1592,3 +1592,39 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 当然，这不意味着两个人从此老死不相往来，有可能两个人甚至能携手相伴一生，但唯独这件事永远都无法开解，这是我见到过的事
 
+
+*****
+
+####  acgreen  
+##### 13450#       发表于 2024-2-26 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065585&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-02-26 01:09:28</a>
+访谈不都已经说了是当拆团犯人所以强词夺理要睦帮忙复活crychic吗</blockquote>那是说第六话的爽世
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 13451#       发表于 2024-2-26 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065655&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 01:27</a>
+
+那是说第六话的爽世
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+也有可能持续下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得漏油被限制思路了，只能说以目前的情况来看，制作组对角色塑造是有比较有特色的想法的
+
+
+*****
+
+####  acgreen  
+##### 13452#       发表于 2024-2-26 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065637&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-26 01:20:27</a>
+人性从来就是有正有负的，你不能说负面的就不人性，相反这样有些无理取闹拎不清、明知自己没有道理也要 ...</blockquote>我觉得很人性啊，太人性了，能一起把睦当犯人的观众更是人性啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

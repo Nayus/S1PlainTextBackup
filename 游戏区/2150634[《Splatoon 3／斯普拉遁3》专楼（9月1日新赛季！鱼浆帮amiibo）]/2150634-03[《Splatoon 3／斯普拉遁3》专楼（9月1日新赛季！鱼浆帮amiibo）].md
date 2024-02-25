@@ -3620,3 +3620,25 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 哎妈，二代这潮流矩镇氛围太好了，比三代和一代的都好，三代入坑的，能不买二代就能体验到实属幸事，太棒了 ...</blockquote>
 祭典更好，特别是喜欢欧美风音乐的
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 3371#       发表于 2024-2-26 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065023&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-25 23:48</a>
+
+某XP3000的加特林使给的现环境排行是：鹦鹉螺、无印圆珠笔、无印中加、审查者、贴牌中加。审查者感觉单排 ...</blockquote>
+主要还是带动局势的能力差了点，看看以后贴牌会是什么配置
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3372#       发表于 2024-2-26 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065560&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-2-26 01:05</a>
+
+祭典更好，特别是喜欢欧美风音乐的</blockquote>
+迫不及待等祭典亲身体验下二代城镇祭典氛围
+

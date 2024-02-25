@@ -1990,3 +1990,93 @@ Macht Ewigkeit</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aptx8285144  
+##### 4008#       发表于 2024-2-25 23:38
+
+<img src="https://img.saraba1st.com/forum/202402/25/230610uxixetit7m7mr7q7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225230428.png</strong> (74.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:06 上传
+
+迪士尼翻译为我们，奶茶屋这里翻译为你
+
+<img src="https://img.saraba1st.com/forum/202402/25/230829pm0lxq0zulml0az9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225230812.png</strong> (60.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:08 上传
+
+这里奶茶屋翻译很顺畅
+
+<img src="https://img.saraba1st.com/forum/202402/25/231218jjm1zjt6ha34lw22.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225231200.png</strong> (43.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:12 上传
+
+我觉得1对1，面具男你可能会被上一代英雄打爆（
+
+<img src="https://img.saraba1st.com/forum/202402/25/231526wqbgyzd4hgqhqgrx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225231512.png</strong> (34.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:15 上传
+
+大老板海斯：其实都是马哈特自己感动自己的jpg，对面大哥的表情都快笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+马哈特：<strong>贤士是我的翅膀和盾牌</strong><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，彼方：太好了，快点过来我们一起寻找或分享新的翅膀们吧jpg
+
+<img src="https://img.saraba1st.com/forum/202402/25/232517ktep7qhr3tut5gk3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225232503.png</strong> (38.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:25 上传
+
+面具男跳反还需要一个平等相待的朋友？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/25/233043ajyxumkuqij1q3ym.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225233027.png</strong> (60.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:30 上传
+
+一辈子，那放在艾女士身上也是一样的吗jpg
+
+<img src="https://img.saraba1st.com/forum/202402/25/233256bgnctg6cxc6cwgmf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225233240.png</strong> (46.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:32 上传
+
+这里就感觉怎么翻都是“对的”奇特感（
+
+<img src="https://img.saraba1st.com/forum/202402/25/233500mfk8g8dfm0hllhhb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240225233443.png</strong> (69.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:35 上传
+
+艾达的批评内容（
+
+还没记录完，明天还要早起（
+

@@ -682,3 +682,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 —— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  livelive  
+##### 732#       发表于 2024-2-25 17:41
+
+目前观感最好的是场景设计，色调终于正常了，之前仁王卧龙包括最终幻想，都是大红大黑再加上特效光污染，完全不知道克制，闪瞎双眼...
+

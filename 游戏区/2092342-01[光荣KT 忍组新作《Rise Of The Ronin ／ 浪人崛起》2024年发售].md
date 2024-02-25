@@ -709,3 +709,11 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 这游戏ip是在光荣手上还是索尼手上啊..</blockquote>
 这次应该是索尼，忍者组连官网和官推都没有，宣发完全是索尼在做，等等看有没有SOP
 
+
+*****
+
+####  ff2077  
+##### 735#       发表于 2024-2-25 19:09
+
+© 2024 KOEI TECMO GAMES CO., LTD. Rise of the Ronin is a trademark of KOEI TECMO GAMES CO., LTD. Published by Sony Interactive Entertainment Inc.还索尼ip呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 星刃也不是索尼持有ip
+

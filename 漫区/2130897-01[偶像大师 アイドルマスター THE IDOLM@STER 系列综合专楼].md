@@ -3751,3 +3751,75 @@ rr@也这么早<img src="https://static.saraba1st.com/image/smiley/face2017/024.
 
 谢谢漏油的红包昨天今天太完美了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  acacaclove  
+##### 1473#       发表于 2024-2-25 19:08
+
+看得出导播尽力了
+
+*****
+
+####  RhmBWT_Wu  
+##### 1474#       发表于 2024-2-25 19:09
+
+梨衣熊得罪了谁是不是至今没定论
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kreis  
+##### 1475#       发表于 2024-2-25 19:10
+
+4th以来天和夏马都没在同一天出场过，cloverdays真没机会唱
+
+*****
+
+####  Vacuolar  
+##### 1476#       发表于 2024-2-25 19:10
+
+声优事务所的人，肯定没人知道
+
+*****
+
+####  Mc凉月奏酱  
+##### 1477#       发表于 2024-2-25 19:11
+
+好恶心啊 九个人她站中间，左机位照左边四个 右机位照右边四个 对话都不给镜头
+
+实在躲不开了就三人同框照到最后 真是反胃
+
+*****
+
+####  acacaclove  
+##### 1478#       发表于 2024-2-25 19:12
+
+日本老逼真的是司马了
+
+*****
+
+####  Seeley  
+##### 1479#       发表于 2024-2-25 19:12
+
+solo切的比小组还勤快，都这样了还能说什么<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  acacaclove  
+##### 1480#       发表于 2024-2-25 19:14
+
+<img src="https://img.saraba1st.com/forum/202402/25/191452k8lj3535qdqpap39.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 19:14 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">终于人齐了
+

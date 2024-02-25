@@ -1628,3 +1628,15 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  PDQ4  
+##### 13453#       发表于 2024-2-26 01:42
+
+我觉得漏油可以大胆一点，反正都没有定论都是讨论。
+
+如果按照老邦的思路，单看狗团内部，爽世利用爱音这件事就不可能这么不清不楚的结束，楚萍方暴言完了都追妻认错，ykn也是自己开口解释的。爽世的塑造明显突破了以前那种界限，甚至游戏里也在延续这种感觉。如果你说ccc的矛盾得鸡出了才能看，那ansy的塑造就彰显了制作组的大胆。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+敢爱敢恨的情绪化也是爽世的特色魅力，不过要是没有访谈拍板我确实也不敢把爽世这么想也是事实。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

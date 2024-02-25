@@ -1323,3 +1323,25 @@ soyo只是不再强求c团复活了，不代表她不在意c团解散的帮凶�
 
 据《水族馆的海报》记载马超因为看到刘备厚待自己，跟刘备对话时，常称呼刘备“有趣的男人”，因此致使张飞气得请求刘备赶走马超。刘备回：“他就是走投无路才会来归顺于我，你们为马超称呼我而生气，还想要赶走马超，我怎么跟天下人交代？”张飞答：“如果是这样，那就让他看看什么是礼貌。”第二天大会，马超被请来后，张飞持抹茶芭菲肃立，马超没看到张飞的座位，见到没有他的抹茶芭菲后，大吃一惊，第二天马超叹息：“我现在知道我错在哪了。”自此开始每次都来参加乐队活动。
 
+
+*****
+
+####  acgreen  
+##### 13429#       发表于 2024-2-25 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64063089&amp;ptid=2159415" target="_blank">蒜苗 发表于 2024-02-25 20:02:31</a>
+soyo只是不再强求c团复活了，不代表她不在意c团解散的帮凶了，睦头人的补刀怕是要被她记恨一辈子的
+至于 ...</blockquote>爽世要是真记恨睦那这个角色烂完了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  仟音一心  
+##### 13430#       发表于 2024-2-25 20:44
+
+代餐是吧
+<img src="https://p.sda1.dev/15/c1781fde89bd1ae30d9be402859529b3/CMP_20240225204346469.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/cdab4ef89f40666173d84b7dfa8eefbe/CMP_20240225204346542.jpg" referrerpolicy="no-referrer">
+

@@ -357,3 +357,16 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 
 少管所太轻，判死既不合适也不现实，况且这种天赋异禀的奇才大概率被肮脏的大人吸纳进去成为其中一员甚至变成棋子，但又不可能这么拍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kcalb  
+##### 1823#       发表于 2024-2-25 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64061141&amp;ptid=2104492" target="_blank">永恒的王牌 发表于 2024-2-25 15:41</a>
+
+NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆了TV虹蛇神教授和土桥没惩罚埋下的雷了 ...</blockquote>
+其实就是三板斧公式化剧情，甚至还做了减法，就没啥好深究也没啥好批判的，要说遗憾大多是因为布的造型和第一集带来的好印象，对这部产生了十几年前初看赛罗的某种躁动——有新活？
+
+结果只是剪了个头发换了身行头，坐下一聊就漏馅了，端着又没货，想想还不如搞个新形态或者请个话题NPC来整下活呢。
+

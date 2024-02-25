@@ -2528,3 +2528,20 @@ NS版没中文？
 
 少一次出牌，换来3次低难度的发育，等于多赚3次利息和3次商店购物的机会，通常输出差的不是那么一次的出牌机会，而是那点倍率<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就是剑鞘  
+##### 226#       发表于 2024-2-25 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64062747&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-25 19:25</a>
+
+一般来说如果能稳健通过当前的盲注 就得买
+
+多发育一轮基本上是赚的</blockquote>
+买了以后当前的盲注不就直接降级了。
+
+硬要说的话只有可能是连上一轮的同等级盲注都过得很艰难（少一次出牌都可能打不过）才有风险，但那种情况基本也捱过不去这一轮。
+
+我觉得有钱不买的唯一情况就是单纯冲高进阶，build成型后为了节约时间少打一轮。
+

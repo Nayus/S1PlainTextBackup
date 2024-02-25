@@ -258,3 +258,11 @@ mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face20
 我不知道某字幕组翻成茉优 是参考了声优相良茉优 还是峰田茉优
 但别忘了q娃有两位歌手一位叫工藤真由 另一位叫渡边麻友 起码这两位まゆ在q娃大友心里地位远远高于这上面两位まゆ吧
 
+
+*****
+
+####  杂灰  
+##### 1080#       发表于 2024-2-25 23:18
+
+变身后的部分看着实在太浪费人生了，虽然这年头指望不了什么打戏，但现在这感觉变身后都不知道在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

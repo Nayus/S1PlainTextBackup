@@ -2581,3 +2581,19 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  schneehertz  
+##### 231#         楼主| 发表于 2024-2-25 23:18
+
+<img src="https://img.saraba1st.com/forum/202402/25/231805dz0e83tvvajgc0gv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (495.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 23:18 上传
+
+橙注通过
+

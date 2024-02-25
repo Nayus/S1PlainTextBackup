@@ -2520,3 +2520,11 @@ NS版没中文？
 
 确实不错，不过对于我这种数学不好的还是有点思考，目前到几万就过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LLLLLuB  
+##### 225#       发表于 2024-2-25 20:24
+
+少一次出牌，换来3次低难度的发育，等于多赚3次利息和3次商店购物的机会，通常输出差的不是那么一次的出牌机会，而是那点倍率<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

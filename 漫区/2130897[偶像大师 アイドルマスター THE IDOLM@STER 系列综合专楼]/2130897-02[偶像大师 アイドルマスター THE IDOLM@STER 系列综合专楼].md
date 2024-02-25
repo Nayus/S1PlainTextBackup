@@ -572,3 +572,50 @@ md看困了
 
 就硬补39人的。crossing是吧
 
+
+*****
+
+####  acacaclove  
+##### 1552#       发表于 2024-2-25 20:14
+
+<img src="https://img.saraba1st.com/forum/202402/25/201424zjjml4x4qmy5jese.png" referrerpolicy="no-referrer">
+
+<strong></strong> (67.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 20:14 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 1553#       发表于 2024-2-25 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代哥终于意识到大家都喜欢怀旧了？
+
+*****
+
+####  RhmBWT_Wu  
+##### 1554#       发表于 2024-2-25 20:20
+
+只要我先ariga39了，她们就不会玩这个梗了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  acacaclove  
+##### 1555#       发表于 2024-2-25 20:20
+
+ありが39<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  声优  
+##### 1556#       发表于 2024-2-25 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 39
+

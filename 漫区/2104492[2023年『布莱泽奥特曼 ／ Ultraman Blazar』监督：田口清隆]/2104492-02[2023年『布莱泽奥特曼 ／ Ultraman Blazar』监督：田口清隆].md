@@ -335,3 +335,11 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 
 儿子在客厅看着，我这屋听着，听到50米那句台词喷了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1821#       发表于 2024-2-25 20:23
+
+田口这边是下限有保证，上限待突破，剧本还是欠打磨。
+

@@ -638,3 +638,15 @@ emo在自己的活动上也唱了自己写的原创曲
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ads147147  
+##### 19703#       发表于 2024-2-25 20:18
+
+结哥新颜艺吓到了。。
+
+缪来直接去广州，有点好啊
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

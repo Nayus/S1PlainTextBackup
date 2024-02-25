@@ -136,3 +136,11 @@
 心形胎记是不是代表一种资质呢，一种转化为闪亮动物的资质，对镜石的许愿就是一种转变的仪式，另外9只闪亮动物是不是前代q娃的动物伙伴啊；
 最后出现9只闪亮动物填尼克花园的窟窿不够了，小麦小雪和追加战士被迫填进去之类的。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 1068#       发表于 2024-2-25 15:43
+
+mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

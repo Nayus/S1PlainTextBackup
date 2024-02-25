@@ -1648,3 +1648,16 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 不知道你想表达什么观点，那12集的素世还能怎么理解，不就是在闹脾气吗，难道非得说是什么正面的特别的感情？本身从客观行为上不管其他人意见自己退货就已经十分失礼更别说对人造成的伤害了，访谈已经这么毫不掩饰地坦白了我只能感觉到素世到13集也没成长明白，当然从这点上看剧本在素世塑造这块确实可以说有点用力过猛有点反效果(高情商：十分大胆)
 
+
+*****
+
+####  ddy2811  
+##### 13455#       发表于 2024-2-26 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065667&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 01:31</a>
+
+我觉得很人性啊，太人性了，能一起把睦当犯人的观众更是人性啊
+
+  -- 来自 能搜索的 Stage1官方 And ...</blockquote>
+有人觉得她是犯人，有人觉得她不是，有人因此喜欢她，有人因此厌恶她，这都是人性的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

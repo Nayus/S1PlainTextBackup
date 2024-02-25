@@ -343,3 +343,17 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 
 田口这边是下限有保证，上限待突破，剧本还是欠打磨。
 
+
+*****
+
+####  nonodundun  
+##### 1822#       发表于 2024-2-25 20:32
+
+没第一时间看，可能是因为看了剧透和一些差评，看完没想象那么糟糕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本来的预期就是痛快打一场，砸砸国会大楼，看看特摄拍得怎样，结果就是，还行；有几句台词听着还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然这个小孩确实逆天，我感觉最好的结局就是意识到自己的错误然后去和怪兽自爆
+
+少管所太轻，判死既不合适也不现实，况且这种天赋异禀的奇才大概率被肮脏的大人吸纳进去成为其中一员甚至变成棋子，但又不可能这么拍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

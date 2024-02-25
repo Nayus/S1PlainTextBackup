@@ -619,3 +619,106 @@ md看困了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 39
 
+
+*****
+
+####  rgauss  
+##### 1557#       发表于 2024-2-25 20:28
+
+ありがとう<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1558#       发表于 2024-2-25 20:28
+
+アイマス！
+
+*****
+
+####  rgauss  
+##### 1559#       发表于 2024-2-25 20:29
+
+アイマスーー
+
+*****
+
+####  RhmBWT_Wu  
+##### 1560#       发表于 2024-2-25 20:29
+
+アイマス!
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Seeley  
+##### 1561#       发表于 2024-2-25 20:29
+
+アイマス
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Vacuolar  
+##### 1562#       发表于 2024-2-25 20:31
+
+最后还有一点点事故，这才是百万
+
+*****
+
+####  Vacuolar  
+##### 1563#       发表于 2024-2-25 20:32
+
+kraz，又是你
+
+*****
+
+####  rgauss  
+##### 1564#       发表于 2024-2-25 20:32
+
+kraz<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Seeley  
+##### 1565#       发表于 2024-2-25 20:32
+
+kraz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RhmBWT_Wu  
+##### 1566#       发表于 2024-2-25 20:32
+
+又是kraz<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acacaclove  
+##### 1567#       发表于 2024-2-25 20:33
+
+アイマス
+
+*****
+
+####  黛冬优子  
+##### 1568#       发表于 2024-2-25 20:33
+
+太可爱了kraz
+
+*****
+
+####  黛冬优子  
+##### 1569#       发表于 2024-2-25 20:34
+
+还有高手？
+

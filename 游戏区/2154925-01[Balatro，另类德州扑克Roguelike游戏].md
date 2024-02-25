@@ -2501,3 +2501,14 @@ NS版没中文？
 
 多发育一轮基本上是赚的
 
+
+*****
+
+####  鸳鸳相抱  
+##### 223#       发表于 2024-2-25 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64062441&amp;ptid=2154925" target="_blank">dtq1997 发表于 2024-2-25 18:45</a>
+
+感觉这个游戏很懂roguelike的爽点，叠倍率的设计非常令人舒适</blockquote>
+而且弃牌的选择和鬼牌的排列给回合制游戏带来了一丢丢并不机械的操作空间，又没有丢掉回合制游戏的节奏
+

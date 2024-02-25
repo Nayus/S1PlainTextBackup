@@ -492,3 +492,11 @@ bug吧，但是我打的时候是正常打完的，不清楚你是触发了什�
 
 通了，突然贤者了，有无类似的游戏推荐啊
 
+
+*****
+
+####  孔祈  
+##### 4051#       发表于 2024-2-25 19:30
+
+刷无名英雄刷吐了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

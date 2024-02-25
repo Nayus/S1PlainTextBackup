@@ -3383,3 +3383,15 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DeltaStriker  
+##### 3349#       发表于 2024-2-25 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64059967&amp;ptid=2150634" target="_blank">Dedalus 发表于 2024-2-25 12:34</a>
+你游以后能不能给特工换把武器别小绿了，英雄模式送一把dlc送两把加上原本的两把快凑一局游戏了，哪怕换个 ...</blockquote>
+因为在ika研眼里 小绿是“标准”的小枪 其他的小枪相当于继承基类的子类()
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

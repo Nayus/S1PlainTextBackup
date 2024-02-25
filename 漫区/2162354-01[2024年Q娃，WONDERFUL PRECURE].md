@@ -85,3 +85,13 @@
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  夕才  
+##### 1063#       发表于 2024-2-25 12:53
+
+<img src="https://p.sda1.dev/15/04b9efa12bb9fe01eb5bb7be769d9859/9101d692fafc5a9c54dba0afda386fb3.jpg" referrerpolicy="no-referrer">
+
+“想抽你一巴掌，但是又怕你舔我的手”
+

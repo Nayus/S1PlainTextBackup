@@ -327,3 +327,11 @@ b站简介已官方剧透
 
 NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆了TV虹蛇神教授和土桥没惩罚埋下的雷了
 
+
+*****
+
+####  KDConan  
+##### 1820#       发表于 2024-2-25 17:34
+
+儿子在客厅看着，我这屋听着，听到50米那句台词喷了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

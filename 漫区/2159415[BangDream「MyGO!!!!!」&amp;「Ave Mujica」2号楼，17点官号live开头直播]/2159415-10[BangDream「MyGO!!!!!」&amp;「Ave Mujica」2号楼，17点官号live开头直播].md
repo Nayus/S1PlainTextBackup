@@ -1158,3 +1158,94 @@ MYGO live结 ...</blockquote>
 
 香澄和灯的跨频道对话。
 
+
+*****
+
+####  御幸一也  
+##### 13421#       发表于 2024-2-25 17:29
+
+團建DLC還有！<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+[https://twitter.com/AkaneY_banu/status/1761683345883509165](https://twitter.com/AkaneY_banu/status/1761683345883509165)
+[https://www.instagram.com/p/C3w-WisyhEy/?igsh=Y2M3Z3BwYTMxdWxv](https://www.instagram.com/p/C3w-WisyhEy/?igsh=Y2M3Z3BwYTMxdWxv)
+
+<img src="https://img.saraba1st.com/forum/202402/25/172818k3nm3wzvnssn2uss.png" referrerpolicy="no-referrer">
+
+<strong>429775686_7357779771003423_4467634178507862787_n.png</strong> (172.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172820je58739pb2b558eq.png" referrerpolicy="no-referrer">
+
+<strong>429940811_1123137375494040_5755244526339481029_n.png</strong> (182.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172827vjct7fdh3ddnd3nb.png" referrerpolicy="no-referrer">
+
+<strong>429486832_1107146627099033_5774701124922575057_n.png</strong> (291.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172832fn5pog9fp3v55x3p.png" referrerpolicy="no-referrer">
+
+<strong>429793196_915817146939747_1066629435544610894_n.png</strong> (183.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172838dwi9z4jcfa84fq9z.png" referrerpolicy="no-referrer">
+
+<strong>429577585_1412822336008911_2182203173906786407_n.png</strong> (249.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172843qbm8lp0azbppokmb.png" referrerpolicy="no-referrer">
+
+<strong>429679136_408649728187288_6349168406492996472_n.png</strong> (184.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172848ktoshw0gfe3fxesu.png" referrerpolicy="no-referrer">
+
+<strong>429655505_1441021400105202_988302914854861420_n.png</strong> (149.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172852ugavfvqaqx7aapzv.png" referrerpolicy="no-referrer">
+
+<strong>429780064_943259557171858_5001699591002364628_n.png</strong> (121.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172901uhihrz7iejew2fbx.png" referrerpolicy="no-referrer">
+
+<strong>429508096_1064171354691681_1664169420874004404_n.png</strong> (136.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/172856tzx2beac792fpc2h.png" referrerpolicy="no-referrer">
+
+<strong>429775954_1167839351254246_194473222625574696_n.png</strong> (65.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 17:28 上传
+

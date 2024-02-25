@@ -870,3 +870,11 @@ act4没能现地已经成为遗憾了...
 
 难说，4th武道馆我也以为百万要开始光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天球仪观测者  
+##### 1586#       发表于 2024-2-26 03:49
+
+难道ccly真的得罪大人了🐴
+

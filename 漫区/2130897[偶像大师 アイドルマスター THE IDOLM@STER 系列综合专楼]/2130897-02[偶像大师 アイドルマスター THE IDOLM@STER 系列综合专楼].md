@@ -824,3 +824,13 @@ act4没能现地已经成为遗憾了...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等clover新曲了
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1581#       发表于 2024-2-26 01:00
+
+<img src="https://p.sda1.dev/15/053ecdc21d4b43d031bad6874e59eb44/Image_1708878520485.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

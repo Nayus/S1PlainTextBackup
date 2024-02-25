@@ -9857,3 +9857,18 @@ p2p联机，别挂代理
 另外请教下超级货币是攒1000解锁高阶通行证还是直 ...</blockquote>
 高级债券可能只有第三页的主宰解锁比普通债券最后一页的焦土快这一个优点......
 
+
+*****
+
+####  xinfengj  
+##### 1002#       发表于 2024-2-26 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64048100&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-23 22:15</a>
+
+肯定完成不了，那个越南小溪星的进度简直惨。
+
+其实机器人难9守卫战，带16个迫击炮是刷奖章和经验最有效率的 ...</blockquote>
+早就修了，还卡迫击炮
+
+换文件退版本倒是能卡 飞机下来就闪退
+

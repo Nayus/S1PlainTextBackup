@@ -1549,3 +1549,14 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 不得不说爽世是真的有意思，不愧是台长都认可的反派主角，着实下了笔墨。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13446#       发表于 2024-2-26 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065342&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-26 00:29:37</a>
+我觉得这就是人性，而就像爱音所说“soyo还是很有人性的”，知道这个又怎么样？知道这没意义又怎么样？知 ...</blockquote>如果爽世是认为自己珍惜的乐队生活在睦眼中并不开心，感到情感很受伤讨厌睦，我能接受。如果是把睦当做拆团的犯人记恨，那我觉得这个人没有审视自我的能力，那可太人性了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

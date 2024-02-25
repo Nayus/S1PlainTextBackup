@@ -3600,3 +3600,13 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 小猫戴耳机的剧情坑不会扔到喷4去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 3369#         楼主| 发表于 2024-2-26 00:56
+
+<blockquote>笔仁SaSaSa 发表于 2024-2-26 00:05
+小猫戴耳机的剧情坑不会扔到喷4去了吧</blockquote>
+板上钉钉的事情有啥好说的233，2代玩家打了6年工才在3代知道熊老板想干吗
+

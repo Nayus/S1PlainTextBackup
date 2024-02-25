@@ -9677,3 +9677,11 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 熟悉了打运兵船之后感觉效率直线上升，去防守战练了练，现在机器人我就空袭+磁轨+个人护盾+EAT，只要没能 ...</blockquote>
 准啊   
 
+
+*****
+
+####  白昼梦  
+##### 985#       发表于 2024-2-25 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">发现匹配到低难度的时候带电弧枪和激光犬遨游起来有点大脑按摩啊
+

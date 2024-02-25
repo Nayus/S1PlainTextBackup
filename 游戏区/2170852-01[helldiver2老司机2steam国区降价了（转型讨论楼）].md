@@ -9667,3 +9667,13 @@ https://www.playstation.com/zh-hans-hk/games/helldivers-2/</blockquote>
 
 熟悉了打运兵船之后感觉效率直线上升，去防守战练了练，现在机器人我就空袭+磁轨+个人护盾+EAT，只要没能打掉发信号弹的杂鱼来了运兵船，我直接原地叫EAT打运兵船<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  東云研究所  
+##### 984#       发表于 2024-2-25 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64057970&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-25 01:42</a>
+熟悉了打运兵船之后感觉效率直线上升，去防守战练了练，现在机器人我就空袭+磁轨+个人护盾+EAT，只要没能 ...</blockquote>
+准啊   
+

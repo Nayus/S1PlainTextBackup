@@ -2238,3 +2238,26 @@ steam端的同时在线人数稳定在25k周围。有0.2%的人击败了金注�
 
 但这个牌组千万就是不能遇到人头牌无效的boss……遇到了不能10块钱把boss给roll掉就只能重开了
 
+
+*****
+
+####  naclken.  
+##### 198#       发表于 2024-2-25 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这卡组能不能拿到不都是看运气？
+
+运气不好要怎么赢
+
+
+*****
+
+####  稲穂信  
+##### 199#       发表于 2024-2-25 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64059252&amp;ptid=2154925" target="_blank">naclken. 发表于 2024-2-25 10:49</a>
+
+这卡组能不能拿到不都是看运气？
+
+运气不好要怎么赢</blockquote>
+运气不好就重开吧，这游戏运气成分挺大的
+

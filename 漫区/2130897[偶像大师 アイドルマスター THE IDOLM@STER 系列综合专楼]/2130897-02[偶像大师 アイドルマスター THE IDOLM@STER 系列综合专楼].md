@@ -862,3 +862,11 @@ act4没能现地已经成为遗憾了...
 
 百万好不容易敲开梦的门扉也一定要有一个新的开始啊<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kreis  
+##### 1585#       发表于 2024-2-26 02:29
+
+难说，4th武道馆我也以为百万要开始光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

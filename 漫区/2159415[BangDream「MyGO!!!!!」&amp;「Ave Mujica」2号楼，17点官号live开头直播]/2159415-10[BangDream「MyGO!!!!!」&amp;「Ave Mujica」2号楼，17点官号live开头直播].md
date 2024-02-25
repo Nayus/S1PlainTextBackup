@@ -1683,3 +1683,19 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ddy2811  
+##### 13458#       发表于 2024-2-26 02:25
+
+ 本帖最后由 ddy2811 于 2024-2-26 02:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065852&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 02:14</a>
+
+部分观众在进入人性车轱辘前得仔细看一下动画，如果搞错一些基本的东西就别人不人性了
+
+  -- 来自 能看大图 ...</blockquote>
+我觉得理解和观念本来就是多样的，就算对行为有了同样的认识，每个人的看法依然是会天差地别的，正如你觉得爽世记恨睦就烂完了，那我还觉得她没这点脾气就不那么有魅力了呢，再说了真要抠访谈明明是你比较对不上
+
+至于那句话要怎么算，睦不在阴阳不代表其他人听着就不是阴阳
+

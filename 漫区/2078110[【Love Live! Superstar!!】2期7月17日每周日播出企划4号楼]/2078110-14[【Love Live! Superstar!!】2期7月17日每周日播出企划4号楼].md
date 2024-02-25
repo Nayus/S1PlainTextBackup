@@ -628,3 +628,13 @@ emo在自己的活动上也唱了自己写的原创曲
 
 啥？药皂团来？
 
+
+*****
+
+####  starring  
+##### 19702#       发表于 2024-2-25 20:11
+
+今天的拼盘，垫音音量太大都听得出原曲，直接用CD没有重新录11人版
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

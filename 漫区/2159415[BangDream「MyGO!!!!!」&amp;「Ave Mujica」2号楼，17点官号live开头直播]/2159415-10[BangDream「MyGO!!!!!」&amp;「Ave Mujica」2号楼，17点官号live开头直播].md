@@ -1661,3 +1661,25 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
   -- 来自 能搜索的 Stage1官方 And ...</blockquote>
 有人觉得她是犯人，有人觉得她不是，有人因此喜欢她，有人因此厌恶她，这都是人性的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13456#       发表于 2024-2-26 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065807&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-26 01:58:37</a>
+有人觉得她是犯人，有人觉得她不是，有人因此喜欢她，有人因此厌恶她，这都是人性的一部分 ...</blockquote>部分观众在进入人性车轱辘前得仔细看一下动画，如果搞错一些基本的东西就别人不人性了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  acgreen  
+##### 13457#       发表于 2024-2-26 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065786&amp;ptid=2159415" target="_blank">allesdg 发表于 2024-02-26 01:51:20</a>
+不知道你想表达什么观点，那12集的素世还能怎么理解，不就是在闹脾气吗，难道非得说是什么正面的特别的感情 ...</blockquote>闹脾气和记恨两码事，记恨就跟认为睦说“太好了呢”是在阴阳爽世一样令人感觉莫名其妙
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

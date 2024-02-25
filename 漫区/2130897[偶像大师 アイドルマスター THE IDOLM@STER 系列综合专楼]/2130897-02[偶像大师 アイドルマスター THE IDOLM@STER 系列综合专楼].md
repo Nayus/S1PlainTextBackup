@@ -852,3 +852,13 @@ act4没能现地已经成为遗憾了...
 直播都没看，梨衣熊咋了</blockquote>
 组合曲不给镜头 solo曲不给怼脸镜头 只有中远镜头 合唱基本不给镜头 给了也很快切了
 
+
+*****
+
+####  acacaclove  
+##### 1584#       发表于 2024-2-26 02:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+百万好不容易敲开梦的门扉也一定要有一个新的开始啊<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+

@@ -1938,3 +1938,20 @@ Macht Ewigkeit</blockquote>
 
 滤镜误导了发色, 但这和黑假面还是有点差别啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">  只能说故意误导观众把他看成Kanata了
 
+
+*****
+
+####  cauchua2  
+##### 4003#       发表于 2024-2-25 21:18
+
+截止到18话这男主机体是不是升级最慢的萝卜番主角机了。在设定上真正升级的也就是鬼角，说是提升探测能力。
+
+其他换手换脚也就战地抢修水平，18话换上去的手脚是爱迪尔杂兵量产机的手脚吧
+
+*****
+
+####  cybernetics31  
+##### 4004#       发表于 2024-2-25 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么fw的男主也是很久没见过了
+

@@ -1357,3 +1357,31 @@ soyo只是不再强求c团复活了，不代表她不在意c团解散的帮凶�
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 又不是要报仇，只是记一下罢了，怎么就烂完了
 
+
+*****
+
+####  swessia  
+##### 13432#       发表于 2024-2-25 21:21
+
+【IF-哔哩哔哩】 [https://b23.tv/YsKL4pw](https://b23.tv/YsKL4pw)
+
+Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
+(114.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202402/25/212029yhyyvlht3zyll4lo.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acgreen  
+##### 13433#       发表于 2024-2-25 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64063727&amp;ptid=2159415" target="_blank">蒜苗 发表于 2024-02-25 21:08:26</a>
+又不是要报仇，只是记一下罢了，怎么就烂完了</blockquote>爽世“寻找犯人”这事本来就很抽象了，第六话这样思考，到第十二话还能这样思考？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

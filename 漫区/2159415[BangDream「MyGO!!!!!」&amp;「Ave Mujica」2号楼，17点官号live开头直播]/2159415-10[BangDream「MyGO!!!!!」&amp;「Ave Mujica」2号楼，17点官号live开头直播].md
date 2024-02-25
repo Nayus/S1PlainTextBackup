@@ -1711,3 +1711,16 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ddy2811  
+##### 13460#       发表于 2024-2-26 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065929&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 02:45</a>
+
+首先，别对座入号。
+
+爽世记不记恨睦访谈没有定论，我更是不在乎她记不记恨，她记恨只是显得某些言论更搞笑 ...</blockquote>
+睦在不在阴阳、我觉不觉得在阴阳和素世听着是不是阴阳完全不是一回事，就比如这次巡演李子回复青木说她吉他英雄，但这次除了羊就她翻得最厉害，这话很可能并没有阴阳的意思，但有人听着像阴阳也在所难免吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

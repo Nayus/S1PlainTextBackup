@@ -1560,3 +1560,21 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Aendst  
+##### 13447#       发表于 2024-2-26 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065529&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 01:00</a>
+
+如果爽世是认为自己珍惜的乐队生活在睦眼中并不开心，感到情感很受伤讨厌睦，我能接受。如果是把睦当做拆团 ...</blockquote>
+访谈不都已经说了是当拆团犯人所以强词夺理要睦帮忙复活crychic吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 13448#       发表于 2024-2-26 01:12
+
+其实这个讨论也是轮回来着，访谈刚出的时候漏油都表示真敢说，竟然真的朝着这种负面感情的方向去塑造还锤了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

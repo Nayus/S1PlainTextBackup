@@ -114,3 +114,25 @@
 
 这集连跑步抓怪都能崩，真打起来怕是全PPT了，还是就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最强惠酱  
+##### 1066#       发表于 2024-2-25 14:51
+
+你朋友名字怎么和狗一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+彩羽对羊和对新朋友的态度完全不一样啊，要是撩完上学后也是这样聊几句就去找其他朋友玩那mayu得变成garugaru了
+
+建议马上给羊兄整个帅哥形象方便和眼睛拉郎配<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天风绯炎  
+##### 1067#       发表于 2024-2-25 14:51
+
+脑洞一下，已知闪亮动物有心性宝石，小麦小雪有心性胎记，镜石和尼可花园有千丝万缕的关系；
+
+心形胎记是不是代表一种资质呢，一种转化为闪亮动物的资质，对镜石的许愿就是一种转变的仪式，另外9只闪亮动物是不是前代q娃的动物伙伴啊；
+最后出现9只闪亮动物填尼克花园的窟窿不够了，小麦小雪和追加战士被迫填进去之类的。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

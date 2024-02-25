@@ -1578,3 +1578,17 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 其实这个讨论也是轮回来着，访谈刚出的时候漏油都表示真敢说，竟然真的朝着这种负面感情的方向去塑造还锤了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13449#       发表于 2024-2-26 01:20
+
+ 本帖最后由 ddy2811 于 2024-2-26 01:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065529&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 01:00</a>
+
+如果爽世是认为自己珍惜的乐队生活在睦眼中并不开心，感到情感很受伤讨厌睦，我能接受。如果是把睦当做拆团 ...</blockquote>
+人性从来就是有正有负的，你不能说负面的就不人性，相反这样有些无理取闹拎不清、明知自己没有道理也要保持下去的记恨是真的很人性的
+
+当然，这不意味着两个人从此老死不相往来，有可能两个人甚至能携手相伴一生，但唯独这件事永远都无法开解，这是我见到过的事
+

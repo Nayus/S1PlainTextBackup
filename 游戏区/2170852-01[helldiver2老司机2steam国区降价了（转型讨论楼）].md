@@ -9800,3 +9800,16 @@ p2p联机，别挂代理
 
 另外请教下超级货币是攒1000解锁高阶通行证还是直接买商店里的甲？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绯想天の天子  
+##### 997#       发表于 2024-2-25 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64062735&amp;ptid=2170852" target="_blank">狂风DKC 发表于 2024-2-25 19:24</a>
+感谢诸位解答，刚玩还在摸索阶段，浪费不少时间。
+
+另外请教下超级货币是攒1000解锁高阶通行证还是直 ...</blockquote>
+高级债券给的东西目前都不算好用，先不推荐解锁。
+目前护甲装甲值有bug不生效，超级货币想买的话推荐买商店里特性不错的轻甲。
+

@@ -3459,3 +3459,15 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 破船这个配置有点让人害怕
 
+
+*****
+
+####  KBAC  
+##### 3356#       发表于 2024-2-25 19:41
+
+【【Splatoon3黑暗】秩序篇Boss们的灵魂在歌唱?!?!-哔哩哔哩】 https://b23.tv/Rf5thRm
+
+还以为Boss的声音是哪来的鱿叫，原来是Octo最后那两首歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

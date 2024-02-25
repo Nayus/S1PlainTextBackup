@@ -103,3 +103,91 @@ maimai百万唯一指定曲<img src="https://static.saraba1st.com/image/smiley/f
 
 <img src="https://img.saraba1st.com/forum/202402/25/193540az9xc5thqqskstzx.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 1493#       发表于 2024-2-25 19:38
+
+炸鸡这一嗓子牛的
+
+*****
+
+####  黛冬优子  
+##### 1494#       发表于 2024-2-25 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">被jungo拿捏了，我只能说《伟大！》
+
+*****
+
+####  声优  
+##### 1495#       发表于 2024-2-25 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">   马池口
+
+*****
+
+####  馬斯特壺  
+##### 1496#       发表于 2024-2-25 19:41
+
+十年了小翅膀怎么还在初级篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1497#       发表于 2024-2-25 19:42
+
+没想到听solo1能听这么泪目
+
+*****
+
+####  RhmBWT_Wu  
+##### 1498#       发表于 2024-2-25 19:43
+
+答案是拿捏p只需要初级篇就够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  声优  
+##### 1499#       发表于 2024-2-25 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">  未来飞行！
+
+*****
+
+####  rgauss  
+##### 1500#       发表于 2024-2-25 19:44
+
+开飞
+
+*****
+
+####  acacaclove  
+##### 1501#       发表于 2024-2-25 19:44
+
+飞！
+
+*****
+
+####  rgauss  
+##### 1502#       发表于 2024-2-25 19:46
+
+full啊
+
+*****
+
+####  acacaclove  
+##### 1503#       发表于 2024-2-25 19:46
+
+居然是full
+
+*****
+
+####  Vacuolar  
+##### 1504#       发表于 2024-2-25 19:47
+
+哇，到位到位
+

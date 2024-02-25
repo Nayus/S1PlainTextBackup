@@ -1123,3 +1123,19 @@ MYGO live结 ...</blockquote>
 
 丰川阿瞒，若叶庶，八幡文远，贾喵梦，夏侯初华
 
+
+*****
+
+####  紫吹兰  
+##### 13418#         楼主| 发表于 2024-2-25 14:14
+
+突击莉莉什么时候追加的直田
+
+<img src="https://img.saraba1st.com/forum/202402/25/141520nxpeu5tooattxtlx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-25-14-12-58-020_tv.danmaku.bili.jpg</strong> (211.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 14:15 上传
+

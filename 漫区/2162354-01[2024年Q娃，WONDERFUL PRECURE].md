@@ -218,3 +218,14 @@ mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 光美的制作组已经穷到没钱给打戏作画的地步了吗？这集的作画更是突破下限了呀
 
+
+*****
+
+####  天风绯炎  
+##### 1076#       发表于 2024-2-25 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64061753&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-2-25 17:15</a>
+
+虽然但是，每个闪亮动物的宝石样子是不一样的（9个闪亮动物在OP里出现了6个） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">原来是这样，好，脑洞被毙
+

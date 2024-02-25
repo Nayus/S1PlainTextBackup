@@ -2477,3 +2477,27 @@ NS版没中文？
 
 象形文字值得买吗？总觉得少了一次出牌数好亏
 
+
+*****
+
+####  就是剑鞘  
+##### 221#       发表于 2024-2-25 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64062531&amp;ptid=2154925" target="_blank">稲穂信 发表于 2024-2-25 18:55</a>
+
+象形文字值得买吗？总觉得少了一次出牌数好亏</blockquote>
+有钱必买吧，不存在多出一次牌能打过、多发育一轮反而打不过的情况。
+
+
+*****
+
+####  库德里尔  
+##### 222#       发表于 2024-2-25 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64062531&amp;ptid=2154925" target="_blank">稲穂信 发表于 2024-2-25 18:55</a>
+
+象形文字值得买吗？总觉得少了一次出牌数好亏</blockquote>
+一般来说如果能稳健通过当前的盲注 就得买
+
+多发育一轮基本上是赚的
+

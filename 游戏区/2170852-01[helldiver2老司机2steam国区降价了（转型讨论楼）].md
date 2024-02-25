@@ -9790,3 +9790,13 @@ p2p联机，别挂代理
 
 信标是可以粘在敌人（和自己人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> ）身上的，扔准了轨道精准攻击可以一发秒重甲
 
+
+*****
+
+####  狂风DKC  
+##### 996#       发表于 2024-2-25 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感谢诸位解答，刚玩还在摸索阶段，浪费不少时间。
+
+另外请教下超级货币是攒1000解锁高阶通行证还是直接买商店里的甲？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

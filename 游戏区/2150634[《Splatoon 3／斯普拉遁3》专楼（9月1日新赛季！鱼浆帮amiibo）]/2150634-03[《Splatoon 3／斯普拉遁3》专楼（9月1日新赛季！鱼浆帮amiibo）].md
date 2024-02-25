@@ -3451,3 +3451,11 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 [https://www.youtube.com/live/tD- ... ILhdzVn4&amp;t=2343](https://www.youtube.com/live/tD-xFe4ZGBo?si=5iyGYAqVILhdzVn4&amp;t=2343)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3355#       发表于 2024-2-25 19:17
+
+破船这个配置有点让人害怕
+

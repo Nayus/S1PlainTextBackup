@@ -2389,3 +2389,16 @@ discord社区几个人做的校对版翻译 适配了1.0.0k
 
 结束了
 
+
+*****
+
+####  schneehertz  
+##### 212#         楼主| 发表于 2024-2-25 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64061520&amp;ptid=2154925" target="_blank">fuochai 发表于 2024-2-25 16:45</a>
+
+流浪者给占卜师和吸血鬼喂buff打到11层了 但是数值膨胀的厉害 一直打同花顺都顶不住 加蓝值的太少了
+
+用捷径 ...</blockquote>
+牌型等级够高的时候加蓝加红的牌都没什么用，后期都要抓倍率鬼牌，尤其是对每张手牌生效的倍率鬼牌
+

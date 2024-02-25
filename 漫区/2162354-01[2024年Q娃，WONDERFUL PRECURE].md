@@ -162,3 +162,16 @@ mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 另外小麦人变回狗没2分钟就遇怪又变成人了硬放bank的感觉太明显了……感觉小麦这2bank每集固定必须要放一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1070#       发表于 2024-2-25 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64060841&amp;ptid=2162354" target="_blank">天风绯炎 发表于 2024-2-25 14:51</a>
+
+脑洞一下，已知闪亮动物有心形宝石，小麦小雪有心形胎记，镜石和尼可花园有千丝万缕的关系；
+
+心形胎记是不 ...</blockquote>
+虽然但是，每个闪亮动物的宝石样子是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（9个闪亮动物在OP里出现了6个）
+

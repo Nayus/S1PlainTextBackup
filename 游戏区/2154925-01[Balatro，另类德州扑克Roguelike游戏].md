@@ -2571,3 +2571,13 @@ NS版没中文？
 
 一开始我也犹豫买不买象形文字。后来算了算，4出牌次数-1次，也就是从1倍变成0.75倍，只要一轮发育能超过1.33倍就赚了。而且出牌次数这种东西属于是第一下最猛，越往后越萎，除非只打高牌之类的
 
+
+*****
+
+####  a4ac7  
+##### 230#       发表于 2024-2-25 22:40
+
+double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

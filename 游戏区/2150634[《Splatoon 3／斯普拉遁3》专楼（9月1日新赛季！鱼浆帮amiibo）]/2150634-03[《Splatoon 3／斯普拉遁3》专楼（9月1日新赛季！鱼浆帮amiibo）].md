@@ -3530,3 +3530,14 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 2倍珍珠还是比之前单色少了一大截，单色调色盘的加成太夸张了
 
+
+*****
+
+####  秋月孝三  
+##### 3362#       发表于 2024-2-25 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肝、肝完了
+<img src="https://p.sda1.dev/15/b8301cf63b3fae274d361f12c0dc836a/CMP_20240225224402275.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

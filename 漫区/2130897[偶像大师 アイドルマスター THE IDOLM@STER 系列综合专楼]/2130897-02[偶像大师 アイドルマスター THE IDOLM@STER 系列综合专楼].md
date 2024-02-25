@@ -191,3 +191,140 @@ full啊
 
 哇，到位到位
 
+
+*****
+
+####  馬斯特壺  
+##### 1505#       发表于 2024-2-25 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1506#       发表于 2024-2-25 19:48
+
+听得出状态不好，但到位，真的到位
+
+*****
+
+####  Vacuolar  
+##### 1507#       发表于 2024-2-25 19:49
+
+哇，真哭了吧
+
+*****
+
+####  rgauss  
+##### 1508#       发表于 2024-2-25 19:49
+
+union
+
+*****
+
+####  acacaclove  
+##### 1509#       发表于 2024-2-25 19:49
+
+union<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Seeley  
+##### 1510#       发表于 2024-2-25 19:49
+
+union<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RhmBWT_Wu  
+##### 1511#       发表于 2024-2-25 19:49
+
+果然来了
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  微尘众  
+##### 1512#       发表于 2024-2-25 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 1513#       发表于 2024-2-25 19:51
+
+虽然没アイル可惜这两天满足了暂时和jungo和解了
+
+*****
+
+####  Kiraru  
+##### 1514#       发表于 2024-2-25 19:52
+
+union<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1515#       发表于 2024-2-25 19:54
+
+この歌声が UNION!!
+この歌声が MILLION!
+
+
+*****
+
+####  acacaclove  
+##### 1516#       发表于 2024-2-25 19:54
+
+<img src="https://img.saraba1st.com/forum/202402/25/195437cr9rdxohkyrbbd7d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (188.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-25 19:54 上传
+
+million！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 1517#       发表于 2024-2-25 19:54
+
+小的又要来了
+
+*****
+
+####  natmk  
+##### 1518#       发表于 2024-2-25 19:54
+
+million!
+
+*****
+
+####  Seeley  
+##### 1519#       发表于 2024-2-25 19:55
+
+要情报了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kreis  
+##### 1520#       发表于 2024-2-25 19:55
+
+个人观感全场最佳：堀江晶太
+
+
+*****
+
+####  黛冬优子  
+##### 1521#       发表于 2024-2-25 19:56
+
+要39了吗
+

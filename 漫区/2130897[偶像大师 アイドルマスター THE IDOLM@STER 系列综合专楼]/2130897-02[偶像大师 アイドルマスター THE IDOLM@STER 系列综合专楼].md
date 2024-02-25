@@ -775,3 +775,11 @@ kraz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rgauss  
+##### 1575#       发表于 2024-2-25 21:54
+
+游戏更新那饼都烙了好几年了吧
+

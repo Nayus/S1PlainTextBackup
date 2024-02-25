@@ -1967,3 +1967,16 @@ Macht Ewigkeit</blockquote>
 这么fw的男主也是很久没见过了</blockquote>
 彼方的技能好像几乎都点在那张嘴上了，特别是能说动女人或男人（面具男动手前都在内疚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cauchua2  
+##### 4006#       发表于 2024-2-25 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64064231&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-25 22:03</a>
+
+彼方的技能好像几乎都点在那张嘴上了，特别是能说动女人或男人（面具男动手前都在内疚）的嘴上[f:0 ...</blockquote>
+共情力，机修能力，战场意识这些软指标都不错，就是机甲本身和操纵技术这些硬的指标真不行。
+
+参考五星物语，同样是操纵技术弱鸡的阿茶公主，是 有顶级辅助+顶级机甲，才能和一般高手打的有来有回
+

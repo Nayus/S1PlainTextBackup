@@ -783,3 +783,28 @@ kraz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 游戏更新那饼都烙了好几年了吧
 
+
+*****
+
+####  もも的洞洞鞋  
+##### 1576#       发表于 2024-2-25 22:08
+
+act4没能现地已经成为遗憾了...
+
+不过最出乎意料的是11th和火锅2，我柏最起码还能再续几年
+
+*****
+
+####  一杯淡定红茶  
+##### 1577#       发表于 2024-2-25 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">union出来真的哭了吧
+
+
+*****
+
+####  黛冬优子  
+##### 1578#       发表于 2024-2-25 22:12
+
+有种百万打复活赛打赢的感觉
+

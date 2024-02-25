@@ -2317,3 +2317,15 @@ discord社区几个人做的校对版翻译 适配了1.0.0k
 
 打了几天每次无尽模式都死在底注12，底注11boss100w分，底注12第一个盲注就要700w分<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a4ac7  
+##### 206#       发表于 2024-2-25 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64061051&amp;ptid=2154925" target="_blank">妄想中毒 发表于 2024-2-25 15:24</a>
+打了几天每次无尽模式都死在底注12，底注11boss100w分，底注12第一个盲注就要700w分 ...</blockquote>
+感觉5张小丑牌不够用，要运气好上限到七张
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

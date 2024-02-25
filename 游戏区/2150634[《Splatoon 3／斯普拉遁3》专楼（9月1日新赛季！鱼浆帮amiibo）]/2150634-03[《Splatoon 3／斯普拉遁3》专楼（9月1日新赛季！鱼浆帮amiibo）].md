@@ -3353,3 +3353,11 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不光100%追踪，高击飞也是坑啊，有些远程怪不及时打死就很危险，用桶去泼的话越泼越远，追都追不上
 
+
+*****
+
+####  chobitssyf  
+##### 3346#       发表于 2024-2-25 11:24
+
+我发现，不管什么武器，自瞄都很nb。所有武器都打完后发现就这个有公用性
+

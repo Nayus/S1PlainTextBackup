@@ -2872,3 +2872,58 @@ act3有两首没唱吧？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 1373#       发表于 2024-2-25 17:18
+
+你别哭啊我也要哭了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acacaclove  
+##### 1374#       发表于 2024-2-25 17:24
+
+你别哭啊我也要哭<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 1375#       发表于 2024-2-25 17:24
+
+动画曲真要全来一遍啊
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 1376#       发表于 2024-2-25 17:25
+
+别哭这么早，后面有的哭<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1377#       发表于 2024-2-25 17:25
+
+这算是日本刚入夜就开始了？
+
+*****
+
+####  RhmBWT_Wu  
+##### 1378#       发表于 2024-2-25 17:27
+
+不是，梨衣熊一个镜头没有？
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kreis  
+##### 1379#       发表于 2024-2-25 17:27
+
+solo部分就拉远镜头，故意的吧
+

@@ -2402,3 +2402,13 @@ discord社区几个人做的校对版翻译 适配了1.0.0k
 用捷径 ...</blockquote>
 牌型等级够高的时候加蓝加红的牌都没什么用，后期都要抓倍率鬼牌，尤其是对每张手牌生效的倍率鬼牌
 
+
+*****
+
+####  a4ac7  
+##### 213#       发表于 2024-2-25 17:25
+
+希望大佬mod能做个弃牌堆的，墓地发效<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

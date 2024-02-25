@@ -175,3 +175,20 @@ mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face20
 心形胎记是不 ...</blockquote>
 虽然但是，每个闪亮动物的宝石样子是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（9个闪亮动物在OP里出现了6个）
 
+
+*****
+
+####  粉儿alice  
+##### 1071#       发表于 2024-2-25 17:20
+
+宠物第四集了 问题是现在根本没有感觉看下去的劲头…
+这已经不是水不水问题了 还是我老了…
+
+
+*****
+
+####  按时间灵活  
+##### 1072#       发表于 2024-2-25 17:22
+
+目前看头确实不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3431,3 +3431,11 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nancygreenlife  
+##### 3353#       发表于 2024-2-25 17:24
+
+刷了一天DLC，感觉DPS检测程度倒不算高，主武器输出不够要达成条件还有很多别的法可想，刚才用小刷点满移动攒无人机槽，然后30楼逛着逛着就过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

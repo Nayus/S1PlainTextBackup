@@ -2446,3 +2446,13 @@ ratata编曲确实牛逼
 
 十年第一次39人齐，我身边好多p为了a4都是第一次去live
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1325#       发表于 2024-2-25 09:00
+
+南京这次现地的比在南京的还多，线下直接吹了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

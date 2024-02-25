@@ -1490,3 +1490,22 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  PDQ4  
+##### 13441#       发表于 2024-2-26 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065144&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 00:05</a>
+
+访谈说的是第六话把睦当做被发现的犯人，要是到第十二话还是这样，这塑造了个啥
+
+  -- 来自 能手机投票的 S ...</blockquote>
+塑造了她放下切割啊。个人解读一下，爽世前7集对睦属于恨，但放不下ccc/祥子还在做梦能回去，因此宁愿演戏利用睦也要从恨的人那里挖出祥子的信息；八集后被祥子正面击穿了，发现真的回不去，那用来掩盖恨意的愿望和行为都变成了没有意义的空谈，进入狗选择了把ccc当作回忆。
+
+不谈人际健不健康，对爽世来讲确实是成长了，狗动画讲的就是各怀鬼胎的大家真心相交不再演戏，12集已经开始面对真心的爽世不演了也很正常。
+
+考虑狗动画的基调，这种恨意能因为放下复辟大计就消弭了才不正常，你爽世姐还是个感情用事的主。
+
+当然不排除监督或者当集脚本就想搞个切割画面但是用力过猛的可能，不过至少理解成恨意的话爽世对睦的表现上是可以逻辑自洽的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

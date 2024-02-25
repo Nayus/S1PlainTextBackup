@@ -2361,3 +2361,15 @@ discord社区几个人做的校对版翻译 适配了1.0.0k
 
 还是被卡牌元素迷惑了，感觉这游戏根本不该和爬塔比，更像是简化版的另类以撒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fuochai  
+##### 210#       发表于 2024-2-25 16:45
+
+流浪者给占卜师和吸血鬼喂buff打到11层了 但是数值膨胀的厉害 一直打同花顺都顶不住 加蓝值的太少了
+
+用捷径加四手 手牌全洗成红桃了 要是再来个蓝图复制我11倍的吸血鬼就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+捷径+四手的组合在这套没啥用 前面用不到随便丢个高牌都能爆 而且占卜师+吸血鬼算分很快 后期很快就膨胀到同花顺也顶不住了 牌面太素加没用加蓝导致的
+

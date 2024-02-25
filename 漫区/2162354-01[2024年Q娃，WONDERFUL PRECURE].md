@@ -144,3 +144,21 @@
 
 mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1069#       发表于 2024-2-25 16:39
+
+ 本帖最后由 leleq 于 2024-2-25 16:43 编辑 
+
+猫狗的表现程度还不错，兔子又没跟去妮可花园有诈可能性继续增加。
+
+猫身上心形标志一个特写过一会就是兔子额头的心形宝石特写不免怀疑是暗示<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+出现了Q娃特有的死亡化妆……这次还行勉强能接受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+除了狗变人变回狗的bank又加了收动物回箱子的bank<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然结算动画历来都有但这个感觉特别长……
+
+另外小麦人变回狗没2分钟就遇怪又变成人了硬放bank的感觉太明显了……感觉小麦这2bank每集固定必须要放一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

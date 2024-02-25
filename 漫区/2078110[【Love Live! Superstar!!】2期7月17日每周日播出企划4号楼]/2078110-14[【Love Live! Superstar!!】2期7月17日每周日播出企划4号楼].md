@@ -569,3 +569,13 @@ emo在自己的活动上也唱了自己写的原创曲
 不会是鸡脖的皮套吧，明显是一个运营的套路</blockquote>
 鸡脖是谁？
 
+
+*****
+
+####  後藤正文  
+##### 19697#       发表于 2024-2-25 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64058278&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-2-25 04:12</a>
+鸡脖是谁？</blockquote>
+山下智博，最近整了个和狱黎黎皮套人占领账号一模一样的活，明显是同一个运营的
+

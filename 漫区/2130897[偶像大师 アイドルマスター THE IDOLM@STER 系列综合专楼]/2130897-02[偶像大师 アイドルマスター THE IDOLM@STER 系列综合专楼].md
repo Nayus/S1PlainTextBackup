@@ -896,3 +896,14 @@ act4没能现地已经成为遗憾了...
 火锅2会播啥曲啊，感觉好久都没跟前辈们出联动曲</blockquote>
 你说的很久是多久？不会是一星期吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MELTMOON  
+##### 1589#       发表于 2024-2-26 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64066763&amp;ptid=2130897" target="_blank">鳄鱼头 发表于 2024-2-26 09:14</a>
+
+你说的很久是多久？不会是一星期吧</blockquote>
+THE IDOLM[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) LIVE THE[@ter](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=44336) DREAMERS 这类有双人的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

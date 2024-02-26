@@ -3832,3 +3832,15 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 打完了，挺喜欢的，我老婆手比较惨，也通关了两个武器（
 
+
+*****
+
+####  晴岚  
+##### 3387#       发表于 2024-2-26 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065023&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-25 23:48</a>
+某XP3000的加特林使给的现环境排行是：鹦鹉螺、无印圆珠笔、无印中加、审查者、贴牌中加。审查者感觉单排 ...</blockquote>
+饮料机最大的问题就是队友不行你等于少了一个大招
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

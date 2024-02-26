@@ -3872,3 +3872,16 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 双区域对长射程武器是福利关卡，短手就比较看晶片配置了
 
+
+*****
+
+####  D麦林  
+##### 3391#       发表于 2024-2-26 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64061814&amp;ptid=2150634" target="_blank">nancygreenlife 发表于 2024-2-25 17:24</a>
+
+刷了一天DLC，感觉DPS检测程度倒不算高，主武器输出不够要达成条件还有很多别的法可想，刚才用小刷点满移动 ...</blockquote>
+单体DPS不会不够但是对AOE能力有极高要求
+
+高层翻车都是小怪清不过来被淹没
+

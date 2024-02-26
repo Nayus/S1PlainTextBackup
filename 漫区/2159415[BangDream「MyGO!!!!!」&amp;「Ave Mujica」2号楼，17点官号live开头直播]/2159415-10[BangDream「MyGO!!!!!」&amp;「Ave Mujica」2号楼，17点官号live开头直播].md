@@ -1766,3 +1766,16 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
   -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
 我不觉得睦有意阴阳怪气，但不代表她说的话听着就不阴阳怪气，尤其对素世这样的当事人来说更是如此了，这很不好理解么？
 
+
+*****
+
+####  ddy2811  
+##### 13465#       发表于 2024-2-26 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64066513&amp;ptid=2159415" target="_blank">江口夕 发表于 2024-2-26 08:50</a>
+
+故意降調迎合羊還要被噴是失誤，正經科班出身能聽不出自己談的啥玩意麼
+
+—— 来自 Xiaomi M2012K ...</blockquote>
+降调得一起降啊，而且羊那个音准哪里是降个调就能解决的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

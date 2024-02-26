@@ -2095,3 +2095,18 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 不要太被角色视角束缚了，爽世怎么看睦和观众怎么看睦是两码事。我理解爽世恨睦，但我从来都觉得睦是无罪发诚实者。
 
+
+*****
+
+####  和睦呈现  
+##### 13494#       发表于 2024-2-26 13:17
+
+版本更新速度是不是快到离谱了，怎么连祥子恨睦都出现了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 13495#       发表于 2024-2-26 13:20
+
+祥子恨睦到底是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新型国际玩笑？
+

@@ -3642,3 +3642,23 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 祭典更好，特别是喜欢欧美风音乐的</blockquote>
 迫不及待等祭典亲身体验下二代城镇祭典氛围
 
+
+*****
+
+####  罗克萨斯  
+##### 3373#       发表于 2024-2-26 08:30
+
+参考naegora的审查者配装，小技能略有不同。鞋子其实是给鹦鹉螺用的，俩游速换行动强化或大招强化似乎更好
+
+<img src="https://img.saraba1st.com/forum/202402/26/082917x8kudrnyeqyjjjrr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-26-08-25-24-178_com.nintendo.znca-edit.jpg</strong> (202.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 08:29 上传
+
+1.2走速确实能用，反正就我的垃圾aim来说，带多了反而容易跟枪失败<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

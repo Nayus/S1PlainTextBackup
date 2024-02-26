@@ -1964,3 +1964,30 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 不过这仨从来就没在拆团的事达成共识，指望观众达成共识也确实不现实。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 13481#       发表于 2024-2-26 12:24
+
+可能对恨这个字有不同的尺度吧
+
+用责怪可能没这么 呃.. 负面？
+
+*****
+
+####  Aendst  
+##### 13482#       发表于 2024-2-26 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">制作组都能在访谈里锤精神胁迫，我不认为这动画能有多纯良
+
+*****
+
+####  acgreen  
+##### 13483#       发表于 2024-2-26 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64069291&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-02-26 12:16:14</a>
+睦是好心，但听起来像阴阳，这很难理解吗？搞得和大伙都是睦黑一样</blockquote>你从日语语气里得出“睦是好心，但听起来像阴阳”，我非常理解。我也不会去辩论这个假药有没有道理，但是明明是上帝视角的观众却能东拉西扯审判睦的阴阳怪气，我是不理解的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

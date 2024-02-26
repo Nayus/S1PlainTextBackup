@@ -541,3 +541,13 @@ bug吧，但是我打的时候是正常打完的，不清楚你是触发了什�
 
 DLC刷的难受，本来期待剧情的，没想到是纯刷，每次刷一个小时就腻味了，没有剧情的话这游戏还挺乏味的
 
+
+*****
+
+####  Nihlathak  
+##### 4056#       发表于 2024-2-26 12:27
+
+打到第八层高级奖池头奖还没出过这正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

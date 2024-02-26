@@ -2163,3 +2163,39 @@ Macht Ewigkeit</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一台机四个人开进机战不是有一种数值的美？相当于四人份的技能
 
+
+*****
+
+####  aptx8285144  
+##### 4018#       发表于 2024-2-26 20:18
+
+<img src="https://img.saraba1st.com/forum/202402/26/200927f26svtmasmsazyat.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240226200358.png</strong> (45.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 20:09 上传
+
+这里诺娃不甘消失的<strong>自责</strong>翻译比迪士尼顺畅太多了
+
+<img src="https://img.saraba1st.com/forum/202402/26/201259rrat35w3fm3c3773.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240226201249.png</strong> (75.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 20:12 上传
+
+结合上次诺娃对艾女士的托孤起来一样的感慨
+
+<img src="https://img.saraba1st.com/forum/202402/26/201509jqf0gvi6jgxrizy7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240226201457.png</strong> (77.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 20:15 上传
+
+优化？尽管米斯特否认了
+

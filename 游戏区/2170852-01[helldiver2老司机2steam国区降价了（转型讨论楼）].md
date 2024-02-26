@@ -10112,3 +10112,13 @@ QQ图片20240226193117.png
 多重试几次重启游戏，就进去了。
 我每次都是这也做的。
 
+
+*****
+
+####  Noel  
+##### 1027#       发表于 2024-2-26 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64074044&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-2-26 19:33</a>
+游戏进不去了  这怎么办</blockquote>
+win11的话看看进程里有没有gamebar，强制结束这玩意就能进了。没用到xbox服务的话卸载这玩意就行。这个进程和gameguard有冲突。
+

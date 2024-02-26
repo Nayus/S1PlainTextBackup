@@ -3061,3 +3061,14 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强
 这不比Eternal的蛋废多了</blockquote>
 Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！
 
+
+*****
+
+####  fuochai  
+##### 275#       发表于 2024-2-26 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64074463&amp;ptid=2154925" target="_blank">Kazepollar 发表于 2024-2-26 20:15</a>
+
+Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
+还有个按左边小丑总售价增加红字的小丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

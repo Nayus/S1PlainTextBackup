@@ -405,3 +405,67 @@ miko：青和popo在游戏里的举动都很有趣看了就想笑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算数笨蛋这个设定已经成为大众印象了
 
+
+*****
+
+####  holoan  
+##### 8229#         楼主| 发表于 2024-2-26 20:18
+
+这LV4有意思啊有一点以前奥数快算的感觉了
+
+*****
+
+####  rs5621  
+##### 8230#       发表于 2024-2-26 20:19
+
+<img src="https://img.saraba1st.com/forum/202402/26/201903zh2yjlydj0vlv1d2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 20:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 8231#         楼主| 发表于 2024-2-26 20:21
+
+另外一提这游戏软件本身是一个日文汉字音读能力测试题库，为什么里面有数学运算的题库内容呢
+
+*****
+
+####  holoan  
+##### 8232#         楼主| 发表于 2024-2-26 20:22
+
+另外一提，开播前评论区就有人说了，解题是有时间限制的没什么多余的功夫让你慢慢想，这比常识性的汉字题难多了，对于miko来说
+
+
+*****
+
+####  holoan  
+##### 8233#         楼主| 发表于 2024-2-26 20:24
+
+-8+8=0
+
+想了很久还没理解
+
+*****
+
+####  holoan  
+##### 8234#         楼主| 发表于 2024-2-26 20:26
+
+另外再提，现在场外最大的乐子是
+
+分析miko当时是如何心算的
+
+<img src="https://img.saraba1st.com/forum/202402/26/202649vxwcfc1ff5zvcxlx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 20:26 上传
+

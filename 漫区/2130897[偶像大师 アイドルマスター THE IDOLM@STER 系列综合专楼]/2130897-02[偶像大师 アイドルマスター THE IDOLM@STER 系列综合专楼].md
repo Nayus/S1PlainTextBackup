@@ -1270,3 +1270,24 @@ gkmas
 
 伏见司还是端下去吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SchwarzX  
+##### 1629#       发表于 2024-2-26 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我手机跑闪耀色彩都偶而会掉帧，这个还是出个主机版吧
+
+
+*****
+
+####  冰寒之月  
+##### 1630#       发表于 2024-2-26 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64073900&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-2-26 19:18</a>
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+已经不是私立文系大学的问题了
+
+这大概率是个中专 高中都不算 学历厨雾子狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

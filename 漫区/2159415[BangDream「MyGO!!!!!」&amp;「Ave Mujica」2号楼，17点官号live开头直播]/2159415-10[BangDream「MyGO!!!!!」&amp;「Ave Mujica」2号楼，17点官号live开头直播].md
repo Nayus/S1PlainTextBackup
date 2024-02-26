@@ -2439,3 +2439,13 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">很明白地說了就是玩樂隊不開心，樓友是真的嘴硬了。
 
+
+*****
+
+####  Aendst  
+##### 13519#       发表于 2024-2-26 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是太久没有新东西导致的
+
+很多话题都是泥漏聊烂或者访谈明说的，不知道怎么还能轮回的
+

@@ -3981,3 +3981,67 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 隐藏徽章拿到了，还剩色卡徽章。前期玩的还是很上头，到后面因为重复度过高坐牢感越来越强烈。
 希望乌研所会继续更新肉鸽内容吧...至少来个隐藏关卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 3400#         楼主| 发表于 2024-2-26 22:10
+
+<blockquote>罗克萨斯 发表于 2024-2-26 21:27
+涂地有啥诀窍么？我一般打满5分钟也就1500左右，这场略微加时拼老命了都没到1600，看大佬们随随便便上2000 ...</blockquote>
+有些武器就是涂墨效率賊差，剩下就是存活时间了，死得少自然涂得多
+
+不对啊你这是区域，为啥要介意
+
+
+*****
+
+####  绿冰  
+##### 3401#         楼主| 发表于 2024-2-26 22:13
+
+<img src="https://img.saraba1st.com/forum/202402/26/221108rjwylzjaahua0yl7.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022621583300-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (166.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 22:11 上传
+
+<img src="https://img.saraba1st.com/forum/202402/26/221122idcf1rfjo6666o55.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022621583700-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (201.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 22:11 上传
+
+运气太差了，只拿到这么点芯片，还只满了蓄力，没多少回墨，完全没爽到233
+
+狙击前期实在是太艰难，不拿力量的话输出太低了，蓄力都打不死中鱼，清杂太菜了，太看拿到的芯片怎么样了
+
+*****
+
+####  罗克萨斯  
+##### 3402#       发表于 2024-2-26 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075585&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-2-26 22:10</a>
+有些武器就是涂墨效率賊差，剩下就是存活时间了，死得少自然涂得多
+
+不对啊你这是区域，为啥要介意 ...</blockquote>
+因为我吃了金钱两倍的餐券，我要抽奖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  绿冰  
+##### 3403#         楼主| 发表于 2024-2-26 22:15
+
+ 本帖最后由 绿冰 于 2024-2-26 22:16 编辑 
+<blockquote>罗克萨斯 发表于 2024-2-26 22:13
+因为我吃了金钱两倍的餐券，我要抽奖
+
+—— 来自 S1Fun</blockquote>
+真格模式不是按计数多少算钱的吗？记得是“推进计数乘以5再乘以段位倍率”？
+

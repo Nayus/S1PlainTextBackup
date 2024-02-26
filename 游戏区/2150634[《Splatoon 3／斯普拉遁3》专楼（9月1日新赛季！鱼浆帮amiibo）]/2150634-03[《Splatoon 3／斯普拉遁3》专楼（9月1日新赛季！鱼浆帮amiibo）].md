@@ -3854,3 +3854,13 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  秋月孝三  
+##### 3389#       发表于 2024-2-26 17:49
+
+双区域就8字回廊那图比较垃圾(5级移动sp增+大锤或龙卷风打着都很烦)，其他还行
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

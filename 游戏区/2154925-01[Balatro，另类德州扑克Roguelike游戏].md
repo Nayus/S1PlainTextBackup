@@ -2983,3 +2983,17 @@ BYD高进阶本来就要精打细算还不给预先显示分数，已经无数�
 我打个B小品 ...</blockquote>
 另开一个存档 直接全部解锁（同时这个存档无法解锁成就）然后对着看
 
+
+*****
+
+####  schneehertz  
+##### 269#         楼主| 发表于 2024-2-26 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64071531&amp;ptid=2154925" target="_blank">fuochai 发表于 2024-2-26 15:38</a>
+这套有必要再刷个传奇吗？
+
+生成的要先有空位还挺烦的 我现在是皇同秒杀流 感觉每张都不能缺 唯一能换的跑 ...</blockquote>
+这牌的上限快到了，如果是我的话就搏一搏
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

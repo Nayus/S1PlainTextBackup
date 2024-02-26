@@ -1870,3 +1870,32 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只看做了什么那更过分了，喜欢我不问询他人意见就擅自直接回绝慰问品的魅力行为吗，甚至还是在ep12尾声入队有所反省之后干出来的
 
+
+*****
+
+####  Arrogate  
+##### 13474#       发表于 2024-2-26 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64068635&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-2-26 11:26</a>
+
+早上醒来就很难绷住</blockquote>
+这人一直都是那什么有鸡不看啊，前段时间又有鸡的live，又有中之人营业，估计把他憋死了，说话都透着一股酸味<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acgreen  
+##### 13475#       发表于 2024-2-26 11:56
+
+13话不就反省了？这么一圈事之后要还是“犯人我恨”，编剧我也不好评价了，邦多利应该是个纯良企划吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  九陌狂游  
+##### 13476#       发表于 2024-2-26 11:57
+
+我以为羊宫上一场的精彩发挥已经把他憋死了，怎么还敢说话的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

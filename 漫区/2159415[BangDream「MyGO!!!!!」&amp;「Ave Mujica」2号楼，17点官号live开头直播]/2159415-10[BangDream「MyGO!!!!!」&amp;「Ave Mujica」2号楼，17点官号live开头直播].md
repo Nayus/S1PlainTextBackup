@@ -2476,3 +2476,47 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 我看过访谈了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然这种事情没办法自证。泥漏当时聊到的时候我也没参与是后来补上的
 
+
+*****
+
+####  御幸一也  
+##### 13523#       发表于 2024-2-26 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我知道樓友你喜歡素木，那麼樓友這樣理解是想摳什麼糖，我沒理解的是這部分。
+
+我覺得以訪談表達出來的意思，實在是沒必要嘴硬。
+
+*****
+
+####  穗波殊  
+##### 13524#       发表于 2024-2-26 22:41
+
+跟素睦没关系吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">就是如果是睦为祥夸大了事实会更加沉重一点。
+
+*****
+
+####  Aendst  
+##### 13525#       发表于 2024-2-26 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是想证明玩乐队开心？毕竟不开心就没爽睦什么事了
+
+
+*****
+
+####  cindy355  
+##### 13526#       发表于 2024-2-26 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64072519&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-26 17:03</a>
+
+还是来看看同人股市吧</blockquote>
+这个是不分左右的吗
+
+*****
+
+####  御幸一也  
+##### 13527#       发表于 2024-2-26 22:45
+
+畢竟你是隔壁豚樓有名的素木人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+如果有我無法理解的地方，我會先思考一下是不是喜歡的東西不同導致的角色理解不同。
+

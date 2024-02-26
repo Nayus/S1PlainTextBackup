@@ -3072,3 +3072,11 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！
 Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 还有个按左边小丑总售价增加红字的小丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玩玩而已  
+##### 276#       发表于 2024-2-26 22:43
+
+方格卡组（26红桃26黑桃）艰难通关了金注，出牌次数用光也只多了五千分，橙注和金注的debuff真的太离谱了，这样子很多种子真的不会是死种吗？
+

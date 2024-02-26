@@ -4069,3 +4069,11 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 —— 来自 S1Fun ...</blockquote>
 没细数过3代的，1代2代的话真格高段位胜率高的话收益远高于涂地，但被完封的话一分钱都没
 
+
+*****
+
+####  落油Я  
+##### 3406#       发表于 2024-2-26 22:45
+
+DLC上线的那天看了下直播，这点东西都要卖150，真当自己是上帝了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

@@ -171,3 +171,16 @@
 
 另外前作体验还挺好的，不过不想玩小男孩，想玩小萝莉啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。。。
 
+
+*****
+
+####  Piano-Forest  
+##### 661#       发表于 2024-2-27 00:31
+
+PV：[https://youtu.be/FePjstNDJuA](https://youtu.be/FePjstNDJuA)
+
+续作3月26日在Steam平台发布抢先体验（EA）版本
+[https://store.steampowered.com/a ... _Bloom_in_the_mist/](https://store.steampowered.com/app/2725260/ENDER_MAGNOLIA_Bloom_in_the_mist/)
+
+之后将于24年登陆其他主机平台
+

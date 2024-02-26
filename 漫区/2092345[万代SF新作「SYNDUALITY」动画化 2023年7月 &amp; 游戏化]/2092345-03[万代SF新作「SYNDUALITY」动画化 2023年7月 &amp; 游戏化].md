@@ -2576,3 +2576,27 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 S1Fun</blockquote>
 所以独饮（
 
+
+*****
+
+####  NeloAngelo  
+##### 4057#       发表于 2024-2-27 00:28
+
+槽点最多的还是tokio的行为. 想了几集都没想明白他是来干嘛的.  除了推动剧情, 他好像什么都没干.  
+要真是所谓"知道卫浴柜的目的", 那他娘的可太弱智了.
+
+可能就是发现ideal有异动, 所以大摇大摆地过来肉身侦查. 顺便叙叙旧.
+感觉就这故事里人物动机的现实度, 观众画像初中生, 不能再高了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zzy516232108  
+##### 4058#       发表于 2024-2-27 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明19话很重要啊
+
+但是作画崩得一笔啊 差点看不下去了
+

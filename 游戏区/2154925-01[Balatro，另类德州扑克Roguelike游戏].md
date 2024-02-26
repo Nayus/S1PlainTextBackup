@@ -3152,3 +3152,29 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 有一张小丑最后一轮打牌重复触发，加上蓝图再次重复触发，最高分5.4e12
 究极爽局
 
+
+*****
+
+####  naclken.  
+##### 284#       发表于 2024-2-27 00:32
+
+终于赢了一次白注。
+
+我想看这游戏的高玩直播，平均开几局能赢一次。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wasian  
+##### 285#       发表于 2024-2-27 00:36
+
+<img src="https://img.saraba1st.com/forum/202402/27/003619nbp8npoxc2hp5nn8.png" referrerpolicy="no-referrer">
+
+<strong>1K}_9Q`$U@}`SHUDQF.png</strong> (41.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 00:36 上传
+
+ 绝望
+

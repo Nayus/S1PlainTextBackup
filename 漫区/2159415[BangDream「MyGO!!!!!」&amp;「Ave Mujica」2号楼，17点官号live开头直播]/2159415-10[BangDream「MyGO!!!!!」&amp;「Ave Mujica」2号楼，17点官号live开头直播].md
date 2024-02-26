@@ -2894,3 +2894,23 @@ mujica什么时候发新歌，楼需要净化
 
 不过单纯从祥子第三集天桥上的呐喊，我觉得祥子不会是这种纯粹利用人偶的形象，而且舞台上的oblivionis也是人偶。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 13563#       发表于 2024-2-27 00:32
+
+ 本帖最后由 Aendst 于 2024-2-27 00:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">二月感觉没戏，不知道三月有没有可能性，我已经降低期待到四月了
+
+纯粹利用人偶又是什么新花样……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说不愧是理解成反派的人的理解，我觉得自己楚楚可怜弱势所以我想操控我自己？
+
+
+*****
+
+####  穗波殊  
+##### 13564#       发表于 2024-2-27 00:37
+
+第二种理解是什么<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">感觉是从满脑子黄色废料里掏出来的
+

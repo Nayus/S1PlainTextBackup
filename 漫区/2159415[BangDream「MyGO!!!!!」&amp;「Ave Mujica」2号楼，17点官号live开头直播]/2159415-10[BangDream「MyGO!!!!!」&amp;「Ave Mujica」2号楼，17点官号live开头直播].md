@@ -1724,3 +1724,11 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 爽世记不记恨睦访谈没有定论，我更是不在乎她记不记恨，她记恨只是显得某些言论更搞笑 ...</blockquote>
 睦在不在阴阳、我觉不觉得在阴阳和素世听着是不是阴阳完全不是一回事，就比如这次巡演李子回复青木说她吉他英雄，但这次除了羊就她翻得最厉害，这话很可能并没有阴阳的意思，但有人听着像阴阳也在所难免吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 13461#       发表于 2024-2-26 08:43
+
+我觉得13集后爽姐不一定还纠结拆团这个仇，但如果第二季她发现睦在mujica玩乐队非常开心进而误会睦是因为在c团不开心主动拆团的话就不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

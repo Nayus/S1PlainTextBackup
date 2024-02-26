@@ -3809,3 +3809,26 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 别从这个方向洗，我们day0购入dlc想玩的是什么你心里没数吗？
 
+
+*****
+
+####  Junakr  
+##### 3385#       发表于 2024-2-26 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">总之飞天花洒是 DLC 最讨厌的怪、双区域是最烂的模式没有异议吧。
+
+<img src="https://img.saraba1st.com/forum/202402/26/163639ja2auiwakar3dkcc.jpg" referrerpolicy="no-referrer">
+
+<strong>photo.jpg</strong> (35.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 16:36 上传
+
+*****
+
+####  lilod  
+##### 3386#       发表于 2024-2-26 16:38
+
+打完了，挺喜欢的，我老婆手比较惨，也通关了两个武器（
+

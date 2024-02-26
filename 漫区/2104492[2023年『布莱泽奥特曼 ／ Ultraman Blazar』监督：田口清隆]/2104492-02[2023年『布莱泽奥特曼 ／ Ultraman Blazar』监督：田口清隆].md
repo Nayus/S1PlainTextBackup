@@ -404,3 +404,12 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 <img src="https://p.sda1.dev/15/aaecec63c66b4612ca2b1f1063ca8b7d/20240226_003554.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/f9f6914f6cea7a4f888d1daf23362d8e/20240226_003555.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acejoe  
+##### 1827#       发表于 2024-2-26 16:39
+
+剧情有点弱智，但拍的不错。
+可是看了访谈内容，又觉得有点脑残了。
+

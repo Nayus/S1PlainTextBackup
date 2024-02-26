@@ -1038,3 +1038,45 @@ nmmsl 万代
 
 你这pv放的是个勾八
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1605#       发表于 2024-2-26 18:06
+
+经典预告的预告<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+所以有人能听出来cv吗，应该不太可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 1606#       发表于 2024-2-26 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有学校 是学院偶像（
+
+
+*****
+
+####  六至九  
+##### 1607#       发表于 2024-2-26 18:12
+
+gkmas
+
+*****
+
+####  Srchy  
+##### 1608#       发表于 2024-2-26 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">代孙把大伙叫出来就这点事啊
+
+*****
+
+####  RhmBWT_Wu  
+##### 1609#       发表于 2024-2-26 18:12
+
+3月5号生放还有声优，要不还是期待一下年轻的肉体吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

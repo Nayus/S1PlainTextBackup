@@ -2047,3 +2047,30 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">別扯祥子，祥子可不恨睦
 
+
+*****
+
+####  acgreen  
+##### 13490#       发表于 2024-2-26 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64069684&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-26 12:49:55</a>
+如果你的照顾是你的自以为是，实际上并没有能够照顾到对方的心情甚至产生了反效果，那么被记恨就是理所当 ...</blockquote>祥子恨睦又是哪来的？睦哪次是自以为是？不全是照办？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Aendst  
+##### 13491#       发表于 2024-2-26 13:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就让我想到推上有人提到过的祥子和爽姐对睦的态度有一次明确对比
+
+“睦ちゃん、本当に思ったことそのまま言うよね。やってほしくないことばっかり。”
+
+不少日本人都觉得挺过分的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥子则是“睦にはそんな芸当できませんわね。睦、伝書鳩になってはいけませんわ”
+
+不得不说台本完成度真的很高，能找到不少有意思的东西
+

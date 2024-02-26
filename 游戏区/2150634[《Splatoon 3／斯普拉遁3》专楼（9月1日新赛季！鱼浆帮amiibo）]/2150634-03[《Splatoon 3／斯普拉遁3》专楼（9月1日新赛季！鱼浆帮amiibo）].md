@@ -3672,3 +3672,18 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 3375#       发表于 2024-2-26 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64066364&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-26 08:30</a>
+
+参考naegora的审查者配装，小技能略有不同。鞋子其实是给鹦鹉螺用的，俩游速换行动强化或大招强化似乎更好
+
+ ...</blockquote>
+我审查者只带了0.1游速改善运鱼的卡手，但是多带了0.2行动强化，然后0.2安全鞋，两双鞋一个带隐跳一个带对物，其余全走速，自信无法做到高位势那样全程高效率利用饮料机，所以走速还得是2.0+以上
+
+我倒是跟你完全相反，审查者玩多了，这两天在刷秩序中加五星老是跟枪跟不上，最后还得去把灵敏度往高了调才跟得上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

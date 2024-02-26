@@ -2205,3 +2205,14 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 我说的是对爽世。找祥子拖了一次，第二次去了。去祥子家，无奈带去了。睦找灯希坚定灯重整乐队的意志，算是 ...</blockquote>
 往前走本来就是不情不愿扭扭捏捏的，素世到了最后依然是“我永远不会忘记crychic”，那么推着她和旧c团成员往前走的睦也就像一个“为你好”的家长，哪怕最后结果很好总归也是会有些膈应的，更不用说最后直接踩大雷了
 
+
+*****
+
+####  acgreen  
+##### 13503#       发表于 2024-2-26 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070453&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-26 14:00:03</a>
+往前走本来就是不情不愿扭扭捏捏的，素世到了最后依然是“我永远不会忘记crychic”，那么推着她和旧c团成 ...</blockquote>睦推的那一把爽世又不知道，就算带上这次睦哪次在自以为是？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

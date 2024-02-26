@@ -10182,3 +10182,14 @@ win11的话看看进程里有没有gamebar，强制结束这玩意就能进了�
 
 匹配很流畅，但跟好友联机很困难，总是进不去游戏大厅或者连接错误，这是啥原因
 
+
+*****
+
+####  conanoysq  
+##### 1034#       发表于 2024-2-26 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075475&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-26 22:00</a>
+
+匹配很流畅，但跟好友联机很困难，总是进不去游戏大厅或者连接错误，这是啥原因 ...</blockquote>
+不开加速器试试
+

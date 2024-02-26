@@ -2449,3 +2449,22 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 很多话题都是泥漏聊烂或者访谈明说的，不知道怎么还能轮回的
 
+
+*****
+
+####  穗波殊  
+##### 13520#       发表于 2024-2-26 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075555&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-26 22:07</a>
+
+綾奈　『バンドリ！』シリーズにバンドが楽しくない子がいるんだ!?と驚かれたと思います（笑）。睦自身が ...</blockquote>
+那很抱歉了我读访谈读的不仔细<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我只是想凸显一下这两者的区别，没有任何其他多余的想法。非常抱歉。
+
+
+*****
+
+####  Aendst  
+##### 13521#       发表于 2024-2-26 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凸显什么区别，看没看访谈的区别吗
+

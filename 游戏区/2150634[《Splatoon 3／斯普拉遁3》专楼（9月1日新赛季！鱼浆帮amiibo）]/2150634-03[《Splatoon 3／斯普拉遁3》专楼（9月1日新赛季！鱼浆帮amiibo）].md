@@ -4045,3 +4045,15 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 —— 来自 S1Fun</blockquote>
 真格模式不是按计数多少算钱的吗？记得是“推进计数乘以5再乘以段位倍率”？
 
+
+*****
+
+####  罗克萨斯  
+##### 3404#       发表于 2024-2-26 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075637&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-2-26 22:15</a>
+真格模式不是按计数多少算钱的吗？记得是“推进计数乘以5再乘以段位倍率”？ ...</blockquote>
+我去，我才知道，那两倍金钱餐券留着祭典用更划算吧，打真格用反而浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

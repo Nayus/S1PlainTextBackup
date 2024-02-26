@@ -3234,3 +3234,11 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 —— 来自 Xiaomi 22041216UC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  库德里尔  
+##### 290#       发表于 2024-2-27 07:29
+
+我在想比起敲计算器，能不能做一个模拟运行的mod，跑一手牌$2或者一盲注x次的票券
+

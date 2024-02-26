@@ -665,3 +665,11 @@ emo在自己的活动上也唱了自己写的原创曲
 
 只说了日记有嘉宾
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19706#       发表于 2024-2-26 10:32
+
+结哥太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">又到了我最不能理解的日综搞笑艺人套路部分
+

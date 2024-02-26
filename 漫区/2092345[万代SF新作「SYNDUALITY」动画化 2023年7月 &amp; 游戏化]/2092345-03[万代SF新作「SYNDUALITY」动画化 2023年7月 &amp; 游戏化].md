@@ -2700,3 +2700,13 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyMS  
+##### 4068#       发表于 2024-2-27 05:55
+
+这黑假面被仮思海洗脑的很深啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

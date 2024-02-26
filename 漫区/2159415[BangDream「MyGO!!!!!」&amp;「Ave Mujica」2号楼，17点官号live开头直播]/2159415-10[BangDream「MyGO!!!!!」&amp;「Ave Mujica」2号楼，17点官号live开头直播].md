@@ -2946,3 +2946,17 @@ mujica什么时候发新歌，楼需要净化
 
 我先在这里放一个英雄无敌4.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 13568#       发表于 2024-2-27 07:07
+
+ 本帖最后由 PDQ4 于 2024-2-27 07:09 编辑 
+
+希腊奶，看2nd会不会有小剧场补充世界观。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看视觉图是物理层面的破坏，但也许是概念性质呢，把人类的概念消弭，彻底变成人偶的世界。或者说直接星球跃迁带着全世界的人偶信徒大转移。或者表里世界也是常见的设定。<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+这么想原来mujica世界观已经率先到达了pico层次<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

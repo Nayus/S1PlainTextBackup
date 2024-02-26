@@ -2890,3 +2890,22 @@ BYD高进阶本来就要精打细算还不给预先显示分数，已经无数�
 
 感觉越往后打解锁的东西越多卡组反而越难成型，高难度也打不太来
 
+
+*****
+
+####  kalavinka  
+##### 261#       发表于 2024-2-26 14:42
+
+昨天刷到了所有牌视作人头牌还有那个人头牌打出2次，以为要起飞了，没看boss词条是所有人头牌翻面，直接暴毙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  grox133  
+##### 262#       发表于 2024-2-26 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070338&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-26 13:49</a>
+BYD高进阶本来就要精打细算还不给预先显示分数，已经无数次为了多贪一次出牌直接贪死在半路了
+
+我打个B小品 ...</blockquote>
+等mod吧，从设计角度预先显示分数明显会降低爽感
+

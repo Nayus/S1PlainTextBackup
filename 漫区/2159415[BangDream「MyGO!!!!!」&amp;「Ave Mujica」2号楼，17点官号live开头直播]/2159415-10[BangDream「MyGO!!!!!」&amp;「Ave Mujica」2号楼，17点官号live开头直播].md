@@ -1732,3 +1732,37 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 我觉得13集后爽姐不一定还纠结拆团这个仇，但如果第二季她发现睦在mujica玩乐队非常开心进而误会睦是因为在c团不开心主动拆团的话就不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13462#       发表于 2024-2-26 08:47
+
+你看过上帝视角李子？如果你认为睦在阴阳怪气，不用回复我了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  江口夕  
+##### 13463#       发表于 2024-2-26 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065994&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-2-26 03:26</a>
+睦在不在阴阳、我觉不觉得在阴阳和素世听着是不是阴阳完全不是一回事，就比如这次巡演李子回复青木说她吉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">故意降調迎合羊還要被噴是失誤，正經科班出身能聽不出自己談的啥玩意麼
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ddy2811  
+##### 13464#       发表于 2024-2-26 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64066491&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 08:47</a>
+
+你看过上帝视角李子？如果你认为睦在阴阳怪气，不用回复我了
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+我不觉得睦有意阴阳怪气，但不代表她说的话听着就不阴阳怪气，尤其对素世这样的当事人来说更是如此了，这很不好理解么？
+

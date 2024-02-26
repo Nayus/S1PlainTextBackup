@@ -54,3 +54,12 @@
 
 麻子绝逼是一开始想写be的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的川川仔  
+##### 1477#       发表于 2024-2-26 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065147&amp;ptid=2050204" target="_blank"> 薛定谔的小猫 发表于 2024-2-26 00:06</a> 本来准备回坑，看了看隔壁的全ss简评，手里的ss整个差了一个世代，打分低保线也高了好多，这个伤害叠叠乐确实还是另一个伊甸那味，根本追不上，算了还是云着吧 </blockquote>
+等抽7号人气池凑雷队直接乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

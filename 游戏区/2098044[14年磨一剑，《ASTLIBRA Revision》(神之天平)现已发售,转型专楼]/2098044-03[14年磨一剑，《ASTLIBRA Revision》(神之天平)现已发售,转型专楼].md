@@ -500,3 +500,16 @@ bug吧，但是我打的时候是正常打完的，不清楚你是触发了什�
 
 刷无名英雄刷吐了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秀光  
+##### 4052#       发表于 2024-2-26 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63963337&amp;ptid=2098044" target="_blank">果汁机构 发表于 2024-2-15 00:34</a>
+
+还有公会门前那个说面包超好吃的红发女是谁啊，看着好眼熟</blockquote>
+本篇第一章村里的关键NPC妹子啊，本篇新章改变村人的命运后她就一直站那的……
+
+昨天通了外传，刷得很爽，剧情确实少，只适合刷完本篇觉得还没刷够的
+

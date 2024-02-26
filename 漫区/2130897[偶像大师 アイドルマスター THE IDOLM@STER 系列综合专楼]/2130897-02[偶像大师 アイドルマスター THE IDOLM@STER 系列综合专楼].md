@@ -907,3 +907,13 @@ act4没能现地已经成为遗憾了...
 你说的很久是多久？不会是一星期吧</blockquote>
 THE IDOLM[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) LIVE THE[@ter](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=44336) DREAMERS 这类有双人的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳄鱼头  
+##### 1590#       发表于 2024-2-26 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64067313&amp;ptid=2130897" target="_blank">MELTMOON 发表于 2024-2-26 10:02</a>
+THE IDOLM@ster LIVE THE@ter DREAMERS 这类有双人的</blockquote>
+朋友，双人曲这10年来就这么一个系列专辑。这边建议你听4到5人曲的近两年的新专
+

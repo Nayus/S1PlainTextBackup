@@ -283,6 +283,6 @@ async def main():
     await asyncio.gather(*tasks)
 
 if __name__ == '__main__':
-    with open(rootdir+'ErrorLog.txt','w',encoding='utf-8-sig') as f:
-        f.write('\n')
+    # with open(rootdir+'ErrorLog.txt','w',encoding='utf-8-sig') as f:
+    #     f.write('\n')
     asyncio.run(main())

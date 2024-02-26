@@ -10206,3 +10206,14 @@ win11的话看看进程里有没有gamebar，强制结束这玩意就能进了�
 
 进别的房间都好进，就是好友的进不去
 
+
+*****
+
+####  LrGsite  
+##### 1036#       发表于 2024-2-26 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075080&amp;ptid=2170852" target="_blank">洛拉斯 发表于 2024-2-26 21:17</a>
+
+但是怪落地后会被运输船残骸砸死</blockquote>
+轻甲什么的是可以,但是重甲就不行了,坦克和蹂躏者巨型者啥的一点事没有
+

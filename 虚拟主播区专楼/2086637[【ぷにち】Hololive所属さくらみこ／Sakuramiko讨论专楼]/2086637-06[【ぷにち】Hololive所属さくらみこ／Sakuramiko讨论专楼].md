@@ -529,3 +529,31 @@ lv1.5通关就算结束了，当然标题本来也没写固定什么难度也没
 
 不过lv2开始就不只是背乘法表能解决的问题，你需要有个老师教你
 
+
+*****
+
+####  holoan  
+##### 8240#         楼主| 发表于 2024-2-26 23:16
+
+<img src="https://img.saraba1st.com/forum/202402/26/231514a0k3s3t3vptdvott.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 23:15 上传
+
+我也没注意，看了一下今天这场直播大概一下子多了近百的新会员而平时的直播也就二三十人
+
+主播越傻大家越喜欢吗？
+
+
+*****
+
+####  rs5621  
+##### 8241#       发表于 2024-2-26 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">很久以前我就发觉了，大家都爱看傻的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

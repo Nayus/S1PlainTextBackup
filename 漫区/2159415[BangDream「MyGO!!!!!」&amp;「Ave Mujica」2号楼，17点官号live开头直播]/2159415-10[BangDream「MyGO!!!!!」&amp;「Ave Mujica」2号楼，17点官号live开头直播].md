@@ -2679,3 +2679,55 @@ mujica没说过要成为人，睦也从来没有自认过人偶，漏油搞错�
  ...</blockquote>
 所以是假药。真正的理由只有“哭出来的女孩子最可爱！”这一条。
 
+
+*****
+
+####  PDQ4  
+##### 13544#       发表于 2024-2-26 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076115&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-2-26 23:13</a>
+
+虽然很想给你加鹅但是都在今天的ba轰炸里扣光了总之请你原谅我的不仔细 ...</blockquote>
+你未免太爱鸟叔了，们鸟叔厨都是这样吗，对角色的爱不如对隔壁大叔漏油爱的百分之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13545#       发表于 2024-2-26 23:17
+
+我的想法很简单，既然独角兽已经写出了“只要有灯在怎么样都好”但又确实对mygo有了感情的立希，那么睦最极端的情况出现“只要有祥子在怎么样都好”的路线也是有可能的，而这个情况和睦对c团的人有罪恶感还有以后对mujica会有感情也是不矛盾的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 13546#       发表于 2024-2-26 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076153&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-26 23:17</a>
+
+你未免太爱鸟叔了，们鸟叔厨都是这样吗，对角色的爱不如对隔壁大叔漏油爱的百分之一 ...</blockquote>
+毕竟动画每个季度都会看新的但是漏油却朝夕相伴<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 13547#       发表于 2024-2-26 23:22
+
+ 本帖最后由 Aendst 于 2024-2-26 23:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我不太喜欢这种只要有xx就可以的人设或者说写法……未免太贫瘠了
+
+不过看到漏油说的我觉得结合一下还不错，如果是睦为了祥子哭出来这么一个单一的场景我似乎可以接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 13548#       发表于 2024-2-26 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076105&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-26 23:12</a>
+
+认为睦是人偶的从来都是会曲解擅自解读睦想法的那些外人和无良媒体，睦还真不觉得她会自认自己是人偶。
+
+人 ...</blockquote>
+按我的假药就是“要成为人啦！”总之高压的家庭环境应该要一种激烈的情感释放出来。
+

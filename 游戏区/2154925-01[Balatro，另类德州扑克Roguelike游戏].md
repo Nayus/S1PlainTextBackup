@@ -3221,3 +3221,16 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 发现了个小bug，商店里对复制小丑的幻灵牌选择购买且立即使用但是小丑格子满了，于是那张幻灵牌就卡在那里了，卖小丑也无效
 
+
+*****
+
+####  yozoraxsx  
+##### 289#       发表于 2024-2-27 03:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64072410&amp;ptid=2154925" target="_blank">月亮与五块钱 发表于 2024-2-26 16:55</a>
+我是希望能预估分数的
+最蠢的就是战斗中我要刷成长刷钱的时候，一回合就把他秒了，为了不秒他，就要挪半天 ...</blockquote>
+有幸运牌和30红桃解锁的红玉石等等暴击怎么预估数值?
+
+—— 来自 Xiaomi 22041216UC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

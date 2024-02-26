@@ -2924,3 +2924,29 @@ BYD高进阶本来就要精打细算还不给预先显示分数，已经无数�
 
 肯定不能预先显示分数啊。。就跟你打德州不可能直接显示 GTO 结果的
 
+
+*****
+
+####  mjwells  
+##### 265#       发表于 2024-2-26 15:20
+
+用7zip打开exe文件，可以改game.lua
+可以试试默认添加减少rerollcost 和增加reroll牌数的奖券 这样体验应该好不少，下面有个加钱加小丑栏的例子，记得备份
+The game's engine is based on Lua, you use 7Zip and right click on your game's .exe, meaning Balatro.exe and open that with 7Zip, then you'll see lots of .lua files you can change (open them with Notepad), like in game.lua if you'll search (Ctrl+F) for career_stats, there's lots of things you can modify there from all .lua files.After you've made your changes, save the thing.You can also decompress the Balatro.exe with 7Zip and make your changes and then recompress. 
+
+ORIGINAL LINES:
+
+--Backs
+
+b_red= {name = "Red Deck", stake = 1, unlocked = true,order = 1, pos = {x=0,y=0}, set = "Back", config = {discards = 1}, discovered = true},
+
+MODIFIED LINES:
+
+b_red= {name = "Red Deck", stake = 1, unlocked = true,order = 1, pos = {x=0,y=0}, set = "Back", config = {discards = 1, dollars = 99999, joker_slot = 5}, discovered = true},
+
+You can see I added ', dollars = 99999, joker_slot = 5' behind the 'discards = 1', that means I edited the RED deck's info. I edited starting gold as 99999 and starting joker slots as +5. So you can edit other decks like this. 
+
+5th, save and exit the 7zip, then play the game.
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -2118,3 +2118,23 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 不是说祥恨睦，就是在应募时睦那个“坏掉了”很难不被说“高高在上”呛一下的意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13497#       发表于 2024-2-26 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64069824&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 13:01</a>
+
+祥子恨睦又是哪来的？睦哪次是自以为是？不全是照办？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+13集加入的缘由是“小祥要坏掉了”，然后很自然就会得到“真是高高在上呢”的回复，因为这就像施舍、怜悯一般，而祥子是最不愿意接受这些的
+
+*****
+
+####  sweet.  
+##### 13498#       发表于 2024-2-26 13:40
+
+阿巴阿巴，怎么又开始汴这堆东西了，我鸡的新曲快端上来吧
+

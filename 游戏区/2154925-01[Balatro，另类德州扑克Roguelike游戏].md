@@ -3050,3 +3050,14 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强
 
 看了下是模式限制蓝字不能超过钱 不过我好像也没什么加蓝的buff
 
+
+*****
+
+####  Kazepollar  
+##### 274#       发表于 2024-2-26 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64068960&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-26 11:49</a>
+
+这不比Eternal的蛋废多了</blockquote>
+Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！
+

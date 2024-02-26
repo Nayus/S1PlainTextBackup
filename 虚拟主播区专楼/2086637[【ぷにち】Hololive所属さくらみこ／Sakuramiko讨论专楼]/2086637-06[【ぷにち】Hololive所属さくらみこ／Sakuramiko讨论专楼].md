@@ -397,3 +397,11 @@ miko：青和popo在游戏里的举动都很有趣看了就想笑
 
 2024-2-26 17:04 上传
 
+
+*****
+
+####  rs5621  
+##### 8228#       发表于 2024-2-26 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算数笨蛋这个设定已经成为大众印象了
+

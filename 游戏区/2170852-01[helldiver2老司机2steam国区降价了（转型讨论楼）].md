@@ -10251,3 +10251,29 @@ win11的话看看进程里有没有gamebar，强制结束这玩意就能进了�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  xinfengj  
+##### 1040#       发表于 2024-2-27 03:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077160&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-27 02:26</a>
+
+我们就俩人，互相都进不去
+
+—— 来自 Xiaomi 22081212C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+P2P传输是这样 再拉个哥们没准就好了
+
+
+*****
+
+####  smdzh2  
+##### 1041#       发表于 2024-2-27 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077160&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-27 03:26</a>
+我们就俩人，互相都进不去
+
+—— 来自 Xiaomi 22081212C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+网络冲突了，两人无解
+试试找个房间加进去再拉他
+

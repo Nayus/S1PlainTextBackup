@@ -2633,3 +2633,13 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 盲猜一手卫浴柜赢到了最后，但是乐园封存的都是些过时的技术，相比较而言这个时代的人们已经算是生活在乐园上了。卫浴柜道心破碎，ideal瓦解。
 
+
+*****
+
+####  NeloAngelo  
+##### 4063#       发表于 2024-2-27 02:11
+
+卫浴柜说着小胡子的话, 干着226的事. 可惜这动画没有波兰供他闪击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

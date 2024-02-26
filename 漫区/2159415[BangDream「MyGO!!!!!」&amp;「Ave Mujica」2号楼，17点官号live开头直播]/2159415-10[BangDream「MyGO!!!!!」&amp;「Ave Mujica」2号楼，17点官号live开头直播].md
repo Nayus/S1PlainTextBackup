@@ -2936,3 +2936,13 @@ mujica什么时候发新歌，楼需要净化
 
 倒不是不能理解作者对于“人偶”会产生这种针对玩物的认知概念，但是把这个认知投射给祥子有点难蚌，包括某些同人里喜欢睦也是喜欢这种易于操控弱弱的感觉，个人看了很不适，尊重祝福吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 13567#       发表于 2024-2-27 02:05
+
+说起来世界毁灭又重生之后，莉伽瑠奈还有我们这些观众怎么办，一起传送到新世界吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我先在这里放一个英雄无敌4.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

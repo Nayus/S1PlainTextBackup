@@ -2863,3 +2863,15 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  就是剑鞘  
+##### 258#       发表于 2024-2-26 13:49
+
+BYD高进阶本来就要精打细算还不给预先显示分数，已经无数次为了多贪一次出牌直接贪死在半路了
+
+我打个B小品游戏还需要狂按计算器是吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+顺便问问，6页3行第4个和9页2行第5个小丑分别是啥，我怎么连legendary都全解锁了还没遇见过这俩
+

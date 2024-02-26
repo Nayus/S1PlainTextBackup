@@ -2155,3 +2155,11 @@ Macht Ewigkeit</blockquote>
 
 贤士乘搭机甲方式本身就够背后灵了，再给歌姬搞个电子幽灵，男主的机舱挺窄哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 4017#       发表于 2024-2-26 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一台机四个人开进机战不是有一种数值的美？相当于四人份的技能
+

@@ -290,3 +290,14 @@ mayu感觉有点重啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 如果狗猫兔都是妮可花园天神下凡的话就埋了吧，要多俗有多俗
 
+
+*****
+
+####  modedd  
+##### 1084#       发表于 2024-2-26 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070270&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-02-26 13:42:06</a>
+如果狗猫兔都是妮可花园天神下凡的话就埋了吧，要多俗有多俗</blockquote>就看兔子在藏啥了，老实说羊作为魔法侧唯一会说话的真认不出神兽也说不太过去<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

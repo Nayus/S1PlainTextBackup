@@ -2138,3 +2138,59 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 阿巴阿巴，怎么又开始汴这堆东西了，我鸡的新曲快端上来吧
 
+
+*****
+
+####  Akari  
+##### 13499#       发表于 2024-2-26 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070229&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-2-26 13:37</a>
+
+13集加入的缘由是“小祥要坏掉了”，然后很自然就会得到“真是高高在上呢”的回复，因为这就像施舍、怜悯 ...</blockquote>
+能这么直接对祥子说这些，祥子却没有特别爆。之前在咖啡店也是，祥子会立刻把情绪拉回来。
+
+就这样，这的没法联想到祥子恨睦。
+
+硬要说，也只是对睦当前这种过于利他的行为方式是目前最不像看到的态度不满。
+
+*****
+
+####  acgreen  
+##### 13500#       发表于 2024-2-26 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070229&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-26 13:37:48</a>
+13集加入的缘由是“小祥要坏掉了”，然后很自然就会得到“真是高高在上呢”的回复，因为这就像施舍、怜悯 ...</blockquote>我说的是对爽世。找祥子拖了一次，第二次去了。去祥子家，无奈带去了。睦找灯希坚定灯重整乐队的意志，算是直接帮了mygo和爽世。最后往休息室放了一袋黄瓜，没觉得哪里过分了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  紫吹兰  
+##### 13501#         楼主| 发表于 2024-2-26 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64060645&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-2-25 14:14</a>
+
+突击莉莉什么时候追加的直田</blockquote>
+莉莉刚刚追加了鼓子
+
+<img src="https://img.saraba1st.com/forum/202402/26/134946e315ef9we2dspele.png" referrerpolicy="no-referrer">
+
+<strong>Image_1708925683485.png</strong> (145.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 13:49 上传
+
+加上前两天公布的🐏
+
+<img src="https://img.saraba1st.com/forum/202402/26/135045wzfffxmcofwkf7vf.jpg" referrerpolicy="no-referrer">
+
+<strong>1708926515954.jpg</strong> (83.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 13:50 上传
+
+虽然武士道退出了莉莉的运营，但是还是一波人<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+

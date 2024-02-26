@@ -3205,3 +3205,11 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 都快给我打懵了。感觉运营啥的就是个笑话。不如等哪一次系统愿意给你发一套奶奶牌。
 
+
+*****
+
+####  医生狼多  
+##### 287#       发表于 2024-2-27 00:49
+
+你们说的r是键盘还是右肩键？我用sd玩的，找不到快速重开的按钮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

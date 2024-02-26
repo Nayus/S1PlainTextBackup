@@ -431,3 +431,15 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  星火龙  
+##### 1830#       发表于 2024-2-27 00:52
+
+ 本帖最后由 星火龙 于 2024-2-27 00:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076067&amp;ptid=2104492" target="_blank">桥本有菜 发表于 2024-2-26 23:07</a>
+
+熊孩子，不对，这货简直是反社会份子他爹简直是日了狗了，全程背锅特别最后工作还没了，算是把十年 ...</blockquote>
+其实熊孩子惹事还挺有“昭和味”的～<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

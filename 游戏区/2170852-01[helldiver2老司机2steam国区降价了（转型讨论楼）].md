@@ -10033,3 +10033,14 @@ p2p联机，别挂代理
 
 打野队发现一个永动机配装：长柄镰+电弧+蛋盾，战术配置飞鹰燃烧弹+空袭，主打一个极度的精致利己，难度7及以下横着走，队友死活关我屁事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skypride  
+##### 1020#       发表于 2024-2-26 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64072151&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-2-26 16:34</a>
+
+打野队发现一个永动机配装：长柄镰+电弧+蛋盾，战术配置飞鹰燃烧弹+空袭，主打一个极度的精致利己，难度7及 ...</blockquote>
+电弧反大型效率差一些。。。遇到两只以上强袭虫+跳虫海的情况还是比较头疼 
+

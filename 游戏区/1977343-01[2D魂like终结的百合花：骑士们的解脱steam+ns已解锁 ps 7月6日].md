@@ -151,3 +151,13 @@
 
 看pv基本系统还是同一套，打完boss那个净化和boss转阶段的动画都不带变的，感觉纯换皮加料。但换个皮还多设计个风格变化有点大的世界观有点搞不懂，本来前作还有其他国家的坑，继续薅莉莉主角羊毛出dlc感觉买账的玩家也比这个多。
 
+
+*****
+
+####  堆雪若叶  
+##### 659#       发表于 2024-2-26 23:06
+
+[https://store.steampowered.com/a ... _Bloom_in_the_mist/](https://store.steampowered.com/app/2725260/ENDER_MAGNOLIA_Bloom_in_the_mist/)
+
+3月26出EA
+

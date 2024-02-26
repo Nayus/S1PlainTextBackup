@@ -2552,3 +2552,39 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 鉴于这动画一开始就没打算避开角色的争议点，最极端的情况睦真的是为了祥子才勉强自己待在不开心的乐队，祥子走了就为了帮祥子分担罪恶感实话实说把c团炸了也不是没有可能的，后面帮爽世和关注mygo进展则是出于炸团的罪恶感在帮助人家找个新家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13532#       发表于 2024-2-26 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎麼唐突歪去主語問題了，都討論爛了。
+
+現在在說的不是睦玩樂隊開心不開心嗎，而訪談都錘了是真的不開心了，我不理解的也只是為什麼樓友要嘴硬這部分，畢竟這個訪談說得很明白了。
+
+主語問題完全是另外一回事。
+
+*****
+
+####  Aendst  
+##### 13533#       发表于 2024-2-26 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">贷款不可取，不过这里既然有意在藏，那么续篇肯定会有所涉及，等正片出来基本就可以揭幕了
+
+不知道会不会引导出需要声优演技的部分
+
+
+*****
+
+####  穗波殊  
+##### 13534#       发表于 2024-2-26 23:04
+
+个人的一点私心是睦在KTV真的笑得很开心<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">为数不多能看到睦笑脸的时候了。我觉得访谈是结果论的应该会和过程打一个时间差吧
+
+*****
+
+####  Aendst  
+##### 13535#       发表于 2024-2-26 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">KTV那里可以说是原作体现睦祥关系性的一个高峰了
+

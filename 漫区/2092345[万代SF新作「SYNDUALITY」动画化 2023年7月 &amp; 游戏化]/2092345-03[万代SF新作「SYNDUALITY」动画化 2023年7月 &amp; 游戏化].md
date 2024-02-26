@@ -2229,3 +2229,32 @@ Macht Ewigkeit</blockquote>
 
 刚看完十九话，太失望了，数据转移后，怎么外形都变了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyMS  
+##### 4021#       发表于 2024-2-26 22:57
+
+准备上线看直播
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  novyMS  
+##### 4022#       发表于 2024-2-26 23:02
+
+果然是A国
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Freakyyu  
+##### 4023#       发表于 2024-2-26 23:02
+
+草，漫画的广告
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

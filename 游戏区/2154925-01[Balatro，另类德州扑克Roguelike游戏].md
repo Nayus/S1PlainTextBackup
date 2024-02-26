@@ -3213,3 +3213,11 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 你们说的r是键盘还是右肩键？我用sd玩的，找不到快速重开的按钮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 288#       发表于 2024-2-27 01:24
+
+发现了个小bug，商店里对复制小丑的幻灵牌选择购买且立即使用但是小丑格子满了，于是那张幻灵牌就卡在那里了，卖小丑也无效
+

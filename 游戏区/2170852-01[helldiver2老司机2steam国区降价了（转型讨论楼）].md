@@ -9923,3 +9923,11 @@ p2p联机，别挂代理
 
 强烈推荐把ctrl改点按，搓招改方向键，这样可以边跑边搓招了，就是要适应下键位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 1009#       发表于 2024-2-26 11:45
+
+日常只做过巴菲特大阻炮60杀的，后期压根不缺奖章，所有资源严重溢出，准备afk等机甲落地了
+

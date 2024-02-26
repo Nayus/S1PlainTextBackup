@@ -2827,3 +2827,21 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  就是剑鞘  
+##### 254#       发表于 2024-2-26 11:49
+
+<img src="https://p.sda1.dev/15/1b0271654be710386d51d35eafaf3156/805.png" referrerpolicy="no-referrer">
+
+这不比Eternal的蛋废多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杜文乐超神归来  
+##### 255#       发表于 2024-2-26 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">感觉刷新的成本相较于收益太高了，搞得很容易恶性循环。烂的局想改命，刷一下要五块钱但是只能刷两张牌，大概率这两张牌还是烂，刷了死不刷也死
+

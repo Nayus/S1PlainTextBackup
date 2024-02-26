@@ -1850,3 +1850,23 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ddy2811  
+##### 13472#       发表于 2024-2-26 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64068788&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 11:38</a>
+
+13话爽世都开始反省自己的自我中心，合着只能反省到祥子这…只能说理解不同吧。我觉得还是少揣测角色怎么想 ...</blockquote>
+但现在大家说的确实就是“看角色做了什么”以后得出的看法啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 13473#       发表于 2024-2-26 11:46
+
+ 本帖最后由 Aendst 于 2024-2-26 11:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只看做了什么那更过分了，喜欢我不问询他人意见就擅自直接回绝慰问品的魅力行为吗，甚至还是在ep12尾声入队有所反省之后干出来的
+

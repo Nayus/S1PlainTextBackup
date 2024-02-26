@@ -1991,3 +1991,24 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  acgreen  
+##### 13484#       发表于 2024-2-26 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64069384&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-02-26 12:24:05</a>
+可能对恨这个字有不同的尺度吧
+
+用责怪可能没这么 呃.. 负面？</blockquote>对，恨太超过了，睦可以说是唯一愿意稍微照顾一下爽世的心情的人了，最后居然是被记恨
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  NODY  
+##### 13485#       发表于 2024-2-26 12:41
+
+说到底就是对“恨”这个词的理解呗，爽姐对睦的恨其实是类似于“你弄坏了我的玩具你一定要赔给我”的恨（之前也说了爽这人在极端情绪下会出现类似小孩子闹脾气的行为），ls可能觉得这个恨是血海深仇不共戴天那种恨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

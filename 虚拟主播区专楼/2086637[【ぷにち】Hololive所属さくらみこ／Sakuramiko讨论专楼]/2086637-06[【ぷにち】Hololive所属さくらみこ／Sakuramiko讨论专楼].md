@@ -575,3 +575,19 @@ lv1.5通关就算结束了，当然标题本来也没写固定什么难度也没
 
 看起来其中之一是新曲发表基本跑不了了，剩下变数就是专辑发不发表的事了
 
+
+*****
+
+####  holoan  
+##### 8244#         楼主| 发表于 2024-2-26 23:58
+
+<img src="https://img.saraba1st.com/forum/202402/26/235746vklaatjjjjrt7rza.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 23:57 上传
+
+等会，今天27号
+

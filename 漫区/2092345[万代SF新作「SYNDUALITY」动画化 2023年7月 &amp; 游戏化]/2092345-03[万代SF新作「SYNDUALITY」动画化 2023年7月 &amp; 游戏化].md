@@ -2470,3 +2470,34 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 真走了也算是风光大葬了，铺垫离去悼念花了整整三集
 
+
+*****
+
+####  星降る森  
+##### 4046#       发表于 2024-2-26 23:59
+
+现阶段歌姬复活也没用，没0式身体放，除非亚美西亚又翻出来一个空身体……noir是乐园下载数据出现的人格
+
+
+*****
+
+####  765事务所  
+##### 4047#       发表于 2024-2-27 00:03
+
+看样子下集又要水一集，剩下的集数可不多了。<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Freakyyu  
+##### 4048#       发表于 2024-2-27 00:05
+
+本来就是人造人角色，想让她活有的是路子能写活，最后要是除了Ciel打输复活赛剩下都在那包饺子只能是故意恶心人了。能想到最脑残的展开就是范斯海把其他零式机体全都销毁陪葬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4049#       发表于 2024-2-27 00:05
+
+歌姬肯定也是能下载的！
+结局没歌姬直接-2！
+

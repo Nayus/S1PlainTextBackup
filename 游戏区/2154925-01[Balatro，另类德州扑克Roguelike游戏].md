@@ -3119,3 +3119,17 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 最后还好买了张惜别 直接跳过大怪去打boss了 勉强过关
 
+
+*****
+
+####  fuochai  
+##### 281#       发表于 2024-2-27 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076398&amp;ptid=2154925" target="_blank">fuochai 发表于 2024-2-26 23:47</a>
+
+这把弱智了看到负片无脑选 没注意削手牌 打不出同花顺了 结果那两个负片的也相当于无效了
+
+相当于顶 ...</blockquote>
+
+后来想了想 这张牌其实不该用的 因为我宁愿用一个小丑位换一个手牌位 所以反过来说这张牌对我没用
+

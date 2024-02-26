@@ -2798,3 +2798,53 @@ mujica没说过要成为人，睦也从来没有自认过人偶，漏油搞错�
 
 毒亲操控（任人打扮）的人偶/被人类抛弃的人偶这部分倒是很同意，我也觉得会跟人间体有关系
 
+
+*****
+
+####  harukage  
+##### 13553#       发表于 2024-2-27 00:01
+
+睦玩乐队不开心，但是解散以后还陪着soyo这点已经可以爽磕cp了
+
+*****
+
+####  6030sylar  
+##### 13554#       发表于 2024-2-27 00:01
+
+<img src="https://img.saraba1st.com/forum/202402/27/000116b4008m8afh0dr8d8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>84a95c164b0083240c433b3f04fe02a4.jpeg</strong> (245.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 00:01 上传
+
+
+*****
+
+####  Aendst  
+##### 13555#       发表于 2024-2-27 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076500&amp;ptid=2159415" target="_blank">harukage 发表于 2024-2-27 00:01</a>
+
+睦玩乐队不开心，但是解散以后还陪着soyo这点已经可以爽磕cp了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……已经懒得说了，但凡多翻翻楼
+
+*****
+
+####  鳥栖朝  
+##### 13556#       发表于 2024-2-27 00:03
+
+为什么握着人偶丝线的不能是人偶自己呢？结合祥子贝多芬说，被命运捉弄，和命运做斗争，然后掌控自己的命运
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 13557#       发表于 2024-2-27 00:06
+
+mujica小视频里莉伽说自己把人偶的线切断了/弄消失了然后取回了自由，不过我觉得理解上和自己掌控命运（自己握着线）没有太大区别
+
+甚至可以和1st的自己手搓月亮联动一下，大体上都是一种自己掌握自己命运不会退让的味道
+

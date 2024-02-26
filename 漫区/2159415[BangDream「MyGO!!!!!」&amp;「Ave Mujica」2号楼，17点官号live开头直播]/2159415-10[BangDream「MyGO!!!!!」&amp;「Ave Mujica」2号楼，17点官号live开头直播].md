@@ -2848,3 +2848,28 @@ mujica小视频里莉伽说自己把人偶的线切断了/弄消失了然后取�
 
 甚至可以和1st的自己手搓月亮联动一下，大体上都是一种自己掌握自己命运不会退让的味道
 
+
+*****
+
+####  PDQ4  
+##### 13558#       发表于 2024-2-27 00:08
+
+嗑cp无所谓，毕竟搞同人自由都可以整出怀孕吧了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过要是认真讨论的话，到底是“睦陪着爽世”，还是“爽世为了找祥子一直去抓睦”，是需要分分清的，会导向完全不同的两种角色理解。狗动画里里睦对爽世的主动只有第七集你爽世姐破防以后，甚至那一次也是爽世先开口的。至于不拒绝爽世抓人就是铁暗恋这种理解，我觉得泥漏应该不会有。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 13559#       发表于 2024-2-27 00:08
+
+mujica那个小剧场更类似于人偶通过音乐获得自由，并不否认人偶的本质，也唾弃人偶对人类的渴望<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 13560#       发表于 2024-2-27 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一个比较奇怪的理解，既然祥子喜欢人偶，那么展现她内心箱庭的世界观自然也会对人偶持比较正面的态度
+

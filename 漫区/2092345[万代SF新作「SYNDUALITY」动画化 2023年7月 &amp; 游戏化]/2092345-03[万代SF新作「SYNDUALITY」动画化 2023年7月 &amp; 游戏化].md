@@ -2501,3 +2501,59 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 歌姬肯定也是能下载的！
 结局没歌姬直接-2！
 
+
+*****
+
+####  charlespfan  
+##### 4050#       发表于 2024-2-27 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076274&amp;ptid=2092345" target="_blank">何处分可 发表于 2024-2-26 23:30</a>
+这后面多少集啊，这一集还纯是回忆上得了乐园吗
+
+感觉大哥得是这三个里面实战最强吧 ...</blockquote>
+好像是卫浴柜第一，大哥第二，黑假面第三
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  亚瑟邓特  
+##### 4051#       发表于 2024-2-27 00:11
+
+ 本帖最后由 亚瑟邓特 于 2024-2-27 00:12 编辑 
+
+打不赢复活赛老鸭在我这本就岌岌可危的好感度就要清零了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">，人大翔子虽然没了记忆可留着呢
+
+*****
+
+####  charlespfan  
+##### 4052#       发表于 2024-2-27 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076362&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2024-2-26 23:42</a>
+女主厨先去买点香槟，准备自己独饮（</blockquote>
+你看这楼里哪来的女主厨？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全都是歌姬厨
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zzy516232108  
+##### 4053#       发表于 2024-2-27 00:13
+
+[f:125跟着字幕组看到了18集
+
+怎么雪儿莫名其妙挂了
+
+
+*****
+
+####  何处分可  
+##### 4054#       发表于 2024-2-27 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076569&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-2-27 00:08</a>
+
+好像是卫浴柜第一，大哥第二，黑假面第三
+
+—— 来自 S1Fun</blockquote>
+感觉黑发实战没有大哥多，综合成绩比大哥强
+

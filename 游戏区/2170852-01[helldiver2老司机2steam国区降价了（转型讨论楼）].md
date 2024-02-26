@@ -10011,3 +10011,17 @@ p2p联机，别挂代理
 看到个新bug,强袭虫冲锋即将停止到结束的动画过程中，强袭虫后腿到躯干左右的护甲会失去防护。
 这下什么都可以杀了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lazycat233  
+##### 1018#       发表于 2024-2-26 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64071298&amp;ptid=2170852" target="_blank">Steel.Haze 发表于 2024-2-26 15:15</a>
+解锁的话：
+
+首先现在连喷时版本答案，但是我不喜欢，我更喜欢主宰。不用主宰我可能干脆用圣骑了。
+
+然后其实 ...</blockquote>
+主宰那个准心跟机炮一样带延迟的太怪了，但是别人机炮那个才是真爆炸
+

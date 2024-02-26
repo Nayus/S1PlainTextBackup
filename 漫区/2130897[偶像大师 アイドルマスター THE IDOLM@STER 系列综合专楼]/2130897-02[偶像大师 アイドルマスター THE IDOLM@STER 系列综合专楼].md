@@ -1212,3 +1212,53 @@ gkmas
 
 我是小高我都想骂人了
 
+
+*****
+
+####  Anatoly  
+##### 1624#       发表于 2024-2-26 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64073699&amp;ptid=2130897" target="_blank">Srchy 发表于 2024-2-26 18:51</a>
+
+听舅舅说是外包给QA的，那建模什么的这些应该就和IP差不多吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">IP那建模精细度我已经不是特别遭的住了
+
+当然要是和ip一个游戏模式那倒是解压
+
+*****
+
+####  Srchy  
+##### 1625#       发表于 2024-2-26 19:17
+
+ 本帖最后由 Srchy 于 2024-2-26 19:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">伏见司
+
+<img src="https://img.saraba1st.com/forum/202402/26/191840l0l1l0hy6cy43r6l.png" referrerpolicy="no-referrer">
+
+<strong>43rfhy577435t3.png</strong> (45.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 19:18 上传
+
+*****
+
+####  RhmBWT_Wu  
+##### 1626#       发表于 2024-2-26 19:18
+
+<img src="https://p.sda1.dev/15/5b0b886d4299ec8adc74dee08b41b59f/CMP_20240226191801851.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Seeley  
+##### 1627#       发表于 2024-2-26 19:22
+
+不愧是雾子bot<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

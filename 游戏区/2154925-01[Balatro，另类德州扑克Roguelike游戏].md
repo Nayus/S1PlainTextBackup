@@ -3024,3 +3024,29 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  fuochai  
+##### 272#       发表于 2024-2-26 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64071838&amp;ptid=2154925" target="_blank">schneehertz 发表于 2024-2-26 16:08</a>
+
+这牌的上限快到了，如果是我的话就搏一搏
+
+—— 来自 Xiaomi 2203121C, Android 14上的 S1Next-鹅版 v2.5 ...</blockquote>
+我后来把背包扔了 感觉他增长太慢 还能解锁个传奇 拿到无视boss能力了 还挺有用的
+
+*****
+
+####  fuochai  
+##### 273#       发表于 2024-2-26 19:27
+
+<img src="https://pic.imgdb.cn/item/65dc75299f345e8d03806792.jpg" referrerpolicy="no-referrer">、
+
+这把挺爽的 负片塞左边给右边组合buff 不过战力膨胀太快 双星空拼尽全力也无法战胜
+
+我本来以为是差一半 没想到才1/20<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+看了下是模式限制蓝字不能超过钱 不过我好像也没什么加蓝的buff
+

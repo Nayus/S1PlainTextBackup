@@ -2674,3 +2674,29 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 黑色天使黑色天使 你就说noir是不是从天上下来的吧
 
+
+*****
+
+####  novyMS  
+##### 4067#       发表于 2024-2-27 05:41
+
+原来这假想敌是阿尔巴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/27/054125dh3u5dmwtom5d5uu.jpg" referrerpolicy="no-referrer">
+
+<strong>67e0438c-e4d0-485e-ab3e-c13cee374ae0.jpg</strong> (126.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 05:41 上传
+
+<img src="https://img.saraba1st.com/forum/202402/27/054125c3gqn2t2g7g0qk70.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-27-05-40-33-55_a7db8124943aa3a75362668aade7e3c7.jpg</strong> (727.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 05:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

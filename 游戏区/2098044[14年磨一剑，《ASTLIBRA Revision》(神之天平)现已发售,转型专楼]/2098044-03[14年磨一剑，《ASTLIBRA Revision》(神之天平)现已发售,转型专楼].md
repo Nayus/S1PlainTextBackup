@@ -551,3 +551,15 @@ DLC刷的难受，本来期待剧情的，没想到是纯刷，每次刷一个�
 
 —— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  otakun  
+##### 4057#       发表于 2024-2-26 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64069429&amp;ptid=2098044" target="_blank">Nihlathak 发表于 2024-2-26 12:27</a>
+打到第八层高级奖池头奖还没出过这正常吗
+
+—— 来自 samsung SM-S916U, Android 14上的 S1Next-鹅 ...</blockquote>
+应该有进度限制，我第十还是11的时候，一个十连抽了两个出来，之后2次十连都出1个了，成就解锁。
+

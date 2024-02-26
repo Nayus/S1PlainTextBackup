@@ -2012,3 +2012,38 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 说到底就是对“恨”这个词的理解呗，爽姐对睦的恨其实是类似于“你弄坏了我的玩具你一定要赔给我”的恨（之前也说了爽这人在极端情绪下会出现类似小孩子闹脾气的行为），ls可能觉得这个恨是血海深仇不共戴天那种恨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苇原雪道  
+##### 13486#       发表于 2024-2-26 12:44
+
+刚看了姐妹论的假药，感觉有点道理诶。。。
+
+*****
+
+####  苇原雪道  
+##### 13487#       发表于 2024-2-26 12:48
+
+爽世对睦肯定是恨的。炸团那天其他人都反对祥子退团，soyo自己也感觉还有挽回的机会，结果问到睦的时候一句话崩飞了。5人团少俩是肯定玩不下去了。
+
+*****
+
+####  ddy2811  
+##### 13488#       发表于 2024-2-26 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64069545&amp;ptid=2159415" target="_blank">acgreen 发表于 2024-2-26 12:37</a>
+
+对，恨太超过了，睦可以说是唯一愿意稍微照顾一下爽世的心情的人了，最后居然是被记恨
+
+  -- 来自 能看大图 ...</blockquote>
+如果你的照顾是你的自以为是，那么被记恨就是理所当然的，对素世是这样，对祥子也是这样
+
+
+*****
+
+####  御幸一也  
+##### 13489#       发表于 2024-2-26 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">別扯祥子，祥子可不恨睦
+

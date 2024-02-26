@@ -4077,3 +4077,15 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 DLC上线的那天看了下直播，这点东西都要卖150，真当自己是上帝了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3407#       发表于 2024-2-26 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075888&amp;ptid=2150634" target="_blank">落油Я 发表于 2024-2-26 22:45</a>
+DLC上线的那天看了下直播，这点东西都要卖150，真当自己是上帝了</blockquote>
+然而随便打X赛发现秩序篇武器烂大街，甚至不少人有无限徽章，可见买账的人实在太多了，研究所只会觉得钱真好赚<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

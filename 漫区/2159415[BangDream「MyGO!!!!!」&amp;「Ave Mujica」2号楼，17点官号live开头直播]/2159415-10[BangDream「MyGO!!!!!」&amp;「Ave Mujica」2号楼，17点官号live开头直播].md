@@ -2520,3 +2520,35 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 如果有我無法理解的地方，我會先思考一下是不是喜歡的東西不同導致的角色理解不同。
 
+
+*****
+
+####  穗波殊  
+##### 13528#       发表于 2024-2-26 22:51
+
+这里的差别和素睦关系不是很大<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我哭死
+
+*****
+
+####  PDQ4  
+##### 13529#       发表于 2024-2-26 22:51
+
+怎么又轮回了，访谈出来前睦到底开不开心还有得汴，访谈出来后真就没什么好汴的了。
+
+睦不开心确实是事实，锤了不开心是有自己的原因在，有异议的也就是在那个时间点说出来到底有没有为祥子背锅的理由在。不过作为编剧的绫奈那么说我觉得和睦本人的想法根本没区别。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 13530#       发表于 2024-2-26 22:55
+
+又在轮回主语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不也是聊烂的东西吗
+
+*****
+
+####  NODY  
+##### 13531#       发表于 2024-2-26 22:55
+
+鉴于这动画一开始就没打算避开角色的争议点，最极端的情况睦真的是为了祥子才勉强自己待在不开心的乐队，祥子走了就为了帮祥子分担罪恶感实话实说把c团炸了也不是没有可能的，后面帮爽世和关注mygo进展则是出于炸团的罪恶感在帮助人家找个新家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

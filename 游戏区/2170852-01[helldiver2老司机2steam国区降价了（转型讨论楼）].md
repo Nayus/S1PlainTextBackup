@@ -10193,3 +10193,16 @@ win11的话看看进程里有没有gamebar，强制结束这玩意就能进了�
 匹配很流畅，但跟好友联机很困难，总是进不去游戏大厅或者连接错误，这是啥原因 ...</blockquote>
 不开加速器试试
 
+
+*****
+
+####  sigeren  
+##### 1035#       发表于 2024-2-26 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075727&amp;ptid=2170852" target="_blank">conanoysq 发表于 2024-2-26 22:25</a>
+
+不开加速器试试</blockquote>
+加速器开和关都试过了，就是不行
+
+进别的房间都好进，就是好友的进不去
+

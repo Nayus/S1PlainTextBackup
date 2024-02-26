@@ -2853,3 +2853,13 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 
 减牌型等级和只能打一手两个boss属实是早期杀手，ban花色反而早期没成型的时候遇到没什么威胁
 
+
+*****
+
+####  lilod  
+##### 257#       发表于 2024-2-26 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64068960&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-02-26 11:49:18</a></blockquote>不不 你没有付出啥啊。。我那个蛋是我跳 blind 用 tag 效果换的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

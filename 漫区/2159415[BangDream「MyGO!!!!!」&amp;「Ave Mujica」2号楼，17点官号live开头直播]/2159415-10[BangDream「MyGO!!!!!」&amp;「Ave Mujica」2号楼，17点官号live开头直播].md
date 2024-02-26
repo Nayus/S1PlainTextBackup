@@ -1899,3 +1899,68 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  acgreen  
+##### 13477#       发表于 2024-2-26 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64068875&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-26 11:43:49</a>
+但现在大家说的确实就是“看角色做了什么”以后得出的看法啊</blockquote>我不觉得揣测爽世恨不恨是“角色做了什么”，她有反省是事实
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ydsbbt  
+##### 13478#       发表于 2024-2-26 12:16
+
+睦是好心，但听起来像阴阳，这很难理解吗？搞得和大伙都是睦黑一样
+
+<img src="https://img.saraba1st.com/forum/202402/26/121533gy7yyho1jg7y5jm7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-26-12-11-39-53.jpg</strong> (158.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-26 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202402/26/121539ww80zo875u38241n.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240226_121304.jpg</strong> (290.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-26 12:15 上传
+
+*****
+
+####  御幸一也  
+##### 13479#       发表于 2024-2-26 12:19
+
+沒太懂在吵什麼，以爽世對C團的執著程度不恨睦才比較奇怪吧，連訪談都那樣形容了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+就算在最後她接納了go，看起來好像也不是“放下”了C團啊，都說一輩子不會忘記了，聽起來就是放不下
+
+而且訪談也說了，和燈那個對話是爽世在甘え，她那樣說是要和燈確認，自己不會忘記C團，這樣的自己待在mygo是不是也可以，
+
+而這邊得到了燈的肯定回答，也就是在這裡，她們建立了屬於她們的羈絆。
+
+這看起來真的是她放下了嗎，她如果沒放下C團，又怎麼可能不恨睦，因為真正打出那個讓C團炸掉的決定性一擊的人，是睦（訪談說的）
+
+而且為什麼覺得爽世恨睦就是在審判睦，我看不懂這個邏輯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 13480#       发表于 2024-2-26 12:22
+
+爽世恨睦真的很难接受吗。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她怎么看待睦是她自己的事，理解不意味着就赞同她。
+
+狗里三个老c人，立希认为祥子的错所以不待见她，灯认为自己的错所以自我谴责，爽世认为是睦的错所以不待见睦。
+
+不过这仨从来就没在拆团的事达成共识，指望观众达成共识也确实不现实。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

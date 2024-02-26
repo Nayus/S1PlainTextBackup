@@ -2760,3 +2760,20 @@ mujica没说过要成为人，睦也从来没有自认过人偶，漏油搞错�
 
 以及小视频中涉及人偶相关时并不是负面含义，也就是说从感情基调上来说就是不需要脱离“人偶”的
 
+
+*****
+
+####  PDQ4  
+##### 13551#       发表于 2024-2-26 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076318&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-26 23:35</a>
+
+人偶意向在mujica自己的小视频里涉及比较多一些，这个意向非常重要，首先就是世界观的基础
+
+其次按照 ...</blockquote>
+感觉和漏油理解的还是不太一样。
+
+我理解的是mujica不是从人类变成人偶，而是人间体本身就有一部分人偶的要素在，比如按照日本人猜测全员毒亲。
+
+鸡全员追求的是受控的人偶→断线获得自由的人偶，向意图操纵放弃自己的人类进行“复仇”，结果就是属于人偶的新世界。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

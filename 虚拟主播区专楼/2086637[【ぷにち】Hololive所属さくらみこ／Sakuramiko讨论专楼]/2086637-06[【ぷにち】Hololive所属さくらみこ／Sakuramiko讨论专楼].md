@@ -557,3 +557,11 @@ lv1.5通关就算结束了，当然标题本来也没写固定什么难度也没
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  karastar  
+##### 8242#       发表于 2024-2-26 23:38
+
+懂了，杏奴都是指示厨
+

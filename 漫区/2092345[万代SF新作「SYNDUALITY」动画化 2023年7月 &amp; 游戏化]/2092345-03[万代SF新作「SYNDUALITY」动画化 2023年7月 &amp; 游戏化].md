@@ -2417,3 +2417,56 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 2024-2-26 23:34 上传
 
+
+*****
+
+####  reficul  
+##### 4042#       发表于 2024-2-26 23:36
+
+今天是226，动画里也是226<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑假面你前面还喷时生抛弃你们逃跑，我还以为你们组织出了什么变故，合着是你们自己造反啊。时生都这么极力邀请你了仁至义尽啊
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NeloAngelo| + 1|226,🌿|
+
+查看全部评分
+
+*****
+
+####  NeloAngelo  
+##### 4043#       发表于 2024-2-26 23:38
+
+你下一集最好是复活赛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RE㐅ia  
+##### 4044#       发表于 2024-2-26 23:42
+
+女主厨先去买点香槟，准备自己独饮（
+
+
+*****
+
+####  RE㐅ia  
+##### 4045#       发表于 2024-2-26 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076334&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-26 23:38</a>
+
+你下一集最好是复活赛  不然就是又迫害一次观众的烂活
+
+—— 来自 S1Fun ...</blockquote>
+就这文字预告怎么看也是悼念回吧（
+
+真走了也算是风光大葬了，铺垫离去悼念花了整整三集
+

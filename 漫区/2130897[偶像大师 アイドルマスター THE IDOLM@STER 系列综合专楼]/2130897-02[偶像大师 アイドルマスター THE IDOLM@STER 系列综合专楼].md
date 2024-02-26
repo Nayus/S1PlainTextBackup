@@ -959,3 +959,35 @@ THE IDOLM@ster LIVE THE@ter DREAMERS 这类有双人的</blockquote>
 
 小的来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  cckuku  
+##### 1595#       发表于 2024-2-26 17:38
+
+它现在上这个新手游，那scsp怎么办？不管了？
+
+*****
+
+####  水莲寺流歌  
+##### 1596#       发表于 2024-2-26 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不清楚大小，先预定烂活儿
+
+
+*****
+
+####  安广多惠子  
+##### 1597#       发表于 2024-2-26 17:41
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zeroed  
+##### 1598#       发表于 2024-2-26 17:42
+
+活的比消消乐长就是胜利
+

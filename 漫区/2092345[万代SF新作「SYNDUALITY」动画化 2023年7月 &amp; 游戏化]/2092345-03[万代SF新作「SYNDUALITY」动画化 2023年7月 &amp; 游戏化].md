@@ -2616,3 +2616,20 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 3个贤士都是西史多瓦上面下载来的数据吧，不想依靠贤士的阿美利亚被毁灭了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 4061#       发表于 2024-2-27 01:54
+
+组织名: Ideal des Himmels
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  PokerFaceSmile  
+##### 4062#       发表于 2024-2-27 01:56
+
+盲猜一手卫浴柜赢到了最后，但是乐园封存的都是些过时的技术，相比较而言这个时代的人们已经算是生活在乐园上了。卫浴柜道心破碎，ideal瓦解。
+

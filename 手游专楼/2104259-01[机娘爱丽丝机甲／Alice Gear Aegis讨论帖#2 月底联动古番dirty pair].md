@@ -34,3 +34,13 @@
 
 才攒了12张票，还是跳过吧。。。
 
+
+*****
+
+####  Rincewind  
+##### 946#       发表于 2024-2-27 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64032031&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-2-22 14:55</a>
+日本人的法国情结到底有多重，和故事没多大关系的法国女演员都3人了，算上小裤裤的佩林就是四人。爸爸国女 ...</blockquote>
+司哥混血+长期在英国shard生活，也算得上半个来着。
+

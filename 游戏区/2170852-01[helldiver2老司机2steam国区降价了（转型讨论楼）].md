@@ -10225,3 +10225,17 @@ win11的话看看进程里有没有gamebar，强制结束这玩意就能进了�
 
 其实打运输船还不如用榴弹往上面炸，炸一波除了巨型者和坦克以外都得死
 
+
+*****
+
+####  WGTCorp  
+##### 1038#       发表于 2024-2-27 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075914&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-2-26 22:48</a>
+加速器开和关都试过了，就是不行
+
+进别的房间都好进，就是好友的进不去
+
+ ...</blockquote>
+换个人当主机试试，昨晚也有群友进不了房间，后来干脆让他当主机，其他人都能进去了。
+

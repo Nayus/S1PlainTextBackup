@@ -519,3 +519,13 @@ miko：负（符号）是啥？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过了
 
+
+*****
+
+####  holoan  
+##### 8239#         楼主| 发表于 2024-2-26 23:07
+
+lv1.5通关就算结束了，当然标题本来也没写固定什么难度也没什么问题
+
+不过lv2开始就不只是背乘法表能解决的问题，你需要有个老师教你
+

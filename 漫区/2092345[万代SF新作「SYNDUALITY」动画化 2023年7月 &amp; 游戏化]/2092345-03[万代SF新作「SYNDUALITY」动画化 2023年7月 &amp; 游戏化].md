@@ -2258,3 +2258,46 @@ Macht Ewigkeit</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  novyMS  
+##### 4024#       发表于 2024-2-26 23:07
+
+草 诺娃是空降的?
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NeloAngelo  
+##### 4025#       发表于 2024-2-26 23:09
+
+noir是空降, 那ciel应该也有问题. 两个magus的名字都是法语里的颜色
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DARK_HGCG  
+##### 4026#       发表于 2024-2-26 23:11
+
+老奶奶真好啊
+
+
+*****
+
+####  RE㐅ia  
+##### 4027#       发表于 2024-2-26 23:14
+
+瑟瑟诺娃<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyMS  
+##### 4028#       发表于 2024-2-26 23:15
+
+又鞭尸歌姬
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

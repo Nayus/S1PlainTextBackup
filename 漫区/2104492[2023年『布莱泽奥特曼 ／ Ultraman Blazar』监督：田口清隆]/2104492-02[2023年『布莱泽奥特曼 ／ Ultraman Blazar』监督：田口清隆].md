@@ -421,3 +421,13 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 
 非常无聊，就是放进布莱泽自己的TV里面也是最无聊的那几个单元回水平。算是近几年最无聊的奥特曼剧场版了，我的评价是在线看看乐呵一下还可以吧，出门去电影院就属于纯浪费时间了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥本有菜  
+##### 1829#       发表于 2024-2-26 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熊孩子，不对，这货简直是反社会份子他爹简直是日了狗了，全程背锅特别最后工作还没了，算是把十年前仁良的债全还了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

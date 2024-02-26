@@ -2588,3 +2588,94 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">KTV那里可以说是原作体现睦祥关系性的一个高峰了
 
+
+*****
+
+####  PDQ4  
+##### 13536#       发表于 2024-2-26 23:07
+
+ 本帖最后由 PDQ4 于 2024-2-26 23:10 编辑 
+
+贷款的话，我会贷睦睦有过乐队过去/接触过乐队，名门大小姐从小为什么接触吉他，家里面又是如何同意让她接触吉他的本来就有很多可以造谣的地方。
+
+然后自己崇拜的乐队叒解散了，也许睦本来就很悲观，因为见证无数次自推乐队炸裂的现实，但是她还是为了祥子加入乐队，我哭死。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+想想如果我这么造谣，睦宝儿喜欢pp就再合理不过了，地狱开局结果竟然没有解散，还团团又魂魂，这是什么奇迹。带来死亡的mortis，唯一一个厨了还活着的乐队只有pp。<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 13537#       发表于 2024-2-26 23:09
+
+我会贷款睦大哭<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">因为女孩子哭起来最可爱！而且睦现在不是自认人偶吗。而要人成为人就是从哭开始的。
+
+*****
+
+####  御幸一也  
+##### 13538#       发表于 2024-2-26 23:10
+
+都討論過的東西實在很懶再說一次，總之我根據已知的事實得出的解釋是這樣<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+[https://bbs.saraba1st.com/2b/for ... page=76#pid63096058](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2159415&amp;page=76#pid63096058)
+
+<img src="https://img.saraba1st.com/forum/202402/26/231053o2grr4yri543czp2.png" referrerpolicy="no-referrer">
+
+<strong>image (3).png</strong> (49.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 23:10 上传
+
+*****
+
+####  Aendst  
+##### 13539#       发表于 2024-2-26 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mujica没说过要成为人，睦也从来没有自认过人偶，漏油搞错了吧
+
+贷款可以贷一下pp和睦吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuyin589  
+##### 13540#       发表于 2024-2-26 23:12
+
+睦在KTV笑是因为看到了祥子那个傻样吧，跟“玩乐队”本身就没什么关系
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 13541#       发表于 2024-2-26 23:12
+
+认为睦是人偶的从来都是会曲解擅自解读睦想法的那些外人和无良媒体，睦还真不觉得她会自认自己是人偶。
+
+人偶会在祝福老队友的时候刻意去挑只属于自己的东西吗，我理解里这恰恰是有明确自我意识的体现。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 13542#       发表于 2024-2-26 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076083&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-26 23:10</a>
+
+都討論過的東西實在很懶再說一次，總之我根據已知的事實得出的解釋是這樣
+
+https://bbs.saraba1st.co ...</blockquote>
+虽然很想给你加鹅但是都在今天的ba轰炸里扣光了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">总之请你原谅我的不仔细
+
+*****
+
+####  穗波殊  
+##### 13543#       发表于 2024-2-26 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076089&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-2-26 23:10</a>
+
+mujica没说过要成为人，睦也从来没有自认过人偶，漏油搞错了吧
+
+贷款可以贷一下pp和睦吗
+
+ ...</blockquote>
+所以是假药。真正的理由只有“哭出来的女孩子最可爱！”这一条。
+

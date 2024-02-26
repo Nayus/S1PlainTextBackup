@@ -2362,3 +2362,38 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 看自己的角色理解。我以前抱持的解释是1因为当时是分锅版本这样睦睦能少分一点锅，而且感觉睦睦应该有音乐性的追求可能不太喜欢学生乐队。不过现在觉得睦睦应该还是心思细腻的那类人所以选2了
 
+
+*****
+
+####  -LYRE-  
+##### 13513#       发表于 2024-2-26 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64074963&amp;ptid=2159415" target="_blank">wsuFish 发表于 2024-2-26 21:04</a>
+睦是因为“分担祥子拆团的罪恶感”才开口说“从未开心过”的说法我个人一直不太认同，有相关访谈提及这个 ...</blockquote>
+楼上的解释存在一点问题
+那就是“睦觉得不开心”这一点在访谈里应该是没有争议的，有争议的只是缺乏主语，到底是睦自己还是编剧让睦选择在这时说出来为祥子分担责任<img src="https://p.sda1.dev/15/6693d9cb7156ba98d3634733f5fe2811/CMP_20240226214751257.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 13514#       发表于 2024-2-26 21:47
+
+这话题可以去翻翻楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 13515#       发表于 2024-2-26 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075178&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-2-26 21:25</a>
+
+是完结后出的主创访谈来着，你往前翻一阵应该能翻到。
+
+但是似乎是省略了主语，有两种可能的解释：
+
+1，（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你這個2真的有問題，睦玩樂隊不開心是錘中錘，綾奈還特地說了，睦玩樂隊不開心的理由還不能說。
+
+而主語爭議的部分，前面的樓都討論過了，就不再說一次了。
+

@@ -2221,3 +2221,11 @@ Macht Ewigkeit</blockquote>
 一台机四个人开进机战不是有一种数值的美？相当于四人份的技能</blockquote>
 萝卜本体水平有波士机器人或者梅斯塔强吗
 
+
+*****
+
+####  [皆神孝介]  
+##### 4020#       发表于 2024-2-26 21:48
+
+刚看完十九话，太失望了，数据转移后，怎么外形都变了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

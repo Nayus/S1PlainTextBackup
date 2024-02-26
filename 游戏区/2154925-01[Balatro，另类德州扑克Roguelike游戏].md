@@ -2950,3 +2950,36 @@ You can see I added ', dollars = 99999, joker_slot = 5' behind the 'discards = 1
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  fuochai  
+##### 266#       发表于 2024-2-26 15:38
+
+<img src="https://pic.imgdb.cn/item/65dc3faf9f345e8d03f83160.jpg" referrerpolicy="no-referrer">
+
+这套有必要再刷个传奇吗？
+
+生成的要先有空位还挺烦的 我现在是皇同秒杀流 感觉每张都不能缺 唯一能换的跑者是负片
+
+*****
+
+####  就是剑鞘  
+##### 267#       发表于 2024-2-26 15:40
+
+<img src="https://p.sda1.dev/15/cf5e911f282565cfa5aa763ffc8ef761/15.png" referrerpolicy="no-referrer">
+
+在这冒火特效的基础上改一改不就完了，又不是说一定要你显示精确数字。
+
+*****
+
+####  库德里尔  
+##### 268#       发表于 2024-2-26 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070338&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-26 13:49</a>
+
+BYD高进阶本来就要精打细算还不给预先显示分数，已经无数次为了多贪一次出牌直接贪死在半路了
+
+我打个B小品 ...</blockquote>
+另开一个存档 直接全部解锁（同时这个存档无法解锁成就）然后对着看
+

@@ -2468,3 +2468,11 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凸显什么区别，看没看访谈的区别吗
 
+
+*****
+
+####  穗波殊  
+##### 13522#       发表于 2024-2-26 22:36
+
+我看过访谈了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然这种事情没办法自证。泥漏当时聊到的时候我也没参与是后来补上的
+

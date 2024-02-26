@@ -2080,3 +2080,11 @@ Macht Ewigkeit</blockquote>
 
 还没记录完，明天还要早起（
 
+
+*****
+
+####  aptx8285144  
+##### 4009#       发表于 2024-2-26 10:36
+
+【【1月】奇异贤伴 黑色天使 SYNDUALITY Noir 第20话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/cUTmPTi](https://b23.tv/cUTmPTi)   20话汉化预告 ，伊甸亚尔创建的秘密似乎要揭开了
+

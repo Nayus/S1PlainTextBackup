@@ -1137,3 +1137,22 @@ gkmas
 
 故弄玄虚的傻逼玩意儿
 
+
+*****
+
+####  koodooliz  
+##### 1615#       发表于 2024-2-26 18:32
+
+欸，代孙是这样的
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1616#       发表于 2024-2-26 18:32
+
+新人声优希望能打点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+已经不指望别的了，期望肉体好点吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

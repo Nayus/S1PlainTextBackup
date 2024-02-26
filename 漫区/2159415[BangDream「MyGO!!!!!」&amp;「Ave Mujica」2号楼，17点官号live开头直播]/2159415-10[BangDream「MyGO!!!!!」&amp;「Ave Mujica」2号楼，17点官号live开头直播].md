@@ -2289,3 +2289,23 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 素食的恨其实也不是真恨。我觉得她心里早就知道c团回不来了，不然也也不可能一直没有有效行动。和灯灯的谈话也是“永远不会忘记c团”。她的恨大概就是“无论是谁让我忘掉过去，我都不会去忘记”这种程度罢了。虽然任性也不过是停留在想法上。
 
+
+*****
+
+####  苇原雪道  
+##### 13509#       发表于 2024-2-26 20:26
+
+话说素世对祥子到底是什么情感？感觉她对祥子并不像taki对tomori，taki对tomori才是真的《什么都会去干的》。soyo更多的是对Crychic的感情，终于找到了自己的容身之处，5个人缺一不可。 她可能也喜欢saki，但实际上应该没那么重女。但是这也解释不了下跪名场面。
+
+然后taki到底是为啥这么迷tomori？C团之前她俩应该不认识，大白祥把5人拉在一起才认识的，她怎么就这么憧憬tomori一个《非人类》。。。
+
+*****
+
+####  QwwwAwwwQ  
+##### 13510#       发表于 2024-2-26 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64072519&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-26 17:03</a>
+
+还是来看看同人股市吧</blockquote>
+炒股时间到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

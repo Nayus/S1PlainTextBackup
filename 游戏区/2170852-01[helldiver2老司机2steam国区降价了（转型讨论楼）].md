@@ -10122,3 +10122,37 @@ QQ图片20240226193117.png
 游戏进不去了  这怎么办</blockquote>
 win11的话看看进程里有没有gamebar，强制结束这玩意就能进了。没用到xbox服务的话卸载这玩意就行。这个进程和gameguard有冲突。
 
+
+*****
+
+####  FLZB  
+##### 1028#       发表于 2024-2-26 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64074044&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-2-26 19:33</a>
+
+游戏进不去了  这怎么办</blockquote>
+挂梯子或者加速，这个垃圾反作弊更新国内直连连不上
+
+*****
+
+####  LrGsite  
+##### 1029#       发表于 2024-2-26 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64073888&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-2-26 19:16</a>
+
+可以把运兵船打下了，筒子一发打推进器能打翻一艘船。</blockquote>
+<img src="https://img.nga.178.com/attachments/mon_202402/26/biQ2t-5fqXwZ8yT3cSgo-9e.gif" referrerpolicy="no-referrer">
+
+船炸了怪还是会下来的
+
+
+*****
+
+####  Mr.Hopp  
+##### 1030#       发表于 2024-2-26 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64074649&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-26 20:30</a>
+
+船炸了怪还是会下来的</blockquote>
+那没辙了，要不试试用电磁冲击波人送完就行
+

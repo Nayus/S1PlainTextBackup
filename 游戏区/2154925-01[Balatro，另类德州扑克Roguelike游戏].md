@@ -3010,3 +3010,17 @@ BYD高进阶本来就要精打细算还不给预先显示分数，已经无数�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  a4ac7  
+##### 271#       发表于 2024-2-26 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64064495&amp;ptid=2154925" target="_blank">a4ac7 发表于 2024-2-25 22:40</a>
+double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强
+
+—— 来自 HUAWEI NOH-AN00, Android 1 ...</blockquote>
+下一回合一次变两张，也不是那么强<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

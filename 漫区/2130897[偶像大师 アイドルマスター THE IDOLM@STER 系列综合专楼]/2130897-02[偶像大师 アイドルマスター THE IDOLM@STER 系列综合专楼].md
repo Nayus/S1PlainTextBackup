@@ -917,3 +917,14 @@ THE IDOLM[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) 
 THE IDOLM@ster LIVE THE@ter DREAMERS 这类有双人的</blockquote>
 朋友，双人曲这10年来就这么一个系列专辑。这边建议你听4到5人曲的近两年的新专
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1591#       发表于 2024-2-26 11:10
+
+<img src="https://p.sda1.dev/15/b1232683852197545b6e9979acfbfd1b/CMP_20240226110458307.png" referrerpolicy="no-referrer">
+怎么s1转圈gif也发不出来
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

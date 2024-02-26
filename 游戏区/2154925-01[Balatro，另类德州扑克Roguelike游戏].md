@@ -2797,3 +2797,15 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 然后不止一次感觉读心了，比如之前胡了把古代小丑+激荡，结果BOSS直接给ban了古代的要求花色，没法玩... ...</blockquote>
 就是这么设计的（会根据你使用次数多的花色，牌型出对应的 boss），每一轮 ante 先看看 boss，然后留意商店里 reroll boss 的选项
 
+
+*****
+
+####  schneehertz  
+##### 251#         楼主| 发表于 2024-2-26 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64067768&amp;ptid=2154925" target="_blank">gh1023 发表于 2024-2-26 10:35</a>
+然后不止一次感觉读心了，比如之前胡了把古代小丑+激荡，结果BOSS直接给ban了古代的要求花色，没法玩... ...</blockquote>
+10块重roll boss的优惠券能拿就拿，不然后面总有一关会被debuff卡死
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

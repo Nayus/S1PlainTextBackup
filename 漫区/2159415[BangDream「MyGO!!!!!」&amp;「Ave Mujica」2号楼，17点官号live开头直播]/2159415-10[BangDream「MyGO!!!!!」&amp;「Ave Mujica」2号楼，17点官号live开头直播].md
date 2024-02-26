@@ -2269,3 +2269,13 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 2024-2-26 17:03 上传
 
+
+*****
+
+####  江口夕  
+##### 13507#       发表于 2024-2-26 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你們沒看過我和這哥們對線麼，都結束了，還要來第二輪，人都把自己腦補的那套體系都完善了好幾輪了，祝開心就好就完事了。這種就像詹蜜在扯詹姆斯歷史第一一樣沒完沒了，寧可腦補也不去多看幾遍動畫
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

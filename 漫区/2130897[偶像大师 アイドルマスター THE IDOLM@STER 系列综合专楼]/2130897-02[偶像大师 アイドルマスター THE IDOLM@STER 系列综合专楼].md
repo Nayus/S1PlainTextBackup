@@ -1080,3 +1080,60 @@ gkmas
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Seeley  
+##### 1610#       发表于 2024-2-26 18:17
+
+上一天班回来还有好活？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+到家好好品鉴一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liyropen  
+##### 1611#       发表于 2024-2-26 18:21
+
+信息量只能用悲剧来形容，这是实机水平的话pc画质应该凑合
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Vacuolar  
+##### 1612#       发表于 2024-2-26 18:23
+
+万代你做了个勾巴
+
+*****
+
+####  Piano-Forest  
+##### 1613#       发表于 2024-2-26 18:24
+
+先导PV：[https://youtu.be/2k9OArKSD0s](https://youtu.be/2k9OArKSD0s)
+
+『アイドルマスター』シリーズ 「新ブランドアプリゲーム発表生配信」
+
+日時
+
+2024年3月5日（火）19:00～（予定）
+
+出演者
+
+小美野日出文（バンダイナムコエンターテインメント）
+
+キャラクターボイス担当声優
+
+配信ページ：
+[https://youtube.com/live/H2WXQS0S7sc](https://youtube.com/live/H2WXQS0S7sc)
+
+*****
+
+####  hypnossz86  
+##### 1614#       发表于 2024-2-26 18:25
+
+故弄玄虚的傻逼玩意儿
+

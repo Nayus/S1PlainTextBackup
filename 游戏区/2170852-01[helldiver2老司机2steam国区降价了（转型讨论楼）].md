@@ -10239,3 +10239,15 @@ win11的话看看进程里有没有gamebar，强制结束这玩意就能进了�
  ...</blockquote>
 换个人当主机试试，昨晚也有群友进不了房间，后来干脆让他当主机，其他人都能进去了。
 
+
+*****
+
+####  sigeren  
+##### 1039#       发表于 2024-2-27 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077014&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-2-27 01:40</a>
+换个人当主机试试，昨晚也有群友进不了房间，后来干脆让他当主机，其他人都能进去了。 ...</blockquote>
+我们就俩人，互相都进不去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

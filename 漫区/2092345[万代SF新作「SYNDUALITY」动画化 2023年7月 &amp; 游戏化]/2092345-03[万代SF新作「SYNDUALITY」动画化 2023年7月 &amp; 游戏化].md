@@ -2344,3 +2344,76 @@ tokio又跑了,草.
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  何处分可  
+##### 4034#       发表于 2024-2-26 23:27
+
+ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 4035#       发表于 2024-2-26 23:27
+
+白毛这不是完全就是被pua了吗
+
+*****
+
+####  zero12  
+##### 4036#       发表于 2024-2-26 23:27
+
+都是回忆
+
+*****
+
+####  Freakyyu  
+##### 4037#       发表于 2024-2-26 23:27
+
+不行了，这反派塑造好搞，一个典中典二流野心家一个没脑子的呆逼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星降る森  
+##### 4038#       发表于 2024-2-26 23:28
+
+大哥灵魂吐槽，为什么只有我的是老头magus草（还不是零式）
+
+*****
+
+####  何处分可  
+##### 4039#       发表于 2024-2-26 23:30
+
+这后面多少集啊，这一集还纯是回忆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上得了乐园吗
+
+感觉大哥得是这三个里面实战最强吧
+
+
+*****
+
+####  NeloAngelo  
+##### 4040#       发表于 2024-2-26 23:34
+
+ 本帖最后由 NeloAngelo 于 2024-2-26 23:35 编辑 
+
+第21話「Your song」
+
+イデアールとの決戦に備え、カナタはデイジーオーガアルターのさらなる強化を試みる。一方、ノワールはシエルの献身により救われたことをいまだ受け止めきれずにいた。シエルとの想い出を辿りながらあてもなくロックタウンを彷徨うノワールは、シエルのファンだという一人の少女と出会う。
+
+
+*****
+
+####  RE㐅ia  
+##### 4041#       发表于 2024-2-26 23:35
+
+<img src="https://img.saraba1st.com/forum/202402/26/233447fhd9u1hqer7191ti.png" referrerpolicy="no-referrer">
+
+<strong>26a46a0a6d6104164bd4d4c13c759fc5_720.png</strong> (328.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 23:34 上传
+

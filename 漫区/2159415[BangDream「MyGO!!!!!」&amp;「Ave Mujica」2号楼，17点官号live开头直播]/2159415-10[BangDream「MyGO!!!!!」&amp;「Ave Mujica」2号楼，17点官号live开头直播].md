@@ -2731,3 +2731,32 @@ mujica没说过要成为人，睦也从来没有自认过人偶，漏油搞错�
 人 ...</blockquote>
 按我的假药就是“要成为人啦！”总之高压的家庭环境应该要一种激烈的情感释放出来。
 
+
+*****
+
+####  PDQ4  
+##### 13549#       发表于 2024-2-26 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076204&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-2-26 23:23</a>
+
+按我的假药就是“要成为人啦！”总之高压的家庭环境应该要一种激烈的情感释放出来。 ...</blockquote>
+感觉这个好像也是以前汴京过的
+
+泥漏分为两派，认为mujica一定要成为人的，和认为mujica会保持断线人偶姿态的。
+
+我是觉得鸡是没必要成为人类的，目前的世界观里全是人偶，line你选人类和蓝色还会不高兴，到最后搞个成为人类未免有点太垫子遛粉了。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+当然绫奈写好了我全都能接受<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 13550#       发表于 2024-2-26 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人偶意向在mujica自己的小视频里涉及比较多一些，这个意向非常重要，首先就是世界观的基础
+
+其次按照mygo和mujica完全相反这个设定思路来说，如果所谓迷子指的是人，那么mujica应该是要保持相悖的可能性更高一些
+
+以及小视频中涉及人偶相关时并不是负面含义，也就是说从感情基调上来说就是不需要脱离“人偶”的
+

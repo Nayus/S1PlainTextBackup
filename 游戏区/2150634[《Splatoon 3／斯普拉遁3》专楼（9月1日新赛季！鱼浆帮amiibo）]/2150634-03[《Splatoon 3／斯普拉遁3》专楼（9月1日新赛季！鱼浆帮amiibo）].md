@@ -3939,3 +3939,19 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 正好前段时间也在玩风来西林6，喷3这dlc就是个简化版风来西林的主线，正好风来西林主线也就30层而已。
 
+
+*****
+
+####  Ryuuseigun  
+##### 3397#       发表于 2024-2-26 20:43
+
+看了一下黑客解包，新打工图的涨潮怎么那么大，能塞一个涨潮鲑坝加涨潮工坊了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">新伞卡好距离能一次清三节塔，两确炸弹，硬直感觉和中伞差不多，感觉打工性能不错
+
+
+*****
+
+####  Ryuuseigun  
+##### 3397#       发表于 2024-2-26 20:43
+
+看了一下黑客解包，新打工图的涨潮怎么那么大，能塞一个涨潮鲑坝加涨潮工坊了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">新伞卡好距离能一次清三节塔，两确炸弹，硬直感觉和中伞差不多，感觉打工性能不错
+

@@ -286,3 +286,20 @@ if __name__ == '__main__':
     # with open(rootdir+'ErrorLog.txt','w',encoding='utf-8-sig') as f:
     #     f.write('\n')
     asyncio.run(main())
+
+    for dir_prefix in ["外野/","手游专楼/","游戏区/","漫区/","虚拟主播区专楼/"]:
+        subdir = rootdir + dir_prefix
+        for item in os.listdir(subdir):
+            if not str(item).endswith(".md"):
+                name_list = str(item).split("[")
+                #找到有未挪入文件夹的01存档文件
+                old_path = subdir+name_list[0]+"-01["+name_list[1]+".md"
+                if(os.path.exists(old_path)):
+                    print("正在合并："+ old_path)
+                    new_path = subdir+item+"/"+name_list[0]+"-01["+name_list[1]+".md"
+                    #如果里面已经有个01了，把里面的新内容移到外面旧文件中
+                    if(os.path.exists(new_path)):
+                        with open(new_path,"r",encoding='utf-8-sig') as n, open(old_path,"a",encoding='utf-8-sig') as o:
+                            o.write(n.read())
+                    #把旧文件放到里面去
+                    os.rename(old_path,new_path)

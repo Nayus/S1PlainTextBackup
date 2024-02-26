@@ -2199,3 +2199,25 @@ Macht Ewigkeit</blockquote>
 
 优化？尽管米斯特否认了
 
+
+*****
+
+####  cauchua2  
+##### 4019#       发表于 2024-2-26 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070303&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-2-26 13:46</a>
+
+一台机四个人开进机战不是有一种数值的美？相当于四人份的技能</blockquote>
+萝卜本体水平有波士机器人或者梅斯塔强吗
+
+
+*****
+
+####  cauchua2  
+##### 4019#       发表于 2024-2-26 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070303&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-2-26 13:46</a>
+
+一台机四个人开进机战不是有一种数值的美？相当于四人份的技能</blockquote>
+萝卜本体水平有波士机器人或者梅斯塔强吗
+

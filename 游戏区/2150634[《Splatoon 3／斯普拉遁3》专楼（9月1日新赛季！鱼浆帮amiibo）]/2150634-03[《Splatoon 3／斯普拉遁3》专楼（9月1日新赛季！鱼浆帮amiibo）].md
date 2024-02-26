@@ -3955,3 +3955,29 @@ DLC初次通关演出的晶片狂潮只给爽一次吗？换了武器再通关�
 
 看了一下黑客解包，新打工图的涨潮怎么那么大，能塞一个涨潮鲑坝加涨潮工坊了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">新伞卡好距离能一次清三节塔，两确炸弹，硬直感觉和中伞差不多，感觉打工性能不错
 
+
+*****
+
+####  罗克萨斯  
+##### 3398#       发表于 2024-2-26 21:27
+
+涂地有啥诀窍么？我一般打满5分钟也就1500左右，这场略微加时拼老命了都没到1600，看大佬们随随便便上2000，差距也太大了吧
+
+<img src="https://img.saraba1st.com/forum/202402/26/212403tedxoewyefeke9lo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-26-21-22-18-553_com.nintendo.znca-edit.jpg</strong> (522.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 21:24 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Teiume  
+##### 3399#       发表于 2024-2-26 21:29
+
+隐藏徽章拿到了，还剩色卡徽章。前期玩的还是很上头，到后面因为重复度过高坐牢感越来越强烈。
+希望乌研所会继续更新肉鸽内容吧...至少来个隐藏关卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

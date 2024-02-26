@@ -10164,3 +10164,13 @@ win11的话看看进程里有没有gamebar，强制结束这玩意就能进了�
 
 机器人刷消灭指定数量敌人的太多了…
 
+
+*****
+
+####  洛拉斯  
+##### 1032#       发表于 2024-2-26 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64074649&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-26 20:30</a>
+船炸了怪还是会下来的</blockquote>
+但是怪落地后会被运输船残骸砸死
+

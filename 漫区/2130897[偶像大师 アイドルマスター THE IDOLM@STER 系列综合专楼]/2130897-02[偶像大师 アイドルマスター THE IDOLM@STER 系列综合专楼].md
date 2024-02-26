@@ -1307,3 +1307,11 @@ gkmas
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">原来是小美野负责这个企划
 
+
+*****
+
+####  UT99  
+##### 1633#       发表于 2024-2-26 21:41
+
+听说手游外包给了QualiArts真假
+

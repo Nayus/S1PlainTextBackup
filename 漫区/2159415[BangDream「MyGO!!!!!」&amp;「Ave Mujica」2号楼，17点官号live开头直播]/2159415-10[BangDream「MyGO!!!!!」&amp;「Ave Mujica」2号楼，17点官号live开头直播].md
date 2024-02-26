@@ -2279,3 +2279,13 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  穗波殊  
+##### 13508#       发表于 2024-2-26 18:47
+
+睦睦这么好为什么要恨睦睦<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">素食还能理解，祥子恨睦完全没道理吧。毕竟是半身，睦还是因为分担祥子的罪孽才开口的。
+
+素食的恨其实也不是真恨。我觉得她心里早就知道c团回不来了，不然也也不可能一直没有有效行动。和灯灯的谈话也是“永远不会忘记c团”。她的恨大概就是“无论是谁让我忘掉过去，我都不会去忘记”这种程度罢了。虽然任性也不过是停留在想法上。
+

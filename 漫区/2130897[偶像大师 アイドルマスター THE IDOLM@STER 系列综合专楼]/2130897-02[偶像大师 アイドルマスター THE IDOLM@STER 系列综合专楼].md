@@ -1179,3 +1179,18 @@ gkmas
 
 感觉那种拿虚幻引擎做二刺螈时的眩光
 
+
+*****
+
+####  屈江鸟  
+##### 1620#       发表于 2024-2-26 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这啥，马娘？
+
+*****
+
+####  Srchy  
+##### 1621#       发表于 2024-2-26 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">听舅舅说是外包给QA的，那建模什么的这些应该就和IP差不多吧
+

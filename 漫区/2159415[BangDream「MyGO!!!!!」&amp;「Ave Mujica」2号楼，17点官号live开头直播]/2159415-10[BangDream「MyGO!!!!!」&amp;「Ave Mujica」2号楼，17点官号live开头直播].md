@@ -1840,3 +1840,13 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 早上醒来就很难绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13471#       发表于 2024-2-26 11:38
+
+13话爽世都开始反省自己的自我中心，合着只能反省到祥子这…只能说理解不同吧。我觉得还是少揣测角色怎么想，多看她们做了什么
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

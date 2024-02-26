@@ -2809,3 +2809,21 @@ double tag那张小丑牌要是遇上跳过是加1小丑上限是不是超强<im
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  空集  
+##### 252#       发表于 2024-2-26 11:38
+
+感觉走同花牌型的真正的大敌boss不是禁花色 那个倒是可以扶持第二种颜色来规避 是那个B 不能出相同牌型 。当然了那局主要也有一击线拉的不够高的原因
+
+
+*****
+
+####  mjwells  
+##### 253#       发表于 2024-2-26 11:41
+
+昨天看了一下game.lua，想改一下reroll cost没成功<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">reroll cost改到0，起码少重开90%
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -443,3 +443,13 @@ NGA和贴吧评价都不高啊，看来孩子造怪兽的设定多少是引爆�
 熊孩子，不对，这货简直是反社会份子他爹简直是日了狗了，全程背锅特别最后工作还没了，算是把十年 ...</blockquote>
 其实熊孩子惹事还挺有“昭和味”的～<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 1831#       发表于 2024-2-27 06:41
+
+最大问题是莫名其妙把一切矛盾都集中到一个熊孩子身上，TV有篇幅你不探讨，剧场回顾+OP剩下就一集时间还来搞这些
+
+熊孩子骂的那堆东西扔到TV能给你扯一整部片呢，昭和熊孩子坏事后面起码还有个外星人呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -886,3 +886,13 @@ act4没能现地已经成为遗憾了...
 
 火锅2会播啥曲啊，感觉好久都没跟前辈们出联动曲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳄鱼头  
+##### 1588#       发表于 2024-2-26 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64066389&amp;ptid=2130897" target="_blank">MELTMOON 发表于 2024-2-26 08:33</a>
+火锅2会播啥曲啊，感觉好久都没跟前辈们出联动曲</blockquote>
+你说的很久是多久？不会是一星期吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

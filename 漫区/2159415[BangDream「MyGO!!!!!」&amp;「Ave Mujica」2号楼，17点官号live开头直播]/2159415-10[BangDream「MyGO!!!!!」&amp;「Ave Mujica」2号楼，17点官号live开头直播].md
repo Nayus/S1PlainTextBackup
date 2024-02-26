@@ -1779,3 +1779,14 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 —— 来自 Xiaomi M2012K ...</blockquote>
 降调得一起降啊，而且羊那个音准哪里是降个调就能解决的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acgreen  
+##### 13466#       发表于 2024-2-26 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64066563&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-02-26 08:55:44</a>
+我不觉得睦有意阴阳怪气，但不代表她说的话听着就不阴阳怪气，尤其对素世这样的当事人来说更是如此了，这 ...</blockquote>那还说什么？你怎么认为爽世怎么想我不关心。我针对的是观众在这一点审判睦，整一大堆前后矛盾的东西，爽世倒是一点锅没有
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -2397,3 +2397,45 @@ Screenshot_20240225_211720_tv.danmaku.bili_edit_803528460554994.jpg
 
 而主語爭議的部分，前面的樓都討論過了，就不再說一次了。
 
+
+*****
+
+####  御幸一也  
+##### 13516#       发表于 2024-2-26 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64074963&amp;ptid=2159415" target="_blank">wsuFish 发表于 2024-2-26 21:04</a>
+
+睦是因为“分担祥子拆团的罪恶感”才开口说“从未开心过”的说法我个人一直不太认同，有相关访谈提及这个 ...</blockquote>
+[https://bbs.saraba1st.com/2b/for ... age=766#pid62890586](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2066984&amp;page=766#pid62890586)
+
+這段我翻譯過，在這。
+
+雖然主語有爭議，但
+
+不管主語是誰，其實都是差不多的，因為是綾奈寫的劇本，可以說她的想法就是睦的想法。
+
+
+*****
+
+####  穗波殊  
+##### 13517#       发表于 2024-2-26 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075426&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-26 21:55</a>
+
+你這個2真的有問題，睦玩樂隊不開心是錘中錘，綾奈還特地說了，睦玩樂隊不開心的理由還不能說。
+
+ ...</blockquote>
+我觉得睦到解散的时候当然是不开心的，但是是否时间范围是“从来没觉得开心过”呢。访谈上也只说了睦不开心，我认为还是有模糊的余地的。我认为这样搭配才更能体现出两个选项的差别，就是睦到底只是恰好这时候说出来还是因为形势故意抛出来一个更加严重的说法。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你可以说像狡辩，但我就是这样区分两个睦的。
+
+*****
+
+####  御幸一也  
+##### 13518#       发表于 2024-2-26 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075529&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-2-26 22:05</a>
+
+我觉得睦到解散的时候当然是不开心的，但是是否时间范围是“从来没觉得开心过”呢。访谈上也只说了睦不开 ...</blockquote>
+綾奈　『バンドリ！』シリーズにバンドが楽しくない子がいるんだ!?と驚かれたと思います（笑）。睦自身がそう思った理由はまだ伏せていますが、
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">很明白地說了就是玩樂隊不開心，樓友是真的嘴硬了。
+

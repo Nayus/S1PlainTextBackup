@@ -3105,3 +3105,17 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 感觉到第二层还没有好触发的倍率就能直接按r了
 
+
+*****
+
+####  fuochai  
+##### 280#       发表于 2024-2-26 23:47
+
+<img src="https://pic.imgdb.cn/item/65dcb1e09f345e8d034f1adc.jpg" referrerpolicy="no-referrer">
+
+这把弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到负片无脑选 没注意削手牌 打不出同花顺了 结果那两个负片的也相当于无效了
+
+相当于顶着手牌数-2的debuff把黑难度通了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 之前绿的都打得很辛苦 不知道这怎么做到的
+
+最后还好买了张惜别 直接跳过大怪去打boss了 勉强过关
+

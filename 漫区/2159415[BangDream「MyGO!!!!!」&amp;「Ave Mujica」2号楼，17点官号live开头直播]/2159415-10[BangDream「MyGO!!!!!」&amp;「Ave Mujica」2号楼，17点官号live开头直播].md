@@ -2777,3 +2777,24 @@ mujica没说过要成为人，睦也从来没有自认过人偶，漏油搞错�
 
 鸡全员追求的是受控的人偶→断线获得自由的人偶，向意图操纵放弃自己的人类进行“复仇”，结果就是属于人偶的新世界。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 13552#       发表于 2024-2-26 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076377&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-26 23:44</a>
+
+感觉和漏油理解的还是不太一样。
+
+我理解的是mujica不是从人类变成人偶，而是人间体本身就有一部分人偶的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">原来如此，漏油的理解很有意思，这地方感觉可以深挖一下
+
+我的理解来源是Prelude中瑠奈说“莉伽不是人偶，是人类”（大意）之后，莉伽的回应是直接无视瑠奈对自己的“人类”定义，转去说断线因而取回自由的人偶
+
+再加上“向人类复仇或者复权”的说法，所以我猜测mujica世界观中的人偶和人类大概有一定程度的对立关系
+
+所以如果世界观主张追求断线人偶，那大概会对人类有一定程度的否定
+
+毒亲操控（任人打扮）的人偶/被人类抛弃的人偶这部分倒是很同意，我也觉得会跟人间体有关系
+

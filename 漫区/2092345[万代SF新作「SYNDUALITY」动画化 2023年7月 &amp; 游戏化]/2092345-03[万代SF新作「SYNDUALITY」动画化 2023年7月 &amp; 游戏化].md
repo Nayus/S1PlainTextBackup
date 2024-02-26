@@ -2557,3 +2557,22 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 S1Fun</blockquote>
 感觉黑发实战没有大哥多，综合成绩比大哥强
 
+
+*****
+
+####  leommoo  
+##### 4055#       发表于 2024-2-27 00:18
+
+如果最后包饺子还没复活歌姬我也是直接-2<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 4056#       发表于 2024-2-27 00:22
+
+<blockquote>charlespfan 发表于 2024-2-27 00:11
+你看这楼里哪来的女主厨？全都是歌姬厨
+
+—— 来自 S1Fun</blockquote>
+所以独饮（
+

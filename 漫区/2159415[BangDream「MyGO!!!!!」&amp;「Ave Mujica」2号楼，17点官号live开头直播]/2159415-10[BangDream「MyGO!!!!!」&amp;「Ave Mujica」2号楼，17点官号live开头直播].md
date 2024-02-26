@@ -2873,3 +2873,24 @@ mujica那个小剧场更类似于人偶通过音乐获得自由，并不否认�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一个比较奇怪的理解，既然祥子喜欢人偶，那么展现她内心箱庭的世界观自然也会对人偶持比较正面的态度
 
+
+*****
+
+####  爱丁堡official  
+##### 13561#       发表于 2024-2-27 00:22
+
+mujica什么时候发新歌，楼需要净化
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 13562#       发表于 2024-2-27 00:25
+
+其实关于祥子对人偶具体什么理解，还是看祥子对自身如何认知，如果祥子认为自己的处境也有一定的人偶要素，那对人偶掌控自身基本上就是纯正面的态度了。
+
+与之相反的，就是认为人偶可爱并且想操控，认为人偶楚楚可怜弱势的样子最美味，部分同人理解的反派祥子就是这个形象。
+
+不过单纯从祥子第三集天桥上的呐喊，我觉得祥子不会是这种纯粹利用人偶的形象，而且舞台上的oblivionis也是人偶。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

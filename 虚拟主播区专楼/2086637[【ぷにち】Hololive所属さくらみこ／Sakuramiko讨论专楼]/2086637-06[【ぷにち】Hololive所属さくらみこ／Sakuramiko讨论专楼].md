@@ -702,3 +702,13 @@ youtube侧的问题大不了就不播完事了非得用2个待机窗整活，这
 
 回错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8254#         楼主| 发表于 2024-2-27 22:26
+
+完全没碰过XY世代一头雾水的miko
+
+这新作估计发售了也不太会播了
+

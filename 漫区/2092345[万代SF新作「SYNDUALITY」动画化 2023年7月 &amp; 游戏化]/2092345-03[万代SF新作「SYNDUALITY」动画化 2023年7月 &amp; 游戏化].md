@@ -3315,3 +3315,24 @@ rip
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64086525&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-2-27 21:54</a></blockquote>
 这封面挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4122#       发表于 2024-2-27 22:26
+
+ 本帖最后由 aptx8285144 于 2024-2-27 22:28 编辑 
+
+以诺娃的性格，对歌姬只有无限的愧疚，<strong>无论“继承”到成什么程度都是如此（哪怕“责任”不在她身上）</strong>，不过米斯提和彼方他们就没多少感情了
+
+
+*****
+
+####  砂糖续香香  
+##### 4123#       发表于 2024-2-27 22:33
+
+18话唱的歌名和第21集的名字一样
+
+按照这部戏有法预测的命运舞台来讲，肯定是
+夏尔：孩子们，我回来了！
+

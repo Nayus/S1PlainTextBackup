@@ -10427,3 +10427,13 @@ P2P传输是这样 再拉个哥们没准就好了
 
 查看全部评分
 
+
+*****
+
+####  WGTCorp  
+##### 1054#       发表于 2024-2-27 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64086382&amp;ptid=2170852" target="_blank">skypride 发表于 2024-2-27 21:40</a>
+主宰这个枪咋样 能像机炮那样远距离关巢穴、拆广播站吗</blockquote>
+应该都不行......爆炸词条大概只是压制力高一点，顶多有点在大多数时候可以忽略不计的溅射伤害。
+

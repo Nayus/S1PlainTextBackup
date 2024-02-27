@@ -3036,3 +3036,22 @@ mujica什么时候发新歌，楼需要净化
 
 既然祥子来拉睦时会被惊到，那么就应该不是那么笃定的
 
+
+*****
+
+####  御幸一也  
+##### 13577#       发表于 2024-2-27 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64078535&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-2-27 09:58</a>
+
+如果之前就是一拉就来，那么就不用空手套白狼贷款睦的加入来拉喵梦了
+
+既然祥子来拉睦时会被惊到，那么就 ...</blockquote>
+那又如何，睦之前的猶豫可以是因為要簽商業合同，畢竟這可不是學生樂隊的兒戲。
+
+而且這樣不是更有含金量了嗎，如果連祥子都覺得睦有可能因為各種大人的事情不加入，
+
+甚至準備了很長的理由要說服她的時候，睦不顧一切直接秒答的：<strong>我加入</strong>。
+
+這難道不是更加說明了睦為了祥子的決心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

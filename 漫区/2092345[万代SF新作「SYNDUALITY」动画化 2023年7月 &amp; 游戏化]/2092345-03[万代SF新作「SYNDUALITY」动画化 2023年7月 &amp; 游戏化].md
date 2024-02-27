@@ -3256,3 +3256,25 @@ rip
 又鞭尸ciel。
 还不如迫害艾莉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4117#       发表于 2024-2-27 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085734&amp;ptid=2092345" target="_blank">约翰里德 发表于 2024-2-27 20:53</a>
+
+又鞭尸ciel。
+
+还不如迫害艾莉</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202402/27/210909xgbf3hc3pcirr1c2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240227210829.png</strong> (36.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 21:09 上传
+
+说起这个，上周彼方在驾驶舱里翻阅记忆那段，前面照片都是看了令人感动或难过，翻到这张我就笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

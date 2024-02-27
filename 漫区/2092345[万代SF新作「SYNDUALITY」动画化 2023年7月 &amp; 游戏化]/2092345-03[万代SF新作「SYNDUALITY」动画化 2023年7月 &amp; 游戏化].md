@@ -3344,3 +3344,28 @@ rip
 
 感觉彼方对歌姬应该还是有感情的，要不然他不会对向自己开枪的歌姬伸手，让歌姬回心转意帮彼方逃跑。这同时对歌姬也成立，如果歌姬感受不到彼方的感情，她也不会帮彼方逃出去的。只不过彼方对歌姬感情应该仅仅是朋友以上一点点的感情，而其他人对待歌姬就是一般的朋友。看下集预告图估计下集就是普通的过渡回，应该不会有太大的展开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4125#       发表于 2024-2-27 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64087378&amp;ptid=2092345" target="_blank">765事务所 发表于 2024-2-27 22:43</a>
+
+感觉彼方对歌姬应该还是有感情的，要不然他不会对向自己开枪的歌姬伸手，让歌姬回心转意帮彼方逃跑。这同时 ...</blockquote>
+感情是一回事，彼方的嘴炮技能则是另一回事，手无寸铁的情况下赶紧发动嘴炮技能才能活jpg（“既然你已经接受命令，那你为什么看上去那么悲伤”!<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NeloAngelo  
+##### 4126#       发表于 2024-2-27 22:50
+
+去官推搜了下, 他总共发了三次线下广告, 前两次是两季度第一集开播的时候.  他下一集最好是过渡集<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ichthy  
+##### 4127#       发表于 2024-2-27 22:53
+
+都是纳米机器人么，外形还能变的。
+

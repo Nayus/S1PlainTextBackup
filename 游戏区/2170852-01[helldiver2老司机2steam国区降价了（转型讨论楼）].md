@@ -10323,3 +10323,15 @@ P2P传输是这样 再拉个哥们没准就好了
 防 ...</blockquote>
 没事，超级地球最后还是会派出阴兵保卫殖民地的。
 
+
+*****
+
+####  2VYBGp94  
+##### 1046#       发表于 2024-2-27 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079536&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-27 11:23</a>
+官方证实了没完成整个行动（一组三个任务）计入超级地球失败，所以机器人图一直打不下来的原因找到了。
+
+防 ...</blockquote>
+成功了才给12500，超级地球打发谁呢
+

@@ -10277,3 +10277,16 @@ P2P传输是这样 再拉个哥们没准就好了
 网络冲突了，两人无解
 试试找个房间加进去再拉他
 
+
+*****
+
+####  赤井稻妻  
+##### 1042#       发表于 2024-2-27 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065523&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-2-26 00:59</a>
+
+早就修了，还卡迫击炮
+
+换文件退版本倒是能卡 飞机下来就闪退</blockquote>
+也不用16迫击炮，两个人带四个迫击炮就能打，人越多效率越高，前几天有新人入坑我就会在这带他到20级解锁一些必要装备然后直奔虫子高难
+

@@ -3338,3 +3338,64 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 你们说的r是键盘还是右肩键？我用sd玩的，找不到快速重开的按钮</blockquote>
 键盘
 
+
+*****
+
+####  空集  
+##### 300#       发表于 2024-2-27 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076733&amp;ptid=2154925" target="_blank">naclken. 发表于 2024-2-27 00:32</a>
+
+终于赢了一次白注。
+
+我想看这游戏的高玩直播，平均开几局能赢一次。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白注的话就非高玩一般其实十局通九局吧  你玩一下后面的注就知道白注太友好了 
+
+*****
+
+####  naclken.  
+##### 301#       发表于 2024-2-27 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079013&amp;ptid=2154925" target="_blank">空集 发表于 2024-2-27 10:35</a>
+
+白注的话就非高玩一般其实十局通九局吧  你玩一下后面的注就知道白注太友好了  ...</blockquote>
+十局挂九局还差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+运气够差第一轮都过不了
+
+*****
+
+####  a4ac7  
+##### 302#       发表于 2024-2-27 10:39
+
+看牌组吧，黑牌组不刷开局，经常走两步就挂，看不到boss<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  空集  
+##### 303#       发表于 2024-2-27 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076767&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-27 00:39</a>
+
+同感，感觉死种率会高得离谱。
+
+普通卡组裸装能突破600分就是极限了，然后高进阶第二轮小盲注立刻翻番到12 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 304#       发表于 2024-2-27 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079048&amp;ptid=2154925" target="_blank">a4ac7 发表于 2024-2-27 10:39</a>
+
+看牌组吧，黑牌组不刷开局，经常走两步就挂，第一层boss过不了
+
+—— 来自 HUAWEI NOH-AN00, Androi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑牌组减一出牌数确实纯纯的逆天。。。我个人觉得是最弱卡组 确实白注我都死了很多次 我根本不能想象高进阶黑牌组死种率多高
+

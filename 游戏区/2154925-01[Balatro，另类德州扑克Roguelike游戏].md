@@ -3282,3 +3282,48 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 这个券拿了以后怎么用，没找到可以使用的地方啊？</blockquote>
 进boss画面后左上角有个按钮
 
+
+*****
+
+####  a4ac7  
+##### 295#       发表于 2024-2-27 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077962&amp;ptid=2154925" target="_blank">bbf10000 发表于 2024-2-27 09:10</a>
+这个券拿了以后怎么用，没找到可以使用的地方啊？</blockquote>
+买了以后，关卡界面最左边有reroll
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稲穂信  
+##### 296#       发表于 2024-2-27 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077488&amp;ptid=2154925" target="_blank">Kazepollar 发表于 2024-2-27 07:54</a>
+
+越来越感觉同花是陷阱</blockquote>
+我用方格牌组打到蓝注了，配合四指和烧焦小丑把同花刷到了30多级。想想要是有个太空小丑那估计能刷到四五十级，再能抽到一张部落的话应该数值会很好看。
+
+但我至今还没打出科学计数法，应该是还没找到进一步的诀窍。
+
+
+*****
+
+####  bbf10000  
+##### 297#       发表于 2024-2-27 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077970&amp;ptid=2154925" target="_blank">稲穂信 发表于 2024-2-27 09:11</a>
+进boss画面后左上角有个按钮</blockquote>
+谢谢，我下次碰到了试试
+
+*****
+
+####  bbf10000  
+##### 298#       发表于 2024-2-27 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077999&amp;ptid=2154925" target="_blank">a4ac7 发表于 2024-2-27 09:13</a>
+买了以后，关卡界面最左边有reroll
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+好，我找找。昨天被boss针对惨了，拿着半张牌小丑的build遇到每个牌型只能出一次的boss
+

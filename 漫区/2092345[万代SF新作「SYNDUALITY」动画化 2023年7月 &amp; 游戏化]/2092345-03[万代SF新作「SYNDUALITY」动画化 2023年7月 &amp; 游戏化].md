@@ -2728,3 +2728,14 @@ ceil能打赢复活赛吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 没歌姬确实得-2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，都是人造人了还不包饺子有点说不过去，甚至19集唯心主义都出来了
 
+
+*****
+
+####  何处分可  
+##### 4071#       发表于 2024-2-27 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077751&amp;ptid=2092345" target="_blank">星降る森 发表于 2024-2-27 08:44</a>
+
+仔细想想灭哥哥也没刷过什么战绩，逼全是真装的</blockquote>
+灭**纵天之圣杯毁了好几个国家吧，伊拉被灭也至少得有7成原因
+

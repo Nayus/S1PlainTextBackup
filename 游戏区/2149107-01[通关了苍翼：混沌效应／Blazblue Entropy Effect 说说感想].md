@@ -70,3 +70,19 @@
 
 是不是因为知道有版号所以复活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leeskies  
+##### 120#         楼主| 发表于 2024-2-27 16:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大起大落啊
+
+导演BK
+
+2024年02月27日 16:10
+
+苍翼：混沌效应
+
+正在91act拍摄，他们的《苍翼：混沌效应》拿到版号了，第一时间记录。从年前公司解散，到昨天公司复活，今天拿到版号，这一波起伏拉满…
+

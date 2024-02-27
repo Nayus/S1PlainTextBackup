@@ -3327,3 +3327,14 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 —— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 好，我找找。昨天被boss针对惨了，拿着半张牌小丑的build遇到每个牌型只能出一次的boss
 
+
+*****
+
+####  变老的大二  
+##### 299#       发表于 2024-2-27 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076827&amp;ptid=2154925" target="_blank">医生狼多 发表于 2024-2-27 00:49</a>
+
+你们说的r是键盘还是右肩键？我用sd玩的，找不到快速重开的按钮</blockquote>
+键盘
+

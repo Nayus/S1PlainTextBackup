@@ -2978,3 +2978,31 @@ mujica什么时候发新歌，楼需要净化
 
 可以，有没有访谈说过既然这么好拉，为什么祥子要把木头人放在最后才让他加入？按理来说，如果有的选箱子应该是不会喜欢说谎框大猫的吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13571#       发表于 2024-2-27 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077874&amp;ptid=2159415" target="_blank">凡人 发表于 2024-2-27 08:59</a>
+
+可以，有没有访谈说过既然这么好拉，为什么祥子要把木头人放在最后才让他加入？按理来说，如果有的选箱子应 ...</blockquote>
+访谈里说礼物被退回来是加入的契机，所以在之前应该还不是那么一拉就走的
+
+*****
+
+####  PDQ4  
+##### 13572#       发表于 2024-2-27 09:26
+
+睦确实好拉啊，好拉到祥子都震惊了，腹稿都没说幼驯染直接打直球了。
+
+而且没懂拉睦和拉喵梦有什么关联，意思是拉喵梦是因为睦宝儿拒绝当鼓手吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 13573#       发表于 2024-2-27 09:31
+
+祥子都睦的秒答嚇到，頓了一下，還給她再次確認，這還叫不好拉啊？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

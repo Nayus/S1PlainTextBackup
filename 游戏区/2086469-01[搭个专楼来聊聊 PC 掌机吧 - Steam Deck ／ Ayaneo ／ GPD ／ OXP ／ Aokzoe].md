@@ -8,3 +8,15 @@ rogally的摇杆问题好大，买的还没几天就出现摇杆漂移
 
 —— 来自 motorola XT2175-2, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  xiuwf  
+##### 1110#       发表于 2024-2-27 09:27
+
+flip的优惠券马上要过期了 纠结要不要下单
+
+感觉键盘手感会很差的样子
+
+然后重量似乎也有点感人
+

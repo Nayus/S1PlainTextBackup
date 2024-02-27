@@ -10463,3 +10463,14 @@ P2P传输是这样 再拉个哥们没准就好了
 
 看了眼解包没少藏东西啊
 
+
+*****
+
+####  skypride  
+##### 1058#       发表于 2024-2-28 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64088041&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-2-27 23:53</a>
+
+应该都不行......爆炸词条大概只是压制力高一点，顶多有点在大多数时候可以忽略不计的溅射伤害。 ...</blockquote>
+那还是不解锁高级债券了。。。主武器没有功能性，光比伤害有几个能替代连喷的
+

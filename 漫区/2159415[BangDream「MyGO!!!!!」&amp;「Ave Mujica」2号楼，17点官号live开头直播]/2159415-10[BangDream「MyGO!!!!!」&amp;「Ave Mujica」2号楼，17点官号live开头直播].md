@@ -3698,3 +3698,11 @@ mygo的歌多样性真的好<img src="https://static.saraba1st.com/image/smiley/
 
 独角兽真想致敬偶像的话还是先致敬结局对戒吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 13641#       发表于 2024-2-28 01:00
+
+支持对戒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">甚至可以青出于蓝而胜于蓝再多加一个戒指
+

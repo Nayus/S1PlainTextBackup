@@ -4482,3 +4482,14 @@ octo在80关的基础上，还讲述了一个有起有伏的故事，塑造了�
 
 不得不说，水田这设计真的讨喜，多出点故事吧epd5<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laosai13  
+##### 3443#       发表于 2024-2-28 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64087337&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-27 22:39</a>
+
+暂时没条件直连网线，NS又不支持wifi6，所以网络稳定性肯定是个问题，我不清楚是不是有很多输的场次是输 ...</blockquote>
+要的就是开放组排没压力hhhhh可以乱打，也不用凑齐4个人，反正我觉得就当交交朋友也挺好
+

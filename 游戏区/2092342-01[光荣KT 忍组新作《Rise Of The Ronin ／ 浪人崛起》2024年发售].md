@@ -717,3 +717,19 @@ https://m.youtube.com/watch?v=int3aDF_M2A   
 
 © 2024 KOEI TECMO GAMES CO., LTD. Rise of the Ronin is a trademark of KOEI TECMO GAMES CO., LTD. Published by Sony Interactive Entertainment Inc.还索尼ip呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 星刃也不是索尼持有ip
 
+
+*****
+
+####  Piano-Forest  
+##### 736#         楼主| 发表于 2024-2-27 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64048642&amp;ptid=2092342" target="_blank">Piano-Forest 发表于 2024-2-23 23:19</a>
+
+幕后第二弹“战斗篇”：
+
+https://youtu.be/kgdjrXQEgHA
+
+https://blog.ja.playstation.com/2024/02/24/20240 ...</blockquote>
+【4K中字 PS5｜《浪人崛起》游戏幕后 第2期】 
+[https://b23.tv/VTTi0Mb](https://b23.tv/VTTi0Mb)
+

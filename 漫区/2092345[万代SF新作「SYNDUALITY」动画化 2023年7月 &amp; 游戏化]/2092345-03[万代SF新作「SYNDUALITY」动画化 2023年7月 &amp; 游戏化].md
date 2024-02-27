@@ -3076,3 +3076,23 @@ rip
 
 歌姬的死旗看完回忆，感觉早年又有一种点蜡烛的命运既视感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reficul  
+##### 4100#       发表于 2024-2-27 15:52
+
+<blockquote>aptx8285144 发表于 2024-2-27 14:17
+修涅和玛哈特还挺配的，明明行动前穆顿已经告诫过她最后决定还是主人们自己做出，结果多年以后修涅 ...</blockquote>
+是挺配的，马哈特毫无主见被人推着走，修涅一点意见不提任马哈特被人摆布。三台贤士还是老爷爷最靠谱
+
+*****
+
+####  aptx8285144  
+##### 4101#       发表于 2024-2-27 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64082434&amp;ptid=2092345" target="_blank">reficul 发表于 2024-2-27 15:52</a>
+
+是挺配的，马哈特毫无主见被人推着走，修涅一点意见不提任马哈特被人摆布。三台贤士还是老爷爷最靠谱 ...</blockquote>
+穆顿嘴炮修涅都能让对方吃噶<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，哎，对于大哥而言确实是不换贤士更好
+

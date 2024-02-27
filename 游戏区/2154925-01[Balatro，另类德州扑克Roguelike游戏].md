@@ -3636,3 +3636,30 @@ steam还同步上去了
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  就是剑鞘  
+##### 327#       发表于 2024-2-27 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64081911&amp;ptid=2154925" target="_blank">玩玩而已 发表于 2024-2-27 15:08</a>
+
+蓝图、流浪汉、第一张筹码牌冰激凌在我这都比吸血鬼抓位高啊。。吸血鬼也就跟黄金面具有配合了，把卡牌buff ...</blockquote>
+蓝图流浪汉相同于每一打都能拿两张塔罗牌啊，给手牌上完buff直接打出去随随便便就能给吸血鬼刷起来，然后再用蓝图复制吸血鬼，只要能挺过这一轮相当于保送通关了
+
+*****
+
+####  就是剑鞘  
+##### 328#       发表于 2024-2-27 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64082174&amp;ptid=2154925" target="_blank">schneehertz 发表于 2024-2-27 15:30</a>
+
+蓝图流浪汉，一个盲注6张塔罗牌
+
+这是很契合高进阶的组合吧，不理解难点在哪</blockquote>
+蓝图流浪汉打了Enternal本身是卖不掉的，说的是其他两张过渡牌。
+
+主要是不知道后面还能不能刷到吸血鬼这么好的核心，三卡通关的诱惑力太高了。
+
+但卖了过渡又很可能直接暴毙。
+

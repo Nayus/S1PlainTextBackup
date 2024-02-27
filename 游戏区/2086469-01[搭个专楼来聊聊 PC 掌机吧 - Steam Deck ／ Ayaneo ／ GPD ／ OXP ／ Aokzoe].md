@@ -86,3 +86,21 @@ winmini新版还要下个月<img src="https://static.saraba1st.com/image/smiley/
 
 FLIP本来预购了最后看了评测还是退了，翻盖机650克有点离谱了，本来手感就不如直板机还这么死沉，轻便的优势也没了，不知道意义何在。不过散热应该比Winmini好，想要翻盖机又无法接受WinMini散热的可以考虑
 
+
+*****
+
+####  bypass  
+##### 1117#         楼主| 发表于 2024-2-27 20:37
+
+传音要出一款手柄 + 便携头显的 PC 掌机 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[https://www.tecno-mobile.com/acc ... /product/pocket-go/](https://www.tecno-mobile.com/accessories/product-detail/product/pocket-go/)
+
+<img src="https://img.saraba1st.com/forum/202402/27/203657anc53l0jlxv5v5vk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (380.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 20:36 上传
+

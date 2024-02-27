@@ -3209,3 +3209,41 @@ rip
 
 这片的<strong>画风和服装设计</strong>得到是很不错，女性们就不用多说了，彼方很清秀，大哥看着年轻却有一种“服了你，你说得对”的阅历感，面具男实力下降前也是面具和声优口吻撑起来的逼格，梶裕贵的面容有一种扭曲反派的美<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，到是前代英雄阿尔巴真得给人一种经历太多而老气横秋的感慨（
 
+
+*****
+
+####  novyDC  
+##### 4113#       发表于 2024-2-27 20:41
+
+【【1月】奇异贤伴黑色天使 第21話「Your song」WEB予告-哔哩哔哩】 [https://b23.tv/DB9Ll6F](https://b23.tv/DB9Ll6F)
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  novyDC  
+##### 4114#       发表于 2024-2-27 20:42
+
+这路人有点像歌姬
+
+<img src="https://img.saraba1st.com/forum/202402/27/204223yfe0ao9bbtpttxpb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-27-20-41-04-046_tv.danmaku.bili.jpg</strong> (470.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 20:42 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  aptx8285144  
+##### 4115#       发表于 2024-2-27 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085609&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-2-27 20:42</a>
+
+这路人有点像歌姬</blockquote>
+她的设定是歌姬的粉丝，这片好像几乎没有哪个女性人物难看的（
+

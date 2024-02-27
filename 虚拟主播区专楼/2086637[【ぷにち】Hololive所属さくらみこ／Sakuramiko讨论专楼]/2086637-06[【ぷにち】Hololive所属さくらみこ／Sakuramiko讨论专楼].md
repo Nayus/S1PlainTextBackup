@@ -647,3 +647,32 @@ youtube侧的问题大不了就不播完事了非得用2个待机窗整活，这
 
 来了来了wwwwwwwwwww
 
+
+*****
+
+####  holoan  
+##### 8250#         楼主| 发表于 2024-2-27 20:43
+
+<img src="https://img.saraba1st.com/forum/202402/27/204306dkk1tqukrdy9xz1h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 20:43 上传
+
+另外这个窗也恢复正常了，而且很可能会再次直播
+
+*****
+
+####  holoan  
+##### 8251#         楼主| 发表于 2024-2-27 20:48
+
+<img src="https://img.saraba1st.com/forum/202402/27/204800x0ntkxfkyxrtfzi0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 20:48 上传
+

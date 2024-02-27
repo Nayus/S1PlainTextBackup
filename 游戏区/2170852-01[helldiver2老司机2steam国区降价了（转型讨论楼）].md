@@ -10345,3 +10345,11 @@ P2P传输是这样 再拉个哥们没准就好了
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  白昼梦  
+##### 1048#       发表于 2024-2-27 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">终于到20解锁电磁炮了，拿来打坦克虫有点爽啊
+

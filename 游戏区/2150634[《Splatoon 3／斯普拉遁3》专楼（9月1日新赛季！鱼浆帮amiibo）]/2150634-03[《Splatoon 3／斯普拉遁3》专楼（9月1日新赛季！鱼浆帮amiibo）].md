@@ -4121,3 +4121,15 @@ DLC上线的那天看了下直播，这点东西都要卖150，真当自己是�
 
 2024-2-27 09:00 上传
 
+
+*****
+
+####  oi99o  
+##### 3411#       发表于 2024-2-27 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077881&amp;ptid=2150634" target="_blank">akiya 发表于 2024-2-27 09:00</a>
+结算有没有眼镜是什么因素影响的🤔</blockquote>
+跟晶片种类有关吧，其他的装备和特效也是
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

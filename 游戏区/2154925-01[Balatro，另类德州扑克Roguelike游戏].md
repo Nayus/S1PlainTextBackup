@@ -3260,3 +3260,25 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 越来越感觉同花是陷阱<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bbf10000  
+##### 293#       发表于 2024-2-27 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64068425&amp;ptid=2154925" target="_blank">schneehertz 发表于 2024-2-26 11:13</a>
+10块重roll boss的优惠券能拿就拿，不然后面总有一关会被debuff卡死
+
+—— 来自 Xiaomi 2203121C, Androi ...</blockquote>
+这个券拿了以后怎么用，没找到可以使用的地方啊？
+
+*****
+
+####  稲穂信  
+##### 294#       发表于 2024-2-27 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077962&amp;ptid=2154925" target="_blank">bbf10000 发表于 2024-2-27 09:10</a>
+
+这个券拿了以后怎么用，没找到可以使用的地方啊？</blockquote>
+进boss画面后左上角有个按钮
+

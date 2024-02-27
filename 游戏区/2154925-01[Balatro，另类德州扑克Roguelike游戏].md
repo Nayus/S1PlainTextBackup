@@ -3512,3 +3512,11 @@ steam还同步上去了
 感觉进阶1就把小盲注的3块钱扣了就很过分 单看进阶2加的数值感觉没那三块钱重要 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这BYD进阶除了 进阶2那个加点数值其他个个要命 一个感觉能顶别的游戏5-6个进阶
 
+
+*****
+
+####  库德里尔  
+##### 315#       发表于 2024-2-27 14:05
+
+迷叔的新视频，讲小丑牌捏他的，就很有意思
+

@@ -3760,3 +3760,15 @@ Seal 不能直接翻译成蜡封就行了不加版本两个字吗
 
 终于第一次通关了，话说黄色牌组为啥只有开局多给了10块，之后每回合开始没给啊
 
+
+*****
+
+####  yozoraxsx  
+##### 337#       发表于 2024-2-28 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64088212&amp;ptid=2154925" target="_blank">tornadoDA 发表于 2024-2-28 00:07</a>
+终于第一次通关了，话说黄色牌组为啥只有开局多给了10块，之后每回合开始没给啊 ...</blockquote>
+你猜小盲注不给钱其他卡组不胡有十块钱吃息是啥时候
+
+—— 来自 Xiaomi 22041216UC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

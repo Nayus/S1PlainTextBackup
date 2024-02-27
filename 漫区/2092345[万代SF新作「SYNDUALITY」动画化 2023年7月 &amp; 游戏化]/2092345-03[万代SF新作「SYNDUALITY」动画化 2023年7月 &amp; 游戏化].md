@@ -3149,3 +3149,37 @@ rip
 
 就是上一季提到零式能互相认知雌小鬼却对穆顿和雪露毫无反应有点不自然
 
+
+*****
+
+####  星降る森  
+##### 4107#       发表于 2024-2-27 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64081840&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-27 15:01</a>
+
+这一集没有说mouton是不是零式吧
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官推开的零式投票选项里就没有穆顿……
+
+*****
+
+####  星降る森  
+##### 4108#       发表于 2024-2-27 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64084627&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-2-27 18:45</a>
+
+这集已经说了提供给三人的是三台特别的贤士，怎么可能不是零式。官方已经说过零式和非零式性能相差悬殊，你 ...</blockquote>
+安洁也不是0式啊，不也看不出来，之前0式投票选项只有noir歌姬flamme和修涅
+
+
+*****
+
+####  aptx8285144  
+##### 4109#       发表于 2024-2-27 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64084627&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-2-27 18:45</a>
+
+这集已经说了提供给三人的是三台特别的贤士，怎么可能不是零式。官方已经说过零式和非零式性能相差悬殊，你 ...</blockquote>
+不过穆顿的知识和阅历特别充足，就算是零式输给他也感觉不是不可思议（
+

@@ -3449,3 +3449,11 @@ amt和事务所闹翻了被冷藏一年武士道就等了一年，工艺蛋内�
 
 堪比梦以的P图，以至于初看以为是在玩鸡完结了的穿越梗
 
+
+*****
+
+####  笋干爆炸碱  
+##### 13617#       发表于 2024-2-27 19:04
+
+啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

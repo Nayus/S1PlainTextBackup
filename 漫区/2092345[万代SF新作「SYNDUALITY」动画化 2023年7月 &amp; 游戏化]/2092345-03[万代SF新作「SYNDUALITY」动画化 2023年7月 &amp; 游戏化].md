@@ -2999,3 +2999,15 @@ noir现在这身看着太怪了.  颜色有点乱
 
 歌姬早年就受命威斯干了不少伤害学员或领导（以下克上)的脏活，哎，命运的齿轮早就不可逆的转动了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  charlespfan  
+##### 4093#       发表于 2024-2-27 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64081089&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-27 13:56</a>
+诺娃来自乐园，很早进入了米斯缇的体内，老婆婆人真好，不但待两个贤士都视为己出，多年前还在第一次大风暴 ...</blockquote>
+救的那个是做天气预报的老爷子吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

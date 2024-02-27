@@ -4184,3 +4184,26 @@ A怪载着B怪，A怪打掉后立刻触发B怪特殊攻击这个设计很有想�
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  Dedalus  
+##### 3415#       发表于 2024-2-27 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079907&amp;ptid=2150634" target="_blank">清浦刹那 发表于 2024-2-27 11:54</a>
+经过这么几天应该可以下判断了吧，这次和地铁8号比是进步还是退步，值不值得买? ...</blockquote>
+内容量少，肉鸽比较浅，总体质量还行，考虑到给了两个广场皮肤25刀价格勉强合理
+以上评价建立在不跟二代DLC对比前提下，要对比就是一坨，肉鸽这东西就是低人一等，什么肉鸽都不配跟任天堂本部操刀设计的80关相比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  炫夜鳞  
+##### 3416#       发表于 2024-2-27 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079907&amp;ptid=2150634" target="_blank">清浦刹那 发表于 2024-2-27 11:54</a>
+
+经过这么几天应该可以下判断了吧，这次和地铁8号比是进步还是退步，值不值得买? ...</blockquote>
+不如一根，值不值看个人
+

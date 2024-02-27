@@ -136,3 +136,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最近没时间玩，这游戏啥情况了
 
+
+*****
+
+####  荆棘花冠  
+##### 127#       发表于 2024-2-27 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085169&amp;ptid=2149107" target="_blank">电风扇 发表于 2024-2-27 20:00</a>
+
+最近没时间玩，这游戏啥情况了</blockquote>
+版号过了，然后91ACT组活了
+

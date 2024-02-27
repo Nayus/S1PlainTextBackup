@@ -3611,3 +3611,28 @@ steam还同步上去了
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  库德里尔  
+##### 325#       发表于 2024-2-27 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64082178&amp;ptid=2154925" target="_blank">拖鞋脚后跟 发表于 2024-2-27 15:31</a>
+有一张小丑牌描述是“重新触发每回合最后一手中的所有牌”，这个是必须只剩一手才生效？还是说只要我每回合 ...</blockquote>
+出牌次数还剩1的时候 的那一手
+
+*****
+
+####  a4ac7  
+##### 326#       发表于 2024-2-27 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64081760&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-27 14:54</a>
+下一个盲注是5400，这一手你们怎么打
+
+1、倾家荡产卖掉所有东西买吸血鬼；
+
+2、当作无事发生直接走； ...</blockquote>
+我有盘类似的情况贪死的，double tag出了两个加1小丑槽，买了以后直接暴毙<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

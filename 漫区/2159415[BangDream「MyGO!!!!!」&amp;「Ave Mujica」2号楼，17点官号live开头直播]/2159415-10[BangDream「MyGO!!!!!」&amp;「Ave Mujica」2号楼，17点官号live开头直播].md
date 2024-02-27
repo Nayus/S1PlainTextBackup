@@ -3127,3 +3127,23 @@ mujica什么时候发新歌，楼需要净化
 
 不过初华那个大概不是纯粹的低姿态，大概也是准备了利于初华的商业合同才说服事务所的，不过这个人脉确实是仗着初华喜欢她才拉起来。
 
+
+*****
+
+####  ddy2811  
+##### 13584#       发表于 2024-2-27 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079186&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-27 10:50</a>
+
+腹稿可能真要从绫奈肚子里去挖了，不看好动画会讲这个，因为不重要。
+
+不外乎睦的进路吧，睦以后大概率也是 ...</blockquote>
+祥子最危险的地方是她最大的筹码“已经死了”，这是银河战舰最脆弱的点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13585#       发表于 2024-2-27 11:12
+
+我一直认为一起组ave mujica本来就是初祥小时候的约定，这个设定可以解释很多不合理的细节<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

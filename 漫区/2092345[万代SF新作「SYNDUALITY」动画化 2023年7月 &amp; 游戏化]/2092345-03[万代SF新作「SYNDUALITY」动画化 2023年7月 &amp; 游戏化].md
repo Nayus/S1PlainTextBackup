@@ -3096,3 +3096,20 @@ rip
 是挺配的，马哈特毫无主见被人推着走，修涅一点意见不提任马哈特被人摆布。三台贤士还是老爷爷最靠谱 ...</blockquote>
 穆顿嘴炮修涅都能让对方吃噶<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，哎，对于大哥而言确实是不换贤士更好
 
+
+*****
+
+####  NeloAngelo  
+##### 4102#       发表于 2024-2-27 17:49
+
+ 本帖最后由 NeloAngelo 于 2024-2-27 17:52 编辑 
+
+下一集是noir(以及马桶)升级,继承ciel"遗志",大概率是又迫害一次观众<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+卫浴柜应该是在下集后半段动手.
+逆境一集, 翻盘一集,(或者反过来) 最后一集去乐园?
+
+正常来说乐园作为整篇故事的包袱,不搞事是不行的.
+但感觉他这个篇幅,估计不太适合过大的展开了.  最后应该还是要留白了 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3663,3 +3663,18 @@ steam还同步上去了
 
 但卖了过渡又很可能直接暴毙。
 
+
+*****
+
+####  himtom  
+##### 329#       发表于 2024-2-27 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64080929&amp;ptid=2154925" target="_blank">lilod 发表于 2024-2-27 13:40</a>
+
+这个游戏可以不用太把最高难度，和无尽模式当作目的
+
+光做做成就解锁东西 + 挑战模式就够玩很久（也可以学 ...</blockquote>
+周末两天就完成全解锁了，全成就里面那个全小丑金标我觉得就是扯淡的
+
+就算真的有人下定决心做这个成就，过程怕也是非常无聊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3807,3 +3807,15 @@ Seal 不能直接翻译成蜡封就行了不加版本两个字吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  tima_rua  
+##### 341#       发表于 2024-2-28 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64088833&amp;ptid=2154925" target="_blank">萌萌地镜头 发表于 2024-2-28 01:37</a>
+还有这个黑牌牌组应该是断层级别的飞舞了，连鸡煲都不如，其他卡组白注一遍过，黑卡roll了一下午 ...</blockquote>
+牌运不好赶紧开下一局，别犹豫
+
+黑牌是公认的坑爹
+

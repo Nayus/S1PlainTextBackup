@@ -3242,3 +3242,13 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 我在想比起敲计算器，能不能做一个模拟运行的mod，跑一手牌$2或者一盲注x次的票券
 
+
+*****
+
+####  schneehertz  
+##### 291#         楼主| 发表于 2024-2-27 07:45
+
+有不少概率触发的牌，就算真的计算也只能算出期望值，也就是说官方不可能会做，等mod吧
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

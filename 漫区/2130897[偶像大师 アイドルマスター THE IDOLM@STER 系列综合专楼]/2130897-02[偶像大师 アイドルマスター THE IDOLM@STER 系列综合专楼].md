@@ -1366,3 +1366,14 @@ gkmas
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hypnossz86  
+##### 1638#       发表于 2024-2-27 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075263&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-2-26 21:33</a>
+原来是小美野负责这个企&amp;#x52 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新领导上位肯定要搞自己的嫡系企划的
+旧系列搞得再好也是前朝遗老别人的东西
+

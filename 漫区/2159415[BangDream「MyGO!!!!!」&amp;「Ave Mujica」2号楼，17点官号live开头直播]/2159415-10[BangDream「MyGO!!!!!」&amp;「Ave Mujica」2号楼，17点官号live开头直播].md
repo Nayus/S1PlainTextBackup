@@ -2970,3 +2970,11 @@ mujica什么时候发新歌，楼需要净化
 
 不如看看真正的主動陪伴，玩樂隊不開心，被再次邀請要不要加入樂隊，又是秒答：我加入<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 13570#       发表于 2024-2-27 08:59
+
+可以，有没有访谈说过既然这么好拉，为什么祥子要把木头人放在最后才让他加入？按理来说，如果有的选箱子应该是不会喜欢说谎框大猫的吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

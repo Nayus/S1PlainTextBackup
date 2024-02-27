@@ -3055,3 +3055,15 @@ mujica什么时候发新歌，楼需要净化
 
 這難道不是更加說明了睦為了祥子的決心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 13578#       发表于 2024-2-27 10:20
+
+要汴京祥子为什么震惊了吗，感觉这个受个人喜好影响还是很大的，毕竟鸡没播出的角色理解都会掺杂很多个人倾向。
+
+我会解读成祥子不喜欢睦这种不考虑自己的利他行为。明明是让你好好思考一辈子的事，结果你加入的理由还是为了我。 这点和前面祥子劝睦不要当传信鸽是可以对照的。也是陪伴系幼驯染的标准样板戏了。
+
+当然漏油解读成睦之前拒绝过祥子，现在态度180°转变把祥子吓晕了也是符合目前给出的剧本逻辑的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

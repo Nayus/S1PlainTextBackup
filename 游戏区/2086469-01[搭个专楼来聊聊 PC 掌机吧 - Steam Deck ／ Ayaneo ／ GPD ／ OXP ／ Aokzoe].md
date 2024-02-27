@@ -32,3 +32,18 @@ aya刚出的那个双屏翻盖机是不是翻车了
 
 我也不是很理解PC掌机搞个双屏干什么……
 
+
+*****
+
+####  bypass  
+##### 1112#         楼主| 发表于 2024-2-27 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64078289&amp;ptid=2086469" target="_blank">trow233 发表于 2024-2-27 09:39</a>
+
+aya刚出的那个双屏翻盖机是不是翻车了
+
+看一些网友说散热存在问题</blockquote>
+已经有人到手了吗，之前看疯疯评测感觉还好。
+
+不过 Aya 最近评测都不让比较音频，借口都是工程机还在改进驱动，感觉有猫腻。
+

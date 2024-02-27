@@ -1377,3 +1377,18 @@ gkmas
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新领导上位肯定要搞自己的嫡系企划的
 旧系列搞得再好也是前朝遗老别人的东西
 
+
+*****
+
+####  rgauss  
+##### 1639#       发表于 2024-2-27 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64077883&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-2-27 09:00</a>
+新领导上位肯定要搞自己的嫡系企划的
+旧系列搞得再好也是前朝遗老别人的东西 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但这企划应该是变态在的时候就定下来了
+
+小美野我个人印象还不错
+
+波多野还是先死了吧
+

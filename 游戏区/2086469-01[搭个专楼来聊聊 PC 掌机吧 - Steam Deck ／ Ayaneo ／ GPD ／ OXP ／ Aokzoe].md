@@ -47,3 +47,18 @@ aya刚出的那个双屏翻盖机是不是翻车了
 
 不过 Aya 最近评测都不让比较音频，借口都是工程机还在改进驱动，感觉有猫腻。
 
+
+*****
+
+####  trow233  
+##### 1113#       发表于 2024-2-27 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64078820&amp;ptid=2086469" target="_blank">bypass 发表于 2024-2-27 10:20</a>
+
+已经有人到手了吗，之前看疯疯评测感觉还好。
+
+不过 Aya 最近评测都不让比较音频，借口都是工程机还在改 ...</blockquote>
+就是在疯疯那个视频下有些评论在说
+
+不过也不知道是不是真实的
+

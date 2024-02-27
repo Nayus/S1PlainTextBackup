@@ -3400,3 +3400,18 @@ amt和事务所闹翻了被冷藏一年武士道就等了一年，工艺蛋内�
 
 27了，29能出新曲吗？
 
+
+*****
+
+####  NODY  
+##### 13612#       发表于 2024-2-27 16:47
+
+有狗团广播小动画铺了一年的人设和人际关系在动画全部改写的先例，鸡团live的小剧场能不能对应动画剧情其实也不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 13613#       发表于 2024-2-27 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还是要看小剧场是谁写的，1st小剧场我记得是动画脚本之一写的
+

@@ -3507,3 +3507,28 @@ amt和事务所闹翻了被冷藏一年武士道就等了一年，工艺蛋内�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">啊？我穿越了吗？这是哪个时间线啊
 
+
+*****
+
+####  NODY  
+##### 13623#       发表于 2024-2-27 20:28
+
+不详细讲大人的事情才符合邦邦的宗旨，上一个玩公司斗争还会喊臭老爹的大小姐就是前车之鉴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 13624#       发表于 2024-2-27 20:35
+
+可是上一个搞公司斗争还喊臭老爹的动画，他的系构是绫奈入行的契机。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 13625#       发表于 2024-2-27 20:37
+
+狗新歌今晚11点
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -3528,3 +3528,21 @@ steam还同步上去了
 
 方格牌组打完金注了，其他牌组进阶是一点也不想碰了
 
+
+*****
+
+####  就是剑鞘  
+##### 317#       发表于 2024-2-27 14:54
+
+<img src="https://p.sda1.dev/15/f0d65cc9f7e7a1ee8ea8cc050f6290f2/4734.png" referrerpolicy="no-referrer">
+
+下一个盲注是5400，这一手你们怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1、倾家荡产卖掉所有东西买吸血鬼；
+
+2、当作无事发生直接走；
+
+3、卖掉一张卡开包赌三选一有节制。
+
+反正我只觉得这个buff刷的恶意满满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

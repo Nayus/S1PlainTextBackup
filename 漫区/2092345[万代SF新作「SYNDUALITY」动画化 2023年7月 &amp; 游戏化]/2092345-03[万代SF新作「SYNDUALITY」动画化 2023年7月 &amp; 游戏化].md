@@ -3019,3 +3019,45 @@ noir现在这身看着太怪了.  颜色有点乱
 
 如果撇开美女这种颜值不说，穆顿的战斗力和实用性未必比修涅差吧，那次攻防修涅就被穆顿突破了
 
+
+*****
+
+####  NeloAngelo  
+##### 4095#       发表于 2024-2-27 15:01
+
+这一集没有说mouton是不是零式吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  charlespfan  
+##### 4096#       发表于 2024-2-27 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64081723&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-2-27 14:51</a>
+如果撇开美女这种颜值不说，穆顿的战斗力和实用性未必比修涅差吧，那次攻防修涅就被穆顿突破了 ...</blockquote>
+对人比较有用，对Enders好像没什么用，上次打银色风暴没黑皮的贤士技能怕是要GG
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RE㐅ia  
+##### 4097#       发表于 2024-2-27 15:06
+
+<blockquote>oi99o 发表于 2024-2-27 13:11
+原来帕斯卡的声优是一城美由希，去年十月去世了，看来很早就配完音了</blockquote>
+rip
+
+*****
+
+####  aptx8285144  
+##### 4098#       发表于 2024-2-27 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64081840&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-27 15:01</a>
+
+这一集没有说mouton是不是零式吧
+
+—— 来自 S1Fun</blockquote>
+迪士尼的翻译模糊不清的地方太多了，等奶茶屋吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

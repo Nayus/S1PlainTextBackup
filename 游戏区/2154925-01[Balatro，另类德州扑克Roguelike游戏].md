@@ -3546,3 +3546,11 @@ steam还同步上去了
 
 反正我只觉得这个buff刷的恶意满满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  兰开夏  
+##### 318#       发表于 2024-2-27 14:58
+
+黄金面具+吸血鬼，爽翻
+

@@ -3789,3 +3789,11 @@ Seal 不能直接翻译成蜡封就行了不加版本两个字吗
 
 <img src="https://img.saraba1st.com/forum/202402/28/013516iog3qva0aaf9idol.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萌萌地镜头  
+##### 339#       发表于 2024-2-28 01:37
+
+还有这个黑牌牌组应该是断层级别的飞舞了，连鸡煲都不如，其他卡组白注一遍过，黑卡roll了一下午
+

@@ -3208,3 +3208,46 @@ mygo劲真大，我都上了3天班了还想，未来这一年可怎么过啊<im
 
 笑吐，換皮手工蛋回歸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  すぴぱら  
+##### 13591#       发表于 2024-2-27 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来cy才是那个从中作梗的人，一脚踢开
+
+*****
+
+####  Aendst  
+##### 13592#       发表于 2024-2-27 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以之前几次更新搞的焦头烂额是在做什么
+
+
+*****
+
+####  相坂君  
+##### 13593#       发表于 2024-2-27 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cy ×   ca ✓ cy哪有这个子公司
+
+*****
+
+####  NODY  
+##### 13594#       发表于 2024-2-27 11:51
+
+ 本帖最后由 NODY 于 2024-2-27 11:54 编辑 
+
+新公司是去年十月建的，可能早就下手要回收了，工艺蛋断尾求生赶紧开个新公司先把一些重要的老班底一起卷走再说，什么邦邦商战<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+新公司能留下来多少老班底也不好说，不过看信泽还在坚持画鬼图来看他应该还是在的
+
+*****
+
+####  御幸一也  
+##### 13595#       发表于 2024-2-27 11:54
+
+之前商店結算都是手工蛋，公司要沒了換一個結算的公司，這種屎山大改炸一下也是可以理解的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真的沒懂，以前手遊營運的明明是武士道，怎麼結算是給手工蛋的，我看龍絆/CGSS這些，都是掛老任/萬南下面
+

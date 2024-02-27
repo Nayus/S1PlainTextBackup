@@ -3470,3 +3470,34 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  LLLLLuB  
+##### 311#       发表于 2024-2-27 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64080781&amp;ptid=2154925" target="_blank">Kazepollar 发表于 2024-2-27 13:23</a>
+能来点发育思路不，优先买什么，怎么规划</blockquote>
+个人感觉先买能保证存活的，容易触发的加分小丑，再考虑赚经济进行进一波发育，基本就可以稳白注通关了
+
+*****
+
+####  库德里尔  
+##### 312#       发表于 2024-2-27 13:40
+
+误删了我的主存档 笑死
+
+steam还同步上去了
+
+
+*****
+
+####  lilod  
+##### 313#       发表于 2024-2-27 13:40
+
+这个游戏可以不用太把最高难度，和无尽模式当作目的
+
+光做做成就解锁东西 + 挑战模式就够玩很久（也可以学习到很多套路
+
+到时候在慢慢打各个牌组的高难
+

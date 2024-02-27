@@ -2903,3 +2903,35 @@ noir现在这身看着太怪了.  颜色有点乱
 <img src="https://p.sda1.dev/15/2ea916e1dafcabb19211eea759741532/6e6ae045a3769b087e79a472c9cbec57.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/5443b44b758c0d20ef853db386bd634f/174b52ad6f5e2c13427b129b3a88ad44.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4083#       发表于 2024-2-27 13:37
+
+大哥那时候要是换了，命运的齿轮就不一样了，不过也没办法谁能想到威斯这家伙这么变态<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，另外修涅和管家是密谋帮大哥逃走的吧
+
+*****
+
+####  aptx8285144  
+##### 4084#       发表于 2024-2-27 13:38
+
+ 本帖最后由 aptx8285144 于 2024-2-27 13:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076323&amp;ptid=2092345" target="_blank">reficul 发表于 2024-2-26 23:36</a>
+
+今天是226，动画里也是226
+
+黑P ...</blockquote>
+不过挺搞笑的是管家和修涅密谋了帮时熊越狱 ，还差点说动了面具男一起逃<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 4085#       发表于 2024-2-27 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076257&amp;ptid=2092345" target="_blank">星降る森 发表于 2024-2-26 23:28</a>
+
+大哥灵魂吐槽，为什么只有我的是老头magus草（还不是零式）</blockquote>
+大哥要是一咬牙就换了，世界线就不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

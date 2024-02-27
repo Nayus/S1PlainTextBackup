@@ -4271,3 +4271,18 @@ octo在80关的基础上，还讲述了一个有起有伏的故事，塑造了�
 
 今天就挤了个储物柜道具<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">明天挤个目录后天直接开摆
 
+
+*****
+
+####  绝望队长  
+##### 3424#       发表于 2024-2-27 18:07
+
+这DLC，以后再也不敢预购了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝望队长  
+##### 3425#       发表于 2024-2-27 18:07
+
+这DLC，以后再也不敢预购了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

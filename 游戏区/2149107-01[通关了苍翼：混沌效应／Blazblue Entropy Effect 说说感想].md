@@ -86,3 +86,21 @@
 
 正在91act拍摄，他们的《苍翼：混沌效应》拿到版号了，第一时间记录。从年前公司解散，到昨天公司复活，今天拿到版号，这一波起伏拉满…
 
+
+*****
+
+####  伊布桑  
+##### 121#       发表于 2024-2-27 18:08
+
+复！活！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  Tring  
+##### 122#       发表于 2024-2-27 18:13
+
+复活了能不能先把在线合作模式整出来啊。
+

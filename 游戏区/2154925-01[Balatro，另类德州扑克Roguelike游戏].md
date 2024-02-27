@@ -3458,3 +3458,15 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 能来点发育思路不，优先买什么，怎么规划
 
+
+*****
+
+####  a4ac7  
+##### 310#       发表于 2024-2-27 13:31
+
+【【小丑牌balatro】点评所有小丑牌，介绍卡牌配合-哔哩哔哩】 [https://b23.tv/rFipGVm](https://b23.tv/rFipGVm)
+
+不过我看了一半，觉得还是自己摸索有趣味一点
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4171,3 +4171,16 @@ A怪载着B怪，A怪打掉后立刻触发B怪特殊攻击这个设计很有想�
 
 经过这么几天应该可以下判断了吧，这次和地铁8号比是进步还是退步，值不值得买?<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  martinium  
+##### 3414#       发表于 2024-2-27 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64075202&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-26 21:27</a>
+涂地有啥诀窍么？我一般打满5分钟也就1500左右，这场略微加时拼老命了都没到1600，看大佬们随随便便上2000 ...</blockquote>
+有来有回才能涂得多，压着打的话也就1000出头。
+还有要在前线才能涂，强度不高的局，后排涂1500算正常了。可以试下贴牌小绿，立回稳一点每局1800毫无压力。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

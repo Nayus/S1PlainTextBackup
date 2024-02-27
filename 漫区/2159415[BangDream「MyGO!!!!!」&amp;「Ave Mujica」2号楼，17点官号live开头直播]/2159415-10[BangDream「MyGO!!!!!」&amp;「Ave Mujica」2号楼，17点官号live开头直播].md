@@ -3378,3 +3378,25 @@ amt和事务所闹翻了被冷藏一年武士道就等了一年，工艺蛋内�
 
 楼上，我连mygo二创都不怎么看，很多二创会严重干扰对角色的思路，我个人建议在mujica动画结束前，这两团的二创都不要看，包括发糖的同人文，因为在我看来很多地方对角色的解读歪倒没变，不如专楼。
 
+
+*****
+
+####  Toki_Ai  
+##### 13609#       发表于 2024-2-27 16:23
+
+同楼上，一篇同人都没有看过就等1月了，同人看多了擅自期待擅自破防什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 13610#       发表于 2024-2-27 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不过实话说go的角色分析我也不怎么看，贵在和而不同。
+
+*****
+
+####  ytttsuuuba  
+##### 13611#       发表于 2024-2-27 16:27
+
+27了，29能出新曲吗？
+

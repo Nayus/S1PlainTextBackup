@@ -3413,3 +3413,15 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 运气够差第一轮都过不了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 不至于 除非黑牌组 因为我玩的比较多的黄牌组第一轮是白板 一般不会遇到过第一轮过不了的情况 跳两下直接打BOSS其实都可以。简单来说就是开局多打同花，效率高，600分打两个同花再补一些别的就行了，或者你就不要跳，打小筹码，然后买一张过度的加倍率或者筹码的牌。后面其实也是有很多过度牌，本质就是如果根本不考虑无限只考虑通关很多牌都很好用可以看到就买。
 
+
+*****
+
+####  yozoraxsx  
+##### 306#       发表于 2024-2-27 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079085&amp;ptid=2154925" target="_blank">空集 发表于 2024-2-27 10:42</a>
+黑牌组减一出牌数确实纯纯的逆天。。。我个人觉得是最弱卡组 确实白注我都死了很多次 我根本不能想 ...</blockquote>
+而且每战少一块钱 拒绝出击换钱的时候那次出击价值肯定比一块钱大了
+
+—— 来自 Xiaomi 22041216UC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3439,3 +3439,14 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 —— 来自 Xiaomi 22041216UC, Andr ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是 所以这B卡组我根本没有一点打进阶的念头 （当然这游戏的进阶本来就挺为进阶而进阶的 说实话我觉得进阶不适合这游戏 他数值很敏感的 进阶有一些比如永恒那个又**增加了随机性 结论就是死种率暴增 我觉得他进阶循序渐进加点筹码要求就行了 现在这种做法太极端了）
 
+
+*****
+
+####  yozoraxsx  
+##### 308#       发表于 2024-2-27 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64080366&amp;ptid=2154925" target="_blank">空集 发表于 2024-2-27 12:39</a>
+
+是 所以这B卡组我根本没有一点打进阶的念头 （当然这游戏的进阶本来就挺为进阶而进阶的 说实话我觉 ...</blockquote>
+感觉进阶1就把小盲注的3块钱扣了就很过分 单看进阶2加的数值感觉没那三块钱重要
+

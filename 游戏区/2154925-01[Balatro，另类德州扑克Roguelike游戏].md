@@ -3501,3 +3501,14 @@ steam还同步上去了
 
 到时候在慢慢打各个牌组的高难
 
+
+*****
+
+####  空集  
+##### 314#       发表于 2024-2-27 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64080543&amp;ptid=2154925" target="_blank">yozoraxsx 发表于 2024-2-27 12:59</a>
+
+感觉进阶1就把小盲注的3块钱扣了就很过分 单看进阶2加的数值感觉没那三块钱重要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这BYD进阶除了 进阶2那个加点数值其他个个要命 一个感觉能顶别的游戏5-6个进阶
+

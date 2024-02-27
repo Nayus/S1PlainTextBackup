@@ -3121,3 +3121,31 @@ rip
 
 古贺葵唱歌行不行啊，感觉用雪儿机体应该要有唱歌戏份吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4104#       发表于 2024-2-27 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64084242&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-2-27 18:01</a>
+
+古贺葵唱歌行不行啊，感觉用雪儿机体应该要有唱歌戏份吧</blockquote>
+起码去年16BIT的ED听了还行（
+
+
+*****
+
+####  aptx8285144  
+##### 4105#       发表于 2024-2-27 18:41
+
+威斯这人真是古板反派，他的两位同窗都离不开贤士的帮助和辅佐，他的理论不可制造第二个人类敌人就是初一听好像有点道理，然而在大灾害之后的人类哪有什么足够的余力独自活下去的资本，提防，利用，共处的界限在哪里本来就是拿来写论文都不一定能说清楚，需要人类们自己在实践中摸索的
+
+*****
+
+####  不灭的旋律  
+##### 4106#       发表于 2024-2-27 18:45
+
+这集已经说了提供给三人的是三台特别的贤士，怎么可能不是零式。官方已经说过零式和非零式性能相差悬殊，你想黑电子战输给穆顿的修涅吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是上一季提到零式能互相认知雌小鬼却对穆顿和雪露毫无反应有点不自然
+

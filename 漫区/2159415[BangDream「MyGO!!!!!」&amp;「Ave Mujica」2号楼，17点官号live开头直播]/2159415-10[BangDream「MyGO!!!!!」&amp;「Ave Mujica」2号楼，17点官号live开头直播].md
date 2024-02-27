@@ -2960,3 +2960,13 @@ mujica什么时候发新歌，楼需要净化
 
 这么想原来mujica世界观已经率先到达了pico层次<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13569#       发表于 2024-2-27 08:27
+
+同班逃都逃不掉，整天被抓去問祥子，感覺是真的有點可憐<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不如看看真正的主動陪伴，玩樂隊不開心，被再次邀請要不要加入樂隊，又是秒答：我加入<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

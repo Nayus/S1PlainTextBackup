@@ -3193,3 +3193,11 @@ rip
 
 看预告不会是诺娃继承遗志自己出道唱起来了吧？
 
+
+*****
+
+####  洛克萨斯  
+##### 4111#       发表于 2024-2-27 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这机设但凡帅气一点这动画人气会高很多，电饭煲是真的不好看，白瞎人设
+

@@ -128,3 +128,11 @@
 
 这游戏有上ns的计划吗？能用es酱砍怪对我来说还是蛮有吸引力的
 
+
+*****
+
+####  电风扇  
+##### 126#       发表于 2024-2-27 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最近没时间玩，这游戏啥情况了
+

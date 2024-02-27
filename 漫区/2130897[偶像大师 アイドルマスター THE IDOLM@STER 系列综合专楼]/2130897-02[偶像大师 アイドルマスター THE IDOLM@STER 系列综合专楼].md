@@ -1392,3 +1392,15 @@ gkmas
 
 波多野还是先死了吧
 
+
+*****
+
+####  舆水沉浮  
+##### 1640#       发表于 2024-2-27 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64073746&amp;ptid=2130897" target="_blank">皮卡丘跑快快 发表于 2024-2-26 18:56</a>
+学院偶像？我缺的萝莉谁来补</blockquote>
+说不定有初中部，小学部呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

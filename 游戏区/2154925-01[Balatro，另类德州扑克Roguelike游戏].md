@@ -3580,3 +3580,34 @@ steam还同步上去了
 
 牌型最高是多少级？我拉到20级了居然还没满？
 
+
+*****
+
+####  schneehertz  
+##### 322#         楼主| 发表于 2024-2-27 15:30
+
+蓝图流浪汉，一个盲注6张塔罗牌
+这是很契合高进阶的组合吧，不理解难点在哪
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  拖鞋脚后跟  
+##### 323#       发表于 2024-2-27 15:31
+
+有一张小丑牌描述是“重新触发每回合最后一手中的所有牌”，这个是必须只剩一手才生效？还是说只要我每回合只打一手就能一直生效？
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  schneehertz  
+##### 324#         楼主| 发表于 2024-2-27 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64082067&amp;ptid=2154925" target="_blank">医生狼多 发表于 2024-2-27 15:21</a>
+牌型最高是多少级？我拉到20级了居然还没满？</blockquote>
+最高到过三十多级，应该是没有上限的
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

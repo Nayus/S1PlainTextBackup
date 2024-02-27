@@ -3014,3 +3014,25 @@ mujica什么时候发新歌，楼需要净化
 
 還是關注半身幼馴染關係性吧，所有質疑第二季都會給你答案，這就是 <strong>同隊</strong> <strong>幼馴染</strong> 給我的自信 嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 13575#       发表于 2024-2-27 09:57
+
+不过提到10个月还是挺难顶的，希望新曲一单2nd或者其他没生出来的物料有点好东西可以造假药或者解读。总不能真全靠中之人喂<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 13576#       发表于 2024-2-27 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64078198&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-27 09:31</a>
+
+祥子都睦的秒答嚇到，頓了一下，還給她再次確認，這還叫不好拉啊？
+
+ ...</blockquote>
+如果之前就是一拉就来，那么就不用空手套白狼贷款睦的加入来拉喵梦了
+
+既然祥子来拉睦时会被惊到，那么就应该不是那么笃定的
+

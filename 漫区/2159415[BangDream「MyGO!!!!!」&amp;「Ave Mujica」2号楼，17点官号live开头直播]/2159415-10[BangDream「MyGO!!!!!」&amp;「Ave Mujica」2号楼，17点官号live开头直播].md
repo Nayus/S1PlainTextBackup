@@ -3147,3 +3147,13 @@ mujica什么时候发新歌，楼需要净化
 
 我一直认为一起组ave mujica本来就是初祥小时候的约定，这个设定可以解释很多不合理的细节<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  实津二三  
+##### 13586#       发表于 2024-2-27 11:22
+
+<img src="https://p.sda1.dev/15/6ab903814caaf767725bb6987557b757/CMP_20240227112241193.jpg" referrerpolicy="no-referrer">
+这一波360°回旋给我整乐了。
+看来之前分手主要还是因为手工蛋和cy那边的内部问题，现在手工蛋没了，武士道又和原班人马的新公司合作。
+

@@ -3425,3 +3425,17 @@ Uncommon能触发棒球手的1.5倍率，小丑牌没有完爆！</blockquote>
 
 —— 来自 Xiaomi 22041216UC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  空集  
+##### 307#       发表于 2024-2-27 12:39
+
+ 本帖最后由 空集 于 2024-2-27 12:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64080230&amp;ptid=2154925" target="_blank">yozoraxsx 发表于 2024-2-27 12:25</a>
+
+而且每战少一块钱 拒绝出击换钱的时候那次出击价值肯定比一块钱大了
+
+—— 来自 Xiaomi 22041216UC, Andr ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是 所以这B卡组我根本没有一点打进阶的念头 （当然这游戏的进阶本来就挺为进阶而进阶的 说实话我觉得进阶不适合这游戏 他数值很敏感的 进阶有一些比如永恒那个又**增加了随机性 结论就是死种率暴增 我觉得他进阶循序渐进加点筹码要求就行了 现在这种做法太极端了）
+

@@ -3666,3 +3666,14 @@ mygo的歌多样性真的好<img src="https://static.saraba1st.com/image/smiley/
 
 2024-2-27 22:20 上传
 
+
+*****
+
+####  ddy2811  
+##### 13638#       发表于 2024-2-27 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085470&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-27 20:28</a>
+
+不详细讲大人的事情才符合邦邦的宗旨，上一个玩公司斗争还会喊臭老爹的大小姐就是前车之鉴 ...</blockquote>
+但独角兽老师对那部作品感情及其系构还挺深的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

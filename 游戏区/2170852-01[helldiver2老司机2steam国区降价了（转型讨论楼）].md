@@ -10402,3 +10402,28 @@ P2P传输是这样 再拉个哥们没准就好了
 今天看到个yt大佬solo过九级救科学家..</blockquote>
 朋友可以发一下网址吗，想看看大佬怎么过的...真是被打的没脾气了。
 
+
+*****
+
+####  Benighted  
+##### 1053#       发表于 2024-2-27 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64087840&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-2-27 23:30</a>
+
+朋友可以发一下网址吗，想看看大佬怎么过的...真是被打的没脾气了。</blockquote>
+/watch?v=Qiq6YkoGufs&amp;t=355s
+
+带的喷气背包、两个烟雾、电磁迫击炮   就是把怪引开然后再冲回来救人，不停反复
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Gmlazy| + 1|好评加鹅|
+
+查看全部评分
+

@@ -3278,3 +3278,31 @@ rip
 
 说起这个，上周彼方在驾驶舱里翻阅记忆那段，前面照片都是看了令人感动或难过，翻到这张我就笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 4118#         楼主| 发表于 2024-2-27 21:54
+
+<img src="https://p.sda1.dev/15/d4c8d3c639eef4079a5ca713ba486ed5/20240227_210219.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NeloAngelo  
+##### 4119#       发表于 2024-2-27 22:00
+
+于是少年遇到了少女, 是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">你最好在写21集前听一百遍one last you, 憋整烂活
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyDC  
+##### 4120#       发表于 2024-2-27 22:05
+
+下一集给歌姬风光大葬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

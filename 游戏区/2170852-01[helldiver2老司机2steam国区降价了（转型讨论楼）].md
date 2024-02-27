@@ -10380,3 +10380,14 @@ P2P传输是这样 再拉个哥们没准就好了
 野队想要过救科学家难度789真是没办法了。</blockquote>
 今天看到个yt大佬solo过九级救科学家..
 
+
+*****
+
+####  skypride  
+##### 1051#       发表于 2024-2-27 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64065496&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-2-26 00:55</a>
+
+高级债券可能只有第三页的主宰解锁比普通债券最后一页的焦土快这一个优点...... ...</blockquote>
+主宰这个枪咋样 能像机炮那样远距离关巢穴、拆广播站吗
+

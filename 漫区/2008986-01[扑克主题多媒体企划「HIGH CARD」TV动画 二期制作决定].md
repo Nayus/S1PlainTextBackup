@@ -627,3 +627,11 @@ season2は2024年1月放送開始
 
 主角回到现实后剧情又变蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolf1997  
+##### 47#       发表于 2024-2-27 21:39
+
+十几集动画里最有信息量的一集
+

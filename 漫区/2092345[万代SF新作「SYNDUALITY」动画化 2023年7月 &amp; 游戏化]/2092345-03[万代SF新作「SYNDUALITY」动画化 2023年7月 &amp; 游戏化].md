@@ -3201,3 +3201,11 @@ rip
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这机设但凡帅气一点这动画人气会高很多，电饭煲是真的不好看，白瞎人设
 
+
+*****
+
+####  aptx8285144  
+##### 4112#       发表于 2024-2-27 20:21
+
+这片的<strong>画风和服装设计</strong>得到是很不错，女性们就不用多说了，彼方很清秀，大哥看着年轻却有一种“服了你，你说得对”的阅历感，面具男实力下降前也是面具和声优口吻撑起来的逼格，梶裕贵的面容有一种扭曲反派的美<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，到是前代英雄阿尔巴真得给人一种经历太多而老气横秋的感慨（
+

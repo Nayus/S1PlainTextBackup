@@ -577,3 +577,16 @@ DLC刷的难受，本来期待剧情的，没想到是纯刷，每次刷一个�
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  永远的访客  
+##### 4059#       发表于 2024-2-27 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64069429&amp;ptid=2098044" target="_blank">Nihlathak 发表于 2024-2-26 12:27</a>
+
+打到第八层高级奖池头奖还没出过这正常吗
+
+—— 来自 samsung SM-S916U, Android 14上的 S1Next-鹅 ...</blockquote>
+1-8还是8-1？我到3-10已经开了好几个饰品槽倒是缺少蓝色以上品质的饰品装了，纯刷而已<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -3157,3 +3157,30 @@ mujica什么时候发新歌，楼需要净化
 这一波360°回旋给我整乐了。
 看来之前分手主要还是因为手工蛋和cy那边的内部问题，现在手工蛋没了，武士道又和原班人马的新公司合作。
 
+
+*****
+
+####  PDQ4  
+##### 13587#       发表于 2024-2-27 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079407&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-2-27 11:11</a>
+
+祥子最危险的地方是她最大的筹码“已经死了”，这是银河战舰最脆弱的点 ...</blockquote>
+或许是不稳定的因素之一，但是我认为这是mujica牢固的基石。现在的祥子才能招募到海铃和喵梦，有了变化的祥子才能让经年累月的幼驯染关系更进一步。
+
+而且这个“死”是祥子单方面自认的，不认为在初华睦眼中祥子有本质上的异化。就算性情大变，对事物的认知产生了变化，人的本质也是很难改变的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 13588#       发表于 2024-2-27 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079531&amp;ptid=2159415" target="_blank">实津二三 发表于 2024-2-27 11:22</a>
+
+这一波360°回旋给我整乐了。
+
+看来之前分手主要还是因为手工蛋和cy那边的内部问题，现在手工蛋没了，武士 ...</blockquote>
+大草，感觉比之前漏油猜的手工蛋收购原班人马更难蚌，合着wsd因为对象家务事被踢了一脚。所以剧情排期到底这么回事。总不能这个新公司也是临时起意拉的吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+也不知道到底有多少原班人马留下来
+

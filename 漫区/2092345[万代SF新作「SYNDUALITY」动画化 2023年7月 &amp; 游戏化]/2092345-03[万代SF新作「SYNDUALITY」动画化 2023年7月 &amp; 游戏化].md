@@ -2935,3 +2935,22 @@ noir现在这身看着太怪了.  颜色有点乱
 大哥灵魂吐槽，为什么只有我的是老头magus草（还不是零式）</blockquote>
 大哥要是一咬牙就换了，世界线就不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4086#       发表于 2024-2-27 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64080310&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-27 12:33</a></blockquote>
+诺娃遇到了夏尔的粉丝，古贺葵是不是要唱歌了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，这粉丝女孩还挺好看的（
+
+
+*****
+
+####  charlespfan  
+##### 4087#       发表于 2024-2-27 13:52
+
+穆顿不是零型？难怪大哥要叛逃了，堂堂第二连个零型都不给（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4286,3 +4286,11 @@ octo在80关的基础上，还讲述了一个有起有伏的故事，塑造了�
 
 这DLC，以后再也不敢预购了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clvan_  
+##### 3426#       发表于 2024-2-27 19:24
+
+原来无限徽章还能强化四次吗。0强打的老刺激了，失误破甲吓得要死
+

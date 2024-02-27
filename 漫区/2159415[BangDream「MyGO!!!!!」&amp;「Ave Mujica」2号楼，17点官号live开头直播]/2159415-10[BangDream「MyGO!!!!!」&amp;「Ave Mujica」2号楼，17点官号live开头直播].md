@@ -3261,3 +3261,58 @@ mygo劲真大，我都上了3天班了还想，未来这一年可怎么过啊<im
  这一波360°回旋给我整乐了。 看来之前分手主要还是因为手工蛋和cy那边的内部问题，现在手工蛋没了，武士 ...</blockquote>
 原汤化原食（确信）
 
+
+*****
+
+####  基神的强袭自由  
+##### 13597#       发表于 2024-2-27 12:06
+
+哦对了，外面邦系讨论群组头像大一统，只有S1不在现场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 13598#       发表于 2024-2-27 12:07
+
+公益蛋：我，再生产！
+
+
+*****
+
+####  NODY  
+##### 13599#       发表于 2024-2-27 12:10
+
+仔细想想三次元肯定没有二次元那么理想老板另起炉灶员工纷纷跟着出走，这个新公司相比原来应该还是残了不少的，感觉大半年内卡图和剧情质量不会太稳定
+
+情人节剧情鸽了不会就是因为负责这部分的员工没跟着走吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  すぴぱら  
+##### 13600#       发表于 2024-2-27 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079871&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-27 11:51</a>
+
+新公司是去年十月建的，可能早就下手要回收了，工艺蛋断尾求生赶紧开个新公司先把一些重要的老班底一起卷走 ...</blockquote>
+看到信泽和汤田都转了，说明一起跑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 13601#       发表于 2024-2-27 12:13
+
+唯一指定祥廚樓被排擠也很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 13602#       发表于 2024-2-27 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64080080&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-27 12:10</a>
+
+仔细想想三次元肯定没有二次元那么理想老板另起炉灶员工纷纷跟着出走，这个新公司相比原来应该还是残了不少 ...</blockquote>
+基本上錢給的夠多就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 之前好歹也是掛CA旗下的子公司，上班的地方還是Abema Towers，和CA一起
+
+新公司，我不好說()
+

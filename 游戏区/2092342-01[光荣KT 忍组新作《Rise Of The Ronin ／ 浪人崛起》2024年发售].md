@@ -733,3 +733,34 @@ https://blog.ja.playstation.com/2024/02/24/20240 ...</blockquote>
 【4K中字 PS5｜《浪人崛起》游戏幕后 第2期】 
 [https://b23.tv/VTTi0Mb](https://b23.tv/VTTi0Mb)
 
+
+*****
+
+####  Piano-Forest  
+##### 737#         楼主| 发表于 2024-2-27 23:26
+
+幕后第三弹：[https://youtu.be/lk8W0k0yEiU](https://youtu.be/lk8W0k0yEiU)
+
+又更新了些东西：
+[https://www.playstation.com/ja-jp/games/rise-of-the-ronin/](https://www.playstation.com/ja-jp/games/rise-of-the-ronin/)
+
+三大派系各又增添一个关键人介绍
+
+Q&amp;A
+
+——『Rise of the Ronin』はオンラインマルチプレイに対応していますか？
+
+『Rise of the Ronin』では、プレイヤーはオンライン協力プレイを通して、最大3名のプレイヤーで協力してゲームのメインストーリーミッションをプレイすることができます。オンラインでプレイするにはPlayStation Plusに加入する必要があります。また、プレイヤー同士による戦闘（PVP）はありません。
+
+——『Rise of the Ronin』で難易度を選ぶことは可能ですか？
+
+『Rise of the Ronin』にはイージー、ノーマル、ハードの3つの難易度があり（ゲーム内では「薄明」「黄昏」「宵闇」の難易度表記）、いつでも変更することができます。難易度イージー（薄明）を選択すると、薬の体力回復量の増加と、攻撃を受けたときの気力減少を軽減する追加設定が可能になります。
+
+
+*****
+
+####  karastar  
+##### 738#       发表于 2024-2-27 23:34
+
+限时独占吧，和之前的仁王，最终幻想的独占类似吧
+

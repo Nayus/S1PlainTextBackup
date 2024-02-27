@@ -10391,3 +10391,14 @@ P2P传输是这样 再拉个哥们没准就好了
 高级债券可能只有第三页的主宰解锁比普通债券最后一页的焦土快这一个优点...... ...</blockquote>
 主宰这个枪咋样 能像机炮那样远距离关巢穴、拆广播站吗
 
+
+*****
+
+####  Gmlazy  
+##### 1052#       发表于 2024-2-27 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64086217&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-2-27 21:31</a>
+
+今天看到个yt大佬solo过九级救科学家..</blockquote>
+朋友可以发一下网址吗，想看看大佬怎么过的...真是被打的没脾气了。
+

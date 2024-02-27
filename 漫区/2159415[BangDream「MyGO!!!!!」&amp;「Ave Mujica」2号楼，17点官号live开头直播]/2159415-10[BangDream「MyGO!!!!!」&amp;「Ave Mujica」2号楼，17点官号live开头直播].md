@@ -3677,3 +3677,16 @@ mygo的歌多样性真的好<img src="https://static.saraba1st.com/image/smiley/
 不详细讲大人的事情才符合邦邦的宗旨，上一个玩公司斗争还会喊臭老爹的大小姐就是前车之鉴 ...</blockquote>
 但独角兽老师对那部作品感情及其系构还挺深的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 13639#       发表于 2024-2-28 00:16
+
+新歌挺好听，没出现配器大开但是人声跟不上的情况了
+预副歌编的很精彩
+最后副歌到结尾也挺好听
+挺不错的一首曲子<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

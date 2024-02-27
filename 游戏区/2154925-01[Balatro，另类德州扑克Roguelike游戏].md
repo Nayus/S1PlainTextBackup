@@ -3737,3 +3737,18 @@ steam还同步上去了
 
 这里有两个版本就很奇怪，是把Edition翻译成别的比如说工艺、特版好呢，还是干脆调整这句话的译文，或者两个都做
 
+
+*****
+
+####  铃森冬  
+##### 335#       发表于 2024-2-27 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085634&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-27 20:44</a>
+
+征求坛友的意见
+
+对于“Playing cards may each have one Enhancement, Edition, and Seal”，也就是“每张 ...</blockquote>
+Seal 不能直接翻译成蜡封就行了不加版本两个字吗
+
+还有这句话的正确意思应该是“每张扑克牌可以具有加强，版本和蜡封各一种”吧，强调的是不同种类附魔可以共存但是同一种不行，不把这个 one 翻译出来感觉表达的意思差很多啊
+

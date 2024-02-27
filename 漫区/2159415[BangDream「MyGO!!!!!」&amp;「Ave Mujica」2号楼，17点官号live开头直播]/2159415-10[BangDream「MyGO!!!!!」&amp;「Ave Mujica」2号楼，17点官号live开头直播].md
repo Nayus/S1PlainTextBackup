@@ -3631,3 +3631,24 @@ mygo的歌多样性真的好<img src="https://static.saraba1st.com/image/smiley/
 
 （你这 10 人还得再减俩人
 
+
+*****
+
+####  御幸一也  
+##### 13635#       发表于 2024-2-27 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64086008&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-2-27 21:13</a>
+
+更惨的不是有信泽吗
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+笑吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toki_Ai  
+##### 13636#       发表于 2024-2-27 22:11
+
+李美丽身体还是很糟糕啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/15/16a438b4ca6593192459e51d19c65de1/1709042982303.jpg" referrerpolicy="no-referrer">
+

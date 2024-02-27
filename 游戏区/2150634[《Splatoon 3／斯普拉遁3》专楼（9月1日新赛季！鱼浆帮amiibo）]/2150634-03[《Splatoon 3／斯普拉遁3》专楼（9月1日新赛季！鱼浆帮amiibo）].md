@@ -4378,3 +4378,34 @@ octo在80关的基础上，还讲述了一个有起有伏的故事，塑造了�
 不过很喜欢这种难得一见的组合。 ...</blockquote>
 部分图对部分武器来说是真的很难，8号楼守中央区域我就用滚筒输了2次了，有一次还是黑暗的
 
+
+*****
+
+####  罗克萨斯  
+##### 3434#       发表于 2024-2-27 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64086361&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-2-27 21:39</a>
+嗨呀放宽心，对于我们大部分普通玩家来说也没有垃圾武器，水平高一点拿什么武器都能乱杀。可以去dlc杀杀 ...</blockquote>
+已经删游戏了，打了几天还是没把战绩打正，心灰意冷。最后一场靠着自己都觉得离谱的大范围转视角+首弹命中+完美跟枪才勉强赢下来，赢一场至于要这么难么？最近15场才赢下两场，金币跟经验都没捞到几个，实在太负能量了，为了不让自己太沮丧，还是暂时退游吧
+
+<img src="https://img.saraba1st.com/forum/202402/27/220501oyxzsx2xmv8bvz3k.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022721315400-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (240.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 22:05 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Teiume  
+##### 3435#       发表于 2024-2-27 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64086477&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-2-27 21:49</a>
+部分图对部分武器来说是真的很难，8号楼守中央区域我就用滚筒输了2次了，有一次还是黑暗的 ...</blockquote>
+8号楼的黑暗区域...想想就痛苦。要是评选最不想见到的图和敌人大概就是8号楼和花洒鱼了吧。
+滚筒刷到过一次黑暗+全敌方墨水+跳床图+极难，还好点了小姬流全靠公主救命。
+

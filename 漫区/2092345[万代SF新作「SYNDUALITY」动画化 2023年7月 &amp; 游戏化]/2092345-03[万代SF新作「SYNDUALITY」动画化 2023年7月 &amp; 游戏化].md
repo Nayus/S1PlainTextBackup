@@ -2970,3 +2970,16 @@ noir现在这身看着太怪了.  颜色有点乱
 
 只能说大哥脸皮不够厚，换我就立刻要走歌姬了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4090#       发表于 2024-2-27 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076323&amp;ptid=2092345" target="_blank">reficul 发表于 2024-2-26 23:36</a>
+
+今天是226，动画里也是226
+
+黑&amp;#x50 ...</blockquote>
+修涅和玛哈特还挺配的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

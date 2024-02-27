@@ -2856,3 +2856,50 @@ noir现在这身看着太怪了.  颜色有点乱
 灭**纵天之圣杯毁了好几个国家吧，伊拉被灭也至少得有7成原因</blockquote>
 伊拉被灭基本全是失去理智的光打的……虽然上面这条想说的是xb2本篇
 
+
+*****
+
+####  亚瑟邓特  
+##### 4079#       发表于 2024-2-27 13:07
+
+活了活了！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 4080#       发表于 2024-2-27 13:11
+
+原来帕斯卡的声优是一城美由希，去年十月去世了，看来很早就配完音了
+
+
+*****
+
+####  cauchua2  
+##### 4081#       发表于 2024-2-27 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64080310&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-2-27 12:33</a></blockquote>
+主角机终于有肉眼可见的重大升级了！
+
+*****
+
+####  Piano-Forest  
+##### 4082#         楼主| 发表于 2024-2-27 13:14
+
+第21話「Your song」
+
+[https://youtu.be/qx23-6XMGwg](https://youtu.be/qx23-6XMGwg)
+
+イデアールとの決戦に備え、カナタはデイジーオーガ
+
+アルターのさらなる強化を試みる。
+
+一方、ノワールはシエルの献身により救われたことを
+
+いまだ受け止めきれずにいた。シエルとの想い出を辿りながらあてもなくロックタウンを彷徨うノワールは、シエルのファンだという一人の少女と出会う。
+<img src="https://p.sda1.dev/15/1b8f98984907296df1e3b852237ca0c6/71a7c129f31d7117dc5da5bc51b95a4e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4bdbe766c352a00b1395c554c6e5b189/7b28b72ca9d5e822ecee1f8883ff82d1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2500fa9ab9eacb7a5ffcf0c0cbfc6e33/f0ea36f60a378ffdd06943ff1dae6049.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/8cee130435e1c4d8ede54393dcbed126/5d2cceea8ba2a5e2d845b7466dc70db5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2ea916e1dafcabb19211eea759741532/6e6ae045a3769b087e79a472c9cbec57.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/5443b44b758c0d20ef853db386bd634f/174b52ad6f5e2c13427b129b3a88ad44.jpg" referrerpolicy="no-referrer">
+

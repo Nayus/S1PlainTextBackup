@@ -211,3 +211,24 @@ test</blockquote>
 
 牛的牛的，为啥有个等号
 
+
+*****
+
+####  往世雷书  
+##### 16332#       发表于 2024-2-27 16:42
+
+ 本帖最后由 往世雷书 于 2024-2-27 16:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64082999&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2024-2-27 16:33</a>
+牛的牛的，为啥有个等号</blockquote>
+她自己造出来的词，我也不知道为啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/27/164159f5x3fi2j5twjtb5b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240227_164118_tv.danmaku.bili_edit_1679159769105436.jpg</strong> (139.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 16:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

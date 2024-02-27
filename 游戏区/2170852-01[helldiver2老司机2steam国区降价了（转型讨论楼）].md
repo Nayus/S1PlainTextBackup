@@ -10353,3 +10353,30 @@ P2P传输是这样 再拉个哥们没准就好了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">终于到20解锁电磁炮了，拿来打坦克虫有点爽啊
 
+
+*****
+
+####  LrGsite  
+##### 1049#       发表于 2024-2-27 21:28
+
+<img src="https://img.saraba1st.com/forum/202402/27/212737pwfhqd7tw3qc790n.jpg" referrerpolicy="no-referrer">
+
+<strong>Y~$@)X~N0PE$]06D39P(A(G.jpg</strong> (229.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 21:27 上传
+
+救援这图是真肥,样本还好集中
+
+
+*****
+
+####  Benighted  
+##### 1050#       发表于 2024-2-27 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079614&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-2-27 11:29</a>
+
+野队想要过救科学家难度789真是没办法了。</blockquote>
+今天看到个yt大佬solo过九级救科学家..
+

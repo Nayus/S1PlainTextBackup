@@ -3618,3 +3618,16 @@ mygo的歌多样性真的好<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  chih12  
+##### 13634#       发表于 2024-2-27 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085900&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-27 21:07</a>
+
+新公司只有10个人，好惨啊</blockquote>
+乐，信澤収还是 canvas 社代表，目前以 canvas 社名义活动的除了信泽还有另一个。
+
+（你这 10 人还得再减俩人
+

@@ -3061,3 +3061,18 @@ rip
 —— 来自 S1Fun</blockquote>
 迪士尼的翻译模糊不清的地方太多了，等奶茶屋吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4099#       发表于 2024-2-27 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64076593&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-2-27 00:11</a>
+
+你看这楼里哪来的女主厨？全都是歌姬厨
+
+—— 来自 S1Fun</blockquote>
+我对彼方身边三个女性的好感差不多（
+
+歌姬的死旗看完回忆，感觉早年又有一种点蜡烛的命运既视感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

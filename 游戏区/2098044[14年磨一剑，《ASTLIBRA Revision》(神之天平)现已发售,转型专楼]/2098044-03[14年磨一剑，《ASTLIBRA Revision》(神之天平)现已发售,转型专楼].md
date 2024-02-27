@@ -590,3 +590,11 @@ DLC刷的难受，本来期待剧情的，没想到是纯刷，每次刷一个�
 —— 来自 samsung SM-S916U, Android 14上的 S1Next-鹅 ...</blockquote>
 1-8还是8-1？我到3-10已经开了好几个饰品槽倒是缺少蓝色以上品质的饰品装了，纯刷而已<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AkaiSuisei  
+##### 4060#       发表于 2024-2-27 15:18
+
+谁能给个DLC的天平配装，全强化了没法抄wiki的作业
+

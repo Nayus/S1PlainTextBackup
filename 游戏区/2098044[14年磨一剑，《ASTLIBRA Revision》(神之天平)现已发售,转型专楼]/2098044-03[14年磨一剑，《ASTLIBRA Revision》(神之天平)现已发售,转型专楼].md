@@ -598,3 +598,15 @@ DLC刷的难受，本来期待剧情的，没想到是纯刷，每次刷一个�
 
 谁能给个DLC的天平配装，全强化了没法抄wiki的作业
 
+
+*****
+
+####  Nihlathak  
+##### 4061#       发表于 2024-2-28 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64079645&amp;ptid=2098044" target="_blank">永远的访客 发表于 2024-2-27 11:32</a>
+1-8还是8-1？我到3-10已经开了好几个饰品槽倒是缺少蓝色以上品质的饰品装了，纯刷而已 ...</blockquote>
+看来我确实非酋，不行只能叮了
+
+—— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

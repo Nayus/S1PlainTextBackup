@@ -3819,3 +3819,13 @@ Seal 不能直接翻译成蜡封就行了不加版本两个字吗
 
 黑牌是公认的坑爹
 
+
+*****
+
+####  库德里尔  
+##### 342#       发表于 2024-2-28 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64088212&amp;ptid=2154925" target="_blank">tornadoDA 发表于 2024-2-28 00:07</a>
+终于第一次通关了，话说黄色牌组为啥只有开局多给了10块，之后每回合开始没给啊 ...</blockquote>
+翻译错误
+

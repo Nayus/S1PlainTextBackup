@@ -1619,3 +1619,38 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 相信sc可能存在的第二季<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 只要冬优子、円香、羽那一起上场，一切都会好起来的
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1657#       发表于 2024-2-28 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64097262&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-2-28 20:42</a>
+相信sc可能存在的第二季
+只要冬优子、円香、羽那一起上场，一切都会好起来的 ...</blockquote>
+做得到羽那吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  lyz1196  
+##### 1658#       发表于 2024-2-28 20:50
+
+笑死，梦回政宗君的复仇漫画完结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1659#       发表于 2024-2-28 20:51
+
+又到了最喜欢争地位环节，南梦宫老贼闹麻了
+
+*****
+
+####  acacaclove  
+##### 1660#       发表于 2024-2-28 20:52
+
+最后不都是学马的天下？
+

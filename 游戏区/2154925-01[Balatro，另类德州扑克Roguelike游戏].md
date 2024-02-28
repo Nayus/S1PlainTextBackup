@@ -4312,3 +4312,19 @@ Tip：长按R直接重开</blockquote>
 
 由于没有出现事实上的加成，也没有更多的信息量，游戏不会自动存档，但是图鉴记录上了。也是靠这个方法迅速解锁了反物质的券。
 
+
+*****
+
+####  schneehertz  
+##### 386#         楼主| 发表于 2024-2-28 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64094484&amp;ptid=2154925" target="_blank">naclken. 发表于 2024-2-28 16:10</a>
+我也觉得取高合理，但是实施起来有点小问题
+
+比如你的葫芦等级低，一对等级高
+
+你打算用葫芦里包含的三条的 ...</blockquote>
+强化牌型不可能继承基础牌型，这样强化太多了
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

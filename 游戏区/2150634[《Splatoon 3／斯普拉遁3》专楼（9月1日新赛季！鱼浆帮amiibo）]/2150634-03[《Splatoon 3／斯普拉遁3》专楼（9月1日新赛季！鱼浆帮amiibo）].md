@@ -4543,3 +4543,11 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3448#       发表于 2024-2-28 17:29
+
+新目录有2代的胜利姿势，而且这次又是把新姿势放在100级
+

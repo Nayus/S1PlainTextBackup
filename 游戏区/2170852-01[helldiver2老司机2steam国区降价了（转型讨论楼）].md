@@ -10696,3 +10696,16 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 
 碰到个带着一背包样本故意不上飞机的，前面都很正常，还帮着捡样本，撤离突然发病，不知道是不是因为看到房主是中文id。这游戏不能顺着最近游戏查到个人主页就很气，只能说虽然那点样本也不多，但给这贱畜和他的彪子妈陪葬够用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  装甲兔  
+##### 1080#       发表于 2024-2-29 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64095928&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-2-28 18:34</a>
+
+配置需求不高
+
+最低配置:</blockquote>
+啊草，显卡和内存都没问题，cpu只有i5……
+

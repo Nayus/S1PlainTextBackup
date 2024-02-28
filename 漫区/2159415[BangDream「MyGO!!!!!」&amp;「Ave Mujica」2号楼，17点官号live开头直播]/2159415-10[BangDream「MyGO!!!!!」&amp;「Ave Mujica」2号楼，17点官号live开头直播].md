@@ -4070,3 +4070,20 @@ PP是队名里的*，大概单纯地就是朵花，或者粉彩画板的颜料�
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  liu461  
+##### 13672#       发表于 2024-2-28 22:33
+
+我也是第一反应这北约图标是谁来着<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 13673#       发表于 2024-2-28 22:35
+
+<img src="http://i0.hdslb.com/bfs/new_dyn/086422e67a08d503a664ebcfef0feab71609699703.jpg" referrerpolicy="no-referrer">
+
+大家的老攻和她的夫人
+

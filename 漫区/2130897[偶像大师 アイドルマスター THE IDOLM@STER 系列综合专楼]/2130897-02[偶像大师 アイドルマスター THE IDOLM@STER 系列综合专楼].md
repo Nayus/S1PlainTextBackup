@@ -1694,3 +1694,21 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 —— 来自 Xiaomi M2012K11AC, Android 12上的 S1N ...</blockquote>
 练舞室和教室的场景感觉像是单独拿出来加强渲染了一样，和这个预告片其他部分的画面仿佛不是一个规格的。最开始女孩跑步的画面那树的建模就很糙，然后最后闪过的几个舞台画面的人物建模的手啊脚啊有一种落后于时代的手游3d画面的美（
 
+
+*****
+
+####  YetToCome  
+##### 1665#       发表于 2024-2-28 22:30
+
+看到突破1万的信息突然想起战吧之前销量的帖子，立马打开战吧，果然战得不可开交<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+真是难崩啊，灰灰和百万一个游戏入土，一个半身入土，怎么还能打成这样的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rexzhanghao  
+##### 1666#       发表于 2024-2-28 22:34
+
+我对闪耀色彩感兴趣之前就看到百灰大战了
+

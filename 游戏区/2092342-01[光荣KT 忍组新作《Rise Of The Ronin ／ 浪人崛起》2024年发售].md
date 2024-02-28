@@ -811,3 +811,24 @@ Q&amp;A
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  popchong  
+##### 744#       发表于 2024-2-28 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64089916&amp;ptid=2092342" target="_blank">格林卡罗尔 发表于 2024-2-28 09:05</a>
+
+我看演示这意思是能无缝切换武器？那还能打得挺花哨的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Ne ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">连紫电都有
+
+
+*****
+
+####  小鸟游泉  
+##### 745#       发表于 2024-2-28 09:41
+
+现在的消息和画面里有说捏人还能不能捏妹子么？仁王能捏战国最强美少女多棒啊，这作这偏向于现实风格的还行么。希望KT不要自废武功放弃自己最擅长的领域啊。
+

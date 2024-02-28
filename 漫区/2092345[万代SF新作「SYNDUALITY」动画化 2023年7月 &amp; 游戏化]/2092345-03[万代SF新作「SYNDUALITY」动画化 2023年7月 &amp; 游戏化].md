@@ -3408,3 +3408,13 @@ rip
 
 心情不好的时候 听Daydream和Your Song真的还挺打动人的<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4132#       发表于 2024-2-28 19:23
+
+下一集不会是yoursong 古贺葵版吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

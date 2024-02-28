@@ -463,3 +463,31 @@ dlsite我都嫌麻烦直接刷信用卡了，谁叫现在汇率这么友好
 
 给各位兄弟上了一课
 
+
+*****
+
+####  smdzh2  
+##### 54#       发表于 2024-2-28 19:17
+
+倒爷怎么还用代购软件的，现在成黑吃黑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  password  
+##### 55#       发表于 2024-2-28 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64095589&amp;ptid=2173464" target="_blank">rgauss 发表于 2024-2-28 17:59</a>
+现在其他家代购主要是做煤炉的代购生意
+而且大部分都直接把书籍这类给屏蔽掉了 ...</blockquote>
+直接转运啊 jpgoodbuy有好几条转运路线可以发书的
+
+*****
+
+####  rgauss  
+##### 56#       发表于 2024-2-28 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64096350&amp;ptid=2173464" target="_blank">password 发表于 2024-2-28 19:17</a>
+
+直接转运啊 jpgoodbuy有好几条转运路线可以发书的</blockquote>
+啊 我现在直接买电子版了 纸质版都是直接让人买了寄给我就是了（
+

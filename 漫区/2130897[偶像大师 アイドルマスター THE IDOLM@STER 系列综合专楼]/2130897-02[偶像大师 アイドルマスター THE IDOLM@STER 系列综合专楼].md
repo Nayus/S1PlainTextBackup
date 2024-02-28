@@ -1712,3 +1712,20 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 我对闪耀色彩感兴趣之前就看到百灰大战了
 
+
+*****
+
+####  Srchy  
+##### 1667#       发表于 2024-2-28 22:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">入不入土的也就是多了种话术，打还是要打的
+
+偶像的战争，不是杀就是被杀<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  灰尘山  
+##### 1668#       发表于 2024-2-28 22:54
+
+这也能吵起来，不如多听听876的《HAPPEACE》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

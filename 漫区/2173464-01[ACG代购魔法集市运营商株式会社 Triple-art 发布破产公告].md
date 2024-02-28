@@ -542,3 +542,13 @@ dlsite我都嫌麻烦直接刷信用卡了，谁叫现在汇率这么友好
 任你购是原来的萌购吗，没想到这么多年了还活着</blockquote>
 萌购 和 任你购 这两个名字同时在用，任你购应该是特指代购业务。以前确实是只有萌购这一个名字。
 
+
+*****
+
+####  АA  
+##### 61#       发表于 2024-2-28 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64094200&amp;ptid=2173464" target="_blank">502307501 发表于 2024-2-28 15:42</a>
+不做评价</blockquote>
+这不是知名小丑泪爷吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

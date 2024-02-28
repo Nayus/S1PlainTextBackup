@@ -4087,3 +4087,27 @@ PP是队名里的*，大概单纯地就是朵花，或者粉彩画板的颜料�
 
 大家的老攻和她的夫人
 
+
+*****
+
+####  novalli  
+##### 13674#       发表于 2024-2-28 23:07
+
+如果去掉“偶像”和“乐队”的影响，单纯从歌曲来说，MyGO后面的两首新歌感觉偶尔会有术力口的感觉。刚才又听了一下，感觉前面的歌主题比较明确，而且偏“抒情”。两首新原创有不少吐字比较快的段落，还要捏着角色音去唱，有点使不上劲的感觉（主唱太拼命了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），节奏放慢的段落感觉就好一些。
+我不懂怎么专业的评价，但两首新原唱确实不如原来的曲子吸引我，尤其动画ED，我觉得灯的声线还是和这种曲子比较搭。
+反正是2.5次元企划，赶紧想办法让爱美社长同化了羊宫然后逆输入吧。唱歌声线怎么好听怎么来，个人觉得真没必要捏角色音，唱歌和说话不一样挺正常的。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  nebulanoby  
+##### 13675#       发表于 2024-2-28 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64098685&amp;ptid=2159415" target="_blank">novalli 发表于 2024-2-28 23:07</a>
+如果去掉“偶像”和“乐队”的影响，单纯从歌曲来说，MyGO后面的两首新歌感觉偶尔会有术力口的感觉。刚才又 ...</blockquote>
+毛力:说~话～和～唱～歌～速～度～不～同～也～很～正～常，换～个～声～线～怎～么～了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

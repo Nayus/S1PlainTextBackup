@@ -439,3 +439,27 @@ jpgoodbuy，其实最好的方法还是自己转运
 
 还好5年前就没用萌购和魔法<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caupollen  
+##### 51#       发表于 2024-2-28 18:57
+
+dlsite我都嫌麻烦直接刷信用卡了，谁叫现在汇率这么友好
+
+*****
+
+####  袄_偶滴小乔  
+##### 52#       发表于 2024-2-28 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64095978&amp;ptid=2173464" target="_blank">aimbot 发表于 2024-2-28 18:41</a>
+所以说现在如果想买些谷子或者动漫bd有推荐的平台吗？能在萌购上面买吗？ ...</blockquote>
+日亚/hmv直邮算了
+
+*****
+
+####  このママでいい  
+##### 53#       发表于 2024-2-28 19:01
+
+给各位兄弟上了一课
+

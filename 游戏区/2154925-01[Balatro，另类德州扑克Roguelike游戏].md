@@ -3980,3 +3980,38 @@ ce改钱也可以减少重开次数，当然乐趣也可能降低
 
 昨天绿卡白注输了一晚上，各种烂牌，越烂越没钱，没钱改命越打越烂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Znesmoc  
+##### 355#       发表于 2024-2-28 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64090791&amp;ptid=2154925" target="_blank">a4ac7 发表于 2024-2-28 10:19</a>
+优先跳过标签是下个商店初始牌全部免费
+
+然后是为了活下去的加筹码，倍率小丑牌，和高频率牌型的 ...</blockquote>
+高频率牌型是特指对子/同花/两队吗
+单牌感觉没水花那张全都算的卡的话就很菜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+顺子好像也特别需求那个隔一个也算顺子的卡？
+这么一想同花其实也有个放宽条件的卡来着，五卡位的设计也太微妙了
+
+*****
+
+####  阿尔及利亚  
+##### 356#       发表于 2024-2-28 11:08
+
+这游戏除了同花对子单张其他牌型都太吃运气了，同花还容易吃花色buff。顺子幽默完了，凑半天分数打发乞丐一样
+
+
+*****
+
+####  Znesmoc  
+##### 357#       发表于 2024-2-28 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64090489&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-28 09:55</a>
+我个人感觉没有什么绝对优先度的，前期过渡小丑牌肯定要抓，不然会暴毙
+
+除非要控钱刷流浪汉之类的，把钱 ...</blockquote>
+谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+感觉现在对自己场攻有多少没个数，左边燃烧特效也太模糊了 容易产生误判然后就暴毙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

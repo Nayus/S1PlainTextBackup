@@ -1780,3 +1780,14 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 代孙把闪二期端了上来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ReginaldMorgan  
+##### 1675#       发表于 2024-2-29 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64098369&amp;ptid=2130897" target="_blank">YetToCome 发表于 2024-2-28 22:30</a>
+看到突破1万的信息突然想起战吧之前销量的帖子，立马打开战吧，果然战得不可开交
+真是难崩啊，灰灰 ...</blockquote>
+反正我是觉得，随着很多人都不民了之后，imas各家的共识只剩下了bn司马，同时连bn的方式都不能达成共识<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+

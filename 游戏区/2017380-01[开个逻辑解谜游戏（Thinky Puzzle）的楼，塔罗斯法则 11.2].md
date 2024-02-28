@@ -84,3 +84,13 @@ discord 上也有不少人说相同问题的而且还没人报告说有隐藏啥
 discord 上也有不少人说相同问 ...</blockquote>
 谢谢，现在好像修好了，不过我看steam讨论版上有人说遇到了没打完所有关卡却解锁了完成所有关卡成就的bug<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Limpidity  
+##### 183#       发表于 2024-2-28 16:18
+
+打完地狱之路dlc感觉疲惫了……admin最后那7关我只能想出来一半的解法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+没有开塔罗斯2的动力，而且看了下直接上神话人物立体影像的，有点……跳脱？毕竟又不是真的神话世界观
+

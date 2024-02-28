@@ -1791,3 +1791,13 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 真是难崩啊，灰灰 ...</blockquote>
 反正我是觉得，随着很多人都不民了之后，imas各家的共识只剩下了bn司马，同时连bn的方式都不能达成共识<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 1676#       发表于 2024-2-29 01:34
+
+等忽悠，円，羽娜出来的时候，一切会好起来的的<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

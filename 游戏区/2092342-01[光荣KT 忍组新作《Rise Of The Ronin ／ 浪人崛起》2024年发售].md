@@ -940,3 +940,11 @@ ps5的价格都炒到快500了，吓人。。
 
 这游戏除了干和之前那个超人64钻圈还有别的内容么……
 
+
+*****
+
+####  mayahoho  
+##### 759#       发表于 2024-2-28 22:09
+
+又看到忍者组熟悉的着火断壁废墟，感觉关卡里面又少不了废墟迷宫<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

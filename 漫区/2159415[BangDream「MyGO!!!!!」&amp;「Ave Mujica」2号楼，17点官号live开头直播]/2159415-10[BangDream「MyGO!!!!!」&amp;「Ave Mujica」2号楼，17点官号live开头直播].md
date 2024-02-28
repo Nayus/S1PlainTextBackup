@@ -3886,3 +3886,17 @@ wsd还我姐妹骨，姐妹有矛盾的人怎么可以不搞骨<img src="https:/
 
 2024-2-28 18:13 上传
 
+
+*****
+
+####  紫吹兰  
+##### 13656#         楼主| 发表于 2024-2-28 18:24
+
+ 本帖最后由 紫吹兰 于 2024-2-28 18:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64095642&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-28 18:05</a>
+
+黑色生日畫師 
+
+[https://twitter.com/bang_dream_info/status/1762779683001696631](https://twitter.com/bang_dream_info/status/1762779683001696631)</blockquote>
+9周年，第9只乐队，但是却没有实装，谁的责任
+

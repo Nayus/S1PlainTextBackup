@@ -530,3 +530,15 @@ dlsite我都嫌麻烦直接刷信用卡了，谁叫现在汇率这么友好
 破产
 跑路✓
 
+
+*****
+
+####  茴香蚪的马甲  
+##### 60#       发表于 2024-2-28 21:57
+
+ 本帖最后由 茴香蚪的马甲 于 2024-2-28 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64094955&amp;ptid=2173464" target="_blank">xuziang111 发表于 2024-2-28 16:54</a>
+
+任你购是原来的萌购吗，没想到这么多年了还活着</blockquote>
+萌购 和 任你购 这两个名字同时在用，任你购应该是特指代购业务。以前确实是只有萌购这一个名字。
+

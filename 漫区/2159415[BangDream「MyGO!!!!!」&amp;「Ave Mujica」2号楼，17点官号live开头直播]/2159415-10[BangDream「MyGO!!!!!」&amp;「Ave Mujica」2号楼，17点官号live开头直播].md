@@ -4038,3 +4038,35 @@ A是手提袋代表商店街？PP那是啥？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的不算差的吗
 
+
+*****
+
+####  Toki_Ai  
+##### 13669#       发表于 2024-2-28 21:57
+
+ppp这个单独。怕是藏到12月然后13th是吧，难绷<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  utotqe  
+##### 13670#       发表于 2024-2-28 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64097687&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-28 21:23</a>
+A是手提袋代表商店街？PP那是啥？</blockquote>
+不知道在哪看到的AG是个锁头🔒代表一直摸兜里的羁绊
+PP是队名里的*，大概单纯地就是朵花，或者粉彩画板的颜料点
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+
+*****
+
+####  novalli  
+##### 13671#       发表于 2024-2-28 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64097388&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-28 20:56</a>
+九团标志一览</blockquote>
+第一次看到MyGO的标志时我以为是北约<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

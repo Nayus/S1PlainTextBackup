@@ -30,3 +30,13 @@
 
 这个大陆正版不会有什么和谐之类的吧，有的话还是买台版了…
 
+
+*****
+
+####  kaolimadepi  
+##### 131#       发表于 2024-2-28 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64096113&amp;ptid=2079476" target="_blank">ViviR 发表于 2024-2-28 18:53</a>
+这个大陆正版不会有什么和谐之类的吧，有的话还是买台版了…</blockquote>
+谁知道呢，这六话我觉得无任何不良导向，在jump都有点格格不入了。
+

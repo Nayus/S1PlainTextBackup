@@ -4131,3 +4131,57 @@ ce改钱也可以减少重开次数，当然乐趣也可能降低
 
 这游戏玩起来得拿个计算器放旁边啊，能跟爬塔一样sl就好了
 
+
+*****
+
+####  库德里尔  
+##### 370#       发表于 2024-2-28 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64093213&amp;ptid=2154925" target="_blank">tornadoDA 发表于 2024-2-28 14:08</a>
+葫芦同花只取同花吗？</blockquote>
+五条 同花五条 同花葫芦是隐藏牌型
+只有在一局游戏里打出过这个牌型，才能开到星球牌
+所以通常比不过升级好多层之后的常规牌型<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拖鞋脚后跟  
+##### 371#       发表于 2024-2-28 14:17
+
+我昨天超胡的30张A打五条+星球牌优惠券狂升五条，最后就折在低倍率的同花五条上了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tornadoDA  
+##### 372#       发表于 2024-2-28 14:19
+
+<blockquote>库德里尔 发表于 2024-2-28 14:14
+五条 同花五条 同花葫芦是隐藏牌型
+
+只有在一局游戏里打出过这个牌型，才能开到星球牌
+
+所以通常比不过升级 ...</blockquote>
+原来还有这种设定
+
+*****
+
+####  nailuo1993  
+##### 373#       发表于 2024-2-28 14:20
+
+<blockquote>拖鞋脚后跟 发表于 2024-2-28 14:17
+我昨天超胡的30张A打五条+星球牌优惠券狂升五条，最后就折在低倍率的同花五条上了
+
+</blockquote>
+这游戏应该改成牌型自动取最高分数的
+
+
+*****
+
+####  Znesmoc  
+##### 374#       发表于 2024-2-28 14:23
+
+原来那个同色算同花都小丑对boss也起效的吗<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+一把同花起飞差点半路给他弄到暴毙
+

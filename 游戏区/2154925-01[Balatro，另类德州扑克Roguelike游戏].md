@@ -3921,3 +3921,46 @@ ce改钱也可以减少重开次数，当然乐趣也可能降低
 
 至于52张牌组的优化和弃牌技巧我是一窍不通，我有两次在完全不升级基本卡组的情况下打通盲注8了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 349#       发表于 2024-2-28 10:15
+
+这个游戏高难度就像真正的德州一样，把第一轮  ante 3 个 blind 当作 flop，如果不行，直接按 R 重开（弃牌）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稲穂信  
+##### 350#       发表于 2024-2-28 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64089626&amp;ptid=2154925" target="_blank">naclken. 发表于 2024-2-28 08:32</a>
+
+这游戏最坑的小丑卡之一就是“手牌+2 出牌次数-1"那张
+
+我拿到之后愣是一次顺子都没凑出来过，不凑顺子我要 ...</blockquote>
+直接用方格牌组吧，省了这张小丑卡位
+
+*****
+
+####  a4ac7  
+##### 351#       发表于 2024-2-28 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64090146&amp;ptid=2154925" target="_blank">Znesmoc 发表于 2024-2-28 09:27</a>
+这游戏具体思路我还是不太清楚，感觉玩的一坨
+
+商店里的决策我也不是很明白，优先小丑还是星球还是幻 ...</blockquote>
+优先跳过标签是下个商店初始牌全部免费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后是为了活下去的加筹码，倍率小丑牌，和高频率牌型的星球牌
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Bojenkins  
+##### 352#       发表于 2024-2-28 10:21
+
+只求过ante8的话，还是乖乖打同花比较稳，四张同花小丑、supernova、调花色的塔罗牌都很容易摸到，概率上也比顺子好凑，至少前期不会暴毙（见到阴间boss当我没说）
+

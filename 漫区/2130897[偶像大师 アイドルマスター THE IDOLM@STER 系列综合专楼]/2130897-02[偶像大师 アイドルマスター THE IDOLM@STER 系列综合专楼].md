@@ -1662,3 +1662,13 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">园神，启动！
 
+
+*****
+
+####  江口夕  
+##### 1662#       发表于 2024-2-28 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这渲染用力过猛导致让人完全不相信实机有这效果
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

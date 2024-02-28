@@ -278,3 +278,16 @@ test</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  thisisaspider  
+##### 16338#       发表于 2024-2-28 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64092436&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-2-28 12:33</a>
+
+昨天没看直播，单看楼里的讨论……
+
+网恋小男友通过亚马逊直接找到她住处，然后买了个沙发床留宿……这样？ ...</blockquote>
+什么断章取义<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

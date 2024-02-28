@@ -4122,3 +4122,29 @@ PP是队名里的*，大概单纯地就是朵花，或者粉彩画板的颜料�
 如果去掉“偶像”和“乐队”的影响，单纯从歌曲来说，MyGO后面的两首新歌感觉偶尔会有术力口的感觉。刚才又 ...</blockquote>
 灯唱歌的声线就是羊本音，她自己说过的，而且她自己发的个人翻唱也是这个声线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  多莉DOLLY  
+##### 13677#       发表于 2024-2-28 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64097687&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-28 21:23</a>
+
+A是手提袋代表商店街？PP那是啥？</blockquote>
+ag的是锁头，初始服上每个人都有
+
+pp的应该是花瓣
+
+*****
+
+####  6030sylar  
+##### 13678#       发表于 2024-2-28 23:53
+
+<img src="https://img.saraba1st.com/forum/202402/28/235348dqu1h6zm1h7e6hhz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>19a1fbd7688323d53ef5a01a45bf2397.jpeg</strong> (186.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 23:53 上传
+

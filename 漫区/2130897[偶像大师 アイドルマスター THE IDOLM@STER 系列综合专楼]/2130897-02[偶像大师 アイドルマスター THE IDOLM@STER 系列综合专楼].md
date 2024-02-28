@@ -1764,3 +1764,11 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  OneRoom  
+##### 1673#       发表于 2024-2-28 23:49
+
+嘴硬的样子真是好笑
+

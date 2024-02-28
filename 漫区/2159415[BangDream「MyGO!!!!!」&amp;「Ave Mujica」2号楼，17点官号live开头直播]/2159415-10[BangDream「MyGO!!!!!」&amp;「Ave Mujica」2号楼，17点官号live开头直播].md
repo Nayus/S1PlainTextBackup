@@ -3852,3 +3852,37 @@ wsd还我姐妹骨，姐妹有矛盾的人怎么可以不搞骨<img src="https:/
 
 邦多利之日独角兽依然没有任何表示，真的切这么干净吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13654#       发表于 2024-2-28 18:05
+
+黑色生日畫師<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+[https://twitter.com/bang_dream_info/status/1762779683001696631](https://twitter.com/bang_dream_info/status/1762779683001696631)
+
+<img src="https://img.saraba1st.com/forum/202402/28/180509a21arddeffaedpr2.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_バンドリ！ BanG Dream! 公式(@bang_dream_info)_20240228-100001_1762779683.jpg</strong> (266.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 18:05 上传
+
+
+*****
+
+####  御幸一也  
+##### 13655#       发表于 2024-2-28 18:13
+
+好美<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/28/181314jtxrkcv9336kldwd.png" referrerpolicy="no-referrer">
+
+<strong>3cf58e0d-24a9-41d1-9421-03d18638e295.png</strong> (94.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 18:13 上传
+

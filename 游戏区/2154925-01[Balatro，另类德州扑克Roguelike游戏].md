@@ -4350,3 +4350,19 @@ Tip：长按R直接重开</blockquote>
 
 买了ns版发现没有中文<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本身不怎么接触德州完全不知道里面术语的英文是啥意思，有点折磨了
 
+
+*****
+
+####  SorakadoAo  
+##### 389#       发表于 2024-2-28 18:12
+
+<img src="https://img.saraba1st.com/forum/202402/28/181230innztj8768tilzno.png" referrerpolicy="no-referrer">
+
+<strong>c9aae9ce4315ecc4a4eec4f5a39b9b7d.png</strong> (47.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 18:12 上传
+
+这牌好爽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

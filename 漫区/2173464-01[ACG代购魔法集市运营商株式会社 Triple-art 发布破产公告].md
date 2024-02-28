@@ -371,3 +371,22 @@ jpgoodbuy，其实最好的方法还是自己转运
 
 注册了任你购，僕ヤバイ第十卷的日亚链接直接提示不符合购物规范，真的垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山药白薯  
+##### 43#       发表于 2024-2-28 16:39
+
+想在骏河屋买黄油时候注册过哪个转运 这家一直就没觉得有啥优势除了能买大人的玩意
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  塞维利亚理发师  
+##### 44#       发表于 2024-2-28 16:41
+
+去年8月暴雷第一时间选择装死我就对这家没啥信任感了，果然苟延残喘了半年糊弄不知情顾客，跑路前再骗最后一波
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

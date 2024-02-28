@@ -635,3 +635,23 @@ DLC刷的难受，本来期待剧情的，没想到是纯刷，每次刷一个�
 
 有风精灵加速的话，就推荐用钝器。
 
+
+*****
+
+####  farland  
+##### 4064#       发表于 2024-2-28 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64082021&amp;ptid=2098044" target="_blank">AkaiSuisei 发表于 2024-2-27 15:18</a>
+
+谁能给个DLC的天平配装，全强&amp; ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202402/28/164428w277cyncef0e430p.png" referrerpolicy="no-referrer">
+
+<strong>2b6d92579332f9797f24b9123a40b0c.png</strong> (253.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 16:44 上传
+
+随便搞的，应该就差个体力回复量星号，但荒谬难度这个词条其实用处不大。
+

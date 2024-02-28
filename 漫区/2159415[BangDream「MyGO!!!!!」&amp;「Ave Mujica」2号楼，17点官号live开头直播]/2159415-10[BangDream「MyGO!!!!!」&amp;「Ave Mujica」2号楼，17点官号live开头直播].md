@@ -3744,3 +3744,27 @@ mygo的歌多样性真的好<img src="https://static.saraba1st.com/image/smiley/
 
 只能说新出来这几首评价有点争议，但好像还算不上拉跨
 
+
+*****
+
+####  紫吹兰  
+##### 13645#         楼主| 发表于 2024-2-28 10:47
+
+反田这角色天天和鼓子没日没夜的献身式交感还行，鼓子速通sumimi是吧
+
+<img src="https://img.saraba1st.com/forum/202402/28/104515ufis2z7zkffdzakf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-02-28-10-43-15-492_tv.danmaku.bili.jpg</strong> (346.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 10:45 上传
+
+<img src="https://img.saraba1st.com/forum/202402/28/104519x0fczz280s6gzffa.png" referrerpolicy="no-referrer">
+
+<strong>1709088250626.png</strong> (129.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 10:45 上传
+

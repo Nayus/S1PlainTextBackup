@@ -60,3 +60,14 @@
 
 法国人刻板印象拉满了，接受队长求婚，无所谓队长有别的女人，反权贵闹革命<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 949#       发表于 2024-2-28 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64086061&amp;ptid=2104259" target="_blank">alialex 发表于 2024-2-27 21:17</a>
+
+法国人刻板印象拉满了，接受队长求婚，无所谓队长有别的女人，反权贵闹革命 ...</blockquote>
+妮可，去圣赫勒拿shard的船准备好了。
+

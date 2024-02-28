@@ -4434,3 +4434,12 @@ Tip：长按R直接重开</blockquote>
 
 无尽模式后面9位数的要求该怎么过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玩玩而已  
+##### 396#       发表于 2024-2-29 02:11
+
+九位数乘几次就有了。
+多复制几张多彩红印玻璃钢铁牌。五张小丑牌里，一张高筹码一张高倍率剩下三张乘法牌就差不多了。
+

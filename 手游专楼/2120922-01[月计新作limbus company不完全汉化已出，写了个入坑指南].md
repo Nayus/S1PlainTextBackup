@@ -497,3 +497,16 @@ syl 之前猜会给浮
 
 是bug还是都有的？
 
+
+*****
+
+####  龙宫李奥义  
+##### 569#       发表于 2024-2-28 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64094872&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-2-28 16:46</a>
+
+我这签到怎么给了张十连三星卷的
+
+是bug还是都有的？</blockquote>
+开服一周年给的
+

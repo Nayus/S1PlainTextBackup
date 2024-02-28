@@ -10652,3 +10652,13 @@ P2P传输是这样 再拉个哥们没准就好了
 
 昨晚刚买的游戏，调了几个设置以后也不闪退了，匹配蹭野人的车解锁了难度9，很多局游戏玩刚进去野人都开始撤离了，纯纯当老板<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 1075#       发表于 2024-2-28 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64096441&amp;ptid=2170852" target="_blank">Variks 发表于 2024-2-28 20:24</a>
+昨晚刚买的游戏，调了几个设置以后也不闪退了，匹配蹭野人的车解锁了难度9，很多局游戏玩刚进去野人都开始 ...</blockquote>
+那你匹到的人还挺好的，我匹到的撤离局都是上飞机前被房主tk<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -79,3 +79,14 @@
 
 我觉得姐妹两人上半身包裹严实下半身却是高叉是在调侃法国人但是没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 951#         楼主| 发表于 2024-2-28 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64078699&amp;ptid=2104259" target="_blank">Geyorkias 发表于 2024-2-27 10:12</a>
+
+肥姑妈AN鸟的特典码送的是啥啊佬们</blockquote>
+问了一圈没人知，去胶票商店看了下疑似是一个机械猫耳饰品<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

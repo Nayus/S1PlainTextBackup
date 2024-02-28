@@ -859,3 +859,13 @@ Q&amp;A
 
 感觉幻化估计要等更新吧，仁王1好像是等了俩月
 
+
+*****
+
+####  cmnewfan  
+##### 749#       发表于 2024-2-28 11:00
+
+ps5的价格都炒到快500了，吓人。。
+
+—— 来自 vivo V2178A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -104,3 +104,18 @@ discord 上也有不少人说相同问 ...</blockquote>
 确实克制，即使不加推动原子之前 sokobond 有个可以断键的红加号的机制也没放进来，有的话设计空间还能大 ...</blockquote>
 对于我这种玩过前两作的确实感觉过于简单了，这个价格（美区15刀国区10刀）只能玩4个小时真挺亏的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  铃森冬  
+##### 185#       发表于 2024-2-28 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64094975&amp;ptid=2017380" target="_blank">莉拉厨 发表于 2024-2-28 16:57</a>
+
+对于我这种玩过前两作的确实感觉过于简单了，这个价格（美区15刀国区10刀）只能玩4个小时真挺亏的 ...</blockquote>
+想起来我 sokobond 和 cosmic express 好像都一直剩着不少关没玩来着
+
+比性价比的话这太空化学青春版不如直接去玩本作，史低好像个位数玩到爽，虽然2011年的老游戏了作为编程解谜类型的开创之作还是很值得玩的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+看了眼最近好像没打过骨折了不过 50% off 也不贵就是了
+

@@ -4015,3 +4015,16 @@ ce改钱也可以减少重开次数，当然乐趣也可能降低
 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 感觉现在对自己场攻有多少没个数，左边燃烧特效也太模糊了 容易产生误判然后就暴毙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 358#       发表于 2024-2-28 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64090146&amp;ptid=2154925" target="_blank">Znesmoc 发表于 2024-2-28 09:27</a>
+
+这游戏具体思路我还是不太清楚，感觉玩的一坨
+
+商店里的决策我也不是很明白，优先小丑还是星球还是幻 ...</blockquote>
+商店前期战力不够买过渡小丑，星球只买能打的，卡包优先幻灵和塔罗，战力够就存钱吃利息
+

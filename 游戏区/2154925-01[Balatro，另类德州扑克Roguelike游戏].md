@@ -4231,3 +4231,15 @@ Tip：长按R直接重开
 我感觉他那个牌型倍率升级&amp;#x7 ...</blockquote>
 对头，要是下方倍率可以增益上方的基础倍率就好了
 
+
+*****
+
+####  医生狼多  
+##### 380#       发表于 2024-2-28 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64093527&amp;ptid=2154925" target="_blank">11512 发表于 2024-2-28 14:38</a>
+黑注是不是不roll个商店全免费就玩不了？感觉玩到后面还是要靠运气
+
+Tip：长按R直接重开</blockquote>
+我觉得得roll到boss加钱或者免费，不然前期很可能就暴毙了
+

@@ -10583,3 +10583,27 @@ P2P传输是这样 再拉个哥们没准就好了
 筒子朝坦克虫腿打，一发破甲，之后拿枪扫就行了。或者选喷火器对着同一条腿喷，大概半罐燃料也能烧死。等20级了就用磁轨炮破甲，那时就完全不怕了。
 难5忘了，难6时不时会刷野生泰坦，最好带个飞鹰500kg/轨道激光/轨道炮专门对付这东西。磁轨枪筒子飞鹰空袭也不是不能打，但是要么伤害低要么不好命中，泰坦处理不了的话下面其他虫子也会越积越多，再碰上突发情况（比如迎面撞个巡逻队）很容易操作失误当场去世。
 
+
+*****
+
+####  smdzh2  
+##### 1070#       发表于 2024-2-28 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64092898&amp;ptid=2170852" target="_blank">狂风DKC 发表于 2024-2-28 14:31</a>
+新人又来提问了，目前队伍评论10级，刚解锁狗子，通行证第五页差不多？
+目前难度4机器人问题不大， ...</blockquote>
+筒子打坦克虫前脚，破甲后拿主武器扫射，一个弹匣直接扫死
+难度5好像虫子多了点，难度6会刷泰坦，需要20级的战略配备才好杀，实在打不过还是跑路吧
+
+
+*****
+
+####  runningch  
+##### 1071#       发表于 2024-2-28 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64091096&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-2-28 10:41</a>
+这个救援战确实不能硬刚,三个出去吸引火力一个人在建筑附近开门救人是最优的,带点轨道烟雾,建筑附近刷怪了 ...</blockquote>
+有次野队降落在远点，落地就招惹空投，我直奔救援，根本不刷怪，看见队友慢慢也往这边跑，我真想大喊：你们不要过来啊！<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

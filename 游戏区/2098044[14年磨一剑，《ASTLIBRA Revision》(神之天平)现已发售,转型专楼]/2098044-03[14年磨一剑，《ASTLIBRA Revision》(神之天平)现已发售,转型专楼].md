@@ -610,3 +610,16 @@ DLC刷的难受，本来期待剧情的，没想到是纯刷，每次刷一个�
 
 —— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  christiny  
+##### 4062#       发表于 2024-2-28 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64082021&amp;ptid=2098044" target="_blank">AkaiSuisei 发表于 2024-2-27 15:18</a>
+
+谁能给个DLC的天平配装，全强&amp; ...</blockquote>
+[https://www.bilibili.com/video/B ... f644037e705bcdb46ab](https://www.bilibili.com/video/BV1PP4y1C7DY/?spm_id_from=333.999.0.0&amp;vd_source=eb990782970f5f644037e705bcdb46ab)
+
+回复评论里有几个，可以直接抄
+

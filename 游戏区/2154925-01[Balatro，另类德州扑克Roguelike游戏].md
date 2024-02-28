@@ -4366,3 +4366,22 @@ Tip：长按R直接重开</blockquote>
 
 这牌好爽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kazepollar  
+##### 390#       发表于 2024-2-28 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64095711&amp;ptid=2154925" target="_blank">SorakadoAo 发表于 2024-2-28 18:12</a>
+
+这牌好爽</blockquote>
+我黑牌卡组通关就靠他
+
+
+*****
+
+####  huruii7  
+##### 391#       发表于 2024-2-28 18:32
+
+比想象中好玩太多了，像我这种只会玩争上游的也玩的很爽
+

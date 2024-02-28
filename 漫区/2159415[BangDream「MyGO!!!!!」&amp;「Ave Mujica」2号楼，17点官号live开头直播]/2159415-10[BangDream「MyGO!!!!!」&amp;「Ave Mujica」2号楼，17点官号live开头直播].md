@@ -3900,3 +3900,14 @@ wsd还我姐妹骨，姐妹有矛盾的人怎么可以不搞骨<img src="https:/
 [https://twitter.com/bang_dream_info/status/1762779683001696631](https://twitter.com/bang_dream_info/status/1762779683001696631)</blockquote>
 9周年，第9只乐队，但是却没有实装，谁的责任
 
+
+*****
+
+####  笋干爆炸碱  
+##### 13657#       发表于 2024-2-28 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64095714&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-2-28 18:13</a>
+
+好美</blockquote>
+太伟大了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

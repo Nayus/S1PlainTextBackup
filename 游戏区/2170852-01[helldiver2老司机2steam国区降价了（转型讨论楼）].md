@@ -10607,3 +10607,28 @@ P2P传输是这样 再拉个哥们没准就好了
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  jy000129  
+##### 1072#       发表于 2024-2-28 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64088733&amp;ptid=2170852" target="_blank">装甲兔 发表于 2024-2-28 01:17</a>
+
+问一下这游戏配置需求高吗？</blockquote>
+配置需求不高
+
+最低配置:
+
+需要 64 位处理器和操作系统
+
+操作系统: Windows 10
+
+处理器: Intel Core i7-4790K or AMD Ryzen 5 1500X
+
+内存: 8 GB RAM
+
+显卡: NVIDIA GeForce GTX 1050 Ti or AMD Radeon RX 470
+
+存储空间: 需要 100 GB 可用空间
+

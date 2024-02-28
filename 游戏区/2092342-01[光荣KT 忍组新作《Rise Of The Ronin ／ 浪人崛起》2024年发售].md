@@ -916,3 +916,11 @@ ps5的价格都炒到快500了，吓人。。
 
 手冢文轩解说视频里提到，石火是重攻击附带的效果，意思说轻重派生可能性还是有的，希望这次料要堆够
 
+
+*****
+
+####  nagitoY  
+##### 756#       发表于 2024-2-28 18:28
+
+战斗方面没什么问题，为浪人买ps5了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

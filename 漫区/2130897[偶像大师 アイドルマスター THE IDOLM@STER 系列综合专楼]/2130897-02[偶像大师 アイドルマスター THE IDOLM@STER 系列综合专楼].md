@@ -1598,3 +1598,24 @@ sc这种手游都能暴死的货色根本没有一战之力
 
 等于会买这个的柏油花了两份碟片的钱。
 
+
+*****
+
+####  cckuku  
+##### 1655#       发表于 2024-2-28 20:36
+
+老东西们该不会是抱着氪出二期的愿望在买吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">太让人感动了。
+
+
+*****
+
+####  Alicest  
+##### 1656#       发表于 2024-2-28 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64096692&amp;ptid=2130897" target="_blank">天王寺綯 发表于 2024-2-28 19:48</a>
+对比149这下后AS时代三大爱马仕动画谁是霸权不言自明
+
+sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
+相信sc可能存在的第二季<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+只要冬优子、円香、羽那一起上场，一切都会好起来的
+

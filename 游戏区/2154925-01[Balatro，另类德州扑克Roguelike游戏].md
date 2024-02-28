@@ -3886,3 +3886,15 @@ ce改钱也可以减少重开次数，当然乐趣也可能降低
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Znesmoc  
+##### 347#       发表于 2024-2-28 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏具体思路我还是不太清楚，感觉玩的一坨
+
+商店里的决策我也不是很明白，优先小丑还是星球还是幻灵？目前最好的情况就是那个多的出牌和弃牌变钱的卡组，打到盲注8的boss寄了
+
+别的卡组缺钱根本胡不到盲注8<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

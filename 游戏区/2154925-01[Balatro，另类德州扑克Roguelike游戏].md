@@ -4253,3 +4253,16 @@ Tip：长按R直接重开</blockquote>
 我觉得得roll到boss加钱或者免费，不然前期很可能就暴毙了</blockquote>
 必出镭射闪箔小丑卡/boss15块/全免费/送的超级塔罗牌包出加钱塔罗牌，同时还很吃商店第一波出的丑
 
+
+*****
+
+####  Ny  
+##### 382#       发表于 2024-2-28 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64093527&amp;ptid=2154925" target="_blank">11512 发表于 2024-2-28 14:38</a>
+
+黑注是不是不roll个商店全免费就玩不了？感觉玩到后面还是要靠运气
+
+Tip：长按R直接重开</blockquote>
+黑注开始就是要刷开局, 紫注开始你刷完美开局还不够, 后面不胡也是过不了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

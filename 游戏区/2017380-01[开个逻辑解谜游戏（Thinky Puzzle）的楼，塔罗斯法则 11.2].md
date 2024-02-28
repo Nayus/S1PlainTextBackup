@@ -94,3 +94,13 @@ discord 上也有不少人说相同问 ...</blockquote>
 
 没有开塔罗斯2的动力，而且看了下直接上神话人物立体影像的，有点……跳脱？毕竟又不是真的神话世界观
 
+
+*****
+
+####  莉拉厨  
+##### 184#       发表于 2024-2-28 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64060565&amp;ptid=2017380" target="_blank">铃森冬 发表于 2024-2-25 13:59</a>
+确实克制，即使不加推动原子之前 sokobond 有个可以断键的红加号的机制也没放进来，有的话设计空间还能大 ...</blockquote>
+对于我这种玩过前两作的确实感觉过于简单了，这个价格（美区15刀国区10刀）只能玩4个小时真挺亏的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

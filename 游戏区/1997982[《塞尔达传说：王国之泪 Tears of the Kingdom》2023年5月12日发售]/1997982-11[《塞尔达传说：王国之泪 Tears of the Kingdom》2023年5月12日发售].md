@@ -54,3 +54,61 @@
 
 想问问万代的这把大师剑现在有具体消息了吗？
 
+
+*****
+
+####  冷泉夜月  
+##### 15658#       发表于 2024-2-28 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64070262&amp;ptid=1997982" target="_blank">清浦刹那 发表于 2024-2-26 13:41</a>
+
+希卡pad感觉做的有些糙啊，定价也不便宜，有些犹豫了。
+
+想问问万代的这把大师剑现在有具体消息了吗？
+
+ ...</blockquote>
+F4F是欧美厂，做的都比较粗糙的，傻大粗的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+大师剑还没后续，再等等吧~
+
+*****
+
+####  冷泉夜月  
+##### 15659#       发表于 2024-2-28 15:36
+
+<img src="https://img.saraba1st.com/forum/202402/28/153630z5alkuzzbmymb5gb.jpg" referrerpolicy="no-referrer">
+
+<strong>呀哈哈1.jpg</strong> (160.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 15:36 上传
+
+<img src="https://img.saraba1st.com/forum/202402/28/153630bszss69ms4z2t6s6.jpg" referrerpolicy="no-referrer">
+
+<strong>呀哈哈2.jpg</strong> (177.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 15:36 上传
+
+<img src="https://img.saraba1st.com/forum/202402/28/153630a6f9f29i39o2kj4e.jpg" referrerpolicy="no-referrer">
+
+<strong>呀哈哈3.jpg</strong> (269.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 15:36 上传
+
+<img src="https://img.saraba1st.com/forum/202402/28/153630lsaama2hqtsajesq.jpg" referrerpolicy="no-referrer">
+
+<strong>呀哈哈4.jpg</strong> (245.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 15:36 上传
+
+“好想前往朋友身边啊……”
+
+（究极手
+

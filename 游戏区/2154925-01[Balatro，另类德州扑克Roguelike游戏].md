@@ -4077,3 +4077,18 @@ ce改钱也可以减少重开次数，当然乐趣也可能降低
 刷新：</blockquote>
 谢谢，血压上来了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 363#       发表于 2024-2-28 12:56
+
+在 NS Lite 上也买了一份，完美的午间摸鱼游戏
+
+*****
+
+####  tornadoDA  
+##### 364#       发表于 2024-2-28 12:57
+
+这游戏有些小丑牌意思是每回合固定的效果，但是描述是 每回合xxxx，比如每回合手牌减1，就很容易让人误解
+

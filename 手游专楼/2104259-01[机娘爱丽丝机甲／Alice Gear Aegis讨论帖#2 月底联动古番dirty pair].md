@@ -71,3 +71,11 @@
 法国人刻板印象拉满了，接受队长求婚，无所谓队长有别的女人，反权贵闹革命 ...</blockquote>
 妮可，去圣赫勒拿shard的船准备好了。
 
+
+*****
+
+####  不灭的旋律  
+##### 950#       发表于 2024-2-28 13:01
+
+我觉得姐妹两人上半身包裹严实下半身却是高叉是在调侃法国人但是没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

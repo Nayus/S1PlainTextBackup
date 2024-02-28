@@ -4266,3 +4266,37 @@ Tip：长按R直接重开</blockquote>
 Tip：长按R直接重开</blockquote>
 黑注开始就是要刷开局, 紫注开始你刷完美开局还不够, 后面不胡也是过不了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ny  
+##### 383#       发表于 2024-2-28 16:07
+
+<img src="https://img.saraba1st.com/forum/202402/28/160545d1o0gv1olg2elovq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240228160457.png</strong> (50.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 16:05 上传
+
+看到商店里在卖永恒鸡蛋 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 384#       发表于 2024-2-28 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64093321&amp;ptid=2154925" target="_blank">nailuo1993 发表于 2024-2-28 14:20</a>
+
+这游戏应该改成牌型自动取最高分数的</blockquote>
+我也觉得取高合理，但是实施起来有点小问题
+
+比如你的葫芦等级低，一对等级高
+
+你打算用葫芦里包含的三条的特殊牌赚点零钱，结果取高用一对结算，赚钱的牌没计分……
+
+关键是隐藏牌型，隐藏牌型应该继承强化等级才对。
+
+五条继承四条，皇家同花顺继承同花顺，同花葫芦继承葫芦，等等。
+

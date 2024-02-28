@@ -3380,3 +3380,15 @@ rip
 感觉彼方对歌姬应该还是有感情的，要不然他不会对向自己开枪的歌姬伸手，让歌姬回心转意帮彼方逃跑。这同时 ...</blockquote>
 还有个原因大概是因为歌姬是名气歌手，看上去比较聪慧的（心里有鬼的地方被自己隐藏了，只有米斯特看出来一些问题），而诺娃比较呆萌甚至有点傻傻的样子，容易激发其他人的保护欲望，比如艾女士对歌姬肯定更提防一些，对一脸呆萌的诺娃更容易表现表达爱（大雾）
 
+
+*****
+
+####  blood_iron  
+##### 4129#       发表于 2024-2-28 08:56
+
+刚看到19话，歌姬这就没了？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+身体还被NOIR借尸还魂算了，肉体还完全变成NOIR的样子了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+都不知说什么好了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

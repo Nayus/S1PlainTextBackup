@@ -728,3 +728,35 @@ mikorone已经在准备一个新的游戏企划，游戏直播许可已经申请
 
 本来今天计划内要播的内容更有意思，可惜了改期
 
+
+*****
+
+####  holoan  
+##### 8257#         楼主| 发表于 2024-2-28 13:12
+
+昨天在别人待机间评论区跟观众狂欢的fbk，还有一个人
+
+<img src="https://img.saraba1st.com/forum/202402/28/131101gzwiywxt06y6wwir.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202402/28/131138e3bbrklrrb1qalfr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202402/28/131224adbq8qp3qbzbe9b3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-28 13:12 上传
+

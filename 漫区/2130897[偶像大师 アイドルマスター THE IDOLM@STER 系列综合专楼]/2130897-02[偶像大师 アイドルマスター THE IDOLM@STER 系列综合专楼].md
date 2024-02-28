@@ -1729,3 +1729,20 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 这也能吵起来，不如多听听876的《HAPPEACE》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 1669#       发表于 2024-2-28 23:03
+
+两个癌症晚期的路径依赖，一看到就打起来，赢家笑看两个企划入土
+
+*****
+
+####  RhmBWT_Wu  
+##### 1670#       发表于 2024-2-28 23:05
+
+不都是要给小妹爆金币的老登吗，有空内战不如骂万代<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

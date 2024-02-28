@@ -4063,3 +4063,17 @@ ce改钱也可以减少重开次数，当然乐趣也可能降低
 
 三条+100筹码/四条+150筹码/顺子+100筹码
 
+
+*****
+
+####  孔祈  
+##### 362#       发表于 2024-2-28 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64092004&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-2-28 11:53</a>
+你对商店：
+
+只要来一个乘法牌我都能翻，真的。我都苟到第七轮了，总该来一个了吧！
+
+刷新：</blockquote>
+谢谢，血压上来了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+

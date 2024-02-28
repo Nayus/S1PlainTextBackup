@@ -258,3 +258,13 @@ test</blockquote>
 
 最近男友话题太多gachi已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋游刃  
+##### 16336#       发表于 2024-2-28 12:33
+
+昨天没看直播，单看楼里的讨论……
+
+网恋小男友通过亚马逊直接找到她住处，然后买了个沙发床留宿……这样？
+

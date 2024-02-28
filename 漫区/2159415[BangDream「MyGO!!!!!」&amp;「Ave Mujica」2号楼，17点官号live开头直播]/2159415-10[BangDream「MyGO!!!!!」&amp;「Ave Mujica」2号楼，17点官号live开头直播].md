@@ -4023,3 +4023,18 @@ A是手提袋代表商店街？PP那是啥？
 
 我说怎么看半天看不出来信泽画的是谁，原来是管人团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tiro_finale  
+##### 13667#       发表于 2024-2-28 21:46
+
+看了下管人团的频道，这成绩有点微妙，不是特别差也谈不上好
+
+*****
+
+####  Toki_Ai  
+##### 13668#       发表于 2024-2-28 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的不算差的吗
+

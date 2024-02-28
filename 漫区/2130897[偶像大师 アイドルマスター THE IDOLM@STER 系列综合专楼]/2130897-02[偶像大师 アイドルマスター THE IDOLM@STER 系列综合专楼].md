@@ -1672,3 +1672,25 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  冰寒之月  
+##### 1663#       发表于 2024-2-28 21:48
+
+现在压力给到闪友了
+
+反正我是不准备买动画bd的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViviR  
+##### 1664#       发表于 2024-2-28 21:51
+
+<blockquote>江口夕 发表于 2024-2-28 21:32
+这渲染用力过猛导致让人完全不相信实机有这效果
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1N ...</blockquote>
+练舞室和教室的场景感觉像是单独拿出来加强渲染了一样，和这个预告片其他部分的画面仿佛不是一个规格的。最开始女孩跑步的画面那树的建模就很糙，然后最后闪过的几个舞台画面的人物建模的手啊脚啊有一种落后于时代的手游3d画面的美（
+

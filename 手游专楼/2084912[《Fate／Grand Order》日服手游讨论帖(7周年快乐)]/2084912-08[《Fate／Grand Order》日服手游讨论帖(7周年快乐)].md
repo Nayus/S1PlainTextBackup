@@ -416,3 +416,16 @@ choco原设的欧若拉好色
 
 <img src="https://img.saraba1st.com/forum/202402/28/213553i9j00a29tpqd0afz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11437#       发表于 2024-2-28 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64095483&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-2-28 17:46</a>
+
+这么赶吗？那白情怎么办？</blockquote>
+简易剧情+无周回+出某个复刻男五星的灵衣，之前那么搞过挺多次了
+
+反正CBC本体和白情是分开弄的
+

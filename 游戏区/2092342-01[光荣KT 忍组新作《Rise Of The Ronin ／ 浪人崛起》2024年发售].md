@@ -924,3 +924,11 @@ ps5的价格都炒到快500了，吓人。。
 
 战斗方面没什么问题，为浪人买ps5了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fallout  
+##### 757#       发表于 2024-2-28 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">能找当玩侍道的快乐吗
+

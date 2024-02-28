@@ -268,3 +268,13 @@ test</blockquote>
 
 网恋小男友通过亚马逊直接找到她住处，然后买了个沙发床留宿……这样？
 
+
+*****
+
+####  往世雷书  
+##### 16337#       发表于 2024-2-28 13:56
+
+男友可以睡一个床<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

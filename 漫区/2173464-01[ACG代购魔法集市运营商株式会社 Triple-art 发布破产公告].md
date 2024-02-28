@@ -398,3 +398,21 @@ jpgoodbuy，其实最好的方法还是自己转运
 
 任你购是原来的萌购吗，没想到这么多年了还活着
 
+
+*****
+
+####  rgauss  
+##### 46#       发表于 2024-2-28 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64094200&amp;ptid=2173464" target="_blank">502307501 发表于 2024-2-28 15:42</a>
+不做评价</blockquote>
+这人倒勾 只能说好似
+
+*****
+
+####  rgauss  
+##### 47#       发表于 2024-2-28 17:59
+
+现在其他家代购主要是做煤炉的代购生意
+而且大部分都直接把书籍这类给屏蔽掉了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

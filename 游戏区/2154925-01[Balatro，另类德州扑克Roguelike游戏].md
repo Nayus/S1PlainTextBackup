@@ -4328,3 +4328,25 @@ Tip：长按R直接重开</blockquote>
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  稲穂信  
+##### 387#       发表于 2024-2-28 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64094484&amp;ptid=2154925" target="_blank">naclken. 发表于 2024-2-28 16:10</a>
+
+我也觉得取高合理，但是实施起来有点小问题
+
+比如你的葫芦等级低，一对等级高
+
+你打算用葫芦里包含的三条的 ...</blockquote>
+包含应该是不管结算方式的，葫芦、四条和五条也包含三条
+
+*****
+
+####  leafS  
+##### 388#       发表于 2024-2-28 17:39
+
+买了ns版发现没有中文<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本身不怎么接触德州完全不知道里面术语的英文是啥意思，有点折磨了
+

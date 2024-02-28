@@ -71,3 +71,16 @@ sokobond express 3.5h 过了这么多关，感觉如果剩下关没有特别卡�
 
 discord 上也有不少人说相同问题的而且还没人报告说有隐藏啥的总之多半就是 bug
 
+
+*****
+
+####  BRAVADO  
+##### 182#       发表于 2024-2-28 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64064740&amp;ptid=2017380" target="_blank">铃森冬 发表于 2024-2-25 23:17</a>
+
+我也没跳成就以及我看最近一次更新日志里说是修了这个 bug 也不知修没修好
+
+discord 上也有不少人说相同问 ...</blockquote>
+谢谢，现在好像修好了，不过我看steam讨论版上有人说遇到了没打完所有关卡却解锁了完成所有关卡成就的bug<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -4243,3 +4243,13 @@ Tip：长按R直接重开
 Tip：长按R直接重开</blockquote>
 我觉得得roll到boss加钱或者免费，不然前期很可能就暴毙了
 
+
+*****
+
+####  萌萌地镜头  
+##### 381#       发表于 2024-2-28 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64093631&amp;ptid=2154925" target="_blank">医生狼多 发表于 2024-2-28 14:47</a>
+我觉得得roll到boss加钱或者免费，不然前期很可能就暴毙了</blockquote>
+必出镭射闪箔小丑卡/boss15块/全免费/送的超级塔罗牌包出加钱塔罗牌，同时还很吃商店第一波出的丑
+

@@ -801,3 +801,13 @@ Q&amp;A
 十种武器，太刀、枪、薙刀、双刀、大太刀、大剑、牛尾刀、火枪、西洋剑再加上一个空手（手甲？），三个架 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">是么，我看今天PV就介绍3个我还以为就只有3个呢
 
+
+*****
+
+####  格林卡罗尔  
+##### 743#       发表于 2024-2-28 09:05
+
+我看演示这意思是能无缝切换武器？那还能打得挺花哨的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

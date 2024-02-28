@@ -3872,3 +3872,17 @@ Seal 不能直接翻译成蜡封就行了不加版本两个字吗
 ce改钱也可以减少重开次数，当然乐趣也可能降低
 打完第一局后进商店买卖两次，使用双浮点搜索精确数值即可
 
+
+*****
+
+####  a4ac7  
+##### 346#       发表于 2024-2-28 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64089626&amp;ptid=2154925" target="_blank">naclken. 发表于 2024-2-28 08:32</a>
+这游戏最坑的小丑卡之一就是“手牌+2 出牌次数-1"那张
+
+我拿到之后愣是一次顺子都没凑出来过，不凑顺子我要 ...</blockquote>
+打顺子最强是那张隔牌的2468 10也是顺子，不过一拿到发牌员就给我发12347这种牌了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

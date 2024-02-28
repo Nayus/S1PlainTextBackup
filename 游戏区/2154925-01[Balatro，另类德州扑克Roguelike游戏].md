@@ -3898,3 +3898,26 @@ ce改钱也可以减少重开次数，当然乐趣也可能降低
 
 别的卡组缺钱根本胡不到盲注8<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 348#       发表于 2024-2-28 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64090146&amp;ptid=2154925" target="_blank">Znesmoc 发表于 2024-2-28 09:27</a>
+
+这游戏具体思路我还是不太清楚，感觉玩的一坨
+
+商店里的决策我也不是很明白，优先小丑还是星球还是幻 ...</blockquote>
+我个人感觉没有什么绝对优先度的，前期过渡小丑牌肯定要抓，不然会暴毙
+
+除非要控钱刷流浪汉之类的，把钱控在25线可以稳定吃（$5+出牌数）的利息
+
+然后感觉星球前期的抓位比较一般，有天文台的优惠券会好很多，方便围绕着几种牌型培养和加成
+
+幻灵我玩不来
+
+再然后就是见多了会记住的：白卡就很不错的泛用好牌、具有成长性的卡牌，能重复触发或者刷取资源的通常都是好牌，按需拿取就好
+
+至于52张牌组的优化和弃牌技巧我是一窍不通，我有两次在完全不升级基本卡组的情况下打通盲注8了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

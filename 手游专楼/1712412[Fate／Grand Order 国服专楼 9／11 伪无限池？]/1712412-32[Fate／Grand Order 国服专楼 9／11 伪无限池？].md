@@ -14,3 +14,11 @@
 
 咸鱼太久了，2.7的灵脉石今天到期，昨天推了下才到13章，下次有灵脉石会是什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 46197#       发表于 2024-2-28 23:35
+
+抽空把进阶关卡清了一下，搞那么难有必要吗?
+

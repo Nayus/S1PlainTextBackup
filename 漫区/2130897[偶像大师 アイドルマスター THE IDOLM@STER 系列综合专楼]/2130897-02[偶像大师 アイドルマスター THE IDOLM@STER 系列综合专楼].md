@@ -1746,3 +1746,21 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  何处分可  
+##### 1671#       发表于 2024-2-28 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">柏油这么能爆米，代孙能不能把二期端出来
+
+
+*****
+
+####  希望之异热同心  
+##### 1672#       发表于 2024-2-28 23:22
+
+想什么二期呢，柏油爆的米都拿去做中专生偶像啦<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

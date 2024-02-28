@@ -3418,3 +3418,16 @@ rip
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  charlespfan  
+##### 4133#       发表于 2024-2-28 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64096422&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-2-28 19:23</a>
+
+下一集不会是yoursong 古贺葵版吧
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+非常有可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

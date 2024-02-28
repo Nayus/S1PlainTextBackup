@@ -67,3 +67,13 @@ TMD连年被蒙古踩头就算了，还得指望着蒙古进传奇组让亚太�
 
 蒙古是正经一线尾二线头部队伍  他们随便拿贴纸的
 
+
+*****
+
+####  ork  
+##### 4018#       发表于 2024-2-28 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64096084&amp;ptid=1857369" target="_blank">cwlo 发表于 2024-2-28 18:51</a>
+牛啊，不过这么一看蒙古也太强了吧</blockquote>
+lvg进major都跟蒙古二队熬灰狗老头有关系
+

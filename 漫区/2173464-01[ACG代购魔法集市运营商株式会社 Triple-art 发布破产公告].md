@@ -552,3 +552,17 @@ dlsite我都嫌麻烦直接刷信用卡了，谁叫现在汇率这么友好
 不做评价</blockquote>
 这不是知名小丑泪爷吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  btnooni  
+##### 62#       发表于 2024-2-29 07:41
+
+ 本帖最后由 btnooni 于 2024-2-29 07:43 编辑 
+
+所以jpgoodbuy和tenso相比起来有啥优劣？
+
+本子mandarake有的话就直接直邮了。不过几家二手店都有不同程度的偏科，有时候别家很常见的到mandarake这儿就连个影子都没。
+
+booth上有不少相中的东西，但邮费一家一家算真的伤，有仓库还是刚需
+

@@ -6,3 +6,11 @@
 
 回去牛津住了，还得是双烟带妹好刷
 
+
+*****
+
+####  失落之翼  
+##### 46196#       发表于 2024-2-28 16:31
+
+咸鱼太久了，2.7的灵脉石今天到期，昨天推了下才到13章，下次有灵脉石会是什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

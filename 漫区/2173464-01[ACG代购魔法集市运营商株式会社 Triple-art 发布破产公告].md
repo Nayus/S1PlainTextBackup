@@ -363,3 +363,11 @@ jpgoodbuy，其实最好的方法还是自己转运
 
 去年就出事了,不过已经很久没买实体了只在玛莎上买dmm点数,倒了以后发现用paypal是能充值的就没用过了.
 
+
+*****
+
+####  moekyo  
+##### 42#       发表于 2024-2-28 16:28
+
+注册了任你购，僕ヤバイ第十卷的日亚链接直接提示不符合购物规范，真的垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

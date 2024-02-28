@@ -10537,3 +10537,15 @@ P2P传输是这样 再拉个哥们没准就好了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，空中单位，是嫌弃现在4个槽火力太多吗
 
+
+*****
+
+####  狂风DKC  
+##### 1066#       发表于 2024-2-28 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">新人又来提问了，目前队伍评论10级，刚解锁狗子，通行证第五页差不多？
+目前难度4机器人问题不大，虫子那里被强袭虫撞得一脸包，筒子一发才能破甲，两发打歪点还死不了，经常一个强袭虫就得费掉1-2分钟和一半的弹药。虽然虫子难度4也过了但最后卡着点撤离，生生打出电影级别场景<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+求问对类似重甲单位怎么打比较好，难度5 6比起4主要有哪些注意点？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

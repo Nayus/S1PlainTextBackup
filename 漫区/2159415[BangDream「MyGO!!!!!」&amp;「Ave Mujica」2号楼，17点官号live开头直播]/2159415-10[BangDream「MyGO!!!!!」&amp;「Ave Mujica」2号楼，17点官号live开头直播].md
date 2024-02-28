@@ -4156,3 +4156,15 @@ pp的应该是花瓣
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一次看这么无聊的周年特番，不是很适应
 
+
+*****
+
+####  novalli  
+##### 13680#       发表于 2024-2-29 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64098992&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-28 23:41</a>
+灯唱歌的声线就是羊本音，她自己说过的，而且她自己发的个人翻唱也是这个声线 ...</blockquote>
+啊这。。。但还是有种别扭的感觉，大概纯个人感受了，可能是受其他节目的印象影响了吧。话说羊宫似乎也不算是歌手出道，唱的没那么专业也无所谓啦，毕竟也只是没之前的那么好的感觉罢了，算不上难听。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

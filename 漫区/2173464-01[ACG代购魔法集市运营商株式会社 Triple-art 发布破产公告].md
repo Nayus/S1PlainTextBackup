@@ -789,3 +789,18 @@ jpgoodbuy手续费便宜但是免费仓储期就30天，发货比较快的会选
 泪爷好死喵</blockquote>
 什么时候泪爷能表演空中飞人啊
 
+
+*****
+
+####  好much橘  
+##### 84#       发表于 2024-2-29 21:26
+
+还有1500的余额，就当陪葬了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skyline_R  
+##### 85#       发表于 2024-2-29 21:26
+
+只用过他家的拼团转运，现在还有什么摊运费的方法吗
+

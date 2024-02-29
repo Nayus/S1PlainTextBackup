@@ -4621,3 +4621,61 @@ amita都和政委一个事务所了，以后肯定有得卖，amita还是喜欢�
 
 这么一说，外社主唱全歇了
 
+
+*****
+
+####  NODY  
+##### 13723#       发表于 2024-2-29 21:24
+
+看刚刚放出的卡面立希周年活动好像没戏份的样子，为什么要让鼓上，李世林去不是更好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13724#       发表于 2024-2-29 21:27
+
+全勤i83
+
+<img src="https://img.saraba1st.com/forum/202402/29/212720x9m8khwa5tya95h8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240229212545.png</strong> (135.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 21:27 上传
+
+*****
+
+####  Alicest  
+##### 13725#       发表于 2024-2-29 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64108828&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-29 21:24</a>
+
+看刚刚放出的卡面立希周年活动好像没戏份的样子，为什么要让鼓上，李世林去不是更好吗 ...</blockquote>
+因为是情商最高的
+
+*****
+
+####  多莉DOLLY  
+##### 13726#       发表于 2024-2-29 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64108794&amp;ptid=2159415" target="_blank">NODY 发表于 2024-2-29 21:21</a>
+
+武士道现在的周年连全主唱都找不齐了吗</blockquote>
+周年也就三周年那一次找齐了，其他就没齐过，好像线下活动也没齐过(有一次活动能齐的，结果好像是aiba阳了)
+
+
+*****
+
+####  DarthAka  
+##### 13727#       发表于 2024-2-29 21:30
+
+林小姐去至少不会出事故
+
+*****
+
+####  基神的强袭自由  
+##### 13728#       发表于 2024-2-29 21:32
+
+老一辈艺术家的沉稳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

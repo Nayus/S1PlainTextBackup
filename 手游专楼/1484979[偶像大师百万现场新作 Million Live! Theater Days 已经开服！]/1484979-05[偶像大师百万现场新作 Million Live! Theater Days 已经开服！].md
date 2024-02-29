@@ -31,3 +31,14 @@
 
 90抽了，想搏个杏奈还是没搏到，连彩都没一个，老老实实等超得吧
 
+
+*****
+
+####  花开安菲路  
+##### 7279#       发表于 2024-2-29 21:28
+
+ 本帖最后由 花开安菲路 于 2024-2-29 21:29 编辑 
+
+把矿挖干净，终于出了1张ssr，是最爱的杏奈！！！<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+昴哥哥的就没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+

@@ -687,3 +687,13 @@ Pro出来还是看独占阵容吧，目前这阵容一年下来ps5甚至开不�
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  CyborgIP  
+##### 82#       发表于 2024-2-29 21:30
+
+之前看到有任任说泥潭gk都在卧底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果索索专楼今天才有
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

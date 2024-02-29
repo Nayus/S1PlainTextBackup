@@ -4935,3 +4935,36 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 没自信了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  苍蓝之枪  
+##### 3484#       发表于 2024-2-29 23:26
+
+队友能K就让他们去K
+
+尤其是上次破船的时候，感觉自己想去左下码头出差就是不自量力，大概率回不来，
+
+老老实实在框附近搬蛋也是有用的，你能搬够，K头怪能杀完，这个车队就是稳固的
+
+不过为什么生筋子是最后一张图，上次神配置都没打满?
+
+破船搞定之后反而最后一张是鲑坝了，而且是最高分980的终极遗憾
+
+
+*****
+
+####  Junakr  
+##### 3485#       发表于 2024-2-29 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109889&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2024-2-29 23:26</a>
+
+队友能K就让他们去K
+
+尤其是上次破船的时候，感觉自己想去左下码头出差就是不自量力，大概率回不来，
+
+老老实 ...</blockquote>
+是想康最后一张图斗技场，提前在生筋子高危险度练下手。
+
+因为我只康过生筋子，其它图因为各种原因四百都没打过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

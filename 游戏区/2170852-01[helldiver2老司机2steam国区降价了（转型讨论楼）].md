@@ -10746,3 +10746,25 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 碰到个带着一背包样本故意不上飞机的，前面都很正常，还帮着捡样本，撤离突然发病，不知道是不是因为看到房 ...</blockquote>
 别人没上船的话就一枪崩了捡了样本走
 
+
+*****
+
+####  flak37  
+##### 1085#       发表于 2024-2-29 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085249&amp;ptid=2170852" target="_blank">YY骑士 发表于 2024-2-27 20:07</a>
+
+野队我是蛋盾+榴弹+500kg+轨道炮，装备手雷轻甲，主武器用喷子，单跑一路清巢顺手做任务啥的。
+
+—— 来自  ...</blockquote>
+500kg感觉杀伤范围太小了，我换成集束炸弹清中轻甲
+
+*****
+
+####  smdzh2  
+##### 1086#       发表于 2024-2-29 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64102055&amp;ptid=2170852" target="_blank">flak37 发表于 2024-2-29 11:56</a>
+500kg感觉杀伤范围太小了，我换成集束炸弹清中轻甲</blockquote>
+500kg主要用来对付泰坦，有磁轨炮或者轨道武器可以带别的
+

@@ -4691,3 +4691,23 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 一看大厅显示又变成4月10日之前不能改祭典地区了，记得上次祭典前看的是3月4日，到底什么时候才能给我改？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 3463#       发表于 2024-2-29 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106180&amp;ptid=2150634" target="_blank">oi99o 发表于 2024-2-29 17:04</a>
+一看大厅显示又变成4月10日之前不能改祭典地区了，记得上次祭典前看的是3月4日，到底什么时候才能给我改？[ ...</blockquote>
+祭典期间不投票这个时间就不会刷新
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3464#       发表于 2024-2-29 17:14
+
+好无聊的主题，说起来3代好像也没有联动祭典
+

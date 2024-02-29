@@ -473,3 +473,30 @@ kotaku的编辑说这回裁员工作室关门优先级最高的就是MediaMolecu
 借楼问一下portal值得买吗？主要玩仁王，7rb还有后面浪人崛起这些动作游戏</blockquote>
 比较简单的鉴别方法就是自己用手机或者平板用ps remote play或者其它第三方串流软件体验一下，第三方软件延迟和画质基本上和portal并没有多大区别，portal最大的优势就是一体化第一方手柄和屏幕比手机大一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  12481632  
+##### 58#       发表于 2024-2-29 17:09
+
+到底是5pro还是直接出6呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无意义小号  
+##### 59#       发表于 2024-2-29 17:14
+
+ 本帖最后由 无意义小号 于 2024-2-29 17:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106159&amp;ptid=2173605" target="_blank">mortonno2 发表于 2024-2-29 17:02</a>
+
+借楼问一下portal值得买吗？主要玩仁王，7rb还有后面浪人崛起这些动作游戏</blockquote>
+我觉得挺爽的，主要是屏幕大，然后一体吧，躺床上想转身就转身。延迟在可接受范围内吧。主要网络要设置设置，不然甚至连激活都激活不了。比如我PS5一开始是连wifi的，然后串流怎么串怎么卡，后来连了网线就流畅了。
+
+*****
+
+####  霖岚_  
+##### 60#       发表于 2024-2-29 17:15
+
+今年就预购了个浪人跟星刃，如果今年没啥新消息估计就这俩跟二档捡漏几个老游戏随便玩玩过这一年了
+

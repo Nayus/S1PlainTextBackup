@@ -1871,3 +1871,11 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 名片软件咋也要死了
 
+
+*****
+
+####  Srchy  
+##### 1685#       发表于 2024-2-29 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">以后都用学生证了谁还用名片
+

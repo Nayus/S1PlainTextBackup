@@ -518,3 +518,53 @@ syl 之前猜会给浮
 
 6协良师傅的肉体也太性感了吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 571#       发表于 2024-2-29 18:28
+
+<img src="https://img.saraba1st.com/forum/202402/29/182535jjih39jhjf9996mm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240229_182325.jpg</strong> (302.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202402/29/182535yaan66i224ueufu6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240229_182336.jpg</strong> (161.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202402/29/182536grjr7t5fg56sg62z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240229_182357.jpg</strong> (208.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202402/29/182536foquz7lcu62c4ccc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240229_182414.jpg</strong> (193.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202402/29/182537z07wnnauon7v9n47.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240229_182429.jpg</strong> (226.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 18:25 上传
+
+拥有把红色技能作为必杀技的武术圣徒，我们的烧伤队正在蒸蒸日上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+（话说常驻六协越出越多，主线登场的几率也是越来越小吧...下个瓦夜联动烧伤角色顶多是天将拂晓萨尔瓦多那种级别吧...）
+

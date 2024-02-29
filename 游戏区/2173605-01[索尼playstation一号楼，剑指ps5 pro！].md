@@ -570,3 +570,13 @@ pulse elite用了几天，感觉还可以，就是蓝牙连pc貌似会偶尔触�
 
 直连PS5的话很丝滑
 
+
+*****
+
+####  csolfans  
+##### 69#       发表于 2024-2-29 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，索专楼
+
+按舅舅说的话PS5Pro已经有流片了，就是突然间都集体闭嘴了
+

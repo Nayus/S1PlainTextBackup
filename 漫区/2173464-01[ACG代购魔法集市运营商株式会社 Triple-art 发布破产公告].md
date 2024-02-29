@@ -725,3 +725,20 @@ jpg现在挖煤不要手续费，转运合箱6个内不用手续费，缺点是�
 tenso主要就是贵啊 转运和代购都贵 发送没有自有线路</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧看来是该换个试试了。。。。说来最近一次选的DHL结果有个萌妹打来电话让我上传商品封面报关，瞬间社死
 
+
+*****
+
+####  老贝  
+##### 78#       发表于 2024-2-29 18:24
+
+我现在一般就用jpgoodbuy和任你购。
+jpgoodbuy手续费便宜但是免费仓储期就30天，发货比较快的会选这个。
+任你购手续费贵，免费仓储期90天，就用来买一些发货慢的。比如狗屎垃圾屋，发个货慢的能有半个月。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longzai  
+##### 79#       发表于 2024-2-29 18:28
+
+我感觉魔法集市挺贵的，怎么还会有资金问题
+

@@ -4207,3 +4207,11 @@ pp的应该是花瓣
 不好说，但我已经降低期望了</blockquote>
 今天再没什么东西失望情绪该爆发了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 13685#       发表于 2024-2-29 09:40
+
+看上面说的去看了眼新活，太搞了，禁了音乐祭学生会士气下降导致马上要到的全国统考发挥不好，结果理事长说为了风气好学生成绩下降也无所谓，我寻思你们这是个学校吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

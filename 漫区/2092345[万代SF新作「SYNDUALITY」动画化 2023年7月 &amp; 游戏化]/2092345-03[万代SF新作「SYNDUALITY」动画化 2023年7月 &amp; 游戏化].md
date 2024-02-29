@@ -3468,3 +3468,16 @@ rip
 
 只有雪儿显示的是 ciel identification code -- 
 
+
+*****
+
+####  aptx8285144  
+##### 4137#       发表于 2024-2-29 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109682&amp;ptid=2092345" target="_blank">zzy516232108 发表于 2024-2-29 23:02</a>
+
+话说歌姬是0式magus算是吃书吧？
+
+第一季最后不管是诺瓦露还是米斯提，最后加载界面都会显示noir/mys ...</blockquote>
+其实我感觉可能是因为要做间谍的关系，歌姬的有些信息是被隐藏或过滤了，比如她的主人是威斯但自称自己无主而其他人看不出来这点
+

@@ -825,3 +825,34 @@ https://bbs.saraba1st.com/2b/thread-672040-1-1.html
 虽然的确很迷惑，明明是御三家，但是的确之前泥潭并没有出现索尼的专楼 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">泥潭每个人都流着索尼的血，虽然没有专楼但是无处不在
 
+
+*****
+
+####  ultraseven  
+##### 97#       发表于 2024-2-29 23:08
+
+索尼专楼却一点索尼消息也没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ultraseven  
+##### 98#       发表于 2024-2-29 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109028&amp;ptid=2173605" target="_blank">贝恩德塔 发表于 2024-2-29 21:48</a>
+
+虽然的确很迷惑，明明是御三家，但是的确之前泥潭并没有出现索尼的专楼 ...</blockquote>
+之前一直只有任楼吧。软楼也是去年收购案专楼演变来的
+
+
+*****
+
+####  ycy8332589  
+##### 99#       发表于 2024-2-29 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64105383&amp;ptid=2173605" target="_blank">KevinGraham 发表于 2024-2-29 15:49</a>
+
+怎么还有这个楼
+
+ps5pro的rumor里比较感兴趣的就是索dlss了，不知道能做到啥水平，硬件本身没啥意思 ...</blockquote>
+大概率就是amd那个fsr3.0
+

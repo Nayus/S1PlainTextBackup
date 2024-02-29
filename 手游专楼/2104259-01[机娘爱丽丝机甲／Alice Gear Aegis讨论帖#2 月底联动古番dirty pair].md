@@ -118,3 +118,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">今天到货了，想了想我游戏是实在玩不下去了，内容就是下面这些，有没有漏油想要的直接送了，只要是游戏内自用别倒卖就行。
 
+
+*****
+
+####  冰风血羽  
+##### 954#       发表于 2024-2-29 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106925&amp;ptid=2104259" target="_blank">Geyorkias 发表于 2024-2-29 18:13</a>
+今天到货了，想了想我游戏是实在玩不下去了，内容就是下面这些，有没有漏油想要的直接送了，只要 ...</blockquote>
+不知道还在不在不过我先求一个<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

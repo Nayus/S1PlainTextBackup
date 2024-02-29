@@ -4901,3 +4901,37 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 第一期希望是至少打个400吧
 
+
+*****
+
+####  罗克萨斯  
+##### 3481#       发表于 2024-2-29 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109501&amp;ptid=2150634" target="_blank">Pumpkin_ccc 发表于 2024-2-29 22:43</a>
+相信我直接重买一个或者自行拆开清理，我现在只想把拿着XB2手柄打喷和怪猎的自己掐死
+
+顺便我看了你 ...</blockquote>
+我等贴牌鹦鹉螺SP减到200以内再回坑吧，坐等研究所良心发现，先玩点别的去了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Teiume  
+##### 3482#       发表于 2024-2-29 23:11
+
+虽然也很希望8号乌贼灵魂是伏笔（这样也能解释为什么坐电车上醒来就变成8号了）,但考虑到之前祭典章鱼眼圈bug和宣传pv里发型bug<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">...感觉希望渺茫...
+查了一下卡乐比没引进コンソメ味道，很好奇这个清汤味啊。
+
+
+*****
+
+####  Junakr  
+##### 3483#       发表于 2024-2-29 23:12
+
+想康最后一张图，至少先跟着大部队打到六百。
+
+打了会这期工练手，DPS 也太低了吧……在七百分折磨，每次结束退出去一看我数据都是最拉的那个（属于在达人四会被我嘲笑的那种）。
+
+没自信了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

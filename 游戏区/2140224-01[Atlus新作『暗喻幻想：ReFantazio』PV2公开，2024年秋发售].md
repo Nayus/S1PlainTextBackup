@@ -2736,3 +2736,14 @@ https://www.xbox.com ...</blockquote>
 Steam页面：
 [https://store.steampowered.com/app/2679460/ReFantazio/](https://store.steampowered.com/app/2679460/ReFantazio/)
 
+
+*****
+
+####  eaglu  
+##### 165#       发表于 2024-2-29 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104095&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-2-29 13:55</a>
+
+据说男主台词有三百页（还是三大本来着）哦</blockquote>
+三百页应该不会都有配音吧，不然我真得关语音玩了
+

@@ -386,3 +386,29 @@ kotaku的编辑说这回裁员工作室关门优先级最高的就是MediaMolecu
 
 不知道sie对失落之魂会怎么搞，希望干点人事吧
 
+
+*****
+
+####  yuyuagain  
+##### 48#       发表于 2024-2-29 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">我也来问一下，没玩过前作能直接玩蜘蛛侠2吗
+
+*****
+
+####  布拉德莱恩  
+##### 49#       发表于 2024-2-29 16:50
+
+我不关心ps5 pro，我只关心传闻中的第三代PS掌机，不过就算真要出也是PS6发售后了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  banjia0815  
+##### 50#       发表于 2024-2-29 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106032&amp;ptid=2173605" target="_blank">yuyuagain 发表于 2024-2-29 16:49</a>
+
+我也来问一下，没玩过前作能直接玩蜘蛛侠2吗</blockquote>
+可以直接玩，虽然是三部曲但跟一代关系不是很大。
+

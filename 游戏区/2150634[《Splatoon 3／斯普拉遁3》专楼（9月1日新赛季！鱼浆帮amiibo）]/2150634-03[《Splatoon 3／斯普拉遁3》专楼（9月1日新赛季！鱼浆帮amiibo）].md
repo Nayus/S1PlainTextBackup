@@ -4650,3 +4650,14 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 摸鱼打开推一看热搜第一スプラ鯖落ち，网络还能不能好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  oi99o  
+##### 3459#       发表于 2024-2-29 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104166&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-2-29 14:03</a>
+
+伞面恢复，不带色彩倾向去刷</blockquote>
+查到了，应该是伞面保持，伞面恢复是右边一个。不过应该都是要不带色彩倾向刷了
+

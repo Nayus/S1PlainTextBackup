@@ -681,3 +681,18 @@ jchere现在煤炉代购也不需要手续费，但是搜索页面不如jpg的�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  osore  
+##### 74#       发表于 2024-2-29 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104710&amp;ptid=2173464" target="_blank">黑上シグマ 发表于 2024-2-29 14:49</a>
+
+呆的一个拼团群，老大成天就喷玛沙对拼团团长各种设限制，就为了推他们自己的喵急便
+
+现在玛 ...</blockquote>
+可能只是暂避风头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前相关圈子几轮涉黄抓人闹大了的，都有同业删号保平安的
+

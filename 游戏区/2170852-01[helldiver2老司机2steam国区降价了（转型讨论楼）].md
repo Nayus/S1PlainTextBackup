@@ -10837,3 +10837,12 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 碰到个带着一背包样本故意不上飞机的，前面都很正常，还帮着捡样本，撤离突然发病，不知道是不是因为看到房 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会不会是遇到了看不见撤离飞机的bug，我遇到过这种bug
 
+
+*****
+
+####  ykyin09  
+##### 1093#       发表于 2024-2-29 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64103830&amp;ptid=2170852" target="_blank"> smdzh2 发表于 2024-2-29 13:28</a> 引用:BadYanL 发表于 2024-2-29 13:08 机甲画面泄漏 内容更新应该快了，传闻三月中。 又可以愉快地踩队友了 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如一代的装甲车，没停稳队友下车直接压死来自: iPhone客户端
+

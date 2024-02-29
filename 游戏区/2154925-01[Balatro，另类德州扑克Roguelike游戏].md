@@ -4777,3 +4777,14 @@ BV1TW421P7he
 
 这游戏极限分数就两种可能：单张高牌+一手红印铁牌，玻璃红印同花五条+一手红印铁牌。前者更容易达成一些。
 
+
+*****
+
+####  杜文乐超神归来  
+##### 424#       发表于 2024-3-1 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64111025&amp;ptid=2154925" target="_blank">天妇罗 发表于 2024-3-1 06:51</a>
+
+这游戏极限分数就两种可能：单张高牌+一手红印铁牌，玻璃红印同花五条+一手红印铁牌。前者更容易达成一些。 ...</blockquote>
+同花五条强，因为极限应该是玻璃红印多彩同花五条，单次触发玻璃多彩倍率3x正好是钢铁两倍。这单触发两倍是什么概念只能说懂得都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

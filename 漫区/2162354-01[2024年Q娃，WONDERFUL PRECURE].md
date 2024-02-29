@@ -30,3 +30,21 @@
 
 给小朋友看的，主角不上学天天玩影响不太好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幸福在裆下  
+##### 1089#       发表于 2024-3-1 07:18
+
+这下父母教育孩子有说法了
+“你看连狗狗都要天天上学，你也要好好上学哦”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  披头破落户  
+##### 1090#       发表于 2024-3-1 07:19
+
+山田一族又开始画q娃了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

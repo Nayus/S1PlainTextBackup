@@ -665,3 +665,15 @@ ps5买了3年 一直吃灰
 
 Pro出来还是看独占阵容吧，目前这阵容一年下来ps5甚至开不了几次机<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，大部分想玩的也不是独占，PS就图个方便和ds5<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  终结之心  
+##### 80#       发表于 2024-2-29 20:39
+
+[PS4/5] 索尼playstation一号楼
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+2024年开始一号楼是吧？差不多得了
+

@@ -1801,3 +1801,12 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  a1370303  
+##### 1677#       发表于 2024-2-29 11:17
+
+立花日菜这脸已经不止是大饼，都快是魔方了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/37779c60f88992b8eafe062a43cd606f/CMP_20240229111521883.jpg" referrerpolicy="no-referrer">
+

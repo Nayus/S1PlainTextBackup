@@ -3527,3 +3527,16 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zzy516232108  
+##### 4141#       发表于 2024-3-1 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64110364&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-3-1 00:32</a>
+回看了下还真没明确说歌姬是零式. 
+不过, 阿美制造的magus默认都是0式.  泛用型是在阿美毁灭后才有的.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">阿尔巴说诺瓦露要移植的话必须要另一个零式magus的身体
+主角和雪儿跑出来的时候，雪儿也说我有办法能帮诺瓦露
+基本等于明说了
+

@@ -677,3 +677,13 @@ Pro出来还是看独占阵容吧，目前这阵容一年下来ps5甚至开不�
 
 2024年开始一号楼是吧？差不多得了
 
+
+*****
+
+####  yzqray  
+##### 81#       发表于 2024-2-29 20:49
+
+正常点的索粉会来泥潭吗
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

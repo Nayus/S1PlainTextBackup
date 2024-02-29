@@ -877,3 +877,13 @@ pro，应该10-11月就出了，ff7上pc至少25年的事
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KevinGraham  
+##### 102#       发表于 2024-3-1 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109782&amp;ptid=2173605" target="_blank">ycy8332589 发表于 2024-2-29 23:13</a>
+大概率就是amd那个fsr3.0</blockquote>
+那玩意可太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -4468,3 +4468,34 @@ Tip：长按R直接重开</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202402/29/043206xwrerpfhr870c8ye.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hansel  
+##### 399#       发表于 2024-2-29 09:48
+
+我就差一张 Pareidolia Rarity 啊啊啊就是无敌爽局，狗到赌注六都没刷到啊啊啊啊气死我了
+
+*****
+
+####  TOZZ  
+##### 400#       发表于 2024-2-29 09:53
+
+<img src="https://static.wikia.nocookie.net/balatrogame/images/a/a0/Half_Joker.png/revision/latest?cb=20240221173335" id="aimg_XRPLR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://static.wikia.nocookie.net/balatrogame/images/1/12/Card_Sharp.png/revision/latest?cb=20240223202913" id="aimg_D7zMv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://static.wikia.nocookie.net/balatrogame/images/1/13/Cavendish.png/revision/latest?cb=20240222222256" id="aimg_ZY5CZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+用主要这三张胡了一把，打对子真的比凑同花快乐不少
+
+
+*****
+
+####  a4ac7  
+##### 401#       发表于 2024-2-29 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64099743&amp;ptid=2154925" target="_blank">gawain 发表于 2024-2-29 01:26</a>
+无尽模式后面9位数的要求该怎么过</blockquote>
+最强组合我觉得是k*1.5和重复触发手上牌，五张小丑牌打打顺子都能几百万分，更胡的话转单牌，卡组强化成型上限更高
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

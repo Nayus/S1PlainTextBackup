@@ -768,3 +768,14 @@ jpgoodbuy手续费便宜但是免费仓储期就30天，发货比较快的会选
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泪爷好死喵
 
+
+*****
+
+####  创始’’’天翔  
+##### 82#       发表于 2024-2-29 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64100486&amp;ptid=2173464" target="_blank">木谷高明 发表于 2024-2-29 08:38</a>
+
+图转群</blockquote>
+2K+本也太疯狂了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

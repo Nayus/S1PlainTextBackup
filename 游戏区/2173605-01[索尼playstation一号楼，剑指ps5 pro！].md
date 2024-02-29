@@ -412,3 +412,64 @@ kotaku的编辑说这回裁员工作室关门优先级最高的就是MediaMolecu
 我也来问一下，没玩过前作能直接玩蜘蛛侠2吗</blockquote>
 可以直接玩，虽然是三部曲但跟一代关系不是很大。
 
+
+*****
+
+####  mortonno2  
+##### 51#       发表于 2024-2-29 17:02
+
+借楼问一下portal值得买吗？主要玩仁王，7rb还有后面浪人崛起这些动作游戏
+
+*****
+
+####  yukarimo  
+##### 52#       发表于 2024-2-29 17:03
+
+我一直是索索啊
+
+
+*****
+
+####  医生狼多  
+##### 53#       发表于 2024-2-29 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106159&amp;ptid=2173605" target="_blank">mortonno2 发表于 2024-2-29 17:02</a>
+借楼问一下portal值得买吗？主要玩仁王，7rb还有后面浪人崛起这些动作游戏</blockquote>
+7rb可以，高操作精度的动作游戏会受影响，可以ds手柄接手机平板，先试试用ps remote玩，觉得操作ok，且需要一个手持一体化设备再买吧
+
+*****
+
+####  Fuero  
+##### 54#       发表于 2024-2-29 17:05
+
+对pro的预期是60帧开RT玩gta6
+
+*****
+
+####  赤井稻妻  
+##### 55#       发表于 2024-2-29 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106032&amp;ptid=2173605" target="_blank">yuyuagain 发表于 2024-2-29 16:49</a>
+
+我也来问一下，没玩过前作能直接玩蜘蛛侠2吗</blockquote>
+还是推荐先玩1，1代对彼得塑造比较多，剧情也完整，迈尔斯倒是无所谓，会免有的话可以玩，没有就拉倒了，我记得1是有会免的
+
+*****
+
+####  Fuero  
+##### 56#       发表于 2024-2-29 17:06
+
+<blockquote>mortonno2 发表于 2024-2-29 17:02
+借楼问一下portal值得买吗？主要玩仁王，7rb还有后面浪人崛起这些动作游戏</blockquote>
+我一直在玩，喜欢触觉反馈就买，跟其他串流方案比是0到1的进化。如果对震动不感冒，其他方案可能更有性价比
+
+*****
+
+####  贝恩德塔  
+##### 57#         楼主| 发表于 2024-2-29 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106159&amp;ptid=2173605" target="_blank">mortonno2 发表于 2024-2-29 17:02</a>
+
+借楼问一下portal值得买吗？主要玩仁王，7rb还有后面浪人崛起这些动作游戏</blockquote>
+比较简单的鉴别方法就是自己用手机或者平板用ps remote play或者其它第三方串流软件体验一下，第三方软件延迟和画质基本上和portal并没有多大区别，portal最大的优势就是一体化第一方手柄和屏幕比手机大一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

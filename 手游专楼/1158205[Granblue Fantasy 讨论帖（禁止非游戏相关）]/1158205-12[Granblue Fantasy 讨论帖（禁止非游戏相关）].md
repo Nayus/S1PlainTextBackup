@@ -49,3 +49,14 @@
 
 這把光屬性30%武器也太強了吧。可以取代尤妮琴了。
 
+
+*****
+
+####  areklose  
+##### 17640#       发表于 2024-2-29 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106047&amp;ptid=1158205" target="_blank">Niu 发表于 2024-2-29 16:51</a>
+
+這把光屬性30%武器也太強了吧。可以取代尤妮琴了。</blockquote>
+增伤区不冲突。倒不如说2024还要暴击才有增伤不行。
+

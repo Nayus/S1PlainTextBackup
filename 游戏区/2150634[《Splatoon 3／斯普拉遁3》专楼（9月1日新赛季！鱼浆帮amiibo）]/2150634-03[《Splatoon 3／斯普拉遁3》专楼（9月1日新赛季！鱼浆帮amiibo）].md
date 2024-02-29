@@ -4661,3 +4661,33 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 伞面恢复，不带色彩倾向去刷</blockquote>
 查到了，应该是伞面保持，伞面恢复是右边一个。不过应该都是要不带色彩倾向刷了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3460#       发表于 2024-2-29 17:02
+
+明天下午康佬扎堆康新图，运气好蹭上车说不定能0miss到600<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 3461#       发表于 2024-2-29 17:03
+
+又是地区祭典
+
+<img src="https://img.saraba1st.com/forum/202402/29/170303qdeaavaejza7x7kj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (245.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 17:03 上传
+
+*****
+
+####  oi99o  
+##### 3462#       发表于 2024-2-29 17:04
+
+一看大厅显示又变成4月10日之前不能改祭典地区了，记得上次祭典前看的是3月4日，到底什么时候才能给我改？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -4750,3 +4750,34 @@ wsd对得起林小姐的用心吗，我劝手游文案善良多写好好写<img 
 
 这么说十周年就是mujica登场了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 13737#       发表于 2024-2-29 22:07
+
+看了一下隔壁整理的去年的周年消息，今年公布的东西比去年少了太多，估计是工艺蛋炸了重建导致的调整期，没多少新活，还是等明年来大的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ddy2811  
+##### 13738#       发表于 2024-2-29 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64108305&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-2-29 20:32</a>
+
+回来了</blockquote>
+笑起来还是那么好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 13739#       发表于 2024-2-29 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64108761&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-2-29 21:17</a>
+
+本来还想说没进游戏没有东西正常
+
+管人团……啊这</blockquote>
+“大家都很珍惜自己的时间呢”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

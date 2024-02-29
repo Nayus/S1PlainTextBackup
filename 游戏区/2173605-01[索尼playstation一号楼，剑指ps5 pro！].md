@@ -768,3 +768,31 @@ Pro出来还是看独占阵容吧，目前这阵容一年下来ps5甚至开不�
 
 泥潭这扭曲索黑氛围真的有gk会来么，讲真gk去隔壁nga也不会来泥潭吧
 
+
+*****
+
+####  liekong  
+##### 92#       发表于 2024-2-29 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64105409&amp;ptid=2173605" target="_blank">贝恩德塔 发表于 2024-2-29 15:52</a>
+
+话说尼版有版规吗</blockquote>
+[https://bbs.saraba1st.com/2b/thread-672040-1-1.html](https://bbs.saraba1st.com/2b/thread-672040-1-1.html)
+
+其实是有的，虽然10年没更新过了......
+
+*****
+
+####  贝恩德塔  
+##### 93#         楼主| 发表于 2024-2-29 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109213&amp;ptid=2173605" target="_blank">liekong 发表于 2024-2-29 22:08</a>
+
+https://bbs.saraba1st.com/2b/thread-672040-1-1.html
+
+其实是有的，虽然10年没更新过了...... ...</blockquote><blockquote>2、禁止标题名词乱用和标题党行为，杜绝论坛黑话，例如"暗荣、任地狱、男猛攻”或者称呼主机的”三红、神机3、三公主、小公主"之类，违反者直接锁帖。
+
+7、禁止任何形式的阵营攻击，类似于“我玩xx我优越，你玩xx你纱布”以及“索匪、任豚”等回复视情况删帖、锁帖或塞抹布3-10天，严重者永封</blockquote>
+
+没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

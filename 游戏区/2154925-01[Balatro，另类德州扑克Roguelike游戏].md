@@ -4567,3 +4567,33 @@ Tip：长按R直接重开</blockquote>
 
 这游戏感觉随机只随了种子 SL后的小丑卡包 商店刷新甚至香蕉牌破碎（不一定是）都固定下来了
 
+
+*****
+
+####  伊布桑  
+##### 407#       发表于 2024-2-29 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104879&amp;ptid=2154925" target="_blank">naclken. 发表于 2024-2-29 15:06</a>
+单张是什么玩法？</blockquote>
+单张很好理解吧，虽然基本也就无尽能成型
+有一种卡面叫钢铁，效果是在手牌时提供1.5倍率乘算，而单牌流就是可以让你手牌钢铁牌数量最大化
+后期把整副牌弄成钢铁然后打单牌，再加上红腊（触发两次），第一张牌触发两次的小丑等等
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  naclken.  
+##### 408#       发表于 2024-2-29 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64105788&amp;ptid=2154925" target="_blank">伊布桑 发表于 2024-2-29 16:24</a>
+
+单张很好理解吧，虽然基本也就无尽能成型
+
+有一种卡面叫钢铁，效果是在手牌时提供1.5倍率乘算，而单牌流就 ...</blockquote>
+整副牌弄成钢铁……
+
+那要配合高分强化、买钢铁、转钢铁、删牌库、半截小丑之类的操作一起吧
+
+前期发育不好就直接暴毙了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

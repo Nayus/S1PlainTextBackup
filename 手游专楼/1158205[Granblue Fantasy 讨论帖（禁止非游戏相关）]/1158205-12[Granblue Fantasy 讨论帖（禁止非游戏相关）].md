@@ -18,3 +18,26 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  洛克萨斯  
+##### 17637#       发表于 2024-2-29 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64084968&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2024-2-27 19:36</a>
+
+天司又出来加班了，000续集还行
+
+看这解包路西菲尔还可能打赢复活战，乐子开始了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">是阿芬，武器还是菲尔的遗物，看来凉透了
+
+*****
+
+####  jxzeroga0  
+##### 17638#       发表于 2024-2-29 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104434&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2024-2-29 14:27</a>
+
+是阿芬，武器还是菲尔的遗物，看来凉透了</blockquote>
+解包是月底池就不太有可能了，毕竟还有个路西欧没终突，牢路还是继续蹲着了
+

@@ -10827,3 +10827,13 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 
 昨天试了下轨道空爆，清怪比120 380好使多了。
 
+
+*****
+
+####  lazycat233  
+##### 1092#       发表于 2024-2-29 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64099929&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-2-29 02:22</a>
+碰到个带着一背包样本故意不上飞机的，前面都很正常，还帮着捡样本，撤离突然发病，不知道是不是因为看到房 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会不会是遇到了看不见撤离飞机的bug，我遇到过这种bug
+

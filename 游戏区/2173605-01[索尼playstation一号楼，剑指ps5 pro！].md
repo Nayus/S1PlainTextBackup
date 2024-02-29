@@ -887,3 +887,11 @@ pro，应该10-11月就出了，ff7上pc至少25年的事
 大概率就是amd那个fsr3.0</blockquote>
 那玩意可太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alfredno2  
+##### 103#       发表于 2024-3-1 00:38
+
+就29日一天的FF7RB的体验 PS5PRO必须得出 除非2025年上PS6
+

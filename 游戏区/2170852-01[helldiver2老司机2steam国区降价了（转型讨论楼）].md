@@ -11058,3 +11058,14 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 该找点软柿子虫子复仇啦，速攻维尔德<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 1117#       发表于 2024-3-1 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64110346&amp;ptid=2170852" target="_blank">YY骑士 发表于 2024-3-1 00:29</a>
+
+我是单走一路，对付泰坦和巢里的坦克虫用的，一般不扔，轨道炮可能还用的多点，清掉样本点里的单个坦克虫 ...</blockquote>
+110纯纯一坨，伤害感人不说泰坦在移动的话大概率都炸不到，这玩意唯一用处大概就是炸机器人的建筑设施
+

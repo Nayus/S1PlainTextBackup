@@ -3498,3 +3498,17 @@ rip
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NeloAngelo  
+##### 4139#       发表于 2024-3-1 00:39
+
+mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不可能.
+只是他前面肯定不可能表现出任何0式的迹象, 毕竟是在逃0式<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+不如猜他什么时候飘出来放技能, 放的是什么技能吧.
+(老头飘出来也太怪了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

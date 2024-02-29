@@ -2051,3 +2051,13 @@ ps：有点太乐了，只是看乐子的，有种以前厄介警察的感觉了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">入土看的是代孙怎么想的跟你卖了多少真没多大关系，难不成代孙还能反过头来让老六给老东西爆金币
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1703#       发表于 2024-3-1 00:41
+
+梦都可以做，水魔真给闪哈爆金币了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

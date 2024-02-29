@@ -10786,3 +10786,24 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 
 2024-2-29 12:08 上传
 
+
+*****
+
+####  flak37  
+##### 1088#       发表于 2024-2-29 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64089320&amp;ptid=2170852" target="_blank">n.dante 发表于 2024-2-28 07:25</a>
+
+我无敌的雷鸣者三联装迫击炮什么时候能回归。这解包完全看不到它的影子。 ...</blockquote>
+可能是换视角以后雷鸣者不好操作
+
+*****
+
+####  flak37  
+##### 1089#       发表于 2024-2-29 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64102080&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-2-29 10:58</a>
+
+500kg主要用来对付泰坦，有磁轨炮或者轨道武器可以带别的</blockquote>
+泰坦用110火箭弹挺好用，主要是有锁定，如果命中头部附近也能一击必杀，而且可以打三次。
+

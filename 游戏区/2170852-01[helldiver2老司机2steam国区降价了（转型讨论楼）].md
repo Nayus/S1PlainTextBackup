@@ -10969,3 +10969,28 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 趁着爆炸多打点样本 有返利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 1107#       发表于 2024-2-29 21:47
+
+又又又又炸服了，进不去了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Mr.BBWoLf  
+##### 1108#       发表于 2024-2-29 21:51
+
+原来这就是前面几页说的服务器爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  病娇图兰朵  
+##### 1109#       发表于 2024-2-29 21:53
+
+叒炸了，这服务器有没有的好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

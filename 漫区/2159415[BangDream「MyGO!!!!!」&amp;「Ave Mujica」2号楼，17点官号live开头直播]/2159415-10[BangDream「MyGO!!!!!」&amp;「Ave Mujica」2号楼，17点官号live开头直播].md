@@ -4711,3 +4711,34 @@ amita都和政委一个事务所了，以后肯定有得卖，amita还是喜欢�
 
 wsd对得起林小姐的用心吗，我劝手游文案善良多写好好写<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  likeny  
+##### 13733#       发表于 2024-2-29 21:44
+
+这个杂志……上次2月号我在tb一家店买，目前只有前50下单的到货<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 13734#       发表于 2024-2-29 21:50
+
+一想到大鼓这么尽心尽力还热爱角色又觉得这大半年可以继续忍一忍立希的待遇和live某人翻车了，希望手游剧情不要当炸药和背锅侠就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13735#       发表于 2024-2-29 21:52
+
+李子也翻过这首，这下可以提前架好烧烤架了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/29/215208l0j48986xiiqy9z6.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240229213645.png</strong> (163.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 21:52 上传
+

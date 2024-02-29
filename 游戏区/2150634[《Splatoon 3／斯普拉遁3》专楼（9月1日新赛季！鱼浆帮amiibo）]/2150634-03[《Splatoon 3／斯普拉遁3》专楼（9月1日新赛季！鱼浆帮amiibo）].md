@@ -4801,3 +4801,35 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  laosai13  
+##### 3471#       发表于 2024-2-29 21:51
+
+美服现在x分质量可能比日服含金量还高<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上了两千分之后就开始有皇冠局了，自己打的时候我用最常见的武器小枪2050分对位唯一皇冠在对面2900+，而且不是一场而是基本每一场都有皇冠，再不济也是银x遍地。要上分基本就是本方大佬压制对面大佬自己不能一直死拖后腿要不然就自己超常发挥，基本你需要在你的水平里完美发挥，不然稳稳打的话稳稳的掉分。看一个主播因为受不了美服人太少匹配抽象去日服开了个小号也觉得日服2200比美服2000好打多了。可能赛季末是这样吧只有大佬才能在赛季末上分。
+
+*****
+
+####  罗克萨斯  
+##### 3472#       发表于 2024-2-29 21:51
+
+几天没打，发现右摇杆确实是漂了，负战绩不知道有几份它的“功劳”<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+Pro右摇杆咋修，狗东买的国行，但只保一年，已经过保，直接上WD40神油么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 3473#       发表于 2024-2-29 21:52
+
+<img src="https://img.saraba1st.com/forum/202402/29/215234wemu8h48dz6yfmm8.jpg" referrerpolicy="no-referrer">
+
+<strong>20240229_214802.jpg</strong> (354.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 21:52 上传
+

@@ -4797,3 +4797,20 @@ wsd对得起林小姐的用心吗，我劝手游文案善良多写好好写<img 
 
 这也太幽默了，音宝“WB1万粉、超话4千关注”，李子“WB9万粉、超话关注1百7””
 
+
+*****
+
+####  NODY  
+##### 13742#       发表于 2024-2-29 22:50
+
+我好像找到规律了，去年六周年活动是主唱组全员出卡，今年七周年是吉他组，那就是八周年贝斯、九周年鼓、十周年钢琴DJ小提琴这些额外乐器<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+mygo让爱音这个节奏吉他去了主音组而不是猫去，那猫估计也是排到十周年去了，底边.jpg
+
+*****
+
+####  基神的强袭自由  
+##### 13743#       发表于 2024-2-29 22:53
+
+已经在构思超话怎么写了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

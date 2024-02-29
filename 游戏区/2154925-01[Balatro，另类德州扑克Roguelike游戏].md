@@ -4697,3 +4697,39 @@ BV1TW421P7he
 
 黑注高歌猛进中，看BOSS是extra large，不小心买了，吓人，还好SL回来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  schneehertz  
+##### 418#         楼主| 发表于 2024-2-29 22:49
+
+<img src="https://img.saraba1st.com/forum/202402/29/224803cd38x966p8z3l646.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (494.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202402/29/224944eg3q43z5g4gldlna.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (409.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 22:49 上传
+
+极限了，没有买到无限刷掉debuff的优惠劵
+
+
+*****
+
+####  schneehertz  
+##### 419#         楼主| 发表于 2024-2-29 22:52
+
+ 本帖最后由 schneehertz 于 2024-2-29 22:54 编辑 
+
+不过还有上升空间，如果能同时买到佩尔科欧和天文台的话
+
+以及这局没有拿到蓝图
+

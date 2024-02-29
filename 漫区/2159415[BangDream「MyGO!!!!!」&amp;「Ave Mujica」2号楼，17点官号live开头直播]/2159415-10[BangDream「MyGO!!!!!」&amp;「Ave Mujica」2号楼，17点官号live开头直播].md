@@ -4304,3 +4304,47 @@ pp的应该是花瓣
 管人团我还是觉得安排的抽象，2年出3团也就算了，资源分派突出一个迷惑 ...</blockquote>
 赌徒心态吧   都快凉了不如赌一把 哪个火资源倾向哪个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alicest  
+##### 13696#       发表于 2024-2-29 20:32
+
+amita好漂亮
+
+<img src="https://img.saraba1st.com/forum/202402/29/203213o4cvntzvyfntvvz4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 20:32 上传
+
+*****
+
+####  6030sylar  
+##### 13697#       发表于 2024-2-29 20:32
+
+<img src="https://img.saraba1st.com/forum/202402/29/203115t55i1t6za2e82t26.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 20:31 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">回来了
+
+*****
+
+####  6030sylar  
+##### 13698#       发表于 2024-2-29 20:34
+
+<img src="https://img.saraba1st.com/forum/202402/29/203458dxjildl4ttvxwiuu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 20:34 上传
+

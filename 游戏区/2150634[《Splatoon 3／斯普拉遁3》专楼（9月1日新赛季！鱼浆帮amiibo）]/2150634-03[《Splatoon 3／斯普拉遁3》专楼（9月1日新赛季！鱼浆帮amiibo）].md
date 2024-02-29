@@ -4791,3 +4791,13 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 好无聊的主题，说起来3代好像也没有联动祭典</blockquote>
 日服单独开的祭典全部是联动，有些没那么明显而已
 
+
+*****
+
+####  KBAC  
+##### 3470#       发表于 2024-2-29 20:33
+
+好多人都在猜8号爆鱿鱼灵魂是不是隐藏伏笔，等鱿鱼研在版本更新记录里把这个写bug修正里，大伙儿（包括我）就都成小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

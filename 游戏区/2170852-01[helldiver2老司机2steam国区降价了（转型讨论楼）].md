@@ -10846,3 +10846,13 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64103830&amp;ptid=2170852" target="_blank"> smdzh2 发表于 2024-2-29 13:28</a> 引用:BadYanL 发表于 2024-2-29 13:08 机甲画面泄漏 内容更新应该快了，传闻三月中。 又可以愉快地踩队友了 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如一代的装甲车，没停稳队友下车直接压死来自: iPhone客户端
 
+
+*****
+
+####  布伦史塔德  
+##### 1094#       发表于 2024-2-29 15:12
+
+tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没这team kill好多乐子视频就没了
+

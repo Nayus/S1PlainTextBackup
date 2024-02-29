@@ -15,3 +15,11 @@
 
 改图改得好
 
+
+*****
+
+####  花开安菲路  
+##### 7277#       发表于 2024-2-29 15:03
+
+哭了，杏奈486都是我推，出shs没钻也氪不起了，矿也没了，抽了60抽40抽都是1sr保底，不带这样的<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+

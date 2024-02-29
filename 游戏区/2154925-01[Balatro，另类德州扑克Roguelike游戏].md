@@ -4540,3 +4540,30 @@ Tip：长按R直接重开</blockquote>
 花五张牌组牌型不如直接握几张钢铁红蜡</blockquote>
 同花五条分数不如只打一张，但是有两张高成长的加基础筹码的小丑是要多出牌的，如果带了其中一张，就会选择打同花五条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  naclken.  
+##### 405#       发表于 2024-2-29 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">单张是什么玩法？
+
+
+*****
+
+####  PenguinIceAz  
+##### 406#       发表于 2024-2-29 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64093230&amp;ptid=2154925" target="_blank">tornadoDA 发表于 2024-2-28 14:09</a>
+
+这游戏玩起来得拿个计算器放旁边啊，能跟爬塔一样sl就好了</blockquote>
+我是直接用**带的云存档功能SL的
+
+在他们加速详情页下面点云存档绑定完之后正常玩就行 要读档的时候关游戏出来点UU上面的云存档
+
+然后找小丑牌 点右边的三个点选【恢复历史存档】
+
+他们自动留了10个存档位的自动存档历史，大概算算时间就能SL回商店或者BOSS关前了
+
+这游戏感觉随机只随了种子 SL后的小丑卡包 商店刷新甚至香蕉牌破碎（不一定是）都固定下来了
+

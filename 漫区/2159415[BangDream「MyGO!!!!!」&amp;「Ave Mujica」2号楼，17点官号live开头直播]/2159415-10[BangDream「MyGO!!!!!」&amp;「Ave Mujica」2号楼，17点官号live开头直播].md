@@ -4814,3 +4814,24 @@ mygo让爱音这个节奏吉他去了主音组而不是猫去，那猫估计也�
 
 已经在构思超话怎么写了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Case  
+##### 13744#       发表于 2024-2-29 22:54
+
+爱拔真是超人。
+
+R组巡演+少歌运动会+连着四期生放送到场。
+
+
+*****
+
+####  紫吹兰  
+##### 13745#         楼主| 发表于 2024-2-29 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109143&amp;ptid=2159415" target="_blank">skives 发表于 2024-2-29 22:02</a>
+
+这么说十周年就是mujica登场了</blockquote>
+9年前木谷说过希望邦多利成为十年企划，那么十周年的大新闻......<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

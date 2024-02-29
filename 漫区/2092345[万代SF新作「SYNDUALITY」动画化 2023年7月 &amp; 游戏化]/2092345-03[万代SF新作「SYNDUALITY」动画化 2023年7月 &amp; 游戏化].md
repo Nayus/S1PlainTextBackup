@@ -3456,3 +3456,15 @@ rip
 
 紧急插播了一集黄金国还行，但是没有世界树副本了，决战是直接上乐园了吧
 
+
+*****
+
+####  zzy516232108  
+##### 4136#       发表于 2024-2-29 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">话说歌姬是0式magus算是吃书吧？
+
+第一季最后不管是诺瓦露还是米斯提，最后加载界面都会显示noir/mystere，都会有个 identification code 0
+
+只有雪儿显示的是 ciel identification code -- 
+

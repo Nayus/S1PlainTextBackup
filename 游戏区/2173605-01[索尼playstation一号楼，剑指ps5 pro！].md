@@ -796,3 +796,32 @@ https://bbs.saraba1st.com/2b/thread-672040-1-1.html
 
 没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 94#       发表于 2024-2-29 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109239&amp;ptid=2173605" target="_blank">贝恩德塔 发表于 2024-2-29 22:11</a>
+
+没绷住</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">毕竟整整10年了，世界已经变了
+
+*****
+
+####  umbasa  
+##### 95#       发表于 2024-2-29 22:58
+
+钓鱼执法，一定是钓鱼执法!
+
+
+*****
+
+####  karastar  
+##### 96#       发表于 2024-2-29 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109028&amp;ptid=2173605" target="_blank">贝恩德塔 发表于 2024-2-29 21:48</a>
+
+虽然的确很迷惑，明明是御三家，但是的确之前泥潭并没有出现索尼的专楼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">泥潭每个人都流着索尼的血，虽然没有专楼但是无处不在
+

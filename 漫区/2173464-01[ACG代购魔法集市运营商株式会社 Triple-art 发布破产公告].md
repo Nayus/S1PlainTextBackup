@@ -625,3 +625,13 @@ tenso主要就是贵啊 转运和代购都贵 发送没有自有线路
 图转群</blockquote>
 好家伙，真要有2000多本，就是十年起步<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 69#       发表于 2024-2-29 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101588&amp;ptid=2173464" target="_blank">cnmyster1ous 发表于 2024-2-29 11:24</a>
+所以如果想单纯转运有什么好的选择吗 玩的日厂游戏中奖+兑换攒了几个周边了想一块拿回来 我自己去兑换的时 ...</blockquote>
+tenso或者jpgoodbuy
+

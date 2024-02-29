@@ -1810,3 +1810,13 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 立花日菜这脸已经不止是大饼，都快是魔方了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/15/37779c60f88992b8eafe062a43cd606f/CMP_20240229111521883.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1678#       发表于 2024-2-29 11:32
+
+那立花日菜有焦阳几成功力，能去打中单吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

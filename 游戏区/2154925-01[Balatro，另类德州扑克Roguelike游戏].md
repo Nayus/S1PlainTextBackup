@@ -4676,3 +4676,14 @@ BV1TW421P7he
 
 怎么看每回合我的最常用牌型有人知道吗
 
+
+*****
+
+####  就是剑鞘  
+##### 416#       发表于 2024-2-29 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64107035&amp;ptid=2154925" target="_blank">hokagokenjatime 发表于 2024-2-29 18:24</a>
+
+怎么看每回合我的最常用牌型有人知道吗</blockquote>
+左边比赛信息，每个牌型最后面的数字就是你用这个牌型的总次数
+

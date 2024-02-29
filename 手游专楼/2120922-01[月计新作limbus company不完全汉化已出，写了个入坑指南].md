@@ -568,3 +568,27 @@ syl 之前猜会给浮
 
 （话说常驻六协越出越多，主线登场的几率也是越来越小吧...下个瓦夜联动烧伤角色顶多是天将拂晓萨尔瓦多那种级别吧...）
 
+
+*****
+
+####  Jamaisvu  
+##### 572#       发表于 2024-2-29 18:38
+
+罗佳三技能有对应的卡牌吗，这个动作让我想起了月姬格斗里轧间红摩的大炎上：
+
+<img src="https://img.saraba1st.com/forum/202402/29/183828gvp2umuu8ypg7xuo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240229_183112.jpg</strong> (206.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202402/29/183829j2ku1zv8k6qsjfs2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240229_183514.jpg</strong> (145.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 18:38 上传
+

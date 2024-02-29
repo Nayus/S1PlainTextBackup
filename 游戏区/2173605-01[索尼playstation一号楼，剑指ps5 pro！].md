@@ -580,3 +580,28 @@ pulse elite用了几天，感觉还可以，就是蓝牙连pc貌似会偶尔触�
 
 按舅舅说的话PS5Pro已经有流片了，就是突然间都集体闭嘴了
 
+
+*****
+
+####  (:影子:)  
+##### 70#       发表于 2024-2-29 18:40
+
+乐了，居然还有索索专楼的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说在这楼发言会不会有赛博案底呀（指gk）<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫菜粉丝煲  
+##### 71#       发表于 2024-2-29 18:41
+
+我一直是索索的呀，ps从小玩到大
+
+
+*****
+
+####  hu794  
+##### 72#       发表于 2024-2-29 18:46
+
+指起来，先直sop，再指新机！<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+

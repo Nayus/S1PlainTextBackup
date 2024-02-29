@@ -11077,3 +11077,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 哑铃人の怒<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 1119#       发表于 2024-3-1 01:12
+
+草，全服任务是跑团爱好者搞的，败给机器人都是gm搞的鬼。超级气球里面有坏人啊！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

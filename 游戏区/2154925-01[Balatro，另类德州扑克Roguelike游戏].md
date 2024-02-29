@@ -4646,3 +4646,15 @@ BV1TW421P7he
 
 只考开包的塔罗到无尽就不够看了 我觉得最好还是要有能主动获取的牌，比如算好点数之后流浪汉+蓝图（好像也不多）
 
+
+*****
+
+####  schneehertz  
+##### 413#         楼主| 发表于 2024-2-29 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106051&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-2-29 16:52</a>
+只考开包的塔罗到无尽就不够看了 我觉得最好还是要有能主动获取的牌，比如算好点数之后流浪汉+蓝图（好像也 ...</blockquote>
+传奇里有一张复制现有塔罗牌的joker
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

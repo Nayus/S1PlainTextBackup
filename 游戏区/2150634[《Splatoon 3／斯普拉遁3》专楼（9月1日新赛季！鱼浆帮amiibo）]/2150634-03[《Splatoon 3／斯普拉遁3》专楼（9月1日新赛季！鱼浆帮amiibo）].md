@@ -4781,3 +4781,13 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  绿冰  
+##### 3469#         楼主| 发表于 2024-2-29 20:19
+
+<blockquote>Kiyohara_Yasuke 发表于 2024-2-29 17:14
+好无聊的主题，说起来3代好像也没有联动祭典</blockquote>
+日服单独开的祭典全部是联动，有些没那么明显而已
+

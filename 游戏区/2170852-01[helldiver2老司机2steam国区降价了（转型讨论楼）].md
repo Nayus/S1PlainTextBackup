@@ -11087,3 +11087,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  WGTCorp  
+##### 1120#       发表于 2024-3-1 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64110428&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-1 00:41</a>
+110纯纯一坨，伤害感人不说泰坦在移动的话大概率都炸不到，这玩意唯一用处大概就是炸机器人的建筑设施 ...</blockquote>
+110范围小又容易被杂兵吸走，炸建筑感觉也不好用
+

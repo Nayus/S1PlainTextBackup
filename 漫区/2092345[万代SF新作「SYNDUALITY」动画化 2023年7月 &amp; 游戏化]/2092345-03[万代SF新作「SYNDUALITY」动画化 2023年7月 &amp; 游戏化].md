@@ -3540,3 +3540,30 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 主角和雪儿跑出来的时候，雪儿也说我有办法能帮诺瓦露
 基本等于明说了
 
+
+*****
+
+####  NeloAngelo  
+##### 4142#       发表于 2024-3-1 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64110606&amp;ptid=2092345" target="_blank">zzy516232108 发表于 2024-3-1 01:22</a>
+阿尔巴说诺瓦露要移植的话必须要另一个零式magus的身体
+主角和雪儿跑出来的时候，雪儿也说我有办 ...</blockquote>
+我是说第一季的时候啦hh
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  NeloAngelo  
+##### 4143#       发表于 2024-3-1 01:33
+
+ 本帖最后由 NeloAngelo 于 2024-3-1 01:37 编辑 
+
+第一季开头飘出来的分别是 第3集schnee, 第4集flame, 第6集 noir(Mystere).  
+第7集 歌姬飘出来的时候, 你很难不认为她是0式<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+// 第5集的路人0式应该没飘
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -594,3 +594,13 @@ tenso主要就是贵啊 转运和代购都贵 发送没有自有线路
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这瓜看着挺乐的
 
+
+*****
+
+####  nightraven  
+##### 66#       发表于 2024-2-29 08:49
+
+自从不能买dl点数后就没用过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

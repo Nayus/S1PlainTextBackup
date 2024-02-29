@@ -10938,3 +10938,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104827&amp;ptid=2170852" target="_blank"> ykyin09 发表于 2024-2-29 15:01</a> 引用: smdzh2 发表于 2024-2-29 13:28 引用:BadYanL 发表于 2024-2-29 13:08 机甲画面泄漏 内容更新应该快了，传闻三月中。 又可以愉快地踩队友了  不如一代的装甲车，没停稳队友下车直接压死 </blockquote>
 一代那三蹦子，网不好的时候下车必定送走一名队友来自: iPhone客户端
 
+
+*****
+
+####  烈焰舞阳  
+##### 1104#       发表于 2024-2-29 21:15
+
+服务器又民主爆破了？
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

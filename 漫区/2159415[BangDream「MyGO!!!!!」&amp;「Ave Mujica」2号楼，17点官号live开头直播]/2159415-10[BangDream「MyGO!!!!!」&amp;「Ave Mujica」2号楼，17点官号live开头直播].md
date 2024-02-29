@@ -4518,3 +4518,106 @@ amita都和政委一个事务所了，以后肯定有得卖，amita还是喜欢�
 
 怎么管人都有，鸡的歌呢？
 
+
+*****
+
+####  Alicest  
+##### 13713#       发表于 2024-2-29 21:14
+
+<img src="https://img.saraba1st.com/forum/202402/29/211419qw23czczaauacbzj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (248.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 21:14 上传
+
+*****
+
+####  基神的强袭自由  
+##### 13714#       发表于 2024-2-29 21:15
+
+淘宝代购，启动！
+
+剑指4月号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13715#       发表于 2024-2-29 21:15
+
+杂志停刊，海报清那个仓是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202402/29/211532xr1v3v8f13rbktt1.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240229211508.png</strong> (179.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 21:15 上传
+
+*****
+
+####  PDQ4  
+##### 13716#       发表于 2024-2-29 21:17
+
+本来还想说没进游戏没有东西正常
+
+管人团……啊这
+
+以及这期狗料好多，狗团竟然一个人都没来，都在忙吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 13717#       发表于 2024-2-29 21:19
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算官方盖章吗
+
+<img src="https://img.saraba1st.com/forum/202402/29/211938dh1s16hwdhso0oqw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 21:19 上传
+
+
+*****
+
+####  NODY  
+##### 13718#       发表于 2024-2-29 21:21
+
+武士道现在的周年连全主唱都找不齐了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 13719#       发表于 2024-2-29 21:21
+
+林小姐这唯一一个鼓手的含金量
+
+*****
+
+####  PDQ4  
+##### 13720#       发表于 2024-2-29 21:21
+
+唉，声优团
+
+会不会那次以后爱美和动物朋友公演NG了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DarthAka  
+##### 13721#       发表于 2024-2-29 21:21
+
+今天阳子没来，怎么没把三泽叫来
+
+*****
+
+####  DarthAka  
+##### 13722#       发表于 2024-2-29 21:23
+
+这么一说，外社主唱全歇了
+

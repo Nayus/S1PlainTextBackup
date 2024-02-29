@@ -867,3 +867,13 @@ ps5pro的rumor里比较感兴趣的就是索dlss了，不知道能做到啥水�
 ps5pro和7rb pc版哪个会先出呢</blockquote>
 pro，应该10-11月就出了，ff7上pc至少25年的事
 
+
+*****
+
+####  sprongs  
+##### 101#       发表于 2024-2-29 23:35
+
+预测12400+4070，应该到不了s吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

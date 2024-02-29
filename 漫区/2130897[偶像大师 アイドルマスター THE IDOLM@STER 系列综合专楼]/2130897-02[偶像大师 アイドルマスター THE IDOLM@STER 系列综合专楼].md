@@ -1820,3 +1820,20 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Anatoly  
+##### 1679#       发表于 2024-2-29 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">学园目前这过时概念我怎么感觉要死也就和sc一块儿死了，还说不好谁早
+
+*****
+
+####  游蜓  
+##### 1680#       发表于 2024-2-29 11:55
+
+爆笑回旋镖了，不可不尝
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

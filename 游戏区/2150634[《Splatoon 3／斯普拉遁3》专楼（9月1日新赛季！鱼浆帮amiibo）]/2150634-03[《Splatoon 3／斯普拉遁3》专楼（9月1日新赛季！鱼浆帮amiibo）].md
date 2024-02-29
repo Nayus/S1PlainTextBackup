@@ -4576,3 +4576,22 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 看了b站百鸟的视频，dlc小8皮套里是新3号啊，研究所这是埋的啥伏笔
 
+
+*****
+
+####  DeltaStriker  
+##### 3452#       发表于 2024-2-29 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64100441&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-2-29 08:30</a>
+看了b站百鸟的视频，dlc小8皮套里是新3号啊，研究所这是埋的啥伏笔</blockquote>
+可能new3也是和10008号一样从深海地铁逃跑的章鱼
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3453#       发表于 2024-2-29 11:54
+
+奶啤这赛季都没怎么打，本身也就佛系玩了吧，昨天看nanato冲3000又欢乐又折磨
+

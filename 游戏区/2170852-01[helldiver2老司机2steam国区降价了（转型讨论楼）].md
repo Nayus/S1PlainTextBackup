@@ -10929,3 +10929,12 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 枪械升级确实现在非常必要的，人物装备性能太弱了，1、2号位武器没有说那把特别强，即使是连喷换成其他武器也不是说不能用，使用率高的还是战略支援里的配置
 
+
+*****
+
+####  DawnGuardian  
+##### 1103#       发表于 2024-2-29 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104827&amp;ptid=2170852" target="_blank"> ykyin09 发表于 2024-2-29 15:01</a> 引用: smdzh2 发表于 2024-2-29 13:28 引用:BadYanL 发表于 2024-2-29 13:08 机甲画面泄漏 内容更新应该快了，传闻三月中。 又可以愉快地踩队友了  不如一代的装甲车，没停稳队友下车直接压死 </blockquote>
+一代那三蹦子，网不好的时候下车必定送走一名队友来自: iPhone客户端
+

@@ -4658,3 +4658,13 @@ BV1TW421P7he
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  schneehertz  
+##### 414#         楼主| 发表于 2024-2-29 17:30
+
+等离子牌组只要拿到一张高筹码就能用高牌度过前期，是比较适合打无尽的牌组
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

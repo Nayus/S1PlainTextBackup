@@ -4719,3 +4719,37 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 之前都是内部联动
 
+
+*****
+
+####  墨染白泉  
+##### 3466#       发表于 2024-2-29 17:28
+
+<img src="https://img.saraba1st.com/forum/202402/29/172807t74olwwul70jll7r.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1709198875933.jpg</strong> (183.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-29 17:28 上传
+
+这次的日服祭典勉强算外部联动吧
+
+
+*****
+
+####  墨染白泉  
+##### 3466#       发表于 2024-2-29 17:28
+
+<img src="https://img.saraba1st.com/forum/202402/29/172807t74olwwul70jll7r.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1709198875933.jpg</strong> (183.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-2-29 17:28 上传
+
+这次的日服祭典勉强算外部联动吧
+

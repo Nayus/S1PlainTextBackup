@@ -4215,3 +4215,11 @@ pp的应该是花瓣
 
 看上面说的去看了眼新活，太搞了，禁了音乐祭学生会士气下降导致马上要到的全国统考发挥不好，结果理事长说为了风气好学生成绩下降也无所谓，我寻思你们这是个学校吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kfly  
+##### 13686#       发表于 2024-2-29 10:09
+
+这是计划的一部分.jpg
+

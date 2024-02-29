@@ -4499,3 +4499,20 @@ Tip：长按R直接重开</blockquote>
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  himtom  
+##### 402#       发表于 2024-2-29 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64100055&amp;ptid=2154925" target="_blank">grox133 发表于 2024-2-29 03:56</a>
+
+同花感觉就是过渡，不算无尽也是组小丑打高牌对子强</blockquote>
+牌型本来就是过渡的啊
+
+就拿你们讨论热度最高的同花来说，没记错的话1级+15筹码+2倍数吧
+
+好的小丑哪个不比这个成长快得多
+
+而且感觉无论你前面玩什么牌型，打到无尽最后基本都会变成同花五条or只出单牌，因为后面都是在想办法复制钢铁红蜡封+删其他牌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

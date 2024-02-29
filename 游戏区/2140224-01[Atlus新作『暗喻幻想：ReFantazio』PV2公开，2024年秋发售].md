@@ -2662,3 +2662,13 @@ A Netflix game is part of this plan.
 [https://www.microsoft.com/zh-hk/p/暗喻幻想-refantazio/9n5dv8310xp7](https://www.microsoft.com/zh-hk/p/暗喻幻想-refantazio/9n5dv8310xp7)
 <img src="https://p.sda1.dev/15/843bb5c0d128db20dca86e201552379a/Screenshot_2024-02-29-09-54-49-519_com.yandex.browser-edit.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  walfeds  
+##### 159#       发表于 2024-2-29 10:07
+
+参考别的页面应该是10月12
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

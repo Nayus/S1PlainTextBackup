@@ -10910,3 +10910,14 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和朋友2个人打难度5的防守虫子战，趴在岩石上面用机枪扫射的感觉，非常攒，手柄的震动反馈太棒了，渐渐理解FPS的爽感了。
 
+
+*****
+
+####  FLZB  
+##### 1101#       发表于 2024-2-29 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64105419&amp;ptid=2170852" target="_blank">Launce 发表于 2024-2-29 15:52</a>
+
+很像我遇到的一次，飞机来了，我这还在ETA一分多，接着突然就飞机离开画面了 ...</blockquote>
+虽然我也碰到过这个离谱bug，但从这逼的反常表现来看不像是bug。玛德以后要化身督战队了，撤离时谁磨磨唧唧的就直接枪毙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

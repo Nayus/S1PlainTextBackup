@@ -4607,3 +4607,19 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  oi99o  
+##### 3455#       发表于 2024-2-29 12:42
+
+这个晶片只能用伞刷出来吗？
+
+<img src="https://img.saraba1st.com/forum/202402/29/124209egu8npeken8znngn.jpg" referrerpolicy="no-referrer">
+
+<strong>2024022912381700-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (147.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 12:42 上传
+

@@ -30,3 +30,11 @@
 
 赶在灵脉石过期前把ort打完了，最后一管血靠夏绿蒂磨死的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飞霞精灵  
+##### 46199#       发表于 2024-2-29 14:15
+
+灵脉石之前推完了大尼托打雨神剧情，然后一看下一战2人打伊斯卡利，灵脉石过期了真亏。
+

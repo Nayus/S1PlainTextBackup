@@ -10856,3 +10856,29 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 没这team kill好多乐子视频就没了
 
+
+*****
+
+####  FLZB  
+##### 1095#       发表于 2024-2-29 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101701&amp;ptid=2170852" target="_blank">swrrt 发表于 2024-2-29 10:31</a>
+
+别人没上船的话就一枪崩了捡了样本走</blockquote>
+我跟房主已经先上船了
+
+*****
+
+####  kalavinka  
+##### 1096#         楼主| 发表于 2024-2-29 15:43
+
+枪械升级快端上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RockingHorse  
+##### 1097#       发表于 2024-2-29 15:47
+
+看不到飞机的BUG我也遇到过，我的视角看来是我一个人在停机坪，上面啥都没有，队友全去了不知道什么地方，一开始还以为去捡东西了，只到倒计时结束我才看到飞机和队友起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

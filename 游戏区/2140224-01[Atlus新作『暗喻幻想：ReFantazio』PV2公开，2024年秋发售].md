@@ -2672,3 +2672,21 @@ A Netflix game is part of this plan.
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Piano-Forest  
+##### 160#         楼主| 发表于 2024-2-29 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101291&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-2-29 10:01</a>
+
+微软商店网页显示
+
+發行日期：12/10/2024</blockquote>
+对比港服其他商店页面应该是或将于10月12日发售
+
+星空 23年9月6日发售
+
+發行日期：6/9/2023
+[https://www.microsoft.com/zh-hk/p/starfield/9ncjsxwztp88](https://www.microsoft.com/zh-hk/p/starfield/9ncjsxwztp88)
+

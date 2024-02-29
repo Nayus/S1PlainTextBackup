@@ -614,3 +614,14 @@ tenso主要就是贵啊 转运和代购都贵 发送没有自有线路
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  伞木霙  
+##### 68#       发表于 2024-2-29 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64100486&amp;ptid=2173464" target="_blank">木谷高明 发表于 2024-2-29 08:38</a>
+
+图转群</blockquote>
+好家伙，真要有2000多本，就是十年起步<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

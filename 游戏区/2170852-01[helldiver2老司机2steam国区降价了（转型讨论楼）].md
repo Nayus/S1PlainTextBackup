@@ -10768,3 +10768,21 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 500kg感觉杀伤范围太小了，我换成集束炸弹清中轻甲</blockquote>
 500kg主要用来对付泰坦，有磁轨炮或者轨道武器可以带别的
 
+
+*****
+
+####  BadYanL  
+##### 1087#       发表于 2024-2-29 12:08
+
+[机甲画面泄漏](https://www.reddit.com/r/Helldivers/comments/1b28cyd/mechs_enjoy/)
+
+内容更新应该快了，传闻三月中。
+
+<img src="https://img.saraba1st.com/forum/202402/29/120818bjx49ujuo4mmwxm4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1615.jpeg</strong> (113.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 12:08 上传
+

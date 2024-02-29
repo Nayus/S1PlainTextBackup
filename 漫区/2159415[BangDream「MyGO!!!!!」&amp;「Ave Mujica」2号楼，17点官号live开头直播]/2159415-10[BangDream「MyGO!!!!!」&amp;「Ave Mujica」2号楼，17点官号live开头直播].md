@@ -4781,3 +4781,11 @@ wsd对得起林小姐的用心吗，我劝手游文案善良多写好好写<img 
 管人团……啊这</blockquote>
 “大家都很珍惜自己的时间呢”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 13740#       发表于 2024-2-29 22:20
+
+整理了一下今天的情报，看起来信息量大实际上好像只有周年卡面和几个新迷你专是新情报，其他全是老消息复刻，武士道是不是被工艺蛋换家搞得焦头烂额所以今年拿不出什么新东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

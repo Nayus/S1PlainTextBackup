@@ -10819,3 +10819,11 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 内容更新应该快了，传闻三月中。</blockquote>
 又可以愉快地踩队友了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绯想天の天子  
+##### 1091#       发表于 2024-2-29 13:58
+
+昨天试了下轨道空爆，清怪比120 380好使多了。
+

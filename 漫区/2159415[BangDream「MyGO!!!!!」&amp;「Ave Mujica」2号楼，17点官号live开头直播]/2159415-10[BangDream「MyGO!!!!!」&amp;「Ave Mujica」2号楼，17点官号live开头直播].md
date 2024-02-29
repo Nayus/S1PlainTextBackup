@@ -4267,3 +4267,13 @@ pp的应该是花瓣
 
 实装管人团可能性有点小，不然昨天官方周年抽奖那个各团标志集合应该会把管人放进去
 
+
+*****
+
+####  基神的强袭自由  
+##### 13692#       发表于 2024-2-29 14:04
+
+但是抽奖有管人色纸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正我搞了两个号投稿试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

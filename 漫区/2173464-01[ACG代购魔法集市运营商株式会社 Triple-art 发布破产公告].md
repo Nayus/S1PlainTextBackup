@@ -647,3 +647,18 @@ tenso或者jpgoodbuy
 本子mandarake有的话就直接直邮了。不过几家二手店都有不同程度 ...</blockquote>
 jpg现在挖煤不要手续费，转运合箱6个内不用手续费，缺点是免费仓储期就30天
 
+
+*****
+
+####  X(iaolw)S  
+##### 71#       发表于 2024-2-29 12:59
+
+<blockquote>引用第67楼伞木霙于2024-02-29 10:29发表的  :
+
+引用:木谷高明 发表于 2024-2-29 08:38图转群好家伙，真要有2000多本，就是十年起步</blockquote>
+@伞木霙
+
+c102扫货，不奇怪，其他代购app都不敢接的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

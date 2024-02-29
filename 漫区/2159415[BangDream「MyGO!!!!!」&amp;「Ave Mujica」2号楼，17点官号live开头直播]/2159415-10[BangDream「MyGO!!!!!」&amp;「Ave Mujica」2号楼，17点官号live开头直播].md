@@ -4241,3 +4241,14 @@ pp的应该是花瓣
 
 不会今晚宣布先实装管人团吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 13689#         楼主| 发表于 2024-2-29 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64102700&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-2-29 11:41</a>
+
+不会今晚宣布先实装管人团吧</blockquote>
+9周年实装第9团是吧
+

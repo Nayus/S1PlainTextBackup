@@ -3577,3 +3577,13 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oi99o  
+##### 4145#       发表于 2024-3-1 01:49
+
+第七集那个算是放magus技能吗？毕竟下一个外面镜头就没人影了我还以为只是演出效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

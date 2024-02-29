@@ -704,3 +704,24 @@ jchere现在煤炉代购也不需要手续费，但是搜索页面不如jpg的�
 
 拼团原来不是主营业务吗，我用玛莎多拉主要就是拼团省运费，买点啥galgame和画集的收藏用，耻物倒是都还没有买过，最近开了个口子在国内平台买了个R18抱枕很满意本来想要多搞点正品耻物的，没想到就这样嘎了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  btnooni  
+##### 76#       发表于 2024-2-29 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64102883&amp;ptid=2173464" target="_blank">星降る森 发表于 2024-2-29 11:56</a>
+
+jpg现在挖煤不要手续费，转运合箱6个内不用手续费，缺点是免费仓储期就30天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">那很可以啊 tenso也就前30天给合箱 下次试试
+
+*****
+
+####  btnooni  
+##### 77#       发表于 2024-2-29 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64100541&amp;ptid=2173464" target="_blank">password 发表于 2024-2-29 08:44</a>
+
+tenso主要就是贵啊 转运和代购都贵 发送没有自有线路</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧看来是该换个试试了。。。。说来最近一次选的DHL结果有个萌妹打来电话让我上传商品封面报关，瞬间社死
+

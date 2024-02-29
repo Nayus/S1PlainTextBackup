@@ -1895,3 +1895,40 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 学生就不能用名片了吗<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  露崎まひる  
+##### 1688#       发表于 2024-2-29 17:50
+
+前情提要，主办方以某些不可说的原因不允许台下的应援行为以及各种厄介行为
+
+以下为大致内容，有点太多了不是很想发图
+[https://weibo.com/5974224804/O2QG1kp30](https://weibo.com/5974224804/O2QG1kp30)
+[https://weibo.com/1018642752/O2QM5ldmM](https://weibo.com/1018642752/O2QM5ldmM)
+
+主办方和某些老害的对决，一会定义应援一会定义厄介，后经过一系列汴京后似乎改了点规则
+
+ps：有点太乐了，只是看乐子的，有种以前厄介警察的感觉了，像是回到了17，18年你们这些小圈子真的是池小王八多，庙小妖风大没想到2024年我还能见到这种事情
+
+以下为两版须知
+
+<img src="https://img.saraba1st.com/forum/202402/29/175010gr7rv7noc3nnxo7s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 17:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+9630e75cf08558eb801241bb5a69f063.jpg
+(94.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 17:49 上传
+
+<img src="https://img.saraba1st.com/forum/202402/29/174950xwge4ob4h4hz34g8.jpg" referrerpolicy="no-referrer">
+

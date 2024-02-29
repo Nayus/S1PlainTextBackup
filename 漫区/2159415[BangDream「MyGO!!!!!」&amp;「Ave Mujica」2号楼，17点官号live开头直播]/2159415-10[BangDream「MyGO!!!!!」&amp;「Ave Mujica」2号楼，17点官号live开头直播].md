@@ -5056,3 +5056,13 @@ Mujica来活了</blockquote>
 
 哎，虽然不是李噶吃也随便写两句吧。超话才500不到粉，买粉害人啊。
 
+
+*****
+
+####  基神的强袭自由  
+##### 13765#       发表于 2024-3-1 03:26
+
+突然想起来我有四个手机号，明天再写三条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

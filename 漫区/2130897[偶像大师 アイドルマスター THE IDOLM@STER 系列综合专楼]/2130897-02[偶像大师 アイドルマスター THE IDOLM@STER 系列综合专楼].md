@@ -2043,3 +2043,11 @@ ps：有点太乐了，只是看乐子的，有种以前厄介警察的感觉了
 
 最近偶尔会玩玩xbox 360的 idolm[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) 有着对吃豆人玩法最令人惊奇的再利用方式
 
+
+*****
+
+####  Srchy  
+##### 1702#       发表于 2024-3-1 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">入土看的是代孙怎么想的跟你卖了多少真没多大关系，难不成代孙还能反过头来让老六给老东西爆金币
+

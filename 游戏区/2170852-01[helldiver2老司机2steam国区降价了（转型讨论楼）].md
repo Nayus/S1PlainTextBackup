@@ -11036,3 +11036,25 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 超级地球被生化人击溃了！
 
+
+*****
+
+####  YY骑士  
+##### 1115#       发表于 2024-3-1 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64102055&amp;ptid=2170852" target="_blank">flak37 发表于 2024-2-29 10:56</a>
+
+500kg感觉杀伤范围太小了，我换成集束炸弹清中轻甲</blockquote>
+我是单走一路，对付泰坦和巢里的坦克虫用的，一般不扔，轨道炮可能还用的多点，清掉样本点里的单个坦克虫。
+
+配合潜行甲，卡视野，扔一下，如果清完虫巢跑路时候又坦克虫追你，拉开距离脚下扔一个，所以我有时候在考虑是不是换110火箭弹3发，1发稳定重伤一只坦克虫，还能把背上打爆，不知道3发能不能干掉泰坦，这样灵活点。
+
+我拉怪多的时候也就是清完巢走人时候。。。平时靠开路侦察兵的轻甲一路摸过去的。
+
+*****
+
+####  绯想天の天子  
+##### 1116#       发表于 2024-3-1 00:31
+
+该找点软柿子虫子复仇啦，速攻维尔德<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

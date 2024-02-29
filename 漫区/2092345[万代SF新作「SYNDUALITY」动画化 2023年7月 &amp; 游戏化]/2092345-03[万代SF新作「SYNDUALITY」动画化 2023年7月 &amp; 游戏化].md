@@ -3481,3 +3481,20 @@ rip
 第一季最后不管是诺瓦露还是米斯提，最后加载界面都会显示noir/mys ...</blockquote>
 其实我感觉可能是因为要做间谍的关系，歌姬的有些信息是被隐藏或过滤了，比如她的主人是威斯但自称自己无主而其他人看不出来这点
 
+
+*****
+
+####  NeloAngelo  
+##### 4138#       发表于 2024-3-1 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109682&amp;ptid=2092345" target="_blank">zzy516232108 发表于 2024-2-29 23:02</a>
+话说歌姬是0式magus算是吃书吧？
+
+第一季最后不管是诺瓦露还是米斯提，最后加载界面都会显示noir/mys ...</blockquote>
+回看了下还真明确没说歌姬是零式. 
+不过, 阿美制造的magus默认都是0式.  泛用型是在阿美毁灭后才有的.
+
+第一季时看到歌姬是来自阿美, 而且第7集还魂漂出来, 用了magus技能(第3集安洁说了"没见过会魂漂的msgus", 而所有0式都有魂漂放技能的镜头), 所以那时大家就已经默认她是0式了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

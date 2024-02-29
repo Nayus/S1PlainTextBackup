@@ -605,3 +605,27 @@ pulse elite用了几天，感觉还可以，就是蓝牙连pc貌似会偶尔触�
 
 指起来，先直sop，再指新机！<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  科师傅冰红茶  
+##### 73#       发表于 2024-2-29 19:30
+
+一半回复都是任任给的索专楼<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 74#       发表于 2024-2-29 19:31
+
+ps5买了3年 一直吃灰
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黄泉川此方  
+##### 75#       发表于 2024-2-29 19:32
+
+我一直是索索啊，耳机都是索尼的，耳机都买过索尼（爱立信）
+

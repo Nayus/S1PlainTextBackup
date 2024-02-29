@@ -10882,3 +10882,31 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 看不到飞机的BUG我也遇到过，我的视角看来是我一个人在停机坪，上面啥都没有，队友全去了不知道什么地方，一开始还以为去捡东西了，只到倒计时结束我才看到飞机和队友起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 1098#       发表于 2024-2-29 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104319&amp;ptid=2170852" target="_blank">lazycat233 发表于 2024-2-29 14:17</a>
+
+会不会是遇到了看不见撤离飞机的bug，我遇到过这种bug</blockquote>
+不像，很明显是故意的。我和房主上飞机之后他还往机舱下面扔了个补给空投，得亏当时还剩几秒就起飞了，否则这把一个都走不了，之后结算他也强退了
+
+*****
+
+####  Launce  
+##### 1099#       发表于 2024-2-29 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64105394&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-2-29 15:50</a>
+
+不像，很明显是故意的。我和房主上飞机之后他还往机舱下面扔了个补给空投，得亏当时还剩几秒就起飞了，否 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很像我遇到的一次，飞机来了，我这还在ETA一分多，接着突然就飞机离开画面了
+
+*****
+
+####  wthall  
+##### 1100#       发表于 2024-2-29 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和朋友2个人打难度5的防守虫子战，趴在岩石上面用机枪扫射的感觉，非常攒，手柄的震动反馈太棒了，渐渐理解FPS的爽感了。
+

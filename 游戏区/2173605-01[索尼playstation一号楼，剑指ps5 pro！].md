@@ -856,3 +856,14 @@ https://bbs.saraba1st.com/2b/thread-672040-1-1.html
 ps5pro的rumor里比较感兴趣的就是索dlss了，不知道能做到啥水平，硬件本身没啥意思 ...</blockquote>
 大概率就是amd那个fsr3.0
 
+
+*****
+
+####  ycy8332589  
+##### 100#       发表于 2024-2-29 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64105505&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-2-29 15:59</a>
+
+ps5pro和7rb pc版哪个会先出呢</blockquote>
+pro，应该10-11月就出了，ff7上pc至少25年的事
+

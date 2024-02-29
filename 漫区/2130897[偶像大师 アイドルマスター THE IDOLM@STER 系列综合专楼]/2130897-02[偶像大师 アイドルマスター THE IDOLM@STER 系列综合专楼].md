@@ -2033,3 +2033,13 @@ ps：有点太乐了，只是看乐子的，有种以前厄介警察的感觉了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">半截入土都出来了，半截入土的企划能圆盘爆卖一万本？
 
+
+*****
+
+####  760194962  
+##### 1701#       发表于 2024-2-29 23:26
+
+想留个言来着还以为是沉楼 但是发现怎么今天还有留言 再看眼哦原来是动漫版
+
+最近偶尔会玩玩xbox 360的 idolm[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) 有着对吃豆人玩法最令人惊奇的再利用方式
+

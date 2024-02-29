@@ -4835,3 +4835,46 @@ R组巡演+少歌运动会+连着四期生放送到场。
 这么说十周年就是mujica登场了</blockquote>
 9年前木谷说过希望邦多利成为十年企划，那么十周年的大新闻......<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13746#       发表于 2024-2-29 23:17
+
+<img src="https://img.saraba1st.com/forum/202402/29/231659mgiy2lkl9sovziki.jpg" referrerpolicy="no-referrer">
+
+<strong>23388D7E53A7B6A0C7D16336392407C6.jpg</strong> (360.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 23:16 上传
+
+Mujica来活了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 13747#       发表于 2024-2-29 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109370&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-29 22:28</a>
+
+这也太幽默了，音宝“WB1万粉、超话4千关注”，李子“WB9万粉、超话关注1百7”” ...</blockquote>
+紫吧都在骂谁在那里瞎买粉<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳥栖朝  
+##### 13748#       发表于 2024-2-29 23:23
+
+看李子说在wb有8w粉，她怕不是当真了，已经提前开始尴尬了，只能稍微去凑个数
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NODY  
+##### 13749#       发表于 2024-2-29 23:24
+
+微博又不能看在线人数，不用担心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

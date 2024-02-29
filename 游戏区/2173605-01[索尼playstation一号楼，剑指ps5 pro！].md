@@ -946,3 +946,11 @@ pro，应该10-11月就出了，ff7上pc至少25年的事
 
 我对ps5就一个要求：出个方盒子吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十六夜镜月  
+##### 110#       发表于 2024-3-1 04:08
+
+好好好，pro就靠你们指出来，使劲指，最好能把三代掌机指出来！
+

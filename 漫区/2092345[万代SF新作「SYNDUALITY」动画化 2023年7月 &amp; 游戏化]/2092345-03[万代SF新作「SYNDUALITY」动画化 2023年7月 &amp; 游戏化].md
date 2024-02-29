@@ -3512,3 +3512,18 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NeloAngelo  
+##### 4140#       发表于 2024-3-1 00:47
+
+ 本帖最后由 NeloAngelo 于 2024-3-1 00:49 编辑 
+
+第2集mouton直接就说noir是0式, 这一点也很可疑.
+
+不如说, 最可疑的是那个pvpve游戏. 人手一个会放技能的magus. 0式遍地走? 然后又是阿美崩坏后? 游戏多人模式的时间线到底设定在什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+感觉只能多人模式不要在意世界观, 一切剧情以单人模式为准了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

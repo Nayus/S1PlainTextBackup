@@ -895,3 +895,20 @@ pro，应该10-11月就出了，ff7上pc至少25年的事
 
 就29日一天的FF7RB的体验 PS5PRO必须得出 除非2025年上PS6
 
+
+*****
+
+####  椎名mahuyo  
+##### 104#       发表于 2024-3-1 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我电脑还是3060，现在能电视上玩还是电视玩PS5版
+
+不过PC的独占游戏还是最多的，很多时候还是得PC上玩
+
+*****
+
+####  黑色的js  
+##### 105#       发表于 2024-3-1 00:50
+
+真有你的啊se<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真tm糊，我李姐为什么都想着出pro了
+

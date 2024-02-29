@@ -1845,3 +1845,13 @@ sc这种手游都能暴死的货色根本没有一战之力 ...</blockquote>
 
 这个学园imas的游戏类型估计不会纯音游
 
+
+*****
+
+####  eaglu  
+##### 1682#       发表于 2024-2-29 13:33
+
+吃屎都赶不上热乎的很符合我对BN的一贯印象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

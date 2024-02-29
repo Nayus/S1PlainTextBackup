@@ -10807,3 +10807,15 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 500kg主要用来对付泰坦，有磁轨炮或者轨道武器可以带别的</blockquote>
 泰坦用110火箭弹挺好用，主要是有锁定，如果命中头部附近也能一击必杀，而且可以打三次。
 
+
+*****
+
+####  smdzh2  
+##### 1090#       发表于 2024-2-29 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64103023&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-2-29 13:08</a>
+机甲画面泄漏
+
+内容更新应该快了，传闻三月中。</blockquote>
+又可以愉快地踩队友了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

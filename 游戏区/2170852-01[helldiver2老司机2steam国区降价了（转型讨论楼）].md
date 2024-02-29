@@ -11069,3 +11069,11 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 我是单走一路，对付泰坦和巢里的坦克虫用的，一般不扔，轨道炮可能还用的多点，清掉样本点里的单个坦克虫 ...</blockquote>
 110纯纯一坨，伤害感人不说泰坦在移动的话大概率都炸不到，这玩意唯一用处大概就是炸机器人的建筑设施
 
+
+*****
+
+####  smdzh2  
+##### 1118#       发表于 2024-3-1 01:04
+
+哑铃人の怒<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

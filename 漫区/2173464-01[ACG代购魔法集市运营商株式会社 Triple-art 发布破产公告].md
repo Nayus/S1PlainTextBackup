@@ -670,3 +670,14 @@ c102扫货，不奇怪，其他代购app都不敢接的<img src="https://static.
 
 jchere现在煤炉代购也不需要手续费，但是搜索页面不如jpg的好使，免费仓储也是30天
 
+
+*****
+
+####  黑上シグマ  
+##### 73#       发表于 2024-2-29 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呆的一个拼团群，老大成天就喷玛沙对拼团团长各种设限制，就为了推他们自己的喵急便
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在玛沙直接没了，而那个团长也失踪了几个月，怕不是也进去了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

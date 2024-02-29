@@ -10994,3 +10994,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 叒炸了，这服务器有没有的好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 1110#       发表于 2024-2-29 22:30
+
+看b站有人测出来这个踏步者机甲正面是轻甲<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3431,3 +3431,20 @@ rip
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 非常有可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 4134#         楼主| 发表于 2024-2-29 22:26
+
+第18話「Beyond the sky」原画
+<[img src="https://s2.loli.net/2024/02/29/rSeogPINOjkpY49.jpg" referrerpolicy="no-referrer">
+<[img src="https://s2.loli.net/2024/02/29/y5DYnM18qdSBpaV.jpg" referrerpolicy="no-referrer">
+<[img src="https://s2.loli.net/2024/02/29/NiscE1IVMfQWABS.jpg" referrerpolicy="no-referrer">
+
+第19話「Body double」原画
+<[img src="https://s2.loli.net/2024/02/29/NxOdpHk4F3bwh7B.jpg" referrerpolicy="no-referrer">
+<[img src="https://s2.loli.net/2024/02/29/mpCezT1NFtaw8I2.jpg" referrerpolicy="no-referrer">
+<[img src="https://s2.loli.net/2024/02/29/6s8VKzFO1n9EtfU.jpg" referrerpolicy="no-referrer">
+<[img src="https://s2.loli.net/2024/02/29/MTZnR483c1erfOV.jpg" referrerpolicy="no-referrer">
+

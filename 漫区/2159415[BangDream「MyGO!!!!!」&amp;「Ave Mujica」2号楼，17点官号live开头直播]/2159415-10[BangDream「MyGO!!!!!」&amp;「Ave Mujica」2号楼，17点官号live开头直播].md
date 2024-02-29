@@ -5048,3 +5048,11 @@ Mujica来活了</blockquote>
 
 唉，李子用iPad Pro，我用TabS9 Ultra，已经有一道厚障壁了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak22ak  
+##### 13764#       发表于 2024-3-1 02:00
+
+哎，虽然不是李噶吃也随便写两句吧。超话才500不到粉，买粉害人啊。
+

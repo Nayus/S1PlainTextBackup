@@ -10709,3 +10709,23 @@ yysy，这游戏喜剧效果确实同类第一，看鬼佬的搞笑集锦乐死<
 最低配置:</blockquote>
 啊草，显卡和内存都没问题，cpu只有i5……
 
+
+*****
+
+####  布伦史塔德  
+##### 1081#       发表于 2024-2-29 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64099939&amp;ptid=2170852" target="_blank">装甲兔 发表于 2024-2-29 02:27</a>
+
+啊草，显卡和内存都没问题，cpu只有i5……</blockquote>
+这是4代i7，十年的cpu了
+
+
+*****
+
+####  Znesmoc  
+##### 1082#       发表于 2024-2-29 09:13
+
+这游戏我在老家的时候就是4790k+1070玩的
+只能说有些惨不忍睹，最低画质60帧都不稳，忘了商店页上说的最低是不是指的1080p30fps…
+

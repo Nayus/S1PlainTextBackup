@@ -4733,3 +4733,13 @@ BV1TW421P7he
 
 以及这局没有拿到蓝图
 
+
+*****
+
+####  yozoraxsx  
+##### 420#       发表于 2024-2-29 23:45
+
+黄色打到了紫注 切等离子到了红注吃瘪了好几盘 感觉果然还是红注删了小盲注的3块钱是最恶心的
+
+—— 来自 Xiaomi 22041216UC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

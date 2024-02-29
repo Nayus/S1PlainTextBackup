@@ -938,3 +938,11 @@ pro，应该10-11月就出了，ff7上pc至少25年的事
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  liuguokobe  
+##### 109#       发表于 2024-3-1 03:45
+
+我对ps5就一个要求：出个方盒子吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

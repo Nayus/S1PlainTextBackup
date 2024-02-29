@@ -2720,3 +2720,19 @@ A Netflix game is part of this plan.
 论坛助手,iPad</blockquote>
 据说男主台词有三百页哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 164#         楼主| 发表于 2024-2-29 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101211&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-2-29 09:55</a>
+
+港服商店页面已上线：
+
+https://store.playstation.com/zh-hant-hk/concept/10001029/
+
+https://www.xbox.com ...</blockquote>
+Steam页面：
+[https://store.steampowered.com/app/2679460/ReFantazio/](https://store.steampowered.com/app/2679460/ReFantazio/)
+

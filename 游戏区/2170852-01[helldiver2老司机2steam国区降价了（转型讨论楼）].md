@@ -10948,3 +10948,24 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  looptube  
+##### 1105#       发表于 2024-2-29 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64108727&amp;ptid=2170852" target="_blank">烈焰舞阳 发表于 2024-2-29 21:15</a>
+
+服务器又民主爆破了？
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+应该是的，打了两把结算0样本
+
+
+*****
+
+####  Sayuki1025  
+##### 1106#       发表于 2024-2-29 21:40
+
+趁着爆炸多打点样本 有返利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

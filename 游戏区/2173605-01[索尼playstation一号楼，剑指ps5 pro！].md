@@ -697,3 +697,26 @@ Pro出来还是看独占阵容吧，目前这阵容一年下来ps5甚至开不�
 
 —— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  阳ノ下光  
+##### 83#       发表于 2024-2-29 21:38
+
+搞得专楼多难开一样，不过其实也不用开，去微软楼团建的索索都比软软多了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  npk7k  
+##### 84#       发表于 2024-2-29 21:38
+
+专楼就不要讨论这些那些了，开开心心讨论ps吧
+
+
+*****
+
+####  npk7k  
+##### 85#       发表于 2024-2-29 21:40
+
+前排建议rule 禁止挂人
+

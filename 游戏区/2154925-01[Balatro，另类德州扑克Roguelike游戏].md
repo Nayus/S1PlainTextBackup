@@ -4687,3 +4687,13 @@ BV1TW421P7he
 怎么看每回合我的最常用牌型有人知道吗</blockquote>
 左边比赛信息，每个牌型最后面的数字就是你用这个牌型的总次数
 
+
+*****
+
+####  a4ac7  
+##### 417#       发表于 2024-2-29 22:38
+
+<img src="https://picss.sunbangyan.cn/2024/02/29/cef91dcebbc392202f83630324645a6f.jpeg" referrerpolicy="no-referrer">
+
+黑注高歌猛进中，看BOSS是extra large，不小心买了，吓人，还好SL回来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

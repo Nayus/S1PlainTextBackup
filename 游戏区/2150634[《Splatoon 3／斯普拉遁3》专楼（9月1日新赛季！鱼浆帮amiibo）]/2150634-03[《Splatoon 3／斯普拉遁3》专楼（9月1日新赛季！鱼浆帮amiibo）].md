@@ -4863,3 +4863,31 @@ Pro右摇杆咋修，狗东买的国行，但只保一年，已经过保，直�
 
 贝斯果然毫无存在感嘛
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3477#       发表于 2024-2-29 22:38
+
+草，看nanato直播说下个赛季要玩别的游戏了，喷太累了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3478#       发表于 2024-2-29 22:42
+
+肯定鼓呀，解压<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Pumpkin_ccc  
+##### 3479#       发表于 2024-2-29 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109048&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-29 21:51</a>
+
+几天没打，发现右摇杆确实是漂了，负战绩不知道有几份它的“功劳”
+
+Pro右摇杆咋修，狗东买的国行， ...</blockquote>
+相信我重直接买一个或者自行拆开清理，我现在只想把拿着XB2手柄打喷和怪猎的自己掐死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

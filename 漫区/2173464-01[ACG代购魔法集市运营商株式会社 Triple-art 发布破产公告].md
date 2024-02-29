@@ -566,3 +566,31 @@ dlsite我都嫌麻烦直接刷信用卡了，谁叫现在汇率这么友好
 
 booth上有不少相中的东西，但邮费一家一家算真的伤，有仓库还是刚需
 
+
+*****
+
+####  木谷高明  
+##### 63#       发表于 2024-2-29 08:38
+
+图转群
+<img src="https://p.sda1.dev/15/518bd405a6ba74688b6ebe448fa1b635/1000144999.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  password  
+##### 64#       发表于 2024-2-29 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64100282&amp;ptid=2173464" target="_blank">btnooni 发表于 2024-2-29 07:41</a>
+所以jpgoodbuy和tenso相比起来有啥优劣？
+
+本子mandarake有的话就直接直邮了。不过几家二手店都有不同程度 ...</blockquote>
+tenso主要就是贵啊 转运和代购都贵 发送没有自有线路
+
+*****
+
+####  osore  
+##### 65#       发表于 2024-2-29 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这瓜看着挺乐的
+

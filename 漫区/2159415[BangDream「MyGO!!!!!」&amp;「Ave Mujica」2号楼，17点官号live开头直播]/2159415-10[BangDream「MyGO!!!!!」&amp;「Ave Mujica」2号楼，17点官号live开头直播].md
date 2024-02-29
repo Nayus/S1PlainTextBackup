@@ -4477,3 +4477,36 @@ amita好漂亮
 前岛和政委现在还营业么，好像还没同过框，反三泽和政委是彻底没了</blockquote>
 amita被雪藏那一年生日好像就是和政委一起过的
 
+
+*****
+
+####  DarthAka  
+##### 13708#       发表于 2024-2-29 21:00
+
+无呼吸义务可还行，这一个人唱气口在哪？
+
+
+*****
+
+####  PDQ4  
+##### 13709#       发表于 2024-2-29 21:03
+
+amita都和政委一个事务所了，以后肯定有得卖，amita还是喜欢告白的那种。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Case  
+##### 13710#       发表于 2024-2-29 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64108415&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-2-29 20:42</a>
+
+前岛和政委现在还营业么，好像还没同过框，反三泽和政委是彻底没了</blockquote>
+她这个月11号还在晒政委的CD和巧克力来着。
+
+*****
+
+####  cindy355  
+##### 13711#       发表于 2024-2-29 21:06
+
+打歌，爽！
+

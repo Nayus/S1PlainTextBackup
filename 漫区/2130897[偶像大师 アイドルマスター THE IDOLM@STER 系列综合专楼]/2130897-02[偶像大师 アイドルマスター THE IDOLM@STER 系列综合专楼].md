@@ -2025,3 +2025,11 @@ ps：有点太乐了，只是看乐子的，有种以前厄介警察的感觉了
 
 要是真的是砍资源支持学的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hypnossz86  
+##### 1700#       发表于 2024-2-29 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">半截入土都出来了，半截入土的企划能圆盘爆卖一万本？
+

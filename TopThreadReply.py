@@ -36,7 +36,7 @@ if __name__ == '__main__':
     for file in p.rglob('*.md'):
         if(('虚拟主播区专楼' not in str(file) ) and ('手游专楼' not in str(file))):
             print(str(file))
-            with open (file, 'r',encoding='UTF-8') as f:
+            with open (file, 'r',encoding='utf-8-sig') as f:
                 lines = f.readlines()
                 a = ''
                 for line in lines:
@@ -105,7 +105,7 @@ if __name__ == '__main__':
             namedict[i] = replydict1[k][today][i]['num']
         # namedict.pop('num')
         nameorder = sorted(namedict.items(),key=lambda x:x[1],reverse=True)
-        with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+        with open(rootdir+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
             thdata=json.load(f)
         for i in range(threadnum):
             rstr = rstr +str(i+1)+'. [url=https://bbs.saraba1st.com/2b/thread-'+threadorder[i][0]+'-1-1.html]'+thdata[threadorder[i][0]]['title'] +'[/url]（[b]+'+str(threadorder[i][1])+'[/b]）\n'

@@ -60,3 +60,11 @@
 這把光屬性30%武器也太強了吧。可以取代尤妮琴了。</blockquote>
 增伤区不冲突。倒不如说2024还要暴击才有增伤不行。
 
+
+*****
+
+####  はちたや  
+##### 17641#       发表于 2024-2-29 18:05
+
+连光龙拳都不一定能踢掉的玩意，还踢uni琴呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一个单面绑定四格子的大号水龙枪罢了
+

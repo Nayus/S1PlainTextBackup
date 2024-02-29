@@ -515,3 +515,40 @@ Portal最好搭配加速盒或者路由器加速插件使用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥局域网串流要加速器啊？
 
+
+*****
+
+####  yt5wt2c  
+##### 63#       发表于 2024-2-29 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106754&amp;ptid=2173605" target="_blank">黄泉川此方 发表于 2024-2-29 17:57</a>
+
+为啥局域网串流要加速器啊？</blockquote>
+我是路由翻，查了下，走的谷歌
+
+
+*****
+
+####  gx19860411  
+##### 64#       发表于 2024-2-29 18:05
+
+话说ps4pro+psvr1代多少钱出合适啊？吃灰好久了…
+
+—— 来自 Xiaomi M2011K2C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  医生狼多  
+##### 65#       发表于 2024-2-29 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64106754&amp;ptid=2173605" target="_blank">黄泉川此方 发表于 2024-2-29 17:57</a>
+为啥局域网串流要加速器啊？</blockquote>
+开机要验证<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chivalry  
+##### 66#       发表于 2024-2-29 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">别几把 pro 了，我 ps5 开机时间可能没超过 300h，利用率太低了
+

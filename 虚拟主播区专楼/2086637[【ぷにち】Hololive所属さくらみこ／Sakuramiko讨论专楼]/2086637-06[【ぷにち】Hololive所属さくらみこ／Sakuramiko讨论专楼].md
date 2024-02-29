@@ -800,3 +800,19 @@ A CAP……
 
 对了按照昨天青发的下月直播日程，backroom的最后几关直播在3月3号但是周天也就是说同时视听要么挪到这两天要么推后
 
+
+*****
+
+####  holoan  
+##### 8262#         楼主| 发表于 2024-2-29 17:58
+
+<img src="https://img.saraba1st.com/forum/202402/29/175820e64s3s6u662k28k6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-29 17:58 上传
+
+还是前一版封面有冲击力
+

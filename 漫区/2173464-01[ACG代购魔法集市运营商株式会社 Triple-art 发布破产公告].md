@@ -604,3 +604,13 @@ tenso主要就是贵啊 转运和代购都贵 发送没有自有线路
 
 —— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cnmyster1ous  
+##### 67#       发表于 2024-2-29 10:24
+
+所以如果想单纯转运有什么好的选择吗 玩的日厂游戏中奖+兑换攒了几个周边了想一块拿回来 我自己去兑换的时候要我直接填地址电话啥的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

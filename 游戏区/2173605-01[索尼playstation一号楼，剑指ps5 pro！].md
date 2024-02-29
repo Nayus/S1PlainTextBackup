@@ -371,3 +371,18 @@ kotaku的编辑说这回裁员工作室关门优先级最高的就是MediaMolecu
 
 今年是2024年啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hu794  
+##### 46#       发表于 2024-2-29 16:46
+
+索友来咯
+
+*****
+
+####  clover293  
+##### 47#       发表于 2024-2-29 16:46
+
+不知道sie对失落之魂会怎么搞，希望干点人事吧
+

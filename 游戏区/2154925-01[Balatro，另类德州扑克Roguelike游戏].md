@@ -4597,3 +4597,26 @@ Tip：长按R直接重开</blockquote>
 
 前期发育不好就直接暴毙了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  siriii  
+##### 409#       发表于 2024-2-29 16:33
+
+BV1TW421P7he
+
+这位直接把double类型的得分上限打爆机了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  grox133  
+##### 410#       发表于 2024-2-29 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64105819&amp;ptid=2154925" target="_blank">naclken. 发表于 2024-2-29 16:28</a>
+整副牌弄成钢铁……
+
+那要配合高分强化、买钢铁、转钢铁、删牌库、半截小丑之类的操作一起吧
+
+前期发育不好 ...</blockquote>
+然而核心是养小丑，小丑养完单张随随便便打满分数，而且不会被克制，钢铁红蜡打无尽才是刚需
+

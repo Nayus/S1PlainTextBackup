@@ -4293,3 +4293,14 @@ pp的应该是花瓣
 
 应该是没机会了。五个月指的是8.9.10.11.12吧，正好到mujica动画播出。
 
+
+*****
+
+####  jerryoq1  
+##### 13695#       发表于 2024-2-29 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64103699&amp;ptid=2159415" target="_blank">Toki_Ai 发表于 2024-2-29 13:11</a>
+
+管人团我还是觉得安排的抽象，2年出3团也就算了，资源分派突出一个迷惑 ...</blockquote>
+赌徒心态吧   都快凉了不如赌一把 哪个火资源倾向哪个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

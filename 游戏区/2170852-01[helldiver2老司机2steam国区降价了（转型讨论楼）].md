@@ -10921,3 +10921,11 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 很像我遇到的一次，飞机来了，我这还在ETA一分多，接着突然就飞机离开画面了 ...</blockquote>
 虽然我也碰到过这个离谱bug，但从这逼的反常表现来看不像是bug。玛德以后要化身督战队了，撤离时谁磨磨唧唧的就直接枪毙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 1102#       发表于 2024-2-29 16:37
+
+枪械升级确实现在非常必要的，人物装备性能太弱了，1、2号位武器没有说那把特别强，即使是连喷换成其他武器也不是说不能用，使用率高的还是战略支援里的配置
+

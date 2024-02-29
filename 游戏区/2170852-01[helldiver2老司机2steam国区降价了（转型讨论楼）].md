@@ -11115,3 +11115,11 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  FLZB  
+##### 1123#       发表于 2024-3-1 03:04
+
+也是见识到鬼佬队能有多抽象了，二三十级三条磁轨枪整把被坦克虫追着杀，打完回舰一看三十多级房主爱国行政中心一级没升<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

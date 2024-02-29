@@ -4516,3 +4516,27 @@ Tip：长按R直接重开</blockquote>
 
 而且感觉无论你前面玩什么牌型，打到无尽最后基本都会变成同花五条or只出单牌，因为后面都是在想办法复制钢铁红蜡封+删其他牌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  grox133  
+##### 403#       发表于 2024-2-29 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101346&amp;ptid=2154925" target="_blank">himtom 发表于 2024-2-29 10:07</a>
+牌型本来就是过渡的啊
+
+就拿你们讨论热度最高的同花来说，没记错的话1级+15筹码+2倍数吧
+
+好的小丑哪个不比 ...</blockquote>
+花五张牌组牌型不如直接握几张钢铁红蜡
+
+*****
+
+####  himtom  
+##### 404#       发表于 2024-2-29 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64102670&amp;ptid=2154925" target="_blank">grox133 发表于 2024-2-29 11:38</a>
+
+花五张牌组牌型不如直接握几张钢铁红蜡</blockquote>
+同花五条分数不如只打一张，但是有两张高成长的加基础筹码的小丑是要多出牌的，如果带了其中一张，就会选择打同花五条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

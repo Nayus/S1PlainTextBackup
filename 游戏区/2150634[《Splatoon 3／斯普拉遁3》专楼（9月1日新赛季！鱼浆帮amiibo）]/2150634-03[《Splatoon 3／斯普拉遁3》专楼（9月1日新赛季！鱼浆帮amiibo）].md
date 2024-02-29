@@ -4595,3 +4595,15 @@ b站找几个主播加群等着打私房呗，xp有个1800以上基本就不会�
 
 奶啤这赛季都没怎么打，本身也就佛系玩了吧，昨天看nanato冲3000又欢乐又折磨
 
+
+*****
+
+####  DeltaStriker  
+##### 3454#       发表于 2024-2-29 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64102858&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-2-29 11:54</a>
+奶啤这赛季都没怎么打，本身也就佛系玩了吧，昨天看nanato冲3000又欢乐又折磨 ...</blockquote>
+这家伙本来说休学3年打喷 应该是打算直播和比赛整点钱吧 现在这样还不如回去考公务员(？)
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

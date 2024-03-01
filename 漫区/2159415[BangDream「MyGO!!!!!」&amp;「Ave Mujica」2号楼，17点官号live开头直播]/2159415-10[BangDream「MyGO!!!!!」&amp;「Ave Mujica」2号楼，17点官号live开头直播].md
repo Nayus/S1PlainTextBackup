@@ -5431,3 +5431,16 @@ Mujica会是这样一个“祥子的世界”吗？<img src="https://static.sara
 还不如改个offical少点火力（</blockquote>
 还是有的，比如动画感想，还有收到了很多巧克力之类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 13792#       发表于 2024-3-1 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114820&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-3-1 14:16</a>
+
+还是有的，比如动画感想，还有收到了很多巧克力之类</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也很公式啊
+
+虽然可能是自己写的，但应该是类似康康系那种手机博有审稿的？
+

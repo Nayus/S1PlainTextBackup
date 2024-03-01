@@ -2138,3 +2138,13 @@ ps：有点太乐了，只是看乐子的，有种以前厄介警察的感觉了
 
 tmd代孙泰国都有上映？
 
+
+*****
+
+####  JamieD  
+##### 1712#       发表于 2024-3-1 14:40
+
+声优不够用了可以学LL去地偶那儿找人啊，反正只要能唱能跳就也大差不差了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

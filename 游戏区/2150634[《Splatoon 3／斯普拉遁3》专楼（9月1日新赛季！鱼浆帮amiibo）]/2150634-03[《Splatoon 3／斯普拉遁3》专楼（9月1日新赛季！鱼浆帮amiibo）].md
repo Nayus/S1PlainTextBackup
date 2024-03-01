@@ -5085,3 +5085,13 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 新伞不错的，还没在打工靶场试，估计伤害可观<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  martinium  
+##### 3498#       发表于 2024-3-1 14:40
+
+这纸伞是好看，就是真纸糊，完全没有用伞的感觉
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

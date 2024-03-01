@@ -14,3 +14,13 @@
 
 试试zero ranger，演出和剧情非常优秀，系统爽快感很强，难度不算高
 
+
+*****
+
+####  姬萩九郎  
+##### 137#       发表于 2024-3-1 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64112708&amp;ptid=2168002" target="_blank">moonmagian 发表于 2024-3-1 10:48</a>
+试试zero ranger，演出和剧情非常优秀，系统爽快感很强，难度不算高</blockquote>
+音乐也很不错
+

@@ -82,3 +82,14 @@
 
 这年头连狗都要上学了，不会真要智商不如狗了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1095#       发表于 2024-3-1 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64112205&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-3-1 10:01</a>
+
+这年头连狗都要上学了，不会真要智商不如狗了吧</blockquote>
+让我们猜猜小麦和夏海皇谁的成绩更好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

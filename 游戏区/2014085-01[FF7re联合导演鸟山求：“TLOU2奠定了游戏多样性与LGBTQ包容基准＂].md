@@ -621,3 +621,11 @@ FF7re再怎么样,起码都是帅哥美女啊
 
 鲁迅先生说过什么来着？门和窗那个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ztkong  
+##### 75#       发表于 2024-3-1 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们怎么这么在意。。。这次ff7至少从审美上并没有向政治正确低头吧。。。嘴上服个软表个态，实际还是做美好的妹子给大家就行了。
+

@@ -145,3 +145,18 @@ WIN Mini（2024）将采用全新的 AMD Ryzen™ 7 8840U 处理器，除此外�
 https://www.tecno-mobile.com/accessories/product-deta ...</blockquote>
 啥，这是把u放在哪里
 
+
+*****
+
+####  trow233  
+##### 1121#       发表于 2024-3-1 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116390&amp;ptid=2086469" target="_blank">筒井彩芽 发表于 2024-3-1 16:36</a>
+
+这winmini才出多久啊，就出新版了？</blockquote>
+年经机<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+不过7840和8840貌似没什么区别，这确实没啥诚意
+
+也没说新的MINI是不是还锁TDP
+

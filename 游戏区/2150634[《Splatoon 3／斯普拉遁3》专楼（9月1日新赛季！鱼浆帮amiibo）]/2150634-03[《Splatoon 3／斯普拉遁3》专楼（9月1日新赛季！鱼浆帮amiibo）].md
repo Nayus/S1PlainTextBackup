@@ -4990,3 +4990,11 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 总体看上去武器还算平衡，但是确实有种使不上力的感觉，尤其是新叶，我是不知道怎么搞的新叶清柱子会有严重问题
 
+
+*****
+
+####  秋月孝三  
+##### 3488#       发表于 2024-3-1 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灭火器射程原来比香槟还长
+

@@ -11365,3 +11365,14 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 电弧满蓄打正面三发解决一只毒爆虫，还带连锁伤害，但是打侧后要六七枪，不知道怎么算的
 
+
+*****
+
+####  nukecole  
+##### 1147#       发表于 2024-3-2 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64121100&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-2 00:23</a>
+
+电弧满蓄打正面三发解决一只毒爆虫，还带连锁伤害，但是打侧后要六七枪，不知道怎么算的 ...</blockquote>
+毒爆虫的弱点其实是正面头部，你用破碎去打头部的话也比打肚子快。虽然电枪无视护甲，但是感觉针对不同部位威力还是不一样的
+

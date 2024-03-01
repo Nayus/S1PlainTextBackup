@@ -11123,3 +11123,14 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 也是见识到鬼佬队能有多抽象了，二三十级三条磁轨枪整把被坦克虫追着杀，打完回舰一看三十多级房主爱国行政中心一级没升<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Benighted  
+##### 1124#       发表于 2024-3-1 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64110846&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-1 03:04</a>
+
+也是见识到鬼佬队能有多抽象了，二三十级三条磁轨枪整把被坦克虫追着杀，打完回舰一看三十多级房主爱国行政 ...</blockquote>
+迫击炮农场刷出来的把 没样本升级..
+

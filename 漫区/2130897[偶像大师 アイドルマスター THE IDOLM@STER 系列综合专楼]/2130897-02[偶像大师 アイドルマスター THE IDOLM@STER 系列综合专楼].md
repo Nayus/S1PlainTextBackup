@@ -2166,3 +2166,20 @@ tmd代孙泰国都有上映？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星团素人才是最能打的
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1715#       发表于 2024-3-1 15:30
+
+所以铃原希实什么来头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Toki_Ai  
+##### 1716#       发表于 2024-3-1 15:33
+
+再隔壁邦邦羊也是，选人还是很重要的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

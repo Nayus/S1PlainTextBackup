@@ -11313,3 +11313,11 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 马的会搜配装不会搜怎么打坦克虫，拳头硬了</blockquote>
 第二代绝地战兵现状，量产换来的质量下降<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 1141#       发表于 2024-3-1 17:21
+
+现在感觉打虫子的配置还挺自由的，支援武器像榴弹炮，电枪，喷火器，磁轨枪都可以用，蛋盾和狗也是都可以带
+

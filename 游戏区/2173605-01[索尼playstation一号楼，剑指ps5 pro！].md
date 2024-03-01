@@ -1100,3 +1100,16 @@ Eurogamer 采访了一些与公司关系密切的消息人士，以了解这种�
 
 saber互动找私人投资者筹了五亿刀交钱独立了，kotor依然由他们继续开发中
 
+
+*****
+
+####  贝恩德塔  
+##### 124#         楼主| 发表于 2024-3-1 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64112722&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2024-3-1 10:49</a>
+
+直到黎明主要还是没玩过的买吧，这玩意儿真的有人愿意回味的吗
+
+不过SIE当年其实是很想开发续作的，1代发售 ...</blockquote>
+那还得幸亏采石场惊魂这种粪作没当成直到黎明2卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

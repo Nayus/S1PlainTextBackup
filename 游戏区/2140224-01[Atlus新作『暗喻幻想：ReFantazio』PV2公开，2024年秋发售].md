@@ -2776,3 +2776,16 @@ Steam页面：
 星空 23年9月6日发售</blockquote>
 <[img src="https://s2.loli.net/2024/03/01/ckYTgB72yEUiboI.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AeonsTorn  
+##### 169#       发表于 2024-3-1 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64110747&amp;ptid=2140224" target="_blank">bobosnader 发表于 2024-3-1 02:13</a>
+
+这作怪设怎么这么毕加索==</blockquote>
+<img src="https://s2.loli.net/2024/03/01/raL2OkFEgC4RZdJ.png" referrerpolicy="no-referrer">
+
+其实是耶罗尼米斯·博斯
+

@@ -5529,3 +5529,14 @@ Mujica会是这样一个“祥子的世界”吗？<img src="https://static.sara
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这周年巧克力是不是明示ppp已经沉底，fl了
 
+
+*****
+
+####  ddy2811  
+##### 13801#       发表于 2024-3-1 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116341&amp;ptid=2159415" target="_blank">Toki_Ai 发表于 2024-3-1 16:33</a>
+
+这周年巧克力是不是明示ppp已经沉底，fl了</blockquote>
+如果是MyGO露出来是不是能解读为“现在是MyGO抛头露面的时间，其他乐队好好在盒里待着吧”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

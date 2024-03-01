@@ -126,3 +126,22 @@ WIN Mini（2024）将采用全新的 AMD Ryzen™ 7 8840U 处理器，除此外�
 
 看来散热本身没有改咯？
 
+
+*****
+
+####  筒井彩芽  
+##### 1119#       发表于 2024-3-1 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这winmini才出多久啊，就出新版了？
+
+*****
+
+####  医生狼多  
+##### 1120#       发表于 2024-3-1 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085549&amp;ptid=2086469" target="_blank">bypass 发表于 2024-2-27 20:37</a>
+传音要出一款手柄 + 便携头显的 PC 掌机 
+
+https://www.tecno-mobile.com/accessories/product-deta ...</blockquote>
+啥，这是把u放在哪里
+

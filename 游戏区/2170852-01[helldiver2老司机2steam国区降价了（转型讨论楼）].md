@@ -11169,3 +11169,47 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 全局战况这个东西肯定得让GM来调，前作后期的一个严重问题就是大家打虫子的热情高涨，虫子没了之后剩下的生化人和光能者就没什么兴趣打了，好几次都是一上线发现就剩个光能者或者生化人，想打一局虫子太难了，感觉前作到后期就是拖得太久GM会组织光速反推赶紧下一届
 
+
+*****
+
+####  runningch  
+##### 1128#       发表于 2024-3-1 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64112000&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-1 09:43</a>
+
+全局战况这个东西肯定得让GM来调，前作后期的一个严重问题就是大家打虫子的热情高涨，虫子没了之后剩下的生 ...</blockquote>
+主要是GM调得太明显太粗暴了，属于玩家不按剧本跑图（玩家推进速度远超预期，藏的东西还没做好），GM气急败坏搞机械降神。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+有人猜剧本是这样的：冻肉前期缓慢平推，中期被打崩了，然后新武器闪亮登场。结果现在是如果GM不强行调控的话，什么牛鬼蛇神都给你一路平推过去<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  nagamasa  
+##### 1129#       发表于 2024-3-1 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64111676&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-1 09:13</a>
+还没去打难789
+
+飞鹰空袭 轨道激光 磁轨炮 蛋盾 
+
+只会带这四个了，换别的就不会玩游戏了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">789排野队每次都空袭+蛋盾+榴弹独走拆虫巢炸搜战利品独走真的遨游，坦克虫和泰坦直接当没看见就是了，跟老外一起走还有可能被炸死电死
+
+
+*****
+
+####  神剑烧鸡  
+##### 1130#       发表于 2024-3-1 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">喜欢我保护科学家任务吗
+
+*****
+
+####  Launce  
+##### 1131#       发表于 2024-3-1 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64112625&amp;ptid=2170852" target="_blank">runningch 发表于 2024-3-1 10:40</a>
+
+主要是GM调得太明显太粗暴了，属于玩家不按剧本跑图（玩家推进速度远超预期，藏的东西还没做好），GM气急 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长线运营的含金量，电视台不都说国防部（箭脑袋）预计月底把虫子赶回隔离
+

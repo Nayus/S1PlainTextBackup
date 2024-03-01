@@ -530,3 +530,12 @@ FF7re再怎么样,起码都是帅哥美女啊
 
 不支持 〇
 
+
+*****
+
+####  夜留歌  
+##### 65#       发表于 2024-3-1 10:38
+
+在卡姆城镇听路人聊天<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">：
+男1:听说你找到了一个如陆行鸟般可爱的女朋友？男2:不，是如同卡姆之牙般的男朋友。
+

@@ -200,3 +200,16 @@ https://www.tecno-mobile.com/accessories/product-deta ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 谁能想到后面大厂的机器除了 SD OLED 一个比一个拉。
 
+
+*****
+
+####  i0nium  
+##### 1125#       发表于 2024-3-1 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64119651&amp;ptid=2086469" target="_blank">bypass 发表于 2024-3-1 21:40</a>
+
+一开始评测续航数据出来的时候被骂惨了。
+
+ 谁能想到后面大厂的机器除了 SD OLED 一个比一个拉。 ...</blockquote>
+工程机也确实离谱了点，后面改进过
+

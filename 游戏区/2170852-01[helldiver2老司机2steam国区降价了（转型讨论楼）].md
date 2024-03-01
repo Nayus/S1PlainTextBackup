@@ -11339,3 +11339,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 啥时候更新新内容啊,已经毕业了没得刷了
 
+
+*****
+
+####  风萧飒  
+##### 1144#       发表于 2024-3-1 21:55
+
+遇到了奇怪的bug，激光狗打着打着变成实弹的了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

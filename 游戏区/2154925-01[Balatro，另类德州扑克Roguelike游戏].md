@@ -4920,3 +4920,16 @@ BV1TW421P7he
 这游戏玩多了应该能想象这其中的差距吧</blockquote>
 玻璃五条很难运营啊，单张无脑很多
 
+
+*****
+
+####  himtom  
+##### 434#       发表于 2024-3-1 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64113685&amp;ptid=2154925" target="_blank">天妇罗 发表于 2024-3-1 12:23</a>
+
+玻璃五条很难运营啊，单张无脑很多</blockquote>
+所以我无尽也是玩钢铁啊，传奇小丑难抓不说，过渡期也比钢铁要难熬得多
+
+钢铁成型难度低太多了，如果有的选的话，传奇我为什么不选过渡丝滑的复制小丑呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

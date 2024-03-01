@@ -143,3 +143,15 @@
 —— 来自 realme RMX3706, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 私信发了
 
+
+*****
+
+####  冰风血羽  
+##### 956#       发表于 2024-3-1 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64111201&amp;ptid=2104259" target="_blank">Geyorkias 发表于 2024-3-1 08:04</a>
+私信发了</blockquote>
+非常感谢！已经收到了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

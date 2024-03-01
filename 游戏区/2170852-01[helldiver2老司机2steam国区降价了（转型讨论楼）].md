@@ -11146,3 +11146,18 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 只会带这四个了，换别的就不会玩游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1126#       发表于 2024-3-1 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64111676&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-1 09:13</a>
+
+还没去打难789
+
+飞鹰空袭 轨道激光 磁轨炮 蛋盾 
+
+只会带这四个了，换别的就不会玩游戏了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这套你已经可以遨游难789了，剩下就是搜点经验和逃跑路线了
+

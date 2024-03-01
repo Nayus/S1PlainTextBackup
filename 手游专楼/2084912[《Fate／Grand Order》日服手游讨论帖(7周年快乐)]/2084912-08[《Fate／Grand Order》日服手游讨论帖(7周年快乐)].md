@@ -488,3 +488,11 @@ choco原设的欧若拉好色
 
 绿方块商店新礼装是食堂马修，羁绊加成针对”活在当下的人类“，和杀狐一样最大20%，看来之后是要走这种特性加成的路线了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 11444#       发表于 2024-3-1 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迦梨30啥都没有
+

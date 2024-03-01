@@ -2213,3 +2213,23 @@ tmd代孙泰国都有上映？
 
 照你们这么说，我们imas岂不是全是选人大王？
 
+
+*****
+
+####  Anatoly  
+##### 1720#       发表于 2024-3-1 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116970&amp;ptid=2130897" target="_blank">acacaclove 发表于 2024-3-1 17:27</a>
+照你们这么说，我们imas岂不是全是选人大王？</blockquote>
+从南梦宫开始就是青二81日播研一起抓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥企划按照这个阵容配置薅不出个成型的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Srchy  
+##### 1721#       发表于 2024-3-1 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选人大王指前有落合后有成海吗
+

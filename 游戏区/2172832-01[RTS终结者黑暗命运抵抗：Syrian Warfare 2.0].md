@@ -611,3 +611,14 @@ Playing Cats在2022年三月发过一条消息，称终结者黑暗命运抵抗�
 黑暗命运不就相当于把3以后开除的重启世 ...</blockquote>
 2以后，3的康纳都长大到20多了，而且结局还是战天网。6的康纳基本是紧接着2部没一会就被打死了。而且打死他的不是t800而是军团派的叫外骨骼100型啥的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半分宅  
+##### 51#       发表于 2024-3-1 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64107349&amp;ptid=2172832" target="_blank">夜莺0093 发表于 2024-2-29 06:58</a>
+
+Playing Cats在2022年三月发过一条消息，称终结者黑暗命运抵抗的所有“accmulated materials”已经被打包 ...</blockquote>
+也别吹太狠，玩猫自己做的叙战DLC也是一坨，表现比本作后期无聊关卡好不了多少。最后一关哈里发匪用大量坦克装甲车硬冲我的阵地，我打空了地图上能找到的每一辆补给车。
+

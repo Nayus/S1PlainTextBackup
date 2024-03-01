@@ -5669,3 +5669,15 @@ go都两首以上预告了。
 
 毛 二 力 幼 儿 园
 
+
+*****
+
+####  基神的强袭自由  
+##### 13814#       发表于 2024-3-1 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64120531&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-3-1 23:11</a>
+虽然我们大友应该是更加立派的李子噶，但是从没没发过朋友圈，更没写过超话的实在想不出要说点什么，太尴尬 ...</blockquote>
+可以使用无敌的chatgpt<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

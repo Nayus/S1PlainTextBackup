@@ -5064,3 +5064,21 @@ pc版玩了3个小时才发现有ns版……只能再买一次了！
 
 绝望开局
 
+
+*****
+
+####  afer  
+##### 446#       发表于 2024-3-1 23:35
+
+ 本帖最后由 afer 于 2024-3-1 23:39 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/01/233606d46zzm45f4551fj5.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240301232442.jpg</strong> (250.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 23:36 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无尽模式死于人头牌不计分，黑牌表示尽力了
+

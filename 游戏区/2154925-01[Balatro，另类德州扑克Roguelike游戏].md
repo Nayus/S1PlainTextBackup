@@ -5048,3 +5048,19 @@ hand = 出牌
 
 pc版玩了3个小时才发现有ns版……只能再买一次了！
 
+
+*****
+
+####  TKD53  
+##### 445#       发表于 2024-3-1 23:25
+
+<img src="https://img.saraba1st.com/forum/202403/01/232453fabdq5cnvq1qzayi.jpg" referrerpolicy="no-referrer">
+
+<strong>20240301232229_1.jpg</strong> (325.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 23:24 上传
+
+绝望开局
+

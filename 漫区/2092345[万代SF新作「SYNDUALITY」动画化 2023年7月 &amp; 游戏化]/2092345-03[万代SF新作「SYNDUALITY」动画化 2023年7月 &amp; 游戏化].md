@@ -3609,3 +3609,14 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 不如说, 最可疑的是那个pvpve游戏. 人手一个会放技能的ma ...</blockquote>
 有剧情吗？我看不是说纯联机？本来想买的瞬间没欲望了
 
+
+*****
+
+####  aptx8285144  
+##### 4148#       发表于 2024-3-1 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114143&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-3-1 13:08</a>
+
+8-Bit 将于4月1日成为Bandai Namco Filmworks（万代南梦宫影像制作）全资子公司</blockquote>
+所以这也算8BIT成为万代家前的最后之作了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

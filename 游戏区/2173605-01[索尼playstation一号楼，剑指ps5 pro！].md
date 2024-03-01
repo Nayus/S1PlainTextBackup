@@ -972,3 +972,23 @@ pro，应该10-11月就出了，ff7上pc至少25年的事
 
 原版ps5那重量就已经很夸张了，这出pro后的体积我不敢想象<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Slyvan  
+##### 113#       发表于 2024-3-1 10:06
+
+我挺期待pro的, 虽然常说索尼和老任不同赛道, 但是按以往情况大概率pro会拿来狙击NS2
+
+到时候硬货也多点, 对玩家是好事
+
+
+*****
+
+####  SergeGlenn  
+##### 114#       发表于 2024-3-1 10:14
+
+PRO年底上九成九是缺乏护航的技术演示游戏的，今年基本是没有什么第一方“大作”能赶上档期的
+
+Jeff Grubb在GameMessMorning上说有听说小机器人新作计划2024年发售，但这玩意儿怎么也不可能是PRO的技术演示游戏
+

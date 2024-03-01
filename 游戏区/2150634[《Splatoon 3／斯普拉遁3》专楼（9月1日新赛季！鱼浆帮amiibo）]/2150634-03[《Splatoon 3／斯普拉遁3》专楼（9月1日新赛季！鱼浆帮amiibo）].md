@@ -5032,3 +5032,11 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  秋月孝三  
+##### 3492#       发表于 2024-3-1 12:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双枪衰减本来就快，极限射程8确是常有的事
+

@@ -599,3 +599,15 @@ Playing Cats在2022年三月发过一条消息，称终结者黑暗命运抵抗�
 
 如果是这种原因那就不奇怪了，这游戏水平确实不如叙利亚。猫玩组现在正在做当代俄美冲突的新游，可以期待一下，不过似乎由于目前的形势也无法在蒸汽贩卖。
 
+
+*****
+
+####  厄神之息  
+##### 50#       发表于 2024-3-1 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64044292&amp;ptid=2172832" target="_blank">boxloli 发表于 2024-2-23 15:37</a>
+高精尖武器用不着AI啊，T1终结者那种现在玩具厂都能做出来
+
+黑暗命运不就相当于把3以后开除的重启世 ...</blockquote>
+2以后，3的康纳都长大到20多了，而且结局还是战天网。6的康纳基本是紧接着2部没一会就被打死了。而且打死他的不是t800而是军团派的叫外骨骼100型啥的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

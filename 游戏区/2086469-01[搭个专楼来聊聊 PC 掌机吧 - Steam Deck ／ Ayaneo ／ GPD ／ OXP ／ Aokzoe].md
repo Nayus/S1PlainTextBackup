@@ -160,3 +160,15 @@ https://www.tecno-mobile.com/accessories/product-deta ...</blockquote>
 
 也没说新的MINI是不是还锁TDP
 
+
+*****
+
+####  bypass  
+##### 1122#         楼主| 发表于 2024-3-1 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116432&amp;ptid=2086469" target="_blank">医生狼多 发表于 2024-3-1 16:39</a>
+
+啥，这是把u放在哪里</blockquote>
+塞到了手柄里面 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+ <blockquote>官方表示，Pocket Go 的大小约为华硕 ROG Ally 等普通 Windows 掌机的一半，重量也轻了 1/3。</blockquote>
+

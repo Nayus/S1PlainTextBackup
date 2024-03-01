@@ -964,3 +964,14 @@ ps5的价格都炒到快500了，吓人。。
 
 有潜入任务，可以用钩锁，也可以游泳，游泳可以无缝衔接暗杀。
 
+
+*****
+
+####  duraa  
+##### 761#       发表于 2024-3-1 17:59
+
+ 本帖最后由 duraa 于 2024-3-1 18:00 编辑 
+
+油 管PlayStation Japan上发了些新的武器演示，好像每种武器每个流派好像都是不同的处决动画
+[https://www.youtube.com/@PlayStationJapan/videos](https://www.youtube.com/@PlayStationJapan/videos)
+

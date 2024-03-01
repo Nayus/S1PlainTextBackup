@@ -213,3 +213,12 @@ https://www.tecno-mobile.com/accessories/product-deta ...</blockquote>
  谁能想到后面大厂的机器除了 SD OLED 一个比一个拉。 ...</blockquote>
 工程机也确实离谱了点，后面改进过
 
+
+*****
+
+####  luffyzhou  
+##### 1126#       发表于 2024-3-1 22:05
+
+最近在用sd玩暗黑4，锁40帧感觉还不错。大致估计了下手里机器的游玩时间占比，sd比ally还有air1s都多，有点儿想换成oled了…
+flip订了8840的版本，主要是不想再要个7840的机器（马甲就马甲吧）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

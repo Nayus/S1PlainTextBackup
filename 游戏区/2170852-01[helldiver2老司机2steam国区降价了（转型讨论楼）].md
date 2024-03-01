@@ -11321,3 +11321,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 现在感觉打虫子的配置还挺自由的，支援武器像榴弹炮，电枪，喷火器，磁轨枪都可以用，蛋盾和狗也是都可以带
 
+
+*****
+
+####  Noel  
+##### 1142#       发表于 2024-3-1 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64113767&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-1 12:32</a>
+适合，赶紧把等级练上来等34月份载具更新</blockquote>
+刚匹配组队碰见两个开机甲的了……离谱…技能图标还都是色块，火力还挺猛
+

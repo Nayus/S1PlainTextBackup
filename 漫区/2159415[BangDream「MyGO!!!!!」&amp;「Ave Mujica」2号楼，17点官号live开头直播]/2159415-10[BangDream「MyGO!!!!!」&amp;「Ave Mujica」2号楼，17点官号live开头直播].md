@@ -5378,3 +5378,56 @@ IMG_2442.jpeg
 
 Mujica会是这样一个“祥子的世界”吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安瓦尔阿明  
+##### 13787#       发表于 2024-3-1 14:09
+
+【电子漫画版「ゴールド・ボーイ(GOLD BOY)」联动PV「孤壊牢 / MyGO!!!!!」【原创歌曲】-哔哩哔哩】 [https://b23.tv/YrwMqbN](https://b23.tv/YrwMqbN)
+
+还有高手之《隐秘的角落》原作小说日本漫画改编版原创曲。
+
+*****
+
+####  Anatoly  
+##### 13788#       发表于 2024-3-1 14:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊那个推其实都没啥私人内容吧
+
+还不如改个offical少点火力（
+
+
+*****
+
+####  Serious  
+##### 13789#       发表于 2024-3-1 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114755&amp;ptid=2159415" target="_blank">Anatoly 发表于 2024-3-1 14:10</a>
+羊那个推其实都没啥私人内容吧
+
+还不如改个offical少点火力（</blockquote>
+羊噶说是青二管理的，和羊没有一点关系
+
+*****
+
+####  ddy2811  
+##### 13790#       发表于 2024-3-1 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114789&amp;ptid=2159415" target="_blank">Serious 发表于 2024-3-1 14:13</a>
+
+羊噶说是青二管理的，和羊没有一点关系</blockquote>
+这羊噶都不看她主子节目的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 13791#       发表于 2024-3-1 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114755&amp;ptid=2159415" target="_blank">Anatoly 发表于 2024-3-1 14:10</a>
+
+羊那个推其实都没啥私人内容吧
+
+还不如改个offical少点火力（</blockquote>
+还是有的，比如动画感想，还有收到了很多巧克力之类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

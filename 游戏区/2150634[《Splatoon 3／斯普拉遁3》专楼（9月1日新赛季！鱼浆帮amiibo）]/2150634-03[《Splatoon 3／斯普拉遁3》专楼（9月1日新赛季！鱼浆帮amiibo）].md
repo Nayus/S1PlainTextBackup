@@ -5064,3 +5064,16 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 豆粒被发配一个人到二代广场的好处，批量兑换新武器顺畅多了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  hisousihou  
+##### 3496#       发表于 2024-3-1 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109048&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-2-29 21:51</a>
+
+几天没打，发现右摇杆确实是漂了，负战绩不知道有几份它的“功劳”
+
+Pro右摇杆咋修，狗东买的国行， ...</blockquote>
+直接拆，皮老虎吹吹基本就好了，如果不行再考虑喷清洁液。
+

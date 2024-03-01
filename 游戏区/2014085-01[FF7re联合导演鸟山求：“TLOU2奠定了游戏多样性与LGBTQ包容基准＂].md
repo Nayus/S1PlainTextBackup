@@ -485,3 +485,27 @@ FF7re再怎么样,起码都是帅哥美女啊
 
 萨菲罗斯跟克劳德这都在同人圈火了多少年了，根本犯不着往zzzq那靠 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真鍮  
+##### 62#       发表于 2024-3-1 09:51
+
+虽然功力不及尼尔先辈，但不得不承认还是有被恶心到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/01/094952gukooks4ufrfksfu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 09:49 上传
+
+<img src="https://img.saraba1st.com/forum/202403/01/095122x2l201yf6606fgny.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 09:51 上传
+

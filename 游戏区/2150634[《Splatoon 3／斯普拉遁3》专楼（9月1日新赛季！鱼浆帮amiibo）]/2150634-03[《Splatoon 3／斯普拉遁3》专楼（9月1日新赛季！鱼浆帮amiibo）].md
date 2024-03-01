@@ -5010,3 +5010,15 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 贴牌525这没了雨帘感觉废了，换命流双枪，无印也被新双压一头
 
+
+*****
+
+####  oi99o  
+##### 3490#       发表于 2024-3-1 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64111711&amp;ptid=2150634" target="_blank">Pumpkin_ccc 发表于 2024-3-1 09:16</a>
+新双这射程，不用蓄力的消防双，有效射程比消防栓还长，消防栓也才4.5，感觉会出现一些无脑走地流的样子， ...</blockquote>
+没那么离谱吧，我看是3.5四确，有伤害到最长4.0左右，会衰减到五至六确，消防栓到5.0都还有伤害
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

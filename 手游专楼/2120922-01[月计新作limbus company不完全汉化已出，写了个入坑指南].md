@@ -592,3 +592,49 @@ syl 之前猜会给浮
 
 2024-2-29 18:38 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 573#       发表于 2024-3-1 11:06
+
+傲慢技能的大数字看着真是赏心悦目啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202403/01/110524xvgeebusrlkgrzf9.jpg" referrerpolicy="no-referrer">
+
+<strong>20240112014923_1.jpg</strong> (438.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 11:05 上传
+
+<img src="https://img.saraba1st.com/forum/202403/01/110525jo7ffdjop2d1dlzf.jpg" referrerpolicy="no-referrer">
+
+<strong>20240301110136_1.jpg</strong> (502.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 11:05 上传
+
+<img src="https://img.saraba1st.com/forum/202403/01/110525huvchkwweyhukvzw.jpg" referrerpolicy="no-referrer">
+
+<strong>20240301001732_1.jpg</strong> (393.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 11:05 上传
+
+（好像混进去一个虚空造图的水货，不管啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  salic428  
+##### 574#       发表于 2024-3-1 11:10
+
+炎龙贯拳也算是图书馆时期经典的evp卡了
+
+虽然点数还没有大到单方面攻击=被秒，但是没有比较好的办法去拼第二颗骰子，总会被打到就很令人不爽
+
+不知道要怎么做成人物技能
+

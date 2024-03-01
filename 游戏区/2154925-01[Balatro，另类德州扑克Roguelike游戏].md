@@ -4849,3 +4849,13 @@ BV1TW421P7he
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">只有PC不能手机摸鱼不爽，为了手机玩整了个ns模拟器，发现手柄都不用，直接触屏操作非常完美。
 
+
+*****
+
+####  hansel  
+##### 430#       发表于 2024-3-1 11:14
+
+玩了一把所有牌都看成脸牌，和脸牌都触发两倍，然后就慢慢给牌上玻璃 buff 就好了
+
+乘倍牌是每轮给一张石头牌和牌组每加一张牌加 X0.25
+

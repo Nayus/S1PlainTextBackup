@@ -104,3 +104,25 @@ FLIP本来预购了最后看了评测还是退了，翻盖机650克有点离谱�
 
 2024-2-27 20:36 上传
 
+
+*****
+
+####  trow233  
+##### 1118#       发表于 2024-3-1 16:21
+
+[https://mp.weixin.qq.com/s/DD_ti8rZXnLJwhn-xREwcw](https://mp.weixin.qq.com/s/DD_ti8rZXnLJwhn-xREwcw)
+
+WIN Mini 新版来啦！原生横屏，支持可变刷新率，支持 AMD FreeSYNC，WIN 4 8840U 下周三预售
+
+WIN Mini（2024）将采用全新的 AMD Ryzen™ 7 8840U 处理器，除此外，新版 WIN Mini 将 Oculink 接口改为 USB A 口，10Gbps 速率，方便用户外接 USB A 设备。
+
+但改动最大的是屏幕，WIN Mini（2024）采用与某硕相同的屏幕，支持 VRR 可变刷新率，支持 AMD FreeSYNC™ Premium，无惧游戏画面撕裂，无需再锁帧，将机能彻底释放！同时，屏幕仍采用 AR + AF 涂层！AR 增透涂层，硬度高，有效减少反光，防眩光、防刮伤，增加透光率，使屏幕亮度提升到 500nit，阻挡蓝光，有效保护眼睛。AF 防指纹纳米涂层，出色的防污性、拒水性、耐久性，减少指纹及各种污渍附着 。
+
+由于去掉了 DP 转 MIPI 芯片，降低了整机功耗和发热量。
+
+接口这是又改回去了啊？？
+
+由于去掉了 DP 转 MIPI 芯片，降低了整机功耗和发热量
+
+看来散热本身没有改咯？
+

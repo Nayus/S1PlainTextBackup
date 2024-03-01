@@ -5021,3 +5021,22 @@ ante你理解为层数就行了 ...</blockquote>
 
 计量单位都不一样
 
+
+*****
+
+####  就是剑鞘  
+##### 443#       发表于 2024-3-1 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116715&amp;ptid=2154925" target="_blank">wenhaowu 发表于 2024-3-1 17:05</a>
+
+啊，所以想留着这张小丑牌的话只能每场都在5次内出牌解决战斗吗。那个ante我看每轮都是1/8，不能直接理解 ...</blockquote>
+范围从大到小依次是：
+
+run = 整个的一局
+
+ante = 由小-中-大三个关卡组成的一层
+
+round = 关卡
+
+hand = 出牌
+

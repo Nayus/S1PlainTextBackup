@@ -107,3 +107,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先不说增伤区域不冲突。但是踢不掉UNI的。尿分叉吃到UNI的增伤肯定》20%的增伤。更不用说乱七八糟的追伤。。。
 
+
+*****
+
+####  Sylpheed  
+##### 17646#       发表于 2024-3-1 17:30
+
+现在确实打不过龙拳啊，大巴要蹲50，fa手点领域吗。绑暴击这武器就是很幽默
+而且一个天司区一个固定伤害怎么还踢起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

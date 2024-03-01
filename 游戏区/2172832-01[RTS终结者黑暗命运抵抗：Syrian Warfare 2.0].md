@@ -622,3 +622,14 @@ Playing Cats在2022年三月发过一条消息，称终结者黑暗命运抵抗�
 Playing Cats在2022年三月发过一条消息，称终结者黑暗命运抵抗的所有“accmulated materials”已经被打包 ...</blockquote>
 也别吹太狠，玩猫自己做的叙战DLC也是一坨，表现比本作后期无聊关卡好不了多少。最后一关哈里发匪用大量坦克装甲车硬冲我的阵地，我打空了地图上能找到的每一辆补给车。
 
+
+*****
+
+####  夜莺0093  
+##### 52#       发表于 2024-3-1 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116251&amp;ptid=2172832" target="_blank">半分宅 发表于 2024-3-1 16:25</a>
+
+也别吹太狠，玩猫自己做的叙战DLC也是一坨，表现比本作后期无聊关卡好不了多少。最后一关哈里发匪用大量 ...</blockquote>
+我只说游戏之中部分前后关卡的差异对上了之前的一些信息，什么时候吹玩猫了？
+

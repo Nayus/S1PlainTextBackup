@@ -419,3 +419,23 @@ zzzq入脑了
 
 这是训练集被污染了吗
 
+
+*****
+
+####  盲目者  
+##### 43#       发表于 2024-3-2 00:05
+
+这种认知污染的模型还能训好吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  battleship64  
+##### 44#       发表于 2024-3-2 00:11
+
+好像是promt里被人工加black啥的吧？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

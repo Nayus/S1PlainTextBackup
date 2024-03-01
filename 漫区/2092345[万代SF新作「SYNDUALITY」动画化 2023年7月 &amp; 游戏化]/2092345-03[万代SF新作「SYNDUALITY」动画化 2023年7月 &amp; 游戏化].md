@@ -3587,3 +3587,25 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 4146#         楼主| 发表于 2024-3-1 13:08
+
+8-Bit 将于4月1日成为Bandai Namco Filmworks（万代南梦宫影像制作）全资子公司
+<[img src="https://s2.loli.net/2024/03/01/RHEaw4ulhSCJomg.jpg" referrerpolicy="no-referrer">
+<[img src="https://s2.loli.net/2024/03/01/CmUcYIZiSEOKqwD.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚瑟邓特  
+##### 4147#       发表于 2024-3-1 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64110462&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-3-1 00:47</a>
+第2集mouton直接就说noir是0式, 这一点也很可疑.
+
+不如说, 最可疑的是那个pvpve游戏. 人手一个会放技能的ma ...</blockquote>
+有剧情吗？我看不是说纯联机？本来想买的瞬间没欲望了
+

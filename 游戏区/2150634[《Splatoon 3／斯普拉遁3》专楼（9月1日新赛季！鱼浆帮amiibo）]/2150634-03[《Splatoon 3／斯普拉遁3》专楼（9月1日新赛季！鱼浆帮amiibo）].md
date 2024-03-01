@@ -5040,3 +5040,11 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双枪衰减本来就快，极限射程8确是常有的事
 
+
+*****
+
+####  墨染白泉  
+##### 3493#       发表于 2024-3-1 13:07
+
+大王乌贼4开太烦了，不是大优势的话根本动不了
+

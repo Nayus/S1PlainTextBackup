@@ -5645,3 +5645,11 @@ go都两首以上预告了。
 有在线看以前live的网站吗，mygo的求个私信</blockquote>
 自己去nyaa上面搜，mygo的live基本都有
 
+
+*****
+
+####  紫吹兰  
+##### 13812#         楼主| 发表于 2024-3-1 23:11
+
+虽然我们大友应该是更加立派的李子噶，但是从没没发过朋友圈，更没写过超话的实在想不出要说点什么，太尴尬了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

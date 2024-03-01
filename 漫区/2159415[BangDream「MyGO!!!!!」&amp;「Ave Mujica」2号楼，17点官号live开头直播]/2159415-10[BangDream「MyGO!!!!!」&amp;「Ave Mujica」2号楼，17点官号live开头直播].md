@@ -5585,3 +5585,21 @@ Mujica会是这样一个“祥子的世界”吗？<img src="https://static.sara
 
 go都两首以上预告了。
 
+
+*****
+
+####  NODY  
+##### 13807#       发表于 2024-3-1 20:59
+
+才发现官号迅速把合作店铺换成了任你购
+
+用任你购也差不多十年了，应该不会和玛莎那样被带倒闭吧（虽然玛莎好像本来就风中残烛了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/01/205931upi9dy9zqmj33ee9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240301205757.png</strong> (11.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 20:59 上传
+

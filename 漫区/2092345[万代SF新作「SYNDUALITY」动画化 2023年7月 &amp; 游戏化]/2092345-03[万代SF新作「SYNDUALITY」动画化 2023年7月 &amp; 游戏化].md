@@ -3620,3 +3620,13 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 8-Bit 将于4月1日成为Bandai Namco Filmworks（万代南梦宫影像制作）全资子公司</blockquote>
 所以这也算8BIT成为万代家前的最后之作了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4149#       发表于 2024-3-1 20:57
+
+这是要收购做小飞机呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

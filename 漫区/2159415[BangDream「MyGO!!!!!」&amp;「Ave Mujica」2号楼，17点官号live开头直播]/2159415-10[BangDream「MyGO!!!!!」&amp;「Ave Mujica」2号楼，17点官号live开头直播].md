@@ -5444,3 +5444,13 @@ Mujica会是这样一个“祥子的世界”吗？<img src="https://static.sara
 
 虽然可能是自己写的，但应该是类似康康系那种手机博有审稿的？
 
+
+*****
+
+####  基神的强袭自由  
+##### 13793#       发表于 2024-3-1 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114746&amp;ptid=2159415" target="_blank">安瓦尔阿明 发表于 2024-3-1 14:09</a>
+ 【电子漫画版「ゴールド・ボーイ(GOLD BOY)」联动PV「孤壊牢 / MyGO!!!!!」【原创歌曲】-哔哩哔哩】 https: ...</blockquote>
+读音：kokoro<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

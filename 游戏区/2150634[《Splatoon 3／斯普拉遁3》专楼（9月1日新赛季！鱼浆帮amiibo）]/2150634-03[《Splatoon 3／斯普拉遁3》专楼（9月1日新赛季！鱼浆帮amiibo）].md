@@ -5077,3 +5077,11 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 直接拆，皮老虎吹吹基本就好了，如果不行再考虑喷清洁液。
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3497#       发表于 2024-3-1 14:36
+
+新伞不错的，还没在打工靶场试，估计伤害可观<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

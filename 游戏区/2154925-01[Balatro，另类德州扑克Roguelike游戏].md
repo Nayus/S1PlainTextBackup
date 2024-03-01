@@ -4933,3 +4933,11 @@ BV1TW421P7he
 
 钢铁成型难度低太多了，如果有的选的话，传奇我为什么不选过渡丝滑的复制小丑呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wuuuuuud  
+##### 435#       发表于 2024-3-1 12:40
+
+拿了四张即可straight flush的小丑，可以四张straight加四张flush组成straight flush。eg♠️2457+♥️3，同理flush house也可以。
+

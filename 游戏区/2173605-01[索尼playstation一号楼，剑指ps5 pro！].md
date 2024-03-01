@@ -1177,3 +1177,13 @@ saber互动找私人投资者筹了五亿刀交钱独立了，kotor依然由他�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而我还在用slim
 
+
+*****
+
+####  hu794  
+##### 132#       发表于 2024-3-1 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64120191&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-3-1 22:30</a>
+但是没中文</blockquote>
+是没中文，不过这游戏用英文日文也能玩得懂。
+

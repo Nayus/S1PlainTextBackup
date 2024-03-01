@@ -5548,3 +5548,14 @@ Mujica会是这样一个“祥子的世界”吗？<img src="https://static.sara
 
 “萌购任你购”支付的时候不用填写收件地址的吗？
 
+
+*****
+
+####  矢吹奈子  
+##### 13803#       发表于 2024-3-1 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116934&amp;ptid=2159415" target="_blank">结衣小比取 发表于 2024-3-1 17:24</a>
+
+“萌购任你购”支付的时候不用填写收件地址的吗？</blockquote>
+付款的时候是运到日本转运仓库，日本仓库再发国内的时候才需要填地址
+

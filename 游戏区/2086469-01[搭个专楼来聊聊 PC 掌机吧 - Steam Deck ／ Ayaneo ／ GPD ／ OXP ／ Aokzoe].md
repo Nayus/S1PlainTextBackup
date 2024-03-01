@@ -172,3 +172,16 @@ https://www.tecno-mobile.com/accessories/product-deta ...</blockquote>
 塞到了手柄里面 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
  <blockquote>官方表示，Pocket Go 的大小约为华硕 ROG Ally 等普通 Windows 掌机的一半，重量也轻了 1/3。</blockquote>
 
+
+*****
+
+####  trow233  
+##### 1123#       发表于 2024-3-1 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64117272&amp;ptid=2086469" target="_blank">bypass 发表于 2024-3-1 17:56</a>
+
+塞到了手柄里面</blockquote>
+友商纷纷提到ROG
+
+看来ROG确实是7840U时代市场最认可的WIN掌机啊？
+

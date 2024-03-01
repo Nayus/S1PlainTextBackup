@@ -975,3 +975,11 @@ ps5的价格都炒到快500了，吓人。。
 油 管PlayStation Japan上发了些新的武器演示，好像每种武器每个流派好像都是不同的处决动画
 [https://www.youtube.com/@PlayStationJapan/videos](https://www.youtube.com/@PlayStationJapan/videos)
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 762#       发表于 2024-3-1 18:11
+
+这大剑感觉就像仁王二大太刀里硬拆出来的
+

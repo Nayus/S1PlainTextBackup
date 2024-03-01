@@ -5082,3 +5082,33 @@ Mujica来活了</blockquote>
 
 别最后发现是大友随手买的，人家不看邦
 
+
+*****
+
+####  滑稽Captain  
+##### 13768#       发表于 2024-3-1 09:36
+
+微博认证后有时就会容易被塞一些粉，不过李子确实相比响社那几个开的微博多得有点异常
+
+*****
+
+####  实津二三  
+##### 13769#       发表于 2024-3-1 09:41
+
+微博加v就会被灌粉啊，根本用不着花钱买吧。
+
+*****
+
+####  ddy2811  
+##### 13770#       发表于 2024-3-1 09:41
+
+<img src="https://img.saraba1st.com/forum/202403/01/094209g6r0iyno6y0o0nh7.jpg" referrerpolicy="no-referrer">
+
+<strong>cd0d0d87c9177f3ee7d9f83736cf3bc79e3d5665.jpg</strong> (826.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 09:42 上传
+
+500人以上要审核，这下想填都不一定填得上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

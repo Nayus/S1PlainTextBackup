@@ -477,3 +477,11 @@ FF7re再怎么样,起码都是帅哥美女啊
 
 体重加个200斤，皮肤深色一些更正确
 
+
+*****
+
+####  无动于衷  
+##### 61#       发表于 2024-3-1 09:41
+
+萨菲罗斯跟克劳德这都在同人圈火了多少年了，根本犯不着往zzzq那靠 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

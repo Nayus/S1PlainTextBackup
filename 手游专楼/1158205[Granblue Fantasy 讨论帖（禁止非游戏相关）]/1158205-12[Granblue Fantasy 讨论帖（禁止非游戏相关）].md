@@ -99,3 +99,11 @@
 
 長期戰不用光龍？ 是誰在雲啊？ 最猛刷零法都能看到不少組合光龍跟調停的編成。預告封殺率達九成，對武器要求也低。
 
+
+*****
+
+####  areklose  
+##### 17645#       发表于 2024-3-1 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先不说增伤区域不冲突。但是踢不掉UNI的。尿分叉吃到UNI的增伤肯定》20%的增伤。更不用说乱七八糟的追伤。。。
+

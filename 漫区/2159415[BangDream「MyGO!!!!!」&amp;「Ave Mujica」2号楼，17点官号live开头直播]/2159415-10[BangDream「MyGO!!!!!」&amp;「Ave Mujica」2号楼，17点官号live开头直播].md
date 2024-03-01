@@ -5454,3 +5454,18 @@ Mujica会是这样一个“祥子的世界”吗？<img src="https://static.sara
  【电子漫画版「ゴールド・ボーイ(GOLD BOY)」联动PV「孤壊牢 / MyGO!!!!!」【原创歌曲】-哔哩哔哩】 https: ...</blockquote>
 读音：kokoro<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13794#       发表于 2024-3-1 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114881&amp;ptid=2159415" target="_blank">Anatoly 发表于 2024-3-1 14:23</a>
+
+也很公式啊
+
+虽然可能是自己写的，但应该是类似康康系那种手机博有审稿的？ ...</blockquote>
+和队友私下说话时她好像也是差不多的感觉，而且如果真有人把关换我是不会反复说这东西很难用然后解释来解释去也没法让人听得懂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再说了，真按公式号来她这就更不合格了
+

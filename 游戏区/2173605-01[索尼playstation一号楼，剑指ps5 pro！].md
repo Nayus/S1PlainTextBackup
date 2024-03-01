@@ -1129,3 +1129,14 @@ saber互动找私人投资者筹了五亿刀交钱独立了，kotor依然由他�
 
 现在蜘蛛侠2没有百亿补贴了吗？太贵了
 
+
+*****
+
+####  hu794  
+##### 127#       发表于 2024-3-1 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64119490&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-3-1 21:28</a>
+
+现在蜘蛛侠2没有百亿补贴了吗？太贵了</blockquote>
+有日版兑换码，那个不贵。
+

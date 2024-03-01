@@ -84,3 +84,16 @@ BB这个进阶关卡是什么玩意
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  艾尔特翔  
+##### 46205#       发表于 2024-3-1 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114049&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2024-3-1 13:00</a>
+
+说个乐子
+
+去年换的巧克力还剩两百多张在礼物盒，导致礼物盒常年还有三百多未领取物品</blockquote>
+我都是每年领完第一时间喂了礼装，就留几个自己喜欢的
+

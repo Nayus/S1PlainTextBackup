@@ -2336,3 +2336,22 @@ x海xx，新红c名字吗<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 たかみ ちか<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">假名都对上了
 
+
+*****
+
+####  Unlight  
+##### 1732#         楼主| 发表于 2024-3-1 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64118225&amp;ptid=2130897" target="_blank">acacaclove 发表于 2024-3-1 19:42</a>
+
+たかみ ちか假名都对上了</blockquote>
+橙发校园偶像是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  キラ様  
+##### 1733#       发表于 2024-3-1 19:53
+
+心海　珊瑚宮
+

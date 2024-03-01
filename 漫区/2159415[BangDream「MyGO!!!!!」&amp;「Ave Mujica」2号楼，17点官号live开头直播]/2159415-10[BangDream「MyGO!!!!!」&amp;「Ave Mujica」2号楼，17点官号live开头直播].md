@@ -5681,3 +5681,16 @@ go都两首以上预告了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  紫吹兰  
+##### 13815#         楼主| 发表于 2024-3-1 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64120745&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-1 23:41</a>
+
+可以使用无敌的chatgpt
+
+—— 来自 S1Fun</blockquote>
+还是我原始人了
+

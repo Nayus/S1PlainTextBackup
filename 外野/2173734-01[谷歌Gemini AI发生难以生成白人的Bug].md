@@ -411,3 +411,11 @@ zzzq入脑了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">任何颜色跟黑色混在一起最终都会变成黑色！
 
+
+*****
+
+####  TiiTiiLL  
+##### 42#       发表于 2024-3-1 23:57
+
+这是训练集被污染了吗
+

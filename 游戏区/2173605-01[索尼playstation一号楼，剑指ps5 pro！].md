@@ -1140,3 +1140,32 @@ saber互动找私人投资者筹了五亿刀交钱独立了，kotor依然由他�
 现在蜘蛛侠2没有百亿补贴了吗？太贵了</blockquote>
 有日版兑换码，那个不贵。
 
+
+*****
+
+####  科师傅冰红茶  
+##### 128#       发表于 2024-3-1 22:28
+
+ 本帖最后由 科师傅冰红茶 于 2024-3-1 22:31 编辑 
+
+全网同id的hu794哥来ps专楼装索索指点了，和没有ps5跑去最终幻想专楼指点的何处堪称同id双壁
+
+*****
+
+####  csolfans  
+##### 129#       发表于 2024-3-1 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64120096&amp;ptid=2173605" target="_blank">hu794 发表于 2024-3-1 22:18</a>
+
+有日版兑换码，那个不贵。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是没中文
+
+*****
+
+####  科师傅冰红茶  
+##### 130#       发表于 2024-3-1 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64120191&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-3-1 22:30</a>
+但是没中文</blockquote>
+你以为他不知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

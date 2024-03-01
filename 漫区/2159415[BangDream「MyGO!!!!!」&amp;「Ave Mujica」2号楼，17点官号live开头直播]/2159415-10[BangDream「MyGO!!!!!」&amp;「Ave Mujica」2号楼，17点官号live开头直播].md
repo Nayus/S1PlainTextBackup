@@ -5635,3 +5635,13 @@ go都两首以上预告了。
 
 有在线看以前live的网站吗，mygo的求个私信
 
+
+*****
+
+####  Nomind96  
+##### 13811#       发表于 2024-3-1 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64119962&amp;ptid=2159415" target="_blank">461757753 发表于 2024-3-1 22:05</a>
+有在线看以前live的网站吗，mygo的求个私信</blockquote>
+自己去nyaa上面搜，mygo的live基本都有
+

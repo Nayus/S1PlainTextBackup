@@ -4859,3 +4859,11 @@ BV1TW421P7he
 
 乘倍牌是每轮给一张石头牌和牌组每加一张牌加 X0.25
 
+
+*****
+
+####  KevinGraham  
+##### 431#       发表于 2024-3-1 11:27
+
+这游戏特别适合iOS/iPadOS，希望整一个<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

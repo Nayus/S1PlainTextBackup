@@ -11213,3 +11213,19 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 主要是GM调得太明显太粗暴了，属于玩家不按剧本跑图（玩家推进速度远超预期，藏的东西还没做好），GM气急 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长线运营的含金量，电视台不都说国防部（箭脑袋）预计月底把虫子赶回隔离
 
+
+*****
+
+####  runningch  
+##### 1132#       发表于 2024-3-1 11:30
+
+劲舞团潜兵（迫真
+
+<img src="https://img.saraba1st.com/forum/202403/01/113046ahz2fffo8gnho24n.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240301102903.png</strong> (147.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 11:30 上传
+

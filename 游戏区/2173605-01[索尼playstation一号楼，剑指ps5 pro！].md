@@ -1113,3 +1113,11 @@ saber互动找私人投资者筹了五亿刀交钱独立了，kotor依然由他�
 不过SIE当年其实是很想开发续作的，1代发售 ...</blockquote>
 那还得幸亏采石场惊魂这种粪作没当成直到黎明2卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hu794  
+##### 125#       发表于 2024-3-1 19:18
+
+希望pro不要这么难看这么丑了
+

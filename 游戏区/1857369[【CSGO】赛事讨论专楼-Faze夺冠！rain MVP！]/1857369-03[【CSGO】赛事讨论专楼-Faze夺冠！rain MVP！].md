@@ -104,3 +104,18 @@ lvg进major都跟蒙古二队熬灰狗老头有关系
 
 本人从未在互联网上诋毁过lvg，本人实际上是lvg十年老粉，经过长时间的思考，我发现lvg才是cncs的希望，有时候做出决定很难，经过许多个日夜的思考，我决定加入lvg粉丝团，至于天禄，祝他的成都iem一切顺利。
 
+
+*****
+
+####  dev2ce  
+##### 4022#       发表于 2024-3-1 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 4023#       发表于 2024-3-1 19:25
+
+我一直是loveuqq粉丝啊10级过龙门好吧荧光棒过命了
+

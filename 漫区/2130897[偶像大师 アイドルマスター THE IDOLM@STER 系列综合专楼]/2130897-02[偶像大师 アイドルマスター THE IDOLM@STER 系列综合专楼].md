@@ -2284,3 +2284,13 @@ x海xx，新红c名字吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 なるみ　るな<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 1727#       发表于 2024-3-1 19:29
+
+高海千歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

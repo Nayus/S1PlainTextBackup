@@ -523,3 +523,14 @@ choco原设的欧若拉好色
 all in迦梨 无事发生 为什么 为什么不出呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新刚出完五星还想出 太贪了
 
+
+*****
+
+####  johnkamsar  
+##### 11448#       发表于 2024-3-1 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64117499&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-1 18:21</a>
+all in迦梨 无事发生 为什么 为什么不出呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">有咖喱表示除了影法师就没别的了…..
+没出没所谓！出了难敌就行！
+

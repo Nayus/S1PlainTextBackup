@@ -5066,3 +5066,19 @@ Mujica来活了</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 13766#       发表于 2024-3-1 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">雖然有用微博但完全不知道超話怎麼用
+
+
+*****
+
+####  DarthAka  
+##### 13767#       发表于 2024-3-1 08:52
+
+别最后发现是大友随手买的，人家不看邦
+

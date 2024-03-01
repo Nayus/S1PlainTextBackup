@@ -48,3 +48,12 @@
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  粉儿alice  
+##### 1091#       发表于 2024-3-1 08:54
+
+惯例吵架上学回
+小麦上学起码要有意义 别上学后跟无业游民一样 还不如不写
+

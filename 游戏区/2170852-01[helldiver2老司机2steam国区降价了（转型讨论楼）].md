@@ -11270,3 +11270,25 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 只会带这四个了，换别的就不会玩游戏了 ...</blockquote>
 想想你在有这些之前怎么打的游戏
 
+
+*****
+
+####  FLZB  
+##### 1137#       发表于 2024-3-1 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64111415&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-3-1 08:41</a>
+
+迫击炮农场刷出来的把 没样本升级..</blockquote>
+说是 速成鸡 吧，他又懂配装，感觉只是单纯菜而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 1138#       发表于 2024-3-1 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116636&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-1 16:58</a>
+
+说是 速成鸡 吧，他又懂配装，感觉只是单纯菜而已</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在能用的就那几个，配装一搜就那几套
+

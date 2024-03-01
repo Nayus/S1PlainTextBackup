@@ -629,3 +629,20 @@ FF7re再怎么样,起码都是帅哥美女啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们怎么这么在意。。。这次ff7至少从审美上并没有向政治正确低头吧。。。嘴上服个软表个态，实际还是做美好的妹子给大家就行了。
 
+
+*****
+
+####  hideo13  
+##### 76#       发表于 2024-3-1 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51869791&amp;ptid=2014085" target="_blank">2082082012 发表于 2021-7-7 11:32</a>
+
+鸟山球只是个联合导演，人设与游戏创意是野村又不是他。</blockquote>
+鸟球是脚本导演Co-Director (Scenario Design) ，也就是游戏过场怎样演出和表达他说了算，然后再交给三宅去调
+
+-
+
+而且鸟球是北濑头号马仔（如无意外未来接北濑的班），野村也不会有什么强压他做事的可能性的
+
+啊才发现是坟......
+

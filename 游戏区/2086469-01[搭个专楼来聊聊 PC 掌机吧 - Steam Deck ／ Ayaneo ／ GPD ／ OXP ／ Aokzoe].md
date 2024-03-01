@@ -185,3 +185,18 @@ https://www.tecno-mobile.com/accessories/product-deta ...</blockquote>
 
 看来ROG确实是7840U时代市场最认可的WIN掌机啊？
 
+
+*****
+
+####  bypass  
+##### 1124#         楼主| 发表于 2024-3-1 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64117370&amp;ptid=2086469" target="_blank">trow233 发表于 2024-3-1 18:08</a>
+
+友商纷纷提到ROG
+
+看来ROG确实是7840U时代市场最认可的WIN掌机啊？</blockquote>
+一开始评测续航数据出来的时候被骂惨了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 谁能想到后面大厂的机器除了 SD OLED 一个比一个拉。
+

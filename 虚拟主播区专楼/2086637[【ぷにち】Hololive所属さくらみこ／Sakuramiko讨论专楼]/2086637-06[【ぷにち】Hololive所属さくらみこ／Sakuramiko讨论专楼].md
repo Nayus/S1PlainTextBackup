@@ -927,3 +927,39 @@ A CAP……
 
 BAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAUBAU
 
+
+*****
+
+####  holoan  
+##### 8269#         楼主| 发表于 2024-3-1 21:04
+
+总算把出道时候就想做的事说出来了，还是柚子
+
+*****
+
+####  holoan  
+##### 8270#         楼主| 发表于 2024-3-1 21:09
+
+<img src="https://img.saraba1st.com/forum/202403/01/210941s9gy9v6gyk8h13j6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-1 21:09 上传
+
+
+*****
+
+####  holoan  
+##### 8271#         楼主| 发表于 2024-3-1 21:10
+
+真是不会出题，既然是双子当然要抛出终极问题了！
+
+*****
+
+####  holoan  
+##### 8272#         楼主| 发表于 2024-3-1 21:12
+
+夸……
+

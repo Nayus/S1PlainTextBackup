@@ -34,3 +34,22 @@ Image_1709294060166.jpg
 
 内战有点搞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，不知道day2会怎么安排，挺想看k组 vs r3
 
+
+*****
+
+####  仟音一心  
+##### 19710#       发表于 2024-3-1 21:13
+
+ 本帖最后由 仟音一心 于 2024-3-1 21:14 编辑 
+
+day1完整分组，day2在day1当天公布
+1. みらくらぱーく - A·ZU·NA
+2. わいわいわい - Saint Snow
+3. AZALEA - Dollchestra
+4. スリーズブーケ - Guilty Kiss
+5. KALEIDOSCORE - CatChu！
+6. R3BIRTH - Sunny Passion
+7. 保密
+8. QU4RTZ - CYaRon
+9. 5yncri5e! - Diver Diva
+

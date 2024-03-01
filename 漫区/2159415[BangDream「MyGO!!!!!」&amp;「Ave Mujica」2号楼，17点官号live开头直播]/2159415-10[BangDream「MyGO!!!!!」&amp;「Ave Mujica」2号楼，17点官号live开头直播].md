@@ -5354,3 +5354,12 @@ IMG_2442.jpeg
 
 把多年吃灰的微博拿出来+1<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Serious  
+##### 13784#       发表于 2024-3-1 13:40
+
+已经开刷了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+话说在二刺猿群闲聊你邦9周年祝福就缺🐏，🐏噶马上跳出来说打工人就应该对抗资本，没有必要发推，乐笑了
+

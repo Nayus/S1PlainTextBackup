@@ -4941,3 +4941,13 @@ BV1TW421P7he
 
 拿了四张即可straight flush的小丑，可以四张straight加四张flush组成straight flush。eg♠️2457+♥️3，同理flush house也可以。
 
+
+*****
+
+####  lilod  
+##### 436#       发表于 2024-3-1 13:37
+
+草。。才知道扑克牌那部分是可以被打完的（并不会循环）。。。
+
+删牌删太多了。。
+

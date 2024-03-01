@@ -116,3 +116,17 @@ PTA规制代哥安全牌大概不会这么写。
 
 太“负面”的东西，像掏心/doremi那些同学，都不太可能再有了。主角曾经被虐待这种就更别想了
 
+
+*****
+
+####  粉儿alice  
+##### 1098#       发表于 2024-3-1 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64114288&amp;ptid=2162354" target="_blank">davchen 发表于 2024-3-1 13:22</a>
+PTA规制代哥安全牌大概不会这么写。
+
+这个系列连“帮主角出头的小姐妹”这种角色都越来越少了，以前死迈时 ...</blockquote>
+那么索拉黑化呢 大结局感谢祭还是整出噱头来了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+说白了是这帮没用士大夫问题 整天拿小友当挡箭牌 说小友东怕一个西怕二个 结果真正了解小友过吗
+

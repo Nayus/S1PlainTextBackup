@@ -2763,3 +2763,16 @@ Steam页面：
 
 这作怪设怎么这么毕加索==
 
+
+*****
+
+####  Piano-Forest  
+##### 168#         楼主| 发表于 2024-3-1 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101727&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-2-29 10:33</a>
+
+对比港服其他商店页面应该是或将于10月12日发售
+
+星空 23年9月6日发售</blockquote>
+<[img src="https://s2.loli.net/2024/03/01/ckYTgB72yEUiboI.jpg" referrerpolicy="no-referrer">
+

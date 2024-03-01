@@ -74,3 +74,13 @@ BB这个进阶关卡是什么玩意
 
 今天主界面一看，嗬！礼物盒只剩八十几个未领取物品啦！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  溯夜  
+##### 46204#       发表于 2024-3-1 13:59
+
+终于6绊+满充能了，烟雾镜这强度的确变态
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

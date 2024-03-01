@@ -5707,3 +5707,24 @@ go都两首以上预告了。
 —— 来自 S1Fun</blockquote>
 自从gpt封掉亚洲ip后就再也没用过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  461757753  
+##### 13817#       发表于 2024-3-2 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64120218&amp;ptid=2159415" target="_blank">Nomind96 发表于 2024-3-1 22:32</a>
+
+自己去nyaa上面搜，mygo的live基本都有</blockquote>
+nyaa只有1234和12和zeep？
+
+
+*****
+
+####  Nomind96  
+##### 13818#       发表于 2024-3-2 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64121492&amp;ptid=2159415" target="_blank">461757753 发表于 2024-3-2 01:31</a>
+nyaa只有1234和12和zeep？</blockquote>
+你还想看啥，5th live吗，我可以发给你
+

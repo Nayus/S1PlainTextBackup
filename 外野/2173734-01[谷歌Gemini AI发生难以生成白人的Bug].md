@@ -447,3 +447,13 @@ zzzq入脑了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然但是，第一张黑人马斯克不是去年四五月份就有的东西么，甚至还被开玩笑说是奈飞版马斯克传
 
+
+*****
+
+####  DFantasy  
+##### 46#       发表于 2024-3-2 03:34
+
+谷歌的朋友说全公司今天周五放假了，说是什么global reset day，公司说之前上AI产品很多组都加班辛苦了，现在成功上线了给大家放个假。
+
+…………一般这种大项目上线后，不应该是最忙的时候么orz
+

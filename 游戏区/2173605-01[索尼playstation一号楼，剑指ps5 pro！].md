@@ -964,3 +964,11 @@ pro，应该10-11月就出了，ff7上pc至少25年的事
 索尼专楼却一点索尼消息也没有</blockquote>
 最近索尼也没啥新闻和传言吧，要不你可以搬点消息出来
 
+
+*****
+
+####  嘉术2015  
+##### 112#       发表于 2024-3-1 09:10
+
+原版ps5那重量就已经很夸张了，这出pro后的体积我不敢想象<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

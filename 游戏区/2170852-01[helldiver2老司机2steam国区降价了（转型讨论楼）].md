@@ -11134,3 +11134,15 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 也是见识到鬼佬队能有多抽象了，二三十级三条磁轨枪整把被坦克虫追着杀，打完回舰一看三十多级房主爱国行政 ...</blockquote>
 迫击炮农场刷出来的把 没样本升级..
 
+
+*****
+
+####  airshit  
+##### 1125#       发表于 2024-3-1 09:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还没去打难789
+
+飞鹰空袭 轨道激光 磁轨炮 蛋盾 
+
+只会带这四个了，换别的就不会玩游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1,0 +1,469 @@
+﻿
+*****
+
+####  winggg  
+##### 1#       楼主       发表于 2021-7-7 09:10
+
+ 本帖最后由 winggg 于 2021-7-7 11:32 编辑 
+
+你们是不是觉得FF7re的萨菲罗斯的Gay味日浓？
+
+这可能并不是错觉。
+
+鸟山导演告诉大家，游戏多样性与包容LGBTQ+是正确的方向。"The Last Of Us Part 2? Masterpiece!"
+
+[https://www.thegamer.com/final-f ... deo-game-diversity/](https://www.thegamer.com/final-fantasy-7-remake-the-last-of-us-part-2-video-game-diversity/)
+
+Final Fantasy 7 Remake Developer Says The Last Of Us Part 2 Is A Benchmark For Video Game Diversity
+
+BY JADE KING
+
+PUBLISHED 14 HOURS AGO
+
+Co-director Motomu Toriyama breaks down the influence of Naughty Dog's masterpiece.
+
+Speaking with TheGamer, Final Fantasy 7 Remake co-director Motomu Toriyama has expanded upon the LGBTQ+ nature of the JRPG remake, as well as highlighting how Naughty Dog’s The Last of Us Part 2 set a new benchmark for diversity in the gaming medium.
+
+While it was a rather harrowing experience, The Last of Us Part 2 broke a number of boundaries with a lesbian **e, bisexual romance and a transgender character all featuring prominently throughout the unfolding narrative. It was a bold step forward in a number of ways, and it appears this influence has made its way over to the creators of Final Fantasy 7 Remake.
+
+“The Last of Us Part 2 really delivered on its consideration for diversity,” Toriyama-san tells us. “Right down to the UI, and I would imagine that the cost of debugging on that game was massive. However, having achieved that makes it a great game that sets a benchmark for the industry.”
+
+It’s rare to see such a large Japanese studio talk so honestly about the important of queer representation, with Toriyama-san expanding further on the idea and how the team wanted to not only update Final Fantasy 7 Remake to take advantage of new technology, but to also respect and embrace the world we live in today. .
+
+“I think that expressing diversity with LGBTQ+ inclusion is an important issue for everyone involved in making content, not just people making games,” Toriyama-san explains. “In Final Fantasy 7 Remake, we rebuilt the original game using the latest technology, but we felt that it should not stop at the technical side and we needed to update the story content being shown in line with modern sensibilities.”
+
+You only need to glance at Honey Bee Inn to see how Final Fantasy 7 Remake is more than a little queer-coded, and it seems this was a deliberate act on the part of Toriyama-san and company. Time will tell whether the coming sequels will expand upon these ideas, but it seems that Square Enix is approaching its storytelling with the right attitude, which is one that isn’t afraid to explore diverse themes while building upon the original narrative.
+
+Our full interview with Yoshinori Kitase, Motomu Toriyama, and Naoki Hamaguchi will be coming soon, so keep an eye out for that alongside a number of other fascinating tidbits on Final Fantasy 7 Remake and the future of the ambitious reimagining.
+
+*****
+
+####  Guildenstern  
+##### 2#       发表于 2021-7-7 09:12
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  丹德里恩  
+##### 3#       发表于 2021-7-7 09:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不禁站起鼓掌
+
+*****
+
+####  任天索尼子  
+##### 4#       发表于 2021-7-7 09:14
+
+TLOU2官宣400万以后多久没更新销量了？FF7RE2也来个止步400万好不好啊？
+
+*****
+
+####  萨妃螺丝  
+##### 5#       发表于 2021-7-7 09:15
+
+的确看齐 鸟山求这蹦跶程度倒是和Neil大仙贝不相上下了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 6#       发表于 2021-7-7 09:19
+
+担心。。希望其他人能按住他<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AlienFromEarth  
+##### 7#       发表于 2021-7-7 09:20
+
+起码萨菲罗斯和云片长得漂亮啊
+
+*****
+
+####  sykeash  
+##### 8#       发表于 2021-7-7 09:20
+
+开宗立派可还行
+
+*****
+
+####  dumplingpro  
+##### 9#       发表于 2021-7-7 09:20
+
+说得好，起 立 鼓 掌 
+
+*****
+
+####  大小白帝  
+##### 10#       发表于 2021-7-7 09:20
+
+<blockquote>任天索尼子 发表于 2021-7-7 09:14
+TLOU2官宣400万以后多久没更新销量了？FF7RE2也来个止步400万好不好啊？</blockquote>
+这玩意本来就不一定能卖400w
+
+*****
+
+####  妹控使徒  
+##### 11#       发表于 2021-7-7 09:21
+
+就喂屎能力 鸟山求倒是比neil强很多
+
+*****
+
+####  clstc  
+##### 12#       发表于 2021-7-7 09:23
+
+ 本帖最后由 clstc 于 2021-7-7 09:26 编辑 
+
+原文里说多样性元素主要加的是蜜蜂馆阿尼安吧，老撒在ac的时候不就这副gay样，并不是在7re里才gay的
+
+*****
+
+####  哈罗  
+##### 13#       发表于 2021-7-7 09:23
+
+蜜蜂馆主最后那句话说得挺棒的
+
+*****
+
+####  FanKiE  
+##### 14#       发表于 2021-7-7 09:26
+
+作为点缀可以，拿来糊脸不行<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izumiding  
+##### 15#       发表于 2021-7-7 09:29
+
+阿尼安长得好看放在围墙街又不会突兀 游戏里LGBTQ+如果都是这个方向那尽管多来点
+
+*****
+
+####  Cyau  
+##### 16#       发表于 2021-7-7 09:33
+
+没事，日式风格我还可以接受
+
+*****
+
+####  SergeGlenn  
+##### 17#       发表于 2021-7-7 09:34
+
+喜欢TLOU2，但讨厌鸟山求
+
+*****
+
+####  FML  
+##### 18#       发表于 2021-7-7 09:35
+
+都是乐色也别比高低了
+
+*****
+
+####  Marsoy  
+##### 19#       发表于 2021-7-7 09:48
+
+愣着干嘛，鼓掌啊，奇迹啊
+
+*****
+
+####  体质的错  
+##### 20#       发表于 2021-7-7 09:52
+
+业务能力糟糕还跳
+
+*****
+
+####  ddjj  
+##### 21#       发表于 2021-7-7 10:35
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  游所不为  
+##### 22#       发表于 2021-7-7 10:42
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Lynn冰翎  
+##### 23#       发表于 2021-7-7 10:42
+
+标题党嫌疑。原文里鸟山对tlou2“奠定了新的基准”指的是tlou2游戏中对多种残障群体设计的UI，而不是包含LGBTQ+元素的叙述方式。
+
+*****
+
+####  acejoe  
+##### 24#       发表于 2021-7-7 10:46
+
+傻逼东西！
+
+*****
+
+####  softpoint  
+##### 25#       发表于 2021-7-7 11:07
+
+鸟山球跟田畑端一样都是废物
+
+*****
+
+####  astrayveller  
+##### 26#       发表于 2021-7-7 11:10
+
+鸟山求喂💩已经品鉴的够多了吧 圣龙传说和ffxiii还不够吗
+
+— from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  占星贤者  
+##### 27#       发表于 2021-7-7 11:11
+
+全网乎叫龙不悔！
+
+*****
+
+####  Rinne70  
+##### 28#       发表于 2021-7-7 11:27
+
+大洋彼岸，起立鼓掌；里程碑，击节叫好；后面的我忘了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  bobosnader  
+##### 29#       发表于 2021-7-7 11:29
+
+萨菲罗斯是gay？
+
+*****
+
+####  2082082012  
+##### 30#       发表于 2021-7-7 11:32
+
+ 本帖最后由 2082082012 于 2021-7-7 11:36 编辑 
+
+鸟山球只是个联合导演，人设与游戏创意是野村又不是他。
+
+*****
+
+####  kg21xhunter  
+##### 31#       发表于 2021-7-7 11:33
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  cqggff  
+##### 32#       发表于 2021-7-7 11:33
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  すぴぱら  
+##### 33#       发表于 2021-7-7 11:34
+
+蜜蜂馆重制我觉得鸟山搞得还是很成功的，娱乐性和政确性都拉满<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  未平真人  
+##### 34#       发表于 2021-7-7 11:47
+
+解决at之争的方法找到啦，cloud是基佬
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  mjzs07  
+##### 35#       发表于 2021-7-7 11:49
+
+克劳德原谅萨菲罗斯，你们看行不
+
+*****
+
+####  shiko  
+##### 36#       发表于 2021-7-7 11:50
+
+所有人都想艹云片这种lgbt我倒是不反对就是了XD
+
+*****
+
+####  otaku21126  
+##### 37#       发表于 2021-7-7 11:52
+
+有点意思
+
+*****
+
+####  Senni  
+##### 38#       发表于 2021-7-7 12:00
+
+FF7re再怎么样,起码都是帅哥美女啊
+
+*****
+
+####  persona  
+##### 39#       发表于 2021-7-7 12:18
+
+期待金蝶游乐园和黑胖约会魔改。
+
+*****
+
+####  村长猫  
+##### 40#       发表于 2021-7-7 12:35
+
+傻逼他妈给傻逼开门，傻逼到家了
+
+
+*****
+
+####  电磁炮233  
+##### 41#       发表于 2021-7-7 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51870024&amp;ptid=2014085" target="_blank">mjzs07 发表于 2021-7-7 11:49</a>
+克劳德原谅萨菲罗斯，你们看行不</blockquote>
+那集美们不是直接高潮了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ff2077  
+##### 42#       发表于 2021-7-7 12:46
+
+有一说一，按照鸟山求的意思，怕不是那个重制的蜜蜂馆……
+
+*****
+
+####   匿名
+##### 43#        匿名   发表于 2021-7-7 12:56
+
+ 本帖最后由 匿名 于 2022-10-19 20:57 编辑 
+
+　　　　　　　　
+
+*****
+
+####  白夜羽  
+##### 44#       发表于 2021-7-7 13:04
+
+如果是蜜蜂馆那样的话我倒没什么意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  river1981  
+##### 45#       发表于 2021-7-7 13:08
+
+7re要加入gay感情路线的话。。。好像也挺带感的。。。
+
+*****
+
+####  YIIIIIno  
+##### 46#       发表于 2021-7-7 13:13
+
+不意外,FFB那会儿就是女性主角+女同+黑人，这人一直政治正确拉满的(不过十年前那会儿看还挺因特耐什末的233)
+
+*****
+
+####  雾岛雫  
+##### 47#       发表于 2021-7-7 13:23
+
+《 奇 迹 再 临 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">》
+
+*****
+
+####  Rary  
+##### 48#       发表于 2021-7-7 13:26
+
+毕竟怎么说也是史上goty最多的游戏
+
+*****
+
+####  节艾司  
+##### 49#       发表于 2021-7-7 13:38
+
+黄油早包容过了
+
+*****
+
+####  1981112  
+##### 50#       发表于 2021-7-7 14:05
+
+快进到火影。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shqingda  
+##### 51#       发表于 2021-7-7 14:10
+
+毕竟是能做出圣龙传说的天才<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riin  
+##### 52#       发表于 2021-7-7 15:14
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  riin  
+##### 53#       发表于 2021-7-7 15:15
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  冰狼芬里尔  
+##### 54#       发表于 2021-7-7 18:22
+
+也就是鸟山球的社内zz斗争水平特别高吧。
+
+*****
+
+####  pgain2004  
+##### 55#       发表于 2021-7-7 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51869050&amp;ptid=2014085" target="_blank">Lynn冰翎 发表于 2021-7-7 10:42</a>
+标题党嫌疑。原文里鸟山对tlou2“奠定了新的基准”指的是tlou2游戏中对多种残障群体设计的UI，而不是包含LG ...</blockquote>
+我觉得有，但说得比较模糊，然后这编辑自己在文里疯狂加料
+
+*****
+
+####  Luminous脑壳痛  
+##### 56#       发表于 2021-7-7 20:03
+
+还是那句话，7re快踢掉鸟山求把
+
+*****
+
+####  Stellar_Frost  
+##### 57#       发表于 2021-7-7 20:08
+
+我啥都不说，只有这一句
+“好快，比沙拉曼达还快”
+论挑战玩家，尼尔跟这位大仙比还是嫩了点
+
+*****
+
+####  sdh45e6  
+##### 58#       发表于 2021-7-7 20:25
+
+谁 不 同 意 的
+
+请 举 手
+
+*****
+
+####  真鍮  
+##### 59#       发表于 2024-3-1 09:20
+
+鸟山求你来真的啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

@@ -4998,3 +4998,15 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灭火器射程原来比香槟还长
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 3489#       发表于 2024-3-1 09:16
+
+ 本帖最后由 Pumpkin_ccc 于 2024-3-1 09:17 编辑 
+
+新双这射程，不用蓄力的消防双，有效射程比消防栓还长，消防栓也才4.5，感觉会出现一些无脑走地流的样子，配的还是镭射<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+贴牌525这没了雨帘感觉废了，换命流双枪，无印也被新双压一头
+

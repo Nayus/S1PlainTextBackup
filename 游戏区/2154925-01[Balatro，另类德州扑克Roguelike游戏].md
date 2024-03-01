@@ -5082,3 +5082,11 @@ pc版玩了3个小时才发现有ns版……只能再买一次了！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无尽模式死于人头牌不计分，黑牌表示尽力了
 
+
+*****
+
+####  tornadoDA  
+##### 447#       发表于 2024-3-2 00:56
+
+这游戏太恶心了，不能sl一点容错都没有，打了几个小时，自己手贱了一下，感觉比吃屎还恶心
+

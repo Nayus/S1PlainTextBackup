@@ -4841,3 +4841,11 @@ BV1TW421P7he
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  afer  
+##### 429#       发表于 2024-3-1 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">只有PC不能手机摸鱼不爽，为了手机玩整了个ns模拟器，发现手柄都不用，直接触屏操作非常完美。
+

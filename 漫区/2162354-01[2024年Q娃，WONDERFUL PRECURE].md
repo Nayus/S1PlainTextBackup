@@ -74,3 +74,11 @@
 
 吵架感觉最大的可能是上学这个问题，毕竟小麦当初想要变人就是怕彩羽在学校交了新朋友不要自己了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以去上学本身也算预料之中（
 
+
+*****
+
+####  HANDAIYV  
+##### 1094#       发表于 2024-3-1 10:01
+
+这年头连狗都要上学了，不会真要智商不如狗了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

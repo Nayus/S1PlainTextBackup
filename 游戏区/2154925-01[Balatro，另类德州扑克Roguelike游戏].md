@@ -4982,3 +4982,42 @@ RL体验是这样的，硬核起来x回合不出abc就可以reroll了....
 
 ante你理解为层数就行了
 
+
+*****
+
+####  wenhaowu  
+##### 440#       发表于 2024-3-1 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116573&amp;ptid=2154925" target="_blank">就是剑鞘 发表于 2024-3-1 16:53</a>
+特殊机制，这类牌减到0的时候就会自动消失，不会给你留着再卖掉的机会
+
+ante你理解为层数就行了 ...</blockquote>
+啊，所以想留着这张小丑牌的话只能每场都在5次内出牌解决战斗吗。那个ante我看每轮都是1/8，不能直接理解为层级吧
+
+
+*****
+
+####  库德里尔  
+##### 441#       发表于 2024-3-1 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116715&amp;ptid=2154925" target="_blank">wenhaowu 发表于 2024-3-1 17:05</a>
+啊，所以想留着这张小丑牌的话只能每场都在5次内出牌解决战斗吗。那个ante我看每轮都是1/8，不能直接理解 ...</blockquote>
+一轮小盲-大盲-boss盲是一个ante，从1开始，打完某一轮的boss盲注后ante+1，打完ante8的boss就通关了。
+每一次选择打盲注而不是跳过的时候回合数+1，打完这个盲注后爆米花会自动-4加成，随后每打一个盲注再-4，减到0自毁。
+
+*****
+
+####  库德里尔  
+##### 442#       发表于 2024-3-1 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116771&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-3-1 17:10</a>
+一轮小盲-大盲-boss盲是一个ante，从1开始，打完某一轮的boss盲注后ante+1，打完ante8的boss就通关了。
+ ...</blockquote>
+有一些小丑牌加成会随着游戏进行衰减。
+
+有像拉面这种 每弃1张牌就削减的
+有冰淇淋这种 每出1手牌就削减的
+有爆米花这种 每过1回合就削减的
+
+计量单位都不一样
+

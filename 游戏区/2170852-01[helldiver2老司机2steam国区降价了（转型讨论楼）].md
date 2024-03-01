@@ -11292,3 +11292,24 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 说是 速成鸡 吧，他又懂配装，感觉只是单纯菜而已</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在能用的就那几个，配装一搜就那几套
 
+
+*****
+
+####  FLZB  
+##### 1139#       发表于 2024-3-1 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116699&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-1 17:04</a>
+
+现在能用的就那几个，配装一搜就那几套</blockquote>
+马的会搜配装不会搜怎么打坦克虫，拳头硬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 1140#       发表于 2024-3-1 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116725&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-1 18:06</a>
+马的会搜配装不会搜怎么打坦克虫，拳头硬了</blockquote>
+第二代绝地战兵现状，量产换来的质量下降<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

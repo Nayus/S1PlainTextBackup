@@ -593,3 +593,15 @@ FF7re再怎么样,起码都是帅哥美女啊
 
 谁是基？
 
+
+*****
+
+####  Khellendros  
+##### 72#       发表于 2024-3-1 13:00
+
+很多老游戏这种要素也不少，本来就很适合当个噱头
+
+现在zzzq恶心的是摁头审丑和强行把主角设定成性少数不让你选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及tlou2让女同抽大烟杀孕妇我都分不清是支持还是抹黑了
+

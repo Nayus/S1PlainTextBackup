@@ -62,3 +62,15 @@
 
 BB这个进阶关卡是什么玩意
 
+
+*****
+
+####  shimotsuki14  
+##### 46203#       发表于 2024-3-1 13:00
+
+说个乐子
+
+去年换的巧克力还剩两百多张在礼物盒，导致礼物盒常年还有三百多未领取物品
+
+今天主界面一看，嗬！礼物盒只剩八十几个未领取物品啦！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

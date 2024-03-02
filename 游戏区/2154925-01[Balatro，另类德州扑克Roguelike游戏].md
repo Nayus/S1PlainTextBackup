@@ -5116,3 +5116,13 @@ pc版玩了3个小时才发现有ns版……只能再买一次了！
 
 —— 来自 vivo V2243A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  a4ac7  
+##### 451#       发表于 2024-3-2 23:01
+
+boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖了。。不可摧毁，艹，寄！
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -181,3 +181,14 @@ PTA规制代哥安全牌大概不会这么写。
 
 这待遇只能是追加了
 
+
+*****
+
+####  modedd  
+##### 1104#       发表于 2024-3-2 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64121987&amp;ptid=2162354" target="_blank">有骨气的百合 发表于 2024-03-02 08:36:18</a>
+这待遇只能是追加了</blockquote>事到如今这待遇摆在这儿，就算追加真是独角兽我感觉戏份也赶不上兔组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

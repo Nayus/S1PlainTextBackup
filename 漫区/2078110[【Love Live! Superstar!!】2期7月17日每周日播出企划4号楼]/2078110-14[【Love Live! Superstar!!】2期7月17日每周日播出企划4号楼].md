@@ -53,3 +53,13 @@ day1完整分组，day2在day1当天公布
 8. QU4RTZ - CYaRon
 9. 5yncri5e! - Diver Diva
 
+
+*****
+
+####  ads147147  
+##### 19711#       发表于 2024-3-2 17:38
+
+甲子园抽选确实直播名场景还挺多，切片看乐了。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

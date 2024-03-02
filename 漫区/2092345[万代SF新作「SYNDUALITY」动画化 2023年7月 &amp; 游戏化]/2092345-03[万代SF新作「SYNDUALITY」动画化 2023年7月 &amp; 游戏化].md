@@ -3630,3 +3630,14 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 4150#       发表于 2024-3-2 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64109474&amp;ptid=2092345" target="_blank">苍蓝之枪 发表于 2024-2-29 22:39</a>
+
+紧急插播了一集黄金国还行，但是没有世界树副本了，决战是直接上乐园了吧 ...</blockquote>
+其实这话应该是把诺娃，大哥，面具男的过去支线给收完了的感觉
+

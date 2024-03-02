@@ -3443,3 +3443,15 @@ live果然是让人溢满情感，好爽
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  陆久舟  
+##### 1862#       发表于 2024-3-2 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64126567&amp;ptid=2130897" target="_blank">江口夕 发表于 2024-3-2 20:04</a>
+才看 田中竟然沒在
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+yuki明天来
+

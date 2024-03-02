@@ -3491,3 +3491,15 @@ stevenyomi在他的releases界面提供的0.13.6版本的修改版tachiyomi和�
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hjknight  
+##### 349#       发表于 2024-3-3 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64126459&amp;ptid=2010665" target="_blank">傘木希美 发表于 2024-3-2 19:52</a>
+好像是
+
+—— 来自 vivo V2227A, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+可以连，需要魔法
+

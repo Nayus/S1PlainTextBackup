@@ -5126,3 +5126,11 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nailuo1993  
+##### 452#       发表于 2024-3-3 01:12
+
+天胡局打到了e61，封盘了，体验过了这个数值，以后看不见e都没感觉了
+

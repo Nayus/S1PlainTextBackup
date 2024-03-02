@@ -6077,3 +6077,11 @@ RAS mini專（11/1）的曲目公開時間
 
 应该是这个走向？
 
+
+*****
+
+####  御幸一也  
+##### 13844#       发表于 2024-3-2 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我也覺得是這個流程很合理，但2nd我感覺不太會唱那麼多新歌，已經被訓練得不敢期待了
+

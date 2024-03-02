@@ -2388,3 +2388,13 @@ x海xx，新红c名字吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  没取名啊  
+##### 1737#       发表于 2024-3-2 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64124737&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-3-2 16:06</a>
+叶月传进到日花wing了</blockquote>
+表情还挺到位的，有潜质！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

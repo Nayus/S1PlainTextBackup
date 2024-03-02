@@ -230,3 +230,14 @@ flip订了8840的版本，主要是不想再要个7840的机器（马甲就马�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">所以这新gpdmini值得入手吗，眼馋好久了
 
+
+*****
+
+####  毒品  
+##### 1128#       发表于 2024-3-2 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64121933&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2024-3-2 08:17</a>
+
+所以这新gpdmini值得入手吗，眼馋好久了</blockquote>
+等等吧，看这意思，就是砍了个芯片，没提散热大改
+

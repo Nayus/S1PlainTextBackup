@@ -6157,3 +6157,28 @@ RAS mini專（11/1）的曲目公開時間
 
 没记错的话去年年底的杂志采访里面她们就画过角色主题曲的饼，虽然邦邦这边会尽量在能力范围内满足cv要求，但半年不到就给搞出来好像可能性不大，所以这五首不是角色曲的可能性也是有的
 
+
+*****
+
+####  御幸一也  
+##### 13852#       发表于 2024-3-2 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那個預告的PV都那樣了，是角色曲了吧，
+
+而且還剛好5首，你邦不是最近很愛搞這種嗎，我看RAS和碟都是角色曲mini專
+
+*****
+
+####  紫吹兰  
+##### 13853#         楼主| 发表于 2024-3-2 20:41
+
+所以能看到音宝唱春日影吗，会是大祥老师最喜欢的一集吗
+
+<img src="https://img.saraba1st.com/forum/202403/02/204042d33ww1b8kqezewaa.png" referrerpolicy="no-referrer">
+
+<strong>AS.png</strong> (118.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 20:40 上传
+

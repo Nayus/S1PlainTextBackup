@@ -6208,3 +6208,14 @@ Mujica新曲制作中
 
 角色曲好文明，每人都来一首吧<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13857#       发表于 2024-3-3 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64126247&amp;ptid=2159415" target="_blank">Serious 发表于 2024-3-2 19:25</a>
+
+🐏上年风评还是不错的吧，印象中灯宝生日后才一堆人烤</blockquote>
+是整个11月以后，专辑四缺一和12th并不那么令人满意的表现再加上最后的生日，这一波下来除了羊噶没几个人再给她说话了
+

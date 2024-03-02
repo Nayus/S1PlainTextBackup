@@ -494,3 +494,20 @@ zzzq入脑了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  死宅真恶心  
+##### 50#       发表于 2024-3-2 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64122232&amp;ptid=2173734" target="_blank">约瑟夫海顿 发表于 2024-3-2 09:38</a>
+
+是真的吗，怎么我让Gemini生成图片，它说它没这功能
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+关于人类的会ban掉 
+
+We are working to improve Gemini’s ability to generate images of people. We expect this feature to return soon and will notify you in release updates when it does.
+
+你倒是可以问generate a picture of F-16之类的
+

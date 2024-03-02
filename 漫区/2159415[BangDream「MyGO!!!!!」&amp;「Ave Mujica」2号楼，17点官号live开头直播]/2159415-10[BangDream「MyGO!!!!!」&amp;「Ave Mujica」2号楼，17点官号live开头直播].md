@@ -6031,3 +6031,35 @@ RAS mini專（11/1）的曲目公開時間
 
 一個月一首反著數，就感覺可能是4月了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  御幸一也  
+##### 13840#       发表于 2024-3-2 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64124546&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-3-2 15:35</a>
+
+我只希望live2nd能长一点 1st老实说有点短了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">對米澤好一點，而且她們不MC的話時間長不了，很多都是安可出來MC閒聊水時間的呢
+
+
+*****
+
+####  NODY  
+##### 13841#       发表于 2024-3-2 15:43
+
+三月开始出的话理论上七月的那场live能做到把五首新歌全唱了，不过这样的话去了day1的感觉血亏
+
+当然也有可能是年底开3rd然后那个才是五首新歌的主场
+
+*****
+
+####  御幸一也  
+##### 13842#       发表于 2024-3-2 15:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是碟片應該10月才發售，還是說武士道準備2nd BD拆開賣2次，來一個其他團的粉來懶人包一下其他團的巡演BD怎麼出的省得我google
+
+3月出7月就歌曲全部公開了，接著就是乾等，好像也不太符合宣傳套路
+
+最後一首歌應該不會離碟片的發售時間太遠才正常
+

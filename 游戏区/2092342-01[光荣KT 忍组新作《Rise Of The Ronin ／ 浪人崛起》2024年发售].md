@@ -1104,3 +1104,32 @@ psjp给的演示就全是大白天的野外了
 
 目前这游戏和龙信2的宣发都能用一坨翔来形容，作为卖点的动作部分的优点完全没有展现出来。
 
+
+*****
+
+####  Z1yu  
+##### 777#       发表于 2024-3-2 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64123666&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-2 13:22</a>
+大剑和大太刀到底啥区别....本来看标题以为会是claymore或者greatsword那种从西洋传过来的武器 结果 ...</blockquote>
+大剑明显是套仁王大斧的动作模组，挥动时候身体大幅度跟着武器动，速度偏慢。
+大太刀重点在长，身体动作没那么大，速度也比大剑要快。
+
+*****
+
+####  Z1yu  
+##### 778#       发表于 2024-3-2 14:19
+
+现在还有军刀，牛尾刀，空手，棍子没演示吧。
+流派肯定不止这一些，预购里都还有隼流。
+
+*****
+
+####  病態極端  
+##### 779#       发表于 2024-3-2 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64123666&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-2 13:22</a>
+
+大剑和大太刀到底啥区别....本来看标题以为会是claymore或者greatsword那种从西洋传过来的武器 结果 ...</blockquote>
+大劍普攻可以蓄力
+

@@ -6182,3 +6182,13 @@ RAS mini專（11/1）的曲目公開時間
 
 2024-3-2 20:40 上传
 
+
+*****
+
+####  PDQ4  
+##### 13854#       发表于 2024-3-2 21:25
+
+角色曲的可能性还是很大的吧，毕竟1st预告的时候正好五个场景冒五个色的烟，而且人偶角色曲也可以补全世界观。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+我可以梦双角色曲吗，全员水仙来一个。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

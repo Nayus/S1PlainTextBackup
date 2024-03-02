@@ -5098,3 +5098,11 @@ pc版玩了3个小时才发现有ns版……只能再买一次了！
 
 用同花卡组过了金注，去清挑战，感觉有些挑战比金注还恶心
 
+
+*****
+
+####  变老的大二  
+##### 449#       发表于 2024-3-2 22:21
+
+橙注卡了一下午了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏讲究一个随机应变，拿不到关键joker就暴毙
+

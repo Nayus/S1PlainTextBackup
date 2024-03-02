@@ -3356,3 +3356,13 @@ nari好会摆pose
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wfhtony  
+##### 1852#       发表于 2024-3-2 19:35
+
+川口 —(お姉さま)→ 黑木
+
+結果今天只有頭尾兩首曲子有特別arrange，明天應該會是兩首新的arrange曲吧。
+

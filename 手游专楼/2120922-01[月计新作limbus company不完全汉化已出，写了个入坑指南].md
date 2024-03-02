@@ -665,3 +665,15 @@ syl 之前猜会给浮
 
 （沉沦队有强度但是缺人，振动队表现一般，烧伤队未来可期）
 
+
+*****
+
+####  电波系腑海林  
+##### 577#       发表于 2024-3-2 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64126107&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-3-2 19:09</a>
+自抽的话，3.7前有限定池剑契默尔索和剑契浮士德，算是呼吸队的两个重要角色，加个活动送的剑契唐或者开 ...</blockquote>
+OK我研究一下<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

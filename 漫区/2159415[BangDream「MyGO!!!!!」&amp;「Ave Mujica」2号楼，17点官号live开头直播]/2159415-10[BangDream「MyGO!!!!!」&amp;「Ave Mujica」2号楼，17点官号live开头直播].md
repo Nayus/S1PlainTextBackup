@@ -6129,3 +6129,21 @@ RAS mini專（11/1）的曲目公開時間
 
 邦z8平时嘲得多但cv真没什么大问题的话基本还是有好感的，羊之前失声都一堆同情，可惜她后来的表现一次次刷新下限导致变成了真拷打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Serious  
+##### 13849#       发表于 2024-3-2 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">🐏上年风评还是不错的吧，印象中灯宝生日后才一堆人烤
+
+
+*****
+
+####  PDQ4  
+##### 13850#       发表于 2024-3-2 19:33
+
+光去惦记5个月新曲连发了，才想起来mujica始动正好是4.10日，有那样的周年曲作为序幕然后发五首角色曲吗。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+去年3.10日开始倒计时，可以看到今年有表示吗，不过第一次露出logo的2.4都没表示，感觉在做梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -51,3 +51,21 @@
 
 —— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+*****
+
+####  宛若青空  
+##### 310#       发表于 2024-3-2 18:58
+
+<blockquote>实体版预购特典“剑星原声带黑胶唱片”或“剑星USB随身碟”</blockquote>
+
+黑胶封面是新图
+
+<img src="https://img.saraba1st.com/forum/202403/02/184527hxk9zp4r6kpiphkr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F3CCAC85-C976-423E-AE97-FD8A4DA17521.jpeg</strong> (332.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 18:45 上传
+

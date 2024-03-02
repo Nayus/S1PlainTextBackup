@@ -11483,3 +11483,16 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  DawnGuardian  
+##### 1158#       发表于 2024-3-2 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64127436&amp;ptid=2170852" target="_blank">novyDC 发表于 2024-3-2 21:39</a>
+
+500kg有点难用
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+反泰坦专用的，扔之前勾引一下泰坦吐口水，基本就能百发百中
+

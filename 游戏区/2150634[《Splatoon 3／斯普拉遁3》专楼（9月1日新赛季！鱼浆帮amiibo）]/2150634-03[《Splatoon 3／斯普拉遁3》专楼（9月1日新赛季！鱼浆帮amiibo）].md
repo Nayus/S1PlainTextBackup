@@ -5469,3 +5469,29 @@ BV1x2421M7V8</blockquote>
 
 这期简单还有武器配置的原因，消防双比想象的更好用，加上另外3把都是打工t1级的
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 3541#       发表于 2024-3-2 20:22
+
+终于不用看着二代视频眼馋了，二代这加特林动作太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+Screenshot_2024-03-02-20-16-19-943_com.miui.gallery.jpg
+(380.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202403/02/202132w0gghnpep4ddn50j.jpg" referrerpolicy="no-referrer">
+
+Screenshot_2024-03-02-20-16-39-148_com.miui.gallery.jpg
+(323.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202403/02/202141frt5on28n2087myy.jpg" referrerpolicy="no-referrer">
+

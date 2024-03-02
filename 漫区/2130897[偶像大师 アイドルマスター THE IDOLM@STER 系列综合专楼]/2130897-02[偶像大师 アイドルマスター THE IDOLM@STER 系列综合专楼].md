@@ -2604,3 +2604,64 @@ yaya好强
 
 太爽了
 
+
+*****
+
+####  田所あずさ  
+##### 1763#       发表于 2024-3-2 17:28
+
+<img src="https://img.saraba1st.com/forum/202403/02/172804nk08n1odhokf4505.png" referrerpolicy="no-referrer">
+
+<strong>OD50}_GI]S7~7BR[W$HT`AJ_tmb.png</strong> (135.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 17:28 上传
+
+一下子没崩住
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RhmBWT_Wu| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Unlight  
+##### 1764#         楼主| 发表于 2024-3-2 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64125003&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-2 16:51</a>
+看来还是柏油多柏油act4两天刷10多页</blockquote>
+泥潭手/页游区几家里土豆楼是最高的，比草菇楼还高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  陆久舟  
+##### 1765#       发表于 2024-3-2 17:34
+
+开始串了
+
+
+*****
+
+####  Vacuolar  
+##### 1766#       发表于 2024-3-2 17:35
+
+终于正常了，不听点和专辑不同的干嘛来live，录音室多好啊
+
+*****
+
+####  rexzhanghao  
+##### 1767#       发表于 2024-3-2 17:36
+
+想起来了，live是不是还没唱过scsp的曲目
+

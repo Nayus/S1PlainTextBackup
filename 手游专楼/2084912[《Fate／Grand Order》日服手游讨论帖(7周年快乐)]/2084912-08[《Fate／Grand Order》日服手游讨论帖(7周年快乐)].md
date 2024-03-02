@@ -550,3 +550,14 @@ all in迦梨 无事发生 为什么 为什么不出呢</blockquote>
 
 抽迦梨当然是为了xp，所以去年就一宝收藏了233
 
+
+*****
+
+####  清河子  
+##### 11451#       发表于 2024-3-2 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64117429&amp;ptid=2084912" target="_blank">清河子 发表于 2024-3-1 18:15</a>
+迦梨池五百石暴死，然后拿小号抽了一下，十连二宝，道心狠狠地破碎备战三战 ...</blockquote>
+挖完了强化本和幕间，最后一赌抽到了
+玩的就是极限<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">开心310了
+

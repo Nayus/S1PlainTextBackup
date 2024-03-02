@@ -6111,3 +6111,13 @@ RAS mini專（11/1）的曲目公開時間
 
 二单有可能跟动画OP/ED有关
 
+
+*****
+
+####  木谷高明  
+##### 13847#       发表于 2024-3-2 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64125112&amp;ptid=2159415" target="_blank">太二EricGuo 发表于 2024-3-2 17:10</a>
+梦想紫吧的本意是坏的，但自从有了mygo，做的事都是好的，是mygo改变了紫吧吗 ...</blockquote>
+和隔壁百合楼一样，一开始都是厨厨乐子人，一旦没鱼钓了/没东西炒了，就转纯良豚豚gachi了。隔壁百合楼虽然粪海狂蛆，但百合创作者遇到困境去打钱的真不少。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

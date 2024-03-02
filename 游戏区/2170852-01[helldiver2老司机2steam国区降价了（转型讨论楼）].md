@@ -11436,3 +11436,16 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 1154#       发表于 2024-3-2 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64125069&amp;ptid=2170852" target="_blank">leoray 发表于 2024-3-2 17:05</a>
+
+今天难8野排闪电战打了个全清信心爆棚去排难9，结果连个重巢都清不动牛也太多了吧
+
+—— 来自 S1Fun ...</blockquote>
+找个石头让牛撞到一起一波空袭送走
+

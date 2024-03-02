@@ -687,3 +687,37 @@ OK我研究一下<img src="https://static.saraba1st.com/image/smiley/face2017/05
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  钟于123  
+##### 579#       发表于 2024-3-2 23:17
+
+群没了，想聊的话，贴吧：边狱公司吧或者b站up的群
+
+目前主要还是镜牢坐牢+等主线更新，以及大概3个月一次的脑叶图书馆联动限定池（当期只能抽，往期可以换，目前出过的3灯脑叶浮+魔弹奥）
+
+镜子坐牢的话，最好有个流血呼吸队（船箱，船夫，船玛，剑浮，海盗虫）+强力角色 兔子夫/n辛/5辛/w唐/w良/剑锁
+
+镜子局内 需要合成的饰品 血雾 
+
+<img src="https://img.saraba1st.com/forum/202403/02/230903wrz3env7zrn0e5vz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (285.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/02/231545b1gbpo4lnnn93npq.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (61.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 23:15 上传
+
+游戏汉化 b站零协 
+
+剧情汉化 b站灰色渔歌
+

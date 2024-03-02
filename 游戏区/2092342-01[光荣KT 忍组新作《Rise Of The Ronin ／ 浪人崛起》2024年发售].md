@@ -1256,3 +1256,16 @@ https://www.bilibili.com/video/BV1Cj421m7Ub
 这个视频的大剑的外观估计比较符合一般人想像的大剑，ps J ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">一下子对味了
 
+
+*****
+
+####  被雨困住的城市  
+##### 791#       发表于 2024-3-2 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64126568&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-2 20:04</a>
+
+KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
+
+我正宗日厂、更擅长动作戏、角色更美型、幕末背景比起来还 ...</blockquote>
+感觉有点过于自信了233
+

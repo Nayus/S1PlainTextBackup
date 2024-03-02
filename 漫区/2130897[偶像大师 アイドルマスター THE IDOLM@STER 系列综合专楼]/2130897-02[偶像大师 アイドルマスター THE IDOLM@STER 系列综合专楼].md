@@ -3426,3 +3426,20 @@ imas！
 
 tsubasa gravity<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天球仪观测者  
+##### 1860#       发表于 2024-3-2 20:01
+
+live果然是让人溢满情感，好爽
+
+*****
+
+####  江口夕  
+##### 1861#       发表于 2024-3-2 20:04
+
+才看 田中竟然沒在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -1228,3 +1228,18 @@ psjp给的演示就全是大白天的野外了
 感觉销量会很微妙，话说选择和龙信同日发售到底是为了啥，单说欧美，从题材来说大部分都会选择龙信 ...</blockquote>
 索尼是发行商，这问题得问sie吧
 
+
+*****
+
+####  黑修士  
+##### 789#       发表于 2024-3-2 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64126148&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-3-2 19:13</a>
+
+感觉销量会很微妙，话说选择和龙信同日发售到底是为了啥，单说欧美，从题材来说大部分都会选择龙信 ...</blockquote>
+KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
+
+我正宗日厂、更擅长动作戏、角色更美型、幕末背景比起来还更热门，宣发也都是索尼......
+
+这波稳了，五百万妥妥的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

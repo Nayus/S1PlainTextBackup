@@ -192,3 +192,13 @@ PTA规制代哥安全牌大概不会这么写。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  maoyou  
+##### 1105#       发表于 2024-3-2 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">漏油别说了，我害怕
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

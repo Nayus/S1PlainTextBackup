@@ -1199,3 +1199,14 @@ psjp给的演示就全是大白天的野外了
 
 仁王里边其实也有，就是石头人手里那种，属于绘画或者雕塑上艺术加工出来的武器，就算是游戏里的猛男们通常也不好意思拿来当牙签甩
 
+
+*****
+
+####  stair楼梯  
+##### 786#       发表于 2024-3-2 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64123571&amp;ptid=2092342" target="_blank">teo・tesukatoru 发表于 2024-3-2 13:09</a>
+
+流派不会这么少吧，会不会有啥高级流派</blockquote>
+光太刀加上预购特典的仁王流和隼流就已经公布了8个流派，这天地人三段架势各能装备一个流派保底也是每个武器最低三个流派
+

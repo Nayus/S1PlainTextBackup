@@ -2938,3 +2938,35 @@ scsp新歌连续放送吗
 
 就应该有刚出的歌上，对企划爱好者来说手游最大意义就是出歌速度加快，周年live既是回顾，也该是新歌宣传会
 
+
+*****
+
+####  rgauss  
+##### 1804#       发表于 2024-3-2 18:19
+
+我路人粉 没听过的都不知道是不是新歌
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 1805#       发表于 2024-3-2 18:20
+
+这其实是我第一次看sc的live，之前到底是啥情况，只知道天天能看到骂高山的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  田所あずさ  
+##### 1806#       发表于 2024-3-2 18:21
+
+5.5高山真的烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  田所あずさ  
+##### 1807#       发表于 2024-3-2 18:26
+
+公婆对舞！导播终于懂了
+

@@ -11449,3 +11449,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 —— 来自 S1Fun ...</blockquote>
 找个石头让牛撞到一起一波空袭送走
 
+
+*****
+
+####  airshit  
+##### 1155#       发表于 2024-3-2 18:24
+
+遇到一个用不了自己武器的bug，难蹦，落地只能去捡队友的武器<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

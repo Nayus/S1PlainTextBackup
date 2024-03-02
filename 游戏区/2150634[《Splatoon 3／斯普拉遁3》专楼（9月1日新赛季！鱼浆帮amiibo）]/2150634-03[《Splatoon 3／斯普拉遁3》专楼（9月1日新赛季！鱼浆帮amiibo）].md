@@ -5427,3 +5427,11 @@ BV1x2421M7V8
 BV1x2421M7V8</blockquote>
 大概是人物一路从蛋框那里顺着水管来中途没落地，系统判定人在蛋框方向蛋就飞过去然后被蛋框拦截了？
 
+
+*****
+
+####  hugosol  
+##### 3536#       发表于 2024-3-2 14:45
+
+新双枪FF翻滚射击击杀速度太离谱了，走射虽然涂地很弱但射程足够长就是质变，感觉完全是红双上位版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

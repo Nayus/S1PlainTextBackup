@@ -11392,3 +11392,29 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">吐酸虫的肚子虽然软是无甲，但是有很高的伤害减免，还是要用穿甲伤害打头
 
+
+*****
+
+####  runningch  
+##### 1150#       发表于 2024-3-2 14:42
+
+这种“手套？”有没有搞头？
+
+<img src="https://img.saraba1st.com/forum/202403/02/144206ljqjww2wbgyqgryy.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240302133951.png</strong> (105.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 14:42 上传
+
+*****
+
+####  runningch  
+##### 1151#       发表于 2024-3-2 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64124137&amp;ptid=2170852" target="_blank">bladethunder 发表于 2024-3-2 14:33</a>
+
+吐酸虫的肚子虽然软是无甲，但是有很高的伤害减免，还是要用穿甲伤害打头 ...</blockquote>
+用榴弹炸吐酸虫肚子有奇效。我现在野排看队友有反重甲装备的时候都改带榴弹了。
+

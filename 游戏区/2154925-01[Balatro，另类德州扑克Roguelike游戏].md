@@ -5106,3 +5106,13 @@ pc版玩了3个小时才发现有ns版……只能再买一次了！
 
 橙注卡了一下午了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏讲究一个随机应变，拿不到关键joker就暴毙
 
+
+*****
+
+####  Headless  
+##### 450#       发表于 2024-3-2 22:36
+
+手机出安卓版了，b站很多，app那种
+
+—— 来自 vivo V2243A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

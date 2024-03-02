@@ -5844,3 +5844,11 @@ nyaa只有1234和12和zeep？</blockquote>
 
 话说立希加入Mujica是不是还挺有搞头。看在海铃的面子上立希还是很可能会偷偷加入的，况且祥子什么实力她是应该很清楚。到时候两家下注，如果Mujica火了MyGO没火，就把高松灯拉进Mujica，对小灯来说Mujica里全是熟人，祥子也是肯定会同意（做梦都笑醒了）。万一祥子不同意又能上演一出好戏：“和海玲初华说组一辈子乐队都是假的，一切都是为了把高松灯和素世拉进来复活Crychic。”<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  和睦呈现  
+##### 13828#       发表于 2024-3-2 13:38
+
+难蚌，这又是什么绝世高手了
+

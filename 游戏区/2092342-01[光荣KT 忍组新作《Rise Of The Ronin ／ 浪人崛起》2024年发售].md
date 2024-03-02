@@ -1096,3 +1096,11 @@ psjp给的演示就全是大白天的野外了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大剑和大太刀到底啥区别....本来看标题以为会是claymore或者greatsword那种从西洋传过来的武器 结果和大太刀感觉没啥差别...对调一下视频内容我都区分不出啊
 
+
+*****
+
+####  nage560  
+##### 776#       发表于 2024-3-2 13:39
+
+目前这游戏和龙信2的宣发都能用一坨翔来形容，作为卖点的动作部分的优点完全没有展现出来。
+

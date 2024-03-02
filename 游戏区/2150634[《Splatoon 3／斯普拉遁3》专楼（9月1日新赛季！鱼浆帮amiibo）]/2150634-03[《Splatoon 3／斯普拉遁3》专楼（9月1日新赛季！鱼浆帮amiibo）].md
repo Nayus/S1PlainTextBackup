@@ -5495,3 +5495,23 @@ Screenshot_2024-03-02-20-16-39-148_com.miui.gallery.jpg
 
 <img src="https://img.saraba1st.com/forum/202403/02/202141frt5on28n2087myy.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藏獒·烨  
+##### 3542#       发表于 2024-3-2 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64122536&amp;ptid=2150634" target="_blank">晴岚 发表于 2024-3-2 10:37</a>
+
+我也是，但不知道为什么就挺轻松的就过去了（  我甚至都没搞懂要怎么拉怪 ...</blockquote>
+气了一晚第二把wave1大雾，不想活了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+我是本楼唯一菜鸡<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Variks  
+##### 3543#       发表于 2024-3-2 22:37
+
+2代有金工啊
+

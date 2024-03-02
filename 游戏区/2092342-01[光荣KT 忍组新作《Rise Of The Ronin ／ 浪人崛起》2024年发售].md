@@ -1243,3 +1243,16 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 
 这波稳了，五百万妥妥的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Emmerich  
+##### 790#       发表于 2024-3-2 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64124613&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-2 15:47</a>
+
+https://www.bilibili.com/video/BV1Cj421m7Ub
+
+这个视频的大剑的外观估计比较符合一般人想像的大剑，ps J ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">一下子对味了
+

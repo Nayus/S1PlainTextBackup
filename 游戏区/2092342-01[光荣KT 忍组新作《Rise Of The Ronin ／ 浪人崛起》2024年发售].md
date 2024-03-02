@@ -1171,3 +1171,19 @@ psjp给的演示就全是大白天的野外了
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  duraa  
+##### 784#       发表于 2024-3-2 15:47
+
+ 本帖最后由 duraa 于 2024-3-2 15:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64123666&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-2 13:22</a>
+
+大剑和大太刀到底啥区别....本来看标题以为会是claymore或者greatsword那种从西洋传过来的武器 结果 ...</blockquote>
+[https://www.bilibili.com/video/BV1Cj421m7Ub](https://www.bilibili.com/video/BV1Cj421m7Ub)
+
+这个视频的大剑的外观估计比较符合一般人想像的大剑，ps Japan那个确实缺少点辨识度（顺便一提这视频里还有牛尾刀和军刀
+
+招式模组上的话，大剑那个处决的转转转感觉是用的仁王的斧子的拨云<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

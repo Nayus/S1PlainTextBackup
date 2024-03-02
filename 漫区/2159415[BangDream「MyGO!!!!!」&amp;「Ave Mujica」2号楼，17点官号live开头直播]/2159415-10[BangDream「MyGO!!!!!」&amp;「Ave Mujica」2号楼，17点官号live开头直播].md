@@ -5932,3 +5932,102 @@ kenzo说mujica新歌很牙白，你们是不是又要来点过激背德的东西
 
 2024-3-2 15:20 上传
 
+
+*****
+
+####  jerryoq1  
+##### 13835#       发表于 2024-3-2 15:28
+
+翻了一下x，上次提到ave mujica新曲是9月11号， 
+录音完成是11月9号。然后公布新曲是在1月。
+说明到7月前大概是没有新曲了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  御幸一也  
+##### 13836#       发表于 2024-3-2 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前錄了沒出的ave歌，這是第三首，然後預告的時候看顏色，順序如果沒錯會是睦海喵祥初
+
+鼓手說今天這首很牙白，也就是第三首喵夢曲很牙白，感覺是鼓譜又地獄難度了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">畢竟角色曲要秀的嘛
+
+
+*****
+
+####  御幸一也  
+##### 13837#       发表于 2024-3-2 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64124511&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-3-2 15:28</a>
+
+翻了一下x，上次提到ave mujica新曲是9月11号， 
+
+录音完成是11月9号。然后公布新曲是在1月。
+
+说明到7月前大 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/02/153201dhvckydhcnudcczm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 15:32 上传
+
+大雄的消息真是不靈通啊.jpg
+
+我一直有在統計這個，感覺3月還是有可能出的，但我從另外的角度推感覺要等到4月，反正也只能等了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  jerryoq1  
+##### 13838#       发表于 2024-3-2 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64124536&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-3-2 15:33</a>
+
+大雄的消息真是不靈通啊.jpg
+
+我一直有在統計這個，感覺3月還是有可能出的，但我從另外的角度推感覺要 ...</blockquote>
+我只希望live2nd能长一点 1st老实说有点短了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 13839#       发表于 2024-3-2 15:37
+
+另外的角度，指RAS和蝶 mini專，YT的歌曲出來時間和發售時間
+
+首先是live後3個月要出碟賣BD，所以10月比較肯定會有ave的円盤發售
+
+再從碟片發售時間逆推曲目公開時間
+
+參考時間
+
+RAS mini專（11/1）的曲目公開時間 
+
+1.Apocalypse 8/18
+
+2.TWIN TALE 9/1
+
+3.STRAY CERBERUS 9/21
+
+4.BERSER-KEY 10/12
+
+5.POLARIS 10/19
+
+蝶 mini專（12/6）的曲目公開時間
+
+1.フレージング ミラージュ 11/30
+
+2.MUGEN Reverberate! 11/2
+
+3.わたしまちがいさがし 11/16
+
+4.esora no clover 10/19
+
+5.きょうもMerry go rounD 10/5
+
+從這個角度來看，4月比較有可能，因為最後一首歌至少提前1～2週，
+
+一個月一首反著數，就感覺可能是4月了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+

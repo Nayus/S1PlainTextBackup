@@ -5435,3 +5435,11 @@ BV1x2421M7V8</blockquote>
 
 新双枪FF翻滚射击击杀速度太离谱了，走射虽然涂地很弱但射程足够长就是质变，感觉完全是红双上位版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  事象变移机关  
+##### 3537#       发表于 2024-3-2 15:32
+
+图造型耍了几把新伞，战绩惨不忍睹。这武器评价如何，有没有啥技巧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

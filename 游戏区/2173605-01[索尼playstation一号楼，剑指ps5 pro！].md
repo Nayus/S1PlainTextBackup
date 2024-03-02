@@ -1206,3 +1206,11 @@ saber互动找私人投资者筹了五亿刀交钱独立了，kotor依然由他�
 
 Nick老师说3月5号左右将有对马岛之魂PC移植版的消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SergeGlenn  
+##### 135#       发表于 2024-3-2 08:37
+
+3月5号那马上就能知道真假了，对马和GT按理说今年是该上了，而且浪人3月一发售，对马2感觉也可以公布了
+

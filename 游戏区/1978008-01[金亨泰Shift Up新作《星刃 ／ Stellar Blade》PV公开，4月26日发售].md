@@ -41,3 +41,13 @@
 
 2024-3-2 03:02 上传
 
+
+*****
+
+####  Moltres.lv70  
+##### 309#       发表于 2024-3-2 08:28
+
+韩游为啥一定要日语配音
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+

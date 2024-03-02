@@ -11426,3 +11426,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">遇到四个人撤离都进不了船的bug了，四个人趴在船里一起飞就全被穿模丢出来撤离失败了
 
+
+*****
+
+####  leoray  
+##### 1153#       发表于 2024-3-2 17:05
+
+今天难8野排闪电战打了个全清信心爆棚去排难9，结果连个重巢都清不动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">牛也太多了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

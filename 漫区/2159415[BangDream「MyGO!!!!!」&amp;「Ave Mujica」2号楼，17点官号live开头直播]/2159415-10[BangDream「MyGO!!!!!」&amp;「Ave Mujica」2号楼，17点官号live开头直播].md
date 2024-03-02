@@ -6085,3 +6085,11 @@ RAS mini專（11/1）的曲目公開時間
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我也覺得是這個流程很合理，但2nd我感覺不太會唱那麼多新歌，已經被訓練得不敢期待了
 
+
+*****
+
+####  太二EricGuo  
+##### 13845#       发表于 2024-3-2 17:10
+
+梦想紫吧的本意是坏的，但自从有了mygo，做的事都是好的，是mygo改变了紫吧吗
+

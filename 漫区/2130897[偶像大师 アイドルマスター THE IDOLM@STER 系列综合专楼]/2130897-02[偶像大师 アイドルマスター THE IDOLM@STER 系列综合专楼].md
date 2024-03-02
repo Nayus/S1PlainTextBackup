@@ -2504,3 +2504,80 @@ x海xx，新红c名字吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 刚才灯光不错啊
 
+
+*****
+
+####  陆久舟  
+##### 1750#       发表于 2024-3-2 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64125089&amp;ptid=2130897" target="_blank">rexzhanghao 发表于 2024-3-2 17:07</a>
+彗星组登场了吗，刚刚才看</blockquote>
+你来的正好
+
+*****
+
+####  magicc  
+##### 1751#       发表于 2024-3-2 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64125089&amp;ptid=2130897" target="_blank">rexzhanghao 发表于 2024-3-2 17:07</a>
+
+彗星组登场了吗，刚刚才看</blockquote>
+刚回复就上了
+
+*****
+
+####  lunaticfool  
+##### 1752#       发表于 2024-3-2 17:10
+
+这运镜人看晕了
+
+*****
+
+####  田所あずさ  
+##### 1753#       发表于 2024-3-2 17:11
+
+导播你不会切能不能去找jungo学学，我服了
+
+*****
+
+####  Vacuolar  
+##### 1754#       发表于 2024-3-2 17:12
+
+这运镜人看晕了
+
+*****
+
+####  Vacuolar  
+##### 1755#       发表于 2024-3-2 17:12
+
+之前镜头还好，黑星一上来，晕得像换人了
+
+*****
+
+####  田所あずさ  
+##### 1756#       发表于 2024-3-2 17:13
+
+看的我感觉光癫痫要犯了
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 1757#       发表于 2024-3-2 17:15
+
+北原是真好看啊
+
+*****
+
+####  magicc  
+##### 1758#       发表于 2024-3-2 17:16
+
+导播真的死了得了
+
+*****
+
+####  陆久舟  
+##### 1759#       发表于 2024-3-2 17:16
+
+迷光真好
+

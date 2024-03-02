@@ -1198,3 +1198,11 @@ saber互动找私人投资者筹了五亿刀交钱独立了，kotor依然由他�
 但是没中文</blockquote>
 但有日语语音啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 134#       发表于 2024-3-2 08:06
+
+Nick老师说3月5号左右将有对马岛之魂PC移植版的消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

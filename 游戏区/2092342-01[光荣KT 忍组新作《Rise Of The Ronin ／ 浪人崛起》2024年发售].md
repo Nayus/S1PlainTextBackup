@@ -1187,3 +1187,15 @@ psjp给的演示就全是大白天的野外了
 
 招式模组上的话，大剑那个处决的转转转感觉是用的仁王的斧子的拨云<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  放大镜  
+##### 785#       发表于 2024-3-2 15:59
+
+[https://www.bilibili.com/video/BV1fJ411P7QW?t=69](https://www.bilibili.com/video/BV1fJ411P7QW?t=69)
+
+鬼武者大剑
+
+仁王里边其实也有，就是石头人手里那种，属于绘画或者雕塑上艺术加工出来的武器，就算是游戏里的猛男们通常也不好意思拿来当牙签甩
+

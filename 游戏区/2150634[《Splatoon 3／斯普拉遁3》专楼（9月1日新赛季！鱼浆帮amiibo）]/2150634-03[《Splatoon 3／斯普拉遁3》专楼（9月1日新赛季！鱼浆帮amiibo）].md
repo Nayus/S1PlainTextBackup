@@ -5443,3 +5443,11 @@ BV1x2421M7V8</blockquote>
 
 图造型耍了几把新伞，战绩惨不忍睹。这武器评价如何，有没有啥技巧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 3538#       发表于 2024-3-2 15:54
+
+打到九百血压又高了，什么 SB W1 不搬蛋、红蛋还只有两位数，滚啊。
+

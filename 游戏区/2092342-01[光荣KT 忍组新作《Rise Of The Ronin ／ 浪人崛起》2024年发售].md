@@ -1088,3 +1088,11 @@ psjp给的演示就全是大白天的野外了
 
 流派不会这么少吧，会不会有啥高级流派
 
+
+*****
+
+####  Emmerich  
+##### 775#       发表于 2024-3-2 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大剑和大太刀到底啥区别....本来看标题以为会是claymore或者greatsword那种从西洋传过来的武器 结果和大太刀感觉没啥差别...对调一下视频内容我都区分不出啊
+

@@ -5773,3 +5773,15 @@ nyaa只有1234和12和zeep？</blockquote>
 
 咱们一步步来，不着急。
 
+
+*****
+
+####  nebulanoby  
+##### 13823#       发表于 2024-3-2 11:55
+
+在Z8赛博填线楼里看到的:
+
+鸡的剧情:其实鸡的热度和粉丝都是睦头人和初华买的阴兵，到了不得不面对真相的那天，大祥老师该何去何从<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

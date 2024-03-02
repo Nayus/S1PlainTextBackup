@@ -484,3 +484,13 @@ zzzq入脑了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  约瑟夫海顿  
+##### 49#       发表于 2024-3-2 09:38
+
+是真的吗，怎么我让Gemini生成图片，它说它没这功能
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

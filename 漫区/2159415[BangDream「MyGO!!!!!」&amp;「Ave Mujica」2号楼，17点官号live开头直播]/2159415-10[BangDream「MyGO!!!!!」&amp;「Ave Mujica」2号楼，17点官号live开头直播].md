@@ -5825,3 +5825,22 @@ nyaa只有1234和12和zeep？</blockquote>
 
 2024-3-2 13:09 上传
 
+
+*****
+
+####  rukimin  
+##### 13827#       发表于 2024-3-2 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64123029&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-3-2 11:55</a>
+
+在Z8赛博填线楼里看到的:
+
+鸡的剧情:其实鸡的热度和粉丝都是睦头人和初华买的阴兵，到了不得不面对真相的那 ...</blockquote>
+大祥老师肯定知道的啊，乐队玩的就是资本和营销，Ave Mujica能火就是靠初华的私生饭，小睦爸妈的资源，看喵梦的魔怔人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当初拉喵梦进来就看出来了，一开口就对祥子阴阳怪气冷嘲热讽“哎呀，和你约在这种豪华度假酒店的咖啡厅里见面，是不是太难为你了”。我大祥老师曾经也是吃过见过的，哪受得了这个气。但最后还是硬着头皮把事情谈完了，而且还和喵梦画了大饼，因为那时睦还没同意加入。
+
+祥子完全可以在喵梦开口以后扭头就走，无所谓的鼓手就让初华和海铃找立希谈谈嘛，反正面具一戴谁也认不出来了。可见网红这块拼图在Mujica里太重要了，喵梦还是Roselia见了都得问声好的顶流。
+
+话说立希加入Mujica是不是还挺有搞头。看在海铃的面子上立希还是很可能会偷偷加入的，况且祥子什么实力她是应该很清楚。到时候两家下注，如果Mujica火了MyGO没火，就把高松灯拉进Mujica，对小灯来说Mujica里全是熟人，祥子也是肯定会同意（做梦都笑醒了）。万一祥子不同意又能上演一出好戏：“和海玲初华说组一辈子乐队都是假的，一切都是为了把高松灯和素世拉进来复活Crychic。”<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

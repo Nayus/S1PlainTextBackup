@@ -252,3 +252,16 @@ PTA规制代哥安全牌大概不会这么写。
 
 2024-3-2 11:23 上传
 
+
+*****
+
+####  粉儿alice  
+##### 1107#       发表于 2024-3-2 11:31
+
+小麦：我好歹是主角 结果连人形周边图都没有混上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在正片这样下去 犬饲小麦马上可以封一个 “史上最影薄的q娃主角了”可以被狗大友迫害的说<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+还有这几年q娃不是一直出男人周边 各种没人要难看恶心反派周边混在里面不是要这么多
+
+当然最坏的情况 只能说黄q娃是不是得罪人了各种zzzq都往里面扔
+

@@ -155,3 +155,13 @@
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  不灭的旋律  
+##### 957#       发表于 2024-3-2 14:57
+
+动画版活动复刻，高幡又要被卡车撞了
+
+尼克尔一星剧情就已经接上最新主线剧情了而且是在中东前线指挥。既然cos皇帝这么卖力一定会给她安排一个滑铁卢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

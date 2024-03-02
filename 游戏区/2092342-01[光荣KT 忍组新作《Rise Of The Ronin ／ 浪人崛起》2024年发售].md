@@ -1065,3 +1065,11 @@ psjp给的演示就全是大白天的野外了
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  acejoe  
+##### 772#       发表于 2024-3-2 12:50
+
+忍组晴天不会做，全是阴天
+

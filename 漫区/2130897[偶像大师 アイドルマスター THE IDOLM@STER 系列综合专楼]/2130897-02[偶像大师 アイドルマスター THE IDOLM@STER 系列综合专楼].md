@@ -2459,3 +2459,26 @@ x海xx，新红c名字吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 风野灯织假唱
 
+
+*****
+
+####  陆久舟  
+##### 1744#       发表于 2024-3-2 16:48
+
+之前缺人时也是这样
+
+*****
+
+####  田所あずさ  
+##### 1745#       发表于 2024-3-2 16:51
+
+看来还是柏油多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">柏油act4两天刷10多页
+
+
+*****
+
+####  magicc  
+##### 1746#       发表于 2024-3-2 16:54
+
+这场是不是也会削减MC时长，歌曲中都有介绍了
+

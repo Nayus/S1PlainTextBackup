@@ -3479,3 +3479,15 @@ stevenyomi在他的releases界面提供的0.13.6版本的修改版tachiyomi和�
 
 插件是不是又连不上了啊
 
+
+*****
+
+####  傘木希美  
+##### 348#       发表于 2024-3-2 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64122590&amp;ptid=2010665" target="_blank">月亮上的珊瑚 发表于 2024-3-2 10:48</a>
+插件是不是又连不上了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好像是
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

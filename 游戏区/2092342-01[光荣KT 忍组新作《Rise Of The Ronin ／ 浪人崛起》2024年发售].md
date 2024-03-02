@@ -1141,3 +1141,16 @@ psjp给的演示就全是大白天的野外了
 
 买了两家店，看会不会提前发货。话说会有试玩吗
 
+
+*****
+
+####  放大镜  
+##### 781#       发表于 2024-3-2 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64123666&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-2 13:22</a>
+
+大剑和大太刀到底啥区别....本来看标题以为会是claymore或者greatsword那种从西洋传过来的武器 结果 ...</blockquote>
+自然两种都不是……类似鬼武者大剑，门板剑青春版
+
+演示里边那把多半是特殊模型，或者仁王大身枪那样的二级分类武器，而且明显比大太刀粗一圈
+

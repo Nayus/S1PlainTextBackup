@@ -5380,3 +5380,14 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 能打还是这期打，这期配置优点是手都不短，这图弹雨弹重要一旦遇到短手配置恐怕就是另一副景象了
 
+
+*****
+
+####  晴岚  
+##### 3531#       发表于 2024-3-2 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64120711&amp;ptid=2150634" target="_blank">藏獒·烨 发表于 2024-3-1 23:36</a>
+
+新图第一把就是光蝇</blockquote>
+我也是，但不知道为什么就挺轻松的就过去了（  我甚至都没搞懂要怎么拉怪
+

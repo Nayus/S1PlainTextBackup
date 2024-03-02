@@ -1054,3 +1054,14 @@ psjp给的演示就全是大白天的野外了
 
 想买实体盘有店推荐吗？2000fun淘宝下架了。
 
+
+*****
+
+####  碎镜子  
+##### 771#       发表于 2024-3-2 10:45
+
+卧龙奶粉作基本没啥争议了，这演示不全吧。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">做完dlc预购特典的隼流和仁王流不演示一下吗，好歹让人看看自己买了啥啊
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

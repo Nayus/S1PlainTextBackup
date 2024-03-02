@@ -11418,3 +11418,11 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 吐酸虫的肚子虽然软是无甲，但是有很高的伤害减免，还是要用穿甲伤害打头 ...</blockquote>
 用榴弹炸吐酸虫肚子有奇效。我现在野排看队友有反重甲装备的时候都改带榴弹了。
 
+
+*****
+
+####  白昼梦  
+##### 1152#       发表于 2024-3-2 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">遇到四个人撤离都进不了船的bug了，四个人趴在船里一起飞就全被穿模丢出来撤离失败了
+

@@ -5407,3 +5407,23 @@ Pro右摇杆咋修，狗东买的国行， ...</blockquote>
 
 BV1x2421M7V8
 
+
+*****
+
+####  苍蓝之枪  
+##### 3534#       发表于 2024-3-2 14:30
+
+光蝇还有点思路，烤架真的是在乱溜
+
+840，要打max了
+
+
+*****
+
+####  Teiume  
+##### 3535#       发表于 2024-3-2 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64123764&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-3-2 13:38</a>
+BV1x2421M7V8</blockquote>
+大概是人物一路从蛋框那里顺着水管来中途没落地，系统判定人在蛋框方向蛋就飞过去然后被蛋框拦截了？
+

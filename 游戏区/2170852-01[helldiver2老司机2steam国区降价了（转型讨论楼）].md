@@ -11384,3 +11384,11 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 维尔德这个轨道波动太恶心了,而且玩起来总感觉箭头又悄悄增强了一波怪,难9狂刷泰坦,机器人那边准头也感觉高的一b
 
+
+*****
+
+####  bladethunder  
+##### 1149#       发表于 2024-3-2 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">吐酸虫的肚子虽然软是无甲，但是有很高的伤害减免，还是要用穿甲伤害打头
+

@@ -1222,3 +1222,14 @@ Nick老师说3月5号左右将有对马岛之魂PC移植版的消息<img src="ht
 
 想问下 现在PS5 Slim有什么办法买到数字版的光驱面板 平时不太用光驱 想着做成数字版的样子
 
+
+*****
+
+####  贝恩德塔  
+##### 137#         楼主| 发表于 2024-3-2 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64122000&amp;ptid=2173605" target="_blank">760194962 发表于 2024-3-2 08:39</a>
+
+想问下 现在PS5 Slim有什么办法买到数字版的光驱面板 平时不太用光驱 想着做成数字版的样子 ...</blockquote>
+淘宝搜ps5slim面板就能搜到
+

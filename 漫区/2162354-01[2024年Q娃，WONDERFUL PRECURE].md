@@ -202,3 +202,53 @@ PTA规制代哥安全牌大概不会这么写。
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  犬飼いろは  
+##### 1106#       发表于 2024-3-2 11:24
+
+第 05 話　つながるキズナ フレンドリータクト！
+
+脚本：井上美緒
+
+演出：野呂彩芳
+
+作画監督：青山充
+
+美術：戸杉奈津子
+
+こむぎ（CV.長縄まりあ）といろは（CV.種﨑敦美）は、散歩の途中、ポンというポメラニアンと暮らしているえまという女の子に出会う。ポンはまだ子犬で、リードをつけるのをいやがっていた。ペットサロンと動物病院でもある自宅にえまを連れてきたいろはは、父の剛にポンを見せる。剛は「信頼されることが大事」とえまに語り、「リードは信頼の証」と教える。こむぎもかつてはリードをつけるのをいやがっていた。しかし、いろはのおかげで今ではリードを付けてのお散歩が大好きになっている。こむぎはいろはに会う前のことは思い出せないが、いろはに出会ってから毎日楽しく過ごせていることを伝え、いろはもこむぎの気持ちを直接聞くことができて嬉しいとお互いの想いを伝え合った。そんな中、海浜公園に新たなガルガルがあらわれる──。
+
+<img src="https://img.saraba1st.com/forum/202403/02/112353x7mhygmn8hw7cgoo.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (85.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202403/02/112353ftfu8uuyt7ybhtzt.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (126.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202403/02/112353cszfpgtgdgct8igs.jpg" referrerpolicy="no-referrer">
+
+<strong>003.jpg</strong> (72.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202403/02/112352ywzj8oqzwhxo2wxo.jpg" referrerpolicy="no-referrer">
+
+<strong>004.jpg</strong> (133.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 11:23 上传
+

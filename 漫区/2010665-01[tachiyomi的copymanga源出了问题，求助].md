@@ -3503,3 +3503,15 @@ stevenyomi在他的releases界面提供的0.13.6版本的修改版tachiyomi和�
 —— 来自 vivo V2227A, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
 可以连，需要魔法
 
+
+*****
+
+####  傘木希美  
+##### 350#       发表于 2024-3-3 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64128667&amp;ptid=2010665" target="_blank">hjknight 发表于 2024-3-3 00:17</a>
+可以连，需要魔法</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还真是挂着魔法然后就可以了
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6121,3 +6121,11 @@ RAS mini專（11/1）的曲目公開時間
 梦想紫吧的本意是坏的，但自从有了mygo，做的事都是好的，是mygo改变了紫吧吗 ...</blockquote>
 和隔壁百合楼一样，一开始都是厨厨乐子人，一旦没鱼钓了/没东西炒了，就转纯良豚豚gachi了。隔壁百合楼虽然粪海狂蛆，但百合创作者遇到困境去打钱的真不少。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 13848#       发表于 2024-3-2 19:18
+
+邦z8平时嘲得多但cv真没什么大问题的话基本还是有好感的，羊之前失声都一堆同情，可惜她后来的表现一次次刷新下限导致变成了真拷打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

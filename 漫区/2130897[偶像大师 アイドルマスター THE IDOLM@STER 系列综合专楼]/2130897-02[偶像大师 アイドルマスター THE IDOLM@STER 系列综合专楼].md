@@ -3366,3 +3366,48 @@ nari好会摆pose
 
 結果今天只有頭尾兩首曲子有特別arrange，明天應該會是兩首新的arrange曲吧。
 
+
+*****
+
+####  黛冬优子  
+##### 1853#       发表于 2024-3-2 19:36
+
+imas！
+
+小高每天有更大的端上来吧
+
+*****
+
+####  萨文科夫  
+##### 1854#       发表于 2024-3-2 19:39
+
+啊，太欢乐了，小高你好强大
+
+*****
+
+####  六至九  
+##### 1855#       发表于 2024-3-2 19:40
+
+<img src="https://img.saraba1st.com/forum/202403/02/194036e2lmlcnmdd65fd2d.png" referrerpolicy="no-referrer">
+
+<strong>GHqZ7HmaIAAvA21.png</strong> (223.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-2 19:40 上传
+
+*****
+
+####  陆久舟  
+##### 1856#       发表于 2024-3-2 19:41
+
+还是有点短了，期待明天能长些<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三度音  
+##### 1857#       发表于 2024-3-2 19:44
+
+怎么是个深夜档啊
+

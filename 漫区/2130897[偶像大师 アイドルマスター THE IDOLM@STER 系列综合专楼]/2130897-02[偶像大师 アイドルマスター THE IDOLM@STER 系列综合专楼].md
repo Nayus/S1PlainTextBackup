@@ -4808,3 +4808,36 @@ ppt专精，人称万南阿尔特塔？<img src="https://static.saraba1st.com/im
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">呃，为什么商业成绩高的先判死缓了
 是因为和西歪分成导致万代拿的少吗
 
+
+*****
+
+####  cckuku  
+##### 1993#       发表于 2024-3-3 23:50
+
+老东西们真打起来怕是打不过新生代闪友，不知道为啥微博闪友跟韩饭重合率很高，那战斗力我不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1994#       发表于 2024-3-3 23:53
+
+再说一次，灰被万代拍死是因为内部斗争，在2024年，灰一个作曲用Sony系，动画用cy系，运营cy有话语权的企划在万代眼里就是一个不该存在的东西。
+
+*****
+
+####  weifire  
+##### 1995#       发表于 2024-3-3 23:53
+
+闪闪周五25点半的档位不太好
+百百周日10点待遇还是没得说
+149周三24点一般般吧
+
+*****
+
+####  RhmBWT_Wu  
+##### 1996#       发表于 2024-3-3 23:55
+
+草韩饭是什么情况，只听说过微博有怒斥plove的女粉，不会是同一批吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

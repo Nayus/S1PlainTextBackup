@@ -6552,3 +6552,24 @@ bd还自带来着<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 [https://twitter.com/Sumisumiko_/ ... 18287210963/photo/2](https://twitter.com/Sumisumiko_/status/1764254618287210963/photo/2)
 
+
+*****
+
+####  dqtql  
+##### 13888#       发表于 2024-3-3 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64134958&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-3-3 21:40</a>
+
+内封严格意义上就已经和画面一体了，得需要OCR软件来搞，现在怕是没人做这种自动化的工具吧 ...</blockquote>
+大哥你是不是搞混了内封和内嵌，内嵌的字幕是图像的一部分了，要ocr才能提取；内封字幕是可以直接提取的
+
+*****
+
+####  dqtql  
+##### 13889#       发表于 2024-3-3 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64134938&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-3-3 21:38</a>
+
+说来有没有从内封好字幕视频里提取字幕的方法啊，想把官方的字幕提取出来(毕竟官方的画质差了点儿 ...</blockquote>
+如果是提取mkv格式视频的内封字幕的话，装一个MKVToolNix
+

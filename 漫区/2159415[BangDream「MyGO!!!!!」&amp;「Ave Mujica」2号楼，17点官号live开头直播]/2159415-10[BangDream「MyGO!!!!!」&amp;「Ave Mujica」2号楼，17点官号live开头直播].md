@@ -6339,3 +6339,21 @@ Mujica新曲制作中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前还在想为什么不放十月播 原来是早就私下通好气错开档期了
 
+
+*****
+
+####  御幸一也  
+##### 13870#       发表于 2024-3-3 19:04
+
+李子和米澤去看了寶鋼的con<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/03/190350zuwu3zussizsgvsu.jpg" referrerpolicy="no-referrer">
+
+<strong>GHva6GVaQAAOjLs.jpg</strong> (348.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 19:03 上传
+
+[https://twitter.com/sasakirico/status/1764244381660573997](https://twitter.com/sasakirico/status/1764244381660573997)
+

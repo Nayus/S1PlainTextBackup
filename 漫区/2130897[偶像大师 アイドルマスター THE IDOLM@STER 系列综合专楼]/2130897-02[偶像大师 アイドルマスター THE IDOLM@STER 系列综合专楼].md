@@ -4394,3 +4394,35 @@ mygo在国内给邦引了大流，sc第三季有希望吗</blockquote>
 
 别急，等sc卖碟的时候就不是系列最差的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 1945#       发表于 2024-3-3 18:26
+
+柏油小心回旋镖啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超法拉  
+##### 1946#       发表于 2024-3-3 18:31
+
+先扔了 回来再说！
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+
+*****
+
+####  hinarin  
+##### 1947#       发表于 2024-3-3 18:33
+
+明明是柏先来的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  田所あずさ  
+##### 1948#       发表于 2024-3-3 18:35
+
+先扔了 回来再说！
+

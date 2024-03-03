@@ -3586,3 +3586,21 @@ u149里佐藤亚美菜照井春佳黑泽朋世都结婚了，别的不知道有�
 
 一到黑星就乱闪
 
+
+*****
+
+####  冰寒之月  
+##### 1876#       发表于 2024-3-3 15:49
+
+居然没有佩刀上场
+
+*****
+
+####  RhmBWT_Wu  
+##### 1877#       发表于 2024-3-3 15:49
+
+shiny colors（X）
+counter strike（✓）
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

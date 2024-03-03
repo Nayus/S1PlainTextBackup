@@ -11511,3 +11511,15 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 就是打近身的小虫子和追踪不太舒服,多拉开距离多跑,配个微冲副手
 
+
+*****
+
+####  moeblack  
+##### 1160#       发表于 2024-3-3 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64112633&amp;ptid=2170852" target="_blank">nagamasa 发表于 2024-3-1 10:40</a>
+789排野队每次都空袭+蛋盾+榴弹独走拆虫巢炸搜战利品真的遨游，坦克虫和泰坦直接当没看见就是了， ...</blockquote>
+我问一下，要是任务点有坦克虫在那里等着咋办呀？
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

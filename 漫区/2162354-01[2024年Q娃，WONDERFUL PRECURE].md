@@ -417,3 +417,15 @@ ost1封面出了 看来石锤猫组是夏季追加了
 而且兔子也太影薄了，三对主宠人家猫组狗组恨 ...</blockquote>
 兔子不是明显藏着吗，后边八成来个大的
 
+
+*****
+
+####  modedd  
+##### 1124#       发表于 2024-3-3 17:13
+
+ 本帖最后由 modedd 于 2024-3-3 17:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64132692&amp;ptid=2162354" target="_blank">Parahure 发表于 2024-3-3 17:04</a>
+
+兔子不是明显藏着吗，后边八成来个大的</blockquote>
+其实这个话题上周也讨论过，兔子现在不给去妮可乐园一直藏说不定就是因为能被羊直接认出来，要么q娃老板要么我方boss，但是信息实在太少了，兔组现在相处模式根本就是各玩各的，悟还整天不带大福玩，到时候真来个大的兔子接得住戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

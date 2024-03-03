@@ -1384,3 +1384,13 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 我正宗日厂、更擅长动作戏、角色更美型、幕末背景比起来还 ...</blockquote>
 暗荣别瞎寻思了，我怎么感觉索尼想你死呢<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 803#       发表于 2024-3-3 17:15
+
+我觉得画面黑红这忍组的祖宗之法其实是为了藏细节差画面拉垮的无奈之举。
+
+你看最新的那个武器演示，大白天的够明亮了吧？那个画质之差，特别是海边那几个场景，那个海水质感真的是梦回PS3了，我印象中神海2，3的海水怕是都要比这个好～<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

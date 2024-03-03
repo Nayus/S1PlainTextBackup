@@ -4912,3 +4912,13 @@ Shhis的kpop曲风和扭曲关系吸引一票女团韩粉
 
 a4两天源p发名片发出去近3000张，这可是只有买了bd才能去换的，知道这个用屁股想都知道销量不会低了
 
+
+*****
+
+####  萩原组土狼p  
+##### 2004#       发表于 2024-3-4 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64137119&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-4 02:36</a>
+a4两天源p发名片发出去近3000张，这可是只有买了bd才能去换的，知道这个用屁股想都知道销量不会低了 ...</blockquote>
+那天我去live现场，基本上两天你想和源p换得排齐码3个小时以上，有点离谱
+

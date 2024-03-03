@@ -5638,3 +5638,17 @@ s段能匹配到melon真是太扯了<img src="https://static.saraba1st.com/image
 
 一点没打+1，有点想afk了，没什么动力，dlc也没打<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幽灵部长助理  
+##### 3557#       发表于 2024-3-4 02:53
+
+afk了大半年，借着DLC的势头回坑打算每天坐牢十分钟拿个首胜，不为别的，就为了这季的复刻二代胜利动作
+
+结果刚才在推特上看到日本人在炎上，看样子我想要的二代章鱼女孩双枪胜利动作并没有被复刻，而是做了个不分物种性别的新动作？
+
+喷3，关闭！
+
+那个动作多可爱啊，乌贼研终于到了另存为都不会的地步了是吧，去死吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

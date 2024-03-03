@@ -5589,3 +5589,11 @@ https://youtu.be/jbhyUr2xqhI?si=JSBKbRRHC6yQwfXH
 
 s段能匹配到melon真是太扯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 3551#       发表于 2024-3-3 13:40
+
+高速转视角反应确实是顶端的必备技能，但是不会这个并不影响野康，又不是打乱获.......
+

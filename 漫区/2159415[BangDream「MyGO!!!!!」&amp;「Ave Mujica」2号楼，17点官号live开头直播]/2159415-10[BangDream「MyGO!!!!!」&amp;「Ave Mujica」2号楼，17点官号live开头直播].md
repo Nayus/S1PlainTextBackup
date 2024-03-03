@@ -6477,3 +6477,54 @@ Mujica新曲制作中
 
 mujica小剧场睦祥四手联弹和双人舞得安排上吧。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 13882#       发表于 2024-3-3 21:38
+
+说来有没有从内封好字幕视频里提取字幕的方法啊，想把官方的字幕提取出来(毕竟官方的画质差了点儿
+
+*****
+
+####  Aloereed  
+##### 13883#       发表于 2024-3-3 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64134938&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-3-3 21:38</a>
+
+说来有没有从内封好字幕视频里提取字幕的方法啊，想把官方的字幕提取出来(毕竟官方的画质差了点儿 ...</blockquote>
+内封严格意义上就已经和画面一体了，得需要OCR软件来搞，现在怕是没人做这种自动化的工具吧
+
+
+*****
+
+####  傘木希美  
+##### 13884#       发表于 2024-3-3 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64134958&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-3-3 21:40</a>
+
+内封严格意义上就已经和画面一体了，得需要OCR软件来搞，现在怕是没人做这种自动化的工具吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 13885#       发表于 2024-3-3 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64134965&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-3-3 21:42</a>
+
+好吧，总觉得喵萌/lolihouse的那个字幕和官方差的地方比较在意那是不是回来等BD出了再收藏就可以了 ...</blockquote>
+没关系，BD字幕是外置的，到时候发售了可以直接拿出来<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 13886#       发表于 2024-3-3 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64134975&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-3-3 21:43</a>
+没关系，BD字幕是外置的，到时候发售了可以直接拿出来</blockquote>
+啊，也是
+bd还自带来着<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4345,3 +4345,52 @@ mygo在国内给邦引了大流，sc第三季有希望吗</blockquote>
 
 最後是[管馬仕的專場LIVE](https://asobistage.asobistore.jp/event/valiv_the_last_statement/ticket)...
 
+
+*****
+
+####  黑猫桑  
+##### 1939#       发表于 2024-3-3 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133147&amp;ptid=2130897" target="_blank">退行 发表于 2024-3-3 18:07</a>
+如放，就是luca觉得美琴变了不是以前的那个美琴了而已</blockquote>
+最大的冲击还是美琴选了握拳的哪个版本吧，ruka一直不愿意正视这个事实不想承认弱小的自己，看到美琴的版本完全超过了八云一下把她打入了现实
+
+*****
+
+####  黑猫桑  
+##### 1940#       发表于 2024-3-3 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133147&amp;ptid=2130897" target="_blank">退行 发表于 2024-3-3 18:07</a>
+如放，就是luca觉得美琴变了不是以前的那个美琴了而已</blockquote>
+编辑
+
+*****
+
+####  hypnossz86  
+##### 1941#       发表于 2024-3-3 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">百百怒卖一万本，闪闪喜提第二季，大家都有光明的前途
+这下谁入土了我不说
+
+*****
+
+####  Srchy  
+##### 1942#       发表于 2024-3-3 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一万也是系列最差怎么还很骄傲的样子
+
+
+*****
+
+####  安广多惠子  
+##### 1943#       发表于 2024-3-3 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">老四组真不行，引流还得看我圆香，第二季要好起来力
+
+*****
+
+####  田所あずさ  
+##### 1944#       发表于 2024-3-3 18:25
+
+别急，等sc卖碟的时候就不是系列最差的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

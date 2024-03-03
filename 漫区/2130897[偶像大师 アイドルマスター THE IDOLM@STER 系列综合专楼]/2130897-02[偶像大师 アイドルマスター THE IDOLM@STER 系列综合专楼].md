@@ -3604,3 +3604,21 @@ counter strike（✓）
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Seeley  
+##### 1878#       发表于 2024-3-3 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64132091&amp;ptid=2130897" target="_blank">信长的呕吐 发表于 2024-3-3 15:38</a>
+
+斉藤佑圭 18年第一个</blockquote>
+草，486这么早。18年还没入坑，见识短浅了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 1879#       发表于 2024-3-3 15:59
+
+三川这第一次主持mc感觉还挺顺畅的
+

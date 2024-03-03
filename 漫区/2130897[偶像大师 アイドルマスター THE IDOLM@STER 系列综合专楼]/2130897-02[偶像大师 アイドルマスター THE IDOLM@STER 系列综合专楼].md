@@ -3455,3 +3455,13 @@ live果然是让人溢满情感，好爽
 —— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
 yuki明天来
 
+
+*****
+
+####  5b25  
+##### 1863#       发表于 2024-3-3 13:05
+
+不知道想说的内容合不合适（涉及到结婚生子），就先反白了。
+
+刚刚在看异次元歌合战的u149的时候，突然蹦出来了个想法：等过几年她们的孩子看到u149动画时，是不是就可以正儿八经地对着里面的角色喊妈妈了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

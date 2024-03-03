@@ -4841,3 +4841,34 @@ ppt专精，人称万南阿尔特塔？<img src="https://static.saraba1st.com/im
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  田所あずさ  
+##### 1997#       发表于 2024-3-4 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64136149&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-3-3 23:50</a>
+
+老东西们真打起来怕是打不过新生代闪友，不知道为啥微博闪友跟韩饭重合率很高，那战斗力我不敢想 ...</blockquote>
+那说明你没见过真的爱马仕老害，我以前有个老害群好几个都是以前的玩网名人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">什么小号大头照加微信加qq，发你和家人合照一样不少全都有
+
+我对国内爱马仕圈子的评价是“偶像大师不需要单独的厕所，因为每一个小团体他都比厕所还臭一万倍”
+
+*****
+
+####  田所あずさ  
+##### 1998#       发表于 2024-3-4 00:03
+
+在顺便说一句，按照变态以前的说法以及出的书来说，mltd和铁拳这几个游戏是吸纳了曾经南梦宫几乎所有旧部，mltd算是各种意义上目前南梦宫的亲女儿，所以万代不做人是很正常的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  倒映在瞳中  
+##### 1999#       发表于 2024-3-4 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64136189&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-3 23:55</a>
+草韩饭是什么情况，只听说过微博有怒斥plove的女粉，不会是同一批吧
+
+—— 来自 OnePlus PGKM10, An ...</blockquote>
+Shhis的kpop曲风和扭曲关系吸引一票女团韩粉
+

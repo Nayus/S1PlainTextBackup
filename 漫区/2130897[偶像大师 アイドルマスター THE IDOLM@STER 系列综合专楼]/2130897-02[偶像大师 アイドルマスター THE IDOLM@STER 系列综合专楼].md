@@ -4643,3 +4643,28 @@ sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">終わらないで
 
+
+*****
+
+####  Srchy  
+##### 1973#       发表于 2024-3-3 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">死了起码不用让声优一把鼻涕一把眼泪求着爆金币给别人出第二季了
+
+*****
+
+####  Kreis  
+##### 1974#       发表于 2024-3-3 22:31
+
+<blockquote>Srchy 发表于 2024-3-3 22:27
+死了起码不用让声优一把鼻涕一把眼泪求着爆金币给别人出第二季了</blockquote>
+确实，那还是死了好
+
+
+*****
+
+####  Srchy  
+##### 1975#       发表于 2024-3-3 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">等不及想看珊珊第三季了
+

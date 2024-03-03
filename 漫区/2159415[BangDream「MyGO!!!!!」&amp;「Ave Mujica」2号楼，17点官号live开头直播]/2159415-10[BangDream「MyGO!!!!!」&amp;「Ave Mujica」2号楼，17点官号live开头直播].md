@@ -6467,3 +6467,13 @@ Mujica新曲制作中
 以你邦喜欢逆输入的习惯（目前已知大鼓中学吹奏部和凛玩过学生会乐队都逆输入了），第二季可能真的能看到祥 ...</blockquote>
 睦都學了，祥子一起學很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 13881#       发表于 2024-3-3 20:56
+
+高尾会芭蕾，还会钢琴，这不狠狠逆输入。
+
+mujica小剧场睦祥四手联弹和双人舞得安排上吧。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

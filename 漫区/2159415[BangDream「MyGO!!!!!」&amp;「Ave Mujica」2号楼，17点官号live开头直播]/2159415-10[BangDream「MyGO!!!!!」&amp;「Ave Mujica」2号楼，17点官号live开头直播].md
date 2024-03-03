@@ -6430,3 +6430,29 @@ Mujica新曲制作中
 
 以你邦喜欢逆输入的习惯（目前已知大鼓中学吹奏部和凛玩过学生会乐队都逆输入了），第二季可能真的能看到祥子芭蕾舞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 13879#       发表于 2024-3-3 20:18
+
+石见舞菜香广播特番不找长谷川埃及人找俩青二是啥意思
+
+<img src="https://img.saraba1st.com/forum/202403/03/201332n9s85qq03ud0sptk.jpg" referrerpolicy="no-referrer">
+
+<strong>cc648463f25c2a606646abf7a4c9adff11c32df5.jpg</strong> (122.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 20:13 上传
+
+<img src="https://img.saraba1st.com/forum/202403/03/201340d7bgqu2b4zm1222b.jpg" referrerpolicy="no-referrer">
+
+<strong>pic_quark_1709467846111.jpg</strong> (128.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 20:13 上传
+
+羊要和鱼拼个广播能不能学点好？就像当年樱小姐和辈先
+

@@ -11575,3 +11575,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 —— 来自 S ...</blockquote>
 磁轨蛋盾现在也属于是菜逼标配了，野队碰到这种配置就别考虑补位了，要么退要么自己也带磁轨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  airshit  
+##### 1165#       发表于 2024-3-3 18:42
+
+这个难7炸虫卵好恶心，拿着榴弹枪还没进去门口就刷一堆虫子<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+换个喷气背包想飞进去结果就只能跳那么一点高，还要CD半天
+

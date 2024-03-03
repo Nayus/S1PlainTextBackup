@@ -669,3 +669,11 @@ loop是什么意思，老婆吗？</blockquote>
 
 我都沉迷RELINK几天没有清体力都300万了，你们是多咸<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11463#       发表于 2024-3-3 18:39
+
+270萬，都是早上清白地球時順便吃兩個銅蘋果打多1場，之後就是晚上剛過11點後再開遊戲打3場，之後可能加減吃1~2個銀蘋果
+

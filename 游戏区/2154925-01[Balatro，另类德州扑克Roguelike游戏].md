@@ -5218,3 +5218,11 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 高进阶尝试了几把我直接改差评了 怎么说呢 不是说不能玩 但是也玩了高进阶的楼友应该都能感受到死种太多太运气了 开局就先要roll 但是好的开局可能中途某个节点发育也跟不上 ，归根到底由于高进阶下金钱的有限和这游戏商店roll一次太贵了，经常玩到中旬好几层商店都没有有用小丑卡就在绿注以上的分数线提升速度下必死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈毛  
+##### 462#       发表于 2024-3-3 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然现在PC官中好像也不太行，但有没有提到PSNS又没更新中文的情况
+

@@ -4597,3 +4597,26 @@ sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
 
 你灰asb又没独卖特装版
 
+
+*****
+
+####  Vacuolar  
+##### 1967#       发表于 2024-3-3 21:58
+
+什么，又到了我最喜欢的销量战环境吗
+
+
+*****
+
+####  Srchy  
+##### 1968#       发表于 2024-3-3 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要卖特装版才行，反正黑箱你看我给你编一个灰友就是已经习惯在asb买了的理由你接受不
+
+*****
+
+####  Kreis  
+##### 1969#       发表于 2024-3-3 22:04
+
+灰友怎么说都能接受，都是死人了当然不怕回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

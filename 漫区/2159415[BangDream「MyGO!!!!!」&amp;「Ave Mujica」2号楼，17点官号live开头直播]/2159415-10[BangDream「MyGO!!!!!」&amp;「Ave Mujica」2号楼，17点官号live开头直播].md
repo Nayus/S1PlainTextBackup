@@ -6394,3 +6394,13 @@ Mujica新曲制作中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可以梦一下紧急宣布跟烂铁合作多找点比sl会写歌的人供曲吗
 
+
+*****
+
+####  PDQ4  
+##### 13875#       发表于 2024-3-3 19:37
+
+李子都签烂铁了，能不能挖点别的人来写词曲，SUPALOVE的质量我是真的不敢恭维，想听翻唱感觉会比原创好听，也想要新曲补充世界观。抠比WSD能不能别太抠了。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+以及可不可以梦一个李子自己填词的曲子，高尾作曲不行的话拉她哥一起帮忙，来点角色输出CV。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

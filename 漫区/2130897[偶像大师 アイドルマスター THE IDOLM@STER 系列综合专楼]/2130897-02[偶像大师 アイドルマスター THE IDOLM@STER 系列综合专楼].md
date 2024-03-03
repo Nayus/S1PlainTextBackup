@@ -4115,3 +4115,62 @@ SC今年的夏季LIVE：
 
 待遇真不错啊
 
+
+*****
+
+####  rgauss  
+##### 1919#       发表于 2024-3-3 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第三季还是做梦吧 资源以后是学马仕的了
+
+*****
+
+####  Seeley  
+##### 1920#       发表于 2024-3-3 17:47
+
+老东西的金币不是出了2期嘛，民一点民一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+玩笑归玩笑，这6th就直接宣布就是24秋，合着就是分割嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是为了6th水一个情报嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Srchy  
+##### 1921#       发表于 2024-3-3 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">我柏柏第二季呢
+
+*****
+
+####  黑猫桑  
+##### 1922#       发表于 2024-3-3 17:51
+
+第三季呢第三季呢，我要看日花我要看日花！
+
+
+*****
+
+####  田所あずさ  
+##### 1923#       发表于 2024-3-3 17:52
+
+下个月发工资了买个三卷特装版百万bd，助力第二季
+
+*****
+
+####  没取名啊  
+##### 1924#       发表于 2024-3-3 17:52
+
+闪闪这二期一宣布，这下大伙各有各的赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+嘘组儿力能给直接安排个剧场版吗，故事就按页游原样拍，绝对刺激
+
+*****
+
+####  RhmBWT_Wu  
+##### 1925#       发表于 2024-3-3 17:55
+
+第三季那不就是当今版本最火的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+mygo在国内给邦引了大流，sc第三季有希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

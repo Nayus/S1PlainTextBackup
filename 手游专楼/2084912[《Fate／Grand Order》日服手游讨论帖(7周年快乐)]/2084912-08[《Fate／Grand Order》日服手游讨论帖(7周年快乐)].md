@@ -607,3 +607,28 @@ loop是什么意思，老婆吗？</blockquote>
 终于刷完300w了，过于折磨
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11457#       发表于 2024-3-3 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64132865&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-3 17:30</a>
+
+终于刷完300w了，过于折磨</blockquote>
+90++现在很多都依赖虫王C呆杀狐，这次能靠圣诞尼莫C算是不错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 11458#       发表于 2024-3-3 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133023&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-3 17:50</a>
+
+90++现在很多都依赖虫王C呆杀狐，这次能靠圣诞尼莫C算是不错了</blockquote>
+不是，因为要顺带刷仪式剑和煌星，我没用加成礼装硬刷的
+
+吐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

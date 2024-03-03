@@ -11496,3 +11496,18 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 反泰坦专用的，扔之前勾引一下泰坦吐口水，基本就能百发百中
 
+
+*****
+
+####  Noel  
+##### 1159#       发表于 2024-3-3 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64121100&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-2 00:23</a>
+
+电弧满蓄打正面三发解决一只毒爆虫，还带连锁伤害，但是打侧后要六七枪，不知道怎么算的 ...</blockquote>
+不用满蓄,最短蓄力三发肯定解决
+
+最近玩电弧枪+焦土比较舒服, 焦土打坦克虫右腿不破甲6-8发也能打死,这俩枪打泰坦也能补伤害,主要靠500g或者轨道炮
+
+就是打近身的小虫子和追踪不太舒服,多拉开距离多跑,配个微冲副手
+

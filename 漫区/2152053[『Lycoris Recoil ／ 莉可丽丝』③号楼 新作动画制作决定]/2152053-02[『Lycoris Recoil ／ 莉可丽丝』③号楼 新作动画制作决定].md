@@ -209,3 +209,14 @@
 
 [https://twitter.com/lycoreco_stage/status/1764131151671972135](https://twitter.com/lycoreco_stage/status/1764131151671972135)
 
+
+*****
+
+####  渡辺梨加  
+##### 1725#       发表于 2024-3-3 13:28
+
+酸欠的巡演时间定了，该去现场听花之塔了
+<img src="https://p.sda1.dev/16/a7e11f9325f38b205cb21c98c7c8c83c/0d8ab3bb768443ffcd34a4e9e28643f9.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

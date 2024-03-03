@@ -23,3 +23,20 @@ FURYU原创动作RPG《雷纳提斯》今日举办了直播活动，其中有15�
 
 雷索纳斯是那个国产二游吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 45#         楼主| 发表于 2024-3-3 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64131210&amp;ptid=2172675" target="_blank">宛若青空 发表于 2024-3-3 13:19</a>
+雷索纳斯是那个国产二游吧</blockquote>
+三个字一样，傻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 46#       发表于 2024-3-3 13:32
+
+恸哭系列骗了我两次，这次不会上当了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

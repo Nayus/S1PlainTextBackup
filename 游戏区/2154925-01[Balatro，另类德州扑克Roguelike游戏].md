@@ -5161,3 +5161,11 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 后面全卡组金注和全小丑金标是人做的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wbzdwsmnmsl  
+##### 456#       发表于 2024-3-3 13:31
+
+大佬们请教下，怎么把卡牌数量减到5张以下啊
+

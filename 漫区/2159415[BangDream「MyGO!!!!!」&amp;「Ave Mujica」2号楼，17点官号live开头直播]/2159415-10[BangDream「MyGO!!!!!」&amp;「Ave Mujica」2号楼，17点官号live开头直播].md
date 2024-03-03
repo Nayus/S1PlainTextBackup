@@ -6249,3 +6249,11 @@ Mujica新曲制作中
 年度最佳喜剧角色是谁</blockquote>
 爱音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tiro_finale  
+##### 13861#       发表于 2024-3-3 13:28
+
+评委要把所有片子全看了啊，那还挺硬核的，之前5ch也投了个第一来着，加上S1的，这下全球都拿到好评了
+

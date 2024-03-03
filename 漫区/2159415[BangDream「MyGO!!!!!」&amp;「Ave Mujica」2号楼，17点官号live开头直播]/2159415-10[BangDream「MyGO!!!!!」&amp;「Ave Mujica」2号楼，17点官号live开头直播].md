@@ -6311,3 +6311,23 @@ Mujica新曲制作中
 
 去掉扭曲迫害乐子滤镜，爱音确实是正统喜剧角色
 
+
+*****
+
+####  御幸一也  
+##### 13868#       发表于 2024-3-3 17:56
+
+新翻唱！
+
+李子自己丟的<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/03/175604h9mrmrrkpmrhm8eh.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (75.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 17:56 上传
+
+[https://twitter.com/sasakirico/status/1764215374726512896](https://twitter.com/sasakirico/status/1764215374726512896)
+

@@ -11562,3 +11562,16 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 1164#       发表于 2024-3-3 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64130780&amp;ptid=2170852" target="_blank">leoray 发表于 2024-3-3 12:17</a>
+
+难9那把队友都带了磁轨蛋盾我寻思我带把榴弹EAT清巢得了，结果看见队友拿磁轨爆牛头
+
+—— 来自 S ...</blockquote>
+磁轨蛋盾现在也属于是菜逼标配了，野队碰到这种配置就别考虑补位了，要么退要么自己也带磁轨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

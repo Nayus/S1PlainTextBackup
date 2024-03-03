@@ -632,3 +632,16 @@ loop是什么意思，老婆吗？</blockquote>
 吐了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11459#       发表于 2024-3-3 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133054&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-3 17:54</a>
+
+不是，因为要顺带刷仪式剑和煌星，我没用加成礼装硬刷的
+
+吐了</blockquote>
+那这真的会吐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

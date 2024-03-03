@@ -4174,3 +4174,85 @@ mygo在国内给邦引了大流，sc第三季有希望吗<img src="https://stati
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rgauss  
+##### 1926#       发表于 2024-3-3 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">引一堆厕妹还是算了
+
+*****
+
+####  田所あずさ  
+##### 1927#       发表于 2024-3-3 18:00
+
+今天没有星之声，我要枪杀高山！！！
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1928#       发表于 2024-3-3 18:00
+
+ 本帖最后由 虚无缥缈的光阴 于 2024-3-3 18:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133060&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-3 17:55</a>
+
+第三季那不就是当今版本最火的吗
+
+mygo在国内给邦引了大流，sc第三季有希望吗</blockquote>
+嘘组＋儿力大三角能有祥睦素大三角的十分之一热度就算赢好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+比起这个倒不如想想什么时候才能出第三季看到动画里的可爱日花宝<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1929#       发表于 2024-3-3 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">动画火了还想吸引几个高质量花钱看live，讲礼貌的新人？
+
+主要新人不都是小鬼，小鬼慢慢转化成核心粉才是企划正常路程。
+
+*****
+
+####  陆久舟  
+##### 1930#       发表于 2024-3-3 18:01
+
+三期能把日花的剧情讲好就行了
+
+
+*****
+
+####  冰寒之月  
+##### 1931#       发表于 2024-3-3 18:02
+
+什么女女关系性引流 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 1932#       发表于 2024-3-3 18:03
+
+只要画面素质好，故事线明确，来人还不简单，偶像企划的核心是歌，sc现在大热的好几首歌都是这五个人的，宣传不要太容易。
+
+*****
+
+####  rexzhanghao  
+##### 1933#       发表于 2024-3-3 18:03
+
+页游剧情好久没看了，好像去年有个活动讲了美琴和luca和解放下执念了？
+
+*****
+
+####  wfhtony  
+##### 1934#       发表于 2024-3-3 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133060&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-3 17:55</a>
+
+第三季那不就是当今版本最火的吗
+
+mygo在国内给邦引了大流，sc第三季有希望吗</blockquote>
+&gt; 第三季那不就是当今版本最火的吗
+
+只算流量的話，[確實](https://bgm.tv/subject/407332)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6456,3 +6456,14 @@ Mujica新曲制作中
 
 羊要和鱼拼个广播能不能学点好？就像当年樱小姐和辈先
 
+
+*****
+
+####  御幸一也  
+##### 13880#       发表于 2024-3-3 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64134206&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-3 20:08</a>
+
+以你邦喜欢逆输入的习惯（目前已知大鼓中学吹奏部和凛玩过学生会乐队都逆输入了），第二季可能真的能看到祥 ...</blockquote>
+睦都學了，祥子一起學很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

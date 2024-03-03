@@ -6227,3 +6227,14 @@ Mujica新曲制作中
 
 在红迪动漫区年度动漫评选中（分评委组和大众组），MyGO获得评委组评选的年度最佳动画，年度最佳剧情与年度最佳喜剧角色等奖项<img src="https://s2.loli.net/2024/03/03/W43CfADMoqv1c2j.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 13859#       发表于 2024-3-3 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64130415&amp;ptid=2159415" target="_blank">太二EricGuo 发表于 2024-3-3 11:23</a>
+
+在红迪动漫区年度动漫评选中（分评委组和大众组），MyGO获得评委组评选的年度最佳动画，年度最佳剧情与年度 ...</blockquote>
+年度最佳喜剧角色是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

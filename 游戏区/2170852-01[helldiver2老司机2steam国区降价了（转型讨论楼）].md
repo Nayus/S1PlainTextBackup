@@ -11537,3 +11537,28 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 —— 来自 HUAWEI ALN-AL80, Android 12上的 S1Next- ...</blockquote>
 扔个空袭，有概率炸死，炸不死也也引出来了，虫巢炸卵之类的任务就可以溜着做，那种要点点点等等等的就留给队友咯，当然会单杀坦克虫就更好了，榴弹和主手的霰弹都可以单杀的
 
+
+*****
+
+####  leoray  
+##### 1162#       发表于 2024-3-3 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64130238&amp;ptid=2170852" target="_blank">moeblack 发表于 2024-3-3 10:55</a>
+我问一下，要是任务点有坦克虫在那里等着咋办呀？
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 S1Next- ...</blockquote>
+呼叫空袭！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  leoray  
+##### 1163#       发表于 2024-3-3 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64125156&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-2 17:17</a>
+找个石头让牛撞到一起一波空袭送走</blockquote>
+难9那把队友都带了磁轨蛋盾我寻思我带把榴弹EAT清巢得了，结果看见队友拿磁轨爆牛头<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

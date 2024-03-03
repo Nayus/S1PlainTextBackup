@@ -321,3 +321,11 @@ PTA规制代哥安全牌大概不会这么写。
 
 前两话感觉净化还是靠安抚 抱只是安抚的方式 最近感觉抱真的就是净化大招一样的东西了 一抱就能强行把怪净化掉
 
+
+*****
+
+####  pokemon最爱  
+##### 1114#       发表于 2024-3-3 11:39
+
+结果吵架是因为小麦不会用武器所以吵架吗，离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

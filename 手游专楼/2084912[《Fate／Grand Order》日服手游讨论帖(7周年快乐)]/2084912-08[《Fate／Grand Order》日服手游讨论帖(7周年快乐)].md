@@ -677,3 +677,13 @@ loop是什么意思，老婆吗？</blockquote>
 
 270萬，都是早上清白地球時順便吃兩個銅蘋果打多1場，之後就是晚上剛過11點後再開遊戲打3場，之後可能加減吃1~2個銀蘋果
 
+
+*****
+
+####  里村紅葉  
+##### 11464#       发表于 2024-3-3 18:49
+
+我200万都没到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -1296,3 +1296,14 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 
 索尼选择这日期是有光荣参考意见的吧，5月后现在什么阵容都没透露这事情怎么想也比冲年终结算主要，q4阵容本身也够根本没必要和卡普空撞阿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ckseng  
+##### 795#       发表于 2024-3-3 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64129446&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-3 07:52</a>
+
+总有人拿龙之信条说事，其实龙信一代初版销量130万，在卡普空销量排名第90位，和怪猎不是一回事的，别想太 ...</blockquote>
+毕竟龙信吹是二代公布后才崛起的新品种，如果当年一代就那么多买单的早就玩上三代了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

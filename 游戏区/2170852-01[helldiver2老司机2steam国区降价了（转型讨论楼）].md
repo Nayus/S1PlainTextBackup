@@ -11523,3 +11523,17 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  nagamasa  
+##### 1161#       发表于 2024-3-3 12:03
+
+ 本帖最后由 nagamasa 于 2024-3-3 12:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64130238&amp;ptid=2170852" target="_blank">moeblack 发表于 2024-3-3 10:55</a>
+
+我问一下，要是任务点有坦克虫在那里等着咋办呀？
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 S1Next- ...</blockquote>
+扔个空袭，有概率炸死，炸不死也也引出来了，虫巢炸卵之类的任务就可以溜着做，那种要点点点等等等的就留给队友咯，当然会单杀坦克虫就更好了，榴弹和主手的霰弹都可以单杀的
+

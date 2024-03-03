@@ -186,3 +186,26 @@
 
   她如此回复道。</blockquote>
 
+
+*****
+
+####  半年  
+##### 1724#       发表于 2024-3-3 12:00
+
+ 【#舞台リコリコひな祭りコメント到着】
+
+錦木千束：#河内美里
+
+アニプレックスオンライン先行は3月上旬よりスタート予定となりますので、受付開始まで今しばらくお待ちくださいませ
+[https://lycoris-recoil.com/stage/#](https://lycoris-recoil.com/stage/#)リコリス・リコイル#リコリコ 
+
+<img src="https://img.saraba1st.com/forum/202403/03/120001epxf7fzgb50g01hp.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240303115949.png</strong> (127.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 12:00 上传
+
+[https://twitter.com/lycoreco_stage/status/1764131151671972135](https://twitter.com/lycoreco_stage/status/1764131151671972135)
+

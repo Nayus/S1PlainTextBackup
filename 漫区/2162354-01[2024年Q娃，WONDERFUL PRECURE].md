@@ -329,3 +329,11 @@ PTA规制代哥安全牌大概不会这么写。
 
 结果吵架是因为小麦不会用武器所以吵架吗，离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梦诗歌雪  
+##### 1115#       发表于 2024-3-3 12:01
+
+二号位先升级武器，粉主因为别人先升级自己升级失败无能狂怒，所以到底谁才是主角
+

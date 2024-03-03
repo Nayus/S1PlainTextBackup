@@ -4562,3 +4562,14 @@ sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
 
 看到有人说南ことり<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黛冬优子  
+##### 1963#       发表于 2024-3-3 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133283&amp;ptid=2130897" target="_blank">Srchy 发表于 2024-3-3 18:21</a>
+
+一万也是系列最差怎么还很骄傲的样子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然只卖了一万，但是柏油买的都是特装版，单价高
+

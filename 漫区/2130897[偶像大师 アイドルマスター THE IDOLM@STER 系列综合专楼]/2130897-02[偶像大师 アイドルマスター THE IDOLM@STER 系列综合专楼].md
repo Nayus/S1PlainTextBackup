@@ -4691,3 +4691,44 @@ sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还得继续开livehouse恶心你
 
+
+*****
+
+####  Srchy  
+##### 1979#       发表于 2024-3-3 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">怎么不知道天高地厚了，我灰对自己洗脚婢身份很有自知之明的好吧，还是去打那个10年12集还觉得BN爸爸很爱它那个吧
+
+*****
+
+####  RhmBWT_Wu  
+##### 1980#       发表于 2024-3-3 22:51
+
+作为去年才入坑的好奇一个事很久了，为什么现在内斗基本还是灰百互打，不怎么看得到攻击闪的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  田所あずさ  
+##### 1981#       发表于 2024-3-3 22:52
+
+因为闪友人不够打啊，还能因为什么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 1982#       发表于 2024-3-3 22:54
+
+闪虽然看起来人多但实际高山这派挺影薄的没啥可打的？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rexzhanghao  
+##### 1983#       发表于 2024-3-3 22:56
+
+闪以人物剧情为特色没有和灰百的生态位重叠
+

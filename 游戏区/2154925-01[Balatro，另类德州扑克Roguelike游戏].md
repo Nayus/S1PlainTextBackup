@@ -5151,3 +5151,13 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 手机版还没出吗，虽然我很菜但还想携带玩
 
+
+*****
+
+####  Cirle  
+##### 455#       发表于 2024-3-3 13:08
+
+全成就的工作量陡然提升，有点啃不动了
+
+后面全卡组金注和全小丑金标是人做的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

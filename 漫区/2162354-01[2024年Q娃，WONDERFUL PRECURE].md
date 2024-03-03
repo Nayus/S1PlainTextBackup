@@ -404,3 +404,16 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 遛狗常见，社会化训练后遛猫也有，但遛兔子是真没听说过
 
+
+*****
+
+####  Parahure  
+##### 1123#       发表于 2024-3-3 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64131970&amp;ptid=2162354" target="_blank">modedd 发表于 2024-3-3 15:18</a>
+
+如果悟不是追加，那不会真的要他这样边缘OB一整年吧
+
+而且兔子也太影薄了，三对主宠人家猫组狗组恨 ...</blockquote>
+兔子不是明显藏着吗，后边八成来个大的
+

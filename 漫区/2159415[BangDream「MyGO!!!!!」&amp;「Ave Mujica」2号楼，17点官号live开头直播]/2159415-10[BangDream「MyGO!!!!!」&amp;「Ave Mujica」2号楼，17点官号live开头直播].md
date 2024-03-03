@@ -6265,3 +6265,23 @@ Mujica新曲制作中
 
 爱音原来是喜剧角色吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 13863#       发表于 2024-3-3 14:36
+
+看到爱音你不快乐吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cherryjia12  
+##### 13864#       发表于 2024-3-3 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64131436&amp;ptid=2159415" target="_blank">池袋西柚 发表于 2024-3-3 13:50</a>
+
+爱音原来是喜剧角色吗</blockquote>
+抛开后期对素世和祥子的迫害不谈，爱音爱慕虚荣的性格和各种小表情确实提供了很多笑点
+

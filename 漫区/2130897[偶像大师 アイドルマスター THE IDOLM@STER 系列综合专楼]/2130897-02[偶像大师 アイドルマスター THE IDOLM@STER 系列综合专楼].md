@@ -3465,3 +3465,27 @@ yuki明天来
 
 刚刚在看异次元歌合战的u149的时候，突然蹦出来了个想法：等过几年她们的孩子看到u149动画时，是不是就可以正儿八经地对着里面的角色喊妈妈了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 1864#       发表于 2024-3-3 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64131120&amp;ptid=2130897" target="_blank">5b25 发表于 2024-3-3 13:05</a>
+不知道想说的内容合不合适（涉及到结婚生子），就先反白了。</blockquote>
+确实，不过爱马仕这边不太忌讳这个吧，声优罢了又不是三次元偶像
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 1865#       发表于 2024-3-3 14:44
+
+本家结婚了的都有孩子了吧
+灰百结婚的都有挺多，但不记得有谁有孩子了？
+u149里佐藤亚美菜照井春佳黑泽朋世都结婚了，别的不知道有没有我记漏的
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

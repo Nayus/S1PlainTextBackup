@@ -380,3 +380,19 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  狮子咕  
+##### 1120#       发表于 2024-3-3 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔子如果一直不给镜头的话，它多半就是羊一直挂在嘴里的那位大人了，当然也可能只是多想
+
+
+*****
+
+####  leleq  
+##### 1121#       发表于 2024-3-3 15:33
+
+兔子是我方boss，比较符合成田大妈一贯的风格。
+

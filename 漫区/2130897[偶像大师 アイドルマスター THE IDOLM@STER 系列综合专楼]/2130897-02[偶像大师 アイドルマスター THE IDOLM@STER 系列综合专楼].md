@@ -4620,3 +4620,18 @@ sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
 
 灰友怎么说都能接受，都是死人了当然不怕回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hinarin  
+##### 1970#       发表于 2024-3-3 22:07
+
+黑不黑箱倒是说不准 大本营发表自吹自擂本身幽默感就拉满了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 1971#       发表于 2024-3-3 22:10
+
+又要来了吗，我最爱磕的灰友x柏油
+

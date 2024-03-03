@@ -6528,3 +6528,27 @@ bd还自带来着<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  半年  
+##### 13887#       发表于 2024-3-3 23:08
+
+<img src="https://img.saraba1st.com/forum/202403/03/230831y1dum2gdz9u4zo9e.jpg" referrerpolicy="no-referrer">
+
+<strong>GHvkN-taEAAIbTM.jpg</strong> (659.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 23:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/03/230830mwtneg80xcjlyxe0.jpg" referrerpolicy="no-referrer">
+
+<strong>GHvkN-aaIAA1eey.jpg</strong> (633.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 23:08 上传
+
+[https://twitter.com/Sumisumiko_/ ... 18287210963/photo/2](https://twitter.com/Sumisumiko_/status/1764254618287210963/photo/2)
+

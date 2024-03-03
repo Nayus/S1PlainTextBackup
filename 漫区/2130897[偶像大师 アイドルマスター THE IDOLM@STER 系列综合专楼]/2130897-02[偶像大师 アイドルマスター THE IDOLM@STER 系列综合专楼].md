@@ -4476,3 +4476,26 @@ mygo在国内给邦引了大流，sc第三季有希望吗</blockquote>
 
 反正到时候回来了我第一个下跪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flynnei  
+##### 1955#       发表于 2024-3-3 19:16
+
+sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
+
+
+*****
+
+####  何处分可  
+##### 1956#       发表于 2024-3-3 19:22
+
+难蚌，真来第二季啊；代孙我百万呢
+
+*****
+
+####  rexzhanghao  
+##### 1957#       发表于 2024-3-3 19:23
+
+但不可能像wsd那样偏重对华市场啊，20年之前cg/ml至少还有来上海的
+

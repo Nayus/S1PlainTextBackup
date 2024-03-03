@@ -11585,3 +11585,17 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 换个喷气背包想飞进去结果就只能跳那么一点高，还要CD半天
 
+
+*****
+
+####  smdzh2  
+##### 1166#       发表于 2024-3-3 19:22
+
+ 本帖最后由 smdzh2 于 2024-3-3 20:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133451&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-3 19:42</a>
+这个难7炸虫卵好恶心，拿着榴弹枪还没进去门口就刷一堆虫子
+
+换个喷气背包想飞进去结果就只能跳那么 ...</blockquote>
+背蛋盾直接冲进去炸，如果有冤大头队友帮忙拉仇恨就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+飞行背包的话，在虫穴外面找个制高点，手动调整榴弹弹道比慢慢飞进去保险
+

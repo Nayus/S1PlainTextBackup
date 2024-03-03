@@ -6368,3 +6368,21 @@ Mujica新曲制作中
 之前还在想为什么不放十月播 原来是早就私下通好气错开档期了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">早就有**论说是给星3让路，原来是万南面子大给他全家让路
 
+
+*****
+
+####  Aendst  
+##### 13872#       发表于 2024-3-3 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道mygo剧场版是不是十月播
+
+
+*****
+
+####  PDQ4  
+##### 13873#       发表于 2024-3-3 19:25
+
+竟然还要给外厂让路，原来WSD如此心胸宽广。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+不对WSD这么抠比，竟然会档期让路，一定是老登被万南用大米塞爆了吧，可以把这份大米计入鸡的业绩里吗，被晾干的老鸡粉流失的米就全靠大人物的钱权交易来补了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

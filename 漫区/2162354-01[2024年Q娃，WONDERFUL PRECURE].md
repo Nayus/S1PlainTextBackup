@@ -429,3 +429,11 @@ ost1封面出了 看来石锤猫组是夏季追加了
 兔子不是明显藏着吗，后边八成来个大的</blockquote>
 其实这个话题上周也讨论过，兔子现在不给去妮可乐园一直藏说不定就是因为能被羊直接认出来，要么q娃老板要么我方boss，但是信息实在太少了，兔组现在相处模式根本就是各玩各的，悟还整天不带大福玩，到时候真来个大的兔子接得住戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 1125#       发表于 2024-3-3 19:23
+
+这粉主职责分的是不是有点多啊，该不会到最后非人主是装的本质还是真人主吧，新的创新又无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

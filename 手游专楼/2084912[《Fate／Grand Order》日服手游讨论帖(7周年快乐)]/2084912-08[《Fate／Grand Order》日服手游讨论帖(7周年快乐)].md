@@ -687,3 +687,26 @@ loop是什么意思，老婆吗？</blockquote>
 
 —— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  保罗赫伯特  
+##### 11465#       发表于 2024-3-3 19:18
+
+我拿完呼符就不打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 11466#       发表于 2024-3-3 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚打完300W
+
+*****
+
+####  cenhr  
+##### 11467#       发表于 2024-3-3 19:20
+
+每一天一颗苹果基本上就够用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -577,3 +577,24 @@ all in迦梨 无事发生 为什么 为什么不出呢</blockquote>
 
 突破700，真有可能攒够一井<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11454#       发表于 2024-3-3 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64127764&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-2 22:25</a>
+
+抽中了难近母，她可以loop吗？</blockquote>
+loop是什么意思，老婆吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11455#       发表于 2024-3-3 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64132572&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-3-3 16:45</a>
+
+loop是什么意思，老婆吗？</blockquote>
+3T循环农敌人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

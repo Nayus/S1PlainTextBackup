@@ -4784,3 +4784,18 @@ ppt专精，人称万南阿尔特塔？<img src="https://static.saraba1st.com/im
 都是半拉死的老东西了，比谁活得长吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 还是得看两天后的新生代重振爱马仕荣光有意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 1990#       发表于 2024-3-3 23:17
+
+闪能够地位高当然是因为闪的人全是万代的啊，老南梦宫系的不沾着闪。
+
+*****
+
+####  Vacuolar  
+##### 1991#       发表于 2024-3-3 23:18
+
+灰百对打本质上是以前的积怨，跟争高低没有任何关系，论商业成绩灰永远高
+

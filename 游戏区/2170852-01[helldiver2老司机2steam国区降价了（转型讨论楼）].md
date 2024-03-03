@@ -11622,3 +11622,16 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 —— 来自 samsung SM-S916U, Android 14上的 S1Next ...</blockquote>
 能踢,游戏内直接开菜单长按
 
+
+*****
+
+####  FLZB  
+##### 1169#       发表于 2024-3-4 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64137102&amp;ptid=2170852" target="_blank">Nihlathak 发表于 2024-3-4 02:22</a>
+
+这游戏能block人吗，昨天遇到俩故意杀队友的奇葩玩意
+
+—— 来自 samsung SM-S916U, Android 14上的 S1Next ...</blockquote>
+近期玩家列表找id，屏蔽
+

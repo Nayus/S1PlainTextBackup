@@ -5266,3 +5266,14 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 现在的问题一个是卡组和小丑不平衡，一个是金注开局第一二层容易暴毙没保底，已经有主播就roll开局金注十几连胜了
 
+
+*****
+
+####  Cirle  
+##### 467#       发表于 2024-3-4 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64131446&amp;ptid=2154925" target="_blank">wbzdwsmnmsl 发表于 2024-3-3 13:52</a>
+
+还有个，不用同花通关，那我用同花顺和同花葫芦，算违反这个解锁条件吗</blockquote>
+不算的，各个牌型是分开算的
+

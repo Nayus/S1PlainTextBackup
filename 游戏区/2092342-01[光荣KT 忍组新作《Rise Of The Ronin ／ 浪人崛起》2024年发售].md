@@ -1371,3 +1371,16 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 总有人拿龙之信条说事，其实龙信一代初版销量130万，在卡普空销量排名第90位，和怪猎不是一回事的，别想太 ...</blockquote>
 龙信1本篇是不怎么样，但是现在的问题是卡表的风评不可同日而语了，不论是结合近这两年品质量还是游戏发售前光看卖相，让路人二选一大部分肯定选择相信龙信2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也就我这种忍组大礼包一路玩下来的人会选浪人了
 
+
+*****
+
+####  廖化  
+##### 802#       发表于 2024-3-3 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64126568&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-2 20:04</a>
+
+KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
+
+我正宗日厂、更擅长动作戏、角色更美型、幕末背景比起来还 ...</blockquote>
+暗荣别瞎寻思了，我怎么感觉索尼想你死呢<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+

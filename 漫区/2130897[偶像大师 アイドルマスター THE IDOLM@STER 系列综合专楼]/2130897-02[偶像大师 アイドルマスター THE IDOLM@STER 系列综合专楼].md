@@ -4256,3 +4256,92 @@ mygo在国内给邦引了大流，sc第三季有希望吗</blockquote>
 
 只算流量的話，[確實](https://bgm.tv/subject/407332)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  退行  
+##### 1935#       发表于 2024-3-3 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133116&amp;ptid=2130897" target="_blank">rexzhanghao 发表于 2024-3-3 18:03</a>
+页游剧情好久没看了，好像去年有个活动讲了美琴和luca和解放下执念了？</blockquote>
+如放，就是luca觉得美琴变了不是以前的那个美琴了而已
+
+*****
+
+####  双语之城  
+##### 1936#       发表于 2024-3-3 18:07
+
+长颈鹿的声音
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  水莲寺流歌  
+##### 1937#       发表于 2024-3-3 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也好，早点把老登的动画流程搞完早点安排资源给第六星
+
+*****
+
+####  wfhtony  
+##### 1938#       发表于 2024-3-3 18:09
+
+ 本帖最后由 wfhtony 于 2024-3-3 18:11 编辑 
+
+283社長罕見發聲（
+
+<img src="https://img.saraba1st.com/forum/202403/03/180919ukbvf6z6vwzex0fb.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-03-18h06m42s430.jpg</strong> (146.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/03/180920rpwmmg6605h5b0g5.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-03-18h06m54s617.jpg</strong> (278.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/03/180920hh4wlwsc08kuu478.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-03-18h07m30s429.jpg</strong> (598.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/03/180920hp8me42l57hlnhee.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-03-18h07m37s341.jpg</strong> (109.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 18:09 上传
+
+下場LIVE見。
+
+<img src="https://img.saraba1st.com/forum/202403/03/180920ofptkhymfxx7sf0t.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-03-18h07m55s571.jpg</strong> (216.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 18:09 上传
+
+6th大阪場結束。
+
+這週是SC的6th；
+
+下週是[本家的CG的岩手小場](https://asobistage.asobistore.jp/event/cinderella_ut_iwate/ticket)；
+
+再下週是[本家的MR演出](https://asobistage.asobistore.jp/event/idolmaster_twinlive_halfmoon/ticket)；
+
+然後是[賽馬娘5th最終場（大阪場）](https://abema.tv/live-event/58162a30-f9d3-4de7-bc13-9a0654a91d11)；
+
+最後是[管馬仕的專場LIVE](https://asobistage.asobistore.jp/event/valiv_the_last_statement/ticket)...
+

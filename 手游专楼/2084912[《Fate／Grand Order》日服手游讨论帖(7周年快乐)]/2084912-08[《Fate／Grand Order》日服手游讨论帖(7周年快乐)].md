@@ -645,3 +645,19 @@ loop是什么意思，老婆吗？</blockquote>
 吐了</blockquote>
 那这真的会吐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 11460#       发表于 2024-3-3 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我才230万  不想吃苹果 还有救吗
+
+
+*****
+
+####  乾理央  
+##### 11461#       发表于 2024-3-3 18:15
+
+刷的90+树根，自回+吃了几个蓝苹果现在也290w了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

@@ -4882,3 +4882,17 @@ Shhis的kpop曲风和扭曲关系吸引一票女团韩粉
 那说明你没见过真的爱马仕老害，我以前有个老害群好几个都是以前的玩网名人什么小号大头照加微信 ...</blockquote>
 毕竟在我印象里，车万 - 淫梦- 音游 - imas 这几个的共同暗区就是esu人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ReginaldMorgan  
+##### 2001#       发表于 2024-3-4 01:21
+
+既然有人吵那我也拱个火，今天和某<strong>铁血柏油</strong>朋友聊了聊，他和销量厨对那个1w数字的态度是……“不像真的”“bn已经敢直接骗傻子了”
+
+他说的关于imas系日亚/店头销量的占比、四个月长期排名数据的观察、asobi特装名片数目、跟辉针城asb特装排名对比等等的事，我也不懂只能听他聊。就假设他说的是真的，那我对bn的动机还挺感兴趣的，总不能真的草台班子统计口径有问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这玩意说到底也只能是一个爱信谁信谁的问题，无论说多少都只是民间观测，官方说法确实具有先验正确性，只能（摊手）
+
+重复一遍，跟我聊这个的是铁血柏油
+

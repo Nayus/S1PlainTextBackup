@@ -710,3 +710,13 @@ loop是什么意思，老婆吗？</blockquote>
 
 每一天一颗苹果基本上就够用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11468#       发表于 2024-3-3 22:54
+
+点数满了，但是商店没搬完算什么水平
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4732,3 +4732,55 @@ sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
 
 闪以人物剧情为特色没有和灰百的生态位重叠
 
+
+*****
+
+####  Alicest  
+##### 1984#       发表于 2024-3-3 22:57
+
+老大是固定的，只是争老二罢了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">曾经的老幺凑什么热闹
+
+*****
+
+####  Anatoly  
+##### 1985#       发表于 2024-3-3 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以高山是怎么做到能要到这么多钱偏偏看起来没啥话语权的
+ppt专精，人称万南阿尔特塔？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Seeley  
+##### 1986#       发表于 2024-3-3 23:01
+
+因为冲突不起来吧，灰百中生代还是有不少重合的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kreis  
+##### 1987#       发表于 2024-3-3 23:03
+
+闪出生就被嫌弃不够im@s，闪友早该和老害切割了
+
+百自诩正统常年被灰压一头，不打起来才奇怪
+
+*****
+
+####  rexzhanghao  
+##### 1988#       发表于 2024-3-3 23:04
+
+我其实在20年宣布百万动画之前根本没意识到这个企划，甚至把14年剧场版里矢吹可奈和北泽志保误当成765下一代的红蓝巨头了
+
+*****
+
+####  lz741990563  
+##### 1989#       发表于 2024-3-3 23:05
+
+都是半拉死的老东西了，比谁活得长吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还是得看两天后的新生代重振爱马仕荣光有意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

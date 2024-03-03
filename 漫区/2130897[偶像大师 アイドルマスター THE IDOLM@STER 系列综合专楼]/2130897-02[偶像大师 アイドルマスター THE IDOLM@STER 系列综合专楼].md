@@ -4668,3 +4668,26 @@ sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">等不及想看珊珊第三季了
 
+
+*****
+
+####  Vacuolar  
+##### 1976#       发表于 2024-3-3 22:37
+
+看好闪闪出第三季，狠狠打灰灰百百两个不知道天高地厚的脸
+
+
+*****
+
+####  646993211  
+##### 1977#       发表于 2024-3-3 22:43
+
+想起梅西粉丝嘲讽c罗友谊赛退票和灰友开百1478销量的香槟的回旋镖好像一样,然后粉丝一个拿合同说事一个说官宣销量不算.都有嘴硬空间.<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  田所あずさ  
+##### 1978#       发表于 2024-3-3 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还得继续开livehouse恶心你
+

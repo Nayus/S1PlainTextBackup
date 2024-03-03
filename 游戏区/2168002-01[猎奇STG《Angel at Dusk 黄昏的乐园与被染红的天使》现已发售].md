@@ -48,3 +48,11 @@
 —— 来自 meizu 17, Androi ...</blockquote>
 CAVE社楼上基本都说了，再提名俩，斑鸠（Ikaruga）和大流士（DARIUS）
 
+
+*****
+
+####  Kazuhira  
+##### 140#       发表于 2024-3-3 22:35
+
+steam可能没有的倒是想推荐，r-type系列和thunder force 5 ，前者的剧情和设定也有点让人头皮发麻，但比起黄昏的天使口味轻多了，后者我觉得主要是音乐好听
+

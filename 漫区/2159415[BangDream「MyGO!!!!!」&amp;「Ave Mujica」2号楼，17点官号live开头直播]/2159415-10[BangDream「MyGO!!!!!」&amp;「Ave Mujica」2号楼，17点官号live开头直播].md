@@ -6404,3 +6404,21 @@ Mujica新曲制作中
 
 以及可不可以梦一个李子自己填词的曲子，高尾作曲不行的话拉她哥一起帮忙，来点角色输出CV。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 13876#       发表于 2024-3-3 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">多来点曲子充实帝国时代2主题包了，每次一首专辑的时间就打完战役了
+
+
+*****
+
+####  木谷高明  
+##### 13877#       发表于 2024-3-3 19:54
+
+【【中字】把芭蕾活用到Ave Mujica的高尾奏音（带N站弹幕）-哔哩哔哩】 https://b23.tv/4nE1Pfs
+
+扭得好极限居然是古典芭蕾
+

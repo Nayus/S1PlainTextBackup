@@ -437,3 +437,13 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 这粉主职责分的是不是有点多啊，该不会到最后非人主是装的本质还是真人主吧，新的创新又无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最强惠酱  
+##### 1126#       发表于 2024-3-3 19:49
+
+眼镜出来分析怪兽带兔子干嘛啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

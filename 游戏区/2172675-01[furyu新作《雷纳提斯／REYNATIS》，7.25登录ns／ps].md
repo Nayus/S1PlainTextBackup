@@ -15,3 +15,11 @@ FURYU原创动作RPG《雷纳提斯》今日举办了直播活动，其中有15�
 <blockquote>几年前给@雷索纳斯 做的。
 学会的首都  枢议构筑 synanoic #雷索纳斯[超话]##雷索纳斯# http://t.cn/A6YRzHxC ​​​</blockquote>
 
+
+*****
+
+####  宛若青空  
+##### 44#       发表于 2024-3-3 13:19
+
+雷索纳斯是那个国产二游吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

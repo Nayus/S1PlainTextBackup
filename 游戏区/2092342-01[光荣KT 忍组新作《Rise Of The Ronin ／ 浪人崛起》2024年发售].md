@@ -1340,3 +1340,16 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 龙信2总销量700W了。</blockquote>
 老哥你是穿越了？2代还没发售呢，怎么就700万了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 799#       发表于 2024-3-3 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64131140&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-3 13:08</a>
+
+老哥你是穿越了？2代还没发售呢，怎么就700万了？
+
+700万那是1代+1代加强版+1代加强版高清重置的合 ...</blockquote>
+打错了，1是700w销量。
+

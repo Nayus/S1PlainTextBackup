@@ -11599,3 +11599,13 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 背蛋盾直接冲进去炸，如果有冤大头队友帮忙拉仇恨就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 飞行背包的话，在虫穴外面找个制高点，手动调整榴弹弹道比慢慢飞进去保险
 
+
+*****
+
+####  Nihlathak  
+##### 1167#       发表于 2024-3-4 02:22
+
+这游戏能block人吗，昨天遇到俩故意杀队友的奇葩玩意
+
+—— 来自 samsung SM-S916U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

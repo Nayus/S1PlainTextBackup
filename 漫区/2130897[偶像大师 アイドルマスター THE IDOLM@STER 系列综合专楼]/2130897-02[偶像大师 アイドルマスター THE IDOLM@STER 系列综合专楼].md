@@ -4573,3 +4573,11 @@ sidem要开巨蛋，灰Zepp门票炒到10w，大家都有光明的未来
 一万也是系列最差怎么还很骄傲的样子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然只卖了一万，但是柏油买的都是特装版，单价高
 
+
+*****
+
+####  hypnossz86  
+##### 1964#       发表于 2024-3-3 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">一万怎么就最低了，这不吊打149
+

@@ -6386,3 +6386,11 @@ Mujica新曲制作中
 
 不对WSD这么抠比，竟然会档期让路，一定是老登被万南用大米塞爆了吧，可以把这份大米计入鸡的业绩里吗，被晾干的老鸡粉流失的米就全靠大人物的钱权交易来补了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 13874#       发表于 2024-3-3 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可以梦一下紧急宣布跟烂铁合作多找点比sl会写歌的人供曲吗
+

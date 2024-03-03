@@ -5134,3 +5134,20 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 天胡局打到了e61，封盘了，体验过了这个数值，以后看不见e都没感觉了
 
+
+*****
+
+####  a4ac7  
+##### 453#       发表于 2024-3-3 11:11
+
+<img src="https://img2.imgtp.com/2024/03/03/J0v2z3jR.PNG" id="aimg_XEIGW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+靠着打对子，和1/4 的保命小丑苟过橙注，不过看分数好像换掉保命小丑也过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 454#       发表于 2024-3-3 11:17
+
+手机版还没出吗，虽然我很菜但还想携带玩
+

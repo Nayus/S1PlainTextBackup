@@ -1307,3 +1307,24 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 总有人拿龙之信条说事，其实龙信一代初版销量130万，在卡普空销量排名第90位，和怪猎不是一回事的，别想太 ...</blockquote>
 毕竟龙信吹是二代公布后才崛起的新品种，如果当年一代就那么多买单的早就玩上三代了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 796#       发表于 2024-3-3 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64130111&amp;ptid=2092342" target="_blank">ckseng 发表于 2024-3-3 10:33</a>
+毕竟龙信吹是二代公布后才崛起的新品种，如果当年一代就那么多买单的早就玩上三代了吧 ...</blockquote>
+龙信吹和二代有什么关系，这么多年一直在吹好吧
+
+
+*****
+
+####  Mr.Hopp  
+##### 797#       发表于 2024-3-3 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64129446&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-3 07:52</a>
+
+总有人拿龙之信条说事，其实龙信一代初版销量130万，在卡普空销量排名第90位，和怪猎不是一回事的，别想太 ...</blockquote>
+龙信2总销量700W了。
+

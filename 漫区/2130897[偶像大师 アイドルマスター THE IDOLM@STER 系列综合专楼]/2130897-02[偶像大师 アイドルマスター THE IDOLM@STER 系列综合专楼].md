@@ -3511,3 +3511,36 @@ u149里佐藤亚美菜照井春佳黑泽朋世都结婚了，别的不知道有�
 
 百有孩子的好像就野村？其他的都没公开过吧
 
+
+*****
+
+####  花开安菲路  
+##### 1869#       发表于 2024-3-3 15:14
+
+嫁到的最好的是帕鲁喵斯吗？
+她老公平田智也职业棋手，才智社会地位都有吧，赚钱养家应该也不差。
+之前专门搜过他夺冠的录播，解说还专门提到他当声优的老婆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 1870#       发表于 2024-3-3 15:18
+
+<img src="https://img.saraba1st.com/forum/202403/03/151836m5yq30q311nabmom.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-03-15h16m52s203.jpg</strong> (250.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 15:18 上传
+
+<img src="https://img.saraba1st.com/forum/202403/03/151836nlww3tttjpv37093.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-03-15h17m42s417.jpg</strong> (193.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-3 15:18 上传
+
+大江戶ISLAND(誤)
+

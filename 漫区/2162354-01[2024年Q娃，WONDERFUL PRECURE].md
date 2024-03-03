@@ -355,3 +355,28 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 你们就拿了一个兽魂怎么双魂合体狗脑子想不了那么多，我看今年还是直接空过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1118#       发表于 2024-3-3 15:16
+
+出现了第一人称视角画面op也有这就是创新吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+新玩具bank嗯……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+小麦：我的玩具不亮是不是坏了
+
+美鬼：别@我，人家是用来调情的那能一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modedd  
+##### 1119#       发表于 2024-3-3 15:18
+
+如果悟不是追加，那不会真的要他这样边缘OB一整年吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且兔子也太影薄了，三对主宠就他整天要被扔家里连个镜头都不给的，眼镜你也太重色轻友了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

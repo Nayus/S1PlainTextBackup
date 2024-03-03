@@ -5605,3 +5605,11 @@ s段能匹配到melon真是太扯了<img src="https://static.saraba1st.com/image
 
 这伞不太会用，本来以为伞面推进伤害很高，但是好像也就这点.....
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3553#       发表于 2024-3-3 20:29
+
+周末一点没打，不少打喷的朋友新图都康了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

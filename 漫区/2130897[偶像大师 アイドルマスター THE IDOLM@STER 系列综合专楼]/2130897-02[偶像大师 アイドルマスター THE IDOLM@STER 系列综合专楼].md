@@ -5290,3 +5290,11 @@ plove是plove
 
 过分在意plove不plove的和在意角色之间贴不贴的都挺魔怔的，绑一起丢垃圾桶里得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天球仪观测者  
+##### 2043#       发表于 2024-3-4 17:59
+
+确实还挺多人磕P天来着
+

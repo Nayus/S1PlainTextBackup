@@ -6749,3 +6749,16 @@ Mujica的话EP吉他担当是潜在表明的作编曲铃木裕明，但后面两
 
 2024-3-4 15:16 上传
 
+
+*****
+
+####  紫吹兰  
+##### 13903#         楼主| 发表于 2024-3-4 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64142575&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-3-4 15:05</a>
+
+隔壁潭开始票选女友/老婆了，符合nga风味
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+NGA本来就是中午互联网下水道，化粪池能起到收集排泄物不要四处外溢的作用就行
+

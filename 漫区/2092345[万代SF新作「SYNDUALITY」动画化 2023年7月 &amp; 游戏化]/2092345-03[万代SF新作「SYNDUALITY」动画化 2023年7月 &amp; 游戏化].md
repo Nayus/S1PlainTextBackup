@@ -4096,3 +4096,15 @@ your song 古贺葵版
 
 点醒歌姬的是大哥，歌姬是为彼方献身的，全程没有诺瓦什么事，身体技能给就算了，歌和粉丝是歌姬自己凭本事赚的，你有什么资格白拿？说到底你俩的羁绊没达到这一地步。学核心危机吗？你是我存在的证明，有这水平吗？我现在有点理解蜜丝缇的想法了，简直就是寄生虫。
 
+
+*****
+
+####  novyDC  
+##### 4202#       发表于 2024-3-5 07:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64148637&amp;ptid=2092345" target="_blank">DARILBALDE 发表于 2024-03-05 01:31:39</a>
+本来想等完结一口气补完，这下是不是省时间了
+还有这b游戏居然出了吗</blockquote>没出 全平台封测而已
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

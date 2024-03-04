@@ -4064,3 +4064,19 @@ your song 古贺葵版
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DARILBALDE  
+##### 4198#       发表于 2024-3-5 01:31
+
+本来想等完结一口气补完，这下是不是省时间了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+还有这b游戏居然出了吗
+
+*****
+
+####  renkan119  
+##### 4199#       发表于 2024-3-5 01:34
+
+只要歌姬爆金币爆过头了 爆身体 爆粉丝 爆歌曲 显得这个角色的存在就是为了给诺娃垫脚
+

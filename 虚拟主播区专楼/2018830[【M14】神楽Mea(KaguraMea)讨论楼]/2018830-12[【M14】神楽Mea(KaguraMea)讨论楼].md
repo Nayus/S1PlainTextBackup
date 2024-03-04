@@ -466,3 +466,11 @@ test</blockquote>
 传说是某人先退 她拉回来一次然后一起退了 然后就是v生开始了 
 至于会不会唱go 评价是不太可能主播一来不看百合番二来不会蹭热度
 
+
+*****
+
+####  Sanco  
+##### 16357#       发表于 2024-3-4 19:24
+
+当时凛子第一次退团的真实原因应该只有麻知道，后来两人为啥一起退了也很神秘，这样看凛应该是祥子，麻是睦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -648,3 +648,11 @@ firefox的一个分发版
 
 edge和chrome还有滚轮切换标签的插件么。被国产调教回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lynn_C  
+##### 51#       发表于 2024-3-4 19:31
+
+我用火狐只是因为他 ctrl+T 是在当前标签右边新建标签，chrome 实现这功能还要装扩展，键位也是 alt+T，太变扭所以不用
+

@@ -87,3 +87,13 @@
 
 而且看加难度有更多点数和钱回报<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 4072#       发表于 2024-3-4 13:31
+
+DLC本身也不是新东西就是，原版2011年停工，2015年把DLC原型的迷你外传做了出来。
+
+DLC和现在你玩的steam版一样是个重置版
+

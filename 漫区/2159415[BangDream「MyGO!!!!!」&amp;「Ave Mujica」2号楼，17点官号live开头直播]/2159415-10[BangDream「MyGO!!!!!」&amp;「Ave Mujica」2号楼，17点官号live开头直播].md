@@ -6585,3 +6585,23 @@ bd还自带来着<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 练了30分钟就能重新捡起来弹月光了，祥子人间体恐怖如斯
 
+
+*****
+
+####  SakuraのOrigami  
+##### 13891#       发表于 2024-3-4 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133948&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-3-3 19:37</a>
+李子都签烂铁了，能不能挖点别的人来写词曲，SUPALOVE的质量我是真的不敢恭维，想听翻唱感觉会比原创好听， ...</blockquote>
+SUPA LOVE真的不差吧（）
+毕竟还是给SHOW BY ROCK写过不少曲
+主要还是SUPA LOVE最近找的给MyGO/Mujica写曲的很多都是长谷川大介还有木下龙平
+长谷川写了迷星叫，双月，Utopia，Angles
+木下龙平写了碧天伴走，影色舞，轮符雨，孤坏牢
+但是这两位都分别是MyGO的吉他担当与贝斯担当（SUPA LOVE供曲的话）
+Mujica的话EP吉他担当是潜在表明的作编曲铃木裕明，但后面两首都是长谷川担当吉他，木下龙平担当贝斯
+倒不如说SUPA LOVE把这两人当上松/藤永组合来用了（）
+估计也是考虑到MyGO是纯四大件，不像老团一样可能会加一些其余乐器的声音。Mujica的话又不可能全写太重，因为还得考虑听众，肯定是往保守方面写（）
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

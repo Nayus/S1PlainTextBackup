@@ -11878,3 +11878,31 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 话说谁知道喷气背包的失重成就怎么做？直接喷的高度太低了，我从小坡上下跳下来 ...</blockquote>
 带个轨道激光  找个没怪的地方放 然后往激光上跳就行了
 
+
+*****
+
+####  赤井稻妻  
+##### 1194#       发表于 2024-3-4 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141992&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-4 14:18</a>
+
+问下破甲用无后坐力炮还是消耗性筒子好，打虫子无后坐力炮好像要4发左右才能打死，装弹还慢
+
+——  ...</blockquote>
+仅说破甲的话还是消耗性筒子好，方便，无后坐力炮占用一个背包位，和消耗性筒子做一样的事
+
+然后是对抗强袭虫的方式是破甲武器打腿把腿甲打开，然后用dps高的主武器猛踹他那条伤腿，消耗性筒子应该一发就能做到，不过后期主要还是用轨道枪破甲更方便，消耗性筒子我还真没试过
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1195#       发表于 2024-3-4 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64142099&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-4 14:28</a>
+仅说破甲的话还是消耗性筒子好，方便，无后坐力炮占用一个背包位，和消耗性筒子做一样的事
+
+然后是对抗强 ...</blockquote>
+嗷嗷，回去试试
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

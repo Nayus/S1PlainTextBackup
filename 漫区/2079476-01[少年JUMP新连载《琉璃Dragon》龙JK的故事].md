@@ -14,3 +14,14 @@
 
 会有这种矛盾才正常，不然简直像天国了。
 
+
+*****
+
+####  Garterbelt  
+##### 134#       发表于 2024-3-4 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64137219&amp;ptid=2079476" target="_blank">modkingr 发表于 2024-3-4 04:56</a>
+
+会有这种矛盾才正常，不然简直像天国了。</blockquote>
+之前不也有一个表示害怕琉璃不想一起吃午饭的同学吗，正常啦
+

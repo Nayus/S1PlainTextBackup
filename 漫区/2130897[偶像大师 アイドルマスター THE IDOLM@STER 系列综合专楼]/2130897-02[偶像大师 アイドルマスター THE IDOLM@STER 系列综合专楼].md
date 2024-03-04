@@ -4946,3 +4946,15 @@ asobi売り筋排行没跟，这个等个有发言权的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">铁血百友？铁血百黑！
 
+
+*****
+
+####  安广多惠子  
+##### 2007#       发表于 2024-3-4 08:06
+
+百这种摸着灰过河而且出生目的就是干掉灰的企划生来就是要和灰打到入土的命
+也别以为和闪就相处融洽了，在万代让闪剧场先行撞百tv放送加率先宣布二期的精彩操作下恨得牙都痒，也就安慰下自己近期郎报多不计较了，再说闪自己商业成绩也差点意思<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+当然从旁观者的角度来看捆起来都打不过pjsk的几个玩意还在那内斗，闹麻了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

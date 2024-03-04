@@ -5570,3 +5570,49 @@ mio和柏木翼也不是黄毛啊
 所以学马仕PV那位其实就是普罗丢瑟？</blockquote>
 穿过膝白袜披粉色外套梳红色卷毛的未成年普罗丢瑟…还挺色的（
 
+
+*****
+
+####  舆水沉浮  
+##### 2069#       发表于 2024-3-4 19:57
+
+<img src="https://img.saraba1st.com/forum/202403/04/195645rrr66r6ud8j8ah78.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240304195625.png</strong> (20.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202403/04/195645dzy17wsbs4op4qol.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240304195607.png</strong> (8.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 19:56 上传
+
+主要我觉得，PV里这位和公布的红色剪影不是很像
+
+<img src="https://img.saraba1st.com/forum/202403/04/195645n0cvzvjnejv0e0pt.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240304195631.jpg</strong> (21.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 19:56 上传
+
+这位黑色系的，又感觉是校长（社长）之类的，所以PV这位是普罗丢瑟的可能性很大吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 殿珣| + 2|这种事情，不要啊|
+
+查看全部评分
+

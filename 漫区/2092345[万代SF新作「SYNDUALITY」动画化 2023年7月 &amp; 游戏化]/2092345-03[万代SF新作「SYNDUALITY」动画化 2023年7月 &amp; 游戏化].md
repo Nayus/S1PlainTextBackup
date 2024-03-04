@@ -3649,3 +3649,11 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 急急急急急，现在好期待后面的展开啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 4152#       发表于 2024-3-4 22:11
+
+ＳＹＮＤＵＡＬＩＴＹ　Ｎｏｉｒ《22話》Gravity　coffin
+

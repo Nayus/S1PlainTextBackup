@@ -11686,3 +11686,14 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 周末用喷火器高强度拷打了两天虫子，发现这东西其实被**低估了，首先是清理跳虫和喷毒小虫效率极高，扣着扳机左摇杆转半圈就行，然后就是杀牛速度很快，感觉这东西其实是个带贯穿的近距离机枪，喷射的火焰伤害很高而且能贯穿，不知为啥还能破牛的腿甲，如果牛站着不动的话半罐火就能喷死牛，牛冲锋的时候对着喷也能打个差不多，主要问题就是两个，一个是完全打不了泰坦，第二是打大的喷毒虫效率极低
 
+
+*****
+
+####  Launce  
+##### 1175#       发表于 2024-3-4 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139390&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-4 10:56</a>
+
+周末用喷火器高强度拷打了两天虫子，发现这东西其实被**低估了，首先是清理跳虫和喷毒小虫效率极高，扣着扳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DOT无视护甲，所以伤害其实挺低的，坦克虫就吃亏在腿血少
+

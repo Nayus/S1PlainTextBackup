@@ -105,3 +105,13 @@ DLC和现在你玩的steam版一样是个重置版
 
 刚开始玩了正常过剧情通关做成就，结果差了正太和凯撒戒，然后开了第二个荒谬档又刷了一遍，有基础的情况下荒谬其实也挺爽，晶体实在多过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tansapple  
+##### 4074#       发表于 2024-3-4 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139803&amp;ptid=2098044" target="_blank">Yinacona 发表于 2024-3-4 11:21</a>
+打到新章了，海蛇洞那里穿越回过去都已经是修女神父被控之后了，也就是说他俩只能走be吗？ ...</blockquote>
+新章里记得是能救的都救了，新章里的第四章记得是直接穿回到神父和修女上岛之前，打完蛇神回村里能见到正常的神父和修女。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

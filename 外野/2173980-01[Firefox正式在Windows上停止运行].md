@@ -640,3 +640,11 @@ firefox的一个分发版
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  从甲午到鸡鸡  
+##### 50#       发表于 2024-3-4 19:04
+
+edge和chrome还有滚轮切换标签的插件么。被国产调教回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

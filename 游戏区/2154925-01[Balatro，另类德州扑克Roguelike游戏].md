@@ -5412,3 +5412,27 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 可以用匕首啃永恒鸡蛋吗</blockquote>
 匕首啃不了永恒
 
+
+*****
+
+####  bakabaka999  
+##### 479#       发表于 2024-3-4 19:10
+
+<img src="https://img.saraba1st.com/forum/202403/04/190914h4jhq1k4ij3ko3js.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (477.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 19:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/04/190923lrjgtf3yrn8k8jnf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (383.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 19:09 上传
+
+爽局，离彻底糊胡差一张人脸触发两次，倒在 e17 了
+

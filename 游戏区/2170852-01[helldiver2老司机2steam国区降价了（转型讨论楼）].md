@@ -11976,3 +11976,17 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 火焰喷射器但凡带一点控制都不至于没人用，直伤伤害是有的，但短手无控纯纯是跟虫子近身肉搏。
 
+
+*****
+
+####  Anhydrite  
+##### 1202#       发表于 2024-3-4 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141678&amp;ptid=2170852" target="_blank">RockingHorse 发表于 2024-3-4 13:57</a>
+电弧枪我觉得是开火车神器
+
+话说谁知道喷气背包的失重成就怎么做？直接喷的高度太低了，我从小坡上下跳下来 ...</blockquote>
+照着轨道激光跳，或者500kg爆炸时候飞它上面被炸飞就行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -298,3 +298,14 @@ flip订了8840的版本，主要是不想再要个7840的机器（马甲就马�
 
 果然是win下的fsr3正常，我deck oled跑fsr3卡的不行
 
+
+*****
+
+####  bypass  
+##### 1134#         楼主| 发表于 2024-3-4 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64144808&amp;ptid=2086469" target="_blank">任天索尼子 发表于 2024-3-4 17:52</a>
+
+现在的WIN掌机都能一键休眠了吧应该 我买的飞行家好像就行</blockquote>
+我用休眠（Hibernate）印象中没遇到过什么问题，但是看别人说睡眠（Sleep）很容易睡死唤醒不了，我自己倒是没怎么试过。
+

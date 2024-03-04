@@ -3925,3 +3925,37 @@ your song 古贺葵版
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cybernetics31  
+##### 4185#       发表于 2024-3-4 23:56
+
+青山渚solo版，古贺葵solo版，合唱版，可真有你的啊万代
+
+*****
+
+####  novyDC  
+##### 4186#       发表于 2024-3-4 23:58
+
+随着玛利亚的火箭完成，彼方他们终于可以朝着希斯特瓦出发了。但是维斯海特也为了阻止彼方他们，夺取蜜丝缇儿，发动了理想乡全部的兵力。石头镇的全部漂流者与理想乡战斗的序幕终于拉开了
+
+下集就开战呢
+
+*****
+
+####  765事务所  
+##### 4187#       发表于 2024-3-5 00:00
+
+怎么连猛干语录都来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  6030sylar  
+##### 4188#       发表于 2024-3-5 00:03
+
+万南这几年拍的什么勾史
+

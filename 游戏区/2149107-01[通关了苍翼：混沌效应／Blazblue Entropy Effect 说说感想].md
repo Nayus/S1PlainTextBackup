@@ -148,3 +148,11 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 
 我的答案是——对不起，GG已经找回自我，BB代餐一个；已经到此为止的玩意儿，出ACT都是人家先，李超狼在三岛家都比你待遇高。人中龙凤怎么能开BB这种二档——不对，这么大手，应该直接搞SMASH BROs.<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 139#       发表于 2024-3-5 00:02
+
+不知道日厂爱不爱卖 IP，万代和世嘉手上有一堆当年小弟们留下的二次元 IP 尸体呢
+

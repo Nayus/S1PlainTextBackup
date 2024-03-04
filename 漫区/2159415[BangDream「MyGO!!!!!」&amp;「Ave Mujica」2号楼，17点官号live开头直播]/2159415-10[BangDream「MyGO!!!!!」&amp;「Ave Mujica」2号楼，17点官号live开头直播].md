@@ -6691,3 +6691,13 @@ Mujica的话EP吉他担当是潜在表明的作编曲铃木裕明，但后面两
 
 前提是武士道真的重视动画的宣传作用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 13898#       发表于 2024-3-4 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">一大早上班路上听着黑色生日然后过了个大坑，不知道咋的胎扎漏了胎肩的位置先补了试试，不知道还能不能开
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

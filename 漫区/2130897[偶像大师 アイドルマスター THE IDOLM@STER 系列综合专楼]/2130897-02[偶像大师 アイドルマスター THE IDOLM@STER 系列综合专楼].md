@@ -5099,3 +5099,11 @@ asobi売り筋排行没跟，这个等个有发言权的
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  田所あずさ  
+##### 2022#       发表于 2024-3-4 12:45
+
+隔壁初代老害本来就有很大一部分在fl之后就过来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

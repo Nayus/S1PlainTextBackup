@@ -6676,3 +6676,18 @@ Mujica的话EP吉他担当是潜在表明的作编曲铃木裕明，但后面两
 之前还在想为什么不放十月播 原来是早就私下通好气错开档期了</blockquote>
 这个有消息来源吗
 
+
+*****
+
+####  rslika  
+##### 13897#       发表于 2024-3-4 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139807&amp;ptid=2159415" target="_blank">佟柚子 发表于 2024-3-4 11:21</a>
+
+这个有消息来源吗</blockquote>
+瞎猜的
+
+万南两个2.5次元偶像动画都在10月播，所以要和同赛道作品错开。
+
+前提是武士道真的重视动画的宣传作用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

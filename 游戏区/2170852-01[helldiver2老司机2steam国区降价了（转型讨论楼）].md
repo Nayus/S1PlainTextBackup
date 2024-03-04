@@ -11757,3 +11757,38 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 1182#       发表于 2024-3-4 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139641&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-4 11:11</a>
+
+DOT无视护甲，所以伤害其实挺低的，坦克虫就吃亏在腿血少</blockquote>
+不用dot那两毛五伤害，主要是火焰伤害高
+
+*****
+
+####  smdzh2  
+##### 1183#       发表于 2024-3-4 12:33
+
+跑图实在太累了，我需要庄家车和机甲<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddwhzh  
+##### 1184#       发表于 2024-3-4 12:34
+
+该加入飞行器了
+
+*****
+
+####  赤井稻妻  
+##### 1185#       发表于 2024-3-4 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139833&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-3-4 11:23</a>
+
+喷火器手短没踉跄，燃烧地面还封走位，爆发也不够（烧不死追踪虫），容错率有点低了，而且也没法支援队友 ...</blockquote>
+喷火器定位和电弧枪类似了，都是拿来清理大量小虫子的武器，多一个杀牛的功能，少一个补泰坦的功能
+

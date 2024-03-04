@@ -5077,3 +5077,15 @@ asobi売り筋排行没跟，这个等个有发言权的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  花开安菲路  
+##### 2020#       发表于 2024-3-4 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64140569&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-3-4 12:15</a>
+别尬黑，小红的视频我看到都会点一点给她加点播放量的</blockquote>
+三人都只有2w左右订阅，不引流的话上限卡死了。
+不过粉丝付费率和活跃率挺高，红蓝同接平时700左右，黄毛较低，如果不是顶着爱马仕的招牌，一年不到这成绩应该还行，比很多10w+粉的收益都高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+看后续万南怎么操作引流吧，另外吃鸡感觉纯属噱头，三人一个都不会被抛弃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

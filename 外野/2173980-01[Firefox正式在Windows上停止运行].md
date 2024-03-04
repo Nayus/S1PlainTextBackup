@@ -656,3 +656,20 @@ edge和chrome还有滚轮切换标签的插件么。被国产调教回不去了<
 
 我用火狐只是因为他 ctrl+T 是在当前标签右边新建标签，chrome 实现这功能还要装扩展，键位也是 alt+T，太变扭所以不用
 
+
+*****
+
+####  白昼梦  
+##### 52#       发表于 2024-3-4 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64145503&amp;ptid=2173980" target="_blank">从甲午到鸡鸡 发表于 2024-3-4 19:04</a>
+edge和chrome还有滚轮切换标签的插件么。被国产调教回不去了</blockquote>
+下个windhawk，有chrome上的滚轮翻标签页扩展
+
+*****
+
+####  Kakaru  
+##### 53#       发表于 2024-3-4 19:57
+
+我的firefox被我不知道怎么设置的，经常有些网页的验证图片刷不出来，一些视频刷不出来或者网页无法登录。但我宁可遇到这种网页再去开chrome也不愿放弃firefox。chrome内核对隐私的保护基本不存在，毕竟保护了隐私，它还怎么收集数据推广告。
+

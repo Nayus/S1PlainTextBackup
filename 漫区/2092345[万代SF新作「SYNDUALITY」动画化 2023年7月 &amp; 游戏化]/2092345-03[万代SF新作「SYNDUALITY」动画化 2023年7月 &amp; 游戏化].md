@@ -4046,3 +4046,21 @@ your song 古贺葵版
 
 爆金币爆身体爆粉丝爆歌曲咯，同意捐献
 
+
+*****
+
+####  没取名啊  
+##### 4196#       发表于 2024-3-5 01:21
+
+<img src="https://p.sda1.dev/16/02522537995d68a4e682154af230a8a6/CMP_20240305012144217.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NeloAngelo  
+##### 4197#       发表于 2024-3-5 01:23
+
+一定要分锅吗… 也可以都是战犯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

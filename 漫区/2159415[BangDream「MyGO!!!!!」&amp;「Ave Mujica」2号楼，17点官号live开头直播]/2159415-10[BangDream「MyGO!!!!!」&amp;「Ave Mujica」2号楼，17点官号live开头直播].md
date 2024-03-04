@@ -6860,3 +6860,18 @@ NGA本来就是中午互联网下水道，化粪池能起到收集排泄物不�
 [https://g.nga.cn/read.php?tid=36 ... #pid746280613Anchor](https://g.nga.cn/read.php?tid=36692529&amp;page=3572#pid746280613Anchor)
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 13913#       发表于 2024-3-5 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64142766&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-3-4 15:17</a>
+
+拿到了卡片所以掃了。
+
+這印刷的品質難評，雖然是PR卡也不能要求更多 
+
+這卡圖真的不會出其他商品嗎 ...</blockquote>
+我这有两张，塑封都没拆，还在想怎么装饰一下<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

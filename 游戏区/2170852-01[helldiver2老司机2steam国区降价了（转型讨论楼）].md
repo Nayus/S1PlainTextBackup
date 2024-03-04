@@ -12045,3 +12045,11 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 校验一下文件发现有损坏，不知道是 ...</blockquote>
 别开减速器，谁开谁连不上
 
+
+*****
+
+####  kalavinka  
+##### 1209#         楼主| 发表于 2024-3-5 00:39
+
+服务器又坏起来了，今天不是丢包就是掉线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

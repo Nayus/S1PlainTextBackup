@@ -11697,3 +11697,41 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 周末用喷火器高强度拷打了两天虫子，发现这东西其实被**低估了，首先是清理跳虫和喷毒小虫效率极高，扣着扳 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DOT无视护甲，所以伤害其实挺低的，坦克虫就吃亏在腿血少
 
+
+*****
+
+####  Mr.Hopp  
+##### 1176#       发表于 2024-3-4 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139390&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-4 10:56</a>
+
+周末用喷火器高强度拷打了两天虫子，发现这东西其实被**低估了，首先是清理跳虫和喷毒小虫效率极高，扣着扳 ...</blockquote>
+效率极高，但挡不住对方跳脸。
+
+*****
+
+####  ナルバレック  
+##### 1177#       发表于 2024-3-4 11:15
+
+今天STEAM峰值还有40万来着，有点意外，这周游玩体验比之前进步不少了
+
+
+*****
+
+####  WGTCorp  
+##### 1178#       发表于 2024-3-4 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139390&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-4 10:56</a>
+周末用喷火器高强度拷打了两天虫子，发现这东西其实被**低估了，首先是清理跳虫和喷毒小虫效率极高，扣着扳 ...</blockquote>
+喷火器手短没踉跄，燃烧地面还封走位，爆发也不够（烧不死追踪虫），容错率有点低了，而且也没法支援队友。
+
+*****
+
+####  Launce  
+##### 1179#       发表于 2024-3-4 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139718&amp;ptid=2170852" target="_blank">ナルバレック 发表于 2024-3-4 11:15</a>
+
+今天STEAM峰值还有40万来着，有点意外，这周游玩体验比之前进步不少了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的吗，高难现在贵物多了，体验更差了
+

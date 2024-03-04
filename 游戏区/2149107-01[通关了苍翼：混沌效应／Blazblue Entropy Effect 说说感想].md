@@ -55,3 +55,18 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，比如圣灵之心剧情模式最后需要拆的那玩意儿，还 ...</blockquote>
 全是奶哪有BB当年的人气。全盛期都只能算三线吧。
 
+
+*****
+
+####  ronac  
+##### 133#       发表于 2024-3-4 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139585&amp;ptid=2149107" target="_blank">Tring 发表于 2024-3-4 11:08</a>
+
+全是奶哪有BB当年的人气。全盛期都只能算三线吧。</blockquote>
+没人气才好捡漏啊，当年众筹才搞到30w刀多一点
+
+比较正经的全女格斗，角色设定明确、世界观自由发挥空间大又不用考虑太多
+
+你看CAVE堕入手游苦界之后出的手游不就是一水美少女，从自社作品到代工东方，倒是绊地狱那种耽美基佬发癫IP么……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

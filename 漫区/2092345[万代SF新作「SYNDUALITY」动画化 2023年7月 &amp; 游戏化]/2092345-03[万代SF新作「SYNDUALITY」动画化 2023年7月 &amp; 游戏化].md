@@ -4038,3 +4038,11 @@ your song 古贺葵版
 [https://youtu.be/qi11TlXJio8](https://youtu.be/qi11TlXJio8)
 [https://youtu.be/mrHa7wrVCyY](https://youtu.be/mrHa7wrVCyY)
 
+
+*****
+
+####  wolf1997  
+##### 4195#       发表于 2024-3-5 01:10
+
+爆金币爆身体爆粉丝爆歌曲咯，同意捐献
+

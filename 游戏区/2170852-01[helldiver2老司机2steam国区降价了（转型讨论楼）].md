@@ -11945,3 +11945,13 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 瞄腿一炮就可以穿强袭虫甲，然后换主手补刀
 
+
+*****
+
+####  WGTCorp  
+##### 1199#       发表于 2024-3-4 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141899&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-4 14:12</a>
+dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，得把火焰对着目标喷，体感dps和重机枪差不多，泰 ...</blockquote>
+喷火器盯着同一条腿烧，大概半罐燃料能烧死，速度其实还可以，不比磁轨炮破甲再换连喷断腿慢多少。
+

@@ -5402,3 +5402,65 @@ plove是plove
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rgauss  
+##### 2054#       发表于 2024-3-4 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64145587&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-4 19:13</a>
+
+等等，信号灯剪影出来了，那pv那个久美子是谁，发型对不上啊
+
+—— 来自 OnePlus PGKM10, Android 13上的 S ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">偶像就不能变发型吗 发型岂是如此不变之物
+
+*****
+
+####  ViviR  
+##### 2055#       发表于 2024-3-4 19:15
+
+蓝色是安定的长直，红色挺新鲜的。黄色这麻花辫…不好评价
+
+*****
+
+####  Srchy  
+##### 2056#       发表于 2024-3-4 19:16
+
+<img src="https://img.saraba1st.com/forum/202403/04/191522xnlbbaca9jj52nny.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0777.jpeg</strong> (58.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 19:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么中专杀马特
+
+
+*****
+
+####  Unlight  
+##### 2057#         楼主| 发表于 2024-3-4 19:21
+
+苍系祖传长直发
+
+红系看着双缎带
+
+那么黄系——寄
+
+*****
+
+####  Alicest  
+##### 2058#       发表于 2024-3-4 19:23
+
+既视感
+
+<img src="https://img.saraba1st.com/forum/202403/04/192350kr9csee2c7r7epwa.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (118.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 19:23 上传
+

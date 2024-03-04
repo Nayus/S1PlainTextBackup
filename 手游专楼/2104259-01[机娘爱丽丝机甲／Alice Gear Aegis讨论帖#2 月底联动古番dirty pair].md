@@ -165,3 +165,16 @@
 
 尼克尔一星剧情就已经接上最新主线剧情了而且是在中东前线指挥。既然cos皇帝这么卖力一定会给她安排一个滑铁卢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 958#       发表于 2024-3-4 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64124308&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-3-2 14:57</a>
+
+动画版活动复刻，高幡又要被卡车撞了
+
+尼克尔一星剧情就已经接上最新主线剧情了而且是在中东前线指挥。既然c ...</blockquote>
+英国人：轮到我了，我一定不会让皇帝失望的呀～
+

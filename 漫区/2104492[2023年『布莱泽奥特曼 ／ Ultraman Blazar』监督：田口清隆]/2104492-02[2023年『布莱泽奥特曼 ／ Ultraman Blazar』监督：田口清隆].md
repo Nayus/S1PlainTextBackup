@@ -8,3 +8,15 @@
 
 50米确定不是银魂的梗么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星火龙  
+##### 1833#       发表于 2024-3-4 13:59
+
+【双语字幕】这才是布莱泽剧场版的真正结局！剧场版后日谈广播剧 前篇《首都直下击灭作战》
+[https://b23.tv/P5lmUa1](https://b23.tv/P5lmUa1)
+
+【双语字幕】这才是布莱泽剧场版的真正结局！剧场版后日谈广播剧 后篇《SKaRD的烟熏火燎之夜》
+[https://b23.tv/EcwU8hb](https://b23.tv/EcwU8hb)
+

@@ -11803,3 +11803,46 @@ DOT无视护甲，所以伤害其实挺低的，坦克虫就吃亏在腿血少</
 真的吗，高难现在贵物多了，体验更差了</blockquote>
 只说虫子难度9的话体验很好，基本上都是公园散步，基本上大家也都会玩了，难度低一点就不好说了
 
+
+*****
+
+####  RockingHorse  
+##### 1187#       发表于 2024-3-4 13:57
+
+电弧枪我觉得是开火车神器
+
+话说谁知道喷气背包的失重成就怎么做？直接喷的高度太低了，我从小坡上下跳下来都不行。难道要从防守图最高点跳吗
+
+
+*****
+
+####  Launce  
+##### 1188#       发表于 2024-3-4 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64140759&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-4 12:31</a>
+
+不用dot那两毛五伤害，主要是火焰伤害高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">火焰燃烧就是无视虫子甲的，所以能把坦克虫烧断腿，泰坦因为血厚，好像要2罐左右
+
+*****
+
+####  赤井稻妻  
+##### 1189#       发表于 2024-3-4 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141678&amp;ptid=2170852" target="_blank">RockingHorse 发表于 2024-3-4 13:57</a>
+
+电弧枪我觉得是开火车神器
+
+话说谁知道喷气背包的失重成就怎么做？直接喷的高度太低了，我从小坡上下跳下来 ...</blockquote>
+要在空中被炮击的冲击力震飞，我是朋友帮我做的，飞起来的时候队友拿一次性筒子炸附近的地形，一个人的话在机器人的任务里被火箭弹仙人炸到应该也是一样的，要注意的是直接被炸死好像是不算的，可以穿民主忽悠甲试试
+
+*****
+
+####  RockingHorse  
+##### 1190#       发表于 2024-3-4 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141792&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-4 14:05</a>
+
+要在空中被炮击的冲击力震飞，我是朋友帮我做的，飞起来的时候队友拿一次性筒子炸附近的地形，一个人的话 ...</blockquote>
+那这个时间还挺难算的。。喷上去感觉滞空时间也就1秒
+

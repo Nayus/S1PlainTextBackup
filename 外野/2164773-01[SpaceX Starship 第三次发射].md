@@ -14,3 +14,43 @@
 
 2024-3-2 12:29 上传
 
+
+*****
+
+####  commcody  
+##### 138#         楼主| 发表于 2024-3-5 06:04
+
+当地时间3月3日晚上，B10 + S28组合体完成了湿彩排，总共加注了超过1000万磅推进剂。彩排进行至倒计时10秒。
+
+<img src="https://img.saraba1st.com/forum/202403/05/060306kaqpakyks7qn2usb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3991.jpeg</strong> (559.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 06:03 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/060306ttr8ci8v5t8pvsyr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3992.jpeg</strong> (577.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 06:03 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/060307lxux1mpdwbumm9b7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3994.jpeg</strong> (851.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 06:03 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/060307txpke0jxapa0svav.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3995.jpeg</strong> (434.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 06:03 上传
+

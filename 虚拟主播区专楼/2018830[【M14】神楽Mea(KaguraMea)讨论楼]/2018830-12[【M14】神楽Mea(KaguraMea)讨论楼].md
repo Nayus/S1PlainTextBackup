@@ -455,3 +455,14 @@ test</blockquote>
 
 想听你麻翻唱go团曲
 
+
+*****
+
+####  ashero  
+##### 16356#       发表于 2024-3-4 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64142044&amp;ptid=2018830" target="_blank">呓亘 发表于 2024-3-4 14:23</a>
+最近看mygo看上头了，不知你麻在BS是什么样的形象，是爱音那样行动力拉满的角色，还是soya那种温柔包容的呢 ...</blockquote>
+传说是某人先退 她拉回来一次然后一起退了 然后就是v生开始了 
+至于会不会唱go 评价是不太可能主播一来不看百合番二来不会蹭热度
+

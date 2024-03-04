@@ -5313,3 +5313,44 @@ plove是plove
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2046#       发表于 2024-3-4 18:28
+
+<img src="https://p.sda1.dev/16/87b714193c6be9c9a96cccfcf73be1ce/CMP_20240304182736780.jpg" referrerpolicy="no-referrer">
+学园长吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Alicest  
+##### 2047#       发表于 2024-3-4 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64144148&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2024-3-4 16:59</a>
+
+plove是plove 
+
+但是闪p很帅 而且感觉x上能见到的闪p粉里女性不少</blockquote>
+动画闪p已经是最不好看的了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">双开门变成了娘娘腔，除了痣大家都不买账
+
+
+*****
+
+####  冰寒之月  
+##### 2048#       发表于 2024-3-4 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64145172&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-3-4 18:29</a>
+
+动画闪p已经是最不好看的了[ ...</blockquote>
+还是迷光漫画里的帅
+
+*****
+
+####  rgauss  
+##### 2049#       发表于 2024-3-4 18:34
+
+觉得sc没厕的建议多上微博和小红书
+

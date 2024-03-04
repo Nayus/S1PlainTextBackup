@@ -5399,3 +5399,16 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  Cirle  
+##### 478#       发表于 2024-3-4 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64144762&amp;ptid=2154925" target="_blank">伊布桑 发表于 2024-3-4 17:48</a>
+
+永恒debuff怎么利用？我只看过b站有个视频是两张永恒疯狂互啃乱杀
+
+可以用匕首啃永恒鸡蛋吗</blockquote>
+匕首啃不了永恒
+

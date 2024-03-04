@@ -759,3 +759,11 @@ OK我研究一下<img src="https://static.saraba1st.com/image/smiley/face2017/05
 
 （暴怒强化...感觉魔弹奥的定位更尴尬了，除非以后推单色罪孽队，能和船玛金锁啥的一起上场....）
 
+
+*****
+
+####  erratic璃月  
+##### 582#       发表于 2024-3-4 21:07
+
+pv里良秀对吃的热情不怎高但技能组里有暴食，罗小姐一阵狂吃却没有暴食技能，怪哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

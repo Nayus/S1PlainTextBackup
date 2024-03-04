@@ -5272,3 +5272,13 @@ plove是plove
 
 厕不厕不知道，不过女粉确实不少。之前官方四格有一集ash被误会有在圆角，这一集在微博被炎上了一波
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2041#       发表于 2024-3-4 17:41
+
+之前一线传来消息sc动画没卖plove卖的p天，我记得微博是不是有人弹冠相庆来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -72,3 +72,18 @@
 
 何必坐牢呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 4071#       发表于 2024-3-4 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64140402&amp;ptid=2098044" target="_blank">christiny 发表于 2024-3-4 12:02</a>
+
+为什么都喜欢上来就玩地狱，正常难度，17小时已经结局了，快的已经白金了。
+
+何必坐牢呢 ...</blockquote>
+因为原版就是加1级难度开始刷的
+
+而且看加难度有更多点数和钱回报<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

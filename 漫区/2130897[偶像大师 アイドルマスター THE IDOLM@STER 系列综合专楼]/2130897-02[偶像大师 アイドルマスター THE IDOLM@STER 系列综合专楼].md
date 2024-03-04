@@ -5047,3 +5047,33 @@ asobi売り筋排行没跟，这个等个有发言权的
 —— 来自 S1Fun</blockquote>
 在土豆没有氪金活动的二月收入五五开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 2017#       发表于 2024-3-4 12:15
+
+别尬黑，小红的视频我看到都会点一点给她加点播放量的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 2018#       发表于 2024-3-4 12:17
+
+我是管马仕新晋粉丝捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+曾经幻想过百灰闪三家各分一个算了，
+现在有了学马仕，不如开了直接转学加入，正好新作也没什么粉丝基础，不会有老登抱怨<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安广多惠子  
+##### 2019#       发表于 2024-3-4 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64140368&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-3-4 11:59</a>
+学要是资源拉满而且小火，灰百相继被噶嗝屁，估计过两年就能看到灰百围攻学了
+当然我觉得前半条件不 ...</blockquote>
+想多啦，学能和莲五五开就算赢了好吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

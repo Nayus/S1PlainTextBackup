@@ -5159,3 +5159,21 @@ Pjsk这么能打的吗？</blockquote>
 
 烤是真的要氪金抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hinarin  
+##### 2029#       发表于 2024-3-4 13:18
+
+烤批顶多和es或者全盛期的烧笋比划 游戏外真不咋地 小鬼爆米能力有限<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 2030#       发表于 2024-3-4 13:24
+
+25时全员搬来学我觉得可以，c就铃木绿好了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

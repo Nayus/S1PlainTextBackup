@@ -11667,3 +11667,14 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 和朋友玩都要带个反步兵地雷贪个友军伤害。</blockquote>
 要毛友伤不如带380（
 
+
+*****
+
+####  pmoe  
+##### 1173#       发表于 2024-3-4 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64138526&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-3-4 09:49</a>
+
+要毛友伤不如带380（</blockquote>
+自己走上去的和被炸的不是一回事<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -156,3 +156,40 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 
 不知道日厂爱不爱卖 IP，万代和世嘉手上有一堆当年小弟们留下的二次元 IP 尸体呢
 
+
+*****
+
+####  Tring  
+##### 140#       发表于 2024-3-5 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64148006&amp;ptid=2149107" target="_blank">ronac 发表于 2024-3-4 23:56</a>
+
+说个设想看把孩子急得
+
+也不是铁粉也爱发电也不是做慈善，那我的建议是上来就直接原创喽，点阵绘动 ...</blockquote>
+什么粉圈话术？
+
+先是你急了起手，
+
+然后接不管我家哥哥怎样，你家哥哥就是菜。
+
+没想到这么个玩意国内也能有这种脑残铁粉，世界之大确实无奇不有。
+
+*****
+
+####  ronac  
+##### 141#       发表于 2024-3-5 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64148198&amp;ptid=2149107" target="_blank">Tring 发表于 2024-3-5 00:18</a>
+
+什么粉圈话术？
+
+先是你急了起手，
+
+然后接不管我家哥哥怎样，你家哥哥就是菜。</blockquote>
+噗噗，我甚至都不想点评你话里的回旋镖了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+手游版有跟麻辣血海深仇的末法时代哥，我们游戏版当然也要有自己的B数哥<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+再不多说，谁像粉圈宝宝让大家点评咯<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

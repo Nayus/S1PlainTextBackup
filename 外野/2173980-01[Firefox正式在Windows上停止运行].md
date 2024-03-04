@@ -766,3 +766,15 @@ firefox图标是狐狸
 小浣熊干脆面封面是小熊猫</blockquote>
 图一是什么品种的狐狸？这耳朵好大，好可爱
 
+
+*****
+
+####  fuckingworld  
+##### 63#       发表于 2024-3-5 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64147295&amp;ptid=2173980" target="_blank">Hieda 发表于 2024-3-4 22:36</a>
+火狐的tridactyl是天国的vimperator/pentadactyl之后做得最像样的vimlike扩展，光这点我就不可能放弃火狐[f ...</blockquote>
+我当年甚至自己给vimperator翻译过中文帮助文档，但是一直没发布出去。当时觉得vimperator实在太好用了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

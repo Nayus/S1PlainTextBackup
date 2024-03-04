@@ -3774,3 +3774,76 @@ your song 古贺葵版
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NeloAngelo  
+##### 4167#       发表于 2024-3-4 23:27
+
+你不会觉得很感人⑧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyDC  
+##### 4168#       发表于 2024-3-4 23:27
+
+大哥你又跑路了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  没取名啊  
+##### 4169#       发表于 2024-3-4 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YetToCome  
+##### 4170#       发表于 2024-3-4 23:27
+
+甚至还有CD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  约翰里德  
+##### 4171#       发表于 2024-3-4 23:27
+
+死透咧，活不了了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Freakyyu  
+##### 4172#       发表于 2024-3-4 23:28
+
+我在想这出戏不会是给古贺葵歌手出道铺路吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  何处分可  
+##### 4173#       发表于 2024-3-4 23:30
+
+-2吧，没救了
+
+*****
+
+####  natmk  
+##### 4174#       发表于 2024-3-4 23:33
+
+这片子人气角色死透了还要鞭尸卖歌太幽默了
+
+*****
+
+####  污陨血红  
+##### 4175#       发表于 2024-3-4 23:33
+
+这鞭尸鞭的真彻底<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">杀人诛心啊
+

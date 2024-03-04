@@ -12030,3 +12030,18 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 突然又有日常了，但是飞鹰机枪100杀
 
+
+*****
+
+####  FLZB  
+##### 1208#       发表于 2024-3-4 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64146590&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-3-4 21:16</a>
+
+今天不知怎么又连不上了，明明前几天都还正常的
+
+----------------------
+
+校验一下文件发现有损坏，不知道是 ...</blockquote>
+别开减速器，谁开谁连不上
+

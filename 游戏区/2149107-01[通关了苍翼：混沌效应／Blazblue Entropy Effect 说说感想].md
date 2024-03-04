@@ -128,3 +128,23 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 
 至于BB，当然算不上什么大IP。但国内知道BB的玩家比知道全是奶的多多少，没点B数？
 
+
+*****
+
+####  ronac  
+##### 138#       发表于 2024-3-4 23:56
+
+ 本帖最后由 ronac 于 2024-3-4 23:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64145290&amp;ptid=2149107" target="_blank">Tring 发表于 2024-3-4 18:41</a>
+
+？？？
+
+那你说说，花钱去联动一个国内大部分玩家听都没听过，风格还过气了十几年的IP，还要花精力去运营， ...</blockquote>
+说个设想看把孩子急得<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+也不是铁粉也爱发电也不是做慈善，那我的建议是上来就直接原创喽，反正有钱又有运营能力绝不倒闭，那一定赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+“国内知道BB的玩家比知道全是奶的多多少，没点B数”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+我的答案是——对不起，GG已经找回自我，BB代餐一个；已经到此为止的玩意儿，出ACT都是人家先，李超狼在三岛家都比你待遇高。人中龙凤怎么能开BB这种二档——不对，这么大手，应该直接搞SMASH BROs.<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

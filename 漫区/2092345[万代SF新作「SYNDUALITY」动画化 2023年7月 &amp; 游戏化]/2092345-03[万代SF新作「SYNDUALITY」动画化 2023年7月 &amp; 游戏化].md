@@ -3857,3 +3857,71 @@ your song 古贺葵版
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cazedor  
+##### 4177#       发表于 2024-3-4 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都怪你们让鸭志田少玩点XB2，所以鸭志田整烂活了吧
+
+*****
+
+####  cybernetics31  
+##### 4178#       发表于 2024-3-4 23:47
+
+三次元卖歌也要靠我青山姐………………负2，没商量的
+
+*****
+
+####  NeloAngelo  
+##### 4179#       发表于 2024-3-4 23:47
+
+我不能理解, 怎么总是有这种反人类的作者.  他到底是怎么想的才会写出这种烂活.   明明复活的气氛都到这了.  到底是什么脑回路, 让他一定要把死人进行到底?
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  765事务所  
+##### 4180#       发表于 2024-3-4 23:49
+
+不要怕，是技术性调整，虽然谢尔股已经跌停了，名字前都可以冠“ST”了，毕竟还有几集没播完，不到最后时刻，还有机会不退市<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Grahamlinks  
+##### 4181#       发表于 2024-3-4 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Boliva  
+##### 4182#       发表于 2024-3-4 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64147943&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-3-4 23:47</a>
+
+我不能理解, 怎么总是有这种反人类的作者.  他到底是怎么想的才会写出这种烂活.   明明复活的气氛都到这了. ...</blockquote>
+我写不出鲁路修，写个最王冠还是有本事的~<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cazedor  
+##### 4183#       发表于 2024-3-4 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64147943&amp;ptid=2092345" target="_blank">NeloAngelo 发表于 2024-3-4 23:47</a>
+
+我不能理解, 怎么总是有这种反人类的作者.  他到底是怎么想的才会写出这种烂活.   明明复活的气氛都到这了. ...</blockquote>
+鸭志田：看着观众们为鞭尸歌姬的剧情尖叫抓挠真的太快乐了。一个不受太多制约的编剧真是最快乐的职业呼哈哈哈。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  novyDC  
+##### 4184#       发表于 2024-3-4 23:55
+
+不会一首歌三个版本吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

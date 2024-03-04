@@ -1432,3 +1432,11 @@ Bandai Namco发布旗下机甲动作游戏《奇异贤伴 爱达之歌》最新�
 <img src="https://p.sda1.dev/16/4a6b074a60bedf7f3993de91872e11ad/20240305_004931.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/6fa4b6af7d8632dcfd5f66d7a2757cd9/img_mv.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗日生化体  
+##### 140#       发表于 2024-3-5 02:05
+
+动画倒是不错
+

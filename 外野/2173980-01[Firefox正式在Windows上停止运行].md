@@ -578,3 +578,14 @@ tabmixplus死了后就放弃了，至今没有平替
 
 效果图
 
+
+*****
+
+####  nexus1  
+##### 44#       发表于 2024-3-4 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64138985&amp;ptid=2173980" target="_blank">fredfei 发表于 2024-3-4 10:25</a>
+
+tabmixplus死了后就放弃了，至今没有平替</blockquote>
+同,生态变差了我也没办法
+

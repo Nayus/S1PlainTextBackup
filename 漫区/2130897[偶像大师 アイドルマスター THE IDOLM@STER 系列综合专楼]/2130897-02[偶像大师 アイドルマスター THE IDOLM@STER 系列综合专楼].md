@@ -5125,3 +5125,37 @@ asobi売り筋排行没跟，这个等个有发言权的
 也别以为和闪就相处融洽了，在 ...</blockquote>
 Pjsk这么能打的吗？
 
+
+*****
+
+####  田所あずさ  
+##### 2025#       发表于 2024-3-4 13:12
+
+日本原神和你开玩笑的？
+
+*****
+
+####  Anatoly  
+##### 2026#       发表于 2024-3-4 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141025&amp;ptid=2130897" target="_blank">倒映在瞳中 发表于 2024-3-4 12:58</a>
+
+Pjsk这么能打的吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你捆上拉和邦都够呛打得过好吧
+
+比手游那才是真的异次元
+
+*****
+
+####  cckuku  
+##### 2027#       发表于 2024-3-4 13:14
+
+手游营收上pjsk能把拉邦爱拉一起a了。
+
+*****
+
+####  Alicest  
+##### 2028#       发表于 2024-3-4 13:16
+
+烤是真的要氪金抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -694,3 +694,16 @@ chrome有病 没有离线安装包</blockquote>
 
 电脑手机都是火狐，没遇到过什么问题
 
+
+*****
+
+####  HDRorz  
+##### 56#       发表于 2024-3-4 21:31
+
+firefox好文明，chrome坏文明。
+chrome/v8里new Date("2023-2-29")得到的是2023-03-01
+firefox里是 Invalid Date
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

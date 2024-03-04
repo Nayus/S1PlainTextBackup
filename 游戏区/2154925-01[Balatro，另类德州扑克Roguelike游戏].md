@@ -5348,3 +5348,17 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 当然这游戏傻逼的地方就出来了，战力高一回合就打死了，想刷buff都没办法
 
+
+*****
+
+####  a4ac7  
+##### 474#       发表于 2024-3-4 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139572&amp;ptid=2154925" target="_blank">月亮与五块钱 发表于 2024-3-4 11:07</a>
+所有牌视为人头牌+人头牌打出变金牌+吸血鬼，喜欢我一回合涨几倍吗？
+
+当然这游戏傻逼的地方就出来了，战 ...</blockquote>
+需要加个手动锁小丑牌的操作<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

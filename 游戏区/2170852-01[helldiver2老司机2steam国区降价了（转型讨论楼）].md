@@ -11735,3 +11735,11 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 今天STEAM峰值还有40万来着，有点意外，这周游玩体验比之前进步不少了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的吗，高难现在贵物多了，体验更差了
 
+
+*****
+
+####  leafS  
+##### 1180#       发表于 2024-3-4 11:25
+
+啥时候更新机甲和载具啊，现在根本没动力玩，就等更新再和朋友们遨游了
+

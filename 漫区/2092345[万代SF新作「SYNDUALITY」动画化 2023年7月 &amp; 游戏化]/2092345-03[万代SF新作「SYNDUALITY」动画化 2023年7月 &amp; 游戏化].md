@@ -3967,3 +3967,20 @@ your song 古贺葵版
 
 鞭尸太狠了
 
+
+*****
+
+####  砂糖续香香  
+##### 4190#       发表于 2024-3-5 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64096295&amp;ptid=2092345" target="_blank">砂糖续香香 发表于 2024-2-28 19:11</a>
+心情不好的时候 听Daydream和Your Song真的还挺打动人的</blockquote>
+这下心情好不了了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亚瑟邓特  
+##### 4191#       发表于 2024-3-5 00:31
+
+江郎才尽没活了，从今天起我是鸭黑
+

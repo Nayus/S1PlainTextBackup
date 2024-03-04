@@ -193,3 +193,11 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 
 再不多说，谁像粉圈宝宝让大家点评咯<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 142#       发表于 2024-3-5 00:33
+
+做BB的IP改有个优势就是可以用BB的素材，至于离了BB的素材这制作组有没有独行能力嘛？我看原创的部分觉得没有
+

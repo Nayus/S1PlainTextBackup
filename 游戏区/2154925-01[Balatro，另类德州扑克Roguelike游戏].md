@@ -5289,3 +5289,26 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 玩家无 ...</blockquote>
 别的游戏抽到所有牌结算，顺子可以跳，四张可以同花，这样核心牌乐死。但小丑牌完全是RPG模式，第三轮才抽到和养成方向（这也是随机的）不同完全是浪费格子，不如继续单对和单牌。这游戏决策性基本前三层就到顶了，剩下都是赌狗天胡快乐。
 
+
+*****
+
+####  a4ac7  
+##### 469#       发表于 2024-3-4 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64138334&amp;ptid=2154925" target="_blank">ddwhzh 发表于 2024-3-4 09:33</a>
+别的游戏抽到所有牌结算，顺子可以跳，四张可以同花，这样核心牌乐死。但小丑牌完全是RPG模式，第三轮才 ...</blockquote>
+本质自走棋，策略不了一点
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  伊布桑  
+##### 470#       发表于 2024-3-4 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64130373&amp;ptid=2154925" target="_blank">ArowRocher 发表于 2024-3-3 11:17</a>
+手机版还没出吗，虽然我很菜但还想携带玩</blockquote>
+可以去隔壁下个yuzu模拟器玩ns版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

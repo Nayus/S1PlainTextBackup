@@ -5743,3 +5743,26 @@ afk了大半年，借着DLC的势头回坑打算每天坐牢十分钟拿个首�
 
  新双枪好强啊，要抛弃牙刷了（x
 
+
+*****
+
+####  kuuhiz  
+##### 3567#       发表于 2024-3-4 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141007&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-3-4 12:56</a>
+看了一眼area cup，melon那队什么怪编程，红桶85还好，但是另外配了个长红泡和一个长蓝泡，这样居然还赢了 ...</blockquote>
+melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+首先是melon想玩长红针对环境里的香槟，然后想要找个队友针对环境后排铅笔狙，于是让队伍里的robstar玩贴牌长红。
+
+反正打不过就换成52和长泡，遇上norisio的时候就是这么调整的。
+
+还说了下队友zap也是兼容这两种模式，他能上前制造涂地环境。
+
+*****
+
+####  kuuhiz  
+##### 3568#       发表于 2024-3-4 18:43
+
+如果对手特别敢上前打，也就是非环境中的远距离武器香槟铅笔狙，那就吃力了。
+但是melon和robstar的清理能力都很稳定，没怎么出现过这种情况
+

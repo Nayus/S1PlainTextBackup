@@ -220,3 +220,19 @@
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  半年  
+##### 1726#       发表于 2024-3-4 18:43
+
+<img src="https://img.saraba1st.com/forum/202403/04/184319ny98j9zjx77jg9yj.jpg" referrerpolicy="no-referrer">
+
+<strong>GHwOT96bkAAr3bn.jpg</strong> (144.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 18:43 上传
+
+[https://twitter.com/okogesen/status/1764303079221203106/photo/1](https://twitter.com/okogesen/status/1764303079221203106/photo/1)
+

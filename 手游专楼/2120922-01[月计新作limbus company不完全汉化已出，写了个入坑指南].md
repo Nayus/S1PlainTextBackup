@@ -729,3 +729,33 @@ OK我研究一下<img src="https://static.saraba1st.com/image/smiley/face2017/05
 
 乐，一年了我都没发现有s1的群<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 581#       发表于 2024-3-4 18:40
+
+新技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202403/04/183739blz8t9uig19u1dwh.jpg" referrerpolicy="no-referrer">
+
+<strong>6c16c1c92448d3a696f8dc3ae85b494d1247764479_raw.jpg</strong> (434.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 18:37 上传
+
+<img src="https://img.saraba1st.com/forum/202403/04/183740ooldgu5laa7vlele.jpg" referrerpolicy="no-referrer">
+
+<strong>2fb90a3c9d122f4405952b10f515b1b31247764479_raw.jpg</strong> (431.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 18:37 上传
+
+良秀为烧伤队提供了暴食资源，而罗佳的全队被动把燃烧队变成了六协的私有产业（误）
+
+这么想每个体系都可以出个光环领队，大家都有光明的未来。
+
+（暴怒强化...感觉魔弹奥的定位更尴尬了，除非以后推单色罪孽队，能和船玛金锁啥的一起上场....）
+

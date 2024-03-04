@@ -5707,3 +5707,15 @@ afk了大半年，借着DLC的势头回坑打算每天坐牢十分钟拿个首�
 </blockquote>
 2级你点的是啥，感觉最好是点生命上限？
 
+
+*****
+
+####  DeltaStriker  
+##### 3563#       发表于 2024-3-4 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139199&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-3-4 10:42</a>
+2级你点的是啥，感觉最好是点生命上限？</blockquote>
+一条命和一段攻击伤害提升
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

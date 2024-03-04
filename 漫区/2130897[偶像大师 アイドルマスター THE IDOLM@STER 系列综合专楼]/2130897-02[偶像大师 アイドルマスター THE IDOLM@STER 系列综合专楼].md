@@ -4988,3 +4988,22 @@ asobi売り筋排行没跟，这个等个有发言权的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yuuuuuuuu  
+##### 2011#       发表于 2024-3-4 11:51
+
+来看闪新消息的，怎么又是灰柏在打啊
+
+不玩wb，但想看闪友打架捏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 2012#       发表于 2024-3-4 11:51
+
+学友什么时候加入大战<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

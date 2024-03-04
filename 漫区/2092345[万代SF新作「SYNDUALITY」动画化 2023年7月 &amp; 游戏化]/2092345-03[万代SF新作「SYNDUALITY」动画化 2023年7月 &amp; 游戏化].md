@@ -3725,3 +3725,52 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 说换就换啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无音命题  
+##### 4161#       发表于 2024-3-4 23:17
+
+大哥我回老家就是为了这套衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 4162#       发表于 2024-3-4 23:18
+
+your song 古贺葵版
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  何处分可  
+##### 4163#       发表于 2024-3-4 23:23
+
+有点地狱了兄弟
+
+*****
+
+####  无音命题  
+##### 4164#       发表于 2024-3-4 23:25
+
+最后这句话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 4165#       发表于 2024-3-4 23:25
+
+大哥又跑了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Freakyyu  
+##### 4166#       发表于 2024-3-4 23:25
+
+鸭志田一：Ciel以这种形式活了下去！
+观众：可你妈死了，这值得吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

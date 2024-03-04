@@ -746,3 +746,11 @@ chrome有病 没有离线安装包</blockquote>
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  断恶之剑  
+##### 61#       发表于 2024-3-4 23:20
+
+firefox 看B站直播经常崩溃。。。于是我只能换了谷歌
+

@@ -5505,3 +5505,58 @@ plove是plove
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  倒映在瞳中  
+##### 2062#       发表于 2024-3-4 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64144148&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2024-3-4 16:59</a>
+plove是plove 
+
+但是闪p很帅 而且感觉x上能见到的闪p粉里女性不少</blockquote>
+醒醒，动画出来后闪P就没那么帅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2063#       发表于 2024-3-4 19:36
+
+pv里好像出现了这三人 但不知道是不是滤镜问题 黄系好像不是金头发<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舆水沉浮  
+##### 2064#       发表于 2024-3-4 19:36
+
+所以学马仕PV那位其实就是普罗丢瑟？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 2065#       发表于 2024-3-4 19:37
+
+pv里面的应该是红系吧？看pv我还挺喜欢的，结果看到剪影不太行，什么年代了怎么头上还扎两个缎带<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 2066#       发表于 2024-3-4 19:41
+
+mio和柏木翼也不是黄毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 2067#       发表于 2024-3-4 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64145856&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-4 19:41</a>
+
+mio和柏木翼也不是黄毛啊
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我想要金发啊 不是金发的黄系 我的兴趣就减半了
+

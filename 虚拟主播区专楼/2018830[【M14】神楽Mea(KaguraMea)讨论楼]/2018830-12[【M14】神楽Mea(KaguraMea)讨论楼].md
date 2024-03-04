@@ -474,3 +474,11 @@ test</blockquote>
 
 当时凛子第一次退团的真实原因应该只有麻知道，后来两人为啥一起退了也很神秘，这样看凛应该是祥子，麻是睦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  路人庚  
+##### 16358#       发表于 2024-3-4 19:41
+
+孤独摇滚唱得，卖狗必然也唱得（不过大概要等母鸡卡开播罢
+

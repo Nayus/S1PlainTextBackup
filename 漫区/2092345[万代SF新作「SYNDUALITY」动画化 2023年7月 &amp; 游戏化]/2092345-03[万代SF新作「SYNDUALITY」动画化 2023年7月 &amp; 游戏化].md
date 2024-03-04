@@ -4027,3 +4027,14 @@ your song 古贺葵版
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Piano-Forest  
+##### 4194#         楼主| 发表于 2024-3-5 01:00
+
+游戏方面一些媒体的先行试玩影像：
+[https://youtu.be/aML5FKvxG6E](https://youtu.be/aML5FKvxG6E)
+[https://youtu.be/qi11TlXJio8](https://youtu.be/qi11TlXJio8)
+[https://youtu.be/mrHa7wrVCyY](https://youtu.be/mrHa7wrVCyY)
+

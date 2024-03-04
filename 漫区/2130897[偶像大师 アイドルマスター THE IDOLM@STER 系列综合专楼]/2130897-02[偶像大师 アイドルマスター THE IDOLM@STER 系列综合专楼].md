@@ -5777,3 +5777,15 @@ JK女P没意思，想看小学生P和高中生偶像<img src="https://static.sar
 
 雾子版和灰姑娘版也来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KharaLaplace  
+##### 2086#       发表于 2024-3-5 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64125711&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-3-2 18:26</a>
+之前突出个公式化唱自己团的歌，加上迷惑的运镜。5.5更是搞出大活。</blockquote>
+新p好奇发问，5.5发生啥了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

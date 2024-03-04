@@ -6762,3 +6762,46 @@ Mujica的话EP吉他担当是潜在表明的作编曲铃木裕明，但后面两
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 NGA本来就是中午互联网下水道，化粪池能起到收集排泄物不要四处外溢的作用就行
 
+
+*****
+
+####  结衣小比取  
+##### 13904#       发表于 2024-3-4 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64142575&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-3-4 15:05</a>
+
+隔壁潭开始票选女友/老婆了，符合nga风味
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+说明MyGO确实吸引了大量普通观众
+
+
+*****
+
+####  jerryoq1  
+##### 13905#       发表于 2024-3-4 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64142766&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-3-4 15:17</a>
+
+拿到了卡片所以掃了。
+
+這印刷的品質難評，雖然是PR卡也不能要求更多 
+
+這卡圖真的不會出其他商品嗎 ...</blockquote>
+做个梦 一单店特
+
+*****
+
+####  沙漠寄引  
+##### 13906#       发表于 2024-3-4 15:43
+
+<img src="https://img.saraba1st.com/forum/202403/04/154214q7pegx88fz52ei8j.png" referrerpolicy="no-referrer">
+
+<strong>E6EEF273E246301288272E765E43EC20.png</strong> (187.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 15:42 上传
+
+这么婆的评委，评审团最佳剧集动画，最佳年度动画，最佳喜剧角色：爱音
+

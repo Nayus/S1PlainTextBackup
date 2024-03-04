@@ -5282,3 +5282,11 @@ plove是plove
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ViviR  
+##### 2042#       发表于 2024-3-4 17:51
+
+过分在意plove不plove的和在意角色之间贴不贴的都挺魔怔的，绑一起丢垃圾桶里得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

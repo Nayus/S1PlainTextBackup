@@ -624,3 +624,19 @@ chrome有病 没有离线安装包
 
 火狐浏览器从网页下载excel之类的会很慢，貌似自己做了一遍扫描安全检查<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我给关了，不知道有没有安全问题
 
+
+*****
+
+####  moeblack  
+##### 49#       发表于 2024-3-4 17:52
+
+ 本帖最后由 moeblack 于 2024-3-4 17:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64135549&amp;ptid=2173980" target="_blank">游乐园碎片 发表于 2024-3-3 22:45</a>
+如果能出个跟edge自带的竖标签栏一样的插件，我一定换回去</blockquote>
+那个 floorp，快来用吧
+
+workspace和垂直标签页都有！
+firefox的一个分发版
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -6813,3 +6813,16 @@ NGA本来就是中午互联网下水道，化粪池能起到收集排泄物不�
 
 说年一偶还得是女武神，能把擦边歌词唱到热血沸腾也是一绝
 
+
+*****
+
+####  SakuraのOrigami  
+##### 13908#       发表于 2024-3-4 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64143181&amp;ptid=2159415" target="_blank">沙漠寄引 发表于 2024-3-4 15:43</a>
+
+这么婆的评委，评审团最佳剧集动画，最佳年度动画，最佳喜剧角色：爱音 ...</blockquote>
+因为是被摁着头看完的（）
+
+欧美那边本来就没什么人看邦（）
+

@@ -3847,3 +3847,13 @@ your song 古贺葵版
 
 这鞭尸鞭的真彻底<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">杀人诛心啊
 
+
+*****
+
+####  charlespfan  
+##### 4176#       发表于 2024-3-4 23:37
+
+鞭尸鞭麻了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

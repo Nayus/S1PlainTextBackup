@@ -754,3 +754,15 @@ chrome有病 没有离线安装包</blockquote>
 
 firefox 看B站直播经常崩溃。。。于是我只能换了谷歌
 
+
+*****
+
+####  masy  
+##### 62#       发表于 2024-3-4 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64136496&amp;ptid=2173980" target="_blank">白左 发表于 2024-3-4 00:24</a>
+firefox图标是狐狸
+
+小浣熊干脆面封面是小熊猫</blockquote>
+图一是什么品种的狐狸？这耳朵好大，好可爱
+

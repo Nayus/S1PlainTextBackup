@@ -5107,3 +5107,21 @@ asobi売り筋排行没跟，这个等个有发言权的
 
 隔壁初代老害本来就有很大一部分在fl之后就过来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰寒之月  
+##### 2023#       发表于 2024-3-4 12:55
+
+确实 管马仕开学直接加入学马仕 就有人收留啦
+
+*****
+
+####  倒映在瞳中  
+##### 2024#       发表于 2024-3-4 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64137535&amp;ptid=2130897" target="_blank">安广多惠子 发表于 2024-3-4 08:06</a>
+百这种摸着灰过河而且出生目的就是干掉灰的企划生来就是要和灰打到入土的命
+也别以为和闪就相处融洽了，在 ...</blockquote>
+Pjsk这么能打的吗？
+

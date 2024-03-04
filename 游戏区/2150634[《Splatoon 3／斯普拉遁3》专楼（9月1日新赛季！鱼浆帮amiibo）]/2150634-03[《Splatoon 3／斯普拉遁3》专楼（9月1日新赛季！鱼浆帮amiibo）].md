@@ -5719,3 +5719,11 @@ afk了大半年，借着DLC的势头回坑打算每天坐牢十分钟拿个首�
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  laosai13  
+##### 3564#       发表于 2024-3-4 12:56
+
+看了一眼area cup，melon那队什么怪编程，红桶85还好，但是另外配了个长红泡和一个长蓝泡，这样居然还赢了，神奇。
+

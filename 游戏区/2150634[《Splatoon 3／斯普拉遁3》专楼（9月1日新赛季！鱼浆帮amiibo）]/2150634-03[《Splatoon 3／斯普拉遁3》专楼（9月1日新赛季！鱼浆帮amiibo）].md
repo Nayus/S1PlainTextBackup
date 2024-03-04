@@ -5666,3 +5666,15 @@ afk了大半年，借着DLC的势头回坑打算每天坐牢十分钟拿个首�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  DeltaStriker  
+##### 3559#       发表于 2024-3-4 08:36
+
+<img src="https://p.sda1.dev/16/95339c7fb997a628ecb552f7b01ee782/CMP_20240304083411630.jpg" referrerpolicy="no-referrer">
+开2级hack每次都30楼wave 3寄 烦 
+真是被自己菜到了
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

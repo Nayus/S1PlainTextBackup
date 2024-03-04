@@ -4958,3 +4958,13 @@ asobi売り筋排行没跟，这个等个有发言权的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ads147147  
+##### 2008#       发表于 2024-3-4 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个铁血白油，是不是也关注装甲核心吧啊
+
+代哥上次耍小手段我是见过的，幻日的pv播放量大半夜刷，但是伪造销量这种无聊的事没人干的，该多少就多少，毕竟这玩意和演唱会预估挂钩。
+

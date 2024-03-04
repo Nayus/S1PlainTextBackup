@@ -3984,3 +3984,46 @@ your song 古贺葵版
 
 江郎才尽没活了，从今天起我是鸭黑
 
+
+*****
+
+####  Piano-Forest  
+##### 4192#         楼主| 发表于 2024-3-5 00:52
+
+[https://synduality-noir.com/products_cat/cd](https://synduality-noir.com/products_cat/cd)
+
+第21話 挿入歌「Your Song」
+
+実写MVが：[https://youtu.be/yc5ZNZFHF1g](https://youtu.be/yc5ZNZFHF1g)
+<img src="https://p.sda1.dev/16/0b12407fe6d0537a697a0e523e39b639/20240305_003918.jpg" referrerpolicy="no-referrer">
+
+『#SYNDUALITY Noir』Blu-ray BOX
+
+第1巻（特装限定版）5月29日発売！
+
+各対象法人で予約するとエイトビット
+
+描き下ろし特典が手に入ります！
+
+今回は公開前だった
+
+シエルのイラストを初公開✨
+<img src="https://p.sda1.dev/16/76c8df836231616abb947c99997d1553/20240305_003909.jpg" referrerpolicy="no-referrer">
+
+游戏《SYNDUALITY Echo of Ada》（奇异贤伴 爱达之歌）将于2024年3月28日～ 4月1日进行PS5 / Xbox X|S / Steam版封封测
+
+申请地址：[https://synduality-ada.bn-ent.net/cbt/sc/](https://synduality-ada.bn-ent.net/cbt/sc/)
+
+实机PV：[https://youtu.be/dJrZ2vE5pKw](https://youtu.be/dJrZ2vE5pKw)
+<img src="https://p.sda1.dev/16/4a6b074a60bedf7f3993de91872e11ad/20240305_004931.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/6fa4b6af7d8632dcfd5f66d7a2757cd9/img_mv.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  charlespfan  
+##### 4193#       发表于 2024-3-5 00:53
+
+我是认为鸭是能把握住度的人，青猪里麻衣死之后和小翔子快死的时候描写不差的，也没给人一种情节与人物行为和表达内容割裂的感觉，我还是认为是系列构成和本集脚本的问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

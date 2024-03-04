@@ -96,3 +96,14 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 
 至于给别人代工掉不掉身段这点，平行世界里司马脸抱大屈的比亚迪现在大概还在给手机搓电池罢
 
+
+*****
+
+####  ambivalence  
+##### 136#       发表于 2024-3-4 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139475&amp;ptid=2149107" target="_blank">ronac 发表于 2024-3-4 11:01</a>
+
+BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，比如圣灵之心剧情模式最后需要拆的那玩意儿，还 ...</blockquote>
+那我期待一波下一作ARC大乱斗好了
+

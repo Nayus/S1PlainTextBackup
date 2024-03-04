@@ -733,3 +733,16 @@ Firefox+Thunderbird用户，只要Mozilla还维护他们我就永远不换用别
 
 自打去年安卓版扩展基本都能用了之后更加离不开了
 
+
+*****
+
+####  novalli  
+##### 60#       发表于 2024-3-4 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141634&amp;ptid=2173980" target="_blank">oldttt 发表于 2024-3-4 13:53</a>
+我现在也用edge了 
+chrome有病 没有离线安装包</blockquote>
+如果确实需要的话，其实是有的，在“支持”里可以找到离线安装包。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

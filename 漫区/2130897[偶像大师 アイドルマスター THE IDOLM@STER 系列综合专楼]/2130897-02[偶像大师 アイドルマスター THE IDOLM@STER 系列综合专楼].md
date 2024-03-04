@@ -5616,3 +5616,54 @@ mio和柏木翼也不是黄毛啊
 
 查看全部评分
 
+
+*****
+
+####  rgauss  
+##### 2070#       发表于 2024-3-4 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">希望是换发型的说法
+
+*****
+
+####  liyropen  
+##### 2071#       发表于 2024-3-4 20:05
+
+没有必要在PV里给红色整个新发型，这P有了钦点形象……学校是女子校？
+
+
+*****
+
+####  殿珣  
+##### 2072#       发表于 2024-3-4 20:10
+
+不会是女p吧……这看起来也太年轻了，像jk，没有社会人的感觉
+
+*****
+
+####  koodooliz  
+##### 2073#       发表于 2024-3-4 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64146119&amp;ptid=2130897" target="_blank">殿珣 发表于 2024-3-4 20:10</a>
+不会是女p吧……这看起来也太年轻了，像jk，没有社会人的感觉</blockquote>
+不是说学校分制作人科和偶像科么（
+
+*****
+
+####  RhmBWT_Wu  
+##### 2074#       发表于 2024-3-4 20:13
+
+<img src="https://p.sda1.dev/16/e6f4998ca6677e36175247672172bcbc/CMP_20240304201231078.jpg" referrerpolicy="no-referrer">
+看来明天保底三具年轻的肉体了，不知道社长cv会是谁，群里有人奶三木
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  殿珣  
+##### 2075#       发表于 2024-3-4 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64146129&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-3-4 20:11</a>
+不是说学校分制作人科和偶像科么（</blockquote>
+意思是玩家当学院长或者是社长？？？？抛弃了普罗丢瑟这个身份，身为打工人的代入感没有了。关键是，怎么做名片啊！
+

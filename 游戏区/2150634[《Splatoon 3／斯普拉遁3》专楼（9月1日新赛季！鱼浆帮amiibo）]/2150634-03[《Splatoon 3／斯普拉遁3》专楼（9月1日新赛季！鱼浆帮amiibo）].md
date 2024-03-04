@@ -5652,3 +5652,17 @@ afk了大半年，借着DLC的势头回坑打算每天坐牢十分钟拿个首�
 
 那个动作多可爱啊，乌贼研终于到了另存为都不会的地步了是吧，去死吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 3558#       发表于 2024-3-4 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64137138&amp;ptid=2150634" target="_blank">幽灵部长助理 发表于 2024-3-4 02:53</a>
+afk了大半年，借着DLC的势头回坑打算每天坐牢十分钟拿个首胜，不为别的，就为了这季的复刻二代胜利动作
+
+结 ...</blockquote>
+复刻的二代双枪动作其实还是二代女鱿动作改的。一代二代复刻动作都是女鱿动作改，倒是这版本新加的一代二代没有的武器的动作比较有男鱿特点。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

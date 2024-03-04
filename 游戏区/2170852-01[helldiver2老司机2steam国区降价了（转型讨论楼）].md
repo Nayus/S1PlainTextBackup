@@ -11906,3 +11906,14 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  RockingHorse  
+##### 1196#       发表于 2024-3-4 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141993&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-3-4 14:18</a>
+
+带个轨道激光  找个没怪的地方放 然后往激光上跳就行了</blockquote>
+下班去试试
+

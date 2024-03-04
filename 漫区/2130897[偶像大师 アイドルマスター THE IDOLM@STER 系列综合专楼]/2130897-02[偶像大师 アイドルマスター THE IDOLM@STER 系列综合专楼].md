@@ -5667,3 +5667,59 @@ mio和柏木翼也不是黄毛啊
 不是说学校分制作人科和偶像科么（</blockquote>
 意思是玩家当学院长或者是社长？？？？抛弃了普罗丢瑟这个身份，身为打工人的代入感没有了。关键是，怎么做名片啊！
 
+
+*****
+
+####  rgauss  
+##### 2076#       发表于 2024-3-4 20:14
+
+ 本帖最后由 rgauss 于 2024-3-4 20:18 编辑 
+
+明晚就看傻逼万代整的什么烂活了
+
+真要搞那套 那就是尾气都吃不上
+
+*****
+
+####  koodooliz  
+##### 2077#       发表于 2024-3-4 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64146145&amp;ptid=2130897" target="_blank">殿珣 发表于 2024-3-4 20:13</a>
+意思是玩家当学院长或者是社长？？？？抛弃了普罗丢瑟这个身份，身为打工人的代入感没有了。关键是，怎么 ...</blockquote>
+图透里玩家不是制作人科当学生的么？
+明天就知道了反正
+
+*****
+
+####  Seeley  
+##### 2078#       发表于 2024-3-4 20:16
+
+总感觉我的烂活雷达狂响我靠<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  殿珣  
+##### 2079#       发表于 2024-3-4 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64146160&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-3-4 20:15</a>
+图透里玩家不是制作人科当学生的么？
+明天就知道了反正</blockquote>
+微妙……
+
+*****
+
+####  田所あずさ  
+##### 2080#       发表于 2024-3-4 20:19
+
+谨慎看好
+
+
+*****
+
+####  冰寒之月  
+##### 2081#       发表于 2024-3-4 20:24
+
+这个黑影发型 是你吗冬马
+

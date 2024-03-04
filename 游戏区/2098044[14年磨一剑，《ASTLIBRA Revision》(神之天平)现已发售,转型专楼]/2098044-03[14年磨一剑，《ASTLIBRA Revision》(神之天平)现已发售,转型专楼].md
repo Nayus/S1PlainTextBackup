@@ -97,3 +97,11 @@ DLC本身也不是新东西就是，原版2011年停工，2015年把DLC原型的
 
 DLC和现在你玩的steam版一样是个重置版
 
+
+*****
+
+####  nagamasa  
+##### 4073#       发表于 2024-3-4 14:24
+
+刚开始玩了正常过剧情通关做成就，结果差了正太和凯撒戒，然后开了第二个荒谬档又刷了一遍，有基础的情况下荒谬其实也挺爽，晶体实在多过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

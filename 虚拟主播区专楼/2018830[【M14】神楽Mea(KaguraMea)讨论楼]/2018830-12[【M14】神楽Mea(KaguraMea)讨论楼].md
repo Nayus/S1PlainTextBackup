@@ -438,3 +438,20 @@ test</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  呓亘  
+##### 16354#       发表于 2024-3-4 14:23
+
+最近看mygo看上头了，不知你麻在BS是什么样的形象，是爱音那样行动力拉满的角色，还是soya那种温柔包容的呢？
+
+话说BS炸团的时候，不知她是什么心情。
+
+*****
+
+####  呓亘  
+##### 16355#       发表于 2024-3-4 14:23
+
+想听你麻翻唱go团曲
+

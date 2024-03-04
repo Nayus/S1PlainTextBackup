@@ -616,3 +616,11 @@ chrome有病 没有离线安装包
  火狐adblock不能用了，现在edge火狐双栖</blockquote>
 怎么会用不了，同类的 ublock 用得好好的
 
+
+*****
+
+####  makourisu-2  
+##### 48#       发表于 2024-3-4 14:20
+
+火狐浏览器从网页下载excel之类的会很慢，貌似自己做了一遍扫描安全检查<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我给关了，不知道有没有安全问题
+

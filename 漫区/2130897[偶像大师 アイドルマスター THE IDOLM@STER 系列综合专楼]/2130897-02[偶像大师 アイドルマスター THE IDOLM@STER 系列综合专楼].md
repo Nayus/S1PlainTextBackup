@@ -5207,3 +5207,19 @@ Pjsk这么能打的吗？</blockquote>
 嘘组真的有很多kpop粉吗？怕了
 我喜欢kpop，但是kpop粉还是算了……
 
+
+*****
+
+####  田所あずさ  
+##### 2034#       发表于 2024-3-4 15:12
+
+sc的厕妹含量是惊人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 2035#       发表于 2024-3-4 15:14
+
+kpop粉确实不少
+

@@ -6729,3 +6729,23 @@ Mujica的话EP吉他担当是潜在表明的作编曲铃木裕明，但后面两
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 13902#       发表于 2024-3-4 15:17
+
+拿到了卡片所以掃了。
+
+這印刷的品質難評，雖然是PR卡也不能要求更多<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer"> 
+
+這卡圖真的不會出其他商品嗎，我好難過<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/04/151638g277jfnaqrskh02n.jpg" referrerpolicy="no-referrer">
+
+<strong>uik.jpg</strong> (593.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 15:16 上传
+

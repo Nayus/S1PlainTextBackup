@@ -3675,3 +3675,13 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 歌姬的身体在太空，在拉格朗日点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4155#       发表于 2024-3-4 22:50
+
+准备上线看直播
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

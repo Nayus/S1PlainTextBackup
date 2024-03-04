@@ -6637,3 +6637,24 @@ Mujica的话EP吉他担当是潜在表明的作编曲铃木裕明，但后面两
 
 转紫吧，天音妹妹答应我，不要用梦以的手机拍照
 
+
+*****
+
+####  DarthAka  
+##### 13893#       发表于 2024-3-4 10:35
+
+这是所谓大头贴，大概20年前的玩意儿
+
+
+*****
+
+####  Anatoly  
+##### 13894#       发表于 2024-3-4 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139001&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-3-4 10:26</a>
+
+转紫吧，天音妹妹答应我，不要用梦以的手机拍照</blockquote>
+日本大头贴就这样
+
+其实是梦以修出了日本大头贴的平均水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

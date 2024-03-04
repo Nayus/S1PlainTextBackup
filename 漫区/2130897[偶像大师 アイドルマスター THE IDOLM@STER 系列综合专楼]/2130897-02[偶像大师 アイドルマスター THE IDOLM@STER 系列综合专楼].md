@@ -4978,3 +4978,13 @@ asobi売り筋排行没跟，这个等个有发言权的
 
 唯一就是一卷一万总销量其实在偶像大师里并不高，首周也就算了，专门放出来也不好看。
 
+
+*****
+
+####  Unlight  
+##### 2010#         楼主| 发表于 2024-3-4 10:40
+
+薯片和土豆现在几几开啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

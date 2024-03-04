@@ -673,3 +673,16 @@ edge和chrome还有滚轮切换标签的插件么。被国产调教回不去了<
 
 我的firefox被我不知道怎么设置的，经常有些网页的验证图片刷不出来，一些视频刷不出来或者网页无法登录。但我宁可遇到这种网页再去开chrome也不愿放弃firefox。chrome内核对隐私的保护基本不存在，毕竟保护了隐私，它还怎么收集数据推广告。
 
+
+*****
+
+####  fuckingworld  
+##### 54#       发表于 2024-3-4 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64141634&amp;ptid=2173980" target="_blank">oldttt 发表于 2024-3-4 13:53</a>
+我现在也用edge了 
+chrome有病 没有离线安装包</blockquote>
+有，但是比较难搜到，但是确定有
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

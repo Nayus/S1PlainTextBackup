@@ -43,3 +43,11 @@
 之前不也有一个表示害怕琉璃不想一起吃午饭的同学吗，正常啦</blockquote>
 就是同一个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Garterbelt  
+##### 137#       发表于 2024-3-4 09:17
+
+哦哦，我还没看最新话，只是凑热闹插个嘴而已<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

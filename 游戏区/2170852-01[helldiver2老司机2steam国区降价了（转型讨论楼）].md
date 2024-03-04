@@ -11635,3 +11635,17 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 —— 来自 samsung SM-S916U, Android 14上的 S1Next ...</blockquote>
 近期玩家列表找id，屏蔽
 
+
+*****
+
+####  白玫瑰之夜  
+##### 1170#       发表于 2024-3-4 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133451&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-3 18:42</a>
+这个难7炸虫卵好恶心，拿着榴弹枪还没进去门口就刷一堆虫子
+
+换个喷气背包想飞进去结果就只能跳那么 ...</blockquote>
+可以先隔墙扔飞鹰炸一波，然后拉怪秦王绕柱找机会进去补刀<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -19,3 +19,22 @@ BOSS几乎全程霸体突出一个你打你的我打我的-
 
 没有荔枝姐姐---
 
+
+*****
+
+####  ronac  
+##### 130#       发表于 2024-3-4 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64137063&amp;ptid=2149107" target="_blank">ambivalence 发表于 2024-3-4 02:06</a>
+
+断断续续玩了10小时 说说感想
+
+制作人应该是相当喜欢ARC游戏,不过这个规模的游戏用别人IP有利有弊吧，现在搞 ...</blockquote>
+BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，比如圣灵之心剧情模式最后需要拆的那玩意儿，还有MVC的狂攻（我记得月姬格斗的秋叶就是学这个）
+
+霸体主要难受的是没有了HIT STOP反馈会导致手感太飘
+
+话说他们下一作要是继续拿格斗IP练手的话，不知道搞圣灵之心怎么样？反正圣灵之心早就半死不活了，万一捡漏真谈下来了就有大把的美少女可以出<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+甚至可以考虑把他们当年众筹金额没达到而雪藏的欧米伽放出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

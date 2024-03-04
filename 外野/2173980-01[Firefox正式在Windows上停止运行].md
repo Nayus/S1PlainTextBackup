@@ -707,3 +707,11 @@ firefox里是 Invalid Date
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  古明地雷  
+##### 57#       发表于 2024-3-4 21:39
+
+火狐用了十几年了，你想得到的都能改，改点标签页需求完全不在话下
+

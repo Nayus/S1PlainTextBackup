@@ -6573,3 +6573,15 @@ bd还自带来着<img src="https://static.saraba1st.com/image/smiley/face2017/03
 说来有没有从内封好字幕视频里提取字幕的方法啊，想把官方的字幕提取出来(毕竟官方的画质差了点儿 ...</blockquote>
 如果是提取mkv格式视频的内封字幕的话，装一个MKVToolNix
 
+
+*****
+
+####  木谷高明  
+##### 13890#       发表于 2024-3-4 08:52
+
+<img src="https://p.sda1.dev/16/cb8c48d8403f0397e3a01430d7d9ef59/1000146749.jpg" referrerpolicy="no-referrer">
+
+【【中字】高尾奏音祥子生贺弹月光的经过与恶搞的大西亚玖璃（带N站弹幕）-哔哩哔哩】 https://b23.tv/mwwZsjv
+
+练了30分钟就能重新捡起来弹月光了，祥子人间体恐怖如斯
+

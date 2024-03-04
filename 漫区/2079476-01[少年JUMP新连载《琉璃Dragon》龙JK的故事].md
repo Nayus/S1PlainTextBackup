@@ -33,3 +33,13 @@
 
 这角伤胃啊。。
 
+
+*****
+
+####  米拉苏尔  
+##### 136#       发表于 2024-3-4 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64137572&amp;ptid=2079476" target="_blank">Garterbelt 发表于 2024-3-4 08:12</a>
+之前不也有一个表示害怕琉璃不想一起吃午饭的同学吗，正常啦</blockquote>
+就是同一个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

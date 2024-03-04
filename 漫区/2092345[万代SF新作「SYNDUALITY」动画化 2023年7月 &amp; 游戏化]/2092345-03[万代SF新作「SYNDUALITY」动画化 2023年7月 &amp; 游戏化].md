@@ -3685,3 +3685,43 @@ mouton肯定也是0式. 都是"奖励用的特殊magus"了, 不是0式根本不�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Freakyyu  
+##### 4156#       发表于 2024-3-4 23:10
+
+人干事？
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novyDC  
+##### 4157#       发表于 2024-3-4 23:10
+
+又刀歌姬
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  何处分可  
+##### 4158#       发表于 2024-3-4 23:11
+
+感觉歌姬算是埋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4159#       发表于 2024-3-4 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这片减2妥妥的
+
+*****
+
+####  何处分可  
+##### 4160#       发表于 2024-3-4 23:14
+
+说换就换啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

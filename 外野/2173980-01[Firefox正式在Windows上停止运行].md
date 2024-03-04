@@ -715,3 +715,11 @@ firefox里是 Invalid Date
 
 火狐用了十几年了，你想得到的都能改，改点标签页需求完全不在话下
 
+
+*****
+
+####  AraTurambar  
+##### 58#       发表于 2024-3-4 21:55
+
+Firefox+Thunderbird用户，只要Mozilla还维护他们我就永远不换用别的组合。
+

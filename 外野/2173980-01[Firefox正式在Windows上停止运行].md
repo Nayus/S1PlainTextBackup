@@ -723,3 +723,13 @@ firefox里是 Invalid Date
 
 Firefox+Thunderbird用户，只要Mozilla还维护他们我就永远不换用别的组合。
 
+
+*****
+
+####  Hieda  
+##### 59#       发表于 2024-3-4 22:36
+
+火狐的tridactyl是天国的vimperator/pentadactyl之后做得最像样的vimlike扩展，光这点我就不可能放弃火狐<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+自打去年安卓版扩展基本都能用了之后更加离不开了
+

@@ -606,3 +606,13 @@ chrome有病 没有离线安装包
 
 讲真火狐性能什么的各方面都比不过谷歌系，就是这个标签页顺手
 
+
+*****
+
+####  kyomu  
+##### 47#       发表于 2024-3-4 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139237&amp;ptid=2173980" target="_blank">overmindoyj 发表于 2024-3-4 10:44</a>
+ 火狐adblock不能用了，现在edge火狐双栖</blockquote>
+怎么会用不了，同类的 ublock 用得好好的
+

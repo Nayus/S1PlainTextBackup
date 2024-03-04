@@ -58,3 +58,17 @@
 
 打到新章了，海蛇洞那里穿越回过去都已经是修女神父被控之后了，也就是说他俩只能走be吗？
 
+
+*****
+
+####  christiny  
+##### 4070#       发表于 2024-3-4 12:02
+
+ 本帖最后由 christiny 于 2024-3-4 12:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64139035&amp;ptid=2098044" target="_blank">永远的访客 发表于 2024-3-4 10:29</a>
+
+地狱打到6-2，存档时间17个小时，感觉快坚持不下去了。纯为刷而刷，本体能坚持80个小时，前后呼应又不时出 ...</blockquote>
+为什么都喜欢上来就玩地狱，正常难度，17小时已经结局了。
+
+何必坐牢呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -5007,3 +5007,31 @@ asobi売り筋排行没跟，这个等个有发言权的
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  江口夕  
+##### 2013#       发表于 2024-3-4 11:57
+
+闪和灰百又不是一个赛道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Seeley  
+##### 2014#       发表于 2024-3-4 11:59
+
+学要是资源拉满而且小火，灰百相继被噶嗝屁，估计过两年就能看到灰百围攻学了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然我觉得前半条件不太可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  殿珣  
+##### 2015#       发表于 2024-3-4 12:01
+
+打架不叫上管马仕是吧，哦，管马仕没粉丝。没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

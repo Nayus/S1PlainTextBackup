@@ -393,3 +393,188 @@ tabmixplus死了后就放弃了，至今没有平替
 
 正在用火狐浏览器看这个帖子的路过……
 
+
+*****
+
+####  十元立没  
+##### 42#       发表于 2024-3-4 12:01
+
+用tree style tab插件，然后用下面这个改userchrome
+
+    /*侧边隐藏*/
+
+    #sidebar-box{
+
+        --uc-sidebar-width: 0px;
+
+        --uc-sidebar-hover-width: 250px;
+
+        --uc-autohide-sidebar-delay: 0ms;
+
+        position: relative;
+
+        min-width: var(--uc-sidebar-width) !important;
+
+        width: var(--uc-sidebar-width) !important;
+
+        max-width: var(--uc-sidebar-width) !important;
+
+        z-index:1;
+
+      }
+
+      
+
+      #sidebar-box[positionend]{ direction: rtl }
+
+      #sidebar-box[positionend] &gt; *{ direction: ltr }
+
+      
+
+      #sidebar-box[positionend]:-moz-locale-dir(rtl){ direction: ltr }
+
+      #sidebar-box[positionend]:-moz-locale-dir(rtl) &gt; *{ direction: rtl }
+
+      
+
+      #main-window[sizemode="fullscreen"] #sidebar-box{ --uc-sidebar-width: 1px; }
+
+      
+
+      #sidebar-splitter{ display: none }
+
+      #sidebar-header{
+
+        overflow: hidden;
+
+        color: var(--chrome-color, inherit) !important;
+
+        padding-inline: 0 !important;
+
+      }
+
+      
+
+      #sidebar-header::before,
+
+      #sidebar-header::after{
+
+        content: "";
+
+        display: -moz-box;
+
+        padding-left: 8px;
+
+      }
+
+      
+
+      #sidebar-switcher-target{
+
+        -moz-box-pack: start !important;
+
+      }
+
+      
+
+      #sidebar-header,
+
+      #sidebar{
+
+        transition: min-width 115ms linear var(--uc-autohide-sidebar-delay) !important;
+
+        min-width: var(--uc-sidebar-width) !important;
+
+        will-change: min-width;
+
+      }
+
+      #sidebar-box:hover &gt; #sidebar-header,
+
+      #sidebar-box:hover &gt; #sidebar{
+
+        min-width: var(--uc-sidebar-hover-width) !important;
+
+        transition-delay: 0ms !important;
+
+      }
+
+      .sidebar-panel{
+
+        background-color: transparent !important;
+
+        color: var(--newtab-text-primary-color) !important;
+
+      }
+
+      .sidebar-panel #search-box{
+
+        -moz-appearance: none !important;
+
+        background-color: rgba(249,249,250,0.1) !important;
+
+        color: inherit !important;
+
+      }
+
+      
+
+      /* Add sidebar divider and give it background */
+
+      
+
+      #sidebar,
+
+      #sidebar-header{
+
+        background-color: inherit !important;
+
+        border-inline: 1px solid rgb(80,80,80);
+
+        border-inline-width: 0px 1px;
+
+      }
+
+      #sidebar-box:not([positionend]) &gt; :-moz-locale-dir(rtl),
+
+      #sidebar-box[positionend] &gt; *{
+
+        border-inline-width: 1px 0px;
+
+      }
+
+      
+
+      /* Move statuspanel to the other side when sidebar is hovered so it doesn't get covered by sidebar */
+
+      
+
+      #sidebar-box:not([positionend]):hover ~ #appcontent #statuspanel{
+
+        inset-inline: auto 0px !important;
+
+      }
+
+      #sidebar-box:not([positionend]):hover ~ #appcontent #statuspanel-label{
+
+        margin-inline: 0px !important;
+
+        border-left-style: solid !important;
+
+      }
+
+*****
+
+####  十元立没  
+##### 43#       发表于 2024-3-4 12:01
+
+<img src="https://img.saraba1st.com/forum/202403/04/120138eukrrk2z3rrvq090.gif" referrerpolicy="no-referrer">
+
+<strong>动画.gif</strong> (343.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-4 12:01 上传
+
+效果图
+

@@ -11743,3 +11743,17 @@ tk队友是游戏体验的一环<img src="https://static.saraba1st.com/image/smi
 
 啥时候更新机甲和载具啊，现在根本没动力玩，就等更新再和朋友们遨游了
 
+
+*****
+
+####  looptube  
+##### 1181#       发表于 2024-3-4 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133451&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-3 18:42</a>
+这个难7炸虫卵好恶心，拿着榴弹枪还没进去门口就刷一堆虫子
+
+换个喷气背包想飞进去结果就只能跳那么 ...</blockquote>
+地图上有炒鸡大炮的话可以扔迷你核弹，一波全清
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

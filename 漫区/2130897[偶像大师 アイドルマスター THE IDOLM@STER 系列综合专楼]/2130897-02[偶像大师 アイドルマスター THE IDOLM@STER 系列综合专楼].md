@@ -9319,3 +9319,55 @@ sc那种味道也不是初期就有。3D这种形式下SC自己就算资源足�
 
 happier算偶像歌，fashionable不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Unlight  
+##### 2439#         楼主| 发表于 2024-3-5 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158792&amp;ptid=2130897" target="_blank">任天索尼子 发表于 2024-3-5 22:07</a>
+
+我就扣了怎么着了，自己先扣的别人不提了？</blockquote>
+你有没有想过你负鹅怎么来的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+我因为反对你的ky言论，扣你鹅，就事论事。
+
+而你呢，想当然，被人打脸以后还嘴硬，然后还反咬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你之前还投诉别人追着扣鹅
+[https://www.saraba1st.com/2b/thread-2121788-1-1.html](https://www.saraba1st.com/2b/thread-2121788-1-1.html)
+<img src="https://p.sda1.dev/16/9263f18b8d27ca4c8d12670aa6c80703/QQ图片20240305221548.png" referrerpolicy="no-referrer">
+
+然后自己也追着别人扣鹅
+<img src="https://p.sda1.dev/16/40285af3774a2b14e908957aa26fface/QQ截图20240305221815.png" referrerpolicy="no-referrer">
+
+我扣了你2鹅，你扣了多少？
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 2440#       发表于 2024-3-5 22:24
+
+<img src="https://p.sda1.dev/16/321b56000a23aa378c8ae4bc89c63d0b/CMP_20240305222402803.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  yoyodream  
+##### 2441#       发表于 2024-3-5 22:24
+
+万代这就把偶像大师的风格全换了想重新定义偶像大师了。这游戏的成品不会是pjsk缝赛马娘的味吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 2442#       发表于 2024-3-5 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158976&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-5 22:24</a>
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+下面这个更像喜多川海梦啊。
+

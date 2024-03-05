@@ -73,3 +73,17 @@
 
 风格太独特，以至于完全看不出右边那个是莉莉娅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 70#       发表于 2024-3-5 16:46
+
+ 本帖最后由 zzf111 于 2024-3-5 16:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64155092&amp;ptid=2159012" target="_blank">smdzh2 发表于 2024-3-5 16:29</a>
+
+风格太独特，以至于完全看不出右边那个是莉莉娅</blockquote>
+没事原作也看不出来，站在其他一群金发角色旁边仍然会脸盲
+
+瓶叔新风格还不算稳定加上人设太素导致第一二三话女队友的发型和脸都不一样（衣服也换了好几款，都是靠对白里讲出名字才认得，不过这样没必要的信息不浪费漫画格子，让观众反刍线索也不错）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

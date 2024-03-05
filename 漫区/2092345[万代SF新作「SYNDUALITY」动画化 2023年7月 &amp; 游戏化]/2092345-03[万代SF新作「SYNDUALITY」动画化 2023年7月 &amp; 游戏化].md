@@ -4633,3 +4633,16 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 不过诺娃的进化还是差了不少火候呀，因为她当初主场回合的自白和歌姬的经历并不是一回事，这种继承就显得几乎是靠古贺葵在唱歌了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4252#       发表于 2024-3-5 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63828873&amp;ptid=2092345" target="_blank">ParadiseMartyr 发表于 2024-1-30 15:16</a>
+
+看哭了，我的noir
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
+哎，当初何曾想过现在，说白了这种“继承”还是火候不到，会看起来很讽刺，何况是对白月光的继承呢
+

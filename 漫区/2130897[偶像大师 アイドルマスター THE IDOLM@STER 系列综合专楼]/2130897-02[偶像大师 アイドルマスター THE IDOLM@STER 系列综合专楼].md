@@ -5992,3 +5992,23 @@ cgss这个月的月限由三张变成了两张，不知道是不是因为接下�
 
 <img src="https://img.saraba1st.com/forum/202403/05/165425g49384b5840dgz8t.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  achilleus  
+##### 2107#       发表于 2024-3-5 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64154306&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-5 15:32</a>
+
+笑死了
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+震惊！283某辣妹偶像竟然出卖自己队友！
+
+*****
+
+####  sodah  
+##### 2108#       发表于 2024-3-5 17:27
+
+会搬出比消消乐更一坨的东西出来吗，不过肯定能比消消乐活得久就是了
+

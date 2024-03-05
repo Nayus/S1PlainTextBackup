@@ -1497,3 +1497,11 @@ Bandai Namco发布旗下机甲动作游戏《奇异贤伴 爱达之歌》最新�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">单机还有兴趣，网游就算了
 
+
+*****
+
+####  duraa  
+##### 147#       发表于 2024-3-5 17:57
+
+看了下法米通的实机，感觉就最后的机娘洗澡有点吸引力
+

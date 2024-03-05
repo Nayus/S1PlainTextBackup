@@ -75,3 +75,13 @@ day1完整分组，day2在day1当天公布
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  starring  
+##### 19713#       发表于 2024-3-5 17:57
+
+下周广播是久违的合鲤
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

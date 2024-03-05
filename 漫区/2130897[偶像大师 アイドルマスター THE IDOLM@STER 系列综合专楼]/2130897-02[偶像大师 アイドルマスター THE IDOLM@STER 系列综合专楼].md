@@ -9605,3 +9605,13 @@ btw，虽然实际上运营路线能有接近90度的不同，但是莲之空和
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Erikas  
+##### 2469#       发表于 2024-3-6 07:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">老东西有啥东西能给的，街机缩减柏青哥官网传送门sfp吗
+高品质一线3D，人设剧本音乐流行的全都拉满，以及可预见的2D动画
+要说哪里不像爱马仕那大概就是过于像个正常企划了
+

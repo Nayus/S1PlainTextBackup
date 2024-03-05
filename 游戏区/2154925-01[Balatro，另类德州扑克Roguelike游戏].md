@@ -5444,3 +5444,13 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 开局拿到一张复制主动牌的传奇，后面又拿到蓝图和根据行星1.5倍的 vouchers，拿到同花就开始无脑复制了每回合增加*2.25<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 481#       发表于 2024-3-5 14:02
+
+同花卡组被最后一个boss强制出一牌搞崩了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

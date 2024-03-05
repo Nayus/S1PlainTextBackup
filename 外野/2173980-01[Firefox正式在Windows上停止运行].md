@@ -816,3 +816,16 @@ vimperator好用加1
 
 认识个家伙，没事干，拖firefox服务器所有火狐版本，拖了几十T
 
+
+*****
+
+####  藏獒·烨  
+##### 68#       发表于 2024-3-5 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64153624&amp;ptid=2173980" target="_blank">月黑杀人夜 发表于 2024-3-5 14:44</a>
+
+耳郭狐 
+
+疯狂动物城里的男主角就是这种</blockquote>
+耳廓狐是踩爪爪冰棍那只<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

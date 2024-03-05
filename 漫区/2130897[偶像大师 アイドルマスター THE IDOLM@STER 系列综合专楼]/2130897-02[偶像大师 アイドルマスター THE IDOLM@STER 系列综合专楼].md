@@ -6191,3 +6191,397 @@ Image_1709633043516.jpg
 
 <img src="https://img.saraba1st.com/forum/202403/05/180522s7c99hhvhbgmbvhb.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舆水沉浮  
+##### 2128#       发表于 2024-3-5 18:06
+
+ 本帖最后由 舆水沉浮 于 2024-3-5 18:08 编辑 
+
+红c怎么这么像雌小鬼<img src="https://p.sda1.dev/16/ffe5f8ecfe1ebae74cfa3**0d30bd9/CMP_20240305180546593.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/054b849c316845acf5b5a3d67009ca9b/Image_1709633296181.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Vacuolar  
+##### 2129#       发表于 2024-3-5 18:06
+
+术曲人真是二次元版本亲爹
+
+*****
+
+####  Vacuolar  
+##### 2130#       发表于 2024-3-5 18:07
+
+<blockquote>舆水沉浮 发表于 2024-3-5 18:06
+红c怎么这么像雌小鬼
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+很像cg登山家
+
+*****
+
+####  田所あずさ  
+##### 2131#       发表于 2024-3-5 18:08
+
+ 本帖最后由 田所あずさ 于 2024-3-5 18:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/05/180759ogbxtcrw3832pz3z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (242.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/180959szxtlpl7z4ciqqic.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:09 上传
+
+*****
+
+####  cckuku  
+##### 2132#       发表于 2024-3-5 18:08
+
+红系好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 2133#       发表于 2024-3-5 18:08
+
+九个啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViviR  
+##### 2134#       发表于 2024-3-5 18:08
+
+红色系跟我想的人设不太一样，还是说3d版本感觉比较微妙一点？
+
+*****
+
+####  rgauss  
+##### 2135#       发表于 2024-3-5 18:09
+
+九个啊
+
+*****
+
+####  田所あずさ  
+##### 2136#       发表于 2024-3-5 18:09
+
+<img src="https://img.saraba1st.com/forum/202403/05/180835uszmeqxxx6z6xd41.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (200.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/180851lyc1i6wncw9bhm11.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (207.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/180911ndmusudp4pvumumu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (176.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:09 上传
+
+*****
+
+####  RhmBWT_Wu  
+##### 2137#       发表于 2024-3-5 18:09
+
+声优只认识古贺葵，有漏油认识的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Anatoly  
+##### 2138#       发表于 2024-3-5 18:10
+
+这下真的黛专了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Piano-Forest  
+##### 2139#       发表于 2024-3-5 18:10
+
+ 本帖最后由 Piano-Forest 于 2024-3-5 18:15 编辑 
+
+[https://gakuen.idolmaster-official.jp/](https://gakuen.idolmaster-official.jp/)
+
+『学園アイドルマスター』第1弾PV：
+[https://youtu.be/cQcdUgNMgB0](https://youtu.be/cQcdUgNMgB0)
+
+シナリオチーム：
+
+伏見つかさ
+
+志瑞祐
+
+雨宮和希
+<img src="https://p.sda1.dev/16/06d9888517c8e8ee53c3d54e6caa5ccb/20240305_181411.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/66b0e91b8c68bc914cc35f88eab7bb8d/20240305_181413.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/9466d2eb2824e556a806b65f44afc8c4/20240305_181414.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/716239ee0b69cca7c81a5a1d5bb7dd6d/20240305_181415.jpg" referrerpolicy="no-referrer">
+
+学園アイドルマスターの楽曲を『ASOBINOTES』にてプロデュース担当致します。
+
+第1弾で楽曲提供頂いたコンポーザーの発表です。
+<img src="https://p.sda1.dev/16/8376ff2f54efec9ba16a97523b53c94c/20240305_180749.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kria  
+##### 2140#       发表于 2024-3-5 18:10
+
+<img src="https://img.saraba1st.com/forum/202403/05/181014n71hm83mhgcm2f7q.png" referrerpolicy="no-referrer">
+
+<strong>Q8N0-tcd_400x400.png</strong> (39.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/181020vp6gzay16xyz6641.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1500x500 (2).jpeg</strong> (184.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:10 上传
+
+*****
+
+####  cckuku  
+##### 2141#       发表于 2024-3-5 18:10
+
+15岁读的应该是中专吧？
+
+*****
+
+####  田所あずさ  
+##### 2142#       发表于 2024-3-5 18:10
+
+<img src="https://img.saraba1st.com/forum/202403/05/181053k7wzq60w8pcb0qz5.png" referrerpolicy="no-referrer">
+
+<strong>P3DK~MS(F[7(T]JPD(9@I0Y_tmb.png</strong> (84.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:10 上传
+
+大专！
+
+*****
+
+####  田所あずさ  
+##### 2143#       发表于 2024-3-5 18:11
+
+<img src="https://img.saraba1st.com/forum/202403/05/181106lxxit6byop1bxoxb.png" referrerpolicy="no-referrer">
+
+<strong>J1BNINMR)T~[{BC4BE]3)WJ_tmb.png</strong> (21.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:11 上传
+
+*****
+
+####  Srchy  
+##### 2144#       发表于 2024-3-5 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这下真中专大师了
+
+*****
+
+####  RhmBWT_Wu  
+##### 2145#       发表于 2024-3-5 18:11
+
+黄信号灯才75？你退群吧
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  田所あずさ  
+##### 2146#       发表于 2024-3-5 18:11
+
+<img src="https://img.saraba1st.com/forum/202403/05/181141wjajfk5bnjpck9k9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:11 上传
+
+*****
+
+####  三度音  
+##### 2147#       发表于 2024-3-5 18:11
+
+我怎么看到了个条纹人
+
+*****
+
+####  Vacuolar  
+##### 2148#       发表于 2024-3-5 18:11
+
+好迷惑的标志，跟本家难分高下
+
+*****
+
+####  a1370303  
+##### 2149#       发表于 2024-3-5 18:12
+
+logo是两只鸟吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  田所あずさ  
+##### 2150#       发表于 2024-3-5 18:12
+
+<img src="https://img.saraba1st.com/forum/202403/05/181239v93z3k7zkcr931r1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:12 上传
+
+*****
+
+####  cckuku  
+##### 2151#       发表于 2024-3-5 18:12
+
+对这些声优不熟啊？都是新人吗？
+
+*****
+
+####  田所あずさ  
+##### 2152#       发表于 2024-3-5 18:13
+
+黄色蓝色胸围是不是反了？
+
+*****
+
+####  Anatoly  
+##### 2153#       发表于 2024-3-5 18:13
+
+两只蜂鸟
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  田所あずさ  
+##### 2154#       发表于 2024-3-5 18:13
+
+我操你的，赛马娘？
+
+FT`BN~`8@2(K[{7YPSQR0]B.jpg
+(113.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:13 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/181346x0izt07o0yg9oog9.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 2155#       发表于 2024-3-5 18:14
+
+唱的好烂是可以说的吗？
+
+*****
+
+####  Srchy  
+##### 2156#       发表于 2024-3-5 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么看起来卡卡的，是我网的问题吗
+
+*****
+
+####  田所あずさ  
+##### 2157#       发表于 2024-3-5 18:14
+
+说ip的滚出来认错
+
+*****
+
+####  a1370303  
+##### 2158#       发表于 2024-3-5 18:14
+
+黄c像是雌小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  田所あずさ  
+##### 2159#       发表于 2024-3-5 18:14
+
+<img src="https://img.saraba1st.com/forum/202403/05/181451sc69vcio5vcc1cvh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:14 上传
+
+*****
+
+####  安广多惠子  
+##### 2160#       发表于 2024-3-5 18:14
+
+这两只鸟击剑的logo有点抽象
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Anatoly  
+##### 2161#       发表于 2024-3-5 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156238&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-3-5 18:14</a>
+唱的好烂是可以说的吗？</blockquote>
+可以，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这一唱我就没想法了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  田所あずさ  
+##### 2162#       发表于 2024-3-5 18:15
+
+<img src="https://img.saraba1st.com/forum/202403/05/181542mcaw7a2wza20kvec.png" referrerpolicy="no-referrer">
+
+<strong>($I~}J[Q2@DW1AX[(7Y44SX_tmb.png</strong> (82.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:15 上传
+

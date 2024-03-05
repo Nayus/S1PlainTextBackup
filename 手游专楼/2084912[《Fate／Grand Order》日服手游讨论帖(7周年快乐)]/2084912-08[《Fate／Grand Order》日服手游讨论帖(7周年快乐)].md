@@ -760,3 +760,11 @@ loop是什么意思，老婆吗？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烟雾镜这个爆杀原版了，fgo特色礼装秒本体立绘
 
+
+*****
+
+####  希望之花  
+##### 11473#       发表于 2024-3-5 18:12
+
+烟雾镜原版对上谁都是被薄纱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

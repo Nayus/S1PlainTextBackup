@@ -5436,3 +5436,11 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 爽局，离彻底糊胡差一张人脸触发两次，倒在 e17 了
 
+
+*****
+
+####  hansel  
+##### 480#       发表于 2024-3-5 10:36
+
+开局拿到一张复制主动牌的传奇，后面又拿到蓝图和根据行星1.5倍的 vouchers，拿到同花就开始无脑复制了每回合增加*2.25<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

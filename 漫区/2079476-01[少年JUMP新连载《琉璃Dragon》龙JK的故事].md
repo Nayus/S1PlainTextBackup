@@ -85,3 +85,13 @@
 
 所以有能人能分析一下前六话为啥会那么有感觉吗
 
+
+*****
+
+####  kyonkoism  
+##### 142#       发表于 2024-3-5 10:38
+
+感觉复刊了以后画面没以前干净了，线条变多好多
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

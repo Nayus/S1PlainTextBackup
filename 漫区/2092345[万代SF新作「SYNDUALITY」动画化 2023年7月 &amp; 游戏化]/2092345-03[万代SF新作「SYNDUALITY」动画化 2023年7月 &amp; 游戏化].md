@@ -4185,3 +4185,21 @@ your song 古贺葵版
 
 鸭子要不还是回去拍校园党争吧，输了好歹留个全尸，换个要死人的世界观败犬就得往死里弄<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  765事务所  
+##### 4211#       发表于 2024-3-5 10:38
+
+台长来了呀，有没有兴趣等片子播完了开个批斗会呀<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 4212#       发表于 2024-3-5 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64150693&amp;ptid=2092345" target="_blank">ganeid 发表于 2024-3-5 10:25</a>
+
+现在我说这片和网管半斤八两还有异议吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比网管烂的多了吧
+

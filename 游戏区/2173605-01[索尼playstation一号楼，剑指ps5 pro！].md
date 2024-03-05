@@ -1241,3 +1241,14 @@ Nick老师说3月5号左右将有对马岛之魂PC移植版的消息<img src="ht
 
 说个问题，自从换了ps5每次开机进游戏的那个菜单，都在醒目位置写着你的游戏进度玩到百分之多少了，我很不喜欢这个设计，每回看见就像看进度条剧透一样，都想把它屏蔽了，纯属画蛇添足的设计
 
+
+*****
+
+####  ultraseven  
+##### 139#       发表于 2024-3-6 00:37
+
+索尼楼真没热度啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+发个西之绝境PC版配置要求
+<img src="https://pbs.twimg.com/media/GH6RCmiWUAEHocG?format=jpg&amp;name=4096x4096" height="450" id="aimg_xf0Ho" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+

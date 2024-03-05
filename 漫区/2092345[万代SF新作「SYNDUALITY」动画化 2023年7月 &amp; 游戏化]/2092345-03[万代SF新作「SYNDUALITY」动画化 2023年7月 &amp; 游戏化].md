@@ -4816,3 +4816,11 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 其实就是想写感动，然而写不好就变成了自我感动
 
+
+*****
+
+####  三合一出现  
+##### 4269#       发表于 2024-3-5 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我前面看得好好的，夏尔一过世怎么就出现这么恶心的剧情了。
+

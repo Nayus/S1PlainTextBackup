@@ -9527,3 +9527,13 @@ srds，管马仕还是算了<img src="https://static.saraba1st.com/image/smiley/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人开发手游是只会坐牢吗
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2460#       发表于 2024-3-5 23:43
+
+<img src="https://p.sda1.dev/16/b38e33e489ee6b74e6d7c5a3d0334baf/CMP_20240305234133633.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

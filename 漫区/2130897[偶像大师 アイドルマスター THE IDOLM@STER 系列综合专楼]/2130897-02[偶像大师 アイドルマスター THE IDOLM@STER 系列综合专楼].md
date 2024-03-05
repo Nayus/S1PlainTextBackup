@@ -5833,3 +5833,22 @@ JK女P没意思，想看小学生P和高中生偶像<img src="https://static.sar
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Anatoly  
+##### 2092#       发表于 2024-3-5 12:47
+
+这十个问号把我给整不会了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Anatoly  
+##### 2093#       发表于 2024-3-5 12:50
+
+翻了翻，巴西人七个字，埃及人八个音符
+
+啥神仙才能用十个问号才盖住
+

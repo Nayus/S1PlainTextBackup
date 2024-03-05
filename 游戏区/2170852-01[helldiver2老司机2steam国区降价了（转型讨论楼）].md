@@ -12061,3 +12061,14 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 最速电枪真的上瘾，其实箭头应该多设计一些像这种有操作空间的武器
 
+
+*****
+
+####  赤井稻妻  
+##### 1211#       发表于 2024-3-5 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64145892&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-4 19:46</a>
+
+火焰喷射器但凡带一点控制都不至于没人用，直伤伤害是有的，但短手无控纯纯是跟虫子近身肉搏。 ...</blockquote>
+这游戏带控制的武器就磁轨枪和重炮手吧
+

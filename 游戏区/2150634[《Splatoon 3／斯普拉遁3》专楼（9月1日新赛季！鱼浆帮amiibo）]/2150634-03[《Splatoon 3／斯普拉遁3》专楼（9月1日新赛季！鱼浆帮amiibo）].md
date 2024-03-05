@@ -5814,3 +5814,13 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 打麻了，这图里谁也抓不到
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3574#       发表于 2024-3-5 10:26
+
+昨晚从传说40开始往上打简直吓死个人，前几把差点掉出传说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打到400下了，今晚看能不能从200摸上600
+
+原来现在传说低分段这么可怕<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

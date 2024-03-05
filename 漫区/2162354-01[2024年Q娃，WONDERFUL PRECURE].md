@@ -473,3 +473,14 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 懂了，复刻
 
+
+*****
+
+####  davchen  
+##### 1130#       发表于 2024-3-5 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64133830&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-3-3 19:23</a>
+
+这粉主职责分的是不是有点多啊，该不会到最后非人主是装的本质还是真人主吧，新的创新又无了 ...</blockquote>
+西方有青蛙王子和野天鹅，东方有大师兄不好啦师父被黄袍怪变成老虎啦
+

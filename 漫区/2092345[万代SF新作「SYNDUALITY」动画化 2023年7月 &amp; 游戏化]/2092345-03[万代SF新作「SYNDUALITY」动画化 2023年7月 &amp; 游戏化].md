@@ -4354,3 +4354,19 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 最好笑的是，Ideal那么大也那么强，结果里面连个AI机仆都看不见，难道大boss日常不用喝水吃饭的咯？还是他早已经不是人类的身体？
 
+
+*****
+
+####  西人  
+##### 4228#       发表于 2024-3-5 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">代哥憋个大的就这坨玩意？
+
+
+*****
+
+####  何处分可  
+##### 4229#       发表于 2024-3-5 12:06
+
+我觉得这俩黑白机体描写都不太行，现在真有人喜欢纯嘴臭的人设吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

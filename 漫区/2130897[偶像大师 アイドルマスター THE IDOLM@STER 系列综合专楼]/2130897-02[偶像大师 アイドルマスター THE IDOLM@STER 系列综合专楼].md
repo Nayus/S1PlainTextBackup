@@ -5852,3 +5852,23 @@ JK女P没意思，想看小学生P和高中生偶像<img src="https://static.sar
 
 啥神仙才能用十个问号才盖住
 
+
+*****
+
+####  koodooliz  
+##### 2094#       发表于 2024-3-5 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152540&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-5 12:50</a>
+
+翻了翻，巴西人七个字，埃及人八个音符
+
+啥神仙才能用十个问号才盖住</blockquote>
+这个是composer，作曲啊
+
+*****
+
+####  天球仪观测者  
+##### 2095#       发表于 2024-3-5 13:17
+
+作曲的这个长度的名字是不是找术力口那边的了（
+

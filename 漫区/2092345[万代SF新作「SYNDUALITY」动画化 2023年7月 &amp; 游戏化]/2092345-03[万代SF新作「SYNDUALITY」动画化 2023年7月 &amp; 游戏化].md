@@ -4504,3 +4504,59 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 别的不说，这集live作画也太崩了吧，结果一看staff表还是总作监画的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4240#       发表于 2024-3-5 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152679&amp;ptid=2092345" target="_blank">没取名啊 发表于 2024-3-5 13:05</a>
+
+山本裕介也拍百合萌萌爱呀
+
+哦对了他还参与过v高达</blockquote>
+山本裕介 还负责过 超魔神英雄传好几集的分镜，还曾经是 创圣Evol的动画监督呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但是SYNDUALITY Noir的打戏，上半部分还凑合能看，下半部分第15集分镜都不太行了呢
+
+我还疑惑山本裕介怎么退步那么明显了……
+
+
+*****
+
+####  oi99o  
+##### 4241#       发表于 2024-3-5 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152196&amp;ptid=2092345" target="_blank">嘴上名作粉碎锤 发表于 2024-3-5 12:19</a>
+
+塞在BD里当特典卖呢（因为价格是BD的价格，普通CD专辑一般没那么贵的）
+
+ ...</blockquote>
+塞bd卖的是名曲翻唱，事实上现在确实没有your song独唱版的消息
+
+*****
+
+####  瓦格雷  
+##### 4242#       发表于 2024-3-5 13:20
+
+大叔也能变诺瓦吗  
+
+*****
+
+####  没取名啊  
+##### 4243#       发表于 2024-3-5 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152799&amp;ptid=2092345" target="_blank">嘴上名作粉碎锤 发表于 2024-3-5 13:18</a>
+山本裕介 还负责过 超魔神英雄传好几集的分镜，还曾经是 创圣Evol的动画监督呢
+
+但是SYNDUALITY N ...</blockquote>
+一期快结局时山本裕介分镜的那集其实还不错，战斗的好看程度比前面的都高
+
+
+*****
+
+####  Grahamlinks  
+##### 4244#       发表于 2024-3-5 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我个人是觉得山本裕介在本片一般般
+

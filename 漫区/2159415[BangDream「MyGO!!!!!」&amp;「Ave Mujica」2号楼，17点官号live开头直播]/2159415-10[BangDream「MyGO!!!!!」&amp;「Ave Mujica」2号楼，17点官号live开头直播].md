@@ -7208,3 +7208,25 @@ fmt还开在浅水湾的话去一次没什么大不了的
 
 那什么时候在缭乱大马路里扯几嗓子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arachnid  
+##### 13950#       发表于 2024-3-5 20:56
+
+今天的最大份乐子，刚刷到线下见面会的消息，我有点好奇他们买粉的时候有想到会到这个地步吗，还有叫大家来赛博填线，万一李子真整个1000+的场子咋办，这次他们真的玩脱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 13951#       发表于 2024-3-5 21:00
+
+过两年没准真能看到鼓奏李在武士道摇滚节合唱大马路
+
+*****
+
+####  septer  
+##### 13952#       发表于 2024-3-5 21:00
+
+萌萌人的第一次被内娱溜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

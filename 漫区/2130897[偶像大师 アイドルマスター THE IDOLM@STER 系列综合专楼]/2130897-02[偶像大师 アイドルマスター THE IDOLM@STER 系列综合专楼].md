@@ -8288,3 +8288,126 @@ sc刚出时有人骂太像拉邦没imas之魂吗？
 
 羽那有强力pl，学可是禁止pl二创的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2344#       发表于 2024-3-5 20:56
+
+我看说是discord禁？虽然没搞懂为啥这么搞，按说也是官方discord频道吧
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  magicc  
+##### 2345#       发表于 2024-3-5 20:57
+
+不是官方discord禁止么
+
+*****
+
+####  rgauss  
+##### 2346#       发表于 2024-3-5 20:57
+
+目前只在dc群禁了 不知道万代想做啥
+
+估计是官方 好歹让人收敛下 虽然也在聊卑女这些就是了
+
+*****
+
+####  天球仪观测者  
+##### 2347#       发表于 2024-3-5 20:57
+
+官方频道禁止聊这些，只是想规整讨论吧（）
+
+*****
+
+####  安广多惠子  
+##### 2348#       发表于 2024-3-5 20:57
+
+就是官方discord的规矩而已，你其他地方爱画啥画啥爱写啥写啥，他吃饱撑着管你
+
+*****
+
+####  patema  
+##### 2349#       发表于 2024-3-5 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157586&amp;ptid=2130897" target="_blank">modedd 发表于 2024-3-5 20:12</a>
+
+这句话是禁止出现恋爱关系的意思吗，无法想象，是我哪里理解错了吗 ...</blockquote>
+是discord内部的规章吧，防打架的估计
+
+*****
+
+####  rgauss  
+##### 2350#       发表于 2024-3-5 20:59
+
+ 本帖最后由 rgauss 于 2024-3-5 21:00 编辑 
+
+官方dc群现在问题是 人太几把多了 它就开了一个杂谈区 那消息就是一秒钟十条往上飞
+
+群里日本人说是百合禁止巴拉巴拉
+
+*****
+
+####  patema  
+##### 2351#       发表于 2024-3-5 21:00
+
+又不管外面，到时候给你来几段“友情”互动。p老嗨纷纷回旋
+
+*****
+
+####  舆水沉浮  
+##### 2352#       发表于 2024-3-5 21:00
+
+爱马仕的头号功臣是谁?.jpg<img src="https://p.sda1.dev/16/da275b7831d99b2f826954072aef4c71/CMP_20240305210010606.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 2353#       发表于 2024-3-5 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158152&amp;ptid=2130897" target="_blank">patema 发表于 2024-3-5 21:00</a>
+又不管外面，到时候给你来几段“友情”互动。p老嗨纷纷回旋</blockquote>
+肉眼可见“友情”互动好吧 现在都没组合
+
+
+*****
+
+####  花开安菲路  
+##### 2354#       发表于 2024-3-5 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158016&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-3-5 20:49</a>
+关键是你这学也不新啊，不全是其他地方抄过来的东西</blockquote>
+我只是玩个梗，让大家不要看到“新”作品就抵触，起码真正端出来再说，并不是说它搞出了什么新东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+音游本来就没什么能创新的了，更何况万南这种大企业病的，冢中枯骨罢了养了一群落后时代的，就更别指望了，它要不外包会更拉。
+我对它的期待就是建模音乐编舞好一点，剧情优化别拖后腿，作为音游就能好好玩了。
+scsp作为新游根本连及格都不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2355#       发表于 2024-3-5 21:03
+
+现在我对代孙的要求已经低到别强制女p就行
+
+*****
+
+####  cckuku  
+##### 2356#       发表于 2024-3-5 21:03
+
+什么年代了还在卖传统pl，当然是不锁主视角性别男女通吃啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">最好学fgo给男p女p各设置一下形象噢。
+
+*****
+
+####  magicc  
+##### 2357#       发表于 2024-3-5 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158186&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-3-5 21:02</a>
+
+我只是玩个梗，让大家不要看到“新”作品就抵触，起码真正端出来再说，并不是说它搞出了什么新东西[f:067 ...</blockquote>
+不过这次好像不是音游，是SC那种培养的游戏系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

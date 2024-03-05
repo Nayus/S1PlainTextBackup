@@ -9371,3 +9371,18 @@ happier算偶像歌，fashionable不算<img src="https://static.saraba1st.com/im
 —— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 下面这个更像喜多川海梦啊。
 
+
+*****
+
+####  rgauss  
+##### 2443#       发表于 2024-3-5 22:29
+
+这个更像缝了某个轻小说的人设
+
+*****
+
+####  我cp结婚了  
+##### 2444#       发表于 2024-3-5 22:31
+
+人设轻小说剧本轻小说，轻偶像是吧
+

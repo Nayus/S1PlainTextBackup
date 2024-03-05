@@ -1493,3 +1493,21 @@ XM(4W_}XV2XJC{DUEPV6H]E.jpg
 
 已经有人画出来了
 
+
+*****
+
+####  holoan  
+##### 8321#         楼主| 发表于 2024-3-5 22:29
+
+<img src="https://img.saraba1st.com/forum/202403/05/222838d8br0cv9jkx5j5s9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 22:28 上传
+
+跟同接数字惊异的一致
+
+不过现在推特有大量的bot污染热门话题就是了
+

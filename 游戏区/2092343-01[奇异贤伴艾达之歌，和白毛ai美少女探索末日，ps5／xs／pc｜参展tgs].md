@@ -1475,3 +1475,17 @@ Bandai Namco发布旗下机甲动作游戏《奇异贤伴 爱达之歌》最新�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候看看beta
 
+
+*****
+
+####  绚烂航迹云  
+##### 145#       发表于 2024-3-5 12:32
+
+<blockquote>引用第141楼Yugao于2024-03-05 10:18发表的  :
+
+这种游戏模式最后就是利好开挂玩家吧</blockquote>
+只要游戏够暴死，就不会有挂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我Exoprimal玩了几十小时，也没感觉有遇到过挂，实在没啥值得用挂的，赢了都没啥奖励
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+

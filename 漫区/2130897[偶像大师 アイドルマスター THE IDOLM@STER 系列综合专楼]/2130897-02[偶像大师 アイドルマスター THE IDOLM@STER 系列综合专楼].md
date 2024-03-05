@@ -9595,3 +9595,13 @@ srds，管马仕还是算了<img src="https://static.saraba1st.com/image/smiley/
 
 btw，虽然实际上运营路线能有接近90度的不同，但是莲之空和管玛士的现状很难不让人觉得现在负责大帅的人里很多跟叔叔的手游部门算卧龙凤雏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liyropen  
+##### 2468#       发表于 2024-3-6 02:26
+
+莲之空还行吧。手游收入这块因为pvp浓度高卡牌强度有影响，但是大多数人能个人战拿个ur团体战拿个a档就行，就这要求的话pvp压力一般般，除开强度之外只有语音和卡图，会氪金抽卡的只有厨力玩家了。app直播同接稳定1w+，cd销量也还好。只能说app吸金能力一般，但成本也没那么高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

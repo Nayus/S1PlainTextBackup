@@ -7898,3 +7898,109 @@ live画面挺好，前面练习环节的动作有点僵
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">牛魔 我想去dc看看日本人怎么吐槽这个的
 结果半天还没给我身份
 
+
+*****
+
+####  黛冬优子  
+##### 2303#       发表于 2024-3-5 19:57
+
+感觉动作画面对标马娘
+
+`7AO{N$MW$`NK@[%$F[JFN9.gif
+(293.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/195715vzx8vvwv2axhm2q2.gif" referrerpolicy="no-referrer">
+
+[K8IR4OU4RB~OJE427`KCAY.gif
+(493.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/195715x7txmt8fxhdhlyzh.gif" referrerpolicy="no-referrer">
+
+GGE6G9N$N)K`%MDZ02V1)QF.gif
+(243.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/195715v4rp4xxnsshx4zxv.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 2304#       发表于 2024-3-5 20:00
+
+话说scsp是南梦宫自己开发的么，这么看南梦宫的的开发实力确实有点堪忧了，AC8也是和ILCA合作开发的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃饭传说  
+##### 2305#       发表于 2024-3-5 20:01
+
+这作又回到solo路线了哦
+
+
+*****
+
+####  Vacuolar  
+##### 2306#       发表于 2024-3-5 20:03
+
+<blockquote>magicc 发表于 2024-3-5 20:00
+话说scsp是南梦宫自己开发的么，这么看南梦宫的的开发实力确实有点堪忧了，AC8也是和ILCA合作开发的吧？[f: ...</blockquote>
+万代独立开发的，南梦宫成员被踢出开发才有这一出，最乐的是上线前bug太多紧急要来南梦宫的老人修bug，上线后又把他们踢了。
+
+*****
+
+####  田所あずさ  
+##### 2307#       发表于 2024-3-5 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157432&amp;ptid=2130897" target="_blank">magicc 发表于 2024-3-5 20:00</a>
+
+话说scsp是南梦宫自己开发的么，这么看南梦宫的的开发实力确实有点堪忧了，AC8也是和ILCA合作开发的吧？[f: ...</blockquote>
+外包，偶像大师目前真正自己开发自己运营的游戏只有mltd
+
+*****
+
+####  davchen  
+##### 2308#       发表于 2024-3-5 20:05
+
+看到蓝主试图复刻72脑壳疼
+
+想起王晶让张卫健葛民辉张家辉学周星驰演戏
+
+*****
+
+####  rgauss  
+##### 2309#       发表于 2024-3-5 20:05
+
+https://x.com/kidosan335/status/1764973246045389122?s=20
+
+*****
+
+####  田所あずさ  
+##### 2310#       发表于 2024-3-5 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157432&amp;ptid=2130897" target="_blank">magicc 发表于 2024-3-5 20:00</a>
+
+话说scsp是南梦宫自己开发的么，这么看南梦宫的的开发实力确实有点堪忧了，AC8也是和ILCA合作开发的吧？[f: ...</blockquote>
+南梦宫实际上已经没有开发团队了，都被万代抽走了，南梦宫如果要请以前南梦宫的人做游戏是一样要付钱的，但是南梦宫付不起，南梦宫的旧部除了走掉了的基本上就是去mltd和铁拳ac这几个项目了
+
+*****
+
+####  虚无缥缈的光阴  
+##### 2311#       发表于 2024-3-5 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157385&amp;ptid=2130897" target="_blank">黛冬优子 发表于 2024-3-5 19:57</a>
+感觉动作画面对标马娘</blockquote>
+越来越像派对孔明的女主英子……<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

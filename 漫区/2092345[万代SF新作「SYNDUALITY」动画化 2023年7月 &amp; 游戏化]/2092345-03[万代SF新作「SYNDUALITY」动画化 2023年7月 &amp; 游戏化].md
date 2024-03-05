@@ -4203,3 +4203,37 @@ your song 古贺葵版
 现在我说这片和网管半斤八两还有异议吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比网管烂的多了吧
 
+
+*****
+
+####  bandage_n2_ki  
+##### 4213#       发表于 2024-3-5 10:46
+
+时髦度不如网管呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 4214#       发表于 2024-3-5 10:50
+
+乐色
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  没取名啊  
+##### 4215#       发表于 2024-3-5 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64150693&amp;ptid=2092345" target="_blank">ganeid 发表于 2024-3-5 10:25</a>
+现在我说这片和网管半斤八两还有异议吗</blockquote>
+台长你能在节目里把网管吹成改变二次元的名作，这个片能能吹成一个水准吗？恐怕很难吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 4216#       发表于 2024-3-5 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">王冠机设比这个电饭煲好看吧，这个电饭煲真不行
+

@@ -5824,3 +5824,16 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 原来现在传说低分段这么可怕<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 3575#       发表于 2024-3-5 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64140160&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-3-4 11:44</a>
+
+一条命和一段攻击伤害提升
+
+—— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+三条命去打，命在30层前买全，后面几层比较恶心的话拿金币跳关，保证见boss时3命就好。
+

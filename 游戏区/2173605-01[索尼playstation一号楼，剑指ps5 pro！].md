@@ -1252,3 +1252,11 @@ Nick老师说3月5号左右将有对马岛之魂PC移植版的消息<img src="ht
 发个西之绝境PC版配置要求
 <img src="https://pbs.twimg.com/media/GH6RCmiWUAEHocG?format=jpg&amp;name=4096x4096" height="450" id="aimg_xf0Ho" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
+
+*****
+
+####  P02  
+##### 140#       发表于 2024-3-6 00:56
+
+第一方优化再顶天在老黄也就一张RTX3070的定位
+

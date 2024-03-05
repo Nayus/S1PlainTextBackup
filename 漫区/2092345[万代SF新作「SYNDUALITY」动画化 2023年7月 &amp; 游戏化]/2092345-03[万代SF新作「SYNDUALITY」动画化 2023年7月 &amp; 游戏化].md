@@ -4388,3 +4388,76 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 我觉得这俩黑白机体描写都不太行，现在真有人喜欢纯嘴臭的人设吗</blockquote>
 我觉得黑皮可以洗一洗了，身体里有这么一个随时可以完全代替你的玩意儿，你的脾气也不会好的。
 
+
+*****
+
+####  何处分可  
+##### 4232#       发表于 2024-3-5 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152118&amp;ptid=2092345" target="_blank">kkl12355 发表于 2024-3-5 12:11</a>
+
+我觉得黑皮可以洗一洗了，身体里有这么一个随时可以完全代替你的玩意儿，你的脾气也不会好的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑皮睡前也不知道有这么个玩意，嘴臭怕是天生自带的
+
+*****
+
+####  何处分可  
+##### 4233#       发表于 2024-3-5 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152089&amp;ptid=2092345" target="_blank">cybernetics31 发表于 2024-3-5 12:08</a>
+
+谁会喜欢啊xb2光嘴臭但人家有大白腿和大奶啊。
+
+歌姬好看多了，连动画bd都知道拿歌姬水着当特 ...</blockquote>
+光是典型的傲娇人设，黑皮我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4234#       发表于 2024-3-5 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64151771&amp;ptid=2092345" target="_blank">cybernetics31 发表于 2024-3-5 11:43</a>
+
+合唱版your song上流媒体了我的歌姬独唱版呢…………md，人没了，给个独唱版都不给啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">塞在BD里当特典卖呢（因为价格是BD的价格，普通CD专辑一般没那么贵的）
+
+<img src="https://img.saraba1st.com/forum/202403/05/121925fguueqrqzqbrdr4z.jpg" referrerpolicy="no-referrer">
+
+<strong>角色歌 0.jpg</strong> (59.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 12:19 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/121924hcqg5fnnbzgz5nn6.jpg" referrerpolicy="no-referrer">
+
+<strong>角色歌 1.jpg</strong> (160.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 12:19 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/121924s415grmr51fnfsq5.jpg" referrerpolicy="no-referrer">
+
+<strong>角色歌 2.jpg</strong> (93.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 12:19 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/121924jzmh80uu8aapvuyf.jpg" referrerpolicy="no-referrer">
+
+<strong>角色歌 3.jpg</strong> (99.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 12:19 上传
+
+
+*****
+
+####  renkan119  
+##### 4235#       发表于 2024-3-5 12:23
+
+说起来黑现在这存在也很微妙 原来以为是主线剧情的重要人物 结果实际上也没知道太多东西 白分离出来后更是和主线基本没关系了 跟主角团的关系也微妙 成了单纯提供一点线索的工具人
+

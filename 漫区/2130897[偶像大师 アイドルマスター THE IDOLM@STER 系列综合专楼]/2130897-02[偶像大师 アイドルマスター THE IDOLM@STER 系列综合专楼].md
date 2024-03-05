@@ -9082,3 +9082,80 @@ game i的scsp页面下面的留言，非常有趣
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">要推新团了老团当然要乖乖让路，偶像企划不就是这样的
 
+
+*****
+
+####  田所あずさ  
+##### 2417#       发表于 2024-3-5 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158582&amp;ptid=2130897" target="_blank">任天索尼子 发表于 2024-3-5 21:43</a>
+
+嫌弃声优丑的想想角元是不是感觉新人太漂亮了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/05/215003gyddzn11wrzl11ew.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 21:50 上传
+
+来，我现场打开4th的bd截图给你说说看啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 2418#       发表于 2024-3-5 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158641&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-5 21:50</a>
+
+来，我现场打开4th的bd截图给你说说看啊</blockquote>
+自己保持不好形象还要怪观众啊<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Unlight|-1||
+
+查看全部评分
+
+*****
+
+####  田所あずさ  
+##### 2419#       发表于 2024-3-5 21:55
+
+给你嘴硬的
+
+*****
+
+####  Seeley  
+##### 2420#       发表于 2024-3-5 21:55
+
+讲真角元以后身材失控我是觉得有激素相关疾病的可能的，但没公布没法验证也不能往这边论
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cckuku  
+##### 2421#       发表于 2024-3-5 21:56
+
+肉体厨别急<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">都说了后面还有六个人。
+
+而且一个游戏只有九个偶像实在太少了，我打赌肯定会有新追加的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Seeley  
+##### 2422#       发表于 2024-3-5 21:56
+
+学马三次元不论，我有点不能接受红c第一首是giga的曲子<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">总感觉缺了什么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

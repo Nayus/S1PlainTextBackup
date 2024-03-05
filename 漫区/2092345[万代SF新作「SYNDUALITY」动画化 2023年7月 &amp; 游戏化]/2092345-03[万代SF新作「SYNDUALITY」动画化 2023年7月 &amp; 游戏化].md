@@ -4735,3 +4735,11 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  洛克萨斯  
+##### 4262#       发表于 2024-3-5 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">古贺葵应该做不到用诺娃的声音唱歌............听起来不像诺娃在唱
+

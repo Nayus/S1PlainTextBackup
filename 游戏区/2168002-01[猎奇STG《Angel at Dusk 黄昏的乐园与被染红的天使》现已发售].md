@@ -56,3 +56,13 @@ CAVE社楼上基本都说了，再提名俩，斑鸠（Ikaruga）和大流士（
 
 steam可能没有的倒是想推荐，r-type系列和thunder force 5 ，前者的剧情和设定也有点让人头皮发麻，但比起黄昏的天使口味轻多了，后者我觉得主要是音乐好听
 
+
+*****
+
+####  杰尼龟2号机  
+##### 141#       发表于 2024-3-5 21:39
+
+手残也能过的STG，碎片化收集的剧情设定很吸引人，孩子很满意<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

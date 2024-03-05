@@ -4262,3 +4262,20 @@ your song 古贺葵版
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 4220#       发表于 2024-3-5 11:24
+
+要让noir接受夏尔身体很容易就能想到这出，应该说这就是俗到极的王道展开吧，楼里居然这么有意见我是挺意外的。
+
+我要抱怨也是抱怨这出没有新意，而且过程中noir明显缺乏觉悟和努力
+
+*****
+
+####  765事务所  
+##### 4221#       发表于 2024-3-5 11:26
+
+主要是夏尔粉太多了（我也是温和的夏尔粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

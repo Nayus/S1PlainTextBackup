@@ -80,3 +80,34 @@ steam可能没有的倒是想推荐，r-type系列和thunder force 5 ，前者�
 
 2024-3-5 21:48 上传
 
+
+*****
+
+####  genki  
+##### 143#       发表于 2024-3-6 05:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63996786&amp;ptid=2168002" target="_blank">Moltres.lv70 发表于 2024-2-19 11:31</a>
+
+同问，steam还有哪些值得玩的 stg，最近用 deck 玩体验很好 除了不能 16:10
+
+—— 来自 meizu 17, Androi ...</blockquote>
+REVOLVER360 RE:ACTOR
+
+很有趣的带纵向滚轴机制的横板STG
+
+ASTEBREED
+
+苍空之雾制作组做的机甲STG
+
+THE HURRICANE OF VARSTRAY
+
+飓风狂飙
+
+BLACK BIRD
+
+黑鸟，风格很独特
+
+REFRAIN PRISM MEMORIES
+
+棱镜记忆，算是挺出名的独立STG作品了
+

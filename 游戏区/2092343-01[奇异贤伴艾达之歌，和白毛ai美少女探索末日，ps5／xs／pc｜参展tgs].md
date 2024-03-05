@@ -1440,3 +1440,14 @@ Bandai Namco发布旗下机甲动作游戏《奇异贤伴 爱达之歌》最新�
 
 动画倒是不错
 
+
+*****
+
+####  cwbn  
+##### 141#       发表于 2024-3-5 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62473850&amp;ptid=2092343" target="_blank">SchwarzX 发表于 2023-9-20 19:39</a>
+
+看访谈说还能绑架别人的老婆赚赎金，这么缺德的玩法是万代哪个天才领导想出来的 ...</blockquote>
+这个设计我觉得鬼子玩家一定会炸，尤其是动画里有表现过抓人-初始化的一条龙操作后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

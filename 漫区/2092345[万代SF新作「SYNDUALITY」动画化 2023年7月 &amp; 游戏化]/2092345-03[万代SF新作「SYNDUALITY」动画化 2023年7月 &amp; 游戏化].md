@@ -4724,3 +4724,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 这集实际上非常有RPG游戏支线风格，像极了前往最终区域前，一个大章节后的收尾支线，这种支线在XB系列屡见不鲜了，然而将套路盲目搬到动画节奏中简直是东施效颦。
 
+
+*****
+
+####  novyDC  
+##### 4261#       发表于 2024-3-5 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152926&amp;ptid=2092345" target="_blank">嘴上名作粉碎锤 发表于 2024-03-05 13:31:19</a>
+好吧，刚才忘用机翻了，我以为没公布曲目就会在里面了</blockquote>第三个不是么
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1390,3 +1390,28 @@ XM(4W_}XV2XJC{DUEPV6H]E.jpg
 
 还好我手快
 
+
+*****
+
+####  rs5621  
+##### 8312#       发表于 2024-3-5 21:18
+
+摄影会泡芙来点截图
+
+*****
+
+####  holoan  
+##### 8313#         楼主| 发表于 2024-3-5 21:20
+
+另外按照holo内部的前例，3月连续新曲发布一般是当年sololive的前序事件
+
+剩下的不用我多少了吧
+
+
+*****
+
+####  holoan  
+##### 8314#         楼主| 发表于 2024-3-5 21:24
+
+ハートオンライン+新衣装最强<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

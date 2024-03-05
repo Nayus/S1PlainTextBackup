@@ -8595,3 +8595,124 @@ scsp存在的价值是不是给页游提供3d live
 第三个也太竹竿了</blockquote>
 <img src="https://p.sda1.dev/16/5709055dadc0a15cfb4450cd02013a95/Image_1709644530670.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黛冬优子  
+##### 2375#       发表于 2024-3-5 21:18
+
+是我最喜欢的学历厨时间
+
+EHPPA2E%JRK[YU0TGC()YYU_tmb.jpg
+(43.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/211812gvmozcov0odpoo4m.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Alicest| + 1|欢乐多|
+| 萨文科夫| + 1|把闪群群友也截上了hhh|
+
+查看全部评分
+
+*****
+
+####  patema  
+##### 2376#       发表于 2024-3-5 21:19
+
+现在好像非9人的学生又两个，都是对手役？一个是疑似重要角色红毛，还有一个蓝毛大和抚子疑似和蓝主有关
+
+*****
+
+####  walfeds  
+##### 2377#       发表于 2024-3-5 21:19
+
+可以理解为什么群友看到这玩意嗷的一声疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换我我也疯
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cckuku  
+##### 2378#       发表于 2024-3-5 21:21
+
+那个预告pv里的红毛真的很重要吧，都出现在卡面里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2379#       发表于 2024-3-5 21:21
+
+雾子厨 何时来的
+
+
+*****
+
+####  patema  
+##### 2380#       发表于 2024-3-5 21:22
+
+反正这俩都挺神秘的，我已经看到白河豚在遐想产粮了（红毛被视作了女p）<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">魔法芝士啊
+
+<img src="https://img.saraba1st.com/forum/202403/05/212250wvim0ap9z6fvxc96.jpg" referrerpolicy="no-referrer">
+
+<strong>{DA51E00E-195E-6600-2044-E6097EF79EB8}.jpg</strong> (91.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/212250z644zz43x533x34a.png" referrerpolicy="no-referrer">
+
+<strong>{52BBAAB0-B407-6C31-4789-8F1680478240}.png</strong> (69.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 21:22 上传
+
+*****
+
+####  rgauss  
+##### 2381#       发表于 2024-3-5 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158407&amp;ptid=2130897" target="_blank">patema 发表于 2024-3-5 21:22</a>
+
+反正这俩都挺神秘的，我已经看到白河豚在遐想产粮了（红毛被视作了女p）魔法芝士啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">反正我只希望别是女p 真的 万代拉啥我都能接受 这个我真接受不了
+
+*****
+
+####  冰寒之月  
+##### 2382#       发表于 2024-3-5 21:26
+
+闪群只是在一遍又一遍确认偶像全员中专学生 P是大专学生 
+
+大概都被学历厨雾子感染了
+
+*****
+
+####  patema  
+##### 2383#       发表于 2024-3-5 21:27
+
+话说那个学历厨小糸bot还在动吗，好久没看了
+
+*****
+
+####  最强惠酱  
+##### 2384#       发表于 2024-3-5 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157385&amp;ptid=2130897" target="_blank">黛冬优子 发表于 2024-3-5 19:57</a>
+感觉动作画面对标马娘</blockquote>
+对标个毛，这就是ip的动作模组照搬过来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

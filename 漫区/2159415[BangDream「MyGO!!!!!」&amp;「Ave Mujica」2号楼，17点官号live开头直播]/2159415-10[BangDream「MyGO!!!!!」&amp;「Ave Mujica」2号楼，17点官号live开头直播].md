@@ -7238,3 +7238,21 @@ fmt还开在浅水湾的话去一次没什么大不了的
 
 理想状况的话应该是今年BW请mygo，明年请mujica
 
+
+*****
+
+####  基神的强袭自由  
+##### 13954#       发表于 2024-3-5 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64153265&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-3-5 14:16</a>
+
+你这ID搭配内容，既视感有点重了</blockquote>
+害怕<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杂兵敬业先锋  
+##### 13955#       发表于 2024-3-5 21:27
+
+感觉这个见面会应该是更早就敲定好的吧？毕竟涉及国外艺人，场地啊报备啊什么的如果从这几天临时起意搞七月不一定能搞定吧？
+

@@ -776,3 +776,15 @@ loop是什么意思，老婆吗？</blockquote>
 
 果然没新卡，奏二要是也没大的，可以攒到周年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11475#       发表于 2024-3-5 18:33
+
+甚麼?
+
+居然可以在新活動完了後，即時再來一個新的活動???太勤力完全不像FGO
+
+看了活動是6/3~27/3，即是奏二最快都4月
+

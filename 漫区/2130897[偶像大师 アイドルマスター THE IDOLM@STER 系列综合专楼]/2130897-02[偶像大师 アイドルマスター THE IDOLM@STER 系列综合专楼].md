@@ -6835,3 +6835,193 @@ BWA_$9QLVD(07JQG)[E_]4K_tmb.jpg
 
 <img src="https://img.saraba1st.com/forum/202403/05/182455b1flfzgs49s498lz.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 2189#       发表于 2024-3-5 18:26
+
+本家一开始，淑女唱苍鸟就很有水平了。后来灰灰百万都有人保证唱功。
+
+*****
+
+####  Anatoly  
+##### 2190#       发表于 2024-3-5 18:28
+
+这个苍真要说还行？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">赤也可以
+黄就……摆了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Unlight  
+##### 2191#         楼主| 发表于 2024-3-5 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156395&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-3-5 18:26</a>
+
+本家一开始，淑女唱苍鸟就很有水平了。后来灰灰百万都有人保证唱功。</blockquote>
+那么闪…
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RhmBWT_Wu| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  liyropen  
+##### 2192#       发表于 2024-3-5 18:29
+
+官网有四格漫第零话，黄色的梦想是成为有钱人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2193#       发表于 2024-3-5 18:29
+
+星组我就觉得**油好点...
+
+*****
+
+####  RhmBWT_Wu  
+##### 2194#       发表于 2024-3-5 18:29
+
+有人认得出人设原案吗
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 2195#       发表于 2024-3-5 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156421&amp;ptid=2130897" target="_blank">liyropen 发表于 2024-3-5 18:29</a>
+官网有四格漫第零话，黄色的梦想是成为有钱人</blockquote>
+说了就是来挣钱的（）
+
+
+*****
+
+####  田所あずさ  
+##### 2196#       发表于 2024-3-5 18:30
+
+这蓝色越看越像雪乃，我真的服了
+
+*****
+
+####  a1370303  
+##### 2197#       发表于 2024-3-5 18:30
+
+我们星组一直是相亲相爱的二人组合啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 2198#       发表于 2024-3-5 18:31
+
+大马油97年的，曈曈是jk<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 2199#       发表于 2024-3-5 18:31
+
+星组两人挺好的
+
+*****
+
+####  Anatoly  
+##### 2200#       发表于 2024-3-5 18:32
+
+单人舞台？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  a1370303  
+##### 2201#       发表于 2024-3-5 18:32
+
+live只有一个人？
+
+*****
+
+####  冰寒之月  
+##### 2202#       发表于 2024-3-5 18:33
+
+居然把美波找来作曲了
+
+*****
+
+####  wfhtony  
+##### 2203#       发表于 2024-3-5 18:33
+
+<img src="https://tc2.wfhtony.space/images/2024/03/05/884c754119da537e540985fa0d0578a1.jpg" referrerpolicy="no-referrer">
+電音部啊（
+既然這次音樂是萬南自己負責製作、發行的，那到時候音樂上翻車了可以正大光明罵萬南了（
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  rgauss  
+##### 2204#       发表于 2024-3-5 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">星组不是一直只有两个吗
+
+*****
+
+####  冰寒之月  
+##### 2205#       发表于 2024-3-5 18:34
+
+这皮肤的光照阴影技术比scsp好多了 不知道手机性能要求如何
+
+*****
+
+####  cybernetics31  
+##### 2206#       发表于 2024-3-5 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 2207#       发表于 2024-3-5 18:34
+
+吹多邊形數和建模中...
+但這個FPS...
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Anatoly  
+##### 2208#       发表于 2024-3-5 18:35
+
+ip明明能稳60吧（）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Srchy  
+##### 2209#       发表于 2024-3-5 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">直播都肉眼可见的卡
+
+*****
+
+####  MELTMOON  
+##### 2210#       发表于 2024-3-5 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人设勉强合格线，期待solo曲团曲出爆款。
+

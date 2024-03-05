@@ -7025,3 +7025,222 @@ ip明明能稳60吧（）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人设勉强合格线，期待solo曲团曲出爆款。
 
+
+*****
+
+####  没取名啊  
+##### 2211#       发表于 2024-3-5 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">微妙
+
+*****
+
+####  田所あずさ  
+##### 2212#       发表于 2024-3-5 18:36
+
+万代你真实机跑啊，再卡点
+
+*****
+
+####  RhmBWT_Wu  
+##### 2213#       发表于 2024-3-5 18:36
+
+草，黄配的游戏往下一拉怎么看到了莲之空<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  冰寒之月  
+##### 2214#       发表于 2024-3-5 18:36
+
+在吹头发多边形数量多
+
+关键是手机带得动吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2215#       发表于 2024-3-5 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156528&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-5 18:36</a>
+
+草，黄配的游戏往下一拉怎么看到了莲之空
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转学过来的了
+
+*****
+
+####  a1370303  
+##### 2216#       发表于 2024-3-5 18:37
+
+这静态展示都卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  前夜秋星  
+##### 2217#       发表于 2024-3-5 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156431&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-5 18:29</a>
+有人认得出人设原案吗
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+之前楼里的推测是へちま
+
+*****
+
+####  cckuku  
+##### 2218#       发表于 2024-3-5 18:38
+
+我苹果12不会玩不了吧？我印象中jp人也不是那种会热衷于高配手机的群体啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 2219#       发表于 2024-3-5 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">qualiarts好像就是CA底下的吧，抄赛马娘怎么了，一家人哦
+
+*****
+
+####  rgauss  
+##### 2220#       发表于 2024-3-5 18:38
+
+好好好 全solo
+
+*****
+
+####  ViviR  
+##### 2221#       发表于 2024-3-5 18:38
+
+所以多边形数量比Ip高吗（
+
+*****
+
+####  kangkangsama  
+##### 2222#       发表于 2024-3-5 18:39
+
+<blockquote>RhmBWT_Wu 发表于 2024-3-5 18:29
+有人认得出人设原案吗
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/05/183857wzd8noo0o5no9uso.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2140.jpeg</strong> (513.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:38 上传
+
+应该就是へちま了（给鹿乃画造型的）
+
+正好还转了
+
+*****
+
+####  hypnossz86  
+##### 2223#       发表于 2024-3-5 18:39
+
+什么叫抄赛马娘
+赛马娘旧爹可是爱马仕亲爹
+这就是十元遗产啊
+
+*****
+
+####  天球仪观测者  
+##### 2224#       发表于 2024-3-5 18:39
+
+还真是<img src="https://p.sda1.dev/16/83b23450badad8e093f69f921ab42f83/Image_1709635080463.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  natmk  
+##### 2225#       发表于 2024-3-5 18:40
+
+新的牢房
+
+*****
+
+####  areklose  
+##### 2226#       发表于 2024-3-5 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156561&amp;ptid=2130897" target="_blank">soranoguiji 发表于 2024-3-5 18:38</a>
+
+qualiarts好像就是CA底下的吧，抄赛马娘怎么了，一家人哦</blockquote>
+？为啥不能说抄自家的SC
+
+*****
+
+####  cckuku  
+##### 2227#       发表于 2024-3-5 18:41
+
+说实话我看到伏见司就觉得整不出啥好活儿。
+
+*****
+
+####  冰寒之月  
+##### 2228#       发表于 2024-3-5 18:42
+
+一看到honeyworks我第一个想到的是杏奈要跑去客串了
+
+*****
+
+####  陆久舟  
+##### 2229#       发表于 2024-3-5 18:42
+
+伏见司确实难绷
+
+*****
+
+####  田所あずさ  
+##### 2230#       发表于 2024-3-5 18:43
+
+<img src="https://img.saraba1st.com/forum/202403/05/184304zg1v8p0t7z5vddl5.png" referrerpolicy="no-referrer">
+
+<strong>2%N{(UHUQW85~2GL59HC4MS_tmb.png</strong> (85.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:43 上传
+
+贵公子超级加班
+
+*****
+
+####  a1370303  
+##### 2231#       发表于 2024-3-5 18:43
+
+贵公子一出来大伙都笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2232#       发表于 2024-3-5 18:45
+
+贵公子收录的时候都在啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  田所あずさ  
+##### 2233#       发表于 2024-3-5 18:45
+
+<img src="https://img.saraba1st.com/forum/202403/05/184523hzswyalfewyqznlq.png" referrerpolicy="no-referrer">
+
+<strong>B}Z%PGKZ`K8101G)UJ3AWVV.png</strong> (37.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:45 上传
+
+差点真看成lhrc了
+
+*****
+
+####  rgauss  
+##### 2234#       发表于 2024-3-5 18:45
+
+别发蓝系好吗 
+

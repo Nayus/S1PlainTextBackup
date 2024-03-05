@@ -1475,3 +1475,21 @@ XM(4W_}XV2XJC{DUEPV6H]E.jpg
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 8320#         楼主| 发表于 2024-3-5 22:08
+
+<img src="https://img.saraba1st.com/forum/202403/05/220532a8zcamp8dhjcci2y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 22:05 上传
+
+[https://twitter.com/saneatsu03/status/1765010379942605287](https://twitter.com/saneatsu03/status/1765010379942605287)
+
+已经有人画出来了
+

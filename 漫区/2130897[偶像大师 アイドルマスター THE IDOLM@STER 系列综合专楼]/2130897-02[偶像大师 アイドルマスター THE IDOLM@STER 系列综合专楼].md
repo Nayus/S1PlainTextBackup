@@ -9260,3 +9260,62 @@ game i的scsp页面下面的留言，非常有趣
 sc刚出时有人骂太像拉邦没imas之魂吗？</blockquote>
 有，而且多的很，首次生放的nico好评率才6 70%，那时轮Spread the Wings这首歌的也多
 
+
+*****
+
+####  我cp结婚了  
+##### 2433#       发表于 2024-3-5 22:08
+
+确实不如dye the sky
+
+*****
+
+####  田所あずさ  
+##### 2434#       发表于 2024-3-5 22:09
+
+sc那次我加的群里面没有这样一边倒的输出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2435#       发表于 2024-3-5 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158811&amp;ptid=2130897" target="_blank">我cp结婚了 发表于 2024-3-5 22:08</a>
+确实不如dye the sky</blockquote>
+dye the sky 都sc出多久之后的歌了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  グラフ  
+##### 2436#       发表于 2024-3-5 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157604&amp;ptid=2130897" target="_blank">magicc 发表于 2024-3-5 20:13</a>
+
+请了三个厕纸高手来写剧本，这次还能写出SC那种独特的味道吗</blockquote>
+sc那种味道也不是初期就有。3D这种形式下SC自己就算资源足够我估计也很难在scsp里复刻出来。再退一步说，剧情也没必要做出sc那种味道
+
+
+*****
+
+####  davchen  
+##### 2437#       发表于 2024-3-5 22:12
+
+先吵三页偶像歌的定义
+
+我觉得淳君节奏天国全系列包括没有vocal的都是偶像歌
+
+黑笔楼忒熊破你一铁路是偶像歌
+
+椎名豪神前晓那种、偶活田中秀和那种是另一种偶像歌
+
+菲梦少女除了国内版OPED以外无论原创和翻唱都是偶像歌
+
+韩团风紫牛紫牛boomboomboom的我就不懂了不评价
+
+*****
+
+####  我cp结婚了  
+##### 2438#       发表于 2024-3-5 22:14
+
+happier算偶像歌，fashionable不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

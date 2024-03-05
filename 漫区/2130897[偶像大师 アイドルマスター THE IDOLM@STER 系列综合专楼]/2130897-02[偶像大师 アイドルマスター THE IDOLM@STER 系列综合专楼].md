@@ -9386,3 +9386,58 @@ happier算偶像歌，fashionable不算<img src="https://static.saraba1st.com/im
 
 人设轻小说剧本轻小说，轻偶像是吧
 
+
+*****
+
+####  Seeley  
+##### 2445#       发表于 2024-3-5 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">先看看吧，我加在的群没反感到灰频那种程度，说的也主要是信号灯反常规，红c挺可爱之类的。
+这还要一点点加东西，之后正式上了再说吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  江口夕  
+##### 2446#       发表于 2024-3-5 22:42
+
+ 本帖最后由 江口夕 于 2024-3-5 22:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友怎么忘了偶像荣耀，但凡提到topidol，麻奈附身的女主面板也确实强
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  冰寒之月  
+##### 2447#       发表于 2024-3-5 22:44
+
+海梦+1 希望性格也是个对宅宅友好的明快辣妹
+
+*****
+
+####  花开安菲路  
+##### 2448#       发表于 2024-3-5 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158979&amp;ptid=2130897" target="_blank">yoyodream 发表于 2024-3-5 22:24</a>
+万代这就把偶像大师的风格全换了想重新定义偶像大师了。这游戏的成品不会是pjsk缝赛马娘的味吧 ...</blockquote>
+应该是是偶像荣耀缝马娘<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2449#       发表于 2024-3-5 22:47
+
+我的群友全是:我去 新的牢房 看看剧情再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+海梦有张卡面（bushi） 从卡面上看性格应该挺好的
+
+*****
+
+####  安广多惠子  
+##### 2450#       发表于 2024-3-5 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要肝度别是马娘级别的，其他都好说
+

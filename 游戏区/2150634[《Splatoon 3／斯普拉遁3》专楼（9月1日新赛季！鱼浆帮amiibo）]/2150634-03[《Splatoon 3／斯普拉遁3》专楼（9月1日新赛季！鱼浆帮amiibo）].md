@@ -5853,3 +5853,15 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 新图第二期就感觉手感全无了，错过第一期的真是可惜了
 
+
+*****
+
+####  DeltaStriker  
+##### 3578#       发表于 2024-3-5 22:42
+
+2hack章鱼绿30层终于过了
+我太菜了
+<img src="https://p.sda1.dev/16/2557bdc214aab1df34d4deadf304b8a2/CMP_20240305224119859.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

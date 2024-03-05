@@ -1005,3 +1005,13 @@ v友制作，新鲜出炉的Sweet Baby Inc眼中的“油腻师姐”</blockquot
 
 感觉以后得欧美游戏是好不了了
 
+
+*****
+
+####  FortuneAura  
+##### 78#       发表于 2024-3-5 12:42
+
+突然冒出这么一个带恶人扛下所有也是挺怪的，除他之外肯定也有其他类似业务的公司，或者大厂内部有类似的部门，只是他比较倒霉最近被挖出来推到风口浪尖了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

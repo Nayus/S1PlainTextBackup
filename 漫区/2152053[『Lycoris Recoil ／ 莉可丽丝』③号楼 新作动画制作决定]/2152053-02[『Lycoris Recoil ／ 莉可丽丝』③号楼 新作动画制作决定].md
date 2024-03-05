@@ -236,3 +236,11 @@
 
 [https://twitter.com/okogesen/status/1764303079221203106/photo/1](https://twitter.com/okogesen/status/1764303079221203106/photo/1)
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 1727#       发表于 2024-3-6 06:31
+
+https://x.com/ricorico873097/status/1764833287439344126?s=20<img src="https://p.sda1.dev/16/be6f4efe7d9092a5e27ec6157084ee85/GH3yg1wXIAAYL8r.jpg" referrerpolicy="no-referrer">
+

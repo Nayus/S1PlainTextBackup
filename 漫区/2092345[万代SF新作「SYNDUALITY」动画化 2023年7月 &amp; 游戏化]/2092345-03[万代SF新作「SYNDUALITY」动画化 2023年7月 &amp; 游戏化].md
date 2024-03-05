@@ -4483,3 +4483,24 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 终极ntr<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 4238#       发表于 2024-3-5 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64151656&amp;ptid=2092345" target="_blank">嘴上名作粉碎锤 发表于 2024-3-5 11:35</a>
+还是那句话，系构青岛崇以前写的是什么脚本？美少女百合贴贴，萌萌爱
+
+写过的原创还把想发的刀子给 ...</blockquote>
+山本裕介也拍百合萌萌爱呀
+哦对了他还参与过v高达
+
+
+*****
+
+####  oi99o  
+##### 4239#       发表于 2024-3-5 13:13
+
+别的不说，这集live作画也太崩了吧，结果一看staff表还是总作监画的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

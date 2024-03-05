@@ -8145,3 +8145,51 @@ IMG_2982.png
 
 <img src="https://img.saraba1st.com/forum/202403/05/202352nv9g3vbuv3vrzhb4.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洋葱葱  
+##### 2327#       发表于 2024-3-5 20:26
+
+giga那歌居然给了红灯？唱得一股咬字不清的味道，感觉不如隔壁烤的vbs一点
+
+*****
+
+####  ViviR  
+##### 2328#       发表于 2024-3-5 20:28
+
+<blockquote>cckuku 发表于 2024-3-5 20:24
+这个应该就是一开始pv里跑步的那个角色吧？但她不在学生九人组里面啊，好神秘。
+
+ ...</blockquote>
+本来想说是不是女p的设定，但想了想p也不需要练声乐啊，挺神秘的。
+
+*****
+
+####  ytttsuuuba  
+##### 2329#       发表于 2024-3-5 20:28
+
+忘了有没有提到天才了，但蓝毛一看就不可能菜，黄毛经典看着菜但提到了特技是舞蹈感觉是标准的其实是天才的类型，反倒是红毛虽然面板看着强介绍也是天才但怎么看后面都会为才能而烦恼。
+
+*****
+
+####  rgauss  
+##### 2330#       发表于 2024-3-5 20:31
+
+入学第一名的才能也不会差吧 我估计红的剧情讲的是她妹妹的事
+
+*****
+
+####  虚无缥缈的光阴  
+##### 2331#       发表于 2024-3-5 20:32
+
+<img src="https://img.saraba1st.com/forum/202403/05/203152noz285kyjz2za8zn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 20:31 上传
+
+黄战士有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

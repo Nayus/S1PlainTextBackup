@@ -4337,3 +4337,20 @@ your song 古贺葵版
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 封测其实完成8-9成了，那游戏本质上是个网游而不是能联网的单机 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4227#       发表于 2024-3-5 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64151315&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-3-5 11:08</a>
+
+这片就是妹子人设好看，机设一坨，前面还能看下去当xb代餐</blockquote>
+其实能当XB或XB2代餐的集数并不多，XB系抛开“发刀子”不多的前提下，世界观设定也是相当严谨的。
+
+SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视角，后面快兜不住才匆忙转回主线。
+
+而下半部分也就是现在播的集数，尤其对主线也就是Ideal以及零式Magus的设定补充基本是拍到哪才想到哪，突出一个不严谨和随意性。
+
+最好笑的是，Ideal那么大也那么强，结果里面连个AI机仆都看不见，难道大boss日常不用喝水吃饭的咯？还是他早已经不是人类的身体？
+

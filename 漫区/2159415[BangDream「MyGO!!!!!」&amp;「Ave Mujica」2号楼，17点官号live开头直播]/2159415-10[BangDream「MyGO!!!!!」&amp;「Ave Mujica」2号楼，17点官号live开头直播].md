@@ -6875,3 +6875,16 @@ NGA本来就是中午互联网下水道，化粪池能起到收集排泄物不�
 這卡圖真的不會出其他商品嗎 ...</blockquote>
 我这有两张，塑封都没拆，还在想怎么装饰一下<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 13914#       发表于 2024-3-5 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64140980&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-3-4 12:53</a>
+一大早上班路上听着黑色生日然后过了个大坑，不知道咋的胎扎漏了胎肩的位置先补了试试，不知 ...</blockquote>
+只要有可能伤到侧壁里面的支撑钢线，都建议整个胎换
+我也是三万公里换胎，幸好车子够差胎够便宜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

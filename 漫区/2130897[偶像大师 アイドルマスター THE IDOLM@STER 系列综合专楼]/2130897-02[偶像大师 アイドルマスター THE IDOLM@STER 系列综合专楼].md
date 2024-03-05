@@ -7845,3 +7845,40 @@ IP+烤精神续作？爱了<img src="https://static.saraba1st.com/image/smiley/f
 
 当然主机也是外包给ILCA的
 
+
+*****
+
+####  黛冬优子  
+##### 2298#       发表于 2024-3-5 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157064&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-5 19:30</a>
+
+滚懂吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请三个厕纸高手写恋爱禁止也太搞了
+
+*****
+
+####  weifire  
+##### 2299#       发表于 2024-3-5 19:44
+
+live画面挺好，前面练习环节的动作有点僵
+
+主机就那10w份的销量，也别指望出新作了
+
+*****
+
+####  tubarl_kumiko  
+##### 2300#       发表于 2024-3-5 19:45
+
+<img src="https://img.saraba1st.com/forum/202403/05/194429ow1w3stt1w7d7euc.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1709639051071.jpg</strong> (226.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:44 上传
+
+官方discord不允许
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

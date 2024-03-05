@@ -986,3 +986,14 @@ v友制作，新鲜出炉的Sweet Baby Inc眼中的“油腻师姐”</blockquot
 
 支持川宝复辟的理由又多了一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bhunter  
+##### 76#       发表于 2024-3-5 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64150721&amp;ptid=2170559" target="_blank">GarfieldX 发表于 2024-3-5 10:27</a>
+
+那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板</blockquote>
+当然有，可是赚钱跟是否喜欢又不是等价关系。之前的环境，zzzq是降低风险。
+

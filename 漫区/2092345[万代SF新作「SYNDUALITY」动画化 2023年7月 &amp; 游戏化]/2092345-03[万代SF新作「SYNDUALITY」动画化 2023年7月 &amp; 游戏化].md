@@ -4370,3 +4370,21 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 我觉得这俩黑白机体描写都不太行，现在真有人喜欢纯嘴臭的人设吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cybernetics31  
+##### 4230#       发表于 2024-3-5 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xb2光嘴臭但人家有大白腿和大奶啊。
+歌姬好看多了，连动画bd都知道拿歌姬水着当特典卖。
+
+*****
+
+####  kkl12355  
+##### 4231#       发表于 2024-3-5 12:11
+
+<blockquote>何处分可 发表于 2024-3-5 12:06
+我觉得这俩黑白机体描写都不太行，现在真有人喜欢纯嘴臭的人设吗</blockquote>
+我觉得黑皮可以洗一洗了，身体里有这么一个随时可以完全代替你的玩意儿，你的脾气也不会好的。
+

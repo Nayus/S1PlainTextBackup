@@ -4601,3 +4601,20 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 一期快结局时山本裕介分镜的那集其实还不错，战斗的好看程度比前面的都高 ...</blockquote>
 第11话可能是山本裕介在这作品里的高光了吧，第1话也是山本裕介负责的分镜，但打戏也就凑合还行<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  砂糖续香香  
+##### 4248#       发表于 2024-3-5 15:14
+
+最后三集不如直接改游戏设定，我是说要牛就要牛的彻底，就像游戏里一样可以直接抓走对面玩家的贤士，不如设定改的再大胆一点。惹啊！寄生虫就是要狠狠地吸你血！<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+我命令你的纯爱女贤士速速变成大叔<img src="https://static.saraba1st.com/image/smiley/carton2017/357.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 4249#       发表于 2024-3-5 15:18
+
+最后那一首让我大为震撼，古贺葵确实和青山姐融合得不错，其实我觉得这话倒不如说是番外的感觉，
+

@@ -6958,3 +6958,11 @@ B站上看到的Eve Mujica<img src="https://static.saraba1st.com/image/smiley/fa
 可以吧，战斗到20点00应该都行</blockquote>
 你这ID搭配内容，既视感有点重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 13922#       发表于 2024-3-5 15:12
+
+最近在补（也感谢有人翻译上传）兔子和奏音的睡衣节目，这节目欢乐效果真的好多，小剧场也挺有趣（虽然语言梗好难get）。兔子真的屑，高尾真的大小姐，什么家里会冒出来贝多芬铜像，西瓜是三角形的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

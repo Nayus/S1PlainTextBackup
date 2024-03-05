@@ -7015,3 +7015,11 @@ B站上看到的Eve Mujica<img src="https://static.saraba1st.com/image/smiley/fa
 看来MyGO还是引到了不少扭曲怪以外的人的</blockquote>
 万象天引还是引来了不少纯良2.5次元企划粉丝的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 13928#       发表于 2024-3-5 15:52
+
+我一直希望让大西女士配真希的，让立希又敬又怕的同时还和祥子关系好，太符合人设了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -752,3 +752,11 @@ loop是什么意思，老婆吗？</blockquote>
 
 烟雾镜的白情礼装太美了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">一眼相中。
 
+
+*****
+
+####  洛克萨斯  
+##### 11472#       发表于 2024-3-5 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烟雾镜这个爆杀原版了，fgo特色礼装秒本体立绘
+

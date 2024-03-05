@@ -7023,3 +7023,11 @@ B站上看到的Eve Mujica<img src="https://static.saraba1st.com/image/smiley/fa
 
 我一直希望让大西女士配真希的，让立希又敬又怕的同时还和祥子关系好，太符合人设了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 13929#       发表于 2024-3-5 17:37
+
+mygo本来就挺纯良——滚也是，这两天补了女武神FL才惊觉，前两部连小黄歌都没有，小黄歌那是祖宗之法，没有还搞什么乐队
+

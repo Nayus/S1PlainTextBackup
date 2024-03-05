@@ -87,3 +87,11 @@
 
 瓶叔新风格还不算稳定加上人设太素导致第一二三话女队友的发型和脸都不一样（衣服也换了好几款，都是靠对白里讲出名字才认得，不过这样没必要的信息不浪费漫画格子，让观众反刍线索也不错）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  katern  
+##### 71#       发表于 2024-3-5 17:37
+
+猫娘骑士可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

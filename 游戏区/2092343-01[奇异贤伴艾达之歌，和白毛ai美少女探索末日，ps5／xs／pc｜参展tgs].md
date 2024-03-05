@@ -1489,3 +1489,11 @@ Bandai Namco发布旗下机甲动作游戏《奇异贤伴 爱达之歌》最新�
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  duraa  
+##### 146#       发表于 2024-3-5 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">单机还有兴趣，网游就算了
+

@@ -4656,3 +4656,11 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 4254#       发表于 2024-3-5 17:44
+
+不过真要说和网管对比的话，至少目前为止彼方比集人的性格要好一些，可能是在大灾害里面阅历促成了不会消沉太久吧，歌姬死后躲在机舱里一段时间就收拾心情结束，大哥说走就走说来就来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（虽然能脱困也全靠大哥），象征性的责怪给了就翻页
+

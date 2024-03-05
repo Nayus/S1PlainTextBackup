@@ -6012,3 +6012,54 @@ cgss这个月的月限由三张变成了两张，不知道是不是因为接下�
 
 会搬出比消消乐更一坨的东西出来吗，不过肯定能比消消乐活得久就是了
 
+
+*****
+
+####  hypnossz86  
+##### 2109#       发表于 2024-3-5 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64155723&amp;ptid=2130897" target="_blank">sodah 发表于 2024-3-5 17:27</a>
+
+会搬出比消消乐更一坨的东西出来吗，不过肯定能比消消乐活得久就是了</blockquote>
+不可能了，消消乐一眼就是骗钱玩意儿，这个起码都做了3dpv了，肯定都有模型啥的了
+
+最次规格不会低于scsp，当然肯定不如最正统的mltd就是了
+
+
+*****
+
+####  田所あずさ  
+##### 2110#       发表于 2024-3-5 17:43
+
+mltd可是这么多南梦宫旧部做出来的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么能比啊
+
+*****
+
+####  Srchy  
+##### 2111#       发表于 2024-3-5 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看看等会正式版本有没有修改
+
+*****
+
+####  cckuku  
+##### 2112#       发表于 2024-3-5 17:45
+
+看着好幼态啊
+
+*****
+
+####  ViviR  
+##### 2113#       发表于 2024-3-5 17:46
+
+幼好啊
+
+*****
+
+####  RhmBWT_Wu  
+##### 2114#       发表于 2024-3-5 17:47
+
+看起来还蛮可爱啊
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

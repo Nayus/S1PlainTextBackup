@@ -6966,3 +6966,34 @@ B站上看到的Eve Mujica<img src="https://static.saraba1st.com/image/smiley/fa
 
 最近在补（也感谢有人翻译上传）兔子和奏音的睡衣节目，这节目欢乐效果真的好多，小剧场也挺有趣（虽然语言梗好难get）。兔子真的屑，高尾真的大小姐，什么家里会冒出来贝多芬铜像，西瓜是三角形的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  可爱美味祥子  
+##### 13923#       发表于 2024-3-5 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64154021&amp;ptid=2159415" target="_blank">ads147147 发表于 2024-3-5 15:12</a>
+最近在补（也感谢有人翻译上传）兔子和奏音的睡衣节目，这节目欢乐效果真的好多，小剧场也挺有趣（虽然语言 ...</blockquote>
+对，很有趣，特别是带n站弹幕的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 13924#       发表于 2024-3-5 15:19
+
+问问兔子是谁来着，我现在还真就只认识d5j的一小部分人，兔子是哪位来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 13925#       发表于 2024-3-5 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64154114&amp;ptid=2159415" target="_blank">屑猫猫 发表于 2024-3-5 15:19</a>
+
+问问兔子是谁来着，我现在还真就只认识d5j的一小部分人，兔子是哪位来着
+
+—— 来自 Xiaomi 2109111 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁拉拉虹团的兔子。大西亚玖璃。
+

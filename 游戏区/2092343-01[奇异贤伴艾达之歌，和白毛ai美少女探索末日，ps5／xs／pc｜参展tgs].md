@@ -1451,3 +1451,19 @@ Bandai Namco发布旗下机甲动作游戏《奇异贤伴 爱达之歌》最新�
 看访谈说还能绑架别人的老婆赚赎金，这么缺德的玩法是万代哪个天才领导想出来的 ...</blockquote>
 这个设计我觉得鬼子玩家一定会炸，尤其是动画里有表现过抓人-初始化的一条龙操作后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 142#       发表于 2024-3-5 10:18
+
+这种游戏模式最后就是利好开挂玩家吧
+
+
+*****
+
+####  亚瑟邓特  
+##### 143#       发表于 2024-3-5 10:23
+
+动画已经炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

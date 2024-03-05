@@ -5792,3 +5792,25 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  laosai13  
+##### 3572#       发表于 2024-3-5 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64149953&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-3-5 09:22</a>
+
+日服
+
+—— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+意思是日服区域超过3000分的有超过1000人吗，也太可怕了
+
+*****
+
+####  笔仁SaSaSa  
+##### 3573#       发表于 2024-3-5 10:24
+
+机场这图小枪怎么打？
+
+打麻了，这图里谁也抓不到
+

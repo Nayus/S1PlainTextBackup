@@ -7323,3 +7323,40 @@ fmt还开在浅水湾的话去一次没什么大不了的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Anatoly  
+##### 13963#       发表于 2024-3-6 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64160582&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-3-6 00:33</a>
+不是，Mujica都玩重型怎么写小黄歌
+
+—— 来自 HONOR FRI-AN00, Android 12上的 S1Next-鹅版 v2.2 ...</blockquote>
+本来也没多重型啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且哥特乐队整几首黄暴歌曲不也很正常
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NODY  
+##### 13964#       发表于 2024-3-6 01:08
+
+黑色生日的歌词已经有点擦边了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 13965#       发表于 2024-3-6 01:11
+
+前幾天掃的卡圖，努力修成了這樣是我極限了，卡牌的印刷品質還是太糟糕了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/06/011107jmn80v0rnnmvrc6o.jpg" referrerpolicy="no-referrer">
+
+<strong>uik_04.jpg</strong> (378.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 01:11 上传
+

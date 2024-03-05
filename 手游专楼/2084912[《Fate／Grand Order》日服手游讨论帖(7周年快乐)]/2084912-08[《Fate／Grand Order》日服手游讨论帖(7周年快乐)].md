@@ -853,3 +853,15 @@ loop是什么意思，老婆吗？</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  清河子  
+##### 11482#       发表于 2024-3-6 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64160539&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2024-3-6 00:28</a>
+【fate/extra CCC汉化完成版发布-哔哩哔哩】 https://b23.tv/9JFlhYi</blockquote>
+真正的有生之年，当年一边对着译文补一边嚎自己不会日语这样打好难受，现在汉化出了我已经能无障碍看懂日语玩各种新鲜日游了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不知道这波能不能多几个CCC厨<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

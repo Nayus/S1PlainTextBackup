@@ -1260,3 +1260,24 @@ Nick老师说3月5号左右将有对马岛之魂PC移植版的消息<img src="ht
 
 第一方优化再顶天在老黄也就一张RTX3070的定位
 
+
+*****
+
+####  哈罗  
+##### 141#       发表于 2024-3-6 01:04
+
+[https://blog.playstation.com/202 ... ing-to-playstation/](https://blog.playstation.com/2024/03/05/revealing-5-india-hero-project-games-coming-to-playstation/)
+
+印度之星游戏孵化中<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ultraseven  
+##### 142#       发表于 2024-3-6 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64121905&amp;ptid=2173605" target="_blank">ultraseven 发表于 2024-3-2 08:06</a>
+
+Nick老师说3月5号左右将有对马岛之魂PC移植版的消息</blockquote>
+又有舅舅说3月6号公布对马岛上PC
+

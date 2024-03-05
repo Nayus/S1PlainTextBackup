@@ -4126,3 +4126,20 @@ your song 古贺葵版
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aruruu  
+##### 4204#       发表于 2024-3-5 08:11
+
+这剧情多少有点恶心了
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kfly  
+##### 4205#       发表于 2024-3-5 08:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

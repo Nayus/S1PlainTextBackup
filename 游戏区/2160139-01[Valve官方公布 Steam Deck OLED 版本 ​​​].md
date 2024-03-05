@@ -2852,3 +2852,16 @@ pdd 4600是好价吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rushtime33  
+##### 287#       发表于 2024-3-5 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64155012&amp;ptid=2160139" target="_blank">这次是十块钱 发表于 2024-3-5 16:22</a>
+
+pdd 4600是好价吗
+
+—— 来自 S1Fun</blockquote>
+挺好的啊，官方价格549按现在汇率4000左右，加运费和税差不多了吧，倒余额人肉带回来另说。
+

@@ -65,3 +65,11 @@
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 S1Next-鹅 ...</blockquote>
 现役最强周刊连载作画机器<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 69#       发表于 2024-3-5 16:29
+
+风格太独特，以至于完全看不出右边那个是莉莉娅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

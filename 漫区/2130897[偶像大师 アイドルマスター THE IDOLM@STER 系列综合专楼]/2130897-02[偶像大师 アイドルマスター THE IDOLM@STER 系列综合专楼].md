@@ -5940,3 +5940,14 @@ JK女P没意思，想看小学生P和高中生偶像<img src="https://static.sar
 
 cgss这个月的月限由三张变成了两张，不知道是不是因为接下来的管人联动卡池。加上已经两个月没有新黑fes了，只能说cgss活到十周年就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2103#       发表于 2024-3-5 15:32
+
+<img src="https://p.sda1.dev/16/3327b2a1ca97cb3b6a2ef6f7dea55ee2/Image_1709623913502.jpg" referrerpolicy="no-referrer">
+笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7882,3 +7882,19 @@ live画面挺好，前面练习环节的动作有点僵
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  SchwarzX  
+##### 2301#       发表于 2024-3-5 19:49
+
+没有主机作没所谓，把这个搬上主机骗多一份钱不难吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2302#       发表于 2024-3-5 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">牛魔 我想去dc看看日本人怎么吐槽这个的
+结果半天还没给我身份
+

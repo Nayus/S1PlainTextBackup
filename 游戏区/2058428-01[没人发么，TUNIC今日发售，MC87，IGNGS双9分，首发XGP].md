@@ -897,3 +897,15 @@ xgp上真结局通关了，前中期什么介绍和攻略都没看，没怎么�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实难度最大的就是战斗，我也是因为战斗难度弃坑的，为了解密一直不停的死实在不想玩了
 
+
+*****
+
+####  拉鲁拉丝  
+##### 97#       发表于 2024-3-5 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64149244&amp;ptid=2058428" target="_blank">wthall 发表于 2024-3-5 08:04</a>
+确实难度最大的就是战斗，我也是因为战斗难度弃坑的，为了解密一直不停的死实在不想玩了 ...</blockquote>
+内置金手指吧我记得，打的太折磨人了，后来我就开着过了。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

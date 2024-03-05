@@ -9580,3 +9580,18 @@ srds，管马仕还是算了<img src="https://static.saraba1st.com/image/smiley/
 
 事实证明，万代吃屎都赶不上热的……倒退10年没准还有点新鲜感。
 
+
+*****
+
+####  ReginaldMorgan  
+##### 2466#       发表于 2024-3-6 02:09
+
+我现在的念想只有希望这个企划能吐出来下一个不知道还有没有的主机正作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他的，随便吧
+
+*****
+
+####  ReginaldMorgan  
+##### 2467#       发表于 2024-3-6 02:12
+
+btw，虽然实际上运营路线能有接近90度的不同，但是莲之空和管玛士的现状很难不让人觉得现在负责大帅的人里很多跟叔叔的手游部门算卧龙凤雏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

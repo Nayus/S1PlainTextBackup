@@ -7096,3 +7096,55 @@ mygo本来就挺纯良——滚也是，这两天补了女武神FL才惊觉，�
 
 z8声优厨开始转化为认知厨了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 13937#       发表于 2024-3-5 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64155858&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-3-5 17:37</a>
+mygo本来就挺纯良——滚也是，这两天补了女武神FL才惊觉，前两部连小黄歌都没有，小黄歌那是祖宗之法，没有 ...</blockquote>
+说到小黄歌，PPP好像就有一首（？）
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  makece  
+##### 13938#       发表于 2024-3-5 20:07
+
+他妈的海日切入战场
+
+不得不怀疑是海日买的粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 13939#       发表于 2024-3-5 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绷不住了 这粉不会是海日买的吧
+
+*****
+
+####  傘木希美  
+##### 13940#       发表于 2024-3-5 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">海日是有什么黑历史吗，不太了解
+
+*****
+
+####  可爱美味祥子  
+##### 13941#       发表于 2024-3-5 20:10
+
+线下见面会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makece  
+##### 13942#       发表于 2024-3-5 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157548&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-3-5 20:09</a>
+
+海日是有什么黑历史吗，不太了解</blockquote>
+只是一直在搞FMT爆声优厨的米
+

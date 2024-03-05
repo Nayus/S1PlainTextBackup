@@ -8004,3 +8004,93 @@ https://x.com/kidosan335/status/1764973246045389122?s=20
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sodah  
+##### 2312#       发表于 2024-3-5 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">学山贼吗
+
+*****
+
+####  江口夕  
+##### 2313#       发表于 2024-3-5 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红绿灯人设对调了，红变成神童了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  バーチャルS1er  
+##### 2314#       发表于 2024-3-5 20:09
+
+<img src="https://img.saraba1st.com/forum/202403/05/200814lkkwjjeae68tk3nm.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240305193755.png</strong> (8.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 20:08 上传
+
+模型面数是马娘的3倍、这容量小不了了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 2315#       发表于 2024-3-5 20:09
+
+缩回壳子里继续当闪p了
+
+*****
+
+####  rgauss  
+##### 2316#       发表于 2024-3-5 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157490&amp;ptid=2130897" target="_blank">虚无缥缈的光阴 发表于 2024-3-5 20:05</a>
+越来越像派对孔明的女主英子……
+
+—— 来自 S1Fun</blockquote>
+很多人设都有既视感
+
+*****
+
+####  田所あずさ  
+##### 2317#       发表于 2024-3-5 20:11
+
+滚回去玩mltd了，滚**学马
+
+
+*****
+
+####  花开安菲路  
+##### 2318#       发表于 2024-3-5 20:12
+
+对标马娘，别对标马娘那坐牢养成就行，不然碰都不想碰<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  modedd  
+##### 2319#       发表于 2024-3-5 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157064&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-5 19:30</a>
+
+滚懂吗</blockquote>
+这句话是禁止出现恋爱关系的意思吗，无法想象，是我哪里理解错了吗<img src="https://static.saraba1st.com/image/smiley/carton2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 2320#       发表于 2024-3-5 20:13
+
+请了三个厕纸高手来写剧本，这次还能写出SC那种独特的味道吗
+
+
+*****
+
+####  ytttsuuuba  
+##### 2321#       发表于 2024-3-5 20:14
+
+不算对调，这三都是天才，唱歌的舞蹈的还有估计是全能的。
+

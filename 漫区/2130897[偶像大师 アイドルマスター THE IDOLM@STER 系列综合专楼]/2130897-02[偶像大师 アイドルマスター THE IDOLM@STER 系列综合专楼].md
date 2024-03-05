@@ -8716,3 +8716,153 @@ EHPPA2E%JRK[YU0TGC()YYU_tmb.jpg
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  安广多惠子  
+##### 2385#       发表于 2024-3-5 21:28
+
+花海这个高手设定加上说了假天才的台词，看着像她其实是用了天才妹妹的身份来的，实际是菜鸡一只
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  patema  
+##### 2386#       发表于 2024-3-5 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158461&amp;ptid=2130897" target="_blank">安广多惠子 发表于 2024-3-5 21:28</a>
+
+花海这个高手设定加上说了假天才的台词，看着像她其实是用了天才妹妹的身份来的，实际是菜鸡一只
+
+—— 来 ...</blockquote>
+但是妹妹在学校吧，而且卡面也出现了
+
+*****
+
+####  田所あずさ  
+##### 2387#       发表于 2024-3-5 21:29
+
+女p的话是时候切割了，女p真的不能忍
+
+*****
+
+####  Unlight  
+##### 2388#         楼主| 发表于 2024-3-5 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158407&amp;ptid=2130897" target="_blank">patema 发表于 2024-3-5 21:22</a>
+
+反正这俩都挺神秘的，我已经看到白河豚在遐想产粮了（红毛被视作了女p）魔法芝士啊 ...</blockquote>
+有没有可能，P是高职，红毛是职高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+高职和职高是不一样的，冬优子是前者<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 2389#       发表于 2024-3-5 21:30
+
+菜鸡肯定不可能，我记得兴趣一栏还写了喜欢争胜负吧。这种性格就不可能真菜，不过有可能是努力的天才，真天才是她妹。
+
+*****
+
+####  ViviR  
+##### 2390#       发表于 2024-3-5 21:31
+
+<blockquote>patema 发表于 2024-3-5 21:22
+反正这俩都挺神秘的，我已经看到白河豚在遐想产粮了（红毛被视作了女p）魔法芝士啊 ...</blockquote>
+pv里有练歌的场景。感觉怎么说，类似赛马娘手游里面的那个小白马（别的p负责的）？
+
+*****
+
+####  Seeley  
+##### 2391#       发表于 2024-3-5 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加班回来瞅瞅漏油好像状态好像都不太好啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  patema  
+##### 2392#       发表于 2024-3-5 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158483&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-3-5 21:31</a>
+
+pv里有练歌的场景。感觉怎么说，类似赛马娘手游里面的那个小白马（别的p负责的）？ ...</blockquote>
+我猜测是小茂，p的青梅，在偶像科的，同时是主角团的对手。不然感觉位置没那么高
+
+*****
+
+####  Unlight  
+##### 2393#         楼主| 发表于 2024-3-5 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158483&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-3-5 21:31</a>
+
+pv里有练歌的场景。感觉怎么说，类似赛马娘手游里面的那个小白马（别的p负责的）？ ...</blockquote>
+类似玲音诗花吗（
+
+*****
+
+####  rgauss  
+##### 2394#       发表于 2024-3-5 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158451&amp;ptid=2130897" target="_blank">patema 发表于 2024-3-5 21:27</a>
+话说那个学历厨小糸bot还在动吗，好久没看了</blockquote>
+最新一条是1月12日
+
+*****
+
+####  patema  
+##### 2395#       发表于 2024-3-5 21:34
+
+妈的scsp为什么这么烂，小高你紫菜吧<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+妈的scsp为什么这么烂，小高你紫菜吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+妈的scsp为什么这么烂，小高你紫菜吧<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+妈的scsp为什么这么烂，小高你紫菜吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+妈的scsp为什么这么烂，小高你紫菜吧<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+妈的scsp为什么这么烂，小高你紫菜吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+妈的scsp为什么这么烂，小高你紫菜吧<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  泉玲奈  
+##### 2396#       发表于 2024-3-5 21:35
+
+上面几个张图让人想到
+
+雪之下.那谁...
+
+*****
+
+####  Unlight  
+##### 2397#         楼主| 发表于 2024-3-5 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158492&amp;ptid=2130897" target="_blank">patema 发表于 2024-3-5 21:33</a>
+
+我猜测是小茂，p的青梅，在偶像科的，同时是主角团的对手。不然感觉位置没那么高 ...</blockquote>
+这个可能性倒是也不低
+
+某种意义上保底安全牌
+
+*****
+
+####  斑鳩ルカ  
+##### 2398#       发表于 2024-3-5 21:36
+
+难道不是scsp这么烂都急着端上来让路给六妹更抽象吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2399#       发表于 2024-3-5 21:37
+
+确实，scsp怎么想应该都是和动画一起上的
+

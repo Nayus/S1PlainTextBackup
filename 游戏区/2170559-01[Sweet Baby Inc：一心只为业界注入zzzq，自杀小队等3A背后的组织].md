@@ -939,3 +939,13 @@ v友制作，新鲜出炉的Sweet Baby Inc眼中的“油腻师姐”</blockquot
 
 那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板
 
+
+*****
+
+####  superlink  
+##### 71#       发表于 2024-3-5 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">技术老白男，看公司这德行剧本这德行估计都跑光了，游戏当然没人做了
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

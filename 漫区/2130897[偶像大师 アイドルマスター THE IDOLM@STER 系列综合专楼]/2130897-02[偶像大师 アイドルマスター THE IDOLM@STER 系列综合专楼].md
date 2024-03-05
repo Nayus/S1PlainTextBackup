@@ -5907,3 +5907,20 @@ JK女P没意思，想看小学生P和高中生偶像<img src="https://static.sar
 
 作曲要有这里面中的八个我给万代跪下，作曲太缺了
 
+
+*****
+
+####  Seeley  
+##### 2099#       发表于 2024-3-5 13:52
+
+突然好奇首发曲子会有多少了，还是说代孙只是画了个饼，之后都有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hijack997  
+##### 2100#       发表于 2024-3-5 13:56
+
+筹备很多年了，数量应该是有保证的吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

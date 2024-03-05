@@ -12115,3 +12115,14 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 这游戏带控制的武器就磁轨枪和重炮手吧</blockquote>
 那个带独头弹的手动喷子也有击退效果
 
+
+*****
+
+####  赤井稻妻  
+##### 1216#       发表于 2024-3-5 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152995&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-3-5 13:39</a>
+
+那个带独头弹的手动喷子也有击退效果</blockquote>
+那个就是重炮手啊
+

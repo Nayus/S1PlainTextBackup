@@ -4675,3 +4675,19 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 我个人是觉得山本裕介在本片一般般</blockquote>
 演出一直还可以，无论是艾女士被迫害的搞笑，歌姬线回收时，诺娃自白时也是，不能说山本裕介作为监督和演出之间没有统筹
 
+
+*****
+
+####  NeloAngelo  
+##### 4256#       发表于 2024-3-5 19:05
+
+<img src="https://img.saraba1st.com/forum/202403/05/190507nlzbhl4bdx1h454p.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0598.PNG</strong> (112.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:05 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

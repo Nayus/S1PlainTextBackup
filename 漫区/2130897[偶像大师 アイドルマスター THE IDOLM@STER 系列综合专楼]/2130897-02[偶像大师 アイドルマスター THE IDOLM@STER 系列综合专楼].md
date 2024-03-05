@@ -7565,3 +7565,89 @@ SC要放养的话，就不会做分割放送了
 
 有小学部吗？没小学部我缺的萝莉妈妈这块谁给我补啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 2273#       发表于 2024-3-5 19:06
+
+各位别急着走，管马仕蓝毛直播马上开始<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/d8bc8b9287306c4058ec204e54c6767d/CMP_20240305190631580.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Srchy  
+##### 2274#       发表于 2024-3-5 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">想起来这3个管人怎么不给安排进这中专
+
+*****
+
+####  田所あずさ  
+##### 2275#       发表于 2024-3-5 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+DZZ1`2W}N]H~8XFLYLA~0IG.jpg
+(122.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/190901dbzjlcjqq74ujz7r.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lz741990563  
+##### 2276#       发表于 2024-3-5 19:10
+
+之后每周都有生放，情报得一点点挤用来维持热度，老套路了，见证过sc诞生的应该非常熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 2277#       发表于 2024-3-5 19:12
+
+育成时间别学sc马娘那样就行
+
+*****
+
+####  Vacuolar  
+##### 2278#       发表于 2024-3-5 19:13
+
+这企划，如果没把贵公子搬出来。这字体，这建模，这标志，真是看不出哪里有偶像大师要素。
+
+*****
+
+####  田所あずさ  
+##### 2279#       发表于 2024-3-5 19:14
+
+ 本帖最后由 田所あずさ 于 2024-3-5 19:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/05/191548s3h9tetu42uett7i.jpg" referrerpolicy="no-referrer">
+
+<strong>KE]YKX6@4MGF@350T$U74_6.jpg</strong> (66.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:15 上传
+
+*****
+
+####  Srchy  
+##### 2280#       发表于 2024-3-5 19:15
+
+<img src="https://img.saraba1st.com/forum/202403/05/191536b757cxh3vl35n37l.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240305191522.jpg</strong> (69.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

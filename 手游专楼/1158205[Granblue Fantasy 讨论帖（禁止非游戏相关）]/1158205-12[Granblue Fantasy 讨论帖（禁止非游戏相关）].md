@@ -27,3 +27,16 @@
 
 我是觉得该交代的背景和伏线这次都交代得挺清楚，看第三章怎么收尾了，目前读下来观感肯定比星屑街老6和调停这两个要好的
 
+
+*****
+
+####  cenhr  
+##### 17650#       发表于 2024-3-5 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64159529&amp;ptid=1158205" target="_blank">はちたや 发表于 2024-3-5 23:03</a>
+
+除了王子也没别的魔怔人吧，其实就这一个观感差的角色
+
+我是觉得该交代的背景和伏线这次都交代得挺清楚，看 ...</blockquote>
+黑帮街是最糟糕的，感觉就是为了玩龙珠超布洛里的梗但又要缝十天众<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

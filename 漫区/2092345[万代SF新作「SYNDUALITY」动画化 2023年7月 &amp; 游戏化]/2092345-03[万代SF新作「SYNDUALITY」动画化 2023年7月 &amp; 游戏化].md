@@ -4237,3 +4237,18 @@ your song 古贺葵版
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">王冠机设比这个电饭煲好看吧，这个电饭煲真不行
 
+
+*****
+
+####  AkaiSuisei  
+##### 4217#       发表于 2024-3-5 11:06
+
+这不就是我推的Noir吗，鉴定为跟风狗屎
+
+*****
+
+####  洛克萨斯  
+##### 4218#       发表于 2024-3-5 11:08
+
+这片就是妹子人设好看，机设一坨，前面还能看下去当xb代餐
+

@@ -4279,3 +4279,41 @@ your song 古贺葵版
 
 主要是夏尔粉太多了（我也是温和的夏尔粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 4222#       发表于 2024-3-5 11:30
+
+不如说被献祭的人是noir，因为剩下的集数有限noir的心态转变就这样草草带过了。
+
+
+*****
+
+####  leommoo  
+##### 4223#       发表于 2024-3-5 11:32
+
+王道个锤子，-2<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4224#       发表于 2024-3-5 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64148422&amp;ptid=2092345" target="_blank">charlespfan 发表于 2024-3-5 00:53</a>
+
+我是认为鸭是能把握住度的人，青猪里麻衣死之后和小翔子快死的时候描写不差的，也没给人一种情节与人物行为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是那句话，系构青岛崇以前写的是什么脚本？美少女百合贴贴，萌萌爱，还有想发的刀子给吞回去（典型例子《Endro~》），就他的风格会把Ciel这种女二写死？
+
+你怪青岛崇还不如怪山本裕介呢，11号的杂志有他的新访谈。
+
+<img src="https://img.saraba1st.com/forum/202403/05/113516qia080nz4v8x8hoi.jpg" referrerpolicy="no-referrer">
+
+<strong>图像 1.jpg</strong> (139.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 11:35 上传
+

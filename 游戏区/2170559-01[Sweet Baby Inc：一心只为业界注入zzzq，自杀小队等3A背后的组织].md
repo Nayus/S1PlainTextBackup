@@ -949,3 +949,13 @@ v友制作，新鲜出炉的Sweet Baby Inc眼中的“油腻师姐”</blockquot
 
 —— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  春哥亲自  
+##### 72#       发表于 2024-3-5 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64150721&amp;ptid=2170559" target="_blank">GarfieldX 发表于 2024-3-5 10:27</a>
+那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板</blockquote>
+线虫怎么能理解死宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

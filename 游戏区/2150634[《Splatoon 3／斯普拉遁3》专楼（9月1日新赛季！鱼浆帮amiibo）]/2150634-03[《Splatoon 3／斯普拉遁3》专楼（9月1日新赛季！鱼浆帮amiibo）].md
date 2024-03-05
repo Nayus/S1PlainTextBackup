@@ -5782,3 +5782,13 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 还有一小时差90分，感觉是没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 3571#       发表于 2024-3-5 09:22
+
+日服<img src="https://p.sda1.dev/16/51ac3876c50ffa885be9545f796f5323/F559365BFF850FD92624CE45EBDF6070.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

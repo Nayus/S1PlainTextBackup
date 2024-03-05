@@ -9493,3 +9493,37 @@ happier算偶像歌，fashionable不算<img src="https://static.saraba1st.com/im
 
 2024-3-5 23:14 上传
 
+
+*****
+
+####  sliver1997  
+##### 2456#       发表于 2024-3-5 23:31
+
+看完新 PV 最大感想是小高怎么能把 scsp 搞那么差的
+
+*****
+
+####  殿珣  
+##### 2457#       发表于 2024-3-5 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/204.gif" referrerpolicy="no-referrer">
+说真的，你要把学马仕端上来，我还不如去支持管马仕<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 2458#       发表于 2024-3-5 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64159885&amp;ptid=2130897" target="_blank">殿珣 发表于 2024-3-5 23:31</a>
+
+说真的，你要把学马仕端上来，我还不如去支持管马仕 ...</blockquote>
+srds，管马仕还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  游蜓  
+##### 2459#       发表于 2024-3-5 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人开发手游是只会坐牢吗
+

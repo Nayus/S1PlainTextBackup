@@ -7445,3 +7445,123 @@ SC的核心还是enza版的剧情，不知这学mas剧情会咋样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">红的还可以吗？蓝的大脸还能拿发型遮遮，这红的是真看不下去了
 
+
+*****
+
+####  田所あずさ  
+##### 2258#       发表于 2024-3-5 18:56
+
+我觉得红是我最不能接受的，像马楼，蓝色好歹能接受
+
+*****
+
+####  Unlight  
+##### 2259#         楼主| 发表于 2024-3-5 18:56
+
+就这？
+
+*****
+
+####  hypnossz86  
+##### 2260#       发表于 2024-3-5 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156755&amp;ptid=2130897" target="_blank">lz741990563 发表于 2024-3-5 18:55</a>
+能不能来个系列史最速动画化</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等一个多媒体同时展开，全资源力推
+
+*****
+
+####  田所あずさ  
+##### 2261#       发表于 2024-3-5 18:58
+
+万代杀了sidem，拔了灰的管，放养百万，切割v，就是为了端出来这么一坨凉了的屎
+
+*****
+
+####  舆水沉浮  
+##### 2262#       发表于 2024-3-5 18:58
+
+话说，居然没公布普罗丢桑，那pv那个到底是谁，不会是红色的妹妹吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hypnossz86  
+##### 2263#       发表于 2024-3-5 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156779&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-5 18:58</a>
+万代杀了sidem，拔了灰的管，放养百万，切割v，就是为了端出来这么一坨凉了的屎
+
+ ...</blockquote>
+这么一看还得是百万，起码还算养着
+
+*****
+
+####  cckuku  
+##### 2264#       发表于 2024-3-5 18:59
+
+动画二期都没有的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥F特  
+##### 2265#       发表于 2024-3-5 18:59
+
+抛开玩法不谈 这建模不错啊 还不至于说屎吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  田所あずさ  
+##### 2266#       发表于 2024-3-5 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156784&amp;ptid=2130897" target="_blank">hypnossz86 发表于 2024-3-5 18:58</a>
+
+这么一看还得是百万</blockquote>
+sc不算放养，我觉得放养改成百万恰当点
+
+*****
+
+####  koodooliz  
+##### 2267#       发表于 2024-3-5 18:59
+
+感觉不如……电音部
+
+
+*****
+
+####  屈江鸟  
+##### 2268#       发表于 2024-3-5 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">画面确实可以，如果是真的话
+
+*****
+
+####  天球仪观测者  
+##### 2269#       发表于 2024-3-5 19:04
+
+居然还没公布P相关，用力淡化啊
+
+*****
+
+####  rgauss  
+##### 2270#       发表于 2024-3-5 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156833&amp;ptid=2130897" target="_blank">天球仪观测者 发表于 2024-3-5 19:04</a>
+居然还没公布P相关，用力淡化啊</blockquote>
+说了啊 我记得是p也是学生 古贺葵带你（）
+
+*****
+
+####  陆久舟  
+##### 2271#       发表于 2024-3-5 19:05
+
+SC要放养的话，就不会做分割放送了
+
+*****
+
+####  eaglu  
+##### 2272#       发表于 2024-3-5 19:06
+
+有小学部吗？没小学部我缺的萝莉妈妈这块谁给我补啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

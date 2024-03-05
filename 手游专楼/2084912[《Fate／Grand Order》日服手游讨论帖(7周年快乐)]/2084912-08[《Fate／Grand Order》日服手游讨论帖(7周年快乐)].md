@@ -796,3 +796,14 @@ loop是什么意思，老婆吗？</blockquote>
 
 想问一下，明天情人节活动结束，但活动商店会继续开一个礼拜对吗？
 
+
+*****
+
+####  quanlix  
+##### 11477#       发表于 2024-3-5 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156579&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-5 18:40</a>
+
+想问一下，明天情人节活动结束，但活动商店会继续开一个礼拜对吗？</blockquote>
+对的，商店下礼拜才关门
+

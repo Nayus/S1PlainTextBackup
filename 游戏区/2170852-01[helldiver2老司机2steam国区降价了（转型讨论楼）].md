@@ -12184,3 +12184,16 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  绚烂航迹云  
+##### 1223#       发表于 2024-3-5 19:04
+
+<blockquote>引用第1219楼LiniN于2024-03-05 16:41发表的  :
+
+昨天联机要么连不上要么卡得要命 队友说我掉地图外了 直接把我击毙拿样本撤退后面尝试用加速器加速一代 ......</blockquote>
+有没有一种可能，不加速就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+

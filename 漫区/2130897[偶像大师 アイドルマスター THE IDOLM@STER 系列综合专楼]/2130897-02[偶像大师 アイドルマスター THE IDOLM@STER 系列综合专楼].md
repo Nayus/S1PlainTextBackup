@@ -8209,3 +8209,82 @@ giga那歌居然给了红灯？唱得一股咬字不清的味道，感觉不如�
 
 sc刚出时有人骂太像拉邦没imas之魂吗？
 
+
+*****
+
+####  田所あずさ  
+##### 2334#       发表于 2024-3-5 20:47
+
+没有这么严重，sc的时候还是有些人喜欢的，这次我没见有人在吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 2335#       发表于 2024-3-5 20:48
+
+“创造新时代的不会是老人”
+当初土豆出炸鸡和歌织时，也有很多老害看不惯，最后不还是真香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 2336#       发表于 2024-3-5 20:49
+
+关键是你这学也不新啊，不全是其他地方抄过来的东西
+
+*****
+
+####  Alicest  
+##### 2337#       发表于 2024-3-5 20:50
+
+上面那黄live的pose都和马儿跳一样
+
+*****
+
+####  cckuku  
+##### 2338#       发表于 2024-3-5 20:51
+
+不知道代孙咋想的，既然早就立项了这个项目为啥还能推出个scsp来？
+
+
+*****
+
+####  Anatoly  
+##### 2339#       发表于 2024-3-5 20:52
+
+看了眼，现在推特趋势第四第五了
+
+*****
+
+####  田所あずさ  
+##### 2340#       发表于 2024-3-5 20:53
+
+问题是你这东西新在哪？
+
+*****
+
+####  patema  
+##### 2341#       发表于 2024-3-5 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157852&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-5 20:36</a>
+
+今天确实是偶像大师最团结的一次，我加的所有群的态度基本上都和灰频差不多了，这下真是灰百闪联合讨学了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">别急，真出了就回旋了。看看米组，出之前骂的最恨的现在都是羽那腐乳了
+
+*****
+
+####  patema  
+##### 2342#       发表于 2024-3-5 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157757&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-3-5 20:28</a>
+
+本来想说是不是女p的设定，但想了想p也不需要练声乐啊，挺神秘的。</blockquote>
+小茂位吧，青梅+对手
+
+*****
+
+####  Alicest  
+##### 2343#       发表于 2024-3-5 20:55
+
+羽那有强力pl，学可是禁止pl二创的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

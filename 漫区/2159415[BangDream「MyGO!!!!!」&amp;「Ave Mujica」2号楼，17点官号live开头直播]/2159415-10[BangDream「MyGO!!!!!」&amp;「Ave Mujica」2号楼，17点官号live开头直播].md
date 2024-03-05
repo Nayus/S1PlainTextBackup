@@ -6924,3 +6924,17 @@ B站上看到的Eve Mujica<img src="https://static.saraba1st.com/image/smiley/fa
  草，今天才看到消息，是不是已经不能填线了</blockquote>
 可以吧，战斗到20点00应该都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  可爱美味祥子  
+##### 13919#       发表于 2024-3-5 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152701&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-5 13:07</a>
+可以吧，战斗到20点00应该都行</blockquote>
+年轻人的第一次填线
+
+年轻人的第一次被声优认知
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

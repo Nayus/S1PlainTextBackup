@@ -4560,3 +4560,33 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我个人是觉得山本裕介在本片一般般
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4245#       发表于 2024-3-5 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152807&amp;ptid=2092345" target="_blank">oi99o 发表于 2024-3-5 13:19</a>
+
+塞bd卖的是名曲翻唱，事实上现在确实没有your song独唱版的消息</blockquote>
+好吧，刚才忘用机翻了，我以为没公布曲目就会在里面了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+查了一下插入曲专辑，是真没有青山渚的独唱版啊……
+
+<img src="https://img.saraba1st.com/forum/202403/05/133046tw2782u9jk3f9qqd.jpg" referrerpolicy="no-referrer">
+
+<strong>图像 7.jpg</strong> (260.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 13:30 上传
+
+*****
+
+####  kkl12355  
+##### 4246#       发表于 2024-3-5 13:32
+
+<blockquote>瓦格雷 发表于 2024-3-5 13:20
+大叔也能变诺瓦吗</blockquote>
+原型机们都要当心，各个都是备份容器，只能盼谢尔的身体可靠点，别在出幺蛾子。
+

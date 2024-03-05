@@ -4743,3 +4743,21 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">古贺葵应该做不到用诺娃的声音唱歌............听起来不像诺娃在唱
 
+
+*****
+
+####  aptx8285144  
+##### 4263#       发表于 2024-3-5 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158610&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-3-5 21:46</a>
+
+古贺葵应该做不到用诺娃的声音唱歌............听起来不像诺娃在唱</blockquote>
+确实，其实她应该用得是两周前回归时那个声线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，然后尽量和青山姐融合在一起
+
+*****
+
+####  aptx8285144  
+##### 4264#       发表于 2024-3-5 22:51
+
+奶茶屋更新20话
+

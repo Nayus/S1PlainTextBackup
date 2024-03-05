@@ -4664,3 +4664,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 不过真要说和网管对比的话，至少目前为止彼方比集人的性格要好一些，可能是在大灾害里面阅历促成了不会消沉太久吧，歌姬死后躲在机舱里一段时间就收拾心情结束，大哥说走就走说来就来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（虽然能脱困也全靠大哥），象征性的责怪给了就翻页
 
+
+*****
+
+####  aptx8285144  
+##### 4255#       发表于 2024-3-5 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152863&amp;ptid=2092345" target="_blank">Grahamlinks 发表于 2024-3-5 13:25</a>
+
+我个人是觉得山本裕介在本片一般般</blockquote>
+演出一直还可以，无论是艾女士被迫害的搞笑，歌姬线回收时，诺娃自白时也是，不能说山本裕介作为监督和演出之间没有统筹
+

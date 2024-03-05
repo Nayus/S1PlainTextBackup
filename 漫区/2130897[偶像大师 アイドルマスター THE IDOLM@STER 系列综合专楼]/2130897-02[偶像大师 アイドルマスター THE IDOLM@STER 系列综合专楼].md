@@ -6585,3 +6585,253 @@ FT`BN~`8@2(K[{7YPSQR0]B.jpg
 
 2024-3-5 18:15 上传
 
+
+*****
+
+####  田所あずさ  
+##### 2163#       发表于 2024-3-5 18:16
+
+比lhrc脸还大我服了
+
+*****
+
+####  Vacuolar  
+##### 2164#       发表于 2024-3-5 18:16
+
+未来可期
+
+*****
+
+####  田所あずさ  
+##### 2165#       发表于 2024-3-5 18:17
+
+<img src="https://img.saraba1st.com/forum/202403/05/181703rctcok2td52k5dz6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:17 上传
+
+*****
+
+####  希望之异热同心  
+##### 2166#       发表于 2024-3-5 18:17
+
+看到logo幻视泰拉帝国
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Anatoly  
+##### 2167#       发表于 2024-3-5 18:17
+
+这几位的颜值……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+挺实力派的（小声）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 2168#       发表于 2024-3-5 18:18
+
+pv里这舞有点难度的
+
+*****
+
+####  rgauss  
+##### 2169#       发表于 2024-3-5 18:18
+
+肉体不太行
+
+*****
+
+####  a1370303  
+##### 2170#       发表于 2024-3-5 18:18
+
+帧数好低，是我的问题吗
+
+*****
+
+####  kangkangsama  
+##### 2171#       发表于 2024-3-5 18:18
+
+<img src="https://img.saraba1st.com/forum/202403/05/181819v33aze11zckac3y9.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2137.png</strong> (500.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:18 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/181822rbuyteuhteuu1htt.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2136.png</strong> (462.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:18 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/181827ktkscfclye0rcbu0.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2135.png</strong> (475.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:18 上传
+
+*****
+
+####  萨文科夫  
+##### 2172#       发表于 2024-3-5 18:18
+
+<img src="https://img.saraba1st.com/forum/202403/05/181817uork4gpkp6nlg0r0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240305181751.png</strong> (8.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:18 上传
+
+偏差值......很低呢......呵呵^^
+
+*****
+
+####  田所あずさ  
+##### 2173#       发表于 2024-3-5 18:18
+
+这几个不会真是Liella不要的吧
+
+*****
+
+####  RhmBWT_Wu  
+##### 2174#       发表于 2024-3-5 18:18
+
+声优多大啊，没准未来可期呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+周末翻出百万1st发现miku脸也挺圆的都没敢认<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Genkishi  
+##### 2175#       发表于 2024-3-5 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156295&amp;ptid=2130897" target="_blank">a1370303 发表于 2024-3-5 18:18</a>
+
+帧数好低，是我的问题吗</blockquote>
+应该不是，我也掉帧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 2176#       发表于 2024-3-5 18:19
+
+肉体派别急，还剩下六个人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 2177#       发表于 2024-3-5 18:19
+
+怎么红成战力人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  poipanchao  
+##### 2178#       发表于 2024-3-5 18:19
+
+除了苍的，其他两个还行吧
+
+*****
+
+####  Srchy  
+##### 2179#       发表于 2024-3-5 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肉体...也比不过莲，完犊子了
+
+*****
+
+####  Alicest  
+##### 2180#       发表于 2024-3-5 18:20
+
+不能像sc那样长得贴近角色吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 2181#       发表于 2024-3-5 18:20
+
+毕竟要搞“养成”嘛，唱功颜值肯定有所“保留”的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+直播间3w多人了挺热闹<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  田所あずさ  
+##### 2182#       发表于 2024-3-5 18:20
+
+黄色可以加推
+
+*****
+
+####  Vacuolar  
+##### 2183#       发表于 2024-3-5 18:21
+
+第一次看到六文字这个b这么激动，原来你可以不摆烂的啊
+
+*****
+
+####  sodah  
+##### 2184#       发表于 2024-3-5 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这歌唱的有14年万物之始那感觉了
+
+*****
+
+####  hypnossz86  
+##### 2185#       发表于 2024-3-5 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">唱功不都是靠修音的，一开始少修点后面多修点
+给你营造出成长的感觉
+
+*****
+
+####  田所あずさ  
+##### 2186#       发表于 2024-3-5 18:24
+
+<img src="https://img.saraba1st.com/forum/202403/05/182401x876k9877e8vgp40.png" referrerpolicy="no-referrer">
+
+<strong>test_main.png</strong> (854.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:24 上传
+
+*****
+
+####  kangkangsama  
+##### 2187#       发表于 2024-3-5 18:24
+
+苍这“恶心，变态”的骂，就很伏见司啊
+
+*****
+
+####  田所あずさ  
+##### 2188#       发表于 2024-3-5 18:25
+
+本来就有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+BWA_$9QLVD(07JQG)[E_]4K_tmb.jpg
+(58.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:24 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/182455b1flfzgs49s498lz.jpg" referrerpolicy="no-referrer">
+

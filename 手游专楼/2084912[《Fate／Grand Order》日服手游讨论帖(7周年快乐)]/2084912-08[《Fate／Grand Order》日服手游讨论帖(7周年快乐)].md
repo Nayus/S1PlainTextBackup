@@ -768,3 +768,11 @@ loop是什么意思，老婆吗？</blockquote>
 
 烟雾镜原版对上谁都是被薄纱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11474#       发表于 2024-3-5 18:26
+
+果然没新卡，奏二要是也没大的，可以攒到周年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

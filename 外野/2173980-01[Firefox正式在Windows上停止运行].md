@@ -796,3 +796,15 @@ vimperator好用加1
 图一是什么品种的狐狸？这耳朵好大，好可爱</blockquote>
 大概就是普通的红狐。是的，也叫火狐
 
+
+*****
+
+####  月黑杀人夜  
+##### 66#       发表于 2024-3-5 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64147900&amp;ptid=2173980" target="_blank">masy 发表于 2024-03-04 23:43:01</a>
+图一是什么品种的狐狸？这耳朵好大，好可爱</blockquote>耳郭狐 
+疯狂动物城里的男主角就是这种
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

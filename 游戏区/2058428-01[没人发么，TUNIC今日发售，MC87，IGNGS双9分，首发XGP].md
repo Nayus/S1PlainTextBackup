@@ -889,3 +889,11 @@ xgp上真结局通关了，前中期什么介绍和攻略都没看，没怎么�
 
 我一直以为自己手残玩游戏只能靠脑子，玩没想到这游戏卡在了脑子上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wthall  
+##### 96#       发表于 2024-3-5 08:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实难度最大的就是战斗，我也是因为战斗难度弃坑的，为了解密一直不停的死实在不想玩了
+

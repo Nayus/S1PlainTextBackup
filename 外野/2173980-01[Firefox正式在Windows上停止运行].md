@@ -786,3 +786,13 @@ firefox图标是狐狸
 
 vimperator好用加1
 
+
+*****
+
+####  osborn  
+##### 65#       发表于 2024-3-5 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64147900&amp;ptid=2173980" target="_blank">masy 发表于 2024-3-4 23:43</a>
+图一是什么品种的狐狸？这耳朵好大，好可爱</blockquote>
+大概就是普通的红狐。是的，也叫火狐
+

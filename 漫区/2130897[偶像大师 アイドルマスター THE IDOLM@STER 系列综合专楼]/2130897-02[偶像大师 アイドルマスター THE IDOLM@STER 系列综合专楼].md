@@ -5924,3 +5924,19 @@ JK女P没意思，想看小学生P和高中生偶像<img src="https://static.sar
 
 筹备很多年了，数量应该是有保证的吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 2101#       发表于 2024-3-5 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就仨人开篇一张碟顶天了吧
+
+
+*****
+
+####  a1370303  
+##### 2102#       发表于 2024-3-5 14:23
+
+cgss这个月的月限由三张变成了两张，不知道是不是因为接下来的管人联动卡池。加上已经两个月没有新黑fes了，只能说cgss活到十周年就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+

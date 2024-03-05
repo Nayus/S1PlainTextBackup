@@ -6948,3 +6948,13 @@ B站上看到的Eve Mujica<img src="https://static.saraba1st.com/image/smiley/fa
 可以吧，战斗到20点00应该都行</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是要再征一波
 
+
+*****
+
+####  蒜灵  
+##### 13921#       发表于 2024-3-5 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152701&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-5 13:07</a>
+可以吧，战斗到20点00应该都行</blockquote>
+你这ID搭配内容，既视感有点重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

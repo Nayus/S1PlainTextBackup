@@ -4590,3 +4590,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 大叔也能变诺瓦吗</blockquote>
 原型机们都要当心，各个都是备份容器，只能盼谢尔的身体可靠点，别在出幺蛾子。
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4247#       发表于 2024-3-5 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64152825&amp;ptid=2092345" target="_blank">没取名啊 发表于 2024-3-5 13:21</a>
+
+一期快结局时山本裕介分镜的那集其实还不错，战斗的好看程度比前面的都高 ...</blockquote>
+第11话可能是山本裕介在这作品里的高光了吧，第1话也是山本裕介负责的分镜，但打戏也就凑合还行<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

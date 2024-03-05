@@ -12104,3 +12104,14 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 另外这游戏有导电机制吗？感觉电弧电池塘的怪瞄的准，下雨天电弧容易飘
 
+
+*****
+
+####  Benighted  
+##### 1215#       发表于 2024-3-5 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64150821&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-5 10:33</a>
+
+这游戏带控制的武器就磁轨枪和重炮手吧</blockquote>
+那个带独头弹的手动喷子也有击退效果
+

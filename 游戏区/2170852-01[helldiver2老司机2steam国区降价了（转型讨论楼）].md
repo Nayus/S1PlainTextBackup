@@ -12197,3 +12197,11 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  白昼梦  
+##### 1224#       发表于 2024-3-5 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强化资源的引导绝对有问题，二三十级了还是好多不主动带的，估计要么是没发现那个位置能带东西，要么是以为不是团队共享是谁带谁才有想谦让
+

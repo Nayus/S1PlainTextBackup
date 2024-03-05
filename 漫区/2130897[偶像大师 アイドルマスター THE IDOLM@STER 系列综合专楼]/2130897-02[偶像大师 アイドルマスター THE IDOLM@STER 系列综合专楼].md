@@ -9159,3 +9159,104 @@ game i的scsp页面下面的留言，非常有趣
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Unlight  
+##### 2423#         楼主| 发表于 2024-3-5 22:00
+
+有些人不但嘴硬，被打脸后还气急败坏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我cp结婚了  
+##### 2424#       发表于 2024-3-5 22:00
+
+破四旧，但学的全是糟粕
+
+*****
+
+####  任天索尼子  
+##### 2425#       发表于 2024-3-5 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158681&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-5 21:55</a>
+
+给你嘴硬的</blockquote>
+谁和你嘴硬了？你太看的起自己了把 我认识你吗？和你说过几句话？上面一群人嚷嚷新人难看就不许别人说？你不高兴可以拉黑我随意 
+
+*****
+
+####  田所あずさ  
+##### 2426#       发表于 2024-3-5 22:01
+
+红c第一首不唱偶像歌唱他妈的术曲还是giga的动次打次真的很弱智
+
+
+*****
+
+####  田所あずさ  
+##### 2427#       发表于 2024-3-5 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158727&amp;ptid=2130897" target="_blank">任天索尼子 发表于 2024-3-5 22:00</a>
+
+谁和你嘴硬了？你太看的起自己了把 我认识你吗？和你说过几句话？上面一群人嚷嚷新人难看就不许别人说？ ...</blockquote>
+你先别急
+
+*****
+
+####  Unlight  
+##### 2428#         楼主| 发表于 2024-3-5 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158738&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-5 22:02</a>
+
+你先别急</blockquote>
+他不但嘴硬，还追着人扣鹅呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 任天索尼子|-2||
+
+查看全部评分
+
+*****
+
+####  任天索尼子  
+##### 2429#       发表于 2024-3-5 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158723&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-3-5 22:00</a>
+
+有些人不但嘴硬，被打脸后还气急败坏了</blockquote>
+上来先不说一句话扣鹅 然后说别人气急败坏 来来来 我不怕扣 咱俩继续互相扣到天荒地老<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2430#       发表于 2024-3-5 22:07
+
+🌲也就算了，能不能挑几个有三思的，叫jin嗨都行啊。
+
+*****
+
+####  任天索尼子  
+##### 2431#       发表于 2024-3-5 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158780&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-3-5 22:05</a>
+
+他不但嘴硬，还追着人扣鹅呢</blockquote>
+我就扣了怎么着了，自己先扣的别人不提了？
+
+*****
+
+####  lz741990563  
+##### 2432#       发表于 2024-3-5 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157958&amp;ptid=2130897" target="_blank">rexzhanghao 发表于 2024-3-5 20:45</a>
+sc刚出时有人骂太像拉邦没imas之魂吗？</blockquote>
+有，而且多的很，首次生放的nico好评率才6 70%，那时轮Spread the Wings这首歌的也多
+

@@ -1465,3 +1465,13 @@ XM(4W_}XV2XJC{DUEPV6H]E.jpg
 
 死人说话吓死我了
 
+
+*****
+
+####  rs5621  
+##### 8319#       发表于 2024-3-5 21:57
+
+新衣确实成熟很多
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -9457,3 +9457,23 @@ happier算偶像歌，fashionable不算<img src="https://static.saraba1st.com/im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚这么热闹啊
 
+
+*****
+
+####  hyiang98  
+##### 2453#       发表于 2024-3-5 23:01
+
+女P的话我真的不能接受
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  liyropen  
+##### 2454#       发表于 2024-3-5 23:02
+
+音游也不行啊，且不说隔壁sc才刚出音游没多久，偶像手游场上又来个打榜音游那也是不翻白眼不行啊，希望不怎么牢吧，开发是QA的话要怎么玩着方便人还是知道的（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

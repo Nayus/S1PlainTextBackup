@@ -7005,3 +7005,13 @@ B站上看到的Eve Mujica<img src="https://static.saraba1st.com/image/smiley/fa
 
 看来MyGO还是引到了不少扭曲怪以外的人的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  可爱美味祥子  
+##### 13927#       发表于 2024-3-5 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64154350&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-3-5 15:35</a>
+看来MyGO还是引到了不少扭曲怪以外的人的</blockquote>
+万象天引还是引来了不少纯良2.5次元企划粉丝的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

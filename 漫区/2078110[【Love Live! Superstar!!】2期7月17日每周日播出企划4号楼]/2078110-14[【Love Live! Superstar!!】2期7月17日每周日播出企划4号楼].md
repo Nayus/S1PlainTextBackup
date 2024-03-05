@@ -93,3 +93,13 @@ day1完整分组，day2在day1当天公布
 
 兼松众去对家供曲了，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19715#       发表于 2024-3-5 23:57
+
+yabu为了当偶像从大学退学，这小妮子还挺劲爆的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

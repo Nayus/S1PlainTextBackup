@@ -9537,3 +9537,30 @@ srds，管马仕还是算了<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  patema  
+##### 2461#       发表于 2024-3-6 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64159880&amp;ptid=2130897" target="_blank">sliver1997 发表于 2024-3-5 23:31</a>
+
+看完新 PV 最大感想是小高怎么能把 scsp 搞那么差的</blockquote>
+答案是小步快跑，小高知道各位想玩音游sc所以选择了一边开发一边运营让玩家提前享受3d小偶像，还不谢谢小高<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 2462#       发表于 2024-3-6 00:30
+
+学mas这个很明显没有用老东西进行营销，没有抢什么。对于老东西，基本就是把这个忘掉。对这个不看好是因为学园偶像这套东西的市场在2012年后已经被反复争夺多次了，等于一个完全没站台的企划要去和那些高手去战，我只能祝六文字企划越办越好。
+
+*****
+
+####  sliver1997  
+##### 2463#       发表于 2024-3-6 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64160553&amp;ptid=2130897" target="_blank">patema 发表于 2024-3-6 00:30</a>
+ 答案是小步快跑，小高知道各位想玩音游sc所以选择了一边开发一边运营让玩家提前享受3d小偶像，还不谢谢小 ...</blockquote>
+那谢谢小高让我看到抽象的 omg 和神死的 mv
+

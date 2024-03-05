@@ -841,3 +841,15 @@ loop是什么意思，老婆吗？</blockquote>
 
 这次白情从者莫不是大鼻子情圣？一个大鼻子怎么画成型男骗氪
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11481#       发表于 2024-3-6 00:28
+
+【fate/extra CCC汉化完成版发布-哔哩哔哩】 https://b23.tv/9JFlhYi
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

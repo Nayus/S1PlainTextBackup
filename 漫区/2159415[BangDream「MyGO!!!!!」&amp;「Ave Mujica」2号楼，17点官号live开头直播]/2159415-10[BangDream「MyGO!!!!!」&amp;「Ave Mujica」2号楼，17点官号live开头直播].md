@@ -7301,3 +7301,15 @@ fmt还开在浅水湾的话去一次没什么大不了的
 
 反正我已经买好西装3031去看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 13961#       发表于 2024-3-6 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157922&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-3-5 20:41</a>
+灯写词写不出来就算了，鸡团没有小黄歌真不是很认可，还能部分解决歌曲同质化问题 ...</blockquote>
+不是，Mujica都玩重型怎么写小黄歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

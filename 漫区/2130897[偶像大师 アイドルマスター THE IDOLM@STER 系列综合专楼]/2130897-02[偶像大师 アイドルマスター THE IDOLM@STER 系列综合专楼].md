@@ -8094,3 +8094,54 @@ https://x.com/kidosan335/status/1764973246045389122?s=20
 
 不算对调，这三都是天才，唱歌的舞蹈的还有估计是全能的。
 
+
+*****
+
+####  倒映在瞳中  
+##### 2322#       发表于 2024-3-5 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157611&amp;ptid=2130897" target="_blank">ytttsuuuba 发表于 2024-3-5 20:14</a>
+不算对调，这三都是天才，唱歌的舞蹈的还有估计是全能的。</blockquote>
+就是听着曲再想这个天才人设着实难蚌
+
+*****
+
+####  rgauss  
+##### 2323#       发表于 2024-3-5 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157611&amp;ptid=2130897" target="_blank">ytttsuuuba 发表于 2024-3-5 20:14</a>
+
+不算对调，这三都是天才，唱歌的舞蹈的还有估计是全能的。</blockquote>
+只说了红色天才吧 没说剩下两个是
+
+*****
+
+####  仓鼠吃火锅  
+##### 2324#       发表于 2024-3-5 20:21
+
+红色自称假天才加上面板跟其他人比高得不正常，搞不好一半会真名溶解面板大降<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  田所あずさ  
+##### 2325#       发表于 2024-3-5 20:22
+
+红黄人设对调我真的服了
+
+*****
+
+####  cckuku  
+##### 2326#       发表于 2024-3-5 20:24
+
+这个应该就是一开始pv里跑步的那个角色吧？但她不在学生九人组里面啊，好神秘。
+
+IMG_2982.png
+(392.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 20:23 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/202352nv9g3vbuv3vrzhb4.png" referrerpolicy="no-referrer">
+

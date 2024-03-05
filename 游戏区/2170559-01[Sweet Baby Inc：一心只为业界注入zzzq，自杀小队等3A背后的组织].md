@@ -959,3 +959,22 @@ v友制作，新鲜出炉的Sweet Baby Inc眼中的“油腻师姐”</blockquot
 那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板</blockquote>
 线虫怎么能理解死宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双面人  
+##### 73#       发表于 2024-3-5 11:34
+
+<blockquote>GarfieldX 发表于 2024-3-5 10:27
+那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板</blockquote>
+马斯克咯，他真有一个儿子
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 74#       发表于 2024-3-5 11:34
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2024-3-5 11:35 编辑 
+
+记得有个说法是不加zzzq内容，会惹官司，还是被某个国家官方组织制裁，要赔钱来着
+

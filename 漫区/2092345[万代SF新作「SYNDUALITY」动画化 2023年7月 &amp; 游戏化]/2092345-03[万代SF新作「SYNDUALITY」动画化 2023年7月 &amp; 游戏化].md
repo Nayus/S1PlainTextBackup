@@ -4317,3 +4317,23 @@ your song 古贺葵版
 
 2024-3-5 11:35 上传
 
+
+*****
+
+####  cybernetics31  
+##### 4225#       发表于 2024-3-5 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的歌姬独唱版呢…………md，人没了，给个独唱版都不给啊
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4226#       发表于 2024-3-5 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64149108&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-5 07:19</a>
+
+没出 全平台封测而已
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+封测其实完成8-9成了，那游戏本质上是个网游而不是能联网的单机 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

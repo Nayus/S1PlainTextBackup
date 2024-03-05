@@ -7360,3 +7360,24 @@ fmt还开在浅水湾的话去一次没什么大不了的
 
 2024-3-6 01:11 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 13966#       发表于 2024-3-6 01:44
+
+<img src="https://img.saraba1st.com/forum/202403/06/013908ncjgirhtiui5zfgj.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9803.PNG</strong> (986.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 01:39 上传
+
+唉，哈卡奈<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+单看这段话，就像聊天一样自然，真实<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+比游戏王MUGEN里的SixthSeal还要真实<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

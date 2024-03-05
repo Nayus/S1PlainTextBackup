@@ -8411,3 +8411,187 @@ scsp作为新游根本连及格都不到<img src="https://static.saraba1st.com/i
 我只是玩个梗，让大家不要看到“新”作品就抵触，起码真正端出来再说，并不是说它搞出了什么新东西[f:067 ...</blockquote>
 不过这次好像不是音游，是SC那种培养的游戏系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 2358#       发表于 2024-3-5 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">scsp现在不全看在动画播出前能不能完成自救
+
+*****
+
+####  patema  
+##### 2359#       发表于 2024-3-5 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158186&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-3-5 21:02</a>
+
+我只是玩个梗，让大家不要看到“新”作品就抵触，起码真正端出来再说，并不是说它搞出了什么新东西[f:067 ...</blockquote>
+这次纯育成游戏吧
+
+*****
+
+####  ViviR  
+##### 2360#       发表于 2024-3-5 21:07
+
+<blockquote>花开安菲路 发表于 2024-3-5 21:02
+我只是玩个梗，让大家不要看到“新”作品就抵触，起码真正端出来再说，并不是说它搞出了什么新东西[f:067 ...</blockquote>
+但这看起来是马娘玩法啊…说实话目前新游的情报里最让我养胃的就是这个，什么声优唱歌难听人设不如预期吸引人啥的都没什么了。
+
+
+*****
+
+####  rexzhanghao  
+##### 2361#       发表于 2024-3-5 21:08
+
+我最想看到的imas游戏类型其实是足球经理或者steam上Idol Manager那样的
+
+*****
+
+####  Alicest  
+##### 2362#       发表于 2024-3-5 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158186&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-3-5 21:02</a>
+我只是玩个梗，让大家不要看到“新”作品就抵触，起码真正端出来再说，并不是说它搞出了什么新东西[f:067 ...</blockquote>
+总之要到八月末才端上来呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在说什么都没意义，上手之后才知道成色
+
+*****
+
+####  花开安菲路  
+##### 2363#       发表于 2024-3-5 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158205&amp;ptid=2130897" target="_blank">magicc 发表于 2024-3-5 21:04</a>
+不过这次好像不是音游，是SC那种培养的游戏系统</blockquote>
+到时看看做不做牢，前面也说了像马娘坐牢的话直接不用碰了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Srchy  
+##### 2364#       发表于 2024-3-5 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">从角色到肉体到玩法，都毫无吸引力
+
+*****
+
+####  patema  
+##### 2365#       发表于 2024-3-5 21:09
+
+反正等先出了再说，再烂烂不过scsp
+
+*****
+
+####  Alicest  
+##### 2366#       发表于 2024-3-5 21:09
+
+scsp存在的价值是不是给页游提供3d live
+
+
+*****
+
+####  江口夕  
+##### 2367#       发表于 2024-3-5 21:12
+
+<img src="https://img.saraba1st.com/forum/202403/05/210718en3b1byfyo66bylb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 21:07 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/210735asibsixzdyzxikki.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 21:07 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/210757plilovcrcvocbuaw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 21:07 上传
+
+首席红厉害了，这面板差。你们这些杂鱼前辈和杂鱼同窗一起上吧，我赶时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 2368#       发表于 2024-3-5 21:12
+
+<img src="https://img.saraba1st.com/forum/202403/05/211153s386xmwmadmqdd1t.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240305210805.png</strong> (87.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 21:11 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">第三个也太竹竿了
+
+*****
+
+####  SchwarzX  
+##### 2369#       发表于 2024-3-5 21:12
+
+最新永远是最烂的，有点每次高达新作公布遗老发癫那味了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2370#       发表于 2024-3-5 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158301&amp;ptid=2130897" target="_blank">バーチャルS1er 发表于 2024-3-5 21:12</a>
+
+第三个也太竹竿了</blockquote>
+看pv这位确实是运动能力一坨
+
+*****
+
+####  Alicest  
+##### 2371#       发表于 2024-3-5 21:13
+
+等下，难道水魔不比铁血烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2372#       发表于 2024-3-5 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158302&amp;ptid=2130897" target="_blank">SchwarzX 发表于 2024-3-5 21:12</a>
+
+最新永远是最烂的，有点每次高达新作公布遗老发癫那味了</blockquote>
+错误的，p会回旋，高达遗老不会
+
+*****
+
+####  Anatoly  
+##### 2373#       发表于 2024-3-5 21:15
+
+花海(（红）cv
+[https://amuleto.jp/talents/nagatsukiaoi.html](https://amuleto.jp/talents/nagatsukiaoi.html)
+
+月村（蓝）cv
+[https://imenterprise.jp/profile.php?id=149](https://imenterprise.jp/profile.php?id=149)
+
+藤田（黄）cv
+[https://raccoon-dog.co.jp/talent/r18-iida.html](https://raccoon-dog.co.jp/talent/r18-iida.html)
+
+花海的cv惨到连萌百词条都没，剩下俩还是有的
+
+月村cv是im的，从番组路线看是im老带新感觉比瞳瞳正常多了
+
+说起来im不是还有个出道直接抢下漫改男主役的新人吗（
+
+*****
+
+####  天球仪观测者  
+##### 2374#       发表于 2024-3-5 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158301&amp;ptid=2130897" target="_blank">バーチャルS1er 发表于 2024-3-5 21:12</a>
+第三个也太竹竿了</blockquote>
+<img src="https://p.sda1.dev/16/5709055dadc0a15cfb4450cd02013a95/Image_1709644530670.jpg" referrerpolicy="no-referrer">
+

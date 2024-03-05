@@ -40,3 +40,15 @@
 
 龍幸伸
 
+
+*****
+
+####  jy000129  
+##### 67#       发表于 2024-3-5 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64153479&amp;ptid=2159012" target="_blank">佛剑分说 发表于 2024-3-5 14:33</a>
+龍幸伸</blockquote>
+周更话那么细还有时间画别的，龙幸申，我的超人
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

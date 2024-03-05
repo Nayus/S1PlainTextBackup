@@ -4691,3 +4691,18 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aptx8285144  
+##### 4257#       发表于 2024-3-5 19:15
+
+【诺瓦尔（cv.古賀葵）、雪儿（cv.青山なぎさ）「Your Song」「SYNDUALITY Noir」-哔哩哔哩】 [https://b23.tv/OqbnJk5v](https://b23.tv/OqbnJk5v)   古贺葵与青山姐之间的真人共演
+
+*****
+
+####  yangqizhi45  
+##### 4258#       发表于 2024-3-5 19:20
+
+这集真的观感太差了
+

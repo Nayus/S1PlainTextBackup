@@ -7651,3 +7651,123 @@ DZZ1`2W}N]H~8XFLYLA~0IG.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  田所あずさ  
+##### 2281#       发表于 2024-3-5 19:16
+
+滚吧万代，我看不到一点偶像大师要素，你毁了imas
+
+*****
+
+####  安广多惠子  
+##### 2282#       发表于 2024-3-5 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156936&amp;ptid=2130897" target="_blank">Srchy 发表于 2024-3-5 19:15</a></blockquote>
+吸收所有对手，无敌
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安广多惠子  
+##### 2283#       发表于 2024-3-5 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156936&amp;ptid=2130897" target="_blank">Srchy 发表于 2024-3-5 19:15</a></blockquote>
+吸收所有对手，无敌
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hinarin  
+##### 2284#       发表于 2024-3-5 19:18
+
+IP+烤精神续作？爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠吃火锅  
+##### 2285#       发表于 2024-3-5 19:18
+
+4+估计剧情也就pjsk那种不敢越雷区的宝宝巴士车轱辘了
+
+*****
+
+####  星降る森  
+##### 2286#       发表于 2024-3-5 19:18
+
+偶像元宇宙大师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/05/191746q1yggiipyppsg2zo.jpg" referrerpolicy="no-referrer">
+
+<strong>387f9972e79d7532.jpg</strong> (589.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:17 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/191754z9d93eq47423qdd4.jpg" referrerpolicy="no-referrer">
+
+<strong>-7ae23f7dc5c54f6c.jpg</strong> (226.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:17 上传
+
+*****
+
+####  谁的无聊中  
+##### 2287#       发表于 2024-3-5 19:18
+
+管人团是半死不活吗？没人讨论也是能有够惨的了
+
+*****
+
+####  magicc  
+##### 2288#       发表于 2024-3-5 19:20
+
+4+吗，SC两个是多少
+
+*****
+
+####  MELTMOON  
+##### 2289#       发表于 2024-3-5 19:20
+
+<blockquote>Vacuolar 发表于 2024-3-5 19:13
+这企划，如果没把贵公子搬出来。这字体，这建模，这标志，真是看不出哪里有偶像大师要素。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红色系声线是有几分似中村阁下，我不好说代哥是不是有点刻意了
+
+
+*****
+
+####  soranoguiji  
+##### 2290#       发表于 2024-3-5 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这垃圾管人团背后好像还是虚拟始皇帝那家吧，当初就知道火不了，还不如隔壁学227的莲团
+
+*****
+
+####  Srchy  
+##### 2291#       发表于 2024-3-5 19:25
+
+<img src="https://img.saraba1st.com/forum/202403/05/192520z3luecgkolbg0erj.png" referrerpolicy="no-referrer">
+
+<strong>5PHWIEM`2WE63L)ILI~LOR8_tmb.png</strong> (6.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:25 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2292#       发表于 2024-3-5 19:25
+
+什么是偶像大师？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我个人还挺喜欢的
+

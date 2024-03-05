@@ -7244,3 +7244,204 @@ qualiarts好像就是CA底下的吧，抄赛马娘怎么了，一家人哦</bloc
 
 别发蓝系好吗 
 
+
+*****
+
+####  wfhtony  
+##### 2235#       发表于 2024-3-5 18:46
+
+這次的三位信號燈的劇本是伏見親自寫的。
+原畫：
+<img src="https://tc2.wfhtony.space/images/2024/03/05/f440a2ab666a188e212f483f82cd93be.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Srchy  
+##### 2236#       发表于 2024-3-5 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这红巨头长的是真丑啊...
+
+*****
+
+####  cckuku  
+##### 2237#       发表于 2024-3-5 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156637&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-5 18:45</a>
+ 差点真看成lhrc了</blockquote>
+顶着这个名字做这种事<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2238#       发表于 2024-3-5 18:47
+
+scsp弃坑
+学mas 启动
+
+歌肯定听 但感觉开始怎么跟sc反着来 不打组合 先solo
+
+*****
+
+####  lz741990563  
+##### 2239#       发表于 2024-3-5 18:47
+
+每周放一点是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠吃火锅  
+##### 2240#       发表于 2024-3-5 18:48
+
+红绿灯两外热内冷一冷脸毒舌闻到股怪味，看到伏见司就明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  田所あずさ  
+##### 2241#       发表于 2024-3-5 18:49
+
+这下真的灰百闪联合抗学了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 2242#       发表于 2024-3-5 18:49
+
+手游好像还有很久才上，性能问题能解决的吧，应该<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 2243#       发表于 2024-3-5 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156675&amp;ptid=2130897" target="_blank">rslika 发表于 2024-3-5 18:49</a>
+手游好像还有很久才上，性能问题能解决的吧，应该</blockquote>
+24年春預定。就萬南這個樣子，下個月開服都不意外（
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  虚无缥缈的光阴  
+##### 2244#       发表于 2024-3-5 18:50
+
+肉体太呃呃了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  田所あずさ  
+##### 2245#       发表于 2024-3-5 18:50
+
+把事务所这个设定扔了真有你的万代<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 2246#       发表于 2024-3-5 18:51
+
+按照这个预告4月底开始就有几率吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥F特  
+##### 2247#       发表于 2024-3-5 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">QA和CY关系算不算日版光子天美
+
+*****
+
+####  kangkangsama  
+##### 2248#       发表于 2024-3-5 18:52
+
+<blockquote>仓鼠吃火锅 发表于 2024-3-5 18:48
+红绿灯两外热内冷一冷脸毒舌闻到股怪味，看到伏见司就明白了</blockquote>
+那个恶心！变态！听着耳熟
+
+一看伏见司
+
+*****
+
+####  rgauss  
+##### 2249#       发表于 2024-3-5 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64156693&amp;ptid=2130897" target="_blank">虚无缥缈的光阴 发表于 2024-3-5 18:50</a>
+
+肉体太呃呃了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">黄色挺不错的
+
+*****
+
+####  陆久舟  
+##### 2250#       发表于 2024-3-5 18:52
+
+说实话组合箱推还是挺有优势的，改成solo还是挺可惜的
+
+*****
+
+####  花开安菲路  
+##### 2251#       发表于 2024-3-5 18:53
+
+只能说留给scsp的时间不多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+也有可能俩全部寄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 2252#       发表于 2024-3-5 18:54
+
+感觉就苍的肉体差了点吧，红黄都还可以<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  田所あずさ  
+##### 2253#       发表于 2024-3-5 18:54
+
+<img src="https://img.saraba1st.com/forum/202403/05/185439d3dd2cfztu2z6j8f.png" referrerpolicy="no-referrer">
+
+<strong>VQKJ(X9V{QB6)_CNCRMIC.png</strong> (48.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 18:54 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陆久舟  
+##### 2254#       发表于 2024-3-5 18:55
+
+SC的核心还是enza版的剧情，不知这学mas剧情会咋样
+
+*****
+
+####  lz741990563  
+##### 2255#       发表于 2024-3-5 18:55
+
+能不能来个系列史最速动画化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2256#       发表于 2024-3-5 18:55
+
+小美野先埋一半吧
+
+*****
+
+####  Srchy  
+##### 2257#       发表于 2024-3-5 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">红的还可以吗？蓝的大脸还能拿发型遮遮，这红的是真看不下去了
+

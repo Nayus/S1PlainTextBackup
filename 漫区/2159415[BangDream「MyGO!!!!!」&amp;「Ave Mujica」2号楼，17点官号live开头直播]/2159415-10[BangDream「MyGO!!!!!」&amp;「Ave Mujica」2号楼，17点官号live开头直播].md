@@ -7053,3 +7053,15 @@ mygo本来就挺纯良——滚也是，这两天补了女武神FL才惊觉，�
 
 李子第一次遇到奏音是音乐工作室阿
 
+
+*****
+
+####  makece  
+##### 13932#       发表于 2024-3-5 19:29
+
+新兵进场存活不超过10秒就被李子秒了
+
+何等残酷的填线
+
+今天是要全军覆没啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

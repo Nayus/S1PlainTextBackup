@@ -7771,3 +7771,77 @@ IP+烤精神续作？爱了<img src="https://static.saraba1st.com/image/smiley/f
 
 我个人还挺喜欢的
 
+
+*****
+
+####  koodooliz  
+##### 2293#       发表于 2024-3-5 19:30
+
+<img src="https://img.saraba1st.com/forum/202403/05/192923igdqsdncjzr8mr3d.jpg" referrerpolicy="no-referrer">
+
+<strong>SCSP.jpg</strong> (23.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:29 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/192924wv883lna8npvjdn6.jpg" referrerpolicy="no-referrer">
+
+<strong>CG.jpg</strong> (25.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:29 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/192924wn2n2zclctydffcy.jpg" referrerpolicy="no-referrer">
+
+<strong>ML.jpg</strong> (24.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:29 上传
+
+分级，很神奇吧？
+
+*****
+
+####  natmk  
+##### 2294#       发表于 2024-3-5 19:30
+
+人设挺普通的但建模是挺好看的不过这么看来主机新作是几年内都没戏了
+
+*****
+
+####  田所あずさ  
+##### 2295#       发表于 2024-3-5 19:30
+
+滚懂吗
+
+[N~%R}4S2{0S9U5MDOX)}SK.jpg
+(218.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-5 19:30 上传
+
+<img src="https://img.saraba1st.com/forum/202403/05/193014oljiyv0o23igs3gl.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  黛冬优子  
+##### 2296#       发表于 2024-3-5 19:30
+
+有一说一，这蓝色系谱真不行吧
+
+*****
+
+####  koodooliz  
+##### 2297#       发表于 2024-3-5 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157061&amp;ptid=2130897" target="_blank">natmk 发表于 2024-3-5 19:30</a>
+
+人设挺普通的但建模是挺好看的不过这么看来主机新作是几年内都没戏了</blockquote>
+外包作，和主机没啥关系吧。
+
+当然主机也是外包给ILCA的
+

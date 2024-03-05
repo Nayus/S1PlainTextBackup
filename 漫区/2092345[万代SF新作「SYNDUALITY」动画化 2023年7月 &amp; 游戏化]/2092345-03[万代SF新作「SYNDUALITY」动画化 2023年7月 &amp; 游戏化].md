@@ -4824,3 +4824,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我前面看得好好的，夏尔一过世怎么就出现这么恶心的剧情了。
 
+
+*****
+
+####  NeloAngelo  
+##### 4270#       发表于 2024-3-5 23:49
+
+歌姬女鬼化, 和noir快速来几句令人摸不着头脑的电波对话. 
+用这种富野式处理, 这集也不是不能救.
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

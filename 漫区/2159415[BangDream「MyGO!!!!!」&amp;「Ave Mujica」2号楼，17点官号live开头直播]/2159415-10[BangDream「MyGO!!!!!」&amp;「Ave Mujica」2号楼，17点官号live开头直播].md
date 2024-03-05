@@ -7272,3 +7272,14 @@ fmt还开在浅水湾的话去一次没什么大不了的
 
 至少见面会不用担心和ras那时候一样秒无吧……大概<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13958#       发表于 2024-3-6 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157548&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-3-5 20:09</a>
+
+海日是有什么黑历史吗，不太了解</blockquote>
+被建议主办方赶紧隔壁宛平南路600号入住的RAS上海站就是他们整的好活<img src="https://static.saraba1st.com/image/smiley/carton2017/406.png" referrerpolicy="no-referrer">
+

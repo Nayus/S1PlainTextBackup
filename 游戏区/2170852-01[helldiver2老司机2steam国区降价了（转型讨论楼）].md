@@ -12205,3 +12205,13 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强化资源的引导绝对有问题，二三十级了还是好多不主动带的，估计要么是没发现那个位置能带东西，要么是以为不是团队共享是谁带谁才有想谦让
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1225#       发表于 2024-3-6 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">再问下，自己和朋友开难度4的房经常一个地方遇见3只坦克虫，被创成傻逼，但是匹配野队经常就一个地方最多出一只坦克虫，是三轮车的姿势不对吗
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

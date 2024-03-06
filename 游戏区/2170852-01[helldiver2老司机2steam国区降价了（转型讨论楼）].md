@@ -13074,3 +13074,33 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 孝子突出一个语气不说人话，真把自己当老害了</blockquote>
 贴吧最跳的俩孝子一个是OP一个是游戏领域大神，第一定律的含金量仍在提高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 1308#       发表于 2024-3-6 22:58
+
+哦真的牛批，我说怎么磁轨炮解锁之后打半天都断不了个腿，合着是削了
+
+喷火器喷队友比喷怪更快，箭头组自觉把亲妈也放上来烤了吧
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1309#       发表于 2024-3-6 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170930&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-3-6 22:58</a>
+
+哦真的牛批，我说怎么磁轨&amp;#x7 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">修复：绝地潜者们现在将受到来自队友产生的火、气体等伤害
+
+之前烤队友没伤害是bug辣
+
+
+*****
+
+####  DawnGuardian  
+##### 1310#       发表于 2024-3-6 23:02
+
+不过我下来感觉刷怪好像变少了点，以前打n7就坦克虫泰坦满地爬了，今天打了一把n9，刷怪量感觉少了不少来自: iPhone客户端
+

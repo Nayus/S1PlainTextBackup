@@ -12658,3 +12658,33 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 磁轨炮减了穿甲等级和部位伤害。</blockquote>
 鸟弹连喷穿透也buff了
 
+
+*****
+
+####  风萧飒  
+##### 1264#       发表于 2024-3-6 19:28
+
+这削弱有点变态了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  WGTCorp  
+##### 1265#       发表于 2024-3-6 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64169170&amp;ptid=2170852" target="_blank">洛拉斯 发表于 2024-3-6 19:26</a>
+鸟弹连喷射速300→330，弹丸数12→16，弹容32→26。
+
+鸟蛋有轻甲穿透了吗</blockquote>
+那必然没有，不然不是完爆了普通连喷。
+
+*****
+
+####  xinfengj  
+##### 1266#       发表于 2024-3-6 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64169121&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-6 19:22</a>
+破裂者得换第九页那把散弹枪了</blockquote>
+不给力的，鸟喷被嫌弃是没穿甲，加了可能会变神，不加穿甲怎么改都是下水道
+

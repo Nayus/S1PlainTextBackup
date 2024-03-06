@@ -9961,3 +9961,45 @@ IMG_2984.jpeg
 
 土豆别的不说，什么时候能把那个铁裙摆和黑洞袖口给修一修？
 
+
+*****
+
+####  Vacuolar  
+##### 2504#       发表于 2024-3-6 13:49
+
+td上把衣服从一层加到两层，并且学cgss那样加材质包加面部细节，应该就又能看。但是这帮人给模型加个阴影材质花了一年。
+
+*****
+
+####  rgauss  
+##### 2505#       发表于 2024-3-6 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64165052&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-3-6 13:40</a>
+看了下声优profile，红的趣味是偶像鉴赏，特技是钢琴，所以是全才？蓝的特技是DANCE，黄的趣味和特技都是唱 ...</blockquote>
+你黄蓝看反了
+
+*****
+
+####  没取名啊  
+##### 2506#       发表于 2024-3-6 13:50
+
+土豆的画面还挺清爽的，有个4k画质的话搭配优秀的运镜，人的每个动作都能看得很清楚。酸菜薯片那个画面就不上不下了
+
+
+*****
+
+####  achilleus  
+##### 2507#       发表于 2024-3-6 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64165149&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-6 13:49</a>
+
+你黄蓝看反了</blockquote>
+我说的是声优啊，饭田光，趣味特技唱歌，小鹿NAO（又是一个NAO，爱马仕几个NAO了？）特技是DANCE，这不跟角色正好反了吗
+
+*****
+
+####  田所あずさ  
+##### 2508#       发表于 2024-3-6 13:53
+
+因为土豆是南梦宫老人开发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">效率堪忧，那个新模式开发多久了还在预告
+

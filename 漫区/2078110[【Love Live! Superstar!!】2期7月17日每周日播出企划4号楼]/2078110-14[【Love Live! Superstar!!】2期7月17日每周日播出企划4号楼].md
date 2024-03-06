@@ -137,3 +137,15 @@ LL里上一个这么做的是秀秀。</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 19719#       发表于 2024-3-6 15:27
+
+【【中字】5th nagi“唱ゆら的时候，因为鲤酱太高了，我的麦克风都是她帮我调好的呢”-哔哩哔哩】 https://b23.tv/any9mTN
+
+🐟对麦克风高度的掌握很精准<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

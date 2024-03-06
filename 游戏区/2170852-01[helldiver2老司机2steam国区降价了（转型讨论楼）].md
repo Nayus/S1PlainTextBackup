@@ -12872,3 +12872,28 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就毕业之后难7摆烂了,现在如果没有轨道波动啥的不如带一次性筒子了
 
+
+*****
+
+####  Launce  
+##### 1287#       发表于 2024-3-6 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多少有点幽默了，你这EAT有1那水准或者火力网有轰鸣者那准头，我用得着天天背个磁轨去给队友兜底吗
+
+*****
+
+####  qionglu735  
+##### 1288#       发表于 2024-3-6 21:20
+
+磁轨有人试过了吗
+discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
+* **Railgun**: Decreased armor penetration in Safe Mode, decreased damage against durable enemy parts
+
+
+*****
+
+####  smdzh2  
+##### 1289#       发表于 2024-3-6 21:24
+
+贱头：不急，等玩家被气得准备跑路时我们再高调宣布武器升级系统回归，100w日活指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

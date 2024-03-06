@@ -1650,3 +1650,15 @@ amazon watchparty机能结束了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心樱天下第一
 
+
+*****
+
+####  holoan  
+##### 8333#         楼主| 发表于 2024-3-6 17:51
+
+还需要注意的点是这歌是去年就做好的，再往前推半年就是开始准备做的时候应该是22年，结果这歌词22年放到现在也没什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有蓝发这个说辞，22年其实还不算是七字母蜜月期，阿心当时写这个歌词就很有得琢磨因为前任现任都是蓝发
+
+结论就是没有人比阿心更懂miko，​​はぁみこ最强了属于
+

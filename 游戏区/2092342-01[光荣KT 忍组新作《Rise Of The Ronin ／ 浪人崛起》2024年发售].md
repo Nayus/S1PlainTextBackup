@@ -1513,3 +1513,22 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 下周preview</blockquote>
 怂！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夏侯妙才  
+##### 815#       发表于 2024-3-6 17:49
+
+preview是什么东西
+
+
+*****
+
+####  医生狼多  
+##### 816#       发表于 2024-3-6 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64168112&amp;ptid=2092342" target="_blank">夏侯妙才 发表于 2024-3-6 17:49</a>
+preview是什么东西</blockquote>
+一般是限定部分内容（如关卡或者游玩时间）的体验，算是吹逼的通稿
+龙信的今天发了，你可以看看，大概都是一个画风
+

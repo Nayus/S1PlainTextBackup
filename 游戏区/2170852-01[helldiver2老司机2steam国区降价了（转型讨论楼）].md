@@ -12986,3 +12986,18 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新排了一盘都默契地没带磁轨枪，还打得很顺利，刚想说野排排的好舒爽的时候在船上闪退了
 
+
+*****
+
+####  拔丝光头  
+##### 1299#       发表于 2024-3-6 22:22
+
+这游戏发售还不到一个月，怎么养出来那么多孝子洗地削的好的<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 1300#       发表于 2024-3-6 22:24
+
+开服就有超级气球孝子洗服务器问题了，不奇怪
+

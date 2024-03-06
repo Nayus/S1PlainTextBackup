@@ -1354,3 +1354,21 @@ Nick老师说3月5号左右将有对马岛之魂PC移植版的消息</blockquote
 
 对马岛没有续作的可能性和血缘有续作一样
 
+
+*****
+
+####  Piano-Forest  
+##### 151#       发表于 2024-3-6 23:59
+
+对马岛 5月16日PC发售：
+
+Ghost of Tsushima导演剪辑版
+[https://store.steampowered.com/app/2215430/Ghost_of_Tsushima/](https://store.steampowered.com/app/2215430/Ghost_of_Tsushima/)
+
+*****
+
+####  天堂大法  
+##### 152#       发表于 2024-3-6 23:59
+
+billbil-kun：《对马岛之魂》将于5月16日登陆PC平台。 
+

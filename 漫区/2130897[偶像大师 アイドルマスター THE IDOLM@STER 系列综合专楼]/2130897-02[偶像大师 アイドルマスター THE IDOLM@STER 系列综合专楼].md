@@ -9761,3 +9761,20 @@ ilca我记得是管的pc移植吧？
 
 这b管百万，百万摆烂一年。管灰灰，灰灰最烂总选。他走到哪我骂到哪，希望这企划真的能热吧，不能热我又有角度骂他了。
 
+
+*****
+
+####  MELTMOON  
+##### 2483#       发表于 2024-3-6 10:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学历方面反而不是对应现实位面了，属于是归真返璞，难得代哥实诚
+
+*****
+
+####  Anatoly  
+##### 2484#       发表于 2024-3-6 10:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">艺能类学校
+
+强调个人特色也很正常……吧……吧（
+

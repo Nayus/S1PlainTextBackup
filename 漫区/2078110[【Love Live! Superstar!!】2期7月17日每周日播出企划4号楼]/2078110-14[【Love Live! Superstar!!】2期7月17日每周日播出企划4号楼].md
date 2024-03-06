@@ -103,3 +103,25 @@ yabu为了当偶像从大学退学，这小妮子还挺劲爆的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ruffian  
+##### 19716#       发表于 2024-3-6 10:14
+
+比起大学退学，还瞒着她爸更是炸裂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 19717#       发表于 2024-3-6 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64160183&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-3-5 23:57</a>
+
+yabu为了当偶像从大学退学，这小妮子还挺劲爆的
+
+论坛助手,iPhone</blockquote>
+LL里上一个这么做的是秀秀。
+

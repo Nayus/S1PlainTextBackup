@@ -12954,3 +12954,27 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在b站刷了太多的二创，现在超级气球在我印象里已经成了早八点儿童动画片里的反派
 
+
+*****
+
+####  Launce  
+##### 1296#       发表于 2024-3-6 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170351&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-3-6 21:54</a>
+
+在b站刷了太多的二创，现在超级气球在我印象里已经成了早八点儿童动画片里的反派 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能，他确实就是早八点儿童动画片里的反派
+
+
+*****
+
+####  looptube  
+##### 1297#       发表于 2024-3-6 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64169808&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-6 20:39</a>
+
+这下本就很强的喷火器，更是无敌了
+
+他这一波补丁下来打虫子影响还不是很大，感觉机器人更没法打了，本来就 ...</blockquote>
+打机器人强推机炮，房子，炮楼，坦克，无畏都能打
+

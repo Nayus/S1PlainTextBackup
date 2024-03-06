@@ -7475,3 +7475,13 @@ staff肯定得考虑听众能不能接受是一回事
 
 海日最近割韭菜有点太狠了，上个月是RAS，这个月momoyo见面会，三森live，下个月贵贵见面会，后面还有李子，关键这些受众基本都是一拨人，哪能吃得消海日这么割
 
+
+*****
+
+####  PDQ4  
+##### 13975#       发表于 2024-3-6 22:01
+
+R箱活这新剧情既视感冒出来了，你们陪伴系幼驯染都要这么搞一出吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+初祥词曲组大概不会这样，睦祥游戏里不会再搞这一出吧，睦宝儿吉他水平也很好，而且动画都已经有过短暂的分离了。唉鸡动画剧情好难猜<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

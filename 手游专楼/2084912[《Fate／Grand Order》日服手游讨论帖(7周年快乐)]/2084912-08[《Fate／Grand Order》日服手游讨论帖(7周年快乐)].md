@@ -986,3 +986,14 @@ Last Encore那个文艺风还是不错的，当年看完最大的嘈点是最后
 
 10连两宝唐吉坷德，爽到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 11495#       发表于 2024-3-6 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64160539&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2024-3-6 00:28</a>
+
+【fate/extra CCC汉化完成版发布-哔哩哔哩】 https://b23.tv/9JFlhYi</blockquote>
+这个真的太强了。我高三就看他们开这个坑了，拖到我现在上班了。果然型月的人都是属鸽子的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

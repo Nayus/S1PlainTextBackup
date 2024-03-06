@@ -865,3 +865,18 @@ loop是什么意思，老婆吗？</blockquote>
 
 不知道这波能不能多几个CCC厨<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 11483#       发表于 2024-3-6 10:37
+
+也不一定有卵用
+
+你看阿瓦隆之庭翻译完多久了，一群人跑2.6跟发现新大陆一样
+
+fe文本翻译和翻译视频一堆，结果铁鱼放映期间冒出一堆奇怪的FE厨，吹得天上地下
+
+不知道的还以为是什么惊天神作，玩过的只想亲切问候型月全家
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

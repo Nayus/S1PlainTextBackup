@@ -10035,3 +10035,40 @@ td上把衣服从一层加到两层，并且学cgss那样加材质包加面部�
 
 土豆的开发效率只能用悲剧来形容
 
+
+*****
+
+####  安广多惠子  
+##### 2512#       发表于 2024-3-6 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64165240&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-6 13:58</a>
+你的热爱，并不是你的生活（
+
+起码黄C昨天那首歌我是很难绷的</blockquote>
+那首歌让我瞬间想起本季的憧憬成为魔法少女里洛可那首歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  花开安菲路  
+##### 2513#       发表于 2024-3-6 14:09
+
+土豆那帮子无能开发，搞来搞去就给衣服加个阴影，当时我就惊了，还能这么敷衍这么低技术力的？就这还要一点一点实装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我只能感叹，日本手游圈真tm好混<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  田所あずさ  
+##### 2514#       发表于 2024-3-6 14:12
+
+土豆让你知道真正万代内部开发是什么效率好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 2515#       发表于 2024-3-6 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">土豆这种开发的慢起码不至于整崩在日本手游这一圈里不是已经算不错了（
+

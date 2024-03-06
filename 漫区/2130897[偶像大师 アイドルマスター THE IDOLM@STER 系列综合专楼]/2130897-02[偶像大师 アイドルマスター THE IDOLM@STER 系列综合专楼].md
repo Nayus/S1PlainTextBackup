@@ -9728,3 +9728,17 @@ ilca我记得是管的pc移植吧？
 
 万代全程就出派了个久多太子p跟进度。
 
+
+*****
+
+####  hypnossz86  
+##### 2480#       发表于 2024-3-6 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64161961&amp;ptid=2130897" target="_blank">三度音 发表于 2024-3-6 09:24</a>
+星耀的全部剧本、人设、开发都是ILCA自己的人做的。
+
+万代全程就出派了个久多太子p跟进度。 ...</blockquote>
+原来如此
+这作的俩新人黑白还挺讨喜的
+这么看外包的水平比本社高多了，前两作音游什么鸡扒
+

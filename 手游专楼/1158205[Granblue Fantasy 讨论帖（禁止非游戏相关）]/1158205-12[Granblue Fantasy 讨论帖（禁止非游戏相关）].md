@@ -83,3 +83,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次活动剧本也配10周年啊，太拉了
 
+
+*****
+
+####  cenhr  
+##### 17654#       发表于 2024-3-6 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64162065&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2024-3-6 09:34</a>
+
+这次活动剧本也配10周年啊，太拉了</blockquote>
+至少比黑帮街演龙珠超布罗利好
+
+那个周年根本就不知所谓，都不知道重点在哪里。至少这次是不死鸟搞事，主角一行躺枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

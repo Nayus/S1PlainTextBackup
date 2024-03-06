@@ -125,3 +125,15 @@ yabu为了当偶像从大学退学，这小妮子还挺劲爆的
 论坛助手,iPhone</blockquote>
 LL里上一个这么做的是秀秀。
 
+
+*****
+
+####  starring  
+##### 19718#       发表于 2024-3-6 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64162505&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-3-6 10:15</a>
+LL里上一个这么做的是秀秀。</blockquote>
+秀秀还是跨国，更狠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -5901,3 +5901,31 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 前期多攒钱，后几层跳过
 
+
+*****
+
+####  stera  
+##### 3580#       发表于 2024-3-6 09:27
+
+运气好两把就过了。输出不够的话真坐牢<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/06/092638gl6u3we1ewxgehle.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1709688193142.jpg</strong> (205.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 09:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  stera  
+##### 3581#       发表于 2024-3-6 09:36
+
+另外 整个DLC打下来感觉最好用的还得是狙，本身输出足够还自带贯穿，手长在安全的地方游击打刷怪点，捉鱼，推塔都很方便。晶体只要摸到两三块减少蓄力时间+减少主武器消耗/回墨效率。其他随便拿都直接就是爽局。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

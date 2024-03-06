@@ -178,3 +178,15 @@
 尼克尔一星剧情就已经接上最新主线剧情了而且是在中东前线指挥。既然c ...</blockquote>
 英国人：轮到我了，我一定不会让皇帝失望的呀～
 
+
+*****
+
+####  江戸前ルナ  
+##### 959#         楼主| 发表于 2024-3-6 22:16
+
+已经滑铁卢了，疑似全靠东京船团派人去擦屁股<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说这中东船团有点东西啊，从东京保卫战VICE那阵势来看，中东船团能顶住这么多利维坦一波流简直超神了吧，而且还有SIN在内里搞鬼。
+
+话说老欧洲为了中东人民竟然能拉起一帮能打的志愿军联合，对比起现在俄乌费拉不堪毫无战斗力的欧公子，阿嘎果然不愧是科幻作品<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+另外不得不吐槽一下这所谓的法国最强，性能简直……因为没抽到就打了个LV130的BOSS。那个防反作为片手起手判定竟然这么慢伤害还一般，关键是疑似没全程无敌<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

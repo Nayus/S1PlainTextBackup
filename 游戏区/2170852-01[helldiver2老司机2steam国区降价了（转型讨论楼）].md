@@ -12864,3 +12864,11 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">最讨厌这种，不去加强武器，非要来削弱的平衡思路了，玩游戏是来爽的不是来给你们制作组当孙子的
 
+
+*****
+
+####  LrGsite  
+##### 1286#       发表于 2024-3-6 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就毕业之后难7摆烂了,现在如果没有轨道波动啥的不如带一次性筒子了
+

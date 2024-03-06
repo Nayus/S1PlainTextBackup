@@ -9912,3 +9912,13 @@ IMG_2984.jpeg
 
 代孙这企划憋了这么多年 肯定要资源拉满 就是不知道拉出来的是啥
 
+
+*****
+
+####  江口夕  
+##### 2498#       发表于 2024-3-6 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来和偶像荣耀一个制作公司，所以出这企划是准备抢哪边的人
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

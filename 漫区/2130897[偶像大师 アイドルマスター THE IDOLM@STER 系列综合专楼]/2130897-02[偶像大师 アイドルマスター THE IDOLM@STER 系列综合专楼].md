@@ -9615,3 +9615,13 @@ btw，虽然实际上运营路线能有接近90度的不同，但是莲之空和
 高品质一线3D，人设剧本音乐流行的全都拉满，以及可预见的2D动画
 要说哪里不像爱马仕那大概就是过于像个正常企划了
 
+
+*****
+
+####  鳄鱼头  
+##### 2470#       发表于 2024-3-6 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64159668&amp;ptid=2130897" target="_blank">バーチャルS1er 发表于 2024-3-5 23:14</a>
+这鞋袜是照着男人鞋袜画的吧</blockquote>
+衬衫都是男款，所以很多人合理分析这个可能是汉子
+

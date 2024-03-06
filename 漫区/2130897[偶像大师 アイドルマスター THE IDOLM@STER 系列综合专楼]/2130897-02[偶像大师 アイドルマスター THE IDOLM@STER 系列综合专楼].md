@@ -10151,3 +10151,13 @@ F$L4[S(8@96IG5}2H01I09H.jpg
 
 这就是属于偶像大师的水星的魔女！我就说感觉这么熟悉像是发生过的事情一样我这么熟练的反应，搞半天万代你个畜生之前已经给我演示过一遍了
 
+
+*****
+
+####  liyropen  
+##### 2523#       发表于 2024-3-7 01:54
+
+最开始那个pv里的人应该就是红巨头的妹妹了，如果是对手位的话，为什么放pv里呢，还是放在镜头主线分镜里的，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">红的剧情要整什么活
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

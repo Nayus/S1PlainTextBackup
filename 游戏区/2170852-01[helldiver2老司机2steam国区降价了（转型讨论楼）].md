@@ -13362,3 +13362,27 @@ https://tieba.baidu.com/p/8923625372
 
 喷火器喷牛是好用，如果喷得准可以在牛开始冲锋的动作结束之前把牛直接喷死，现在的一大问题是没了磁轨枪打泰坦是个问题，我今天打了两轮难9全清都是有两个人拿着磁轨枪靠延迟bug硬秒泰坦，然后我用喷火器追着牛烧，以前是一个磁轨枪又打泰坦又打牛，9难4人分头逛公园，现在还是会死不少人的
 
+
+*****
+
+####  runningch  
+##### 1338#       发表于 2024-3-7 01:46
+
+实际测试了一下，磁轨枪安全模式打喷涌虫得两枪，原来是一枪爆头死。现在磁轨不只打不了牛，连喷涌虫都打不了，真的可以扔进下水道了。
+
+*****
+
+####  runningch  
+##### 1339#       发表于 2024-3-7 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64171220&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-6 23:28</a></blockquote>
+贱头一定是被虫子脑控了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/07/014724uqg4dy9llqni48lf.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240307004646.png</strong> (139.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 01:47 上传
+

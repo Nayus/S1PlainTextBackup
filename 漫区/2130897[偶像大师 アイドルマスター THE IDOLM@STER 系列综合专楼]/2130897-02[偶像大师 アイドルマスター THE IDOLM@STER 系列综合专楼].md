@@ -10072,3 +10072,24 @@ td上把衣服从一层加到两层，并且学cgss那样加材质包加面部�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">土豆这种开发的慢起码不至于整崩在日本手游这一圈里不是已经算不错了（
 
+
+*****
+
+####  rgauss  
+##### 2516#       发表于 2024-3-6 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64165436&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-6 14:16</a>
+土豆这种开发的慢起码不至于整崩在日本手游这一圈里不是已经算不错了（ ...</blockquote>
+崩过啊 当时直接送了十连
+
+*****
+
+####  三度音  
+##### 2517#       发表于 2024-3-6 14:26
+
+土豆应该是跑路了不少人了。
+
+体感大概在深层美人鱼活动之后，那位搞出来一镜到底运镜高水平的MV的作者跑路了；
+
+4周年Harmony 4 You左右，不停机的谷歌服务器运维神话也破灭了；
+

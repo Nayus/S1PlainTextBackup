@@ -5929,3 +5929,11 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3582#       发表于 2024-3-6 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">现在打工低分段完全就是折磨，现在就想锤死自己为什么不打第一天的工
+

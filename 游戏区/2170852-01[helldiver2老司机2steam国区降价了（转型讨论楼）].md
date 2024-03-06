@@ -13192,3 +13192,13 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 2024-3-6 23:28 上传
 
+
+*****
+
+####  sdefrfg1  
+##### 1321#       发表于 2024-3-6 23:42
+
+不去整多点反装甲武器，反而来砍高风险高奖励的磁轨炮，这策划暴雪出来吧？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

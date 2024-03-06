@@ -1432,3 +1432,17 @@
 
 ----发送自 [OnePlus KB2000,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  北山玖公  
+##### 140#       发表于 2024-3-6 16:38
+
+生肉：[https://nicomanga.com/manga-this-communication-raw.html](https://nicomanga.com/manga-this-communication-raw.html)
+
+无事完结HE，这种充满误解的沟通一直持续到了最后，实在是不能不让人对“这种沟通”发笑。
+
+德鲁哈的目的还是一个都不差的完成了。
+
+死了的白月光确实无敌了，唯一缺陷就在于真的死掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

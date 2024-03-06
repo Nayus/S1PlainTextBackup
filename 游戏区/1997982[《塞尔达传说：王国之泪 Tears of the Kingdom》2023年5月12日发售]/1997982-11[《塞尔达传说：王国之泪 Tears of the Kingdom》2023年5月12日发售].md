@@ -50,3 +50,13 @@
 
 2024-3-7 00:24 上传
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15664#       发表于 2024-3-7 01:23
+
+这好像就是30周年原画集封面上的超繁复LOGO……
+
+把书拉出来看了下确实，而且也是王泪限定机dock上的图案<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

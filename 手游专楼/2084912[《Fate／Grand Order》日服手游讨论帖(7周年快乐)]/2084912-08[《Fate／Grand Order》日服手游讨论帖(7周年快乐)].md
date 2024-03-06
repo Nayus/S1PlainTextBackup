@@ -920,3 +920,11 @@ Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废
 
 更尴尬不是一些扔给樱井东出的锅后面被揭发其实是蘑菇写的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 11488#       发表于 2024-3-6 12:04
+
+反正在我看来就是蘑菇和沙发套这两者都不行才暴死
+

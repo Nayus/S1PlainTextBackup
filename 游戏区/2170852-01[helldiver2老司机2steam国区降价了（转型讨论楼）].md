@@ -12792,3 +12792,14 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 另外新的环境条件流星还挺好看的,虽然这几个效果实际游戏内都很恶心,很容易被砸死<img src="https://img.chkaja.com/e9fc11794c1b091c.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 1278#       发表于 2024-3-6 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64169410&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-3-6 19:51</a>
+
+打了一把，激光大炮转身变快，其他还是很幽默。喷火器感觉很行，烧小虫子快太多了。120和380还是看脸。重甲 ...</blockquote>
+激光炮现在打肉伤害很高，坦克虫的腿只要被打到破损（之前磁轨一枪的状态），对着破口滋能速杀
+

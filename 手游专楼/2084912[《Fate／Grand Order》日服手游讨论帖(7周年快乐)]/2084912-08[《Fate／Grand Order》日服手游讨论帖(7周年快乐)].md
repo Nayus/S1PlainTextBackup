@@ -947,3 +947,15 @@ Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废
 更尴尬不是一些扔给樱井东出的锅后面被揭发其实是蘑菇写的吗？</blockquote>
 樱井FGO第一背锅侠，金钻头幕间都能传成她写的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 11491#       发表于 2024-3-6 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64163161&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-6 11:06</a>
+Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废狗一部点7、二部点6、二部点7不知道高到哪里 ...</blockquote>
+开，但是我也这么认为<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">CCC的剧本尤其强劲
+
+太年轻的时候就接触了FE和CCC，对我的xp造成了不可挽回的影响会叫前辈的小恶魔ai重女，直线入沼，蘑菇全责<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

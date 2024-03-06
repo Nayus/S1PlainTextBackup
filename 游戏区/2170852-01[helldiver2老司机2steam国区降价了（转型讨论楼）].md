@@ -13020,3 +13020,27 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风萧飒  
+##### 1303#       发表于 2024-3-6 22:40
+
+喷火器现在烧坦克虫是挺快的，烧腿大概四秒左右就死了，就是烧其他虫子不太好用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1304#       发表于 2024-3-6 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来就有在开发电虫头跟烤虫腿杀坦克的
+
+把这两加强一下自然有人为了对群带
+
+现在看测试磁轨要不安全满蓄才能两发破腿 突出一个众生平等的罚站
+
+不知道箭头这帮B平时打难几 他们一波虫潮有几个坦克
+

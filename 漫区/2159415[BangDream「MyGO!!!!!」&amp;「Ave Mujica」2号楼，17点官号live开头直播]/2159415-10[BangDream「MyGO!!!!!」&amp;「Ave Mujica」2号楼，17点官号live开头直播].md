@@ -7381,3 +7381,17 @@ fmt还开在浅水湾的话去一次没什么大不了的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  SakuraのOrigami  
+##### 13967#       发表于 2024-3-6 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64160780&amp;ptid=2159415" target="_blank">Anatoly 发表于 2024-3-6 01:07</a>
+本来也没多重型啊
+而且哥特乐队整几首黄暴歌曲不也很正常</blockquote>
+staff肯定得考虑听众能不能接受是一回事
+他们肯定也想全写重，问题是不敢，怕听众接受不了（）
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

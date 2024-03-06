@@ -10130,3 +10130,24 @@ F$L4[S(8@96IG5}2H01I09H.jpg
 
 <img src="https://img.saraba1st.com/forum/202403/06/235335iohsm1u8ss4lt761.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 2521#       发表于 2024-3-7 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64171436&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-6 23:53</a>
+。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不推测一波某个偶像有个姐姐，曾经是制作人的同级生这种套路？
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  田所あずさ  
+##### 2522#       发表于 2024-3-7 00:31
+
+想了两天终于想到怎么形容学马了
+
+这就是属于偶像大师的水星的魔女！我就说感觉这么熟悉像是发生过的事情一样我这么熟练的反应，搞半天万代你个畜生之前已经给我演示过一遍了
+

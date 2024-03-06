@@ -13295,3 +13295,25 @@ Reddit绝赞炎上中<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  白昼梦  
+##### 1331#       发表于 2024-3-7 00:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是过两天商店就给你刷火伤-50%的甲，箭脑袋不会还没想到做这种东西吧
+
+*****
+
+####  琦乐无穷  
+##### 1332#       发表于 2024-3-7 00:28
+
+以前虫子难9感觉都没有更新后的难7压力大，主要是最常用的连喷磁轨一刀砍死，已经不会玩这游戏了。。。。
+
+*****
+
+####  FLZB  
+##### 1333#       发表于 2024-3-7 00:29
+
+其实现在有个火焰喷射器专门照顾坦克虫，清理效率要比以前高。箭头这个平衡思路基本就是不能有通吃的武器，必须都得有比较明显的短板
+

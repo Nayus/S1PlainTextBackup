@@ -4888,3 +4888,16 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不出your song歌姬的solo版，我直接bgm打1分
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4276#       发表于 2024-3-6 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158413&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-5 21:23</a>
+
+第三个不是么
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+没有Your Song独唱版啊
+

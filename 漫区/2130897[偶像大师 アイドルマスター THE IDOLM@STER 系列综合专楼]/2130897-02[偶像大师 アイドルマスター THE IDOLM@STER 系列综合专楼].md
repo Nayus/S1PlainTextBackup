@@ -9922,3 +9922,11 @@ IMG_2984.jpeg
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  田所あずさ  
+##### 2499#       发表于 2024-3-6 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我希望你后面能够真的偶像大师一点，如果这都做不到那还是抓紧滚吧
+

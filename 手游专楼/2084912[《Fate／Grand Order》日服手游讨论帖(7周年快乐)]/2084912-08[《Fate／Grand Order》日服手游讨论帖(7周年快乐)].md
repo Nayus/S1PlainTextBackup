@@ -928,3 +928,11 @@ Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废
 
 反正在我看来就是蘑菇和沙发套这两者都不行才暴死
 
+
+*****
+
+####  v22325  
+##### 11489#       发表于 2024-3-6 12:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初看到好像和游戏剧情不一样就没看，后来一看评价就更没打算看了，给自己留点美好回忆。
+

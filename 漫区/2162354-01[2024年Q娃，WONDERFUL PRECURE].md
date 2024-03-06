@@ -484,3 +484,24 @@ ost1封面出了 看来石锤猫组是夏季追加了
 这粉主职责分的是不是有点多啊，该不会到最后非人主是装的本质还是真人主吧，新的创新又无了 ...</blockquote>
 西方有青蛙王子和野天鹅，东方有大师兄不好啦师父被黄袍怪变成老虎啦
 
+
+*****
+
+####  犬飼いろは  
+##### 1131#       发表于 2024-3-6 18:47
+
+[https://m.weibo.cn/detail/5008996768941883](https://m.weibo.cn/detail/5008996768941883) <blockquote>3月预告详细
+
+06 发现新武器其实就是他们一直用来遛狗的狗绳变的，现在狗绳没了只能找爸爸借了一根，但小麦表示非以前那根不可，彩羽也怒了，表示那就别遛了，悟君对二人的状态很是担心
+
+07 第二天一早，小麦下意识找彩羽散步，然后才想起来自己已经离家出走了。另一边在海边彩羽遇到悟君，他追着逃跑的狮子噶路噶路，还说他先把小麦带回自己家了。彩羽想去见小麦，但悟君表示还有些事要问小麦。彩羽以为自己被讨厌，此时真由来到店里，彩羽问她和小雪相处情况。真由表示，猫猫很高冷，但因为喜欢她，就算不听话，还是觉得她可爱，还把小麦用的背带给了彩羽
+
+08 4月，转学生真由总算是顺利完成自我介绍。小麦去接彩羽却被香味勾到了prettyholic，于是猫狗玩了起来，尽管小雪很想赶走她。放学后彩羽和悟一起去学校的动物区
+
+09 小麦梦见和彩羽一起上学，醒来后咩咩告诉她，随着闪亮动物的回归，花园恢复生机。借助微笑钻石的力量，小麦也能去上学了。去学校后小麦看别人踢足球，以为是狗球的她把所有射门都救下来了。之后足球部的猪狩发起挑战，然而在小麦的完美防守下表示输得心服口服。后来大家都喂小麦吃东西，吃着吃着就困了</blockquote>
+
+<img src="https://p.sda1.dev/16/c120a10025467f559f18cb32a85e7ca4/e7cbae74gy1hnhfjylgsmj21cy1afnpd.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/ccec0c54c0383c0f9f563dfaaab4eac3/e7cbae74gy1hnhfkc3knyj21eh191kjl_2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/35a43fec2218fd519625ba01f6501e7c/e7cbae74gy1hnhfktl1x1j21h316tkjl.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/fa9f3d52d8e7cd217ab07f63c7c5e257/e7cbae74gy1hnhflbf7ztj21de1a0kjl.jpg" referrerpolicy="no-referrer">
+

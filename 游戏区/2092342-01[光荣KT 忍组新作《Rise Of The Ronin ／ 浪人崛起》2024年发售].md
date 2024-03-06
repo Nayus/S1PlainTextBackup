@@ -1532,3 +1532,11 @@ preview是什么东西</blockquote>
 一般是限定部分内容（如关卡或者游玩时间）的体验，算是吹逼的通稿
 龙信的今天发了，你可以看看，大概都是一个画风
 
+
+*****
+
+####  duraa  
+##### 817#       发表于 2024-3-6 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">很早的访谈里就说了没有试玩了啊
+

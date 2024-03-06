@@ -12838,3 +12838,29 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 电弧太刮了，还不如rpg了，这下梦回开服了
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1283#       发表于 2024-3-6 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磁轨腿给打断了 这下只能回去玩一次性筒子了
+
+电枪跟喷火手感都不是很喜欢 
+
+要削也不等新装备放出来再削  
+
+*****
+
+####  chgzzl  
+##### 1284#       发表于 2024-3-6 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">防护罩过于轮椅 习惯了之后 发现削弱真的很痛苦
+
+*****
+
+####  airshit  
+##### 1285#       发表于 2024-3-6 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">最讨厌这种，不去加强武器，非要来削弱的平衡思路了，玩游戏是来爽的不是来给你们制作组当孙子的
+

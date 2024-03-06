@@ -9682,3 +9682,14 @@ ilca我记得是管的pc移植吧？
 
 顺带看了看星耀季节吹的 星耀季节的模型面数大概是4-5w之间
 
+
+*****
+
+####  Anatoly  
+##### 2476#       发表于 2024-3-6 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说起来那个用星耀模型的，准备五星全上的街机有后续消息了吗
+还是已经开始正式运营了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

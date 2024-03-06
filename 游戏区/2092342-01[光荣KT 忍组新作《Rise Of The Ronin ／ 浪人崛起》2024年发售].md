@@ -1432,3 +1432,22 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 
 希望早点来PC吧……
 
+
+*****
+
+####  ronac  
+##### 808#       发表于 2024-3-6 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64132776&amp;ptid=2092342" target="_blank">葵 发表于 2024-3-3 17:15</a>
+
+我觉得画面黑红这忍组的祖宗之法其实是为了藏细节差画面拉垮的无奈之举。
+
+你看最新的那个武器演示，大白天 ...</blockquote>
+毕竟是侍道：究极进化版，画质也要向侍道看齐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过说归说，玩还是会第一时间玩的，毕竟从当年的维新之岚之后都没正经上手过啥幕末背景作品了
+
+虽然是奢望，要是动作之外的部分能融进去维新之岚的角色扮演要素，那忍组就是暂时的神
+
+纯偏重动作就只能当强化版侍道玩了，学N站某速通玩家捏个女剑鬼杀遍天下高手这样
+

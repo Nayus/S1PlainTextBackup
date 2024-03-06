@@ -10003,3 +10003,35 @@ td上把衣服从一层加到两层，并且学cgss那样加材质包加面部�
 
 因为土豆是南梦宫老人开发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">效率堪忧，那个新模式开发多久了还在预告
 
+
+*****
+
+####  Anatoly  
+##### 2509#       发表于 2024-3-6 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64165180&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-3-6 13:53</a>
+
+我说的是声优啊，饭田光，趣味特技唱歌，小鹿NAO（又是一个NAO，爱马仕几个NAO了？）特技是DANCE，这不跟 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你的热爱，并不是你的生活（
+
+起码黄C昨天那首歌我是很难绷的
+
+
+*****
+
+####  rgauss  
+##### 2510#       发表于 2024-3-6 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64165180&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-3-6 13:53</a>
+我说的是声优啊，饭田光，趣味特技唱歌，小鹿NAO（又是一个NAO，爱马仕几个NAO了？）特技是DANCE，这不跟 ...</blockquote>
+哦哦 但声优不完全等于角色）
+
+生活是生活 工作是工作
+
+*****
+
+####  rgauss  
+##### 2511#       发表于 2024-3-6 14:05
+
+土豆的开发效率只能用悲剧来形容
+

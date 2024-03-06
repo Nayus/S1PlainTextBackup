@@ -1737,3 +1737,12 @@ stgr已经彻底形成一个独立生态了
 不过追起 ...</blockquote>
 主要看你想看谁的视角吧，然后扩大到他所在的势力，基本上每个势力每天都会有数量不等的切片产生，把那些人都关注了就能知道个八九不离十了。认不得人这个也没办法 ，可以补补之前的切片，尽量找到他们刚认识的时候，或者一些变装角色、neta角色就一笑了之就行了
 
+
+*****
+
+####  渡鸦骑士  
+##### 46#       发表于 2024-3-6 18:22
+
+这下实锤黑色企业ANYCOLOR了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+霸王合同都被人捅出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -890,3 +890,25 @@ Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废
 
 铁鱼吹不是吹的那本单卖的铁鱼剧本集么，如果只吹Extra的剧本不尬洗它游戏性的话，确实很多地方写的可圈可点
 
+
+*****
+
+####  exiaexa  
+##### 11485#       发表于 2024-3-6 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64163161&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-6 11:06</a>
+
+Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废狗一部点7、二部点6、二部点7不知道高到哪里 ...</blockquote>
+吹剧本那是从fele变成铁鱼以后了
+
+在还没彻底翻车前，fe厨还挺开心的，天天忙着给人科普，翻车以后就只会抱着剧本“嘤嘤嘤都是沙发套耽误我菌哥哥的无敌剧本”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 11486#       发表于 2024-3-6 11:22
+
+铁鱼我只有童谣/爱丽丝回可以不黑，其他的都什么玩意
+

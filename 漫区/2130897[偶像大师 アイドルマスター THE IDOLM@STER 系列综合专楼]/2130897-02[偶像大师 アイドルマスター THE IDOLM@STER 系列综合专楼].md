@@ -9862,3 +9862,28 @@ IMG_2983.jpeg
 
 草，符合刻板印象，忘记之前在哪儿看的来着，灰p兼任其他企划的最少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 2493#       发表于 2024-3-6 11:16
+
+去年scsp有找a店打广告吗？
+
+IMG_2984.jpeg
+(587.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202403/06/111626c5s92nmwgs547ms9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格雷殿下  
+##### 2494#       发表于 2024-3-6 11:23
+
+代孙对这作这么自信吗
+

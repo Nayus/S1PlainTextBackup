@@ -12346,3 +12346,12 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 回头再看难9的机器人……
 
+
+*****
+
+####  DawnGuardian  
+##### 1237#       发表于 2024-3-6 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64163231&amp;ptid=2170852" target="_blank"> 赤井稻妻 发表于 2024-3-6 11:11</a> 引用:Masayuki 发表于 2024-3-6 10:19 把他当成一个可以动的高输出炮台期待值会好很多（能同时处理两个泰坦或者4头强袭虫，压制力很不错，火箭 ... 虫子其实已经没有太多需要补充的战备了，有只能算锦上添花，两颗500也能处理两个泰坦，当然这算是理想情况下，喷火器和轨道枪也能处理强袭虫，难9的虫子基本感觉不到什么难度  回头再看难9的机器人…… </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打机器人现在急需一个爆炸物拦截装置来自: iPhone客户端
+

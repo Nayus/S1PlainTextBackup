@@ -5475,3 +5475,14 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  库德里尔  
+##### 484#       发表于 2024-3-6 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64168943&amp;ptid=2154925" target="_blank">伊布桑 发表于 2024-3-6 19:03</a>
+这就是篝火吗，真是篝篝又火火（虽然也不算很高</blockquote>
+关注点错，但是大怪盲牌
+这是谁家的翻译啊，有点好奇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

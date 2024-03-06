@@ -13329,3 +13329,13 @@ Reddit绝赞炎上中<img src="https://static.saraba1st.com/image/smiley/face201
 
 更新前只有碎裂者蛋盾，更新后还是得捏着鼻子用碎裂者蛋盾<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bladethunder  
+##### 1335#       发表于 2024-3-7 00:56
+
+今晚感觉小虫数量是不是变多了？当然也有可能是我一直在单走没队友帮忙处理。单喷处理小虫群还是很不给力，主要是游戏里这个瞄准机制第一枪没打准等恢复瞄准点中间间隔太久。弥漫与祷告加强后到是很适合处理小虫虫群，毕竟总弹量是26×8比标准破裂者13×7多了一倍以上，后座低多目标切换快又准。最后虽然更新里没说但主宰好像用起来更顺手了，后座准星恢复速度比原来要好点，弹药量是15×6和标准破裂者比就少一发，还带中穿透(看到有人说穿甲机制是轻甲穿透武器打无甲全伤轻甲减半中甲跳弹/中甲穿透武器打无甲轻甲全伤中甲减半重甲跳弹，是这样的吗？)。
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

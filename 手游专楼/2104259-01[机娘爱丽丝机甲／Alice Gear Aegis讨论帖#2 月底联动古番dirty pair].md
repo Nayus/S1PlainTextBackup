@@ -190,3 +190,16 @@
 
 另外不得不吐槽一下这所谓的法国最强，性能简直……因为没抽到就打了个LV130的BOSS。那个防反作为片手起手判定竟然这么慢伤害还一般，关键是疑似没全程无敌<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 960#       发表于 2024-3-7 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170551&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-3-6 22:16</a>
+
+已经滑铁卢了，疑似全靠东京船团派人去擦屁股话说这中东船团武德是不是太充沛了啊，从东京保卫战VIC ...</blockquote>
+现在中东那边有英国系的舰队，美国为首的联合军，都在外侧按兵不动看皇帝大人指挥的大陆军的笑话。（不过英国人也借口说在对抗超大型vice，或许他们还是有干活的）
+
+至于所谓大陆军，其实只是欧洲志愿军，欧洲各国aegis也不支持。能一马当先夺回石油王的首都之后好一阵子才散，已经很可贵了。
+

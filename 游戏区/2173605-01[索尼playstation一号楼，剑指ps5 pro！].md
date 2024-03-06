@@ -1372,3 +1372,22 @@ Ghost of Tsushima导演剪辑版
 
 billbil-kun：《对马岛之魂》将于5月16日登陆PC平台。 
 
+
+*****
+
+####  csolfans  
+##### 153#       发表于 2024-3-7 00:08
+
+听说之前CDPR源代码泄露那会，包含了完整的ps5 sdk以及开发文档；有没有人知道是真的还是假的
+
+
+*****
+
+####  贝恩德塔  
+##### 154#         楼主| 发表于 2024-3-7 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64171507&amp;ptid=2173605" target="_blank">天堂大法 发表于 2024-3-6 23:59</a>
+
+billbil-kun：《对马岛之魂》将于5月16日登陆PC平台。</blockquote>
+steam预购页面都有了，不过价格不太美丽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

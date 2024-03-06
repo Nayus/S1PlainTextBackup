@@ -1446,3 +1446,11 @@
 
 死了的白月光确实无敌了，唯一缺陷就在于真的死掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  巴尔干炮  
+##### 141#       发表于 2024-3-6 17:08
+
+这种人还是死了好，少有的主角死了反而让人松口气的作品。
+

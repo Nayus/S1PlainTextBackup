@@ -10093,3 +10093,23 @@ td上把衣服从一层加到两层，并且学cgss那样加材质包加面部�
 
 4周年Harmony 4 You左右，不停机的谷歌服务器运维神话也破灭了；
 
+
+*****
+
+####  江口夕  
+##### 2518#       发表于 2024-3-6 14:28
+
+ 本帖最后由 江口夕 于 2024-3-6 14:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最后绕了半天，其实都绕回cy相关去了。跳舞没动捕是真不行。你抬个胳膊就高下立判了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  田所あずさ  
+##### 2519#       发表于 2024-3-6 14:35
+
+土豆编舞运镜比以前下降了但是还是没什么说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是那个模型和衣服真的难蚌
+

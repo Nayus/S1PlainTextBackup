@@ -13155,3 +13155,40 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 红迪都开喷了贴吧还有人洗，笑啦
 
+
+*****
+
+####  狂风DKC  
+##### 1317#       发表于 2024-3-6 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+降去打LV5一看防守杀虫变成350还一地的牛真的<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦  
+##### 1318#       发表于 2024-3-6 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了让你难刷终极任务直接差不多要求翻倍了
+
+*****
+
+####  白昼梦  
+##### 1319#       发表于 2024-3-6 23:28
+
+难蚌，今天晚上每次打完结算回到船上之后游戏都会崩溃
+
+*****
+
+####  Launce  
+##### 1320#       发表于 2024-3-6 23:28
+
+<img src="https://img.saraba1st.com/forum/202403/06/232853z78pljk70x70s8nz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 23:28 上传
+

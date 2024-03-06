@@ -1297,3 +1297,13 @@ Nick老师说3月5号左右将有对马岛之魂PC移植版的消息</blockquote
 
 3月6号这哥们还说今年5月公布对马岛2
 
+
+*****
+
+####  医生狼多  
+##### 145#       发表于 2024-3-6 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64161364&amp;ptid=2173605" target="_blank">ultraseven 发表于 2024-3-6 08:16</a>
+索尼要收购箭头了</blockquote>
+箭头老大回应:第一次听说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

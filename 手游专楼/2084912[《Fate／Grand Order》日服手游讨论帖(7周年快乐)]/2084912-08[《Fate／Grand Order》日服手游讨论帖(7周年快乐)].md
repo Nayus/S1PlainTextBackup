@@ -970,3 +970,11 @@ Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废
 铁鱼我只有童谣/爱丽丝回可以不黑，其他的都什么玩意</blockquote>
 童谣印象深+1，这么多年都没忘
 
+
+*****
+
+####  保罗赫伯特  
+##### 11493#       发表于 2024-3-6 15:38
+
+Last Encore那个文艺风还是不错的，当年看完最大的嘈点是最后BOSS怎么是高文，开头的佛祖跑哪儿去了，还有唐突穿上狗哥紧身衣的凛，在看到魔伊的梦幻召唤前还是挺难接受的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4870,3 +4870,13 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">好像能预料到下一作Macorss的表现了（毕竟交给万南来搞了），歌的水平估计不会超过马三角
 
+
+*****
+
+####  kkl12355  
+##### 4274#       发表于 2024-3-6 15:46
+
+<blockquote>嘴上名作粉碎锤 发表于 2024-3-6 13:03
+没新歌的原因大概是因为代孙都没上心没完全想搞成真正的音乐番，BD里都塞翻唱歌了已经能说明态度 ...</blockquote>
+搞成马裤螺丝音乐番，谢尔就是女王位啊，这白毛还不如绿毛，死歌姬更脑瘫了。
+

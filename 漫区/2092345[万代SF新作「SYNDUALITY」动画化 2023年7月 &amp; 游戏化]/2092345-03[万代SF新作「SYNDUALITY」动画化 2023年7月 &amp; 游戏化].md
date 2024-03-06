@@ -4855,3 +4855,18 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 人死了，那她最大的价值就是她留下的东西，也就是存在感，所以后续剧情可以继承遗志，可以缅怀过往，但严禁抹消替换存在感，只要干了就是极为恶劣的吃绝户
 所以我说主创团队但凡有一个脑子里没屎都不应该整出这玩意，诺艾尔可以继承遗志当歌姬，但你整两首新歌，歌迷的转变别这么突然，再来一点迷之裸飘互动，完成一个传承，观感立马就能好不少，怎么也不可能搞成现在这么恶心的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4273#       发表于 2024-3-6 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64161810&amp;ptid=2092345" target="_blank">saglork 发表于 2024-3-6 09:10</a>
+
+死人气角色，最大的忌讳就是后续出现存在抹消
+
+人死了，那她最大的价值就是她留下的东西，也就是存在感，所 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没新歌的原因大概是因为代孙都没上心没完全想搞成真正的音乐番，BD里都塞翻唱歌了已经能说明态度问题了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">好像能预料到下一作Macorss的表现了（毕竟交给万南来搞了），歌的水平估计不会超过马三角
+

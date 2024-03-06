@@ -54,3 +54,29 @@
 
 2024-3-5 06:03 上传
 
+
+*****
+
+####  commcody  
+##### 139#         楼主| 发表于 2024-3-6 13:02
+
+当地时间3月5日上午，S28被从B10拆下。拆下可能是为了给S28安装自毁系统装药。目前距离发射只剩获得FAA新许可证、安装自毁系统装药、发布航空和海事预警以及当地避难信息。
+
+SpaceX官推公布了第三发直播预告，目前开始直播日期确定为北京时间3月14日晚上7点30分。
+
+<img src="https://img.saraba1st.com/forum/202403/06/125932gkw107za2yu7ii9l.jpg" referrerpolicy="no-referrer">
+
+<strong>GH81_EUXkAA_BRM.jpg</strong> (399.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202403/06/125932t0odk7x3i715j0oo.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240306125805.jpg</strong> (139.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 12:59 上传
+

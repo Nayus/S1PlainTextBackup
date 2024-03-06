@@ -1618,3 +1618,13 @@ amazon watchparty机能结束了
 
 [https://www.oricon.co.jp/news/2317054/full/](https://www.oricon.co.jp/news/2317054/full/)
 
+
+*****
+
+####  holoan  
+##### 8330#         楼主| 发表于 2024-3-6 12:59
+
+新曲MV有七字母要素你们发现了吗？
+
+绝对找到死都不会发现的细节，我看网友说的才知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

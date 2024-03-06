@@ -9651,3 +9651,34 @@ btw，虽然实际上运营路线能有接近90度的不同，但是莲之空和
 衬衫都是男款，所以很多人合理分析这个可能是汉子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">推上的二创基本全是隐藏巨乳
 
+
+*****
+
+####  hypnossz86  
+##### 2473#       发表于 2024-3-6 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157061&amp;ptid=2130897" target="_blank">natmk 发表于 2024-3-5 19:30</a>
+人设挺普通的但建模是挺好看的不过这么看来主机新作是几年内都没戏了</blockquote>
+学是外包的吧，和主机新作也不冲突
+
+*****
+
+####  hypnossz86  
+##### 2474#       发表于 2024-3-6 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64157082&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-3-5 19:31</a>
+外包作，和主机没啥关系吧。
+
+当然主机也是外包给ILCA的</blockquote>
+ilca我记得是管的pc移植吧？
+主机版的制作好像还是本社？
+
+*****
+
+####  rgauss  
+##### 2475#       发表于 2024-3-6 09:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的还能有主机新作吗
+
+顺带看了看星耀季节吹的 星耀季节的模型面数大概是4-5w之间
+

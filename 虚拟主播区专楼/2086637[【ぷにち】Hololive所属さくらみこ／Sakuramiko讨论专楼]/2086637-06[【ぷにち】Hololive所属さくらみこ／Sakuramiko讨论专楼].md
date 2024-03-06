@@ -1662,3 +1662,19 @@ amazon watchparty机能结束了
 
 结论就是没有人比阿心更懂miko，​​はぁみこ最强了属于
 
+
+*****
+
+####  holoan  
+##### 8334#         楼主| 发表于 2024-3-6 17:57
+
+<img src="https://img.saraba1st.com/forum/202403/06/175618i3e7kwkkvwv22vr7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 17:56 上传
+
+其实前几天有人说irys的live要请miko我看半天都没公布大概是假的，没想到是真的
+

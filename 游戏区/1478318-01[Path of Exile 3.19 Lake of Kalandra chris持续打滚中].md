@@ -23,3 +23,19 @@ GGG最新财报显示chris卸任制作总监 特别提一下
 近俩年出问题不少但总归是创始人 还是走好慢慢养老.</blockquote>
 如今只有一个光头了，篝火晚会的光头
 
+
+*****
+
+####  dclara1  
+##### 1365#       发表于 2024-3-7 05:15
+
+<img src="https://img.saraba1st.com/forum/202403/07/051520lbf9w29bbwrm2zr2.png" referrerpolicy="no-referrer">
+
+<strong>D5KW13N@%I$EE`4))N5XR_9.png</strong> (23.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 05:15 上传
+
+光头：考考你的呀
+

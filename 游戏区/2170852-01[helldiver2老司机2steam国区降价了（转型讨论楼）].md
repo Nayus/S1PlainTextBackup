@@ -12927,3 +12927,30 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 现在单兵打坦克虫是喷火器靠谱了，半管喷死还可以顺路喷死小的，不过泰坦就毫无办法了，只有靠500kg了
 
+
+*****
+
+####  runningch  
+##### 1293#       发表于 2024-3-6 21:47
+
+经典平衡全靠砍<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  runningch  
+##### 1294#       发表于 2024-3-6 21:50
+
+网上看到有用榴弹3发干死牛的，我去练新的反重甲体操了。
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  ykyin09  
+##### 1295#       发表于 2024-3-6 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在b站刷了太多的二创，现在超级气球在我印象里已经成了早八点儿童动画片里的反派
+

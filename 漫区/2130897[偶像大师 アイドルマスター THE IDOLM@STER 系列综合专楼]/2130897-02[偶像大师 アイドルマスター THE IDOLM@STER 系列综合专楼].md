@@ -9778,3 +9778,20 @@ ilca我记得是管的pc移植吧？
 
 强调个人特色也很正常……吧……吧（
 
+
+*****
+
+####  rgauss  
+##### 2485#       发表于 2024-3-6 10:22
+
+中专的穿的有个性也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Seeley  
+##### 2486#       发表于 2024-3-6 10:24
+
+中专大抵是没有校服要求的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

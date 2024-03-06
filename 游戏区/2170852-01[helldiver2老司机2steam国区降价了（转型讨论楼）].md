@@ -12322,3 +12322,14 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 我只在防守图遇到过一次明显恶意TK，我扔完四个炮塔以后正等结束，然后被同一个人连续贴脸K了我3次，第四次下来我朝着他登机的路上扔了颗雷然后上了飞机，可惜这人是房主，下来以后发现K不到我了气急败坏把我踢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Masayuki  
+##### 1235#       发表于 2024-3-6 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64161844&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-6 09:14</a>
+
+终于要更新了，现在样本奖章都刷满了再不更点东西真要没得玩了，但感觉这个东西进了机器人的图立刻会被火 ...</blockquote>
+把他当成一个可以动的高输出炮台期待值会好很多（能同时处理两个泰坦或者4头强袭虫，压制力很不错，火箭弹准的话效率更高）
+

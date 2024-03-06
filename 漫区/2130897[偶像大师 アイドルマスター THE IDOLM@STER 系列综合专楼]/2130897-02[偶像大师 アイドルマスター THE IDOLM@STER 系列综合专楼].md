@@ -9693,3 +9693,38 @@ ilca我记得是管的pc移植吧？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  王九的哥哥  
+##### 2477#       发表于 2024-3-6 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64161808&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-6 09:10</a>
+说起来那个用星耀模型的，准备五星全上的街机有后续消息了吗
+还是已经开始正式运营了</blockquote>
+ロケテ已经搞过了，再怎么样年内也会上线吧……
+
+*****
+
+####  rgauss  
+##### 2478#       发表于 2024-3-6 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64161808&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-6 09:10</a>
+说起来那个用星耀模型的，准备五星全上的街机有后续消息了吗
+还是已经开始正式运营了</blockquote>
+还在试运行吧 
+
+
+*****
+
+####  三度音  
+##### 2479#       发表于 2024-3-6 09:24
+
+<blockquote>hypnossz86 发表于 2024-3-6 09:05
+ilca我记得是管的pc移植吧？
+
+主机版的制作好像还是本社？</blockquote>
+星耀的全部剧本、人设、开发都是ILCA自己的人做的。
+
+万代全程就出派了个久多太子p跟进度。
+

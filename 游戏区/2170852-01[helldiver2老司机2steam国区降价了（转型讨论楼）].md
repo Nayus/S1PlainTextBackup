@@ -13202,3 +13202,32 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  风萧飒  
+##### 1322#       发表于 2024-3-6 23:44
+
+不过看了下b站视频，现在重甲倒确实挺硬的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然感觉也没什么用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  smdzh2  
+##### 1323#       发表于 2024-3-6 23:46
+
+高难虫子是打不完的，不如穿轻甲快速跑路
+重甲似乎只能拿来打哑铃人？
+
+
+*****
+
+####  daikejay  
+##### 1324#       发表于 2024-3-6 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170977&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-3-6 23:02</a>
+
+不过我下来感觉刷怪好像变少了点，以前打n7就坦克虫泰坦满地爬了，今天打了一把n9，刷怪量感觉少了不少 ...</blockquote>
+一点都没少，以前难9野队轻轻松松全任务撤离，虫巢随缘，现在能把主要任务打完不死光就不错了，三四个坦克虫跟满地泰坦跳虫一起来根本杀不过来，和之前的难度都不是一个级别，建议把策划和孝子一起绑在坦克上烤了看看喷火器是不是那么牛逼
+

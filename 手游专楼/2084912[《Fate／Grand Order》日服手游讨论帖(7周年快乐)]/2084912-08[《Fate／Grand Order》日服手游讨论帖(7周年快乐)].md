@@ -912,3 +912,11 @@ Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废
 
 铁鱼我只有童谣/爱丽丝回可以不黑，其他的都什么玩意
 
+
+*****
+
+####  cenhr  
+##### 11487#       发表于 2024-3-6 11:25
+
+更尴尬不是一些扔给樱井东出的锅后面被揭发其实是蘑菇写的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

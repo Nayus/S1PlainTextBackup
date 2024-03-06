@@ -281,3 +281,11 @@ https://x.com/ricorico873097/status/1764833287439344126?s=20</blockquote>
 
 佩鲁唢呐
 
+
+*****
+
+####  osore  
+##### 1731#       发表于 2024-3-6 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又发AI图黑我大千束
+

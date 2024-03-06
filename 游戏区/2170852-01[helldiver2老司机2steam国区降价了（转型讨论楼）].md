@@ -13317,3 +13317,15 @@ Reddit绝赞炎上中<img src="https://static.saraba1st.com/image/smiley/face201
 
 其实现在有个火焰喷射器专门照顾坦克虫，清理效率要比以前高。箭头这个平衡思路基本就是不能有通吃的武器，必须都得有比较明显的短板
 
+
+*****
+
+####  Znesmoc  
+##### 1334#       发表于 2024-3-7 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">武器要有短板 那剩下的没人用的武器一定都有自己的长处吧
+
+主手其他ARSMG狙都没人用不是因为它们一点长处都没有？清杂清不了破甲破不了
+
+更新前只有碎裂者蛋盾，更新后还是得捏着鼻子用碎裂者蛋盾<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

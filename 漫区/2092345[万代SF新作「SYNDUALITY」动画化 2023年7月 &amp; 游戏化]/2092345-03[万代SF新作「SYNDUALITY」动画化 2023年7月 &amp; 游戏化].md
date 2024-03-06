@@ -4880,3 +4880,11 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 没新歌的原因大概是因为代孙都没上心没完全想搞成真正的音乐番，BD里都塞翻唱歌了已经能说明态度 ...</blockquote>
 搞成马裤螺丝音乐番，谢尔就是女王位啊，这白毛还不如绿毛，死歌姬更脑瘫了。
 
+
+*****
+
+####  cybernetics31  
+##### 4275#       发表于 2024-3-6 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不出your song歌姬的solo版，我直接bgm打1分
+

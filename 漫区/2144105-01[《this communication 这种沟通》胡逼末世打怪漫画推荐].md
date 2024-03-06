@@ -1404,3 +1404,11 @@
 
 完结得很干脆，而且是完全不给一丝续作念想的HE<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猎人D  
+##### 137#       发表于 2024-3-6 16:10
+
+死了也能继续当白月光，确实是算无遗策<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

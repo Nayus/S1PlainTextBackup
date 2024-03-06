@@ -1746,3 +1746,11 @@ stgr已经彻底形成一个独立生态了
 这下实锤黑色企业ANYCOLOR了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 霸王合同都被人捅出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 47#       发表于 2024-3-6 18:34
+
+合同的权力太大了，感觉像卖身
+

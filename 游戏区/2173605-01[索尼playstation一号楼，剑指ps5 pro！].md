@@ -1391,3 +1391,11 @@ billbil-kun：《对马岛之魂》将于5月16日登陆PC平台。
 billbil-kun：《对马岛之魂》将于5月16日登陆PC平台。</blockquote>
 steam预购页面都有了，不过价格不太美丽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  banjia0815  
+##### 155#       发表于 2024-3-7 00:21
+
+拖了够久的，希望今年公布续作消息吧，这世代第一方单人也没别的期待了
+

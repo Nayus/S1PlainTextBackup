@@ -13270,3 +13270,28 @@ Reddit绝赞炎上中<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  白昼梦  
+##### 1328#       发表于 2024-3-7 00:17
+
+现在场面不是特别混乱的情况重甲确实肉多了，但是腿是真的短
+
+
+*****
+
+####  siebten  
+##### 1329#       发表于 2024-3-7 00:20
+
+火焰喷射器的确变强了 但是烧死队友和烧死虫子一样快 而且毕竟你要一直烧 同时燃烧也没有什么击退减速效果 一个人溜坦克虫肯定不如原来的磁轨炮 两三个一起烧倒是很强
+
+*****
+
+####  NEIN  
+##### 1330#       发表于 2024-3-7 00:22
+
+7级防守刷4个泰坦，真服了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在打牛都用火焰喷射器打，而且感觉虫潮变多了不知道是不是错觉。
+
+—— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

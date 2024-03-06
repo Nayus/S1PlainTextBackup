@@ -12479,3 +12479,73 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 
 火焰喷射器看着说是+50%伤害，后面感觉可以正大光明拿电弧和火焰喷射器打坦克虫了
 
+
+*****
+
+####  FLZB  
+##### 1250#       发表于 2024-3-6 19:06
+
+磁轨打腿跳弹也太踏马幽默喇，这一刀直接下水道，我想不出现在还有什么理由带磁轨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LrGsite  
+##### 1251#       发表于 2024-3-6 19:07
+
+<img src="https://img.saraba1st.com/forum/202403/06/190705lthyfxx0jlbjgm0z.png" referrerpolicy="no-referrer">
+
+<strong>8`Z6SC)OZTEXRS6UL[YI}FY.png</strong> (61.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 19:07 上传
+
+<img src="https://img.saraba1st.com/forum/202403/06/190707osi8sqasorrrrat9.png" referrerpolicy="no-referrer">
+
+<strong>_5ZP3BAI{Z[RNI`0YD0JVCT.png</strong> (64.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 19:07 上传
+
+<img src="https://img.saraba1st.com/forum/202403/06/190711wrk0eeevye0rhwel.png" referrerpolicy="no-referrer">
+
+<strong>W6Y6KCPN%I{]@%([5A@A672.png</strong> (53.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 19:07 上传
+
+<img src="https://img.saraba1st.com/forum/202403/06/190718y2304ddla461qayw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 19:07 上传
+
+新的环境条件
+
+*****
+
+####  cloudcc  
+##### 1252#       发表于 2024-3-6 19:11
+
+这超级气球怎么还能砍武器性能加难度的，难道不该把性能拉平
+
+
+*****
+
+####  DawnGuardian  
+##### 1253#       发表于 2024-3-6 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64168966&amp;ptid=2170852" target="_blank"> FLZB 发表于 2024-3-6 19:06</a> 磁轨打腿跳弹也太踏马幽默喇，这一刀直接下水道，我想不出现在还有什么理由带磁轨 </blockquote>
+还能不能正面一发打死巨型者了？如果能的话至少打机器人还能带，就是虫子的重甲海不知道要怎么处理了来自: iPhone客户端
+
+*****
+
+####  jy000129  
+##### 1254#       发表于 2024-3-6 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们进攻的不是宜居星球么，你加这么多极端天气是不是有点不宜居了
+

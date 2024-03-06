@@ -4909,3 +4909,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 这片现在还有人看么，熟人出的太慢了吧，延迟一周？
 
+
+*****
+
+####  aptx8285144  
+##### 4278#       发表于 2024-3-6 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64169146&amp;ptid=2092345" target="_blank">Ichthy 发表于 2024-3-6 19:24</a>
+
+这片现在还有人看么，熟人出的太慢了吧，延迟一周？</blockquote>
+奶茶屋昨天有<strong>更新</strong>至20话（虽然发布的抬头还有另一个组），age网有迪士尼<strong>那令人无言以对的翻译</strong>熟肉（21话）
+

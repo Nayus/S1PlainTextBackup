@@ -1307,3 +1307,16 @@ Nick老师说3月5号左右将有对马岛之魂PC移植版的消息</blockquote
 索尼要收购箭头了</blockquote>
 箭头老大回应:第一次听说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蠽蟟龟  
+##### 146#       发表于 2024-3-6 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64160789&amp;ptid=2173605" target="_blank">ultraseven 发表于 2024-3-6 01:10</a>
+
+又有舅舅说3月6号公布对马岛上PC</blockquote>
+扯淡呢，对马岛这个ip后续估计都不做续作了，人家都开始dlc拢钱了。
+
+只有进行长期运营战略的游戏才会让旧作上pc，比如精神变态第二部
+

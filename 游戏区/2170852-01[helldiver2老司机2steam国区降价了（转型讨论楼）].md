@@ -12688,3 +12688,42 @@ dot伤害很低，打高级一点的敌人的时候基本可以忽略不计，�
 破裂者得换第九页那把散弹枪了</blockquote>
 不给力的，鸟喷被嫌弃是没穿甲，加了可能会变神，不加穿甲怎么改都是下水道
 
+
+*****
+
+####  kalavinka  
+##### 1267#         楼主| 发表于 2024-3-6 19:37
+
+准备先放放等机甲更新和新债券武器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 1268#       发表于 2024-3-6 19:39
+
+磁轨进下水道了？以后反甲就靠雷与火之剑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gzGaryC  
+##### 1269#       发表于 2024-3-6 19:40
+
+锉磁轨炮可能就是为了给机甲铺路，磁轨炮这么好用导致带机甲反大的动力不足
+
+
+*****
+
+####  Mr.Hopp  
+##### 1270#       发表于 2024-3-6 19:43
+
+几乎没用过磁轨炮，都用哨戒炮反重甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 1271#       发表于 2024-3-6 19:44
+
+火箭筒地位加一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

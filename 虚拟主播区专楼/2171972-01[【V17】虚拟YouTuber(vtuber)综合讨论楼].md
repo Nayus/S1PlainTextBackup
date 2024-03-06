@@ -1772,3 +1772,12 @@ stgr已经彻底形成一个独立生态了
 
 我记得之前条子也才1w出头，完全不如丽和hnn啊
 
+
+*****
+
+####  winda  
+##### 50#       发表于 2024-3-6 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">其实也就合同自动更新比较搞，其他都近似于免责条款，liver抓着mane去做一样要是去做的
+此处@柴卡除了直播基本什么都丢给运营
+

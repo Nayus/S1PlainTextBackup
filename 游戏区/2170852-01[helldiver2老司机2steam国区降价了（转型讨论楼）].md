@@ -13044,3 +13044,33 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 不知道箭头这帮B平时打难几 他们一波虫潮有几个坦克
 
+
+*****
+
+####  白昼梦  
+##### 1305#       发表于 2024-3-6 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孝子突出一个语气不说人话，真把自己当老害了
+
+
+*****
+
+####  WGTCorp  
+##### 1306#       发表于 2024-3-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170775&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-6 22:40</a>
+喷火器现在烧坦克虫是挺快的，烧腿大概四秒左右就死了，就是烧其他虫子不太好用
+
+—— 来自 S1Fun ...</blockquote>
+烧小虫子快多了，留下的燃烧地面也真能烫死杂兵了，不过还是拿跳虫和酸液虫不好办，而且走位失误沾上火基本上就要暴毙了。
+
+*****
+
+####  拔丝光头  
+##### 1307#       发表于 2024-3-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170866&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-3-6 22:50</a>
+
+孝子突出一个语气不说人话，真把自己当老害了</blockquote>
+贴吧最跳的俩孝子一个是OP一个是游戏领域大神，第一定律的含金量仍在提高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

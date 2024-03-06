@@ -936,3 +936,14 @@ Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初看到好像和游戏剧情不一样就没看，后来一看评价就更没打算看了，给自己留点美好回忆。
 
+
+*****
+
+####  真红眼教授  
+##### 11490#       发表于 2024-3-6 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64163409&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-6 11:25</a>
+
+更尴尬不是一些扔给樱井东出的锅后面被揭发其实是蘑菇写的吗？</blockquote>
+樱井FGO第一背锅侠，金钻头幕间都能传成她写的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

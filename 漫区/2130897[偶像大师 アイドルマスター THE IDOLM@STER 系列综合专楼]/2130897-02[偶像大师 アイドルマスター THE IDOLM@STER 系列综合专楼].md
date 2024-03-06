@@ -10161,3 +10161,13 @@ F$L4[S(8@96IG5}2H01I09H.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lz741990563  
+##### 2524#       发表于 2024-3-7 03:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64172423&amp;ptid=2130897" target="_blank">liyropen 发表于 2024-3-7 01:54</a>
+最开始那个pv里的人应该就是红巨头的妹妹了，如果是对手位的话，为什么放pv里呢，还是放在镜头主线分镜里的 ...</blockquote>
+还有个不在9人组的蓝色短发妹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

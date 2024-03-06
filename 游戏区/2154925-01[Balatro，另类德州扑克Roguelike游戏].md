@@ -5454,3 +5454,14 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  伊布桑  
+##### 482#       发表于 2024-3-6 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是篝火吗，真是篝篝又火火（虽然也不算很高
+<img src="https://p.sda1.dev/16/917cbbb342b2b7fff7d6c788ba697be1/IMG_A475C90C4536A3EF7351BE490BA89918.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

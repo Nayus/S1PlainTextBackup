@@ -10171,3 +10171,13 @@ F$L4[S(8@96IG5}2H01I09H.jpg
 最开始那个pv里的人应该就是红巨头的妹妹了，如果是对手位的话，为什么放pv里呢，还是放在镜头主线分镜里的 ...</blockquote>
 还有个不在9人组的蓝色短发妹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  playhmm  
+##### 2525#       发表于 2024-3-7 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64172677&amp;ptid=2130897" target="_blank">lz741990563 发表于 2024-3-7 03:56</a>
+还有个不在9人组的蓝色短发妹</blockquote>
+估计是月村国中时期组合的前队友，大概也是对手位
+

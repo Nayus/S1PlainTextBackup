@@ -12897,3 +12897,13 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 贱头：不急，等玩家被气得准备跑路时我们再高调宣布武器升级系统回归，100w日活指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 1290#       发表于 2024-3-6 21:31
+
+激光大炮可以兹死坦克虫？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

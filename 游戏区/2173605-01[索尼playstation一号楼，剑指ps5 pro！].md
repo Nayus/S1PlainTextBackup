@@ -1320,3 +1320,14 @@ Nick老师说3月5号左右将有对马岛之魂PC移植版的消息</blockquote
 
 只有进行长期运营战略的游戏才会让旧作上pc，比如精神变态第二部
 
+
+*****
+
+####  ultraseven  
+##### 147#       发表于 2024-3-6 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64167289&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-3-6 16:47</a>
+
+箭头老大回应:第一次听说</blockquote>
+笑死，这舅舅删号跑路了
+

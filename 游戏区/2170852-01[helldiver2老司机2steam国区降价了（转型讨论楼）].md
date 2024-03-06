@@ -13104,3 +13104,29 @@ discord 上更新日志说的是削安全模式的穿甲，steam没提这段了
 
 不过我下来感觉刷怪好像变少了点，以前打n7就坦克虫泰坦满地爬了，今天打了一把n9，刷怪量感觉少了不少来自: iPhone客户端
 
+
+*****
+
+####  风萧飒  
+##### 1311#       发表于 2024-3-6 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170879&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-3-6 22:53</a>
+烧小虫子快多了，留下的燃烧地面也真能烫死杂兵了，不过还是拿跳虫和酸液虫不好办，而且走位失误沾上火基 ...</blockquote>
+单纯打坦克虫还能用用，就是容错率太低了，看看后面解锁焦土打黄胖绿胖会不会好点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  神剑烧鸡  
+##### 1312#       发表于 2024-3-6 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以现在除虫带什么装备好啊
+
+*****
+
+####  Variks  
+##### 1313#       发表于 2024-3-6 23:09
+
+我发现gass运营的一个共性：必须要让玩家玩得难受
+

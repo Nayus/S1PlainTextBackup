@@ -149,3 +149,11 @@ LL里上一个这么做的是秀秀。</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19720#       发表于 2024-3-6 16:27
+
+Nagio也就155，在阿鱼眼里也是属于“小小的很可爱”吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

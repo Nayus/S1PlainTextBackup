@@ -959,3 +959,14 @@ Extra和CCC的PSP版游戏性就是一坨，但是剧本比后面吹的GOA、废
 
 太年轻的时候就接触了FE和CCC，对我的xp造成了不可挽回的影响会叫前辈的小恶魔ai重女，直线入沼，蘑菇全责<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 11492#       发表于 2024-3-6 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64163368&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-3-6 11:22</a>
+
+铁鱼我只有童谣/爱丽丝回可以不黑，其他的都什么玩意</blockquote>
+童谣印象深+1，这么多年都没忘
+

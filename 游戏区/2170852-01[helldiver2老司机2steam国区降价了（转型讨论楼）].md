@@ -13339,3 +13339,16 @@ Reddit绝赞炎上中<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 1336#       发表于 2024-3-7 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170704&amp;ptid=2170852" target="_blank">拔丝光头 发表于 2024-3-6 22:32</a>
+
+https://tieba.baidu.com/p/8923625372
+
+喷火器烧个N3的坦克虫给孝子闹麻了简直，太幽默了 ...</blockquote>
+所有难度坦克虫血量都是一样的，不过n3任务那个虫子血多一点
+

@@ -9930,3 +9930,11 @@ IMG_2984.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我希望你后面能够真的偶像大师一点，如果这都做不到那还是抓紧滚吧
 
+
+*****
+
+####  patema  
+##### 2500#       发表于 2024-3-6 13:10
+
+但是。。。但是giga的歌真的很难听
+

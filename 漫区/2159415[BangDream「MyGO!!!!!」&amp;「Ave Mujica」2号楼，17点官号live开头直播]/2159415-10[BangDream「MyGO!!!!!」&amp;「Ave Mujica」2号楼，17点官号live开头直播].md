@@ -7485,3 +7485,42 @@ R箱活这新剧情既视感冒出来了，你们陪伴系幼驯染都要这么�
 
 初祥词曲组大概不会这样，睦祥游戏里不会再搞这一出吧，睦宝儿吉他水平也很好，而且动画都已经有过短暂的分离了。唉鸡动画剧情好难猜<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 13976#         楼主| 发表于 2024-3-6 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/06/222510yz5p9z3o48kzgg6m.png" referrerpolicy="no-referrer">
+
+<strong>Lisa Imai - Your Back, Leaving Ever Further card_normal.png</strong> (268.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 22:25 上传
+
+<img src="https://img.saraba1st.com/forum/202403/06/222511sg4qdig0ig7ttq0k.png" referrerpolicy="no-referrer">
+
+<strong>Rinko Shirokane - To Step Forwards, Even By 1cm card_normal.png</strong> (180.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 22:25 上传
+
+<img src="https://img.saraba1st.com/forum/202403/06/222511md2i2clwfee929ee.png" referrerpolicy="no-referrer">
+
+<strong>Yukina Minato - Paralyzingly Overwhelmed card_normal.png</strong> (263.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 22:25 上传
+
+*****
+
+####  6030sylar  
+##### 13977#       发表于 2024-3-6 22:28
+
+武士道请停止将JD画成寡妇的行为
+

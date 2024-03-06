@@ -1482,3 +1482,16 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  redsouris  
+##### 145#       发表于 2024-3-6 20:02
+
+ 本帖最后由 redsouris 于 2024-3-6 20:05 编辑 
+
+恶魔吃完7年独食自己抹脖子死了
+结果女猎人还真回来了，临死的反射性动作让误会持续下去，还拯救世界了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

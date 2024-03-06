@@ -1462,3 +1462,13 @@
 
 之前猜到结局可能是把人杀光然后上山顶吃独食了，没想到女猎人们活了并且继续拯救世界，比我预想的美好多了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第贰个十年  
+##### 143#         楼主| 发表于 2024-3-6 17:40
+
+不会日语，好急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

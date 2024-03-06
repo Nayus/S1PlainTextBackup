@@ -1473,3 +1473,43 @@ KT寻思：隔壁外国佬的对马岛剧组都能冲千万级
 
 <img src="https://p.sda1.dev/16/7b917c95b5d9448b6edec542375e1e7d/IMG_20240306_130808.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeelolo  
+##### 811#       发表于 2024-3-6 17:37
+
+啥时候有demo？急急急<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 812#       发表于 2024-3-6 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64167935&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-6 17:37</a>
+啥时候有demo？急急急</blockquote>
+索尼发行现在不给线上demo，多人游戏都不测
+
+*****
+
+####  Yeelolo  
+##### 813#       发表于 2024-3-6 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64168008&amp;ptid=2092342" target="_blank">byisme001 发表于 2024-3-6 17:42</a>
+
+索尼发行现在不给线上demo，多人游戏都不测</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">草，难受了
+
+*****
+
+####  popchong  
+##### 814#       发表于 2024-3-6 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64164545&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-3-6 12:46</a>
+
+怎么显示回复要审核
+
+下周preview</blockquote>
+怂！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

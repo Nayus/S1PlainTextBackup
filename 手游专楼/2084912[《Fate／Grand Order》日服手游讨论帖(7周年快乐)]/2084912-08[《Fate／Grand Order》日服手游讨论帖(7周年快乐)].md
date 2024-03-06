@@ -997,3 +997,14 @@ Last Encore那个文艺风还是不错的，当年看完最大的嘈点是最后
 【fate/extra CCC汉化完成版发布-哔哩哔哩】 https://b23.tv/9JFlhYi</blockquote>
 这个真的太强了。我高三就看他们开这个坑了，拖到我现在上班了。果然型月的人都是属鸽子的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xunit  
+##### 11496#       发表于 2024-3-6 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64167883&amp;ptid=2084912" target="_blank">kuarwbwe 发表于 2024-3-6 17:33</a>
+
+这个真的太强了。我高三就看他们开这个坑了，拖到我现在上班了。果然型月的人都是属鸽子的。 ...</blockquote>
+还记得十几年前还有“八月厨一个能打八个月厨”的说法，印象里就是嘲讽TM系作品民间汉化慢的
+

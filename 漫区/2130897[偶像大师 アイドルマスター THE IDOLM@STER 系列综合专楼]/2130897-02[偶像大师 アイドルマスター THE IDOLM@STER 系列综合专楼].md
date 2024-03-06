@@ -9795,3 +9795,62 @@ ilca我记得是管的pc移植吧？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rgauss  
+##### 2487#       发表于 2024-3-6 10:55
+
+ 本帖最后由 rgauss 于 2024-3-6 10:57 编辑 
+
+官方dc群里柏油是真的多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 2488#       发表于 2024-3-6 10:57
+
+红c的马甲线<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+IMG_2983.jpeg
+(535.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 10:56 上传
+
+<img src="https://img.saraba1st.com/forum/202403/06/105625j11ivzh6mj349yjq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 2489#       发表于 2024-3-6 10:58
+
+怎么看出柏油多的，昨天倒是听说突然被メタル桃子刷屏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Anatoly  
+##### 2490#       发表于 2024-3-6 11:03
+
+想起了一个笑话
+
+你的推在艺能向高中因为基本不缺席被评为模范学生（
+
+*****
+
+####  rgauss  
+##### 2491#       发表于 2024-3-6 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64163041&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-6 10:58</a>
+怎么看出柏油多的，昨天倒是听说突然被メタル桃子刷屏了
+
+—— 来自 OnePlus PGKM10, Android 13上 ...</blockquote>
+头像 
+学园的饭店是不是佐竹家的
+给学园偶像看孤岛广播剧算不算犯罪
+还有桃子的△ 
+

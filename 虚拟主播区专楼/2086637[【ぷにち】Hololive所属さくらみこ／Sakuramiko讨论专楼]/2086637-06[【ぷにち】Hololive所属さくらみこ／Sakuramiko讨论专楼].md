@@ -1579,3 +1579,26 @@ amazon watchparty机能结束了
 プライム会員どうしでホストが選んだ作品を同時視聴できるサービス。Twitch（ツイッチ）でのウォッチパーティ配信も終了。</blockquote>
 如果fami通的消息无误的话那看完哈利波特系列就结束了
 
+
+*****
+
+####  holoan  
+##### 8327#         楼主| 发表于 2024-3-6 10:54
+
+<img src="https://img.saraba1st.com/forum/202403/06/105319c1zers6ri832jjz7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-6 10:53 上传
+
+一个晚上把banner换新了，就是头像一成不变，ordan真爱了
+
+*****
+
+####  holoan  
+##### 8328#         楼主| 发表于 2024-3-6 10:59
+
+阿心突然整活
+

@@ -13755,3 +13755,15 @@ https://tieba.baidu.com/p/8923625372
 你喵哪里完全不知道打得哪里</blockquote>
 不考虑杀牛的话，电枪通过快速蓄力的手法可以把射速拉到很高，不过需要站桩输出，一般都是找一个远离队伍的安全点开电，或者直接爬到高处，至少在刷泰坦之前能把地上的乱七八糟虫子电干净
 
+
+*****
+
+####  eno_emos  
+##### 1371#       发表于 2024-3-7 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174323&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 10:10</a>
+
+喷火器要喷牛的腿，关于这个东西我也很困惑，如果说他能破重甲的话，几个明显的重甲目标只有牛会吃喷火器 ...</blockquote>
+我总觉得是火焰溅射到地面上，然后地面点燃给虫子肢体上点燃dot，dot的伤害烧死的，持续喷火只是持续上dot
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">因为不喷腿直接喷坦克虫的头或者背他根本没反应，也没有点燃效果，那意思是喷火器的伤害其实根本不能穿甲或者说直击伤害并不高，全靠dot了
+

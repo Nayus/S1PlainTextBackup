@@ -1504,3 +1504,22 @@ The announcements won't stop. Starfield will be announced for Playstation 5 with
 
 但是定价确实太自信了
 
+
+*****
+
+####  wiig  
+##### 168#       发表于 2024-3-7 14:02
+
+steam版支持自适应扳机吗 dualsense连pc
+
+*****
+
+####  1408  
+##### 169#       发表于 2024-3-7 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64177373&amp;ptid=2173605" target="_blank">wiig 发表于 2024-3-7 14:02</a>
+steam版支持自适应扳机吗 dualsense连pc</blockquote>
+宣传片提到支持自适应扳机，不过需不需要有线就没说了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

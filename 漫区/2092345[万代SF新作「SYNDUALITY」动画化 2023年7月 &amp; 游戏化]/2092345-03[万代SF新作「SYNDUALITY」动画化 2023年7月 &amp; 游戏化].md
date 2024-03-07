@@ -5023,3 +5023,13 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Toby_dak  
+##### 4288#       发表于 2024-3-7 19:01
+
+第一季看到阿波罗11号时候我就知道最终还是要上宇宙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 13](http://stage1.5j4m.com/?1.37)
+

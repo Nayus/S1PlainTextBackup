@@ -14172,3 +14172,20 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
 又更新了70M 啥玩意
 
+
+*****
+
+####  风萧飒  
+##### 1408#       发表于 2024-3-7 18:53
+
+看到有人解包出一个铝热手雷，可以两发一个坦克虫
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  smdzh2  
+##### 1409#       发表于 2024-3-7 18:56
+
+解包内容正式上线肯定要削，制作组看到玩家用noob装备一招鲜吃遍天比制作组全家螺旋升天还难受
+

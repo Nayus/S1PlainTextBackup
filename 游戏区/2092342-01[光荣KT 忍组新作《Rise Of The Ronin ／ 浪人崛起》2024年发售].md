@@ -1549,3 +1549,26 @@ preview是什么东西</blockquote>
 幕后第三弹「The Cause」：
 [https://youtu.be/j9paixUSU6M](https://youtu.be/j9paixUSU6M)
 
+
+*****
+
+####  黑修士  
+##### 819#       发表于 2024-3-7 23:20
+
+4K中字 B站分流
+[https://www.bilibili.com/video/BV14H4y1j7J1](https://www.bilibili.com/video/BV14H4y1j7J1)
+
+看了下奖杯列表，有种不妙的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sword_shrimp  
+##### 820#       发表于 2024-3-7 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64155851&amp;ptid=2092342" target="_blank">popchong 发表于 2024-3-5 17:37</a>
+
+https://www.bilibili.com/video/BV1xF4m1L7uu/
+
+一字不提隼流却处处是隼流</blockquote>
+我草，原来这不是仁王3，是忍龙4！！！
+

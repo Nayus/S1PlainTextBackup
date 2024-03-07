@@ -7735,3 +7735,13 @@ https://twitter.com/lvliu1/status/1765707465507897633?t=fiBsldSKpIJ9oEb3RZMZhw&a
 不確定，只是可能性很大</blockquote>
 動畫都沒出的團，有角色歌的可能性不是基本沒有嗎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 13999#       发表于 2024-3-7 23:19
+
+[隔壁搬运的红迪评论](https://bbs.nga.cn/read.php?tid=39466300)
+
+鬼佬的看法也挺有意思的
+

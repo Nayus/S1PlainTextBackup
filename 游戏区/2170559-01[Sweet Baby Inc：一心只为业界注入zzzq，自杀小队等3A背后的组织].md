@@ -1106,3 +1106,13 @@ zq联盟</blockquote>
 
 Kotaku来辟谣？那不是反而实锤了？
 
+
+*****
+
+####  欠损  
+##### 88#       发表于 2024-3-8 04:59
+
+参与了一堆“美术类”游戏，但这公司的官网设计还™不如zombo.com。
+
+真就纯为了喂屎而生啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

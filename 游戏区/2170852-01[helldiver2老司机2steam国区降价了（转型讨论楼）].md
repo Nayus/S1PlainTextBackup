@@ -13636,3 +13636,23 @@ https://tieba.baidu.com/p/8923625372
 
 打机器人则因为完全不能对付大只佬开始的重甲所以不好用<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RockingHorse  
+##### 1361#       发表于 2024-3-7 09:46
+
+电弧枪联电的话是真的远，离着八丈远的霉逼队友都能被我串死
+
+*****
+
+####  YY骑士  
+##### 1362#       发表于 2024-3-7 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173752&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 09:24</a>
+感觉没啥人在虫族任务里潜行吧，不都是拉开打正面？</blockquote>
+拉开也不打，都是卡视野跑脱战的，原地打越打越多。
+动不动就刷3个坦克虫+2泰坦追你，手里就2发500kg，一般都是拉怪跑路顺便扔500kg打泰坦，一边跑一边找障碍物卡视野脱离，绕一圈把怪抖带走了再回头去把活干完。
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -1418,3 +1418,20 @@ steam预购页面都有了，不过价格不太美丽<img src="https://static.sa
 另一个爆料的人还说星空也会到ps5上
 The announcements won't stop. Starfield will be announced for Playstation 5 with a release between November and December 2024. The 2025 plan is even bigger, featuring well-established franchises in the Xbox universe.
 
+
+*****
+
+####  novyDC  
+##### 158#       发表于 2024-3-7 09:51
+
+414有点贵
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  椎名mahuyo  
+##### 159#       发表于 2024-3-7 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都等了几年了，不如再忍一年等打个半折再买
+

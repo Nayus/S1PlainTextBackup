@@ -10720,3 +10720,27 @@ ps:这次新作这么早就找a店合作，是不是说明要开始谷子商法�
 
 真是妹妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 2575#       发表于 2024-3-7 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">说实话sc日花来一段沉重的剧情就够受的了，这代红c别整这么难受吧
+
+不过每代红c遭罪确实是传统了（动画）
+
+*****
+
+####  三味线陆战型  
+##### 2576#       发表于 2024-3-7 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179583&amp;ptid=2130897" target="_blank">游蜓 发表于 2024-3-7 16:49</a>
+
+说实话sc日花来一段沉重的剧情就够受的了，这代红c别整这么难受吧
+
+不过每代红c遭罪确实是传统了（动 ...</blockquote>
+已经说了每个人都有各自的心结
+
+想要不难受是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">（从市场角度来看也是）
+

@@ -14056,3 +14056,37 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
  Sony does plan to lean on Bungie for its “world-class expertise in multi-platform development and live game services,” which “will help us deliver on our vision of expanding PlayStation to hundreds of millions of gamers,” Sony Interactive Entertainment president and CEO Jim Ryan said in January. 
 
+
+*****
+
+####  FLZB  
+##### 1397#       发表于 2024-3-7 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64175126&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 11:09</a>
+
+一般来说是这个道理，但喷火器一样烧不了那种顶盾的虫子，正常来说应该是火焰穿透到他的肉身上把他直接烧 ...</blockquote>
+虫穴守卫一样穿甲烧死，火焰真实伤害无视护甲
+
+*****
+
+####  gogoneogg  
+##### 1398#       发表于 2024-3-7 16:45
+
+本次更新全是削弱玩家，增强虫子的
+
+磁轨削也就罢了，现在N7难度刷怪速度堪比之前N9，绿黄酸虫和泰坦抬头就吐没有延迟，跳虫疯狂跳脸，蛋盾加CD无所谓，我还是头次见护盾不给回满的射击游戏
+
+玩家不满，还在X上疯狂喷玩家，这些白皮公司真是喜欢教玩家玩游戏
+
+*****
+
+####  赤井稻妻  
+##### 1399#       发表于 2024-3-7 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179524&amp;ptid=2170852" target="_blank">gogoneogg 发表于 2024-3-7 16:45</a>
+
+本次更新全是削弱玩家，增强虫子的
+
+磁轨削也就罢了，现在N7难度刷怪速度堪比之前N9，绿黄酸虫和泰坦抬头就 ...</blockquote>
+扎针好像可以回盾，我不知道是不是巧合，我每次扎针就看着护盾槽跟着血量一路涨满了
+

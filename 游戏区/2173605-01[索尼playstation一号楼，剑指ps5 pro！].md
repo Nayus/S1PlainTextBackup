@@ -1616,3 +1616,35 @@ Silknighth确实是第一个提到对马岛消息的人，可追溯至2月，但
 昨晚意外地《对马岛之魂》真的公开了PC版，所以对于最早明确提到《对马岛之魂》将在3月公开的舅舅【Silknig ...</blockquote>
 星空今年11月？我记得斯宾塞年初播客不是刚承诺吗，就算上也不可能这么快的
 
+
+*****
+
+####  贝恩德塔  
+##### 178#         楼主| 发表于 2024-3-7 16:46
+
+肯定不可信啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jumpingchild  
+##### 179#       发表于 2024-3-7 16:46
+
+说句题外话，现在外网这种爆料文化真的是越来越癫了，Hathors和Silknigth这种凭空冒出来的nobody谁能想到竟然真的有货，都想做下一个Snitch是吧
+
+*****
+
+####  任天索尼子  
+##### 180#       发表于 2024-3-7 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179549&amp;ptid=2173605" target="_blank">jumpingchild 发表于 2024-3-7 16:46</a>
+
+说句题外话，现在外网这种爆料文化真的是越来越癫了，Hathors和Silknigth这种凭空冒出来的nobody谁能想到竟 ...</blockquote>
+舅舅现在自己的消息很多也时准时不准 比如那个卡婊系舅舅爆料生化经常被打脸 但是却精准爆料荒野的公布日期和名字
+
+*****
+
+####  hu794  
+##### 181#       发表于 2024-3-7 16:51
+
+星空不太可能这么快上的。
+

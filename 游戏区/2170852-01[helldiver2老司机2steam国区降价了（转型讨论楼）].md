@@ -13510,3 +13510,23 @@ https://tieba.baidu.com/p/8923625372
 喷火器不是伤害不伤害的问题，而是他会点燃地面限制你自己的移动。本来你可以根据情况超前侧方后侧方飞扑， ...</blockquote>
 喷火器我一般用法是朝前方180度扣着扳机用火撩一下就后退，清掉小虫子，留下来移动缓慢的大虫子再集中火力攻击，肯定不能往前喷火再往前走，至于被包围的情况，那也就榴弹枪配蛋盾能解得了这个场，用喷火器就得提前跑到虫子的包围圈外再开始攻击，掉血了就扎针用扎针的回复时间硬换
 
+
+*****
+
+####  YY骑士  
+##### 1352#       发表于 2024-3-7 08:57
+
+现在不少孝子洗地说自己轻松n9，潜行拉火车跑路谁不会啊，说轻松n9的你有本事正面钢，全杀干净啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+鸟喷加强能穿轻甲后还是不太好用，扩散太大了，稍微拉开点距离，会跳脸的小白虫要打4枪才死，只考鸟喷处理起来很麻烦。
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  wthall  
+##### 1353#       发表于 2024-3-7 09:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我打难度6都觉得自己打不过，手里武器不够给力，弹匣太小。穿甲伤害不足。
+
+还不开武器强化么
+

@@ -10835,3 +10835,55 @@ im@s是偶像制作不是和偶像谈恋爱，角色都有作为偶像的自觉�
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  田所あずさ  
+##### 2586#       发表于 2024-3-7 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64177766&amp;ptid=2130897" target="_blank">游蜓 发表于 2024-3-7 14:31</a>
+
+pl不是最传统的？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/07/184418zvddckejeaeeq9eh.jpg" referrerpolicy="no-referrer">
+
+<strong>dbdc6ef0b1b38af3ba17ca55621487f3.jpg</strong> (196.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 18:44 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/184422rkafnaqo9epnapff.jpg" referrerpolicy="no-referrer">
+
+<strong>5614f3351bdbb5623162e9b04f9150cc.jpg</strong> (148.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 18:44 上传
+
+*****
+
+####  rgauss  
+##### 2587#       发表于 2024-3-7 18:44
+
+好急啊 才间突然想到一个怪文书的点子 然后想发 结果维护 现在忘了点子是啥了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三味线陆战型  
+##### 2588#       发表于 2024-3-7 18:49
+
+我们学马士也要有自己的踢腿歌<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  游蜓  
+##### 2589#       发表于 2024-3-7 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180618&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-7 18:44</a></blockquote>
+我知道啊，只是针对前面那个哥们的才这么说。
+真要说离谱的倒是的确有人非ml不玩，那种人也不会来玩偶像类就是了
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

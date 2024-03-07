@@ -5001,3 +5001,25 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oi99o  
+##### 4286#       发表于 2024-3-7 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180383&amp;ptid=2092345" target="_blank">novyMS 发表于 2024-3-7 17:50</a>
+
+那么快就造好轨道加速器和宇宙穿梭机</blockquote>
+玛丽亚和密斯缇上集去突尼斯捡回来的吧
+
+
+*****
+
+####  novyMS  
+##### 4287#       发表于 2024-3-7 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180636&amp;ptid=2092345" target="_blank">oi99o 发表于 2024-03-07 18:45:32</a>
+玛丽亚和密斯缇上集去突尼斯捡回来的吧</blockquote>飞船应该是捡
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

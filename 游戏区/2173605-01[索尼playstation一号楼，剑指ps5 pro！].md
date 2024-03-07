@@ -1578,3 +1578,41 @@ steam版支持自适应扳机吗 dualsense连pc</blockquote>
 - 《最终幻想战略版：复刻版》将于 2024 年底前推出
 - 《星空》将于今年11月登陆PS5
 
+
+*****
+
+####  sennheiser  
+##### 174#       发表于 2024-3-7 16:35
+
+最后一波捞钱的操作了。。。。。。。。。。这游戏我看必死无疑。。。。。。。。。。。。。。全球最高价格。。。。。。。。。。。。。。
+
+*****
+
+####  Rowen233  
+##### 175#       发表于 2024-3-7 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179251&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-3-7 16:27</a>
+
+昨晚意外地《对马岛之魂》真的公开了PC版，所以对于最早明确提到《对马岛之魂》将在3月公开的舅舅【Silknig ...</blockquote>
+星空就算要移植也不会今年上的 陶德哥哥要有这个水平还至于磨蹭这么久才出？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jumpingchild  
+##### 176#       发表于 2024-3-7 16:41
+
+Silknighth确实是第一个提到对马岛消息的人，可追溯至2月，但我倾向于认为此人不可信，
+
+真正可信的是那个已经销号的法语源舅舅Hathors，虽然他也有被CEO公开打脸的爆料
+
+
+*****
+
+####  苍瞳凯  
+##### 177#       发表于 2024-3-7 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179251&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-3-7 16:27</a>
+
+昨晚意外地《对马岛之魂》真的公开了PC版，所以对于最早明确提到《对马岛之魂》将在3月公开的舅舅【Silknig ...</blockquote>
+星空今年11月？我记得斯宾塞年初播客不是刚承诺吗，就算上也不可能这么快的
+

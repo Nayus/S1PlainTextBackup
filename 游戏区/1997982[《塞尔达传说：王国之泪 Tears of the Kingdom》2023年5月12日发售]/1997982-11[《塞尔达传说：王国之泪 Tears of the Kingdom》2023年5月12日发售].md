@@ -144,3 +144,16 @@
 倒转乾坤几个基础用法，方块魔像从天上射一排方块的时候你可以逆转乾坤站在方块上飞天 以及章鱼吐石头可以逆转
 想玩花的很多 推荐个简单的，就是扔回旋镖再逆转打两回
 
+
+*****
+
+####  冷泉夜月  
+##### 15672#       发表于 2024-3-7 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179135&amp;ptid=1997982" target="_blank">nagitoY 发表于 2024-03-07 16:18:31</a>
+这种花式战斗经验是延续野炊吗？新玩家上来，是不是只能靠自己摸索。
+
+怪物眼珠附魔我没用过，没想到这个 ...</blockquote>野炊没有这么多玩法，王泪游戏里的话格鲁德族的碧欧拉会提示你各种余料建造的要领，算是隐藏tips吧，这次属于是脑洞大开玩法就更多，确实是深度没那么深但是广度很大，像闪耀果实能秒杀骷髅怪估计很多人打通关了都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

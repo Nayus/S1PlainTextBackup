@@ -14038,3 +14038,21 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">砍了蛋盾不会游龙了
 
+
+*****
+
+####  Launce  
+##### 1396#       发表于 2024-3-7 16:36
+
+<img src="https://img.saraba1st.com/forum/202403/07/163412tfo9sogfotszdobd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 16:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，想起索索收购棒鸡就是为了学GAAS运营来着
+
+ Sony does plan to lean on Bungie for its “world-class expertise in multi-platform development and live game services,” which “will help us deliver on our vision of expanding PlayStation to hundreds of millions of gamers,” Sony Interactive Entertainment president and CEO Jim Ryan said in January. 
+

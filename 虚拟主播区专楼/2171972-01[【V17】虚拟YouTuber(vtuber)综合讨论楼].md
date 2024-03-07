@@ -1841,3 +1841,21 @@ stgr已经彻底形成一个独立生态了
 
 以播BA的同接计算1琉璃≈0.5安洁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月临碧海  
+##### 58#       发表于 2024-3-7 14:44
+
+这企划果不其然的黄了
+
+[https://twitter.com/AllelesProject/status/1765619002980913590](https://twitter.com/AllelesProject/status/1765619002980913590)
+
+<img src="https://img.saraba1st.com/forum/202403/07/144415n6nv9e48acsgh67h.jpg" referrerpolicy="no-referrer">
+
+<strong>？.jpg</strong> (451.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 14:44 上传
+

@@ -13447,3 +13447,14 @@ https://tieba.baidu.com/p/8923625372
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">昨天第一次体会到无法撤离的bug，4个人对着冒烟的飞机上蹿下跳，最后挣扎到最后5分钟所有人决定还是丢炸弹自尽全死了得了。 唯一的好消息是任务还是算完成的。但是这体验太恶心了，直接不想玩了
 
+
+*****
+
+####  Gmlazy  
+##### 1346#       发表于 2024-3-7 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173045&amp;ptid=2170852" target="_blank">wthall 发表于 2024-3-7 08:11</a>
+昨天第一次体会到无法撤离的bug，4个人对着冒烟的飞机上蹿下跳，最后挣扎到最后5分钟所有人决定还是 ...</blockquote>
+能完成任务是最后的仁慈，就是可惜了这一局的样本。
+我几次遇到这个问题就是降落地点有重甲敌人，这个时候飞机正常情况不会降落只会悬浮，但是降下来就会卡出bug。
+

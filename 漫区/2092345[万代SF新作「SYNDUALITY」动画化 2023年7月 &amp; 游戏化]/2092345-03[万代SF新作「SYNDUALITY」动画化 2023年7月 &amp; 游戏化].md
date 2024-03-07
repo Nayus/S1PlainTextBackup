@@ -5260,3 +5260,31 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 随着玛利亚的火箭完成，彼方他们终于可以朝着希斯特瓦出发了。但是维斯海特也为了阻止彼方他们，夺取蜜丝缇 ...</blockquote>
 看完奶茶屋的翻译20话回忆，感觉彼方不愧是从人文角度是白诺娃与歌姬的挽救者，后者自不必多说，看到这里都明白，前者那种自责无法更好地保护主人的心理也几乎被彼方成长轨迹里“屡败屡战”的同病相怜而却又能把责任揽过来的性格所“保护”着，最后也由此成为16话诺娃自白的契机之一
 
+
+*****
+
+####  Piano-Forest  
+##### 4293#         楼主| 发表于 2024-3-7 22:21
+
+最终话前半部分AJ24先行公开
+
+3月23日（土）・24日（日）東京ビッグサイトにて開催のAnimeJapan 2024でバンダイナムコグループブース出展！
+
+カナタ役大塚剛央とノワール役古賀葵と山本裕介監督の3名が登壇する本作のステージで最終話Aパートの最速先行上映が決定！
+
+第22話「Gravity coffin」
+
+[https://youtu.be/q_3osqqqH3k](https://youtu.be/q_3osqqqH3k)
+
+マリアのロケットが完成し、カナタたちはいよいよイストワールへ旅立とうとしていた。
+
+しかしそれを阻止しようと、ヴァイスハイトによりミステルの奪取を命じられたイデアールが総力戦を仕掛けてくる。
+
+ロックタウンのドリフターたちとイデアールとの全面対決の幕がきっておとされた。
+<img src="https://p.sda1.dev/16/9aff79f4f23273508d84f6db86b3e3c5/56d95a5711440883e441e2d3ece2da2f.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/dcf0faf3c0421988d3bd7b0f815d20da/e88b6510501d99a0d93f01222d845abc.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/cda546b1b84a9ee02e89a930867ad92e/d9329cc71bbe7ff9c34124385d1d80a8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/e0976ed11a7b4d51705ce5dc597d0c5a/cb392b4d195fab024b74310d09fe082c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/15a1863ae53e1850e819d70a3e4be888/806a5a04d7e204b1fe632a3bfe433bfa.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/06626a36b73e1f32b6bf6804130f1fad/cf6185b8466339643c371452328ec0ba.jpg" referrerpolicy="no-referrer">
+

@@ -10800,3 +10800,18 @@ pl不是最传统的？</blockquote>
 
 im@s是偶像制作不是和偶像谈恋爱，角色都有作为偶像的自觉，哪有以着恋爱为目的做摆烂偶像的离谱pl情节，好感度上升带来的暧昧情节是针对玩家的，和玩家化身produce的关系性大部分是偶像和可靠的制作人，而且偶像对P的态度也是P努力工作的回报，这里面P这个角色的身份性格都是可以替代的。本家里Plove头目azusa是抱着不做偶像后才开始发挥全力的愿望和P交往的，追加的Plove王者miki都是以做好偶像为目标觉醒后开始的honey猛攻，这样的就算说是pl，我也能接受。而一些比较离谱的pl人幻想些“没有P我就活不成”、“做偶像就是为了靠近P”的剧情就是怪风气了。
 
+
+*****
+
+####  ViviR  
+##### 2582#       发表于 2024-3-7 18:00
+
+官方红Y（咋又多了和谐词）上放了一段36秒的红c的live影像。在舞台上拳打脚踢是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 2583#       发表于 2024-3-7 18:04
+
+我们爱马仕的红c怎么变这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

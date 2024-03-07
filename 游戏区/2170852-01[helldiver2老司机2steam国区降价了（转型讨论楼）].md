@@ -13566,3 +13566,73 @@ https://tieba.baidu.com/p/8923625372
 
 总结：现在版本答案是电弧了，迟早挨削<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 1356#       发表于 2024-3-7 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173431&amp;ptid=2170852" target="_blank">YY骑士 发表于 2024-3-7 08:57</a>
+
+现在不少孝子洗地说自己轻松n9，潜行拉火车跑路谁不会啊，说轻松n9的你有本事正面钢，全杀干净啊
+
+鸟 ...</blockquote>
+感觉没啥人在虫族任务里潜行吧，不都是拉开打正面？
+
+*****
+
+####  cloudcc  
+##### 1357#       发表于 2024-3-7 09:26
+
+<blockquote>eno_emos 发表于 2024-3-7 09:21
+一些体感：
+
+- 陨石来袭位置地面会发亮，发亮范围缩小到最后陨石落地，陨石落地有个小爆炸，站太近也会被冲 ...</blockquote>
+电弧刮的一逼
+
+除了无限弹药就没优点
+
+能打任何东西不等于打得死
+
+*****
+
+####  LesterReno  
+##### 1358#       发表于 2024-3-7 09:26
+
+昨晚试了下，重甲+喷火器+激光背包+独头喷 虽然没有之前无脑但是还是不错的 武器是不应该削弱，现在野排看到天天bb磁轨蛋盾无敌的小鬼吃瘪也是一种爽<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 1359#       发表于 2024-3-7 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173629&amp;ptid=2170852" target="_blank">布伦史塔德 发表于 2024-3-7 09:14</a>
+
+这更新之后，拿什么打重甲。。来个挂哥
+
+磁轨枪之前是备弹最多，换弹还比较快的破重甲武器了，改过 ...</blockquote>
+榴弹可以打坦克冲，重点是对着脚边的地面射炸弹，最快4发搞定。
+
+
+*****
+
+####  eno_emos  
+##### 1360#       发表于 2024-3-7 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173781&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-7 09:26</a>
+
+电弧刮的一逼
+
+除了无限弹药就没优点</blockquote>
+电弧的优势不止是无限弹药
+
+在能穿甲的同时还能清杂（中远距离限定），这个就很好用了
+
+这代加入了细致的部位模块伤害以后电弧这种必须要要对头才能有效伤害，跟磁小轨很不一样
+
+坦克虫电头6发左右，喷酸3发，指挥官两发爆头他就无脑冲锋了，战士虫一发爆头（溅射也行），泰坦应该是8发以上，主要很难抓到打头的位置
+
+电弧他要削的话应该是砍射程，现在射程跟投掷距离差不多，除了近身完全无法面对和受地形影响非常大以外，杀虫就是通吃的
+
+打机器人则因为完全不能对付大只佬开始的重甲所以不好用<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

@@ -7760,3 +7760,13 @@ https://twitter.com/lvliu1/status/1765707465507897633?t=fiBsldSKpIJ9oEb3RZMZhw&a
 
 所以才覺得可能是角色曲，又不用她們親自唱，歌詞也可以完全不透露什麼，擔當樂器秀一下也可以是角色曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14001#       发表于 2024-3-8 00:24
+
+蝶和ras的角色歌歌词都和主线剧情还有角色互动强相关的，这个角度来说我还是希望mujica的角色歌在动画结束后再出
+
+要是为了赶着出藏剧情导致角色歌不能塞角色核心设定和cp糖，那就本末倒置了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

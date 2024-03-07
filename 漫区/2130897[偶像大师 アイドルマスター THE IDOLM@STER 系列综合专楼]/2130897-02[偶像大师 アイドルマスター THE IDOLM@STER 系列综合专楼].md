@@ -10514,3 +10514,20 @@ mvQ0-c28aZfT3cSsg-g0.jpg
 
 不可能吧？谁会在演示pv放最终版本啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 2556#       发表于 2024-3-7 11:52
+
+不要没有多人啊
+
+*****
+
+####  南風森愛恋  
+##### 2557#       发表于 2024-3-7 11:57
+
+因为是solo所以才能多边形翻三倍吧
+
+—— 来自 vivo V2284A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -5499,3 +5499,16 @@ boss梅花不算分，没关系，我这就把梅花黑桃同花色的小丑卖�
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  周愚  
+##### 486#       发表于 2024-3-7 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64169391&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-3-6 19:49</a>
+
+关注点错，但是大怪盲牌
+
+这是谁家的翻译啊，有点好奇</blockquote>
+就是官方翻译 测试版最后几天出本地化的时候被玩家提议改过来的
+

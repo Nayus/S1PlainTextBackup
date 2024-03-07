@@ -14098,3 +14098,57 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来还想拖人入坑陪着一起玩，现在懒得推荐了，爱咋咋地，反正150块钱也玩回本了
 
+
+*****
+
+####  cloudcc  
+##### 1401#       发表于 2024-3-7 17:26
+
+虫子加强这么多是想逼人去打机器人么<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+轻甲现在真是被跳虫乱杀
+
+跑都没他快
+
+
+*****
+
+####  FLZB  
+##### 1402#       发表于 2024-3-7 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180103&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-7 17:26</a>
+
+虫子加强这么多是想逼人去打机器人么
+
+轻甲现在真是被跳虫乱杀</blockquote>
+更是被机器人乱杀，机器人那个爆能枪现在连中甲都顶不住，火箭弹沾到就碎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 1403#       发表于 2024-3-7 17:31
+
+轻甲之前不是因为BUG默认是中甲防御力吗，现在只是修复了BUG而已。
+
+*****
+
+####  曼陀罗肥  
+##### 1404#       发表于 2024-3-7 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179900&amp;ptid=2170852" target="_blank">wthall 发表于 2024-3-7 17:09</a>
+
+原来还想拖人入坑陪着一起玩，现在懒得推荐了，爱咋咋地，反正150块钱也玩回本了 ...</blockquote>
+所以现在不建议入坑嘛？之前就因为没人玩要野排才一直犹豫入不入，现在这版本更不适合没朋友联机的新人入坑了？
+
+*****
+
+####  赤井稻妻  
+##### 1405#       发表于 2024-3-7 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180103&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-7 17:26</a>
+
+虫子加强这么多是想逼人去打机器人么
+
+轻甲现在真是被跳虫乱杀</blockquote>
+机器人难7对位虫子难9，蛋盾磁轨被削弱还去打机器人不是自杀吗
+

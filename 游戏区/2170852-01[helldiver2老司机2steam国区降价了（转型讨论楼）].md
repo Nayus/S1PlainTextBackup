@@ -13656,3 +13656,53 @@ https://tieba.baidu.com/p/8923625372
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 1363#       发表于 2024-3-7 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174019&amp;ptid=2170852" target="_blank">YY骑士 发表于 2024-3-7 09:48</a>
+
+拉开也不打，都是卡视野跑脱战的，原地打越打越多。
+
+动不动就刷3个坦克虫+2泰坦追你，手里就2发500kg，一 ...</blockquote>
+越打越多说明打得不够快，我一开始用磁轨枪就是这么玩，到了n9撤退的时候经常被中小虫子包围，才意识到打正面最终还是需要喷火器或者电弧枪这种常规的反集群火力，单靠磁轨枪肯定不行
+
+*****
+
+####  cloudcc  
+##### 1364#       发表于 2024-3-7 10:01
+
+<blockquote>eno_emos 发表于 2024-3-7 09:32
+电弧的优势不止是无限弹药
+
+在能穿甲的同时还能清杂（中远距离限定），这个就很好用了
+
+</blockquote>
+电弧有一个着弹延迟啊
+
+你喵哪里完全不知道打得哪里
+
+导致经常十枪打不死一个坦克虫（）
+
+
+*****
+
+####  赤井稻妻  
+##### 1365#       发表于 2024-3-7 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173856&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-7 09:32</a>
+
+电弧的优势不止是无限弹药
+
+在能穿甲的同时还能清杂（中远距离限定），这个就很好用了</blockquote>
+电弧能瞄准吗，我每次电牛都因为打点不确定要电半天，一会电腿一会电头
+
+*****
+
+####  cloudcc  
+##### 1366#       发表于 2024-3-7 10:03
+
+还有飞矛的锁定bug什么时候修，打泰坦都能打空太搞笑了
+

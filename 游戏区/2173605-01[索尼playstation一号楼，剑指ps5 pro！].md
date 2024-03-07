@@ -1435,3 +1435,35 @@ The announcements won't stop. Starfield will be announced for Playstation 5 with
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都等了几年了，不如再忍一年等打个半折再买
 
+
+*****
+
+####  曼彻斯特联  
+##### 160#       发表于 2024-3-7 09:59
+
+对马414真的能卖得动吗，愿意出这个价买对马的玩家早就买PS了吧。
+
+
+*****
+
+####  名居守  
+##### 161#       发表于 2024-3-7 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">难说，60美刀涨70美刀还有人嫌涨的不够多的
+
+*****
+
+####  bhunter  
+##### 162#       发表于 2024-3-7 10:03
+
+总感觉上pc之日，就是崩口碑之时。
+
+一个是价格迷之自信，二是本身也就是个风景好的罐头。不知道为啥有那么高的风评。
+
+*****
+
+####  Fuero  
+##### 163#       发表于 2024-3-7 10:04
+
+原版在PS5上表现就挺好的，PC版还是pass了
+

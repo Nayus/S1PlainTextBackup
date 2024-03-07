@@ -4920,3 +4920,11 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 这片现在还有人看么，熟人出的太慢了吧，延迟一周？</blockquote>
 奶茶屋昨天有<strong>更新</strong>至20话（虽然发布的抬头还有另一个组），age网有迪士尼<strong>那令人无言以对的翻译</strong>熟肉（21话）
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 4279#       发表于 2024-3-7 10:00
+
+怎么FRS和景品都没谢尔的事啊 一口气把新的几集补了还挺感动想消费一下来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

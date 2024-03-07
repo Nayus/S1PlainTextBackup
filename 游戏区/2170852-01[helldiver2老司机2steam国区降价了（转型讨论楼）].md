@@ -14531,3 +14531,16 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 
 开黑的哥几个被难7虫子追得满地图跑，afk等机甲实装再玩了
 
+
+*****
+
+####  xinfengj  
+##### 1440#       发表于 2024-3-8 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174786&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-3-7 10:42</a>
+
+电弧打重甲还是太慢了，感&amp;#x8 ...</blockquote>
+被追的时候无后坐力炮装填要先找个拐角抽弹壳，然后马上跑，再找个拐角装弹
+
+可以避免同一点站太久被追上
+

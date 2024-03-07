@@ -14348,3 +14348,34 @@ https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldive
 
 又更新了71.6 MB，是更新了个啥？
 
+
+*****
+
+####  FLZB  
+##### 1422#       发表于 2024-3-7 21:38
+
+太抽象了，现在连小虫子的尸体都能压得你站不起来，一个飞扑跳进尸体堆里直接被摁在地上乱杀。另外现在难7的怪量体感已经来到之前难9的水平了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山风短  
+##### 1423#       发表于 2024-3-7 21:42
+
+我还是第一次经历这种简中英文网络玩家火力如此一致的情形，每天看Reddit和贴吧可比这个版本的游戏好玩多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 1424#       发表于 2024-3-7 21:44
+
+<img src="https://img.saraba1st.com/forum/202403/07/214438tgk677ly02l0mx12.png" referrerpolicy="no-referrer">
+
+<strong>`LH_4`C}ANN@6(@N5@LO)32.png</strong> (158.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 21:44 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太幽默了，家人们
+

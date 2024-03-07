@@ -14602,3 +14602,11 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 —— 来自 S1Fun</blockquote>
 这样太厉害了，我觉得没必要加了，反正按制作组思路强了就得削<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  m98626  
+##### 1447#       发表于 2024-3-8 07:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在百分之百肯定去帮忙的工作室就是棒鸡。这不名师出高徒么，和玩家对喷这么逆天的操作都来了，n5都打不过去的废物和乔黑烧打不死超载勇士如出一辙，太乐了
+

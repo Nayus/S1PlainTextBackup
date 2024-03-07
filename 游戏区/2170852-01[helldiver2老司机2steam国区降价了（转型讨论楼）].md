@@ -14411,3 +14411,29 @@ https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldive
 
 这死命加难度干嘛，本来打底难度就是为了爽爽，结果越调越难，这跳虫简直了，一刻不停隔一个屏幕跳脸
 
+
+*****
+
+####  sigeren  
+##### 1428#       发表于 2024-3-7 22:08
+
+昨天那个星系任务的45个勋章呢？今天显示任务完成了，但勋章没给啊
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cloudcc  
+##### 1429#       发表于 2024-3-7 22:12
+
+<img src="https://img.saraba1st.com/forum/202403/07/221222sua7gssagy3lh8rz.jpg" referrerpolicy="no-referrer">
+
+<strong>159CCABB0049811C6A6DAE51140F56FC.jpg</strong> (370.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 22:12 上传
+
+这萝卜还得全服做任务获得
+

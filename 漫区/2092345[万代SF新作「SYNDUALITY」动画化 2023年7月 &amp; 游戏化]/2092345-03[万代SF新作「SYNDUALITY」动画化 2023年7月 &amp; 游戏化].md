@@ -5046,3 +5046,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 22话预告来了 ...</blockquote>
 彼方的那个小镇，那个打过大风暴二次袭击的机体们是不是被动员起来了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我好像听到全部漂流者的字样，而且有一张截图的机体不太像面具男的组织所在的感觉
 
+
+*****
+
+####  novyDC  
+##### 4290#       发表于 2024-3-7 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64181456&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-03-07 20:04:08</a>
+彼方的那个小镇，那个打过大风暴二次袭击的机体们是不是被动员起来了？，我好像听到全部漂流者的字样，而 ...</blockquote>随着玛利亚的火箭完成，彼方他们终于可以朝着希斯特瓦出发了。但是维斯海特也为了阻止彼方他们，夺取蜜丝缇儿，发动了理想乡全部的兵力。石头镇的全部漂流者与理想乡战斗的序幕终于拉开了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

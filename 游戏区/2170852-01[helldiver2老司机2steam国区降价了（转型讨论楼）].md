@@ -14312,3 +14312,23 @@ https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldive
 
 玩游戏是来爽的真的很难理解吗，这个刷怪频率本来就很恶心了，打都打不完。现在被追的到处跑还不知道怎么还手<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 1418#       发表于 2024-3-7 20:16
+
+我有一计,加个新难度,然后新难度下只刷加强版重甲单位,加强版重甲=nerf后磁小鬼打现在普通重甲的效果.磁小鬼不砍,其他武器按比例加强.
+
+与其让玩家虫海畅游之后吃瘪,不如弄个更有挑战性的难度.
+
+*****
+
+####  gzGaryC  
+##### 1419#       发表于 2024-3-7 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64181383&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-7 19:57</a>
+
+下面是400个踩的意思吗</blockquote>
+现在不止400个了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

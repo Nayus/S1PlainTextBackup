@@ -1116,3 +1116,16 @@ Kotaku来辟谣？那不是反而实锤了？
 
 真就纯为了喂屎而生啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  D-JoeII  
+##### 89#       发表于 2024-3-8 07:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180318&amp;ptid=2170559" target="_blank">毛利提督 发表于 2024-3-7 17:44</a>
+
+乐子：ZQ for Zoe Quinn</blockquote>
+那就不止混子了
+
+希望盡快倒掉
+

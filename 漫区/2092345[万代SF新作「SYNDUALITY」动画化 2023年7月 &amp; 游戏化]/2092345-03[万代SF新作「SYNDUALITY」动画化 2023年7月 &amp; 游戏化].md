@@ -5057,3 +5057,195 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 4291#       发表于 2024-3-7 21:05
+
+<img src="https://img.saraba1st.com/forum/202403/07/200428s7mf405ibruuibb8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307194928.png</strong> (65.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:04 上传
+
+奶茶屋的20话开始看
+
+<img src="https://img.saraba1st.com/forum/202403/07/200448aahzqp5rewl69apo.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307195134.png</strong> (62.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:04 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/200554tvqbinizzixv8mxm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307200541.png</strong> (44.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:05 上传
+
+阿美利亚疑似技术人员的观点很传统
+
+<img src="https://img.saraba1st.com/forum/202403/07/200854twiw8jz5awwt5hww.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307200831.png</strong> (76.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:08 上传
+
+贤士们的可能性
+
+<img src="https://img.saraba1st.com/forum/202403/07/201323mix3snx1ydx0nniy.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307201310.png</strong> (48.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:13 上传
+
+来自伊斯特瓦尔
+
+<img src="https://img.saraba1st.com/forum/202403/07/202552smkavoml8d25rsad.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307202054.png</strong> (65.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:25 上传
+
+不知为何，看到这句，有几份百感交集的感觉，因21话对诺娃多少产生的不满因为回忆里这句<strong>不是歉意的歉意而多少融化了点</strong>，只剩下对拍板21话人的厌恶<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/07/203304gyyy6yrkyn6mm060.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307203248.png</strong> (32.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:33 上传
+
+才发现<strong>艾女士手上拿着鲜花</strong>，应该是给老婆婆献花了吧
+
+<img src="https://img.saraba1st.com/forum/202403/07/203737c6zlvz3y6d3zyf1y.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307203722.png</strong> (47.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:37 上传
+
+献给
+
+<img src="https://img.saraba1st.com/forum/202403/07/204002oi5mwc32zyc33izx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307203954.png</strong> (57.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:40 上传
+
+大哥和威斯之间的<strong>差异</strong>在这里就很明显了，只能说真得是命运的齿轮对于贤士们而言也是一样的
+
+<img src="https://img.saraba1st.com/forum/202403/07/204206nf2wfuk1kwf22fu2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307204159.png</strong> (67.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:42 上传
+
+修涅，你真得做到了吗，<strong>我感觉你还不如接受管家的忠告还活的轻松一些</strong><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（主人做最后的决定）
+
+<img src="https://img.saraba1st.com/forum/202403/07/204504yonctddino6ahxa9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307204453.png</strong> (99.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:45 上传
+
+大哥吐槽怀念过去，太清醒了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/07/204737utb4eliluia0ltny.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307204728.png</strong> (57.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:47 上传
+
+这是嘲讽，其实感觉在某种意义来说，面具男和歌姬<strong>一样</strong>是威斯的受害者
+
+<img src="https://img.saraba1st.com/forum/202403/07/205050xk88f3oh3occtq9r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307205010.png</strong> (56 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:50 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/205059eioovppnozyuzqbr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307205039.png</strong> (50.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:50 上传
+
+个人感觉，21话的台词的质量和20话完全不在一个档次上，20话有不少螺镖表一样的感觉，现在一看令人觉得心情复杂
+
+<img src="https://img.saraba1st.com/forum/202403/07/205413m8llh0inm2x4sm2d.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307205240.png</strong> (66.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:54 上传
+
+马哈特你醒醒，多年以后你会去看看这个世界的jpg
+
+<img src="https://img.saraba1st.com/forum/202403/07/205712swqetftndt9nehgf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307205705.png</strong> (62.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:57 上传
+
+<strong>修涅的动摇</strong>？
+
+而管家和修涅的密谋这里的奶茶屋的翻译更明显了
+
+<img src="https://img.saraba1st.com/forum/202403/07/205916cxmznktypz3nng7n.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307205847.png</strong> (73.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 20:59 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你小子还不快点跳反jpg
+
+<img src="https://img.saraba1st.com/forum/202403/07/210410kn9k9mfpz9czbpkd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307210401.png</strong> (57.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 21:04 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/210422e9bsp6919zipcbnv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240307210322.png</strong> (64.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 21:04 上传
+
+现在只感觉这两个都是受害者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，<strong>歌姬没有其他人或者还没遇到彼方也就算了，修涅你就这么看着</strong>吗jpg
+

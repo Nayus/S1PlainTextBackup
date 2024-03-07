@@ -14189,3 +14189,35 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
 解包内容正式上线肯定要削，制作组看到玩家用noob装备一招鲜吃遍天比制作组全家螺旋升天还难受
 
+
+*****
+
+####  真红眼教授  
+##### 1410#       发表于 2024-3-7 19:03
+
+从磁轨炮削弱就知道人家根本不想你无双杀虫子，只能当跑男
+
+*****
+
+####  eno_emos  
+##### 1411#       发表于 2024-3-7 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+[https://www.arrowheadgamestudios ... er-in-helldivers-2/](https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldivers-2/)
+
+<img src="https://img.saraba1st.com/forum/202403/07/190819yp22swtw03th7077.png" referrerpolicy="no-referrer">
+
+<strong>[4JZV`P}V7}`CWK_SD$CWHT.png</strong> (121.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 19:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/190824dd4fcecemmevwk7k.png" referrerpolicy="no-referrer">
+
+<strong>8}X]{20FM421R%AJ6~2~0BK.png</strong> (57.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 19:08 上传
+

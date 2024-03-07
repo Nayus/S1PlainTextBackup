@@ -14020,3 +14020,21 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Benighted  
+##### 1394#       发表于 2024-3-7 13:38
+
+发现机炮打掉肚子+飞鹰110也可以单杀泰坦
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Sayuki1025  
+##### 1395#       发表于 2024-3-7 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">砍了蛋盾不会游龙了
+

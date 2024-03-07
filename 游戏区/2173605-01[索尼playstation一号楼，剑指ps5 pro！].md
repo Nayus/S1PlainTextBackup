@@ -1486,3 +1486,11 @@ The announcements won't stop. Starfield will be announced for Playstation 5 with
 
 其实还有ps5次世代版ssssssssd和触觉反馈体验很好的缘故，就算玩了ps4版也完全值得用ps5版重玩一遍，不过不知道pc端能不能实现那个sssssssssssd的效果
 
+
+*****
+
+####  resorry  
+##### 166#       发表于 2024-3-7 13:39
+
+对马岛真是玩起来很舒服的作品，前面也有漏油说了，刚好觉得差不多无聊的时候游戏就结束了，游戏体验良好
+

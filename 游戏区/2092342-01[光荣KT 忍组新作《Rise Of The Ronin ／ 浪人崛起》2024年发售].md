@@ -1572,3 +1572,11 @@ https://www.bilibili.com/video/BV1xF4m1L7uu/
 一字不提隼流却处处是隼流</blockquote>
 我草，原来这不是仁王3，是忍龙4！！！
 
+
+*****
+
+####  zqqwe  
+##### 821#       发表于 2024-3-7 23:52
+
+和主角二人一组的妹子还是有完整台词的固定角色，估计不能全程操作妹子了……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

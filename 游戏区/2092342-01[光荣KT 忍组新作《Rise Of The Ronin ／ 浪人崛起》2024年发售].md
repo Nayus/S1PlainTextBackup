@@ -1625,3 +1625,23 @@ https://www.bilibili.com/video/BV1xF4m1L7uu/
 
 仁 王 3
 
+
+*****
+
+####  duraa  
+##### 827#       发表于 2024-3-8 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64183157&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-7 23:20</a>
+4K中字 B站分流
+
+https://www.bilibili.com/video/BV14H4y1j7J1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">隔壁奖杯楼就有节奏哥上蹿下跳，不得不说那个奖杯做的蛮蠢的
+
+
+*****
+
+####  bm7号  
+##### 828#       发表于 2024-3-8 00:56
+
+开放世界地图探索部分都继承的话，多周目也是合理的。
+

@@ -1833,3 +1833,11 @@ stgr已经彻底形成一个独立生态了
 
 虹女。。只能是矮子里拔高个了吧，吹得再怎么狠能超过胃皇再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ketestrait  
+##### 57#       发表于 2024-3-7 11:34
+
+以播BA的同接计算1琉璃≈0.5安洁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13835,3 +13835,59 @@ https://tieba.baidu.com/p/8923625372
 
 然后就是几种重甲，泰坦，牛，无畏机甲，坦克，只有牛能被喷火器杀伤，不知道这是什么原理，当然坦克我没测试，只测了无畏机甲，这个测试难度比较低
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1378#       发表于 2024-3-7 11:26
+
+<blockquote>eno_emos 发表于 2024-3-7 09:21
+一些体感：
+
+- 陨石来袭位置地面会发亮，发亮范围缩小到最后陨石落地，陨石落地有个小爆炸，站太近也会被冲 ...</blockquote>
+安全也就是锁半蓄力 现在要满蓄才能两枪破甲
+
+原来50+50就行 现在要100+100 算起来血量翻倍了都
+
+改成160到180这样两次高蓄能破用起来都舒服点
+
+而不是现在这样不蓄满等于没蓄
+
+*****
+
+####  真红眼教授  
+##### 1379#       发表于 2024-3-7 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64175126&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 11:09</a>
+
+一般来说是这个道理，但喷火器一样烧不了那种顶盾的虫子，正常来说应该是火焰穿透到他的肉身上把他直接烧 ...</blockquote>
+中甲那个顶盾虫血条特别厚把，牛是腿血少，你可以试试改打牛的屁股就会发现特别难杀
+
+*****
+
+####  LrGsite  
+##### 1380#       发表于 2024-3-7 11:27
+
+虫族现在还是榴弹+EAT比较方便，带机炮会有没法打重甲的问题，榴弹就很方便的可以砸地板炸死强袭虫。
+
+另外箭头这组原来是这么犟的吗，昨天更新完被玩家在讨论区和reddit喷爆，转手就发了一篇文章的同时还不忘在discord嘲讽“菜就别玩”
+
+*****
+
+####  Launce  
+##### 1381#       发表于 2024-3-7 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这实在没活，把老古董磁轨枪掏出来不比这牛魔雌小鬼枪好用
+
+*****
+
+####  Launce  
+##### 1382#       发表于 2024-3-7 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64175414&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-3-7 11:27</a>
+
+虫族现在还是榴弹+EAT比较方便，带机炮会有没法打重甲的问题，榴弹就很方便的可以砸地板炸死强袭虫。
+
+另外 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没经过任何测试的补丁+发售后死扛不加服务器容量，不是一直犟到现在吗
+

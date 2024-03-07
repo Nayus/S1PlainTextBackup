@@ -180,3 +180,14 @@ dlc竞技场，反而被爱神卡了一阵。本体里炸弹可见，dlc炸点�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Yinacona  
+##### 4082#       发表于 2024-3-7 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174430&amp;ptid=2098044" target="_blank">syndrome2032 发表于 2024-3-7 10:16</a>
+
+新章蛇神被誓戒吃了，修女和光头的教堂直接放阿斯特莱亚本人的雕像了。 ...</blockquote>
+觉得怪怪的，他们穿越的节点那时修女已经被削成人棍吊口气状态了，后续又没有往更前面节点跳。所以是说靠璃纱或者其他没明说的方法达成了he？
+

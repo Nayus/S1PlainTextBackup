@@ -10917,3 +10917,31 @@ pl不是最传统的？</blockquote>
 
 想了想还是觉得只出单人solo也太伤了，校园曲也只能独唱ver了是吧
 
+
+*****
+
+####  Unlight  
+##### 2593#         楼主| 发表于 2024-3-7 19:39
+
+胸围82的苍巨头不是第一次啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/07/193904fkimgi18qr7zqzww.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2744.PNG</strong> (349.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 19:39 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  rgauss  
+##### 2594#       发表于 2024-3-7 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64181157&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-3-7 19:33</a>
+想了想还是觉得只出单人solo也太伤了，校园曲也只能独唱ver了是吧</blockquote>
+校歌应该会上合唱吧
+

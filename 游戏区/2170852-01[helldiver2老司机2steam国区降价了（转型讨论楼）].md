@@ -14304,3 +14304,11 @@ https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldive
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64181037&amp;ptid=2170852" target="_blank">gzGaryC 发表于 2024-3-7 20:22</a></blockquote>
 下面是400个踩的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  airshit  
+##### 1417#       发表于 2024-3-7 20:12
+
+玩游戏是来爽的真的很难理解吗，这个刷怪频率本来就很恶心了，打都打不完。现在被追的到处跑还不知道怎么还手<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

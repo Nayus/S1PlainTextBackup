@@ -13706,3 +13706,52 @@ https://tieba.baidu.com/p/8923625372
 
 还有飞矛的锁定bug什么时候修，打泰坦都能打空太搞笑了
 
+
+*****
+
+####  a74899587  
+##### 1367#       发表于 2024-3-7 10:08
+
+野队n6撤离刷出来他妈三只泰坦三只坦克虫，我手里一杆被nerf的磁轨只能看着大伙陷入迷茫然后在四散鼠窜里团灭，超级气球你还我弟兄的命来<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  eno_emos  
+##### 1368#       发表于 2024-3-7 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174216&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 10:02</a>
+
+电弧能瞄准吗，我每次电牛都因为打点不确定要电半天，一会电腿一会电头 ...</blockquote>
+实际上是自动瞄准，感觉像是在射界锥形范围内自动电伤害最大的那个点
+
+容易打歪是因为这玩意必须要在出手那一瞬间能直接命中才会电上，所以侧面和大角度电坦克虫都很容易电歪，它一动就爪子挡住头了，更别提还能被树啊草啊灌木铁丝网地上的石头和其他尸体挡住
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉电弧一个基本技巧是要跟虫子打对头，对头才能保证电到最脆弱的位置
+
+*****
+
+####  赤井稻妻  
+##### 1369#       发表于 2024-3-7 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173722&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-7 09:21</a>
+
+一些体感：
+
+- 陨石来袭位置地面会发亮，发亮范围缩小到最后陨石落地，陨石落地有个小爆炸，站太近也会被冲 ...</blockquote>
+喷火器要喷牛的腿，关于这个东西我也很困惑，如果说他能破重甲的话，几个明显的重甲目标只有牛会吃喷火器的伤害，包括那个会顶盾的虫子，如果说是燃烧dot伤害，如果你用喷火器不集中位置喷火让dot烧他效率极低，难道说又是某种bug？还是说这是有对牛的特效？
+
+
+*****
+
+####  赤井稻妻  
+##### 1370#       发表于 2024-3-7 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174198&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-7 10:01</a>
+
+电弧有一个着弹延迟啊
+
+你喵哪里完全不知道打得哪里</blockquote>
+不考虑杀牛的话，电枪通过快速蓄力的手法可以把射速拉到很高，不过需要站桩输出，一般都是找一个远离队伍的安全点开电，或者直接爬到高处，至少在刷泰坦之前能把地上的乱七八糟虫子电干净
+

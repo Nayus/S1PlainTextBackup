@@ -1467,3 +1467,12 @@ The announcements won't stop. Starfield will be announced for Playstation 5 with
 
 原版在PS5上表现就挺好的，PC版还是pass了
 
+
+*****
+
+####  duraa  
+##### 164#       发表于 2024-3-7 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对马岛好就好在在你对他这套快腻了的时候就打完了，剧情演出音乐美术也挺到位，当时还有奇迹2做衬托
+不过后续导剪版和ps5版的升级有点吃相难看了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -14152,3 +14152,15 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 轻甲现在真是被跳虫乱杀</blockquote>
 机器人难7对位虫子难9，蛋盾磁轨被削弱还去打机器人不是自杀吗
 
+
+*****
+
+####  WGTCorp  
+##### 1406#       发表于 2024-3-7 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180103&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-7 17:26</a>
+虫子加强这么多是想逼人去打机器人么
+
+轻甲现在真是被跳虫乱杀</blockquote>
+打虫子穿轻甲还能跑路拉火车，打机器人那是真的跑不了。
+

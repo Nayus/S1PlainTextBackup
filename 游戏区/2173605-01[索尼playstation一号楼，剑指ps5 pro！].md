@@ -1664,3 +1664,14 @@ Silknighth确实是第一个提到对马岛消息的人，可追溯至2月，但
 
 陶德将天赋带到索尼
 
+
+*****
+
+####  csolfans  
+##### 184#       发表于 2024-3-7 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179575&amp;ptid=2173605" target="_blank">任天索尼子 发表于 2024-3-7 16:48</a>
+
+舅舅现在自己的消息很多也时准时不准 比如那个卡婊系舅舅爆料生化经常被打脸 但是却精准爆料荒野的公布日 ...</blockquote>
+因为DuskGolem都是二手料
+

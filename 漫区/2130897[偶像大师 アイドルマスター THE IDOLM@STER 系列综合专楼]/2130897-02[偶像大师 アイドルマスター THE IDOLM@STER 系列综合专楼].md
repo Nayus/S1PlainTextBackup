@@ -10945,3 +10945,11 @@ pl不是最传统的？</blockquote>
 想了想还是觉得只出单人solo也太伤了，校园曲也只能独唱ver了是吧</blockquote>
 校歌应该会上合唱吧
 
+
+*****
+
+####  rgauss  
+##### 2595#       发表于 2024-3-7 20:36
+
+琴叶这衣服总觉得哪里见过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -13949,3 +13949,31 @@ https://tieba.baidu.com/p/8923625372
 【绝地战兵2新 ...</blockquote>
 您这视频里一只坦克加几只小虫子就打的汗流浃背了，高难坦克虫都是三四只一起带跳虫指挥官不要钱的刷。跳虫被点燃一个飞扑能给你弄成红血。清理群怪也就欺负欺负走的慢的小虫子，站桩开喷就是等死
 
+
+*****
+
+####  赤井稻妻  
+##### 1388#       发表于 2024-3-7 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64176512&amp;ptid=2170852" target="_blank">拔丝光头 发表于 2024-3-7 12:48</a>
+
+您这视频里一只坦克加几只小虫子就打的汗流浃背了，高难坦克虫都是三四只一起带跳虫指挥官不要钱的刷。跳 ...</blockquote>
+只是单纯演示喷火器烧牛而已，喷火器加强前我就在n9用喷火器逛街了，可以直接告诉你，加强前的喷火器直接喷指挥官，可以在指挥官近身前把他喷死，跳虫飞扑没办法只能扎针，除非你说哪个武器可以做到无伤处理飞虫群，不然我只能说这是没办法的事
+
+喷火器实际使用一般就不会站桩开喷，都要边喷边退，不考虑喷吐虫的话，只有打牛和指挥官需要站桩
+
+
+*****
+
+####  绚烂航迹云  
+##### 1389#       发表于 2024-3-7 13:00
+
+<blockquote>引用第1379楼LrGsite于2024-03-07 11:27发表的  :
+
+虫族现在还是榴弹+EAT比较方便，带机炮会有没法打重甲的问题，榴弹就很方便的可以砸地板炸死强袭虫。另......</blockquote>
+毕竟制作组的slogan是
+A game for everyone is a game for no one.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+开除one籍
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+

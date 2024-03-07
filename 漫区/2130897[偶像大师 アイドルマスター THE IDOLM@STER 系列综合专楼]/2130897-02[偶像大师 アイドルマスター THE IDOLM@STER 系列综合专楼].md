@@ -10349,3 +10349,47 @@ mvQ0-c28aZfT3cSsg-g0.jpg
 
 你这中专，是不是每人有一个姐姐大人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 2538#       发表于 2024-3-7 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水魔好歹真能拉到人
+
+学马能让现在活着的几个星加起来干过烤就算i水魔好吧，能让imas上财报那封小美野个新i父都不是问题
+
+另外我个人还是不想看到里信号灯的，尤其在当前御三家已经不咋正统的情况下
+
+*****
+
+####  ViviR  
+##### 2539#       发表于 2024-3-7 11:19
+
+目前只知道红c妹妹到处贴，贴完姐姐贴另外两个初始可p角色（如果那两张图里的是同一个人），但自己不是可p角色，什么高O侑（不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 2540#       发表于 2024-3-7 11:19
+
+水魔能吸白河豚，你学也要来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 2541#       发表于 2024-3-7 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64175293&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-3-7 11:19</a>
+
+水魔能吸白河豚，你学也要来吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">偶像大师里磕cp的白河豚本来就不少
+
+*****
+
+####  patema  
+##### 2542#       发表于 2024-3-7 11:26
+
+円透白河豚和爬架神pl党不都把狗脑子打出来过，怎么就没白河豚了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

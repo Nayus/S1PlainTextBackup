@@ -10531,3 +10531,25 @@ mvQ0-c28aZfT3cSsg-g0.jpg
 
 —— 来自 vivo V2284A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  darkfatelight  
+##### 2558#       发表于 2024-3-7 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173910&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-3-7 09:37</a>
+
+黄c换人了</blockquote>
+这个喜多川海梦确实更像黄C
+
+*****
+
+####  liyropen  
+##### 2559#       发表于 2024-3-7 12:01
+
+这作游戏连观众都有人物建模，6w面数规格的偶像模型还有光线效果，不做点人数限制老一点的机子真的有点困难
+不过为啥要做观众模型啊，IP那只有荧光棒效果也不差吧，大场地感也是有的
+话说PC版呢，这吹画面你没PC？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

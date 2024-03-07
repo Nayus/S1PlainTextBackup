@@ -14090,3 +14090,11 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 磁轨削也就罢了，现在N7难度刷怪速度堪比之前N9，绿黄酸虫和泰坦抬头就 ...</blockquote>
 扎针好像可以回盾，我不知道是不是巧合，我每次扎针就看着护盾槽跟着血量一路涨满了
 
+
+*****
+
+####  wthall  
+##### 1400#       发表于 2024-3-7 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来还想拖人入坑陪着一起玩，现在懒得推荐了，爱咋咋地，反正150块钱也玩回本了
+

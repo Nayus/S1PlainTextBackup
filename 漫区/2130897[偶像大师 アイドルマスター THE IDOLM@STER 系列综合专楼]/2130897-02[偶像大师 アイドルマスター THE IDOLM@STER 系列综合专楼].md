@@ -10744,3 +10744,16 @@ ps:这次新作这么早就找a店合作，是不是说明要开始谷子商法�
 
 想要不难受是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">（从市场角度来看也是）
 
+
+*****
+
+####  MELTMOON  
+##### 2577#       发表于 2024-3-7 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173890&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-7 09:35</a>
+
+昨天看到个笑话
+
+为什么黄c没有被投广告 因为她没钱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太严谨了
+

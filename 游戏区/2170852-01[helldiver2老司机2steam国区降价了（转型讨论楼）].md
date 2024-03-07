@@ -13936,3 +13936,16 @@ https://tieba.baidu.com/p/8923625372
 
 【绝地战兵2新的反强袭虫武器】 [https://www.bilibili.com/video/BV1wj421U7aW](https://www.bilibili.com/video/BV1wj421U7aW)
 
+
+*****
+
+####  拔丝光头  
+##### 1387#       发表于 2024-3-7 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64176389&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 12:37</a>
+
+只是为了方便测试剔除变量而已，实战时候一般是连小虫子带坦克一起烧，很难计算击杀时间
+
+【绝地战兵2新 ...</blockquote>
+您这视频里一只坦克加几只小虫子就打的汗流浃背了，高难坦克虫都是三四只一起带跳虫指挥官不要钱的刷。跳虫被点燃一个飞扑能给你弄成红血。清理群怪也就欺负欺负走的慢的小虫子，站桩开喷就是等死
+

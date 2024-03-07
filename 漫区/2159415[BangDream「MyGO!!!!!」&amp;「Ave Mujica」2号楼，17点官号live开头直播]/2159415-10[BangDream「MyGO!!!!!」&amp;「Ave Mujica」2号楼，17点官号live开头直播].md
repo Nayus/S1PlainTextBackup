@@ -7745,3 +7745,18 @@ https://twitter.com/lvliu1/status/1765707465507897633?t=fiBsldSKpIJ9oEb3RZMZhw&a
 
 鬼佬的看法也挺有意思的
 
+
+*****
+
+####  御幸一也  
+##### 14000#       发表于 2024-3-8 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64182946&amp;ptid=2159415" target="_blank">十块钱论坛 发表于 2024-3-7 22:56</a>
+
+動畫都沒出的團，有角色歌的可能性不是基本沒有嗎</blockquote>
+1. 預告五首歌的時候用了5個人的代表色煙霧特效
+
+2. RAS/碟 之前也是出五首角色曲的迷你專，這次也剛好五首
+
+所以才覺得可能是角色曲，又不用她們親自唱，歌詞也可以完全不透露什麼，擔當樂器秀一下也可以是角色曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

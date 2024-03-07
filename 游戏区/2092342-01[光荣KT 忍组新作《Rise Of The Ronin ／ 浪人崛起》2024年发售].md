@@ -1580,3 +1580,20 @@ https://www.bilibili.com/video/BV1xF4m1L7uu/
 
 和主角二人一组的妹子还是有完整台词的固定角色，估计不能全程操作妹子了……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 822#       发表于 2024-3-8 00:07
+
+应该是自捏两个人物自己选一个操控吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rainsheep  
+##### 823#       发表于 2024-3-8 00:08
+
+应该是自选一个
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

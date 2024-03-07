@@ -1797,3 +1797,14 @@ stgr已经彻底形成一个独立生态了
 
 不是，怎么签名还要别人代签的LUCA
 
+
+*****
+
+####  psnsic8nag  
+##### 53#       发表于 2024-3-7 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64168876&amp;ptid=2171972" target="_blank">_Ra1nMaker 发表于 2024-3-6 18:57</a>
+
+那只能说虹主播钱还是赚的够多吧 这种合同也一堆人抢着签呢</blockquote>
+前几年虚拟主播上升期签这合同可以理解 但现在业界已经缩圈了
+

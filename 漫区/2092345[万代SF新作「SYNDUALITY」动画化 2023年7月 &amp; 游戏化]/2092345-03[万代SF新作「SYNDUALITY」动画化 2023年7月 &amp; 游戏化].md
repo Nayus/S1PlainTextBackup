@@ -5249,3 +5249,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 现在只感觉这两个都是受害者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，<strong>歌姬没有其他人或者还没遇到彼方也就算了，修涅你就这么看着</strong>吗jpg
 
+
+*****
+
+####  aptx8285144  
+##### 4292#       发表于 2024-3-7 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64181632&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-7 20:18</a>
+
+随着玛利亚的火箭完成，彼方他们终于可以朝着希斯特瓦出发了。但是维斯海特也为了阻止彼方他们，夺取蜜丝缇 ...</blockquote>
+看完奶茶屋的翻译20话回忆，感觉彼方不愧是从人文角度是白诺娃与歌姬的挽救者，后者自不必多说，看到这里都明白，前者那种自责无法更好地保护主人的心理也几乎被彼方成长轨迹里“屡败屡战”的同病相怜而却又能把责任揽过来的性格所“保护”着，最后也由此成为16话诺娃自白的契机之一
+

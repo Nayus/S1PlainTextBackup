@@ -111,3 +111,11 @@ REFRAIN PRISM MEMORIES
 
 棱镜记忆，算是挺出名的独立STG作品了
 
+
+*****
+
+####  zzy516232108  
+##### 144#       发表于 2024-3-7 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本彩笔打不过ex难度 有点难顶
+

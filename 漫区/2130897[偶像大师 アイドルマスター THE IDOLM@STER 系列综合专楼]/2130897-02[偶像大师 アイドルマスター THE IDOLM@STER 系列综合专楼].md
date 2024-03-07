@@ -10964,3 +10964,16 @@ pl不是最传统的？</blockquote>
 我好急那个棕发东条希的消息啊</blockquote>
 看上她的xp好多啊，就希望她的上下圍平均一點
 
+
+*****
+
+####  江口夕  
+##### 2597#       发表于 2024-3-7 22:39
+
+ 本帖最后由 江口夕 于 2024-3-7 22:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64181213&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-3-7 19:39</a>
+胸围82的苍巨头不是第一次啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">胸围大的话苍系对话不知不觉氛围就h起来了，pl话语权问题，这个版本就很强势
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -10899,3 +10899,13 @@ pl不是最传统的？</blockquote>
 
 这个系列从一开始就有自己的受众，不喜欢的，可以不看不花钱。每个人都有自己的喜好啊。
 
+
+*****
+
+####  Alicest  
+##### 2591#       发表于 2024-3-7 19:20
+
+【花海咲季 4K MV【学園 偶像大师】】 [https://www.bilibili.com/video/BV1pK421475D](https://www.bilibili.com/video/BV1pK421475D)
+
+有很大的提升空间
+

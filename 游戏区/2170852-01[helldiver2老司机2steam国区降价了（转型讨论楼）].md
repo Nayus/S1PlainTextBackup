@@ -14221,3 +14221,24 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
 2024-3-7 19:08 上传
 
+
+*****
+
+####  FLZB  
+##### 1412#       发表于 2024-3-7 19:20
+
+目前玩下来感觉，只考虑现有武器的话，最大的问题还是出在刷怪机制上，虽然武器强度并不是应付不了高难的逆天堆怪，但打起来非常累，一把玩下来带来的疲惫远超快乐，制作组并没有找到平衡点。这也算是少有的能给我玩到感觉burnout的共斗游戏，现在每次开游戏玩个一两把就顶不住了。就哪怕重口如暗潮，虽然玩起来也很累但他至少会奖励你同等的砍瓜切菜的爽快感。
+
+*****
+
+####  gzGaryC  
+##### 1413#       发表于 2024-3-7 19:22
+
+<img src="https://img.saraba1st.com/forum/202403/07/192254c59fl7yf7yy4ffp9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 19:22 上传
+

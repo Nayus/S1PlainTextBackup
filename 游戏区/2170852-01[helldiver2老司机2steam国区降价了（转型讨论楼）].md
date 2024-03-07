@@ -13468,3 +13468,25 @@ https://tieba.baidu.com/p/8923625372
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 1348#       发表于 2024-3-7 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173171&amp;ptid=2170852" target="_blank">bladethunder 发表于 2024-3-7 08:29</a>
+
+草，我这边有个网友说昨天他测试现在磁轨不安全模式打泰坦/机器人坦克，喷吐发光/主炮射击蓄力瞬间击中头部 ...</blockquote>
+哦，原来没伤害是bug，反转了
+
+
+*****
+
+####  赤井稻妻  
+##### 1349#       发表于 2024-3-7 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64172832&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-7 07:08</a>
+
+激光炮其实能用，只要不被装甲阻挡伤害还是很足的，这玩意非常克制武斗虫系列（目标大），吐酸虫打头也很快 ...</blockquote>
+单喷打隐型虫有点麻烦的是他会用爪子挡住脸，得看准时机打头
+

@@ -13767,3 +13767,25 @@ https://tieba.baidu.com/p/8923625372
 我总觉得是火焰溅射到地面上，然后地面点燃给虫子肢体上点燃dot，dot的伤害烧死的，持续喷火只是持续上dot
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">因为不喷腿直接喷坦克虫的头或者背他根本没反应，也没有点燃效果，那意思是喷火器的伤害其实根本不能穿甲或者说直击伤害并不高，全靠dot了
 
+
+*****
+
+####  赤井稻妻  
+##### 1372#       发表于 2024-3-7 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174482&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-7 10:19</a>
+
+我总觉得是火焰溅射到地面上，然后地面点燃给虫子肢体上点燃dot，dot的伤害烧死的，持续喷火只是持续上do ...</blockquote>
+我回去试一下不喷地面直接喷虫族指挥官的头效率有没有变化，不过喷头或者喷背都是有点燃效果的吧，只是这个点燃伤害在上个版本几乎没有，我感觉可能只有腿能受到喷火器的伤害，也许是牛的腿部有哪个判定点没有被包在护甲内，喷火器能烧得到但是传统枪械打不到，之前不是有很多视频说可以用机炮打牛腿吗
+
+
+*****
+
+####  eno_emos  
+##### 1373#       发表于 2024-3-7 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174617&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 10:29</a>
+
+我回去试一下不喷地面直接喷虫族指挥官的头效率有没有变化，不过喷头或者喷背都是有点燃效果的吧，只是这 ...</blockquote>
+我试过从上方往下只喷背，没有效果，喷了白喷<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

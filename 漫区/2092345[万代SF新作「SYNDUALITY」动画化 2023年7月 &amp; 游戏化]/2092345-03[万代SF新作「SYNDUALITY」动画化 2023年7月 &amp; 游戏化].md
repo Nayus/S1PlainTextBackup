@@ -4928,3 +4928,11 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 怎么FRS和景品都没谢尔的事啊 一口气把新的几集补了还挺感动想消费一下来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  765事务所  
+##### 4280#       发表于 2024-3-7 10:26
+
+第一种可能，身体都被诺艾尔用了，还出什么手办<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

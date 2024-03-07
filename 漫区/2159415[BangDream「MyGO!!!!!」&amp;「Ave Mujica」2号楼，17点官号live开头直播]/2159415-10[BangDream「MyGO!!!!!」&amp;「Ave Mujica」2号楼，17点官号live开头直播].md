@@ -7601,3 +7601,28 @@ R箱活这新剧情既视感冒出来了，你们陪伴系幼驯染都要这么�
 啊？mujica的五首确定是角色曲了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不確定，只是可能性很大
 
+
+*****
+
+####  爱丁堡official  
+##### 13986#       发表于 2024-3-7 12:19
+
+所以什么时候发新歌，mujica维持热度就靠发歌了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  skives  
+##### 13987#       发表于 2024-3-7 12:25
+
+赶紧把新曲绘端上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 13988#       发表于 2024-3-7 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">全去的那是富爷中的富爷
+

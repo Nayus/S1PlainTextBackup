@@ -10631,3 +10631,33 @@ pl不是最传统的？
 
 2024-3-7 15:15 上传
 
+
+*****
+
+####  cckuku  
+##### 2566#       发表于 2024-3-7 15:24
+
+ 本帖最后由 cckuku 于 2024-3-7 15:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64177916&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-7 14:44</a>
+
+ 咲季的马甲线 加上前运动员的设定 快进到一定是那女人，把p桑打至跪地。 </blockquote>
+不觉得手画的很惊悚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ps:这次新作这么早就找a店合作，是不是说明要开始谷子商法了？我以前玩百的时候最奇怪的事情就是sc谷子框框出，百只找得到周年庆谷。
+
+
+*****
+
+####  rgauss  
+##### 2567#       发表于 2024-3-7 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64178427&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-3-7 15:24</a>
+不觉得手画的很惊悚吗
+
+ps:这次新作这么早就找a店合作，是不是说明要开始谷子商法了？我以前玩百的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可奈老婆手长点无所谓
+
+其实还好吧 这手
+
+谷子出那么多又没用  最多出的肯定是傻逼吧唧（我是真的不想买这个） 我基本都只买cd的
+

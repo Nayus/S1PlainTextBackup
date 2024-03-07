@@ -14457,3 +14457,36 @@ https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldive
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  萧闻蒲  
+##### 1432#       发表于 2024-3-7 22:48
+
+又有bug了，救援下不来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Launce  
+##### 1433#       发表于 2024-3-7 22:50
+
+《HELLDIVERS™》的绝地潜兵将在战场上享受到遥遥领先的优势！
+
+大力打击自由之敌的下一场战争即将打响，利用我们的全新战争债券“遥遥领先”做好迎战准备！
+
+“遥遥领先”拥有强劲的威力，将为你提供增强自由武装配置，解锁超未来风盔甲、发射雷电的枪械、超有型披肩和传奇表情。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“遥遥领先”
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1434#       发表于 2024-3-7 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正有阴兵 打不打都一样 
+
+按着你头跟导演部的剧本走
+

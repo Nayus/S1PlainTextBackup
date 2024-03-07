@@ -5972,3 +5972,13 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 又又又到最后剩下没康的鲑坝了，可惜不是周末啊，而且本周周末大润还没空打
 
+
+*****
+
+####  oi99o  
+##### 3587#       发表于 2024-3-7 15:23
+
+草，双枪活动赛给个度假区图是认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

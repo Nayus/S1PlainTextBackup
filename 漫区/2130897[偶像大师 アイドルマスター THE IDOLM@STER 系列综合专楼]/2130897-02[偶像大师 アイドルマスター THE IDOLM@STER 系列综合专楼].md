@@ -10597,3 +10597,37 @@ pl不是最传统的？
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">咲季的马甲线 加上前运动员的设定
 快进到一定是那女人，把p桑打至跪地。
 
+
+*****
+
+####  kirakira~  
+##### 2565#       发表于 2024-3-7 15:15
+
+<img src="https://img.saraba1st.com/forum/202403/07/151320zz1fzgzl8k1ollou.jpg" referrerpolicy="no-referrer">
+
+<strong>GIDCZmdb0AAzw8A.jpg</strong> (84.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 15:13 上传
+
+草，这个广告里面的卡图居然比pv里的更全
+
+感觉证明了这里面出现的没脸角色就是里苍吧（可以看到标志性的蓝色领巾）
+
+<img src="https://img.saraba1st.com/forum/202403/07/151430nhgj5o8cogyegm5g.jpg" referrerpolicy="no-referrer">
+
+<strong>mvQ0-anaiZdT3cSsg-ft.jpg</strong> (80.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/151504ozcjnzmuninzqmwc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 15:15 上传
+

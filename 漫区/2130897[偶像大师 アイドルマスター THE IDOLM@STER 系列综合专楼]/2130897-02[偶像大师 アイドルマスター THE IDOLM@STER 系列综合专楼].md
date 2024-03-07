@@ -10757,3 +10757,15 @@ ps:这次新作这么早就找a店合作，是不是说明要开始谷子商法�
 为什么黄c没有被投广告 因为她没钱</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太严谨了
 
+
+*****
+
+####  暗黑能乐  
+##### 2578#       发表于 2024-3-7 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64178995&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-7 16:07</a>
+确实是妹妹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个我懂，我的妹妹不可能那么可爱
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

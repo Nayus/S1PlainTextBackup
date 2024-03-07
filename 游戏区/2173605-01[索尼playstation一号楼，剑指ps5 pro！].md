@@ -1476,3 +1476,13 @@ The announcements won't stop. Starfield will be announced for Playstation 5 with
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对马岛好就好在在你对他这套快腻了的时候就打完了，剧情演出音乐美术也挺到位，当时还有奇迹2做衬托
 不过后续导剪版和ps5版的升级有点吃相难看了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贝恩德塔  
+##### 165#         楼主| 发表于 2024-3-7 13:11
+
+ 本帖最后由 贝恩德塔 于 2024-3-7 13:13 编辑 
+
+其实还有ps5次世代版ssssssssd和触觉反馈体验很好的缘故，就算玩了ps4版也完全值得用ps5版重玩一遍，不过不知道pc端能不能实现那个sssssssssssd的效果
+

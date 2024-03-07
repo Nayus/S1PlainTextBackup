@@ -5033,3 +5033,16 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 ----发送自 [Sony XQ-CT44,Android 13](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  aptx8285144  
+##### 4289#       发表于 2024-3-7 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180305&amp;ptid=2092345" target="_blank">novyMS 发表于 2024-3-7 17:42</a>
+
+【「SYNDUALITY Noir」第22話「Gravity coffin」WEB予告-哔哩哔哩】 https://b23.tv/BnPdZZM
+
+22话预告来了 ...</blockquote>
+彼方的那个小镇，那个打过大风暴二次袭击的机体们是不是被动员起来了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我好像听到全部漂流者的字样，而且有一张截图的机体不太像面具男的组织所在的感觉
+

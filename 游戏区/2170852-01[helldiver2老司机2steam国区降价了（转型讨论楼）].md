@@ -14295,3 +14295,12 @@ Napalm Airstrike : 45s
 https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldivers-2/</blockquote>
 真有脸说啊
 
+
+*****
+
+####  smdzh2  
+##### 1416#       发表于 2024-3-7 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64181037&amp;ptid=2170852" target="_blank">gzGaryC 发表于 2024-3-7 20:22</a></blockquote>
+下面是400个踩的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

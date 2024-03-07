@@ -5288,3 +5288,13 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 <img src="https://p.sda1.dev/16/15a1863ae53e1850e819d70a3e4be888/806a5a04d7e204b1fe632a3bfe433bfa.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/06626a36b73e1f32b6bf6804130f1fad/cf6185b8466339643c371452328ec0ba.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  砂糖续香香  
+##### 4294#       发表于 2024-3-8 00:55
+
+一集半打完，半集见神许愿打赢复活赛，最后一集开双人live，然后三个贤士和艾女士同时怀孕坐板凳
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这是我夏尔最后的复活币了
+

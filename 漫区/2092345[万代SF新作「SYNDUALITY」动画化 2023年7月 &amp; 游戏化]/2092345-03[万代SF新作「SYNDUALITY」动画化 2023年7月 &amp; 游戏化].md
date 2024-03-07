@@ -4952,3 +4952,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 单从模型上看确实反常，谢尔这么优秀的人设一个模型不出，不符合万代的作风
 
+
+*****
+
+####  aptx8285144  
+##### 4283#       发表于 2024-3-7 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174740&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-3-7 10:37</a>
+
+包饺子雪儿诺娃米斯缇都要的话可以把分打高</blockquote>
+就算“都要”，彼方和米斯缇之间感情没啥多的描写，这个都要肯定远不如艾女士<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

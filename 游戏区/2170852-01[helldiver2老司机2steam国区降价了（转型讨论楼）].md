@@ -13977,3 +13977,14 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  拔丝光头  
+##### 1390#       发表于 2024-3-7 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64176614&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 12:56</a>
+
+只是单纯演示喷火器烧牛，为了防止有人说这头牛已经残血了，所以把他从刷新到击杀都截出来了而已，之前我 ...</blockquote>
+首先喷火器秒坦克虫是因为护甲失效的BUG，不然不会出现烧中甲的吐酸虫比烧重甲的坦克虫慢的问题。第二我觉得即使加强了伤害喷火现在也还是一个比较弱的支援武器。它现在打坦克虫是很快，但它只能打坦克虫。射程短自己机动还差弹药也不够
+

@@ -13913,3 +13913,26 @@ https://tieba.baidu.com/p/8923625372
 所有难度坦克虫血量都是一样的，不过n3任务那个虫子血多一点</blockquote>
 血是一样，问题是你在高难能找到落单的坦克虫？更不用说这三秒死还是利用了护甲失效的bug
 
+
+*****
+
+####  赤井稻妻  
+##### 1385#       发表于 2024-3-7 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64175400&amp;ptid=2170852" target="_blank">真红眼教授 发表于 2024-3-7 11:26</a>
+
+中甲那个顶盾虫血条特别厚把，牛是腿血少，你可以试试改打牛的屁股就会发现特别难杀 ...</blockquote>
+顶盾虫血特别厚用破裂者几下打身体也就死了，但一般清理虫潮的时候都是虫群指挥官烧死了顶盾虫还活着
+
+*****
+
+####  赤井稻妻  
+##### 1386#       发表于 2024-3-7 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64176107&amp;ptid=2170852" target="_blank">拔丝光头 发表于 2024-3-7 12:16</a>
+
+血是一样，问题是你在高难能找到落单的坦克虫？更不用说这三秒死还是利用了护甲失效的bug ...</blockquote>
+只是为了方便测试剔除变量而已，实战时候一般是连小虫子带坦克一起烧，很难计算击杀时间
+
+【绝地战兵2新的反强袭虫武器】 [https://www.bilibili.com/video/BV1wj421U7aW](https://www.bilibili.com/video/BV1wj421U7aW)
+

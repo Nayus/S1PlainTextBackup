@@ -169,3 +169,14 @@ DLC和现在你玩的steam版一样是个重置版
 打到新章了，海蛇洞那里穿越回过去都已经是修女神父被控之后了，也就是说他俩只能走be吗？ ...</blockquote>
 新章蛇神被誓戒吃了，修女和光头的教堂直接放阿斯特莱亚本人的雕像了。
 
+
+*****
+
+####  christiny  
+##### 4081#       发表于 2024-3-7 11:07
+
+dlc竞技场，反而被爱神卡了一阵。本体里炸弹可见，dlc炸点变成隐形的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+其他的都没啥难度一次过。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

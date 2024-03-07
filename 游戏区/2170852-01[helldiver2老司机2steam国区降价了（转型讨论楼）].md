@@ -14589,3 +14589,16 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 
 500KG钻到肚子底下爆炸没炸死泰坦，甚至毒囊都没破，它反手一个喷涂给我秒了。不知道箭头这个更新又暗改了什么，反正这傻逼游戏已经没法玩了。
 
+
+*****
+
+####  tobelovedwow  
+##### 1446#       发表于 2024-3-8 03:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180737&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-7 18:53</a>
+
+看到有人解包出一个铝热手雷，可以两发一个坦克虫
+
+—— 来自 S1Fun</blockquote>
+这样太厉害了，我觉得没必要加了，反正按制作组思路强了就得削<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

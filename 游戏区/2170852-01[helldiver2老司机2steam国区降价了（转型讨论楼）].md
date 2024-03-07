@@ -13902,3 +13902,14 @@ https://tieba.baidu.com/p/8923625372
 没经过任何测试的补丁+发售后死扛不加服务器容量，不是一直犟到现在吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">还是喷的少了，联机服务器和跨平台现在被喷完之后倒是都蛮正常了
 
+
+*****
+
+####  拔丝光头  
+##### 1384#       发表于 2024-3-7 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64172161&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 01:07</a>
+
+所有难度坦克虫血量都是一样的，不过n3任务那个虫子血多一点</blockquote>
+血是一样，问题是你在高难能找到落单的坦克虫？更不用说这三秒死还是利用了护甲失效的bug
+

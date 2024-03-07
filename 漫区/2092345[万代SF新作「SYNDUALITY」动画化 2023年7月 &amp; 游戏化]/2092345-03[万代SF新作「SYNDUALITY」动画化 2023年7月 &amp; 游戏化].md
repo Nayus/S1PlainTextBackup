@@ -5298,3 +5298,14 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这是我夏尔最后的复活币了
 
+
+*****
+
+####  Piano-Forest  
+##### 4295#         楼主| 发表于 2024-3-8 01:51
+
+第20話「Their narratives」原画
+<img src="https://p.sda1.dev/16/7dfa0c4547c448996a21ac90cb686ed7/20240308_015039.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/2557dbf0a5d27bbb9372c74899aaaad6/20240308_015041.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/bc06fc42b8fe2d6f6e3003c78963c978/20240308_015044.jpg" referrerpolicy="no-referrer">
+

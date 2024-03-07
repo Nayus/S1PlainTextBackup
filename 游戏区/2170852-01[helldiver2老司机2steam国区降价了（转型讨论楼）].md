@@ -13988,3 +13988,35 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 只是单纯演示喷火器烧牛，为了防止有人说这头牛已经残血了，所以把他从刷新到击杀都截出来了而已，之前我 ...</blockquote>
 首先喷火器秒坦克虫是因为护甲失效的BUG，不然不会出现烧中甲的吐酸虫比烧重甲的坦克虫慢的问题。第二我觉得即使加强了伤害喷火现在也还是一个比较弱的支援武器。它现在打坦克虫是很快，但它只能打坦克虫。射程短自己机动还差弹药也不够
 
+
+*****
+
+####  赤井稻妻  
+##### 1391#       发表于 2024-3-7 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64176840&amp;ptid=2170852" target="_blank">拔丝光头 发表于 2024-3-7 13:14</a>
+
+首先喷火器秒坦克虫是因为护甲失效的BUG，不然不会出现烧中甲的吐酸虫比烧重甲的坦克虫慢的问题。第二我 ...</blockquote>
+吐酸虫并不是烧得慢，而是吐酸虫的射程和喷火器差不多，和吐酸虫对射有风险，第二是关于喷火器为什么能烧重甲的问题我也很困惑，到底是不是bug我还无法确认，但牛就算不做冲锋动作只是站在那发呆，喷火器也能用同样的速度击杀牛
+
+基本上打虫子这几种主流的武器我都多少用过，不管电枪也好喷火器也好磁轨枪也好榴弹炮也好都有弱点，选适合的武器就好，只是现在磁轨枪被削弱了，杀牛的工作可以让喷火器来承担，上个版本可以说喷火器是电枪的下位替代，这个版本可以带一个喷火器专门杀牛，磁轨枪就专门打泰坦
+
+
+*****
+
+####  calcium20  
+##### 1392#       发表于 2024-3-7 13:31
+
+削弱后磁轨枪能不能在不安全模式下一枪秒火箭/重装碾压者了？
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Benighted  
+##### 1393#       发表于 2024-3-7 13:35
+
+今天一局最后撤离前好不容易孤身把队友丢的30多个样本捡回来带上飞机，结果结算显示我们三个人都没成功撤离，白跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1049,3 +1049,44 @@ v友制作，新鲜出炉的Sweet Baby Inc眼中的“油腻师姐”</blockquot
 
 zq联盟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  毛利提督  
+##### 83#       发表于 2024-3-7 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64153034&amp;ptid=2170559" target="_blank">ardito 发表于 2024-3-5 13:48</a>
+
+zq联盟</blockquote>
+乐子：ZQ for Zoe Quinn<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/07/173218yotuxd2sg7xnx55t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>biQ0-1vpiZuT3cSu0-1ck.jpeg</strong> (171.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 17:32 上传
+
+因为Kotaku站出来写文章[https://kotaku.com/sweet-baby-inc-consulting-games-alan-wake-2-dei-1851312428](https://bbs.saraba1st.com/2b/链接)给Sweet Baby Inc.站台
+
+然后就有人开扒Kotaku和Sweet Baby Inc.
+
+结论是Sweet Baby Inc.和当年玩家门事件的核心人物Zoe Quinn以及Anita Sarkessian都有关系，Kotaku也是当年玩家门的参与者
+
+*****
+
+####  毛利提督  
+##### 84#       发表于 2024-3-7 17:44
+
+ 本帖最后由 毛利提督 于 2024-3-7 17:46 编辑 
+
+风怒
+
+*****
+
+####  毛利提督  
+##### 85#       发表于 2024-3-7 17:44
+
+风怒
+

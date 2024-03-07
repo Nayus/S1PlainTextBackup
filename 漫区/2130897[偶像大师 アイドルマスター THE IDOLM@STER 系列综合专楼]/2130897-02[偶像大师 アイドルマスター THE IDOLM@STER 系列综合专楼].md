@@ -10769,3 +10769,22 @@ ps:这次新作这么早就找a店合作，是不是说明要开始谷子商法�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2579#       发表于 2024-3-7 17:42
+
+所以sc动画第23集能让鸽子哭一个吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  輝く熾天使  
+##### 2580#       发表于 2024-3-7 17:43
+
+被N组气哭吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2243A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -4963,3 +4963,15 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 包饺子雪儿诺娃米斯缇都要的话可以把分打高</blockquote>
 就算“都要”，彼方和米斯缇之间感情没啥多的描写，这个都要肯定远不如艾女士<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyMS  
+##### 4284#       发表于 2024-3-7 17:42
+
+【「SYNDUALITY Noir」第22話「Gravity coffin」WEB予告-哔哩哔哩】 [https://b23.tv/BnPdZZM](https://b23.tv/BnPdZZM)
+
+22话预告来了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -4936,3 +4936,11 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 第一种可能，身体都被诺艾尔用了，还出什么手办<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 4281#       发表于 2024-3-7 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">包饺子雪儿诺娃米斯缇都要的话可以把分打高
+

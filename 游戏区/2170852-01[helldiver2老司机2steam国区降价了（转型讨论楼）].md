@@ -14498,3 +14498,13 @@ https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldive
 
 和哑铃人摔跤这种任务还是算了，各位加油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 1436#       发表于 2024-3-7 23:37
+
+居然有给电弧抗性的甲，有点乐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

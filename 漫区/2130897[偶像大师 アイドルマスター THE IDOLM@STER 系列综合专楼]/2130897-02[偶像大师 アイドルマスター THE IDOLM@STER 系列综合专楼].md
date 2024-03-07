@@ -10468,3 +10468,49 @@ mvQ0-c28aZfT3cSsg-g0.jpg
 
 其实我对白不白合无所谓 只要别辱骂pl就行 
 
+
+*****
+
+####  Anatoly  
+##### 2552#       发表于 2024-3-7 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64175545&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-3-7 11:35</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么看月村的配色似乎比老师更像事务员一点
+
+
+*****
+
+####  ViviR  
+##### 2553#       发表于 2024-3-7 11:43
+
+<img src="https://img.saraba1st.com/forum/202403/07/114019d4x6c224i4uux2yi.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8058.png</strong> (148.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-7 11:40 上传
+
+为了性能牺牲多人mv什么的不要啊。然后就是pv里的曲子版本难道已经是各方面拉到最满的版本了么，感觉唱功有点弱啊，尤其是红唱giga的歌有些地方的听感就算上电也救不回来
+
+*****
+
+####  rgauss  
+##### 2554#       发表于 2024-3-7 11:43
+
+ 本帖最后由 rgauss 于 2024-3-7 11:47 编辑 
+
+红的滑舌不太行
+
+最终版本肯定会百万调音师的
+
+什么时候出cd才是最重要的
+
+*****
+
+####  cckuku  
+##### 2555#       发表于 2024-3-7 11:47
+
+不可能吧？谁会在演示pv放最终版本啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

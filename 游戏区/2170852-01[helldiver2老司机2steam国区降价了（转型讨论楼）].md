@@ -13891,3 +13891,14 @@ https://tieba.baidu.com/p/8923625372
 另外 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没经过任何测试的补丁+发售后死扛不加服务器容量，不是一直犟到现在吗
 
+
+*****
+
+####  LrGsite  
+##### 1383#       发表于 2024-3-7 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64175469&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-7 11:31</a>
+
+没经过任何测试的补丁+发售后死扛不加服务器容量，不是一直犟到现在吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">还是喷的少了，联机服务器和跨平台现在被喷完之后倒是都蛮正常了
+

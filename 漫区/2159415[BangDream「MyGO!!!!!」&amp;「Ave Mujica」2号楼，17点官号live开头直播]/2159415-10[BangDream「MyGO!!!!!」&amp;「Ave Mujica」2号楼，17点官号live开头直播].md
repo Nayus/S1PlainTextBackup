@@ -7786,3 +7786,13 @@ https://twitter.com/lvliu1/status/1765707465507897633?t=fiBsldSKpIJ9oEb3RZMZhw&a
 
 手游7周年，从MyGO开始的倒计时
 
+
+*****
+
+####  PDQ4  
+##### 14003#       发表于 2024-3-8 04:17
+
+角色曲也可以是世界观五个人偶的角色曲，比如1st里就透露了amoris的一部分过去。纯人偶角色曲也方便造假药，等鸡动画播了再回来翻看对照也很有趣。
+
+世界观里其他四个人到底怎么来到loft moon的也没解释。现在只有Doloris被劝诱堕落觉醒的过程相对完整。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

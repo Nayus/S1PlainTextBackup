@@ -13431,3 +13431,19 @@ https://tieba.baidu.com/p/8923625372
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Gmlazy  
+##### 1344#       发表于 2024-3-7 08:09
+
+游戏内容不够了怎么办？
+把玩家剩的那条腿打断，让他慢点走。
+
+*****
+
+####  wthall  
+##### 1345#       发表于 2024-3-7 08:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">昨天第一次体会到无法撤离的bug，4个人对着冒烟的飞机上蹿下跳，最后挣扎到最后5分钟所有人决定还是丢炸弹自尽全死了得了。 唯一的好消息是任务还是算完成的。但是这体验太恶心了，直接不想玩了
+

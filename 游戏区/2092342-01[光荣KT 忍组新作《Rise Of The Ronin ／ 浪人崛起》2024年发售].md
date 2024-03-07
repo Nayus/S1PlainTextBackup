@@ -1597,3 +1597,13 @@ https://www.bilibili.com/video/BV1xF4m1L7uu/
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  zqqwe  
+##### 824#       发表于 2024-3-8 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64183594&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-8 00:07</a>
+应该是自捏两个人物自己选一个操控吧</blockquote>
+如果是像异界锁链那样设计就还好，选女主的话男主成为队友
+

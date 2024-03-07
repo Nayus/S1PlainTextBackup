@@ -10569,3 +10569,22 @@ mvQ0-c28aZfT3cSsg-g0.jpg
 
 反正感觉到时候开服大概率会有优化问题
 
+
+*****
+
+####  游蜓  
+##### 2562#       发表于 2024-3-7 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64175458&amp;ptid=2130897" target="_blank">Kreis 发表于 2024-3-7 11:30</a>
+
+恋爱禁止但可以同事谈恋爱，im@s百合有传统的，不如说是闪引了些离谱pl人</blockquote>
+pl不是最传统的？
+
+
+*****
+
+####  Seeley  
+##### 2563#       发表于 2024-3-7 14:36
+
+别吧，还要引入豚厨大战跟二游麻辣大战，那真没救了，求求别贷款吃○了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

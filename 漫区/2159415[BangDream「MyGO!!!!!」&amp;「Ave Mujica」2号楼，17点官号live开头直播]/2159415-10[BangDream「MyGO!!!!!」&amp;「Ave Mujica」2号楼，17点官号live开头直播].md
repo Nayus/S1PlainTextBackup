@@ -7796,3 +7796,13 @@ https://twitter.com/lvliu1/status/1765707465507897633?t=fiBsldSKpIJ9oEb3RZMZhw&a
 
 世界观里其他四个人到底怎么来到loft moon的也没解释。现在只有Doloris被劝诱堕落觉醒的过程相对完整。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14004#       发表于 2024-3-8 04:35
+
+首先是祥子哦不对Ob，她是被遗忘在这个月亮/建筑物里面的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

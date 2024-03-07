@@ -10237,3 +10237,63 @@ F$L4[S(8@96IG5}2H01I09H.jpg
 
 金鱼歌织当年都挨骂了，学马还搞这一套
 
+
+*****
+
+####  rgauss  
+##### 2531#       发表于 2024-3-7 09:35
+
+昨天看到个笑话
+为什么黄c没有被投广告 因为她没钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 2532#       发表于 2024-3-7 09:37
+
+黄c换人了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+IMG_2992.jpeg
+(324.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 09:37 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/093708qkfcm5zcffkofaft.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kirakira~  
+##### 2533#       发表于 2024-3-7 09:38
+
+追加：刚才再仔细看了一下角色pv，想到了一个奇怪的论证角度
+
+先说一下其他东西，仔细看颜色的话，对比起来苍的前成员比起毛球实在是蓝太多了，那个领结相比起毛球偏绿或青一点的颜色来看的话可以说是相当正统的蓝。同时黄卡面左上这个应该就是学生会长的live(仔细看的话可以看到领口上有非常类似一般日式学院学生会长的金链装饰)，而她的支持者挥的荧光棒也是非常纯正的黄。
+
+接下来是重头戏(不那么正经的东西)
+
+仔细对比一下，两人的胸！
+
+这次的苍和黄一开始就被人吐槽说身材违背祖制，虽然说也有灰灰这个特例在，但是如果仔细观察卡面的话就能发现，这两个可能是里之御三家的角色的胸啊，它就符合传统啊！跟这代苍对比起来，里苍完全是一马平川，而里黄则是即使隔着衬衫也能很清楚感觉到的起伏！
+
+搞不好这次是异色对打正统也说不定(
+
+mvQ0-anaiZdT3cSsg-ft.jpg
+(80.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 09:38 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/093829dvpib11gw8r7yep8.jpg" referrerpolicy="no-referrer">
+
+mvQ0-c28aZfT3cSsg-g0.jpg
+(88.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 09:38 上传
+
+<img src="https://img.saraba1st.com/forum/202403/07/093829zmjzcmh1imz0klxm.jpg" referrerpolicy="no-referrer">
+

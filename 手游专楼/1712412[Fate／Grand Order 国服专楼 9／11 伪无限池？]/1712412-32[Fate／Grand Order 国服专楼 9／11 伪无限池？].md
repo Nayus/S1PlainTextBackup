@@ -74,3 +74,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀狐那个正面攻略过了反而拿不到奖励真的让人懵逼
 
+
+*****
+
+####  失落之翼  
+##### 46215#       发表于 2024-3-7 09:42
+
+读心go，想抽点白情礼装结果狂娜2宝了，总是初见池抽不到复刻才抽到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但是想想提妈可能就抽不到了...<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

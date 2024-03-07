@@ -14242,3 +14242,56 @@ A game for everyone is a game for no one.<img src="https://static.saraba1st.com/
 
 2024-3-7 19:22 上传
 
+
+*****
+
+####  Launce  
+##### 1414#       发表于 2024-3-7 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180897&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-7 19:08</a>
+[https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldivers-2/](https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldivers-2/)</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说别的，你把CD改成1代，我就信依靠策略了
+
+Stratagems
+
+First off, every stratagem has a set cooldown and/or limited uses.
+
+- Orbital Railcannon Strike : 210s
+
+- Orbital Laser : 300s (can damage heavy armor. 3 uses)
+
+- Orbital EMS Strike : 75s
+
+- Orbital 120mm HE Barrage : 240s
+
+- Anti-Personnel Mines : 180s (unlimited uses, bigger field/more mines)
+
+- Airstrike : 8s, 3 uses. 120s rearm
+
+- Napalm Airstrike : 8s, 3 uses. 120s rearm
+
+While we are at it, lets compare those cooldowns to Helldivers 1
+
+Orbital Railcannon Strike : 60s
+
+Orbital Laser : 180s (can't damage heavy armor. unlimited uses)
+
+Orbital EMS Strike : 45s
+
+Thunderer Barrage : 180s
+
+Anti-Personnel Mines : 45s (10 uses, upgrades to Anti-Tank mines)
+
+Airstrike : 90s
+
+Napalm Airstrike : 45s
+
+*****
+
+####  leafS  
+##### 1415#       发表于 2024-3-7 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180897&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-7 19:08</a>
+https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldivers-2/</blockquote>
+真有脸说啊
+

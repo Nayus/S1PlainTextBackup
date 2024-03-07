@@ -7626,3 +7626,11 @@ R箱活这新剧情既视感冒出来了，你们陪伴系幼驯染都要这么�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">全去的那是富爷中的富爷
 
+
+*****
+
+####  NODY  
+##### 13989#       发表于 2024-3-7 12:36
+
+对上海本地人来说这几个场子全跑一趟也不算太贵吧，不像我这种偏远外地人来回一趟上海的钱已经比这几次live和见面会的票价加起来都贵了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（结果还没抢到ras，省下来的钱只能去看看线上了）
+

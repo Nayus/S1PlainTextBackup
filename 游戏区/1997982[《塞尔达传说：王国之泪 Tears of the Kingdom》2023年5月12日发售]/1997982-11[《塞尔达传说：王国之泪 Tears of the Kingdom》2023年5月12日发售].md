@@ -81,3 +81,23 @@
 
 王泪的战斗吧我觉得没太有意思，但是每次红月去刷一圈怪的时候又挺开心的
 
+
+*****
+
+####  冷泉夜月  
+##### 15667#       发表于 2024-3-7 15:48
+
+ 本帖最后由 冷泉夜月 于 2024-3-7 15:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64178385&amp;ptid=1997982" target="_blank">nagitoY 发表于 2024-03-07 15:21:23</a>
+
+前段时间又玩了下，有几个想法。
+
+王泪的战斗有点无聊，前期打不出什么元素反应，耐力槽太短蓄力攻击也不好 ...</blockquote>
+战斗花头很多的，比如用混乱花让小怪内斗，或者烟雾蘑菇暗杀流一刀一个，闪耀果实秒杀骷髅+致盲缴械，弓箭配怪物眼珠自动瞄准爆头也很方便，在水边还可以冻起来扇风推下水秒杀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+依盖队的话盾反林克时间都可以打，多遇几次就熟了，还可以直接扔香蕉魅惑他们<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+网上也有不少用倒转乾坤玩出花来的，就是操作起来门槛高点<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

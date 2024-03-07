@@ -1540,3 +1540,12 @@ preview是什么东西</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">很早的访谈里就说了没有试玩了啊
 
+
+*****
+
+####  Piano-Forest  
+##### 818#         楼主| 发表于 2024-3-7 23:13
+
+幕后第三弹「The Cause」：
+[https://youtu.be/j9paixUSU6M](https://youtu.be/j9paixUSU6M)
+

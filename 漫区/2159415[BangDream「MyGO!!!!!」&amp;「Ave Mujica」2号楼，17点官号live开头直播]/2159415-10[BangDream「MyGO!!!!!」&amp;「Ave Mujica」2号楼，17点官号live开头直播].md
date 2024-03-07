@@ -7770,3 +7770,19 @@ https://twitter.com/lvliu1/status/1765707465507897633?t=fiBsldSKpIJ9oEb3RZMZhw&a
 
 要是为了赶着出藏剧情导致角色歌不能塞角色核心设定和cp糖，那就本末倒置了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 14002#         楼主| 发表于 2024-3-8 01:06
+
+<img src="https://img.saraba1st.com/forum/202403/08/010511re1s82u8dnqx8vdk.jpg" referrerpolicy="no-referrer">
+
+<strong>倒计时MyGO.jpg</strong> (567.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-8 01:05 上传
+
+手游7周年，从MyGO开始的倒计时
+

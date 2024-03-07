@@ -14379,3 +14379,35 @@ https://www.arrowheadgamestudios.com/2024/03/balancing-the-firepower-in-helldive
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太幽默了，家人们
 
+
+*****
+
+####  LrGsite  
+##### 1425#       发表于 2024-3-7 22:02
+
+<img src="https://img.saraba1st.com/forum/202403/07/220222sfapbuq31i0a9zo9.png" referrerpolicy="no-referrer">
+
+<strong>WZ2~0K3{SVDJRHQJNZEQ7`I.png</strong> (159.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 22:02 上传
+
+*****
+
+####  runningch  
+##### 1426#       发表于 2024-3-7 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64182492&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-3-7 22:02</a></blockquote>
+之前谁说要去救工厂来着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  cloudcc  
+##### 1427#       发表于 2024-3-7 22:07
+
+这死命加难度干嘛，本来打底难度就是为了爽爽，结果越调越难，这跳虫简直了，一刻不停隔一个屏幕跳脸
+

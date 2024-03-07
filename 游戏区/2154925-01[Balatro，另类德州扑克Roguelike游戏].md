@@ -5529,3 +5529,19 @@ balatro已经在全平台售出了50万份拷贝。
 
 NS版搜啥关键字？我日服港服都没搜到
 
+
+*****
+
+####  Orangec3  
+##### 489#       发表于 2024-3-7 22:07
+
+成就bug了还是mac存档bug了 切回win打了把蓝注突然跳了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/07/220612jtmmcytdrfzmmt6d.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (8.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 22:06 上传
+

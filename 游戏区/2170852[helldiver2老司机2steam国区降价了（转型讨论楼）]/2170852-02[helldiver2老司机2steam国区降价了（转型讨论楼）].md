@@ -191,3 +191,15 @@ cod才卖多少
 
 现在这个刷怪频率改回去之前打高难机器人不当跑男玩不了一点，带飞鹰空袭，飞鹰烟雾，380跟蛋盾。还有不止一次跑在路上脸上凭空刷出来一堆怪
 
+
+*****
+
+####  Benighted  
+##### 1502#       发表于 2024-3-8 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64189253&amp;ptid=2170852" target="_blank">gzGaryC 发表于 2024-3-8 14:14</a>
+现在这个刷怪频率改回去之前打高难机器人不当跑男玩不了一点，带飞鹰空袭，飞鹰烟雾，380跟蛋盾。还有不止 ...</blockquote>
+凭空刷怪好像跟网络问题有关，有好几次都是队友卡着不动掉线后，本来没有人的据点突然刷怪出来
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

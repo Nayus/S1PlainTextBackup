@@ -1193,3 +1193,13 @@ ami：田村ゆかり
 
 人设顶，大牌CV也多，不知道质量如何
 
+
+*****
+
+####  LW☆  
+##### 101#       发表于 2024-3-9 07:07
+
+半截入土的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

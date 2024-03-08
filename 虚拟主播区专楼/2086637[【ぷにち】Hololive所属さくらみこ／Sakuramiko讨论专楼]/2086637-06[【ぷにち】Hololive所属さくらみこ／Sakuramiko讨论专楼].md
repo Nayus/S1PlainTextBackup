@@ -1752,3 +1752,21 @@ amazon watchparty机能结束了
 
 197万了，下个月发新歌的时候顺便冲个200万吧
 
+
+*****
+
+####  holoan  
+##### 8342#         楼主| 发表于 2024-3-8 16:54
+
+今晚这游戏据说是多人联机才比较有意思，holo也就486昨天第一个播的
+
+以及游戏作者
+
+<img src="https://img.saraba1st.com/forum/202403/08/165412ft72sgj112tryzvb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-8 16:54 上传
+

@@ -1997,3 +1997,16 @@ b公司彩虹</blockquote>
 
 —— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  格林卡罗尔  
+##### 72#       发表于 2024-3-8 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64193361&amp;ptid=2171972" target="_blank">云隐 发表于 2024-3-8 20:17</a>
+
+真白花音有专楼吗？
+
+—— 来自 Xiaomi 2211133C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+单人专楼好像有但没人，大概外面[巧克拉拉楼](https://bbs.saraba1st.com/2b/thread-1966145-1-1.html)讨论比较多，也讨论其他进口樱花妹的样子。顺便一提B综主要是维阿
+

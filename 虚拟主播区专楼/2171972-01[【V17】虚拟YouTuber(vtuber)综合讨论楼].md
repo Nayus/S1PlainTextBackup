@@ -1979,3 +1979,11 @@ b公司彩虹</blockquote>
 
 你就说股票涨没涨吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 70#       发表于 2024-3-8 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文件警告属于从ickr时代传下来的优良传统了，此处@人事部长きよの
+

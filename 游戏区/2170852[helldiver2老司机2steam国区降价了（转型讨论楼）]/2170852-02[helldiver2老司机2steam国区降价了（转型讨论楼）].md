@@ -316,3 +316,63 @@ cod才卖多少
 是，暗改了，只能炸2/3血左右，必须补刀</blockquote>
 箭头真踏马纯纯的出生啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1511#       发表于 2024-3-8 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64190746&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-8 16:20</a>
+
+箭头真踏马纯纯的出生啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给你看个更出生的
+
+最近通过大量测试发现，如果主机是在 PS5 上玩游戏，胆汁泰坦只需 2-3 次击中轨道枪即可死亡（也适用于其他辅助武器，你需要更少的伤害才能杀死它们），偶尔还会出现一击必杀的情况。而在 PC 上，使用 UNSAFE 模式的 Railgun 需要 8-10 次射击，这需要花费更多的精力和时间。
+
+所以不是什么网络BUG造成结算溢出，而是PS5就是血少
+
+*****
+
+####  FLZB  
+##### 1512#       发表于 2024-3-8 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191367&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 17:05</a>
+
+给你看个更出生的
+
+最近通过大量测试发现，如果主机是在 PS5 上玩游戏，胆汁泰坦只需 2-3 次击中轨 ...</blockquote>
+这个很早就发现了，只要进ps5主机就有可能触发，我没关跨平台联机的时候也碰到过，乱杀泰坦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 1513#       发表于 2024-3-8 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191440&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-8 17:10</a>
+
+这个很早就发现了，只要进ps5主机就有可能触发，我没关跨平台联机的时候也碰到过，乱杀泰坦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时再猜是跨平台网络问题，结果就是单纯血少
+
+Yaze hosts a PS5 Lobby
+
+1:22:50 - First Titan kill
+
+1:24:43 - Second Titan KIll, confirmation
+
+1:28:21 - Third kill by someone else where they confirm this tendency
+
+1:29:01 - KIll 4 - 1 shot
+
+1:29:48 - Kill 5
+
+1:31:58 - Kill 6 - 1 shot
+
+PC HOST
+
+2:11:45 - 10 shots
+
+2:36:26 - 15 shots
+
+2:43:20 - 10 shots
+

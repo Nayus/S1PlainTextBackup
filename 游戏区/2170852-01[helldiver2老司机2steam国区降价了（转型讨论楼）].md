@@ -14625,3 +14625,15 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 
 有人组队打打难度6-7还行，但是现在改过之后我们的常备枪械感觉更低了，完全依赖空袭。威力严重不足。
 
+
+*****
+
+####  风萧飒  
+##### 1449#       发表于 2024-3-8 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64184392&amp;ptid=2170852" target="_blank">tobelovedwow 发表于 2024-3-8 03:48</a>
+这样太厉害了，我觉得没必要加了，反正按制作组思路强了就得削</blockquote>
+好像也没那么离谱，看有人实测这手雷得烧一会
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

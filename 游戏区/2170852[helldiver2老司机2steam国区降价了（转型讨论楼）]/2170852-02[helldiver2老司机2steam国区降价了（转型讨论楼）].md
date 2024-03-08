@@ -528,3 +528,13 @@ Yaze hosts a PS5 Lobby
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说是在调查中，但是你这稳定触发感觉像个预期功能啊
 
+
+*****
+
+####  FLZB  
+##### 1527#       发表于 2024-3-8 21:05
+
+[https://tieba.baidu.com/p/8916964127](https://tieba.baidu.com/p/8916964127)
+
+算是500kg暗改实锤视频了吧，瑞典阴湿蠢驴是不是觉得这玩意难以精确命中所以玩家发现不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

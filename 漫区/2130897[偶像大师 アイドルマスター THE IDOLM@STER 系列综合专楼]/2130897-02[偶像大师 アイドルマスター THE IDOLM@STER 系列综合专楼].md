@@ -11062,3 +11062,22 @@ Hide&amp;Attack又是真人live吊打MV 这SCSP的制作团队水平真的不行
 追加：刚才再仔细看了一下角色pv，想到了一个奇怪的论证角度</blockquote>
 想起了怪猎的稀少种和原种地盘争夺（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 2607#       发表于 2024-3-8 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64193646&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-3-8 20:50</a>
+看来上次装甲核心6宣传效果不错，万南又给蓝毛新的机甲游戏宣传工作了，游戏主制作人都来了，还挺给面子[f: ...</blockquote>
+可惜游戏跳票太久 而且衍生品动画最近搞了个骚操作<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 2608#       发表于 2024-3-8 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64193735&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-8 21:00</a>
+可惜游戏跳票太久 而且衍生品动画最近搞了个骚操作</blockquote>
+我刚去搜相关信息才发现，原来去年先出了动画，这次是游戏3月28b测的宣传，应该快正式发售了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

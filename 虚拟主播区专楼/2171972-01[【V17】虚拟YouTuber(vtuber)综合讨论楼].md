@@ -1940,3 +1940,16 @@ b公司彩虹</blockquote>
 
 既然做都做完了，en能不能把selen的3D拿出来给大伙看一眼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sekai2014  
+##### 66#       发表于 2024-3-8 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64188519&amp;ptid=2171972" target="_blank">losstoY 发表于 2024-3-8 13:01</a>
+
+竟然还有这种事情联动的。这几家公司。。</blockquote>
+虹对她的指控是违反保密条约而不是诽谤中伤。
+
+说明v手里确实有彩虹社的黑料<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

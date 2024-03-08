@@ -1961,3 +1961,13 @@ b公司彩虹</blockquote>
 
 所以虹EN的3D早做完了为什么一直不披露啊，非要闹得主播和粉丝都不开心了才搞3D回？
 
+
+*****
+
+####  格林卡罗尔  
+##### 68#       发表于 2024-3-8 16:24
+
+这么说来arlive的时候就做完了的，压了有四百天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

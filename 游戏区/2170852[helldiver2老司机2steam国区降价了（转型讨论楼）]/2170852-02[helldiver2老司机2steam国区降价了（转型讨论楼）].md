@@ -295,3 +295,24 @@ cod才卖多少
 —— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 自己开个1级任务，还能顺便采点绿样本
 
+
+*****
+
+####  FLZB  
+##### 1509#       发表于 2024-3-8 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185047&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-8 08:35</a>
+
+500一直是这样的吧，插到身上才是必秒，除此之外炸不炸得死就看天意</blockquote>
+只要身体在500kg爆炸范围内还是很稳的，多半是昨天那个70mb更新又暗改了
+
+*****
+
+####  FLZB  
+##### 1510#       发表于 2024-3-8 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64186802&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 11:10</a>
+
+是，暗改了，只能炸2/3血左右，必须补刀</blockquote>
+箭头真踏马纯纯的出生啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

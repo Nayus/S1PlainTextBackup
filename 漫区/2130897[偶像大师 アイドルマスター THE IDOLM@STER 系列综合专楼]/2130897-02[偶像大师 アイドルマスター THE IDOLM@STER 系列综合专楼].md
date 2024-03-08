@@ -11025,3 +11025,11 @@ Hide&amp;Attack又是真人live吊打MV 这SCSP的制作团队水平真的不行
 
 三次赢二次也就SCSP独此一家了，笑死
 
+
+*****
+
+####  rexzhanghao  
+##### 2603#       发表于 2024-3-8 17:58
+
+还好还没做transcending the World，三年前看到的同人做的mv把我带进坑了
+

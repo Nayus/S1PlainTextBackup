@@ -545,3 +545,13 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 小麦在眼睛家 然后再也不想回家了
 
+
+*****
+
+####  maoyou  
+##### 1136#       发表于 2024-3-8 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">该拱兔子哥了
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

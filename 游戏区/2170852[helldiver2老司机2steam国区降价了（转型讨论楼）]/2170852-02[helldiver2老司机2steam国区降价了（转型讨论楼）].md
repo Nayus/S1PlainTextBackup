@@ -401,3 +401,37 @@ Yaze hosts a PS5 Lobby
 是，暗改了，只能炸2/3血左右，必须补刀</blockquote>
 PS5版，还是能一颗炸死。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bladethunder  
+##### 1516#       发表于 2024-3-8 17:58
+
+【[HELLDIVERS2]2024.3.6更新内容展示与测试：下次削弱预定-激光大炮-哔哩哔哩】 https://b23.tv/s2o6Yf4
+
+激光炮改成中甲穿透后打机器人很有效？
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Launce  
+##### 1517#       发表于 2024-3-8 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191967&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-03-08 17:48:11</a>
+PS5版，还是能一颗炸死。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">恶心走40万pc玩家就能给亲爹儿子腾服务器了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  leafS  
+##### 1518#       发表于 2024-3-8 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191367&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 17:05</a>
+给你看个更出生的
+
+最近通过大量测试发现，如果主机是在 PS5 上玩游戏，胆汁泰坦只需 2-3 次击中轨 ...</blockquote>
+日了，还能这样，又要上pc赚钱又要暗改数据，真的是**立牌坊
+

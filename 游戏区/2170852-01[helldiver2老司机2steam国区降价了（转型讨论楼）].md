@@ -14610,3 +14610,18 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在百分之百肯定去帮忙的工作室就是棒鸡。这不名师出高徒么，和玩家对喷这么逆天的操作都来了，n5都打不过去的废物和乔黑烧打不死超载勇士如出一辙，太乐了
 
+
+*****
+
+####  wthall  
+##### 1448#       发表于 2024-3-8 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180187&amp;ptid=2170852" target="_blank">曼陀罗肥 发表于 2024-3-7 17:32</a>
+
+所以现在不建议入坑嘛？之前就因为没人玩要野排才一直犹豫入不入，现在这版本更不适合没朋友联机的新人入 ...</blockquote>
+没人组排担任solo我觉得最高差不多能打到难度4吧，再高不是不能打，大佬solo难度9的都有。但是你想想为什么别人叫做大佬。
+
+这代和1代最大的区别就是因为变成第三人称。所以视界受限不少。
+
+有人组队打打难度6-7还行，但是现在改过之后我们的常备枪械感觉更低了，完全依赖空袭。威力严重不足。
+

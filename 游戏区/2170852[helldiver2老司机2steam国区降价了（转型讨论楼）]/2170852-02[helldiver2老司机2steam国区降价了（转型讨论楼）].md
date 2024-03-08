@@ -785,3 +785,27 @@ Yaze hosts a PS5 Lobby
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  琦乐无穷  
+##### 1553#       发表于 2024-3-9 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195606&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-9 00:46</a>
+
+这不把机甲当额外战略配备给大伙爽一会
+
+—— 来自 S1Fun</blockquote>
+现在就是，不占格子的战备，爽玩。但是服务器已炸，我卡在结算直接不动了。
+
+*****
+
+####  风萧飒  
+##### 1554#       发表于 2024-3-9 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195623&amp;ptid=2170852" target="_blank">琦乐无穷 发表于 2024-3-9 00:48</a>
+现在就是，不占格子的战备，爽玩。但是服务器已炸，我卡在结算直接不动了。 ...</blockquote>
+那可以啊，明天睡醒了上去爽几把<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

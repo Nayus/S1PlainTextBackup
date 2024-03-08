@@ -1683,3 +1683,18 @@ https://www.bilibili.com/video/BV14H4y1j7J1</blockquote>
 
 索尼发售前不给个sop么，纯靠视频网站硬播么
 
+
+*****
+
+####  廖化  
+##### 833#       发表于 2024-3-8 10:53
+
+坐等PC版，索尼已经是强弩之末了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 834#       发表于 2024-3-8 10:53
+
+怎么来星链那一套，不过默认女主长得一般
+

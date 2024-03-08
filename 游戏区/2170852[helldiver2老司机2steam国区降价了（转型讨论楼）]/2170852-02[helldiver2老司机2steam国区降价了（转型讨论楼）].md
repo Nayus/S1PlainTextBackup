@@ -56,3 +56,32 @@
 可以做个0.7秒的鼠标宏，中近清杂雷电法王。
 1.03秒宏中远高输出雷电法王，电泰坦也没问题
 
+
+*****
+
+####  A2umiA  
+##### 1487#       发表于 2024-3-8 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64186480&amp;ptid=2170852" target="_blank">Noel 发表于 2024-3-8 10:45</a>
+
+可以做个0.7秒的鼠标宏，中近清杂雷电法王。
+
+1.03秒宏中远高输出雷电法王，电泰坦也没问题 ...</blockquote>
+梦回nikke
+
+*****
+
+####  DawnGuardian  
+##### 1488#       发表于 2024-3-8 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64186477&amp;ptid=2170852" target="_blank"> 赤井稻妻 发表于 2024-3-8 10:45</a> 高难机器人根本打不了，打机器人的那几件专用装备也是一个赛一个的幽默  盾牌，防御角度极低，主要是只能用主手冲锋枪，前作的面盾可是个背包啊，你这游戏的设计思路既然是支援武器作为主要作战兵器，那你设计个只能用少数主武器的盾是想干嘛  反器材步枪，我是主机板不知道pc狙神用起来如何，听说可以两枪点爆无畏机甲的眼睛，但是必须开镜真的有这个必要吗，这是什么强到逆天必须如此平衡的武器吗  护盾生成器，没怎么试 </blockquote>
+其实必须开镜都不是什么问题，最大的问题是沉重的手感和摇晃导致很难在混战中精准射击，我pc都瞄的难受，主机板我估计完全没法用吧来自: iPhone客户端
+
+
+*****
+
+####  Mr.Hopp  
+##### 1489#       发表于 2024-3-8 10:55
+
+看到网上两发机炮带走坦克虫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

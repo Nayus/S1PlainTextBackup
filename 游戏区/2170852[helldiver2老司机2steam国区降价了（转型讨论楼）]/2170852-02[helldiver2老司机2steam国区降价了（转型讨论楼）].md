@@ -454,3 +454,18 @@ PS5版，还是能一颗炸死。</blockquote><img src="https://static.saraba1st
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  gzGaryC  
+##### 1521#       发表于 2024-3-8 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191486&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 17:13</a>
+
+当时再猜是跨平台网络问题，结果就是单纯血少
+
+Yaze hosts a PS5 Lobby
+
+1:22:50 - First Titan kil ...</blockquote>
+恶心坏了
+

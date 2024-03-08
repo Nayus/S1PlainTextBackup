@@ -1953,3 +1953,11 @@ b公司彩虹</blockquote>
 
 说明v手里确实有彩虹社的黑料<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  _Ra1nMaker  
+##### 67#       发表于 2024-3-8 14:00
+
+所以虹EN的3D早做完了为什么一直不披露啊，非要闹得主播和粉丝都不开心了才搞3D回？
+

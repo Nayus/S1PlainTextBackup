@@ -266,3 +266,14 @@
 
 尼克尔的绊剧情和马克龙最近发言微妙连动，你游真的是乌鸦嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 966#         楼主| 发表于 2024-3-8 22:03
+
+推特发现有个有趣的BUG，可以将普通人物变手办，FAG等变等身大，趁阿金没修可以多拍照<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+具体操作：
+[https://www.bilibili.com/video/BV1sx4y1Q7kh](https://www.bilibili.com/video/BV1sx4y1Q7kh)
+

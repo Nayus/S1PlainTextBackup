@@ -11081,3 +11081,26 @@ Hide&amp;Attack又是真人live吊打MV 这SCSP的制作团队水平真的不行
 可惜游戏跳票太久 而且衍生品动画最近搞了个骚操作</blockquote>
 我刚去搜相关信息才发现，原来去年先出了动画，这次是游戏3月28b测的宣传，应该快正式发售了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 2609#       发表于 2024-3-8 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64193584&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-8 20:44</a>
+公式化人设</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄占了红的生态位
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  rgauss  
+##### 2610#       发表于 2024-3-8 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64193999&amp;ptid=2130897" target="_blank">江口夕 发表于 2024-3-8 21:38</a>
+黄占了红的生态位
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+吐槽役<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

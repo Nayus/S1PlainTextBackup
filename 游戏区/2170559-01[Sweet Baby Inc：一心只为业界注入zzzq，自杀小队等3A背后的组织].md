@@ -1137,3 +1137,13 @@ Kotaku来辟谣？那不是反而实锤了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你要投资人的钱，那就拿不到玩家的钱咯
 
+
+*****
+
+####  byisme001  
+##### 91#       发表于 2024-3-8 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64187758&amp;ptid=2170559" target="_blank">Jimlee079 发表于 2024-3-8 11:54</a>
+你要投资人的钱，那就拿不到玩家的钱咯</blockquote>
+确实是这样，非独立游戏理论上是制作者拿投资人的钱，投资人拿玩家的钱。虽然不可能，但如果真是投资人宁可不要玩家的钱也要塞那些内容，那也没辙
+

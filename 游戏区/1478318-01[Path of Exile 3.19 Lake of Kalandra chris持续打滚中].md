@@ -47,3 +47,23 @@ GGG最新财报显示chris卸任制作总监 特别提一下
 
 Poe2啥时候出定了吗，都等了好多年了
 
+
+*****
+
+####  妹控使徒  
+##### 1367#         楼主| 发表于 2024-3-8 13:00
+
+没走 散了
+
+不过POE2访谈确实不是chris负责,  以及近2个版本的调整来看 chris应该是确实不太管事了.
+
+或者也可以认为一切都是烟雾弹, 而chris实际上已经去暴雪开发D4了
+
+<img src="https://img.saraba1st.com/forum/202403/08/130046qh6tt8jm8z72f2gt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-8 13:00 上传
+

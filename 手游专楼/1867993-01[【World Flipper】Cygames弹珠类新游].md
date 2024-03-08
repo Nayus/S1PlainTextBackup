@@ -12195,3 +12195,13 @@ kmr宣布开国际服
 
 牢弹别肘
 
+
+*****
+
+####  Schwftyyyyy  
+##### 1249#       发表于 2024-3-8 08:41
+
+不会是柏青哥吧
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -117,3 +117,16 @@
 —— 来自 Xiaomi 230 ...</blockquote>
 前面俩都错最后面芙芙会救场必对一道来着，我是直接百度搜了答案选全对了
 
+
+*****
+
+####  Urakawa  
+##### 46219#       发表于 2024-3-8 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185305&amp;ptid=1712412" target="_blank">fengzijiang 发表于 2024-3-8 09:02</a>
+水绘也有答题，我对了两道，我怀疑错的多了会不给，有谭友试过对一道或者全错吗？
+
+—— 来自 Xiaomi 230 ...</blockquote>
+翻了下脚本，第三题答错且第一或第二题答错时拿不到巧克力。
+有意思的是，当第一二题答对而第三题答错时，水绘会说可惜没能完美回答而不是有几道答对了。
+

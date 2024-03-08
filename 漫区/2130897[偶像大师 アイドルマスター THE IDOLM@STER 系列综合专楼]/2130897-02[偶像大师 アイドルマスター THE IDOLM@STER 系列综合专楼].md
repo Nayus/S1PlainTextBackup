@@ -11033,3 +11033,13 @@ Hide&amp;Attack又是真人live吊打MV 这SCSP的制作团队水平真的不行
 
 还好还没做transcending the World，三年前看到的同人做的mv把我带进坑了
 
+
+*****
+
+####  rgauss  
+##### 2604#       发表于 2024-3-8 20:44
+
+<img src="https://p.sda1.dev/16/25f40ab922ac62dcfb86ba8ec7fbf46d/1000001647.jpg" referrerpolicy="no-referrer">
+
+公式化人设
+

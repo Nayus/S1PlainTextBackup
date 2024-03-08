@@ -485,3 +485,11 @@ Yaze hosts a PS5 Lobby
 1:22:50 - First Titan kil ...</blockquote>
 这是不是有点假，PC版飞矛打泰坦弱点也能秒泰坦吧？这血量真差了好几倍了，飞矛伤害也不一样？
 
+
+*****
+
+####  白昼梦  
+##### 1523#       发表于 2024-3-8 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">原来磁轨秒泰坦是跨平台排到ps5房主的问题吗
+

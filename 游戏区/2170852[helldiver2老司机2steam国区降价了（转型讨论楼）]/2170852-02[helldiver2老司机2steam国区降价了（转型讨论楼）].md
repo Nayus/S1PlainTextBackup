@@ -577,3 +577,19 @@ Yaze hosts a PS5 Lobby
 以前只要身体在爆炸范围内基本是必死的，更不用说直接命中，插在腿上都能秒杀。 ...</blockquote>
 这个更新前就看到有直接插在泰坦脑门上炸不死的视频了，感觉是BUG
 
+
+*****
+
+####  LrGsite  
+##### 1532#       发表于 2024-3-8 23:29
+
+<img src="https://img.saraba1st.com/forum/202403/08/232932j312xic1xh4q31qy.png" referrerpolicy="no-referrer">
+
+<strong>ZR_QVKFO(L3E]%D([IOE569.png</strong> (27.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-8 23:29 上传
+
+马上解放了
+

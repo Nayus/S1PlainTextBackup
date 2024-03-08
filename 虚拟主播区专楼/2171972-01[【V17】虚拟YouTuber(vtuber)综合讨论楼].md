@@ -1987,3 +1987,13 @@ b公司彩虹</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文件警告属于从ickr时代传下来的优良传统了，此处@人事部长きよの
 
+
+*****
+
+####  云隐  
+##### 71#       发表于 2024-3-8 20:17
+
+真白花音有专楼吗？
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

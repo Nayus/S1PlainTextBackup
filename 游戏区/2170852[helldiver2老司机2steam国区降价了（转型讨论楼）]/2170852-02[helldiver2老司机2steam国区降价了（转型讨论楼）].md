@@ -469,3 +469,19 @@ Yaze hosts a PS5 Lobby
 1:22:50 - First Titan kil ...</blockquote>
 恶心坏了
 
+
+*****
+
+####  Mr.Hopp  
+##### 1522#       发表于 2024-3-8 20:16
+
+ 本帖最后由 Mr.Hopp 于 2024-3-8 20:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191486&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 17:13</a>
+
+当时再猜是跨平台网络问题，结果就是单纯血少
+
+Yaze hosts a PS5 Lobby
+
+1:22:50 - First Titan kil ...</blockquote>
+这是不是有点假，PC版飞矛打泰坦弱点也能秒泰坦吧？这血量真差了好几倍了，飞矛伤害也不一样？
+

@@ -842,3 +842,13 @@ Yaze hosts a PS5 Lobby
 
 看来服务器是真卡爆了，现在啥也买不了
 
+
+*****
+
+####  runningch  
+##### 1559#       发表于 2024-3-9 01:23
+
+steam 才18万在线啊，这也能炸
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -92,3 +92,15 @@
 
 树就试验性质地种过一棵，金苹果2000+了，根本不想用
 
+
+*****
+
+####  fengzijiang  
+##### 46217#       发表于 2024-3-8 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64170849&amp;ptid=1712412" target="_blank">lcn 发表于 2024-3-6 22:47</a>
+巧克力剧情比较特殊的（可能会无法得到巧克力）除了伽摩、杀生院、霸王花，还有吗？ ...</blockquote>
+水绘也有答题，我对了两道，我怀疑错的多了会不给，有谭友试过对一道或者全错吗？
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

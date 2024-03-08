@@ -5309,3 +5309,17 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 <img src="https://p.sda1.dev/16/2557dbf0a5d27bbb9372c74899aaaad6/20240308_015041.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/bc06fc42b8fe2d6f6e3003c78963c978/20240308_015044.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4296#       发表于 2024-3-8 08:58
+
+ 本帖最后由 aptx8285144 于 2024-3-8 08:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64183961&amp;ptid=2092345" target="_blank">砂糖续香香 发表于 2024-3-8 00:55</a>
+
+一集半打完，半集见神许愿打赢复活赛，最后一集开双人live，然后三个贤士和艾女士同时怀孕坐板凳
+
+ ...</blockquote>
+这么多“怀孕”真得感觉是想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，米斯缇:你们随意，我去给我的老主人再献一次花后就去巡游世界JPG
+

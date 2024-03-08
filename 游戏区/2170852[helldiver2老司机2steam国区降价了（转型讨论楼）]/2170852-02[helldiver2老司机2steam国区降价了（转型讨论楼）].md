@@ -875,3 +875,34 @@ steam 才18万在线啊，这也能炸
 最近通过大量测试发现，如果主机是在 PS5 上玩游戏，胆汁泰坦只需 2-3 次击中轨 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1562#       发表于 2024-3-9 01:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进不去了 明天再试吧 
+
+*****
+
+####  sigeren  
+##### 1563#       发表于 2024-3-9 01:50
+
+原来是服务器炸了啊，我还以为是今天刷超级货币刷太多被限制登入了呢
+对了，商店里那个有额外护甲的重甲怎么样?经常看到有人用
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  FLZB  
+##### 1564#       发表于 2024-3-9 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195953&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-3-9 01:50</a>
+
+原来是服务器炸了啊，我还以为是今天刷超级货币刷太多被限制登入了呢
+
+对了，商店里那个有额外护甲的重甲怎 ...</blockquote>
+纸对折，龟速寿衣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

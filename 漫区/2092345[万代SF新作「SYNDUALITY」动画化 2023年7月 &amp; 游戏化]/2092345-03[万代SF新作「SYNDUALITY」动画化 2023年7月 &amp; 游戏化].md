@@ -5323,3 +5323,11 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
  ...</blockquote>
 这么多“怀孕”真得感觉是想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，米斯缇:你们随意，我去给我的老主人再献一次花后就去巡游世界JPG
 
+
+*****
+
+####  aptx8285144  
+##### 4297#       发表于 2024-3-8 16:06
+
+最后几话起码战斗演出和分镜要做好，甚至要比上半部分二次风暴来袭时更好才行<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

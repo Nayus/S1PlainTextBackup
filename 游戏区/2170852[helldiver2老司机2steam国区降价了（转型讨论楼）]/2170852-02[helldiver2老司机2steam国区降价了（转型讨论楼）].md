@@ -639,3 +639,44 @@ Yaze hosts a PS5 Lobby
 
 机甲来了
 
+
+*****
+
+####  cloudcc  
+##### 1536#       发表于 2024-3-8 23:58
+
+还真是任务解锁，明天可以爽了
+
+*****
+
+####  novyDC  
+##### 1537#       发表于 2024-3-9 00:00
+
+下班弄一个
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1538#       发表于 2024-3-9 00:02
+
+不会要25级解锁叭<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  FLZB  
+##### 1539#       发表于 2024-3-9 00:03
+
+火力太强了，跟箭头和解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斋祀  
+##### 1540#       发表于 2024-3-9 00:06
+
+目前纯玩具 不能补给弹药
+

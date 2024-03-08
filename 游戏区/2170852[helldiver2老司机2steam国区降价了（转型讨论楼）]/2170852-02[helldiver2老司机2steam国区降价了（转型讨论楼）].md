@@ -538,3 +538,20 @@ Yaze hosts a PS5 Lobby
 
 算是500kg暗改实锤视频了吧，瑞典阴湿蠢驴是不是觉得这玩意难以精确命中所以玩家发现不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 1528#       发表于 2024-3-8 21:28
+
+500kg我一直用着差不多，都得丢脚下才能秒
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mr.Hopp  
+##### 1529#       发表于 2024-3-8 21:30
+
+500kg很玄学，有时候看着丢脚下没打死，有时候看着离开满远一发炸死了。
+

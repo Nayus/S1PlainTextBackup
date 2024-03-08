@@ -376,3 +376,28 @@ PC HOST
 
 2:43:20 - 10 shots
 
+
+*****
+
+####  FLZB  
+##### 1514#       发表于 2024-3-8 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191486&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 17:13</a>
+
+当时再猜是跨平台网络问题，结果就是单纯血少
+
+Yaze hosts a PS5 Lobby
+
+1:22:50 - First Titan kil ...</blockquote>
+带孝子箭头敢砍他亲妈吐酸泰坦的血量是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 1515#       发表于 2024-3-8 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64186802&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 11:10</a>
+
+是，暗改了，只能炸2/3血左右，必须补刀</blockquote>
+PS5版，还是能一颗炸死。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

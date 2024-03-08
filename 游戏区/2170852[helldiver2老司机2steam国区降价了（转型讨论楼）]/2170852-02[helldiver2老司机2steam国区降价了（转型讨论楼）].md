@@ -203,3 +203,14 @@ cod才卖多少
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Launce  
+##### 1503#       发表于 2024-3-8 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64189253&amp;ptid=2170852" target="_blank">gzGaryC 发表于 2024-3-8 14:14</a>
+
+现在这个刷怪频率改回去之前打高难机器人不当跑男玩不了一点，带飞鹰空袭，飞鹰烟雾，380跟蛋盾。还有不止 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常怪的AI是有上限的，另一边触发了警报亚空间调兵过去，警报停了亚空间回驻地是很合理的
+

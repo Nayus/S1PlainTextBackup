@@ -1655,3 +1655,23 @@ https://www.bilibili.com/video/BV14H4y1j7J1</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  leafS  
+##### 830#       发表于 2024-3-8 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185590&amp;ptid=2092342" target="_blank">jf8350143 发表于 2024-3-8 09:24</a>
+
+话说这作是不是确定了之后会上pc来着？我记得之前似乎在哪看到过。
+
+—— 来自 S1Fun ...</blockquote>
+仁王1的only on ps以后你觉得光荣的游戏还会有PS独占？无非就是看什么时候上而已，如果像之前仁王那样的话那可能直接等完全版了
+
+*****
+
+####  duraa  
+##### 831#       发表于 2024-3-8 10:10
+
+应该是流出的初期ppt上本来是全平台吧（当然不包括ns），不过索尼自己的游戏都在上pc，早晚的事情<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

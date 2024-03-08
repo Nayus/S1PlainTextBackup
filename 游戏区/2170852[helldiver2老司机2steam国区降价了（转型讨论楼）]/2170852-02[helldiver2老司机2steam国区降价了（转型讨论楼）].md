@@ -680,3 +680,33 @@ Yaze hosts a PS5 Lobby
 
 目前纯玩具 不能补给弹药
 
+
+*****
+
+####  Shu-Stella  
+##### 1541#       发表于 2024-3-9 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191367&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 18:05</a>
+
+给你看个更出生的
+
+最近通过大量测试发现，如果主机是在 PS5 上玩游戏，胆汁泰坦只需 2-3 次击中轨 ...</blockquote>
+差个一发我都觉得没啥 这差的都不止一倍 有点...
+
+*****
+
+####  novyDC  
+##### 1542#       发表于 2024-3-9 00:11
+
+机甲打泰坦好用吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  airshit  
+##### 1543#       发表于 2024-3-9 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么这么强的机甲能被坦克虫创多少次，能吃多少发哑铃人的火箭呢
+

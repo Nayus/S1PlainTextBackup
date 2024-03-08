@@ -126,3 +126,27 @@ SpaceX正式宣布最早将于3月14日进行第三次发射，只待有关部�
 
 nasa一定要管住,能再拖一个月吗.
 
+
+*****
+
+####  commcody  
+##### 145#         楼主| 发表于 2024-3-9 00:11
+
+自毁装药已开始安装
+
+<img src="https://img.saraba1st.com/forum/202403/09/001012ee37e71u3n1x9zeu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4028.jpeg</strong> (741.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/001012s7awobe8c9e18cd1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4029.jpeg</strong> (229.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 00:10 上传
+

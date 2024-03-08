@@ -852,3 +852,13 @@ steam 才18万在线啊，这也能炸
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  萧千绝  
+##### 1560#       发表于 2024-3-9 01:30
+
+<blockquote>airshit 发表于 2024-3-9 00:12
+那么这么强的机甲能被坦克虫创多少次，能吃多少发哑铃人的火箭呢</blockquote>
+什么坦克虫，俩发火箭直接轰死，泰坦虫硬一点，爬出来能吃四发的样子
+

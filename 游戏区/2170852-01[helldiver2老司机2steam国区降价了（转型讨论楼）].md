@@ -14647,3 +14647,14 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 1451#       发表于 2024-3-8 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64184382&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-8 03:36</a>
+
+500KG钻到肚子底下爆炸没炸死泰坦，甚至毒囊都没破，它反手一个喷涂给我秒了。不知道箭头这个更新又暗改了 ...</blockquote>
+500一直是这样的吧，插到身上才是必秒，除此之外炸不炸得死就看天意
+

@@ -1129,3 +1129,11 @@ Kotaku来辟谣？那不是反而实锤了？
 
 希望盡快倒掉
 
+
+*****
+
+####  Jimlee079  
+##### 90#       发表于 2024-3-8 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你要投资人的钱，那就拿不到玩家的钱咯
+

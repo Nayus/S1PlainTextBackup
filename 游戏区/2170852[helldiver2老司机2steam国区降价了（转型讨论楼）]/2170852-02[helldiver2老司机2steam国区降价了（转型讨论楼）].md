@@ -104,3 +104,20 @@
 
 机器人难度7已经能打了，相比虫子无穷无尽的跳虫坦克组合舒适多了，该换地方刷了
 
+
+*****
+
+####  runningch  
+##### 1492#       发表于 2024-3-8 11:53
+
+<strong>不保真</strong>：据说SteamSpy上统计老司机2已经卖出超过400玩份，红迪上也有人发帖说总计已经卖出超过1000万份，这大概就是他们底气吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江城诀丶  
+##### 1493#       发表于 2024-3-8 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64186154&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-8 10:16</a>
+昨天个人任务是2只泰坦，野队难5打了3把一只没见到，难6也打了一把，更是没见到，很神秘，导致我带的500根 ...</blockquote>
+打难7防卫泰坦2只2只连着刷
+

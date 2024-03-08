@@ -7832,3 +7832,13 @@ https://twitter.com/lvliu1/status/1765707465507897633?t=fiBsldSKpIJ9oEb3RZMZhw&a
 
 这位的祥子总让我想到玛琪玛
 
+
+*****
+
+####  爱丁堡official  
+##### 14007#       发表于 2024-3-8 11:48
+
+黑祥确实是有这种气质
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

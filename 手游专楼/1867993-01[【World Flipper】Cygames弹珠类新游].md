@@ -12205,3 +12205,11 @@ kmr宣布开国际服
 
 —— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  marxel  
+##### 1250#       发表于 2024-3-8 14:05
+
+嘛往好了想是上NS，反正说了another dimension，不太可能再来个手游了
+

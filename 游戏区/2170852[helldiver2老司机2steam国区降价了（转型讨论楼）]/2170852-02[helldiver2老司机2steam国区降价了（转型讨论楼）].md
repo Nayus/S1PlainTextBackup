@@ -272,3 +272,13 @@ cod才卖多少
 
 天关那边的PoI有几率刷EXO suit
 
+
+*****
+
+####  airshit  
+##### 1507#       发表于 2024-3-8 15:54
+
+这游戏有没有测试各种战略配备的地方？
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

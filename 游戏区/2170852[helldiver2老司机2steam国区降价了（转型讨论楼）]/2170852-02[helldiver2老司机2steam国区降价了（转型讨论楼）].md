@@ -906,3 +906,11 @@ steam 才18万在线啊，这也能炸
 对了，商店里那个有额外护甲的重甲怎 ...</blockquote>
 纸对折，龟速寿衣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stormquantage  
+##### 1565#       发表于 2024-3-9 03:23
+
+侦查轻甲+UAV提升+蛋盾+电磁枪 单人跑虫子图压力不大。今天倒是遇到两次开黄光舱门之后卡在地上不动两次，开枪都开不了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

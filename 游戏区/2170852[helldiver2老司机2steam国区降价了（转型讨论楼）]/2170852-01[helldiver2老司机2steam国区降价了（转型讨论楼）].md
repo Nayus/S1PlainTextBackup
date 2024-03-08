@@ -14922,3 +14922,40 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1477#       发表于 2024-3-8 10:16
+
+昨天个人任务是2只泰坦，野队难5打了3把一只没见到，难6也打了一把，更是没见到，很神秘，导致我带的500根本没出出场过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赤井稻妻  
+##### 1478#       发表于 2024-3-8 10:16
+
+这次补丁过后好像隐形虫的数量也变多了，现在动不动就有四五只隐形虫，我还遇到过三只隐形虫同时出刀把我直接秒杀的
+
+*****
+
+####  A2umiA  
+##### 1479#       发表于 2024-3-8 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64174383&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-7 10:13</a>
+
+不考虑杀牛的话，电枪通过快速蓄力的手法可以把射速拉到很高，不过需要站桩输出，一般都是找一个远离队伍 ...</blockquote>
+快速蓄力是什么手法啊
+
+*****
+
+####  Mr.Hopp  
+##### 1480#       发表于 2024-3-8 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64186156&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-8 10:16</a>
+
+这次补丁过后好像隐形虫的数量也变多了，现在动不动就有四五只隐形虫，我还遇到过三只隐形虫同时出刀把我直 ...</blockquote>
+找隐形虫巢穴，别怀疑，有隐形虫十有八九附件有巢穴，不打掉就会刷。
+

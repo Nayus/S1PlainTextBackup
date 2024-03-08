@@ -1675,3 +1675,11 @@ https://www.bilibili.com/video/BV14H4y1j7J1</blockquote>
 
 应该是流出的初期ppt上本来是全平台吧（当然不包括ns），不过索尼自己的游戏都在上pc，早晚的事情<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clover293  
+##### 832#       发表于 2024-3-8 10:15
+
+索尼发售前不给个sop么，纯靠视频网站硬播么
+

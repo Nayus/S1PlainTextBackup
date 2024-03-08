@@ -1698,3 +1698,13 @@ https://www.bilibili.com/video/BV14H4y1j7J1</blockquote>
 
 怎么来星链那一套，不过默认女主长得一般
 
+
+*****
+
+####  normalli  
+##### 835#       发表于 2024-3-8 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64183467&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-3-7 23:52</a>
+和主角二人一组的妹子还是有完整台词的固定角色，估计不能全程操作妹子了…… ...</blockquote>
+好像是两个人都能捏，可以选一个吧，捏两个男的或者两个女的估计也行，剧情男女各配一遍音就行
+

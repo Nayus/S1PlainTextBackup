@@ -14741,3 +14741,73 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 是的，他们半夜承认了</blockquote>
 我就看不懂了，这么重要的改动不提，让人自己试，搁这玩狼人杀呢？
 
+
+*****
+
+####  cloudcc  
+##### 1459#       发表于 2024-3-8 09:17
+
+<blockquote>eno_emos 发表于 2024-3-8 09:08
+是的，他们半夜承认了</blockquote>
+滑跪了，早知如此何必当初
+
+*****
+
+####  bladethunder  
+##### 1460#       发表于 2024-3-8 09:18
+
+这是昨晚7点的更新吗？但我昨晚7级各种被小虫海淹没……
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  eno_emos  
+##### 1461#       发表于 2024-3-8 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185503&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-8 09:17</a>
+
+滑跪了，早知如此何必当初</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">滑跪啥啊，鬼佬测试结论是改回了day1的生成比例
+
+纯粹就是上周大家高难刷太猛了逼他把重甲敌人比例调的奇高
+
+*****
+
+####  Launce  
+##### 1462#       发表于 2024-3-8 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185378&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-8 09:08</a>
+
+是的，他们半夜承认了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不止一个人反馈更新后生成数不对劲了。你这研究就是指暗调接着看玩家喷的情况吗
+
+*****
+
+####  cloudcc  
+##### 1463#       发表于 2024-3-8 09:23
+
+<blockquote>eno_emos 发表于 2024-3-8 09:20
+滑跪啥啊，鬼佬测试结论是改回了day1的生成比例
+
+纯粹就是上周大家高难刷太猛了逼他把重甲敌人比例 ...</blockquote>
+超级气球这还是动态难度啊
+
+
+*****
+
+####  eno_emos  
+##### 1464#       发表于 2024-3-8 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185577&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-8 09:23</a>
+
+超级气球这还是动态难度啊</blockquote>
+人就是网游，GAAS跟你闹呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 1465#       发表于 2024-3-8 09:26
+
+我昨天打了一局坦克操场，虫子n9的任务点3分钟内刷了8头牛，这还是在我面前击杀的数量，不排除队友在视野外杀掉的牛
+

@@ -282,3 +282,16 @@ cod才卖多少
 
 —— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Benighted  
+##### 1508#       发表于 2024-3-8 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64190369&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-8 15:54</a>
+
+这游戏有没有测试各种战略配备的地方？
+
+—— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+自己开个1级任务，还能顺便采点绿样本
+

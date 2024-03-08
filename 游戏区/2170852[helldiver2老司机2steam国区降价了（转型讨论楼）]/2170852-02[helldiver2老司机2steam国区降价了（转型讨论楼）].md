@@ -85,3 +85,22 @@
 
 看到网上两发机炮带走坦克虫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1490#       发表于 2024-3-8 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64184382&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-8 03:36</a>
+
+500KG钻到肚子底下爆炸没炸死泰坦，甚至毒囊都没破，它反手一个喷涂给我秒了。不知道箭头这个更新又暗改了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是，暗改了，只能炸2/3血左右，必须补刀
+
+
+*****
+
+####  cloudcc  
+##### 1491#       发表于 2024-3-8 11:13
+
+机器人难度7已经能打了，相比虫子无穷无尽的跳虫坦克组合舒适多了，该换地方刷了
+

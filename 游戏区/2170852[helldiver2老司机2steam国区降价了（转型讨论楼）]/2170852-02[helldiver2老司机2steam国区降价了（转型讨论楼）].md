@@ -224,3 +224,19 @@ cod才卖多少
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  runningch  
+##### 1505#       发表于 2024-3-8 15:10
+
+<strong>比较保真：</strong>追查销量的各种信源之后感觉都不是很靠谱，steam spy 感觉被之前的几个假helldivers2 玩坏了，显示已经有超过2000万玩家。继续追查，唯一比较保真的就是2月24号，箭头的创意总监Pilestedt 在X上的一个回复：就是有人猜销量是300万，Pilestedt回了一个暗示更高的表情。所以保底已经超300万。
+
+<img src="https://img.saraba1st.com/forum/202403/08/150456meezt8m1a8at1l2d.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_GHJdDU_XsAABNQI.jpg</strong> (163.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-8 15:04 上传
+

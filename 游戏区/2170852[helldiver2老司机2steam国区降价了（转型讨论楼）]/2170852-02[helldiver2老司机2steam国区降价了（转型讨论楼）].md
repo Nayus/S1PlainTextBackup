@@ -862,3 +862,16 @@ steam 才18万在线啊，这也能炸
 那么这么强的机甲能被坦克虫创多少次，能吃多少发哑铃人的火箭呢</blockquote>
 什么坦克虫，俩发火箭直接轰死，泰坦虫硬一点，爬出来能吃四发的样子
 
+
+*****
+
+####  LrGsite  
+##### 1561#       发表于 2024-3-9 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64191367&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 17:05</a>
+
+给你看个更出生的
+
+最近通过大量测试发现，如果主机是在 PS5 上玩游戏，胆汁泰坦只需 2-3 次击中轨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

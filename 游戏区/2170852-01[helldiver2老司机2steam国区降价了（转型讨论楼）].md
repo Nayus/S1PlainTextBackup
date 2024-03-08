@@ -14689,3 +14689,55 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 380持续时间更长了，也更容易杀队友了，冷另外持续时间长不等于打得中，还是玄学（） ...</blockquote>
 这次机器人好像是新更新了一个炸堡垒的任务，反正就是在一个高地上有炮台掩护的建筑，可以380随缘爆破，用其他战备还真不好解决
 
+
+*****
+
+####  eno_emos  
+##### 1455#       发表于 2024-3-8 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185103&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-8 08:42</a>
+
+这堆平衡改了之后虫子n9还是能打，昨天和路人打了一局求稳局，队伍里没人单走一直都在抱团，一轮打下来轻轻 ...</blockquote>
+是的，他们半夜承认了
+
+<img src="https://img.saraba1st.com/forum/202403/08/090817nr0fr960vzwwz9rt.png" referrerpolicy="no-referrer">
+
+<strong>MYNHS7DF6UCQ~7TZ1PRIKZQ.png</strong> (103.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-8 09:08 上传
+
+*****
+
+####  bladethunder  
+##### 1456#       发表于 2024-3-8 09:11
+
+120现在打机器人老好用了，啥玩意都能砸
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  gogoneogg  
+##### 1457#       发表于 2024-3-8 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180103&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-7 17:26</a>
+
+虫子加强这么多是想逼人去打机器人么
+
+轻甲现在真是被跳虫乱杀</blockquote>
+机器人都是我大哥，你确定你能打过我大哥？
+
+现在N7经常刚下地就刷一队兵，加1个无畏，各种导弹激光打的我屁滚尿流，而且有的基地还有信号干扰这种变态东西<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 1458#       发表于 2024-3-8 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185378&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-8 09:08</a>
+
+是的，他们半夜承认了</blockquote>
+我就看不懂了，这么重要的改动不提，让人自己试，搁这玩狼人杀呢？
+

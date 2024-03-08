@@ -104,3 +104,16 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  kyonkoism  
+##### 46218#       发表于 2024-3-8 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185305&amp;ptid=1712412" target="_blank">fengzijiang 发表于 2024-3-8 09:02</a>
+
+水绘也有答题，我对了两道，我怀疑错的多了会不给，有谭友试过对一道或者全错吗？
+
+—— 来自 Xiaomi 230 ...</blockquote>
+前面俩都错最后面芙芙会救场必对一道来着，我是直接百度搜了答案选全对了
+

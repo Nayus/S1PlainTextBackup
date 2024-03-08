@@ -11043,3 +11043,22 @@ Hide&amp;Attack又是真人live吊打MV 这SCSP的制作团队水平真的不行
 
 公式化人设
 
+
+*****
+
+####  花开安菲路  
+##### 2605#       发表于 2024-3-8 20:50
+
+看来上次装甲核心6宣传效果不错，万南又给蓝毛新的机甲游戏宣传工作了，游戏主制作人都来了，还挺给面子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/8fa891fcb114a46e8eca2ec613acd73c/CMP_20240308205013416.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的光阴  
+##### 2606#       发表于 2024-3-8 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64173919&amp;ptid=2130897" target="_blank">kirakira~ 发表于 2024-3-7 09:38</a>
+
+追加：刚才再仔细看了一下角色pv，想到了一个奇怪的论证角度</blockquote>
+想起了怪猎的稀少种和原种地盘争夺（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

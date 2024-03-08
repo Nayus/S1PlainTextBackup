@@ -493,3 +493,38 @@ Yaze hosts a PS5 Lobby
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">原来磁轨秒泰坦是跨平台排到ps5房主的问题吗
 
+
+*****
+
+####  runningch  
+##### 1524#       发表于 2024-3-8 20:51
+
+我是pc，基友是ps5，在基友的房间我确实试过3枪磁轨打掉任务的泰坦。后面我们主要打中低难度，所以没有长时间的记录，没有验证这个是不是经常会触发<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 1525#       发表于 2024-3-8 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64193355&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-3-8 20:16</a>
+
+这是不是有点假，PC版飞矛打泰坦弱点也能秒泰坦吧？这血量真差了好几倍了，飞矛伤害也不一样？
+
+ ...</blockquote>
+[https://youtu.be/sWQxg5mIzT8?si=s1Pn9G3xBsDF-TKt&amp;t=293](https://youtu.be/sWQxg5mIzT8?si=s1Pn9G3xBsDF-TKt&amp;t=293)
+
+*****
+
+####  Launce  
+##### 1526#       发表于 2024-3-8 20:55
+
+<img src="https://img.saraba1st.com/forum/202403/08/205450xtoe6h576jt7m3ue.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-8 20:54 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说是在调查中，但是你这稳定触发感觉像个预期功能啊
+

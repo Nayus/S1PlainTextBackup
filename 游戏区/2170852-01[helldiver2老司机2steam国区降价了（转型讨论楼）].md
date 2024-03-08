@@ -14637,3 +14637,13 @@ tps届原神启动，马上出使用电但还被电克制敌人，狠狠卖通�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  bladethunder  
+##### 1450#       发表于 2024-3-8 08:20
+
+我用uu随机匹配鬼佬很流畅，群友用别的加速器好像就差一些，而且国内群友开黑总是出现网络冲突问题，连海外就没事……
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

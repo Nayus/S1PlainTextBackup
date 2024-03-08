@@ -566,3 +566,14 @@ Yaze hosts a PS5 Lobby
 500kg很玄学，有时候看着丢脚下没打死，有时候看着离开满远一发炸死了。</blockquote>
 以前只要身体在爆炸范围内基本是必死的，更不用说直接命中，插在腿上都能秒杀。
 
+
+*****
+
+####  nukecole  
+##### 1531#       发表于 2024-3-8 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64194245&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-8 22:09</a>
+
+以前只要身体在爆炸范围内基本是必死的，更不用说直接命中，插在腿上都能秒杀。 ...</blockquote>
+这个更新前就看到有直接插在泰坦脑门上炸不死的视频了，感觉是BUG
+

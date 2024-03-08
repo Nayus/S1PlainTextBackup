@@ -165,3 +165,21 @@ cod才卖多少
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  赤井稻妻  
+##### 1499#       发表于 2024-3-8 13:49
+
+等晚上下班是不是就能爽玩机甲了，别告诉我乔尔又要给机器人带路
+
+*****
+
+####  BadYanL  
+##### 1500#       发表于 2024-3-8 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64188834&amp;ptid=2170852" target="_blank">萧千绝 发表于 2024-3-8 13:32</a>
+
+天关一天就被打到了90%，可怕的地球人</blockquote>
+艹，在忙ff7rb，不知道还来得急填线吗
+

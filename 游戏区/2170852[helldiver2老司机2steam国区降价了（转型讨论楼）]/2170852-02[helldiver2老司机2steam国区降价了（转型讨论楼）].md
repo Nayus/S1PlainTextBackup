@@ -809,3 +809,36 @@ Yaze hosts a PS5 Lobby
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  looptube  
+##### 1555#       发表于 2024-3-9 00:58
+
+服务器又炸了，买机甲花了2W，打了2把结束发现还有30100块钱
+
+*****
+
+####  ssd  
+##### 1556#       发表于 2024-3-9 01:03
+
+我把超级货币买了垃圾盔甲没看到能1000解锁债券 兑换的全浪费了 不氪金怎么补救<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DawnGuardian  
+##### 1557#       发表于 2024-3-9 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195720&amp;ptid=2170852" target="_blank">ssd 发表于 2024-3-9 01:03</a>
+
+我把超级货币买了垃圾盔甲没看到能1000解锁债券 兑换的全浪费了 不氪金怎么补救 ...</blockquote>
+我记得货币可以速刷，你搜搜教程，1000应该用不了多久就能刷出来
+
+*****
+
+####  PlasmaSnake  
+##### 1558#       发表于 2024-3-9 01:05
+
+看来服务器是真卡爆了，现在啥也买不了
+

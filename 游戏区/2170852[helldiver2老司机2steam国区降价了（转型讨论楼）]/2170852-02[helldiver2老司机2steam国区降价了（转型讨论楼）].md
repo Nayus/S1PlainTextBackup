@@ -214,3 +214,13 @@ cod才卖多少
 现在这个刷怪频率改回去之前打高难机器人不当跑男玩不了一点，带飞鹰空袭，飞鹰烟雾，380跟蛋盾。还有不止 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常怪的AI是有上限的，另一边触发了警报亚空间调兵过去，警报停了亚空间回驻地是很合理的
 
+
+*****
+
+####  novyMS  
+##### 1504#       发表于 2024-3-8 14:52
+
+这战线离超级地球越来越近了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -10977,3 +10977,11 @@ pl不是最传统的？</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  supergilaboy  
+##### 2598#       发表于 2024-3-8 11:57
+
+问题不在于爱马仕有没有pl和pl是不是传统，而是现在某些群体追求的“pl”压根和当年的love要素已经不是一回事了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

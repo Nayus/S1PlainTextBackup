@@ -7842,3 +7842,16 @@ https://twitter.com/lvliu1/status/1765707465507897633?t=fiBsldSKpIJ9oEb3RZMZhw&a
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  金钱与民主  
+##### 14008#       发表于 2024-3-8 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64183148&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-3-7 23:19</a>
+
+隔壁搬运的红迪评论
+
+鬼佬的看法也挺有意思的</blockquote>
+Mygo感觉属于那种要么一听名字就没兴趣丢一边、一旦看了第一集马上停不下来的那种。
+

@@ -130,3 +130,16 @@
 翻了下脚本，第三题答错且第一或第二题答错时拿不到巧克力。
 有意思的是，当第一二题答对而第三题答错时，水绘会说可惜没能完美回答而不是有几道答对了。
 
+
+*****
+
+####  hmhk  
+##### 46220#       发表于 2024-3-8 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64185305&amp;ptid=1712412" target="_blank">fengzijiang 发表于 2024-3-8 09:02</a>
+
+水绘也有答题，我对了两道，我怀疑错的多了会不给，有谭友试过对一道或者全错吗？
+
+—— 来自 Xiaomi 230 ...</blockquote>
+蒙对了第一道，后面错了就没给。二周目才拿到
+

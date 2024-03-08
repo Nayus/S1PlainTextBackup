@@ -10985,3 +10985,13 @@ pl不是最传统的？</blockquote>
 
 问题不在于爱马仕有没有pl和pl是不是传统，而是现在某些群体追求的“pl”压根和当年的love要素已经不是一回事了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 2599#       发表于 2024-3-8 12:42
+
+想起来我高中的时候还非常抗拒看偶的本子来着<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">肉体关系达咩！
+
+但是看拉拉的本子倒是津津有味
+

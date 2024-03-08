@@ -7863,3 +7863,17 @@ Mygo感觉属于那种要么一听名字就没兴趣丢一边、一旦看了第�
 
 <img src="https://p.sda1.dev/16/29296d5090b2a9f498e1f1e32fc2bac4/CMP_20240308174706680.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14010#       发表于 2024-3-8 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64184440&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-8 04:35</a>
+首先是祥子哦不对Ob，她是被遗忘在这个月亮/建筑物里面的
+
+—— 来自 S1Fun ...</blockquote>
+被遗忘在赤羽的出租屋后一怒之下创造了母鸡卡的世界观<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

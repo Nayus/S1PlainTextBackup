@@ -710,3 +710,54 @@ Yaze hosts a PS5 Lobby
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么这么强的机甲能被坦克虫创多少次，能吃多少发哑铃人的火箭呢
 
+
+*****
+
+####  eno_emos  
+##### 1544#       发表于 2024-3-9 00:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">超级气球的高达不能踩死敌人，撞断树会自己伤血，不能坐在里面用无人机，受损爆炸会把使用者一起炸死
+
+而且还不能补弹药，一次性高达
+
+*****
+
+####  DawnGuardian  
+##### 1545#       发表于 2024-3-9 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195360&amp;ptid=2170852" target="_blank"> airshit 发表于 2024-3-9 00:12</a> 那么这么强的机甲能被坦克虫创多少次，能吃多少发哑铃人的火箭呢 </blockquote>
+体感免疫普通子弹，但是挨一发加农炮直接暴毙，紧急拖出的机会都没有
+来自: iPhone客户端
+
+*****
+
+####  LrGsite  
+##### 1546#       发表于 2024-3-9 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195421&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-9 00:21</a>
+
+超级气球的高达不能踩死敌人，撞断树会自己伤血，不能坐在里面用无人机，受损爆炸会把使用者一起炸 ...</blockquote>
+有近战可以F
+
+*****
+
+####  PlasmaSnake  
+##### 1547#       发表于 2024-3-9 00:23
+
+怎么又连不上服务器了，机甲出了把服务器挤爆了？
+
+
+*****
+
+####  白昼梦  
+##### 1548#       发表于 2024-3-9 00:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服务器炸了吧
+
+*****
+
+####  PlasmaSnake  
+##### 1549#       发表于 2024-3-9 00:27
+
+更离谱的是连进去了发现机甲战略配置买不了
+

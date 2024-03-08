@@ -11104,3 +11104,87 @@ Hide&amp;Attack又是真人live吊打MV 这SCSP的制作团队水平真的不行
 —— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
 吐槽役<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  グラフ  
+##### 2611#       发表于 2024-3-8 21:46
+
+尝试了一下组织爱马仕歌单制作活动，根据指定主题从各个企划中提名、挑选歌曲，拉一个歌单(10-20首)，方便大家了解到各个企划的优秀曲目。如果能组织起来以后可以多做几期。
+
+这次试运行主题是：适合春游时听的歌曲
+
+本次收集截止下周一中午一点(2024.3.11 13：00)
+
+参与方式：填写表格 [腾讯文档]IM@S主题歌单制作[试运行] [https://docs.qq.com/form/page/DWld5VFpKeVRhRnNI](https://docs.qq.com/form/page/DWld5VFpKeVRhRnNI)
+
+截止 3.8 晚9点收集的曲目列表，大家也可以自己拉一拉 <blockquote>1. 太陽キッス - BRILLI@NT WING 04 - 放課後クライマックスガールズ
+
+2. Flip Flop (Starlight Master Version) - STARLIGHT MASTER 10 Jet to the Future - 日野茜、高森藍子、及川雫、脇山珠美、道明寺歌鈴
+
+3. HARURUNRUN - MASTER SEASONS SPRING! - 关裕美、水本ゆかり、棟方愛海
+
+4. いっしょ - MASTER LIVE 01 - 天海春香、高槻やよい、星井美希、三浦あずさ、双海亜美・真美
+
+5. サニー - THE IDOLM[@ster](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=42350) ・ Vacation for you! - 双海亜美・真美、三浦あずさ、水瀬伊織、萩原雪歩、秋月律子
+
+6. 春風満帆スターティング - MILLION THE[@ter](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=44336) VARIETY 03 - 萩原雪歩、福田のり子、菊地 真、永吉 昴、最上静香
+
+7. Multiple Entertainment Show! - GROWING SIGN@L 13 S.E.M - S.E.M
+
+8. トライアングル - FR@GMENT WING 02 - イルミネーションスターズ
+
+9. よりみちサンセット - FR@GMENT WING 04 - 放課後クライマックスガールズ
+
+10. 神SUMMER!! (M@STER VERSION) - 765PRO ALLSTARS+ GRE[@test](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=1000) BEST! -SWEET&amp;SMILE!- - 天海春香、高槻やよい、萩原雪歩、双海亜美・真美、水瀬伊織、四条貴音
+
+11. プリコグ (M@STER VERSION) - DREAM SYMPHONY 01 水谷絵理 - 水谷絵理
+
+12. MOONY - ANIM@TION MASTER 02 - 如月千早、三浦あずさ、菊地真、星井美希、我那覇響、秋月律子
+
+13. はなまる - DREAM SYMPHONY 03 日高愛 - 日高愛
+
+14. ヒミツの珊瑚礁 - DREAM SYMPHONY 02 秋月涼 - 秋月涼
+
+15. 花ざかりWeekend✿ - MILLION THE@TER GENERATION 09 4Luxury - 4Luxury ・ 桜守歌織、豊川風花、北上麗花、馬場このみ
+
+16. 春 - MASTER SPECIAL SPRING - 我那覇響
+
+17. 花簪 HANAKANZASHI - CINDERELLA MASTER 029 小早川紗枝 - 小早川紗枝
+
+18. フラワーガール - MASTER SPECIAL 04 - 四条貴音
+
+19. アポイント・シグナル - THE IDOLM@STER SHINY COLORS COLORFUL FE@THERS -Stella- - 月岡恋鐘(CV.礒部花凜)
+
+20. 装 -So Beautiful- - NEW STAGE EPISODE 14 彩 - 彩 (華村翔真、猫柳キリオ、清澄九郎)
+
+21. 交わる季節 - M@STER SPARKLE2 06 - 四条貴音
+
+22. キラッ！満開スマイル - LITTLE STARS! 01 - 島村卯月、小日向美穂、佐久間まゆ、櫻井桃華、双葉杏
+
+23. HAREBARE!! - THE IDOLM@STER SHINY COLORS COLORFUL FE@THERS -Sol- - 八宮めぐる(CV.峯田茉優)
+
+24. ラブ・ボナペティート - L@YERED WING 05 - アルストロメリア
+
+25. ミラージュ・ミラー - MILLION THE@TER GENERATION 14 Charlotte・Charlotte - Charlotte・Charlotte ・ 徳川まつり、エミリー スチュアート
+
+26. はるかぜバトン - GROWING SIGN@L 07 もふもふえん - もふもふえん (岡村直央、橘志狼、姫野かのん)
+
+27. ミライコンパス (M@STER VERSION) - ミライコンパス (M@STER VERSION) - 望月聖(CV:原涼子)、佐久間まゆ(CV:牧野由依)、緒方智絵里(CV:大空直美)、依田芳乃(CV:高田憂希)、高森藍子(CV:金子有希)
+
+28. Forward March！！！ - THE IDOLM@STER SHINY COLORS _CANVAS_ 01 - イルミネーションスターズ
+
+29. Delicious Delivery - NEW STAGE EPISODE 04 Café Parade - Café Parade (神谷幸広、東雲荘一郎、アスラン=BB世、卯月巻緒、水嶋咲)
+
+30. カラフル・シンメトリー - THE iDOLM@STER SideM 49 ELEMENTS -03 Beit - 渡辺みのり (CV.高塚智人)
+
+31. チェリー (PRODUCER MEETING 2017 MIX) - PLATINUM MASTER ENCORE 紅白応援V - 765PRO ALLSTARS
+
+32. イルミネイトコンサート - PANOR@MA WING 02 - イルミネーションスターズ
+
+33. チェリー - MASTER SPECIAL SPRING - 天海春香、水瀬伊織、我那覇響、秋月律子、菊地真、萩原雪歩
+
+34. 拝啓タイムカプセル - L@YERED WING 04 - 放課後クライマックスガールズ
+
+35. リローディング - vα-liv CD'リローディング' - vα-liv (灯里愛夏、上水流宇宙、レトラ)</blockquote>
+

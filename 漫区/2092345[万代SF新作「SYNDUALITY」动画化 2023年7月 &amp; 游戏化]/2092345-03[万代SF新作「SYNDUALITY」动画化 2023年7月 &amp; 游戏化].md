@@ -5331,3 +5331,13 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 最后几话起码战斗演出和分镜要做好，甚至要比上半部分二次风暴来袭时更好才行<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白玫瑰之夜  
+##### 4298#       发表于 2024-3-8 16:35
+
+建议编剧还是识相点，最好上了天从路边再捡个零式机回来把诺瓦放进去挪挪位<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

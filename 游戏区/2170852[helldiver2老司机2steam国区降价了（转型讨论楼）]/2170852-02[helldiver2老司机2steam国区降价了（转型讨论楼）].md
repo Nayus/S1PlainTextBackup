@@ -435,3 +435,22 @@ PS5版，还是能一颗炸死。</blockquote><img src="https://static.saraba1st
 最近通过大量测试发现，如果主机是在 PS5 上玩游戏，胆汁泰坦只需 2-3 次击中轨 ...</blockquote>
 日了，还能这样，又要上pc赚钱又要暗改数据，真的是**立牌坊
 
+
+*****
+
+####  smdzh2  
+##### 1519#       发表于 2024-3-8 18:07
+
+最快什么时候可以开机甲，我要踩爆贱头的亲妈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 1520#       发表于 2024-3-8 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64192248&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-03-08 18:07:30</a>
+最快什么时候可以开机甲，我要踩爆贱头的亲妈</blockquote>天关的poi有概率刷出机甲
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

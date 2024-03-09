@@ -437,3 +437,14 @@ bgm人声有点难受
 
 原本想无脑预购的，看完还是等等实际风评再说了，预告真的太会剪。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 362#       发表于 2024-3-9 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200461&amp;ptid=1978008" target="_blank">operatbig 发表于 2024-3-9 17:59</a>
+
+那打怪途中突然出现的按键提示什么意思...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">QTE
+

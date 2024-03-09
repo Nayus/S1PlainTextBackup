@@ -596,3 +596,11 @@ ost1封面出了 看来石锤猫组是夏季追加了
 <img src="https://p.sda1.dev/16/a9542e95eaf460f031da12af1434543c/Animedia-202404-072.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/67ac5db39802de94afda2829b0b5fe50/Animedia-202404-073.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 1139#       发表于 2024-3-10 07:44
+
+啊一罗哈的肩膀
+

@@ -345,3 +345,25 @@ bgm人声有点难受
 
 这个脸，我个人是真的看不习惯
 
+
+*****
+
+####  临界点  
+##### 352#       发表于 2024-3-9 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64199808&amp;ptid=1978008" target="_blank">skgaminger1988 发表于 2024-3-9 16:30</a>
+
+匹诺曹xgp入库 pc300，坛友对这个卖500全价的烧鸡韩游要求有点高</blockquote>
+匹诺曹动作比这个好多了   既然都是韩游又是第一次3A  拿来对比有何不可
+
+
+*****
+
+####  缺德猫  
+##### 353#       发表于 2024-3-9 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200149&amp;ptid=1978008" target="_blank">临界点 发表于 2024-3-9 17:16</a>
+
+匹诺曹动作比这个好多了   既然都是韩游又是第一次3A  拿来对比有何不可</blockquote>
+洛奇英雄传那套系统挺爽，那个组应该搞单机，很有前途。
+

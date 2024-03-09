@@ -11312,3 +11312,16 @@ IMG_3003.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kirakira~  
+##### 2624#       发表于 2024-3-9 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200044&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-3-9 17:04</a>
+
+原来五月才上，没注意，那看着还行，谷预热趁公开热度了属于是
+
+这个培养过程的歌好坏两版的设定先不说最后 ...</blockquote>
+这次说还会随着养成的进度live地点从小场馆到大场馆之类的，感觉在养成感上面下了很多功夫（
+

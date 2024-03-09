@@ -5583,3 +5583,24 @@ NS版搜啥关键字？我日服港服都没搜到
 balatro已经在全平台售出了50万份拷贝。</blockquote>
 拷贝是啥意思啊
 
+
+*****
+
+####  库德里尔  
+##### 494#       发表于 2024-3-9 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64199218&amp;ptid=2154925" target="_blank">bigraymond 发表于 2024-3-9 15:11</a>
+更新啦 晚上试试看</blockquote>
+仔细玩了一下发现很多地方还是有小问题，比如字符串后面莫名其妙的逗号看着很出戏
+不过应该没有影响游玩的问题了，比如卡面描述
+
+*****
+
+####  库德里尔  
+##### 495#       发表于 2024-3-9 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64199250&amp;ptid=2154925" target="_blank">tornadoDA 发表于 2024-3-9 15:16</a>
+拷贝是啥意思啊</blockquote>
+copy
+我应该直接说售出50万份的 更简单易懂
+

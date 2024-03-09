@@ -934,3 +934,15 @@ steam 才18万在线啊，这也能炸
 
 这游戏是不是一定要联机玩，感觉玩最低难度我也单刷不了，但联机感觉又太拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  范坚强  
+##### 1568#       发表于 2024-3-9 10:04
+
+<blockquote>风萧飒 发表于 2024-3-9 00:46
+这不把机甲当额外战略配备给大伙爽一会
+
+—— 来自 S1Fun</blockquote>
+说的不错 今天武器测试就是机甲 加上自己买的可以一次扔两台总共扔三台
+

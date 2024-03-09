@@ -2010,3 +2010,128 @@ b公司彩虹</blockquote>
 —— 来自 Xiaomi 2211133C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 单人专楼好像有但没人，大概外面[巧克拉拉楼](https://bbs.saraba1st.com/2b/thread-1966145-1-1.html)讨论比较多，也讨论其他进口樱花妹的样子。顺便一提B综主要是维阿
 
+
+*****
+
+####  sekai2014  
+##### 73#       发表于 2024-3-9 15:28
+
+看来b社法务以前薪水就是低的了，都补不上自由职业者
+
+<img src="https://img.saraba1st.com/forum/202403/09/152203hmrmereimqqmub9f.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 151928.png</strong> (129.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152202nme13bnnrtxttnxm.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 151937.png</strong> (135.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152202rrt5okos5voi5tgv.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 151946.png</strong> (116.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+-----------------------------------------------------------------------------------------------------------------------
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/09/152202ierh92c90ry1r21s.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152022.png</strong> (133.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152201x7fm5fnmajx7jnxv.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152029.png</strong> (126.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152201dll6lpikfsifmzps.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152035.png</strong> (152.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152201ahhqv4mam74ara6r.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152051.png</strong> (115.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152201b36uhb9lb5omyjhg.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152057.png</strong> (102.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152201f33hzc3yfygf3xff.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152113.png</strong> (162.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152200mys5fyklchb5zsjn.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152123.png</strong> (140.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152200pfq6t22o27efol76.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152128.png</strong> (120.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152200dhvp7trp1zts701s.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152133.png</strong> (134.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152159bseekxvltkznnkad.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152140.png</strong> (128.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:21 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/152158xpywwogm72124gyw.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-09 152146.png</strong> (133.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:21 上传
+
+劳动部门出面后秒怂，不过要求赔偿金减半
+

@@ -6111,3 +6111,12 @@ epd5是不是没有检查场景美术方面的bug的员工
 
 现在开打是不是不用打了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ryuuseigun  
+##### 3600#       发表于 2024-3-9 23:20
+
+匹配到的野人ID笑了半天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谁懂我的笑点
+<img src="https://p.sda1.dev/16/75e0b5d0e58226852bed98a9f4552f32/Screenshot_2024-03-09-23-06-22-73_ddeaecd32494ea01189cfb481b91c95b.jpg" referrerpolicy="no-referrer">
+

@@ -8294,3 +8294,11 @@ Choir ‘S’ Choir
 
 所以大牌姐什么时候单飞把资源让给有需要的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 14037#       发表于 2024-3-9 19:28
+
+打牌姐快去打您的牌吧，邦邦容不下您这尊大菩萨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

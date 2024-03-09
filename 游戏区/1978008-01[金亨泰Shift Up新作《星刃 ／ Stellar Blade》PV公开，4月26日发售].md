@@ -514,3 +514,11 @@ QTE</blockquote>
 
 看了那个开头13分钟演示，英语配音水平非常低，等日语了。
 
+
+*****
+
+####  寂长无星夜  
+##### 370#       发表于 2024-3-9 21:41
+
+等打折，70刀买这游戏感觉有点傻<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+

@@ -156,3 +156,11 @@ bgm人声有点难受
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">成绩和匹诺曹差不多就算可以了
 
+
+*****
+
+####  黑酒杯  
+##### 330#       发表于 2024-3-9 11:58
+
+看着防御和闪避性能都不错啊，这种风格的游戏应该是走爽游路线吧
+

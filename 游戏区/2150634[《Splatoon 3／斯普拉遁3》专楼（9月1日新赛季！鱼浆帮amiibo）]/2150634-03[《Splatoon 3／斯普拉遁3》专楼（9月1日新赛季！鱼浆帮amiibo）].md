@@ -6009,3 +6009,16 @@ epd5是不是没有检查场景美术方面的bug的员工<img src="https://stat
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  DeltaStriker  
+##### 3590#       发表于 2024-3-9 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64196891&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-3-9 09:46</a>
+epd5是不是没有检查场景美术方面的bug的员工
+有些从上线就有的到现在都没修</blockquote>
+草 我没看出哪里有bug.……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

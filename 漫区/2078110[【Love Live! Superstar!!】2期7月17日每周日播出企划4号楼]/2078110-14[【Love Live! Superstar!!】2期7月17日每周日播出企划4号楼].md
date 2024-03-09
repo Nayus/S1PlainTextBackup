@@ -340,3 +340,34 @@ chiha真可爱啊
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 19743#       发表于 2024-3-9 17:55
+
+居然有小组新曲
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 19744#       发表于 2024-3-9 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200416&amp;ptid=2078110" target="_blank">starring 发表于 2024-3-9 17:55</a>
+居然有小组新曲
+
+—— 来自 Sony XQ-DQ72, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+short版
+
+
+*****
+
+####  starring  
+##### 19745#       发表于 2024-3-9 18:03
+
+三首新歌初听都不错，只是K组那首的风格还是那样<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -327,3 +327,13 @@ bgm人声有点难受
 
 期待褒姒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后乖乖回去做手游来自: iPhone客户端
 
+
+*****
+
+####  葵  
+##### 350#       发表于 2024-3-9 16:53
+
+本来服装好好看有点心动想预定了算了。
+
+但是今天看看demo感觉动作还没匹诺曹扎实，搞不好会是又一个木卫四，木卫四我380冲首发最后暴死到PSN直接送实在是太惨烈了，这次500块的油腻师姐我就不凑热闹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

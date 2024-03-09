@@ -210,3 +210,20 @@ Nagio也就155，在阿鱼眼里也是属于“小小的很可爱”吧<img src=
 
 YYY的这抽象mv我怎么没印象？
 
+
+*****
+
+####  仟音一心  
+##### 19727#       发表于 2024-3-9 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64199703&amp;ptid=2078110" target="_blank">言可 发表于 2024-3-9 16:14</a>
+YYY的这抽象mv我怎么没印象？</blockquote>
+第一次披露
+
+*****
+
+####  qty  
+##### 19728#       发表于 2024-3-9 16:20
+
+感觉k组的曲风在这种场子很吃亏啊
+

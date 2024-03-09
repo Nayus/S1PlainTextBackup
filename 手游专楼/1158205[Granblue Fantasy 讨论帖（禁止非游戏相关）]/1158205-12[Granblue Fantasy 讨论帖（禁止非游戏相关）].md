@@ -204,3 +204,30 @@ CY美术组过劳死了？这放出的新图没一张不是草稿的<img src="ht
 
 pro的全角色也太pro了 有几个古战场联动角色是真绝版啊
 
+
+*****
+
+####  adretyu67.  
+##### 17678#       发表于 2024-3-9 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64201995&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2024-3-9 20:41</a>
+
+别乱说，塔罗1.0能直接9票一次还是小声欢呼了
+
+这十周年还行吧，算是逐步在推进更新，近期的更新也 ...</blockquote>
+我意见比较大的是6把方阵3.0武器连图都没有一张。
+
+不过以前周年生放送那会新职业也有过草图。
+
+*****
+
+####  adretyu67.  
+##### 17679#       发表于 2024-3-9 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64202765&amp;ptid=1158205" target="_blank">Geyorkias 发表于 2024-3-9 21:49</a>
+
+实装也不会是草图，无所谓了。
+
+就是这老王终破实在是离谱，看了下没一个属性能拆出5个球的，最多的 ...</blockquote>
+团友说可以给0突老王上JGJ，最多喂到100拆4个出来。等于1jgj交换1老王
+

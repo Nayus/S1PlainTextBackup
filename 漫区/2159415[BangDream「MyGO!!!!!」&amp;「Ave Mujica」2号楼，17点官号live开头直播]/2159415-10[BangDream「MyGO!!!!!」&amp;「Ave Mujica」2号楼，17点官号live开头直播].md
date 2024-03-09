@@ -8521,3 +8521,11 @@ Cooooool Kanon
 
 要不要版本更替这么快，这样感觉错过一场live就会度过失败的人生了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 14054#       发表于 2024-3-9 23:37
+
+这个声优奖现在基本是颁给作品和角色的，主要看这个作品去年火不火，要不看看同样在邦的去年新人奖直田姬奈最近有什么新角色吗（
+

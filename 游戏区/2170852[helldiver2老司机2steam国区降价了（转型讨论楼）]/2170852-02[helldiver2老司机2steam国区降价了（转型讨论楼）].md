@@ -914,3 +914,15 @@ steam 才18万在线啊，这也能炸
 
 侦查轻甲+UAV提升+蛋盾+电磁枪 单人跑虫子图压力不大。今天倒是遇到两次开黄光舱门之后卡在地上不动两次，开枪都开不了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 1566#       发表于 2024-3-9 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64196198&amp;ptid=2170852" target="_blank">stormquantage 发表于 2024-3-9 03:23</a>
+侦查轻甲+UAV提升+蛋盾+电磁枪 单人跑虫子图压力不大。今天倒是遇到两次开黄光舱门之后卡在地上不动两次， ...</blockquote>
+没事，是通病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

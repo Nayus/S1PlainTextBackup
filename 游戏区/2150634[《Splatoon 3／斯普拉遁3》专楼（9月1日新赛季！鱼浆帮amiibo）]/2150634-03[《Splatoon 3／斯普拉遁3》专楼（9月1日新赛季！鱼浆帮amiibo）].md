@@ -5990,3 +5990,22 @@ melon的主意，不是很懂<img src="https://static.saraba1st.com/image/smiley
 
 这次大润地图好，第一把熟悉地图，第二把就过一本线了。下工！
 
+
+*****
+
+####  KBAC  
+##### 3589#       发表于 2024-3-9 09:46
+
+<img src="https://img.saraba1st.com/forum/202403/09/094340fqr9pea33l9weypl.jpg" referrerpolicy="no-referrer">
+
+<strong>img_8967.jpg</strong> (260.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 09:43 上传
+
+epd5是不是没有检查场景美术方面的bug的员工<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+有些从上线就有的到现在都没修
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

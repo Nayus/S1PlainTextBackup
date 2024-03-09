@@ -8310,3 +8310,20 @@ Choir ‘S’ Choir
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我是团魂蛆，为什么灰爱音这种东西能正大光明地出现在各个社群啊，要吐了
 
+
+*****
+
+####  江口夕  
+##### 14039#       发表于 2024-3-9 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">主演就俩，还要切割一个，底边声优要羡慕死了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  PDQ4  
+##### 14040#       发表于 2024-3-9 19:46
+
+看着各种repo心好痒，只能俩月后看到3分钟剪辑那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+

@@ -16,3 +16,12 @@
 
 之前看视角就感觉是soulike
 
+
+*****
+
+####  Piano-Forest  
+##### 314#         楼主| 发表于 2024-3-9 09:57
+
+Demo应该会在近期公开（现已下架），存档可继承到正式版中使用
+<img src="https://p.sda1.dev/16/f3f3b95c66aed92d619d8289fa490b21/20240309_094243.jpg" referrerpolicy="no-referrer">
+

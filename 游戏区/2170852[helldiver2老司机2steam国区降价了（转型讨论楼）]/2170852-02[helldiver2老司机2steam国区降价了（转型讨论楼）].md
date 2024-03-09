@@ -926,3 +926,11 @@ steam 才18万在线啊，这也能炸
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  normalli  
+##### 1567#       发表于 2024-3-9 09:56
+
+这游戏是不是一定要联机玩，感觉玩最低难度我也单刷不了，但联机感觉又太拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

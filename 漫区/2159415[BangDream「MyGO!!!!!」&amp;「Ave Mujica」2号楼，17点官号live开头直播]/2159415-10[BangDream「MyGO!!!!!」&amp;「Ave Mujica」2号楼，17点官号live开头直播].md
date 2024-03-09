@@ -8390,3 +8390,23 @@ Choir ‘S’ Choir
 —— 来自 S1Fun</blockquote>
 Cooooool Kanon
 
+
+*****
+
+####  基神的强袭自由  
+##### 14045#       发表于 2024-3-9 20:35
+
+为什么我不是Leo君<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nebulanoby  
+##### 14046#       发表于 2024-3-9 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200690&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-3-9 18:26</a></blockquote>
+能样你糊邦出现在主办方的PPT上面，还不给杨姐磕一个
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

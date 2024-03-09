@@ -513,3 +513,15 @@ K组新曲好一般啊
 <img src="https://p.sda1.dev/16/4ce9f42ba88bb6a21a4024fa75fb0374/Image_1709987371421.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/86dc59a0c7e18c7665dbe773c53c562f/Image_1709987374668.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 19763#       发表于 2024-3-9 20:43
+
+虽然是三角仰视的设计思路，不过恋怎么脸那么小一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+卡了组这次又是苦情曲咩
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

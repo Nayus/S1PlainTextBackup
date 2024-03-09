@@ -84,3 +84,29 @@ CY美术组过劳死了？这放出的新图没一张不是草稿的<img src="ht
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 17667#       发表于 2024-3-9 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64201740&amp;ptid=1158205" target="_blank">usoda 发表于 2024-3-9 20:17</a>
+
+太真实了吧，肉村全程司马脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别乱说，塔罗1.0能直接9票一次还是小声欢呼了
+
+这十周年还行吧，算是逐步在推进更新，近期的更新也多。方阵3.0又有3把新武器，新的时代要来了。就是草图太多了，连冬泳都是草图。不过国内一如既往黑泥一堆的氛围就是
+
+
+*****
+
+####  usoda  
+##### 17668#       发表于 2024-3-9 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64201995&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2024-3-9 20:41</a>
+
+别乱说，塔罗1.0能直接9票一次还是小声欢呼了
+
+这十周年还行吧，算是逐步在推进更新，近期的更新也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没记错第一次上草图是给主角十天总皮肤那次，那会儿我就挺差异了，这种场合丢草图上来是不是有点太难看，没想到过了几年已经发展到全草图了，太他妈离谱了，听说CY在狂招美术来着，大概这美术组的人是真都快猝死了吧
+

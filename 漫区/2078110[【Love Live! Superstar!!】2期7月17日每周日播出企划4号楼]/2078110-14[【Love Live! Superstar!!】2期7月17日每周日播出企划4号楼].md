@@ -493,3 +493,23 @@ K组新曲好一般啊
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ruffian  
+##### 19761#       发表于 2024-3-9 19:58
+
+感觉都挺一般的，不知道是不是预期太高了惊喜感还不如上次，而且不是很能get到k组和5组的节奏突变……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 19762#       发表于 2024-3-9 20:30
+
+小组单封面
+<img src="https://p.sda1.dev/16/8a9b6b20a34fb4fe43c6e5618a0e8a6d/Image_1709987369192.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/4ce9f42ba88bb6a21a4024fa75fb0374/Image_1709987371421.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/86dc59a0c7e18c7665dbe773c53c562f/Image_1709987374668.jpg" referrerpolicy="no-referrer">
+

@@ -1191,3 +1191,14 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 —— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  FLZB  
+##### 1594#       发表于 2024-3-10 06:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64205014&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-3-10 01:42</a>
+
+PCer宏用的很熟练啊，半秒搓球救人</blockquote>
+⇧⇩⇨⇦⇧是刻进地狱杂兵DNA的战备代码好吧，作为老手这都没法闭着眼瞬间搓出来的话那还是别玩了。
+

@@ -448,3 +448,32 @@ bgm人声有点难受
 那打怪途中突然出现的按键提示什么意思...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">QTE
 
+
+*****
+
+####  operatbig  
+##### 363#       发表于 2024-3-9 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200699&amp;ptid=1978008" target="_blank">karastar 发表于 2024-3-9 18:26</a>
+
+QTE</blockquote>
+太古怪了吧...突然插个莫名其妙的qte，简简单单做成闪避不行吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 364#       发表于 2024-3-9 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200986&amp;ptid=1978008" target="_blank">operatbig 发表于 2024-3-9 19:04</a>
+太古怪了吧...突然插个莫名其妙的qte，简简单单做成闪避不行吗？</blockquote>
+我猜是按键提示，类似红光提醒，直接闪也可以
+
+*****
+
+####  哆哆鸡  
+##### 365#       发表于 2024-3-9 19:05
+
+不是谁都像cy那样直接把别人工作室买下来做游戏的
+
+手游厂第一次做单机，除了涩涩以外放低期待比较好
+

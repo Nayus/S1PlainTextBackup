@@ -42,3 +42,19 @@ Demo应该会在近期公开（现已下架），存档可继承到正式版中�
 
 这demo一下给看萎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纱布光环  
+##### 317#       发表于 2024-3-9 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了demo演示，突然觉得这游戏能有8分就是胜利
+
+
+*****
+
+####  hypnossz86  
+##### 318#       发表于 2024-3-9 10:43
+
+你们对一个卖美术的手游公司有什么莫名期待
+

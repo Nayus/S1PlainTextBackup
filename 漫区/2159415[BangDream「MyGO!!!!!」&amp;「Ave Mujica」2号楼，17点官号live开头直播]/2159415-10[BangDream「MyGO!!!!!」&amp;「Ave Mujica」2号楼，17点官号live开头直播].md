@@ -8410,3 +8410,13 @@ Cooooool Kanon
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Arrogate  
+##### 14047#       发表于 2024-3-9 20:50
+
+<blockquote>cindy355 发表于 2024-3-9 19:37
+我是团魂蛆，为什么灰爱音这种东西能正大光明地出现在各个社群啊，要吐了 ...</blockquote>
+灰爱音是啥，退团跑路流？
+

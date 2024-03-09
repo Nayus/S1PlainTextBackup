@@ -182,3 +182,25 @@ CY美术组过劳死了？这放出的新图没一张不是草稿的<img src="ht
 
 月卡这东西看着最屌的不是任务自发数+1吗，别的农武器的暂时不论，大巴超巴、天元极法不知道加不加？反正明天就知道了，加的话那也太值了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iqbsh38  
+##### 17676#       发表于 2024-3-9 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64162116&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-6 09:38</a>
+
+至少比黑帮街演龙珠超布罗利好
+
+那个周年根本就不知所谓，都不知道重点在哪里。至少这次是不死鸟搞事，主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">周年最好的还是机神完结篇啊
+
+武侠恩怨情仇 boymeetgirl 超级机器人大战
+
+*****
+
+####  iqbsh38  
+##### 17677#       发表于 2024-3-9 23:04
+
+pro的全角色也太pro了 有几个古战场联动角色是真绝版啊
+

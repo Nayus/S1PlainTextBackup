@@ -247,3 +247,11 @@ YYY的这抽象mv我怎么没印象？</blockquote>
 感觉k组的曲风在这种场子很吃亏啊</blockquote>
 还是夹在gk和猫这两组的曲风中间，温度差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qty  
+##### 19731#       发表于 2024-3-9 16:42
+
+我去，莲的这个jk水平好高，高音机能可能比不上pay，技巧方面应该是在pay之上的
+

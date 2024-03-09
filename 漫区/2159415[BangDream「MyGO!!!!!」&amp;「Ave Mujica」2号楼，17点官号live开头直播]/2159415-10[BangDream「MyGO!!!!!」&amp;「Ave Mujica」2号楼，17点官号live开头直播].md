@@ -8183,3 +8183,11 @@ Choir ‘S’ Choir
 
 [https://twitter.com/Kanon_Takao/status/1766370625453789236](https://twitter.com/Kanon_Takao/status/1766370625453789236)
 
+
+*****
+
+####  Akari  
+##### 14029#       发表于 2024-3-9 16:45
+
+严格遵守世界观，面罩不能摘。
+

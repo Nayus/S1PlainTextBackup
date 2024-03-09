@@ -11282,3 +11282,14 @@ IMG_3003.jpeg
 
 感觉是不是故意做的像是现场版的效果？确实怪怪的
 
+
+*****
+
+####  kirakira~  
+##### 2621#       发表于 2024-3-9 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64199718&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-3-9 16:16</a>
+
+很明显是宣传中说过一好一坏中坏的那版，蓝的mv里出现和声非常抢的问题，这首歌调音效果器非常重，录音室版 ...</blockquote>
+而且换气的部分有点离谱到像做作了。很难想象如果这是最终版这个能过
+

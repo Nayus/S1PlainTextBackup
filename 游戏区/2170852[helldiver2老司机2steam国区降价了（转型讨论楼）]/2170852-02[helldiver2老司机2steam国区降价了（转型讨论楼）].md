@@ -1082,3 +1082,16 @@ steam 才18万在线啊，这也能炸
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  拔丝光头  
+##### 1583#       发表于 2024-3-9 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64199205&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-9 15:10</a>
+
+机甲打虫子确实爽，有点想原谅箭头这几天乱搞了
+
+—— 来自 S1Fun</blockquote>
+削武器，增加敌人数量，新装备。三件事但凡一起更新的都不会有这么大骂声。哪怕只削磁轨不把N9改的坦克虫泰坦满地走大伙都能忍<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+

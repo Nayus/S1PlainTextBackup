@@ -174,3 +174,11 @@ bgm人声有点难受
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  icylight  
+##### 332#       发表于 2024-3-9 12:57
+
+索尼发行的第三方游戏不需要担心质量，死亡搁浅，仁王都是索尼发行的，保底80分肯定是有的
+

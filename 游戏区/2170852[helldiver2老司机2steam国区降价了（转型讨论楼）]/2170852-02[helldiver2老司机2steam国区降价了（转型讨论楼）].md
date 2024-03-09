@@ -1072,3 +1072,13 @@ steam 才18万在线啊，这也能炸
 我反正不敢穿轻甲了，现阶段垫料中甲应该是性价比最高的，能扛能跑</blockquote>
 我是习惯轻甲反而穿中甲和重甲狠狠暴毙，轻甲配蛋壳依旧好用，难9带榴弹飞鹰轨道激光拉怪单走当跑男给队友减压
 
+
+*****
+
+####  风萧飒  
+##### 1582#       发表于 2024-3-9 15:10
+
+机甲打虫子确实爽，有点想原谅箭头这几天乱搞了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

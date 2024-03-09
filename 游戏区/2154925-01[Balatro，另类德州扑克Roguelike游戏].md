@@ -5561,3 +5561,15 @@ NS版搜啥关键字？我日服港服都没搜到
 
 好久没买过新游戏了，在手机上试了下感觉不错昨晚入正，前几把先随便打打见到未发现的就选，选的差不多了从同花试试
 
+
+*****
+
+####  bigraymond  
+##### 492#       发表于 2024-3-9 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195770&amp;ptid=2154925" target="_blank">库德里尔 发表于 2024-3-9 01:11</a>
+1.0.0n的本地化更新实在是不错</blockquote>
+更新啦 晚上试试看
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

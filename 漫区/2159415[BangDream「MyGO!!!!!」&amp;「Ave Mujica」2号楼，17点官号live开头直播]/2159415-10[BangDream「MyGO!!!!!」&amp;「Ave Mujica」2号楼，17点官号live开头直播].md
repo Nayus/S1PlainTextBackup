@@ -8420,3 +8420,14 @@ Cooooool Kanon
 我是团魂蛆，为什么灰爱音这种东西能正大光明地出现在各个社群啊，要吐了 ...</blockquote>
 灰爱音是啥，退团跑路流？
 
+
+*****
+
+####  cindy355  
+##### 14048#       发表于 2024-3-9 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64202122&amp;ptid=2159415" target="_blank">Arrogate 发表于 2024-3-9 20:50</a>
+
+灰爱音是啥，退团跑路流？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一种名叫灰爱音但我不知道到底哪里爱音了的奇妙二创生物，主要特征跟你说的差不多。
+

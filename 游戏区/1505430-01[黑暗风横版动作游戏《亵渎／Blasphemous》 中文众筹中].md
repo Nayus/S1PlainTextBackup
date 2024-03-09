@@ -1695,3 +1695,18 @@ the last door很不错，还以为这个制作组是专门做这种剧情类AVG�
 
 真结局不止佩佩塔的遗物，网上找找攻略吧，不过你没拿到纯绝孽刃之心打了克兰莎估计这周目进不了真结局了
 
+
+*****
+
+####  lovepenny  
+##### 171#       发表于 2024-3-9 21:16
+
+<blockquote>引用第169楼tbone于2024-03-09 21:01发表的  :
+
+引用:lovepenny 发表于 2024-3-9 19:45中午打完了，结果发现打了个最搓的结局，......</blockquote>
+@tbone
+
+这nm真结局就多一个傻吧辣鸡的boss，流程复杂好多，这不看攻略，谁能想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

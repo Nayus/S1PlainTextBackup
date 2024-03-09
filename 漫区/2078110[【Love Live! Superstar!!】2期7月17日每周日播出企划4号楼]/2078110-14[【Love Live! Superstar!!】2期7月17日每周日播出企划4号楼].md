@@ -525,3 +525,13 @@ K组新曲好一般啊
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19764#       发表于 2024-3-9 21:05
+
+相比戴猫耳的猫组和背景是万花筒的卡组，5组的设计可以说是约等于没有了，难道真的以数字5作为特色么......
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

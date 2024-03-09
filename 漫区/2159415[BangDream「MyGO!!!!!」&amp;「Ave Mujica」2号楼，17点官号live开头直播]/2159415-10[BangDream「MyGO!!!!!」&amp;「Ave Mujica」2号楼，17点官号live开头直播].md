@@ -8085,3 +8085,83 @@ Choir ‘S’ Choir
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，怎么返图面具还带着
 
+
+*****
+
+####  御幸一也  
+##### 14027#       发表于 2024-3-9 15:41
+
+官圖<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/09/154039wjj8qn6j9fjjfjel.jpg" referrerpolicy="no-referrer">
+
+<strong>GINl3YzasAA0Hus.jpg</strong> (830.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:40 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/154029lvnrkzelqplllno9.jpg" referrerpolicy="no-referrer">
+
+<strong>GINl3YybEAAFQly.jpg</strong> (745.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:40 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/154046qzj1mrr1johv5jvo.jpg" referrerpolicy="no-referrer">
+
+<strong>GINl3Y1bAAArc1e.jpg</strong> (787.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:40 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/154054dsqs3cnvchusgn3w.jpg" referrerpolicy="no-referrer">
+
+<strong>GINl3YxaEAA45wJ.jpg</strong> (686.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:40 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/154116tm8g6o5pp2kc43o3.jpg" referrerpolicy="no-referrer">
+
+<strong>GINmCV0bMAAVBFC.jpg</strong> (469.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/154121hzyqy3lzrla2eu48.jpg" referrerpolicy="no-referrer">
+
+<strong>GINmDdGbMAAECeF.jpg</strong> (470.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/154105lh6dplhji9he8fbl.jpg" referrerpolicy="no-referrer">
+
+<strong>GINmDdCaYAAGxNb.jpg</strong> (743.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 15:41 上传
+
+[https://twitter.com/MEGAVEGAS_KOBE/status/1766367577935413555](https://twitter.com/MEGAVEGAS_KOBE/status/1766367577935413555)
+
+[https://twitter.com/MEGAVEGAS_KOBE/status/1766367886606848428](https://twitter.com/MEGAVEGAS_KOBE/status/1766367886606848428)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nebulanoby| + 1||
+
+查看全部评分
+

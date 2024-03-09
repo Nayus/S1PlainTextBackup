@@ -261,3 +261,13 @@ bgm人声有点难受
 
 绵软无力+僵硬，单机ACT没积累就入局也只能这样了。
 
+
+*****
+
+####  rainsheep  
+##### 343#       发表于 2024-3-9 15:41
+
+反正也不是冲游戏性去的，能正常通关就算胜利。看了视频，很难想象这种风格的游戏会是现在白皮sie的限时独占<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

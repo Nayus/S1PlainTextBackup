@@ -1171,3 +1171,13 @@ steam 才18万在线啊，这也能炸
 https://youtu.be/sWQxg5mIzT8?si=s1Pn9G3xBsDF-TKt&amp;t=293</blockquote>
 PCer宏用的很熟练啊，半秒搓球救人
 
+
+*****
+
+####  2VYBGp94  
+##### 1592#       发表于 2024-3-10 05:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64205014&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-3-10 01:42</a>
+PCer宏用的很熟练啊，半秒搓球救人</blockquote>
+玩过一代的谁不是半秒搓援军
+

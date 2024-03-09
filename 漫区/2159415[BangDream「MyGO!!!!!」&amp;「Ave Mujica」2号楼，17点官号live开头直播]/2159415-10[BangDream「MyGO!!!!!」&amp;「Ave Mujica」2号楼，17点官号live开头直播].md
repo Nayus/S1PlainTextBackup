@@ -8020,3 +8020,11 @@ Choir ‘S’ Choir
 
 蹲一手官方repo<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14023#       发表于 2024-3-9 14:43
+
+不惜一切代价，保住世界观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

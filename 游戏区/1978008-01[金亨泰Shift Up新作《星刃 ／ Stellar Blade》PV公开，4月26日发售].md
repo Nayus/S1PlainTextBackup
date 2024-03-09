@@ -220,3 +220,21 @@ bgm人声有点难受
 
 平砍太飘动作缺乏节奏感，其它还好
 
+
+*****
+
+####  泉美  
+##### 338#       发表于 2024-3-9 14:36
+
+这游戏不会有人期待什么战斗手感吧，玩的部分能少捏点鼻子通关就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ranapocket  
+##### 339#       发表于 2024-3-9 14:43
+
+这游戏日版会有中文字幕吗，不过就算没有日版也比港版便宜好多，有点想入日版。
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

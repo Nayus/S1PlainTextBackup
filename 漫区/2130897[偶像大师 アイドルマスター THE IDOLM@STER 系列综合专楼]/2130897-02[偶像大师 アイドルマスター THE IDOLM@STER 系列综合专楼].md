@@ -11246,3 +11246,16 @@ IMG_3003.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kirakira~  
+##### 2617#       发表于 2024-3-9 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64198591&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-9 13:51</a>
+
+五月才发售，到时候直播就全公开了其实
+
+—— 来自 S1Fun</blockquote>
+五月应该都开服了（
+

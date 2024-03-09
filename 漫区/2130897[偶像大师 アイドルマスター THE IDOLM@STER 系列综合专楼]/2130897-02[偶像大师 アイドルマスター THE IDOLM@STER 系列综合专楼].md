@@ -11325,3 +11325,11 @@ IMG_3003.jpeg
 这个培养过程的歌好坏两版的设定先不说最后 ...</blockquote>
 这次说还会随着养成的进度live地点从小场馆到大场馆之类的，感觉在养成感上面下了很多功夫（
 
+
+*****
+
+####  rgauss  
+##### 2625#       发表于 2024-3-9 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">cd的情报呢 不开游戏不放是吧
+

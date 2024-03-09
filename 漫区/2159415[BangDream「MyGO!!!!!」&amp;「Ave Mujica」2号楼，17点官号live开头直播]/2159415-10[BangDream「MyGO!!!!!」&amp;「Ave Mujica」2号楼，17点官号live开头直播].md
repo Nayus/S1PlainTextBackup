@@ -8205,3 +8205,13 @@ Choir ‘S’ Choir
 
 2024-3-9 17:25 上传
 
+
+*****
+
+####  Aendst  
+##### 14031#       发表于 2024-3-9 17:35
+
+连着七首也能保持质量，下一步就可以是多来点新曲增加live曲目数了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+虽然这么想可能有点对不起米泽和渡濑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

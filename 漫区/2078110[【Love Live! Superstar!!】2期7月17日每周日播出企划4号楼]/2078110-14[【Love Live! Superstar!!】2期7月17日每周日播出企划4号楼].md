@@ -535,3 +535,15 @@ K组新曲好一般啊
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  s3081260  
+##### 19765#       发表于 2024-3-10 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64201874&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-3-9 20:30</a>
+小组单封面
+CatChu!
+　「ディストーション」</blockquote>
+k组的图感觉透视有问题，看的别扭，构图倒是思路挺好的
+

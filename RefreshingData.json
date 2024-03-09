@@ -6927,7 +6927,7 @@
     "lastedit": 1710010320,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1221128": {
     "totalreply": 4635,
@@ -17829,10 +17829,10 @@
     "update": false
   },
   "2174819": {
-    "totalreply": 46,
+    "totalreply": 48,
     "title": "[触摸按键是不是一个坏科技]",
     "newtitle": "[触摸按键是不是一个坏科技]",
-    "lastedit": 1710011769,
+    "lastedit": 1710012366,
     "category": "外野",
     "active": true,
     "update": false

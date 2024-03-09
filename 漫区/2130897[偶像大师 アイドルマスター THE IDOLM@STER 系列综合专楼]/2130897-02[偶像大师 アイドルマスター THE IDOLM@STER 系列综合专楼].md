@@ -11357,3 +11357,56 @@ IMG_3003.jpeg
 
 当年的中村先生的大肠和户松遥的alive老实说也不怎么行嘛，虽然主要是豪哥的曲子比较折磨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 2629#       发表于 2024-3-9 18:04
+
+ 本帖最后由 江口夕 于 2024-3-9 18:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说giga这歌不如隔壁日摇好修，要起码本人做最后的后期
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  Vacuolar  
+##### 2630#       发表于 2024-3-9 18:10
+
+如果说对比大肠（live版），那红的这首可太好听了
+
+*****
+
+####  rgauss  
+##### 2631#       发表于 2024-3-9 18:10
+
+怎么今天突然憋两个mv出来
+
+*****
+
+####  ViviR  
+##### 2632#       发表于 2024-3-9 18:12
+
+ 本帖最后由 ViviR 于 2024-3-9 18:13 编辑 
+
+黄c的solo片段也放出来了。目前观感相对最好最觉得没啥毛病的。最后这个飞吻不错。感觉这次学马仕开局信号灯推黄c的会最多。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 2633#       发表于 2024-3-9 18:15
+
+哎 飞吻<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 2634#       发表于 2024-3-9 18:16
+
+目前群里转的同人图也是小黄最多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

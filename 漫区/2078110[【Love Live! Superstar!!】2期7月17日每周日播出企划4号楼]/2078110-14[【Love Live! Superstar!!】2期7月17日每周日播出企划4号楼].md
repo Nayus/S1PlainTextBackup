@@ -371,3 +371,32 @@ short版
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  280041437  
+##### 19746#       发表于 2024-3-9 18:05
+
+这次有舞蹈，而且曲子变high了，不亏
+
+*****
+
+####  cybernetics31  
+##### 19747#       发表于 2024-3-9 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能secret吗………………
+
+*****
+
+####  csolfans  
+##### 19748#       发表于 2024-3-9 18:08
+
+可以！竟然有新曲试听
+
+*****
+
+####  stygian  
+##### 19749#       发表于 2024-3-9 18:10
+
+大久保赶紧滚蛋行不行啊
+

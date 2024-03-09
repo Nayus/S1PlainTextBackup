@@ -8215,3 +8215,29 @@ Choir ‘S’ Choir
 
 虽然这么想可能有点对不起米泽和渡濑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arachnid  
+##### 14032#       发表于 2024-3-9 18:10
+
+节约宝~<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/09/180924jw5twqstwl35ss0q.jpg" referrerpolicy="no-referrer">
+
+<strong>GINv6G1bkAAnQhs.jpg</strong> (441.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/180928w4as9d3h3f6saoyu.jpg" referrerpolicy="no-referrer">
+
+<strong>GINv6G4a8AAbyd_.jpg</strong> (362.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 18:09 上传
+
+[https://twitter.com/Watase_Yuzuki/status/1766378543288909921](https://twitter.com/Watase_Yuzuki/status/1766378543288909921)
+

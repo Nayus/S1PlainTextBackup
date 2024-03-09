@@ -1203,3 +1203,13 @@ ami：田村ゆかり
 
 —— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  zayrq  
+##### 102#       发表于 2024-3-9 08:23
+
+这个cv阵容很想看，但为什么是元永大师<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

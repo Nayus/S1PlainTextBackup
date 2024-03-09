@@ -271,3 +271,25 @@ bgm人声有点难受
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  kuker53  
+##### 344#       发表于 2024-3-9 16:02
+
+<img src="https://img.saraba1st.com/forum/202403/09/160249ooxrbg37tu84c5zg.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1709971362841.jpg</strong> (146.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-9 16:02 上传
+
+*****
+
+####  kuker53  
+##### 345#       发表于 2024-3-9 16:03
+
+这玩意属于不能在客厅玩的类型
+

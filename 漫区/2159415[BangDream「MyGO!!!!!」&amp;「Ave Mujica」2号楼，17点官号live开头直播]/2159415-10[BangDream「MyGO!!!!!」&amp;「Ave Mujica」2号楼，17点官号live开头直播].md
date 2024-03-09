@@ -7968,3 +7968,30 @@ Choir ‘S’ Choir
 
 [https://bbs.nga.cn/read.php?&amp; ... =747000987&amp;to=1](https://bbs.nga.cn/read.php?&amp;tid=36692529&amp;pid=747000987&amp;to=1)
 
+
+*****
+
+####  PDQ4  
+##### 14017#       发表于 2024-3-9 13:16
+
+7首连发，强度拉满。米泽和节约是不是又要失踪一整天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好想看，有没有那样的官方剪辑<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 14018#       发表于 2024-3-9 13:21
+
+这次又有李子咆哮了，而且是黑色生日，搜tag能看到一堆人说这个
+
+*****
+
+####  御幸一也  
+##### 14019#       发表于 2024-3-9 13:23
+
+開場OB子就說了一句「MEGA VEGAS，你也誤入進來了呢」
+
+不是ave mujica參加MEGA VEGAS，而是MEGA VEGAS誤入了ave mujica的世界，真是太世界觀了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

@@ -59,3 +59,20 @@ CY美术组过劳死了？这放出的新图没一张不是草稿的<img src="ht
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十周年就这啊，毫无惊喜，绝了，能不能坚持到十二神将出完啊
 
+
+*****
+
+####  usoda  
+##### 17664#       发表于 2024-3-9 20:17
+
+太真实了吧，肉村全程司马脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  (:影子:)  
+##### 17665#       发表于 2024-3-9 20:21
+
+所以本家是打算一摆摆到12周年然后顺势关服了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一个十周年直接连美术都g了
+

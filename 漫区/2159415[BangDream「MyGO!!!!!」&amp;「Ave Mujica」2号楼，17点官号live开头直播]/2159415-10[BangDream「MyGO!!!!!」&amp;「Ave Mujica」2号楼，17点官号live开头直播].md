@@ -7902,3 +7902,13 @@ Mygo感觉属于那种要么一听名字就没兴趣丢一边、一旦看了第�
 
 2024-3-9 00:19 上传
 
+
+*****
+
+####  6030sylar  
+##### 14013#       发表于 2024-3-9 11:27
+
+<img src="https://p.sda1.dev/16/c4e372c3ea383258db2a9ef6e1d46cb6/CMP_20240309112732457.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

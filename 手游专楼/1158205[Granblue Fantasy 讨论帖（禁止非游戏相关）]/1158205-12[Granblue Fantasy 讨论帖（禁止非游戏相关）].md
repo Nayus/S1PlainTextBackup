@@ -140,3 +140,13 @@ CY美术组过劳死了？这放出的新图没一张不是草稿的<img src="ht
 
 数据没查准就急急忙忙赶着谢幕发表真是尬住了
 
+
+*****
+
+####  Geyorkias  
+##### 17672#       发表于 2024-3-9 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">实装也不会是草图，无所谓了。
+
+就是这老王终破实在是离谱，看了下没一个属性能拆出5个球的，最多的火暗也就4个，真的离谱。
+

@@ -238,3 +238,11 @@ bgm人声有点难受
 
 —— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  karastar  
+##### 340#       发表于 2024-3-9 14:50
+
+感觉是手游搬到主机上
+

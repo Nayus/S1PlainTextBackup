@@ -8028,3 +8028,52 @@ Choir ‘S’ Choir
 
 不惜一切代价，保住世界观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 14024#       发表于 2024-3-9 14:52
+
+世界观大胜利
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  6030sylar  
+##### 14025#       发表于 2024-3-9 14:56
+
+<img src="https://img.saraba1st.com/forum/202403/09/145548ajccm9j9tvaxc2mw.png" referrerpolicy="no-referrer">
+
+<strong>L{@}A`Z]8[D02JIQ}7V62(K.png</strong> (26.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/145552n3tn2tp1wslu8vmz.png" referrerpolicy="no-referrer">
+
+<strong>TE0@)1}V751VMA0JD%EI.png</strong> (50.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/145556lj0vjdv70lk0kisb.png" referrerpolicy="no-referrer">
+
+<strong>(~{ATMYWEV~]HIR0{ZT7@4W.png</strong> (101.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/145600ly2gvhgbvtqfqbiq.png" referrerpolicy="no-referrer">
+
+<strong>UF_P0RY3IF6{MKT$LOOE$FS.png</strong> (67.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 14:56 上传
+
+武士道你的逆输入呢
+

@@ -946,3 +946,15 @@ steam 才18万在线啊，这也能炸
 —— 来自 S1Fun</blockquote>
 说的不错 今天武器测试就是机甲 加上自己买的可以一次扔两台总共扔三台
 
+
+*****
+
+####  jy000129  
+##### 1569#       发表于 2024-3-9 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64196943&amp;ptid=2170852" target="_blank">normalli 发表于 2024-3-9 09:56</a>
+这游戏是不是一定要联机玩，感觉玩最低难度我也单刷不了，但联机感觉又太拖后腿 ...</blockquote>
+可以加群找人带你打打，玩几盘习惯节奏就好了，难3难2加野队打也挺简单的，别怕拖后腿，这里面人就是消耗品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6032,3 +6032,19 @@ epd5是不是没有检查场景美术方面的bug的员工
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KBAC  
+##### 3592#       发表于 2024-3-9 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64197802&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-3-9 12:01</a>
+草 我没看出哪里有bug.……
+
+—— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+左边那么大个屏幕原先的绿色外框没了，虚空显示，章鱼科技震撼人心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+去年一代广场刚实装的时候也是，广场上大部分的音响消失只剩架子和电线，音乐虚空播放，武器店墙壁的贴图是服装店的。
+还有大型跑期间一代广场的电车铃，背对着车站就听不见，刚才看了一下还没修正。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

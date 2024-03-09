@@ -11232,3 +11232,17 @@ IMG_3003.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Anatoly  
+##### 2616#       发表于 2024-3-9 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64198514&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-3-9 13:41</a>
+别游戏了，剩下六个除了人设图啥也不知道就上了
+
+—— 来自 S1Fun</blockquote>
+五月才发售，到时候直播就全公开了其实
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -11428,3 +11428,35 @@ IMG_3003.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ViviR  
+##### 2637#       发表于 2024-3-9 18:29
+
+vo低了唱得难听。那Da低了会有不同的振付么。
+
+
+*****
+
+####  Anatoly  
+##### 2638#       发表于 2024-3-9 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200721&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-3-9 18:29</a>
+vo低了唱得难听。那Da低了会有不同的振付么。</blockquote>
+感觉应该是三属性合起来算吧
+指望三个属性都有不同差分版本感觉产能也不像能那么足的样子（还容易折磨动补）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Vacuolar  
+##### 2639#       发表于 2024-3-9 18:35
+
+可以复刻摔倒大师天海春香。
+
+外人：这人走路摔倒还怎么跳舞，好假。
+
+p：跳舞时摔倒很正常啊。
+

@@ -8473,3 +8473,13 @@ Cooooool Kanon
 
 [https://twitter.com/Kanon_Takao/status/1766454498908930505](https://twitter.com/Kanon_Takao/status/1766454498908930505)
 
+
+*****
+
+####  基神的强袭自由  
+##### 14050#       发表于 2024-3-9 21:33
+
+唉，为什么我去不了现场<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

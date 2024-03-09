@@ -1229,3 +1229,11 @@ ami：田村ゆかり
 
 比初期PV倒是有点进步，车子有涂装了，角色说话不是只有张嘴闭嘴两个口型了
 
+
+*****
+
+####  哆哆鸡  
+##### 105#       发表于 2024-3-10 00:34
+
+到后面不会直接开live吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -322,3 +322,21 @@ YYY的这抽象mv我怎么没印象？</blockquote>
 
 chiha真可爱啊
 
+
+*****
+
+####  仟音一心  
+##### 19741#       发表于 2024-3-9 17:47
+
+解说员不见了！
+
+
+*****
+
+####  starring  
+##### 19742#       发表于 2024-3-9 17:52
+
+来做体操<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

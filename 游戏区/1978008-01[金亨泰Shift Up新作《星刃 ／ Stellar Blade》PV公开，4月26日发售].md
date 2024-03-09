@@ -403,3 +403,21 @@ bgm人声有点难受
 
 白金尼尔那套战斗系统我也当垃圾看的，主要看看别的素质如何
 
+
+*****
+
+####  operatbig  
+##### 358#       发表于 2024-3-9 17:51
+
+这开场引导NPC脚本纯纯网游水平。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skgaminger1988  
+##### 359#       发表于 2024-3-9 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200149&amp;ptid=1978008" target="_blank">临界点 发表于 2024-3-9 17:16</a>
+匹诺曹动作比这个好多了   既然都是韩游又是第一次3A  拿来对比有何不可</blockquote>
+对啊，匹诺曹动作比这个好还比这个便宜，星刃唯一突出点就是烧鸡，怎么跟匹诺曹打啊
+

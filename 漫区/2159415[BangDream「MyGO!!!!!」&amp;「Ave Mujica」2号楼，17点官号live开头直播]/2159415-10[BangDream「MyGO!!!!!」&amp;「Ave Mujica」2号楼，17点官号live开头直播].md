@@ -8431,3 +8431,45 @@ Cooooool Kanon
 灰爱音是啥，退团跑路流？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一种名叫灰爱音但我不知道到底哪里爱音了的奇妙二创生物，主要特征跟你说的差不多。
 
+
+*****
+
+####  御幸一也  
+##### 14049#       发表于 2024-3-9 21:24
+
+你怎麼知道我們初祥裡面的人又賣了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/09/212342wxxvnzycc50z8yx1.jpg" referrerpolicy="no-referrer">
+
+<strong>GIO0-skboAA4Z9P.jpg</strong> (358.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/212344uiinc0pyjrczqzzg.jpg" referrerpolicy="no-referrer">
+
+<strong>GIO0-slbkAAU_Hw.jpg</strong> (173.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/212349udi8wv2i6z67a76z.jpg" referrerpolicy="no-referrer">
+
+<strong>GIO0-snaUAAVhCX.jpg</strong> (283.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/212354w282rssx20n2sn80.jpg" referrerpolicy="no-referrer">
+
+<strong>GIO0-skbgAAbOdW.jpg</strong> (345.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 21:23 上传
+
+[https://twitter.com/Kanon_Takao/status/1766454498908930505](https://twitter.com/Kanon_Takao/status/1766454498908930505)
+

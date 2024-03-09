@@ -974,3 +974,23 @@ steam 才18万在线啊，这也能炸
 
 机甲除了弹药少比较脆没啥缺点，估计后期会有升级。
 
+
+*****
+
+####  Shu-Stella  
+##### 1572#       发表于 2024-3-9 11:01
+
+比起机甲其实我更想要车，哪怕是地图上随机刷的也行，真的不想跑路了...
+
+*****
+
+####  Shu-Stella  
+##### 1573#       发表于 2024-3-9 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195953&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-3-9 02:50</a>
+
+原来是服务器炸了啊，我还以为是今天刷超级货币刷太多被限制登入了呢
+
+对了，商店里那个有额外护甲的重甲怎 ...</blockquote>
+别的不知道，但是挺帅的。
+

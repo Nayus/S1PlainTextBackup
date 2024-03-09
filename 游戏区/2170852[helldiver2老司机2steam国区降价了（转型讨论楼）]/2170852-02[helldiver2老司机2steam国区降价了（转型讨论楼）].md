@@ -1114,3 +1114,13 @@ steam 才18万在线啊，这也能炸
 我反正不敢穿轻甲了，现阶段垫料中甲应该是性价比最高的，能扛能跑</blockquote>
 垫料轻甲，中甲防御轻甲速度。或者皿煮甲，有效防暴毙，极大提升生存率。
 
+
+*****
+
+####  calcium20  
+##### 1586#       发表于 2024-3-9 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机甲正面轻甲被坦克虫一碰就炸，但是被撞到前侧过身就不会有事，这就是超级地球的军工吗
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

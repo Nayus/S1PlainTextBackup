@@ -393,3 +393,28 @@ https://x.com/ricorico873097/status/1764833287439344126?s=20</blockquote>
 
 [https://twitter.com/lycoreco_sta ... 06193832325/photo/2](https://twitter.com/lycoreco_stage/status/1766396006193832325/photo/2)
 
+
+*****
+
+####  Piano-Forest  
+##### 1737#         楼主| 发表于 2024-3-9 22:33
+
+／
+
+ノベライズシリーズ３０万部突破✨
+
+＼
+
+『リコリス・リコイル Recovery days』が小説第一弾とあわせて３０万部、そしてなんと５０万部も突破🎉
+
+それを記念して！
+
+とある魔術の禁書目録のイラストを手掛ける
+
+はいむらきよたかさんからの
+
+３０万部突破記念イラストを大公開👏
+
+５０万部突破記念イラストも準備中⁉️
+<img src="https://p.sda1.dev/16/3acba202d258dd89c1dc087d65031566/20240309_223323.jpg" referrerpolicy="no-referrer">
+

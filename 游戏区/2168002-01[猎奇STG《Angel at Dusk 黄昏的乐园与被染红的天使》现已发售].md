@@ -119,3 +119,18 @@ REFRAIN PRISM MEMORIES
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本彩笔打不过ex难度 有点难顶
 
+
+*****
+
+####  AdoringBeast  
+##### 145#       发表于 2024-3-9 22:36
+
+ex难度上轮椅按住a键不是乱宰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AdoringBeast  
+##### 146#       发表于 2024-3-9 22:36
+
+今天更新了繁中，画廊和手柄震动，修复了解锁不了176号文本的bug，然后新增了一条文本
+

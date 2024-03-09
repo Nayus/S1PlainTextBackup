@@ -1103,3 +1103,14 @@ steam 才18万在线啊，这也能炸
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">发现打不开游戏是因为gameguard给之前装的注入式dlc unlocker检测出来了，一点提示都没运行都运行不了。
 
+
+*****
+
+####  FLZB  
+##### 1585#       发表于 2024-3-9 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64198037&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-9 12:41</a>
+
+我反正不敢穿轻甲了，现阶段垫料中甲应该是性价比最高的，能扛能跑</blockquote>
+垫料轻甲，中甲防御轻甲速度。或者皿煮甲，有效防暴毙，极大提升生存率。
+

@@ -7995,3 +7995,28 @@ Choir ‘S’ Choir
 
 不是ave mujica參加MEGA VEGAS，而是MEGA VEGAS誤入了ave mujica的世界，真是太世界觀了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14020#       发表于 2024-3-9 13:28
+
+對了 好像還是7首連彈中間沒MC休息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+讓我看看這次結束結月和茜寶要關機多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 14021#       发表于 2024-3-9 13:28
+
+很努力的保住了世界观<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 14022#       发表于 2024-3-9 13:32
+
+蹲一手官方repo<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

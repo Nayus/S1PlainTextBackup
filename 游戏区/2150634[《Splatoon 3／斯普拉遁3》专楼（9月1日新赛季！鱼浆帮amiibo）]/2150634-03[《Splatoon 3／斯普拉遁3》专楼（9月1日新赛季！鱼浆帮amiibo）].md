@@ -6022,3 +6022,13 @@ epd5是不是没有检查场景美术方面的bug的员工
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  秋月孝三  
+##### 3591#       发表于 2024-3-9 13:26
+
+凹个烧烤架就是无脑一本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

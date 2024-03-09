@@ -1181,3 +1181,13 @@ PCer宏用的很熟练啊，半秒搓球救人
 PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 玩过一代的谁不是半秒搓援军
 
+
+*****
+
+####  NEIN  
+##### 1593#       发表于 2024-3-10 05:47
+
+上下右左上按多了半秒按很奇怪吗，这都觉得是宏是平时玩pcwasd都用一根手指按？
+
+—— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

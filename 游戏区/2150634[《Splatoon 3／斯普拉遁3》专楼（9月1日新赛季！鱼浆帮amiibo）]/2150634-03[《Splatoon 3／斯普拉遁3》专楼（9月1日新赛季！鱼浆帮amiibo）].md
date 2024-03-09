@@ -6077,3 +6077,11 @@ epd5是不是没有检查场景美术方面的bug的员工
 
 打了半天，遇到厉害的队友一把就143搞定了，还是没特殊wave的
 
+
+*****
+
+####  炫夜鳞  
+##### 3596#       发表于 2024-3-9 17:36
+
+感觉只有40和600往上野人才是正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

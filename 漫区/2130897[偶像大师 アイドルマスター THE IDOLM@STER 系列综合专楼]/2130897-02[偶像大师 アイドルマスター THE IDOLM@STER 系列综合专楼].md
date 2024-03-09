@@ -11333,3 +11333,11 @@ IMG_3003.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">cd的情报呢 不开游戏不放是吧
 
+
+*****
+
+####  ViviR  
+##### 2626#       发表于 2024-3-9 17:38
+
+之前x上有人观察到红的那个mv，舞台上的小方块里可是飘着vocal high，visual high这样的字样的。确实想说就算是声优唱功不行，但想要调好听点真不难。游戏出来后要是发现全属性拉满还是这b样绝对也是一个炎上的点了。
+

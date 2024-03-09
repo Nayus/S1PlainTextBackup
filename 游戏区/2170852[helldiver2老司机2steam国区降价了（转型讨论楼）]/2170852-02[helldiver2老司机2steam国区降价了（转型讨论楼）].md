@@ -1095,3 +1095,11 @@ steam 才18万在线啊，这也能炸
 —— 来自 S1Fun</blockquote>
 削武器，增加敌人数量，新装备。三件事但凡一起更新的都不会有这么大骂声。哪怕只削磁轨不把N9改的坦克虫泰坦满地走大伙都能忍<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雪地白狼  
+##### 1584#       发表于 2024-3-9 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">发现打不开游戏是因为gameguard给之前装的注入式dlc unlocker检测出来了，一点提示都没运行都运行不了。
+

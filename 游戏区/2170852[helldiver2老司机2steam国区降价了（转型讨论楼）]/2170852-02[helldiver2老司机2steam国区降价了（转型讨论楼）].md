@@ -1061,3 +1061,14 @@ steam 才18万在线啊，这也能炸
 
 弥补后坐力吧，站姿等于其他甲蹲姿
 
+
+*****
+
+####  xinfengj  
+##### 1581#       发表于 2024-3-9 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64198037&amp;ptid=2170852" target="_blank">cloudcc 发表于 2024-3-9 12:41</a>
+
+我反正不敢穿轻甲了，现阶段垫料中甲应该是性价比最高的，能扛能跑</blockquote>
+我是习惯轻甲反而穿中甲和重甲狠狠暴毙，轻甲配蛋壳依旧好用，难9带榴弹飞鹰轨道激光拉怪单走当跑男给队友减压
+

@@ -5341,3 +5341,20 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 —— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  novyMS  
+##### 4299#       发表于 2024-3-9 11:29
+
+【万代机甲新作《奇异贤伴：爱达之歌SYNDUALITY Echo of Ada》9分钟试玩-哔哩哔哩】 [https://b23.tv/1sC4sWH](https://b23.tv/1sC4sWH)
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  亚瑟邓特  
+##### 4300#       发表于 2024-3-9 11:32
+
+这尼玛就是个打枪游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，捏脸有啥实际作用吗？
+

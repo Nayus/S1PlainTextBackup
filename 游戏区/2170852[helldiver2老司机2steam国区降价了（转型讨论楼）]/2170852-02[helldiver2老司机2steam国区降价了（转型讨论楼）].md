@@ -994,3 +994,38 @@ steam 才18万在线啊，这也能炸
 对了，商店里那个有额外护甲的重甲怎 ...</blockquote>
 别的不知道，但是挺帅的。
 
+
+*****
+
+####  DawnGuardian  
+##### 1574#       发表于 2024-3-9 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64197378&amp;ptid=2170852" target="_blank">Shu-Stella 发表于 2024-3-9 11:01</a>
+
+别的不知道，但是挺帅的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的帅吗？长的跟米其林轮胎的似的
+
+*****
+
+####  jy000129  
+##### 1575#       发表于 2024-3-9 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64195953&amp;ptid=2170852" target="_blank">sigeren 发表于 2024-3-9 01:50</a>
+原来是服务器炸了啊，我还以为是今天刷超级货币刷太多被限制登入了呢
+对了，商店里那个有额外护甲的重甲怎 ...</blockquote>
+个人体验，被跳脸小虫子打掉血少很多，大虫子攻击可以减免一部分伤害，不容易暴毙，被牛近战攻击还是会死
+机器人的子弹能吃十来发，火箭弹不暴击可以剩五分之一的血
+另外被爆头率低很多
+
+缺点是跑的慢回耐慢
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  looptube  
+##### 1576#       发表于 2024-3-9 11:36
+
+现在虫子难7随便一个小兴趣点里都能塞两只坦克虫，以前有这么变态吗？
+

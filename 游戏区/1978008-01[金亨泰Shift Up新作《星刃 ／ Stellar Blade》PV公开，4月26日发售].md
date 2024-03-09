@@ -495,3 +495,14 @@ QTE</blockquote>
 合着是魂游啊，有点无聊，本来以为是尼尔随便打打就行了。演出看着也还可以，烧鸡到位，借着自家nikke宣传 ...</blockquote>
 不是魂游，刚去刷了一波新闻，有多个难度，传统线性那种游戏吧
 
+
+*****
+
+####  banjia0815  
+##### 368#       发表于 2024-3-9 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64201515&amp;ptid=1978008" target="_blank">kuker53 发表于 2024-3-9 19:57</a>
+
+不是魂游，刚去刷了一波新闻，有多个难度，传统线性那种游戏吧</blockquote>
+那还行，拖了下demo的视频，对面霸体打一套的感觉也太典了
+

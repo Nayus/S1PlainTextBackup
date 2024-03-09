@@ -51,3 +51,11 @@ cy什么情况，全是草图
 
 CY美术组过劳死了？这放出的新图没一张不是草稿的<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 17663#       发表于 2024-3-9 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十周年就这啊，毫无惊喜，绝了，能不能坚持到十二神将出完啊
+

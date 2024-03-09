@@ -8353,3 +8353,40 @@ Choir ‘S’ Choir
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 14043#       发表于 2024-3-9 20:09
+
+可愛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/09/200840a6pw8szl6dedtwt2.jpg" referrerpolicy="no-referrer">
+
+<strong>GIOjy8ebcAAOBBV.jpg</strong> (760.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/09/200842s2uqzst8l86qudqy.jpg" referrerpolicy="no-referrer">
+
+<strong>GIOjy8gb0AASrZR.jpg</strong> (170.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-9 20:08 上传
+
+[https://twitter.com/sasakirico/status/1766435583776506156](https://twitter.com/sasakirico/status/1766435583776506156)
+
+
+*****
+
+####  cindy355  
+##### 14044#       发表于 2024-3-9 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64201539&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-9 19:59</a>
+
+—— 来自 S1Fun</blockquote>
+Cooooool Kanon
+

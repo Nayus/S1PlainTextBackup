@@ -309,3 +309,13 @@ bgm人声有点难受
 
 头和身体连接的好奇怪
 
+
+*****
+
+####  skgaminger1988  
+##### 348#       发表于 2024-3-9 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64197731&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2024-3-9 11:53</a>
+成绩和匹诺曹差不多就算可以了</blockquote>
+匹诺曹xgp入库 pc300，坛友对这个卖500全价的烧鸡韩游要求有点高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

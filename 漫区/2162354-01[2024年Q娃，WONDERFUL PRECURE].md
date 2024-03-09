@@ -579,3 +579,20 @@ ost1封面出了 看来石锤猫组是夏季追加了
 <img src="https://p.sda1.dev/16/b6e84a528a742549d4ff766e1114ede8/003.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/cb095eb2a5db6f55370e4de2c2bb8122/004.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 1138#       发表于 2024-3-9 16:34
+
+前 4 张：月刊アニメージュ 2024年4月号
+
+后 3 张：アニメディア 2024年4月号
+<img src="https://p.sda1.dev/16/5436a97e8c5a4529331490ef65a7e408/Animage-202404-078.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/926799ca5180bf11608b39095b63a374/Animage-202404-079.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/f9feb9e2a14232ae8df9a982bef0da12/Animage-202404-080.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/adcf90850dfdf31bfa957215dfe1b415/Animage-202404-081.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/528cdbd753de9fa8d2171d63dc4e17d3/Animedia-202404-071.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/a9542e95eaf460f031da12af1434543c/Animedia-202404-072.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/67ac5db39802de94afda2829b0b5fe50/Animedia-202404-073.jpg" referrerpolicy="no-referrer">
+

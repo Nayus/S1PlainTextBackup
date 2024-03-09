@@ -227,3 +227,23 @@ YYY的这抽象mv我怎么没印象？</blockquote>
 
 感觉k组的曲风在这种场子很吃亏啊
 
+
+*****
+
+####  言可  
+##### 19729#       发表于 2024-3-9 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64199721&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-3-9 16:16</a>
+第一次披露</blockquote>
+难怪
+
+*****
+
+####  CaptainPenguin  
+##### 19730#       发表于 2024-3-9 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64199743&amp;ptid=2078110" target="_blank">qty 发表于 2024-3-9 16:20</a>
+
+感觉k组的曲风在这种场子很吃亏啊</blockquote>
+还是夹在gk和猫这两组的曲风中间，温度差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

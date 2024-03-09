@@ -5573,3 +5573,13 @@ NS版搜啥关键字？我日服港服都没搜到
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tornadoDA  
+##### 493#       发表于 2024-3-9 15:16
+
+<blockquote>库德里尔 发表于 2024-3-7 09:16
+balatro已经在全平台售出了50万份拷贝。</blockquote>
+拷贝是啥意思啊
+

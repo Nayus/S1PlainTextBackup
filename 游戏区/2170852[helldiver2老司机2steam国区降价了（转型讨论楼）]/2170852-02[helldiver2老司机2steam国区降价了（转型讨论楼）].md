@@ -1160,3 +1160,14 @@ steam 才18万在线啊，这也能炸
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这路人，绝了，我潜行摸进去，他们开着机甲一路打过来
 
+
+*****
+
+####  リュウセイ  
+##### 1591#       发表于 2024-3-10 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64193670&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-8 20:54</a>
+
+https://youtu.be/sWQxg5mIzT8?si=s1Pn9G3xBsDF-TKt&amp;t=293</blockquote>
+PCer宏用的很熟练啊，半秒搓球救人
+

@@ -134,3 +134,17 @@ ex难度上轮椅按住a键不是乱宰<img src="https://static.saraba1st.com/im
 
 今天更新了繁中，画廊和手柄震动，修复了解锁不了176号文本的bug，然后新增了一条文本
 
+
+*****
+
+####  ntrntr1  
+##### 147#       发表于 2024-3-9 22:48
+
+ 本帖最后由 ntrntr1 于 2024-3-9 22:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64182797&amp;ptid=2168002" target="_blank">zzy516232108 发表于 2024-3-7 22:37</a>
+
+本彩笔打不过ex难度 有点难顶</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个游戏只要你多肝解锁的无敌机体别说EX了FEX都是无脑一路横扫
+
+比较初级的机体推荐第二排的惨剧，基本VH各过一次就能解锁了，大招是能量炮那个，道中血很容易吸回来，BOSS没有什么是三个大解决不了的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

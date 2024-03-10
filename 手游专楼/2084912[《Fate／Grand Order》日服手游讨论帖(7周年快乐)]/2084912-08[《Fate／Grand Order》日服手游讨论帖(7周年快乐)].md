@@ -1032,3 +1032,13 @@ Last Encore那个文艺风还是不错的，当年看完最大的嘈点是最后
 
 狗叫了，呼符单抽了查理曼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 11499#       发表于 2024-3-10 11:07
+
+<blockquote>khxooo 发表于 2024-3-10 10:38
+狗叫了，呼符单抽了查理曼</blockquote>
+欧 羡慕
+

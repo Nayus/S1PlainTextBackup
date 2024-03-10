@@ -666,3 +666,16 @@ ost1封面出了 看来石锤猫组是夏季追加了
 用狗来当主角果然好奇怪</blockquote>
 是明明狗变成了同龄美少女但依然被主人当成一条狗很奇怪<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 1146#       发表于 2024-3-10 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64206285&amp;ptid=2162354" target="_blank">modedd 发表于 2024-3-10 10:47</a>
+
+是明明狗变成了同龄美少女但依然被主人当成一条狗对待很奇怪</blockquote>
+怎么，一条狗变人了就想要人权，那能变Q娃是不是还要供起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+哦，她真的能变Q娃，那没事了
+

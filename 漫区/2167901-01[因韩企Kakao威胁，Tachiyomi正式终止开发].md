@@ -17,3 +17,26 @@ mihon的插件里有没有能读取本地或者局域网内服务器上的epub�
 它支持的本地文件格式里有epub啊
 https://mihon.app/docs/guides/local-source/
 
+
+*****
+
+####  zerona  
+##### 190#       发表于 2024-3-10 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209622&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-3-10 18:14</a>
+
+它支持的本地文件格式里有epub啊
+
+https://mihon.app/docs/guides/local-source/</blockquote>
+我是想拿来看电子书的。之前用docx转的epub 。他这里的报错是没有图片文件。
+
+
+*****
+
+####  pgain2004  
+##### 191#         楼主| 发表于 2024-3-10 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209697&amp;ptid=2167901" target="_blank">zerona 发表于 2024-3-10 18:28</a>
+我是想拿来看电子书的。之前用docx转的epub 。他这里的报错是没有图片文件。 ...</blockquote>
+呃文字类epub还是用专门的应用靠谱吧，例如静读天下，弱一点用阅读也行，否则连字号什么的可能都不好调
+

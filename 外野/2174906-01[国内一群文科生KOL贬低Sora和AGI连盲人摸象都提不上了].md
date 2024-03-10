@@ -584,3 +584,15 @@ openai的作用就是告诉大家，transformer是一个能力大砖飞的架构
 
 比得过室温超导吗？
 
+
+*****
+
+####  酷乐  
+##### 63#       发表于 2024-3-10 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209146&amp;ptid=2174906" target="_blank">gammatau 发表于 2024-3-10 17:11</a>
+
+二十人要是做面向dlsite的游戏那应该是海豹社级的重磅货了吧</blockquote>
+
+一人做游戏本来是个营销buff的，比如zun，但现在要说是一人用AI做出的游戏，我觉得只会是个debuff，而且大家还会用显微镜来找错误和侵权素材。
+

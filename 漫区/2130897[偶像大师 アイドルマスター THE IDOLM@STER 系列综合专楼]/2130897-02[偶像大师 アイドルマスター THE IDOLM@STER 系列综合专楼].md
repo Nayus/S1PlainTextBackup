@@ -11674,3 +11674,49 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 哎 卓巴卡布拉厕所
 
+
+*****
+
+####  wfhtony  
+##### 2652#       发表于 2024-3-10 18:32
+
+ 本帖最后由 wfhtony 于 2024-3-10 18:34 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/10/183207bt5n2989wnfbkbcn.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-10-18h25m38s751.jpg</strong> (63.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202403/10/183208dz13spj4u4adzneu.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-10-18h26m15s767.jpg</strong> (212.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202403/10/183208g2ny2p62alnnjll5.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-10-18h27m00s057.jpg</strong> (257.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202403/10/183208u15vhqh1wsav5z3v.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-10-18h27m17s591.jpg</strong> (143.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 18:32 上传
+
+→ 岩手場結束。下個月是大阪場。
+
+下週是本家真哥和雪步的xR Live了啊...
+
+話說，這場是MRLIVE系列第一場開放販賣線上觀賞票的演出（不算之前在油 管上的一些生放送（打Super Chat）的話）。
+

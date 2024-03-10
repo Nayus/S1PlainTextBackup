@@ -8592,3 +8592,31 @@ Cooooool Kanon
 
 已经默认损友三人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 14061#         楼主| 发表于 2024-3-10 22:05
+
+补一下邦2期的两队
+
+第七团RAS
+
+<img src="https://img.saraba1st.com/forum/202403/10/220423tdieqtseewu1e4ei.jpg" referrerpolicy="no-referrer">
+
+<strong>RAS.jpg</strong> (440.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 22:04 上传
+
+第六团蝶
+
+<img src="https://img.saraba1st.com/forum/202403/10/220423pvfgqqiqqlkgfvqo.jpg" referrerpolicy="no-referrer">
+
+<strong>Monica.jpg</strong> (429.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 22:04 上传
+

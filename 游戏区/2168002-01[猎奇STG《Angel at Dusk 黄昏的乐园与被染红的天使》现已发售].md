@@ -185,3 +185,23 @@ ex难度上轮椅按住a键不是乱宰<img src="https://static.saraba1st.com/im
 
 昨天更新以后终焉天使真的成轮椅中的按摩椅了，消弹强蓄力短伤害高，一路按a杀穿ex难度永恒天使
 
+
+*****
+
+####  洁西卡  
+##### 151#       发表于 2024-3-10 22:00
+
+这游戏不打算出nd那吗
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  伊頭臭作  
+##### 152#       发表于 2024-3-10 22:03
+
+在b站看了下galshell的剧情，感觉有点心理阴影
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

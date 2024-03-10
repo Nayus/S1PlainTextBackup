@@ -1296,3 +1296,14 @@ PC太垃圾卡死我了，又买了份PS5版，结果发现这游戏目前好友
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏不组队是不是困难就到头了，打极端死成狗了好不容易打到7，感觉后面过不去了，而且困难都好难打，经常两三只坦克虫冲脸不知道要咋办，12级左右有什么推荐用的武器和战略吗
 
+
+*****
+
+####  白昼梦  
+##### 1605#       发表于 2024-3-10 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64207542&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-3-10 13:32</a>
+
+这游戏不组队是不是困难就到头了，打极端死成狗了好不容易打到7，感觉后面过不去了，而且困难都好难 ...</blockquote>
+野排7虫子难7还是挺闲庭信步的，还是等级低装备解锁不全导致体验差点
+

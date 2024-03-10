@@ -239,3 +239,38 @@ pro的全角色也太pro了 有几个古战场联动角色是真绝版啊
 
 肉村是不是第一先不说，但以他工作忙碌的程度以及差不多变日常的直播，真不知道他哪儿来这么多时间肝。加上他还玩车和玩具，顶尖配音员钱真的能赚这么多？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水樹奈奈  
+##### 17681#       发表于 2024-3-10 13:48
+
+昨天福山身上那件衣服就价值人民币8000多，他们这群人应该都很有钱
+
+
+*****
+
+####  katern  
+##### 17682#       发表于 2024-3-10 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64207265&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-10 13:00</a>
+
+肉村是不是第一先不说，但以他工作忙碌的程度以及差不多变日常的直播，真不知道他哪儿来这么多时间肝。加上 ...</blockquote>
+他以前好像说过开车的时候也会肝，而且还有时间打其他游戏的
+
+我怀疑是有黑奴<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windlikeman  
+##### 17683#       发表于 2024-3-10 13:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中村为了这个全角色去年年中有几次直播一直在打bingo
+
+*****
+
+####  usoda  
+##### 17684#       发表于 2024-3-10 13:54
+
+没见过他以前发的一张照片么，电脑平板同时肝gbf 天青车道 还有个啥来着 FGO？ 三开手游小意思
+

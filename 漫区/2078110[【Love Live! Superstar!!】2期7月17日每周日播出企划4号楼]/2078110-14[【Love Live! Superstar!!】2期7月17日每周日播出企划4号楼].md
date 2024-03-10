@@ -547,3 +547,15 @@ CatChu!
 　「ディストーション」</blockquote>
 k组的图感觉透视有问题，看的别扭，构图倒是思路挺好的
 
+
+*****
+
+####  starring  
+##### 19766#       发表于 2024-3-10 11:33
+
+结那开设ytb频道
+
+<img src="https://p.sda1.dev/16/909eb593029a256225e8e95322a02351/CMP_20240310113307720.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

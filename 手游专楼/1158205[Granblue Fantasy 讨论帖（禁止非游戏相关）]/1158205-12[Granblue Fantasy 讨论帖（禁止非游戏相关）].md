@@ -274,3 +274,14 @@ pro的全角色也太pro了 有几个古战场联动角色是真绝版啊
 
 没见过他以前发的一张照片么，电脑平板同时肝gbf 天青车道 还有个啥来着 FGO？ 三开手游小意思
 
+
+*****
+
+####  cenhr  
+##### 17685#       发表于 2024-3-10 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64207708&amp;ptid=1158205" target="_blank">windlikeman 发表于 2024-3-10 13:53</a>
+
+中村为了这个全角色去年年中有几次直播一直在打bingo</blockquote>
+NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

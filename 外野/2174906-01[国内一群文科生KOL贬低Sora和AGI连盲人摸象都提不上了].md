@@ -435,3 +435,11 @@ sora彭博去测试发现生成慢而且效果也不是那么神，甚至依然�
 
 几年前微博上牛得不行、各大PD纷纷点评要改变世界的Clubhouse近况如何？ ​​​
 
+
+*****
+
+####  软妹摇摇乐  
+##### 46#       发表于 2024-3-10 16:30
+
+不懂这波AI最后谁能赢，反正目前就看英伟达就行了:谁挖到黄金有那么重要么？卖铲子的赚翻了才是王道啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

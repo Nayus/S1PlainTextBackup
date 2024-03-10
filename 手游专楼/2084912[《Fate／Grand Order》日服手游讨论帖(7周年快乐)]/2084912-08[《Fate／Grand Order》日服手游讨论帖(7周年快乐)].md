@@ -1050,3 +1050,14 @@ Last Encore那个文艺风还是不错的，当年看完最大的嘈点是最后
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而查理曼不咋地啊
 
+
+*****
+
+####  alucardcz  
+##### 11501#       发表于 2024-3-10 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64206219&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-3-10 10:38</a>
+
+狗叫了，呼符单抽了查理曼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+

@@ -148,3 +148,18 @@ ex难度上轮椅按住a键不是乱宰<img src="https://static.saraba1st.com/im
 
 比较初级的机体推荐第二排的惨剧，基本VH各过一次就能解锁了，大招是能量炮那个，道中血很容易吸回来，BOSS没有什么是三个大解决不了的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 148#       发表于 2024-3-10 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64203486&amp;ptid=2168002" target="_blank">ntrntr1 发表于 2024-3-9 22:48</a>
+
+这个游戏只要你多肝解锁的无敌机体别说EX了FEX都是无脑一路横扫
+
+比较初级的机体推荐第二排的惨剧， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">拿惨剧过了两个故事的ex难度，接下来只能去编年史狂刷了吗
+
+解锁本体机体好折磨啊，有没有什么快速的方法（
+

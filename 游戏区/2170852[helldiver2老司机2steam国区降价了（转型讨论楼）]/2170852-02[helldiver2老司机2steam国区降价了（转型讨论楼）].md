@@ -1243,3 +1243,11 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仿身泪滴  
+##### 1599#       发表于 2024-3-10 09:49
+
+有没有人遇到社区好友在线情况为零、无法解锁普通难度以及采购商店无法购买的bug？游戏重装了N次没用，快疯了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

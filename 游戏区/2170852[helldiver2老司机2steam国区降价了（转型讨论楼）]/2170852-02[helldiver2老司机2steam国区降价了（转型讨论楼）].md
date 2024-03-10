@@ -1368,3 +1368,31 @@ PC太垃圾卡死我了，又买了份PS5版，结果发现这游戏目前好友
 PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 半秒搓球不会只能说救人救少了，我现在绝技就是边跑边搓救援球
 
+
+*****
+
+####  FLZB  
+##### 1612#       发表于 2024-3-10 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64208685&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-10 16:12</a>
+
+麻了，难7这野排什么群魔乱舞，剩20分3路人已经用光增援</blockquote>
+抽象鬼佬是这样的，昨天碰到一队三人在花了20多分钟几乎耗光增援的情况下只做了主任务和一个次要，更绝的是通关结算发现据点他们是一个都没碰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/10/171752zo4obabohijchb6m.jpg" referrerpolicy="no-referrer">
+
+<strong>20240310015741_1.jpg</strong> (187.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 17:17 上传
+
+*****
+
+####  晨汐听雨  
+##### 1613#       发表于 2024-3-10 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64205933&amp;ptid=2170852" target="_blank">仿身泪滴 发表于 2024-3-10 09:49</a>
+有没有人遇到社区好友在线情况为零、无法解锁普通难度以及采购商店无法购买的bug？游戏重装了N次没用，快疯 ...</blockquote>
+这种情况一般是服务器问题，淡定
+

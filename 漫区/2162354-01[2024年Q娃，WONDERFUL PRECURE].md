@@ -743,3 +743,11 @@ ost1封面出了 看来石锤猫组是夏季追加了
 你已经学会当头炮把马条，象走田马走日小兵过河不回头了
 下面该跟王天一一起下一盘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 1152#       发表于 2024-3-10 17:16
+
+但也是太狗了导致小麦在剧情上完全没有主角地位 这方面想平衡好太难了
+

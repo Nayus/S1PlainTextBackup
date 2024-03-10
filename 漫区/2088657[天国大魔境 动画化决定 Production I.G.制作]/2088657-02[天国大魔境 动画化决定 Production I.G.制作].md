@@ -57,3 +57,16 @@ https://www.anitrendz.com/
 这不就那个黑黄配色的截图的原网站，类似下面内容的，见到很多人对此网站认可的，国内也经常见到这网站的图，4ch，红迪上也有炒作，找不到之前的就用一张最近的图了
 <img src="https://p.sda1.dev/16/bce01b21fa6135544ba8ee316018f2a2/CMP_20240310162145759.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dclara1  
+##### 1719#       发表于 2024-3-10 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64208531&amp;ptid=2088657" target="_blank">酷乐 发表于 2024-3-10 15:50</a>
+
+https://www.anitrendz.com/
+
+野鸡网站，流量连S1都不如（差一个0）</blockquote>
+我看森大贵还录了个获奖感言，天国官推也各种转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

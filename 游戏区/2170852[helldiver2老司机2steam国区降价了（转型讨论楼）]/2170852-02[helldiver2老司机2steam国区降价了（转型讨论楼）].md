@@ -1269,3 +1269,20 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我也有个好友一直不显示 他进不了我的私密房 每次都要打开公开才能让他加进来 
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1602#       发表于 2024-3-10 13:15
+
+最近服务器是不是又垃圾了
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ジム  
+##### 1603#       发表于 2024-3-10 13:19
+
+PC太垃圾卡死我了，又买了份PS5版，结果发现这游戏目前好友功能没卵用的？在社交里加PC好友一直是等待ing，永远加不上……
+

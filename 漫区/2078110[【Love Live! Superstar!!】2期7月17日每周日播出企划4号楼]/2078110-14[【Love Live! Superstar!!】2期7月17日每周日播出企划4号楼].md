@@ -604,3 +604,13 @@ k组的图感觉透视有问题，看的别扭，构图倒是思路挺好的
 
 —— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一个陆仁贾  
+##### 19772#       发表于 2024-3-10 19:32
+
+运营你再给GK多出点曲吧我什么都会做的<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -301,3 +301,11 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 虽然也无所谓吧，不过古早池100抽就一个金月，还是黄变的也是有点难绷<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 17688#       发表于 2024-3-10 19:31
+
+不能用JGJ直接砸，但可以凸照片再拆获得多球，所以必须至少有一个照片。这操作真是运营又抠又恶毒的最真实写照了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

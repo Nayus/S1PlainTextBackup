@@ -638,3 +638,31 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 小麦还是要认清自己是条狗
 
+
+*****
+
+####  Mr.Giraffe  
+##### 1143#       发表于 2024-3-10 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64206174&amp;ptid=2162354" target="_blank">6030sylar 发表于 2024-3-10 10:29</a>
+小麦还是要认清自己是条狗</blockquote>
+小麦：人間になりたいうた
+
+
+*****
+
+####  天之歌  
+##### 1144#       发表于 2024-3-10 10:46
+
+用狗来当主角果然好奇怪
+
+*****
+
+####  modedd  
+##### 1145#       发表于 2024-3-10 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64206276&amp;ptid=2162354" target="_blank">天之歌 发表于 2024-3-10 10:46</a>
+
+用狗来当主角果然好奇怪</blockquote>
+是明明狗变成了同龄美少女但依然被主人当成一条狗很奇怪<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+

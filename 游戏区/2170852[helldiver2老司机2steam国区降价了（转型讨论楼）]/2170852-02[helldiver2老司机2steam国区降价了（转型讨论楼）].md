@@ -1350,3 +1350,11 @@ PC太垃圾卡死我了，又买了份PS5版，结果发现这游戏目前好友
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻了，难7这野排什么群魔乱舞，剩20分3路人已经用光增援
 
+
+*****
+
+####  白昼梦  
+##### 1610#       发表于 2024-3-10 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野排就是有时候任务点清理完了直接跑路就行的场合，队友还非要去耗资源耗增援上去打最难顶，打虫子倒是无所谓，打机器人大部分人真把握不住
+

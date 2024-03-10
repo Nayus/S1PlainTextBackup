@@ -734,3 +734,16 @@ chatgpt也是
 
 AI不是只有open ai这一种生成式AI，他是有其他种类的，巧的是有些种类中国走在了前列。
 
+
+*****
+
+####  御坂MKII  
+##### 79#       发表于 2024-3-11 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64212940&amp;ptid=2174906" target="_blank">jojog 发表于 2024-3-11 00:16</a>
+
+claude肉眼可见的一天比一天卡
+
+chatgpt也是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 现在 llm+ 应用侧进展远比想象中慢，性能不足和 api 太贵两个总要有一个。目前看可能还是性能足够时太贵了
+

@@ -11755,3 +11755,13 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 全都是双子是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 其实会长是黄毛姐姐 （我瞎编的）
 
+
+*****
+
+####  liyropen  
+##### 2657#       发表于 2024-3-11 04:08
+
+头一回听到这主机作2代数据
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

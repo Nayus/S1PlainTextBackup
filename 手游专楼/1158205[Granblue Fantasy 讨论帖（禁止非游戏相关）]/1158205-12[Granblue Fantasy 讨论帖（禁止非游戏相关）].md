@@ -358,3 +358,13 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 闹了半天马格纳婊原来是我斗我自己养出来的。
 
+
+*****
+
+####  Sylpheed  
+##### 17694#       发表于 2024-3-11 02:09
+
+突了风暗两个250，完了一个没有加护人柱力辉夜差一把，一个干脆就两样都没出，真是突了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

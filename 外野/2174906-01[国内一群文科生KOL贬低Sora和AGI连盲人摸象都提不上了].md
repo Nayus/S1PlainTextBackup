@@ -476,3 +476,28 @@ gpt应用场景挺多了 sora确实有点画大饼
 这都是试错的一部分，谁也不能断言Sora的上限能到哪 ...</blockquote>
 前提是Sora至少要能稳定对外提供服务，而不是像现在这样拿不出证据证明自己可以稳定工作，不需要几万个废片特挑
 
+
+*****
+
+####  SkavenYesYes  
+##### 50#       发表于 2024-3-10 16:59
+
+泥潭能做个标记功能么，都tm分不清是真nt还是反串了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  革萌  
+##### 51#       发表于 2024-3-10 17:03
+
+首先证明还没上线的Sora是AGI如何
+
+
+*****
+
+####  陈乔恩  
+##### 52#       发表于 2024-3-10 17:06
+
+自动驾驶是不是ai应用，中美哪个更强呢
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

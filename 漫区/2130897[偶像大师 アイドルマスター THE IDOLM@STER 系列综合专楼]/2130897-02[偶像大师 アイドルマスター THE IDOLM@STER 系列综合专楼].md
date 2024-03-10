@@ -11728,3 +11728,11 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 【【漫谈】偶像大师百万现场 第七期【命运石之门的选择】】 [https://www.bilibili.com/video/BV1UJ4m1h7fb/](https://www.bilibili.com/video/BV1UJ4m1h7fb/)
 
+
+*****
+
+####  凡人  
+##### 2654#       发表于 2024-3-10 20:58
+
+面板低是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

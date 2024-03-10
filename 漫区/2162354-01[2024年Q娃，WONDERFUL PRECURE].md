@@ -751,3 +751,14 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 但也是太狗了导致小麦在剧情上完全没有主角地位 这方面想平衡好太难了
 
+
+*****
+
+####  modedd  
+##### 1153#       发表于 2024-3-10 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209176&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-3-10 17:16</a>
+
+但也是太狗了导致小麦在剧情上完全没有主角地位 这方面想平衡好太难了</blockquote>
+其实考虑到这个彩叶和萨托鲁之间的感情戏以后百分百会进一步展开的情况，小麦以后只会越来越影薄吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

@@ -639,3 +639,13 @@ openai的作用就是告诉大家，transformer是一个能力大砖飞的架构
 
 SORA能用了？
 
+
+*****
+
+####  你又开始了？  
+##### 69#       发表于 2024-3-10 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64208429&amp;ptid=2174906" target="_blank">四口神 发表于 2024-3-10 15:35</a>
+突然想看看坛友当时有没有吹元宇宙、是怎么吹的（）</blockquote>
+印象中没，都在嘲笑元宇宙土比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -309,3 +309,18 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 不能用JGJ直接砸，但可以凸照片再拆获得多球，所以必须至少有一个照片。这操作真是运营又抠又恶毒的最真实写照了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  强化人小叶子1号  
+##### 17689#       发表于 2024-3-10 19:39
+
+讲道理，5个球20%，我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  はちたや  
+##### 17690#       发表于 2024-3-10 19:44
+
+主招的属攻甚至是自私属攻<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer"> 昨天还没感觉，今天点了几下老王约等于零提升还多了一堆氪金项目真是麻了
+

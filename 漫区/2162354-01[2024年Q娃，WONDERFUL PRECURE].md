@@ -762,3 +762,15 @@ ost1封面出了 看来石锤猫组是夏季追加了
 但也是太狗了导致小麦在剧情上完全没有主角地位 这方面想平衡好太难了</blockquote>
 其实考虑到这个彩叶和萨托鲁之间的感情戏以后百分百会进一步展开的情况，小麦以后只会越来越影薄吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1154#       发表于 2024-3-10 18:39
+
+彩羽小麦2人吵大了确实有点没想到，没有把小麦简单直接的变人好评（虽然我觉得现在就是这个过程过几集就要变了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+彩羽兽王天赋确定自带驯服（大）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这集狮子跑了悟特写没有兔子这越来越明显了就是兔子赶跑的把<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

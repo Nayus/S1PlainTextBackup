@@ -1418,3 +1418,14 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 1616#       发表于 2024-3-10 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209200&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-10 17:19</a>
+
+抽象鬼佬是这样的，昨天碰到一队三人在花了20多分钟几乎耗光增援的情况下只做了主任务和一个次要，更绝的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我排的鬼佬大部分都挺拟人的，中文ID的抽象人多点
+

@@ -5358,3 +5358,79 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 这尼玛就是个打枪游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，捏脸有啥实际作用吗？
 
+
+*****
+
+####  aptx8285144  
+##### 4301#       发表于 2024-3-10 20:16
+
+<img src="https://img.saraba1st.com/forum/202403/10/192409d339dgsgbb344nss.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240310192212.png</strong> (110.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 19:24 上传
+
+艾女士这里翻译成了我，安洁：没事，没事，我的主人感情我理解<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/10/192608vm42ft8mf8fcskfs.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240310192558.png</strong> (67.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 19:26 上传
+
+所以下一话启动的是还完好的部分
+
+<img src="https://img.saraba1st.com/forum/202403/10/192820mnd8fhjdd8n8q8ao.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240310192810.png</strong> (62.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 19:28 上传
+
+彦语
+
+<img src="https://img.saraba1st.com/forum/202403/10/194547fqm9o4zz819ipzf9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240310194537.png</strong> (56.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 19:45 上传
+
+只是模仿，诺娃自己也有数
+
+<img src="https://img.saraba1st.com/forum/202403/10/194724qn2p6256cnhzhb9r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240310194716.png</strong> (66.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 19:47 上传
+
+彼方这句话也说了很多次了
+
+<img src="https://img.saraba1st.com/forum/202403/10/195208h7s7hvd13d0710gs.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240310195155.png</strong> (13.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 19:52 上传
+
+再次提到资源问题
+
+<img src="https://img.saraba1st.com/forum/202403/10/201249embxmvnerw4moggw.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240310201239.png</strong> (36.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 20:12 上传
+
+又听了一次合唱，只能说古贺葵尽力了，歌还不错
+

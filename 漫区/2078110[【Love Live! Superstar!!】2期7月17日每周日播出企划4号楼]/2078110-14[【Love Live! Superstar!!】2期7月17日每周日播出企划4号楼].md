@@ -614,3 +614,11 @@ k组的图感觉透视有问题，看的别扭，构图倒是思路挺好的
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ViyViy  
+##### 19773#       发表于 2024-3-10 20:07
+
+话说UNIVERS这张单人ver的资源一直没人传吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正就我贫瘠的来路是都没见着有人传单人版的。
+

@@ -6120,3 +6120,11 @@ epd5是不是没有检查场景美术方面的bug的员工
 匹配到的野人ID笑了半天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谁懂我的笑点
 <img src="https://p.sda1.dev/16/75e0b5d0e58226852bed98a9f4552f32/Screenshot_2024-03-09-23-06-22-73_ddeaecd32494ea01189cfb481b91c95b.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 3601#       发表于 2024-3-11 01:01
+
+第一天没空，第二天就极其抽象，MAX局为什么会有人只搬两个蛋的
+

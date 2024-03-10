@@ -1251,3 +1251,13 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 有没有人遇到社区好友在线情况为零、无法解锁普通难度以及采购商店无法购买的bug？游戏重装了N次没用，快疯了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.BBWoLf  
+##### 1600#       发表于 2024-3-10 10:24
+
+我现在社区里朋友能看到我，我看不到他们，再次发送加好友也不顶用。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

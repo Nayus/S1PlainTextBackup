@@ -622,3 +622,19 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">无论如何现在Q娃能用两集的篇幅写前期的吵架是难得可贵的……从这一集来看，根本问题是彩叶还是把小麦当成小狗狗，可是小麦无论从性格还是气质上都是一条真正的狗，所以下一集很难办啊，但应该还是两人道歉简单糊弄过去
 
+
+*****
+
+####  6030sylar  
+##### 1142#       发表于 2024-3-10 10:29
+
+<img src="https://img.saraba1st.com/forum/202403/10/102406adilcio01g7gvvi6.jpg" referrerpolicy="no-referrer">
+
+<strong>@A%P71}[MK5HR1WGR]]6H{V.jpg</strong> (211.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 10:24 上传
+
+小麦还是要认清自己是条狗
+

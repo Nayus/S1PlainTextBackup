@@ -803,3 +803,13 @@ ost1封面出了 看来石锤猫组是夏季追加了
 小麦还是要认清自己是条狗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到这个动作我就知道你们又要go了
 
+
+*****
+
+####  maoyou  
+##### 1158#       发表于 2024-3-10 21:31
+
+说起来狗害怕的时候会尿失禁，怎么没人画<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

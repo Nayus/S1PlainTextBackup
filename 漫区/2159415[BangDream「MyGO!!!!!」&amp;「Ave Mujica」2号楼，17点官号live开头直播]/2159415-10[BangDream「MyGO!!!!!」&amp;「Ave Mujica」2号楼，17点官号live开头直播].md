@@ -8582,3 +8582,13 @@ Cooooool Kanon
 
 [https://twitter.com/AkaneY_banu/status/1766803166778343436](https://twitter.com/AkaneY_banu/status/1766803166778343436)
 
+
+*****
+
+####  6030sylar  
+##### 14060#       发表于 2024-3-10 21:29
+
+<img src="http://i0.hdslb.com/bfs/new_dyn/68cad81b0a8e12b84303b4b49021e9ce588051389.png" referrerpolicy="no-referrer">
+
+已经默认损友三人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

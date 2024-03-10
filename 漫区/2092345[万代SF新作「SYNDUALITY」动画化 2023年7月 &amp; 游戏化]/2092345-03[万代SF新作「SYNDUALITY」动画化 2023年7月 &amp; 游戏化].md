@@ -5476,3 +5476,11 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 
 好像听说最终话会交代威斯的想法，估计也是<strong>很古板的想法</strong>，不过讲清楚也好，主线完整一些就好
 
+
+*****
+
+####  亚瑟邓特  
+##### 4305#       发表于 2024-3-10 23:41
+
+-2<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

@@ -8660,3 +8660,27 @@ Cooooool Kanon
 
 五周年倒计时是十几天按官推cp出的，现在只按队伍出已经很保守了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14066#       发表于 2024-3-10 23:43
+
+@Kanade_3344
+
+<img src="https://img.saraba1st.com/forum/202403/10/234338rcucnf14qpc1oy4x.jpg" referrerpolicy="no-referrer">
+
+<strong>GIURUrPbMAA_JB9.jpg</strong> (154.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 23:43 上传
+
+<img src="https://img.saraba1st.com/forum/202403/10/234341jn1wln57ev5dd7l5.jpg" referrerpolicy="no-referrer">
+
+<strong>GIUXhohaoAEAi7A.jpg</strong> (293.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 23:43 上传
+

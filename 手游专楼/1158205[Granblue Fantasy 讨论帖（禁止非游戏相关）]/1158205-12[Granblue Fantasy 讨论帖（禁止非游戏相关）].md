@@ -285,3 +285,11 @@ pro的全角色也太pro了 有几个古战场联动角色是真绝版啊
 中村为了这个全角色去年年中有几次直播一直在打bingo</blockquote>
 NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fatzhi  
+##### 17686#       发表于 2024-3-10 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能吃球，牛逼的
+

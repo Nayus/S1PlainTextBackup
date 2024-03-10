@@ -8639,3 +8639,16 @@ Cooooool Kanon
 一种名叫灰爱音但我不知道到底哪里爱音了的奇妙二创生物，主要特征跟你说的差不多。 ...</blockquote>
 我还以为是爱音双招时会从卡组里叫出4个mygo字段的卡所以必须要灰
 
+
+*****
+
+####  ddy2811  
+##### 14064#       发表于 2024-3-10 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64211667&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-3-10 22:05</a>
+
+补一下邦2期两队的倒计时
+
+第七团RAS</blockquote>
+原来真白比大小姐还大小姐的脾气是这么来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

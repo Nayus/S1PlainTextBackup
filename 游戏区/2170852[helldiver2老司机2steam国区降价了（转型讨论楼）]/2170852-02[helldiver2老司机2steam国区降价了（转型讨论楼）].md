@@ -1448,3 +1448,11 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 我排的鬼佬大部分都挺拟人的，中文ID的抽象人多点</blockquote>
 草，我完全是反过来。不过有时排到会玩的鬼佬是真会玩，只能说鬼佬的上下限差距极大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Benighted  
+##### 1619#       发表于 2024-3-10 22:47
+
+今天这服务器怎么回事，卡成狗了还狂掉
+

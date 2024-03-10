@@ -612,3 +612,22 @@ openai的作用就是告诉大家，transformer是一个能力大砖飞的架构
 
 标题写个AGI，AGI在哪儿呢？
 
+
+*****
+
+####  geeky_kappa  
+##### 66#       发表于 2024-3-10 20:39
+
+坏文明，买本规则书上千份插画全是ai，审美疲劳了
+
+
+*****
+
+####  御坂MKII  
+##### 67#       发表于 2024-3-10 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209919&amp;ptid=2174906" target="_blank">十六夜鬼月 发表于 2024-3-10 18:54</a>
+
+讨论点现实的，可预见的时间段内，ai绘画有希望够实现分图层作图的功能么？能实现的话，在2d绘画领域倒确实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个要从头重新设计，现在的 diffusion 本身的继续发展是没法提供图层信息的
+

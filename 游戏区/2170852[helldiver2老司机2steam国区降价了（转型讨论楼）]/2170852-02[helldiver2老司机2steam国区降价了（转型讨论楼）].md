@@ -1429,3 +1429,11 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 抽象鬼佬是这样的，昨天碰到一队三人在花了20多分钟几乎耗光增援的情况下只做了主任务和一个次要，更绝的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我排的鬼佬大部分都挺拟人的，中文ID的抽象人多点
 
+
+*****
+
+####  smdzh2  
+##### 1617#       发表于 2024-3-10 20:44
+
+装甲车机动性如何，跑得快的话把三个队友扔目标点然后找块平地遛大怪可行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

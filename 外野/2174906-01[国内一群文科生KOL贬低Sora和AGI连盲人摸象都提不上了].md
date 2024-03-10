@@ -649,3 +649,23 @@ SORA能用了？
 突然想看看坛友当时有没有吹元宇宙、是怎么吹的（）</blockquote>
 印象中没，都在嘲笑元宇宙土比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1242599693  
+##### 70#       发表于 2024-3-10 22:25
+
+吹的人更牛，说sora已经理解现实，掌握了物理规律，熟悉了透视
+
+
+*****
+
+####  Sacross  
+##### 71#       发表于 2024-3-10 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64207389&amp;ptid=2174906" target="_blank">Taqeakoma 发表于 2024-3-10 13:15</a>
+都还要看英伟达脸色的，再说除了ppt和视频以外，目前ai改变和提高了谁的生活体验了吗 ...</blockquote>
+天气预报那一整条都算利用ai的，另外还有包括文本语音识别翻译、3d渲染提速、人脸识别检测捕捉、机器人机械臂辅助，很多东西属于原来有方法，用现在所谓ai的方法可以更快更好，有的已经商业化有的没有完全落地
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

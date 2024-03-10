@@ -8628,3 +8628,14 @@ Cooooool Kanon
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">历年的倒计时图都这么直白吗
 
+
+*****
+
+####  makece  
+##### 14063#       发表于 2024-3-10 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64202269&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-3-9 21:05</a>
+
+一种名叫灰爱音但我不知道到底哪里爱音了的奇妙二创生物，主要特征跟你说的差不多。 ...</blockquote>
+我还以为是爱音双招时会从卡组里叫出4个mygo字段的卡所以必须要灰
+

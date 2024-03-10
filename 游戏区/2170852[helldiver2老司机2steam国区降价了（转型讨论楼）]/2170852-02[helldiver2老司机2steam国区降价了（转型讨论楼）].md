@@ -1396,3 +1396,15 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 有没有人遇到社区好友在线情况为零、无法解锁普通难度以及采购商店无法购买的bug？游戏重装了N次没用，快疯 ...</blockquote>
 这种情况一般是服务器问题，淡定
 
+
+*****
+
+####  Andrue  
+##### 1614#       发表于 2024-3-10 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64207758&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-3-10 13:59</a>
+发现已经有运兵车了，排到路人改出来了，不过刚落地就被机器人杀穿了不知道武装配置什么样 ...</blockquote>
+一个驾驶位一个机炮位两个机枪位，火力一般般可以接受，但是载具太脆强袭一冲就差不多爆了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

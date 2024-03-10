@@ -11652,3 +11652,13 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 作为粤语区，总会念错初星这个词
 
+
+*****
+
+####  伊布桑  
+##### 2650#       发表于 2024-3-10 17:59
+
+蓝从top团出来的，照理来说面板不会那么低吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -701,3 +701,15 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 小麦你不是懂人话么，直接当翻译帮彩羽翻译其他狗的话不行么，还是怪医杜立德剧情太难写了大妈写不好？
 
+
+*****
+
+####  pokemon最爱  
+##### 1148#       发表于 2024-3-10 15:28
+
+小麦没有因为能变成人而失去作为狗狗的特色导致史上首个普通非人动物粉主的设定沦为噱头我觉得是挺好的一件事，你们知道我在批评谁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外个人怀疑Wonderful由于自身是狗所以没办法用指挥棒借用闪耀动物的力量，只能当作合体技武器用，相应的Wonderful基础能力比Friendy更高些（
+
+还有看小雪这态度怎么感觉她其实知道些什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

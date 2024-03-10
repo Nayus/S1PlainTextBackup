@@ -679,3 +679,25 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 哦，她真的能变Q娃，那没事了
 
+
+*****
+
+####  上坂莲华  
+##### 1147#       发表于 2024-3-10 13:06
+
+<img src="https://img.saraba1st.com/forum/202403/10/125422pcy1lfhzlfl7hm11.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240310125313.png</strong> (109.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 12:54 上传
+
+彩羽：我打信号了为什么不撤，小麦，这把是不是你打的有问题！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+小麦：我也有说法的啊，我一个蝴蝶犬打不过狮子也很正常吧！<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+这是Q娃史上第一次出现食物链压制吧说好的初生牛犊不怕虎呢，而且狮子怎么压制到你一个犬科的
+
+小麦你不是懂人话么，直接当翻译帮彩羽翻译其他狗的话不行么，还是怪医杜立德剧情太难写了大妈写不好？
+

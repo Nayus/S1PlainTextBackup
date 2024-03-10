@@ -543,3 +543,28 @@ openai的作用就是告诉大家，transformer是一个能力大砖飞的架构
 
 那力大不就是砸钱么，大家都能砸...
 
+
+*****
+
+####  ddwhzh  
+##### 58#       发表于 2024-3-10 18:08
+
+我只知道TikTok火爆全球靠短视频，sora就是做短视频的，sora现在影片就只发布在TikTok上
+
+
+*****
+
+####  crystalspire  
+##### 59#       发表于 2024-3-10 18:10
+
+我也没明白sora这种能怎么提升社会生产力
+
+*****
+
+####  ambivalence  
+##### 60#       发表于 2024-3-10 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+别逼逼，就说现在AI最适合的应用搞黄色它能搞吗
+

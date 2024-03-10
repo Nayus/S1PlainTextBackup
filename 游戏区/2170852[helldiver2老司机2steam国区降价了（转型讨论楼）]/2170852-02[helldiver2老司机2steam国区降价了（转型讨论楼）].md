@@ -1408,3 +1408,13 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  风萧飒  
+##### 1615#       发表于 2024-3-10 18:14
+
+装甲车有两种，一种轻甲一种中甲的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

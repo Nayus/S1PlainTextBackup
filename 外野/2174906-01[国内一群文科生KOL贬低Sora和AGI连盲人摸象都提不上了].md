@@ -716,3 +716,13 @@ s1的特色就这样，活在自己世界里的人用驴头不对马尾的逻辑
 吹的人更牛，说sora已经理解现实，掌握了物理规律，熟悉了透视</blockquote>
 sora还没开放给用户呢，申请都没开放
 
+
+*****
+
+####  jojog  
+##### 77#       发表于 2024-3-11 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">claude肉眼可见的一天比一天卡
+
+chatgpt也是
+

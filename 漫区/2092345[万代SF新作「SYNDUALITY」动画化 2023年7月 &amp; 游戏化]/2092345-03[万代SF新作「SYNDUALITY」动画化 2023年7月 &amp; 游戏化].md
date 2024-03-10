@@ -5468,3 +5468,11 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完21我先打个-2在这里，结局就算把歌姬诈尸我也觉得救不回来了
 
+
+*****
+
+####  aptx8285144  
+##### 4304#       发表于 2024-3-10 23:16
+
+好像听说最终话会交代威斯的想法，估计也是<strong>很古板的想法</strong>，不过讲清楚也好，主线完整一些就好
+

@@ -1220,3 +1220,13 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 我现在救人和500kg都能妙搓，其他要看一下
 
+
+*****
+
+####  bladethunder  
+##### 1597#       发表于 2024-3-10 09:09
+
+搓球绑方向键一边跑一边搓很快的
+
+—— 来自 HUAWEI TAS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

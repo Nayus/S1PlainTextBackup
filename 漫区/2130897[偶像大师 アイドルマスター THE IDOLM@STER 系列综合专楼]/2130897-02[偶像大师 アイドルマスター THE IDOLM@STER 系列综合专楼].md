@@ -11580,3 +11580,11 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 黄：没钱的孩子，但是思想很正面(日花反方向了属于是)
 
+
+*****
+
+####  rgauss  
+##### 2644#       发表于 2024-3-10 15:52
+
+听了下 听到狂犬的时候我笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+

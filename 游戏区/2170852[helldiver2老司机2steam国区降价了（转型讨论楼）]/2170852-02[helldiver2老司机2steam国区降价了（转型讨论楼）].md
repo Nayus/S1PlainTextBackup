@@ -1342,3 +1342,11 @@ PC太垃圾卡死我了，又买了份PS5版，结果发现这游戏目前好友
 
 服务器应该是之前同时解锁机甲的人太多，直接搞崩了，现在应该修好了
 
+
+*****
+
+####  Launce  
+##### 1609#       发表于 2024-3-10 16:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻了，难7这野排什么群魔乱舞，剩20分3路人已经用光增援
+

@@ -8652,3 +8652,11 @@ Cooooool Kanon
 第七团RAS</blockquote>
 原来真白比大小姐还大小姐的脾气是这么来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14065#       发表于 2024-3-10 23:18
+
+五周年倒计时是十几天按官推cp出的，现在只按队伍出已经很保守了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

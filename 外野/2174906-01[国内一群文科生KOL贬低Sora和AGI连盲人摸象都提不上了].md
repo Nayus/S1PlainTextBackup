@@ -777,3 +777,15 @@ chatgpt也是</blockquote>
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 S1Next-鹅版 v2.2.2. ...</blockquote>
 中国产的车不让进口，没开过。特斯拉的自动驾驶v12感觉退步了。
 
+
+*****
+
+####  唯登诗树  
+##### 83#       发表于 2024-3-11 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209919&amp;ptid=2174906" target="_blank">十六夜鬼月 发表于 2024-3-10 18:54</a>
+讨论点现实的，可预见的时间段内，ai绘画有希望够实现分图层作图的功能么？能实现的话，在2d绘画领域倒确实 ...</blockquote>
+在你发这贴一个星期前实现了两层，前景带透明通道的人物和一个背景
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

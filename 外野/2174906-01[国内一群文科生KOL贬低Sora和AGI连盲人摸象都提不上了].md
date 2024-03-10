@@ -755,3 +755,25 @@ chatgpt也是</blockquote>
 
 抱歉，真没看出来生成一段无法定制细节，不是自己100%想要的视频，或者一个聊天机器人自带不怎么可靠的搜索引擎结果有什么颠覆性。你要吹还不如吹Adobe的那些修图AI，或者手机上模糊图片变清晰的小功能。在我看来远不如电动车，光伏，高铁这些项目。
 
+
+*****
+
+####  革萌  
+##### 81#       发表于 2024-3-11 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64211835&amp;ptid=2174906" target="_blank">你又开始了？ 发表于 2024-3-10 22:16</a>
+
+印象中没，都在嘲笑元宇宙土比</blockquote>
+有的有的，尤其是元宇宙变成了VR+区块链之后，好多吹嘘的，而且满口半懂不懂的话。
+
+*****
+
+####  星之卡比  
+##### 82#       发表于 2024-3-11 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209109&amp;ptid=2174906" target="_blank">陈乔恩 发表于 2024-3-10 17:06</a>
+自动驾驶是不是ai应用，中美哪个更强呢
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 S1Next-鹅版 v2.2.2. ...</blockquote>
+中国产的车不让进口，没开过。特斯拉的自动驾驶v12感觉退步了。
+

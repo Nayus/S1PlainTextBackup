@@ -6128,3 +6128,12 @@ epd5是不是没有检查场景美术方面的bug的员工
 
 第一天没空，第二天就极其抽象，MAX局为什么会有人只搬两个蛋的
 
+
+*****
+
+####  Ryuuseigun  
+##### 3602#       发表于 2024-3-11 02:31
+
+打到康一片金的都没掉，不死心又打一只，全铜
+rnm任天堂退钱！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

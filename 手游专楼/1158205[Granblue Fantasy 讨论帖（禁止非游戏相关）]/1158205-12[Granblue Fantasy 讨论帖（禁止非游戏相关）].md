@@ -332,3 +332,18 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野蛮土：凸来造福社会和找好友
 
+
+*****
+
+####  syndrome2032  
+##### 17692#       发表于 2024-3-11 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64160256&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2024-3-6 00:01</a>
+虽然能看懂编剧的思路，但剧情表现出来就是一个个人物的行为都很极端和搞笑啊
+
+极品黑幕不死鸟，26亿四千年 ...</blockquote>
+这凤凰的新设定感觉是参照手塚的火鸟里的火之鸟搞出来的。又是分血又是不老不死。
+
+盲猜是火鸟本身的循环到了。
+旧火鸟死亡生新的出来。旧的是敌方大奶，新的是无名。
+

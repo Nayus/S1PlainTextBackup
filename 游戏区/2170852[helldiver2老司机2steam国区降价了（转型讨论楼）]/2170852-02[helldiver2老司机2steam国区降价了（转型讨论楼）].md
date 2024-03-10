@@ -1230,3 +1230,16 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 —— 来自 HUAWEI TAS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  jy000129  
+##### 1598#       发表于 2024-3-10 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64204983&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-10 01:36</a>
+这路人，绝了，我潜行摸进去，他们开着机甲一路打过来</blockquote>
+我的选择是加入他们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+顺便还把灌150发子弹的成就完成了
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

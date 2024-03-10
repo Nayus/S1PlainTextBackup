@@ -5434,3 +5434,29 @@ SYNDUALITY Noir上半部分展现的世界观设定也是基于乐子人的视�
 
 又听了一次合唱，只能说古贺葵尽力了，歌还不错
 
+
+*****
+
+####  NeloAngelo  
+##### 4302#       发表于 2024-3-10 21:12
+
+ 本帖最后由 NeloAngelo 于 2024-3-10 21:15 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/10/210046be0aaxseaer07ssr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>31D3A181-3EBF-475F-B040-E7259DDAA60E.jpeg</strong> (763.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 21:00 上传
+
+这集的逻辑是 noir为自己占据了ciel感到抱歉,想要作为ciel完成歌姬未竟的"梦想".
+
+也就是说, 是把歌姬身后事当做"遗憾"来处理的.  也就是"债务".
+
+noir完成的转变是 "从责任中解脱出来", 作为自己而活
+
+而我们一般觉得,ciel留下的是"遗产"<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+虽然说在这集这个既定框架下,他怎么写都要挨骂.  但这集写得实在捉急, 该着墨的地方不多写明白点, 反而在万人空巷上反复啰嗦. 有点弱智.
+

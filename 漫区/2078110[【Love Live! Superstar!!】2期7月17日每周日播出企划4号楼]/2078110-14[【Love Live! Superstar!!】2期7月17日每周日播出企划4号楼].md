@@ -622,3 +622,11 @@ k组的图感觉透视有问题，看的别扭，构图倒是思路挺好的
 
 话说UNIVERS这张单人ver的资源一直没人传吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正就我贫瘠的来路是都没见着有人传单人版的。
 
+
+*****
+
+####  伊卡石  
+##### 19774#       发表于 2024-3-10 21:07
+
+今天猫组炸场子挺不错的，另外每次live都得问一句，啥时给K组出两首燃一点的歌，现在的好听归好听，但非常重要的live表现力上和其他小组还是存在明显的温差，尤其拼盘的话还是太吃亏了，真别浪费几位的歌力<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+

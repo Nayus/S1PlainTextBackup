@@ -11736,3 +11736,13 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 面板低是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 2655#       发表于 2024-3-10 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实蓝c有个超菜的双胞胎妹妹，蓝c出去跑活动的时候都是她妹妹在学校。所以菜
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

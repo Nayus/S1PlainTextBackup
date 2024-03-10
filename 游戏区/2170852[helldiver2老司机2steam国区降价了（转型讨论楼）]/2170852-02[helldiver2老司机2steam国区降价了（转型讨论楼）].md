@@ -1437,3 +1437,14 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 装甲车机动性如何，跑得快的话把三个队友扔目标点然后找块平地遛大怪可行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 1618#       发表于 2024-3-10 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64210451&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-10 20:09</a>
+
+我排的鬼佬大部分都挺拟人的，中文ID的抽象人多点</blockquote>
+草，我完全是反过来。不过有时排到会玩的鬼佬是真会玩，只能说鬼佬的上下限差距极大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

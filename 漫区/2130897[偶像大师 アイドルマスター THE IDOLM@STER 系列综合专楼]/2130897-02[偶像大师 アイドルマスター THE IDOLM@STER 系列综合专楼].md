@@ -11720,3 +11720,11 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 話說，這場是MRLIVE系列第一場開放販賣線上觀賞票的演出（不算之前在油 管上的一些生放送（打Super Chat）的話）。
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2653#       发表于 2024-3-10 20:51
+
+【【漫谈】偶像大师百万现场 第七期【命运石之门的选择】】 [https://www.bilibili.com/video/BV1UJ4m1h7fb/](https://www.bilibili.com/video/BV1UJ4m1h7fb/)
+

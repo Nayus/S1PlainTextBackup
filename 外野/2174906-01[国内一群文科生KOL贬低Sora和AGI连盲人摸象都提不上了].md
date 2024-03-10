@@ -669,3 +669,16 @@ SORA能用了？
 
 —— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  革萌  
+##### 72#       发表于 2024-3-10 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64212027&amp;ptid=2174906" target="_blank">Sacross 发表于 2024-3-10 22:33</a>
+
+天气预报那一整条都算利用ai的，另外还有包括文本语音识别翻译、3d渲染提速、人脸识别检测捕捉、机器人机 ...</blockquote>
+别硬蹭
+
+你说的这些是AGI还是Sora
+

@@ -44,3 +44,16 @@ anime trending awards是个什么奖？天国大&amp;#x6EE1 ...</blockquote>
 
 2024-3-10 15:51 上传
 
+
+*****
+
+####  JetBrains  
+##### 1718#       发表于 2024-3-10 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64208531&amp;ptid=2088657" target="_blank">酷乐 发表于 2024-3-10 15:50</a>
+https://www.anitrendz.com/
+
+野鸡网站，流量连S1都不如（差一个0）</blockquote>
+这不就那个黑黄配色的截图的原网站，类似下面内容的，见到很多人对此网站认可的，国内也经常见到这网站的图，4ch，红迪上也有炒作，找不到之前的就用一张最近的图了
+<img src="https://p.sda1.dev/16/bce01b21fa6135544ba8ee316018f2a2/CMP_20240310162145759.jpg" referrerpolicy="no-referrer">
+

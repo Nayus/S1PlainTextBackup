@@ -11588,3 +11588,51 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 听了下 听到狂犬的时候我笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  田所あずさ  
+##### 2645#       发表于 2024-3-10 16:17
+
+学院名字还是变态取的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+5X]0]KBMK`RA_C3$[_JX7BG.jpg
+(344.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 16:17 上传
+
+<img src="https://img.saraba1st.com/forum/202403/10/161736nk7wd7qwjrk2zwjk.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViviR  
+##### 2646#       发表于 2024-3-10 16:20
+
+已经想和小黄一起赚钱去了
+
+*****
+
+####  格雷殿下  
+##### 2647#       发表于 2024-3-10 16:22
+
+「覚悟はいい?声出していくよ!🏃」
+
+世界一🌍\かわいい！/
+
+宇宙一🌌\かわいい！/
+
+もっともっと声出せ🔉
+
+よそ見はダメ❌！\OK？！👌/
+
+瞬きも😉\かわいい！/
+
+存在が👧\かわいい！/
+
+もっともっと聞かせて👂
+
+ご褒美は🎁目を閉じて😣chu❤
+

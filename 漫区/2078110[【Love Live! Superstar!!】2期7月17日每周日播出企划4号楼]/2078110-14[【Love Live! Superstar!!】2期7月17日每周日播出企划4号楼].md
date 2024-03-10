@@ -585,3 +585,22 @@ k组的图感觉透视有问题，看的别扭，构图倒是思路挺好的
 
 五人版nf<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 19770#       发表于 2024-3-10 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64209940&amp;ptid=2078110" target="_blank">stygian 发表于 2024-3-10 18:56</a>
+五人版nf</blockquote>
+建议以后跨团live只保留乱炖环节。
+
+*****
+
+####  starring  
+##### 19771#       发表于 2024-3-10 19:05
+
+这组人唱nf感觉真新鲜，堇的公主裙难得用得上了
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -792,3 +792,14 @@ ost1封面出了 看来石锤猫组是夏季追加了
 
 大概也许可能在下集和好发动合体技后小麦和彩羽的双人变身还是有戏的（
 
+
+*****
+
+####  car123  
+##### 1157#       发表于 2024-3-10 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64206174&amp;ptid=2162354" target="_blank">6030sylar 发表于 2024-3-10 10:29</a>
+
+小麦还是要认清自己是条狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到这个动作我就知道你们又要go了
+

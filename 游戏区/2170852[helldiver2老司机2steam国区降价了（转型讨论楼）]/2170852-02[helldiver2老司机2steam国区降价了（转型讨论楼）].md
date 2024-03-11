@@ -1635,3 +1635,19 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 看了下地图，上面下面各空出来了一块区域，一块是光能，那说明至少还有一个新种族。乐观点长期运营的话真可以把40k的种族都克隆一遍进来，箭头能不能加个太空鼠人圆鼠鼠一个太空梦<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 1637#       发表于 2024-3-11 13:25
+
+【和箭头CEO与测试总监一起享受绝地潜兵2！4K60帧-哔哩哔哩】 https://b23.tv/9jjC6tp
+
+跟某主播一起勉强打过了N6，箭头内部就是普通路人的水平。那个时候磁小鬼还没有削。
+
+潜行算是个伴随着侦测系统和警报系统而来的副产物，（这点本来是挺好的，但是虚空刷怪毁了这一切）
+
+内部测试竟然没想到会流行打牛的断腿流，（这点本来也挺好的，说明他们开发的时候不是完全的先预想打法再想办法让玩家根据他们预想的打法来打，但是削磁小鬼毁了这一切！）
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

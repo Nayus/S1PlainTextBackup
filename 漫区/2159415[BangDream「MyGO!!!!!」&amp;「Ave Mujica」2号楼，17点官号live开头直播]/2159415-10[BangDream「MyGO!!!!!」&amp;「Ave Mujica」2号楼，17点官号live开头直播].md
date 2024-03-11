@@ -8754,3 +8754,16 @@ Cooooool Kanon
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cindy355  
+##### 14073#       发表于 2024-3-11 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216418&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-3-11 11:37</a>
+
+倒计时5天
+
+你邦唯一的六人乐队</blockquote>
+msk看起来怎么有点寂寞……说起来我上次退坑邦邦之前主推的就是msk，还好她自己和解了。
+

@@ -439,3 +439,28 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 顶流声优出场费保底社畜一个月工资，能没钱吗？别墅豪车随便买啦。氪金简直 ...</blockquote>
 已经推特重发外加kmr盖章是2月下旬第一人满人物，反正统计时间点由着官方说，现在硬着头皮也得保节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 17702#       发表于 2024-3-11 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64218272&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2024-3-11 14:44</a>
+已经推特重发外加kmr盖章是2月下旬第一人满人物，反正统计时间点由着官方说，现在硬着头皮也得保节目效果 ...</blockquote>
+2月下旬到3月初新加了什么入手难度很高的角色吗。
+
+这事本质就是拍马屁拍到别的马腿上去了。早点息事宁人装装死就算过去了。
+
+*****
+
+####  jxzeroga0  
+##### 17703#       发表于 2024-3-11 14:49
+
+ 本帖最后由 jxzeroga0 于 2024-3-11 14:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64218305&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2024-3-11 14:48</a>
+
+2月下旬到3月新加了什么入手难度很高的角色吗。
+
+这是拍马屁拍到别的马腿上去了。早点息事宁人装装死就算 ...</blockquote>
+月末6%加了3个角色，真要硬扯就是pro抽得别人快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

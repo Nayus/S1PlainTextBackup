@@ -1682,3 +1682,11 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说真的不把虚空刷怪这个刷怪方式修改，除非出更多火力更猛的玩意不然出啥种族对游戏体验都不会有什么大的变化
 
+
+*****
+
+####  smdzh2  
+##### 1641#       发表于 2024-3-11 14:52
+
+高达体验好微妙啊，不是刚空投下来就被泰坦踩爆，就是火箭弹莫名其妙杀死自己或队友<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

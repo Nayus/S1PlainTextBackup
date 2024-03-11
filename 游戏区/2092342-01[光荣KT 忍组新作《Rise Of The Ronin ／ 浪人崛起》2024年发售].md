@@ -1857,3 +1857,14 @@ only on PS （for a while）
 
 看隔壁说明早就有媒体评测了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">到时候看看吧
 
+
+*****
+
+####  godless2020  
+##### 853#       发表于 2024-3-11 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216855&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-11 12:14</a>
+
+认识的人参加了线下的试玩会，说是试玩会，但搞得跟地下集会一样，听小弟和安田吹逼吹了1小时，试玩就一小 ...</blockquote>
+这个弹反不是战斗必须要掌握的吧，卧龙化劲勉勉强强
+

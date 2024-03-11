@@ -5740,3 +5740,18 @@ copy
 —— 来自 Xiaomi 2203121C, Android 14上的 S1Next-鹅版 v2.5.3-play ...</blockquote>
 隐形小丑呢？有啥好的解锁方法
 
+
+*****
+
+####  铃森冬  
+##### 509#       发表于 2024-3-11 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219656&amp;ptid=2154925" target="_blank">伊布桑 发表于 2024-3-11 16:43</a>
+
+问个问题，特技演员有什么比较简单的解锁法，一手一亿太难了
+
+—— 来自 Xiaomi 23049RAD8C, Androi ...</blockquote>
+无尽上大分比较容易堆上去的套路的话基本就是复制一堆红蜡封的钢铁K然后配人头或者手牌多触发一次，要么就是复数张红戳玻璃或者五彩膜牌还是加触发次数
+
+只靠小丑牌堆乘数不靠纸牌提供的话确实很难堆够，反正目标就是能凑到每张打出来或者捏着的纸牌有2倍以上的乘数提供，然后一亿分应该不用凑得很齐也够了
+

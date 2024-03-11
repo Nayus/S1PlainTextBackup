@@ -1485,3 +1485,18 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  赤井稻妻  
+##### 1623#       发表于 2024-3-11 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64214462&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-11 08:56</a>
+
+是ps5房独有的稳定触发的让游戏简单的bug
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+我昨天还测试ps5单人磁轨枪秒泰坦，前面不是有人说能单人复现吗，结果是不行，包括我日常建房的时候自己用磁轨枪打泰坦都巨费劲，路人倒是随便秒，似乎不是单纯的ps5的泰坦血少
+
+ps5进ps5房间又能触发，应该是ps5作主机的网络问题或者之类的东西
+

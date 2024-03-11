@@ -51,3 +51,11 @@ https://mihon.app/docs/guides/local-source/</blockquote>
 呃文字类epub还是用专门的应用靠谱吧，例如静读天下，弱一点用阅读也行，否则连字号什么的可能都不好调 ...</blockquote>
 嗯。我现在确实用其他的软件。
 
+
+*****
+
+####  肛之练筋士  
+##### 193#       发表于 2024-3-11 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">想问问有什么插件是比较好用的，参考了上面的暂时装了dmzj、vomic、拷贝、bato.to、古风漫画、COLAMANGA、包子漫画
+

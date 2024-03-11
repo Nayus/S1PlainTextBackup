@@ -885,3 +885,14 @@ it is 麦狗
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  不能摸的屁屁  
+##### 1164#       发表于 2024-3-11 12:04
+
+小麦真的是当狗来画啊，既然如此有宠物思维就够了，没必要往人类方向成长吧，去学校是为跟主人玩还情有可原，要是以后真的开始努力学习补考什么的那也太奇怪了
+
+倒是小雪这种聪明猫比笨狗子好处理，自带智力max，在学校可以当世外高人，被同学崇拜但完全不在乎，一门心思指点主人社交
+想到华哥晚上还要教狗子写作业就很离谱<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

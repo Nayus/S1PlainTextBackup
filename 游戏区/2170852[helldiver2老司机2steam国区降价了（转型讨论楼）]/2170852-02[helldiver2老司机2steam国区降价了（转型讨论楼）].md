@@ -1554,3 +1554,11 @@ ps5进ps5房间又能触发，应该是ps5作主机的网络问题或者之类�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游戏中产品测试主管为 5 级，CEO 为 10 级
 
+
+*****
+
+####  Mr.Hopp  
+##### 1629#       发表于 2024-3-11 11:06
+
+PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

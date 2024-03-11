@@ -1518,3 +1518,15 @@ ps5进ps5房间又能触发，应该是ps5作主机的网络问题或者之类�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  airshit  
+##### 1626#       发表于 2024-3-11 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只敢打难6，野排空袭激光机炮，单走潜行拆机器人据点捡样本，队友不行了再去帮忙做主线任务。
+
+打虫子就换个榴弹，虫子这个虫窝是真的恶心，靠近就冒出一堆怪，一点道理都不讲的。
+
+野排的队友确实抽象，我一般到了撤离点就把样本放下，最后撤离的时候再捡。这些人看到地上有就捡起来，最后不知道死在老远的地方又捡不到，气笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+

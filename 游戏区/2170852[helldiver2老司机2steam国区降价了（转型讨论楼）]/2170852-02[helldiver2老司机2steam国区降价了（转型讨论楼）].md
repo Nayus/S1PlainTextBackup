@@ -1562,3 +1562,23 @@ ps5进ps5房间又能触发，应该是ps5作主机的网络问题或者之类�
 
 PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白玫瑰之夜  
+##### 1630#       发表于 2024-3-11 11:22
+
+机甲打虫子好使特别是撤离的时候守点不错，机器人那火力纯纯当靶子还是算了吧byd火力又猛射的又准想投敌了
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Launce  
+##### 1631#       发表于 2024-3-11 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216220&amp;ptid=2170852" target="_blank">白玫瑰之夜 发表于 2024-3-11 11:22</a>
+
+机甲打虫子好使特别是撤离的时候守点不错，机器人那火力纯纯当靶子还是算了吧byd火力又猛射的又准想投敌 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回归一代初心了，唯一全场用就是打光能欺负没有重甲单位，其余基本就是做护送火车和撤离的时候才用
+

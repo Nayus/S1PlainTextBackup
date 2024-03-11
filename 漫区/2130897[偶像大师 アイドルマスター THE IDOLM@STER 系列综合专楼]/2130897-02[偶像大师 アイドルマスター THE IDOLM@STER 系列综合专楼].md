@@ -11797,3 +11797,16 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 你说的对，但动画《偶像大师百万现场》是由第96届奥斯卡最佳效果得主的原班视效团队亲力打造
 
+
+*****
+
+####  三味线陆战型  
+##### 2662#       发表于 2024-3-11 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216905&amp;ptid=2130897" target="_blank">kangkangsama 发表于 2024-3-11 12:20</a>
+
+あらかねの器看推上说比之前还好？铃果又进步了？</blockquote>
+确实好 稳得一匹 
+
+豪哥事后直接去铃果下面说听哭了
+

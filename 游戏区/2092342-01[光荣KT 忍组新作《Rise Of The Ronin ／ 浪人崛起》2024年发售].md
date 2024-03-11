@@ -1842,3 +1842,18 @@ only on PS （for a while）
 
 最最严格应该也就仁王的逆波的水平吧，玩习惯后还是随便弹
 
+
+*****
+
+####  无意义小号  
+##### 851#       发表于 2024-3-11 14:03
+
+怎么个不太行 罐头水平都没吗
+
+*****
+
+####  duraa  
+##### 852#       发表于 2024-3-11 14:06
+
+看隔壁说明早就有媒体评测了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">到时候看看吧
+

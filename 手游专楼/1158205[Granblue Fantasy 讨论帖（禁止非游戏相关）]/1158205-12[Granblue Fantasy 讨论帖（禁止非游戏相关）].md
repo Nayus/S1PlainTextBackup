@@ -418,3 +418,11 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么感觉这个暴击增伤是鼓励你双面往死里堆暴击啊，23年还以为以后都是单面了呢
 
+
+*****
+
+####  12481632  
+##### 17700#       发表于 2024-3-11 14:12
+
+富余老王早就拆完了，只凸了个240火老王出来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -5660,3 +5660,14 @@ copy
 
 就是说本体被佩科西欧复制了之后我把本体卖了复制出来的负片还可以继续复制吗
 
+
+*****
+
+####  周愚  
+##### 502#       发表于 2024-3-11 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64214294&amp;ptid=2154925" target="_blank">会长辅佐 发表于 2024-3-11 08:34</a>
+
+就是说本体被佩科西欧复制了之后我把本体卖了复制出来的负片还可以继续复制吗 ...</blockquote>
+可以啊
+

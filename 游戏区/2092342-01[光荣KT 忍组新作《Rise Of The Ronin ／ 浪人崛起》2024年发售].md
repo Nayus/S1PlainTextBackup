@@ -1868,3 +1868,48 @@ only on PS （for a while）
 认识的人参加了线下的试玩会，说是试玩会，但搞得跟地下集会一样，听小弟和安田吹逼吹了1小时，试玩就一小 ...</blockquote>
 这个弹反不是战斗必须要掌握的吧，卧龙化劲勉勉强强
 
+
+*****
+
+####  紫沙狐  
+##### 854#       发表于 2024-3-11 15:54
+
+所以到底有没有dlc？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本杰明铁柱  
+##### 855#       发表于 2024-3-11 15:57
+
+以正常人类的思路，化劲作为精准防御和防御放同一个键位吗，用三角做化劲是个什么思路，这按得能舒服吗
+
+
+*****
+
+####  duraa  
+##### 856#       发表于 2024-3-11 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219049&amp;ptid=2092342" target="_blank">本杰明铁柱 发表于 2024-3-11 15:57</a>
+以正常人类的思路，化劲作为精准防御和防御放同一个键位吗，用三角做化劲是个什么思路，这按得能舒服吗 ...</blockquote>
+一说石火也是重攻击，起手的时候带弹反判定（类似拼刀的感觉？
+
+*****
+
+####  本杰明铁柱  
+##### 857#       发表于 2024-3-11 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219082&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-11 16:00</a>
+
+一说石火也是重攻击，起手的时候带弹反判定（类似拼刀的感觉？</blockquote>
+那感觉属于是怪猎xx勇气太刀GP了，要是真这样弄我倒觉得是个好思路
+
+*****
+
+####  violettor  
+##### 858#       发表于 2024-3-11 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219049&amp;ptid=2092342" target="_blank">本杰明铁柱 发表于 2024-3-11 15:57</a>
+
+以正常人类的思路，化劲作为精准防御和防御放同一个键位吗，用三角做化劲是个什么思路，这按得能舒服吗 ...</blockquote>
+MGRR也是攻击键作为防反，实际体验还是不错的，攻防一体，刀尖跳舞。
+

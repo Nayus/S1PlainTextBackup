@@ -677,3 +677,11 @@ b站分享链接有点问题，搜av号和链接打不开，标题搜索吧<img 
 索尼提供了全面的本地化支持、市场 ...</blockquote>
 等上了PC有几套服装配件就不是厂家说了算了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouaa  
+##### 387#       发表于 2024-3-11 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果真没日语 那肯定还是PC了  说什么话也不是厂家说的算
+

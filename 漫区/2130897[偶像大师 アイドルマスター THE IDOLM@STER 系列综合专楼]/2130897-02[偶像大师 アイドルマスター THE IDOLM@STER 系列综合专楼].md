@@ -11765,3 +11765,11 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  koodooliz  
+##### 2658#       发表于 2024-3-11 10:17
+
+桃子确实很主角定位，是不是南梦宫老人在百万的偏爱？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

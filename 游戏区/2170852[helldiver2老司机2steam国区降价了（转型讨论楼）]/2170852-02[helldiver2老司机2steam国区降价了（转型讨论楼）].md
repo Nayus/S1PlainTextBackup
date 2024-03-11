@@ -1625,3 +1625,13 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216897&amp;ptid=2170852" target="_blank"> ddwhzh 发表于 2024-3-11 12:19</a> 光能族新模型就差把半条命写脸上了，学帕鲁是吧。 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起机器人对锤四万的“致敬”程度，这种只能说撒撒水啦来自: iPhone客户端
 
+
+*****
+
+####  PlasmaSnake  
+##### 1636#       发表于 2024-3-11 13:08
+
+ 本帖最后由 PlasmaSnake 于 2024-3-11 13:10 编辑 
+
+看了下地图，上面下面各空出来了一块区域，一块是光能，那说明至少还有一个新种族。乐观点长期运营的话真可以把40k的种族都克隆一遍进来，箭头能不能加个太空鼠人圆鼠鼠一个太空梦<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

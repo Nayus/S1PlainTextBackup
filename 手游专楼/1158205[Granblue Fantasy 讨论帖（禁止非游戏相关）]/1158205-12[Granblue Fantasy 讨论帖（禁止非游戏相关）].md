@@ -388,3 +388,11 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 顶流声优出场费保底社畜一个月工资，能没钱吗？别墅豪车随便买啦。氪金简直小意思。喜欢玩车的男声优真不少，子安还买了一栋温泉别墅<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 中村这个“节目效果”一般都是提前准备好的台本，但有另外人满图鉴，我不好说是cy草台，还是就为了用中村引流睁眼说瞎话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  840266848  
+##### 17697#       发表于 2024-3-11 13:15
+
+十周年部分烂活归烂活，但是看起来gbf氪金力还是挺足的。cy马娘之下真会让它两年后关服，这破月卡玩游戏的都能体会到真TM多人买，我的河道居然堵车了
+

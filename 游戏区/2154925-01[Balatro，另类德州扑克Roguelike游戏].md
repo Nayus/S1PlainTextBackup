@@ -5620,3 +5620,14 @@ copy
 
 负片能被佩科西欧复制吗
 
+
+*****
+
+####  周愚  
+##### 498#       发表于 2024-3-11 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64213531&amp;ptid=2154925" target="_blank">会长辅佐 发表于 2024-3-11 01:47</a>
+
+负片能被佩科西欧复制吗</blockquote>
+负片幻灵牌每次减手牌上限额外+1，0以下直接输
+

@@ -1069,3 +1069,14 @@ Last Encore那个文艺风还是不错的，当年看完最大的嘈点是最后
 
 有一说一，樱花迷宫还是很好听的
 
+
+*****
+
+####  cenhr  
+##### 11503#       发表于 2024-3-11 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64217061&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-3-11 12:34</a>
+
+有一说一，樱花迷宫还是很好听的</blockquote>
+CCC的主题和结尾曲都好听，只是好奇当时为啥找丹下樱唱结尾。歌是唱樱和BB，给下屋唱不是更合适？
+

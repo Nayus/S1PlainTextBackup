@@ -1732,3 +1732,21 @@ https://www.bilibili.com/video/BV14H4y1j7J1</blockquote>
 
 看了下隔壁的试玩楼，没啥有价值的信息<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好神秘的宣发
 
+
+*****
+
+####  火华火华火  
+##### 839#       发表于 2024-3-11 11:45
+
+only on PS （for a while）
+等完全版吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  clover293  
+##### 840#       发表于 2024-3-11 11:46
+
+现在还不宣布压盘。。。还没公布dlc消息。。。总觉得不好
+

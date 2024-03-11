@@ -8711,3 +8711,13 @@ Cooooool Kanon
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  CyDiablo  
+##### 14069#       发表于 2024-3-11 11:37
+
+倒计时5天
+你邦唯一的六人乐队<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/c9eb8f656a0996f0ffd23b4dd0d912f8/Image_1710128054464.jpg" referrerpolicy="no-referrer">
+

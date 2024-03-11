@@ -11773,3 +11773,11 @@ ConnecTrip! 岩手公演 晝場Setlist<blockquote>→ 開演前告知 // ワン�
 
 桃子确实很主角定位，是不是南梦宫老人在百万的偏爱？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolf1997  
+##### 2659#       发表于 2024-3-11 11:37
+
+恭喜白组获得奥斯卡最佳特效奖，百友沾光了
+

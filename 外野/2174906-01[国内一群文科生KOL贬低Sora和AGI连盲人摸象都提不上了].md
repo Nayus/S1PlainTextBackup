@@ -913,3 +913,15 @@ Sora目前其实距离落地还有周期，它的状态类似90年代用大型�
 
 sora再怎么样关我们普通人鸟事，还是关注一下stable diffusion 3什么时候发布吧家人们
 
+
+*****
+
+####  熊猫阿黑  
+##### 96#       发表于 2024-3-11 11:45
+
+华为继续科技上甘岭以一敌十<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+手机拳打苹果，汽车脚踢特斯拉，盘古把OpenAI+Sora拉一起A了，这还没算鸿蒙vs安卓、通信横扫爱诺、麒麟爆菊高通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+为啥国内挖不出第二家这种公司呢，定体问
+

@@ -873,3 +873,15 @@ mayu这家伙性格很有问题啊，妈妈喊她听不见，只有猫猫才能�
 小麦：人間になりたいうた</blockquote>
 it is 麦狗
 
+
+*****
+
+####  最强惠酱  
+##### 1163#       发表于 2024-3-11 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64213690&amp;ptid=2162354" target="_blank">32767 发表于 2024-3-11 02:33</a>
+看着小麦颤抖的大腿镜头我兴奋了，我有罪</blockquote>
+我也看起了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

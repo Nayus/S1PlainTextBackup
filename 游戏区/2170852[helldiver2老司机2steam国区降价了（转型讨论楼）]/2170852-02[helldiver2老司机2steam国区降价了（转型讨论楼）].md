@@ -1890,3 +1890,14 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 10级的时候好像还真没啥反重甲的好办法，500kg好像后面才解锁来自: iPhone客户端
 
+
+*****
+
+####  FLZB  
+##### 1660#       发表于 2024-3-11 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220690&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-3-11 18:02</a>
+
+10级的时候好像还真没啥反重甲的好办法，500kg好像后面才解锁</blockquote>
+EAT和无后坐力炮都是前期主力反装甲，别说10级，5级都能解锁。这俩人是一个都不带，反重甲基本全靠主播的雌鬼（视频录制时间是平衡之前），甚至还一度出现箭头双人组机炮合体给泰坦按摩的场面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

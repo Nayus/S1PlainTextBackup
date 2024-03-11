@@ -1724,3 +1724,11 @@ https://www.bilibili.com/video/BV14H4y1j7J1</blockquote>
 
 这宣发太神了，不看论坛都不知道有线下试玩，而且内容还不给透露
 
+
+*****
+
+####  duraa  
+##### 838#       发表于 2024-3-11 11:33
+
+看了下隔壁的试玩楼，没啥有价值的信息<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好神秘的宣发
+

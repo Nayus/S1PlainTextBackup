@@ -5755,3 +5755,18 @@ copy
 
 只靠小丑牌堆乘数不靠纸牌提供的话确实很难堆够，反正目标就是能凑到每张打出来或者捏着的纸牌有2倍以上的乘数提供，然后一亿分应该不用凑得很齐也够了
 
+
+*****
+
+####  schneehertz  
+##### 510#         楼主| 发表于 2024-3-11 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220624&amp;ptid=2154925" target="_blank">稲穂信 发表于 2024-3-11 17:56</a>
+
+隐形小丑呢？有啥好的解锁方法</blockquote>
+模具小丑
+
+或者等离子卡组配合特技演员，斗牛和城堡之类的
+
+不过其实白注4张小丑不难的，别拿第五张就行
+

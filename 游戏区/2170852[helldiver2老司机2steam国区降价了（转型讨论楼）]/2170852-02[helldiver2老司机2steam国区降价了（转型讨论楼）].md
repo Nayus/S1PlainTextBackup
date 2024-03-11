@@ -1856,3 +1856,37 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 2024-3-11 17:52 上传
 
+
+*****
+
+####  smdzh2  
+##### 1656#       发表于 2024-3-11 17:58
+
+现在难6团灭倒也没什么奇怪的，路人被坦克虫和跳虫混合双打打得屁滚尿流的例子比比皆是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 1657#       发表于 2024-3-11 17:58
+
+可以了，一个十级一个五级打难6可不就这个水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mr.Hopp  
+##### 1658#       发表于 2024-3-11 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220551&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-11 17:49</a>
+
+那个似乎是谣传，战备和白给的都是两个油箱</blockquote>
+不过近战我按右摇杆按出来过，就是不知道怎么复现。
+
+*****
+
+####  DawnGuardian  
+##### 1659#       发表于 2024-3-11 18:02
+
+10级的时候好像还真没啥反重甲的好办法，500kg好像后面才解锁来自: iPhone客户端
+

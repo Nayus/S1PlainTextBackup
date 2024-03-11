@@ -8777,3 +8777,26 @@ msk看起来怎么有点寂寞……说起来我上次退坑邦邦之前主推�
 
 —— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14075#       发表于 2024-3-11 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220370&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-3-11 17:34</a>
+—— 来自 HUAWEI NAM-AL00, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
+好有含金量（）
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  傘木希美  
+##### 14076#       发表于 2024-3-11 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220370&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-3-11 17:34</a>
+—— 来自 HUAWEI NAM-AL00, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
+这个是要两卷bd都买才有那个支架啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

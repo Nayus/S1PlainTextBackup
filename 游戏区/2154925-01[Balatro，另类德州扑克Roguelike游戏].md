@@ -5727,3 +5727,16 @@ copy
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  稲穂信  
+##### 508#       发表于 2024-3-11 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220466&amp;ptid=2154925" target="_blank">schneehertz 发表于 2024-3-11 17:42</a>
+
+不难的，只要多打总有很胡的局
+
+—— 来自 Xiaomi 2203121C, Android 14上的 S1Next-鹅版 v2.5.3-play ...</blockquote>
+隐形小丑呢？有啥好的解锁方法
+

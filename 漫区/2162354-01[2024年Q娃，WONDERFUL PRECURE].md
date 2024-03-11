@@ -862,3 +862,14 @@ mayu这家伙性格很有问题啊，妈妈喊她听不见，只有猫猫才能�
 这不是给了不少莫名其妙的大腿镜头，precure是自带净化系统的吧</blockquote>
 看着小麦颤抖的大腿镜头我兴奋了，我有罪
 
+
+*****
+
+####  碎镜子  
+##### 1162#       发表于 2024-3-11 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64206222&amp;ptid=2162354" target="_blank">Mr.Giraffe 发表于 2024-3-10 10:39</a>
+
+小麦：人間になりたいうた</blockquote>
+it is 麦狗
+

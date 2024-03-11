@@ -1500,3 +1500,11 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 ps5进ps5房间又能触发，应该是ps5作主机的网络问题或者之类的东西
 
+
+*****
+
+####  丹德里恩  
+##### 1624#       发表于 2024-3-11 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达打虫子是真的无双，打机器人就是纯送，装甲车感觉也不会有1代那么好使
+

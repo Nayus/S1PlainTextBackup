@@ -1690,3 +1690,15 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 高达体验好微妙啊，不是刚空投下来就被泰坦踩爆，就是火箭弹莫名其妙杀死自己或队友<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Benighted  
+##### 1642#       发表于 2024-3-11 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64218343&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-11 14:52</a>
+高达体验好微妙啊，不是刚空投下来就被泰坦踩爆，就是火箭弹莫名其妙杀死自己或队友 ...</blockquote>
+目前在移动或转向过程中发射火箭都有可能炸死自己
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

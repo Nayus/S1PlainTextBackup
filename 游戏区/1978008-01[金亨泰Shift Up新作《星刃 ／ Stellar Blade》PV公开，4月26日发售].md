@@ -656,3 +656,24 @@ b站分享链接有点问题，搜av号和链接打不开，标题搜索吧<img 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主角动作没有2b和a2优雅啊
 
+
+*****
+
+####  tonberry  
+##### 385#       发表于 2024-3-11 14:58
+
+其实看nikke的剧本su写故事水平还行吧，我对这游戏期待全在剧情和音乐了
+
+
+*****
+
+####  GMJ  
+##### 386#       发表于 2024-3-11 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64214916&amp;ptid=1978008" target="_blank">SergeGlenn 发表于 2024-3-11 09:41</a>
+
+金亨泰说吉田修平在 2021 年找到了他们，在看过原型后，他们同意签约。
+
+索尼提供了全面的本地化支持、市场 ...</blockquote>
+等上了PC有几套服装配件就不是厂家说了算了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

@@ -648,3 +648,11 @@ PS4有试玩吗
 b站分享链接有点问题，搜av号和链接打不开，标题搜索吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 这视频最后几分钟boss战比其他版本的demo视频打的正常一些，不过上限看上去就这样了
 
+
+*****
+
+####  洛克萨斯  
+##### 384#       发表于 2024-3-11 14:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主角动作没有2b和a2优雅啊
+

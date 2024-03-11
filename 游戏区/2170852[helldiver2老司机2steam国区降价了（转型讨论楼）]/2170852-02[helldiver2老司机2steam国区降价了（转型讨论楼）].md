@@ -1745,3 +1745,24 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">这高达我下来的时候炸了是怎么回事
 
+
+*****
+
+####  Launce  
+##### 1647#       发表于 2024-3-11 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220002&amp;ptid=2170852" target="_blank">rgauss 发表于 2024-3-11 17:06</a>
+
+这高达我下来的时候炸了&amp;#x66 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">防爆抗性0，下来踩了蘑菇或者冰之花直接炸
+
+
+*****
+
+####  rgauss  
+##### 1648#       发表于 2024-3-11 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220128&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-11 17:15</a>
+防爆抗性0，下来踩了蘑菇或者冰之花直接炸</blockquote>
+超级气球给填线的就发这种腊鸡的装甲是吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

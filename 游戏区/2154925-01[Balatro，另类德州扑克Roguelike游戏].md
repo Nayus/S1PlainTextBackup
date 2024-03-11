@@ -5698,3 +5698,18 @@ copy
 打了两天就只能勉强打打白注啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我太菜了吗
 
+
+*****
+
+####  伊布桑  
+##### 506#       发表于 2024-3-11 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219996&amp;ptid=2154925" target="_blank">Za2134wer 发表于 2024-3-11 17:05</a>
+打了两天就只能勉强打打白注啊
+
+我太菜了吗</blockquote>
+红柱难度陡升是这样的，白柱小盲柱那三块钱太重要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，想打舒服点就roll一下开局，找个好词条跳过第一个小盲柱
+真不一定是菜，运气不好早期没有过渡小丑就是打不过的
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

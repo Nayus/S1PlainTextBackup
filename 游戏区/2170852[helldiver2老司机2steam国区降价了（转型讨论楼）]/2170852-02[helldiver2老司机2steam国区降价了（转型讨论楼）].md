@@ -1766,3 +1766,21 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 防爆抗性0，下来踩了蘑菇或者冰之花直接炸</blockquote>
 超级气球给填线的就发这种腊鸡的装甲是吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1649#       发表于 2024-3-11 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220227&amp;ptid=2170852" target="_blank">rgauss 发表于 2024-3-11 17:23</a>
+
+超级气球给填线的就发这种腊鸡的装甲是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">百年前的EXO可是直接空投砸下来的，现在这个瓦楞纸甲是鹈鹕号轻拿轻放
+
+*****
+
+####  smdzh2  
+##### 1650#       发表于 2024-3-11 17:34
+
+这机甲越玩挺傻逼，和朋友两个人同时同地叫机甲，播动画的时候空投点刚好刷出一只泰坦，两台机甲还没落地就和泰坦同归了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

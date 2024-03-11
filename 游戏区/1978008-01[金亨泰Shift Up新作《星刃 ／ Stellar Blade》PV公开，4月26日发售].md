@@ -636,3 +636,15 @@ PS4有试玩吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rainwedell  
+##### 383#       发表于 2024-3-11 10:55
+
+ 本帖最后由 Rainwedell 于 2024-3-11 10:58 编辑 
+
+【中文字幕版PS5《剑星》Demo完整流程4KHDR60帧全程无解说纯享-哔哩哔哩】  
+b站分享链接有点问题，搜av号和链接打不开，标题搜索吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+这视频最后几分钟boss战比其他版本的demo视频打的正常一些，不过上限看上去就这样了
+

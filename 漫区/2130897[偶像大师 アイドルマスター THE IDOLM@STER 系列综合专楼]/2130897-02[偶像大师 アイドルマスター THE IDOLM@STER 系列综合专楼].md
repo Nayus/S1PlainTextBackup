@@ -11861,3 +11861,14 @@ B]1~NMO~A%$9ZVG@CBD%~(N.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jiangmaomao123  
+##### 2667#       发表于 2024-3-11 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64194060&amp;ptid=2130897" target="_blank">グラフ 发表于 2024-3-8 21:46</a>
+
+尝试了一下组织爱马仕歌单制作活动，根据指定主题从各个企划中提名、挑选歌曲，拉一个歌单(10-20首)，方便 ...</blockquote>
+b站发视频了或者网易云发歌单了请敲我一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

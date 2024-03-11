@@ -1737,3 +1737,11 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 这破机甲浑身上下全是bug，我碰到的就包括不限于落地自爆、上机自爆、走路自爆、火箭弹自爆、新机甲火箭弹0 ...</blockquote>
 近战据说只有免费那个能用，有两个油箱，你买的暂时是残次品。
 
+
+*****
+
+####  rgauss  
+##### 1646#       发表于 2024-3-11 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">这高达我下来的时候炸了是怎么回事
+

@@ -410,3 +410,11 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 数值都相当的保守。
 
+
+*****
+
+####  洛克萨斯  
+##### 17699#       发表于 2024-3-11 13:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么感觉这个暴击增伤是鼓励你双面往死里堆暴击啊，23年还以为以后都是单面了呢
+

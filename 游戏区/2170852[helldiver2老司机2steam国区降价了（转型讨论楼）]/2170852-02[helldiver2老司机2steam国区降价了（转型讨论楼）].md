@@ -1718,3 +1718,11 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这补丁肉眼可见的成功
 
+
+*****
+
+####  FLZB  
+##### 1644#       发表于 2024-3-11 16:30
+
+这破机甲浑身上下全是bug，我碰到的就包括不限于落地自爆、上机自爆、走路自爆、火箭弹自爆、新机甲火箭弹0弹药，以及最踏马逆天的不管是自带战备还是白嫖的我一次近战攻击都没按出来过。
+

@@ -8767,3 +8767,13 @@ Cooooool Kanon
 你邦唯一的六人乐队</blockquote>
 msk看起来怎么有点寂寞……说起来我上次退坑邦邦之前主推的就是msk，还好她自己和解了。
 
+
+*****
+
+####  爱丁堡official  
+##### 14074#       发表于 2024-3-11 17:34
+
+<img src="https://p.sda1.dev/16/2e2183b39191b5271d8dca9748ed4b28/IMG_CMP_131061531.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -5713,3 +5713,17 @@ copy
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  schneehertz  
+##### 507#         楼主| 发表于 2024-3-11 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219656&amp;ptid=2154925" target="_blank">伊布桑 发表于 2024-3-11 16:43</a>
+问个问题，特技演员有什么比较简单的解锁法，一手一亿太难了
+
+—— 来自 Xiaomi 23049RAD8C, Androi ...</blockquote>
+不难的，只要多打总有很胡的局
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

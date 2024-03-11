@@ -1530,3 +1530,19 @@ ps5进ps5房间又能触发，应该是ps5作主机的网络问题或者之类�
 
 野排的队友确实抽象，我一般到了撤离点就把样本放下，最后撤离的时候再捡。这些人看到地上有就捡起来，最后不知道死在老远的地方又捡不到，气笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1627#       发表于 2024-3-11 10:44
+
+<img src="https://img.saraba1st.com/forum/202403/11/104402cyque1uzentw1me4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-11 10:44 上传
+
+虽然很搞笑，但是基本实锤限时实验装备就是满改效果了
+

@@ -5526,3 +5526,23 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 2，鸭田创 ...</blockquote>
 那甚至可以-4，包饺子包到最后剩个皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4310#       发表于 2024-3-11 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220599&amp;ptid=2092345" target="_blank">Rainwedell 发表于 2024-3-11 17:54</a>
+
+那甚至可以-4，包饺子包到最后剩个皮</blockquote>
+第一点其实不意外，诺娃和彼方的关系仔细想想确实不像恋爱关系呀，诺娃对彼方确实更像忠心护主<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，彼方反过来当家人看待的意思
+
+*****
+
+####  aptx8285144  
+##### 4311#       发表于 2024-3-11 18:28
+
+ 本帖最后由 aptx8285144 于 2024-3-11 18:32 编辑 
+
+仔细想想也确实，如果明确有那种感情的是歌姬和艾女士，诺娃更像女儿<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

@@ -8800,3 +8800,16 @@ msk看起来怎么有点寂寞……说起来我上次退坑邦邦之前主推�
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  爱丁堡official  
+##### 14077#       发表于 2024-3-11 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220694&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-3-11 18:02</a>
+
+这个是要两卷bd都买才有那个支架啊
+
+—— 来自 vivo V2227A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

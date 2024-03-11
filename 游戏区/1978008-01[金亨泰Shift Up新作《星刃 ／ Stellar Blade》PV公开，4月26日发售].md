@@ -624,3 +624,15 @@ PS4有试玩吗
 
 这试玩咋还不上啊
 
+
+*****
+
+####  陈词与芍药  
+##### 382#       发表于 2024-3-11 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64201975&amp;ptid=1978008" target="_blank">线程召唤使 发表于 2024-3-9 08:39</a>
+看了那个开头13分钟演示，英语配音水平非常低，等日语了。</blockquote>
+日语好像是日区限定，还是期待韩语配音吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

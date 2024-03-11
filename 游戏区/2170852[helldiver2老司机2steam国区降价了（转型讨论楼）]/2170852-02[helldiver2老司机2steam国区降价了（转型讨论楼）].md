@@ -1508,3 +1508,13 @@ ps5进ps5房间又能触发，应该是ps5作主机的网络问题或者之类�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达打虫子是真的无双，打机器人就是纯送，装甲车感觉也不会有1代那么好使
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1625#       发表于 2024-3-11 10:21
+
+我怀疑ps5主机和pc主机刷怪完全不同，昨天加的野队打难5，全图清遇见的坦克虫没超过3只，一个点最多刷一只。然后晚上当主机和朋友两人打难4，清个虫巢，连续出了3只<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

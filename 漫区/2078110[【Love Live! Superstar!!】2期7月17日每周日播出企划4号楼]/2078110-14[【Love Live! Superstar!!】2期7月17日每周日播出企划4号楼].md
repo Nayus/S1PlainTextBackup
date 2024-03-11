@@ -686,3 +686,11 @@ K组这破曲子就限制了三人的发挥，三人都尝试融入更多情绪�
 
 想听K组来点soldier game那样的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，咱也不是一定要做苦情曲里的大人嘛
 
+
+*****
+
+####  ViyViy  
+##### 19781#       发表于 2024-3-11 10:20
+
+等第四首看看吹什么风吧，事不过三呐（心虚）<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

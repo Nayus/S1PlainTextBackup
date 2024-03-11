@@ -6137,3 +6137,13 @@ epd5是不是没有检查场景美术方面的bug的员工
 打到康一片金的都没掉，不死心又打一只，全铜
 rnm任天堂退钱！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3603#       发表于 2024-3-11 09:55
+
+周六随便打了几把就143了，周日为了拿首胜匹配的队友真的一个比一个抽象
+
+大润匹配是随机的吗，击杀个位数我实在看不出来是传说水平
+

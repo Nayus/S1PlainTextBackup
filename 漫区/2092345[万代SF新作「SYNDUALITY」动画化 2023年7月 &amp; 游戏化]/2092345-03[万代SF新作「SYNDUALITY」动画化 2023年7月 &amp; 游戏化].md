@@ -5484,3 +5484,13 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 
 -2<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyMS  
+##### 4306#       发表于 2024-3-11 10:43
+
+【【1月】奇异贤伴 黑色天使 SYNDUALITY Noir 第22话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/EadZN6I](https://b23.tv/EadZN6I) 中文预告来了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

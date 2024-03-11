@@ -1773,3 +1773,13 @@ only on PS （for a while）
 认识的人参加了线下的试玩会，说是试玩会，但搞得跟地下集会一样，听小弟和安田吹逼吹了1小时，试玩就一小 ...</blockquote>
 马上就要发售了还这么藏？不知道的还以为还有半年呢
 
+
+*****
+
+####  寂长无星夜  
+##### 843#       发表于 2024-3-11 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216519&amp;ptid=2092342" target="_blank">clover293 发表于 2024-3-11 11:46</a>
+现在还不宣布压盘。。。还没公布dlc消息。。。总觉得不好</blockquote>
+？差10天就发售了还宣布什么压盘，这次没卖季票应该没有dlc计划
+

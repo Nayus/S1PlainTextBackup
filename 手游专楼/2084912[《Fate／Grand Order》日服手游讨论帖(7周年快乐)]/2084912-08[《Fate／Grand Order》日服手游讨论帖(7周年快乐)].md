@@ -1088,3 +1088,14 @@ CCC的主题和结尾曲都好听，只是好奇当时为啥找丹下樱唱结�
 
 丹下樱也是樱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11505#       发表于 2024-3-11 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219037&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-3-11 15:56</a>
+
+丹下樱也是樱</blockquote>
+也是，丹下其实也唱得不错，就歌声嫩了点儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -6165,3 +6165,13 @@ rnm任天堂退钱！<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KBAC  
+##### 3606#       发表于 2024-3-11 16:16
+
+CoroCoro4月号有附赠的游戏内名牌。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -1651,3 +1651,16 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Launce  
+##### 1638#       发表于 2024-3-11 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64217493&amp;ptid=2170852" target="_blank">runningch 发表于 2024-3-11 13:25</a>
+
+【和箭头CEO与测试总监一起享受绝地潜兵2！4K60帧-哔哩哔哩】 https://b23.tv/9jjC6tp
+
+跟某主播一起勉强打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个5级一个10级，才打几个重甲
+

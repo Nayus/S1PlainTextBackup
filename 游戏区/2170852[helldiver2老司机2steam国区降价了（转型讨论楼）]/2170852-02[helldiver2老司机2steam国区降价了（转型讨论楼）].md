@@ -1598,3 +1598,30 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 光能族新模型就差把半条命写脸上了，学帕鲁是吧。
 
+
+*****
+
+####  Launce  
+##### 1634#       发表于 2024-3-11 12:39
+
+ 本帖最后由 Launce 于 2024-3-11 12:42 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/11/123944vbeckqiah0b6ndq6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-11 12:39 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，联合军是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这光能蚌埠住了，这是在外面流浪被黑暗圣堂吸收了吗
+
+*****
+
+####  DawnGuardian  
+##### 1635#       发表于 2024-3-11 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216897&amp;ptid=2170852" target="_blank"> ddwhzh 发表于 2024-3-11 12:19</a> 光能族新模型就差把半条命写脸上了，学帕鲁是吧。 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起机器人对锤四万的“致敬”程度，这种只能说撒撒水啦来自: iPhone客户端
+

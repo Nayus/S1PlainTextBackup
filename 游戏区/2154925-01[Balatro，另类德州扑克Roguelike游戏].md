@@ -5679,3 +5679,13 @@ copy
 
 蓝牌这种牌移位置太强了，在商店移到50%开包给塔罗旁边，打的时候再移回来
 
+
+*****
+
+####  伊布桑  
+##### 504#       发表于 2024-3-11 16:43
+
+问个问题，特技演员有什么比较简单的解锁法，一手一亿太难了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

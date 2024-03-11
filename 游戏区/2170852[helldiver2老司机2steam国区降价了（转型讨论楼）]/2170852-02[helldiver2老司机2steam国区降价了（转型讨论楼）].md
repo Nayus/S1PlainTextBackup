@@ -1726,3 +1726,14 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 
 这破机甲浑身上下全是bug，我碰到的就包括不限于落地自爆、上机自爆、走路自爆、火箭弹自爆、新机甲火箭弹0弹药，以及最踏马逆天的不管是自带战备还是白嫖的我一次近战攻击都没按出来过。
 
+
+*****
+
+####  Mr.Hopp  
+##### 1645#       发表于 2024-3-11 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219481&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-11 16:30</a>
+
+这破机甲浑身上下全是bug，我碰到的就包括不限于落地自爆、上机自爆、走路自爆、火箭弹自爆、新机甲火箭弹0 ...</blockquote>
+近战据说只有免费那个能用，有两个油箱，你买的暂时是残次品。
+

@@ -8744,3 +8744,13 @@ Cooooool Kanon
 
 2024-3-11 16:28 上传
 
+
+*****
+
+####  爱丁堡official  
+##### 14072#       发表于 2024-3-11 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219460&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-03-11 16:28:57</a></blockquote>takina是不是也能叫taki 酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

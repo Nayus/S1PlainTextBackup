@@ -376,3 +376,15 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">200连4500，两个必得，一个超得，一个月卡好久没给cy送那么多钱了
 
+
+*****
+
+####  小樱与小狼  
+##### 17696#       发表于 2024-3-11 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64207265&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-10 13:00</a>
+肉村是不是第一先不说，但以他工作忙碌的程度以及差不多变日常的直播，真不知道他哪儿来这么多时间肝。加上 ...</blockquote>
+不要小看任何行业的头部啊。
+顶流声优出场费保底社畜一个月工资，能没钱吗？别墅豪车随便买啦。氪金简直小意思。喜欢玩车的男声优真不少，子安还买了一栋温泉别墅<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+中村这个“节目效果”一般都是提前准备好的台本，但有另外人满图鉴，我不好说是cy草台，还是就为了用中村引流睁眼说瞎话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

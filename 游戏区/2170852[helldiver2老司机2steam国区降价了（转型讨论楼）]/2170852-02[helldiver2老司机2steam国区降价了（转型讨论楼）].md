@@ -1582,3 +1582,11 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 机甲打虫子好使特别是撤离的时候守点不错，机器人那火力纯纯当靶子还是算了吧byd火力又猛射的又准想投敌 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回归一代初心了，唯一全场用就是打光能欺负没有重甲单位，其余基本就是做护送火车和撤离的时候才用
 
+
+*****
+
+####  NeoEvens22  
+##### 1632#       发表于 2024-3-11 11:48
+
+现在是流行撤离前踢人么<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

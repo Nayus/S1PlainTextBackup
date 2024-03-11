@@ -5554,3 +5554,13 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 
 21话这种继承写得太拙劣了，明明16话剧情开始加速以后还挺有意思的，不过如果最后青梅上位，我是服气的，后半部分担心诺娃心理状态的是她，替歌姬向彼方指出那份感情的也是她，替换身体时握住彼方的手也是她
 
+
+*****
+
+####  白玫瑰之夜  
+##### 4313#       发表于 2024-3-11 19:37
+
+钦定味道太重了，显的都很廉价<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

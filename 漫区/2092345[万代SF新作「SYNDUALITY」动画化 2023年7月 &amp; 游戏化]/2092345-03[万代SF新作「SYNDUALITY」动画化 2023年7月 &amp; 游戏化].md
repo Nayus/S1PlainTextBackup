@@ -5504,3 +5504,13 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aptx8285144  
+##### 4308#       发表于 2024-3-11 14:32
+
+如果按照贴吧的访谈的说法，1，诺娃和彼方不会成为恋爱关系，那是不是艾女士可以开香槟了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+2，鸭田创造歌姬，那倒下的路也目测是鸭田打算开启的吧
+

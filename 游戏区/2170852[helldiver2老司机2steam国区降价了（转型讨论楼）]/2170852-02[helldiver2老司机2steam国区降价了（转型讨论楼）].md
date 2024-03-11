@@ -1474,3 +1474,14 @@ PCer宏用的很熟练啊，半秒搓球救人</blockquote>
 
 这游戏是不是有很多平**占的bug，我有两个pc的朋友同时跟我说蛋盾不破就不回复，然后我就眼睁睁看着我的蛋盾自己回满了
 
+
+*****
+
+####  Launce  
+##### 1622#       发表于 2024-3-11 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64214370&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-03-11 08:45:03</a>
+这游戏是不是有很多平**占的bug，我有两个pc的朋友同时跟我说蛋盾不破就不回复，然后我就眼睁睁看着我的蛋 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是ps5房独有的稳定触发的让游戏简单的bug
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

@@ -1968,3 +1968,14 @@ MGRR也是攻击键作为防反，实际体验还是不错的，攻防一体，�
 
 有女主？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 866#       发表于 2024-3-11 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64221123&amp;ptid=2092342" target="_blank">黑色的js 发表于 2024-3-11 18:44</a>
+
+有女主？</blockquote>
+之前的采访我记得有说是双自捏
+

@@ -1901,3 +1901,15 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 10级的时候好像还真没啥反重甲的好办法，500kg好像后面才解锁</blockquote>
 EAT和无后坐力炮都是前期主力反装甲，别说10级，5级都能解锁。这俩人是一个都不带，反重甲基本全靠主播的雌鬼（视频录制时间是平衡之前），甚至还一度出现箭头双人组机炮合体给泰坦按摩的场面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  migros  
+##### 1661#       发表于 2024-3-11 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220646&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-11 17:58</a>
+现在难6团灭倒也没什么奇怪的，路人被坦克虫和跳虫混合双打打得屁滚尿流的例子比比皆是 ...</blockquote>
+这是两枪安全开腿时间的事
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

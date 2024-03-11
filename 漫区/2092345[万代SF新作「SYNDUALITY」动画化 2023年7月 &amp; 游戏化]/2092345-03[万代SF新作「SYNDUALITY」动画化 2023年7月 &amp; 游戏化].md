@@ -5514,3 +5514,15 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 
 2，鸭田创造歌姬，那倒下的路也目测是鸭田打算开启的吧
 
+
+*****
+
+####  Rainwedell  
+##### 4309#       发表于 2024-3-11 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64218121&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-3-11 14:32</a>
+如果按照贴吧的访谈的说法，1，诺娃和彼方不会成为恋爱关系，那是不是艾女士可以开香槟了
+
+2，鸭田创 ...</blockquote>
+那甚至可以-4，包饺子包到最后剩个皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

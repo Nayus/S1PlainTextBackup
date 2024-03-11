@@ -1829,3 +1829,30 @@ PS5野房N9 坦克虫满地爬。<img src="https://static.saraba1st.com/image/sm
 怎么个成功法？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你看下人数明显下降的2个时间段
 
+
+*****
+
+####  FLZB  
+##### 1654#       发表于 2024-3-11 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219628&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-3-11 16:41</a>
+
+近战据说只有免费那个能用，有两个油箱，你买的暂时是残次品。</blockquote>
+那个似乎是谣传，战备和白给的都是两个油箱
+
+
+*****
+
+####  FLZB  
+##### 1655#       发表于 2024-3-11 17:55
+
+我们箭头太厉害喇！CEO和主策划亲自邀请油土鳖大主播一同游玩，结果难6团灭收场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/11/175255q7qgepz977zj4n2n.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (119.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-11 17:52 上传
+

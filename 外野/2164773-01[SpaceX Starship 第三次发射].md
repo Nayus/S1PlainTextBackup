@@ -182,3 +182,13 @@ nasa一定要管住,能再拖一个月吗.
 
 2024-3-10 23:51 上传
 
+
+*****
+
+####  bartholo4  
+##### 149#       发表于 2024-3-11 12:53
+
+这次发射的及格线怎么定的？
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

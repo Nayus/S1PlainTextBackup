@@ -5494,3 +5494,13 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NeloAngelo  
+##### 4307#       发表于 2024-3-11 12:47
+
+ＳＹＮＤＵＡＬＩＴＹ　Ｎｏｉｒ《23話》Over　the　limit
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

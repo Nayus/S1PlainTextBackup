@@ -8827,3 +8827,13 @@ msk看起来怎么有点寂寞……说起来我上次退坑邦邦之前主推�
 
 还能挖
 
+
+*****
+
+####  CyDiablo  
+##### 14079#       发表于 2024-3-11 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64219853&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-3-11 16:56</a>
+msk看起来怎么有点寂寞……说起来我上次退坑邦邦之前主推的就是msk，还好她自己和解了。 ...</blockquote>
+还行，msk这表情感觉挺慈祥的，有种老父亲的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

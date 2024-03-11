@@ -166,3 +166,19 @@ nasa一定要管住,能再拖一个月吗.
 
 这次准备的还挺快，看起来也没有延误的因素了。
 
+
+*****
+
+####  commcody  
+##### 148#         楼主| 发表于 2024-3-11 08:31
+
+3月10日，S28再次与B10组合，此次可能是发射前的最后一次组合。
+
+<img src="https://img.saraba1st.com/forum/202403/10/235149k69jzlc64h9li4c4.jpg" referrerpolicy="no-referrer">
+
+<strong>GIUQV7HXcAAN_Ox.jpg</strong> (252.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-10 23:51 上传
+

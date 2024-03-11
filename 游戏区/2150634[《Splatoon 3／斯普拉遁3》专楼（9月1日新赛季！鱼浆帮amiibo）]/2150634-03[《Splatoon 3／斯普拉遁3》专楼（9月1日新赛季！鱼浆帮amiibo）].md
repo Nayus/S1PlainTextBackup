@@ -6155,3 +6155,13 @@ rnm任天堂退钱！<img src="https://static.saraba1st.com/image/smiley/face201
 
 这次5%线156蛋，比上次低
 
+
+*****
+
+####  DeltaStriker  
+##### 3605#       发表于 2024-3-11 14:42
+
+泥潭喷3群有吗 想找几个人一起组排
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

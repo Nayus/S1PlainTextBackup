@@ -426,3 +426,16 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 富余老王早就拆完了，只凸了个240火老王出来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 17701#       发表于 2024-3-11 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216557&amp;ptid=1158205" target="_blank">小樱与小狼 发表于 2024-3-11 11:49</a>
+
+不要小看任何行业的头部啊。
+
+顶流声优出场费保底社畜一个月工资，能没钱吗？别墅豪车随便买啦。氪金简直 ...</blockquote>
+已经推特重发外加kmr盖章是2月下旬第一人满人物，反正统计时间点由着官方说，现在硬着头皮也得保节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

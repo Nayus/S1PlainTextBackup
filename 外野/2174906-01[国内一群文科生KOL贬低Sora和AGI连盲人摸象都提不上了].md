@@ -836,3 +836,52 @@ sora也和计算机视觉没关系啊，他是能边沿检测了还是能图像�
 
 除了中国足球，中国人总有一些人不会接受外国有东西比中国的好。
 
+
+*****
+
+####  梅川酷子  
+##### 89#       发表于 2024-3-11 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64207403&amp;ptid=2174906" target="_blank">initium 发表于 2024-3-10 13:17</a>
+
+别尬黑，已经是第七次第四次工业革命了，老中分分钟被抛下，别人都不带你玩了。 ...</blockquote>
+到底是第七次还是第四次还是第七次的第四次。
+
+*****
+
+####  洛拉斯  
+##### 90#       发表于 2024-3-11 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64214738&amp;ptid=2174906" target="_blank">Saphir 发表于 2024-3-11 09:25</a>
+除了中国足球，中国人总有一些人不会接受外国有东西比中国的好。</blockquote>
+你多接受点呗
+
+很简单，如果你一直关注生成式ai你就知道，出视频和出图本质原理一样，通过迭代算法优化帧之间差异就可以生成视频
+
+但是对算力要求很高
+
+本地显卡可以出图，但是出高质量视频就算了吧，需要大量计算卡
+
+sora商用成本怕不是降不下来
+
+再说了生成式ai，中国第二，美国倒数第二又不丢人
+
+还是美国第一，中国倒数第一可以让你心情好点？
+
+
+*****
+
+####  废都刽子手  
+##### 91#       发表于 2024-3-11 09:46
+
+sora这种视频大模型是不是对算力和存储的需求都特别多<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甲乙丙丁戊  
+##### 92#       发表于 2024-3-11 09:47
+
+第四次工业革命第不知道多少次前瞻
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

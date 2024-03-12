@@ -12007,3 +12007,15 @@ b站发视频了或者网易云发歌单了请敲我一下<img src="https://stat
 
 学马仕要养成捏<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 2682#       发表于 2024-3-12 20:59
+
+看看里信号灯怎么处理呗
+
+如果是熟人那可能就是敌团挂件
+
+如果是新人那可能未来进组（什么jupiter）
+

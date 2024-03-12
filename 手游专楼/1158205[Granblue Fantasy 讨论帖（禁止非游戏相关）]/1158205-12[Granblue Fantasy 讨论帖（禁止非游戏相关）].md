@@ -594,3 +594,46 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 那这样来说应该就是生命轮回本身，确实比肥龙要高级点。
 
+
+*****
+
+####  jxzeroga0  
+##### 17716#       发表于 2024-3-12 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三部分平稳落地，可喜可贺。虽然最后全甩给了30亿年生物次元级别不同的思考回路，但这个6000年重逢大场面搞得确实很热闹，不死鸟作为反派的逼格还是不错的。人物戏份除了九柱神全程被耍人人都有高光，作为十周年收得很不错，小丑王子也打脸得很直接死得也惨。看来月中暗lm就是大奶梅嘉思了。
+
+*****
+
+####  adretyu67.  
+##### 17717#       发表于 2024-3-12 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64233273&amp;ptid=1158205" target="_blank">exiaexa 发表于 2024-3-12 20:05</a>
+
+我觉得他们没想这么多，就是充分吸取了某年的失败案例
+
+给不死鸟死命叠战力，最后把几个超级战力拉出来包饺 ...</blockquote>
+坏兽是26亿年前，火鸡是30亿年前。
+
+盒子肯定是越叠越多的。
+
+*****
+
+####  adretyu67.  
+##### 17718#       发表于 2024-3-12 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64233343&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2024-3-12 20:13</a>
+
+第三部分平稳落地，可喜可贺。虽然最后全甩给了30亿年生物次元级别不同的思考回路，但这个6000年重 ...</blockquote>
+王子那点事我听完第一反应是，好人就该被拿枪指着？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 17719#       发表于 2024-3-12 20:18
+
+ 本帖最后由 jxzeroga0 于 2024-3-12 20:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64233360&amp;ptid=1158205" target="_blank">adretyu67. 发表于 2024-3-12 20:15</a>
+
+王子那点事我听完第一反应是，好人就该被拿枪指着？</blockquote>
+说白了还是自己有私心，嫉妒未婚妻，还想着给不死鸟卖命复活母亲。bb了一堆大道理被老七当面直接喷你现在就是你口中的强者却又为什么不为了弱者救未婚妻，被捅破后心态爆炸了，什么强者弱者都是借口。最后一分析这人就是被不死鸟算计用来促使梅林全家团聚的工具人，实惨一小丑。
+

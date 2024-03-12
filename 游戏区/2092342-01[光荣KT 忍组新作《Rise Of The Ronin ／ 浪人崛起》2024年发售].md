@@ -3208,3 +3208,11 @@ Rise of the Ronin - Story Vignette
 【4K中字 PS5｜《浪人崛起》「Story」官方预告】 [https://b23.tv/2QbR9Mf](https://b23.tv/2QbR9Mf)
 [https://youtu.be/N06CvPvHtEE](https://youtu.be/N06CvPvHtEE)
 
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 1002#       发表于 2024-3-13 01:26
+
+机核雪豆的意思是开放世界依托战斗可以
+

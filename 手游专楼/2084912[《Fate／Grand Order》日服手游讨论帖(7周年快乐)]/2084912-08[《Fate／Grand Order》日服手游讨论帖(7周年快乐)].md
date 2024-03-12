@@ -1181,3 +1181,14 @@ CCC的主题和结尾曲都好听，只是好奇当时为啥找丹下樱唱结�
 
 fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰罗，尻枪寻夫多年终于得偿所愿（上了五星礼装封面的罗大爷表示：蘑菇我X你仙人）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过正式人设还是没出，估计短时间内也不会落地了。
 
+
+*****
+
+####  alucardcz  
+##### 11514#       发表于 2024-3-12 21:40
+
+[https://b23.tv/c4mzqMa](https://b23.tv/c4mzqMa)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢个依然没什么参考价值的90++6“加成视频 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来这次我加成李庄就一张送的（
+

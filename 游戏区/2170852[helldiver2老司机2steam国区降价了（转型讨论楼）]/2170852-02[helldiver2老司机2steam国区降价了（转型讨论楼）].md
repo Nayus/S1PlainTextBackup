@@ -2408,3 +2408,11 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这Known Issues也没提PS5房那诡异的血量啊，feature是吧
 
+
+*****
+
+####  wincle  
+##### 1708#       发表于 2024-3-12 21:40
+
+从来没闪退过，更新之后给我闪退是吧
+

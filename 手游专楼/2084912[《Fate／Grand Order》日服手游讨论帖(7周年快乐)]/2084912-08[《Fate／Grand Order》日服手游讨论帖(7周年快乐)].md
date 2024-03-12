@@ -1192,3 +1192,14 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢个依然没什么参考价值的90++6“加成视频 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来这次我加成李庄就一张送的（
 
+
+*****
+
+####  保罗赫伯特  
+##### 11515#       发表于 2024-3-12 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64232810&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-3-12 19:22</a>
+
+fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰罗，尻枪寻夫多年终于得偿所愿（上了五星礼装封 ...</blockquote>
+喜欢屁股枪的有福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

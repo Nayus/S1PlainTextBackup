@@ -33,7 +33,8 @@ def mkdir(path):
 
 def parse_html(html):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
-    soup = BeautifulSoup(html.decode('utf-8'), 'html.parser')
+    soup = BeautifulSoup(html, 'html.parser')
+    print(soup)
     namelist = soup.find_all(name="div", attrs={"class":"pi"})
     # replylist = soup.find_all(name="td", attrs={"class":"t_f"})
     replylist = soup.find_all(name='div', attrs={"class":"pcb"})
@@ -218,9 +219,11 @@ async def UpdateThread(threaddict,semaphore):
                     url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
                     async with session.get(url,headers=headers) as response:
                         result = await response.content.read()
-            namelist, replylist,totalpage,newtitles= parse_html(result)
+                        print(result.decode('utf-8'))
+            namelist, replylist,totalpage,newtitles= parse_html(response.text)
             titles = threaddict['title']
             thdata[threaddict['id']]['newtitle'] = newtitles
+            
             # else:
             if(totalpage > 37):
                 filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles+'/'
@@ -244,6 +247,7 @@ async def UpdateThread(threaddict,semaphore):
                         contentdict[str(lastreply)]['content'] = ThreadContent
                         contentdict[str(lastreply)]['page'] = thread
             if (contentdict.keys()):
+                # print(threaddict['id'])
                 if(min(list(map(int,contentdict.keys()))) > threaddict['totalreply']):
                     print(threaddict['id']+'-'+str(contentdict.keys()))
                     for replynum in sorted(list(map(int,contentdict.keys()))):

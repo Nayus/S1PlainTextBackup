@@ -2486,3 +2486,11 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">属于把黄金时代的EAT考古回来了
 
+
+*****
+
+####  ddwhzh  
+##### 1717#       发表于 2024-3-13 00:54
+
+所以搞半天机器人一点不调，CEO再去机器人星做任务行不
+

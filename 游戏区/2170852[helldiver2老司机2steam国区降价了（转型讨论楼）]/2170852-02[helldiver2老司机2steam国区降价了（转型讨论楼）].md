@@ -2469,3 +2469,20 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 难7还是遇到刷四五只坦克虫的场面了</blockquote>
 但现在处理速度更快了，一场只要有两个EAT冷却好了就叫根本用不完，强袭来多少杀多杀顺便还连泰坦都给你扬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 1715#       发表于 2024-3-13 00:16
+
+怪不得两个人今天能在难5遨游了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Launce  
+##### 1716#       发表于 2024-3-13 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">属于把黄金时代的EAT考古回来了
+

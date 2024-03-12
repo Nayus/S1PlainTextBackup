@@ -3055,3 +3055,11 @@ nga有人翻了法米桶的前瞻，可以看看</blockquote>
 
 晦气啊,看到一张图,ign jp的制作人采访,小小弟安田旁边坐着小弟早食屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuker53  
+##### 984#       发表于 2024-3-12 20:33
+
+全看了，感觉可买以，除了篝火那篇我实在没看懂
+

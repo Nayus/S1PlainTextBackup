@@ -6064,3 +6064,20 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 尤其初版之所以这么像马桶，就是因为把俩角全削了，它不像马桶谁像马桶<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4361#       发表于 2024-3-12 20:23
+
+主角机这直接挂个推进器有点敷衍
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  saglork  
+##### 4362#       发表于 2024-3-12 23:47
+
+主角机组废物到让人发笑，这个谁也打不过又永远赶不上趟的设定到底有什么意义啊，眼看着到结局了，还是一脸小丑也真tm绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

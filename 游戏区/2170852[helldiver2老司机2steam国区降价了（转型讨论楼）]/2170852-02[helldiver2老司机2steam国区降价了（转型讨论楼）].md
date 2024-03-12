@@ -2494,3 +2494,11 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 所以搞半天机器人一点不调，CEO再去机器人星做任务行不
 
+
+*****
+
+####  白昼梦  
+##### 1718#       发表于 2024-3-13 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这电池吃友伤，感觉机枪次抛500kg再随便带个包最适合滑水，机枪扫上去太解压了
+

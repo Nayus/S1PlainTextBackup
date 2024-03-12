@@ -2416,3 +2416,11 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 从来没闪退过，更新之后给我闪退是吧
 
+
+*****
+
+####  FLZB  
+##### 1709#       发表于 2024-3-12 21:59
+
+这版本目前体感强袭数量并没有减少，只是能杀得更快了。一个任务下来满地EAT，爆头泰坦两发带走，500kg也不用带了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

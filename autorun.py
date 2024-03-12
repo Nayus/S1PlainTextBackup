@@ -1,6 +1,6 @@
 # -*- coding: UTF-8 -*-
 import requests
-from bs4 import BeautifulSoup
+from bs4 import BeautifulSoup,UnicodeDammit
 import re
 import time
 import sys
@@ -87,12 +87,12 @@ if __name__ == '__main__':
         for i in range(1,2):
             RURL = 'https://bbs.saraba1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
             s1 = session.get(RURL, headers=headers,  cookies=cookies)
+            # print(s1.encoding)
             # s1 = requests.get(RURL, headers=headers)
             # s1.encoding='utf-8'
             # s1encoding = s1.encoding
-            # print(s1.content)
-            data = s1.content
-            parse_html(data,threadict)
+            # data = UnicodeDammit(s1.content)
+            parse_html(s1.text,threadict)
         # with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         #     thdata = json.load(f)
         ids = thdata.keys()

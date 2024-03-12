@@ -2502,3 +2502,11 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这电池吃友伤，感觉机枪次抛500kg再随便带个包最适合滑水，机枪扫上去太解压了
 
+
+*****
+
+####  LrGsite  
+##### 1719#       发表于 2024-3-13 02:36
+
+打了几把新的终结塔保卫战,感想就是鬼佬真几把菜
+

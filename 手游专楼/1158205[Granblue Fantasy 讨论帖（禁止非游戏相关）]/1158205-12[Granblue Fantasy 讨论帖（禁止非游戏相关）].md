@@ -683,3 +683,11 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 另外这次也倒霉的是幽世人，被火鸟飞行而形的龙卷风从地下卷到岛上被砍
 
+
+*****
+
+####  usoda  
+##### 17725#       发表于 2024-3-12 22:53
+
+从结尾那些个重量级人物的出场来看，这次周年应该是为你游的剧情终局做铺垫用的，我估摸十二周年的时候有望大结局了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

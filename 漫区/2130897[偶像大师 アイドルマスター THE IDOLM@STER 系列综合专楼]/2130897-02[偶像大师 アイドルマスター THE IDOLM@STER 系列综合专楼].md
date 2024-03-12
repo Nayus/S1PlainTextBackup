@@ -11999,3 +11999,11 @@ b站发视频了或者网易云发歌单了请敲我一下<img src="https://stat
 另外我有一个想法，包括爱马仕在内不少偶像企划后续会拉成名声优进团，
 那能不能把长谷川育美和大地叶，这俩唱功很棒的拉进学马仕啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 2681#       发表于 2024-3-12 20:52
+
+学马仕要养成捏<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

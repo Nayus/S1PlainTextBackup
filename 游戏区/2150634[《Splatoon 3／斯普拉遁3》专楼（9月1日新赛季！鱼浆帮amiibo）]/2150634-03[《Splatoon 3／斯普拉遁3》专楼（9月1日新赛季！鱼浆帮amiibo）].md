@@ -6242,3 +6242,16 @@ CoroCoro4月号有附赠的游戏内名牌。
 
 请问有新的T0武器排名图吗？或者来源去哪里找？谢谢
 
+
+*****
+
+####  laosai13  
+##### 3614#       发表于 2024-3-13 04:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64236107&amp;ptid=2150634" target="_blank">颜小山 发表于 2024-3-13 01:50</a>
+
+没法康没法康
+
+请问有新的T0武器排名图吗？或者来源去哪里找？谢谢</blockquote>
+真格的话b站07好像这两天刚出一个，打工的话不清楚。真格环境最上位的几个其实也没怎么变，还是两把电锯两把香槟小绿绿双针管52铅笔之类的
+

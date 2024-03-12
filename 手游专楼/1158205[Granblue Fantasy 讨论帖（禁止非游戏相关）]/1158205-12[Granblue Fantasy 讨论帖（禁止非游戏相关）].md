@@ -691,3 +691,11 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 从结尾那些个重量级人物的出场来看，这次周年应该是为你游的剧情终局做铺垫用的，我估摸十二周年的时候有望大结局了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HATENA  
+##### 17726#       发表于 2024-3-12 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弃坑两年趁着10周年买了relink顺便回坑看看，特典换个老6解限应该还是比尼亚领域更优先吧
+

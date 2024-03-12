@@ -220,8 +220,9 @@ async def UpdateThread(threaddict,semaphore):
                     async with session.get(url,headers=headers) as response:
                         response.encoding = 'utf-8'
                         # print(response.text)
-                        result = await response.text
-                        print(result)
+                        result = await response.content.read()
+                        # print(result)
+                        print(str(result,'gbk'))
             namelist, replylist,totalpage,newtitles= parse_html(response.text)
             titles = threaddict['title']
             thdata[threaddict['id']]['newtitle'] = newtitles

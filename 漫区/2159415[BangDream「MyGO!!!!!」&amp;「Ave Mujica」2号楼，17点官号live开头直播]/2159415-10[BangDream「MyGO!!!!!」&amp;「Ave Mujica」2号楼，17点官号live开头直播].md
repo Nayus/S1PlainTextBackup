@@ -9015,3 +9015,14 @@ mygo（真人live）有啥代餐吗，就是那种很拼命唱歌的感觉，最
 
 mygo那哪算拼命唱歌
 
+
+*****
+
+####  rukimin  
+##### 14095#       发表于 2024-3-12 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64223707&amp;ptid=2159415" target="_blank">461757753 发表于 2024-3-11 23:29</a>
+
+mygo（真人live）有啥代餐吗，就是那种很拼命唱歌的感觉，最好是二偶</blockquote>
+主唱我觉得まじこ可代餐。就《心做し》现场版来说，旋律优秀，歌词也不能说完全不对味吧。主要是唱的感觉太像了，一种要哭出来的但又很坚定的感觉。音色违和感不大。个人形象也比较相似：矮个子，爱穿宽松衣服，短发内侧挑染。况且人家唱歌拼命也是出了名的，在春晚红白上因为主唱太拼命了而翻车<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

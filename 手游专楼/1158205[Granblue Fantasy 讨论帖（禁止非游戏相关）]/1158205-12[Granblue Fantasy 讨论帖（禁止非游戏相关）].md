@@ -709,3 +709,11 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  adretyu67.  
+##### 17728#       发表于 2024-3-12 23:53
+
+这结局报菜名，牢法快越狱了？
+

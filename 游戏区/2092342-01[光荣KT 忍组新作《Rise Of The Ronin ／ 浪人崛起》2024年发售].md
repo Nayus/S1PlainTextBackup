@@ -3085,3 +3085,12 @@ nga有人翻了法米桶的前瞻，可以看看</blockquote>
 
 那也没啥别的要求了，飞燕都回来，还要什么自行车。哪怕说架势跟对马岛一样克制比较强，架势不对你轻攻击会被架开都能接受，因为石火如果真的是说无效化一切攻击，那最终就是自己想怎么打得帅就能怎么打，能实现这个效果就可以了，目前看来应该没啥问题。
 
+
+*****
+
+####  duraa  
+##### 987#       发表于 2024-3-12 22:37
+
+Rise of the Ronin - Story Vignette
+[https://www.youtube.com/watch?v=2T2CnAN77-4](https://www.youtube.com/watch?v=2T2CnAN77-4)
+

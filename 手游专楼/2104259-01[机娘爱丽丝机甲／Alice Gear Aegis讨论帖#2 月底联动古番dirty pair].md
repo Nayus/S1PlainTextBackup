@@ -285,3 +285,20 @@
 
 好呀，感谢！
 
+
+*****
+
+####  江戸前ルナ  
+##### 968#         楼主| 发表于 2024-3-12 17:47
+
+又复刻了，阿金的产能呢？有群友透露着不是拉胯而是便秘，疑似4月会拉一坨大的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  不灭的旋律  
+##### 969#       发表于 2024-3-12 19:20
+
+出AN绘传顺便复刻一下吧？差不多到每年联动的时候了，而且高幡的胶都快出了动画活动却选择现在复刻，怎么看都可疑。
+
+我觉得是金字塔在开发新游戏所以产能会继续稀烂下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

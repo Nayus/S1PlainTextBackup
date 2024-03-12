@@ -205,3 +205,93 @@ ex难度上轮椅按住a键不是乱宰<img src="https://static.saraba1st.com/im
 
 —— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  zzy516232108  
+##### 153#       发表于 2024-3-11 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爬塔到了11层12层13层真的打不过啊
+
+全屏都是子弹，永远重复蓄力 放泡泡 蓄力 放泡泡的操作
+
+泡泡刚出来马上破，那种红色都是刺的子弹和红色圆形子弹简直是害人精
+
+就算没有这些，普通子弹密密麻麻堆叠也够让泡泡爆了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">放弃了 承认自己没本事
+
+*****
+
+####  soranoguiji  
+##### 154#       发表于 2024-3-12 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64211620&amp;ptid=2168002" target="_blank">洁西卡 发表于 2024-3-10 22:00</a>
+
+这游戏不打算出ns吗
+
+—— 来自 vivo V2304A, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 作者在游戏发售前就说了本作已成为过去时，要去开发新作夜光蛾9了
+
+*****
+
+####  心灵的乳头  
+##### 155#       发表于 2024-3-12 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64223823&amp;ptid=2168002" target="_blank">zzy516232108 发表于 2024-3-11 23:42</a>
+
+爬塔到了11层12层13层真的打不过啊
+
+全屏都是子弹，永远重复蓄力 放泡泡 蓄力 放泡泡的操作
+
+泡泡刚出 ...</blockquote>
+去装备配置界面看看你的武器配置，是不是还在用LV1的主武器、蓄力武器和炸弹？
+
+*****
+
+####  zzy516232108  
+##### 156#       发表于 2024-3-12 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226213&amp;ptid=2168002" target="_blank">心灵的乳头 发表于 2024-3-12 10:12</a>
+
+去装备配置界面看看你的武器配置，是不是还在用LV1的主武器、蓄力武器和炸弹？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我用的是12级的双管喷火 重武器11级的4泡泡 B是12级的大激光
+
+打到13层，怪从屏幕上面刷出来，绕一大圈到屏幕底部，并且从屏幕底部攻击
+
+其他怪物会放耐久值很高的粉红色刺弹，实在不知道怎么处理
+
+*****
+
+####  牙狼GARO  
+##### 157#       发表于 2024-3-12 16:09
+
+我玩的慢，还在用第一排第三还是第四个天使打剧情第一个难度全金牌，现在唯独羁绊的天使不能稳定处理，精虫攻击和不能消的刺刺果不用vob怎么解决啊
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yuandi0120  
+##### 158#       发表于 2024-3-12 16:10
+
+ 本帖最后由 yuandi0120 于 2024-3-12 16:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64230341&amp;ptid=2168002" target="_blank">zzy516232108 发表于 2024-3-12 15:45</a>
+我用的是12级的双管喷火 重武器11级的4泡泡 B是12级的大激光
+
+打到13层，怪从屏幕上面刷出来，绕 ...</blockquote>
+武器lv低于关卡两级就很难过了，可以先去同级的boss关刷武器，boss关掉的武器是关卡lv+2的。
+
+另外部分怪物比起气泡消弹，直接用火烧死子弹还更少一些。
+
+*****
+
+####  心灵的乳头  
+##### 159#       发表于 2024-3-12 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64230341&amp;ptid=2168002" target="_blank">zzy516232108 发表于 2024-3-12 15:45</a>
+
+我用的是12级的双管喷火 重武器11级的4泡泡 B是12级的大激光
+
+打到13层，怪从屏幕上面刷出来，绕 ...</blockquote>
+蓄力武器换5联装的生物导弹试试，打小怪要贴脸，屏幕上端刷出来就贴上去，小怪放白光就是要发射了，提前蓄力档一波子弹。
+

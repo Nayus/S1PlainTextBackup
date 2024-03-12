@@ -5778,3 +5778,30 @@ copy
 
 roll起始小盲注的标签奖励也太傻了！但是不roll又觉得血亏。
 
+
+*****
+
+####  a4ac7  
+##### 512#       发表于 2024-3-11 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64220624&amp;ptid=2154925" target="_blank">稲穂信 发表于 2024-3-11 17:56</a>
+隐形小丑呢？有啥好的解锁方法</blockquote>
+有个绘画卡组加手牌上限，减一小丑栏
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  谢三哥  
+##### 513#       发表于 2024-3-11 21:13
+
+终于打了一把爽局，靠着DNA满手都是钢铁牌，可惜红色印章的不够多，不过能打到14回合也很够了
+
+<img src="https://img.saraba1st.com/forum/202403/11/211337kwwm8h9o58l88nri.jpg" referrerpolicy="no-referrer">
+
+<strong>20240311204812_1.jpg</strong> (326.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-11 21:13 上传
+

@@ -5564,3 +5564,503 @@ noir完成的转变是 "从责任中解脱出来", 作为自己而活
 
 —— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  novyDC  
+##### 4314#       发表于 2024-3-11 22:02
+
+https://tieba.baidu.com/p/8929924806?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.56.5.0&amp;st=1710165704&amp;is_video=false&amp;unique=78A1D4065DDFDC0C6911BBA4BC315FA4 看来改了不少
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  765事务所  
+##### 4315#       发表于 2024-3-11 22:21
+
+唉，怎么说呢，只能说毕竟就是个广告片，期待不能放太高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 4316#       发表于 2024-3-11 22:44
+
+艾女士要变老婆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aptx8285144  
+##### 4317#       发表于 2024-3-11 22:50
+
+ 本帖最后由 aptx8285144 于 2024-3-11 22:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64223031&amp;ptid=2092345" target="_blank">765事务所 发表于 2024-3-11 22:21</a>
+
+唉，怎么说呢，只能说毕竟就是个广告片，期待不能放太高作为正统高达的水星魔女不也就那样吗。这个 ...</blockquote>
+和水魔对比吗，我还在等有一点的答案，如果是我希望的答案 那就好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YetToCome  
+##### 4318#       发表于 2024-3-11 22:57
+
+直播间放age<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novyDC  
+##### 4319#       发表于 2024-3-11 23:15
+
+这就发动总攻击呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  novyDC  
+##### 4320#       发表于 2024-3-11 23:22
+
+大哥你机子什么大力飞砖
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  何处分可  
+##### 4321#       发表于 2024-3-11 23:25
+
+老头果然也是0型
+
+*****
+
+####  NeloAngelo  
+##### 4322#       发表于 2024-3-11 23:27
+
+南无三
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  何处分可  
+##### 4323#       发表于 2024-3-11 23:30
+
+致敬吕布是吧
+
+*****
+
+####  何处分可  
+##### 4324#       发表于 2024-3-11 23:32
+
+抓错人是最搞的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无音命题  
+##### 4325#       发表于 2024-3-11 23:33
+
+ホムラ！！！  啊不对  
+
+ミステル！！！
+
+*****
+
+####  Freakyyu  
+##### 4326#       发表于 2024-3-11 23:33
+
+反叛塑造也一坨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小丑有点多了，爆笑。也别浪费时间洗白マハト这废物角色了。
+
+*****
+
+####  何处分可  
+##### 4327#       发表于 2024-3-11 23:35
+
+一个二个，只有大哥能扛起家里的一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NeloAngelo  
+##### 4328#       发表于 2024-3-11 23:35
+
+下一集要迟30分钟可还行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyDC  
+##### 4329#       发表于 2024-3-11 23:37
+
+这组织是不是太草台了 说卖就卖
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  YetToCome  
+##### 4330#       发表于 2024-3-11 23:37
+
+kanata到底离基地有多远，这么长时间赶不回去<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 4331#       发表于 2024-3-11 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主你飞了这么久都跑不回去保护黑皮吗，加上noir屁作用都没啊。
+牢谢啊牢谢，你死的不值啊
+
+*****
+
+####  reficul  
+##### 4332#       发表于 2024-3-11 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64223727&amp;ptid=2092345" target="_blank">何处分可 发表于 2024-3-11 23:32</a>
+
+抓错人是最搞的吧</blockquote>
+没抓错啊，要的就是有黑科技的黑皮
+
+*****
+
+####  星降る森  
+##### 4333#       发表于 2024-3-11 23:41
+
+剧情展开莫名搞笑，反派头子连钥匙是谁都没搞明白，拿着超模机劫持米斯特乘着没有可靠性验证的火箭去乐园了，目的是搞个没有megus的世界？各方面过于搞笑不知道从哪里开始吐槽了
+
+*****
+
+####  reficul  
+##### 4334#       发表于 2024-3-11 23:42
+
+纯废物男主啊，能飞能射还以为要威风一下，结果2分钟不到，直接被黑假面打回原形，要不是大哥救场都直接挂了。
+
+让你回防基地，回了个寂寞，反派从老家飞过来把人和火箭一起抢走了，你都没赶回到基地，你到底守护了什么
+
+阻止黑假面也靠的是大哥的嘴炮和贤伴的反水，真是的纯纯的猪队友
+
+*****
+
+####  NeloAngelo  
+##### 4335#       发表于 2024-3-11 23:42
+
+第23話「Over the limit」
+
+ヴァイスハイトの奇襲によりミステルを奪われてしまったカナタは、ミステルを取り戻すべく、トキオとマハトと共に残されたもう1機のロケットでヴァイスハイトの後を追う。
+
+ついに辿り着いた伝説の地「イストワール」。そこで待ち受けるヴァイスハイトの真の狙いとは―
+
+*****
+
+####  NeloAngelo  
+##### 4336#       发表于 2024-3-11 23:47
+
+<img src="https://img.saraba1st.com/forum/202403/11/234703g4p33xpspws99tm3.jpg" referrerpolicy="no-referrer">
+
+<strong>捕获.JPG</strong> (51.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-11 23:47 上传
+
+总算滚了
+
+*****
+
+####  novyDC  
+##### 4337#       发表于 2024-3-11 23:55
+
+不会在太空三英战吕布吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  reficul  
+##### 4338#       发表于 2024-3-11 23:57
+
+什么三英，我跟大哥合砍82分吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Freakyyu  
+##### 4339#       发表于 2024-3-12 00:01
+
+那种拍脑门想出来的超规格机体，估计大哥也费劲能打，估计是Noir临场开挂打赢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">反正是イストワール上掉下来的零式，随便加设定。
+
+*****
+
+####  八等绝癔  
+##### 4340#       发表于 2024-3-12 00:03
+
+你们仨这一整季在各种意义上都已经很拉了（求求你们至少打的好看点 别到时候被一串三
+
+*****
+
+####  6030sylar  
+##### 4341#       发表于 2024-3-12 00:05
+
+永远都在状况外的男主和三无女主简直绝配啊这片
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 4342#       发表于 2024-3-12 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来有牢谢还能控场的，要不下集让noir开唱把(
+
+*****
+
+####  novyDC  
+##### 4343#       发表于 2024-3-12 00:11
+
+维斯海特奇袭夺走了蜜丝缇儿，彼方他们为了救回蜜丝缇儿，与马哈特和时雄一起坐上剩下一台火箭，去追赶维斯海特。
+在终于要到达的传说之地“希斯特瓦”，在那里等着他们的维斯海特的真正目的是…… 
+
+这下三打一了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星降る森  
+##### 4344#       发表于 2024-3-12 00:29
+
+突然想起来xb2的教皇最后也是章鱼怪形态，那这边能看到冰属性（虽然不是自己的）白毛黑假面和章鱼怪同归于尽吗？
+
+*****
+
+####  八等绝癔  
+##### 4345#       发表于 2024-3-12 08:07
+
+<img src="https://img.saraba1st.com/forum/202403/12/080548v512qz1sj5010008.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1710201905132.jpg</strong> (315.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-12 08:05 上传
+
+雏菊恶鬼 异装（Fix）
+
+<img src="https://img.saraba1st.com/forum/202403/12/080640y60mzegxh865hxey.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1710201908482.jpg</strong> (271.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-12 08:06 上传
+
+造雾约翰•改（custom）
+
+<img src="https://img.saraba1st.com/forum/202403/12/080717azjvwq3ouijv3ivu.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1710201834157.jpg</strong> (265.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-12 08:07 上传
+
+诺亚变革者（Game Changer）
+
+*****
+
+####  novyDC  
+##### 4346#       发表于 2024-3-12 08:16
+
+贩海思的机体这么快
+
+<img src="https://img.saraba1st.com/forum/202403/12/081559yre8kzke0ek9yrot.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-12-08-09-53-952_com.viva.note.jpg</strong> (532.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 08:15 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyDC  
+##### 4347#       发表于 2024-3-12 08:18
+
+什么奸商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/12/081801g9v9jj681jj90z1n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-12-08-07-39-176_com.viva.note.jpg</strong> (914.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 08:18 上传
+
+<img src="https://img.saraba1st.com/forum/202403/12/081801buk9hiz8ju5h8s9g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-12-08-07-44-722_com.viva.note.jpg</strong> (942.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 08:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  八等绝癔  
+##### 4348#       发表于 2024-3-12 08:24
+
+诺亚变革者能不能出个hg啊（
+
+*****
+
+####  novyDC  
+##### 4349#       发表于 2024-3-12 08:27
+
+偷了个试验火箭就跑路了 后面那个才是完全体
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  oi99o  
+##### 4350#       发表于 2024-3-12 12:49
+
+为什么这里彼方先回去是驾驶座走了驾驶舱屏幕没走<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/12/124919fp9yf5i3fy3d0wzu.png" referrerpolicy="no-referrer">
+
+<strong>Synduality.Noir.S01E22.Gravity.Coffin.1080p.DSNP.WEB-DL.AAC2.0.H.264-NTb.mkv_sna.png</strong> (376.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 12:49 上传
+
+<img src="https://img.saraba1st.com/forum/202403/12/124919tmmz5dvqd5i6nniv.png" referrerpolicy="no-referrer">
+
+<strong>Synduality.Noir.S01E22.Gravity.Coffin.1080p.DSNP.WEB-DL.AAC2.0.H.264-NTb.mkv_sna.png</strong> (360.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 12:49 上传
+
+<img src="https://img.saraba1st.com/forum/202403/12/124919wt5xxhyrdvo5suo7.png" referrerpolicy="no-referrer">
+
+<strong>Synduality.Noir.S01E22.Gravity.Coffin.1080p.DSNP.WEB-DL.AAC2.0.H.264-NTb.mkv_sna.png</strong> (380.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 12:49 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 没取名啊| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  砂糖续香香  
+##### 4351#       发表于 2024-3-12 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他是怎么做到能连着恶心人五集的
+
+*****
+
+####  renkan119  
+##### 4352#       发表于 2024-3-12 12:59
+
+说起来第二架火箭就在后面 这反派也不打坏了再走
+
+*****
+
+####  不灭的旋律  
+##### 4353#       发表于 2024-3-12 13:09
+
+塑造了半天彼方对面具男结果劲敌都被大哥抢走了，命运对自由是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为前半树好了旗我还以为卫浴柜的火箭中途会爆炸呢（炸了观感还好一点），不用magus开棺材已经是游戏男主水平了。
+
+现在都没公布新胶后续拼装已经被砍掉了吧
+
+*****
+
+####  aptx8285144  
+##### 4354#       发表于 2024-3-12 13:33
+
+大哥和马哈特对打那段还挺不错的，这话的演出还可以，威斯这不只是在宇宙当个王吧，而是随时威慑地球的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+修涅你终于不再看着主人走入深渊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 4355#       发表于 2024-3-12 13:37
+
+ 本帖最后由 aptx8285144 于 2024-3-12 14:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64223769&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-11 23:37</a>
+
+这组织是不是太草台了 说卖就卖
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+这群人和马哈特一样都是自我逃避的吧，大哥劝了几次面具男都还在逃避，最后修涅也忍不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 4356#       发表于 2024-3-12 13:39
+
+威斯这机体过于逆天，就是马哈特的那台都比不了，目测需要诺娃，修涅，穆顿同时开挂了
+
+*****
+
+####  aptx8285144  
+##### 4357#       发表于 2024-3-12 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64224007&amp;ptid=2092345" target="_blank">八等绝癔 发表于 2024-3-12 00:03</a>
+
+你们仨这一整季在各种意义上都已经很拉了（求求你们至少打的好看点 别到时候被一串三 ...</blockquote>
+时雄还是很强的，但凡回忆里的马哈特不犹豫，世界线可能就不一样了，不过吗维斯这机体性能太超规格，目测得贤士们开挂
+
+*****
+
+####  洛克萨斯  
+##### 4358#       发表于 2024-3-12 14:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这电饭煲是不是再大一圈腿部长一点会好看一点，太短了现在
+
+*****
+
+####  aptx8285144  
+##### 4359#       发表于 2024-3-12 14:19
+
+马哈特上半部分吃喝玩乐都是和彼方一起的，虽说初衷是观察地上世界，但是不可能心里没触动，但是好像他的愧疚只对着彼方，对时雄就有一种你没带我走（然而想想米娅面对阿斯兰最后没有伸出手吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，你来了就走走了又来所以你不爱我后的恨jpg
+
+*****
+
+####  Evomenon  
+##### 4360#       发表于 2024-3-12 19:19
+
+个人的一个猜想：雏菊恶鬼的最初设计，应该就是现在这个最终版。
+
+现存的前两个版本都是由这一个“劣化”出来的，换武器、换装甲、<strong>把角削掉</strong>
+
+尤其初版之所以这么像马桶，就是因为把俩角全削了，它不像马桶谁像马桶<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+

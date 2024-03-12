@@ -701,3 +701,33 @@ b站分享链接有点问题，搜av号和链接打不开，标题搜索吧<img 
 
 挺好奇匹诺曹你们用啥语玩的
 
+
+*****
+
+####  icylight  
+##### 390#       发表于 2024-3-12 00:47
+
+尺度有点大啊
+
+<img src="https://img.saraba1st.com/forum/202403/12/004705stbs1isxlshqbhmb.jpg" referrerpolicy="no-referrer">
+
+<strong>bcf939fa828ba61e1aec5e150734970a314e59d2.jpg</strong> (211.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 00:47 上传
+
+*****
+
+####  九耳  
+##### 391#       发表于 2024-3-12 02:31
+
+我更想知道哪年能上pc。。。
+
+*****
+
+####  clover293  
+##### 392#       发表于 2024-3-12 15:24
+
+感觉demo估计会卡1个月左右的日子上，主要最近sie都在宣发浪人吧。等浪人发售之后估计就要开始搞这边了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

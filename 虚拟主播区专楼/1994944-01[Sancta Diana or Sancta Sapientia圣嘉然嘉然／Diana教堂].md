@@ -4007,3 +4007,13 @@ nowaki以前原来是嘉心糖头子
 きっと2人を動かす 光になるから，
 必定会化作驱使我们前进的光芒。
 
+
+*****
+
+####  Waspwall  
+##### 497#       发表于 2024-3-12 01:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LNA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

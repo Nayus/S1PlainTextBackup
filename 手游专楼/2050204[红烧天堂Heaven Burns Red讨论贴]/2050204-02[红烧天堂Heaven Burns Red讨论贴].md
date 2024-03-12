@@ -36,3 +36,24 @@
 
 这个HE不会是飞机社为了卖他那双人卡拿枪指着麻子头逼他写的吧
 
+
+*****
+
+####  pf67  
+##### 1484#       发表于 2024-3-12 13:00
+
+放弃人气池，抽了光天音
+
+一回合就能基本把debuff上满是真爽
+
+*****
+
+####  eyeego  
+##### 1485#       发表于 2024-3-12 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64217065&amp;ptid=2050204" target="_blank">道双晨曦 发表于 2024-3-11 12:34</a>
+推完五上了，情绪调动氛围这些都没得说，刚推完那会儿都快成飞机社孝子了
+
+冷静下来HE越想越觉得不 ...</blockquote>
+以飞机社一年完成五上都已经是奇迹的产能 你让牢歌下线一年玩家还不得疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

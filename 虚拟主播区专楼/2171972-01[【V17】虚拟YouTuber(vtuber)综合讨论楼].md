@@ -2159,3 +2159,44 @@ hnn最近同接是越来越夸张了
 
 ytb新女帝，vspo赶超hololive指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 77#       发表于 2024-3-11 23:32
+
+小半年了，终于看到nazu从gta里出来了
+
+*****
+
+####  渡鸦骑士  
+##### 78#       发表于 2024-3-12 08:02
+
+你虹又有新人出道了
+
+*****
+
+####  fastary  
+##### 79#       发表于 2024-3-12 11:19
+
+ 本帖最后由 fastary 于 2024-3-12 11:22 编辑 
+
+还在男团，这是看volta糊糊的但还能爆点米想再试一次吗，感觉没戏<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+可惜三个人怎么看里面也没有九埜，二期生人气最高的成员压了一年多最后搞没了这种蠢事我能念到虹倒闭
+
+*****
+
+####  毛头小希  
+##### 80#       发表于 2024-3-12 18:49
+
+抖M哥不出道我都没什么兴趣去关注虹的动向了
+
+也就昨天豆猫哥50KM马拉松耐久的时候爬起来了一下，这哥们可真狠，要么不整活要么一鸣惊人是吧
+
+豆猫哥……抖M哥……是不是有点押韵（咦）
+
+上期新人那个米兰VTA时期我还挺关注的，一出道瞬间索然无味了
+
+我是个多么肤浅的关fu系nv厨zi啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

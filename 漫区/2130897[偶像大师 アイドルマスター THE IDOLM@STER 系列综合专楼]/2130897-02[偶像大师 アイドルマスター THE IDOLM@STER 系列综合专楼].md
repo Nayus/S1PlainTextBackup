@@ -11872,3 +11872,95 @@ B]1~NMO~A%$9ZVG@CBD%~(N.jpg
 尝试了一下组织爱马仕歌单制作活动，根据指定主题从各个企划中提名、挑选歌曲，拉一个歌单(10-20首)，方便 ...</blockquote>
 b站发视频了或者网易云发歌单了请敲我一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 2668#       发表于 2024-3-11 23:57
+
+ 本帖最后由 wfhtony 于 2024-3-12 00:39 编辑 
+
+《STARLIGHT MASTER HEART TICKER! 04》的CW曲沒等到先行，倒是[翻唱曲](https://wfhtony.github.io/2018/08/28/imas-cgss/music/#huo-dong-xian-xing-pei-xin-qu-a-2024-nian-du)開先行了...
+
+接下來是3/19的「みちづれ」(黑埼ちとせ cover ver.，遊戲內於3/18實裝)。
+
+*****
+
+####  patema  
+##### 2669#       发表于 2024-3-12 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">回旋！
+
+<img src="https://img.saraba1st.com/forum/202403/12/165505t4qvqqx11jh5lc1e.jpg" referrerpolicy="no-referrer">
+
+<strong>A65BDD286039E1E4C5A63EB619704509.jpg</strong> (134.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 16:55 上传
+
+*****
+
+####  cckuku  
+##### 2670#       发表于 2024-3-12 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64231268&amp;ptid=2130897" target="_blank">patema 发表于 2024-3-12 16:54</a>
+ 可爱！回旋！</blockquote>
+不是日本人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 2671#       发表于 2024-3-12 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64231506&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-3-12 17:13</a>
+不是日本人吗</blockquote>
+在中国就得按中国规矩办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 2672#       发表于 2024-3-12 18:02
+
+小黄的表情包是真的多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+17岁还行<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安广多惠子  
+##### 2673#       发表于 2024-3-12 18:11
+
+一天就更新一个17岁还行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 2674#       发表于 2024-3-12 18:14
+
+这个月底管人就终审live了？
+
+*****
+
+####  Anatoly  
+##### 2675#       发表于 2024-3-12 18:18
+
+代孙，应该，不会，真的整什么指标不到就毕业吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 2676#       发表于 2024-3-12 18:23
+
+ 本帖最后由 rgauss 于 2024-3-12 18:59 编辑 
+
+完了 看着今天的眼睛 要来感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+三个音节 带个波 基本上没几个吧
+

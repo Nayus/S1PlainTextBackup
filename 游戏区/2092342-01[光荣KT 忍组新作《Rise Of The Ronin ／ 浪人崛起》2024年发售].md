@@ -1979,3 +1979,1079 @@ MGRR也是攻击键作为防反，实际体验还是不错的，攻防一体，�
 有女主？</blockquote>
 之前的采访我记得有说是双自捏
 
+
+*****
+
+####  hkguty  
+##### 867#       发表于 2024-3-11 20:53
+
+画面看着是真的差，男女主大概就是类似ACOD里的姐弟、星链里的兄妹那种关系，选了一方另一方就会成为有语音的宿敌，也不算很新奇的设定
+
+*****
+
+####  ultraseven  
+##### 868#       发表于 2024-3-11 21:00
+
+开放世界帧数很稳对KT来说就很好了吧
+
+*****
+
+####  icylight  
+##### 869#       发表于 2024-3-11 21:04
+
+评分持平仁王就是胜利
+
+*****
+
+####  ナルバレック  
+##### 870#       发表于 2024-3-11 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222203&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-3-11 20:53</a>
+
+画面看着是真的差，男女主大概就是类似ACOD里的姐弟、星链里的兄妹那种关系，选了一方另一方就会成为有语音 ...</blockquote>
+这画质对于暗荣来说已经是历史最高技术力了吧？
+
+*****
+
+####  crosz1985  
+##### 871#       发表于 2024-3-11 21:11
+
+这开放世界到底怎么样官方也不细说一下
+
+*****
+
+####  病態極端  
+##### 872#       发表于 2024-3-11 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222346&amp;ptid=2092342" target="_blank">ナルバレック 发表于 2024-3-11 21:11</a>
+
+这画质对于暗荣来说已经是历史最高技术力了吧？</blockquote>
+感覺不如狂野之心。
+
+*****
+
+####  TheOccuria  
+##### 873#       发表于 2024-3-11 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可能没dlc吧
+
+*****
+
+####  TheOccuria  
+##### 874#       发表于 2024-3-11 21:31
+
+女主是啥情况，是二选一还是切换打流程
+
+*****
+
+####  ナルバレック  
+##### 875#       发表于 2024-3-11 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222462&amp;ptid=2092342" target="_blank">病態極端 发表于 2024-3-11 21:24</a>
+
+感覺不如狂野之心。</blockquote>
+狂野之心的画面我记得好像是EA方面搞得吧？
+
+*****
+
+####  亚瑟摩根  
+##### 876#       发表于 2024-3-11 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222624&amp;ptid=2092342" target="_blank">ナルバレック 发表于 2024-3-11 21:41</a>
+狂野之心的画面我记得好像是EA方面搞得吧？</blockquote>
+ea只是发行，omega做的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ナルバレック  
+##### 877#       发表于 2024-3-11 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222669&amp;ptid=2092342" target="_blank">亚瑟摩根 发表于 2024-3-11 21:46</a>
+
+ea只是发行，omega做的
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 878#       发表于 2024-3-11 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222724&amp;ptid=2092342" target="_blank">ナルバレック 发表于 2024-3-11 21:53</a>
+OMEGA组技术力甚至被忍组完爆啊，作为FSR和358的白金玩家，我不信欧米茄组能做出这画面 ...</blockquote>
+狂野之心 ea认证的3a作品呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真到话怕不是花的钱一点不少
+
+*****
+
+####  亚瑟摩根  
+##### 879#       发表于 2024-3-11 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222724&amp;ptid=2092342" target="_blank">ナルバレック 发表于 2024-3-11 21:53</a>
+OMEGA组技术力甚至被忍组完爆啊，作为FSR和358的白金玩家，我不信欧米茄组能做出这画面 ...</blockquote>
+主要开发确实没说ea也参与了。是不是后面提供支援omega谁知道
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hkguty  
+##### 880#       发表于 2024-3-11 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222346&amp;ptid=2092342" target="_blank">ナルバレック 发表于 2024-3-11 21:11</a>
+
+这画质对于暗荣来说已经是历史最高技术力了吧？</blockquote>
+PV里城镇很近距离都能见到建筑贴图延迟读取，感觉这优化·····
+
+
+*****
+
+####  黑修士  
+##### 881#       发表于 2024-3-12 01:15
+
+有西班牙语等多国配音，就是没有中配
+
+不过想想连三国志8重制版都不给中配，不得不佩服KT在成本控制上的执着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 882#       发表于 2024-3-12 07:52
+
+国内篝火评价很差。。。a9倒是很含蓄
+
+*****
+
+####  手铐君  
+##### 883#       发表于 2024-3-12 07:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">国内几个媒体前瞻看了感觉都说不行，但是对忍者组，我只希望战斗能爽就好，不知道是只能2小时还是什么，战斗这块说的基本上都是之前官方公布的
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  duraa  
+##### 884#       发表于 2024-3-12 08:04
+
+居然有光追…<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sword_shrimp  
+##### 885#       发表于 2024-3-12 08:12
+
+仁王的前期在大量技能和辅助功能没解锁的时候，也只能打几个三板斧。
+
+还是期待一下这作吧，不然还得再玩五年仁王2。
+
+*****
+
+####  手铐君  
+##### 886#       发表于 2024-3-12 08:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">索尼是什么大病，几个媒体评测试玩内容不给录屏，只能用他们官方提供的视频？
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  popchong  
+##### 887#       发表于 2024-3-12 08:18
+
+篝火算了，师承ign罢了，喷忍者组的地图设计纯属找茬，哪壶不开提哪壶
+
+*****
+
+####  clover293  
+##### 888#       发表于 2024-3-12 08:19
+
+不过毕竟第一次搞开放世界，没经验也算是能理解。我看视频评论总是提到对马岛，但对马岛其实都是sp搞了三部开放世界
+
+*****
+
+####  duraa  
+##### 889#       发表于 2024-3-12 08:20
+
+看了看篝火的负面评价主要是地图不够复杂？这点其实算好事吧
+
+*****
+
+####  sad6504  
+##### 890#       发表于 2024-3-12 08:31
+
+看了试玩演示有飞燕，有饭纲落，买了！
+
+*****
+
+####  彩虹肥宅  
+##### 891#       发表于 2024-3-12 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64224421&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-12 01:15</a>
+
+有西班牙语等多国配音，就是没有中配
+
+不过想想连三国志8重制版都不给中配，不得不佩服KT在成本控制上的执着 ...</blockquote>
+卧龙那种中配，不如不上
+
+*****
+
+####  popchong  
+##### 892#       发表于 2024-3-12 08:36
+
+对马岛才是真的除了叔叔的城堡几乎毫无关卡设计，我不信幕末的大城市建筑群连这点水平都没有
+
+*****
+
+####  铁甲钢弹  
+##### 893#       发表于 2024-3-12 08:37
+
+看篝火的前瞻，这代流转都没了？还有这天地人还不是架势，怎么还整上属性克制了。武技设置，派生也没怎么说，这前瞻也太前了点。
+
+*****
+
+####  SergeGlenn  
+##### 894#       发表于 2024-3-12 08:43
+
+篝火有点难绷的是拿老头环做对比，喷忍组做不到小沙盒大地图的融合，赖好吃点花生米也不至于对忍组有这个期待吧
+
+老外整体前瞻都比较正向，但有个很喜欢仁王2的youtuber的前瞻视频比较负面，他不喜欢忍组现在简化连招(单键)的取向，然后认为游戏其他部分从各个游戏取经但都不如他们学习的作品做的好，感兴趣的可以看下FightinCowboy的视频
+
+https://youtu.be/OFYFfzW-yO4?si=CaQ_WUjciBzDTqkX
+
+*****
+
+####  布伦史塔德  
+##### 895#       发表于 2024-3-12 08:47
+
+篝火这文章拿前两小时的三个关卡和法环地图设计作比较，我不知道这算黑算红<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 896#       发表于 2024-3-12 08:48
+
+<img src="https://img.saraba1st.com/forum/202403/12/084818xc6g7sx7cn2q3nv6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 08:48 上传
+
+武器装备界面，5个空格大概是词条数量？
+
+*****
+
+####  zqqwe  
+##### 897#       发表于 2024-3-12 08:49
+
+对忍组开放地图唯一的期望是不掉帧影响战斗体验，这东西本来就只是个添头罢了。
+看各路媒体都说可以自定义“两人”的性别，不知是歧义还是真的可以选两个女隐刀<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  popchong  
+##### 898#       发表于 2024-3-12 08:56
+
+<blockquote>SergeGlenn 发表于 2024-3-12 08:43
+篝火有点难绷的是拿老头环做对比，喷忍组做不到小沙盒大地图的融合，赖好吃点花生米也不至于对忍组有这个期 ...</blockquote>
+确实，战斗系统真的没必要妥协，连ff7重生都是继续往复杂丰富了挖掘系统，留出足够的性能和难度冗余让浅尝玩家能过关就行了
+
+*****
+
+####  SergeGlenn  
+##### 899#       发表于 2024-3-12 08:57
+
+<blockquote>zqqwe 发表于 2024-3-12 08:49
+对忍组开放地图唯一的期望是不掉帧影响战斗体验，这东西本来就只是个添头罢了。
+
+看各路媒体都说可以自定义 ...</blockquote>
+era上有人说了可以选两个女的
+
+*****
+
+####  ナルバレック  
+##### 900#       发表于 2024-3-12 09:02
+
+看这些早期评测，感觉看家的动作系统应该是没拉
+
+*****
+
+####  duraa  
+##### 901#       发表于 2024-3-12 09:12
+
+之前画面里的l3+r3还没看到有说是啥，先猜一个是无限武器条（残心资源）的效果
+动作方面主要是方块接三角有不有派生（c技）一直没看到有说<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只有方块，蓄力方块，方向键+方块的话感觉有点微妙
+
+*****
+
+####  zqqwe  
+##### 902#       发表于 2024-3-12 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64225315&amp;ptid=2092342" target="_blank">SergeGlenn 发表于 2024-3-12 08:57</a>
+era上有人说了可以选两个女的</blockquote>
+赢！
+
+*****
+
+####  hkguty  
+##### 903#       发表于 2024-3-12 09:28
+
+简单来说就是以往的人亡系游戏因为都是箱庭，在关卡设计方面多少还是有点有趣的地方，一下子从这种关卡变成飞机场，篝火编辑表示落差有点大
+
+*****
+
+####  霖岚_  
+##### 904#       发表于 2024-3-12 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但这段时间打仁王2招式变化多的我头疼，加上残心操作量巨大，打着打着就只会老几样复读了，招式至少希望能简化到FFO那种吧，卧龙那种又过于简单了
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">浪人还得继续搞残心，估计开荒都得蹲个轮椅武器用用了
+
+*****
+
+####  手铐君  
+##### 905#       发表于 2024-3-12 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">不知道dlc会不会有棍子，仁王2卧龙一直在用棍子，最近玩了忍龙大师合集，也在用棍子，感觉忍者组的棍子确实爽
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  刘震云  
+##### 906#       发表于 2024-3-12 09:36
+
+动作玩家看完16分钟的试玩影像就知道稳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武技数量可以肯定是历代最丰富的，双刀大天升，甚至空蝉都给你搬过来了
+
+至于开放世界，那能吃吗？马匹，滑翔翼，跑路舒适感给你拉满就完事儿了，我只想知道我要砍谁~
+
+*****
+
+####  WhiteGlint  
+##### 907#       发表于 2024-3-12 09:36
+
+单键其实还好吧，卧龙那是真的太过头了，我感觉有架势系统就有很多能琢磨的点了，本身紫电也还在。
+
+看A9说这次是有断肢的，但是视频里都没看到，想想忍龙2饭刚落直接把头砸爆是真的有瘾的好吧
+
+*****
+
+####  duraa  
+##### 908#       发表于 2024-3-12 09:40
+
+ 本帖最后由 duraa 于 2024-3-12 09:52 编辑 
+
+希望光荣不会搞出日服都有z版（相当于无和谐版），港服是d版（和谐版）的操作，应该不会吧…..估计是我想多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+A9发的好像确认有断肢，那没事了
+
+*****
+
+####  碎镜子  
+##### 909#       发表于 2024-3-12 09:42
+
+忍组的东西媒体基本没有发言权的
+
+《如果可以，我希望仁王2可以重做》.jpg
+
+*****
+
+####  雨翼free  
+##### 910#       发表于 2024-3-12 09:44
+
+篝火这评测，现在大部分的开放世界不都是平铺没什么设计。感觉是对忍组有什么不切实际的幻想。
+
+*****
+
+####  泉美  
+##### 911#       发表于 2024-3-12 09:45
+
+要卖 500万的，妥协点很正常。这次甚至还给难度选择<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寂长无星夜  
+##### 912#       发表于 2024-3-12 09:45
+
+动作系统稳定，能捏妹子，还要什么自行车，不会有人期待忍组的开放世界关卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  WhiteGlint  
+##### 913#       发表于 2024-3-12 09:48
+
+看视频夜晚画面一如既往的黑，白天倒是观感比之前都好不少，动作也干净没有什么光污染。
+
+FFO那个滤镜+技能粒子效果看的眼睛疼，裸眼电焊
+
+*****
+
+####  桥洞底下盖小被  
+##### 914#       发表于 2024-3-12 09:57
+
+港版有没有断肢啊，还是说也分两个版本？
+
+*****
+
+####  MuramasaSP  
+##### 915#       发表于 2024-3-12 10:00
+
+居然没有季票，单一个本体就五百多，太贵了，不过还是预购了，画面还挺干净。
+
+*****
+
+####  uponutopia  
+##### 916#       发表于 2024-3-12 10:02
+
+地图差评压根不算事儿，对我来说远不及单键简化连招几个字来的重量级
+
+*****
+
+####  电磁炮233  
+##### 917#       发表于 2024-3-12 10:10
+
+怎么还在单键，不是都说了三角兼具重攻击和石火判定两个功效吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  popchong  
+##### 918#       发表于 2024-3-12 10:10
+
+索尼or光荣真是有什么大病，都这个节骨眼了还不让媒体自己录视频，就连IGN日本独家的小小弟采访，片花都是今天早上全渠道共用的那几段
+
+*****
+
+####  DawnGuardian  
+##### 919#       发表于 2024-3-12 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64225315&amp;ptid=2092342" target="_blank"> SergeGlenn 发表于 2024-3-12 08:57</a> 引用:zqqwe 发表于 2024-3-12 08:49 对忍组开放地图唯一的期望是不掉帧影响战斗体验，这东西本来就只是个添头罢了。 看各路媒体都说可以自定义 ... era上有人说了可以选两个女的 </blockquote>
+所以这作是双主角的同时还可以自定义主角？有点好奇这作剧情会怎么描写来自: iPhone客户端
+
+*****
+
+####  nancygreenlife  
+##### 920#       发表于 2024-3-12 10:16
+
+这前瞻真不妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这作是不是绝大多数都对人战了？想起了仁王2被斋藤利三恶心的日子
+
+
+*****
+
+####  godless2020  
+##### 921#       发表于 2024-3-12 10:17
+
+对休闲玩家来讲对比仁王和卧龙，浪人显得更友好，门槛更低，也能体验到硬核感觉的战斗，还能休闲暗杀，还能借助队友的奖励能力2打1
+
+可能对部分仁王硬核粉丝来讲可能有点开倒车，战斗系统简化了，操作简化了，3种架势变成了石头剪子布单选有利架势，不能3种随心自由使用，战斗深度不够，前3个难度敌人AI的反应不够积极
+
+总体来讲能玩，但不是很好的水平，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  godless2020  
+##### 922#       发表于 2024-3-12 10:18
+
+个人觉得系统简单点挺好！
+
+*****
+
+####  duraa  
+##### 923#       发表于 2024-3-12 10:20
+
+ 本帖最后由 duraa 于 2024-3-12 10:21 编辑 
+
+我记得他这个架势是可以装同类别的，而且之前有流出过不止天地人三种架势
+
+*****
+
+####  popchong  
+##### 924#       发表于 2024-3-12 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226290&amp;ptid=2092342" target="_blank">godless2020 发表于 2024-3-12 10:17</a>
+
+对休闲玩家来讲对比仁王和卧龙，浪人显得更友好，门槛更低，也能体验到硬核感觉的战斗，还能休闲暗杀，还能 ...</blockquote>
+石头剪子布可以无视，我玩对马岛很喜欢用那个快刀模式砍盾兵，比用系统推荐的模式爽快的多
+
+*****
+
+####  icylight  
+##### 925#       发表于 2024-3-12 10:28
+
+感觉要翻车啊，图片里的人是a9的编辑，直接说了一句“呵呵”
+
+<img src="https://img.saraba1st.com/forum/202403/12/102805u6rsn3jdq2t3s56u.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-12 102743.jpg</strong> (43.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 10:28 上传
+
+<img src="https://img.saraba1st.com/forum/202403/12/102803yn8nakhavrvknkkq.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-12 102753.jpg</strong> (127.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 10:28 上传
+
+*****
+
+####  本杰明铁柱  
+##### 926#       发表于 2024-3-12 10:31
+
+ 本帖最后由 本杰明铁柱 于 2024-3-12 10:34 编辑 
+
+篝火编辑部的评价确实离谱，他对浪人崛起地图的批评完全适用于巫师3对马岛大部分刺客信条甚至荒野大镖客，当然也可能是受限于非正式的评测所以只能三缄其口。我觉得他们可能期待的是黑魂3到艾尔登法环级别的进化，希望是玩到一个开放世界版的仁王，实际上忍组只是想做个对马岛这样的公式开放世界游戏。
+
+*****
+
+####  刘震云  
+##### 927#       发表于 2024-3-12 10:31
+
+说系统简化的，哪里简化了，相比仁王2删了守护灵，妖技，但同时加了石火弹反，勾爪，还加了跳跃攻击（弹反）等于增加了空中的战斗维度
+
+不同流派克制只影响削精量，你可以选择打防反，也可以选择打闪避立回
+
+*****
+
+####  Emmerich  
+##### 928#       发表于 2024-3-12 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226442&amp;ptid=2092342" target="_blank">icylight 发表于 2024-3-12 10:28</a>
+
+感觉要翻车啊，图片里的人是a9的编辑，直接说了一句“呵呵”</blockquote>
+这人早就不是了 本身也就是个玩欧美爆米花的....现在在别家做发行 而且早年比较高调的时候劣迹斑斑
+
+虽然这帖子标题挺蠢但也没必要在这人的发言上捕风捉影
+
+*****
+
+####  WhiteGlint  
+##### 929#       发表于 2024-3-12 10:34
+
+国内大部分媒体（感觉UCG几个编辑在特定游戏的专业性会更强，参考铁拳8的评测）对忍组的游戏体验都挺轻度的，仁王2的评价也都还历历在目。当然也有可能时间太短了系统根本就是残疾的。
+
+就算是单键也是比卧龙强的多的，这个我觉得不需要担心，开放世界想想就是一堆弱智小游戏+清据点，还能烂到哪里去。
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 930#       发表于 2024-3-12 10:34
+
+我对仁王2最大的不满就是部分技能判定窗口过于严格，我觉得这才是修改方向，但是忍组做减法能力经过卧龙来看真是不敢恭维<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千秋难诉  
+##### 931#       发表于 2024-3-12 10:35
+
+吹死婊活，先行媒体评测来看，暗耻脱裤魔史上最大作品对标奶粉作卧龙了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 932#       发表于 2024-3-12 10:36
+
+我现在越来越觉得这个3/22有点赶了。。。理论上来说，sie发行的游戏都是提前一个月preview
+
+*****
+
+####  waelaZed  
+##### 933#       发表于 2024-3-12 10:37
+
+动作模组没啥问题,龙剑飞燕,饭刚落,双刀风雷震落,大升天,还有之前透的那些,不过演示的敌人都有点少
+
+开放世界的话有点巫师有点大表哥,不是说细节而是空阔程度,不过也算合理,城里村里人不算多,也不算坏事
+
+其实他又长短枪,又马克沁的,我蛮想看滑翔轰炸的,但是没见到人用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uponutopia  
+##### 934#       发表于 2024-3-12 10:37
+
+这种毫无营养的酸屁无视就行，就像当初UCG发了个对马岛的评测狂批鬼佬不懂日本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，倒是前面老哥发的由管UP的评测视频比较有参考价值
+
+*****
+
+####  hentianwuya  
+##### 935#       发表于 2024-3-12 10:38
+
+看了视频，还行，忍组的水平大家都清楚，估计最后是一个和ff7rb一样，战斗系统大好评，其它某个点或者某几个点被玩家大幅诟病的游戏。
+
+我现在唯一希望是战斗系统能更向仁王2靠近一点，不要向卧龙靠拢，仁王2玩了500小时，我早就饥渴难耐了。<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本杰明铁柱  
+##### 936#       发表于 2024-3-12 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226607&amp;ptid=2092342" target="_blank">hentianwuya 发表于 2024-3-12 10:38</a>
+
+看了视频，还行，忍组的水平大家都清楚，估计最后是一个和ff7rb一样，战斗系统大好评，其它某个点或者某几 ...</blockquote>
+目前看忍组是一股脑把忍龙到卧龙全缝了，a9的评测甚至特别好评了断肢系统
+
+*****
+
+####  BadYanL  
+##### 937#       发表于 2024-3-12 10:52
+
+画面看起来比以往忍组的游戏干净多了。
+
+FFO我也玩的津津有味的，不怕翻车。
+
+*****
+
+####  duraa  
+##### 938#       发表于 2024-3-12 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226723&amp;ptid=2092342" target="_blank">本杰明铁柱 发表于 2024-3-12 10:45</a>
+目前看忍组是一股脑把忍龙到卧龙全缝了，a9的评测甚至特别好评了断肢系统 ...</blockquote>
+断肢应该是敌人死亡的表现效果吧，应该不是忍龙的那种可以称得上是系统的东西
+
+*****
+
+####  桥洞底下盖小被  
+##### 939#       发表于 2024-3-12 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226442&amp;ptid=2092342" target="_blank">icylight 发表于 2024-3-12 10:28</a>
+感觉要翻车啊，图片里的人是a9的编辑，直接说了一句“呵呵”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这，这下我真怕了
+
+*****
+
+####  垃圾网站上  
+##### 940#       发表于 2024-3-12 11:12
+
+篝火编辑为了黑浪人还能给忍组之前的地图设计好评了，不是收钱就是脑残云玩家
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  waelaZed  
+##### 941#       发表于 2024-3-12 11:12
+
+那不如想一下翻车的点可能是什么,太空没货?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeelolo  
+##### 942#       发表于 2024-3-12 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64225315&amp;ptid=2092342" target="_blank">SergeGlenn 发表于 2024-3-12 08:57</a>
+
+era上有人说了可以选两个女的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">可以捏两个妹妹了，挺好
+
+*****
+
+####  黑酒杯  
+##### 943#       发表于 2024-3-12 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64227152&amp;ptid=2092342" target="_blank">waelaZed 发表于 2024-3-12 11:12</a>
+那不如想一下翻车的点可能是什么,太空没货?</blockquote>
+倒不如说除了动作系统的话其他有那些不会翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开放世界的话整体设计肯定不能走关卡制那一套
+
+*****
+
+####  wyy123  
+##### 944#       发表于 2024-3-12 11:32
+
+ 本帖最后由 wyy123 于 2024-3-12 11:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64227319&amp;ptid=2092342" target="_blank">黑酒杯 发表于 2024-3-12 11:23</a>
+
+倒不如说除了动作系统的话其他有那些不会翻车开放世界的话整体设计肯定不能走关卡制那一套 ...</blockquote>
+看国内那些评测，开放世界大地图接任务，任务里是个有限制小地图，还是关卡制。
+
+上周出的圣兽之王就是这种形式，开放大地图，但接任务后就限制在一个小地图里。
+
+*****
+
+####  洛克萨斯  
+##### 945#       发表于 2024-3-12 11:37
+
+这次有断肢？小小弟拿这个做试验品给龙哥复出做准备么
+
+*****
+
+####  waelaZed  
+##### 946#       发表于 2024-3-12 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64227475&amp;ptid=2092342" target="_blank">wyy123 发表于 2024-3-12 11:32</a>
+
+看国内那些评测，开放世界大地图接任务，任务里是个有限制小地图，还是关卡制。
+
+上周出的圣兽之王就是这种 ...</blockquote>
+我猜也是这种副本的方式,大地图是独立的,剧情也多数是独立的,忍组在大地图上搞事的话怕是要翻的很难看
+
+*****
+
+####  医生狼多  
+##### 947#       发表于 2024-3-12 11:44
+
+看a9的文章，没看懂断肢只是单纯表现还是带配套的系统的
+
+*****
+
+####  duraa  
+##### 948#       发表于 2024-3-12 11:46
+
+<img src="https://img.saraba1st.com/forum/202403/12/114633g7in211qq1n7we9t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 11:46 上传
+
+*****
+
+####  hkguty  
+##### 949#       发表于 2024-3-12 12:24
+
+该不会就是一个主角选择倒幕，另一个选择了佐幕，然后玩家决定玩哪一个吧
+
+*****
+
+####  yj98879  
+##### 950#       发表于 2024-3-12 12:25
+
+ 本帖最后由 yj98879 于 2024-3-12 12:27 编辑 
+
+我估摸着地图平铺直叙加上操作简化，导致前期内容不太有乐趣
+
+*****
+
+####  normalli  
+##### 951#       发表于 2024-3-12 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64227521&amp;ptid=2092342" target="_blank">洛克萨斯 发表于 2024-3-12 11:37</a>
+这次有断肢？小小弟拿这个做试验品给龙哥复出做准备么</blockquote>
+仁王也有断肢，但就是纯动画，没啥系统上的作用
+
+*****
+
+####  pf67  
+##### 952#       发表于 2024-3-12 12:39
+
+又到了发售前惯例环节：先喷媒体不专业
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  samporter  
+##### 953#       发表于 2024-3-12 13:03
+
+忍组自己的星空
+
+*****
+
+####  BadYanL  
+##### 954#       发表于 2024-3-12 13:09
+
+ 本帖最后由 BadYanL 于 2024-3-12 13:12 编辑 
+
+任务肯定关卡制的，不然怎么联机？
+
+*****
+
+####  刘震云  
+##### 955#       发表于 2024-3-12 13:20
+
+那些媒体确实不专业，没办法（玩个复杂点的动作游戏真是难为他们了）
+
+依稀记得之前IGN评测试玩怪猎崛起，玩得一坨屎，尬得我想上去代打的程度
+
+后来看了**的Vjump的试玩，人家把武器机制和翔虫技给你摸得清清楚楚
+
+要是后续放出媒体自己的试玩视频，估计满屏的“不如我上”
+
+*****
+
+####  bm7号  
+##### 956#       发表于 2024-3-12 13:30
+
+有测评讲振刀系统吗？
+
+是不是忍者组发现自己做的游戏还不如tamsoft然后随便加的？
+
+*****
+
+####  ouyang菌  
+##### 957#       发表于 2024-3-12 13:41
+
+ 本帖最后由 ouyang菌 于 2024-3-12 13:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">我个人其实是比较喜欢忍龙那种长派生而不是快捷键一键释放的的，但是仁王ffo卧龙都主要用的后者，浪人崛起看起来也是这样
+
+*****
+
+####  桥洞底下盖小被  
+##### 958#       发表于 2024-3-12 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64228804&amp;ptid=2092342" target="_blank">bm7号 发表于 2024-3-12 13:30</a>
+有测评讲振刀系统吗？
+
+是不是忍者组发现自己做的游戏还不如tamsoft然后随便加的？ ...</blockquote>
+目前来看就是砍得越多武器条涨的越快，然后影响振刀回的精力吧
+
+*****
+
+####  桥洞底下盖小被  
+##### 959#       发表于 2024-3-12 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64228912&amp;ptid=2092342" target="_blank">ouyang菌 发表于 2024-3-12 13:41</a>
+我个人其实是比较喜欢忍龙那种长派生而不是快捷键一键释放的的，但是仁王ffo卧龙都主要用的后者，浪 ...</blockquote>
+长派生就是act搓招了，现在忍组只想把系统往大众化做
+
+*****
+
+####  clover293  
+##### 960#       发表于 2024-3-12 14:06
+
+都搞难度设定了 肯定是往大众方向走的
+
+
+*****
+
+####  碎镜子  
+##### 961#       发表于 2024-3-12 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64229121&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-3-12 14:03</a>
+
+长派生就是act搓招了，现在忍组只想把系统往大众化做</blockquote>
+ffo是C技，忍龙那种是复杂化的C技。
+
+仁王的残心是JC的变种，其实操作起来更接近鬼泣，反而是忍组游戏入门最难的。
+
+忍龙大众其实能玩就是宣传和卖相太差了。
+
+*****
+
+####  oahcihs  
+##### 962#       发表于 2024-3-12 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64227294&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-12 11:21</a>
+可以捏两个妹妹了，挺好</blockquote>
+GOTY！
+
+*****
+
+####  寂长无星夜  
+##### 963#       发表于 2024-3-12 14:37
+
+希望捏脸系统别改太多，让我能完美复制阿秀出来<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hqchan  
+##### 964#       发表于 2024-3-12 14:45
+
+之前没怎么关注，看了下预告片发现两个主角还能在战斗时切换着打？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネコカイザー  
+##### 965#       发表于 2024-3-12 15:01
+
+篝火对关卡设计的评价的口吻严苛到一定地步了，上次听到这种口吻感觉还是三国无双8。。。。
+
+*****
+
+####  无意义小号  
+##### 966#       发表于 2024-3-12 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还真希望是那种清据点模式，直接进去让我杀，配和这个战斗系统不比搞那种弱智地图爽多了
+
+*****
+
+####  地図と青い森  
+##### 967#       发表于 2024-3-12 15:25
+
+某几个流派的石火看着就像是一刀流的切落，那和防御键不相干不也很正常，是攻击时顺带防守。
+
+而J防之类应该是用技术格挡偏斜之后转守为攻
+
+*****
+
+####  duraa  
+##### 968#       发表于 2024-3-12 15:28
+
+ 本帖最后由 duraa 于 2024-3-12 15:30 编辑 
+
+[https://bbs.nga.cn/read.php?tid=39545460](https://bbs.nga.cn/read.php?tid=39545460)
+
+nga有人翻了法米桶的前瞻，可以看看
+
+*****
+
+####  godless2020  
+##### 969#       发表于 2024-3-12 15:34
+
+《浪人崛起》全球媒体早期评测已于今日解禁，以下为IGNJP对于本作初步测试的报告整理：
+
+1、从角色创建开始，本作就利用了Team NINJA在《仁王》和《卧龙》中所积累的技术。
+
+2、双主角的设计不仅在剧情上有所作用，也是游戏关键的机制之一。
+
+3、战斗系统是Team NINJA集大成者，招架之处有些类似《只狼》《卧龙》（还有钩绳）。
+
+4、游戏中可与多位历史名人结识，并一起行动。
+
+5、玩家的选择会影响着后面的走向。
+
+6、游戏在文化上的描绘和表现很出色，除了景点、村庄外，横滨这种重要城市刻画的也很生动。
+
+7、维护村庄治安之处虽似《对马》，但就潜伏在开放世界中的强敌来说，本作更像幕末版“法环”。
+
+8、樱花飞舞、红叶落地，游戏展现了和风的四季之美。
+
+9、娱乐性与真实性并存。
+
+10、虽然画面很漂亮，但也达不到现代游戏的顶点。偶尔会出现物体和NPC不自然的动作。本作的规模的确是前所未有的，但仍会被技术层面上的问题所限制。
+
+*****
+
+####  feimaqundao337  
+##### 970#       发表于 2024-3-12 15:34
+
+这玩意应该会复刻之前作品年底完整版上pc的操作吧。
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  洛克萨斯  
+##### 971#       发表于 2024-3-12 15:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了龙哥能复出，感觉要支持下小小弟，隔壁就算不行也不会影响鬼泣6的
+
+*****
+
+####  stair楼梯  
+##### 972#       发表于 2024-3-12 15:47
+
+老实说现在还是没从评测看到想要的东西，石火的优先级到底咋样，还有没有别的手段能打出敌人的畏缩（非霸体状态），fami特意提了嘴石火接的越多效果越好，只能说我想要的这几个问题没有解答这游戏无非就是另一个卧龙罢了……）
+
+*****
+
+####  本杰明铁柱  
+##### 973#       发表于 2024-3-12 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64230200&amp;ptid=2092342" target="_blank">godless2020 发表于 2024-3-12 15:34</a>
+
+《浪人崛起》全球媒体早期评测已于今日解禁，以下为IGNJP对于本作初步测试的报告整理：
+
+1、从角色创建开始 ...</blockquote>
+我很好奇这个双主角机制是怎么运作，和TLOU2一样双主角两条线？这种还是挺影响代入感的
+
+*****
+
+####  霖岚_  
+##### 974#       发表于 2024-3-12 16:01
+
+<img src="https://img.nga.178.com/attachments/mon_202403/12/biQ2t-ela8X1vZihT3cSgo-9e.gif" referrerpolicy="no-referrer">
+
+nga那帖的gif里石火完全是0抬手触发啊，难道是派生技中途都能按三角弹反么
+
+*****
+
+####  stair楼梯  
+##### 975#       发表于 2024-3-12 16:26
+
+重看了官方演示，前几个演示的时候还猜敌人血条非空精状态下变红是不是类似于仁王妖怪空精卧龙畏缩一样全程失去霸体让玩家暂时有个放武技的机会，结果这回打胖子的演示就算对方进入血条变红状态还是全霸体加能防御能攻击，那**的武技到底有个jb用，我估计你这逼石火也不能取消武技吧，真她妈笑嘻了，卧龙被诟病的点还是继承到了浪人
+
+*****
+
+####  bm7号  
+##### 976#       发表于 2024-3-12 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64230118&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-12 15:28</a>
+
+https://bbs.nga.cn/read.php?tid=39545460
+
+nga有人翻了法米桶的前瞻，可以看看</blockquote>
+基本上是仁王1卧龙那一系的了。
+
+不知道做仁王2妖力、p5s的one more、狂野之心机巧线的策划们是不是都被弟中弟哥哥踢到无双组去了。本作就缝了半个进击巨人。
+
+*****
+
+####  手铐君  
+##### 977#       发表于 2024-3-12 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64231087&amp;ptid=2092342" target="_blank">bm7号 发表于 2024-3-12 16:40</a>
+
+基本上是仁王1卧龙那一系的了。
+
+不知道做仁王2妖力、p5s的one more、狂野之心机巧线的策划们是不是都被弟 ...</blockquote>
+我记得p5s和狂野之心就是无双组做的吧
+
+*****
+
+####  bm7号  
+##### 978#       发表于 2024-3-12 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64231164&amp;ptid=2092342" target="_blank">手铐君 发表于 2024-3-12 16:45</a>
+
+我记得p5s和狂野之心就是无双组做的吧</blockquote>
+是呀，但是仁王2在前，而且这种带强打断的系统也很难说是从358长按触发攻击来的。
+这两作似乎也有小弟的痕迹。
+
+*****
+
+####  Z1yu  
+##### 979#       发表于 2024-3-12 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64230893&amp;ptid=2092342" target="_blank">stair楼梯 发表于 2024-3-12 16:26</a>
+重看了官方演示，前几个演示的时候还猜敌人血条非空精状态下变红是不是类似于仁王妖怪空精卧龙畏缩一样全程 ...</blockquote>
+楼上那图就是武技中0帧抬手石火。
+之前演示也有手枪强制打断boss动作。
+这一部都是人型敌人，空精直接处决。仁王里人型敌人也是空精直接处决。
+
+*****
+
+####  hkguty  
+##### 980#       发表于 2024-3-12 17:16
+
+感觉是不是换引擎了，这部看着好像没有传统屎色滤镜了
+
+*****
+
+####  松风君  
+##### 981#       发表于 2024-3-12 17:17
+
+ 本帖最后由 松风君 于 2024-3-12 10:18 编辑 
+
+法米通谈到开放世界内容和系统比国内几家甩片儿汤话的丰富不少，也不知道一小时捏脸的都理解出了啥。
+
+这次幕末历史人文体验是相当重的一part（比较近幕末刺客2/RDR2），为了真实和仁王系神魔志怪确定拜拜了，以及升级版复杂箱庭设计螺蛳壳开道场也是没有的，只有Vandal被删稿那篇全游戏评测和法米通这篇前瞻交互佐证了仁式刷装依旧屹立不倒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stair楼梯  
+##### 982#       发表于 2024-3-12 17:18
+
+<blockquote>Z1yu 发表于 2024-3-12 17:10
+楼上那图就是武技中0帧抬手石火。
+
+之前演示也有手枪强制打断boss动作。
+
+这一部都是人型敌人，空精直接处 ...</blockquote>
+关键是他这里武技都差不多打完了，万一是类似残心那个取消性能咋办
+
+*****
+
+####  waelaZed  
+##### 983#       发表于 2024-3-12 19:20
+
+晦气啊,看到一张图,ign jp的制作人采访,小小弟安田旁边坐着小弟早食屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

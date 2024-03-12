@@ -1913,3 +1913,498 @@ EAT和无后坐力炮都是前期主力反装甲，别说10级，5级都能解�
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Launce  
+##### 1662#       发表于 2024-3-11 21:23
+
+<img src="https://img.saraba1st.com/forum/202403/11/212332pvzi8cth8gzvdnr5.png" referrerpolicy="no-referrer">
+
+<strong>RI@7NVKBAO484{EGII62HYY.png</strong> (477.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-11 21:23 上传
+
+*****
+
+####  kalavinka  
+##### 1663#         楼主| 发表于 2024-3-11 21:52
+
+解包出来的新异常状态
+
+陷入幻觉
+
+轻度辐射
+
+重度辐射
+
+光能眩晕
+
+颠倒辅助瞄准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 1664#       发表于 2024-3-11 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222718&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-3-11 21:52</a>
+
+解包出来的新异常状态
+
+陷入幻觉
+
+轻度辐射</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">最想念黑曜石的一集
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1665#       发表于 2024-3-11 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陷入幻觉没有队友模型变怪我可要骂他们没用了啊
+
+*****
+
+####  gzGaryC  
+##### 1666#       发表于 2024-3-12 00:33
+
+ 本帖最后由 gzGaryC 于 2024-3-12 00:35 编辑 
+
+四人开黑两机甲两步兵打虫子还是有效的，只要机甲没有暴毙导致火力真空基本可以碾过去。步兵专门清近身的轻甲小虫，丢空袭，兼顾报点。4红或者3红+机甲，毒气EMP这种控场用的也可以带上。驾驶员只带蓝的（甚至可以不带自己的武器捡地图上的用，空出一个位置带机甲），负责清理中甲以上的虫子，目前送的4个机甲加上自己带的4~8个机甲一局游戏基本上用不完
+
+*****
+
+####  runningch  
+##### 1667#       发表于 2024-3-12 01:26
+
+不知道是什么活动，不知道瑞哥有没有玩
+
+<img src="https://img.saraba1st.com/forum/202403/12/012700sij36j0vj8jmgm8o.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_casper-van-dien-v0-i8k2c2rbojnc1.jpg</strong> (163.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 01:27 上传
+
+*****
+
+####  LrGsite  
+##### 1668#       发表于 2024-3-12 03:48
+
+<img src="https://img.saraba1st.com/forum/202403/12/034733nitqgfqfg50zeuqu.png" referrerpolicy="no-referrer">
+
+<strong></strong> (187.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 03:47 上传
+
+[https://www.bilibili.com/video/BV1Ht421L7eR](https://www.bilibili.com/video/BV1Ht421L7eR)
+
+【地狱潜兵2】OST 无尽征途-机器人BGM1小时纯享版
+
+<img src="https://img.saraba1st.com/forum/202403/12/034800usgyihhi4gfsuw7q.png" referrerpolicy="no-referrer">
+
+<strong>ZD[DKG)[5N6BX3_SJ5T{PJ9.png</strong> (73.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 03:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">原来机器人真的在唱军歌
+
+*****
+
+####  jy000129  
+##### 1669#       发表于 2024-3-12 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64222718&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-3-11 21:52</a>
+解包出来的新异常状态
+
+陷入幻觉
+
+轻度辐射</blockquote>
+加这些东西的话头盔也要加特效了吧？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白昼梦  
+##### 1670#       发表于 2024-3-12 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼解包电弧甲直接电弧伤-95%啊。新战券看起来是塞满了电弧主武器电磁雷emp榴弹这种打机器人用的装备，不知道实战效果到底好不好
+
+*****
+
+####  airshit  
+##### 1671#       发表于 2024-3-12 09:57
+
+都是N6，虫子和机器人感觉不是一个难度的，这虫子追了我1/4个地图还在追，甚至跑不过坦克虫，太TM恶心了。
+
+*****
+
+####  wthall  
+##### 1672#       发表于 2024-3-12 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要开始备战难度7了，需要红色样本解锁第三层机库，飞鹰+1的诱惑巨大
+
+*****
+
+####  stormquantage  
+##### 1673#       发表于 2024-3-12 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64225994&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-12 09:57</a>
+
+都是N6，虫子和机器人感觉不是一个难度的，这虫子追了我1/4个地图还在追，甚至跑不过坦克虫，太TM恶心了。 ...</blockquote>
+真的吗，难6虫子跑酷起来真不难。难6机器人能把我脑瓜子打出来。
+
+侦查轻甲+耐力提升+电弧+蛋盾，只要不队友引怪到我头上打正面战，难8的虫子基本都能绕没。电弧还能刮死一两个牛。
+
+*****
+
+####  wthall  
+##### 1674#       发表于 2024-3-12 10:31
+
+但是手柄到底是怎么丢掉身上的样本么？怎么都安不出来那个轮盘
+
+*****
+
+####  灰色蔓延  
+##### 1675#       发表于 2024-3-12 10:37
+
+手柄应该是十字键吧？
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  airshit  
+##### 1676#       发表于 2024-3-12 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226468&amp;ptid=2170852" target="_blank">stormquantage 发表于 2024-3-12 10:30</a>
+
+真的吗，难6虫子跑酷起来真不难。难6机器人能把我脑瓜子打出来。
+
+侦查轻甲+耐力提升+电弧+蛋盾，只要不队 ...</blockquote>
+还没解锁耐力提升，用的加手雷的甲。不回头一直往前跑都跑不过牛
+
+*****
+
+####  airshit  
+##### 1677#       发表于 2024-3-12 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226476&amp;ptid=2170852" target="_blank">wthall 发表于 2024-3-12 10:31</a>
+
+但是手柄到底是怎么丢掉身上的样本么？怎么都安不出来那个轮盘</blockquote>
+长按方向键下
+
+*****
+
+####  wthall  
+##### 1678#       发表于 2024-3-12 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226625&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-12 10:40</a>
+
+长按方向键下</blockquote>
+那顺便问一下手柄的开镜是哪个键，我之前为了用狙击枪，把键位设到了R1上，但是和标记重叠了，每次开镜都很奇怪，应该会有一个专门的案件把？
+
+*****
+
+####  airshit  
+##### 1679#       发表于 2024-3-12 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226663&amp;ptid=2170852" target="_blank">wthall 发表于 2024-3-12 10:42</a>
+
+那顺便问一下手柄的开镜是哪个键，我之前为了用狙击枪，把键位设到了R1上，但是和标记重叠了，每次开镜都 ...</blockquote>
+拿着武器的情况下，按X（还是长按？）会有个菜单，可以调武器的设置，选开镜的话，默认开枪就是开镜
+
+*****
+
+####  wthall  
+##### 1680#       发表于 2024-3-12 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226805&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-12 10:50</a>
+
+拿着武器的情况下，按X（还是长按？）会有个菜单，可以调武器的设置，选开镜的话，默认开枪就是开镜 ...</blockquote>
+原来是那个菜单里面啊，竟然没有专门分配一个按键给狙开镜么。。。
+
+
+*****
+
+####  mdk11223344  
+##### 1681#       发表于 2024-3-12 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64225994&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-12 09:57</a>
+
+都是N6，虫子和机器人感觉不是一个难度的，这虫子追了我1/4个地图还在追，甚至跑不过坦克虫，太TM恶心了。 ...</blockquote>
+我开始连虫子N6都打不过被朋友拉去打虫子N9捡样本，打着打着打出心得了，居然飞鹰升满还剩了几十个紫色样本。
+
+穿6针轻甲或者侦查甲，如果只有两人一定要带蛋盾，40分钟基本全程马拉松，方向键都摁烂，感觉坦克虫还不如泰坦能追，坦克虫好歹拐几个弯让它撞撞墙就跟不上你了，泰坦不处理能全程跟着你屁股后面喷；380炸虫洞有奇效，看着五六七八个洞的虫巢丢个380就可以跑了，要丢手雷进去就出不来了
+
+当然，机器人N6、N7日常被开瓢的生活不能自理
+
+*****
+
+####  Mzi  
+##### 1682#       发表于 2024-3-12 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226663&amp;ptid=2170852" target="_blank">wthall 发表于 2024-3-12 10:42</a>
+
+那顺便问一下手柄的开镜是哪个键，我之前为了用狙击枪，把键位设到了R1上，但是和标记重叠了，每次开镜都 ...</blockquote>
+瞄准的时候按下右摇杆<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 1683#       发表于 2024-3-12 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226476&amp;ptid=2170852" target="_blank">wthall 发表于 2024-3-12 10:31</a>
+
+但是手柄到底是怎么丢掉身上的样本么？怎么都安不出来那个轮盘</blockquote>
+按住十字键下
+
+*****
+
+####  stormquantage  
+##### 1684#       发表于 2024-3-12 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226605&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-12 10:38</a>
+
+还没解锁耐力提升，用的加手雷的甲。不回头一直往前跑都跑不过牛</blockquote>
+只往前肯定跑不过牛，牛你得绕。看他接近了飞扑，或者让他撞石头。带蛋盾就是给容错率。直线中甲和牛比赛跑肯定是他赢
+
+*****
+
+####  赤井稻妻  
+##### 1685#       发表于 2024-3-12 11:20
+
+电枪打牛还真不算划，一般远远看到巡逻队的牛出来，直接开电，不仅能把牛电个半死还能把小怪都电死，然后再电几下头就ok了，我之前算过电牛头是10下，练习好电枪速射杀个牛很快的，可惜就是不能帮队友杀牛，看到队友被牛追只能干着急
+
+*****
+
+####  风萧飒  
+##### 1686#       发表于 2024-3-12 11:26
+
+就等着更新突击兵打坦克虫了，但是14号好像不更新这个，狗屎箭头真能挤牙膏啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  赤井稻妻  
+##### 1687#       发表于 2024-3-12 11:29
+
+ 本帖最后由 赤井稻妻 于 2024-3-12 11:31 编辑 
+
+推荐样本不够的朋友去7—9的虫子闪电战刷样本，更新前一般都是n9，更新后不知道n9水平如何了，毕竟这个点刷样本很有名，有几次野队点名要打闪电战
+
+因为是炸虫巢所以任务很好做，而且没有任务点，样本相对密集，开局先找孢子虫巢，孢子虫巢附近有很多样本而且很好找，然后找超级样本，基本上一路下来n9能拿个20普通20稀有，n7也能有个20普通10稀有
+
+路上其实不用局限于带榴弹，一共炸8—12个虫巢，空袭或者500也够用，撤退的时候用萝卜就好了，之前打这套流程最难的是撤退，现在有了萝卜相对容易了很多
+
+我个人的配置是中甲针甲，解锁早还通用，电枪蛋盾，适合单走和清理兴趣点
+
+*****
+
+####  白昼梦  
+##### 1688#       发表于 2024-3-12 11:32
+
+打坦克虫是用斗牛那种身法，看它撞过来了就侧面飞扑，靠跑很难跑的过它转向速度。
+逃跑主要是闷头跑有时候会被小怪粘住，中甲重甲那些跑的慢，是有给你留机会回头清理下小怪继续跑的
+
+*****
+
+####  zyrhxs  
+##### 1689#       发表于 2024-3-12 11:51
+
+电枪加激光狗打虫子泛用是泛用，但是打坦克虫还是慢..但是又不想浪费个格子放RPG...
+
+*****
+
+####  赤井稻妻  
+##### 1690#       发表于 2024-3-12 12:45
+
+ 本帖最后由 赤井稻妻 于 2024-3-12 12:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64227461&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-3-12 11:32</a>
+
+打坦克虫是用斗牛那种身法，看它撞过来了就侧面飞扑，靠跑很难跑的过它转向速度。
+
+逃跑主要是闷头跑有时候 ...</blockquote>
+牛冲刺过来的时候跑是肯定跑得开的，至少中甲可以，先顺着冲刺方向跑，然后再横向跑，我是用的手柄，所以正好是摇杆转四分之一圈，我不知道和蛋盾有没有关系，我每次贴身躲牛都能看到蛋盾被挂到，可能贴身距离有震慑效果
+
+直接飞扑有个致命问题就是，如果牛冲刺停在你面前的话，起身正好能吃到牛的原地攻击，最好情况吃个甩头，最差就是抬头秒人，而且周围一般也会跟着很多小虫子，起身被黏住基本也就跑不脱了
+
+*****
+
+####  PlasmaSnake  
+##### 1691#       发表于 2024-3-12 12:53
+
+牛冲你与其同向跑还不如掉头跟牛对冲，高接近率的时候牛转不过来弯，稍微往旁边偏移一下就撞不到你了，最大的威胁不是牛本身而是会减速卡位和补刀的小虫
+
+*****
+
+####  rgauss  
+##### 1692#       发表于 2024-3-12 13:37
+
+<img src="https://p.sda1.dev/16/4339192fdf4bb657633404d6ba58c3ba/1000002028.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能不能放我出去
+
+*****
+
+####  Launce  
+##### 1693#       发表于 2024-3-12 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64228872&amp;ptid=2170852" target="_blank">rgauss 发表于 2024-3-12 13:37</a>
+
+能不能放我出去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">上次和一个老外同时卡外面，刚好表情是热烈握手
+
+*****
+
+####  xinfengj  
+##### 1694#       发表于 2024-3-12 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64226605&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-12 10:38</a>
+
+还没解锁耐力提升，用的加手雷的甲。不回头一直往前跑都跑不过牛</blockquote>
+平地没石头时候转视角看着牛快撞上的时候横向飞扑，从它转头的另一面接着往前跑，牛要原地转360度再追你。有石头把它引去撞石头，大概撞3-4次牛就傻了会原地不动一会
+
+*****
+
+####  mdk11223344  
+##### 1695#       发表于 2024-3-12 16:24
+
+难9的刷怪……刚好截到张好玩的图，泰坦下崽
+
+“喂，你挪挪爪子，山头站不下啦！”<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/12/162423rp2wh5qs9xzjxgpx.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-03-12 (1).jpg</strong> (486.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 16:24 上传
+
+untitled1.png
+(550.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 14:37 上传
+
+<img src="https://img.saraba1st.com/forum/202403/12/143742yhedyyhh6llq4vo6.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyMS  
+##### 1696#       发表于 2024-3-12 18:16
+
+打了一把队友疯狂丢空袭互相伤害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  FLZB  
+##### 1697#       发表于 2024-3-12 18:24
+
+更新，降低了高难重甲单位的数量，现在筒子可以爆头一发秒杀强袭，电子对抗被移除（最好把那堆战备相关的若只效果都移除）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  runningch  
+##### 1698#       发表于 2024-3-12 18:48
+
+ 本帖最后由 runningch 于 2024-3-12 18:52 编辑 
+<blockquote>We are humbled by the community's ability to find things like Chargers “leg meta” in our game, however spending your heavy anti tank weapons on legs instead of the obvious weak point seems counter to expectation.
+
+We are not changing anything regarding the Charger’s legs, we are however lowering the health of the Charger’s head. It should now be at a point where a well placed shot from a Recoilless Rifle or EAT-17 instantly kills a charger.</blockquote><blockquote>我们对社区能够在我们的游戏中找到诸如突袭者“腿部元”之类的东西感到谦卑，但是将重型反坦克武器用在腿部而不是明显的弱点上似乎与预期相反（<strong>我要教你玩游戏</strong>）。我们不会对突袭者的腿部做任何改动，但我们会降低突袭者头部的健康值。现在，如果使用无后坐力步枪或 EAT-17 打中头部，突袭者就会立即死亡。</blockquote>
+幽默更新说明<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，之前有更好的弱点的话，谁愿意打腿啊，他们不是以为两枪磁轨加切枪打腿毫无技术含量吧？
+
+*****
+
+####  Launce  
+##### 1699#       发表于 2024-3-12 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64232479&amp;ptid=2170852" target="_blank">runningch 发表于 2024-03-12 18:48:50</a>
+幽默更新说明</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多少有点幽默，桶子爆头本来就是1设定，你这代爆不了头不就只能打脚，真的是一个制作组设计吗
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  zyrhxs  
+##### 1700#       发表于 2024-3-12 18:53
+
+这倒还行，其实机枪和机炮改成能破腿甲，破甲后打腿不能直接击杀，而是减速减转弯速率给人有机会打屁股更好
+
+*****
+
+####  novyMS  
+##### 1701#       发表于 2024-3-12 18:55
+
+终于能快乐玩火箭筒了 被坦克虫追了一下午
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Benighted  
+##### 1702#       发表于 2024-3-12 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64232507&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-12 18:51</a>
+
+多少有点幽默，桶子爆头本来就是1设定，你这代爆不了头不就只能打脚，真的是一个制作组设计吗
+
+  -- ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就这游戏各种数值错误和神奇bug来看可能真的就是草台
+
+*****
+
+####  白昼梦  
+##### 1703#       发表于 2024-3-12 18:58
+
+降血量的话电弧打坦克虫应该也快不少了吧
+
+*****
+
+####  Launce  
+##### 1704#       发表于 2024-3-12 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64232552&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-03-12 18:56:59</a>
+就这游戏各种数值错误和神奇bug来看可能真的就是草台</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是幽默的地方了，一边说游戏设计跟前作一样，依赖各种战备火力和多样的武器，一边在数值不说和设计南辕北辙，至少两不相关
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1705#       发表于 2024-3-12 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一发爆头不比磁轨两枪扒腿甲还要补枪爽
+
+早干嘛去了 
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">更新完次抛打爽了 可以和解一半
+
+*****
+
+####  FLZB  
+##### 1706#       发表于 2024-3-12 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64232552&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-3-12 18:56</a>
+
+就这游戏各种数值错误和神奇bug来看可能真的就是草台</blockquote>
+测试组头子跟ceo机炮合体打泰坦有什么好说的，现在看起来这游戏开发主要问题就出在测试环节，自己都玩不明白，全靠玩家给他找<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 1707#       发表于 2024-3-12 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这Known Issues也没提PS5房那诡异的血量啊，feature是吧
+

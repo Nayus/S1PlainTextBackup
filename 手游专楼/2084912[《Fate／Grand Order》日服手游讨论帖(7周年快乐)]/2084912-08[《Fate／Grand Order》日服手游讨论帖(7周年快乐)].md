@@ -1099,3 +1099,85 @@ CCC的主题和结尾曲都好听，只是好奇当时为啥找丹下樱唱结�
 丹下樱也是樱</blockquote>
 也是，丹下其实也唱得不错，就歌声嫩了点儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 11506#       发表于 2024-3-11 23:57
+
+我觉得BB的这首也很好听，越听越香<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/16/7965ad17adce8f83452037312f6b6a33/CMP_20240311235720428.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 11507#       发表于 2024-3-12 10:39
+
+最后一张黑杯出来了，感谢你夏露露，你给的呼符真有用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 11508#       发表于 2024-3-12 11:25
+
+可惜fex的bgm没到fgo上，夏露露没有主题BGM总觉得差点什么
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 11509#       发表于 2024-3-12 17:35
+
+ 本帖最后由 Jamaisvu 于 2024-3-12 17:37 编辑 
+
+这次活动主线通关后送了个剧情相关的四星礼装，还会根据玩家性别变换卡面（都是女装），真够排面的，可能是给奏章2预热的功劳？
+
+<img src="https://img.saraba1st.com/forum/202403/12/173653g8f47lnflxx8yuxu.jpg" referrerpolicy="no-referrer">
+
+<strong>1710236183092.jpg</strong> (435.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202403/12/173654w6ol3syui70lfbof.jpg" referrerpolicy="no-referrer">
+
+<strong>1710236186168.jpg</strong> (439.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-12 17:36 上传
+
+*****
+
+####  白金口袋  
+##### 11510#       发表于 2024-3-12 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64231758&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-3-12 17:35</a>
+
+这次活动主线通关后送了个剧情相关的四星礼装，还会根据玩家性别变换卡面（都是女装），真够排面的，可能是 ...</blockquote>
+男咕哒女装这梗就算过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11511#       发表于 2024-3-12 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完蛋了  萌新奥师傅快15羁绊了
+
+*****
+
+####  不垃圾屌丝  
+##### 11512#       发表于 2024-3-12 18:57
+
+觉得咕哒夫女装比较好看怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  xiongxingyu  
+##### 11513#       发表于 2024-3-12 19:22
+
+fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰罗，尻枪寻夫多年终于得偿所愿（上了五星礼装封面的罗大爷表示：蘑菇我X你仙人）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过正式人设还是没出，估计短时间内也不会落地了。
+

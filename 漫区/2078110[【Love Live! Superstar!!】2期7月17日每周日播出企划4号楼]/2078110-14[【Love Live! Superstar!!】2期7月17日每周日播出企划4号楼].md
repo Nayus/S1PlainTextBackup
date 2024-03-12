@@ -694,3 +694,149 @@ K组这破曲子就限制了三人的发挥，三人都尝试融入更多情绪�
 
 等第四首看看吹什么风吧，事不过三呐（心虚）<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 19782#       发表于 2024-3-11 23:00
+
+<img src="https://img.saraba1st.com/forum/202403/11/230042iyc6cbbggebeyc0v.png" referrerpolicy="no-referrer">
+
+<strong>Image_1710169204300.png</strong> (535.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-11 23:00 上传
+
+经典重现.jpg
+
+Image_1710169205636.jpg
+(359.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-11 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202403/11/230038ytsgptolzznj0t0g.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 19783#       发表于 2024-3-11 23:38
+
+ 本帖最后由 we89623 于 2024-3-11 23:47 编辑 
+
+妄想小队投票这事我感觉第二组并不是太稳，看了下五厕拉板相关串的回复，感觉那边并不像国内特别吃这一组，鸟经过这么多年还能不能有以前人气先不提，曜就是个提前开香槟的中报战神，可可经过星二期的洗礼人气也早不如从前。
+
+只能说如果是第一很正常，如果不是也并不意外。
+二组就算第一了，感觉里面中华炮的分量也很大。
+
+*****
+
+####  Goisdust  
+##### 19784#       发表于 2024-3-11 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64223783&amp;ptid=2078110" target="_blank">we89623 发表于 2024-3-11 23:38</a>
+
+妄想小队投票这事我感觉第二组并不是太稳，看了下五厕拉板相关串的回复，感觉那边并不像国内特别吃这一组， ...</blockquote>
+第一组才稳吧，乙宗梢现在圈内人气完全不虚4024年的鸟和曜，而且声优本人就喜欢绘里+黛雅，甚至绘里还逆输入成梢自小憧憬的偶像。更别说那三个早就一起同框过封面了
+
+*****
+
+####  we89623  
+##### 19785#       发表于 2024-3-12 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64223910&amp;ptid=2078110" target="_blank">Goisdust 发表于 2024-3-11 23:54</a>
+第一组才稳吧，乙宗梢现在圈内人气完全不虚4024年的鸟和曜，而且声优本人就喜欢绘里+黛雅，甚至绘里还逆输 ...</blockquote>
+你得考虑中华炮。这次投票不限地区无门槛。
+
+*****
+
+####  ViyViy  
+##### 19786#       发表于 2024-3-12 08:32
+
+哪还有啥中华炮…至少星这块上次之后还能有？“失信企业”了都
+
+*****
+
+####  优妮可  
+##### 19787#       发表于 2024-3-12 12:29
+
+随便吧，不是很想争这些了，
+
+*****
+
+####  优妮可  
+##### 19788#       发表于 2024-3-12 12:38
+
+目前看一个封面，现在对于咧啦，个人想的就是外景和一些歌，其他的就那样吧
+
+*****
+
+####  DFM_otto  
+##### 19789#       发表于 2024-3-12 13:42
+
+k组现在真就有力使不出，空有好机师没好机体。day1连开火的都没有，day2稀稀拉拉开几个也转不动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看的我着急，现场还是得有快歌才行
+
+*****
+
+####  starring  
+##### 19790#       发表于 2024-3-12 13:56
+
+不熟悉莲，月音粉那么虾头吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鬼冢姐妹都被拿捏了，🌸还主动约饭
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cat1230  
+##### 19791#       发表于 2024-3-12 14:14
+
+<blockquote>引用第19789楼starring于2024-03-12 13:56发表的  :
+
+不熟悉莲，月音粉那么虾头吗鬼冢姐妹都被拿捏了，🌸还主动约饭—— 来自 Sony XQ-DQ72, ......</blockquote>
+@starring
+
+莲不熟，有啥链接说这事儿不
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  280041437  
+##### 19792#       发表于 2024-3-12 14:23
+
+莲那边有同是真搞，羡慕（）
+
+*****
+
+####  280041437  
+##### 19793#       发表于 2024-3-12 14:23
+
+莲那边有同是真搞，羡慕（）
+
+*****
+
+####  ruffian  
+##### 19794#       发表于 2024-3-12 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64224071&amp;ptid=2078110" target="_blank">we89623 发表于 2024-03-12 00:10:42</a>
+你得考虑中华炮。这次投票不限地区无门槛。</blockquote>中华炮才是最不需要考虑的，要真是二组那只能说前辈宝刀不老yyds，国内可推流失的先不说，留下的也没过去那么高的积极性了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 19795#       发表于 2024-3-12 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64229233&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-3-12 14:14</a>
+@starring
+
+莲不熟，有啥链接说这事儿不</blockquote>
+昨晚在推上撩鬼冢姐妹，今早小花又被撩然后主动约饭。另外莲的野中心菜爆料小花在后台就被月音牵手拐跑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/ae9a8ce70fd69c583825ace22c2d7832/CMP_20240312145357527.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/6852497ecae6c6b833de6db7a67716b1/CMP_20240312145357711.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

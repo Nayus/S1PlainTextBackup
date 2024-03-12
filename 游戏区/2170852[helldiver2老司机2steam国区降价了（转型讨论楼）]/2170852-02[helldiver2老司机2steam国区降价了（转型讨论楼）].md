@@ -2432,3 +2432,21 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新任务还挺有意思的，主要是怪刷的够多
 
+
+*****
+
+####  狂风DKC  
+##### 1711#       发表于 2024-3-12 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">byd难度反复横跳是吧，昨天难于5差点倒车，今天难7游刃有余
+
+—— 来自 meizu MEIZU 21 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  白昼梦  
+##### 1712#       发表于 2024-3-12 23:33
+
+完蛋，今天排到的白皮全都脑子有问题
+

@@ -3140,3 +3140,30 @@ Rise of the Ronin - Story Vignette
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非剧情演出什么的很牛逼（这可能吗想想就不可能啊
 
+
+*****
+
+####  hkguty  
+##### 994#       发表于 2024-3-12 23:27
+
+全是英文PV，索尼尽力了
+
+*****
+
+####  黑修士  
+##### 995#       发表于 2024-3-12 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64235196&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-3-12 23:27</a>
+
+全是英文PV，索尼尽力了</blockquote>
+日文版
+[https://www.bilibili.com/video/BV18t421L7wz](https://www.bilibili.com/video/BV18t421L7wz)
+
+
+*****
+
+####  duraa  
+##### 996#       发表于 2024-3-12 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先看看多久能卖100w哦
+

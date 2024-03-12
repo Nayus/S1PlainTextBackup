@@ -699,3 +699,13 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弃坑两年趁着10周年买了relink顺便回坑看看，特典换个老6解限应该还是比尼亚领域更优先吧
 
+
+*****
+
+####  夏明翰  
+##### 17727#       发表于 2024-3-12 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">王子太小丑了，乐得我在沙发上打滚
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

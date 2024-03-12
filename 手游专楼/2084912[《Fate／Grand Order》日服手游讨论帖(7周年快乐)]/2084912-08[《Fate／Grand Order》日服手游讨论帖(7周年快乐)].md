@@ -1203,3 +1203,24 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰罗，尻枪寻夫多年终于得偿所愿（上了五星礼装封 ...</blockquote>
 喜欢屁股枪的有福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11516#       发表于 2024-3-12 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64232382&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-12 18:37</a>
+
+完蛋了  萌新奥师傅快15羁绊了</blockquote>
+没事，今年会有新拐的（大概）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看官方是不准备开15绊以上，现在满14绊就是半退休了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cenhr  
+##### 11517#       发表于 2024-3-12 22:34
+
+布妹和老公的故事不就很浪漫吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

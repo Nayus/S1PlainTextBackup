@@ -2424,3 +2424,11 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 这版本目前体感强袭数量并没有减少，只是能杀得更快了。一个任务下来满地EAT，爆头泰坦两发带走，500kg也不用带了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 1710#       发表于 2024-3-12 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新任务还挺有意思的，主要是怪刷的够多
+

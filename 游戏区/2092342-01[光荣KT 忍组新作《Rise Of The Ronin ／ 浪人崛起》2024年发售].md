@@ -3094,3 +3094,19 @@ nga有人翻了法米桶的前瞻，可以看看</blockquote>
 Rise of the Ronin - Story Vignette
 [https://www.youtube.com/watch?v=2T2CnAN77-4](https://www.youtube.com/watch?v=2T2CnAN77-4)
 
+
+*****
+
+####  leavan  
+##### 988#       发表于 2024-3-12 23:00
+
+那早期ps3级别的垃圾画面，能说出很漂亮，不是瞎子，就是收钱了
+
+
+*****
+
+####  leavan  
+##### 989#       发表于 2024-3-12 23:03
+
+想起来ps vr 要出时候sony 搞了一堆水军媒体吹得惊天动地，当时我就指出要警惕SONY的水军。浪人这个垃圾画面评测时候没有第一时间指出的，归为水军不会有任何问题
+

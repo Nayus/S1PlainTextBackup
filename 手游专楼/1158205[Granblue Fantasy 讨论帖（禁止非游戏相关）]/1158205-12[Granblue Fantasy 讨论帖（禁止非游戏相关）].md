@@ -570,3 +570,27 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 这是小福亲爹待遇了吧
 
+
+*****
+
+####  exiaexa  
+##### 17714#       发表于 2024-3-12 20:05
+
+我觉得他们没想这么多，就是充分吸取了某年的失败案例
+给不死鸟死命叠战力，最后把几个超级战力拉出来包饺子，起码挺热闹不是吗
+
+得想办法让但丁和维吉尔再打一架.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 17715#       发表于 2024-3-12 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64233119&amp;ptid=1158205" target="_blank">a85982313 发表于 2024-3-12 19:50</a>
+
+这菲尼克斯搞了这么多事结果竟然做到全身而退了，而且看意思还是再打下去这边都创世神了也未必稳赢最后还要 ...</blockquote>
+这次的火鸡感觉有点抄手塚的火鸟。
+
+那这样来说应该就是生命轮回本身，确实比肥龙要高级点。
+

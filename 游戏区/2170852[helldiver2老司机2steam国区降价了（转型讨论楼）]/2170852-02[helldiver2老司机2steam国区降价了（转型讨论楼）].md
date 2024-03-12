@@ -2510,3 +2510,13 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 打了几把新的终结塔保卫战,感想就是鬼佬真几把菜
 
+
+*****
+
+####  bladethunder  
+##### 1720#       发表于 2024-3-13 07:24
+
+机器人任务反装甲反炮台发现，近距离用投掷距离甲丢手雷实际抛掷弹道略高于准星，直接瞄弱点投掷会从炮塔头皮飞过去
+
+—— 来自 HUAWEI TAS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

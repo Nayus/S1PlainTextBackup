@@ -717,3 +717,14 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 
 这结局报菜名，牢法快越狱了？
 
+
+*****
+
+####  cenhr  
+##### 17729#       发表于 2024-3-13 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64235445&amp;ptid=1158205" target="_blank">adretyu67. 发表于 2024-3-12 23:53</a>
+
+这结局报菜名，牢法快越狱了？</blockquote>
+有猜测是连接去relink宇宙干一架？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

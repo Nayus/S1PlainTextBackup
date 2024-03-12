@@ -2458,3 +2458,14 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难7还是遇到刷四五只坦克虫的场面了
 
+
+*****
+
+####  FLZB  
+##### 1714#       发表于 2024-3-13 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64235383&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-3-12 23:45</a>
+
+难7还是遇到刷四五只坦克虫的场面了</blockquote>
+但现在处理速度更快了，一场只要有两个EAT冷却好了就叫根本用不完，强袭来多少杀多杀顺便还连泰坦都给你扬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

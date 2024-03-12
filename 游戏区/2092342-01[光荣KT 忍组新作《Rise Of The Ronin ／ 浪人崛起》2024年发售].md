@@ -3184,3 +3184,18 @@ Rise of the Ronin - Story Vignette
 2个月100W的基本盘怎么还是能保住的吧，剩下400W就看这次各路BUFF叠出来的效果了
 看有媒体说困难难度才相当于仁王水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  松风君  
+##### 999#       发表于 2024-3-13 00:06
+
+欧米线依旧毫无吸引力。按说这Jules Brunet应该戏蛮多，就是游戏要做到1868为止估计也不会有后面的北走虾夷剧情了，比起倒幕/佐幕简直无法脑补欧米线可玩性何在<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bm7号  
+##### 1000#       发表于 2024-3-13 00:10
+
+桂小五郎还挺清秀的，500w做岛原之乱吧。
+

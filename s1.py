@@ -218,8 +218,10 @@ async def UpdateThread(threaddict,semaphore):
                 async with aiohttp.ClientSession(headers=headers,cookies=cookies) as session:
                     url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
                     async with session.get(url,headers=headers) as response:
-                        result = await response.content.read()
-                        print(result.decode('utf-8'))
+                        response.encoding = 'utf-8'
+                        # print(response.text)
+                        result = await response.text
+                        print(result)
             namelist, replylist,totalpage,newtitles= parse_html(response.text)
             titles = threaddict['title']
             thdata[threaddict['id']]['newtitle'] = newtitles

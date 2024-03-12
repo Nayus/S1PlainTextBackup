@@ -3199,3 +3199,12 @@ Rise of the Ronin - Story Vignette
 
 桂小五郎还挺清秀的，500w做岛原之乱吧。
 
+
+*****
+
+####  Piano-Forest  
+##### 1001#         楼主| 发表于 2024-3-13 00:47
+
+【4K中字 PS5｜《浪人崛起》「Story」官方预告】 [https://b23.tv/2QbR9Mf](https://b23.tv/2QbR9Mf)
+[https://youtu.be/N06CvPvHtEE](https://youtu.be/N06CvPvHtEE)
+

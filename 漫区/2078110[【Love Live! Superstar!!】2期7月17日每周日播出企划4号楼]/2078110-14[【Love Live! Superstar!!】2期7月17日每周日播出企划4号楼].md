@@ -850,3 +850,15 @@ WAWR四月份开始换结哥和小花当主持
 
 <img src="https://p.sda1.dev/16/9718759657c2689737cfcb71a8311737/QQ截图20240313002722.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  馬斯特壺  
+##### 19797#       发表于 2024-3-13 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64229052&amp;ptid=2078110" target="_blank">starring 发表于 2024-3-12 13:56</a>
+不熟悉莲，月音粉那么虾头吗鬼冢姐妹都被拿捏了，🌸还主动约饭
+
+—— 来自 Sony XQ-DQ72, Android 1 ...</blockquote>
+确实挺虾头的，对野中心菜有疑似变态的发言，莲生放送把鞋踢到了旁边花宫的脚下，上次歌合战反应会还勾搭上了虹的麻圆和爱马仕sc的希水，不过大多数的场合都是规规矩矩的少话社恐姿态，基本上对熟人才虾头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

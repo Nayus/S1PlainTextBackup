@@ -728,3 +728,13 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 这结局报菜名，牢法快越狱了？</blockquote>
 有猜测是连接去relink宇宙干一架？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 17730#       发表于 2024-3-13 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64235552&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-13 00:08</a>
+有猜测是连接去relink宇宙干一架？</blockquote>
+relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛出来了。
+

@@ -11964,3 +11964,38 @@ b站发视频了或者网易云发歌单了请敲我一下<img src="https://stat
 
 三个音节 带个波 基本上没几个吧
 
+
+*****
+
+####  花开安菲路  
+##### 2677#       发表于 2024-3-12 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64232221&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-12 18:18</a>
+代孙，应该，不会，真的整什么指标不到就毕业吧
+
+—— 来自 S1Fun</blockquote>
+5000投票过终审，红毛已经5000+了，蓝毛临近5000，黄毛不到4000，不出意外最后p们会全力投黄毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2678#       发表于 2024-3-12 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狗代现在没公布名字 现在拿公布日期在tag里用
+
+*****
+
+####  花开安菲路  
+##### 2679#       发表于 2024-3-12 20:39
+
+红毛正在播歌回，有兴趣可以听一听<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 2680#       发表于 2024-3-12 20:43
+
+另外我有一个想法，包括爱马仕在内不少偶像企划后续会拉成名声优进团，
+那能不能把长谷川育美和大地叶，这俩唱功很棒的拉进学马仕啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

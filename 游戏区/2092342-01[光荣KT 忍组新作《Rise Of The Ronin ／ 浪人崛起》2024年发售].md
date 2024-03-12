@@ -3175,3 +3175,12 @@ Rise of the Ronin - Story Vignette
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得卧龙立项之初本来想做西游记？感觉西游记都比幕末好卖
 
+
+*****
+
+####  泉美  
+##### 998#       发表于 2024-3-13 00:03
+
+2个月100W的基本盘怎么还是能保住的吧，剩下400W就看这次各路BUFF叠出来的效果了
+看有媒体说困难难度才相当于仁王水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

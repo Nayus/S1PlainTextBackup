@@ -840,3 +840,13 @@ k组现在真就有力使不出，空有好机师没好机体。day1连开火的
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 19796#       发表于 2024-3-13 00:30
+
+WAWR四月份开始换结哥和小花当主持
+
+<img src="https://p.sda1.dev/16/9718759657c2689737cfcb71a8311737/QQ截图20240313002722.jpg" referrerpolicy="no-referrer">
+

@@ -89,6 +89,8 @@ if __name__ == '__main__':
             s1 = session.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
             # s1.encoding='utf-8'
+            # s1encoding = s1.encoding
+            # print(s1.content)
             data = s1.content
             parse_html(data,threadict)
         # with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:

@@ -9096,3 +9096,53 @@ anon 这个我早想吐槽了，真不是营某些匿名版的业吗
 
 最团魂
 
+
+*****
+
+####  ddy2811  
+##### 14103#       发表于 2024-3-13 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64224406&amp;ptid=2159415" target="_blank">hkguty 发表于 2024-3-12 01:12</a>
+
+这种没店特的吧</blockquote>
+宣传那个应该就是这边的店特了
+
+
+*****
+
+####  基神的强袭自由  
+##### 14104#       发表于 2024-3-13 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238866&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-13 11:12</a>
+鸡团基本确定上今年asl了，不错，还以为会拖到第二季出了才上</blockquote>
+能看到对邦吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御幸一也  
+##### 14105#       发表于 2024-3-13 11:23
+
+我操？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/13/112205kicqyiyi1diyx1o7.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240313-030324_1767748266257752531_photo.jpg</strong> (648.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 11:22 上传
+
+[https://twitter.com/Kanon_Takao/status/1767748266257752531](https://twitter.com/Kanon_Takao/status/1767748266257752531)
+
+<img src="https://img.saraba1st.com/forum/202403/13/112256ouhop1uxmw115njo.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240313-030711_1767749218985504798_photo .jpg</strong> (792.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 11:22 上传
+
+[https://twitter.com/sasakirico/status/1767749218985504798](https://twitter.com/sasakirico/status/1767749218985504798)
+

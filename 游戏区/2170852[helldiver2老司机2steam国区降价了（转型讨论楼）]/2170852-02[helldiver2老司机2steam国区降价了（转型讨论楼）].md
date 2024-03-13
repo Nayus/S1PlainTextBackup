@@ -2520,3 +2520,13 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 —— 来自 HUAWEI TAS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 1721#       发表于 2024-3-13 08:52
+
+现在的牛简直就是玩具，电弧枪电头只需要7枪，血量只有原来的差不多三分之二了
+
+新的开电池任务小虫子真是茫茫多，像轨道加特林，凝固汽油弹这种东西我觉得也能拿来专门打打小虫子了，还有一种说法是毒气打小虫子效率很高
+

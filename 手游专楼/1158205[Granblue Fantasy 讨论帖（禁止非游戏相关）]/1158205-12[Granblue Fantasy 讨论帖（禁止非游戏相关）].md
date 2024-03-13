@@ -839,3 +839,65 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 
 当然人死为大这种墓志铭编点好的也很正常啦
 
+
+*****
+
+####  cenhr  
+##### 17740#       发表于 2024-3-13 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238056&amp;ptid=1158205" target="_blank">osore 发表于 2024-3-13 10:19</a>
+
+国王有给他洗地是想复活他妈
+
+当然人死为大这种墓志铭编点好的也很正常啦 ...</blockquote>
+这么想国王也是挺倒霉，他自己也在想是否教育孩子是哪里出错了
+
+虽然有些马后炮，但和火鸟交易她会说明是利用你，但其实在合作上很守诺言。如果王子一开始就说明要复活母亲可能一切也会不同吧
+
+*****
+
+####  抹茶瓜  
+##### 17741#       发表于 2024-3-13 10:27
+
+ 本帖最后由 抹茶瓜 于 2024-3-13 10:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237894&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-13 10:09</a>
+
+王子那边没有补，真的是没救。老七喷的完全让他破防了
+
+惨的是女骑士，对王子有一些好感但发现对面完全没 ...</blockquote>
+我觉得还是找补了 老7喷完了后 打火鸡的时候就又想王子的鬼话不是完全没道理，国王又说可能他初心是想复活老妈自己把自己忽悠傻了，红毛个人章先是写了王子以前怎么怎么好，老七激将骂王子 红毛又对老7说你懂个什么，很难不怀疑写手知道自己写了个什么玩意 但又不知道怎么处理 放以后再慢慢补好了这种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 17742#       发表于 2024-3-13 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238145&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-13 10:25</a>
+这么想国王也是挺倒霉，他自己也在想是否教育孩子是哪里出错了
+
+虽然有些马后炮，但和火鸟交易她会说明是 ...</blockquote>
+不行。火鸡应该是不会答应真复活谁的。
+不然的话没必要折腾梅林一家。转生一等就是6000年。再转生是25000年
+
+菲尼能复活应该是她本身就是火鸡碎片。
+
+*****
+
+####  jxzeroga0  
+##### 17743#       发表于 2024-3-13 10:34
+
+王子不是大道理对不对的问题，是本身逼逼一堆强者弱者理论，最后自己成为口中最需要讨伐的丑陋强者/虚伪弱者。加上老七这种正面对照，这种小丑肯定是要被钉在耻辱柱上的。
+
+*****
+
+####  cenhr  
+##### 17744#       发表于 2024-3-13 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238238&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2024-3-13 10:30</a>
+
+不行。火鸡应该是不会答应真复活谁的。
+
+不然的话没必要折腾梅林一家。转生一等就是6000年。再转生是25000 ...</blockquote>
+这点我看法有些不同，因为设定写明火鸟泪真的能复活人，所以梅大姐和蕾妹才会想她帮助复活人
+

@@ -879,3 +879,17 @@ PS: 欢迎观看[【虹咲/莲之空】纪录片传奇之残阳幼驯染战争-�
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19799#       发表于 2024-3-13 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64235681&amp;ptid=2078110" target="_blank">starring 发表于 2024-3-13 00:30</a>
+WAWR四月份开始换结哥和小花当主持</blockquote>
+啊...双N广播就这么结束了吗，我最爱的夫妻漫才...
+
+不过既然让三期生主持wawr了，那leiladi的组合能不能灵活些
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -757,3 +757,13 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 王子虽然马戏团 但感觉编剧拿来垫脚石和制造矛盾冲突的成分恶意太高 反而有点开始同情这炮灰了，十周年就这 ...</blockquote>
 没有廉价洗白才是给王子尊重
 
+
+*****
+
+####  抹茶瓜  
+##### 17733#       发表于 2024-3-13 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237597&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-13 09:46</a>
+没有廉价洗白才是给王子尊重</blockquote>
+但事后找补的样子总有种隐约还要出来蹦跶的感觉，这个角色现在显得就是一个不上不下的炮灰<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

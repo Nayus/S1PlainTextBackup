@@ -2589,3 +2589,15 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 前作也没很多样化吧，大概就是无后座力筒子，炸药包和迫击炮，其中有两个是dlc内容，炸药包和迫击炮主要是攻顶能打坦克，我到后期基本只用炸药包了，迫击炮容易炸到触手把自己秒杀
 
+
+*****
+
+####  Launce  
+##### 1729#       发表于 2024-3-13 10:11
+
+ 本帖最后由 Launce 于 2024-3-13 10:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237770&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-13 10:00</a>
+
+前作也没很多样化吧，大概就是无后座力筒子，炸药包和迫击炮，其中有两个是dlc内容，炸药包和迫击炮主要是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">轨道火力也算啊，你在看看这代有什么高速有效的反甲可以换着平替的，就连桶子也是这次更新“坦克虫头血量减少”，才算可以有效反甲，就这他更新也一股“我们设计就是让你们爆头的”的说辞，这制作组的设计师和负责数值的要不有仇要不有个外包的
+

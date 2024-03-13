@@ -767,3 +767,44 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 没有廉价洗白才是给王子尊重</blockquote>
 但事后找补的样子总有种隐约还要出来蹦跶的感觉，这个角色现在显得就是一个不上不下的炮灰<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 17734#       发表于 2024-3-13 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237786&amp;ptid=1158205" target="_blank">抹茶瓜 发表于 2024-3-13 10:01</a>
+
+但事后找补的样子总有种隐约还要出来蹦跶的感觉，这个角色现在显得就是一个不上不下的炮灰 ...</blockquote>
+王子那边没有补，真的是没救。老七喷的完全让他破防了
+
+惨的是女骑士，对王子有一些好感但发现对面完全没有重视过自己，前世的记忆才恢复不久老公就死了，当了两次寡妇。然后被国民认定是二五仔被扔石头，国王明白一切但不得不流放她，失去了一切，但至少还有孩子，但这也是前世的姻缘，和她无关
+
+最惨是被记忆影响之余还继续作砍了王子的噩梦，最后甚至是被前世记忆影响到准备去复活丈夫，不等2万年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gammatau  
+##### 17735#       发表于 2024-3-13 10:14
+
+怎么ff16要抢火鸡你这边也要抢火鸡，这火鸡怎么那么热门啊
+
+*****
+
+####  syndrome2032  
+##### 17736#       发表于 2024-3-13 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237973&amp;ptid=1158205" target="_blank">gammatau 发表于 2024-3-13 10:14</a>
+怎么ff16要抢火鸡你这边也要抢火鸡，这火鸡怎么那么热门啊</blockquote>
+火鸡在菲菲5本来就是高档召唤兽啊。好歹要爬飞龙塔才能拿到。
+
+*****
+
+####  夏明翰  
+##### 17737#       发表于 2024-3-13 10:15
+
+你游99%的角色要洗白上船，能有个死透的小丑让讨厌傻逼的玩家出口恶气很难能可贵了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3224,3 +3224,13 @@ Rise of the Ronin - Story Vignette
 
 索索真的很自信呢，就这画面和鬼畜动作能两个月100w那真的得烧高香了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  waelaZed  
+##### 1004#       发表于 2024-3-13 08:19
+
+浪人那个开放世界估计就是35的逻辑然后威力加强版,骑马去到哪,杀杀杀,杀完了上马换地方,根本不值得期待,应该做不出花来,但是大部分罐头也就这样
+
+不过如果他动作模组做的够好,敌人够多,AI行,那刷一刷也不是不可以,大概
+

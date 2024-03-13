@@ -3456,3 +3456,18 @@ A: 很难，不过战斗方式意味着这里难就是花更久把他们打蹒�
 
 龙之信条2，启动！！！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 1023#       发表于 2024-3-13 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">我吸取ff16的教训买的实体版，不好玩就把盘出了
+
+*****
+
+####  慕兰  
+##### 1024#       发表于 2024-3-13 12:59
+
+寄
+

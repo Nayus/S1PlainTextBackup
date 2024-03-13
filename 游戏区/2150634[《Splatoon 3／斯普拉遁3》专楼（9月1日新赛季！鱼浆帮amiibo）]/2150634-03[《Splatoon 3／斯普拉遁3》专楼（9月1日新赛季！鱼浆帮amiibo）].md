@@ -6266,3 +6266,16 @@ CoroCoro4月号有附赠的游戏内名牌。
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  罗克萨斯  
+##### 3616#       发表于 2024-3-13 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237843&amp;ptid=2150634" target="_blank">martinium 发表于 2024-3-13 10:05</a>
+
+一个多赛季没玩，看了下补丁，这研究所真搞笑，当年莫名其妙给52减了10sp这次又加回去了
+
+这是刷kpi么</blockquote>
+因为镭射加强后比以前更容易刮死人了，怕人说52太强所以只能小刀一下了
+

@@ -1078,3 +1078,38 @@ GPT4V也挺拉的就是了，幻觉严重
 
 不如说现在吹的和贬的人都是醉翁之意不在酒，这么一想争这个就更没意思了
 
+
+*****
+
+####  素盏鸣尊  
+##### 108#       发表于 2024-3-14 06:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64247225&amp;ptid=2174906" target="_blank">Saphir 发表于 2024-3-14 05:47</a>
+
+「华尔街日报」给OpenAI的首席技术官Mira Murati做了一次以Sora为主题的专场访谈，这应该也是Sora具体细节 ...</blockquote>
+访谈视频剪辑得很短，并未说明是现场生成，而且这段视频翻车不小（提示词：一个女人在用摄像机拍摄，过来个机器人抢走她的摄像机。生成视频：女人用5毛钱特效把自己变成了一个萝卜特）。你最后一段信息并未包含在访谈里，目前唯一因为sora停止扩建的是黑人演员Tyler Perry的摄影棚，这人除了配音外没有参与过动画制作，而且是sora刚发布时的老新闻了。
+
+<img src="https://img.saraba1st.com/forum/202403/14/064730jfldseczmz1t3pb3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1932.jpeg</strong> (373.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 06:47 上传
+
+<img src="https://img.saraba1st.com/forum/202403/14/064740nxhsbytvtzvtzf0h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1933.jpeg</strong> (111.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 06:47 上传
+
+<img src="https://img.saraba1st.com/forum/202403/14/064741kdvddftff8pyfydo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1930.jpeg</strong> (301.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 06:47 上传
+

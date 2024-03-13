@@ -5853,3 +5853,13 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 小丑不是最强的，蓝图复制手里的牌重复触发，大概是e18，蓝图复制手牌中的k *1.5倍，大概是e20<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有点反直觉
 
+
+*****
+
+####  cwlqxs  
+##### 517#       发表于 2024-3-14 06:43
+
+不roll开局连续打了三四十把黄色卡组终于把橙注过了 靠的是开局给的弃牌升级玩一对过了
+
+来自: iPhone客户端
+

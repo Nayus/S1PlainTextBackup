@@ -274,3 +274,11 @@ FAA放行了，明天发射
 上一发触发系统自毁的原因不是说都找到了吗，这次就继续收集数据和试错，希望电视台能有转播就好了[f:068 ...</blockquote>
 SS真正进行过的飞行就上回那几十秒，这回要完成从推进剂转移到姿态调整溅落，我觉得不现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Realplayer  
+##### 155#       发表于 2024-3-14 06:50
+
+今天哼哼啊啊啊啊啊啊啊稳了么
+

@@ -2753,3 +2753,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 2024-3-13 14:20 上传
 
+
+*****
+
+####  Mzi  
+##### 1743#       发表于 2024-3-13 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240715&amp;ptid=2170852" target="_blank">仿身泪滴 发表于 2024-3-13 13:47</a>
+
+更新了也没修复任务解锁bug，我仍然还是18级的简单任务王者</blockquote>
+是不是没有完成连续任务？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

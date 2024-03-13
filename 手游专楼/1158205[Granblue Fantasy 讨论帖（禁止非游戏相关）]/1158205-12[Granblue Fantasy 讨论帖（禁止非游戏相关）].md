@@ -738,3 +738,11 @@ NND，这游戏的赌场就是毒<img src="https://static.saraba1st.com/image/sm
 有猜测是连接去relink宇宙干一架？</blockquote>
 relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛出来了。
 
+
+*****
+
+####  抹茶瓜  
+##### 17731#       发表于 2024-3-13 09:29
+
+王子虽然马戏团 但感觉编剧拿来垫脚石和制造矛盾冲突的成分恶意太高 反而有点开始同情这炮灰了，十周年就这。 只能说relink剧情挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

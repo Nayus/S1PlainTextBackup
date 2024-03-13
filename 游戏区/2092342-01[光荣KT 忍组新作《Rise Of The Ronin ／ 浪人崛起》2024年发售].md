@@ -3751,3 +3751,40 @@ ZP-在索尼给媒体主播发评测版之后就不直播ff7rb了，没准真有
 u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才是这个招的精髓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 仁2当初玩的ps版没断肢真的感觉索然无味，后面买了pc版把杂兵头砸爆之后瞬间舒服了，这次希望浪人港版有断肢
 
+
+*****
+
+####  zris  
+##### 1054#       发表于 2024-3-13 14:22
+
+前面说断肢到底是动画表现还是系统层面
+
+我都看蒙了，还可以选项开关，是不是血腥度选项啊
+
+像西瓜一样碎的脑袋依然是我如今仍在玩NG2的动力
+
+*****
+
+####  WhiteGlint  
+##### 1055#       发表于 2024-3-13 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241026&amp;ptid=2092342" target="_blank">zris 发表于 2024-3-13 14:22</a>
+前面说断肢到底是动画表现还是系统层面
+
+我都看蒙了，还可以选项开关，是不是血腥度选项啊</blockquote>
+肯定不会是系统级的了，就是跟仁王差不多那种增强血腥度的（虽然我觉得这也很重要）
+
+*****
+
+####  waelaZed  
+##### 1056#       发表于 2024-3-13 14:25
+
+有断肢,仁王那种演出,不是忍龙那种可以处决的系统
+
+*****
+
+####  nagitoY  
+##### 1057#       发表于 2024-3-13 14:26
+
+之前看到预购奖励包括隼流和仁王流，那买光盘的玩家怎么才算预购<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

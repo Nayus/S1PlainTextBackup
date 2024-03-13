@@ -192,3 +192,13 @@ nasa一定要管住,能再拖一个月吗.
 
 —— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  andychen  
+##### 150#       发表于 2024-3-14 04:46
+
+ 本帖最后由 andychen 于 2024-3-14 04:48 编辑 
+
+FAA放行了，明天发射
+

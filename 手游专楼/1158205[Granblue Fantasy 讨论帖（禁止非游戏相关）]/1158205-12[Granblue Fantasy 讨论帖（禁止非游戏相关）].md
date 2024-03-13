@@ -746,3 +746,14 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 
 王子虽然马戏团 但感觉编剧拿来垫脚石和制造矛盾冲突的成分恶意太高 反而有点开始同情这炮灰了，十周年就这。 只能说relink剧情挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 17732#       发表于 2024-3-13 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237402&amp;ptid=1158205" target="_blank">抹茶瓜 发表于 2024-3-13 09:29</a>
+
+王子虽然马戏团 但感觉编剧拿来垫脚石和制造矛盾冲突的成分恶意太高 反而有点开始同情这炮灰了，十周年就这 ...</blockquote>
+没有廉价洗白才是给王子尊重
+

@@ -9057,3 +9057,11 @@ jc amt啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" r
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Nyaaarlathotep  
+##### 14099#       发表于 2024-3-13 09:54
+
+anon 这个我早想吐槽了，真不是营某些匿名版的业吗
+

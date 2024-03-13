@@ -2780,3 +2780,22 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有这种游泳图
 
+
+*****
+
+####  风萧飒  
+##### 1745#       发表于 2024-3-13 21:10
+
+这个守塔地图确实有点弱智
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 1746#       发表于 2024-3-13 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243922&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-13 19:21</a>
+还有这种游泳图</blockquote>
+哦 牛批 还有这种图的
+

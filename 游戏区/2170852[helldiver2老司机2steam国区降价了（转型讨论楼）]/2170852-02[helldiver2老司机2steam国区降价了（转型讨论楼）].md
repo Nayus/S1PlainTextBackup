@@ -2545,3 +2545,39 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 电池任务包括我在内三个人空投进池子里没法复活，剩房主一个人面对茫茫虫海尖叫抓挠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DawnGuardian  
+##### 1724#       发表于 2024-3-13 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237220&amp;ptid=2170852" target="_blank"> Launce 发表于 2024-3-13 09:13</a> 引用:只能说箭头的脑回路是特么真的抽象，先是很逆天的给怎么看都是弱点没有护甲的屁股肉加一个巨离谱的减伤，然后逆天的躯干独立血量，然后反重甲武器打重甲有百分之五十减伤，再到这次不是去增强筒子伤害而是去削弱头部血量，能一发打爆坦克虫然后打不死中型虫，我觉得正常人都干不出这些事电弧 宏这波更新逆天了啊，所以制作组能去玩下他们自己的前作吗，看看什么是多样化反甲和战备火力支援  </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">本来单独加强一下筒子伤害和穿甲就行的事整出来这么多幺蛾子，等一个“这不是我们的本意”来自: iPhone客户端
+
+
+*****
+
+####  白玫瑰之夜  
+##### 1725#       发表于 2024-3-13 09:44
+
+昨天开了两把一把掉线一把闪退，破大防愤怒下线
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  xinfengj  
+##### 1726#       发表于 2024-3-13 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237236&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-13 09:15</a>
+
+电池任务包括我在内三个人空投进池子里没法复活，剩房主一个人面对茫茫虫海尖叫抓挠 ...</blockquote>
+N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，电弧电一路，化身帕尔帕廷给虫子疯狂电疗，you don't know the power of darkside！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 1727#       发表于 2024-3-13 09:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">飞龙应该就是这写作杀虫剂，读作超神水灌出来的基因突变吧
+

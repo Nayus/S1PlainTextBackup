@@ -3742,3 +3742,12 @@ ZP-在索尼给媒体主播发评测版之后就不直播ff7rb了，没准真有
 
 —— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  WhiteGlint  
+##### 1053#       发表于 2024-3-13 14:15
+
+u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才是这个招的精髓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+仁2当初玩的ps版没断肢真的感觉索然无味，后面买了pc版把杂兵头砸爆之后瞬间舒服了，这次希望浪人港版有断肢
+

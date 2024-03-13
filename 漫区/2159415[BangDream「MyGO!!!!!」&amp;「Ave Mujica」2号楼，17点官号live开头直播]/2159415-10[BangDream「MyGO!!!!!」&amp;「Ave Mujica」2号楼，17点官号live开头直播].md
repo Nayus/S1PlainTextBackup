@@ -9191,3 +9191,17 @@ anon 这个我早想吐槽了，真不是营某些匿名版的业吗
 我以为能混编呢</blockquote>
 这个是预热生放，就是把今年会出场的嘉宾找一小部分来聊天顺便宣布今年的阵容
 
+
+*****
+
+####  6030sylar  
+##### 14110#       发表于 2024-3-13 11:46
+
+<img src="https://img.saraba1st.com/forum/202403/13/114610cmlrjmlzprzpgaaz.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-bq9mK2qT3cSsg-lt.jpg</strong> (105.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 11:46 上传
+

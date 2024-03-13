@@ -2835,3 +2835,31 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 2024-3-13 22:32 上传
 
+
+*****
+
+####  断片集  
+##### 1750#       发表于 2024-3-13 23:45
+
+无限手雷bug还挺爽（
+
+<img src="https://img.saraba1st.com/forum/202403/13/234510zea868w7fick8798.png" referrerpolicy="no-referrer">
+
+<strong>43efe1905a197a5a71e27380a0a85591.png</strong> (72.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 23:45 上传
+
+按4扔完手雷，再按ctrl切出战备，再按4就能无限扔了
+
+<img src="https://img.saraba1st.com/forum/202403/13/234432ekoonkzrbgaai5af.png" referrerpolicy="no-referrer">
+
+<strong>a887f293a133fb82621aca98be19e7c2.png</strong> (36.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 23:44 上传
+
+就是不知道会不会被发送自由营
+

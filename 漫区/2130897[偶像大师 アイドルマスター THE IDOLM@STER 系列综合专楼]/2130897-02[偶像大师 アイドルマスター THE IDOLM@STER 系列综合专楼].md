@@ -12444,3 +12444,38 @@ p要求扮演成姐姐系 罪大恶极 满足自己xp
 
 角色pv里的歌应该都是最差版
 
+
+*****
+
+####  rgauss  
+##### 2728#       发表于 2024-3-13 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243760&amp;ptid=2130897" target="_blank">Srchy 发表于 2024-3-13 19:03</a>
+就怕这已经是最好的了</blockquote>
+调都不对 如果审核能过 那ASOBINOTES关了吧
+
+*****
+
+####  Srchy  
+##### 2729#       发表于 2024-3-13 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你跟我说宣传PV用最差的我是不信的
+
+
+*****
+
+####  Anatoly  
+##### 2730#       发表于 2024-3-13 19:10
+
+但这版的异常真的已经很明显了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+个人感觉也就比黄c强点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 2731#       发表于 2024-3-13 19:13
+
+万代脑子装的什么你们又不是不知道
+

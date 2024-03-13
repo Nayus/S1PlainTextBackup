@@ -12479,3 +12479,13 @@ p要求扮演成姐姐系 罪大恶极 满足自己xp
 
 万代脑子装的什么你们又不是不知道
 
+
+*****
+
+####  rgauss  
+##### 2732#       发表于 2024-3-13 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243676&amp;ptid=2130897" target="_blank">微尘众 发表于 2024-3-13 18:54</a>
+官方DC有繁中和粤语版了，但是没有国语版</blockquote>
+dc开这两个 我都能猜到里面最后能聊歪到哪去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 简中还是算了 国内又不能直连 不如直接开个qq频道
+

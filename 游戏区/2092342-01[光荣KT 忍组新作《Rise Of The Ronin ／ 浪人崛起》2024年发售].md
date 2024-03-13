@@ -3471,3 +3471,40 @@ A: 很难，不过战斗方式意味着这里难就是花更久把他们打蹒�
 
 寄
 
+
+*****
+
+####  黑酒杯  
+##### 1025#       发表于 2024-3-13 13:07
+
+又出啥消息了吗咋又全寄了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泉美  
+##### 1026#       发表于 2024-3-13 13:07
+
+<img src="https://img.saraba1st.com/forum/202403/13/130525a73c9v37r2v1grxc.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (109.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 13:05 上传
+
+IGNJ：“对马岛啊，这就是日本的回答”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gigax  
+##### 1027#       发表于 2024-3-13 13:10
+
+这个Fightincowboy通关仁王2的时候连妖反都用不顺手只会大斧擦符武技复读他对战斗系统的评价真的有参考价值吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 1028#       发表于 2024-3-13 13:11
+
+不还是之前cowboy说的那些东西，就是冲着简化战斗扩大受众去的，但忍组这么干需要游戏其他部分顶上去，对马战斗不深开放世界平均水平，但有风景、主线支线演出顶，浪人把战斗做简化后其他部分要是没有进步就尴尬了
+

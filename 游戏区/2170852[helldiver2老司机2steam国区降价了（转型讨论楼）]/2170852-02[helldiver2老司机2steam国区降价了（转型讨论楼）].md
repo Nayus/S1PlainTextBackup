@@ -2700,3 +2700,22 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">自从听说磁轨砍了就开始玩电弧，清小虫子还好，遇上坦克虫和泰坦就只能呼叫500kg或者跑路了，其实磁轨现在什么水平来自: iPhone客户端
 
+
+*****
+
+####  神剑烧鸡  
+##### 1738#       发表于 2024-3-13 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这么大个囊你说非爆炸90减伤，搞笑呢
+怪不得榴弹两炮死
+
+*****
+
+####  赤井稻妻  
+##### 1739#       发表于 2024-3-13 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240208&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-3-13 12:53</a>
+
+自从听说磁轨砍了就开始玩电弧，清小虫子还好，遇上坦克虫和泰坦就只能呼叫500kg或者跑路了，其实磁 ...</blockquote>
+本来靠着玄学爆头高效杀泰坦还能有一席之地，现在确认是bug了，更加没地位了，我看国外有在讨论磁轨枪被削弱是不是因为bug被误杀的
+

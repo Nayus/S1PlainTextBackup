@@ -4060,3 +4060,14 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 主角到底能不能捏妹子？
 
+
+*****
+
+####  waelaZed  
+##### 1084#       发表于 2024-3-13 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64242745&amp;ptid=2092342" target="_blank">Bani82 发表于 2024-3-13 17:16</a>
+
+主角到底能不能捏妹子？</blockquote>
+能,而且两个都可以捏成幕末并列第一美少女
+

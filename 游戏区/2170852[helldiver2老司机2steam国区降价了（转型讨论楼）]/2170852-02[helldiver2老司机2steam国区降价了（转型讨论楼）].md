@@ -2940,3 +2940,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 无限手雷也太爽了，切到手雷，丢完后开支援面板，直接卡好。不知道能不能活过明天更新。
 
+
+*****
+
+####  smdzh2  
+##### 1758#       发表于 2024-3-14 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64246417&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-14 01:09</a>
+爆笑如雷了，家人们，新更新直接把人数干到谷底了，“遥遥领先”更新快端上来罢 ...</blockquote>
+日活回到这逼游戏应有的位置罢了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

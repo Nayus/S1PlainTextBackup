@@ -3788,3 +3788,66 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 之前看到预购奖励包括隼流和仁王流，那买光盘的玩家怎么才算预购<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  popchong  
+##### 1058#       发表于 2024-3-13 14:27
+
+ 本帖最后由 popchong 于 2024-3-13 14:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241055&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-13 14:26</a>
+
+之前看到预购奖励包括隼流和仁王流，那买光盘的玩家怎么才算预购</blockquote>
+提前解锁隼流和仁王流而已。买第一批光盘的都算预购，如果有码就在指定日期前输码就行
+パッケージ版早期購入特典およびダウンロード版予約購入特典として、武器「伊賀忍の刀」と防具「伊賀忍の鎧セット」（4点セット）の早期アクセスに加え、「4つの流派」への<strong>早期アクセス</strong>が可能になります。
+
+*****
+
+####  ouyang菌  
+##### 1059#       发表于 2024-3-13 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241055&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-03-13 14:26:06</a>
+之前看到预购奖励包括隼流和仁王流，那买光盘的玩家怎么才算预购</blockquote>首发带特典码吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  碎镜子  
+##### 1060#       发表于 2024-3-13 14:27
+
+隼流（慢放版）
+
+看来龙哥还是太快了
+
+*****
+
+####  byisme001  
+##### 1061#       发表于 2024-3-13 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241055&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-13 14:26</a>
+之前看到预购奖励包括隼流和仁王流，那买光盘的玩家怎么才算预购</blockquote>
+一般都是首发版本内封下载码
+
+*****
+
+####  WhiteGlint  
+##### 1062#       发表于 2024-3-13 14:31
+
+目前最大感受其实是对比之下忍组对卧龙的待遇是真的有点司马了，看着这一个个流派都能完全不一样的处决动作，卧龙基本上全是跳起来戳一下或者戳一下踢一下真的有点无语，除了吕布，人形boss设计也是一个赛一个丑陋，dlc那几个更是令人扼腕。
+
+
+*****
+
+####  nagitoY  
+##### 1063#       发表于 2024-3-13 14:32
+
+原来是用特典码的形式。不过既然只是提前解锁两个流派，代表正常游玩也能解锁，那就影响不大了
+
+*****
+
+####  桥洞底下盖小被  
+##### 1064#       发表于 2024-3-13 14:32
+
+话说三角键如果要兼用石火，那长派生搓招也不可行吧，意思只是卧龙的圈和三角合并了？
+

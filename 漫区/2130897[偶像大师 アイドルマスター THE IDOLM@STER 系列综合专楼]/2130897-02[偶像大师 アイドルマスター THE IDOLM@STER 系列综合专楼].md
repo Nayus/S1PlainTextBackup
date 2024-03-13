@@ -12237,3 +12237,34 @@ live还有应援声的啊，qa越来越行了啊
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Anatoly  
+##### 2707#       发表于 2024-3-13 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真觉得本音比角色音好了，怎么办
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  田所あずさ  
+##### 2708#       发表于 2024-3-13 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243348&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-13 18:19</a>
+
+这位脸也有点大啊
+
+但是蛮可爱的，声音也不错</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/13/183330qhlz3zl11l2xkxh4.jpg" referrerpolicy="no-referrer">
+
+<strong>8L_@VN$AZOCZ6$IX_3LIL18_tmb.jpg</strong> (163.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 18:33 上传
+
+现在还大不？
+

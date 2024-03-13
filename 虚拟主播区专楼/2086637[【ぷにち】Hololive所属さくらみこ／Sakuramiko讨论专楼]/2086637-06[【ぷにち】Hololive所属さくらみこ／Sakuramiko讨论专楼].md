@@ -2076,3 +2076,11 @@ MV来了
 
 其实我早上就想说了，她自己放出来的MMD小视频，跳得比她自己live上的好多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rs5621  
+##### 8374#       发表于 2024-3-13 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是mmd的动作比live的多
+

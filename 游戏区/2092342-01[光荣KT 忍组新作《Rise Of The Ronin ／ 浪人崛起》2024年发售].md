@@ -3863,3 +3863,26 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 要怪就怪Sony为什么只请大媒体/主播来评，到现在实机都只有唯一指定播片。过几天店头试玩好像每个人就给25分钟，玩家能知道各家的详细评测得21号了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WhiteGlint  
+##### 1066#       发表于 2024-3-13 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241160&amp;ptid=2092342" target="_blank">染井吉野 发表于 2024-3-13 14:37</a>
+断肢是特效，应该不是NG那种真断肢啦，不过这次港版和外版都是同日版Z版也基本确实了。
+
+楼里TN铁粉不要太 ...</blockquote>
+只放忍组自己打的片很大可能是别人录出来更加惨不忍睹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 1067#       发表于 2024-3-13 14:48
+
+我的问题是下面几个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+1.如何把霸体怪打出硬直（目前看到石火成功弹反，打空精力槽两种，不知道未公布的l3+r3有不有说法
+2.如何快速削精（目前看到石火成功弹反削精效率很高，以及石火大概可以取消武技和振刀，那么能不能取消普攻呢，以及有没有削精向的武技
+3.如何快速削血（空精后复读武技？武器槽打满处决有威力加长？
+4.忍架势对所有型不利，那么这个架势的特点是什么（背刺处决伤害有加成？
+

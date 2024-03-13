@@ -1251,3 +1251,13 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 那确实没得选，玩游戏还是对自己好一点.JPG
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11520#       发表于 2024-3-13 14:47
+
+忘记把巧克力换QP，亏死了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

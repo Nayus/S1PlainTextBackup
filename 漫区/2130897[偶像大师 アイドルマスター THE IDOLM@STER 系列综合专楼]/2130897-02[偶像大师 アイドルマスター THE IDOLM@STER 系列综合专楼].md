@@ -12341,3 +12341,35 @@ live还有应援声的啊，qa越来越行了啊
 
 假姐姐系<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 2716#       发表于 2024-3-13 18:45
+
+什么数据怪物
+
+*****
+
+####  Srchy  
+##### 2717#       发表于 2024-3-13 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">17岁小屁孩就姐系了，这就是中专题材的束缚吗
+
+
+*****
+
+####  ViviR  
+##### 2718#       发表于 2024-3-13 18:51
+
+然后p设定上还是学长，绷不住了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安广多惠子  
+##### 2719#       发表于 2024-3-13 18:53
+
+大学生管高中生喊姐姐，这种事绝对很奇怪啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4019,3 +4019,13 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 **动作游戏高玩主播粉丝量本来就很少，战神这种爆款人气最高的主播GBG和smvr也才20多万关注，更别说白羊了，前几天才一万粉丝出头，索尼不给试玩也很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  popchong  
+##### 1080#       发表于 2024-3-13 16:04
+
+[https://www.youtube.com/watch?v=3EaVb-SYQbI](https://www.youtube.com/watch?v=3EaVb-SYQbI)
+
+日本特别版预告片
+

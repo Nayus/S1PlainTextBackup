@@ -12373,3 +12373,74 @@ live还有应援声的啊，qa越来越行了啊
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  微尘众  
+##### 2720#       发表于 2024-3-13 18:54
+
+官方DC有繁中和粤语版了，但是没有国语版
+
+
+*****
+
+####  rgauss  
+##### 2721#       发表于 2024-3-13 18:55
+
+p要求扮演成姐姐系 罪大恶极 满足自己xp
+
+*****
+
+####  ViviR  
+##### 2722#       发表于 2024-3-13 18:56
+
+这位的建模是不是目前为止和立绘感觉差得最远的…
+
+顺便mv这歌听着也不太抓耳。就，剩下的偶像能有一个的solo让我觉得真好听想马上听完整版的吗…
+
+*****
+
+####  JY要塞  
+##### 2723#       发表于 2024-3-13 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少bmi是正常人
+
+
+*****
+
+####  patema  
+##### 2724#       发表于 2024-3-13 19:01
+
+ 本帖最后由 patema 于 2024-3-13 19:04 编辑 
+
+看了圈，这位在整体三维数据上大概是偶系列第二了。第二强的大女人，至少臀围是最大的。
+
+千雪163 89 58 92都被秒烂了，只有及川雫的170 105 64 92能压她一头
+
+更正下应该是第三，我把诸星的胸围记错了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">">182 92 64 87
+
+*****
+
+####  rgauss  
+##### 2725#       发表于 2024-3-13 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243690&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-3-13 18:56</a>
+这位的建模是不是目前为止和立绘感觉差得最远的…
+
+顺便mv这歌听着也不太抓耳。就，剩下的偶像能有一个的so ...</blockquote>
+因为这个版本绝对是最差版
+
+*****
+
+####  Srchy  
+##### 2726#       发表于 2024-3-13 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就怕这已经是最好的了
+
+*****
+
+####  rgauss  
+##### 2727#       发表于 2024-3-13 19:03
+
+角色pv里的歌应该都是最差版
+

@@ -12625,3 +12625,13 @@ scsp安缇卡的白情贺卡谁写的啊
 scsp安缇卡的白情贺卡谁写的啊</blockquote>
 感觉像是咲耶的口吻
 
+
+*****
+
+####  倒映在瞳中  
+##### 2749#       发表于 2024-3-14 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243694&amp;ptid=2130897" target="_blank">JY要塞 发表于 2024-3-13 18:56</a>
+至少bmi是正常人</blockquote>
+虚报体重是偶像的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

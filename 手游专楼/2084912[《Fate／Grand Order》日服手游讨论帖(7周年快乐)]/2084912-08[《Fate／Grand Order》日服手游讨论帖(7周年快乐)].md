@@ -1281,3 +1281,14 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这高难怎么又是强行耐久
 
+
+*****
+
+####  khxooo  
+##### 11523#       发表于 2024-3-14 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243406&amp;ptid=2084912" target="_blank">清河子 发表于 2024-3-13 18:24</a>
+
+我正好相反，早早换了QP然后白情抽礼装抽出new卡了，望巧克力兴叹，悲痛 ...</blockquote>
+和你一样<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

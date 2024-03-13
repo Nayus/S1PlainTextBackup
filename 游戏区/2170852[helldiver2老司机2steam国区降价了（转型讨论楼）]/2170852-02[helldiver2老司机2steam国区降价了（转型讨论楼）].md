@@ -2665,3 +2665,38 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 其实打头只要一发<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 1736#       发表于 2024-3-13 12:52
+
+ 本帖最后由 runningch 于 2024-3-13 12:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238702&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-13 11:00</a>
+
+一直搞不清伤害类型，这游戏的武器是分三种吗，普通，穿甲，爆炸？</blockquote>
+伤害机制可以参考这个：
+
+<img src="https://img.saraba1st.com/forum/202403/13/125000ucp94k9p7mkz97z7.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240313114927.png</strong> (29.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 12:50 上传
+
+<img src="https://img.saraba1st.com/forum/202403/13/125224mddrer6p6uzehres.jpg" referrerpolicy="no-referrer">
+
+<strong>71fa590c56bf3b5d07aae0e1a4359e89305285912 (1).jpg</strong> (864.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 12:52 上传
+
+*****
+
+####  ykyin09  
+##### 1737#       发表于 2024-3-13 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">自从听说磁轨砍了就开始玩电弧，清小虫子还好，遇上坦克虫和泰坦就只能呼叫500kg或者跑路了，其实磁轨现在什么水平来自: iPhone客户端
+

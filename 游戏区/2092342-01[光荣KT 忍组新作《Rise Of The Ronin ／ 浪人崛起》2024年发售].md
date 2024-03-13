@@ -3424,3 +3424,35 @@ A: 很难，不过战斗方式意味着这里难就是花更久把他们打蹒�
 这胜海舟跟本子影视剧形象差好多，长得太像反派了</blockquote>
 你可以看看如龙维新的胜海舟
 
+
+*****
+
+####  ouyang菌  
+##### 1019#       发表于 2024-3-13 12:49
+
+这下彻底褒姒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忍组要不还是回去做忍龙吧，那个褒姒了大伙不会怪你的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  bwsusaga  
+##### 1020#       发表于 2024-3-13 12:52
+
+感觉要完，我还是先龙信2吧
+
+*****
+
+####  popchong  
+##### 1021#       发表于 2024-3-13 12:52
+
+寄！
+
+*****
+
+####  桥洞底下盖小被  
+##### 1022#       发表于 2024-3-13 12:55
+
+龙之信条2，启动！！！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

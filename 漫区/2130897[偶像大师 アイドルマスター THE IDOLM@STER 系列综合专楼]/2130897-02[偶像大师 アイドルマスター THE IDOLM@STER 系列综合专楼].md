@@ -12513,3 +12513,11 @@ dc开这两个 我都能猜到里面最后能聊歪到哪去<img src="https://st
 
 偶像大师唯一的老大当然得是在最后面
 
+
+*****
+
+####  Seeley  
+##### 2736#       发表于 2024-3-13 20:30
+
+这怎么也是初版吧，最终养成完成版这样我觉得这企划没救了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

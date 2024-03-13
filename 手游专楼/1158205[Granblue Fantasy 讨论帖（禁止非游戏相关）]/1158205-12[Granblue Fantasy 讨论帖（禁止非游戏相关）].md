@@ -1042,3 +1042,11 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 
 小妹妹信仰崩塌两眼一黑从空中倒栽葱下去的时候我承认我笑出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 17757#       发表于 2024-3-13 22:12
+
+老咸鱼不想再投资火了想玩玩水，水以后应该要换漆黑，所以石油换把杖有前途吗，感觉减CD能很多花样。主要是认真想了下石油杖大帽子被nerf了黑猫不打奥义神谕小帽子白兔打奥义但技能没啥强力的好像就剩个武僧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

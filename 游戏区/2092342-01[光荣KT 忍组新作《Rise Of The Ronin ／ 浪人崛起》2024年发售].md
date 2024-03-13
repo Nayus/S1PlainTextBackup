@@ -3965,3 +3965,49 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 要是给大家Demo就知道是骡子是马了，免得跟着主播瞎猜
 
+
+*****
+
+####  BadYanL  
+##### 1073#       发表于 2024-3-13 15:39
+
+可以重新尝试其他选择不错，不过说明没有长期影响的蝴蝶效应吧
+
+*****
+
+####  Emmerich  
+##### 1074#       发表于 2024-3-13 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报 zp也没拿到
+
+*****
+
+####  Booorunestud  
+##### 1075#       发表于 2024-3-13 15:39
+
+以前忍者组的demo也不只是看看的，demo里比较重要的反馈都会调整，浪人少了这一步是要信任索尼的把控吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寂长无星夜  
+##### 1076#       发表于 2024-3-13 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241727&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2024-3-13 15:39</a>
+以前忍者组的demo也不只是看看的，demo里比较重要的反馈都会调整，浪人少了这一步是要信任索尼的把控吗[f:1 ...</blockquote>
+仁王那些测试也只是改下数值而已吧
+
+*****
+
+####  无意义小号  
+##### 1077#       发表于 2024-3-13 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">看各种透露量还挺大的，但是他们又不是擅长搞这个的，搞得我期待值很矛盾。
+
+
+*****
+
+####  寂长无星夜  
+##### 1078#       发表于 2024-3-13 15:42
+
+一周目三派全通，江户吕布是也
+

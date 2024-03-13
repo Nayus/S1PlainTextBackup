@@ -901,3 +901,39 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 不然的话没必要折腾梅林一家。转生一等就是6000年。再转生是25000 ...</blockquote>
 这点我看法有些不同，因为设定写明火鸟泪真的能复活人，所以梅大姐和蕾妹才会想她帮助复活人
 
+
+*****
+
+####  osore  
+##### 17745#       发表于 2024-3-13 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238188&amp;ptid=1158205" target="_blank">抹茶瓜 发表于 2024-3-13 10:27</a>
+
+我觉得还是找补了 老7喷完了后 打火鸡的时候就又想王子的鬼话不是完全没道理，国王又说可能他初心是想复活 ...</blockquote>
+王子趁九柱神和大奶来踢馆老七注意力被分散的时候突然偷袭背刺，一上来就LOW穿地心了
+
+给死人讲几句好话是东亚传统文化罢了，不会有人真信了吧
+
+*****
+
+####  抹茶瓜  
+##### 17746#       发表于 2024-3-13 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238399&amp;ptid=1158205" target="_blank">osore 发表于 2024-3-13 10:41</a>
+王子趁九柱神和大奶来踢馆老七注意力被分散的时候突然偷袭背刺，一上来就LOW穿地心了
+
+给死人讲几句好话是 ...</blockquote>
+我当然不信啊 但游戏里这个找补逻辑 不知道创作者什么态度了 反正你游嘛 花活不嫌多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 17747#       发表于 2024-3-13 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238399&amp;ptid=1158205" target="_blank">osore 发表于 2024-3-13 10:41</a>
+
+王子趁九柱神和大奶来踢馆老七注意力被分散的时候突然偷袭背刺，一上来就LOW穿地心了
+
+给死人讲几句好话是 ...</blockquote>
+要说一句的是王子在获得力量前还是把本心藏得很好，至少受民众爱戴父亲和红毛信任，也能和老七结交。但获得力量后就破功不止，还成了自己口中应该被讨伐的强者，很讽刺
+

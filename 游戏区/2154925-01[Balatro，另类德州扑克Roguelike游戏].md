@@ -5805,3 +5805,19 @@ roll起始小盲注的标签奖励也太傻了！但是不roll又觉得血亏。
 
 2024-3-11 21:13 上传
 
+
+*****
+
+####  mjwells  
+##### 514#       发表于 2024-3-13 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">终于找到如何删掉reroll cost的方法了，原来不是在game.lua中，这样可以避免反复重开要是觉得没效率，可以在牌组中增加奖券Overstock或者Overstock Plus
+
+Found out how to do that.
+
+In the exe file as explained before, you can go to the folder functions and open the button_callbacks.lua
+
+Then find the function "G.FUNCS.reroll_shop" and you just have to delete the line "ease_dollars(-G.GAME.current_round.reroll_cost)". The cost of the reroll will still be displayed and increase for each reroll but the money isn't removed from your total so effectively free rerolls.
+
+IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course if you go infinite rerolls you can manipulate your deck but just control yourself or don't after all, we're all here to cheat)
+

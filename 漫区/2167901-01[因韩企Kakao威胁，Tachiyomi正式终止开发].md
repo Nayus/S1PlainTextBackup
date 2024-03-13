@@ -79,3 +79,25 @@ mihon添加源后依然刷不出插件，有遇到过这种情况的吗？</bloc
 
 —— 来自 Google Pixel 4 XL, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  AlfredXC  
+##### 196#       发表于 2024-3-13 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241215&amp;ptid=2167901" target="_blank">DLAN 发表于 2024-3-13 14:42</a>
+
+浏览-插件 里看一下是不是没有信任插件
+
+—— 来自 Google Pixel 4 XL, Android 13上的 S1Next-鹅版 v2.5 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/13/152538e9gk9938rhpvpovf.jpg" referrerpolicy="no-referrer">
+
+<strong>1000002497.jpg</strong> (107.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 15:25 上传
+
+看了下，好像并没有相关设置
+

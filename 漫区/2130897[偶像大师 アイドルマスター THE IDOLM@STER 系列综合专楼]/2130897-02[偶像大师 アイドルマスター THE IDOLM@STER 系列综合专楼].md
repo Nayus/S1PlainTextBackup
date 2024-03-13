@@ -12614,3 +12614,14 @@ dc开这两个 我都能猜到里面最后能聊歪到哪去<img src="https://st
 
 scsp安缇卡的白情贺卡谁写的啊
 
+
+*****
+
+####  冰寒之月  
+##### 2748#       发表于 2024-3-14 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64246659&amp;ptid=2130897" target="_blank">集合酱 发表于 2024-3-14 00:37</a>
+
+scsp安缇卡的白情贺卡谁写的啊</blockquote>
+感觉像是咲耶的口吻
+

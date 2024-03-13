@@ -2729,3 +2729,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  仿身泪滴  
+##### 1741#       发表于 2024-3-13 13:47
+
+更新了也没修复任务解锁bug，我仍然还是18级的简单任务王者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

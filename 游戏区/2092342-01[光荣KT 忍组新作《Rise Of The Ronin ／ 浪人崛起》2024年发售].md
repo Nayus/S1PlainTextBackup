@@ -3669,3 +3669,52 @@ ZP-在索尼给媒体主播发评测版之后就不直播ff7rb了，没准真有
 饭刚落看着还是那种处决技</blockquote>
 视频里好像按的是武技 下面r1➕△狂闪
 
+
+*****
+
+####  popchong  
+##### 1046#       发表于 2024-3-13 13:47
+
+饭刚落是隼流武技
+
+<img src="https://img.saraba1st.com/forum/202403/13/134702y5nz2b25u5m5mbzy.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240313134701.png</strong> (91.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 13:47 上传
+
+*****
+
+####  Yeelolo  
+##### 1047#       发表于 2024-3-13 13:48
+
+龙信2也别急着开香槟好吧，龙信那个开放世界也是重量级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  齿轮轴君  
+##### 1048#       发表于 2024-3-13 13:48
+
+看之前国内玩家的分析感觉战斗系统深度还是有的，不至于卡在对马岛和只狼中间。
+我还是更在意全人形怪的话后期会不会过于枯燥？以及为了体验感放弃法术之类的流派，后期数值平衡能做好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+仁式刷刷刷但是这次豪华版又不带dlc，感觉蛮奇怪的。
+现在预定价怎么那么高，是不是到时候吃现比较好（本人偏好光盘）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Booorunestud  
+##### 1049#       发表于 2024-3-13 13:48
+
+是武技，但不知道是不是空精才能用，演示里敌人是空精的，而且伤害有点刮痧
+
+
+*****
+
+####  WhiteGlint  
+##### 1050#       发表于 2024-3-13 13:54
+
+忍组的战斗人形怪不是做的最好玩的一部分吗，忍龙2那几坨魔神妖怪真的纯大粪，别说大体型boss了。仁王2那种猴子妖鬼也只能说稍微好一点，我宁可跟利三刷一下午。
+主要人形ai调的好就好玩，其他真没什么，忍龙2那几种忍者老逼灯们都玩了十年了
+

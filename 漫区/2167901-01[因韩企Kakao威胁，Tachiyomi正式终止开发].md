@@ -59,3 +59,11 @@ https://mihon.app/docs/guides/local-source/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">想问问有什么插件是比较好用的，参考了上面的暂时装了dmzj、vomic、拷贝、bato.to、古风漫画、COLAMANGA、包子漫画
 
+
+*****
+
+####  AlfredXC  
+##### 194#       发表于 2024-3-13 13:47
+
+mihon添加源后依然刷不出插件，有遇到过这种情况的吗？
+

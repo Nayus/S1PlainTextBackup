@@ -9223,3 +9223,11 @@ anon 这个我早想吐槽了，真不是营某些匿名版的业吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  PDQ4  
+##### 14112#       发表于 2024-3-13 14:02
+
+不过ASL的话，鸡的曲子是不是就确定了，除了团名曲以外没得选了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

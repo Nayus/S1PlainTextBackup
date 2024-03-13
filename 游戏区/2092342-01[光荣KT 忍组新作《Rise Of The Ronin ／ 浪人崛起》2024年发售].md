@@ -3718,3 +3718,27 @@ ZP-在索尼给媒体主播发评测版之后就不直播ff7rb了，没准真有
 忍组的战斗人形怪不是做的最好玩的一部分吗，忍龙2那几坨魔神妖怪真的纯大粪，别说大体型boss了。仁王2那种猴子妖鬼也只能说稍微好一点，我宁可跟利三刷一下午。
 主要人形ai调的好就好玩，其他真没什么，忍龙2那几种忍者老逼灯们都玩了十年了
 
+
+*****
+
+####  Yeelolo  
+##### 1051#       发表于 2024-3-13 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240729&amp;ptid=2092342" target="_blank">齿轮轴君 发表于 2024-3-13 13:48</a>
+
+看之前国内玩家的分析感觉战斗系统深度还是有的，不至于卡在对马岛和只狼中间。
+
+我还是更在意全人形怪的话 ...</blockquote>
+看演示有那种巨人敌人，攻击方式和妖怪也差不多了，当代餐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  手铐君  
+##### 1052#       发表于 2024-3-13 14:04
+
+之前看视频反刚落都是在空精的时候用
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">忍者组的人形怪其实还是有意思的，妖怪里像人的（双脚站立）大部分也还好，那种妖魔鬼怪和忍龙里的打起来真的挺烦的
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

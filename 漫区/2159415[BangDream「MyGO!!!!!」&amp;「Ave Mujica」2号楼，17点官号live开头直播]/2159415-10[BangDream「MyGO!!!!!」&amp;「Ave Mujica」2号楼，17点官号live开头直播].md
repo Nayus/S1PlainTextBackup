@@ -9242,3 +9242,14 @@ anon 这个我早想吐槽了，真不是营某些匿名版的业吗
 鸡团基本确定上今年asl了，不错，还以为会拖到第二季出了才上</blockquote>
 Mujica这两人感觉画风都不一样了。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 14114#         楼主| 发表于 2024-3-13 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64239027&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-3-13 11:23</a>
+
+我操？ </blockquote>
+双月是吧
+

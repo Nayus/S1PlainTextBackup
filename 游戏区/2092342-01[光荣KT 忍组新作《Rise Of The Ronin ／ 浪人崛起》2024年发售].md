@@ -3578,3 +3578,62 @@ IGNJ：“对马岛啊，这就是日本的回答”<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">魅魔之王玩个2周目得了，22号这两货感觉都不靠谱
 
+
+*****
+
+####  Gigax  
+##### 1036#       发表于 2024-3-13 13:26
+
+光看目前的演示也说不出战斗系统比卧龙还简化，对战斗的担心还是敌人种类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刘震云  
+##### 1037#       发表于 2024-3-13 13:27
+
+ 本帖最后由 刘震云 于 2024-3-13 13:28 编辑 
+
+大主播是这样子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看你怎么玩儿了
+
+我记得仁王1的时候，某白金收集攻略视频UP进去一看，呕吼，长枪上段重击一直复读，残心什么完全不懂，也能玩通关收集白金
+
+仁王2大主播开荒也是大太刀上段重击复读就完事了，妖反是什么，能吃吗？
+
+*****
+
+####  星花  
+##### 1038#       发表于 2024-3-13 13:27
+
+全寄的话 我就喷一句 今年大作好多。
+
+*****
+
+####  Gigax  
+##### 1039#       发表于 2024-3-13 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240488&amp;ptid=2092342" target="_blank">popchong 发表于 2024-3-13 13:21</a>
+
+找ZP-,喂狗组，whitegoat，olto之类的比找这些弱智游媒靠谱多了</blockquote>
+ZP-在索尼给媒体主播发评测版之后就不直播ff7rb了，没准真有呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桥洞底下盖小被  
+##### 1040#       发表于 2024-3-13 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240524&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-13 13:26</a>
+
+光看目前的演示也说不出战斗系统比卧龙还简化，对战斗的担心还是敌人种类 ...</blockquote>
+战斗系统肯定比卧龙强啊，卧龙整个的核心系统不就是浪人这一个石火
+
+
+*****
+
+####  Gigax  
+##### 1041#       发表于 2024-3-13 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240556&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-3-13 13:30</a>
+
+战斗系统肯定比卧龙强啊，卧龙整个的核心系统不就是浪人这一个石火</blockquote>
+我当然知道战斗系统比卧龙强，这个大主播说战斗系统比卧龙退步啊
+

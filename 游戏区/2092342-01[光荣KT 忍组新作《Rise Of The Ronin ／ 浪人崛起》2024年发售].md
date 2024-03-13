@@ -3637,3 +3637,35 @@ ZP-在索尼给媒体主播发评测版之后就不直播ff7rb了，没准真有
 战斗系统肯定比卧龙强啊，卧龙整个的核心系统不就是浪人这一个石火</blockquote>
 我当然知道战斗系统比卧龙强，这个大主播说战斗系统比卧龙退步啊
 
+
+*****
+
+####  黑色的js  
+##### 1042#       发表于 2024-3-13 13:38
+
+看新的实机，枪反飞燕振刀石火（招架）这些系统都有，加上什么天地人忍架势，怎么也不至于卡对马岛只狼中间吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  WhiteGlint  
+##### 1043#       发表于 2024-3-13 13:41
+
+演示里都有饭刚落飞燕了还能卡对马岛和只狼中间我真有点怀疑忍组发了个假片。
+
+
+*****
+
+####  手铐君  
+##### 1044#       发表于 2024-3-13 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">饭刚落看着还是那种处决技
+
+*****
+
+####  WhiteGlint  
+##### 1045#       发表于 2024-3-13 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240688&amp;ptid=2092342" target="_blank">手铐君 发表于 2024-3-13 13:44</a>
+饭刚落看着还是那种处决技</blockquote>
+视频里好像按的是武技 下面r1➕△狂闪
+

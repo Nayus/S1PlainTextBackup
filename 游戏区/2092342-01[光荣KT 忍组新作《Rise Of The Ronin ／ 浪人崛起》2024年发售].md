@@ -3508,3 +3508,73 @@ IGNJ：“对马岛啊，这就是日本的回答”<img src="https://static.sar
 
 不还是之前cowboy说的那些东西，就是冲着简化战斗扩大受众去的，但忍组这么干需要游戏其他部分顶上去，对马战斗不深开放世界平均水平，但有风景、主线支线演出顶，浪人把战斗做简化后其他部分要是没有进步就尴尬了
 
+
+*****
+
+####  iou90  
+##### 1029#       发表于 2024-3-13 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240016&amp;ptid=2092342" target="_blank">松风君 发表于 2024-3-13 12:36</a>
+
+楼里前面提的Fightincowboy听说自己preview视频里负面输出太多炎上了于是积极上线答网友问
+
+把有意思 ...</blockquote>
+没碰过 kt 游戏的觉得之后有空可以试试了 轻度玩
+
+像打对马岛那样 对马岛我选第二简单难度60小时就都打完了
+
+感觉还好 就是最后10小时点都加完了纯清列表了角色没提升
+
+*****
+
+####  手铐君  
+##### 1030#       发表于 2024-3-13 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这游戏目前来看大家最关心的还是动作系统，索尼怎么不多找几个厉害点的主播评测下，最少我觉得得找一些比媒体编辑强的
+
+*****
+
+####  病態極端  
+##### 1031#       发表于 2024-3-13 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240016&amp;ptid=2092342" target="_blank">松风君 发表于 2024-3-13 12:36</a>
+
+楼里前面提的Fightincowboy听说自己preview视频里负面输出太多炎上了于是积极上线答网友问
+
+把有意思 ...</blockquote>
+原來這幾天放的切換人物、雙人處決、雙武器多流派、石火取消、振刀取消、鉤爪飛燕、槍反演示都是假的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+還好有大主播幫大夥釐清真相，揭穿忍組的偽造預告。
+
+*****
+
+####  icylight  
+##### 1032#       发表于 2024-3-13 13:18
+
+对马岛画面美术要强得多
+
+*****
+
+####  Booorunestud  
+##### 1033#       发表于 2024-3-13 13:21
+
+试玩视频里那个对着平a半天打空精力然后处决-掉大概五六刀伤害的血-精力回满-循环看着是有点令人担忧
+
+*****
+
+####  popchong  
+##### 1034#       发表于 2024-3-13 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240446&amp;ptid=2092342" target="_blank">手铐君 发表于 2024-3-13 13:17</a>
+
+这游戏目前来看大家最关心的还是动作系统，索尼怎么不多找几个厉害点的主播评测下，最少我觉得得找 ...</blockquote>
+找ZP-,喂狗组，whitegoat，olto之类的比找这些弱智游媒靠谱多了
+
+
+*****
+
+####  yt5wt2c  
+##### 1035#       发表于 2024-3-13 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">魅魔之王玩个2周目得了，22号这两货感觉都不靠谱
+

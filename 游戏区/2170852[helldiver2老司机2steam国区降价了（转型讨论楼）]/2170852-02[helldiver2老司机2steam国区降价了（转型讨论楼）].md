@@ -2530,3 +2530,18 @@ We are not changing anything regarding the Charger’s legs, we are however lowe
 
 新的开电池任务小虫子真是茫茫多，像轨道加特林，凝固汽油弹这种东西我觉得也能拿来专门打打小虫子了，还有一种说法是毒气打小虫子效率很高
 
+
+*****
+
+####  Launce  
+##### 1722#       发表于 2024-3-13 09:13
+
+<blockquote>只能说箭头的脑回路是特么真的抽象，先是很逆天的给怎么看都是弱点没有护甲的屁股肉加一个巨离谱的减伤，然后逆天的躯干独立血量，然后反重甲武器打重甲有百分之五十减伤，再到这次不是去增强筒子伤害而是去削弱头部血量，能一发打爆坦克虫然后打不死中型虫，我觉得正常人都干不出这些事</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">电弧+宏这波更新逆天了啊，所以制作组能去玩下他们自己的前作吗，看看什么是多样化反甲和战备火力支援
+
+*****
+
+####  smdzh2  
+##### 1723#       发表于 2024-3-13 09:15
+
+电池任务包括我在内三个人空投进池子里没法复活，剩房主一个人面对茫茫虫海尖叫抓挠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

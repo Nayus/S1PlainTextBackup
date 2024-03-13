@@ -969,3 +969,13 @@ Sora 团队负责人称 Sora“还不是一个产品”，短期不会向公众�
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  白影  
+##### 100#       发表于 2024-3-13 21:02
+
+TMD文科生惹了谁，楼主说说你作为理科生做出啥比文科生都伟大的贡献？
+
+弱智玩意
+

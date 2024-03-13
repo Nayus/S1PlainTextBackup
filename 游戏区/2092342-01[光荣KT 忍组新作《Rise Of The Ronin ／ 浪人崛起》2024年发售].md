@@ -3278,3 +3278,14 @@ Rise of the Ronin - Story Vignette
 
 比较符合预期的上世代ps4独占平均水平游戏，画面和世界交互性甚至梦回ps3，作为4202年的ps5独占对标对马岛在ps4出来那会儿都差远了。学了一堆东西但是没有一项是精的，战斗和画面相对忍者组之前的仁王2和卧龙都是退步的，仁王lite+刺客信条2水平的开放世界，不好说了。
 
+
+*****
+
+####  慕容断月  
+##### 1010#       发表于 2024-3-13 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64231551&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-3-12 17:16</a>
+
+感觉是不是换引擎了，这部看着好像没有传统屎色滤镜了</blockquote>
+换了，和战国无双5、FSR、狂野之心一样，都是KATANA了
+

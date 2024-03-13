@@ -3268,3 +3268,13 @@ Rise of the Ronin - Story Vignette
 
 这胜海舟跟本子影视剧形象差好多，长得太像反派了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rushtime33  
+##### 1009#       发表于 2024-3-13 11:58
+
+[https://www.youtube.com/watch?v=OFYFfzW-yO4](https://www.youtube.com/watch?v=OFYFfzW-yO4)
+
+比较符合预期的上世代ps4独占平均水平游戏，画面和世界交互性甚至梦回ps3，作为4202年的ps5独占对标对马岛在ps4出来那会儿都差远了。学了一堆东西但是没有一项是精的，战斗和画面相对忍者组之前的仁王2和卧龙都是退步的，仁王lite+刺客信条2水平的开放世界，不好说了。
+

@@ -202,3 +202,34 @@ nasa一定要管住,能再拖一个月吗.
 
 FAA放行了，明天发射
 
+
+*****
+
+####  madbird023  
+##### 151#       发表于 2024-3-14 05:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64217220&amp;ptid=2164773" target="_blank">bartholo4 发表于 2024-3-11 12:53</a>
+
+这次发射的及格线怎么定的？
+
+—— 来自 Xiaomi 2210132C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+航班概况包括：
+
+- 热阶段
+
+- 太空推进剂转移演示
+
+- 空间有效载荷门测试
+
+- 太空#Raptor引擎重新点燃
+
+- 受控星舰再入。
+
+- 墨西哥湾超重软着陆
+
+- 星舰翻腹和
+
+- 在马达加斯加附近的印度洋溅落
+
+至少要完成90%吧
+

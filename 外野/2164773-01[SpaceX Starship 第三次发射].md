@@ -233,3 +233,20 @@ FAA放行了，明天发射
 
 至少要完成90%吧
 
+
+*****
+
+####  andychen  
+##### 152#       发表于 2024-3-14 06:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64247217&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-3-14 05:17</a>
+
+航班概况包括：
+
+- 热阶段
+
+- 太空推进剂转移演示</blockquote>
+我觉得能搞定一半就不错了
+
+这回把超重从起飞到回收全弄好，SS部分的任务随缘吧
+

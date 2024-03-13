@@ -3297,3 +3297,15 @@ Rise of the Ronin - Story Vignette
 
 说起来我还有胜海舟博物馆纪念章，到时候摆出来玩（来自: iPhone客户端
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1012#       发表于 2024-3-13 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64239508&amp;ptid=2092342" target="_blank">Rushtime33 发表于 2024-3-13 11:58</a>
+https://www.youtube.com/watch?v=OFYFfzW-yO4
+
+比较符合预期的上世代ps4独占平均水平游戏，画面和世界交互 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要寄了
+

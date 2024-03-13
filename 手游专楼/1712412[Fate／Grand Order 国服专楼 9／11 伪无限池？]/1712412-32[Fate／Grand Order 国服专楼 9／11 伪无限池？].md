@@ -204,3 +204,11 @@
 
 你们友情点真多，纯无氪现在只剩40W了，真不敢乱来
 
+
+*****
+
+####  AbigailWilliams  
+##### 46228#       发表于 2024-3-13 21:24
+
+不是nga我直接点了，国服直接买啊，又不贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

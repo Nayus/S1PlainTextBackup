@@ -4121,3 +4121,17 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 其实从这点也能看出动作系统不如对马岛是菜逼主播瞎说的，动作游戏哪有这么堆料的，猜一个动作系统可能没 ...</blockquote>
 仁王系统太丰富了，基本一把武器一个机制。看目前的信息，本作不同武器之间应该没有那么大的机制区别，使用流派来给些不同的普攻连段和武技，带来动作总量多，但是机制简化的方案。
 
+
+*****
+
+####  黑修士  
+##### 1090#       发表于 2024-3-13 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64244503&amp;ptid=2092342" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-3-13 20:38</a>
+
+战斗系统的优势都丢了，别连故事都不如如龙维新，端出来个侍道4。</blockquote>
+制作组倒是对本作的故事谜之自信，新PV有点当年对马岛某个预告的味
+[https://www.bilibili.com/video/BV1E6421c7nM](https://www.bilibili.com/video/BV1E6421c7nM)
+
+自由度估计不如侍道系列，暂且当作动作系统更丰富的刺客信条奥德赛吧
+

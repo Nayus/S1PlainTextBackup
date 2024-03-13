@@ -2038,3 +2038,13 @@ MV来了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mio开场就80  35，笑死了
 
+
+*****
+
+####  rs5621  
+##### 8371#       发表于 2024-3-13 21:16
+
+今晚的联动真的好欢乐，等切片出来再看一遍
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -893,3 +893,13 @@ WAWR四月份开始换结哥和小花当主持</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  一个陆仁贾  
+##### 19800#       发表于 2024-3-13 22:26
+
+鲤鱼的贴贴集邮看爽了
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

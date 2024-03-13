@@ -1050,3 +1050,13 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 
 老咸鱼不想再投资火了想玩玩水，水以后应该要换漆黑，所以石油换把杖有前途吗，感觉减CD能很多花样。主要是认真想了下石油杖大帽子被nerf了黑猫不打奥义神谕小帽子白兔打奥义但技能没啥强力的好像就剩个武僧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  はちたや  
+##### 17758#       发表于 2024-3-13 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64245272&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-3-13 22:12</a>
+老咸鱼不想再投资火了想玩玩水，水以后应该要换漆黑，所以石油换把杖有前途吗，感觉减CD能很多花样。主要是 ...</blockquote>
+没有，水旧石油最有价值的应该是石油弓，少格子凑暴击，欧枪攻击觉醒未来可期；次一点是花圈，你没有水铳也可以玩玩水方天，说不定1老登上修以后又能散装mao了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

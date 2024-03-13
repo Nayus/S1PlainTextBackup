@@ -2817,3 +2817,21 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 守塔这任务刷怪点基本都在50米范围内，而且经常放在高地或者小山丘后面，等虫子进入视界就已经离塔非常近了，一次拉三四个烟，强袭泰坦不停的刷，近了还没法用红色战备。我怀疑这个逼任务又是箭头随便测测就端上来了，估计让这帮菜逼自己打连难5都过不去。
 
+
+*****
+
+####  FLZB  
+##### 1749#       发表于 2024-3-13 22:34
+
+鬼佬一把难8守塔三个塔打了20只（后面数不过来了，疑似21只）泰坦。
+
+幽默箭头：我们降低了强袭和泰坦的刷新数量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/13/223210qosoessrr9e2msts.jpg" referrerpolicy="no-referrer">
+
+<strong>111.jpg</strong> (216.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 22:32 上传
+

@@ -5829,3 +5829,27 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 打了40个小时了～ 橙注还没有打过 （佛系起来了
 
+
+*****
+
+####  mjwells  
+##### 516#       发表于 2024-3-13 22:27
+
+一把爽局，12张多彩、钢铁、红色蜡封的K
+
+小丑：
+
+手牌+2出牌-1、
+
+牌少于52张加倍（加100多倍，但是就算是放左边也是最后才计算<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）、
+
+手里的牌重复触发
+
+蓝图（复制右侧能力）
+
+手牌中的k *1.5倍
+
+打出的第一张人头牌*2倍
+
+小丑不是最强的，蓝图复制手里的牌重复触发，大概是e18，蓝图复制手牌中的k *1.5倍，大概是e20<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有点反直觉
+

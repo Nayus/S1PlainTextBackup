@@ -12572,3 +12572,11 @@ dc开这两个 我都能猜到里面最后能聊歪到哪去<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 2743#       发表于 2024-3-13 22:27
+
+直接日服全语言，秒了
+

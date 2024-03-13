@@ -2064,3 +2064,15 @@ MV来了
 
 2024-3-13 22:02 上传
 
+
+*****
+
+####  holoan  
+##### 8373#         楼主| 发表于 2024-3-13 22:34
+
+ 本帖最后由 holoan 于 2024-3-13 22:35 编辑 
+
+这是官方MMD，她还一直说要其他人套这个MMD去跳这个曲子
+
+其实我早上就想说了，她自己放出来的MMD小视频，跳得比她自己live上的好多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

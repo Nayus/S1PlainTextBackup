@@ -9146,3 +9146,48 @@ anon 这个我早想吐槽了，真不是营某些匿名版的业吗
 
 [https://twitter.com/sasakirico/status/1767749218985504798](https://twitter.com/sasakirico/status/1767749218985504798)
 
+
+*****
+
+####  NODY  
+##### 14106#       发表于 2024-3-13 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64239019&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-13 11:22</a>
+
+能看到对邦吗
+
+—— 来自 S1Fun</blockquote>
+不会，asl同企划不同组合一般是分开的，拉拉邦邦都是不同组合在不同天，要看同日出演估计得等武士道摇滚界什么的才会有
+
+*****
+
+####  Serious  
+##### 14107#       发表于 2024-3-13 11:31
+
+初祥赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傘木希美  
+##### 14108#       发表于 2024-3-13 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238866&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-13 11:12</a>
+鸡团基本确定上今年asl了，不错，还以为会拖到第二季出了才上</blockquote>
+怎么一个团只写了两个人的名字<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+我以为能混编呢
+不对，差个贝斯
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  NODY  
+##### 14109#       发表于 2024-3-13 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64239176&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-3-13 11:34</a>
+
+怎么一个团只写了两个人的名字
+我以为能混编呢</blockquote>
+这个是预热生放，就是把今年会出场的嘉宾找一小部分来聊天顺便宣布今年的阵容
+

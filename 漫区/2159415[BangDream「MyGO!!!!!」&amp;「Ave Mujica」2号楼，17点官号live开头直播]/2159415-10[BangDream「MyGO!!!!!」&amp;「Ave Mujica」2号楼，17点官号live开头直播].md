@@ -9359,3 +9359,13 @@ Mujica这两人感觉画风都不一样了。<img src="https://static.saraba1st.
 
 [https://twitter.com/reibouQ/status/1767602583865364992](https://twitter.com/reibouQ/status/1767602583865364992)
 
+
+*****
+
+####  爱丁堡official  
+##### 14123#       发表于 2024-3-13 19:40
+
+戴口罩好看<img src="https://p.sda1.dev/16/95baff96875b00316cd1cbffea9d987b/IMG_CMP_174802202.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

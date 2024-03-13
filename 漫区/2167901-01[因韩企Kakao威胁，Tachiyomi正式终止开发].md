@@ -140,3 +140,25 @@ mihon添加源后依然刷不出插件，有遇到过这种情况的吗？</bloc
 扩展库链接我私信给你吧</blockquote>
 大佬发一下mihon的扩展库链接，谢谢
 
+
+*****
+
+####  Rainwedell  
+##### 200#       发表于 2024-3-13 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243135&amp;ptid=2167901" target="_blank">AlfredXC 发表于 2024-3-13 17:58</a>
+好吧，应该就是网络问题了</blockquote>
+网络问题，开个梯子就行
+
+
+*****
+
+####  Rainwedell  
+##### 201#       发表于 2024-3-13 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243172&amp;ptid=2167901" target="_blank">keytomylife 发表于 2024-3-13 18:01</a>
+求一下现在能用的拷贝插件
+
+google出来的还是1月1日那个1.4.53</blockquote>
+我这边1.4.52是能用的，你要吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

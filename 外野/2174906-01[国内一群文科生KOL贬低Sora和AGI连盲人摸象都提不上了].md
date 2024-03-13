@@ -1017,3 +1017,16 @@ TMD文科生惹了谁，楼主说说你作为理科生做出啥比文科生都�
 
 大力出奇迹的前提是真的出来的是奇迹而不是昙花一现的垃圾
 
+
+*****
+
+####  SinoWarrior  
+##### 104#       发表于 2024-3-13 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64245853&amp;ptid=2174906" target="_blank">ycjiang1337 发表于 2024-3-13 23:13</a>
+
+再一次强调现在根本没有任何证据能证明Sora真的能稳定工作——楼上也贴了访谈，OpenAI自己都说Sora现在还 ...</blockquote>
+GPT4V也挺拉的就是了，幻觉严重
+
+事实证明transformer遇到视觉还是没有它在文字领域那么神奇的效果
+

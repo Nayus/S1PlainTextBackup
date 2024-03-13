@@ -6299,3 +6299,13 @@ CoroCoro4月号有附赠的游戏内名牌。
 
 我对这游戏算是仁至义尽了，野上恒让我看看你4代打算端出个什么东西
 
+
+*****
+
+####  罗克萨斯  
+##### 3618#       发表于 2024-3-13 23:21
+
+X赛一群傻逼，根本不管鱼在哪瞎几把冲，还不如玩开放，我还是退坑好了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

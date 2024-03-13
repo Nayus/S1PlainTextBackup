@@ -6309,3 +6309,11 @@ X赛一群傻逼，根本不管鱼在哪瞎几把冲，还不如玩开放，我�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  maomaoying  
+##### 3619#       发表于 2024-3-14 02:39
+
+【秩序篇=异度3？喷喷的剧情或许比想象中更有深度~】 [https://www.bilibili.com/video/B ... 02e8c37e3d9b2127eac](https://www.bilibili.com/video/BV1mi421d7Lw/?share_source=copy_web&amp;vd_source=a49dc2b4008b102e8c37e3d9b2127eac) 不知道搬哪就发这吧
+

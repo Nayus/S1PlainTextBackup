@@ -101,3 +101,18 @@ mihon添加源后依然刷不出插件，有遇到过这种情况的吗？</bloc
 
 看了下，好像并没有相关设置
 
+
+*****
+
+####  DLAN  
+##### 197#       发表于 2024-3-13 15:33
+
+ 本帖最后由 DLAN 于 2024-3-13 15:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241606&amp;ptid=2167901" target="_blank">AlfredXC 发表于 2024-3-13 15:26</a>
+看了下，好像并没有相关设置</blockquote>
+看错了，不好意思
+
+可能是网络问题吧，插件仓库在github
+
+—— 来自 Google Pixel 4 XL, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

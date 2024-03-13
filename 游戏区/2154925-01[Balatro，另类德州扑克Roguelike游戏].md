@@ -5821,3 +5821,11 @@ Then find the function "G.FUNCS.reroll_shop" and you just have to delete the lin
 
 IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course if you go infinite rerolls you can manipulate your deck but just control yourself or don't after all, we're all here to cheat)
 
+
+*****
+
+####  lilod  
+##### 515#       发表于 2024-3-13 15:29
+
+打了40个小时了～ 橙注还没有打过 （佛系起来了
+

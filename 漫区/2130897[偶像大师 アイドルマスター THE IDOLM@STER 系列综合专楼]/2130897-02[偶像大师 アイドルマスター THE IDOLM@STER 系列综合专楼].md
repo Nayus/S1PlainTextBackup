@@ -12529,3 +12529,30 @@ dc开这两个 我都能猜到里面最后能聊歪到哪去<img src="https://st
 
 姬崎莉波是有可能成为我母亲的女性啊！<img src="https://static.saraba1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  微尘众  
+##### 2738#       发表于 2024-3-13 21:49
+
+回旋了，官方DC真的开了简中版，这还是我认识的万代吗
+
+
+*****
+
+####  ViviR  
+##### 2739#       发表于 2024-3-13 21:52
+
+别一进去一堆不可名状的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 2740#       发表于 2024-3-13 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……？？？？？
+
+那万代你能国际服日服同服开直接有中文吗，拿出点国际大厂的底气在
+
+别每次延迟开还得担心整个一年多就关服
+

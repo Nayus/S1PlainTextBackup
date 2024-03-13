@@ -223,3 +223,11 @@
 你们友情点真多，纯无氪现在只剩40W了，真不敢乱来</blockquote>
 淘宝一亿友情点30块，加上BBchannel直接每月多两个圣杯，赶紧的吧
 
+
+*****
+
+####  龙星丸  
+##### 46230#       发表于 2024-3-14 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">已经无人抽卡了吗，想要助战找当期五星开图鉴都刷不到。
+

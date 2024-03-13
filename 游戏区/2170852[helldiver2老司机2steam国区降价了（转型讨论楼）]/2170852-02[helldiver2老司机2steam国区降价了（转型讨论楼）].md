@@ -2890,3 +2890,27 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆笑如雷了，家人们，新更新直接把人数干到谷底了，“遥遥领先”更新快端上来罢
 
+
+*****
+
+####  Sayuki1025  
+##### 1753#       发表于 2024-3-14 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64243922&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-13 19:21</a>
+还有这种游泳图</blockquote>
+这图怎么过河啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Launce  
+##### 1754#       发表于 2024-3-14 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64246482&amp;ptid=2170852" target="_blank">Sayuki1025 发表于 2024-3-14 00:17</a>
+
+这图怎么过河啊
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">只能让起飞的CEO捎过去
+

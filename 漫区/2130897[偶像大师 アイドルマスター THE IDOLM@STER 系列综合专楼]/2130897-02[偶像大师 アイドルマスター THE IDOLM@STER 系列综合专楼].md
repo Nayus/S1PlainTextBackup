@@ -12203,3 +12203,37 @@ live还有应援声的啊，qa越来越行了啊
 
 千雪姐系特化版？
 
+
+*****
+
+####  ViviR  
+##### 2703#       发表于 2024-3-13 18:18
+
+全体曲游戏里只有solo ver是吧
+
+*****
+
+####  陆久舟  
+##### 2704#       发表于 2024-3-13 18:19
+
+本人ふわふわ确实很可爱
+
+*****
+
+####  RhmBWT_Wu  
+##### 2705#       发表于 2024-3-13 18:19
+
+这位脸也有点大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是蛮可爱的，声音也不错
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  安广多惠子  
+##### 2706#       发表于 2024-3-13 18:21
+
+台词提到喜欢自己的那个时候，看来这次的角色过去或多或少都有点故事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

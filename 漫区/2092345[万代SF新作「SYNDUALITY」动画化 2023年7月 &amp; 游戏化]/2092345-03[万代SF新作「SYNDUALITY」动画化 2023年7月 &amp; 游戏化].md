@@ -6081,3 +6081,11 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 主角机组废物到让人发笑，这个谁也打不过又永远赶不上趟的设定到底有什么意义啊，眼看着到结局了，还是一脸小丑也真tm绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4363#       发表于 2024-3-13 18:19
+
+【『SYNDUALITY Noir』OP2主題歌 ARCANA PROJECT「アイレ」-哔哩哔哩】 [https://b23.tv/T9Vtqru](https://b23.tv/T9Vtqru)   OP2完整版
+

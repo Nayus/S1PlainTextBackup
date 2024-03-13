@@ -935,3 +935,25 @@ sora再怎么样关我们普通人鸟事，还是关注一下stable diffusion 3�
 
 舔狗就是在冲着一张大饼硬舔233333
 
+
+*****
+
+####  Nanachi  
+##### 98#       发表于 2024-3-13 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64216651&amp;ptid=2174906" target="_blank">ycjiang1337 发表于 2024-3-11 11:57</a>
+
+再一次提醒，目前的Sora就是一张纯粹的空头支票，不开源也就罢了，连公开访问入口都没有，再退一步申请内测 ...</blockquote>
+[Sora 团队负责人称 Sora“还不是一个产品”，短期不会向公众开放](https://www.ithome.com/0/755/423.htm)
+ <blockquote>IT之家 3 月 13 日消息，近日，YouTube 频道 WVFRM Podcast 在其节目中，邀请了 OpenAI 旗下文生视频模型 Sora 的核心团队成员参与访谈。
+
+IT之家注：三名成员包括 Bill Peebles、Tim Brooks 和 Aditya Ramesh，均为 Sora 项目负责人。
+
+这三名负责人谈到了 Sora 何时可供用户使用的问题，其称目前 Sora 仍处于反馈获取阶段，“还不是一个产品，短期之内不会向公众开放。”
+
+“对于什么时候把它变成一个产品，我们目前甚至没有任何时间表。我们正处于获取反馈阶段。我们肯定会改进它，但我们应该如何改进它是一个悬而未决的问题。”
+
+谈及 Sora 的原理时，负责人表示，其工作原理是分析大量视频数据、学习生成逼真的视频，工作方法融合了 GPT 等大语言模型及 DALL-E 等扩散模型的技术，架构类似于“介于两者之间”—— 架构上更像 GPT，训练方式类似于 DALL-E。
+
+而对于 Sora 的训练数据来源问题，负责人则称不能透露太多细节，仅表示是基于公开可用的数据、OpenAI 授权数据的组合进行训练的。</blockquote>
+

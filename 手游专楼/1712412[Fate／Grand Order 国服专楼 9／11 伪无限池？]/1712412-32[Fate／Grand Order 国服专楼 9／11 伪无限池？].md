@@ -186,3 +186,13 @@
  礼装换哪个·好</blockquote>
 功利点的话就五星查理曼那张
 
+
+*****
+
+####  khxooo  
+##### 46226#       发表于 2024-3-13 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240220&amp;ptid=1712412" target="_blank">6030sylar 发表于 2024-3-13 12:54</a>
+礼装换哪个·好</blockquote>
+就能力来说肯定是查理曼那张。
+

@@ -3894,3 +3894,13 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 卧龙本体整个打完，没打dlc，我觉得只有第一个boss张梁打的最爽，人形吕布也还凑活吧，剩下的都是什么贵物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萌萌地镜头  
+##### 1069#       发表于 2024-3-13 15:09
+
+“感觉社区里怎么都是那种忍组每个游戏都玩过还等着这次给的是最强、他们最擅长的东西的老害啊”
+忍组游戏不玩动作难道还能期待他别的不成
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

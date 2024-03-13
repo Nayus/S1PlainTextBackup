@@ -808,3 +808,34 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  syndrome2032  
+##### 17738#       发表于 2024-3-13 10:17
+
+ 本帖最后由 syndrome2032 于 2024-3-13 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237894&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-13 10:09</a>
+王子那边没有补，真的是没救。老七喷的完全让他破防了
+
+惨的是女骑士，对王子有一些好感但发现对面完全没 ...</blockquote>
+看人物说明，梅林最后少了截指骨。
+
+说不准哪天就复活赛出来了。
+
+火鸡最后说自己不是预知，是预算未来。这算是破功flag了。只不过最后六龙装逼说鱼死网破再联想一下前面他们在背景里被揍。呃呃。
+
+*****
+
+####  osore  
+##### 17739#       发表于 2024-3-13 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64237894&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-13 10:09</a>
+
+王子那边没有补，真的是没救。老七喷的完全让他破防了
+
+惨的是女骑士，对王子有一些好感但发现对面完全没 ...</blockquote>
+国王有给他洗地是想复活他妈
+
+当然人死为大这种墓志铭编点好的也很正常啦
+

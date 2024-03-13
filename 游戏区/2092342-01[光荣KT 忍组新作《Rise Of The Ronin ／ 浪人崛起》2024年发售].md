@@ -4029,3 +4029,18 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 日本特别版预告片
 
+
+*****
+
+####  病態極端  
+##### 1081#       发表于 2024-3-13 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241902&amp;ptid=2092342" target="_blank">性兽阿怪 发表于 2024-3-13 15:56</a>
+
+**动作游戏高玩主播粉丝量本来就很少，战神这种爆款人气最高的主播GBG和smvr也才20多万关注，更别说白羊了 ...</blockquote>
+<img src="https://p.sda1.dev/16/f78f83814a301f50f7e03271bd0d2697/ronin-preview-literally-who.jpg" referrerpolicy="no-referrer">
+
+也不看粉絲數吧，這位就比whitegoat多一點粉絲的播主都拿到了。
+
+純純的索尼公關找不著北。
+

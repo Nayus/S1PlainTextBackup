@@ -67,3 +67,15 @@ https://mihon.app/docs/guides/local-source/</blockquote>
 
 mihon添加源后依然刷不出插件，有遇到过这种情况的吗？
 
+
+*****
+
+####  DLAN  
+##### 195#       发表于 2024-3-13 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64240717&amp;ptid=2167901" target="_blank">AlfredXC 发表于 2024-3-13 13:47</a>
+mihon添加源后依然刷不出插件，有遇到过这种情况的吗？</blockquote>
+浏览-插件 里看一下是不是没有信任插件
+
+—— 来自 Google Pixel 4 XL, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

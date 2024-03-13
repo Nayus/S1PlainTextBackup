@@ -9065,3 +9065,11 @@ jc amt啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" r
 
 anon 这个我早想吐槽了，真不是营某些匿名版的业吗
 
+
+*****
+
+####  NODY  
+##### 14100#       发表于 2024-3-13 11:01
+
+好像是因为设定上名无声这首歌的歌词是爱音和灯合写的，所以爱音的名字一开始就取的匿名或者无名的意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

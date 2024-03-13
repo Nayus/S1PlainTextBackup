@@ -12079,3 +12079,127 @@ u1s1 这个管人企划总感觉是电音部提出来的，然后上面的人给
 
 明明叫全体曲 游戏里却只能一个人唱
 
+
+*****
+
+####  lz741990563  
+##### 2688#       发表于 2024-3-13 18:08
+
+四五年内的手机性能都可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 2689#       发表于 2024-3-13 18:09
+
+888：真的吗，我不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Anatoly  
+##### 2690#       发表于 2024-3-13 18:11
+
+https://zh.moegirl.org.cn/%E8%96%84%E4%BA%95%E5%8F%8B%E9%87%8C
+
+新cv萌百，所属im
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 2691#       发表于 2024-3-13 18:12
+
+可爱可爱可爱
+
+*****
+
+####  Anatoly  
+##### 2692#       发表于 2024-3-13 18:12
+
+草，比小鹿还惨啊
+这是初具名角色？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  冰寒之月  
+##### 2693#       发表于 2024-3-13 18:14
+
+太草台了 这也出事故
+
+*****
+
+####  Anatoly  
+##### 2694#       发表于 2024-3-13 18:14
+
+直播事故发生中（pv没出）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  koodooliz  
+##### 2695#       发表于 2024-3-13 18:14
+
+导播注意进厂时机
+
+*****
+
+####  安广多惠子  
+##### 2696#       发表于 2024-3-13 18:14
+
+放个pv都能事故，不愧是你万南
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 2697#       发表于 2024-3-13 18:15
+
+导播进厂吧
+
+*****
+
+####  Anatoly  
+##### 2698#       发表于 2024-3-13 18:15
+
+这都几分钟了怎么还能没的，导播睡着了吗（）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Anatoly  
+##### 2699#       发表于 2024-3-13 18:17
+
+角色声线似乎不如本人有意思（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 2700#       发表于 2024-3-13 18:17
+
+来感觉了来感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liyropen  
+##### 2701#       发表于 2024-3-13 18:18
+
+live还有应援声的啊，qa越来越行了啊
+
+*****
+
+####  sliver1997  
+##### 2702#       发表于 2024-3-13 18:18
+
+千雪姐系特化版？
+

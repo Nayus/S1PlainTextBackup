@@ -9261,3 +9261,51 @@ Mujica这两人感觉画风都不一样了。<img src="https://static.saraba1st.
 
 高尾和李子好像不止一次强调双月指的是初祥了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14116#       发表于 2024-3-13 18:08
+
+<img src="https://img.saraba1st.com/forum/202403/13/180812oxmzi2yunx83k8y4.png" referrerpolicy="no-referrer">
+
+<strong>3PDY1`G9QO8@%PRRLU1CLTI.png</strong> (57.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 18:08 上传
+
+*****
+
+####  6030sylar  
+##### 14117#       发表于 2024-3-13 18:13
+
+<img src="https://img.saraba1st.com/forum/202403/13/180926myss2wmxiwtpm54w.png" referrerpolicy="no-referrer">
+
+<strong>BS`NXTY7Y[`5STADFT[ZM4M.png</strong> (44.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/13/180926hfmhhwt3p3mqpej3.png" referrerpolicy="no-referrer">
+
+<strong>5QT(O2SX@CI9E0Y0%)24``8.png</strong> (83.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 18:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">amt还演过这
+
+*****
+
+####  DarthAka  
+##### 14118#       发表于 2024-3-13 18:13
+
+<blockquote>PDQ4 发表于 2024-3-13 14:02
+不过ASL的话，鸡的曲子是不是就确定了，除了团名曲以外没得选了吧。</blockquote>
+动画就那一首歌，没得选，是Asl
+
+第一次上也就给两首，除非搞串烧之类的骚操作，第二首是啥倒值得说说
+

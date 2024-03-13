@@ -4100,3 +4100,14 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 战斗系统的优势都丢了，别连故事都不如如龙维新，端出来个侍道4。
 
+
+*****
+
+####  nagitoY  
+##### 1088#       发表于 2024-3-13 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64242844&amp;ptid=2092342" target="_blank">waelaZed 发表于 2024-3-13 17:30</a>
+
+能,而且两个都可以捏成幕末并列第一美少女</blockquote>
+这次隐刀二人组都有配音，那如果能捏两男或者两女，是不是说明每一个隐刀都单独有男女两套的配音？
+

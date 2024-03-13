@@ -6089,3 +6089,11 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 【『SYNDUALITY Noir』OP2主題歌 ARCANA PROJECT「アイレ」-哔哩哔哩】 [https://b23.tv/T9Vtqru](https://b23.tv/T9Vtqru)   OP2完整版
 
+
+*****
+
+####  苍蓝之枪  
+##### 4364#       发表于 2024-3-13 20:52
+
+还有永劫吗?还是这章鱼机就相当于永劫了
+

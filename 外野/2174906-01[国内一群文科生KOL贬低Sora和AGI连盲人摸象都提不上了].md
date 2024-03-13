@@ -957,3 +957,15 @@ IT之家注：三名成员包括 Bill Peebles、Tim Brooks 和 Aditya Ramesh，�
 
 而对于 Sora 的训练数据来源问题，负责人则称不能透露太多细节，仅表示是基于公开可用的数据、OpenAI 授权数据的组合进行训练的。</blockquote>
 
+
+*****
+
+####  ycjiang1337  
+##### 99#       发表于 2024-3-13 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64242432&amp;ptid=2174906" target="_blank">Nanachi 发表于 2024-3-13 16:45</a>
+Sora 团队负责人称 Sora“还不是一个产品”，短期不会向公众开放</blockquote>
+所以这不就实锤了么
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

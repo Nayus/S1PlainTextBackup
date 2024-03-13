@@ -9394,3 +9394,15 @@ Mujica这两人感觉画风都不一样了。<img src="https://static.saraba1st.
 
 与时俱进
 
+
+*****
+
+####  Aendst  
+##### 14126#       发表于 2024-3-13 21:40
+
+ 本帖最后由 Aendst 于 2024-3-13 21:42 编辑 
+
+踩糖又是什么最潮最in的新概念<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">查了好久都没查到，换了好几个有搜索功能的平台只在微博搜到相关，但还是没看懂
+
+是想说初祥双月踩了灯祥吗，但是那个强行硬拉的所谓的Memento mori假药不是双月是神笨，神笨有显而易见的睦祥固定互动，双月已经说了好多次初祥了，我觉得还是以官方相关消息和互动为准<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

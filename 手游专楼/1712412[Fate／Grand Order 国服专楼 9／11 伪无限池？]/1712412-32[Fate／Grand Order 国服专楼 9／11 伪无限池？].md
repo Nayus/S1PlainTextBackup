@@ -212,3 +212,14 @@
 
 不是nga我直接点了，国服直接买啊，又不贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stunflare  
+##### 46229#       发表于 2024-3-13 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64244168&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-3-13 19:54</a>
+
+你们友情点真多，纯无氪现在只剩40W了，真不敢乱来</blockquote>
+淘宝一亿友情点30块，加上BBchannel直接每月多两个圣杯，赶紧的吧
+

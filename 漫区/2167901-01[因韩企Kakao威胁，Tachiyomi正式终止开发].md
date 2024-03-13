@@ -116,3 +116,27 @@ mihon添加源后依然刷不出插件，有遇到过这种情况的吗？</bloc
 
 —— 来自 Google Pixel 4 XL, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  AlfredXC  
+##### 198#       发表于 2024-3-13 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64241665&amp;ptid=2167901" target="_blank">DLAN 发表于 2024-3-13 15:33</a>
+看错了，不好意思
+
+可能是网络问题吧，插件仓库在github</blockquote>
+好吧，应该就是网络问题了
+
+*****
+
+####  keytomylife  
+##### 199#       发表于 2024-3-13 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63786935&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-1-26 18:49</a>
+
+一样的啊。先信任扩展就能用，都没变
+
+扩展库链接我私信给你吧</blockquote>
+大佬发一下mihon的扩展库链接，谢谢
+

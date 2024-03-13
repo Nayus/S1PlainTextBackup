@@ -2609,3 +2609,16 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 一直搞不清伤害类型，这游戏的武器是分三种吗，普通，穿甲，爆炸？
 
+
+*****
+
+####  Launce  
+##### 1731#       发表于 2024-3-13 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64238702&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-13 11:00</a>
+
+一直搞不清伤害类型，这游戏的武器是分三种吗，普通，穿甲，爆炸？</blockquote>
+穿甲是子弹效果，伤害属性就分普通和炸弹
+
+炸弹对肉是全伤，普通对肉好像只有10%，炸弹还带击退和击晕
+

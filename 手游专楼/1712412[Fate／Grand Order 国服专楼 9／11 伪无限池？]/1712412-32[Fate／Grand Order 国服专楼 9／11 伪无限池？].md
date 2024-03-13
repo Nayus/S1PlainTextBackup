@@ -160,3 +160,11 @@
 
 抽掉了20W友情点，有一张出了三张，停在杠头上了
 
+
+*****
+
+####  艾尔特翔  
+##### 46223#       发表于 2024-3-13 11:08
+
+200W，三张满破，人嘛了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

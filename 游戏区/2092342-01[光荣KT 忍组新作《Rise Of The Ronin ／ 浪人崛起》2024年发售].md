@@ -3260,3 +3260,11 @@ Rise of the Ronin - Story Vignette
 
 大姐你穿这么潮怎么是幕府派
 
+
+*****
+
+####  寂长无星夜  
+##### 1008#       发表于 2024-3-13 11:09
+
+这胜海舟跟本子影视剧形象差好多，长得太像反派了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

@@ -9073,3 +9073,26 @@ anon 这个我早想吐槽了，真不是营某些匿名版的业吗
 
 好像是因为设定上名无声这首歌的歌词是爱音和灯合写的，所以爱音的名字一开始就取的匿名或者无名的意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14101#       发表于 2024-3-13 11:12
+
+鸡团基本确定上今年asl了，不错，还以为会拖到第二季出了才上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/13/111125go638z7keey6wzey.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-ft5gZ20T3cSxc-ir.jpg</strong> (188.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 11:11 上传
+
+*****
+
+####  黑道复制人  
+##### 14102#       发表于 2024-3-13 11:15
+
+最团魂
+

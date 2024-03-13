@@ -2799,3 +2799,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 还有这种游泳图</blockquote>
 哦 牛批 还有这种图的
 
+
+*****
+
+####  airshit  
+##### 1747#       发表于 2024-3-13 21:58
+
+虫子围在塔旁边的时候，电弧根本电不到，太智障了
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

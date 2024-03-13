@@ -2048,3 +2048,19 @@ MV来了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rs5621  
+##### 8372#       发表于 2024-3-13 22:03
+
+新歌的mv出来了,画面调度真不错,不过这衣服总感觉哪里不对
+
+<img src="https://img.saraba1st.com/forum/202403/13/220229kwru48d0cbr8j74r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-13 22:02 上传
+

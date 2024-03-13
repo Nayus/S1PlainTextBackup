@@ -2653,3 +2653,15 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  smdzh2  
+##### 1735#       发表于 2024-3-13 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64239601&amp;ptid=2170852" target="_blank">novyMS 发表于 2024-3-13 13:04</a>
+两发火箭筒一只坦克虫 太舒服了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+其实打头只要一发<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

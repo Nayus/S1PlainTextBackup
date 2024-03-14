@@ -9608,3 +9608,18 @@ amt还演过这</blockquote>
 
 —— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 14145#       发表于 2024-3-14 19:11
+
+<img src="https://p.sda1.dev/16/39877c43c7aab3ef7b47fddc177000dd/CMP_20240314191143526.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 14146#       发表于 2024-3-14 19:14
+
+<img src="https://p.sda1.dev/16/2e5068f7da8810ab0077668941f3bc1d/CMP_20240314191427536.png" referrerpolicy="no-referrer">https://yang087583.lofter.com/post/31aff5ca_2bb618752
+

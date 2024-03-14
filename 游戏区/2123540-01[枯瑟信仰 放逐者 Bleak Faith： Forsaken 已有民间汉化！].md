@@ -3141,3 +3141,28 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 买了没玩，等更更新差不多了再开搞，最好汉化也出了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这个热度 汉化基本没戏了
 
+
+*****
+
+####  彩虹肥宅  
+##### 256#       发表于 2024-3-14 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254211&amp;ptid=2123540" target="_blank">qappip 发表于 2024-3-14 18:39</a>
+没用了，3dm汉化那个版本和现在这个改动也不小了。</blockquote>
+这便样衰了
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  qappip  
+##### 257#         楼主| 发表于 2024-3-14 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254456&amp;ptid=2123540" target="_blank">彩虹肥宅 发表于 2024-3-14 19:05</a>
+
+这便样衰了
+
+—— 来自 OPPO PGJM10, Android 13上的 S1Next-鹅版 v2.5.2-play</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">直接玩，里面几乎没啥需要看懂的。
+

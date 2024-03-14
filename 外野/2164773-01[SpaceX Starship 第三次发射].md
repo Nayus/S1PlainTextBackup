@@ -461,3 +461,30 @@ SS真正进行过的飞行就上回那几十秒，这回要完成从推进剂转
 
 2024-3-14 18:44 上传
 
+
+*****
+
+####  commcody  
+##### 172#         楼主| 发表于 2024-3-14 19:09
+
+SpaceX发推，今日天气70%概率符合发射条件。新的发射时间是中部时间早7点30分（北京时间20点30分）。官方直播会在发射前30分钟开始。
+
+<img src="https://img.saraba1st.com/forum/202403/14/190632fs9kmllfi9z6hr2f.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240314190613.jpg</strong> (163.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 19:06 上传
+
+
+*****
+
+####  madbird023  
+##### 173#       发表于 2024-3-14 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64253199&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-14 17:00</a>
+
+偏偏今晚加班没办法看直播了，残念。</blockquote>
+批站purecosmos
+

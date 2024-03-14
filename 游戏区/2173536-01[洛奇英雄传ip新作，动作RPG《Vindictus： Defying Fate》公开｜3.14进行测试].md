@@ -467,3 +467,22 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 怪的跟踪性能有点太离谱了，闪了第一下都还在闪避动作中第二下马上跟上来
 
+
+*****
+
+####  Byooon  
+##### 53#       发表于 2024-3-14 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251812&amp;ptid=2173536" target="_blank">白河响剑 发表于 2024-3-14 14:59</a>
+
+更新显卡驱动好了
+
+就离谱
+
+头一次因为没及时更新显卡驱动而玩不了游戏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">一样的。载入地图直接跳出来了。
+
+简直鬼扯。。估计是加了强行检测机制。
+
+1060系都能玩的你跟我说3系驱动太老玩不了
+

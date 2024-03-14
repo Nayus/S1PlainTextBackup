@@ -12697,3 +12697,11 @@ DC简中频顶着10秒CD水了5000条了，感觉不久后能超过繁中和印�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ViviR  
+##### 2757#       发表于 2024-3-14 19:06
+
+不太懂，感觉这些人心态上要不就是觉得妨碍自己磕女女cp了，要不就是觉得跟自己抢老婆了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

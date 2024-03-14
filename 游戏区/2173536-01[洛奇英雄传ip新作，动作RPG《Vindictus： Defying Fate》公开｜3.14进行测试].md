@@ -486,3 +486,29 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 1060系都能玩的你跟我说3系驱动太老玩不了
 
+
+*****
+
+####  小贝伦  
+##### 54#       发表于 2024-3-14 20:16
+
+这游戏不支持手柄吗？用键鼠被虐出屎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wlhlz  
+##### 55#       发表于 2024-3-14 20:17
+
+钻缝那一幕，发现奈子的青筋都做出来了，你这游戏到底正不正经啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真鍮  
+##### 56#       发表于 2024-3-14 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255175&amp;ptid=2173536" target="_blank">小贝伦 发表于 2024-3-14 20:16</a>
+
+这游戏不支持手柄吗？用键鼠被虐出屎</blockquote>
+应该是支持的，但是按过往的经验这游戏用手柄很坐牢
+

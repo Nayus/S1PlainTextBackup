@@ -9894,3 +9894,13 @@ ppp这张图，ars应得的。<img src="https://static.saraba1st.com/image/smile
 
 今晚看电影去了，生放送讲了什么更新吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 14169#       发表于 2024-3-15 00:26
+
+更新了鬼图
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1384,3 +1384,240 @@ SS在轨道上的姿态一直不稳定，应该是有问题</blockquote>
 SS在轨道上的姿态一直不稳定，应该是有问题</blockquote>
 在轨自转提供微重力，正常的
 
+
+*****
+
+####  andychen  
+##### 280#       发表于 2024-3-14 22:08
+
+轨道最高点的猛禽再点火测试取消了
+
+
+*****
+
+####  madbird023  
+##### 281#       发表于 2024-3-14 22:09
+
+不点火了，直接物理自由落体
+
+*****
+
+####  唯登诗树  
+##### 282#       发表于 2024-3-14 22:10
+
+碎片飞舞
+
+*****
+
+####  冷静先找时光机  
+##### 283#       发表于 2024-3-14 22:11
+
+怎么这么多碎片
+
+*****
+
+####  madbird023  
+##### 284#       发表于 2024-3-14 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256431&amp;ptid=2164773" target="_blank">唯登诗树 发表于 2024-3-14 22:10</a>
+
+碎片飞舞</blockquote>
+是冰块
+
+*****
+
+####  YoumuChan  
+##### 285#       发表于 2024-3-14 22:12
+
+这个画面炫酷啊
+
+— from Sony XQ-DQ62, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  andychen  
+##### 286#       发表于 2024-3-14 22:12
+
+开始再入了，姿态还是不稳定。估计要烧毁了
+
+*****
+
+####  瓦格雷  
+##### 287#       发表于 2024-3-14 22:13
+
+<blockquote>madbird023 发表于 2024-3-14 22:11
+是冰块</blockquote>
+看着黑的  
+
+*****
+
+####  madbird023  
+##### 288#       发表于 2024-3-14 22:13
+
+牛逼大发了，过黑障机外直播
+
+*****
+
+####  commcody  
+##### 289#         楼主| 发表于 2024-3-14 22:13
+
+再入中
+
+<img src="https://img.saraba1st.com/forum/202403/14/221342gamb68ul2ybehyju.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240314221322.jpg</strong> (99.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 22:13 上传
+
+*****
+
+####  哈里-谢顿  
+##### 290#       发表于 2024-3-14 22:13
+
+摄像头好牛批
+
+*****
+
+####  最静de海  
+##### 291#       发表于 2024-3-14 22:14
+
+这红光好帅啊
+
+*****
+
+####  瓦格雷  
+##### 292#       发表于 2024-3-14 22:14
+
+再入都可以直播。。。。。嘎嘎
+
+*****
+
+####  zzzzzzzzzzz  
+##### 293#       发表于 2024-3-14 22:14
+
+黑障直播！
+
+
+*****
+
+####  天接云涛连晓雾  
+##### 294#       发表于 2024-3-14 22:14
+
+姿态调整过来了
+
+*****
+
+####  凉良  
+##### 295#       发表于 2024-3-14 22:14
+
+期待个远景 想看看直接从太空砸大海是啥动静
+
+*****
+
+####  windtrack_qh  
+##### 296#       发表于 2024-3-14 22:14
+
+好漂亮啊
+
+<img src="https://img.saraba1st.com/forum/202403/14/221425opi7zokjillqfr7k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 22:14 上传
+
+*****
+
+####  人別離苦  
+##### 297#       发表于 2024-3-14 22:14
+
+黑障直播！
+
+*****
+
+####  madbird023  
+##### 298#       发表于 2024-3-14 22:15
+
+数据不动了，应该没了
+
+*****
+
+####  andychen  
+##### 299#       发表于 2024-3-14 22:15
+
+我觉得完蛋了，飞船出黑障区时多半已经是碎片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天接云涛连晓雾  
+##### 300#       发表于 2024-3-14 22:15
+
+没顶住
+
+*****
+
+####  天接云涛连晓雾  
+##### 301#       发表于 2024-3-14 22:16
+
+It's over?
+
+*****
+
+####  windtrack_qh  
+##### 302#       发表于 2024-3-14 22:16
+
+感觉是炸了吧，黑障也没这么久？
+
+*****
+
+####  bartholo4  
+##### 303#       发表于 2024-3-14 22:16
+
+祝贺🎉
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  madbird023  
+##### 304#       发表于 2024-3-14 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256462&amp;ptid=2164773" target="_blank">瓦格雷 发表于 2024-3-14 22:13</a>
+
+看着黑的</blockquote>
+也许是逆光吧，隔热瓦脱落成那样再入撑不了半分钟的
+
+*****
+
+####  byken  
+##### 305#       发表于 2024-3-14 22:17
+
+数据不动了，G了？
+
+*****
+
+####  RGm  
+##### 306#       发表于 2024-3-14 22:18
+
+炸了吧
+
+*****
+
+####  windrarara  
+##### 307#       发表于 2024-3-14 22:18
+
+数据不动了，开始卖隔热瓦？？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唯登诗树  
+##### 308#       发表于 2024-3-14 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256447&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-3-14 22:11</a>
+
+是冰块</blockquote>
+明显的隔热瓦和外皮
+

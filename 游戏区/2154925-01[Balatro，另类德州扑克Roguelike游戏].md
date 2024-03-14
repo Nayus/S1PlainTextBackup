@@ -5925,3 +5925,28 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 —— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 没想到，已经打完了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  himtom  
+##### 522#       发表于 2024-3-14 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64249883&amp;ptid=2154925" target="_blank">mjwells 发表于 2024-3-14 11:42</a>
+
+直觉上复制重复触发，
+
+钢铁*1.5，多彩*1.5，红蜡封（钢铁*1.5，多彩*1.5），重复触发1.5^4(如果再触发红蜡 ...</blockquote>
+可能是你速度调太快了，没注意吧
+
+多彩在手上不触发
+
+喜与悲只加基础次数，不会额外触发红蜡封
+
+每张牌
+
+喜与悲+男爵，1.5的6次方
+
+复制喜与悲，1.5的8次方
+
+复制男爵，1.5的9次方
+

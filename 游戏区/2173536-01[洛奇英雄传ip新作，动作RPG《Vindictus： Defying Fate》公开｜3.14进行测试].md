@@ -356,3 +356,34 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 第一感觉是3DACT黄油
 
+
+*****
+
+####  绚烂航迹云  
+##### 42#       发表于 2024-3-14 11:54
+
+<blockquote>引用第37楼siro1987于2024-03-14 09:55发表的  :
+
+在steam页面申请试玩马上就通过了</blockquote>
+好像不审批的，点就行
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 43#       发表于 2024-3-14 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64099395&amp;ptid=2173536" target="_blank">悲铃空幻 发表于 2024-2-29 00:20</a>
+
+洛奇什么时候也能出个单机</blockquote>
+原来是要做单机的后来才改的网游
+
+
+*****
+
+####  白河响剑  
+##### 44#       发表于 2024-3-14 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">离谱 我这边频繁闪退
+

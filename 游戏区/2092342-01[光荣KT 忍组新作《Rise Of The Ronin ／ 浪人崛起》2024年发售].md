@@ -4154,3 +4154,13 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 今天会有人扫描法米通的浪人崛起特辑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 1093#       发表于 2024-3-14 11:57
+
+ 本帖最后由 医生狼多 于 2024-3-14 11:58 编辑 
+
+看了下，一条街外一个石火火刀直接飞过去，性能也不是很类人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://twitter.com/RinoTheBouncer/status/1768000213044633637?t=BJx9-iuM8Hh--3xkIcwheg&amp;s=19
+

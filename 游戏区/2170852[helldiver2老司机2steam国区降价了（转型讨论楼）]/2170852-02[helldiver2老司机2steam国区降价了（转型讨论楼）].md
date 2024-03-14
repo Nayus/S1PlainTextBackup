@@ -3373,3 +3373,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 机器人那边也是，举 ...</blockquote>
 明白了
 
+
+*****
+
+####  smdzh2  
+##### 1801#       发表于 2024-3-14 16:57
+
+昨天头一次遇到刷怪，刚从空降舱出来一小队中甲虫+一只坦克虫直接刷我脸上<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -12684,3 +12684,16 @@ DC简中频顶着10秒CD水了5000条了，感觉不久后能超过繁中和印�
 
 隔壁楼说爱马仕骂p，这种情况在sc之前也很常见吗<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 2756#       发表于 2024-3-14 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254338&amp;ptid=2130897" target="_blank">废都刽子手 发表于 2024-3-14 18:52</a>
+隔壁楼说爱马仕骂p，这种情况在sc之前也很常见吗</blockquote>
+赤羽根P那会儿FFF团全盛期啊，躲不了的，MIKI直球的那几话更明显<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。但都是当成常规番的路人居多？
+武内P那会儿倒还可以……？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

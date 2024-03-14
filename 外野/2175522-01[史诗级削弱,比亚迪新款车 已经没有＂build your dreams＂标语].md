@@ -434,3 +434,22 @@ Bang mYgo Dream
 
 明明是史诗级加强
 
+
+*****
+
+####  dalarmar  
+##### 49#       发表于 2024-3-14 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64253092&amp;ptid=2175522" target="_blank">Wenber 发表于 2024-3-14 16:51</a>
+弄个超大号汉字标是最好的  如古文“商”字 逼格爆表</blockquote>
+这几个“商”字看下来，我觉得它们都在笑我……
+
+*****
+
+####  ato489  
+##### 50#       发表于 2024-3-14 19:00
+
+船夫现在最后悔的就是这个名字了吧，要不你也设计个B当车标算了，不然怎么改都难受
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

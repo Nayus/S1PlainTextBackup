@@ -1124,3 +1124,11 @@ GPT4V也挺拉的就是了，幻觉严重
 不懂这波AI最后谁能赢，反正目前就看英伟达就行了:谁挖到黄金有那么重要么？卖铲子的赚翻了才是王道啊[f:06 ...</blockquote>
 我觉得最大赢家应该是国家电网<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TNN  
+##### 110#       发表于 2024-3-14 11:21
+
+笔记本电脑不太可能是现场生成吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -437,3 +437,15 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 能称之为内核的东西一点新的都没有，纯纯边角料，这种东西真的是个正经项目吗？保不齐没上线就砍了
 
+
+*****
+
+####  suija  
+##### 50#       发表于 2024-3-14 15:51
+
+打完了，新游戏+出生不给血瓶一条血打完关卡这个难度不算低了，就像上面老哥说的多段C技基本上很难打满，打了也几乎都是换血<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+还有烈士塔这个打到多个目标的卡肉直接就非常明显的顿挫感，非常影响手感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外boss战时候boss砸地板扬起的特效比较遮挡视线，也非常不舒服，目前玩下来只能说放低期待吧，到时候看看多少妹妹能用是不是卖衣服的游戏管不管mod吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

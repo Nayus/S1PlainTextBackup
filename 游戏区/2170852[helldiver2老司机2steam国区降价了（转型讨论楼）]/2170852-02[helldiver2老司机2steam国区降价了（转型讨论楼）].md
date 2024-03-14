@@ -3870,3 +3870,19 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 原来空降舱对准穿梭机可以直接坐进去的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1852#       发表于 2024-3-15 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雌鬼是真牛马，捡了把去打蘑菇，满蓄8枪才爆，之前我记得是4枪左右，信誓旦旦说没削满蓄威力的是怎么想的
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1853#       发表于 2024-3-15 01:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这两天一直在用制裁跟重炮 换了镰刀打上去虫子没啥反应总有种没打出伤害的感觉
+

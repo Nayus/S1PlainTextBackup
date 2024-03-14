@@ -525,3 +525,14 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 12年的老古董能活到今天全靠卖情趣内衣。
 
+
+*****
+
+####  小贝伦  
+##### 58#       发表于 2024-3-14 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255213&amp;ptid=2173536" target="_blank">真鍮 发表于 2024-3-14 20:20</a>
+
+应该是支持的，但是按过往的经验这游戏用手柄很坐牢</blockquote>
+教程里面有手柄教学但是实际手柄没效不知道是我的手柄问题还是游戏还没适配
+

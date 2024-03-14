@@ -6116,3 +6116,13 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 这话打戏硬说也就那样，细&amp;#x8 ...</blockquote>
 希望最后能清算威思（马哈特闭着眼睛都能猜到会跳反，也就算了），可别像基头四那样稀里糊涂过去了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 4367#         楼主| 发表于 2024-3-14 20:41
+
+第21話「Your song」原画
+<img src="https://p.sda1.dev/16/0f939dc44bbb7aab6ebbf758546913c7/20240314_204107.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/84790bacce2177ccc72ce23b02461b71/20240314_204103.jpg" referrerpolicy="no-referrer">
+

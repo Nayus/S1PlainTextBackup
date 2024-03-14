@@ -3189,3 +3189,16 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 我英文稀烂，build属性根本看不太懂，配合ocr翻译凑合打了二三十个小时，感觉也不是不能玩，文本量确实不 ...</blockquote>
 我高中没及格，那个加点就知道一个力量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qappip  
+##### 260#         楼主| 发表于 2024-3-14 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255068&amp;ptid=2123540" target="_blank">彩虹肥宅 发表于 2024-03-14 20:04:39</a>
+我高中没及格，那个加点就知道一个力量</blockquote>都不是问题，我纯力量号从头到尾就是点力量加到75别的没动，全靠装备给。
+技能点第一个 腰带加个格子多带瓶血。 再点个吸血 或者复仇者 重击增强  看得懂这几个单词就行。
+真正问题是你有深海巨兽恐惧症吗？ 这个不是开玩笑，我朋友那天在客厅看我玩这个，到深水区看到巨蛇的时候，强烈感到不适，我马上关了这游戏才好。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

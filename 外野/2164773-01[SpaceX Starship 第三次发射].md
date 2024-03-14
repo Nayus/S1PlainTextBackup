@@ -595,3 +595,26 @@ T-0再次更新，新时间中部时间8点10分（北京时间21点10分）。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能赶紧打了，别推了
 
+
+*****
+
+####  commcody  
+##### 185#         楼主| 发表于 2024-3-14 20:42
+
+S28和B10都已开始加注。
+
+<img src="https://img.saraba1st.com/forum/202403/14/204238e7m0mmf3u1u3nmh3.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240314204228.jpg</strong> (241.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 20:42 上传
+
+*****
+
+####  susan28  
+##### 186#       发表于 2024-3-14 20:44
+
+这天气打了可惜啊，雾太大了啊。 
+

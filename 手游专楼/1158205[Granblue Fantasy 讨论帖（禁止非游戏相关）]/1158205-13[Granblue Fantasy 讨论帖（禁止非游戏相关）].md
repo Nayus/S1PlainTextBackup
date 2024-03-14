@@ -29,3 +29,16 @@
 
 — from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  osore  
+##### 17764#       发表于 2024-3-14 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251310&amp;ptid=1158205" target="_blank">是这样 发表于 2024-3-14 14:04</a>
+
+这一家三口剧情写的还行了，娜娜西快点落地吧
+
+— from Google Pixel 6, Android 14 of S1 Next Goose v2.5 ...</blockquote>
+人家有菲尼这个真名，名無し只是打工用艺名罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

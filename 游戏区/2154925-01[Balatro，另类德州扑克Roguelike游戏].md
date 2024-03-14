@@ -5950,3 +5950,28 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 复制男爵，1.5的9次方
 
+
+*****
+
+####  mjwells  
+##### 523#       发表于 2024-3-14 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64250094&amp;ptid=2154925" target="_blank">himtom 发表于 2024-3-14 12:00</a>
+
+可能是你速度调太快了，没注意吧
+
+多彩在手上不触发
+
+喜与悲只加基础次数，不会额外触发红蜡封</blockquote>
+那这么理解对不对
+
+钢铁+红蜡封=1.5*2=3，多彩不生效不管他
+
+钢铁+男爵+红蜡封=（1.5*1.5）*2=4.5
+
+钢铁+男爵+红蜡封+默剧演员=（1.5*1.5）*（2+1）=6.75
+
+钢铁+蓝图男爵+男爵+红蜡封+默剧演员=（1.5*1.5*1.5）*（2+1）=10.125
+
+钢铁+男爵+红蜡封+蓝图默剧演员+默剧演员=（1.5*1.5）*（2+1+1）=9
+

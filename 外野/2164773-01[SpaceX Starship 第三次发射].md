@@ -1787,3 +1787,138 @@ It's over?
 第一次看到真正的再入大气层，历史上有别的飞行器再入大气层的照片或者视频吗？ ...</blockquote>
 航天飞机以前拍了不少舷窗外的视频
 
+
+*****
+
+####  bartholo4  
+##### 328#       发表于 2024-3-14 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256625&amp;ptid=2164773" target="_blank">sgbq 发表于 2024-3-14 22:25</a>
+第一次看到真正的再入大气层，历史上有别的飞行器再入大气层的照片或者视频吗？ ...</blockquote>
+录下来的应该有，直播的估计第一份
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  andychen  
+##### 329#       发表于 2024-3-14 22:26
+
+SX指挥中心认为飞船大概率已经损失了，直播即将结束
+
+*****
+
+####  四号舰美浓  
+##### 330#       发表于 2024-3-14 22:27
+
+估计是寄了，理论上一分钟之前就该脱离黑障了，但是信号仍然没有恢复。现在的技术状态倒是可以当一次性火箭用了。
+
+*****
+
+####  前列腺  
+##### 331#       发表于 2024-3-14 22:30
+
+为啥没有电视跟踪红外跟踪之类的画面？
+
+*****
+
+####  andychen  
+##### 332#       发表于 2024-3-14 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256688&amp;ptid=2164773" target="_blank">前列腺 发表于 2024-3-14 22:30</a>
+
+为啥没有电视跟踪红外跟踪之类的画面？</blockquote>
+南印度洋落区那边没部署遥测吧
+
+SX指挥中心确认飞船损失了
+
+*****
+
+####  PuRiPuRi  
+##### 333#       发表于 2024-3-14 22:31
+
+<blockquote>前列腺 发表于 2024-3-14 22:30
+为啥没有电视跟踪红外跟踪之类的画面？</blockquote>
+大概明天就会有地面拍摄的画面了
+
+
+*****
+
+####  瓦格雷  
+##### 334#       发表于 2024-3-14 22:32
+
+正式确认没了
+
+*****
+
+####  瓦格雷  
+##### 335#       发表于 2024-3-14 22:33
+
+<blockquote>sgbq 发表于 2024-3-14 22:25
+第一次看到真正的再入大气层，历史上有别的飞行器再入大气层的照片或者视频吗？ ...</blockquote>
+有的  载人的那种。。。。
+
+*****
+
+####  madbird023  
+##### 336#       发表于 2024-3-14 22:33
+
+官方现场吃饼2333
+
+*****
+
+####  前列腺  
+##### 337#       发表于 2024-3-14 22:33
+
+<blockquote>andychen 发表于 2024-3-14 22:31
+南印度洋落区那边没部署遥测吧
+
+SX指挥中心确认飞船损失了</blockquote>
+飞机都租不起一个吗。。。我不太相信有这么抠
+
+*****
+
+####  susan28  
+##### 338#       发表于 2024-3-14 22:34
+
+结束咯！加油！
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  bartholo4  
+##### 339#       发表于 2024-3-14 22:34
+
+落点完全不确定，地面影像估计难
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  windtrack_qh  
+##### 340#       发表于 2024-3-14 22:34
+
+不知道在哪炸的有没有人拍到大烟花，明天估计能有
+
+*****
+
+####  ohi.02  
+##### 341#       发表于 2024-3-14 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256721&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-3-14 22:33</a>
+官方现场吃饼2333</blockquote>
+It’s PI day 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  =w=  
+##### 342#       发表于 2024-3-14 22:36
+
+搞笑，还准备了饼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+贴下2002年的合照
+<img src="https://imgsrc.baidu.com/forum/pic/item/e1fe9925bc315c604eca85d5cbb1cb13495477a9.jpg" referrerpolicy="no-referrer">
+

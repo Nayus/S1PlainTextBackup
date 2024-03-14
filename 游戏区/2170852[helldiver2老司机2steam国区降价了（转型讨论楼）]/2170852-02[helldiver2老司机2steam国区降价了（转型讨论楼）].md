@@ -3694,3 +3694,16 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Benighted  
+##### 1835#       发表于 2024-3-14 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255734&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-3-14 21:13</a>
+
+我不明白测评说这游戏通行证很公道没pay2win是怎么想的。
+
+别人的通行证只卖皮肤，一点影响gameplay的要素都 ...</blockquote>
+别人通行证有时限啊..这个又不会消失，慢慢肝也行
+

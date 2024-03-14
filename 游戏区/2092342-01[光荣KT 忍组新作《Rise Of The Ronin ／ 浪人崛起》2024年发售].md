@@ -4289,3 +4289,38 @@ skillup还真不太好说，但他是推荐对马和地平线2的，他不喜欢
 危，又一个大主播差评了，这位的游戏品味还是可以的。</blockquote>
 这位主要是哪方面给差评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rushtime33  
+##### 1107#       发表于 2024-3-14 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256541&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-14 22:18</a>
+
+这位主要是哪方面给差评</blockquote>
+他只玩了前5个小时左右。提的还是那几点吧，学其他游戏但是都不精，整个游戏相比对马岛这种游戏很落后，目前体验到的关卡设计不行，战斗缺乏深度（他说虽然有几个流派但是基本上就是一直按一个键），剧情和人物刻画比不上背景很相似的如龙维新。
+
+*****
+
+####  SergeGlenn  
+##### 1108#       发表于 2024-3-14 22:29
+
+Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的一个游戏，而不是他们从底层原创自己方向的开放世界游戏。简化的仁王系战斗+孤岛惊魂式的开放世界，让人担心是否会在使仁王受众失望的同时也没能抓到新受众
+
+
+*****
+
+####  泉美  
+##### 1109#       发表于 2024-3-14 22:33
+
+“基本上就是一直按一个键”
+
+下一个石榴？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uponutopia  
+##### 1110#       发表于 2024-3-14 22:35
+
+从前面COWBOY老哥说简化连招之类的我就有不好的预感了，这下基本判死刑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

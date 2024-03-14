@@ -12676,3 +12676,11 @@ DC简中频顶着10秒CD水了5000条了，感觉不久后能超过繁中和印�
 
 劳苦人小黄和大小姐会长<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好纯良的组合。
 
+
+*****
+
+####  废都刽子手  
+##### 2755#       发表于 2024-3-14 18:52
+
+隔壁楼说爱马仕骂p，这种情况在sc之前也很常见吗<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+

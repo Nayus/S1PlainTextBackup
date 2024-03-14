@@ -3465,3 +3465,25 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 刚够1000币，是换个新债券好还是换上一个好<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KafuuChino  
+##### 1811#       发表于 2024-3-14 18:45
+
+加班开会前上线体验一局新武器，这个镰刀有1号位小盟友的感觉l，后座极低，射起来也爽，基本可视作无限弹药，过热装填也没下毒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，唯一的小问题是开火前会有约半秒的预热；
+
+应该算合格的清轻甲虫武器，甩旁边的长柄镰几条街。
+
+长按R是给了25/50/100m意义不明的瞄准镜）
+
+*****
+
+####  Dashuaibi  
+##### 1812#       发表于 2024-3-14 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254241&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2024-3-14 18:41</a>
+
+刚够1000币，是换个新债券好还是换上一个好</blockquote>
+两个都挺发泥的，非要选第二个好，最强应该是下一期
+

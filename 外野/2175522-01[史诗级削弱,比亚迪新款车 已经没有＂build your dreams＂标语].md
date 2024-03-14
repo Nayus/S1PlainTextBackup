@@ -417,3 +417,20 @@ Bang mYgo Dream
 
 在中国的车就印英文，在国外的就印中文，主打一个文化差异，还能防止串货
 
+
+*****
+
+####  adonai  
+##### 47#       发表于 2024-3-14 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以改成中文：做你丫美梦
+
+—— 来自 realme RMX3560, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nosmokingsp  
+##### 48#       发表于 2024-3-14 18:49
+
+明明是史诗级加强
+

@@ -3512,3 +3512,15 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 下期债券都解包出来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">在哪看
 
+
+*****
+
+####  风萧飒  
+##### 1816#       发表于 2024-3-14 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254629&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-3-14 19:24</a>
+下期债券都解包出来了吗在哪看</blockquote>
+下期叫民主爆破，b站贴吧搜一下就知道了。应该四月第二个星期四更新
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

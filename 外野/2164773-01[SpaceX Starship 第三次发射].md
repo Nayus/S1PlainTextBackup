@@ -499,3 +499,11 @@ SpaceX发推，今日天气70%概率符合发射条件。新的发射时间是�
 SpaceX发推，今日天气70%概率符合发射条件。新的发射时间是中部时间早7点30分（北京时间20点30分）。官方直 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">看图片像是在云层上发射
 
+
+*****
+
+####  bartholo4  
+##### 175#       发表于 2024-3-14 19:26
+
+大雾中
+

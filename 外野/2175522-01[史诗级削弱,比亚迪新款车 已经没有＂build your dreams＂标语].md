@@ -400,3 +400,20 @@ Bang mYgo Dream
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qssk  
+##### 45#       发表于 2024-3-14 18:26
+
+<blockquote>废都刽子手 发表于 2024-3-14 16:29
+改成burns your dream</blockquote>
+看到这个，突然想起了暴雪前ceo考迪克
+
+*****
+
+####  soongone  
+##### 46#       发表于 2024-3-14 18:27
+
+在中国的车就印英文，在国外的就印中文，主打一个文化差异，还能防止串货
+

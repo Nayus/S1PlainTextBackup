@@ -3415,3 +3415,45 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">星球行动统计数据好像恢复了
 
+
+*****
+
+####  rgauss  
+##### 1805#       发表于 2024-3-14 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">落地卡房子里了 转了半天 房子烂掉之后才出来
+
+*****
+
+####  风萧飒  
+##### 1806#       发表于 2024-3-14 18:29
+
+云了一下，那个等离子制裁者伤害看着还行，但是下坠有点蠢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1807#       发表于 2024-3-14 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说更债券就更债券 一点多的没有
+
+*****
+
+####  ykyin09  
+##### 1808#       发表于 2024-3-14 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64253742&amp;ptid=2170852" target="_blank"> Launce 发表于 2024-3-14 17:49</a>  超级气球设定附件： </blockquote>
+把西伯利亚中亚还有英国炸成废土了来自: iPhone客户端
+
+*****
+
+####  风萧飒  
+##### 1809#       发表于 2024-3-14 18:31
+
+箭头确实很诚实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

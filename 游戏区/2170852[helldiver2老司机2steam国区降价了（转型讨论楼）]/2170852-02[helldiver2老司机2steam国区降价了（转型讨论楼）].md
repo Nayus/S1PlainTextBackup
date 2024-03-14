@@ -3289,3 +3289,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 分享一个逆天bug，手雷丢完之后摁一下战备键（手柄LB），然后bomb，你有无限手雷了
 
+
+*****
+
+####  wthall  
+##### 1793#       发表于 2024-3-14 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251515&amp;ptid=2170852" target="_blank">猫溺泉君 发表于 2024-3-14 14:28</a>
+
+分享一个逆天bug，手雷丢完之后摁一下战备键（手柄LB），然后bomb，你有无限手雷了 ...</blockquote>
+没看懂
+

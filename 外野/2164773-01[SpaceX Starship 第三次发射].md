@@ -1159,3 +1159,115 @@ SS关机后疑似有大量泄漏，不知道有没有问题
 
 开门了吗  画面切换了 
 
+
+*****
+
+####  四号舰美浓  
+##### 254#       发表于 2024-3-14 21:44
+
+正在播出燃料舱画面。主燃料舱几乎全部排放。不确定下方信息栏的剩余燃料是不是都在球形着陆燃料蓄箱里。
+
+*****
+
+####  madbird023  
+##### 255#       发表于 2024-3-14 21:45
+
+开仓门了，里边锃光瓦亮
+
+*****
+
+####  哈里-谢顿  
+##### 256#       发表于 2024-3-14 21:46
+
+马老板这夏威夷鬼畜小曲哪里找来的
+
+*****
+
+####  bartholo4  
+##### 257#       发表于 2024-3-14 21:47
+
+超重丢画面的时候高度只有 1km，应该还是姿态失稳，发动机重点火也没成功
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  commcody  
+##### 258#         楼主| 发表于 2024-3-14 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉是因为第一次飞到这儿，SpaceX正配合着这欢乐的BGM玩RCS。
+
+*****
+
+####  phorcys02  
+##### 259#       发表于 2024-3-14 21:48
+
+给的画面里，隔热瓦似乎破了四五块
+
+*****
+
+####  iluso  
+##### 260#       发表于 2024-3-14 21:49
+
+明天新闻标题 《星舰一级火箭着陆失败》?
+
+*****
+
+####  =w=  
+##### 261#       发表于 2024-3-14 21:50
+
+音乐好听，好浪漫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andychen  
+##### 262#       发表于 2024-3-14 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256052&amp;ptid=2164773" target="_blank">单流灯塔 发表于 2024-3-14 21:38</a>
+
+这里是不是掉了块隔热瓦，等会又要放烟花了吧</blockquote>
+每回都要掉，这回算掉得很少了
+
+*****
+
+####  windtrack_qh  
+##### 263#       发表于 2024-3-14 21:51
+
+牛逼了喔，刷新最大发射重量记录了吧？能上去就很牛逼了，等会二级回收要是成了那真是人类空天科技伟大的一步了
+
+*****
+
+####  susan28  
+##### 264#       发表于 2024-3-14 21:52
+
+曲子选的好，挺好听。
+
+星舰好像在太空中跳华尔兹。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  andychen  
+##### 265#       发表于 2024-3-14 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256231&amp;ptid=2164773" target="_blank">windtrack_qh 发表于 2024-3-14 21:51</a>
+
+牛逼了喔，刷新最大发射重量记录了吧？能上去就很牛逼了，等会二级回收要是成了那真是人类空天科技伟大的一 ...</blockquote>
+二级这回不回收，一会儿就离轨砸下来
+
+*****
+
+####  madbird023  
+##### 266#       发表于 2024-3-14 21:52
+
+舱门关闭
+
+*****
+
+####  单流灯塔  
+##### 267#       发表于 2024-3-14 21:53
+
+这音乐总有种要放fly me to the moon的感觉
+

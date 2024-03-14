@@ -73,3 +73,11 @@ pc党本来也没打算买ps5，上pc属于额外的玩家何来萎缩的说法�
 
 —— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  droglo  
+##### 197#       发表于 2024-3-14 21:49
+
+好，PS5的卡卡罗特可以秒白
+

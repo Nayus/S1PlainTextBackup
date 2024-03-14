@@ -719,3 +719,25 @@ BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也�
 
 这属于是根本不给手残一点逃课的空间了。<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">如果正式版也这样怕是冲着**角色过去的人要骂娘
 
+
+*****
+
+####  Byooon  
+##### 76#       发表于 2024-3-15 04:10
+
+ 本帖最后由 Byooon 于 2024-3-15 04:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64258470&amp;ptid=2173536" target="_blank">Disturbia 发表于 2024-3-15 02:43</a>
+
+其实讲道理的话 这个小红还不算难吧 原版的可是一锤一个萌新的
+
+横向对比的话感觉没环开局硬钢大树 ...</blockquote>
+从战斗本身来说至少boss动作处理得相当可以。我玩的是盾娘机制上基本属于是轻重防御和闪躲并用应对boss相对多变的攻击模式，这点比市面上绝大多数动作游戏包括贝姐啥的都强。
+
+对比环和其他那种类魂的一路翻滚或者卧龙这种化劲到世界末日的单一处理模式动作游戏的纵深感立刻出来了。。
+
+Boss左右攻击的区分也相当精确。左滚右滚不会被卡模型，也不会有boss一刀下来明明没碰到你结果被打飞的情况。
+
+感觉内裤松这个新坑确实有点东西。
+
+好久没玩得这么爽了。
+

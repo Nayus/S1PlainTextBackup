@@ -661,3 +661,11 @@ BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也�
 
 但是撞到起手红光就毫无办法，你要是正在攻击大概率躲不掉，尤其是2连红光
 
+
+*****
+
+####  Disturbia  
+##### 71#       发表于 2024-3-15 02:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地精族长4次过 小红搞了快1个小时 nm二连红光真的绷不住 老是想贪
+

@@ -9939,3 +9939,16 @@ ppp这张图，ars应得的。<img src="https://static.saraba1st.com/image/smile
 <img src="https://s2.loli.net/2024/03/15/Pgao3XrtJdhALKn.png" referrerpolicy="no-referrer">
 乐，我几年前抽的五宝水迦摩现在依然活动打地铺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 14174#       发表于 2024-3-15 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64258430&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-15 02:17</a>
+
+乐，我几年前抽的五宝水迦摩现在依然活动打地铺</blockquote>
+废狗保质期已经很高那一档了，不追求六加成的话甚至不用高宝，活动从者有地铺资格的游戏你上哪找。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你邦糊糊的还是别跟大IP比了，要恰米的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

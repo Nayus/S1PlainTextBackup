@@ -1113,3 +1113,14 @@ GPT4V也挺拉的就是了，幻觉严重
 
 2024-3-14 06:47 上传
 
+
+*****
+
+####  septem123  
+##### 109#       发表于 2024-3-14 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64208830&amp;ptid=2174906" target="_blank">软妹摇摇乐 发表于 2024-3-10 16:30</a>
+
+不懂这波AI最后谁能赢，反正目前就看英伟达就行了:谁挖到黄金有那么重要么？卖铲子的赚翻了才是王道啊[f:06 ...</blockquote>
+我觉得最大赢家应该是国家电网<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

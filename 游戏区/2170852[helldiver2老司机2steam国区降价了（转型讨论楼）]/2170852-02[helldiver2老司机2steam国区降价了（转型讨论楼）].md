@@ -2960,3 +2960,29 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 —— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  jy000129  
+##### 1760#       发表于 2024-3-14 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64247517&amp;ptid=2170852" target="_blank">yujohn 发表于 2024-3-14 08:15</a>
+人这么少为什么昨晚我还要排队进
+
+—— 来自 samsung SM-S9110, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+大概是临时租的服务器到期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  赤井稻妻  
+##### 1761#       发表于 2024-3-14 08:34
+
+ 本帖最后由 赤井稻妻 于 2024-3-14 08:35 编辑 
+
+守塔图也没有任何行星效果，直接电弧配喷火器，再无限丢筒子就完事了，有配合的话每个电池尽量开一只机甲出来，每个机甲至少能解三个泰坦，怎么都够了
+
+唯一难点是电池吃友伤，不能用500炸泰坦，第一天玩的时候泰坦一来电池就倒我怀疑是有人用500炸的
+

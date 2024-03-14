@@ -2986,3 +2986,15 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 唯一难点是电池吃友伤，不能用500炸泰坦，第一天玩的时候泰坦一来电池就倒我怀疑是有人用500炸的
 
+
+*****
+
+####  eno_emos  
+##### 1762#       发表于 2024-3-14 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64247635&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-14 08:34</a>
+
+守塔图也没有任何行星效果，直接电弧配喷火器，再无限丢筒子就完事了，有配合的话每个电池尽量开一只机甲出 ...</blockquote>
+实际上底下那一圈电池每个都有独立血量，只要有一个电池还活着就能任务成功，无非反复多试几次
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">所以只要你不是围着炸一整圈都没问题的，重启一下又可以继续走进度条了
+

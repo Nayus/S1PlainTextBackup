@@ -3707,3 +3707,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 别人的通行证只卖皮肤，一点影响gameplay的要素都 ...</blockquote>
 别人通行证有时限啊..这个又不会消失，慢慢肝也行
 
+
+*****
+
+####  山风短  
+##### 1836#       发表于 2024-3-14 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256140&amp;ptid=2170852" target="_blank">calcium20 发表于 2024-3-14 21:44</a>
+这n9守塔泰坦猛刷玩不了一点，一开电池就有3-4只刷出来，以为杀完最后一只一看平地又生出来三只真的 ...</blockquote>
+昨天守最后一个电池的时候，我一个人溜两只泰坦稀里糊涂过了，不知道这个仇恨系统是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

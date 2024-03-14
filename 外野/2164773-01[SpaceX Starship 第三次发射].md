@@ -1922,3 +1922,143 @@ It’s PI day
 贴下2002年的合照
 <img src="https://imgsrc.baidu.com/forum/pic/item/e1fe9925bc315c604eca85d5cbb1cb13495477a9.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 343#       发表于 2024-3-14 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256723&amp;ptid=2164773" target="_blank">前列腺 发表于 2024-3-14 22:33</a>
+
+飞机都租不起一个吗。。。我不太相信有这么抠</blockquote>
+因为预期了任务可能会出问题，这回落区划得非常大，从马达加斯加一直画到澳大利亚
+
+考虑到最后阶段没啥任务规划，估计就摆了
+
+*****
+
+####  madbird023  
+##### 344#       发表于 2024-3-14 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256742&amp;ptid=2164773" target="_blank">ohi.02 发表于 2024-3-14 22:35</a>
+
+It’s Pi day 
+
+—— 来自 S1Fun</blockquote>
+原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yck019  
+##### 345#       发表于 2024-3-14 22:39
+
+其实我想问为什么我国航空航天的视频画面都那么糊？难道是保密要求吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tsukatsukieiko  
+##### 346#       发表于 2024-3-14 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256778&amp;ptid=2164773" target="_blank">yck019 发表于 2024-3-14 22:39</a>
+
+其实我想问为什么我国航空航天的视频画面都那么糊？难道是保密要求吗？
+
+—— 来自 S1Fun ...</blockquote>
+视频live没啥需求，带宽给遥测信号重要很多。
+
+还有就是东风5再改剁手实在太老也太成熟了。
+
+
+*****
+
+####  唯登诗树  
+##### 347#       发表于 2024-3-14 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256697&amp;ptid=2164773" target="_blank">andychen 发表于 2024-3-14 22:31</a>
+
+南印度洋落区那边没部署遥测吧
+
+SX指挥中心确认飞船损失了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/14/224155oq1fau9j8l5l88l8.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240314223340.jpg</strong> (41.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 22:41 上传
+
+已经歪出预定海域很远了，就是安排遥测也没戏
+
+*****
+
+####  唯登诗树  
+##### 348#       发表于 2024-3-14 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256778&amp;ptid=2164773" target="_blank">yck019 发表于 2024-3-14 22:39</a>
+
+其实我想问为什么我国航空航天的视频画面都那么糊？难道是保密要求吗？
+
+—— 来自 S1Fun ...</blockquote>
+我国就是比spaceX糊，剩下都吊打吧，你看SLS和JAXA那连个摄像头都没有
+
+*****
+
+####  Novagelion  
+##### 349#       发表于 2024-3-14 22:44
+
+<blockquote>唯登诗树 发表于 2024-3-14 22:42
+已经歪出预定海域很远了，就是安排遥测也没戏</blockquote>
+这是哪个管人？
+
+*****
+
+####  缺德猫  
+##### 350#       发表于 2024-3-14 22:45
+
+感觉成事了啊，时间问题
+
+
+*****
+
+####  瓦格雷  
+##### 351#       发表于 2024-3-14 22:46
+
+<blockquote>=w= 发表于 2024-3-14 22:36
+搞笑，还准备了饼
+
+贴下2002年的合照</blockquote>
+那时候马斯克还没有头发 哈哈
+
+*****
+
+####  longmarch5  
+##### 352#       发表于 2024-3-14 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256778&amp;ptid=2164773" target="_blank">yck019 发表于 2024-3-14 22:39</a>
+
+其实我想问为什么我国航空航天的视频画面都那么糊？难道是保密要求吗？
+
+—— 来自 S1Fun ...</blockquote>
+神舟飞船上面摄像分辨率352×288，含伴音的传输带宽不超过768kbit/s，画质当然糊。
+
+至于为什么不改——
+
+1修改原始设计要慎之又慎
+
+2又不是不能用
+
+*****
+
+####  yck019  
+##### 353#       发表于 2024-3-14 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256863&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-14 22:47</a>
+
+神舟飞船上面摄像分辨率352×288，含伴音的传输带宽不超过768kbit/s，画质当然糊。
+
+至于为什么不改——</blockquote>
+原来如此
+

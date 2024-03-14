@@ -4324,3 +4324,11 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 从前面COWBOY老哥说简化连招之类的我就有不好的预感了，这下基本判死刑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WhiteGlint  
+##### 1111#       发表于 2024-3-14 22:39
+
+真简化成一个键那小小弟和小弟一起手拉手跳日本海吧
+

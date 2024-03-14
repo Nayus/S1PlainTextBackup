@@ -9781,3 +9781,23 @@ anon
 
 AJ2024现场会展mujica的演出服，不知道会不会宣第二季的pv
 
+
+*****
+
+####  PDQ4  
+##### 14160#       发表于 2024-3-14 22:39
+
+ 本帖最后由 PDQ4 于 2024-3-14 22:40 编辑 
+
+鸡什么时候定档pv给点新画面，提前一年多动画化宣传是否你邦最长战线，那个pv新的甚至只有logo。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+鸡官号都没管wsd那个pv，估计要动也要2nd之后了，还是先展望4.10吧，周年不知道会不会动动。以及碟特现在还没宣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及又是没有鸡的邦tv，下次生放在何时，节约梦以米泽来一个好不好，让我看看要高尾当吐槽役的实力<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+syl，怎么漏油还能吵曲子代什么cp的，甚至联系到踩糖。难道有人造假药破防了，这是哪里有我不知道的战场开辟了吗，有没有那样的传送门让我看看。<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+高尾李子代双月我觉得好事，乐观的讲说明每个曲子都有背景小故事，上次小剧场没带双月、CSC、神蠢、角玩。可以期待下曲子的中之人解读，这是新鸡料啊，不过神蠢睦祥角初祥太明显了，个人最好奇CSC<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+比某些被官方否了的角色理解好多了好吧，官方踩糖<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

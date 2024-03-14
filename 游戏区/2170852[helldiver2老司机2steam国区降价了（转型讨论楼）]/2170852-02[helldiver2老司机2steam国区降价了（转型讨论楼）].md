@@ -3360,3 +3360,16 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 机器人那边也是，举手的打死没事，信号弹出膛再打也没用了。
 
+
+*****
+
+####  lzw1990  
+##### 1800#       发表于 2024-3-14 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252751&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-14 16:24</a>
+
+就是打晚了，撅屁股就要打，烟出来基本就必定拉警报了。冒的烟是虫洞突破地面的烟。
+
+机器人那边也是，举 ...</blockquote>
+明白了
+

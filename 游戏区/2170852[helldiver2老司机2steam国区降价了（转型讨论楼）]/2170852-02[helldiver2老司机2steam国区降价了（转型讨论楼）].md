@@ -3850,3 +3850,23 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 （顺便一提，开黑也能特定出主机所在地）
 
+
+*****
+
+####  Launce  
+##### 1850#       发表于 2024-3-15 00:46
+
+ 本帖最后由 Launce 于 2024-3-15 00:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257922&amp;ptid=2170852" target="_blank">mengsu 发表于 2024-3-15 00:28</a>
+
+这镰刀好用是挺好用，不过这发射效果怎么看也不是激光武器啊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是披着激光粒子特效的步枪，纯牛马，打指挥虫的脚还不如骑士打的快
+
+
+*****
+
+####  smdzh2  
+##### 1851#       发表于 2024-3-15 00:52
+
+原来空降舱对准穿梭机可以直接坐进去的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

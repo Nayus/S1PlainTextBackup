@@ -3761,3 +3761,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  airshit  
+##### 1842#       发表于 2024-3-14 23:28
+
+不是叮一下就全部解锁了，根本不需要刷把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这更新完又多个怪bug，有时候操作一下直接从游戏里退出到战舰上，打了几十分钟全部木大<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

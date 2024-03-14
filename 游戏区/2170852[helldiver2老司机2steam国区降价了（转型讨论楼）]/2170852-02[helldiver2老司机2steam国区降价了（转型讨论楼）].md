@@ -3208,3 +3208,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三人打n7守塔被虫子冲得支离破碎，超级气球能不能把这**电池塔的制造商也一起击毙了来自: iPhone客户端
 
+
+*****
+
+####  赤井稻妻  
+##### 1785#       发表于 2024-3-14 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64249739&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-3-14 11:29</a>
+
+上升的原因不一定是清理哨站吧，应该是战局时间长，加快了怪的刷新速度 ...</blockquote>
+控制变量测试的结果不是的，关于这个的讨论也很多，因为游戏提示里确实有这一条
+

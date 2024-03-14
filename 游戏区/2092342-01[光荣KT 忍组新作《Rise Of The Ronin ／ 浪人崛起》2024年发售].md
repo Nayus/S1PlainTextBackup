@@ -4172,3 +4172,24 @@ u1s1暴论一下，饭刚落必须落地以后对面头跟西瓜一样碎掉才�
 
 NGA有个老哥开楼整理今天的法米通特辑里的信息了
 
+
+*****
+
+####  Gigax  
+##### 1095#       发表于 2024-3-14 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64250062&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-3-14 11:57</a>
+
+看了下，一条街外一个石火火刀直接飞过去，性能也不是很类人啊https://twitter.com/RinoTheBouncer/ ...</blockquote>
+我们隐刃人在锻炼的同时刀和钩锁也在锻炼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ranapocket  
+##### 1096#       发表于 2024-3-14 12:36
+
+我可能是少数期待剧情的人。
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

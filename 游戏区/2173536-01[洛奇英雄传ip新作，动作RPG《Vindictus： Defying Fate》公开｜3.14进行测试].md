@@ -580,3 +580,17 @@ BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也�
 
 冰风谷也太卡了，还有霸体怪，好恶心。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 64#       发表于 2024-3-14 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉怪都比以前疯是我的错觉吗
+
+这么堆怪但是主角性能没更新 群殴等于换血
+
+时装真不错<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">盾娘钻狗洞能看到奈子的青筋
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果游戏打磨的好点可以整一个玩一玩，现在这个质量我只能说比那个国产的嗜血印好点……
+

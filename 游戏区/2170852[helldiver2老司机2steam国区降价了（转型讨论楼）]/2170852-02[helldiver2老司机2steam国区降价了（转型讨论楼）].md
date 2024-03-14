@@ -3607,3 +3607,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 1826#       发表于 2024-3-14 21:04
+
+另外不得不吐槽他这个尊享债卷的护甲设计，两个债卷都是三套特性一模一样的甲，遥遥领先还算好至少第三页给了套轻甲，老兵三套除了外观以外没有任何区别不知道怎么想的，轻中重各给一套很难么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

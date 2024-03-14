@@ -12733,3 +12733,13 @@ miki我能想到的cp第一反应就961老同事或小翅膀，但前者动画�
 
 啊，我还以为当年的fff就是萌二开玩笑玩梗的，没想到还真冲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2761#       发表于 2024-3-14 21:06
+
+ 本帖最后由 RhmBWT_Wu 于 2024-3-14 21:07 编辑 
+
+B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说我又不玩游戏关我什么事，用的还是现在已经没法发的大号字体，令人怀念<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

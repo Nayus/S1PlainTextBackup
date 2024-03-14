@@ -3057,3 +3057,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磁轨炮之前的削弱配合这次砍重甲是真的太小丑了，也不回退修改不知道在想什么
 
+
+*****
+
+####  wthall  
+##### 1769#       发表于 2024-3-14 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为机甲也一堆bug啊，各种自爆，不爱用不是很正常的么。
+
+连个自爆的规律都摸不出来，你怎么操控？
+

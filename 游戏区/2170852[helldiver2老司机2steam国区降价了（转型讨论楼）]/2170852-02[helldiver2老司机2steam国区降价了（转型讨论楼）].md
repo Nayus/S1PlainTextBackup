@@ -3806,3 +3806,29 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没给我顺带塞进武器库里
 
+
+*****
+
+####  runningch  
+##### 1845#       发表于 2024-3-15 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256570&amp;ptid=2170852" target="_blank">PlasmaSnake 发表于 2024-3-14 22:20</a>
+债券卖1000太贵了，前作一个dlc我记得原价也就30块，你几把破枪一个月卖49真当是小月卡咯 ...</blockquote>
+我觉得价格不是大问题，问题是买了还得肝，氪佬也氪得不爽
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Launce  
+##### 1846#       发表于 2024-3-15 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ONP。野人房掉出来，又开始卡快速匹配了
+
+*****
+
+####  白昼梦  
+##### 1847#       发表于 2024-3-15 00:09
+
+刚才打难7守塔 遇到喷液虫配置的 怪莫名的少，不知道跟那个定位混淆的被动有没有关系
+

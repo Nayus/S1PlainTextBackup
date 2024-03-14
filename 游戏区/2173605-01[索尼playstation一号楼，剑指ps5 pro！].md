@@ -144,3 +144,13 @@ pc党本来也没打算买ps5，上pc属于额外的玩家何来萎缩的说法�
 
 2k22和2k23都进过psn一档或者二档会免过，不知道nga啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rowen233  
+##### 204#       发表于 2024-3-15 00:14
+
+pc上啥游戏有ds的属性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有我就闲鱼蹲一台单主机了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

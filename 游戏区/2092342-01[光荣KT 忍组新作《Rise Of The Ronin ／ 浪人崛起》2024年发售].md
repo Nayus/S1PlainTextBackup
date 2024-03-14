@@ -4451,3 +4451,11 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 看这意思大概是没有类似C技的派生了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霖岚_  
+##### 1126#       发表于 2024-3-15 00:10
+
+残心+架势+武技再怎么简单也不至于一个键能打完吧，还是因为没玩高难度的原因
+

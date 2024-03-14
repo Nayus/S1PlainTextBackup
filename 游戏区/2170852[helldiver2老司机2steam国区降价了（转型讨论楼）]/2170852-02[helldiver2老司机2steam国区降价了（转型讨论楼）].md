@@ -3261,3 +3261,15 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 三人打n7守塔被虫子冲得支离破碎，超级气球能不能把这**电池塔的制造商也一起击毙了 ...</blockquote>
 这守塔任务单刷比多人简单多了，手残都能过N7[https://www.acfun.cn/v/ac44013237](https://www.acfun.cn/v/ac44013237)
 
+
+*****
+
+####  Launce  
+##### 1790#       发表于 2024-3-14 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64250931&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-14 13:21</a>
+
+我单刷也会虚空刷怪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个跟人研究过，因为AI是靠玩家分担计算的，和触发虫潮就会减少另一边一样，单人刷出的怪其实是地图另一边你甩开的发呆怪，因为到了巡逻点加上出了范围，就瞬移回来堵你
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">380加强的时候我就跟人吐槽过，你搞那么长时间是听着爽，但是虫群都可以瞬到别的地方出来继续干你
+

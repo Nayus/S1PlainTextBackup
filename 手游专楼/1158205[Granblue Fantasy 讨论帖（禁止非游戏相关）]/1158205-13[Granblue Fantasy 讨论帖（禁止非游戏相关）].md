@@ -19,3 +19,13 @@
 这次有头有脸的强者出场差不多了吧，我本来以为zoe也会出场的，可惜了</blockquote>
 感谢，主要是我太咸了超限天人啥的是肯定没有的。两边看了下石油弓除了省一个位置外还能手操耍耍技伤，石油杖就真的是靠未来的新的杖职业未来可期了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是这样  
+##### 17763#       发表于 2024-3-14 14:04
+
+这一家三口剧情写的还行了，娜娜西快点落地吧
+
+— from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -2267,3 +2267,11 @@ ytb新女帝，vspo赶超hololive指日可待<img src="https://static.saraba1st.
 
 北见我对他没什么印象，不过ness我对他印象很深就是因为vta初配信很像劣化版葛皇……很难想象vta时期主打一个屑的人怎么出道领了优秀执事的设定，这下卖反差了
 
+
+*****
+
+####  高等黑暗  
+##### 89#       发表于 2024-3-15 01:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">想知道STGR变装的本尊是谁可以进STGR的官方discord里面有个变装咨询频道可以直接问或者搜，虽然我也不太会用discord不知道怎么搜索聊天记录（
+

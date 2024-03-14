@@ -5896,3 +5896,19 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  mjwells  
+##### 520#       发表于 2024-3-14 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64249099&amp;ptid=2154925" target="_blank">himtom 发表于 2024-03-14 10:37:20</a>
+直觉上也是复制男爵啊
+
+复制喜与悲是3次变4次，复制男爵是2次变3次</blockquote>直觉上复制重复触发，
+钢铁*1.5，多彩*1.5，红蜡封*2，重复触发*2，再重复触发*2
+复制k，
+钢铁*1.5，多彩*1.5，红蜡封*2，k*1.5，再k*1.5
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

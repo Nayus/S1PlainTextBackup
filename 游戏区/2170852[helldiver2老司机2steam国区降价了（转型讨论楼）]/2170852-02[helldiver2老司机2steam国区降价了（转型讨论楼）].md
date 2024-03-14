@@ -3145,3 +3145,36 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 昨天n7四个人的撤离三个人闪退，撤离战连坦克虫都没了，直接喷火单防。说明怪物应该就是按玩家单独触发的，指不定还和玩家等级挂钩
 
+
+*****
+
+####  runningch  
+##### 1778#       发表于 2024-3-14 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64247900&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-14 09:04</a>
+这加密，如密，飞龙新闻被挖出来了，超神水发明人被超级气球撅了</blockquote>
+箭头真是又菜又爱玩，想保持神秘感就别把东西提前塞进游戏里啊。
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Launce  
+##### 1779#       发表于 2024-3-14 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64249866&amp;ptid=2170852" target="_blank">runningch 发表于 2024-03-14 11:41:14</a>
+箭头真是又菜又爱玩，想保持神秘感就别把东西提前塞进游戏里啊。
+
+—— 来自 Sony SOG01, Android 11上的 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">提前塞很正常，问题在于据说和1同款引擎加密，前作已经有完善拆包的工具了，所以被拆的支离破碎
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  novyMS  
+##### 1780#       发表于 2024-3-14 11:45
+
+这游戏最近怎么匹配不到人
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

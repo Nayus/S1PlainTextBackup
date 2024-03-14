@@ -669,3 +669,25 @@ BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地精族长4次过 小红搞了快1个小时 nm二连红光真的绷不住 老是想贪
 
+
+*****
+
+####  Disturbia  
+##### 72#       发表于 2024-3-15 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257504&amp;ptid=2173536" target="_blank">Byooon 发表于 2024-3-14 23:46</a>
+
+基本就是MMO初版的玩家性能降低了一圈，然后敌人全体打鸡血+多动症+界王拳。至于完成度dev好像也是拿这个 ...</blockquote>
+其实熟悉一下就行了 我也是打着打着才找到当年的感觉
+
+洛英就是讲究一个高速战斗高频率互动 一场boss战强度挺高的
+
+*****
+
+####  Disturbia  
+##### 73#       发表于 2024-3-15 02:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实讲道理的话 这个小红还不算难吧 原版的可是一锤一个萌新的
+
+横向对比的话感觉没环开局硬钢大树守卫难
+

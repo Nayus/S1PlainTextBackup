@@ -5880,3 +5880,19 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 复制喜与悲是3次变4次，复制男爵是2次变3次
 
+
+*****
+
+####  a4ac7  
+##### 519#       发表于 2024-3-14 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64245402&amp;ptid=2154925" target="_blank">mjwells 发表于 2024-3-13 22:27</a>
+一把爽局，12张多彩、钢铁、红色蜡封的K
+
+小丑：
+
+手牌+2出牌-1、</blockquote>
+设置里速度调慢看看一张牌触发几次
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

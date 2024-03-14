@@ -9598,3 +9598,13 @@ amt还演过这</blockquote>
 
 官方粮很多吃得太好提升了我的嗑到门槛，只有magnet那种程度的我觉得才能叫cp曲，不知道邦多利有没有兴趣搞团内合唱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 14144#       发表于 2024-3-14 18:07
+
+原来独角兽今年还有活<img src="https://p.sda1.dev/16/94f66b05508f8dc83e4d47c4f05900fa/IMG_CMP_263366460.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -2281,3 +2281,15 @@ SX指挥中心确认飞船损失了</blockquote>
 这个烟怎么红褐色的？调色原因吗</blockquote>
 地上的土都被掏到天上了
 
+
+*****
+
+####  lexi  
+##### 376#       发表于 2024-3-15 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256863&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-14 22:47</a>
+
+神舟飞船上面摄像分辨率352×288，含伴音的传输带宽不超过768kbit/s，画质当然糊。
+
+至于为什么不改——</blockquote>很多工业皇冠上的明珠到现在还在用几十年前生产的32位CPU呢，你觉得为什么？理由确实就是没必要为了死宅看直播更爽而更改设计，增加成本、复杂度和未知风险。
+

@@ -3178,3 +3178,14 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 —— 来自 OPPO PGJM10, Android 13上的 S1Next-鹅版 v2.5.2-play</blockquote>
 我英文稀烂，build属性根本看不太懂，配合ocr翻译凑合打了二三十个小时，感觉也不是不能玩，文本量确实不大，英文有高中及格分估计畅玩吧
 
+
+*****
+
+####  彩虹肥宅  
+##### 259#       发表于 2024-3-14 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254907&amp;ptid=2123540" target="_blank">慕容断月 发表于 2024-3-14 19:51</a>
+
+我英文稀烂，build属性根本看不太懂，配合ocr翻译凑合打了二三十个小时，感觉也不是不能玩，文本量确实不 ...</blockquote>
+我高中没及格，那个加点就知道一个力量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

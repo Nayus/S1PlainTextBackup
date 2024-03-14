@@ -12705,3 +12705,11 @@ DC简中频顶着10秒CD水了5000条了，感觉不久后能超过繁中和印�
 
 不太懂，感觉这些人心态上要不就是觉得妨碍自己磕女女cp了，要不就是觉得跟自己抢老婆了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 2758#       发表于 2024-3-14 20:11
+
+看了下官方dc，简中频道成最活跃的了
+

@@ -12713,3 +12713,23 @@ DC简中频顶着10秒CD水了5000条了，感觉不久后能超过繁中和印�
 
 看了下官方dc，简中频道成最活跃的了
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2759#       发表于 2024-3-14 20:51
+
+赤羽根p被骂甩锅百合挺离谱的
+当年的风向不就是fff吗，有男女在一起就开烧，我记得经典弹幕还有烧男不烧女，感觉16年17年还有后面渐渐没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+miki我能想到的cp第一反应就961老同事或小翅膀，但前者动画唯一要素大概是op2三人吸血鬼那身衣服，后者那会还没影呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+真要说卖cp也是红蓝 真雪 贫富这三对吧
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViviR  
+##### 2760#       发表于 2024-3-14 20:54
+
+啊，我还以为当年的fff就是萌二开玩笑玩梗的，没想到还真冲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

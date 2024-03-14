@@ -618,3 +618,20 @@ S28和B10都已开始加注。
 
 这天气打了可惜啊，雾太大了啊。 
 
+
+*****
+
+####  commcody  
+##### 187#         楼主| 发表于 2024-3-14 20:57
+
+SpaceX官方直播已开始，现距离发射不到30分钟。
+
+*****
+
+####  notfill2020  
+##### 188#       发表于 2024-3-14 20:57
+
+赶上了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

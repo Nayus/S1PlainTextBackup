@@ -81,3 +81,11 @@ pc党本来也没打算买ps5，上pc属于额外的玩家何来萎缩的说法�
 
 好，PS5的卡卡罗特可以秒白
 
+
+*****
+
+####  csolfans  
+##### 198#       发表于 2024-3-14 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">嗨，为啥PS5还不更新全局LFC
+

@@ -3717,3 +3717,19 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 这n9守塔泰坦猛刷玩不了一点，一开电池就有3-4只刷出来，以为杀完最后一只一看平地又生出来三只真的 ...</blockquote>
 昨天守最后一个电池的时候，我一个人溜两只泰坦稀里糊涂过了，不知道这个仇恨系统是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 1837#       发表于 2024-3-14 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最烦的还是买了通行证还要肝奖章，现在通行证少还没那么明显，再出个两三张就一大堆人受不了了
+
+
+*****
+
+####  Mr.Hopp  
+##### 1838#       发表于 2024-3-14 22:55
+
+想想这游戏怎么做成刷刷刷，估计只能做各种衣服刷词条了。
+

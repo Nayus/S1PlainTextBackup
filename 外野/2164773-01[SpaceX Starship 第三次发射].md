@@ -2062,3 +2062,71 @@ SX指挥中心确认飞船损失了</blockquote>
 至于为什么不改——</blockquote>
 原来如此
 
+
+*****
+
+####  革萌  
+##### 354#       发表于 2024-3-14 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256863&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-14 22:47</a>
+
+神舟飞船上面摄像分辨率352×288，含伴音的传输带宽不超过768kbit/s，画质当然糊。
+
+至于为什么不改——</blockquote>
+天宫上的摄像头就是1080了
+
+*****
+
+####  凉良  
+##### 355#       发表于 2024-3-14 22:51
+
+我国商业发射直播能不能也搞娱乐化点 一起听听小曲吹吹牛逼卖卖周边 失败了也能在欢声笑语中看个大烟花。 
+
+
+*****
+
+####  flypig_zhy  
+##### 356#       发表于 2024-3-14 22:53
+
+哦草，不记得看直播了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">，可惜还是没完全成功
+
+*****
+
+####  andychen  
+##### 357#       发表于 2024-3-14 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256778&amp;ptid=2164773" target="_blank">yck019 发表于 2024-3-14 22:39</a>
+其实我想问为什么我国航空航天的视频画面都那么糊？难道是保密要求吗？
+
+—— 来自 S1Fun ...</blockquote>
+神舟飞船和长2F都是30年前设计的东西了
+马上我们的新载人飞船和火箭也要上了，到时候再看吧
+
+*****
+
+####  四号舰美浓  
+##### 358#       发表于 2024-3-14 22:57
+
+现在这技术状态可以试着当一次性火箭用，每次打点儿星链二代回本。
+
+*****
+
+####  commcody  
+##### 359#         楼主| 发表于 2024-3-14 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256901&amp;ptid=2164773" target="_blank">凉良 发表于 2024-3-14 22:51</a>
+
+我国商业发射直播能不能也搞娱乐化点 一起听听小曲吹吹牛逼卖卖周边 失败了也能在欢声笑语中看个大烟花。  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你在找的是不是某家的坎星外形五助推火箭
+
+*****
+
+####  小妻水亚美  
+##### 360#       发表于 2024-3-14 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256901&amp;ptid=2164773" target="_blank">凉良 发表于 2024-3-14 22:51</a>
+我国商业发射直播能不能也搞娱乐化点 一起听听小曲吹吹牛逼卖卖周边 失败了也能在欢声笑语中看个大烟花。  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">估计不行，用的纳税人的钱，而且航天新闻都是倾向于报喜不报忧的。
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

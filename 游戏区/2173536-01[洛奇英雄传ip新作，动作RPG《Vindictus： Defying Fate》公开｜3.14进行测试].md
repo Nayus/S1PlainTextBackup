@@ -395,3 +395,11 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 被小红暴打了数十次才过，现在卡在冰谷第二个boss
 
+
+*****
+
+####  nage560  
+##### 46#       发表于 2024-3-14 13:21
+
+中午休息试了下，输入延迟有点严重，而且一路没有物品，打完BOSS没有新技能，没有等级等等总之什么都没有，什么远古设计<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

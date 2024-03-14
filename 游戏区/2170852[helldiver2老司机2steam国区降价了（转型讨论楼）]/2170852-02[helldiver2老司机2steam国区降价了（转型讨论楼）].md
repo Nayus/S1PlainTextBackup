@@ -3240,3 +3240,24 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 三人打n7守塔被虫子冲得支离破碎，超级气球能不能把这**电池塔的制造商也一起击毙了 ...</blockquote>
 超级气球：你再骂，统一发配自由营！
 
+
+*****
+
+####  xinfengj  
+##### 1788#       发表于 2024-3-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64249196&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-3-14 10:44</a>
+
+分散玩家单独计算可以解释一些人看到的虚空刷怪的情况，应该就是其他玩家触发的巡逻队被生成了 ...</blockquote>
+我单刷也会虚空刷怪
+
+*****
+
+####  xinfengj  
+##### 1789#       发表于 2024-3-14 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64250333&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-3-14 12:25</a>
+
+三人打n7守塔被虫子冲得支离破碎，超级气球能不能把这**电池塔的制造商也一起击毙了 ...</blockquote>
+这守塔任务单刷比多人简单多了，手残都能过N7[https://www.acfun.cn/v/ac44013237](https://www.acfun.cn/v/ac44013237)
+

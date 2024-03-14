@@ -3100,3 +3100,13 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 你说一开始开ea持续到做完多好，非得 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最这几天又更新一波 追加一个新的boss 在幽灵村需要去拿遗忘之血才能见到， 这波补丁最大更新就是加强自机性能了 翻滚无敌帧起效更快 拉弓速度加40% 携带弓箭数量翻倍  跑动速度加40% 大剑多个威力超强的回旋跳劈。 火鸡场底部活人npc全死了 变成活尸， 部分远景又调整了。修了两个帧数不稳定区域。
 
+
+*****
+
+####  彩虹肥宅  
+##### 252#       发表于 2024-3-14 17:22
+
+汉化是没用了吗
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -63,3 +63,13 @@ bio3 晚了你软一个月 泥砖123现在才上 你索还行不行
 
 PSN港服就不便宜，steam国区抬高价格也有和港服看齐的意思，但这种定价策略只会让PS在大陆市场萎缩
 
+
+*****
+
+####  ranapocket  
+##### 196#       发表于 2024-3-14 18:14
+
+pc党本来也没打算买ps5，上pc属于额外的玩家何来萎缩的说法。
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -388,3 +388,15 @@ be your dad
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nebulanoby  
+##### 44#       发表于 2024-3-14 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252875&amp;ptid=2175522" target="_blank">a37356205 发表于 2024-3-14 16:34</a>
+为什么不能自定义，我要弄个：BanG Dream! It's MyGO!!!!!</blockquote>
+Bang mYgo Dream
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1271,3 +1271,116 @@ SS关机后疑似有大量泄漏，不知道有没有问题
 
 这音乐总有种要放fly me to the moon的感觉
 
+
+*****
+
+####  windtrack_qh  
+##### 268#       发表于 2024-3-14 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256241&amp;ptid=2164773" target="_blank">andychen 发表于 2024-3-14 21:52</a>
+
+二级这回不回收，一会儿就离轨砸下来</blockquote>
+有点遗憾
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这个重量希望不会砸到花花草草
+
+*****
+
+####  madbird023  
+##### 269#       发表于 2024-3-14 21:55
+
+还没关上……
+
+*****
+
+####  andychen  
+##### 270#       发表于 2024-3-14 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256261&amp;ptid=2164773" target="_blank">windtrack_qh 发表于 2024-3-14 21:54</a>
+
+有点遗憾
+
+这个重量希望不会砸到花花草草</blockquote>
+计划落点在南印度洋
+
+砸下来之前会做回收着陆前那个90度翻身的动作，我觉得多半翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天接云涛连晓雾  
+##### 271#       发表于 2024-3-14 21:57
+
+应该是要回收的
+
+*****
+
+####  commcody  
+##### 272#         楼主| 发表于 2024-3-14 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256290&amp;ptid=2164773" target="_blank">andychen 发表于 2024-3-14 21:57</a>
+
+计划落点在南印度洋
+
+砸下来之前会做回收着陆前那个90度翻身的动作，我觉得多半翻车 ...</blockquote>
+这次应该不翻身，直接砸海面
+
+*****
+
+####  瓦格雷  
+##### 273#       发表于 2024-3-14 21:59
+
+<blockquote>andychen 发表于 2024-3-14 21:52
+二级这回不回收，一会儿就离轨砸下来</blockquote>
+不回收  但是和一级一样  有模拟回收  按回收流程来  只不过没船接  直接入海
+
+*****
+
+####  stevenzero  
+##### 274#       发表于 2024-3-14 21:59
+
+看图示是腹部平拍落水，不算回收。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  andychen  
+##### 275#       发表于 2024-3-14 22:01
+
+SS在轨道上的姿态一直不稳定，应该是有问题
+
+
+*****
+
+####  iluso  
+##### 276#       发表于 2024-3-14 22:04
+
+<blockquote>andychen 发表于 2024-3-14 22:01
+SS在轨道上的姿态一直不稳定，应该是有问题</blockquote>
+测试在轨调整功能吧，机会难得多收集数据
+
+*****
+
+####  唯登诗树  
+##### 277#       发表于 2024-3-14 22:06
+
+错过落区了，大概坠入东太平洋，总不会是星尘作战吧
+
+*****
+
+####  sc流亡湿人  
+##### 278#       发表于 2024-3-14 22:06
+
+这次一二级按照预定计划都是要在水上溅落，不回收。
+
+*****
+
+####  zzzzzzzzzzz  
+##### 279#       发表于 2024-3-14 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256340&amp;ptid=2164773" target="_blank">andychen 发表于 2024-3-14 22:01</a>
+
+SS在轨道上的姿态一直不稳定，应该是有问题</blockquote>
+在轨自转提供微重力，正常的
+

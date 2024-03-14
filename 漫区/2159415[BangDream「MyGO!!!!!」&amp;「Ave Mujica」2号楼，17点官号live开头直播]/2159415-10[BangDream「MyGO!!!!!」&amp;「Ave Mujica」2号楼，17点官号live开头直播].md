@@ -9952,3 +9952,13 @@ ppp这张图，ars应得的。<img src="https://static.saraba1st.com/image/smile
 
 你邦糊糊的还是别跟大IP比了，要恰米的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 14175#       发表于 2024-3-15 07:05
+
+<[img src="https://s21.ax1x.com/2024/03/15/pFgayCj.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

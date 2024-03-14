@@ -301,3 +301,14 @@ SS真正进行过的飞行就上回那几十秒，这回要完成从推进剂转
 SS真正进行过的飞行就上回那几十秒，这回要完成从推进剂转移到姿态调整溅落，我觉得不现实 ...</blockquote>
 不是啊，SS之前已经试飞过这么多次了，superheavy倒是只有两次
 
+
+*****
+
+####  andychen  
+##### 158#       发表于 2024-3-14 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64247351&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-3-14 07:23</a>
+
+不是啊，SS之前已经试飞过这么多次了，superheavy倒是只有两次</blockquote>
+单独的测试飞行和实际任务飞行区别很大的，而且之前的测试飞行通常一次飞行也只会测试一项功能，这回是一起上
+

@@ -403,3 +403,11 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 中午休息试了下，输入延迟有点严重，而且一路没有物品，打完BOSS没有新技能，没有等级等等总之什么都没有，什么远古设计<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suija  
+##### 47#       发表于 2024-3-14 14:51
+
+艹，用的盾娘，冰山谷这小怪堆起来比原版猛太多了，精英霸体夹杂4~5个远近配合的，打出去基本上换血，远程一箭射出个硬直然后被乱拳打回篝火<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

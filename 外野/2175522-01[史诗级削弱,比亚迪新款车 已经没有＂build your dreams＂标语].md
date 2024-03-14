@@ -487,3 +487,14 @@ burn your dick
 
 这标语就像国内车子后备箱印上什么 追逐你的梦想这种羞耻十足的口号一样。
 
+
+*****
+
+####  6030sylar  
+##### 55#       发表于 2024-3-14 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252875&amp;ptid=2175522" target="_blank">a37356205 发表于 2024-3-14 16:34</a>
+
+为什么不能自定义，我要弄个：BanG Dream! It's MyGO!!!!!</blockquote>
+还在go
+

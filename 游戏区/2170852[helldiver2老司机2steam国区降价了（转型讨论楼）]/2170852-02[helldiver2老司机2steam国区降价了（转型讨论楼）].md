@@ -3532,3 +3532,23 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 超级货币不够有点想买DLC了，但是我已经花了1000币买了上一期，现在再买DLC是不是等于直接亏了1000超级货币
 
+
+*****
+
+####  白昼梦  
+##### 1818#       发表于 2024-3-14 19:48
+
+第一页那把光束在主手感觉还行，后面的暂时不舍得花章解锁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kalavinka  
+##### 1819#         楼主| 发表于 2024-3-14 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254659&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-14 19:27</a>
+下期叫民主爆破，b站贴吧搜一下就知道了。应该四月第二个星期四更新
+
+—— 来自 S1Fun ...</blockquote>
+这名字草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

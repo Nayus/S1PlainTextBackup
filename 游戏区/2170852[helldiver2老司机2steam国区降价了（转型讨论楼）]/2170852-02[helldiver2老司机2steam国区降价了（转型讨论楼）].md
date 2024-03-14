@@ -3039,3 +3039,21 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 送免费机甲就有人玩了，不过我看野队鬼佬很少人玩机甲，可能是因为没有机甲情怀？
 
+
+*****
+
+####  Launce  
+##### 1767#       发表于 2024-3-14 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64248024&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-3-14 09:14</a>
+
+守塔难度这么高还不送免费战略，大家不爱玩不很正常</blockquote>
+还有一坨史的新“平衡”，YT那边做视频的都喷疯了，之前的PS5不平衡和武器“平衡”的火本来就没息
+
+*****
+
+####  白昼梦  
+##### 1768#       发表于 2024-3-14 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磁轨炮之前的削弱配合这次砍重甲是真的太小丑了，也不回退修改不知道在想什么
+

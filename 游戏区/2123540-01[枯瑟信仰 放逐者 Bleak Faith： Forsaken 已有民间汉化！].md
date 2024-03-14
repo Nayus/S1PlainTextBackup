@@ -3110,3 +3110,11 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  kilkilo  
+##### 253#       发表于 2024-3-14 17:46
+
+买了没玩，等更更新差不多了再开搞，最好汉化也出了
+

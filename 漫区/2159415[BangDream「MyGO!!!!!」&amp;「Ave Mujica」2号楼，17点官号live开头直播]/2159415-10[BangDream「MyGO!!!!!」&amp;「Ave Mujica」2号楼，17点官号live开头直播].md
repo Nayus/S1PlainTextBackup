@@ -9575,3 +9575,18 @@ amt还演过这</blockquote>
 
 真磕木箱的不都是看正片互动和访谈里的信息（访谈里专门提及的神笨蛋互动也算）吗，除此之外的都只是添头而已<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">真别急
 
+
+*****
+
+####  凡人  
+##### 14141#       发表于 2024-3-14 17:40
+
+ Cp曲还可以共用的吗？当然我也不反对这种想法，不过对我来说就算只有一首，只要是两个人的歌就够了。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 14142#       发表于 2024-3-14 17:45
+
+唉 有些歌代了人就死了，還是別代了，晦氣
+

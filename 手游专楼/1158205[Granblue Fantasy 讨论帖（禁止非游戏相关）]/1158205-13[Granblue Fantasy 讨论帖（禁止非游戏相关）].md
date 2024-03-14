@@ -50,3 +50,48 @@
 
 亲情部分不错，爱情部分沾了王子这档事有点难评。
 
+
+*****
+
+####  osore  
+##### 17766#       发表于 2024-3-14 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都上船了，汝妻子吾养之，就不要评了吧
+
+*****
+
+####  cenhr  
+##### 17767#       发表于 2024-3-14 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251895&amp;ptid=1158205" target="_blank">osore 发表于 2024-3-14 15:06</a>
+
+都上船了，汝妻子吾养之，就不要评了吧</blockquote>
+红毛都已经回收了前世老公的小指骨，不想等2万年准备去复活他了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  osore  
+##### 17768#       发表于 2024-3-14 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251912&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-14 15:08</a>
+
+红毛都已经回收了前世老公的小指骨，不想等2万年准备去复活他了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这种剧情常见于病娇
+
+退一步说，牢路呼声那么高、过了那么久，都没打赢复活赛，还有万魔殿那谁
+
+你算老几啊凭什么
+
+*****
+
+####  cenhr  
+##### 17769#       发表于 2024-3-14 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251976&amp;ptid=1158205" target="_blank">osore 发表于 2024-3-14 15:13</a>
+
+感觉这种剧情常见于病娇
+
+退一步说，牢路呼声那么高、过了那么久，都没打赢复活赛，还有万魔殿那谁 ...</blockquote>
+关系户，如果相信小蕾的说法，那么10周年这个大龙凤其实是火鸡完成交易的计划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

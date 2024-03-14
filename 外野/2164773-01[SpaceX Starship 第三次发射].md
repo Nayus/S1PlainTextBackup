@@ -339,3 +339,14 @@ SS真正进行过的飞行就上回那几十秒，这回要完成从推进剂转
 
 所以现在的问题就是，有没有稳定可靠的直播地址。
 
+
+*****
+
+####  瓦格雷  
+##### 162#       发表于 2024-3-14 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64247528&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-3-14 08:17</a>
+
+所以每次打starship之前我还是很紧张的，不像看猎鹰九已经毫无波澜了</blockquote>
+还不是猎鹰9把你阈值养高了  之前什么火箭发射都蛮紧张的
+

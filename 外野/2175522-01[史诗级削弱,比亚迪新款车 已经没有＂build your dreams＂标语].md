@@ -513,3 +513,22 @@ burn your dick
 
 3yc不是挺好吗，总比印句话好看多了
 
+
+*****
+
+####  游蜓  
+##### 58#       发表于 2024-3-14 20:27
+
+3yc也挺丑的
+
+
+*****
+
+####  orecheng  
+##### 59#       发表于 2024-3-14 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252840&amp;ptid=2175522" target="_blank">Holyted 发表于 2024-3-14 16:31</a>
+
+居然把那个无比LOWB的4.8S去掉了？</blockquote>
+为什么要去掉，奥迪直接把加速度乘10TFSI写在车后面，比亚迪直接给0-100加速时间是一回事
+

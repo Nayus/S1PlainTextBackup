@@ -572,3 +572,26 @@ T-0再次更新，新时间中部时间8点10分（北京时间21点10分）。�
 
 —— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  commcody  
+##### 182#         楼主| 发表于 2024-3-14 20:26
+
+团队已同意推进剂加注，但目前需要关注风力。新的T-0中部时间8点25分（北京时间21点25分）。
+
+
+*****
+
+####  =w=  
+##### 183#       发表于 2024-3-14 20:31
+
+发射时间一推再推，不会最后就取消了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱莉希雅  
+##### 184#       发表于 2024-3-14 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能赶紧打了，别推了
+

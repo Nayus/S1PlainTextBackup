@@ -512,3 +512,16 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 这游戏不支持手柄吗？用键鼠被虐出屎</blockquote>
 应该是支持的，但是按过往的经验这游戏用手柄很坐牢
 
+
+*****
+
+####  CrayS1  
+##### 57#       发表于 2024-3-14 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255181&amp;ptid=2173536" target="_blank">wlhlz 发表于 2024-3-14 20:17</a>
+
+钻缝那一幕，发现奈子的青筋都做出来了，你这游戏到底正不正经啊</blockquote>
+当然不正经啊，落英网游可以说是国内用合法途径能玩的到的游戏里最瑟的。
+
+12年的老古董能活到今天全靠卖情趣内衣。
+

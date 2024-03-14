@@ -2084,3 +2084,11 @@ MV来了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是mmd的动作比live的多
 
+
+*****
+
+####  holoan  
+##### 8375#         楼主| 发表于 2024-3-14 15:32
+
+明天后天大概率没有直播，周天晚上还排了星街的radio，也就是说今晚是这周最后一次自己直播了，直播时间还在MV公开前，不知道什么内容，今晚倒是其他人都安排白情的内容
+

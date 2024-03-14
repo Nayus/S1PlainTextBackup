@@ -6105,3 +6105,14 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 这话打戏硬说也就那样，细节上的招式想办法玩了不少，宏观上的战场空间体现简直一泡污，所以才产生了男主掉线半集的错乱感，当然了不能要求太高，但分战场的分镜不给个拍的到中心参照物构图，转移的时候更不交代宏观的方向属实是有点菜了，单论这一点的水平不如水魔
 
+
+*****
+
+####  aptx8285144  
+##### 4366#       发表于 2024-3-14 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251746&amp;ptid=2092345" target="_blank">AkaiSuisei 发表于 2024-3-14 14:53</a>
+
+这话打戏硬说也就那样，细&amp;#x8 ...</blockquote>
+希望最后能清算威思（马哈特闭着眼睛都能猜到会跳反，也就算了），可别像基头四那样稀里糊涂过去了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

@@ -5975,3 +5975,24 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 钢铁+男爵+红蜡封+蓝图默剧演员+默剧演员=（1.5*1.5）*（2+1+1）=9
 
+
+*****
+
+####  himtom  
+##### 524#       发表于 2024-3-14 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251562&amp;ptid=2154925" target="_blank">mjwells 发表于 2024-3-14 14:34</a>
+
+那这么理解对不对
+
+钢铁+红蜡封=1.5*2=3，多彩不生效不管他
+
+钢铁+男爵+红蜡封=（1.5*1.5）*2=4.5</blockquote>
+钢铁+男爵+红蜡封=1.5^4
+
+红蜡封让这张牌生效了两次，因此钢铁和男爵各自触发了两次
+
+同理，钢铁+男爵+红蜡封+哑剧演员（确实是哑剧演员，我记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">），这张牌生效了3次，钢铁和男爵各自触发了3次=1.5^6
+
+复制哑剧演员可以让牌的生效次数从3次变4次，复制男爵可以让牌生效以后触发的倍率多乘一次1.5（因为钢铁和男爵都是1.5，所以我上面才说2次变3次）
+

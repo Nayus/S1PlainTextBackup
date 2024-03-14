@@ -95,3 +95,38 @@
 退一步说，牢路呼声那么高、过了那么久，都没打赢复活赛，还有万魔殿那谁 ...</blockquote>
 关系户，如果相信小蕾的说法，那么10周年这个大龙凤其实是火鸡完成交易的计划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 17770#       发表于 2024-3-14 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64251976&amp;ptid=1158205" target="_blank">osore 发表于 2024-3-14 15:13</a>
+感觉这种剧情常见于病娇
+
+退一步说，牢路呼声那么高、过了那么久，都没打赢复活赛，还有万魔殿那谁 ...</blockquote>
+牢路最后不是学火鸡研究一下准备越狱了吗。
+
+阿斯塔罗特我倒是觉得没戏了。
+
+*****
+
+####  Aeons  
+##### 17771#       发表于 2024-3-14 15:25
+
+牢路肯定是路西菲尔啊
+
+*****
+
+####  cenhr  
+##### 17772#       发表于 2024-3-14 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252055&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2024-3-14 15:21</a>
+
+牢路最后不是学火鸡研究一下准备越狱了吗。
+
+阿斯塔罗特我倒是觉得没戏了。 ...</blockquote>
+大概是说只剩下头的老路。阿芬在不影响世界安危的前提下支持小蕾想办法复活他，梅大姐则是想办法复活内裤人
+
+但内裤人的野心真大，是想征服星辰大海<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

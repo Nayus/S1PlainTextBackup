@@ -1621,3 +1621,169 @@ It's over?
 是冰块</blockquote>
 明显的隔热瓦和外皮
 
+
+*****
+
+####  唯登诗树  
+##### 309#       发表于 2024-3-14 22:18
+
+大概是65公里高度炸了
+
+*****
+
+####  赛文欧德  
+##### 310#       发表于 2024-3-14 22:19
+
+这再入画面也太帅了吧
+
+*****
+
+####  andychen  
+##### 311#       发表于 2024-3-14 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主持人开始做心理建设了，飞船多半已经G惹
+
+*****
+
+####  人別離苦  
+##### 312#       发表于 2024-3-14 22:19
+
+估计已经🎆了
+
+*****
+
+####  commcody  
+##### 313#         楼主| 发表于 2024-3-14 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256453&amp;ptid=2164773" target="_blank">andychen 发表于 2024-3-14 22:12</a>
+
+开始再入了，姿态还是不稳定。估计要烧毁了</blockquote>
+直播的摄像头如果我没记错是装在前翼上的，所以只要前翼运动摄像头也会运动。
+
+*****
+
+####  间宮夏生  
+##### 314#       发表于 2024-3-14 22:20
+
+姿态一开始就有问题吧，前面应该都是不锈钢结构硬抗的，不管怎么说，舰上视角太牛了，有爽到<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  乾有道  
+##### 315#       发表于 2024-3-14 22:21
+
+还不更新数据，怕不是已经炸了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RGm  
+##### 316#       发表于 2024-3-14 22:21
+
+有一说一，直播再入大气的画面确实帅。
+
+*****
+
+####  andychen  
+##### 317#       发表于 2024-3-14 22:21
+
+感觉是飞船的RCS或者引擎的游机出了问题关不掉
+
+*****
+
+####  madbird023  
+##### 318#       发表于 2024-3-14 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256537&amp;ptid=2164773" target="_blank">唯登诗树 发表于 2024-3-14 22:18</a>
+
+明显的隔热瓦和外皮</blockquote>
+那样只能说不锈钢真结实了，这才是真正的太空材料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stevenzero  
+##### 319#       发表于 2024-3-14 22:22
+
+真没想到还有用摄像头看过黑障的一天。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  bartholo4  
+##### 320#       发表于 2024-3-14 22:22
+
+这向后传输的黒障直播有高达那味儿了～
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bartholo4  
+##### 321#       发表于 2024-3-14 22:23
+
+这向后传输的黒障直播有高达那味儿了～
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  madbird023  
+##### 322#       发表于 2024-3-14 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256567&amp;ptid=2164773" target="_blank">间宮夏生 发表于 2024-3-14 22:20</a>
+
+姿态一开始就有问题吧，前面应该都是不锈钢结构硬抗的，不管怎么说，舰上视角太牛了，有爽到 ...</blockquote>
+数百万人类同时目击黑障光学信号
+
+*****
+
+####  haohaoh4  
+##### 323#       发表于 2024-3-14 22:23
+
+这信号质量也太好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windrarara  
+##### 324#       发表于 2024-3-14 22:23
+
+<img src="https://img.saraba1st.com/forum/202403/14/222330bil2wqqddm03llqu.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240314222306.png</strong> (97.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 22:23 上传
+
+挺好看的啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sgbq  
+##### 325#       发表于 2024-3-14 22:25
+
+第一次看到真正的再入大气层，历史上有别的飞行器再入大气层的照片或者视频吗？
+
+*****
+
+####  sc流亡湿人  
+##### 326#       发表于 2024-3-14 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256625&amp;ptid=2164773" target="_blank">sgbq 发表于 2024-3-14 22:25</a>
+第一次看到真正的再入大气层，历史上有别的飞行器再入大气层的照片或者视频吗？ ...</blockquote>
+之前龙飞船返回的时候有视频的
+
+*****
+
+####  andychen  
+##### 327#       发表于 2024-3-14 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256625&amp;ptid=2164773" target="_blank">sgbq 发表于 2024-3-14 22:25</a>
+
+第一次看到真正的再入大气层，历史上有别的飞行器再入大气层的照片或者视频吗？ ...</blockquote>
+航天飞机以前拍了不少舷窗外的视频
+

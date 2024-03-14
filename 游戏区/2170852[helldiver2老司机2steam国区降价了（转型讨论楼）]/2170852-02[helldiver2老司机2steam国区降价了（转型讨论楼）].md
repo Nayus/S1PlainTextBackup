@@ -3666,3 +3666,31 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 新债券给的东西看似是打机器人的，实则全是打虫子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2VYBGp94  
+##### 1832#       发表于 2024-3-14 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255734&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-3-14 21:13</a>
+我不明白测评说这游戏通行证很公道没pay2win是怎么想的。
+
+别人的通行证只卖皮肤，一点影响gameplay的要素都 ...</blockquote>
+轻度玩家可以外卦刷货币直接跟上进度，也算是免费获取的一种了XD
+
+*****
+
+####  PlasmaSnake  
+##### 1833#       发表于 2024-3-14 22:20
+
+债券卖1000太贵了，前作一个dlc我记得原价也就30块，你几把破枪一个月卖49真当是小月卡咯
+
+*****
+
+####  风萧飒  
+##### 1834#       发表于 2024-3-14 22:22
+
+可以找个二三级图刷超级货币，之前跟朋友两个人两个多小时大概刷了两千超级货币
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

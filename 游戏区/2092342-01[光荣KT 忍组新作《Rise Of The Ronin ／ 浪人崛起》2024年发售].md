@@ -4271,3 +4271,21 @@ skillup还真不太好说，但他是推荐对马和地平线2的，他不喜欢
 
 比真三八好就是胜利
 
+
+*****
+
+####  hkguty  
+##### 1105#       发表于 2024-3-14 22:18
+
+老外不喜欢那肯定要扑了，毕竟索尼就是盯着老外来营销的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gigax  
+##### 1106#       发表于 2024-3-14 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256394&amp;ptid=2092342" target="_blank">Rushtime33 发表于 2024-3-14 22:06</a>
+
+危，又一个大主播差评了，这位的游戏品味还是可以的。</blockquote>
+这位主要是哪方面给差评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

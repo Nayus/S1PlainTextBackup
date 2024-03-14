@@ -2130,3 +2130,84 @@ SX指挥中心确认飞船损失了</blockquote>
 
 —— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  鹤见留美  
+##### 361#       发表于 2024-3-14 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256778&amp;ptid=2164773" target="_blank">yck019 发表于 2024-3-14 22:39</a>
+
+其实我想问为什么我国航空航天的视频画面都那么糊？难道是保密要求吗？
+
+—— 来自 S1Fun ...</blockquote>
+换摄像头要重新走一遍定型流程
+
+这活你来干吗
+
+*****
+
+####  间宮夏生  
+##### 362#       发表于 2024-3-14 22:58
+
+下次就可以装一些假星链试试释放机构成色了，争取年底正式上班<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 363#       发表于 2024-3-14 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256981&amp;ptid=2164773" target="_blank">小妻水亚美 发表于 2024-3-14 22:57</a>
+
+估计不行，用的纳税人的钱，而且航天新闻都是倾向于报喜不报忧的。
+
+—— 来自 OPPO PGFM10, Andr ...</blockquote>
+官方严肃无可厚非  几家民营的没必要吧。 
+
+*****
+
+####  adonai  
+##### 364#       发表于 2024-3-14 22:59
+
+依据传闻，东大有可能是第一个也是目前唯一一个有能力完整直播穿越黑障区的国家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3560, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  凉良  
+##### 365#       发表于 2024-3-14 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256824&amp;ptid=2164773" target="_blank">Novagelion 发表于 2024-3-14 22:44</a>
+
+这是哪个管人？</blockquote>
+宇推くりあ
+
+
+*****
+
+####  亚瑟邓特  
+##### 366#       发表于 2024-3-14 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256901&amp;ptid=2164773" target="_blank">凉良 发表于 2024-3-14 22:51</a>
+我国商业发射直播能不能也搞娱乐化点 一起听听小曲吹吹牛逼卖卖周边 失败了也能在欢声笑语中看个大烟花。  ...</blockquote>
+内存卡满暂停录制.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小妻水亚美  
+##### 367#       发表于 2024-3-14 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256998&amp;ptid=2164773" target="_blank">凉良 发表于 2024-3-14 22:59</a>
+官方严肃无可厚非  几家民营的没必要吧。</blockquote>
+看错了，但是就目前网上这种浮躁的讨论氛围，失败必然被群嘲，要不就是反思党天天反思。
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  死宅真恶心  
+##### 368#       发表于 2024-3-14 23:04
+
+牛逼啊
+

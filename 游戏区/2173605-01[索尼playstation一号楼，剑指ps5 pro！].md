@@ -89,3 +89,11 @@ pc党本来也没打算买ps5，上pc属于额外的玩家何来萎缩的说法�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">嗨，为啥PS5还不更新全局LFC
 
+
+*****
+
+####  淡定君  
+##### 199#       发表于 2024-3-14 23:01
+
+喜报一件事，PSVR2最新固件画面提升很大，这块OLED终于发力了，搞半天是索尼没有优化好嘛
+

@@ -3219,3 +3219,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 上升的原因不一定是清理哨站吧，应该是战局时间长，加快了怪的刷新速度 ...</blockquote>
 控制变量测试的结果不是的，关于这个的讨论也很多，因为游戏提示里确实有这一条
 
+
+*****
+
+####  赤井稻妻  
+##### 1786#       发表于 2024-3-14 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64250318&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-3-14 12:23</a>
+
+14号是哪个时区的14号</blockquote>
+好像是北京时间今天下午5点更新
+

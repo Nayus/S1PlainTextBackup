@@ -9560,3 +9560,18 @@ amt还演过这</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">這有什麼好爭的，不可以都是嗎，初祥聲優搞個雙月美甲，這首歌就不能代睦祥了嗎
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">啊我就都代，怎樣，你不服氣？
 
+
+*****
+
+####  御幸一也  
+##### 14139#       发表于 2024-3-14 17:26
+
+何況初祥和睦祥糖那麼多，還缺這一首歌似的，不像某些CP只有……可憐那<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 14140#       发表于 2024-3-14 17:30
+
+真磕木箱的不都是看正片互动和访谈里的信息（访谈里专门提及的神笨蛋互动也算）吗，除此之外的都只是添头而已<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">真别急
+

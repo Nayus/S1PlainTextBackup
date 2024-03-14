@@ -3635,3 +3635,26 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 现在这个通行证还不如像1代那样直接把东西塞进包里另外卖来自: iPhone客户端
 
+
+*****
+
+####  Launce  
+##### 1829#       发表于 2024-3-14 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255734&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-3-14 21:13</a>
+
+我不明白测评说这游戏通行证很公道没pay2win是怎么想的。
+
+别人的通行证只卖皮肤，一点影响gameplay的要素都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这逼平衡，一把枪用到死完了
+
+
+*****
+
+####  calcium20  
+##### 1830#       发表于 2024-3-14 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这n9守塔泰坦猛刷玩不了一点，一开电池就有3-4只刷出来，以为杀完最后一只一看平地又生出来三只真的绝望
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

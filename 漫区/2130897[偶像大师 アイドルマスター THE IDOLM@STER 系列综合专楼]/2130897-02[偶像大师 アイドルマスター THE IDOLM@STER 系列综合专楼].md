@@ -12635,3 +12635,20 @@ scsp安缇卡的白情贺卡谁写的啊</blockquote>
 至少bmi是正常人</blockquote>
 虚报体重是偶像的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flynnei  
+##### 2750#       发表于 2024-3-14 16:16
+
+DC简中频顶着10秒CD水了5000条了，感觉不久后能超过繁中和印尼语频道
+
+*****
+
+####  安广多惠子  
+##### 2751#       发表于 2024-3-14 16:16
+
+新四格漫画的第三格，疑似黄毛不擅长应付的学生会长？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

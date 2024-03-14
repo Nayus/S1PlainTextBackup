@@ -3333,3 +3333,30 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 有句说句这游戏的白皮社群是我见过最认真玩游戏的了，还懂得去挖数据找bug，我读书少，以前只见过捧厂商臭脚的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 1798#       发表于 2024-3-14 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252564&amp;ptid=2170852" target="_blank">山风短 发表于 2024-3-14 16:09</a>
+
+有句说句这游戏的白皮社群是我见过最认真玩游戏的了，还懂得去挖数据找bug，我读书少，以前只见过捧厂商臭 ...</blockquote>
+那你可能是没听过美国97的传说
+
+绝地战兵的社群主要是喜欢RP
+
+*****
+
+####  xinfengj  
+##### 1799#       发表于 2024-3-14 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252548&amp;ptid=2170852" target="_blank">lzw1990 发表于 2024-3-14 16:08</a>
+
+问个事 把冒烟召唤援军的虫子打死后 旁边空地还是会隔空冒烟爆援军
+
+这个是原本就有的机制还是BUG ...</blockquote>
+就是打晚了，撅屁股就要打，烟出来基本就必定拉警报了。冒的烟是虫洞突破地面的烟。
+
+机器人那边也是，举手的打死没事，信号弹出膛再打也没用了。
+

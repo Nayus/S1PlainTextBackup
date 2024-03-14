@@ -1292,3 +1292,11 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 我正好相反，早早换了QP然后白情抽礼装抽出new卡了，望巧克力兴叹，悲痛 ...</blockquote>
 和你一样<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11524#       发表于 2024-3-14 08:54
+
+已经很多年没打活动高难了，懒得去想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

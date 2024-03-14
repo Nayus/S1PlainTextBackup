@@ -411,3 +411,15 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 艹，用的盾娘，冰山谷这小怪堆起来比原版猛太多了，精英霸体夹杂4~5个远近配合的，打出去基本上换血，远程一箭射出个硬直然后被乱拳打回篝火<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白河响剑  
+##### 48#       发表于 2024-3-14 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新显卡驱动好了
+
+就离谱
+
+头一次因为没及时更新显卡驱动而玩不了游戏
+

@@ -42,3 +42,11 @@
 — from Google Pixel 6, Android 14 of S1 Next Goose v2.5 ...</blockquote>
 人家有菲尼这个真名，名無し只是打工用艺名罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 17765#       发表于 2024-3-14 15:03
+
+亲情部分不错，爱情部分沾了王子这档事有点难评。
+

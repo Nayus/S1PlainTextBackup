@@ -540,3 +540,24 @@ burn your dick
 
 还是开新产品线吧……
 
+
+*****
+
+####  auraria  
+##### 61#       发表于 2024-3-14 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254303&amp;ptid=2175522" target="_blank">adonai 发表于 2024-3-14 18:48</a>
+可以改成中文：做你丫美梦</blockquote>
+南柯一梦
+黄粱美梦
+
+—— 来自 HUAWEI ALT-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  人畜无害沃特碧  
+##### 62#       发表于 2024-3-14 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得是增强，原来的太土了
+

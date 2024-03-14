@@ -1835,3 +1835,11 @@ Wemod看着可以选xbox的版本，实际上不能用吗？
 
 前天终于打完pc版主线一周目了，没有钻洞真是神清气爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是可惜没有ac的格斗蛋这种对ace特化武器，打深红中队和一号的时候都是用MLAA+标准弹磨的，再加一点点机炮，这游戏机炮真是强而有力啊
 
+
+*****
+
+####  SkavenYesYes  
+##### 177#       发表于 2024-3-14 21:25
+
+会打折么<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

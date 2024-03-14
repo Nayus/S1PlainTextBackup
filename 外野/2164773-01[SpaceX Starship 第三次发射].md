@@ -742,3 +742,284 @@ SpaceX官方直播已开始，现距离发射不到30分钟。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  璇瑢子R  
+##### 203#       发表于 2024-3-14 21:28
+
+分离速度1.6km/s
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  瓦格雷  
+##### 204#       发表于 2024-3-14 21:28
+
+已经超过第二次了
+
+*****
+
+####  瓦格雷  
+##### 205#       发表于 2024-3-14 21:29
+
+<blockquote>hxy8241 发表于 2024-3-14 21:27
+一个都没熄，感觉不科学。
+
+—— 来自 S1Fun</blockquote>
+第二次就全亮的
+
+*****
+
+####  tonyunreal  
+##### 206#       发表于 2024-3-14 21:29
+
+引擎全亮有点好看
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  commcody  
+##### 207#         楼主| 发表于 2024-3-14 21:30
+
+B10正在返场，S28正在飞向印度洋
+
+<img src="https://img.saraba1st.com/forum/202403/14/213016uqnwq7kekkk6nmna.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240314212952.jpg</strong> (238.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 21:30 上传
+
+*****
+
+####  灼眼的川川仔  
+##### 208#       发表于 2024-3-14 21:30
+
+猛禽2号可以说成熟了吧来自: iPhone客户端
+
+*****
+
+####  单流灯塔  
+##### 209#       发表于 2024-3-14 21:30
+
+nb，cnsa快抄啊
+
+*****
+
+####  =w=  
+##### 210#       发表于 2024-3-14 21:30
+
+5分钟了，看起来一切正常<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天接云涛连晓雾  
+##### 211#       发表于 2024-3-14 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kira1988  
+##### 212#       发表于 2024-3-14 21:31
+
+這真的遙遙領先了
+
+*****
+
+####  天接云涛连晓雾  
+##### 213#       发表于 2024-3-14 21:31
+
+ 本帖最后由 天接云涛连晓雾 于 2024-3-14 21:33 编辑 
+
+这次成功了！
+
+*****
+
+####  madbird023  
+##### 214#       发表于 2024-3-14 21:31
+
+一级开始再入姿态
+
+*****
+
+####  布拉维坎的屠夫  
+##### 215#       发表于 2024-3-14 21:32
+
+太🐂🐂了
+
+*****
+
+####  victorws  
+##### 216#       发表于 2024-3-14 21:33
+
+炸了
+
+*****
+
+####  人別離苦  
+##### 217#       发表于 2024-3-14 21:33
+
+差最后一步啊<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YoumuChan  
+##### 218#       发表于 2024-3-14 21:33
+
+一级最后点火失败了？
+
+— from Sony XQ-DQ62, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  瓦格雷  
+##### 219#       发表于 2024-3-14 21:33
+
+助推器没了
+
+*****
+
+####  susan28  
+##### 220#       发表于 2024-3-14 21:33
+
+亏贼！亏贼！亏贼！
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  madbird023  
+##### 221#       发表于 2024-3-14 21:33
+
+一级回收还是没完成
+
+
+*****
+
+####  谎称  
+##### 222#       发表于 2024-3-14 21:34
+
+下一次是不是就能完美成功了？
+
+*****
+
+####  waelaZed  
+##### 223#       发表于 2024-3-14 21:34
+
+下次一级应该就可以完成了吧,跟上次比已经强很多了
+
+*****
+
+####  璇瑢子R  
+##### 224#       发表于 2024-3-14 21:34
+
+二级关机速度7.356km/s
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  瓦格雷  
+##### 225#       发表于 2024-3-14 21:34
+
+二级入轨  人类单次入轨最大的航天器？
+
+*****
+
+####  commcody  
+##### 226#         楼主| 发表于 2024-3-14 21:34
+
+B10着陆点火失败。S28成功关机。
+
+<img src="https://img.saraba1st.com/forum/202403/14/213428cwe3iggwo3vw3xzc.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240314213409.jpg</strong> (225.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 21:34 上传
+
+*****
+
+####  你谁  
+##### 227#       发表于 2024-3-14 21:35
+
+按这个速度 可能下一二次就一级回收完全成功了 
+
+*****
+
+####  zzzzzzzzzzz  
+##### 228#       发表于 2024-3-14 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255996&amp;ptid=2164773" target="_blank">谎称 发表于 2024-3-14 21:34</a>
+
+下一次是不是就能完美成功了？</blockquote>
+一级回收可以慢慢再搞，二级入轨成功就估计可以打荷载了。
+
+*****
+
+####  与天争锋_LZ  
+##### 229#       发表于 2024-3-14 21:35
+
+进步明显不错了
+
+*****
+
+####  susan28  
+##### 230#       发表于 2024-3-14 21:35
+
+4个星链天线，好使啊。。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  Holyted  
+##### 231#       发表于 2024-3-14 21:36
+
+很强，太强了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madbird023  
+##### 232#       发表于 2024-3-14 21:37
+
+下边要进行载荷门测试了吧
+
+*****
+
+####  瓦格雷  
+##### 233#       发表于 2024-3-14 21:37
+
+现在一直在排出燃料吗  一直有喷雾一样？
+
+*****
+
+####  adonai  
+##### 234#       发表于 2024-3-14 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255964&amp;ptid=2164773" target="_blank">kira1988 发表于 2024-3-14 21:31</a>
+
+這真的遙遙領先了</blockquote>
+那不至于，没领先那么远
+
+*****
+
+####  单流灯塔  
+##### 235#       发表于 2024-3-14 21:38
+
+这里是不是掉了块隔热瓦，等会又要放烟花了吧
+<img src="https://p.sda1.dev/16/08f2b48c7b25c72f5be710a048454d07/CMP_20240314213733680.png" referrerpolicy="no-referrer">
+
+*****
+
+####  瓦格雷  
+##### 236#       发表于 2024-3-14 21:38
+
+什么时候开门？
+

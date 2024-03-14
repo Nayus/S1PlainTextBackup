@@ -699,3 +699,23 @@ BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也�
 
 一直连不上服务器是啥情况<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Byooon  
+##### 75#       发表于 2024-3-15 04:02
+
+ 本帖最后由 Byooon 于 2024-3-15 04:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64258470&amp;ptid=2173536" target="_blank">Disturbia 发表于 2024-3-15 02:43</a>
+
+其实讲道理的话 这个小红还不算难吧 原版的可是一锤一个萌新的
+
+横向对比的话感觉没环开局硬钢大树 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刚找回点感觉把试玩打穿了。要是改回国服刚开那时候的伤害我怕是已经被小红捶死不下100次了。
+
+老实说这体验容易两极分化。不习惯动作游戏的估计感觉和吃屎一样，boss攻击欲望极强角色移动速度龟爬没有一点回旋的余地。基本就是被压着打到死的节奏。
+
+有经验的人会发现这攻击速度明显已经是刻意减慢了很多。
+
+这属于是根本不给手残一点逃课的空间了。<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">如果正式版也这样怕是冲着**角色过去的人要骂娘
+

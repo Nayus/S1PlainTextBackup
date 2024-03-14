@@ -3552,3 +3552,15 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 —— 来自 S1Fun ...</blockquote>
 这名字草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zyrhxs  
+##### 1820#       发表于 2024-3-14 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64249912&amp;ptid=2170852" target="_blank">novyMS 发表于 2024-3-14 11:45</a>
+这游戏最近怎么匹配不到人
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+我之前也有这个问题，后来查了下关掉了IP6协议就可以了
+

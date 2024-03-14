@@ -361,3 +361,24 @@ SS真正进行过的飞行就上回那几十秒，这回要完成从推进剂转
 还不是猎鹰9把你阈值养高了  之前什么火箭发射都蛮紧张的</blockquote>
 因为没一个火箭像F9这么稳的，现在唯一的兴趣也就是看回收时降落命中几环了
 
+
+*****
+
+####  瓦格雷  
+##### 164#       发表于 2024-3-14 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64248040&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-3-14 09:15</a>
+
+因为没一个火箭像F9这么稳的，现在唯一的兴趣也就是看回收时降落命中几环了 ...</blockquote>
+稳是一回事  最主要还是射的多吧  一个星期2发  再也没有感觉了 
+
+*****
+
+####  madbird023  
+##### 165#       发表于 2024-3-14 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64248157&amp;ptid=2164773" target="_blank">瓦格雷 发表于 2024-3-14 09:26</a>
+
+稳是一回事  最主要还是射的多吧  一个星期2发  再也没有感觉了</blockquote>
+而且就这10个左右的芯级在循环使用~ 眼见的是越来越黑
+

@@ -430,3 +430,34 @@ SS真正进行过的飞行就上回那几十秒，这回要完成从推进剂转
 
 期待一下<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  commcody  
+##### 170#         楼主| 发表于 2024-3-14 18:41
+
+在一片漆黑中依稀可见正在进行发射台管路预冷
+
+<img src="https://img.saraba1st.com/forum/202403/14/184040db4584m4bwt6y7tg.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240314184015.jpg</strong> (186.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 18:40 上传
+
+*****
+
+####  commcody  
+##### 171#         楼主| 发表于 2024-3-14 18:46
+
+发射塔管路预冷也已开始。根据开始预冷的时间推测，实际T-0时间可能会稍晚。
+
+<img src="https://img.saraba1st.com/forum/202403/14/184452cjqcfjuqmiz1jjy3.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240314184428.jpg</strong> (207.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 18:44 上传
+

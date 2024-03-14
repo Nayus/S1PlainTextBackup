@@ -5863,3 +5863,20 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 来自: iPhone客户端
 
+
+*****
+
+####  himtom  
+##### 518#       发表于 2024-3-14 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64245402&amp;ptid=2154925" target="_blank">mjwells 发表于 2024-3-13 22:27</a>
+
+一把爽局，12张多彩、钢铁、红色蜡封的K
+
+小丑：
+
+手牌+2出牌-1、</blockquote>
+直觉上也是复制男爵啊
+
+复制喜与悲是3次变4次，复制男爵是2次变3次
+

@@ -3273,3 +3273,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个跟人研究过，因为AI是靠玩家分担计算的，和触发虫潮就会减少另一边一样，单人刷出的怪其实是地图另一边你甩开的发呆怪，因为到了巡逻点加上出了范围，就瞬移回来堵你
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">380加强的时候我就跟人吐槽过，你搞那么长时间是听着爽，但是虫群都可以瞬到别的地方出来继续干你
 
+
+*****
+
+####  Launce  
+##### 1791#       发表于 2024-3-14 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，所以现在各种奇怪密度就是因为这摧毁巢穴带来的密度系数没改，还是之前刷新率比例，导致放大了阶梯了吗
+

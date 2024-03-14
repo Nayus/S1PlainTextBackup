@@ -302,3 +302,18 @@
 
 我觉得是金字塔在开发新游戏所以产能会继续稀烂下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 970#       发表于 2024-3-14 14:14
+
+嗯，今天是小蜜蜂an...
+
+*****
+
+####  madcow  
+##### 971#       发表于 2024-3-14 14:16
+
+AN这套好丑（
+

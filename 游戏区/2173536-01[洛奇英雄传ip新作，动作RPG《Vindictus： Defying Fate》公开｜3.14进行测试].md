@@ -756,3 +756,14 @@ Boss左右攻击的区分也相当精确。左滚右滚不会被卡模型，也�
 
 我一开始找节奏的时候也是被小红锤得发麻，后面慢慢熟悉之后基本就无伤了，被击都是贪技能被二连红光教育了，最后过小红和族长的时间都是2分钟出头就结束了，除了黄光红光基本全在弹反蹭刀。要是真按魂那种回合制来玩铁定是刮痧坐牢的，但很多没玩过的人都会说这是类魂游戏。把一个共斗游戏的底子搞得让新手压力那么大，我也看不懂nexon的方向了。
 
+
+*****
+
+####  zzy516232108  
+##### 78#       发表于 2024-3-15 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64258025&amp;ptid=2173536" target="_blank">三谷歩夢 发表于 2024-3-15 00:42</a>
+从官方的态度看这个demo很明显就是拿来收集意见用的，原版大部分系统都没实装，而且也没有怎么去调怪物数 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是一个连pre-alpha都算不上的玩法展示啊
+因为套了麻痹怒气的皮所以乍一看完成度还挺高，但实际上手玩起来就发现问题了
+

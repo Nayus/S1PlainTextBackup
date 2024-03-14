@@ -4434,3 +4434,20 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 主要自媒体都不说这块到底有多少内容真的是急死人
 
+
+*****
+
+####  黑修士  
+##### 1124#       发表于 2024-3-14 23:58
+
+真人预告片还挺像的
+[https://www.bilibili.com/video/BV1eK421x77Q](https://www.bilibili.com/video/BV1eK421x77Q)
+
+
+*****
+
+####  duraa  
+##### 1125#       发表于 2024-3-15 00:04
+
+看这意思大概是没有类似C技的派生了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

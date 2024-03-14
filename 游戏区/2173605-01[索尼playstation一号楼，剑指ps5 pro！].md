@@ -136,3 +136,11 @@ pc党本来也没打算买ps5，上pc属于额外的玩家何来萎缩的说法�
 
 2024-3-14 23:48 上传
 
+
+*****
+
+####  贝恩德塔  
+##### 203#         楼主| 发表于 2024-3-14 23:56
+
+2k22和2k23都进过psn一档或者二档会免过，不知道nga啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

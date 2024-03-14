@@ -3782,3 +3782,27 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 又有幽默bug了，被弱智白皮踢出房间之后12号位武装莫名其妙变成弱智白皮的12号位配置了，直接给我主武器位置塞了把我还没解锁的新的等离子喷子，体验了射个球出去那个弹道下坠下太幽默了
 
+
+*****
+
+####  白昼梦  
+##### 1844#       发表于 2024-3-14 23:48
+
+<img src="https://img.saraba1st.com/forum/202403/14/234806iw6e7swobec9esss.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (22.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 23:48 上传
+
+<img src="https://img.saraba1st.com/forum/202403/14/234806cnzsiybxzy88iizi.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (86.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 23:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没给我顺带塞进武器库里
+

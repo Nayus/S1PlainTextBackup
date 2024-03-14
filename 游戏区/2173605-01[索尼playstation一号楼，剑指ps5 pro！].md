@@ -120,3 +120,19 @@ pc党本来也没打算买ps5，上pc属于额外的玩家何来萎缩的说法�
 —— 来自 HUAWEI OCE-AN10, Android 12上的 ...</blockquote>
 我表达的不清楚，我的意思是索尼PSN的定价策略会让PS中国市场萎缩，国区PC本来就是低价区，国内玩家PC又占绝对多数，PS独占不停上PC，港服卖的又贵，只会把人往PC上赶
 
+
+*****
+
+####  ultraseven  
+##### 202#       发表于 2024-3-14 23:48
+
+这下都食雪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/14/234834hnceazgjm46gzagu.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (118.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 23:48 上传
+

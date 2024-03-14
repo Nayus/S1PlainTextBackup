@@ -594,3 +594,22 @@ BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果游戏打磨的好点可以整一个玩一玩，现在这个质量我只能说比那个国产的嗜血印好点……
 
+
+*****
+
+####  Byooon  
+##### 65#       发表于 2024-3-14 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255622&amp;ptid=2173536" target="_blank">lostchild 发表于 2024-3-14 21:03</a>
+
+BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也没了 纯粹要靠背板  ...</blockquote>
+基本就是MMO初版的玩家性能降低了一圈，然后敌人全体打鸡血+多动症+界王拳。
+
+红技基本没有有效的对应手段。盾娘的防御也基本没有存在的必要。。重防轻防分得这么清楚结果防御0受益。不如2重击无脑接翻滚。
+
+3轻后的重击也没有存在必要了。。反正BOSS战也没机会用。杂兵堆也不会让你轻松打出地四下轻击。
+
+技能也是笑话。对BOSS时也没有任何实际意义。
+
+我不知道这个demo拿出来是要干嘛。。<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+

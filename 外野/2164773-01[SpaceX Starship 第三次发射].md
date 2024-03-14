@@ -2227,3 +2227,40 @@ SX指挥中心确认飞船损失了</blockquote>
 
 【FAA正监督SpaceX对星舰试飞失败的调查】据美国联邦航空管理局（FAA）声明称，该局正在监督SpaceX主导的对星舰第三次试飞事故的调查，以确保该公司遵守事故调查计划和其他监管要求。
 
+
+*****
+
+####  commcody  
+##### 371#         楼主| 发表于 2024-3-14 23:49
+
+老马发了无人机视角的起飞
+
+<img src="https://img.saraba1st.com/forum/202403/14/234925fmkttmmno6um6fzb.jpg" referrerpolicy="no-referrer">
+
+<strong>GIpGLaPWMAARNwL.jpg</strong> (208.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 23:49 上传
+
+*****
+
+####  commcody  
+##### 372#         楼主| 发表于 2024-3-14 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257436&amp;ptid=2164773" target="_blank">星之卡比 发表于 2024-3-14 23:39</a>
+
+【FAA正监督SpaceX对星舰试飞失败的调查】据美国联邦航空管理局（FAA）声明称，该局正在监督SpaceX主导的对 ...</blockquote>
+对于FAA来说是正常程序。只要不符合事前提交的飞行计划，就算mishap。
+
+
+*****
+
+####  netcat  
+##### 373#       发表于 2024-3-14 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257538&amp;ptid=2164773" target="_blank">commcody 发表于 2024-3-14 23:49</a>
+
+老马发了无人机视角的起飞</blockquote>
+这个烟怎么红褐色的？调色原因吗
+

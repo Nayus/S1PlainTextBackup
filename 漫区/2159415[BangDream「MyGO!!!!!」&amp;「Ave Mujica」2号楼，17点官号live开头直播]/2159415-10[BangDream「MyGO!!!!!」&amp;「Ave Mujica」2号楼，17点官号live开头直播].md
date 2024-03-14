@@ -9864,3 +9864,25 @@ cp和歌要想挂钩还是等进游戏有剧情了比较好嗑<img src="https://
 
 #爱音美神降临#
 
+
+*****
+
+####  PDQ4  
+##### 14166#       发表于 2024-3-14 23:46
+
+pp彩千圣真正嗑起来就是因为这首歌，看完剧情再看歌词就有种看到真心的感觉，有情歌就是对味。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ppp这张图，ars应得的。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+感觉这套周年图很适合出镭射票之类的周边，你邦是真的不会出谷，还多鬼图，这次周年池有些图真的是很有你邦特色。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱丁堡official  
+##### 14167#       发表于 2024-3-14 23:54
+
+今天节目里青木是不是明显瘦了？这就是舞台少女的实力吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

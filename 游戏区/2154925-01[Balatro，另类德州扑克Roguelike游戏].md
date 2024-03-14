@@ -5912,3 +5912,16 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  mjwells  
+##### 521#       发表于 2024-3-14 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64249528&amp;ptid=2154925" target="_blank">a4ac7 发表于 2024-3-14 11:09</a>
+
+设置里速度调慢看看一张牌触发几次
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+没想到，已经打完了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

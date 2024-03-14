@@ -387,3 +387,11 @@ Nexon发布《洛奇英雄传：反抗命运》最新宣传片，并预告本作
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">离谱 我这边频繁闪退
 
+
+*****
+
+####  跳瓶器  
+##### 45#       发表于 2024-3-14 12:40
+
+被小红暴打了数十次才过，现在卡在冰谷第二个boss
+

@@ -9920,3 +9920,13 @@ ppp这张图，ars应得的。<img src="https://static.saraba1st.com/image/smile
 
 生放唯一的新料就是一大波鬼图，看得出来这个新公司确实挺捉急的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 14172#       发表于 2024-3-15 01:13
+
+生放游戏俩活动，月底是ppp箱活。
+
+可以做梦明年前信泽画腻邪神笑吗，或者招到新人画师。一想到明年鸡加入后全员鬼图就难蚌，不过至少睦海俩有一张卡面可以避免邪神笑，还不说谢谢面具<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

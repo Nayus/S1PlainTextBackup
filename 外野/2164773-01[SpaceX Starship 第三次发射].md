@@ -312,3 +312,14 @@ SS真正进行过的飞行就上回那几十秒，这回要完成从推进剂转
 不是啊，SS之前已经试飞过这么多次了，superheavy倒是只有两次</blockquote>
 单独的测试飞行和实际任务飞行区别很大的，而且之前的测试飞行通常一次飞行也只会测试一项功能，这回是一起上
 
+
+*****
+
+####  madbird023  
+##### 159#       发表于 2024-3-14 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64247492&amp;ptid=2164773" target="_blank">andychen 发表于 2024-3-14 08:10</a>
+
+单独的测试飞行和实际任务飞行区别很大的，而且之前的测试飞行通常一次飞行也只会测试一项功能，这回是一 ...</blockquote>
+所以每次打starship之前我还是很紧张的，不像看猎鹰九已经毫无波澜了
+

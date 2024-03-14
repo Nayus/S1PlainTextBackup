@@ -5996,3 +5996,16 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 复制哑剧演员可以让牌的生效次数从3次变4次，复制男爵可以让牌生效以后触发的倍率多乘一次1.5（因为钢铁和男爵都是1.5，所以我上面才说2次变3次）
 
+
+*****
+
+####  mjwells  
+##### 525#       发表于 2024-3-14 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252090&amp;ptid=2154925" target="_blank">himtom 发表于 2024-3-14 15:24</a>
+
+钢铁+男爵+红蜡封=1.5^4
+
+红蜡封让这张牌生效了两次，因此钢铁和男爵各自触发了两次</blockquote>
+理解了，谢谢解答！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -44,3 +44,14 @@ bio3 晚了你软一个月 泥砖123现在才上 你索还行不行
 
 这个速度来看，3年内生化4re也要送了吧
 
+
+*****
+
+####  贝恩德塔  
+##### 194#         楼主| 发表于 2024-3-14 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252094&amp;ptid=2173605" target="_blank">plusfive 发表于 2024-3-14 15:25</a>
+
+虽然但是，主楼的排版不能改善一下吗，太难看了...</blockquote>
+用手机网页版编辑的，不太好编辑，稍等
+

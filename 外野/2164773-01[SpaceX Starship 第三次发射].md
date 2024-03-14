@@ -2293,3 +2293,42 @@ SX指挥中心确认飞船损失了</blockquote>
 
 至于为什么不改——</blockquote>很多工业皇冠上的明珠到现在还在用几十年前生产的32位CPU呢，你觉得为什么？理由确实就是没必要为了死宅看直播更爽而更改设计，增加成本、复杂度和未知风险。
 
+
+*****
+
+####  phorcys02  
+##### 377#       发表于 2024-3-15 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257212&amp;ptid=2164773" target="_blank">windrarara 发表于 2024-3-14 23:19</a>
+
+再入之前姿态一直在滚真的没问题吗？</blockquote>
+另外无动力滑行的大部分时间，rcs都在动作，有这个必要么
+
+还是因为前后翼的远古不稳？
+
+*****
+
+####  FeliciaCWells  
+##### 378#       发表于 2024-3-15 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256995&amp;ptid=2164773" target="_blank">间宮夏生 发表于 2024-3-14 22:58</a>
+
+下次就可以装一些假星链试试释放机构成色了，争取年底正式上班</blockquote>
+星链2都攒一仓库等几年了，没必要费事做假星
+
+*****
+
+####  phorcys02  
+##### 379#       发表于 2024-3-15 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257920&amp;ptid=2164773" target="_blank">lexi 发表于 2024-3-15 00:28</a>
+
+很多工业皇冠上的明珠到现在还在用几十年前生产的32位CPU呢，你觉得为什么？理由确实就是没必要为了死宅看 ...</blockquote>
+其实单纯升级下火箭的摄像头问题不大
+
+但是带来的麻烦就是 全国全球几十个站，远望xn,天链xn
+
+都得改，为了旧型号不值当，光测试不知道要花多少钱
+
+新型号走新流程没包袱，就容易得多
+

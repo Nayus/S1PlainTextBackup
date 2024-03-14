@@ -629,3 +629,25 @@ BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也�
 
 结果官方DC里起码一半讨论都是嫌衣服不够暴露和嘲笑前者喜欢穿寄女服装甩大乃子打架的玩家大战，令人感慨
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 68#       发表于 2024-3-15 00:36
+
+已经出了吗，该玩了
+
+*****
+
+####  三谷歩夢  
+##### 69#       发表于 2024-3-15 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257405&amp;ptid=2173536" target="_blank">zzy516232108 发表于 2024-3-14 23:37</a>
+
+感觉怪都比以前疯是我的错觉吗
+
+这么堆怪但是主角性能没更新 群殴等于换血</blockquote>
+从官方的态度看这个demo很明显就是拿来收集意见用的，原版大部分系统都没实装，而且也很明显没有怎么去调怪物数量和主角性能之类，没理由连抄作业都抄不会
+
+不过烈士塔倒是很微妙还原最初版的性能笑话<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

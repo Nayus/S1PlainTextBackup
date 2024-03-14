@@ -488,3 +488,14 @@ SpaceX发推，今日天气70%概率符合发射条件。新的发射时间是�
 偏偏今晚加班没办法看直播了，残念。</blockquote>
 批站purecosmos
 
+
+*****
+
+####  塔奇克马  
+##### 174#       发表于 2024-3-14 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254490&amp;ptid=2164773" target="_blank">commcody 发表于 2024-3-14 19:09</a>
+
+SpaceX发推，今日天气70%概率符合发射条件。新的发射时间是中部时间早7点30分（北京时间20点30分）。官方直 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">看图片像是在云层上发射
+

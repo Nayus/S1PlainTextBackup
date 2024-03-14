@@ -3316,3 +3316,20 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">箭头懒得设计地图的任务路线就给玩家设计一套无限死亡循环的刷怪机制，真他喵的天才。
 
+
+*****
+
+####  lzw1990  
+##### 1796#       发表于 2024-3-14 16:08
+
+问个事 把冒烟召唤援军的虫子打死后 旁边空地还是会隔空冒烟爆援军
+
+这个是原本就有的机制还是BUG
+
+*****
+
+####  山风短  
+##### 1797#       发表于 2024-3-14 16:09
+
+有句说句这游戏的白皮社群是我见过最认真玩游戏的了，还懂得去挖数据找bug，我读书少，以前只见过捧厂商臭脚的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

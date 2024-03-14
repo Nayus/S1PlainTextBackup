@@ -6317,3 +6317,31 @@ X赛一群傻逼，根本不管鱼在哪瞎几把冲，还不如玩开放，我�
 
 【秩序篇=异度3？喷喷的剧情或许比想象中更有深度~】 [https://www.bilibili.com/video/B ... 02e8c37e3d9b2127eac](https://www.bilibili.com/video/BV1mi421d7Lw/?share_source=copy_web&amp;vd_source=a49dc2b4008b102e8c37e3d9b2127eac) 不知道搬哪就发这吧
 
+
+*****
+
+####  罗克萨斯  
+##### 3620#       发表于 2024-3-14 23:09
+
+新赛季才打三天就喜提S+负分了，战绩再次逼近40%
+
+特么的给我狙队友能不能别塞这么菜的啊，菜狙能不能别打X赛和挑战啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/14/230756y2ra0ueeaynbuzna.jpg" referrerpolicy="no-referrer">
+
+<strong>2024031422382900-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (237.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202403/14/230756rz8ldfddldv017cl.jpg" referrerpolicy="no-referrer">
+
+<strong>2024031422494400-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (237.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-14 23:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

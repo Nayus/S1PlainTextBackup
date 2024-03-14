@@ -4379,3 +4379,16 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 不怂，对忍组的开放世界毫无期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但战斗要是不如卧龙就去跳富士山吧
 
+
+*****
+
+####  病態極端  
+##### 1118#       发表于 2024-3-14 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256647&amp;ptid=2092342" target="_blank">Rushtime33 发表于 2024-3-14 22:27</a>
+
+他只玩了前5个小时左右。提的还是那几点吧，学其他游戏但是都不精，整个游戏相比对马岛这种游戏很落后，目 ...</blockquote>
+先不說他不用武技不用派生不用石火只按普攻 = 一直按一個鍵。
+
+就算真的只有一鍵可以按，也是雙標吧…他是如何評價對馬、隻狼的真一鍵戰鬥的？
+

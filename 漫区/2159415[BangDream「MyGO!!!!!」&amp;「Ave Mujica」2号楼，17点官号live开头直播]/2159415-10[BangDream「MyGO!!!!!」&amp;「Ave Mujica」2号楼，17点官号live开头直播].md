@@ -9829,3 +9829,17 @@ syl，怎么漏油还能吵曲子代什么cp的，甚至联系到踩糖。难道
 
 就是可惜罗密欧有点嗑不起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 14163#       发表于 2024-3-14 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64256913&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-3-14 22:51</a>
+罗密欧roki好好好，，ゆら・ゆらRing-Dong-Dance倒是没听过我来试试看
+
+就是可惜罗密欧有点嗑不起来[ ...</blockquote>
+挺好听的，让我喜欢上了PP
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

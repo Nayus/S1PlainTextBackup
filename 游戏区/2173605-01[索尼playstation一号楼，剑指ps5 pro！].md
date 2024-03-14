@@ -97,3 +97,14 @@ pc党本来也没打算买ps5，上pc属于额外的玩家何来萎缩的说法�
 
 喜报一件事，PSVR2最新固件画面提升很大，这块OLED终于发力了，搞半天是索尼没有优化好嘛
 
+
+*****
+
+####  贝恩德塔  
+##### 200#         楼主| 发表于 2024-3-14 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257019&amp;ptid=2173605" target="_blank">淡定君 发表于 2024-3-14 23:01</a>
+
+喜报一件事，PSVR2最新固件画面提升很大，这块OLED终于发力了，搞半天是索尼没有优化好嘛 ...</blockquote>
+真的吗， 吃灰这么久终于可以翻出来了吗
+

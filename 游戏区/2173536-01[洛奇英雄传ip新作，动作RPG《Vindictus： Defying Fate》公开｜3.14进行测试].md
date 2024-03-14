@@ -572,3 +572,11 @@ BOSS的霸体太强了 连招也不能翻滚取消 一套打出来 自己血也�
 
 有前作当素材库，披上UE5的皮，爽啊
 
+
+*****
+
+####  herryk159  
+##### 63#       发表于 2024-3-14 23:14
+
+冰风谷也太卡了，还有霸体怪，好恶心。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -9533,3 +9533,13 @@ amt还演过这</blockquote>
 武士道你的逆输入呢</blockquote>
 回复标记一下，没东西画着玩了就搞这个
 
+
+*****
+
+####  6030sylar  
+##### 14136#       发表于 2024-3-14 16:55
+
+<img src="https://p.sda1.dev/16/4595d737a8c0882103b34ef40fe69419/CMP_20240314165541495.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

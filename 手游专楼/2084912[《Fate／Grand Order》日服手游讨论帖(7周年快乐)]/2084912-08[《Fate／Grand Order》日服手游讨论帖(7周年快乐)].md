@@ -1300,3 +1300,11 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 
 已经很多年没打活动高难了，懒得去想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 11525#       发表于 2024-3-14 09:00
+
+抄作业，库库xjbd，但确实烦得一比
+

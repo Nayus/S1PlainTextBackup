@@ -1060,3 +1060,14 @@ relink的牢法我感觉像是和sdf聊天回忆。不是本人打赢复活赛�
 老咸鱼不想再投资火了想玩玩水，水以后应该要换漆黑，所以石油换把杖有前途吗，感觉减CD能很多花样。主要是 ...</blockquote>
 没有，水旧石油最有价值的应该是石油弓，少格子凑暴击，欧枪攻击觉醒未来可期；次一点是花圈，你没有水铳也可以玩玩水方天，说不定1老登上修以后又能散装mao了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 17759#       发表于 2024-3-14 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64244537&amp;ptid=1158205" target="_blank">usoda 发表于 2024-3-13 20:42</a>
+
+小妹妹信仰崩塌两眼一黑从空中倒栽葱下去的时候我承认我笑出来了</blockquote>
+只不过是为主角去接住她这碟醋包的饺子罢了对标奢华的手指
+

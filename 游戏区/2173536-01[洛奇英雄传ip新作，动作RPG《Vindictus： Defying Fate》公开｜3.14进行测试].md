@@ -810,3 +810,48 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 体力系统应该是还没来得及加，以后肯定得有，这样战斗难度会比现在大。但是那时候技能也应该更丰富了，所以难说。
 
+
+*****
+
+####  Disturbia  
+##### 82#       发表于 2024-3-15 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259256&amp;ptid=2173536" target="_blank">绚烂航迹云 发表于 2024-3-15 08:55</a>
+盾娘还有盾反吗？
+动作上盾反似乎被合并到LB+X和LB+Y上了，防御后好像接不出反击</blockquote>
+防住之后不能松开防御键再重击啊 我也是玩了一会儿才想起来咋按
+
+*****
+
+####  Disturbia  
+##### 83#       发表于 2024-3-15 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259479&amp;ptid=2173536" target="_blank">CrayS1 发表于 2024-3-15 09:18</a>
+昨天把试玩打完，和原版比玩家动作的流畅度，爽快感，打击感都不行，只能说进步空间很大。大饼最基本的盾流 ...</blockquote>
+其实相比原版多了非常多的小硬直 攻击频率上去经常把boss打得抽搐 不过boss开始连段之后只能等收招之后才出硬直了 除非用打断技能（盾娘1技能小炖鸡）
+
+*****
+
+####  Disturbia  
+##### 84#       发表于 2024-3-15 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259508&amp;ptid=2173536" target="_blank">CrayS1 发表于 2024-3-15 09:22</a>
+这次没有盾反吧? 我是没按出来。  LB技能还有CD真的难用.  
+
+体力系统应该是还没来得及加，以后肯定得有 ...</blockquote>
+防完之后不能松开防御键，再接重击就行了。我也是玩了一会儿才想起来咋按。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绚烂航迹云  
+##### 85#       发表于 2024-3-15 12:44
+
+<blockquote>引用第81楼Disturbia于2024-03-15 12:36发表的  :
+
+引用:绚烂航迹云 发表于 2024-3-15 08:55盾娘还有盾反吗？动作上盾反似乎被合并到LB+......</blockquote>
+那不就是LB+Y？不用防御也能摁出来的，而且有CD
+以前网游我全靠盾反打倒地再输出的，现在变成抓攻击间隔输出，整不会了，第二个小boss射箭的狼人就卡关了
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+

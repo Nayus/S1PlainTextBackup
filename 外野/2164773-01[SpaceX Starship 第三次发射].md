@@ -3001,3 +3001,58 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 说的是总投入，冷战美苏双方40年航天斗法花的钱可海了去了，整套体系是现在航天的基座 ...</blockquote>
 “总投入”，你还真敢讲。我国还是个发展中国家，大部分人才刚吃饱不要想太多，中国航天能有今天的成果已经很了不起了，现在的悬念就是老美能否抢在我国之前重新载人登月。
 
+
+*****
+
+####  哈里-谢顿  
+##### 433#       发表于 2024-3-15 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260548&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-15 10:50</a>
+
+星舰二级的天线位于背部，在再入的时候没有被等离子体鞘全部包裹，同时它的发射方向是向背后的星链卫星而 ...</blockquote>
+实际上还没到70-80KM最热的那段，那时候等离子鞘会包裹全身。后面肯定会中断几分钟
+
+*****
+
+####  pe_nimnul.a  
+##### 434#       发表于 2024-3-15 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">饭吃饱了几天啊就要和冷战两极去比那种不计后果的军备竞赛比投入比成果?前几年可是真的还在齐刷刷说射火箭是面子工程造福不到老百姓跟我月3000有什么关系的 ，分得清主要矛盾次要矛盾吗
+
+*****
+
+####  windtrack_qh  
+##### 435#       发表于 2024-3-15 12:42
+
+空天领域不如美国就是得承认
+
+目前近地轨道应该说和美国掰手腕
+
+地月领域大家在赛跑
+
+火星探测美国显著领先，我们可能弯道超车
+
+深空领域我们还没摸到美国尾气
+
+为什么要跟网上的小将一般见识
+
+*****
+
+####  桧川直巳  
+##### 436#       发表于 2024-3-15 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260495&amp;ptid=2164773" target="_blank">从心， 发表于 2024-3-15 10:47</a>
+如果星盾真的能像官网上说的那样提供不间断监视，这岂不是直接施压中国军方推行中国的星链系统？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你猜目前在热点地区已经达成亚米级亚小时白光监视卫星网络的是哪个国家？
+
+
+*****
+
+####  瓦格雷  
+##### 437#       发表于 2024-3-15 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261605&amp;ptid=2164773" target="_blank">prattwhitney 发表于 2024-3-15 12:22</a>
+
+说的是总投入，冷战美苏双方40年航天斗法花的钱可海了去了，整套体系是现在航天的基座 ...</blockquote>
+大哥  那时是2国对飚不惜成本的投入 和现在能比吗  要对比也要对比差不多环境下的投入啊  
+

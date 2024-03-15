@@ -4539,3 +4539,11 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 架势好像更像对马岛这种对付不同敌人选不同架势克制，而不是仁王那种战斗中切架势派生连段？看了几个前瞻 ...</blockquote>
 被克制或者克制不是绝对劣势或者优势，因为隼流的忍架势是被所有架势克制，总不至于隼流砍谁都砍不动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 1134#       发表于 2024-3-15 10:07
+
+架势克制我看描述是只写了石火效果提升<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

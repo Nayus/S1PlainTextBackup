@@ -3202,3 +3202,14 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  慕容断月  
+##### 261#       发表于 2024-3-15 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255068&amp;ptid=2123540" target="_blank">彩虹肥宅 发表于 2024-3-14 20:04</a>
+
+我高中没及格，那个加点就知道一个力量</blockquote>
+巧了，要是日语我还行，英语我也是甚至可能更菜，所以放心玩吧，没有特别大的影响
+

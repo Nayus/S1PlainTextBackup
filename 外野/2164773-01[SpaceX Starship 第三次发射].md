@@ -2468,3 +2468,86 @@ SX指挥中心确认飞船损失了</blockquote>
 
 这也就等于他暂时没办法接商单——除非商单也是很小的卫星。
 
+
+*****
+
+####  缪拉泽  
+##### 392#       发表于 2024-3-15 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259551&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-03-15 09:26:20</a>
+绿帽子坛国新区的帖子还是那么乐
+
+土星V可靠性那么好为什么不用土星V
+
+星舰和登月有什么关系我了解的星舰 ...</blockquote>因为nga国新区大都是一些朴素又喜欢表达的爱国者
+
+空叉成功最直观就是美国人赢，中国人输
+
+气急败坏骂人嘴硬也挺正常
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  niconick  
+##### 393#       发表于 2024-3-15 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259849&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-15 09:54</a>
+
+其实还是不太行——目前这个技术状态载荷释放还是有问题，只能拿来释放星链——他那个货仓开门就只能通过 ...</blockquote>
+不是美军那边已经准备上星盾计划吗？一批能发这么多卫星搞全图挂，空间态势感知什么的不要太合适。只要反卫星武器比卫星成本贵就能成。资本主义下这也算商单吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Суслов  
+##### 394#       发表于 2024-3-15 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259973&amp;ptid=2164773" target="_blank">缪拉泽 发表于 2024-3-15 10:05</a>
+因为nga国新区大都是一些朴素又喜欢表达的爱国者
+
+空叉成功最直观就是美国人赢，中国人输</blockquote>
+你说轻了，那是全人类赢，中国人输<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  byhmsrsh  
+##### 395#       发表于 2024-3-15 10:10
+
+<blockquote>Суслов 发表于 2024-3-15 10:08
+你说轻了，那是全人类赢，中国人输
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 S1Next-鹅版 v ...</blockquote>
+没错，要不怎么🐎孝子都是笑话呢
+
+
+*****
+
+####  longmarch5  
+##### 396#       发表于 2024-3-15 10:14
+
+ 本帖最后由 longmarch5 于 2024-3-15 10:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259973&amp;ptid=2164773" target="_blank">缪拉泽 发表于 2024-3-15 10:05</a>
+
+因为nga国新区大都是一些朴素又喜欢表达的爱国者
+
+空叉成功最直观就是美国人赢，中国人输</blockquote>
+问题是，你要是真关心航天，好歹看看中国航天什么动向，对space-x和它的技术路线是什么态度
+
+国内航天系统专业人员的一些文章要是转去给他们看，作者估计也要被打成殖人
+
+爱国和承认对方有先进技术，自己这边暂时落后，并不矛盾
+
+*****
+
+####  缪拉泽  
+##### 397#       发表于 2024-3-15 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260018&amp;ptid=2164773" target="_blank">Суслов 发表于 2024-03-15 10:08:47</a>
+你说轻了，那是全人类赢，中国人输 v2.5.4</blockquote>主要是有太多“庆幸科技掌握在文明手中”的人了
+
+看多了确实容易上头破防应激
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -4378,3 +4378,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 今天服务器是又炸了吗，进了五个房，四个房进去半分钟就提醒主办者已退出游戏，玩着感觉自己像死神来了
 
+
+*****
+
+####  Benighted  
+##### 1900#       发表于 2024-3-15 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">今天最后上飞机时出bug了 ctrl无法呼出菜单无法叫增援 ，被房主踢了
+

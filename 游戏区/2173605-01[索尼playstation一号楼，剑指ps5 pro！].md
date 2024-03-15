@@ -317,3 +317,15 @@ ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 
 要求不高，能跑个2k60的7rb就行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">刚把圣兽之王打完，马上也要浪人了，rb可以直接拖到pro。
 
+
+*****
+
+####  ohi.02  
+##### 219#       发表于 2024-3-15 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262508&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-3-15 14:11</a>
+这图的质量真的看得出啥吗</blockquote>
+看过原图，FSR2的画面还是一眼能看出来是糊的，PSSR的画面好很多，只是稍微有点糊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

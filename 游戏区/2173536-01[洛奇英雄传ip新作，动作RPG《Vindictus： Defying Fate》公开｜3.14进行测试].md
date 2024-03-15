@@ -970,3 +970,14 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 酋长红光还有机会闪开或者狂怒飘走</blockquote>
 没错，基本上二阶段想无伤的话就不太能在boss动作间隔期间主动蹭刀了，最多打2s或者1sd，打2sd出红光想滚都很极限。一阶段的话，基本每个动作期间打个2sdd都是来得及的。
 
+
+*****
+
+####  CrayS1  
+##### 95#       发表于 2024-3-15 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262895&amp;ptid=2173536" target="_blank">Disturbia 发表于 2024-3-15 14:48</a>
+
+看了下，应该是手柄按键问题。按照键鼠逻辑TDD应该是LB+YY，但是手柄这样按会出1技能。 ...</blockquote>
+这样啊，回去换成键鼠试试。 
+

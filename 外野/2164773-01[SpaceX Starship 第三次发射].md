@@ -3282,3 +3282,24 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 
 心机穿越版本
 
+
+*****
+
+####  试制甲炮  
+##### 457#       发表于 2024-3-15 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262351&amp;ptid=2164773" target="_blank">一瓶汽水5块 发表于 2024-3-15 13:57</a>
+
+作为一个航空小白，想了解几个问题。都说军用转民用，SpaceX以商飞为卖点，背后究竟有没有官方的技术和人员 ...</blockquote>
+简单的来说，NASA基本就是一个纯的政府机构+服务采购方（也有几个研究机构但不是大头），实际上干活的全是下面的波音、洛马之类的企业，NASA就管提需求+花钱买。所以以前经常喜欢说的空叉窃取米国航天国有资产其实就现在来看挺可笑的。
+
+*****
+
+####  试制甲炮  
+##### 458#       发表于 2024-3-15 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263028&amp;ptid=2164773" target="_blank">xdescat01 发表于 2024-3-15 15:00</a>
+
+空叉不在美国的话肯定不会有那么好的人才基础，但是总得来说从NASA那里得到的帮助（技术和资金）并不比几 ...</blockquote>
+关于航天上吹哈师傅大手的真应该去看看空叉的友商都是什么虫豸。与其说市场经济优越性倒不如吹马斯克作为企业家的领导才能。
+

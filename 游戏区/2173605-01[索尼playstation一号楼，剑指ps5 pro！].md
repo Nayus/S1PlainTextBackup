@@ -309,3 +309,11 @@ PlayStation 5 Pro Specs Leak:
 
 ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 
+
+*****
+
+####  banjia0815  
+##### 218#       发表于 2024-3-15 15:34
+
+要求不高，能跑个2k60的7rb就行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">刚把圣兽之王打完，马上也要浪人了，rb可以直接拖到pro。
+

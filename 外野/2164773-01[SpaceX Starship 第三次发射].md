@@ -2367,3 +2367,11 @@ SX指挥中心确认飞船损失了</blockquote>
 
 马斯克多少得封个圣了把
 
+
+*****
+
+####  狂河冰不烈  
+##### 383#       发表于 2024-3-15 08:07
+
+估计再过10年，“把马一龙收入麾下”或者“物理消除马一龙”就会成为穿越类网文星海题材的标配。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1368,3 +1368,13 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 想起了奏三那个长得像龙娘的角色才是卡里奥斯特罗伯爵的推测，完美理想形态就是美少女 ...</blockquote>
 正好那个龙娘发型还特像魔神柱，声优是丹下樱就更对味了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 11532#       发表于 2024-3-15 19:16
+
+为了石头总算把所长本打了 确实没看上去吓人
+
+不过最好还是别来这种了
+

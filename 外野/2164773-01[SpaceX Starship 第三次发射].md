@@ -3640,3 +3640,17 @@ HLS的难点只有油船长期储存LOX/甲烷，这个部分已经由这次探�
 单纯从保温角度来说，大型蓄罐的难度比小型蓄罐低吧？</blockquote>
 先做出来测试看看再说。
 
+
+*****
+
+####  xdescat01  
+##### 481#       发表于 2024-3-15 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263365&amp;ptid=2164773" target="_blank">试制甲炮 发表于 2024-3-15 15:35</a>
+关于航天上吹哈师傅大手的真应该去看看空叉的友商都是什么虫豸。与其说市场经济优越性倒不如吹马斯克作为 ...</blockquote>
+马斯克还真的挺能证明哈师傅的，哈师傅的核心不是企业高效而是市场高效，而市场高效是建立在市场会自发的把技术人才资源从低效的部门转移到高效的部门而不需要通过行政指令
+
+如果不靠市场而是靠行政指令，现在美吹还只能吹废物波音重金打造的新瓶装旧酒的SLS
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

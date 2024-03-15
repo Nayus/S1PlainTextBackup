@@ -12776,3 +12776,15 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  koodooliz  
+##### 2765#       发表于 2024-3-15 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261586&amp;ptid=2130897" target="_blank">江口夕 发表于 2024-3-15 12:21</a>
+中游还是别了以前可能是中游，现在是冷门中的冷门，以前是以前现在是现在。b站几个kol都没看过本家
+
+—— ...</blockquote>
+真冷门的连浪都翻不起来，至少爱马仕这名头还是有点的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

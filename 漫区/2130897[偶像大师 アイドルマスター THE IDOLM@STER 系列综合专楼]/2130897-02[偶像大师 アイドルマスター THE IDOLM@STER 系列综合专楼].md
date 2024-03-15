@@ -13020,3 +13020,11 @@ Crush，Anti，神パラサイト，狐憑き
 
 接下来的新人能从电音部里面挑吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我可喜欢秋奈了。
 
+
+*****
+
+####  ViviR  
+##### 2788#       发表于 2024-3-15 21:27
+
+初始九人的中之人应该都是些生面孔。秋奈要真来了那唱功至少暴杀前面这几位没任何问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

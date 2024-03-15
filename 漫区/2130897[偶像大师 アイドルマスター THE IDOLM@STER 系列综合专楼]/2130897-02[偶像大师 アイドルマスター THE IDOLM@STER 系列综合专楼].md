@@ -12950,3 +12950,20 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rgauss  
+##### 2781#       发表于 2024-3-15 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">能带阳希玩吗
+
+*****
+
+####  kirakira~  
+##### 2782#       发表于 2024-3-15 17:14
+
+话说这次和观众互动的部分真整挺好啊
+
+喜欢
+

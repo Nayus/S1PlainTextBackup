@@ -992,3 +992,11 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 这样啊，回去换成键鼠试试。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我自己用手柄试了试 手柄你得LB防住之后松开LB再按Y触发反击 而键鼠是要Q挡住之后还按住Q再右键才能反击 逻辑不一样
 
+
+*****
+
+####  暗黑破坏猴  
+##### 97#       发表于 2024-3-15 17:07
+
+对a卡什么垃圾优化，6900xt一打boss战稳定30秒闪退
+

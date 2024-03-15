@@ -6401,3 +6401,13 @@ X赛一群傻逼，根本不管鱼在哪瞎几把冲，还不如玩开放，我�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  晴岚  
+##### 3626#       发表于 2024-3-15 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">加班回来发现本来最多a的电锯现在估计只有b……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

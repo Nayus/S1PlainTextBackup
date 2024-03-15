@@ -4547,3 +4547,14 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 架势克制我看描述是只写了石火效果提升<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 1135#       发表于 2024-3-15 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257346&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-14 23:31</a>
+
+开放世界水平无所吊谓，比莱沙3好就算成功</blockquote>
+莱莎3比菲莉丝强已经胜利了，建议莱莎3换成菲莉丝<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

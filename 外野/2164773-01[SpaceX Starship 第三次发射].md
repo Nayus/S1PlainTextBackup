@@ -2551,3 +2551,75 @@ SX指挥中心确认飞船损失了</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  commcody  
+##### 398#         楼主| 发表于 2024-3-15 10:20
+
+<blockquote>四号舰美浓 发表于 2024-3-15 09:05
+马斯克是他那个公司体量没办法上直径九米的铝合金环带一次成型锻造设备，而我们已经有直径10.5米的这种设备 ...</blockquote>
+老马追求不锈钢的制造效率。这才能做到如今一年不到射了三发，机库里还存满了后续的待发舰。如果追求成熟发展路线，那还是铝合金适合。
+
+
+*****
+
+####  缪拉泽  
+##### 399#       发表于 2024-3-15 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260086&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-03-15 10:14:55</a>
+问题是，你要是真关心航天，好歹看看中国航天什么动向，对space-x和它的技术路线是什么态度
+
+国内航天系 ...</blockquote>如果会关注那么多，就不是朴素的爱国者
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cleaner  
+##### 400#       发表于 2024-3-15 10:23
+
+如果说以前的公知是速败论，那现在的“朴素爱国者”就是速胜论了，但凡只要不是赢，就一定是输
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  缪拉泽  
+##### 401#       发表于 2024-3-15 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260193&amp;ptid=2164773" target="_blank">cleaner 发表于 2024-03-15 10:23:13</a>
+如果说以前的公知是速败论，那现在的“朴素爱国者”就是速胜论了，但凡只要不是赢，就一定是输
+
+—— 来自  ...</blockquote>主要还是国内汴京环境导致的
+
+赢人的对立面也是这样的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Суслов  
+##### 402#       发表于 2024-3-15 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260086&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-15 10:14</a>
+问题是，你要是真关心航天，好歹看看中国航天什么动向，对space-x和它的技术路线是什么态度
+
+国内航天系统 ...</blockquote>
+不用转，上知乎看看，说自己是业内人士然后开始大输特输的有的是，这种对抗环境指望任何一方理智那是不可能的
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  瓦格雷  
+##### 403#       发表于 2024-3-15 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260086&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-15 10:14</a>
+
+问题是，你要是真关心航天，好歹看看中国航天什么动向，对space-x和它的技术路线是什么态度
+
+国内航天系统 ...</blockquote>
+我国登月带头人说了一句美国登月是真的  就被打成汉奸了  专业人士是啥  能吃吗 ^_^
+

@@ -689,3 +689,45 @@ Rage your dream~
 Burn Your Dick也不错</blockquote>
 ................要不干脆不纠结首字母，用build your dreams的反义词，写Fuck My Life好了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwwwww111  
+##### 76#       发表于 2024-3-15 10:19
+
+在比亚迪汽油时代，由于BYD的谐音导致都要求比亚迪换车标，后来为了这个加上了全称
+
+认知度上来了就无所谓了
+
+*****
+
+####  gdx9900  
+##### 77#       发表于 2024-3-15 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252725&amp;ptid=2175522" target="_blank">LaZier 发表于 2024-3-14 16:22</a>
+
+.......................不如译成中文，直接贴一句“做你的梦”吧，来自神秘东方的方块字，外国友人一定会 ...</blockquote>
+字体必须用小篆，甲骨更好，看不懂有神秘感加持的逼格才高。
+
+
+*****
+
+####  a4ac7  
+##### 78#       发表于 2024-3-15 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64253035&amp;ptid=2175522" target="_blank">MintCake 发表于 2024-3-14 16:46</a>
+P3是burn your dread</blockquote>
+burn my dread<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iluso  
+##### 79#       发表于 2024-3-15 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252725&amp;ptid=2175522" target="_blank">LaZier 发表于 2024-3-14 16:22</a>
+
+.......................不如译成中文，直接贴一句“做你的梦”吧，来自神秘东方的方块字，外国友人一定会 ...</blockquote>
+“吧”字放引号里面
+

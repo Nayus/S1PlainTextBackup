@@ -4045,3 +4045,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 出了电甲之后路人带电塔的概率直线上升
 
+
+*****
+
+####  smdzh2  
+##### 1869#       发表于 2024-3-15 12:03
+
+因为磁暴线圈很好用啊，就是对萌新不太友好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4725,3 +4725,28 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 开放世界烂也不代表制作起来就很轻松啊，你们眼中最偷懒的罐头地图估计也是累秃了不少人才做出来的
 
+
+*****
+
+####  黑修士  
+##### 1156#       发表于 2024-3-15 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261311&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-3-15 11:55</a>
+
+虽然育碧的开放世界说不上好玩，但整体素质不是忍组能比的还是期待战斗系统和敌人设计吧 ...</blockquote>
+没有魔幻元素，浪人的敌人种类应该也不多
+
+目前对浪人崛起的感觉就是幕末背景，画面差不多，动作系统更丰富的刺客信条奥德赛
+
+*****
+
+####  Yeelolo  
+##### 1157#       发表于 2024-3-15 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261193&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-15 11:45</a>
+
+印象里育碧的日本战国版刺客信条也是今年发售
+
+也是一男一女双主角，不知道在开放世界上谁会更好玩一些 ...</blockquote>
+忍组开放世界设计能摸到刺客信条3的边么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是期待战斗罢
+

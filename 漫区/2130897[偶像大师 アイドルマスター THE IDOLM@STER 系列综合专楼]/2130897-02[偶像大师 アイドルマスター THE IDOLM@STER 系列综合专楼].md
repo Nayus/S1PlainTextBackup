@@ -12984,3 +12984,23 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 蓝毛的电音部歌回刚开始了，其实我没完全听过电音部的歌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/a8557ad570c1eb93dacd48dcef7ffab2/CMP_20240315201227340.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sliver1997  
+##### 2785#       发表于 2024-3-15 20:33
+
+电音部的歌质量还不错，虽然近期出的质量感觉下滑了
+推荐下个人比较喜欢的
+港白金：
+where is love，love me harder，IAM，いただきバベル
+
+秋叶原：
+トアルトワ，Mani Mani，New Frontier
+
+原宿：
+Goodnight  Baby，Hyper Bass
+
+真新宿：
+Crush，Anti，神パラサイト，狐憑き
+

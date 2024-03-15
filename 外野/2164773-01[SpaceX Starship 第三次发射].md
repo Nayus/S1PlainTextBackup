@@ -2978,3 +2978,26 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 这就有点小看鳖了。。。我记得中国航天经费如今也有NASA经费的近半了，国家队的能力和成果跟别的国家队相 ...</blockquote>
 说的是总投入，冷战美苏双方40年航天斗法花的钱可海了去了，整套体系是现在航天的基座
 
+
+*****
+
+####  哈里-谢顿  
+##### 431#       发表于 2024-3-15 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259551&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-15 09:26</a>
+
+绿帽子坛国新区的帖子还是那么乐
+
+土星V可靠性那么好为什么不用土星V</blockquote>
+国新哪里是阴谋论老巢，去哪里看啥啊
+
+*****
+
+####  先接受再理解  
+##### 432#       发表于 2024-3-15 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261605&amp;ptid=2164773" target="_blank">prattwhitney 发表于 2024-3-15 12:22</a>
+
+说的是总投入，冷战美苏双方40年航天斗法花的钱可海了去了，整套体系是现在航天的基座 ...</blockquote>
+“总投入”，你还真敢讲。我国还是个发展中国家，大部分人才刚吃饱不要想太多，中国航天能有今天的成果已经很了不起了，现在的悬念就是老美能否抢在我国之前重新载人登月。
+

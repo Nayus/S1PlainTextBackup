@@ -4077,3 +4077,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 二三十级还算萌新吗？
 
+
+*****
+
+####  赤井稻妻  
+##### 1873#       发表于 2024-3-15 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262011&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-3-15 13:18</a>
+
+二三十级还算萌新吗？</blockquote>
+算吧，主要是现在有难度倍率加成之后升级超快，如果是上个版本刷灭绝战速成的选手就更是了，记得当时有朋友刚入坑才七八级，带他稍微刷了刷就20级了
+

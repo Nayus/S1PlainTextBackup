@@ -731,3 +731,11 @@ burn my dread<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 .......................不如译成中文，直接贴一句“做你的梦”吧，来自神秘东方的方块字，外国友人一定会 ...</blockquote>
 “吧”字放引号里面
 
+
+*****
+
+####  cryindance  
+##### 80#       发表于 2024-3-15 17:25
+
+国外汉字车标1好像要加钱
+

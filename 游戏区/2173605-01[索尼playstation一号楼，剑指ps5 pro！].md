@@ -389,3 +389,23 @@ ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 7700XT 比6700XT就提升一點點</blockquote>
 不能这么讲，你得考虑到ps5本身就只有2070s-2080之间这么个性能表现。按照你这张图里面2k霍格沃茨的算法，差不多是20帧的提升。再加上索尼自己的超分技术和定制光追单元，提升肯定还是有的。最保守的说，起码不会出现隔壁ff7rb性能模式糊的情况了。直接用ps5专属超分就行，而不是se那拍脑门想出来分辨率缩放。
 
+
+*****
+
+####  umbasa  
+##### 225#       发表于 2024-3-15 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263994&amp;ptid=2173605" target="_blank">ohi.02 发表于 2024-3-15 16:36</a>
+
+新款CPU没有变化，但是增加了个超频功能，代价是相对的降低GPU频率
+
+—— 来自 S1Fun ...</blockquote>
+我去，真要是嗯超频，那龙信2、博得3这种cpu瓶颈不还得是完美的30帧体验？从不稳定30帧变完美30帧是吧？阿这<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青色精灵の最期  
+##### 226#       发表于 2024-3-15 17:29
+
+难道龙信2不锁帧，FF7RB糊是给PRO留后路？这些都无所谓，只要GTA6能专属优化就入了
+

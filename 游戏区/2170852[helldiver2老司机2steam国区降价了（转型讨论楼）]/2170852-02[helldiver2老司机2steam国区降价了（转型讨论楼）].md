@@ -4239,3 +4239,37 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 老闪退咋整。。
 
+
+*****
+
+####  赤井稻妻  
+##### 1887#       发表于 2024-3-15 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264480&amp;ptid=2170852" target="_blank">lokibear 发表于 2024-3-15 17:25</a>
+
+老闪退咋整。。</blockquote>
+没办法， **病了至今没修复
+
+*****
+
+####  Launce  
+##### 1888#       发表于 2024-3-15 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264480&amp;ptid=2170852" target="_blank">lokibear 发表于 2024-03-15 17:25:05</a>
+老闪退咋整。。</blockquote>更新驱动，驱动换了还是闪退把全局光和抗锯齿关了，渲染比例选原生
+这就是我不推荐新人的原因之一，闪退一直有，而且每次更新都有一批人开始出现闪退
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  lokibear  
+##### 1889#       发表于 2024-3-15 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264522&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-15 17:29</a>
+
+更新驱动，驱动换了还是闪退把全局光和抗锯齿关了，渲染比例选原生
+
+这就是我不推荐新人的原因之一，闪退一 ...</blockquote>
+3060ti，之前老驱动其实还好，昨天升到了最新版，结果感觉闪退更多了。。
+

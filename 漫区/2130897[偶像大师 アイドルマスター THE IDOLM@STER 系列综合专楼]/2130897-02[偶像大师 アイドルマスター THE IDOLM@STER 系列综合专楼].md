@@ -12743,3 +12743,11 @@ miki我能想到的cp第一反应就961老同事或小翅膀，但前者动画�
 
 B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说我又不玩游戏关我什么事，用的还是现在已经没法发的大号字体，令人怀念<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 2762#       发表于 2024-3-15 10:47
+
+说到底你爱马仕在大陆也就是个不大不小的中游IP，哪来那么多ml、gl魔怔人对骂
+

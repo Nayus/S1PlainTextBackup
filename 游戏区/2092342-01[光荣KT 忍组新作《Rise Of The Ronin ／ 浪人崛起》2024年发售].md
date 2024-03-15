@@ -4558,3 +4558,23 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 开放世界水平无所吊谓，比莱沙3好就算成功</blockquote>
 莱莎3比菲莉丝强已经胜利了，建议莱莎3换成菲莉丝<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 1136#       发表于 2024-3-15 10:56
+
+预载好了，94GB。
+
+到处看了一下，有点评测暴死的味道了，很少游戏在preview就被媒体唱衰的。
+
+*****
+
+####  Gigax  
+##### 1137#       发表于 2024-3-15 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259550&amp;ptid=2092342" target="_blank">Stefano 发表于 2024-3-15 09:26</a>
+
+架势好像更像对马岛这种对付不同敌人选不同架势克制，而不是仁王那种战斗中切架势派生连段？看了几个前瞻 ...</blockquote>
+还是不太一样，对马岛那个有利架势直接打得敌人动不了了，浪人这个官方说法是只影响石火效果，而且存在忍这种被全流派克制的架势，同一把武器切换流派也有紫电效果
+

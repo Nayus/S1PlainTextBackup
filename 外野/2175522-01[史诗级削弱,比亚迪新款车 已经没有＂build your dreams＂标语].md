@@ -785,3 +785,46 @@ burn my dread<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是从设计角度上来说那行字至少比现在三个字母摆上面协调多了，尤其是海洋网有些车型的屁股都很圆润，搭配起来简直灾难，突出一个僵硬
 
+
+*****
+
+####  fuckingworld  
+##### 86#       发表于 2024-3-15 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252787&amp;ptid=2175522" target="_blank">kakia 发表于 2024-3-14 16:27</a>
+我倒是想换这个，然后上淘宝一搜，根本不是车标。</blockquote>
+没有什么是加钱不能定制的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  獠牙护目镜  
+##### 87#       发表于 2024-3-15 22:02
+
+王朝网的标志其实也不好看,小篆这个字体实在是太繁杂了,当车标用感觉特别奇怪
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我觉得如果非得用小篆就考虑一下仿篆刻,用方框框住,给人一种像印鉴一样的感觉
+
+要么就是挑选一些类似玉猪龙之类的东西,把古代与王权有关的标志提炼出来弄个图腾式的王朝网车标
+
+
+*****
+
+####  中国科学院  
+##### 88#       发表于 2024-3-15 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259584&amp;ptid=2175522" target="_blank">能代 发表于 2024-3-15 09:30</a>
+Burn Your Dick也不错</blockquote>
+blow your dick
+
+*****
+
+####  Headless  
+##### 89#       发表于 2024-3-15 22:07
+
+汉的车标真不错左繁右简，一眼就看出来是汉，毫无违和感
+
+—— 来自 vivo V2243A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

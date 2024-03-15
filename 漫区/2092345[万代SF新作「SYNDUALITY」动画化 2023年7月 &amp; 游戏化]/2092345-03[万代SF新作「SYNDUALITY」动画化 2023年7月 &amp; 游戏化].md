@@ -6126,3 +6126,30 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 <img src="https://p.sda1.dev/16/0f939dc44bbb7aab6ebbf758546913c7/20240314_204107.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/84790bacce2177ccc72ce23b02461b71/20240314_204103.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 4368#         楼主| 发表于 2024-3-15 22:02
+
+第23話「Over the limit」
+
+[https://youtu.be/84xfC2UA9jg](https://youtu.be/84xfC2UA9jg)
+
+ヴァイスハイトの奇襲によりミステルを奪われてしまったカナタは、ミステルを取り戻すべく、トキオとマハトと共に残されたもう1機のロケットでヴァイスハイトの後を追う。ついに辿り着いた伝説の地「イストワール」。そこで待ち受けるヴァイスハイトの真の狙いとは―。
+<img src="https://p.sda1.dev/16/fb62c9942d51a8847bc010c225c13438/1529291645354cb8a0bc2b6785be44f4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/154c90585307d66e444b8ac0f31aca09/3e6eeb4aef9afd6c86d181cc74f3aa48.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/cfe23cae66de0b99615521ed896382fe/54a292d6eb1cf37c19f1582fd941f1d3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/ba69bdb4acbcc3f8e9d1f0bcf18559eb/e8ac3fc084765be7fefd07f543373dab.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/6ec4b6dec610ed8b1d448bdb948cc5b0/879bc59623527232077445128d106d13.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/9a6d8c5aa954d8a0ca4b3b4674a4b660/152a76f4c20e31fb8b9f503c7b4ee2e3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 4369#       发表于 2024-3-15 22:06
+
+太空有veda？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

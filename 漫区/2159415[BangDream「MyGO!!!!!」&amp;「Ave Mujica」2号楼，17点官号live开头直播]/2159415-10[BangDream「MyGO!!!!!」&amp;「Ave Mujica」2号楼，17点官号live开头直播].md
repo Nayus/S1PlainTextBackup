@@ -10183,3 +10183,13 @@ soyo的剧情看着想笑
 老生常谈的soyo在台下看</blockquote>
 小日向美香边上这个朝比奈佳澄昨天好像单独发推祝贺了蜜柑生日？
 
+
+*****
+
+####  6030sylar  
+##### 14194#       发表于 2024-3-15 21:56
+
+<img src="https://p.sda1.dev/16/4a4e898a1256fb37c2e0ce7bb0efc426/CMP_20240315215602140.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

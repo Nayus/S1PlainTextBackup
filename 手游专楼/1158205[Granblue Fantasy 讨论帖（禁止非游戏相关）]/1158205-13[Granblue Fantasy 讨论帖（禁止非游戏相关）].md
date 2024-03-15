@@ -180,3 +180,14 @@
 
 问下150金月现在是换武器好还是换黑卡拿人好？7周年后的季限基本没有抽过
 
+
+*****
+
+####  jxzeroga0  
+##### 17778#       发表于 2024-3-15 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262992&amp;ptid=1158205" target="_blank">克苏鲁系青骑士 发表于 2024-3-15 14:56</a>
+
+问下150金月现在是换武器好还是换黑卡拿人好？7周年后的季限基本没有抽过</blockquote>
+150黑卡换人是绝对没必要的血亏行为，急需季限去淘宝买能换季限的小美卡，一个月能买一张
+

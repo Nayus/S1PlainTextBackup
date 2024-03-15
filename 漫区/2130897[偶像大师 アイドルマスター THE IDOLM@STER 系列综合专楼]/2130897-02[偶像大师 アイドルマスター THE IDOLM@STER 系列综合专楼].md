@@ -12812,3 +12812,14 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 但万代也是这样的，它甚至有游戏算在繁中区同时运营甚至用户协议都有繁中版然后游戏纯日文<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2768#       发表于 2024-3-15 14:54
+
+至少去年有个u149啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至少偶像大师挂在标题里的，看u149的人里面知道偶像大师的比例还是比看円香黑丝的人里面比例要高的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

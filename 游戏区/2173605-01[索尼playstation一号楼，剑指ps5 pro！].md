@@ -279,3 +279,25 @@ Image_1710482169838.jpg
 这图的质量真的看得出啥吗</blockquote>
 看肩部描线(也很糊)
 
+
+*****
+
+####  医生狼多  
+##### 216#       发表于 2024-3-15 14:58
+
+信源mlid:
+
+PlayStation 5 Pro Specs Leak:
+
+• 33.5 TeraFlops
+
+• Raw Rendering 45% Faster Than Base PS5
+
+• 2x - 4x Ray Tracing Uplift 
+
+• Custom Architecture For Machine Learning 
+
+• AI Accelerator: 300 TOPS, 8 Bit Computation 
+
+• PlayStation Spectral Super Resolution Upscaling Technology 
+

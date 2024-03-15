@@ -3260,3 +3260,15 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 西大在航天上都领先几十年了，看不懂这两天一堆殖人嘤嘤嘤的思路</blockquote>
 速胜论速败论都是机会主义嘛。
 
+
+*****
+
+####  xdescat01  
+##### 455#       发表于 2024-3-15 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262351&amp;ptid=2164773" target="_blank">一瓶汽水5块 发表于 2024-3-15 13:57</a>
+作为一个航空小白，想了解几个问题。都说军用转民用，SpaceX以商飞为卖点，背后究竟有没有官方的技术和人员 ...</blockquote>
+空叉不在美国的话肯定不会有那么好的人才基础，但是总得来说从NASA那里得到的帮助（技术和资金）并不比几个老牌航天企业多，能脱颖而出还是马斯克在不被看好的VTVL火箭上大获成功后形成了良心循环，吸引了大量可靠技术人才从其他企业投奔并培养了可靠的工程师团队
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

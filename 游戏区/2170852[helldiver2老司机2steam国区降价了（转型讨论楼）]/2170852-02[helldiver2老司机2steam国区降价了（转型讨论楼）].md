@@ -4131,3 +4131,22 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 悲报？鹈鹕和飞鹰是一对的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">卡门和山德
 
+
+*****
+
+####  Hqchan  
+##### 1878#       发表于 2024-3-15 14:20
+
+所以这游戏什么时候打折，错过了首发，感觉原价入有点前不着村后不着店<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 1879#       发表于 2024-3-15 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262573&amp;ptid=2170852" target="_blank">Hqchan 发表于 2024-3-15 14:20</a>
+
+所以这游戏什么时候打折，错过了首发，感觉原价入有点前不着村后不着店 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">首发冤种公民告诉你，别买，打折25%左右才有买的价值，那时候无论内容和BUG应该都整差不多了
+

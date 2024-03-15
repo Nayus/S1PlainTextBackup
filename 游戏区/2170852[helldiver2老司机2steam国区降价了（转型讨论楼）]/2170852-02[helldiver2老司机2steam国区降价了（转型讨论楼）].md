@@ -4273,3 +4273,25 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 这就是我不推荐新人的原因之一，闪退一 ...</blockquote>
 3060ti，之前老驱动其实还好，昨天升到了最新版，结果感觉闪退更多了。。
 
+
+*****
+
+####  FLZB  
+##### 1890#       发表于 2024-3-15 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264480&amp;ptid=2170852" target="_blank">lokibear 发表于 2024-3-15 17:25</a>
+
+老闪退咋整。。</blockquote>
+开全屏，没事别切窗口，这游戏切过窗口后就会随机崩溃
+
+*****
+
+####  Launce  
+##### 1891#       发表于 2024-3-15 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264530&amp;ptid=2170852" target="_blank">lokibear 发表于 2024-03-15 17:30:32</a>
+3060ti，之前老驱动其实还好，昨天升到了最新版，结果感觉闪退更多了。。 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">魅力矢脑，你先试试土法行不行，不行只能看后面哪个补丁突然就好了，当然也有可能直接打开就闪退
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">索索那个用户数据收集记得也关上试试，有概率会和n盾冲突，被n盾关了造成闪退
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

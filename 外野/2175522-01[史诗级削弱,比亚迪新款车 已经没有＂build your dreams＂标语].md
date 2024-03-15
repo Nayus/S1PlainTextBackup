@@ -757,3 +757,13 @@ burn my dread<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 
 卖到美国去的话，应该写成BYDen, Let's finish the job of buying
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 83#       发表于 2024-3-15 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254303&amp;ptid=2175522" target="_blank">adonai 发表于 2024-3-14 18:48</a>
+可以改成中文：做你丫美梦</blockquote>
+前进无力，倒车不精，避震松散，反应迟钝，没一个动作像样的
+

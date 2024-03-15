@@ -10223,3 +10223,17 @@ soyo的剧情看着想笑
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nebulanoby  
+##### 14198#       发表于 2024-3-16 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64265960&amp;ptid=2159415" target="_blank">泥潭办证先锋 发表于 2024-3-15 19:57</a>
+https://bestdori.com/info/songs/590/non-breath
+
+ノンプレス・オブリージュ的翻唱来了，感觉LIVE很 ...</blockquote>
+有一说一虽然打牌姐唱功大家都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但是这种翻唱虚拟歌姬的特别难唱的歌也不指望live上唱吧，我是不指望R在live唱転生林檎，RAS在live上唱神っぽいな的
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

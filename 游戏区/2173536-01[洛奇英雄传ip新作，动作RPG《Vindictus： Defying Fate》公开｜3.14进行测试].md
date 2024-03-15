@@ -910,3 +910,29 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 第一关最后一个boss打了十几二十次才过，到现在都不知道红光怎么对付，突然出的红光就一次 ...</blockquote>
 红光攻击，闪避的无敌帧无效 ，需要闪出攻击范围，提前走位也行。
 
+
+*****
+
+####  Disturbia  
+##### 90#       发表于 2024-3-15 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262501&amp;ptid=2173536" target="_blank">CrayS1 发表于 2024-3-15 14:11</a>
+那个不算，有CD的最多算个技能，我指的是原版防御后的DD。
+
+我的理解是这作加入了怪猎的硬直机制， 硬直 ...</blockquote>
+不是，你随便搜个片看就知道有没有盾反了啊。现在只是没完美格挡后直接派生到3s和盾流。
+
+*****
+
+####  放大镜  
+##### 91#       发表于 2024-3-15 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262546&amp;ptid=2173536" target="_blank">CrayS1 发表于 2024-3-15 14:16</a>
+
+红光攻击，闪避的无敌帧无效 ，需要闪出攻击范围，提前走位也行。</blockquote>
+红狼红光启动特别快，只要你在播放C技动画就肯定跑不掉
+
+酋长红光还有机会闪开或者狂怒飘走
+
+单红光是治贪刀，二连红光就是纯纯的斋藤利三行为了
+

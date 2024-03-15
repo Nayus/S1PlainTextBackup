@@ -12788,3 +12788,17 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 —— ...</blockquote>
 真冷门的连浪都翻不起来，至少爱马仕这名头还是有点的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 2766#       发表于 2024-3-15 14:35
+
+ 本帖最后由 江口夕 于 2024-3-15 14:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261997&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-3-15 13:15</a>
+真冷门的连浪都翻不起来，至少爱马仕这名头还是有点的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要骗自己了，现在国内年轻人可不知道什么偶像大师，百万sc全部断档，本家都13年了。你看着多只是那些人嗓门大的错觉。哪怕倒退10年，偶像大师也绝不是什么中流ip。
+事实是所有流量加起来也不如kol引流的mygo
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

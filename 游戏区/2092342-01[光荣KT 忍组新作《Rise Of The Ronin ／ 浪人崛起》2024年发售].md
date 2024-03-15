@@ -4837,3 +4837,12 @@ COMG点数预测还蛮准的，最近FF7RB发售前曲线也是不敌16，折算
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Gigax  
+##### 1166#       发表于 2024-3-16 00:27
+
+阳间得不敢相信是忍者组做出来的场景，索尼在这快截点图不比现在宣传效果好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://tieba.baidu.com/p/8936771242](https://tieba.baidu.com/p/8936771242)
+

@@ -13078,3 +13078,21 @@ Crush，Anti，神パラサイト，狐憑き
 
 <img src="https://img.saraba1st.com/forum/202403/15/233040bvrol4ru1ty6z4no.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  グラフ  
+##### 2794#       发表于 2024-3-16 00:30
+
+ 本帖最后由 グラフ 于 2024-3-16 00:31 编辑 
+
+这次歌单制作活动的一个阶段性结果：
+
+第0期主题：适合春游时听的歌曲第0期最终曲目表格(包含原始的收集结果)：[https://docs.qq.com/sheet/DWklWSWV1VUFYQkJK?tab=7ts9f5](https://docs.qq.com/sheet/DWklWSWV1VUFYQkJK?tab=7ts9f5)
+
+第0期全曲歌单：[https://music.163.com/playlist?id=9454132415](https://music.163.com/playlist?id=9454132415&amp;userid=56452480)
+
+第0期示例歌单(20曲)：[https://music.163.com/playlist?id=9427991008](https://music.163.com/playlist?id=9427991008&amp;userid=56452480)
+
+这里提供的示例歌单是我依据个人口味挑选出的曲目列表。诸位不满意也可以在全曲歌单基础上自行调整，我这里也会尽量整理其他版本的歌单。
+

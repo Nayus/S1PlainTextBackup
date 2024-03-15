@@ -608,3 +608,22 @@ B歪得，唉，感觉比亚迪老板非向虎山行！
 汉字写空想具现化</blockquote>
 若是汉字不做他想，必然是“创梦”呀！新能源便是磁场力量！
 
+
+*****
+
+####  嘉峪君  
+##### 68#       发表于 2024-3-15 09:06
+
+其实还不如直接用beyond
+
+
+*****
+
+####  若闲  
+##### 69#       发表于 2024-3-15 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259275&amp;ptid=2175522" target="_blank">形式主义 发表于 2024-3-15 08:57</a>
+好主意</blockquote>
+已经晚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+在欧洲卖的车，处理方式是全部抠掉，纯光屁股
+

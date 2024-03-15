@@ -2773,3 +2773,16 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 反正院士因为说登月是真的阿波罗月壤是真的已经被他们骂过了</blockquote>
 国新被单独摘出来是有原因的，我立场上是国新老哥差不多，但是说实话也受不了他们那种思考方式
 
+
+*****
+
+####  瓦格雷  
+##### 415#       发表于 2024-3-15 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260494&amp;ptid=2164773" target="_blank">死宅真恶心 发表于 2024-3-15 10:47</a>
+
+黑障通信是怎么办到的？</blockquote>
+机身大  等离子体不会完全包围机身   
+
+机背有星链天线  可以直接连星链传输数据
+

@@ -4601,3 +4601,27 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 索尼不负责出公关费吗，让光荣自己抗压
 
+
+*****
+
+####  SergeGlenn  
+##### 1141#       发表于 2024-3-15 11:09
+
+这回比较诡异的是龙信2宣发也是PS这边拿的吧，更想不通两个放在同一天发售是什么意思了
+
+*****
+
+####  duraa  
+##### 1142#       发表于 2024-3-15 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260753&amp;ptid=2092342" target="_blank">SergeGlenn 发表于 2024-3-15 11:09</a>
+这回比较诡异的是龙信2宣发也是PS这边拿的吧，更想不通两个放在同一天发售是什么意思了 ...</blockquote>
+赶财报
+
+*****
+
+####  Yeelolo  
+##### 1143#       发表于 2024-3-15 11:10
+
+对马岛开放世界就是一坨啊，除了风景一无是处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，支线任务套路都一样都是到现场-找脚印-杀人这种
+

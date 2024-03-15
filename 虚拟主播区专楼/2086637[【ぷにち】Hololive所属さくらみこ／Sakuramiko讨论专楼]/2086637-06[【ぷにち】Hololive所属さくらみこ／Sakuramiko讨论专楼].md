@@ -2176,3 +2176,40 @@ MV来了
 
 但是对比其他人也这周没有多忙，应该是在忙自己的事
 
+
+*****
+
+####  holoan  
+##### 8385#         楼主| 发表于 2024-3-15 11:13
+
+<blockquote>🔥しらけんは今年も突き抜けていきます。そんなしらけんメンバー、今日集まってるらしいので配信終わったら行きます。
+[https://www.youtube.com/live/Gtz ... hQz6nBt_&amp;t=4203](https://www.youtube.com/live/Gtzvu0ggjx4?si=Z-AcBkWqhQz6nBt_&amp;t=4203)</blockquote>
+|
+
+↓
+
+<img src="https://img.saraba1st.com/forum/202403/15/111212z1zffqz3guuxq88g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 11:12 上传
+
+今天的火建，但是fes没有火建曲的
+
+*****
+
+####  holoan  
+##### 8386#         楼主| 发表于 2024-3-15 11:15
+
+<img src="https://img.saraba1st.com/forum/202403/15/111509tdkwlkykvvcdvwyz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 11:15 上传
+
+再贩了
+

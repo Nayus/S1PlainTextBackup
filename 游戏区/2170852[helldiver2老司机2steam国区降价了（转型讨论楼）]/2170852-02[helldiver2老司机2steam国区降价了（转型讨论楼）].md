@@ -4465,3 +4465,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我比较好奇为什么多数HD2相关讨论每天都和虫子玩命，却绝口不提生化人。我觉得虫子属于是穿什么带什么都能打的，但是七级以上的生化人实在是被打的满头包。
 
+
+*****
+
+####  novyDC  
+##### 1909#       发表于 2024-3-16 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269248&amp;ptid=2170852" target="_blank">n.dante 发表于 2024-03-16 05:47:37</a>
+我比较好奇为什么多数HD2相关讨论每天都和虫子玩命，却绝口不提生化人。我觉得虫子属于是穿什么带什么都能 ...</blockquote>那是机器人吧 生化人还没有
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

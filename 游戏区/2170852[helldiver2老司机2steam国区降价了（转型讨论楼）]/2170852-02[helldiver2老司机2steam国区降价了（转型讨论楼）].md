@@ -4105,3 +4105,29 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想着这周steam促销想把朋友拉进坑，可惜没打折，不过刚发售一个月打折也是不太可能。
 
+
+*****
+
+####  runningch  
+##### 1876#       发表于 2024-3-15 14:08
+
+悲报？鹈鹕和飞鹰是一对的
+
+<img src="https://img.saraba1st.com/forum/202403/15/140732n6g3b3dzgm74tg56.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_m1m9jjo7wcoc1.jpg</strong> (43.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 14:07 上传
+
+*****
+
+####  Launce  
+##### 1877#       发表于 2024-3-15 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262464&amp;ptid=2170852" target="_blank">runningch 发表于 2024-3-15 14:08</a>
+
+悲报？鹈鹕和飞鹰是一对的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">卡门和山德
+

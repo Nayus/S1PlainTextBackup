@@ -248,3 +248,13 @@ Image_1710482169838.jpg
 
 <img src="https://img.saraba1st.com/forum/202403/15/135730bfhpo22ihoolh533.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 213#       发表于 2024-3-15 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262355&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-3-15 13:57</a>
+疑似是PS5Pro独占的upscale技术跟TAAU FSR2对比</blockquote>
+这图的质量真的看得出啥吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

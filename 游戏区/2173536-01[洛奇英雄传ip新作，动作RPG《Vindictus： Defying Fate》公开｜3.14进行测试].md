@@ -883,3 +883,30 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 第一关最后一个boss打了十几二十次才过，到现在都不知道红光怎么对付，突然出的红光就一次没躲掉过
 
+
+*****
+
+####  CrayS1  
+##### 88#       发表于 2024-3-15 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261714&amp;ptid=2173536" target="_blank">Disturbia 发表于 2024-3-15 12:36</a>
+
+防住之后不能松开防御键再重击啊 我也是玩了一会儿才想起来咋按</blockquote>
+那个不算，有CD的最多算个技能，我指的是原版防御后的DD。
+
+我的理解是这作加入了怪猎的硬直机制， 硬直条打空后小怪就有处决，boss就会有硬直。
+
+有一些技能削硬直的效果特别大。一段时间没收到攻击会回复一点硬直条。
+
+*****
+
+####  CrayS1  
+##### 89#       发表于 2024-3-15 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262141&amp;ptid=2173536" target="_blank">死神香蕉 发表于 2024-3-15 13:35</a>
+
+淦哦，真的恶心
+
+第一关最后一个boss打了十几二十次才过，到现在都不知道红光怎么对付，突然出的红光就一次 ...</blockquote>
+红光攻击，闪避的无敌帧无效 ，需要闪出攻击范围，提前走位也行。
+

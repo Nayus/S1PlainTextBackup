@@ -201,3 +201,21 @@
 150黑卡换人是绝对没必要的血亏行为，急需季限去淘宝买能换季限的小美卡，一个月能买一张。现在一般只用来 ...</blockquote>
 不氪金的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">巫妖开始的lm基本都没有，年初白嫖开的时候还有人推荐我换艾蕾斧好像
 
+
+*****
+
+####  はちたや  
+##### 17780#       发表于 2024-3-15 16:56
+
+150金月换黑卡换人的话也没啥问的必要了，性癖玩着呗... 没有哪个角色的提升比得上野蛮艾蕾，别的属性石油差一点但也是没法比的
+
+*****
+
+####  jxzeroga0  
+##### 17781#       发表于 2024-3-15 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264140&amp;ptid=1158205" target="_blank">克苏鲁系青骑士 发表于 2024-3-15 16:51</a>
+
+不氪金的巫妖开始的lm基本都没有，年初白嫖开的时候还有人推荐我换艾蕾斧好像 ...</blockquote>
+150金月无非就那几样能改变游戏体验的东西咯，武器是暗艾蕾土野蛮，召唤巴布，高难000，新玩法解锁雅琪玛。
+

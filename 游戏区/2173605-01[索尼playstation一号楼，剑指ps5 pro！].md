@@ -347,3 +347,32 @@ ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真追求帧数下一代可能是提升CPU吧，最近好几作都说帧数提不起来瓶颈是CPU
 
+
+*****
+
+####  gofbayrf  
+##### 222#       发表于 2024-3-15 16:35
+
+33算力 比自己都提升不多 升級了個寂莫
+
+7700XT 比6700XT就提升一點點
+
+<img src="https://img.saraba1st.com/forum/202403/15/163516t7px4oww4wxwhwxw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (396.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 16:35 上传
+
+*****
+
+####  ohi.02  
+##### 223#       发表于 2024-3-15 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263688&amp;ptid=2173605" target="_blank">椎名mahuyo 发表于 2024-3-15 16:11</a>
+真追求帧数下一代可能是提升CPU吧，最近好几作都说帧数提不起来瓶颈是CPU ...</blockquote>
+新款CPU没有变化，但是增加了个超频功能，代价是相对的降低GPU频率
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

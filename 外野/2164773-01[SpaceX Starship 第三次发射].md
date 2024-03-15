@@ -2385,3 +2385,26 @@ SX指挥中心确认飞船损失了</blockquote>
 
 大气边界非常明显
 
+
+*****
+
+####  longmarch5  
+##### 385#       发表于 2024-3-15 08:52
+
+<img src="https://img.saraba1st.com/forum/202403/15/085147vxvvqv1dvnzifv3v.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240315085138.png</strong> (67.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 08:51 上传
+
+不过要改还是有能改的地方，比如用不用不锈钢
+
+*****
+
+####  longmarch5  
+##### 386#       发表于 2024-3-15 08:52
+
+不过要改还是有能改的地方，比如用不用不锈钢
+

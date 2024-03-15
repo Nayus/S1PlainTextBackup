@@ -569,3 +569,21 @@ burn your dick
 
 B歪得，唉，感觉比亚迪老板非向虎山行！
 
+
+*****
+
+####  养生侠  
+##### 64#       发表于 2024-3-15 08:47
+
+要不叫biyadi吧，让大家知道该怎么念
+
+
+*****
+
+####  形式主义  
+##### 65#       发表于 2024-3-15 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254096&amp;ptid=2175522" target="_blank">soongone 发表于 2024-3-14 18:27</a>
+在中国的车就印英文，在国外的就印中文，主打一个文化差异，还能防止串货 ...</blockquote>
+好主意
+

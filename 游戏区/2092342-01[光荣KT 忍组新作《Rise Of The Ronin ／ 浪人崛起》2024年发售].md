@@ -4503,3 +4503,16 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 继承自仁王的千年美少女之力，幕末双花见参<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">！
 
+
+*****
+
+####  nagitoY  
+##### 1131#       发表于 2024-3-15 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259138&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2024-3-15 08:42</a>
+
+我觉的这个双捏人有点意思，不限男女，
+
+男女通讯录都可以搞相爱相杀。</blockquote>
+不知道这游戏的浪漫关系会不会仅限异性恋，捏双女主后不能攻略npc就有点得不偿失了
+

@@ -167,3 +167,16 @@ pc上啥游戏有ds的属性没有我就闲鱼蹲一台单主机了
 —— 来自 S1Fun</blockquote>
 你还没买PS5吗？<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贝恩德塔  
+##### 206#         楼主| 发表于 2024-3-15 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257799&amp;ptid=2173605" target="_blank">Rowen233 发表于 2024-3-15 00:14</a>
+
+pc上啥游戏有ds的属性没有我就闲鱼蹲一台单主机了
+
+—— 来自 S1Fun</blockquote>
+DS的属性是啥意思？DEATH STRANDING？BDSM?Deadly Strike?Dual screen? Devastator Squad?DualSense？
+

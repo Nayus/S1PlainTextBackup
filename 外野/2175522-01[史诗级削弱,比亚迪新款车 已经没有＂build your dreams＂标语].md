@@ -587,3 +587,24 @@ B歪得，唉，感觉比亚迪老板非向虎山行！
 在中国的车就印英文，在国外的就印中文，主打一个文化差异，还能防止串货 ...</blockquote>
 好主意
 
+
+*****
+
+####  rexbob  
+##### 66#       发表于 2024-3-15 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252775&amp;ptid=2175522" target="_blank">超大陆的崩坏 发表于 2024-3-14 16:26</a>
+
+阐述你的梦是吧</blockquote>
+很多人买完了就“铲述你的梦想了”
+
+*****
+
+####  ronac  
+##### 67#       发表于 2024-3-15 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252809&amp;ptid=2175522" target="_blank">whzfjd 发表于 2024-3-14 16:29</a>
+
+汉字写空想具现化</blockquote>
+若是汉字不做他想，必然是“创梦”呀！新能源便是磁场力量！
+

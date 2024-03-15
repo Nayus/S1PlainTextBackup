@@ -3897,3 +3897,16 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 看到贴吧和老外视频说穹顶盾有最高仇恨值，可以丢下来再砸500KG或者赌气，甚至直接跑路，感觉可以有很多玩 ...</blockquote>
 有拿这个盾反弹泰坦酸液直接秒的
 
+
+*****
+
+####  赤井稻妻  
+##### 1855#       发表于 2024-3-15 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255734&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-3-14 21:13</a>
+
+我不明白测评说这游戏通行证很公道没pay2win是怎么想的。
+
+别人的通行证只卖皮肤，一点影响gameplay的要素都 ...</blockquote>
+像隔壁街霸6一样dlc全出弱角就不是p2w了，而是p2l
+

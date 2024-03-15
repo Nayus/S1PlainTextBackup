@@ -20,3 +20,31 @@
 
 巴士进入梦魇级别了？
 
+
+*****
+
+####  Jamaisvu  
+##### 589#       发表于 2024-3-15 18:02
+
+<img src="https://img.saraba1st.com/forum/202403/15/175411opzbfxcx3cas3oxc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240315_175317.jpg</strong> (341.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 17:54 上传
+
+十一协会三科希斯克利夫，主管交易的协会，图书馆里有个精英怪花札是同事。
+
+<img src="https://img.saraba1st.com/forum/202403/15/175732diu9v7v1hqf7j47v.png" referrerpolicy="no-referrer">
+
+<strong>234001.png</strong> (7.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 17:57 上传
+
+图书馆里是弃牌流，通过弃牌加迅捷、给麻痹、上易损。
+
+第六章还没开就出小夫三星，大概说明不会给他自己故事里人物的套皮人格了...某种意义上对他来说是好事。
+

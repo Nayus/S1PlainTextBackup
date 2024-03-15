@@ -1344,3 +1344,16 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 
 如果奏章II出场人物对应的是月世界里的正史本体，那以此推理奏章III就可能是角色的理想完美形态？
 
+
+*****
+
+####  保罗赫伯特  
+##### 11530#       发表于 2024-3-15 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264730&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-3-15 17:50</a>
+
+奏章II的标题是不可逆废弃孔イド，后面这个片假名该不会是ID（identify，本我）的意思吧。
+
+奏章I的登场角 ...</blockquote>
+想起了奏三那个长得像龙娘的角色才是卡里奥斯特罗伯爵的推测，完美理想形态就是美少女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

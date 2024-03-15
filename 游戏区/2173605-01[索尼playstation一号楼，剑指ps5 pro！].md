@@ -431,3 +431,13 @@ ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 你這前提是抛棄PS5用戶的體驗   可能嗎 也可能的 舊版停產就行新版叫PS6  加上XBOX四機並行就是1.5 ~1.2 ~ ...</blockquote>
 不一定啊，我的猜测是专属超分只给pro用。和旧ps5的区别主要在画质模式帧率的稳定性和帧率模式更高的分辨率上，或许还能有个专属的光追模式?毕竟这次浪人就有三种画面预设，其中一个是光追模式。我个人猜测ps5pro的体验提升大概率是比不了ps4-ps4pro的，这个是1080p30到1440p30。
 
+
+*****
+
+####  Rowen233  
+##### 229#       发表于 2024-3-15 17:54
+
+买了个PC版的神秘海域 但是感觉Dualsense的震动好少（有是有） 自适应板机也没啥感觉 PS5上是不是也这样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

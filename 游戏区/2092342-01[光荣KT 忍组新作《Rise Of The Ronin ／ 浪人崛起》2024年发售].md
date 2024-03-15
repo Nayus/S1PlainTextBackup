@@ -4825,3 +4825,15 @@ COMG点数预测还蛮准的，最近FF7RB发售前曲线也是不敌16，折算
 
 官方现在确定了DLC吗？？？？
 
+
+*****
+
+####  rainsheep  
+##### 1165#       发表于 2024-3-15 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262103&amp;ptid=2092342" target="_blank">病態極端 发表于 2024-3-15 13:29</a>
+這設定圖是哪來的？</blockquote>
+好像是日本线下试玩拍的图
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

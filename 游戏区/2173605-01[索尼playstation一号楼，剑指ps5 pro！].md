@@ -376,3 +376,16 @@ ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  umbasa  
+##### 224#       发表于 2024-3-15 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263993&amp;ptid=2173605" target="_blank">gofbayrf 发表于 2024-3-15 16:35</a>
+
+33算力 比自己都提升不多 升級了個寂莫
+
+7700XT 比6700XT就提升一點點</blockquote>
+不能这么讲，你得考虑到ps5本身就只有2070s-2080之间这么个性能表现。按照你这张图里面2k霍格沃茨的算法，差不多是20帧的提升。再加上索尼自己的超分技术和定制光追单元，提升肯定还是有的。最保守的说，起码不会出现隔壁ff7rb性能模式糊的情况了。直接用ps5专属超分就行，而不是se那拍脑门想出来分辨率缩放。
+

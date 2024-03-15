@@ -3654,3 +3654,16 @@ HLS的难点只有油船长期储存LOX/甲烷，这个部分已经由这次探�
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cube  
+##### 482#       发表于 2024-3-15 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64265601&amp;ptid=2164773" target="_blank">xdescat01 发表于 2024-3-15 19:15</a>
+
+马斯克还真的挺能证明哈师傅的，哈师傅的核心不是企业高效而是市场高效，而市场高效是建立在市场会自发的 ...</blockquote>
+哈师傅那是市场自动配置优化资源，然而如果没有马斯克这个人的话，未必现在星X就能做成这样。
+
+无非是马斯克的个人判断取代了政府的政令罢了。
+

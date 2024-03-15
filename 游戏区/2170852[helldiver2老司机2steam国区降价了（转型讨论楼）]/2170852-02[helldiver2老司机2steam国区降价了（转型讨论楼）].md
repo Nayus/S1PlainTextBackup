@@ -4305,3 +4305,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  sigeren  
+##### 1893#       发表于 2024-3-15 19:31
+
+为什么直到现在不能跑步和无法增援的bug还没有被修复?这东西这么难修的吗？
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

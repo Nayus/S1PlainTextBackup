@@ -2730,3 +2730,46 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 
 不过我觉得最后阶段还是中断了一会儿的。
 
+
+*****
+
+####  缪拉泽  
+##### 412#       发表于 2024-3-15 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260316&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-03-15 10:33:04</a>
+逼乎的“业内人士”可能是他吹牛逼，但是航天系统那几个刊物上的作者显然是真的专业人员
+
+不能实事求是地 ...</blockquote>动脑子还是看屁股有啥区别，又不是网友去做航天
+
+直观表现就是美国赢，中国输
+
+那么有人开香槟和破防都是很正常的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  longmarch5  
+##### 413#       发表于 2024-3-15 11:02
+
+ 本帖最后由 longmarch5 于 2024-3-15 11:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260618&amp;ptid=2164773" target="_blank">缪拉泽 发表于 2024-3-15 10:58</a>
+
+动脑子还是看屁股有啥区别，又不是网友去做航天
+
+直观表现就是美国赢，中国输</blockquote>
+反正院士因为说登月是真的阿波罗月壤是真的已经被他们骂过了
+
+这类事情演变成攻击科研机构或者人员并不是不可能
+
+*****
+
+####  HighTouch  
+##### 414#       发表于 2024-3-15 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260664&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-15 11:02</a>
+
+反正院士因为说登月是真的阿波罗月壤是真的已经被他们骂过了</blockquote>
+国新被单独摘出来是有原因的，我立场上是国新老哥差不多，但是说实话也受不了他们那种思考方式
+

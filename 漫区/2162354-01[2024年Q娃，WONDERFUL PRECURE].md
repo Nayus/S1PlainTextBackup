@@ -979,3 +979,11 @@ it is 麦狗
 <img src="https://p.sda1.dev/16/35290c25dfc0170a41b3ccecbb0f3337/Avengerz_Inc-1768109810698911925-img1.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/569be1e0109eb7e11693b60ee431c688/009-image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞野咲  
+##### 1173#       发表于 2024-3-15 08:06
+
+看不出是AI画的。。。
+

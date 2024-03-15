@@ -4799,3 +4799,11 @@ COMG点数预测还蛮准的，最近FF7RB发售前曲线也是不敌16，折算
 哎，现在已经是【比卧龙好就行】 ...</blockquote>
 别急，光看几个pv不用上手，但凡有点脑子都知道卧龙战斗系统就是浪人的一部分而已<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 1162#       发表于 2024-3-15 12:53
+
+对马岛那会至少是完爆同期的ACV的
+

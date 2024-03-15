@@ -3056,3 +3056,45 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 说的是总投入，冷战美苏双方40年航天斗法花的钱可海了去了，整套体系是现在航天的基座 ...</blockquote>
 大哥  那时是2国对飚不惜成本的投入 和现在能比吗  要对比也要对比差不多环境下的投入啊  
 
+
+*****
+
+####  tobelovedwow  
+##### 438#       发表于 2024-3-15 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260672&amp;ptid=2164773" target="_blank">HighTouch 发表于 2024-3-15 11:04</a>
+
+国新被单独摘出来是有原因的，我立场上是国新老哥差不多，但是说实话也受不了他们那种思考方式 ...</blockquote>
+没办法，NGA真的有0帖畜生在带节奏的
+
+<img src="https://img.saraba1st.com/forum/202403/15/125140f4thachuvi4iuiyz.png" referrerpolicy="no-referrer">
+
+<strong>15124943.png</strong> (78.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 12:51 上传
+
+即使采取无视它还会跳脸发帖
+
+<img src="https://img.saraba1st.com/forum/202403/15/125414cnon2gc2ctkv3c3o.png" referrerpolicy="no-referrer">
+
+<strong>5125318.png</strong> (18.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 12:54 上传
+
+也许理智地无视钓鱼是更好的选择，但直球辱骂钓鱼者也是有别样快感的，要珍惜s1这种相对单纯的舆论环境
+
+*****
+
+####  rhocas  
+##### 439#       发表于 2024-3-15 12:57
+
+这算是成功了？
+
+我说呢
+
+连办宽带时加的电信客服经理都在朋友圈大赞马屎克人类之光遥遥领先
+

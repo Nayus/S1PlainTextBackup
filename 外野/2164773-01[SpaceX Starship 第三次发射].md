@@ -2375,3 +2375,13 @@ SX指挥中心确认飞船损失了</blockquote>
 
 估计再过10年，“把马一龙收入麾下”或者“物理消除马一龙”就会成为穿越类网文星海题材的标配。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 384#       发表于 2024-3-15 08:37
+
+真的是一到100km，马上就有红热的气流了。
+
+大气边界非常明显
+

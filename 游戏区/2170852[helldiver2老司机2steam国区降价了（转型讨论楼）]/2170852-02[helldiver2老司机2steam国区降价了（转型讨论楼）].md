@@ -3886,3 +3886,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这两天一直在用制裁跟重炮 换了镰刀打上去虫子没啥反应总有种没打出伤害的感觉
 
+
+*****
+
+####  Benighted  
+##### 1854#       发表于 2024-3-15 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257030&amp;ptid=2170852" target="_blank">zyrhxs 发表于 2024-3-14 23:02</a>
+
+看到贴吧和老外视频说穹顶盾有最高仇恨值，可以丢下来再砸500KG或者赌气，甚至直接跑路，感觉可以有很多玩 ...</blockquote>
+有拿这个盾反弹泰坦酸液直接秒的
+

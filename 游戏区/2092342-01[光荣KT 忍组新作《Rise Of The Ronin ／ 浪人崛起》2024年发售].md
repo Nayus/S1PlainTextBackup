@@ -4489,3 +4489,17 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  bwsusaga  
+##### 1130#       发表于 2024-3-15 08:42
+
+我觉的这个双捏人有点意思，不限男女，
+
+男女通讯录都可以搞相爱相杀。
+
+打算捏一对儿妹子，
+
+继承自仁王的千年美少女之力，幕末双花见参<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">！
+

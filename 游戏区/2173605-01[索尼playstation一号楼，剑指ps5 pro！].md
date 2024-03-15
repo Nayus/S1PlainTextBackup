@@ -301,3 +301,11 @@ PlayStation 5 Pro Specs Leak:
 
 • PlayStation Spectral Super Resolution Upscaling Technology 
 
+
+*****
+
+####  byisme001  
+##### 217#       发表于 2024-3-15 15:09
+
+ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
+

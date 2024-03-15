@@ -4150,3 +4150,50 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 所以这游戏什么时候打折，错过了首发，感觉原价入有点前不着村后不着店 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">首发冤种公民告诉你，别买，打折25%左右才有买的价值，那时候无论内容和BUG应该都整差不多了
 
+
+*****
+
+####  mengsu  
+##### 1880#       发表于 2024-3-15 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262464&amp;ptid=2170852" target="_blank">runningch 发表于 2024-3-15 14:08</a>
+
+悲报？鹈鹕和飞鹰是一对的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">退款！
+
+
+*****
+
+####  pmoe  
+##### 1881#       发表于 2024-3-15 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262573&amp;ptid=2170852" target="_blank">Hqchan 发表于 2024-3-15 14:20</a>
+
+所以这游戏什么时候打折，错过了首发，感觉原价入有点前不着村后不着店 ...</blockquote>
+价格不是问题，隔壁港区卖得更贵，这游戏最贵的地方在于费朋友。
+
+
+*****
+
+####  novyMS  
+##### 1882#       发表于 2024-3-15 15:15
+
+刚刚好
+
+<img src="https://img.saraba1st.com/forum/202403/15/151537zuttmtrhrthf4ftu.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1710486873401.jpg</strong> (70.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 15:15 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白昼梦  
+##### 1883#       发表于 2024-3-15 15:18
+
+人妻不是even better了吗
+

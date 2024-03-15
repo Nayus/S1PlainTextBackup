@@ -1386,3 +1386,11 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 
 看到标题第一反应SH早年单曲イドへ至る森へ至るイド，废弃孔可以看成是井（イド），没毛病23333
 
+
+*****
+
+####  清河子  
+##### 11534#       发表于 2024-3-15 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">奏章2再来什么重量级的卡都要不起勒
+

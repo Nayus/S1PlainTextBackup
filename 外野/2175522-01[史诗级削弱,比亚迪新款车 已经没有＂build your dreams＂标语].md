@@ -749,3 +749,11 @@ burn my dread<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 .......................不如译成中文，直接贴一句“做你的梦”吧，来自神秘东方的方块字，外国友人一定会 ...</blockquote>
 做你的美梦/别做白日梦了.静香<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overlorder  
+##### 82#       发表于 2024-3-15 19:57
+
+卖到美国去的话，应该写成BYDen, Let's finish the job of buying
+

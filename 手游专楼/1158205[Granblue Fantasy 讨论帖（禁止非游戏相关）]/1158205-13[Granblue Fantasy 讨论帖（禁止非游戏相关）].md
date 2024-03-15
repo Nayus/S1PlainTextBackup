@@ -191,3 +191,13 @@
 问下150金月现在是换武器好还是换黑卡拿人好？7周年后的季限基本没有抽过</blockquote>
 150黑卡换人是绝对没必要的血亏行为，急需季限去淘宝买能换季限的小美卡，一个月能买一张
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17779#       发表于 2024-3-15 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263073&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2024-3-15 15:06</a>
+150黑卡换人是绝对没必要的血亏行为，急需季限去淘宝买能换季限的小美卡，一个月能买一张。现在一般只用来 ...</blockquote>
+不氪金的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">巫妖开始的lm基本都没有，年初白嫖开的时候还有人推荐我换艾蕾斧好像
+

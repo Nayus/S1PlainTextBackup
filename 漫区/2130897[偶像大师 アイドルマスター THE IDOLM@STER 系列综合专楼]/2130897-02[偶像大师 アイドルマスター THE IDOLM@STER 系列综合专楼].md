@@ -12896,3 +12896,30 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 圈外人都分不清不同企划的，
 
+
+*****
+
+####  K·os  
+##### 2775#       发表于 2024-3-15 16:19
+
+偶像大师这四个字蛮有名的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 2776#       发表于 2024-3-15 16:21
+
+看过紫之梦的人肯定比看过偶像大师动画的人多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  游蜓  
+##### 2777#       发表于 2024-3-15 16:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u149有一部分人气还要托了总帅的福好吧，不然连个出圈梗都没有
+

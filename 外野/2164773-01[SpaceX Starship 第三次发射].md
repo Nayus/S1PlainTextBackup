@@ -3339,3 +3339,28 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263605&amp;ptid=2164773" target="_blank"> phorcys02 发表于 2024-3-15 16:01</a> 引用:Unlight 发表于 2024-3-15 15:49 讲道理鳖是跟马一龙跟的最紧的吧，美国的友商都没有这么紧吧。 之前还有人喷鳖不学马一龙，但事实恰恰相反 ... 还没到大论战的时候  科工的腾云，按计划是 明年首飞 工程机的  不敢想科工真的飞了，无论成败，会战成什么样子... </blockquote>
 那东西理想状态也就丢丢💣纯军用的，完全不是一回事的来自: iPhone客户端
 
+
+*****
+
+####  猫踏飞燕  
+##### 462#       发表于 2024-3-15 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262053&amp;ptid=2164773" target="_blank">tsukatsukieiko 发表于 2024-3-15 13:23</a>
+
+不，一个靠暴力固推+毒发，一个是补燃煤油机+二级地面点火，压根俩路线啊……总不能说都是捆绑式火箭就是 ...</blockquote>
+运力级别
+
+或者说，毛子的安加拉，本子的H3，欧盟的阿里安5/6
+
+都是这个运力级别的火箭
+
+*****
+
+####  猫踏飞燕  
+##### 463#       发表于 2024-3-15 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262216&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-15 13:42</a>
+
+长2以前有过一个长2E（A）方案，四个助推器各塞2台YF-20</blockquote>
+我记得长3还有个3cbc构型的，还有图，但是找不到了
+

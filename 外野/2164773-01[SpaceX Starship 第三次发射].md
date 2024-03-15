@@ -3588,3 +3588,44 @@ HLS的难点只有油船长期储存LOX/甲烷，这个部分已经由这次探�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264977&amp;ptid=2164773" target="_blank"> windtrack_qh 发表于 2024-3-15 18:14</a>  本帖最后由 windtrack_qh 于 2024-3-15 18:15 编辑   我个人观点，星舰只是解决的地球轨道发射载重的问题  然而未来的地火载人甚至深空探测的根本问题还是深空推进这一核心得点出新科技，而星舰对这个没啥帮助  所以说，星舰确实很牛逼，但上限也就在那摆着，和三体里人类宇宙舰队差不多一个意思  </blockquote>
 连近地轨道都不能真正开发谈什么新技术，核推再好在可见的未来你要把宝贝反应堆送入轨道也需要化学火箭。老马在带每日宇航员逛星城的时候也谈过一些实话，他也觉得在他有生之年不可能在火星建立自持的殖民地，但他希望至少能把事情往那个方向推动<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  xdescat01  
+##### 477#       发表于 2024-3-15 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263605&amp;ptid=2164773" target="_blank">phorcys02 发表于 2024-3-15 16:01</a>
+还没到大论战的时候
+
+科工的腾云，按计划是 明年首飞 工程机的</blockquote>
+如果明年星舰还没成功回收那还有的战成败
+如果明年星舰已经成功回收了，那就得战必要性了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  四号舰美浓  
+##### 478#       发表于 2024-3-15 18:51
+
+<blockquote>longmarch5 发表于 2024-3-15 18:19
+对于美国人来说问题是政治上可能无法接受登月落在中国后面。如果星舰HLS延误，就可能出现这种情况。
+
+以前N ...</blockquote>
+单纯从保温角度来说，大型蓄罐的难度比小型蓄罐低吧？
+
+
+*****
+
+####  cube  
+##### 479#       发表于 2024-3-15 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262560&amp;ptid=2164773" target="_blank">一瓶汽水5块 发表于 2024-3-15 14:18</a>
+
+你这么说我就理解了，天天说马斯克什么人类之光，我以为是什么圣人转世呢，其实是代言人。我也是做工程的 ...</blockquote>
+对马斯克不要过高吹捧也不用刻意贬低。
+
+在现在已经遍地虫豸的美国企业界，他能把吹的牛落实而且实打实的把商用发射的成本给缩减了一大截，这是十分值得肯定的，能整合现有资源并引领一个大项目的技术进步，这本来就是非常稀缺的才能，同时也刺激了中国航天战略思想的转换和对民间商用发射的投入，这都是良性的反馈。
+
+有差距要承认，也要改变过时的观念，对我国航天发展现状，业界说的算的那些人看得比围观者清楚的多，每年的指南迭代的也非常快。但是一转输纯属为了屁股不要脑子。
+

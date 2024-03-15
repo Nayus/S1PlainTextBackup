@@ -1000,3 +1000,16 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 对a卡什么垃圾优化，6900xt一打boss战稳定30秒闪退
 
+
+*****
+
+####  放大镜  
+##### 98#       发表于 2024-3-15 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262984&amp;ptid=2173536" target="_blank">Disturbia 发表于 2024-3-15 14:55</a>
+
+没错，基本上二阶段想无伤的话就不太能在boss动作间隔期间主动蹭刀了，最多打2s或者1sd，打2sd出红光想滚 ...</blockquote>
+试了下盾娘，打断规则跟上边烈士塔类似，而且大概率和频率关系不大，因为3S空挥前两刀一样可以稳定打出踉跄
+
+现在打红狼可以复读3SDD/4SD，香港脚踹完就走，好像也不是特别怕撞在红光上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

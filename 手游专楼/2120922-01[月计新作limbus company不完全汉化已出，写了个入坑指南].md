@@ -68,3 +68,13 @@
 巴士进入梦魇级别了？</blockquote>
 其实开服就有的死协会、seven协会和剑契就是梦魇级别了，六协会都能算都市之星了。
 
+
+*****
+
+####  erratic璃月  
+##### 592#       发表于 2024-3-15 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264921&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-3-15 18:08</a>
+这个科室级别对应的处理事项是图书馆里说的吗，记不清了，六协会一二科好像都能接手都市之星吧？柳真是死 ...</blockquote>
+快加班，4赛季pv出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

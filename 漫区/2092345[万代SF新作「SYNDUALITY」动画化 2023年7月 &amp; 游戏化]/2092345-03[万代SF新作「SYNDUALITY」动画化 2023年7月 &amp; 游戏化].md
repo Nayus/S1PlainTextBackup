@@ -6153,3 +6153,13 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  novyDC  
+##### 4370#       发表于 2024-3-15 22:06
+
+【万代机甲动画《Synduality Noir》第23话预告-哔哩哔哩】 https://b23.tv/qiQu4yy
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

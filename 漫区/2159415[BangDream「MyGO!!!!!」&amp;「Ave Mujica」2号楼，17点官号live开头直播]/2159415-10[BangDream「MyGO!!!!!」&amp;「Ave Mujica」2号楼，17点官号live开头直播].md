@@ -10193,3 +10193,15 @@ soyo的剧情看着想笑
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  6030sylar  
+##### 14195#       发表于 2024-3-15 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64267001&amp;ptid=2159415" target="_blank">makece 发表于 2024-3-15 21:28</a>
+小日向美香边上这个朝比奈佳澄昨天好像单独发推祝贺了蜜柑生日？</blockquote>
+原来也是S事务所一起的
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

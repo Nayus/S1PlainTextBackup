@@ -678,3 +678,14 @@ Rage your dream~
 这几个“商”字看下来，我觉得它们都在笑我……</blockquote>
 前面自己贴个智?
 
+
+*****
+
+####  LaZier  
+##### 75#       发表于 2024-3-15 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259584&amp;ptid=2175522" target="_blank">能代 发表于 2024-3-15 09:30</a>
+
+Burn Your Dick也不错</blockquote>
+................要不干脆不纠结首字母，用build your dreams的反义词，写Fuck My Life好了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

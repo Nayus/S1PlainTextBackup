@@ -3973,3 +3973,22 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 目前通行证确实就是加了一堆时尚小垃圾，全部中甲绷不住了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1862#       发表于 2024-3-15 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">带着那减遇敌的强化随了2把野排感觉有点用，路人一直塔塔开到撤离密度没那么离谱，但是鉴于现在那抽象的刷出率感觉要多试几把才知道到底什么情况
+
+*****
+
+####  jy000129  
+##### 1863#       发表于 2024-3-15 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259689&amp;ptid=2170852" target="_blank">白玫瑰之夜 发表于 2024-3-15 09:41</a>
+昨天打守塔带了迫击炮，然后眼睁睁的看着四连发直接把电池打宕机了顺便新出的防电甲还挺好使的，hxd ...</blockquote>
+记得不要在特斯拉范围内招空投
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

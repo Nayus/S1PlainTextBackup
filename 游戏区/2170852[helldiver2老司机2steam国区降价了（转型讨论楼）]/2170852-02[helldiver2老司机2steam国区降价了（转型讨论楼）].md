@@ -4424,3 +4424,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NEIN  
+##### 1905#       发表于 2024-3-16 00:10
+
+小怪真的变好多啊，想整蛊玩都不行，只能玩电弧了。
+
+—— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

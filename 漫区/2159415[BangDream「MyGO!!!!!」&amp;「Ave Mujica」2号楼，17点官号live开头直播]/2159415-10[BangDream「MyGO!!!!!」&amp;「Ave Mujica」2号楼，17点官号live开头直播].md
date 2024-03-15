@@ -10205,3 +10205,11 @@ soyo的剧情看着想笑
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  [皆神孝介]  
+##### 14196#       发表于 2024-3-15 22:34
+
+买了翻面章鱼公仔到货了，这个东西要怎么清洁和维护，坛友有知道的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

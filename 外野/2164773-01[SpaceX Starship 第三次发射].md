@@ -3108,3 +3108,14 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  tsukatsukieiko  
+##### 441#       发表于 2024-3-15 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261430&amp;ptid=2164773" target="_blank">clarkgao 发表于 2024-3-15 12:05</a>
+
+他们可以去看中国商业航天的和计算中美航天技术差距节点时间，这对于缓解焦虑很有好处。当我意识到长五其 ...</blockquote>
+不，一个靠暴力固推+毒发，一个是补燃煤油机+二级地面点火，压根俩路线啊……总不能说都是捆绑式火箭就是对标吧……
+

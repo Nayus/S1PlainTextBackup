@@ -1023,3 +1023,13 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 这画风很干净清新，我还挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1178#       发表于 2024-3-15 11:46
+
+这些亚克力铁徽章成本大头是版权费和画师费 给ai画连画师费都不需要了
+
+还有一点q娃周边最近又涨价了 不管怎么样反正有人接受 继续买买买呗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

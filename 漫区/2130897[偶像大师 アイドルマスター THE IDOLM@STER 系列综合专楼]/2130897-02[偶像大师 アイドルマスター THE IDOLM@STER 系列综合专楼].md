@@ -12751,3 +12751,16 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 说到底你爱马仕在大陆也就是个不大不小的中游IP，哪来那么多ml、gl魔怔人对骂
 
+
+*****
+
+####  Unlight  
+##### 2763#         楼主| 发表于 2024-3-15 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64254338&amp;ptid=2130897" target="_blank">废都刽子手 发表于 2024-3-14 18:52</a>
+隔壁楼说爱马仕骂p，这种情况在sc之前也很常见吗</blockquote>
+那是因为FFF，那年代基本是个男主都逃不了这个
+和现在版本无关
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

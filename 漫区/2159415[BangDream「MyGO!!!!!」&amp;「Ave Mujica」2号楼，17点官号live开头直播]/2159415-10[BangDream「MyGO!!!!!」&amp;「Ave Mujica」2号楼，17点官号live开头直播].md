@@ -10297,3 +10297,13 @@ https://bestdori.com/info/songs/590/non-breath
 
 不知道母鸡卡如果时间线再往后发展，这些老团是不是都面对毕业后是读大学还是职业音乐路线的问题了。
 
+
+*****
+
+####  PDQ4  
+##### 14204#       发表于 2024-3-16 02:38
+
+你邦估计人均有大学上，乐队未来怎么办大概以后也要讨论，但是毕竟是ppp靠着kirakiradokidoki一定就能解决吧，先看看AG怎么整。还是hhw超然物外，根本不用考虑这种事。
+
+鸡要融入老邦大概看第一次混活怎么写了，个人看好r和ras。明年一月的动画，估摸着周年或者周年后加入，大概没有这种所有人都在的RING赏花祭，总不能一年没有混活。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

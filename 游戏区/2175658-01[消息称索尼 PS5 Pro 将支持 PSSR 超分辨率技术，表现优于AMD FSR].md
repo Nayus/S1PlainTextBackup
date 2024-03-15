@@ -492,3 +492,15 @@ PS5现在很尬，一个是性能太落后了，一个是游戏内容绝大部�
 
 优于fsr算啥，要是能劣于fsr才是大新闻吧
 
+
+*****
+
+####  l⑨th_Knight  
+##### 48#       发表于 2024-3-16 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64267135&amp;ptid=2175658" target="_blank">ナルバレック 发表于 2024-3-15 21:44</a>
+这世代PS5算大坑这种说法很离谱吧，只能说东亚口味的游戏缺乏吧，商业成绩和性价比都完爆掉当年PS3了啊 ...</blockquote>
+购买力和市场就和PS3时代不一样了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -10064,3 +10064,15 @@ ppp这张图，ars应得的。<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  CyDiablo  
+##### 14183#       发表于 2024-3-15 16:35
+
+转个周年混活相关，剧情机翻已经出了，看得很开心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+[https://ngabbs.com/read.php?tid=39573033](https://ngabbs.com/read.php?tid=39573033)
+
+以及mygo相关简单总结<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/ae2a7a88b983b0195ff0f5aed8513b38/Screenshot_20240315_163439.jpg" referrerpolicy="no-referrer">
+

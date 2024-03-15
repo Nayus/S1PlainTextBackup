@@ -12931,3 +12931,11 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 紫之梦？蓝梦道！
 
+
+*****
+
+####  Anatoly  
+##### 2779#       发表于 2024-3-15 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

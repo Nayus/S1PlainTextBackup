@@ -4315,3 +4315,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kalavinka  
+##### 1894#         楼主| 发表于 2024-3-15 19:46
+
+我昨天也遇到不能增援了，更骚的是隔一会会自动增援然后不消耗增援次数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

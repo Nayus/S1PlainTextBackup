@@ -4875,3 +4875,16 @@ https://tieba.baidu.co ...</blockquote>
 
 只能说不是kt不行了，是索尼这次彻底在日本退环境了
 
+
+*****
+
+####  性兽阿怪  
+##### 1170#       发表于 2024-3-16 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64268605&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-16 00:27</a>
+
+阳间得不敢相信是忍者组做出来的场景，索尼在这块截点图不比现在宣传效果好
+
+https://tieba.baidu.co ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">爱了爱了
+

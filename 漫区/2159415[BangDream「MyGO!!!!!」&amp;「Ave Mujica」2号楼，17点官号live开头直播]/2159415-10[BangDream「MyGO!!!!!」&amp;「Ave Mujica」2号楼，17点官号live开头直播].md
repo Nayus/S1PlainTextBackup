@@ -10269,3 +10269,21 @@ https://bestdori.com/info/songs/590/non-breath
 ノンプレス・オブリージュ的翻唱来了，感觉LIVE很 ...</blockquote>
 会不会唱还不好说呢，mygo目前在live唱的翻唱曲一直都还是老几样，动画后的新翻唱一首都没唱过，不知道是不是没时间练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14202#       发表于 2024-3-16 02:11
+
+<img src="https://img.saraba1st.com/forum/202403/16/021138deru12yup0de4r31.jpg" referrerpolicy="no-referrer">
+
+<strong>E6DF034F-CA68-4AC0-A4B0-EF5473DE419A.jpg</strong> (983.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 02:11 上传
+
+左上角那张有点像高达VS高达<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

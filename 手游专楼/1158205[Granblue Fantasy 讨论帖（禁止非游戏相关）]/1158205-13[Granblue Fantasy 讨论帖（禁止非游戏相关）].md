@@ -159,3 +159,16 @@
 
 我换的光短 ，给不想带虚诈的属性用算是个有强度的玩具
 
+
+*****
+
+####  cenhr  
+##### 17776#       发表于 2024-3-15 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259877&amp;ptid=1158205" target="_blank">kyonko15 发表于 2024-3-15 09:57</a>
+
+好货，哪有好货，旧石油大部分都是要被扫进垃圾堆里的玩意，也就没用的他会送送了。真不知道换啥可以考虑 ...</blockquote>
+想想最後换多一把剑以及要了暗calibur
+
+反正咸鱼有的武器也不多，送了就算是赚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -4331,3 +4331,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 之前看贴吧说增援下不来是因为尸体没死透，系统认为你死了但又没完全死，去把尸体打死就能复活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1896#       发表于 2024-3-15 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64266238&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-15 20:23</a>
+
+之前看贴吧说增援下不来是因为尸体没死透，系统认为你死了但又没完全死，去把尸体打死就能复活了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皿煮忽悠保你胸腔还有一口气
+

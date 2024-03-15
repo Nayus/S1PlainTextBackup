@@ -13012,3 +13012,11 @@ Crush，Anti，神パラサイト，狐憑き
 
 电音部的歌其实都不错 建议大家听听
 
+
+*****
+
+####  cckuku  
+##### 2787#       发表于 2024-3-15 20:48
+
+接下来的新人能从电音部里面挑吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我可喜欢秋奈了。
+

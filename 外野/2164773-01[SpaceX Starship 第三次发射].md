@@ -2874,3 +2874,27 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 估计明年真能看到15发星舰在轨轮流加注，几百 ...</blockquote>
 并不会，现在的消息基本是空×在解决问题的过程中拿faa打掩护——因为他解决问题的速度比他吹牛要慢一些，一般都要延迟好几个月。这个时候总不好承认自己还没有解决问题，所以就拿faa不批准来打掩护。
 
+
+*****
+
+####  古留  
+##### 422#       发表于 2024-3-15 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260258&amp;ptid=2164773" target="_blank">瓦格雷 发表于 2024-3-15 10:28</a>
+
+我国登月带头人说了一句美国登月是真的  就被打成汉奸了  专业人士是啥  能吃吗 ^_^ ...</blockquote><blockquote>对于民众，只要有合理怀疑的证据就可以发声
+
+对于官方，如果没有超出合理怀疑的证据，就不得随意辟谣</blockquote>
+
+你们圣人说的嘛！
+
+*****
+
+####  longmarch5  
+##### 423#       发表于 2024-3-15 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261284&amp;ptid=2164773" target="_blank">古留 发表于 2024-3-15 11:53</a>
+
+你们圣人说的嘛！</blockquote>
+别的不说，“月壤是假的”这点压根就不是合理怀疑。
+

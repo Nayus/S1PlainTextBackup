@@ -2283,3 +2283,11 @@ ytb新女帝，vspo赶超hololive指日可待<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">一期生终于要开始散伙了啊。
 
+
+*****
+
+####  fastary  
+##### 91#       发表于 2024-3-15 11:50
+
+虚吧姐妹消息还是灵通啊，发现米兰关注了一个疑似九埜的个人势……这下基本可以确定vta剩下没出道的应该都没了OTZ
+

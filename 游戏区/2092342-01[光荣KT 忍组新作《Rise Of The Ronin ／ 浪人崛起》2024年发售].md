@@ -4674,3 +4674,54 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 也是一男一女双主角，不知道在开放世界上谁会更好玩一些
 
+
+*****
+
+####  clover293  
+##### 1150#       发表于 2024-3-15 11:50
+
+仁王首周是7万来着
+
+*****
+
+####  Gigax  
+##### 1151#       发表于 2024-3-15 11:51
+
+论开放世界设计那肯定还是刺客信条红更好吧，忍者组搞开放世界能有育碧的七成水平都不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clover293  
+##### 1152#       发表于 2024-3-15 11:52
+
+全力制作也不代表好。。。真38你说没全力制作嘛。。。
+
+*****
+
+####  桥洞底下盖小被  
+##### 1153#       发表于 2024-3-15 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261193&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-15 11:45</a>
+
+印象里育碧的日本战国版刺客信条也是今年发售
+
+也是一男一女双主角，不知道在开放世界上谁会更好玩一些 ...</blockquote>
+虽然育碧的开放世界说不上好玩，但整体素质不是忍组能比的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是期待战斗系统和敌人设计吧
+
+*****
+
+####  ranapocket  
+##### 1154#       发表于 2024-3-15 11:56
+
+让你们看不起育碧罐头<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">起码育碧罐头有保底
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  SergeGlenn  
+##### 1155#       发表于 2024-3-15 11:56
+
+开放世界烂也不代表制作起来就很轻松啊，你们眼中最偷懒的罐头地图估计也是累秃了不少人才做出来的
+

@@ -4888,3 +4888,11 @@ https://tieba.baidu.co ...</blockquote>
 https://tieba.baidu.co ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">爱了爱了
 
+
+*****
+
+####  duraa  
+##### 1171#       发表于 2024-3-16 02:54
+
+演示视频里的双刀小陀螺接石火原来中间还衔接了个逐帧才能看到的振刀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">振刀接石火这么丝滑啊
+

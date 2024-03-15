@@ -12975,3 +12975,12 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 149还挺微妙的，在的游戏群日常爱丽丝表情包，但是日经问题这角色是谁好熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 2784#       发表于 2024-3-15 20:12
+
+蓝毛的电音部歌回刚开始了，其实我没完全听过电音部的歌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/a8557ad570c1eb93dacd48dcef7ffab2/CMP_20240315201227340.jpg" referrerpolicy="no-referrer">
+

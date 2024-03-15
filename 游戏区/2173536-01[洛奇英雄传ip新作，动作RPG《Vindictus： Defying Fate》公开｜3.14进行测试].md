@@ -936,3 +936,37 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 单红光是治贪刀，二连红光就是纯纯的斋藤利三行为了
 
+
+*****
+
+####  Disturbia  
+##### 92#       发表于 2024-3-15 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261779&amp;ptid=2173536" target="_blank">绚烂航迹云 发表于 2024-3-15 12:44</a>
+那不就是LB+Y？不用防御也能摁出来的，而且有CD
+以前网游我全靠盾反打倒地再输出的，现在变成抓攻击间隔输 ...</blockquote>
+破案了，手柄按键太逆天了。键鼠q重重完事，手柄会按成1技能。
+
+*****
+
+####  Disturbia  
+##### 93#       发表于 2024-3-15 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262501&amp;ptid=2173536" target="_blank">CrayS1 发表于 2024-3-15 14:11</a>
+那个不算，有CD的最多算个技能，我指的是原版防御后的DD。
+
+我的理解是这作加入了怪猎的硬直机制， 硬直 ...</blockquote>
+看了下，应该是手柄按键问题。按照键鼠逻辑TDD应该是LB+YY，但是手柄这样按会出1技能。
+
+
+*****
+
+####  Disturbia  
+##### 94#       发表于 2024-3-15 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262863&amp;ptid=2173536" target="_blank">放大镜 发表于 2024-3-15 14:45</a>
+红狼红光启动特别快，只要你在播放C技动画就肯定跑不掉
+
+酋长红光还有机会闪开或者狂怒飘走</blockquote>
+没错，基本上二阶段想无伤的话就不太能在boss动作间隔期间主动蹭刀了，最多打2s或者1sd，打2sd出红光想滚都很极限。一阶段的话，基本每个动作期间打个2sdd都是来得及的。
+

@@ -12802,3 +12802,13 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  Anatoly  
+##### 2767#       发表于 2024-3-15 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当年不分类严查的时候不进，现在偶像类严打想进都不容易，就不说那个更神秘的中国imas计划了
+
+但万代也是这样的，它甚至有游戏算在繁中区同时运营甚至用户协议都有繁中版然后游戏纯日文<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

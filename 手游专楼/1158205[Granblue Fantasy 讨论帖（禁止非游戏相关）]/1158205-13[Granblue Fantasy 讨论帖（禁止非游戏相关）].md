@@ -172,3 +172,11 @@
 
 反正咸鱼有的武器也不多，送了就算是赚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 17777#       发表于 2024-3-15 14:56
+
+问下150金月现在是换武器好还是换黑卡拿人好？7周年后的季限基本没有抽过
+

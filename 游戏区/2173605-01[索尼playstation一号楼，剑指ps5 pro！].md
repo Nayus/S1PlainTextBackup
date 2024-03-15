@@ -258,3 +258,24 @@ Image_1710482169838.jpg
 疑似是PS5Pro独占的upscale技术跟TAAU FSR2对比</blockquote>
 这图的质量真的看得出啥吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clyde-wang  
+##### 214#       发表于 2024-3-15 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262355&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-3-15 13:57</a>
+疑似是PS5Pro独占的upscale技术跟TAAU FSR2对比</blockquote>
+这图都包浆了吧…
+
+而且说实话PS5现在的机能都有很多厂家没摸透，再来一个pro适配不知道又会出多少优化事故了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫不萌  
+##### 215#       发表于 2024-3-15 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262508&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-3-15 14:11</a>
+这图的质量真的看得出啥吗</blockquote>
+看肩部描线(也很糊)
+

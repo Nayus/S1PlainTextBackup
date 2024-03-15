@@ -12852,3 +12852,29 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  江口夕  
+##### 2771#       发表于 2024-3-15 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263234&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-15 15:23</a>
+至少知道偶像大师这个名字了，已经赢了好吧，不然还指望啥
+
+—— 来自 OnePlus PGKM10, Android 1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那还不如指望学马仕，这第四个的plove浓度我挺满意，后面再来几个。先把这哪怕在日本都快入土的ip盘活再说。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  kobushi  
+##### 2772#       发表于 2024-3-15 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263181&amp;ptid=2130897" target="_blank">江口夕 发表于 2024-3-15 15:17</a>
+
+然后刚想了解你ip的一看灰姑娘都要关门了。
+
+看u149大部分就是看小学生去的，还一堆人喊无聊的， ...</blockquote>
+曾经我也以为U149动画能拉万分之一的新，不过实际动画播出后活跃玩家接连刷新下限<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

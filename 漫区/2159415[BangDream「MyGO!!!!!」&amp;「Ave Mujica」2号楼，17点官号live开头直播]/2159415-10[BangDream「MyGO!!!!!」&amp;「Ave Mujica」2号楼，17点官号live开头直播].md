@@ -10038,3 +10038,19 @@ ppp这张图，ars应得的。<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  6030sylar  
+##### 14181#       发表于 2024-3-15 13:30
+
+<img src="https://img.saraba1st.com/forum/202403/15/133044swhvvtn3vr7atrtw.png" referrerpolicy="no-referrer">
+
+<strong>1}7K0Z)}2)RY2U_`[)))IQP.png</strong> (142.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 13:30 上传
+
+今晚记得看[【ガルパ7周年記念】劇場版「BanG Dream! FILM LIVE 2nd Stage」特別上映会 (youtube.com)](https://www.youtube.com/watch?v=tXdGZLIV9pw)
+

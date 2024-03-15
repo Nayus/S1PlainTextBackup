@@ -4807,3 +4807,13 @@ COMG点数预测还蛮准的，最近FF7RB发售前曲线也是不敌16，折算
 
 对马岛那会至少是完爆同期的ACV的
 
+
+*****
+
+####  病態極端  
+##### 1163#       发表于 2024-3-15 13:29
+
+<img src="https://i0.hdslb.com/bfs/new_dyn/de78ead9459640fc8f1be19cb1c14a1e7027715.png@!web-comment-note.avif" id="aimg_F07u0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+這設定圖是哪來的？
+

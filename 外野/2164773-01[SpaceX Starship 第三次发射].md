@@ -3119,3 +3119,27 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 他们可以去看中国商业航天的和计算中美航天技术差距节点时间，这对于缓解焦虑很有好处。当我意识到长五其 ...</blockquote>
 不，一个靠暴力固推+毒发，一个是补燃煤油机+二级地面点火，压根俩路线啊……总不能说都是捆绑式火箭就是对标吧……
 
+
+*****
+
+####  哈里-谢顿  
+##### 442#       发表于 2024-3-15 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261923&amp;ptid=2164773" target="_blank">随便. 发表于 2024-3-15 13:05</a>
+
+有必要搬nga的屎，马桶和国新连勾巴载荷 载具都分不清，在那讨论航天血压都能爆了
+
+  -- 来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不过泥潭老哥很喜欢转发NGA的登月阴谋过来开贴辩论，我转发一条条辩驳了以后人都不见
+
+
+*****
+
+####  clarkgao  
+##### 443#       发表于 2024-3-15 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262053&amp;ptid=2164773" target="_blank">tsukatsukieiko 发表于 2024-3-15 13:23</a>
+
+不，一个靠暴力固推+毒发，一个是补燃煤油机+二级地面点火，压根俩路线啊……总不能说都是捆绑式火箭就是 ...</blockquote>
+毕竟同期上下的三角洲2/3系列跟长5比较起来也不算完美对标，大概能统称为世纪之交美国一次性重型运载火箭技术节点？
+

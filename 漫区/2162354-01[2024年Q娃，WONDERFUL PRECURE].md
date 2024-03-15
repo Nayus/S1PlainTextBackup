@@ -1005,3 +1005,21 @@ it is 麦狗
 
 后来看了下放大图手啊头发啊也没啥破绽，只能说确实和之前东大妈的谷子画风完全不一样但也没证据是ai
 
+
+*****
+
+####  粉儿alice  
+##### 1176#       发表于 2024-3-15 11:20
+
+现在比较争议几点 耳朵 头发 手 大腿 阴影 这些都是ai画不好地方都有问题
+
+q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 交上去没有审核 就放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正结果就是装死 继续伤害自己ip价值和真爱粉丝呗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 1177#       发表于 2024-3-15 11:20
+
+这画风很干净清新，我还挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

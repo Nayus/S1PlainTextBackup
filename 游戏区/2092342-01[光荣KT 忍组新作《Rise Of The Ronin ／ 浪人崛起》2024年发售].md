@@ -4625,3 +4625,28 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 
 对马岛开放世界就是一坨啊，除了风景一无是处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，支线任务套路都一样都是到现场-找脚印-杀人这种
 
+
+*****
+
+####  Gigax  
+##### 1144#       发表于 2024-3-15 11:18
+
+我对这个开放世界的要求只要战斗密度大就行了，别的就按标准育碧清单来，就怕忍者组有自己的想法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 1145#       发表于 2024-3-15 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260753&amp;ptid=2092342" target="_blank">SergeGlenn 发表于 2024-3-15 11:09</a>
+这回比较诡异的是龙信2宣发也是PS这边拿的吧，更想不通两个放在同一天发售是什么意思了 ...</blockquote>
+宣发又不管发行
+
+
+*****
+
+####  ultraseven  
+##### 1146#       发表于 2024-3-15 11:25
+
+目前COMG预约点数和同期卧龙PS5版差不多，是龙信2的差不多一半，剩下一周多没有大动作的话估计到时候浪人日本首周实体3万？龙信2 6万？不知道估计是不是太保守了
+

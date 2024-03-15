@@ -2346,3 +2346,16 @@ VTA成员去向不透明这点真的是坏文明
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">ＳＴＧＲ第一恶女回归了可还行，而且还是在fan太刚刚确立新恋爱路线的第二天强势宣布回归
 
+
+*****
+
+####  fastary  
+##### 98#       发表于 2024-3-16 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64268630&amp;ptid=2171972" target="_blank">毛头小希 发表于 2024-3-16 00:30</a>
+
+打开X看了一下米兰的关注列表，除了虹同事（不知为啥蒽居多）就是插画家、动画监督、一些作品的官号，一 ...</blockquote>
+草，刚刚去确认了一下他取关了，不知道是enkr管到了还是觉得现在就引流不大好还是怎么样……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+推号是这个@nagarashino84
+

@@ -3942,3 +3942,34 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 —— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  xinfengj  
+##### 1859#       发表于 2024-3-15 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255734&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-3-14 21:13</a>
+
+我不明白测评说这游戏通行证很公道没pay2win是怎么想的。
+
+别人的通行证只卖皮肤，一点影响gameplay的要素都 ...</blockquote>
+超级通行证里东西哪个是没有就打不了任务的，都是一堆玩具，第一个里就个燃烧雷能用，第二个是让人组四个电弧队玩的，野队有人组4电弧？
+
+
+*****
+
+####  xinfengj  
+##### 1860#       发表于 2024-3-15 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259447&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-15 09:14</a>
+
+昨天和朋友开黑打了几轮守护电池，感觉是不是ceo又被骂了，怎么难度这么低，n9全是吐酸虫，全程刷了也就三 ...</blockquote>
+你随机遇到运气好的了，昨天和朋友打，落地走出一只泰坦，开一号机钻出4只泰坦，好不容易去了二号机，三个人被五只牛和无尽跳虫追到死
+
+*****
+
+####  变老的大二  
+##### 1861#       发表于 2024-3-15 09:54
+
+目前通行证确实就是加了一堆时尚小垃圾，全部中甲绷不住了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

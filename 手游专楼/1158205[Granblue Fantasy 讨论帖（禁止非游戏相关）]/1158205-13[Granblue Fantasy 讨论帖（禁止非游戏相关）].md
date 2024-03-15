@@ -130,3 +130,11 @@
 
 但内裤人的野心真大，是想征服星辰大海<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonko15  
+##### 17773#       发表于 2024-3-15 09:53
+
+路学整这么多玩意，巴哈那么多都是什么设定？大小巴和刘女士召唤的巴大概有个数，碧是为啥逼格这么高，超巴和极巴这种掉CPU的又是啥设定
+

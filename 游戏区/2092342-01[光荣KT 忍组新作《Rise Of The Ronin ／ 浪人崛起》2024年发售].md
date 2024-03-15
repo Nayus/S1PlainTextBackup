@@ -4529,3 +4529,13 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 讲道理一把武器4个武技好像每个架势武技还是分开的吧，我脸滚键盘都能按 ...</blockquote>
 架势好像更像对马岛这种对付不同敌人选不同架势克制，而不是仁王那种战斗中切架势派生连段？看了几个前瞻好像有这种感觉
 
+
+*****
+
+####  WhiteGlint  
+##### 1133#       发表于 2024-3-15 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259550&amp;ptid=2092342" target="_blank">Stefano 发表于 2024-3-15 09:26</a>
+架势好像更像对马岛这种对付不同敌人选不同架势克制，而不是仁王那种战斗中切架势派生连段？看了几个前瞻 ...</blockquote>
+被克制或者克制不是绝对劣势或者优势，因为隼流的忍架势是被所有架势克制，总不至于隼流砍谁都砍不动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

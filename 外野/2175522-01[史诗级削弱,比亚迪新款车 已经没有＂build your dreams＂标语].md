@@ -828,3 +828,13 @@ blow your dick
 
 —— 来自 vivo V2243A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  eskibear  
+##### 90#       发表于 2024-3-15 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64267367&amp;ptid=2175522" target="_blank">中国科学院 发表于 2024-3-15 22:05</a>
+blow your dick</blockquote>
+笑死我也刚想到这个，但是一般是suck…不如叫boom！your dick！ 翻译回中文还是 碉堡了 ！岂不美哉！
+

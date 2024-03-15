@@ -467,3 +467,18 @@ PS5现在很尬，一个是性能太落后了，一个是游戏内容绝大部�
 这两年电脑性能其 ...</blockquote>
 有一种不玩pc的美，你要不要查查老黄有多不当人？
 
+
+*****
+
+####  csolfans  
+##### 46#       发表于 2024-3-15 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64267946&amp;ptid=2175658" target="_blank">钛制饼干 发表于 2024-3-15 23:01</a>
+
+主机为了省钱把三缓砍到标准版的四分之一太狠了
+
+实际性能损失不单单是低频
+
+大三缓的U在AMD那都得加钱[f:0 ...</blockquote>
+没有四分之一，当年的APU三缓极大部分基本都是在8mb，一部分16mb（？）而且这玩意实打实占用晶体管，成本的确爆炸。而且我之前跟相关聊过，他们大部分也认为8mb的三缓也够主机用了
+

@@ -2275,3 +2275,11 @@ ytb新女帝，vspo赶超hololive指日可待<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">想知道STGR变装的本尊是谁可以进STGR的官方discord里面有个变装咨询频道可以直接问或者搜，虽然我也不太会用discord不知道怎么搜索聊天记录（
 
+
+*****
+
+####  hulaoda007  
+##### 90#       发表于 2024-3-15 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">一期生终于要开始散伙了啊。
+

@@ -3932,3 +3932,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">昨晚带别人守电池n6都刷4,5只泰坦，楼上还是我遇到bug了？
 
+
+*****
+
+####  白玫瑰之夜  
+##### 1858#       发表于 2024-3-15 09:41
+
+昨天打守塔带了迫击炮，然后眼睁睁的看着四连发直接把电池打宕机了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

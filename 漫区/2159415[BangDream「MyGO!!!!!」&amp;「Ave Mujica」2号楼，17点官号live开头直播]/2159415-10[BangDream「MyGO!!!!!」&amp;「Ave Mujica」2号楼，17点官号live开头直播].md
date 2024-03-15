@@ -10054,3 +10054,13 @@ ppp这张图，ars应得的。<img src="https://static.saraba1st.com/image/smile
 
 今晚记得看[【ガルパ7周年記念】劇場版「BanG Dream! FILM LIVE 2nd Stage」特別上映会 (youtube.com)](https://www.youtube.com/watch?v=tXdGZLIV9pw)
 
+
+*****
+
+####  6030sylar  
+##### 14182#       发表于 2024-3-15 13:47
+
+这下不得不姐妹了<img src="https://p.sda1.dev/16/893acf59c7be75254119171cf93551a6/CMP_20240315134709059.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3224,3 +3224,15 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 我高中没及格，那个加点就知道一个力量</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我在首页机翻下大致玩法介绍和战士号最重要几个技能点，可以看看。
 
+
+*****
+
+####  彩虹肥宅  
+##### 263#       发表于 2024-3-15 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261507&amp;ptid=2123540" target="_blank">qappip 发表于 2024-3-15 12:13</a>
+我在首页机翻下大致玩法介绍和战士号最重要几个技能点，可以看看。 ...</blockquote>
+我学习学习<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，这游戏的死亡惩罚是怎么样的，感觉不掉东西也没有捡尸啊。
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

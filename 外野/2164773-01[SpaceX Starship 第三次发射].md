@@ -3706,3 +3706,43 @@ HLS的难点只有油船长期储存LOX/甲烷，这个部分已经由这次探�
 
 美国将中国排除在绝大多数国际商业发射市场都多久了。不如说说一开始允许继续商业发射的话会是什么个格局。
 
+
+*****
+
+####  longmarch5  
+##### 486#       发表于 2024-3-15 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64267874&amp;ptid=2164773" target="_blank">magicianxu 发表于 2024-3-15 22:53</a>
+
+美国将中国排除在绝大多数国际商业发射市场都多久了。不如说说一开始允许继续商业发射的话会是什么个格局。 ...</blockquote>
+那样的话我前面提的长2E（A）可能就搞出来了，也可能衍生三级半构型的版本，国内航天系统得到资金的话发展可以加快不少
+
+*****
+
+####  magicianxu  
+##### 487#       发表于 2024-3-15 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64267910&amp;ptid=2164773" target="_blank">longmarch5 发表于 2024-3-15 22:58</a>
+那样的话我前面提的长2E（A）可能就搞出来了，也可能衍生三级半构型的版本，国内航天系统得到资金的话发 ...</blockquote>
+马斯克一开始还能吃到那么多商业订单吗？
+
+
+*****
+
+####  longmarch5  
+##### 488#       发表于 2024-3-15 23:03
+
+ 本帖最后由 longmarch5 于 2024-3-15 23:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64267945&amp;ptid=2164773" target="_blank">magicianxu 发表于 2024-3-15 23:01</a>
+
+马斯克一开始还能吃到那么多商业订单吗？</blockquote>
+马老板也是干翻了毛子的老质子拿到单的（在F9出现之前老质子是商业发射市场比较便宜的）
+
+国内如果还是一次性火箭的话，马老板仍然是有优势的
+
+现在新一代长征（5-8这一代）成本上并不理想，比老长征贵
+
+联盟、质子和老长征差不多是传统一次性火箭在成本上的极限了，现在基本上就是生产和人工成本
+
+F9还有点优势是运转效率极高，去年发射破百，靠传统一次性火箭想实现很难
+

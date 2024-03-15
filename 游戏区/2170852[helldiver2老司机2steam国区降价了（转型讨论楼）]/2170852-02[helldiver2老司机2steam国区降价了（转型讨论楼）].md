@@ -4386,3 +4386,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">今天最后上飞机时出bug了 ctrl无法呼出菜单无法叫增援 ，被房主踢了
 
+
+*****
+
+####  白昼梦  
+##### 1901#       发表于 2024-3-15 22:59
+
+终结虫族任务跟路人眼神交流四个人穿了三件电抗甲带了两把电弧一地次抛之后打得真是又爽又轻松啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有就是空投毒气感觉是有点好用，现在小虫子多了之后比以前好用了
+

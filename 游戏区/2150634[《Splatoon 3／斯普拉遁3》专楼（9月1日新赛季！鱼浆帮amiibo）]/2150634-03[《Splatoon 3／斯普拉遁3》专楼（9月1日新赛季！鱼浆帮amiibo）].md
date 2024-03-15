@@ -6389,3 +6389,15 @@ X赛一群傻逼，根本不管鱼在哪瞎几把冲，还不如玩开放，我�
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  罗克萨斯  
+##### 3625#       发表于 2024-3-15 18:08
+
+日区祭典主题好无聊，还不如国际区主题。可是新赛季祭典T恤能改宽松了，不想错过<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+月中了，会有武器调整么？鹦鹉螺又不咋能涂，贴牌SP给到210太过分了吧，不减个30说不过去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

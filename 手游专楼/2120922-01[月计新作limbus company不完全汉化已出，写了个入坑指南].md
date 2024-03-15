@@ -48,3 +48,23 @@
 
 第六章还没开就出小夫三星，大概说明不会给他自己故事里人物的套皮人格了...某种意义上对他来说是好事。
 
+
+*****
+
+####  btnasi  
+##### 590#       发表于 2024-3-15 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 591#       发表于 2024-3-15 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264447&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-3-15 17:21</a>
+
+没想到3科第一个人格是小夫
+
+巴士进入梦魇级别了？</blockquote>
+其实开服就有的死协会、seven协会和剑契就是梦魇级别了，六协会都能算都市之星了。
+

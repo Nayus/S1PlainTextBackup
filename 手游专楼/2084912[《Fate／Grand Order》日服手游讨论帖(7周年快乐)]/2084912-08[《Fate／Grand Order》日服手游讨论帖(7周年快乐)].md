@@ -1357,3 +1357,14 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 奏章I的登场角 ...</blockquote>
 想起了奏三那个长得像龙娘的角色才是卡里奥斯特罗伯爵的推测，完美理想形态就是美少女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 11531#       发表于 2024-3-15 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264761&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-3-15 17:55</a>
+
+想起了奏三那个长得像龙娘的角色才是卡里奥斯特罗伯爵的推测，完美理想形态就是美少女 ...</blockquote>
+正好那个龙娘发型还特像魔神柱，声优是丹下樱就更对味了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

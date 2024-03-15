@@ -13028,3 +13028,11 @@ Crush，Anti，神パラサイト，狐憑き
 
 初始九人的中之人应该都是些生面孔。秋奈要真来了那唱功至少暴杀前面这几位没任何问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  清雨  
+##### 2789#       发表于 2024-3-15 21:48
+
+秋奈的音色跟kpop挺相配的，学偶的红毛开腔的时候满脑子都是秋奈
+

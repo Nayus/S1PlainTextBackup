@@ -3667,3 +3667,18 @@ HLS的难点只有油船长期储存LOX/甲烷，这个部分已经由这次探�
 
 无非是马斯克的个人判断取代了政府的政令罢了。
 
+
+*****
+
+####  phorcys02  
+##### 483#       发表于 2024-3-15 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263665&amp;ptid=2164773" target="_blank">灼眼的川川仔 发表于 2024-3-15 16:09</a>
+
+那东西理想状态也就丢丢💣纯军用的，完全不是一回事的</blockquote>
+显然你没仔细读相关的论文
+
+如果发动机推阻比有提升，即使是最小规模的2025实验机
+
+载荷都会有非常大的提升
+

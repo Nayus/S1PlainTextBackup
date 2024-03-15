@@ -767,3 +767,21 @@ burn my dread<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 可以改成中文：做你丫美梦</blockquote>
 前进无力，倒车不精，避震松散，反应迟钝，没一个动作像样的
 
+
+*****
+
+####  飞天意面怪  
+##### 84#       发表于 2024-3-15 21:48
+
+<blockquote>a37356205 发表于 2024-3-14 16:34
+为什么不能自定义，我要弄个：BanG Dream! It's MyGO!!!!!</blockquote>
+会一辈子迷路开不到目的地的。
+
+
+*****
+
+####  deadpeople  
+##### 85#       发表于 2024-3-15 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是从设计角度上来说那行字至少比现在三个字母摆上面协调多了，尤其是海洋网有些车型的屁股都很圆润，搭配起来简直灾难，突出一个僵硬
+

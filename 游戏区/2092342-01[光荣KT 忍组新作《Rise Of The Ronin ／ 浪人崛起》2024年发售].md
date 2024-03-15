@@ -4516,3 +4516,16 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 男女通讯录都可以搞相爱相杀。</blockquote>
 不知道这游戏的浪漫关系会不会仅限异性恋，捏双女主后不能攻略npc就有点得不偿失了
 
+
+*****
+
+####  Stefano  
+##### 1132#       发表于 2024-3-15 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257444&amp;ptid=2092342" target="_blank">WhiteGlint 发表于 2024-3-14 23:40</a>
+
+主要还是没放demo现在只能全靠猜。
+
+讲道理一把武器4个武技好像每个架势武技还是分开的吧，我脸滚键盘都能按 ...</blockquote>
+架势好像更像对马岛这种对付不同敌人选不同架势克制，而不是仁王那种战斗中切架势派生连段？看了几个前瞻好像有这种感觉
+

@@ -635,3 +635,35 @@ B歪得，唉，感觉比亚迪老板非向虎山行！
 
 比亚迪什么时候出“春秋大梦”系列？
 
+
+*****
+
+####  能代  
+##### 71#       发表于 2024-3-15 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64252799&amp;ptid=2175522" target="_blank">愤怒小二八 发表于 2024-3-14 16:29</a>
+
+逼养的在取名和选车标方面可以说是全球车企的洼地了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+取名方面也就这样吧..堪比好名字都被狗取了佣兵团了...反正把自己姓氏直接贴脑门上也不算啥优秀的方式..
+
+至于车标...这个的确很洼地
+
+*****
+
+####  能代  
+##### 72#       发表于 2024-3-15 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64253146&amp;ptid=2175522" target="_blank">LaZier 发表于 2024-3-14 16:56</a>
+
+..............那要不退而求其次，贴一个Burn Your Daddy吧</blockquote>
+Burn Your Dick也不错
+
+*****
+
+####  specklu  
+##### 73#       发表于 2024-3-15 09:31
+
+Rage your dream~
+

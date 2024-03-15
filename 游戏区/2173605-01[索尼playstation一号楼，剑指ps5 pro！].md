@@ -199,3 +199,35 @@ PS5版的龙珠卡卡罗特有没有60帧？PS4的以前送过，我玩了一个
 DS的属性是啥意思？DEATH STRANDING？BDSM?Deadly Strike?Dual screen? Devastator Squad?DualSense？ ...</blockquote>
 Dualsense<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贝恩德塔  
+##### 209#         楼主| 发表于 2024-3-15 09:25
+
+<blockquote>vvleemm 发表于 2024-3-15 09:09
+PS5版的龙珠卡卡罗特有没有60帧？PS4的以前送过，我玩了一个开头，那叫一个卡的难受啊。。。 ...</blockquote>
+4k60
+
+
+*****
+
+####  vvleemm  
+##### 210#       发表于 2024-3-15 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259547&amp;ptid=2173605" target="_blank">贝恩德塔 发表于 2024-3-15 09:25</a>
+
+4k60</blockquote>
+谢谢，这次可以玩一玩了
+
+*****
+
+####  贝恩德塔  
+##### 211#         楼主| 发表于 2024-3-15 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64259428&amp;ptid=2173605" target="_blank">Rowen233 发表于 2024-3-15 09:12</a>
+
+Dualsense</blockquote>
+意思是能用ds5的功能？可以参考这个网站
+[https://www.pcgamingwiki.com/wik ... ic_feedback_support](https://www.pcgamingwiki.com/wiki/Controller:DualSense#Games_with_adaptive_trigger_and_haptic_feedback_support)
+

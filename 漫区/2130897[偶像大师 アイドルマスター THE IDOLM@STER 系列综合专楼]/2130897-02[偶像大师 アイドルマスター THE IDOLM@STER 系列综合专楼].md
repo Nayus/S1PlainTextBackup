@@ -12886,3 +12886,13 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 实在不行学马仕编曲再请个ayse呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 2774#       发表于 2024-3-15 16:12
+
+国内人气第一是圆呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我一朋友不关注偶像大师的都知道 甚至跟我说要看动画 然后我跟他说第一季没有 然后说看第二季就好了。
+
+圈外人都分不清不同企划的，
+

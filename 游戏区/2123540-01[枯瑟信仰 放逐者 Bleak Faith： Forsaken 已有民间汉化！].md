@@ -3236,3 +3236,16 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  qappip  
+##### 264#         楼主| 发表于 2024-3-15 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261909&amp;ptid=2123540" target="_blank">彩虹肥宅 发表于 2024-03-15 13:03:03</a>
+我学习学习 v2.5.2-play</blockquote>几乎没有任何惩罚，我甚至经常赶路直接自杀，菜单里有 重启的选项。
+唯一注意点就是 被红皮骑士杀死会提示熵增加，到达100%会删档。
+听说至少要被红皮骑士杀几百次，这块属于流言未证实。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

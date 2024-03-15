@@ -339,3 +339,11 @@ ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 
 看错了。要是用的rdna3的话，那7700xt的35.17tflops是比较接近的一个数据了，理论性能可能很接近6800或者4070。
 
+
+*****
+
+####  椎名mahuyo  
+##### 221#       发表于 2024-3-15 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真追求帧数下一代可能是提升CPU吧，最近好几作都说帧数提不起来瓶颈是CPU
+

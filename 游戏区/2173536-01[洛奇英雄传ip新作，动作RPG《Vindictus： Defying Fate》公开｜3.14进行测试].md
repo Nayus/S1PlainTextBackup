@@ -981,3 +981,14 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 看了下，应该是手柄按键问题。按照键鼠逻辑TDD应该是LB+YY，但是手柄这样按会出1技能。 ...</blockquote>
 这样啊，回去换成键鼠试试。 
 
+
+*****
+
+####  Disturbia  
+##### 96#       发表于 2024-3-15 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263479&amp;ptid=2173536" target="_blank">CrayS1 发表于 2024-3-15 15:46</a>
+
+这样啊，回去换成键鼠试试。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我自己用手柄试了试 手柄你得LB防住之后松开LB再按Y触发反击 而键鼠是要Q挡住之后还按住Q再右键才能反击 逻辑不一样
+

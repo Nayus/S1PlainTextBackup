@@ -4434,3 +4434,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 —— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  rgauss  
+##### 1906#       发表于 2024-3-16 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64268027&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-3-15 23:12</a>
+刚入，怎么开头第一个任务给了大一千，第二个任务就只有几百了，明明第一个任务死得更多耗时更长 ...</blockquote>
+除了主要任务还有次要任务 还有炸虫窝这些任务 对经验都有影响
+

@@ -4846,3 +4846,16 @@ COMG点数预测还蛮准的，最近FF7RB发售前曲线也是不敌16，折算
 阳间得不敢相信是忍者组做出来的场景，索尼在这快截点图不比现在宣传效果好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [https://tieba.baidu.com/p/8936771242](https://tieba.baidu.com/p/8936771242)
 
+
+*****
+
+####  病態極端  
+##### 1167#       发表于 2024-3-16 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64268605&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-16 00:27</a>
+
+阳间得不敢相信是忍者组做出来的场景，索尼在这块截点图不比现在宣传效果好
+
+https://tieba.baidu.co ...</blockquote>
+其實臥龍就能拍出這種照片了。
+

@@ -10256,3 +10256,16 @@ https://bestdori.com/info/songs/590/non-breath
 —— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
 go二创脑洞越来越大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14201#       发表于 2024-3-16 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64265960&amp;ptid=2159415" target="_blank">泥潭办证先锋 发表于 2024-3-15 19:57</a>
+
+https://bestdori.com/info/songs/590/non-breath
+
+ノンプレス・オブリージュ的翻唱来了，感觉LIVE很 ...</blockquote>
+会不会唱还不好说呢，mygo目前在live唱的翻唱曲一直都还是老几样，动画后的新翻唱一首都没唱过，不知道是不是没时间练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

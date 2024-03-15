@@ -4867,3 +4867,11 @@ https://tieba.baidu.co ...</blockquote>
 
 搜尽了所有宣发物料找出来的少数几张能看的图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShiKi847  
+##### 1169#       发表于 2024-3-16 01:05
+
+只能说不是kt不行了，是索尼这次彻底在日本退环境了
+

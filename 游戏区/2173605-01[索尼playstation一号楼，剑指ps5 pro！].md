@@ -441,3 +441,14 @@ ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  医生狼多  
+##### 230#       发表于 2024-3-15 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264756&amp;ptid=2173605" target="_blank">Rowen233 发表于 2024-3-15 17:54</a>
+买了个PC版的神秘海域 但是感觉Dualsense的震动好少（有是有） 自适应板机也没啥感觉 PS5上是不是也这样[f: ...</blockquote>
+ds体验最好是小机器人，不过这个不会上pc的
+其他可以试试瑞奇，还有死亡回归
+

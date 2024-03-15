@@ -10307,3 +10307,15 @@ https://bestdori.com/info/songs/590/non-breath
 
 鸡要融入老邦大概看第一次混活怎么写了，个人看好r和ras。明年一月的动画，估摸着周年或者周年后加入，大概没有这种所有人都在的RING赏花祭，总不能一年没有混活。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 14205#       发表于 2024-3-16 06:29
+
+总感觉新的全体主唱图里ksm和灯要么贴贴（如七周年视觉图），要么就都是最前面的位置（如七周年贺图）。
+是不是有一种“钦定”的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+另外倒计时图里只有MyGO是松散的一排的构图，也挺有趣的。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

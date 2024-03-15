@@ -3510,3 +3510,21 @@ NASA则别无选择。2021年4月，他们在三家竞标中选择了航天发�
 
 星舰实际上也会实践这套方法——连续十次无事故无人登月那当然就有足够的安全性了。
 
+
+*****
+
+####  longmarch5  
+##### 471#       发表于 2024-3-15 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264487&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-15 17:25</a>
+
+看了一下并没有很明确的逻辑论证。
+
+首先阿耳忒弥斯计划并没有完全依赖星舰。其他几个参与方并没有停止研发 ...</blockquote>
+星舰HLS登月的问题以前帖子里讲过啊
+
+他要跳低温推进剂在轨多次加注这个坑，以前从没有人实践过，风险比较大，而对于美国人来说，政治上是不能接受载人登月落后中国的
+
+另一个登月舱方案，也就是蓝源那个，也要在轨加注，而且是更难伺候的液氢
+<img src="https://img.saraba1st.com/forum/202401/28/152410l0ow0bmsb0co9s8w.jpg" referrerpolicy="no-referrer">
+

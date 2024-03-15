@@ -1324,3 +1324,23 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 
 狛爵新马甲还会是绿卡吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 11528#       发表于 2024-3-15 17:48
+
+废弃孔的话。基督山伯爵也要出场吧，不知道会不会带个大仲马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 11529#       发表于 2024-3-15 17:50
+
+奏章II的标题是不可逆废弃孔イド，后面这个片假名该不会是ID（identify，本我）的意思吧。
+
+奏章I的登场角色都是本体的侧面alter ego，ego在弗洛伊德心理学是自我，而人格构成是自我ego、本我ID和超我super ego。
+
+如果奏章II出场人物对应的是月世界里的正史本体，那以此推理奏章III就可能是角色的理想完美形态？
+

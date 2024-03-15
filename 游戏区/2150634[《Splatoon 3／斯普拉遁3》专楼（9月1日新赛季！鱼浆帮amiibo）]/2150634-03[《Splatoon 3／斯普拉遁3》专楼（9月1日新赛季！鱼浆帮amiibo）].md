@@ -6375,3 +6375,17 @@ X赛一群傻逼，根本不管鱼在哪瞎几把冲，还不如玩开放，我�
 
 不懂乐器，不知道这次祭典选啥
 
+
+*****
+
+####  shirolin  
+##### 3624#       发表于 2024-3-15 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64257119&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-14 23:09</a>
+新赛季才打三天就喜提S+负分了，战绩再次逼近40%
+
+特么的给我狙队友能不能别塞这么菜的啊，菜狙能不能别打X ...</blockquote>
+这赛季我也一上来就负分了，群魔乱舞…
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

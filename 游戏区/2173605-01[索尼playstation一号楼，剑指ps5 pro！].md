@@ -231,3 +231,20 @@ Dualsense</blockquote>
 意思是能用ds5的功能？可以参考这个网站
 [https://www.pcgamingwiki.com/wik ... ic_feedback_support](https://www.pcgamingwiki.com/wiki/Controller:DualSense#Games_with_adaptive_trigger_and_haptic_feedback_support)
 
+
+*****
+
+####  csolfans  
+##### 212#       发表于 2024-3-15 13:57
+
+疑似是PS5Pro独占的upscale技术跟TAAU FSR2对比
+
+Image_1710482169838.jpg
+(191.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 13:57 上传
+
+<img src="https://img.saraba1st.com/forum/202403/15/135730bfhpo22ihoolh533.jpg" referrerpolicy="no-referrer">
+

@@ -454,3 +454,16 @@ fsr2最适合的游戏就是二次元和非写实游戏，画面低频比较多�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  izthr  
+##### 45#       发表于 2024-3-15 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64266475&amp;ptid=2175658" target="_blank">七草真由美 发表于 2024-3-15 20:44</a>
+
+PS5现在很尬，一个是性能太落后了，一个是游戏内容绝大部分都上PC了，连索尼自己都上PC。
+
+这两年电脑性能其 ...</blockquote>
+有一种不玩pc的美，你要不要查查老黄有多不当人？
+

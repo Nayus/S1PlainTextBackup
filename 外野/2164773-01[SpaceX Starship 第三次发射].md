@@ -3767,3 +3767,14 @@ F9还有点优势是运转效率极高，去年发射破百，靠传统一次性
 
 HTHL/VTHL如果不能运用已有机场就是笑话，用已有机场的话，意味着总体重量很难超过An225的700吨，算下载荷比能有几吨的有效载荷就谢天谢地了。
 
+
+*****
+
+####  wpcc  
+##### 491#       发表于 2024-3-15 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64268215&amp;ptid=2164773" target="_blank">tsukatsukieiko 发表于 2024-3-15 23:36</a>
+
+HTHL/VTHL如果不能运用已有机场就是笑话，用已有机场的话，意味着总体重量很难超过An225的700吨，算下载荷 ...</blockquote>
+真有几千吨的飞机还不如做成核动力母舰算了
+

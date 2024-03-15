@@ -170,3 +170,11 @@ google出来的还是1月1日那个1.4.53</blockquote>
 
 靠，升了个澎湃怎么插件全没了，我看插件仓库还有地址怎么显示不出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚瑟邓特  
+##### 203#       发表于 2024-3-16 02:22
+
+卸了重新装就有了，幸亏装的不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

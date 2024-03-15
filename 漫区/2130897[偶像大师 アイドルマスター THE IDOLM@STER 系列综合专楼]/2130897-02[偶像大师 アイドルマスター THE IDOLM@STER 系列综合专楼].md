@@ -12764,3 +12764,15 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  江口夕  
+##### 2764#       发表于 2024-3-15 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64260500&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-3-15 10:47</a>
+说到底你爱马仕在大陆也就是个不大不小的中游IP，哪来那么多ml、gl魔怔人对骂 ...</blockquote>
+中游还是别了以前可能是中游，现在是冷门中的冷门，以前是以前现在是现在。b站几个kol都没看过本家
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -2945,3 +2945,36 @@ SpaceX一直采用这种快速迭代的开发方式，在猎鹰火箭、龙飞�
 
 恁鳖：我不！
 
+
+*****
+
+####  clarkgao  
+##### 428#       发表于 2024-3-15 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261539&amp;ptid=2164773" target="_blank">prattwhitney 发表于 2024-3-15 12:16</a>
+
+说难听点你鳖没有哪个领域是“集中力量干大事”的，还不如说是“集中力量少花钱”，每次都在使劲琢磨用人10 ...</blockquote>
+这就有点小看鳖了。。。我记得中国航天经费如今也有NASA经费的近半了，国家队的能力和成果跟别的国家队相比也确实很强。只能说商业航天是个新的环境，旧时代的巨兽很难适应，还是看看新时代国内航天新势力吧，这两年他们就要集中出成果了。
+
+*****
+
+####  clarkgao  
+##### 429#       发表于 2024-3-15 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261526&amp;ptid=2164773" target="_blank">Суслов 发表于 2024-3-15 12:15</a>
+
+相信康圣，今年成功
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+其实按照回收时间表，御三家都差不多是25年。还有不少后面的也在争取25/26年，也确实拿出了一些有意思的东西，可以看看谁能成功。
+
+*****
+
+####  prattwhitney  
+##### 430#       发表于 2024-3-15 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261587&amp;ptid=2164773" target="_blank">clarkgao 发表于 2024-3-15 12:21</a>
+
+这就有点小看鳖了。。。我记得中国航天经费如今也有NASA经费的近半了，国家队的能力和成果跟别的国家队相 ...</blockquote>
+说的是总投入，冷战美苏双方40年航天斗法花的钱可海了去了，整套体系是现在航天的基座
+

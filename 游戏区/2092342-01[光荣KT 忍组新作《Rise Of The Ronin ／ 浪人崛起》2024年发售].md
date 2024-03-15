@@ -4859,3 +4859,11 @@ COMG点数预测还蛮准的，最近FF7RB发售前曲线也是不敌16，折算
 https://tieba.baidu.co ...</blockquote>
 其實臥龍就能拍出這種照片了。
 
+
+*****
+
+####  ouyang菌  
+##### 1168#       发表于 2024-3-16 00:55
+
+搜尽了所有宣发物料找出来的少数几张能看的图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

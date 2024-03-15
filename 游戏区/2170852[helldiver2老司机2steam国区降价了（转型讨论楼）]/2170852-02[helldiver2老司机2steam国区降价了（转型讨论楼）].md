@@ -4342,3 +4342,13 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 之前看贴吧说增援下不来是因为尸体没死透，系统认为你死了但又没完全死，去把尸体打死就能复活了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皿煮忽悠保你胸腔还有一口气
 
+
+*****
+
+####  stormquantage  
+##### 1897#       发表于 2024-3-15 21:16
+
+全局光堪称A卡杀手
+
+我开了两天的全局光，闪退次数翻了两三倍。前天开了玩三四个小时能闪退四五把，关了之后只闪退一把<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

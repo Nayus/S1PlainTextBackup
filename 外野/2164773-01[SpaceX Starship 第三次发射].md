@@ -3579,3 +3579,12 @@ HLS的难点只有油船长期储存LOX/甲烷，这个部分已经由这次探�
 
 那个小探测器储存量远低于星舰（星舰HLS估计需要上千吨），时间也更短，更不用说星舰需要在轨加注。
 
+
+*****
+
+####  灼眼的川川仔  
+##### 476#       发表于 2024-3-15 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264977&amp;ptid=2164773" target="_blank"> windtrack_qh 发表于 2024-3-15 18:14</a>  本帖最后由 windtrack_qh 于 2024-3-15 18:15 编辑   我个人观点，星舰只是解决的地球轨道发射载重的问题  然而未来的地火载人甚至深空探测的根本问题还是深空推进这一核心得点出新科技，而星舰对这个没啥帮助  所以说，星舰确实很牛逼，但上限也就在那摆着，和三体里人类宇宙舰队差不多一个意思  </blockquote>
+连近地轨道都不能真正开发谈什么新技术，核推再好在可见的未来你要把宝贝反应堆送入轨道也需要化学火箭。老马在带每日宇航员逛星城的时候也谈过一些实话，他也觉得在他有生之年不可能在火星建立自持的殖民地，但他希望至少能把事情往那个方向推动<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

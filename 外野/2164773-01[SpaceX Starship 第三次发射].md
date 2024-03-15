@@ -3629,3 +3629,14 @@ HLS的难点只有油船长期储存LOX/甲烷，这个部分已经由这次探�
 
 有差距要承认，也要改变过时的观念，对我国航天发展现状，业界说的算的那些人看得比围观者清楚的多，每年的指南迭代的也非常快。但是一转输纯属为了屁股不要脑子。
 
+
+*****
+
+####  longmarch5  
+##### 480#       发表于 2024-3-15 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64265377&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-15 18:51</a>
+
+单纯从保温角度来说，大型蓄罐的难度比小型蓄罐低吧？</blockquote>
+先做出来测试看看再说。
+

@@ -78,3 +78,39 @@
 这个科室级别对应的处理事项是图书馆里说的吗，记不清了，六协会一二科好像都能接手都市之星吧？柳真是死 ...</blockquote>
 快加班，4赛季pv出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 593#       发表于 2024-3-15 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四赛季是不是星光又要重刷了
+
+
+*****
+
+####  Jamaisvu  
+##### 594#       发表于 2024-3-15 19:03
+
+<blockquote>erratic璃月 发表于 2024-3-15 18:49
+快加班，4赛季pv出来了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/15/185537ja2puaip1esiq2i2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240315_185521.jpg</strong> (166.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-15 18:55 上传
+
+盛•大•款•待
+
+参考第二赛季的狐雨（东柏）和第三赛季的盲目（亚哈），虽然ego是小夫的，异想体估计是凯瑟琳相关？
+
+巴士这个愤青小夫虽然拿了编制但也不算衣锦还乡吧，回家发现自己变成晴风村老哥不知道会怎么无能狂怒...
+
+我有一计，就说凯瑟琳已经挂了，林顿用了赫尔曼的技术打造了一批凯瑟琳傀儡，然后小夫通过clean all Cathy完成了自我升华。
+
+（话说一个人被结结实实地捆在椅子上进行款待，让我想起了一个韩国恐怖片《老师的恩惠（卸师宴）》）
+

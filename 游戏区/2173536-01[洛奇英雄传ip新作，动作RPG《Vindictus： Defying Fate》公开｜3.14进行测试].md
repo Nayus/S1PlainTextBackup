@@ -1013,3 +1013,14 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 现在打红狼可以复读3SDD/4SD，香港脚踹完就走，好像也不是特别怕撞在红光上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Disturbia  
+##### 99#       发表于 2024-3-15 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64265326&amp;ptid=2173536" target="_blank">放大镜 发表于 2024-3-15 18:46</a>
+
+试了下盾娘，打断规则跟上边烈士塔类似，而且很可能和频率或者条子关系不大，因为3S空挥前两刀一样可以稳 ...</blockquote>
+3sdd没试过，但4sd的最后一下是和1技能一样固定出硬的。有些粪招我都是直接打断的。
+

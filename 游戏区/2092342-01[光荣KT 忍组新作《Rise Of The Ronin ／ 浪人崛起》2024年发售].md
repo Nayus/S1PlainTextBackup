@@ -4750,3 +4750,52 @@ Skillup玩了4、5小时，最终印象是感觉像忍组仿照对马制作的�
 也是一男一女双主角，不知道在开放世界上谁会更好玩一些 ...</blockquote>
 忍组开放世界设计能摸到刺客信条3的边么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是期待战斗罢
 
+
+*****
+
+####  KENN  
+##### 1158#       发表于 2024-3-15 12:07
+
+仁批当时拿崛起踩卧龙动作系统
+哎，现在已经是【比卧龙好就行】<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ultraseven  
+##### 1159#       发表于 2024-3-15 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261160&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-15 11:42</a>
+
+老冤家本土销量双双褒姒是吧</blockquote>
+做了个表格。看起来确实就是两难兄难弟<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 龙信2就5万出头也可能
+
+<img src="https://img.saraba1st.com/forum/202403/15/120600fur6cgo4bkdrz3b6.png" referrerpolicy="no-referrer">
+
+<strong>COMG!.png</strong> (97.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-15 12:06 上传
+
+COMG点数预测还蛮准的，最近FF7RB发售前曲线也是不敌16，折算最后销量情况对比也差不多
+
+*****
+
+####  手铐君  
+##### 1160#       发表于 2024-3-15 12:08
+
+浪人的开放世界不抱期望，但是只要战斗系统做的足够好玩，敌人ai给力，大世界直接塞满据点战我也是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">武器换着来
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1161#       发表于 2024-3-15 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261442&amp;ptid=2092342" target="_blank">KENN 发表于 2024-3-15 12:07</a>
+仁批当时拿崛起踩卧龙动作系统
+哎，现在已经是【比卧龙好就行】 ...</blockquote>
+别急，光看几个pv不用上手，但凡有点脑子都知道卧龙战斗系统就是浪人的一部分而已<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

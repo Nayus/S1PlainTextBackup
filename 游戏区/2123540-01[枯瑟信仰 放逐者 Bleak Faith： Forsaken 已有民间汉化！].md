@@ -3213,3 +3213,14 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 我高中没及格，那个加点就知道一个力量</blockquote>
 巧了，要是日语我还行，英语我也是甚至可能更菜，所以放心玩吧，没有特别大的影响
 
+
+*****
+
+####  qappip  
+##### 262#         楼主| 发表于 2024-3-15 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255068&amp;ptid=2123540" target="_blank">彩虹肥宅 发表于 2024-3-14 20:04</a>
+
+我高中没及格，那个加点就知道一个力量</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我在首页机翻下大致玩法介绍和战士号最重要几个技能点，可以看看。
+

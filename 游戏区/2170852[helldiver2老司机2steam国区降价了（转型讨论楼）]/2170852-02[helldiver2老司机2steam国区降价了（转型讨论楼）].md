@@ -4053,3 +4053,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 因为磁暴线圈很好用啊，就是对萌新不太友好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  airshit  
+##### 1870#       发表于 2024-3-15 12:10
+
+真不爱打这逼虫子，难6开始那个刷怪强度打起来一点都不快乐
+

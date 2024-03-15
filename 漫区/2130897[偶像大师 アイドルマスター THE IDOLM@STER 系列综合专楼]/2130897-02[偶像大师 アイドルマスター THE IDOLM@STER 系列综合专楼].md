@@ -13096,3 +13096,20 @@ Crush，Anti，神パラサイト，狐憑き
 
 这里提供的示例歌单是我依据个人口味挑选出的曲目列表。诸位不满意也可以在全曲歌单基础上自行调整，我这里也会尽量整理其他版本的歌单。
 
+
+*****
+
+####  davchen  
+##### 2795#       发表于 2024-3-16 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64261586&amp;ptid=2130897" target="_blank">江口夕 发表于 2024-3-15 12:21</a>
+
+中游还是别了以前可能是中游，现在是冷门中的冷门，以前是以前现在是现在。b站几个kol都没看过本家
+
+—— ...</blockquote>
+SC出现以前国内搞个民mas only
+
+全场就没放过go my way
+
+来自AS姨姥太鼓玩家的吐槽
+

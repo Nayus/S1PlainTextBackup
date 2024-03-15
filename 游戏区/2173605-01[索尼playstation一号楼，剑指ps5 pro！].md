@@ -452,3 +452,14 @@ ps5的光追水平翻四倍能摸到rtx的脚后跟了吗
 ds体验最好是小机器人，不过这个不会上pc的
 其他可以试试瑞奇，还有死亡回归
 
+
+*****
+
+####  黑色的js  
+##### 231#       发表于 2024-3-15 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64264756&amp;ptid=2173605" target="_blank">Rowen233 发表于 2024-3-15 17:54</a>
+
+买了个PC版的神秘海域 但是感觉Dualsense的震动好少（有是有） 自适应板机也没啥感觉 PS5上是不是也这样[f: ...</blockquote>
+那毕竟是ps4游戏，索尼pc游戏里死亡回归（莱莱打枪）效果可以，但这游戏比较挑人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

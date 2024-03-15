@@ -1394,3 +1394,17 @@ fgo这白情嗑cp的传统是过不去了吗？果然某神秘saber就是鲁杰�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">奏章2再来什么重量级的卡都要不起勒
 
+
+*****
+
+####  xy1041  
+##### 11535#       发表于 2024-3-15 20:22
+
+奏章二这个标题挺有意思
+edo是井的发音代表废弃孔
+又是id（本我）的日语发音，可能和ae的ego是对应的概念（复仇的冲动出自本我？）
+同时这两个假名放一起看着像仆=我
+虽然应该是过度解读了不过挺有意思
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

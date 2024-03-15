@@ -4323,3 +4323,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 我昨天也遇到不能增援了，更骚的是隔一会会自动增援然后不消耗增援次数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 1895#       发表于 2024-3-15 20:23
+
+之前看贴吧说增援下不来是因为尸体没死透，系统认为你死了但又没完全死，去把尸体打死就能复活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

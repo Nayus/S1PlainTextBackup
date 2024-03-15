@@ -12823,3 +12823,32 @@ B站本家动画弹幕我见过有人解释p就是你自己，然后有人回说
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  江口夕  
+##### 2769#       发表于 2024-3-15 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262976&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-15 14:54</a>
+至少去年有个u149啊
+至少偶像大师挂在标题里的，看u149的人里面知道偶像大师的比例还是比看円香黑丝 ...</blockquote>
+然后刚想了解你ip的一看灰姑娘都要关门了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+看u149大部分就是看小学生去的，还一堆人喊无聊的，怎么说，这批人留存率有没有万分之一都不好说
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 2770#       发表于 2024-3-15 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263181&amp;ptid=2130897" target="_blank">江口夕 发表于 2024-3-15 15:17</a>
+然后刚想了解你ip的一看灰姑娘都要关门了。
+
+看u149大部分就是看小学生去的，还一堆人喊无聊的， ...</blockquote>
+至少知道偶像大师这个名字了，已经赢了好吧，不然还指望啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

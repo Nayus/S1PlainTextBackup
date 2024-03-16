@@ -4612,3 +4612,17 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 目前支援武器感觉只有电弧和aet两个玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eno_emos  
+##### 1925#       发表于 2024-3-16 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64271925&amp;ptid=2170852" target="_blank">zyrhxs 发表于 2024-3-16 14:53</a>
+
+我昨天完了一个晚上跳包加各种机枪打虫子，简直就是曼达洛人，飞到石头上占领制高点疯狂扫射，可 ...</blockquote>
+他有个“该表面是否能够落战略支援”的判定，常见的石头和山顶房顶都不行，会自动无限弹弹出来
+
+但是你可以带蛋盾然后让队友把战略支援仍你蛋盾上，自己人爬上去脱下蛋盾，强行落山顶
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

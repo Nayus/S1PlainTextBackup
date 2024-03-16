@@ -4858,3 +4858,18 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Launce  
+##### 1947#       发表于 2024-3-16 23:23
+
+ 本帖最后由 Launce 于 2024-3-16 23:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64275746&amp;ptid=2170852" target="_blank">novyDC 发表于 2024-3-16 23:18</a>
+
+感觉今天打虫子 毒爆比昨天多好多
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+带甲单位暗改回去了，坦克虫和泰坦都高概率出复数单位
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真实PVD（developer）游戏
+

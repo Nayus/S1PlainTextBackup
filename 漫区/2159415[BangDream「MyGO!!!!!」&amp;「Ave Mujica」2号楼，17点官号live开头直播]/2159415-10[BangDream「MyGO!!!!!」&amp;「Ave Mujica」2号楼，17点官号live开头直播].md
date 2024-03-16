@@ -10572,3 +10572,15 @@ mygo day2出来
 
 今年asl观星主题刚好符合鸡狗，怀疑第三天本来打算给PPP的，但是里美身体状况还不确定能不能上所以还没公布
 
+
+*****
+
+####  novalli  
+##### 14226#       发表于 2024-3-16 16:05
+
+好像楼里没放七周年的这两张图，发一下。
+<[img src="https://s21.ax1x.com/2024/03/16/pF239pV.jpg" referrerpolicy="no-referrer">
+<[img src="https://s21.ax1x.com/2024/03/16/pF23P6U.jpg" referrerpolicy="no-referrer">
+
+手游新卡就懒得收集了。本来就忘得七七八八了，卡面画的更认不出来了。
+

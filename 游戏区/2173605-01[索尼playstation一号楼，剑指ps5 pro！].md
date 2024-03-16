@@ -683,3 +683,22 @@ xgp游戏不支持ds的可以添加到steam库中识别，或者映射成xbox手
 
 听说33.5t是4070水平？
 
+
+*****
+
+####  贝恩德塔  
+##### 251#         楼主| 发表于 2024-3-16 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272237&amp;ptid=2173605" target="_blank">suzakushi 发表于 2024-3-16 15:43</a>
+
+现在PSN要去哪找新头像啊？打完P3看着自己的P5头像想换一下，翻商店半天好像只有游戏，现在还有新头像这东 ...</blockquote>
+ps5好像没有新头像的购买方式了，更换头像在这里
+
+<img src="https://img.saraba1st.com/forum/202403/16/160005bgr46ig44rcbbmdc.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1393.png</strong> (201.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 16:00 上传
+

@@ -4960,3 +4960,21 @@ https://tieba.baidu.co ...</blockquote>
 
 该空手挡子弹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑色的js  
+##### 1179#       发表于 2024-3-16 11:38
+
+空手石火就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人生短短几个秋  
+##### 1180#       发表于 2024-3-16 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64270323&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-16 11:05</a>
+
+怕不是滑翔翼小游戏高难度还安排了敌人在高处射你</blockquote>
+演示视频里有滑翔中使用远程武器击杀敌人的镜头啊,那么被远程敌人射击肯定也有
+

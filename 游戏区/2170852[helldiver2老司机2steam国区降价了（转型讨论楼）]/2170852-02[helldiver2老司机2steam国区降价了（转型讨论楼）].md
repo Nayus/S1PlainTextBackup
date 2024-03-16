@@ -4496,3 +4496,14 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
   -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
 有种说法是一代哑铃人机械飞升成二代机器人军团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1912#       发表于 2024-3-16 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269248&amp;ptid=2170852" target="_blank">n.dante 发表于 2024-03-16 05:47:37</a>
+我比较好奇为什么多数HD2相关讨论每天都和虫子玩命，却绝口不提生化人。我觉得虫子属于是穿什么带什么都能 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">机器高难野排大概率纯虐，开黑为什么不玩娱乐度和难度适中的高难虫子，上班已经很累了，下班不是来被奇奇怪怪流弹秒着玩的
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

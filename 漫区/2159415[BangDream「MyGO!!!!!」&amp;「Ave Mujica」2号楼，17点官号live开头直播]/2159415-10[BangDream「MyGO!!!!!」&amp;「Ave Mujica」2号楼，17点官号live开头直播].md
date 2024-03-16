@@ -10319,3 +10319,16 @@ https://bestdori.com/info/songs/590/non-breath
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  NODY  
+##### 14206#       发表于 2024-3-16 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269264&amp;ptid=2159415" target="_blank">novalli 发表于 2024-3-16 06:29</a>
+
+总感觉新的全体主唱图里ksm和灯要么贴贴（如七周年视觉图），要么就都是最前面的位置（如七周年贺图）。
+
+是 ...</blockquote>
+你看上面的贺图，真白也是刚实装就C位或者在ksm旁边，推新团是这样的
+

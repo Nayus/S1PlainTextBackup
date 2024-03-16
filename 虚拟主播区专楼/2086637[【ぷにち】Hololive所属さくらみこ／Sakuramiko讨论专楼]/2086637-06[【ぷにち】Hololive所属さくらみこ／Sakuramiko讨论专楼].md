@@ -2273,3 +2273,46 @@ MV来了
 
 staff撒……
 
+
+*****
+
+####  holoan  
+##### 8392#         楼主| 发表于 2024-3-16 09:58
+
+<img src="https://img.saraba1st.com/forum/202403/16/095821vf1ecifwnbwcwksd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 09:58 上传
+
+
+*****
+
+####  rs5621  
+##### 8393#       发表于 2024-3-16 10:01
+
+<img src="https://img.saraba1st.com/forum/202403/16/100118knvk0ho802wmggtq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 10:01 上传
+
+*****
+
+####  rs5621  
+##### 8394#       发表于 2024-3-16 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269920&amp;ptid=2086637" target="_blank">holoan 发表于 2024-3-16 09:58</a></blockquote>
+这也是粘土人么
+
+*****
+
+####  holoan  
+##### 8395#         楼主| 发表于 2024-3-16 10:03
+
+是另一家玩具厂出的小玩具，之前出过第一弹了
+

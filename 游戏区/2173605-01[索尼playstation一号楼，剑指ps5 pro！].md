@@ -588,3 +588,15 @@ xgp游戏不支持ds的可以添加到steam库中识别，或者映射成xbox手
 预计会支持，说个插曲，昨天程序老总发邮件提到索尼非常担心技术信息泄露，要求我们不能和xbox平台团队谈 ...</blockquote>
 索尼也觉得萨拉阿姨是接班人了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ohi.02  
+##### 244#       发表于 2024-3-16 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269863&amp;ptid=2173605" target="_blank">ultraseven 发表于 2024-3-16 09:48</a>
+有点搞了所以现在ABK和Xbox本部还不是完全信息互通？P3不属于硬件团队，是不是他就能知道 ...</blockquote>
+互通个鬼，微软的IT信不过我们的IT，现在我们办公电脑都不能登录新的微软邮箱，需要用浏览器打开private窗口，远程桌面到他们提供的虚拟机上才能登录邮箱，同时虚拟机只提供outlook，其他功能和网站都不能访问。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

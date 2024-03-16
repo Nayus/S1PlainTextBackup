@@ -528,3 +528,13 @@ PS5现在很尬，一个是性能太落后了，一个是游戏内容绝大部�
 
 —— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Slyvan  
+##### 51#       发表于 2024-3-16 11:29
+
+等出来再看看实际效果吧...
+
+话说PS5 Pro还是用AMD芯片吧,  PSSR 要是比FSR 牛逼, 能不能教教AMD怎么做啊 , 好让PC用户也享受享受啊
+

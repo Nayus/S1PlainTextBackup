@@ -4674,3 +4674,21 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 但是你可 ...</blockquote>
 他这判定就很迷，撤离点的很多平坦石头就可以黏住，可能专门放置的吧
 
+
+*****
+
+####  Shu-Stella  
+##### 1929#       发表于 2024-3-16 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272560&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-16 17:37</a>
+
+正义这数值和建模绷不住了</blockquote>
+我觉得这还挺好看的，蛮喜欢这种粗旷的造型。
+
+*****
+
+####  Shu-Stella  
+##### 1930#       发表于 2024-3-16 17:27
+
+CEO昨晚推特上发他们在招武器设计师了，我还去底下投了一个，虽然只是玩玩。
+

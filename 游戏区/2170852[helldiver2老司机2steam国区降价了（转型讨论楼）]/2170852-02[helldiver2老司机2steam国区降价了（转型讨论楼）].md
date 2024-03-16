@@ -4524,3 +4524,20 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 机器人需要针对性配装十分固定，打起来没个意思，虫子玩法多样点
 
+
+*****
+
+####  ykyin09  
+##### 1915#       发表于 2024-3-16 12:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野排n7机器人是我的极限了，再往上毫无游戏体验来自: iPhone客户端
+
+*****
+
+####  novyMS  
+##### 1916#       发表于 2024-3-16 12:54
+
+对面机械神教 你一个大头兵怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

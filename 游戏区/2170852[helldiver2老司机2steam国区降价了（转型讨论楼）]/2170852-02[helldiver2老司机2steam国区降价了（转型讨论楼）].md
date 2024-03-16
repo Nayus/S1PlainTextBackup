@@ -4569,3 +4569,22 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zyrhxs  
+##### 1920#       发表于 2024-3-16 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269042&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-3-16 02:05</a>
+最近变成了筒子＋重机枪支架信徒
+重机枪支架比想象中的要好用很多很多，体感每颗子弹的伤害都有重炮手级别 ...</blockquote>
+我昨天完了一个晚上跳包加各种机枪打虫子，简直就是曼达洛人<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 1921#       发表于 2024-3-16 14:56
+
+盟友应该挪到主武器而不是支援，再带重机枪和机枪架，清小虫子简直无敌<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -463,3 +463,16 @@ ds体验最好是小机器人，不过这个不会上pc的
 买了个PC版的神秘海域 但是感觉Dualsense的震动好少（有是有） 自适应板机也没啥感觉 PS5上是不是也这样[f: ...</blockquote>
 那毕竟是ps4游戏，索尼pc游戏里死亡回归（莱莱打枪）效果可以，但这游戏比较挑人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 232#       发表于 2024-3-16 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263993&amp;ptid=2173605" target="_blank">gofbayrf 发表于 2024-3-15 16:35</a>
+
+33算力 比自己都提升不多 升級了個寂莫
+
+7700XT 比6700XT就提升一點點</blockquote>
+PS5 Pro应该是介于7700XT和7800XT之间吧。和PS5对应的应该是6700，提升还是蛮大的
+

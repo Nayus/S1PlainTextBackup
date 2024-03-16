@@ -178,3 +178,14 @@ google出来的还是1月1日那个1.4.53</blockquote>
 
 卸了重新装就有了，幸亏装的不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oskneo  
+##### 204#       发表于 2024-3-16 08:10
+
+求推个适合虚拟机里用的。偶的主力机是vsphere里直通了显卡的，不过无法开嵌套虚拟，里面没vt。
+周末装了个夜神，装了tachiyomij2k后发现插件都没了，要自己装。其他插件还好，kisslove装后开不了机。但现在看漫画主要用kisslove
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

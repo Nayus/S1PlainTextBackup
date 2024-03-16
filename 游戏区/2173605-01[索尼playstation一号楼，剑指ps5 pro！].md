@@ -484,3 +484,11 @@ PS5 Pro应该是介于7700XT和7800XT之间吧。和PS5对应的应该是6700，
 
 话说xgp的EA客户端支持Dualsense吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 234#       发表于 2024-3-16 08:44
+
+Tom Henderson说泄露的这份是真的
+

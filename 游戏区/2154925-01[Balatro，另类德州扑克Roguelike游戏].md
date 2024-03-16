@@ -6009,3 +6009,15 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 红蜡封让这张牌生效了两次，因此钢铁和男爵各自触发了两次</blockquote>
 理解了，谢谢解答！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a4ac7  
+##### 526#       发表于 2024-3-16 13:49
+
+<img src="https://p.sda1.dev/16/d9e82d5b0713ec2dc79070449a691d60/CMP_20240316134829237.png" referrerpolicy="no-referrer">
+
+永恒小丑挑战，最后boss是要卖小丑的，同花卡组差点破防了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

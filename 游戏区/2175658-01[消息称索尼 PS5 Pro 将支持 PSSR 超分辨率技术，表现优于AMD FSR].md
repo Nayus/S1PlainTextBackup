@@ -621,3 +621,23 @@ ps4到ps5，有像育碧这种给少量游戏更新60帧但是不提升画质分
 
 这些技术指标能不能解决游戏画面忽明忽暗的问题？我好像玩了好多ps5游戏都是这现象，时间久真的伤眼
 
+
+*****
+
+####  CyborgIP  
+##### 58#       发表于 2024-3-16 15:06
+
+ps5的处境比ps4好多了吧？多亏了老黄不当人，ps5再怎么样也能和4060打打(我自己就是4060itx卡)。2017年的ps4已经被1060碾压两倍性能了，cpu更是烂到流汤
+
+*****
+
+####  Rowen233  
+##### 59#       发表于 2024-3-16 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64270344&amp;ptid=2175658" target="_blank">vviosonia 发表于 2024-3-16 11:10</a>
+
+索尼的商业成绩跟我这种狗不如，十年都没收到一张优惠券的老用户，似乎没什么关系……
+
+独占有中意的也就 ...</blockquote>
+问题是巨硬这代销量和上代比基本没显著提升 说明绝大部分玩家哪怕索尼摆了也不想去Xbox<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

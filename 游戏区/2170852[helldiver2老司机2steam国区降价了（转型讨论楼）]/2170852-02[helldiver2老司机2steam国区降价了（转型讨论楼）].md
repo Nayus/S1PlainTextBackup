@@ -4588,3 +4588,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 盟友应该挪到主武器而不是支援，再带重机枪和机枪架，清小虫子简直无敌<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shu-Stella  
+##### 1922#       发表于 2024-3-16 15:03
+
+这通行证是真不如只塞皮肤什么的进去，不然真的鸡肋。
+

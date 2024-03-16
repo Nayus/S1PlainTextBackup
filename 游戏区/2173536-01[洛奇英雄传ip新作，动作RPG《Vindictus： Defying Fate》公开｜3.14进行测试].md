@@ -1103,3 +1103,28 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 — from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  Disturbia  
+##### 107#       发表于 2024-3-17 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269979&amp;ptid=2173536" target="_blank">绚烂航迹云 发表于 2024-3-16 10:06</a>
+
+哦是的是的，换键盘就摁出盾反了
+
+仔细看了操作说明，盾反有写，键盘是QDD，手柄LBYY，手柄盾反被技能组合 ...</blockquote>
+你可以看我楼上说的 手柄你LB防住之后要松开再YY就行了 但是键盘反而要Q防住之后按住Q再右键
+
+*****
+
+####  Disturbia  
+##### 108#       发表于 2024-3-17 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64270272&amp;ptid=2173536" target="_blank">CrayS1 发表于 2024-3-16 10:56</a>
+
+试了下确实，这样大饼的手感好多了。
+
+红狼的红光我感觉是设计失误， 正式版估计会改。现在前摇太小了， ...</blockquote>
+其实这就是二阶段治贪刀的，本来小红只要不出红光至少都能蹭套ssdd的，有了这招甚至会二连红光之后就只能求稳打sd了。酋长倒是招数之间的间隔本来就比较短会让人放弃多蹭刀了。
+

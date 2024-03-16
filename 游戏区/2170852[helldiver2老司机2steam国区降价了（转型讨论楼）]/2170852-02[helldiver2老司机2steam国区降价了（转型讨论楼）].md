@@ -4786,3 +4786,21 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 另外电喷和激光手枪也太抽象了，贴脸连喷近10枪+追击打屁股两个过热弹匣打不死一只追踪虫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 1940#       发表于 2024-3-16 22:25
+
+机器人里那些拿加特林大盾的和无畏机甲怎么打，一次出来几个，一次性火箭筒轰上去纹丝不动，无畏背后倒是能看到弱点但这弹幕去绕背开玩笑吗
+
+*****
+
+####  Launce  
+##### 1941#       发表于 2024-3-16 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64275355&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-3-16 22:25</a>
+
+机器人里那些拿加特林大盾的和无畏机甲怎么打，一次出来几个，一次性火箭筒轰上去纹丝不动，无畏背后倒是能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">幽默矢脑的意思就是让你顶着那弹幕去绕后或者飞鹰空袭，雌鬼没削还能打
+

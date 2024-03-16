@@ -13130,3 +13130,12 @@ SC出现以前国内搞个民mas only
 <img src="https://p.sda1.dev/16/ffdc53c276e397a59937ef9738407274/1000002394.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/c6e536301ad2aa2b8c3da89d577e4d11/1000002393.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 2798#       发表于 2024-3-16 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64271837&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-16 14:34</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">偶像没得街演就制作人下来发传单是吧
+

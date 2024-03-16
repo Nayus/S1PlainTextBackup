@@ -4549,3 +4549,23 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 服务器是不是又炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开关加速器都匹配不到了
 
+
+*****
+
+####  BadYanL  
+##### 1918#       发表于 2024-3-16 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64262573&amp;ptid=2170852" target="_blank">Hqchan 发表于 2024-3-15 14:20</a>
+
+所以这游戏什么时候打折，错过了首发，感觉原价入有点前不着村后不着店 ...</blockquote>
+短时间应该不会打折吧，看到舅舅说一个月卖了800万份以上。
+
+*****
+
+####  风萧飒  
+##### 1919#       发表于 2024-3-16 14:41
+
+这销量稳千万以上了，真离谱啊，我发售前感觉热度会不错但没想到这么高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

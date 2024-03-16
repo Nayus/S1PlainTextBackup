@@ -4833,3 +4833,11 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  smdzh2  
+##### 1944#       发表于 2024-3-16 22:47
+
+发现一个细节，背着护卫犬激光开机甲时，长柄镰会挂在机甲顶上<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

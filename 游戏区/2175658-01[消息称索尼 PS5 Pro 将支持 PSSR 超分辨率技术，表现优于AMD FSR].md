@@ -671,3 +671,16 @@ ps5的处境比ps4好多了吧？多亏了老黄不当人，ps5再怎么样也�
 
 没有数毛结果一律CJB
 
+
+*****
+
+####  vviosonia  
+##### 63#       发表于 2024-3-16 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272030&amp;ptid=2175658" target="_blank">Rowen233 发表于 2024-3-16 15:07</a>
+问题是巨硬这代销量和上代比基本没显著提升 说明绝大部分玩家哪怕索尼摆了也不想去Xbox ...</blockquote>
+一边是不报主机销量只报西瓜皮，一边是报主机销量不报三档会员
+两家都是一个池子里的乌龟王八
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

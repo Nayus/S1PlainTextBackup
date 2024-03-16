@@ -10793,3 +10793,16 @@ ob子这个签名怎么还有个兔子
 
 要不是玛莎死了我下周就能集齐mygo了，烦人
 
+
+*****
+
+####  NODY  
+##### 14241#       发表于 2024-3-17 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64275483&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-3-16 22:43</a>
+
+ob子这个签名怎么还有个兔子
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+兔子是高尾的签名，这个签名版是cv签名+角色签名都有
+

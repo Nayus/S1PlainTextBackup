@@ -2223,3 +2223,37 @@ MV来了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 8388#         楼主| 发表于 2024-3-16 09:39
+
+一年后，先睡了
+
+*****
+
+####  holoan  
+##### 8389#         楼主| 发表于 2024-3-16 09:41
+
+<img src="https://img.saraba1st.com/forum/202403/16/094138j0pojo02en0ypexs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 09:41 上传
+
+*****
+
+####  holoan  
+##### 8390#         楼主| 发表于 2024-3-16 09:44
+
+<img src="https://img.saraba1st.com/forum/202403/16/094441p7x23z65yt7przpv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (391.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 09:44 上传
+

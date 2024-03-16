@@ -3857,3 +3857,42 @@ HTHL/VTHL如果不能运用已有机场就是笑话，用已有机场的话，�
 
 估计是对猛禽V3技术状态有信心（我记得单发推力已经到250吨了？）
 
+
+*****
+
+####  longmarch5  
+##### 499#       发表于 2024-3-16 09:40
+
+ 本帖最后由 longmarch5 于 2024-3-16 09:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269764&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-16 09:31</a>
+
+老马的愿景——未来的星舰V3状态将会达到起飞推力10000吨，全回收运力200吨，全消耗运力400吨的水平。
+
+ ...</blockquote>
+V3是单发269吨，V4估计单发过300吨
+
+再说一个绿帽坛笑话：马老板技术不行，造不出大推力发动机，只能这么多台并联
+
+*****
+
+####  四号舰美浓  
+##### 500#       发表于 2024-3-16 09:41
+
+<img src="https://img.saraba1st.com/forum/202403/16/094035rsritr1reyz8cgt1.jpg" referrerpolicy="no-referrer">
+
+<strong>1710553192265.jpg</strong> (178.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 09:40 上传
+
+<img src="https://img.saraba1st.com/forum/202403/16/094036h3p4jfqu3c3gcc4u.jpg" referrerpolicy="no-referrer">
+
+<strong>1710553196552.jpg</strong> (218.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 09:40 上传
+
+游客在博卡奇卡沙滩上捡到的完整的隔热瓦。
+

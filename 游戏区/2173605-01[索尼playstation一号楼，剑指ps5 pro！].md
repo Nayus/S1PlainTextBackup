@@ -536,3 +536,34 @@ Tom Henderson说泄露的这份是真的</blockquote>
 33Flops也挺吓人的了，不知道第三方体验会不会好点，几年前我的确想不到ps5第三方居然这个逼样 ...</blockquote>
 隔壁软软高了2TFlop好像也没好到哪里去啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甚至很多游戏优化还不如PS5
 
+
+*****
+
+####  贝恩德塔  
+##### 239#         楼主| 发表于 2024-3-16 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269468&amp;ptid=2173605" target="_blank">Rowen233 发表于 2024-3-16 08:22</a>
+
+话说xgp的EA客户端支持Dualsense吗</blockquote>
+xgp游戏不支持ds的可以添加到steam库中识别，或者映射成xbox手柄信号
+
+*****
+
+####  Rowen233  
+##### 240#       发表于 2024-3-16 09:37
+
+我个人其实比起分辨率 更希望1080p60帧下提供更高精细度的贴图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1080p显示器在正常游玩距离下除非特意去找像素点否则基本可以忽略
+
+
+*****
+
+####  ohi.02  
+##### 241#       发表于 2024-3-16 09:42
+
+ 本帖最后由 ohi.02 于 2024-3-16 09:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269604&amp;ptid=2173605" target="_blank">ultraseven 发表于 2024-3-16 08:55</a>
+嗯。其实就是那个67 TFLOPS的数字一开始看有点吓人，其余的其实和Tom Henderson去年的爆料是一致的。</blockquote>
+预计会支持，说个插曲，昨天程序老总发邮件提到索尼非常担心技术信息泄露，要求我们不能和xbox平台团队谈论新主机的任何信息，特别点名Sarah Bond <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

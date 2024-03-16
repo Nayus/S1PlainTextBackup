@@ -5100,3 +5100,11 @@ ps5在日本已经变成⚪和apex启动器了，免费+氪金读博，日本人
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  shimotsuki14  
+##### 1192#       发表于 2024-3-16 19:47
+
+不愁，这次抽到了网友送的盘，是好是坏都没负担<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

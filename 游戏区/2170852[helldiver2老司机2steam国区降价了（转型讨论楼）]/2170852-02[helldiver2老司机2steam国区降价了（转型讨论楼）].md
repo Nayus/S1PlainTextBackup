@@ -4776,3 +4776,13 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平衡大师又暗调了？连续6把这巡逻队和重甲数不对劲
 
+
+*****
+
+####  FLZB  
+##### 1939#       发表于 2024-3-16 21:54
+
+刷怪绝逼偷偷改回去了。
+
+另外电喷和激光手枪也太抽象了，贴脸连喷近10枪+追击打屁股两个过热弹匣打不死一只追踪虫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

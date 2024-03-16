@@ -700,3 +700,13 @@ ps5的处境比ps4好多了吧？多亏了老黄不当人，ps5再怎么样也�
 
 感觉不如弄一个超廉价版，叫ps4.5，卖两千块，能够60帧玩ps4游戏宣传一下
 
+
+*****
+
+####  gofbayrf  
+##### 66#       发表于 2024-3-16 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64273101&amp;ptid=2175658" target="_blank">沧兰殇 发表于 2024-3-16 17:54</a>
+感觉不如弄一个超廉价版，叫ps4.5，卖两千块，能够60帧玩ps4游戏宣传一下</blockquote>
+你要的不就是XSS
+

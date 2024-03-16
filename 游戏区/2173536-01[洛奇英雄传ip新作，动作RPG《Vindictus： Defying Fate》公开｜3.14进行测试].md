@@ -1091,3 +1091,15 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 看着比星刃靠谱
 
+
+*****
+
+####  zayrq  
+##### 106#       发表于 2024-3-16 21:25
+
+ 本帖最后由 zayrq 于 2024-3-16 21:30 编辑 
+
+难受，没伊菲可以用。纯靠翻滚过的boss，快通关才发现可以盾娘可以盾反<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

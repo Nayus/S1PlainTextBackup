@@ -10543,3 +10543,13 @@ mygo day2出来
 
 2024-3-16 12:58 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 14223#       发表于 2024-3-16 13:12
+
+以后游戏里进了RiNG就把面具带上，排练也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

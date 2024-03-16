@@ -744,3 +744,13 @@ ps5好像没有新头像的购买方式了，更换头像在这里
 听说33.5t是4070水平？</blockquote>
 RDNA3浮点虚高
 
+
+*****
+
+####  tamatama  
+##### 256#       发表于 2024-3-17 04:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272400&amp;ptid=2173605" target="_blank">贝恩德塔 发表于 2024-3-16 16:12</a>
+略高于4070吧</blockquote>
+先得过了35T的7700xt，才能到4070…
+

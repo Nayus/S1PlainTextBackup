@@ -492,3 +492,29 @@ PS5 Pro应该是介于7700XT和7800XT之间吧。和PS5对应的应该是6700，
 
 Tom Henderson说泄露的这份是真的
 
+
+*****
+
+####  ultraseven  
+##### 235#       发表于 2024-3-16 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269556&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-3-16 08:44</a>
+
+Tom Henderson说泄露的这份是真的</blockquote>
+嗯。其实就是那个67 TFLOPS的数字一开始看有点吓人，其余的其实和Tom Henderson去年的爆料是一致的。
+ <blockquote>Devkits have been available to first-party studios since September 2023, third-party since January 2024</blockquote>
+
+不知道微软有没有<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">今年的COD总应该支持PS5 Pro吧
+
+
+*****
+
+####  csolfans  
+##### 236#       发表于 2024-3-16 09:01
+
+<blockquote>ultraseven 发表于 2024-3-16 08:55
+嗯。其实就是那个67 TFLOPS的数字一开始看有点吓人，其余的其实和Tom Henderson去年的爆料是一致的。
+
+</blockquote>
+嘛。67Tflops是FP16算的，换成FP32只有33Flops
+

@@ -1068,3 +1068,18 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  CrayS1  
+##### 104#       发表于 2024-3-16 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64263601&amp;ptid=2173536" target="_blank">Disturbia 发表于 2024-3-15 16:01</a>
+
+我自己用手柄试了试 手柄你得LB防住之后松开LB再按Y触发反击 而键鼠是要Q挡住之后还按住Q再右键才 ...</blockquote>
+试了下确实，这样大饼的手感好多了。
+
+红狼的红光我感觉是设计失误， 正式版估计会改。现在前摇太小了，到后面一格血，只能不贪刀看清技能再打。
+
+相比来说地精酋长的红光技能就合理的多。
+

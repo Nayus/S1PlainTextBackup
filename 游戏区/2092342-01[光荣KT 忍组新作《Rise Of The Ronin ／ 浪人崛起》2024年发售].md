@@ -4912,3 +4912,22 @@ https://tieba.baidu.co ...</blockquote>
 
 日推有参加今天店铺试玩的人说技能树里有滑翔翼石火和空手石火
 
+
+*****
+
+####  格林卡罗尔  
+##### 1174#       发表于 2024-3-16 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64270156&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-16 10:37</a>
+日推有参加今天店铺试玩的人说技能树里有滑翔翼石火和空手石火</blockquote>
+滑翔翼石火什么东西，我还能空战？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桥洞底下盖小被  
+##### 1175#       发表于 2024-3-16 10:56
+
+空手石火，这河狸吗
+

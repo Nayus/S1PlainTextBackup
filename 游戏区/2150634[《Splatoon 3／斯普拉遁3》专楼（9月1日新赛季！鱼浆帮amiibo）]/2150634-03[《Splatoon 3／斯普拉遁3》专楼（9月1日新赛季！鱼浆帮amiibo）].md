@@ -6435,3 +6435,24 @@ X赛一群傻逼，根本不管鱼在哪瞎几把冲，还不如玩开放，我�
 
 2024-3-16 01:15 上传
 
+
+*****
+
+####  罗克萨斯  
+##### 3629#       发表于 2024-3-16 17:53
+
+4K追杀前排，这是研究所想要看到的景象么？
+
+【气垫切狙现状：没让4K大人使出全力真抱歉-哔哩哔哩】 https://b23.tv/l0Ki3UM
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  秋月孝三  
+##### 3630#       发表于 2024-3-16 17:55
+
+致敬下个月关服的喷1罢了，总得让1代老嘿有个新家吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

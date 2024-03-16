@@ -476,3 +476,11 @@ ds体验最好是小机器人，不过这个不会上pc的
 7700XT 比6700XT就提升一點點</blockquote>
 PS5 Pro应该是介于7700XT和7800XT之间吧。和PS5对应的应该是6700，提升还是蛮大的
 
+
+*****
+
+####  Rowen233  
+##### 233#       发表于 2024-3-16 08:22
+
+话说xgp的EA客户端支持Dualsense吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4894,3 +4894,13 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  风萧飒  
+##### 1950#       发表于 2024-3-17 00:04
+
+感觉只要我带焦土，那这把就绝对不会刷黄胖和绿胖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

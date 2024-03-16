@@ -4904,3 +4904,28 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 1951#       发表于 2024-3-17 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64276057&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-17 00:04</a>
+
+感觉只要我带焦土，那这把就绝对不会刷黄胖和绿胖
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">换下思路，离子喷
+
+
+*****
+
+####  风萧飒  
+##### 1952#       发表于 2024-3-17 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64276149&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-17 00:15</a>
+换下思路，离子喷</blockquote>
+那不是更蠢了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，本来带焦土就是为了打精英怪的，不然就换鸟喷或者镰刀了。什么时候能在驱逐舰看到这次任务的刷怪模板啊，那样就可以根据任务选主武器了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

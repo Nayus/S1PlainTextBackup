@@ -5080,3 +5080,13 @@ ps5在日本已经变成⚪和apex启动器了，免费+氪金读博，日本人
 
 甚至难以想象如果哪天任也转型氪金手游的时候，日本市场就真亡了
 
+
+*****
+
+####  寂长无星夜  
+##### 1190#       发表于 2024-3-16 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64271009&amp;ptid=2092342" target="_blank">sad6504 发表于 2024-3-16 12:36</a>
+去贴吧冲了下浪，幕末双女主相爱相杀我好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">想捏女主可是之前传有恋爱内容，有点犹豫
+

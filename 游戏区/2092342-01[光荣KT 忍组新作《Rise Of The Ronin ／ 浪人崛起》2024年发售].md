@@ -4931,3 +4931,24 @@ https://tieba.baidu.co ...</blockquote>
 
 空手石火，这河狸吗
 
+
+*****
+
+####  Gigax  
+##### 1176#       发表于 2024-3-16 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64270269&amp;ptid=2092342" target="_blank">格林卡罗尔 发表于 2024-3-16 10:55</a>
+
+滑翔翼石火什么东西，我还能空战？
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v ...</blockquote>
+不到啊，推文是这么写的，很难想象是什么效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gigax  
+##### 1177#       发表于 2024-3-16 11:05
+
+怕不是滑翔翼小游戏高难度还安排了敌人在高处射你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

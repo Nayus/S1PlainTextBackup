@@ -567,3 +567,24 @@ xgp游戏不支持ds的可以添加到steam库中识别，或者映射成xbox手
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ultraseven  
+##### 242#       发表于 2024-3-16 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269834&amp;ptid=2173605" target="_blank">ohi.02 发表于 2024-3-16 09:42</a>
+
+支持的，说个插曲，昨天程序老总发邮件提到索尼非常担心技术信息泄露，要求我们不能和xbox主机团队谈论新 ...</blockquote>
+有点搞了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">所以现在ABK和Xbox本部还不是完全信息互通？P3不属于硬件团队，是不是他就能知道
+
+*****
+
+####  Rowen233  
+##### 243#       发表于 2024-3-16 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269834&amp;ptid=2173605" target="_blank">ohi.02 发表于 2024-3-16 09:42</a>
+
+预计会支持，说个插曲，昨天程序老总发邮件提到索尼非常担心技术信息泄露，要求我们不能和xbox平台团队谈 ...</blockquote>
+索尼也觉得萨拉阿姨是接班人了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

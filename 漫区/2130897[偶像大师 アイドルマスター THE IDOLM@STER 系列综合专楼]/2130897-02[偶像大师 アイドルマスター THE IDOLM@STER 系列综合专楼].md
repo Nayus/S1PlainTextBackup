@@ -13139,3 +13139,13 @@ SC出现以前国内搞个民mas only
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64271837&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-16 14:34</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">偶像没得街演就制作人下来发传单是吧
 
+
+*****
+
+####  江口夕  
+##### 2799#       发表于 2024-3-16 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">製作人而已，又不是代孫老闆
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

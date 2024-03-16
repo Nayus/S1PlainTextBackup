@@ -641,3 +641,16 @@ ps5的处境比ps4好多了吧？多亏了老黄不当人，ps5再怎么样也�
 独占有中意的也就 ...</blockquote>
 问题是巨硬这代销量和上代比基本没显著提升 说明绝大部分玩家哪怕索尼摆了也不想去Xbox<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  D-JoeII  
+##### 60#       发表于 2024-3-16 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272030&amp;ptid=2175658" target="_blank">Rowen233 发表于 2024-3-16 15:07</a>
+
+问题是巨硬这代销量和上代比基本没显著提升 说明绝大部分玩家哪怕索尼摆了也不想去Xbox ...</blockquote>
+因為PS5和PS4銷量軌跡也差不多
+
+所以為什麼很多人說幾世代下來家用機總量也就差不多數字沒增加過
+

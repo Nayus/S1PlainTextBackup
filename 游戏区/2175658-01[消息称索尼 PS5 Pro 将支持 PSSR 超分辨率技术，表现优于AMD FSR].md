@@ -512,3 +512,19 @@ PS5现在很尬，一个是性能太落后了，一个是游戏内容绝大部�
 
 怪不得要宣传一边喝红酒一边玩ps 这样就可以用最强的处理器人脑来帮助美化画面了
 
+
+*****
+
+####  vviosonia  
+##### 50#       发表于 2024-3-16 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64267135&amp;ptid=2175658" target="_blank">ナルバレック 发表于 2024-3-15 21:44</a>
+这世代PS5算大坑这种说法很离谱吧，只能说东亚口味的游戏缺乏吧，商业成绩和性价比都完爆掉当年PS3了啊 ...</blockquote>
+索尼的商业成绩跟我这种狗不如，十年都没收到一张优惠券的老用户，似乎没什么关系……
+独占有中意的也就捏着鼻子忍了，全平台游戏还语言锁区，价格又高
+-这时候肯定会有索粉说巨硬低价是钻漏洞，但照这理论海淘也是犯罪咯……
+
+何况巨硬商店不少游戏pc也能用
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -702,3 +702,27 @@ ps5好像没有新头像的购买方式了，更换头像在这里
 
 2024-3-16 16:00 上传
 
+
+*****
+
+####  贝恩德塔  
+##### 252#         楼主| 发表于 2024-3-16 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272237&amp;ptid=2173605" target="_blank">suzakushi 发表于 2024-3-16 15:43</a>
+
+现在PSN要去哪找新头像啊？打完P3看着自己的P5头像想换一下，翻商店半天好像只有游戏，现在还有新头像这东 ...</blockquote>
+[https://www.bilibili.com/read/mobile?id=27051815](https://www.bilibili.com/read/mobile?id=27051815)
+
+这是第三方更改虚拟头像的方法
+
+
+*****
+
+####  贝恩德塔  
+##### 253#         楼主| 发表于 2024-3-16 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272288&amp;ptid=2173605" target="_blank">再买自检星剁手 发表于 2024-3-16 15:51</a>
+
+听说33.5t是4070水平？</blockquote>
+略高于4070吧
+

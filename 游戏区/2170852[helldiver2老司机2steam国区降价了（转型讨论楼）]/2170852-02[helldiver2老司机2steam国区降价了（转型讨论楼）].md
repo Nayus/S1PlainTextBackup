@@ -4841,3 +4841,20 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 发现一个细节，背着护卫犬激光开机甲时，长柄镰会挂在机甲顶上<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1945#       发表于 2024-3-16 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿电喷单跑了几把还行，就是不能处理胆汁虫比较抽象
+
+*****
+
+####  novyDC  
+##### 1946#       发表于 2024-3-16 23:18
+
+感觉今天打虫子 毒爆比昨天多好多
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

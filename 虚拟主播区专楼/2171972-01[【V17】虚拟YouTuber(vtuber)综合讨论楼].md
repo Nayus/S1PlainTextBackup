@@ -2367,3 +2367,14 @@ VTA成员去向不透明这点真的是坏文明
 
 草，感谢情报，开播见真章了属于是，虽然这个平台我从没看过（啊不就当年搞虚拟蛊毒的那个……）
 
+
+*****
+
+####  格林卡罗尔  
+##### 100#       发表于 2024-3-16 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64268643&amp;ptid=2171972" target="_blank">高等黑暗 发表于 2024-3-16 00:32</a>
+
+ＳＴＧＲ第一恶女回归了可还行，而且还是在fan太刚刚确立新恋爱路线的第二天强势宣布回归 ...</blockquote>
+说的是空舞月りり吗，BMC的创建者怎么是个恶女
+

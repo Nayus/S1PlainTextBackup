@@ -4768,3 +4768,11 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 —— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 他开仅好友的话好像steam好友也进不去
 
+
+*****
+
+####  Launce  
+##### 1938#       发表于 2024-3-16 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平衡大师又暗调了？连续6把这巡逻队和重甲数不对劲
+

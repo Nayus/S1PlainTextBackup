@@ -518,3 +518,21 @@ Tom Henderson说泄露的这份是真的</blockquote>
 </blockquote>
 嘛。67Tflops是FP16算的，换成FP32只有33Flops
 
+
+*****
+
+####  贝恩德塔  
+##### 237#         楼主| 发表于 2024-3-16 09:32
+
+33Flops也挺吓人的了，不知道第三方体验会不会好点，几年前我的确想不到ps5第三方居然这个逼样
+
+*****
+
+####  Rowen233  
+##### 238#       发表于 2024-3-16 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269775&amp;ptid=2173605" target="_blank">贝恩德塔 发表于 2024-3-16 09:32</a>
+
+33Flops也挺吓人的了，不知道第三方体验会不会好点，几年前我的确想不到ps5第三方居然这个逼样 ...</blockquote>
+隔壁软软高了2TFlop好像也没好到哪里去啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甚至很多游戏优化还不如PS5
+

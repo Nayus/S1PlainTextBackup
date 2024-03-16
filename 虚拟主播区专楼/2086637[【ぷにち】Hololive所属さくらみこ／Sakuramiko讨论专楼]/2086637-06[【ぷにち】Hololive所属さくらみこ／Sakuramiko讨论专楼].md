@@ -2378,3 +2378,17 @@ staff撒……
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64270319&amp;ptid=2086637" target="_blank">rs5621 发表于 2024-3-16 11:04</a></blockquote>
 等会1点多有现场采访，直播
 
+
+*****
+
+####  holoan  
+##### 8401#         楼主| 发表于 2024-3-16 13:39
+
+<img src="https://img.saraba1st.com/forum/202403/16/133920xpzau4p385d8244h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 13:39 上传
+

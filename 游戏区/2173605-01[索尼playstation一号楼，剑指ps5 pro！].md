@@ -621,3 +621,39 @@ xgp游戏不支持ds的可以添加到steam库中识别，或者映射成xbox手
 
 这么严格的吗
 
+
+*****
+
+####  Fuero  
+##### 247#       发表于 2024-3-16 13:40
+
+【传闻】消息人士 Tom Henderson 今日继续爆料 PS5 Pro 的规格，他表示**频道 Moore's Law is Dead 放出的泄露文件是真的，泄露文档来自 PlayStation 开发者门户，文档已于本周发送给更广泛的第三方开发者。并且他进一步透露 PS5 Pro 的发售日期暂定为 2024 年底。
+
+在2023年初，他透露 PS5 Pro 的代号为“Trinity”，目标是在 4K 分辨率下实现改善且稳定的帧数、针对 8K 分辨率的新“性能模式”以及加速光线追踪，主机拥有30 WGP和18000mts内存。
+
+今天的泄露文件也证实了：
+
+· PS5 Pro 渲染速度比 PS5 快 45%
+
+· 2-3倍的光线追踪（某些情况下为4倍）
+
+· 33.5 Teraflops
+
+· PSSR（PlayStation Spectral Super Resolution Upscaling）倍线/抗锯齿解决方案
+
+· 未来的 SDK 版本计划支持最高 8K 的分辨率
+
+· 定制的机器学习架构
+
+· AI加速器，支持300 TOPS 8位计算/67 TFLOPS 16位浮点
+
+附Tom Henderson此前准确爆料过的索尼硬件：
+
+· PS5 DualSense Edge手柄
+
+· Sony Inzone 品牌显示器与耳机
+
+· 可拆卸光驱版 PS5 Slim 型号主机
+
+· PS5 无线耳塞与新款无线耳机
+

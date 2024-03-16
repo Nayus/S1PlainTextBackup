@@ -4604,3 +4604,11 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 一觉醒来发现已经推到虫族家门口了，阿拉奇好兄弟不来救一下终结族吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  变老的大二  
+##### 1924#       发表于 2024-3-16 15:54
+
+目前支援武器感觉只有电弧和aet两个玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

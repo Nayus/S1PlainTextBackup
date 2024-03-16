@@ -10332,3 +10332,18 @@ https://bestdori.com/info/songs/590/non-breath
 是 ...</blockquote>
 你看上面的贺图，真白也是刚实装就C位或者在ksm旁边，推新团是这样的
 
+
+*****
+
+####  rslika  
+##### 14207#       发表于 2024-3-16 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这种时候都要戴着面具吗
+
+*****
+
+####  PDQ4  
+##### 14208#       发表于 2024-3-16 12:03
+
+发表会开始了，来的是ob子和Doloris<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

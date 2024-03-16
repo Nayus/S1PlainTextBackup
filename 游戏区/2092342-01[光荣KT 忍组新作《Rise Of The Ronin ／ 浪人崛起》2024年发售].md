@@ -4978,3 +4978,18 @@ https://tieba.baidu.co ...</blockquote>
 怕不是滑翔翼小游戏高难度还安排了敌人在高处射你</blockquote>
 演示视频里有滑翔中使用远程武器击杀敌人的镜头啊,那么被远程敌人射击肯定也有
 
+
+*****
+
+####  格林达姆  
+##### 1181#       发表于 2024-3-16 11:57
+
+ 本帖最后由 格林达姆 于 2024-3-16 11:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64268605&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-16 00:27</a>
+阳间得不敢相信是忍者组做出来的场景，索尼在这块截点图不比现在宣传效果好
+
+https://tieba.baidu.co ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看第二张图的树和石头，各种颜色和边缘糊一起
+这场景感觉看久了眼睛还是要累死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+仁王卧龙里不阴间的场景也不少，但是不加个锐化滤镜还是辣眼睛
+

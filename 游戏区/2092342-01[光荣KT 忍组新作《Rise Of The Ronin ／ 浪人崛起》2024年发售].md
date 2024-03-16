@@ -5001,3 +5001,54 @@ https://tieba.baidu.co ...</blockquote>
 
 今天有线下试玩，看看能端出什么
 
+
+*****
+
+####  葵  
+##### 1183#       发表于 2024-3-16 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64268605&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-16 00:27</a>
+
+阳间得不敢相信是忍者组做出来的场景，索尼在这块截点图不比现在宣传效果好
+
+https://tieba.baidu.co ...</blockquote>
+卧槽，看来这次索尼真的是给了点技术支援了，忍组祖传画质都能飞升了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yeelolo  
+##### 1184#       发表于 2024-3-16 12:36
+
+忍组这么阳间我突然不习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sad6504  
+##### 1185#       发表于 2024-3-16 12:36
+
+<img src="https://img.saraba1st.com/forum/202403/16/123601q2zt3ltifvylzinb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-16-12-32-22-051_com.baidu.tieba-edit.jpg</strong> (224.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-16 12:36 上传
+
+去贴吧冲了下浪，幕末双女主相爱相杀我好了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hosino  
+##### 1186#       发表于 2024-3-16 12:38
+
+大阪线下试玩都没什么人，要暴死了吗
+
+*****
+
+####  hosino  
+##### 1187#       发表于 2024-3-16 12:38
+
+大阪线下试玩都没什么人，要暴死了吗
+

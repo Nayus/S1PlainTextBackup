@@ -10431,3 +10431,35 @@ mygo day2出来
 
 老团没一个塞第三天的吗，这下过气老团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 14216#       发表于 2024-3-16 12:27
+
+<img src="https://img.saraba1st.com/forum/202403/16/122743vda5ga5ag0d56akd.png" referrerpolicy="no-referrer">
+
+<strong>J@[V7@E]{DC{1TZPO0}W24U.png</strong> (58.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 12:27 上传
+
+<img src="https://img.saraba1st.com/forum/202403/16/122748d8t6s6liochtcl6o.png" referrerpolicy="no-referrer">
+
+<strong>G77P~2FG[0ID3CK@MU225SY.png</strong> (30.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 12:27 上传
+
+*****
+
+####  傘木希美  
+##### 14217#       发表于 2024-3-16 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64270923&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-3-16 12:27</a></blockquote>
+又想起大鼓/李子/高尾那次，大鼻老师每次做这个动作都笑场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

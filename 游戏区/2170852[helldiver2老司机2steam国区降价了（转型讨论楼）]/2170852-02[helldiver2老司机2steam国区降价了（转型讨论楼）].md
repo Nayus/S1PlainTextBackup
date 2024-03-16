@@ -4723,3 +4723,14 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 1934#       发表于 2024-3-16 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272942&amp;ptid=2170852" target="_blank">Shu-Stella 发表于 2024-3-16 17:32</a>
+
+试过扔撤离平民任务里的居民楼楼顶，巨大一片平地但是就是黏不住。</blockquote>
+屋顶基本都扔不上去，就是防玩家在上面卡怪，不过还是防不了黏盾这种邪道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

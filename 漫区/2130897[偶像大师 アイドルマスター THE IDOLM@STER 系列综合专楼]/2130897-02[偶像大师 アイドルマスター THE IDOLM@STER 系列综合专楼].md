@@ -13196,3 +13196,21 @@ SC出现以前国内搞个民mas only
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过于老害的歌单，不过不老害也不会看就是了
 
+
+*****
+
+####  田所あずさ  
+##### 2805#       发表于 2024-3-16 18:02
+
+ 本帖最后由 田所あずさ 于 2024-3-16 18:03 编辑 
+
+哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">First Step<strong>
+</strong>
+
+*****
+
+####  Vacuolar  
+##### 2806#       发表于 2024-3-16 18:05
+
+这首歌真的泪目
+

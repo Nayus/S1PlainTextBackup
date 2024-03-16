@@ -4873,3 +4873,24 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 带甲单位暗改回去了，坦克虫和泰坦都高概率出复数单位
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真实PVD（developer）游戏
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 1948#       发表于 2024-3-16 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64274324&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-16 20:35</a>
+
+他开仅好友的话好像steam好友也进不去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">有的好友能进 有的不行 非常的神秘
+
+*****
+
+####  novyDC  
+##### 1949#       发表于 2024-3-16 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64275788&amp;ptid=2170852" target="_blank">Launce 发表于 2024-03-16 23:23:56</a>
+真实PVD（developer）游戏</blockquote>开机甲都打不完 难顶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

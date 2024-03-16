@@ -10347,3 +10347,49 @@ https://bestdori.com/info/songs/590/non-breath
 
 发表会开始了，来的是ob子和Doloris<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14209#       发表于 2024-3-16 12:11
+
+anisama ave首日
+
+<img src="https://img.saraba1st.com/forum/202403/16/121116wtnnnq2zbytl40th.png" referrerpolicy="no-referrer">
+
+<strong>アニサマ2024開催発表会 20-0 screenshot.png</strong> (293.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 12:11 上传
+
+<img src="https://img.saraba1st.com/forum/202403/16/121125ibooblxx2cocdoxn.png" referrerpolicy="no-referrer">
+
+<strong>アニサマ2024開催発表会 20-14 screenshot.png</strong> (273.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 12:11 上传
+
+*****
+
+####  PDQ4  
+##### 14210#       发表于 2024-3-16 12:13
+
+鸡首日，初祥节目上也在卖<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 14211#       发表于 2024-3-16 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/16/121338zc4zb4fp4oc3brzu.png" referrerpolicy="no-referrer">
+
+<strong>アニサマ2024開催発表会 22-20 screenshot.png</strong> (172.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 12:13 上传
+

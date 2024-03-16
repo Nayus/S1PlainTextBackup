@@ -6021,3 +6021,11 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  夜_乌鸦  
+##### 527#       发表于 2024-3-17 00:40
+
+有些牌是要高难度才解锁的嘛？刚打过几次普通难度是要慢慢往上加难度了是吗
+

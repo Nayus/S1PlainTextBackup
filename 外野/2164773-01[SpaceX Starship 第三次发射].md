@@ -3932,3 +3932,21 @@ V3是单发269吨，V4估计单发过300吨
 
 日本网友的创作。
 
+
+*****
+
+####  =w=  
+##### 504#       发表于 2024-3-17 00:38
+
+ 本帖最后由 =w= 于 2024-3-17 00:40 编辑 
+
+对直播时的爵士背景音乐实在是念念不忘，搜了一下已经有整理好了的：
+
+[https://www.youtube.com/watch?v=iltYisFUzXE](https://www.youtube.com/watch?v=iltYisFUzXE)
+
+[https://open.**.com/playlist/1Oinf7GvPZoUk0ONadmRZA](https://open.**.com/playlist/1Oinf7GvPZoUk0ONadmRZA)
+
+边听着音乐边看着这东西在飞实在好浪漫<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+（被干掉的单词是spot ify<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">）
+

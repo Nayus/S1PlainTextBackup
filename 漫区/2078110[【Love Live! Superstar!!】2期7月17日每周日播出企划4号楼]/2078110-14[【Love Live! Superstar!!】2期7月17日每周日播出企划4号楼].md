@@ -969,3 +969,13 @@ k组来国内吧<img src="https://static.saraba1st.com/image/smiley/face2017/030
 
 <img src="https://p.sda1.dev/16/2b9db08e7131afbacf0b8f453eaa6f50/GIwiGTLa0AAHJdy.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19807#       发表于 2024-3-16 21:05
+
+不知道pay惹谁了，推上被发杀害预告，似乎还是个US人
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

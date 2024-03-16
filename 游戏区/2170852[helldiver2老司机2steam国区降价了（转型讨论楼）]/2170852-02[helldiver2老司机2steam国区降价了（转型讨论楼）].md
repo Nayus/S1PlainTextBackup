@@ -4755,3 +4755,16 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 —— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  xinfengj  
+##### 1937#       发表于 2024-3-16 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64273337&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-16 18:33</a>
+
+为什么我游戏内认不了蒸汽的好友
+
+—— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+他开仅好友的话好像steam好友也进不去
+

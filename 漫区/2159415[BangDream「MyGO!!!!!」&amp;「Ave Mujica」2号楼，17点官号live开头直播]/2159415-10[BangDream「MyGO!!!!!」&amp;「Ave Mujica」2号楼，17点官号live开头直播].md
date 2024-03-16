@@ -10650,3 +10650,11 @@ mygo day2出来
  换回私服前不允许跨团合照，这也是世界观</blockquote>
 香煎<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14229#       发表于 2024-3-16 20:31
+
+还有半小时7周年直播（）
+

@@ -684,3 +684,11 @@ ps5的处境比ps4好多了吧？多亏了老黄不当人，ps5再怎么样也�
 
 —— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  minysun  
+##### 64#       发表于 2024-3-16 17:05
+
+在有过SSSSSD的营销先例后，谨慎对待PSSR实际表现，建议预期放到光追之外持平DLSS3.0
+

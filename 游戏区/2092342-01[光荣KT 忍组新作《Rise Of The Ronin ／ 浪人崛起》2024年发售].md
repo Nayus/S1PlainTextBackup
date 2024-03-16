@@ -5090,3 +5090,13 @@ ps5在日本已经变成⚪和apex启动器了，免费+氪金读博，日本人
 去贴吧冲了下浪，幕末双女主相爱相杀我好了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">想捏女主可是之前传有恋爱内容，有点犹豫
 
+
+*****
+
+####  rainsheep  
+##### 1191#       发表于 2024-3-16 17:02
+
+双女主的话，配音有几种声线？这次好像有少量台词吧
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -189,3 +189,13 @@ google出来的还是1月1日那个1.4.53</blockquote>
 
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  亚瑟邓特  
+##### 205#       发表于 2024-3-17 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269075&amp;ptid=2167901" target="_blank">亚瑟邓特 发表于 2024-3-16 02:22</a>
+卸了重新装就有了，幸亏装的不多</blockquote>
+今天打开又没了，还要重新覆盖安装一遍才显示，啥情况啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

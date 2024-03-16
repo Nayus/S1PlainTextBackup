@@ -13149,3 +13149,11 @@ SC出现以前国内搞个民mas only
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  rgauss  
+##### 2800#       发表于 2024-3-16 16:49
+
+<img src="https://p.sda1.dev/16/284d3f6d8183650543dcdeeee941851b/1000002395.jpg" referrerpolicy="no-referrer"> 等身立牌还行
+

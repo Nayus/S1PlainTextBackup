@@ -10584,3 +10584,59 @@ mygo day2出来
 
 手游新卡就懒得收集了。本来就忘得七七八八了，卡面画的更认不出来了。
 
+
+*****
+
+####  NODY  
+##### 14227#       发表于 2024-3-16 16:48
+
+换回私服前不允许跨团合照，这也是世界观<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/16/164709y42ojhin2xclbj8i.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024_0316_164424.png</strong> (111.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 16:47 上传
+
+<img src="https://img.saraba1st.com/forum/202403/16/164716ed9bzd2g229r5ddd.jpg" referrerpolicy="no-referrer">
+
+<strong>GIxy78paQAAqOeX_format=jpg&amp;amp;name=large.jpg</strong> (523.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 16:47 上传
+
+<img src="https://img.saraba1st.com/forum/202403/16/164725ynzd797eg79x79zh.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024_0316_164504.png</strong> (130.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 16:47 上传
+
+<img src="https://img.saraba1st.com/forum/202403/16/164731g74ad4bt2arso2th.jpg" referrerpolicy="no-referrer">
+
+<strong>GIxzW57aMAA5y_A_format=jpg&amp;amp;name=large.jpg</strong> (438.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 16:47 上传
+
+<img src="https://img.saraba1st.com/forum/202403/16/164738y5eexwex66e155ol.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024_0316_164556.png</strong> (146.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 16:47 上传
+
+<img src="https://img.saraba1st.com/forum/202403/16/164751vqsikwoejlkbhhwi.jpg" referrerpolicy="no-referrer">
+
+<strong>GIxznNKbwAAS5lU_format=jpg&amp;amp;name=large.jpg</strong> (544.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 16:47 上传
+

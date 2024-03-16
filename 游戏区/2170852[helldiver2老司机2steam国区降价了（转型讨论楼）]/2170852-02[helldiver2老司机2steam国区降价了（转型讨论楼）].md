@@ -4642,3 +4642,35 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正义这数值和建模绷不住了
 
+
+*****
+
+####  BadYanL  
+##### 1927#       发表于 2024-3-16 16:44
+
+箭头CEO开始预告光能者了
+
+<img src="https://img.saraba1st.com/forum/202403/16/164307bmv5xommvyfnh54v.png" referrerpolicy="no-referrer">
+
+<strong>image_2024-03-16_164305217.png</strong> (6.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 16:43 上传
+
+源头是一些玩家在任务中看到蓝色的镭射，还有人被打中暴毙。
+
+虽然这游戏没新内容roadmap什么的，不过这样在游戏内玩惊喜也蛮不错的。
+
+
+*****
+
+####  zyrhxs  
+##### 1928#       发表于 2024-3-16 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272451&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-16 16:21</a>
+他有个“该表面是否能够落战略支援”的判定，常见的石头和山顶房顶都不行，会自动无限弹弹出来
+
+但是你可 ...</blockquote>
+他这判定就很迷，撤离点的很多平坦石头就可以黏住，可能专门放置的吧
+

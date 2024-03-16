@@ -4692,3 +4692,34 @@ N7农药厂，带电弧EAT蛋盾特斯拉塔单通了。特斯拉塔守一路，
 
 CEO昨晚推特上发他们在招武器设计师了，我还去底下投了一个，虽然只是玩玩。
 
+
+*****
+
+####  FLZB  
+##### 1931#       发表于 2024-3-16 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272663&amp;ptid=2170852" target="_blank">zyrhxs 发表于 2024-3-16 16:52</a>
+
+他这判定就很迷，撤离点的很多平坦石头就可以黏住，可能专门放置的吧</blockquote>
+目测是用navmesh来判定的，平地面高度AI能正常走上去的地方都能放
+
+
+*****
+
+####  Shu-Stella  
+##### 1932#       发表于 2024-3-16 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272927&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-16 18:30</a>
+
+目测是用navmesh来判定的，平地面高度AI能正常走上去的地方都能放</blockquote>
+试过扔撤离平民任务里的居民楼楼顶，巨大一片平地但是就是黏不住。
+
+*****
+
+####  风萧飒  
+##### 1933#       发表于 2024-3-16 17:33
+
+b站之前有人把正义改出来用了，只能说这弹药和伤害都得加一下才行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

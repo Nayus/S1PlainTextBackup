@@ -4804,3 +4804,32 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 机器人里那些拿加特林大盾的和无畏机甲怎么打，一次出来几个，一次性火箭筒轰上去纹丝不动，无畏背后倒是能 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">幽默矢脑的意思就是让你顶着那弹幕去绕后或者飞鹰空袭，雌鬼没削还能打
 
+
+*****
+
+####  FLZB  
+##### 1942#       发表于 2024-3-16 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64275355&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-3-16 22:25</a>
+
+机器人里那些拿加特林大盾的和无畏机甲怎么打，一次出来几个，一次性火箭筒轰上去纹丝不动，无畏背后倒是能 ...</blockquote>
+机枪盾牌哥属于蹂躏者系列，全系都是头部弱点，SMG和镰刀可以两枪爆头秒杀。巨型者机甲也差不多，正面弱点是中间发光红点，机炮、反器材步枪、激光大炮、雌鬼枪、筒子都能正面击杀。
+
+
+*****
+
+####  novyDC  
+##### 1943#       发表于 2024-3-16 22:41
+
+这机甲还挺好玩的
+
+<img src="https://img.saraba1st.com/forum/202403/16/224110flays6jmjbljz9lt.jpg" referrerpolicy="no-referrer">
+
+<strong>-3850e4119f551dfc.jpg</strong> (213.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-16 22:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

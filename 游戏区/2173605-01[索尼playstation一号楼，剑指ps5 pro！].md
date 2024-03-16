@@ -600,3 +600,16 @@ xgp游戏不支持ds的可以添加到steam库中识别，或者映射成xbox手
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ultraseven  
+##### 245#       发表于 2024-3-16 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269911&amp;ptid=2173605" target="_blank">ohi.02 发表于 2024-3-16 09:56</a>
+
+互通个鬼，微软的IT信不过我们的IT，现在我们办公电脑都不能登录新的微软邮箱，需要用浏览器打开private ...</blockquote>
+是被黑客搞怕了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">微软最近不是刚被俄罗斯黑客攻击过。
+
+那你们和本部一样有免费XGPU福利吗？
+

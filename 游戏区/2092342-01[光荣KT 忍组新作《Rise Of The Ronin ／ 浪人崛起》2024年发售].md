@@ -5108,3 +5108,14 @@ ps5在日本已经变成⚪和apex启动器了，免费+氪金读博，日本人
 
 不愁，这次抽到了网友送的盘，是好是坏都没负担<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日日日日日野  
+##### 1193#       发表于 2024-3-16 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64271046&amp;ptid=2092342" target="_blank">ナルバレック 发表于 2024-3-16 12:41</a>
+
+今年目前的PS软件销量还比疫情最初两年好点呢，PSV死后PS系在本土销量就是这鬼样子了，日本游戏市场从18年 ...</blockquote>
+科乐美再加个实况力量棒球吧，有手游有主机，今年还是系列30周年
+

@@ -2213,3 +2213,13 @@ MV来了
 
 再贩了
 
+
+*****
+
+####  rs5621  
+##### 8387#       发表于 2024-3-16 09:15
+
+新黏土人！啊泡冲啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

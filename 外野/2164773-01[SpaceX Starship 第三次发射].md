@@ -3896,3 +3896,12 @@ V3是单发269吨，V4估计单发过300吨
 
 游客在博卡奇卡沙滩上捡到的完整的隔热瓦。
 
+
+*****
+
+####  灼眼的川川仔  
+##### 501#       发表于 2024-3-16 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269826&amp;ptid=2164773" target="_blank"> longmarch5 发表于 2024-3-16 09:40</a>  本帖最后由 longmarch5 于 2024-3-16 09:42 编辑  引用:四号舰美浓 发表于 2024-3-16 09:31 老马的愿景——未来的星舰V3状态将会达到起飞推力10000吨，全回收运力200吨，全消耗运力400吨的水平。   ... V3是单发269吨，V4估计单发过300吨 再说一个绿帽坛笑话：马老板技术不行，造不出大推力发动机，只能这么多台并联  </blockquote>
+一般人对猛禽的大小没有概念。一个很简单的对比，土五的一级箭径比超重大，但推力只有超重的一半，是F1推力不够大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

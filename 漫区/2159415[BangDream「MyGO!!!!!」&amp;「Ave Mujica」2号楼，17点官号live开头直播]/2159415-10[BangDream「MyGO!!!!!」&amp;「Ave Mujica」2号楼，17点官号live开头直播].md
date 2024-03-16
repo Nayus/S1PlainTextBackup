@@ -10640,3 +10640,13 @@ mygo day2出来
 
 2024-3-16 16:47 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 14228#       发表于 2024-3-16 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64272635&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-16 16:48</a>
+ 换回私服前不允许跨团合照，这也是世界观</blockquote>
+香煎<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

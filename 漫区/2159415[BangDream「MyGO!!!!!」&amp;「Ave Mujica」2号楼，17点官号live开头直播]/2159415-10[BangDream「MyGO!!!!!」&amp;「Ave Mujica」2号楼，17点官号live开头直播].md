@@ -11201,3 +11201,17 @@ QQ图片20240317193951.jpg
 2024年3月17日夜晚佐佐木李子与电波恶魔对战全程实录（删除黑屏部分）
 [https://www.bilibili.com/video/BV1zm411o7ik](https://www.bilibili.com/video/BV1zm411o7ik)
 
+
+*****
+
+####  6030sylar  
+##### 14281#       发表于 2024-3-17 23:07
+
+<img src="https://img.saraba1st.com/forum/202403/17/230729ovugvh22higmmvcu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 23:07 上传
+

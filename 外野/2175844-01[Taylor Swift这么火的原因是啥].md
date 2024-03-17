@@ -517,3 +517,42 @@ gaga现在转型做演员了 adele也很少出来
 第一次知道她的时候还是看10年那届的格莱美，那时在国内名气最大的LADY GAGA几乎颗粒无收，她这个在国内几 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不丑吧，早期在国内出圈是那个加了条呆毛的saber类似照片吧
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 54#       发表于 2024-3-17 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278698&amp;ptid=2175844" target="_blank">太极八爪鱼 发表于 2024-3-17 12:54</a>
+不丑吧，早期在国内出圈是那个加了条呆毛的saber类似照片吧</blockquote>
+那都已经是几年后了，相比之下格莱美上的造型确实显丑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FishTail  
+##### 55#       发表于 2024-3-17 13:05
+
+white girl music赛道领头羊
+
+
+*****
+
+####  gammatau  
+##### 56#       发表于 2024-3-17 13:11
+
+毕竟lady gaga有点太整活了
+
+*****
+
+####  今天不守尸  
+##### 57#       发表于 2024-3-17 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278680&amp;ptid=2175844" target="_blank">JOHNCHCHAN 发表于 2024-3-17 12:51</a>
+
+我承认，我是跟风狗，格莱美也是跟风看看，平时没怎么关注欧美乐坛 ...</blockquote>
+她今年都快35了吧
+
+这么说吧，我见过不少她粉丝吹她盛世美颜的，但从没见过吹她逆生长越长越漂亮的
+
+莫非阁下是阿姨控？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

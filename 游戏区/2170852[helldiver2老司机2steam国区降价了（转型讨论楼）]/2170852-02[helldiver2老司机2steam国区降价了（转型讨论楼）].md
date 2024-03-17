@@ -5155,3 +5155,16 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Mr.Hopp  
+##### 1975#       发表于 2024-3-17 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64281539&amp;ptid=2170852" target="_blank">novyDC 发表于 2024-3-17 18:56</a>
+
+机甲榴弹打坦克虫要4发？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+打头能一发吧，不过头的范围很玄学。。。打前腿一发破甲两发带走。
+

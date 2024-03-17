@@ -4961,3 +4961,14 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 花钱买新债券还要肝，诶。
 
+
+*****
+
+####  xinfengj  
+##### 1957#       发表于 2024-3-17 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64277251&amp;ptid=2170852" target="_blank">lazycat233 发表于 2024-3-17 09:24</a>
+
+昨晚打了一把n7虫子，带了个定位混淆。不知道是不是bug，无限刷的坦克，感觉一局光我就杀了20多只。小怪也 ...</blockquote>
+体感带定位混淆之后刷怪频次没啥感觉，刷怪强度嘎嘎的涨，牛和泰坦不要钱一样的刷
+

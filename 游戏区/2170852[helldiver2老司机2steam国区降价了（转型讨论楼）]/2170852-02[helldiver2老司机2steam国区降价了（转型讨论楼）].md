@@ -4953,3 +4953,11 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 虫子加强也正常，机甲对虫子压制力太强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 1956#       发表于 2024-3-17 10:19
+
+花钱买新债券还要肝，诶。
+

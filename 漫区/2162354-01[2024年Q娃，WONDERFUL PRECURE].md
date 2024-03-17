@@ -1215,3 +1215,25 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 最后也没解释小麦为什么不能用指挥棒 一般这种剧情都是因为心态有问题 但小麦本身就是因为不能用心态才崩的 ...</blockquote>
 按这集感觉就是心态不对，玩指挥棒时小麦的心态已经不是初变身时的心态了所以指挥棒没反应，然后之后因为就反过来又因为这个原因心态崩了，这集一回归初心就自动下载说明书成功了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 1196#       发表于 2024-3-17 12:02
+
+<blockquote>pokemon最爱 发表于 2024-3-17 11:35
+按这集感觉就是心态不对，玩指挥棒时小麦的心态已经不是初变身时的心态了所以指挥棒没反应，然后之后因为 ...</blockquote>
+上集还能说心态不对 但在召唤出指挥棒那集小麦就用不了了 召唤和使用还得是两种心态吗
+
+
+*****
+
+####  modedd  
+##### 1197#       发表于 2024-3-17 12:05
+
+ 本帖最后由 modedd 于 2024-3-17 12:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278311&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-3-17 12:02</a>
+
+上集还能说心态不对 但在召唤出指挥棒那集小麦就用不了了 召唤和使用还得是两种心态吗 ...</blockquote>
+其实就是先射了上集吵架回的箭再画的上上集的靶子吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

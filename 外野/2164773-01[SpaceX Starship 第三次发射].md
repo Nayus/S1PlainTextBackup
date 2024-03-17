@@ -4040,3 +4040,16 @@ https://www.youtube.com/watch?v=il ...</blockquote>
 
 用谷歌去搜应该比较简单能找到，有空我找一找
 
+
+*****
+
+####  madbird023  
+##### 512#       发表于 2024-3-17 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64283096&amp;ptid=2164773" target="_blank">=w= 发表于 2024-3-17 21:30</a>
+
+其实你看上传人的评论回复就知道他也是直接复制粘贴的，可能不是原曲名
+
+14:10 那首其实是 Caribbean Cru ...</blockquote>
+好的多谢，其实我最喜欢油-管的前两首
+

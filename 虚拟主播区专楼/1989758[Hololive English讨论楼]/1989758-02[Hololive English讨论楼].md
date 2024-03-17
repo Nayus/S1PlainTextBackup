@@ -144,3 +144,13 @@ AMEFOOT<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" ref
 
 白嫖同人作者劳动力是吧
 
+
+*****
+
+####  karastar  
+##### 1950#       发表于 2024-3-17 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64280014&amp;ptid=1989758" target="_blank">midearth 发表于 2024-3-17 15:46</a>
+白嫖同人作者劳动力是吧</blockquote>
+同人作者还白嫖holo品牌宣传呢
+

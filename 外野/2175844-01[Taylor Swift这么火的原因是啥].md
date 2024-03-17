@@ -556,3 +556,31 @@ white girl music赛道领头羊
 
 莫非阁下是阿姨控？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡辺梨加  
+##### 58#       发表于 2024-3-17 13:15
+
+人美歌甜气质骚
+主要是别的白人女歌手太拉胯了
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  飞霞精灵  
+##### 59#       发表于 2024-3-17 13:16
+
+能火到国内这样本质还是国内一些人需要有个精神信仰。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是谁不重要，重要的是得有个人搁那。
+
+
+*****
+
+####  猫不萌  
+##### 60#       发表于 2024-3-17 13:21
+
+18年听lady gaga的那张专辑真的是刮目相看，Taylor我是有点听腻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

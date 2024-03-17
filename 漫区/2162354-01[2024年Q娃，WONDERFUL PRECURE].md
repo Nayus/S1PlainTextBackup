@@ -1237,3 +1237,22 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 上集还能说心态不对 但在召唤出指挥棒那集小麦就用不了了 召唤和使用还得是两种心态吗 ...</blockquote>
 其实就是先射了上集吵架回的箭再画的上上集的靶子吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1198#       发表于 2024-3-17 13:18
+
+打戏，指两个人被狮子暴打，如打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小麦这集其实套个护主进去不就完了，狗为了保护主人克服本能恐惧勇敢的跟猛兽搏斗，多么令人感动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这猫也太咸了，真变人怕是整天给mayu上强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  放哨的狼  
+##### 1199#       发表于 2024-3-17 13:23
+
+变身后叫本名，算是钦定了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -1432,3 +1432,18 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 所以说，小麦之前为什么用不了指挥棒。不会真是万代的问题吧(</blockquote>
 没装电池/指挥棒电池仓绝缘的塑料片没抽出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bilibilius  
+##### 1209#       发表于 2024-3-17 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64279312&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-3-17 14:13</a>
+
+商业角度来说7月吧，法Q2是深夜档，大友老观众才会看，先放法Q2可以吸引这部分老观众去看新剧场版
+
+反过来1 ...</blockquote>
+这个反过来说也行得通的。作为8年前的作品，只要在新剧场版出场就足够吸引受众去看了。通过新剧场版的出场还可以吸引更多未看过法Q的大友去关注法Q2，是很好的宣传手段。
+
+而且去年成人光美3月公布，10月开播，鉴于到现在还没有法Q2的新情报，时间上10月的可能性高些。
+

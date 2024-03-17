@@ -736,3 +736,15 @@ love story时期就红遍大江南北了。多少人看着霉霉从乡村小妹�
 
 麦当娜，懒妮，霉，有需求自然就有这么个生态位
 
+
+*****
+
+####  戴里克·伯格  
+##### 78#       发表于 2024-3-17 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278113&amp;ptid=2175844" target="_blank">dffgf 发表于 2024-3-17 11:35</a>
+不是突然吧，蔡10这个称号感觉用了都快20年了</blockquote>
+但是最神奇的是蔡依林是gay带头黑的吧？什么地才蓝，国外台湾都是gay传出来的梗
+
+不太好说是黑着黑着黑出感情了，更像是营销到位
+

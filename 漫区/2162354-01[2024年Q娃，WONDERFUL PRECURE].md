@@ -1256,3 +1256,113 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 变身后叫本名，算是钦定了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1198#       发表于 2024-3-17 13:18
+
+打戏，指两个人被狮子暴打，如打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小麦这集其实套个护主进去不就完了，狗为了保护主人克服本能恐惧勇敢的跟猛兽搏斗，多么令人感动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这猫也太咸了，真变人怕是整天给mayu上强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  放哨的狼  
+##### 1199#       发表于 2024-3-17 13:23
+
+变身后叫本名，算是钦定了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 1200#       发表于 2024-3-17 13:25
+
+这次剧场版是不是公布太早了吧 一般秋剧场版宣传都是从7月份开始的来着 现在就宣布一股想转移矛盾的样子 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+唯一能确认的9月隐藏追加必须要入队了
+
+
+*****
+
+####  猫屋敷ゆき  
+##### 1201#       发表于 2024-3-17 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278887&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-3-17 13:18</a>
+
+打戏，指两个人被狮子暴打，如打
+
+小麦这集其实套个护主进去不就完了，狗为了保护主人克服本能恐惧勇 ...</blockquote>
+喵~<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉儿alice  
+##### 1200#       发表于 2024-3-17 13:25
+
+这次剧场版是不是公布太早了吧 一般秋剧场版宣传都是从7月份开始的来着 现在就宣布一股想转移矛盾的样子 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+唯一能确认的9月隐藏追加必须要入队了
+
+
+*****
+
+####  猫屋敷ゆき  
+##### 1201#       发表于 2024-3-17 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278887&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-3-17 13:18</a>
+
+打戏，指两个人被狮子暴打，如打
+
+小麦这集其实套个护主进去不就完了，狗为了保护主人克服本能恐惧勇 ...</blockquote>
+喵~<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉儿alice  
+##### 1200#       发表于 2024-3-17 13:25
+
+这次剧场版是不是公布太早了吧 一般秋剧场版宣传都是从7月份开始的来着 现在就宣布一股想转移矛盾的样子 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+唯一能确认的9月隐藏追加必须要入队了
+
+
+*****
+
+####  猫屋敷ゆき  
+##### 1201#       发表于 2024-3-17 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278887&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-3-17 13:18</a>
+
+打戏，指两个人被狮子暴打，如打
+
+小麦这集其实套个护主进去不就完了，狗为了保护主人克服本能恐惧勇 ...</blockquote>
+喵~<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉儿alice  
+##### 1200#       发表于 2024-3-17 13:25
+
+这次剧场版是不是公布太早了吧 一般秋剧场版宣传都是从7月份开始的来着 现在就宣布一股想转移矛盾的样子 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+唯一能确认的9月隐藏追加必须要入队了
+
+
+*****
+
+####  猫屋敷ゆき  
+##### 1201#       发表于 2024-3-17 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278887&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-3-17 13:18</a>
+
+打戏，指两个人被狮子暴打，如打
+
+小麦这集其实套个护主进去不就完了，狗为了保护主人克服本能恐惧勇 ...</blockquote>
+喵~<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
+

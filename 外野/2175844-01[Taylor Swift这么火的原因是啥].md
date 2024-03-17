@@ -780,3 +780,37 @@ love story时期就红遍大江南北了。多少人看着霉霉从乡村小妹�
 
 长得像川谱
 
+
+*****
+
+####  テロメア  
+##### 83#       发表于 2024-3-17 18:49
+
+说点不PC的，就是能打的白人太少了。JB和Billie，那上升速度，其他肤色的少年天才怎么比。
+
+好巧不巧这些人都会无意间发表“种族歧视”言论，并且完全不会塌房<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HeartArsonist  
+##### 84#       发表于 2024-3-17 18:51
+
+我觉得霉霉长得像**
+
+—— 来自 HUAWEI LIO-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  jockeyjoestar  
+##### 85#       发表于 2024-3-17 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 霉霉可以说是唱片公司的命根子 上次damon albarn讽刺霉霉的包装  直接被唱片公司老板要求闭嘴了  （我是kanye/gorillaz粉丝 算是黑转路吧）
+
+*****
+
+####  oyss  
+##### 86#       发表于 2024-3-17 18:57
+
+不要太怀疑这行业第一的，必然是各项素质顶尖，否则你就是是在怀疑全人类
+

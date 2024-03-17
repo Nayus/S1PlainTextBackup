@@ -10907,3 +10907,20 @@ QQ音乐上新了，快去看看吧（指idol）
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  PDQ4  
+##### 14249#       发表于 2024-3-17 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么力破不和传言结果提供烂炒素材了，这么下去只能在舞台上亲一口来证明没有不和了
+
+感觉像喵梦会干的事<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 14250#       发表于 2024-3-17 14:16
+
+直播没玩过SC，这爆的米有多少会算在叔叔头上啊，有点纠结。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

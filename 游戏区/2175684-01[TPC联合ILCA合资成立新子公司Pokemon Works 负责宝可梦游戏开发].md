@@ -378,3 +378,21 @@ bdsp无论从哪个方面都不值得原谅，游玩体验被原版完爆的屎
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以为疫情导致工期紧张所以原本11月发售的LA拖延然后临时找代工bdsp填充年末档期这个已经是公认事实了。
 
+
+*****
+
+####  zyxsqw  
+##### 42#       发表于 2024-3-17 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278717&amp;ptid=2175684" target="_blank">Buke 发表于 2024-3-17 12:57</a>
+记得碧蓝幻想relink和偶像大师星耀季节好像也有ILCA参与开发，做得不赖啊
+烂是不是工期或者工钱不够 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星耀季节算是整个外包给他们干了，和bdsp差不多。钱这个不好下定论，但万南当时给的工期非常的足，甚至多次延期。
+
+*****
+
+####  Vacuolar  
+##### 43#       发表于 2024-3-17 15:45
+
+ILCA的前世今生都是啥样，究竟南梦宫系的人多还是任天堂的人多
+

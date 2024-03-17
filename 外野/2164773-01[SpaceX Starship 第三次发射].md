@@ -4002,3 +4002,26 @@ https://www.youtube.com/watch?v=il ...</blockquote>
 
 —— 来自 HONOR VER-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  madbird023  
+##### 509#       发表于 2024-3-17 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64279677&amp;ptid=2164773" target="_blank">=w= 发表于 2024-3-17 14:57</a>
+
+哪几首？
+
+可能要试试用谷歌的，有奇效</blockquote>
+就是油-管那几首曲子的演奏者，按曲名查也找不到，网易云识曲也没有，不过那个风格挺熟悉的，有点像詹姆斯·拉斯特
+
+*****
+
+####  madbird023  
+##### 510#       发表于 2024-3-17 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64282494&amp;ptid=2164773" target="_blank">soongone 发表于 2024-3-17 20:32</a>
+
+问个问题，现在星舰估计是解体掉海里了，现在假如我钓鱼时捞上来一个完整的猛禽发动机，交给国家，国家能给 ...</blockquote>
+可以直接联系龙院士问问<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

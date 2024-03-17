@@ -5339,3 +5339,16 @@ tips之类的窗口关闭需要长按数秒叉感觉很恼人,建议关闭长按
 —— 来自 S1Fun</blockquote>
 异议阿里！暗荣摸啥鱼都不会摸浪漫线的鱼，甚至会有莫名其妙的拉郎CP，毕竟也是恋爱游戏大厂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 1207#       发表于 2024-3-17 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64279084&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-17 13:43</a>
+
+搬点2ch的东西 玩到的都说爽死了玩不到的真要急死了(
+
+给的体验版暗杀技能全部点满了</blockquote>
+不会是骗吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

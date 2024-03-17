@@ -5168,3 +5168,13 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 打头能一发吧，不过头的范围很玄学。。。打前腿一发破甲两发带走。
 
+
+*****
+
+####  风萧飒  
+##### 1976#       发表于 2024-3-17 19:24
+
+焦土不太可能再加强了吧，不过考虑到用的人很少，说不定箭头犯病了就加强一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -822,3 +822,51 @@ love story时期就红遍大江南北了。多少人看着霉霉从乡村小妹�
 
 你霉产量反正是第一档的，22年一张专辑，23年没有新专辑，但是老专辑有新歌，凑起来也是一张专辑的量，二四年又来新专辑。其他不说，这产量没人能和她比，可怕如斯
 
+
+*****
+
+####  uko  
+##### 88#       发表于 2024-3-17 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278640&amp;ptid=2175844" target="_blank">今天不守尸 发表于 2024-3-17 12:45</a>
+
+十年前在国内默默无闻。。。
+
+当时第一印象丑，现在颜值提高了不少。。。
+
+泥潭坛友的发言还是这么幽默风趣[f ...</blockquote>
+估计说的首专出道时期吧，我记得封面小碎卷发看着是一般，feerless那张会打扮了就起飞了
+
+*****
+
+####  我是侦查员  
+##### 89#       发表于 2024-3-17 19:30
+
+其实现在已经不那么漂亮了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  立本核污水  
+##### 90#       发表于 2024-3-17 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278113&amp;ptid=2175844" target="_blank">dffgf 发表于 2024-3-17 11:35</a>
+ 不是突然吧，蔡10这个称号感觉用了都快20年了</blockquote>
+十年前还被基佬圈再贴吧围殴还发明了淋言淋语羞辱她
+
+估计后面其他同期歌手退的退，休的休。基本少有在台前的，反而成了一枝独秀。
+
+基佬们估计也黑到深处反而粉起来。
+居然开始转型成gay icon也是无语的紧。
+
+尤其她的演唱会观众群里可以用群魔乱舞来形容
+
+*****
+
+####  立本核污水  
+##### 91#       发表于 2024-3-17 19:35
+
+比起流水线霉霉
+还是她同期的姐妹Miley Cyrus的唱功更加浑然天成。
+前几年的used to be young 现在听来还是很容易打动人心。
+

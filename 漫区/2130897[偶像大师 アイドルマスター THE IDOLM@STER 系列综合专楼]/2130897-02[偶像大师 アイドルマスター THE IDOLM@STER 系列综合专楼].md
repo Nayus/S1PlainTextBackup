@@ -13316,3 +13316,69 @@ inferno
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wfhtony  
+##### 2815#       发表于 2024-3-17 12:51
+
+ 本帖最后由 wfhtony 于 2024-3-17 12:53 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/17/125144as3kn60e505tlald.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-17-12h49m46s182.jpg</strong> (304.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 12:51 上传
+
+edeN...
+
+～悲藍～ Setlist <blockquote>--開場唸白--
+
+01. relations // 菊地 真・萩原 雪歩
+
+02. inferno // 菊地 真・萩原 雪歩
+
+[曲目中途（第一遍副歌過後）**免費部分結束]
+
+03. 迷走Mind // 菊地 真
+
+--MC--
+
+04. Halftone // 菊地 真・萩原 雪歩
+
+05. 待ち受けプリンス // 菊地 真・萩原 雪歩
+
+06. アマテラス // 菊地 真・萩原 雪歩
+
+07. The world is all one!! // 菊地 真・萩原 雪歩
+
+08. First Stage // 菊地 真・萩原 雪歩
+
+--MC--
+
+09. おもいでのはじまり // 菊地 真・萩原 雪歩
+
+10. 9:02pm // 菊地 真・萩原 雪歩
+
+11. 静かな夜に願いを... // 萩原 雪歩 （＊LIVE初登場）
+
+--MC--
+
+12. edeN // 菊地 真・萩原 雪歩
+
+13. LOST // 萩原 雪歩
+
+14. tear // 菊地 真
+
+--終場前MC--
+
+15. Little Match Girl  // 菊地 真・萩原 雪歩
+
+--安可 &amp; 唸白 &amp; 安可MC--
+
+16. キミはメロディ // 菊地 真・萩原 雪歩
+
+--ENDROLL--</blockquote>
+

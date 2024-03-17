@@ -51,3 +51,17 @@ figma王泪林克近日就要开订了？这样看做得针不戳呀～
 
 王泪还有一个奖能竞争一下，每年九月举行的日本游戏大赏，就是有一堆优秀赏的那个，范围是23.4—24.3。
 
+
+*****
+
+####  kuarwbwe  
+##### 15677#       发表于 2024-3-18 00:27
+
+ 本帖最后由 kuarwbwe 于 2024-3-18 00:29 编辑 
+
+拿不拿奖其实无所谓的了。而且起码拿个四大奖再说吧。这种平时没啥讨论度的奖拿不拿都没必要说。没啥意思。我现在倒是更想知道你任会不会真出tp和ww重置。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+今天前段时间买的天剑应该就到了，要是浪人和龙信2炸了就把ff7re通了玩天剑。
+
+然后真有重置就给tp补个票再把ww玩了，3d塞就全部补完了。之后再回去玩2d塞<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+

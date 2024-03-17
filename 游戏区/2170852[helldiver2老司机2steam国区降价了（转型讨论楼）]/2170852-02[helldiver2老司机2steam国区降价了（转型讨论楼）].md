@@ -5217,3 +5217,11 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 才知道如果网络有问题的话进游戏可以把其他客机玩家顶掉线，刚一个好友乱入直接给我房里另一个好友干出去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1981#       发表于 2024-3-18 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉重炮手要砍了，这BUFF数量后的追踪虫被重炮手狠狠制裁
+

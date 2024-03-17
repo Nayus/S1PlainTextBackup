@@ -5352,3 +5352,41 @@ tips之类的窗口关闭需要长按数秒叉感觉很恼人,建议关闭长按
 给的体验版暗杀技能全部点满了</blockquote>
 不会是骗吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雾生司  
+##### 1208#       发表于 2024-3-18 02:57
+
+ 本帖最后由 雾生司 于 2024-3-18 02:59 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/18/025004qzt5z7559w9922ep.png" referrerpolicy="no-referrer">
+
+<strong>x11.png</strong> (19.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 02:50 上传
+
+根据推上参加完成披露会的人发的文,问了开发者是否有像仁王一样的高难度周目选择,被回答了说有。
+
+<img src="https://img.saraba1st.com/forum/202403/18/025243wz3ub9553xr3lrzu.png" referrerpolicy="no-referrer">
+
+<strong>x12.png</strong> (14.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 02:52 上传
+
+明明有难度选项设计还提供高周目感觉有点莫名其妙请提供一下来源。
+
+<img src="https://img.saraba1st.com/forum/202403/18/025425mtw5frelqitptfuj.png" referrerpolicy="no-referrer">
+
+<strong>x13.png</strong> (13.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 02:54 上传
+
+高难度周目怎么样都无所谓吧,明明动作跟故事要更重要,这可是开放世界武士游戏来着。
+

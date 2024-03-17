@@ -11144,3 +11144,21 @@ QQ图片20240317193951.jpg
 
 道歉了很多次呢……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  祐天寺にゃむ  
+##### 14275#       发表于 2024-3-17 20:19
+
+有没有录播啊？
+
+
+*****
+
+####  makece  
+##### 14276#       发表于 2024-3-17 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理论上讲外国人不能随便在中国直播平台开播的，这次算是趁风声不大偷渡了吧
+
+估计难有下次
+

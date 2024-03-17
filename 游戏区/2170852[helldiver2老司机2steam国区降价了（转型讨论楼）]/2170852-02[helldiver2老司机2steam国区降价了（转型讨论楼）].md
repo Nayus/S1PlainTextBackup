@@ -5253,3 +5253,14 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 单走搜点感觉离不开榴弹发射器了，清中甲怪快还不占背包位，开门炸巢样样能干，弹药靠捡点里野生弹药以战养战。唯一不爽的是要带EAT反重甲，只剩一个战备位给飞鹰或者轨道激光解场用
 
+
+*****
+
+####  2VYBGp94  
+##### 1985#       发表于 2024-3-18 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64285095&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-18 02:25</a>
+
+单走搜点感觉离不开榴弹发射器了，清中甲怪快还不占背包位，开门炸巢样样能干，弹药靠捡点里野生弹药以战养 ...</blockquote>
+不如干脆不解，打完跑
+

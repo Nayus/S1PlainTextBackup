@@ -13382,3 +13382,27 @@ edeN...
 
 --ENDROLL--</blockquote>
 
+
+*****
+
+####  wfhtony  
+##### 2816#       发表于 2024-3-17 15:04
+
+<img src="https://img.saraba1st.com/forum/202403/17/150436vh4hzi0ytm4ttifl.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-17-15h02m04s804.jpg</strong> (381 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 15:04 上传
+
+<img src="https://img.saraba1st.com/forum/202403/17/150436bqdjhdqzjmehkrrj.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-17-15h02m41s965.jpg</strong> (328.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 15:04 上传
+
+這場戰爭結束後(ry
+

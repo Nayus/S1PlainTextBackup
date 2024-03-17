@@ -2513,3 +2513,33 @@ FURYU 寝そべりぬいぐるみ
 
 回看了一下，转播源处理的时候把现场call声砍掉了80%，按现地民的反馈现场当时实际非常沸腾，果然这首曲子作为live曲没选错
 
+
+*****
+
+####  holoan  
+##### 8412#         楼主| 发表于 2024-3-17 14:59
+
+<img src="https://img.saraba1st.com/forum/202403/17/145907dltr7a6r7mgn0ll7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 14:59 上传
+
+暗示今晚的组合？另外赢了萝卜想到上午EN3期那个节目
+
+
+*****
+
+####  holoan  
+##### 8413#         楼主| 发表于 2024-3-17 15:04
+
+<img src="https://img.saraba1st.com/forum/202403/17/150452pjii50fizb18475w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (353.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 15:04 上传
+

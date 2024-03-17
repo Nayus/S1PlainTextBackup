@@ -3963,3 +3963,16 @@ V3是单发269吨，V4估计单发过300吨
 https://www.youtube.com/watch?v=il ...</blockquote>
 **那几首死活找不到乐团名字，识曲软件也找不出来
 
+
+*****
+
+####  =w=  
+##### 506#       发表于 2024-3-17 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64277157&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-3-17 09:05</a>
+
+**那几首死活找不到乐团名字，识曲软件也找不出来</blockquote>
+哪几首？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+可能要试试用谷歌的，有奇效
+

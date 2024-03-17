@@ -5186,3 +5186,26 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">焦土如果能武器改造的时候能加弹容就好了
 
+
+*****
+
+####  xinfengj  
+##### 1978#       发表于 2024-3-17 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64281539&amp;ptid=2170852" target="_blank">novyDC 发表于 2024-3-17 18:56</a>
+
+机甲榴弹打坦克虫要4发？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+头壳那个三角的中间平坦位置打一发就能爆头，打鼻尖或者边缘有可能打不穿
+
+*****
+
+####  novyDC  
+##### 1979#       发表于 2024-3-17 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64283576&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-03-17 22:24:40</a>
+头壳那个三角的中间平坦位置打一发就能爆头，打鼻尖或者边缘有可能打不穿 ...</blockquote>那可能我打偏了 今天对着头打了4发才打死一只坦克虫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

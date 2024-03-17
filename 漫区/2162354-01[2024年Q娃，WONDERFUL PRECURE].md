@@ -1488,3 +1488,14 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 法Q2终于要来了吗？看来bg年太颓势需要百合来拯救，就是会不会串味<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梦诗歌雪  
+##### 1213#       发表于 2024-3-18 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64280009&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-3-17 15:45</a>
+
+所以说，小麦之前为什么用不了指挥棒。不会真是万代的问题吧(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">认真讲，应该是因为之前狗子当Q娃只是为了主人，这集想通了做Q娃是为了みんな元気、みんななかよし，舍小我为大我所以玩具绝缘片就自动消失了吧
+

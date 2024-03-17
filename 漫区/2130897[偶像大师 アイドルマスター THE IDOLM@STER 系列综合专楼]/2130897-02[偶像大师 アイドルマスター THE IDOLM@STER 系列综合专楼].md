@@ -13414,3 +13414,44 @@ edeN...
 
 i过了多久来听，还是那么好听
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2818#       发表于 2024-3-17 16:26
+
+voy@ger真没想到
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  田所あずさ  
+##### 2819#       发表于 2024-3-17 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zeroed  
+##### 2820#       发表于 2024-3-17 16:33
+
+还是五道光的VOY@GER
+
+<img src="https://img.saraba1st.com/forum/202403/17/163228bcnsldigls6wigin.jpg" referrerpolicy="no-referrer">
+
+<strong>GI2-1p5bUAA8p6C.jpg</strong> (336.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 16:32 上传
+
+<img src="https://img.saraba1st.com/forum/202403/17/163256zp6rdg3gxxx6zssx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240317163248.png</strong> (233.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 16:32 上传
+

@@ -693,3 +693,14 @@ love story时期就红遍大江南北了。多少人看着霉霉从乡村小妹�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  赤星ビスコ  
+##### 73#       发表于 2024-3-17 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64279102&amp;ptid=2175844" target="_blank">fat 发表于 2024-3-17 13:46</a>
+
+是那个霉霉吗？为什么叫霉霉？</blockquote>
+美女 → 运气不好拿不到b榜第一  → 霉女
+

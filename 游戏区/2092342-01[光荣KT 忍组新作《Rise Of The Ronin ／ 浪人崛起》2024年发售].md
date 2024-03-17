@@ -5390,3 +5390,16 @@ tips之类的窗口关闭需要长按数秒叉感觉很恼人,建议关闭长按
 
 高难度周目怎么样都无所谓吧,明明动作跟故事要更重要,这可是开放世界武士游戏来着。
 
+
+*****
+
+####  RushMove  
+##### 1209#       发表于 2024-3-18 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64285160&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-18 02:57</a>
+
+根据推上参加完成披露会的人发的文,问了开发者是否有像仁王一样的高难度周目选择,被回答了说有。
+
+有难度 ...</blockquote>
+这应该指的是新周目解锁更高难度吧
+

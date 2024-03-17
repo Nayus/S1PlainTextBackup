@@ -5116,3 +5116,14 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 <img src="https://img.saraba1st.com/forum/202403/17/170145z6s62s6gdo6mnno0.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1971#       发表于 2024-3-17 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64280569&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-3-17 17:02</a>
+
+3.14截的图还是2000多万阵亡呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你自己的统计数据都时不时丢失，这实时战况很正常
+

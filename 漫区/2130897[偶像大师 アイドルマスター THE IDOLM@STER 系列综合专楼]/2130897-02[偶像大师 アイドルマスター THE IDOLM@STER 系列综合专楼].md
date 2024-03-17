@@ -13534,3 +13534,11 @@ voy@ger真没想到
 
 双人live真是个好点子，应该给贫富组红蓝都来一次
 
+
+*****
+
+####  田所あずさ  
+##### 2824#       发表于 2024-3-17 17:11
+
+这次真的是老害歌单了，真老害真会听哭<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

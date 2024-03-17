@@ -4025,3 +4025,18 @@ https://www.youtube.com/watch?v=il ...</blockquote>
 问个问题，现在星舰估计是解体掉海里了，现在假如我钓鱼时捞上来一个完整的猛禽发动机，交给国家，国家能给 ...</blockquote>
 可以直接联系龙院士问问<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  =w=  
+##### 511#       发表于 2024-3-17 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64282600&amp;ptid=2164773" target="_blank">madbird023 发表于 2024-3-17 20:42</a>
+
+就是油-管那几首曲子的演奏者，按曲名查也找不到，网易云识曲也没有，不过那个风格挺熟悉的，有点像詹姆 ...</blockquote>
+其实你看上传人的评论回复就知道他也是直接复制粘贴的，可能不是原曲名
+
+14:10 那首其实是 Caribbean Cruise - Werner Tautz ，发行年是1972年 [https://www.youtube.com/watch?v=drsLeTv6zPM](https://www.youtube.com/watch?v=drsLeTv6zPM)
+
+用谷歌去搜应该比较简单能找到，有空我找一找
+

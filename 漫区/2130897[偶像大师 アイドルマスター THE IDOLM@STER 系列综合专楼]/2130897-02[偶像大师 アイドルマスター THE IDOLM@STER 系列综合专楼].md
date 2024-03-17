@@ -13554,3 +13554,11 @@ voy@ger真没想到
 
 算了能最速入手场限CD强行不亏吧，反正送了XR票能看Archive……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 2826#       发表于 2024-3-17 19:42
+
+学园新角色一股青春感
+

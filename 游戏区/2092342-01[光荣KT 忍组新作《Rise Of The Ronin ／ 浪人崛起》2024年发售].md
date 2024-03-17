@@ -5315,3 +5315,14 @@ tips之类的窗口关闭需要长按数秒叉感觉很恼人,建议关闭长按
 
 在旁边玩简单模式的朋友也拿到了一把性能稍低但相同的野太刀,所以掉落大概是固定的。
 
+
+*****
+
+####  性兽阿怪  
+##### 1205#       发表于 2024-3-17 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278485&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-17 12:24</a>
+
+线下也不是demo，昨天有人玩着玩着跳杯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">太搞笑了
+

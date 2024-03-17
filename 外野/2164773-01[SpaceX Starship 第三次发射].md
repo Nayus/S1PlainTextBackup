@@ -3992,3 +3992,13 @@ https://www.youtube.com/watch?v=il ...</blockquote>
 
 已确认的部分发动机编号和场外爱好者拍摄照片。
 
+
+*****
+
+####  soongone  
+##### 508#       发表于 2024-3-17 20:32
+
+问个问题，现在星舰估计是解体掉海里了，现在假如我钓鱼时捞上来一个完整的猛禽发动机，交给国家，国家能给多少奖励？
+
+—— 来自 HONOR VER-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

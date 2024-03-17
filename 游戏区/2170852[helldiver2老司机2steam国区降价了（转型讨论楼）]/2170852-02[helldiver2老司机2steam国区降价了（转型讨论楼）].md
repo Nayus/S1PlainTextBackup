@@ -5145,3 +5145,13 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 焦土弹匣能翻倍就好了，经常差一枪解决毒爆虫然后被反杀<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 1974#       发表于 2024-3-17 18:56
+
+机甲榴弹打坦克虫要4发？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

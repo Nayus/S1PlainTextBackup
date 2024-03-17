@@ -11192,3 +11192,12 @@ QQ图片20240317193951.jpg
 <img src="https://p.sda1.dev/16/63deef80b4f44eb15062777a3b9e7b09/CMP_20240317203802142.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/4e80f13cda24a5bb0c3477821fdb5130/CMP_20240317203802202.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  祐天寺にゃむ  
+##### 14280#       发表于 2024-3-17 22:40
+
+2024年3月17日夜晚佐佐木李子与电波恶魔对战全程实录（删除黑屏部分）
+[https://www.bilibili.com/video/BV1zm411o7ik](https://www.bilibili.com/video/BV1zm411o7ik)
+

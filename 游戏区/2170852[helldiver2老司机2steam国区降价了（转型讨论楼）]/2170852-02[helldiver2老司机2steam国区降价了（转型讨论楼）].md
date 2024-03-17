@@ -5006,3 +5006,32 @@ b站之前有人把正义改出来用了，只能说这弹药和伤害都得加�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">怎么现在虫子星球全部都部署时间两倍
 
+
+*****
+
+####  白昼梦  
+##### 1961#       发表于 2024-3-17 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">试了下队友飞尸掉的焦土，确实挺爽，就是被贴身之后就算带着蛋盾也会被自己秒啊。
+
+*****
+
+####  赤井稻妻  
+##### 1962#       发表于 2024-3-17 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64275510&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-16 22:47</a>
+
+发现一个细节，背着护卫犬激光开机甲时，长柄镰会挂在机甲顶上</blockquote>
+其实只是挂在你背上然后穿模了而已
+
+
+*****
+
+####  sigeren  
+##### 1963#       发表于 2024-3-17 14:54
+
+md，刚才打了三把n7，最后一个任务马上就上船了，电脑卡死了，真的难绷
+顺带一说，现在电弧蛋盾是真的强啊，一整把下来300多杀，而且一次都不带死的，感觉按制作组的尿性下个版本得被砍
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

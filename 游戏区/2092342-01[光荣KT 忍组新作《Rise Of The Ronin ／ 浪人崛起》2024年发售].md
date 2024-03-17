@@ -5179,3 +5179,11 @@ ps5在日本已经变成⚪和apex启动器了，免费+氪金读博，日本人
 
 2024-3-17 12:00 上传
 
+
+*****
+
+####  性兽阿怪  
+##### 1199#       发表于 2024-3-17 12:14
+
+既然都有线下试玩了为什么不直接上psn呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

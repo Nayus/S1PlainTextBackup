@@ -1392,3 +1392,25 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 剧场版预告也没有说会和前辈联动的情报
 先把魔法2消息等出来再说
 
+
+*****
+
+####  帝下室の年糕  
+##### 1205#       发表于 2024-3-17 14:28
+
+基本确定天q和法q会客串了吧
+<img src="https://p.sda1.dev/16/12fd7d73802c957ddab6f02fa0ebaf36/CMP_20240317142805655.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 1206#       发表于 2024-3-17 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64279349&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-3-17 14:17</a>
+
+剧场版预告也没有说会和前辈联动的情报
+
+先把魔法2消息等出来再说</blockquote>
+没明说而已，特地结合了索拉和未来的口头禅说有好朋友（素敵な仲間）会出场意义很明确了。
+

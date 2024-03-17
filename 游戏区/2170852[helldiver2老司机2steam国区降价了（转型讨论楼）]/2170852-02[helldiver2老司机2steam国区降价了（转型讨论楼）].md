@@ -5083,3 +5083,11 @@ md，刚才打了三把n7，最后一个任务马上就上船了，电脑卡死�
 
 发现新电磁炮那个也不是很烂，三发一个胖子。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 1969#       发表于 2024-3-17 16:42
+
+下午排局难6机器人，全程英文语音抱怨早上绝对不是这个难度
+

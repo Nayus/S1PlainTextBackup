@@ -5187,3 +5187,32 @@ ps5在日本已经变成⚪和apex启动器了，免费+氪金读博，日本人
 
 既然都有线下试玩了为什么不直接上psn呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  Gigax  
+##### 1200#       发表于 2024-3-17 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278401&amp;ptid=2092342" target="_blank">性兽阿怪 发表于 2024-3-17 12:14</a>
+
+既然都有线下试玩了为什么不直接上psn呢</blockquote>
+线下也不是demo，昨天有人玩着玩着跳杯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无意义小号  
+##### 1201#       发表于 2024-3-17 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278485&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-17 12:24</a>
+
+线下也不是demo，昨天有人玩着玩着跳杯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太草了
+
+*****
+
+####  SergeGlenn  
+##### 1202#       发表于 2024-3-17 12:32
+
+开放世界切demo比关卡游戏麻烦吧
+

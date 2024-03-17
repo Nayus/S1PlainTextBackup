@@ -5326,3 +5326,16 @@ tips之类的窗口关闭需要长按数秒叉感觉很恼人,建议关闭长按
 线下也不是demo，昨天有人玩着玩着跳杯了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">太搞笑了
 
+
+*****
+
+####  廖化  
+##### 1206#       发表于 2024-3-17 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64277131&amp;ptid=2092342" target="_blank">jf8350143 发表于 2024-3-17 08:57</a>
+
+我觉得以光荣的懒狗程度必然不会给恋爱做性别差分的。
+
+—— 来自 S1Fun</blockquote>
+异议阿里！暗荣摸啥鱼都不会摸浪漫线的鱼，甚至会有莫名其妙的拉郎CP，毕竟也是恋爱游戏大厂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

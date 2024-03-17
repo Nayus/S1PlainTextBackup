@@ -506,3 +506,14 @@ gaga现在转型做演员了 adele也很少出来
 
 太标准太经典的日耳曼美女长相了
 
+
+*****
+
+####  太极八爪鱼  
+##### 53#       发表于 2024-3-17 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278493&amp;ptid=2175844" target="_blank">JOHNCHCHAN 发表于 2024-3-16 20:26</a>
+
+第一次知道她的时候还是看10年那届的格莱美，那时在国内名气最大的LADY GAGA几乎颗粒无收，她这个在国内几 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不丑吧，早期在国内出圈是那个加了条呆毛的saber类似照片吧
+

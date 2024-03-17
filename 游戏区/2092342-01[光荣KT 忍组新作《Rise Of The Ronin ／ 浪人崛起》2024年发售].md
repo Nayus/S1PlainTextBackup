@@ -5144,3 +5144,12 @@ ps5在日本已经变成⚪和apex启动器了，免费+氪金读博，日本人
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  霖岚_  
+##### 1196#       发表于 2024-3-17 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">之前看到主角总算不是哑巴会念台词得时候还想着会不会光荣懒狗把多声线去掉节约成本，结果看楼上捏人图还是有声音选项
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">期待搓一对阴角阳角对称双子在幕末相爱相杀
+

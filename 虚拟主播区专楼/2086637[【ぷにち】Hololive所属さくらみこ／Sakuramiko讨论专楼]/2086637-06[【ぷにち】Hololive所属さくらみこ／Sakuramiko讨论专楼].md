@@ -2598,3 +2598,13 @@ FURYU 寝そべりぬいぐるみ
 
 另外我觉得她看INNK组合肯定很有感触搞不好明天讲这两人的感想比自己的话题还长
 
+
+*****
+
+####  rs5621  
+##### 8421#       发表于 2024-3-17 20:47
+
+都是苦过来的人
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

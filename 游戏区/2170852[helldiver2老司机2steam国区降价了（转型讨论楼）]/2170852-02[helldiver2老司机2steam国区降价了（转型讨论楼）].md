@@ -5035,3 +5035,11 @@ md，刚才打了三把n7，最后一个任务马上就上船了，电脑卡死�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  runningch  
+##### 1964#       发表于 2024-3-17 15:12
+
+战场数据回来了，但是总感觉超级气球又在慌报军情，阵亡数据怎么可能只有740多万。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

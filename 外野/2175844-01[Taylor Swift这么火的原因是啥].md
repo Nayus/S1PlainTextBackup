@@ -930,3 +930,26 @@ love story时期就红遍大江南北了。多少人看着霉霉从乡村小妹�
 
 太勤奋了这个发专速度，去了东蛋的live看她演出这么强不是粉也会爱上<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GreenBird  
+##### 98#       发表于 2024-3-17 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64278655&amp;ptid=2175844" target="_blank">电话 发表于 2024-3-17 12:48</a>
+
+新加坡联合早报：泰勒丝或影响米国大选！
+
+https://www.zaobao.com/news/world/story20240315-3157514</blockquote>
+川宝要完了
+
+
+*****
+
+####  lexi  
+##### 99#       发表于 2024-3-17 22:00
+
+<blockquote>sdhgak1234 发表于 2024-3-17 19:38
+第一次听说她就是泥潭发了一张ps的saber cos图，其实红了早超过十年了，十年前的1989几首歌已经在和黄老板 ...</blockquote>
+翻唱老歌是因为旧专辑版权不在她手里吧，索性自己翻唱一遍重新卖，就是不给垃圾唱片公司白赚她的钱。
+

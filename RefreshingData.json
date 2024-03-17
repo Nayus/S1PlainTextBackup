@@ -1238,7 +1238,7 @@
     "newtitle": "[棒游《未来战／异界事务所》专楼  伟大的寂静]",
     "lastedit": 1710456010,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1590697": {
@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 7580,
+    "totalreply": 7581,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1710712686,
+    "lastedit": 1710715446,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8406,10 +8406,10 @@
     "update": false
   },
   "2119266": {
-    "totalreply": 244,
+    "totalreply": 245,
     "title": "[异修罗 TV动画化 2024年1月]",
     "newtitle": "[异修罗 TV动画化 2024年1月]",
-    "lastedit": 1710689533,
+    "lastedit": 1710715329,
     "category": "漫区",
     "active": true,
     "update": false
@@ -18423,10 +18423,10 @@
     "update": false
   },
   "2175871": {
-    "totalreply": 54,
+    "totalreply": 56,
     "title": "[感觉浪冲多了，现实里也下意识会跟律师和搞媒体的朋友避开键政话题了]",
     "newtitle": "[感觉浪冲多了，现实里也下意识会跟律师和搞媒体的朋友避开键政话题了]",
-    "lastedit": 1710708606,
+    "lastedit": 1710715687,
     "category": "外野",
     "active": true,
     "update": false
@@ -18477,10 +18477,10 @@
     "update": false
   },
   "2175911": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[红脖子的惊世智慧]",
     "newtitle": "[红脖子的惊世智慧]",
-    "lastedit": 1710695298,
+    "lastedit": 1710715332,
     "category": "外野",
     "active": true,
     "update": false
@@ -18576,10 +18576,10 @@
     "update": false
   },
   "2175882": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[最近好像多了好多批判淀粉肠的视频]",
     "newtitle": "[最近好像多了好多批判淀粉肠的视频]",
-    "lastedit": 1710698891,
+    "lastedit": 1710715687,
     "category": "外野",
     "active": true,
     "update": false
@@ -18599,6 +18599,15 @@
     "newtitle": "[不玩（买）黑神话悟空的理由]",
     "lastedit": 1710714487,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2175927": {
+    "totalreply": 42,
+    "title": "[没人问我来问吧，关于法元明菜]",
+    "newtitle": "[没人问我来问吧，关于法元明菜]",
+    "lastedit": 1710715332,
+    "category": "外野",
     "active": true,
     "update": false
   }

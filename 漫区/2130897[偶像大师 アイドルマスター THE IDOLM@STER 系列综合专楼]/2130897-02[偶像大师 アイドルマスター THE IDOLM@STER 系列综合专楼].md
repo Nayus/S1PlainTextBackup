@@ -13542,3 +13542,15 @@ voy@ger真没想到
 
 这次真的是老害歌单了，真老害真会听哭<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 2825#       发表于 2024-3-17 18:44
+
+两天来一直在想XR这X到哪里去了，华丽的CG难道就做了个OPED……
+
+合着现地就没X，敢情真就被大B骗来振兴群马经济了，老子还他妈的住了一晚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+算了能最速入手场限CD强行不亏吧，反正送了XR票能看Archive……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

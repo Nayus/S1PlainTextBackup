@@ -5127,3 +5127,21 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 3.14截的图还是2000多万阵亡呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你自己的统计数据都时不时丢失，这实时战况很正常
 
+
+*****
+
+####  xinfengj  
+##### 1972#       发表于 2024-3-17 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64279587&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-3-17 14:46</a>
+
+试了下队友飞尸掉的焦土，确实挺爽，就是被贴身之后就算带着蛋盾也会被自己秒啊。 ...</blockquote>
+蛋盾肯定是破了 没破的话不会被秒
+
+*****
+
+####  smdzh2  
+##### 1973#       发表于 2024-3-17 18:46
+
+焦土弹匣能翻倍就好了，经常差一枪解决毒爆虫然后被反杀<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

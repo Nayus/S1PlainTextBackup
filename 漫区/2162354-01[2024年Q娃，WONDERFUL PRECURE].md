@@ -1447,3 +1447,21 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 而且去年成人光美3月公布，10月开播，鉴于到现在还没有法Q2的新情报，时间上10月的可能性高些。
 
+
+*****
+
+####  leleq  
+##### 1210#       发表于 2024-3-17 18:41
+
+我就说上集是玩具坏了把<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+小麦真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+今年bank太多了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+动作戏基本也就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+剧场版今年9月，真有法Q2我觉得10月差不多正好跟去年战队23一样
+
+不过真是法Q2（成年版）的话这时间线该怎么弄…………算了Q娃的事情不要搞那么清楚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

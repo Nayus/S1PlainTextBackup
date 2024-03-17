@@ -10806,3 +10806,19 @@ ob子这个签名怎么还有个兔子
   -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
 兔子是高尾的签名，这个签名版是cv签名+角色签名都有
 
+
+*****
+
+####  佟柚子  
+##### 14242#       发表于 2024-3-17 09:12
+
+<img src="https://img.saraba1st.com/forum/202403/17/091154vc9ctjlxjk3kp139.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>21F864CD-AB40-437A-AD48-F0E30113CFA7.jpeg</strong> (296.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 09:11 上传
+
+  哈哈哈 早上看到这图笑死我了
+

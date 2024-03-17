@@ -5233,3 +5233,23 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 现在难9追踪虫一下刷4只，箭头真的司马
 
+
+*****
+
+####  Launce  
+##### 1983#       发表于 2024-3-18 02:24
+
+ 本帖最后由 Launce 于 2024-3-18 02:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64284933&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-03-18 01:43:40</a>
+
+现在难9追踪虫一下刷4只，箭头真的司马</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我难7帮新手都刷出4，5只，幸好重炮手压制力和威力拉满
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  xinfengj  
+##### 1984#       发表于 2024-3-18 02:25
+
+单走搜点感觉离不开榴弹发射器了，清中甲怪快还不占背包位，开门炸巢样样能干，弹药靠捡点里野生弹药以战养战。唯一不爽的是要带EAT反重甲，只剩一个战备位给飞鹰或者轨道激光解场用
+

@@ -1204,3 +1204,14 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 剧场版联动空Q和法Q（估计是法Q2）可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（毕竟彩羽说有客串的台词对应的是索拉和未来的标志性台词所以没意外应该是空Q法Q）索拉和未来两位重女前辈来向小麦传授一些重女经验吗（雾）
 未来刚在这边被暗示秋剧场登场就在隔壁来打棚给前辈幸神摇手电真忙啊
 
+
+*****
+
+####  pokemon最爱  
+##### 1195#       发表于 2024-3-17 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64277746&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-3-17 10:48</a>
+
+最后也没解释小麦为什么不能用指挥棒 一般这种剧情都是因为心态有问题 但小麦本身就是因为不能用心态才崩的 ...</blockquote>
+按这集感觉就是心态不对，玩指挥棒时小麦的心态已经不是初变身时的心态了所以指挥棒没反应，然后之后因为就反过来又因为这个原因心态崩了，这集一回归初心就自动下载说明书成功了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

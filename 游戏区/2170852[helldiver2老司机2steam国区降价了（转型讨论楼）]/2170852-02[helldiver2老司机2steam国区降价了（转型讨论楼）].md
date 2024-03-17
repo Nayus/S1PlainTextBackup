@@ -5209,3 +5209,11 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  FLZB  
+##### 1980#       发表于 2024-3-17 23:17
+
+才知道如果网络有问题的话进游戏可以把其他客机玩家顶掉线，刚一个好友乱入直接给我房里另一个好友干出去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

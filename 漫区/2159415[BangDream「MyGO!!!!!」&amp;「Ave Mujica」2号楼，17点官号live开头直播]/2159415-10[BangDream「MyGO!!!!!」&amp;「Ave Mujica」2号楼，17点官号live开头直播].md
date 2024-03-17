@@ -11105,3 +11105,42 @@ QQ图片20240317193951.jpg
 
 然后又断了（）
 
+
+*****
+
+####  鳥栖朝  
+##### 14270#       发表于 2024-3-17 19:59
+
+道歉系主播
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dqtql  
+##### 14271#       发表于 2024-3-17 20:01
+
+真就到点走人啊
+
+
+*****
+
+####  takerest  
+##### 14272#       发表于 2024-3-17 20:02
+
+耻辱下播，希望第一次不是最后一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 14273#       发表于 2024-3-17 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">先下播也挺好的， 把网整利索了再说吧
+
+*****
+
+####  純田まな  
+##### 14274#       发表于 2024-3-17 20:03
+
+道歉了很多次呢……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

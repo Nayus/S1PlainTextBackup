@@ -3976,3 +3976,19 @@ https://www.youtube.com/watch?v=il ...</blockquote>
 
 可能要试试用谷歌的，有奇效
 
+
+*****
+
+####  四号舰美浓  
+##### 507#       发表于 2024-3-17 15:51
+
+<img src="https://img.saraba1st.com/forum/202403/17/155112duz0ymb23f017kr3.jpg" referrerpolicy="no-referrer">
+
+<strong>1710638006617.jpg</strong> (485.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-17 15:51 上传
+
+已确认的部分发动机编号和场外爱好者拍摄照片。
+

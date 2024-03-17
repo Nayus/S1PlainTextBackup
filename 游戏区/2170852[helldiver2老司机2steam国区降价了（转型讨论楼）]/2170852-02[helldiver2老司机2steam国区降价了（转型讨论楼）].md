@@ -5178,3 +5178,11 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ledo  
+##### 1977#       发表于 2024-3-17 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">焦土如果能武器改造的时候能加弹容就好了
+

@@ -10924,3 +10924,15 @@ QQ音乐上新了，快去看看吧（指idol）
 
 直播没玩过SC，这爆的米有多少会算在叔叔头上啊，有点纠结。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14251#       发表于 2024-3-17 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64279341&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-3-17 14:16</a>
+直播没玩过SC，这爆的米有多少会算在叔叔头上啊，有点纠结。</blockquote>
+好像是一半
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

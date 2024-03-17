@@ -1422,3 +1422,13 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 所以说，小麦之前为什么用不了指挥棒。不会真是万代的问题吧(
 
+
+*****
+
+####  幸福在裆下  
+##### 1208#       发表于 2024-3-17 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64280009&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-3-17 15:45</a>
+所以说，小麦之前为什么用不了指挥棒。不会真是万代的问题吧(</blockquote>
+没装电池/指挥棒电池仓绝缘的塑料片没抽出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

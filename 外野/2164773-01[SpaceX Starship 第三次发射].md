@@ -3950,3 +3950,16 @@ V3是单发269吨，V4估计单发过300吨
 
 （被干掉的单词是spot ify<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  madbird023  
+##### 505#       发表于 2024-3-17 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64276303&amp;ptid=2164773" target="_blank">=w= 发表于 2024-3-17 00:38</a>
+
+对直播时的爵士背景音乐实在是念念不忘，搜了一下已经有整理好了的：
+
+https://www.youtube.com/watch?v=il ...</blockquote>
+**那几首死活找不到乐团名字，识曲软件也找不出来
+

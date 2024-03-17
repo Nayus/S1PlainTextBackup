@@ -2489,3 +2489,11 @@ FURYU 寝そべりぬいぐるみ
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被人小看了
 
+
+*****
+
+####  holoan  
+##### 8409#         楼主| 发表于 2024-3-17 13:48
+
+今天cosplay采访来了个比昨天更怪物的玩意
+

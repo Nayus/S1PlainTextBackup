@@ -860,3 +860,11 @@ VR2这东西真是典型的舍不得沉没成本硬着头皮 ...</blockquote>
 By Takashi Mochizuki
 那观望一会儿
 
+
+*****
+
+####  科师傅冰红茶  
+##### 264#       发表于 2024-3-18 12:45
+
+望月崇帮索尼腰斩的vr2首发销量补上了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -1567,3 +1567,11 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kreis  
+##### 1220#       发表于 2024-3-18 12:47
+
+按上田丽奈的话说猫组里小雪才是主人，麻油是社恐小猫<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

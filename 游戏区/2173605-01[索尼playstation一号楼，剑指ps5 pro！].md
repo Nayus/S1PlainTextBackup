@@ -849,3 +849,14 @@ VR2这东西真是典型的舍不得沉没成本硬着头皮 ...</blockquote>
 VR2这东西真是典型的舍不得沉没成本硬着头皮 ...</blockquote>
 这篇报道是望月崇写的吧。如果是Jason Schreier写的应该不会有争议
 
+
+*****
+
+####  minysun  
+##### 263#       发表于 2024-3-18 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64288167&amp;ptid=2173605" target="_blank">ultraseven 发表于 2024-3-18 12:10</a>
+这篇报道是望月崇写的吧。如果是Jason Schreier写的应该不会有争议</blockquote>
+By Takashi Mochizuki
+那观望一会儿
+

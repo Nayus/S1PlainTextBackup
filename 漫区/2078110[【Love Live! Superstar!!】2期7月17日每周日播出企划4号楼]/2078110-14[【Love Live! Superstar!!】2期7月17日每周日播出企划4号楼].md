@@ -1012,3 +1012,15 @@ pay惹谁了推上被发杀害预告，似乎还是个US人
 </blockquote>
 米国人？
 
+
+*****
+
+####  starring  
+##### 19811#       发表于 2024-3-18 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64288278&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-3-18 12:22</a>
+米国人？</blockquote>
+推测是US，那货说要在猫组参加的纽约漫展上杀害pay
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

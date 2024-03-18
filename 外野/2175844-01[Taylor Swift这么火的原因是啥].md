@@ -1281,3 +1281,20 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 不如说说如她不火，谁应该更火？
 
+
+*****
+
+####  白愁帝皇  
+##### 134#       发表于 2024-3-18 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292421&amp;ptid=2175844" target="_blank">雪霜 发表于 2024-3-18 19:23</a>
+歌没听过不评价，长相身材感觉都很一般啊</blockquote>
+那要看和谁比了，和同期diva日婆，gaga比霉霉就是更符合一般人审美啊
+
+*****
+
+####  一三五七九  
+##### 135#       发表于 2024-3-18 19:30
+
+大长腿
+

@@ -5335,3 +5335,13 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 1994#       发表于 2024-3-18 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">跳之前看下星球修正，加倍降落的打死不打，最好是遮蔽+散布，实在没有50%cd也不是不行
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

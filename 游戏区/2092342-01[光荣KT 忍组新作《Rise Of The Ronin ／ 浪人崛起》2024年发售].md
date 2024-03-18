@@ -5526,3 +5526,16 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 应该是有资料片那种吧，索尼最近蛮喜欢资料片类型的
 
+
+*****
+
+####  diodio233  
+##### 1223#       发表于 2024-3-18 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64287940&amp;ptid=2092342" target="_blank">clover293 发表于 2024-3-18 11:48</a>
+
+应该是有资料片那种吧，索尼最近蛮喜欢资料片类型的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果是资料片那真的比sb 仁 卧 FFO 三段式更新DLC 好多了
+
+这几个游戏在更新完前刷多少都是无用功
+

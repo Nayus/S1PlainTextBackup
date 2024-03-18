@@ -1212,3 +1212,11 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然老霉最厉害的还是守住乡村基本盘还能往外扩，乡村歌手这帮基本上不作死就能吃到养老
 
+
+*****
+
+####  胖达君  
+##### 126#       发表于 2024-3-18 12:03
+
+反正我只知道她唱过一首叫love story的歌，听起来感觉也一般般<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

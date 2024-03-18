@@ -454,3 +454,33 @@ verycd别吹了，在当年emule圈鄙视链也就比vagaa高一点
 
 现在还有一群人在用司马迅雷
 
+
+*****
+
+####  alitonz  
+##### 46#       发表于 2024-3-18 20:19
+
+Steam用的也是BT协议分发吧？
+
+
+*****
+
+####  diohanmilton  
+##### 47#       发表于 2024-3-18 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291974&amp;ptid=2176037" target="_blank">处男鉴黄师 发表于 2024-3-18 18:37</a>
+我曾见过你们版权时代小子们无法置信的事，比特大陆全是最新美剧的种子，VeryCD有各种电影和音乐的资源，动 ...</blockquote>
+说起来动漫花园之前都是去极影的。
+
+—— 来自 HONOR PGT-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  循此苦旅  
+##### 48#       发表于 2024-3-18 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292350&amp;ptid=2176037" target="_blank">CALPISSODA 发表于 2024-3-18 19:15</a>
+
+在线视频对BT的挤压感觉反而不大，尤其国内各种不让播、审核长而且爱阉割的情况下，其实分享资源还是有用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">磁力就是BT啊
+

@@ -6384,3 +6384,16 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  砂糖续香香  
+##### 4394#       发表于 2024-3-19 01:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">合理啊，太合理啊！
+反派不相信贤士，就像后人类不再相信萝卜片一样
+<img src="https://p.sda1.dev/16/5b1630f6a0c867e9c37d302fcd81853a/CMP_20240319015244558.jpg" referrerpolicy="no-referrer">
+如果没有贤士，就不会有背叛<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+没有萝卜片，也就不会再有萝卜粉受伤<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+--------
+

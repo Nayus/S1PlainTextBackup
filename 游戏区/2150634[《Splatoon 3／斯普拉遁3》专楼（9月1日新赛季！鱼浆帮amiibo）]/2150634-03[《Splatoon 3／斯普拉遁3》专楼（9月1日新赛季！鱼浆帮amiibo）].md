@@ -6618,3 +6618,13 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  yanglian72  
+##### 3645#       发表于 2024-3-19 01:56
+
+第二天的美任是不是删了？反正我刚看已经没有了，临时工了？按之前一代广场的惯例应该是明天放出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这周不是春季特别祭典，现在看只有赛季特别祭典是全区祭典了，普通祭典以后都是分区了
+

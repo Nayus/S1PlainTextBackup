@@ -5467,3 +5467,21 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 比起超级货币，更绷的不是奖章吗
 
+
+*****
+
+####  BadYanL  
+##### 2007#       发表于 2024-3-18 19:49
+
+奖章还好吧，每天打一两局顺便解每日足够解锁所有武器防具了。
+
+
+*****
+
+####  novyDC  
+##### 2008#       发表于 2024-3-18 19:54
+
+无聊到拿新手装备打n7了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

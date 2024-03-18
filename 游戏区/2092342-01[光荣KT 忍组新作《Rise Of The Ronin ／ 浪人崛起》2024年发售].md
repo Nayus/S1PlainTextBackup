@@ -5578,3 +5578,11 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 豪华版没季票，至少短期内不会有dlc的消息吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  godless2020  
+##### 1228#       发表于 2024-3-18 14:41
+
+实体版500多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

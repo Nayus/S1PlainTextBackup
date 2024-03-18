@@ -5437,3 +5437,17 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 一个月肝1000超级货币，箭头真当玩家24H住在游戏里？</blockquote>
 实际上债券售价是700，里面能用勋章换出300的超级货币，然后没事打打清清图，多开双人仓库一个月肯定够，就是氪金服装不一定有钱买就是了
 
+
+*****
+
+####  bigraymond  
+##### 2004#       发表于 2024-3-18 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64255734&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-3-14 21:13</a>
+我不明白测评说这游戏通行证很公道没pay2win是怎么想的。
+
+别人的通行证只卖皮肤，一点影响gameplay的要素都 ...</blockquote>
+所以留了个刷卷漏洞吧，差不多一小时稳定1000多
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

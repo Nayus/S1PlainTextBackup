@@ -5752,3 +5752,11 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 好！我们一起上吧</blockquote>
 肯定有新选组一起上的任务，还原历史<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SergeGlenn  
+##### 1245#       发表于 2024-3-18 19:40
+
+这价格差距也太大了，PDD上龙信2领个券才375，浪人尼玛500多
+

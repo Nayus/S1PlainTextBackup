@@ -5593,3 +5593,14 @@ IMG_5425.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 2019#       发表于 2024-3-19 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294531&amp;ptid=2170852" target="_blank">mimiced 发表于 2024-3-19 00:16</a>
+
+我也是直连，听说是p2p联机？闪退的基本都是野排老外局，跟基友打的时候闪退频率高些，没怎么掉线过。 ...</blockquote>
+是p2p联机，但需要全程联网，服务器一崩就会掉线给你送回飞船。闪退我的经验是开全屏进游戏不要切窗口，否则几乎必崩，而且这游戏最牛逼的一点是主机一崩会带着客机一起崩<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

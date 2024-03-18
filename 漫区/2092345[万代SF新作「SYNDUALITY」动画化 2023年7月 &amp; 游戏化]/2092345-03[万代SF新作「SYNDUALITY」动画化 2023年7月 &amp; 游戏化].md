@@ -6262,3 +6262,41 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  DARK_HGCG  
+##### 4380#       发表于 2024-3-18 23:56
+
+反派好恶心。真恨不得食其肉寝其皮的那种。
+
+*****
+
+####  novyMS  
+##### 4381#       发表于 2024-3-18 23:57
+
+诺娃有故事啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Freakyyu  
+##### 4382#       发表于 2024-3-19 00:00
+
+给你丑完了，还在这搞轻松幽默的气氛，Ciel没了以及ミステル被绑走之后还有人吃这一套？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">紧迫感为0搞得跟出门旅游一样。嘴上说着贤士是家人也没见想着给Ciel报仇或者急着抢回ミステル啊。
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  NeloAngelo  
+##### 4383#       发表于 2024-3-19 00:01
+
+第24話「My name is...Noir / Drifters again」
+2024.03.25onair
+ヴァイスハイトの策略により、全てのメイガスが活動を停止してしまった。
+ムートンやシュネーも例外ではないなか、唯一動けるノワールと共に、ついにカナタはヴァイスハイトとの最終決戦に挑む。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

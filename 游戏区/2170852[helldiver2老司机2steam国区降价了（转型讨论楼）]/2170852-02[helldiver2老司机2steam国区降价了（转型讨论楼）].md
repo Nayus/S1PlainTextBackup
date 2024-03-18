@@ -5553,3 +5553,14 @@ IMG_5425.jpeg
 
 什么时候才能把服务器修一修，每次都是等鹈鹕落地的时候掉线<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">，半小时白搭
 
+
+*****
+
+####  FLZB  
+##### 2015#       发表于 2024-3-18 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294382&amp;ptid=2170852" target="_blank">mimiced 发表于 2024-3-18 23:50</a>
+
+什么时候才能把服务器修一修，每次都是等鹈鹕落地的时候掉线，半小时白搭 ...</blockquote>
+这个估计是减速器的功劳，我直连从来没遇到过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

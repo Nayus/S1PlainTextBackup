@@ -687,3 +687,14 @@ github.com/anacrolix/torrent 和 dt/torrent/v1.02
 
 曾经我已经妥协了给流氓雷充值，可是却一个个的被违规不给流量，你让我再去哪里找中古资源
 
+
+*****
+
+####  Raising_Heart  
+##### 70#       发表于 2024-3-18 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292940&amp;ptid=2176037" target="_blank">循此苦旅 发表于 2024-3-18 20:29</a>
+
+这些年一直挂着，上个月又整理了下把硬盘上的一些老资源也都挂上。</blockquote>
+分享个目录啊（小声）
+

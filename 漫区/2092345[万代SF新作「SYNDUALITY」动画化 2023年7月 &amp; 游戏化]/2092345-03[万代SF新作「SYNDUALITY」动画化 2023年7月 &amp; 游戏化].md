@@ -6208,3 +6208,37 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 前面快乐源泉被最后这几集给破坏完了，你说这个故事有男女主啥事吗，他们配当作品主题吗。 ...</blockquote>
 其实是驾驶技术的问题，彼方虽然同时分别成了歌姬和诺娃特殊的一部分，但是驾驶技术上没有大的进步（虽然维修能力很强)，而时雄那一边，马哈特没有伸出的手又影响了命运的轨迹
 
+
+*****
+
+####  novyMS  
+##### 4375#       发表于 2024-3-18 22:50
+
+准备上线看直播了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Freakyyu  
+##### 4376#       发表于 2024-3-18 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293944&amp;ptid=2092345" target="_blank">novyMS 发表于 2024-3-18 22:50</a>
+准备上线看直播了
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+这周晚半个小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novyMS  
+##### 4377#       发表于 2024-3-18 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293968&amp;ptid=2092345" target="_blank">Freakyyu 发表于 2024-03-18 22:52:58</a>
+这周晚半个小时 v2.5.4</blockquote>阿 我忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

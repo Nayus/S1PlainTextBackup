@@ -6369,3 +6369,18 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 回头空出时间来会争取把艾莉漫画翻掉的 
 
+
+*****
+
+####  NeloAngelo  
+##### 4393#       发表于 2024-3-19 01:36
+
+说这片子是在认真讲故事的, 出来挨打!  
+哦, 是我自己啊, 那没事了.
+
+不知道说啥好. 可能他生怕观众对这故事的严肃性有一丝的期待吧.
+作为观众, 有种被当成傻子一样的愚弄感.
+原来这就是做小丑的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

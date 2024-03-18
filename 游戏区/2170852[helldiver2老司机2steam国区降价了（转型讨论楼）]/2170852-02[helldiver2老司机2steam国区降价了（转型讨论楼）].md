@@ -5364,3 +5364,13 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 新战备和新敌人啥时候出啊，虫子都打腻了，总不能去打机器人吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">目前看来冤种券月更，社区CG半个月左右，其中请去机器人换换口味
 
+
+*****
+
+####  smdzh2  
+##### 1997#       发表于 2024-3-18 14:35
+
+ 本帖最后由 smdzh2 于 2024-3-18 15:36 编辑 
+
+这代哑铃人没意思，还是上一代打起来欢乐，怀念那个被光能恶心后找哑铃人发泄的日子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6490,3 +6490,25 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 [https://youtu.be/VnGFGB9YQMA?si=GYAP36h6YdMqa5C-](https://youtu.be/VnGFGB9YQMA?si=GYAP36h6YdMqa5C-)
 
+
+*****
+
+####  罗克萨斯  
+##### 3635#       发表于 2024-3-18 14:28
+
+ 本帖最后由 罗克萨斯 于 2024-3-18 14:30 编辑 
+
+这双鞋有人拿到了吗？目前没见商店里卖，不知道这赛季能不能碰到，只能每天都去逛一下了
+
+<img src="https://img.saraba1st.com/forum/202403/18/142506u4mlu1olo1gfzpuf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-18-14-23-31-420_com.android.chrome-edit.jpg</strong> (46.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 14:25 上传
+
+哦，想起来lean网站也可以给商店观星，可以给自己定个提醒了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

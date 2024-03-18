@@ -889,3 +889,37 @@ By Takashi Mochizuki
 
 虽然是望月崇但这消息我还真觉得挺真实的
 
+
+*****
+
+####  医生狼多  
+##### 267#       发表于 2024-3-18 22:09
+
+我16k30帧呢
+
+Outlined in documents provided to Insider Gaming under the condition that they are not made public, PlayStation’s ambitions with PSSR is to achieve 4K 120FPS and 8K 60FPS. Whilst these are not the targets for the PS5 Pro due to hardware limitations, it is the internal goal for PSSR in future console interactions. The PlayStation 5 Pro PSSR currently supports 3840×2160 and is currently aiming for 4K 60 FPS and 8K 30FPS, but it’s unclear if those internal milestones can be passed.
+
+PSSR Memory Requirements is roughly 250MB; 180MB from the PSML Library and 64MB from the game.
+
+Two Case Studies for two unnamed first-party games include:
+
+Game 1
+
+Target – image quality close to Fidelity Mode (1800p) with Performance Mode FPS (60 FPS)
+
+Standard PlayStation 5 –
+
+Performance Mode – 1080p at 60FPS
+
+Fidelity Mode – 1800p at 30FPS
+
+PlayStation 5 Pro –
+
+1440p at 60FPS (PSSR used)
+
+Game 2
+
+Target – Add Raytracing to gameplay
+
+Standard PlayStation 5 achieved 60FPS without raytracing, and PlayStation 5 Pro achieved 60FPS with Raytracing
+

@@ -1515,3 +1515,17 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 现在看三宠物和主人性格都有相似吧，小麦这边是元气，猫那边是自闭/独，兔子那边是稳重成熟形。
 
+
+*****
+
+####  modedd  
+##### 1216#       发表于 2024-3-18 10:17
+
+ 本帖最后由 modedd 于 2024-3-18 10:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64286683&amp;ptid=2162354" target="_blank">碎镜子 发表于 2024-3-18 10:10</a>
+
+现在看三宠物和主人性格都有相似吧，小麦这边是元气，猫那边是自闭/独，兔子那边是稳重成熟形。 ...</blockquote>
+猫猫明显不是自闭是标准猫主子性格，跟主人应该是正好相反
+
+兔子本来给我的感觉是偏无口呆萌，结果这话有小麦当翻译才发现话还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真想象不出来假如他是追加会是个啥人设
+

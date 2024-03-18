@@ -1097,3 +1097,23 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 虽然麦当娜也不能唱跳吧，但起码现场实打实的在跳
 
+
+*****
+
+####  razielzyc  
+##### 113#       发表于 2024-3-18 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64286603&amp;ptid=2175844" target="_blank">barry.allen 发表于 2024-3-18 10:03</a>
+
+斯威夫特能唱跳？
+
+虽然麦当娜也不能唱跳吧，但起码现场实打实的在跳 ...</blockquote>
+麦当娜高跟鞋16连蹲真的学不来。俩人在两性关系上也挺接近的。
+
+*****
+
+####  バナナ虎  
+##### 114#       发表于 2024-3-18 10:26
+
+歌好听，持续产出，后继无人
+

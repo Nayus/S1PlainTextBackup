@@ -5547,3 +5547,26 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 急急急急，想退了盘买数字版了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刘震云  
+##### 1225#       发表于 2024-3-18 13:58
+
+按照一般的情况，这个时候实体版应该已经偷跑了，怎么没有偷跑哥出来发信息啊？隔壁龙信2都偷跑2天了
+
+索尼控货这么严的吗？
+
+*****
+
+####  陈词与芍药  
+##### 1226#       发表于 2024-3-18 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64289240&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-18 01:58</a>
+按照一般的情况，这个时候实体版应该已经偷跑了，怎么没有偷跑哥出来发信息啊？隔壁龙信2都偷跑2天了
+
+索尼 ...</blockquote>
+有的，但没中文，算了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

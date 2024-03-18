@@ -5564,3 +5564,14 @@ IMG_5425.jpeg
 什么时候才能把服务器修一修，每次都是等鹈鹕落地的时候掉线，半小时白搭 ...</blockquote>
 这个估计是减速器的功劳，我直连从来没遇到过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimiced  
+##### 2016#       发表于 2024-3-19 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294408&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-18 23:56</a>
+
+这个估计是减速器的功劳，我直连从来没遇到过</blockquote>
+我也是直连，听说是p2p联机？闪退的基本都是野排老外局，跟基友打的时候闪退频率高些，没怎么掉线过。
+

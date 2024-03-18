@@ -13580,3 +13580,18 @@ voy@ger真没想到
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cckuku  
+##### 2829#       发表于 2024-3-18 16:10
+
+是中高大一贯校，不能再说人家是中专了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 2830#       发表于 2024-3-18 16:14
+
+专科一贯制（过草）
+

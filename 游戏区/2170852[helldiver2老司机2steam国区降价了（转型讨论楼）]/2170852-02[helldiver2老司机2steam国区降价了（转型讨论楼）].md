@@ -5374,3 +5374,14 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 这代哑铃人没意思，还是上一代打起来欢乐，怀念那个被光能恶心后找哑铃人发泄的日子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 1998#       发表于 2024-3-18 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64289644&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-18 14:35</a>
+
+这代哑铃人没意思，还是上一代打起来欢乐，怀念那个被光能恶心后找哑铃人发泄的日子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一代大家一阶兵种都是狗子，这代你机器人一阶兵种直接50块的机枪兵了
+

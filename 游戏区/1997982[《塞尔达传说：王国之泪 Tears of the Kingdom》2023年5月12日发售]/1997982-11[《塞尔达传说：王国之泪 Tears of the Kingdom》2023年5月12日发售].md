@@ -143,3 +143,125 @@ figma王泪林克近日就要开订了？这样看做得针不戳呀～
 另外大家有推荐购买的地方吗……基于对欧洲的不信任，我感觉 ...</blockquote>
 淘宝销量高的大店吧或者等GSC旗舰店看开不开预订<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 15685#       发表于 2024-3-18 16:11
+
+<img src="https://img.saraba1st.com/forum/202403/18/160834qytz19xytgbuf1xy.jpg" referrerpolicy="no-referrer">
+
+<strong>figma1.jpg</strong> (79.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160834agxgfxdyfig91g9g.jpg" referrerpolicy="no-referrer">
+
+<strong>figma2.jpg</strong> (98.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160834c3kxsxl335ic3n7x.jpg" referrerpolicy="no-referrer">
+
+<strong>figma3.jpg</strong> (104.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160834oohq5zxqvdo55qdx.jpg" referrerpolicy="no-referrer">
+
+<strong>figma4.jpg</strong> (100.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160834jpdp6h89pled9fpp.jpg" referrerpolicy="no-referrer">
+
+<strong>figma5.jpg</strong> (83.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160834gkll4kkkzcgbz4uh.jpg" referrerpolicy="no-referrer">
+
+<strong>figma6.jpg</strong> (97.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160834dup557p33883ktpz.jpg" referrerpolicy="no-referrer">
+
+<strong>figma7.jpg</strong> (90.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160835oyty4yv4lyloxxo6.jpg" referrerpolicy="no-referrer">
+
+<strong>figma8.jpg</strong> (112.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160835lwgqqhwq487p4404.jpg" referrerpolicy="no-referrer">
+
+<strong>figma9.jpg</strong> (85.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160835lggwwuvbabezbedp.jpg" referrerpolicy="no-referrer">
+
+<strong>figma10.jpg</strong> (73.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160835b2p6t1z2acl2tcrc.jpg" referrerpolicy="no-referrer">
+
+<strong>figma11.jpg</strong> (95.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160835bwp72xewowoq8kik.jpg" referrerpolicy="no-referrer">
+
+<strong>figma12.jpg</strong> (100.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160835w8fzg9mgsqjgmozq.jpg" referrerpolicy="no-referrer">
+
+<strong>figma13.jpg</strong> (114.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/160836taonwwn3j51u6nj4.jpg" referrerpolicy="no-referrer">
+
+<strong>figma14.jpg</strong> (192.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 16:08 上传
+
+虽然DX版贵但是做得是真不错，配件量巨多，通天术和火箭盾都很顶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+figma游戏线做得大多不错，这次林克的关节也都翻新了看得出来用心程度，有兴趣的话还是建议预订一个（容易出货炒价）<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

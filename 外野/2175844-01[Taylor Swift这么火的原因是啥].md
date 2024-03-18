@@ -1018,3 +1018,13 @@ https://www.zaobao.com/news/world/story20240315-3157514</blockquote>
 
 不过再继续写和男人谈恋爱分手的歌就太刻意了，我看有人喷她说你都35了，还用but daddy i love him这种十几岁的小女生才会用的语言来给自己的歌去标题，不肉麻？想想确实是这么回事，她现在创作就彻底是为了钱创作，工业机器，呵呵
 
+
+*****
+
+####  IG.430  
+##### 106#       发表于 2024-3-18 08:50
+
+kanye：我都说了i made that bitch famous你还要问几遍
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

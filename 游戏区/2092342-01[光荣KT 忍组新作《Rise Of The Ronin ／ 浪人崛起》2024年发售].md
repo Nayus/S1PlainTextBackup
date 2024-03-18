@@ -5419,3 +5419,13 @@ tips之类的窗口关闭需要长按数秒叉感觉很恼人,建议关闭长按
 
 ffo不就有难度选择并且通关解锁新难度么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  垃圾网站上  
+##### 1212#       发表于 2024-3-18 08:48
+
+预载107g，体量可以
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

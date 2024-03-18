@@ -6074,3 +6074,11 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  会长辅佐  
+##### 532#       发表于 2024-3-18 22:32
+
+奇数槽情况下全是钢铁红印K的话蓝图是怎么分配给默剧和公爵？优先给公爵吗
+

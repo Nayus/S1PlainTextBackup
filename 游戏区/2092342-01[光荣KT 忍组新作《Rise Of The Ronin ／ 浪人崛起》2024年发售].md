@@ -5445,3 +5445,14 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 处决变成了长按三角的意思么，但是对倒地补刀感觉也不需要短按三角阿，没看懂
 
+
+*****
+
+####  RushMove  
+##### 1215#       发表于 2024-3-18 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64286802&amp;ptid=2092342" target="_blank">新世界的派蒙 发表于 2024-3-18 10:20</a>
+
+处决变成了长按三角的意思么，但是对倒地补刀感觉也不需要短按三角阿，没看懂 ...</blockquote>
+我猜是某种秒杀敌人的技能，类似于对马岛的战鬼模式
+

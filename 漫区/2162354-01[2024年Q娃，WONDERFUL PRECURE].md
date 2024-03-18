@@ -1529,3 +1529,18 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 兔子本来给我的感觉是偏无口呆萌，结果这话有小麦当翻译才发现话还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真想象不出来假如他是追加会是个啥人设
 
+
+*****
+
+####  碎镜子  
+##### 1217#       发表于 2024-3-18 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64286762&amp;ptid=2162354" target="_blank">modedd 发表于 2024-3-18 10:17</a>
+
+猫猫明显不是自闭，是标准猫主子性格，跟主人应该是正好相反
+
+兔子本来给我的感觉是偏无口呆萌，结果这话有 ...</blockquote>
+猫应该比较独，不喜欢和人打交道。
+
+兔子这回还安慰人，应该是大哥性格
+

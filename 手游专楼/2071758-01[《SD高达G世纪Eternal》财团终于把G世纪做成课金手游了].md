@@ -460,3 +460,11 @@ G世纪全收集才是买点啊，刷图折磨自己是闹哪样啊
 
 这游戏还没有消息~~~233错过了SEED FREEDOM剧场版这波热度，接下去有的等了吧
 
+
+*****
+
+####  Meiien  
+##### 45#       发表于 2024-3-18 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真死了吧，然后把手游废料改一改做成新作
+

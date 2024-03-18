@@ -5813,3 +5813,34 @@ PDD上浪人用完券还559，绝了，马云上还便宜些
 
 没有偷跑的直播，这么无人问津的吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 1252#       发表于 2024-3-18 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293294&amp;ptid=2092342" target="_blank">MuramasaSP 发表于 2024-3-18 21:23</a>
+数字版下了个日语语音包，不知道为啥过了几秒就显示下完了，很奇怪。</blockquote>
+请问数字语音包在哪里下啊，半天没找到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zqqwe  
+##### 1253#       发表于 2024-3-18 23:26
+
+系统语言调日语就可以默认只下载日语语音包，不用多个英语占空间
+
+*****
+
+####  桥洞底下盖小被  
+##### 1254#       发表于 2024-3-18 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294186&amp;ptid=2092342" target="_blank">conanoysq 发表于 2024-3-18 23:22</a>
+
+请问数字语音包在哪里下啊，半天没找到
+
+—— 来自 S1Fun</blockquote>
+option—管理游戏内容
+

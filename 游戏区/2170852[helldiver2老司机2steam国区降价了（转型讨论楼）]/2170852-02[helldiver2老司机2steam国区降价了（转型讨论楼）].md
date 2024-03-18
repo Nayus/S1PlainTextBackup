@@ -5518,3 +5518,14 @@ IMG_5425.jpeg
 
 <img src="https://img.saraba1st.com/forum/202403/18/230341fous7ldkrx7kmxlu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 2012#       发表于 2024-3-18 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294000&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-3-18 22:56</a>
+
+说起来红土那张虫子图光照好瞎眼啊，随便跑到路灯底下就要被晃瞎了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，刮火龙卷的时候更瞎
+

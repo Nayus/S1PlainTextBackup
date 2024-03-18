@@ -834,3 +834,11 @@ BT的特点注定了老资源基本不能指望，但下载新出的动画之类
 
 随便下了部片分享率居然有10以上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  养生侠  
+##### 86#       发表于 2024-3-19 04:50
+
+日本动作片我还是都用BT
+

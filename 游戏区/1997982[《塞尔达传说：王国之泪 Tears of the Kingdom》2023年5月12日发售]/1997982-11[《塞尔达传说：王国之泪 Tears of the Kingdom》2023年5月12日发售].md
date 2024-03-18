@@ -119,3 +119,14 @@ figma王泪林克近日就要开订了？这样看做得针不戳呀～
 
 —— 来自 vivo V2284A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15683#       发表于 2024-3-18 15:11
+
+这价格感觉还行？（虽然以前并没有买过figma）
+另外大家有推荐购买的地方吗……基于对欧洲的不信任，我感觉我还是倾向于在日本/国内直接买……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -6163,3 +6163,13 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  novyMS  
+##### 4371#       发表于 2024-3-18 15:11
+
+【【1月】奇异贤伴 黑色天使 SYNDUALITY Noir 第23话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/EXDsH7b](https://b23.tv/EXDsH7b)
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

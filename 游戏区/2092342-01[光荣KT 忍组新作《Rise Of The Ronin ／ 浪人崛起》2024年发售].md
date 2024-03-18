@@ -5614,3 +5614,17 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我的实体版怎么还不发货，快发货鸭
 
+
+*****
+
+####  nagitoY  
+##### 1232#       发表于 2024-3-18 15:13
+
+ 本帖最后由 nagitoY 于 2024-3-18 15:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64288031&amp;ptid=2092342" target="_blank">diodio233 发表于 2024-3-18 11:57</a>
+
+如果是资料片那真的比sb 仁 卧 FFO 三段式更新DLC 好多了
+
+这几个游戏在更新完前刷多少都是无用功 ...</blockquote>
+那就不得不提怪猎曙光的怪异调查任务更新了，这游戏真是越刷越恶心自己
+

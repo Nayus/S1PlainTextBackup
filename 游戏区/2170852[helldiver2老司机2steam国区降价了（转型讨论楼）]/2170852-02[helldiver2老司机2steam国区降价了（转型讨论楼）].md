@@ -5426,3 +5426,14 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  赤井稻妻  
+##### 2003#       发表于 2024-3-18 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291097&amp;ptid=2170852" target="_blank">拔丝光头 发表于 2024-3-18 17:02</a>
+
+一个月肝1000超级货币，箭头真当玩家24H住在游戏里？</blockquote>
+实际上债券售价是700，里面能用勋章换出300的超级货币，然后没事打打清清图，多开双人仓库一个月肯定够，就是氪金服装不一定有钱买就是了
+

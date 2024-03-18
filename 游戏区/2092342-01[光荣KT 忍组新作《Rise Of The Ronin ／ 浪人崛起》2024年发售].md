@@ -5456,3 +5456,25 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 处决变成了长按三角的意思么，但是对倒地补刀感觉也不需要短按三角阿，没看懂 ...</blockquote>
 我猜是某种秒杀敌人的技能，类似于对马岛的战鬼模式
 
+
+*****
+
+####  雾生司  
+##### 1216#       发表于 2024-3-18 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64285424&amp;ptid=2092342" target="_blank">RushMove 发表于 2024-3-18 07:45</a>
+
+这应该指的是新周目解锁更高难度吧</blockquote>
+但是他的说法是跟仁王类似,已知二周目会解锁一个限定难度.加上这次还是有刷的词条所以我只是好奇会不会有更高的周目,因为开放世界跟多周目的设计本身不是很搭。
+
+
+*****
+
+####  雾生司  
+##### 1217#       发表于 2024-3-18 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64286802&amp;ptid=2092342" target="_blank">新世界的派蒙 发表于 2024-3-18 10:20</a>
+
+处决变成了长按三角的意思么，但是对倒地补刀感觉也不需要短按三角阿，没看懂 ...</blockquote>
+是技能树里的技能,处决本身怎么触发没人提到过。
+

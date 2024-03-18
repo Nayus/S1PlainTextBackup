@@ -1,0 +1,424 @@
+﻿
+*****
+
+####  公若不弃  
+##### 1#       楼主       发表于 2024-3-18 18:19
+
+BT 协议至今仍然是最受欢迎的文件共享方式之一，不过加拿大宽带管理公司 Sandvine 发布的数据显示，随着互联网的发展 BT 已经不再是流量王者。
+
+在 2004 年，研究显示 BitTorrent 软件产生的互联网流量占据了总流量的 35%，这是一个高的离谱的数据，也可以反映当时 BitTorrent 是多么受欢迎。
+
+而在 2013 年 BitTorrent 的上传流量仍然占据着互联网总上传流量的 1/3，不过在接下来的几年里，这种趋势开始下降，大约在 2022 年 BitTorrent 的上传流量占比下降到 10% 左右。
+
+随着互联网的发展BitTorrent不再是流量王者 在线视频杀死了BT协议
+
+云存储、在线视频和社交媒体占据着主要流量：
+
+Sandvine 发布的数据报告显示 BitTorrent 已经不再互联网流量的王者，在移动设备上 BitTorrent 都排不到前 10 (显然，很少有用户会在手机上使用 BT 长时间下载内容)。
+
+在固定设备中 BitTorrent 仍然排名第六，不过在美国的流量占比只有 4%，平均每用户上传 46MB 的数据。
+
+报告将这 46MB 的数据归因于少数用户产生的，也就是目前只有少数用户仍然秉承着互联网分享的理念，继续通过 BitTorrent 共享大量的数据，而大部分用户贡献的上传流量可能要少得多。
+
+网盘和在线视频 (包括盗版视频网站) 杀死了 BT 协议：
+
+在过去十年盗版影视资源都一直是 BT 协议大流量的主要来源，不过正如 Netflix 此前抱怨的那样，现在的盗版影视资源网站也都开始提供在线点播了，用户无需下载即可在线观看，这种体验要比通过 BT 协议下载影视资源方便得多。
+
+加之云存储 / 网盘类的应用兴起，人们使用 BT 下载的内容可能会越来越少，这也是 BitTorrent 占据的流量大幅度下跌的原因。
+
+当然从技术进步角度来说，无论是云存储 / 网盘还是在线视频 (包括盗版)，都为用户提供了一种更简单的方式获取资源，而不是要长时间等待，所以从这个角度来说 BitTorrent 的落寞似乎也不是坏事。
+
+不过 BitTorrent 的核心在于 P2P 共享，有些资源尤其是盗版内容可能会因为严格审查而被在线服务所禁止，而 P2P 可能就是最后一道防线。
+
+https://www.landiannews.com/archives/102900.html
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Nanachi  
+##### 2#       发表于 2024-3-18 18:23
+
+公网bt无法应对只吸不传的吸血客户端，更别提国内现在还有些闲的蛋疼的人专门吸公网种子上传流量，谎报进度
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nukacolamania  
+##### 3#       发表于 2024-3-18 18:25
+
+本地党们，得抓紧时间保存互联网共享精神的火种了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  hcho  
+##### 4#       发表于 2024-3-18 18:27
+
+还在用bt，pt玩了一下没保住，算了nas里慢慢拖了
+
+*****
+
+####  whzfjd  
+##### 5#       发表于 2024-3-18 18:28
+
+bt的可用性被高估了，没那么多人传火，那区块链的矿机能供养多久呢
+
+*****
+
+####  找蟹男  
+##### 6#       发表于 2024-3-18 18:29
+
+isp也杀死了bt。最近申请的宽带只有4096连接数
+
+*****
+
+####  kyomu  
+##### 7#       发表于 2024-3-18 18:34
+
+bt 基本不是热门的资源，很快就死链了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  日日夜夜  
+##### 8#       发表于 2024-3-18 18:35
+
+除了客户端的默认行为外，bt的上传和更关键的续种都是靠我为人人(且完全不保证有回报)的自觉，现在看来这种机制没有可持续性，靠这样的机制维护资源显然是不现实的
+
+只能算是一种半失败的现代社会实验
+
+*****
+
+####  处男鉴黄师  
+##### 9#       发表于 2024-3-18 18:37
+
+我曾见过你们版权时代小子们无法置信的事，比特大陆全是最新美剧的种子，VeryCD有各种电影和音乐的资源，动漫花园发布页贴满了字幕组压制的新番，
+
+All those moments will be lost in time, like tears in rain.
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 9战斗力 +9
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rocinante| + 1||
+| 仟音一心| + 1|Time to download.|
+| Colourful.zi| + 1||
+| 谎称| + 1|思路广|
+| guoe| + 1|俺也一样|
+| 再买自检星剁手| + 1|好评加鹅|
+| nukacolamania| + 1|我见过，这辈子值了|
+| KDConan| + 1|欢乐多|
+| 雪映风影| + 1|艹|
+
+查看全部评分
+
+*****
+
+####  Jet.Black  
+##### 10#       发表于 2024-3-18 18:43
+
+真的假的，我只用公网BT，感觉下得很快啊。
+
+*****
+
+####  小妻水亚美  
+##### 11#       发表于 2024-3-18 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291961&amp;ptid=2176037" target="_blank">日日夜夜 发表于 2024-3-18 18:35</a>
+除了客户端的默认行为外，bt的上传和更关键的续种都是靠我为人人(且完全不保证有回报)的自觉，现在看来这种 ...</blockquote>
+最理想的情况就是大家24小时不关机，下载完文件永远不删除剪切保持上传状态。
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  208208  
+##### 12#       发表于 2024-3-18 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291974&amp;ptid=2176037" target="_blank"> 处男鉴黄师 发表于 2024-3-18 18:37</a> 我曾见过你们版权时代小子们无法置信的事，比特大陆全是最新美剧的种子，VeryCD有各种电影和音乐的资源，动漫花园发布页贴满了字幕组压制的新番， All those moments will be lost in time, like tears in rain. </blockquote>
+l说得好，但是现在已经是银翼杀手2024了
+时代变了，大人来自: iPhone客户端
+
+*****
+
+####  jaewoongh_  
+##### 13#       发表于 2024-3-18 18:44
+
+老种的存续是个老大难问题，新种你能挂一两天也算是功德无量了
+
+*****
+
+####  小野賢章  
+##### 14#       发表于 2024-3-18 18:46
+
+下载大模型利好 BT
+
+*****
+
+####  agsva  
+##### 15#       发表于 2024-3-18 18:49
+
+这东西不是说隐秘性不好么？老美那边一用就会收到网络提供商的警告邮件。
+
+*****
+
+####  无敌可爱猫  
+##### 16#       发表于 2024-3-18 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291951&amp;ptid=2176037" target="_blank">kyomu 发表于 2024-3-18 18:34</a>
+bt 基本不是热门的资源，很快就死链了
+
+论坛助手,iPhone</blockquote>
+确实，一堆老资源没人做种
+
+*****
+
+####  露崎まひる  
+##### 17#       发表于 2024-3-18 18:59
+
+我一般新种挂一个周，我觉得我已经是功德无量了
+
+*****
+
+####  日日夜夜  
+##### 18#       发表于 2024-3-18 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292019&amp;ptid=2176037" target="_blank">小妻水亚美 发表于 2024-3-18 18:43</a>
+
+最理想的情况就是大家24小时不关机，下载完文件永远不删除剪切保持上传状态。
+
+—— 来自 OPPO PGFM10, A ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/248.png" referrerpolicy="no-referrer">如果是用作资源维护和共享设计的协议，不能靠理想情况，而是尽量保证一段时间内有几个人请求过的这种资源，至少有几个人能在这一段时间内续过种，一段时间可以是一天也可以是一周，保障了这种底线，就算是一直能用的好协议
+
+原始的bitorrent就没有这种社会化的设计
+
+*****
+
+####  leafS  
+##### 19#       发表于 2024-3-18 19:01
+
+唉，时代早就变了
+
+*****
+
+####  shudushimo  
+##### 20#       发表于 2024-3-18 19:01
+
+bt已死，然而pt大站的邀请还是一药难求
+
+*****
+
+####  天堂懵懂人  
+##### 21#       发表于 2024-3-18 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">普通用户没这么大的硬盘放老资源啊    
+
+*****
+
+####  丧失大狗头  
+##### 22#       发表于 2024-3-18 19:04
+
+<blockquote>日日夜夜 发表于 2024-3-18 18:35
+除了客户端的默认行为外，bt的上传和更关键的续种都是靠我为人人(且完全不保证有回报)的自觉，现在看来这种 ...</blockquote>
+不是原来这也能反思的吗？
+
+简单来说不就是因为在线视频年代获取资源更方便加上视频网站的打压造成的bt势微么
+
+还能扯上互联网道德我也是没想到的
+
+而且这种原理注定人越少就越难用
+
+*****
+
+####  夜留歌  
+##### 23#       发表于 2024-3-18 19:06
+
+utorrent默认开机启动，动画种子一直挂着好像一般也没啥人下载，分享比到1的不多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  satanas  
+##### 24#       发表于 2024-3-18 19:08
+
+其实不是BT有问题 是BT的发布页被大量打击而已
+
+*****
+
+####  日日夜夜  
+##### 25#       发表于 2024-3-18 19:08
+
+ 本帖最后由 日日夜夜 于 2024-3-18 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292241&amp;ptid=2176037" target="_blank">丧失大狗头 发表于 2024-3-18 19:04</a>
+
+不是原来这也能反思的吗？
+
+简单来说不就是因为在线视频年代获取资源更方便加上视频网站的打压造成的bt势 ...</blockquote>
+bitorrent又不是我写的，我就一个bt和pt使用者，分享率一直在1:10以上，我说的话当然不是反思啊，要反思我都没这个资格
+
+至于你说的资源获取和视频站打压，那我说的就是只有做好保底的协议才能更不容易被打压
+
+*****
+
+####  dffgf  
+##### 26#       发表于 2024-3-18 19:10
+
+冷门资源的问题在于，资源也是没人要才冷门的啊。。。。
+
+就算你一直挂着，没人要一直也没有上传量的 
+
+*****
+
+####  fuckingworld  
+##### 27#       发表于 2024-3-18 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291918&amp;ptid=2176037" target="_blank">找蟹男 发表于 2024-3-18 18:29</a>
+isp也杀死了bt。最近申请的宽带只有4096连接数</blockquote>
+要那么多连接没用，只要双方速度够快，10个连接就够跑满带宽了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ⑨个饼干  
+##### 28#       发表于 2024-3-18 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292241&amp;ptid=2176037" target="_blank">丧失大狗头 发表于 2024-3-18 19:04</a>
+
+不是原来这也能反思的吗？
+
+简单来说不就是因为在线视频年代获取资源更方便加上视频网站的打压造成的bt势 ...</blockquote>
+正确的。这是技术迭代的结果，BT体验变差了不是大家不发善心了，而是发善心的人去免费分享自己的网盘账号了而已。
+
+*****
+
+####  实津二三  
+##### 29#       发表于 2024-3-18 19:11
+
+偶尔用bangumi.moe下载一些比较旧的动画，速度还是蛮快的。
+
+*****
+
+####  CALPISSODA  
+##### 30#       发表于 2024-3-18 19:15
+
+<blockquote>丧失大狗头 发表于 2024-3-18 19:04
+不是原来这也能反思的吗？
+
+简单来说不就是因为在线视频年代获取资源更方便加上视频网站的打压造成的bt势 ...</blockquote>
+在线视频对BT的挤压感觉反而不大，尤其国内各种不让播、审核长而且爱阉割的情况下，其实分享资源还是有用的。现在能纯靠版权在线视频过的人放以前也就是懒得用或者不愿意学用BT的那群人。
+
+真正挤压BT生态位的我觉得是网盘和磁力。
+
+*****
+
+####  嘘月姫  
+##### 31#       发表于 2024-3-18 19:15
+
+ 本帖最后由 嘘月姫 于 2024-3-18 19:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291974&amp;ptid=2176037" target="_blank">处男鉴黄师 发表于 2024-3-18 18:37</a>
+我曾见过你们版权时代小子们无法置信的事，比特大陆全是最新美剧的种子，VeryCD有各种电影和音乐的资源，动 ...</blockquote>
+就以前新番组还要靠人肉在日本搞tvrip的那个效率有现在直接盗国外流媒体源高？
+
+*****
+
+####  很久就在那边l  
+##### 32#       发表于 2024-3-18 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291974&amp;ptid=2176037" target="_blank">处男鉴黄师 发表于 2024-3-18 18:37</a>
+我曾见过你们版权时代小子们无法置信的事，比特大陆全是最新美剧的种子，VeryCD有各种电影和音乐的资源，动 ...</blockquote>
+我只下av和日本动画，我觉得现在更好
+
+*****
+
+####  很久就在那边l  
+##### 33#       发表于 2024-3-18 19:40
+
+正版在线和网盘都要钱，盗版小网站体验极差，新资源还是BT好使
+
+*****
+
+####  t09mmc  
+##### 34#       发表于 2024-3-18 19:47
+
+我是真讨厌网盘，不买会员根本下不动。
+
+*****
+
+####  塔奇克马  
+##### 35#       发表于 2024-3-18 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291974&amp;ptid=2176037" target="_blank">处男鉴黄师 发表于 2024-3-18 18:37</a>
+
+我曾见过你们版权时代小子们无法置信的事，比特大陆全是最新美剧的种子，VeryCD有各种电影和音乐的资源，动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">那个时代家里宽带直接就是公网IP
+
+*****
+
+####  Jet.Black  
+##### 36#       发表于 2024-3-18 19:51
+
+不懂为什么有人总说以前好，
+
+以前那些糊成一团的480p RMVB，还会有人看么？
+
+现在BT上有那么多4K原盘不好么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nekomimimode  
+##### 37#       发表于 2024-3-18 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是dmhy还在啊
+
+*****
+
+####  naclken.  
+##### 38#       发表于 2024-3-18 19:52
+
+BT审核怎么可能比网盘还严格
+
+是吧百度<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skyuni  
+##### 39#       发表于 2024-3-18 19:55
+
+我有个03年左右的老动画去pirate-proxy才拖完
+
+之后做了很久种，上传还是0.00，看来大家要看也用网盘了，只有老害在用bt<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccc183  
+##### 40#       发表于 2024-3-18 19:57
+
+俄国人是不是很有BT精神，从rutrack上下很多老资源虽然就个位数的种子但是居然能完整下完
+
+
+*****
+
+####  aithinkso  
+##### 41#       发表于 2024-3-18 19:58
+
+电驴其实挺好的，下载后改目录结构、改名都不影响分享
+
+*****
+
+####  stunflare  
+##### 42#       发表于 2024-3-18 20:00
+
+verycd别吹了，在当年emule圈鄙视链也就比vagaa高一点
+

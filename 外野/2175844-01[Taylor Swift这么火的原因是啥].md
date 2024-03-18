@@ -1306,3 +1306,22 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 火吗？没觉得有什么特别
 
+
+*****
+
+####  sprongs  
+##### 137#       发表于 2024-3-18 19:56
+
+个人还是喜欢之前乡村风，凯业挑拨后实际上偏朋克了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  sdhgak1234  
+##### 138#       发表于 2024-3-18 19:56
+
+<blockquote>miruhi 发表于 2024-3-18 19:16
+这几个是白人？？？</blockquote>
+没看仔细，那没了
+

@@ -6420,3 +6420,29 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 这集翻译有点灾难 还是等字幕组好了
 
+
+*****
+
+####  novyMS  
+##### 4398#       发表于 2024-3-19 05:49
+
+这是太空版瓦修陵墓吧
+
+976d0c8317bbc2de68d852a68600d22d.jpg
+(207.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 05:48 上传
+
+<img src="https://img.saraba1st.com/forum/202403/19/054841nhhpzmjjp5h878u8.jpg" referrerpolicy="no-referrer">
+
+2445ebb8a104bcd1628838b3bce53d1a.jpg
+(296.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 05:48 上传
+
+<img src="https://img.saraba1st.com/forum/202403/19/054843sphx89pzcw8mbpcc.jpg" referrerpolicy="no-referrer">
+

@@ -6060,3 +6060,17 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 挑战就打了三个，收藏解锁90%，牌组打了一次红注，最高一手2500多万，回合34底注11，和大佬比啥也不是
 
+
+*****
+
+####  a4ac7  
+##### 531#       发表于 2024-3-18 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291646&amp;ptid=2154925" target="_blank">mtbull 发表于 2024-3-18 18:01</a>
+沉迷了30小时，有点无聊了，感觉大部分机制都熟悉了就等运气来，没有开荒阶段的乐趣了
+
+挑战就打了三个，收 ...</blockquote>
+普通玩家打一个金注，全卡组白注 和全挑战我觉得差不多了
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

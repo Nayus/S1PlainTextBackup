@@ -5740,3 +5740,15 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 偷跑快端上来罢
 
+
+*****
+
+####  zqqwe  
+##### 1244#       发表于 2024-3-18 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291630&amp;ptid=2092342" target="_blank">WhiteGlint 发表于 2024-3-18 17:58</a>
+又不一定对面就一个人。
+我来助你一臂之力！
+好！我们一起上吧</blockquote>
+肯定有新选组一起上的任务，还原历史<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

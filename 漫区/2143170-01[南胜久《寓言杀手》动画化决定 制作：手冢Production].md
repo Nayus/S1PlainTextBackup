@@ -468,3 +468,13 @@ TVアニメ『#ザ・ファブル』
 
 这怎么看高桥也就是个挂名，最多总体上点拨几笔的那种<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">参与度估计还不如幕末机关说
 
+
+*****
+
+####  16B  
+##### 47#       发表于 2024-3-19 00:13
+
+变相加强了漫画的吸引力<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+这部漫画从角色到作者都是专家，那么为什么动画交不到专家手里呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

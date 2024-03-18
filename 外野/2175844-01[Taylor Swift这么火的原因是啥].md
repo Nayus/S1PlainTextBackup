@@ -1230,3 +1230,13 @@ kanye：我都说了i made that bitch famous你还要问几遍
  我读书的时候她还是吹的什么乡村</blockquote>
 乡村音乐歌手<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LilyWhite  
+##### 128#       发表于 2024-3-18 18:56
+
+<blockquote>amzonme 发表于 2024-3-17 10:44
+之前听了不少她的歌，感觉都非常口水，一点都不觉得好听。</blockquote>
+就她这出歌速度，口水歌多太正常了，这个产量要是精品多岂不是逆天
+

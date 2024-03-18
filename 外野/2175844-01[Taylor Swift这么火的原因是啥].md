@@ -1065,3 +1065,35 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 记得有一阵有张saber发型的照片还在二次冤出过圈吧
 
+
+*****
+
+####  barry.allen  
+##### 111#       发表于 2024-3-18 10:02
+
+我叠个甲
+
+我首先不喜欢泰勒斯威夫特的歌，我觉得她看似风格多样化但其实都走的不太远，全靠制作团队衬托。其次是她天天关注自己那点狗屁倒灶的感情生活和没啥值得一提的个人心路历程，其作为创作者的精神肤浅程度比艾德·希兰强点有限。
+
+但喷完了要说，泰勒斯威夫特能火
+
+1.产量高，会营销。能打的没她出歌多，比她出歌多的营销没她那么6。
+
+2.美国音乐圈少数自己给自己当老板不是大厂rbq的歌手，当然这和她爹是华尔街金融大佬，本身是富二代的家庭氛围也有关系，能找到靠谱人帮她打理。
+
+3. 再怎么黑她终究自己是个创作型歌手，这种在音乐圈默认高一档，嘲讽一个人音乐显示其人格肤浅的前提是这人的音乐是自我表达的一部分，泰勒斯威夫特算是还在这么干的。
+
+4.<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可能有女权要素，我见过活的泰勒斯威夫特铁粉就俩，都是女的，如果有男粉请您过来发言一下您为啥粉她
+
+*****
+
+####  barry.allen  
+##### 112#       发表于 2024-3-18 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64283534&amp;ptid=2175844" target="_blank">razielzyc 发表于 2024-3-17 22:21</a>
+
+劳模。一个她一个麦当娜，都是强者级身体素质。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">斯威夫特能唱跳？
+
+虽然麦当娜也不能唱跳吧，但起码现场实打实的在跳
+

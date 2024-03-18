@@ -987,3 +987,15 @@ k组来国内吧<img src="https://static.saraba1st.com/image/smiley/face2017/030
 
 看到有人挂过，sma对这方面管的吗
 
+
+*****
+
+####  starring  
+##### 19809#       发表于 2024-3-18 11:37
+
+印度尼西亚的漫展
+
+<img src="https://p.sda1.dev/16/e04c6c4d027271458c9061a2b7dfa48a/CMP_20240318113649259.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

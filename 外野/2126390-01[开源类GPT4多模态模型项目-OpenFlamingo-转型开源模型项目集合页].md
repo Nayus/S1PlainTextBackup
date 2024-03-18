@@ -313,3 +313,18 @@ POKELLMON受到了消耗战策略的困扰:对手玩家经常恢复高防御的�
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yesicant  
+##### 1245#         楼主| 发表于 2024-3-19 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64295183&amp;ptid=2126390" target="_blank">李少卿 发表于 2024-3-19 07:24</a>
+
+大佬不更新了吗？
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+感觉最近还沉浸在春节<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+实际上最近没啥大的进展，生态也逐渐起来了，这楼也许可以转讨论楼？
+

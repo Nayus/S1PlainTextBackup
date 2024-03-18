@@ -5478,3 +5478,25 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 处决变成了长按三角的意思么，但是对倒地补刀感觉也不需要短按三角阿，没看懂 ...</blockquote>
 是技能树里的技能,处决本身怎么触发没人提到过。
 
+
+*****
+
+####  nagitoY  
+##### 1218#       发表于 2024-3-18 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64287027&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-18 10:37</a>
+
+但是他的说法是跟仁王类似,已知二周目会解锁一个限定难度.加上这次还是有刷的词条所以我只是好奇会不会有 ...</blockquote>
+仁王、ffo的本体都是二周目解锁一个新难度，之后三个dlc一个dlc解锁一个更进阶的难度。这次浪人的dlc一点影子都没有，不知道是ps的宣发策略，还是暂时没打算做dlc
+
+
+*****
+
+####  雾生司  
+##### 1219#       发表于 2024-3-18 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64287176&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-18 10:48</a>
+
+仁王、ffo的本体都是二周目解锁一个新难度，之后三个dlc一个dlc解锁一个更进阶的难度。这次浪人的dlc一点 ...</blockquote>
+主要还是开放世界跟关卡制的区别,我是觉得不太能放在一起比较.
+

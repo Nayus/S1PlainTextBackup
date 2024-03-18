@@ -51,3 +51,11 @@
 セシル：福島 潤
 <img src="https://p.sda1.dev/16/0d4958346e954451268471ebef0ca59a/20240315_130804.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 69#       发表于 2024-3-18 10:50
+
+早知道有异世界猫女是不是就不用费那么多事直接去remake就完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

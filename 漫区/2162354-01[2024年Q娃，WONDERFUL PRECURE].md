@@ -1544,3 +1544,16 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 
 兔子这回还安慰人，应该是大哥性格
 
+
+*****
+
+####  modedd  
+##### 1218#       发表于 2024-3-18 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64286889&amp;ptid=2162354" target="_blank">碎镜子 发表于 2024-3-18 10:26</a>
+
+猫应该比较独，不喜欢和人打交道。
+
+兔子这回还安慰人，应该是大哥性格</blockquote>
+按剧透猫猫人间体还是个金毛，反正肯定跟她主人那个阴角性格不沾边就是了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

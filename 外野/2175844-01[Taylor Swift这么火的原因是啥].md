@@ -1136,3 +1136,20 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 寄的初中看女同学的杂质，上面就有推，我只记得一胳膊浓密的汗毛，感概白人体毛就是猛啊
 
+
+*****
+
+####  baiduwtf  
+##### 117#       发表于 2024-3-18 10:51
+
+只能说商业运作比较精准，没有涸泽而渔，基本3年一专，也就疫情那三年突然产出两专民谣，连专辑重录也是因为版权利益问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sdhgak1234  
+##### 118#       发表于 2024-3-18 10:55
+
+<blockquote>slugger 发表于 2024-3-18 09:25
+现在还有什么同咖位的白人男歌手么</blockquote>
+没有，drake The Weeknd 马龙可能各自峰值高些，但待机时间差不多三个人加起来和她差不多
+

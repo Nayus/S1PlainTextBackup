@@ -6189,3 +6189,11 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  三合一出现  
+##### 4373#       发表于 2024-3-18 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面快乐源泉被最后这几集给破坏完了，你说这个故事有男女主啥事吗，他们配当作品主题吗。
+

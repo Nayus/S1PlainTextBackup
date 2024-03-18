@@ -1248,3 +1248,36 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 高白壮美+会唱会跳，有正常xp的都会喜欢。
 
+
+*****
+
+####  miruhi  
+##### 130#       发表于 2024-3-18 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64287274&amp;ptid=2175844" target="_blank">sdhgak1234 发表于 2024-3-18 10:55</a>
+
+没有，drake The Weeknd 马龙可能各自峰值高些，但待机时间差不多三个人加起来和她差不多 ...</blockquote>
+这几个是白人？？？
+
+
+*****
+
+####  白愁帝皇  
+##### 131#       发表于 2024-3-18 19:22
+
+我一直觉得霉霉是一种欧美圈特供的流量爱豆，前面吹她唱跳水平是认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪霜  
+##### 132#       发表于 2024-3-18 19:23
+
+歌没听过不评价，长相身材感觉都很一般啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CrayS1  
+##### 133#       发表于 2024-3-18 19:25
+
+不如说说如她不火，谁应该更火？
+

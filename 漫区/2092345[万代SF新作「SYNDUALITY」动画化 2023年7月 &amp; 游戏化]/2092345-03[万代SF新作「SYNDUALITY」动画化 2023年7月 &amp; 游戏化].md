@@ -6173,3 +6173,19 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  novyMS  
+##### 4372#       发表于 2024-3-18 15:31
+
+<img src="https://img.saraba1st.com/forum/202403/18/153154v2vd7ggg1g2qvbv2.jpg" referrerpolicy="no-referrer">
+
+<strong>F3DAE48D9DD7F3A412118202878922A7.jpg</strong> (502.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 15:31 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

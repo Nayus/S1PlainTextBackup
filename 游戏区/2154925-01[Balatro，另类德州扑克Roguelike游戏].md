@@ -6037,3 +6037,16 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 玩了8小时了，最低难度还一次没赢过，破防了
 
+
+*****
+
+####  himtom  
+##### 529#       发表于 2024-3-18 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64276311&amp;ptid=2154925" target="_blank">夜_乌鸦 发表于 2024-3-17 00:40</a>
+
+有些牌是要高难度才解锁的嘛？刚打过几次普通难度是要慢慢往上加难度了是吗 ...</blockquote>
+没有吧，我印象中白注就可以全解锁，你把鼠标移到锁着的项目上就能看到解锁条件
+
+不过肉鸽游戏的老问题在这游戏依然存在，解锁多了不一定是好事，会有一堆不好用的东西污染你的卡池
+

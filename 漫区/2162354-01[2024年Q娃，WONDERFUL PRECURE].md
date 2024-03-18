@@ -1499,3 +1499,11 @@ q娃周边从来没有这个风格的 大概是外包草台 糊弄精修一下 �
 所以说，小麦之前为什么用不了指挥棒。不会真是万代的问题吧(</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">认真讲，应该是因为之前狗子当Q娃只是为了主人，这集想通了做Q娃是为了みんな元気、みんななかよし，舍小我为大我所以玩具绝缘片就自动消失了吧
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 1214#       发表于 2024-3-18 09:04
+
+好傻的狗 我宣布犬Q日常回含金量已经爆了天Q<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -868,3 +868,16 @@ By Takashi Mochizuki
 
 望月崇帮索尼腰斩的vr2首发销量补上了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈词与芍药  
+##### 265#       发表于 2024-3-18 13:52
+
+ 本帖最后由 陈词与芍药 于 2024-3-18 01:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64269834&amp;ptid=2173605" target="_blank">ohi.02 发表于 2024-3-15 21:42</a>
+预计会支持，说个插曲，昨天程序老总发邮件提到索尼非常担心技术信息泄露，要求我们不能和xbox平台团队谈 ...</blockquote>
+问题是动视暴雪怎么看都是微软子公司，还真的能说不给就不给么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

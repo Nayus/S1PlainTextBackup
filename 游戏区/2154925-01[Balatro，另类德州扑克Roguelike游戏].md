@@ -6029,3 +6029,11 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 有些牌是要高难度才解锁的嘛？刚打过几次普通难度是要慢慢往上加难度了是吗
 
+
+*****
+
+####  舌怪  
+##### 528#       发表于 2024-3-18 13:55
+
+玩了8小时了，最低难度还一次没赢过，破防了
+

@@ -2478,3 +2478,11 @@ vspo突然就有了个新人
 
 跟了两场直播感觉活泼老爷爷可爱捏，管人吃滤镜太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  バーチャルS1er  
+##### 109#       发表于 2024-3-18 13:48
+
+vspo枪女的枪力要到多少才算有保障？不算送的apex赛季能solo到大师？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -235,3 +235,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">150金月又不能换RMB，我是缺角色直接换了，石油武反正没有总有办法玩。
 
+
+*****
+
+####  Aureth  
+##### 17784#       发表于 2024-3-18 13:54
+
+光4琴2短1剑，火2斧1枪1剑，水1伞1兰不想继续方阵了。缺的有影响的限定大概就情人节汉女和狗，月末要拿牛因此都没有拿他们的计划。new柯洁，new水天司，第二把泽枪怎么选，纠结了一天了…
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -484,3 +484,57 @@ Steam用的也是BT协议分发吧？
 在线视频对BT的挤压感觉反而不大，尤其国内各种不让播、审核长而且爱阉割的情况下，其实分享资源还是有用 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">磁力就是BT啊
 
+
+*****
+
+####  糊状物  
+##### 49#       发表于 2024-3-18 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292733&amp;ptid=2176037" target="_blank">stunflare 发表于 2024-3-18 20:00</a>
+
+verycd别吹了，在当年emule圈鄙视链也就比vagaa高一点</blockquote>
+被鄙视的是客户端, 和网站的资源有什么关系? 我用xtreme emule还不是一样下
+
+*****
+
+####  循此苦旅  
+##### 50#       发表于 2024-3-18 20:29
+
+这些年一直挂着，上个月又整理了下把硬盘上的一些老资源也都挂上。
+
+<img src="https://img.saraba1st.com/forum/202403/18/202346y89x7tfke8kezlyy.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-18 202304.png</strong> (10.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 20:23 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/202713h2vzvwn129zn3wev.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-03-18 202704.png</strong> (11.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 20:27 上传
+
+
+*****
+
+####  循此苦旅  
+##### 51#       发表于 2024-3-18 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292715&amp;ptid=2176037" target="_blank">aithinkso 发表于 2024-3-18 19:58</a>
+
+电驴其实挺好的，下载后改目录结构、改名都不影响分享</blockquote>
+但是不支持IPv6
+
+*****
+
+####  lynnnnnnn  
+##### 52#       发表于 2024-3-18 20:31
+
+以前用Windows的时候一直BT，那时候视频播放器还有好几种；后来换了Mac加人在国外不敢了，同学里有被寄罚单害房东网被关了的。现在回国了，墙翻不出去，想过BT但萎了也没动力了
+
+所以，作为伸手党，Mac现在BT怎么下？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

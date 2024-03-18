@@ -881,3 +881,11 @@ By Takashi Mochizuki
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  SergeGlenn  
+##### 266#       发表于 2024-3-18 14:49
+
+虽然是望月崇但这消息我还真觉得挺真实的
+

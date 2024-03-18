@@ -538,3 +538,11 @@ verycd别吹了，在当年emule圈鄙视链也就比vagaa高一点</blockquote>
 
 所以，作为伸手党，Mac现在BT怎么下？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lyz1196  
+##### 53#       发表于 2024-3-18 20:36
+
+以后开源大模型不可能只用一台电脑跑，必然是分布式，bt应该尽早转型<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

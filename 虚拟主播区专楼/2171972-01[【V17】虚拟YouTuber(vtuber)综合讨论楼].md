@@ -2516,3 +2516,13 @@ vspo枪女的枪力要到多少才算有保障？不算送的apex赛季能solo�
 虹還在線下活動的樂隊男也只剩倆老熟人了啊，後來招進來幾個新樂隊男估計都吃活動禁令了 ...</blockquote>
 哦哦，不好意思我理解错新鲜的指代了，还以为哪新出道了俩乐队男<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fastary  
+##### 113#       发表于 2024-3-18 23:13
+
+虽然首播效果和首播后订阅最好的是ness，先银盾的倒是魁星，看来有个好皮确实最重要<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+不过魁星打节奏天国确实挺萌的，还知道开朝活杂谈养噶<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

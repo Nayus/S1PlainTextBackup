@@ -826,3 +826,11 @@ BT的特点注定了老资源基本不能指望，但下载新出的动画之类
 
 — from OPPO CPH2173, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  Keiji  
+##### 85#       发表于 2024-3-19 01:50
+
+随便下了部片分享率居然有10以上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

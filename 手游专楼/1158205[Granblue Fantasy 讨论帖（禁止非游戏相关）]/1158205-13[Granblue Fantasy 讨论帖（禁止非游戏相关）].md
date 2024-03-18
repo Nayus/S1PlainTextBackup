@@ -312,3 +312,13 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 猎金我没铳所以不瞎说了</blockquote>
 谢谢，养老咸鱼人士。猎金啥的肯定不去的，高难大概也很少去了。那我就先按2斧头1兰短1天司短配个底子。其他的就用以前的老东西塞凑合就行。
 
+
+*****
+
+####  catcoffee  
+##### 17789#       发表于 2024-3-19 01:53
+
+求教下各位老哥，最近回坑，为了补弱换了把野蛮。没钢转老王了，土龙杖也只有一把。所以土方阵野蛮现在盘子啥样？是不是接着玩宇宙得了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

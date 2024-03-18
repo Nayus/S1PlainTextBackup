@@ -6586,3 +6586,14 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 日任发了2代祭典曲的remix版，美任发了祭典第二天的新歌，真的太难听了，二代是得罪了研究所吗
 
+
+*****
+
+####  绿冰  
+##### 3642#         楼主| 发表于 2024-3-18 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294147&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-3-18 23:18</a>
+
+日任发了2代祭典曲的remix版，美任发了祭典第二天的新歌，真的太难听了，二代是得罪了研究所吗 ...</blockquote>
+第二天的我还觉得挺好听的，第一天的感觉是不如原版，改得太抒情了
+

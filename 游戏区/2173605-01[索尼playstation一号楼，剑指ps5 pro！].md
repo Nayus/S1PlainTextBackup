@@ -836,3 +836,16 @@ VR2这东西真是典型的舍不得沉没成本硬着头皮 ...</blockquote>
 
 暗夜之子说的月底入库，一般是月底啥时候
 
+
+*****
+
+####  ultraseven  
+##### 262#       发表于 2024-3-18 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64287511&amp;ptid=2173605" target="_blank">minysun 发表于 2024-3-18 11:13</a>
+
+彭博社：因库存积压，索尼暂停了PSVR2的生产。 ​​​
+
+VR2这东西真是典型的舍不得沉没成本硬着头皮 ...</blockquote>
+这篇报道是望月崇写的吧。如果是Jason Schreier写的应该不会有争议
+

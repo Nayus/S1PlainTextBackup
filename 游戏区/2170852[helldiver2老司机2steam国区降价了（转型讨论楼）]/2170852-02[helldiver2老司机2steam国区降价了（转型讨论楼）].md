@@ -5353,3 +5353,14 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 新战备和新敌人啥时候出啊，虫子都打腻了，总不能去打机器人吧
 
+
+*****
+
+####  Launce  
+##### 1996#       发表于 2024-3-18 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64289298&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-3-18 14:03</a>
+
+新战备和新敌人啥时候出啊，虫子都打腻了，总不能去打机器人吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">目前看来冤种券月更，社区CG半个月左右，其中请去机器人换换口味
+

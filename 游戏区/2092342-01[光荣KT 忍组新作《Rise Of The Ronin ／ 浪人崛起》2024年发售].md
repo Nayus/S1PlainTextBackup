@@ -5675,3 +5675,11 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 怎么还只有英语语音的，不会这么蠢吧</blockquote>
 盒子印错而已，很常见，语音是英/日，字幕是简中/繁中
 
+
+*****
+
+####  新世界的派蒙  
+##### 1237#       发表于 2024-3-18 16:32
+
+一到五人联机？人形怪还被五人围殴实在太壮观了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

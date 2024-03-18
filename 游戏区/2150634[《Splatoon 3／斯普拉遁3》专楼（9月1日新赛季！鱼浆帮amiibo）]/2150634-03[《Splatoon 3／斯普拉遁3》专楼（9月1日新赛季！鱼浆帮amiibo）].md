@@ -6512,3 +6512,22 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ‮‮‮‮  
+##### 3636#       发表于 2024-3-18 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64289553&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-18 14:28</a>
+
+这双鞋有人拿到了吗？目前没见商店里卖，不知道这赛季能不能碰到，只能每天都去逛一下了</blockquote>
+商店不刷
+
+<img src="https://img.saraba1st.com/forum/202403/18/181832ril1p2yai30p5scz.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (84.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 18:18 上传
+

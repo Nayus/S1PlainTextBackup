@@ -1220,3 +1220,13 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 反正我只知道她唱过一首叫love story的歌，听起来感觉也一般般<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  可鲁  
+##### 127#       发表于 2024-3-18 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64277608&amp;ptid=2175844" target="_blank">zxlice 发表于 2024-3-17 10:29</a>
+ 我读书的时候她还是吹的什么乡村</blockquote>
+乡村音乐歌手<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

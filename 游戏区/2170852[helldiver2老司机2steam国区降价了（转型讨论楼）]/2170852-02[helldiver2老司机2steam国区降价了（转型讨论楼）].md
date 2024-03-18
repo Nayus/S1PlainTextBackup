@@ -5583,3 +5583,13 @@ IMG_5425.jpeg
 
 又是一晚上服务器问题，今天碰上个最离谱的bug。队友走前面丢碰炸雷，不知道网络延迟还是怎么的，手雷丢出去之后，又在最开始出手的地方炸了一次，直接把跟在后头的我（中甲）炸飞了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 2018#       发表于 2024-3-19 00:54
+
+这游戏跟好友联机还是挺稳的，野排感觉主要是没分区匹配，排到鬼佬了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

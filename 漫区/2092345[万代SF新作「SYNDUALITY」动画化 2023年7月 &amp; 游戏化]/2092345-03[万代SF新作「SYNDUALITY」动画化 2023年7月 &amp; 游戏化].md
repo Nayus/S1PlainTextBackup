@@ -6337,3 +6337,13 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 最后22号有新品发布会 求求万代了 我真的很需要诺亚变革者与雏菊恶鬼FIX
 
+
+*****
+
+####  765事务所  
+##### 4389#       发表于 2024-3-19 00:48
+
+虽然说男主从新手经过有限而合理的成长，现在可以和Boss一战，过程中没怎么开挂，很真实。但是有没有一种可能，观众在幻想故事里并不想寻找真实<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

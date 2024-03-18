@@ -5282,3 +5282,13 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  风萧飒  
+##### 1988#       发表于 2024-3-18 08:17
+
+眩晕配合500炸泰坦很好，就是不能炸巢穴，等下个月榴弹手枪应该就好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

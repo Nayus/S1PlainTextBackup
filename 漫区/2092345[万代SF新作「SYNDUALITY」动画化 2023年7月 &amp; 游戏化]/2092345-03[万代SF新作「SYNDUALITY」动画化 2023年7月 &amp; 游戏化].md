@@ -6397,3 +6397,18 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 没有萝卜片，也就不会再有萝卜粉受伤<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 --------
 
+
+*****
+
+####  woaiakiha  
+##### 4395#       发表于 2024-3-19 03:06
+
+我要把所有的机器人驱逐出去bkb
+
+*****
+
+####  woaiakiha  
+##### 4396#       发表于 2024-3-19 03:11
+
+古賀葵最近的角色不是特别吵就是无口吗
+

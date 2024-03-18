@@ -5493,3 +5493,28 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 现在蓝球能扔在石头上了，某张有石头高地的虫子保卫战地图难度骤减。
 
+
+*****
+
+####  白昼梦  
+##### 2010#       发表于 2024-3-18 22:56
+
+说起来红土那张虫子图光照好瞎眼啊，随便跑到路灯底下就要被晃瞎了
+
+
+*****
+
+####  kalavinka  
+##### 2011#         楼主| 发表于 2024-3-18 23:04
+
+第一次飞这么高<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+IMG_5425.jpeg
+(556.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-18 23:03 上传
+
+<img src="https://img.saraba1st.com/forum/202403/18/230341fous7ldkrx7kmxlu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

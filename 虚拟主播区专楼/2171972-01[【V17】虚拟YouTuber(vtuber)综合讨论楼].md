@@ -2505,3 +2505,14 @@ vspo枪女的枪力要到多少才算有保障？不算送的apex赛季能solo�
 哪里有乐队男，可以展开说说吗</blockquote>
 虹還在線下活動的樂隊男也只剩倆老熟人了啊，後來招進來幾個新樂隊男估計都吃活動禁令了
 
+
+*****
+
+####  fastary  
+##### 112#       发表于 2024-3-18 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292473&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2024-3-18 19:29</a>
+
+虹還在線下活動的樂隊男也只剩倆老熟人了啊，後來招進來幾個新樂隊男估計都吃活動禁令了 ...</blockquote>
+哦哦，不好意思我理解错新鲜的指代了，还以为哪新出道了俩乐队男<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

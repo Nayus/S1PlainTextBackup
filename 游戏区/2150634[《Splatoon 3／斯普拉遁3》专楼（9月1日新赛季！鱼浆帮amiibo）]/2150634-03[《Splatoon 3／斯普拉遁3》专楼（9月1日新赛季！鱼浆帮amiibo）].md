@@ -6564,3 +6564,17 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  DeltaStriker  
+##### 3640#       发表于 2024-3-18 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293173&amp;ptid=2150634" target="_blank">实津二三 发表于 2024-3-18 21:05</a>
+虽然都说牙刷弱，但是我好几次想要换别的武器都失败了。
+
+翻滚快，输出高，滚来滚去对枪特别爽，真的 ...</blockquote>
+我看我以前朋友玩蓝牙 感觉其实就输在手短和鲨鱼这个sp上了……
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

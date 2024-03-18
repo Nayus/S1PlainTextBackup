@@ -1028,3 +1028,11 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  slugger  
+##### 107#       发表于 2024-3-18 09:25
+
+现在还有什么同咖位的白人男歌手么
+

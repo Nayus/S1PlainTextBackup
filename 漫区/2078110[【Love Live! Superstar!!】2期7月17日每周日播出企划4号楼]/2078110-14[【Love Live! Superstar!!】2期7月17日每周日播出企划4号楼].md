@@ -999,3 +999,16 @@ k组来国内吧<img src="https://static.saraba1st.com/image/smiley/face2017/030
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  csolfans  
+##### 19810#       发表于 2024-3-18 12:22
+
+<blockquote>starring 发表于 2024-3-16 21:05
+pay惹谁了推上被发杀害预告，似乎还是个US人
+
+那货之前还歧视pay混血的身份经常在推下发侮辱的话
+</blockquote>
+米国人？
+

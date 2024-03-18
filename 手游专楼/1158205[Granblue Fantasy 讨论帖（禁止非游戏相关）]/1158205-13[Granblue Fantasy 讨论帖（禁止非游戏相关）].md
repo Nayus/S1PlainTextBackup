@@ -227,3 +227,11 @@
 
 夭寿了，玩了5年第一次中大奖，10连10虹，今天当一天福卫兵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dddty  
+##### 17783#       发表于 2024-3-18 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">150金月又不能换RMB，我是缺角色直接换了，石油武反正没有总有办法玩。
+

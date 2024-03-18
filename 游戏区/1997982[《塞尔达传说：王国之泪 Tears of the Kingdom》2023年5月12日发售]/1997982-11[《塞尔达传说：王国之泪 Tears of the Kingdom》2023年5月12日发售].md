@@ -130,3 +130,16 @@ figma王泪林克近日就要开订了？这样看做得针不戳呀～
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  冷泉夜月  
+##### 15684#       发表于 2024-3-18 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64290014&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-3-18 15:11</a>
+
+这价格感觉还行？（虽然以前并没有买过figma）
+
+另外大家有推荐购买的地方吗……基于对欧洲的不信任，我感觉 ...</blockquote>
+淘宝销量高的大店吧或者等GSC旗舰店看开不开预订<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -13570,3 +13570,13 @@ voy@ger真没想到
 
 有点搞不懂学马仕这个校服，又是红外套又是白外套，裙子倒是统一的款式。然后还有几个偶像穿常服，一点都没有隔壁的莲统一。中专着装要求没那么严格是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 2828#       发表于 2024-3-18 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">立刻更新了一个四格告诉你校服怎么穿都行，私服登校也可以
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

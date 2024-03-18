@@ -5385,3 +5385,11 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 这代哑铃人没意思，还是上一代打起来欢乐，怀念那个被光能恶心后找哑铃人发泄的日子 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一代大家一阶兵种都是狗子，这代你机器人一阶兵种直接50块的机枪兵了
 
+
+*****
+
+####  Jyions  
+##### 1999#       发表于 2024-3-18 16:49
+
+因为跨平台加不上好友，每次开黑都是另外三人去伍斯特图星开难9的任务，星球上刷房间刷到谁就加进去，别的星球房间进人速度飞快踢人都踢不过来，房间仅限好友加入跟摆设一样。这个开发商到底修不修这个bug了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

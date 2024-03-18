@@ -5644,3 +5644,23 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 转图，怎么可能没偷跑，可能晚上就会有人跳出来直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 1234#       发表于 2024-3-18 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64290149&amp;ptid=2092342" target="_blank">垃圾网站上 发表于 2024-3-18 15:26</a>
+转图，怎么可能没偷跑，可能晚上就会有人跳出来直播了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">封面做得像随手p的一样
+
+*****
+
+####  wtyrambo  
+##### 1235#       发表于 2024-3-18 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64290149&amp;ptid=2092342" target="_blank">垃圾网站上 发表于 2024-3-18 15:26</a>
+
+转图，怎么可能没偷跑，可能晚上就会有人跳出来直播了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么还只有英语语音的，不会这么蠢吧
+

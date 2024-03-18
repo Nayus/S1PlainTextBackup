@@ -820,3 +820,11 @@ VR2这东西真是典型的舍不得沉没成本硬着头皮做下去的典型�
 VR2这东西真是典型的舍不得沉没成本硬着头皮 ...</blockquote>
 现阶段搞不能连接pc的有线vr设备可也太伤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  房先生  
+##### 260#       发表于 2024-3-18 11:20
+
+七龙珠卡卡罗特（ps5）算是致敬缅怀鸟山明老师了。
+

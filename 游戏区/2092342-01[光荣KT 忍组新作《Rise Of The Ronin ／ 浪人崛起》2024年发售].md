@@ -5500,3 +5500,13 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 仁王、ffo的本体都是二周目解锁一个新难度，之后三个dlc一个dlc解锁一个更进阶的难度。这次浪人的dlc一点 ...</blockquote>
 主要还是开放世界跟关卡制的区别,我是觉得不太能放在一起比较.
 
+
+*****
+
+####  zqqwe  
+##### 1220#       发表于 2024-3-18 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64286802&amp;ptid=2092342" target="_blank">新世界的派蒙 发表于 2024-3-18 10:20</a>
+处决变成了长按三角的意思么，但是对倒地补刀感觉也不需要短按三角阿，没看懂 ...</blockquote>
+残暴处决令敌人恐慌，类似暗影魔多那种差异化处决吧，和普通追击不一样
+

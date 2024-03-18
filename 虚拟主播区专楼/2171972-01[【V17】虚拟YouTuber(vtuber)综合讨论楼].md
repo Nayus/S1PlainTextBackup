@@ -2468,3 +2468,13 @@ vspo突然就有了个新人
 这两个乐队男为什么这么会新鲜男人的肉体比皮套滋润太多，我雌堕了 ...</blockquote>
 哪里有乐队男，可以展开说说吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fastary  
+##### 108#       发表于 2024-3-18 11:16
+
+魁星跟皮比起来声音实在是量产イケボ，没想到好看皮加成的滤镜配上比较柔和的语调还真让我get到方言角色的萌点了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+跟了两场直播感觉活泼老爷爷可爱捏，管人吃滤镜太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

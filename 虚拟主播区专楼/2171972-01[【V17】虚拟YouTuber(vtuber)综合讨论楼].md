@@ -2486,3 +2486,12 @@ vspo突然就有了个新人
 
 vspo枪女的枪力要到多少才算有保障？不算送的apex赛季能solo到大师？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 110#       发表于 2024-3-18 14:54
+
+猎 or 赋能？
+新人既然顶着藤原皮，能不能声音也向ze靠近一下
+

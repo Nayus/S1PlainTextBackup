@@ -5393,3 +5393,14 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 因为跨平台加不上好友，每次开黑都是另外三人去伍斯特图星开难9的任务，星球上刷房间刷到谁就加进去，别的星球房间进人速度飞快踢人都踢不过来，房间仅限好友加入跟摆设一样。这个开发商到底修不修这个bug了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  拔丝光头  
+##### 2000#       发表于 2024-3-18 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64289427&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-18 14:17</a>
+
+目前看来冤种券月更，社区CG半个月左右，其中请去机器人换换口味</blockquote>
+一个月肝1000超级货币，箭头真当玩家24H住在游戏里？
+

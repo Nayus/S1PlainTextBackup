@@ -5683,3 +5683,13 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 一到五人联机？人形怪还被五人围殴实在太壮观了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名字已被吃  
+##### 1238#       发表于 2024-3-18 16:59
+
+目前ff7还没通关，又想玩浪人，感觉最近对社畜太难了，游戏都集中在第一季度<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

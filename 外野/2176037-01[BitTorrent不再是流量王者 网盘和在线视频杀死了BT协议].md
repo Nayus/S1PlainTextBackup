@@ -660,3 +660,14 @@ bt还是适合热门资源的分享，冷门和老资源老实找网盘吧，就
 
 西恩卖资源的倒狗们：你们敢分享我就敢爆破，看看谁快
 
+
+*****
+
+####  xeseed  
+##### 67#       发表于 2024-3-18 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291862&amp;ptid=2176037" target="_blank">Nanachi 发表于 2024-3-18 18:23</a>
+
+公网bt无法应对只吸不传的吸血客户端，更别提国内现在还有些闲的蛋疼的人专门吸公网种子上传流量，谎报进度 ...</blockquote>
+github.com/anacrolix/torrent 和 dt/torrent/v1.02
+

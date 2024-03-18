@@ -5429,3 +5429,11 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  dodokin  
+##### 1213#       发表于 2024-3-18 10:07
+
+卧龙的战斗简化对我来说刚刚好，这作是必玩的
+

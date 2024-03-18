@@ -5705,3 +5705,19 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 
 数字版的日语包就是要手动下的，直接预载是94.7G，双语音包都载好是103G
 
+
+*****
+
+####  无意义小号  
+##### 1240#       发表于 2024-3-18 17:51
+
+什么时候偷跑，很急，看看什么水平
+
+
+*****
+
+####  Leliel  
+##### 1241#       发表于 2024-3-18 17:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等偷跑直播看成色
+

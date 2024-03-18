@@ -81,3 +81,27 @@ figma王泪林克近日就要开订了？这样看做得针不戳呀～
 
 原来是玩家投票啊，感觉没什么所谓的
 
+
+*****
+
+####  beer  
+##### 15680#       发表于 2024-3-18 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63916981&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2024-2-8 18:33</a>
+
+墨策这波价格确实不错2只都订了，别的代购店都要180以上，他这边只要150
+
+顺带F4F还要出希卡之石的 ...</blockquote>
+财团B都是按小孩的尺寸来出等大玩具的
+
+
+*****
+
+####  beer  
+##### 15681#       发表于 2024-3-18 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64179252&amp;ptid=1997982" target="_blank">astrayveller 发表于 2024-3-7 16:27</a>
+
+倒转乾坤几个基础用法，方块魔像从天上射一排方块的时候你可以逆转乾坤站在方块上飞天 以及章鱼吐石头可 ...</blockquote>
+而且回溯过程的碰撞不算耐久损耗
+

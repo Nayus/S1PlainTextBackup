@@ -1036,3 +1036,24 @@ kanye：我都说了i made that bitch famous你还要问几遍
 
 现在还有什么同咖位的白人男歌手么
 
+
+*****
+
+####  cawyly  
+##### 108#       发表于 2024-3-18 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64285813&amp;ptid=2175844" target="_blank">IG.430 发表于 2024-3-18 08:50</a>
+
+kanye：我都说了i made that bitch famous你还要问几遍
+
+论坛助手,iPhone</blockquote>
+侃爷的老婆是真的顶
+
+
+*****
+
+####  MintCake  
+##### 109#       发表于 2024-3-18 09:46
+
+她是自己写歌？这个产量，创作能力真的强。金发长腿大洋马谁不喜欢呢？
+

@@ -6197,3 +6197,14 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面快乐源泉被最后这几集给破坏完了，你说这个故事有男女主啥事吗，他们配当作品主题吗。
 
+
+*****
+
+####  aptx8285144  
+##### 4374#       发表于 2024-3-18 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64290847&amp;ptid=2092345" target="_blank">三合一出现 发表于 2024-3-18 16:38</a>
+
+前面快乐源泉被最后这几集给破坏完了，你说这个故事有男女主啥事吗，他们配当作品主题吗。 ...</blockquote>
+其实是驾驶技术的问题，彼方虽然同时分别成了歌姬和诺娃特殊的一部分，但是驾驶技术上没有大的进步（虽然维修能力很强)，而时雄那一边，马哈特没有伸出的手又影响了命运的轨迹
+

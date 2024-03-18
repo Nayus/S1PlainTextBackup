@@ -546,3 +546,20 @@ verycd别吹了，在当年emule圈鄙视链也就比vagaa高一点</blockquote>
 
 以后开源大模型不可能只用一台电脑跑，必然是分布式，bt应该尽早转型<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jkl  
+##### 54#       发表于 2024-3-18 20:45
+
+还是那句话：太理想了
+
+*****
+
+####  我特么吹爆  
+##### 55#       发表于 2024-3-18 20:48
+
+反正
+我还在用
+我会一直用
+

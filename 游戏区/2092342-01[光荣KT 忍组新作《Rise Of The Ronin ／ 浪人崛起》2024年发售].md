@@ -5770,3 +5770,13 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 这价格差距也太大了，PDD上龙信2领个券才375，浪人尼玛500多</blockquote>
 临近发售肯定炒高价了啊，想定实体版早两个月就该买了
 
+
+*****
+
+####  医生狼多  
+##### 1247#       发表于 2024-3-18 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292567&amp;ptid=2092342" target="_blank">SergeGlenn 发表于 2024-3-18 19:40</a>
+这价格差距也太大了，PDD上龙信2领个券才375，浪人尼玛500多</blockquote>
+你狼人也去领个券呗
+

@@ -6531,3 +6531,14 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 2024-3-18 18:18 上传
 
+
+*****
+
+####  罗克萨斯  
+##### 3637#       发表于 2024-3-18 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291818&amp;ptid=2150634" target="_blank">‮‮‮‮ 发表于 2024-3-18 18:18</a>
+
+商店不刷</blockquote>
+我把整个赛季的观星看了个遍，都没看到这双鞋，看来并不是从目录或者商店获得<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -6542,3 +6542,11 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 商店不刷</blockquote>
 我把整个赛季的观星看了个遍，都没看到这双鞋，看来并不是从目录或者商店获得<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  实津二三  
+##### 3638#       发表于 2024-3-18 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">虽然都说牙刷弱，但是我试了这么久，好几次想要换别的武器，都失败了，还是只有牙刷勉强能玩。
+

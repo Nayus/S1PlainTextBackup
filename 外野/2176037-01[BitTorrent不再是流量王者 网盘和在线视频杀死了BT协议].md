@@ -563,3 +563,57 @@ verycd别吹了，在当年emule圈鄙视链也就比vagaa高一点</blockquote>
 我还在用
 我会一直用
 
+
+*****
+
+####  CCauchy  
+##### 56#       发表于 2024-3-18 20:53
+
+dht这种东西必须要十亿级用户才能保证可靠性，但是过气老番的贴吧连讨论都少，死种更是意料之中，人一旦失去兴趣，这个资源就很容易断了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  神之飞雪  
+##### 57#       发表于 2024-3-18 20:54
+
+BT创始人新弄的那个sync怎么样，安全性和BT比呢
+
+*****
+
+####  CCauchy  
+##### 58#       发表于 2024-3-18 20:55
+
+总要有一个中心化的地方提供分享和dht初始节点，等互联网x.0不需要任何中心化节点再说吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  CCauchy  
+##### 59#       发表于 2024-3-18 20:57
+
+现在也差不多是这样的啊，没觉得你说的有多么厉害
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  CCauchy  
+##### 60#       发表于 2024-3-18 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291974&amp;ptid=2176037" target="_blank">处男鉴黄师 发表于 2024-3-18 18:37</a>
+我曾见过你们版权时代小子们无法置信的事，比特大陆全是最新美剧的种子，VeryCD有各种电影和音乐的资源，动 ...</blockquote>
+现在也差不多是这样的啊，没觉得你说的有多么厉害
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  延津酒咏  
+##### 61#       发表于 2024-3-18 21:00
+
+14年的**大包想重温都没种了，还是馒头。
+

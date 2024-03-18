@@ -5780,3 +5780,18 @@ ffo不就有难度选择并且通关解锁新难度么<img src="https://static.s
 这价格差距也太大了，PDD上龙信2领个券才375，浪人尼玛500多</blockquote>
 你狼人也去领个券呗
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1248#       发表于 2024-3-18 21:20
+
+我急了，褒姒游戏就不配偷跑直播了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MuramasaSP  
+##### 1249#       发表于 2024-3-18 21:23
+
+数字版下了个日语语音包，不知道为啥过了几秒就显示下完了，很奇怪。
+

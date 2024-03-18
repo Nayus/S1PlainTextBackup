@@ -5404,3 +5404,25 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 目前看来冤种券月更，社区CG半个月左右，其中请去机器人换换口味</blockquote>
 一个月肝1000超级货币，箭头真当玩家24H住在游戏里？
 
+
+*****
+
+####  Launce  
+##### 2001#       发表于 2024-3-18 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291097&amp;ptid=2170852" target="_blank">拔丝光头 发表于 2024-3-18 17:02</a>
+
+一个月肝1000超级货币，箭头真当玩家24H住在游戏里？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以速刷或者氪金，他那逼内容和平衡我选择速刷完事
+
+*****
+
+####  风萧飒  
+##### 2002#       发表于 2024-3-18 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291097&amp;ptid=2170852" target="_blank">拔丝光头 发表于 2024-3-18 17:02</a>
+一个月肝1000超级货币，箭头真当玩家24H住在游戏里？</blockquote>
+1000其实还行，愿意的话找张低级图一个多小时能刷出来，就是找张好图可能有点麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

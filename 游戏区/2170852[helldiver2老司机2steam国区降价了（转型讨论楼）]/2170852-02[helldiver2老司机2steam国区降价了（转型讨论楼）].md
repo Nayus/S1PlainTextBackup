@@ -5272,3 +5272,13 @@ FR%M(9L4OQWF(VM$DR_X@$Y.png
 
 看有个UP在N9用肥猫和狙逃课刷紫，但是虫子不行，因为机器人索敌没有虫子吊……被打了只会远距离朝你开火的地方扫射，但是虫子会一窝蜂围上来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且生化人兵营基本高于地表肥猫多锁几次总能超远程秒掉，虫子的任务点各种地洞和还有地形挡着
 
+
+*****
+
+####  bladethunder  
+##### 1987#       发表于 2024-3-18 07:53
+
+眩晕雷加500kg确实好用，突袭虫照样杀，昨晚一局500加眩晕雷杀了3突袭2泰坦捡队友EAT爆头一只突袭，对于榴弹跑男配装玩家而言本来反重型就是偶尔为之，两分钟两次反大机会足够了，实在不行飞鹰空袭加榴弹也能磨死几只突袭
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

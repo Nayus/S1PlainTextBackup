@@ -798,3 +798,25 @@ AI加速单元支持300 TOPS 8位计算
 
 支持PSSR （索尼自己做的FSR）
 
+
+*****
+
+####  minysun  
+##### 258#       发表于 2024-3-18 11:13
+
+彭博社：因库存积压，索尼暂停了PSVR2的生产。 ​​​<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+VR2这东西真是典型的舍不得沉没成本硬着头皮做下去的典型案例唉
+
+*****
+
+####  贝恩德塔  
+##### 259#         楼主| 发表于 2024-3-18 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64287511&amp;ptid=2173605" target="_blank">minysun 发表于 2024-3-18 11:13</a>
+
+彭博社：因库存积压，索尼暂停了PSVR2的生产。 ​​​
+
+VR2这东西真是典型的舍不得沉没成本硬着头皮 ...</blockquote>
+现阶段搞不能连接pc的有线vr设备可也太伤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

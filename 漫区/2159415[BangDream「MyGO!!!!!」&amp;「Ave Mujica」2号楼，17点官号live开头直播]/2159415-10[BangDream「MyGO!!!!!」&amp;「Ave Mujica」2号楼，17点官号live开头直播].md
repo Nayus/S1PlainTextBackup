@@ -11267,3 +11267,16 @@ QQ图片20240317193951.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14287#       发表于 2024-3-18 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64284755&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-3-18 01:00</a>
+无呼吸出完整版了？之前短版最后就已经修成初音了</blockquote>
+术曲本来就可以不考虑人体机能（）
+比如KEMU的敬起，我的分身（）
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

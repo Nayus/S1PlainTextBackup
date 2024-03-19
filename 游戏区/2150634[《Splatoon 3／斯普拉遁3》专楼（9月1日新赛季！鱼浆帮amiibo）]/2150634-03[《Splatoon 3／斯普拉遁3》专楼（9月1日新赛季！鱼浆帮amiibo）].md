@@ -6808,3 +6808,16 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 3663#       发表于 2024-3-19 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64302849&amp;ptid=2150634" target="_blank">晴岚 发表于 2024-3-19 19:33</a>
+
+试了一下uu路由器插件用wifi明显比用用电脑加速卡多了，路由器是华硕ac86u，感觉用路由器插件的话还得连网 ...</blockquote>
+对比这么强烈的么？那我得佩服我自己竟然能坚持到现在<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+看来必须得联系下电信师傅了，看看能不能把光猫移机到房间里
+

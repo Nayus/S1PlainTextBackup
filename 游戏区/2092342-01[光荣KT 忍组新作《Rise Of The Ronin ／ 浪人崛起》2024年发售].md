@@ -6035,3 +6035,70 @@ https://www.tiktok.com/@aktive.01
 
 开脱还是很懂的吗
 
+
+*****
+
+####  duraa  
+##### 1270#       发表于 2024-3-19 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">笑死，偷跑哥0石火成功说是
+
+*****
+
+####  彩虹肥宅  
+##### 1271#       发表于 2024-3-19 13:49
+
+偷跑的如何评价啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  雾生司  
+##### 1272#       发表于 2024-3-19 13:52
+
+楼上那个玩的太夸张了,什么都不会攻击键按到底就完事了,数了下喝了6瓶药ui那好像显示还没空,只能说确实感受到忍组想扩大受众的诚意了。
+
+*****
+
+####  Gigax  
+##### 1273#       发表于 2024-3-19 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64298941&amp;ptid=2092342" target="_blank">闪烈的苍光 发表于 2024-3-19 13:31</a>
+
+https://www.tiktok.com/@aktive.01
+
+佩里boss战</blockquote>
+这人打得也太下饭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戰國卍丸  
+##### 1274#       发表于 2024-3-19 13:54
+
+[https://www.bilibili.com/video/BV14H4y1s7fJ/](https://www.bilibili.com/video/BV14H4y1s7fJ/)
+
+boss战批站链接
+
+*****
+
+####  戰國卍丸  
+##### 1275#       发表于 2024-3-19 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64299128&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-3-19 13:49</a>
+
+偷跑的如何评价啊
+
+—— 来自 OPPO PGJM10, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+8分
+
+*****
+
+####  刘震云  
+##### 1276#       发表于 2024-3-19 13:56
+
+蓝龙原来是剧情**OSS，这老头摘下面具后是谁啊？
+
+剧情杀之后选一个活着，另一个断手，我靠，这血溅的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

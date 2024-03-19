@@ -6160,3 +6160,11 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 好强的设计
 
+
+*****
+
+####  常世  
+##### 540#       发表于 2024-3-20 01:20
+
+确实，而且这位竟然还几乎没玩过Roguelite和扑克，真让人感慨有些人就是有天赋。
+

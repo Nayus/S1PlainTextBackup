@@ -5722,3 +5722,13 @@ onp，2天解放2星区，上强度了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便，日本这么火出圈吗
 
+
+*****
+
+####  Mr.BBWoLf  
+##### 2031#       发表于 2024-3-20 01:24
+
+刚才用了两把第二把枪，纯搞笑玩意儿，6发弹药炸那一下甚至有几率炸不死跳虫
+
+电债券给的第三把枪怎么样？要也不行我就存着拿去换焦土了
+

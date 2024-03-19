@@ -5852,3 +5852,55 @@ option—管理游戏内容
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">希望周五不要突然来活，打算请假爽玩了
 
+
+*****
+
+####  刘震云  
+##### 1256#       发表于 2024-3-19 11:28
+
+ 本帖最后由 刘震云 于 2024-3-19 11:29 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/19/112859fzeelxzvlwlxwdt9.jpg" referrerpolicy="no-referrer">
+
+<strong>adfd21d88b5ed3154f6f96af152435b.jpg</strong> (132.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 11:28 上传
+
+<img src="https://img.saraba1st.com/forum/202403/19/112859t1nvgnpuv0qoo0lu.jpg" referrerpolicy="no-referrer">
+
+<strong>f7e38f91f56e915aca7b40c128fc56b.jpg</strong> (128.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 11:28 上传
+
+<img src="https://img.saraba1st.com/forum/202403/19/112859hiei9i99sj5m6ye6.jpg" referrerpolicy="no-referrer">
+
+<strong>7fc0e7ed47cf0b203a943df90a1ae49.jpg</strong> (135.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 11:28 上传
+
+<img src="https://img.saraba1st.com/forum/202403/19/112859cis7mhssh72hhs24.jpg" referrerpolicy="no-referrer">
+
+<strong>a4ebff1fe1a48a09f587257c9d85380.jpg</strong> (147.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 11:28 上传
+
+<img src="https://img.saraba1st.com/forum/202403/19/112859ob3gxclf35bdb5bc.jpg" referrerpolicy="no-referrer">
+
+<strong>205fa7fc921c76eab2178989e6e84b6.jpg</strong> (123.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 11:28 上传
+
+reddit的偷跑哥已经拿到游戏了，发了几个设置的图
+
+这作异常属性应该就几个：燃烧，中毒，易燃，眩晕
+

@@ -6008,3 +6008,13 @@ reddit的偷跑哥已经拿到游戏了，发了几个设置的图
 难道副角色有什么非得是女性的演出？</blockquote>
 说明找了两个女配音，男主配音就一人
 
+
+*****
+
+####  垃圾网站上  
+##### 1267#       发表于 2024-3-19 13:19
+
+[https://www.bilibili.com/video/BV14K421v7H2](https://www.bilibili.com/video/BV14K421v7H2)
+
+技能树
+

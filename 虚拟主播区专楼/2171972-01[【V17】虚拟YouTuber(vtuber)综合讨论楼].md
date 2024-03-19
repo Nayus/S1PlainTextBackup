@@ -2543,3 +2543,11 @@ vspo枪女的枪力要到多少才算有保障？不算送的apex赛季能solo�
 vspo这新人感觉完全不夹啊。
 真的像高中毕业就自己摸索着直播的感觉，太生了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 116#       发表于 2024-3-19 19:33
+
+之前还以为なしま这辈子都要待在all in了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

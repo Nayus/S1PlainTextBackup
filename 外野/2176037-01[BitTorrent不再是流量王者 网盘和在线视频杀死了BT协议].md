@@ -891,3 +891,23 @@ BT创始人新弄的那个sync怎么样，安全性和BT比呢</blockquote>
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Lyurii  
+##### 92#       发表于 2024-3-19 08:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bt适合热门种，还得靠pt
+
+
+*****
+
+####  nukacolamania  
+##### 93#       发表于 2024-3-19 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292231&amp;ptid=2176037" target="_blank">天堂懵懂人 发表于 2024-3-18 19:04</a>
+普通用户没这么大的硬盘放老资源啊</blockquote>
+这年头买硬盘能花几个钱，下载党最大的成本还是时间
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

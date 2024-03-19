@@ -944,3 +944,27 @@ bt本来就不是设计来超长时间共享的
 
 国外还是田园时代，啥时候等他们体验过网上在线看的都是和谐删减后的片子，网盘里存的内容自动变葫芦娃的时候就知道还得是BT到本地靠谱
 
+
+*****
+
+####  gatoanavel  
+##### 97#       发表于 2024-3-19 11:12
+
+qBittorrent 我还是在用的，较新的资源速度也不慢，emule 基本是死了，虽然我电脑里还留着，不登服务器，用kad还是能搜到一些远古“资源”。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nalanchen  
+##### 98#       发表于 2024-3-19 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">大马哈鱼共享站 long live
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cqduoluo  
+##### 99#       发表于 2024-3-19 11:16
+
+BT在国内基本没法玩，1个月种子都保不住，国外10年以上的种子都可以下。
+

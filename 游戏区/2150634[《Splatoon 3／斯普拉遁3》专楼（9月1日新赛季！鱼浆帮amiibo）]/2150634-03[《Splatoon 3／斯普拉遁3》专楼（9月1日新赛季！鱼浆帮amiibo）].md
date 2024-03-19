@@ -6656,3 +6656,15 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 3649#       发表于 2024-3-19 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294503&amp;ptid=2150634" target="_blank">leyenda 发表于 2024-3-19 00:12</a>
+春季特别祭典送的</blockquote>
+早知道不参加这次祭典了，日区衣服好丑，那些祭典装备也不是这次发，观星上位奖要130多抽我根本不想去肝<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

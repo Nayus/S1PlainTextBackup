@@ -6668,3 +6668,15 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DeltaStriker  
+##### 3650#       发表于 2024-3-19 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64296056&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-3-19 09:32</a>
+各个模式隐藏分是分开的吧</blockquote>
+是分开的 但是还有疑似存在的胜率平衡机制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

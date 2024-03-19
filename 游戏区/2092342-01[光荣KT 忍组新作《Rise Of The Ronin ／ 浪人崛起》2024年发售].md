@@ -5969,3 +5969,42 @@ pv里擦的雷纸居然没有异常buff还蛮奇怪的</blockquote>
 
 乐死，红迪泄露的说，能捏两个妹妹，但是不能捏两个哥们
 
+
+*****
+
+####  火华火华火  
+##### 1264#       发表于 2024-3-19 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64298349&amp;ptid=2092342" target="_blank">戰國卍丸 发表于 2024-3-19 12:35</a>
+乐死，红迪泄露的说，能捏两个妹妹，但是不能捏两个哥们</blockquote>
+气抖冷
+难道说副角色固定为女的，为啥？
+难道副角色有什么非得是女性的演出？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Gigax  
+##### 1265#       发表于 2024-3-19 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64297513&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-19 11:28</a>
+
+reddit的偷跑哥已经拿到游戏了，发了几个设置的图
+
+这作异常属性应该就几个：燃烧，中毒,麻痹，易燃， ...</blockquote>
+好家伙，这个眩晕是幕末混沌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dodokin  
+##### 1266#       发表于 2024-3-19 12:45
+
+<blockquote>火华火华火 发表于 2024-3-19 12:42
+气抖冷
+
+难道说副角色固定为女的，为啥？
+
+难道副角色有什么非得是女性的演出？</blockquote>
+说明找了两个女配音，男主配音就一人
+

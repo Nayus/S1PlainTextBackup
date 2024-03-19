@@ -6616,3 +6616,21 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 虽然说男主从新手经过有限而合理的成长，现在可以和Boss一战，过程中没怎么开挂，很真实。但是有没有一种可 ...</blockquote>
 三个打一个，加上机体性能上来了，到也不需要太多的技能成长，至于下一话大概率靠诺娃开挂<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4416#       发表于 2024-3-19 17:50
+
+这话前面还是太悠闲了，乐园的景色不错，与威斯见面后对打和嘴炮怒斥还可以，下一话虽然怀疑回来以后诺娃唱歌这种剧情还要写（毕竟粉丝又出场了），不过也无所谓了，赶紧清算完威斯，把打戏做好点演出好点，完事
+
+*****
+
+####  aptx8285144  
+##### 4417#       发表于 2024-3-19 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294429&amp;ptid=2092345" target="_blank">Freakyyu 发表于 2024-3-19 00:00</a>
+
+给你丑完了，还在这搞轻松幽默的气氛，Ciel没了以及ミステル被绑走之后还有人吃这一套？紧迫感为0搞 ...</blockquote>
+这话前面的节奏确实太悠闲了，但是后面和威斯嘴炮时也骂了威斯“歌姬是为你受得罪，你还说这种话”
+

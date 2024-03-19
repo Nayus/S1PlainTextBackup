@@ -1053,3 +1053,13 @@ pay 3单初动414
 
 sma不重视也不签唱片公司也就那样了
 
+
+*****
+
+####  starring  
+##### 19815#       发表于 2024-3-19 18:55
+
+挺喜欢K组的CW曲，总算没有老惦记着那苦情的调调
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

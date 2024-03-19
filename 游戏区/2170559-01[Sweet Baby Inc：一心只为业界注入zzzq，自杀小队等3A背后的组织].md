@@ -24,3 +24,16 @@
 
 —— 来自 motorola XT2301-5, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  今天不守尸  
+##### 94#       发表于 2024-3-19 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64188573&amp;ptid=2170559" target="_blank">byisme001 发表于 2024-3-8 13:05</a>
+
+确实是这样，非独立游戏理论上是制作者拿投资人的钱，投资人拿玩家的钱。虽然不可能，但如果真是投资人宁 ...</blockquote>
+没有买卖没有杀害
+
+说白了，没有游戏公司老板自己想要塞这些东西的需求，这些zzzq方案公司又怎么能找到投机机会应运而生呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

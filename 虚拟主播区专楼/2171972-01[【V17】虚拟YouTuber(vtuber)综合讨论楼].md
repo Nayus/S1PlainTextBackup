@@ -2534,3 +2534,12 @@ vspo枪女的枪力要到多少才算有保障？不算送的apex赛季能solo�
 
 无人问津的774又毕业一个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 115#       发表于 2024-3-19 18:47
+
+vspo这新人感觉完全不夹啊。
+真的像高中毕业就自己摸索着直播的感觉，太生了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

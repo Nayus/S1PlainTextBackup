@@ -6514,3 +6514,11 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥boss没有ai辅助都这么能打，机体性能甩开其他人几条街，太怪了
 
+
+*****
+
+####  AkaiSuisei  
+##### 4406#       发表于 2024-3-19 15:04
+
+开始看得头疼了，亏我还相信有山本裕介兜底保底是个骑士与魔法的水平，现在我只想-2
+

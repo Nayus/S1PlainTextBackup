@@ -6446,3 +6446,11 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 <img src="https://img.saraba1st.com/forum/202403/19/054843sphx89pzcw8mbpcc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格雷殿下  
+##### 4399#       发表于 2024-3-19 11:38
+
+白毛怎么不用关机的，级别比别人高吗
+

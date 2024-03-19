@@ -5904,3 +5904,27 @@ reddit的偷跑哥已经拿到游戏了，发了几个设置的图
 
 这作异常属性应该就几个：燃烧，中毒，易燃，眩晕
 
+
+*****
+
+####  雾生司  
+##### 1257#       发表于 2024-3-19 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64297513&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-19 11:28</a>
+
+reddit的偷跑哥已经拿到游戏了，发了几个设置的图
+
+这作异常属性应该就几个：燃烧，中毒，易燃，眩晕 ...</blockquote>
+pv里擦的雷纸居然没有异常buff还蛮奇怪的
+
+
+*****
+
+####  刘震云  
+##### 1258#       发表于 2024-3-19 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64297705&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-19 11:40</a>
+
+pv里擦的雷纸居然没有异常buff还蛮奇怪的</blockquote>
+雷感觉对应的应该是麻痹
+

@@ -11324,3 +11324,13 @@ QQ图片20240317193951.jpg
 [♿实地考据/独家解析♿Mygo动画最后分镜大有深意！？Live当天没巡礼的人亏了！！](https://www.bilibili.com/video/BV1Xj421o7FE/)
 [https://www.bilibili.com/video/BV1Xj421o7FE/](https://www.bilibili.com/video/BV1Xj421o7FE/)
 
+
+*****
+
+####  6030sylar  
+##### 14292#       发表于 2024-3-19 16:43
+
+<img src="https://p.sda1.dev/16/81bd55b3b397aafc17feda79fad05791/Image_1710832896607.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6349,3 +6349,55 @@ https://kick.com/aktive_1 偷跑哥直播地址，有兴趣的可以看看，这
 
 确实没妖怪了，他直接把妖怪变成人了。这比仁王都夸张
 
+
+*****
+
+####  寂长无星夜  
+##### 1300#       发表于 2024-3-19 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">偷跑有恋爱内容吗，没有我就安心捏妹子了
+
+*****
+
+####  刘震云  
+##### 1301#       发表于 2024-3-19 16:38
+
+人形怪很猛，都是武林高手，偷跑哥还是用魂系打法打，打一套闪避，然后再打一套
+
+还有这地洞，哎呀这不是仁王的矿坑吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeelolo  
+##### 1302#       发表于 2024-3-19 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  popchong  
+##### 1303#       发表于 2024-3-19 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64300988&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-19 16:38</a>
+
+之前那几个演示里就有巨型人形敌人，感觉能当妖怪打，人体，很奇妙吧。 ...</blockquote>
+有个棒槌大汉的投技就是妖鬼套皮
+
+*****
+
+####  雾生司  
+##### 1304#       发表于 2024-3-19 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64300904&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-19 16:32</a>
+
+确实没妖怪了，他直接把妖怪变成人了。这比仁王都夸张</blockquote>
+笑了 确实是这样 但是真的很好笑
+
+*****
+
+####  conanoysq  
+##### 1305#       发表于 2024-3-19 16:42
+
+云了一下 感觉难度有点高啊 随便一个路边战斗都需要集中精神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

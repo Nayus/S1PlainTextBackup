@@ -6646,3 +6646,13 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 各个模式隐藏分是分开的吧
 
+
+*****
+
+####  KBAC  
+##### 3648#       发表于 2024-3-19 09:42
+
+新版2代祭典曲我个人觉得挺好，不过美国官推评论区倒是差评如潮了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

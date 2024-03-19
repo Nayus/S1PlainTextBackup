@@ -6108,3 +6108,11 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 —— 来自 HUAWEI NOH-AN00, Android ...</blockquote>
 一般来说有机会还是得在路上买个磁带
 
+
+*****
+
+####  库德里尔  
+##### 535#       发表于 2024-3-19 09:39
+
+已经售出一百万份了。
+

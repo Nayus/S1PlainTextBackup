@@ -334,3 +334,18 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 
 —— 来自 HUAWEI LIO-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  catcoffee  
+##### 17791#       发表于 2024-3-19 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64295541&amp;ptid=1158205" target="_blank">血色秋叶 发表于 2024-3-19 08:41</a>
+
+现在宇宙挺蠢的，日常可能感觉不出来，高难差距太大了
+
+愚者上了前排各种游龙，脸接特动
+
+而且1土龙也难以触 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">明白了,  谢谢
+

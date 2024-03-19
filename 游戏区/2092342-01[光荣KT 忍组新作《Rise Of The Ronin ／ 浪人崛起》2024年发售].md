@@ -6727,3 +6727,11 @@ Ronin　91099
 
 前面先夸一通虚的东西，然后缺点轻轻一笔带过，不愧是春秋笔法高手，关键是第一句就直接抛开责任了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  性兽阿怪  
+##### 1343#       发表于 2024-3-19 21:20
+
+最大的缺点应该还是画面？算是个好消息吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

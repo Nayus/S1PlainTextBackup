@@ -6150,3 +6150,13 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 打人头牌葫芦过的，相当于只用了一张小丑
 
+
+*****
+
+####  Awanano  
+##### 539#       发表于 2024-3-20 00:55
+
+昨天买了后试了下，直接沉迷了好久
+
+好强的设计
+

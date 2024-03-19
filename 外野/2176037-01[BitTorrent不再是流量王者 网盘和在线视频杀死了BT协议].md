@@ -1004,3 +1004,17 @@ bt吸血雷网盘，让我选，我是不会选bt了
 
 ----发送自 [Xiaomi 22041211AC,Android 13](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  红丽  
+##### 104#       发表于 2024-3-19 13:06
+
+还是要看的
+
+有些时候要找老片只能翻墙bt<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+下下来没字幕再去找字幕<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+我之前也是有两部冷门老片挂了大半年才下完，好歹下完了orz
+

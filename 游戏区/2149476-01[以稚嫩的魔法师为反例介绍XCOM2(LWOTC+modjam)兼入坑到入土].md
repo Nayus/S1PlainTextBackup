@@ -1318,3 +1318,21 @@ xcom2实在是太复杂了。。。
 
 搭车问一下，现在春促大礼包6x块值得全买吗？还是挑本体9.5买就好？
 
+
+*****
+
+####  conankyo  
+##### 68#       发表于 2024-3-19 10:15
+
+xcom2最好买全套的，不带dlc的本体现在没啥玩的价值了，而且优化还不好
+
+往后来说，像是lwotc这样的大型dlc基本都是以wotc和全dlc为前提的了
+
+
+*****
+
+####  tansapple  
+##### 69#       发表于 2024-3-19 10:24
+
+最好全买，一些大型mod和功能性改良mod都会用到dlc里的参数，现在全套打包才60多相当划算了，以前原版xcom2，wotc，传承模式都是分开卖的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

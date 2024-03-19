@@ -6236,3 +6236,40 @@ boss战批站链接
 
 [https://kick.com/aktive_1](https://kick.com/aktive_1)偷跑哥直播地址，有兴趣的可以看看
 
+
+*****
+
+####  duraa  
+##### 1290#       发表于 2024-3-19 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64300306&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-19 15:40</a>
+https://kick.com/aktive_1 偷跑哥直播地址，有兴趣的可以看看，这位懂残心和石火，比tictok那位要强太多
+
+ ...</blockquote>
+懂…..懂吗…..我看刚刚打小怪自己没精力了还一直在按三角<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刘震云  
+##### 1291#       发表于 2024-3-19 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64300562&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-19 16:04</a>
+
+懂…..懂吗…..我看刚刚打小怪自己没精力了还一直在按三角</blockquote>
+哈哈，懂得按残心就算不错了
+
+
+*****
+
+####  无意义小号  
+##### 1292#       发表于 2024-3-19 16:13
+
+我看他一开始天地两个姿态好像只能选一个装上去，要慢慢才能解锁吗
+
+*****
+
+####  雾生司  
+##### 1293#       发表于 2024-3-19 16:14
+
+感觉断肢的效果确实挺明显的但是好不自然... 大太刀打在身上敌人死了头突然掉下来了看着好奇怪
+

@@ -1084,3 +1084,23 @@ bt的这套使用模式我是真的很难坚持下来
 
 更遗憾的是 看起来能解决这个问题的emule似乎死的比bt更早。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gnihton314  
+##### 112#       发表于 2024-3-19 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294140&amp;ptid=2176037" target="_blank">待宵 发表于 2024-3-18 23:17</a>
+
+BT的特点注定了老资源基本不能指望，但下载新出的动画之类仍然很方便
+
+以前宽带不够宽的时代下载个100MB以 ...</blockquote>
+一两分钟？一二十秒！
+
+*****
+
+####  BadYanL  
+##### 113#       发表于 2024-3-19 16:11
+
+rarbg倒了之后就没怎么用bt了，找不到平替。
+

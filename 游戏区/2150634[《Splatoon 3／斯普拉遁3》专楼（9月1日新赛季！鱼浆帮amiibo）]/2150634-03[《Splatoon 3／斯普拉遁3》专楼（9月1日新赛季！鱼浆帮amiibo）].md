@@ -6742,3 +6742,11 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是把文森的头转了90度嘛
 
+
+*****
+
+####  实津二三  
+##### 3656#       发表于 2024-3-19 15:37
+
+变形武器，是斩斧。
+

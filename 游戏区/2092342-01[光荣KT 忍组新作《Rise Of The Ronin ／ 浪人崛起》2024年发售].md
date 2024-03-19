@@ -6516,3 +6516,35 @@ https://kick.com/aktive_1 偷跑哥直播地址，有兴趣的可以看看，这
 
 偷跑哥很努力地想石火但就是弹不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑色的js  
+##### 1319#       发表于 2024-3-19 17:23
+
+这是不是之前演示的胖子
+
+*****
+
+####  泉美  
+##### 1320#       发表于 2024-3-19 17:23
+
+野猪确实不是人形怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gigax  
+##### 1321#       发表于 2024-3-19 17:24
+
+ 本帖最后由 Gigax 于 2024-3-19 17:26 编辑 
+
+这偷跑哥怎么想的，经典boss带俩小兵的战点他先上去偷袭boss然后被三个人围殴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  popchong  
+##### 1322#       发表于 2024-3-19 17:26
+
+偷跑哥还是有点屑的，粮绝后试图切龙马用手枪磨血，弹尽而亡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

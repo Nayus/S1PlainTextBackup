@@ -431,3 +431,41 @@ Xbox 时代是真有姿色的美少女，动暴时代算是风韵犹存的散石
 
 感觉这楼里是不是有A9那边的troll跑过来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿尔及利亚  
+##### 42#       发表于 2024-3-19 17:20
+
+不是说网易收了吗怎么又是索尼的了
+
+*****
+
+####  jumpingchild  
+##### 43#         楼主| 发表于 2024-3-19 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301326&amp;ptid=2176158" target="_blank">Mr.Hopp 发表于 2024-3-19 17:02</a>
+
+那PS5 PRO还出不出？</blockquote>
+很难说，已经流片完成的产品怎么说都不得不发了，不过考虑到十时裕树非常在意margin，也不能排除新产品收益不达预期后转手砍掉
+
+*****
+
+####  泰坦失足  
+##### 44#       发表于 2024-3-19 17:22
+
+可以考虑学COD出手游，符合吉姆叔叔最后指示。虽然我觉得技术力可能做不到. 要不出NS2版吧，或者和国内/外包公司合作出授权手游
+
+
+*****
+
+####  亚瑟摩根  
+##### 45#       发表于 2024-3-19 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301558&amp;ptid=2176158" target="_blank">阿尔及利亚 发表于 2024-3-19 17:20</a>
+
+不是说网易收了吗怎么又是索尼的了</blockquote>
+网易是合作，帮棒鸡从ABK那里赎身
+
+条件好像是出一款手游吧
+

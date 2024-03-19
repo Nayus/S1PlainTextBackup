@@ -6735,3 +6735,13 @@ Ronin　91099
 
 最大的缺点应该还是画面？算是个好消息吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 1344#       发表于 2024-3-19 21:40
+
+ 本帖最后由 duraa 于 2024-3-19 21:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">法米通仁王1，仁王2，卧龙全是36分，突出一个没啥参考价值
+

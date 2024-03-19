@@ -1426,3 +1426,11 @@ edo是井的发音代表废弃孔
 
 国服也要开福袋了，日服没动静啊...
 
+
+*****
+
+####  保罗赫伯特  
+##### 11538#       发表于 2024-3-19 21:43
+
+那个新手福袋都不是永久的，真的能吸引到新人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -6155,3 +6155,31 @@ boss战批站链接
 
 难
 
+
+*****
+
+####  Gigax  
+##### 1282#       发表于 2024-3-19 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64299191&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-3-19 13:56</a>
+
+战斗系统有说吗，我就指望这个
+
+—— 来自 OPPO PGJM10, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+这偷跑哥除了平a就会喝药，你还指望他评价战斗系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuker53  
+##### 1283#       发表于 2024-3-19 14:19
+
+玩成黑魂了
+
+
+*****
+
+####  sad6504  
+##### 1284#       发表于 2024-3-19 14:22
+
+好家伙原来是这种开局
+

@@ -581,3 +581,20 @@ Xbox 时代是真有姿色的美少女，动暴时代算是风韵犹存的散石
 
 bungie管理层项目管理确实垃圾，年五之后势头明明挺好的能搞成这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  S1的巨巨  
+##### 57#       发表于 2024-3-19 18:12
+
+棒鸡就适合被考迪克叔叔的迪克抽茶。
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ycy8332589  
+##### 58#       发表于 2024-3-19 18:13
+
+还好微软投了，不然继续收购大战索尼肯定受不了
+

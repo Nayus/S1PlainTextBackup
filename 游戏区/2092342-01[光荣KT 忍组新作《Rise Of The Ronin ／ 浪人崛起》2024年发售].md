@@ -6790,3 +6790,28 @@ Ronin　91099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是被ff起源糊瞎了眼才对画面怨念这么重
 
+
+*****
+
+####  小迷糊  
+##### 1350#       发表于 2024-3-19 23:16
+
+怎么有人说话好像是nga最近冒出来的一个无脑黑ps独占的人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  operatbig  
+##### 1351#       发表于 2024-3-19 23:18
+
+能选双女主搞姬，赢了！
+
+
+*****
+
+####  Piano-Forest  
+##### 1352#         楼主| 发表于 2024-3-19 23:20
+
+幕后第四弹「Rise as One」：[https://youtu.be/iCXTW84emfs](https://youtu.be/iCXTW84emfs)
+

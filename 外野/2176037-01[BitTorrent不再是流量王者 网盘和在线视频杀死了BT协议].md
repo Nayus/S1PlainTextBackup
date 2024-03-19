@@ -1072,3 +1072,15 @@ bt吸血雷网盘，让我选，我是不会选bt了
 以前用Windows的时候一直BT，那时候视频播放器还有好几种；后来换了Mac加人在国外不敢了，同学里有被寄罚单 ...</blockquote>
 motrix有mac版
 
+
+*****
+
+####  紧那罗  
+##### 111#       发表于 2024-3-19 15:59
+
+bt的这套使用模式我是真的很难坚持下来
+
+我乐意把我硬盘上存储的资源分享出来 但是套在BT这个协议上以后 保种和管理简直是两难的抉择。。。
+
+更遗憾的是 看起来能解决这个问题的emule似乎死的比bt更早。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -5746,3 +5746,16 @@ onp，2天解放2星区，上强度了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 2033#       发表于 2024-3-20 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305633&amp;ptid=2170852" target="_blank">Mr.BBWoLf 发表于 2024-03-20 01:24:56</a>
+刚才用了两把第二把枪，纯搞笑玩意儿，6发弹药炸那一下甚至有几率炸不死跳虫
+
+电债券给的第三把枪怎么样？ ...</blockquote>新债券除了镰刀和定位混淆，其他没有换的必要，离子喷就是焦土的下水道滋尿版，电喷属于能用的单跑玩具枪
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

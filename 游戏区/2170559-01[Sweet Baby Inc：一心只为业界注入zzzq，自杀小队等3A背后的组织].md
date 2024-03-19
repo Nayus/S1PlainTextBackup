@@ -37,3 +37,11 @@
 
 说白了，没有游戏公司老板自己想要塞这些东西的需求，这些zzzq方案公司又怎么能找到投机机会应运而生呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 95#       发表于 2024-3-19 19:59
+
+刚去看一眼，现在steam群组关注差几十个人就有30w了
+

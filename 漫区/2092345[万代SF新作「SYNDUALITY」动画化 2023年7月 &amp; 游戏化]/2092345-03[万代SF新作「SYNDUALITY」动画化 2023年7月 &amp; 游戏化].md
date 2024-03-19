@@ -6645,3 +6645,50 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 果然还是要靠诺娃开挂，希望下集演出场面做好点吧</blockquote>
 这话的战斗演出比上一话稳定，还是机体少的好处jpg，果然业界现在已经没几家能稳定完成TV动画的大规模战役了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4419#       发表于 2024-3-19 19:58
+
+最后一集要联动游戏呢
+
+<img src="https://img.saraba1st.com/forum/202403/19/195756ekrstos6cp12olsz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-19-19-57-26-200_com.baidu.tieba.jpg</strong> (599.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 19:57 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aptx8285144  
+##### 4420#       发表于 2024-3-19 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294487&amp;ptid=2092345" target="_blank">八等绝癔 发表于 2024-3-19 00:10</a>
+
+这次最终决战也是 彼方的唯一有效输出好像就是成功放了闪光弹打掩护（ 牵制是马哈特干的 左臂的盾是大哥破 ...</blockquote>
+假设时雄和马哈特下一话无法或大半时间恢复不了（可能性不是没有，毕竟op最后几个镜头象征物转换而言），那大半时间目测是诺娃彼方和对面的机体一对一（或者说二对一）死磕
+
+*****
+
+####  aptx8285144  
+##### 4421#       发表于 2024-3-19 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64298515&amp;ptid=2092345" target="_blank">oi99o 发表于 2024-3-19 12:49</a>
+
+果然还是要靠诺娃开挂，希望下集演出场面做好点吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/19/200010zd1v32000gzxxgzc.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240319195234.png</strong> (61.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 20:00 上传
+
+话说好像<strong>很少</strong>看到诺娃这么生气的口吻，希望下周把怒火发泄得再狠一些（
+

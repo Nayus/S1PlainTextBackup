@@ -5624,3 +5624,11 @@ IMG_5425.jpeg
 
 炸科研站老老实实上地狱火，还能迫害没来得及跑出来的队友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 2022#       发表于 2024-3-19 08:54
+
+这几天有点沉迷eat之后已经不带500了，用来打泰坦比500安全
+

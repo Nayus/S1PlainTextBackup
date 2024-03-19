@@ -357,3 +357,17 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 
 疑似要一井除了井零提升了，不对我要井的是第二把土龙，连井也是零提升了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双刀少女  
+##### 17793#       发表于 2024-3-19 14:31
+
+ 本帖最后由 双刀少女 于 2024-3-19 14:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294877&amp;ptid=1158205" target="_blank">catcoffee 发表于 2024-3-19 01:53</a>
+
+求教下各位老哥，最近回坑，为了补弱换了把野蛮。没钢转老王了，土龙杖也只有一把。所以土方阵野蛮现在盘子 ...</blockquote>
+有复数土天司拳的话可以不玩土贤者宇宙了，用小美琴、极星器、贤者武器之类填填格子，甚至可以属性x属性（野蛮主手一般都是自带巴布博取上限），然后观望下方阵3.0吧
+
+单纯填格子触发土龙杖除了土龙自己还有小美琴三把/沙盒方阵神威琴三把的方法，你如果有满破该隐刀也可以试试小美琴老王
+

@@ -6183,3 +6183,38 @@ boss战批站链接
 
 好家伙原来是这种开局
 
+
+*****
+
+####  popchong  
+##### 1285#       发表于 2024-3-19 14:26
+
+开局薄纱面具男能进结局吗
+
+<img src="https://img.saraba1st.com/forum/202403/19/142551vwwryiwa8rz2y2nr.gif" referrerpolicy="no-referrer">
+
+<strong>1_32253bf6cfc5bb958088adbd42001cfa.gif</strong> (643.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 14:25 上传
+
+*****
+
+####  clover293  
+##### 1286#       发表于 2024-3-19 14:28
+
+要整个偷跑楼吗？
+
+*****
+
+####  彩虹肥宅  
+##### 1287#       发表于 2024-3-19 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64299293&amp;ptid=2092342" target="_blank">戰國卍丸 发表于 2024-3-19 14:10</a>
+
+没咋细说
+
+主要指望一个鬼佬玩明白</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">还得再稳一手
+

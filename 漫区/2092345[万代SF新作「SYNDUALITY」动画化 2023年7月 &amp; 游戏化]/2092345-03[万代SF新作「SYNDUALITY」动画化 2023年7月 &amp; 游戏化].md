@@ -6465,3 +6465,34 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  oi99o  
+##### 4401#       发表于 2024-3-19 12:49
+
+果然还是要靠诺娃开挂，希望下集演出场面做好点吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4402#       发表于 2024-3-19 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294884&amp;ptid=2092345" target="_blank">砂糖续香香 发表于 2024-3-19 01:56</a>
+
+合理啊，太合理啊！
+
+反派不相信贤士，就像后人类不再相信萝卜片一样</blockquote>
+
+扳机社：相信的心就是你的魔法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 4403#       发表于 2024-3-19 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294628&amp;ptid=2092345" target="_blank">八等绝癔 发表于 2024-3-19 00:34</a>
+
+最后22号有新品发布会 求求万代了 我真的很需要诺亚变革者与雏菊恶鬼FIX</blockquote>
+但是要发布的商品占位符都出来了，没有synduality的份
+

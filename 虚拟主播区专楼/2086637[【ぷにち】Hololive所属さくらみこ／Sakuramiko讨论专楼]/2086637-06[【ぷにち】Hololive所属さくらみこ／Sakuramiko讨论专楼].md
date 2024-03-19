@@ -2878,3 +2878,21 @@ friend玩偶又再贩了？第3次了吧，这次怎么这么快
 <blockquote>山みこのMC、打ち合わせ通りに行けばみこちがカップルの少なさにツッコミ入れる予定でしたが思ったよりカップル参加者が多くて不発になりました…</blockquote>
 七字母CP全责
 
+
+*****
+
+####  holoan  
+##### 8443#         楼主| 发表于 2024-3-19 20:27
+
+64/16是需要想的？？？？？？？？？
+
+这就是你日的基础教育
+
+
+*****
+
+####  holoan  
+##### 8444#         楼主| 发表于 2024-3-19 20:34
+
+<blockquote>みこちファンアートなんでもあるな</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超万能的miko的粉丝图
+

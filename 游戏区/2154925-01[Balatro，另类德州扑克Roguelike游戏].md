@@ -6124,3 +6124,13 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 草，周愚新视频是个轮盘赌改的游戏，今年要流行各种赌场游戏改了吧
 
+
+*****
+
+####  a4ac7  
+##### 537#       发表于 2024-3-19 20:33
+
+不到一个月玩了七十多个小时，在肉鸽类里面时长排第三，太上瘾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

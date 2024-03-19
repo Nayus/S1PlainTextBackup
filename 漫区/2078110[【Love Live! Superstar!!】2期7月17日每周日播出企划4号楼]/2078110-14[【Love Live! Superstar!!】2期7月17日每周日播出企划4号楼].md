@@ -1079,3 +1079,13 @@ sma不重视也不签唱片公司也就那样了
 
 脚本爆破天天有，没啥好奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 19818#       发表于 2024-3-19 20:27
+
+看来确实是一个人的风格三人main一轮后换了？
+
+又期待又害怕轮到可可style的时候会是啥情况。。但最快也是明年的事了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -11405,3 +11405,29 @@ MV挺好看的
 
 新歌好像比动画那两首容易，MV不错，暂时和解了
 
+
+*****
+
+####  stygian  
+##### 14301#       发表于 2024-3-19 20:25
+
+ 本帖最后由 stygian 于 2024-3-19 20:29 编辑 
+
+写的挺math竟然，旋律还是不太行特别是サビ，后硬核那股拧巴劲有了但是又没完全有
+
+不过还是最近这些里面最行的一首，只是现场估计又要车祸了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SakuraのOrigami  
+##### 14302#       发表于 2024-3-19 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64303406&amp;ptid=2159415" target="_blank">stygian 发表于 2024-3-19 20:25</a>
+写的挺math竟然，旋律还是不太行特别是サビ，后硬核那股拧巴劲有了但是又没完全有
+
+不过还是最近这些里面最 ...</blockquote>
+看repo似乎没怎么翻车（）
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

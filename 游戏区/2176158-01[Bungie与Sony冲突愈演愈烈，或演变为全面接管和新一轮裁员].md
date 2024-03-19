@@ -537,3 +537,47 @@ Xbox 时代是真有姿色的美少女，动暴时代算是风韵犹存的散石
 本身还是在SIE的管控下</blockquote>
 那棒鸡看来没有好果子吃了。
 
+
+*****
+
+####  FLZB  
+##### 52#       发表于 2024-3-19 17:57
+
+不是很懂，每家跟棒鸡签的都什么协议？当年作为看家ip制作组巨硬能放他走，给动视打工他能带着ip润，被索尼收了还能保持独立，棒鸡是他们的爹么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  那由  
+##### 53#       发表于 2024-3-19 17:58
+
+加油啊，日本领导层大哥哥
+
+*****
+
+####  CyborgIP  
+##### 54#       发表于 2024-3-19 17:59
+
+不如箭头一根<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是知道微软会跨平台肯定不会买棒鸡
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Mimic  
+##### 55#       发表于 2024-3-19 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301986&amp;ptid=2176158" target="_blank">CyborgIP 发表于 2024-3-19 17:59</a>
+
+不如箭头一根要是知道微软会跨平台肯定不会买棒鸡
+
+—— 来自 vivo V2055A, Android 13上的 S1Next- ...</blockquote>
+这下以吉姆之心度P3之腹了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rushtime33  
+##### 56#       发表于 2024-3-19 18:05
+
+bungie管理层项目管理确实垃圾，年五之后势头明明挺好的能搞成这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

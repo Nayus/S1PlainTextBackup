@@ -78,3 +78,23 @@
 
 [https://twitter.com/gsc_kahotan/ ... 55664535935/photo/3](https://twitter.com/gsc_kahotan/status/1769559355664535935/photo/3)
 
+
+*****
+
+####  半年  
+##### 1747#       发表于 2024-3-19 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64233097&amp;ptid=2152053" target="_blank">半年 发表于 2024-3-12 19:49</a>
+
+https://twitter.com/aleos696/status/1767309588821639175/photo/1</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/19/173706gi5ffdknz2wmim9u.jpg" referrerpolicy="no-referrer">
+
+<strong>GJBaU_7a0AAQ2Aw.jpg</strong> (143.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 17:37 上传
+
+[https://twitter.com/aleos696/status/1770013974425457034/photo/1](https://twitter.com/aleos696/status/1770013974425457034/photo/1)
+

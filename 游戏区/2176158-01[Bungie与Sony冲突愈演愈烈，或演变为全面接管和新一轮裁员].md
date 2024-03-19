@@ -469,3 +469,34 @@ Xbox 时代是真有姿色的美少女，动暴时代算是风韵犹存的散石
 
 条件好像是出一款手游吧
 
+
+*****
+
+####  Mr.Hopp  
+##### 46#       发表于 2024-3-19 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301574&amp;ptid=2176158" target="_blank">jumpingchild 发表于 2024-3-19 17:22</a>
+
+很难说，已经流片完成的产品怎么说都不得不发了，不过考虑到十时裕树非常在意margin，也不能排除新产品收 ...</blockquote>
+什么鬼才。。。PLAYSTATION这么大的IP居然能砍掉。。微软都着手下一代主机战了看到你这消息估计做梦都会笑。
+
+*****
+
+####  nage560  
+##### 47#       发表于 2024-3-19 17:33
+
+我怎么记得当初收购的时候棒鸡条件之一是棒鸡能保持独立性来的，怎么这下索尼又能干预了？
+
+
+*****
+
+####  zris  
+##### 48#       发表于 2024-3-19 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301716&amp;ptid=2176158" target="_blank">nage560 发表于 2024-3-19 17:33</a>
+
+我怎么记得当初收购的时候棒鸡条件之一是棒鸡能保持独立性来的，怎么这下索尼又能干预了？ ...</blockquote>
+签协议了，虽然是独立，但是相对于PS studio
+
+本身还是在SIE的管控下
+

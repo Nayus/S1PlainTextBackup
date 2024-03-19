@@ -6454,3 +6454,14 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 白毛怎么不用关机的，级别比别人高吗
 
+
+*****
+
+####  novyDC  
+##### 4400#       发表于 2024-3-19 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64297656&amp;ptid=2092345" target="_blank">格雷殿下 发表于 2024-03-19 11:38:03</a>
+白毛怎么不用关机的，级别比别人高吗</blockquote>本来就是天堂下载下来的 原住民
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

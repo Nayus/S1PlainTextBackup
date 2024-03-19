@@ -6102,3 +6102,23 @@ boss战批站链接
 
 剧情杀之后选一个活着，另一个断手，我靠，这血溅的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 1277#       发表于 2024-3-19 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64299176&amp;ptid=2092342" target="_blank">戰國卍丸 发表于 2024-3-19 13:55</a>
+8分</blockquote>
+战斗系统有说吗，我就指望这个<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  karastar  
+##### 1278#       发表于 2024-3-19 14:00
+
+龙哥有出场吗
+

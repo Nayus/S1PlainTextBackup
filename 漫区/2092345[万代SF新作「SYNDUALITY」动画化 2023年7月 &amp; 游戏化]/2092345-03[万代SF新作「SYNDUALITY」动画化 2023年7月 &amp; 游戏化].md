@@ -6522,3 +6522,13 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 开始看得头疼了，亏我还相信有山本裕介兜底保底是个骑士与魔法的水平，现在我只想-2
 
+
+*****
+
+####  小迷糊  
+##### 4407#       发表于 2024-3-19 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">mr马桶卖成那个逼样，hg马桶几乎二三算，后续机体估计和巴克亚罗一样全砍掉了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

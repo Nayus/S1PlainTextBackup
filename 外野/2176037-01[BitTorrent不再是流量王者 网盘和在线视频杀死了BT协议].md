@@ -1061,3 +1061,14 @@ bt吸血雷网盘，让我选，我是不会选bt了
 
 视频平台干没干死bt不知道，查pcdn快把bt、pt连坐死了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等等，某种意义上也算是在线视频干死了bt
 
+
+*****
+
+####  莫夜戎  
+##### 110#       发表于 2024-3-19 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292950&amp;ptid=2176037" target="_blank">lynnnnnnn 发表于 2024-3-18 20:31</a>
+
+以前用Windows的时候一直BT，那时候视频播放器还有好几种；后来换了Mac加人在国外不敢了，同学里有被寄罚单 ...</blockquote>
+motrix有mac版
+

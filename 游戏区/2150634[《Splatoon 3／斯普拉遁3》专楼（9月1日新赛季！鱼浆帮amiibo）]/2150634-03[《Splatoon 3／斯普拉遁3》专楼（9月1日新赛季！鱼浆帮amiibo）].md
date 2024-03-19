@@ -6835,3 +6835,11 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 3665#       发表于 2024-3-19 20:47
+
+DLC实际上已经成功了吧？感觉全武器通关的徽章都烂大街了，甚至队友全都戴着就我没，不至于大伙都是边骂边大玩特玩吧？能让人重复通关这么多遍，妥妥的神作<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

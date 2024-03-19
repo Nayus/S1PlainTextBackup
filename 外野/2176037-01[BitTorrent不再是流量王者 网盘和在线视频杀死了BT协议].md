@@ -921,3 +921,16 @@ BT创始人新弄的那个sync怎么样，安全性和BT比呢</blockquote>
 剩下都是苟延残喘而已
 bt本来就不是设计来超长时间共享的
 
+
+*****
+
+####  fuckingworld  
+##### 95#       发表于 2024-3-19 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292350&amp;ptid=2176037" target="_blank">CALPISSODA 发表于 2024-3-18 19:15</a>
+在线视频对BT的挤压感觉反而不大，尤其国内各种不让播、审核长而且爱阉割的情况下，其实分享资源还是有用 ...</blockquote>
+磁力的本质就是bt
+网盘天天被删资源
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

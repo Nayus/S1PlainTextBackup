@@ -6576,3 +6576,14 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 感觉完全不如绯红结系
 
+
+*****
+
+####  亚瑟邓特  
+##### 4412#       发表于 2024-3-19 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64300872&amp;ptid=2092345" target="_blank">八等绝癔 发表于 2024-3-19 16:29</a>
+小剧场打赢复活赛了</blockquote>
+？
+？？<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

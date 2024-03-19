@@ -6401,3 +6401,102 @@ https://kick.com/aktive_1 偷跑哥直播地址，有兴趣的可以看看，这
 
 云了一下 感觉难度有点高啊 随便一个路边战斗都需要集中精神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯托雷加  
+##### 1306#       发表于 2024-3-19 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301029&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-19 16:41</a>
+
+笑了 确实是这样 但是真的很好笑</blockquote>
+再结合刀劈子弹，我很怀疑美国真的能威胁这样的日本么
+
+*****
+
+####  hkguty  
+##### 1307#       发表于 2024-3-19 16:47
+
+看奖杯有恋爱元素但是目前感觉女角色也没几个，不知道副主角能不能恋爱
+
+*****
+
+####  Booorunestud  
+##### 1308#       发表于 2024-3-19 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">女角色就看见一个村山bba，没有美少女也没动力捏男的了
+
+*****
+
+####  雾生司  
+##### 1309#       发表于 2024-3-19 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301117&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-19 16:47</a>
+
+再结合刀劈子弹，我很怀疑美国真的能威胁这样的日本么</blockquote>
+街边随便一个小强盗拿个大太刀都能附魔+两连劈再接个大红光,嘴巴都给我看合不拢了
+
+
+*****
+
+####  斯托雷加  
+##### 1310#       发表于 2024-3-19 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301160&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-19 16:49</a>
+
+街边随便一个小强盗拿个大太刀都能附魔+两连劈再接个大红光,嘴巴都给我看合不拢了
+
+ ...</blockquote>
+合理怀疑这个世界是人类已经合理使用灵石强化肉体之后的世界了
+
+*****
+
+####  斯托雷加  
+##### 1311#       发表于 2024-3-19 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301182&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-19 16:51</a>
+
+合理怀疑这个世界是人类已经合理使用灵石强化肉体之后的世界了</blockquote>
+之所以没有妖怪是因为妖怪已经被杀光了
+
+*****
+
+####  diodio233  
+##### 1312#       发表于 2024-3-19 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301117&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-19 16:47</a>
+
+再结合刀劈子弹，我很怀疑美国真的能威胁这样的日本么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杨过单杀蒙哥，带宋还不是寄了
+
+*****
+
+####  刘震云  
+##### 1313#       发表于 2024-3-19 16:54
+
+原来空手的模组是手甲的，背后暗杀的动作是裸绞<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雾生司  
+##### 1314#       发表于 2024-3-19 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301186&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-19 16:51</a>
+
+之所以没有妖怪是因为妖怪已经被杀光了</blockquote>
+连头野猪都会红光我靠
+
+*****
+
+####  千秋难诉  
+##### 1315#       发表于 2024-3-19 16:54
+
+这野猪比封豨还强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kemyes  
+##### 1316#       发表于 2024-3-19 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这是什么人均剑圣的世界了吗？
+

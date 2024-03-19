@@ -6634,3 +6634,14 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 给你丑完了，还在这搞轻松幽默的气氛，Ciel没了以及ミステル被绑走之后还有人吃这一套？紧迫感为0搞 ...</blockquote>
 这话前面的节奏确实太悠闲了，但是后面和威斯嘴炮时也骂了威斯“歌姬是为你受得罪，你还说这种话”
 
+
+*****
+
+####  aptx8285144  
+##### 4418#       发表于 2024-3-19 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64298515&amp;ptid=2092345" target="_blank">oi99o 发表于 2024-3-19 12:49</a>
+
+果然还是要靠诺娃开挂，希望下集演出场面做好点吧</blockquote>
+这话的战斗演出比上一话稳定，还是机体少的好处jpg，果然业界现在已经没几家能稳定完成TV动画的大规模战役了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

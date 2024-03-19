@@ -6571,3 +6571,11 @@ b站好像有人录像了，我也刚进来看了没多久他就摸了
 
 更了个1个G的补丁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜PS5没有更新日志，不能看更了啥
 
+
+*****
+
+####  看脸  
+##### 1326#       发表于 2024-3-19 18:34
+
+BOSS用刀把人挑起来然后掏出枪叭叭叭把人在空中连一顿，看呆了，这不是DNF的BBQ嘛艹，好有意思
+

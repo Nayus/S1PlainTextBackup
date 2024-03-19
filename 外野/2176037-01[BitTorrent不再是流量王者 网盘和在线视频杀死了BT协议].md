@@ -1026,3 +1026,13 @@ bt吸血雷网盘，让我选，我是不会选bt了
 
 好多旧资源是真寄了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 106#       发表于 2024-3-19 13:30
+
+游戏有正版侠守护<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

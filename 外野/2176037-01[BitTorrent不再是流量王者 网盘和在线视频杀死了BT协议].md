@@ -1157,3 +1157,18 @@ rarbg倒了之后就没怎么用bt了，找不到平替。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我下着的[ACG字幕组][新大空魔龙][01-39][完结][704x396][简体中文]一直都是78.5%
 
+
+*****
+
+####  赤星ビスコ  
+##### 119#       发表于 2024-3-19 22:50
+
+以前比特精灵还是什么的客户端可以直接搜种子，是我的启蒙<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤星ビスコ  
+##### 120#       发表于 2024-3-19 22:53
+
+顺便bt协议要可持续感觉还是要靠pt这种强制分享的规则。但即使pt站都不能说就能保住那种冷门旧种，感觉这也没啥好办法
+

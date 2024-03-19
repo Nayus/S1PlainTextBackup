@@ -6730,3 +6730,16 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 要不是最后全球ddos，那么有男女主什么作用吗？
 
+
+*****
+
+####  aptx8285144  
+##### 4424#       发表于 2024-3-19 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304544&amp;ptid=2092345" target="_blank">三合一出现 发表于 2024-3-19 22:33</a>
+
+看到这一段笑了，能看到这里的观众估计都是这个想法。
+
+然后啊- -boss问了两位兄弟的目的后，直接无视了 ...</blockquote>
+威斯看了彼方叫名字后提到了歌姬，然后知道他要米斯特时把镜头打开来了
+

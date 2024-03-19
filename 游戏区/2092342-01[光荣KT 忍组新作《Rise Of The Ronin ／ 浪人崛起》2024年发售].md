@@ -6563,3 +6563,11 @@ https://kick.com/aktive_1 偷跑哥直播地址，有兴趣的可以看看，这
 
 b站好像有人录像了，我也刚进来看了没多久他就摸了
 
+
+*****
+
+####  duraa  
+##### 1325#       发表于 2024-3-19 18:25
+
+更了个1个G的补丁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜PS5没有更新日志，不能看更了啥
+

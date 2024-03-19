@@ -598,3 +598,38 @@ bungie管理层项目管理确实垃圾，年五之后势头明明挺好的能�
 
 还好微软投了，不然继续收购大战索尼肯定受不了
 
+
+*****
+
+####  陛下欲反邪  
+##### 59#       发表于 2024-3-19 18:20
+
+什么玩意PS就要G了，这逻辑也推得太快了吧
+这可就快进到steam和NS二帝共治了？
+
+*****
+
+####  zid99825  
+##### 60#       发表于 2024-3-19 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64302037&amp;ptid=2176158" target="_blank">Rushtime33 发表于 2024-3-19 18:05</a>
+
+bungie管理层项目管理确实垃圾，年五之后势头明明挺好的能搞成这样</blockquote>
+如果没动视安排人给棒鸡干苦力，早凉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 61#       发表于 2024-3-19 18:22
+
+棒鸡这种小流氓就需要考迪克蜀黍那样的雅库萨狠狠地精神注入才行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DawnGuardian  
+##### 62#       发表于 2024-3-19 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64300500&amp;ptid=2176158" target="_blank"> 哈罗 发表于 2024-3-19 15:59</a> 做了10年的pve，被二线小厂的老司机2教做人，你还好意思指导别人 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就目前这卖皮肤 又氪又肝塞满辣鸡换皮武器的通行证，老司机2的持续运营水平跟棒鸡孰高孰低还不好说呢来自: iPhone客户端
+

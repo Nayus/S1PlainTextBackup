@@ -6768,3 +6768,14 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 有上赛季去美服打x章，这赛季又回日服的
 
+
+*****
+
+####  airshit  
+##### 3659#       发表于 2024-3-19 18:25
+
+太久没玩了，怎么我游戏里的语言变日文了，之前还是中文的。主机地区选的日本，语言选的简中。
+还是只有祭典这段时间会这样？<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

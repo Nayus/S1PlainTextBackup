@@ -6095,3 +6095,16 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  afer  
+##### 534#       发表于 2024-3-19 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64271587&amp;ptid=2154925" target="_blank">a4ac7 发表于 2024-3-16 13:49</a>
+
+永恒小丑挑战，最后boss是要卖小丑的，同花卡组差点破防了
+
+—— 来自 HUAWEI NOH-AN00, Android ...</blockquote>
+一般来说有机会还是得在路上买个磁带
+

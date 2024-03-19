@@ -911,3 +911,13 @@ BT创始人新弄的那个sync怎么样，安全性和BT比呢</blockquote>
 
 —— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤色彗星SEXY  
+##### 94#       发表于 2024-3-19 08:37
+
+电驴被弄死的时候 共享时代就结束了
+剩下都是苟延残喘而已
+bt本来就不是设计来超长时间共享的
+

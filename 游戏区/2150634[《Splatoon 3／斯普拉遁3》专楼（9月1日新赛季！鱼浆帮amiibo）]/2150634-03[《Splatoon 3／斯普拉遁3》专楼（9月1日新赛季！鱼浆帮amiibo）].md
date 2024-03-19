@@ -6750,3 +6750,13 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 变形武器，是斩斧。
 
+
+*****
+
+####  罗克萨斯  
+##### 3657#       发表于 2024-3-19 15:47
+
+见鬼，又匹配到艾洛眼X章的队友，我明明连的是日区，给我匹配欧美玩家网络能不差吗？优势局队友掉线真绷不住，还不止一次这样<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

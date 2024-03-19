@@ -1296,3 +1296,17 @@ xcom2实在是太复杂了。。。
 
 各种玩不明白
 
+
+*****
+
+####  tansapple  
+##### 66#       发表于 2024-3-19 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64295866&amp;ptid=2149476" target="_blank">acgzero 发表于 2024-3-19 09:14</a>
+xcom2实在是太复杂了。。。
+
+今年开了一次坑，玩的举步维艰，最后化身计划满了崩盘弃坑
+
+各种玩不明白 ...</blockquote>
+原版wotc的话，可以先用新手难度开教程打一遍，有指引不至于不知道该干嘛，然后还可以打一些便利性功能改善mod提升游戏体验，便于看清敌人警戒范围，以及光标显示走位能打到哪些怪， 能不能触发侧击，以及显示敌人属性和技能等等，基本上能顺利通关一次就能把xcom2基础系统摸清了。之后再上难度或者挑战铁人模式，如果还觉得不过瘾就下lwotc这个大型mod给自己上强度<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

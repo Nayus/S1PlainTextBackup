@@ -5650,3 +5650,14 @@ IMG_5425.jpeg
 为啥信标可以黏在蛋盾上啊，我500粘到蛋盾上了，吓得我一边跑一边叫</blockquote>
 红支援只按球停下的位置来，跑就是了，被沾上蓝支援得赶紧脱掉盾不然会被砸死
 
+
+*****
+
+####  xinfengj  
+##### 2025#       发表于 2024-3-19 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64295927&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2024-3-19 09:18</a>
+
+为啥信标可以黏在蛋盾上啊，我500粘到蛋盾上了，吓得我一边跑一边叫</blockquote>
+按X可以轮盘选脱掉背包，靠粘盾可以把炮台什么的放到没法粘球的高地上
+

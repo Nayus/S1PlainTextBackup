@@ -6719,3 +6719,11 @@ Ronin　91099
 仁王12、卧龙都是36</blockquote>
 所以浪人多的这一分是索尼塞的一块钱么？哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  看脸  
+##### 1342#       发表于 2024-3-19 21:16
+
+前面先夸一通虚的东西，然后缺点轻轻一笔带过，不愧是春秋笔法高手，关键是第一句就直接抛开责任了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

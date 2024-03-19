@@ -504,3 +504,11 @@ TVアニメ『#ザ・ファブル』
 
 地下忍者制作勉强算是及格线吧，起码用了点心思在，至于为啥是手冢P做，说明资方本来也就这么个期待和投入而已
 
+
+*****
+
+####  gawain  
+##### 51#       发表于 2024-3-20 01:12
+
+事实就是青漫不赚钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 找手冢凑活凑活的了
+

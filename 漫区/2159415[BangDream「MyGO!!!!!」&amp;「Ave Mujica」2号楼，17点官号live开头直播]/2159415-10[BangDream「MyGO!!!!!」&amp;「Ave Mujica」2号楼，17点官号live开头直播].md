@@ -11367,3 +11367,41 @@ solo的16分震音个人感觉有点后摇的味道（）
 
 —— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 14296#       发表于 2024-3-19 20:15
+
+【【Official Music Video】回層浮（Kaiso）/ MyGO!!!!!【原创歌曲】-哔哩哔哩】 https://b23.tv/fJ00oD6
+MV挺好看的
+
+*****
+
+####  基神的强袭自由  
+##### 14297#       发表于 2024-3-19 20:16
+
+[【MyGO/让子弹飞/终章】太阳照常升起](https://www.bilibili.com/video/BV1Vx4y1D78N/)
+
+*****
+
+####  基神的强袭自由  
+##### 14298#       发表于 2024-3-19 20:18
+
+[♿实地考据/独家解析♿Mygo动画最后分镜大有深意！？Live当天没巡礼的人亏了！！](https://www.bilibili.com/video/BV1Xj421o7FE/)
+
+*****
+
+####  椎名mahuyo  
+##### 14299#       发表于 2024-3-19 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新歌，主唱太拼命了
+
+
+*****
+
+####  DarthAka  
+##### 14300#       发表于 2024-3-19 20:22
+
+新歌好像比动画那两首容易，MV不错，暂时和解了
+

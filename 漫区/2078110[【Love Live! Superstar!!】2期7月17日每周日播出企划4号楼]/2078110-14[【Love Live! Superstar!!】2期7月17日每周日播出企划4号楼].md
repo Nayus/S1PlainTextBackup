@@ -1071,3 +1071,11 @@ sma不重视也不签唱片公司也就那样了
 
 拉板是什么情况，被人爆破了吗？为啥好多无意义的帖子刷屏？
 
+
+*****
+
+####  stygian  
+##### 19817#       发表于 2024-3-19 20:20
+
+脚本爆破天天有，没啥好奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1336,3 +1336,11 @@ xcom2最好买全套的，不带dlc的本体现在没啥玩的价值了，而且
 
 最好全买，一些大型mod和功能性改良mod都会用到dlc里的参数，现在全套打包才60多相当划算了，以前原版xcom2，wotc，传承模式都是分开卖的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  林无德  
+##### 70#       发表于 2024-3-19 12:13
+
+已经贵了，1月时全系列大包才40几
+

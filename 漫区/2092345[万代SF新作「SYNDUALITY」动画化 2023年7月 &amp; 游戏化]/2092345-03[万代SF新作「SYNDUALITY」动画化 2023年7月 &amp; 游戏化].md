@@ -6710,3 +6710,23 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 另外奶茶屋更新了22话
 
+
+*****
+
+####  三合一出现  
+##### 4423#       发表于 2024-3-19 22:33
+
+<img src="https://img.saraba1st.com/forum/202403/19/223223dteto67x77pxrrko.png" referrerpolicy="no-referrer">
+
+<strong>AEA91%$OIJ4L[V3ZGS$BS@6.png</strong> (66.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 22:32 上传
+
+看到这一段笑了，能看到这里的观众估计都是这个想法。
+
+然后啊- -boss问了两位兄弟的目的后，直接无视了男主直接开干。
+
+要不是最后全球ddos，那么有男女主什么作用吗？
+

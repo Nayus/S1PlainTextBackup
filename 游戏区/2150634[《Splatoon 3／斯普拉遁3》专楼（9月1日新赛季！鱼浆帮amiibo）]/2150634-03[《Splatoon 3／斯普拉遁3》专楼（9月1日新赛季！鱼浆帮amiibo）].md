@@ -6843,3 +6843,14 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 DLC实际上已经成功了吧？感觉全武器通关的徽章都烂大街了，甚至队友全都戴着就我没，不至于大伙都是边骂边大玩特玩吧？能让人重复通关这么多遍，妥妥的神作<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ‮‮‮‮  
+##### 3666#       发表于 2024-3-19 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293109&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-18 20:55</a>
+
+我把整个赛季的观星看了个遍，都没看到这双鞋，看来并不是从目录或者商店获得 ...</blockquote>
+lean的喷3 database那边可以看服装的入手方式，shop是商店catalog是目录，显示other的一般是打工、amiibo、单机模式、以及祭典新闻赠送，看花纹应该是春季祭典的新闻送的
+

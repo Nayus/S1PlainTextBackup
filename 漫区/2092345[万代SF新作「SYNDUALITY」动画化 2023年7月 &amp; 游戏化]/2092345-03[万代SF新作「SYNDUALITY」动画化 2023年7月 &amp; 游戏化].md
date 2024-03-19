@@ -6587,3 +6587,32 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 ？
 ？？<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4413#       发表于 2024-3-19 17:41
+
+这话见了威斯后的剧情还挺好看的，虽然古典，但是演出发挥的不错，彼方总算没拖后腿了，对对，绝对不能原谅威斯这混账<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 4414#       发表于 2024-3-19 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294474&amp;ptid=2092345" target="_blank">八等绝癔 发表于 2024-3-19 00:07</a>
+
+彼方的实力其实倒也不差 但他目前顶多作为一个战斗技术卓越的人这一整季都在跟基因克隆人中最nb的3个打架  ...</blockquote>
+其实真要说的话，时雄也明显比马哈特强不少，当然因为厌恶贤士的关系，威斯的实力也是打个折扣的
+
+*****
+
+####  aptx8285144  
+##### 4415#       发表于 2024-3-19 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294693&amp;ptid=2092345" target="_blank">765事务所 发表于 2024-3-19 00:48</a>
+
+虽然说男主从新手经过有限而合理的成长，现在可以和Boss一战，过程中没怎么开挂，很真实。但是有没有一种可 ...</blockquote>
+三个打一个，加上机体性能上来了，到也不需要太多的技能成长，至于下一话大概率靠诺娃开挂<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

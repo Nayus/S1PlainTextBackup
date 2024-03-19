@@ -500,3 +500,40 @@ Xbox 时代是真有姿色的美少女，动暴时代算是风韵犹存的散石
 
 本身还是在SIE的管控下
 
+
+*****
+
+####  血狂毘沙门  
+##### 49#       发表于 2024-3-19 17:40
+
+索尼当时真是被微软逼的病急乱投医了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亚瑟摩根  
+##### 50#       发表于 2024-3-19 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301801&amp;ptid=2176158" target="_blank">血狂毘沙门 发表于 2024-3-19 17:40</a>
+
+索尼当时真是被微软逼的病急乱投医了</blockquote>
+不至于，微软收购一个ABK，SIE这边马上去谈棒鸡
+
+本身这个事情一直也秘密进行中
+
+微软买ABK也不是突然就谈妥的
+
+当时也几个买家中脱颖而出
+
+
+*****
+
+####  nage560  
+##### 51#       发表于 2024-3-19 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301762&amp;ptid=2176158" target="_blank">zris 发表于 2024-3-19 17:36</a>
+
+签协议了，虽然是独立，但是相对于PS studio
+
+本身还是在SIE的管控下</blockquote>
+那棒鸡看来没有好果子吃了。
+

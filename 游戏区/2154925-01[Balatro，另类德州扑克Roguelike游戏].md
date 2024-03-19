@@ -6116,3 +6116,11 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 已经售出一百万份了。
 
+
+*****
+
+####  stygian  
+##### 536#       发表于 2024-3-19 12:21
+
+草，周愚新视频是个轮盘赌改的游戏，今年要流行各种赌场游戏改了吧
+

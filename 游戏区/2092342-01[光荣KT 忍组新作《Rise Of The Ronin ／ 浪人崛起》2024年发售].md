@@ -6589,3 +6589,11 @@ BOSS用刀把人挑起来然后掏出枪叭叭叭把人在空中连一顿，看�
 
 偷跑哥给8分的话,看偷跑哥偷跑的各位给几分呢,也是8分吗
 
+
+*****
+
+####  Edvinno  
+##### 1328#       发表于 2024-3-19 19:09
+
+这个基地截图看得我三国无双8 ptsd犯了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

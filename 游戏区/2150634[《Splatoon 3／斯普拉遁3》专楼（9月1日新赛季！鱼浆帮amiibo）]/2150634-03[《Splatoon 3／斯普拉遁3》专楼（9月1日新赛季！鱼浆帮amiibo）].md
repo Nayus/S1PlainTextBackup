@@ -6680,3 +6680,35 @@ XP3500的消防栓，不知道各位看过没，真的恐怖，消防栓的上�
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KBAC  
+##### 3651#       发表于 2024-3-19 13:04
+
+ 本帖最后由 KBAC 于 2024-3-19 13:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/19/125750id3a9qq3axau3dqp.png" referrerpolicy="no-referrer">
+
+<strong>img_9016.png</strong> (914.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 12:57 上传
+
+论匹配机制扯淡还得是涂地，瞧瞧这编成（有一说一，这编成还挺X赛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+中午刚打的，最搞笑的一局，玩成抓蟑螂了，两边六个人抓两个喷枪抓不到，对面金喷死那两次是和我银喷对枪对死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  星野航  
+##### 3652#       发表于 2024-3-19 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64296725&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-19 11:30</a>
+
+早知道不参加这次祭典了，日区衣服好丑，那些祭典装备也不是这次发，观星上位奖要130多抽我根本不想去肝[ ...</blockquote>
+攒攒海螺，刷刷目录嘛
+

@@ -6122,3 +6122,36 @@ boss战批站链接
 
 龙哥有出场吗
 
+
+*****
+
+####  Leliel  
+##### 1279#       发表于 2024-3-19 14:07
+
+这队友应该是能关的吧
+
+
+*****
+
+####  Yeelolo  
+##### 1280#       发表于 2024-3-19 14:10
+
+第二人不会像奥德赛那样变反派吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戰國卍丸  
+##### 1281#       发表于 2024-3-19 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64299191&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-3-19 13:56</a>
+
+战斗系统有说吗，我就指望这个
+
+—— 来自 OPPO PGJM10, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+没咋细说
+
+主要指望一个鬼佬玩明白
+
+难
+

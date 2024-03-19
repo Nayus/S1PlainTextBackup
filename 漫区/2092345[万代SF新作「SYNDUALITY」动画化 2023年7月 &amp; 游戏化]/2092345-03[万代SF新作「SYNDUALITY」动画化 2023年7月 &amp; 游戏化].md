@@ -6496,3 +6496,21 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 最后22号有新品发布会 求求万代了 我真的很需要诺亚变革者与雏菊恶鬼FIX</blockquote>
 但是要发布的商品占位符都出来了，没有synduality的份
 
+
+*****
+
+####  洛克萨斯  
+##### 4404#       发表于 2024-3-19 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64294473&amp;ptid=2092345" target="_blank">八等绝癔 发表于 2024-3-19 00:07</a>
+
+彼方的实力其实倒也不差 但他目前顶多作为一个战斗技术卓越的人这一整季都在跟基因克隆人中最nb的3个打架  ...</blockquote>
+克隆人是哪里的设定，前面的集数有说么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 4405#       发表于 2024-3-19 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥boss没有ai辅助都这么能打，机体性能甩开其他人几条街，太怪了
+

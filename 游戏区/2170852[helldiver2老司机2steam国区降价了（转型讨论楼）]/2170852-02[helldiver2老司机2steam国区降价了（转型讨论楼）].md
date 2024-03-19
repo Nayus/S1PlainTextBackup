@@ -5696,3 +5696,29 @@ IMG_5425.jpeg
 机器人图怎么全清据点撤离时还会刷那么多怪啊？太可怕了噜！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">宏迪那边测试，清了据点反而会增加巡逻队密度-&gt;拉烟变多-&gt;怪更多
 
+
+*****
+
+####  Launce  
+##### 2030#       发表于 2024-3-20 00:34
+
+<img src="https://img.saraba1st.com/forum/202403/20/003010l32012wn4rjw0d7n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 00:30 上传
+
+onp，2天解放2星区，上强度了
+
+<img src="https://img.saraba1st.com/forum/202403/20/003400ixyxz4o6qyqyk66u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 00:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便，日本这么火出圈吗
+

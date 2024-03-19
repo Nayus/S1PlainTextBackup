@@ -1184,3 +1184,20 @@ rarbg倒了之后就没怎么用bt了，找不到平替。
 
 别说上传了，下载我都不敢在正常活动的时间下载，都是睡前开一下
 
+
+*****
+
+####  循此苦旅  
+##### 122#       发表于 2024-3-20 00:27
+
+ 本帖最后由 循此苦旅 于 2024-3-20 00:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305040&amp;ptid=2176037" target="_blank">秘银mithril 发表于 2024-3-19 23:41</a>
+
+我现在一开qbittorrent，我家的网就会间歇性的断掉
+
+以前用bitcomet也一样，不知道是什么问题
+
+别说上传了， ...</blockquote>
+应该是连接数超过了路由器上限或者运营商限制，bitcomet里可以把network.max_udp_pkt_per_sec调小些，或者直接限制全局连接数 network.max_connections
+[https://bbs.itzmx.com/thread-102521-1-1.html](https://bbs.itzmx.com/thread-102521-1-1.html)
+

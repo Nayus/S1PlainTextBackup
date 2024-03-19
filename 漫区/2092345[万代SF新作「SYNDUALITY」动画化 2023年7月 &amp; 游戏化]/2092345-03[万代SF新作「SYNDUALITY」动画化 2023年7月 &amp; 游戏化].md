@@ -6692,3 +6692,21 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 话说好像<strong>很少</strong>看到诺娃这么生气的口吻，希望下周把怒火发泄得再狠一些（
 
+
+*****
+
+####  aptx8285144  
+##### 4422#       发表于 2024-3-19 21:45
+
+<img src="https://img.saraba1st.com/forum/202403/19/214326xfqoppfgqgp2o575.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240319213753.png</strong> (35.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 21:43 上传
+
+威斯为什么那么牛逼，也许这个是答案？加上一开始和他一问一答的智能，这家伙既然这么痛恨贤士，有本事就别向智能发问呀！！<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+另外奶茶屋更新了22话
+

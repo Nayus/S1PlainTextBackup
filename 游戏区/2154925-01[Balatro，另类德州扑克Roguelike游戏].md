@@ -6134,3 +6134,19 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  schneehertz  
+##### 538#         楼主| 发表于 2024-3-19 21:45
+
+<img src="https://img.saraba1st.com/forum/202403/19/214449x76d2j770gp3iyln.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (378.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 21:44 上传
+
+打人头牌葫芦过的，相当于只用了一张小丑
+

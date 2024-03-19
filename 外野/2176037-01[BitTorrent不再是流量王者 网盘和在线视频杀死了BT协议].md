@@ -1117,3 +1117,14 @@ rarbg倒了之后就没怎么用bt了，找不到平替。
 
 看了一下满速下载确实十几秒
 
+
+*****
+
+####  ryanz  
+##### 115#       发表于 2024-3-19 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64291862&amp;ptid=2176037" target="_blank">Nanachi 发表于 2024-3-18 18:23</a>
+
+公网bt无法应对只吸不传的吸血客户端，更别提国内现在还有些闲的蛋疼的人专门吸公网种子上传流量，谎报进度 ...</blockquote>
+人家不是闲的蛋疼 见 [https://github.com/anacrolix/torrent/discussions/891](https://github.com/anacrolix/torrent/discussions/891) 最后的回复和 [https://www.right.com.cn/FORUM/thread-8351068-1-1.html](https://www.right.com.cn/FORUM/thread-8351068-1-1.html) 这个帖子，成功被恶心到了，thank243 这个人迟早是要挂耻辱柱上面的。
+

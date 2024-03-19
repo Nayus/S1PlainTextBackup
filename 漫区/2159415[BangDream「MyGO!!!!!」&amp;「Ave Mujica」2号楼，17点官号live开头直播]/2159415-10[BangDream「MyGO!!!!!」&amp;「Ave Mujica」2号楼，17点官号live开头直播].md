@@ -11472,3 +11472,13 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 新歌结束的好突然<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 14307#       发表于 2024-3-19 21:51
+
+这次的新歌倒是不会“主唱太拼命了”，但确实挺想“查询主唱精神状态”。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

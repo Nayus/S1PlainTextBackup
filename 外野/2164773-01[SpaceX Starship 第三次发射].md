@@ -4143,3 +4143,16 @@ S29的Spin prime在第三发前就做了。接下来是等6发静点。如果是
 
 肖特维尔感觉靠谱一些。
 
+
+*****
+
+####  commcody  
+##### 520#         楼主| 发表于 2024-3-19 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304569&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-19 22:36</a>
+
+肖特维尔感觉靠谱一些。</blockquote>
+射得好女士还是比老马靠谱。看样子5月初很有希望第四发。
+
+射得好女士后面还说计划今年完成入轨、释放卫星和回收两级。
+

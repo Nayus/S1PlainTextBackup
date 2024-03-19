@@ -6743,3 +6743,41 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 然后啊- -boss问了两位兄弟的目的后，直接无视了 ...</blockquote>
 威斯看了彼方叫名字后提到了歌姬，然后知道他要米斯特时把镜头打开来了
 
+
+*****
+
+####  aptx8285144  
+##### 4425#       发表于 2024-3-19 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304544&amp;ptid=2092345" target="_blank">三合一出现 发表于 2024-3-19 22:33</a>
+
+看到这一段笑了，能看到这里的观众估计都是这个想法。
+
+然后啊- -boss问了两位兄弟的目的后，直接无视了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/19/225746jcwmmcvm0z0mp5mv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240319225737.png</strong> (42.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 22:57 上传
+
+威斯这人确实说话很有刺激人的感觉
+
+<img src="https://img.saraba1st.com/forum/202403/19/225811mmb6l5rll0p77bi5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240319225311.png</strong> (56.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 22:58 上传
+
+<img src="https://img.saraba1st.com/forum/202403/19/225821qu1z4wq050nt510b.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240319225207.png</strong> (44.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 22:58 上传
+

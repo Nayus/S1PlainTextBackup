@@ -6772,3 +6772,13 @@ Ronin　91099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不打算玩的人怎么急成这样
 
+
+*****
+
+####  Yeelolo  
+##### 1348#       发表于 2024-3-19 22:59
+
+你都玩光荣的游戏了，还要求画面？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

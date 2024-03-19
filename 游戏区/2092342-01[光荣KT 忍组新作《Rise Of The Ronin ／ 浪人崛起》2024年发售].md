@@ -6833,3 +6833,14 @@ Ronin　91099
 和风美少女武士ACT就是我的梦中情游，虽然搭上了开放世界和刷宝的不安要素也算是圆梦了 ...</blockquote>
 不是有武士少女嗎
 
+
+*****
+
+####  zqqwe  
+##### 1355#       发表于 2024-3-20 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305030&amp;ptid=2092342" target="_blank">病態極端 发表于 2024-3-19 23:40</a>
+不是有武士少女嗎</blockquote>
+武士少女是萌系jk人设，无论是武士感还是ACT部分都达不到及格线，闪乱的斑鸠都比这对味。
+忍龙刀锋那边三个都是软妹音，这次浪人用了石川由依就很符合我的xp<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

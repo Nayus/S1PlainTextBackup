@@ -1201,3 +1201,16 @@ rarbg倒了之后就没怎么用bt了，找不到平替。
 应该是连接数超过了路由器上限或者运营商限制，bitcomet里可以把network.max_udp_pkt_per_sec调小些，或者直接限制全局连接数 network.max_connections
 [https://bbs.itzmx.com/thread-102521-1-1.html](https://bbs.itzmx.com/thread-102521-1-1.html)
 
+
+*****
+
+####  fuckingworld  
+##### 123#       发表于 2024-3-20 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304177&amp;ptid=2176037" target="_blank">ryanz 发表于 2024-3-19 21:46</a>
+人家不是闲的蛋疼 见 https://github.com/anacrolix/torrent/discussions/891 最后的回复和 https://www. ...</blockquote>
+草，这个人也太恶毒了。如果运营商真的是根据上下行流量比例来判断pcdn，他这么干相当于把自己的风险完全转嫁给别人了，因为被他下载的那个人的上传流量会很大，看起来非常像pcdn。
+这帮人这么搞就是拿全民的低价带宽做成本，以后运营商涨价就是其他人买单
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

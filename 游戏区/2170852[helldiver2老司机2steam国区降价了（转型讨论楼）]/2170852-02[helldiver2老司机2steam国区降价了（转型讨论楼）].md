@@ -5732,3 +5732,17 @@ onp，2天解放2星区，上强度了
 
 电债券给的第三把枪怎么样？要也不行我就存着拿去换焦土了
 
+
+*****
+
+####  风萧飒  
+##### 2032#       发表于 2024-3-20 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305633&amp;ptid=2170852" target="_blank">Mr.BBWoLf 发表于 2024-3-20 01:24</a>
+刚才用了两把第二把枪，纯搞笑玩意儿，6发弹药炸那一下甚至有几率炸不死跳虫
+
+电债券给的第三把枪怎么样？ ...</blockquote>
+电喷普遍评价不行，换焦土吧，我用着手感很不错（除了弹药少），打虫子和机器人都行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

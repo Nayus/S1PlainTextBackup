@@ -6551,3 +6551,20 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 所以到头来enders和蓝雨是什么也没说，世界观展开就是没有世界观。noir明明身体是ciel的倒是可以防远程锁，反派手下连头子想干啥都不知道。灭哥哥好歹真的把小跟班伊拉众带上空间站呢
 
+
+*****
+
+####  八等绝癔  
+##### 4410#       发表于 2024-3-19 16:29
+
+<img src="https://img.saraba1st.com/forum/202403/19/162929gk5xwfx8bxno5x4d.png" referrerpolicy="no-referrer">
+
+<strong>Image_1710836952651.png</strong> (142.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-19 16:29 上传
+
+小剧场打赢复活赛了
+

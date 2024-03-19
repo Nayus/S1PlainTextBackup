@@ -11563,3 +11563,11 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 太难蚌了感觉双子这两张格外鬼图，信泽别画了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 14314#       发表于 2024-3-19 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到同人图刚意识到今天是双子生日然后还没来及跑就被信泽攻击了
+

@@ -5677,3 +5677,11 @@ IMG_5425.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刷到一个两分钟50超级货币的爽图，先多刷点
 
+
+*****
+
+####  bladethunder  
+##### 2028#       发表于 2024-3-19 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">机器人图怎么全清据点撤离时还会刷那么多怪啊？太可怕了噜！
+

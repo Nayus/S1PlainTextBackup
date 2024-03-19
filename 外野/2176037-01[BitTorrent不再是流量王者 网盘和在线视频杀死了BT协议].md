@@ -866,3 +866,28 @@ BT的特点注定了老资源基本不能指望，但下载新出的动画之类
 
 怎么老能看到有人一本正经说磁力抢了bt的生态……
 
+
+*****
+
+####  foolegg  
+##### 90#       发表于 2024-3-19 08:17
+
+<blockquote>神之飞雪 发表于 2024-3-18 20:54
+BT创始人新弄的那个sync怎么样，安全性和BT比呢</blockquote>
+那个不是用来分享的，拿来做同步很不错
+
+
+*****
+
+####  Antonidas  
+##### 91#       发表于 2024-3-19 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292888&amp;ptid=2176037" target="_blank">diohanmilton 发表于 2024-3-18 20:20</a>
+说起来动漫花园之前都是去极影的。
+
+—— 来自 HONOR PGT-AN10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+幼儿园那个……硬盘完全不够
+我上100t都不够……
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

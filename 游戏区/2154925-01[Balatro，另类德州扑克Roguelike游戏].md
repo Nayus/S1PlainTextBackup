@@ -6082,3 +6082,16 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 奇数槽情况下全是钢铁红印K的话蓝图是怎么分配给默剧和公爵？优先给公爵吗
 
+
+*****
+
+####  schneehertz  
+##### 533#         楼主| 发表于 2024-3-19 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293804&amp;ptid=2154925" target="_blank">会长辅佐 发表于 2024-3-18 22:32</a>
+奇数槽情况下全是钢铁红印K的话蓝图是怎么分配给默剧和公爵？优先给公爵吗 ...</blockquote>
+给男爵是1.5^3^3，给哑剧演员是1.5^2^4
+给男爵
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

@@ -349,3 +349,11 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 而且1土龙也难以触 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">明白了,  谢谢
 
+
+*****
+
+####  玛基  
+##### 17792#       发表于 2024-3-19 11:17
+
+疑似要一井除了井零提升了，不对我要井的是第二把土龙，连井也是零提升了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

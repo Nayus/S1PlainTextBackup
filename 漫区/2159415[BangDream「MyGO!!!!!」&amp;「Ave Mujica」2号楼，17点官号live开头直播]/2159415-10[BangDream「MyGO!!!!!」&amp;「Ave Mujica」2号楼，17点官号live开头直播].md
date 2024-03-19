@@ -11508,3 +11508,11 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 [https://twitter.com/I_nonfiction_I/status/1743502012279582819](https://twitter.com/I_nonfiction_I/status/1743502012279582819)
 
+
+*****
+
+####  ddy2811  
+##### 14309#       发表于 2024-3-19 22:33
+
+真章还是要看爱知和对邦ppp，这两场要能拿下应该能挽回不少的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

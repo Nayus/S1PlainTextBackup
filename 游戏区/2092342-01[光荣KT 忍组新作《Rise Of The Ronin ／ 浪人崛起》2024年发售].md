@@ -6756,3 +6756,19 @@ Ronin　91099
 发最后一个纪录片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [https://youtu.be/7lObAfYY-yU?si=9OOYrBv7ZhjEgyxy](https://youtu.be/7lObAfYY-yU?si=9OOYrBv7ZhjEgyxy)
 
+
+*****
+
+####  leavan  
+##### 1346#       发表于 2024-3-19 22:27
+
+最后一句点出了，垃圾画面！连日媒都嫌弃。PS3早期级别垃圾画面，出在PS5上属于刷新下限。
+
+
+*****
+
+####  Gigax  
+##### 1347#       发表于 2024-3-19 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不打算玩的人怎么急成这样
+

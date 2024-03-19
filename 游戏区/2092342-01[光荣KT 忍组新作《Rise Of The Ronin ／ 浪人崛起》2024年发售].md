@@ -6273,3 +6273,63 @@ https://kick.com/aktive_1 偷跑哥直播地址，有兴趣的可以看看，这
 
 感觉断肢的效果确实挺明显的但是好不自然... 大太刀打在身上敌人死了头突然掉下来了看着好奇怪
 
+
+*****
+
+####  病態極端  
+##### 1294#       发表于 2024-3-19 16:14
+
+路人也會發劍氣<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+什麼高武世界
+
+*****
+
+####  popchong  
+##### 1295#       发表于 2024-3-19 16:14
+
+草敌人怎么还能披出剑气
+
+*****
+
+####  刘震云  
+##### 1296#       发表于 2024-3-19 16:18
+
+<img src="https://img.saraba1st.com/forum/202403/19/161520v646h4iuccjm435i.jpg" referrerpolicy="no-referrer">
+
+<strong>套装.jpg</strong> (80.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 16:15 上传
+
+套装效果还是健在，套装挺丰富的，忍组这一点不必担心
+
+<img src="https://img.saraba1st.com/forum/202403/19/161610wtpidtietdiwzf2z.jpg" referrerpolicy="no-referrer">
+
+<strong>收买.jpg</strong> (67.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 16:16 上传
+
+是选择大开杀戒还是用钱收买，还是直接口胡，开放世界定番（估计成功率和任务魅力值相关）
+
+<img src="https://img.saraba1st.com/forum/202403/19/161712abbum1b3xhjaixmz.jpg" referrerpolicy="no-referrer">
+
+<strong>基地.jpg</strong> (92.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 16:17 上传
+
+在基地里和NPC休息喝茶。聊天打屁，还有送礼环节，能提升羁绊值
+
+
+*****
+
+####  dodokin  
+##### 1297#       发表于 2024-3-19 16:21
+
+看着内容挺丰富啊
+

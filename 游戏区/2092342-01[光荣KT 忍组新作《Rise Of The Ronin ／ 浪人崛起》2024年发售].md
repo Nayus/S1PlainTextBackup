@@ -6708,3 +6708,14 @@ Ronin　91099
 
 索尼的钱果然香
 
+
+*****
+
+####  葵  
+##### 1341#       发表于 2024-3-19 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64303083&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-19 19:54</a>
+
+仁王12、卧龙都是36</blockquote>
+所以浪人多的这一分是索尼塞的一块钱么？哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

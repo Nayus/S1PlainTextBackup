@@ -11482,3 +11482,29 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  御幸一也  
+##### 14308#       发表于 2024-3-19 21:57
+
+不打tag都沒存到的圖<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">  美味
+
+<img src="https://img.saraba1st.com/forum/202403/19/215723vxrmcu1r15dx5duf.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_長日(@I_nonfiction_I)_20240106-051727_1743502012279582819_photo-0.jpg</strong> (309.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202403/19/215725kcz747gmp7x4ycpn.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_長日(@I_nonfiction_I)_20240106-051727_1743502012279582819_photo-1.jpg</strong> (234.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-19 21:57 上传
+
+[https://twitter.com/I_nonfiction_I/status/1743502012279582819](https://twitter.com/I_nonfiction_I/status/1743502012279582819)
+

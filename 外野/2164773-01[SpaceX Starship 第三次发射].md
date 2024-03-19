@@ -4101,3 +4101,13 @@ S29的Spin prime在第三发前就做了。接下来是等6发静点。如果是
 而且他们不知 ...</blockquote>
 最搞笑的是 他们在27发动机的火箭成功率100%的情况下  强行说33发动机是堆发动机必定不会成功
 
+
+*****
+
+####  andychen  
+##### 517#       发表于 2024-3-19 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64303886&amp;ptid=2164773" target="_blank">commcody 发表于 2024-3-19 21:14</a>
+S29的Spin prime在第三发前就做了。接下来是等6发静点。如果是重复第三发的任务，那么还需要再做一次模拟 ...</blockquote>
+我感觉这回可能比较麻烦，那个潜在的泄漏问题不一定能很快解决
+

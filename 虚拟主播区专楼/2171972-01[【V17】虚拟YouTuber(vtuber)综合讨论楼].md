@@ -2567,3 +2567,17 @@ vspo这新人感觉完全不夹啊。
 
 据我所知無馬想跑路是有不少苗头的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 119#       发表于 2024-3-19 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">なしま那可不是早就想跑路了  上次想跑路最后整了个Arcana作为下属组织实际独立分部+任命2个underboss实际上就是他将来跑路的时候准备的继承人
+
+只能说RB和yakubeni溜得太快 不然他绝对第一个跑
+
+而且这次这个事我只能说是なしま用火箭筒救了ALLIN，一个火箭筒砸基地里把这个破坏服务器RP性质的恶性事件变成了“story”，不然等市长广播结束了回来直接天火全给你烧了
+
+现在我看千代田他们还各种办法想让他回去谈谈想把他拉回去，真是不知好歹，把他拉回去事情才不可收拾好吧，只能说有些人是真的只配那点关注数，跟着ALLIN这一群大手都混不出来是有道理的，智商水平差太多了
+

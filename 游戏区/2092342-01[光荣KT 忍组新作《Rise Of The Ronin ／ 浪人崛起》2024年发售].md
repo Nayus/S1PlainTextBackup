@@ -6745,3 +6745,14 @@ Ronin　91099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">法米通仁王1，仁王2，卧龙全是36分，突出一个没啥参考价值
 
+
+*****
+
+####  Gigax  
+##### 1345#       发表于 2024-3-19 22:03
+
+ 本帖最后由 Gigax 于 2024-3-19 22:06 编辑 
+
+发最后一个纪录片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://youtu.be/7lObAfYY-yU?si=9OOYrBv7ZhjEgyxy](https://youtu.be/7lObAfYY-yU?si=9OOYrBv7ZhjEgyxy)
+

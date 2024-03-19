@@ -1104,3 +1104,16 @@ BT的特点注定了老资源基本不能指望，但下载新出的动画之类
 
 rarbg倒了之后就没怎么用bt了，找不到平替。
 
+
+*****
+
+####  待宵  
+##### 114#       发表于 2024-3-19 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64300644&amp;ptid=2176037" target="_blank">gnihton314 发表于 2024-3-19 16:11</a>
+
+一两分钟？一二十秒！</blockquote>
+这不是没在意过嘛233
+
+看了一下满速下载确实十几秒
+

@@ -23,3 +23,12 @@
 
 都这样了还有不间断大赛，他真我哭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 1842#       发表于 2024-3-19 23:44
+
+才发现这边影之诗居然还有专楼
+国服出幻境之后就没打过指定了，但是现在幻境也很没意思了，这次新包国服好像也没打算更新幻境啊
+

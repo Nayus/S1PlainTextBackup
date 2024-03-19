@@ -6815,3 +6815,21 @@ Ronin　91099
 
 幕后第四弹「Rise as One」：[https://youtu.be/iCXTW84emfs](https://youtu.be/iCXTW84emfs)
 
+
+*****
+
+####  zqqwe  
+##### 1353#       发表于 2024-3-19 23:34
+
+和风美少女武士ACT就是我的梦中情游，虽然搭上了开放世界和刷宝的不安要素<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也算是圆梦了
+
+*****
+
+####  病態極端  
+##### 1354#       发表于 2024-3-19 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304989&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-3-19 23:34</a>
+
+和风美少女武士ACT就是我的梦中情游，虽然搭上了开放世界和刷宝的不安要素也算是圆梦了 ...</blockquote>
+不是有武士少女嗎
+

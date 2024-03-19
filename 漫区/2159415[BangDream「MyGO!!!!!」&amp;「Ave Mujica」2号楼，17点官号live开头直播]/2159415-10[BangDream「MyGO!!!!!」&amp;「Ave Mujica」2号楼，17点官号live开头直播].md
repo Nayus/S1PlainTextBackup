@@ -11611,3 +11611,13 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 邪神攻击
 
+
+*****
+
+####  多莉DOLLY  
+##### 14318#       发表于 2024-3-20 06:43
+
+昨天福冈在B区第一排，最后扔拨片环节感觉应该扔不到我这里，就光顾着看羊去了，结果被拨片砸中脑袋一时没反应过来，最后拨片掉地上被旁边的人捡走了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+从方向应该是凛或者蜜柑扔的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

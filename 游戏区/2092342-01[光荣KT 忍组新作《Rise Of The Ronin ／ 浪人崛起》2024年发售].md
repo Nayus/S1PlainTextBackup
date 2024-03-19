@@ -6844,3 +6844,21 @@ Ronin　91099
 武士少女是萌系jk人设，无论是武士感还是ACT部分都达不到及格线，闪乱的斑鸠都比这对味。
 忍龙刀锋那边三个都是软妹音，这次浪人用了石川由依就很符合我的xp<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈词与芍药  
+##### 1356#       发表于 2024-3-20 00:44
+
+<img src="https://img.saraba1st.com/forum/202403/19/124428skdaz6xw29aa23i9.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3062.JPG</strong> (632.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 00:44 上传
+
+我索伟大，4202年御三家唯一指定锁语言
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

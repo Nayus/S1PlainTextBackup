@@ -6612,3 +6612,29 @@ BOSS用刀把人挑起来然后掏出枪叭叭叭把人在空中连一顿，看�
 
 b站有人传了偷跑录播，断肢系统确实有，砍死人直接脑袋掉了
 
+
+*****
+
+####  Gigax  
+##### 1331#       发表于 2024-3-19 19:45
+
+法米通37分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  icylight  
+##### 1332#       发表于 2024-3-19 19:51
+
+仁王12 卧龙 fami通给了多少分？
+
+*****
+
+####  葵  
+##### 1333#       发表于 2024-3-19 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64302993&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-19 19:45</a>
+
+法米通37分</blockquote>
+仁王1和2法米多少分来着？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

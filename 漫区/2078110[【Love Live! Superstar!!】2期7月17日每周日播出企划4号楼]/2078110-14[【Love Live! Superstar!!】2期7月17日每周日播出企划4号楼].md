@@ -1089,3 +1089,16 @@ sma不重视也不签唱片公司也就那样了
 
 又期待又害怕轮到可可style的时候会是啥情况。。但最快也是明年的事了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 19819#       发表于 2024-3-20 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64303430&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-3-19 20:27</a>
+
+看来确实是一个人的风格三人main一轮后换了？
+
+又期待又害怕轮到可可style的时候会是啥情况。。但最快也是明 ...</blockquote>
+3人也来首中日英三语混合的曲子吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

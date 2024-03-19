@@ -5685,3 +5685,14 @@ IMG_5425.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">机器人图怎么全清据点撤离时还会刷那么多怪啊？太可怕了噜！
 
+
+*****
+
+####  Launce  
+##### 2029#       发表于 2024-3-20 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305095&amp;ptid=2170852" target="_blank">bladethunder 发表于 2024-3-19 23:49</a>
+
+机器人图怎么全清据点撤离时还会刷那么多怪啊？太可怕了噜！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">宏迪那边测试，清了据点反而会增加巡逻队密度-&gt;拉烟变多-&gt;怪更多
+

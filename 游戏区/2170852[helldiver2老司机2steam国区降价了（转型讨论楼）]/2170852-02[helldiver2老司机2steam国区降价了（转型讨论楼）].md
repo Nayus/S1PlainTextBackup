@@ -6112,3 +6112,24 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  保科智子  
+##### 2068#       发表于 2024-3-20 20:08
+
+刚买，有给新人建议吗？
+没有三叉戟都不会打了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dashuaibi  
+##### 2069#       发表于 2024-3-20 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314809&amp;ptid=2170852" target="_blank">保科智子 发表于 2024-3-20 20:08</a>
+
+刚买，有给新人建议吗？
+
+没有三叉戟都不会打了。</blockquote>
+新手解锁基础债券里的破裂者连喷，被削了依旧是新人帮手。不差钱或者钱够了遥遥领先债券里的第一把枪也不错，，完全加强无限子弹版基础步枪。就算过热直接换弹夹也等于一个弹夹一百发子弹，小机枪了
+

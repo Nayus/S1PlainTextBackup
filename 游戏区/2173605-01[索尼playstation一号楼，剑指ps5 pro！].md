@@ -1157,3 +1157,21 @@ ps5不是40cu屏蔽4个吗
 
 等国行估计 4299
 
+
+*****
+
+####  nagitoY  
+##### 294#       发表于 2024-3-20 20:12
+
+为了浪人入slim了，现在pdd 日版 光驱 3090。
+
+pro提升不大的话隔代升级了。
+
+
+*****
+
+####  保科智子  
+##### 295#       发表于 2024-3-20 20:14
+
+那我放弃装机，把4060ti的钱能拿下吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

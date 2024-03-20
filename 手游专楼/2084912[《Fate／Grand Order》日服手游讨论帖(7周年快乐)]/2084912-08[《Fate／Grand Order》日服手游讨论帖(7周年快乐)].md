@@ -2456,3 +2456,81 @@ CA6FCDBB-744B-4607-9C0E-B8BEC6CAD7B9.jpeg
 老爸会是医生吗 ...</blockquote>
 示巴：我有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 11627#       发表于 2024-3-20 21:19
+
+<img src="https://img.saraba1st.com/forum/202403/20/211307dfeddomhtompff1v.jpg" referrerpolicy="no-referrer">
+
+<strong>1710940367992.jpg</strong> (252.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-20 21:13 上传
+
+卡里奥斯特罗伯爵该不会是神功大成的smdrr画的吧，看着有点弹丸论破风格，这个嫩牛五方脸也像他的手笔...
+
+有一说一这造型真挺合我胃口的，但精细程度让我不敢乱认画师...
+
+*****
+
+####  angelooo  
+##### 11628#       发表于 2024-3-20 21:21
+
+隔壁那些因为某撕卡剧情又是要退坑又是要创死yjg的是什么表演型人格吗23333
+
+*****
+
+####  alucardcz  
+##### 11629#       发表于 2024-3-20 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315514&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-3-20 21:21</a>
+
+隔壁那些因为某撕卡剧情又是要退坑又是要创死yig的是什么表演型人格吗23333 ...</blockquote>
+什么 又有大戏了？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 11630#       发表于 2024-3-20 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315505&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-3-20 21:19</a>
+
+卡里奥斯特罗伯爵该不会是神功大成的smdrr画的吧，看着有点弹丸论破风格，这个嫩牛五方脸也像他的手笔... ...</blockquote>
+感觉像是。。游戏王里的人物（
+
+*****
+
+####  Jamaisvu  
+##### 11631#       发表于 2024-3-20 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315514&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-3-20 21:21</a>
+
+隔壁那些因为某撕卡剧情又是要退坑又是要创死yig的是什么表演型人格吗23333 ...</blockquote>
+这种人2.5就该退了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">撕了又不是删了，池子该开还是开，何况以后说不定还能换个强力马甲堂堂复活。
+
+*****
+
+####  Jamaisvu  
+##### 11632#       发表于 2024-3-20 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315534&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-20 21:22</a>
+
+感觉像是。。游戏王里的人物（</blockquote>
+穿得很浮夸，要是双色头发那就很适合打牌了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+但是颜艺0分<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 11633#       发表于 2024-3-20 21:25
+
+比起撕卡，NPC里真有海蒂才是槽点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 伯爵（四星）正脸真的好宽啊，为什么不让画海报的来画卡面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

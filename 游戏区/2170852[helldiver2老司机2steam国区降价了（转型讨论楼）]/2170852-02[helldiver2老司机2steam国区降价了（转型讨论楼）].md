@@ -6248,3 +6248,21 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  eno_emos  
+##### 2083#       发表于 2024-3-20 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64311566&amp;ptid=2170852" target="_blank">pmoe 发表于 2024-3-20 15:29</a>
+
+这种坦克披风虫可以开吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">显然不行，你在想什么，民主的披风侠怎么可能去开康米的坦克
+
+*****
+
+####  九十九忍  
+##### 2084#       发表于 2024-3-20 22:53
+
+到这种日常才感觉到系列任务都是有个固定兵种配置的，绿胖虫就死活碰不到
+

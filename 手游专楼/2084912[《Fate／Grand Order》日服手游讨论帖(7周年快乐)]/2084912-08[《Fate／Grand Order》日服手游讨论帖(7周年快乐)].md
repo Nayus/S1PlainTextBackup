@@ -2689,3 +2689,37 @@ syl 伯爵（四星）正脸真的好宽啊，为什么不让画海报的来画�
 
 ORT也干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 11648#       发表于 2024-3-20 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316337&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-3-20 22:45</a>
+
+ORT也干了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没戏份了，武藏这么久了就之前活动里一个黑影……
+
+
+*****
+
+####  cenhr  
+##### 11649#       发表于 2024-3-20 22:53
+
+但黑皇后的资料说明她是主角破OC2后召唤出来，光速吃书？
+
+当然我怀疑是存弹药玩Avengers Assemble的梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 11650#       发表于 2024-3-20 22:54
+
+ 本帖最后由 UNISONIA 于 2024-3-20 22:57 编辑 
+
+应该奏II两个伯爵都是兔ろうと，因为奏章封面认领的时候就是pako、兔ろうと、nipi三位出列转发的
+
+只是卡伯爵应该是压稿很久的作品了，和兔老师画封面的风格都不太一样
+
+合理推测奏III nipi除了封面的龙公主以外也有画一个别的角色
+

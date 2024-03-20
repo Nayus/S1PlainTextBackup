@@ -7014,3 +7014,15 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  晴岚  
+##### 3683#       发表于 2024-3-20 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316304&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-20 22:41</a>
+电脑加速时间一长容易失效需要重新切换节点，而且偶尔会和梯子打架到需要重启电脑的地步。路由器能同时给 ...</blockquote>
+我自己用笔记本开机直接自启动加速比手机方便，然后周末大概一次玩八个小时+也没试过加速失效跟要换节点也没出现过跟梯子冲突的情况……不过能同时加速ps5跟ns倒是确实，但我ps没啥联机游戏所以还好（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

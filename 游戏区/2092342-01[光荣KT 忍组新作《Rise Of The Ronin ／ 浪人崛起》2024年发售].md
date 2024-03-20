@@ -7808,3 +7808,47 @@ b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打</blockquo
 自己截的图感觉还行，但我 ...</blockquote>
 你通了吗 来点不剧透的情报
 
+
+*****
+
+####  被雨困住的城市  
+##### 1453#       发表于 2024-3-20 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313735&amp;ptid=2092342" target="_blank">戰國卍丸 发表于 2024-3-20 18:29</a>
+是三国志8remake 卖5m</blockquote>
+草，38re完全不行啊
+
+*****
+
+####  Yeelolo  
+##### 1454#       发表于 2024-3-20 22:53
+
+看贴吧偷跑哥11小时就能通<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">主线这么短？
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Gigax  
+##### 1455#       发表于 2024-3-20 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316414&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-20 22:53</a>
+
+看贴吧偷跑哥11小时就能通主线这么短？
+
+—— 来自 vivo V2324A, Android 14上的 S1Next-鹅版 v2.5. ...</blockquote>
+外网偷跑哥玩了快十个小时还没见到吉田松阴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雾生司  
+##### 1456#       发表于 2024-3-20 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316414&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-20 22:53</a>
+
+看贴吧偷跑哥11小时就能通主线这么短？
+
+—— 来自 vivo V2324A, Android 14上的 S1Next-鹅版 v2.5. ...</blockquote>
+偷跑哥就在你的楼上
+

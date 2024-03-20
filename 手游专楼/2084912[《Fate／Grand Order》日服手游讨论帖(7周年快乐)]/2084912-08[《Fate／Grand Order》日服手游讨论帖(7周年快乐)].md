@@ -2646,3 +2646,13 @@ syl 伯爵（四星）正脸真的好宽啊，为什么不让画海报的来画�
 
 有病吗，整个职介献祭这么大事情没有蘑菇首肯怎么可能写出来，真就万恶之源呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 11643#       发表于 2024-3-20 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NPC平景清助战强制禁另外2个人的卡真好啊...兔呆只能禁一个
+
+赶紧做成技能吧
+

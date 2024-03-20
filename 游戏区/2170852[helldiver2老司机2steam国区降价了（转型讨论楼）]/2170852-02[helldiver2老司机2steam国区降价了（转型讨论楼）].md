@@ -6188,3 +6188,45 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 你猜猜吞武器BUG多久了，房主换弹期间进人高概率把武器卡没了</blockquote>
 看来是刚好遇上了<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">这游戏怎么bug越修越多
 
+
+*****
+
+####  萧闻蒲  
+##### 2076#       发表于 2024-3-20 22:12
+
+飞虫一下就把满血中甲的我刮死了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mr.Hopp  
+##### 2077#       发表于 2024-3-20 22:14
+
+闪退的话建议别用电弧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KafuuChino  
+##### 2078#       发表于 2024-3-20 22:15
+
+闪退似乎和电弧有关，挺默契的野队正常配装打三局都没问题，等几人不约而同换电弧枪整活，开局没电多久就闪退了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 2079#       发表于 2024-3-20 22:16
+
+好像有飞龙了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  buynowcore  
+##### 2080#       发表于 2024-3-20 22:18
+
+尖啸者打死掉下来的尸体也会砸死人，另外似乎免疫电弧，因为根本打不到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -6977,3 +6977,28 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  罗克萨斯  
+##### 3680#       发表于 2024-3-20 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315643&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-3-20 21:33</a>
+现在不是好多地方都在推全屋光纤改造，我看都推到县城了
+
+—— 来自 Google Pixel 3 XL, Android 12上的  ...</blockquote>
+那得装修的时候搞，要不只能走明线。等我重新装修时肯定会预埋管道，里面放七类线，所有房间互通
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  晴岚  
+##### 3681#       发表于 2024-3-20 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315086&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-20 20:36</a>
+
+电信师傅说我们这边因为是老小区，光纤都是从客厅空调外机口飞线入户的，没法移到书房，已经下单10米超六类 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">其实电脑加速没比网线差多少，除非真的不爱开电脑或者没电脑不然我觉得电脑加速还挺好用的。
+

@@ -6177,3 +6177,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 昨天打了一局打着打着主武器消失了，没人做测试的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你猜猜吞武器BUG多久了，房主换弹期间进人高概率把武器卡没了
 
+
+*****
+
+####  卒业之勇  
+##### 2075#       发表于 2024-3-20 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315129&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-20 20:40</a>
+
+你猜猜吞武器BUG多久了，房主换弹期间进人高概率把武器卡没了</blockquote>
+看来是刚好遇上了<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">这游戏怎么bug越修越多
+

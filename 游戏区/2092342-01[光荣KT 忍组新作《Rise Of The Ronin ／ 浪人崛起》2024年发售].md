@@ -7795,3 +7795,16 @@ b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打</blockquo
 是三国志8remake 卖5m</blockquote>
 三国志8我记得确实是三国志14前的系列销量巅峰，但是三国志的受众很局限，几乎不可能上百万
 
+
+*****
+
+####  雾生司  
+##### 1452#       发表于 2024-3-20 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309804&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-20 13:12</a>
+
+如果是ps5独占的现在，500w简直天方夜谭，忍者组的罐头就是低配版对马岛
+
+自己截的图感觉还行，但我 ...</blockquote>
+你通了吗 来点不剧透的情报
+

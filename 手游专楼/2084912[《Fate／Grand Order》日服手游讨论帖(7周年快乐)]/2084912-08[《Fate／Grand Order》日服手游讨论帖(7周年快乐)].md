@@ -1564,3 +1564,136 @@ image.png
 草，信长你抬这么久你手不酸吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11550#       发表于 2024-3-20 18:49
+
+好多年才有的种田的新从者
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 11551#       发表于 2024-3-20 18:49
+
+<img src="https://img.saraba1st.com/forum/202403/20/184921l7cknusncwvm2216.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240320_184910.jpg</strong> (318.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-20 18:49 上传
+
+突入！FGO学院！
+
+*****
+
+####  alucardcz  
+##### 11552#       发表于 2024-3-20 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊 都不是限定我怎么下池
+
+*****
+
+####  angelooo  
+##### 11553#       发表于 2024-3-20 18:50
+
+卧槽，学院线展开
+
+
+*****
+
+####  alucardcz  
+##### 11554#       发表于 2024-3-20 18:50
+
+什么 居然有改模
+
+*****
+
+####  GuDaZi  
+##### 11555#       发表于 2024-3-20 18:51
+
+要搞校园后宫恋爱喜剧了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 11556#       发表于 2024-3-20 18:51
+
+刑部姬一定是败犬角色吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 11557#       发表于 2024-3-20 18:52
+
+哎呦，仇玛丽来了
+
+*****
+
+####  Jamaisvu  
+##### 11558#       发表于 2024-3-20 18:52
+
+<img src="https://img.saraba1st.com/forum/202403/20/185010sdzfr6h8cfrrfb8h.png" referrerpolicy="no-referrer">
+
+<strong>1710931795375.png</strong> (105.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-20 18:50 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/185150yq82w5axcxwbz4ue.png" referrerpolicy="no-referrer">
+
+<strong>1710931901343.png</strong> (127.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-20 18:51 上传
+
+四星曜星哈桑，五星复仇玛丽。
+
+前面那个好像是废案？是不是炸弹人来着？
+
+希望玛丽的声音还是种田，换人的话连四星那个估计都要变动吧...
+
+*****
+
+####  exiaexa  
+##### 11559#       发表于 2024-3-20 18:53
+
+这次是完全直球啊
+
+二期直接给你钉死了是新伯爵
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 11560#       发表于 2024-3-20 18:54
+
+双贞改模的宝具特写就很好，不同方向的侧脸。螺旋社不整正脸一切好说...
+
+
+*****
+
+####  xunit  
+##### 11561#       发表于 2024-3-20 18:54
+
+如果种田能回来配音的话，能不能给只新清姬<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11562#       发表于 2024-3-20 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313965&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-3-20 18:52</a>
+
+哎呦，仇玛丽来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧限你也要抽爆了吗
+

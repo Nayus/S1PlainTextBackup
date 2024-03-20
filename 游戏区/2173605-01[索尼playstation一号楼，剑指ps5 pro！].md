@@ -1019,3 +1019,11 @@ New info from DF:
 
 反观某个靠AI市值飙到世界第一的厂还不知道啥时候给主机上超分呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无意义小号  
+##### 278#       发表于 2024-3-20 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">gt7能搞个画质升级吗，感觉为了照顾ps4机能还是有点可惜
+

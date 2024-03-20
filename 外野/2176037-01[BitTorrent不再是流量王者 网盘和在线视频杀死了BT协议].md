@@ -1277,3 +1277,21 @@ tracker站跟bt精神有什么关系，他也只是聚合了一下种子资源
 github.com/anacrolix/torrent 和 dt/torrent/v1.02</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">原来这俩是恶意吸血的吗，我说最近怎么全是这俩标号的客户端还上传的特别快
 
+
+*****
+
+####  耶耶抛的岔  
+##### 130#       发表于 2024-3-20 10:11
+
+但是冷门资源在p2p时代可能永远下不了，比如大量ps2冷门游戏，反而网盘时代能够轻松获取，可以说网盘除了要收钱外完爆p2p时代
+
+*****
+
+####  黑椒碳烤青鲤  
+##### 131#       发表于 2024-3-20 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304177&amp;ptid=2176037" target="_blank">ryanz 发表于 2024-3-19 21:46</a>
+
+人家不是闲的蛋疼 见 https://github.com/anacrolix/torrent/discussions/891 最后的回复和 https://www. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">贱不贱呐 太贱了
+

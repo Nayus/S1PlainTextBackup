@@ -5815,3 +5815,13 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都带电弧了我还用你电喷干嘛
 
+
+*****
+
+####  nagamasa  
+##### 2040#       发表于 2024-3-20 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306680&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-20 09:12</a>
+除了造型想要和轻甲，别的没什么买的必要，中重被动属性都和债券一致的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我知道，就是想着有的都买了算了而已
+

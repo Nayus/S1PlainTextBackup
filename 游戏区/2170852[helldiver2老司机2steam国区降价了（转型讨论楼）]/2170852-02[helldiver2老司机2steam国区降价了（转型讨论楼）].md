@@ -5960,3 +5960,16 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 昨天那个日常我是找了个7级防守图乱扔空袭，炸了好多个
 
+
+*****
+
+####  pmoe  
+##### 2054#       发表于 2024-3-20 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64308436&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-20 11:31</a>
+
+五级有些重型机器人兵营里面停着没人上的坦克，如果你过去太慢了机器人小兵会爬上去把坦克开起来
+
+这些没 ...</blockquote>
+这种坦克披风虫可以开吗？
+

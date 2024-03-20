@@ -5981,3 +5981,13 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 机器人地图就突出一个丧心病狂，没重火力死路一条。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山风短  
+##### 2056#       发表于 2024-3-20 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64311717&amp;ptid=2170852" target="_blank">变老的大二 发表于 2024-3-20 15:39</a>
+机器人地图就突出一个丧心病狂，没重火力死路一条。</blockquote>
+麦拉芬蒙河绞肉机，小子
+

@@ -6357,3 +6357,11 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Aeons  
+##### 2094#       发表于 2024-3-21 01:04
+
+燃油船是不是有bug，船下不来
+

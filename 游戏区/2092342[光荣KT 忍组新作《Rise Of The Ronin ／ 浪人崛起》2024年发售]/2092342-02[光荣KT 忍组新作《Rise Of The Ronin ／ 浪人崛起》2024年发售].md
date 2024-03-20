@@ -352,3 +352,24 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 
 我猜评分在卧龙（80）~仁王2（85）之间吧，能过仁王2就是大成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeelolo  
+##### 1520#       发表于 2024-3-21 00:59
+
+卧龙我主线打完就扔了，dlc我碰都不想碰<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">如果比卧龙还烂我真没什么好说的了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  松风君  
+##### 1521#       发表于 2024-3-21 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317425&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-20 17:53</a>
+
+这意思是不是结局不会随玩家的选择产生重大变化？一切还是按照历史事实发展，只有个别人物命运会被改变？ ...</blockquote>
+是的，我理解就是这样。虽然宣传时一直强调三种派系、玩家自主开拓未来如如，但完全魔改历史的if线应该是不存在的，最大的剧情自由大概就是挽救某些角色的命定之死吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

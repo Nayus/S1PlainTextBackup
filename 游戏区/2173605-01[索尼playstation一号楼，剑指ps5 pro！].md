@@ -1081,3 +1081,38 @@ New info from DF:
 
 cpu当然是ps6再升级<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 285#       发表于 2024-3-20 17:36
+
+<blockquote>省心 发表于 2024-3-20 17:21
+所以为啥不升cpu呢</blockquote>
+因为兼容问题
+
+*****
+
+####  npk7k  
+##### 286#       发表于 2024-3-20 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309085&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-3-20 12:18</a>
+
+但是PS5是36个CU</blockquote>
+可能是说物理cu数，少的屏蔽了
+
+
+*****
+
+####  紫菜粉丝煲  
+##### 287#       发表于 2024-3-20 17:43
+
+如果是爆料这个规格，可以直接买pro版么
+
+*****
+
+####  漫漫来  
+##### 288#       发表于 2024-3-20 17:44
+
+到时候港日会难买吗，不至于和ps5一样缺货吧
+

@@ -5999,3 +5999,14 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 我亲眼看到一台无畏从500kg的火柱里走出来
 
+
+*****
+
+####  Launce  
+##### 2058#       发表于 2024-3-20 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313145&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-3-20 17:35</a>
+
+我亲眼看到一台无畏从500kg的火柱里走出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">500日常，泰坦倒下了，泰坦旁边的坦克虫屁事没有对你漂移冲锋
+

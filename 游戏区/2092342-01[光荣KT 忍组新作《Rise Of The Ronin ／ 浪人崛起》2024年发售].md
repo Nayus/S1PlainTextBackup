@@ -7574,3 +7574,37 @@ https://www.famitsu.com/news/202305/29303505.html
 
 —— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黑修士  
+##### 1431#       发表于 2024-3-20 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313124&amp;ptid=2092342" target="_blank">你好s1 发表于 2024-3-20 17:33</a>
+
+五百万新ip光荣最早2018年说出来的，这符合泄露的ppt。期间从2020发售到2022再到2024不断推迟，这也符合 ...</blockquote>
+浪人去年才正式公开，而且官方也没有明确说它就是500W啊
+
+*****
+
+####  Gigax  
+##### 1432#       发表于 2024-3-20 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313024&amp;ptid=2092342" target="_blank">你好s1 发表于 2024-3-20 17:25</a>
+
+那能不能把光荣财报500万ip和浪人崛起并列的新闻发一下，我咋搜不到
+
+—— 来自 realme RMX3350, Android ...</blockquote>
+就去年发的22-23年年度财报，中期目标500w新规ip，24年发售浪人崛起。
+
+
+*****
+
+####  Gigax  
+##### 1433#       发表于 2024-3-20 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313124&amp;ptid=2092342" target="_blank">你好s1 发表于 2024-3-20 17:33</a>
+
+五百万新ip光荣最早2018年说出来的，这符合泄露的ppt。期间从2020发售到2022再到2024不断推迟，这也符合 ...</blockquote>
+[https://business.sohu.com/a/669870711_100274826](https://business.sohu.com/a/669870711_100274826)
+

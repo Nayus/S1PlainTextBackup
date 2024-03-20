@@ -6902,3 +6902,11 @@ Openning→[www.bilibili.com/video/BV1EJ4m1872t](http://www.bilibili.com/video/B
 
 阿秀和义龙的另一版大纲
 
+
+*****
+
+####  雾生司  
+##### 1362#       发表于 2024-3-20 09:06
+
+3/21晚7点电击online先行直播→[www.youtube.com/watch?v=NeQ7z1lH1qk](http://www.youtube.com/watch?v=NeQ7z1lH1qk)
+

@@ -7471,3 +7471,20 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 
 这作天地人只是对马岛那样单纯的石头剪刀布吗
 
+
+*****
+
+####  duraa  
+##### 1422#       发表于 2024-3-20 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64312503&amp;ptid=2092342" target="_blank">cuiluzhu 发表于 2024-3-20 16:45</a>
+这作天地人只是对马岛那样单纯的石头剪刀布吗</blockquote>
+三种架势各自对一类武器石火效果提升，忍架势全不利，空手有个无架势不知道啥效果，打进昏厥（类似仁王混沌）全架势变为克制
+
+*****
+
+####  izayoi39  
+##### 1423#       发表于 2024-3-20 16:55
+
+天地人好像主要影响的是石火的效果，克制的情况下高难度石火都很好触发，不利的情况下石火的判定帧非常短
+

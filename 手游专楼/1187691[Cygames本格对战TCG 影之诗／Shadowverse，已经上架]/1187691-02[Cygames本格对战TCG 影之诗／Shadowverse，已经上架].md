@@ -80,3 +80,24 @@
 
 感慨 这游戏终于噶了，虽然以前冠军对决和artifact也是从开服一直见证到嗝屁，但花的时间应该都没有它这么久。虽然从全职业做任务的时候我就觉得设计师没活了这屌游戏早晚药丸，但坚持了这么多年也算kmr为了电竞梦尽力了。回头看看还能不能把玩过的卡组都还原出来 也算送个终
 
+
+*****
+
+####  Anatoly  
+##### 1848#       发表于 2024-3-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64311898&amp;ptid=1187691" target="_blank">jesuswjx 发表于 2024-3-20 15:54</a>
+
+感慨 这游戏终于噶了，虽然以前冠军对决和artifact也是从开服一直见证到嗝屁，但花的时间应该都没有它这么 ...</blockquote>
+还有byd无缝接轨呢，这种情况这到底是算送终还是恭迎转世啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 1849#       发表于 2024-3-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306634&amp;ptid=1187691" target="_blank">附庸风雅者 发表于 2024-3-20 09:08</a>
+
+我记得说szb要出2了？ 是什么时候</blockquote>
+今夏无缝接，6、7月的事
+

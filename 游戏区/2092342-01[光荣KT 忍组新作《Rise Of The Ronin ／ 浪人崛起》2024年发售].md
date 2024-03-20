@@ -7059,3 +7059,39 @@ Openning→www.bilibili.com/video/BV1EJ4m1872t</blockquote>
 如果忍组能把开放世界和画面做到刺客信条的水平，我觉得还是有可能一千万的 ...</blockquote>
 年货能卖一千万靠的是水平吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不是粉丝滤镜？不是群体粘性？忍组何德何能
 
+
+*****
+
+####  Yeelolo  
+##### 1379#       发表于 2024-3-20 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309167&amp;ptid=2092342" target="_blank">看脸 发表于 2024-3-20 12:25</a>
+
+年货能卖一千万靠的是水平吗不是粉丝滤镜？不是群体粘性？忍组何德何能 ...</blockquote>
+但是忍组开放世界设计和画面就是烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">补补短板有什么不好，刺客信条再是年货整体质量也不低啊，再说刺客信条是锤子年货啊，也就刺客信条2三部能叫年货
+
+*****
+
+####  Yeelolo  
+##### 1380#       发表于 2024-3-20 12:33
+
+浪人的官设男女主是不是兄妹关系？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看开头动画还有宣传片后面还会有男女主的决斗
+
+
+*****
+
+####  BK10  
+##### 1381#       发表于 2024-3-20 12:35
+
+就这卖相500万我觉得都难
+
+*****
+
+####  Gigax  
+##### 1382#       发表于 2024-3-20 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309268&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-20 12:33</a>
+
+浪人的官设男女主是不是兄妹关系？看开头动画还有宣传片后面还会有男女主的决斗 ...</blockquote>
+官设就是村子被屠就剩这俩人跑出来了，具体关系没说
+

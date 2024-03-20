@@ -6894,3 +6894,21 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 一代试射会怀旧服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3672#       发表于 2024-3-20 12:28
+
+奶啤ID改成蓝染了，果然重度死神粉丝。赛季初很勤奋的打到XP3000，不知道后面会不会开摆<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/20/122708u9l1riizq1uiroos.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-20-12-25-30-271_com.nintendo.znca-edit.jpg</strong> (367.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 12:27 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

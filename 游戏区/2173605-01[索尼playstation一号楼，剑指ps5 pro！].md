@@ -1001,3 +1001,13 @@ New info from DF:
 • PSSR could potentially be BC with older PS5 games with a patch.</blockquote>
 但是PS5是36个CU
 
+
+*****
+
+####  Eadric  
+##### 276#       发表于 2024-3-20 12:35
+
+按道理来说 ps5 pro是不是会比ps5更大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

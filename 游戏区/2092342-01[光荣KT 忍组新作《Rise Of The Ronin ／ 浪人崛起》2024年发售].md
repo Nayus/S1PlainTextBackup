@@ -7214,3 +7214,63 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 鲤师傅说的是目标是200w，怎么都在讨论500w了</blockquote>
 有张ppt的图，在早期还是全平台阶段上写着目标本数500w
 
+
+*****
+
+####  Gigax  
+##### 1396#       发表于 2024-3-20 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310047&amp;ptid=2092342" target="_blank">byisme001 发表于 2024-3-20 13:33</a>
+
+有张ppt的图，在早期还是全平台阶段上写着目标本数500w</blockquote>
+泄露ppt的人都离职两三年了，ppt上写的游戏内容都对不上，估计是项目最初期的内容了。去年光荣财报里浪人崛起和500万ip是并列代表不同作品的，浪人崛起早就不是目标500w的ip了。
+
+*****
+
+####  火华火华火  
+##### 1397#       发表于 2024-3-20 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310103&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 13:37</a>
+泄露ppt的人都离职两三年了，ppt上写的游戏内容都对不上，估计是项目最初期的内容了。去年光荣财报里浪人 ...</blockquote>
+难道还憋着一个500w的作品？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  whitechapel  
+##### 1398#       发表于 2024-3-20 13:40
+
+光荣只说过要做一款500万的大作，但具体是哪个游戏要卖500万可从来没说过
+
+
+*****
+
+####  刘震云  
+##### 1399#       发表于 2024-3-20 13:44
+
+对马岛这种高色彩饱和度的美术风格非常大胆，忍组学不来的，当然也没必要学
+
+*****
+
+####  Sopp  
+##### 1400#       发表于 2024-3-20 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309804&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-20 13:12</a>
+
+如果是ps5独占的现在，500w简直天方夜谭，忍者组的罐头就是低配版对马岛
+
+自己截的图感觉还行，但我 ...</blockquote>
+跟对马岛一比确实不行
+
+
+*****
+
+####  Sopp  
+##### 1401#       发表于 2024-3-20 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310103&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 13:37</a>
+
+泄露ppt的人都离职两三年了，ppt上写的游戏内容都对不上，估计是项目最初期的内容了。去年光荣财报里浪人 ...</blockquote>
+永远下一个是吧
+

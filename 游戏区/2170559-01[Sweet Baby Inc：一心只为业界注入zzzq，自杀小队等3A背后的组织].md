@@ -61,3 +61,13 @@
 
 前两天被马斯克骂的那家公司？
 
+
+*****
+
+####  Fake_news  
+##### 98#       发表于 2024-3-20 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306979&amp;ptid=2170559" target="_blank">chan 发表于 2024-3-20 09:38</a>
+前两天被马斯克骂的那家公司？</blockquote>
+对就是这个毒瘤
+

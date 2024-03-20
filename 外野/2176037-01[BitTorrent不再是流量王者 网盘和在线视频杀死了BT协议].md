@@ -1232,3 +1232,36 @@ rarbg倒了之后就没怎么用bt了，找不到平替。
 
 点歌《Video Killed The BitTorrent Star》
 
+
+*****
+
+####  herostratus  
+##### 126#       发表于 2024-3-20 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292708&amp;ptid=2176037" target="_blank">ccc183 发表于 2024-3-18 19:57</a>
+
+俄国人是不是很有BT精神，从rutrack上下很多老资源虽然就个位数的种子但是居然能完整下完 ...</blockquote>
+tracker站跟bt精神有什么关系，他也只是聚合了一下种子资源
+
+*****
+
+####  barry.allen  
+##### 127#       发表于 2024-3-20 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64296797&amp;ptid=2176037" target="_blank">GMJ 发表于 2024-3-19 10:35</a>
+
+国外还是田园时代，啥时候等他们体验过网上在线看的都是和谐删减后的片子，网盘里存的内容自动变葫芦娃的 ...</blockquote>
+已经开始经历了，网飞、亚马逊偷偷摸摸删改老电影/电子书内容已经被挂好几次了
+
+*****
+
+####  启叔  
+##### 128#       发表于 2024-3-20 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64307007&amp;ptid=2176037" target="_blank">jbtc2224052 发表于 2024-3-20 09:41</a>
+
+没有新鲜血液也是个问题，小年轻都抱着手机也没多少用bt的，反倒是个个网盘都有手机app
+
+—— 来自 vivo V2 ...</blockquote>
+安卓也没有好bt软件吧？
+

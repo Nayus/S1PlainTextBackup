@@ -13883,3 +13883,24 @@ voy@ger真没想到
 
 我们爱马仕也要有自己的喜多川海梦​<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2862#       发表于 2024-3-20 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313815&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-20 18:37</a>
+草，这生日人还挺多……
+
+—— 来自 S1Fun</blockquote>
+草怎么还有达子，他和爱马仕啥关系
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 2863#       发表于 2024-3-20 19:07
+
+“你究竟懂我什么啊”
+

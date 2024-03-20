@@ -1697,3 +1697,95 @@ image.png
 哎呦，仇玛丽来了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧限你也要抽爆了吗
 
+
+*****
+
+####  Jamaisvu  
+##### 11563#       发表于 2024-3-20 18:56
+
+<img src="https://img.saraba1st.com/forum/202403/20/185555assx8wngg5rcrlnn.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240320_185532.jpg</strong> (78.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-20 18:55 上传
+
+“这个照片是你吗？”
+
+“是我，那时候我还很瘦。”
+
+“这他妈就不是你，你个双开门冰箱！”
+
+<img src="https://img.saraba1st.com/forum/202403/20/185555u0pmrp400zkrl0zl.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20240320_185541.png</strong> (110.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-20 18:55 上传
+
+*****
+
+####  blue321  
+##### 11564#       发表于 2024-3-20 18:56
+
+本来还想跳奏章2的，结果被CM伯爵帅到手痒想抽了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StarScreaM  
+##### 11565#       发表于 2024-3-20 18:57
+
+黑贞老婆又改模了，大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11566#       发表于 2024-3-20 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一pu2没有伯爵呢   玩家想到的 舍弃
+
+
+*****
+
+####  不垃圾屌丝  
+##### 11567#       发表于 2024-3-20 19:00
+
+看到人说这下黑贞学历比白贞高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  保罗赫伯特  
+##### 11568#       发表于 2024-3-20 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314008&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-3-20 18:56</a>
+
+“这个照片是你吗？”
+
+“是我，那时候我还很瘦。”
+
+“这他妈就不是你，你个双开门冰箱！”</blockquote>
+海报一个样，PV一个样，可能卡面又是一个样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 11569#       发表于 2024-3-20 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314048&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-3-20 19:00</a>
+
+海报一个样，PV一个样，可能卡面又是一个样</blockquote>
+PV一般都会美个容吧，也不知为啥弄了个死亡正面...好怕TM高层又有人追星了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11570#       发表于 2024-3-20 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10张护符无事发生 等pu2
+

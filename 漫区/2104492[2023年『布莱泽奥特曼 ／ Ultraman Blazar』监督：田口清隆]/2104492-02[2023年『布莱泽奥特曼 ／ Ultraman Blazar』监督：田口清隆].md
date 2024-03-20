@@ -19,3 +19,11 @@
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  haoshion  
+##### 1836#       发表于 2024-3-20 10:18
+
+结局和剧场版整得都不大行是这样的
+

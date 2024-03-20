@@ -5825,3 +5825,35 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 除了造型想要和轻甲，别的没什么买的必要，中重被动属性都和债券一致的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我知道，就是想着有的都买了算了而已
 
+
+*****
+
+####  Launce  
+##### 2041#       发表于 2024-3-20 10:15
+
+<img src="https://img.saraba1st.com/forum/202403/20/101505zs6t7778e337tey9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 10:15 上传
+
+*****
+
+####  Gmlazy  
+##### 2042#       发表于 2024-3-20 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305362&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-20 00:26</a>
+
+宏迪那边测试，清了据点反而会增加巡逻队密度-&gt;拉烟变多-&gt;怪更多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我以为清理了据点后会减少撤离刷怪，原来机器人在这等着我呢。
+
+
+*****
+
+####  wthall  
+##### 2043#       发表于 2024-3-20 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日常是要打2个湮灭坦克的任务。完全提不起兴趣去打。。。还没有泰坦那样的专门的狩猎任务，哎
+

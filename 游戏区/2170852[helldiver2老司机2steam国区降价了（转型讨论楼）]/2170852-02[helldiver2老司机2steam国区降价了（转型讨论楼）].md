@@ -5908,3 +5908,15 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 哈吉米的大手到底想让我们打几颗球
 
+
+*****
+
+####  Launce  
+##### 2049#       发表于 2024-3-20 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310043&amp;ptid=2170852" target="_blank">Kojimaru 发表于 2024-3-20 13:32</a>
+
+哈吉米的大手到底想让我们打几颗球</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着2星球，但是那2都是2个星区最后一个星球，前置还有2+3
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2天干TMD7个星球，什么叫强度，这就是强度，这就算了，还扣扣索索的给35个奖章
+

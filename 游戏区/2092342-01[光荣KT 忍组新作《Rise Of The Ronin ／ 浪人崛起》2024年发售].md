@@ -7274,3 +7274,21 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 泄露ppt的人都离职两三年了，ppt上写的游戏内容都对不上，估计是项目最初期的内容了。去年光荣财报里浪人 ...</blockquote>
 永远下一个是吧
 
+
+*****
+
+####  leafS  
+##### 1402#       发表于 2024-3-20 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309900&amp;ptid=2092342" target="_blank">Bani82 发表于 2024-3-20 13:20</a>
+
+看起来比卧龙好一丢丢，但是这次没有妖怪全是人形怪感觉打起来可能会少点什么 ...</blockquote>
+别吧，我巴不得仁王里全是人形怪，仁王2才有了妖反还要等红光，大部分妖怪打着都没什么劲，还是喜欢人型怪弹弹弹
+
+*****
+
+####  Gigax  
+##### 1403#       发表于 2024-3-20 13:55
+
+看最近的偷跑这些人类敌人除了长得像个人之外跟妖怪有什么区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

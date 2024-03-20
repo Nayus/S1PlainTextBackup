@@ -7784,3 +7784,14 @@ b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打</blockquo
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ナルバレック  
+##### 1451#       发表于 2024-3-20 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313735&amp;ptid=2092342" target="_blank">戰國卍丸 发表于 2024-3-20 18:29</a>
+
+是三国志8remake 卖5m</blockquote>
+三国志8我记得确实是三国志14前的系列销量巅峰，但是三国志的受众很局限，几乎不可能上百万
+

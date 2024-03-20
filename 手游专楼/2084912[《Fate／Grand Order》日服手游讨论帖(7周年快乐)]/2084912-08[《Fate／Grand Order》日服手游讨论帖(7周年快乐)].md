@@ -2624,3 +2624,17 @@ syl 伯爵（四星）正脸真的好宽啊，为什么不让画海报的来画�
 他们是怎么咬定一定是樱井全责的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 11641#       发表于 2024-3-20 21:48
+
+<blockquote>exiaexa 发表于 2024-3-20 21:43
+我更奇怪的是，这章完全是奇怪的大杂烩风格，看起来难受到爆炸
+
+甚至伯爵味儿都怪得飞起
+
+他们是怎么咬定一定 ...</blockquote>
+他们一直都是先喷了樱井再说啊23333
+

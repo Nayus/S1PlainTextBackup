@@ -1213,3 +1213,26 @@ pro提升不大的话隔代升级了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RTLordCaptain  
+##### 299#       发表于 2024-3-20 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309301&amp;ptid=2173605" target="_blank">Eadric 发表于 2024-3-20 12:35</a>
+
+按道理来说 ps5 pro是不是会比ps5更大
+
+—— 来自 S1Fun</blockquote>
+其实我在想他限制功耗又不升级CPU是不是就是用4nm/5nm做了个升级GPU但功耗大体不变的SOC出来，然后用一样的内部壳子卖（然后换掉外面的V领展示Pro属性）
+
+*****
+
+####  RTLordCaptain  
+##### 300#       发表于 2024-3-20 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64312900&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-3-20 17:16</a>
+
+近几天，PS5 Pro的硬件规格已基本被曝光，知名科技硬件爆料人Kepler表示，因为CPU限制而以30帧运行的游戏， ...</blockquote>
+不过FF16、FF7RB这种主要是GPU性能受限的游戏还是受益的，哪怕不能稳60起码不会糊了
+

@@ -420,3 +420,18 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 
 那种方阵是不是只有法武或者只是借婊其他约定武器啥的一把不缺的方阵吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 17798#       发表于 2024-3-20 10:24
+
+ 本帖最后由 exiaexa 于 2024-3-20 10:26 编辑 
+
+别惦记嫖传统方阵了，哪怕是诈尸的，你凑个两三把LM转low王就能明显改善体验，传统方阵还有啥用
+
+新时代武器一个个写着破限，就差吧没钱玩NM写在脸上了
+
+除非肯退钢，不然玩的越久越容易变成凯子，除非你转生
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

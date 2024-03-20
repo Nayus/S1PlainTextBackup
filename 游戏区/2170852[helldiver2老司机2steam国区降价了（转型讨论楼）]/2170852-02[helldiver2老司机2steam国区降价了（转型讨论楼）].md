@@ -5857,3 +5857,14 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日常是要打2个湮灭坦克的任务。完全提不起兴趣去打。。。还没有泰坦那样的专门的狩猎任务，哎
 
+
+*****
+
+####  BadYanL  
+##### 2044#       发表于 2024-3-20 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306996&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-3-20 09:40</a>
+
+都带电弧了我还用你电喷干嘛</blockquote>
+为了RP雷电法王，肯定要带全套的。
+

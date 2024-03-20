@@ -923,3 +923,21 @@ Target – Add Raytracing to gameplay
 
 Standard PlayStation 5 achieved 60FPS without raytracing, and PlayStation 5 Pro achieved 60FPS with Raytracing
 
+
+*****
+
+####  RTLordCaptain  
+##### 268#       发表于 2024-3-20 10:29
+
+数毛社发了一个小时的新视频分析PS5 Pro（ytb U5h4bvudvX8），看起来是已经确认漏出的内容是八九不离十了？
+
+*****
+
+####  ultraseven  
+##### 269#       发表于 2024-3-20 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64307570&amp;ptid=2173605" target="_blank">RTLordCaptain 发表于 2024-3-20 10:29</a>
+
+数毛社发了一个小时的新视频分析PS5 Pro（ytb U5h4bvudvX8），看起来是已经确认漏出的内容是八九不离十了？ ...</blockquote>
+索尼要查内鬼的新闻都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

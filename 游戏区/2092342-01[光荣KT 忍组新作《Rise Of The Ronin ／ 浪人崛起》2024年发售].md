@@ -7048,3 +7048,14 @@ Openning→www.bilibili.com/video/BV1EJ4m1872t</blockquote>
 
 奖杯出了 还能改变历史人物命运，原来是维新之岚精神续作
 
+
+*****
+
+####  看脸  
+##### 1378#       发表于 2024-3-20 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64308937&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-20 12:07</a>
+
+如果忍组能把开放世界和画面做到刺客信条的水平，我觉得还是有可能一千万的 ...</blockquote>
+年货能卖一千万靠的是水平吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不是粉丝滤镜？不是群体粘性？忍组何德何能
+

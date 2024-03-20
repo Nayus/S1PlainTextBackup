@@ -989,3 +989,15 @@ pro能整好看点吗，ps5真是丑死了
 
 【前《无畏契约》总监正在负责Bungie新作《马拉松》的开发】Bungie更换了旗下科幻多人射击新作《马拉松》的总监，据悉前《无畏契约》总监Joe Ziegler目前正在负责这款游戏的制作。Joe Ziegler于2022年离开Riot Games加入Bungie，据其本人说述，过去九个月里他一直在担任《马拉松》总监一职。目前游戏仍在开发中，不过会在未来和大家分享更多这款作品的相关信息。IGN称有消息人士向其透露，在Joe Ziegler的监督下，《马拉松》发生了许多变化，包括从自定义玩家角色转为英雄选择的设计方式。在之前Bungie的裁员事件中，官方宣布《马拉松》延期发售，目前游戏的目标窗口是2025年。
 
+
+*****
+
+####  csolfans  
+##### 275#       发表于 2024-3-20 12:18
+
+<blockquote>医生狼多 发表于 2024-3-20 10:35
+New info from DF:
+
+• PSSR could potentially be BC with older PS5 games with a patch.</blockquote>
+但是PS5是36个CU
+

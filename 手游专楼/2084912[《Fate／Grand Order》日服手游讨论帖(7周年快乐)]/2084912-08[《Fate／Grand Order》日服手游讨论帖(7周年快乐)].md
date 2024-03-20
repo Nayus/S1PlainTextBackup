@@ -3020,3 +3020,16 @@ Data Lost
  ...</blockquote>
 你说的武藏那FSR联动出场不就个主角在那回忆2.5.2大笨蛋然后就最后来个黑影叫残渣和伊织打，没复活赛打是这样的
 
+
+*****
+
+####  الطائر  
+##### 11680#       发表于 2024-3-21 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317734&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2024-3-21 02:09</a>
+
+你说的武藏那FSR联动出场不就个主角在那回忆2.5.2大笨蛋然后就最后来个黑影叫残渣和伊织打，没复活赛打是 ...</blockquote>
+那个就是复活赛啦。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧情是伊织在FSR联动剧情结局看着月亮消散后，跑到了神秘空间，打赢了剑客残影，然后残影给伊织点亮一颗星星指路，伊织就回来了。
+

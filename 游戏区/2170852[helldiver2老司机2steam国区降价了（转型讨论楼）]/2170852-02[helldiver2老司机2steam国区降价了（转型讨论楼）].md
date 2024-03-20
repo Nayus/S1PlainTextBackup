@@ -6159,3 +6159,21 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 飞虫刮一刮披风怪就死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新以后一局完整的都没打完，一直卡
 
+
+*****
+
+####  卒业之勇  
+##### 2073#       发表于 2024-3-20 20:37
+
+昨天打了一局打着打着主武器消失了，没人做测试的吗<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 2074#       发表于 2024-3-20 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315095&amp;ptid=2170852" target="_blank">卒业之勇 发表于 2024-3-20 20:37</a>
+
+昨天打了一局打着打着主武器消失了，没人做测试的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你猜猜吞武器BUG多久了，房主换弹期间进人高概率把武器卡没了
+

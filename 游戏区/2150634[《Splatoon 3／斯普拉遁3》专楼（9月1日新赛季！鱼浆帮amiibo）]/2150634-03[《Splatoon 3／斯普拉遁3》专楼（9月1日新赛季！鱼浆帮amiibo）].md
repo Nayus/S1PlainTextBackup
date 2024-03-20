@@ -6955,3 +6955,13 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 这活动比赛也太乐了合法泥头车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3678#       发表于 2024-3-20 20:36
+
+电信师傅说我们这边因为是老小区，光纤都是从客厅空调外机口飞线入户的，没法移到书房，已经下单10米超六类网线应急了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

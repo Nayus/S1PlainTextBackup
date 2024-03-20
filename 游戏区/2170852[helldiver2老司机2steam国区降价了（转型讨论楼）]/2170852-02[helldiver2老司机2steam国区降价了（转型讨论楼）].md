@@ -5952,3 +5952,11 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 这些没 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还有这种细节，之前碰到重型兵营都是直接丢轨道激光或者空袭下去
 
+
+*****
+
+####  丹德里恩  
+##### 2053#       发表于 2024-3-20 14:46
+
+昨天那个日常我是找了个7级防守图乱扔空袭，炸了好多个
+

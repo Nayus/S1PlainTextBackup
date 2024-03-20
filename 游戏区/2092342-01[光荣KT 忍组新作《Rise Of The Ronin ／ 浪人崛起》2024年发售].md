@@ -7324,3 +7324,23 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 看最近的偷跑这些人类敌人除了长得像个人之外跟妖怪有什么区别吗</blockquote>
 没有火车这种啊！这类打起来还是和一般人类不太一样
 
+
+*****
+
+####  Z1yu  
+##### 1407#       发表于 2024-3-20 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309804&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-20 13:12</a>
+如果是ps5独占的现在，500w简直天方夜谭，忍者组的罐头就是低配版对马岛
+
+自己截的图感觉还行，但我 ...</blockquote>
+想问下，这罐头除了清据点，撸猫，小游戏外，还有什么事做吗。
+游戏的支线怎么样。
+
+*****
+
+####  WhiteGlint  
+##### 1408#       发表于 2024-3-20 14:40
+
+光荣的开放世界就别想太多了 育碧罐头都差点的水平
+

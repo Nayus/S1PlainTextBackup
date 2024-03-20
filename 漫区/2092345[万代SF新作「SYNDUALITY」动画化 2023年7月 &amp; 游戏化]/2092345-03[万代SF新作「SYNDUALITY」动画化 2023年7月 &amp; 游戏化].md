@@ -6821,3 +6821,13 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 ？？</blockquote>
 最后说得是再见，米斯缇和老海头都会死?
 
+
+*****
+
+####  Anatoly  
+##### 4430#       发表于 2024-3-20 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">不至于吧，都整了个这么烂活之后还得死人？
+
+你都后传了是给游戏宣传还是给游戏送终的
+

@@ -2278,3 +2278,74 @@ TMD终突+30一共要10+15*3=55个新材料
 
 完美，回去打白情咧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11611#       发表于 2024-3-20 19:46
+
+另一个CM好像暗示伯爵和黑贞将要为主角争取data lost了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 11612#       发表于 2024-3-20 19:47
+
+这新伯爵三破（？）绝对是缝了什么吧？？？但是好帅？？？
+
+*****
+
+####  exiaexa  
+##### 11613#       发表于 2024-3-20 19:49
+
+肯定缝东西了，伯爵和玛丽原来都是人
+
+现在全变地了
+
+反而老人妖和耀星哈桑是正经的人
+
+*****
+
+####  DARKGRAY  
+##### 11614#       发表于 2024-3-20 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314503&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-20 19:40</a>
+
+看了一眼
+
+大概比不特攻的夹馍强</blockquote>
+典型的用上限换道中伤害吧，宇宙凛不叠起来BUFF量也就那样，尼托也是全花到100充上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 11615#       发表于 2024-3-20 19:53
+
+伯什么爵！ 我要人妻版大碧池<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 11616#       发表于 2024-3-20 19:56
+
+来自nga的捷豹，都挺帅的啊。
+
+IMG_3054.jpeg
+(138.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/195547h91bd17cfx68f510.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+IMG_3053.jpeg
+(152.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/195548sjrl879j70o705jx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

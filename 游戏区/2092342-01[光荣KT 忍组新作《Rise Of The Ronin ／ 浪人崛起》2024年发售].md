@@ -7412,3 +7412,14 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 
 刚刚这段是大剑吧，看着挺不错
 
+
+*****
+
+####  Yeelolo  
+##### 1415#       发表于 2024-3-20 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64311277&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-20 15:10</a>
+
+开传送点，支线有些可以产生和培养和同伴的bond，有些奖励还算丰厚。还有类似对马岛的解放村庄，杀完敌人 ...</blockquote>
+捏脸进游戏还能改么<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">是捏好了就不能再改了么
+

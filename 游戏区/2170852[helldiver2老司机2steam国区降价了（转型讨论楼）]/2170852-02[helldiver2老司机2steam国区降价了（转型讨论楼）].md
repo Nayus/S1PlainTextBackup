@@ -5868,3 +5868,11 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 都带电弧了我还用你电喷干嘛</blockquote>
 为了RP雷电法王，肯定要带全套的。
 
+
+*****
+
+####  kalavinka  
+##### 2045#         楼主| 发表于 2024-3-20 11:01
+
+我觉得商店里就那个螳螂头一套好看和治疗轻甲好用点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

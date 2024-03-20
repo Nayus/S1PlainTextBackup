@@ -7005,3 +7005,11 @@ npc能砍，但是只会倒地，无法杀死？
 
 看不了直播，想知道画面如何，有仁王2的水平吗
 
+
+*****
+
+####  Gigax  
+##### 1373#       发表于 2024-3-20 11:00
+
+我记得刺客信条也是npc砍倒地之后不会死要补一剪才死，这偷跑哥没补刀不知道能不能杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

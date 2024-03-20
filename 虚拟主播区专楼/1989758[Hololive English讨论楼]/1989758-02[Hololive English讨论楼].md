@@ -187,3 +187,14 @@ AMEFOOT<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" ref
 哭了，pako叔叔
 <img src="https://p.sda1.dev/16/e0737525ae53652a3dfad5e01359ec15/pako.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PureIllusion  
+##### 1953#       发表于 2024-3-20 15:24
+
+<img src="https://p.sda1.dev/16/1f650c80353b52d791c4f42d31d6872b/IRyS_Proto_Lore.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/8bd7e298c93015e8c553ba68ae2d8e9a/irys1.0_lore.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/d30172917a07cf6b53153231a7c56018/CoD_lore.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/dec20de9d3a653dc3eafb3ef5f2ec3e6/irys2.0_lore.jpg" referrerpolicy="no-referrer">
+

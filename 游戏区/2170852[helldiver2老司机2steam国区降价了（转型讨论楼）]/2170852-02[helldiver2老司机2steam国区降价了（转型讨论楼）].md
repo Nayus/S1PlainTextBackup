@@ -5900,3 +5900,11 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 这些没人上的坦克也算任务击杀<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kojimaru  
+##### 2048#       发表于 2024-3-20 13:32
+
+哈吉米的大手到底想让我们打几颗球
+

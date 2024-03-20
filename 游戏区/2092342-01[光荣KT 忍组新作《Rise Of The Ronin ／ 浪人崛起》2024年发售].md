@@ -7197,3 +7197,20 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 
 看起来比卧龙好一丢丢，但是这次没有妖怪全是人形怪感觉打起来可能会少点什么
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1394#       发表于 2024-3-20 13:27
+
+鲤师傅说的是目标是200w，怎么都在讨论500w了
+
+*****
+
+####  byisme001  
+##### 1395#       发表于 2024-3-20 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309996&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-3-20 13:27</a>
+鲤师傅说的是目标是200w，怎么都在讨论500w了</blockquote>
+有张ppt的图，在早期还是全平台阶段上写着目标本数500w
+

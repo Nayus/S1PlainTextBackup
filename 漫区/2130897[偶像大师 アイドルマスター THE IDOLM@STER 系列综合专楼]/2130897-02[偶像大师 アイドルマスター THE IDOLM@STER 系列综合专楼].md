@@ -13689,3 +13689,91 @@ voy@ger真没想到
 
 这妹子真的……起码看起来也太常规了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 2841#       发表于 2024-3-20 18:07
+
+感觉要想起来了 再看看
+
+*****
+
+####  Anatoly  
+##### 2842#       发表于 2024-3-20 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这妹子的年纪是不是有点微妙
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Anatoly  
+##### 2843#       发表于 2024-3-20 18:10
+
+声音小再放一遍还行<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安广多惠子  
+##### 2844#       发表于 2024-3-20 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">建模比立绘好看一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 2845#       发表于 2024-3-20 18:12
+
+我想起来了 
+
+
+*****
+
+####  rgauss  
+##### 2846#       发表于 2024-3-20 18:12
+
+导播注意入厂时机
+
+*****
+
+####  rgauss  
+##### 2847#       发表于 2024-3-20 18:14
+
+摆烂天才
+
+*****
+
+####  Srchy  
+##### 2848#       发表于 2024-3-20 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜多川海梦看起来挺潮的，这个没有8分相像也有7分了怎么就那么普呢
+
+*****
+
+####  Anatoly  
+##### 2849#       发表于 2024-3-20 18:14
+
+<img src="https://img.saraba1st.com/forum/202403/20/181415ttqi1xtaqtassffa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240320_181408.jpg</strong> (100.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 18:14 上传
+
+22年加入事务所，23年只配过一个路人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 2850#       发表于 2024-3-20 18:17
+
+第一个面试就是这游戏
+

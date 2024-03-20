@@ -1133,3 +1133,11 @@ cpu当然是ps6再升级<img src="https://static.saraba1st.com/image/smiley/face
 最他么气的就是VRR，说是都支持了，结果新出游戏全他么支持不好，看过来看过去支持完美的就索尼几个自家的 ...</blockquote>
 ps5不支持系统层级的低帧率补偿，除非游戏自己优化，否则低于48帧vrr屁用没有
 
+
+*****
+
+####  csolfans  
+##### 291#       发表于 2024-3-20 18:12
+
+我也很不理解PS5为什么不支持LFC，只能说为了自身利益只支持HDMI-VRR
+

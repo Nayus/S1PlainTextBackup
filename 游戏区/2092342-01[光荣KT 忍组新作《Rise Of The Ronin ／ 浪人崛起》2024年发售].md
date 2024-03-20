@@ -7876,3 +7876,51 @@ b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打</blockquo
 —— 来自 vivo V2324A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 他还不出来透露一下体量兄弟们有点不安了
 
+
+*****
+
+####  黑修士  
+##### 1459#       发表于 2024-3-20 23:09
+
+[https://psnine.com/psngame/25668](https://psnine.com/psngame/25668)
+
+奖杯难度似乎不大的样子
+
+*****
+
+####  duraa  
+##### 1460#       发表于 2024-3-20 23:11
+
+篝火的编辑白了，说难度不大<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑色的js  
+##### 1461#       发表于 2024-3-20 23:12
+
+隔壁龙信2经典ig8，浪人稳个ig8我也满足了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SergeGlenn  
+##### 1462#       发表于 2024-3-20 23:14
+
+龙信2稳了，浪人MC不掉到80以下就不错了。。。这回奖杯设计索尼搞了吧，他们最近的倾向就是把白金做简单，这回难度杯也没有
+
+*****
+
+####  swanon  
+##### 1463#       发表于 2024-3-20 23:17
+
+浪人什么时候公布
+
+*****
+
+####  Yeelolo  
+##### 1464#       发表于 2024-3-20 23:17
+
+都评价龙信2是龙信一代原汁原味加强版，一代反人类设计太多了，我不好说等多数玩家真实上手之后评价会咋样<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">尤其是没玩过一代的，这时候谈稳了就算了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

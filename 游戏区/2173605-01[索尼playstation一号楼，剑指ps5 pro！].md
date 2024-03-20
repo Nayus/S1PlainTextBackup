@@ -1337,3 +1337,14 @@ PS5上30帧的<strong>新</strong>游戏现在就哥谭骑士、灵媒、采石�
 —— 来自 HUAWEI MRR-W29, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 7500f那是留给ps6的，现在用了那ps6用什么?
 
+
+*****
+
+####  RTLordCaptain  
+##### 311#       发表于 2024-3-20 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316372&amp;ptid=2173605" target="_blank">umbasa 发表于 2024-3-20 22:50</a>
+
+7500f那是留给ps6的，现在用了那ps6用什么?</blockquote>
+PS6起码Zen6了，Zen5下半年就有，而Pro怎么也得再撑三年吧
+

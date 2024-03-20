@@ -2750,3 +2750,26 @@ FSF的才是圣日耳曼伯爵
 ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没戏份了，武藏这么久了就之前活动里一个黑 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">纳尼，活整这么大
 
+
+*****
+
+####  cenhr  
+##### 11654#       发表于 2024-3-20 23:07
+
+这次黑贞我没啥感想，但伯爵这个对主角的照顾已经是老爹带儿子的程度了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 11655#       发表于 2024-3-20 23:15
+
+特么前12章就是在浪费字数
+
+第十二章最后一节才算是有点味道
+
+顺便不列颠上辈子是不是除了呆毛姐妹全部偷吃过型月的大米
+
+真别薅了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

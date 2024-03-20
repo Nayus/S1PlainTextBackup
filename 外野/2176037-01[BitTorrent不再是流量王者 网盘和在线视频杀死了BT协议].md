@@ -1265,3 +1265,15 @@ tracker站跟bt精神有什么关系，他也只是聚合了一下种子资源
 —— 来自 vivo V2 ...</blockquote>
 安卓也没有好bt软件吧？
 
+
+*****
+
+####  黑椒碳烤青鲤  
+##### 129#       发表于 2024-3-20 10:00
+
+ 本帖最后由 黑椒碳烤青鲤 于 2024-3-20 10:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293359&amp;ptid=2176037" target="_blank">xeseed 发表于 2024-3-18 21:35</a>
+
+github.com/anacrolix/torrent 和 dt/torrent/v1.02</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">原来这俩是恶意吸血的吗，我说最近怎么全是这俩标号的客户端还上传的特别快
+

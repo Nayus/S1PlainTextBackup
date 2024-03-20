@@ -6797,3 +6797,14 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 小动画最后卖关子说mystere 有可能救不回来了 6 这要是真的你这xb2同款配置怎么就活了个光跟妮娅啊（
 
+
+*****
+
+####  aptx8285144  
+##### 4428#       发表于 2024-3-20 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64308603&amp;ptid=2092345" target="_blank">八等绝癔 发表于 2024-3-20 11:42</a>
+
+小动画最后卖关子说mystere 有可能救不回来了 6 这要是真的你这xb2同款配置怎么就活了个光跟妮娅啊（ ...</blockquote>
+是，如果按照科学讲座的感觉，米斯缇和老海头都会死的感觉
+

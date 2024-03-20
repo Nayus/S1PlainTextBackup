@@ -5939,3 +5939,16 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 自从被队友的电弧枪秒了之后我出门都穿绝缘甲了友伤6000谁吃得消啊。 ...</blockquote>
 打不过就加入，又能赚债卷钱了，箭头计划通。
 
+
+*****
+
+####  Benighted  
+##### 2052#       发表于 2024-3-20 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64308436&amp;ptid=2170852" target="_blank">eno_emos 发表于 2024-3-20 11:31</a>
+
+五级有些重型机器人兵营里面停着没人上的坦克，如果你过去太慢了机器人小兵会爬上去把坦克开起来
+
+这些没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还有这种细节，之前碰到重型兵营都是直接丢轨道激光或者空袭下去
+

@@ -42,3 +42,11 @@
 
 —— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  附庸风雅者  
+##### 1844#       发表于 2024-3-20 09:08
+
+我记得说szb要出2了？ 是什么时候
+

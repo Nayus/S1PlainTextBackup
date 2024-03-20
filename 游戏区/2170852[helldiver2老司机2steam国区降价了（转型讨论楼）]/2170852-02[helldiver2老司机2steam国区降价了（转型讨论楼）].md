@@ -5786,3 +5786,24 @@ onp，2天解放2星区，上强度了
 离子喷喷坦克虫以下的虫子都能打出硬直，跳虫等小虫子正面一下就能打死，不是正面命中两下死，打胖子三发一 ...</blockquote>
 dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少是有点整蛊
 
+
+*****
+
+####  Mr.Hopp  
+##### 2037#       发表于 2024-3-20 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306500&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-20 08:51</a>
+
+dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少是有点整蛊</blockquote>
+我用下来感觉还行，怪一堆的时候挺好用，榴弹的下位，还通吃中甲虫。
+
+*****
+
+####  Launce  
+##### 2038#       发表于 2024-3-20 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306399&amp;ptid=2170852" target="_blank">nagamasa 发表于 2024-3-20 08:38</a>
+
+有全部轮换盔甲的统计吗，不知道少买了多少套</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了造型想要和轻甲，别的没什么买的必要，中重被动属性都和债券一致的
+

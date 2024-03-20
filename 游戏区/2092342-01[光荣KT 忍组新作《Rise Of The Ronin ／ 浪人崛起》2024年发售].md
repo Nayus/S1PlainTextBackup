@@ -6910,3 +6910,14 @@ Openning→[www.bilibili.com/video/BV1EJ4m1872t](http://www.bilibili.com/video/B
 
 3/21晚7点电击online先行直播→[www.youtube.com/watch?v=NeQ7z1lH1qk](http://www.youtube.com/watch?v=NeQ7z1lH1qk)
 
+
+*****
+
+####  ntrntr1  
+##### 1363#       发表于 2024-3-20 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304485&amp;ptid=2092342" target="_blank">leavan 发表于 2024-3-19 22:27</a>
+
+最后一句点出了，垃圾画面！连日媒都嫌弃。PS3早期级别垃圾画面，出在PS5上属于刷新下限。 ...</blockquote>
+高情商 立体浮世绘
+

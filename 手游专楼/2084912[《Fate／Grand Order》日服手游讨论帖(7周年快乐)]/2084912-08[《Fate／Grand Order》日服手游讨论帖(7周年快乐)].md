@@ -1453,3 +1453,18 @@ edo是井的发音代表废弃孔
 想看基督山伯爵和海蒂双人卡实装然后放闪放狗粮让腐女气急败坏</blockquote>
 yjg要是敢这么搞，那她真是比蘑菇还牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11541#       发表于 2024-3-20 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304839&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-3-19 23:13</a>
+
+yjg要是敢这么搞，那她真是比蘑菇还牛逼</blockquote>
+毕竟可以割，有伴的伯爵是小说人物，单身的是现实人物
+
+我记得你月的写法是大仲马将伯爵的故事写成小说，为了买钱而给了好结局。
+
+这也符合你月的现实和创作不一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

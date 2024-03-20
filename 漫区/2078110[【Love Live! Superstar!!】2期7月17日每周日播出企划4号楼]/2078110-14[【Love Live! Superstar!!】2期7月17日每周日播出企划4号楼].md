@@ -1123,3 +1123,14 @@ sma不重视也不签唱片公司也就那样了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  starring  
+##### 19822#       发表于 2024-3-20 18:24
+
+55组的试听也出了
+K组输麻，运营要把她们当弃子不妨直说<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

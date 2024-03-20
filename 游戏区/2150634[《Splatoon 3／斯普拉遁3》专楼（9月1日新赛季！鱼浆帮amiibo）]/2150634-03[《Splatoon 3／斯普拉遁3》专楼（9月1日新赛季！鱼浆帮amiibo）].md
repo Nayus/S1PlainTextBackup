@@ -6922,3 +6922,18 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Teiume  
+##### 3674#       发表于 2024-3-20 18:17
+
+滚筒碰碰车真有意思，建议和随机武器一起定期来一把。
+
+*****
+
+####  炫夜鳞  
+##### 3675#       发表于 2024-3-20 18:21
+
+服了傻逼任天堂，整点解散之后6连跪，野人就跟脑子丢了一样<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

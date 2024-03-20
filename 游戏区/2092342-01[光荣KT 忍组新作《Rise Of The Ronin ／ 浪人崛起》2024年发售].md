@@ -7676,3 +7676,11 @@ https://business.sohu.com/a/669870711_100274826</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301255&amp;ptid=2092342" target="_blank"> kemyes 发表于 2024-3-19 16:55</a> 这是什么人均剑圣的世界了吗？ </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">致敬传奇历史题材rpg天国拯救是吧来自: iPhone客户端
 
+
+*****
+
+####  hkguty  
+##### 1440#       发表于 2024-3-20 18:19
+
+这已经是暗荣能拿得出手的规模最大的游戏了吧，虽然看起来长得不怎么像，不太可能还有其他更大的未公布项目了
+

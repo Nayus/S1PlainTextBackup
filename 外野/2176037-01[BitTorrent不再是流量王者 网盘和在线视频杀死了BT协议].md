@@ -1303,3 +1303,15 @@ github.com/anacrolix/torrent 和 dt/torrent/v1.02</blockquote>
 
 直接比较现在和20年前没有意义。10年前的那一波转折发展，b站和百度两大“恶人”干的事情你不能跳过不提。
 
+
+*****
+
+####  讨逆修会  
+##### 133#       发表于 2024-3-20 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293179&amp;ptid=2176037" target="_blank">东之伊甸 发表于 2024-3-18 21:06</a>
+BT被版权公司和百度这类公司联合打压，可不就份额下降呗？
+
+这能吹一波网盘我是没想到的，版权大棒打到网盘 ...</blockquote>
+网盘规避的方式很多，分卷压缩+密码，基本上就无压力了，我网盘上一堆不和谐的资源都这么保存的，有些很多年了依旧能用
+

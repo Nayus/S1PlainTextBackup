@@ -6168,3 +6168,14 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 确实，而且这位竟然还几乎没玩过Roguelite和扑克，真让人感慨有些人就是有天赋。
 
+
+*****
+
+####  Awanano  
+##### 541#       发表于 2024-3-20 12:37
+
+太爽了…越打越爽
+不是很理解商店介绍干嘛写的好像啥非法牌局一样。肉鸽魂套牢德扑皮，没真算钱啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

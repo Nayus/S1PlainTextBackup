@@ -11689,3 +11689,13 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 —— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  IWS2000  
+##### 14326#       发表于 2024-3-20 15:35
+
+世界观<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/7ef8b09fd77d0cde7693ccea3236d1e4/59B5F3BA5C9EAE997AB3AA9F1618F858.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/0f14b7e44c2e9a6f4fa830b4d0ce1d4d/CMP_20240320153430666.jpg" referrerpolicy="no-referrer">
+

@@ -7384,3 +7384,31 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 
 [
 
+
+*****
+
+####  Z1yu  
+##### 1412#       发表于 2024-3-20 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64311277&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-20 15:10</a>
+开传送点，支线有些可以产生和培养和同伴的bond，有些奖励还算丰厚。还有类似对马岛的解放村庄，杀完敌人 ...</blockquote>
+支线的形式是什么样的。有没有那种因为选择不同，导致结果不同的支线。
+如果只是去某个地方和伙伴一起通一个马桶，那还挺无聊的。
+
+还有不知道有没有给独特装备的支线，这个可能后期才会有吧。
+
+
+*****
+
+####  waelaZed  
+##### 1413#       发表于 2024-3-20 15:40
+
+黑暗圣堂武士不但会绝地武士的原力弹反飞行道具,还可以顺路蹭一下附魔呐<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 1414#       发表于 2024-3-20 15:45
+
+刚刚这段是大剑吧，看着挺不错
+

@@ -7303,3 +7303,24 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 看最近的偷跑这些人类敌人除了长得像个人之外跟妖怪有什么区别吗</blockquote>
 人体，很奇妙吧
 
+
+*****
+
+####  Bani82  
+##### 1405#       发表于 2024-3-20 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310273&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-20 13:53</a>
+
+别吧，我巴不得仁王里全是人形怪，仁王2才有了妖反还要等红光，大部分妖怪打着都没什么劲，还是喜欢人型 ...</blockquote>
+很多怪不用等红光打弱点啊，鬼可以破角，车轮打脸，史莱姆等攻击后露出弱点，不过天狗、蛇女这种确实比较麻烦
+
+*****
+
+####  Bani82  
+##### 1406#       发表于 2024-3-20 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310303&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 13:55</a>
+
+看最近的偷跑这些人类敌人除了长得像个人之外跟妖怪有什么区别吗</blockquote>
+没有火车这种啊！这类打起来还是和一般人类不太一样
+

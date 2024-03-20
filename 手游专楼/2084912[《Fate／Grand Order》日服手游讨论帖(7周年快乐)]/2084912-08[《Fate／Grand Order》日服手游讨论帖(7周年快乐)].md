@@ -2585,3 +2585,42 @@ TMD这章是谁主导的滚出来挨打
 有病吧搞这种沙雕肉盾来拖时间
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 11638#       发表于 2024-3-20 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315563&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-3-20 21:25</a>
+
+比起撕卡，NPC里真有海蒂才是槽点吧
+
+syl 伯爵（四星）正脸真的好宽啊，为什么不让画海报的来画卡面[ ...</blockquote>
+我也一度怀疑1.5海报上的黑A是不是佐佐木画的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上色组立大功。
+
+理论上来说就是同一个人吧，怖军能看出来是pako的，但上色更有光泽。
+
+希望卡伯爵满破图有好看的侧颜，宝具动画里看着就不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 11639#       发表于 2024-3-20 21:39
+
+还在活动，又撕谁了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 11640#       发表于 2024-3-20 21:43
+
+ 本帖最后由 exiaexa 于 2024-3-20 21:44 编辑 
+
+我更奇怪的是，这章完全是奇怪的大杂烩风格，看起来难受到爆炸
+
+甚至伯爵味儿都怪得飞起
+
+他们是怎么咬定一定是樱井全责的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

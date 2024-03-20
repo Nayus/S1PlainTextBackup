@@ -7546,3 +7546,31 @@ https://www.famitsu.com/news/202305/29303505.html
 —— 来自 realme RMX3 ...</blockquote>
 不管光荣还有没有新游戏现在浪人崛起都不是500万ip，最开始提出500w的时候还说21年发布呢，当然以官方最近的消息为准了
 
+
+*****
+
+####  你好s1  
+##### 1429#       发表于 2024-3-20 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64312948&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 17:19</a>
+不管光荣还有没有新游戏现在浪人崛起都不是500万ip，最开始提出500w的时候还说21年发布呢，当然以官方最 ...</blockquote>
+那能不能把光荣财报500万ip和浪人崛起并列的新闻发一下，我咋搜不到
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  你好s1  
+##### 1430#       发表于 2024-3-20 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64312922&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-20 17:18</a>
+几年前襟川阳一在接受日媒采访还时表示，500W神秘大作已进入开发最终阶段呢
+
+500W销量新IP就当成给股东打 ...</blockquote>
+五百万新ip光荣最早2018年说出来的，这符合泄露的ppt。期间从2020发售到2022再到2024不断推迟，这也符合浪人崛起的发售时间。
+
+至于说财报把浪人崛起和500万ip并列，我只见有人说，没见过财报新闻，如果你有，麻烦贴一下看看
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

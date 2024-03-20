@@ -1073,3 +1073,11 @@ New info from DF:
 
 笑死，还真就是完美的30帧。不过索尼之前不是一直在推120hz刷新率嘛，加把劲锁个40帧应该不难吧？
 
+
+*****
+
+####  Eadric  
+##### 284#       发表于 2024-3-20 17:33
+
+cpu当然是ps6再升级<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

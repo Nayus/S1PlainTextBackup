@@ -5920,3 +5920,11 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着2星球，但是那2都是2个星区最后一个星球，前置还有2+3
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2天干TMD7个星球，什么叫强度，这就是强度，这就算了，还扣扣索索的给35个奖章
 
+
+*****
+
+####  pmoe  
+##### 2050#       发表于 2024-3-20 14:04
+
+自从被队友的电弧枪秒了之后我出门都穿绝缘甲了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">友伤6000谁吃得消啊。
+

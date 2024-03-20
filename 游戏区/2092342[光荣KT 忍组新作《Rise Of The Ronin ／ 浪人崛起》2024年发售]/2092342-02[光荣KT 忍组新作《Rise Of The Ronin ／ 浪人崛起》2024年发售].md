@@ -373,3 +373,25 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 这意思是不是结局不会随玩家的选择产生重大变化？一切还是按照历史事实发展，只有个别人物命运会被改变？ ...</blockquote>
 是的，我理解就是这样。虽然宣传时一直强调三种派系、玩家自主开拓未来如如，但完全魔改历史的if线应该是不存在的，最大的剧情自由大概就是挽救某些角色的命定之死吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeelolo  
+##### 1522#       发表于 2024-3-21 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317492&amp;ptid=2092342" target="_blank">松风君 发表于 2024-3-21 01:05</a>
+是的，我理解就是这样。虽然宣传时一直强调三种派系、玩家自主开拓未来如如，但完全魔改历史的if线应该是 ...</blockquote>
+那这主线内容我就更担心了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">本来还安慰自己因为是多线结局所以主线比较短一点
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  duraa  
+##### 1523#       发表于 2024-3-21 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317448&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-21 00:56</a>
+卧龙出完全版分怎么还降了，我记得我去年看还是83啊</blockquote>
+笑死，查了下新闻原来都在80以上，现在一个80，两个79<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

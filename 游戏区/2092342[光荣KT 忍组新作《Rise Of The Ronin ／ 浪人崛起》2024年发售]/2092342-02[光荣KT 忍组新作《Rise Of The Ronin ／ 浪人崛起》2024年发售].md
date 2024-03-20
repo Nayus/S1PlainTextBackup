@@ -415,3 +415,46 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 感觉欧美那边在推上骂的确实很合理 2024年卖70刀的游戏端出来这么个画面就算了,总得有点别的部分能让玩家满 ...</blockquote>
 星刃一坨都70刀，浪人不配吗。说到底纯看玩家觉得值不值不值就等打折。
 
+
+*****
+
+####  umbasa  
+##### 1526#       发表于 2024-3-21 01:40
+
+<blockquote>Gigax 发表于 2024-3-21 00:05
+我的期望就是大地图战斗密度足够大一周目爽玩50小时，对主线的期望是比仁王2好就算成功，对支线的期望是上 ...</blockquote>
+真有这水平就是画面减配的同时游戏性暴增的对马岛，500w销量直接拿下了。我觉得kt都没你敢想。
+
+
+*****
+
+####  RushMove  
+##### 1527#       发表于 2024-3-21 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317635&amp;ptid=2092342" target="_blank">umbasa 发表于 2024-3-21 01:40</a>
+ 真有这水平就是画面减配的同时游戏性暴增的对马岛，500w销量直接拿下了。我觉得kt都没你敢想。 ...</blockquote>
+很难说大众更看重画面还是游戏性
+
+*****
+
+####  uponutopia  
+##### 1528#       发表于 2024-3-21 01:42
+
+笑了 星刃卖相就比浪人强太多了，也有足够的吸睛点和话题性，题材没有门槛也更适合直播，看好星刃爆杀浪人
+
+*****
+
+####  karastar  
+##### 1529#       发表于 2024-3-21 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317643&amp;ptid=2092342" target="_blank">RushMove 发表于 2024-3-21 01:42</a>
+很难说大众更看重画面还是游戏性</blockquote>
+绝对是画面
+
+*****
+
+####  病態極端  
+##### 1530#       发表于 2024-3-21 01:45
+
+仁王2豪華版80塊，臥龍豪華版85塊，浪人賣70塊其實是降價了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

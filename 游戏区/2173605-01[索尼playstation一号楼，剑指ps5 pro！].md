@@ -1027,3 +1027,26 @@ New info from DF:
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">gt7能搞个画质升级吗，感觉为了照顾ps4机能还是有点可惜
 
+
+*****
+
+####  novyDC  
+##### 279#       发表于 2024-3-20 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等降价买个玩gta6
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  医生狼多  
+##### 280#       发表于 2024-3-20 17:16
+
+近几天，PS5 Pro的硬件规格已基本被曝光，知名科技硬件爆料人Kepler表示，因为CPU限制而以30帧运行的游戏，在PS5 Pro上可能做不到60帧。
+
+“如果《GTA6》在PS5上是30FPS，那么在PS5 Pro上也可能是30FPS。我想这款游戏的CPU负担会很大，而Pro上的CPU升级相当小。”
+
+数毛社也发表了类似的看法：
+
+“实际上，那些希望PS5 Pro能把因CPU限制只有30fps的游戏转变为超流畅60fps体验的人将会失望。但是，3.85GHz能为可能无法达到帧率的30fps游戏带来更高的稳定性。”
+

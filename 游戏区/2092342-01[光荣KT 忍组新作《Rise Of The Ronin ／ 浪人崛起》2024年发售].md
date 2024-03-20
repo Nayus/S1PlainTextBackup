@@ -7488,3 +7488,34 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 
 天地人好像主要影响的是石火的效果，克制的情况下高难度石火都很好触发，不利的情况下石火的判定帧非常短
 
+
+*****
+
+####  被雨困住的城市  
+##### 1424#       发表于 2024-3-20 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64307106&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-20 09:49</a>
+https://www.famitsu.com/news/202305/29303505.html
+
+去年5月的一篇采访文</blockquote>
+草，不是500w了，改1kw了是吧
+
+
+*****
+
+####  Gigax  
+##### 1425#       发表于 2024-3-20 17:14
+
+弓箭高手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你好s1  
+##### 1426#       发表于 2024-3-20 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310103&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 13:37</a>
+泄露ppt的人都离职两三年了，ppt上写的游戏内容都对不上，估计是项目最初期的内容了。去年光荣财报里浪人 ...</blockquote>
+那还说500w ip是2024年发售呢，你信现在光荣还有作品没公布，还能2024发售？？？
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2201,3 +2201,80 @@ TMD终突+30一共要10+15*3=55个新材料
 
 伯爵帅爆了，好不好用都要抽一个当收场，另外海蒂美如画。老骗子就算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 11603#       发表于 2024-3-20 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟你们说 有一个使徒他不是5星  
+
+*****
+
+####  qixinno2  
+##### 11604#       发表于 2024-3-20 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 不死心全抽了 结果不说角色 连新礼装都没出
+
+*****
+
+####  exiaexa  
+##### 11605#       发表于 2024-3-20 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314425&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-20 19:33</a>
+
+打的过仇阶那几个蓝群吗（</blockquote>
+看了一眼
+
+大概比不特攻的夹馍强
+
+所以说不如贷款手术室，再加个宝具特攻
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 11606#       发表于 2024-3-20 19:40
+
+黑贞改模好香，灵衣宝具好飒爽
+
+就是更新后怎么变卡了
+
+*****
+
+####  lin2004  
+##### 11607#       发表于 2024-3-20 19:41
+
+啥，版本更新了？回来一看新卡蛋糕居然就0破能看.jpg
+
+*****
+
+####  alucardcz  
+##### 11608#       发表于 2024-3-20 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314503&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-20 19:40</a>
+
+看了一眼
+
+大概比不特攻的夹馍强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真强度还得看泳装和周年吗（
+
+
+*****
+
+####  angelooo  
+##### 11609#       发表于 2024-3-20 19:42
+
+<blockquote>qixinno2 发表于 2024-3-20 19:39
+艹 不死心全抽了 结果不说角色 连新礼装都没出</blockquote>
+新礼装没up吧，本来就很难出，我很多新礼装都是过了半年以上才抽到OTZ
+
+*****
+
+####  白金口袋  
+##### 11610#       发表于 2024-3-20 19:44
+
+3个十连+5呼符黑玛丽到手，且没出小男孩
+
+完美，回去打白情咧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

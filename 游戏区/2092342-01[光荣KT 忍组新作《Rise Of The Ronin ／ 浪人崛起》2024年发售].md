@@ -7763,3 +7763,14 @@ b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打
 
 个人感觉这次武器只有一种常驻外观再搭配偷跑哥那个女性娇小的身形比例导致整体看起来好奇怪,尤其太刀加了一把暗杀的小协差之后跟双刀的外观看起来几乎差不多...
 
+
+*****
+
+####  operatbig  
+##### 1449#       发表于 2024-3-20 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313793&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 18:35</a>
+
+b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打</blockquote>
+他搞个开场创建双主角这展开基本预料之中了。
+

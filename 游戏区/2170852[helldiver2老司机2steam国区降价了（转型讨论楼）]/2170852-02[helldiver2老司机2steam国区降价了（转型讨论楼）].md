@@ -6086,3 +6086,11 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 他不更新我都忘了机甲还能近战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 2065#       发表于 2024-3-20 19:38
+
+<blockquote>当控制台语言设置为乌克兰语时,在线功能无法使用。</blockquote>逃兵是吧，这么多奇奇怪怪的bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

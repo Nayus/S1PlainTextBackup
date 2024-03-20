@@ -58,3 +58,17 @@
 
 游戏都要死了还搞指定独占鸟标卡，我都不知道你这破逼无限是多了这几张卡环境就会崩溃是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 1846#       发表于 2024-3-20 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这贴是顶上来送终吗
+
+不过也很好想啊，毕竟投票第一名主战都要提前出完了
+
+可惜了我奶二哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也不知道今年投票会不会投了，到时候进不进byd
+

@@ -14,3 +14,15 @@
 
 竟然是真实赛道.......富士、巴林、巴西、美国、摩纳哥、上海
 
+
+*****
+
+####  Anatoly  
+##### 111#       发表于 2024-3-20 10:56
+
+SCANDAL (スキャンダル)《ファンファーレ》https://c6.y.qq.com/base/fcgi-bin/u?__=uWfijlebyylj 
+
+本片ed已随SCANDAL新专发售
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1203,3 +1203,13 @@ pro提升不大的话隔代升级了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">有点纠结，如果真不能稳60帧，是不是真的趁着有活动的时候买现在款？
 
+
+*****
+
+####  LYYL  
+##### 298#       发表于 2024-3-20 21:28
+
+24年了还Zen2，索尼真是抠<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

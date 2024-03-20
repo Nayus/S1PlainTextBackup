@@ -115,3 +115,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋游刃  
+##### 16378#       发表于 2024-3-20 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315232&amp;ptid=2018830" target="_blank">呓亘 发表于 2024-3-20 20:51</a>
+
+谁啊</blockquote>
+bs的黄色。
+

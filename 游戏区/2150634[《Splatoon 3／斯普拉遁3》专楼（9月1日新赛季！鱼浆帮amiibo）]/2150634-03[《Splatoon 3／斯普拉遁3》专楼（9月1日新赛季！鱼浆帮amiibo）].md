@@ -6965,3 +6965,15 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  shirolin  
+##### 3679#       发表于 2024-3-20 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315086&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-20 20:36</a>
+电信师傅说我们这边因为是老小区，光纤都是从客厅空调外机口飞线入户的，没法移到书房，已经下单10米超六类 ...</blockquote>
+现在不是好多地方都在推全屋光纤改造，我看都推到县城了
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

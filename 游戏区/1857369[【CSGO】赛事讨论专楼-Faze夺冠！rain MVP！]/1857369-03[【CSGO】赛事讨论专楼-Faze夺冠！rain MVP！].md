@@ -48,3 +48,11 @@
 
 今晚三场蒙古IMPSAW赢作业才能过，把悬念留到了最后一刻<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">ef输X队没有3/0把作业搞炸了
 
+
+*****
+
+####  heseran  
+##### 4030#       发表于 2024-3-20 21:32
+
+这蒙古，我的作业救星<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+

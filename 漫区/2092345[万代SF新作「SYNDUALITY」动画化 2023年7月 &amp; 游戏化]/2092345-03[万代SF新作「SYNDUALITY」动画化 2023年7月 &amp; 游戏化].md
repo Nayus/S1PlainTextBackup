@@ -6870,3 +6870,16 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 救命 老海头的部队的名字叫“Ideal des himmels”这里的des是那个鬼意思啊 可以理解为of吗
 
+
+*****
+
+####  novyDC  
+##### 4435#       发表于 2024-3-20 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64304544&amp;ptid=2092345" target="_blank">三合一出现 发表于 2024-03-19 22:33:49</a>
+看到这一段笑了，能看到这里的观众估计都是这个想法。
+
+然后啊- -boss问了两位兄弟的目的后，直接无视了 ...</blockquote>这个生气脸画崩了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

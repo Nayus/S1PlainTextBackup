@@ -2534,3 +2534,54 @@ CA6FCDBB-744B-4607-9C0E-B8BEC6CAD7B9.jpeg
 
 syl 伯爵（四星）正脸真的好宽啊，为什么不让画海报的来画卡面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 11634#       发表于 2024-3-20 21:26
+
+<blockquote>保罗赫伯特 发表于 2024-3-20 21:25
+比起撕卡，NPC里真有海蒂才是槽点吧
+
+syl 伯爵（四星）正脸真的好宽啊，为什么不让画海报的来画卡面[ ...</blockquote>
+卡里奥斯特罗这正脸真的是太瞎了OTZ
+
+*****
+
+####  angelooo  
+##### 11635#       发表于 2024-3-20 21:27
+
+<blockquote>Jamaisvu 发表于 2024-3-20 21:22
+这种人2.5就该退了吧撕了又不是删了，池子该开还是开，何况以后说不定还能换个强力马甲堂堂复活。 ...</blockquote>
+所以我才说是表演型人格啊，看得我都要发笑了
+
+
+*****
+
+####  Jamaisvu  
+##### 11636#       发表于 2024-3-20 21:33
+
+<img src="https://img.saraba1st.com/forum/202403/20/213048ypqpkpsk790cgtcs.jpg" referrerpolicy="no-referrer">
+
+<strong>03e85e4e9258d10987cadb789458ccbf6d814d0f.jpg</strong> (137.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 21:30 上传
+
+兔老师以前说过负责了奏章主视觉图的一名角色，估计指的是海报上的卡伯爵？
+
+新岩窟王和广播剧里一样带着老婆，应该也是他画的吧。
+
+这位老师给fgo画过几张礼装，常驻五星里那张很好看的天草就是他画的，卡伯爵估计是因为死亡正脸才没画好吧，期待满破图！
+
+*****
+
+####  exiaexa  
+##### 11637#       发表于 2024-3-20 21:34
+
+TMD这章是谁主导的滚出来挨打
+
+有病吧搞这种沙雕肉盾来拖时间
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

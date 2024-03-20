@@ -1789,3 +1789,160 @@ PV一般都会美个容吧，也不知为啥弄了个死亡正面...好怕TM高�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10张护符无事发生 等pu2
 
+
+*****
+
+####  琴酒  
+##### 11571#       发表于 2024-3-20 19:07
+
+ 本帖最后由 琴酒 于 2024-3-20 19:09 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/20/190851pni5hkgetagten3e.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1271.JPG</strong> (270.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/190851aq06wz5w4w67twlb.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1272.JPG</strong> (268.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:08 上传
+
+*****
+
+####  Jamaisvu  
+##### 11572#       发表于 2024-3-20 19:07
+
+搬一下立绘：
+
+<img src="https://img.saraba1st.com/forum/202403/20/190601toao8sixvk9i8tol.jpg" referrerpolicy="no-referrer">
+
+<strong>7D7B93CED12F2B55794BF5B55374DD09.jpg</strong> (419.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:06 上传
+
+一破之后就变成以前出过场的黑暗贵妇人了，我还是喜欢初始偶像装...
+
+<img src="https://img.saraba1st.com/forum/202403/20/190601pt0ml6cnl6w6ccon.jpg" referrerpolicy="no-referrer">
+
+<strong>385B7FB53B1B9A81B2ABDD51763ABAC7.jpg</strong> (421.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:06 上传
+
+新哈桑的卡面很用心啊，三个阶段三个姿势。
+
+*****
+
+####  angelooo  
+##### 11573#       发表于 2024-3-20 19:07
+
+玛丽一破神似黑杯23333满破我好了
+
+*****
+
+####  保罗赫伯特  
+##### 11574#       发表于 2024-3-20 19:10
+
+看PV，剧情里黑蛋糕这次幼年态和成熟版也分开了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+如果二池是新伯爵，白毛大叔会安排在哪儿呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cenhr  
+##### 11575#       发表于 2024-3-20 19:10
+
+黑玛丽好丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 11576#       发表于 2024-3-20 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314149&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-3-20 19:07</a>
+
+玛丽一破神似黑杯23333满破我好了</blockquote>
+黑太太惨遭代餐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 11577#       发表于 2024-3-20 19:13
+
+ 本帖最后由 Jamaisvu 于 2024-3-20 19:15 编辑 
+
+技能数据：
+
+<img src="https://img.saraba1st.com/forum/202403/20/191151rck0clsh0ooucb0l.png" referrerpolicy="no-referrer">
+
+<strong>1710933085706.png</strong> (585.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/191151ktvcjjtkqgbhsbyv.png" referrerpolicy="no-referrer">
+
+<strong>1710933076675.png</strong> (575.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:11 上传
+
+不是绿宝具，声优是种田梨沙
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+抽几发吧，庆祝种田回归<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11578#       发表于 2024-3-20 19:13
+
+黑玛丽蓝群 万物特攻？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 11579#       发表于 2024-3-20 19:13
+
+黑玛丽这卡面真的像压稿压了很久的
+
+*****
+
+####  exiaexa  
+##### 11580#       发表于 2024-3-20 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314195&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-20 19:13</a>
+
+黑玛丽蓝群 万物特攻？</blockquote>
+30倍率的特攻跟没有一样，不如直接贷款手术室
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 11581#       发表于 2024-3-20 19:15
+
+<img src="https://img.saraba1st.com/forum/202403/20/191324knlqf2hc0hyaf7qx.png" referrerpolicy="no-referrer">
+
+<strong>1710933066217.png</strong> (61.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:13 上传
+
+虽然我更喜欢年轻版的蓝毛忧郁帅哥马奇里，不过虫爷的新礼装是真惊艳啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+这画风扔万智牌里也不违和。
+

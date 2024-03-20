@@ -1150,3 +1150,17 @@ K组输麻，运营要把她们当弃子不妨直说<img src="https://static.sar
 
 差不多得了，你不喜欢不听就是了，天天在那唱衰，什么都在比比比，之前也是这样说鱼不对你口味也是各种惨惨惨
 
+
+*****
+
+####  ViyViy  
+##### 19825#       发表于 2024-3-20 19:09
+
+ 本帖最后由 ViyViy 于 2024-3-20 19:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305347&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-3-20 00:25</a>
+
+3人也来首中日英三语混合的曲子吧</blockquote>
+我记得哪儿说过，青山也会英文来着，感觉可行。
+
+结那：“关于我饰角是个奥地利人但我却负责日语这件事”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -7159,3 +7159,41 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Gigax  
+##### 1390#       发表于 2024-3-20 13:18
+
+ 本帖最后由 Gigax 于 2024-3-20 13:23 编辑 
+
+鲤师傅说的浪人崛起的目标就是200w啊，你们是不是漏看了一句，500w和1000w都是梦里的未来作品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+200w差不多就是仁王2独占期的销量，这个目标我觉得还是没什么问题的
+
+*****
+
+####  Yeelolo  
+##### 1391#       发表于 2024-3-20 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309804&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-20 13:12</a>
+
+如果是ps5独占的现在，500w简直天方夜谭，忍者组的罐头就是低配版对马岛
+
+自己截的图感觉还行，但我 ...</blockquote>
+光有城市这点就比对马岛那几个破房子强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 1392#       发表于 2024-3-20 13:20
+
+咋说呢。。。对马岛mc也就83分，浪人真要是这个分估计要gg了
+
+*****
+
+####  Bani82  
+##### 1393#       发表于 2024-3-20 13:20
+
+看起来比卧龙好一丢丢，但是这次没有妖怪全是人形怪感觉打起来可能会少点什么
+

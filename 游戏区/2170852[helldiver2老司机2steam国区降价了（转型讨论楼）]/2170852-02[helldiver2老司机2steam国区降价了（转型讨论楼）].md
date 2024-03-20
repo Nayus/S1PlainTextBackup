@@ -5775,3 +5775,14 @@ onp，2天解放2星区，上强度了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有全部轮换盔甲的统计吗，不知道少买了多少套
 
+
+*****
+
+####  FLZB  
+##### 2036#       发表于 2024-3-20 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306225&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-3-20 08:05</a>
+
+离子喷喷坦克虫以下的虫子都能打出硬直，跳虫等小虫子正面一下就能打死，不是正面命中两下死，打胖子三发一 ...</blockquote>
+dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少是有点整蛊
+

@@ -5876,3 +5876,14 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 我觉得商店里就那个螳螂头一套好看和治疗轻甲好用点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 2046#       发表于 2024-3-20 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64307995&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-3-20 11:01</a>
+
+我觉得商店里就那个螳螂头一套好看和治疗轻甲好用点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">轻甲+2榴弹和+50%投掷距离都可以，虽然天天穿着侦查甲爬爬乐
+

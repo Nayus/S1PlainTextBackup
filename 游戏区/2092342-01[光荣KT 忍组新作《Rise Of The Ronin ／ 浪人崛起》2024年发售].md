@@ -7852,3 +7852,27 @@ b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打</blockquo
 —— 来自 vivo V2324A, Android 14上的 S1Next-鹅版 v2.5. ...</blockquote>
 偷跑哥就在你的楼上
 
+
+*****
+
+####  Yeelolo  
+##### 1457#       发表于 2024-3-20 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316426&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-20 22:55</a>
+偷跑哥就在你的楼上</blockquote>
+刚刷到他的视频，主线这也太短了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雾生司  
+##### 1458#       发表于 2024-3-20 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316460&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-20 23:00</a>
+
+刚刷到他的视频，主线这也太短了吧
+
+—— 来自 vivo V2324A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+他还不出来透露一下体量兄弟们有点不安了
+

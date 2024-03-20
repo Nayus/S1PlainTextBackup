@@ -2723,3 +2723,30 @@ ORT也干了</blockquote>
 
 合理推测奏III nipi除了封面的龙公主以外也有画一个别的角色
 
+
+*****
+
+####  cenhr  
+##### 11651#       发表于 2024-3-20 22:59
+
+不过个人感觉，这次如果是大妈写得还真感觉不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 11652#       发表于 2024-3-20 23:00
+
+巴尔萨莫伯爵这么一来就和圣日耳曼伯爵是两个人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+FSF的才是圣日耳曼伯爵
+
+*****
+
+####  希望之花  
+##### 11653#       发表于 2024-3-20 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316365&amp;ptid=2084912" target="_blank">v22325 发表于 2024-3-20 22:49</a>
+
+ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没戏份了，武藏这么久了就之前活动里一个黑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">纳尼，活整这么大
+

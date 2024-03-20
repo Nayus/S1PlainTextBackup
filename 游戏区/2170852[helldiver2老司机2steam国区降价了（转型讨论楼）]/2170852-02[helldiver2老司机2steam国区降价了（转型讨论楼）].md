@@ -6266,3 +6266,29 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 到这种日常才感觉到系列任务都是有个固定兵种配置的，绿胖虫就死活碰不到
 
+
+*****
+
+####  Launce  
+##### 2085#       发表于 2024-3-20 23:00
+
+<img src="https://img.saraba1st.com/forum/202403/20/230011vvms3z2ja2kais5u.jpg" referrerpolicy="no-referrer">
+
+<strong>J3HIRZ)8_RS9U~2JW4HRF@2.jpg</strong> (25.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 23:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这更新也太抽象了
+
+*****
+
+####  sigeren  
+##### 2086#       发表于 2024-3-20 23:03
+
+我说我怎么玩了半天疯狂闪退掉线，原来是电弧的问题
+全新的砍武器方法
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

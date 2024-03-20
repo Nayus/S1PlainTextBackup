@@ -5807,3 +5807,11 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 有全部轮换盔甲的统计吗，不知道少买了多少套</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了造型想要和轻甲，别的没什么买的必要，中重被动属性都和债券一致的
 
+
+*****
+
+####  暴走的包子  
+##### 2039#       发表于 2024-3-20 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都带电弧了我还用你电喷干嘛
+

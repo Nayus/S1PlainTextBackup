@@ -1214,3 +1214,21 @@ rarbg倒了之后就没怎么用bt了，找不到平替。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jbtc2224052  
+##### 124#       发表于 2024-3-20 09:41
+
+没有新鲜血液也是个问题，小年轻都抱着手机也没多少用bt的，反倒是个个网盘都有手机app
+
+—— 来自 vivo V2148A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ccc183  
+##### 125#       发表于 2024-3-20 09:46
+
+点歌《Video Killed The BitTorrent Star》
+

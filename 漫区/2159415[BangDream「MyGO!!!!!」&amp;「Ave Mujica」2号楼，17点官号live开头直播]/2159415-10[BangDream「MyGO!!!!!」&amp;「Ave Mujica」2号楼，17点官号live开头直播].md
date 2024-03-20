@@ -11710,3 +11710,20 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 世界观</blockquote>
 就，也不是不行……
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14328#       发表于 2024-3-20 17:59
+
+MyGO新曲录制中
+
+QQ图片20240320175741.jpg
+(142.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 17:59 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/175934saala7y8ldlxqjw8.jpg" referrerpolicy="no-referrer">
+

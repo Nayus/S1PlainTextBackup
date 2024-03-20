@@ -6010,3 +6010,14 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 我亲眼看到一台无畏从500kg的火柱里走出来</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">500日常，泰坦倒下了，泰坦旁边的坦克虫屁事没有对你漂移冲锋
 
+
+*****
+
+####  仙风道骨常凯申  
+##### 2059#       发表于 2024-3-20 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306500&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-20 08:51</a>
+
+dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少是有点整蛊</blockquote>
+离子喷可以给坦克虫开屁股，就这一点就脱离玩具范畴晋升为可以一用的武器了
+

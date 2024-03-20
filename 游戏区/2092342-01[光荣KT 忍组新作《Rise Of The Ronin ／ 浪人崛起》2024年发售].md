@@ -7656,3 +7656,23 @@ https://business.sohu.com/a/669870711_100274826</blockquote>
 
   这样不是更符合？
 
+
+*****
+
+####  Gigax  
+##### 1438#       发表于 2024-3-20 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313377&amp;ptid=2092342" target="_blank">你好s1 发表于 2024-3-20 17:54</a>
+
+这样不是更符合？</blockquote>
+但如果真是浪人崛起的话也没必要写个新规ip了
+
+
+*****
+
+####  DawnGuardian  
+##### 1439#       发表于 2024-3-20 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301255&amp;ptid=2092342" target="_blank"> kemyes 发表于 2024-3-19 16:55</a> 这是什么人均剑圣的世界了吗？ </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">致敬传奇历史题材rpg天国拯救是吧来自: iPhone客户端
+

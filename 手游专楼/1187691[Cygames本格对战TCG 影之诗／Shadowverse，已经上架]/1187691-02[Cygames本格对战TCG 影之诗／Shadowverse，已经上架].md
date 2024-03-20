@@ -50,3 +50,11 @@
 
 我记得说szb要出2了？ 是什么时候
 
+
+*****
+
+####  老贝  
+##### 1845#       发表于 2024-3-20 10:40
+
+游戏都要死了还搞指定独占鸟标卡，我都不知道你这破逼无限是多了这几张卡环境就会崩溃是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

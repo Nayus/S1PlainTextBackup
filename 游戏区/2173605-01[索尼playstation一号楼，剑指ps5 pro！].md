@@ -941,3 +941,19 @@ Standard PlayStation 5 achieved 60FPS without raytracing, and PlayStation 5 Pro 
 数毛社发了一个小时的新视频分析PS5 Pro（ytb U5h4bvudvX8），看起来是已经确认漏出的内容是八九不离十了？ ...</blockquote>
 索尼要查内鬼的新闻都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 270#       发表于 2024-3-20 10:35
+
+New info from DF:
+
+• PSSR could potentially be BC with older PS5 games with a patch.
+
+• 13.7 GB of faster RAM for PS5 Pro compared to 12.5 GB on PS5
+
+• PS5 Pro will use RDNA3 with 60 CUs compared to 38 RDNA2 CUs on PS5
+
+• Up to 3.85 GHz CPU clock speed on PS5 Pro (10% increase)
+

@@ -11657,3 +11657,13 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 等明年鸡实装了两个新团十个人各补一张生日差不多了，新公司这么点人连活动都差点出不完，哪有一年多出几十张卡的力气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 14323#       发表于 2024-3-20 10:41
+
+干不完就找外包，只能说抠比wsd宁愿少卡少挣也懒得找人。
+
+补生日卡我觉得更是想多了，现在加了人活动频率也没变，这下单推真就一年抽几次卡就行了，唉太会帮人省钱了wsd。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

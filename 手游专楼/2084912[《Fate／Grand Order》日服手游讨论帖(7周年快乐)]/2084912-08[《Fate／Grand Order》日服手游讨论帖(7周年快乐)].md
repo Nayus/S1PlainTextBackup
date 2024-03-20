@@ -2855,3 +2855,44 @@ ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没�
 
 下面的注释也和奏I的怖军难敌一样，加入剧情池的时机有剧情进度的要求，这种特征应该是剧情限定
 
+
+*****
+
+####  洛克萨斯  
+##### 11663#       发表于 2024-3-20 23:46
+
+玩这么大？直接打包没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11664#       发表于 2024-3-20 23:46
+
+也不是真撕卡，只是复仇者们提前到北极等主角而已，现在是暂时切断连接<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 11665#       发表于 2024-3-20 23:51
+
+180石彩圈弗莉多，以为后续要血沉，谁知道后续玛莉跟着来了。最近欧气有点高，就怕后续联动要吃井<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 11666#       发表于 2024-3-20 23:52
+
+后续还有啥联动？
+
+*****
+
+####  清河子  
+##### 11667#       发表于 2024-3-20 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316748&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-20 23:35</a>
+上一个实锤有部分合写的剧情已经要追溯到252了，樱井确实是有时候写的像人格分裂一样的，她以前的活动里也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么说得我好像在溺爱她似的，这种事情不要啊）
+
+合理怀疑日本系从者比例减少有利于遏制阿光病情<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

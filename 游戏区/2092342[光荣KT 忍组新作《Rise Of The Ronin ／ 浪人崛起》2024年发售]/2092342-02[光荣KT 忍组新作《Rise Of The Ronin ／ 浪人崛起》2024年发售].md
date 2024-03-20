@@ -526,3 +526,24 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 
 忍者组居然有剧情了
 
+
+*****
+
+####  陈词与芍药  
+##### 1537#       发表于 2024-3-21 07:19
+
+ 本帖最后由 陈词与芍药 于 2024-3-20 19:22 编辑 
+
+我感觉选择不同势力只是导致了同一个事件通过不同视角的演绎，可能会导致不同的结果，但走向逃脱不了剧情杯包含的事件的的大框架
+这个是解释怎么推剧情的（
+
+<img src="https://img.saraba1st.com/forum/202403/20/191800ep2ddpodhdnpa42d.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3077.JPG</strong> (866.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 07:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

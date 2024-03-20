@@ -309,3 +309,46 @@ ps5的时间统计有误差另外也有延时，你连续打几个小时退了�
 
 MC没84分就先玩龙信了
 
+
+*****
+
+####  Gigax  
+##### 1515#       发表于 2024-3-21 00:49
+
+mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  duraa  
+##### 1516#       发表于 2024-3-21 00:52
+
+仁王1 88，仁王2 85，卧龙80，FFO 72<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeelolo  
+##### 1517#       发表于 2024-3-21 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317340&amp;ptid=2092342" target="_blank">松风君 发表于 2024-3-21 00:43</a>
+截一段电击online的访问过来，也许有剧情派的朋友感兴趣，之前发别的地方被秒删不知是闹哪样
+
+—— 除了战 ...</blockquote>
+这意思是不是结局不会随玩家的选择产生重大变化？一切还是按照历史事实发展，只有个别人物命运会被改变？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Gigax  
+##### 1518#       发表于 2024-3-21 00:56
+
+卧龙出完全版分怎么还降了，我记得我去年看还是83啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ouyang菌  
+##### 1519#       发表于 2024-3-21 00:56
+
+我猜评分在卧龙（80）~仁王2（85）之间吧，能过仁王2就是大成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

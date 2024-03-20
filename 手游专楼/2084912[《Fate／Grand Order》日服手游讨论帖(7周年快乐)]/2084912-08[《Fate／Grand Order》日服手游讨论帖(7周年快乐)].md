@@ -2981,3 +2981,16 @@ ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没�
 
 血淋淋的图都不贴了 一家人整整齐齐啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11677#       发表于 2024-3-21 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317165&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-3-21 00:18</a>
+
+【FGO彩蛋】白贞改模后，会戳元帅眼睛：https://www.bilibili.com/video/BV1su4m1T727
+
+螺旋社挺喜欢在奇奇 ...</blockquote>
+所以，白貞何時才給強化本
+

@@ -13904,3 +13904,18 @@ voy@ger真没想到
 
 “你究竟懂我什么啊”
 
+
+*****
+
+####  Anatoly  
+##### 2864#       发表于 2024-3-20 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314096&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-20 19:04</a>
+草怎么还有达子，他和爱马仕啥关系
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这一说查了查是没搜着，黑历史动画也没他
+奇怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

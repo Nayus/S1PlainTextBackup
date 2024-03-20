@@ -1946,3 +1946,163 @@ PV一般都会美个容吧，也不知为啥弄了个死亡正面...好怕TM高�
 
 这画风扔万智牌里也不违和。
 
+
+*****
+
+####  alucardcz  
+##### 11582#       发表于 2024-3-20 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314211&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-20 19:14</a>
+
+30倍率的特攻跟没有一样，不如直接贷款手术室</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂那师傅不也就50！
+
+*****
+
+####  yyzcacxg  
+##### 11583#       发表于 2024-3-20 19:17
+
+90石种田get
+
+*****
+
+####  Jamaisvu  
+##### 11584#       发表于 2024-3-20 19:17
+
+好像二池角色的数据也解包出来了：
+
+<img src="https://img.saraba1st.com/forum/202403/20/191746ftvsnzbtmsgq6lms.png" referrerpolicy="no-referrer">
+
+<strong>1710933426235.png</strong> (586.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:17 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/191746ueafm19tgl8xhgmf.png" referrerpolicy="no-referrer">
+
+<strong>1710933436378.png</strong> (569.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:17 上传
+
+*****
+
+####  保罗赫伯特  
+##### 11585#       发表于 2024-3-20 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314235&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-20 19:16</a>
+
+狂那师傅不也就50！</blockquote>
+人家可以叠两次啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 11586#       发表于 2024-3-20 19:19
+
+TMD终突+30一共要10+15*3=55个新材料
+
+你好歹终突别卡人啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11587#       发表于 2024-3-20 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314260&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-3-20 19:18</a>
+
+人家可以叠两次啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跌2次那也是后面的事情了！
+
+*****
+
+####  cckuku  
+##### 11588#       发表于 2024-3-20 19:20
+
+伯爵还是仇阶啊？这卡感觉也没啥强度啊。
+
+
+*****
+
+####  alucardcz  
+##### 11589#       发表于 2024-3-20 19:20
+
+怎么变绿单了。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 11590#       发表于 2024-3-20 19:21
+
+果然是卡里奥斯特罗啊……但看那正脸立绘，这卡面已经寄了吧
+
+*****
+
+####  exiaexa  
+##### 11591#       发表于 2024-3-20 19:22
+
+伯爵有病吧，前置麻痹，然后给你灼烧特攻
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+绿卡终究是不能有自己的金时
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琴酒  
+##### 11592#       发表于 2024-3-20 19:22
+
+<img src="https://img.saraba1st.com/forum/202403/20/192238z66ptb865kb3k8j6.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1273.JPG</strong> (73.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/192238xh1qk30vmmbv12dm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1274.JPG</strong> (184.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:22 上传
+
+*****
+
+####  Jamaisvu  
+##### 11593#       发表于 2024-3-20 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314312&amp;ptid=2084912" target="_blank">琴酒 发表于 2024-3-20 19:22</a></blockquote>
+这色调不说是fgo还以为是雾雨谜宫里跑出来的人<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+帅爆了，哪怕是玩具也争取抽一个<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11594#       发表于 2024-3-20 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314308&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-20 19:22</a>
+
+伯爵有病吧，前置麻痹，然后给你灼烧特攻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就是翻版杨贵妃 请自己打灼烧文章或者开技能先平a（
+
+不过这降防也是后置太菜了！
+
+*****
+
+####  exiaexa  
+##### 11595#       发表于 2024-3-20 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314324&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-20 19:24</a>
+
+不就是翻版杨贵妃 请自己打灼烧文章或者开技能先平a（
+
+不过这降防也是后置太菜了！ ...</blockquote>
+（其实是神祖
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

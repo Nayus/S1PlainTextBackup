@@ -395,3 +395,13 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 卧龙出完全版分怎么还降了，我记得我去年看还是83啊</blockquote>
 笑死，查了下新闻原来都在80以上，现在一个80，两个79<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名字已被吃  
+##### 1524#       发表于 2024-3-21 01:23
+
+有没有可能，70刀不是因为比起60刀有多强，而是因为游戏厂商想赚更多的钱，什么60刀定价持续多年从未涨价就不说了。也不是为厂家找补，难道麦当劳1+1涨价，大家会要求给你加量吗？不都心知肚明就是要涨价，无非就是有人选择继续吃有人却选择吃别的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6365,3 +6365,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 燃油船是不是有bug，船下不来
 
+
+*****
+
+####  rainknine  
+##### 2095#       发表于 2024-3-21 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317491&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-3-21 01:04</a>
+燃油船是不是有bug，船下不来</blockquote>
+好像是，今天我也遇到了，不过发现下不来之后很快我就因为用电弧枪闪退了
+不知道有没有联系
+

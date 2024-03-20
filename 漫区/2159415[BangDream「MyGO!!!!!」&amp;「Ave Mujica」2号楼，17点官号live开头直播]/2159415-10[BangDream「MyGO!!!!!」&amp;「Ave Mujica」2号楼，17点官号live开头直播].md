@@ -11677,3 +11677,15 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14325#       发表于 2024-3-20 14:58
+
+喂不是，这回層浮的solo怎么有24品啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还TM要推3个半音
+真是要了猫命啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

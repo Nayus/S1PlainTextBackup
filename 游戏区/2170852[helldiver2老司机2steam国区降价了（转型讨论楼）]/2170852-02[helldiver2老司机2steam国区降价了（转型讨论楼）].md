@@ -6292,3 +6292,18 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DawnGuardian  
+##### 2087#       发表于 2024-3-20 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">这飞龙的秒**ug也太恶心了，根本没法打
+
+*****
+
+####  琦乐无穷  
+##### 2088#       发表于 2024-3-20 23:32
+
+电弧打飞龙挺爽的，就是爽两下就给闪退了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

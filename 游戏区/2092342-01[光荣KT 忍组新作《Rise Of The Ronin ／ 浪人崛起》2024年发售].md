@@ -7095,3 +7095,27 @@ Openning→www.bilibili.com/video/BV1EJ4m1872t</blockquote>
 浪人的官设男女主是不是兄妹关系？看开头动画还有宣传片后面还会有男女主的决斗 ...</blockquote>
 官设就是村子被屠就剩这俩人跑出来了，具体关系没说
 
+
+*****
+
+####  byisme001  
+##### 1383#       发表于 2024-3-20 12:58
+
+看奖杯能让高杉 总悟 辰马活，有if路线吗 那不能再造幕府吗
+
+*****
+
+####  Gigax  
+##### 1384#       发表于 2024-3-20 12:59
+
+桂小五郎boss战，这群偷跑的真没一个打得凑合的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu](https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu)
+
+
+*****
+
+####  uponutopia  
+##### 1385#       发表于 2024-3-20 13:06
+
+先过200W吧，说实话我觉得150W都费劲<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

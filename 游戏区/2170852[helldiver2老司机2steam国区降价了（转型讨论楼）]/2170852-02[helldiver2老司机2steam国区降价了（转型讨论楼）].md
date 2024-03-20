@@ -5928,3 +5928,14 @@ dps和击杀效率太低了，除非配个电弧清场，否则带这枪多少�
 
 自从被队友的电弧枪秒了之后我出门都穿绝缘甲了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">友伤6000谁吃得消啊。
 
+
+*****
+
+####  BadYanL  
+##### 2051#       发表于 2024-3-20 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310381&amp;ptid=2170852" target="_blank">pmoe 发表于 2024-3-20 14:04</a>
+
+自从被队友的电弧枪秒了之后我出门都穿绝缘甲了友伤6000谁吃得消啊。 ...</blockquote>
+打不过就加入，又能赚债卷钱了，箭头计划通。
+

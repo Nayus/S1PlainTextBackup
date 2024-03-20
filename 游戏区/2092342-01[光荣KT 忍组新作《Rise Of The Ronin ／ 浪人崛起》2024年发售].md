@@ -7292,3 +7292,14 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 
 看最近的偷跑这些人类敌人除了长得像个人之外跟妖怪有什么区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeelolo  
+##### 1404#       发表于 2024-3-20 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310303&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 13:55</a>
+
+看最近的偷跑这些人类敌人除了长得像个人之外跟妖怪有什么区别吗</blockquote>
+人体，很奇妙吧
+

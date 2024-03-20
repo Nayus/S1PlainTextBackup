@@ -3041,3 +3041,13 @@ Data Lost
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">虽然知道是假的但看到大小碧池和色茄子死在面前给玩家（咕嗒）的冲击还是很大啊....
 
+
+*****
+
+####  森兰丸  
+##### 11682#       发表于 2024-3-21 07:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">草这尼托内战打的我恶心死了.....又是不能放宝具又是不能用技能要么就是不能杀对面的小怪
+
+想起来2.7打勇者王明明也是尼托给我方上BUFF结果也是一堆限制....故意的吧
+

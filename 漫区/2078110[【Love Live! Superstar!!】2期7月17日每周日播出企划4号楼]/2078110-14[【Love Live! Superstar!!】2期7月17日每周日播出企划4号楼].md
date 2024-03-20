@@ -1164,3 +1164,13 @@ K组输麻，运营要把她们当弃子不妨直说<img src="https://static.sar
 
 结那：“关于我饰角是个奥地利人但我却负责日语这件事”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 19826#       发表于 2024-3-20 21:08
+
+只希望对得起万花筒这个名字
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

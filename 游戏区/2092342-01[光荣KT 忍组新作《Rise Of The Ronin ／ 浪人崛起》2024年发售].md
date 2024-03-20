@@ -7021,3 +7021,30 @@ npc能砍，但是只会倒地，无法杀死？
 
 500万的大目标还没达成，就已经开始考虑千万的小目标了，我儿壮志可嘉啊
 
+
+*****
+
+####  Yeelolo  
+##### 1375#       发表于 2024-3-20 12:07
+
+如果忍组能把开放世界和画面做到刺客信条的水平，我觉得还是有可能一千万的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈词与芍药  
+##### 1376#       发表于 2024-3-20 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64306291&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-19 20:19</a>
+Openning→www.bilibili.com/video/BV1EJ4m1872t</blockquote>
+前面的段落有点缺失，我等会换下源
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  xzzfft  
+##### 1377#       发表于 2024-3-20 12:14
+
+奖杯出了 还能改变历史人物命运，原来是维新之岚精神续作
+

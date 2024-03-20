@@ -6831,3 +6831,26 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 你都后传了是给游戏宣传还是给游戏送终的
 
+
+*****
+
+####  aptx8285144  
+##### 4431#       发表于 2024-3-20 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310706&amp;ptid=2092345" target="_blank">Anatoly 发表于 2024-3-20 14:34</a>
+
+不至于吧，都整了个这么烂活之后还得死人？
+
+你都后传了是给游戏宣传还是给游戏送终的 ...</blockquote>
+小概率吧，不过老海头死倒是喜闻乐见<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 4432#       发表于 2024-3-20 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64299257&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-3-19 14:06</a>
+
+为啥boss没有ai辅助都这么能打，机体性能甩开其他人几条街，太怪了</blockquote>
+从彼方震惊时他的机体闪烁情况看，老海头搞不好把智能安装到自己的机体上
+

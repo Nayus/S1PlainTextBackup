@@ -2106,3 +2106,98 @@ TMD终突+30一共要10+15*3=55个新材料
 （其实是神祖
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 11596#       发表于 2024-3-20 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两发十连 毛都没出 滚了
+
+*****
+
+####  angelooo  
+##### 11597#       发表于 2024-3-20 19:28
+
+老男人才四星，太没排面了23333
+
+
+*****
+
+####  exiaexa  
+##### 11598#       发表于 2024-3-20 19:32
+
+不如说这次看起来最有强度的居然是黑玛丽
+
+前置诅咒+30arts30特攻20宝威+30np+20缓回
+
+伯爵要不是有个50np，那妥妥的绿30待遇
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11599#       发表于 2024-3-20 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314354&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-3-20 19:27</a>
+
+两发十连 毛都没出 滚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧。。。？    啊 看错了 打扰了（
+
+*****
+
+####  琴酒  
+##### 11600#       发表于 2024-3-20 19:32
+
+<img src="https://img.saraba1st.com/forum/202403/20/193206uu6my636n6nh10dh.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1275.JPG</strong> (75.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/193206bmwj70n41qw4zmw7.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1276.JPG</strong> (100.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/193207b2aupztj2nl3zy3y.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1277.JPG</strong> (134.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202403/20/193207azpgbffomngrdnen.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1278.JPG</strong> (140.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 19:32 上传
+
+
+*****
+
+####  alucardcz  
+##### 11601#       发表于 2024-3-20 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314403&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-20 19:32</a>
+
+不如说这次看起来最有强度的居然是黑玛丽
+
+前置诅咒+30arts30特攻20宝威+30np+20缓回</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打的过仇阶那几个蓝群吗（
+
+*****
+
+####  cenhr  
+##### 11602#       发表于 2024-3-20 19:34
+
+伯爵帅爆了，好不好用都要抽一个当收场，另外海蒂美如画。老骗子就算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2656,3 +2656,11 @@ syl 伯爵（四星）正脸真的好宽啊，为什么不让画海报的来画�
 
 赶紧做成技能吧
 
+
+*****
+
+####  v22325  
+##### 11644#       发表于 2024-3-20 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又和武藏一样撕卡了？不会撕的黑贞吧？我到现在还没抽到啊……
+

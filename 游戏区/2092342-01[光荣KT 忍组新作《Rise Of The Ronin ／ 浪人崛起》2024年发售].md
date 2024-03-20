@@ -7344,3 +7344,25 @@ https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
 
 光荣的开放世界就别想太多了 育碧罐头都差点的水平
 
+
+*****
+
+####  陈词与芍药  
+##### 1409#       发表于 2024-3-20 15:10
+
+ 本帖最后由 陈词与芍药 于 2024-3-20 03:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64310764&amp;ptid=2092342" target="_blank">Z1yu 发表于 2024-3-20 02:38</a>
+想问下，这罐头除了清据点，撸猫，小游戏外，还有什么事做吗。
+游戏的支线怎么样。 ...</blockquote>
+开传送点，支线有些可以产生和培养和同伴的bond，有些奖励还算丰厚。还有类似对马岛的解放村庄，杀完敌人解锁小村落开传送点
+同伴的bond蛮重要的，算是中强驱动吧
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  刘震云  
+##### 1410#       发表于 2024-3-20 15:12
+
+偷跑哥怎么换了个账号又开始直播了
+

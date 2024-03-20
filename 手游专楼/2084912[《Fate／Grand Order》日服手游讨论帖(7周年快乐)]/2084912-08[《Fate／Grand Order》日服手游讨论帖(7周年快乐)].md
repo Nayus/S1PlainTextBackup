@@ -2952,3 +2952,24 @@ ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没�
 
 老实说，这次没有硬塞黑贞糖感觉不错。但伯爵这老爹带儿子/女儿的努力成了全场瞩目的MVP<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 11674#       发表于 2024-3-21 00:16
+
+                            Data Lost
+
+说是撕卡也没影响大笨蛋的复刻、强化本、以及在FSR联动剧情出场。
+
+但是图鉴上缺那两块真的很难蚌。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 11675#       发表于 2024-3-21 00:18
+
+【FGO彩蛋】白贞改模后，会戳元帅眼睛：[https://www.bilibili.com/video/BV1su4m1T727](https://www.bilibili.com/video/BV1su4m1T727)
+
+螺旋社挺喜欢在奇奇怪怪的地方用心啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

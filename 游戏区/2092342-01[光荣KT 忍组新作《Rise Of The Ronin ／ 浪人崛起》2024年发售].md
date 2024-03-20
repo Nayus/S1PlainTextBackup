@@ -7924,3 +7924,39 @@ b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打</blockquo
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  duraa  
+##### 1465#       发表于 2024-3-20 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316605&amp;ptid=2092342" target="_blank">swanon 发表于 2024-3-20 23:17</a>
+浪人什么时候公布</blockquote>
+之前传是明天<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雾生司  
+##### 1466#       发表于 2024-3-20 23:22
+
+明天晚上7点解禁(大概
+
+*****
+
+####  彩虹肥宅  
+##### 1467#       发表于 2024-3-20 23:23
+
+主线那么短的吗
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  戰國卍丸  
+##### 1468#       发表于 2024-3-20 23:23
+
+ 本帖最后由 戰國卍丸 于 2024-3-20 23:25 编辑 
+
+明天11点解锁说是，群里偷跑哥说游戏就三章，玩10小时就65％的进度了到第二章中段。主线好像挺短的
+

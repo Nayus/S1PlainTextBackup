@@ -2773,3 +2773,41 @@ ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没�
 真别薅了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exalbion01  
+##### 11656#       发表于 2024-3-20 23:20
+
+看了下咕哒这快乐老家的位置，大概在驹场附近，那地方一户建大概也是要几亿日元的（
+
+*****
+
+####  exiaexa  
+##### 11657#       发表于 2024-3-20 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316518&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-20 23:07</a>
+
+这次黑贞我没啥感想，但伯爵这个对主角的照顾已经是老爹带儿子的程度了吧 ...</blockquote>
+你是第一天玩这游戏吗
+
+不开玩笑的话，伯爵从登场第一天就是立香他大哥了
+
+开玩笑的话，他从第一天开始就是亲爹
+
+谁没事儿24小时在你脑子里站岗当防火墙，还兼职打扫卫生功能的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清河子  
+##### 11658#       发表于 2024-3-20 23:23
+
+应该是合写的，有几个段落yjg味儿冲到我完全能确定绝对是她，但整体又不像完全是她写的，因为整体读感比她单担的那几章更好+有些地方排比收住了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">），我还是喜欢老版本……不知道缝了啥才画成这样，同画师疯狂堆料的蝙蝠哥我就很来电，可能还是先入为主了吧……
+
+说是这样说，到时候还是抽一下
+
+话说回来白贞改模真美啊，黑贞新cg真美啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

@@ -6141,3 +6141,21 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天轮到我发问了，胆汁喷涌虫到底在哪
 
+
+*****
+
+####  Launce  
+##### 2071#       发表于 2024-3-20 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314943&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-3-20 20:22</a>
+
+今天轮到我发问了，胆汁&amp;#x55 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是绿肥肥，黄的不算，看运气
+
+*****
+
+####  卒业之勇  
+##### 2072#       发表于 2024-3-20 20:35
+
+飞虫刮一刮披风怪就死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新以后一局完整的都没打完，一直卡
+

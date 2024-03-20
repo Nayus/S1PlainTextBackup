@@ -2994,3 +2994,14 @@ ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没�
 螺旋社挺喜欢在奇奇 ...</blockquote>
 所以，白貞何時才給強化本
 
+
+*****
+
+####  khxooo  
+##### 11678#       发表于 2024-3-21 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316633&amp;ptid=2084912" target="_blank">exalbion01 发表于 2024-3-20 23:20</a>
+
+看了下咕哒这快乐老家的位置，大概在驹场附近，那地方一户建大概也是要几亿日元的（ ...</blockquote>
+隔壁有人指出，那个位置应该是代代木公园，也就是是螺旋社所在的目黑区青叶台那里。
+

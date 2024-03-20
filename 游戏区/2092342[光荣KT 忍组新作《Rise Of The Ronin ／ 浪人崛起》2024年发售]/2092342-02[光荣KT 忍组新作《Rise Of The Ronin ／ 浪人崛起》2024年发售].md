@@ -405,3 +405,13 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  karastar  
+##### 1525#       发表于 2024-3-21 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317119&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-21 00:14</a>
+感觉欧美那边在推上骂的确实很合理 2024年卖70刀的游戏端出来这么个画面就算了,总得有点别的部分能让玩家满 ...</blockquote>
+星刃一坨都70刀，浪人不配吗。说到底纯看玩家觉得值不值不值就等打折。
+

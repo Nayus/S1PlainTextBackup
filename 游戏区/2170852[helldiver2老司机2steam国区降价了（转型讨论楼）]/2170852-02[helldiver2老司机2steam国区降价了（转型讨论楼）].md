@@ -6376,3 +6376,29 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 好像是，今天我也遇到了，不过发现下不来之后很快我就因为用电弧枪闪退了
 不知道有没有联系
 
+
+*****
+
+####  Aeons  
+##### 2096#       发表于 2024-3-21 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317557&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-3-21 01:20</a>
+好像是，今天我也遇到了，不过发现下不来之后很快我就因为用电弧枪闪退了
+不知道有没有联系 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我遇到两次，朋友遇到一次
+
+*****
+
+####  Launce  
+##### 2097#       发表于 2024-3-21 01:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次更新简直复刻春节那次的灾难性摆烂更新
+
+*****
+
+####  xinfengj  
+##### 2098#       发表于 2024-3-21 01:37
+
+<img src="https://p.sda1.dev/16/08b39aa26be4b269d46572b73bf5d74f/CMP_20240321013447568.jpg" referrerpolicy="no-referrer">
+飞龙就是特么追踪虫长翅膀，原来闪电战三个追踪虫巢穴，现在变三个飞龙巢穴。这玩应不打死伤害不高，打死之后摔下来砸人秒杀
+

@@ -1236,3 +1236,23 @@ pro提升不大的话隔代升级了。
 近几天，PS5 Pro的硬件规格已基本被曝光，知名科技硬件爆料人Kepler表示，因为CPU限制而以30帧运行的游戏， ...</blockquote>
 不过FF16、FF7RB这种主要是GPU性能受限的游戏还是受益的，哪怕不能稳60起码不会糊了
 
+
+*****
+
+####  RTLordCaptain  
+##### 301#       发表于 2024-3-20 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64312966&amp;ptid=2173605" target="_blank">省心 发表于 2024-3-20 17:21</a>
+
+所以为啥不升cpu呢</blockquote>
+考虑到每次CPU换代不换接口主板厂都要折腾BIOS，可能索尼只是想降低固件开发和配套硬件的调试难度？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟也是成本
+
+软件上的兼容成本就不太清楚了，不知道微软win或者Linux内核在CPU换代时要做多少工作，不过一般很少听说PC游戏对新CPU不兼容的（个别例子好像有比如全战但我记得是一开始不兼容大小核）
+
+*****
+
+####  盐甜葱  
+##### 302#       发表于 2024-3-20 21:58
+
+这CPU挤牙膏不会又要玩30帧定制版的游戏了吧？
+

@@ -443,3 +443,13 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 
 然而土方宇宙已经算有点上限的了，看看其他的都是些啥？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  血色秋叶  
+##### 17800#       发表于 2024-3-20 17:00
+
+真别宇宙了，通常区上限其实又不缺，2个贤者武+白虎拳就20通常上限了
+
+—— 来自 HUAWEI LIO-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

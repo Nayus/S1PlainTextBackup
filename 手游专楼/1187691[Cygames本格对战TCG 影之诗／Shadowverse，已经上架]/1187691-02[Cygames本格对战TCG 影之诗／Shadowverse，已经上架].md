@@ -101,3 +101,15 @@
 我记得说szb要出2了？ 是什么时候</blockquote>
 今夏无缝接，6、7月的事
 
+
+*****
+
+####  blue321  
+##### 1850#       发表于 2024-3-20 17:02
+
+八年的屎山代码也不好加新机制了吧？所以就干脆推翻重来加上驱赶服务器蛀虫<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+毕竟老玩家资源起码能白嫖到关服的那种（我只做日常都还有25万左右的红水足够玩大半年）。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

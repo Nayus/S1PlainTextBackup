@@ -508,3 +508,13 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 
 ● 最后，也是最重要的原话：「似乎人们只关心战斗和断肢，然而我认为最好的地方是本作的剧情。太好了以至于根本不像个Team Ninja的作品。」
 
+
+*****
+
+####  RushMove  
+##### 1535#       发表于 2024-3-21 07:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318069&amp;ptid=2092342" target="_blank">染井吉野 发表于 2024-3-21 06:45</a>
+ 一位未言明游玩难度的日本Z版偷跑玩家：  ● 只打了主线，因为从中盘开始支线和强化任务（原文是強化quest ...</blockquote>
+分数比仁王2高是剧情的原因吗？有说战斗怎么样吗？
+

@@ -2935,3 +2935,20 @@ ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没�
 原著结局就是基督山伯爵和自己的养女海黛相互表白成为恋人。</blockquote>
 你月设定海黛的确是伯爵的救赎和HE，但纪录在英灵座上的是复仇者时期的他，所以才没有一起下来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11672#       发表于 2024-3-21 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316912&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-3-20 23:52</a>
+后续还有啥联动？</blockquote>
+这次没有说比斯特也没有顺带出珀尔修斯，合理猜测FP联动打赢复活赛了
+
+*****
+
+####  cenhr  
+##### 11673#       发表于 2024-3-21 00:09
+
+老实说，这次没有硬塞黑贞糖感觉不错。但伯爵这老爹带儿子/女儿的努力成了全场瞩目的MVP<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -7035,3 +7035,17 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 最后60分打了快二十把，每次赢了下一把就要开局光蝇什么的阴间刷法<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 康完正好开活动，泥头车创了个爽<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 3685#       发表于 2024-3-21 00:04
+
+活动太爽了，不过上2000分有点艰难，
+野人排到好多不会玩，
+搁那儿扔粘雷、攒大、放跳点啥的，
+这些花里胡哨的都不如直接平推碰碰车好使，
+撞就完事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

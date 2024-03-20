@@ -2896,3 +2896,42 @@ ORT不是打爆了就放出来了么，剧情撕卡的问题是以后活动没�
 
 合理怀疑日本系从者比例减少有利于遏制阿光病情<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 11668#       发表于 2024-3-20 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316518&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-20 23:07</a>
+
+这次黑贞我没啥感想，但伯爵这个对主角的照顾已经是老爹带儿子的程度了吧 ...</blockquote>
+原著结局就是基督山伯爵和自己的养女海黛相互表白成为恋人。
+
+*****
+
+####  洛克萨斯  
+##### 11669#       发表于 2024-3-20 23:56
+
+你月老男人的人设有点普通了..............<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不如gbf那个有意思
+
+*****
+
+####  khxooo  
+##### 11670#       发表于 2024-3-20 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316912&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-3-20 23:52</a>
+
+后续还有啥联动？</blockquote>
+4月黄金周9成有新联动。原本以为奏章是要拖到黄金周来实装了，那么现在奏章提前实装，后续黄金周怎么过？只有拿出新联动了。当然这只是我的推测，我再修改一下发言。
+
+
+*****
+
+####  cenhr  
+##### 11671#       发表于 2024-3-21 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316944&amp;ptid=2084912" target="_blank">الطائر 发表于 2024-3-20 23:56</a>
+
+原著结局就是基督山伯爵和自己的养女海黛相互表白成为恋人。</blockquote>
+你月设定海黛的确是伯爵的救赎和HE，但纪录在英灵座上的是复仇者时期的他，所以才没有一起下来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

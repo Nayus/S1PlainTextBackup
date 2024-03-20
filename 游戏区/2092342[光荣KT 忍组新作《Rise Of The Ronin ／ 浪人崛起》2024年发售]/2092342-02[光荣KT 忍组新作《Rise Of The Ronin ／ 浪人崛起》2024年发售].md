@@ -136,3 +136,64 @@ ps5的时间统计有误差另外也有延时，你连续打几个小时退了�
 
 实体版要下周才发货，我好急啊<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rainsheep  
+##### 1498#       发表于 2024-3-20 23:58
+
+偷跑哥20号零点多发的游戏开场视频，晚上10点左右评论区里说打完了，主线确实不算长。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Yeelolo  
+##### 1499#       发表于 2024-3-20 23:59
+
+育碧三部曲那是强制你做支线，起源奥德赛都是这样<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不做支线等级不够，英灵殿比较重量级，英灵殿主线确实很长，本体我玩了80小时，主线注水太厉害。
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桥洞底下盖小被  
+##### 1500#       发表于 2024-3-21 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉你楼嘴上好像无所谓，实际上还是期望很高啊
+
+
+*****
+
+####  垃圾网站上  
+##### 1501#       发表于 2024-3-21 00:04
+
+ 本帖最后由 垃圾网站上 于 2024-3-21 00:05 编辑 
+
+70刀大作期望20小时主线也没啥问题吧，10小时那是relink等级。。。除非你能做出3套阵营流程和结局，否则我还是会失望的
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Gigax  
+##### 1502#       发表于 2024-3-21 00:05
+
+我的期望就是大地图战斗密度足够大一周目爽玩50小时，对主线的期望是比仁王2好就算成功，对支线的期望是上了宣传图的12个人有如龙78友情剧场水平的完整故事线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+糟了，好像越说越觉得达不到
+
+*****
+
+####  盐甜葱  
+##### 1503#       发表于 2024-3-21 00:07
+
+希望明天开分和对马岛差不多<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 1504#       发表于 2024-3-21 00:08
+
+70刀大作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

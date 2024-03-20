@@ -6410,3 +6410,13 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 飞龙尸体秒人真的弱智，巢还硬
 
+
+*****
+
+####  Sayuki1025  
+##### 2100#       发表于 2024-3-21 06:19
+
+<img src="https://p.sda1.dev/16/3f0fdf650c532a98b5a81c97c2cde4cd/b17eca8065380cd78bb49ed6e744ad3459828166.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

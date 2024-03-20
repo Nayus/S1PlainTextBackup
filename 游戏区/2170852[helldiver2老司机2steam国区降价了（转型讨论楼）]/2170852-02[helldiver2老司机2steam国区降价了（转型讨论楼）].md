@@ -6102,3 +6102,13 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 新补丁之后疯狂闪退 没法玩了
 
+
+*****
+
+####  Launce  
+##### 2067#       发表于 2024-3-20 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新补丁闪退大逃杀开始了吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

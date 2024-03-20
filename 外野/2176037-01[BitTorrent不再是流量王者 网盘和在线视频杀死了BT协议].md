@@ -1295,3 +1295,11 @@ github.com/anacrolix/torrent 和 dt/torrent/v1.02</blockquote>
 人家不是闲的蛋疼 见 https://github.com/anacrolix/torrent/discussions/891 最后的回复和 https://www. ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">贱不贱呐 太贱了
 
+
+*****
+
+####  hunterkiller  
+##### 132#       发表于 2024-3-20 12:00
+
+直接比较现在和20年前没有意义。10年前的那一波转折发展，b站和百度两大“恶人”干的事情你不能跳过不提。
+

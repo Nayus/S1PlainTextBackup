@@ -6921,3 +6921,15 @@ Openning→[www.bilibili.com/video/BV1EJ4m1872t](http://www.bilibili.com/video/B
 最后一句点出了，垃圾画面！连日媒都嫌弃。PS3早期级别垃圾画面，出在PS5上属于刷新下限。 ...</blockquote>
 高情商 立体浮世绘
 
+
+*****
+
+####  刘震云  
+##### 1364#       发表于 2024-3-20 09:15
+
+ 本帖最后由 刘震云 于 2024-3-20 09:17 编辑 
+
+[https://m.twitch.tv/aktive_2](https://m.twitch.tv/aktive_2)
+
+偷跑哥睡醒了，又来直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播画质提升了，注意流量
+

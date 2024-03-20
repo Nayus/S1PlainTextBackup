@@ -11649,3 +11649,11 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 是不是得谢谢至少没把生日剧情吃掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14322#       发表于 2024-3-20 09:22
+
+等明年鸡实装了两个新团十个人各补一张生日差不多了，新公司这么点人连活动都差点出不完，哪有一年多出几十张卡的力气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

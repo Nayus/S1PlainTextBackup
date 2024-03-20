@@ -247,3 +247,11 @@ ps5的时间统计有误差另外也有延时，你连续打几个小时退了�
 
 当然不可能期待忍者组支线的设计了，因缘任务有剧情就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 1511#       发表于 2024-3-21 00:27
+
+星刃也是70刀啊，给浪人掏70刀总比给星刃掏70刀看起来性价比高一点<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">也许次世代游戏一致定价70本身就是个错误
+

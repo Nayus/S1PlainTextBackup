@@ -11637,3 +11637,15 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这邪神表情到底有什么魔力让信泽一直画这种
 
+
+*****
+
+####  PDQ4  
+##### 14321#       发表于 2024-3-20 08:26
+
+查了下才发现今年还没有生日卡
+
+人家别的游戏都是嫌卡出得不够多，进入五星时代你wsd是一张新卡都不给啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是不是得谢谢至少没把生日剧情吃掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

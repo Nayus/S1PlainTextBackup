@@ -7519,3 +7519,30 @@ https://www.famitsu.com/news/202305/29303505.html
 
 —— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黑修士  
+##### 1427#       发表于 2024-3-20 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64312883&amp;ptid=2092342" target="_blank">你好s1 发表于 2024-3-20 17:15</a>
+
+那还说500w ip是2024年发售呢，你信现在光荣还有作品没公布，还能2024发售？？？
+
+—— 来自 realme RMX3 ...</blockquote>
+几年前襟川阳一在接受日媒采访还时表示，500W神秘大作已进入开发最终阶段呢
+
+500W销量新IP就当成给股东打鸡血的口号吧，明日复明日，哪个卖到就是哪个
+
+*****
+
+####  Gigax  
+##### 1428#       发表于 2024-3-20 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64312883&amp;ptid=2092342" target="_blank">你好s1 发表于 2024-3-20 17:15</a>
+
+那还说500w ip是2024年发售呢，你信现在光荣还有作品没公布，还能2024发售？？？
+
+—— 来自 realme RMX3 ...</blockquote>
+不管光荣还有没有新游戏现在浪人崛起都不是500万ip，最开始提出500w的时候还说21年发布呢，当然以官方最近的消息为准了
+

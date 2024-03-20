@@ -453,3 +453,13 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 
 —— 来自 HUAWEI LIO-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Sylpheed  
+##### 17801#       发表于 2024-3-20 17:23
+
+通关极法的纯正免费土方也是一盘子飞哥斧和不吃加护的武器，传统方阵早似了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

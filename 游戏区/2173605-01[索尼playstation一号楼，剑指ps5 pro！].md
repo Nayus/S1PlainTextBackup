@@ -1283,3 +1283,45 @@ pc上有什么游戏是zen2跑不了60帧的吗？
 pc上有什么游戏是zen2跑不了60帧的吗？</blockquote>
 博启用5700x，第三章帧数也会偶尔下探到50，一二章保底都有80，这还是zen3。
 
+
+*****
+
+####  七草真由美  
+##### 306#       发表于 2024-3-20 22:39
+
+至少焊个7500f上去吧，不然也太落后了。
+
+—— 来自 HUAWEI MRR-W29, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ultraseven  
+##### 307#       发表于 2024-3-20 22:40
+
+PS5上30帧的<strong>新</strong>游戏现在就哥谭骑士、灵媒、采石场惊魂、超自然车旅、龙之信条2这几个吧，全平台再加上一个星空，其实这世代目前为止主机上特别吃CPU的游戏很少
+
+*****
+
+####  ultraseven  
+##### 308#       发表于 2024-3-20 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316171&amp;ptid=2173605" target="_blank">垃圾网站上 发表于 2024-3-20 22:25</a>
+
+好多人是真傻还是假傻，这里说帧数30都是指分辨率4k下的，pc上多少人玩的其实是1080p和2k
+
+—— 来自 nubia ...</blockquote>
+主机上大作也没几个真4K的啊。就是不少60帧模式的2k/1080P都是FSR来的
+
+
+*****
+
+####  RushMove  
+##### 309#       发表于 2024-3-20 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316171&amp;ptid=2173605" target="_blank">垃圾网站上 发表于 2024-3-20 22:25</a>
+
+好多人是真傻还是假傻，这里说帧数30都是指分辨率4k下的，pc上多少人玩的其实是1080p和2k
+
+—— 来自 nubia ...</blockquote>
+然而增加分辨率几乎不会影响cpu的负担，1080p能跑60那4k大概率也能
+

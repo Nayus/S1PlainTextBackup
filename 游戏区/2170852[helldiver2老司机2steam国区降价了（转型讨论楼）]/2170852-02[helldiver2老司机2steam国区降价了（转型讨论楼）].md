@@ -6238,3 +6238,13 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 飞龙窝必须呼叫空袭或者地狱火才能炸掉
 
+
+*****
+
+####  airshit  
+##### 2082#       发表于 2024-3-20 22:38
+
+他妈的老是打到最后才掉，每次都是捡了二十多个样本，他妈的全没了<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

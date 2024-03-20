@@ -7002,3 +7002,15 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 电信师傅说我们这边因为是老小区，光纤都是从客厅空调外机口飞线入户的，没法移到书房，已经下单10米超六类 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">其实电脑加速没比网线差多少，除非真的不爱开电脑或者没电脑不然我觉得电脑加速还挺好用的。
 
+
+*****
+
+####  罗克萨斯  
+##### 3682#       发表于 2024-3-20 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316092&amp;ptid=2150634" target="_blank">晴岚 发表于 2024-3-20 22:16</a>
+其实电脑加速没比网线差多少，除非真的不爱开电脑或者没电脑不然我觉得电脑加速还挺好用的。 ...</blockquote>
+电脑加速时间一长容易失效需要重新切换节点，而且偶尔会和梯子打架到需要重启电脑的地步。路由器能同时给NS和PS5加速，切换节点直接用手机就行，也没有PC那么复杂的运行环境，可以长期有效运行，能直连网线的话确实是玩家的最优解
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

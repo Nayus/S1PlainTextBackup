@@ -8024,3 +8024,37 @@ b站又有人发了个严重剧透的偷跑啊，什么双胞胎对打</blockquo
 
 只跑主线二十来个小时也差不多吧，就这两天偷跑哥的直播横滨这张图挺大的，就看后面江户和京都两张图是什么体量了
 
+
+*****
+
+####  ranapocket  
+##### 1477#       发表于 2024-3-20 23:38
+
+如果真的只有十几小时这体量看不出来是倾尽全力做的，光荣下一个500万ip在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑酒杯  
+##### 1478#       发表于 2024-3-20 23:40
+
+可能是因为题材以及全平台因素，卧龙发售前热度比浪人高太多了
+
+*****
+
+####  SergeGlenn  
+##### 1479#       发表于 2024-3-20 23:41
+
+其实仁王的gameplay走低难度和高难度时间差别不会小吧，反正最终幻想仁王感觉是这样，再就是这回支线的数量和质量什么样了
+
+*****
+
+####  Gigax  
+##### 1480#       发表于 2024-3-20 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316801&amp;ptid=2092342" target="_blank">黑酒杯 发表于 2024-3-20 23:40</a>
+
+可能是因为题材以及全平台因素，卧龙发售前热度比浪人高太多了</blockquote>
+因为卧龙国内是交给杉果宣发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

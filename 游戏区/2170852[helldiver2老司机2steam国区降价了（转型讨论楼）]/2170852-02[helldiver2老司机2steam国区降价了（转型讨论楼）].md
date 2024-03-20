@@ -6307,3 +6307,42 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 电弧打飞龙挺爽的，就是爽两下就给闪退了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 2089#       发表于 2024-3-20 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64315083&amp;ptid=2170852" target="_blank">卒业之勇 发表于 2024-3-20 20:35</a>
+
+飞虫刮一刮披风怪就死了更新以后一局完整的都没打完，一直卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">头盔护甲还没修好 飞龙过来一下一爆头 可不是秒
+
+*****
+
+####  airshit  
+##### 2090#       发表于 2024-3-20 23:40
+
+队友带着样本直接退出是不是就没了
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">最后这个人身上带着十几个样本掉线，结算的时候给我看麻了
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 2091#       发表于 2024-3-20 23:42
+
+退出身上东西会掉地上的 你去捡回来就行
+
+*****
+
+####  rainknine  
+##### 2092#       发表于 2024-3-20 23:45
+
+ 本帖最后由 rainknine 于 2024-3-20 23:47 编辑 
+
+重机枪塔可以打飞龙巢，大概一百发子弹一个巢…
+两发筒子也行
+

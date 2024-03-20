@@ -1116,3 +1116,20 @@ cpu当然是ps6再升级<img src="https://static.saraba1st.com/image/smiley/face
 
 到时候港日会难买吗，不至于和ps5一样缺货吧
 
+
+*****
+
+####  椎名mahuyo  
+##### 289#       发表于 2024-3-20 17:48
+
+最他么气的就是VRR，说是都支持了，结果新出游戏全他么支持不好，看过来看过去支持完美的就索尼几个自家的
+
+*****
+
+####  byisme001  
+##### 290#       发表于 2024-3-20 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313312&amp;ptid=2173605" target="_blank">椎名mahuyo 发表于 2024-3-20 17:48</a>
+最他么气的就是VRR，说是都支持了，结果新出游戏全他么支持不好，看过来看过去支持完美的就索尼几个自家的 ...</blockquote>
+ps5不支持系统层级的低帧率补偿，除非游戏自己优化，否则低于48帧vrr屁用没有
+

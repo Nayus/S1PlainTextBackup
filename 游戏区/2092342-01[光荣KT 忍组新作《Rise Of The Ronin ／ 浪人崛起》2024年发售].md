@@ -7608,3 +7608,51 @@ https://www.famitsu.com/news/202305/29303505.html
 五百万新ip光荣最早2018年说出来的，这符合泄露的ppt。期间从2020发售到2022再到2024不断推迟，这也符合 ...</blockquote>
 [https://business.sohu.com/a/669870711_100274826](https://business.sohu.com/a/669870711_100274826)
 
+
+*****
+
+####  Gigax  
+##### 1434#       发表于 2024-3-20 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算没有这个财报鲤师傅采访也明确说了浪人崛起的目标是200w销量，光荣社长的话难道还不比望月崇和离职了几年的前员工流出的ppt可信吗
+
+*****
+
+####  你好s1  
+##### 1435#       发表于 2024-3-20 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313243&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 17:42</a>
+https://business.sohu.com/a/669870711_100274826</blockquote>
+  行吧，我信他个鬼，2024年推出的500w ip，到今天还一点新闻没有。
+
+  这个问题看光荣下次财报还会不会提500万ip又推迟了就知道了，不争了
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  woaimiyabi  
+##### 1436#       发表于 2024-3-20 17:51
+
+大家都不看好这游戏 但我有点逆反心理，万一这游戏会意外的不错 分也比隔壁龙信2高，然后再来马后炮和现在两款游戏的看好程度形成鲜明的对比 就挺有乐子。
+
+
+*****
+
+####  你好s1  
+##### 1437#       发表于 2024-3-20 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313320&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 17:49</a>
+
+就算没有这个财报鲤师傅采访也明确说了浪人崛起的目标是200w销量，光荣社长的话难道还不比望月崇和 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/20/175404eqlikaekv3gkqxll.png" referrerpolicy="no-referrer">
+
+<strong>22.png</strong> (142.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-20 17:54 上传
+
+  这样不是更符合？
+

@@ -11699,3 +11699,14 @@ supa love这帮逼要想写这种东西抄tricot就完事了，还更好听更�
 <img src="https://p.sda1.dev/16/7ef8b09fd77d0cde7693ccea3236d1e4/59B5F3BA5C9EAE997AB3AA9F1618F858.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/0f14b7e44c2e9a6f4fa830b4d0ce1d4d/CMP_20240320153430666.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 14327#       发表于 2024-3-20 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64311665&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-3-20 15:35</a>
+
+世界观</blockquote>
+就，也不是不行……
+

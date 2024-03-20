@@ -1102,3 +1102,24 @@ sma不重视也不签唱片公司也就那样了
 又期待又害怕轮到可可style的时候会是啥情况。。但最快也是明 ...</blockquote>
 3人也来首中日英三语混合的曲子吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊卡石  
+##### 19820#       发表于 2024-3-20 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305347&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-3-20 00:25</a>
+3人也来首中日英三语混合的曲子吧</blockquote>
+中日德吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ruffian  
+##### 19821#       发表于 2024-3-20 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313293&amp;ptid=2078110" target="_blank">伊卡石 发表于 2024-03-20 17:46:26</a>
+中日德吧</blockquote>结那真的可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -7119,3 +7119,43 @@ Openning→www.bilibili.com/video/BV1EJ4m1872t</blockquote>
 
 先过200W吧，说实话我觉得150W都费劲<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SergeGlenn  
+##### 1386#       发表于 2024-3-20 13:10
+
+其实我觉的500万也不是很夸张的目标，尤其你把这个目标当成生命周期销量来看，一段时间后这游戏应该还会上PC会打折，生命周期累积五百万对开放世界游戏来说不算夸张的预期。主要的阻碍还是忍组画面上到不了第一梯队，不然搞个差不多的故事忽悠个500万问题真不大
+
+*****
+
+####  陈词与芍药  
+##### 1387#       发表于 2024-3-20 13:12
+
+如果是ps5独占的现在，500w简直天方夜谭，忍者组的罐头就是低配版对马岛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  气温而人  
+##### 1388#       发表于 2024-3-20 13:15
+
+这卖相，加上PS5独占，目前能卖200w就开香槟了
+
+1000w怎么也得上PC天天打骨折才有那么一丝可能
+
+*****
+
+####  canti  
+##### 1389#       发表于 2024-3-20 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64309615&amp;ptid=2092342" target="_blank">Gigax 发表于 2024-3-20 12:59</a>
+桂小五郎boss战，这群偷跑的真没一个打得凑合的
+
+https://youtu.be/oLOkTiNuw2A?si=hHSByhHyKvYD1BKu ...</blockquote>
+这个主角脸捏的好好看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

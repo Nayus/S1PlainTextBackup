@@ -3186,3 +3186,14 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 前两个boss这段流程限制只能用初始武器打起来还是挺有压力的，一到开放世界可以拣装备就变割草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nanoeast  
+##### 1820#       发表于 2024-3-22 03:56
+
+玩了2小时感觉战斗没有仁王那么爽 但还是可以的 振刀还没习惯
+另外画面也明亮了很多好评 性能模式很丝滑
+
+—— 来自 vivo V2163A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

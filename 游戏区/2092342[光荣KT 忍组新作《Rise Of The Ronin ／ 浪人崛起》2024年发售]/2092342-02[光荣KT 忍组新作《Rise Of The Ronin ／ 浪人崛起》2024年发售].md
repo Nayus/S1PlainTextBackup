@@ -2334,3 +2334,23 @@ fsr是粉丝向游戏，首周核心粉丝贡献的销量多
 
 很明显忍者一直觉得卖得不好是因为战斗系统太复杂。但实际上是除了战斗其他没一样做好的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Edvinno  
+##### 1729#       发表于 2024-3-21 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">对我来说这结局还可以，先玩玩隔壁，这边回头能玩上值崩十八手盘，牢荣多打几份外包工还债，双赢，就是苦了高价预购的朋友
+
+*****
+
+####  nagitoY  
+##### 1730#       发表于 2024-3-21 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64326743&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-21 20:12</a>
+
+UCG的评测说得委婉 8/10
+
+https://www.bilibili.com/video/BV1Mm411d7MJ</blockquote>
+看了下，积极探索就会导致主线中等级碾压，数值没调整好？
+

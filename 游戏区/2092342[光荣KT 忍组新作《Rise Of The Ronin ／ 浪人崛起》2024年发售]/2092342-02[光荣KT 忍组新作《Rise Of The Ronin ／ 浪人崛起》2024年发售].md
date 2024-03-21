@@ -3205,3 +3205,11 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 不知道是不是港服有bug，我预购奖励呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  banjia0815  
+##### 1822#       发表于 2024-3-22 04:36
+
+特典得解锁据点小屋才给，大概开放世界主线第一个可以摇人的关卡打完后，然后几个非战斗剧情后就解锁了
+

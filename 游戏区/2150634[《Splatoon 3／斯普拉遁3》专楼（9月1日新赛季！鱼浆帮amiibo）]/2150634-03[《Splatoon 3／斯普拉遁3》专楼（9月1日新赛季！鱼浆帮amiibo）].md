@@ -7205,3 +7205,18 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  炫夜鳞  
+##### 3700#       发表于 2024-3-22 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64326253&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2024-3-21 19:36</a>
+
+鲑坝也给我一种无论什么武器涨潮都会失控的感觉
+
+本来觉得这次配置还行，但是没时间打挺可惜的，但是最后尾 ...</blockquote>
+其实是打晚了，这期武器可以说是非常顺手了。唯一问题就是感觉打的人非常少，我刚上八百就开打max了。越晚水平下降越厉害，所以难图还是得有时间就尽快康比较好。
+
+另外鲑坝满潮还是得靠大，w3有留大还好，w1就非常头疼了，稍有犹豫就没有机会了，大消耗过多也很难保证剩下两wave的通过率，没有送分局就只能靠水平硬抗了，更不用说来点阴间组合了
+

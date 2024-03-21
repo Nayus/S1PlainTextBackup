@@ -3240,3 +3240,28 @@ Data Lost
 打完以后想了想昨晚的回旋镖，觉得隔壁更傻逼了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11694#       发表于 2024-3-21 12:10
+
+活動還未搬完，先清了一半東西後才打新章
+
+*****
+
+####  cenhr  
+##### 11695#       发表于 2024-3-21 12:11
+
+ 本帖最后由 cenhr 于 2024-3-21 12:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64320928&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-21 11:58</a>
+
+终于看完了，总的来说比意义不明的奏章I强太多了，该交代的都有交代，该填的也填的很好，前提是要扛过一堆 ...</blockquote>
+主要是伯爵一直高光，所以黑贞反而感觉不到什么
+
+最后退队更是整个复仇者联盟，黑贞存在感更弱化
+
+不过这次如果是樱井写，那么水平真的在线，还在乎不在乎ML是SB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+礼装方面，情人节送的那个大王礼装也可以，不过因为相伴的是开战时50%NP充满，可能比武藏和摩根母女的差
+

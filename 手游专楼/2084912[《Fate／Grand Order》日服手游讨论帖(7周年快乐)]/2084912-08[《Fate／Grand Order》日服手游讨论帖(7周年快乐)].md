@@ -3350,3 +3350,13 @@ SMT或persona的味道很重<img src="https://static.saraba1st.com/image/smiley/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一关就纯卖家骗局 助战伯爵一个宝具轰出350W+伤害
 
+
+*****
+
+####  winda  
+##### 11703#       发表于 2024-3-21 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316946&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-3-20 23:56</a>
+你月老男人的人设有点普通了..............真不如gbf那个有意思</blockquote>
+隔壁风格的人设法特里已经有弗朗所瓦占坑了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这回只能往这方向出了
+

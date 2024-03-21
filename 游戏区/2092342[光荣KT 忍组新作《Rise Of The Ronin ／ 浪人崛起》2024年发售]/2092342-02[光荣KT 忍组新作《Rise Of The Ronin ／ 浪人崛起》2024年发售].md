@@ -2882,3 +2882,11 @@ PS5版500万多少有点不可能了<img src="https://static.saraba1st.com/image
 
 我觉得200万都悬，除非正式版口碑大爆（这个更不可能了）
 
+
+*****
+
+####  Horusddt  
+##### 1787#       发表于 2024-3-22 00:40
+
+这个捏脸怎么感觉变差了，怎么捏怎么难看<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+

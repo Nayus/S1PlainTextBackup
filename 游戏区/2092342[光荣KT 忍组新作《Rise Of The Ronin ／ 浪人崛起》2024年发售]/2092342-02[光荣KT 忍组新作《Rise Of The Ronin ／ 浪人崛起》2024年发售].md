@@ -589,3 +589,13 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 
 我一直觉得仁王的过场动画是被低估的，演出非常讲究有意境和美感。2我觉得剧情唯一称得上问题的部分就在本能寺，或者说猴子黑化问题，编剧不敢把猴子写成纯黑所以只能让明智光秀智商下线硬接天海1代的叙述。
 
+
+*****
+
+####  ranapocket  
+##### 1543#       发表于 2024-3-21 08:25
+
+剧情好就安心了
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

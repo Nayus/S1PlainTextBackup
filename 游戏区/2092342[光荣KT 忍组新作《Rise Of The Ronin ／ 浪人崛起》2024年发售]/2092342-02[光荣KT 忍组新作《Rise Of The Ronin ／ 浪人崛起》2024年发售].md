@@ -1048,3 +1048,23 @@ ACV还是手感太差了，英国风景差又没有奇观，主线又臭又长�
 
 反正对马岛我能打通，ACV我打折入了黄金版就打了个序章就不想玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霖岚_  
+##### 1585#       发表于 2024-3-21 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64320532&amp;ptid=2092342" target="_blank">kemyes 发表于 2024-3-21 11:26</a>
+
+多用用妖怪技衔接连招，妖怪技能兼具打断、上异常、打精力条等功能，仁王2的核心就是削精力条/妖 ...</blockquote>
+妖技很多时候都是进常暗了才记起来有这玩意，而且通常都是锤子复读（，这点确实是我不好
+
+其实最主要还是觉得ACT塞进个耐力真的好麻烦，在打连招时刻需要考虑立回+战技/妖技衔接+架势+残心，社畜上一天班后打游戏只想脑袋放空了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寂长无星夜  
+##### 1586#       发表于 2024-3-21 11:38
+
+对马岛本来没抱什么期待结果初见还挺惊艳，美术演出氛围战斗都很棒，刺客就是腻中腻买都不想买
+

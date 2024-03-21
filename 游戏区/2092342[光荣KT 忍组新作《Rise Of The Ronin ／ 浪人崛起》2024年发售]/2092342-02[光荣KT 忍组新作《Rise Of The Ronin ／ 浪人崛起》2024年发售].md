@@ -1935,3 +1935,102 @@ good enough for PlayStation exclusive
 
 看了些媒体的评测，感觉从卧龙到浪人崛起，忍者组似乎一直在反思之前系统是不是做的太深了？
 
+
+*****
+
+####  Horusddt  
+##### 1683#       发表于 2024-3-21 19:39
+
+越简化越卖不过仁王，怎么回事呢
+
+*****
+
+####  pf67  
+##### 1684#       发表于 2024-3-21 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64228282&amp;ptid=2092342" target="_blank">pf67 发表于 2024-3-12 12:39</a>
+
+又到了发售前惯例环节：先喷媒体不专业
+
+—— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+只能说啥，历史会重演，甚至会简单的重复....
+
+泥潭专楼里这个现象实在是太典了
+
+*****
+
+####  zid99825  
+##### 1685#       发表于 2024-3-21 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64326113&amp;ptid=2092342" target="_blank">FROM-SOFTWARE 发表于 2024-3-21 19:27</a>
+我在这看狗蛋，说了句“我看看sony的评测指南”，原来现在游戏都有官方的评测指南了？ ...</blockquote>
+只要是索尼送测的都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于其他家看吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  无辄辄  
+##### 1686#       发表于 2024-3-21 19:41
+
+泥潭又把大哥吹死了，以后对泥潭的售前评价先质疑再质疑。
+
+*****
+
+####  病態極端  
+##### 1687#       发表于 2024-3-21 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64326297&amp;ptid=2092342" target="_blank">pf67 发表于 2024-3-21 19:40</a>
+
+只能说啥，历史会重演，甚至会简单的重复....
+
+泥潭专楼里这个现象实在是太典了 ...</blockquote>
+有一說一，能說出一鍵戰鬥的媒體就是不會玩。
+
+*****
+
+####  icylight  
+##### 1688#       发表于 2024-3-21 19:42
+
+我在此预测下个月的《星刃》评分会比浪人高，理由很简单，星刃有demo，你浪人连个demo都不给，很明显自己都心虚
+
+*****
+
+####  武机霸拳流代师范  
+##### 1689#       发表于 2024-3-21 19:43
+
+我倒要看看他有多烂！
+
+
+*****
+
+####  nagitoY  
+##### 1690#       发表于 2024-3-21 19:44
+
+买日版光碟是不是没有断肢特效？现在淘宝实体碟价格已经陆续降下来了来自: iPhone客户端
+
+*****
+
+####  nagitoY  
+##### 1691#       发表于 2024-3-21 19:46
+
+商家回复说日版没有中文。我看ff7re是韩版和港版才有中文吗？
+
+那浪人要有中文和日文配音，是只能买港版？来自: iPhone客户端
+
+*****
+
+####  hentianwuya  
+##### 1692#       发表于 2024-3-21 19:48
+
+我在看狗蛋的直播，这个锁定太J8逆天了，我可以想象评测的人会多烦躁。<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雾生司  
+##### 1693#       发表于 2024-3-21 19:48
+
+只能说打完再评价 真能不如卧龙吗
+

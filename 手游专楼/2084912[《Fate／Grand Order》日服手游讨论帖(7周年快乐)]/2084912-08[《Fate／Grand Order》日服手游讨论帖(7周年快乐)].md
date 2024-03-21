@@ -3360,3 +3360,13 @@ SMT或persona的味道很重<img src="https://static.saraba1st.com/image/smiley/
 你月老男人的人设有点普通了..............真不如gbf那个有意思</blockquote>
 隔壁风格的人设法特里已经有弗朗所瓦占坑了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这回只能往这方向出了
 
+
+*****
+
+####  保罗赫伯特  
+##### 11704#       发表于 2024-3-21 19:38
+
+都单体了，还是主要看厨力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+奏二也是没啥好抽的，备战周年和泳装了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -4191,3 +4191,37 @@ S29的Spin prime在第三发前就做了。接下来是等6发静点。如果是
 0级肯定还是没定性要改的，那些裸露的管线就不是个事，但不是当务之急。
 说不定最终影响星舰大规模发射的就是第0级的建设速度，太复杂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  commcody  
+##### 523#         楼主| 发表于 2024-3-21 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64323516&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-21 15:57</a>
+
+发射台状态不太好。</blockquote>
+前几次发射后这里都要大修，上一次发射后二级的快卸都歪了。
+
+
+*****
+
+####  commcody  
+##### 524#         楼主| 发表于 2024-3-21 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64323578&amp;ptid=2164773" target="_blank">灼眼的川川仔 发表于 2024-3-21 16:02</a>
+
+0级肯定还是没定性要改的，那些裸露的管线就不是个事，但不是当务之急。
+
+说不定最终影响星舰大规模发射的就 ...</blockquote>
+从之前各种修修补补加防护板等等能看出来现在0级还只是个配合试飞的试验品。Super Heavy外圈20台猛禽发动机的启动需要用20条快卸管路连接在0级上通过0级启动，这些管路每次试飞后也都需要修理更换。39A发射台的0级已经在佛州出厂了，可以等以后看看会有多少改进。
+
+*****
+
+####  tsukatsukieiko  
+##### 525#       发表于 2024-3-21 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64270662&amp;ptid=2164773" target="_blank">四号舰美浓 发表于 2024-3-16 11:52</a>
+
+日本网友的创作。</blockquote>
+N1这个五级，每级都是俩球的结构实在太难泵了。
+

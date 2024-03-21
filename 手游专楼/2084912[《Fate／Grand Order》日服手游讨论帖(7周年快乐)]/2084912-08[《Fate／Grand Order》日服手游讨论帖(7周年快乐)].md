@@ -3386,3 +3386,19 @@ SMT或persona的味道很重<img src="https://static.saraba1st.com/image/smiley/
 
 现在在猜三战剑是狄特里希了，意外对得上
 
+
+*****
+
+####  白金口袋  
+##### 11707#       发表于 2024-3-21 22:27
+
+ 本帖最后由 白金口袋 于 2024-3-21 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322855&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-21 14:54</a>
+
+SMT或persona的味道很重</blockquote>
+仔细一想确实，伯爵这整个奏章其实就是SMT等咕哒选阵营呢，咕哒坚定秩序/中立，那我们复仇者（混沌）就必须下船了
+
+然后校园部分则是偏向P
+
+混挺好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

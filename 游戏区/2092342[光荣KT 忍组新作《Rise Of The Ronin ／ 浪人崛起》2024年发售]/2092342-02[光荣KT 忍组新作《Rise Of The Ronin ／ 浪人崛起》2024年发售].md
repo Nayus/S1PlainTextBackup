@@ -2599,3 +2599,32 @@ ZP的评测出了，在风云编辑部的号里
 
 太魔幻了了，比抗日奇侠魔幻多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 1757#       发表于 2024-3-21 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了zp的评测给我缓了缓
+
+*****
+
+####  karastar  
+##### 1758#       发表于 2024-3-21 22:31
+
+看评测属于仁王+低配育碧罐头，开放世界部分太无聊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  bm7号  
+##### 1759#       发表于 2024-3-21 22:31
+
+女性角色的站姿和跑步姿势不能改吗？我看了几个图片都是一样的，这个挫逼姿势要是流传下去光荣游戏可以不用玩了。
+
+*****
+
+####  Horusddt  
+##### 1760#       发表于 2024-3-21 22:32
+
+zp评价还可以啊，流派这个系统挺有意思
+

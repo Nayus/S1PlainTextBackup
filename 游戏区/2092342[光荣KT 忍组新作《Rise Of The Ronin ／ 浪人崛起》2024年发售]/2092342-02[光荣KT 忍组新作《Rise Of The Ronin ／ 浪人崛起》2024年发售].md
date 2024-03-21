@@ -623,3 +623,48 @@ DOA剧情可以PASS，但是每个角色单独的CG都非常棒，像4代蛇女�
 
 我觉得忍组的游戏其实剧情设定和角色设定一直都有有别于其他制作组的闪光点，而且还挺潮的，只不过人们讨论点往往都在动作系统而忽视了
 
+
+*****
+
+####  nagitoY  
+##### 1546#       发表于 2024-3-21 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318352&amp;ptid=2092342" target="_blank">popchong 发表于 2024-3-21 08:16</a>
+
+我一直觉得仁王的过场动画是被低估的，演出非常讲究有意境和美感。2我觉得剧情唯一称得上问题的部分就在本 ...</blockquote>
+但是在仁王1的立花訚千代的剧情里，暗示了猴子侮辱了怀孕的訚千代并导致其堕胎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+按照记载，訚千代和秀吉相关的事情大概只有“秀吉身在肥前名护屋城，招集了各大名的妻子伺候。訚千代和侍女拿着大薙刀，且腰间系了胁差去参见”这部分吧
+
+*****
+
+####  duraa  
+##### 1547#       发表于 2024-3-21 08:49
+
+是屌是屎今晚就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+我印象中发售前安田有说存在多结局，但没看到多结局杯，只能说很神秘
+
+*****
+
+####  雾生司  
+##### 1548#       发表于 2024-3-21 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318069&amp;ptid=2092342" target="_blank">染井吉野 发表于 2024-3-21 06:45</a>
+
+一位未言明游玩难度的日本Z版偷跑玩家：
+
+● 只打了主线，因为从中盘开始支线和强化任务（原文是強化quest ...</blockquote>
+来个原文地址
+
+*****
+
+####  雾生司  
+##### 1549#       发表于 2024-3-21 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318597&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-21 08:49</a>
+
+是屌是屎今晚就知道了
+
+我印象中发售前安田有说存在多结局，但没看到多结局杯，只能说很神秘 ...</blockquote>
+没有说有多结局 只说了主角没有能力改变历史走向 只能选择自己加入的分支势力
+

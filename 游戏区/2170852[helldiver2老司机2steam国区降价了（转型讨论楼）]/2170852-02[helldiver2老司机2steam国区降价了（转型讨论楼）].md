@@ -6420,3 +6420,22 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  白玫瑰之夜  
+##### 2101#       发表于 2024-3-21 08:44
+
+昨天试了下用一次性桶子打飞虫窝好像两发能打掉一个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  bladethunder  
+##### 2102#       发表于 2024-3-21 08:48
+
+但是更新后昨晚感觉虫子任务变简单了啊，数量少了很多
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

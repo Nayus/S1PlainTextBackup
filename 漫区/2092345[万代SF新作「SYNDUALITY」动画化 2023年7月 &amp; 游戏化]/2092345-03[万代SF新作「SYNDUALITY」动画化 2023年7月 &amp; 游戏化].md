@@ -7035,3 +7035,14 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 小剧场最终话传完了 我的任务结束了！
 
+
+*****
+
+####  reficul  
+##### 4438#       发表于 2024-3-22 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64303111&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-19 19:58</a>
+
+最后一集要联动游戏呢</blockquote>
+真是令人迷惑的预告。。最后一集里还要花时间给一个完全没登场过的组合打广告，真是无法预测的舞台= =
+

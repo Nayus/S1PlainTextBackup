@@ -2898,3 +2898,30 @@ PS5版500万多少有点不可能了<img src="https://static.saraba1st.com/image
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我现在的问题是.....振刀没有残心那样的提示没有用的习惯，只能慢慢刻意去记了
 
+
+*****
+
+####  Leliel  
+##### 1789#       发表于 2024-3-22 00:55
+
+看打佩里感觉还是偏被动，更像卧龙
+
+
+*****
+
+####  火华火华火  
+##### 1790#       发表于 2024-3-22 01:01
+
+画面是挺烂的，感觉也就ps4早期游戏的水平<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Yeelolo  
+##### 1791#       发表于 2024-3-22 01:01
+
+云了一晚上，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然感觉有点凑活，至少战斗比卧龙好玩
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

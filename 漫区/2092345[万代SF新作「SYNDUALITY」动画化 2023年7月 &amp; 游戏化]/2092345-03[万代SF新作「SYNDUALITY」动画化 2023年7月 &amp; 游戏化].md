@@ -6883,3 +6883,147 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 4436#       发表于 2024-3-21 21:22
+
+<img src="https://img.saraba1st.com/forum/202403/21/194327bgwpdipzu9wxzttt.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321193754.png</strong> (47.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 19:43 上传
+
+开始看奶茶屋22话，时雄的无缘众生，马哈特这用词还真是骄傲，反正你等会儿就后悔了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/21/200055eso02sgpsc6phgwe.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321200046.png</strong> (56.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/200430e4we3hj44moivuw3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321200425.png</strong> (50.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 20:04 上传
+
+超高音实弹
+
+<img src="https://img.saraba1st.com/forum/202403/21/200615kaab0kouhie8ojyy.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321200611.png</strong> (38.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 20:06 上传
+
+话说这里彼方是腰斩了3号机吧，驾驶员<strong>是不是被干掉了</strong>（
+
+<img src="https://img.saraba1st.com/forum/202403/21/201648j9ejfve31jjxihf7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321201642.png</strong> (56.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 20:16 上传
+
+修涅评论穆顿的能力是如同静止的世界
+
+<img src="https://img.saraba1st.com/forum/202403/21/201950ghzg7908g9900s89.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321201946.png</strong> (87.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 20:19 上传
+
+“阿斯兰”怒斥“米娅”：我当初伸出去的手为什么不接？（
+
+<img src="https://img.saraba1st.com/forum/202403/21/202242uny37uh5394nql4h.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321202237.png</strong> (70.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 20:22 上传
+
+马哈特：会的，但是还要等到下周jpg
+
+<img src="https://img.saraba1st.com/forum/202403/21/202831k7gsfkys4s9p4y2r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321202827.png</strong> (46.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 20:28 上传
+
+也就是说威斯的机体速度起码领先这个时代20年<strong>以上</strong>
+
+<img src="https://img.saraba1st.com/forum/202403/21/210912jzd7ttwgeq3gd8se.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321210906.png</strong> (77.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 21:09 上传
+
+大姐头评论威斯的通告
+
+<img src="https://img.saraba1st.com/forum/202403/21/211029cwewz266rfmuer5f.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321211025.png</strong> (39.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 21:10 上传
+
+威斯对彼方的印象在某种程度上<strong>和歌姬“连在一起了”</strong>
+
+<img src="https://img.saraba1st.com/forum/202403/21/211208kjk3m8m84wkkgpwj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321211204.png</strong> (41.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 21:12 上传
+
+这么说还是挺危险的
+
+<img src="https://img.saraba1st.com/forum/202403/21/211414c9bxh4eprdr9fphm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321211409.png</strong> (63.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 21:14 上传
+
+如果按照时雄的看法（或者说奶茶屋的翻译），威斯是不是有点妄想恐惧症？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/21/212031uedbtkrf9gvriobk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321212016.png</strong> (76.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 21:20 上传
+
+和你一刀两断然后再去确认威斯的意图，喂喂，面对现实 你还没睡醒吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/21/211648nlv9sallv9hdeydz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240321211642.png</strong> (45.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 21:16 上传
+
+当年只想和你一起离开，<strong>奶茶屋这翻译好甜呀</strong><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

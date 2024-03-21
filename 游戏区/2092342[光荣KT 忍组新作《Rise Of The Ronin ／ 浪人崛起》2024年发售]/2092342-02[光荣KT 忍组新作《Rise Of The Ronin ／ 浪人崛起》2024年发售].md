@@ -2452,3 +2452,53 @@ vgn的评价还不错
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  crosz1985  
+##### 1742#       发表于 2024-3-21 21:15
+
+反击从现在开始<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  NBGI  
+##### 1743#       发表于 2024-3-21 21:19
+
+继续FF7了
+
+*****
+
+####  无辄辄  
+##### 1744#       发表于 2024-3-21 21:20
+
+这测评人是不是这几年没吃上育碧罐头饿了
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 1745#       发表于 2024-3-21 21:20
+
+看得出游戏动力很喜欢浪人，并且很不喜欢这个画面了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑修士  
+##### 1746#       发表于 2024-3-21 21:24
+
+ 本帖最后由 黑修士 于 2024-3-21 21:27 编辑 
+
+熟悉那段历史人物事件的玩家，体验估计会好一点点吧
+
+二柄：忍者组的集大成作，画面与世界设计有遗憾
+[https://www.bilibili.com/video/BV1kJ4m1771v](https://www.bilibili.com/video/BV1kJ4m1771v)
+
+3DM：浪人崛起：时代交替与无所适从
+[https://www.bilibili.com/video/BV1Ax4y1S7Q8](https://www.bilibili.com/video/BV1Ax4y1S7Q8)
+
+游民：幕末志士们的大河剧
+[https://www.bilibili.com/video/BV1Hu4m1T75T](https://www.bilibili.com/video/BV1Hu4m1T75T)
+

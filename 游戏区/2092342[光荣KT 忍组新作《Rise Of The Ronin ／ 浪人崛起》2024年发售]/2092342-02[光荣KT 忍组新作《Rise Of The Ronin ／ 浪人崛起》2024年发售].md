@@ -1591,3 +1591,214 @@ MC：
 
 笑死，G
 
+
+*****
+
+####  你好s1  
+##### 1642#       发表于 2024-3-21 19:08
+
+还能不如卧龙的？？？
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  SergeGlenn  
+##### 1643#       发表于 2024-3-21 19:09
+
+其实我还是想玩玩试试的，但是这价格尼玛太离谱了。。。
+
+*****
+
+####  黑酒杯  
+##### 1644#       发表于 2024-3-21 19:09
+
+<img src="https://p.sda1.dev/16/ee514682b7635b807bcb5475d8e80de9/IMG_CMP_12984902.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  hentianwuya  
+##### 1645#       发表于 2024-3-21 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64325714&amp;ptid=2092342" target="_blank">BK10 发表于 2024-3-21 19:02</a>
+
+开放世界垃圾的不行两个媒体预览都在骂，为啥觉得不扣分，最垃圾的一档，别人又不是按忍组粉丝给分的 ...</blockquote>
+我没看到批开放世界不行的媒体预览，可能是我没注意到，我倒是全程把偷跑哥的几个视频看了一遍，感觉还行，我甚至预感可能会有85分左右，跟仁王2差不多，现实太骨感了。
+
+*****
+
+####  FROM-SOFTWARE  
+##### 1646#       发表于 2024-3-21 19:10
+
+马后炮一下，之前前面那么多说开放世界地图不重要的我就觉得离谱，要真是一马平川一 本道不会以为玩着会有意思吧。
+
+*****
+
+####  gg142857  
+##### 1647#       发表于 2024-3-21 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整出来个77那后面别谈了
+
+*****
+
+####  Yeelolo  
+##### 1648#       发表于 2024-3-21 19:11
+
+比卧龙都烂，我退了，520让我买这游戏我还是接受不了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yt5wt2c  
+##### 1649#       发表于 2024-3-21 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">省钱了
+
+*****
+
+####  sad6504  
+##### 1650#       发表于 2024-3-21 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上午还说忍组最佳剧情呢，结果评测出来A9还特地喷一嘴剧情
+
+*****
+
+####  hkguty  
+##### 1651#       发表于 2024-3-21 19:12
+
+G，玩龙信了
+
+*****
+
+####  saber6146  
+##### 1652#       发表于 2024-3-21 19:12
+
+折戟了，把安田和小弟拖出去砍头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BK10  
+##### 1653#       发表于 2024-3-21 19:12
+
+开放世界游戏媒体肯定会对设计水平好不好扣分啊，，，人不是忍组粉冲着战斗来的，觉得一马平川好估计只有粉丝了吧
+
+*****
+
+####  刘震云  
+##### 1654#       发表于 2024-3-21 19:13
+
+NONONO，不是地图不重要，是大家根本都不在乎这所谓的开放世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼热的小市民  
+##### 1655#       发表于 2024-3-21 19:13
+
+500w？ 下一作下一作
+
+*****
+
+####  RushMove  
+##### 1656#       发表于 2024-3-21 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64325835&amp;ptid=2092342" target="_blank">FROM-SOFTWARE 发表于 2024-3-21 19:10</a>
+
+马后炮一下，之前前面那么多说开放世界地图不重要的我就觉得离谱，要真是一马平川一 本道不会以为玩着会有 ...</blockquote>
+对于我来说，优秀的地图设计&gt;**&gt;恶心人的地图设计。仁王尤其是1有些地图我不想碰第二次
+
+
+*****
+
+####  duraa  
+##### 1657#       发表于 2024-3-21 19:14
+
+由于本作是PS5平**占的作品，能否请开发者谈谈在PS5这一硬件上进行开发的时候的感受。有什么PS5平台所特有的优势呢？
+
+早矢仕：专注于一个平台进行开发的时候，我们能够根据这一平台的特定指定针对性的开发日程，这是很大的一个优势。本次我们还与索尼的XDEV小组的开发人员一同进行开发工作，在开发过程中能够收到许多来自索尼的反馈。这些反馈让我们的开发工作进展得很顺利，这也是PS5独占才有的优势。
+
+*****
+
+####  葵  
+##### 1658#       发表于 2024-3-21 19:15
+
+77分怎么比卧龙还低，忍者组集体切腹吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeelolo  
+##### 1659#       发表于 2024-3-21 19:15
+
+我能接受浪人不如仁王，但是真不能接受不如卧龙，卧龙是真的烂，动作烂，地图烂，剧情也烂真不行。
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑酒杯  
+##### 1660#       发表于 2024-3-21 19:16
+
+开放世界会稀释掉战斗内容，浪人这种战斗系统驱动的开放世界没做好的话游玩节奏会很差吧
+
+*****
+
+####  名字已被吃  
+##### 1661#       发表于 2024-3-21 19:16
+
+可以等网友亲自玩玩反馈了，反正ff7没打完<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  FROM-SOFTWARE  
+##### 1662#       发表于 2024-3-21 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64325886&amp;ptid=2092342" target="_blank">BK10 发表于 2024-3-21 19:12</a>
+
+开放世界游戏媒体肯定会对设计水平好不好扣分啊，，，人不是忍组粉冲着战斗来的，觉得一马平川好估计只有粉 ...</blockquote>
+你这个说法和龙信一模一样，龙信也是战斗好就行，为了战斗来的。等着吧，别看龙信分数高，等上线后，继承下来的各种反人类设定，绝对喷的也不会少。只不过龙信分数高，所以粉丝会自发堵嘴，浪人这个分数低，粉丝堵不住。
+
+*****
+
+####  waelaZed  
+##### 1663#       发表于 2024-3-21 19:17
+
+早食屎小弟就是逊啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 1664#         楼主| 发表于 2024-3-21 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64325769&amp;ptid=2092342" target="_blank">Piano-Forest 发表于 2024-3-21 19:06</a>
+
+IGN/GS 7：
+
+https://www.ign.com/articles/rise-of-the-ronin-review
+
+https://www.gamespot.com/reviews/ri ...</blockquote>
+《浪人崛起》制作人采访：开放世界将带来更为丰富的玩法
+[https://weibo.com/ttarticle/x/m/show#/id=2309405014442432659668](https://weibo.com/ttarticle/x/m/show#/id=2309405014442432659668)
+
+*****
+
+####  Leona_Akari  
+##### 1665#       发表于 2024-3-21 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天好像一堆主播都拿到提前游玩的码了，配合这个分数，感谢省钱
+
+*****
+
+####  v13  
+##### 1666#       发表于 2024-3-21 19:18
+
+还行比358强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 1667#       发表于 2024-3-21 19:18
+
+动作不如卧龙应该不可能吧。就现在看到的系统来说，比卧龙丰富太多了。
+

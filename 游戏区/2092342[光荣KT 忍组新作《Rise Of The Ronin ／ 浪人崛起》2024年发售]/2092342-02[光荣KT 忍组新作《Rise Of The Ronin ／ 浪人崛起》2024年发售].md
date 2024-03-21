@@ -2534,3 +2534,32 @@ vgn的评价还不错
 
 赛博圈地来了。
 
+
+*****
+
+####  手铐君  
+##### 1750#       发表于 2024-3-21 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这作没有棍子？但是却加了无想新月棍的动作？
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  霖岚_  
+##### 1751#       发表于 2024-3-21 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">PSN预购了没得退，想起当时FF16也是这样有多期待结果后面就有多失望……放低预期就算了吧
+
+而且周五要上班今晚是不能通宵打的，只能明天下班再打了
+
+*****
+
+####  rainsheep  
+##### 1752#       发表于 2024-3-21 22:13
+
+ZP的评测出了，在风云编辑部的号里
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

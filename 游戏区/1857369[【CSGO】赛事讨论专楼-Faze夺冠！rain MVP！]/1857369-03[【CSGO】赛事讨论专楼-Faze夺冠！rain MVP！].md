@@ -127,3 +127,20 @@
 
 当不续烟碰到干拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  那由  
+##### 4038#       发表于 2024-3-21 22:12
+
+薯片nmd，不活了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  heseran  
+##### 4039#       发表于 2024-3-21 22:13
+
+小苍蝇，作业一上来就炸了一个<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+

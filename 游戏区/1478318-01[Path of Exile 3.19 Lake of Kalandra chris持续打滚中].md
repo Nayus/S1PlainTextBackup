@@ -59,3 +59,11 @@ Wildwood Primalist装备护符来获得随机的其他进阶的弱化版天赋
 
 <img src="https://i.imgur.com/8AwvSMl.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 1369#       发表于 2024-3-22 05:58
+
+优化挺多 小点战神木了 赛季内容看着不是很爽
+

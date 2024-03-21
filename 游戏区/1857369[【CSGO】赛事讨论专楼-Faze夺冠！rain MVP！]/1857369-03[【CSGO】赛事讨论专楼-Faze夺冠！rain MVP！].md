@@ -92,3 +92,14 @@
 作业悬念保留到了最后一场，以及不知道为啥第一个竞猜算我没完成</blockquote>
 你这就对了4个，3:0今年必须放3:0的选项，不能放在3:1里了。
 
+
+*****
+
+####  Niyah  
+##### 4034#       发表于 2024-3-21 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318542&amp;ptid=1857369" target="_blank">heseran 发表于 2024-3-21 08:43</a>
+
+你这就对了4个，3:0今年必须放3:0的选项，不能放在3:1里了。</blockquote>
+昨天后来领周常的时候看了一眼背包发现通行证没激活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2863,3 +2863,22 @@ zp哪来的评测，我看b站号没发啊
 
 唉ff7上完摩天轮了，开打
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1785#       发表于 2024-3-22 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64328730&amp;ptid=2092342" target="_blank">xunit 发表于 2024-3-21 22:40</a>
+看了ZP的评测，只能说虽然战&amp;# ...</blockquote>
+我觉得战斗评价不差只是按绝对水平来说，以忍组自己的相对水平来说只能说比卧龙好一点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，而且并没有脱离卧龙那套弹反为核心的战斗设计，大概率不如ffo
+
+*****
+
+####  ouyang菌  
+##### 1786#       发表于 2024-3-22 00:20
+
+PS5版500万多少有点不可能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人ff7rb都不一定做的到，你忍组更是什么ip知名度画面水准媒体评分全面不如7rb
+
+我觉得200万都悬，除非正式版口碑大爆（这个更不可能了）
+

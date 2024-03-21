@@ -208,3 +208,11 @@ apex榜个zonic拿了major真以为自己指挥无敌了，这么久下来看着
 
 nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 4047#       发表于 2024-3-22 02:50
+
+结果13比9送蒙古进0-2，nuke被玩成匪图是真没想到
+

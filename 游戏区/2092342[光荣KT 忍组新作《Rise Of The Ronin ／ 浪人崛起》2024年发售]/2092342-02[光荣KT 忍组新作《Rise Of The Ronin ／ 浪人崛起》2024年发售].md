@@ -3178,3 +3178,11 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 仁王2我非常喜欢的一点是平a派生＞武技＞妖怪技/妖反的取消链。熟练用这套 ...</blockquote>
 可能重点还是流派和武技衔接，因为一开始流派的武技前摇很长感觉不好用，新来的队友操作了下直接爽到，衔接得相当丝滑追着人砍，就是太忘我体力容易空了，学到流派和特典，一切都好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 1819#       发表于 2024-3-22 03:47
+
+前两个boss这段流程限制只能用初始武器打起来还是挺有压力的，一到开放世界可以拣装备就变割草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

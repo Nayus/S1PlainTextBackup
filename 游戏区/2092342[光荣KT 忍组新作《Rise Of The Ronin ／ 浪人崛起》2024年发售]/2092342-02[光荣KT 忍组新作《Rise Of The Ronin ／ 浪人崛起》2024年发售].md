@@ -3197,3 +3197,11 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 —— 来自 vivo V2163A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  duraa  
+##### 1821#       发表于 2024-3-22 04:30
+
+不知道是不是港服有bug，我预购奖励呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

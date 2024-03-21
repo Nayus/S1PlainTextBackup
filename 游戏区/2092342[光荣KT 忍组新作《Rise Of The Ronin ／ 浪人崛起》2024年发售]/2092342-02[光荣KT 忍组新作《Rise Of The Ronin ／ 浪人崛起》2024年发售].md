@@ -1257,3 +1257,13 @@ era大部分人投票认为也就80-84，我感觉甚至可能也就80出头了�
 
 晚上都解锁了ps日本怎么还不放10号线下活动的录像啊，不会要等评分解禁甚至发售之后才放出来吧，这宣发幽默完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刘震云  
+##### 1609#       发表于 2024-3-21 14:21
+
+索尼宣发真的很迷惑，目前游戏信息全靠偷跑，索尼就像AV里瘫痪在床但神智清醒的老公
+
+索尼你说句话啊！<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

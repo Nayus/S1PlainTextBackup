@@ -9,3 +9,11 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  举头望明月  
+##### 1137#       发表于 2024-3-21 13:19
+
+想要一个400g优质屏适合打独游和串流的7-8寸掌机，不知道市场上有没有
+

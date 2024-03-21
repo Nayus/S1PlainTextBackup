@@ -825,3 +825,21 @@ A competent but shallow and overfamiliar attempt to replicate Assassin’s Creed
 The game hits a lot of fantastic cinematic highs, and those ultimately lift it above the trappings of its familiar open-world quest design </blockquote>
 只能說大多遊戲媒體的評側跟看雲玩家發彈幕沒什麼兩樣。
 
+
+*****
+
+####  umbasa  
+##### 1563#       发表于 2024-3-21 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319166&amp;ptid=2092342" target="_blank">hotsmile 发表于 2024-3-21 09:47</a>
+
+我到现在都不懂对马岛为什么只有83，要剧情有剧情，要演出有演出</blockquote>
+对冲了奇迹的超高媒体评价。我还记得因为奇迹打分虚高引起玩家反弹这事儿，ucg后面给对马岛打分太保守，又被玩家冲了一次。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 1564#       发表于 2024-3-21 10:01
+
+去年12月的采访不能说早吧，要是学陶德哥哥跑火车那忍者组在我这里要扣大分的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

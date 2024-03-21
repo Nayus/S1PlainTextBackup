@@ -6504,3 +6504,29 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 更了个什么玩意，先去研究下单人潜行刷超级样本了
 
+
+*****
+
+####  Launce  
+##### 2109#       发表于 2024-3-21 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318839&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-21 09:17</a>
+
+这个飞虫是不是会叫警报的
+
+昨天难7，落地正好落在这个附近。开局打了十分钟，怪越打越多，增员次数都用完了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧也有不少喷独狼，要抱团塔塔开的
+
+*****
+
+####  白玫瑰之夜  
+##### 2110#       发表于 2024-3-21 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318839&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-21 09:17</a>
+这个飞虫是不是会叫警报的
+
+昨天难7，落地正好落在这个附近。开局打了十分钟，怪越打越多，增员次数都用完了 ...</blockquote>
+鬼佬是这样的，昨天进了一把难九三个队友落地就在嗯打虫子，最后三个虫卵点全是我一个人清的，其他三个加起来打了一个支线摸了几个样本，难绷<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

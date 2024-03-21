@@ -711,3 +711,28 @@ DOA剧情可以PASS，但是每个角色单独的CG都非常棒，像4代蛇女�
 ● 只打了主线，因为从中盘开始支线和强化任务（原文是強化quest ...</blockquote>
 好像不能回私信的样子总之感谢!! 我去看一下
 
+
+*****
+
+####  Yeelolo  
+##### 1554#       发表于 2024-3-21 09:26
+
+剧情好？光荣？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  刘震云  
+##### 1555#       发表于 2024-3-21 09:28
+
+<img src="https://img.saraba1st.com/forum/202403/21/092513vn893cipz333li88.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240321092440.jpg</strong> (132.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 09:25 上传
+
+忍者套，这次不是“隼流”忍者了，换了个真实存在的幕末人物“沢村甚三郎”
+

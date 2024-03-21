@@ -463,3 +463,11 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  catcoffee  
+##### 17802#       发表于 2024-3-21 09:36
+
+感谢各位老哥解答, 趁转盘井了一把杖换成3小美2杖的盘子了, 不得不说野蛮确实爽...<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -6675,3 +6675,31 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 —— 来自 HUAWEI WLZ-AL10, Android  ...</blockquote>
 主要打机器人，炮塔坦克巨型者滋起来很快，针对中大型目标dps非常高，但缺点是必须站稳瞄准保持持续输出
 
+
+*****
+
+####  jy000129  
+##### 2124#       发表于 2024-3-21 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322705&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-21 14:40</a>
+上打泰坦，下打杂兵，中打坦克虫
+
+打是能打，好不好用就另一回事
+
+【惊了！LAS-98激光大炮加强后测 ...</blockquote>
+打泰坦太慢了，打牛好像不能烫头
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Launce  
+##### 2125#       发表于 2024-3-21 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64323812&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-21 16:26</a>
+
+箭头这效率也是离谱，只能说这就是瑞典公司吗，是不是一天都在摸鱼
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">STEAM社区最新的补丁评论区凌晨1点左右就光速锁了，没有摸鱼！！
+

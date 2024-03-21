@@ -13938,3 +13938,27 @@ voy@ger真没想到
 奇怪</blockquote>
 查了下876的广播剧里有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 2867#       发表于 2024-3-21 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64323937&amp;ptid=2130897" target="_blank">信长的呕吐 发表于 2024-3-21 16:36</a>
+
+查了下876的广播剧里有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，我看他们参考的nico百科都没标注
+
+
+*****
+
+####  宫宝兔丁  
+##### 2868#       发表于 2024-3-21 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314096&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-3-20 19:04</a>
+
+草怎么还有达子，他和爱马仕啥关系
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+某漫画的广播剧版打了个酱油  具体忘了
+

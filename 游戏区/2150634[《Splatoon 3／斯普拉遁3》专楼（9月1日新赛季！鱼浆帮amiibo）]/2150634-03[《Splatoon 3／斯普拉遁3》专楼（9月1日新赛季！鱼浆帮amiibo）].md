@@ -7059,3 +7059,17 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  shirolin  
+##### 3687#       发表于 2024-3-21 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318358&amp;ptid=2150634" target="_blank">martinium 发表于 2024-3-21 08:16</a>
+滚筒活动挺好的，就是金字塔感觉可以换成游乐园或者船厂
+
+— from samsung SM-S911U1, Android 14 of S1 Ne ...</blockquote>
+感觉故意选鱼露遗迹的，这图中央完全就是赛车跑圈赛道。
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

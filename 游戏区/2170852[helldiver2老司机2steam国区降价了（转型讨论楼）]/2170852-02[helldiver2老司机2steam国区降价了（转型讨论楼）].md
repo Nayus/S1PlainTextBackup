@@ -6644,3 +6644,21 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 【惊了！LAS-98激光大炮加强后测试各种可打击的目标《地狱潜兵2》测试篇】 [https://www.bilibili.com/video/BV11r421n74T](https://www.bilibili.com/video/BV11r421n74T)
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以关注下这UP，有不少测试和教学视频
 
+
+*****
+
+####  airshit  
+##### 2121#       发表于 2024-3-21 16:20
+
+傻卵箭头建议先来个健康行动
+
+
+*****
+
+####  风萧飒  
+##### 2122#       发表于 2024-3-21 16:26
+
+箭头这效率也是离谱，只能说这就是瑞典公司吗，是不是一天都在摸鱼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

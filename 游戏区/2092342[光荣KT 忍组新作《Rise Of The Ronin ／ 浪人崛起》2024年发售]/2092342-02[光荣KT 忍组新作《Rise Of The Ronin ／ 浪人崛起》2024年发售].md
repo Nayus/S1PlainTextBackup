@@ -2431,3 +2431,24 @@ vgn的评价还不错
 
 让人震惊
 
+
+*****
+
+####  nagitoY  
+##### 1740#       发表于 2024-3-21 21:07
+
+【50h通关《浪人崛起》！除了画面不行其他一切都很行！】 [https://www.bilibili.com/video/B ... a9524880cae8ef31f5b](https://www.bilibili.com/video/BV19Z42147Rq/?share_source=copy_web&amp;vd_source=f992a0ea6967da9524880cae8ef31f5b)
+
+这个测评对支线给出了好评，是不是因为测评者本身对幕末时期的历史有一定的了解？
+
+*****
+
+####  Yeelolo  
+##### 1741#       发表于 2024-3-21 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64327581&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-21 21:07</a>
+【50h通关《浪人崛起》！除了画面不行其他一切都很行！】 https://www.bilibili.com/video/BV19Z42147Rq/?s ...</blockquote>
+我觉得有可能，就像仁王2你对战国史有了解可能剧情能看的比较顺，我这种只知道本能寺之变的根本就看不懂
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

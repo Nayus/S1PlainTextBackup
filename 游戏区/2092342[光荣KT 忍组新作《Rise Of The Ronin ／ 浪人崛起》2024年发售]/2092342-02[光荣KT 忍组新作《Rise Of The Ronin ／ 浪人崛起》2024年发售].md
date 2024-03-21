@@ -2385,3 +2385,49 @@ https://www.bilibili.com/video/BV1Mm411d7MJ</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">看了UCG的评测，果然方块不能接三角了，简化不是这么做的哦
 
+
+*****
+
+####  ナルバレック  
+##### 1735#       发表于 2024-3-21 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64327328&amp;ptid=2092342" target="_blank">seedees3 发表于 2024-3-21 20:50</a>
+
+可能画面太拉把其他部分的印象分也给拖累了，之前看宣传片完全不觉得会连80都不到 ...</blockquote>
+除了疑似EA协助，有一线画面去年那个狩猎作品，这画面其实已经是光荣最高水平了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Horusddt  
+##### 1736#       发表于 2024-3-21 20:57
+
+看了会直播，这开放世界能给6分都是看在他们第一回做的份上了，收集项和支线什么的都很老土，开放世界游戏上来还是要塞几个手搓任务或者小箱庭的呀，不然怎么留住人
+
+
+*****
+
+####  saber6146  
+##### 1737#       发表于 2024-3-21 21:03
+
+vgn的评价还不错
+
+【50h通关《浪人崛起》！除了画面不行其他一切都很行！】 [https://www.bilibili.com/video/B ... 7a58c96a73be551f37b](https://www.bilibili.com/video/BV19Z42147Rq/?share_source=copy_web&amp;vd_source=460eb45f1f9b67a58c96a73be551f37b)
+
+*****
+
+####  NeTlk  
+##### 1738#       发表于 2024-3-21 21:04
+
+战斗有仁王2水平没，画面就不指望了
+
+*****
+
+####  chdhdhd  
+##### 1739#       发表于 2024-3-21 21:05
+
+<blockquote>duraa 发表于 2024-3-21 20:55
+看了UCG的评测，果然方块不能接三角了，简化不是这么做的哦</blockquote>
+啊？这是什么简化思路？
+
+让人震惊
+

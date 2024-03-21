@@ -200,3 +200,11 @@
 
 apex榜个zonic拿了major真以为自己指挥无敌了，这么久下来看着还是在打zonic那一套，光头教练组和apex完全没有研究战术的能力，又回到了载物不爆种就赢不了的状态。
 
+
+*****
+
+####  曼陀罗肥  
+##### 4046#       发表于 2024-3-22 01:50
+
+nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

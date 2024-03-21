@@ -34,3 +34,14 @@
 
 打算再观望一下
 
+
+*****
+
+####  overflowal  
+##### 1139#       发表于 2024-3-21 13:52
+
+看了一下还有两个备选，飞行家f1和ROG Ally。飞行家比较小点，配置也可以拉的更高。
+但是ROG背后是大厂，据说优化做的不错，真是难选
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

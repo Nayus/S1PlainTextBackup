@@ -3166,3 +3166,15 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 本作是光荣最强调电影化体验的作品了吧，演出甚至使用了21：9
 
+
+*****
+
+####  banjia0815  
+##### 1818#       发表于 2024-3-22 03:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330181&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-22 01:37</a>
+派生非常有限这个真的难受。
+
+仁王2我非常喜欢的一点是平a派生＞武技＞妖怪技/妖反的取消链。熟练用这套 ...</blockquote>
+可能重点还是流派和武技衔接，因为一开始流派的武技前摇很长感觉不好用，新来的队友操作了下直接爽到，衔接得相当丝滑追着人砍，就是太忘我体力容易空了，学到流派和特典，一切都好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

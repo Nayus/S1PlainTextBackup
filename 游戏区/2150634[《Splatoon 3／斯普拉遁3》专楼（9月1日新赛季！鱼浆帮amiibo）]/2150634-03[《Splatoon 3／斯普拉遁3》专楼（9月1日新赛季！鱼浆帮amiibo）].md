@@ -7136,3 +7136,17 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">……怎么说呢真的好有日本味的名字。
 
+
+*****
+
+####  KBAC  
+##### 3694#       发表于 2024-3-21 17:59
+
+ 本帖最后由 KBAC 于 2024-3-21 18:04 编辑 
+
+三部作品里只有一代偶像没出现过全名
+
+不过根据猜测一般认为小拟随鱿鱼干司令姓辺目（鱼干），小萤姓剣崎（ta牌家的姓）。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

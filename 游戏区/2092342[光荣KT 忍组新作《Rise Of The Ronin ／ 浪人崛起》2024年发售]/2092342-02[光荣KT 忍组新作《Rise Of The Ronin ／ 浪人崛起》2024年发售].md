@@ -3071,3 +3071,35 @@ r1 甩刀 回精，忍组还是忘不了仁王，村头这三个忍者的移动�
 
 谁能告诉我他们为什么要做这种傻逼视角<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leomai  
+##### 1807#       发表于 2024-3-22 01:59
+
+选了困难，说实话还挺嚼劲的，处理红招的时候肾上腺素狂飙，那种生死一瞬间的感觉。
+
+感觉是不是困难才是传统难度来着。
+
+不过到开放世界采了个草药后看技能树，一下子就觉得有点扫兴了。
+
+看起来更多的花招都放在流派里了，基础技能树只能说真的很刺客信条<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桥洞底下盖小被  
+##### 1808#       发表于 2024-3-22 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330257&amp;ptid=2092342" target="_blank">Leomai 发表于 2024-3-22 01:59</a>
+选了困难，说实话还挺嚼劲的，处理红招的时候肾上腺素狂飙，那种生死一瞬间的感觉。
+
+感觉是不是困难才是传 ...</blockquote>
+基础技能树用贫瘠两个字形容都算高估他了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zqqwe  
+##### 1809#       发表于 2024-3-22 02:04
+
+口hold的蓄力攻击单出和派生是不同招式，派生一般带后退回避动作，这不就是传统三角派生挪了下键位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外石火的手感非常舒适
+

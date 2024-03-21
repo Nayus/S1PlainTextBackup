@@ -1802,3 +1802,104 @@ https://www.gamespot.com/reviews/ri ...</blockquote>
 
 动作不如卧龙应该不可能吧。就现在看到的系统来说，比卧龙丰富太多了。
 
+
+*****
+
+####  BK10  
+##### 1668#       发表于 2024-3-21 19:19
+
+ 本帖最后由 BK10 于 2024-3-21 19:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64325960&amp;ptid=2092342" target="_blank">FROM-SOFTWARE 发表于 2024-3-21 19:17</a>
+
+你这个说法和龙信一模一样，龙信也是战斗好就行，为了战斗来的。等着吧，别看龙信分数高，等上线后，继承 ...</blockquote>
+那这就是媒体口味问题了， 我看GS评价龙信开放世界随机性GS是优点觉得开放世界很有活力
+
+*****
+
+####  センコウ  
+##### 1669#       发表于 2024-3-21 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">学到一个新词，卧龙凤雏
+
+*****
+
+####  stair楼梯  
+##### 1670#       发表于 2024-3-21 19:20
+
+笑嘻了，昨天还跟群友吹比不要有过高逾期，估计评分介于卧龙和ffo之间，忍组真给我笑嘻了
+
+*****
+
+####  godless2020  
+##### 1671#       发表于 2024-3-21 19:20
+
+CGMagazine（9/10）：本作是一款近乎完美的武士/浪人开放世界 RPG 游戏，它为玩家提供了大量的玩法选择。
+
+GameSpot（7/10）：虽然本作的的战斗学习曲线有些陡峭，开放世界的构思也有些过时，但它能让你在这个世界中度过美好的时光。
+
+Push Square（6/10）：游戏的开放世界设计过时，叙事单调乏味，忍者组作品的战斗只能靠玩家自己去尝试。
+
+Variety（5/10）：本作是一款看起来好看玩起来不好玩游戏，它的不足之处在于画面过时、战斗老套、角色普通得令人痛苦
+
+*****
+
+####  黑酒杯  
+##### 1672#       发表于 2024-3-21 19:21
+
+<img src="https://p.sda1.dev/16/03cc9bd4b3156b67f5b8ca1e5356f211/IMG_CMP_46842381.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  banjia0815  
+##### 1673#       发表于 2024-3-21 19:22
+
+这个分数其实也没啥不能接受的，但从这个角度对比卧龙，我是觉得卧龙本来也不配现在的分数，被车垃圾敷衍也不是一天两天了。
+
+同样仁王这套下来的ffo才72，不比卧龙强几倍了，除了画面实在是辣眼睛是真的很大的扣分点。
+
+
+*****
+
+####  Kojimaru  
+##### 1674#       发表于 2024-3-21 19:26
+
+<img src="https://img.saraba1st.com/forum/202403/21/192422snyaax21jmjjsu29.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 19:24 上传
+
+霓虹金锐评，浪人是最好的江户末期rpg游戏，也是最垃圾的现代开放世界
+
+*****
+
+####  karastar  
+##### 1675#       发表于 2024-3-21 19:27
+
+差评比我想象的要好，主要是开放世界拉低评价了
+
+*****
+
+####  FROM-SOFTWARE  
+##### 1676#       发表于 2024-3-21 19:27
+
+我在这看狗蛋，说了句“我看看sony的评测指南”，原来现在游戏都有官方的评测指南了？
+
+*****
+
+####  名字已被吃  
+##### 1677#       发表于 2024-3-21 19:28
+
+看来是开放世界扣大分？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  病態極端  
+##### 1678#       发表于 2024-3-21 19:28
+
+怎麼大伙還在罵臥龍呢，這不是翻案了嗎，臥龍才是好作品<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

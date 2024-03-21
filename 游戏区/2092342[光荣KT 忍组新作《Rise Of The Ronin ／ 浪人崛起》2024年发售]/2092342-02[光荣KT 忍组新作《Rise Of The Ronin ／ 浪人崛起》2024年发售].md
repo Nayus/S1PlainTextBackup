@@ -1363,3 +1363,64 @@ era大部分人投票认为也就80-84，我感觉甚至可能也就80出头了�
 剧情的话我体感大于等于仁王2吧</blockquote>
 每种武器有单独的技能树吗
 
+
+*****
+
+####  陈词与芍药  
+##### 1619#       发表于 2024-3-21 15:28
+
+ 本帖最后由 陈词与芍药 于 2024-3-21 03:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64323025&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-21 03:10</a>
+老哥昨天通关了吧，快说说二周目加的新难度和增加的新稀有度装备还有新技能怎么样？ ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/21/032648rgf9cae9vbgbgvcr.jpg" referrerpolicy="no-referrer">
+
+<strong>img_3113.jpg</strong> (432.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 15:26 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/032703c6alox4uuljoec47.jpg" referrerpolicy="no-referrer">
+
+<strong>img_3111.jpg</strong> (466.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 15:27 上传
+
+没试，但是有介绍
+到后面可以重玩任意章节和任务，同伴支线和事件，一键切换成新难度，也太贴心了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/21/033358p32g32vbgi5oggan.jpg" referrerpolicy="no-referrer">
+
+<strong>img_3117.jpg</strong> (378.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 15:33 上传
+
+img_3114.jpg
+(691.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 15:24 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/032433j1tvbdvtpk1h13pv.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刘震云  
+##### 1620#       发表于 2024-3-21 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64323191&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-21 15:28</a>
+
+没试，但是有介绍
+
+到后面可以重玩任意章节和任务，同伴支线和事件，一键切换成新难度，也太贴心了[f:0 ...</blockquote>
+原来双胞胎的流派要二周目才可学？！
+
+还有这经典装备词条继承要素，又可以刷刷刷了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -843,3 +843,25 @@ The game hits a lot of fantastic cinematic highs, and those ultimately lift it a
 
 去年12月的采访不能说早吧，要是学陶德哥哥跑火车那忍者组在我这里要扣大分的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雾生司  
+##### 1565#       发表于 2024-3-21 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319325&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-21 10:01</a>
+
+去年12月的采访不能说早吧，要是学陶德哥哥跑火车那忍者组在我这里要扣大分的 ...</blockquote>
+说早是因为这篇是开始宣传期的第一篇媒体文
+
+*****
+
+####  病態極端  
+##### 1566#       发表于 2024-3-21 10:10
+
+<img src="https://p.sda1.dev/16/e24c1f6e2f96fd23477be305498f1b06/1710904177593176.jpg" referrerpolicy="no-referrer">
+
+[https://boards.4chan.org/v/thread/670733385/rise-of-the-ronin#p670745824](https://boards.4chan.org/v/thread/670733385/rise-of-the-ronin#p670745824)
+
+4chan偷跑哥問答，文字太多不搬了。
+

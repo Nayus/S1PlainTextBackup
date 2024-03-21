@@ -11969,3 +11969,22 @@ QQ图片20240320175741.jpg
 
 我之前还觉得打成狗粉丝专楼稍微过分了点，现在来看攻击性还是太弱了
 
+
+*****
+
+####  PDQ4  
+##### 14348#       发表于 2024-3-22 06:33
+
+鸡被踩常态吧，虽然没搞懂为什么会牵扯到爱音。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但是狗厨楼感觉不那么对，至少去年车立希还是常态，总不能因为大鼓和李子高尾太近了，真把立希当鸡第六人在车吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，ansy那个语音是真甜，什么时候来点鸡的cp饲料，怎么配都能吃。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 14349#       发表于 2024-3-22 06:33
+
+风怒编辑
+

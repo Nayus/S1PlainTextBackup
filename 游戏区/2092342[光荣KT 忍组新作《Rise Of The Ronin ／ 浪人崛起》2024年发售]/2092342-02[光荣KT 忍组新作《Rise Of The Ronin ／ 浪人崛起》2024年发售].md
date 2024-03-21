@@ -3135,3 +3135,18 @@ r1 甩刀 回精，忍组还是忘不了仁王，村头这三个忍者的移动�
 
 战斗的话初见感觉攻击判定有点迷，各种挥空。
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1814#       发表于 2024-3-22 02:40
+
+马就是路边捡的也太抽象太粗糙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你好歹整个任务或者过场演出说明一下吧
+
+*****
+
+####  duraa  
+##### 1815#       发表于 2024-3-22 02:44
+
+军刀的般若舞这个武技还蛮好用的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

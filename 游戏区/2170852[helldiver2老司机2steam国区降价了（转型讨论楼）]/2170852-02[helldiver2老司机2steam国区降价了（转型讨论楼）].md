@@ -6780,3 +6780,12 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 所谓修复机甲自爆就是现在火箭弹只能直着射出去，箭头太牛逼喇，修复的神，这下机甲直接废了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 2134#       发表于 2024-3-22 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">00:44分DISCORD发的公告 <blockquote> We have identified the cause of the freezes many players have been experiencing, and we're in the process of building a patch to fix it that should be ready to deploy early next week. In the meantime, we advise against using the Arc Thrower, Arc Shotgun, and Tesla Tower as those appear to be linked to the issue.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特斯拉仙人陨落，补丁最快也是下周一左右，你们有这样的矢脑吗，真是懒懒又狗狗
+

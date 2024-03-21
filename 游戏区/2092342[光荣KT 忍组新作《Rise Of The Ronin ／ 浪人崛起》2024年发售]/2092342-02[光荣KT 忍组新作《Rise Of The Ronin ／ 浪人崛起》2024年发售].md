@@ -2925,3 +2925,18 @@ PS5版500万多少有点不可能了<img src="https://static.saraba1st.com/image
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  banjia0815  
+##### 1792#       发表于 2024-3-22 01:09
+
+上来能选的最高难度打完了第二个boss大体是习惯了这个石火的战斗节奏，难度感觉一般。非常不习惯没有重攻击，能打些派生但非常有限。然后所有人形怪都是妖怪皮，有很多霸体，虽然只是开头感觉是悬了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小迷糊  
+##### 1793#       发表于 2024-3-22 01:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这下要想下是否退盘等崩价
+

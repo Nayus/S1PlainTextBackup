@@ -6615,3 +6615,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 —— 来自 HUAWEI WLZ-AL10, Android  ...</blockquote>
 有中甲穿透，中甲单位都能打了，但是单体伤害。打成队的虫子没有榴弹效率，打机器人不如大狙打的准也没有在弹雨里长时间照射的时间窗口
 
+
+*****
+
+####  Shu-Stella  
+##### 2119#       发表于 2024-3-21 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64307507&amp;ptid=2170852" target="_blank">wthall 发表于 2024-3-20 11:24</a>
+
+日常是要打2个湮灭坦克的任务。完全提不起兴趣去打。。。还没有泰坦那样的专门的狩猎任务，哎 ...</blockquote>
+机器人坦克简单的，基本高级点的图区一把就能完成了。
+

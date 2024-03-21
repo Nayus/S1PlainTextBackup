@@ -865,3 +865,40 @@ The game hits a lot of fantastic cinematic highs, and those ultimately lift it a
 
 4chan偷跑哥問答，文字太多不搬了。
 
+
+*****
+
+####  雾生司  
+##### 1567#       发表于 2024-3-21 10:16
+
+If you like stories about the Bakumatsu era, this is definitely one of the best ones as far as games go. They have some deep cuts in there.
+
+There's two endings, but it's very minor differences overall; I don't wanna spoil how it is.
+
+Can side with either pro-Shogunate or anti-Shogunate faction but the story branches don't deviate too much from the main plotline.
+
+Romances are done with certain characters who have a separate Favor bar along with their Bond Bar; fill that up and you can get a special accessory when you romance them. You can even break up with them right after or cheat on them.
+
+有两个结局但是差分不多
+
+
+*****
+
+####  nagitoY  
+##### 1568#       发表于 2024-3-21 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319497&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-21 10:16</a>
+
+If you like stories about the Bakumatsu era, this is definitely one of the best ones as far as games ...</blockquote>
+恋爱剧情有男女差分吗？
+
+*****
+
+####  雾生司  
+##### 1569#       发表于 2024-3-21 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319610&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-21 10:24</a>
+
+恋爱剧情有男女差分吗？</blockquote>
+没提
+

@@ -6562,3 +6562,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 飞虫巢倒是拿筒子也能炸，不过两发炸掉一个蘑菇有点浪费了。
 
+
+*****
+
+####  卒业之勇  
+##### 2114#       发表于 2024-3-21 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64316792&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-3-20 23:39</a>
+
+头盔护甲还没修好 飞龙过来一下一爆头 可不是秒</blockquote>
+这也是bug啊<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">我就说披风怪怎么这么脆
+

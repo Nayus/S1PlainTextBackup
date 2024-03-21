@@ -6573,3 +6573,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 头盔护甲还没修好 飞龙过来一下一爆头 可不是秒</blockquote>
 这也是bug啊<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">我就说披风怪怎么这么脆
 
+
+*****
+
+####  Mr.Hopp  
+##### 2115#       发表于 2024-3-21 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64317698&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-3-21 01:56</a>
+
+飞龙尸体秒人真的弱智，巢还硬</blockquote>
+致敬星河战队的将军
+

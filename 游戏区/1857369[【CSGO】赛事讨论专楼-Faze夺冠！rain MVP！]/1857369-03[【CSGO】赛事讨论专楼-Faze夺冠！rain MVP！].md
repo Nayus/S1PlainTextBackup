@@ -160,3 +160,26 @@
 
 沟槽的传奇组大哥
 
+
+*****
+
+####  银月术士329  
+##### 4042#       发表于 2024-3-22 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">选择了相信spainx和载物
+一个绿头龟一个小蜜蜂第一轮作业先寄2个
+但我感觉绿龙和黑豹还挺稳的
+绿龙这火力感觉有点东西
+
+
+*****
+
+####  朔方原的星  
+##### 4043#         楼主| 发表于 2024-3-22 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64329845&amp;ptid=1857369" target="_blank">银月术士329 发表于 2024-3-22 00:30</a>
+选择了相信spainx和载物
+一个绿头龟一个小蜜蜂第一轮作业先寄2个
+但我感觉绿龙和黑豹还挺稳的</blockquote>
+你的问题出在不信任apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3221,3 +3221,13 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 刚进横滨，目前感受是这大地图突出一个毫无作用<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1824#       发表于 2024-3-22 05:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330592&amp;ptid=2092342" target="_blank">Bani82 发表于 2024-3-22 04:51</a>
+刚进横滨，目前感受是这大地图突出一个毫无作用</blockquote>
+是这样的，玩到现在他这个开放世界做得毫无意义，真不如做成关卡制
+

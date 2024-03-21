@@ -7094,3 +7094,11 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3690#       发表于 2024-3-21 17:14
+
+新歌还不错，空帆这名字真好听
+

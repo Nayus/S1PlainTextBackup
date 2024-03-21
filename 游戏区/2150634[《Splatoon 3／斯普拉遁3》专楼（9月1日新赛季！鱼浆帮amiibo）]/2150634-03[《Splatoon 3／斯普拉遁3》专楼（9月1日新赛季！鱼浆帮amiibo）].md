@@ -7150,3 +7150,13 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 3695#         楼主| 发表于 2024-3-21 18:07
+
+<blockquote>KBAC 发表于 2024-3-21 17:26
+鱼浆帮三个人的名字中文版和日文版差异是最大的，我很好奇如果以后游戏里出现了三个人的全名，中文版会怎么 ...</blockquote>
+因为饭田的日文英文名互为反名的，Marina Ida，イイダ・マリネ
+

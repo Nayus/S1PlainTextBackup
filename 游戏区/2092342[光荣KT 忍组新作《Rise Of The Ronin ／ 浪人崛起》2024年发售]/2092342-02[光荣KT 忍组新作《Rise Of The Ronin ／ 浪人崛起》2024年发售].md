@@ -2510,3 +2510,11 @@ vgn的评价还不错
 
 我靠，这看起来有点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  seedees3  
+##### 1748#       发表于 2024-3-21 21:51
+
+既然都有属性附魔武器了，为什么还坚持不做魔幻元素？全是人类敌人有点太单一了，中后期很容易腻
+

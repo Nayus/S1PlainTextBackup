@@ -6761,3 +6761,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Launce  
+##### 2132#       发表于 2024-3-22 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64329116&amp;ptid=2170852" target="_blank">Kojimaru 发表于 2024-3-21 23:16</a>
+
+楼友飞龙突脸是怎么解的，怎么感觉更新后打虫子把把遇到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">远距离点死，冲锋途中死的话就左右飞扑，免得被尸体1换1
+

@@ -2840,3 +2840,11 @@ zp哪来的评测，我看b站号没发啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这三个理由套到怪猎上面也没问题，问题是人家是真的贴近中国玩家了，怎么还怪起消费者了
 
+
+*****
+
+####  duraa  
+##### 1782#       发表于 2024-3-22 00:01
+
+该自己上手喽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

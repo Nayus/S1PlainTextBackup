@@ -7027,3 +7027,11 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 当年只想和你一起离开，<strong>奶茶屋这翻译好甜呀</strong><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  八等绝癔  
+##### 4437#       发表于 2024-3-21 23:58
+
+小剧场最终话传完了 我的任务结束了！
+

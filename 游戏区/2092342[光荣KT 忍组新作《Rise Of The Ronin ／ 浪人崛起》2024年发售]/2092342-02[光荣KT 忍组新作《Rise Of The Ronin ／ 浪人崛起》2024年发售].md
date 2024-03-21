@@ -902,3 +902,24 @@ If you like stories about the Bakumatsu era, this is definitely one of the best 
 恋爱剧情有男女差分吗？</blockquote>
 没提
 
+
+*****
+
+####  karastar  
+##### 1570#       发表于 2024-3-21 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319166&amp;ptid=2092342" target="_blank">hotsmile 发表于 2024-3-21 09:47</a>
+
+我到现在都不懂对马岛为什么只有83，要剧情有剧情，要演出有演出</blockquote>
+浓缩的育碧罐头，比罐头好一些而已
+
+*****
+
+####  Yeelolo  
+##### 1571#       发表于 2024-3-21 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319890&amp;ptid=2092342" target="_blank">karastar 发表于 2024-3-21 10:43</a>
+
+浓缩的育碧罐头，比罐头好一些而已</blockquote>
+开放世界设计比育碧差远了，场景氛围倒是比育碧强不少
+

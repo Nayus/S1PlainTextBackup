@@ -3160,3 +3160,20 @@ Data Lost
 
 折田桑热搜了
 
+
+*****
+
+####  里村紅葉  
+##### 11690#       发表于 2024-3-21 10:46
+
+捏麻麻的，240抽4个五星，3个是歪的<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+棉被王都歪满宝了，拉出去试了下这宝具威力咋这么磕碜<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 11691#       发表于 2024-3-21 10:47
+
+黑蛋糕出来了，下次黑德雷克吧
+

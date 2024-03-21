@@ -7102,3 +7102,17 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 新歌还不错，空帆这名字真好听
 
+
+*****
+
+####  KBAC  
+##### 3691#       发表于 2024-3-21 17:26
+
+鱼浆帮三个人的名字中文版和日文版差异是最大的，我很好奇如果以后游戏里出现了三个人的全名，中文版会怎么翻译<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+目前中文版有全名大概只有鱿鱼干和小姬？
+鱿鱼干：辺目義男➡️鱼干义男
+小姬：ホウズキ・ヒメ➡️酸浆姬
+翻译之后都是和原来差别不大的名字
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

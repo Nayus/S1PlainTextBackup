@@ -2813,3 +2813,22 @@ zp哪来的评测，我看b站号没发啊
 按357的经验最后会变成用一种流派硬打，看起来鼓励更换姿势的设计就会变为限制玩家的弱智设计。 ...</blockquote>
 这种确实得不偿失了，流转紫电全都打不出来的感觉
 
+
+*****
+
+####  karastar  
+##### 1779#       发表于 2024-3-21 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64329195&amp;ptid=2092342" target="_blank">Dorohedoro 发表于 2024-3-21 23:23</a>
+
+忍者组要想要真正重回巅峰，再次拿出忍龙1黑之章这种水平的游戏，首先要做的事情就是远离中文互联网上这群 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那你也拿点好东西出来啊，没有粉丝兜底买仁王你光荣能蹦跶这么久
+
+
+*****
+
+####  Leliel  
+##### 1780#       发表于 2024-3-21 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话说的，忍组啥时候贴近过中文互联网用户
+

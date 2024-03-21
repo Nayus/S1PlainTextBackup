@@ -3150,3 +3150,11 @@ r1 甩刀 回精，忍组还是忘不了仁王，村头这三个忍者的移动�
 
 军刀的般若舞这个武技还蛮好用的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bwsusaga  
+##### 1816#       发表于 2024-3-22 03:01
+
+FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
+

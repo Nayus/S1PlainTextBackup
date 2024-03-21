@@ -2969,3 +2969,28 @@ PS5版500万多少有点不可能了<img src="https://static.saraba1st.com/image
 
 除了UI太丑。
 
+
+*****
+
+####  wzh5555  
+##### 1797#       发表于 2024-3-22 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330124&amp;ptid=2092342" target="_blank">火华火华火 发表于 2024-3-22 01:21</a>
+
+说真的为啥不把石活改到防御键上，△改成重攻击上不好吗
+
+—— 来自 S1Fun</blockquote>
+我觉得是为了让敌人（精英和血刀）AI也能装配石火并对玩家用，解决忍组过去AI抗压只会红光霸体反这个问题，其实本质石火就是一个带弹刀的重攻击，可以用来当连招派生
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1798#       发表于 2024-3-22 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330124&amp;ptid=2092342" target="_blank">火华火华火 发表于 2024-3-22 01:21</a>
+
+说真的为啥不把石活改到防御键上，△改成重攻击上不好吗
+
+—— 来自 S1Fun</blockquote>
+卧龙也是弱智一般把化劲放到圆上，原因很简单，就是忍组不想做重攻击派生，为了他们所谓的大众化简化。
+

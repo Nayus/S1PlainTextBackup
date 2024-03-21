@@ -2354,3 +2354,34 @@ UCG的评测说得委婉 8/10
 https://www.bilibili.com/video/BV1Mm411d7MJ</blockquote>
 看了下，积极探索就会导致主线中等级碾压，数值没调整好？
 
+
+*****
+
+####  RushMove  
+##### 1731#       发表于 2024-3-21 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64327181&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-21 20:41</a>
+ 看了下，积极探索就会导致主线中等级碾压，数值没调整好？</blockquote>
+他玩的是普通难度，觉得数值碾压了可以调高难度
+
+*****
+
+####  seedees3  
+##### 1732#       发表于 2024-3-21 20:50
+
+可能画面太拉把其他部分的印象分也给拖累了，之前看宣传片完全不觉得会连80都不到
+
+*****
+
+####  桥洞底下盖小被  
+##### 1733#       发表于 2024-3-21 20:53
+
+预期是83，没想到这么低，想开下还是玩玩吧，清算安田！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 1734#       发表于 2024-3-21 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">看了UCG的评测，果然方块不能接三角了，简化不是这么做的哦
+

@@ -2034,3 +2034,47 @@ good enough for PlayStation exclusive
 
 只能说打完再评价 真能不如卧龙吗
 
+
+*****
+
+####  灼热的小市民  
+##### 1694#       发表于 2024-3-21 19:50
+
+做不好开放世界就别做，把自己的长处动作做好不好吗？这些日厂天天惦记着做开放世界幻想着大卖500w，反而把自己的长处给丢了
+
+*****
+
+####  ネコカイザー  
+##### 1695#       发表于 2024-3-21 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64326449&amp;ptid=2092342" target="_blank">灼热的小市民 发表于 2024-3-21 19:50</a>
+
+做不好开放世界就别做，把自己的长处动作做好不好吗？这些日厂天天惦记着做开放世界幻想着大卖500w，反而把 ...</blockquote>
+小高跟老任给大家带来了不切实际的幻想 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rainsheep  
+##### 1696#       发表于 2024-3-21 19:54
+
+80都没有确实难绷
+
+
+*****
+
+####  SergeGlenn  
+##### 1697#       发表于 2024-3-21 19:56
+
+<blockquote>ネコカイザー 发表于 2024-3-21 19:52
+小高跟老任给大家带来了不切实际的幻想</blockquote>
+这游戏明摆着幻想的是对马才做的，和老任小高关系不大，对马确实靠中庸的开放世界达成了近千万销量
+
+感觉忍组低估了画面技术面对口碑的影响，还有就是没有足够好的人物故事线
+
+*****
+
+####  黑色的js  
+##### 1698#       发表于 2024-3-21 19:58
+
+这专楼有很多吹的吗 起码我一直在质疑除了动作系统的一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

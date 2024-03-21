@@ -923,3 +923,13 @@ If you like stories about the Bakumatsu era, this is definitely one of the best 
 浓缩的育碧罐头，比罐头好一些而已</blockquote>
 开放世界设计比育碧差远了，场景氛围倒是比育碧强不少
 
+
+*****
+
+####  火华火华火  
+##### 1572#       发表于 2024-3-21 11:03
+
+对马岛比刺客信条好的一点就是没那么长，要是拖成和英灵殿那样评价也不会好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

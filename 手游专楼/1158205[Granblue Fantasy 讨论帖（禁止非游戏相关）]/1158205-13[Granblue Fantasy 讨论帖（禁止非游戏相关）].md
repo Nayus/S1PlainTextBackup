@@ -489,3 +489,34 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 
 方阵3.0还要分批出是最÷的
 
+
+*****
+
+####  syndrome2032  
+##### 17805#       发表于 2024-3-21 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319618&amp;ptid=1158205" target="_blank">usoda 发表于 2024-3-21 10:25</a>
+方阵3.0还要分批出是最÷的</blockquote>
+24号就知道成色了。不过我觉得应该是不如无限7这批，但是比2.0强。
+
+想玩老王还是早点下定决心玩老王。
+
+*****
+
+####  はちたや  
+##### 17806#       发表于 2024-3-21 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319618&amp;ptid=1158205" target="_blank">usoda 发表于 2024-3-21 10:25</a>
+
+方阵3.0还要分批出是最÷的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不仅分批，到时候再给你来个机神武器复刻回，让你重温我们gbf的属性多样性
+
+*****
+
+####  syndrome2032  
+##### 17807#       发表于 2024-3-21 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64320166&amp;ptid=1158205" target="_blank">はちたや 发表于 2024-3-21 10:59</a>
+不仅分批，到时候再给你来个机神武器复刻回，让你重温我们gbf的属性多样性 ...</blockquote>
+比较难。一堆18人的raid，估计应该定位和九柱差不多吧。
+

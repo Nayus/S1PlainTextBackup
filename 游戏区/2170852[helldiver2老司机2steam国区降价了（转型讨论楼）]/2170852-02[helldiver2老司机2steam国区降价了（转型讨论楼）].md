@@ -6473,3 +6473,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wthall  
+##### 2106#       发表于 2024-3-21 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318658&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-3-21 08:56</a>
+
+七级感觉少了很多，第一场一只泰坦都没看到。。九级还是不少的</blockquote>
+并没有，昨天玩6级，只要刷警报就肯定会有一个泰坦刷出来。
+

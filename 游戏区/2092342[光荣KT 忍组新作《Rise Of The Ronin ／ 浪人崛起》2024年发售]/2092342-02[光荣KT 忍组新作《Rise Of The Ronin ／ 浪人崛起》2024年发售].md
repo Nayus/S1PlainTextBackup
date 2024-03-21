@@ -2303,3 +2303,34 @@ FS的审美在业内都是T0级的存在，大家都是膜拜+学习
 
 法环当初喷的是那b优化和支线npc找不到啊，美术在刚到宁姆格福看到黄金树谁不得感叹两句
 
+
+*****
+
+####  ナルバレック  
+##### 1725#       发表于 2024-3-21 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FROM-SOFTWARE  
+##### 1726#       发表于 2024-3-21 20:33
+
+开放世界是得做，但要一步步来吧，先做好几个大型箱庭过渡下，你一个做了几十年关卡的，为了跟风，上了两个开放世界果不其然都扑了。对比capcom，好几个箱庭练手，当时看mhw的地图说实际是能连起来的，就猜后面mh会做开放世界。而即使这样，开放世界打头阵的也是龙信2，而不是mh这个头牌，后面说不定还能看到开放世界的re9。还有打恐龙，也是满满的给pragmata练手的味道。而忍者组练手的东西跟要认真做的都不是一个，那你练什么去了。
+
+*****
+
+####  karastar  
+##### 1727#       发表于 2024-3-21 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64327058&amp;ptid=2092342" target="_blank">ナルバレック 发表于 2024-3-21 20:33</a>
+暗荣上一个游戏是FSR，81分，说起来FSR首周日本卖的比卧龙更多，不过算上后劲和海外市场，就 ...</blockquote>
+fsr是粉丝向游戏，首周核心粉丝贡献的销量多
+
+*****
+
+####  泉美  
+##### 1728#       发表于 2024-3-21 20:37
+
+很明显忍者一直觉得卖得不好是因为战斗系统太复杂。但实际上是除了战斗其他没一样做好的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

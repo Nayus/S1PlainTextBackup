@@ -2563,3 +2563,39 @@ ZP的评测出了，在风云编辑部的号里
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  bwsusaga  
+##### 1753#       发表于 2024-3-21 22:17
+
+从仁王开始我就喜欢在装备界面里看高模的武具，只要角色外观质量不拉跨就还好。
+
+*****
+
+####  TTAA  
+##### 1754#       发表于 2024-3-21 22:18
+
+直播瞄了一眼，从AI反应来看感觉还是地图大一点的魂，一块屋子那么大的战点，屋子那头都开打了，另一头的人还在呆立原地
+
+*****
+
+####  桥洞底下盖小被  
+##### 1755#       发表于 2024-3-21 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64328405&amp;ptid=2092342" target="_blank">rainsheep 发表于 2024-3-21 22:13</a>
+ZP的评测出了，在风云编辑部的号里
+
+—— 来自 vivo V2241A, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+我就知道他消失这么久就是在玩
+
+
+*****
+
+####  刘震云  
+##### 1756#       发表于 2024-3-21 22:22
+
+太离谱了，后面BOSS像天彗龙一样会飞的，还会可爱星星飞天撞，这真的是幕末吗？
+
+太魔幻了了，比抗日奇侠魔幻多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

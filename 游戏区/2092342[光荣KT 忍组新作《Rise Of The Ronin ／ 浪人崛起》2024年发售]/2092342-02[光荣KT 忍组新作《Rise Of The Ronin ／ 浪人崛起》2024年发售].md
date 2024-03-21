@@ -547,3 +547,22 @@ mc没84那就是小于等于卧龙了<img src="https://static.saraba1st.com/imag
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黑色的js  
+##### 1538#       发表于 2024-3-21 07:48
+
+居然试图让我期待忍者组的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火华火华火  
+##### 1539#       发表于 2024-3-21 07:50
+
+剧情太好了 艹
+有仁王2的水平我就满意了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

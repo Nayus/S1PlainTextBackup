@@ -3265,3 +3265,44 @@ Data Lost
 
 礼装方面，情人节送的那个大王礼装也可以，不过因为相伴的是开战时50%NP充满，可能比武藏和摩根母女的差
 
+
+*****
+
+####  exiaexa  
+##### 11696#       发表于 2024-3-21 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64321137&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-21 12:11</a>
+
+主要是伯爵一直高光，所以黑贞反而感觉不到什么
+
+最后退队更是整个复仇者联盟，黑贞存在感更弱化</blockquote>
+黑贞已经是超绝加强了
+
+就像我上面写的，以前就是个地主家的傻闺女，这次终于有点少女感了
+
+只不过前面拿了女兄弟的剧本有点难崩，被玛丽骑脸的时候我还以为这章要当败犬了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11697#       发表于 2024-3-21 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64321180&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-21 12:15</a>
+
+黑贞已经是超绝加强了
+
+就像我上面写的，以前就是个地主家的傻闺女，这次终于有点少女感了</blockquote>
+还不够败，不说玛丽学姐，当全家+玛修挂了之后主角全程复仇者心态，最后还是被莫扎特拉回来的
+
+另外也无法和伯爵比，这次真的是伯爵高光，也看得出樱井真用心还是行的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 11698#       发表于 2024-3-21 12:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">樱井只要不让252那种菌皇随便空降塞点东西进来然后两个人各搞各的，最多也就变成个大纲预设的东西她没反应过来所以干脆作废不用的情况了
+
+她写“合格”的东西是有一套的，指望她写点亮眼的那就是如此期望的人的问题了。奏II有些地方还是有些许蒸汽朋克的味道的，作者精力围绕有群众基础的黑玛丽和新伯爵展开也符合经济利益
+

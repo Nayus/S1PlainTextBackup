@@ -1134,3 +1134,62 @@ acv的开放世界放到三部曲里也是最差的一档了吧，要风景没�
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Yeelolo  
+##### 1594#       发表于 2024-3-21 12:17
+
+我怎么感觉浪人实体降了，淘宝一看又回到520左右了，之前都560了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  clover293  
+##### 1595#       发表于 2024-3-21 12:17
+
+那边聊星空这边聊对马xs
+
+*****
+
+####  clover293  
+##### 1596#       发表于 2024-3-21 12:19
+
+ 本帖最后由 clover293 于 2024-3-21 12:21 编辑 
+
+era大部分人投票认为也就80-84，我感觉甚至可能也就80出头了，70多也有可能。
+
+
+*****
+
+####  葵  
+##### 1597#       发表于 2024-3-21 12:23
+
+你们真是够了，龙信2专楼全在聊星空，浪人专楼全在聊对马岛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  垃圾网站上  
+##### 1598#       发表于 2024-3-21 12:24
+
+这游戏和对马岛关系比龙信2和星空关系可大多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BadYanL  
+##### 1599#       发表于 2024-3-21 12:24
+
+什么阵营的玩家准备玩哪一款游戏，一目了然。
+
+*****
+
+####  Yeelolo  
+##### 1600#       发表于 2024-3-21 12:25
+
+隔壁是怎么搭上星空的？浪人和对马岛好歹都是同题材的开放世界游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

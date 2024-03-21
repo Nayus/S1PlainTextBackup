@@ -6750,3 +6750,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 楼友飞龙突脸是怎么解的，怎么感觉更新后打虫子把把遇到
 
+
+*****
+
+####  airshit  
+##### 2131#       发表于 2024-3-21 23:50
+
+一晚上没带电弧，就不闪退了。
+最后一把朋友不信邪非要带，然后他就闪退了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

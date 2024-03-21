@@ -2832,3 +2832,11 @@ zp哪来的评测，我看b站号没发啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话说的，忍组啥时候贴近过中文互联网用户
 
+
+*****
+
+####  yt5wt2c  
+##### 1781#       发表于 2024-3-21 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这三个理由套到怪猎上面也没问题，问题是人家是真的贴近中国玩家了，怎么还怪起消费者了
+

@@ -3402,3 +3402,40 @@ SMT或persona的味道很重</blockquote>
 
 混挺好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11708#       发表于 2024-3-21 23:53
+
+没人注意能带回老家自己房间拍照嘛
+
+大量拍
+
+3F12EA70-18FB-495C-9D65-01ACA6730259.jpeg
+(356.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 23:53 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/235307ea251h2sf7eyi050.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+407D885D-3153-4A9C-86C3-A0CFBE54A4E5.jpeg
+(319.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 23:53 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/235307p27m374rrmgg2emm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
+(368.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 23:53 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/235308g9c2i5hv2tj3ucb5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

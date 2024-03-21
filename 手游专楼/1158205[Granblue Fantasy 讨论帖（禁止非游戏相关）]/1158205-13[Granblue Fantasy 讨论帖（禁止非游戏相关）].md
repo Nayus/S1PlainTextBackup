@@ -528,3 +528,13 @@ fa的话 显然是4匕首更强，只是目前这个赛道很窄没有什么投�
 
 主要是要掉3个武器，想都不用想必然有一个是产废，甚至2个都有可能，农起来别提有多恶心了，真的不想再来一次18年那会儿的体验<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 17809#       发表于 2024-3-21 11:14
+
+肯定两产废，然后加1.0掉落恶心你啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+这没啥好说的。反正参照九柱武器肯定还有觉醒等级的，快速毕业也没用，觉醒等级还要吃人头呢，安心多坐牢农球吧。
+

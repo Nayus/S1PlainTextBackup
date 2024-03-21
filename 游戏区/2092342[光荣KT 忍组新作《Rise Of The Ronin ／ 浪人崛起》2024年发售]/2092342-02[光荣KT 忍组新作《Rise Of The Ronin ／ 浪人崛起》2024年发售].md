@@ -955,3 +955,51 @@ If you like stories about the Bakumatsu era, this is definitely one of the best 
 
 忍组再怎么拉跨简化，也不会只有4个换皮兵种在那反复刷新吧，这一点至少我可以放心。
 
+
+*****
+
+####  霖岚_  
+##### 1575#       发表于 2024-3-21 11:15
+
+对马岛我倒是全程拉困难难度，不潜行就硬刚时扔战鬼道具+抽弓箭子弹时间爆头+近战切架势对敌全都得用上感觉还是挺有意思的，没感觉跟谭友说的那么不堪……
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">倒是这几天打仁王2，一直用轻武器打连招全是霸体怪只能战技复读有点烦了，开始狂扔忍术+长柄武器风筝打法求稳过图就行，一周目打了大半开始有点腻味了
+
+*****
+
+####  hkguty  
+##### 1576#       发表于 2024-3-21 11:18
+
+对马岛是爆杀ACV的，同时期两个我都打通了，对马岛2分数肯定比1代更高，这次档期不知能不能跟ACred正面刚
+
+*****
+
+####  Yeelolo  
+##### 1577#       发表于 2024-3-21 11:20
+
+薄纱acv也太扯了，开放世界差acv不是一点半点好吧
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Yeelolo  
+##### 1578#       发表于 2024-3-21 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64320311&amp;ptid=2092342" target="_blank">hentianwuya 发表于 2024-3-21 11:10</a>
+对马岛的罐头我觉得分数还给高了，全靠它的美术拉分，我还玩的是PS5的导演剪辑版，最开始我选择的困难难度 ...</blockquote>
+光武器就不止4种了，敌人变种肯定是比4种多的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  popchong  
+##### 1579#       发表于 2024-3-21 11:22
+
+ 本帖最后由 popchong 于 2024-3-21 11:23 编辑 
+
+对马岛主要是手感调的不错，尤其是PS5版的震动，先去DLC拿了穿猿神套再回本岛，爽到白金还是没问题的。
+
+ACV还是手感太差了，英国风景差又没有奇观，主线又臭又长。
+

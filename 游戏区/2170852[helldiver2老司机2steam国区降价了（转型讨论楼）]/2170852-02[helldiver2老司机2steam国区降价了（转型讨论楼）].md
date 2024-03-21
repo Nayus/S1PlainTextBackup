@@ -6797,3 +6797,13 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 箭头这也太拉了吧，这种恶性bug直接回滚版本不行吗
 
+
+*****
+
+####  Launce  
+##### 2136#       发表于 2024-3-22 07:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞龙警戒范围和时间数据大概多少，搁老远就直冲我这侦查甲了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

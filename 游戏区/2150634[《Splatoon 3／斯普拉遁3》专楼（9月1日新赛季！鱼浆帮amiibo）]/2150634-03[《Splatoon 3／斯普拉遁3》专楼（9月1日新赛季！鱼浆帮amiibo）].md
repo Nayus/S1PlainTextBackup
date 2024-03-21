@@ -7049,3 +7049,13 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  martinium  
+##### 3686#       发表于 2024-3-21 08:16
+
+滚筒活动挺好的，就是金字塔感觉可以换成游乐园或者船厂
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

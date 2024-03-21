@@ -3141,3 +3141,14 @@ Data Lost
 
 虽然知道是假，但大小碧和玛修惨死的cg还是有冲击性的
 
+
+*****
+
+####  森兰丸  
+##### 11688#       发表于 2024-3-21 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318279&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-21 08:00</a>
+
+好像要用礼装配合打？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不清楚反正我后备放个黑杯公主再用一颗蓝石强杀了....石头不用也是浪费
+

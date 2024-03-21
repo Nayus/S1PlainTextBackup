@@ -2940,3 +2940,32 @@ PS5版500万多少有点不可能了<img src="https://static.saraba1st.com/image
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这下要想下是否退盘等崩价
 
+
+*****
+
+####  Moltres.lv70  
+##### 1794#       发表于 2024-3-22 01:17
+
+动作还是很爽 切肉还是很爽 稳了
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  火华火华火  
+##### 1795#       发表于 2024-3-22 01:21
+
+说真的为啥不把石活改到防御键上，△改成重攻击上不好吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  病態極端  
+##### 1796#       发表于 2024-3-22 01:23
+
+越雲越不明白到底哪裡能扣3分。
+
+除了UI太丑。
+

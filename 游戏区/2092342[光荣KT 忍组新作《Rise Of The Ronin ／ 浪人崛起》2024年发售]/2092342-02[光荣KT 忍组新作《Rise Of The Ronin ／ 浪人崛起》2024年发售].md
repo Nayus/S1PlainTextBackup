@@ -1068,3 +1068,57 @@ ACV还是手感太差了，英国风景差又没有奇观，主线又臭又长�
 
 对马岛本来没抱什么期待结果初见还挺惊艳，美术演出氛围战斗都很棒，刺客就是腻中腻买都不想买
 
+
+*****
+
+####  Yeelolo  
+##### 1587#       发表于 2024-3-21 11:46
+
+ 本帖最后由 Yeelolo 于 2024-3-21 11:48 编辑 
+
+越扯越远了，还是来期待浪人开放世界能有育碧几成功力吧，毕竟育碧在泥潭开放世界里算垫底那档了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑色的js  
+##### 1588#       发表于 2024-3-21 11:47
+
+对马岛一开头一结尾的演出做得太美了，印象分都加了不少
+
+*****
+
+####  violettor  
+##### 1589#       发表于 2024-3-21 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64320434&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-21 11:20</a>
+ 薄纱acv也太扯了，开放世界差acv不是一点半点好吧  —— 来自 vivo V2324A, Android 14上的 S1Next-鹅版 v2 ...</blockquote>
+acv的开放世界放到三部曲里也是最差的一档了吧，要风景没风景，要人文没人文，一马平川的原野平铺几个poi，关卡设计就是换着法子开锁。。战斗系统倒是比对马岛好玩。
+
+*****
+
+####  Yeelolo  
+##### 1590#       发表于 2024-3-21 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64320798&amp;ptid=2092342" target="_blank">violettor 发表于 2024-3-21 11:48</a>
+acv的开放世界放到三部曲里也是最差的一档了吧，要风景没风景，要人文没人文，一马平川的原野平铺几个poi ...</blockquote>
+我也没说acv场景比对马岛好，acv场景氛围感比对马岛差远了，但是地图设计不比对马岛就几个破村子，据点像乱摆的一样好多了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赤尸藏人  
+##### 1591#       发表于 2024-3-21 11:49
+
+啥时候上PC？
+
+
+*****
+
+####  woaimiyabi  
+##### 1592#       发表于 2024-3-21 11:54
+
+英灵殿地图设计虽然平原也多，但是据点和地牢然后城市设计 确实比对马岛强。
+

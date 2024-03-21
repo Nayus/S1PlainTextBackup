@@ -3063,3 +3063,81 @@ Data Lost
 想起来2. ...</blockquote>
 好像要用礼装配合打？
 
+
+*****
+
+####  布伦史塔德  
+##### 11684#       发表于 2024-3-21 08:08
+
+<img src="https://img.saraba1st.com/forum/202403/21/080814n5zqphqeb3z5dk5z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 08:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/080819j2zu6cx29kcdy22h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 08:08 上传
+
+*****
+
+####  布伦史塔德  
+##### 11685#       发表于 2024-3-21 08:10
+
+ 本帖最后由 布伦史塔德 于 2024-3-21 08:11 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/21/080916khxgxyk6ysv0yf0x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (147.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 08:09 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/080918bcf9ffikh7y6q8qu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (149 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 08:09 上传
+
+感觉自己被fw螺旋狗pua了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+居然觉得螺旋狗做了《面对特定敌人的特殊攻击动作》是个大进步
+
+<img src="https://img.saraba1st.com/forum/202403/21/081119s6bbsqlzhymh6cbs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (254.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 08:11 上传
+
+
+*****
+
+####  布伦史塔德  
+##### 11686#       发表于 2024-3-21 08:13
+
+<img src="https://img.saraba1st.com/forum/202403/21/081353ldu4uuttptqdhu57.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 08:13 上传
+
+*****
+
+####  cenhr  
+##### 11687#       发表于 2024-3-21 08:14
+
+虽然知道是假，但大小碧和玛修惨死的cg还是有冲击性的
+

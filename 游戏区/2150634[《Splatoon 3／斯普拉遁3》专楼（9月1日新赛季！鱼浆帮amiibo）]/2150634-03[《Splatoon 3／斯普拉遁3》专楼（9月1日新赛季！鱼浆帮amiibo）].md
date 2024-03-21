@@ -7116,3 +7116,23 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 3692#       发表于 2024-3-21 17:45
+
+第一次知道鱼浆帮的真名
+
+*****
+
+####  实津二三  
+##### 3693#       发表于 2024-3-21 17:48
+
+查了下，原来这三个人的全名是：
+曼蛇 太郎喜左衛門宗清
+頬白 楓火
+翁長 空帆
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">……怎么说呢真的好有日本味的名字。
+

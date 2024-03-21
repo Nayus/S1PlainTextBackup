@@ -1122,3 +1122,15 @@ acv的开放世界放到三部曲里也是最差的一档了吧，要风景没�
 
 英灵殿地图设计虽然平原也多，但是据点和地牢然后城市设计 确实比对马岛强。
 
+
+*****
+
+####  Yeelolo  
+##### 1593#       发表于 2024-3-21 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64320818&amp;ptid=2092342" target="_blank">赤尸藏人 发表于 2024-3-21 11:49</a>
+啥时候上PC？</blockquote>
+卖的不好八成半年就上pc了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

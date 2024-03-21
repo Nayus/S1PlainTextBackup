@@ -3329,3 +3329,16 @@ Data Lost
 这起手拥有异能的主角在与正常世界隔绝的异界和怪物战斗碰到误闯的普通人。设定也太现代异能战斗厕 ...</blockquote>
 SMT或persona的味道很重<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11701#       发表于 2024-3-21 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318320&amp;ptid=2084912" target="_blank">布伦史塔德 发表于 2024-3-21 08:10</a>
+
+感觉自己被fw螺旋狗pua了
+
+居然觉得螺旋狗做了《面对特定敌人的特殊攻击动作》是个大进步</blockquote>
+劍版和法版都會插眼
+

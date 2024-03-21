@@ -7083,3 +7083,14 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 3689#       发表于 2024-3-21 17:07
+
+祭典新对战曲是莎莎曼曼把鬼福甩了跑去和触手姐妹Battle<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+两个人用的名义是空帆&amp;楓火，这是偶像的汉字名第一次在日文版游戏里出现吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

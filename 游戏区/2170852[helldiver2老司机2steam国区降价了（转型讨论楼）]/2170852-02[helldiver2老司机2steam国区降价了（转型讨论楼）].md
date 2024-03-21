@@ -6772,3 +6772,11 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 楼友飞龙突脸是怎么解的，怎么感觉更新后打虫子把把遇到</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">远距离点死，冲锋途中死的话就左右飞扑，免得被尸体1换1
 
+
+*****
+
+####  FLZB  
+##### 2133#       发表于 2024-3-22 00:09
+
+所谓修复机甲自爆就是现在火箭弹只能直着射出去，箭头太牛逼喇，修复的神，这下机甲直接废了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

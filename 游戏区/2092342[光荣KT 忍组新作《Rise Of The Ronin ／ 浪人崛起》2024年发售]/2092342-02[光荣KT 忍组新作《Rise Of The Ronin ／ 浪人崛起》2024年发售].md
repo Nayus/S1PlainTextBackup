@@ -2848,3 +2848,18 @@ zp哪来的评测，我看b站号没发啊
 
 该自己上手喽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  seedees3  
+##### 1783#       发表于 2024-3-22 00:09
+
+说归说，我依然觉得PS5版500万还是没问题的，接下来卖多少要看后续更新怎么样
+
+*****
+
+####  Booorunestud  
+##### 1784#       发表于 2024-3-22 00:13
+
+唉ff7上完摩天轮了，开打
+

@@ -4182,3 +4182,12 @@ S29的Spin prime在第三发前就做了。接下来是等6发静点。如果是
 
 <img src="https://img.saraba1st.com/forum/202403/21/155649z8c8cfc2rh8e2fah.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的川川仔  
+##### 522#       发表于 2024-3-21 16:02
+
+0级肯定还是没定性要改的，那些裸露的管线就不是个事，但不是当务之急。
+说不定最终影响星舰大规模发射的就是第0级的建设速度，太复杂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

@@ -11796,3 +11796,15 @@ QQ图片20240320175741.jpg
 
 圣羊鼓
 
+
+*****
+
+####  stygian  
+##### 14335#       发表于 2024-3-21 14:48
+
+学了下sovits怎么玩，弄了个烂活
+
+灯声线都是半死不活基本不吼，我想弄点正经screamo全都失败效果很差，先拿tricot玩玩，女声好弄<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+【tricot - おやすみ(MyGO!!!!! ver.)】 [https://www.bilibili.com/video/B ... 0bdb04b5c35d009d541](https://www.bilibili.com/video/BV162421P7Ep/?share_source=copy_web&amp;vd_source=0ee7cdb0c30e70bdb04b5c35d009d541)
+

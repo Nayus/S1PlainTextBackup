@@ -3318,3 +3318,14 @@ Data Lost
 
 黑贞附体也搞的像轻小说危机之时觉醒的感觉，搞的我好出戏啊。
 
+
+*****
+
+####  cenhr  
+##### 11700#       发表于 2024-3-21 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322276&amp;ptid=2084912" target="_blank">v22325 发表于 2024-3-21 13:57</a>
+
+这起手拥有异能的主角在与正常世界隔绝的异界和怪物战斗碰到误闯的普通人。设定也太现代异能战斗厕 ...</blockquote>
+SMT或persona的味道很重<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

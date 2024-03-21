@@ -1302,3 +1302,16 @@ era大部分人投票认为也就80-84，我感觉甚至可能也就80出头了�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Yeelolo  
+##### 1613#       发表于 2024-3-21 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322793&amp;ptid=2092342" target="_blank">陈词与芍药 发表于 2024-3-21 14:48</a>
+等会7点会有主播直播浪人，这是索尼的任务
+剧情的话我体感大于等于仁王2吧</blockquote>
+都和仁王2差不多了，我有点担心了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

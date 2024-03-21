@@ -4156,3 +4156,29 @@ S29的Spin prime在第三发前就做了。接下来是等6发静点。如果是
 
 射得好女士后面还说计划今年完成入轨、释放卫星和回收两级。
 
+
+*****
+
+####  四号舰美浓  
+##### 521#       发表于 2024-3-21 15:57
+
+发射台状态不太好。
+
+1711007464519.jpg
+(819.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 15:56 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/155647ph7siszu77z7vt2i.jpg" referrerpolicy="no-referrer">
+
+1711007477176.jpg
+(454.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 15:56 上传
+
+<img src="https://img.saraba1st.com/forum/202403/21/155649z8c8cfc2rh8e2fah.jpg" referrerpolicy="no-referrer">
+

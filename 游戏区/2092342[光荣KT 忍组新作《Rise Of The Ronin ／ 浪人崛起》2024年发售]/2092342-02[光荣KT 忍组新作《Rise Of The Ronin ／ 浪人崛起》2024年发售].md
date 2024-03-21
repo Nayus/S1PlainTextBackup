@@ -2738,3 +2738,21 @@ zp哪来的评测，我看b站号没发啊
 —— 来自 S1Fun</blockquote>
 挂在风云编辑部下面了
 
+
+*****
+
+####  hugosol  
+##### 1772#       发表于 2024-3-21 23:04
+
+看了几个测评，期待拉满，已经预购了，希望难度不要太低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MuramasaSP  
+##### 1773#       发表于 2024-3-21 23:16
+
+有人知道可否重新捏脸吗，想着12点先进去玩半个小时睡觉，后面再细调捏脸。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

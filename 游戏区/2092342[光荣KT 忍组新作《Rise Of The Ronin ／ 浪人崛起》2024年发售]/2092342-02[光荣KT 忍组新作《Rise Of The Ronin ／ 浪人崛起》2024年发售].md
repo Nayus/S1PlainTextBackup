@@ -1424,3 +1424,170 @@ img_3114.jpg
 
 还有这经典装备词条继承要素，又可以刷刷刷了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ネコカイザー  
+##### 1621#       发表于 2024-3-21 18:58
+
+<img src="https://img.saraba1st.com/forum/202403/21/185850zlsw8x0hqxn8jje0.png" referrerpolicy="no-referrer">
+
+<strong>P4{0(6DKGUUN{(I7EZZ}P)K.png</strong> (23.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 18:58 上传
+
+*****
+
+####  Gigax  
+##### 1622#       发表于 2024-3-21 18:59
+
+寄！
+
+
+*****
+
+####  黑酒杯  
+##### 1623#       发表于 2024-3-21 19:00
+
+寄，下次还是乖乖做关卡制吧
+
+*****
+
+####  Horusddt  
+##### 1624#       发表于 2024-3-21 19:00
+
+77也太难蚌了
+
+*****
+
+####  hentianwuya  
+##### 1625#       发表于 2024-3-21 19:01
+
+比TM卧龙还低？我不敢相信自己的眼睛，到底有什么问题啊？优化吗？
+
+*****
+
+####  BK10  
+##### 1626#       发表于 2024-3-21 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64325695&amp;ptid=2092342" target="_blank">hentianwuya 发表于 2024-3-21 19:01</a>
+
+比TM卧龙还低？我不敢相信自己的眼睛，到底有什么问题啊？优化吗？</blockquote>
+开放世界垃圾的不行两个媒体预览都在骂，为啥觉得不扣分，最垃圾的一档，别人又不是按忍组粉丝给分的
+
+*****
+
+####  godless2020  
+##### 1627#       发表于 2024-3-21 19:02
+
+《浪人崛起》是开发了《仁王》与《忍者龙剑传》的动作游戏名门Team NINJA带来的全新作品，不但故事背景设置在幕末时代，更是工作室首次开发的开放世界作品。但首次挑战同样也意味着生疏与粗糙，虽然动作有保证，但开放世界的构筑仍然欠缺火候，剧情也让人失望（8/10分）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 1628#       发表于 2024-3-21 19:02
+
+只能是开放世界突破下限，而且战斗系统简化丢失了仁王的优势面吧
+
+*****
+
+####  桥洞底下盖小被  
+##### 1629#       发表于 2024-3-21 19:03
+
+寄中寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">安田和小弟一起跳海吧
+
+*****
+
+####  FuckSCUT  
+##### 1630#       发表于 2024-3-21 19:03
+
+这开放世界得多垃圾啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 1631#       发表于 2024-3-21 19:04
+
+龙信2小赢
+
+*****
+
+####  黑色的js  
+##### 1632#       发表于 2024-3-21 19:04
+
+g<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过还得亲自品尝一下
+
+*****
+
+####  kuglv  
+##### 1633#       发表于 2024-3-21 19:05
+
+不是说剧情好到不像是忍组写的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑酒杯  
+##### 1634#       发表于 2024-3-21 19:05
+
+国内媒体专门说了剧本不太行
+
+*****
+
+####  性兽阿怪  
+##### 1635#       发表于 2024-3-21 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">寄！今晚十二点要试试看到底能拉到什么程度
+
+*****
+
+####  nagitoY  
+##### 1636#       发表于 2024-3-21 19:05
+
+刚下单ps5<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等一个光碟价格血崩
+
+*****
+
+####  banjia0815  
+##### 1637#       发表于 2024-3-21 19:05
+
+寄咯<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仿身泪滴  
+##### 1638#       发表于 2024-3-21 19:05
+
+偷跑大哥呢，出来说说话<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 1639#         楼主| 发表于 2024-3-21 19:06
+
+IGN/GS 7：
+[https://www.ign.com/articles/rise-of-the-ronin-review](https://www.ign.com/articles/rise-of-the-ronin-review)
+[https://www.gamespot.com/reviews ... tment/1900-6418202/](https://www.gamespot.com/reviews/rise-of-the-ronin-review-long-term-investment/1900-6418202/)
+
+MC：
+[https://www.metacritic.com/game/rise-of-the-ronin/](https://www.metacritic.com/game/rise-of-the-ronin/)
+
+*****
+
+####  Chiralium  
+##### 1640#       发表于 2024-3-21 19:06
+
+这下不如卧龙了
+
+
+*****
+
+####  duraa  
+##### 1641#       发表于 2024-3-21 19:07
+
+笑死，G
+

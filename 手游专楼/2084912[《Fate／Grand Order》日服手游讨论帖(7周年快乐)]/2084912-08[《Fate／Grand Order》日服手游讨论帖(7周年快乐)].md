@@ -3342,3 +3342,11 @@ SMT或persona的味道很重<img src="https://static.saraba1st.com/image/smiley/
 居然觉得螺旋狗做了《面对特定敌人的特殊攻击动作》是个大进步</blockquote>
 劍版和法版都會插眼
 
+
+*****
+
+####  qixinno2  
+##### 11702#       发表于 2024-3-21 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一关就纯卖家骗局 助战伯爵一个宝具轰出350W+伤害
+

@@ -6439,3 +6439,37 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  jy000129  
+##### 2103#       发表于 2024-3-21 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64307507&amp;ptid=2170852" target="_blank">wthall 发表于 2024-3-20 10:24</a>
+日常是要打2个湮灭坦克的任务。完全提不起兴趣去打。。。还没有泰坦那样的专门的狩猎任务，哎 ...</blockquote>
+4人防守难9图，迫击炮和380带好，第一波用迫击炮，守不住后轮流丢380，坦克管够<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只要不想着上飞机稳稳过关还能完成任务
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Benighted  
+##### 2104#       发表于 2024-3-21 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318582&amp;ptid=2170852" target="_blank">bladethunder 发表于 2024-3-21 08:48</a>
+
+但是更新后昨晚感觉虫子任务变简单了啊，数量少了很多
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next ...</blockquote>
+七级感觉少了很多，第一场一只泰坦都没看到。。九级还是不少的
+
+
+*****
+
+####  jy000129  
+##### 2105#       发表于 2024-3-21 09:00
+
+打飞龙带激光狗杀的很快，带上电枪和激光狗，你就是杀虫最靓的仔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

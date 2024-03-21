@@ -6734,3 +6734,11 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rgauss  
+##### 2129#       发表于 2024-3-21 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">死了游戏直接崩溃了 我服了
+

@@ -2705,3 +2705,36 @@ zp评价还可以啊，流派这个系统挺有意思</blockquote>
 看了几家测评，目前一个问题好像是天地人有明确的克制关系，克制对石火增益巨大。那么在战斗中用流转来切段 ...</blockquote>
 按357的经验最后会变成用一种流派硬打，看起来鼓励更换姿势的设计就会变为限制玩家的弱智设计。
 
+
+*****
+
+####  Dorohedoro  
+##### 1769#       发表于 2024-3-21 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64327062&amp;ptid=2092342" target="_blank">FROM-SOFTWARE 发表于 2024-3-21 20:33</a>
+
+开放世界是得做，但要一步步来吧，先做好几个大型箱庭过渡下，你一个做了几十年关卡的，为了跟风，上了两个 ...</blockquote>
+为啥说的好像开放世界是多高级的东西一样，欧美罐头的地图设计一泡污不照样没完没了造开放世界，浪人只不过是做了一个非常欧美罐头的开放世界而已，所以也理所应当的拿了一个欧美罐头水平的评分
+
+*****
+
+####  火华火华火  
+##### 1770#       发表于 2024-3-21 22:55
+
+zp哪来的评测，我看b站号没发啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  WhiteGlint  
+##### 1771#       发表于 2024-3-21 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64328913&amp;ptid=2092342" target="_blank">火华火华火 发表于 2024-3-21 22:55</a>
+
+zp哪来的评测，我看b站号没发啊
+
+—— 来自 S1Fun</blockquote>
+挂在风云编辑部下面了
+

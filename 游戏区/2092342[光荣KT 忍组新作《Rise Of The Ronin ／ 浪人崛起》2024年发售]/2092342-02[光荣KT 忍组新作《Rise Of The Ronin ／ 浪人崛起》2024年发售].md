@@ -736,3 +736,28 @@ DOA剧情可以PASS，但是每个角色单独的CG都非常棒，像4代蛇女�
 
 忍者套，这次不是“隼流”忍者了，换了个真实存在的幕末人物“沢村甚三郎”
 
+
+*****
+
+####  duraa  
+##### 1556#       发表于 2024-3-21 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318630&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-21 08:53</a>
+没有说有多结局 只说了主角没有能力改变历史走向 只能选择自己加入的分支势力 ...</blockquote>
+but completing certain side missions related to the main narrative or centering on an important character will help steer the overall adventure toward one of several endings. 
+
+出处：
+[https://www.gameinformer.com/pre ... e-you-shouldnt-kill](https://www.gameinformer.com/preview/2023/12/19/team-ninja-discusses-crafting-its-first-open-world-where-you-shouldnt-kill)
+
+*****
+
+####  bwsusaga  
+##### 1557#       发表于 2024-3-21 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318929&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-21 09:28</a>
+
+忍者套，这次不是“隼”忍者了，换了个原型真实存在的幕末人物“沢村甚三郎”
+
+完成他的支线也是预购特典 ...</blockquote>
+记的有一部忍者题材的漫画，主角是个老头，好像就叫这个名字。
+

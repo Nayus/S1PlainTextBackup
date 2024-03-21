@@ -6530,3 +6530,35 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Launce  
+##### 2111#       发表于 2024-3-21 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318948&amp;ptid=2170852" target="_blank">白玫瑰之夜 发表于 2024-3-21 09:29</a>
+
+鬼佬是这样的，昨天进了一把难九三个队友落地就在嗯打虫子，最后三个虫卵点全是我一个人清的，其他三个加 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">目前排到的老外都属于正常级别的，默认3+1或者2+2，个别情况是4人都在散开跑，难啃的主线目标都默契的靠过去清理。只不过随着那群喊着不要独狼的等级上来，估计我也很难单排到这种好队伍了
+
+*****
+
+####  smdzh2  
+##### 2112#       发表于 2024-3-21 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64318839&amp;ptid=2170852" target="_blank">airshit 发表于 2024-3-21 10:17</a>
+这个飞虫是不是会叫警报的
+
+昨天难7，落地正好落在这个附近。开局打了十分钟，怪越打越多，增员次数都用完了 ...</blockquote>
+鬼佬是这样的，很多情况下明明分散站位更合适，非要stick together mates！然后一行人被三四只坦克虫撞得东倒西歪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你看不下去了绕后去做任务还会被玻璃心房主狠狠地t出<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mengsu  
+##### 2113#       发表于 2024-3-21 09:36
+
+9级独狼体感刷怪少了不少，连成对的泰坦都没怎么见了。
+
+飞虫巢倒是拿筒子也能炸，不过两发炸掉一个蘑菇有点浪费了。
+

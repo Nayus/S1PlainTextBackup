@@ -2890,3 +2890,11 @@ PS5版500万多少有点不可能了<img src="https://static.saraba1st.com/image
 
 这个捏脸怎么感觉变差了，怎么捏怎么难看<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 1788#       发表于 2024-3-22 00:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我现在的问题是.....振刀没有残心那样的提示没有用的习惯，只能慢慢刻意去记了
+

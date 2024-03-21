@@ -183,3 +183,12 @@
 但我感觉绿龙和黑豹还挺稳的</blockquote>
 你的问题出在不信任apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4044#       发表于 2024-3-22 00:45
+
+小蜜蜂综合下来也算3-0里比较稳妥的选项了吧，纸面实力够强，容易走的更远，首场对手也不像faze和x队之类的硬碰硬。只是没想到火仔都这么久了还是选择不当人。
+剩下几支队伍，老鼠要不是宝蓝连着爆发了两局估计也走远了，navi甚至差点被蒙古吃掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过0:3和G2的3:0目前为止还存活，接下来蒙古加油拿下小蜜蜂我的0:3是有可能全对的，拿不下估计最多对一个了。
+

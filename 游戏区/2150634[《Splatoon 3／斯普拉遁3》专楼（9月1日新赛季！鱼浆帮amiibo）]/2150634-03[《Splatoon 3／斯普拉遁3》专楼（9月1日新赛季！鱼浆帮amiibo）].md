@@ -7160,3 +7160,16 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 鱼浆帮三个人的名字中文版和日文版差异是最大的，我很好奇如果以后游戏里出现了三个人的全名，中文版会怎么 ...</blockquote>
 因为饭田的日文英文名互为反名的，Marina Ida，イイダ・マリネ
 
+
+*****
+
+####  KBAC  
+##### 3696#       发表于 2024-3-21 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64325103&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-3-21 18:07</a>
+因为饭田的日文英文名互为反名的，Marina Ida，イイダ・マリネ</blockquote>
+可能并不是互为反名，饭田全名是イイダ＝マリネ，用了连字符而不是中点，即使是写成イイダ・マリネ，也不一定代表姓在后名在前。
+（和饭田一起的水田全名是ミズタ アハト，中间没有符号，就是很普通的日本人名写法了，可以推测水田是姓）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

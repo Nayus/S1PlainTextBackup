@@ -2078,3 +2078,85 @@ good enough for PlayStation exclusive
 
 这专楼有很多吹的吗 起码我一直在质疑除了动作系统的一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 1699#       发表于 2024-3-21 19:58
+
+这.....不就寄了？80都不到属实南蚌，忍组上一个不到80的游戏FF0还能理解为简陋
+
+*****
+
+####  karastar  
+##### 1700#       发表于 2024-3-21 20:00
+
+我的预期就是仁王2+低配开放世界，看评语也没有超出预期。
+
+*****
+
+####  Emmerich  
+##### 1701#       发表于 2024-3-21 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64326113&amp;ptid=2092342" target="_blank">FROM-SOFTWARE 发表于 2024-3-21 19:27</a>
+
+我在这看狗蛋，说了句“我看看sony的评测指南”，原来现在游戏都有官方的评测指南了？ ...</blockquote>
+已经有了很久了 性质和以前的说明书差不多 简单点的会讲解系统玩法 多的会把大致流程告诉你防迷路 最重要的内容是告诉媒体解禁时间 能用哪些录制的素材 
+
+*****
+
+####  jy000129  
+##### 1702#       发表于 2024-3-21 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥潭反买
+
+*****
+
+####  kangkangsama  
+##### 1703#       发表于 2024-3-21 20:02
+
+说实话我不信！ 明天上手证明白皮懂个P
+
+*****
+
+####  TTAA  
+##### 1704#       发表于 2024-3-21 20:04
+
+我一直很谨慎看媒体评分，忍龙2媒体均分80分也不妨碍他是伟大的游戏，但这个77还是看乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MuramasaSP  
+##### 1705#       发表于 2024-3-21 20:04
+
+真的有那么差吗，我游戏玩得少，开放世界烂又能烂到什么地步啊，法环把箱庭去了光留个大地图感觉也能玩啊。
+
+*****
+
+####  Leliel  
+##### 1706#       发表于 2024-3-21 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么实体还没降价呀
+
+*****
+
+####  Yeelolo  
+##### 1707#       发表于 2024-3-21 20:06
+
+反正我等实体降价了，520我觉得不值<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rainsheep  
+##### 1708#       发表于 2024-3-21 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64326627&amp;ptid=2092342" target="_blank">MuramasaSP 发表于 2024-3-21 20:04</a>
+
+真的有那么差吗，我游戏玩得少，开放世界烂又能烂到什么地步啊，法环把箱庭去了光留个大地图感觉也能玩啊。 ...</blockquote>
+fs社什么美术水平，你忍者组什么美术水平<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+而且欧美媒体对于环的开放世界评价可不是烂
+

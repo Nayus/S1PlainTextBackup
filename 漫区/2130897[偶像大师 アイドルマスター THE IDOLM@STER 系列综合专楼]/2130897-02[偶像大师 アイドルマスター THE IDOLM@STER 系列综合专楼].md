@@ -14035,3 +14035,24 @@ voy@ger真没想到
 
 来个炫彩p头
 
+
+*****
+
+####  tsukatsukieiko  
+##### 2877#       发表于 2024-3-21 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64313600&amp;ptid=2130897" target="_blank">Srchy 发表于 2024-3-20 18:14</a>
+
+喜多川海梦看起来挺潮的，这个没有8分相像也有7分了怎么就那么普呢</blockquote>
+对标海梦那直接上あかせあかり就是了，怕不是比她还便宜。
+
+*****
+
+####  Seeley  
+##### 2878#       发表于 2024-3-21 20:05
+
+白毛suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+应该是九人里立绘最吸引我的了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

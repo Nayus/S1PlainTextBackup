@@ -1003,3 +1003,48 @@ If you like stories about the Bakumatsu era, this is definitely one of the best 
 
 ACV还是手感太差了，英国风景差又没有奇观，主线又臭又长。
 
+
+*****
+
+####  垃圾网站上  
+##### 1580#       发表于 2024-3-21 11:26
+
+对马岛敌人种类少是真，第三章完全就没新敌人了，但玩法比较自由，主要是点数不卡你，也没有等级限制，装备组合带来的区分度很大；刺客的战斗丰富度比对马岛还是差不少
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kemyes  
+##### 1581#       发表于 2024-3-21 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64320372&amp;ptid=2092342" target="_blank">霖岚_ 发表于 2024-3-21 11:15</a>
+
+对马岛我倒是全程拉困难难度，不潜行就硬刚时扔战鬼道具+抽弓箭子弹时间爆头+近战切架势对敌全都得用上感觉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">多用用妖怪技衔接连招，妖怪技能兼具打断、上异常、打精力条等功能，仁王2的核心就是削精力条/妖力条，不过就是有点学习成本，能搞明白这套其实很多怪都基本还不了手的（弱点破坏、属性异常、混沌、空精、打断、妖反等控制）。
+
+*****
+
+####  leafS  
+##### 1582#       发表于 2024-3-21 11:28
+
+对马岛要是没有那个美术拉分，我估计玩家评分真不咋的，但是就这美术和氛围，目前看确实独一家
+
+*****
+
+####  Mr.Hopp  
+##### 1583#       发表于 2024-3-21 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319166&amp;ptid=2092342" target="_blank">hotsmile 发表于 2024-3-21 09:47</a>
+
+我到现在都不懂对马岛为什么只有83，要剧情有剧情，要演出有演出</blockquote>
+欺负制作组罢了
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1584#       发表于 2024-3-21 11:32
+
+反正对马岛我能打通，ACV我打折入了黄金版就打了个序章就不想玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

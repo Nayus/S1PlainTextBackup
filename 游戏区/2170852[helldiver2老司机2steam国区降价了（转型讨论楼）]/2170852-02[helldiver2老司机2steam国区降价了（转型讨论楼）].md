@@ -6703,3 +6703,16 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 —— 来自 S1Fun ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">STEAM社区最新的补丁评论区凌晨1点左右就光速锁了，没有摸鱼！！
 
+
+*****
+
+####  Launce  
+##### 2126#       发表于 2024-3-21 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64324111&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-03-21 16:48:40</a>
+打泰坦太慢了，打牛好像不能烫头
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的  v2.5.4 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克虫头是重甲，激光炮只是中甲穿透
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

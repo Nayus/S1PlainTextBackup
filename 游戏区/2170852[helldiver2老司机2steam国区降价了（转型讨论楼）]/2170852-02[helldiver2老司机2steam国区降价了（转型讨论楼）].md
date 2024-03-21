@@ -6626,3 +6626,21 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 日常是要打2个湮灭坦克的任务。完全提不起兴趣去打。。。还没有泰坦那样的专门的狩猎任务，哎 ...</blockquote>
 机器人坦克简单的，基本高级点的图区一把就能完成了。
 
+
+*****
+
+####  Launce  
+##### 2120#       发表于 2024-3-21 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322012&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-3-21 13:31</a>
+
+说起来现在激光炮能打哪些东西，看8秒一个飞龙塔说明输出还是很高的
+
+—— 来自 HUAWEI WLZ-AL10, Android  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">上打泰坦，下打杂兵，中打坦克虫
+
+打是能打，好不好用就另一回事
+
+【惊了！LAS-98激光大炮加强后测试各种可打击的目标《地狱潜兵2》测试篇】 [https://www.bilibili.com/video/BV11r421n74T](https://www.bilibili.com/video/BV11r421n74T)
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以关注下这UP，有不少测试和教学视频
+

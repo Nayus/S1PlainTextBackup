@@ -1267,3 +1267,38 @@ era大部分人投票认为也就80-84，我感觉甚至可能也就80出头了�
 
 索尼你说句话啊！<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 1610#       发表于 2024-3-21 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322512&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-21 14:21</a>
+
+索尼宣发真的很迷惑，目前游戏信息全靠偷跑，索尼就像AV里瘫痪在床但神智清醒的老公
+
+索尼你说句话啊！[f:00 ...</blockquote>
+虽然吉姆已经下位了，但是其实吉姆上任后索索的宣发一直很短和寸止，不过吉姆时代地推还是凶的，浪人海外地推不知道啥情况
+
+
+*****
+
+####  yt5wt2c  
+##### 1611#       发表于 2024-3-21 14:46
+
+夸剧情我是没想到的，难道是大友启史起作用了
+
+*****
+
+####  陈词与芍药  
+##### 1612#       发表于 2024-3-21 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322512&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-21 02:21</a>
+索尼宣发真的很迷惑，目前游戏信息全靠偷跑，索尼就像AV里瘫痪在床但神智清醒的老公
+
+索尼你说句话啊！[f:00 ...</blockquote>
+等会7点会有主播直播浪人，这是索尼的任务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+剧情的话我体感大于等于仁王2吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

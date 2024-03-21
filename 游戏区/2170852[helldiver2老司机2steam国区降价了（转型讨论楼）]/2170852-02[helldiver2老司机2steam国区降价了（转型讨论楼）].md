@@ -6602,3 +6602,16 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  xinfengj  
+##### 2118#       发表于 2024-3-21 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322012&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-3-21 13:31</a>
+
+说起来现在激光炮能打哪些东西，看8秒一个飞龙塔说明输出还是很高的
+
+—— 来自 HUAWEI WLZ-AL10, Android  ...</blockquote>
+有中甲穿透，中甲单位都能打了，但是单体伤害。打成队的虫子没有榴弹效率，打机器人不如大狙打的准也没有在弹雨里长时间照射的时间窗口
+

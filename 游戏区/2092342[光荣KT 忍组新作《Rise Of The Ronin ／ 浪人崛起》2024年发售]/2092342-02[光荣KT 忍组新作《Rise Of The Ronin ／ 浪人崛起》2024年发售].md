@@ -761,3 +761,67 @@ but completing certain side missions related to the main narrative or centering 
 完成他的支线也是预购特典 ...</blockquote>
 记的有一部忍者题材的漫画，主角是个老头，好像就叫这个名字。
 
+
+*****
+
+####  popchong  
+##### 1558#       发表于 2024-3-21 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319082&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2024-3-21 09:40</a>
+
+记的有一部忍者题材的漫画，主角是个老头，好像就叫这个名字。</blockquote>
+搜了下，说是潜入过黑船
+
+<img src="https://img.saraba1st.com/forum/202403/21/094725v3tjy9mt9nutdnnh.jpg" referrerpolicy="no-referrer">
+
+<strong>EEw1sm_UcAAb8Up.jpg</strong> (434.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 09:47 上传
+
+*****
+
+####  hotsmile  
+##### 1559#       发表于 2024-3-21 09:47
+
+我到现在都不懂对马岛为什么只有83，要剧情有剧情，要演出有演出
+
+*****
+
+####  lazycat233  
+##### 1560#       发表于 2024-3-21 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319166&amp;ptid=2092342" target="_blank">hotsmile 发表于 2024-3-21 09:47</a>
+我到现在都不懂对马岛为什么只有83，要剧情有剧情，要演出有演出</blockquote>
+跟蜘蛛侠比没有ip加持
+
+
+*****
+
+####  雾生司  
+##### 1561#       发表于 2024-3-21 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319074&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-21 09:39</a>
+
+but completing certain side missions related to the main narrative or centering on an important ch ...</blockquote>
+这篇有点太早了我之前也看过,但是最近几篇包括最早那篇法米通的基本都没提过有结局分支这个事情。
+
+
+*****
+
+####  病態極端  
+##### 1562#       发表于 2024-3-21 09:52
+
+ 本帖最后由 病態極端 于 2024-3-21 09:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64319166&amp;ptid=2092342" target="_blank">hotsmile 发表于 2024-3-21 09:47</a>
+
+我到现在都不懂对马岛为什么只有83，要剧情有剧情，要演出有演出</blockquote>
+對馬島被媒體罵是罐頭了
+ <blockquote>70 Metro GameCentral
+
+A competent but shallow and overfamiliar attempt to replicate Assassin’s Creed style open world adventure</blockquote><blockquote>70 GameSpot 
+
+The game hits a lot of fantastic cinematic highs, and those ultimately lift it above the trappings of its familiar open-world quest design </blockquote>
+只能說大多遊戲媒體的評側跟看雲玩家發彈幕沒什麼兩樣。
+

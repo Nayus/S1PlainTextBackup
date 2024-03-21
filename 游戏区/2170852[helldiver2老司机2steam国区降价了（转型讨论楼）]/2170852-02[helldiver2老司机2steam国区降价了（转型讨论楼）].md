@@ -6662,3 +6662,16 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 2123#       发表于 2024-3-21 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64322012&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-3-21 13:31</a>
+
+说起来现在激光炮能打哪些东西，看8秒一个飞龙塔说明输出还是很高的
+
+—— 来自 HUAWEI WLZ-AL10, Android  ...</blockquote>
+主要打机器人，炮塔坦克巨型者滋起来很快，针对中大型目标dps非常高，但缺点是必须站稳瞄准保持持续输出
+

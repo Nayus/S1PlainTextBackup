@@ -13927,3 +13927,14 @@ voy@ger真没想到
 
 感觉还是海梦更辣一些 可惜她cv已经参加了其他偶像项目不可能进imas了
 
+
+*****
+
+####  信长的呕吐  
+##### 2866#       发表于 2024-3-21 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64314337&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-3-20 19:26</a>
+你这一说查了查是没搜着，黑历史动画也没他
+奇怪</blockquote>
+查了下876的广播剧里有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

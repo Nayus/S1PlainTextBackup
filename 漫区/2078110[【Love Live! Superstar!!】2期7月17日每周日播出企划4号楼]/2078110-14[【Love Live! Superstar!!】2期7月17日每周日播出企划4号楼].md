@@ -1174,3 +1174,21 @@ K组输麻，运营要把她们当弃子不妨直说<img src="https://static.sar
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  starring  
+##### 19827#       发表于 2024-3-21 16:42
+
+恋一副欲求不满的表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+画风特征很明显，这次立绘是斎藤画的
+
+<img src="https://img.saraba1st.com/forum/202403/21/164052gn3838r83r55xz3v.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-hr3iZfT3cSrs-jp.jpg</strong> (155.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-21 16:40 上传
+

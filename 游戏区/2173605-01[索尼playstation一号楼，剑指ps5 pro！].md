@@ -1348,3 +1348,11 @@ PS5上30帧的<strong>新</strong>游戏现在就哥谭骑士、灵媒、采石�
 7500f那是留给ps6的，现在用了那ps6用什么?</blockquote>
 PS6起码Zen6了，Zen5下半年就有，而Pro怎么也得再撑三年吧
 
+
+*****
+
+####  nagitoY  
+##### 312#       发表于 2024-3-21 20:13
+
+想问下游戏光碟的港版日版美版有什么区别。刚在淘宝问浪人的碟，商家说日版没中文<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

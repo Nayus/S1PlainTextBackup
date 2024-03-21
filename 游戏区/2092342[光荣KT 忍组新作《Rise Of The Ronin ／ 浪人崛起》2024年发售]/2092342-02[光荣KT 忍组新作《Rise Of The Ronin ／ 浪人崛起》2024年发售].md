@@ -2160,3 +2160,66 @@ fs社什么美术水平，你忍者组什么美术水平<img src="https://static
 
 而且欧美媒体对于环的开放世界评价可不是烂
 
+
+*****
+
+####  千秋难诉  
+##### 1709#       发表于 2024-3-21 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64307106&amp;ptid=2092342" target="_blank">雾生司 发表于 2024-3-20 09:49</a>
+
+https://www.famitsu.com/news/202305/29303505.html
+
+去年5月的一篇采访文</blockquote>
+品，细品
+
+*****
+
+####  horacio  
+##### 1710#       发表于 2024-3-21 20:11
+
+我也先退了，我买的还是540，本以为是个仁王3，先等兄弟们试毒了
+
+*****
+
+####  黑修士  
+##### 1711#       发表于 2024-3-21 20:12
+
+UCG的评测说得委婉 8/10
+[https://www.bilibili.com/video/BV1Mm411d7MJ](https://www.bilibili.com/video/BV1Mm411d7MJ)
+
+好不好玩明天上手就知道了
+
+*****
+
+####  xzzfft  
+##### 1712#       发表于 2024-3-21 20:13
+
+开放世界成了kt的梦魇，做一个死一个后续还会接着做么？
+
+*****
+
+####  karastar  
+##### 1713#       发表于 2024-3-21 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64326751&amp;ptid=2092342" target="_blank">xzzfft 发表于 2024-3-21 20:13</a>
+开放世界成了kt的梦魇，做一个死一个后续还会接着做么？</blockquote>
+大势所趋，不得不做
+
+
+*****
+
+####  Ashice  
+##### 1714#       发表于 2024-3-21 20:17
+
+忍者组可能想破脑袋也想不明白对马岛为啥受欢迎吧
+
+我也想不明白为什么忍者组觉得幕末历史就会受欢迎呢
+
+*****
+
+####  SergeGlenn  
+##### 1715#       发表于 2024-3-21 20:17
+
+草马云上看到500出头的，点进去一看还是4月中旬发，下不去手啊
+

@@ -7193,3 +7193,15 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 本来觉得这次配置还行，但是没时间打挺可惜的，但是最后尾工还是抽时间打了几盘，emm，只能说没掉分，香槟废手又拉，没刷子光蝇又不行
 
+
+*****
+
+####  KBAC  
+##### 3699#       发表于 2024-3-21 22:50
+
+日文版：空帆&amp;楓火
+英文版：Fire &amp; Ice
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

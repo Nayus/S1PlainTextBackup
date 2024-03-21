@@ -3103,3 +3103,25 @@ r1 甩刀 回精，忍组还是忘不了仁王，村头这三个忍者的移动�
 
 口hold的蓄力攻击单出和派生是不同招式，派生一般带后退回避动作，这不就是传统三角派生挪了下键位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外石火的手感非常舒适
 
+
+*****
+
+####  duraa  
+##### 1810#       发表于 2024-3-22 02:04
+
+我觉得FFO的一键最强装备是好文明，后面好像都没沿袭<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  violettor  
+##### 1811#       发表于 2024-3-22 02:06
+
+话说豪华版和预购特典怎么领取啊，我都已经见过发明家了还是没有解锁特典
+
+*****
+
+####  Bani82  
+##### 1812#       发表于 2024-3-22 02:09
+
+手感怎么感觉不如仁王？可能我上手选的武器问题？
+

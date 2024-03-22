@@ -3719,3 +3719,24 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 话说强化武技下面有个烈风强化，这个烈风是指啥啊，没看明白</blockquote>
 烈风就是是切流派的紫电
 
+
+*****
+
+####  duraa  
+##### 1878#       发表于 2024-3-22 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334911&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-3-22 12:47</a>
+
+烈风就是是切流派的紫电</blockquote>
+怎么按出来呢，我看没教学啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">攻击过程中切流派好像没反应
+
+*****
+
+####  Yeelolo  
+##### 1879#       发表于 2024-3-22 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334911&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-3-22 12:47</a>
+
+烈风就是是切流派的紫电</blockquote>
+那就是仁王的流转？
+

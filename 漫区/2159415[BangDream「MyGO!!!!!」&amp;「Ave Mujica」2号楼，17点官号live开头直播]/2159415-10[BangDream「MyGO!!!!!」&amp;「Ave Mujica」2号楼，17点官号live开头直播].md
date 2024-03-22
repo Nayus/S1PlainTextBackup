@@ -12223,3 +12223,11 @@ Bushiroad将于今夏以「Bushiroad Expo 2024」的形式参展BilibiliWorld 20
 
 真的是信泽？他终于放弃邪神脸了吗<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14373#       发表于 2024-3-22 12:47
+
+可能是因为这次都是45度侧脸刚好避开那几个经典邪神角度了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

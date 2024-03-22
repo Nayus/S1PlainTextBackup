@@ -1436,3 +1436,11 @@ PS6起码Zen6了，Zen5下半年就有，而Pro怎么也得再撑三年吧
 进了啊，现在还能玩吧</blockquote>
 确实进了，记岔了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 321#       发表于 2024-3-22 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">本身地平线2的ps4/5版的兑换码咸鱼就30多块啊，ps4都能凑合玩了
+

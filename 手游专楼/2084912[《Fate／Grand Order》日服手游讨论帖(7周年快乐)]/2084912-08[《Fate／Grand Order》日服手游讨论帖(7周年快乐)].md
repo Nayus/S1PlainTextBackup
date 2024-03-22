@@ -3630,3 +3630,49 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 这种老卡都没有我只能理解为是你对角色的爱不足了....都不知道复刻多少次了吧 ...</blockquote>
 我每次都抽的！她不出啊！
 
+
+*****
+
+####  cenhr  
+##### 11726#       发表于 2024-3-22 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333059&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-3-22 10:50</a>
+
+那是必然，你看伯爵都把后事拜托给阿比了，最终章必然是要来一波阿比通过泡泡（时间和空间宝石）把奏章ba ...</blockquote>
+当年阿贞不是在打老盖时玩过一次了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 11727#       发表于 2024-3-22 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333138&amp;ptid=2084912" target="_blank">v22325 发表于 2024-3-22 10:55</a>
+
+我每次都抽的！她不出啊！
+
+前后攒起来现在都能出个保底了，真的没缘分，反而有些想着一发意思意思 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你的大人的魔法卡片呢！
+
+*****
+
+####  洛克萨斯  
+##### 11728#       发表于 2024-3-22 11:04
+
+丑御前这算是刚入职迦勒底就外派失联？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 11729#       发表于 2024-3-22 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333129&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-3-22 10:55</a>
+
+落地一个黑玛丽氪金榜又轻轻松松的爬到了第一
+
+收工了再去哪里找这种摇钱树.....运营要真敢抱着这 ...</blockquote>
+这周竞争对手只有马娘上了个不是很强的新卡莱茵卡夫特以及Nikke的Re0联动吧，外加DQ WALK周四出了新活动，小众游戏还有个FF7EC出了周年萨，弹珠棒球什么的都还没出手
+
+这几年的问题还是在第一呆不住太长时间了（当年随便一个刑部姬都登一礼拜）+登顶走的量比起自家的巅峰时代也完全不够看了+自家开发编制尾大不掉&amp;在家办公效率低下导致利润率大幅度降低
+
+手游现在要不要继续还是取决于投入产出比（不是有能登顶的流水就一定利润很高的，DQ达伊手游就是个例子），外加去年开始横尾太郎手下几部手游风光大葬很大程度上改变了业界的看法
+

@@ -11999,3 +11999,15 @@ syl，ansy那个语音是真甜，什么时候来点鸡的cp饲料，怎么配�
 以后角色厨之间只会吵的更多，因为本质还是鸡没什么新料了狗这边也肉眼可见的不会太过推进关系，论坛只能不停车轱辘导致各个群体之间火气不断的积攒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 syl，这次的事本质就是爱音新卡面剧情不符合大众预期产生的
 
+
+*****
+
+####  基神的强袭自由  
+##### 14351#       发表于 2024-3-22 08:10
+
+这次剧情看的过程挺乐的但是细想还是典型的贴标签（至少对狗团五人是贴标签，老团剧情都很舒服），rikki是ag推所以就被ag轻松拿下，ano爱慕虚荣所以一开始不想去但是听到pp也在所以改变主意蹭大牌，soyo那段虽然细想可以理解但是观感真的很差，包括ano只管把人拉来不负责介绍社交自己溜走这件事放在现实生活中也很讨人嫌，明明这些槽点都可以很柔和地解决的只能说编剧没这能力
+
+https://tieba.baidu.com/p/8944959079?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=73A561F3FCBFE59E6F18397FC87F1A79&amp;st=1711066233&amp;client_type=1&amp;client_version=12.57.1.0&amp;sfc=copy&amp;share_from=post
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

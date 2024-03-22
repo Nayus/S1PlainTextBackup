@@ -6807,3 +6807,11 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  pwzzy  
+##### 2137#       发表于 2024-3-22 08:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚玩，才12级，先解锁的镰刀，带个榴弹遇到坦克就抓瞎，现在带的一次性筒子，因为还没500kg和激光只能靠筒子来对付重甲，但是一次送两发下来独狼基本浪费一发。想问问这个阶段有更好的配装选择吗
+

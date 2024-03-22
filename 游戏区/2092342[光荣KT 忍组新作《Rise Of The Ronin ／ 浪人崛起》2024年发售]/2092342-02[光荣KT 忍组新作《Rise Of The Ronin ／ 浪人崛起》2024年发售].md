@@ -3273,3 +3273,11 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个画面绷不住了，等打折吧
 
+
+*****
+
+####  刘震云  
+##### 1830#       发表于 2024-3-22 08:03
+
+是直播的关系吗？我实机画面还可以啊，刚玩完序章，就是仁王水准啊
+

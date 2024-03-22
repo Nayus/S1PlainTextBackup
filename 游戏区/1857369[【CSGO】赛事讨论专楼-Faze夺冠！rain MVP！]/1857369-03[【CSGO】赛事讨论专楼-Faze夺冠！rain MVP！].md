@@ -319,3 +319,11 @@ nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smi
 
 faze都要去1-2了，是真没想到
 
+
+*****
+
+####  heseran  
+##### 4059#       发表于 2024-3-22 21:42
+
+12:1也太惨了吧，真就只给一分啊
+

@@ -3849,3 +3849,16 @@ FGO坑爹程度翻个倍也到不了这个程度
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cenhr  
+##### 11745#       发表于 2024-3-22 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64340678&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-3-22 19:44</a>
+
+是这样，而且先是从迦勒底的咕哒回归到原来日常的咕哒，再到失去了日常，这代入感真是拉满，所以这 ...</blockquote>
+更重要的是难得这次是对复仇这件事不只是持有负面意见。带着仇恨去战斗没有错，复仇成功也真的很爽，但一个为了未来而战的人不应该带着消极的心态去战斗
+
+不知其他人，但这点说服了我
+

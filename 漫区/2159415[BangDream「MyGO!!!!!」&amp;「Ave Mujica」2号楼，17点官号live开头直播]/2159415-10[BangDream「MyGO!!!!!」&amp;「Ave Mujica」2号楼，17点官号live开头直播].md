@@ -12393,3 +12393,13 @@ test
 
 2024-3-22 19:55 上传
 
+
+*****
+
+####  最强惠酱  
+##### 14390#       发表于 2024-3-22 20:05
+
+有机会看了大阪场，可能现场加成，有点羊gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

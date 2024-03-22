@@ -3676,3 +3676,14 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 
 手游现在要不要继续还是取决于投入产出比（不是有能登顶的流水就一定利润很高的，DQ达伊手游就是个例子），外加去年开始横尾太郎手下几部手游风光大葬很大程度上改变了业界的看法
 
+
+*****
+
+####  cenhr  
+##### 11730#       发表于 2024-3-22 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333340&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-22 11:08</a>
+
+这周竞争对手只有马娘上了个不是很强的新卡莱茵卡夫特以及Nikke的Re0联动吧，外加DQ WALK周四出了新活动 ...</blockquote>
+有业界改变的实际例子吗？长寿手游除FGO外还有及格，例如GBF10年和隔壁P&amp;D怎么还不收工？
+

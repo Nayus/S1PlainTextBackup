@@ -6893,3 +6893,13 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 刚玩，才12级，先解锁的镰刀，带个榴弹遇到坦克就抓瞎，现在带的一次性筒子，因为还没500kg和激光只 ...</blockquote>
 12级遇到坦克就买个飞鹰空袭吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，到20级你就会发现20级和50级带的其实没差
 
+
+*****
+
+####  Hqchan  
+##### 2145#       发表于 2024-3-22 11:33
+
+难6守点就遇到过一次刷两泰坦了，吓得我滚回难4慢慢刷级了
+
+现在发现换了个星球，难4的吐酸虫也开始多起来了。这玩意我觉得比强袭虫还猛，刷的多又硬，吐酸的伤害还比强袭虫撞人高多了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

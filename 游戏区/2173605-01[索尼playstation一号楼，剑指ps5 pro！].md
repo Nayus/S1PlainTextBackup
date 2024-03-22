@@ -1444,3 +1444,11 @@ PS6起码Zen6了，Zen5下半年就有，而Pro怎么也得再撑三年吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">本身地平线2的ps4/5版的兑换码咸鱼就30多块啊，ps4都能凑合玩了
 
+
+*****
+
+####  hu794  
+##### 322#       发表于 2024-3-22 11:04
+
+财年硬件目标应该可以完成吧？
+

@@ -277,3 +277,13 @@ nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smi
 玩机器和不少解说第一轮作业都拉了吧，哥们儿还能冲击钻石币小蜜蜂确实该拉的时候不拉，该硬的时 ...</blockquote>
 0-3死了好多人吧，而且APEK和ENCE的拉跨确实没想到
 
+
+*****
+
+####  heseran  
+##### 4054#       发表于 2024-3-22 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332665&amp;ptid=1857369" target="_blank">银月术士329 发表于 2024-3-22 10:26</a>
+0-3死了好多人吧，而且APEK和ENCE的拉跨确实没想到</blockquote>
+0:3我也全错了，黑豹也菜啊，上来被lvg干了一把，大多数人的0:3直接错一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

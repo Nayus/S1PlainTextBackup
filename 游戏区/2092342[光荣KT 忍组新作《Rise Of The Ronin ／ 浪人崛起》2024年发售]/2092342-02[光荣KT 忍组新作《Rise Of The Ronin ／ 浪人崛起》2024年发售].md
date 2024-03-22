@@ -4387,3 +4387,11 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 被二天一流教做人<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 1947#       发表于 2024-3-23 01:09
+
+二天一流是宫本武藏的流派吧，幕末谁在用来着
+

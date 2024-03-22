@@ -12630,3 +12630,13 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
 
 [https://twitter.com/Bullfalk/status/1771209416702050335/photo/1](https://twitter.com/Bullfalk/status/1771209416702050335/photo/1)
 
+
+*****
+
+####  基神的强袭自由  
+##### 14412#       发表于 2024-3-23 01:11
+
+长颈鸽汉化组mygo类的活动翻译播放量基本都能破万，其他团就只有几千，有什么头绪吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

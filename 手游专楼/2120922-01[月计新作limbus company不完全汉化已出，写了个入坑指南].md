@@ -109,3 +109,26 @@
 
 新的播报员是小夫、内莉（呼啸山庄的管家）和潜水达人samjo。
 
+
+*****
+
+####  实验性  
+##### 603#       发表于 2024-3-22 19:00
+
+在没有每周额外奖励的情况下，困难地牢和普通地牢通关结算的通行证经验是一样的吗？
+
+—— 来自 OnePlus PJA110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  erratic璃月  
+##### 604#       发表于 2024-3-22 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64340108&amp;ptid=2120922" target="_blank">实验性 发表于 2024-3-22 19:00</a>
+
+在没有每周额外奖励的情况下，困难地牢和普通地牢通关结算的通行证经验是一样的吗？
+
+—— 来自 OnePlus PJ ...</blockquote>
+一样的，打普通镜就可以<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

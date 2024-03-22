@@ -3439,3 +3439,17 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 
 <img src="https://img.saraba1st.com/forum/202403/21/235308g9c2i5hv2tj3ucb5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 11709#       发表于 2024-3-22 07:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花了两天终于通了....这运营还真敢让所有仇阶都享受武藏待遇啊
+
+既然现在仇阶都下船了那新的伯爵还准备不准备落地了....模组技能宝具都做好了总不会不出了吧
+
+还有刚落地的黑玛丽也是落地即失业吗
+
+最后还是搞不懂这召唤式为啥会擅自提前把耀星哈桑给召唤出来....看样子和主线也没什么关系啊
+

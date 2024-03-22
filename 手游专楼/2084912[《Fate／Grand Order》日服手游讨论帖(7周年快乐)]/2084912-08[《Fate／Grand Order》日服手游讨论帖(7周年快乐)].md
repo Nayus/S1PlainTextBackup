@@ -3956,3 +3956,18 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 短短几幕的黑玛丽塑造的不错，这种坏女人真有魅力，对主角若近若离，关心也带敌意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sesuna  
+##### 11755#       发表于 2024-3-23 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64342976&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-3-22 23:00</a>
+
+应该和黑玛丽一样两套召唤语音，一套通奏二前，一套通奏二后，和黑玛丽一样图鉴里大概率不会link lost，理 ...</blockquote>
+通了的路过说一下
+
+除了最后出现的复仇者联盟之外,其他的复仇者不会显示link lost
+
+比较特殊的是黑贞泳装也是跟着本体一起link lost了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

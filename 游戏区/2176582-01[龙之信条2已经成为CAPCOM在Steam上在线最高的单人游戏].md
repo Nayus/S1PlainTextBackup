@@ -1162,3 +1162,14 @@ re引擎所谓的优化好一是小场景，二是人不多
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  NBGI  
+##### 124#       发表于 2024-3-23 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64336393&amp;ptid=2176582" target="_blank">skgaminger1988 发表于 2024-3-22 14:37</a>
+
+这次龙信2内购被重点喷不是因为制作人自己嘴贱为了玩家体验才不给便利性，结果便利性做成内购拿来卖吗。属 ...</blockquote>
+又不是卖飞石，这破基石没用啊，应该直接卖无限飞石！
+

@@ -842,3 +842,113 @@ RE引擎优化真的好吗,至少我感觉画面是真不行,虚幻5秒了</bloc
 帕鲁都是虚幻5,别太妖魔化虚幻....要是卡婊的re能吊打虚幻,卡婊早就大吹特吹了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么举例帕鲁，帕鲁用unity也能做，还有世界第一游戏原神，unity一定很牛逼吧，卡普空下一作就用unity吧
 
+
+*****
+
+####  izayoi39  
+##### 93#       发表于 2024-3-22 13:17
+
+re引擎擅长的是小场景制作，生化里也是碰到大场景就会各种掉帧，再加上制作人脑子抽了放了1000+的npc，那优化难度就是指数级的上升，当年大bug都死在海量npc上了，就别说卡普空这开放世界都没做过的了
+
+*****
+
+####  绿色食品  
+##### 94#       发表于 2024-3-22 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335236&amp;ptid=2176582" target="_blank">karastar 发表于 2024-3-22 13:12</a>
+
+为什么举例帕鲁，帕鲁用unity也能做，还有世界第一游戏原神，unity一定很牛逼吧，卡普空下一作就 ...</blockquote>
+我的意思是引擎在使用困难上是没啥门槛的,选择引擎就是个厂商做的决定,还有龙信2都这样了,嘴一句虚幻怎么了? 不懂为啥提原神 unity 我提帕鲁纯粹是因为最近火而且是小制作,画面也在小成本下做的不错了(不是美术
+
+*****
+
+####  zxlice  
+##### 95#       发表于 2024-3-22 13:19
+
+有内购没问题啊，但是你不要拿来跟制作人说的东西矛盾啊，现在感觉就是花了钱到底是不体验制作人所吹嘘的沉浸感，还是花了钱避免吃屎？
+
+
+*****
+
+####  电磁炮233  
+##### 96#       发表于 2024-3-22 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335172&amp;ptid=2176582" target="_blank">ddwhzh 发表于 2024-3-22 13:07</a>
+
+日常卖经验药水本来就是🐎都不要了，狂战传说你不买经验加成跑个图试试，早该给差评了。 ...</blockquote>
+但是狂战传说PC版可以CE开十倍速跑图享受飞一样的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ギナ  
+##### 97#       发表于 2024-3-22 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335236&amp;ptid=2176582" target="_blank">karastar 发表于 2024-3-22 13:12</a>
+为什么举例帕鲁，帕鲁用unity也能做，还有世界第一游戏原神，unity一定很牛逼吧，卡普空下一作就 ...</blockquote>
+帕鲁用unity还真做不出现在这效果，至于拿原神举例就更离谱了，除了鸭厂粉丝外我是真看不出原神这拉跨的技术力有啥好吹的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+而且虚幻5用得明白的也不少，波兰人就有能hold住的，连万代也能用虚幻5做出铁拳8，拿re引擎来碰瓷虚幻5属于鸡蛋碰石头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  karastar  
+##### 98#       发表于 2024-3-22 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335333&amp;ptid=2176582" target="_blank">绿色食品 发表于 2024-3-22 13:18</a>
+
+我的意思是引擎在使用困难上是没啥门槛的,选择引擎就是个厂商做的决定,还有龙信2都这样了,嘴一句虚幻怎么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有没有可能虚幻5要做卡普空的游戏需要改造的东西很多效率上不如自家引擎。有没与可能帕鲁的要求不超过虚幻5的范围，unity能爆改出原神，不代表人人都能用好。虚幻5能做帕鲁不代表能符合卡普空的要求。
+
+*****
+
+####  karastar  
+##### 99#       发表于 2024-3-22 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335370&amp;ptid=2176582" target="_blank">ギナ 发表于 2024-3-22 13:21</a>
+
+帕鲁用unity还真做不出现在这效果，至于拿原神举例就更离谱了，除了鸭厂粉丝外我是真看不出原神这拉跨的 ...</blockquote>
+有没有可能我没说re比虚幻5好，引擎只看合不合适。
+
+*****
+
+####  绿色食品  
+##### 100#       发表于 2024-3-22 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335384&amp;ptid=2176582" target="_blank">karastar 发表于 2024-3-22 13:22</a>
+
+有没有可能虚幻5要做卡普空的游戏需要改造的东西很多效率上不如自家引擎。有没与可能帕鲁的要求不 ...</blockquote>
+龙信2都垃成这样了,没必要护了吧,还是说游戏优化垃圾和引擎没关系?
+
+*****
+
+####  karastar  
+##### 101#       发表于 2024-3-22 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335403&amp;ptid=2176582" target="_blank">绿色食品 发表于 2024-3-22 13:24</a>
+
+龙信2都垃成这样了,没必要护了吧,还是说游戏优化垃圾和引擎没关系?</blockquote>
+虚幻5引擎必出神游，虚幻5出品必属精品是吧，你要不要给每个用虚幻5的垃圾游戏辩护<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿色食品  
+##### 102#       发表于 2024-3-22 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335434&amp;ptid=2176582" target="_blank">karastar 发表于 2024-3-22 13:25</a>
+
+虚幻5引擎必出神游，虚幻5出品必属精品是吧，你要不要给每个用虚幻5的垃圾游戏辩护 ...</blockquote>
+你举例啊,我跟你一起喷,别虚空高潮
+
+*****
+
+####  ギナ  
+##### 103#       发表于 2024-3-22 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335395&amp;ptid=2176582" target="_blank">karastar 发表于 2024-3-22 13:23</a>
+有没有可能我没说re比虚幻5好，引擎只看合不合适。</blockquote>
+但是你回复的那人也没说让卡婊改用虚幻5啊，他只是吐槽re引擎天天吹优化好然后这次翻大车，而且画面还被虚幻5秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

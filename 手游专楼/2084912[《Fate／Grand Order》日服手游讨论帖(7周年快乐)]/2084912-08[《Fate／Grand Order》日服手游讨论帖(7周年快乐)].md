@@ -3745,3 +3745,16 @@ GBF的pro们已经被调教成母猪了，拿GBF举例子那是一点道理都�
 
 syl 第二部完结也是一种收工<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11736#       发表于 2024-3-22 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334007&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-22 11:46</a>
+
+GBF的pro们已经被调教成母猪了，拿GBF举例子那是一点道理都没有的
+
+换成你游大概就是，你咕咕咕了两年回来， ...</blockquote>
+GBF只要不是要头等舱还真没啥。我弃坑了1年多回去老队伍还是能用，FGO洗洗睡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

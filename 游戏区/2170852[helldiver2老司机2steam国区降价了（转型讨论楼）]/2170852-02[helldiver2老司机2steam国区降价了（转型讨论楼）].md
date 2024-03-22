@@ -6939,3 +6939,14 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 现在发现换了个星球，难4的吐酸虫也开始多起来 ...</blockquote>
 带龟壳盾+榴弹/电弧，你就是毒爆虫的爹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ivly  
+##### 2149#       发表于 2024-3-22 13:20
+
+老司机的匹配环境要开始变粪坑了，野匹开始乱杀人了
+https://b23.tv/c6mn5Nq
+
+—— 来自 TCL T612B, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3784,3 +3784,23 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 强制霸体+红光反就是顶级懒逼设计，忍组下一作再这样搞试试看呢
 
+
+*****
+
+####  nagitoY  
+##### 1885#       发表于 2024-3-22 13:24
+
+<blockquote>[ Yeelolo replied on 2024-3-22 12:45](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334885&amp;ptid=2092342) 昨天晚上云了一晚上直播，最后又买回来了 </blockquote>
+还有500左右的港版光碟吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  Yeelolo  
+##### 1886#       发表于 2024-3-22 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335401&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-22 13:24</a>
+还有500左右的港版光碟吗</blockquote>
+我直接数字版了，和光盘一个价<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不考虑回血的事了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

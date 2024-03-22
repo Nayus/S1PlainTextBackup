@@ -86,3 +86,13 @@ Wildwood Primalist装备护符来获得随机的其他进阶的弱化版天赋
 
 问一下，在国内要玩外服是不是必须要有梯子？
 
+
+*****
+
+####  wuuuuuud  
+##### 1372#       发表于 2024-3-23 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64345338&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2024-3-23 07:15</a>
+问一下，在国内要玩外服是不是必须要有梯子？</blockquote>
+最好有，单看延迟到日本和新加坡都还好，但不开加速器的话有时一卡一卡的影响手感，也不是不能玩。
+

@@ -6860,3 +6860,25 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 机甲火箭只能打同一水平线 那守点不是废了 什么傻逼设计
 
+
+*****
+
+####  Mr.Hopp  
+##### 2142#       发表于 2024-3-22 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331368&amp;ptid=2170852" target="_blank">yujohn 发表于 2024-3-22 08:51</a>
+
+机甲火箭只能打同一水平线 那守点不是废了 什么傻逼设计</blockquote>
+泰坦本来就高位，火箭还是能打，牛等他过来也能打就是了。
+
+
+*****
+
+####  丹德里恩  
+##### 2143#       发表于 2024-3-22 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331029&amp;ptid=2170852" target="_blank">pwzzy 发表于 2024-3-22 08:11</a>
+
+刚玩，才12级，先解锁的镰刀，带个榴弹遇到坦克就抓瞎，现在带的一次性筒子，因为还没500kg和激光只 ...</blockquote>
+放心，难度再高点等级低的独狼就没法玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -255,3 +255,14 @@ nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smi
 寄咯不过无所谓，本来竞猜就是图一乐</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">还好没跟着沟槽的玩机器填啊，不过小蜜蜂也拉了大跨了
 
+
+*****
+
+####  heseran  
+##### 4052#       发表于 2024-3-22 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331656&amp;ptid=1857369" target="_blank">银月术士329 发表于 2024-3-22 09:18</a>
+
+还好没跟着沟槽的玩机器填啊，不过小蜜蜂也拉了大跨了</blockquote>
+玩机器和不少解说第一轮作业都拉了吧，哥们儿还能冲击钻石币<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">小蜜蜂确实该拉的时候不拉，该硬的时候不硬md，火仔什么虐菜高手，第一把隐身
+

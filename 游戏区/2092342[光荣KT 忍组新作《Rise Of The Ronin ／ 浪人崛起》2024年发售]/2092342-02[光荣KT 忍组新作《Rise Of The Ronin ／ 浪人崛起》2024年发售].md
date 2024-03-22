@@ -3304,3 +3304,15 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 早上开机试了下，感觉实机画面比卧龙好点，性能模式也挺稳。
 
+
+*****
+
+####  Moltres.lv70  
+##### 1834#       发表于 2024-3-22 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330980&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-22 08:03</a>
+是直播的关系吗？我实机画面还可以啊，刚玩完序章，就是仁王水准啊</blockquote>
+序章味很正，然后出村就变成罐头了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">忍组好好做仁王好不好
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+

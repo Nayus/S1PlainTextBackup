@@ -234,3 +234,13 @@ nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smi
 这绿龙虐打挑战者组上来的有点轻松了
 看今天打navi啥情况
 
+
+*****
+
+####  heseran  
+##### 4050#       发表于 2024-3-22 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330897&amp;ptid=1857369" target="_blank">银月术士329 发表于 2024-3-22 07:49</a>
+还活吗G2</blockquote>
+寄咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过无所谓，本来竞猜就是图一乐
+

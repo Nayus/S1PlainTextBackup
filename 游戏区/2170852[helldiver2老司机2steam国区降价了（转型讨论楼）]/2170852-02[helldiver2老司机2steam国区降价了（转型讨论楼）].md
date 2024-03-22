@@ -6839,3 +6839,24 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  Mr.Hopp  
+##### 2140#       发表于 2024-3-22 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64329614&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-22 00:09</a>
+
+所谓修复机甲自爆就是现在火箭弹只能直着射出去，箭头太牛逼喇，修复的神，这下机甲直接废了 ...</blockquote>
+你猜为什么之前机甲会被自家火箭打爆？之前指哪打哪才是BUG。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+机甲费到不至于，打同一水平线的敌人还是很准的。
+
+
+*****
+
+####  yujohn  
+##### 2141#       发表于 2024-3-22 08:51
+
+机甲火箭只能打同一水平线 那守点不是废了 什么傻逼设计
+

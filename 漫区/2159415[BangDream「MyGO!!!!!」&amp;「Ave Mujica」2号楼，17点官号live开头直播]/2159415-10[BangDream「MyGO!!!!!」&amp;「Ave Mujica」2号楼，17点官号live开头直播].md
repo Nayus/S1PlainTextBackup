@@ -12011,3 +12011,21 @@ https://tieba.baidu.com/p/8944959079?&amp;share=9105&amp;fr=sharewise&amp;is_vid
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 14352#       发表于 2024-3-22 08:59
+
+看來四月新曲了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/22/085913rk33vvvbzvqaaq3k.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (39.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 08:59 上传
+
+[https://twitter.com/VIVA_LA_KNZ/status/1770977168170086558](https://twitter.com/VIVA_LA_KNZ/status/1770977168170086558)
+

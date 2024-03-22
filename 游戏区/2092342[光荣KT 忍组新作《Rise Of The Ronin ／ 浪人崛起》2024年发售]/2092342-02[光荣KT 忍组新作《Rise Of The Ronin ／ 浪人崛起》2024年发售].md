@@ -4202,3 +4202,13 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 仁王流怎么获得不知道,隼流说是后面有老师教
 
+
+*****
+
+####  Yeelolo  
+##### 1928#       发表于 2024-3-22 19:25
+
+最高难度通了下序章，还不错，挺爽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">果然还得自己上手试试
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

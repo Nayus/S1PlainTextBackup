@@ -12453,3 +12453,49 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
  ...</blockquote>
 哇哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14396#       发表于 2024-3-22 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64338644&amp;ptid=2159415" target="_blank">MZZK 发表于 2024-3-22 17:06</a>
+
+昨天nga又是最讨厌的角色投票又是最讨厌的角色粉丝投票，直钩引战了属于是 ...</blockquote>
+被那些人討厭，總感覺是大喜事呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 14397#       发表于 2024-3-22 20:37
+
+有个贵物一直在lofter污染祥tag，在外面看到100+以为有什么好吃的，一进去就看到疯子乱舞，真的服了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  基神的强袭自由  
+##### 14398#       发表于 2024-3-22 20:41
+
+<img src="https://img.saraba1st.com/forum/202403/22/204139hhufp0ik98nthu7j.jpg" referrerpolicy="no-referrer">
+
+<strong>OLGG~{5ARQAX5Z`%N_OQOJ3.jpg</strong> (23.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 20:41 上传
+
+*****
+
+####  御幸一也  
+##### 14399#       发表于 2024-3-22 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64341375&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-3-22 20:37</a>
+
+有个贵物一直在lofter污染祥tag，在外面看到100+以为有什么好吃的，一进去就看到疯子乱舞，真的服了 ...</blockquote>
+
+看起來就很智障的一個哥<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+[https://xinjinjumin314522876001. ... /78c2ae87_2bb71232d](https://xinjinjumin314522876001.lofter.com/post/78c2ae87_2bb71232d)
+

@@ -1140,3 +1140,15 @@ re引擎所谓的优化好一是小场景，二是人不多
 老滚V开上PC那些画质增强补丁绝对比现在这东西强……</blockquote>
 这色调没ENB的滚五太像了。光照也一般，闪瞎狗眼和灰蒙蒙二选一
 
+
+*****
+
+####  海豹墨鱼卷  
+##### 122#       发表于 2024-3-22 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334594&amp;ptid=2176582" target="_blank">keasen 发表于 2024-3-22 12:24</a>
+你在说什么啊，鬼泣5就有了</blockquote>
+所以我说是商业策略啊，市场部搞的一致性销售策略和内容导演关系不大了。
+买了道具玩的时候该跑步还是跑去探索。
+就是一边想要玩家去体验游戏不投放太多传送道具，另一边在卖显得很尴尬。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

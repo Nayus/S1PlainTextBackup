@@ -7289,3 +7289,21 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晴岚  
+##### 3706#       发表于 2024-3-22 23:17
+
+<img src="https://img.saraba1st.com/forum/202403/22/231638auvuem7auubttebt.jpg" referrerpolicy="no-referrer">
+
+<strong>C5189F5E-5DE5-4080-A574-E5EB7FB6FC87.jpg</strong> (432.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 23:16 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我就想刷个五星贴牌52而已，能不能不要给我这么抽象的队友
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

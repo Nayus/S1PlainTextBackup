@@ -4291,3 +4291,19 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">主线把权藏杀了，是不是野太刀那个流派不能升级了
 
+
+*****
+
+####  duraa  
+##### 1937#       发表于 2024-3-22 23:21
+
+和自己和解了，切普通难度了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leafS  
+##### 1938#       发表于 2024-3-22 23:25
+
+解锁一堆流派以后开始好玩起来了，每把武器不同流派连石火都不一样，忍者组花的大功夫都在这些地方了吧
+

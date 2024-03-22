@@ -3484,3 +3484,30 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 敌人好强，打不过撤退－商量该怎么打−斩首，莽就是了。你们除了猪突就没有其他办法了吗 ...</blockquote>
 这次勉强可以解释一家+玛修被杀后主角成复仇者不听劝。黑贞本来还有希望，玛修被砍后反而就成败犬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 11713#       发表于 2024-3-22 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想还真有点遭不住
+
+16年入坑的....陪伴了自己9年的卡以后在新的剧情里就真的看不到了LOST了是真的有点破防
+
+黑贞还是我当年入坑的理由之一
+
+
+*****
+
+####  v22325  
+##### 11714#       发表于 2024-3-22 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331921&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-3-22 09:36</a>
+
+想想还真有点遭不住
+
+16年入坑的....陪伴了自己9年的卡以后在新的剧情里就真的看不到了LOST了是真的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你手里还有我到现在还没抽到呢。还没享受到就没了！
+
+我都幻想10周年给一个自选限定拿了……
+

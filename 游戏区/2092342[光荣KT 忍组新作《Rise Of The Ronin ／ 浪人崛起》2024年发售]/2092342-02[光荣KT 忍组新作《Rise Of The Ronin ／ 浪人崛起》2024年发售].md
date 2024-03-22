@@ -3535,3 +3535,63 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 不过还是序章最后的boss战拿个打刀或者军刀单挑好玩一点，忍组什么时候做个不用刷装备的ACT啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Z1yu  
+##### 1859#       发表于 2024-3-22 11:17
+
+这游戏不同流派是有不同派生的。
+ 方块+长按方块
+ 方块+前推摇杆方块
+ 部分武技存在蓄力和后续派生。
+ 基础派生没有明说，拿到后自己多组合试试。
+ 基础就是方块 长按方块 前推方块。
+
+*****
+
+####  Yeelolo  
+##### 1860#       发表于 2024-3-22 11:18
+
+从卧龙就能看出来，忍组一直在想怎么简化他的战斗机制，至于这样改是好是坏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  你好s1  
+##### 1861#       发表于 2024-3-22 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332886&amp;ptid=2092342" target="_blank">寂长无星夜 发表于 2024-3-22 10:40</a>
+我的浪人怎么还不发货，再不发等着烂店里没人要吧</blockquote>
+<img src="https://p.sda1.dev/16/3596ce40eacab7cbb180f27f6b7225e9/CMP_20240322112053194.jpg" referrerpolicy="no-referrer">
+建议自己问问商家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  laoz  
+##### 1862#       发表于 2024-3-22 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333363&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-22 11:09</a>
+
+我觉得还好吧，虽然我昨晚只打完了序章刚出村，这作的石火基本只要是出招后就可以无视后摇直接用，仁王的 ...</blockquote>
+仁王哪需要先防反对面出破绽才打，这玩意平A打过去不出硬直对面就给你来连招或者红光，而且还非常喜欢玩一打三
+
+
+*****
+
+####  死宅真恶心  
+##### 1863#       发表于 2024-3-22 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332799&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-22 10:35</a>
+草，仁王里叠混沌，卧龙里叠混沌，怎么到了浪人还在叠混沌，能不能整点新鲜的 ...</blockquote>
+卧龙现在不叠混沌了，绝境无敌卷轴直接干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Emmerich  
+##### 1864#       发表于 2024-3-22 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">zp连之前墙倒众人推的堕落之王都能玩出自己的理解 看直播开荒有不少有趣的解法 水平是相当在线 只能说这年头你看大众媒体评测可能都是车轱辘话复制黏贴 他这边是能get到点有价值内容的
+

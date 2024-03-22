@@ -12124,3 +12124,11 @@ mujica入选《滚石》Future of Music 日本代表组<img src="https://static.
 
 看来武士道现在对两个新团好像都有点想往三次元推的味道，狗偏流量的就去地上波节目，鸡这种技术好的就去滚石赚口碑，难怪今年asl武士道不当赞助商了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 14363#       发表于 2024-3-22 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不当赞助商难道不是没钱
+

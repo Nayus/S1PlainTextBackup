@@ -3758,3 +3758,25 @@ GBF的pro们已经被调教成母猪了，拿GBF举例子那是一点道理都�
 换成你游大概就是，你咕咕咕了两年回来， ...</blockquote>
 GBF只要不是要头等舱还真没啥。我弃坑了1年多回去老队伍还是能用，FGO洗洗睡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 11737#       发表于 2024-3-22 13:42
+
+ 本帖最后由 exiaexa 于 2024-3-22 13:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335410&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-22 13:24</a>
+
+GBF只要不是要头等舱还真没啥。我弃坑了1年多回去老队伍还是能用，FGO洗洗睡 ...</blockquote>
+咸鱼你玩宇宙还是low王有区别吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+还是只说光，凯子之前琴陆续落地，4路枪干废3个，芬剑落地后连带着诺亚短也一起报废
+
+没送四个字母亲妈上天已经很给面子了
+
+更别说以前经典火光老王甚至全老王的
+
+FGO坑爹程度翻个倍也到不了这个程度
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

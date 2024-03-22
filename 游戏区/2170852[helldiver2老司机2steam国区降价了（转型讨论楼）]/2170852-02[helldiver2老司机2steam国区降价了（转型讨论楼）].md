@@ -6995,3 +6995,16 @@ https://b23.tv/c6mn5Nq
 
 现在先不说水平，俯仰角没了直接打不了泰坦，这还不是废了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琦乐无穷  
+##### 2154#       发表于 2024-3-22 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335361&amp;ptid=2170852" target="_blank">ivly 发表于 2024-3-22 13:20</a>
+
+老司机的匹配环境要开始变粪坑了，野匹开始乱杀人了
+
+https://b23.tv/c6mn5Nq</blockquote>
+满脑子710元素的白皮是这样的，所以我宁愿等好友房也不打匹配
+

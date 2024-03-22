@@ -1452,3 +1452,13 @@ PS6起码Zen6了，Zen5下半年就有，而Pro怎么也得再撑三年吧
 
 财年硬件目标应该可以完成吧？
 
+
+*****
+
+####  医生狼多  
+##### 323#       发表于 2024-3-22 16:31
+
+BREAKING: PS5 is officially getting Backgrounds/Themes support in its next major update, they are only limited to the explore tab and only available for US accounts. currently in Early Access
+
+Credit: @MysticRyan’s video for the screenshots.
+

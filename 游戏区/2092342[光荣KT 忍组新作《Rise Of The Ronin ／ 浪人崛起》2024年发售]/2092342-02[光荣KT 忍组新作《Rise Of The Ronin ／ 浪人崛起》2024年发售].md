@@ -3924,3 +3924,65 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 基本上所有女的都可以攻略，包括各种人妻寡妇老相好</blockquote>
 能攻略自捏搭档么？
 
+
+*****
+
+####  刘震云  
+##### 1900#       发表于 2024-3-22 16:29
+
+看了zp的全流派动作演示，这忍组真的是把动作家底全给掏出来了
+
+*****
+
+####  wzh5555  
+##### 1901#       发表于 2024-3-22 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334627&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-22 12:26</a>
+
+一般路边怪抓敌人攻击结束的间隙上去压制似乎也能打出硬直，大家可以试试 ...</blockquote>
+普通敌人的硬直逻辑应该是 idle状态下无霸体，部分平A无霸体，多数流派招式过程中有霸体。
+
+所以基本就是要抓AI为idle的时间能“破”霸体，而攻击欲望越密集的敌人越不容易抓到idle状态。
+
+
+*****
+
+####  lazycat233  
+##### 1902#       发表于 2024-3-22 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">我不太喜欢这石火跟攻击绑一起的，敌人攻击没打到我会a上去有个硬直，感觉手感好奇怪
+
+*****
+
+####  asakura20005  
+##### 1903#       发表于 2024-3-22 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64337862&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2024-3-22 16:25</a>
+能攻略自捏搭档么？</blockquote>
+因为搭档性别可自定义，所以只停留在兄弟情了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  duraa  
+##### 1904#       发表于 2024-3-22 16:33
+
+卡了半小时二天一流哥终于解锁锻炼了，平时进攻感觉还是要多派生蓄力攻击，削精效率还行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  normalli  
+##### 1905#       发表于 2024-3-22 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64337714&amp;ptid=2092342" target="_blank">bletilla 发表于 2024-3-22 16:16</a>
+基本上所有女的都可以攻略，包括各种人妻寡妇老相好</blockquote>
+那女主呢，只能百合吗
+
+*****
+
+####  Yeelolo  
+##### 1906#       发表于 2024-3-22 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看起来像是主角在被雷普一样
+

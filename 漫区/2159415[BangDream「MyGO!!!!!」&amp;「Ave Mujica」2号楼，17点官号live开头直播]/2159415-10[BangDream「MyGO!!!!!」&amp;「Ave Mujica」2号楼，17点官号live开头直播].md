@@ -12029,3 +12029,23 @@ https://tieba.baidu.com/p/8944959079?&amp;share=9105&amp;fr=sharewise&amp;is_vid
 
 [https://twitter.com/VIVA_LA_KNZ/status/1770977168170086558](https://twitter.com/VIVA_LA_KNZ/status/1770977168170086558)
 
+
+*****
+
+####  御幸一也  
+##### 14353#       发表于 2024-3-22 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330632&amp;ptid=2159415" target="_blank">yujz 发表于 2024-3-22 05:23</a>
+
+烤羊会被轨道炮，开爱音会死，踩鸡随便踩
+
+我之前还觉得打成狗粉丝专楼稍微过分了点，现在来看攻击性还是太 ...</blockquote>
+什麼攻擊性，不是大實話嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 14354#       发表于 2024-3-22 09:05
+
+这次能打这么久，主要是因为这次出问题的变成爱音了，之前是素希出问题所以爱音厨单方面车素希霸凌队友，现在变成双方都有问题所以厨子互相都觉得错的是对面才会拉扯，贴吧已经打了好几轮了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

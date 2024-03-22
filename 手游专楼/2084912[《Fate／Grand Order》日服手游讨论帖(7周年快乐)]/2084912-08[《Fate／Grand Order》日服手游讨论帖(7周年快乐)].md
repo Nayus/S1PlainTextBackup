@@ -3463,3 +3463,24 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，怎么感觉除了突击就是突击，装装样子想了一下战术结果还是突击。好像之前哪个活动也是这么个样子……
 
+
+*****
+
+####  khxooo  
+##### 11711#       发表于 2024-3-22 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331254&amp;ptid=2084912" target="_blank">v22325 发表于 2024-3-22 08:40</a>
+草，怎么感觉除了突击就是突击，装装样子想了一下战术结果还是突击。好像之前哪个活动也是这么个样 ...</blockquote>
+敌人好强，打不过撤退－商量该怎么打−斩首，莽就是了。你们除了猪突就没有其他办法了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cenhr  
+##### 11712#       发表于 2024-3-22 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331501&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-3-22 09:06</a>
+
+敌人好强，打不过撤退－商量该怎么打−斩首，莽就是了。你们除了猪突就没有其他办法了吗 ...</blockquote>
+这次勉强可以解释一家+玛修被杀后主角成复仇者不听劝。黑贞本来还有希望，玛修被砍后反而就成败犬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

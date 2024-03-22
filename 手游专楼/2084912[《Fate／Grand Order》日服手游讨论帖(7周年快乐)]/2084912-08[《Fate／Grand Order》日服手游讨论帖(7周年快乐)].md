@@ -3925,3 +3925,15 @@ FGO坑爹程度翻个倍也到不了这个程度
 
 yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉和最近看到的那些颠佬有点同质化看着没劲，对我来说反而感觉没有奏1那种点题的爽感来着舒服，奏2有种大规模官方同人还不清不楚的寸止感，难道梦女都喜欢这种的吗？
 
+
+*****
+
+####  清河子  
+##### 11752#       发表于 2024-3-22 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333270&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-3-22 11:04</a>
+丑御前这算是刚入职迦勒底就外派失联？</blockquote>
+比起来新伯爵才是难以想象语音怎么录啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+什么落地成盒 太地狱了
+

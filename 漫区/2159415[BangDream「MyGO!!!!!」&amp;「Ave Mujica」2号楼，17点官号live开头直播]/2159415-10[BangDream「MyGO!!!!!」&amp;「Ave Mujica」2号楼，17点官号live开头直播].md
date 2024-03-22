@@ -12152,3 +12152,18 @@ mujica入选《滚石》Future of Music 日本代表组<img src="https://static.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  HANDAIYV  
+##### 14366#       发表于 2024-3-22 11:56
+
+爱音那很难不说是某些厨子作的，本来前面的盐剧情当成手游用力过猛贴标签，骂骂手游编剧就完事儿了，结果某些人偏偏在那上纲上线扯队友素希80爱音队友都盐爱音爱音太惨了，还有各种各样的二创入脑吹捧爱音，这次爱音有问题还有想继续卖惨甩锅的，只能说爱音推也别太怪其他人清算
+
+*****
+
+####  PDQ4  
+##### 14367#       发表于 2024-3-22 11:57
+
+原来今年WSD没当ASL赞助商，那鸡狗塞进去是看面子给刷脸吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

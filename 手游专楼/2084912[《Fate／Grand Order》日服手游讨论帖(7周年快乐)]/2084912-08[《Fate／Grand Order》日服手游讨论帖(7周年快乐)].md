@@ -3727,3 +3727,11 @@ GBF的pro们已经被调教成母猪了，拿GBF举例子那是一点道理都�
 现在有人问GBF能不能玩，我都是让人直接跑的，大概只有这点和你游一模一样了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 11734#       发表于 2024-3-22 12:01
+
+海蒂过去那种广播剧的图就很好看。不知道有没有可能落地
+

@@ -379,3 +379,75 @@ SD性能都跑不满  完全没法玩
 
 —— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Tackstone  
+##### 43#       发表于 2024-3-22 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334138&amp;ptid=2176582" target="_blank">karastar 发表于 2024-3-22 11:54</a>
+
+为什么觉得和法环有关系，两年开发加立项你觉得来得及吗</blockquote>
+法环又不是发售才爆的，龙信22年6月预告才是个只有标题的饼渣，实际开发最多也就是三年。就现在这个内容量和优化你觉得投入的时间很多么？
+
+*****
+
+####  TonyKnight  
+##### 44#       发表于 2024-3-22 11:59
+
+<blockquote>Tackstone 发表于 2024-3-22 11:51
+所以说卡婊弱智，非得等法环爆了才开始动手，然后又小投入赶工。按道理看到ns龙信的销售状况就应该反应过来 ...</blockquote>
+龙信2都做了好几年了
+
+*****
+
+####  aruruu  
+##### 45#       发表于 2024-3-22 12:00
+
+龙信2的相关舆论崩的比星空还快呀
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  洛亚替身  
+##### 46#       发表于 2024-3-22 12:00
+
+赶快救一下吧，人家还只是差评没退款.......上一个让玩家进不去游戏的大作是哪个来着？<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FUZE  
+##### 47#       发表于 2024-3-22 12:01
+
+我看别人PS5 那个画面 说真的可能不比滚5好多少
+
+但是帧数锁30就算了 这动态模糊是个啥啊 快吐了
+
+
+*****
+
+####  fc874  
+##### 48#       发表于 2024-3-22 12:03
+
+已退款，坐等半价
+
+*****
+
+####  nage560  
+##### 49#       发表于 2024-3-22 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332916&amp;ptid=2176582" target="_blank">跑调跑掉 发表于 2024-3-22 10:42</a>
+
+其实预算低点也没啥，主要是也不多做点新怪新玩法。不然可以再这样多做几部，每部都加些新东西，最后再通过 ...</blockquote>
+笑了，真这么做，那可以起期待卡表从战国basara3到战国basara4到幸村传的销量滑跌卢奇迹再来一次。
+
+*****
+
+####  天王寺綯  
+##### 50#       发表于 2024-3-22 12:07
+
+卡布空已经多久没制作大体量3A了
+
+你们想象中的完全版龙信2他根本就做不出来好吧
+

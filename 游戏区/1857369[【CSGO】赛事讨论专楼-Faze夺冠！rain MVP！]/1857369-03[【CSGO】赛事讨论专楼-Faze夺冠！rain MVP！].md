@@ -287,3 +287,11 @@ nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smi
 0-3死了好多人吧，而且APEK和ENCE的拉跨确实没想到</blockquote>
 0:3我也全错了，黑豹也菜啊，上来被lvg干了一把，大多数人的0:3直接错一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4055#       发表于 2024-3-22 20:52
+
+一切都要从taz那个幽默暂停开始说起，傻逼G2。
+

@@ -52,3 +52,42 @@
 
 2024-3-22 20:41 上传
 
+
+*****
+
+####  novyDC  
+##### 4445#       发表于 2024-3-22 20:45
+
+看着也不像会死的样子
+
+<img src="https://img.saraba1st.com/forum/202403/22/204442lfrfjl3uq5emfmul.jpg" referrerpolicy="no-referrer">
+
+<strong>649FAF21923D4CD9EB42B8690B582E61.jpg</strong> (87.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 20:44 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RE㐅ia  
+##### 4446#       发表于 2024-3-22 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64341487&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-22 20:45</a>
+
+看着也不像会死的样子</blockquote>
+前面是即将发射的光束步枪（
+
+
+*****
+
+####  aptx8285144  
+##### 4447#       发表于 2024-3-22 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64341487&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-22 20:45</a>
+
+看着也不像会死的样子</blockquote>
+这个根本看不出啥吧，最多猜想这人的机体也暗了之类的
+

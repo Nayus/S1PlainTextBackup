@@ -3902,3 +3902,14 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 可攻略女角色有哪些阿，现在只有这个吊着我胃口了
 
+
+*****
+
+####  bletilla  
+##### 1898#       发表于 2024-3-22 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64337427&amp;ptid=2092342" target="_blank">新世界的派蒙 发表于 2024-3-22 15:59</a>
+
+可攻略女角色有哪些阿，现在只有这个吊着我胃口了</blockquote>
+基本上所有女的都可以攻略，包括各种人妻寡妇老相好
+

@@ -3780,3 +3780,11 @@ GBF只要不是要头等舱还真没啥。我弃坑了1年多回去老队伍还�
 FGO坑爹程度翻个倍也到不了这个程度
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 11738#       发表于 2024-3-22 14:09
+
+总体7的嘛吧，比2.5.2好太多了，最后黒贞CG 给10分。人理我劝你好自为之，快给我联网，我的黒贞老婆<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+

@@ -12579,3 +12579,11 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
 
 现场细节本来就比直播少，现场一点头就过了，直播就是没唱出声
 
+
+*****
+
+####  PDQ4  
+##### 14408#       发表于 2024-3-22 22:22
+
+还有一个月零2天就能看到bd版的鸡live了，看看wsd修了什么东西，是不是一如既往的没品<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -3817,3 +3817,13 @@ FGO坑爹程度翻个倍也到不了这个程度
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全语音这事不就是能躺何战吗？  你看还有孝子在那说容量把拉把拉的  都不知道活在几几年  做个单独章节语音下载删除很难吗
 
+
+*****
+
+####  rollingusagi  
+##### 11742#       发表于 2024-3-22 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">通完了，相比有些平淡的奏章一来说是量大料多管饱的一章，就是前面战斗的水关卡有点太多了，而且来来回回就那么一套，就是初见打不过撤退，讨论怎么打，讨论个鸡儿莽就完事了，就这样来来回回搞了好几次有点腻，其他地方都不错，算yjg超常发挥了，咕哒存在感最高的一章，最后的螺旋阶梯那几关，在哈桑和黑玛丽退去后独自一人亲手消灭各个仇阶从者影子氛围感拉满
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -4425,3 +4425,19 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 请据点的那些精英头目什么的都是稀里糊涂闭眼狂砍过的
 
+
+*****
+
+####  duraa  
+##### 1950#       发表于 2024-3-23 01:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">开放世界玩法真的好累，感觉还是先主线把气焰解锁了看看能不能爽起来
+
+
+*****
+
+####  duraa  
+##### 1951#       发表于 2024-3-23 01:41
+
+补一个牢骚，两个远程武器格子真不够用吧<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

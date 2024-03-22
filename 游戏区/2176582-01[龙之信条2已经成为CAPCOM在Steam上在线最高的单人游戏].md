@@ -1173,3 +1173,14 @@ re引擎所谓的优化好一是小场景，二是人不多
 这次龙信2内购被重点喷不是因为制作人自己嘴贱为了玩家体验才不给便利性，结果便利性做成内购拿来卖吗。属 ...</blockquote>
 又不是卖飞石，这破基石没用啊，应该直接卖无限飞石！
 
+
+*****
+
+####  噗呸破屁诚  
+##### 125#       发表于 2024-3-23 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334604&amp;ptid=2176582" target="_blank">Tackstone 发表于 2024-3-22 12:24</a>
+
+法环都不说初预告的关注度就知道凉不了了，demo出来的时候还意识不到法环的成功就有点过分了。龙信2现在 ...</blockquote>
+可别岁月史书啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">法环demo（网络测试）出来的时候说跌下神坛至少也占当时舆论一半吧，因为风暴城只能走一半看不出地图设计，同时开放内容也只有新手村那堆劣质地牢，再加上当时说的操作延迟感手感差，可以说法环测试那会都是悲观乐观都是五五开
+

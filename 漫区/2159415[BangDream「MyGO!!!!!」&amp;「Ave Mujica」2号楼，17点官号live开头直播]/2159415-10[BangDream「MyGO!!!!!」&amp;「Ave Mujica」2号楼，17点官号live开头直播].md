@@ -12640,3 +12640,14 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 14413#       发表于 2024-3-23 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64344276&amp;ptid=2159415" target="_blank">フミさん 发表于 2024-3-23 00:46</a>
+
+https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
+他居然畫初祥了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

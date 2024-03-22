@@ -4328,3 +4328,15 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  leafS  
+##### 1941#       发表于 2024-3-23 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64343841&amp;ptid=2092342" target="_blank">007.5 发表于 2024-3-23 00:08</a>
+能重新捏脸么？以前系列据点里貌似可以随便捏，这次可以么，能的话大概剧情到那可以？
+
+搭档能不能重捏？</blockquote>
+进了横滨有了第一个房子以后就可以重新捏了，两个主角都可以
+

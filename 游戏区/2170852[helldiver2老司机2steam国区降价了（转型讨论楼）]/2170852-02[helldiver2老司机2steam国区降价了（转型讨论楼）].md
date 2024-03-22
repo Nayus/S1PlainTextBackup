@@ -7094,3 +7094,14 @@ https://b23.tv/c6mn5Nq</blockquote>
 
 说起来歼灭战打着打着不刷怪了是什么原理？虽然再过两分钟就又刷了
 
+
+*****
+
+####  FLZB  
+##### 2163#       发表于 2024-3-23 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64343884&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-3-23 00:11</a>
+
+说起来歼灭战打着打着不刷怪了是什么原理？虽然再过两分钟就又刷了</blockquote>
+老bug了，以前虫子经常打一波就没动静了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7062,3 +7062,11 @@ https://b23.tv/c6mn5Nq</blockquote>
 有仰角和俯角，但是机体运动比较慢。我看那个机甲左边挂着的火箭槽感觉就是不可自己转向的，只能跟着机体 ...</blockquote>
 怕不是bug或者又暗改了，昨天带机甲打歼灭低处的强袭直接打不到，火箭弹是完全水平直射出去的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 2160#       发表于 2024-3-22 21:06
+
+去难度4做下日常，撤离点同场5个坦克，这工作室又在发什么癫
+

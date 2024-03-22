@@ -244,3 +244,14 @@ nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smi
 还活吗G2</blockquote>
 寄咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过无所谓，本来竞猜就是图一乐
 
+
+*****
+
+####  银月术士329  
+##### 4051#       发表于 2024-3-22 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331397&amp;ptid=1857369" target="_blank">heseran 发表于 2024-3-22 08:55</a>
+
+寄咯不过无所谓，本来竞猜就是图一乐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">还好没跟着沟槽的玩机器填啊，不过小蜜蜂也拉了大跨了
+

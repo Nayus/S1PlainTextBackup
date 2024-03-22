@@ -3316,3 +3316,21 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 —— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+*****
+
+####  黑修士  
+##### 1835#       发表于 2024-3-22 09:16
+
+实机上手后4k画面比预想的要好，字幕推荐繁体中文
+
+默认的捏脸其实还不错，捏了半天最后还是选了默认微调
+
+<img src="https://img.saraba1st.com/forum/202403/22/091554pdrt1cq7g1o1tq8x.jpg" referrerpolicy="no-referrer">
+
+<strong>20240322085956.jpg</strong> (328.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 09:15 上传
+

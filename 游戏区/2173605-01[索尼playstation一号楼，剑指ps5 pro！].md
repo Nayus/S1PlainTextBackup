@@ -1387,3 +1387,13 @@ PS6起码Zen6了，Zen5下半年就有，而Pro怎么也得再撑三年吧
 
 可惜这回浪人没韩版，不然价格应该会便宜不少
 
+
+*****
+
+####  贝恩德塔  
+##### 316#         楼主| 发表于 2024-3-22 09:17
+
+ 本帖最后由 贝恩德塔 于 2024-3-22 09:21 编辑 
+
+果然没人关心地平线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

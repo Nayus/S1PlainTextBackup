@@ -7237,3 +7237,24 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 更新了
 
+
+*****
+
+####  墨染白泉  
+##### 3702#       发表于 2024-3-22 10:20
+
+解包的说除了新刀和新弓，还有两把新武器
+
+*****
+
+####  墨染白泉  
+##### 3703#       发表于 2024-3-22 10:20
+
+<img src="https://img.saraba1st.com/forum/202403/22/102009nkwl7rkqdzk7l74a.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1711073966446.jpg</strong> (81.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 10:20 上传
+

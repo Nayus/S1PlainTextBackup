@@ -1397,3 +1397,11 @@ PS6起码Zen6了，Zen5下半年就有，而Pro怎么也得再撑三年吧
 
 果然没人关心地平线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  看别人玩游戏  
+##### 317#       发表于 2024-3-22 10:15
+
+这游戏的问题就是太无聊，很早进二档了我记得，个人玩起来比刺客信条还难以代入，不过PC有mod，应该可以帮女主整容一下
+

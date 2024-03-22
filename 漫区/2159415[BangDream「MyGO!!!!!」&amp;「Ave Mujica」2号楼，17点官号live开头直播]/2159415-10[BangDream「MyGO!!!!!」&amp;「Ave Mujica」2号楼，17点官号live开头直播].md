@@ -12142,3 +12142,13 @@ mujica入选《滚石》Future of Music 日本代表组<img src="https://static.
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  基神的强袭自由  
+##### 14365#       发表于 2024-3-22 11:53
+
+我上周在上海百联买了一整盒原装小日子预组，没有偷摸零签名，没有阿侬酱签名，没有soyo桑签名，没有Taki酱签名，没有野良猫签名，什么都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

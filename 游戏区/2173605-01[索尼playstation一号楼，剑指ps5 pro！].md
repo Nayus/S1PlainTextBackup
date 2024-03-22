@@ -1477,3 +1477,13 @@ Credit: @MysticRyan’s video for the screenshots.
 
 主题可真够慢的，下一代主机还是别换UI了吧
 
+
+*****
+
+####  绚烂航迹云  
+##### 326#       发表于 2024-3-22 21:30
+
+等一个aloy美化mod
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+

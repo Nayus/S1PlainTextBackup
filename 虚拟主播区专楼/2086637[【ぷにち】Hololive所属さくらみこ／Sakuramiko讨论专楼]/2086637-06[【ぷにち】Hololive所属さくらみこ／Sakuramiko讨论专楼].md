@@ -3127,3 +3127,21 @@ friend玩偶又再贩了？第3次了吧，这次怎么这么快
 
 最难的还记得，结果差了一个字
 
+
+*****
+
+####  holoan  
+##### 8466#         楼主| 发表于 2024-3-22 21:26
+
+ 本帖最后由 holoan 于 2024-3-22 21:28 编辑 
+
+不容易啊，总算能毕业了？
+
+<img src="https://img.saraba1st.com/forum/202403/22/212845poema77dx2uux75x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 21:28 上传
+

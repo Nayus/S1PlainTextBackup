@@ -311,3 +311,11 @@ nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 笑死 幽默g2
 
+
+*****
+
+####  ork  
+##### 4058#       发表于 2024-3-22 21:33
+
+faze都要去1-2了，是真没想到
+

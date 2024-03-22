@@ -3087,3 +3087,19 @@ friend玩偶又再贩了？第3次了吧，这次怎么这么快
 
 一个小常识，2年前mikorone就是在这个新家播的，说得只是她把家里打扫得比较干净
 
+
+*****
+
+####  holoan  
+##### 8462#         楼主| 发表于 2024-3-22 15:32
+
+<img src="https://img.saraba1st.com/forum/202403/22/153140d3jrjt4rmgrgjnrs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 15:31 上传
+
+今天什么补考，内容和上次一模一样……
+

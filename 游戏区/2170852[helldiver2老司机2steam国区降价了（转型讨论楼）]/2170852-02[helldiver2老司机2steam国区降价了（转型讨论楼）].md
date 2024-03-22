@@ -6970,3 +6970,28 @@ https://b23.tv/c6mn5Nq
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">没法用电弧枪都不会打了，等修了再上
 
+
+*****
+
+####  xinfengj  
+##### 2152#       发表于 2024-3-22 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64336318&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-3-22 14:31</a>
+
+可以原地转身丢飞鹰空袭，但是容易跑不开翻车。还有个震撼弹定身+轨道精准攻击，不过震撼弹不好补充，而且 ...</blockquote>
+单个强袭虫直接EAT按出来往壳上一丢就解决了，没拿成就的还能顺道拿个成就
+
+*****
+
+####  FLZB  
+##### 2153#       发表于 2024-3-22 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331321&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-3-22 08:45</a>
+
+你猜为什么之前机甲会被自家火箭打爆？之前指哪打哪才是BUG。
+
+机甲费到不至于，打同一水平线的敌 ...</blockquote>
+指哪打哪明显是设计啊，符合tps游戏的操作直觉，自爆无非是火箭弹斜射出去打到机甲自己的hitbox，这玩意要修就让自己的火箭弹对自身没命中判定就完事了，结果箭头选了个最蠢的解决方案。
+
+现在先不说水平，俯仰角没了直接打不了泰坦，这还不是废了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

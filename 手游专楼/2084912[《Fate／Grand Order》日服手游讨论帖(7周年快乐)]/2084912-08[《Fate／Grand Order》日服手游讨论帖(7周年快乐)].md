@@ -3535,3 +3535,16 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 我都幻想10周年给一个自选限定拿了…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种老卡都没有我只能理解为是你对角色的爱不足了....都不知道复刻多少次了吧
 
+
+*****
+
+####  cenhr  
+##### 11717#       发表于 2024-3-22 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331921&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-3-22 09:36</a>
+
+想想还真有点遭不住
+
+16年入坑的....陪伴了自己9年的卡以后在新的剧情里就真的看不到了LOST了是真的 ...</blockquote>
+我则是伯爵，毕竟无论是原作还是你月版的都很有人情味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

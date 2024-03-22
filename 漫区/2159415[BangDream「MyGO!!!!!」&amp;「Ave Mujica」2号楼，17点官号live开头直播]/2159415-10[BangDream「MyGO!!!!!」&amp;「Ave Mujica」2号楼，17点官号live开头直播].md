@@ -12049,3 +12049,19 @@ https://tieba.baidu.com/p/8944959079?&amp;share=9105&amp;fr=sharewise&amp;is_vid
 
 这次能打这么久，主要是因为这次出问题的变成爱音了，之前是素希出问题所以爱音厨单方面车素希霸凌队友，现在变成双方都有问题所以厨子互相都觉得错的是对面才会拉扯，贴吧已经打了好几轮了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 14355#       发表于 2024-3-22 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">怎么mygo周年活动反而车鸡车丰川小姐……这是在做什么？围魏救赵吗？
+
+
+*****
+
+####  Aendst  
+##### 14356#       发表于 2024-3-22 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁已经快进到互联网行为艺术了吗，自己卡面内容不讨喜所以车跟卡面0关联的祥子？
+

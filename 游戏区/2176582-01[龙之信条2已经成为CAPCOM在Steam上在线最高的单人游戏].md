@@ -1152,3 +1152,13 @@ re引擎所谓的优化好一是小场景，二是人不多
 买了道具玩的时候该跑步还是跑去探索。
 就是一边想要玩家去体验游戏不投放太多传送道具，另一边在卖显得很尴尬。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuluwu  
+##### 123#       发表于 2024-3-22 23:39
+
+为啥那么多楼只在讨论西幻，受欢迎的是西幻味儿的开放世界罢了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

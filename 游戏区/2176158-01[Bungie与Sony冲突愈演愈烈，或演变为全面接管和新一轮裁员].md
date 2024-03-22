@@ -659,3 +659,22 @@ Final Shape是可以按时推出的，但是bungie内部评估后认为按现在
 
 对于这种规模的项目来说三个月开发时间就是杯水车薪，再加上裁员导致的开发能力下降，我觉得搞这个就是高管为了拖延时间顺便恶心了一把玩家
 
+
+*****
+
+####  ohi.02  
+##### 65#       发表于 2024-3-23 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64301577&amp;ptid=2176158" target="_blank">泰坦失足 发表于 2024-3-19 17:22</a>
+可以考虑学COD出手游，符合吉姆叔叔最后指示。虽然我觉得技术力可能做不到. 要不出NS2版吧，或者和国内/外 ...</blockquote>
+手游做了4年，仍然没优化好，多数机型枪械都看不清，主打卖武器皮肤的营收模式收入很不乐观，要是再晚两年等手机换代了再推出评价会好点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sxcluck  
+##### 66#       发表于 2024-3-23 00:29
+
+对外赢得莫名其妙，所以开始内斗了？<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+

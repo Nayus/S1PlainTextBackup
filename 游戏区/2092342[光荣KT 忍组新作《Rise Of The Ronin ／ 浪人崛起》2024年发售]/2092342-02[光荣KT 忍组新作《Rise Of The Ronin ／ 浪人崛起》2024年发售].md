@@ -4340,3 +4340,13 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 搭档能不能重捏？</blockquote>
 进了横滨有了第一个房子以后就可以重新捏了，两个主角都可以
 
+
+*****
+
+####  duraa  
+##### 1942#       发表于 2024-3-23 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64343126&amp;ptid=2092342" target="_blank">绯想天の天子 发表于 2024-3-22 23:13</a>
+主线把权藏杀了，是不是野太刀那个流派不能升级了</blockquote>
+听说只要到下一个章节，前一个章节的内容都能随意重玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

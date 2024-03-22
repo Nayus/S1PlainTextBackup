@@ -6192,3 +6192,15 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  a4ac7  
+##### 543#       发表于 2024-3-23 00:28
+
+<img src="https://p.sda1.dev/16/ba058f0c33e9c4320a985f99cbcb0402/CMP_20240323002743939.png" referrerpolicy="no-referrer">
+
+最后三个挑战真难，无小丑靠五条和玻璃牌力大飞砖赢了，幸好路上boss没怎么针对
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

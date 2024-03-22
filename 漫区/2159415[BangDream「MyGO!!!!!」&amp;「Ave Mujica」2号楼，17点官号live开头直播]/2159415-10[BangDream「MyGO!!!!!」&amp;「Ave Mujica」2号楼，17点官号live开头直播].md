@@ -12587,3 +12587,14 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
 
 还有一个月零2天就能看到bd版的鸡live了，看看wsd修了什么东西，是不是一如既往的没品<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  多莉DOLLY  
+##### 14409#       发表于 2024-3-22 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64305988&amp;ptid=2159415" target="_blank">多莉DOLLY 发表于 2024-3-20 06:43</a>
+
+昨天福冈在B区第一排，最后扔拨片环节感觉应该扔不到我这里，就光顾着看羊去了，结果被拨片砸中脑袋一时没 ...</blockquote>
+今天大阪场破案了，认真观察了一下，发现羊鼓子蜜柑青木最多就扔到a区中段，就凛一下能把拨片干到b区
+

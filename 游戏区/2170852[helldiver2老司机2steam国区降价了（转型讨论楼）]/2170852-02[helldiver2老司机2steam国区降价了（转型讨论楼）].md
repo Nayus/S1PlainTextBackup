@@ -6827,3 +6827,15 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 2139#       发表于 2024-3-22 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331029&amp;ptid=2170852" target="_blank">pwzzy 发表于 2024-03-22 08:11:32</a>
+刚玩，才12级，先解锁的镰刀，带个榴弹遇到坦克就抓瞎，现在带的一次性筒子，因为还没500kg和激光只能靠筒 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">eat好了就摇，不存在浪费的说法，这是唯一一个兼具短cd，灵活，有效的反甲
+别的不是伤害低（磁轨），cd长（轨道炮），不灵活（飞鹰110 空袭 500），吃队友（无后坐力炮）
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

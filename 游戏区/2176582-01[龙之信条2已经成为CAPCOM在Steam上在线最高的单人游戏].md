@@ -1087,3 +1087,15 @@ re引擎所谓的优化好一是小场景，二是人不多
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ギナ  
+##### 117#       发表于 2024-3-22 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335561&amp;ptid=2176582" target="_blank">绿色食品 发表于 2024-3-22 13:33</a>
+最适合自己最后来一个大翻车才乐啊</blockquote>
+所以re所谓的优化其实是靠卡婊藏拙，这次一做开放世界就原形毕露了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4212,3 +4212,20 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黑修士  
+##### 1929#       发表于 2024-3-22 19:49
+
+哈哈原来刚出门还可以打警察练级的，不会涨通缉度么
+[https://www.bilibili.com/video/BV1FK421i76M](https://www.bilibili.com/video/BV1FK421i76M)
+
+
+*****
+
+####  duraa  
+##### 1930#       发表于 2024-3-22 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">如果用类似卧龙的被动打法，后面二天一流哥可能会被教做人，还是要主动上去压的（不过我自己也还没摸清楚这个攻防节奏怎么掌握就是了
+

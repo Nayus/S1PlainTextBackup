@@ -216,3 +216,21 @@ nuke防守5分马上0-3回家咯<img src="https://static.saraba1st.com/image/smi
 
 结果13比9送蒙古进0-2，nuke被玩成匪图是真没想到
 
+
+*****
+
+####  银月术士329  
+##### 4048#       发表于 2024-3-22 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64329944&amp;ptid=1857369" target="_blank">heseran 发表于 2024-3-22 00:45</a>
+小蜜蜂综合下来也算3-0里比较稳妥的选项了吧，纸面实力够强，容易走的更远，首场对手也不像faze和x队之类的 ...</blockquote>
+还活吗G2
+
+*****
+
+####  银月术士329  
+##### 4049#       发表于 2024-3-22 07:51
+
+这绿龙虐打挑战者组上来的有点轻松了
+看今天打navi啥情况
+

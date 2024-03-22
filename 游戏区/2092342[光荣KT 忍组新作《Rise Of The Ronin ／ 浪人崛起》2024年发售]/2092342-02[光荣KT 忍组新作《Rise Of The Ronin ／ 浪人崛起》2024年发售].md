@@ -3254,3 +3254,14 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 不搞这开放世界80分水平应该还是有的，搞得也太水了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">每把武器石火手感貌似都不同
 
+
+*****
+
+####  bwsusaga  
+##### 1828#       发表于 2024-3-22 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330747&amp;ptid=2092342" target="_blank">浅醉微风 发表于 2024-3-22 07:08</a>
+
+随便一提，不知道男人那边怎么样女人的静态站姿调的真是一坨。完全不能接受的程度 ...</blockquote>
+是不是站姿选错了，有两个站姿对应，男的是肘外翻，女的是掌心向下，挺淑女啊。
+

@@ -12231,3 +12231,20 @@ Bushiroad将于今夏以「Bushiroad Expo 2024」的形式参展BilibiliWorld 20
 
 可能是因为这次都是45度侧脸刚好避开那几个经典邪神角度了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 14374#       发表于 2024-3-22 13:25
+
+tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有些太极端了，楼主就一转不是爱音推更偏向祥子
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  すぴぱら  
+##### 14375#       发表于 2024-3-22 13:29
+
+信泽画商稿还挺克制的
+

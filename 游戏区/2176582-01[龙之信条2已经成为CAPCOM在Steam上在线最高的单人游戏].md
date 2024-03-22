@@ -952,3 +952,57 @@ re引擎擅长的是小场景制作，生化里也是碰到大场景就会各种
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  甲乙丙丁戊  
+##### 104#       发表于 2024-3-22 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335342&amp;ptid=2176582" target="_blank">zxlice 发表于 2024-03-22 13:19:13</a>
+有内购没问题啊，但是你不要拿来跟制作人说的东西矛盾啊，现在感觉就是花了钱到底是不体验制作人所吹嘘的沉 ...</blockquote>不是，我看了一眼内购道具，这些玩意儿能跳过啥啊？是能跳过野外露营还是能跳过赶路还是能跳过油灯还是能跳过负重？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  名字已被吃  
+##### 105#       发表于 2024-3-22 13:29
+
+这样的内购放怪猎是不是就是内购续猫车了，跟怪猎的内购表情捏脸比是不是不太对？
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ギナ  
+##### 106#       发表于 2024-3-22 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335458&amp;ptid=2176582" target="_blank">绿色食品 发表于 2024-3-22 13:27</a>
+你举例啊,我跟你一起喷,别虚空高潮</blockquote>
+你怎么也跟着歪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  甲乙丙丁戊  
+##### 107#       发表于 2024-3-22 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335490&amp;ptid=2176582" target="_blank">名字已被吃 发表于 2024-03-22 13:29:27</a>
+这样的内购放怪猎是不是就是内购续猫车了，跟怪猎的内购表情捏脸比是不是不太对？
+
+—— 来自 Xiaomi 22031 ...</blockquote>不，是内购秘药。复活石是游戏里就有的道具
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  绿色食品  
+##### 108#       发表于 2024-3-22 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335515&amp;ptid=2176582" target="_blank">ギナ 发表于 2024-3-22 13:31</a>
+
+你怎么也跟着歪了re引擎确实碰不了虚幻5，不过毕竟是卡婊自家引擎，各种特性都是最适合卡婊自己的 ...</blockquote>
+最适合自己最后来一个大翻车才乐啊
+

@@ -4441,3 +4441,19 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 补一个牢骚，两个远程武器格子真不够用吧<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DorianMode  
+##### 1952#       发表于 2024-3-23 02:31
+
+wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/23/022912hkgtstbnq5kkkkeb.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240323022808.jpg</strong> (153.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 02:29 上传
+

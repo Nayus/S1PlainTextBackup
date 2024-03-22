@@ -3364,3 +3364,13 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 最早还想捏个绯村剑心，但捏出来形似而神不似，算了先玩等高手弄出来再抄作业
 
+
+*****
+
+####  nagitoY  
+##### 1840#       发表于 2024-3-22 10:13
+
+【【浪人崛起】这是我玩过忍组最好的ARPG游戏，看完你觉得值得买吗？】 [https://www.bilibili.com/video/B ... a9524880cae8ef31f5b](https://www.bilibili.com/video/BV1Q1421Q73m/?share_source=copy_web&amp;vd_source=f992a0ea6967da9524880cae8ef31f5b)
+
+zp自己的测评来了，想看战斗深度的可以参考下
+

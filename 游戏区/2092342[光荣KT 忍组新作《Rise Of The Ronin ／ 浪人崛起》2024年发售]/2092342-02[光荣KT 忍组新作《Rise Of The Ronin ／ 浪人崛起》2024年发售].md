@@ -3296,3 +3296,11 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 哎忍者组 集结全组之力做出来评分还不如卧龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wyy123  
+##### 1833#       发表于 2024-3-22 08:44
+
+早上开机试了下，感觉实机画面比卧龙好点，性能模式也挺稳。
+

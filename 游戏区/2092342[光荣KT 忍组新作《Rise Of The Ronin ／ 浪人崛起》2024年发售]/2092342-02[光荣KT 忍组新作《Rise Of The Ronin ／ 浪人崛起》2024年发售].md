@@ -3672,3 +3672,50 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">港中又河蟹了断肢？这可比仁王影响大多了
 
+
+*****
+
+####  垃圾网站上  
+##### 1873#       发表于 2024-3-22 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334786&amp;ptid=2092342" target="_blank">theworld 发表于 2024-3-22 12:37</a>
+港中又河蟹了断肢？这可比仁王影响大多了
+
+刚说完就看到砍头了，还好还好
+
+ ...</blockquote>
+没有啊，默认就开着，头手到处飞，你要触发处决
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bwsusaga  
+##### 1874#       发表于 2024-3-22 12:43
+
+还行，玩了半个上午，比卧龙那坨要强，石火的手感调的不错。
+
+*****
+
+####  Yeelolo  
+##### 1875#       发表于 2024-3-22 12:45
+
+昨天晚上云了一晚上直播，最后又买回来了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 1876#       发表于 2024-3-22 12:45
+
+话说强化武技下面有个烈风强化，这个烈风是指啥啊，没看明白
+
+*****
+
+####  zqqwe  
+##### 1877#       发表于 2024-3-22 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334894&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-22 12:45</a>
+话说强化武技下面有个烈风强化，这个烈风是指啥啊，没看明白</blockquote>
+烈风就是是切流派的紫电
+

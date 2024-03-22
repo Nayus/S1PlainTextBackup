@@ -661,3 +661,59 @@ SD性能都跑不满  完全没法玩
 
 不急 等太上皇版 
 
+
+*****
+
+####  x分裂者  
+##### 74#       发表于 2024-3-22 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334717&amp;ptid=2176582" target="_blank">哈毛 发表于 2024-3-22 12:32</a>
+先玩……再说……传送石定价很贵，基石更是一周目就几个不够放。牛车慢还挨打也不全通。
+
+比其他内购情况严 ...</blockquote>
+又不是没玩过一代，传送石什么尿性还真不用科普，另外鬼泣5卖红摩托性质我觉得比这恶劣多了，红摩托可是硬生生多了个动作。
+
+*****
+
+####  jf8350143  
+##### 75#       发表于 2024-3-22 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334503&amp;ptid=2176582" target="_blank">啊哈 发表于 2024-3-22 12:18</a>
+
+啥？！还有内购！！</blockquote>
+有啊，卖传送石+复活石
+
+价格还很贵，一个石头好几块钱
+
+
+*****
+
+####  Tackstone  
+##### 76#       发表于 2024-3-22 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334815&amp;ptid=2176582" target="_blank">x分裂者 发表于 2024-3-22 12:39</a>
+又不是没玩过一代，传送石什么尿性还真不用科普，另外鬼泣5卖红摩托性质我觉得比这恶劣多了，红摩托可是 ...</blockquote>
+为内容付费远没有为便利性付费恶劣。
+
+*****
+
+####  zris  
+##### 77#       发表于 2024-3-22 12:44
+
+RE4卖改造券
+
+DMC5卖红魂
+
+也不是啥新鲜事了
+
+*****
+
+####  Cybellybanana  
+##### 78#       发表于 2024-3-22 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334012&amp;ptid=2176582" target="_blank">Deay店长 发表于 2024-3-22 11:46</a>
+我看了眼，我内存占用稳定超过16G，16G用户应该死翘翘直接跳出</blockquote>
+并不会
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

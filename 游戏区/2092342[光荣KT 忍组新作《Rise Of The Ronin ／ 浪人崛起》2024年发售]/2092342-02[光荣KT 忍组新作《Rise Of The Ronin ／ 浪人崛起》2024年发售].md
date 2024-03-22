@@ -3740,3 +3740,21 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 烈风就是是切流派的紫电</blockquote>
 那就是仁王的流转？
 
+
+*****
+
+####  zqqwe  
+##### 1880#       发表于 2024-3-22 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334954&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-22 12:51</a>
+那就是仁王的流转？</blockquote>
+切流派时有派生攻击，烈风本身也要学的
+
+
+*****
+
+####  死宅真恶心  
+##### 1881#       发表于 2024-3-22 12:58
+
+这游戏是不能改变历史的，历史上某个节点该死的人还是会死。
+

@@ -761,3 +761,41 @@ DMC5卖红魂
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Tackstone  
+##### 84#       发表于 2024-3-22 12:54
+
+ 本帖最后由 Tackstone 于 2024-3-22 12:56 编辑 
+
+遗老表示不背这个锅，我态度一直都是不看好，没玩过一代的别买。
+
+
+*****
+
+####  绿色食品  
+##### 85#       发表于 2024-3-22 13:02
+
+RE引擎优化真的好吗,至少我感觉画面是真不行,虚幻5秒了
+
+*****
+
+####  缺德猫  
+##### 86#       发表于 2024-3-22 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334965&amp;ptid=2176582" target="_blank">厄斯沃穆 发表于 2024-3-22 12:52</a>
+
+不是，当然支持买了的玩家因为包括内购在内的各种理由差评啊，早该治治了，只是上面有人说给中东煤 ...</blockquote>
+最近游戏圈的舆论没法看，都跟疯子一样
+
+*****
+
+####  karastar  
+##### 87#       发表于 2024-3-22 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335105&amp;ptid=2176582" target="_blank">绿色食品 发表于 2024-3-22 13:02</a>
+
+RE引擎优化真的好吗,至少我感觉画面是真不行,虚幻5秒了</blockquote>
+虚幻5玩明白的有几家
+

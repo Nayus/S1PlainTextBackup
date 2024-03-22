@@ -3788,3 +3788,16 @@ FGO坑爹程度翻个倍也到不了这个程度
 
 总体7的嘛吧，比2.5.2好太多了，最后黒贞CG 给10分。人理我劝你好自为之，快给我联网，我的黒贞老婆<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11739#       发表于 2024-3-22 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333901&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-3-22 11:39</a>
+
+像PCR这种也开服了好几年除了少数情况每个月都固定要更新一次主线和活动....全程语音....氪金榜常 ...</blockquote>
+前两年签商单合作的时候法米通有明确提过废狗的制作开销是日本的2D Smartphone Game业内第一；但是同年从DW离职的人员的爆料说法来看，从业者报酬并不是业内前列。YC走了以后的管理愈发粗放是肯定有锅的，金沢利幸那边力大砖飞砸钱维持热度也是一笔巨额的支出
+
+另外你都说PCR了，难道不知道cy的游戏有不走果/谷商店的渠道，以及整个cy有混得好的项目贴补混的不好的先例吗。全语音的声优开支真的没想象的那么多，那几个50~100名的全语音游戏财报利润率都比lasengle时期的你狗要高
+

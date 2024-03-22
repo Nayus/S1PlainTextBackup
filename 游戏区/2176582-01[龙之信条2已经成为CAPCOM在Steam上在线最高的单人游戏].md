@@ -1074,3 +1074,16 @@ re引擎所谓的优化好一是小场景，二是人不多
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  jy000129  
+##### 116#       发表于 2024-3-22 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333024&amp;ptid=2176582" target="_blank">八汰乌 发表于 2024-3-22 10:48</a>
+不是说优化不行玩不下去吗？18W人都是在捏脸吗？</blockquote>
+只要他们开始推牛车就会退游<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+推牛车都不退游的进主城一定会因为掉帧退游
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

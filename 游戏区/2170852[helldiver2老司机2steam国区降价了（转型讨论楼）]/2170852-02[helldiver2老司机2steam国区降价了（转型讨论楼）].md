@@ -6903,3 +6903,27 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 现在发现换了个星球，难4的吐酸虫也开始多起来了。这玩意我觉得比强袭虫还猛，刷的多又硬，吐酸的伤害还比强袭虫撞人高多了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 2146#       发表于 2024-3-22 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64329614&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-22 00:09</a>
+
+所谓修复机甲自爆就是现在火箭弹只能直着射出去，箭头太牛逼喇，修复的神，这下机甲直接废了 ...</blockquote>
+也没有直射，就是把俯仰角砍了 这样就不会射到自己脚上了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤井稻妻  
+##### 2147#       发表于 2024-3-22 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333801&amp;ptid=2170852" target="_blank">Hqchan 发表于 2024-3-22 11:33</a>
+
+难6守点就遇到过一次刷两泰坦了，吓得我滚回难4慢慢刷级了
+
+现在发现换了个星球，难4的吐酸虫也开始多起来 ...</blockquote>
+普通的吐酸虫有个很反直觉的点，就是他的头其实是最脆弱的，屁股的大囊按说是弱点但是吃90%的子弹减伤，不是爆炸伤害打不动
+

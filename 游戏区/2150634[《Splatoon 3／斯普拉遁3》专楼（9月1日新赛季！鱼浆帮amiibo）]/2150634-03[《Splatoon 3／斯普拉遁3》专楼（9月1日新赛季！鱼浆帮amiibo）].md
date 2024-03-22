@@ -7258,3 +7258,16 @@ lean的喷3 database那边可以看服装的入手方式，shop是商店catalog�
 
 2024-3-22 10:20 上传
 
+
+*****
+
+####  星野航  
+##### 3704#       发表于 2024-3-22 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64328853&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-3-21 23:50</a>
+
+日文版：空帆&amp;楓火
+
+英文版：Fire &amp; Ice</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">英文版这组合翻译也太
+

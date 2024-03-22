@@ -12167,3 +12167,18 @@ mujica入选《滚石》Future of Music 日本代表组<img src="https://static.
 
 原来今年WSD没当ASL赞助商，那鸡狗塞进去是看面子给刷脸吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14368#       发表于 2024-3-22 12:09
+
+【Staff B有话说】
+「Bushiroad Expo 2024」in Shanghai 的最新信息！！！！
+Bushiroad将于今夏以「Bushiroad Expo 2024」的形式参展BilibiliWorld 2024！！！！
+由担当MyGO!!!!!角色设计的信泽收老师全新创作的活动主视觉图也于今日首次公开！！！！
+敬请期待更多活动详情。
+#BW2024# 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

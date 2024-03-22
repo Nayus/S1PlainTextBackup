@@ -451,3 +451,29 @@ SD性能都跑不满  完全没法玩
 
 你们想象中的完全版龙信2他根本就做不出来好吧
 
+
+*****
+
+####  大蒜鸭  
+##### 51#       发表于 2024-3-22 12:09
+
+往预算少开发周期短带这种言论跟ff16那会一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nilren  
+##### 52#       发表于 2024-3-22 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333424&amp;ptid=2176582" target="_blank">KCELIA 发表于 2024-3-22 11:13</a>
+图形优化很好，先看要求配置不高，cpu是12代i5起步，我前几年的g15,11代i7+3060完完全没法儿玩，甚至不能 ...</blockquote>
+啊，我是5900hx* 3070l，是不是药丸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  MiaoJi  
+##### 53#       发表于 2024-3-22 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可以等dlc捆绑包了
+

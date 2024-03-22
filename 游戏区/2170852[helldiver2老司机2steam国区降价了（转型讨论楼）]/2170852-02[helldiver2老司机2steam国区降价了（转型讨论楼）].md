@@ -7041,3 +7041,24 @@ https://b23.tv/c6mn5Nq</blockquote>
 但是以前机甲高打低也会炸死自己，怀疑就是穿模了</blockquote>
 这就不知道了，我反正只在转向时被自己打爆过，即便如此机甲还是压制虫子最好的战备。
 
+
+*****
+
+####  Launce  
+##### 2158#       发表于 2024-3-22 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">瑞典那边双休是什么说法，再恶劣的bug也没见矢脑周末加班过
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  FLZB  
+##### 2159#       发表于 2024-3-22 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64338324&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-3-22 16:51</a>
+
+有仰角和俯角，但是机体运动比较慢。我看那个机甲左边挂着的火箭槽感觉就是不可自己转向的，只能跟着机体 ...</blockquote>
+怕不是bug或者又暗改了，昨天带机甲打歼灭低处的强袭直接打不到，火箭弹是完全水平直射出去的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

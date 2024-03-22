@@ -6927,3 +6927,15 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 现在发现换了个星球，难4的吐酸虫也开始多起来 ...</blockquote>
 普通的吐酸虫有个很反直觉的点，就是他的头其实是最脆弱的，屁股的大囊按说是弱点但是吃90%的子弹减伤，不是爆炸伤害打不动
 
+
+*****
+
+####  smdzh2  
+##### 2148#       发表于 2024-3-22 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333801&amp;ptid=2170852" target="_blank">Hqchan 发表于 2024-3-22 12:33</a>
+难6守点就遇到过一次刷两泰坦了，吓得我滚回难4慢慢刷级了
+
+现在发现换了个星球，难4的吐酸虫也开始多起来 ...</blockquote>
+带龟壳盾+榴弹/电弧，你就是毒爆虫的爹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

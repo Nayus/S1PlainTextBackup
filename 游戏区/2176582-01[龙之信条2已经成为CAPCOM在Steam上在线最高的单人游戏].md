@@ -560,3 +560,104 @@ SD性能都跑不满  完全没法玩
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">内购也能拿来说说明可能真出圈了，傻逼卡普空哪个游戏没塞内购，鬼泣卖红魂，生化卖无限武器卖改造券，怪猎卖捏脸券，龙信这卖几个传送石就大惊小怪的。
 
+
+*****
+
+####  姬茧墨  
+##### 63#       发表于 2024-3-22 12:28
+
+一大堆对内购大惊小怪的玩家说明这次真的引到流了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  bgmilk  
+##### 64#       发表于 2024-3-22 12:30
+
+    坛友眼光.....奇幻财富密码......法环动手    泥潭爆起典来和nga的弱智程度也不分高下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 65#       发表于 2024-3-22 12:30
+
+龙信这些东西就是yjy自己喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  体嫌口不直  
+##### 66#       发表于 2024-3-22 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡婊以前有内购所以这次有内购不能拿出来说，卡婊训狗技术可以的。
+
+*****
+
+####  karastar  
+##### 67#       发表于 2024-3-22 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334604&amp;ptid=2176582" target="_blank">Tackstone 发表于 2024-3-22 12:24</a>
+
+法环都不说初预告的关注度就知道凉不了了，demo出来的时候还意识不到法环的成功就有点过分了。龙信2现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你这不就是结果倒推，龙信2是一代plus也是一开始就知道的，你所谓的19年开发绝对不是这个样子的逻辑是哪来的。
+
+*****
+
+####  岬开斗  
+##### 68#       发表于 2024-3-22 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334158&amp;ptid=2176582" target="_blank">烈焰舞阳 发表于 2024-3-22 11:55</a>
+目前绝赞好评34，多半差评
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+你点开好评看看，有一半是喷的，本质是差评。
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈毛  
+##### 69#       发表于 2024-3-22 12:32
+
+ 本帖最后由 哈毛 于 2024-3-22 14:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334607&amp;ptid=2176582" target="_blank">x分裂者 发表于 2024-3-22 14:25</a>
+
+内购也能拿来说说明可能真出圈了，傻逼卡普空哪个游戏没塞内购，鬼泣卖红魂，生化卖无限武器卖改造 ...</blockquote>
+先玩……再说……传送石定价很贵，基石更是一周目就几个不够放。牛车慢还挨打也不全通。
+
+比其他内购情况严峻得多了。光友情任务跑路都够你跑。
+
+*****
+
+####  白昼梦  
+##### 70#       发表于 2024-3-22 12:32
+
+以前可没说我们为了游戏代入感，系统做成不让玩家自己刷红魂了
+
+*****
+
+####  banrendacha  
+##### 71#       发表于 2024-3-22 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334343&amp;ptid=2176582" target="_blank">天王寺綯 发表于 2024-3-22 12:07</a>
+
+卡布空已经多久没制作大体量3A了
+
+你们想象中的完全版龙信2他根本就做不出来好吧 ...</blockquote>
+龙信本来也不是大体量3A啊，因该说卡普空就没做过3A这种东西
+
+
+*****
+
+####  狼与洗发水  
+##### 72#       发表于 2024-3-22 12:35
+
+卡婊会给你做大体量3a？肯定是一份拆成10份卖，分5年更新，最后打包一个价格翻倍豪华版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  塔洛斯级  
+##### 73#       发表于 2024-3-22 12:37
+
+不急 等太上皇版 
+

@@ -7056,3 +7056,15 @@ kanata到底离基地有多远，这么长时间赶不回去<img src="https://st
 
 另外拐秘银的理由怎么扔小动画里了，动画里一句话就可以解决的事情
 
+
+*****
+
+####  aptx8285144  
+##### 4440#       发表于 2024-3-22 14:20
+
+ 本帖最后由 aptx8285144 于 2024-3-22 14:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332384&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-3-22 10:06</a>
+
+这集观感比前两集好多了啊，不过那能量盾也是3D打印机的产物吗 战前打炮也太不吉利了还好这旗拔掉了 ...</blockquote>
+初衷不像打算打炮吧，感觉更像来想暗示告白确定关系吧，当然不知不觉坐到身边就脸红了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，彼方“心领神会”地先敷衍过去了就强调我和艾女士的约定一直遵守着，反正时间属于艾女士的jpg
+

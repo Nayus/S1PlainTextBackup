@@ -12276,3 +12276,15 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
 <img src="https://p.sda1.dev/16/e447c6e39af4cc3584c6cb3f5787cb30/CMP_20240322141602262.jpg" referrerpolicy="no-referrer">
 简中限定？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dofuweiguodi  
+##### 14379#       发表于 2024-3-22 14:24
+
+剧里全是祥子的错
+
+剧外全是祥厨的错<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+某些人不要太恨了，不会是祥深柜吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

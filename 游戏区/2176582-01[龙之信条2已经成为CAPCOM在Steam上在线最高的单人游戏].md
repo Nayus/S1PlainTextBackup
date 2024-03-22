@@ -1043,3 +1043,11 @@ re引擎所谓的优化好一是小场景，二是人不多
 
 就算卡婊一直都有内购的陋习 也不代表不能喷啊。  而且即使是内购之间，亦有差距。
 
+
+*****
+
+####  Sevenzerofive  
+##### 113#       发表于 2024-3-22 14:24
+
+卡婊从鬼泣4的时候就有开始内购卖垃圾小玩意的习惯了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

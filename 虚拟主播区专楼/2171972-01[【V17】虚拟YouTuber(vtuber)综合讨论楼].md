@@ -2642,3 +2642,19 @@ vspo这新人感觉完全不夹啊。
 
 最后なしま的火箭弹把整个事件转换成了进行中的故事，让市长无法直接插口，如果不是这发火箭弹搞不好有几个人直接踢出服务器了
 
+
+*****
+
+####  losstoY  
+##### 124#       发表于 2024-3-22 20:24
+
+这。。。
+
+<img src="https://img.saraba1st.com/forum/202403/22/202303rxqpu669q3udqznn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 20:23 上传
+

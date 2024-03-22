@@ -6950,3 +6950,15 @@ https://b23.tv/c6mn5Nq
 
 —— 来自 TCL T612B, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  WGTCorp  
+##### 2150#       发表于 2024-3-22 14:31
+
+ 本帖最后由 WGTCorp 于 2024-3-22 14:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331029&amp;ptid=2170852" target="_blank">pwzzy 发表于 2024-3-22 08:11</a>
+
+刚玩，才12级，先解锁的镰刀，带个榴弹遇到坦克就抓瞎，现在带的一次性筒子，因为还没500kg和激光只 ...</blockquote>
+可以原地转身丢飞鹰空袭，但是容易跑不开翻车。还有个震撼弹定身+轨道精准攻击，不过震撼弹不好补充，而且如果有点轨道相关的debuff就很难受了。所以一次性筒子就是最好的选择。
+

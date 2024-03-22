@@ -3578,3 +3578,55 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 我则是伯爵，毕竟无论是原作还是你月版的都很有人情味</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伯爵和黑贞都算是这游戏玩家最早的男/女友了....这次联手谢幕真有点那啥的味道
 
+
+*****
+
+####  cenhr  
+##### 11721#       发表于 2024-3-22 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332994&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-3-22 10:46</a>
+
+伯爵和黑贞都算是这游戏玩家最早的男/女友了....这次联手谢幕真有点那啥的味道 ...</blockquote>
+感觉真的准备收工了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 11722#       发表于 2024-3-22 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332879&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-22 10:40</a>
+
+可能就是为了让玩Avengers Assemble的梗？</blockquote>
+那是必然，你看伯爵都把后事拜托给阿比了，最终章必然是要来一波阿比通过泡泡（时间和空间宝石）把奏章ban掉的extra职阶全拉回来上演妇联终局之战的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 11723#       发表于 2024-3-22 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333048&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-22 10:50</a>
+
+感觉真的准备收工了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">落地一个黑玛丽氪金榜又轻轻松松的爬到了第一
+
+收工了再去哪里找这种摇钱树.....运营要真敢抱着这钱我不赚了的态度直接关服那我真要佩服它了
+
+*****
+
+####  UNISONIA  
+##### 11724#       发表于 2024-3-22 10:55
+
+奏I女主位是19年卖最好的迦摩；奏II女主位是16年卖最好的黑贞，男主是17年首次复刻的时候砍下翻盘业绩的初代月球男友伯爵，客串的叔母是15年卖最好的师匠；追加的Foreigner章预定要送走17年卖最好的阿比
+
+这部分选角就是按照人气高低来决定的
+
+*****
+
+####  v22325  
+##### 11725#       发表于 2024-3-22 10:55
+
+<blockquote>森兰丸 发表于 2024-3-22 09:53
+这种老卡都没有我只能理解为是你对角色的爱不足了....都不知道复刻多少次了吧 ...</blockquote>
+我每次都抽的！她不出啊！
+

@@ -735,3 +735,15 @@ CGアニメーションディレクター：山本直輝
 Meta Quest
 <img src="https://p.sda1.dev/16/4342550c8586cbbf3f3107ce1768d6f8/20240322_104027.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 79#       发表于 2024-3-22 10:53
+
+ 本帖最后由 gundammarkⅡ 于 2024-3-22 10:54 编辑 
+
+UC0096年，主角机delta系；编剧関西リョウジ之前的好像负责过《U.C.0094 Across The Sky》《U.C.0096 Last Sun》，都是夏逆到独角兽这段时间的故事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+好在《星月的碎片》和《“带袖的”整备班长的讴歌》只是负责构成・设定，这俩挺喂屎的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

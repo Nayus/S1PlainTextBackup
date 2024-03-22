@@ -3459,3 +3459,51 @@ zp自己的测评来了，想看战斗深度的可以参考下
 
 zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁王的普通玩家是不是没啥参考价值<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jokertx  
+##### 1851#       发表于 2024-3-22 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332896&amp;ptid=2092342" target="_blank">就是剑鞘 发表于 2024-3-22 10:40</a>
+
+zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁王的普通玩家是不是没啥参考价值 ...</blockquote>
+其实如果没玩过仁王我觉得作为体验忍组动作系统来接触，反而是不错的游戏
+
+*****
+
+####  jokertx  
+##### 1852#       发表于 2024-3-22 10:47
+
+对于已经打了很久仁王和对马岛的人来说，反而是二者劣化融合的四不像……
+
+*****
+
+####  nagitoY  
+##### 1853#       发表于 2024-3-22 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332896&amp;ptid=2092342" target="_blank">就是剑鞘 发表于 2024-3-22 10:40</a>
+
+zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁王的普通玩家是不是没啥参考价值 ...</blockquote>
+要有自己辨别的能力。zp对战斗系统的研究在媒体测评里肯定是独一档的，战斗深度方面可以看他说了哪些。另一方面，zp本人是铁血忍组粉，连卧龙都能吹不比仁王差的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就是剑鞘  
+##### 1854#       发表于 2024-3-22 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333015&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-22 10:48</a>
+
+要有自己辨别的能力。zp对战斗系统的研究在媒体测评里肯定是独一档的，战斗深度方面可以看他说了哪些。另 ...</blockquote>
+主要我就是只玩过卧龙没玩过仁王的人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">多等几个评测再看看吧
+
+
+*****
+
+####  火华火华火  
+##### 1855#       发表于 2024-3-22 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332896&amp;ptid=2092342" target="_blank">就是剑鞘 发表于 2024-3-22 10:40</a>
+zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁王的普通玩家是不是没啥参考价值 ...</blockquote>
+没玩过仁王玩仁王2啊，肯定比浪人强
+

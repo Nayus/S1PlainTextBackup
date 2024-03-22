@@ -3894,3 +3894,16 @@ FGO坑爹程度翻个倍也到不了这个程度
 即让guda短暂踏上圣人的道路，然后因为什么事领悟到自己终究抵 ...</blockquote>
 至少OC1和OC2其实共通的就是路走过了，因此明白到这两条路的真意，但不适合自己/要保持初心，所以拒绝的同事也接受。这点才是OC的重点吧
 
+
+*****
+
+####  シャル  
+##### 11749#       发表于 2024-3-22 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333270&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-3-22 11:04</a>
+
+丑御前这算是刚入职迦勒底就外派失联？</blockquote>
+来个骑丑御前啊
+
+很喜欢那个盔甲和大蜘蛛装甲
+

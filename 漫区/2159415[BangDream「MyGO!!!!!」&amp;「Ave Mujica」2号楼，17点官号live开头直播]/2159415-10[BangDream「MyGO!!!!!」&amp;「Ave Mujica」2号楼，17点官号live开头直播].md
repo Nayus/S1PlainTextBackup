@@ -12425,3 +12425,18 @@ test
 因为mujica动画没出，所以🐶剧情不能动，只能在日常打转，所以只能硬贴标签，所以又要掰扯🐶在“第二季”戏份占比多少，🐶戏份少了，就会显得受制于时间线成为刻板印象的受害者的🐶像个傻子。
 所以归根到底还是害🐶少了一集戏份、没能包好饺子的鸡团的错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 14393#       发表于 2024-3-22 20:20
+
+看了下，无配信的两场风评都很好，就等下个月爱知场照妖镜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 14394#       发表于 2024-3-22 20:21
+
+妮楼怎么也有羊嘎痴
+

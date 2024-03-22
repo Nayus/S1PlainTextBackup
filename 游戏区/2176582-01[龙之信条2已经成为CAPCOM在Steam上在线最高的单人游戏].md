@@ -477,3 +477,86 @@ SD性能都跑不满  完全没法玩
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可以等dlc捆绑包了
 
+
+*****
+
+####  karastar  
+##### 54#       发表于 2024-3-22 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334214&amp;ptid=2176582" target="_blank">Tackstone 发表于 2024-3-22 11:58</a>
+
+法环又不是发售才爆的，龙信22年6月预告才是个只有标题的饼渣，实际开发最多也就是三年。就现在这个内容 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">法环不是发售爆的的那是什么时候爆的。22.6月怎么看出来只有饼渣的，两年的全力开发不是正常游戏的开发周期吗。
+
+*****
+
+####  woshenc  
+##### 55#       发表于 2024-3-22 12:17
+
+小高历史地位再上一层！
+
+*****
+
+####  啊哈  
+##### 56#       发表于 2024-3-22 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333979&amp;ptid=2176582" target="_blank">jf8350143 发表于 2024-3-22 11:44</a>
+
+优化爆炸+傻逼内购</blockquote>
+啥？！还有内购！！<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  海豹墨鱼卷  
+##### 57#       发表于 2024-3-22 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334503&amp;ptid=2176582" target="_blank">啊哈 发表于 2024-3-22 12:18</a>
+啥？！还有内购！！</blockquote>
+我估计是商业策略，供中东氪佬的修改器，就没想普通玩家用的放出来给大家看到了
+
+*****
+
+####  秋月孝三  
+##### 58#       发表于 2024-3-22 12:23
+
+是不是可以期待wilds初版没上位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  keasen  
+##### 59#       发表于 2024-3-22 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334551&amp;ptid=2176582" target="_blank">海豹墨鱼卷 发表于 2024-3-22 12:22</a>
+我估计是商业策略，供中东氪佬的修改器，就没想普通玩家用的放出来给大家看到了 ...</blockquote>
+你在说什么啊，鬼泣5就有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厄斯沃穆  
+##### 60#       发表于 2024-3-22 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334551&amp;ptid=2176582" target="_blank">海豹墨鱼卷 发表于 2024-3-22 12:22</a>
+我估计是商业策略，供中东氪佬的修改器，就没想普通玩家用的放出来给大家看到了 ...</blockquote>
+搞内购不是卡婊老手艺了么，鬼泣生化哪个没有，猛汉都要卖卖外观音声呢
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Tackstone  
+##### 61#       发表于 2024-3-22 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334486&amp;ptid=2176582" target="_blank">karastar 发表于 2024-3-22 12:17</a>
+法环不是发售爆的的那是什么时候爆的。22.6月怎么看出来只有饼渣的，两年的全力开发不是正常游戏 ...</blockquote>
+法环都不说初预告的关注度就知道凉不了了，demo出来的时候还意识不到法环的成功就有点过分了。龙信2现在事实就是初代的plus，完全就是小投入给re引擎探路的产品，真是19年开始开发完成度绝对不会是现在这个样子。在我看来龙信这个系列完全是有比肩甚至超过怪猎的潜力的，现在这样子龙信3怕不是又要十年后了。
+
+*****
+
+####  x分裂者  
+##### 62#       发表于 2024-3-22 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">内购也能拿来说说明可能真出圈了，傻逼卡普空哪个游戏没塞内购，鬼泣卖红魂，生化卖无限武器卖改造券，怪猎卖捏脸券，龙信这卖几个传送石就大惊小怪的。
+

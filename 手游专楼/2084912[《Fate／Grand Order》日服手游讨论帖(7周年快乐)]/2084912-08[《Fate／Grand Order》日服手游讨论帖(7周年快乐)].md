@@ -3937,3 +3937,14 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 什么落地成盒 太地狱了
 
+
+*****
+
+####  rollingusagi  
+##### 11753#       发表于 2024-3-22 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64342283&amp;ptid=2084912" target="_blank">清河子 发表于 2024-03-22 21:54:39</a>
+比起来新伯爵才是难以想象语音怎么录啊</blockquote>应该和黑玛丽一样两套召唤语音，一套通奏二前，一套通奏二后，和黑玛丽一样图鉴里大概率不会link lost，理由估计也差不多
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

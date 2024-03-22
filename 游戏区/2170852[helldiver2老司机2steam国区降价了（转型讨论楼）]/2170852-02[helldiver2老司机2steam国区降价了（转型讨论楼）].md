@@ -7070,3 +7070,19 @@ https://b23.tv/c6mn5Nq</blockquote>
 
 去难度4做下日常，撤离点同场5个坦克，这工作室又在发什么癫
 
+
+*****
+
+####  Launce  
+##### 2161#       发表于 2024-3-22 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚做完日常回船就听到阴兵来袭了
+
+<img src="https://img.saraba1st.com/forum/202403/22/225850k1mlgxxlllwakjcw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 22:58 上传
+

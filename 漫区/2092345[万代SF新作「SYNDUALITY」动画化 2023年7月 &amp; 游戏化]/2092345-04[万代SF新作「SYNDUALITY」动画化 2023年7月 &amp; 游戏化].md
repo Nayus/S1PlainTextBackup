@@ -107,3 +107,22 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Piano-Forest  
+##### 4449#         楼主| 发表于 2024-3-22 23:01
+
+第24話「My name is...Noir / Drifters again」
+
+[https://youtu.be/lvD56BWtZOE](https://youtu.be/lvD56BWtZOE)
+
+ヴァイスハイトの策略により、全てのメイガスが活動を停止してしまった。
+
+ムートンやシュネーも例外ではないなか、唯一動けるノワールと共に、ついにカナタはヴァイスハイトとの最終決戦に挑む。
+<img src="https://p.sda1.dev/16/7c9863eb759b47075662d9f53a3e7e52/SYN24_01.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/d784313c5e8210bb899180d832883a0f/SYN24_02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/0eb677adffc9adff34c55153194a9aff/SYN24_03.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/ea907c570298443e7079bb2667221b62/SYN24_04.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/96d231fe403c2c23aedc0ab8b5bb6996/SYN24_05.jpg" referrerpolicy="no-referrer">
+

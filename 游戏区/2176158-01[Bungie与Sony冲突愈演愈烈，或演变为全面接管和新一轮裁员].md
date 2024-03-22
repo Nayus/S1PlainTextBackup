@@ -633,3 +633,14 @@ bungie管理层项目管理确实垃圾，年五之后势头明明挺好的能�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64300500&amp;ptid=2176158" target="_blank"> 哈罗 发表于 2024-3-19 15:59</a> 做了10年的pve，被二线小厂的老司机2教做人，你还好意思指导别人 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就目前这卖皮肤 又氪又肝塞满辣鸡换皮武器的通行证，老司机2的持续运营水平跟棒鸡孰高孰低还不好说呢来自: iPhone客户端
 
+
+*****
+
+####  Midnight.Coup  
+##### 63#       发表于 2024-3-22 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64302037&amp;ptid=2176158" target="_blank">Rushtime33 发表于 2024-3-19 18:05</a>
+
+bungie管理层项目管理确实垃圾，年五之后势头明明挺好的能搞成这样</blockquote>
+年六已经有索尼在后面撑腰了，独立的三、四、五三年就是依托答辩
+

@@ -12132,3 +12132,13 @@ mujica入选《滚石》Future of Music 日本代表组<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不当赞助商难道不是没钱
 
+
+*****
+
+####  舆水沉浮  
+##### 14364#       发表于 2024-3-22 11:33
+
+简中专属限定立绘签名卡<img src="https://p.sda1.dev/16/e10e6085a742910b536de179fa27c0b1/CMP_20240322113259817.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

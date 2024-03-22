@@ -3616,3 +3616,24 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 可惜对面一堆霸体反打，都没以前好使了。
 
+
+*****
+
+####  leafS  
+##### 1867#       发表于 2024-3-22 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333607&amp;ptid=2092342" target="_blank">laoz 发表于 2024-3-22 11:21</a>
+
+仁王哪需要先防反对面出破绽才打，这玩意平A打过去不出硬直对面就给你来连招或者红光，而且还非常喜欢玩 ...</blockquote>
+仁王里你装备和流派没起来之前打怪也不是无脑哐哐连按攻击啊，无非是这作某些人形怪承担了仁王里妖怪的角色。浪人这作我觉得就是鼓励对刀过程中积极使用石火弹反，把仁王里的逆波、胧常态化，看技能树里空手石火、空中石火就知道了，还有弹反子弹直接附魔
+
+*****
+
+####  laoz  
+##### 1868#       发表于 2024-3-22 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333754&amp;ptid=2092342" target="_blank">病態極端 发表于 2024-3-22 11:30</a>
+
+你的仁王2裡沒有妖怪嗎…妖怪不只霸體，還會開常世呢</blockquote>
+妖怪也有小鬼那些上去武技削精随便打的啊，太刀目前给的武技没这么好用
+

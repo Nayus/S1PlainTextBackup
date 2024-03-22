@@ -3687,3 +3687,43 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 这周竞争对手只有马娘上了个不是很强的新卡莱茵卡夫特以及Nikke的Re0联动吧，外加DQ WALK周四出了新活动 ...</blockquote>
 有业界改变的实际例子吗？长寿手游除FGO外还有及格，例如GBF10年和隔壁P&amp;D怎么还不收工？
 
+
+*****
+
+####  UNISONIA  
+##### 11731#       发表于 2024-3-22 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333744&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-22 11:30</a>
+
+有业界改变的实际例子吗？长寿手游除FGO外还有及格，例如GBF10年和隔壁P&amp;D怎么还不收工？ ...</blockquote>
+GBF虽然在玩家那边的口碑不好，但是现在古战场点名点到的日活玩家是你狗的十倍还多，为啥要收工（而且这游戏是页游赛道的）
+
+P&amp;D虽然早就颓了，但是2020年以后的衰退要比废狗少的多，两者的差距是拉近了的
+
+*****
+
+####  森兰丸  
+##### 11732#       发表于 2024-3-22 11:39
+
+ 本帖最后由 森兰丸 于 2024-3-22 11:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64333340&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-22 11:08</a>
+
+这周竞争对手只有马娘上了个不是很强的新卡莱茵卡夫特以及Nikke的Re0联动吧，外加DQ WALK周四出了新活动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像PCR这种也开服了好几年除了少数情况每个月都固定要更新一次主线和活动....全程语音....氪金榜常年百名开外的都完全看不到要关服的迹象....坑还越挖越深
+
+我不信FGO的投入要比PCR的更大
+
+
+*****
+
+####  exiaexa  
+##### 11733#       发表于 2024-3-22 11:46
+
+GBF的pro们已经被调教成母猪了，拿GBF举例子那是一点道理都没有的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你就看看新LM出来全是老人轮流坐台，你就该知道游戏人群和新内容都是啥样的
+
+现在有人问GBF能不能玩，我都是让人直接跑的，大概只有这点和你游一模一样了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -12403,3 +12403,25 @@ test
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  上杉打老虎  
+##### 14391#       发表于 2024-3-22 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64340806&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-22 19:55</a>
+
+新图果然有助手帮忙画，我说怎么信泽突然又恢复水准了</blockquote>
+然而素世还是一如既往的邪神嘴
+
+*****
+
+####  -LYRE-  
+##### 14392#       发表于 2024-3-22 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64337750&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-3-22 16:18</a>
+为啥爱音卡面这种狗团内部的剧情还能一转喷祥子喷鸡团阿？ 鸡团都被武士道冷藏了还有追著打的必要吗 ...</blockquote>
+去围观了下，思路大概是这样的——
+因为mujica动画没出，所以🐶剧情不能动，只能在日常打转，所以只能硬贴标签，所以又要掰扯🐶在“第二季”戏份占比多少，🐶戏份少了，就会显得受制于时间线成为刻板印象的受害者的🐶像个傻子。
+所以归根到底还是害🐶少了一集戏份、没能包好饺子的鸡团的错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

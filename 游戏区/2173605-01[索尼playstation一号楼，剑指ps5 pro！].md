@@ -1462,3 +1462,18 @@ BREAKING: PS5 is officially getting Backgrounds/Themes support in its next major
 
 Credit: @MysticRyan’s video for the screenshots.
 
+
+*****
+
+####  ナルバレック  
+##### 324#       发表于 2024-3-22 20:09
+
+动态壁纸和主题即将回归是吧....
+
+*****
+
+####  SergeGlenn  
+##### 325#       发表于 2024-3-22 20:10
+
+主题可真够慢的，下一代主机还是别换UI了吧
+

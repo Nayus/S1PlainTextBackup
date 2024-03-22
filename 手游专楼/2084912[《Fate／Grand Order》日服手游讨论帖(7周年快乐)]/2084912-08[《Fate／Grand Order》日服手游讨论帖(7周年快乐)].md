@@ -3862,3 +3862,35 @@ FGO坑爹程度翻个倍也到不了这个程度
 
 不知其他人，但这点说服了我
 
+
+*****
+
+####  白金口袋  
+##### 11746#       发表于 2024-3-22 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64340678&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-3-22 19:44</a>
+
+是这样，而且先是从迦勒底的咕哒回归到原来日常的咕哒，再到失去了日常，这代入感真是拉满，所以这 ...</blockquote>
+你说的这个点估计在ruler奏章会再来一遍
+
+即让guda短暂踏上圣人的道路，然后因为什么事领悟到自己终究抵达不了圣人，是有着私欲的凡人，对自己的理解又加深了一步，然后第三章过关
+
+*****
+
+####  johnkamsar  
+##### 11747#       发表于 2024-3-22 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11748#       发表于 2024-3-22 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64341024&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-3-22 20:12</a>
+
+你说的这个点估计在ruler奏章会再来一遍
+
+即让guda短暂踏上圣人的道路，然后因为什么事领悟到自己终究抵 ...</blockquote>
+至少OC1和OC2其实共通的就是路走过了，因此明白到这两条路的真意，但不适合自己/要保持初心，所以拒绝的同事也接受。这点才是OC的重点吧
+

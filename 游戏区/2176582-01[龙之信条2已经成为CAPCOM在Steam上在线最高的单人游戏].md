@@ -1107,3 +1107,36 @@ re引擎所谓的优化好一是小场景，二是人不多
 
 现在伊苏，龙二，浪人集体骂声一片，全都是缩水+优化差，也是好久不见的盛景。
 
+
+*****
+
+####  wzh5555  
+##### 119#       发表于 2024-3-22 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334949&amp;ptid=2176582" target="_blank">洛克萨斯 发表于 2024-3-22 12:51</a>
+
+为啥以优化好出名的re引擎做的龙2会这么糟糕..............怪</blockquote>
+瓶颈在于CPU，NPC数量一大就压不住。生化re的优势就在于自主行为复杂的NPC同屏的就没多少，而且杂兵敌人不用做复杂AI。
+
+*****
+
+####  爱撕衣魔刃  
+##### 120#       发表于 2024-3-22 20:11
+
+<blockquote>FUZE 发表于 2024-3-22 12:01
+我看别人PS5 那个画面 说真的可能不比滚5好多少
+
+但是帧数锁30就算了 这动态模糊是个啥啊 快吐了 ...</blockquote>
+老滚V开上PC那些画质增强补丁绝对比现在这东西强……
+
+
+*****
+
+####  洛亚替身  
+##### 121#       发表于 2024-3-22 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64341012&amp;ptid=2176582" target="_blank">爱撕衣魔刃 发表于 2024-3-22 20:11</a>
+
+老滚V开上PC那些画质增强补丁绝对比现在这东西强……</blockquote>
+这色调没ENB的滚五太像了。光照也一般，闪瞎狗眼和灰蒙蒙二选一
+

@@ -3986,3 +3986,43 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看起来像是主角在被雷普一样
 
+
+*****
+
+####  normalli  
+##### 1907#       发表于 2024-3-22 16:39
+
+其实光荣不是没有好的开放世界游戏，太阁立志转不就是吗，但把这个搬到高清3d世界里确实过于困难了
+
+*****
+
+####  白色有角  
+##### 1908#       发表于 2024-3-22 16:41
+
+这游戏的幻化是只能幻化一整套吗？
+
+我只是觉得某一件或者身上某个部位的衣服很丑，只想换那个其他没什么动的意思……
+
+试了试武器倒是可以单独设置幻化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bletilla  
+##### 1909#       发表于 2024-3-22 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64338018&amp;ptid=2092342" target="_blank">normalli 发表于 2024-3-22 16:34</a>
+
+那女主呢，只能百合吗</blockquote>
+可以的不影响
+
+*****
+
+####  bletilla  
+##### 1910#       发表于 2024-3-22 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64337862&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2024-3-22 16:25</a>
+
+能攻略自捏搭档么？</blockquote>
+不行，而且搭档和一个神经病似的……
+

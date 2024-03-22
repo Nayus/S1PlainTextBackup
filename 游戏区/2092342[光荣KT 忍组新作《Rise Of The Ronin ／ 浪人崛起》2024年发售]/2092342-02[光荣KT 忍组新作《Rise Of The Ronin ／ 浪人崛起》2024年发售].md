@@ -4350,3 +4350,13 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 主线把权藏杀了，是不是野太刀那个流派不能升级了</blockquote>
 听说只要到下一个章节，前一个章节的内容都能随意重玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 1943#       发表于 2024-3-23 00:44
+
+怎么会有这么让人上瘾的战斗系统<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

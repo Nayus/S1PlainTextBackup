@@ -7008,3 +7008,15 @@ https://b23.tv/c6mn5Nq
 https://b23.tv/c6mn5Nq</blockquote>
 满脑子710元素的白皮是这样的，所以我宁愿等好友房也不打匹配
 
+
+*****
+
+####  Mr.Hopp  
+##### 2155#       发表于 2024-3-22 16:51
+
+ 本帖最后由 Mr.Hopp 于 2024-3-22 16:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64337825&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-22 16:23</a>
+
+指哪打哪明显是设计啊，符合tps游戏的操作直觉，自爆无非是火箭弹斜射出去打到机甲自己的hitbox，这玩意 ...</blockquote>
+有仰角和俯角，但是机体运动比较慢。我看那个机甲左边挂着的火箭槽感觉就是不可自己转向的，只能跟着机体转向，所以一开始指哪打哪机体没转但火箭却判定转向射出去了打中自己才会爆。
+

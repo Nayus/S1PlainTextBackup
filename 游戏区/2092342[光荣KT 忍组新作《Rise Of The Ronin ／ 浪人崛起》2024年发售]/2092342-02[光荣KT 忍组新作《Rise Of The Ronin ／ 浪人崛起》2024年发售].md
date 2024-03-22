@@ -4026,3 +4026,43 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 能攻略自捏搭档么？</blockquote>
 不行，而且搭档和一个神经病似的……
 
+
+*****
+
+####  bwsusaga  
+##### 1911#       发表于 2024-3-22 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64338235&amp;ptid=2092342" target="_blank">bletilla 发表于 2024-3-22 16:46</a>
+
+不行，而且搭档和一个神经病似的……</blockquote>
+啊？
+
+我主角捏了个飒姐，搭档捏了个甜妹，
+
+结果是这种展开么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？
+
+*****
+
+####  duraa  
+##### 1912#       发表于 2024-3-22 16:52
+
+ 本帖最后由 duraa 于 2024-3-22 16:54 编辑 
+
+我在路上走着走着突然解锁烈风了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">发现了，原来烈风在武器熟练度那里解锁的
+
+*****
+
+####  bletilla  
+##### 1913#       发表于 2024-3-22 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64338313&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2024-3-22 16:50</a>
+
+啊？
+
+我主角捏了个飒姐，搭档捏了个甜妹，
+
+结果是这种展开么？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对，我一开始用的默认男脸，太面目可憎了去长屋换了个妹妹，顺眼多了
+
+但还是神经病
+

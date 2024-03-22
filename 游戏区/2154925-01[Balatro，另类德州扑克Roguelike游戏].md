@@ -6179,3 +6179,16 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Awanano  
+##### 542#       发表于 2024-3-22 16:48
+
+过的第一把是狂暴叠裤子打两对，刚刚又摇到蓝图+捷径+钢铁小丑+重置商店+2倍率过了把顺子流<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+捷径感觉比四指强太多了
+
+玩这个明显感觉到脑内线程不够，有几次都是没注意到局部细节没打出最大化效果、要是能回退一次操作就好了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

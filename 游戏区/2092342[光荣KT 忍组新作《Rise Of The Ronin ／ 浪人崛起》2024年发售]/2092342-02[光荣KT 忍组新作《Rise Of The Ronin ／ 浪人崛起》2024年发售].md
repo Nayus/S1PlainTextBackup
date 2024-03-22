@@ -3834,3 +3834,38 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 还有zp的评价看看差不多就行了，毕竟给他提前评测要恰饭的，真要认真说fsr的男主性能放他手上他都能玩出花 ...</blockquote>
 一般玩家也不会去研究，能通关就算不错的了
 
+
+*****
+
+####  Yeelolo  
+##### 1890#       发表于 2024-3-22 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335636&amp;ptid=2092342" target="_blank">培根芝士蛋堡XD 发表于 2024-3-22 13:39</a>
+
+还有zp的评价看看差不多就行了，毕竟给他提前评测要恰饭的，真要认真说fsr的男主性能放他手上他都能玩出花 ...</blockquote>
+普通玩家玩仁王不也是一套复读到通关，比如我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，再普通的估计都不会碰这游戏
+
+*****
+
+####  lazycat233  
+##### 1891#       发表于 2024-3-22 13:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">好烦忍组这套打几个怪一背包装备，数值就差那么点
+
+*****
+
+####  Moseszi  
+##### 1892#       发表于 2024-3-22 14:00
+
+看到石火系统我就呵呵了，暂时持保留意见，如果这系统是绝对核心的话这游戏在我这里最多和卧龙坐同一桌，以弹反为核心的动作系统再怎么做都是二流水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1893#       发表于 2024-3-22 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64335671&amp;ptid=2092342" target="_blank">karastar 发表于 2024-3-22 13:42</a>
+一般玩家也不会去研究，能通关就算不错的了</blockquote>
+我说的是对动作游戏感兴趣的技术普通的玩家，路人的话卧龙、无双的战斗系统不也很好么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

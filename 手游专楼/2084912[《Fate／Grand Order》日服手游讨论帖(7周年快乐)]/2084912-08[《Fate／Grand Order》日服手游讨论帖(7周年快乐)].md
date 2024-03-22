@@ -3556,3 +3556,25 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 
 黑贞作为本来只是个让人练手的一章换色boss，靠人气一路爬上来当了2次主线重要角色，有一个落地专属活动还有一次泳装C位，待遇已经是高到不能再高了，这次谢幕也算是最高规格待遇（语音加个人CG），毕竟还是要卖新角色的嘛，不能老让这几个老东西霸占的剧情，而且往好了想，仇阶这些人只是相当于去殿后了，又不是像某人一样一刀直接把自己劈没了。实际上这么一搞不光连复活战都不用打，还相当于在最终战预约了一波回归助战的戏份，反而还是赚了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  cenhr  
+##### 11719#       发表于 2024-3-22 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332761&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-3-22 10:32</a>
+
+黑贞作为本来只是个让人练手的一章换色boss，靠人气一路爬上来当了2次主线重要角色，有一个落地专属活动还 ...</blockquote>
+可能就是为了让玩Avengers Assemble的梗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 11720#       发表于 2024-3-22 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332282&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-22 09:59</a>
+
+我则是伯爵，毕竟无论是原作还是你月版的都很有人情味</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伯爵和黑贞都算是这游戏玩家最早的男/女友了....这次联手谢幕真有点那啥的味道
+

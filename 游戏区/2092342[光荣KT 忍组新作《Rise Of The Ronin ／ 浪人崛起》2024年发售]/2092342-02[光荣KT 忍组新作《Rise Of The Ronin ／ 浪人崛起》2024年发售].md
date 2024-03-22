@@ -3426,3 +3426,36 @@ zp自己的测评来了，想看战斗深度的可以参考下
 
 如果限制紫电和流转，我以后怎么叠多才多艺！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 1847#       发表于 2024-3-22 10:36
+
+拿到滑翔翼后，大世界乱逛其实也做得可以。
+
+神社什么的也不是无脑清点，有点设计的。
+
+*****
+
+####  byisme001  
+##### 1848#       发表于 2024-3-22 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332687&amp;ptid=2092342" target="_blank">辞冬 发表于 2024-3-22 10:28</a>
+这马看笑了，忍者组还真把无双的马直接拉过来啊，现在游戏是要讲卖相的，阿三料理味道可能不错但没食欲啊[f ...</blockquote>
+光荣的马就是小孩摇摇车，爸爸的爸爸是爷爷那种手感的
+
+*****
+
+####  寂长无星夜  
+##### 1849#       发表于 2024-3-22 10:40
+
+我的浪人怎么还不发货，再不发等着烂店里没人要吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  就是剑鞘  
+##### 1850#       发表于 2024-3-22 10:40
+
+zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁王的普通玩家是不是没啥参考价值<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

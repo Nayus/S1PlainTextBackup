@@ -67,3 +67,14 @@ Wildwood Primalist装备护符来获得随机的其他进阶的弱化版天赋
 
 优化挺多 小点战神木了 赛季内容看着不是很爽
 
+
+*****
+
+####  妹控使徒  
+##### 1370#         楼主| 发表于 2024-3-22 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64330655&amp;ptid=1478318" target="_blank">凉良 发表于 2024-3-22 05:58</a>
+
+优化挺多 小点战神木了 赛季内容看着不是很爽</blockquote>
+姑且等等看吧 PV的PV里一堆boss集合是干啥目前还没说清,   即使只是单纯掉新装备的新boss也可以期待下
+

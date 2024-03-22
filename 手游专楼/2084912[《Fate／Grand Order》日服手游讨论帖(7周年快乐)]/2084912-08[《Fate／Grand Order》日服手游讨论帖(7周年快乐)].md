@@ -3511,3 +3511,27 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 
 我都幻想10周年给一个自选限定拿了……
 
+
+*****
+
+####  khxooo  
+##### 11715#       发表于 2024-3-22 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332014&amp;ptid=2084912" target="_blank">v22325 发表于 2024-3-22 09:42</a>
+你手里还有我到现在还没抽到呢。还没享受到就没了！
+
+我都幻想10周年给一个自选限定拿了…… ...</blockquote>
+不用桃10周年，3000WDL 就有可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 11716#       发表于 2024-3-22 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332014&amp;ptid=2084912" target="_blank">v22325 发表于 2024-3-22 09:42</a>
+
+你手里还有我到现在还没抽到呢。还没享受到就没了！
+
+我都幻想10周年给一个自选限定拿了…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种老卡都没有我只能理解为是你对角色的爱不足了....都不知道复刻多少次了吧
+

@@ -7030,3 +7030,14 @@ https://b23.tv/c6mn5Nq</blockquote>
 有仰角和俯角，但是机体运动比较慢。我看那个机甲左边挂着的火箭槽感觉就是不可自己转向的，只能跟着机体 ...</blockquote>
 但是以前机甲高打低也会炸死自己，怀疑就是穿模了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 2157#       发表于 2024-3-22 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64338646&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-22 17:06</a>
+
+但是以前机甲高打低也会炸死自己，怀疑就是穿模了</blockquote>
+这就不知道了，我反正只在转向时被自己打爆过，即便如此机甲还是压制虫子最好的战备。
+

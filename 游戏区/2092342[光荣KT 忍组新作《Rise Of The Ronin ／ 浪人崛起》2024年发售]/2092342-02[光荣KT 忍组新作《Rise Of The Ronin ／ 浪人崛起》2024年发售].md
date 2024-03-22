@@ -3758,3 +3758,29 @@ zp这个测评除了帧数以外完全没提任何缺点啊，对于没玩过仁
 
 这游戏是不能改变历史的，历史上某个节点该死的人还是会死。
 
+
+*****
+
+####  duraa  
+##### 1882#       发表于 2024-3-22 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64334993&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-3-22 12:54</a>
+
+切流派时有派生攻击，烈风本身也要学的</blockquote>
+烈风在哪里学，我在能力那里翻了翻好像没有啊
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1883#       发表于 2024-3-22 13:06
+
+不知道为什么，这游戏玩着像加强版fsr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，确实和我想象的一样卧龙强化版
+
+
+*****
+
+####  一般肥宅  
+##### 1884#       发表于 2024-3-22 13:12
+
+强制霸体+红光反就是顶级懒逼设计，忍组下一作再这样搞试试看呢
+

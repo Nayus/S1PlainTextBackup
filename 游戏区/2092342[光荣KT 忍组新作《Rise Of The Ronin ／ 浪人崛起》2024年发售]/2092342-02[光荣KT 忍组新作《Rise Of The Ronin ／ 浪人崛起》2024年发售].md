@@ -3281,3 +3281,18 @@ FPS模式很好，选了最高难度被灭村时被三忍杀了七八次……
 
 是直播的关系吗？我实机画面还可以啊，刚玩完序章，就是仁王水准啊
 
+
+*****
+
+####  厨厨？杀！  
+##### 1831#       发表于 2024-3-22 08:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">暗耻啊，回归你的无双的风格行不行啊？
+
+*****
+
+####  紫沙狐  
+##### 1832#       发表于 2024-3-22 08:19
+
+哎忍者组 集结全组之力做出来评分还不如卧龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

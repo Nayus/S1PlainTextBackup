@@ -6815,3 +6815,15 @@ Hellpod在靠近大型或重要物体时的操控目前未按预期运作，导�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚玩，才12级，先解锁的镰刀，带个榴弹遇到坦克就抓瞎，现在带的一次性筒子，因为还没500kg和激光只能靠筒子来对付重甲，但是一次送两发下来独狼基本浪费一发。想问问这个阶段有更好的配装选择吗
 
+
+*****
+
+####  daikejay  
+##### 2138#       发表于 2024-3-22 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64331029&amp;ptid=2170852" target="_blank">pwzzy 发表于 2024-3-22 08:11</a>
+刚玩，才12级，先解锁的镰刀，带个榴弹遇到坦克就抓瞎，现在带的一次性筒子，因为还没500kg和激光只 ...</blockquote>
+你好，50级难9一样还是用一次性，这是目前这游戏反重甲效率最高的武器了，不过高难度一次会有一大堆重甲刷出来给你打所以不用担心浪费了，惊喜不惊喜
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

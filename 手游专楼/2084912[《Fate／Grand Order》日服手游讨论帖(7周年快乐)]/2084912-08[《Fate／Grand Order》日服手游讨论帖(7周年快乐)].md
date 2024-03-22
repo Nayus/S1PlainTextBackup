@@ -3827,3 +3827,25 @@ FGO坑爹程度翻个倍也到不了这个程度
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cenhr  
+##### 11743#       发表于 2024-3-22 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64340275&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-3-22 19:12</a>
+
+通完了，相比有些平淡的奏章一来说是量大料多管饱的一章，就是前面战斗的水关卡有点太多了，而且来 ...</blockquote>
+这章难得地让我觉得yjg对主角有用心。从一开始的正常，到失去后成为复仇者，明白到自己和伯爵他们道不同，因此只能诀别让我感觉到主角心态变化
+
+
+*****
+
+####  rollingusagi  
+##### 11744#       发表于 2024-3-22 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64340589&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-03-22 19:36:39</a>
+这章难得地让我觉得yjg对主角有用心。从一开始的正常，到失去后成为复仇者，明白到自己和伯爵他们道不同 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

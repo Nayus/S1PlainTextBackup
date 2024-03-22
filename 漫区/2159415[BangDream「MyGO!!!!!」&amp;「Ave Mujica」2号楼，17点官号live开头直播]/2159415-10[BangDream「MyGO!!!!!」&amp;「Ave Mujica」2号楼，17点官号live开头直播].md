@@ -12614,3 +12614,19 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
 
 补老的live看到了宝藏的一幕啊
 
+
+*****
+
+####  フミさん  
+##### 14411#       发表于 2024-3-23 00:46
+
+<img src="https://img.saraba1st.com/forum/202403/23/004624t000sg23940gejre.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (277.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 00:46 上传
+
+[https://twitter.com/Bullfalk/status/1771209416702050335/photo/1](https://twitter.com/Bullfalk/status/1771209416702050335/photo/1)
+

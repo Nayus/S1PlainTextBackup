@@ -1405,3 +1405,34 @@ PS6起码Zen6了，Zen5下半年就有，而Pro怎么也得再撑三年吧
 
 这游戏的问题就是太无聊，很早进二档了我记得，个人玩起来比刺客信条还难以代入，不过PC有mod，应该可以帮女主整容一下
 
+
+*****
+
+####  贝恩德塔  
+##### 318#         楼主| 发表于 2024-3-22 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332504&amp;ptid=2173605" target="_blank">看别人玩游戏 发表于 2024-3-22 10:15</a>
+
+这游戏的问题就是太无聊，很早进二档了我记得，个人玩起来比刺客信条还难以代入，不过PC有mod，应该可以帮 ...</blockquote>
+西之绝境可没进过二档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈罗  
+##### 319#       发表于 2024-3-22 10:32
+
+<blockquote>贝恩德塔 发表于 2024-3-22 10:30
+西之绝境可没进过二档</blockquote>
+进了啊，现在还能玩吧
+
+*****
+
+####  贝恩德塔  
+##### 320#         楼主| 发表于 2024-3-22 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332760&amp;ptid=2173605" target="_blank">哈罗 发表于 2024-3-22 10:32</a>
+
+进了啊，现在还能玩吧</blockquote>
+确实进了，记岔了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

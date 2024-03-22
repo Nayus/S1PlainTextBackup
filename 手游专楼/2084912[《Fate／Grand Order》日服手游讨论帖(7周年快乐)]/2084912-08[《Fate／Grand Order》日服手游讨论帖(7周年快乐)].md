@@ -3548,3 +3548,11 @@ A9B6D8F8-0F48-42D4-918E-0DDFD312B749.jpeg
 16年入坑的....陪伴了自己9年的卡以后在新的剧情里就真的看不到了LOST了是真的 ...</blockquote>
 我则是伯爵，毕竟无论是原作还是你月版的都很有人情味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 11718#       发表于 2024-3-22 10:32
+
+黑贞作为本来只是个让人练手的一章换色boss，靠人气一路爬上来当了2次主线重要角色，有一个落地专属活动还有一次泳装C位，待遇已经是高到不能再高了，这次谢幕也算是最高规格待遇（语音加个人CG），毕竟还是要卖新角色的嘛，不能老让这几个老东西霸占的剧情，而且往好了想，仇阶这些人只是相当于去殿后了，又不是像某人一样一刀直接把自己劈没了。实际上这么一搞不光连复活战都不用打，还相当于在最终战预约了一波回归助战的戏份，反而还是赚了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

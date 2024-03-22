@@ -3393,3 +3393,36 @@ zp自己的测评来了，想看战斗深度的可以参考下
 
 不同意打一架，同意也打一架，横跳没用主打横滨韦小宝。
 
+
+*****
+
+####  nagitoY  
+##### 1843#       发表于 2024-3-22 10:26
+
+看了下zp的测评，只要叠上混沌，那么玩家的所有攻击都会变成有利。这样从一定程度上就破解了天地人的强克制关系
+
+*****
+
+####  辞冬  
+##### 1844#       发表于 2024-3-22 10:28
+
+这马看笑了，忍者组还真把无双的马直接拉过来啊，现在游戏是要讲卖相的，阿三料理味道可能不错但没食欲啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leafS  
+##### 1845#       发表于 2024-3-22 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64332669&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-22 10:26</a>
+
+看了下zp的测评，只要叠上混沌，那么玩家的所有攻击都会变成有利。这样从一定程度上就破解了天地人的强克制 ...</blockquote>
+草，仁王里叠混沌，卧龙里叠混沌，怎么到了浪人还在叠混沌，能不能整点新鲜的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 1846#       发表于 2024-3-22 10:35
+
+如果限制紫电和流转，我以后怎么叠多才多艺！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

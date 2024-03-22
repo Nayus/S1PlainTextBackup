@@ -12499,3 +12499,44 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
 看起來就很智障的一個哥<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 [https://xinjinjumin314522876001. ... /78c2ae87_2bb71232d](https://xinjinjumin314522876001.lofter.com/post/78c2ae87_2bb71232d)
 
+
+*****
+
+####  鳥栖朝  
+##### 14400#       发表于 2024-3-22 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64341477&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-03-22 20:44:24</a>
+看起來就很智障的一個哥</blockquote>把这玩意拉黑后，再进tag不是刷不出新东西就是tag里什么都没有，只有把这位放出来才能恢复正常，真给这位玩会了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  基神的强袭自由  
+##### 14401#       发表于 2024-3-22 20:56
+
+新活能看出mygo是真的不太跟潮流的，连喜欢蹭热度的爱音对pp的认知都只有“好像是明星”的级别，甚至不知道丸山添彩这个彩彩每次上电视都会喊的梗，对正在热门期的萝也没什么反应，对kkr也不熟，也就个深度网民soyo对潮流还算了解(会唱pp的歌，可惜这次活动没碰上)哭笑
+
+所以mujica也就soyo有可能发现吧，因为练习在ring偶然碰上的可能性都大一点(mujica周边有ring会员证说明后面肯定要找理由让mujica也把ring当根据地)
+
+[https://bbs.nga.cn/read.php?pid=749217794&amp;opt=128](https://bbs.nga.cn/read.php?pid=749217794&amp;opt=128)
+
+*****
+
+####  御幸一也  
+##### 14402#       发表于 2024-3-22 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64341580&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-3-22 20:54</a>
+
+把这玩意拉黑后，再进tag不是刷不出新东西就是tag里什么都没有，只有把这位放出来才能恢复正常，真给这位玩 ...</blockquote>
+反正最近也沒什麼新飯，可以緩緩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 14403#       发表于 2024-3-22 21:01
+
+看隔壁的说法那个人好像是jz被爱祥群踢了以后怀恨在心，之前用同样的方法炸了爱灯tag结果被打了，现在又过来炸祥子tag<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

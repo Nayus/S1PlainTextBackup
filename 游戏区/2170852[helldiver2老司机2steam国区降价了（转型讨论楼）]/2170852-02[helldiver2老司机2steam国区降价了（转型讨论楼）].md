@@ -7020,3 +7020,13 @@ https://b23.tv/c6mn5Nq</blockquote>
 指哪打哪明显是设计啊，符合tps游戏的操作直觉，自爆无非是火箭弹斜射出去打到机甲自己的hitbox，这玩意 ...</blockquote>
 有仰角和俯角，但是机体运动比较慢。我看那个机甲左边挂着的火箭槽感觉就是不可自己转向的，只能跟着机体转向，所以一开始指哪打哪机体没转但火箭却判定转向射出去了打中自己才会爆。
 
+
+*****
+
+####  smdzh2  
+##### 2156#       发表于 2024-3-22 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64338324&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-3-22 17:51</a>
+有仰角和俯角，但是机体运动比较慢。我看那个机甲左边挂着的火箭槽感觉就是不可自己转向的，只能跟着机体 ...</blockquote>
+但是以前机甲高打低也会炸死自己，怀疑就是穿模了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

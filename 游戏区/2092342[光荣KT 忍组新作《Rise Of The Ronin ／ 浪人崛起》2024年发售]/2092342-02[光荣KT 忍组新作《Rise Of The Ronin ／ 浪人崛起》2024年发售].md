@@ -4642,3 +4642,21 @@ wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img sr
 
 很急，想看安田不用石火打几个boss给大家开开眼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leafS  
+##### 1973#       发表于 2024-3-23 12:20
+
+有没有人说说装备只有5个栏位吗，饰品只有1个位置好不习惯，好像也没看到套装，不知道这作装备bd是否丰富
+
+*****
+
+####  duraa  
+##### 1974#       发表于 2024-3-23 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64347530&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-23 12:20</a>
+
+有没有人说说装备只有5个栏位吗，饰品只有1个位置好不习惯，好像也没看到套装，不知道这作装备bd是否丰富 ...</blockquote>
+饰品栏位发明家那边会慢慢解锁，好像可以装4个
+

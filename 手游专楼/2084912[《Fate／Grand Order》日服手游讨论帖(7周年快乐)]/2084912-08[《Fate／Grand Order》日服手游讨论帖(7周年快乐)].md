@@ -3971,3 +3971,11 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 比较特殊的是黑贞泳装也是跟着本体一起link lost了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11756#       发表于 2024-3-23 12:21
+
+这次负责旁白的是海黛吧，搞得像姑娘是在看电影会碎碎念，越看越嗨，碎碎念的语气和词汇也越来兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

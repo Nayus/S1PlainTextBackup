@@ -12721,3 +12721,23 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 我直接开奶下一个乐队成员好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14419#       发表于 2024-3-23 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346611&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-23 10:48</a>
+
+甜甜圈不会真是mujica重要配角吧，有可能真上台代打的级别？</blockquote>
+直接拉了官網的介紹罷了
+
+*****
+
+####  cherryjia12  
+##### 14420#       发表于 2024-3-23 12:42
+
+有个说法是甜甜圈是立希姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

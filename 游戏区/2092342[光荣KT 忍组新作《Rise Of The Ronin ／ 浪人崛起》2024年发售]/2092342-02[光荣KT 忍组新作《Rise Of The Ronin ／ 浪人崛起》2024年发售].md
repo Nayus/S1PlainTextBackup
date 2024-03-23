@@ -5224,3 +5224,27 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 2.血药怎么多整点啊 ...</blockquote>
 烈风是刷武器熟练度解锁的，7级还是5级来着
 
+
+*****
+
+####  duraa  
+##### 2029#       发表于 2024-3-23 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64353688&amp;ptid=2092342" target="_blank">ouyang菌 发表于 2024-3-23 22:59</a>
+
+两个问题
+
+1.切段位的攻击技能（好像叫烈风？）要咋解锁，我都要去打大使馆了都还没解锁
+
+2.血药怎么多整点啊 ...</blockquote>
+药携带量要点技能
+
+*****
+
+####  DoggoGreg  
+##### 2030#       发表于 2024-3-23 23:20
+
+打了十几个小时了，动作系统和收集要素孩子都很满意<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">能存档真的舒服
+
+想知道骑的马需要换吗……？开头干草堆里捡的那个用到现在了，感觉没什么花钱买新马的必要<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -351,3 +351,11 @@ mouz太暴力了，一把13-1一把13-2拿下bo3
 
 蒙古队真可惜了啊，要是nuke防守多拿几分就好了
 
+
+*****
+
+####  Rainwedell  
+##### 4063#       发表于 2024-3-23 08:47
+
+选op就活该挨揍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

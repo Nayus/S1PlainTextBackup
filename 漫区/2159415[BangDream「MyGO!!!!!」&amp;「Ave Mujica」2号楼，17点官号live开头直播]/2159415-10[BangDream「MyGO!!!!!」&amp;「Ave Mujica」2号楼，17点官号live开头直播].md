@@ -12713,3 +12713,11 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 甜甜圈不会真是mujica重要配角吧，有可能真上台代打的级别？</blockquote>
 突然有个思路，祖宗之法规定，乐队只能五个，但没规定偶像必须是二人组吧
 
+
+*****
+
+####  PDQ4  
+##### 14418#       发表于 2024-3-23 12:08
+
+我直接开奶下一个乐队成员好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

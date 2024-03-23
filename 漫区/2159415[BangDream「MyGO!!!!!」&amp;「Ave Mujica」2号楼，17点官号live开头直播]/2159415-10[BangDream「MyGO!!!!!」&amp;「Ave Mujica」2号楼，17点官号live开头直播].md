@@ -12703,3 +12703,13 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 有一些如果戏份比较多说不定要成为部分mygo粉丝车的下一个对象的担忧
 
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 14417#       发表于 2024-3-23 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346611&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-23 10:48</a>
+甜甜圈不会真是mujica重要配角吧，有可能真上台代打的级别？</blockquote>
+突然有个思路，祖宗之法规定，乐队只能五个，但没规定偶像必须是二人组吧
+

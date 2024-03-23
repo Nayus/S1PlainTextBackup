@@ -549,3 +549,19 @@ PV1：[https://youtu.be/zS3NYT_pSps](https://youtu.be/zS3NYT_pSps)
 
 不会是gal改最后的荣光了吧，相信花田老师
 
+
+*****
+
+####  格林卡罗尔  
+##### 51#       发表于 2024-3-23 12:00
+
+这都能拍烂花田老师可以退休了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jacklibran  
+##### 52#       发表于 2024-3-23 12:02
+
+起码看视觉图觉得不会是便宜动画，挺好的
+

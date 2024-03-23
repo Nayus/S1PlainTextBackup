@@ -31,3 +31,16 @@
 <img src="https://p.sda1.dev/16/675f337aa9a55e27d15ce6303147cae1/003_3_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/743e1a2cb78026a0be6e91ee6915947c/004_3_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1223#       发表于 2024-3-23 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64347450&amp;ptid=2162354" target="_blank">犬飼いろは 发表于 2024-3-23 12:12</a>
+
+第 08 話　ふたりのフレンドリベラーレ！
+
+脚本：千葉美鈴</blockquote>
+标题写错了吧（
+

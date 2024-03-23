@@ -5111,3 +5111,11 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么开放世界探索、收集、杂七杂八要素都是虚的，我现在只想战斗爽
 
+
+*****
+
+####  黑修士  
+##### 2018#       发表于 2024-3-23 21:03
+
+打碧眼武士的BGM换成“Nioh -Main Theme-”或者“William”就更配了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

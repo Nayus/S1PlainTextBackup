@@ -5197,3 +5197,30 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  MuramasaSP  
+##### 2027#       发表于 2024-3-23 23:08
+
+虽然玩了十个小时，但到现在很多按键还反应不过来。
+格挡闪避弹反分成了三个键，由于卧龙的肌肉记忆，经常下意识的按圆圈键。
+不知道为啥切换近战和远程武器的按键相比仁王2反过来了，r1加方向键下想按紫电，结果发现应该是r1加方向键上。
+切段位要用右摇杆，然而这个操作还没形成肌肉记忆，而且切段不是为了动作舒服而是为了相克关系，感觉整一个切段时停更友好些。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  WhiteGlint  
+##### 2028#       发表于 2024-3-23 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64353688&amp;ptid=2092342" target="_blank">ouyang菌 发表于 2024-3-23 22:59</a>
+
+两个问题
+
+1.切段位的攻击技能（好像叫烈风？）要咋解锁，我都要去打大使馆了都还没解锁
+
+2.血药怎么多整点啊 ...</blockquote>
+烈风是刷武器熟练度解锁的，7级还是5级来着
+

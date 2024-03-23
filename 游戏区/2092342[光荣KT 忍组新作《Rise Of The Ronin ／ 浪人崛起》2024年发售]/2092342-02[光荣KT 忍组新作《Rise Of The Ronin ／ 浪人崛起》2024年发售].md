@@ -5052,3 +5052,11 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 目前只获得了七种套装类型，选择了+200幸运的，幸运堆到了435，出绿出金体感明显
 
+
+*****
+
+####  ygy52145214  
+##### 2011#       发表于 2024-3-23 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">止步于5小时,实在玩不下去这个开放世界.
+

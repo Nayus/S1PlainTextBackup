@@ -3193,3 +3193,13 @@ bsyl楼上那个迷惑话题挂在热门趋势整整一晚上，到刚才才撤�
 
 FF7RB已经销量暴死了宣传也没用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8470#         楼主| 发表于 2024-3-23 19:33
+
+你还玩bluearchive呢
+
+哦没玩，云的
+

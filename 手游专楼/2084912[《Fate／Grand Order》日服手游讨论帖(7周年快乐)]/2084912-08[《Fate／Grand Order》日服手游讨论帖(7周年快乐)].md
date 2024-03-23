@@ -4174,3 +4174,13 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">区区linklost 
 
+
+*****
+
+####  cenhr  
+##### 11778#       发表于 2024-3-23 19:29
+
+不得不说这次OC2最好的体验是NPC从者真的强而不是碍事的。打狄奧多里克大帝那场其实用NPC的从者三人都可以轻松地搞定。最爽的是最后一场双伯爵把老男人不可一世的脸打爆
+
+最糟糕的反而是NPC三人打雷电鸟的那场，没有反正stun的方法也没有对付对面回避的能力，看脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

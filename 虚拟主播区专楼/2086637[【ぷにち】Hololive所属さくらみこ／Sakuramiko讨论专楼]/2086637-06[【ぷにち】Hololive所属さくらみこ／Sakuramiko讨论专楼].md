@@ -3185,3 +3185,11 @@ friend玩偶又再贩了？第3次了吧，这次怎么这么快
 
 bsyl楼上那个迷惑话题挂在热门趋势整整一晚上，到刚才才撤下
 
+
+*****
+
+####  holoan  
+##### 8469#         楼主| 发表于 2024-3-23 19:23
+
+FF7RB已经销量暴死了宣传也没用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

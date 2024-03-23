@@ -7124,3 +7124,11 @@ https://b23.tv/c6mn5Nq</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">啥时候更新啊，债券刷满了，真的是没啥可玩的了，好歹把枪械升级搞上吧，虽然现在这个样子我感觉枪械大概是不会有升级系统了
 
+
+*****
+
+####  春哥亲自  
+##### 2166#       发表于 2024-3-23 19:20
+
+刚买的游戏，求轮椅装备和打法
+

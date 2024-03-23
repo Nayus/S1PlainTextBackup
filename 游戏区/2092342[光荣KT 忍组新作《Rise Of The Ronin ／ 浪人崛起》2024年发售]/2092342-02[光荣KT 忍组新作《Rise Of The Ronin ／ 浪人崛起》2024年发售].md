@@ -5478,3 +5478,29 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 隼流光用来烈风切段打饭纲落了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  banjia0815  
+##### 2053#       发表于 2024-3-24 02:55
+
+这作boss压制收益是挺高的，刚才打二天一流哥跟他对压，最终就是1分钟不到就打完了，确实能爽到，挨了两刀整体分数也很高了。风险确实也大，石火完后你多砍两刀人被反打只要失手就是精力打空等着被打一套。但就我感觉吧所有人石火后都应该能通过一些武技打出踉跄，这段时间够打完一套再振刀，体力能回一大段。只要体力不是很低，防御挨两下不会有啥大问题。
+
+反正这作血条我觉得没啥用，最终就是比一个体力。你上压boss也怕，体力咔咔往下掉，像二天一流哥这种多连段，低体力还敢不要命出红招的，没几个回合下来就能被处决一次。
+
+<img src="https://img.saraba1st.com/forum/202403/24/023948viv2l9t2x909u9u9.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4143.JPG</strong> (243.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 02:39 上传
+
+<img src="https://img.saraba1st.com/forum/202403/24/023952eg874khq8un4h7aq.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4144.JPG</strong> (330.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 02:39 上传
+

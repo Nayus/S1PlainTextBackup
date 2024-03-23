@@ -359,3 +359,11 @@ mouz太暴力了，一把13-1一把13-2拿下bo3
 
 选op就活该挨揍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  曼陀罗肥  
+##### 4064#       发表于 2024-3-24 03:02
+
+舌薯兄弟太bt了，一个在major发狂，一个在major发病，靠剩下三人轮流爆种居然混到3-1晋级
+

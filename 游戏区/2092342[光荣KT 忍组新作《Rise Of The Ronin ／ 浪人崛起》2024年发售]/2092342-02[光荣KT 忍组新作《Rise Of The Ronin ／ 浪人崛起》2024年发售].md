@@ -5592,3 +5592,11 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 闪刃用来取消石火后摇比回精更有用
 
+
+*****
+
+####  banjia0815  
+##### 2062#       发表于 2024-3-24 07:40
+
+江户剧情上来也太直接了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

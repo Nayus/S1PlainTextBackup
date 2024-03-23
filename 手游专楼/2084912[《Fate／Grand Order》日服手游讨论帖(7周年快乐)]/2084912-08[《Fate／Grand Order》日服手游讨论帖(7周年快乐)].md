@@ -4184,3 +4184,24 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 最糟糕的反而是NPC三人打雷电鸟的那场，没有反正stun的方法也没有对付对面回避的能力，看脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 11779#       发表于 2024-3-23 19:39
+
+吃了三块灵脉石，第一块第一试炼就用了，光带个80级黑蛋糕，被打死之后队里没复仇打不动对面，第二块打黑蛋糕+伪伯爵，还是贪羁绊贪的，第三块最后打换皮伯爵，debuff叠一堆解不过来，中间三支援打雷鸟翻了一次，仨人全员麻痹被干死，没吃石头重开了。
+
+
+*****
+
+####  cenhr  
+##### 11780#       发表于 2024-3-23 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64351685&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-3-23 19:39</a>
+
+吃了三块灵脉石，第一块第一试炼就用了，光带个80级黑蛋糕，被打死之后队里没复仇打不动对面，第二块打黑蛋 ...</blockquote>
+不贪羁绊根本就没问题
+
+难关真的是NPC三人打雷鸟，除了靠脸没有其他方法应对定身和回避<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

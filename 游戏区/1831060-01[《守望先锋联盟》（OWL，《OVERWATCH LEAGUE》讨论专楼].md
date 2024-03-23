@@ -16,3 +16,11 @@
 
 是不是可以给OWL联赛做总结了
 
+
+*****
+
+####  plok201  
+##### 551#       发表于 2024-3-23 18:26
+
+总结视频挺多的吧，反正大都是不服输的，要不是各种原因，OWL一定会成为另一个NBA<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

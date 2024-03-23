@@ -4964,3 +4964,19 @@ BC0DBB70DF03907A419A84FBDB82B08C.png
 
 不得不说开局就能随意捏人幻化武器防具真爽，年度最佳暖暖游戏
 
+
+*****
+
+####  nagitoY  
+##### 2003#       发表于 2024-3-23 18:32
+
+ps5到了，线下实体店拿碟要600多<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">直接数字版了
+
+<img src="https://img.saraba1st.com/forum/202403/23/183246skgq7dykgdg7kqk7.png" referrerpolicy="no-referrer">
+
+<strong>001.png</strong> (170.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 18:32 上传
+

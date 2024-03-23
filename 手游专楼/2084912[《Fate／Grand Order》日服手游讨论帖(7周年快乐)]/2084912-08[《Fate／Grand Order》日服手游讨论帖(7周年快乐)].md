@@ -4155,3 +4155,14 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 白贞群充蓝放提高了叠盾流的续航和回转（不过主流的卑梅C还是没她位置），黑贞给了单体宝具最需要的6T50自充，螺旋社终于在宝具动画和技能强化方面开窍了，很不错，第一次感觉废狗五星这么保值。
 
+
+*****
+
+####  qixinno2  
+##### 11776#       发表于 2024-3-23 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350719&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-23 18:02</a>
+
+用退队换来的，羡慕吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那又不妨碍你正常用 不比某些又菜又没什么后续剧情的强多了吧
+

@@ -14064,3 +14064,13 @@ voy@ger真没想到
 
 枫姐这张联动的新ssr好感度台词越听越像关服台词<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜月紫耀  
+##### 2880#       发表于 2024-3-23 22:32
+
+【あらかねの器】 [https://www.bilibili.com/video/B ... 9426b6f1c67268d762c](https://www.bilibili.com/video/BV1ox421y7KA/?p=2&amp;share_source=copy_web&amp;vd_source=75447a35cc2099426b6f1c67268d762c)
+
+这个现场也太强了吧
+

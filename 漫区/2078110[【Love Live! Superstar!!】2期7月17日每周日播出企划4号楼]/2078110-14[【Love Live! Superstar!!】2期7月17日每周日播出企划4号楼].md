@@ -1456,3 +1456,32 @@ HAMA OKAMOTO都上红白给桑田佳佑伴奏了，你说不是靠他爹的关�
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  stygian  
+##### 19850#       发表于 2024-3-23 20:32
+
+ 本帖最后由 stygian 于 2024-3-23 20:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64352122&amp;ptid=2078110" target="_blank">cqc1021 发表于 2024-3-23 20:22</a>
+
+你这是小看downtown
+
+HAMA OKAMOTO都上红白给桑田佳佑伴奏了，你说不是靠他爹的关系我是不信的，虽 ...</blockquote>
+10年左右那批车库乐队我还真就挺知道的。。。
+
+okamotos出道10年，公表父子关系13年左右，大规模开始上地上波15年左右，红白出演是19年给星野源伴奏，但是12年他就参加星野源专辑录音了
+
+你说在艺能界混有他爹荫蔽，没问题，但是滨田雅功脸真没那么大，他在音乐圈的交际也和摇滚那挂完全搭不上
+
+hama okamaoto和kenken还有taka一个路子，的确星二代有长辈光环庇护，终归还是靠音乐实力说话，hama的技术我也觉得就那样，但的确日本人是认他的
+
+*****
+
+####  ruffian  
+##### 19851#       发表于 2024-3-23 20:34
+
+我相信海选时没动用关系是真的，企划不知道这层关系也是真的，星1就已经被5ch阴阳香音教祖了，星2只是继承并发扬了星1的毛病而已，不可能是知道了这层关系于是突然大转弯，我更相信他们挖到了小百合这个宝喜出望外赶紧开榨，突出一个竭泽而渔
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -44,3 +44,14 @@
 脚本：千葉美鈴</blockquote>
 标题写错了吧（
 
+
+*****
+
+####  犬飼いろは  
+##### 1224#       发表于 2024-3-23 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64348783&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-3-23 14:30</a>
+
+标题写错了吧（</blockquote>
+感谢提醒，资讯站那里写错了，贴的时候没发现
+

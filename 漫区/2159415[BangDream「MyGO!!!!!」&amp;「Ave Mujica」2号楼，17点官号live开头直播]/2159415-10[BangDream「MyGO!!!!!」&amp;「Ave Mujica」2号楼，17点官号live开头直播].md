@@ -12651,3 +12651,19 @@ tb有个贴还蛮有意思的，标题写 ano太惨了 吧u说爱音推是否有
 https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 他居然畫初祥了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14414#       发表于 2024-3-23 10:48
+
+甜甜圈不会真是mujica重要配角吧，有可能真上台代打的级别？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/23/104852aw5coippye1ldy05.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2t-46z7ZdT3cSsg-g0.jpg</strong> (138.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 10:48 上传
+

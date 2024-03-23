@@ -4518,3 +4518,14 @@ wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img sr
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Yeelolo  
+##### 1960#       发表于 2024-3-23 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346191&amp;ptid=2092342" target="_blank">ky7913 发表于 2024-3-23 09:59</a>
+
+为啥我觉得这开放世界还挺好玩的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">说实话，这开放世界真就刺客信条2的水平
+

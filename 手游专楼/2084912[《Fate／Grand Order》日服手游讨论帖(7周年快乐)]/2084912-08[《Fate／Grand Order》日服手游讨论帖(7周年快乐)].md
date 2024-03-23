@@ -4242,3 +4242,14 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 黑贞30抽还是没抽到……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下结束前还能搞到快30多抽，一定要出啊！！
 
+
+*****
+
+####  alucardcz  
+##### 11785#       发表于 2024-3-24 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64354301&amp;ptid=2084912" target="_blank">v22325 发表于 2024-3-24 00:02</a>
+
+黑贞30抽还是没抽到……看了下结束前还能搞到快30多抽，一定要出啊！！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再加270抽一定能出!信我(
+

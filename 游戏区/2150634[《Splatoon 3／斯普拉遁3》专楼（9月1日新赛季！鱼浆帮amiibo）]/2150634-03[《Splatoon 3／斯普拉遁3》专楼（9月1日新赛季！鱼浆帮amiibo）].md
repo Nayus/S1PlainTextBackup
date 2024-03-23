@@ -7425,3 +7425,22 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 3719#       发表于 2024-3-24 00:04
+
+话说根据时间流逝和现实一致这一点，小姬现在已经28岁了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3720#       发表于 2024-3-24 00:05
+
+一路输到500，不过赢了一把100倍还行，明天再打到永远吧，累死
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

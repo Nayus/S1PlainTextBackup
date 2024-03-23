@@ -5333,3 +5333,14 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">装备有龙马的衣服吗
 
+
+*****
+
+####  Akari  
+##### 2040#       发表于 2024-3-24 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64354202&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-23 23:55</a>
+
+在猎场</blockquote>
+原来是统称！我以为横滨主城有个训练，我一直没找到（）
+

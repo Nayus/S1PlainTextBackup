@@ -4205,3 +4205,11 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 难关真的是NPC三人打雷鸟，除了靠脸没有其他方法应对定身和回避<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 11781#       发表于 2024-3-23 19:55
+
+闪电鸟是真的烦，伯爵手撕老男人有爽到
+

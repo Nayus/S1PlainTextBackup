@@ -4473,3 +4473,28 @@ wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img sr
 
 为啥我觉得这开放世界还挺好玩的
 
+
+*****
+
+####  zqqwe  
+##### 1955#       发表于 2024-3-23 10:05
+
+这开放世界不溶于水没有阴间地形杀的体验就是好，随地上马赶路也方便。当年仁王2最好玩的部分全是大平层单挑不是没有道理的。
+
+*****
+
+####  MuramasaSP  
+##### 1956#       发表于 2024-3-23 10:08
+
+拜旗子时会自动存档（单独一个存档栏），自己也可以手动存档。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Kojimaru  
+##### 1957#       发表于 2024-3-23 10:14
+
+之前是绕路把门打开，现在是绕路找钥匙再回来开门<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+

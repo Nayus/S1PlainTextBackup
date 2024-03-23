@@ -5533,3 +5533,15 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 才发现光追模式和性能模式帧数差不多都是40-50帧左右，那我为什么还要用性能<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  垃圾网站上  
+##### 2057#       发表于 2024-3-24 06:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64355439&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-3-24 04:48</a>
+才发现光追模式和性能模式帧数差不多都是40-50帧左右，那我为什么还要用性能 ...</blockquote>
+延迟高多了
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

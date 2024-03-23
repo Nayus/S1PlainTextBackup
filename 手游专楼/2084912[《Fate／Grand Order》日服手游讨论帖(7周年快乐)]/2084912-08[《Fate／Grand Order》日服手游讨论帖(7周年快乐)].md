@@ -4066,3 +4066,39 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 所以能不能再送一次五星</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先欧羡慕
 
+
+*****
+
+####  exiaexa  
+##### 11766#       发表于 2024-3-23 17:46
+
+白贞3技能再给个群BUFF就勉强能用了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOBI  
+##### 11767#       发表于 2024-3-23 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的就整章为了最后几节。。
+
+比起男/女友，你们这帮仇有一个算一个全是GD厨那段更让人绷不住
+
+*****
+
+####  都谷捻柏  
+##### 11768#       发表于 2024-3-23 17:54
+
+我五星自选还没选，我已经有量子态的白贞了！
+
+*****
+
+####  qixinno2  
+##### 11769#       发表于 2024-3-23 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350463&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-23 17:38</a>
+
+先欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕个毛啊 我抽光石头毛都没出
+

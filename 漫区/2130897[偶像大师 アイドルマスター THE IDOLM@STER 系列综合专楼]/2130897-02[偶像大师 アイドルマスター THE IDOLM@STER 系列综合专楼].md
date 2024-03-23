@@ -14074,3 +14074,17 @@ voy@ger真没想到
 
 这个现场也太强了吧
 
+
+*****
+
+####  グラフ  
+##### 2881#       发表于 2024-3-24 00:02
+
+感谢大家上次捧场。歌单制作活动第一期开始了。本期主题为[偶像、是什么啊]。提名截止4月3日。
+
+参与方法：
+
+填写表格(推荐)。[腾讯文档]IM@S Playlist Maker Vol.1[偶像、是什么啊]https://docs.qq.com/form/page/DWnJ0UEJvYVFtTmRT
+
+实时结果展示：[腾讯文档]IMSPlaylistMakerVol1偶像是什么啊(收集结果)[https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca](https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca)
+

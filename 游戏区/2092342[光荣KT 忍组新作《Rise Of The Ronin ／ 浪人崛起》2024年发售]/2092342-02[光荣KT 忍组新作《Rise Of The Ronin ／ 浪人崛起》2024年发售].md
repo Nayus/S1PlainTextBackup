@@ -5284,3 +5284,52 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 长枪的流派去哪解锁啊？大部分武器都有至少三流派了，长枪才一个
 
+
+*****
+
+####  Akari  
+##### 2035#       发表于 2024-3-23 23:53
+
+开飞行加速的那个横滨的滑翔训练，在哪里得啊？
+
+我都去江户了还没找到。
+
+*****
+
+####  duraa  
+##### 2036#       发表于 2024-3-23 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64354192&amp;ptid=2092342" target="_blank">Akari 发表于 2024-3-23 23:53</a>
+
+开飞行加速的那个横滨的滑翔训练，在哪里得啊？
+
+我都去江户了还没找到。 ...</blockquote>
+在猎场
+
+*****
+
+####  duraa  
+##### 2037#       发表于 2024-3-23 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64354113&amp;ptid=2092342" target="_blank">RushMove 发表于 2024-3-23 23:45</a>
+
+长枪的流派去哪解锁啊？大部分武器都有至少三流派了，长枪才一个</blockquote>
+流派那里我印象中有写获取方式，不过第一章总共只有两个长枪流派
+
+*****
+
+####  banjia0815  
+##### 2038#       发表于 2024-3-23 23:58
+
+福泽的潜入任务要求不致命就试了下空手，还挺好玩的，之前马修让我调停直接忘了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[https://b23.tv/tcQm59p](https://b23.tv/tcQm59p)
+
+
+*****
+
+####  寂长无星夜  
+##### 2039#       发表于 2024-3-24 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">装备有龙马的衣服吗
+

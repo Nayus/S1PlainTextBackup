@@ -4720,3 +4720,36 @@ wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img sr
 饰品栏位发明家那边会慢慢解锁，好像可以装4个</blockquote>
 好好好，就是不知道装饰品有没有套装词条，目前包里的金装一个套装都没有
 
+
+*****
+
+####  captoon  
+##### 1981#       发表于 2024-3-23 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64348344&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-23 13:45</a>
+
+好好好，就是不知道装饰品有没有套装词条，目前包里的金装一个套装都没有 ...</blockquote>
+有的
+
+
+*****
+
+####  banjia0815  
+##### 1982#       发表于 2024-3-23 13:54
+
+这醉酒桂真是极致快慢刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">招数又多，突出一个迷惑。试了十来把才刷到他的极传，不过也挺乐的。
+
+*****
+
+####  wzh5555  
+##### 1983#       发表于 2024-3-23 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64347686&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-23 12:36</a>
+
+福泽谕吉石火成功平砍都打不完一套就无前摇霸体平A出来了....
+
+哦，懂了，福泽谕吉就是要石火成功后 ...</blockquote>
+敌人1hit攻击被石火后动摇时间很短，而且有些疯狗AI，动摇内不做动作也就只能打1-2下。（攻击欲望低的敌人1hit被石火可能被压4-5下不反）
+
+2hit勾引基本是强敌AI的规律。
+

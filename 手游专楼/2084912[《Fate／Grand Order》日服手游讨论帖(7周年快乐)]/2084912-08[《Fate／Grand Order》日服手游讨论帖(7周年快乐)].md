@@ -3996,3 +3996,22 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这连卡池都给你开了 还不抽(
 
+
+*****
+
+####  cenhr  
+##### 11759#       发表于 2024-3-23 17:06
+
+ 本帖最后由 cenhr 于 2024-3-23 17:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350093&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-23 17:04</a>
+
+这连卡池都给你开了 还不抽(</blockquote>
+大概老玩家手头一个了，况且要等基督山伯爵<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 11760#       发表于 2024-3-23 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没白贞 又少了俩石头 感觉好亏
+

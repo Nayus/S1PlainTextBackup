@@ -4922,3 +4922,18 @@ BC0DBB70DF03907A419A84FBDB82B08C.png
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  病態極端  
+##### 1999#       发表于 2024-3-23 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64349808&amp;ptid=2092342" target="_blank">sprongs 发表于 2024-3-23 16:35</a>
+
+个人感觉那个只是火石或者失败了，攻击就一个键
+
+论坛助手,iPhone</blockquote>
+石火確實是攻擊，無明流還寫了對防禦中敵人大量削精。
+
+看演示其他流派石火還有能追加輸入連續攻擊的。
+

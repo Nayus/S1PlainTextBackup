@@ -5545,3 +5545,13 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  垃圾网站上  
+##### 2058#       发表于 2024-3-24 07:05
+
+战斗核心的确是石火，但你一定程度上可以主动逼对方用的，具体就是打一套后对方霸体反击的时候再石火回精又打一套，而不是仁王那样残心人型无限连或者卧龙那样被动等放期间干啥都是无效攻击
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

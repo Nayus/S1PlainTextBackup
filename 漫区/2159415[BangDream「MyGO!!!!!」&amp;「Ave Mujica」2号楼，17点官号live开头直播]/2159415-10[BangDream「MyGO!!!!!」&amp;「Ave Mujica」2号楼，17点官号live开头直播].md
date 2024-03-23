@@ -12774,3 +12774,11 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 感觉mana会比买狗的一个甚至数个角色戏份更多，已经是大概率事件。
 
+
+*****
+
+####  NODY  
+##### 14424#       发表于 2024-3-23 14:38
+
+我怎么觉得甜甜圈戏份会比猫多几乎是肯定的，也就是不知道会不会比爱音和立希多而已，灯爽有笔记本和cv贷款大概是唯二戏份多点的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

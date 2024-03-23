@@ -4980,3 +4980,13 @@ ps5到了，线下实体店拿碟要600多<img src="https://static.saraba1st.com
 
 2024-3-23 18:32 上传
 
+
+*****
+
+####  寂长无星夜  
+##### 2004#       发表于 2024-3-23 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64351049&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-23 18:32</a>
+ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么这么贵，我买的那家这两天重新上架了也就卖560啊
+

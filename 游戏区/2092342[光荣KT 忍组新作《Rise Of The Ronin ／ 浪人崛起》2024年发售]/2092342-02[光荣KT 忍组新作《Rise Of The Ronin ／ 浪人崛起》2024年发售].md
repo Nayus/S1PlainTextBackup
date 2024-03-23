@@ -5019,3 +5019,23 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 流派武技又丰富，什么搭档，我TM只想找人试刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2008#       发表于 2024-3-23 18:59
+
+现在买数字版是不是没有预购奖励了，血亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  黑修士  
+##### 2009#       发表于 2024-3-23 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64348334&amp;ptid=2092342" target="_blank">captoon 发表于 2024-3-23 13:45</a>
+
+元町有个宝箱，有人知道在哪里吗</blockquote>
+是不是反锁那个
+
+滑翔到房顶，从旁边跳下钻窗户进入，下梯子开箱，紫禁牛尾刀+清朝帽子+随机礼物（礼物有金色的泛用型）
+

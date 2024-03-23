@@ -4556,3 +4556,15 @@ wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img sr
 
 我真搞不懂隔壁那个还没黑沙好玩，怎么都在骂浪人
 
+
+*****
+
+####  Moltres.lv70  
+##### 1964#       发表于 2024-3-23 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346972&amp;ptid=2092342" target="_blank">盾墙 发表于 2024-3-23 11:25</a>
+我真搞不懂隔壁那个还没黑沙好玩，怎么都在骂浪人</blockquote>
+隔壁那个负重和体力真爽不起来，我路边捡了个露营道具就直接超载了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+

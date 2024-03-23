@@ -4537,3 +4537,14 @@ wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img sr
 
 说实话我觉得这个大地图比仁王、卧龙的垃圾关卡体验强太多了，战斗体验也舒服，随时存档随时关
 
+
+*****
+
+####  ycy8332589  
+##### 1962#       发表于 2024-3-23 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346191&amp;ptid=2092342" target="_blank">ky7913 发表于 2024-3-23 09:59</a>
+
+为啥我觉得这开放世界还挺好玩的</blockquote>
+老刺客信条在当年也是神作啊，没玩过这套毫无问题，但评委是按玩了十年的育碧公式打分的
+

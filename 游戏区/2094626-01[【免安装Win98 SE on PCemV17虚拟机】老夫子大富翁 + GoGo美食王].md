@@ -81,3 +81,15 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  winggg  
+##### 188#         楼主| 发表于 2024-3-24 05:43
+
+ 本帖最后由 winggg 于 2024-3-24 05:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64355477&amp;ptid=2094626" target="_blank">gyf123haha 发表于 2024-3-24 05:35</a>
+
+楼主可以协助制作一个古代争霸战:金羊毛的整合包吗？这个游戏算是我的游戏启蒙了，但根本没法在XP以上的系 ...</blockquote>
+可以试试做，但得先找找有没有这个游戏的资源……
+

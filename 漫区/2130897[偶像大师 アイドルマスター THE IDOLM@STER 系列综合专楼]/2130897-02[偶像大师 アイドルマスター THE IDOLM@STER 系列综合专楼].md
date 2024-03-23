@@ -14056,3 +14056,11 @@ voy@ger真没想到
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  natmk  
+##### 2879#       发表于 2024-3-23 22:20
+
+枫姐这张联动的新ssr好感度台词越听越像关服台词<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

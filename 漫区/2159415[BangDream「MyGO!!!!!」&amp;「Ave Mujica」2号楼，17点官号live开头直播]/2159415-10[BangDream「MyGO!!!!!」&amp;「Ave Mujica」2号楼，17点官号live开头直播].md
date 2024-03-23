@@ -12782,3 +12782,11 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 我怎么觉得甜甜圈戏份会比猫多几乎是肯定的，也就是不知道会不会比爱音和立希多而已，灯爽有笔记本和cv贷款大概是唯二戏份多点的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 14425#       发表于 2024-3-23 21:32
+
+感觉甜甜圈应该还是蛮多戏份的，估计也要承担一些冲突吧
+

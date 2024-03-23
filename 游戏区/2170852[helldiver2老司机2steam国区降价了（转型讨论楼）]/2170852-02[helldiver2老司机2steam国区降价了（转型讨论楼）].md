@@ -7132,3 +7132,14 @@ https://b23.tv/c6mn5Nq</blockquote>
 
 刚买的游戏，求轮椅装备和打法
 
+
+*****
+
+####  eno_emos  
+##### 2167#       发表于 2024-3-23 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350777&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-3-23 18:08</a>
+
+啥时候更新啊，债券刷满了，真的是没啥可玩的了，好歹把枪械升级搞上吧，虽然现在这个样子我感觉枪 ...</blockquote>
+你刷太快了啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

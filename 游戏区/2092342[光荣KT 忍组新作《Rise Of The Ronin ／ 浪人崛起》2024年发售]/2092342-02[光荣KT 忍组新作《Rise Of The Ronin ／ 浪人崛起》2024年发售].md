@@ -4912,3 +4912,13 @@ BC0DBB70DF03907A419A84FBDB82B08C.png
 索尼那宣传整的我以为浪人就这一个女人，也挺难绷的</blockquote>
 油土鳖近50万粉的Luke Stephens在发售后试玩中惊讶于这次有两个可捏脸操控角色，说没在任何宣传里看到……只能讲索尼这次marketing搞得太讲究。
 
+
+*****
+
+####  feimaqundao337  
+##### 1998#       发表于 2024-3-23 16:59
+
+按惯例来说年底完整版上pc?
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

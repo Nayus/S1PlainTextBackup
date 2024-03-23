@@ -3979,3 +3979,20 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 这次负责旁白的是海黛吧，搞得像姑娘是在看电影会碎碎念，越看越嗨，碎碎念的语气和词汇也越来兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11757#       发表于 2024-3-23 17:03
+
+來了來了來了
+
+黑貞白貞都有強化啊
+
+*****
+
+####  alucardcz  
+##### 11758#       发表于 2024-3-23 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这连卡池都给你开了 还不抽(
+

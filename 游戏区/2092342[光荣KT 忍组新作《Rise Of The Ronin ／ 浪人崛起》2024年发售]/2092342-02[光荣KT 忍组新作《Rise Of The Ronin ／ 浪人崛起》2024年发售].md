@@ -4753,3 +4753,51 @@ wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img sr
 
 2hit勾引基本是强敌AI的规律。
 
+
+*****
+
+####  sprongs  
+##### 1984#       发表于 2024-3-23 14:07
+
+不联动一下fate fsr太浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  duraa  
+##### 1985#       发表于 2024-3-23 14:12
+
+ 本帖最后由 duraa 于 2024-3-23 14:14 编辑 
+
+编辑
+
+BC0DBB70DF03907A419A84FBDB82B08C.png
+(323.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 14:12 上传
+
+<img src="https://img.saraba1st.com/forum/202403/23/141250skykagnzn44995ne.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 1986#       发表于 2024-3-23 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64348334&amp;ptid=2092342" target="_blank">captoon 发表于 2024-3-23 13:45</a>
+
+元町有个宝箱，有人知道在哪里吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/23/141339e9wcwnmconyfeosp.png" referrerpolicy="no-referrer">
+
+<strong>BC0DBB70DF03907A419A84FBDB82B08C.png</strong> (323.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 14:13 上传
+
+印象中是这个位置附近
+

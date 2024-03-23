@@ -5409,3 +5409,14 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  MuramasaSP  
+##### 2047#       发表于 2024-3-24 01:23
+
+搭档太强了打不过。这石火的判定有些过于硬核了，不石火的话精力不够用，rb回的精力太少。而且敌人变态霸体导致按rb时经常挨打，急需闪避残心。
+包括之前那个双刀哥久坂玄瑞也很疯狗，感觉打着打着又回到了卧龙等红光化解的打法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，关键是这红光更难化了。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4860,3 +4860,55 @@ BC0DBB70DF03907A419A84FBDB82B08C.png
 
 赌场有什么玩法吗？纯赌运没啥含金量啊
 
+
+*****
+
+####  Yeelolo  
+##### 1993#       发表于 2024-3-23 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64349709&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-23 16:21</a>
+
+姐姐你真美这年头还是得看光荣的捏人</blockquote>
+索尼那宣传整的我以为浪人就这一个女人，也挺难绷的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeelolo  
+##### 1994#       发表于 2024-3-23 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64349784&amp;ptid=2092342" target="_blank">BadYanL 发表于 2024-3-23 16:32</a>
+
+赌场有什么玩法吗？纯赌运没啥含金量啊</blockquote>
+赌场会出千，我看奖杯里有个发现出千次数的奖杯
+
+*****
+
+####  sprongs  
+##### 1995#       发表于 2024-3-23 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346390&amp;ptid=2092342" target="_blank">hugosol 发表于 2024-3-23 10:24</a>
+往前劈的石火到底要怎么用，难道就是单纯用来当重攻击的？
+
+目前感受太刀的优势就是流派多足够全面，石火也 ...</blockquote>
+个人感觉那个只是火石或者失败了，攻击就一个键
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Leliel  
+##### 1996#       发表于 2024-3-23 16:36
+
+我看别人直播都还没出现别的女角色
+
+
+*****
+
+####  Heliopoleia  
+##### 1997#       发表于 2024-3-23 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64349798&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-23 16:34</a>
+
+索尼那宣传整的我以为浪人就这一个女人，也挺难绷的</blockquote>
+油土鳖近50万粉的Luke Stephens在发售后试玩中惊讶于这次有两个可捏脸操控角色，说没在任何宣传里看到……只能讲索尼这次marketing搞得太讲究。
+

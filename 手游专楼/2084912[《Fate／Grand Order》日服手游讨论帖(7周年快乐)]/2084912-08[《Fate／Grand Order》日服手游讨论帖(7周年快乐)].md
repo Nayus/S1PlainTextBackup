@@ -4102,3 +4102,29 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 先欧羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕个毛啊 我抽光石头毛都没出
 
+
+*****
+
+####  qixinno2  
+##### 11770#       发表于 2024-3-23 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑贞宝具好像追加BGM了 大赢特赢
+
+*****
+
+####  cenhr  
+##### 11771#       发表于 2024-3-23 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350700&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-3-23 18:00</a>
+
+黑贞宝具好像追加BGM了 大赢特赢</blockquote>
+用退队换来的，羡慕吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 11772#       发表于 2024-3-23 18:05
+
+也不算赢吧，新宝具那个脸至今都很难绷得住
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

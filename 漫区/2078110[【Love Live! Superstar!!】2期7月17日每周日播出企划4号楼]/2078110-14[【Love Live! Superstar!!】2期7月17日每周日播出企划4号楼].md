@@ -1370,3 +1370,27 @@ M1获胜时候虽然才五岁不知道发生了什么，但是记得大家都热
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cat1230  
+##### 19841#       发表于 2024-3-23 18:45
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  稀勢のささ  
+##### 19842#       发表于 2024-3-23 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么日本格格
+
+*****
+
+####  llllife  
+##### 19843#       发表于 2024-3-23 18:48
+
+虽然有点阴谋论但是二期动画不会是因为...算了反正这企划的二次元部分已经烂到不能再烂了
+

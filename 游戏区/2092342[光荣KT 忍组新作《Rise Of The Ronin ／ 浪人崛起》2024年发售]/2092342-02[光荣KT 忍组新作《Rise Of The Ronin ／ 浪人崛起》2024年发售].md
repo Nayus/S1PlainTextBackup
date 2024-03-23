@@ -4990,3 +4990,32 @@ ps5到了，线下实体店拿碟要600多<img src="https://static.saraba1st.com
 ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么这么贵，我买的那家这两天重新上架了也就卖560啊
 
+
+*****
+
+####  qappip  
+##### 2005#       发表于 2024-3-23 18:44
+
+拔刀术立身流帅到飞起，武技一个冲刺拔刀斩，和蓄力空气刀。  石火是带位移拔刀二连斩，处决和闪刃都是专门做一套。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nagitoY  
+##### 2006#       发表于 2024-3-23 18:47
+
+<blockquote>[ 寂长无星夜 replied on 2024-3-23 18:34](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64351071&amp;ptid=2092342) 引用:nagitoY 发表于 2024-3-23 18:32 ps5到了，线下实体店拿碟要600多直接数字版了 为什么这么贵，我买的那家这两天重新上架了也就卖560啊 </blockquote>
+重新上架后发货时间不能保证吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看淘宝大部分550以内的碟都是说4月才发货来自: iPhone客户端
+
+*****
+
+####  bwsusaga  
+##### 2007#       发表于 2024-3-23 18:49
+
+沉迷了一下午，龙信2暂时不玩了，
+
+大世界清图也很方便。
+
+流派武技又丰富，什么搭档，我TM只想找人试刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

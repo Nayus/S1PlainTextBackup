@@ -62,3 +62,22 @@
 
 <strong>谢谢大家一直以来的支持。</strong>
 
+
+*****
+
+####  gyf123haha  
+##### 186#       发表于 2024-3-24 05:35
+
+楼主可以协助制作一个古代争霸战:金羊毛的整合包吗？这个游戏算是我的游戏启蒙了，但根本没法在XP以上的系统玩，花屏非常严重..
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  藤井紫  
+##### 187#       发表于 2024-3-24 05:35
+
+天使帝国3这画风怎么突然就……
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

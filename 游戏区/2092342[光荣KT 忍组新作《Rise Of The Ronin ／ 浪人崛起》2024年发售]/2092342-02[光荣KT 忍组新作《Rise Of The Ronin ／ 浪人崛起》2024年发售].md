@@ -5504,3 +5504,16 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 2024-3-24 02:39 上传
 
+
+*****
+
+####  duraa  
+##### 2054#       发表于 2024-3-24 03:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64355176&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-3-24 02:21</a>
+
+抱怨下，玩了2天越来越感觉这战斗系统不对劲，由于敌人全体出招霸体强修正，立回闪避成了笑话，战斗实质上 ...</blockquote>
+我觉得是看怪，有的boss我感觉还是需要（或者说可以）上去压制精力回复或者闪避/防御处理部分招式
+
+但类似福泽渝吉这种石火成功后霸体出招欲望特别强的，那确实石火普攻循环效率高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -1520,3 +1520,20 @@ hama okamaoto和kenken还有taka一个路子，的确星二代有长辈光环庇
 打铁鸣人是吧，以为是没人爱的孤儿，实际是火影之子
 遇到自来也之前被疯狂压榨，现在公开情报，装的之前没人知道是吧
 
+
+*****
+
+####  csolfans  
+##### 19856#       发表于 2024-3-23 21:51
+
+没想到……
+
+Image_1711201664951.jpg
+(441.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 21:52 上传
+
+<img src="https://img.saraba1st.com/forum/202403/23/215224fc55khcqpdbnhpkn.jpg" referrerpolicy="no-referrer">
+

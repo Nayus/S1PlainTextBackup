@@ -7415,3 +7415,13 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 3718#       发表于 2024-3-23 23:46
+
+这次鼓和吉他的墨水颜色相当接近二代前夜祭，刚进游戏小姬饭田就是前夜祭配色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

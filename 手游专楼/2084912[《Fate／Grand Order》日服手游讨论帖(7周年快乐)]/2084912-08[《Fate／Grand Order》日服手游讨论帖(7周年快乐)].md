@@ -4128,3 +4128,22 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 也不算赢吧，新宝具那个脸至今都很难绷得住
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hououmon  
+##### 11773#       发表于 2024-3-23 18:07
+
+黑贞能代替金时了吗？
+
+
+*****
+
+####  cenhr  
+##### 11774#       发表于 2024-3-23 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350767&amp;ptid=2084912" target="_blank">hououmon 发表于 2024-3-23 18:07</a>
+
+黑贞能代替金时了吗？</blockquote>
+仇代替狂不是想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

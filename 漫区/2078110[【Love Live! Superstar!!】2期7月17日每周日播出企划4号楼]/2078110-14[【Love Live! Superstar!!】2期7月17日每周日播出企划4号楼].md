@@ -1336,3 +1336,37 @@ M1获胜时候虽然才五岁不知道发生了什么，但是记得大家都热
 
 郭刚那人缘比起三明治人可差多了，你要打比方的话我认为是巅峰时期的姜昆，实力不是最顶尖的但是国民认知度和好感度极高
 
+
+*****
+
+####  渡辺梨加  
+##### 19839#       发表于 2024-3-23 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350624&amp;ptid=2078110" target="_blank">starring 发表于 2024-3-23 17:52</a>
+这位伊达干生是大咖吗？</blockquote>
+顶流大咖。
+这是日本去年的日经“圈地榜”，虽然经常被调侃为野榜，但也挺能反映出人气的。
+第一位是打铁伯伯的组合三明治人，第二位是打铁伯伯的搭档富泽，第三位就是打铁伯伯。
+去年被爆丑闻前的downtown都比他们低。
+
+<img src="https://img.saraba1st.com/forum/202403/23/180557ts064b70n8rgeegb.jpg" referrerpolicy="no-referrer">
+
+<strong>b90e7bec54e736d149496fc5de504fc2d46269a1.jpg</strong> (93.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 18:05 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  渡辺梨加  
+##### 19840#       发表于 2024-3-23 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350671&amp;ptid=2078110" target="_blank">stygian 发表于 2024-3-23 17:57</a>
+三明治人那事务所也不是特别有势力那种，这几年才开始搞捆绑推销，之前都是让旗下艺人自己打拼的，三明治人 ...</blockquote>
+类比成冯巩挺合适的。祖上阔过，国民好感度高，自身人品好，而且都是又说相声又演小品<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

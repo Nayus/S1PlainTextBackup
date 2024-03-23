@@ -7116,3 +7116,11 @@ https://b23.tv/c6mn5Nq</blockquote>
 老bug了，以前虫子经常打一波就没动静了</blockquote>
 拖到超时不刷怪打不够数只能强制撤离<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 2165#       发表于 2024-3-23 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">啥时候更新啊，债券刷满了，真的是没啥可玩的了，好歹把枪械升级搞上吧，虽然现在这个样子我感觉枪械大概是不会有升级系统了
+

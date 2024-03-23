@@ -4015,3 +4015,22 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没白贞 又少了俩石头 感觉好亏
 
+
+*****
+
+####  alucardcz  
+##### 11761#       发表于 2024-3-23 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白的史诗级强话 20群充20群蓝放
+
+*****
+
+####  eilot  
+##### 11762#       发表于 2024-3-23 17:15
+
+雖然想白貞能給好像學妹一樣的全體加防
+
+不過現在能全體群充20，也算能回到能用地步
+
+黑貞給了自充，應該有50?，當場可以配合活動禮裝使用
+

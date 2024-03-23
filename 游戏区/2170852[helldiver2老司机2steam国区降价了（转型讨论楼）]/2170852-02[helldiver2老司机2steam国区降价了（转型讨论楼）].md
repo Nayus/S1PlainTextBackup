@@ -7143,3 +7143,13 @@ https://b23.tv/c6mn5Nq</blockquote>
 啥时候更新啊，债券刷满了，真的是没啥可玩的了，好歹把枪械升级搞上吧，虽然现在这个样子我感觉枪 ...</blockquote>
 你刷太快了啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyMS  
+##### 2168#       发表于 2024-3-23 22:06
+
+为什么老是加不了好友房间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

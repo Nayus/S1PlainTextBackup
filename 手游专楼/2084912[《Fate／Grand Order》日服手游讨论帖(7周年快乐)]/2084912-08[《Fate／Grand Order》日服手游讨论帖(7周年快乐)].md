@@ -4034,3 +4034,24 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 黑貞給了自充，應該有50?，當場可以配合活動禮裝使用
 
+
+*****
+
+####  cenhr  
+##### 11763#       发表于 2024-3-23 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64350208&amp;ptid=2084912" target="_blank">eilot 发表于 2024-3-23 17:15</a>
+
+雖然想白貞能給好像學妹一樣的全體加防
+
+不過現在能全體群充20，也算能回到能用地步</blockquote>
+黑贞的是50%
+
+
+*****
+
+####  qixinno2  
+##### 11764#       发表于 2024-3-23 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以能不能再送一次五星
+

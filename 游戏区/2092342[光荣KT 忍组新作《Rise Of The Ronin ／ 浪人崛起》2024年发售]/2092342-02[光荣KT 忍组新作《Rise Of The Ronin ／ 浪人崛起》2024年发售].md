@@ -4937,3 +4937,14 @@ BC0DBB70DF03907A419A84FBDB82B08C.png
 
 看演示其他流派石火還有能追加輸入連續攻擊的。
 
+
+*****
+
+####  BadYanL  
+##### 2000#       发表于 2024-3-23 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64349801&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-23 16:35</a>
+
+赌场会出千，我看奖杯里有个发现出千次数的奖杯</blockquote>
+嗯，可以靠出千赚钱，可惜赌局上限1000个币，不然一次让他们倒闭！
+

@@ -5119,3 +5119,14 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 打碧眼武士的BGM换成“Nioh -Main Theme-”或者“William”就更配了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 2019#       发表于 2024-3-23 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64351194&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-23 18:47</a>
+重新上架后发货时间不能保证吧我看淘宝大部分550以内的碟都是说4月才发货 ...</blockquote>
+哦擦。
+微博网友抽奖我中了一张，人当时就下了订单付款了，怪不得到现在还没动静
+

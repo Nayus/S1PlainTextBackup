@@ -7371,3 +7371,13 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 3714#       发表于 2024-3-23 20:02
+
+插线依然阻止不了对枪性能堪比52的金喷，贼恶心，扯得不能再扯的击杀，我已经吐无数次了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

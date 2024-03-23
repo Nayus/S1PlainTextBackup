@@ -5352,3 +5352,12 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">草，铁棍哥二阶段只要石火成功就是红光技或者霸体普通攻击接红光技顶出来，太不主打石火了
 
+
+*****
+
+####  Z1yu  
+##### 2042#       发表于 2024-3-24 00:49
+
+建议都多用用左轮，真的超好用。
+闪避+美式居合早期就能点出来，特别好用。
+

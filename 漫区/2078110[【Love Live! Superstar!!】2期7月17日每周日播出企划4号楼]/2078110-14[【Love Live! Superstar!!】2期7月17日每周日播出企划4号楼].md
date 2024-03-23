@@ -1264,3 +1264,19 @@ M1获胜时候虽然才五岁不知道发生了什么，但是记得大家都热
 
 只能说，不愧是王道热血漫的主人公嘛
 
+
+*****
+
+####  oi99o  
+##### 19832#       发表于 2024-3-23 16:15
+
+这下打铁酱的家系也清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/23/161507r5cohzs0iooi1h1h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 16:15 上传
+

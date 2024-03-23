@@ -4529,3 +4529,11 @@ wtf?刚打完教程的刀匠，来了个下载后续数据给我干懵了<img sr
 为啥我觉得这开放世界还挺好玩的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">说实话，这开放世界真就刺客信条2的水平
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1961#       发表于 2024-3-23 11:03
+
+说实话我觉得这个大地图比仁王、卧龙的垃圾关卡体验强太多了，战斗体验也舒服，随时存档随时关
+

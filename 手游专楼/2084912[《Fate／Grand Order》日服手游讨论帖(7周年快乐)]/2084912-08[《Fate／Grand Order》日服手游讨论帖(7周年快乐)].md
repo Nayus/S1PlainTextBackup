@@ -4221,3 +4221,16 @@ yjg式念经重复太多次，真写了咕哒反而感觉咕哒也开始感觉�
 
 最后几个复仇离家出走看的还是挺迷的，理解不了
 
+
+*****
+
+####  UNISONIA  
+##### 11783#       发表于 2024-3-23 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64341024&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-3-22 20:12</a>
+
+你说的这个点估计在ruler奏章会再来一遍
+
+即让guda短暂踏上圣人的道路，然后因为什么事领悟到自己终究抵 ...</blockquote>
+FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有提过一两次的（记得是老福相关的内容？）
+

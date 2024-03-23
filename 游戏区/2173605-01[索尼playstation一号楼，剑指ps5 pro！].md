@@ -1487,3 +1487,13 @@ Credit: @MysticRyan’s video for the screenshots.
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  nagitoY  
+##### 327#       发表于 2024-3-23 16:29
+
+刚买ps5，想问下现在想玩仁王2，是不是直接买ps4版的光碟就可以免费升级了？ps5有发售仁王1、2的合集，但是网上没货。
+
+另外仁王2好像没有完全版光碟？买了光碟还要再手动买dlc吗
+

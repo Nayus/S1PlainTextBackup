@@ -63,3 +63,18 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 5437#       发表于 2024-3-23 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62524330&amp;ptid=1130963" target="_blank">琴酒 发表于 2023-9-25 15:51</a>
+
+大意：
+
+CGSS八周年营业额骤减，去年有7亿，今年目前还只有2.86亿
+
+虽然推出了第八轮ssr和（强度）膨胀的要素 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩偶像音游的真有多少强度党吗
+

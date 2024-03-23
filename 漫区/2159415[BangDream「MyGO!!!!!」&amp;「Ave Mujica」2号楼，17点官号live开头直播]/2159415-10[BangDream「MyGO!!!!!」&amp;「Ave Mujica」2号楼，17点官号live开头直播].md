@@ -12741,3 +12741,36 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  rinku  
+##### 14421#       发表于 2024-3-23 12:51
+
+ 本帖最后由 rinku 于 2024-3-23 12:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64347744&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-3-23 12:42</a>
+有个说法是甜甜圈是立希姐姐
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+两人名字都完全不一样说实话可能性为0
+但是我确实很想看初华担心自己两边跑闹矛盾小心翼翼维持两边平衡不让两人见面，结果意外3人撞见后甜甜圈和祥子却早就是熟人的喜剧场景
+
+
+*****
+
+####  DarthAka  
+##### 14422#       发表于 2024-3-23 12:56
+
+<blockquote>PDQ4 发表于 2024-3-23 12:08
+我直接开奶下一个乐队成员好吧</blockquote>
+直接把滚舞台剧那4个端过来，然后武士道出个自己人来个摸鱼键盘
+
+另：刚才视频，女武神那个美云展示大学毕业证（ICU），原来和李世林是一届
+
+*****
+
+####  凡人  
+##### 14423#       发表于 2024-3-23 12:57
+
+感觉mana会比买狗的一个甚至数个角色戏份更多，已经是大概率事件。
+

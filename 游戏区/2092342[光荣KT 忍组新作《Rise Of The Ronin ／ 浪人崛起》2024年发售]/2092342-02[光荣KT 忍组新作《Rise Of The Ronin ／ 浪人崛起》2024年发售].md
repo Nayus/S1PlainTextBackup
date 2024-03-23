@@ -5103,3 +5103,11 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 当然这纯属个人感受，我ff16马桶全清<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wuyuesuzhu  
+##### 2017#       发表于 2024-3-23 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么开放世界探索、收集、杂七杂八要素都是虚的，我现在只想战斗爽
+

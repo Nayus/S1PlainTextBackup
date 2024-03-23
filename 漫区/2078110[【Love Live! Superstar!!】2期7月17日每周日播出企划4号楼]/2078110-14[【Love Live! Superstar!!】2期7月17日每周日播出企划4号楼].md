@@ -1422,3 +1422,37 @@ M1获胜时候虽然才五岁不知道发生了什么，但是记得大家都热
 不是还真有人信全是コネ啊？
 一边是万代一边是amuse两个大手企业，就算是真真的夺取过天下的秋刀鱼或者downtown也没那个面子让自家子弟受捧，何况你要论起来三明治人那帮人其实是horipro跑出来的，差不多得了
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19847#       发表于 2024-3-23 20:16
+
+小百合排面，天生的偶像诚不我欺<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ads147147  
+##### 19848#       发表于 2024-3-23 20:18
+
+笑了，居然还有这个背景，2期变成那样又多了解释呢。可是捏你二期正常写也不可能撼动香音立德地位吧？突出一个莫名其妙。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  cqc1021  
+##### 19849#       发表于 2024-3-23 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64351991&amp;ptid=2078110" target="_blank">stygian 发表于 2024-3-23 20:08</a>
+不是还真有人信全是コネ啊？
+一边是万代一边是amuse两个大手企业，就算是真真的夺取过天下的秋刀鱼或者down ...</blockquote>
+你这是小看downtown<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+HAMA OKAMOTO都上红白给桑田佳佑伴奏了，你说不是靠他爹的关系我是不信的，虽然小HAMA也挺有趣的但他那乐队又没多火。
+倒是明石家秋刀鱼的女儿确实没捧起来。
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

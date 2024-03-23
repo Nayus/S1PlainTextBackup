@@ -12693,3 +12693,13 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 2024-3-23 11:28 上传
 
+
+*****
+
+####  Aendst  
+##### 14416#       发表于 2024-3-23 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mana应该是重要配角，但是重要到什么程度不好说
+
+有一些如果戏份比较多说不定要成为部分mygo粉丝车的下一个对象的担忧
+

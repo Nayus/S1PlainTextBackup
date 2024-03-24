@@ -5879,3 +5879,11 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">......怎么还有能从正门进的宝箱点，觉得你们都以为肯定要爬窗户是吧
 
+
+*****
+
+####  lazycat233  
+##### 2092#       发表于 2024-3-24 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟别的清单游戏比的好处就是地图又小又空吧，起码舔图挺轻松的。
+

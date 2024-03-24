@@ -5887,3 +5887,31 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟别的清单游戏比的好处就是地图又小又空吧，起码舔图挺轻松的。
 
+
+*****
+
+####  007.5  
+##### 2093#       发表于 2024-3-24 16:04
+
+为啥我角色智谋莫名其妙变回75了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+其他属性都没变
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wtyrambo  
+##### 2094#       发表于 2024-3-24 16:06
+
+<blockquote>lazycat233 发表于 2024-3-24 15:51
+跟别的清单游戏比的好处就是地图又小又空吧，起码舔图挺轻松的。</blockquote>
+敌人追击范围小，没任何敌人能把你击落，还能全自动拾取，起码在人性化方面完爆所有其他游戏了吧。
+
+*****
+
+####  duraa  
+##### 2095#       发表于 2024-3-24 16:09
+
+手榴弹伤害确实可以<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">清怪堆好用的1b
+

@@ -1135,3 +1135,11 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 既然还不公布具体放映形式，那我只能先奶一口必有剧场先行上映了，之后是ova发碟还是tv特番放送就再说
 
+
+*****
+
+####  Sliurus  
+##### 125#       发表于 2024-3-24 17:10
+
+愚物语我就是想看育惨败动画怎么拍的，沙发套一点挑战精神都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

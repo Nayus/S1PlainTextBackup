@@ -5937,3 +5937,11 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 顺便这游戏妹子好少，进了江户主线来说就2个妹子，后面有没有能带出去打的美少女？
 
+
+*****
+
+####  banjia0815  
+##### 2098#       发表于 2024-3-24 17:05
+
+重生之我在幕府当牛头人<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

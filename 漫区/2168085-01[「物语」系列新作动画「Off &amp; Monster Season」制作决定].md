@@ -1060,3 +1060,11 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 愚物语喜欢的部分就是育惨败
 “我是阿良良木派的”<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  广东侠  
+##### 116#       发表于 2024-3-24 15:29
+
+育惨败要怎么改啊，难道把所有出现的人都用汉字来抽象化表达吗？
+

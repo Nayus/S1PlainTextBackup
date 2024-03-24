@@ -5751,3 +5751,16 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  duraa  
+##### 2078#       发表于 2024-3-24 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64357518&amp;ptid=2092342" target="_blank">MuramasaSP 发表于 2024-3-24 12:16</a>
+
+不杀生武器在哪买啊
+
+—— 来自 HONOR AGT-AN00, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+印象中龙马和桂那里的商人有卖木武器，或者用空手
+

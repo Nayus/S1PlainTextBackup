@@ -1550,3 +1550,16 @@ Credit: @MysticRyan’s video for the screenshots.
 
 伊莲娜我就记得神海4有一关我往草丛一蹲，忘按暂停去上厕所，回来看整个营地的人都被她放倒了
 
+
+*****
+
+####  槐聚  
+##### 333#       发表于 2024-3-24 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64357203&amp;ptid=2173605" target="_blank">青色精灵の最期 发表于 2024-3-24 11:46</a>
+
+分辨率越低，帧数对CPU要求反而越高，最起码PC游戏是这么说的</blockquote>
+分辨率低，GPU不再是帧数的瓶颈，游戏容易跑高帧，这个时候对CPU的压力就上来了
+
+你把帧数锁个上限，CPU占用就下去了
+

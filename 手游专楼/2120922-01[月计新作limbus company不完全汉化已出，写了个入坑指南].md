@@ -132,3 +132,14 @@
 —— 来自 OnePlus PJ ...</blockquote>
 一样的，打普通镜就可以<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  salic428  
+##### 605#       发表于 2024-3-24 18:19
+
+不知道你楼以前有没有讨论过，但是轨道线的颜色其实是按照[首尔地下铁](https://chinese.seoul.go.kr/%E5%9C%B0%E9%93%81%E7%BA%BF%E8%B7%AF%E5%9B%BE%E6%97%B6%E9%9A%9440%E5%B9%B4%E5%85%A8%E9%9D%A2%E6%94%B9%E7%89%88/)的线路编号设计的
+<[img src="https://cdn.sa.net/2024/03/24/TRtZipjmcKA2Cxg.jpg" referrerpolicy="no-referrer">
+
+不过下个赛季的4号线如果是忧郁色也太怪了，说不定会跳过改成嫉妒色呢
+

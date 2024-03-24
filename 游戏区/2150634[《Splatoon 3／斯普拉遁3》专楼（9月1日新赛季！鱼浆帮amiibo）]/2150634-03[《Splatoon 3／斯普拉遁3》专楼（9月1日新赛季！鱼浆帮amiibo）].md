@@ -7495,3 +7495,11 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  宅音  
+##### 3726#       发表于 2024-3-24 18:14
+
+这次祭典赢了一次100一次333感觉圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

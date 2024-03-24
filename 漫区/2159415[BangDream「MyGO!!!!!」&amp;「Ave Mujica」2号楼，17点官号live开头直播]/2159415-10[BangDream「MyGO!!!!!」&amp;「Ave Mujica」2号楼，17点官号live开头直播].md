@@ -12937,3 +12937,13 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  PDQ4  
+##### 14439#       发表于 2024-3-24 18:16
+
+不知道是新解谜还是新曲
+
+如果单从字面意义思考，也许就是角色曲系列，要丢图了？
+

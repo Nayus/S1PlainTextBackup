@@ -4503,3 +4503,23 @@ Beast能过仇不能过<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我草，fsr这dlc，看门大爷搞不好五星登场了吧？
 
+
+*****
+
+####  UNISONIA  
+##### 11810#       发表于 2024-3-24 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64359416&amp;ptid=2084912" target="_blank">kisskick 发表于 2024-3-24 15:20</a>
+
+奏二本来是aj放的，然后提前了，最合理的解释</blockquote>
+不好说，19年本来AJ要上2.4宣传的，跳票以后叶本人还是很心疼那点印了的宣传物什么的，AJ上有出来致歉，后面直到周年的时候都还在叨叨
+
+如果奏II的东西印好了那就算剧情提前实装，出展依然会当成一个大主题来用，但是今天现场看并没有奏II的东西作为重点来准备，亦即为本来就不打算在AJ 2024上重点宣传这一章
+
+*****
+
+####  cenhr  
+##### 11811#       发表于 2024-3-24 22:38
+
+不知超级基督山伯爵会是明天还是礼拜三和伯爵复刻一起上呢？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

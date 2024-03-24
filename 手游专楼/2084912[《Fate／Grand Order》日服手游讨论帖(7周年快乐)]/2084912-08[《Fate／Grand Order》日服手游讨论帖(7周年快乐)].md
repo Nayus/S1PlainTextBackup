@@ -4318,3 +4318,11 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 小心到不信这是有拉郎配兴趣的写手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 11792#       发表于 2024-3-24 14:41
+
+？？？？？？？？就这？基本情报都没有？
+

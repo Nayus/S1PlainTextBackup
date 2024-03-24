@@ -12864,3 +12864,19 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 翻帖子不小心点到了隔壁那个soyo的逆天钩子二创文，看完之后脑子里突然闪过睦头人问祥子要不要来月之森以及祥子的重生宣言，随后很不争气的脑补了一下相关剧情<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14433#       发表于 2024-3-24 14:45
+
+<img src="https://img.saraba1st.com/forum/202403/24/144515mkoolro0ukhqltrr.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Chacalこ(@Sakuma07071)_20240323-154525_1771563913097687355_photo.jpg</strong> (340.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 14:45 上传
+
+[https://twitter.com/Sakuma07071/status/1771563913097687355](https://twitter.com/Sakuma07071/status/1771563913097687355)
+

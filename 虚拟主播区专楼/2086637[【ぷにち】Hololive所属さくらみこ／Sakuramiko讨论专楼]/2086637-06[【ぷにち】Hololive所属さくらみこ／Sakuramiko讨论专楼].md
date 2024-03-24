@@ -3270,3 +3270,32 @@ EXPO会场的35Pcoser，还有GTA歌回的unicon
 
 看了一眼推特，99.9%的人表示对今天火建重大发表的直播事前毫无知情，所以说绝大多数人是没有真的去看杂志连载的，这该怎么说呢……
 
+
+*****
+
+####  holoan  
+##### 8479#         楼主| 发表于 2024-3-24 14:54
+
+<img src="https://img.saraba1st.com/forum/202403/24/145447y27kb72xc2xb4tvv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 14:54 上传
+
+*****
+
+####  holoan  
+##### 8480#         楼主| 发表于 2024-3-24 14:56
+
+<img src="https://img.saraba1st.com/forum/202403/24/145558vaorg6p3lmng3q6u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 14:55 上传
+
+封面（暂定）都出来了
+

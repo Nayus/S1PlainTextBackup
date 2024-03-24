@@ -4326,3 +4326,13 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 ？？？？？？？？就这？基本情报都没有？
 
+
+*****
+
+####  quanlix  
+##### 11793#       发表于 2024-3-24 14:51
+
+毕竟都特意说没有开发人员出场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

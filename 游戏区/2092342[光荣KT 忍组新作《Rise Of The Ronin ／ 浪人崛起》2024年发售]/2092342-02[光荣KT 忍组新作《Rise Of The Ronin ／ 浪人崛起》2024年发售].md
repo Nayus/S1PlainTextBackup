@@ -5788,3 +5788,11 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 <img src="https://p.sda1.dev/16/031d513fb1713926b9f833afedd439e2/akaoni.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Emmerich  
+##### 2082#       发表于 2024-3-24 14:14
+
+元町这区域因缘拉到3级也太难了吧 还剩半管就指望出随机事件来填 但有时候死活不刷
+

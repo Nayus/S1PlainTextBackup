@@ -1725,3 +1725,16 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ruffian  
+##### 19875#       发表于 2024-3-24 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64362110&amp;ptid=2078110" target="_blank">we89623 发表于 2024-03-24 20:11:53</a>
+小百合没主动攀关系我信，但企划部门会不会早就查家底查出来了?
+
+伊达干生国内相当于赵本山这种地位人物 ...</blockquote>b站有熟肉，你去看喽
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

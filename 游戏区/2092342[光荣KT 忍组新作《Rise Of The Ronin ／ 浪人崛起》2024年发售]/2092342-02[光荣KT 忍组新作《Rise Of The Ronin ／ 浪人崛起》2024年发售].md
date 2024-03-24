@@ -6363,3 +6363,24 @@ aibo你装个假肢之后太狠了
 
 本来还想说今晚把江户全清了再歇，结果讲武所目测被主线进度锁了进不去<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 2139#       发表于 2024-3-25 01:09
+
+能不能给个任务简报或者对话log，有时候接了任务都不确定自己在帮哪一派在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+然后发现木刀除了任务要求不杀人以外其实都是没用的，刚刚序章那个洋人派我去刺杀**，点了威吓的话可以回答我不会杀人的，到了目的地突然莫名其妙跑出来一个杀人魔出来和我单挑，打到最后换上木刀收尾结果人还是说完遗言就死了，然后洋人跟**一起从屋里出来跟我说不用杀他了，才知道原来的任务目标是他
+
+忍组第一次搞这种奇奇怪怪的rpg任务链还是挺生草的，虽然细节各种不舒服但玩起来还挺投入的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑修士  
+##### 2140#       发表于 2024-3-25 01:10
+
+朝照相机方向前进碰到小笠原，看白金攻略说流镝马很难，结果漏了靶子还一次过极传跳奖杯
+
+估计是技能树里面那个正射提高了分数
+

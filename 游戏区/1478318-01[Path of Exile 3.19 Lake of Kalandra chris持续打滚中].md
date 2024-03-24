@@ -159,3 +159,16 @@ Wildwood Primalist装备护符来获得随机的其他进阶的弱化版天赋
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  妹控使徒  
+##### 1378#         楼主| 发表于 2024-3-24 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64345338&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2024-3-23 07:15</a>
+
+问一下，在国内要玩外服是不是必须要有梯子？</blockquote>
+只是能上游戏的话买游戏加速器就够了  推荐UU的    价格实惠也好用
+
+如果是要找一票资料和国外讨论的话 需要梯子   大多数资料站能直连但re和巴哈需要  某些冷门网站也说不准需要
+

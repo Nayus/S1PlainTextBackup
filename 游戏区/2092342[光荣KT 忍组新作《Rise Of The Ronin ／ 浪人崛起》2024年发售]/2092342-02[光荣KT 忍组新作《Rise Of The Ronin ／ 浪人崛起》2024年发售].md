@@ -6154,3 +6154,28 @@ aibo你装个假肢之后太狠了
 
 说起来选女角色影响泡妞吗
 
+
+*****
+
+####  nagitoY  
+##### 2119#       发表于 2024-3-24 22:09
+
+开放世界是真的杀时间。
+跑图去主线任务点，沿路经过的任务总想着顺手做一下。经常主线任务地点还没到，沿路已经打了四五波据点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  Bani82  
+##### 2120#       发表于 2024-3-24 22:12
+
+打得有点累了，出了横滨后感觉没什么新内容了
+
+
+*****
+
+####  duraa  
+##### 2121#       发表于 2024-3-24 22:13
+
+原来R+O是可以装备其他同武器流派的R+X（需要两个流派都达到极传<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

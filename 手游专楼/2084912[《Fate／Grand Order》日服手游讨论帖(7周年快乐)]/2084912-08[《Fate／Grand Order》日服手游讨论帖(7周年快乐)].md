@@ -4271,3 +4271,38 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 终于打完了，最终使徒绝望伯还是太low了，和骷髅乌帽子一个德行啊。</blockquote>
 比道满更low，全部点子照抄还失败了
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11788#       发表于 2024-3-24 11:04
+
+<img src="https://p.sda1.dev/16/56e85bc76822688e392c68403879a183/CMP_20240324110328899.png" referrerpolicy="no-referrer">
+最后一战带小安真的有特殊演出啊，怎么发现的
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cenhr  
+##### 11789#       发表于 2024-3-24 11:10
+
+<blockquote>不垃圾屌丝 发表于 2024-3-24 11:04
+最后一战带小安真的有特殊演出啊，怎么发现的
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+你不带他也会出buff的
+
+*****
+
+####  quanlix  
+##### 11790#       发表于 2024-3-24 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64356841&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2024-3-24 11:04</a>
+
+最后一战带小安真的有特殊演出啊，怎么发现的
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+不带也有这buff
+

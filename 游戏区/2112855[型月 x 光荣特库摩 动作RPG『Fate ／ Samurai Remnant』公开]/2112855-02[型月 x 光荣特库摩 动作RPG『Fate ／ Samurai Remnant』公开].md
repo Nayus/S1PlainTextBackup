@@ -52,3 +52,11 @@ DLC第2弾「断章・■■■秘剣帖」の
 配信日が4月18日（木）に決定！
 <img src="https://p.sda1.dev/16/532e4da2824deb811f6b136577bdd7f5/20240324_150621.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 1733#       发表于 2024-3-24 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次看门大爷该登场了吧
+

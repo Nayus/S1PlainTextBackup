@@ -1068,3 +1068,11 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 育惨败要怎么改啊，难道把所有出现的人都用汉字来抽象化表达吗？
 
+
+*****
+
+####  Lollipopstar  
+##### 117#       发表于 2024-3-24 15:37
+
+还是熟悉的味道，或者说怕你觉得不够内味儿都是各种既视感的分镜，也感受到摄影方面的发展… 再次听到这些角色说话还是挺感慨的，今年就能看到挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

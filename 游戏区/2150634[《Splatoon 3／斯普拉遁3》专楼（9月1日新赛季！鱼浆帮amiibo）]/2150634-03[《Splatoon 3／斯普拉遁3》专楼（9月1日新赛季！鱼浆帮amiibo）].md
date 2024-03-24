@@ -7457,3 +7457,13 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 3722#       发表于 2024-3-24 10:27
+
+话说这祭典有点离谱啊，昨天我就想随便打个开放而已，前面已经输多赢少了，竟然还能给我匹配绿X对手，队友KD还全都是负的，是不是太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+连续C了N场后，收到野人好友申请了，霓虹玩家这么喜欢加野人的么？
+

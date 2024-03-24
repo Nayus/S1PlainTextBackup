@@ -4261,3 +4261,13 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于打完了，最终使徒绝望伯还是太low了，和骷髅乌帽子一个德行啊。
 
+
+*****
+
+####  cenhr  
+##### 11787#       发表于 2024-3-24 10:28
+
+<blockquote>v22325 发表于 2024-3-24 07:54
+终于打完了，最终使徒绝望伯还是太low了，和骷髅乌帽子一个德行啊。</blockquote>
+比道满更low，全部点子照抄还失败了
+

@@ -6053,3 +6053,13 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 打了个无伤久坂<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  duraa  
+##### 2110#       发表于 2024-3-24 20:44
+
+ 本帖最后由 duraa 于 2024-3-24 20:45 编辑 
+
+可能有些人和我一样之前没注意到，姑且说一声，清完据点后如果出现黑市商人是会卖技能书的（如果之前没注意可以用筛选图标来找<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

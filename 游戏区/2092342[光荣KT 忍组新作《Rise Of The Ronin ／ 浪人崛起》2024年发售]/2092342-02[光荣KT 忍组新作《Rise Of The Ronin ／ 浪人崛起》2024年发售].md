@@ -6179,3 +6179,15 @@ aibo你装个假肢之后太狠了
 
 原来R+O是可以装备其他同武器流派的R+X（需要两个流派都达到极传<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qappip  
+##### 2122#       发表于 2024-3-24 22:30
+
+大佬井伊居然也是玩立身流拔刀术，这逼特么是隔壁一心的小号吧，无形剑气环绕好帅，我也想学。
+同时间发动拔刀术会引发“相冲”状态 直接无伤，武器砍在一起“叮”“叮”的声音。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">满天大雨，一起砍太爽啦。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

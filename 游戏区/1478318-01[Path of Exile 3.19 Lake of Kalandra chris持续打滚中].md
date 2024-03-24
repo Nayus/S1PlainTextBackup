@@ -108,3 +108,15 @@ Wildwood Primalist装备护符来获得随机的其他进阶的弱化版天赋
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  帕林马哲理  
+##### 1374#       发表于 2024-3-24 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64355817&amp;ptid=1478318" target="_blank">limon 发表于 2024-3-24 01:43</a>
+是的。另外新手建议国服先练手
+
+—— 来自 S1Fun</blockquote>
+考虑我们都是从兽栏那个赛季就没玩了，也可以说是新手。不过当年都是alpha版本直连新西兰的人，倒是不会想玩国服。
+

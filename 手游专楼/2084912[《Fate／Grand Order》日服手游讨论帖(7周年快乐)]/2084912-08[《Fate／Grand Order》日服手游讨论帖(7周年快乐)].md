@@ -4388,3 +4388,16 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  alucardcz  
+##### 11799#       发表于 2024-3-24 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64359967&amp;ptid=2084912" target="_blank">高木なつめ 发表于 2024-3-24 16:27</a>
+
+诀别复仇怎么就成诀别复仇&amp;#x8 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">诀别啥 你看link lost的也就那几个  那么多复仇者不都好好的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话我打完2章都不知道为什么会link lost
+

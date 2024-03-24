@@ -4560,3 +4560,31 @@ B7F992C6-60D6-4C6C-824E-47C5AFCA8EFD.png
   -- 来自 能搜索 ...</blockquote>
 咕哒咕哒继续逆输入乌冬从者啊，还剩几个呢
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 11814#       发表于 2024-3-25 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64364908&amp;ptid=2084912" target="_blank">シャル 发表于 2024-3-25 01:03</a>
+
+所以说，变换职介的非纯正复仇者和外星人都不跑
+
+跑的是纯粹的复仇者</blockquote>
+丑御前和蛋糕在语音和文本里说了是不久后要走的
+
+小安不走应该是冬木伏笔，不过也可能是你游一直当小安不存在所以linklost也不带他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cenhr  
+##### 11815#       发表于 2024-3-25 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64364908&amp;ptid=2084912" target="_blank">シャル 发表于 2024-3-25 01:03</a>
+
+所以说，变换职介的非纯正复仇者和外星人都不跑
+
+跑的是纯粹的复仇者</blockquote>
+也有说法是元组复仇者算是F/Z联动来的所有不用被ba<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">n
+

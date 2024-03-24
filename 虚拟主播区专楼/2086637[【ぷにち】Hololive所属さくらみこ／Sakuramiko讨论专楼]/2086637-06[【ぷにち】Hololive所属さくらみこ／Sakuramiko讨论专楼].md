@@ -3317,3 +3317,27 @@ EXPO会场的35Pcoser，还有GTA歌回的unicon
 
 另外少年周刊的电子版是一直有的
 
+
+*****
+
+####  渡鸦骑士  
+##### 8483#       发表于 2024-3-24 19:11
+
+你最好真的以为粉丝这种生物能违背他们的平台习惯<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holoan  
+##### 8484#         楼主| 发表于 2024-3-24 19:12
+
+<img src="https://img.saraba1st.com/forum/202403/24/191237qcc52yr23959c92t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 19:12 上传
+
+这cover自己的曲子。。。还是miko你自己唱过的
+

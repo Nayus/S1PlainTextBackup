@@ -12947,3 +12947,13 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 如果单从字面意义思考，也许就是角色曲系列，要丢图了？
 
+
+*****
+
+####  鳥栖朝  
+##### 14440#       发表于 2024-3-24 19:08
+
+好耶
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

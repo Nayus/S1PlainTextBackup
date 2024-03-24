@@ -1682,3 +1682,14 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 实在不行去当联动团到处联动手游吧，二次元也要赛博刷脸。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 19871#       发表于 2024-3-24 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64352250&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-3-23 20:34</a>
+
+我相信海选时没动用关系是真的，企划不知道这层关系也是真的，星1就已经被5ch阴阳香音教祖了，星2只是继承 ...</blockquote>
+小百合没主动攀关系我信，但企划部门会不会早就查家底查出来的就不一定了。
+

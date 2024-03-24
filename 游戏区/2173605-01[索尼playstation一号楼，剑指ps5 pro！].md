@@ -1507,3 +1507,11 @@ Credit: @MysticRyan’s video for the screenshots.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  青色精灵の最期  
+##### 329#       发表于 2024-3-24 11:46
+
+分辨率越低，帧数对CPU要求反而越高，最起码PC游戏是这么说的
+

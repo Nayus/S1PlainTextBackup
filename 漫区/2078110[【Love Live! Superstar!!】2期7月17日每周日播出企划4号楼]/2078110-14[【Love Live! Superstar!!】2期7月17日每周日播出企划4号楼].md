@@ -1674,3 +1674,11 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ViyViy  
+##### 19870#       发表于 2024-3-24 18:14
+
+实在不行去当联动团到处联动手游吧，二次元也要赛博刷脸。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

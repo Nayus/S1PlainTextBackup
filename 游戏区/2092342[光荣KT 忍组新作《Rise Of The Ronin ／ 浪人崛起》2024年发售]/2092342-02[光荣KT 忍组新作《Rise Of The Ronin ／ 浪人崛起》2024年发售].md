@@ -5986,3 +5986,14 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 我已经能认出宝箱房长啥样子了，大家在城里逛的时候看见白色的房子也可以注意下（主要针对有些地区清完马桶 ...</blockquote>
 我已经有两个地区清完点后因缘不到3了，有什么影响么？
 
+
+*****
+
+####  duraa  
+##### 2103#       发表于 2024-3-24 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64360794&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2024-3-24 17:59</a>
+
+我已经有两个地区清完点后因缘不到3了，有什么影响么？</blockquote>
+没什么影响吧，只是因缘3的能开全图
+

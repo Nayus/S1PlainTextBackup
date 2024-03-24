@@ -4484,3 +4484,14 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 Beast能过仇不能过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 11808#       发表于 2024-3-24 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64361654&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-03-24 19:28:21</a>
+有啊，邪马台那次活动宇宙凛有来客串啊。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以咕哒咕哒切割了啊，蘑菇放手让经验值自个儿玩去也不需要尊重什么主线设定了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

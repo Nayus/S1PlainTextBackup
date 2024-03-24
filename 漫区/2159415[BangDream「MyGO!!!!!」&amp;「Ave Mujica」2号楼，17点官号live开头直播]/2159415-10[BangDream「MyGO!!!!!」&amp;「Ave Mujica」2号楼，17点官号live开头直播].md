@@ -12841,3 +12841,26 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 国服要实装mygo了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/5414f84e147bddb954edd8a62470fc94/fc89ae34-508a-47c4-9c6c-7a15e9819483.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14431#       发表于 2024-3-24 14:27
+
+<img src="https://img.saraba1st.com/forum/202403/24/142705yrhwyghw6cwcdoep.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0339.PNG</strong> (586.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 14:27 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一叶丈育  
+##### 14432#       发表于 2024-3-24 14:28
+
+翻帖子不小心点到了隔壁那个soyo的逆天钩子二创文，看完之后脑子里突然闪过睦头人问祥子要不要来月之森以及祥子的重生宣言，随后很不争气的脑补了一下相关剧情<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

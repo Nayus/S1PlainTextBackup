@@ -5679,3 +5679,28 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 其实我一直觉得日式游戏有高难度就不要选低难度，一般来说低难度才是被阉割了游戏体验的选项<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeelolo  
+##### 2071#       发表于 2024-3-24 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64356591&amp;ptid=2092342" target="_blank">Shabadadoo 发表于 2024-3-24 10:35</a>
+街上异步联机在走路的浪人，砍了有收益吗</blockquote>
+当成仁王的血刀冢就行了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  黑修士  
+##### 2072#       发表于 2024-3-24 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64356591&amp;ptid=2092342" target="_blank">Shabadadoo 发表于 2024-3-24 10:35</a>
+
+街上异步联机在走路的浪人，砍了有收益吗</blockquote>
+如果看到顶着我ID的浪人，千万不要错过，刚进横滨的萌新，全身金装，点击就送。
+
+什么？你说强度是红色的，怎么可能，绝对是初次踏足横滨的萌新，21级技能树才点了大半，装备也才24级左右<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1594,3 +1594,13 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ruffian  
+##### 19862#       发表于 2024-3-24 11:21
+
+说起来，可堇最近是不是终于有点解绑的苗头了？至少官图不会嗯站一起了，pay不是也说了可回国问题解决后堇也有余力展现她的前辈风采了吗，官方这下终于是榨干净人气后可以放心扔掉了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

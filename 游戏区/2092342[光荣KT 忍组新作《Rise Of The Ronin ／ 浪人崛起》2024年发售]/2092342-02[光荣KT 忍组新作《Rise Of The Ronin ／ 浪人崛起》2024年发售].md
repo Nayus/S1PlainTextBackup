@@ -5915,3 +5915,25 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 手榴弹伤害确实可以<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">清怪堆好用的1b
 
+
+*****
+
+####  Bani82  
+##### 2096#       发表于 2024-3-24 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64359819&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-3-24 16:06</a>
+
+敌人追击范围小，没任何敌人能把你击落，还能全自动拾取，起码在人性化方面完爆所有其他游戏了吧。 ...</blockquote>
+有自动拾取？没看到选项...
+
+*****
+
+####  Bani82  
+##### 2097#       发表于 2024-3-24 17:03
+
+进江户了，体感比一开始好了那一点
+
+霸体什么的习惯后倒也能接受，但是那个克制系统是真的一点点必要都没有，可能是为了rpg用户设计的数值压制玩法？
+
+顺便这游戏妹子好少，进了江户主线来说就2个妹子，后面有没有能带出去打的美少女？
+

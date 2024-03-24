@@ -7483,3 +7483,15 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 开放手持三个祭典贝，昨晚坐牢一晚上没出百倍。今天随便打打挑战，一次十倍没碰见就碰到百倍了，以后还是打挑战好了
 
+
+*****
+
+####  shirolin  
+##### 3725#       发表于 2024-3-24 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64358910&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-3-24 14:20</a>
+开放手持三个祭典贝，昨晚坐牢一晚上没出百倍。今天随便打打挑战，一次十倍没碰见就碰到百倍了，以后还是打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我和你完全相反，挑战从0打到永远，3个祭典贝打了几十场都不出，换开放秒出…
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

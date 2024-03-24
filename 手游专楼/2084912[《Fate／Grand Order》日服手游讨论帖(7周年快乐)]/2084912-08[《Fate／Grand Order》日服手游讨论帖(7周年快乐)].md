@@ -4523,3 +4523,40 @@ Beast能过仇不能过<img src="https://static.saraba1st.com/image/smiley/face2
 
 不知超级基督山伯爵会是明天还是礼拜三和伯爵复刻一起上呢？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11812#       发表于 2024-3-25 01:03
+
+ 本帖最后由 シャル 于 2024-3-25 01:04 编辑 
+
+所以说，变换职介的非纯正复仇者和外星人都不跑
+
+跑的是纯粹的复仇者
+
+丑御前是原本骑阶变化
+
+但那么阿利曼是咋回事？元祖复仇者太弱了所以无所谓了？
+
+B7F992C6-60D6-4C6C-824E-47C5AFCA8EFD.png
+(810.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-25 01:02 上传
+
+<img src="https://img.saraba1st.com/forum/202403/25/010205tipfy3yi8b9aadhv.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 11813#       发表于 2024-3-25 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64363129&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-3-24 21:39</a>
+
+所以咕哒咕哒切割了啊，蘑菇放手让经验值自个儿玩去也不需要尊重什么主线设定了
+
+  -- 来自 能搜索 ...</blockquote>
+咕哒咕哒继续逆输入乌冬从者啊，还剩几个呢
+

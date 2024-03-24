@@ -13001,3 +13001,14 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 [https://twitter.com/kimiJUNN/status/1771923389814550837/photo/1](https://twitter.com/kimiJUNN/status/1771923389814550837/photo/1)
 
+
+*****
+
+####  salic428  
+##### 14443#       发表于 2024-3-25 01:01
+
+<img src="https://p.sda1.dev/16/2158b102248b44a194000dba2d27f462/CMP_20240325010023995.jpg" referrerpolicy="no-referrer">
+……但这说的是三次元，按二次元设定的话又会怎么分比较合适呢？
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

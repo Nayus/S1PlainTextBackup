@@ -7223,3 +7223,14 @@ https://b23.tv/c6mn5Nq</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 2175#       发表于 2024-3-24 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64358264&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-03-24 13:24:20</a>
+离子喷已经垃圾到没人想起来了吗？不过我也觉得离子喷至少得把弹速加一半，伤害加一倍才算能用 ...</blockquote>弹道太滋尿，不如焦土能直接打中远距离
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

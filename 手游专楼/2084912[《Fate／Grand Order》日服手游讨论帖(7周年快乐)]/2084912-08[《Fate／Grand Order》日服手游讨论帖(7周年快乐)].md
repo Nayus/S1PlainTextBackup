@@ -4464,3 +4464,23 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 泳装职介感觉纯粹是为了游戏性，其实还是他们原来职介，黑贞下车后水黑贞也一起link lost就说明这点 ...</blockquote>
 有啊，邪马台那次活动宇宙凛有来客串啊。
 
+
+*****
+
+####  シャル  
+##### 11806#       发表于 2024-3-24 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64361170&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-3-24 18:35</a>
+
+迦摩：不需要我走，以后御主就只能用我一个仇阶了（那边那个宇宙女神给我滚回去你的宇宙[f ...</blockquote>
+夹摩还是杀，仇阶改着玩的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 11807#       发表于 2024-3-24 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人理君也就欺软怕硬
+
+Beast能过仇不能过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

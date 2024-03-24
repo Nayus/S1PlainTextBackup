@@ -1715,3 +1715,13 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ads147147  
+##### 19874#       发表于 2024-3-24 21:19
+
+这。。。这staff的操作非常符合我对代便staff水平的刻板印象，大公司病就是这样吧。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -130,3 +130,20 @@ Wildwood Primalist装备护符来获得随机的其他进阶的弱化版天赋
 考虑我们都是从兽栏那个赛季就没玩了，也可以说是新手。不过当年都是alpha版本直连新西兰的人，倒是不会 ...</blockquote>
 我觉得还是看你有没有dlike游戏基础，当年知道这游戏后直接国际服上手也没任何问题
 
+
+*****
+
+####  史莱姆KING  
+##### 1376#       发表于 2024-3-24 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64355817&amp;ptid=1478318" target="_blank">limon 发表于 2024-3-24 08:43</a>
+
+是的。另外新手建议国服先练手
+
+—— 来自 S1Fun</blockquote>
+国服是腾讯的？
+
+我其实玩过几次POE国际服+汉化补丁模式
+
+但是也很难玩下去，最远的一次才打到剧情的act8还是10那会儿。。。。
+

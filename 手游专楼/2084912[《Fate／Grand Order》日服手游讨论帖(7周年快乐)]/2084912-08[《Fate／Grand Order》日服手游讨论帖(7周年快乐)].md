@@ -4453,3 +4453,14 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 例如OC2就把一直藏在主角垃圾桶的伯爵给清了，不用担心最终决战时左右战局。
 
+
+*****
+
+####  khxooo  
+##### 11805#       发表于 2024-3-24 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64361223&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-3-24 18:40</a>
+
+泳装职介感觉纯粹是为了游戏性，其实还是他们原来职介，黑贞下车后水黑贞也一起link lost就说明这点 ...</blockquote>
+有啊，邪马台那次活动宇宙凛有来客串啊。
+

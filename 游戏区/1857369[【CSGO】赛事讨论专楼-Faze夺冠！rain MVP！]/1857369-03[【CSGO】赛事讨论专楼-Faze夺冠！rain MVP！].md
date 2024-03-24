@@ -541,3 +541,11 @@ PGL太恶心了，这几天都掉了多少次了
 
 等后面g2被淘汰的时候不知道要被嘲讽成什么样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 4088#       发表于 2024-3-25 04:19
+
+赢的不够光彩，没办法的事情， 场上谁都恶心
+

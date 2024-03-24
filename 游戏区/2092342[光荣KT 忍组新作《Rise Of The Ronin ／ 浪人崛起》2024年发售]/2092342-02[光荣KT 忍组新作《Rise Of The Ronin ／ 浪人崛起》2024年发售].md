@@ -6252,3 +6252,24 @@ aibo你装个假肢之后太狠了
 
 杀那些恶代官是可以理解，但是见到洋人就杀没太多认同感，况且在横滨结交的几个洋人看起来似乎也不算什么太坏的人
 
+
+*****
+
+####  zqqwe  
+##### 2128#       发表于 2024-3-24 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64363962&amp;ptid=2092342" target="_blank">铁甲钢弹 发表于 2024-3-24 23:07</a>
+跟aibo在黄昏难度下鏖战一小时了。感觉钩爪拉近、原地抡钩爪这两招应该是最容易抓石火的时机了，可惜目前 ...</blockquote>
+火箭飞拳只成功弹到一次，后面就老老实实换人躲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 2129#       发表于 2024-3-24 23:20
+
+前期建议先把元素瓶数量和快愈丹制造的技能点出来，大幅降低难度
+
+然后把键位改一下……刚刚发现切段键位没法改，一定要推右摇杆太难受了
+
+玩到后面开放其他类型武器和流派就开始脱离石火玩法了，别卧龙ptsd了
+

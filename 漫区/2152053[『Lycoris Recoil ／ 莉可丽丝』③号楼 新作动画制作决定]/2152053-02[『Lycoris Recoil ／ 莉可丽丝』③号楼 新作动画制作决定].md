@@ -150,3 +150,11 @@ https://twitter.com/aleos696/status/1767309588821639175/photo/1</blockquote>
 
 [https://twitter.com/lycoreco_sta ... 04787994763/photo/1](https://twitter.com/lycoreco_stage/status/1771737604787994763/photo/1)
 
+
+*****
+
+####  蒜灵  
+##### 1752#       发表于 2024-3-24 23:25
+
+AJ上有第二季的情报吗？
+

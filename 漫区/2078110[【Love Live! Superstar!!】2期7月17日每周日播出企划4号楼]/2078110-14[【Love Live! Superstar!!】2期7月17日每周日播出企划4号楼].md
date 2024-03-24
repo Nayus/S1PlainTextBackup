@@ -1604,3 +1604,23 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  280041437  
+##### 19863#       发表于 2024-3-24 12:19
+
+只要提起可可就是回国问题，这问题被糊弄过去之后仿佛可可的塑造就完成了这就很离谱，整的可可跟工具人一样
+
+*****
+
+####  ViyViy  
+##### 19864#       发表于 2024-3-24 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64356983&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-3-24 11:21</a>
+
+说起来，可堇最近是不是终于有点解绑的苗头了？至少官图不会嗯站一起了，pay不是也说了可回国问题解决后堇 ...</blockquote>
+不能说解绑了，只能说官方开始给你表演不忘初心和我还在乎你，先别走，正面推下可香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟都是新杂志的内容，不还是三句不离可可。
+
+不过新杂志融合了版本T0公式，给某派系最喜欢抨击可香的一个概念神“不知恩香音”做了回应：我不说≠不感谢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

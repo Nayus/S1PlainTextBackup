@@ -7311,3 +7311,14 @@ XXX被移交军事法庭
 第一次看到有人被提示这个。 ...</blockquote>
 主动退是回归平民生活，房主踢人是移交军事法庭
 
+
+*****
+
+####  xinfengj  
+##### 2183#       发表于 2024-3-25 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64363311&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-24 21:54</a>
+
+超级信球就不能把重要指令奖励设置成达成条件即解锁吗</blockquote>
+没打完虫子会反攻的，把这个星区三个球打完应该就解了
+

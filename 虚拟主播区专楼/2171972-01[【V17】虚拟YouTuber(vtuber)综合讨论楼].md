@@ -2813,3 +2813,17 @@ RB是真的随时准备跑路回森林的,昨天他和GBC的boss聊完都说了�
 绷不住了，三笨蛋好歹是19年的牌面，结果现在开个线下只有不到一千人。
 这是只想收割核心粉丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 134#       发表于 2024-3-25 00:14
+
+ 本帖最后由 poipanchao 于 2024-3-25 00:17 编辑 
+
+虽然我不看stgr，但是老叶这成天4W+有点夸张了吧
+
+葛叶做的到吗<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+syl，小景感觉迅速融入vspo，相比之下krm快4个月了还像个局外人一样……
+

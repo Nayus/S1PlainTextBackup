@@ -6320,3 +6320,11 @@ aibo你装个假肢之后太狠了
 
 另外这游戏的战斗压制思路应该是什么？平a起手是可以抢先打出敌人硬直的，没必要等敌人出招再石火。武技、狂风紫电的使用时机都没想好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2134#       发表于 2024-3-25 00:10
+
+在路边看到过一条白狼，头上有个感叹号。我跟着它走，一直到河边突然显示我获得了一些道具。然后白狼叫了两声，一个烟雾弹消失了。想问下这个随机事件是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

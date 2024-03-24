@@ -4495,3 +4495,11 @@ Beast能过仇不能过<img src="https://static.saraba1st.com/image/smiley/face2
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  johnkamsar  
+##### 11809#       发表于 2024-3-24 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我草，fsr这dlc，看门大爷搞不好五星登场了吧？
+

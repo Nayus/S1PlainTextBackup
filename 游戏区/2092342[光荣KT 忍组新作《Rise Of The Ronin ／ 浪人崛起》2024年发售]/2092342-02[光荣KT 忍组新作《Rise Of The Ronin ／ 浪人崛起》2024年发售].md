@@ -6137,3 +6137,20 @@ aibo你装个假肢之后太狠了
 
 泽村保佑在江户的哪里有人知道么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2117#       发表于 2024-3-24 22:05
+
+偷马贼这个精英大剑哥，我正常打实在是难打，死了又要重新打一遍据点，很浪费时间。
+
+最后用卑鄙的招式阴死的。先潜行进去暗杀一次，然后钩爪上房梁。弓箭爆头下楼处决倒地，再钩爪上楼，如此循环<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  crosz1985  
+##### 2118#       发表于 2024-3-24 22:07
+
+说起来选女角色影响泡妞吗
+

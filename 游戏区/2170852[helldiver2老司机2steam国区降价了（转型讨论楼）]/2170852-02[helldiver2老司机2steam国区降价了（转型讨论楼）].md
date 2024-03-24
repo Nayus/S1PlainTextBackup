@@ -7296,3 +7296,18 @@ XXX被移交军事法庭
 
 超级信球就不能把重要指令奖励设置成达成条件即解锁吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 2182#       发表于 2024-3-24 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64362227&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-3-24 20:24</a>
+
+XXX被移交军事法庭
+
+是什么意思？开挂被官方封了？
+
+第一次看到有人被提示这个。 ...</blockquote>
+主动退是回归平民生活，房主踢人是移交军事法庭
+

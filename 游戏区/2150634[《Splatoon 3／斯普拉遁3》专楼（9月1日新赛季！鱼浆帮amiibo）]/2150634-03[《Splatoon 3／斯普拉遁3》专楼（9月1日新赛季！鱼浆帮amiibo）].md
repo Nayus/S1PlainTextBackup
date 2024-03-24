@@ -7444,3 +7444,16 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 3721#       发表于 2024-3-24 10:03
+
+ 本帖最后由 KBAC 于 2024-3-24 10:05 编辑 
+
+今天二代广场标题界面音效好怪哦，什么大反派降临<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+而且广播和音乐的衔接不是很好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

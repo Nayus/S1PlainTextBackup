@@ -6016,3 +6016,14 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 什么时候解锁新流派啊。就初始的一个人流派打得太难受了来自: iPhone客户端
 
+
+*****
+
+####  bwsusaga  
+##### 2106#       发表于 2024-3-24 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64361341&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-24 18:56</a>
+
+什么时候解锁新流派啊。就初始的一个人流派打得太难受了</blockquote>
+最快的方法就是跟着主线走，跟龙马打完第一个副本拿北辰一刀流，别杀权藏，后面做他的任务还有大太刀流派。
+

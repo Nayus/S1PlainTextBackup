@@ -6043,3 +6043,13 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 还是那句话，想念关卡制
 
+
+*****
+
+####  土路生優里  
+##### 2109#       发表于 2024-3-24 20:42
+
+【浪人崛起 久坂玄瑞极传无伤 9163分】 [https://www.bilibili.com/video/B ... 1413df8cc2ad838e49b](https://www.bilibili.com/video/BV1uF4m1F7P2/?share_source=copy_web&amp;vd_source=d79c73841d2461413df8cc2ad838e49b)
+
+打了个无伤久坂<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer"> 
+

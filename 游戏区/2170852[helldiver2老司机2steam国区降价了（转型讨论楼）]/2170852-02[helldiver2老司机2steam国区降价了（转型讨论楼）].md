@@ -7261,3 +7261,30 @@ https://b23.tv/c6mn5Nq</blockquote>
 离子喷已经垃圾到没人想起来了吗？不过我也觉得离子喷至少得把弹速加一半，伤害加一倍才算能用 ...</blockquote>
 电弧喷其实还可以，就是射速有点拉
 
+
+*****
+
+####  Gmlazy  
+##### 2179#       发表于 2024-3-24 20:24
+
+XXX被移交军事法庭
+
+是什么意思？开挂被官方封了？
+
+第一次看到有人被提示这个。
+
+
+*****
+
+####  拔丝光头  
+##### 2180#       发表于 2024-3-24 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64362227&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-3-24 20:24</a>
+
+XXX被移交军事法庭
+
+是什么意思？开挂被官方封了？
+
+第一次看到有人被提示这个。 ...</blockquote>
+队长把人踢了就是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

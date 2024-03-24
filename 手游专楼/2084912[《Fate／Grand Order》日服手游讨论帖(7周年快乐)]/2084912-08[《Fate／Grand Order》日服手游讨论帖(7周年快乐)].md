@@ -4440,3 +4440,16 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从者宇宙的除了X毛我记得在一部终章出来过 其他默认主线都不存在吧
 
+
+*****
+
+####  cenhr  
+##### 11804#       发表于 2024-3-24 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64361101&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-3-24 18:29</a>
+
+召仇阶没问题啊，问题是你招了仇阶就不给你过人理之壁，那几个仇阶知道是自己问题导致的那只能下车了，剩下 ...</blockquote>
+至少OC1和OC2故事后让我感觉人理之壁不是要主角自证清白，而是叫他去补补课好好认识7骑外的阶，并顺便清理一下隐忧。所以感觉是善意而不是刁难<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+例如OC2就把一直藏在主角垃圾桶的伯爵给清了，不用担心最终决战时左右战局。
+

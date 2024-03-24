@@ -7178,3 +7178,25 @@ https://b23.tv/c6mn5Nq</blockquote>
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 要么全开加速器，要么**连。（实际裸连网络还稳定一些）
 
+
+*****
+
+####  smdzh2  
+##### 2171#       发表于 2024-3-24 13:02
+
+终于攒够蓝票解锁了搞基债券，镰刀割草真爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+后面几把枪有必要解锁吗？
+
+
+*****
+
+####  pwzzy  
+##### 2172#       发表于 2024-3-24 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64358051&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-24 13:02</a>
+
+终于攒够蓝票解锁了搞基债券，镰刀割草真爽啊
+
+后面几把枪有必要解锁吗？ ...</blockquote>
+第二页的眩晕雷很厉害，其他的电枪现在有命中率bug会导致游戏卡死，至于手枪，一般认为是箭头回收奖章用的
+

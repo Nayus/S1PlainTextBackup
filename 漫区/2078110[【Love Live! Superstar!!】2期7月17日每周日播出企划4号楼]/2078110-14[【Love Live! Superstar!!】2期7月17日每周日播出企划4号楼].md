@@ -1635,3 +1635,24 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 说起来，可堇最近是不是终于有点解绑的苗头了？至少官图不会嗯站一起了，pay不是也说了可回国问题解决后堇 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问过我第三季动画了吗？
 
+
+*****
+
+####  ruffian  
+##### 19866#       发表于 2024-3-24 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64357587&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-03-24 12:21:38</a>
+不能说解绑了，只能说官方开始给你表演不忘初心和我还在乎你，先别走，正面推下可香 ...</blockquote>那没办法，都小星星了，都非虚构了，绕不开的，主要是最近特别号封面和版权绘都不粘一起了，想想之前俩人捆成啥样了，跟连体人似的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 19867#       发表于 2024-3-24 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64357666&amp;ptid=2078110" target="_blank">抱犊崮 发表于 2024-03-24 12:29:02</a>
+问过我第三季动画了吗？</blockquote>不是把库库塑造成不称职前辈反衬粟米列的前辈风采就算成功
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

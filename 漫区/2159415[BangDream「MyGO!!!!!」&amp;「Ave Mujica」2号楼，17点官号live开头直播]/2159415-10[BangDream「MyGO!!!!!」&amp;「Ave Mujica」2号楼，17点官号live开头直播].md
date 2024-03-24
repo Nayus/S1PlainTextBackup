@@ -12832,3 +12832,12 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CyDiablo  
+##### 14430#       发表于 2024-3-24 12:55
+
+国服要实装mygo了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/5414f84e147bddb954edd8a62470fc94/fc89ae34-508a-47c4-9c6c-7a15e9819483.png" referrerpolicy="no-referrer">
+

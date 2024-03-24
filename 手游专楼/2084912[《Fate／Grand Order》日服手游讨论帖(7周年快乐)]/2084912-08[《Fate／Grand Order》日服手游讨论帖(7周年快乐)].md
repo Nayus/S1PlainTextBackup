@@ -4306,3 +4306,15 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 —— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
 不带也有这buff
 
+
+*****
+
+####  cenhr  
+##### 11791#       发表于 2024-3-24 11:58
+
+ 本帖最后由 cenhr 于 2024-3-24 12:00 编辑 
+
+这次ygj很小心，在写伯爵感情生活设定上，说海黛是伯爵完成复仇后释怀了和她归隐，因此座上纪录正在复仇的他没有这个救赎可以，或者说最后伯爵是BE没有和海黛在一起，是大仲马YY的GE也可以
+
+小心到不信这是有拉郎配兴趣的写手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

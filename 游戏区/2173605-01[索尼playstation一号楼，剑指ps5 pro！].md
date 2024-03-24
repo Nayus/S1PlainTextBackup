@@ -1497,3 +1497,13 @@ Credit: @MysticRyan’s video for the screenshots.
 
 另外仁王2好像没有完全版光碟？买了光碟还要再手动买dlc吗
 
+
+*****
+
+####  Rowen233  
+##### 328#       发表于 2024-3-24 11:42
+
+话说伊莲娜算不算记者侠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

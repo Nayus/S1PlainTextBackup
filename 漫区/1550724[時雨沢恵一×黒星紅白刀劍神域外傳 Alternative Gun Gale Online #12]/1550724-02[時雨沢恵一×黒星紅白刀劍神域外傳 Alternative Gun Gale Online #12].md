@@ -24,3 +24,17 @@
 
 以经六年了啊，当时还以为reona会和egoist一样借这个马甲很久，没想到很快就真名解放，还唱上了月姬的歌
 
+
+*****
+
+####  小比類巻香蓮  
+##### 1874#         楼主| 发表于 2024-3-24 16:29
+
+<img src="https://gungale-online.net/assets/img/kv/hedaer_img01.jpg" referrerpolicy="no-referrer">
+<img src="https://gungale-online.net/assets/img/char01.png" referrerpolicy="no-referrer">
+<img src="https://gungale-online.net/assets/img/char02.png" referrerpolicy="no-referrer">
+<img src="https://gungale-online.net/assets/img/char03.png" referrerpolicy="no-referrer">
+<img src="https://gungale-online.net/assets/img/char04.png" referrerpolicy="no-referrer">
+
+更新了主樓，順便貼一下新地圖和新立繪
+

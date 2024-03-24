@@ -7211,3 +7211,15 @@ https://b23.tv/c6mn5Nq</blockquote>
 第二页的眩晕雷很厉害，其他的电枪现在有命中率bug会导致游戏卡死，至于手枪，一般认为是箭头回收奖章用 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">离子喷已经垃圾到没人想起来了吗？不过我也觉得离子喷至少得把弹速加一半，伤害加一倍才算能用
 
+
+*****
+
+####  风萧飒  
+##### 2174#       发表于 2024-3-24 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64358264&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-3-24 13:24</a>
+离子喷已经垃圾到没人想起来了吗？不过我也觉得离子喷至少得把弹速加一半，伤害加一倍才算能用 ...</blockquote>
+伤害加倍不是更容易炸死自己了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -6392,3 +6392,13 @@ aibo你装个假肢之后太狠了
 
 虽然好看的妹子没几个，但是的确可以八艘跳的，而且还有推倒后屏幕一黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 2142#       发表于 2024-3-25 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64364554&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 00:10</a>
+在路边看到过一条白狼，头上有个感叹号。我跟着它走，一直到河边突然显示我获得了一些道具。然后白狼叫了两 ...</blockquote>
+你细看，它最后那里应该有一具尸体，你的东西也是从那拾取的，狗子带你去继承它主人的遗物之类暖心小故事
+

@@ -5600,3 +5600,20 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 江户剧情上来也太直接了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑色的js  
+##### 2063#       发表于 2024-3-24 07:48
+
+大姐姐事后好娇哦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wtyrambo  
+##### 2064#       发表于 2024-3-24 07:48
+
+<blockquote>垃圾网站上 发表于 2024-3-24 07:05
+战斗核心的确是石火，但你一定程度上可以主动用的，具体就是打一套后对方霸体反击再石火回精又打一套，而不 ...</blockquote>
+所以这还是回合制啊，因为敌人进攻的时候基本没有石火外的处理办法，石火完了砍两刀他只要喊一声我的回合，就只能继续看着又一轮石火了。
+

@@ -4421,3 +4421,22 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 召仇阶没问题啊，问题是你招了仇阶就不给你过人理之壁，那几个仇阶知道是自己问题导致的那只能下车了，剩下 ...</blockquote>
 迦摩：不需要我走，以后御主就只能用我一个仇阶了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  rollingusagi  
+##### 11802#       发表于 2024-3-24 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64361170&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-03-24 18:35:49</a>
+迦摩：不需要我走，以后御主就只能用我一个仇阶了）</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装职介感觉纯粹是为了游戏性，其实还是他们原来职介，黑贞下车后水黑贞也一起link lost就说明这点，然后咕哒咕哒平行世界已经切割了，宇宙凛人在从者宇宙呢本来就不在迦里，你看哪次活动有她客串的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  qixinno2  
+##### 11803#       发表于 2024-3-24 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从者宇宙的除了X毛我记得在一部终章出来过 其他默认主线都不存在吧
+

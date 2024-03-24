@@ -6063,3 +6063,52 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 可能有些人和我一样之前没注意到，姑且说一声，清完据点后如果出现黑市商人是会卖技能书的（如果之前没注意可以用筛选图标来找<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 2111#       发表于 2024-3-24 20:59
+
+这一作的幻化居然可以不穿裤子，跑起来确实相当养眼
+
+<img src="https://img.saraba1st.com/forum/202403/24/205818hw84k81lgl1zebls.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (183.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202403/24/205818t6qh5tie01iinqd5.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (306.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 20:58 上传
+
+<img src="https://img.saraba1st.com/forum/202403/24/205818om9w9kztew951osw.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (445.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 20:58 上传
+
+*****
+
+####  zqqwe  
+##### 2112#       发表于 2024-3-24 21:03
+
+点出石火烈风紫电回精之后耐力根本用不完，压制力大幅强化
+
+这次饭纲落是动摇就能挑空不用空精太爽了
+
+
+*****
+
+####  banjia0815  
+##### 2113#       发表于 2024-3-24 21:04
+
+江户清到三分之一同样有点累了，清图过程暂时也没遇到啥新内容。另外江户城里画面一言难尽，横滨还稍微好一点整些洋楼，江户太素了，大段大段的泥土路，材质又不行没有植被覆盖观感很差。
+

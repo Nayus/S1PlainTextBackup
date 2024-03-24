@@ -4365,3 +4365,16 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  exiaexa  
+##### 11797#       发表于 2024-3-24 17:20
+
+伯爵应该是一开始就定下送给玩家的
+从监狱塔到英灵列传态度都非常坚决
+樱井咋可能收敛，一开始就是这么干的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说白了，世界上没有乱拉的cp，只有不想看的cp
+

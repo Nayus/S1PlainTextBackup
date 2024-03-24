@@ -112,3 +112,15 @@
 
 这作好看的全在日常，Q娃部分太敷衍了，我开始担心猫组变身会不会想不出词倒数也喊汪了
 
+
+*****
+
+####  上坂莲华  
+##### 1232#       发表于 2024-3-24 13:10
+
+这猫天天被这么吸，我都想不出来变人之后要多嫌弃mayu了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mayu：再让我吸一口吧小雪，我什么都会做的<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+
+小雪：你这个主人，真是满脑子都是自己呢<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+

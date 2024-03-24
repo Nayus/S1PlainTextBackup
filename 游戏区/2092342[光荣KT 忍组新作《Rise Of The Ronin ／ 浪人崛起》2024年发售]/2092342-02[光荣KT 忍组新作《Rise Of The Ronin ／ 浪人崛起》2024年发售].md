@@ -5728,3 +5728,13 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 到了江户能自由行动了推荐先去本所，赌场在那里<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MuramasaSP  
+##### 2076#       发表于 2024-3-24 12:16
+
+不杀生武器在哪买啊
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

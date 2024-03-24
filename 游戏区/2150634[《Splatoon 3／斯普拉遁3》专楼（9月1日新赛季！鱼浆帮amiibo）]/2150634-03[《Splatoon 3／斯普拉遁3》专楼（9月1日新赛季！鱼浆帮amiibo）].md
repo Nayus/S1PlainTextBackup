@@ -7517,3 +7517,17 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 熬过去了以后换什么贴牌爆墨林还有贴牌长弓什么的巨能混的，胜率马上就噌噌上去，当然也有可能是匹配硬在拉平
 
+
+*****
+
+####  martinium  
+##### 3728#       发表于 2024-3-25 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64361501&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2024-3-24 19:13</a>
+这次好像还是赢的盘数更多一点?
+
+但是不确定因素还是太多了，祭奠我是用来刷武器券的，一次大概能刷4把还是5 ...</blockquote>
+贴牌sb泡涂地太差了。杀两个人，结果对面两个人复活回来，地板环境和之前没有区别。涂地能力比长热还差的武器。无印版的sb泡因为有喷洒和鲨鱼反而更适合涂地一点。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -147,3 +147,15 @@ Wildwood Primalist装备护符来获得随机的其他进阶的弱化版天赋
 
 但是也很难玩下去，最远的一次才打到剧情的act8还是10那会儿。。。。
 
+
+*****
+
+####  limon  
+##### 1377#       发表于 2024-3-24 18:30
+
+ 本帖最后由 limon 于 2024-3-24 18:31 编辑 
+
+最好老老实实抄个bd教程，越详细越好。这游戏现在搞得挺复杂的，除非天赋异禀，一开始就自我发挥挺容易弃坑 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4401,3 +4401,23 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话我打完2章都不知道为什么会link lost
 
+
+*****
+
+####  rollingusagi  
+##### 11800#       发表于 2024-3-24 18:29
+
+召仇阶没问题啊，问题是你招了仇阶就不给你过人理之壁，那几个仇阶知道是自己问题导致的那只能下车了，剩下几个没下车的按她们的说法很快也会下车。所以说到底还是最开始那个问题，这人理之壁到底为啥要我们自证清白，这个问题只能到南极后才能清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  khxooo  
+##### 11801#       发表于 2024-3-24 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64361101&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-3-24 18:29</a>
+召仇阶没问题啊，问题是你招了仇阶就不给你过人理之壁，那几个仇阶知道是自己问题导致的那只能下车了，剩下 ...</blockquote>
+迦摩：不需要我走，以后御主就只能用我一个仇阶了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">）
+

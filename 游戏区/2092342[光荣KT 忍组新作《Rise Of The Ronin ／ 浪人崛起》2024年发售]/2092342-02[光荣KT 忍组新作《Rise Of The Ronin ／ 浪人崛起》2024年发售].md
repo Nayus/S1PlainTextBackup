@@ -6355,3 +6355,11 @@ aibo你装个假肢之后太狠了
 
 龙信被优化整懵了先放放，浪人预购的盘怎么还没发货orz
 
+
+*****
+
+####  duraa  
+##### 2138#       发表于 2024-3-25 00:50
+
+本来还想说今晚把江户全清了再歇，结果讲武所目测被主线进度锁了进不去<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

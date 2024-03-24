@@ -7250,3 +7250,14 @@ https://b23.tv/c6mn5Nq</blockquote>
 
 等离子制裁者改成单发装填再加个炸巢就能用，定位上就应该是小榴弹
 
+
+*****
+
+####  LrGsite  
+##### 2178#       发表于 2024-3-24 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64358264&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-3-24 13:24</a>
+
+离子喷已经垃圾到没人想起来了吗？不过我也觉得离子喷至少得把弹速加一半，伤害加一倍才算能用 ...</blockquote>
+电弧喷其实还可以，就是射速有点拉
+

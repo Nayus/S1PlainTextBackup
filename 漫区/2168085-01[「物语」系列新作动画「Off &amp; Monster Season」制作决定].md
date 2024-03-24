@@ -1143,3 +1143,18 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 愚物语我就是想看育惨败动画怎么拍的，沙发套一点挑战精神都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 126#       发表于 2024-3-24 17:27
+
+有没有可能愚人节直接放送育惨败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuki256  
+##### 127#       发表于 2024-3-24 17:28
+
+急急急
+

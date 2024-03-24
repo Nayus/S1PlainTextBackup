@@ -5945,3 +5945,13 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 重生之我在幕府当牛头人<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 2099#       发表于 2024-3-24 17:28
+
+实际上被克根本不影响你的发挥，只是克制能加大对面的硬直<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+被所有克的隼流只要弹出背后位就能上前砍一刀接风雷震落爽的不行<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

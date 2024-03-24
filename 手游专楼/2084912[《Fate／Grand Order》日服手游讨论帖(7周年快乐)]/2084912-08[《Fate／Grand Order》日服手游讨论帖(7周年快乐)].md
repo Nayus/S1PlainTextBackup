@@ -4336,3 +4336,11 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  kisskick  
+##### 11794#       发表于 2024-3-24 15:20
+
+奏二本来是aj放的，然后提前了，最合理的解释
+

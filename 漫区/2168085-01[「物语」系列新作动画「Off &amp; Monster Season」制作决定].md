@@ -1036,3 +1036,27 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 感觉很不错，相信沙发套<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">等一个重回巅峰
 
+
+*****
+
+####  狼王卢比奥  
+##### 113#       发表于 2024-3-24 15:19
+
+杉山延宽回总作监，神前晓负责音乐
+
+*****
+
+####  Tachikoma88  
+##### 114#       发表于 2024-3-24 15:21
+
+不会是因为育惨败是愚物语里最难改编的所以拖到后面了吧
+
+
+*****
+
+####  猫兔同笼  
+##### 115#       发表于 2024-3-24 15:25
+
+愚物语喜欢的部分就是育惨败
+“我是阿良良木派的”<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

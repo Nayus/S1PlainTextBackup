@@ -5837,3 +5837,28 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 闲着没事去mc看了下用户评分8.1了
 
+
+*****
+
+####  寂长无星夜  
+##### 2088#       发表于 2024-3-24 15:22
+
+实体版终于发货了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネコカイザー  
+##### 2089#       发表于 2024-3-24 15:24
+
+<img src="https://img.saraba1st.com/forum/202403/24/152349gplol4njdp0641n6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 15:23 上传
+
+捏了个眼镜娘大姐头。
+
+感觉捏人没卧龙好看，但是比仁王好点
+

@@ -979,3 +979,60 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 看起来是年内播出了
 
+
+*****
+
+####  Tachikoma88  
+##### 108#       发表于 2024-3-24 15:09
+
+这是要跳过育惨败，先做月火的吗？
+
+*****
+
+####  Piano-Forest  
+##### 109#         楼主| 发表于 2024-3-24 15:09
+
+第1話は 愚物語 ｜2024年
+
+￣￣￣￣￣￣￣￣￣￣￣
+
+中学三年生になった阿良々木月火は、
+
+今日も変わらぬ日常を過ごしていた。
+
+月火の監視を続けている斧乃木余接だったが、
+
+少しの油断から、
+
+初めて重大なミスを犯してしまう。
+
+事態を解決するべく余接が向かった先は、
+
+千石撫子の家で――。
+
+先导PV：[https://youtu.be/_3T5Dmug7c0](https://youtu.be/_3T5Dmug7c0)
+
+<img src="https://p.sda1.dev/16/2c84f632baa6e9625978024080ca78ae/20240324_150805.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狼王卢比奥  
+##### 110#       发表于 2024-3-24 15:12
+
+构成上调换顺序了，不知道怎么考量
+
+*****
+
+####  Tachikoma88  
+##### 111#       发表于 2024-3-24 15:13
+
+老仓育你好惨啊，戏外还要被迫害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  meailove  
+##### 112#       发表于 2024-3-24 15:15
+
+感觉很不错，相信沙发套<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">等一个重回巅峰
+

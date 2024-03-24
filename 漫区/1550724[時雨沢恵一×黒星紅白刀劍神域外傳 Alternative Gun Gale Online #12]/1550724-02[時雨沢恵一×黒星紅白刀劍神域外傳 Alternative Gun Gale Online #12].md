@@ -16,3 +16,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这番的制作比本片上心多了   应该也只有圣母咏叹篇能拿过来比比了  
 
+
+*****
+
+####  童贞阿龙  
+##### 1873#       发表于 2024-3-24 13:44
+
+以经六年了啊，当时还以为reona会和egoist一样借这个马甲很久，没想到很快就真名解放，还唱上了月姬的歌
+

@@ -5772,3 +5772,19 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 目前感觉最赖皮的打发是换人流，由于AI操纵的角色闪避率极高，可以反复用进攻-敌人出招-切换角色蹭背这个无聊的方法放弃石火一直进攻
 
+
+*****
+
+####  duraa  
+##### 2080#       发表于 2024-3-24 13:19
+
+立身流石火成功后接瞬攻这个武技似乎能强制倒地然后能接倒地追击<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  病態極端  
+##### 2081#       发表于 2024-3-24 13:24
+
+<img src="https://p.sda1.dev/16/031d513fb1713926b9f833afedd439e2/akaoni.jpg" referrerpolicy="no-referrer">
+

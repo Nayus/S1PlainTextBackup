@@ -6328,3 +6328,14 @@ aibo你装个假肢之后太狠了
 
 在路边看到过一条白狼，头上有个感叹号。我跟着它走，一直到河边突然显示我获得了一些道具。然后白狼叫了两声，一个烟雾弹消失了。想问下这个随机事件是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 2135#       发表于 2024-3-25 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64364554&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 00:10</a>
+
+在路边看到过一条白狼，头上有个感叹号。我跟着它走，一直到河边突然显示我获得了一些道具。然后白狼叫了两 ...</blockquote>
+所有旗子类任务都是给地方因缘等级经验的，有的地方扫完全图到不了三的时候需要这种旗子类任务补因缘经验到三，到三的好处是所有地标（宝箱，猫等等）都会显示出来
+

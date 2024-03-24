@@ -1703,3 +1703,15 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  一个陆仁贾  
+##### 19873#       发表于 2024-3-24 21:15
+
+<img src="https://p.sda1.dev/16/898df4a660ebc4b65d27fcf9e6009dce/CMP_20240324211426985.jpg" referrerpolicy="no-referrer">
+
+不知道是水团放养了staff才这样梦游，还是这企划的staff现在就这水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

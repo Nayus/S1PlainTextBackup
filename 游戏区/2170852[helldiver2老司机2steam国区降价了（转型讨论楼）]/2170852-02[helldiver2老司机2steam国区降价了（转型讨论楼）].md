@@ -7234,3 +7234,11 @@ https://b23.tv/c6mn5Nq</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  runningch  
+##### 2176#       发表于 2024-3-24 16:46
+
+想解锁难度9，结果连续两回，在野队第三个任务中途闪退，服了。
+

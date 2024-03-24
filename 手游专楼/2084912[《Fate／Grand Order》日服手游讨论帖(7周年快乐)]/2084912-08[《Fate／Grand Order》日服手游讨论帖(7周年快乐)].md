@@ -4354,3 +4354,14 @@ FGO的Ruler定义不是传统圣杯战争里的圣人，这个之前剧情里有
 
 然后还过来演一出话说的不清不楚半途才决定诀别的苦情戏，讲了一整章说明白的设定能有一行吗？这几把理由和放屁一样。
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11796#       发表于 2024-3-24 16:48
+
+本来还没奏章这拖时间的玩意儿呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我倒想看看蘑菇他们能坚持多久活动剧情像武藏一样ban仇职，说不定下个活动就破功？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

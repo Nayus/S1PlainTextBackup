@@ -1515,3 +1515,30 @@ Credit: @MysticRyan’s video for the screenshots.
 
 分辨率越低，帧数对CPU要求反而越高，最起码PC游戏是这么说的
 
+
+*****
+
+####  贝恩德塔  
+##### 330#         楼主| 发表于 2024-3-24 12:23
+
+ 本帖最后由 贝恩德塔 于 2024-3-24 12:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64357165&amp;ptid=2173605" target="_blank">Rowen233 发表于 2024-3-24 11:42</a>
+
+话说伊莲娜算不算记者侠比蜘蛛侠2里的MJ还离谱
+
+—— 来自 S1Fun</blockquote>
+算，伊莲娜记者侠的说法远比mj要早的多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 331#         楼主| 发表于 2024-3-24 12:28
+
+ 本帖最后由 贝恩德塔 于 2024-3-24 12:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64349752&amp;ptid=2173605" target="_blank">nagitoY 发表于 2024-3-23 16:29</a>
+
+刚买ps5，想问下现在想玩仁王2，是不是直接买ps4版的光碟就可以免费升级了？ps5有发售仁王1、2的合集，但是 ...</blockquote>
+免费升级，仁王2有完全版光碟，不需要买dlc
+
+合集可以看看闲鱼
+

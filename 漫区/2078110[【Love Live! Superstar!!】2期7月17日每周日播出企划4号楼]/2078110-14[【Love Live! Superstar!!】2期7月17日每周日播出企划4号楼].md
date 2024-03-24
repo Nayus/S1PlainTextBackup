@@ -1624,3 +1624,14 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 不过新杂志融合了版本T0公式，给某派系最喜欢抨击可香的一个概念神“不知恩香音”做了回应：我不说≠不感谢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抱犊崮  
+##### 19865#       发表于 2024-3-24 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64356983&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-3-24 11:21</a>
+
+说起来，可堇最近是不是终于有点解绑的苗头了？至少官图不会嗯站一起了，pay不是也说了可回国问题解决后堇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问过我第三季动画了吗？
+

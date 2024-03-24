@@ -5738,3 +5738,16 @@ ps5到了，线下实体店拿碟要600多直接数字版了</blockquote>
 
 —— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ouyang菌  
+##### 2077#       发表于 2024-3-24 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64357518&amp;ptid=2092342" target="_blank">MuramasaSP 发表于 2024-03-24 12:16:10</a>
+不杀生武器在哪买啊
+
+—— 来自 HONOR AGT-AN00, Android 12上的  v2.5.4</blockquote>樱屋那就有的卖
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

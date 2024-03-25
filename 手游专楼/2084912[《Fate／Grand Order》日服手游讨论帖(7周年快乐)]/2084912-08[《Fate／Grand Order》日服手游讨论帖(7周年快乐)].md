@@ -4768,3 +4768,14 @@ link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好�
 
 尼托alter确实想抽，本体和道满都用太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 11833#       发表于 2024-3-25 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64372823&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-3-25 17:36</a>
+
+然后被新伯爵卡池爆杀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了  先欧 羡慕
+

@@ -13091,3 +13091,13 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 21号就透了mujica三月出新歌的z8舅舅说的是月底最后几天，就看准不准了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 14450#       发表于 2024-3-25 12:33
+
+z8侦探<img src="https://p.sda1.dev/16/0089b721609a2eb06e6130bb6e70c263/IMG_CMP_51425039.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/16/5583963aac09170790a002ef560c49b7/60902B169D5785916F65CE355748D540.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

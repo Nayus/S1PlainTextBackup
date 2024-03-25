@@ -6714,3 +6714,14 @@ photo_2024-03-24_21-52-09.jpg
 
 流派克制在我看来就是多少有点靠数值强行减负逼着我抱着一个流派砍砍砍了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer"> 高难度+被克环境下面对快慢神经刀真有点难绷
 
+
+*****
+
+####  DoggoGreg  
+##### 2172#       发表于 2024-3-25 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64367988&amp;ptid=2092342" target="_blank">byisme001 发表于 2024-3-25 11:22</a>
+
+这是所有玩家排行榜吗，那不就能大致估出玩家数了</blockquote>
+不是 只有前100的分数
+

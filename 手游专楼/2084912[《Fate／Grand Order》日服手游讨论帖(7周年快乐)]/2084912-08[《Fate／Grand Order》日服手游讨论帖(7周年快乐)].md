@@ -4736,3 +4736,35 @@ link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算不算赚死人钱..................
 
+
+*****
+
+####  rollingusagi  
+##### 11829#       发表于 2024-3-25 17:35
+
+可是大多英灵本来就是死人啊，唯一例外应该是拟似从者以及武藏，梅林，紫发老太婆那几个，哦对了武藏那时候确实是赚死人钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qixinno2  
+##### 11830#       发表于 2024-3-25 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后被新伯爵卡池爆杀
+
+*****
+
+####  希望之花  
+##### 11831#       发表于 2024-3-25 17:37
+
+尼托alter能再复刻吗，上个月情人节日替没抽到，这次有50天登录奖励的30石我会好好珍惜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保罗赫伯特  
+##### 11832#       发表于 2024-3-25 17:43
+
+尼托alter确实想抽，本体和道满都用太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

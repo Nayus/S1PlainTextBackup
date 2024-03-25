@@ -78,3 +78,15 @@ CGSS八周年营业额骤减，去年有7亿，今年目前还只有2.86亿
 虽然推出了第八轮ssr和（强度）膨胀的要素 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩偶像音游的真有多少强度党吗
 
+
+*****
+
+####  渡鸦骑士  
+##### 5438#       发表于 2024-3-25 15:20
+
+ 本帖最后由 渡鸦骑士 于 2024-3-25 15:21 编辑 
+
+啊这，这游戏的系统UI都挺老了。真论下来，和热度还在的时候入坑的玩家比到底谁是阿姨啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过有一说一，cy里面真的有管人粉吧，这联动方方面面都做全了，我都被吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

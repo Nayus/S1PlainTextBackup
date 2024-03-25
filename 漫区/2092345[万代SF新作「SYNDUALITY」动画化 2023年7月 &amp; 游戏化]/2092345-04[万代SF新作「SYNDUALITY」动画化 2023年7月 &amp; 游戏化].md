@@ -277,3 +277,61 @@
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  八等绝癔  
+##### 4466#       发表于 2024-3-25 23:39
+
+结束了啊 结束了
+
+*****
+
+####  765事务所  
+##### 4467#       发表于 2024-3-25 23:39
+
+平稳落地？当然对有些观众（包括我）而言是平稳 -2 落地<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无音命题  
+##### 4468#       发表于 2024-3-25 23:39
+
+难受，这剧终就感觉staff全员甚至剧中角色，到点下班一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 4469#         楼主| 发表于 2024-3-25 23:42
+
+TVアニメ「#SYNDUALITY Noir」
+
+2クール全24話ご視聴頂き
+
+ありがとうございました✨
+
+カナタとノワールの物語は
+
+ミステル目指し、まだこれから！
+
+プロジェクトは引き続き
+
+ゲームへと続きますので、
+
+皆様応援の程、よろしくお願いします！
+
+メイガスはいつも、あなたのそばに―
+
+また会える日まで👋
+<img src="https://p.sda1.dev/16/b192873392c6a88b21250733798e0e09/20240325_234043.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4470#       发表于 2024-3-25 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64375803&amp;ptid=2092345" target="_blank">cybernetics31 发表于 2024-3-25 23:34</a>
+
+这………………姐姐也被收了吗</blockquote>
+嗯……啊？<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+

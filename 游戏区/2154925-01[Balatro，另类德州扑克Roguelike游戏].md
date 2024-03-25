@@ -6225,3 +6225,11 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 steamdeck的流式传输玩了一把，结果pc上的存档没了
 
+
+*****
+
+####  Bojenkins  
+##### 546#       发表于 2024-3-25 23:38
+
+毙站开了预约，手机版真的要来了？
+

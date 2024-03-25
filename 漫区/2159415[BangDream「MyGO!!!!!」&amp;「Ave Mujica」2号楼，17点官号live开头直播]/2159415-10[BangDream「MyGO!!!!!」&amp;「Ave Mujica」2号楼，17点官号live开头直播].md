@@ -13051,3 +13051,16 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ddy2811  
+##### 14446#       发表于 2024-3-25 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64364893&amp;ptid=2159415" target="_blank">salic428 发表于 2024-3-25 01:01</a>
+
+……但这说的是三次元，按二次元设定的话又会怎么分比较合适呢？
+
+—— 来自 HUAWEI ALN-AL00, Android 12 ...</blockquote>
+我个人是狮院爱希喵、蛇院祥素、鹰院初灯海、獾院睦猫
+

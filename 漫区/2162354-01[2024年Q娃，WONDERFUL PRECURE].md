@@ -225,3 +225,11 @@ Q娃内战 我已经举办东映了<img src="https://static.saraba1st.com/image/
 
 反正今年第二集开始我已经弃疗当废萌片看了，只希望成田大妈的感情戏别太夸张控制在甜梦猫范围内就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1244#       发表于 2024-3-25 10:24
+
+未变身前猫组的定位问题 现在戏份和主角一样多 反而搞得变身前后戏份没有区别 变身回没有期待 玩具是走流程打广告 就多几个兼卡可以继续拖时间水时长呗<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

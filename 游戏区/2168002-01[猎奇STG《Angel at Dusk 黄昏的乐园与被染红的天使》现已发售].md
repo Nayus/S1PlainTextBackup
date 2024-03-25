@@ -8,3 +8,14 @@
 
 另外这游戏用全键盘玩没一会，按方向键的右手就开始疼了，正确方式难道是用鼠标控制方向吗？
 
+
+*****
+
+####  JB-5th  
+##### 165#       发表于 2024-3-25 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366250&amp;ptid=2168002" target="_blank">Viteeee 发表于 2024-3-25 09:14</a>
+
+明明东方正作只能玩Normal的也跟风买了一个，教程关就被爆锤。一边死成马一边被制作人彩虹屁“简直 ...</blockquote>
+WASD好点。
+

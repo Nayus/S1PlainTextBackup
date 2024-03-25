@@ -19,3 +19,16 @@
 明明东方正作只能玩Normal的也跟风买了一个，教程关就被爆锤。一边死成马一边被制作人彩虹屁“简直 ...</blockquote>
 WASD好点。
 
+
+*****
+
+####  藤井紫  
+##### 166#       发表于 2024-3-25 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366250&amp;ptid=2168002" target="_blank">Viteeee 发表于 2024-3-25 09:14</a>
+
+明明东方正作只能玩Normal的也跟风买了一个，教程关就被爆锤。一边死成马一边被制作人彩虹屁“简直 ...</blockquote>
+我个人比较舒坦的玩法是用手柄，重武器放R，ABXY把轻武器放X，爆弹放A
+
+L会影响左手控制方向的手感所以就不用了
+

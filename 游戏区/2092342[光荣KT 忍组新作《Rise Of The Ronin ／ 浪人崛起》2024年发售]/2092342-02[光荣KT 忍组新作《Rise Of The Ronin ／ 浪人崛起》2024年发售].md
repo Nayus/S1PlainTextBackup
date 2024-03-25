@@ -6673,3 +6673,22 @@ photo_2024-03-24_21-52-09.jpg
 
 <img src="https://img.saraba1st.com/forum/202403/25/105314fp75ksf5s55k51er.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Emmerich  
+##### 2168#       发表于 2024-3-25 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴言一下 如果石火能取消战技 然后去掉流派克制 战斗就能封神了
+
+
+*****
+
+####  kemyes  
+##### 2169#       发表于 2024-3-25 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64367777&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-25 11:07</a>
+
+暴言一下 如果石火能取消战技 然后去掉流派克制 战斗就能封神了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">说起来不是说石火能取消任何动作的么？老实说没特意试过战技中能不能石火。不过流派克制这个其实看能不能给点奖励；类似隼流虽然被全克制，但实际只要弹到敌人就会踉跄露背这种还挺好的，比一般压制的石火都好用，就是有点费命。
+

@@ -6992,3 +6992,11 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 再就是目前只为了联机开psn ...</blockquote>
 不能一起开荒，联机只能找打过任务的才行
 
+
+*****
+
+####  厨厨？杀！  
+##### 2200#       发表于 2024-3-25 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浪人的衣服好看吗？
+

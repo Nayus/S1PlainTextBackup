@@ -7000,3 +7000,31 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浪人的衣服好看吗？
 
+
+*****
+
+####  popchong  
+##### 2201#       发表于 2024-3-25 16:19
+
+微博看到的，有人知道这套在哪获得吗
+
+664554degy1ho33pqkj22j20qo0sajsy.jpg
+(66.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-25 16:19 上传
+
+<img src="https://img.saraba1st.com/forum/202403/25/161910w08pyt052t0zy8oy.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Moltres.lv70  
+##### 2202#       发表于 2024-3-25 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64371162&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 15:38</a>
+自适应扳机在哪里开关，游戏内的设置吗？那我可能没注意，回去再看看</blockquote>
+游戏内设置就有啊 
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+

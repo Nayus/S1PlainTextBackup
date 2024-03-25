@@ -126,3 +126,18 @@
 <img src="https://p.sda1.dev/16/ea907c570298443e7079bb2667221b62/SYN24_04.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/96d231fe403c2c23aedc0ab8b5bb6996/SYN24_05.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4450#       发表于 2024-3-25 11:01
+
+【【1月/最终回】奇异贤伴 黑色天使 SYNDUALITY Noir 第24话预告【MCE汉化组】-哔哩哔哩】 [https://b23.tv/frn0BOm](https://b23.tv/frn0BOm)   预告的汉化   诺娃:唯有那个人我绝对不会原谅！
+
+*****
+
+####  WGTCorp  
+##### 4451#       发表于 2024-3-25 11:05
+
+借楼问一下，有人收到游戏测试资格的确认邮件了吗？
+

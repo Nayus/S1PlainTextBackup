@@ -7587,3 +7587,13 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 港服百杰真好混，定完分再打了一把就混到了
 
+
+*****
+
+####  KBAC  
+##### 3736#       发表于 2024-3-25 11:01
+
+昨天电子琴三色外战赢麻了，胜率得有差不多八成<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，内战输麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

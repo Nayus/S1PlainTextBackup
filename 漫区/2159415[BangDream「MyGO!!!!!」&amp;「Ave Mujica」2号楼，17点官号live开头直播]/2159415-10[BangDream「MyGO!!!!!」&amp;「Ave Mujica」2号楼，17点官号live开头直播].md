@@ -13072,3 +13072,14 @@ https://twitter.com/Bullfalk/status/1771209416702050335/photo/1</blockquote>
 
 官推怎么动了一下就又静止了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  フミさん  
+##### 14448#       发表于 2024-3-25 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64364973&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-25 01:16</a>
+
+看着感觉左边比右边大只好多</blockquote>
+戳啦，人偶小祥嘛
+

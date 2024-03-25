@@ -335,3 +335,35 @@ TVアニメ「#SYNDUALITY Noir」
 这………………姐姐也被收了吗</blockquote>
 嗯……啊？<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 4471#       发表于 2024-3-25 23:47
+
+不知道说啥好, 结局都在拙劣地模仿xb2了, 能抄成这样是服气的.    总是在不必要的喂屎上有种执着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  八等绝癔  
+##### 4472#       发表于 2024-3-25 23:49
+
+艾女士现在颇有正宫的余俗感
+
+*****
+
+####  没取名啊  
+##### 4473#       发表于 2024-3-25 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么能做得这么无聊
+
+*****
+
+####  cybernetics31  
+##### 4474#       发表于 2024-3-25 23:52
+
+全剧没有一丁半点优点，唯一能看的两集全是牢谢carry。
+牢谢的day dream上流媒体了，写着牢谢版本，咋地，万南，你还想出noir version 是吧。
+

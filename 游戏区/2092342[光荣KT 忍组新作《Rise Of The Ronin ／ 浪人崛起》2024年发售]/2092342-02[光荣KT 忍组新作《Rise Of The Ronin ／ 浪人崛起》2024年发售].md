@@ -6434,3 +6434,52 @@ aibo你装个假肢之后太狠了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个拍照任务里闹鬼+盗墓贼被雷劈死了 幽灵线横滨是吧
 
+
+*****
+
+####  nagitoY  
+##### 2146#       发表于 2024-3-25 08:52
+
+据点战的一打多的情况，普通敌人还好，基本只要弹中红光就可以处决。但是遇到两个精英怪，1打2压力还是很大的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">容错比较低
+
+为了求稳还是要一个一个拉出来打。也可能是前期技能比较少，没有什么一打多的能力。仁王2开头的支线任务各种一大多的车轮战，不过当时已经有夜刀神魂核这种强力牵制技能了。
+
+*****
+
+####  duraa  
+##### 2147#       发表于 2024-3-25 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366045&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 08:52</a>
+据点战的一打多的情况，普通敌人还好，基本只要弹中红光就可以处决。但是遇到两个精英怪，1打2压力还是很大 ...</blockquote>
+手榴弹伺候<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 2148#       发表于 2024-3-25 08:56
+
+回忆了下，仁王处理敌人攻击的手段多有几个方面。不仅有的武技自带位移、跳跃动作可以躲，还有迅妖反这种优先级高而且不消耗耐力的闪避方式，更有强制打断的妖怪技、守护灵技。浪人的武技肯定是很多的，不知道后面有没有强打断和开霸体的技能。
+
+*****
+
+####  刘震云  
+##### 2149#       发表于 2024-3-25 08:57
+
+这游戏派生藏得太深了吧，仁王流太刀的残月是怎么按的啊，我就按出来过一次，各种派生教程里根本没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  彩虹肥宅  
+##### 2150#       发表于 2024-3-25 08:57
+
+1打多最致命的是用烈风的时候会切换锁定
+
+*****
+
+####  wtyrambo  
+##### 2151#       发表于 2024-3-25 08:58
+
+<blockquote>刘震云 发表于 2024-3-25 08:57
+这游戏派生藏得太深了吧，仁王流太刀的残月是怎么按的啊，我就按出来过一次，各种派生教程里根本没有啊[f:0 ...</blockquote>
+前+方块，操作上都写了
+

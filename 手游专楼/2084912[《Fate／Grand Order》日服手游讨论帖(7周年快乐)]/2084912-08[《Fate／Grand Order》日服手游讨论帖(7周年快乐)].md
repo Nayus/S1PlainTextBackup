@@ -4615,3 +4615,24 @@ B7F992C6-60D6-4C6C-824E-47C5AFCA8EFD.png
 
 就复活了7个小时（虽然对于老卡来说已经很不错了），加上黑玛丽都没有登满两天
 
+
+*****
+
+####  cenhr  
+##### 11818#       发表于 2024-3-25 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64365911&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-25 08:35</a>
+
+就复活了7个小时（虽然对于老卡来说已经很不错了），加上黑玛丽都没有登满两天 ...</blockquote>
+大概存货等新版的基督山伯爵吧
+
+*****
+
+####  UNISONIA  
+##### 11819#       发表于 2024-3-25 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64365983&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-25 08:45</a>
+
+大概存货等新版的基督山伯爵吧</blockquote>
+是的，基本上看本周的新伯爵了
+

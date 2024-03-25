@@ -119,3 +119,24 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  内森德雷克  
+##### 404#       发表于 2024-3-26 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64375198&amp;ptid=1978008" target="_blank">rainsheep 发表于 2024-3-25 22:38</a>
+
+确定日版有中文了吗，话说日版cv公布了吗
+
+—— 来自 vivo V2241A, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+确定了
+
+<img src="https://img.saraba1st.com/forum/202403/26/000438gf0or3o8tivtvmo3.png" referrerpolicy="no-referrer">
+
+<strong>47D93DDC02C3F4120BE018866044ADEF.png</strong> (152.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-26 00:04 上传
+

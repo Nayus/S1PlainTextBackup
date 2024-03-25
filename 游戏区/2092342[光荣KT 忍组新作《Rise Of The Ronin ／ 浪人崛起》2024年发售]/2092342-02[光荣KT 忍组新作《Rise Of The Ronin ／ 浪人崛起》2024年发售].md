@@ -7137,3 +7137,19 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 义经流：忍者动作，“天狗砾”描述是苦无，实际是瞄准人放的起爆符。自定义推荐胧鸦
 
+
+*****
+
+####  wtyrambo  
+##### 2214#       发表于 2024-3-25 22:33
+
+<img src="https://img.saraba1st.com/forum/202403/25/223330fsrb2zwndkbndrdr.jpg" referrerpolicy="no-referrer">
+
+<strong>无标题.jpg</strong> (85.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-25 22:33 上传
+
+为什么会这样，我只是想要创造一个大家都幸福的世界啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

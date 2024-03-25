@@ -78,3 +78,16 @@
 得意武器早没所谓了啊，都是开盘子上合体的技能插件，都可以改的</blockquote>
 我是想说得意武器类型也变一变，比如步枪变筒子，大剑变长枪，就是多做一两件专武。
 
+
+*****
+
+####  江戸前ルナ  
+##### 982#         楼主| 发表于 2024-3-25 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64374862&amp;ptid=2104259" target="_blank">regular 发表于 2024-3-25 22:08</a>
+
+我是想说得意武器类型也变一变，比如步枪变筒子，大剑变长枪，就是多做一两件专武。
+
+ ...</blockquote>
+这要专门做武器的专属建模，还要做动作模组，直接相当于做一个分支或者ANgear了啊，看看隔壁这次生放还是难缠的angear<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6426,3 +6426,11 @@ aibo你装个假肢之后太狠了
 不一定，这狗带点乱力怪神的。有一回路上有敌人，我看它进战招了个雷把人劈死了：这搁日本得是个小神了。 ...</blockquote>
 草www还能这样，我目前也只见过大白狗带我找遗物<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Emmerich  
+##### 2145#       发表于 2024-3-25 08:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个拍照任务里闹鬼+盗墓贼被雷劈死了 幽灵线横滨是吧
+

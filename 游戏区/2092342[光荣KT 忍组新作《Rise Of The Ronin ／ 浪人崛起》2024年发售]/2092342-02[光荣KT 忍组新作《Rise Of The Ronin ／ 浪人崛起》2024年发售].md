@@ -7268,3 +7268,35 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 千叶老头和双大太刀哥像疯狗一样，还有红光之后的反击红光</blockquote>
 红光之后的反击红光？千叶老头弹了普攻出反击红光再弹了反击红光又出反击红光的反击红光，三次石火才出大动摇。
 
+
+*****
+
+####  duraa  
+##### 2227#       发表于 2024-3-26 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64375982&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 23:55</a>
+
+这个解锁道馆的双刀师傅，二阶段是不是脑残设计啊。几乎全程霸体顶着我的攻击出手，不练弹平a六连击不给打 ...</blockquote>
+我觉得大部分人第一次打双刀哥都是不会弹连斩的，一般是回避/防御普通攻击后上去攻击（出完招之后的怪是没霸体的），石火处理红光，某种意义上算是教抓攻击间隙上去输出的老师，当然视角是真的傻逼，特别是打道馆经常出现问题<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MuramasaSP  
+##### 2228#       发表于 2024-3-26 00:52
+
+平时打小怪紫电烈风各种架势来回切觉得自己很能，打boss就变成按防御等弹反，弹反后也只敢放一次武技接个烈风，然后就拉开距离回精。
+一向对bba没兴趣，但村山多佳意外的喜欢，可惜刚告白没能**就结束了，不过只告白不啪也算是一种缺憾美，更有意思。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  MuramasaSP  
+##### 2229#       发表于 2024-3-26 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376084&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 00:07</a>
+要玩家弹平a六连也就算了。道馆这破地图，防御敌人攻击没两下就被推到版边，根本看不到敌人的出招，难道要 ...</blockquote>
+平a六连的最后一下我从来没弹反成功过，判定很怪。直接死防也是个办法，精力满的情况下应该不会被打崩。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

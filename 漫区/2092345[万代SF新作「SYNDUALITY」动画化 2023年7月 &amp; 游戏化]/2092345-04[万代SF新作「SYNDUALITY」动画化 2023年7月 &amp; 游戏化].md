@@ -405,3 +405,14 @@ TVアニメ「#SYNDUALITY Noir」
 
 什么垃圾结局<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  管理员我不敢了  
+##### 4479#       发表于 2024-3-26 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376222&amp;ptid=2092345" target="_blank">星降る森 发表于 2024-3-26 00:24</a>
+
+说实话，这年头找个男主女主都0成长的片子也不容易</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">高达铁血的”正牌“男主三日月表示：编剧不喜欢我成长，所以我干脆一点变化没有到死都是文盲
+

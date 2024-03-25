@@ -4833,3 +4833,14 @@ link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好�
 仇nobu现在强度如何啊</blockquote>
 100天特攻，60红魔放，60攻击buff，自带神性特攻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打某些神性玩意直接飞天
 
+
+*****
+
+####  khxooo  
+##### 11840#       发表于 2024-3-25 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64372744&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-3-25 17:28</a>
+
+这算不算赚死人钱..................</blockquote>
+坐下，正常操作。武藏的DATA  LOST都给你开卡池了，更何况是低一级的Link Lost<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

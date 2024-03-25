@@ -7103,3 +7103,11 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  duraa  
+##### 2211#       发表于 2024-3-25 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">江户开始打主线后跳出一万个支线说是
+

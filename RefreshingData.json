@@ -357,7 +357,7 @@
     "lastedit": 1711376880,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2001539": {
     "totalreply": 5625,
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2116038": {
-    "totalreply": 1803,
+    "totalreply": 1804,
     "title": "[碧蓝档案 TV动画制作决定 2024年4月]",
     "newtitle": "[碧蓝档案 TV动画制作决定 2024年4月]",
-    "lastedit": 1711388891,
+    "lastedit": 1711394649,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14760,10 +14760,10 @@
     "update": false
   },
   "2175781": {
-    "totalreply": 121,
+    "totalreply": 122,
     "title": "[宫崎老贼是否有制作正常叙事游戏的能力？]",
     "newtitle": "[宫崎老贼是否有制作正常叙事游戏的能力？]",
-    "lastedit": 1711392496,
+    "lastedit": 1711394648,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17451,12 +17451,12 @@
     "update": false
   },
   "2176486": {
-    "totalreply": 104,
+    "totalreply": 105,
     "title": "[AI会不会先取代搞数学和理论物理的那群人？]",
     "newtitle": "[AI会不会先取代搞数学和理论物理的那群人？]",
-    "lastedit": 1711101144,
+    "lastedit": 1711394408,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2176376": {

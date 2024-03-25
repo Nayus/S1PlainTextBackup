@@ -6926,3 +6926,44 @@ photo_2024-03-24_21-52-09.jpg
 
 PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不习惯十字键在下的紫电……
 
+
+*****
+
+####  duraa  
+##### 2194#       发表于 2024-3-25 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64371162&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 15:38</a>
+自适应扳机在哪里开关，游戏内的设置吗？那我可能没注意，回去再看看</blockquote>
+我是ps5手柄设置里面关的
+
+*****
+
+####  Bani82  
+##### 2195#       发表于 2024-3-25 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64367777&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-25 11:07</a>
+暴言一下 如果石火能取消战技 然后去掉流派克制 战斗就能封神了</blockquote>
+封神不知道，流派克制这东西是真的烂
+
+
+*****
+
+####  nagitoY  
+##### 2196#       发表于 2024-3-25 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64371256&amp;ptid=2092342" target="_blank">霖岚_ 发表于 2024-3-25 15:43</a>
+
+PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不习惯十字键在下的紫电…… ...</blockquote>
+我是食指r1 中指r2的握法，c手太反人类了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 2197#       发表于 2024-3-25 15:54
+
+关于联机有两个问题。
+
+和朋友进度一样，可以一起开荒吗？在任务点用暗号联机？
+
+再就是目前只为了联机开psn会员，直接买一个月一档或二档就行了吧，目前psn没折扣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

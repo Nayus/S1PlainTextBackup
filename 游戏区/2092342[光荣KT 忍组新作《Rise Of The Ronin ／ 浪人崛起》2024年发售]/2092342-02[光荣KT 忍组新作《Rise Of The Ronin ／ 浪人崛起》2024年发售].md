@@ -7337,3 +7337,17 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 立身流太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DorianMode  
+##### 2234#       发表于 2024-3-26 02:16
+
+<blockquote>captoon 发表于 2024-3-25 21:13
+太刀流派推荐
+
+爱洲阴流：平A快速砍爆，“猿飞”快速突进，自定义推荐 影雾幻
+
+立身流：平A三刀接方块技能“ ...</blockquote>
+爱洲阴流砍爆确实爽，不过闪刃判定点感觉比其他流派迟，我经常按不出来
+

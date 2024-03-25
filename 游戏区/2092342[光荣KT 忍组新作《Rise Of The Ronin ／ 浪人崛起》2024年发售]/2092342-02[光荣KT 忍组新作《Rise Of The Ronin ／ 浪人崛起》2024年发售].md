@@ -6794,3 +6794,20 @@ photo_2024-03-24_21-52-09.jpg
 
 锻炼的技巧分数怎么才能变高啊<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">  加上烈风和武技的得分还不如手搓平A高
 
+
+*****
+
+####  平田是个好人  
+##### 2180#       发表于 2024-3-25 13:31
+
+那个焙烙弹要在哪解锁？看视频清小兵很好用
+
+*****
+
+####  duraa  
+##### 2181#       发表于 2024-3-25 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64369592&amp;ptid=2092342" target="_blank">平田是个好人 发表于 2024-3-25 13:31</a>
+那个焙烙弹要在哪解锁？看视频清小兵很好用</blockquote>
+商人那里调和黑火药，然后投掷瓦罐的时候切换（具体哪个商人，要不要点技能忘了
+

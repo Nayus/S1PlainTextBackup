@@ -4717,3 +4717,14 @@ link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又开了个平景清 好多卡池啊
 
+
+*****
+
+####  cenhr  
+##### 11827#       发表于 2024-3-25 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64372483&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-25 17:06</a>
+
+又开了个平景清 好多卡池啊</blockquote>
+大概是顺序开所有link lost的复仇者卡池，什么地狱笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

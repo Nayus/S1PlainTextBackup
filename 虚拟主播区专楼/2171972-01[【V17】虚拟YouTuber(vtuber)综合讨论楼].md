@@ -2845,3 +2845,14 @@ syl，小景感觉迅速融入vspo，相比之下krm快4个月了还像个局外
 
 当然，本来即使他转了YTB twitch这边的流量顶多是叶吃大头其他ALLIN吃小头，但是最近叶整的这个退出ALLIN的大活掌握雷电，把其他ALLIN原本的流量都吸走不少，等这个大活安定下来之后才能看到真实流量
 
+
+*****
+
+####  gonze  
+##### 137#       发表于 2024-3-25 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64365880&amp;ptid=2171972" target="_blank">高等黑暗 发表于 2024-3-25 08:31</a>
+
+叶平常也就2w多，现在天天4w主要是ALLIN的老大MONDO是个棒子，现在twitch退出韩国导致他只能转YTB，原本看 ...</blockquote>
+感谢解答,原来如此,之前很多疑问就解答了,我一直看的allin视角,大部分是なしま的视角,之前一直搞不懂为啥なしま做事总是和mondo唱反调,每每都是帮他收尾.前期mondo狩猎jc的时候我就纳闷なしま怎么那么委婉和事佬次次都跟jc道歉安抚jc还把jc捡到医院安置.这种mond点火なしま背后跟着道歉的场景看了无数次了,现在才明白原来背地里还有这么些缘由.itembox那个也是,只知道是突然改了规则了。
+

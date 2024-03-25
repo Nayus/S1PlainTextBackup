@@ -573,3 +573,11 @@ PGL上传的比赛录像直接把上帝掉线那局剪掉了，真出生吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这沟槽pgl惯犯了，每次都有他
 
+
+*****
+
+####  天妇罗  
+##### 4092#       发表于 2024-3-25 10:36
+
+现在PGL，英伟达和v社肯定是汗流浃背的。如果这个问题不解决，几十万人观看的CS2第一个major决赛上再出现一次，那PGL，CS2和N卡的名声都要毁了
+

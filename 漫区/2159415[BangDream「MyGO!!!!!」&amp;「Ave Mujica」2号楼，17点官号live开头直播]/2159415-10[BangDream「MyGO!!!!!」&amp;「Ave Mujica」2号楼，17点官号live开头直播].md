@@ -13237,3 +13237,19 @@ file:///C:/Users/Y2296/AppData/Roaming/Tencent/QQ/Temp/TGE@TKRD0%7DG~OD_XIL%25X3
 4202年的硬盘图</blockquote>
 草，红温了，还没找到怎么删
 
+
+*****
+
+####  6030sylar  
+##### 14460#       发表于 2024-3-25 20:23
+
+<img src="https://img.saraba1st.com/forum/202403/25/201316pkgvy9xgzxxwcwso.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-25 20:13 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

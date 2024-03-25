@@ -397,3 +397,11 @@ TVアニメ「#SYNDUALITY Noir」
 
 说实话，这年头找个男主女主都0成长的片子也不容易
 
+
+*****
+
+####  eva02eva02  
+##### 4478#       发表于 2024-3-26 01:09
+
+什么垃圾结局<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

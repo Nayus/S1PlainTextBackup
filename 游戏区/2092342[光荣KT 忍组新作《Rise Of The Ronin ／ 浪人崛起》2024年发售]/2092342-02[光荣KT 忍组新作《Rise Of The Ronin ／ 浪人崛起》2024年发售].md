@@ -7300,3 +7300,16 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 —— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  浅醉微风  
+##### 2230#       发表于 2024-3-26 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376407&amp;ptid=2092342" target="_blank">MuramasaSP 发表于 2024-3-26 00:54</a>
+
+平a六连的最后一下我从来没弹反成功过，判定很怪。直接死防也是个办法，精力满的情况下应该不会被打崩。
+
+ ...</blockquote>
+内个六连我的经验是倒数第二下连弹可以稳定石火
+

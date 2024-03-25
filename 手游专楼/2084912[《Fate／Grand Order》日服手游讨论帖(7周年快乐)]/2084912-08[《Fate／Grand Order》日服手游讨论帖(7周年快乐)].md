@@ -4728,3 +4728,11 @@ link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好�
 又开了个平景清 好多卡池啊</blockquote>
 大概是顺序开所有link lost的复仇者卡池，什么地狱笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 11828#       发表于 2024-3-25 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算不算赚死人钱..................
+

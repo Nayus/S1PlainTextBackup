@@ -416,3 +416,11 @@ TVアニメ「#SYNDUALITY Noir」
 说实话，这年头找个男主女主都0成长的片子也不容易</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">高达铁血的”正牌“男主三日月表示：编剧不喜欢我成长，所以我干脆一点变化没有到死都是文盲
 
+
+*****
+
+####  Boliva  
+##### 4480#       发表于 2024-3-26 02:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

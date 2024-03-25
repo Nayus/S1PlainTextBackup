@@ -6869,3 +6869,24 @@ photo_2024-03-24_21-52-09.jpg
 
 实体盘好价多少？
 
+
+*****
+
+####  duraa  
+##### 2188#       发表于 2024-3-25 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64370779&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 15:11</a>
+浪人对ps手柄有自适应扳机的功能吗？看了下菜单里震动有三种模式，我用的默认的体验版，但是好像没提到扳机 ...</blockquote>
+拉弓肯定有，其他没注意，昨天江户的骑马射箭打极传还特意把自适应扳机关了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Moltres.lv70  
+##### 2189#       发表于 2024-3-25 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64370779&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 15:11</a>
+
+浪人对ps手柄有自适应扳机的功能吗？看了下菜单里震动有三种模式，我用的默认的体验版，但是好像没提到扳机 ...</blockquote>
+我给关了 因为我把切换道具栏设到了扳机上，结果这货按住r1时扳机效果还在，顺带一提，设置成按住r按右摇杆/扳机键切换主武器体验比默认更好
+

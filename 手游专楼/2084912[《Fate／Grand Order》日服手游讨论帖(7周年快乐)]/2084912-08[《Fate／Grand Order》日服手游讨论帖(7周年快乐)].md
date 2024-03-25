@@ -4647,3 +4647,14 @@ B7F992C6-60D6-4C6C-824E-47C5AFCA8EFD.png
 是的，基本上看本周的新伯爵了</blockquote>
 大概是周三和旧伯爵一起上菜吧
 
+
+*****
+
+####  UNISONIA  
+##### 11821#       发表于 2024-3-25 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366088&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-25 08:56</a>
+
+大概是周三和旧伯爵一起上菜吧</blockquote>
+既然绿拐看起来不会更新了，那旧伯爵可以也给点强化的
+

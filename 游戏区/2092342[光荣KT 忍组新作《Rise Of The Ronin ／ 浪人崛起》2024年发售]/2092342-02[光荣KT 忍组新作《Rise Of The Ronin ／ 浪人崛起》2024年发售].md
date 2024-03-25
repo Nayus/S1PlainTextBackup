@@ -7313,3 +7313,11 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
  ...</blockquote>
 内个六连我的经验是倒数第二下连弹可以稳定石火
 
+
+*****
+
+####  hugosol  
+##### 2231#       发表于 2024-3-26 01:31
+
+二天一流的疾走居合太赖了，砍到之后残心就能不停放，可以无视克制关系无责任磨死敌人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -43,3 +43,22 @@ Text: Korean, English (US), French, Italian, German, Spanish, Danish, Dutch, Fin
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">steam版到时候也会少个日语语音吗
 
+
+*****
+
+####  zhenlune  
+##### 396#       发表于 2024-3-25 21:18
+
+现在这个主角看上去好土好呆，比当年第一个预告片的主角差远了，没想到等了这么多年会是这么个结果，哎
+
+*****
+
+####  Piano-Forest  
+##### 397#         楼主| 发表于 2024-3-25 21:20
+
+Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0aK3DZavbsA)
+
+日 / 欧美 PS Blog ：
+[https://blog.ja.playstation.com/2024/03/25/20240325-stellarblade/](https://blog.ja.playstation.com/2024/03/25/20240325-stellarblade/)
+[https://blog.playstation.com/202 ... o-arrives-march-29/](https://blog.playstation.com/2024/03/25/stellar-blade-demo-arrives-march-29/)
+

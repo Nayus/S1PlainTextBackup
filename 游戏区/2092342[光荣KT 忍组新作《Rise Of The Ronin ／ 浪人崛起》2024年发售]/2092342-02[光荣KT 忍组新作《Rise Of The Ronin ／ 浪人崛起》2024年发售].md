@@ -6512,3 +6512,22 @@ aibo你装个假肢之后太狠了
 
 另外这游戏开放世界的敌人是动态等级吗？沿路看到的比我高3级以内的据点都想着现在就清理了，不然等级高了回来割草要吃经验衰减吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结果就是沿路清了一堆任务，主线根本没推进
 
+
+*****
+
+####  duraa  
+##### 2155#       发表于 2024-3-25 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366082&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 08:56</a>
+回忆了下，仁王处理敌人攻击的手段多有几个方面。不仅有的武技自带位移、跳跃动作可以躲，还有迅妖反这种优 ...</blockquote>
+我怀疑所有流派的r+x在极传后都会变成强霸体（当然红光还是挡不住<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 2156#       发表于 2024-3-25 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366140&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 09:02</a>
+另外这游戏开放世界的敌人是动态等级吗？沿路看到的比我高3级以内的据点都想着现在就清理了，不然等级高了 ...</blockquote>
+应该不是，我30多级的时候，据点和通缉犯该是20多级的还是20多级
+

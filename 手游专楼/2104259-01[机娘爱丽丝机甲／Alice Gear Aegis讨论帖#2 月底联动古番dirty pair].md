@@ -67,3 +67,14 @@
 
 这两...看看剧情怎么交代吧
 
+
+*****
+
+####  regular  
+##### 981#       发表于 2024-3-25 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64374668&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-3-25 21:49</a>
+
+得意武器早没所谓了啊，都是开盘子上合体的技能插件，都可以改的</blockquote>
+我是想说得意武器类型也变一变，比如步枪变筒子，大剑变长枪，就是多做一两件专武。
+

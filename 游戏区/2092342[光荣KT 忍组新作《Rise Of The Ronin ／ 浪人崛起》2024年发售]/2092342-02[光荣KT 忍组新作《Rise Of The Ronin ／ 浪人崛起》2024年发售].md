@@ -6744,3 +6744,29 @@ photo_2024-03-24_21-52-09.jpg
 
 看到了隼流后期可以和npc学
 
+
+*****
+
+####  duraa  
+##### 2175#       发表于 2024-3-25 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64368330&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 11:46</a>
+目前仁王流是不是没有获取方式
+
+看到了隼流后期可以和npc学</blockquote>
+到江户后打个隐藏怪学（位置不好形容，找视频吧
+
+*****
+
+####  popchong  
+##### 2176#       发表于 2024-3-25 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64368330&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 11:46</a>
+
+目前仁王流是不是没有获取方式
+
+看到了隼流后期可以和npc学</blockquote>
+[https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1TD421L7vY/?spm_id_from=333.337.search-card.all.click)
+
+2：40，打赢威廉就行
+

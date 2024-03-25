@@ -4779,3 +4779,22 @@ link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好�
 然后被新伯爵卡池爆杀</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了  先欧 羡慕
 
+
+*****
+
+####  qixinno2  
+##### 11834#       发表于 2024-3-25 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64372953&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-25 17:49</a>
+
+懂了  先欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没石头 抽不到
+
+
+*****
+
+####  angelooo  
+##### 11835#       发表于 2024-3-25 18:02
+
+什么lost，不存在的，看到这个卡池了吗？正常操作，都坐下
+

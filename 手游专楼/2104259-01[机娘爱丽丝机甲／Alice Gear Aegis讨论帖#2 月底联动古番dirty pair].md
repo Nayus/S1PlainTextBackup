@@ -91,3 +91,12 @@
  ...</blockquote>
 这要专门做武器的专属建模，还要做动作模组，直接相当于做一个分支或者ANgear了啊，看看隔壁这次生放还是难缠的angear<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  regular  
+##### 983#       发表于 2024-3-26 04:54
+
+那可不，这都开始有第四形态了，an都没出全呢，就是想法子加新内容呗。
+其实想想看，格斗武器先不论，射击武器模组复制粘贴的已经有了，说换武器最低也可以就是多点排练组合罢了。
+

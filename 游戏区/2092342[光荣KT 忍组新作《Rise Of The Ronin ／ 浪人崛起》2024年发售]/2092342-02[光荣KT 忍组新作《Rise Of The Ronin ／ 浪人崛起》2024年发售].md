@@ -6541,3 +6541,34 @@ aibo你装个假肢之后太狠了
 
 说起来我放疾走居合经常会自动切锁定目标，难道要关掉那个砍中自动锁定的设置
 
+
+*****
+
+####  hugosol  
+##### 2158#       发表于 2024-3-25 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366095&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-3-25 08:57</a>
+
+1打多最致命的是用烈风的时候会切换锁定</blockquote>
+切段位居然没法改键太傻了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  007.5  
+##### 2159#       发表于 2024-3-25 09:30
+
+飞天啊不立身流怎么学，我看网上说的要走佐幕派路线，我第一个派系任务选了倒幕派那还能学么，还是说跟福泽谕吉个人搞好关系就行？
+
+我算是理解为啥以前日本有斩人狂拿人试刀了，能锁定量血条的 都 得 死！<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qappip  
+##### 2160#       发表于 2024-3-25 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366425&amp;ptid=2092342" target="_blank">007.5 发表于 2024-3-25 09:30</a>
+
+飞天啊不立身流怎么学，我看网上说的要走佐幕派路线，我第一个派系任务选了倒幕派那还能学么，还是说跟福泽 ...</blockquote>
+做这个人 福泽谕吉的任务就能学，跟派系没关系
+

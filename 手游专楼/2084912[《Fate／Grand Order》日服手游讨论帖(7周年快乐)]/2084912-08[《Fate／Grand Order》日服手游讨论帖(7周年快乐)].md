@@ -4658,3 +4658,30 @@ B7F992C6-60D6-4C6C-824E-47C5AFCA8EFD.png
 大概是周三和旧伯爵一起上菜吧</blockquote>
 既然绿拐看起来不会更新了，那旧伯爵可以也给点强化的
 
+
+*****
+
+####  白金口袋  
+##### 11822#       发表于 2024-3-25 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64364908&amp;ptid=2084912" target="_blank">シャル 发表于 2024-3-25 01:03</a>
+
+所以说，变换职介的非纯正复仇者和外星人都不跑
+
+跑的是纯粹的复仇者</blockquote>
+link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好像根本跟guda就没啥交集
+
+本家FZ联动是彩蛋性质在最后露了个脸但guda那时候早就不在冬木了，情人节跟卡莲也是在胡闹空间里没跟guda照过面
+
+当然强化任务要求满绊羁绊礼装只能说是游戏性和故事剧情割裂
+
+*****
+
+####  cenhr  
+##### 11823#       发表于 2024-3-25 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366315&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-25 09:21</a>
+
+既然绿拐看起来不会更新了，那旧伯爵可以也给点强化的</blockquote>
+基本上要的都齐了。个人希望是第一技能的贯通能持续三回合，但这就和新伯爵冲撞。虽然说一个是打单体而另一个是打群体
+

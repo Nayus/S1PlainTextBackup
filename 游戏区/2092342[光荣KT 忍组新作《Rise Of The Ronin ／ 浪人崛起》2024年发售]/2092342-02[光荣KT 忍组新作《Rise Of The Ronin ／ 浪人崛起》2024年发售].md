@@ -6842,3 +6842,22 @@ photo_2024-03-24_21-52-09.jpg
 
 —— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+*****
+
+####  Moltres.lv70  
+##### 2185#       发表于 2024-3-25 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64370492&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 14:51</a>
+回小屋后重新捏脸，就没法套用官方预设了吗？还准备攻略村上多加前把身体换回男人预设有好几个男性 ...</blockquote>
+试试在标题页捏脸，然后存到保存栏位呢
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+*****
+
+####  nagitoY  
+##### 2186#       发表于 2024-3-25 15:11
+
+浪人对ps手柄有自适应扳机的功能吗？看了下菜单里震动有三种模式，我用的默认的体验版，但是好像没提到扳机的模式
+

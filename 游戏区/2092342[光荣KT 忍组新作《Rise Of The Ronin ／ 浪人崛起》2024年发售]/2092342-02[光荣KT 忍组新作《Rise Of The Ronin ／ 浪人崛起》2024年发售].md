@@ -6830,3 +6830,15 @@ photo_2024-03-24_21-52-09.jpg
 
 回小屋后重新捏脸，就没法套用官方预设了吗？还准备攻略村上多加前把身体换回男人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">预设有好几个男性还挺帅的
 
+
+*****
+
+####  Moltres.lv70  
+##### 2184#       发表于 2024-3-25 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64368706&amp;ptid=2092342" target="_blank">Shabadadoo 发表于 2024-3-25 12:15</a>
+有人用光追取消帧数上限玩的吗？跟性能模式比体验如何？</blockquote>
+光追模式稳不了 1080
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+

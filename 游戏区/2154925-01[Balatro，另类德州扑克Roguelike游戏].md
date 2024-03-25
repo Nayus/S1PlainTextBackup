@@ -6217,3 +6217,11 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wuuuuuud  
+##### 545#       发表于 2024-3-25 14:56
+
+steamdeck的流式传输玩了一把，结果pc上的存档没了
+

@@ -88,3 +88,14 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 最大问题是色、色方面拉了，动起来的女主一点都不色，脸型也不好看
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 401#       发表于 2024-3-25 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64374384&amp;ptid=1978008" target="_blank">zhenlune 发表于 2024-3-25 21:18</a>
+
+现在这个主角看上去好土好呆，比当年第一个预告片的主角差远了，没想到等了这么多年会是这么个结果，哎 ...</blockquote>
+第一个预告的主角有炼铜嫌疑，怕是上不了桌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7360,3 +7360,15 @@ XXX被移交军事法庭
 
 有人可以发一下那个在线的兵种武器文档吗，我找不到地址了
 
+
+*****
+
+####  风萧飒  
+##### 2188#       发表于 2024-3-25 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64374065&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-3-25 20:42</a>
+有人可以发一下那个在线的兵种武器文档吗，我找不到地址了</blockquote>
+https://www.kdocs.cn/l/chzB1Vfks7rV 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

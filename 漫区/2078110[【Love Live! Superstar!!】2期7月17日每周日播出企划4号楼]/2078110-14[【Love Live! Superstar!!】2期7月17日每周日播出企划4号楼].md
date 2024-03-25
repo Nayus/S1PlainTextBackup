@@ -1784,3 +1784,28 @@ vn和冬毬的绑定应该是定死的，就和可堇一样。就是会不会变
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19879#       发表于 2024-3-25 11:19
+
+[https://video.weibo.com/show?fid=1034:5015739984183328](https://video.weibo.com/show?fid=1034:5015739984183328)
+
+松雾发的这个清晰度真不错，可以观赏4k的15岁小百合<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这孩子表演起来倾尽全力的特质看来真是从小就有的，真好
+
+
+*****
+
+####  ads147147  
+##### 19880#       发表于 2024-3-25 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64367937&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-3-25 11:19</a>
+
+https://video.weibo.com/show?fid=1034:5015739984183328
+
+松雾发的这个清晰度真不错，可以观赏4k的15岁小 ...</blockquote>
+笑容太抓眼了，手机屏幕都能一眼看到，真的很厉害。
+
+不过我记得鲨鱼摆臭脸的时候也是很吓人，好几次我看生放被吓到了。
+

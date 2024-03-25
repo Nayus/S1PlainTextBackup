@@ -6692,3 +6692,25 @@ photo_2024-03-24_21-52-09.jpg
 暴言一下 如果石火能取消战技 然后去掉流派克制 战斗就能封神了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">说起来不是说石火能取消任何动作的么？老实说没特意试过战技中能不能石火。不过流派克制这个其实看能不能给点奖励；类似隼流虽然被全克制，但实际只要弹到敌人就会踉跄露背这种还挺好的，比一般压制的石火都好用，就是有点费命。
 
+
+*****
+
+####  byisme001  
+##### 2170#       发表于 2024-3-25 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64367580&amp;ptid=2092342" target="_blank">DoggoGreg 发表于 2024-3-25 10:55</a>
+不拿极传不舒服而跟滑翔小游戏死磕</blockquote>
+这是所有玩家排行榜吗，那不就能大致估出玩家数了
+
+*****
+
+####  Emmerich  
+##### 2171#       发表于 2024-3-25 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64367877&amp;ptid=2092342" target="_blank">kemyes 发表于 2024-3-25 11:14</a>
+
+说起来不是说石火能取消任何动作的么？老实说没特意试过战技中能不能石火。不过流派克制这个其实 ...</blockquote>
+战技不行 石火弹完以后我的回合砍一套接战技如果刚好对面霸体出手 就要挨刀子了
+
+流派克制在我看来就是多少有点靠数值强行减负逼着我抱着一个流派砍砍砍了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer"> 高难度+被克环境下面对快慢神经刀真有点难绷
+

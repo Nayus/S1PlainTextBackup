@@ -2875,3 +2875,37 @@ syl，小景感觉迅速融入vspo，相比之下krm快4个月了还像个局外
 
 而规则禁止实际就是隐性的警告了（实际也真的警告过也说不好）
 
+
+*****
+
+####  gonze  
+##### 139#       发表于 2024-3-25 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64368104&amp;ptid=2171972" target="_blank">高等黑暗 发表于 2024-3-25 11:29</a>
+
+市长谈话导致不擅长RP的成员离开也只是猜测罢了，时间恰好和规则变动对的上而已，也可能就是单纯的不擅长 ...</blockquote>
+建了个ストグラ 专楼，方便的话可以去那里展开讨论<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freakystar  
+##### 140#       发表于 2024-3-25 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64365880&amp;ptid=2171972" target="_blank">高等黑暗 发表于 2024-3-25 08:31</a>
+
+叶平常也就2w多，现在天天4w主要是ALLIN的老大MONDO是个棒子，现在twitch退出韩国导致他只能转YTB，原本看 ...</blockquote>
+喷了，老叶是职业消防员吗，咋连外部游戏联动别人引的火也是他来灭啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  高等黑暗  
+##### 141#       发表于 2024-3-25 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64368212&amp;ptid=2171972" target="_blank">freakystar 发表于 2024-3-25 11:38</a>
+
+喷了，老叶是职业消防员吗，咋连外部游戏联动别人引的火也是他来灭啊 ...</blockquote>
+其实你偶尔听听一些业界的杂谈就知道直播主这个职业的社会常识水平平均值有多低
+
+基本有一个是一个全是社会不适格着，这里面算是正常人又老好人的叶自然到哪里都是苦劳命
+

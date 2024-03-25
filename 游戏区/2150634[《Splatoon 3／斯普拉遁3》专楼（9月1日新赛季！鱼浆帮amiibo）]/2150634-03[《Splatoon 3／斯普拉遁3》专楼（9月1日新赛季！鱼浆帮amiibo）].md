@@ -7597,3 +7597,13 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kaede_Akamatsu  
+##### 3737#       发表于 2024-3-25 11:42
+
+曼曼党就没赢过两次<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

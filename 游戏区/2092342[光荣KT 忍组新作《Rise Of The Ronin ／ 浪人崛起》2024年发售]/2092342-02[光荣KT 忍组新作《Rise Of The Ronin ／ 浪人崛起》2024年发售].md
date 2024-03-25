@@ -6725,3 +6725,22 @@ photo_2024-03-24_21-52-09.jpg
 这是所有玩家排行榜吗，那不就能大致估出玩家数了</blockquote>
 不是 只有前100的分数
 
+
+*****
+
+####  izayoi39  
+##### 2173#       发表于 2024-3-25 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366089&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-25 08:57</a>
+这游戏派生藏得太深了吧，仁王流太刀的残月是怎么按的啊，我就按出来过一次，各种派生教程里根本没有啊[f:0 ...</blockquote>
+残月要先切成上段，然后前加攻击键
+
+*****
+
+####  nagitoY  
+##### 2174#       发表于 2024-3-25 11:46
+
+目前仁王流是不是没有获取方式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看到了隼流后期可以和npc学
+

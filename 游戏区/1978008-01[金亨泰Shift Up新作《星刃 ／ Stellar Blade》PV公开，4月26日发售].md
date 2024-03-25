@@ -140,3 +140,17 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 2024-3-26 00:04 上传
 
+
+*****
+
+####  rainsheep  
+##### 405#       发表于 2024-3-26 06:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376066&amp;ptid=1978008" target="_blank">内森德雷克 发表于 2024-3-26 00:04</a>
+确定了
+
+我怎么有种预感日版配音会找石川由依，反正配乐都有尼尔的了，干脆声优也照着学2B吧</blockquote>
+过几天看看日版demo就知道了，石川都快成特型演员了现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

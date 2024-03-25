@@ -6483,3 +6483,32 @@ aibo你装个假肢之后太狠了
 这游戏派生藏得太深了吧，仁王流太刀的残月是怎么按的啊，我就按出来过一次，各种派生教程里根本没有啊[f:0 ...</blockquote>
 前+方块，操作上都写了
 
+
+*****
+
+####  nagitoY  
+##### 2152#       发表于 2024-3-25 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64365158&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-3-25 02:05</a>
+
+虽然好看的妹子没几个，但是的确可以八艘跳的，而且还有推倒后屏幕一黑 ...</blockquote>
+有八个女性npc可以攻略？别搞八个男人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刘震云  
+##### 2153#       发表于 2024-3-25 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366101&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-3-25 08:58</a>
+
+前+方块，操作上都写了</blockquote>
+仁王流怎么切段的？确实，我看别人切上段就可以残月了
+
+
+*****
+
+####  nagitoY  
+##### 2154#       发表于 2024-3-25 09:02
+
+另外这游戏开放世界的敌人是动态等级吗？沿路看到的比我高3级以内的据点都想着现在就清理了，不然等级高了回来割草要吃经验衰减吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结果就是沿路清了一堆任务，主线根本没推进
+

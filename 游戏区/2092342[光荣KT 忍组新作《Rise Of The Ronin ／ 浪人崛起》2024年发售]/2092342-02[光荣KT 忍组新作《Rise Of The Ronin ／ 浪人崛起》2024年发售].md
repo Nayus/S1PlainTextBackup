@@ -7367,3 +7367,15 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 怎么隐藏头部外观？
 
+
+*****
+
+####  垃圾网站上  
+##### 2237#       发表于 2024-3-26 05:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376806&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-3-26 04:57</a>
+怎么隐藏头部外观？</blockquote>
+在长屋改外观，按按方块可以取下来
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

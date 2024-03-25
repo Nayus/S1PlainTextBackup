@@ -4814,3 +4814,22 @@ link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好�
 
 仇nobu现在强度如何啊
 
+
+*****
+
+####  johnkamsar  
+##### 11838#       发表于 2024-3-25 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64372888&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-3-25 17:43</a>
+尼托alter确实想抽，本体和道满都用太多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实….挺微妙的…..省点石头吧….
+
+*****
+
+####  johnkamsar  
+##### 11839#       发表于 2024-3-25 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64373876&amp;ptid=2084912" target="_blank">sandro 发表于 2024-3-25 20:23</a>
+仇nobu现在强度如何啊</blockquote>
+100天特攻，60红魔放，60攻击buff，自带神性特攻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打某些神性玩意直接飞天
+

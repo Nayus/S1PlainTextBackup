@@ -6967,3 +6967,28 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 再就是目前只为了联机开psn会员，直接买一个月一档或二档就行了吧，目前psn没折扣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 2198#       发表于 2024-3-25 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64371185&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 15:39</a>
+
+用紫电的时候怀念xbox手柄的布局。r1+↑，在xbox手柄上大拇指移动的距离很短。ps手柄上的行程就要远一整 ...</blockquote>
+可以设置为R1+↓换武器，这样距离就短了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  conanoysq  
+##### 2199#       发表于 2024-3-25 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64371431&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-25 15:54</a>
+
+关于联机有两个问题。
+
+和朋友进度一样，可以一起开荒吗？在任务点用暗号联机？
+
+再就是目前只为了联机开psn ...</blockquote>
+不能一起开荒，联机只能找打过任务的才行
+

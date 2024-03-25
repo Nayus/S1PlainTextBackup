@@ -157,3 +157,22 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  无动于衷  
+##### 4453#       发表于 2024-3-25 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64367727&amp;ptid=2092345" target="_blank">WGTCorp 发表于 2024-3-25 11:05</a>
+
+借楼问一下，有人收到游戏测试资格的确认邮件了吗？</blockquote>
+我收到了，代码已经在PSN商店兑换完了
+
+<img src="https://img.saraba1st.com/forum/202403/25/155901oiy44mlt1zxx09b0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240325155830.png</strong> (113.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-25 15:59 上传
+

@@ -7531,3 +7531,11 @@ day1的曲子在游戏里听起来倒是好一点，但还是不如2代的
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  墨染白泉  
+##### 3729#       发表于 2024-3-25 08:11
+
+祭典结束的这两小时，2代广场在放章鱼dlc的ed
+

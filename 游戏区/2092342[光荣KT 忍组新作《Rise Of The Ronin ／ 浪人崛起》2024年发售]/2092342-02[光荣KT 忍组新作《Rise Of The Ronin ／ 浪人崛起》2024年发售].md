@@ -6415,3 +6415,14 @@ aibo你装个假肢之后太狠了
 
 我看像土地一样的东西。
 
+
+*****
+
+####  仿身泪滴  
+##### 2144#       发表于 2024-3-25 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64365648&amp;ptid=2092342" target="_blank">浅醉微风 发表于 2024-3-25 07:34</a>
+
+不一定，这狗带点乱力怪神的。有一回路上有敌人，我看它进战招了个雷把人劈死了：这搁日本得是个小神了。 ...</blockquote>
+草www还能这样，我目前也只见过大白狗带我找遗物<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

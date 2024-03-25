@@ -7321,3 +7321,11 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 二天一流的疾走居合太赖了，砍到之后残心就能不停放，可以无视克制关系无责任磨死敌人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 2232#       发表于 2024-3-26 01:36
+
+姑且说一声，这游戏前期各种技能和流派没获得之前体验有点差，建议先普通打着，等普通感觉不够打了再切困难<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（如果你和我一样是全清党的话，会发现困难也有点不够打
+

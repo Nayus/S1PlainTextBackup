@@ -141,3 +141,19 @@
 
 借楼问一下，有人收到游戏测试资格的确认邮件了吗？
 
+
+*****
+
+####  novyDC  
+##### 4452#       发表于 2024-3-25 15:40
+
+<img src="https://img.saraba1st.com/forum/202403/25/154045n0xji492q29xjen1.jpg" referrerpolicy="no-referrer">
+
+<strong>DF99A45B191BA35ED7323D327FB50C5E.jpg</strong> (246.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-25 15:40 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

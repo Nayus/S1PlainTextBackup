@@ -7379,3 +7379,21 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Emmerich  
+##### 2238#       发表于 2024-3-26 07:42
+
+缺个动态难度 舔图舔久了等级全是压小怪一手
+
+
+*****
+
+####  忧郁  
+##### 2239#       发表于 2024-3-26 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376806&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-3-26 04:57</a>
+怎么隐藏头部外观？</blockquote>
+设置里可以改，不过我设置里隐藏后照片模式会又出现
+

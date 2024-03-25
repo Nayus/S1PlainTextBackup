@@ -133,3 +133,20 @@ fkQcpe-e1yvKwToS8w-6x.jpg
 
 方阵还是缺个30加护的sub召唤，才能玩上最新最in的280法武
 
+
+*****
+
+####  phoenixxj  
+##### 17827#       发表于 2024-3-25 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64372617&amp;ptid=1158205" target="_blank">leafS 发表于 2024-3-25 17:17</a>
+
+风low王可能确实比不上3.0岚老王了，不过中配以上的笑笑就行了，总不会真觉得比不上吧 ...</blockquote>
+现在高难flw自己带着一堆免费武器
+
+他自己已经选择躺平，自家妹妹又何必嘲笑233
+
+高情商：最友善钱包的属性
+
+低情商：不值得投资的属性
+

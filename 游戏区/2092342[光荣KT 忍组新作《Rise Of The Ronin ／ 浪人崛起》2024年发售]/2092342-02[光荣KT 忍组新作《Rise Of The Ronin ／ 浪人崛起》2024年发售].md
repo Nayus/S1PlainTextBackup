@@ -7111,3 +7111,13 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">江户开始打主线后跳出一万个支线说是
 
+
+*****
+
+####  crosz1985  
+##### 2212#       发表于 2024-3-25 20:57
+
+轮椅打法研究出来了吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -26,3 +26,18 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊？我还等着FA会长和阿迪呢，这也可以的吗
 
+
+*****
+
+####  不灭的旋律  
+##### 976#       发表于 2024-3-25 21:03
+
+早知道all in抽皇帝了，攒这么多票结果不感兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰风血羽  
+##### 977#       发表于 2024-3-25 21:07
+
+短发+火属性小鸟游<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

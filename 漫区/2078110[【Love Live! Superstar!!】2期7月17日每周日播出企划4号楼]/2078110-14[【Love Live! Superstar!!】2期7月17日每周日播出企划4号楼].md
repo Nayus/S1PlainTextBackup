@@ -1809,3 +1809,16 @@ https://video.weibo.com/show?fid=1034:5015739984183328
 
 不过我记得鲨鱼摆臭脸的时候也是很吓人，好几次我看生放被吓到了。
 
+
+*****
+
+####  csolfans  
+##### 19881#       发表于 2024-3-25 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64365256&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-3-25 02:36</a>
+
+水魔逻辑都不通的，但是小林宽主动在采访里背锅了，反正机器人片子已经是死亡模式了，翻不出花。
+
+京极可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">所以说我也认为花田有锅（毕竟萌娘百科有句话我挺认同的，就是花田剧本好玩完全看大纲），但主要大锅还是京极。当然情况肯定比想象中复杂，毕竟很难知道制作委员会在里面充当的角色
+

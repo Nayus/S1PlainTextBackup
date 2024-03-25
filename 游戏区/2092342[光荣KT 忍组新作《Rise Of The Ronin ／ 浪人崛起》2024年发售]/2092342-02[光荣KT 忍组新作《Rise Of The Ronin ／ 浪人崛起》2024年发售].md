@@ -7229,3 +7229,31 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 要玩家弹平a六连也就算了。道馆这破地图，防御敌人攻击没两下就被推到版边，根本看不到敌人的出招，难道要我听音辨招？来自: iPhone客户端
 
+
+*****
+
+####  zqqwe  
+##### 2223#       发表于 2024-3-26 00:15
+
+千叶老头和双大太刀哥像疯狗一样<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，还有红光之后的反击红光
+
+
+*****
+
+####  内森德雷克  
+##### 2224#       发表于 2024-3-26 00:20
+
+470预定的实体一直没发，看了眼现货最便宜的都是538了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 2225#       发表于 2024-3-26 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64375485&amp;ptid=2092342" target="_blank">ネコカイザー 发表于 2024-3-25 23:06</a>
+
+请教一下隼流怎么升级啊？我试图等待那个忍者来我家但他从来没来过。。
+
+地图上也没他，是得后期地图才有吗 ...</blockquote>
+江户麴田左上角
+

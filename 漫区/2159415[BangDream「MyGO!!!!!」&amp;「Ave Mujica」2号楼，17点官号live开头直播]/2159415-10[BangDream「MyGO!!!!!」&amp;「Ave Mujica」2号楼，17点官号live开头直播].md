@@ -13290,3 +13290,13 @@ file:///C:/Users/Y2296/AppData/Roaming/Tencent/QQ/Temp/TGE@TKRD0%7DG~OD_XIL%25X3
 
 2024-3-26 00:13 上传
 
+
+*****
+
+####  爱丁堡official  
+##### 14464#       发表于 2024-3-26 00:23
+
+感觉ai配音补上了同人剧情创作的最后一块拼图，以后是不是能以假乱真<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

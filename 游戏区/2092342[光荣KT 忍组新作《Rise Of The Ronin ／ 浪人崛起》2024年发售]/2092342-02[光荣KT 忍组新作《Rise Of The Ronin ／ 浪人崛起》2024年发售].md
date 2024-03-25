@@ -7028,3 +7028,41 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 —— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+*****
+
+####  ネコカイザー  
+##### 2203#       发表于 2024-3-25 16:31
+
+隼流似乎是通解？我没看懂这个饭刚落的用法，它只能在敌人失衡后用，那我为啥不直接处决呢？处决还能回精力。这个饭刚落的存在意义是啥？
+
+*****
+
+####  duraa  
+##### 2204#       发表于 2024-3-25 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64371953&amp;ptid=2092342" target="_blank">ネコカイザー 发表于 2024-3-25 16:31</a>
+隼流似乎是通解？我没看懂这个饭刚落的用法，它只能在敌人失衡后用，那我为啥不直接处决呢？处决还能回精力 ...</blockquote>
+红了就能用，不是空精才能用
+
+
+*****
+
+####  彩虹肥宅  
+##### 2205#       发表于 2024-3-25 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64371953&amp;ptid=2092342" target="_blank">ネコカイザー 发表于 2024-3-25 16:31</a>
+
+隼流似乎是通解？我没看懂这个饭刚落的用法，它只能在敌人失衡后用，那我为啥不直接处决呢？处决还能回精力 ...</blockquote>
+你隼流石火打出敌人背对你的时候，就能轻攻击+风雷震落，很通用的输出手段
+
+*****
+
+####  ネコカイザー  
+##### 2206#       发表于 2024-3-25 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64372043&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-3-25 16:37</a>
+
+你隼流石火打出敌人背对你的时候，就能轻攻击+风雷震落，很通用的输出手段 ...</blockquote>
+哦哦谢谢！我试试
+

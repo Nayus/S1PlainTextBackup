@@ -62,3 +62,29 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 [https://blog.ja.playstation.com/2024/03/25/20240325-stellarblade/](https://blog.ja.playstation.com/2024/03/25/20240325-stellarblade/)
 [https://blog.playstation.com/202 ... o-arrives-march-29/](https://blog.playstation.com/2024/03/25/stellar-blade-demo-arrives-march-29/)
 
+
+*****
+
+####  Mr.Hopp  
+##### 398#       发表于 2024-3-25 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64218500&amp;ptid=1978008" target="_blank">zhouaa 发表于 2024-3-11 15:05</a>
+
+如果真没日语 那肯定还是PC了  说什么话也不是厂家说的算</blockquote>
+地狱潜者2日语配音也是日本版本限定，肯定是没了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 399#       发表于 2024-3-25 21:31
+
+这么多国家定为18+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">幸好尼日不是z，不然得信用卡买，那可如何是好
+
+
+*****
+
+####  缺德猫  
+##### 400#       发表于 2024-3-25 21:32
+
+最大问题是色、色方面拉了，动起来的女主一点都不色，脸型也不好看
+

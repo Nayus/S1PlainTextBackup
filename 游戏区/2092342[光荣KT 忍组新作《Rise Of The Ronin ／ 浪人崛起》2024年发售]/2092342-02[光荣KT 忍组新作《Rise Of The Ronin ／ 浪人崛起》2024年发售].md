@@ -6572,3 +6572,26 @@ aibo你装个假肢之后太狠了
 飞天啊不立身流怎么学，我看网上说的要走佐幕派路线，我第一个派系任务选了倒幕派那还能学么，还是说跟福泽 ...</blockquote>
 做这个人 福泽谕吉的任务就能学，跟派系没关系
 
+
+*****
+
+####  leafS  
+##### 2161#       发表于 2024-3-25 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366307&amp;ptid=2092342" target="_blank">hugosol 发表于 2024-3-25 09:20</a>
+
+一打多初期就有大太刀大剑的AOE，再后一点还有二天一流的疾走居合
+
+说起来我放疾走居合经常会自动切锁定目标 ...</blockquote>
+攻击自动锁定这选项我打了第一个敌人就关掉了，太影响战斗了我觉得
+
+*****
+
+####  007.5  
+##### 2162#       发表于 2024-3-25 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366461&amp;ptid=2092342" target="_blank">qappip 发表于 2024-3-25 09:33</a>
+
+做这个人 福泽谕吉的任务就能学，跟派系没关系</blockquote>
+我做了他两个支线，就是找出哈里斯，然后在本觉寺救了他，貌似没教我立身流啊，是还有后续个人任务吗
+

@@ -1822,3 +1822,11 @@ https://video.weibo.com/show?fid=1034:5015739984183328
 京极可 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">所以说我也认为花田有锅（毕竟萌娘百科有句话我挺认同的，就是花田剧本好玩完全看大纲），但主要大锅还是京极。当然情况肯定比想象中复杂，毕竟很难知道制作委员会在里面充当的角色
 
+
+*****
+
+####  280041437  
+##### 19882#       发表于 2024-3-25 22:56
+
+k组试听比想象中还可以哎，以后走战斗歌姬路线吧（）
+

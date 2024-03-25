@@ -4798,3 +4798,11 @@ link lost可能是多多少少陪了一段旅程的伙伴？小安剧情上好�
 
 什么lost，不存在的，看到这个卡池了吗？正常操作，都坐下
 
+
+*****
+
+####  cenhr  
+##### 11836#       发表于 2024-3-25 19:20
+
+话说老男人是虚无，基本上行事性格是抄袭他人，那么如果召唤出来抄主角的性格，会不会成为一个一心向善的好人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -7161,3 +7161,14 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 
 我已经开始打啥都用立身流了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wtyrambo  
+##### 2216#       发表于 2024-3-25 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64375147&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-3-25 22:33</a>
+
+为什么会这样，我只是想要创造一个大家都幸福的世界啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后还是被分手了，虽然随时可以复合，但是不让人八艘跳很奇怪啊！古代日本三妻四妾不是很正常的事情吗！
+

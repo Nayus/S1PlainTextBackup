@@ -6786,3 +6786,11 @@ photo_2024-03-24_21-52-09.jpg
 
 有人用光追取消帧数上限玩的吗？跟性能模式比体验如何？
 
+
+*****
+
+####  土路生優里  
+##### 2179#       发表于 2024-3-25 13:06
+
+锻炼的技巧分数怎么才能变高啊<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">  加上烈风和武技的得分还不如手搓平A高
+

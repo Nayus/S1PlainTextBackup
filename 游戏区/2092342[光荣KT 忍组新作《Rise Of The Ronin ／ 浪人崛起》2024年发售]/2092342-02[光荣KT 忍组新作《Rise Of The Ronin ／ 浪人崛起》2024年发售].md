@@ -7257,3 +7257,14 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 地图上也没他，是得后期地图才有吗 ...</blockquote>
 江户麴田左上角
 
+
+*****
+
+####  浅醉微风  
+##### 2226#       发表于 2024-3-26 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376147&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-3-26 00:15</a>
+
+千叶老头和双大太刀哥像疯狗一样，还有红光之后的反击红光</blockquote>
+红光之后的反击红光？千叶老头弹了普攻出反击红光再弹了反击红光又出反击红光的反击红光，三次石火才出大动摇。
+

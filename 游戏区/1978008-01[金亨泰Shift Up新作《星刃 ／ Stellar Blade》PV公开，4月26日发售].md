@@ -99,3 +99,13 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 现在这个主角看上去好土好呆，比当年第一个预告片的主角差远了，没想到等了这么多年会是这么个结果，哎 ...</blockquote>
 第一个预告的主角有炼铜嫌疑，怕是上不了桌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 402#       发表于 2024-3-25 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64374505&amp;ptid=1978008" target="_blank">Kojimaru 发表于 2024-3-25 21:31</a>
+这么多国家定为18+幸好尼日不是z，不然得信用卡买，那可如何是好</blockquote>
+现在问题是日版血腥暴力估计会有和谐了，听说有….DEMO出来就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

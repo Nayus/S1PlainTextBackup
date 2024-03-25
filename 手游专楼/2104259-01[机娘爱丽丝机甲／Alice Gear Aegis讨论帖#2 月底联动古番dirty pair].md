@@ -49,3 +49,21 @@
 
 换发型，换属性，那以后得意武器也换一换吧。
 
+
+*****
+
+####  江戸前ルナ  
+##### 979#         楼主| 发表于 2024-3-25 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64374593&amp;ptid=2104259" target="_blank">regular 发表于 2024-3-25 21:42</a>
+
+换发型，换属性，那以后得意武器也换一换吧。</blockquote>
+得意武器早没所谓了啊，都是开盘子上合体的技能插件，都可以改的
+
+*****
+
+####  alialex  
+##### 980#       发表于 2024-3-25 21:52
+
+这两...看看剧情怎么交代吧
+

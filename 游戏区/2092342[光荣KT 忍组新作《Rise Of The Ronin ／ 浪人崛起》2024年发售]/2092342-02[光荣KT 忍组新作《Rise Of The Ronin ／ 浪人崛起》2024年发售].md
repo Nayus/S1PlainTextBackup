@@ -6603,3 +6603,26 @@ aibo你装个假肢之后太狠了
 
 我现在江户清了一部分了，有没有人说说后面还有多少双boss喂屎的？有没有不带队友打双boss的究极屎？
 
+
+*****
+
+####  qappip  
+##### 2164#       发表于 2024-3-25 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366637&amp;ptid=2092342" target="_blank">007.5 发表于 2024-3-25 09:47</a>
+
+我做了他两个支线，就是找出哈里斯，然后在本觉寺救了他，貌似没教我立身流啊，是还有后续个人任务吗 ...</blockquote>
+那和我不一样啊，我做完他的任务就有立身流了。
+
+*****
+
+####  popchong  
+##### 2165#       发表于 2024-3-25 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64366682&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-3-25 09:51</a>
+
+我现在江户清了一部分了，有没有人说说后面还有多少双boss喂屎的？有没有不带队友打双boss的究极屎？ ...</blockquote>
+刚到京都，不带队友的双boss只有1个支线（不确定是不是必打），主线我记得有两场。
+
+我确实很不理解双boss还能开99是什么喂屎新思路，井伊直弼初见直接傻眼了
+

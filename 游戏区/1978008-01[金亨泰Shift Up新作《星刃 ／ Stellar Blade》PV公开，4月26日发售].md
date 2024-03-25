@@ -109,3 +109,13 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 这么多国家定为18+幸好尼日不是z，不然得信用卡买，那可如何是好</blockquote>
 现在问题是日版血腥暴力估计会有和谐了，听说有….DEMO出来就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rainsheep  
+##### 403#       发表于 2024-3-25 22:38
+
+确定日版有中文了吗，话说日版cv公布了吗
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

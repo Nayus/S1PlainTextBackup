@@ -6822,3 +6822,11 @@ photo_2024-03-24_21-52-09.jpg
 商人那里调和黑火药，然后投掷瓦罐的时候切换（具体哪个商人，要不要点技能忘了 ...</blockquote>
 感谢，我回去看看
 
+
+*****
+
+####  nagitoY  
+##### 2183#       发表于 2024-3-25 14:51
+
+回小屋后重新捏脸，就没法套用官方预设了吗？还准备攻略村上多加前把身体换回男人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">预设有好几个男性还挺帅的
+

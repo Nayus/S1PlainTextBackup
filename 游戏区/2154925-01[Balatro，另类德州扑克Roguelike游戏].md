@@ -6204,3 +6204,16 @@ IMO that's a pretty fair way to cheat as it's just RNG manipulation (of course i
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Awanano  
+##### 544#       发表于 2024-3-25 14:44
+
+昨晚睡前开了把复制打同花五条止步第7层。能打出来的时候是真爽，但是一旦一发大的带不走就必须用大量弃牌数做轮转。没有抽到大量删卡的塔罗或者幻灵导致卡组臃肿后继无力
+
+刚刚开了把第一层就拿到负片的水花飞溅，后继又抽到老千神+棒球手+重置倍率加二+特里布莱，狠狠的爽了把高牌流
+高牌是真的强，每轮出分稳定不太吃弃牌调整。小丑能提供足够基础倍率的情况下甚至不需要星球牌强化，太爽<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

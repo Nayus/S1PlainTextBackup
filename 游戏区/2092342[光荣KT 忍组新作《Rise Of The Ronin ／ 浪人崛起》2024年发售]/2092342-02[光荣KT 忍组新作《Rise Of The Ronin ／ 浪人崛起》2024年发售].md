@@ -8449,3 +8449,13 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 —— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  DorianMode  
+##### 2352#       发表于 2024-3-27 02:16
+
+ 本帖最后由 DorianMode 于 2024-3-27 02:19 编辑 
+
+刚进江户乱逛发现了隐藏BOSS杰洛特，第一次打，半血的时候开气焰，爱洲阴流意外怼到墙边，无脑猿飞，直接摁到死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

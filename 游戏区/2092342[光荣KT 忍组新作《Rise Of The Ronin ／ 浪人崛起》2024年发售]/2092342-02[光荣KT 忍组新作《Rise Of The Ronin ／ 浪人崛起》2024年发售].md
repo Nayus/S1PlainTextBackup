@@ -8087,3 +8087,20 @@ okok，多谢两位。
 
 这游戏一些boss弹出大硬直后还会强制红光，非常反直觉，正常看到弹出硬直都会去补刀
 
+
+*****
+
+####  Emmerich  
+##### 2313#       发表于 2024-3-26 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空手没拳术流派真是亏了100个亿 手感是真的好 可惜没残心亏精力了吧
+
+*****
+
+####  zqqwe  
+##### 2314#       发表于 2024-3-26 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64383986&amp;ptid=2092342" target="_blank">lazycat233 发表于 2024-3-26 17:51</a>
+这游戏一些boss弹出大硬直后还会强制红光，非常反直觉，正常看到弹出硬直都会去补刀 ...</blockquote>
+主要是武技不能用石火取消，用平a还是可以贪一下的
+

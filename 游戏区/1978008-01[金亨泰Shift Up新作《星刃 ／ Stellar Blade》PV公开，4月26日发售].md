@@ -277,3 +277,14 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 用monaca也要看是谁操刀了，其实上个月se的泡沫之星就是monaca的
 
+
+*****
+
+####  哆哆鸡  
+##### 418#       发表于 2024-3-26 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380851&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-3-26 13:40</a>
+
+星刃 日语语音版预约PV公开了，可以听一下日配的效果</blockquote>
+声音很熟悉，但就是想不起来是谁
+

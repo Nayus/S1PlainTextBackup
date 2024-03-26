@@ -657,3 +657,14 @@ v社拿个半成品运营就很有问题，几个月了bug还是一堆
 现在PGL，英伟达和v社肯定是汗流浃背的。如果这个问题不解决，几十万人观看的CS2第一个major决赛上再出现一 ...</blockquote>
 不是我洗，nv现在游戏卡市占尤其steam占80%以上，驱动真有那么拉早爆炸了。事实上nv game ready驱动从11月起就没有提及关于cs2的任何内容，包括issue和fix
 
+
+*****
+
+####  天妇罗  
+##### 4102#       发表于 2024-3-26 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380608&amp;ptid=1857369" target="_blank">囧囧囧 发表于 2024-3-26 13:17</a>
+
+不是我洗，nv现在游戏卡市占尤其steam占80%以上，驱动真有那么拉早爆炸了。事实上nv game ready驱动从11 ...</blockquote>
+那就是cs2的锅呗。但是一个游戏程序能导致显卡驱动crash，nv想完全不粘锅是不太可能的
+

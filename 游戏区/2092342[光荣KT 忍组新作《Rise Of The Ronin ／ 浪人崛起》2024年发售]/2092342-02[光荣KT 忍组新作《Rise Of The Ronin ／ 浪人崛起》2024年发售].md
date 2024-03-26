@@ -8459,3 +8459,11 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 刚进江户乱逛发现了隐藏BOSS杰洛特，第一次打，半血的时候开气焰，爱洲阴流意外怼到墙边，无脑猿飞，直接摁到死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 2353#       发表于 2024-3-27 02:52
+
+伊藤博文怎么开枪都没前摇的，还是个霰弹枪<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

@@ -668,3 +668,11 @@ XB2去时，不见其比
 正宫发言</blockquote>
 这个发型挺好的，别换回去了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Marianorivera  
+##### 4501#       发表于 2024-3-26 19:42
+
+一开始就想致敬萨芬格尔还是完蛋人，drifter/rockman，采石人，基本是前者，终于确认了。
+

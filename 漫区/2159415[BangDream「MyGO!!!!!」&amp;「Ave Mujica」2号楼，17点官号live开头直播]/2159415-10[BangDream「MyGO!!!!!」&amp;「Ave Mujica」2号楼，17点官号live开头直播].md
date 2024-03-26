@@ -13628,3 +13628,11 @@ z8舅舅预言对了这个月有歌，是不是31前后就不知道了<img src="
 
 2024-3-27 00:01 上传
 
+
+*****
+
+####  NODY  
+##### 14493#       发表于 2024-3-27 01:18
+
+asl第三日直播看完了，摸着良心说这一场羊女士精神状态确实不错，能看得出玩乐队是真的很开心，不像后来总是歪嘴或者假笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

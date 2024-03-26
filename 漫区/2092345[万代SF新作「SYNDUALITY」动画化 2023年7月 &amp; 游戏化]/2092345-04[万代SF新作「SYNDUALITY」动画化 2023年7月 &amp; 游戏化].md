@@ -732,3 +732,44 @@ XB2去时，不见其比
 
 这作的HG塑料萝卜尺寸是多大？基本站姿是多高？14厘米级？
 
+
+*****
+
+####  novyDC  
+##### 4508#       发表于 2024-3-26 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64386025&amp;ptid=2092345" target="_blank">ww-tsl 发表于 2024-3-26 21:02</a>
+这作的HG塑料萝卜尺寸是多大？基本站姿是多高？14厘米级？</blockquote>
+对比78
+
+<img src="https://img.saraba1st.com/forum/202403/26/211802gscxtjsj7a077w3x.jpg" referrerpolicy="no-referrer">
+
+<strong>1711459041979.jpg</strong> (243.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-26 21:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Marianorivera  
+##### 4509#       发表于 2024-3-26 21:19
+
+差不多就得了，毕竟也只是media mix里的一环，不是完全原创，主要任务还是宣传。
+
+毕竟我也是因为半原创萝卜片+导演+8bit和桂宪一郎才看的。
+
+*****
+
+####  aptx8285144  
+##### 4510#       发表于 2024-3-26 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64386208&amp;ptid=2092345" target="_blank">Marianorivera 发表于 2024-3-26 21:19</a>
+
+差不多就得了，毕竟也只是media mix里的一环，不是完全原创，主要任务还是宣传。
+
+毕竟我也是因为半原创萝卜 ...</blockquote>
+只要切割21话这种烂活，那还算能看吧，起码山本监督没有做着做着把支线和伏笔全扔了(望着水星魔女），也没有把大反派包了饺子jpg
+

@@ -7979,3 +7979,14 @@ okok，多谢两位。
 可以和aibo结婚吗幕末妹相随</blockquote>
 据说不行（估计算亲人的原因吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wiig  
+##### 2302#       发表于 2024-3-26 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64383054&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-26 16:40</a>
+
+据说不行（估计算亲人的原因吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

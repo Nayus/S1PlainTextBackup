@@ -261,3 +261,11 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 这个PV的源还是原本的英文源，就只把配音剪进去替换掉，难怪感觉有点违和感。
 
+
+*****
+
+####  举头望明月  
+##### 416#       发表于 2024-3-26 14:44
+
+一直以为是个纯卖肉的游戏但看了下预告感觉制作水平意外得还不赖，但女主的大腿和臀部在新预告里改得太夸张了，站着说话都能乳摇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">几件不买肉的衣服还挺好看的，有一个换发型的造型很惊艳
+

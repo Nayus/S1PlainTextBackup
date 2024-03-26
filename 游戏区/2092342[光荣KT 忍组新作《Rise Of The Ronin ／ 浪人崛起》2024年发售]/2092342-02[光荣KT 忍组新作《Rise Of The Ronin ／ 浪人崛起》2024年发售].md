@@ -7779,3 +7779,19 @@ okok，多谢两位。
 用炸弹炸么？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">那个正门没锁，没想到吧
 
+
+*****
+
+####  Bani82  
+##### 2281#       发表于 2024-3-26 14:40
+
+倒幕派感官真的差，动不动就杀杀杀
+相对来说第二章某大叔人物形象就好很多
+
+*****
+
+####  Emmerich  
+##### 2282#       发表于 2024-3-26 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30小时了刚准备出横滨 道场老师傅刷分其乐无穷
+

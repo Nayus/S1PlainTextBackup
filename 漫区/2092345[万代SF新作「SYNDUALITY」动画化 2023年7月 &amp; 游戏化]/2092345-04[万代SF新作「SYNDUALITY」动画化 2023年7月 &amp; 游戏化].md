@@ -587,3 +587,28 @@ TVアニメ「#SYNDUALITY Noir」
 XB2在时，不觉其异
 XB2去时，不见其比
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4493#       发表于 2024-3-26 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64150693&amp;ptid=2092345" target="_blank">ganeid 发表于 2024-3-5 10:25</a>
+
+现在我说这片和网管半斤八两还有异议吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+这个结局明显不如大网管啊，大网管最后一集至少地球是安全的，问题啥都解决了。
+
+这片的结局除了打败了想迫害贤士的low b反派以外，该干嘛还得干嘛，一堆变异怪物还要继续打。
+
+*****
+
+####  aptx8285144  
+##### 4494#       发表于 2024-3-26 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376784&amp;ptid=2092345" target="_blank">terminator1990 发表于 2024-3-26 04:24</a>
+
+青梅这到底算不算赢......</blockquote>
+最后对安洁的调侃毫无波动，极其自信，没有迫害感了，基本上稳了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

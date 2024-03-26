@@ -359,3 +359,16 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 原来长头发是用来挂武器的
 
+
+*****
+
+####  宛若青空  
+##### 426#       发表于 2024-3-26 18:26
+
+ 本帖最后由 宛若青空 于 2024-3-26 18:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64384294&amp;ptid=1978008" target="_blank">jacket 发表于 2024-3-26 18:20</a>
+
+原来长头发是用来挂武器的</blockquote>
+
+20年有个比较短的实机战斗视频里就能看到拿出武器的样子，那时就觉得武器当发夹这个挺有意思<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

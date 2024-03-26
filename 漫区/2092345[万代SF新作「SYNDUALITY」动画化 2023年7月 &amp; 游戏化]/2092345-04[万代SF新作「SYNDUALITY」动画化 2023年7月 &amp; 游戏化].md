@@ -527,3 +527,18 @@ TVアニメ「#SYNDUALITY Noir」
 
 还不是反派男自述，而是回忆ciel被他夸奖以后脸红的画面，不对，老弟，你不是很厌恶贤士嘛，咋到了最后又怀念起来了？
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4489#       发表于 2024-3-26 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64377155&amp;ptid=2092345" target="_blank">砂糖续香香 发表于 2024-3-26 08:12</a>
+
+夏尔歌一唱，我就蚌埠住了
+
+他到底是怎么做到的，怎么能一步一步走向这个样子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最好笑的是那个卫星的AI，回答反派男用的是模棱两可的话术，反派男竟然也信
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">什么gpt-2
+

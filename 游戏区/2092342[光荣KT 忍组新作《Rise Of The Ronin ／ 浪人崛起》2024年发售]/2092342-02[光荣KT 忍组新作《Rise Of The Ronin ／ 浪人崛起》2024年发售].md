@@ -8068,3 +8068,14 @@ okok，多谢两位。
 空手其实很强，但是得等级上来后</blockquote>
 而且我感觉空手手感挺好的！
 
+
+*****
+
+####  captoon  
+##### 2311#       发表于 2024-3-26 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64383755&amp;ptid=2092342" target="_blank">Akari 发表于 2024-3-26 17:31</a>
+
+而且我感觉空手手感挺好的！</blockquote>
+空手除了手短，其实技能还挺强的。石火手感也比武器要强
+

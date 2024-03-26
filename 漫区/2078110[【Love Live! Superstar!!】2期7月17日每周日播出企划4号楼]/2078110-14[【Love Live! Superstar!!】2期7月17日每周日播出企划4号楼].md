@@ -1838,3 +1838,15 @@ k组试听比想象中还可以哎，以后走战斗歌姬路线吧（）
 
 企划切断世界的斩击（指30s试听）对K组创伤性太大了
 
+
+*****
+
+####  starring  
+##### 19884#       发表于 2024-3-26 17:37
+
+算上手渡版一千多张，也就那样了
+
+<img src="https://p.sda1.dev/16/8f96c1d54636742a55cfb39d5e3d0e9b/738499B6AC18DD7809F3072FC46ECE94(1).jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

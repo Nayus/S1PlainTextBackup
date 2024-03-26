@@ -170,3 +170,11 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 2024-3-26 10:18 上传
 
+
+*****
+
+####  宛若青空  
+##### 407#       发表于 2024-3-26 11:33
+
+日本PS BLOG的文章补上了英语语音了，这下欧美玩家不用二选一了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过日版还是少个德语
+

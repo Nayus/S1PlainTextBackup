@@ -241,3 +241,11 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 星刃 日语语音版预约PV公开了，可以听一下日配的效果</blockquote>
 声音略微有点粗，Lynn?反正不是石川由依了
 
+
+*****
+
+####  banjia0815  
+##### 414#       发表于 2024-3-26 13:57
+
+看了下商店为啥是d分级，我记得demo开头不就是断手吗，这不给个z版吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

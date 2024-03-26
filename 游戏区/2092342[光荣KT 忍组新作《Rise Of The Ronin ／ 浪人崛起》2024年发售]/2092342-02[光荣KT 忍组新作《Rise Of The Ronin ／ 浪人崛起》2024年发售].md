@@ -7703,3 +7703,21 @@ okok，多谢两位。
 
 剧情主要还是铺垫太少了吧，整体还是不错的，哪怕我也完全不懂幕府历史，参考我朝近代史很容易理解。不过感觉倒幕派这边，吉田松阴这个角色说噶就噶了，之前花絮里第一集安田还搁那吹，游戏里完全没体现出来他的光辉形象，就是不怕死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leafS  
+##### 2273#       发表于 2024-3-26 13:59
+
+剧情主要是没有个字幕提示过了几年，开局上船刺杀和后面脱藩到开放世界那里，好像已经过了5年了，不看年表基本没意识到，这种跳时间又不给个提示对不是很了解这段历史的理解上就有困难
+
+*****
+
+####  jcwatm1  
+##### 2274#       发表于 2024-3-26 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64379816&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-26 12:08</a>
+
+送礼页面礼物上有爱心的就是喜好物品</blockquote>
+谢谢坛友
+

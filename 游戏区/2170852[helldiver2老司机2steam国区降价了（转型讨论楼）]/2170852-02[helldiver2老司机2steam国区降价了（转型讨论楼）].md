@@ -7448,3 +7448,35 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 视频倒是有：[https://www.bilibili.com/video/BV1Bu4m1T7Jt](https://www.bilibili.com/video/BV1Bu4m1T7Jt)  类星体的
 
+
+*****
+
+####  风萧飒  
+##### 2197#       发表于 2024-3-26 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380961&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-3-26 13:52</a>
+箭头组的脑回路哪是正常人琢磨得透....
+
+视频倒是有：https://www.bilibili.com/video/BV1Bu4m1T7Jt  类星 ...</blockquote>
+这玩意月初就有人解包了，箭头啥时候愿意放就不好说了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  smdzh2  
+##### 2198#       发表于 2024-3-26 13:55
+
+我猜类星体让玩家爽一段时间后会大削<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2199#       发表于 2024-3-26 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380961&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-3-26 13:52</a>
+箭头组的脑回路哪是正常人琢磨得透....
+
+视频倒是有：https://www.bilibili.com/video/BV1Bu4m1T7Jt  类星 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前看过了，我还以为是有什么最新消息暗示时间了
+

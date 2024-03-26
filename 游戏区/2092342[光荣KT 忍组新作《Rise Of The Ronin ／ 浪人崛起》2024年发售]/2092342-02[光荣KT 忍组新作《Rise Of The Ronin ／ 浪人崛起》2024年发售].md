@@ -8161,3 +8161,24 @@ okok，多谢两位。
 
 话说哪种商人能用钱（不是银币）买礼物么，身上礼物快用完了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 2321#       发表于 2024-3-26 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64384492&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-26 18:44</a>
+
+话说哪种商人能用钱（不是银币）买礼物么，身上礼物快用完了</blockquote>
+大地图道路上偶尔会碰到游商，可以用钱买一些礼物。
+
+*****
+
+####  duraa  
+##### 2322#       发表于 2024-3-26 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64384568&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-26 18:52</a>
+
+大地图道路上偶尔会碰到游商，可以用钱买一些礼物。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">那看样子还是得去黑商花银币（赌场的已经全换了
+

@@ -830,3 +830,13 @@ TVアニメ「#SYNDUALITY Noir」
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢谢要是能变成智能音响的话一定能获得幸福吧
 
+
+*****
+
+####  765事务所  
+##### 4515#       发表于 2024-3-27 00:29
+
+只能说编剧很不待见人机恋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

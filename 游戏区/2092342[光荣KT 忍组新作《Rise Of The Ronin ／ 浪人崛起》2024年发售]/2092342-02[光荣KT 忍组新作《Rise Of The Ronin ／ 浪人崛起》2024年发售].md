@@ -8307,3 +8307,35 @@ okok，多谢两位。
 
 有个角色的支线任务打完，结束后把我传送到一面旗帜，旁边屋子里有个宝箱。但是我从上到下都没找到房间入口。四面都没门，屋子上面也没窗户。很奇怪，想了半天不知道是什么意思来自: iPhone客户端
 
+
+*****
+
+####  duraa  
+##### 2337#       发表于 2024-3-27 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64387737&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 23:55</a>
+
+看b站说立身流很强。我试了下，立身流石火可以蓄力，容错稍微高一点。再就是战技凤鸣斩很舒服，队友顶前面 ...</blockquote>
+仁王流的隐藏敌人在江户
+
+*****
+
+####  duraa  
+##### 2338#       发表于 2024-3-27 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64387780&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 00:02</a>
+
+有个角色的支线任务打完，结束后把我传送到一面旗帜，旁边屋子里有个宝箱。但是我从上到下都没找到房间入口 ...</blockquote>
+可能是点爆火药桶的宝箱点
+
+
+*****
+
+####  qappip  
+##### 2339#       发表于 2024-3-27 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64387737&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-03-26 23:55:54</a>
+看b站说立身流很强。我试了下，立身流石火可以蓄力，容错稍微高一点。再就是战技凤鸣斩很舒服，队友顶前面 ...</blockquote>因为立身流石火是二连斩，一开始判定弹反后，二连斩全部都有判定，哪怕没有弹反都能引发类似“相冲”状态从而无伤，我举例我四连斩出拔刀二连斩对方霸体出招二连斩刚好砍完第一斩出第二斩和对方霸体招式对上了引发“相冲”无伤了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

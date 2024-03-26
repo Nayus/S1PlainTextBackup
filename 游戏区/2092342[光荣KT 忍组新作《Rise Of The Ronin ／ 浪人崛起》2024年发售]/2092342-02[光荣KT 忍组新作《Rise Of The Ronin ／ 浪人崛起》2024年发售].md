@@ -8182,3 +8182,13 @@ okok，多谢两位。
 大地图道路上偶尔会碰到游商，可以用钱买一些礼物。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">那看样子还是得去黑商花银币（赌场的已经全换了
 
+
+*****
+
+####  绯想天の天子  
+##### 2323#       发表于 2024-3-26 19:24
+
+<blockquote>duraa 发表于 2024-3-26 18:54
+那看样子还是得去黑商花银币（赌场的已经全换了</blockquote>
+猫和狗子的收菜也会有礼物
+

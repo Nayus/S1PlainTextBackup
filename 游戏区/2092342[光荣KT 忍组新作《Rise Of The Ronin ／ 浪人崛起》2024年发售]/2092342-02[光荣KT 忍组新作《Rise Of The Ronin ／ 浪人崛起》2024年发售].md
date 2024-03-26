@@ -7898,3 +7898,44 @@ okok，多谢两位。
 另外我可以在药贩那里调和黑火药了，但是道具栏没用陶片的装备。应该如何解锁炸弹道具啊？这一对多的杂兵战 ...</blockquote>
 陶球算副武器，在副武器里面装备上
 
+
+*****
+
+####  nagitoY  
+##### 2294#       发表于 2024-3-26 16:17
+
+现在感觉自己打的非常难看，还在用最基本的平a连段 石火弹反的思路。武技基本就是接在弹出大硬直后的抢攻。
+狂风不太好用的一个重要原因是这武器克制。天地人克制对石火弹反太重要了，在战斗中用狂风就要有克制不到的责任。
+
+这游戏怎么不给训练场木桩，只能在实战中练习各种流派，效率有点差来自: iPhone客户端
+
+*****
+
+####  nagitoY  
+##### 2295#       发表于 2024-3-26 16:18
+
+<blockquote>[ conanoysq replied on 2024-3-26 16:11](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382631&amp;ptid=2092342) 引用:nagitoY 发表于 2024-3-26 16:07 另外我可以在药贩那里调和黑火药了，但是道具栏没用陶片的装备。应该如何解锁炸弹道具啊？这一对多的杂兵战 ... 陶球算副武器，在副武器里面装备上 </blockquote>
+原来如此，我是说在道具栏翻了半天一直见不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  斯托雷加  
+##### 2296#       发表于 2024-3-26 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382591&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-26 16:07</a>
+
+跟着任务走必解锁</blockquote>
+主线的话应该是江户才有吧，我听说横滨有个晚上才开的到场，是那个么？
+
+
+*****
+
+####  松风君  
+##### 2297#       发表于 2024-3-26 16:22
+
+说实话流派和技能上来后难度曲线突然平缓了许多，在江户cos成亚楠人慢悠悠地爬爬浅草寺摸猫拍拍醉汉富士山还是非常闲适欢乐的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+虽然被吐槽的点都存在，城市比较空洞，能互动的路人基本没有，但对这个时期做开放世界只有KT这么头铁了
+
+预购三个流派都通过游戏内进度攒到后才感慨这特典还蛮值的，毕竟唯一指定武器过于明显（选冷门一点长枪大剑开荒岂不是更难了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

@@ -226,3 +226,26 @@ nobu属于是如强
  ...</blockquote>
 没，黑贞没有也没抽，就等哪次福袋摸一个，新伯爵也没准备抽，还在观望等待3000wdl 233
 
+
+*****
+
+####  UNISONIA  
+##### 11860#       发表于 2024-3-26 16:20
+
+现在的DL纪念怎么样都是复刻吧【
+
+主要现在的单体真的是伪需求，就连去年出的draco和泳卡斯特也是伪需求
+
+
+*****
+
+####  cenhr  
+##### 11861#       发表于 2024-3-26 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382779&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-26 16:20</a>
+
+现在的DL纪念怎么样都是复刻吧【
+
+主要现在的单体真的是伪需求，就连去年出的draco和泳卡斯特也是伪需求 ...</blockquote>
+Draco主要是方便吧
+

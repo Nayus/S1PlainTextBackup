@@ -8153,3 +8153,11 @@ okok，多谢两位。
 
 前面人型敌人多少装一下，到和尚这里不演了我就是妖怪变的。
 
+
+*****
+
+####  duraa  
+##### 2320#       发表于 2024-3-26 18:44
+
+话说哪种商人能用钱（不是银币）买礼物么，身上礼物快用完了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

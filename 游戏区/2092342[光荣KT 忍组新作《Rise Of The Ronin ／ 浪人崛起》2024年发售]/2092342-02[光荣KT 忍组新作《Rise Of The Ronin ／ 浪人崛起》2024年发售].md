@@ -8397,3 +8397,11 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 问下多加能活吗？我这推着推着好不容易谈上恋爱了，春宵一夜才过了一个过场人就没了救不活我都没动 ...</blockquote>
 没救，我刚跟人家因缘四级结果就g了，给她拍照片的时候就感觉不对<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">：
 
+
+*****
+
+####  duraa  
+##### 2346#       发表于 2024-3-27 00:59
+
+可以先杀赤鬼，这样可以早点拿义经流，然后再回忆里选不杀的世界线<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

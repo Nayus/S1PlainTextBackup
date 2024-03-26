@@ -13327,3 +13327,17 @@ file:///C:/Users/Y2296/AppData/Roaming/Tencent/QQ/Temp/TGE@TKRD0%7DG~OD_XIL%25X3
 
 [https://twitter.com/Sakuma07071/status/1771972275174359451](https://twitter.com/Sakuma07071/status/1771972275174359451)
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14467#       发表于 2024-3-26 17:30
+
+僕は… MyGO Cover出了
+
+怎么说呢（）
+
+改的更朋克了，但因为键盘，弦乐还有木吉他都没了
+
+又感觉少了点什么（）
+

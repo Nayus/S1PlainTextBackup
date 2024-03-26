@@ -8031,3 +8031,40 @@ okok，多谢两位。
 不杀任务太难做了。目前点出来了狂风紫电，但是一对多还是没有好的处理方法做马修因缘任务的时候， ...</blockquote>
 空手其实很强，但是得等级上来后
 
+
+*****
+
+####  captoon  
+##### 2307#       发表于 2024-3-26 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382739&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 16:17</a>
+
+现在感觉自己打的非常难看，还在用最基本的平a连段 石火弹反的思路。武技基本就是接在弹出大硬直后的抢攻。 ...</blockquote>
+不要这么灰心，这游戏单机和联机是两种思路....
+
+天地人克制在高难度也不是很明显
+
+*****
+
+####  qappip  
+##### 2308#       发表于 2024-3-26 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果有dlc 空手能不能派生一下流派， 我想打咏春和八极拳
+
+*****
+
+####  Bani82  
+##### 2309#       发表于 2024-3-26 17:29
+
+龙马的迷妹没有好感度槽，就是不能约么？
+
+*****
+
+####  Akari  
+##### 2310#       发表于 2024-3-26 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64383651&amp;ptid=2092342" target="_blank">captoon 发表于 2024-3-26 17:24</a>
+
+空手其实很强，但是得等级上来后</blockquote>
+而且我感觉空手手感挺好的！
+

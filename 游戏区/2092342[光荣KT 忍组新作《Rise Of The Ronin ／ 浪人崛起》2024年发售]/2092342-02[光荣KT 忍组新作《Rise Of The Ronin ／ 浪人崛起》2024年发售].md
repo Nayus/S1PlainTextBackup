@@ -7990,3 +7990,44 @@ okok，多谢两位。
 据说不行（估计算亲人的原因吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯托雷加  
+##### 2303#       发表于 2024-3-26 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382894&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-26 16:28</a>
+
+没啊 有个支线就是去道场看到好像是双刀哥还是谁在砸场子 把他干了就解锁道场了 完全没时间限制的 ...</blockquote>
+哦哦是哪个支线和地区还记得么，我一直在找这个到场，谢谢！
+
+*****
+
+####  Emmerich  
+##### 2304#       发表于 2024-3-26 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64383600&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-26 17:22</a>
+
+哦哦是哪个支线和地区还记得么，我一直在找这个到场，谢谢！</blockquote>
+印象里就是横滨市区那几个区域里的
+
+*****
+
+####  斯托雷加  
+##### 2305#       发表于 2024-3-26 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64383618&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-26 17:23</a>
+
+印象里就是横滨市区那几个区域里的</blockquote>
+好，我再找找
+
+*****
+
+####  captoon  
+##### 2306#       发表于 2024-3-26 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382550&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 16:05</a>
+
+不杀任务太难做了。目前点出来了狂风紫电，但是一对多还是没有好的处理方法做马修因缘任务的时候， ...</blockquote>
+空手其实很强，但是得等级上来后
+

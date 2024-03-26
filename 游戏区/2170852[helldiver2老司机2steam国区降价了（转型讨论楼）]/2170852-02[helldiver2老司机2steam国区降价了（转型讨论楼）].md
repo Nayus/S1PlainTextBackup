@@ -7511,3 +7511,34 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 还有个舰内设施升级的  [https://www.bilibili.com/video/BV1c2421K7kn/](https://www.bilibili.com/video/BV1c2421K7kn/)
 
+
+*****
+
+####  xinfengj  
+##### 2203#       发表于 2024-3-26 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64381140&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-3-26 14:10</a>
+
+原来是我火星了吗
+
+还有个舰内设施升级的  https://www.bilibili.com/video/BV1c2421K7kn/ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">现在只知道下个通行证是民主爆破，有爆炸大狙，其他的都一点都没听到风声。
+
+*****
+
+####  九十九忍  
+##### 2204#       发表于 2024-3-26 15:19
+
+这驱逐舰升级看着又是样本地狱
+
+
+*****
+
+####  Mr.Hopp  
+##### 2205#       发表于 2024-3-26 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64381113&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-26 14:08</a>
+
+类星体我觉得强度不算高，应该不如突击兵。那玩意是有四发弹药的eat，可以一发破强袭腿甲，打头什么效果还 ...</blockquote>
+类星体已经加强到一发能干死强袭了
+

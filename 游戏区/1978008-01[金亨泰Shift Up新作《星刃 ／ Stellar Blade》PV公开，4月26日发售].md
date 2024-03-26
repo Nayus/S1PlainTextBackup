@@ -288,3 +288,24 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 星刃 日语语音版预约PV公开了，可以听一下日配的效果</blockquote>
 声音很熟悉，但就是想不起来是谁
 
+
+*****
+
+####  宛若青空  
+##### 419#       发表于 2024-3-26 15:17
+
+ 本帖最后由 宛若青空 于 2024-3-26 15:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64381718&amp;ptid=1978008" target="_blank">clover293 发表于 2024-3-26 14:52</a>
+
+用monaca也要看是谁操刀了，其实上个月se的泡沫之星就是monaca的</blockquote>
+
+不是冈部启一本人，是19年加入MONACA里的Oliver Good和井上馨太负责
+
+
+*****
+
+####  洛克萨斯  
+##### 420#       发表于 2024-3-26 15:23
+
+确认日版有中文字幕了么，那我到时候买日版了
+

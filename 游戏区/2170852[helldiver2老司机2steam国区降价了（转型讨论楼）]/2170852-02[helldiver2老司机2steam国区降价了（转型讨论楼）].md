@@ -7408,3 +7408,20 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 这次任务打完会解锁新战备吗？
 
+
+*****
+
+####  风萧飒  
+##### 2193#       发表于 2024-3-26 11:19
+
+最近任务好像也没什么特殊剧情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  丹德里恩  
+##### 2194#       发表于 2024-3-26 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">类星体和双机炮高达快来了，好像还有新的设施升级
+

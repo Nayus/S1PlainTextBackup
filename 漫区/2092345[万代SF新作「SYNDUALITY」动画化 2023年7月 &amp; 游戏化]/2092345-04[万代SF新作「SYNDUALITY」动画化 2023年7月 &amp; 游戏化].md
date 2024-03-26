@@ -491,3 +491,11 @@ TVアニメ「#SYNDUALITY Noir」
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">什么jb结局 忍不了了
 
+
+*****
+
+####  亚瑟邓特  
+##### 4486#       发表于 2024-3-26 09:31
+
+[其实，《奇异贤伴》是《狩火之王》的前传](https://bgm.tv/blog/336087)
+

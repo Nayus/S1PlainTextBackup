@@ -483,3 +483,11 @@ TVアニメ「#SYNDUALITY Noir」
 夏尔歌一唱，我就蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 他到底是怎么做到的，怎么能一步一步走向这个样子
 
+
+*****
+
+####  rgauss  
+##### 4485#       发表于 2024-3-26 08:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">什么jb结局 忍不了了
+

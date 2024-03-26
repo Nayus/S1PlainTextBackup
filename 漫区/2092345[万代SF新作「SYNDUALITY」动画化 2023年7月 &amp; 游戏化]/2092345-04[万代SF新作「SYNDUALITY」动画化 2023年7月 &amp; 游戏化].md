@@ -885,3 +885,11 @@ TVアニメ「#SYNDUALITY Noir」
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  狼王卢比奥  
+##### 4520#       发表于 2024-3-27 01:58
+
+怀疑是鸭田故意迫害谢尔的，什么都给🐮了，还不停拿出来回忆鞭尸。
+

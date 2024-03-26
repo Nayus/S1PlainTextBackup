@@ -8439,3 +8439,13 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泽村保佑在第二张图？能不推任务提前找到吗 想刷爆好感拿龙哥衣服
 
+
+*****
+
+####  土路生優里  
+##### 2351#       发表于 2024-3-27 02:01
+
+请教下这代混沌怎么上的快啊，磨刀石a半天上不了异常，好不容易上了一个，上第二个又要半天，然后就蓄不上了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

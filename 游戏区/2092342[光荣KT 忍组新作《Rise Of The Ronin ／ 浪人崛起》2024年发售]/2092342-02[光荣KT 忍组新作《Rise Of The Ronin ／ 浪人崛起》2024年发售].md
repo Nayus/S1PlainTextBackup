@@ -7476,3 +7476,61 @@ okok，多谢两位。
 470预定的实体一直没发，看了眼现货最便宜的都是538了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我490定的昨天拿到了，这次出货好像特别少
 
+
+*****
+
+####  abbccc200  
+##### 2248#       发表于 2024-3-26 10:27
+
+现在剧情感觉只是前期，但是一直舔图技能都升得差不多了，想问下后面会解锁新的技能树吗？
+
+
+*****
+
+####  duraa  
+##### 2249#       发表于 2024-3-26 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64378501&amp;ptid=2092342" target="_blank">abbccc200 发表于 2024-3-26 10:27</a>
+现在剧情感觉只是前期，但是一直舔图技能都升得差不多了，想问下后面会解锁新的技能树吗？ ...</blockquote>
+通关后好像有个新技能树（我除了隐藏怪其他前两张图全清，四个技能树还没点满<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  斯托雷加  
+##### 2250#       发表于 2024-3-26 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64371773&amp;ptid=2092342" target="_blank">popchong 发表于 2024-3-25 16:19</a>
+
+微博看到的，有人知道这套在哪获得吗</blockquote>
+看ZP新视频，在江户做一系列支线后可以购买
+
+*****
+
+####  Yeelolo  
+##### 2251#       发表于 2024-3-26 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">话说有几个妹子可以攻略？第一章我现在只碰到两个
+
+*****
+
+####  BadYanL  
+##### 2252#       发表于 2024-3-26 10:35
+
+昨晚连续打了几个江户后期的主线支线boss，太爽太爽了。
+
+*****
+
+####  Vacuolar  
+##### 2253#       发表于 2024-3-26 10:36
+
+感觉这游戏聊妹妹体验真好啊，太乐
+
+*****
+
+####  彩虹肥宅  
+##### 2254#       发表于 2024-3-26 10:37
+
+刚进江户，这战斗越打越爽<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

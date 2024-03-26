@@ -189,3 +189,16 @@ low王哪怕是之前也比不过高配方阵吧，前者就插几个lm可能还
 
 还指望配合星器堆ex呢
 
+
+*****
+
+####  cenhr  
+##### 17832#       发表于 2024-3-26 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64378424&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2024-3-26 10:22</a>
+
+割草肯定不能
+
+还指望配合星器堆ex呢</blockquote>
+那还好，谢
+

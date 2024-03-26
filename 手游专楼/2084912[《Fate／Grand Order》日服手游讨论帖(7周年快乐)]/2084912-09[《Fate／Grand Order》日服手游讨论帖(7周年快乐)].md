@@ -131,3 +131,57 @@ nobu属于是如强
 突然发觉，黑贞这强化，是不是直接背刺了还没实装的新伯爵？</blockquote>
 新伯爵如果是原汁原味的话，黑贞即使强化后能胜过新伯爵的就只有宝具防止敌方上buff1次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 11852#       发表于 2024-3-26 15:57
+
+不就三十ab五十充 特攻还要垫卡
+
+单体周回顶多也就打两发 黑贞多一个宝具本还是红卡 伯爵洗洗睡吧
+
+*****
+
+####  exiaexa  
+##### 11853#       发表于 2024-3-26 15:59
+
+ 本帖最后由 exiaexa 于 2024-3-26 16:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382045&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-3-26 15:21</a>
+
+突然发觉，黑贞这强化，是不是直接背刺了还没实装的新伯爵？</blockquote>
+一个被金时按着揍的红单
+
+说要去背刺一个  有不那么好用的特攻  全buff3t  的绿单是不是搞笑了点
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11854#       发表于 2024-3-26 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382458&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-3-26 15:57</a>
+
+不就三十ab五十充 特攻还要垫卡
+
+单体周回顶多也就打两发 黑贞多一个宝具本还是红卡 伯爵洗洗睡吧 ...</blockquote>
+不过说实话，真要用的话无论是黑贞还是新伯爵都没机会上场。虽然这不影响玩家想抽他们的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 11855#       发表于 2024-3-26 16:03
+
+500%晕眩不一定是玩家侧的数值，例如大奥的剧情NPC迦摩和BOSS迦摩的宝具魅惑概率都是特殊的500%
+
+*****
+
+####  cenhr  
+##### 11856#       发表于 2024-3-26 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382532&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-26 16:03</a>
+
+500%晕眩不一定是玩家侧的数值，例如大奥的剧情NPC迦摩和BOSS迦摩的宝具魅惑概率都是特殊的500% ...</blockquote>
+有枪老太婆的例子，所以可以期待一下
+

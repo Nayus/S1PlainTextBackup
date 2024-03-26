@@ -7814,3 +7814,41 @@ okok，多谢两位。
 
 一不小心跟猫NPC结婚了。。。能离婚吗。。。
 
+
+*****
+
+####  Akari  
+##### 2285#       发表于 2024-3-26 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382161&amp;ptid=2092342" target="_blank">ネコカイザー 发表于 2024-3-26 15:30</a>
+
+一不小心跟猫NPC结婚了。。。能离婚吗。。。</blockquote>
+随时结，随时离婚，随时复合（无比贴心）
+
+
+*****
+
+####  斯托雷加  
+##### 2286#       发表于 2024-3-26 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64381576&amp;ptid=2092342" target="_blank">Emmerich 发表于 2024-3-26 14:42</a>
+
+30小时了刚准备出横滨 道场老师傅刷分其乐无穷</blockquote>
+横滨有道场么
+
+*****
+
+####  wiig  
+##### 2287#       发表于 2024-3-26 16:05
+
+可以和aibo结婚吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">幕末妹相随
+
+*****
+
+####  nagitoY  
+##### 2288#       发表于 2024-3-26 16:05
+
+不杀任务太难做了。目前点出来了狂风紫电，但是一对多还是没有好的处理方法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">做马修因缘任务的时候，被三人围殴本来就一肚子火，还要到最后一刀切换成攻击力巨低的木刀完成终结。最后索性全杀了，反而还简单点。
+
+另外偷信件的主线任务，不知道怎么做到潜行不杀敌，找了条路线也是一路杀过去了。最后打完boss，获得了一个长枪流派，是不是误杀了一个可以结缘的npc来自: iPhone客户端
+

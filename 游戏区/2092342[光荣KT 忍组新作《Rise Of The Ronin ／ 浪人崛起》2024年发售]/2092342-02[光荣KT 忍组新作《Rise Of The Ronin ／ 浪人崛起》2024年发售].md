@@ -7584,3 +7584,35 @@ okok，多谢两位。
 
 不了解幕末历史，目前看来佐幕派是“汉奸”？而倒幕派则是本土的抵抗组织？来自: iPhone客户端
 
+
+*****
+
+####  zqqwe  
+##### 2260#       发表于 2024-3-26 11:07
+
+宝藏院流这个防反武技是强制打断对面动作相当好用，撑杆跳绕背也可以逃脱对面连击。
+示现流奥义的站桩乱舞配合爆气，浪人也要有自己的水形剑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 2261#       发表于 2024-3-26 11:08
+
+今天实体版才给我发货。。。
+
+*****
+
+####  萌萌地镜头  
+##### 2262#       发表于 2024-3-26 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64378937&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 11:00</a>
+不了解幕末历史，目前看来佐幕派是“汉奸”？而倒幕派则是本土的抵抗组织？ ...</blockquote>
+说起来很复杂，总之就是搞到最后大义名分不再重要，变成纯粹的政治派系斗争，所以你想帮谁都行
+
+*****
+
+####  lazycat233  
+##### 2263#       发表于 2024-3-26 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">笑死，进第二章才发现我把架势优势搞反了，之前还以为是忍流派是全优势打，拿劣势架势打了一整章
+

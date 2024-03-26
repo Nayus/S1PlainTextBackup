@@ -7422,3 +7422,37 @@ PS系手柄紫电不应该是C手按的么，我打PC的仁王2才是特别不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">敌人不够刷有个办法，部分副本任务的敌人在不进任务之前低级敌人也会刷新在区域上，先都刷一遍再开任务能刷上两回，不过中途故意死一遍重生能不能再刷就忘记试了
 原来带盟友下任务是不涨因缘的么，还是涨得很少，还不如直接送礼涨得快……
 
+
+*****
+
+####  战场公主希维尔  
+##### 2243#       发表于 2024-3-26 09:49
+
+请教薙刀的北辰一刀流怎么解锁？
+
+还有忍流派是不是打谁后不利？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  zqqwe  
+##### 2244#       发表于 2024-3-26 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64377990&amp;ptid=2092342" target="_blank">战场公主希维尔 发表于 2024-3-26 09:49</a>
+请教薙刀的北辰一刀流怎么解锁？
+
+还有忍流派是不是打谁后不利？</blockquote>
+主线第二章到千叶道场解锁。
+忍流对所有流派不利，是指石火判定都是最短，但石火成功必长时间动摇（其他相克流派必须优势）
+
+*****
+
+####  RushMove  
+##### 2245#       发表于 2024-3-26 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64377990&amp;ptid=2092342" target="_blank">战场公主希维尔 发表于 2024-3-26 09:49</a>
+ 请教薙刀的北辰一刀流怎么解锁？  还有忍流派是不是打谁后不利？</blockquote>
+第二章主线会遇到一个妹子，结缘后解锁
+

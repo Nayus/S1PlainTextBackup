@@ -7380,3 +7380,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这补丁的补丁啥时候能出，昨天要么是空投时跳出要么就是打5分钟突然黑屏回到船上没有提示，做完个人任务就下了
 
+
+*****
+
+####  xinfengj  
+##### 2190#       发表于 2024-3-26 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64377311&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-3-26 08:43</a>
+这补丁的补丁啥时候能出，昨天要么是空投时跳出要么就是打5分钟突然黑屏回到船上没有提示，做完个人 ...</blockquote>
+上周说这周出，这周才过2天，等等吧
+

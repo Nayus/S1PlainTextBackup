@@ -7435,3 +7435,16 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 类星体和双机炮高达快来了，好像还有新的设施升级</blockquote>
 大概多久？
 
+
+*****
+
+####  丹德里恩  
+##### 2196#       发表于 2024-3-26 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380722&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-3-26 13:27</a>
+
+大概多久？</blockquote>
+箭头组的脑回路哪是正常人琢磨得透....
+
+视频倒是有：[https://www.bilibili.com/video/BV1Bu4m1T7Jt](https://www.bilibili.com/video/BV1Bu4m1T7Jt)  类星体的
+

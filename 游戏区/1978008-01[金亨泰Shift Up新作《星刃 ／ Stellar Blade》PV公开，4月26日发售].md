@@ -222,3 +222,22 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 [https://twitter.com/playstation_ ... jpXgg8RVT0wzpvb-7bQ](https://twitter.com/playstation_jp/status/1772488650925707299?s=61&amp;t=mxbjpXgg8RVT0wzpvb-7bQ)</blockquote>
 
+
+*****
+
+####  今天不守尸  
+##### 412#       发表于 2024-3-26 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380556&amp;ptid=1978008" target="_blank">emcl 发表于 2024-3-26 13:12</a>
+ 齐刘海或者空气刘海本来就很流行吧，尤其是年轻女孩</blockquote>
+我看别人留齐刘海一般都是左眼角到右眼角之间，脸庞两侧都是留中长发，棒子这样从左耳到右耳全是齐平的，跟个锅盖扣头上一样。。。
+
+*****
+
+####  qiyu1234  
+##### 413#       发表于 2024-3-26 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380851&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-3-26 13:40</a>
+星刃 日语语音版预约PV公开了，可以听一下日配的效果</blockquote>
+声音略微有点粗，Lynn?反正不是石川由依了
+

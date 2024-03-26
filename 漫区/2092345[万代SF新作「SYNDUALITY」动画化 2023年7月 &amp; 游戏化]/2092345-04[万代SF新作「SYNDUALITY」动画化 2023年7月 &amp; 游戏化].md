@@ -875,3 +875,13 @@ TVアニメ「#SYNDUALITY Noir」
 —— 来自 S1Fun</blockquote>
 直接设计成男女主就是非常经典的配置，再加上与假面和BOSS间的“基情”，多么成熟王道的剧本，没水平就不要搞所谓“创新”，更不要东施效颦（魔改xb2）
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 4519#       发表于 2024-3-27 01:27
+
+动画人设是真好看，比游戏强多了
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

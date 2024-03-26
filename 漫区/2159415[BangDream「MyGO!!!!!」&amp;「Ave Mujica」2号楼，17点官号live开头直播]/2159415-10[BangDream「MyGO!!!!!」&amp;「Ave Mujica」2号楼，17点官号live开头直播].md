@@ -13473,3 +13473,20 @@ file:///C:/Users/Y2296/AppData/Roaming/Tencent/QQ/Temp/TGE@TKRD0%7DG~OD_XIL%25X3
 睦为什么觉得玩乐队不快乐是一点没说啊 ...</blockquote>
 睦为什么不开心应该在Mujica会讲，现在主要的猜测是因为家中压力没有自我、只是陪祥子没有对乐队认同感、预见了乐队和祥子的结局、音乐性不合等几种<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  siansian  
+##### 14478#       发表于 2024-3-26 22:17
+
+倒点黑泥
+说实话你🐏能火起来真的有点匪夷所思了，明明实力一般又没啥背景长相还不出众，搞大牌还有一群gachi，到底是看上🐏的哪一点
+
+
+*****
+
+####  Toki_Ai  
+##### 14479#       发表于 2024-3-26 22:24
+
+类比一下隔壁铃原<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太君就好这一口
+

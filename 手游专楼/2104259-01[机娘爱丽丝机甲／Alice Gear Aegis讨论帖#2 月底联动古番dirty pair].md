@@ -100,3 +100,12 @@
 那可不，这都开始有第四形态了，an都没出全呢，就是想法子加新内容呗。
 其实想想看，格斗武器先不论，射击武器模组复制粘贴的已经有了，说换武器最低也可以就是多点排练组合罢了。
 
+
+*****
+
+####  外骨骼  
+##### 984#       发表于 2024-3-26 08:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">票子allin抽eden了，水花都没见到一个。
+现在跟我说有短发小鸟游了？<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

@@ -623,3 +623,19 @@ XB2去时，不见其比
 说实话，这年头找个男主女主都0成长的片子也不容易</blockquote>
 起码彼方和诺娃没有去和威斯互相理解了（威斯的“兄弟情”全给了时雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），一想起蒜，我就感觉害怕
 
+
+*****
+
+####  秘密图纸  
+##### 4496#       发表于 2024-3-26 14:58
+
+感觉....我有冲动去订个H-metal r的涡轮狗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 4497#       发表于 2024-3-26 15:06
+
+还得感谢威斯这家伙有点自知之明，才有个在宇宙里等死的结局，战斗演出中等吧，不如上周激烈，换了个发型的艾女士美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，麻烦山本监督下次找个好一点的系列构成再好好合计一下，不要幻想着消费哪个角色写剧情，回收伏笔和支线这些基本工作虽然合格了，但是在往上就没啥太多的惊喜了，靠着演出者们的努力才算维持着还可以的演出，结果被脑残的21话毁了很多观感，最后也就是收拾残局一样的心态打完了大反派
+

@@ -21,3 +21,11 @@
 
 值得一提的是有活动加成而且允许打暴击的场合一宝都可能在90++有表现，例如去年已经过去的高杉BtoB白情和川中岛五棱郭，基本都是gudaguda本篇和衍生活动就是了
 
+
+*****
+
+####  cenhr  
+##### 11843#       发表于 2024-3-26 09:07
+
+个人觉得仇信尴尬的地方是buff虽然高，但需要一回合一回合叠上去。如果要快攻有更好的选择，打消耗战更加不需要她<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

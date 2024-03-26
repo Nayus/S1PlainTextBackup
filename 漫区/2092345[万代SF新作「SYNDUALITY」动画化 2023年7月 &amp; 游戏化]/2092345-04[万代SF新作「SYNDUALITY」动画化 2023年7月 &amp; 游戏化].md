@@ -840,3 +840,16 @@ TVアニメ「#SYNDUALITY Noir」
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4516#       发表于 2024-3-27 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64387998&amp;ptid=2092345" target="_blank">765事务所 发表于 2024-3-27 00:29</a>
+
+只能说编剧很不待见人机恋，把艾莉当女主看观感会好很多
+
+—— 来自 Xiaomi M2012K11AC, And ...</blockquote>
+那应该把时生当成真·男主看待吗<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
+

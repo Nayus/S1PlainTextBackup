@@ -8339,3 +8339,39 @@ okok，多谢两位。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  MuramasaSP  
+##### 2340#       发表于 2024-3-27 00:38
+
+才发现这游戏有枪反，短枪射击也能引发石火弹反的效果。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  duraa  
+##### 2341#       发表于 2024-3-27 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不得不说开放世界的马桶通起来有瘾，而且浪人的区域清完奖励也不错
+
+
+*****
+
+####  土路生優里  
+##### 2342#       发表于 2024-3-27 00:44
+
+wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  土路生優里  
+##### 2343#       发表于 2024-3-27 00:45
+
+天然理心流意外的舒服， r1+三角的武技连红光都能抓取<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

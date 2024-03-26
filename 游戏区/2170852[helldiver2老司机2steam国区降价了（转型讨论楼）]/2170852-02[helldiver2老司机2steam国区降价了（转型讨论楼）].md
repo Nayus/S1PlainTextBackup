@@ -7425,3 +7425,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">类星体和双机炮高达快来了，好像还有新的设施升级
 
+
+*****
+
+####  Aeons  
+##### 2195#       发表于 2024-3-26 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64379237&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-3-26 11:23</a>
+类星体和双机炮高达快来了，好像还有新的设施升级</blockquote>
+大概多久？
+

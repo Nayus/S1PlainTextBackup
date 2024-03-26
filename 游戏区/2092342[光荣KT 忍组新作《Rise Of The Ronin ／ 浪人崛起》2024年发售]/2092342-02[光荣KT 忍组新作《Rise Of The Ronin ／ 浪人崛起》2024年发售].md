@@ -8226,3 +8226,11 @@ okok，多谢两位。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">京都这长枪火枪哥吃屎味太正了，之前双boss感觉数值够加上场地也还凑活，队友拉的开没啥感觉。现在数值不够有点刮痧，这两个b还全是长距离攻击红光追击，打着打着就混在一起，然后堆在角落里头简直究极混乱，队友也死的飞快，难绷
 
+
+*****
+
+####  leafS  
+##### 2328#       发表于 2024-3-26 22:54
+
+问下多加能活吗？我这推着推着好不容易谈上恋爱了，春宵一夜才过了一个过场人就没了<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">救不活我都没动力推主线了
+

@@ -13498,3 +13498,44 @@ file:///C:/Users/Y2296/AppData/Roaming/Tencent/QQ/Temp/TGE@TKRD0%7DG~OD_XIL%25X3
 
 处男白月光是这样的 很奇妙吧
 
+
+*****
+
+####  鳥栖朝  
+##### 14481#       发表于 2024-3-26 22:52
+
+明天就是满月，快把新歌端上来吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 14482#       发表于 2024-3-26 23:02
+
+再吃點睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/26/230149ytzm40zedxr2d55x.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Chacalこ(@Sakuma07071)_20240326-114105_1772589586533015650_photo.jpg</strong> (444.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-26 23:01 上传
+
+[https://twitter.com/Sakuma07071/status/1772589586533015650](https://twitter.com/Sakuma07071/status/1772589586533015650)
+
+*****
+
+####  御幸一也  
+##### 14483#       发表于 2024-3-26 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64387136&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-3-26 22:52</a>
+
+明天就是满月，快把新歌端上来吧
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+3/25才是滿月，早過去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且最新的小劇場設定人偶已經不需要在滿月才能行動了()
+

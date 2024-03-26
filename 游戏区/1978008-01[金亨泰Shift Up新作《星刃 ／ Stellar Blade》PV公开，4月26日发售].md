@@ -269,3 +269,11 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 一直以为是个纯卖肉的游戏但看了下预告感觉制作水平意外得还不赖，但女主的大腿和臀部在新预告里改得太夸张了，站着说话都能乳摇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">几件不买肉的衣服还挺好看的，有一个换发型的造型很惊艳
 
+
+*****
+
+####  clover293  
+##### 417#       发表于 2024-3-26 14:52
+
+用monaca也要看是谁操刀了，其实上个月se的泡沫之星就是monaca的
+

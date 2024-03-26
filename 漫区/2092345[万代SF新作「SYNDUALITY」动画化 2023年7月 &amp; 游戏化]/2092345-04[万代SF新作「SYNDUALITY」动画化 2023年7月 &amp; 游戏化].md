@@ -612,3 +612,14 @@ XB2去时，不见其比
 青梅这到底算不算赢......</blockquote>
 最后对安洁的调侃毫无波动，极其自信，没有迫害感了，基本上稳了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4495#       发表于 2024-3-26 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376222&amp;ptid=2092345" target="_blank">星降る森 发表于 2024-3-26 00:24</a>
+
+说实话，这年头找个男主女主都0成长的片子也不容易</blockquote>
+起码彼方和诺娃没有去和威斯互相理解了（威斯的“兄弟情”全给了时雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），一想起蒜，我就感觉害怕
+

@@ -309,3 +309,16 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 确认日版有中文字幕了么，那我到时候买日版了
 
+
+*****
+
+####  qiyu1234  
+##### 421#       发表于 2024-3-26 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64381885&amp;ptid=1978008" target="_blank">哆哆鸡 发表于 2024-3-26 15:07</a>
+
+声音很熟悉，但就是想不起来是谁
+
+好像是濑户麻沙美，不保真</blockquote>
+你这么一提又去听了一遍，很像，可能性很大
+

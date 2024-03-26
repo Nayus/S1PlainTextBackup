@@ -120,3 +120,14 @@ nobu属于是如强
 
 突然发觉，黑贞这强化，是不是直接背刺了还没实装的新伯爵？
 
+
+*****
+
+####  cenhr  
+##### 11851#       发表于 2024-3-26 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382045&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-3-26 15:21</a>
+
+突然发觉，黑贞这强化，是不是直接背刺了还没实装的新伯爵？</blockquote>
+新伯爵如果是原汁原味的话，黑贞即使强化后能胜过新伯爵的就只有宝具防止敌方上buff1次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

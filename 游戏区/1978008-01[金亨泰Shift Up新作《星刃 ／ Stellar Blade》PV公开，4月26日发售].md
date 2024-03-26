@@ -196,3 +196,14 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 用第一个pv里的发型不好吗
 <img src="https://s2.loli.net/2024/03/26/pgv3tEG28Rd7BH6.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  emcl  
+##### 410#       发表于 2024-3-26 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64379942&amp;ptid=1978008" target="_blank">今天不守尸 发表于 2024-3-26 12:18</a>
+锅盖头在棒子那是啥帅哥美女的标配吗，感觉韩漫韩游里主角都是锅盖头，真的难看啊。。。
+用第一个pv里的发 ...</blockquote>
+齐刘海或者空气刘海本来就很流行吧，尤其是年轻女孩
+

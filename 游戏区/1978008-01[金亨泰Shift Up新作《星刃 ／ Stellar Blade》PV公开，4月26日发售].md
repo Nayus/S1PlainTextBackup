@@ -351,3 +351,11 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 怎么感觉论涩还不如之前测试的洛奇</blockquote>
 确实远不如洛奇，那个看一眼二弟就认可了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 425#       发表于 2024-3-26 18:20
+
+原来长头发是用来挂武器的
+

@@ -7747,3 +7747,35 @@ okok，多谢两位。
 
 评分低好像并没有影响实体盘价格？是因为产量太低了吗？还是因为关注度太低，买的人就是小众群体？
 
+
+*****
+
+####  Akari  
+##### 2278#       发表于 2024-3-26 14:28
+
+有一个江户的宝箱阁楼，上面放了一个木板，这个我要咋下去？
+
+用炸弹炸么？
+
+*****
+
+####  ff2077  
+##### 2279#       发表于 2024-3-26 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64381349&amp;ptid=2092342" target="_blank">mggr 发表于 2024-3-26 14:26</a>
+
+评分低好像并没有影响实体盘价格？是因为产量太低了吗？还是因为关注度太低，买的人就是小众群体？ ...</blockquote>
+出货很少<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  duraa  
+##### 2280#       发表于 2024-3-26 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64381392&amp;ptid=2092342" target="_blank">Akari 发表于 2024-3-26 14:28</a>
+有一个江户的宝箱阁楼，上面放了一个木板，这个我要咋下去？
+
+用炸弹炸么？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">那个正门没锁，没想到吧
+

@@ -207,3 +207,18 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 用第一个pv里的发 ...</blockquote>
 齐刘海或者空气刘海本来就很流行吧，尤其是年轻女孩
 
+
+*****
+
+####  宛若青空  
+##### 411#       发表于 2024-3-26 13:40
+
+ 本帖最后由 宛若青空 于 2024-3-26 13:41 编辑 
+
+星刃 日语语音版预约PV公开了，可以听一下日配的效果
+ <blockquote>PS5®『Stellar Blade』先行予約トレーラーの日本語版を公開！
+
+いよいよ発売まであと1ヵ月。イヴとともに荒廃した地球を旅し、隠された真相を解き明かす準備はできていますか？ 
+
+[https://twitter.com/playstation_ ... jpXgg8RVT0wzpvb-7bQ](https://twitter.com/playstation_jp/status/1772488650925707299?s=61&amp;t=mxbjpXgg8RVT0wzpvb-7bQ)</blockquote>
+

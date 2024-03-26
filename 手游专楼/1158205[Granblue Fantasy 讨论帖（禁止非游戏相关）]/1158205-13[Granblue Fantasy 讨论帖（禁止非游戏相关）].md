@@ -176,3 +176,16 @@ low王哪怕是之前也比不过高配方阵吧，前者就插几个lm可能还
 
 光剑是否能退休了？
 
+
+*****
+
+####  phoenixxj  
+##### 17831#       发表于 2024-3-26 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64377981&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-26 09:48</a>
+
+光剑是否能退休了？</blockquote>
+割草肯定不能
+
+还指望配合星器堆ex呢
+

@@ -7466,3 +7466,13 @@ okok，多谢两位。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  寂长无星夜  
+##### 2247#       发表于 2024-3-26 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376191&amp;ptid=2092342" target="_blank">内森德雷克 发表于 2024-3-26 00:20</a>
+470预定的实体一直没发，看了眼现货最便宜的都是538了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我490定的昨天拿到了，这次出货好像特别少
+

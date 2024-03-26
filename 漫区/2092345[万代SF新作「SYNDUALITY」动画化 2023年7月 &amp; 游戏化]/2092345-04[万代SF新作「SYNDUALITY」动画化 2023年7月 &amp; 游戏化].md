@@ -647,3 +647,24 @@ XB2去时，不见其比
 
 系构可以找一下独角兽老师<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 4499#       发表于 2024-3-26 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382433&amp;ptid=2092345" target="_blank">765事务所 发表于 2024-3-26 15:55</a>
+
+系构可以找一下独角兽老师，主要是其他老师都有雷作信不过了</blockquote>
+独角兽老师有写过死人物的剧本吗，这方面的剧本可都是有一定难度的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 4500#       发表于 2024-3-26 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64376862&amp;ptid=2092345" target="_blank">novyMS 发表于 2024-3-26 06:24</a>
+
+正宫发言</blockquote>
+这个发型挺好的，别换回去了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

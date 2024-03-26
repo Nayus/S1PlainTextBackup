@@ -7852,3 +7852,49 @@ okok，多谢两位。
 
 另外偷信件的主线任务，不知道怎么做到潜行不杀敌，找了条路线也是一路杀过去了。最后打完boss，获得了一个长枪流派，是不是误杀了一个可以结缘的npc来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 2289#       发表于 2024-3-26 16:07
+
+另外我可以在药贩那里调和黑火药了，但是道具栏没用陶片的装备。应该如何解锁炸弹道具啊？这一对多的杂兵战我只想快速跳过来自: iPhone客户端
+
+*****
+
+####  Emmerich  
+##### 2290#       发表于 2024-3-26 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382550&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 16:05</a>
+
+不杀任务太难做了。目前点出来了狂风紫电，但是一对多还是没有好的处理方法做马修因缘任务的时候， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">信件这boss我用拳头锤晕的 剧情上也算死 待遇不如外面杂兵
+
+*****
+
+####  Emmerich  
+##### 2291#       发表于 2024-3-26 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382534&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-26 16:03</a>
+
+横滨有道场么</blockquote>
+跟着任务走必解锁
+
+*****
+
+####  nagitoY  
+##### 2292#       发表于 2024-3-26 16:11
+
+<blockquote>[ Emmerich replied on 2024-3-26 16:07](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382584&amp;ptid=2092342) 引用:nagitoY 发表于 2024-3-26 16:05 不杀任务太难做了。目前点出来了狂风紫电，但是一对多还是没有好的处理方法做马修因缘任务的时候， ... 信件这boss我用拳头锤晕的 剧情上也算死 待遇不如外面杂兵 </blockquote>
+那看来不算错杀了，还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  conanoysq  
+##### 2293#       发表于 2024-3-26 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382581&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 16:07</a>
+
+另外我可以在药贩那里调和黑火药了，但是道具栏没用陶片的装备。应该如何解锁炸弹道具啊？这一对多的杂兵战 ...</blockquote>
+陶球算副武器，在副武器里面装备上
+

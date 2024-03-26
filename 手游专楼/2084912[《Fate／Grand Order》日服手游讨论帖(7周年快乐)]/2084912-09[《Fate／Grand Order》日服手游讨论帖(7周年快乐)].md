@@ -185,3 +185,44 @@ nobu属于是如强
 500%晕眩不一定是玩家侧的数值，例如大奥的剧情NPC迦摩和BOSS迦摩的宝具魅惑概率都是特殊的500% ...</blockquote>
 有枪老太婆的例子，所以可以期待一下
 
+
+*****
+
+####  都谷捻柏  
+##### 11857#       发表于 2024-3-26 16:08
+
+<blockquote>exiaexa 发表于 2024-3-26 15:59
+一个被金时按着揍的红单
+
+说要去背刺一个  有不那么好用的特攻  全buff3t  的绿单是不是搞笑了点
+
+ ...</blockquote>
+主要这两都是单体仇，就感觉这么挨着前脚强化后脚出新卡的操作特别骚。
+
+*****
+
+####  exiaexa  
+##### 11858#       发表于 2024-3-26 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382595&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-3-26 16:08</a>
+
+主要这两都是单体仇，就感觉这么挨着前脚强化后脚出新卡的操作特别骚。 ...</blockquote>
+你是那种BX大优的时候也一定要上金时的红卡狂热信徒吗
+
+不是的话你担心个啥，架都打不到一起
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 11859#       发表于 2024-3-26 16:15
+
+<blockquote>exiaexa 发表于 2024-3-26 16:11
+你是那种BX大优的时候也一定要上金时的红卡狂热信徒吗
+
+不是的话你担心个啥，架都打不到一起
+
+ ...</blockquote>
+没，黑贞没有也没抽，就等哪次福袋摸一个，新伯爵也没准备抽，还在观望等待3000wdl 233
+

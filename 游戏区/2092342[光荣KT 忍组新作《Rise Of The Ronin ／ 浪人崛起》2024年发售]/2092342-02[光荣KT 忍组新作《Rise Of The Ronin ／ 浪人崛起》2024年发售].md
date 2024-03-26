@@ -8467,3 +8467,16 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 伊藤博文怎么开枪都没前摇的，还是个霰弹枪<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RinC  
+##### 2354#       发表于 2024-3-27 03:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388097&amp;ptid=2092342" target="_blank">土路生優里 发表于 2024-3-27 00:45</a>
+
+天然理心流意外的舒服， r1+三角的武技连红光都能抓取
+
+—— 来自 OnePlus KB2005, Android 14上的  ...</blockquote>
+缺点就在于没啥追击能力了 而且空精一但下意识抓了就亏了处决伤害了
+

@@ -7372,3 +7372,11 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Benighted  
+##### 2189#       发表于 2024-3-26 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这补丁的补丁啥时候能出，昨天要么是空投时跳出要么就是打5分钟突然黑屏回到船上没有提示，做完个人任务就下了
+

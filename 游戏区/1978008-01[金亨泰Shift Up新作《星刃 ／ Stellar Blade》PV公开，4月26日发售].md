@@ -249,3 +249,15 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 看了下商店为啥是d分级，我记得demo开头不就是断手吗，这不给个z版吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 415#       发表于 2024-3-26 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380960&amp;ptid=1978008" target="_blank">qiyu1234 发表于 2024-3-26 13:52</a>
+声音略微有点粗，Lynn?反正不是石川由依了</blockquote>
+蛮可惜的，希望效果能不错吧，莉莉的声音有点假小子的感觉（
+
+这个PV的源还是原本的英文源，就只把配音剪进去替换掉，难怪感觉有点违和感。
+

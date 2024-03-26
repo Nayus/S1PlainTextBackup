@@ -7480,3 +7480,34 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 视频倒是有：https://www.bilibili.com/video/BV1Bu4m1T7Jt  类星 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前看过了，我还以为是有什么最新消息暗示时间了
 
+
+*****
+
+####  FLZB  
+##### 2200#       发表于 2024-3-26 14:04
+
+类星体的强度看着一般其实，前摇和开火间隔超长，搞不好效率还不如EAT
+
+
+*****
+
+####  风萧飒  
+##### 2201#       发表于 2024-3-26 14:08
+
+类星体我觉得强度不算高，应该不如突击兵。那玩意是有四发弹药的eat，可以一发破强袭腿甲，打头什么效果还不太清楚。cd140s
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  丹德里恩  
+##### 2202#       发表于 2024-3-26 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64381020&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-3-26 13:58</a>
+
+之前看过了，我还以为是有什么最新消息暗示时间了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来是我火星了吗
+
+还有个舰内设施升级的  [https://www.bilibili.com/video/BV1c2421K7kn/](https://www.bilibili.com/video/BV1c2421K7kn/)
+

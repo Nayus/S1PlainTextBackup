@@ -8415,3 +8415,11 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 主线马上去江户了，我龙马的因缘等级还是1。他的支线任务我做了，也没刷出来新的任务。是需要我送礼才能解 ...</blockquote>
 一般刷好感度都是送礼，送礼可以一次性送多个直接塞爆<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misaki_d  
+##### 2348#       发表于 2024-3-27 01:38
+
+人均快慢刀加霸体，这游戏连战斗系统都不好玩了，只能给零分
+

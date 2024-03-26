@@ -13590,3 +13590,41 @@ file:///C:/Users/Y2296/AppData/Roaming/Tencent/QQ/Temp/TGE@TKRD0%7DG~OD_XIL%25X3
 
 跑舞台剧要只能演小场子就是标准的穷忙……在艾回也演了三年美频/还给塞了个新人奖，虽然rgr也啥大场子都没混上
 
+
+*****
+
+####  鳥栖朝  
+##### 14490#       发表于 2024-3-26 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64387230&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-03-26 23:02:53</a>
+3/25才是滿月，早過去了
+
+而且最新的小劇場設定人偶已經不需要在滿月才能行動了() ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 14491#       发表于 2024-3-26 23:56
+
+已经蹲了两天了，怎么还没有动静。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+你动啊。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 14492#       发表于 2024-3-27 00:01
+
+z8舅舅预言对了这个月有歌，是不是31前后就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/27/000130ns3k3jexfzsulffl.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (38.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 00:01 上传
+

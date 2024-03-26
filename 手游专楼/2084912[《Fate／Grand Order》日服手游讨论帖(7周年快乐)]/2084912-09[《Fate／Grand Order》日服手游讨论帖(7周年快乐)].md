@@ -262,3 +262,12 @@ Draco主要是方便吧
 拯救蓝卡迫在眉睫，阿叶我新蓝拐呢，别让我白抽了啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 11863#       发表于 2024-3-26 22:49
+
+说到蓝拐
+c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

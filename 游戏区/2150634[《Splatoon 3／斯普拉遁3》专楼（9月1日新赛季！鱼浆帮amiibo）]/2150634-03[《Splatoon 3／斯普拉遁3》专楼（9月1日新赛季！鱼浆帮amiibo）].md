@@ -7650,3 +7650,13 @@ https://youtu.be/ALvq3SY_49s?si=wjCRYB3MqcQDcYI5
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 3742#       发表于 2024-3-26 21:00
+
+把幸运炸弹和爆炸范围拉满了，结果8号球关变得巨折磨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

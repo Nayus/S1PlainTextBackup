@@ -822,3 +822,11 @@ TVアニメ「#SYNDUALITY Noir」
 <img src="https://p.sda1.dev/16/873e30eb6bbe2481ef961bcadcf4ade6/20240326_220931.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/1760a72353b1bcc4abbc48793dfe0d17/20240326_220932.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  無個性  
+##### 4514#       发表于 2024-3-26 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢谢要是能变成智能音响的话一定能获得幸福吧
+

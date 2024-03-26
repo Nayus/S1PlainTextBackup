@@ -8503,3 +8503,11 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 为什么这次没有拳套！我要打拳啊！！！打拳的手感挺不错的
 
+
+*****
+
+####  nagitoY  
+##### 2357#       发表于 2024-3-27 07:43
+
+这游戏真该出个训练场木桩的，手感这东西自己测才有意义啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

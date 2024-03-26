@@ -29,3 +29,18 @@
 
 个人觉得仇信尴尬的地方是buff虽然高，但需要一回合一回合叠上去。如果要快攻有更好的选择，打消耗战更加不需要她<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 11844#       发表于 2024-3-26 09:13
+
+nobu属于是如强
+最顶级神性特攻手，然而没对象打
+你放个赖光把大家都能打没卵用，六个神性尺子你放了又没几个人打得动，一般运营也不会选
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+尼托的话，1宝收藏得了，高自充的代价就是回收难崩，出现的最多的是低压本塞一个临时打手，然后道中很难出现人从者给你去打优势区间
+所以也是如强
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -542,3 +542,39 @@ TVアニメ「#SYNDUALITY Noir」
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">什么gpt-2
 
+
+*****
+
+####  novyDC  
+##### 4490#       发表于 2024-3-26 13:00
+
+动画游戏联动MV
+【【PROJECT SYNDUALITY】 R×R / DEPARTURES -Music Video--哔哩哔哩】 https://b23.tv/qCTCk3K
+
+<img src="https://img.saraba1st.com/forum/202403/26/130039n8mvmkkme0hyo3xd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-26-12-54-06-327_tv.danmaku.bili.jpg</strong> (436.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-26 13:00 上传
+
+<img src="https://img.saraba1st.com/forum/202403/26/130040u781vpqs7y7oc4y2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-03-26-12-54-46-590_tv.danmaku.bili.jpg</strong> (439.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-26 13:00 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oi99o  
+##### 4491#       发表于 2024-3-26 13:01
+
+好无聊啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+虽然诺娃开大是意料之中，但是演出也做得不怎么样，这个后日谈也颇有种小学生作文收尾的感觉。
+

@@ -7939,3 +7939,33 @@ okok，多谢两位。
 
 预购三个流派都通过游戏内进度攒到后才感慨这特典还蛮值的，毕竟唯一指定武器过于明显（选冷门一点长枪大剑开荒岂不是更难了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 2298#       发表于 2024-3-26 16:27
+
+ 本帖最后由 duraa 于 2024-3-26 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382785&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-26 16:20</a>
+
+主线的话应该是江户才有吧，我听说横滨有个晚上才开的到场，是那个么？ ...</blockquote>
+横滨久坂玄瑞的任务武人相遇做了就解锁道场了
+
+*****
+
+####  Emmerich  
+##### 2299#       发表于 2024-3-26 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382785&amp;ptid=2092342" target="_blank">斯托雷加 发表于 2024-3-26 16:20</a>
+
+主线的话应该是江户才有吧，我听说横滨有个晚上才开的到场，是那个么？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没啊 有个支线就是去道场看到好像是双刀哥还是谁在砸场子 把他干了就解锁道场了 完全没时间限制的
+
+
+*****
+
+####  浅醉微风  
+##### 2300#       发表于 2024-3-26 16:34
+
+克制这个事狂风接狂风切回来就是
+

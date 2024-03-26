@@ -8405,3 +8405,13 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 可以先杀赤鬼，这样可以早点拿义经流，然后再回忆里选不杀的世界线<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 2347#       发表于 2024-3-27 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64387685&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 23:51</a>
+主线马上去江户了，我龙马的因缘等级还是1。他的支线任务我做了，也没刷出来新的任务。是需要我送礼才能解 ...</blockquote>
+一般刷好感度都是送礼，送礼可以一次性送多个直接塞爆<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

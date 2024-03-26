@@ -1563,3 +1563,25 @@ Credit: @MysticRyan’s video for the screenshots.
 
 你把帧数锁个上限，CPU占用就下去了
 
+
+*****
+
+####  依存香炉  
+##### 334#       发表于 2024-3-27 01:08
+
+通了圣兽之王，想玩奥丁领域和龙之皇冠，提示这俩开了ps plus ultra就可以玩
+
+我订阅了ultra俩游戏入库，后面即使不再续费订阅，还能继续玩吗？
+
+
+*****
+
+####  糖然君  
+##### 335#       发表于 2024-3-27 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388210&amp;ptid=2173605" target="_blank">依存香炉 发表于 2024-3-27 01:08</a>
+通了圣兽之王，想玩奥丁领域和龙之皇冠，提示这俩开了ps plus ultra就可以玩
+
+我订阅了ultra俩游戏入库，后 ...</blockquote>
+不能
+

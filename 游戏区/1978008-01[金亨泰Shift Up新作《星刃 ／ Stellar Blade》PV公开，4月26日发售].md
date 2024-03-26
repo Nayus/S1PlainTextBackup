@@ -178,3 +178,11 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 日本PS BLOG的文章补上了英语语音了，这下欧美玩家不用二选一了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过日版还是少个德语
 
+
+*****
+
+####  ShiKi847  
+##### 408#       发表于 2024-3-26 12:08
+
+日版实体版也有中文字幕吗？
+

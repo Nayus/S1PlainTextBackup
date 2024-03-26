@@ -83,3 +83,13 @@ nobu属于是如强
 
 — from OnePlus KB2005, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  johnkamsar  
+##### 11848#       发表于 2024-3-26 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64378121&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-26 09:59</a>
+仇尼最幽默的还是那个固定即死率，现在要即死的地方标准基本上是按照道满的120%来的，这点上甚至不如术尼可 ...</blockquote>
+严格来说尼托alter需要被动20，不然不好整就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

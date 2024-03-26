@@ -7666,3 +7666,14 @@ okok，多谢两位。
 有送礼物攻略么
 或者怎么看人物礼物偏好啊
 
+
+*****
+
+####  duraa  
+##### 2269#       发表于 2024-3-26 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64379784&amp;ptid=2092342" target="_blank">jcwatm1 发表于 2024-3-26 12:06</a>
+有送礼物攻略么
+或者怎么看人物礼物偏好啊</blockquote>
+送礼页面礼物上有爱心的就是喜好物品<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

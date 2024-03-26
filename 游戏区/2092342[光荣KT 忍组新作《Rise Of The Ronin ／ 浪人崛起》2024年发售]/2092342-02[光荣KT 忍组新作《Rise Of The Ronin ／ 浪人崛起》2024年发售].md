@@ -8250,3 +8250,11 @@ okok，多谢两位。
 
 草，仁王流的奥义是居合，能搓背吗（做梦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 2331#       发表于 2024-3-26 23:34
+
+加入了新选组突然空降一堆不认识的新角色，对不起了倒幕派，我要新的好感度奖励。
+

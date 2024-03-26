@@ -271,3 +271,11 @@ Draco主要是方便吧
 说到蓝拐
 c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11864#       发表于 2024-3-26 23:35
+
+主线锁助战的黑贞没打强化本啊，不如让人上自己的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

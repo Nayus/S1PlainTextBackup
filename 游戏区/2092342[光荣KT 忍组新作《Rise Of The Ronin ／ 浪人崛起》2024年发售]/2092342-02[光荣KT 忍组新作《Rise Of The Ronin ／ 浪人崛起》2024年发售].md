@@ -7534,3 +7534,23 @@ okok，多谢两位。
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  duraa  
+##### 2255#       发表于 2024-3-26 10:44
+
+能不能攻略忘了，到第二章结束算上死人和aibo大概10个妹子吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（死人，猫娘，aibo，鞭子女，女医生，龙马相关2，双刀哥老婆，武士女，公主
+
+*****
+
+####  BadYanL  
+##### 2256#       发表于 2024-3-26 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64378604&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-26 10:34</a>
+
+话说有几个妹子可以攻略？第一章我现在只碰到两个</blockquote>
+我第二章快结束，有9个妹子，4个能攻略。
+
+目测不能做黄毛。
+

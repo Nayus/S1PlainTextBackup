@@ -793,3 +793,32 @@ XB2去时，不见其比
 
 作为游戏后传来说就只解决了lowb反派 异形问题还是得靠游戏男主解决 唉可惜动画的人设了
 
+
+*****
+
+####  Piano-Forest  
+##### 4513#         楼主| 发表于 2024-3-26 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64375866&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2024-3-25 23:42</a>
+
+TVアニメ「#SYNDUALITY Noir」
+
+2クール全24話ご視聴頂き
+
+ありがとうございました✨</blockquote>
+[https://twitter.com/popopopoow/status/1772286922871771218](https://twitter.com/popopopoow/status/1772286922871771218)
+
+#SYNDUALITY　最終話
+
+微量で恐縮ですが、作監補で参加しました
+
+最後に笑顔のシエルちゃん描く機会貰えて良かったです…！
+<img src="https://p.sda1.dev/16/e733632ce77fef81a32141d2c76c56ad/20240326_220923.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/e854f50f4819a9af486ce2aa0f5fa402/20240326_220925.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/44154259e2c910b23edc9361ebf73abd/20240326_220926.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/1eb9d72d5bcfaa91e8318c5393a7f135/20240326_220927.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/16/f582dc40d3096cc4d68319ffe1edf70c/20240326_220930.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/873e30eb6bbe2481ef961bcadcf4ade6/20240326_220931.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/1760a72353b1bcc4abbc48793dfe0d17/20240326_220932.jpg" referrerpolicy="no-referrer">
+

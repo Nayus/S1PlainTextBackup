@@ -13460,3 +13460,16 @@ file:///C:/Users/Y2296/AppData/Roaming/Tencent/QQ/Temp/TGE@TKRD0%7DG~OD_XIL%25X3
 总算把mygo看了 但这动画太多东西没讲了
 睦为什么觉得玩乐队不快乐是一点没说啊
 
+
+*****
+
+####  ddy2811  
+##### 14477#       发表于 2024-3-26 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64386000&amp;ptid=2159415" target="_blank">小田切宁宁 发表于 2024-3-26 21:00</a>
+
+总算把mygo看了 但这动画太多东西没讲了
+
+睦为什么觉得玩乐队不快乐是一点没说啊 ...</blockquote>
+睦为什么不开心应该在Mujica会讲，现在主要的猜测是因为家中压力没有自我、只是陪祥子没有对乐队认同感、预见了乐队和祥子的结局、音乐性不合等几种<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

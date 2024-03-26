@@ -7596,3 +7596,11 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  smdzh2  
+##### 2211#       发表于 2024-3-26 20:12
+
+还有这种bug？超级信球的武器未经测试直接量产投入前线实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

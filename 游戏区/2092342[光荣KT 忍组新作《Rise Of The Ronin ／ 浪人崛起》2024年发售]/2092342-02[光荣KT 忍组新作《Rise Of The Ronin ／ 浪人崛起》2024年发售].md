@@ -7616,3 +7616,53 @@ okok，多谢两位。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">笑死，进第二章才发现我把架势优势搞反了，之前还以为是忍流派是全优势打，拿劣势架势打了一整章
 
+
+*****
+
+####  Kojimaru  
+##### 2264#       发表于 2024-3-26 11:59
+
+第二章结束一共玩了35h，支线全做但地图基本没碰。数了下有交集的角色快50个了，怪不得说是幕末大作，吓人。
+
+对于我这种路人来说，剧情堆料还是不够<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">差口气
+
+*****
+
+####  Kojimaru  
+##### 2265#       发表于 2024-3-26 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64378898&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 10:57</a>
+
+主线任务会有冲突是吧？我看了下接受村山多加的交易，就没法帮助桂小五郎暗杀哈里斯。
+
+我倾向于帮助倒幕派 ...</blockquote>
+不用怕，因为阵营选择导致无法完成的羁绊任务都能到下一个地图用回溯补
+
+
+*****
+
+####  Yeelolo  
+##### 2266#       发表于 2024-3-26 12:02
+
+剧情真是不能细看，开头刺杀马修，结果进了第一章马修大手一挥不计前嫌怎么想都觉得别扭，后面福泽谕吉的支线碰到前面任务的同伴大打出手后，再做一个支线突然又原谅主角了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这左右横跳突出一个奇怪
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2267#       发表于 2024-3-26 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64378937&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-26 11:00</a>
+
+不了解幕末历史，目前看来佐幕派是“汉奸”？而倒幕派则是本土的抵抗组织？ ...</blockquote>
+倒幕派其实内部成分非常复杂，除了倒幕的共同目的之外其他不同派别都不太一样，有一部分是纯粹的顽固本土派分子、仇视一切外来文化；有一部分是仇视德川幕府及其相关制度，想在乱世大展手脚、分一杯羹；还有一部分是向往西学，希望彻底学习西方文化制度来追上列强。
+
+*****
+
+####  jcwatm1  
+##### 2268#       发表于 2024-3-26 12:06
+
+有送礼物攻略么
+或者怎么看人物礼物偏好啊
+

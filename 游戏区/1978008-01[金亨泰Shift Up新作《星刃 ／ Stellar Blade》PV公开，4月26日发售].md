@@ -186,3 +186,13 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 日版实体版也有中文字幕吗？
 
+
+*****
+
+####  今天不守尸  
+##### 409#       发表于 2024-3-26 12:18
+
+锅盖头在棒子那是啥帅哥美女的标配吗，感觉韩漫韩游里主角都是锅盖头，真的难看啊。。。
+用第一个pv里的发型不好吗
+<img src="https://s2.loli.net/2024/03/26/pgv3tEG28Rd7BH6.png" referrerpolicy="no-referrer">
+

@@ -93,3 +93,22 @@ nobu属于是如强
 仇尼最幽默的还是那个固定即死率，现在要即死的地方标准基本上是按照道满的120%来的，这点上甚至不如术尼可 ...</blockquote>
 严格来说尼托alter需要被动20，不然不好整就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 11849#       发表于 2024-3-26 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64378121&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-3-26 09:59</a>
+
+仇尼最幽默的还是那个固定即死率，现在要即死的地方标准基本上是按照道满的120%来的，这点上甚至不如术尼可 ...</blockquote>
+現在前半就是靠仇信(一寶)來清場，能自充30，配合雙C狐又能及時CD再用，算是方便得多
+
+雖然是仇職主場
+
+但仇信前提還是要弟弟開局自殺疊多一層BUFF，否則雙C狐火力還是間中不足
+
+而前期經常見到有神性的仇尼，打得算輕鬆
+
+信勝的缺點，就是要綁一隻突滿寶石翁...你給我自充30，就可省多些少COST
+

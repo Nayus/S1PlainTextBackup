@@ -7677,3 +7677,29 @@ okok，多谢两位。
 或者怎么看人物礼物偏好啊</blockquote>
 送礼页面礼物上有爱心的就是喜好物品<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  popchong  
+##### 2270#       发表于 2024-3-26 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64379734&amp;ptid=2092342" target="_blank">Yeelolo 发表于 2024-3-26 12:02</a>
+
+剧情真是不能细看，开头刺杀马修，结果进了第一章马修大手一挥不计前嫌怎么想都觉得别扭，后面福泽谕吉的支 ...</blockquote>
+我记得好像是因为开头刺杀到脱藩过了3年还是5年，叙事非常跳跃，不看年表和人物资料根本不明白
+
+*****
+
+####  kuker53  
+##### 2271#       发表于 2024-3-26 12:19
+
+剧情不要深究，好几个重要人物都能救活，if世界线了属于是
+
+
+*****
+
+####  banjia0815  
+##### 2272#       发表于 2024-3-26 12:24
+
+剧情主要还是铺垫太少了吧，整体还是不错的，哪怕我也完全不懂幕府历史，参考我朝近代史很容易理解。不过感觉倒幕派这边，吉田松阴这个角色说噶就噶了，之前花絮里第一集安田还搁那吹，游戏里完全没体现出来他的光辉形象，就是不怕死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -7969,3 +7969,13 @@ okok，多谢两位。
 
 克制这个事狂风接狂风切回来就是
 
+
+*****
+
+####  duraa  
+##### 2301#       发表于 2024-3-26 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382546&amp;ptid=2092342" target="_blank">wiig 发表于 2024-3-26 16:05</a>
+可以和aibo结婚吗幕末妹相随</blockquote>
+据说不行（估计算亲人的原因吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

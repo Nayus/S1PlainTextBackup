@@ -706,3 +706,21 @@ XB2去时，不见其比
 
 导演对光头爱的太深沉了，虽然片子里都渗出来了，但访谈、广播都直言不畏完全没藏的意思
 
+
+*****
+
+####  不灭的旋律  
+##### 4505#       发表于 2024-3-26 20:50
+
+只能说完结撒花了。不过作为萝卜片比隔壁勇气爆发更合格一点（虽然那边还剩最终话）
+
+*****
+
+####  aptx8285144  
+##### 4506#       发表于 2024-3-26 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64385880&amp;ptid=2092345" target="_blank">不灭的旋律 发表于 2024-3-26 20:50</a>
+
+只能说完结撒花了。不过作为萝卜片比隔壁勇气爆发更合格一点（虽然那边还剩最终话） ...</blockquote>
+看了看主吧，有说法是负责画cg的成员们已经吃不消了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，只能说这年头搞tv萝卜战还能始终自信从容的，业界一只手都能数的出来
+

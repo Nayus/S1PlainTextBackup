@@ -639,3 +639,11 @@ XB2去时，不见其比
 
 还得感谢威斯这家伙有点自知之明，才有个在宇宙里等死的结局，战斗演出中等吧，不如上周激烈，换了个发型的艾女士美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，麻烦山本监督下次找个好一点的系列构成再好好合计一下，不要幻想着消费哪个角色写剧情，回收伏笔和支线这些基本工作虽然合格了，但是在往上就没啥太多的惊喜了，靠着演出者们的努力才算维持着还可以的演出，结果被脑残的21话毁了很多观感，最后也就是收拾残局一样的心态打完了大反派
 
+
+*****
+
+####  765事务所  
+##### 4498#       发表于 2024-3-26 15:55
+
+系构可以找一下独角兽老师<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

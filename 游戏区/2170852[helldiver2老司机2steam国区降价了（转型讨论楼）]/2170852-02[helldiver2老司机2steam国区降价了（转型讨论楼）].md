@@ -7550,3 +7550,15 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 样本地狱就样本地狱，现在样本满了都不想拿
 
+
+*****
+
+####  风萧飒  
+##### 2207#       发表于 2024-3-26 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64382062&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-3-26 15:22</a>
+类星体已经加强到一发能干死强袭了</blockquote>
+但是三秒蓄力和十秒冷却用起来不见得好用，突击兵这种能破腿甲也能打死了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -853,3 +853,13 @@ TVアニメ「#SYNDUALITY Noir」
 —— 来自 Xiaomi M2012K11AC, And ...</blockquote>
 那应该把时生当成真·男主看待吗<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  charlespfan  
+##### 4517#       发表于 2024-3-27 00:48
+
+时生真男主，歌姬真女主，感觉没毛病（）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

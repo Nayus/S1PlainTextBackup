@@ -8375,3 +8375,25 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 —— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  黑色的js  
+##### 2344#       发表于 2024-3-27 00:47
+
+<blockquote>MuramasaSP 发表于 2024-3-26 23:49
+有留魂录是不是可以随便选剧情选项啊，刚把赤鬼杀了不知道会不会错过啥东西。
+
+—— 来自 HONOR AGT-AN00,  ...</blockquote>
+有留魂录可以在家里传回去改剧情，不杀赤鬼后期可以和青鬼组队来着
+
+*****
+
+####  黑色的js  
+##### 2345#       发表于 2024-3-27 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64387158&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-26 22:54</a>
+
+问下多加能活吗？我这推着推着好不容易谈上恋爱了，春宵一夜才过了一个过场人就没了救不活我都没动 ...</blockquote>
+没救，我刚跟人家因缘四级结果就g了，给她拍照片的时候就感觉不对<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">：
+

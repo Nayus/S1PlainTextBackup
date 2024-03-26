@@ -8480,3 +8480,14 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 —— 来自 OnePlus KB2005, Android 14上的  ...</blockquote>
 缺点就在于没啥追击能力了 而且空精一但下意识抓了就亏了处决伤害了
 
+
+*****
+
+####  一见大吉  
+##### 2355#       发表于 2024-3-27 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388393&amp;ptid=2092342" target="_blank">土路生優里 发表于 2024-3-27 02:01</a>
+
+请教下这代混沌怎么上的快啊，磨刀石a半天上不了异常，好不容易上了一个，上第二个又要半天，然后就蓄不上 ...</blockquote>
+用双刀二天一流的武技——彼岸萤，磨刀石上一个属性，武技自身可以上火。
+

@@ -9502,3 +9502,13 @@ https://tieba.baidu.com/p/8948782099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">后面还有经典的一打三boss战
 
+
+*****
+
+####  土路生優里  
+##### 2458#       发表于 2024-3-28 01:21
+
+彼岸萤的强度有点离谱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

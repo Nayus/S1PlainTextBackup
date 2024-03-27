@@ -9512,3 +9512,13 @@ https://tieba.baidu.com/p/8948782099
 
 —— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  bwsusaga  
+##### 2459#       发表于 2024-3-28 01:46
+
+进江户多加就没了……
+
+好感度还没满，还有机会补么？
+

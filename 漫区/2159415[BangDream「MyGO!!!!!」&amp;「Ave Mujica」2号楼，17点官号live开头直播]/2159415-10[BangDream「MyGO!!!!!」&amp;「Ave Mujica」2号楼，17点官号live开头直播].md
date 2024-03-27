@@ -13844,3 +13844,12 @@ dj找了个专业吉他手，很难相信不是在给邦做预备役</blockquote
 
 看着海日微博下面的评论感觉像回到了以前看某个管人团体的时候
 
+
+*****
+
+####  Mr.Giraffe  
+##### 14510#       发表于 2024-3-28 00:33
+
+重温奈叶时偶然看见的，不知有没有关联……<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/ced2bad1eebf3ff700db2fe977786c88/Snipaste_2024-03-28_00-31-38.png" referrerpolicy="no-referrer">
+

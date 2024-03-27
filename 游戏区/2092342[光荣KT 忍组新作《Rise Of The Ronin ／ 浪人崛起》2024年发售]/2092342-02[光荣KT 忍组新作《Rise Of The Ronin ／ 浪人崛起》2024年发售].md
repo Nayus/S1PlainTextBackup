@@ -9448,3 +9448,20 @@ https://tieba.baidu.com/p/8948782099
 
 打到京都了还是无法跟一打多时的右摇杆烈风和解<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2452#       发表于 2024-3-28 00:36
+
+<blockquote>[ 松风君 replied on 2024-3-28 00:01](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399587&amp;ptid=2092342) 打到京都了还是无法跟一打多时的右摇杆烈风和解 </blockquote>
+太容易误触r3了。
+单boss的情况下用烈风也有可能解除锁定<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  operatbig  
+##### 2453#       发表于 2024-3-28 00:36
+
+只有一个结局吗？
+

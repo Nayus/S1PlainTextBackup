@@ -805,3 +805,19 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 就突出一个怎么难受怎么来
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11906#       发表于 2024-3-27 21:03
+
+ 本帖最后由 シャル 于 2024-3-27 21:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64396748&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-27 19:31</a>
+
+老男人真的是惨，从出场到退场都只是道满的bot。召唤出的才是他从者的实态 ...</blockquote>
+迦勒底这个才正常性格
+
+其实很强的，如果通常圣杯战争叫出来赢的可能很大<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+又是能变职介，又是能让敌人相信自己是伙伴，又是能改圣杯战争规则，本人又很难打死
+

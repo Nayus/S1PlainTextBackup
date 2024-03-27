@@ -559,3 +559,59 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好！
 
+
+*****
+
+####  qixinno2  
+##### 11886#       发表于 2024-3-27 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64395152&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-27 17:04</a>
+
+好！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是狗萌新 欧羡慕 我毛都没出
+
+
+*****
+
+####  Jamaisvu  
+##### 11887#       发表于 2024-3-27 17:11
+
+<img src="https://img.saraba1st.com/forum/202403/27/171049vepizqa33yjwez9t.jpg" referrerpolicy="no-referrer">
+
+<strong>3E4CD40337DB515A2C90671B73A6B1DB.jpg</strong> (361.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-27 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202403/27/171049ny18mfswbaaqg0va.jpg" referrerpolicy="no-referrer">
+
+<strong>1028D685A17CA525494FB01871A9F8B6.jpg</strong> (334.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-27 17:10 上传
+
+两位伯爵这盛世美颜太赞啦！抽抽抽！
+
+*****
+
+####  ——啧  
+##### 11888#       发表于 2024-3-27 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64395132&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-27 17:02</a>
+
+我是这么理解的
+
+你可以把前22节理解为，伯爵给立香设计的一个给人理看的“自证”</blockquote>
+所以才说这逻辑乱七八糟的，全家都寄了，但你不能想着复仇，也不能以复仇为驱动力来鼓励自己，什么圣母人理
+
+*****
+
+####  保罗赫伯特  
+##### 11889#       发表于 2024-3-27 17:13
+
+白毛伯爵满破还不错啊，真的是侧脸专精<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

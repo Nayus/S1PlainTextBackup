@@ -280,3 +280,13 @@ Q娃内战 我已经举办东映了<img src="https://static.saraba1st.com/image/
 但是考虑到变人后肉球 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">喵~
 
+
+*****
+
+####  没钱买手办  
+##### 1250#       发表于 2024-3-27 22:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">买了十几张CD抽live票发现一张碟只能抽一场的
+
+有没有要CD的朋友可以免费送
+

@@ -9136,3 +9136,15 @@ https://tieba.baidu.com/p/8948782099
 
 昨天刚到，这大地图完全没有玩的欲望啊。。。。kt你咋回事呢
 
+
+*****
+
+####  土路生優里  
+##### 2419#       发表于 2024-3-27 19:50
+
+通关了，还差一个盟友没有入队<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+楼里有全收集大哥可以发一个盟友列表吗？
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

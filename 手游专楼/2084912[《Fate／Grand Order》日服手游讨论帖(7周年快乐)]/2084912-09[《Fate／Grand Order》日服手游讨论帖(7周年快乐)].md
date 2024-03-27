@@ -351,3 +351,64 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 更别说以西哥为代表的超级特攻暴力单体输出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  areklose  
+##### 11872#       发表于 2024-3-27 11:45
+
+ 本帖最后由 areklose 于 2024-3-27 11:49 编辑 
+
+主要是当时黑贞暴击伤害很逆天了。再加上梅林这个拐更是飞上天。宝具打出来的伤害根本比不上暴击。当时蓝卡队磨半天不如黑贞一套暴击带走。但是多血条完全改变了当时的环境了。而不是单纯后面出的新从者比黑贞强。而天草这个例子就是单纯后面新从者比他强了。天草为啥能从下水道爬上来。不是当时强化本不停给吗？我记得当时天草的宝具本+强化本的数量差不多你游第一了。至于拿2024年的无限制血条来比较，但那时候多血条可是17年初实装啊。你拿24年的和17年的环境做比较？
+
+*****
+
+####  exiaexa  
+##### 11873#       发表于 2024-3-27 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64391347&amp;ptid=2084912" target="_blank">areklose 发表于 2024-3-27 11:45</a>
+
+主要是当时黑贞暴击伤害很逆天了。再加上梅林这个拐更是飞上天。宝具打出来的伤害根本比不上暴击。当时蓝卡 ...</blockquote>
+跟强化本真没多少关系
+
+那时候天草就是独一档的，带个黑杯清高难，然后宝具本一出继续清高难
+
+因为那时候对面BUFF没有框，然后血量在10w出头
+
+你自己去翻天草之后落地的都是什么牛鬼蛇神，就一个没宝具本，oc是出星率的赖光
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 11874#       发表于 2024-3-27 11:54
+
+ 本帖最后由 exiaexa 于 2024-3-27 11:55 编辑 
+
+至于送黑贞下班的，是因为高难了变成光炮大战
+
+被多学条影响吃屎的又不是你一个人
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+因为多血条是151出的
+
+然而下一个能完美替代她的暴击打手是谁呢，是2.5的俄里翁
+
+至于之前为什么不是BX，因为斯卡蒂2.2才落地，难道黑贞是2.2才下班的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 11875#       发表于 2024-3-27 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64391417&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-3-27 11:50</a>
+
+跟强化本真没多少关系
+
+那时候天草就是独一档的，带个黑杯清高难，然后宝具本一出继续清高难
+
+因为那时候对 ...</blockquote>
+那时候的高难我都忘记了。我只记得那个巨大茨木童子了。但无论怎样说。当年多血条是影响黑贞德的输出上限了。抬高了蓝卡单体打高难的地位。至少改变了高难被黑贞一套暴击带走，蓝卡还要磨几个回合的场景
+

@@ -9419,3 +9419,16 @@ https://tieba.baidu.com/p/8948782099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky7913  
+##### 2449#       发表于 2024-3-27 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399170&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 23:23</a>
+
+进江户后要重新买马？
+
+好像是市区内不让骑马？</blockquote>
+不需要重新买，部分地区不能骑马而已
+

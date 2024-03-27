@@ -1012,3 +1012,14 @@ TVアニメ「#SYNDUALITY Noir」
 牢谢的day dream上流媒体了，写着牢谢版本，咋地， ...</blockquote>
 听了Your Song就能预见到4月发售的插曲cd里古贺葵翻唱的青山渚其他几首歌，会是多么违和诡异了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4530#       发表于 2024-3-27 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64392179&amp;ptid=2092345" target="_blank">renkan119 发表于 2024-3-27 12:52</a>
+
+主要因为动画的定位其实算外传吧 很多东西其实应该是留给本篇的 不过本篇还不知道在哪 先放个外传动画的 ...</blockquote>
+问题是它那“本篇”也不是3A 单机而是全程联网的游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+

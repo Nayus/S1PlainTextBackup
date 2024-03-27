@@ -7657,3 +7657,23 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 是什么情况
 
+
+*****
+
+####  xinfengj  
+##### 2216#       发表于 2024-3-27 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399230&amp;ptid=2170852" target="_blank">ロス 发表于 2024-3-27 23:28</a>
+
+帮朋友问一下：</blockquote>
+先重新装下显卡驱动，不行的话把内存条插拔一下再开机试试。
+
+*****
+
+####  smdzh2  
+##### 2217#       发表于 2024-3-27 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399230&amp;ptid=2170852" target="_blank">ロス 发表于 2024-3-28 00:28</a>
+帮朋友问一下：</blockquote>
+有没有可能是硬件问题，拔插内存条试试
+

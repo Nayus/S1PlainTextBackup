@@ -7730,3 +7730,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，拉克丝都40级了
 
+
+*****
+
+####  Aeons  
+##### 2223#       发表于 2024-3-28 03:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399690&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-3-28 00:13</a>
+现在机器人九级野队根本玩不了，上来连死几次就退，带着其他人一起退，真的废物 ...</blockquote>
+真玩不了一点，最近全服任务，刚看了打机器人的比打虫还多，想碰到会一点的都难，有的真是纯送。
+

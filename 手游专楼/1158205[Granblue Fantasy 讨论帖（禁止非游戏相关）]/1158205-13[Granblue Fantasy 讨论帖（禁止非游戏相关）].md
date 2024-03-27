@@ -246,3 +246,14 @@ low王哪怕是之前也比不过高配方阵吧，前者就插几个lm可能还
 
 有一说一，就方阵2.0以来这更新速度，我觉得3.0可能是方阵未来3年最爽的一年或者一年半。
 
+
+*****
+
+####  exiaexa  
+##### 17838#       发表于 2024-3-27 15:16
+
+能农还是尽快农吧，才过了两天就降速明显
+
+早上甚至还翻了一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

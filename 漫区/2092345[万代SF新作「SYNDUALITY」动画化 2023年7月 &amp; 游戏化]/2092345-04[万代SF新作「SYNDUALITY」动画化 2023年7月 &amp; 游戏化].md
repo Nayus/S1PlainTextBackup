@@ -904,3 +904,22 @@ TVアニメ「#SYNDUALITY Noir」
 那应该把时生当成真·男主看待吗</blockquote>
 时雄其他都还好，对威斯这个最后的“兄弟情”我还是有些绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，马哈特也就算了，你自己打小就知道那个人的德性，还心软个P
 
+
+*****
+
+####  aptx8285144  
+##### 4522#       发表于 2024-3-27 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388230&amp;ptid=2092345" target="_blank">kkl12355 发表于 2024-3-27 01:12</a>
+
+直接设计成男女主就是非常经典的配置，再加上与假面和BOSS间的“基情”，多么成熟王道的剧本，没水平就不 ...</blockquote>
+和BOSS之间的“基情”可不是那么好写的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，马哈特被蛊惑太深也就算了，时雄从小就知道威斯什么德性，还心软个P，的亏威斯自己心里有数，否则真留下了，上周已经咬牙切齿地怒斥不可原谅的诺娃就尴尬了
+
+
+*****
+
+####  AkaiSuisei  
+##### 4523#       发表于 2024-3-27 08:53
+
+鸭志田我日死你的马，day dream是这片里我最喜欢的一首歌，本来想着收藏了结果最后你给写成给kaji唱的摇篮曲了，这片最后的正面印象也要彻底抹消是吧，-2了
+

@@ -7684,3 +7684,21 @@ https://youtu.be/ALvq3SY_49s?si=wjCRYB3MqcQDcYI5
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草看直播回放奶啤居然播了7个小时，这赛季是打了鸡血吗这么拼
 
+
+*****
+
+####  罗克萨斯  
+##### 3746#       发表于 2024-3-27 19:58
+
+ 本帖最后由 罗克萨斯 于 2024-3-27 20:01 编辑 
+
+来人帮我复盘下这把到底要怎么赢？我已经尽心尽力了，还是被KO
+
+RAP6-PDSB-NTTH-G90S
+
+不知道换成奶狗拉是不是能赢，反正我是完全带不动，太难太难了，必输局么？
+
+两个摇杆都漂了，不过影响应该不至于很大，新手柄明天就到，手里这个我找时间自己修下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

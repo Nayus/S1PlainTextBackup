@@ -14385,3 +14385,21 @@ db859af78809328623327fbea0adfce7.jpg
 
 天才对其他事腻了挑战需要自己欠缺体力的偶像还行，前几周人均外热内冷真麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lunaticfool  
+##### 2911#       发表于 2024-3-27 19:57
+
+<img src="https://p.sda1.dev/16/25221f113af2dc04d899aee831f6776c/1711540489976.jpg" referrerpolicy="no-referrer">有一种数值怪的美
+
+
+*****
+
+####  Unlight  
+##### 2912#         楼主| 发表于 2024-3-27 20:03
+
+居然是苍系正统数字（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

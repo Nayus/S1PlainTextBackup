@@ -79,3 +79,13 @@ new了bba，还可以至少好看
 
 大番茄 嘛 至少是new
 
+
+*****
+
+####  溯夜  
+##### 46245#       发表于 2024-3-27 19:59
+
+才发现bba连个正经强化都没混到，这么惨
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

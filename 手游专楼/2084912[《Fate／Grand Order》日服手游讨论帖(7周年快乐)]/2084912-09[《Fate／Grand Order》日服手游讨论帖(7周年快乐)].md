@@ -762,3 +762,35 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 老男人真的是惨，从出场到退场都只是道满的bot。召唤出的才是他从者的实态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 11904#       发表于 2024-3-27 19:57
+
+ 本帖最后由 Jamaisvu 于 2024-3-27 19:59 编辑 
+
+以前异星使徒只有三人时，因为道满的绿宝具和村正的蓝宝具，导致我一直奶麻婆可能是红宝具<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+没想到现在一看不合群的是某道化师啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202403/27/195310l2d1zc1tpkt0mgxa.png" referrerpolicy="no-referrer">
+
+<strong>1711540221914.png</strong> (337.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 19:53 上传
+
+另外异星之神大总统也是蓝宝具，如果是光炮的话那就是恶性化身和侦探不合群：
+
+<img src="https://img.saraba1st.com/forum/202403/27/195632d0paawpv0rccqkta.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240327_195519.jpg</strong> (33.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 19:56 上传
+
+（要是大总统落地是第一个彩框六星就可以解释伯爵的四星是怎么回事了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">）
+

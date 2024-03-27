@@ -9025,3 +9025,17 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我捏的像我最近看过的一个3D黄鳗里的女主
 
+
+*****
+
+####  Moltres.lv70  
+##### 2407#       发表于 2024-3-27 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64394233&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 15:54</a>
+https://tieba.baidu.com/p/8948782099
+
+贴吧这位的捏脸也太美了，特别是阿秀和义勇兵。</blockquote>
+下庭太短了 拒绝幼态审美
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+

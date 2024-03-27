@@ -682,3 +682,13 @@ md老伯爵又沉船了
 
 伯爵和老男人都出货了，虽然说伯爵上90级不需要新素材，但技能上第九级需要，NND<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 11896#       发表于 2024-3-27 17:53
+
+66抽来了个双簧伯爵，要给fgo当一个月gay佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

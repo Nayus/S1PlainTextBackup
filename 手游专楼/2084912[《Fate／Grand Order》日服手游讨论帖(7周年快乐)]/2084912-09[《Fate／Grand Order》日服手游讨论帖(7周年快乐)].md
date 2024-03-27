@@ -465,3 +465,26 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑贞那时候 连多血条都没吧？
 
+
+*****
+
+####  exiaexa  
+##### 11881#       发表于 2024-3-27 14:59
+
+ 本帖最后由 exiaexa 于 2024-3-27 15:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64393288&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-27 14:43</a>
+
+黑贞那时候 连多血条都没吧？</blockquote>
+黑贞落地是刚过1.5，然后接FZ联动，再接着就是大家最喜欢的鬼岛
+
+只是当时骑金时实在是太强了，没什么风头
+
+然后就是梅林落地，但是柱子战被高光又又又被金时抢了
+
+至于为什么黑贞厨一直怀念600w，是因为梅林落地后，鬼岛和罗生门连续复刻，算是最后的高光
+
+毕竟骑金时再猛也不如梅林的爆发，更何况鬼岛自带出星礼装
+
+当时唯一能跟黑贞对轰的应该只有魔性特攻的罗大爷
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

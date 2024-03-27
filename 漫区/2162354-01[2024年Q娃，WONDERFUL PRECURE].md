@@ -267,3 +267,16 @@ Q娃内战 我已经举办东映了<img src="https://static.saraba1st.com/image/
 
 但是考虑到变人后肉球就没了，我不建议猫变人
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1249#       发表于 2024-3-27 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64391081&amp;ptid=2162354" target="_blank">キュアリズム 发表于 2024-3-27 11:26</a>
+
+我懂，我懂，我们这的白猫也是无敌可爱肉球柔软细划超级治愈欲仙欲死求死不能的那种
+
+但是考虑到变人后肉球 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">喵~
+

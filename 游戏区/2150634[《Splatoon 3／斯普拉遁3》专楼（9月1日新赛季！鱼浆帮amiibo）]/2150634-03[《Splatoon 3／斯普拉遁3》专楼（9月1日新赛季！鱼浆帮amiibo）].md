@@ -7676,3 +7676,11 @@ https://youtu.be/ALvq3SY_49s?si=wjCRYB3MqcQDcYI5
 
 之前久没打了有点折磨，连手柄都不会拿了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3745#       发表于 2024-3-27 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草看直播回放奶啤居然播了7个小时，这赛季是打了鸡血吗这么拼
+

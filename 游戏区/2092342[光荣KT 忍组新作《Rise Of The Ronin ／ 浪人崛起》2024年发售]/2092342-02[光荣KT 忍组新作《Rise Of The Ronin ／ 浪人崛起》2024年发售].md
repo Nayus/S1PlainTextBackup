@@ -9039,3 +9039,21 @@ https://tieba.baidu.com/p/8948782099
 
 —— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+*****
+
+####  Akari  
+##### 2408#       发表于 2024-3-27 16:37
+
+有些人有一夜过去，有些人没有（主要是女性）。
+
+我已经通关，所以笃姬、千叶、文需要我换性别为男人？
+
+
+*****
+
+####  洛克萨斯  
+##### 2409#       发表于 2024-3-27 16:43
+
+我看有人对着doa那边捏了，光荣这套还是可以<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

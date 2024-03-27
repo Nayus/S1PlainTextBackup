@@ -893,3 +893,14 @@ TVアニメ「#SYNDUALITY Noir」
 
 怀疑是鸭田故意迫害谢尔的，什么都给🐮了，还不停拿出来回忆鞭尸。
 
+
+*****
+
+####  aptx8285144  
+##### 4521#       发表于 2024-3-27 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388048&amp;ptid=2092345" target="_blank">嘴上名作粉碎锤 发表于 2024-3-27 00:37</a>
+
+那应该把时生当成真·男主看待吗</blockquote>
+时雄其他都还好，对威斯这个最后的“兄弟情”我还是有些绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，马哈特也就算了，你自己打小就知道那个人的德性，还心软个P
+

@@ -7633,3 +7633,27 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 —— 来自 OnePlus PJA110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ロス  
+##### 2215#       发表于 2024-3-27 23:28
+
+<img src="https://img.saraba1st.com/forum/202403/27/232738aa4adlzd82rdwdra.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240327232547.png</strong> (15.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 23:27 上传
+
+帮朋友问一下：
+
+游戏打开就黑屏然后闪退，弹这个错误是什么情况
+
+昨天还能玩的，今天打开游戏就这样了，重启重下游戏都试过了没用
+
+试过加入好友的邀请，好友这显示我上线加入房间了，但是我这还是黑屏，闪退后好友这显示我已超时
+
+是什么情况
+

@@ -9401,3 +9401,21 @@ https://tieba.baidu.com/p/8948782099
 
 进江户后要重新买马？
 
+
+*****
+
+####  duraa  
+##### 2447#       发表于 2024-3-27 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398804&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 22:49</a>
+
+双boss没法打啊。大老和青鬼两个性能句强的boss，我方完全没手段应对。从屏幕外面飞来的攻击怎么躲？ ...</blockquote>
+这代带队友打多boss的时候，你把其中一个拉走，另外一个boss基本不会过来掺和
+
+*****
+
+####  lazycat233  
+##### 2448#       发表于 2024-3-27 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

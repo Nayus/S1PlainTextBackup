@@ -8891,3 +8891,15 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 龙马真该死啊！到处留情，还躲着人家去吉原逛，玛德， ...</blockquote>
 阿龙一出场没有cp我还以为可攻略，结果原来是龙马的史实妻子，有种bss的感觉了
 
+
+*****
+
+####  土路生優里  
+##### 2395#       发表于 2024-3-27 14:40
+
+ 本帖最后由 土路生優里 于 2024-3-27 14:42 编辑 
+
+原来我们浪人崛起也有自己的江表三老登啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">   
+
+还有斋藤一的性能怎么那么牛逼，打到现在唯一一个卡住的boss
+

@@ -8580,3 +8580,16 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 这游戏实体版是不是出了什么问题，价格500起步？？？
 
+
+*****
+
+####  duraa  
+##### 2365#       发表于 2024-3-27 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389316&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 09:07</a>
+那看来要刷一下礼物了，用钱买礼物是不是只能在路上遇到的游商才有，银币实在太珍贵了。
+
+最担心 ...</blockquote>
+道馆能打的建议早点打到极传（可以切easy速通），加蛮多好感度的
+礼物我在京都开始通马桶后又感觉没那么缺了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

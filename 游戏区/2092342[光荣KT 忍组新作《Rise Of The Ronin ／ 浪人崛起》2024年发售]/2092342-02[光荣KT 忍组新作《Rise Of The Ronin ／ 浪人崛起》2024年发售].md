@@ -9494,3 +9494,11 @@ https://tieba.baidu.com/p/8948782099
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Kojimaru  
+##### 2457#       发表于 2024-3-28 01:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">后面还有经典的一打三boss战
+

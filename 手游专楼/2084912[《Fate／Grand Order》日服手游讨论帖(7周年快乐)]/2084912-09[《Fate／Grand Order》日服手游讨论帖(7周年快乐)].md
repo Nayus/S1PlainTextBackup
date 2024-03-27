@@ -287,3 +287,14 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 
 黑贞一直以来不是定位暴击打手么？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 11866#       发表于 2024-3-27 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389831&amp;ptid=2084912" target="_blank">失落之翼 发表于 2024-3-27 09:54</a>
+
+黑贞一直以来不是定位暴击打手么？</blockquote>
+定位不是花瓶？有金时也不需要她轮班吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

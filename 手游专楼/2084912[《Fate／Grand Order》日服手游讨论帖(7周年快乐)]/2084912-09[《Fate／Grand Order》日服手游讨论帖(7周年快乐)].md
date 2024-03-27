@@ -908,3 +908,18 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 還有各種針對玩家組隊限制
 
+
+*****
+
+####  sesuna  
+##### 11913#       发表于 2024-3-28 05:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398832&amp;ptid=2084912" target="_blank">eilot 发表于 2024-3-27 22:52</a>
+
+60石
+
+沒事發生</blockquote>
+没记错,只要平景清开到宝具就赢了...强化解除再伤害,回避是没用的
+
+前提是没晕就好了,主要复仇者自带被动降低全队的对魔力(DEBUFF容易吃),面黑起来3人全感电全晕也是可能的...我打的时候也是平景清挂机2回合,最后开宝具解决的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

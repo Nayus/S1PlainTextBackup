@@ -8626,3 +8626,67 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  BadYanL  
+##### 2369#       发表于 2024-3-27 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389572&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-3-27 09:33</a>
+
+贴吧讨论关于恋爱的一些细节
+
+https://tieba.baidu.com/p/8952366851</blockquote>
+哦吼，还真能上...未亡人，一下子充满干劲！
+
+*****
+
+####  leafS  
+##### 2370#       发表于 2024-3-27 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389640&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-3-27 09:38</a>
+
+去逛了其他社区，怎么一堆抓着画面还有价格尬黑的
+
+—— 来自 OPPO PGJM10, Android 13上的 S1Next- ...</blockquote>
+本来玩的人就不多，能在社区频繁出现的大概率更是云玩，那不就只能逮着画面和价格这种不需要玩就知道的信息了。说实话我觉得忍者组要学对马岛就学彻底点，画面上直接把滤镜拉满，对马那个画面很多场景都是单独搞了份滤镜，出了那部分区域画面都不一样了
+
+
+*****
+
+####  popchong  
+##### 2371#       发表于 2024-3-27 09:53
+
+可以上龙马的未婚妻吗，喜欢能打的土妹捏
+
+*****
+
+####  桥洞底下盖小被  
+##### 2372#       发表于 2024-3-27 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389373&amp;ptid=2092342" target="_blank">godless2020 发表于 2024-3-27 09:12</a>
+这游戏实体版是不是出了什么问题，价格500起步？？？</blockquote>
+独占炒起来的，然后现在没降价是因为出货量小
+
+*****
+
+####  彩虹肥宅  
+##### 2373#       发表于 2024-3-27 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389764&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-27 09:49</a>
+本来玩的人就不多，能在社区频繁出现的大概率更是云玩，那不就只能逮着画面和价格这种不需要玩就知道的信 ...</blockquote>
+我感觉观感上画面比较杂，实际上贴图啥的都不差，但是看起来就很花，而且树木远景树叶会成块，导致观感变差。这些问题到夜晚就能缓解很多。
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nagitoY  
+##### 2374#       发表于 2024-3-27 09:55
+
+做了村山多加的第一个支线，这剧情相当王道啊。
+
+作为脱藩的浪人，黑藩的刺客来追杀我，也盯上了和我关系密切的村山多加。在我去解决跟踪多加的刺客时，中了调虎离山之计，多加被掳走。最后我一人击败了来追杀的隐刀二人，在宫殿里救出多加<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+特别是最后那段我们一起骑马回到游郭的路上，村山多加说多希望这路途能再久一点，真是看的我心都要化了。想当年我开车送追求的女生回家，路上下着雨，我故意压着速度开，也是希望这雨永远不要停。
+

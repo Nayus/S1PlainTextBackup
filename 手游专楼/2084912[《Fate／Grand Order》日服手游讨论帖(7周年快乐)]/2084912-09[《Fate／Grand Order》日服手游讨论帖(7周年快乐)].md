@@ -279,3 +279,11 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 
 主线锁助战的黑贞没打强化本啊，不如让人上自己的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 11865#       发表于 2024-3-27 09:54
+
+黑贞一直以来不是定位暴击打手么？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

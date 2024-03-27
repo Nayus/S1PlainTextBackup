@@ -794,3 +794,14 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 （要是大总统落地是第一个彩框六星就可以解释伯爵的四星是怎么回事了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  exiaexa  
+##### 11905#       发表于 2024-3-27 20:38
+
+喷了，老男人这个宝具配色
+
+就突出一个怎么难受怎么来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

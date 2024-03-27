@@ -151,3 +151,24 @@ BBA有宝具本，有20自充，还可以吧，本来就是一发选手，NP率�
 
 不过宝具+1是挺亏的，还好我是纯无氪，福袋就看看
 
+
+*****
+
+####  qixinno2  
+##### 46253#       发表于 2024-3-27 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我嫁王二变三 毫无意义
+
+*****
+
+####  sandro  
+##### 46254#       发表于 2024-3-27 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397467&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-3-27 20:32</a>
+3个技能全能给队友的插件怎么也不能说差吧，
+
+现在我主要目标就是收集各种拐，当年也是专门抽的她
+
+不过宝具+ ...</blockquote>
+我当年跟我同学一边吃咖喱饭一边抽，两单才拿下，现在就是福袋里看到都嫌弃的程度
+

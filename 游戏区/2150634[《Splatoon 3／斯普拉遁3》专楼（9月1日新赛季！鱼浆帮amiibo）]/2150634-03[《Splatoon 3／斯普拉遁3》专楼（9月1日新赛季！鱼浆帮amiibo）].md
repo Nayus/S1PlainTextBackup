@@ -7702,3 +7702,18 @@ RAP6-PDSB-NTTH-G90S
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  晴岚  
+##### 3747#       发表于 2024-3-27 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397066&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-27 19:58</a>
+
+来人帮我复盘下这把到底要怎么赢？我已经尽心尽力了，还是被KO
+
+RAP6-PDSB-NTTH-G90S</blockquote>
+[https://www.bilibili.com/video/BV1Ri4y1P7Q7](https://www.bilibili.com/video/BV1Ri4y1P7Q7)
+
+推荐你看看这个视频，有时候可能做了对的事还是会输，说到底这也是个4V4的游戏。
+

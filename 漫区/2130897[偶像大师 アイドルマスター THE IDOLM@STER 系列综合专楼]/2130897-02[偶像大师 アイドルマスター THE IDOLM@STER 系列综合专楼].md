@@ -14167,3 +14167,94 @@ voy@ger真没想到
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rgauss  
+##### 2890#       发表于 2024-3-27 18:05
+
+还行吧
+
+*****
+
+####  rgauss  
+##### 2891#       发表于 2024-3-27 18:07
+
+太瘦了
+
+*****
+
+####  cckuku  
+##### 2892#       发表于 2024-3-27 18:07
+
+好怕她死在我手机里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 2893#       发表于 2024-3-27 18:08
+
+大学毕业 这下不是中专最终学历了
+
+*****
+
+####  rgauss  
+##### 2894#       发表于 2024-3-27 18:09
+
+ 我我我，我想起来了
+
+*****
+
+####  虚无缥缈的光阴  
+##### 2895#       发表于 2024-3-27 18:09
+
+这算不算本升专<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+该全网呼叫学历厨了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伊布桑  
+##### 2896#       发表于 2024-3-27 18:10
+
+别似啊！（
+到底是哪方面天才，学历吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  rgauss  
+##### 2897#       发表于 2024-3-27 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64395957&amp;ptid=2130897" target="_blank">伊布桑 发表于 2024-3-27 18:10</a>
+
+别似啊！（
+
+到底是哪方面天才，学历吗</blockquote>
+好像是数学 物理
+
+*****
+
+####  Anatoly  
+##### 2898#       发表于 2024-3-27 18:11
+
+cv本人好顺眼
+虽然搜了一下，好像也是至今没见过有名字的角色
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Anatoly  
+##### 2899#       发表于 2024-3-27 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64395971&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-3-27 18:11</a>
+好像是数学 物理</blockquote>
+学好数理没有化，走遍天下都不怕<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

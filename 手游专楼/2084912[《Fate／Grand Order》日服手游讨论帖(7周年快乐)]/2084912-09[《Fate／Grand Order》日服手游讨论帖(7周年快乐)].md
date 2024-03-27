@@ -700,3 +700,13 @@ md老伯爵又沉船了
 
 虽然知道是bug，但伯爵这个老**，让其他复仇者退队后自己新灵基被召唤出来没link lost
 
+
+*****
+
+####  khxooo  
+##### 11898#       发表于 2024-3-27 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64395796&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-3-27 17:56</a>
+虽然知道是bug，但伯爵这个老**，让其他复仇者退队后自己新灵基被召唤出来没link lost ...</blockquote>
+是啊，所以整个奏章2的都是为了现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

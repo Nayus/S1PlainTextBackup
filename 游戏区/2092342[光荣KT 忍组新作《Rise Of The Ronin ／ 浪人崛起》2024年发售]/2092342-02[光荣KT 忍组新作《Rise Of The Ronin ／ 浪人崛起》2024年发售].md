@@ -8812,3 +8812,25 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 
 居然是坂本龙马的比翼姻缘送的，这下不得不南桐了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2387#       发表于 2024-3-27 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64390753&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-27 11:05</a>
+
+这作的八尺勾玉（套装要求数量-1）
+
+居然是坂本龙马的比翼姻缘送的，这下不得不南桐了 ...</blockquote>
+攻略龙马之前可以临时把自己捏成女人。
+
+*****
+
+####  leafS  
+##### 2388#       发表于 2024-3-27 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64390462&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 10:45</a>
+如果她给我编织的梦是完美的，那就让我永远沉醉于梦境中吧</blockquote>
+村山的情感线有多投入，到第二章进江户就有多心痛
+

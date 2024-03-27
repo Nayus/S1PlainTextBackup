@@ -314,3 +314,13 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在多血条出来之前，黑贞就是最顶级的单体打手。当年我记得节奏榜3巨头是黑狗黑贞和闪闪。
 
+
+*****
+
+####  khxooo  
+##### 11869#       发表于 2024-3-27 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64390657&amp;ptid=2084912" target="_blank">areklose 发表于 2024-3-27 11:00</a>
+在多血条出来之前，黑贞就是最顶级的单体打手。当年我记得节奏榜3巨头是黑狗黑贞和闪闪。只能说多血 ...</blockquote>
+是啊，多血条真是将黒贞、梅林拉下神坛的设计。
+

@@ -9210,3 +9210,25 @@ https://tieba.baidu.com/p/8948782099
 正常走剧情流程不可能和多加满好感吧？刚做完个人支线2就进主线了。
 这下只能回到横滨后再刷好感？而且只能靠送礼？目前好感3进度到了一半来自: iPhone客户端
 
+
+*****
+
+####  BadYanL  
+##### 2427#       发表于 2024-3-27 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397738&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 21:04</a>
+
+正常走剧情流程不可能和多加满好感吧？刚做完个人支线2就进主线了。
+
+这下只能回到横滨后再刷好感？而且只能 ...</blockquote>
+送礼刷很快的，送5件就差不多拉一级好感。
+
+*****
+
+####  绯想天の天子  
+##### 2428#       发表于 2024-3-27 21:13
+
+怎么跟久坂好感满了不能比翼啊，切类型都试了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -9057,3 +9057,11 @@ https://tieba.baidu.com/p/8948782099
 
 我看有人对着doa那边捏了，光荣这套还是可以<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky7913  
+##### 2410#       发表于 2024-3-27 17:32
+
+关于义经流的学习，我已经在留魂录放过赤鬼了，但在忍者屋的锻炼没看到青鬼？是要等到接他的保镖任务吗？大概什么进度才能接
+

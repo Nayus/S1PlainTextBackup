@@ -13747,3 +13747,29 @@ dj找了个专业吉他手，很难相信不是在给邦做预备役</blockquote
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  好想看Mujica啊  
+##### 14502#       发表于 2024-3-27 18:17
+
+莫名联想到大祥老师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/27/181752gacnagg0m70vdazg.jpg" referrerpolicy="no-referrer">
+
+<strong>601c271101e939012acdde053dec54e737d19600.jpg</strong> (48.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 18:17 上传
+
+
+*****
+
+####  基神的强袭自由  
+##### 14503#       发表于 2024-3-27 18:23
+
+我家祥子不是那种会打舌钉的人<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

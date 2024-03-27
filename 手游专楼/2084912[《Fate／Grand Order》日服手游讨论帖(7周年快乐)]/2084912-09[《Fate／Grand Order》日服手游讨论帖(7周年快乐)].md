@@ -710,3 +710,18 @@ md老伯爵又沉船了
 虽然知道是bug，但伯爵这个老**，让其他复仇者退队后自己新灵基被召唤出来没link lost ...</blockquote>
 是啊，所以整个奏章2的都是为了现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangun22  
+##### 11899#       发表于 2024-3-27 18:22
+
+两次双黄伯爵直接六宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 11900#       发表于 2024-3-27 18:25
+
+nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此被迦勒底召唤系统记录下来，所以在原本灵基退队后还能被召唤。但他也是准备跑路的
+

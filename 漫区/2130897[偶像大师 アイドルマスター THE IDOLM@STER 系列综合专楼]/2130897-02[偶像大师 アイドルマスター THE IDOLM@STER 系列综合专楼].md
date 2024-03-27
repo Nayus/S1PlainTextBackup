@@ -14258,3 +14258,19 @@ cv本人好顺眼
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rgauss  
+##### 2900#       发表于 2024-3-27 18:14
+
+叛逆期到了
+
+
+*****
+
+####  rgauss  
+##### 2901#       发表于 2024-3-27 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">声优就是个偶像痴
+

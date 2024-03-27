@@ -128,3 +128,14 @@ BBA有宝具本，有20自充，还可以吧，本来就是一发选手，NP率�
 
 花嫁尼禄现在是高难天之力敌人指定插件吧，自己主手没啥出场率
 
+
+*****
+
+####  sandro  
+##### 46251#       发表于 2024-3-27 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397239&amp;ptid=1712412" target="_blank">ultraseven 发表于 2024-3-27 20:14</a>
+花嫁尼禄现在是高难天之力敌人指定插件吧，自己主手没啥出场率</blockquote>
+一宝到二宝，感觉也没啥用
+看了下我还75个结晶，完全不想碰高难了
+

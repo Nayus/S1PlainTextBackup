@@ -9176,3 +9176,20 @@ https://tieba.baidu.com/p/8948782099
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  土路生優里  
+##### 2423#       发表于 2024-3-27 20:25
+
+这暗夜难度打鸡毛啊，第一章的青鬼两下给我秒了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nagitoY  
+##### 2424#       发表于 2024-3-27 20:25
+
+烈风按起来，容易误触r3导致丢失锁定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

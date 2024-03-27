@@ -974,3 +974,27 @@ TVアニメ「#SYNDUALITY Noir」
 <img src="https://p.sda1.dev/16/fd68e2c5e99fdacfd4a7a278f985d5c9/unCxkWSrTGhyKcPoekrbOjW0kCj8LlfUyPwBTeDAUeSKWFEwnIc8ksYWkuL8j3snrYSzMQPxOvuuimrq.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/a39aa180d35103780392607e68c3367f/HGav3jRXJEPDrqyZ79J2pNuhTAmIBf7HG7xlFyc09g4IMcd20q3TGhqcD7FJEmTEn7Xx6ryziHvpJjM5.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuzhaoping  
+##### 4528#       发表于 2024-3-27 23:04
+
+"献给xb2的情书"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/27/230416dxbw9b25qd5nnr66.jpg" referrerpolicy="no-referrer">
+
+<strong>OIP-C.jpg</strong> (20 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202403/27/230422tsu6oozoz7eqjyyu.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-03-27_22-56-28.png</strong> (41.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 23:04 上传
+

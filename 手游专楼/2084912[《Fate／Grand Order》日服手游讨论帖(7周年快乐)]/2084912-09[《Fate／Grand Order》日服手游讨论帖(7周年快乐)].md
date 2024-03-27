@@ -878,3 +878,16 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 就是純看人品的戰鬥，活活被磨死2人，最後快半死的平景清一個寶具巧合對方沒回避才終於解決
 
+
+*****
+
+####  cenhr  
+##### 11911#       发表于 2024-3-27 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398832&amp;ptid=2084912" target="_blank">eilot 发表于 2024-3-27 22:52</a>
+
+60石
+
+沒事發生</blockquote>
+这关太吃脸了，其他的基本上知道机制就能攻略
+

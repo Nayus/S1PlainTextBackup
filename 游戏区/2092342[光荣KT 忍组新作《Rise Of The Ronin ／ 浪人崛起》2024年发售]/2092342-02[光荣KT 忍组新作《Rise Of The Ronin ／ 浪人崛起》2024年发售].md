@@ -8860,3 +8860,34 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 
 仁王流那几个隐藏的派生是啥？听说有很多派生他都没给你写
 
+
+*****
+
+####  wtyrambo  
+##### 2392#       发表于 2024-3-27 12:05
+
+ 本帖最后由 wtyrambo 于 2024-3-27 12:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来这次可攻略角色还是有些重量级的，2个风月场女人（1个变女鬼），2个未亡人，别人的未婚妻，就医生一个是正常路线
+
+*****
+
+####  土路生優里  
+##### 2393#       发表于 2024-3-27 12:07
+
+从京都返回江户以后难度一下变高了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 赤报队据点的怪又肉伤害又高
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  wtyrambo  
+##### 2394#       发表于 2024-3-27 12:17
+
+<blockquote>刘震云 发表于 2024-3-27 11:24
+目前看的最顺眼的是江户道场的千叶佐那，太戳我了。
+
+龙马真该死啊！到处留情，还躲着人家去吉原逛，玛德， ...</blockquote>
+阿龙一出场没有cp我还以为可攻略，结果原来是龙马的史实妻子，有种bss的感觉了
+

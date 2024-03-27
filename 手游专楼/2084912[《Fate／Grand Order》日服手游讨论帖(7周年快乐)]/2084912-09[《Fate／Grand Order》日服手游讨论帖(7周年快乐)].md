@@ -430,3 +430,13 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 让黑贞吃屎的原因还有嘲讽
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  areklose  
+##### 11877#       发表于 2024-3-27 12:14
+
+ 本帖最后由 areklose 于 2024-3-27 12:15 编辑 
+
+嘲讽我当年比较有印象估计就剩下1.5.2的黑皮战。不过还是多血条砍到红卡单体大动脉了。让红卡暴击打多血条的单体的优势拉低到甚至不如蓝卡了。当时免费BB出的正是时候。后续斯卡蒂出来之后甚至核爆魔神柱这种模式甚至不如绿卡了
+

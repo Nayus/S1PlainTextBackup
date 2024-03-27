@@ -13700,3 +13700,32 @@ asl第三日直播看完了，摸着良心说这一场羊女士精神状态确�
 
 被鼓牛了所以不开心了吧
 
+
+*****
+
+####  紫吹兰  
+##### 14499#         楼主| 发表于 2024-3-27 14:21
+
+ 本帖最后由 紫吹兰 于 2024-3-27 14:23 编辑 
+
+dj找了个专业吉他手，很难相信不是在给邦做预备役
+
+<img src="https://img.saraba1st.com/forum/202403/27/142342vkems88fmz6m92m9.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1711520544396.jpg</strong> (218.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 14:23 上传
+
+*****
+
+####  nebulanoby  
+##### 14500#       发表于 2024-3-27 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64393043&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-3-27 14:21</a>
+dj找了个专业吉他手，很难相信不是在给邦做预备役</blockquote>
+懂了，换李世林<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

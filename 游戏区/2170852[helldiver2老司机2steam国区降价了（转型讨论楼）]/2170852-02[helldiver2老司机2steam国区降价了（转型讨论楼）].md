@@ -7707,3 +7707,18 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 现在机器人九级野队根本玩不了，上来连死几次就退，带着其他人一起退，真的废物
 
+
+*****
+
+####  ロス  
+##### 2221#       发表于 2024-3-28 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399426&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-27 23:46</a>
+
+先重新装下显卡驱动，不行的话把内存条插拔一下再开机试试。</blockquote>
+不是广告，我朋友按b站一个加速器广告里的操作来了一套就好了……
+
+是笔记本所以也没法插拔内存
+
+避免广告如果有人爬到这楼遇到相同状况的可以私信我，我发链接……太tm神奇了
+

@@ -109,3 +109,11 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">票子allin抽eden了，水花都没见到一个。
 现在跟我说有短发小鸟游了？<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 985#       发表于 2024-3-27 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">摇两个替补上场感觉有点不知所谓，拿来拍照（？？
+

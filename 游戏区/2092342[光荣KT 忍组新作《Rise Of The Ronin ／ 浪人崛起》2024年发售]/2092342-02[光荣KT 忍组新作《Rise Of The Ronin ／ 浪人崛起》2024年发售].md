@@ -9465,3 +9465,19 @@ https://tieba.baidu.com/p/8948782099
 
 只有一个结局吗？
 
+
+*****
+
+####  banjia0815  
+##### 2454#       发表于 2024-3-28 00:49
+
+清了一晚上图，才发现百分百小区域立马就给2点技能点<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">之前猫嫌太多没管，一晚上捡了30来只猫，技能树一下就刷上来了。
+
+
+*****
+
+####  duraa  
+##### 2455#       发表于 2024-3-28 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不得不说罐头的量还是有点大了，玩的有点腻，等一周目通关得缓一段时间再说
+

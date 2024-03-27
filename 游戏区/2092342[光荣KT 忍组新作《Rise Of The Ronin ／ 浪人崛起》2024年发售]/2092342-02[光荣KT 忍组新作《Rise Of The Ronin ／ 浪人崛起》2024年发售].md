@@ -8616,3 +8616,13 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 贴吧讨论关于恋爱的一些细节
 [https://tieba.baidu.com/p/8952366851](https://tieba.baidu.com/p/8952366851)
 
+
+*****
+
+####  彩虹肥宅  
+##### 2368#       发表于 2024-3-27 09:38
+
+去逛了其他社区，怎么一堆抓着画面还有价格尬黑的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

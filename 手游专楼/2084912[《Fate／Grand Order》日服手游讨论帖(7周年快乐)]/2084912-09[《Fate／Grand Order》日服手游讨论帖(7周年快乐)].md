@@ -725,3 +725,17 @@ md老伯爵又沉船了
 
 nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此被迦勒底召唤系统记录下来，所以在原本灵基退队后还能被召唤。但他也是准备跑路的
 
+
+*****
+
+####  シャル  
+##### 11901#       发表于 2024-3-27 18:51
+
+ 本帖最后由 シャル 于 2024-3-27 18:55 编辑 
+
+妈的，看老男人的资料，TM都是Doman在捣蛋，从平安京就动后手了改造老男人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑幕就是Doman<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老男人性格那么Doman是因为Doman把式神给老男人融合了，因为把老男人分解改造成恶性情报，所以平安京圣杯判定老男人已消灭，但其实一点点上来咕哒身<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

@@ -9098,3 +9098,15 @@ https://tieba.baidu.com/p/8948782099
 
 有人知道为什么出货这么少吗？评分低还以为会便宜点
 
+
+*****
+
+####  土路生優里  
+##### 2415#       发表于 2024-3-27 18:50
+
+用剑气测试给boss上异常的效果，结果发现让盟友顶住然后自己躲后面发波属实有点赖皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再配合出了异常以后的硬直和伤害，打bosss没有压力了
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

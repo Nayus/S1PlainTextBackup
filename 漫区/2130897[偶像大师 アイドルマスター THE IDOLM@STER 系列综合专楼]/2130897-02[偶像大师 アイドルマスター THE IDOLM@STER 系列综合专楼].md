@@ -14300,3 +14300,13 @@ cv本人好顺眼
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  安广多惠子  
+##### 2905#       发表于 2024-3-27 18:55
+
+这腿确实有点吓人了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

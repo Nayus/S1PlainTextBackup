@@ -9110,3 +9110,21 @@ https://tieba.baidu.com/p/8948782099
 
 —— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  ky7913  
+##### 2416#       发表于 2024-3-27 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64396139&amp;ptid=2092342" target="_blank">popchong 发表于 2024-3-27 18:26</a>
+
+为什么我没放过赤鬼也有义经流</blockquote>
+是能学初级，你想升级就不行了
+
+*****
+
+####  RinC  
+##### 2417#       发表于 2024-3-27 19:07
+
+越往后的角色越赖皮了 京都道场那边想刷极传得花一倍的精力去背板凸<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

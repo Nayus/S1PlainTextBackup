@@ -14496,3 +14496,23 @@ db859af78809328623327fbea0adfce7.jpg
 
 这竹竿腿看着有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 2923#       发表于 2024-3-27 22:17
+
+ 本帖最后由 花开安菲路 于 2024-3-27 22:18 编辑 
+
+如果设定成萝莉身高就问题不大了，159这竹竿就有点畸形了。
+
+
+*****
+
+####  伊布桑  
+##### 2924#       发表于 2024-3-27 22:22
+
+小腿姑且不论，连大腿都细到这个程度就有点太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

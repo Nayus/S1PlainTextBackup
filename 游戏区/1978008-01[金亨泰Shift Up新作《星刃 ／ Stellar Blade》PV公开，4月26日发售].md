@@ -527,3 +527,47 @@ https://youtu.be/kC6Qefn1EVQ</blockquote>
 
 那就以官译为准吧，毕竟witcher系列在steam上也叫巫师...
 
+
+*****
+
+####  sad6504  
+##### 441#       发表于 2024-3-27 22:22
+
+A9最后这个裸装挑战看着还是挺爽的
+
+
+*****
+
+####  宛若青空  
+##### 442#       发表于 2024-3-27 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398518&amp;ptid=1978008" target="_blank">Jamaisvu 发表于 2024-3-27 22:16</a>
+
+去PS官网看了一眼，还真是。我就是觉得两个单词倒过来翻译有点怪...
+
+那就以官译为准吧，毕竟witcher系 ...</blockquote>
+前两年公布正式命名为《Stellar Blade》时的logo背景带有“星刃”两个汉字，大家也都认为这应该就是官方中文名了，谁知道今年公布正式发售日时这两个汉字从logo里删掉了，正式名也变成了“剑星”<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（个人也更喜欢星刃这个译名就是
+
+<img src="https://img.saraba1st.com/forum/202403/27/222528pabg33lbr182rddp.jpg" referrerpolicy="no-referrer">
+
+<strong>1080x360.jpg</strong> (44.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 22:25 上传
+
+<img src="https://img.saraba1st.com/forum/202403/27/222529ayszscwct4t4cj4p.png" referrerpolicy="no-referrer">
+
+<strong>log_eve.png</strong> (11.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 22:25 上传
+
+*****
+
+####  哈萨维·诺亚  
+##### 443#       发表于 2024-3-27 22:25
+
+想问下不同区服版本有区别吗？
+

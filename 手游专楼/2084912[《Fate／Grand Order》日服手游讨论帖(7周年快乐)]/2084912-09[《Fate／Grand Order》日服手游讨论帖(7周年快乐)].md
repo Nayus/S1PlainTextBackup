@@ -829,3 +829,14 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 新伯爵抽出来好快，果然欧非守恒，没辜负小太阳池暴死的我<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">my room语音口调好温柔，不错
 
+
+*****
+
+####  cenhr  
+##### 11908#       发表于 2024-3-27 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397785&amp;ptid=2084912" target="_blank">清河子 发表于 2024-3-27 21:09</a>
+
+新伯爵抽出来好快，果然欧非守恒，没辜负小太阳池暴死的我my room语音口调好温柔，不错 ...</blockquote>
+新伯爵的语音+语调听起来是劳累的老父亲被孩子从棺材拉出来干活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

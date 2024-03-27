@@ -9327,3 +9327,27 @@ https://tieba.baidu.com/p/8948782099
 
 暗荣wcnm，出了恶性bug，直接卡到第一章地图，现在根本回不到第二章地图了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  土路生優里  
+##### 2440#       发表于 2024-3-27 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398255&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 21:50</a>
+用立身流打青鬼，感觉自己没什么机会压制，还是要多弹敌人攻击才过的。
+
+带两个盟友的任务可以给每个队友附 ...</blockquote>
+立身打青鬼没有流派压制反而不是很好用
+
+给队友上buff效率不算高，队友的优势是闪避性能拉满了，发现自己拉到仇恨的时候可以及时换队友续输出
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  duraa  
+##### 2441#       发表于 2024-3-27 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">京都差不多探完就四维100了
+

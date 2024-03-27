@@ -8903,3 +8903,21 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 
 还有斋藤一的性能怎么那么牛逼，打到现在唯一一个卡住的boss
 
+
+*****
+
+####  ネコカイザー  
+##### 2396#       发表于 2024-3-27 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64391228&amp;ptid=2092342" target="_blank">新世界的派蒙 发表于 2024-3-27 11:36</a>
+
+什么情况才开始玩，村山会噶么，是选择的路线问题还是无法回避</blockquote>
+无法回避，剧情杀
+
+*****
+
+####  RinC  
+##### 2397#       发表于 2024-3-27 14:49
+
+银币有什么好的刷法吗 买幻化花的一干二净了
+

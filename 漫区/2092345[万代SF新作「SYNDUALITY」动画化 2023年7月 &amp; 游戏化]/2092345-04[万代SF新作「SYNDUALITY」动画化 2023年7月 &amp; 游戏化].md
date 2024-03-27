@@ -953,3 +953,24 @@ TVアニメ「#SYNDUALITY Noir」
 结尾完成度比xb2低多了，抛开小绿分开这种奇迹，xb2结尾巨神合成大陆起码也是把巨神寿命问题解决了，这作品 ...</blockquote>
 主要因为动画的定位其实算外传吧 很多东西其实应该是留给本篇的 不过本篇还不知道在哪 先放个外传动画的操作也是挺迷惑的
 
+
+*****
+
+####  Piano-Forest  
+##### 4527#         楼主| 发表于 2024-3-27 22:45
+
+[https://dengekionline.com/articles/218099/](https://dengekionline.com/articles/218099/)
+
+アニメ『シンデュアリティ ノワール』キャラデザ原案を担当のnecoさんにインタビュー。キャラクター衣装には現実の延長線から生まれたデザインも
+<img src="https://p.sda1.dev/16/5a116a6cb85b21be6d6745cd2a0deaed/pgQCa1uuZvsJsbivHfkkMdysnHgXMVxVt9nrCmVv1AMfmOseVh7ah25W81C8U9Sjg9bfC0f3YPw7Uxpo_main.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/8ab99c9b3929a1d2e618e3dff3f6d036/xAM4IQnkMDd2oZFiw9UreRVYGQsluxPhj22VCv27vOSEkb3x4JRRCSivbRV9CY0GxHiFurAehhUFGIEa.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/d8f06e2f4fa785899f70b55f495ba1d5/v0ayEkPQKKRTD8GjghCcjtMplacNl5tQI92qThp1ZsYhQx06nKyX6NRrZZjibFVG1W1WKPJTNqo2E6zX.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/36c1b91527d25522f8bcbd91e308fb0c/8UbLFgPmKVaqA6na93EdK5N60kSdBBw4TIqm1jtWwj51AuufCc3fS0j65TRS28J1Yv6QFIiGkP4NNUFV.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/720eb01aaa096d9016a3f77fae956846/GoVvsecXmj08GgT9707Ua8qbBrX7xuI9dohOe7K7k8foVHhdDq9UE6qtZ2H2LR9ut5Bxm3wiHUaj4HMp.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/32cf839d9774fa67bee9e47281805a89/zvjBrbE7u**f0nXf5NC50rekEXGuC8O9CdjFQQ125SQge8oGmIrwIGG7pRxXLYGH8sEq0SzuIRwXcgM.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/ef25ffacc228e1fb534e9823898dc8eb/Pbj9L1UYyfFXcvJvqmBaknDAEqa3oMLtzypY6FH0XLxPsBttIBC7ulB8bzX4a3Kov3PfZYjHQOfHSTgh.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/89a8a1e69b42c1fe022372e437b62be2/pzetAyHqXdAvtiqPHZujodweZCsYq2mwRpsTGQF770dWaQGuAkuJAyH5nROOMffE01pANkyeeA338a2a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/0ed56a0e5c656a4732b2755b0783ffa8/CziEvB3oRCfzDvISoX1mbwHVPkm1oGEeE83Zy9uC2XqfCHyZommrZrKBX6ClZYodKDKzMgE9SLFbStz9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/fd68e2c5e99fdacfd4a7a278f985d5c9/unCxkWSrTGhyKcPoekrbOjW0kCj8LlfUyPwBTeDAUeSKWFEwnIc8ksYWkuL8j3snrYSzMQPxOvuuimrq.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/a39aa180d35103780392607e68c3367f/HGav3jRXJEPDrqyZ79J2pNuhTAmIBf7HG7xlFyc09g4IMcd20q3TGhqcD7FJEmTEn7Xx6ryziHvpJjM5.jpg" referrerpolicy="no-referrer">
+

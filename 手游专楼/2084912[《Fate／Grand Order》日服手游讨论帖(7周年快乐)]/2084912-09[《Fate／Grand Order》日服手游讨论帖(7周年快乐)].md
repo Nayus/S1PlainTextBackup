@@ -840,3 +840,23 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 新伯爵抽出来好快，果然欧非守恒，没辜负小太阳池暴死的我my room语音口调好温柔，不错 ...</blockquote>
 新伯爵的语音+语调听起来是劳累的老父亲被孩子从棺材拉出来干活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 11909#       发表于 2024-3-27 22:34
+
+ 本帖最后由 الطائر 于 2024-3-27 22:37 编辑 
+
+把卡里奥斯特罗伯爵的正脸立绘横向压缩10%，顿时眉清目秀了起来： <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/27/223731wf50d7fueftfqxy0.png" referrerpolicy="no-referrer">
+
+<strong>character03S.png</strong> (268.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 22:37 上传
+
+原图见官网：[https://www.fate-go.jp/special/2024-id/](https://www.fate-go.jp/special/2024-id/)
+

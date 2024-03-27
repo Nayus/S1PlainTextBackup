@@ -60,3 +60,11 @@ DLC第2弾「断章・■■■秘剣帖」の
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次看门大爷该登场了吧
 
+
+*****
+
+####  Sleipnirω  
+##### 1734#       发表于 2024-3-27 15:38
+
+本来以为攻击回复的血量是跟着装备上显示的数字来的，结果发现实际的回复量跟没有一样
+

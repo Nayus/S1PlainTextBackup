@@ -505,3 +505,25 @@ https://youtu.be/kC6Qefn1EVQ</blockquote>
 我很好奇stellar blade怎么被媒体翻译成了剑星，明明星刃才是正确翻译吧...难不成因为是一个画师所以蹭了下 ...</blockquote>
 有没有可能，这是官译？<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 440#       发表于 2024-3-27 22:16
+
+ 本帖最后由 Jamaisvu 于 2024-3-27 22:17 编辑 
+<blockquote>纱布光环 发表于 2024-3-27 22:07
+有没有可能，这是官译？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202403/27/221723dau6zfhymy6z16m8.jpg" referrerpolicy="no-referrer">
+
+<strong>jx.jpg</strong> (175.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 22:17 上传
+
+去PS官网看了一眼，还真是。我就是觉得两个单词倒过来翻译有点怪...
+
+那就以官译为准吧，毕竟witcher系列在steam上也叫巫师...
+

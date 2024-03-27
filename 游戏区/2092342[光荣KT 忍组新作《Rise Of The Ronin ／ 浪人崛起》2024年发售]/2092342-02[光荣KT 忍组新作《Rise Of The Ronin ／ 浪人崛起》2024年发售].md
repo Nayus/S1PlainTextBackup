@@ -9319,3 +9319,11 @@ https://tieba.baidu.com/p/8948782099
 有婚姻状态的都不能比翼啊她老婆也是他死了才可以</blockquote>
 那为啥还给他开好感度，kt令人迷惑的设置<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 2439#       发表于 2024-3-27 22:10
+
+暗荣wcnm，出了恶性bug，直接卡到第一章地图，现在根本回不到第二章地图了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

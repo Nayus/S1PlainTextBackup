@@ -178,3 +178,27 @@ AJ上有第二季的情报吗？</blockquote>
 无</blockquote>
 怎么去年有消息，今年反而没有了
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1755#       发表于 2024-3-27 22:13
+
+<img src="https://img.saraba1st.com/forum/202403/27/221334ulxh05k59tz05089.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-03-27 221259.jpg</strong> (182.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 22:13 上传
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1756#       发表于 2024-3-27 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64380273&amp;ptid=2152053" target="_blank">蒜灵 发表于 2024-3-26 12:46</a>
+
+怎么去年有消息，今年反而没有了</blockquote>
+今年AJ上好像没有蒜。
+

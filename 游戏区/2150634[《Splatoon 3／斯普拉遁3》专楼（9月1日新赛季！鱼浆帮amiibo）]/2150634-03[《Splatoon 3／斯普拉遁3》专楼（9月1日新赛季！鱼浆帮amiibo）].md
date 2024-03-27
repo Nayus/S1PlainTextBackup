@@ -7738,3 +7738,20 @@ RAP6-PDSB-NTTH-G90S</blockquote>
 
 最后就是现在游戏人口本来就越来越少（我现在都能遇到竹狙对上4K的x赛），再加上x吸走一部分人，真格挑战的匹配也比较随意，所以真格挑战比赛的胜负也说明不了啥，放宽心打就是了。
 
+
+*****
+
+####  罗克萨斯  
+##### 3749#       发表于 2024-3-27 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398385&amp;ptid=2150634" target="_blank">君往何处 发表于 2024-3-27 22:04</a>
+
+我xp也就2000左右，估计和你差不多？简单看了下录像，有点想法，但是我主玩小绿，所以思路和加特林估计不 ...</blockquote>
+右侧高台我实在玩不来，只能管一侧区域，击杀经常差一两枪，高频利用右侧高台的比赛没少输<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+中间高台确实被我遗忘了，想上去没找着机会，能上时又忘了，大脑短路了。话说在中间高台的时候没少被桶类武器，尤其是重桶打死过<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+那个喇叭带太多游速了，目前的我还做不到那么利索的跟枪，估计今年都做不到<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+感谢坛友抽空指点，这场暴露的额问题短期之内应该没办法彻底解决，我打算尝试比赛期间点评自己的立回，一点一点改善吧
+

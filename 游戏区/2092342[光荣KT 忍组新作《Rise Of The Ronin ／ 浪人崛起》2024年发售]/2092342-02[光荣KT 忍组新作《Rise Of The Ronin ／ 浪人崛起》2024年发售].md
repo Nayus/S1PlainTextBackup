@@ -9351,3 +9351,11 @@ https://tieba.baidu.com/p/8948782099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">京都差不多探完就四维100了
 
+
+*****
+
+####  nagitoY  
+##### 2442#       发表于 2024-3-27 22:49
+
+双boss没法打啊。大老和青鬼两个性能句强的boss，我方完全没手段应对。从屏幕外面飞来的攻击怎么躲？来自: iPhone客户端
+

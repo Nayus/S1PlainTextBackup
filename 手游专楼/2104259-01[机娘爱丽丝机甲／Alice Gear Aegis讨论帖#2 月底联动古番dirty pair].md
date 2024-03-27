@@ -117,3 +117,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">摇两个替补上场感觉有点不知所谓，拿来拍照（？？
 
+
+*****
+
+####  江戸前ルナ  
+##### 986#         楼主| 发表于 2024-3-27 22:49
+
+[https://www.bilibili.com/video/BV1tp421m7WU](https://www.bilibili.com/video/BV1tp421m7WU)
+
+咱们阿嘎的新战斗系统太有操作性啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+认真的，平时没啥用，但最简单的打读条爆发就很有效。不像单机游戏里那些link系统那么重要，因为平时的图数值上就是碾压，但在高难里还是挺有用的。比如这次高难200的变异柱子，硬得飞起对部分近战弱的机体来说，这个系统补输出非常有效就是。
+

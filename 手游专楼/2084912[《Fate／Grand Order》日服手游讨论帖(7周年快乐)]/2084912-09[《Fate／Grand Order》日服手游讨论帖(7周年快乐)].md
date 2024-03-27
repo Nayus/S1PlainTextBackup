@@ -324,3 +324,15 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 在多血条出来之前，黑贞就是最顶级的单体打手。当年我记得节奏榜3巨头是黑狗黑贞和闪闪。只能说多血 ...</blockquote>
 是啊，多血条真是将黒贞、梅林拉下神坛的设计。
 
+
+*****
+
+####  areklose  
+##### 11870#       发表于 2024-3-27 11:26
+
+ 本帖最后由 areklose 于 2024-3-27 11:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64390896&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-3-27 11:14</a>
+
+是啊，多血条真是将黒贞、梅林拉下神坛的设计。</blockquote>
+梅林还好，当时没那么多NP充能，只要高难不塞强化解除，梅林那宝具叠起来太厉害了。当时长线基本就是梅林+狐狸+打手。没有更好的蓝卡辅助了。
+

@@ -579,3 +579,14 @@ A9最后这个裸装挑战看着还是挺爽的
 
 日配听着像忍龙里女角色那种配音风格
 
+
+*****
+
+####  jacket  
+##### 445#       发表于 2024-3-28 01:41
+
+[https://twitter.com/famitsu/status/1772972276553826775](https://twitter.com/famitsu/status/1772972276553826775)
+[https://www.famitsu.com/news/202403/27338137.html](https://www.famitsu.com/news/202403/27338137.html)
+
+fami通发的这个能听见日版战斗语音，还好战斗语音也重新配了，不是韩版的那个叫声。
+

@@ -13636,3 +13636,13 @@ z8舅舅预言对了这个月有歌，是不是31前后就不知道了<img src="
 
 asl第三日直播看完了，摸着良心说这一场羊女士精神状态确实不错，能看得出玩乐队是真的很开心，不像后来总是歪嘴或者假笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dofuweiguodi  
+##### 14494#       发表于 2024-3-27 08:14
+
+31号复活节，肯定有新歌的吧，wsd<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHW110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

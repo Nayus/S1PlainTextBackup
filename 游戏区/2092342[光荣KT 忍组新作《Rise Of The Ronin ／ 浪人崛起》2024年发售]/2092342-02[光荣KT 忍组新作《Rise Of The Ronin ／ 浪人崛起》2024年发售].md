@@ -9481,3 +9481,16 @@ https://tieba.baidu.com/p/8948782099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不得不说罐头的量还是有点大了，玩的有点腻，等一周目通关得缓一段时间再说
 
+
+*****
+
+####  阿提拉  
+##### 2456#       发表于 2024-3-28 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64390753&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-03-27 11:05:51</a>
+这作的八尺勾玉（套装要求数量-1）
+
+居然是坂本龙马的比翼姻缘送的，这下不得不南桐了 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我想了半天龙马为什么不开好感度来比翼因缘，赌了一会钱以后才想起他这时候结婚了的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

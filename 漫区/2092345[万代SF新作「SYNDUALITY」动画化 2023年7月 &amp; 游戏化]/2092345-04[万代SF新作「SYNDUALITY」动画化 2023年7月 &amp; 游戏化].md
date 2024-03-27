@@ -931,3 +931,25 @@ TVアニメ「#SYNDUALITY Noir」
 
 结尾完成度比xb2低多了，抛开小绿分开这种奇迹，xb2结尾巨神合成大陆起码也是把巨神寿命问题解决了，这作品背景的enders和蓝雨一直是个问题，而且没头没尾，理解你想抄莫尔斯之地的想法，能不能给点设定的前因后果啊。讲真，都能造这种ai管理的方舟了，补充点设定解决点问题也不是什么很难的事吧
 
+
+*****
+
+####  砂糖续香香  
+##### 4525#       发表于 2024-3-27 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389168&amp;ptid=2092345" target="_blank">AkaiSuisei 发表于 2024-3-27 08:53</a>
+鸭志田我日死你的马，day dream是&amp;#x ...</blockquote>
+是这样，最喜欢的一首歌，到最后被别人唱了，还要给别人唱
+
+今日方知我是苦主<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  renkan119  
+##### 4526#       发表于 2024-3-27 12:52
+
+<blockquote>星降る森 发表于 2024-3-27 11:36
+结尾完成度比xb2低多了，抛开小绿分开这种奇迹，xb2结尾巨神合成大陆起码也是把巨神寿命问题解决了，这作品 ...</blockquote>
+主要因为动画的定位其实算外传吧 很多东西其实应该是留给本篇的 不过本篇还不知道在哪 先放个外传动画的操作也是挺迷惑的
+

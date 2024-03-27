@@ -8762,3 +8762,31 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 
 柳生新阴的r1+■，连续扫地攻击，因为有霸体和横向位移，和敌人拼刀收益还可以，适合在敌人血不多的时候强行收残血。
 
+
+*****
+
+####  nagitoY  
+##### 2382#       发表于 2024-3-27 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64390424&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-3-27 10:43</a>
+
+但是她临死的时候想着的还是别的男人，只能说嗨，这就是风月场的女人 ...</blockquote>
+如果她给我编织的梦是完美的，那就让我永远沉醉于梦境中吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kojimaru  
+##### 2383#       发表于 2024-3-27 10:51
+
+其实不用担心，家里摆满她出现概率up的摆件，只要回到前两张图女鬼就会来你家做客聊天
+
+*****
+
+####  BadYanL  
+##### 2384#       发表于 2024-3-27 10:51
+
+画面其实问题主要在光照，色彩，环境美术吧，人物建筑等建模精度还蛮不错的。
+
+还有就是贴图喜欢做旧，砖瓦木板布料全都饱经风霜，所以画面看起来就脏乱差。
+

@@ -9065,3 +9065,13 @@ https://tieba.baidu.com/p/8948782099
 
 关于义经流的学习，我已经在留魂录放过赤鬼了，但在忍者屋的锻炼没看到青鬼？是要等到接他的保镖任务吗？大概什么进度才能接
 
+
+*****
+
+####  duraa  
+##### 2411#       发表于 2024-3-27 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64395527&amp;ptid=2092342" target="_blank">ky7913 发表于 2024-3-27 17:32</a>
+关于义经流的学习，我已经在留魂录放过赤鬼了，但在忍者屋的锻炼没看到青鬼？是要等到接他的保镖任务吗？大 ...</blockquote>
+听说要京都接到一个叫保镖的任务解锁
+

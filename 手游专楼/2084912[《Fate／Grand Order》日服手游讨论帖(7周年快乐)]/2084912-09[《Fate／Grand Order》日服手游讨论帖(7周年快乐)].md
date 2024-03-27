@@ -663,3 +663,22 @@ md老伯爵又沉船了
 
 很容易啊这次
 
+
+*****
+
+####  rollingusagi  
+##### 11894#       发表于 2024-3-27 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64395252&amp;ptid=2084912" target="_blank">——啧 发表于 2024-03-27 17:12:10</a>
+所以才说这逻辑乱七八糟的，全家都寄了，但你不能想着复仇，也不能以复仇为驱动力来鼓励自己，什么圣母人 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">打个比方吧，这人理之墙就好比边境海关，迦勒底现在想通过但是不给过因为海关说你迦里带过来的这帮人里有不少身份可疑的（ex阶从者），所以需要去开个证明以证明他们不是来搞事的，ae经过奏一已经开过证明了没问题，奏二仇开证明的时候遇到问题了，因为仇阶本质就是一帮纵火犯不烧光一切不罢休的那种，然后他们问咕哒愿不愿意跟他们一起去冲南极把一切烧光，咕哒想了想自己旅行的最终目的也不是为了烧光一切，于是拒绝了，所以仇阶为了不继续妨碍迦勒底就主动退出了队伍
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cenhr  
+##### 11895#       发表于 2024-3-27 17:42
+
+伯爵和老男人都出货了，虽然说伯爵上90级不需要新素材，但技能上第九级需要，NND<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

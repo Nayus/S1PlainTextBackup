@@ -8593,3 +8593,26 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 道馆能打的建议早点打到极传（可以切easy速通），加蛮多好感度的
 礼物我在京都开始通马桶后又感觉没那么缺了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2366#       发表于 2024-3-27 09:33
+
+ 本帖最后由 nagitoY 于 2024-3-27 09:35 编辑 
+
+现在最麻烦的是滑翔翼升级我卡住了，这个还是很重要的，在空中能按圈加速。但是发明家这里显示需要一本横滨滑翔训练的书，是需要高分通过滑翔训练才给吗？
+
+编辑，需要中传的评价才会给
+
+*****
+
+####  黑修士  
+##### 2367#       发表于 2024-3-27 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388905&amp;ptid=2092342" target="_blank">RushMove 发表于 2024-3-27 08:14</a>
+
+我和笃姬结成比翼盟约后并没有瑟瑟。是只有一部分角色能瑟还是必须捏男主角？ ...</blockquote>
+贴吧讨论关于恋爱的一些细节
+[https://tieba.baidu.com/p/8952366851](https://tieba.baidu.com/p/8952366851)
+

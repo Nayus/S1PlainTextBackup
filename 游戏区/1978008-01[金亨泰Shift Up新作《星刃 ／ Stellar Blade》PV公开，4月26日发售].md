@@ -436,3 +436,13 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 换个发型不就好了</blockquote>
 脸也很呆，可能因为眼白面积过小了
 
+
+*****
+
+####  依存香炉  
+##### 433#       发表于 2024-3-27 18:27
+
+[https://blog.playstation.com/202 ... o-arrives-march-29/](https://blog.playstation.com/2024/03/25/stellar-blade-demo-arrives-march-29/)
+
+试玩版周五就来了啊 可继承进度
+

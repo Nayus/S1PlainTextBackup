@@ -9249,3 +9249,39 @@ https://tieba.baidu.com/p/8948782099
 
 这结局给我看笑了，没dlc或者续作很难收场<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">好不容易燃起来又尿了
 
+
+*****
+
+####  绯想天の天子  
+##### 2431#       发表于 2024-3-27 21:40
+
+ 本帖最后由 绯想天の天子 于 2024-3-27 21:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用了回魂录才发现势力声望和人物好感不会因为选其他选项而清除，反而是累加的。所以说要多去回魂录弄声望好感
+
+*****
+
+####  nagitoY  
+##### 2432#       发表于 2024-3-27 21:41
+
+杀了青鬼对流派之类的有什么影响吗？来自: iPhone客户端
+
+*****
+
+####  绯想天の天子  
+##### 2433#       发表于 2024-3-27 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398139&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 21:41</a>
+杀了青鬼对流派之类的有什么影响吗？</blockquote>
+义经流只能到初传
+
+
+*****
+
+####  zqqwe  
+##### 2434#       发表于 2024-3-27 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397837&amp;ptid=2092342" target="_blank">绯想天の天子 发表于 2024-3-27 21:13</a>
+怎么跟久坂好感满了不能比翼啊，切类型都试了。现在主线里已经死了只能去回魂录对话，结果没反应 ...</blockquote>
+有婚姻状态的都不能比翼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她老婆也是他死了才可以
+

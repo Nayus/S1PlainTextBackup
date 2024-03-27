@@ -454,3 +454,35 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 怎么张弛今天就在播demo了，我还以为能下了呢
 
+
+*****
+
+####  Piano-Forest  
+##### 435#         楼主| 发表于 2024-3-27 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64374401&amp;ptid=1978008" target="_blank">Piano-Forest 发表于 2024-3-25 21:20</a>
+
+Demo 3月29日晚10点公开：https://youtu.be/0aK3DZavbsA
+
+https://youtu.be/kC6Qefn1EVQ</blockquote>
+之前公开过的PV 日语配音：[https://youtu.be/SdfD9pDXvow](https://youtu.be/SdfD9pDXvow)
+
+*****
+
+####  Piano-Forest  
+##### 436#         楼主| 发表于 2024-3-27 21:42
+
+媒体先拿到试玩了，视频B站上也有传（剑星）
+
+[https://weibo.com/ttarticle/x/m/show#/id=2309405016643251339534](https://weibo.com/ttarticle/x/m/show#/id=2309405016643251339534)
+
+【《剑星》试玩版体验报告】知名画师金亨泰最新作品《剑星》将在4月26日在PS5平台推出，同时将在3月29日开放试玩版下载。本次我们提前拿到了试玩版，将为大家带来这篇体验报告，为大家介绍一下这款游戏除了色气姐妹以外还有什么亮点
+
+
+*****
+
+####  Jamaisvu  
+##### 437#       发表于 2024-3-27 21:47
+
+我很好奇stellar blade怎么被媒体翻译成了剑星，明明星刃才是正确翻译吧...难不成因为是一个画师所以蹭了下剑灵（Blade ＆ Soul）？
+

@@ -14456,3 +14456,27 @@ db859af78809328623327fbea0adfce7.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到个评论叫不要死在我手机里
 
+
+*****
+
+####  ViviR  
+##### 2919#       发表于 2024-3-27 21:38
+
+<img src="https://img.saraba1st.com/forum/202403/27/213626rtkkivrhht5wgkti.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8214.jpeg</strong> (264.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-27 21:36 上传
+
+这个感觉就是，照片发出去会被说是初星学园本质电疗中心专门虐未成年人的。希望建模可以随着剧情变化吧。
+
+*****
+
+####  ViviR  
+##### 2920#       发表于 2024-3-27 21:40
+
+感觉如果学马仕手游有初始数值这个东西的话，她的综合初始数值应该是最低的（
+

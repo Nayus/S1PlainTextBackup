@@ -7699,3 +7699,11 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 平常心，这游戏是任务结算制，有人没上船损失的还是所有人的共同收益，所以完全不理解也不愿去理解那些热 ...</blockquote>
 心理扭曲啊，就是故意恶心人，tk了上船你们样本全没了，有些50级的精神变态样本满了就会这么玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddwhzh  
+##### 2220#       发表于 2024-3-28 00:13
+
+现在机器人九级野队根本玩不了，上来连死几次就退，带着其他人一起退，真的废物
+

@@ -3545,3 +3545,20 @@ taiyaki的联动到这周的月底就要结束了，看了一下推上repo各店
 
 不过封面越做越有意思了，看了很有点击欲望，估计能带一波大的
 
+
+*****
+
+####  rs5621  
+##### 8503#       发表于 2024-3-27 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 8504#         楼主| 发表于 2024-3-27 18:01
+
+明天的官方直播也没了啊
+

@@ -692,3 +692,11 @@ md老伯爵又沉船了
 
 —— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cenhr  
+##### 11897#       发表于 2024-3-27 17:56
+
+虽然知道是bug，但伯爵这个老**，让其他复仇者退队后自己新灵基被召唤出来没link lost
+

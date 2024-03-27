@@ -7688,3 +7688,14 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 进去的第一把就遇到一个声音充满磁性的美国老哥， ...</blockquote>
 平常心，这游戏是任务结算制，有人没上船损失的还是所有人的共同收益，所以完全不理解也不愿去理解那些热衷上船前tk的在想什么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 2219#       发表于 2024-3-28 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399462&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-27 23:50</a>
+
+平常心，这游戏是任务结算制，有人没上船损失的还是所有人的共同收益，所以完全不理解也不愿去理解那些热 ...</blockquote>
+心理扭曲啊，就是故意恶心人，tk了上船你们样本全没了，有些50级的精神变态样本满了就会这么玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

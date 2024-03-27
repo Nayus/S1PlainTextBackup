@@ -9440,3 +9440,11 @@ https://tieba.baidu.com/p/8948782099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的档因为恶性BUG废了感觉，武技没了硬砍也不是不行，但是我现在连科学家那个天赋也给我洗掉了，还学不回来，，，大家没事就不要点那个弱智文房四宝，有恶性BUG
 
+
+*****
+
+####  松风君  
+##### 2451#       发表于 2024-3-28 00:01
+
+打到京都了还是无法跟一打多时的右摇杆烈风和解<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+

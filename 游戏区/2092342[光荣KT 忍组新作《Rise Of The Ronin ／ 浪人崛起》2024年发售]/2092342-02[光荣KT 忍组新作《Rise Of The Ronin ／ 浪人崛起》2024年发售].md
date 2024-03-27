@@ -8511,3 +8511,13 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 
 这游戏真该出个训练场木桩的，手感这东西自己测才有意义啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  leafS  
+##### 2358#       发表于 2024-3-27 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388130&amp;ptid=2092342" target="_blank">黑色的js 发表于 2024-3-27 00:51</a>
+没救，我刚跟人家因缘四级结果就g了，给她拍照片的时候就感觉不对气得我反复打了一小时青鬼，家里 ...</blockquote>
+真是日了忍者组了，必死的角色为什么要给结缘选项，这不恶心人吗，我最喜欢的大姐姐类型就这么没了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

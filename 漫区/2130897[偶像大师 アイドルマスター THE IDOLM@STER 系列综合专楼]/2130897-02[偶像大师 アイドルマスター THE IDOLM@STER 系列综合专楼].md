@@ -14419,3 +14419,16 @@ db859af78809328623327fbea0adfce7.jpg
 
 跳舞？ 我怕唱完高音都直接昏过去
 
+
+*****
+
+####  伊布桑  
+##### 2915#       发表于 2024-3-27 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397182&amp;ptid=2130897" target="_blank">natmk 发表于 2024-3-27 20:09</a>
+这也太瘦了 真的跳得了舞吗</blockquote>
+不行就站栋输出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然唱歌也是个体力活，不过总比边唱边跳好
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

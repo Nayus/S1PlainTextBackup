@@ -9193,3 +9193,11 @@ https://tieba.baidu.com/p/8948782099
 
 烈风按起来，容易误触r3导致丢失锁定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  crosz1985  
+##### 2425#       发表于 2024-3-27 20:34
+
+刚开始玩，这小兵个个都会快慢刀把我打傻了
+

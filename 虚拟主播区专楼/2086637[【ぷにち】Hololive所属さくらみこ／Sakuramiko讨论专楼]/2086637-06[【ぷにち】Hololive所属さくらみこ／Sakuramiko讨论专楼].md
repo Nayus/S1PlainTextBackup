@@ -3514,3 +3514,26 @@ taiyaki的联动到这周的月底就要结束了，看了一下推上repo各店
 
 另外这个app刚才在外头的时候下了打开看了一眼，不就是音游吗，好无聊的样子
 
+
+*****
+
+####  rs5621  
+##### 8500#       发表于 2024-3-27 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这工商派给35整活的吧
+
+*****
+
+####  holoan  
+##### 8501#         楼主| 发表于 2024-3-27 16:37
+
+而且这个工商做的时间太晚了，活动都快结束了
+
+<img src="https://img.saraba1st.com/forum/202403/27/163711c2sj2xxrtw26wzz3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 16:37 上传
+

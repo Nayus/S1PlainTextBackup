@@ -448,3 +448,12 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 
 多血条刚出的时候血量还不高，好歹还能双梅林一个英雄作成打一条，虽然只记得用过机龙这么打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 11879#       发表于 2024-3-27 14:30
+
+以前是有自充/能帮他人充能的角色少，所以暴击流打法有存在之地。现在充能手段多了，暴击流打法自然是作为备选而非首选。
+多血条这个机制我个人认为是针对梅林的手段之一
+

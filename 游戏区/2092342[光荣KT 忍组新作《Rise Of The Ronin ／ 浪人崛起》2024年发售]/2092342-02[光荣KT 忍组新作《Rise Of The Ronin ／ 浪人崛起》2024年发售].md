@@ -8709,3 +8709,15 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 我感觉观感上画面比较杂，实际上贴图啥的都不差，但是看起来就很花，而且树木远景树叶会成块，导致观感变 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">可能是被忍者组PUA了，这远景模糊朦胧的感觉，在特定光影下还真有点富岳三十六景的美感
 
+
+*****
+
+####  彩虹肥宅  
+##### 2377#       发表于 2024-3-27 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64390143&amp;ptid=2092342" target="_blank">popchong 发表于 2024-3-27 10:20</a>
+可能是被忍者组PUA了，这远景模糊朦胧的感觉，在特定光影下还真有点富岳三十六景的美感 ...</blockquote>
+关键godray 雾气 风和场景角色互动这些一点都没少，在某些场景实际上还挺漂亮的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

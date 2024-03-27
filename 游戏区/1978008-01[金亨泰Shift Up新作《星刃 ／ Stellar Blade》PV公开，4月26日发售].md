@@ -372,3 +372,11 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 20年有个比较短的实机战斗视频里就能看到拿出武器的样子，那时就觉得武器当发夹这个挺有意思<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouaa  
+##### 427#       发表于 2024-3-27 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个配乐很像FF13-2  但不是一个人
+

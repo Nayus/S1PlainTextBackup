@@ -14480,3 +14480,11 @@ db859af78809328623327fbea0adfce7.jpg
 
 感觉如果学马仕手游有初始数值这个东西的话，她的综合初始数值应该是最低的（
 
+
+*****
+
+####  winda  
+##### 2921#       发表于 2024-3-27 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">在人均虚报低体重的情况下真来了位体重这么轻的啊
+

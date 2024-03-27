@@ -9285,3 +9285,37 @@ https://tieba.baidu.com/p/8948782099
 怎么跟久坂好感满了不能比翼啊，切类型都试了。现在主线里已经死了只能去回魂录对话，结果没反应 ...</blockquote>
 有婚姻状态的都不能比翼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她老婆也是他死了才可以
 
+
+*****
+
+####  acg_gyanc  
+##### 2435#       发表于 2024-3-27 21:48
+
+这游戏咋这么贵，随便看了眼都要500多快600……我看圣兽之王和龙信2都没那么夸张啊……
+
+*****
+
+####  nagitoY  
+##### 2436#       发表于 2024-3-27 21:48
+
+<blockquote>[ 绯想天の天子 replied on 2024-3-27 21:42](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398156&amp;ptid=2092342) 引用:nagitoY 发表于 2024-3-27 21:41 杀了青鬼对流派之类的有什么影响吗？ 义经流只能到初传 </blockquote>
+那杀了，等主线通关再收集义经流了来自: iPhone客户端
+
+*****
+
+####  nagitoY  
+##### 2437#       发表于 2024-3-27 21:50
+
+用立身流打青鬼，感觉自己没什么机会压制，还是要多弹敌人攻击才过的。
+
+带两个盟友的任务可以给每个队友附魔，靠队友上混沌吗？来自: iPhone客户端
+
+*****
+
+####  绯想天の天子  
+##### 2438#       发表于 2024-3-27 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398201&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-3-27 21:47</a>
+有婚姻状态的都不能比翼啊她老婆也是他死了才可以</blockquote>
+那为啥还给他开好感度，kt令人迷惑的设置<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

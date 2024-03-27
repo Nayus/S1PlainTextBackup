@@ -298,3 +298,11 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 黑贞一直以来不是定位暴击打手么？</blockquote>
 定位不是花瓶？有金时也不需要她轮班吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11867#       发表于 2024-3-27 10:27
+
+第一部中期~Epic of Remnant（1.5）那会儿是强了一段时间的（彼时有很多过程中的探索性组队，甚至有过黑贞伯爵混队的，安徒生那种已经算是探索了一阵子的产物了
+

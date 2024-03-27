@@ -8690,3 +8690,22 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 
 特别是最后那段我们一起骑马回到游郭的路上，村山多加说多希望这路途能再久一点，真是看的我心都要化了。想当年我开车送追求的女生回家，路上下着雨，我故意压着速度开，也是希望这雨永远不要停。
 
+
+*****
+
+####  Yeelolo  
+##### 2375#       发表于 2024-3-27 10:20
+
+浪人画面确实烂，也不是什么视频码率太低能解释的，但是当我开始战斗的那一刻，这些缺点都不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">战斗，爽
+
+*****
+
+####  popchong  
+##### 2376#       发表于 2024-3-27 10:20
+
+ 本帖最后由 popchong 于 2024-3-27 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389844&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-3-27 09:55</a>
+
+我感觉观感上画面比较杂，实际上贴图啥的都不差，但是看起来就很花，而且树木远景树叶会成块，导致观感变 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">可能是被忍者组PUA了，这远景模糊朦胧的感觉，在特定光影下还真有点富岳三十六景的美感
+

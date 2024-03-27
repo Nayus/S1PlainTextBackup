@@ -202,3 +202,14 @@ AJ上有第二季的情报吗？</blockquote>
 怎么去年有消息，今年反而没有了</blockquote>
 今年AJ上好像没有蒜。
 
+
+*****
+
+####  蒜灵  
+##### 1757#       发表于 2024-3-28 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398500&amp;ptid=2152053" target="_blank">灼眼的夏娜酱 发表于 2024-3-27 22:13</a>
+
+今年AJ上好像没有蒜。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我明明记得宣传图里面见到蒜了来着，难道是和去年的记混了？
+

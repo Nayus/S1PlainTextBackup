@@ -9522,3 +9522,26 @@ https://tieba.baidu.com/p/8948782099
 
 好感度还没满，还有机会补么？
 
+
+*****
+
+####  绯想天の天子  
+##### 2460#       发表于 2024-3-28 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64400336&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2024-3-28 01:46</a>
+进江户多加就没了……
+
+好感度还没满，还有机会补么？</blockquote>
+解锁留魂录后可以直接返回到第一章时间点，任务好感都能补
+
+
+*****
+
+####  绯想天の天子  
+##### 2461#       发表于 2024-3-28 02:11
+
+ 本帖最后由 绯想天の天子 于 2024-3-28 02:12 编辑 
+
+现在用的最多的就是二天一流和立身流。这俩石火判定长的离谱，输出还高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">直接无视克制乱砍。
+打冲田总司自信隼流被冲田乱杀，换了这俩流派随便过了。
+

@@ -9545,3 +9545,11 @@ https://tieba.baidu.com/p/8948782099
 现在用的最多的就是二天一流和立身流。这俩石火判定长的离谱，输出还高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">直接无视克制乱砍。
 打冲田总司自信隼流被冲田乱杀，换了这俩流派随便过了。
 
+
+*****
+
+####  Booorunestud  
+##### 2462#       发表于 2024-3-28 02:44
+
+我30个小时才到江户，这马桶量也太大了
+

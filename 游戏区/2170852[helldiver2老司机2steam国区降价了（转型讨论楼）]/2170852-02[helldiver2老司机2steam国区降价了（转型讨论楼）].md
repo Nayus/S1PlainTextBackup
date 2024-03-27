@@ -7620,3 +7620,16 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 更新回归体验了下西线，还是让老哥们先上<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">           
 
+
+*****
+
+####  Caa  
+##### 2214#       发表于 2024-3-27 23:13
+
+刚入坑几天<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这游戏的胡逼味和黑色幽默我太喜欢了。
+进去的第一把就遇到一个声音充满磁性的美国老哥，带着我把所有要素、点位和基础内容全部介绍了一遍，好感度拉满。
+然后第二把就遇到一个三黑全程用着不知所云的语言语音聊天，然后上船前还把我tk了，气得不轻。
+虽然后来发现没逃走其实就损失点钱，没啥大问题。总体排个十把会遇到一把脑子有问题的队友，总体还不错<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJA110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -998,3 +998,17 @@ TVアニメ「#SYNDUALITY Noir」
 
 2024-3-27 23:04 上传
 
+
+*****
+
+####  ibcsa  
+##### 4529#       发表于 2024-3-27 23:23
+
+ 本帖最后由 ibcsa 于 2024-3-27 23:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64375966&amp;ptid=2092345" target="_blank">cybernetics31 发表于 2024-3-25 23:52</a>
+
+全剧没有一丁半点优点，唯一能看的两集全是牢谢carry。
+
+牢谢的day dream上流媒体了，写着牢谢版本，咋地， ...</blockquote>
+听了Your Song就能预见到4月发售的插曲cd里古贺葵翻唱的青山渚其他几首歌，会是多么违和诡异了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

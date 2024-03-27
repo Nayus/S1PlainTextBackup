@@ -9383,3 +9383,21 @@ https://tieba.baidu.com/p/8948782099
 青鬼在过场动画里死掉了？难道还 ...</blockquote>
 你放了井伊就会发现青鬼也跟着活了润了
 
+
+*****
+
+####  ky7913  
+##### 2445#       发表于 2024-3-27 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398230&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 21:48</a>
+
+那杀了，等主线通关再收集义经流了</blockquote>
+不需要，等进了江户用留魂录重玩这一战选择放过赤鬼就行
+
+*****
+
+####  nagitoY  
+##### 2446#       发表于 2024-3-27 23:23
+
+进江户后要重新买马？
+

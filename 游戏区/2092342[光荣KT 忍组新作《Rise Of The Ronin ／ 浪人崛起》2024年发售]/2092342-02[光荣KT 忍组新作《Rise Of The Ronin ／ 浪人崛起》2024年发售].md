@@ -8978,3 +8978,42 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 
 我的还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lazycat233  
+##### 2404#       发表于 2024-3-27 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64393668&amp;ptid=2092342" target="_blank">ky7913 发表于 2024-3-27 15:10</a>
+江户高轮这地图最南边那个景点怎么去？还有就是这个地图南边一个箱子在那种白色宝箱屋子里，但一楼开门是拿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这个我之前也找了半天，这玩意在一楼靠近墙可以互动，是个隐藏门。后面还有一两个也是类似的，可以注意一下
+
+*****
+
+####  nagitoY  
+##### 2405#       发表于 2024-3-27 15:54
+
+[https://tieba.baidu.com/p/8948782099](https://tieba.baidu.com/p/8948782099)
+
+贴吧这位的捏脸也太美了，特别是阿秀和义勇兵。
+
+阿秀
+
+<img src="https://img.saraba1st.com/forum/202403/27/155422kn76nndezc7ic7n7.jpg" referrerpolicy="no-referrer">
+
+<strong>阿秀.jpg</strong> (360.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 15:54 上传
+
+义勇兵
+
+<img src="https://img.saraba1st.com/forum/202403/27/155422idm7divqddivpb0o.jpg" referrerpolicy="no-referrer">
+
+<strong>义勇兵.jpg</strong> (360.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 15:54 上传
+

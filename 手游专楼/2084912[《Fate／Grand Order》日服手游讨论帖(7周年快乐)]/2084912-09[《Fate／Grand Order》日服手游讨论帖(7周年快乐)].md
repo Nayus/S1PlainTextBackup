@@ -488,3 +488,14 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 当时唯一能跟黑贞对轰的应该只有魔性特攻的罗大爷
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  areklose  
+##### 11882#       发表于 2024-3-27 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64393128&amp;ptid=2084912" target="_blank">Blackson 发表于 2024-3-27 14:30</a>
+
+以前是有自充/能帮他人充能的角色少，所以暴击流打法有存在之地。现在充能手段多了，暴击流打法自然是作为 ...</blockquote>
+多血条对梅林影响还是小，对没有长线能力的红卡单体才是大动脉。实际上针对梅林的手段1.7就出现了。强化解除的小怪。
+

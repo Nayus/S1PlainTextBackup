@@ -8559,3 +8559,24 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
  当海王就没有瑟瑟</blockquote>
 这是我唯一一个结成比翼盟约的人
 
+
+*****
+
+####  nagitoY  
+##### 2363#       发表于 2024-3-27 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388190&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-27 01:06</a>
+
+一般刷好感度都是送礼，送礼可以一次性送多个直接塞爆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那看来要刷一下礼物了，用钱买礼物是不是只能在路上遇到的游商才有，银币实在太珍贵了。
+
+最担心的就是进江户后，前面的角色支线不能做了。进江户后还能回横滨吗？这游戏应该有些npc支线有时间节点限制吧。
+
+
+*****
+
+####  godless2020  
+##### 2364#       发表于 2024-3-27 09:12
+
+这游戏实体版是不是出了什么问题，价格500起步？？？
+

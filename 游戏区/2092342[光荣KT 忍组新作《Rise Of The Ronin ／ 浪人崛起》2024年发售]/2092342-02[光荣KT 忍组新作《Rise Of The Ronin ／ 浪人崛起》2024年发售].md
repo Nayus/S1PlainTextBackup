@@ -8539,3 +8539,23 @@ wc，怎么萨道义有火箭靴，哪来的幕末黑科技<img src="https://sta
 我和笃姬结成比翼盟约后并没有瑟瑟。是只有一部分角色能瑟还是必须捏男主角？ ...</blockquote>
 当海王就没有瑟瑟
 
+
+*****
+
+####  月光下的静寂  
+##### 2361#       发表于 2024-3-27 08:29
+
+<blockquote>桥洞底下盖小被 发表于 2024-3-27 02:52
+伊藤博文怎么开枪都没前摇的，还是个霰弹枪</blockquote>
+这家伙翻滚后要么开枪要么红光突刺投技。
+
+
+*****
+
+####  RushMove  
+##### 2362#       发表于 2024-3-27 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64388943&amp;ptid=2092342" target="_blank">kuker53 发表于 2024-3-27 08:20</a>
+ 当海王就没有瑟瑟</blockquote>
+这是我唯一一个结成比翼盟约的人
+

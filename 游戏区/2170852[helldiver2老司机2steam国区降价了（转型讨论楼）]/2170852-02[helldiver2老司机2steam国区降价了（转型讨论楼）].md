@@ -7677,3 +7677,14 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 帮朋友问一下：</blockquote>
 有没有可能是硬件问题，拔插内存条试试
 
+
+*****
+
+####  smdzh2  
+##### 2218#       发表于 2024-3-27 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399053&amp;ptid=2170852" target="_blank">Caa 发表于 2024-3-28 00:13</a>
+刚入坑几天这游戏的胡逼味和黑色幽默我太喜欢了。
+进去的第一把就遇到一个声音充满磁性的美国老哥， ...</blockquote>
+平常心，这游戏是任务结算制，有人没上船损失的还是所有人的共同收益，所以完全不理解也不愿去理解那些热衷上船前tk的在想什么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

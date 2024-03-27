@@ -9432,3 +9432,11 @@ https://tieba.baidu.com/p/8948782099
 好像是市区内不让骑马？</blockquote>
 不需要重新买，部分地区不能骑马而已
 
+
+*****
+
+####  lazycat233  
+##### 2450#       发表于 2024-3-27 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的档因为恶性BUG废了感觉，武技没了硬砍也不是不行，但是我现在连科学家那个天赋也给我洗掉了，还学不回来，，，大家没事就不要点那个弱智文房四宝，有恶性BUG
+

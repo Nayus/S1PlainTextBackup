@@ -1023,3 +1023,11 @@ TVアニメ「#SYNDUALITY Noir」
 主要因为动画的定位其实算外传吧 很多东西其实应该是留给本篇的 不过本篇还不知道在哪 先放个外传动画的 ...</blockquote>
 问题是它那“本篇”也不是3A 单机而是全程联网的游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚瑟邓特  
+##### 4531#       发表于 2024-3-27 23:48
+
+青山渚的godknows啥时候发？
+

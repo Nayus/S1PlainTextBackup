@@ -9553,3 +9553,16 @@ https://tieba.baidu.com/p/8948782099
 
 我30个小时才到江户，这马桶量也太大了
 
+
+*****
+
+####  pwzzy  
+##### 2463#       发表于 2024-3-28 05:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64394233&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 15:54</a>
+
+https://tieba.baidu.com/p/8948782099
+
+贴吧这位的捏脸也太美了，特别是阿秀和义勇兵。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没贴吧账号，求一个阿秀的代码
+

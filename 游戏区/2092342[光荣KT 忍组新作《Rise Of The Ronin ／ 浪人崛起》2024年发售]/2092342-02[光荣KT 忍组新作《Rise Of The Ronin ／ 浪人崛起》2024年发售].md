@@ -9156,3 +9156,23 @@ https://tieba.baidu.com/p/8948782099
 
 立身流确实coooooool啊，有啥好用的民工连吗
 
+
+*****
+
+####  nagitoY  
+##### 2421#       发表于 2024-3-27 20:11
+
+这游戏不能锁定保护装备吗？买了把木刀生怕自己给卖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  垃圾网站上  
+##### 2422#       发表于 2024-3-27 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397206&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 20:11</a>
+这游戏不能锁定保护装备吗？买了把木刀生怕自己给卖了</blockquote>
+按触控板
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

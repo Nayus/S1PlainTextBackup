@@ -89,3 +89,42 @@ new了bba，还可以至少好看
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ultraseven  
+##### 46246#       发表于 2024-3-27 20:09
+
+滑稽是谁？
+
+*****
+
+####  sandro  
+##### 46247#       发表于 2024-3-27 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64397186&amp;ptid=1712412" target="_blank">ultraseven 发表于 2024-3-27 20:09</a>
+滑稽是谁？</blockquote>
+花嫁泥路
+
+
+*****
+
+####  ultraseven  
+##### 46248#       发表于 2024-3-27 20:12
+
+BBA有宝具本，有20自充，还可以吧，本来就是一发选手，NP率和配卡太差技能救不回来的
+
+*****
+
+####  stunflare  
+##### 46249#       发表于 2024-3-27 20:12
+
+盘子+1，只能证明每次福袋首先排除盘子可能的必要性
+
+*****
+
+####  ultraseven  
+##### 46250#       发表于 2024-3-27 20:14
+
+花嫁尼禄现在是高难天之力敌人指定插件吧，自己主手没啥出场率
+

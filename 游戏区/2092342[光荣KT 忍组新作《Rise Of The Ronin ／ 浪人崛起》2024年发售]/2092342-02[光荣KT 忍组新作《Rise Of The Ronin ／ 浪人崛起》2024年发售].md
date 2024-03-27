@@ -9232,3 +9232,20 @@ https://tieba.baidu.com/p/8948782099
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  火华火华火  
+##### 2429#       发表于 2024-3-27 21:30
+
+刺杀井伊直弼的演出还不错
+
+要是画面能跟上时代就好了
+
+*****
+
+####  Kojimaru  
+##### 2430#       发表于 2024-3-27 21:33
+
+这结局给我看笑了，没dlc或者续作很难收场<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">好不容易燃起来又尿了
+

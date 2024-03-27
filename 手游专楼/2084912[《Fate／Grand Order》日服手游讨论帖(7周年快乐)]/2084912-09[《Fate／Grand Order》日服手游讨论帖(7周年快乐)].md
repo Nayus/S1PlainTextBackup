@@ -516,3 +516,46 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  exiaexa  
+##### 11884#       发表于 2024-3-27 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64394719&amp;ptid=2084912" target="_blank">——啧 发表于 2024-3-27 16:31</a>
+
+奏二终于打完了，有HXD说说复仇者们为啥听到伯爵说两句话就决定跑了吗
+
+要说为了不让藤丸不被仇恨蒙 ...</blockquote>
+我是这么理解的
+
+你可以把前22节理解为，伯爵给立香设计的一个给人理看的“自证”
+
+伯爵让立香体验了复仇者为什么而愤怒，为什么而战斗，如果立香最后被复仇者同化，那复仇者们就会陪着立香去暴打一切能暴打的东西，但是代价就是去不了南极；
+
+——————
+
+最后立香的选择是为了生者去战斗，没有站在复仇者一边，最后就是伯爵设计的“自证”成功了，复仇者们既证明了立香仍旧为人理而战，也证明了不需要复仇者们立香仍然可以前进；
+
+——————
+
+所以23章伯爵头都不回就去冲废弃孔了，一开始就没想着能回来，只是没想到最后立香反而冲进来救人，让最后大家可以正常的道别
+
+打一段话发了三个地方，我赚麻了.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 11885#       发表于 2024-3-27 17:04
+
+<img src="https://img.saraba1st.com/forum/202403/27/170404nxh7tc5cr5jjr95h.jpg" referrerpolicy="no-referrer">
+
+<strong>2323232.jpg</strong> (605.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 17:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好！
+

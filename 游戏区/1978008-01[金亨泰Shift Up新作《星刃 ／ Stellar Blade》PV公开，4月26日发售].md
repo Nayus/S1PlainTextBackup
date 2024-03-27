@@ -486,3 +486,22 @@ https://youtu.be/kC6Qefn1EVQ</blockquote>
 
 我很好奇stellar blade怎么被媒体翻译成了剑星，明明星刃才是正确翻译吧...难不成因为是一个画师所以蹭了下剑灵（Blade ＆ Soul）？
 
+
+*****
+
+####  simonroam  
+##### 438#       发表于 2024-3-27 22:01
+
+我咋觉得这女主脸没啥记忆点啊，而且这身材那么多AI图还没看腻吗
+
+
+*****
+
+####  纱布光环  
+##### 439#       发表于 2024-3-27 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398211&amp;ptid=1978008" target="_blank">Jamaisvu 发表于 2024-3-27 21:47</a>
+
+我很好奇stellar blade怎么被媒体翻译成了剑星，明明星刃才是正确翻译吧...难不成因为是一个画师所以蹭了下 ...</blockquote>
+有没有可能，这是官译？<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+

@@ -7604,3 +7604,11 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 还有这种bug？超级信球的武器未经测试直接量产投入前线实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2212#       发表于 2024-3-27 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机器人野队真是尿了
+

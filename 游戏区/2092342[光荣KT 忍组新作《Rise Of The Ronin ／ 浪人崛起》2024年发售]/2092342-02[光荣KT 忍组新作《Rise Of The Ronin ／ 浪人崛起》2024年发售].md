@@ -8932,3 +8932,41 @@ https://tieba.baidu.com/p/8952366851</blockquote>
 银币有什么好的刷法吗 买幻化花的一干二净了</blockquote>
 大地图找猫、狗，然后击杀通缉犯
 
+
+*****
+
+####  BadYanL  
+##### 2399#       发表于 2024-3-27 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64393385&amp;ptid=2092342" target="_blank">RinC 发表于 2024-3-27 14:49</a>
+
+银币有什么好的刷法吗 买幻化花的一干二净了</blockquote>
+出租猫，拜庙狗可以调系统时间。
+
+*****
+
+####  ky7913  
+##### 2400#       发表于 2024-3-27 15:10
+
+江户最南边那个景点怎么去？还有就是这个地图南边一个箱子在那种白色宝箱屋子里，但一楼看门是拿不到箱子，二楼进窗跑进去发现箱子在楼下通过地板的间隙能看到但怎么拿啊？
+
+
+*****
+
+####  duraa  
+##### 2401#       发表于 2024-3-27 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64393668&amp;ptid=2092342" target="_blank">ky7913 发表于 2024-3-27 15:10</a>
+江户高轮这地图最南边那个景点怎么去？还有就是这个地图南边一个箱子在那种白色宝箱屋子里，但一楼开门是拿 ...</blockquote>
+那个宝箱房的正门没锁<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky7913  
+##### 2402#       发表于 2024-3-27 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64393683&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-27 15:11</a>
+
+那个宝箱房的正门没锁</blockquote>
+靠，有机关门……我第一次碰到这种
+

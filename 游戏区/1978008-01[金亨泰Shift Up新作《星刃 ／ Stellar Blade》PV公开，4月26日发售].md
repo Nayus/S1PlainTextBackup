@@ -380,3 +380,41 @@ Demo 3月29日晚10点公开：[https://youtu.be/0aK3DZavbsA](https://youtu.be/0
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个配乐很像FF13-2  但不是一个人
 
+
+*****
+
+####  TNN  
+##### 428#       发表于 2024-3-27 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64379942&amp;ptid=1978008" target="_blank">今天不守尸 发表于 2024-3-26 12:18</a>
+
+锅盖头在棒子那是啥帅哥美女的标配吗，感觉韩漫韩游里主角都是锅盖头，真的难看啊。。。
+
+用第一个pv里的发 ...</blockquote>
+我擦，这个从发型到五官都秒杀啊。现版本马尾一遮还以为是棒子男鲜肉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立马软了
+
+
+*****
+
+####  TNN  
+##### 429#       发表于 2024-3-27 15:10
+
+说是个少年都没问题
+
+<img src="https://img.saraba1st.com/forum/202403/27/151031b2j3ngcuuk92jijj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2181.jpeg</strong> (134.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-27 15:10 上传
+
+*****
+
+####  敏感词好多  
+##### 430#       发表于 2024-3-27 15:13
+
+锅盖刘海真不行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

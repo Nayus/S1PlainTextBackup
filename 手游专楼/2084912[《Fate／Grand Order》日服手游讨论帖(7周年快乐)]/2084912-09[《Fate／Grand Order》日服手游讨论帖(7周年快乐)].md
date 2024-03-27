@@ -615,3 +615,32 @@ c狐的强化本到底什么时候来啊<img src="https://static.saraba1st.com/i
 
 白毛伯爵满破还不错啊，真的是侧脸专精<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 11890#       发表于 2024-3-27 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64395252&amp;ptid=2084912" target="_blank">——啧 发表于 2024-3-27 17:12</a>
+
+所以才说这逻辑乱七八糟的，全家都寄了，但你不能想着复仇，也不能以复仇为驱动力来鼓励自己，什么圣母人 ...</blockquote>
+没乱啊，伯爵说的是
+
+现在地球白纸化了，可以说你家人也是变相被杀了，你有权利向他们复仇
+
+你是怀着什么心态坚持到现在的
+
+立香的回答是为了拯救还活着的人
+
+从这里开始它跟复仇者的心态就不一样了
+
+这勉强算是个不太圣母的理由，毕竟你让我去跟一个大概率实体都摸不到的东西去复仇多少有点大可不必
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 11891#       发表于 2024-3-27 17:25
+
+老男人能看的只有满破啊……
+

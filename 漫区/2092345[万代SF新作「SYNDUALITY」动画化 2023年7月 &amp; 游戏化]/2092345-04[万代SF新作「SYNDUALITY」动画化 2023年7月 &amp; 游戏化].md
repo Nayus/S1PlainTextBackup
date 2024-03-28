@@ -1078,3 +1078,11 @@ bd特典曲，你看bd发售日呗，不过估计只能看有没有买的人分�
 演出也还不错，歌姬部分就不说了，艾女士的乐子和感动，诺娃的自白和唯一一次发飙扔给了威斯（“不可原谅 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哎，这片，哎
 
+
+*****
+
+####  765事务所  
+##### 4537#       发表于 2024-3-28 16:34
+
+哎，广告片的宿命，还好不是PPT，哎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

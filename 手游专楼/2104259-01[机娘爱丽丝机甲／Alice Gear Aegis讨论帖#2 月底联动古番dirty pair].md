@@ -155,3 +155,39 @@ LV2砸了50票04，再砸了380石还是没4，我不抽了<img src="https://sta
 
 试了下这个SP合体，感觉除了看演出和拍照外没啥用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  regular  
+##### 990#       发表于 2024-3-28 15:46
+
+PC上手柄怎么发联合SP？只能鼠标划？
+
+*****
+
+####  江戸前ルナ  
+##### 991#         楼主| 发表于 2024-3-28 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64406243&amp;ptid=2104259" target="_blank">regular 发表于 2024-3-28 15:46</a>
+
+PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
+我键盘，按SP键后再看你哪个LINK了选按左右
+
+
+*****
+
+####  江戸前ルナ  
+##### 992#         楼主| 发表于 2024-3-28 15:51
+
+<img src="https://img.saraba1st.com/forum/202403/28/155021c6c84i4bui164umi.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240328154957.png</strong> (477.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-28 15:50 上传
+
+[https://twitter.com/yunion3/status/1772986664203223258](https://twitter.com/yunion3/status/1772986664203223258)
+
+阿嘎正式进入大群殴时代<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

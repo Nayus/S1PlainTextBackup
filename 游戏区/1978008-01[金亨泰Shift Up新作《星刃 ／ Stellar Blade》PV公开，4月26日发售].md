@@ -690,3 +690,11 @@ dlc代码估计没法用
 
 你还没法注册一个韩服账号去换dlc(貌似要韩国身份证)
 
+
+*****
+
+####  sosgame67  
+##### 455#       发表于 2024-3-28 12:12
+
+这穿模长发还有土味发型真耽误了一年开发进度也太幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

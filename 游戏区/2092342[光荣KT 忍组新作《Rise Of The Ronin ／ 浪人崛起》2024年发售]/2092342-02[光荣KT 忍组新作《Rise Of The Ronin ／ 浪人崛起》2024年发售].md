@@ -9812,3 +9812,68 @@ https://tieba.baidu.com/p/8948782099
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  ky7913  
+##### 2487#       发表于 2024-3-28 12:12
+
+看到1:1还原的浅草寺已经很良心了，没玩到京都但看到别人截图清水寺上坡那段也是很还原。野外地图也不都是简单复制黏贴
+
+*****
+
+####  寂长无星夜  
+##### 2488#       发表于 2024-3-28 12:12
+
+被浪人杀了怎么把果报拿回来啊，找不到人了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Booorunestud  
+##### 2489#       发表于 2024-3-28 12:13
+
+碧眼武士这样的隐藏boss能反复刷吗
+
+*****
+
+####  寂长无星夜  
+##### 2490#       发表于 2024-3-28 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64403415&amp;ptid=2092342" target="_blank">Leomai 发表于 2024-3-28 11:46</a>
+我觉得至少忍者组他们的设计师是玩了不少开放世界游戏的，知道怎么把舔图这块的压力降到最低，然后把所有正 ...</blockquote>
+舔图是真的爽，全收集也很快，完全没有其他开放世界玩起来的便秘感
+
+*****
+
+####  ky7913  
+##### 2491#       发表于 2024-3-28 12:16
+
+<blockquote>寂长无星夜 发表于 2024-3-28 12:12
+被浪人杀了怎么把果报拿回来啊，找不到人了</blockquote>
+有一个道具可以直接拿回，不用找人
+
+*****
+
+####  popchong  
+##### 2492#       发表于 2024-3-28 12:16
+
+光是按上马就能迅速呼唤出小马而且就算在跑动过程中也能自动上马，就已经在体验上把市面上大部分骑马开放世界薄纱了，美中不足是缺一个下马到战斗的快速衔接。
+
+<img src="https://img.saraba1st.com/forum/202403/28/121709l8qo9irbr9brzbri.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240328121703.png</strong> (47.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-28 12:17 上传
+
+*****
+
+####  斯卡哈  
+##### 2493#       发表于 2024-3-28 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64398804&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 22:49</a>
+
+双boss没法打啊。大老和青鬼两个性能句强的boss，我方完全没手段应对。从屏幕外面飞来的攻击怎么躲？ ...</blockquote>
+有队友在算你三条命了，我反正是初见盯着青鬼硬打，把丫干掉以后药吃完了自己也没了，剩下俩队友来回切换打赤鬼就比较轻松了
+

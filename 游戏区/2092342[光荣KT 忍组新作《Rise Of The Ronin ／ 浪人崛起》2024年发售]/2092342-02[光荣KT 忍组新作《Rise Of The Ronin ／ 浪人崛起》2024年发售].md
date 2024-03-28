@@ -9735,3 +9735,13 @@ https://tieba.baidu.com/p/8948782099
 
 虽然菜 但很用功
 
+
+*****
+
+####  clover293  
+##### 2480#       发表于 2024-3-28 10:57
+
+明年出完整版，整个ps5 pro专属优化
+
+计划通<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

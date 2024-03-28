@@ -9593,3 +9593,34 @@ https://tieba.baidu.com/p/8948782099
 
 这次音乐也是一坨，之前看宣发的纪录片，换了个白皮搞罐头式交响乐，我玩到现在一首印象深刻的曲子都没有，反而有个剧情高朝点的音乐让我觉得非常违和，别说仁王系列了，卧龙的音乐都爆杀浪人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2466#       发表于 2024-3-28 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399256&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-27 23:31</a>
+
+这代带队友打多boss的时候，你把其中一个拉走，另外一个boss基本不会过来掺和 ...</blockquote>
+我单挑井伊的时候，青鬼会放影分身然后冲过来。青鬼的突进技能速度又快，自己的视角还锁在井伊身上，根本来不及反应。
+
+*****
+
+####  nagitoY  
+##### 2467#       发表于 2024-3-28 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64400156&amp;ptid=2092342" target="_blank">Kojimaru 发表于 2024-3-28 01:09</a>
+
+后面还有经典的一打三boss战</blockquote>
+没有妖怪技的霸体减伤和强制打断，我都不知道一打多用什么思路了
+
+*****
+
+####  nagitoY  
+##### 2468#       发表于 2024-3-28 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64400655&amp;ptid=2092342" target="_blank">pwzzy 发表于 2024-3-28 05:58</a>
+
+没贴吧账号，求一个阿秀的代码</blockquote>
+楼主只放了浪人的代码，另外两个还回复
+

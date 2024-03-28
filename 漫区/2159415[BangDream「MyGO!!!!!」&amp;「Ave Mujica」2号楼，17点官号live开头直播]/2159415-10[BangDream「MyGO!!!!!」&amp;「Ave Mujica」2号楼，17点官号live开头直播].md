@@ -14114,3 +14114,13 @@ MD庆鹏不就在四叶隔壁，上个庆鹏怎么影响她和大家搞一辈子
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  小田切宁宁  
+##### 14533#       发表于 2024-3-29 01:31
+
+下载了游戏打了一整天歌
+虽然没整明白怎么玩 
+总之先买了个初始号等过几天抽mygo<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

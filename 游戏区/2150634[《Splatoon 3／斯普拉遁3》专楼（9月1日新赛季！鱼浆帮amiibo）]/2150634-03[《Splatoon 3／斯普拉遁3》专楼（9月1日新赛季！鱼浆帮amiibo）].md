@@ -7755,3 +7755,22 @@ RAP6-PDSB-NTTH-G90S</blockquote>
 
 感谢坛友抽空指点，这场暴露的额问题短期之内应该没办法彻底解决，我打算尝试比赛期间点评自己的立回，一点一点改善吧
 
+
+*****
+
+####  KBAC  
+##### 3750#       发表于 2024-3-28 23:25
+
+新的访谈再次确认了二代dlc设定集里一个设定，地下的人型章鱼是触手章鱼兵变态发育而成的。
+咱们的饭田和小八以前都是这玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/28/232502zvlhwoixlrlqizk0.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9077.jpg</strong> (36.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-28 23:25 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

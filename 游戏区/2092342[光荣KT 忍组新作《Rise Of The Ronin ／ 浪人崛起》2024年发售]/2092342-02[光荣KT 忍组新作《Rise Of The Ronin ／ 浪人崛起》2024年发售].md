@@ -10113,3 +10113,19 @@ https://tieba.baidu.com/p/8948782099
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  duraa  
+##### 2516#       发表于 2024-3-28 23:20
+
+觉得难可以切简单难度，增加石火判定帧的（如果已经是简单难度那当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nagitoY  
+##### 2517#       发表于 2024-3-28 23:24
+
+进江户后没有发明家了吗？想找他升级道具来自: iPhone客户端
+

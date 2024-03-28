@@ -14747,3 +14747,16 @@ PS：
 
 巴哈居然买了sc，为什么u149和百万都没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2934#       发表于 2024-3-29 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412624&amp;ptid=2130897" target="_blank">screeper 发表于 2024-3-29 01:11</a>
+巴哈居然买了sc，为什么u149和百万都没有呢</blockquote>
+之前传闻是亚洲版权打包卖给了韩国人，好像是aniplus？至少搜了一下蛮多动画韩国代理权都是这家的，虽然搜到的官网全是英文
+这次巴哈发的闪彩的公告也写着aniplus
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

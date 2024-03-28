@@ -8220,3 +8220,16 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 
 再看隔壁DRG，一把枪换个模组直接从远程进攻型武器变成近身防御型武器，玩法和用途上完全改变，高下立判。
 
+
+*****
+
+####  Launce  
+##### 2274#       发表于 2024-3-29 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412808&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-29 02:05</a>
+
+对后续更新基本没啥想法了，贱头这个武器设计是纯菜。
+
+重机枪但凡给到150发载弹，趴下后可原地架设变成固 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一代战备升级回归一切都会好起来的，泄露图标就有各种改装和子弹类型什么的
+

@@ -1086,3 +1086,13 @@ bd特典曲，你看bd发售日呗，不过估计只能看有没有买的人分�
 
 哎，广告片的宿命，还好不是PPT，哎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  charlespfan  
+##### 4538#       发表于 2024-3-29 05:30
+
+Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编曲了，牢谢（红薯星人）的清唱真好听<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

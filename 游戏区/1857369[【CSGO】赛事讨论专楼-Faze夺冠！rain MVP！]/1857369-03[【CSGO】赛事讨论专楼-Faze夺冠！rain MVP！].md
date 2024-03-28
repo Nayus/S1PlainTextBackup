@@ -702,3 +702,14 @@ CSGO纪录片part1
 
 我觉得该有个CS2赛事楼然后让这个楼沉掉的
 
+
+*****
+
+####  Mimic  
+##### 4106#       发表于 2024-3-28 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64408726&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-3-28 19:28</a>
+
+【【CS:GO记忆】早些年  |  RedBull出品 反恐精英大型纪录片  中文字幕已传-哔哩哔哩】 https://b23.tv/0Er ...</blockquote>
+开一个，顺便有没有观战群
+

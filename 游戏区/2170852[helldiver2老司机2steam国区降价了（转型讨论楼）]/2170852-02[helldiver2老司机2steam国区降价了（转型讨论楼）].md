@@ -7817,3 +7817,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 主要是机炮厉害，远距离啥都能偷。
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2232#       发表于 2024-3-28 13:12
+
+蟹蟹各位，晚上去试试
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

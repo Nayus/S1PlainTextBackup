@@ -762,3 +762,30 @@ dlc代码估计没法用
 
 要不还是港版算了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 462#       发表于 2024-3-28 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64404408&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-3-28 13:07</a>
+这游戏日版评级是多少？能用国内信用卡买么
+
+还有就是日版有没有和谐……</blockquote>
+不管什么级都不能用国内信用卡
+
+d级淘宝买点卡就行，和谐不知道
+
+*****
+
+####  宛若青空  
+##### 463#       发表于 2024-3-28 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64404177&amp;ptid=1978008" target="_blank">艺海淘沙 发表于 2024-3-28 12:47</a>
+求问下，游戏买日版的话，能放到港版机器上玩吗，是不是只能玩离线的，不能后续更新了？还是说要注册个PSN ...</blockquote>
+你是港版机器，所以不需要用备份法就可以随便登陆哪个服的账号；机器不需要额外操作什么。
+
+然后如果你买日版实体版的话，可以随便插盘玩游戏也可以随时在线更新，只存在一个问题，那就是日版实体盘里的特典兑换码需要用日服账号去兑换，港服账号兑换不了，当然那个特典其实就是早期解锁权，游戏里正常玩也可以拿到。
+
+如果你买日版数字版的话，就注册个日服账号然后去商品买就行了。
+

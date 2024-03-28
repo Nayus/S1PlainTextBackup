@@ -1056,3 +1056,25 @@ bd特典曲，你看bd发售日呗，不过估计只能看有没有买的人分�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这片看来只剩人设了，哎
 
+
+*****
+
+####  aptx8285144  
+##### 4535#       发表于 2024-3-28 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405244&amp;ptid=2092345" target="_blank">洛克萨斯 发表于 2024-3-28 14:25</a>
+
+这片看来只剩人设了，哎</blockquote>
+演出也还不错，歌姬部分就不说了，艾女士的乐子和感动，诺娃的自白和唯一一次发飙扔给了威斯（“不可原谅”)，最后两话的打戏演出看得出来CG组还是比较用心的
+
+
+*****
+
+####  洛克萨斯  
+##### 4536#       发表于 2024-3-28 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405311&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-3-28 14:31</a>
+
+演出也还不错，歌姬部分就不说了，艾女士的乐子和感动，诺娃的自白和唯一一次发飙扔给了威斯（“不可原谅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哎，这片，哎
+

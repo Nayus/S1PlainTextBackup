@@ -18,3 +18,12 @@
 
 u1s1 你游策划是真爱触手 下个觉醒剧情要是一般人肯定会选加拉哈德作为觉醒 结果选触手的碎片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  smdzh2  
+##### 977#       发表于 2024-3-28 22:33
+
+触手这次逼格狂跌啊，被碎片吞了分身连带部分魔王权能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/dc2426344c4e6347b8a8f31e45d39a8e/54CDFEA072E63E80AADA3A11AADCD452_edit_77673981202209.jpg" referrerpolicy="no-referrer">
+

@@ -14067,3 +14067,11 @@ RAS 6月LIVE视觉图公开了
 这就是让 独角兽老师放开手脚制作的故事所带出来的影响吗</blockquote>
 泥邦手游剧情一直都挺放飞的吧，动画还保守了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 14528#       发表于 2024-3-28 22:30
+
+刚才初华唱完avemujica来bd广告soyo一句质问<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">吓得我
+

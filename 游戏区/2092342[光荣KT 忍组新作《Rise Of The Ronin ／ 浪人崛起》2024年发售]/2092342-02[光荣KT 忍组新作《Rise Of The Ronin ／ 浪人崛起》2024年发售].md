@@ -10062,3 +10062,13 @@ https://tieba.baidu.com/p/8948782099
 看了下，药贩这里不给卖啊。是需要到黑市商人那里买吗</blockquote>
 天赋里面点识货试试，好像要点那个才会卖
 
+
+*****
+
+####  葵  
+##### 2512#       发表于 2024-3-28 22:27
+
+前天盘到了，每天下班后爽玩3，4小时真挺开心的，这作战斗太爽了，我愿称之为忍龙2后忍组战斗最爽的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是这作帧数好像真的是不行啊，感觉比卧龙还差，开帧数优先模式很多场景都稳不了60帧，好多地方会掉到4，50帧这样，感觉跟FF16的帧数模式一个鬼样子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

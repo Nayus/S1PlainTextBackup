@@ -9708,3 +9708,30 @@ https://tieba.baidu.com/p/8948782099
 
 立身流很舒服的一点就是石火和初始两个武技的追刀性能都很优秀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ネコカイザー  
+##### 2478#       发表于 2024-3-28 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64401185&amp;ptid=2092342" target="_blank">ky7913 发表于 2024-3-28 08:52</a>
+
+义经流石火挺强的，很长的无敌时间，跟敌人拼招就算没格挡都能闪到对方身后 ...</blockquote>
+义经流和隼流这俩都属于忍系流派，忍系无视流派克制，对所有流派的石火窗口最短但石火成功后的硬直最长。
+
+
+*****
+
+####  白河响剑  
+##### 2479#       发表于 2024-3-28 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通宵打了几天
+
+挺上头
+
+当初看到评分还动摇了下
+
+现在感觉就是上学时班里的那种偏科生
+
+虽然菜 但很用功
+

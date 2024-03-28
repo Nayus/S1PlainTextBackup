@@ -10179,3 +10179,28 @@ https://tieba.baidu.com/p/8948782099
 
 另外就是某些武技AI不会应对的话可以无脑厨，虽然打起来比较丑陋就是了
 
+
+*****
+
+####  nagitoY  
+##### 2522#       发表于 2024-3-28 23:59
+
+毒藤女支线的前置条件是找到像牵牛花一样的花朵，这个怎么找啊来自: iPhone客户端
+
+*****
+
+####  duraa  
+##### 2523#       发表于 2024-3-29 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浪人日本首周6W4
+
+放点首周数据：
+
+仁王1 7W5
+
+仁王2 9W1
+
+FFO 4W6
+
+卧龙 4W7
+

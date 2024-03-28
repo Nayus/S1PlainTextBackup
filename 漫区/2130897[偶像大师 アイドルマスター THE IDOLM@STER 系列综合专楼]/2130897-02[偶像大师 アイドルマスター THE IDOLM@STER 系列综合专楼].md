@@ -14592,3 +14592,13 @@ SC 5
 
 S1没找到折叠功能，就不直接贴了。当前结果 =&gt; [腾讯文档]IMSPlaylistMakerVol1偶像是什么啊(收集结果)  [https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca](https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca)
 
+
+*****
+
+####  kanro623  
+##### 2930#       发表于 2024-3-29 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64399741&amp;ptid=2130897" target="_blank">Bruce33 发表于 2024-3-28 00:17</a>
+话说周年live有什么渠道能看吗，想入坑</blockquote>
+b站森野千里，百万为主，比较新的都还没挂，老的有投a；SC相关夜夜魅力的
+

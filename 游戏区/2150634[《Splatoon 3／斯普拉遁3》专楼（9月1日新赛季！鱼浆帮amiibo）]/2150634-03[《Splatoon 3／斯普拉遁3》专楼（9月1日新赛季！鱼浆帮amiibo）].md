@@ -7774,3 +7774,14 @@ RAP6-PDSB-NTTH-G90S</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 3751#       发表于 2024-3-29 00:02
+
+异界卡农确定是4号复制人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+水田现在在姬饭和小八的帮助下在尚兴搞音乐
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -7905,3 +7905,34 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Aeons  
+##### 2241#       发表于 2024-3-28 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64406938&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-28 16:40</a>
+安全模式重甲全穿，开不安全模式威力翻倍</blockquote>
+安全模式不穿重甲吧
+
+*****
+
+####  赤井稻妻  
+##### 2242#       发表于 2024-3-28 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405628&amp;ptid=2170852" target="_blank">卒业之勇 发表于 2024-3-28 14:55</a>
+
+削弱以后才开始用磁轨炮，感觉还是挺好用的想象不到削弱前有多强</blockquote>
+主要还是打强袭虫区别大，打机器人就是不能安全模式穿盾了，本来机器人就是以中甲为主，重甲巨型者一般都是打正面弱点
+
+
+*****
+
+####  Aeons  
+##### 2243#       发表于 2024-3-28 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64407058&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-3-28 16:48</a>
+安全模式不穿重甲吧</blockquote>
+我的，没看见是在说削弱前。
+不过削弱后满蓄伤害也没差特别多
+

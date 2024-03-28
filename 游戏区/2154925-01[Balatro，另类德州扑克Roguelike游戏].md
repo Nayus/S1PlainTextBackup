@@ -6249,3 +6249,16 @@ b站貌似代理了国服，不知道是单机买断还是氪金？
 
 打了一把开局烧焦+幻灵复制+蓝图疯狂升级一对，每次boss盲注都刚好成长到压线过关的程度
 
+
+*****
+
+####  mtbull  
+##### 549#       发表于 2024-3-28 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64344095&amp;ptid=2154925" target="_blank">a4ac7 发表于 2024-3-23 00:28</a>
+
+最后三个挑战真难，无小丑靠五条和玻璃牌力大飞砖赢了，幸好路上boss没怎么针对
+
+—— 来自 HUAWEI NOH-A ...</blockquote>
+卡在倒数第二个了，各种重开无果
+

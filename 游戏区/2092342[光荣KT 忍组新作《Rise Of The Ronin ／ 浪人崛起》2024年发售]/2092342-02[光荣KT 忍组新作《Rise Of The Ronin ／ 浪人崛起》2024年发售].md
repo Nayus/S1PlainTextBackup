@@ -9917,3 +9917,14 @@ https://tieba.baidu.com/p/8948782099
 
 材料跟道具碰到药商行商都买一遍就不用愁战斗不够用/调制没材料了，没钱可以去赌场SL刷，不过我没刷也感觉够用，反倒银币一直不够用……
 
+
+*****
+
+####  nagitoY  
+##### 2498#       发表于 2024-3-28 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405458&amp;ptid=2092342" target="_blank">霖岚_ 发表于 2024-3-28 14:43</a>
+
+材料跟道具碰到药商行商都买一遍就不用愁战斗不够用/调制没材料了，没钱可以去赌场SL刷，不过我没刷也感觉 ...</blockquote>
+赌场钱换代币是1000：1，但是代币换钱是1：1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

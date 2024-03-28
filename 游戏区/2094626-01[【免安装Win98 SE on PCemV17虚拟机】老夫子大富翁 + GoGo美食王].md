@@ -51,3 +51,16 @@
 
 樱花1-2我下星期有空试试
 
+
+*****
+
+####  黑暗之眼  
+##### 193#       发表于 2024-3-29 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412352&amp;ptid=2094626" target="_blank">winggg 发表于 2024-3-29 00:27</a>
+
+樱花3-4大概win98不支持（至少starforce在win98环境下，很不好对付）
+
+樱花1-2我下星期有空试试 ...</blockquote>
+非常感谢！
+

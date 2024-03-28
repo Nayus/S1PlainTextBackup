@@ -7785,3 +7785,22 @@ RAP6-PDSB-NTTH-G90S</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 3752#         楼主| 发表于 2024-3-29 01:14
+
+https://www.famitsu.com/news/202403/28337896.html
+
+fami通的秩序篇访谈
+
+小姬的衣服造价2亿www
+
+*****
+
+####  Ryuuseigun  
+##### 3753#       发表于 2024-3-29 01:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这张是真可爱
+

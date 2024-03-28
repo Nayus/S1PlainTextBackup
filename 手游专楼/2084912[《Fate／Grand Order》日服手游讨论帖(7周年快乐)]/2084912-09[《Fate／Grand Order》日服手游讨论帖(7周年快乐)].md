@@ -931,3 +931,26 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">17年第一次复刻抽的爱德蒙的宝五+这次基督山的宝五加起来500石都不到
 
+
+*****
+
+####  里村紅葉  
+##### 11915#       发表于 2024-3-28 11:47
+
+伯爵偷跑要被按回去力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  cenhr  
+##### 11916#       发表于 2024-3-28 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64403432&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2024-3-28 11:47</a>
+
+伯爵偷跑要被按回去力黑贞举报按出火星子了吧
+
+—— 来自 OnePlus NE2210, Android 14上的 S ...</blockquote>
+官方都说了是显示bug<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

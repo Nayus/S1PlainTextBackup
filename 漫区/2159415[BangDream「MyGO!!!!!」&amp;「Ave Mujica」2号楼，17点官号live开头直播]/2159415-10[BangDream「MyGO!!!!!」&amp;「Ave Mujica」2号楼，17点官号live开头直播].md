@@ -13871,3 +13871,28 @@ dj找了个专业吉他手，很难相信不是在给邦做预备役</blockquote
 
 [https://twitter.com/sorahaaoi7/status/1772975967171912160](https://twitter.com/sorahaaoi7/status/1772975967171912160)
 
+
+*****
+
+####  abaan  
+##### 14512#       发表于 2024-3-28 10:39
+
+刚看完mygo，超级惊喜，心满意足，感觉脑子吃了顿大餐。
+
+之前看过名字里有bang dream的动画，觉得很僵硬，就没有再看过带这个词组的动画了，这部是听人推荐才点开的，真的超级惊喜，人物塑造好棒呀，和这部比起来，轻音、孤独摇滚都有点悬浮，只有吹响上低音号还有一战之力了。
+
+但刷了一下咨询，好像mygo不会有第二季，之后就变成祥子的乐队了？刚迷上就被告知没有后续动画，好悲伤啊。
+
+
+*****
+
+####  好想看Mujica啊  
+##### 14513#       发表于 2024-3-28 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64402453&amp;ptid=2159415" target="_blank">abaan 发表于 2024-3-28 10:39</a>
+
+刚看完mygo，超级惊喜，心满意足，感觉脑子吃了顿大餐。
+
+之前看过名字里有bang dream的动画，觉得很僵硬， ...</blockquote>
+mygo已经进游戏了，可以去b站搜索剧情翻译，不过和动画不是一个编剧，人物有些变形
+

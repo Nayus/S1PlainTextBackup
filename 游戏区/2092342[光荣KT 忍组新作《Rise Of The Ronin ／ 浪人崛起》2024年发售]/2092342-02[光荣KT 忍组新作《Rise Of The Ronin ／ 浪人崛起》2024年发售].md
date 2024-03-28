@@ -9928,3 +9928,23 @@ https://tieba.baidu.com/p/8948782099
 材料跟道具碰到药商行商都买一遍就不用愁战斗不够用/调制没材料了，没钱可以去赌场SL刷，不过我没刷也感觉 ...</blockquote>
 赌场钱换代币是1000：1，但是代币换钱是1：1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯卡哈  
+##### 2499#       发表于 2024-3-28 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405532&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-28 14:47</a>
+
+赌场钱换代币是1000：1，但是代币换钱是1：1</blockquote>
+代币把大判都换了去兑钱就好几万，主要是把礼物还有技能书那些兑换完
+
+银币确实是缺的厉害，稍微换点东西就没了
+
+*****
+
+####  duraa  
+##### 2500#       发表于 2024-3-28 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">三张地图全探完（京都任务没打完），银币只买各种技能书，现在身上还有200+银币
+

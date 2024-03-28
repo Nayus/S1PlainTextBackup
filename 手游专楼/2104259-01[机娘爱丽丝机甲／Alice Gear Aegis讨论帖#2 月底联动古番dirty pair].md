@@ -137,3 +137,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">攒了50票结果就可乐酱+1，过分了
 
+
+*****
+
+####  江戸前ルナ  
+##### 988#         楼主| 发表于 2024-3-28 14:58
+
+LV2砸了50票04，再砸了380石还是没4，我不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -7848,3 +7848,18 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 还有，打机器人晕眩雷是神器。120 380这种平时不会用的，打机器人都能拿出来用。
 
+
+*****
+
+####  卒业之勇  
+##### 2235#       发表于 2024-3-28 14:55
+
+削弱以后才开始用磁轨炮，感觉还是挺好用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想象不到削弱前有多强
+
+*****
+
+####  rgauss  
+##### 2236#       发表于 2024-3-28 14:55
+
+机器人真不想打吧
+

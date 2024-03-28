@@ -7987,3 +7987,11 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 怎么机枪名字还打错了，军务部行不行啊
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  白昼梦  
+##### 2249#       发表于 2024-3-28 21:03
+
+重机枪太幽默了，2备弹 一梭子75发 中甲穿透，但是准星非常飘，腰射还没有准星用，装弹非常慢，最大优点应该是不占背包，好歹不会被电弧之外的武器吊打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

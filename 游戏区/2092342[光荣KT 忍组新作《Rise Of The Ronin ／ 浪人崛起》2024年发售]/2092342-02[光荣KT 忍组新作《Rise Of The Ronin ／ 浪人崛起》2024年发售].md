@@ -10051,3 +10051,14 @@ https://tieba.baidu.com/p/8948782099
 
 敌人被斩首就是触发成功
 
+
+*****
+
+####  ouyang菌  
+##### 2511#       发表于 2024-3-28 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64408529&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-28 19:15</a>
+
+看了下，药贩这里不给卖啊。是需要到黑市商人那里买吗</blockquote>
+天赋里面点识货试试，好像要点那个才会卖
+

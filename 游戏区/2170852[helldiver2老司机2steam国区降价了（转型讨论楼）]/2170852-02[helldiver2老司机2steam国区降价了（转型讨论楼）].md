@@ -8050,3 +8050,52 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 重机枪篮子这么大，实际弹量少的一批
 
+
+*****
+
+####  FLZB  
+##### 2256#       发表于 2024-3-28 21:50
+
+箭头这武器设计多少有点大病，总要有一两地方恶心你，玩家玩爽比他亲🐴死了都难受
+
+*****
+
+####  xifeilu  
+##### 2257#       发表于 2024-3-28 21:51
+
+问下有人知道买的内购道具在哪领吗，买了个基石，现在是需要用不知道上哪领，不会要回主城睡觉吧，我就是不想飞回去太远才买的
+
+
+*****
+
+####  风萧飒  
+##### 2258#       发表于 2024-3-28 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410715&amp;ptid=2170852" target="_blank">xifeilu 发表于 2024-3-28 21:51</a>
+问下有人知道买的内购道具在哪领吗，买了个基石，现在是需要用不知道上哪领，不会要回主城睡觉吧，我就是不 ...</blockquote>
+发错楼了，龙信2不在这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xifeilu  
+##### 2259#       发表于 2024-3-28 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410722&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-28 21:52</a>
+
+发错楼了，龙信2不在这
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">我草我手滑了对不起这就去编辑还以为专楼呢。。。
+
+*****
+
+####  Dashuaibi  
+##### 2260#       发表于 2024-3-28 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410715&amp;ptid=2170852" target="_blank">xifeilu 发表于 2024-3-28 21:51</a>
+
+问下有人知道买的内购道具在哪领吗，买了个基石，现在是需要用不知道上哪领，不会要回主城睡觉吧，我就是不 ...</blockquote>
+草，你这是在说龙信2吧，差点以为玩了个假游戏，回主城是飞回超级地球吗
+

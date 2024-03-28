@@ -14020,3 +14020,29 @@ ppp果然开始考虑进路了啊<img src="https://static.saraba1st.com/image/sm
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410327&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-28 21:17</a></blockquote>
 真敢写啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14524#       发表于 2024-3-28 21:50
+
+短髮睦寶也可愛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/28/214952bcxjx0nvrmrvnovv.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_みしり(@misiri_3320)_20240327-134145_1772982340727218288_photo.jpg</strong> (84.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-28 21:49 上传
+
+[https://twitter.com/misiri_3320/status/1772982340727218288](https://twitter.com/misiri_3320/status/1772982340727218288)
+
+*****
+
+####  KozueAkimoto  
+##### 14525#       发表于 2024-3-28 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410327&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-28 21:17</a></blockquote>
+这就是让 独角兽老师放开手脚制作的故事所带出来的影响吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

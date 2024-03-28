@@ -8200,3 +8200,11 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 
 —— 來自 samsung SM-F9260, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  smdzh2  
+##### 2272#       发表于 2024-3-29 01:07
+
+类星体适应输出节奏后蛮好用的，重机枪打难5哑铃人直接汗流浃背了，手感还没初始机枪好，真的不是来搞笑的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

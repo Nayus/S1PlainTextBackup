@@ -14602,3 +14602,123 @@ S1没找到折叠功能，就不直接贴了。当前结果 =&gt; [腾讯文档]
 话说周年live有什么渠道能看吗，想入坑</blockquote>
 b站森野千里，百万为主，比较新的都还没挂，老的有投a；SC相关夜夜魅力的
 
+
+*****
+
+####  wfhtony  
+##### 2931#       发表于 2024-3-29 00:28
+
+三张管马仕的翻唱专辑（封面作画 by [メイ・メイ](https://twitter.com/Maymay_pic)）：
+
+（via [mora](https://mora.jp/package/43000033/PA00122649-0-2/)）
+
+<strong>曲目列表</strong><blockquote>【Covered by [レトラ](https://twitter.com/UtagawaLetora)＠vα-liv】
+
+　01. <strong>POPLINKS TUNE!!!!!</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=KAafFf4pXH4)＠THE IDOLM@STER POPLINKS）
+
+　　作詞・作曲・編曲：BNSI (ミフメイ)
+
+　02. <strong>Sync My Lights</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=1poYYSlZ9HE)＠電音部）
+
+　　作詞・作曲・編曲：市瀬るぽ
+
+　03. <strong>ワンダーモモ</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=KD5USEPQueg)＠[NAMCO](https://w.atwiki.jp/gamemusicbest100/pages/2462.html)）
+
+　　作詞・作曲：弓達公雄
+
+　　編曲：米光亮</blockquote>
+(C)2023 Bandai Namco Entertainment Inc.
+
+(P)ASOBINOTES
+
+以下内容需要积分高于 500 才可浏览
+<strong>下载</strong>
+<[strong>百度盘</strong>](https://pan.baidu.com/s/1qGS3mDpadk3hqVMx_IM_tw)(zip+[5%rr](http://hp.vector.co.jp/authors/VA021385/)) PW：peps
+<[strong>Onedrive</strong>](https://clr2.wfhtony.space/s/D84I7)（←内附自购证明，测试） PW：vα-liv_middleEX
+<[strong>Google Drive</strong>](https://drive.google.com/file/d/1PJ4vU2eYAq8N9EjU1VyJ7vxw90v5OXcn/view?usp=sharing)（←同上，内附自购证明） 
+
+若要转载，在转载时请注明「Purchased by wfhtony.」，谢谢！
+
+PS：
+[神奇桃子（Wonder Momo）](https://store-jp.nintendo.com/list/software/70010000049253.html)在偶像大师本家后加的「[前辈](https://w.atwiki.jp/gcmatome/pages/974.html#id_219d1341)」设定到现在也还没有变过。
+
+（via [mora](https://mora.jp/package/43000033/PA00133323-0-2/)）
+
+<strong>曲目列表</strong><blockquote>【Covered by [上水流宇宙](https://twitter.com/KamizuruCosmo)＠vα-liv】
+
+　01. <strong>IDOL POWER RAINBOW</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=eCVgr9vUXzg)＠THE IDOLM@STER）
+
+　　作詞：有栖川姫子
+
+　　作曲・編曲：佐々木宏人
+
+　02. <strong>トアルトワ</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=_pzQlys0_J8)＠電音部）
+
+　　作詞・作曲・編曲：TAKU INOUE
+
+　03. <strong>エンジェル ドリーム</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=qcfupB_h59M)＠太鼓の達人）
+
+　　作詞：たかみつようこ
+
+　　作曲・編曲：岡部啓一 (MONACA)</blockquote>
+(C)2023 Bandai Namco Entertainment Inc.
+
+(P)ASOBINOTES
+
+以下内容需要积分高于 500 才可浏览
+<strong>下载</strong>
+<[strong>百度盘</strong>](https://pan.baidu.com/s/1SQMbBX_CynbtTp6o1rJXSg)(zip+[5%rr](http://hp.vector.co.jp/authors/VA021385/)) PW：mqq4
+<[strong>Onedrive</strong>](https://clr2.wfhtony.space/s/KbKc7)（←内附自购证明，测试） PW：vα-liv_middleEX2
+<[strong>Google Drive</strong>](https://drive.google.com/file/d/1RcCwf9bJ5oW1LhFCy2EGeAj2NdI0LWTw/view?usp=sharing)（←同上，内附自购证明） 
+
+若要转载，在转载时请注明「Purchased by wfhtony.」，谢谢！
+
+（via [mora](https://mora.jp/package/43000033/PA00139596-0-2/)）
+
+<strong>曲目列表</strong><blockquote>【Covered by [灯里愛夏](https://twitter.com/TomoriManaka)＠vα-liv】
+
+　01. <strong>CRYST@LOUD</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=qjUMwvzLEIg)＠THE IDOLM@STER）
+
+　　作詞：古屋 真　作曲：石濱 翔 (MONACA)
+
+　02. <strong>ミルキータイムライン</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=ftU99KUGIMk)＠電音部）
+
+　　作詞・作曲・編曲：Nor
+
+　03. <strong>Shinin' Magic</strong>
+
+　　（[原曲](https://www.youtube.com/watch?v=7DroL7bvUXM)＠[アクア☆マジック](https://www.susanoo-m.com/team/cheer2324)）
+
+　　作詞：山田ひろし
+
+　　作曲：山崎燿　編曲：浜田ピエール裕介</blockquote>
+(C)2024 Bandai Namco Entertainment Inc.
+
+(P)ASOBINOTES
+
+以下内容需要积分高于 500 才可浏览
+<strong>下载</strong>
+<[strong>百度盘</strong>](https://pan.baidu.com/s/1XWcJnpsg-Jc8pDs1jzBPiQ)(zip+[5%rr](http://hp.vector.co.jp/authors/VA021385/)) PW：g6dq
+<[strong>Onedrive</strong>](https://clr2.wfhtony.space/s/kQpiy)（←内附自购证明，OFB，备用） PW：vα-liv_middleEX3
+<[strong>Google Drive</strong>](https://drive.google.com/file/d/1HVwT_qBGtAjQFtEgs4_Z723M_zKvr8Gc/view?usp=sharing)（←同上，内附自购证明） 
+
+若要转载，在转载时请注明「Purchased by wfhtony.」，谢谢！
+
+最后是[岛根県篮球队](https://www.susanoo-m.com/)（由万南出资+运营）所属啦啦队的出道曲啊...
+

@@ -8180,3 +8180,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打了两盘类星体，感觉就是个不占背包位的无后座力炮，但是蓄力时间比我命还长，不适合单走来自: iPhone客户端
 
+
+*****
+
+####  风萧飒  
+##### 2270#       发表于 2024-3-28 23:47
+
+n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空袭+500kg，感觉还是挺舒服的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

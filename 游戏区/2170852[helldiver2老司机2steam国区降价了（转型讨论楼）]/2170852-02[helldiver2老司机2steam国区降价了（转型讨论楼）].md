@@ -7777,3 +7777,22 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">机器人的新单位已经解包出来了，发射火箭弹的空中炮艇，西线填线宝宝的好日子还在后头呢来自: iPhone客户端
 
+
+*****
+
+####  smdzh2  
+##### 2228#       发表于 2024-3-28 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64401061&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-28 09:36</a>
+打机器人到底带啥啊，难4前还能带机炮打打，难5不带蛋盾瞬间暴毙于流弹，但是没有好用的破甲，电弧 ...</blockquote>
+难5我衣服穿减爆甲，支援武器带机枪和一次性筒子，机枪开镜远距离清杂兵很舒服，筒子拿来应急基本够用，再带自动哨戒炮减少防守压力
+
+*****
+
+####  smdzh2  
+##### 2229#       发表于 2024-3-28 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64403942&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-3-28 13:26</a>
+机器人的新单位已经解包出来了，发射火箭弹的空中炮艇，西线填线宝宝的好日子还在后头呢 ...</blockquote>
+麦拉芬蒙一小时阵亡十万机动步兵地狱潜兵指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

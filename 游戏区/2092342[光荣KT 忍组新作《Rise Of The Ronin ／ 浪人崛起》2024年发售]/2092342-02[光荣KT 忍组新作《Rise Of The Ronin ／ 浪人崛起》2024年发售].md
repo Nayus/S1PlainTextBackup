@@ -9890,3 +9890,11 @@ https://tieba.baidu.com/p/8948782099
 要上雷属性不会 ...</blockquote>
 直接买雷属性磨刀石就好了吧
 
+
+*****
+
+####  hugosol  
+##### 2495#       发表于 2024-3-28 12:34
+
+玩过ff7rb再玩这边的小游戏都感觉眉清目秀的，我愿称之为FF杀手<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

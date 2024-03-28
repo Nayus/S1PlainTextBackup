@@ -14083,3 +14083,13 @@ RAS 6月LIVE视觉图公开了
 
 楼友有去上海RAS的吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 14530#       发表于 2024-3-28 22:50
+
+才看到灰爱音的二创，太可怕了，太强大了，太嗜血了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

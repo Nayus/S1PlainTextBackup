@@ -10129,3 +10129,34 @@ https://tieba.baidu.com/p/8948782099
 
 进江户后没有发明家了吗？想找他升级道具来自: iPhone客户端
 
+
+*****
+
+####  lazycat233  
+##### 2518#       发表于 2024-3-28 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我因为昨天那个bug，我现在不仅武技没了，紫电和烈风也没了，现在只能平砍+石火玩了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| duraa| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  duraa  
+##### 2519#       发表于 2024-3-28 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64411732&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-28 23:24</a>
+
+进江户后没有发明家了吗？想找他升级道具</blockquote>
+每张图都有，江户好像是在日本桥
+

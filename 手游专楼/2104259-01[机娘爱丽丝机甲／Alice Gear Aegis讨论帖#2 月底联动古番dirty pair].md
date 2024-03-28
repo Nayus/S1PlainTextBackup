@@ -245,3 +245,16 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 
 大招键和拉着的摇杆一起放开就发出来了。
 
+
+*****
+
+####  江戸前ルナ  
+##### 998#         楼主| 发表于 2024-3-28 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64407258&amp;ptid=2104259" target="_blank">regular 发表于 2024-3-28 17:03</a>
+
+总算使出来了，
+
+大招键和拉着的摇杆一起放开就发出来了。</blockquote>
+啊，我理解有误，只需要主控是LINK SP就OK了，link叫出来的队友不需要LINK SP也能连携~
+

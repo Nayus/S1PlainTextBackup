@@ -14046,3 +14046,13 @@ ppp果然开始考虑进路了啊<img src="https://static.saraba1st.com/image/sm
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410327&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-28 21:17</a></blockquote>
 这就是让 独角兽老师放开手脚制作的故事所带出来的影响吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 14526#       发表于 2024-3-28 21:59
+
+RAS 6月LIVE视觉图公开了
+
+而有的团下个月的新单特典还没公布，wsd你没事吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

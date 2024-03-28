@@ -6262,3 +6262,15 @@ b站貌似代理了国服，不知道是单机买断还是氪金？
 —— 来自 HUAWEI NOH-A ...</blockquote>
 卡在倒数第二个了，各种重开无果
 
+
+*****
+
+####  a4ac7  
+##### 550#       发表于 2024-3-28 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405561&amp;ptid=2154925" target="_blank">mtbull 发表于 2024-3-28 14:49</a>
+卡在倒数第二个了，各种重开无果</blockquote>
+一般第一轮靠skip，tag最好能有个25块左右，然后就是靠nb的乘法小丑了，至少两张
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

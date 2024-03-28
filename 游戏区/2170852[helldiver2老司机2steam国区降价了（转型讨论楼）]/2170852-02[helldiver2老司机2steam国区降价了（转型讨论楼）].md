@@ -7995,3 +7995,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 重机枪太幽默了，2备弹 一梭子75发 中甲穿透，但是准星非常飘，腰射还没有准星用，装弹非常慢，最大优点应该是不占背包，好歹不会被电弧之外的武器吊打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 2250#       发表于 2024-3-28 21:08
+
+重机枪有bug没准星。而且弹药太少了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

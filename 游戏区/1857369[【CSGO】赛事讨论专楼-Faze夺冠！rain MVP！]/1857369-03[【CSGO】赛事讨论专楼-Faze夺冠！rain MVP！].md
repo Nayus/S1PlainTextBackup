@@ -915,3 +915,18 @@ frozen真菜完了
 
 这shiro和zonnix真有点拟人了
 
+
+*****
+
+####  Mimic  
+##### 4132#       发表于 2024-3-29 06:54
+
+FAZE UP
+
+*****
+
+####  cwlo  
+##### 4133#       发表于 2024-3-29 06:54
+
+这个BO3还挺好看的，就是雪碧那边除了DONK尿完了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

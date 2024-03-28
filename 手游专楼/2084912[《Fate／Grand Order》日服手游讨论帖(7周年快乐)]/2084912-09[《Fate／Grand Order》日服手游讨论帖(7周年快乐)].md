@@ -978,3 +978,13 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 5T回合殺，也有點運氣成份，反正靈脈石是送的，無理由不用...懶得去想
 
+
+*****
+
+####  blue321  
+##### 11919#       发表于 2024-3-29 06:53
+
+这黄金釜也太难掉了吧，自然回体刷了两天就掉了一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

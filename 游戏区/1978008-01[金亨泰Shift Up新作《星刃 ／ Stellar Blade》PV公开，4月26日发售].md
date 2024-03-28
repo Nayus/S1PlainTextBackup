@@ -590,3 +590,24 @@ A9最后这个裸装挑战看着还是挺爽的
 
 fami通发的这个能听见日版战斗语音，还好战斗语音也重新配了，不是韩版的那个叫声。
 
+
+*****
+
+####  土路生優里  
+##### 446#       发表于 2024-3-28 10:07
+
+请问demo啥时候开放下载啊，我看商店里还没有
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  宛若青空  
+##### 447#       发表于 2024-3-28 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64402011&amp;ptid=1978008" target="_blank">土路生優里 发表于 2024-3-28 10:07</a>
+请问demo啥时候开放下载啊，我看商店里还没有
+
+—— 来自 OnePlus KB2005, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
+明晚，3.29 22:00
+

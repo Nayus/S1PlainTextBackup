@@ -9700,3 +9700,11 @@ https://tieba.baidu.com/p/8948782099
 
 千叶佐那怎么变成恋爱关系啊，我看贴吧说是可攻略的，但是我都从京都回江户了还没亮好感度条
 
+
+*****
+
+####  duraa  
+##### 2477#       发表于 2024-3-28 10:15
+
+立身流很舒服的一点就是石火和初始两个武技的追刀性能都很优秀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

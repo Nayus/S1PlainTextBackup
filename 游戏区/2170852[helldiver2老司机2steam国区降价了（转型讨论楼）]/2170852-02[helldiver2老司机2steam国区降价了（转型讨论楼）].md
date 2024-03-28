@@ -7750,3 +7750,14 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  赤井稻妻  
+##### 2225#       发表于 2024-3-28 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64401061&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-28 08:36</a>
+
+打机器人到底带啥啊，难4前还能带机炮打打，难5不带蛋盾瞬间暴毙于流弹，但是没有好用的破甲，电弧 ...</blockquote>
+打机器人最好穿50%爆炸抗性的甲，可以在火箭弹中幸存，支援武器我一般就是电弧枪或者机炮，打巨型者需要机炮或者磁轨枪爆头，我看很多pc狙神用反器材步枪爆巨型者的头，两枪一个，手柄肯定用不来
+

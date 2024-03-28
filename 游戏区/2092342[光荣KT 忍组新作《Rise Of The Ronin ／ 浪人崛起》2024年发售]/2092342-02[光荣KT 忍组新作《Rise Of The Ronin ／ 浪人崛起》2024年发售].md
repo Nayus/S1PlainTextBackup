@@ -9948,3 +9948,13 @@ https://tieba.baidu.com/p/8948782099
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">三张地图全探完（京都任务没打完），银币只买各种技能书，现在身上还有200+银币
 
+
+*****
+
+####  白河响剑  
+##### 2501#       发表于 2024-3-28 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说银币咋整
+
+感觉好缺 
+

@@ -10025,3 +10025,11 @@ https://tieba.baidu.com/p/8948782099
 
 不得不说这段佐幕派被剧情杀真的憋屈<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2508#       发表于 2024-3-28 21:18
+
+为什么我一次都没用出来过杀人剑，不是长按三角吗？对杂兵长按三角也是普通处决，没有秒杀啊
+

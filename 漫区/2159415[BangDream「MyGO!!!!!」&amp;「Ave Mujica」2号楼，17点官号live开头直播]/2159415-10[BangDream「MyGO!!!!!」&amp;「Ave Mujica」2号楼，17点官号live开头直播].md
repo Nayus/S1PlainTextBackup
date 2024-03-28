@@ -13984,3 +13984,30 @@ mygo已经进游戏了，可以去b站搜索剧情翻译，不过和动画不是
 发错地方了吧我看到还当什么邦邦同人游戏那么厉害呢</blockquote>
 太容易弱智了23333，抱歉大家！
 
+
+*****
+
+####  PDQ4  
+##### 14521#       发表于 2024-3-28 21:13
+
+ 本帖最后由 PDQ4 于 2024-3-28 21:17 编辑 
+
+ppp果然开始考虑进路了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+官推就是好啊，安心与信赖地卖好大。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 14522#       发表于 2024-3-28 21:17
+
+<img src="https://img.saraba1st.com/forum/202403/28/211707tonw08fq8yyzr4mg.jpg" referrerpolicy="no-referrer">
+
+<strong>S{D6S03``6AX]VRL%BYD%YV_tmb.jpg</strong> (98.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-28 21:17 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

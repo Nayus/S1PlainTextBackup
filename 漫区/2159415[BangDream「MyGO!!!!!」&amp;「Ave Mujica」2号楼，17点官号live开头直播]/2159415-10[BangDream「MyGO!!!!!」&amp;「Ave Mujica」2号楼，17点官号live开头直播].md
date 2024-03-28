@@ -13896,3 +13896,14 @@ dj找了个专业吉他手，很难相信不是在给邦做预备役</blockquote
 之前看过名字里有bang dream的动画，觉得很僵硬， ...</blockquote>
 mygo已经进游戏了，可以去b站搜索剧情翻译，不过和动画不是一个编剧，人物有些变形
 
+
+*****
+
+####  abaan  
+##### 14514#       发表于 2024-3-28 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64402512&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-3-28 10:44</a>
+
+mygo已经进游戏了，可以去b站搜索剧情翻译，不过和动画不是一个编剧，人物有些变形 ...</blockquote>
+谢谢，我在b站搜了一些，感觉和动画的味道不大一样，比较平庸。
+

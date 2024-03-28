@@ -9745,3 +9745,13 @@ https://tieba.baidu.com/p/8948782099
 
 计划通<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2481#       发表于 2024-3-28 11:11
+
+雷属性附魔的材料：贝壳，目前只在海里找到过。开放世界骑马赶路的时候从来没采集过贝壳。
+
+要上雷属性不会只能专门去海里潜水刷吧
+

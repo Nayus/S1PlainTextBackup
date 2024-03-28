@@ -10242,3 +10242,11 @@ FFO 4W6
 <blockquote>[ ouyang菌 replied on 2024-3-28 21:55](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410769&amp;ptid=2092342) 引用:nagitoY 发表于 2024-3-28 19:15 看了下，药贩这里不给卖啊。是需要到黑市商人那里买吗 天赋里面点识货试试，好像要点那个才会卖 </blockquote>
 看了下，这个天赋我点了。目前能买磨刀石的商贩就只有主线和支线里旗帜旁的黑市商人，而且每样都只能买一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打boss我要是能一次过那也不需要买磨刀石了吧来自: iPhone客户端
 
+
+*****
+
+####  黑色的js  
+##### 2528#       发表于 2024-3-29 00:17
+
+青鬼我是用大太刀某流派石火过去的，感觉克制情况下判定还不算太难
+

@@ -9769,3 +9769,36 @@ https://tieba.baidu.com/p/8948782099
 当初看到评分还动摇了下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后两句评价太对了，就是这种感觉。很菜但用功
 
+
+*****
+
+####  pwzzy  
+##### 2483#       发表于 2024-3-28 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64402898&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-28 11:11</a>
+
+雷属性附魔的材料：贝壳，目前只在海里找到过。开放世界骑马赶路的时候从来没采集过贝壳。
+
+要上雷属性不会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你把商店扩展的技能点出来，可以直接在商店里买附魔石，不用刷材料
+
+*****
+
+####  bwsusaga  
+##### 2484#       发表于 2024-3-28 11:45
+
+最好的幕末游戏，
+
+最好的浪客剑心模拟器。
+
+我龙信浪人一起玩的，越玩越觉的YJY是个大傻X，
+
+*****
+
+####  Leomai  
+##### 2485#       发表于 2024-3-28 11:46
+
+我觉得至少忍者组他们的设计师是玩了不少开放世界游戏的，知道怎么把舔图这块的压力降到最低，然后把所有正反馈都引到战斗爽这块。
+玩起来逻辑很统一，而且经常会觉得“这里你帮我省了时间那谢谢你呗”的亲切感在。
+有一种庸人知道自己几斤几两不作妖老实过日子的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

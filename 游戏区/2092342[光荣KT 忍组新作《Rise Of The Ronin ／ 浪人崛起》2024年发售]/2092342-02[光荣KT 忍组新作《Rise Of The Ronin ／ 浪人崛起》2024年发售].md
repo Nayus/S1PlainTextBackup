@@ -9877,3 +9877,16 @@ https://tieba.baidu.com/p/8948782099
 双boss没法打啊。大老和青鬼两个性能句强的boss，我方完全没手段应对。从屏幕外面飞来的攻击怎么躲？ ...</blockquote>
 有队友在算你三条命了，我反正是初见盯着青鬼硬打，把丫干掉以后药吃完了自己也没了，剩下俩队友来回切换打赤鬼就比较轻松了
 
+
+*****
+
+####  conanoysq  
+##### 2494#       发表于 2024-3-28 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64402898&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-28 11:11</a>
+
+雷属性附魔的材料：贝壳，目前只在海里找到过。开放世界骑马赶路的时候从来没采集过贝壳。
+
+要上雷属性不会 ...</blockquote>
+直接买雷属性磨刀石就好了吧
+

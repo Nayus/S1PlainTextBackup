@@ -7871,3 +7871,14 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">机器人互动性比较强
 
+
+*****
+
+####  FLZB  
+##### 2238#       发表于 2024-3-28 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64401061&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-28 08:36</a>
+
+打机器人到底带啥啊，难4前还能带机炮打打，难5不带蛋盾瞬间暴毙于流弹，但是没有好用的破甲，电弧 ...</blockquote>
+机炮、激光大炮、雌鬼，机器人没破甲压力，都可以通过弱点击破。主武器镰刀收割杂鱼，蹂躏者50米内爆头两枪带走，护甲首选防爆中甲，没有就穿初始垫料中甲或者皿煮甲，只要火箭弹秒不了你你就是无敌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -145,3 +145,13 @@
 
 LV2砸了50票04，再砸了380石还是没4，我不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 989#         楼主| 发表于 2024-3-28 15:32
+
+ 本帖最后由 江戸前ルナ 于 2024-3-28 15:34 编辑 
+
+试了下这个SP合体，感觉除了看演出和拍照外没啥用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

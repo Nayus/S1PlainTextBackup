@@ -9994,3 +9994,14 @@ https://tieba.baidu.com/p/8948782099
 
 有二周目的哥们看到新套装了吗  要是没新套装感觉这代二周目没啥刷头啊
 
+
+*****
+
+####  nagitoY  
+##### 2505#       发表于 2024-3-28 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64403873&amp;ptid=2092342" target="_blank">conanoysq 发表于 2024-3-28 12:21</a>
+
+直接买雷属性磨刀石就好了吧</blockquote>
+看了下，药贩这里不给卖啊。是需要到黑市商人那里买吗
+

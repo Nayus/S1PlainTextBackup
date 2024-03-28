@@ -13853,3 +13853,21 @@ dj找了个专业吉他手，很难相信不是在给邦做预备役</blockquote
 重温奈叶时偶然看见的，不知有没有关联……<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/ced2bad1eebf3ff700db2fe977786c88/Snipaste_2024-03-28_00-31-38.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14511#       发表于 2024-3-28 08:59
+
+海鈴好帥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/28/085859b6z44xt829n6wp26.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_空は青いな(@sorahaaoi7)_20240327-131625_1772975967171912160_photo.jpg</strong> (612.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-28 08:58 上传
+
+[https://twitter.com/sorahaaoi7/status/1772975967171912160](https://twitter.com/sorahaaoi7/status/1772975967171912160)
+

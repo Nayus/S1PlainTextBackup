@@ -923,3 +923,11 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 前提是没晕就好了,主要复仇者自带被动降低全队的对魔力(DEBUFF容易吃),面黑起来3人全感电全晕也是可能的...我打的时候也是平景清挂机2回合,最后开宝具解决的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11914#       发表于 2024-3-28 09:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">17年第一次复刻抽的爱德蒙的宝五+这次基督山的宝五加起来500石都不到
+

@@ -802,3 +802,16 @@ d级淘宝买点卡就行，和谐不知道
 然后如果你买 ...</blockquote>
 哦哦不好意思，我说错了，应该是国行机器，港版账号，应该就是像楼上老哥说的，要港版日版账号重新一起备份一下。不过感觉再折腾一下太麻烦了，还是直接港版盘算了。谢谢哈
 
+
+*****
+
+####  car123  
+##### 465#       发表于 2024-3-28 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64402553&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-3-28 10:47</a>
+
+长发匠人，但能不能把发型换换
+
+【《剑星》开发团队访谈：人物设计彰显创作者的匠心之魂】《剑星》开发团队 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一条笑死
+

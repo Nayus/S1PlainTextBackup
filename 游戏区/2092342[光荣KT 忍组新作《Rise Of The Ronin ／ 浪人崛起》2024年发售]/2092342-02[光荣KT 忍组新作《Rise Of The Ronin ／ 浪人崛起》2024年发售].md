@@ -9898,3 +9898,22 @@ https://tieba.baidu.com/p/8948782099
 
 玩过ff7rb再玩这边的小游戏都感觉眉清目秀的，我愿称之为FF杀手<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2496#       发表于 2024-3-28 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64401180&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-28 08:52</a>
+
+这一代太刀的灵活性好像体现不出来？仁王2里太刀是可以滑步收刀取消接滑步的，还可以冲a，非常灵活。这一代 ...</blockquote>
+看贴吧好像有手里剑取消，不过没放视频，回去我试试
+
+
+*****
+
+####  霖岚_  
+##### 2497#       发表于 2024-3-28 14:43
+
+材料跟道具碰到药商行商都买一遍就不用愁战斗不够用/调制没材料了，没钱可以去赌场SL刷，不过我没刷也感觉够用，反倒银币一直不够用……
+

@@ -13973,3 +13973,14 @@ mygo已经进游戏了，可以去b站搜索剧情翻译，不过和动画不是
 抽奖奖品是雅思真题</blockquote>
 绷不住了，雅思真题集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 14520#       发表于 2024-3-28 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64407489&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-3-28 17:23</a>
+
+发错地方了吧我看到还当什么邦邦同人游戏那么厉害呢</blockquote>
+太容易弱智了23333，抱歉大家！
+

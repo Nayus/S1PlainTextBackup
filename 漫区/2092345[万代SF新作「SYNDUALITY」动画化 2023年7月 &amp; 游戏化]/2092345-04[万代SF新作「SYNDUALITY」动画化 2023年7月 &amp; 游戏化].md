@@ -1048,3 +1048,11 @@ bd特典曲，你看bd发售日呗，不过估计只能看有没有买的人分�
 
 说起来几台最终机的胶都没消息了？
 
+
+*****
+
+####  洛克萨斯  
+##### 4534#       发表于 2024-3-28 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这片看来只剩人设了，哎
+

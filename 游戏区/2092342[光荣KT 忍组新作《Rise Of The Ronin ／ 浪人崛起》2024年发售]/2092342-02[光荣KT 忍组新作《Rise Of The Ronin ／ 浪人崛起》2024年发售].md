@@ -9679,3 +9679,16 @@ https://tieba.baidu.com/p/8948782099
 道场只有醉酒的桂，通常状态的桂怎么解锁？</blockquote>
 京都开篇的剧情打完
 
+
+*****
+
+####  阿提拉  
+##### 2475#       发表于 2024-3-28 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64394233&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-27 15:54</a>
+
+https://tieba.baidu.com/p/8948782099
+
+贴吧这位的捏脸也太美了，特别是阿秀和义勇兵。</blockquote>
+战国第一美少女捏脸的质感明显比其他人好很多，想不明白忍组在这方面怎么还能退步了的
+

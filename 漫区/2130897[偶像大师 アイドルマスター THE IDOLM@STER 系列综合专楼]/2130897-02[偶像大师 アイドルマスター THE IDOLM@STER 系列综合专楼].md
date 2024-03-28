@@ -14722,3 +14722,20 @@ PS：
 
 最后是[岛根県篮球队](https://www.susanoo-m.com/)（由万南出资+运营）所属啦啦队的出道曲啊...
 
+
+*****
+
+####  wfhtony  
+##### 2932#       发表于 2024-3-29 00:59
+
+另外，デレステ的小剧场（宽版），虽然没有明说，但大概也快（或者已经？）结束连载了。
+[#740](https://twitter.com/imascg_stage/status/1773230561479577629)：
+
+<img src="https://img.saraba1st.com/forum/202403/29/005911j0lwe8hwzs0y8300.jpg" referrerpolicy="no-referrer">
+
+<strong>GJvHzGpbsAAY8KF.jpg</strong> (493.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 00:59 上传
+

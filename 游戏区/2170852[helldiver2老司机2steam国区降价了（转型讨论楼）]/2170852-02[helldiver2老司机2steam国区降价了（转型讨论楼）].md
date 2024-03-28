@@ -8190,3 +8190,13 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  暴走的包子  
+##### 2271#       发表于 2024-3-29 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正如果电弧枪削了也有能用的东西就行，bug那时候也尝试了下带机炮和无后座，这个新武器能替代的话还不错
+
+—— 來自 samsung SM-F9260, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7796,3 +7796,24 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 机器人的新单位已经解包出来了，发射火箭弹的空中炮艇，西线填线宝宝的好日子还在后头呢 ...</blockquote>
 麦拉芬蒙一小时阵亡十万机动步兵地狱潜兵指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 2230#       发表于 2024-3-28 13:00
+
+打机器人要点是打游击，然后别抱着一定要撤退的心态去打就行了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 2231#       发表于 2024-3-28 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64401061&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-28 08:36</a>
+打机器人到底带啥啊，难4前还能带机炮打打，难5不带蛋盾瞬间暴毙于流弹，但是没有好用的破甲，电弧 ...</blockquote>
+机炮加防爆甲，防爆甲效果还是挺立竿见影的，个人感觉普通流弹伤害不是很明显，一般只有盾哥的机枪扫射会致死，其他大部分还是被炮秒。
+蛋盾好像会扩大受击面积吧，也不是特别好。
+
+主要是机炮厉害，远距离啥都能偷。
+

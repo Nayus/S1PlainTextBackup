@@ -718,3 +718,47 @@ dlc代码估计没法用
 
 一个备份可以添加多个账号的，设常用以后机器上所有账号都能玩
 
+
+*****
+
+####  艺海淘沙  
+##### 458#       发表于 2024-3-28 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64404201&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-3-28 12:50</a>
+
+国行机器上只有港服账号的话只能重新备份了
+
+一个备份可以添加多个账号的，设常用以后机器上所有账号都能 ...</blockquote>
+好的谢谢哈，那我得重新备份一下
+
+*****
+
+####  袄_偶滴小乔  
+##### 459#       发表于 2024-3-28 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64404300&amp;ptid=1978008" target="_blank">艺海淘沙 发表于 2024-3-28 12:57</a>
+好的谢谢哈，那我得重新备份一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重新备份小心丢其他游戏的存档和截图
+
+*****
+
+####  艺海淘沙  
+##### 460#       发表于 2024-3-28 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64404326&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-3-28 12:59</a>
+
+重新备份小心丢其他游戏的存档和截图</blockquote>
+啊这样的吗，感觉好麻烦，截图和存档还挺多的。要不然还是买港版游戏算了哈哈
+
+
+*****
+
+####  Leona_Akari  
+##### 461#       发表于 2024-3-28 13:07
+
+这游戏日版评级是多少？能用国内信用卡买么
+
+还有就是日版有没有和谐……
+
+要不还是港版算了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

@@ -232,3 +232,16 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 你看下装备了LINK SP没有？要发动合体SP，所有参与合体SP的女演员都必须换上专门的LINK SP。装备上LINK SP ...</blockquote>
 用的是试玩关卡，Stella怜篇。
 
+
+*****
+
+####  regular  
+##### 997#       发表于 2024-3-28 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64406999&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-3-28 16:44</a>
+
+你看下装备了LINK SP没有？要发动合体SP，所有参与合体SP的女演员都必须换上专门的LINK SP。装备上LINK SP ...</blockquote>
+总算使出来了，
+
+大招键和拉着的摇杆一起放开就发出来了。
+

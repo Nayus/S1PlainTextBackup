@@ -7936,3 +7936,19 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 我的，没看见是在说削弱前。
 不过削弱后满蓄伤害也没差特别多
 
+
+*****
+
+####  Launce  
+##### 2244#       发表于 2024-3-28 16:58
+
+<img src="https://img.saraba1st.com/forum/202403/28/165834b0k024gv6yeav362.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (259.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-28 16:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总感觉在黑屁LGBTQ+厕所
+

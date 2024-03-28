@@ -9755,3 +9755,17 @@ https://tieba.baidu.com/p/8948782099
 
 要上雷属性不会只能专门去海里潜水刷吧
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 2482#       发表于 2024-3-28 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64402397&amp;ptid=2092342" target="_blank">白河响剑 发表于 2024-3-28 10:36</a>
+通宵打了几天
+
+挺上头
+
+当初看到评分还动摇了下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后两句评价太对了，就是这种感觉。很菜但用功
+

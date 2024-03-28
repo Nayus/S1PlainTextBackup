@@ -786,3 +786,41 @@ FAZE UPUPUPUPUPUPUP
 
 donk这狙真帅啊
 
+
+*****
+
+####  keleemo123  
+##### 4116#       发表于 2024-3-29 03:58
+
+faze！faze！faze！faze！faze！faze！
+
+*****
+
+####  DICE20  
+##### 4117#       发表于 2024-3-29 04:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沟槽的pgl不会真剧透了吧 我现在就要看求稳的那群人的作业爆炸
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  keleemo123  
+##### 4118#       发表于 2024-3-29 04:01
+
+<img src="https://img.saraba1st.com/forum/202403/29/040120q3e7qwdh7qoql5qd.png" referrerpolicy="no-referrer">
+
+<strong></strong> (27.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 04:01 上传
+
+*****
+
+####  Rainwedell  
+##### 4119#       发表于 2024-3-29 04:01
+
+看图二，之前说的训练赛宰猪不会逗逗你的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

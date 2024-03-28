@@ -13962,3 +13962,14 @@ mygo已经进游戏了，可以去b站搜索剧情翻译，不过和动画不是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是我kkr哒
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14519#       发表于 2024-3-28 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64408541&amp;ptid=2159415" target="_blank">qjw114514 发表于 2024-3-28 19:16</a>
+
+抽奖奖品是雅思真题</blockquote>
+绷不住了，雅思真题集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

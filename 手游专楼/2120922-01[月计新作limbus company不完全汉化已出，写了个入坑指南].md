@@ -174,3 +174,19 @@
 破裂队现在人太多，死兔锁看样子拼点能力还行？可惜只有二技能叠层数，被动的减攻击等级应该好用，可以把W锁换下来了。
 另外死兔帮现实中是爱尔兰人组成的纽约黑帮，难道边狱小夫为了发家去追寻美国梦了？
 
+
+*****
+
+####  Jamaisvu  
+##### 607#       发表于 2024-3-28 13:46
+
+<img src="https://img.saraba1st.com/forum/202403/28/134554gcg2aqig3zaaccoq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (224.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-28 13:45 上传
+
+正装小夫还挺人模狗样的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

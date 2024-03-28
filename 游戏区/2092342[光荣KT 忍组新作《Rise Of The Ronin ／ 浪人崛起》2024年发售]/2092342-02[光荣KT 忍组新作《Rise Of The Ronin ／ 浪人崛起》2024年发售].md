@@ -10086,3 +10086,30 @@ https://tieba.baidu.com/p/8948782099
 
 最大的缺点就是装备简化过度了，套装种类很太少，没有奇葩bd，缺少刷装的动力。
 
+
+*****
+
+####  007.5  
+##### 2514#       发表于 2024-3-28 23:12
+
+刚到江户，被青鬼打得崩溃，被压制得屁滚尿流
+
+这石火的判定难度制作组是认真的吗，他们自己玩过吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+貌似后面还有双打boss？我的妈…
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  彩虹肥宅  
+##### 2515#       发表于 2024-3-28 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64411617&amp;ptid=2092342" target="_blank">007.5 发表于 2024-3-28 23:12</a>
+刚到江户，被青鬼打得崩溃，被压制得屁滚尿流
+
+这石火的判定难度制作组是认真的吗，他们自己玩过吗</blockquote>
+带上立身流，教青鬼做鬼
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

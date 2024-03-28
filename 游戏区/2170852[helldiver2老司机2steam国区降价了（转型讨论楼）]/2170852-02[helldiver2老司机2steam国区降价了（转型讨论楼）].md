@@ -8172,3 +8172,11 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 重机枪过于玩具了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 2269#       发表于 2024-3-28 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打了两盘类星体，感觉就是个不占背包位的无后座力炮，但是蓄力时间比我命还长，不适合单走来自: iPhone客户端
+

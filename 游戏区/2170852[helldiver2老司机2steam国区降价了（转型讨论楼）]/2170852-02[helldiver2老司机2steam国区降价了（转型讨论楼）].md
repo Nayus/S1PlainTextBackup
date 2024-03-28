@@ -7882,3 +7882,26 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 打机器人到底带啥啊，难4前还能带机炮打打，难5不带蛋盾瞬间暴毙于流弹，但是没有好用的破甲，电弧 ...</blockquote>
 机炮、激光大炮、雌鬼，机器人没破甲压力，都可以通过弱点击破。主武器镰刀收割杂鱼，蹂躏者50米内爆头两枪带走，护甲首选防爆中甲，没有就穿初始垫料中甲或者皿煮甲，只要火箭弹秒不了你你就是无敌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 2239#       发表于 2024-3-28 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405628&amp;ptid=2170852" target="_blank">卒业之勇 发表于 2024-3-28 14:55</a>
+
+削弱以后才开始用磁轨炮，感觉还是挺好用的想象不到削弱前有多强</blockquote>
+安全模式重甲全穿，开不安全模式威力翻倍
+
+
+*****
+
+####  风萧飒  
+##### 2240#       发表于 2024-3-28 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405628&amp;ptid=2170852" target="_blank">卒业之勇 发表于 2024-3-28 14:55</a>
+削弱以后才开始用磁轨炮，感觉还是挺好用的想象不到削弱前有多强</blockquote>
+以前不安全模式两枪破强袭腿甲，中甲重甲怪全包。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

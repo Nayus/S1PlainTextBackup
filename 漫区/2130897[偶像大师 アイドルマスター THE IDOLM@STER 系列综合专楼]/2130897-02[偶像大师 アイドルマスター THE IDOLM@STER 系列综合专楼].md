@@ -14564,3 +14564,31 @@ a站听说有不少
 
 别家的暂时还没在nyaa系统找
 
+
+*****
+
+####  グラフ  
+##### 2929#       发表于 2024-3-28 20:23
+
+03/28 歌单制作活动【偶像、是什么啊】中期小报
+
+[腾讯文档]IM@S Playlist Maker Vol.1【偶像、是什么啊】 [https://docs.qq.com/form/page/DWnJ0UEJvYVFtTmRT](https://docs.qq.com/form/page/DWnJ0UEJvYVFtTmRT)
+
+临时在线歌单：能不能连接看运气 [https://share.sc-viewer.top/share/mqMyXSEQHm#/](https://share.sc-viewer.top/share/mqMyXSEQHm#/)
+
+投稿数（需要更多SideM &amp; SC 投稿）
+
+本家 5 
+
+CG 25
+
+ML 14
+
+SideM 3
+
+SC 5
+
+其他 3
+
+S1没找到折叠功能，就不直接贴了。当前结果 =&gt; [腾讯文档]IMSPlaylistMakerVol1偶像是什么啊(收集结果)  [https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca](https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca)
+

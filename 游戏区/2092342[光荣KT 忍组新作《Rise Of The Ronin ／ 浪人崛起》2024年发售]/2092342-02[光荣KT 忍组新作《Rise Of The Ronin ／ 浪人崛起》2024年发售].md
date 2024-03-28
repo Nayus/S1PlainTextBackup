@@ -10015,3 +10015,13 @@ https://tieba.baidu.com/p/8948782099
 
 提升一个等级继续刷等级吗？
 
+
+*****
+
+####  duraa  
+##### 2507#       发表于 2024-3-28 20:33
+
+升级义经流的任务在京都回江户之后
+
+不得不说这段佐幕派被剧情杀真的憋屈<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+

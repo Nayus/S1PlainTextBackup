@@ -8233,3 +8233,11 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 重机枪但凡给到150发载弹，趴下后可原地架设变成固 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一代战备升级回归一切都会好起来的，泄露图标就有各种改装和子弹类型什么的
 
+
+*****
+
+####  Aeons  
+##### 2275#       发表于 2024-3-29 03:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这几个带雾的图对眼睛真不友好
+

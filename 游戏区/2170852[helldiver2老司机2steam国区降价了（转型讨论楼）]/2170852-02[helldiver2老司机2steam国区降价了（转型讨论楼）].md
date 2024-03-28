@@ -8134,3 +8134,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 类星体对我来说就是比非安全模式的磁轨炮伤害高一点，问题是充能时间长加蓄满就射<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">操作空间少很多
 
+
+*****
+
+####  Hyst3r1a  
+##### 2265#       发表于 2024-3-28 22:20
+
+这逼游戏能不能给投掷物加个弹道线
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

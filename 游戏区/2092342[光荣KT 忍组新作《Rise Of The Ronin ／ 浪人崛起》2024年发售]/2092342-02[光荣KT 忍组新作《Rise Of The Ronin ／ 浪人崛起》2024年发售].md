@@ -9970,3 +9970,19 @@ https://tieba.baidu.com/p/8948782099
 感觉好缺</blockquote>
 要快的话，前面有楼友说可以改系统事件刷狗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我是扫图感觉也够用就没试
 
+
+*****
+
+####  白河响剑  
+##### 2503#       发表于 2024-3-28 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405999&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-28 15:27</a>
+
+要快的话，前面有楼友说可以改系统事件刷狗我是扫图感觉也够用就没试 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">倒也不急
+
+主要是我想把家具也收集了
+
+就导致各处商人的技能书都没买完
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">痛苦 我在舔舔图
+

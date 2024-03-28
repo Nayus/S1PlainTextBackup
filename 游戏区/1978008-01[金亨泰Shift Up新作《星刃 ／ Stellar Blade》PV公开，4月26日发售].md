@@ -815,3 +815,12 @@ d级淘宝买点卡就行，和谐不知道
 【《剑星》开发团队访谈：人物设计彰显创作者的匠心之魂】《剑星》开发团队 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一条笑死
 
+
+*****
+
+####  格林达姆  
+##### 466#       发表于 2024-3-28 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">太油太直球了，反而一点兴致都勾不起来
+看起来也不像是能用游戏本身质量说话的作品
+

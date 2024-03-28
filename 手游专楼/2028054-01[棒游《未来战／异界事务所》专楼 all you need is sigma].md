@@ -27,3 +27,13 @@ u1s1 你游策划是真爱触手 下个觉醒剧情要是一般人肯定会选�
 触手这次逼格狂跌啊，被碎片吞了分身连带部分魔王权能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/dc2426344c4e6347b8a8f31e45d39a8e/54CDFEA072E63E80AADA3A11AADCD452_edit_77673981202209.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 978#         楼主| 发表于 2024-3-28 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64411215&amp;ptid=2028054" target="_blank">smdzh2 发表于 2024-3-28 22:33</a>
+触手这次逼格狂跌啊，被碎片吞了分身连带部分魔王权能</blockquote>
+触手本身也不是本体 本来就没啥逼格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

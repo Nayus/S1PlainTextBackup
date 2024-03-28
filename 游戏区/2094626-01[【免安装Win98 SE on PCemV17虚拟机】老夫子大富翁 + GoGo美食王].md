@@ -16,3 +16,18 @@
 
 —— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  winggg  
+##### 190#         楼主| 发表于 2024-3-28 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410096&amp;ptid=2094626" target="_blank">gyf123haha 发表于 2024-3-28 20:58</a>
+
+感谢大佬答复，不好意思这几天工作有些忙回复晚了。链接是我找的一些原版资源:
+
+链接:https://pan.baidu.c ...</blockquote>
+好的，
+
+里面也有个虚拟机整合版，有没有试玩过？里面有没有什么需要改进的地方，我试试能不能一并解决。
+

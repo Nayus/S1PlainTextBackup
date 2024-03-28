@@ -8152,3 +8152,15 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">类星体这蓄力时间，都够对面冲过来一套处决了
 
+
+*****
+
+####  Mr.BBWoLf  
+##### 2267#       发表于 2024-3-28 22:35
+
+刚才见到了坦克跳钢管舞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这局建筑碎片还是机械人残骸什么的出bug，在地面卷成了一根杆。我们的位置在俩资源点一任务点中间，旁边老外队友爱对枪，结果我们就在被天上的饺子吃，一波接一波。然后我们手雷用光了，500、激光什么都进冷却了，天上又降下来一辆坦克。刚开始时它先绕着那根杆转，我躲掩体后面想着它瞄队友时绕过去，队友在做雷达任务。接着它开着开着，贴杆的那一侧悬空了，而且不光悬空，整辆坦克的高度在一点一点往上蹭，接着它蹭一会后底盘直接贴杆悬空彻底和地面垂直了。
+
+然后我就看它越转越高。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">后来我回去捞样本时，它已经升到天上去了
+

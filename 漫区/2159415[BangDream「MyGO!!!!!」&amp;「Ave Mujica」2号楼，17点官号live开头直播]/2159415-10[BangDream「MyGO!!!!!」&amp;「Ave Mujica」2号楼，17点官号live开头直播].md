@@ -13917,3 +13917,16 @@ mygo已经进游戏了，可以去b站搜索剧情翻译，不过和动画不是
 
 提升一个等级继续刷等级吗？
 
+
+*****
+
+####  ddy2811  
+##### 14516#       发表于 2024-3-28 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405109&amp;ptid=2159415" target="_blank">Akari 发表于 2024-3-28 14:12</a>
+
+进暗夜横滨被打成狗，有什么黄昏打完能去打暗夜的办法？
+
+提升一个等级继续刷等级吗？ ...</blockquote>
+发错地方了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看到还当什么邦邦同人游戏那么厉害呢
+

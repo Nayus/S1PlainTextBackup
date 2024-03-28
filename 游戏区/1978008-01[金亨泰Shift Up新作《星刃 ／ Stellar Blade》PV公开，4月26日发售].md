@@ -669,3 +669,24 @@ UI有点丑，血条干嘛搞的和手机信号一样
 
 这游戏韩版比港版便宜一百块，有啥坑吗
 
+
+*****
+
+####  ranapocket  
+##### 453#       发表于 2024-3-28 12:00
+
+韩版好像不能用dlc吧
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  袄_偶滴小乔  
+##### 454#       发表于 2024-3-28 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64403474&amp;ptid=1978008" target="_blank">sephal 发表于 2024-3-28 11:51</a>
+这游戏韩版比港版便宜一百块，有啥坑吗</blockquote>
+dlc代码估计没法用
+
+你还没法注册一个韩服账号去换dlc(貌似要韩国身份证)
+

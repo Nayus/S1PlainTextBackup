@@ -9802,3 +9802,13 @@ https://tieba.baidu.com/p/8948782099
 玩起来逻辑很统一，而且经常会觉得“这里你帮我省了时间那谢谢你呗”的亲切感在。
 有一种庸人知道自己几斤几两不作妖老实过日子的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 2486#       发表于 2024-3-28 11:58
+
+而且地图设计其实不差，场景看得出下了心思的。
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

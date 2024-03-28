@@ -8124,3 +8124,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 
 我觉得新武器什么的还得等等看情况再下结论，比如盟友这玩意一开始都觉得没啥用，现在缺是打虫子最好的3号位之一了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 2264#       发表于 2024-3-28 22:10
+
+重机枪这撒尿速度太快了，打两只绿肚子虫就空了，还不如带榴弹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+类星体对我来说就是比非安全模式的磁轨炮伤害高一点，问题是充能时间长加蓄满就射<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">操作空间少很多
+

@@ -14056,3 +14056,14 @@ RAS 6月LIVE视觉图公开了
 
 而有的团下个月的新单特典还没公布，wsd你没事吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14527#       发表于 2024-3-28 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410702&amp;ptid=2159415" target="_blank">KozueAkimoto 发表于 2024-3-28 21:50</a>
+
+这就是让 独角兽老师放开手脚制作的故事所带出来的影响吗</blockquote>
+泥邦手游剧情一直都挺放飞的吧，动画还保守了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

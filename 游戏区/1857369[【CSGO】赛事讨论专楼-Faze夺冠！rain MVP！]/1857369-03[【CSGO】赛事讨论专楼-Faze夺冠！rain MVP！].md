@@ -713,3 +713,13 @@ CSGO纪录片part1
 【【CS:GO记忆】早些年  |  RedBull出品 反恐精英大型纪录片  中文字幕已传-哔哩哔哩】 https://b23.tv/0Er ...</blockquote>
 开一个，顺便有没有观战群
 
+
+*****
+
+####  朔方原的星  
+##### 4107#         楼主| 发表于 2024-3-28 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410443&amp;ptid=1857369" target="_blank">Mimic 发表于 2024-3-28 21:27</a>
+开一个，顺便有没有观战群</blockquote>
+我不想开了，已经不怎么看比赛了，谁现在常看比赛的的开一个，正好把CS2第一届major的淘汰赛包括进去
+

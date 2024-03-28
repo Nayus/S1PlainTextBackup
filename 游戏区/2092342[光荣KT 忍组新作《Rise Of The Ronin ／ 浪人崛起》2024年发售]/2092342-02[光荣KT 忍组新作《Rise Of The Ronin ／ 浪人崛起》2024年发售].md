@@ -9986,3 +9986,11 @@ https://tieba.baidu.com/p/8948782099
 就导致各处商人的技能书都没买完
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">痛苦 我在舔舔图
 
+
+*****
+
+####  RinC  
+##### 2504#       发表于 2024-3-28 18:06
+
+有二周目的哥们看到新套装了吗  要是没新套装感觉这代二周目没啥刷头啊
+

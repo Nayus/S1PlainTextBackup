@@ -191,3 +191,14 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 
 阿嘎正式进入大群殴时代<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  regular  
+##### 993#       发表于 2024-3-28 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64406268&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-3-28 15:48</a>
+
+我键盘，按SP键后再看你哪个LINK了选按左右</blockquote>
+手柄我试不出来啊，按住大招之后，十字键左右摇杆都没用，换人键直接把人踢下去了...?
+

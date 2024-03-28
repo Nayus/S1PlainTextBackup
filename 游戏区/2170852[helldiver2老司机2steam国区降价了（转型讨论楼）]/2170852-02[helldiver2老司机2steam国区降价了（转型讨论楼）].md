@@ -7740,3 +7740,13 @@ https://www.kdocs.cn/l/chzB1Vfks7rV
 现在机器人九级野队根本玩不了，上来连死几次就退，带着其他人一起退，真的废物 ...</blockquote>
 真玩不了一点，最近全服任务，刚看了打机器人的比打虫还多，想碰到会一点的都难，有的真是纯送。
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2224#       发表于 2024-3-28 08:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">打机器人到底带啥啊，难4前还能带机炮打打，难5不带蛋盾瞬间暴毙于流弹，但是没有好用的破甲，电弧打不了建筑和大单位，磁轨更是搞笑，经常只能用空袭炸坦克和巨型者
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

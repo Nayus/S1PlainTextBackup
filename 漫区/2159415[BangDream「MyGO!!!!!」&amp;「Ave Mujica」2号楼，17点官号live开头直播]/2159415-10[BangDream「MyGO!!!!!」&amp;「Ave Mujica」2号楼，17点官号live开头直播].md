@@ -14093,3 +14093,24 @@ RAS 6月LIVE视觉图公开了
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ddy2811  
+##### 14531#       发表于 2024-3-29 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410702&amp;ptid=2159415" target="_blank">KozueAkimoto 发表于 2024-3-28 21:50</a>
+
+这就是让 独角兽老师放开手脚制作的故事所带出来的影响吗</blockquote>
+游戏剧情好像一直挺重量级的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 14532#       发表于 2024-3-29 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410327&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-28 21:17</a></blockquote>
+MD庆鹏不就在四叶隔壁，上个庆鹏怎么影响她和大家搞一辈子乐队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

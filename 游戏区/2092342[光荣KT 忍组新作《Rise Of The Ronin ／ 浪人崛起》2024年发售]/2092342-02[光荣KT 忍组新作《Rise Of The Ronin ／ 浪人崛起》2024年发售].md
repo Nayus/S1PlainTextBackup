@@ -10204,3 +10204,41 @@ FFO 4W6
 
 卧龙 4W7
 
+
+*****
+
+####  icylight  
+##### 2524#       发表于 2024-3-29 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412109&amp;ptid=2092342" target="_blank">duraa 发表于 2024-3-29 00:03</a>
+
+浪人日本首周6W4
+
+放点首周数据：</blockquote>
+比卧龙卖得好，赢！
+
+*****
+
+####  nagitoY  
+##### 2525#       发表于 2024-3-29 00:05
+
+目前基本掌握了立身流和二天一流的压制思路，打起来越来越顺手了。一个地一个天，遇到被克制的就切。后面的双boss基本都是一次过的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+来自: iPhone客户端
+
+*****
+
+####  nagitoY  
+##### 2526#       发表于 2024-3-29 00:10
+
+<blockquote>[ nagitoY replied on 2024-3-29 00:05](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412139&amp;ptid=2092342) 目前基本掌握了立身流和二天一流的压制思路，打起来越来越顺手了。一个地一个天，遇到被克制的就切。后面的双boss基本都是一次过的  </blockquote>
+搭档和英国佬的双boss战我初见直接一遍过，第一次用到气焰系统，残血开大反杀搭档，被自己帅到<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  nagitoY  
+##### 2527#       发表于 2024-3-29 00:12
+
+<blockquote>[ ouyang菌 replied on 2024-3-28 21:55](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410769&amp;ptid=2092342) 引用:nagitoY 发表于 2024-3-28 19:15 看了下，药贩这里不给卖啊。是需要到黑市商人那里买吗 天赋里面点识货试试，好像要点那个才会卖 </blockquote>
+看了下，这个天赋我点了。目前能买磨刀石的商贩就只有主线和支线里旗帜旁的黑市商人，而且每样都只能买一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打boss我要是能一次过那也不需要买磨刀石了吧来自: iPhone客户端
+

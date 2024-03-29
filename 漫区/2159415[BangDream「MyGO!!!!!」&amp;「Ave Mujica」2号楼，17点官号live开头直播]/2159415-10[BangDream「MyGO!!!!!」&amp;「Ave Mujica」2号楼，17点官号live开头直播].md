@@ -14507,3 +14507,20 @@ AG活动场贩都有鸡狗蛋白棒真是绷不住了，不过想想这个蛋白
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64421880&amp;ptid=2159415" target="_blank"> 御幸一也 发表于 2024-3-29 19:53</a>   睦祥的神開推了最近都好多圖     https://twitter.com/sigangsan/status/1773621391771705486附件： </blockquote>
 睦祥的神 但唯一和李子赛博合照的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  H2Ofrozen  
+##### 14571#       发表于 2024-3-30 04:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64417178&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-3-29 13:40</a>
+
+没ppp还不上学呢，她才是邦邦第一社恐</blockquote>
+不上学(x) 不上课(√)
+
+其实说这次剧情定番烂俗降智啥的...ppp剧情好像一直都这样吧。前半部分阿力刹脸红傲娇卡萨米念咒揩油惠惠脱线沙哑打哈哈厘米应两声，喝茶聊天雷打不动；后半部分没活找活鸡毛蒜皮小事化无，美名其曰升华主旨。爱看这一套的比如我，自然不会太在意其中到底有什么半点剧情含量
+
+要说剧情没活硬整吧，我倒是没觉得有啥不合情理出乎预料的。个人来说对于观众阿力刹是一个很好的共情接口，处在邦宇宙这种虚构的理想化平面世界观中很容易感同身受地理解为什么会做出这种选择。厘米就更不用说了，给了大段姐妹对话铺垫为啥要留学，生怕理由没讲充分。虽然我也觉得多少有点没事找事了，估计应该也没啥特别的原因，单纯为了方便更贴合现实ppp活动情况而已吧。后面卡萨米就提了可以搞搞远程线上live
+
+阿力刹会觉得难过，作为观众的共情接口就也很理所当然
+

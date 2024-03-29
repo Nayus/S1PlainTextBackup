@@ -1508,3 +1508,13 @@ BGM这个调调还行
 
 推特上被这个demo刷屏了，鬼佬都觉得很好<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ralfli  
+##### 543#       发表于 2024-3-30 04:53
+
+谁还记得2011年韩国拍了个叫鸡妈鸭仔的动画电影，迪士尼风格的
+
+一小时试玩后，这游戏给我的感觉就跟当年看那部电影一模一样
+

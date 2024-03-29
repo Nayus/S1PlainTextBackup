@@ -883,3 +883,22 @@ d级淘宝买点卡就行，和谐不知道
 
 DEMO上了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  社友者  
+##### 474#       发表于 2024-3-29 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">该狠狠地品鉴了
+
+*****
+
+####  Piano-Forest  
+##### 475#         楼主| 发表于 2024-3-29 22:18
+
+Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
+
+港/日服：
+[https://store.playstation.com/zh ... 00-STELLARBLADEDEMO](https://store.playstation.com/zh-hant-hk/product/HP9000-PPSA18489_00-STELLARBLADEDEMO)
+[https://store.playstation.com/ja ... 00-STELLARBLADEDEMO](https://store.playstation.com/ja-jp/product/JP9000-PPSA18486_00-STELLARBLADEDEMO)
+

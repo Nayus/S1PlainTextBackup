@@ -8644,3 +8644,21 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">图里四个人突然特别卡然后掉了两个，出来一看是又刷任务了，很难不怀疑是屎山代码让我掉线的
 
+
+*****
+
+####  风萧飒  
+##### 2315#       发表于 2024-3-29 22:16
+
+下次更新的战备貌似是这几个
+
+<img src="https://img.saraba1st.com/forum/202403/29/221646q9pqtfyyt6o96oop.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240329_221624.jpg</strong> (749.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 22:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

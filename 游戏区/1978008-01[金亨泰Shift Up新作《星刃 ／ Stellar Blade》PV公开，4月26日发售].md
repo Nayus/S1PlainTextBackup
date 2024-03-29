@@ -1362,3 +1362,42 @@ ps：技能一定要在boss准备攻击时出，能打断boss技能或硬抗伤�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挑战关手感好多了，怎么老爱搞砍成残疾人再接肢的成长
 
+
+*****
+
+####  名居守  
+##### 530#       发表于 2024-3-30 00:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">logo过后进城市我好像看到了有小叽叽的雕像？
+
+
+*****
+
+####  土路生優里  
+##### 531#       发表于 2024-3-30 01:00
+
+这游戏的普攻连段花里胡哨一大堆，结果打boss的时候除了紫光的击退能勉强练上一段以外很少有其他普攻的机会
+
+我自己在挑战关的打法基本上就是防御出硬直，然后用蓄力破盾先把甲碎了，继续重复精防出硬直以后四连击打伤害<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+另外不知道是我按键时机的问题还是判定的问题，防御以后的追击和二级连锁突进总是按不出来
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  JOJO42  
+##### 532#       发表于 2024-3-30 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424345&amp;ptid=1978008" target="_blank">zqqwe 发表于 2024-3-30 00:33</a>
+
+手感其实还算扎实，但招式动作太不知所谓了……既不暴力也完全没有美感</blockquote>
+我觉得他应该搞一些腿技攻击交叉融汇到招数派生里的，还能最大程度发挥它这个女体建模......现在整个动作大开大合的，就一些类似月轮脚的招数动画看着还可以
+
+*****
+
+####  依存香炉  
+##### 533#       发表于 2024-3-30 01:04
+
+港版有和谐？和谐啥了
+

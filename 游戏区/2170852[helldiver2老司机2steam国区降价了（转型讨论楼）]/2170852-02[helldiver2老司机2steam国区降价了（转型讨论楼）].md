@@ -8736,3 +8736,14 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">不是 类星体炸膛是什么bug啊 大平地瞄广播站呢 咚一下给我带走了
 
+
+*****
+
+####  Mr.BBWoLf  
+##### 2323#       发表于 2024-3-30 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424424&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-3-30 00:46</a>
+
+不是 类星体炸膛是什么bug啊 大平地瞄广播站呢 咚一下给我带走了</blockquote>
+你所在位置有没有植物？它有一定几率会被树枝树叶给挡住。
+

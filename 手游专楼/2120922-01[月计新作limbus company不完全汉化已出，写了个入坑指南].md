@@ -283,3 +283,25 @@
 该不会是良秀当内莉吧[f: ...</blockquote>
 奥姨人格故事里有提耐莉是良秀吧。也挺带感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 613#       发表于 2024-3-29 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64420719&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-3-29 18:08</a>
+
+奥姨人格故事里有提耐莉是良秀吧。也挺带感的</blockquote>
+没抽到奥姨，平行世界的山庄故事这么贵圈乱吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+期待下一个池子！！！
+
+*****
+
+####  Jamaisvu  
+##### 614#       发表于 2024-3-29 18:23
+
+金总监发了公告说为了备战主线和镜牢，今年的愚人节取消了...
+
+考虑到是今天发的，应该不是愚人节玩笑。看不到百变小维还是有点遗憾滴。
+

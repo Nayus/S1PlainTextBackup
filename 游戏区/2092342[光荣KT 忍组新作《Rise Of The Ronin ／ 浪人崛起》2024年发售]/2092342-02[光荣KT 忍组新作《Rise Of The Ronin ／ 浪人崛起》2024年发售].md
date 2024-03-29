@@ -10435,3 +10435,20 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 浪人打靶直接把加特林给你爽了，高下立判
 
+
+*****
+
+####  白河响剑  
+##### 2546#       发表于 2024-3-29 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实
+
+我还想着忍组这便秘射击打靶马术后面在上上难度那多少有点......
+
+结果难度没怎么上 反而整了加特林和炮术
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然依旧便秘但莫名生草 打的挺乐呵
+
+就连滑翔那边也有个高空掷弹
+
+幕末B52
+

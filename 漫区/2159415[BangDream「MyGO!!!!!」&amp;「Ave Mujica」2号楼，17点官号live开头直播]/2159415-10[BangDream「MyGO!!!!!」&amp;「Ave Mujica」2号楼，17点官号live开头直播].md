@@ -14193,3 +14193,15 @@ ars那个小娇妻性格，别人都有自己的生活，她除了学生会，�
 
 这种学霸为了好姐妹团结给自己放水去水校似乎也是某种意义上的定番了<img src="https://static.saraba1st.com/image/smiley/carton2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 14541#       发表于 2024-3-29 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64417268&amp;ptid=2159415" target="_blank">liu461 发表于 2024-3-29 13:46</a>
+这种学霸为了好姐妹团结给自己放水去水校似乎也是某种意义上的定番了 ...</blockquote>
+定番更顯爛俗，為了蹭個定番情節讓ARS做降智操作是真薩比
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

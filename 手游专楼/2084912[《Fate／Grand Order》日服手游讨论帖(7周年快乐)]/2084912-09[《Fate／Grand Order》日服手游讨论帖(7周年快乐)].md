@@ -1089,3 +1089,13 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 第4條血因散了BUFF所以轟了兩炮 ...</blockquote>
 真的难关是全NPC打雷鸟。太吃运气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11929#       发表于 2024-3-29 15:19
+
+有的金材料活动商店也只有10-15个，默认稀有度高吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了下额外一的技能树，又要吃小钟了，黑兽脂和炉心也要不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

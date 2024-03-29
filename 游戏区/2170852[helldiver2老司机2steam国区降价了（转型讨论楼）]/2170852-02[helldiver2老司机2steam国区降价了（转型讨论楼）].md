@@ -8440,3 +8440,30 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">跳出还是挺频繁啊，昨晚和刚刚好几次都是连续跳出了
 
+
+*****
+
+####  风萧飒  
+##### 2295#       发表于 2024-3-29 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64414698&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-3-29 10:24</a>
+所以重机枪和固定机枪塔的子弹威力是一样的吗？
+昨天打了两把，好像打绿吐酸虫的头的手感和固定机枪有点像 ...</blockquote>
+机炮能打的重机枪都能打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  jy000129  
+##### 2296#       发表于 2024-3-29 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415778&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-29 11:48</a>
+机炮能打的重机枪都能打
+
+—— 来自 S1Fun</blockquote>
+机炮伤害见效快，弹量多，上弹速度快，还能炸巢穴和兵工厂，除了占个背包位<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

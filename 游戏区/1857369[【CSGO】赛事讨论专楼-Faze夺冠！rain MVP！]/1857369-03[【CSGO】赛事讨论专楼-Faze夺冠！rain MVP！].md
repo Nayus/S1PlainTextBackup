@@ -946,3 +946,13 @@ DONKED ON? MORE LIKE GET RAINED ON
 
 雪碧输了男娘没输
 
+
+*****
+
+####  攻城匠师黑索  
+##### 4136#       发表于 2024-3-29 09:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">走Niko的老路是吧
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

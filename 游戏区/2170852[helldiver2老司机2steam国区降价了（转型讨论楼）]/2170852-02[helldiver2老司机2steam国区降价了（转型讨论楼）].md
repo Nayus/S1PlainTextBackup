@@ -8553,3 +8553,17 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 打胖子用什么破裂者都不好使，中甲穿透武器爆头，或者冲击雷，榴弹炮之类的爆炸武器炸肚子才能高效击杀
 
+
+*****
+
+####  肉壶  
+##### 2306#       发表于 2024-3-29 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">上周电弧bug+正好喷火支援就试了下
+蛋盾喷火eat
+感觉能应对所有终结族场景
+喷火聚怪开喷比电弧爽多了，再配合医疗甲+野外弹药补给，感觉非常适合单走宝宝
+撤离时卡住路口双喷火+满地eat对策泰坦，突突得非常清爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -709,3 +709,16 @@
 
 但是为啥每次进去都要出来再从头来过继续爬楼，为啥不一步一步建立基地和补给线？
 
+
+*****
+
+####  屡败屡战阿巴顿  
+##### 75#       发表于 2024-3-29 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64418000&amp;ptid=2159012" target="_blank">ww-tsl 发表于 2024-3-29 14:40</a>
+
+塔全高18公里，直径3公里，试图飞行闯入者会被龙群分尸。
+
+但是为啥每次进去都要出来再从头来过继续爬楼， ...</blockquote>
+人手不足，且塔会变动结构。这时候你需要掌握就地补给技术，没错，吃塔内生物吧！<img src="https://static.saraba1st.com/image/smiley/carton2017/169.png" referrerpolicy="no-referrer">
+

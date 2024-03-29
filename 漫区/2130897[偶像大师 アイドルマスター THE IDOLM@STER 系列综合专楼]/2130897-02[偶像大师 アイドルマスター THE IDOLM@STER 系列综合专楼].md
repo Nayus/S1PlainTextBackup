@@ -14784,3 +14784,45 @@ u149有哪家买了版权的吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">销量这么稳定的嘛，这么下去别家老脸往哪儿放哦
 
+
+*****
+
+####  小笠原早紀  
+##### 2938#       发表于 2024-3-29 16:06
+
+第三卷毕竟塞了ova和一堆特典，卖的快也正常<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  田所あずさ  
+##### 2939#       发表于 2024-3-29 16:09
+
+卷均1万真来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/29/160911copoo0is3gxiwpa3.jpg" referrerpolicy="no-referrer">
+
+<strong>2T1RWWF5G%)W1I_A@9BJ`)B_tmb.jpg</strong> (236.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 16:09 上传
+
+
+*****
+
+####  Kreis  
+##### 2940#       发表于 2024-3-29 16:14
+
+这算是发喜报吧，话都说出来了二期会有吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 2941#       发表于 2024-3-29 16:16
+
+第一卷第二卷都破万的情况下，第三卷没理由不破吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

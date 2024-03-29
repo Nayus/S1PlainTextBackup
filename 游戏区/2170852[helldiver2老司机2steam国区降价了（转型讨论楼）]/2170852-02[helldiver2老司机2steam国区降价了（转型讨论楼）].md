@@ -8585,3 +8585,25 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 战备不能塞进氪金里，箭头怕不是战备升级功能做的就更不积极了。
 感觉指望他出第二台机甲然后带人玩的时候直接招两台高达就算剪头最做人的更新了
 
+
+*****
+
+####  Mr.Hopp  
+##### 2309#       发表于 2024-3-29 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64416444&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-29 12:49</a>
+
+用熟了就好了，榴弹有保险，所以5米左右打出去必定弹飞的。但是5-10米距离的虫子不要点虫子身上，直接点 ...</blockquote>
+讲真，磁轨炮还没削弱那时代我就一直榴弹+补给，是很强，但是总会用腻，也不代表其他不强。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 2310#       发表于 2024-3-29 19:44
+
+看贴吧破解了武器改造，
+
+目前已知改装:弹匣容量，弹药类型，枪机(射速)，枪口(后坐力) 瞄准镜(可能会有)
+
+主武器可以搭载三个改装
+

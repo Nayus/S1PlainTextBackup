@@ -10572,3 +10572,11 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这次没有正经官推和官网，更新都不知道去哪里看
 
+
+*****
+
+####  bwsusaga  
+##### 2560#       发表于 2024-3-29 18:52
+
+更了1G多但完全不知道是啥玩意儿
+

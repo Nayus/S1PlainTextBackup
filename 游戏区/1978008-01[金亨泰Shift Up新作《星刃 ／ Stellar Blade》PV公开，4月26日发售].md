@@ -1057,3 +1057,21 @@ Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
 
 有笑到
 
+
+*****
+
+####  Leliel  
+##### 494#       发表于 2024-3-29 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果还是要缝只狼吗，熟悉的配方熟悉的味道
+
+*****
+
+####  仰望神的括约肌  
+##### 495#       发表于 2024-3-29 23:42
+
+打着打着来来一段连续qte真绷不住 好在可以关 
+另外 以一种意想不到的方式交了一血 第一次进到训练模式里搓了半天 退出训练模式后直接坠入虚空原地去世<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1147,3 +1147,68 @@ Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
 
 英配特别难听 eve变大姐了 还是用韩语好点
 
+
+*****
+
+####  卡博雷z  
+##### 505#       发表于 2024-3-30 00:07
+
+打完demo流程和首领挑战意外感觉还行，期望本来也没太高，又是类魂差评，弹刀反馈还可以。
+
+*****
+
+####  nyaneko  
+##### 506#       发表于 2024-3-30 00:09
+
+精防还能接受，这闪避感觉怪怪的，仿佛有延迟。。
+
+比起一开始的预告，感觉女主脸真的一般。还有那肚脐怎么回事，黑洞吗
+
+
+*****
+
+####  依存香炉  
+##### 507#       发表于 2024-3-30 00:10
+
+为啥DEMO没日配 版本的问题？
+
+*****
+
+####  土路生優里  
+##### 508#       发表于 2024-3-30 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424190&amp;ptid=1978008" target="_blank">依存香炉 发表于 2024-3-30 00:10</a>
+为啥DEMO没日配 版本的问题？</blockquote>
+日配是日区限定
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  土路生優里  
+##### 509#       发表于 2024-3-30 00:11
+
+蓝光是闪避躲， 黄光是格挡？ 那紫光的击退又是啥操作<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  依存香炉  
+##### 510#       发表于 2024-3-30 00:13
+
+打完DEMO的首领后觉得意外的还行 预购了。希望正式版能调整下闪避的手感
+
+*****
+
+####  电磁炮233  
+##### 511#       发表于 2024-3-30 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424200&amp;ptid=1978008" target="_blank">土路生優里 发表于 2024-3-30 00:11</a>
+蓝光是闪避躲， 黄光是格挡？ 那紫光的击退又是啥操作 
+
+—— 来自 OnePlus KB2005, Android 14上的 ...</blockquote>
+都是躲，原地O，前+O，后+O 低能设计师才能设计出这种玩意儿
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -64,3 +64,18 @@
 樱花1-2我下星期有空试试 ...</blockquote>
 非常感谢！
 
+
+*****
+
+####  winggg  
+##### 194#         楼主| 发表于 2024-3-30 07:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410096&amp;ptid=2094626" target="_blank">gyf123haha 发表于 2024-3-28 20:58</a>
+
+感谢大佬答复，不好意思这几天工作有些忙回复晚了。链接是我找的一些原版资源:
+
+链接:https://pan.baidu.c ...</blockquote>
+我测试了一下，资源里面那个虚拟机版做得挺好的，
+
+只要放在纯英文目录下，运行没有明显问题。
+

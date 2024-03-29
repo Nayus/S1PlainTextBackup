@@ -10732,3 +10732,14 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 龙马病逝后，千叶佐那可以攻略吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我要替兄弟照顾嫂子
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2576#       发表于 2024-3-30 03:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424273&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-3-30 00:22</a>
+
+不知道下一作什么题材，虽然很多人不喜欢幕末，但我觉得这东方国家收西方冲击引发各种动荡变革的时代比仁王 ...</blockquote>
+幕末这个时代讲起来就像在钢丝上跳舞，紧接着的昭和日本时代实在太尴尬了，稍有不慎就有可能讲歪了。东西方文化的碰撞本身很有趣，但是日本交出的答卷现在看来还是太地狱了，大家还是更爱看被美国拷打后的日本。
+

@@ -14318,3 +14318,30 @@ ars本来就容易智商下线，考试那次不就表演过了<img src="https:/
 
 这还用滑坡？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 14554#       发表于 2024-3-29 17:38
+
+竟然敢假定2nd视觉图已经画好了
+
+说不定新曲纯背景播片，视觉图还在新建文件夹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 14555#       发表于 2024-3-29 17:44
+
+真是角色歌的话参考ras和蝶，就是单人图循环，不过我觉得那两套图挺好看的，可惜反而没拿来出周边或者特典<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 14556#       发表于 2024-3-29 17:47
+
+新歌是31号发？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

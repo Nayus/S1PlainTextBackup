@@ -10309,3 +10309,14 @@ FFO 4W6
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">神特么有个金色旗子的突发任务要追个小偷，刚赶上要开打的时候旁边莫名跑来个巡警，结果不小心打中巡警直接进通缉状态又赶过来两人加入混战，最后刚打死小偷我也给巡警围殴死了，任务报酬没了连带身上5000多经验也掉了还捡不回来
 
+
+*****
+
+####  ky7913  
+##### 2536#       发表于 2024-3-29 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64413158&amp;ptid=2092342" target="_blank">霖岚_ 发表于 2024-3-29 07:25</a>
+
+神特么有个金色旗子的突发任务要追个小偷，刚赶上要开打的时候旁边莫名跑来个巡警，结果不小心打中 ...</blockquote>
+你找一下道具里有一个可以不用报仇拿回果报的
+

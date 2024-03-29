@@ -8713,3 +8713,18 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nukecole  
+##### 2321#       发表于 2024-3-30 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64421775&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-3-29 19:44</a>
+
+看贴吧破解的武器改造，
+
+目前已知改装:弹匣容量，弹药类型，枪机(射速)，枪口(后坐力) 瞄准镜(可能会有)
+
+主 ...</blockquote>
+老实说贴把那图感觉像是玩家自制的，不太像箭头的UI。。。
+

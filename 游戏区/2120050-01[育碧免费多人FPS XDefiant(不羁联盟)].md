@@ -2399,3 +2399,16 @@ Insider Gaming了解到，《不羁联盟》在过去几年中已经错过了许
 
 什么都像cod那我玩你干嘛
 
+
+*****
+
+####  zzy516232108  
+##### 228#       发表于 2024-3-29 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412922&amp;ptid=2120050" target="_blank">陈词与芍药 发表于 2024-3-29 03:21</a>
+
+Insider Gaming了解到，《不羁联盟》在过去几年中已经错过了许多内部目标，包括发布日期，这使得这款游戏与 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个高管最好不要是mark rubin
+
+什么都像cod那我为什么不去玩cod，难道就因为xd免费吗
+

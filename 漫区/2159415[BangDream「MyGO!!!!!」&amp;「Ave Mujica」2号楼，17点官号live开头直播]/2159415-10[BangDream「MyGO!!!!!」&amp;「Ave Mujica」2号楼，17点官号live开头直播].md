@@ -14464,3 +14464,21 @@ jdk的新吉他手吉田樱小姐姐去dj了，<img src="https://static.saraba1s
 
 2024-3-30 00:50 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 14568#       发表于 2024-3-30 01:54
+
+我想了一下用老图的原因，应该是下一次莱芜的小剧场世界还没想好怎么写，现在还是在刚发现自己是个有自由意志（希瓦：勿cue）的人偶的阶段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/30/015538rtcc0gecq7g722w6.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0488.GIF</strong> (6.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-30 01:55 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

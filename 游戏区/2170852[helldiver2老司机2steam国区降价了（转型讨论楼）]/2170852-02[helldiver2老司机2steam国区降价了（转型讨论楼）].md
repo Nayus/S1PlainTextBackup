@@ -8575,3 +8575,13 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到光能族的几个动作套模型，跟一代比狂野了不少，超级气球罪大恶极把一个高等文明打成了这个吊样来自: iPhone客户端
 
+
+*****
+
+####  白昼梦  
+##### 2308#       发表于 2024-3-29 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计要等他开10以上难度才会给玩家出武器强化系统吧。
+战备不能塞进氪金里，箭头怕不是战备升级功能做的就更不积极了。
+感觉指望他出第二台机甲然后带人玩的时候直接招两台高达就算剪头最做人的更新了
+

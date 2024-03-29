@@ -271,3 +271,15 @@
 
 希斯克利夫最百感交集的卡池之一。
 
+
+*****
+
+####  erratic璃月  
+##### 612#       发表于 2024-3-29 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64420604&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-3-29 17:59</a>
+这是女管家吧二破背景里有辛克莱，看来他也不用穿女仆服了（我在说啥）
+
+该不会是良秀当内莉吧[f: ...</blockquote>
+奥姨人格故事里有提耐莉是良秀吧。也挺带感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

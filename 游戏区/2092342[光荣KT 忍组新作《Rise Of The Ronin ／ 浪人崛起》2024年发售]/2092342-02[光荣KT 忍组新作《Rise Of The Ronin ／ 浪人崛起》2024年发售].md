@@ -10493,3 +10493,25 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 龙马存活的话他青梅还能比翼吗？
 
+
+*****
+
+####  popchong  
+##### 2552#       发表于 2024-3-29 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64418598&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-3-29 15:31</a>
+
+希望下一作优化一下这简陋的任务系统，分阵营分了个寂寞，支线主线各种冲突，话说这作会有DLC不？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我打到京都了都不理解这个阵营分块有啥意义
+
+
+*****
+
+####  nagitoY  
+##### 2553#       发表于 2024-3-29 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64418961&amp;ptid=2092342" target="_blank">popchong 发表于 2024-3-29 15:58</a>
+
+我打到京都了都不理解这个阵营分块有啥意义</blockquote>
+如果分阵营，那就一半的支线都不能做，大地图就太空了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -14913,3 +14913,21 @@ sc第二季新PV可以确定鸽子大女主了，迷光和水估计不会详细�
 
 小高真爱是透鸽吧
 
+
+*****
+
+####  rgauss  
+##### 2950#       发表于 2024-3-29 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64422005&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-3-29 20:04</a>
+这pv街景这张，hnn头身比怎么这么怪</blockquote>
+裙子短了
+
+
+*****
+
+####  何处分可  
+##### 2951#       发表于 2024-3-29 20:47
+
+【【漫谈】偶像大师百万现场 第八期【关于如月千早，关于偶像大师的苍】】 [https://www.bilibili.com/video/B ... cc556defeee1979fb27](https://www.bilibili.com/video/BV1Fq421P7VN/?share_source=copy_web&amp;vd_source=7c4a22637017bcc556defeee1979fb27)
+

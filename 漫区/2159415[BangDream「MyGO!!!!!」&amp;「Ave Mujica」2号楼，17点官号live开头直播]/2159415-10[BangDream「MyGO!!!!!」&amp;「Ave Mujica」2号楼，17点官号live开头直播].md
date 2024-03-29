@@ -14133,3 +14133,18 @@ MD庆鹏不就在四叶隔壁，上个庆鹏怎么影响她和大家搞一辈子
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64410327&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-28 21:17</a></blockquote>
 可能rimi抽到了官方送的雅思真题集
 
+
+*****
+
+####  NODY  
+##### 14535#       发表于 2024-3-29 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412237&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-3-29 00:13</a>
+
+MD庆鹏不就在四叶隔壁，上个庆鹏怎么影响她和大家搞一辈子乐队了
+
+—— 来自 HUAWEI YAL-AL10, An ...</blockquote>
+人家就是忍不了不能随时随地在一起，傲娇被套牢了是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+问题是大学的话不同专业时间照样对不上，还不如学千圣花音直接跨校同居算了
+

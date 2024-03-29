@@ -722,3 +722,11 @@
 但是为啥每次进去都要出来再从头来过继续爬楼， ...</blockquote>
 人手不足，且塔会变动结构。这时候你需要掌握就地补给技术，没错，吃塔内生物吧！<img src="https://static.saraba1st.com/image/smiley/carton2017/169.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 76#       发表于 2024-3-29 16:50
+
+鉴于三人组发现捷径也没打算公之于众，小团队互相竞争的气氛下探险队之间根本无法协力建立前哨基地<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

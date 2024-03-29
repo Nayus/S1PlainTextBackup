@@ -3648,3 +3648,19 @@ taiyaki的联动到这周的月底就要结束了，看了一下推上repo各店
 
 前几天sega工商毅然翘掉，今天因为是bushiroad爹的不敢翘了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8513#         楼主| 发表于 2024-3-29 16:47
+
+MV选今天发表有什么特别的意义吗
+
+<img src="https://img.saraba1st.com/forum/202403/29/164729gtjnwrwinl9rozne.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (164.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 16:47 上传
+

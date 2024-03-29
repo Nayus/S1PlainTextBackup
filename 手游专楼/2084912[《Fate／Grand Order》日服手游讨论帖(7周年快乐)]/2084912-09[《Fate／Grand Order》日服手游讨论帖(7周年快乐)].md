@@ -1074,3 +1074,18 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 —— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  cenhr  
+##### 11928#       发表于 2024-3-29 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64406488&amp;ptid=2084912" target="_blank">eilot 发表于 2024-3-28 16:04</a>
+
+22章那個所謂難關也不算太關
+
+前3條血都是3星二姐弓直接秒了及即時儲滿NP，
+
+第4條血因散了BUFF所以轟了兩炮 ...</blockquote>
+真的难关是全NPC打雷鸟。太吃运气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

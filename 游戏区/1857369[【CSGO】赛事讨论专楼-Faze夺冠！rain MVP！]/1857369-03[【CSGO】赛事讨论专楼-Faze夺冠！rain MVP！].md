@@ -1087,3 +1087,13 @@ TMD奖杯修的好吗<img src="https://static.saraba1st.com/image/smiley/face201
 
 呼吸今天的小镇不管是指挥还是枪法跟打vp 时候简直是两个人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  绯影汐岚  
+##### 4153#       发表于 2024-3-30 06:46
+
+还得是流量队
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

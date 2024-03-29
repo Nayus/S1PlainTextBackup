@@ -910,3 +910,18 @@ Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
 
 这闪避距离很是幽默
 
+
+*****
+
+####  nage560  
+##### 477#       发表于 2024-3-29 23:03
+
+这打击感和手感，竟然和我十几年前在叉烧盒子上玩的赤炎帝国一样，这么多年过去棒子的技术都没有什么进步吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 478#       发表于 2024-3-29 23:07
+
+这个战斗不太行啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">移动定手感都挺怪的 打起来非常的僵硬
+

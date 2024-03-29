@@ -1154,3 +1154,21 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蓝蓝红红 一天到晚蓝蓝红红 我绿呢
 
+
+*****
+
+####  angelooo  
+##### 11937#       发表于 2024-3-29 18:30
+
+真就环日服新人福袋啊
+
+*****
+
+####  保罗赫伯特  
+##### 11938#       发表于 2024-3-29 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64420815&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-29 18:18</a>
+
+蓝蓝红红 一天到晚蓝蓝红红 我绿呢</blockquote>
+周年来个绿拐晴明<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

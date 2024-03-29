@@ -1043,3 +1043,14 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 連最基本連藍紅黃石現在都能缺，而活動又不能換(最早期的活動反而間中能各換20個)，雖然活動能刷黃秘石但也只能在最後數關低機率出現，但之前也有數次90++是沒黃秘石能刷
 
+
+*****
+
+####  UNISONIA  
+##### 11925#       发表于 2024-3-29 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415308&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2024-3-29 11:09</a>
+
+你游材料稀有度一直不是假的。觉得铜材料比金材料难刷的本质是，它的活动商店能让你换20金材料的同时，最多 ...</blockquote>
+新卡老是搞216个新的铜素材才是觉得难刷的原因<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

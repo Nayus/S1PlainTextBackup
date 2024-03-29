@@ -40,3 +40,13 @@
 再见了，最虚拟的虚拟主播
 3d视频势没能打赢2d纸片人不是你的错
 
+
+*****
+
+####  cqc1021  
+##### 1679#       发表于 2024-3-29 17:18
+
+开创了一个时代，结果没跟上时代的步伐<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

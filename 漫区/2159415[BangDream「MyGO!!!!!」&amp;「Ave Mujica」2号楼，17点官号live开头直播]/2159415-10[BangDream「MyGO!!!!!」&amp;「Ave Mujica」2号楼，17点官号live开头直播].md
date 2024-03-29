@@ -14273,3 +14273,33 @@ ars本来就容易智商下线，考试那次不就表演过了<img src="https:/
 
 这套破图还要用几次<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 14549#       发表于 2024-3-29 17:18
+
+只能说wsd是真的似了
+
+你以为wsd在藏东西维护世界观，然而只是单纯的连新建文件夹都没有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+我觉得已经可以开始滑坡5首新曲了，感觉ppt不可避，不是鬼图就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 14550#       发表于 2024-3-29 17:19
+
+也许用到凑钱终于画出2nd视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+然后2nd视觉图再用几个月
+
+*****
+
+####  6030sylar  
+##### 14551#       发表于 2024-3-29 17:21
+
+你武士道有做遗作的觉悟吗
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

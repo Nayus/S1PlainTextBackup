@@ -8302,3 +8302,11 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新机枪这大篮子，抽象75发总给我一种他们拉了一条差不多长的总DPS条去做机枪变种
 
+
+*****
+
+####  Mr.Hopp  
+##### 2282#       发表于 2024-3-29 09:57
+
+我看UP用新机枪把坦克给怼死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

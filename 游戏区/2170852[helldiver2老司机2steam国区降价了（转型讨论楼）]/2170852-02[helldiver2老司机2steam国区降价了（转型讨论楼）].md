@@ -8411,3 +8411,24 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 开黑也不一定好，因为是P2P ...</blockquote>
 真难甭啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 他妈的打半小时收集一堆资源临上飞机程序没了
 
+
+*****
+
+####  FLZB  
+##### 2292#       发表于 2024-3-29 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412839&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-29 02:20</a>
+
+等一代战备升级回归一切都会好起来的，泄露图标就有各种改装和子弹类型什么的 ...</blockquote>
+怕不是没删干净的废案，给你升级改装还怎么水变种，债卷要没货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 2293#       发表于 2024-3-29 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64414502&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-29 10:10</a>
+
+这写作重机枪，读作连发狙，远距离短点打机器人还行</blockquote>
+要当狙用我为什么不用机炮呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

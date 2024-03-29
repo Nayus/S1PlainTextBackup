@@ -972,3 +972,13 @@ DONKED ON? MORE LIKE GET RAINED ON
 
 这么多赛点差点被翻也太刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Senbascira  
+##### 4139#       发表于 2024-3-29 17:30
+
+有种...湘北打山王的感觉，希望faze能更进一步，闯过vitality
+
+—— 来自 OnePlus PHB110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

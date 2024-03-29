@@ -8567,3 +8567,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ykyin09  
+##### 2307#       发表于 2024-3-29 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到光能族的几个动作套模型，跟一代比狂野了不少，超级气球罪大恶极把一个高等文明打成了这个吊样来自: iPhone客户端
+

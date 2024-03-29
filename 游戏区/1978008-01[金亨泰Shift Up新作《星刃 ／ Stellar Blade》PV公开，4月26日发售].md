@@ -1236,3 +1236,71 @@ Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
 
 不过全程卡我比较久的还是上下梯子的时候<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  105gun  
+##### 515#       发表于 2024-3-30 00:26
+
+太便秘了，整个动作系统是怎么设计出来的，手感怪，系统碎，如果有朝一日ai会做游戏的话大概抄出来的就是这种东西吧
+
+连着动作模组一股怪味，搞得烧鸡都舔不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈罗  
+##### 516#       发表于 2024-3-30 00:29
+
+我觉得挺好玩的，但是有些设计真的弱智，比如转角藏个怪逼你用扫描，金币还要手动捡
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 517#       发表于 2024-3-30 00:30
+
+玩着其实还行，打算预购了。
+
+ps：技能一定要在boss准备攻击时出，能打断boss技能或硬抗伤害，收益最高。
+
+
+*****
+
+####  r1r2r3  
+##### 518#       发表于 2024-3-30 00:31
+
+我感觉玩起来还行，肯定买的，但不能指望神作，大概良作以上吧
+
+*****
+
+####  zqqwe  
+##### 519#       发表于 2024-3-30 00:33
+
+手感其实还算扎实，但招式动作太不知所谓了……既不暴力也完全没有美感
+
+*****
+
+####  shudushimo  
+##### 520#       发表于 2024-3-30 00:34
+
+什么尼尔缝类魂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪避手感太狗屎了，血也太薄了，金亨泰不会觉得我是来受苦的吧
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 521#       发表于 2024-3-30 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424225&amp;ptid=1978008" target="_blank">电磁炮233 发表于 2024-3-30 00:15</a>
+
+都是躲，原地O，前+O，后+O 低能设计师才能设计出这种玩意儿
+
+—— 来自 S1Fun ...</blockquote>
+前+O不就是只狼踩刀，不如抄全套，要后+O处理的攻击改成跳跃踩头处理
+
+*****
+
+####  clstc  
+##### 522#       发表于 2024-3-30 00:35
+
+这游戏想高速战斗，但防御和闪避取消感觉有不小的延迟，攻击后摇长的一比，比如普通攻击接没有取消判定的跳跃，要tm2秒后才能跳，简直无语
+

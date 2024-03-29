@@ -8339,3 +8339,49 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">箭头不会做平衡可以不要做
 
+
+*****
+
+####  ws4222  
+##### 2286#       发表于 2024-3-29 11:01
+
+我昨晚玩了大概三四个小时，直接把我CPU干过热死机了，这游戏优化是不是有点问题啊？我12代CPU第一次遇到这种事情
+
+另外，这游戏是不是找群友开黑比较好，野车我经常莫名其妙断连
+
+
+*****
+
+####  Ashice  
+##### 2287#       发表于 2024-3-29 11:06
+
+有啥1号位武器可以高效处理黄绿胖吗？
+这几把玩类星体遇到的图都是重甲多所以体验良好，要是黄绿胖多估计就没法处理了
+感觉处理黄绿胖还得是电枪榴弹手雷
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mr.BBWoLf  
+##### 2288#       发表于 2024-3-29 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415193&amp;ptid=2170852" target="_blank">ws4222 发表于 2024-3-29 11:01</a>
+
+我昨晚玩了大概三四个小时，直接把我CPU干过热死机了，这游戏优化是不是有点问题啊？我12代CPU第一次遇到这 ...</blockquote>
+不不断连基本是箭头的问题，昨天断连后我看群里的老哥也同时断连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 2289#       发表于 2024-3-29 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415270&amp;ptid=2170852" target="_blank">Ashice 发表于 2024-3-29 11:06</a>
+
+有啥1号位武器可以高效处理黄绿胖吗？
+
+这几把玩类星体遇到的图都是重甲多所以体验良好，要是黄绿胖多估计就 ...</blockquote>
+焦土和离子喷，直接打肉
+
+重炮手打头
+

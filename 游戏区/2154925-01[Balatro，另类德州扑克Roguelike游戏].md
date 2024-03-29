@@ -6274,3 +6274,19 @@ b站貌似代理了国服，不知道是单机买断还是氪金？
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  a4ac7  
+##### 551#       发表于 2024-3-29 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64405561&amp;ptid=2154925" target="_blank">mtbull 发表于 2024-3-28 14:49</a>
+卡在倒数第二个了，各种重开无果</blockquote>
+<img src="https://p.sda1.dev/16/0e502a750dd22a780973a5be27d5292f/CMP_20240329205010221.png" referrerpolicy="no-referrer">
+
+一张成长/rare卡加两张乘法小丑配置
+
+我这个最后遇上卖小丑的boss，不过成长卡养了300+筹码，乘法小丑*4两张小丑硬车过去了
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1172,3 +1172,13 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 蓝蓝红红 一天到晚蓝蓝红红 我绿呢</blockquote>
 周年来个绿拐晴明<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11939#       发表于 2024-3-29 23:54
+
+什么时候加个按下一级绊需要量排序的功能啊，挖石头一个一个看累死了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

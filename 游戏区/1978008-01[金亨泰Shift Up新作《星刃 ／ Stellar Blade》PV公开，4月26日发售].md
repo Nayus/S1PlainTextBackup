@@ -1075,3 +1075,22 @@ Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  宛若青空  
+##### 496#       发表于 2024-3-29 23:47
+
+打通后可以进那个挑战BOSS的模式，在这里面解锁了很多招式动作，比较能体验到完整的战斗体验
+
+*****
+
+####  土路生優里  
+##### 497#       发表于 2024-3-29 23:52
+
+精防和闪避的感觉好怪啊，总觉得有些拖沓和延迟
+
+有个藤壶的怪，蓝光技能怎么都闪避不掉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

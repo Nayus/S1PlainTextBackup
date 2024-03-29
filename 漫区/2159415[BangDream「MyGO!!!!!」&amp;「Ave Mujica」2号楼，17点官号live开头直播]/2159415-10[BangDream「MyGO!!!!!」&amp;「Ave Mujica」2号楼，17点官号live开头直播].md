@@ -14156,3 +14156,21 @@ MD庆鹏不就在四叶隔壁，上个庆鹏怎么影响她和大家搞一辈子
 
 ars那个小娇妻性格，别人都有自己的生活，她除了学生会，基本不参与ppp以外的一切活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 14537#       发表于 2024-3-29 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64414670&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-3-29 10:22</a>
+
+ars那个小娇妻性格，别人都有自己的生活，她除了学生会，基本不参与ppp以外的一切活动 ...</blockquote>
+没有ppp她连家门都不怎么出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太二EricGuo  
+##### 14538#       发表于 2024-3-29 11:13
+
+有个神人把睦祥姐妹论翻译到红迪了<img src="https://s2.loli.net/2024/03/29/JnpLgrKY4H9isqN.png" referrerpolicy="no-referrer">
+

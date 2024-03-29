@@ -8385,3 +8385,29 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 
 重炮手打头
 
+
+*****
+
+####  Launce  
+##### 2290#       发表于 2024-3-29 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415193&amp;ptid=2170852" target="_blank">ws4222 发表于 2024-3-29 11:01</a>
+
+我昨晚玩了大概三四个小时，直接把我CPU干过热死机了，这游戏优化是不是有点问题啊？我12代CPU第一次遇到这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限制
+
+开黑也不一定好，因为是P2P
+
+
+*****
+
+####  ws4222  
+##### 2291#       发表于 2024-3-29 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415305&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-29 11:09</a>
+
+CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限制
+
+开黑也不一定好，因为是P2P ...</blockquote>
+真难甭啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 他妈的打半小时收集一堆资源临上飞机程序没了
+

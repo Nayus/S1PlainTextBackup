@@ -206,3 +206,68 @@
 
 是女仆浮，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 610#       发表于 2024-3-29 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64420521&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-3-29 17:53</a>
+
+是女仆浮，好耶</blockquote>
+这是女管家吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">二破背景里有辛克莱，看来他也不用穿女仆服了（我在说啥）
+
+该不会是良秀当内莉吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太妹女仆，画面太美。
+
+
+*****
+
+####  Jamaisvu  
+##### 611#       发表于 2024-3-29 18:03
+
+新卡池，家族继承人（林顿）格里高利三星、管家浮士德二星：
+
+<img src="https://img.saraba1st.com/forum/202403/29/180032nbjvdfpx7cabmvdv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240329_175633.jpg</strong> (271.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 18:00 上传
+
+<img src="https://img.saraba1st.com/forum/202403/29/180032aflme0ehovrojv1h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240329_175713.jpg</strong> (129.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 18:00 上传
+
+<img src="https://img.saraba1st.com/forum/202403/29/180033qxkziostgk5rkzkk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240329_175725.jpg</strong> (130.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 18:00 上传
+
+<img src="https://img.saraba1st.com/forum/202403/29/180033yrs1wosokowynymf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240329_175642.jpg</strong> (169.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 18:00 上传
+
+<img src="https://img.saraba1st.com/forum/202403/29/180034nzellqw3kqq1uhhe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240329_175658.jpg</strong> (146.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 18:00 上传
+
+后面的剧情里应该要打林顿了，辛德利那副鬼样子除非扭了应该不会战斗吧...
+
+希斯克利夫最百感交集的卡池之一。
+

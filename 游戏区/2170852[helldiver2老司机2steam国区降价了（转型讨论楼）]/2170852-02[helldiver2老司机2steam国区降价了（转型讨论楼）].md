@@ -8513,3 +8513,43 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 今天匹配一降落下来就四个坦克虫追我 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 2302#       发表于 2024-3-29 13:09
+
+燃烧喷这么废的吗，以前看我朋友没事就搁那突突突黄绿胖子还以为很牛逼，结果上手了才发现刮得很<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 2303#       发表于 2024-3-29 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415778&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-3-29 12:48</a>
+机炮能打的重机枪都能打
+
+—— 来自 S1Fun</blockquote>
+重机枪没有高贵的爆炸属性<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2304#       发表于 2024-3-29 13:11
+
+火喷不弱啊，伤害低但两倍弹夹，个人觉得手感比鸟喷好一百倍。
+
+
+*****
+
+####  赤井稻妻  
+##### 2305#       发表于 2024-3-29 13:14
+
+ 本帖最后由 赤井稻妻 于 2024-3-29 13:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64416683&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-3-29 13:09</a>
+
+燃烧喷这么废的吗，以前看我朋友没事就搁那突突突黄绿胖子还以为很牛逼，结果上手了才发现刮得很 ...</blockquote>
+废倒是不废吧，因为燃烧整体伤害变高了，不像破裂者一样有爆发伤害，但是燃烧可以解决大片小虫子，和鸟喷用处差不多，破裂者一家现在都可用一用，不像解放者全家被镰刀灭门了
+
+打胖子用什么破裂者都不好使，中甲穿透武器爆头，或者冲击雷，榴弹炮之类的爆炸武器炸肚子才能高效击杀
+

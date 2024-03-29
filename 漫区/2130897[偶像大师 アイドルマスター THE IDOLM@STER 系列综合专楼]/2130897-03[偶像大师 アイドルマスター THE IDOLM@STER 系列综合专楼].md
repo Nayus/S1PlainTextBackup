@@ -16,3 +16,11 @@
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  koodooliz  
+##### 2963#       发表于 2024-3-30 01:15
+
+第一季灌水为了第二季老大鸽的补完是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

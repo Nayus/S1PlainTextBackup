@@ -982,3 +982,18 @@ DONKED ON? MORE LIKE GET RAINED ON
 
 —— 来自 OnePlus PHB110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  ork  
+##### 4140#       发表于 2024-3-30 03:32
+
+开幕抽象绕圈
+
+*****
+
+####  ork  
+##### 4141#       发表于 2024-3-30 03:34
+
+昨天第二场手枪局之后好像也技术暂停了，麻
+

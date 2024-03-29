@@ -10645,3 +10645,35 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 按理说作为人夫是明显的不可攻略角色，但他是有好感条的，又不像龙马和高杉的因缘跟主线相关联，于是像一根断头支线一样令人困惑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 2568#       发表于 2024-3-29 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64423050&amp;ptid=2092342" target="_blank">松风君 发表于 2024-3-29 21:49</a>
+
+话说好奇久坂的比翼不知有没有人在他活着的时候尝试出来，因缘赠礼&amp;开启条件到底是什么
+
+按理说作为人夫是明 ...</blockquote>
+正好在贴吧看到个对应的
+[https://tieba.baidu.com/p/8957445713](https://tieba.baidu.com/p/8957445713)
+
+*****
+
+####  寂长无星夜  
+##### 2569#       发表于 2024-3-29 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64422697&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-29 21:13</a>
+我都服了，想看看更新了啥然后根本找不到官推和官网，唯一的网站就是ps5游戏的页面，神经病啊。傻逼ps5也是 ...</blockquote>
+贴吧有
+
+添加了一般稳定性修复。
+解决了导致游戏崩溃的各种错误。
+提高性能。
+修复了与战斗相关的各种错误。
+解决音频相关问题。
+修复了小错误。
+注意：完整的变更日志将很快发布。
+在 PlayStation 5 上免费下载 Rise of Ronin 更新 1.002。
+

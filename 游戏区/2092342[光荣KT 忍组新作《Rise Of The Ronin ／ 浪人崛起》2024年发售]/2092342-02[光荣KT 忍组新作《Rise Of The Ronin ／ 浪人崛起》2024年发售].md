@@ -10418,3 +10418,20 @@ ntm的，太贴心了吧
 
 滑翔训练漏了一个想着完了完了又要重打 结果跳了个极传
 
+
+*****
+
+####  hugosol  
+##### 2545#       发表于 2024-3-29 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64417668&amp;ptid=2092342" target="_blank">kangkangsama 发表于 2024-3-29 14:12</a>
+
+看看陆行鸟滑行 
+
+再看看滑翔训练
+
+同理幽灵船和打靶训练</blockquote>
+ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
+
+浪人打靶直接把加特林给你爽了，高下立判
+

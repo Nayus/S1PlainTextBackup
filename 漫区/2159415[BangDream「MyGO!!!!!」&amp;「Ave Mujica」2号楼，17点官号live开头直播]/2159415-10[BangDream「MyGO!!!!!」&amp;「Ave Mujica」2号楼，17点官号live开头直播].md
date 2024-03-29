@@ -14421,3 +14421,11 @@ QQ图片20240329194108.jpg
 
 [https://twitter.com/sigangsan/status/1773621391771705486](https://twitter.com/sigangsan/status/1773621391771705486)
 
+
+*****
+
+####  CyanXD  
+##### 14564#       发表于 2024-3-29 20:07
+
+RAS人呢，今天没去机场堵人的吗，还是上次mygo没堵到都自裁了？
+

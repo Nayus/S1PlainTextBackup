@@ -10515,3 +10515,36 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 我打到京都了都不理解这个阵营分块有啥意义</blockquote>
 如果分阵营，那就一半的支线都不能做，大地图就太空了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 2554#       发表于 2024-3-29 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64417618&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-3-29 14:08</a>
+
+打到第二章，道场的敌人基本都刷了一遍
+
+我觉得最畜生的三个人
+
+1.涩泽荣一，不停后跳开枪给你上火属性，铳枪 ...</blockquote>
+漏了一个酒鬼DIO
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 2555#       发表于 2024-3-29 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64418961&amp;ptid=2092342" target="_blank">popchong 发表于 2024-3-29 15:58</a>
+我打到京都了都不理解这个阵营分块有啥意义</blockquote>
+因为分阵营搞多周目剧情的话，他每周目主线和支线都短的一比
+
+*****
+
+####  Z1yu  
+##### 2556#       发表于 2024-3-29 16:47
+
+分阵营，可能就后期打得boss不一样吧。
+比如禁门之变，还有鸟羽伏见，阵营不同，打得boss不同。
+

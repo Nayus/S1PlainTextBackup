@@ -1,0 +1,18 @@
+﻿
+*****
+
+####  rgauss  
+##### 2961#       发表于 2024-3-30 00:38
+
+所以被出了第二季的闪踩在了脚下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希望之异热同心  
+##### 2962#       发表于 2024-3-30 00:44
+
+百的剧本真不好写，就算爆3w让万达有二期想法想搞难度也很大，基本上属于爆金币给中专偶像了
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

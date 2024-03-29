@@ -1304,3 +1304,44 @@ ps：技能一定要在boss准备攻击时出，能打断boss技能或硬抗伤�
 
 这游戏想高速战斗，但防御和闪避取消感觉有不小的延迟，攻击后摇长的一比，比如普通攻击接没有取消判定的跳跃，要tm2秒后才能跳，简直无语
 
+
+*****
+
+####  夜夜無夢  
+##### 523#       发表于 2024-3-30 00:37
+
+這個閃避也太便祕了，玩動作遊戲就沒這麼丟人過，硬是閃避不過各種攻擊被雜兵圍毆致死……我還以爲會是類似伊蘇的爽快手感，結果防禦和閃避的設計根本爽不起來啊
+
+*****
+
+####  夜夜無夢  
+##### 524#       发表于 2024-3-30 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424322&amp;ptid=1978008" target="_blank">哈罗 发表于 2024-3-30 00:29</a>
+
+我觉得挺好玩的，但是有些设计真的弱智，比如转角藏个怪逼你用扫描，金币还要手动捡 ...</blockquote>
+自動拾取默認是關閉的，可以在菜單打開
+
+*****
+
+####  sd1055007  
+##### 525#       发表于 2024-3-30 00:38
+
+本体感觉不太行，这boss挑战意外的觉得手感还不错
+
+*****
+
+####  ff2077  
+##### 526#       发表于 2024-3-30 00:38
+
+爽感不是通过平a和闪避来的 是通过精防和闪避各种颜色的招之后狂丢技能来爽的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字已被吃  
+##### 527#       发表于 2024-3-30 00:39
+
+这游戏是不是跟只狼差不多，除了开头一两个能普攻出硬直的怪能随便a死，其他的怪或多或少要精防或者闪避来打<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

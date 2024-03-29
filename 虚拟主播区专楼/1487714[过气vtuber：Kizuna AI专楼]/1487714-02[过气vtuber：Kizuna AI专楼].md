@@ -50,3 +50,11 @@
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  midearth  
+##### 1680#       发表于 2024-3-29 19:09
+
+我还一直等她回来的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

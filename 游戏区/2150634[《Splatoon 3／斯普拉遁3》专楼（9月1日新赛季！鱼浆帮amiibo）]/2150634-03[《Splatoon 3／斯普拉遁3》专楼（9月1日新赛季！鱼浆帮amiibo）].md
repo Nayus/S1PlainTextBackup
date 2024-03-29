@@ -7814,3 +7814,26 @@ fami通的秩序篇访谈
 
 被消毒之后这绿皮实在是削弱颜值<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3755#       发表于 2024-3-29 13:50
+
+昨天看到的，离谱到家的延迟
+
+[https://www.youtube.com/live/s81 ... TLgaNW3s&amp;t=2560](https://www.youtube.com/live/s81PeYPZoVw?si=a6uqBEMcTLgaNW3s&amp;t=2560)
+
+下一代能不能别用P2P联机了？
+
+*****
+
+####  KBAC  
+##### 3756#       发表于 2024-3-29 13:52
+
+ 本帖最后由 KBAC 于 2024-3-29 13:55 编辑 
+
+某游戏新出了个会遁地高速移动的英雄，光这点要素自然不能说是模仿喷喷，但这主武器也太长红泡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://b23.tv/3vCkkAW
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

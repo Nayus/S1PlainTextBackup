@@ -1062,3 +1062,15 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 铜素材掉率跟金银材料没差别，再加上吃的数量多，所以刷铜素材是最折磨人的一件事
 
+
+*****
+
+####  里村紅葉  
+##### 11927#       发表于 2024-3-29 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415886&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-3-29 11:59</a>
+哎 桑心 萌新想抽2宝伯爵  all in  结果老男人4宝了。为什么 为什么不是伯爵4宝 ...</blockquote>
+不愧是萌新，卡池对四星五星一视同仁<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -865,3 +865,13 @@ d级淘宝买点卡就行，和谐不知道
 
 可以换发型吗？说实话我觉得 pv 里出现过的其他妹妹比主角好看
 
+
+*****
+
+####  宛若青空  
+##### 472#       发表于 2024-3-29 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64416545&amp;ptid=1978008" target="_blank">sliver1997 发表于 2024-3-29 12:58</a>
+可以换发型吗？说实话我觉得 pv 里出现过的其他妹妹比主角好看</blockquote>
+可以，前面有多种发型选择，后面马尾也可以选择长短
+

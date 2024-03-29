@@ -14931,3 +14931,22 @@ sc第二季新PV可以确定鸽子大女主了，迷光和水估计不会详细�
 
 【【漫谈】偶像大师百万现场 第八期【关于如月千早，关于偶像大师的苍】】 [https://www.bilibili.com/video/B ... cc556defeee1979fb27](https://www.bilibili.com/video/BV1Fq421P7VN/?share_source=copy_web&amp;vd_source=7c4a22637017bcc556defeee1979fb27)
 
+
+*****
+
+####  Anatoly  
+##### 2952#       发表于 2024-3-29 20:53
+
+透鸽你说内部爱我怎么觉得更像带货CP
+
+没啥互动跨组最后才出跨组活这俩也没啥关系
+
+感觉就是运营脑袋一拍觉得这俩杵一块儿挺好看的就每次带货把她俩摆上面完事了（
+
+*****
+
+####  冰寒之月  
+##### 2953#       发表于 2024-3-29 20:57
+
+最强营业cp透鸽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大家都喜欢
+

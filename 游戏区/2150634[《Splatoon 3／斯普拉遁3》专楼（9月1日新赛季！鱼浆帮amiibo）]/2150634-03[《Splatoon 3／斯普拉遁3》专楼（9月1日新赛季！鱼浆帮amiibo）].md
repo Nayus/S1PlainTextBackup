@@ -7852,3 +7852,22 @@ RS7V-VC0S-CXH0-SLVS
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  墨染白泉  
+##### 3758#       发表于 2024-3-29 23:16
+
+周末看看甲子园决赛
+
+
+*****
+
+####  laosai13  
+##### 3759#       发表于 2024-3-29 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64423774&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-3-29 23:16</a>
+
+周末看看甲子园决赛</blockquote>
+请问一下甲子园赛程是大概什么样的？在哪可以看有会有中文主播解说吗
+

@@ -8432,3 +8432,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 这写作重机枪，读作连发狙，远距离短点打机器人还行</blockquote>
 要当狙用我为什么不用机炮呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暴走的包子  
+##### 2294#       发表于 2024-3-29 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">跳出还是挺频繁啊，昨晚和刚刚好几次都是连续跳出了
+

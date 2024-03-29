@@ -8636,3 +8636,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 瞄准镜能出个高倍镜就好了，机枪打稍远一点的目标得靠目力补正<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 2314#       发表于 2024-3-29 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">图里四个人突然特别卡然后掉了两个，出来一看是又刷任务了，很难不怀疑是屎山代码让我掉线的
+

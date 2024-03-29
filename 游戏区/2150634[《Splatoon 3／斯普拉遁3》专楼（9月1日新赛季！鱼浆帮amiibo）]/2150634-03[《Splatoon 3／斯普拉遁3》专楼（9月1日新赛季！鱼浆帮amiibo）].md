@@ -7837,3 +7837,18 @@ fami通的秩序篇访谈
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 3757#       发表于 2024-3-29 21:08
+
+这就是合理的立回嘛？换新手柄后，打了些自我感觉良好的比赛，虽然打得有些保守，不过对比赛节奏的把握应该没啥问题吧，暂且不讨论技术方面的缺陷
+
+RH3Q-12J7-MALT-XTXT
+RMCK-X147-H8R8-100H
+R1PH-VBK3-TK5A-95LN
+RS7V-VC0S-CXH0-SLVS
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

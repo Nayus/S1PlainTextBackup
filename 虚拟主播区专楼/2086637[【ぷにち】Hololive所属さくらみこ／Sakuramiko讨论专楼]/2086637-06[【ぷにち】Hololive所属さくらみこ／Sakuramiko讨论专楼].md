@@ -3695,3 +3695,23 @@ MV选今天发表有什么特别的意义吗
 
 就为了卡牌包的纪念才发的MV？
 
+
+*****
+
+####  holoan  
+##### 8517#         楼主| 发表于 2024-3-29 21:08
+
+全篇都是kanauru的味道，除了live的那小段
+
+这么重要的原创曲直接丢给一个外人做确实信任度拉满了
+
+另外看这简介也就是说这首曲子又是为了醋包的饺子了
+
+<img src="https://img.saraba1st.com/forum/202403/29/210849x01d90gsed9idcet.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 21:08 上传
+

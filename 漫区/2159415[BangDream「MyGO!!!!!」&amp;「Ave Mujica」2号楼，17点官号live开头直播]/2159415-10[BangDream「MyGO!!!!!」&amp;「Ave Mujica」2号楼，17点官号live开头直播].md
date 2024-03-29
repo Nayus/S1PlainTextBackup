@@ -14205,3 +14205,16 @@ ars那个小娇妻性格，别人都有自己的生活，她除了学生会，�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  好想看Mujica啊  
+##### 14542#       发表于 2024-3-29 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64418449&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-3-29 15:17</a>
+
+定番更顯爛俗，為了蹭個定番情節讓ARS做降智操作是真薩比
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S ...</blockquote>
+ars本来就容易智商下线，考试那次不就表演过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

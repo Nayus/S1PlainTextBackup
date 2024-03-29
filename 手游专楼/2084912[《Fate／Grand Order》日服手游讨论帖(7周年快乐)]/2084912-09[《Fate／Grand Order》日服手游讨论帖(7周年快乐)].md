@@ -1099,3 +1099,11 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 看了下额外一的技能树，又要吃小钟了，黑兽脂和炉心也要不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 11930#       发表于 2024-3-29 15:31
+
+先不说尿壶，我这胆结石快给吃没了
+

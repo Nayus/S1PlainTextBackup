@@ -1127,3 +1127,13 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 <img src="https://p.sda1.dev/16/d6767793e0795fee4509adbf49009cb4/20240329_123941.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/a1fdbd03b6c38c3a68b7d2aedcd0545a/20240329_123945.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4541#       发表于 2024-3-29 22:05
+
+【【A9VG直播录像】《奇异贤伴 爱达之歌》封闭测试（2024年3月29日）-哔哩哔哩】 https://b23.tv/e6eONks
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

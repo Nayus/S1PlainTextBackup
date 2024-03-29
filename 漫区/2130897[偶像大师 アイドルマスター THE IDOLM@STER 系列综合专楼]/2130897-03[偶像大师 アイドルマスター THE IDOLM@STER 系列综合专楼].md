@@ -24,3 +24,11 @@
 
 第一季灌水为了第二季老大鸽的补完是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 2964#       发表于 2024-3-30 01:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">火锅2是不是除了说要搞之外，其他一点儿消息都没有
+

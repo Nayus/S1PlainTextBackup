@@ -1096,3 +1096,14 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyDC  
+##### 4539#       发表于 2024-3-29 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64404166&amp;ptid=2092345" target="_blank">renkan119 发表于 2024-03-28 12:46:17</a>
+说起来几台最终机的胶都没消息了？</blockquote>可能某天塞pb网限吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

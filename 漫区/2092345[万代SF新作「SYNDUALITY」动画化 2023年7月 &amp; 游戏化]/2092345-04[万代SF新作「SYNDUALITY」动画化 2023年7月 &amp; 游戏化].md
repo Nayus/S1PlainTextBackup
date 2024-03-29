@@ -1107,3 +1107,23 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Piano-Forest  
+##### 4540#         楼主| 发表于 2024-3-29 12:41
+
+第23話「Over the limit」原画
+<img src="https://p.sda1.dev/16/c850ab3dbda8b817cb90971c1382270f/20240329_123925.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/65386db5c35c6841bc13a683bca01c3c/20240329_123926.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/455e2cf0173ab856be3afc0404668bcf/20240329_123928.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/b2e45911d3da97a97571df81f75d2cf7/20240329_123929.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/16/ccb2cc8bcfa51fe8b083e2d89ddf4cf3/20240329_123934.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/e572c23937af9cc97e49c67baf1b4d3c/20240329_123935.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/153ca4e43ae6215c123cdee3dc92761b/20240329_123936.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/6522b74d0253f054b0691a34a14876bc/20240329_123938.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/16/d6767793e0795fee4509adbf49009cb4/20240329_123941.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/a1fdbd03b6c38c3a68b7d2aedcd0545a/20240329_123945.jpg" referrerpolicy="no-referrer">
+

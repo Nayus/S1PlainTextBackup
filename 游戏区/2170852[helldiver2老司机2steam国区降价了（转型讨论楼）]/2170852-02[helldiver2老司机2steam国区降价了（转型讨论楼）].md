@@ -8274,3 +8274,31 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 等一代战备升级回归一切都会好起来的，泄露图标就有各种改装和子弹类型什么的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可他们都把改装好的当新枪塞债券里了 还有没有这个系统都不好说
 
+
+*****
+
+####  Launce  
+##### 2279#       发表于 2024-3-29 09:25
+
+ 本帖最后由 Launce 于 2024-3-29 09:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64413541&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-3-29 08:42</a>
+
+可他们都把改装好的当新枪塞债券里了 还有没有这个系统都不好说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">可你一个GAAS游戏，货币资源全都有上限，不出改装靠什么玩家留存，脑瘫的暗改吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过就目前体验和STEAM社区，都默认全靠脑瘫暗改和平衡搞留存，矢脑觉得这很fun很balance
+
+*****
+
+####  赤井稻妻  
+##### 2280#       发表于 2024-3-29 09:31
+
+重机枪高贵的4级中甲穿，半个弹夹打爆坦克散热口，弹夹小可以理解，备弹怎么也这么少，能不能向喷火器看齐给4个弹夹
+
+
+*****
+
+####  Launce  
+##### 2281#       发表于 2024-3-29 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新机枪这大篮子，抽象75发总给我一种他们拉了一条差不多长的总DPS条去做机枪变种
+

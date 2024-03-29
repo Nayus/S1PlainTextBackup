@@ -1490,3 +1490,13 @@ BGM这个调调还行
 
 比预期的好一点，就是闪避时机贼吉尔怪，另外通关demo后那个boss挑战，每次紫光闪避成功后boss露出的黄色核心一样的东西是不是可以上前打出暴击？但不懂怎么操作。
 
+
+*****
+
+####  葵  
+##### 541#       发表于 2024-3-30 03:52
+
+试玩试了下手感其实比之前看视频的感觉要好点，但是各种动作感觉太二流了，有想法但是动作系统太不到位的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+尤其是最近刚好玩着浪人和龙信2这两动作顶尖的游戏，再玩下油腻的师姐就太不够看了，500块感觉真心不值，以后掉到个2，300还考虑下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10349,3 +10349,30 @@ FFO 4W6
 你接那个医生的采花任务了没，就是给他心仪的艺妓送花。地图上会给你标出来3处地点，其中有一处地点旁边 ...</blockquote>
 采到那一刻会立即触发这条支线，完成了之后你就可以买那套衣服了
 
+
+*****
+
+####  白河响剑  
+##### 2540#       发表于 2024-3-29 09:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就 怎么说呢
+
+想着小游戏全极传
+
+熟悉流程后都还好
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">作为伪杯狗看到奖杯有个道场极
+
+“wtm何德何能啊”
+
+改个难度过了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后才发现技能解锁在最低评价
+
+ntm的，太贴心了吧
+
+*****
+
+####  duraa  
+##### 2541#       发表于 2024-3-29 09:41
+
+小游戏极传卡的最久的好像是江户的骑马射箭，京都的骑马射箭倒是挺轻松的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

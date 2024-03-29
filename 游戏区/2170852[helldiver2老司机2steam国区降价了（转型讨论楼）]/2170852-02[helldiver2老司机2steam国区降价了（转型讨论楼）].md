@@ -8691,3 +8691,15 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 重机枪打机器人确实还行，巨型者和坦克炮塔都能速杀，箭头不整蛊的话本来可以是一把强度很高的武器。小载弹、高后坐力、无准心也就算了，第一人称实际弹着点居然往下偏这么多，我都不知道他装这个瞄具是在瞄谁。难怪之前要连夜招聘有服役经历的武器设计师，都不说一定要你非常专业，你踏马至少得有点常识吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 2319#       发表于 2024-3-29 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64423484&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-3-29 22:41</a>
+感觉出多点换皮武器都不需要武器改装了，带纯对空的战略有点亏啊</blockquote>
+飞鹰空对空可以用来炸泰坦和建筑。突击队是四发装的eat，毒刺好像和飞矛差不多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

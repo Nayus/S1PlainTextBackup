@@ -902,3 +902,11 @@ Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
 [https://store.playstation.com/zh ... 00-STELLARBLADEDEMO](https://store.playstation.com/zh-hant-hk/product/HP9000-PPSA18489_00-STELLARBLADEDEMO)
 [https://store.playstation.com/ja ... 00-STELLARBLADEDEMO](https://store.playstation.com/ja-jp/product/JP9000-PPSA18486_00-STELLARBLADEDEMO)
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 476#       发表于 2024-3-29 22:55
+
+这闪避距离很是幽默
+

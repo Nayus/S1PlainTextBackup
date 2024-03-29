@@ -925,3 +925,44 @@ Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
 
 这个战斗不太行啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">移动定手感都挺怪的 打起来非常的僵硬
 
+
+*****
+
+####  电磁炮233  
+##### 479#       发表于 2024-3-29 23:09
+
+除了画面真不如尼尔2一根吧，这么多长派生招式有几个能用的出来啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  icylight  
+##### 480#       发表于 2024-3-29 23:11
+
+剧情，音乐都不错，这些都是加分项
+
+
+*****
+
+####  herryk159  
+##### 481#       发表于 2024-3-29 23:15
+
+请问是PS独占吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 482#       发表于 2024-3-29 23:16
+
+除了弹反时的手柄音效有点爽外战斗就是答辩啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  看别人玩游戏  
+##### 483#       发表于 2024-3-29 23:16
+
+卡肉卡的太狠，音乐一股棒子特有的流水线廉价感…
+

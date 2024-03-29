@@ -1030,3 +1030,16 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 桑心 萌新想抽2宝伯爵  all in  结果老男人4宝了。为什么 为什么不是伯爵4宝
 
+
+*****
+
+####  eilot  
+##### 11924#       发表于 2024-3-29 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64415308&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2024-3-29 11:09</a>
+
+你游材料稀有度一直不是假的。觉得铜材料比金材料难刷的本质是，它的活动商店能让你换20金材料的同时，最多 ...</blockquote>
+白方块商店不會定時更新，某程度就已能當成不存在
+
+連最基本連藍紅黃石現在都能缺，而活動又不能換(最早期的活動反而間中能各換20個)，雖然活動能刷黃秘石但也只能在最後數關低機率出現，但之前也有數次90++是沒黃秘石能刷
+

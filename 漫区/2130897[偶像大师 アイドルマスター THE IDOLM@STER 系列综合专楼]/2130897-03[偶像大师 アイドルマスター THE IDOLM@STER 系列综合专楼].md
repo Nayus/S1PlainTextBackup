@@ -32,3 +32,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">火锅2是不是除了说要搞之外，其他一点儿消息都没有
 
+
+*****
+
+####  田所あずさ  
+##### 2965#       发表于 2024-3-30 02:17
+
+前几天生放送说了明年火锅2啊
+

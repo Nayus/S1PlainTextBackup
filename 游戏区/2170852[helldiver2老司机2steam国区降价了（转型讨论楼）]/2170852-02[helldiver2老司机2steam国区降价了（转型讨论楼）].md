@@ -8607,3 +8607,24 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 主武器可以搭载三个改装
 
+
+*****
+
+####  Hyst3r1a  
+##### 2311#       发表于 2024-3-29 20:06
+
+手柄，补给背包怎么给自己补弹药？
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kalavinka  
+##### 2312#         楼主| 发表于 2024-3-29 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64422024&amp;ptid=2170852" target="_blank">Hyst3r1a 发表于 2024-3-29 20:06</a>
+手柄，补给背包怎么给自己补弹药？
+
+—— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+十字键下
+

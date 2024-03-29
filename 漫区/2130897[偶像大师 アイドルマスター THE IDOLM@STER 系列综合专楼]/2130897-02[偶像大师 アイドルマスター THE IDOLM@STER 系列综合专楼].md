@@ -14986,3 +14986,13 @@ sc第二季新PV可以确定鸽子大女主了，迷光和水估计不会详细�
 
 百百大卖三万份，每个柏油脸上都有光，当然亮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 2958#       发表于 2024-3-29 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪闪销量焦虑症
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

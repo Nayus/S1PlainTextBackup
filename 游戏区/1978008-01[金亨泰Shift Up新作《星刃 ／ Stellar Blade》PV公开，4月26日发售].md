@@ -1005,3 +1005,55 @@ Demo已上线：[https://youtu.be/nMmChaF9v60](https://youtu.be/nMmChaF9v60)
 
 提醒一下各位可以在菜单的外观一栏把衣服脱了，代价是耐力条清0
 
+
+*****
+
+####  Asukalangley33  
+##### 489#       发表于 2024-3-29 23:31
+
+一开始以为是烧鸡类魂
+
+原来是尼尔like啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">这人声BGM味太冲了
+
+*****
+
+####  桥洞底下盖小被  
+##### 490#       发表于 2024-3-29 23:33
+
+玩了半小时，手感好奇怪，音乐也有种廉价感，ui也不直观<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crosz1985  
+##### 491#       发表于 2024-3-29 23:34
+
+日服有和谐吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ff2077  
+##### 492#       发表于 2024-3-29 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64423929&amp;ptid=1978008" target="_blank">crosz1985 发表于 2024-3-29 23:34</a>
+日服有和谐吗
+
+论坛助手,iPhone</blockquote>
+目测没有吧 断指也有
+
+*****
+
+####  泉美  
+##### 493#       发表于 2024-3-29 23:36
+
+<img src="https://img.saraba1st.com/forum/202403/29/233608ee85dz5hzccbqmlu.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (80.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 23:36 上传
+
+有笑到
+

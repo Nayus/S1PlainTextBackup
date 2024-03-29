@@ -10588,3 +10588,11 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 估计是修了洗点BUG吧
 
+
+*****
+
+####  寂长无星夜  
+##### 2562#       发表于 2024-3-29 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">想要龙马的衣服，为什么没有龙马的衣服
+

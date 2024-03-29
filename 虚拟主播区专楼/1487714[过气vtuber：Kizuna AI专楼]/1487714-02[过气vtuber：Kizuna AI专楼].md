@@ -23,3 +23,11 @@
 
 旧时代彻底落幕了
 
+
+*****
+
+####  竹笙_澪  
+##### 1677#       发表于 2024-3-29 13:39
+
+最后让大坂武史来接手也太幽默了<img src="https://static.saraba1st.com/image/smiley/carton2017/392.gif" referrerpolicy="no-referrer">
+

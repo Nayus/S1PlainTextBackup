@@ -8310,3 +8310,15 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 
 我看UP用新机枪把坦克给怼死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 2283#       发表于 2024-3-29 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412808&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-3-29 02:05</a>
+对后续更新基本没啥想法了，贱头这个武器设计是纯菜。
+
+重机枪但凡给到150发载弹，趴下后可原地架设变成固 ...</blockquote>
+这写作重机枪，读作连发狙，远距离短点打机器人还行
+

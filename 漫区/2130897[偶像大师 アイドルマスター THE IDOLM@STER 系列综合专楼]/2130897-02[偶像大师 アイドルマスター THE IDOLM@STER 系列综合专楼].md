@@ -14826,3 +14826,49 @@ u149有哪家买了版权的吗
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rexzhanghao  
+##### 2942#       发表于 2024-3-29 19:27
+
+sc第二季新PV可以确定鸽子大女主了，迷光和水估计不会详细讲团活和个人剧情，纯粹是给鸽子上压力的，会有惯例的倒数几集红C哭。 噢，还有透鸽营业。
+
+*****
+
+####  Alicest  
+##### 2943#       发表于 2024-3-29 19:31
+
+不知道为什么对円有种孤立感，不知道会不会有一点嫉妒流出来
+
+<img src="https://img.saraba1st.com/forum/202403/29/193108opel3ndnwgnu7qw9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (177.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 19:31 上传
+
+<img src="https://img.saraba1st.com/forum/202403/29/193129l7pni67iifqn64im.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 19:31 上传
+
+<img src="https://img.saraba1st.com/forum/202403/29/193140qxrzrgdwngkocyxo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (173.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-29 19:31 上传
+
+*****
+
+####  市川雛菜  
+##### 2944#       发表于 2024-3-29 19:33
+
+啊哈~円香前辈，透前辈身边最近的人，是hinana我哦~
+

@@ -2383,3 +2383,11 @@ Insider Gaming了解到，《不羁联盟》在过去几年中已经错过了许
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  希望之异热同心  
+##### 226#       发表于 2024-3-29 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉几个老COD开发者就算去了育碧旧金山也逃不过被考迪克一样的人折磨，这创意总监也是只敢对着成功案例复刻的
+

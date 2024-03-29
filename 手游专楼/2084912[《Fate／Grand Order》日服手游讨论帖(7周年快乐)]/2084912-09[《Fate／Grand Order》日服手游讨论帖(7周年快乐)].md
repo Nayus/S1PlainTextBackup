@@ -1006,3 +1006,27 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 你游材料稀有度一直不是假的。觉得铜材料比金材料难刷的本质是，它的活动商店能让你换20金材料的同时，最多只给你换30铜材料，很不符合它给的稀有度比例，这方面看那个白方块商店就懂了，正常来说能换60铜材料还差不多。当然这么多年不改我只能说是故意的
 
+
+*****
+
+####  不垃圾屌丝  
+##### 11922#       发表于 2024-3-29 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64406488&amp;ptid=2084912" target="_blank">eilot 发表于 2024-3-28 16:04</a>
+22章那個所謂難關也不算太關
+
+前3條血都是3星二姐弓直接秒了及即時儲滿NP，
+
+第4條血因散了BUFF所以轟了兩炮 ...</blockquote>
+抱紧公主大腿揍就是了，撑死凹一下伯爵宝具对象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+和前面仇尼托战一样太在意机制反而不好打
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 11923#       发表于 2024-3-29 11:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 桑心 萌新想抽2宝伯爵  all in  结果老男人4宝了。为什么 为什么不是伯爵4宝
+

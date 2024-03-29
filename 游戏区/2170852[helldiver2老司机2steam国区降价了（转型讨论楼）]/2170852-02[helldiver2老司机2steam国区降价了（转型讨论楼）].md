@@ -8252,3 +8252,14 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 我觉得新武器什么的还得等等看情况再下结论，比如盟友这玩意一开始都觉得没啥用，现在却是打虫子最好的3号 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有榴弹在，其他三号位武器想做打虫子T0还待等箭头送榴弹nerf补丁
 
+
+*****
+
+####  Mr.Hopp  
+##### 2277#       发表于 2024-3-29 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64413189&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-3-29 07:37</a>
+
+有榴弹在，其他三号位武器想做打虫子T0还待等箭头送榴弹nerf补丁</blockquote>
+榴弹也是有不少问题的，弹药少需要补给包配合，被近身没法打，打到甲上/有些地形容易弹飞打中自己。
+

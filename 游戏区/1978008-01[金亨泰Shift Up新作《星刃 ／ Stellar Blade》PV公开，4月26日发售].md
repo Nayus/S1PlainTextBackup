@@ -1534,3 +1534,15 @@ BGM这个调调还行
 
 还剩一个月不到就发售了，本来挺期待的现在还是看衰吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bani82  
+##### 545#       发表于 2024-3-30 06:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424943&amp;ptid=1978008" target="_blank">哲学向黑子 发表于 2024-3-30 05:18</a>
+完全搞不懂这游戏的核心玩法，看表面像是主打高速战斗的类魂游戏
+
+但没有offset，然后防御和闪避还不能取消 ...</blockquote>
+挑战里那个乱舞不说每次都能100%精防，但是90%问题不大啊
+

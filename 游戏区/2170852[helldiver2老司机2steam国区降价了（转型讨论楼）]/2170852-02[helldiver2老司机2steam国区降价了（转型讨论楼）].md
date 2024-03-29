@@ -8728,3 +8728,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 主 ...</blockquote>
 老实说贴把那图感觉像是玩家自制的，不太像箭头的UI。。。
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 2322#       发表于 2024-3-30 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">不是 类星体炸膛是什么bug啊 大平地瞄广播站呢 咚一下给我带走了
+

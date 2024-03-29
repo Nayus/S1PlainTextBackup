@@ -1345,3 +1345,20 @@ ps：技能一定要在boss准备攻击时出，能打断boss技能或硬抗伤�
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  zeroboss1  
+##### 528#       发表于 2024-3-30 00:45
+
+日版有日配中字且无和谐还比港版便宜
+.....
+
+
+*****
+
+####  sad6504  
+##### 529#       发表于 2024-3-30 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挑战关手感好多了，怎么老爱搞砍成残疾人再接肢的成长
+

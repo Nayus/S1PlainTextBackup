@@ -8263,3 +8263,14 @@ n9打了把，焦土+眩晕雷，战备是类星体加农炮+激光狗+飞鹰空
 有榴弹在，其他三号位武器想做打虫子T0还待等箭头送榴弹nerf补丁</blockquote>
 榴弹也是有不少问题的，弹药少需要补给包配合，被近身没法打，打到甲上/有些地形容易弹飞打中自己。
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 2278#       发表于 2024-3-29 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412839&amp;ptid=2170852" target="_blank">Launce 发表于 2024-3-29 02:20</a>
+
+等一代战备升级回归一切都会好起来的，泄露图标就有各种改装和子弹类型什么的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可他们都把改装好的当新枪塞债券里了 还有没有这个系统都不好说
+

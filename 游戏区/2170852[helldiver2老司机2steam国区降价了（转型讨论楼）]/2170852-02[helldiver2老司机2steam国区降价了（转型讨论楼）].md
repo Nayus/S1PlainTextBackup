@@ -8628,3 +8628,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 —— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 十字键下
 
+
+*****
+
+####  smdzh2  
+##### 2313#       发表于 2024-3-29 20:21
+
+瞄准镜能出个高倍镜就好了，机枪打稍远一点的目标得靠目力补正<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

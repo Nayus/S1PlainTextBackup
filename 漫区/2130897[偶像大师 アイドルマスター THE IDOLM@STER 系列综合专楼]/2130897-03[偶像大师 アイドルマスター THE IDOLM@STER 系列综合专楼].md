@@ -184,3 +184,13 @@ s1还有个imas楼<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  小笠原早紀  
+##### 2981#       发表于 2024-3-30 16:46
+
+楼友什么时候产生了万南不是傻逼的错觉
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

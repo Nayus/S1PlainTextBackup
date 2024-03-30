@@ -1612,3 +1612,21 @@ BGM这个调调还行
 
 昨晚浪人无缝切换师姐，这个瞬防比浪人被克流派石火还难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky7913  
+##### 553#       发表于 2024-3-30 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64425431&amp;ptid=1978008" target="_blank">conanoysq 发表于 2024-3-30 08:46</a>
+
+昨晚浪人无缝切换师姐，这个瞬防比浪人被克流派石火还难，完美闪避成功率极低。技能树的出招表看得 ...</blockquote>
+瞬防点了技能应该简单一点，可能还有配件可以增加有效输入时间
+
+*****
+
+####  ky7913  
+##### 554#       发表于 2024-3-30 09:09
+
+昨晚只是玩了开头，还没打BOSS。但我很喜欢这个氛围和美术，音乐也不错，很多动作小细节挺好看的，例如下滑楼梯吃药碰到墙壁单手扶墙之类的，各种斩杀演出也好看，买了
+

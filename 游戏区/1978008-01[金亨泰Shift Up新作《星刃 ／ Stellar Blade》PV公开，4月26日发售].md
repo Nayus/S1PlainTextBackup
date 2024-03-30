@@ -2217,3 +2217,37 @@ LOL百分百国产是吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">裸衣打过了 感觉还挺爽的 那红光4巴掌接一拍那个 完美5下格挡下来巨爽 现在就是感觉怪没啥辨识度 感觉都是差不多的异型怪
 
+
+*****
+
+####  zqqwe  
+##### 616#       发表于 2024-3-30 21:51
+
+裸装过了boss挑战，发现这游戏常态长派生这么慢的真相居然是有提升攻速的插件以及J回后额外攻速buff<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泉美  
+##### 617#       发表于 2024-3-30 21:55
+
+<img src="https://img.saraba1st.com/forum/202403/30/215351d0nlrcbpd0aad0zz.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (85.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-30 21:53 上传
+
+日版实体的话目前还有个更便宜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袄_偶滴小乔  
+##### 618#       发表于 2024-3-30 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64430154&amp;ptid=1978008" target="_blank">crosz1985 发表于 2024-3-30 19:03</a>
+日版实体淘宝有吗
+
+论坛助手,iPhone</blockquote>
+热点二次元速递
+

@@ -11023,3 +11023,14 @@ zp最新的视频终于对这系统做出正确评价了<img src="https://static
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  雾生司  
+##### 2607#       发表于 2024-3-30 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429039&amp;ptid=2092342" target="_blank">垃圾网站上 发表于 2024-3-30 16:54</a>
+
+3大问题，一个是流派克制没必要做，还有闪刃回精少硬直大非常鸡肋，最后是小兵人均霸体。至于boss霸体追击 ...</blockquote>
+在单锁下堆单boss+杂兵/多boss你觉得改难度是就能让你玩的爽快的解决方法吗
+

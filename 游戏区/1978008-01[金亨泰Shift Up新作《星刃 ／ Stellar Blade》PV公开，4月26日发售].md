@@ -2267,3 +2267,11 @@ HMV也可以直邮，走EMS，到手8898，就是看页面可能初回特典码�
 
 2024-3-30 22:20 上传
 
+
+*****
+
+####  夏延  
+##### 620#       发表于 2024-3-30 23:00
+
+不追求日语的话是不是tb买个韩版的就行了，看着日版+运费和tb也没差多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

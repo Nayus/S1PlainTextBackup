@@ -273,3 +273,13 @@ low王哪怕是之前也比不过高配方阵吧，前者就插几个lm可能还
 
 麻了这叼光妈，16个枪7个刀5个铳<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，合着风妈欠我的坚守都到你这了是吧
 
+
+*****
+
+####  是这样  
+##### 17841#       发表于 2024-3-31 06:14
+
+看了半天也不知道周年超超啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">难道真要去超lm吗
+
+— from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

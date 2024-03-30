@@ -2416,3 +2416,11 @@ BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御�
 
 这游戏防御和闪避有延迟，处决动作后要原地发呆两秒，长按三角的突进有cd，不能连着放，就连扫描也有后摇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 636#       发表于 2024-3-31 06:06
+
+到底有没有和谐
+

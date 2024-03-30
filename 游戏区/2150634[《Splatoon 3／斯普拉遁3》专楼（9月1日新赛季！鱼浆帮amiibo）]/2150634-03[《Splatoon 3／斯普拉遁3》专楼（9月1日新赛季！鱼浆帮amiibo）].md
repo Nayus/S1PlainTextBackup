@@ -7934,3 +7934,37 @@ RS7V-VC0S-CXH0-SLVS
 
 怎么还有叫“心之怪盗”的队伍的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 3765#       发表于 2024-3-30 12:06
+
+全一重桶好强
+
+*****
+
+####  罗克萨斯  
+##### 3766#       发表于 2024-3-30 12:08
+
+ 本帖最后由 罗克萨斯 于 2024-3-30 12:10 编辑 
+
+最搞的难道不是 めろん ，我幻听成 メロン 了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+才发现官网能直接切所有选手的视角
+
+*****
+
+####  oi99o  
+##### 3767#       发表于 2024-3-30 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426959&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-30 12:08</a>
+最搞的难道不是 めろん ，我幻听成 メロン 了
+
+才发现官网能直接切所有选手的视角
+
+ ...</blockquote>
+你没听错，就是片假转平假
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

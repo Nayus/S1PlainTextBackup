@@ -10821,3 +10821,24 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 在哪更换马具啊？道具栏里不给我换来自: iPhone客户端
 
+
+*****
+
+####  ouyang菌  
+##### 2584#       发表于 2024-3-30 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426847&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-03-30 11:56:16</a>
+在哪更换马具啊？道具栏里不给我换</blockquote>马贩那里换
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ouyang菌  
+##### 2585#       发表于 2024-3-30 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426405&amp;ptid=2092342" target="_blank">Kojimaru 发表于 2024-03-30 10:58:15</a>
+结尾有留白呀，下一部应该是海外仁王了</blockquote>我看到结尾前往新天地就绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要按忍组出3个dlc的传统，我建议dlc1打朝鲜，dlc2讲甲午，dlc3日俄战争
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

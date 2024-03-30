@@ -2019,3 +2019,24 @@ BGM这个调调还行
 博德三也是三分之一国产
 只狼法环是十分之一国产了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  105gun  
+##### 596#       发表于 2024-3-30 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427883&amp;ptid=1978008" target="_blank">hkguty 发表于 2024-3-30 14:12</a>
+
+打了几次boss挑战，感觉裸奔也不是不能玩，制作组的意思就是想色你就别想拿护盾了有一招boss粉红色 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你去看下技能树，蓝光前闪，粉光后闪。我通了两次之后换裸装又通了一次，感觉区别不是很大。
+
+*****
+
+####  hkguty  
+##### 597#       发表于 2024-3-30 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427917&amp;ptid=1978008" target="_blank">105gun 发表于 2024-3-30 14:17</a>
+
+你去看下技能树，蓝光前闪，粉光后闪。我通了两次之后换裸装又通了一次，感觉区别不是很大。 ...</blockquote>
+原来是这样，可能我下意识拉后闪避触发了
+

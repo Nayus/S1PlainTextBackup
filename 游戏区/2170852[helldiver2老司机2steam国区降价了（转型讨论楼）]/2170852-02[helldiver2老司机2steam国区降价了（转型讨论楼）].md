@@ -8864,3 +8864,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 —— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用飞鹰空袭
 
+
+*****
+
+####  wincle  
+##### 2335#       发表于 2024-3-30 21:30
+
+撒比游戏越来越容易闪退、掉线、出bug
+

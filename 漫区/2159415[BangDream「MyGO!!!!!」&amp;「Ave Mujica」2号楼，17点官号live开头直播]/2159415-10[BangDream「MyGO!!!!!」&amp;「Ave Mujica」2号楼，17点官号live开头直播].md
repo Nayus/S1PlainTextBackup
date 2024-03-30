@@ -14524,3 +14524,16 @@ AG活动场贩都有鸡狗蛋白棒真是绷不住了，不过想想这个蛋白
 
 阿力刹会觉得难过，作为观众的共情接口就也很理所当然
 
+
+*****
+
+####  好想看Mujica啊  
+##### 14572#       发表于 2024-3-30 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424891&amp;ptid=2159415" target="_blank">H2Ofrozen 发表于 2024-3-30 04:11</a>
+
+不上学(x) 不上课(√)
+
+其实说这次剧情定番烂俗降智啥的...ppp剧情好像一直都这样吧。前半部分阿力刹脸红 ...</blockquote>
+在事业粉看来，年级第一+学生会（副）会长跑去上艺大简直自甘堕落，但人追求的就是身边随时随地有几个小姐妹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

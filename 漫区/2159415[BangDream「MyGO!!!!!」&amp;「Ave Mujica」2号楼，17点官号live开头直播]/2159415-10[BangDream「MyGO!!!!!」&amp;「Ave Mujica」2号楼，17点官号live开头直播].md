@@ -14714,3 +14714,23 @@ ars这个剧情我也觉得降智就是了，这俩大学下课近到能直接�
 
 也可能ars看了周次，发现同居不同校，即便do过也会陷入无尽的拉扯
 
+
+*****
+
+####  NODY  
+##### 14590#       发表于 2024-3-30 14:27
+
+lisa也算是有能力上庆鹏但是陪ykn去了四叶，不过这边一是萝本来就打算玩一辈子乐队上什么大学都不影响工作，二是lisa去的那个国际学科和音乐学科一样是庆鹏没有的资源，算是比较合理
+
+ars这样单纯为了配合小姐妹日程一起上学就换志愿就真很搞了，可能李美丽这个问题爆了就是打算让ars想清楚不在一个学校也能一辈子乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  基神的强袭自由  
+##### 14591#       发表于 2024-3-30 14:30
+
+111真能想清楚吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

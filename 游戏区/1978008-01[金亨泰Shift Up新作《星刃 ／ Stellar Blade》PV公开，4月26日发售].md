@@ -2040,3 +2040,37 @@ BGM这个调调还行
 你去看下技能树，蓝光前闪，粉光后闪。我通了两次之后换裸装又通了一次，感觉区别不是很大。 ...</blockquote>
 原来是这样，可能我下意识拉后闪避触发了
 
+
+*****
+
+####  Bani82  
+##### 598#       发表于 2024-3-30 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427331&amp;ptid=1978008" target="_blank">哲学向黑子 发表于 2024-3-30 12:57</a>
+那个乱舞我只能精防第一下，第二下开始防御还没抬手就被BOSS爪倒了
+
+难道有什么机制能快速连续防御吗？ ...</blockquote>
+抖刀术，宽松的不得了
+
+
+*****
+
+####  缺德猫  
+##### 599#       发表于 2024-3-30 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427892&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-3-30 14:14</a>
+
+那堡垒之夜是国产
+
+博德三也是三分之一国产
+
+只狼法环是十分之一国产了 ...</blockquote>
+LOL百分百国产是吧
+
+*****
+
+####  hanan1  
+##### 600#       发表于 2024-3-30 14:37
+
+裸衣过了，完美闪避反击和二级连锁突进成功率太低了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+

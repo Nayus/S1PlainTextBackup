@@ -152,3 +152,13 @@
 菜就多练，卷均一万这么正统的销量都不出第二季只能用万代傻逼 ...</blockquote>
 本来就是鲨比 要不灰怎么能停了
 
+
+*****
+
+####  没取名啊  
+##### 2978#       发表于 2024-3-30 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427596&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-3-30 13:35</a>
+不好写就不出？那不还是万代傻逼？</blockquote>
+傻逼那肯定还是傻逼的，一开始就应该定24集以上，要不是白组绵田加藤打满鸡血，只给12集只能做成烂片
+

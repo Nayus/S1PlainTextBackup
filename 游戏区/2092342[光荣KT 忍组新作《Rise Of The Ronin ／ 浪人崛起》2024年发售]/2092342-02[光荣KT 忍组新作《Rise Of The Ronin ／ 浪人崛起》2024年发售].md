@@ -11082,3 +11082,32 @@ zp最新的视频终于对这系统做出正确评价了<img src="https://static
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nagitoY  
+##### 2613#       发表于 2024-3-30 17:47
+
+boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈风紫电，不如多打一个武技，削精还高点。
+
+闪刃必须攻击命中才涨条，精力根本循环不起来。压多了自己精力见底，弹错一下就空精<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+【【浪人崛起】二周目 暗夜难度 修行场 斋藤一-哔哩哔哩】 https://b23.tv/InfFowC
+这视频里up主完美压制，居然也会空精罚站，给我看笑了来自: iPhone客户端
+
+*****
+
+####  桥洞底下盖小被  
+##### 2614#       发表于 2024-3-30 17:50
+
+这游戏目前没说有dlc计划，那应该不会和卧龙那样出一大堆补丁来平衡和修改游戏内容，修点bug就摆烂了，可能目前这样已经是最终的样子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nagitoY  
+##### 2615#       发表于 2024-3-30 17:54
+
+<blockquote>[ 桥洞底下盖小被 replied on 2024-3-30 17:50](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429509&amp;ptid=2092342) 这游戏目前没说有dlc计划，那应该不会和卧龙那样出一大堆补丁来平衡和修改游戏内容，修点bug就摆烂了，可能目前这样已经是最终的样子了 </blockquote>
+游戏里有双斧、单手剑盾的模组，不出dlc有点可惜来自: iPhone客户端
+

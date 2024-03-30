@@ -8777,3 +8777,13 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  runningch  
+##### 2327#       发表于 2024-3-30 17:49
+
+没人打保卫战，感觉最终会拿不下提比特。如果剧本就是这么写的，但是这回剧本算是稍微高明一点了。
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

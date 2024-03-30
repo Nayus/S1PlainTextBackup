@@ -2408,3 +2408,11 @@ BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御�
 BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御我还能忍，这闪避确实是太便秘了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他都无人机和各种致敬尼尔了，为啥不给无人机自动射击啊，太蠢了
 
+
+*****
+
+####  DorianMode  
+##### 635#       发表于 2024-3-31 03:19
+
+这游戏防御和闪避有延迟，处决动作后要原地发呆两秒，长按三角的突进有cd，不能连着放，就连扫描也有后摇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

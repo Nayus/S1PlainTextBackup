@@ -2090,3 +2090,23 @@ LOL百分百国产是吧
 
 韩配挺好的
 
+
+*****
+
+####  纱布光环  
+##### 603#       发表于 2024-3-30 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这游戏动捕原来是男人，，，找了超模结果只是扫描身体而已吗，
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  天剑流星  
+##### 604#       发表于 2024-3-30 17:34
+
+日版除了和谐还会有什么别的问题吗，韩语真听不惯
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

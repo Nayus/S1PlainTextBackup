@@ -1771,3 +1771,13 @@ BGM这个调调还行
 
 日亚看了下才7300日元 太便宜了
 
+
+*****
+
+####  医生狼多  
+##### 569#       发表于 2024-3-30 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426189&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-3-30 10:35</a>
+日亚看了下才7300日元 太便宜了</blockquote>
+我怎么看要8600日元，还有6000日元运费<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打扰了
+

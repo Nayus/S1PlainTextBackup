@@ -162,3 +162,15 @@
 不好写就不出？那不还是万代傻逼？</blockquote>
 傻逼那肯定还是傻逼的，一开始就应该定24集以上，要不是白组绵田加藤打满鸡血，只给12集只能做成烂片
 
+
+*****
+
+####  lovekoishi  
+##### 2979#       发表于 2024-3-30 15:40
+
+s1还有个imas楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+百的第一季交完作业了，第二季可以放飞自我了啊，那么多剧中剧
+要是这又是声优盾又是卷均一万的还不给第二季我黑万南一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

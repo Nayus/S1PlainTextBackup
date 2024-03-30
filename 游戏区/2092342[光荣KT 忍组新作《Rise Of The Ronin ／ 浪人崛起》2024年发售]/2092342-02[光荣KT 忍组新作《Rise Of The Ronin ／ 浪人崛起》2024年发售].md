@@ -11349,3 +11349,13 @@ boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈�
 那就没有什么正义之说了，久坂死的不值啊。</blockquote>
 久坂玄瑞就算在极端派里也算极端的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 2641#       发表于 2024-3-31 01:24
+
+<blockquote>nagitoY 发表于 2024-3-30 22:54
+那就没有什么正义之说了，久坂死的不值啊。</blockquote>
+天天没事烧人家领事馆，对这人没啥好感……
+

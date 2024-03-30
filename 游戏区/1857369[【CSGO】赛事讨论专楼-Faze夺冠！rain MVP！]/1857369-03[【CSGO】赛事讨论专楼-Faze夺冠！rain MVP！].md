@@ -1273,3 +1273,13 @@ hunter和IM两个人打完major针得滚吧
 
 玩/已经开始恭喜faze了是吧
 
+
+*****
+
+####  朔方原的星  
+##### 4174#         楼主| 发表于 2024-3-31 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64434541&amp;ptid=1857369" target="_blank">ispep 发表于 2024-3-31 07:21</a>
+想看李神夺冠</blockquote>
+虽然大概率是faze了，不过确实还是李夺冠证明自己有节目效果
+

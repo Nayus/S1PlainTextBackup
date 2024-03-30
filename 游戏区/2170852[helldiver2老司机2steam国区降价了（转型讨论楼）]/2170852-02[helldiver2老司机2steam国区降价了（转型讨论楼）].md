@@ -8755,3 +8755,15 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 怎么普通难度野排总会被踢，现在15级，还打算20级拿了蛋盾再上难度
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2325#       发表于 2024-3-30 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426254&amp;ptid=2170852" target="_blank">bakuza 发表于 2024-3-30 10:43</a>
+怎么普通难度野排总会被踢，现在15级，还打算20级拿了蛋盾再上难度</blockquote>
+有可能是野队在刷蓝币？
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

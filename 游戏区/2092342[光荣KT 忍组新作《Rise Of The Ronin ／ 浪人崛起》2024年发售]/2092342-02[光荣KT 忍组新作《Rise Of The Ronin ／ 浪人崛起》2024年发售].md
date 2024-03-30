@@ -10802,3 +10802,14 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 想写长文辱骂忍组
 
+
+*****
+
+####  Kojimaru  
+##### 2582#       发表于 2024-3-30 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424273&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-3-30 00:22</a>
+
+不知道下一作什么题材，虽然很多人不喜欢幕末，但我觉得这东方国家收西方冲击引发各种动荡变革的时代比仁王 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">结尾有留白呀，下一部应该是海外仁王了
+

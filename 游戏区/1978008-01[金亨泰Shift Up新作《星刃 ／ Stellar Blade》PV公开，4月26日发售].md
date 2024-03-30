@@ -1781,3 +1781,14 @@ BGM这个调调还行
 日亚看了下才7300日元 太便宜了</blockquote>
 我怎么看要8600日元，还有6000日元运费<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打扰了
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 570#       发表于 2024-3-30 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426156&amp;ptid=1978008" target="_blank">CAFc 发表于 2024-3-30 10:32</a>
+
+回避距离短是因为技能树塞了个二连闪避，点了才是正常闪避距离，不点技能树和搭配配件效果就是残 ...</blockquote>
+有改善但是不多，boss挑战那招黄光跳起下砸靠两连回避是躲不过的，但我试着用二段跳躲倒是躲过了。我觉得不单是回避距离的问题也有回避移速的问题。
+

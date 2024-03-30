@@ -2251,3 +2251,19 @@ LOL百分百国产是吧
 论坛助手,iPhone</blockquote>
 热点二次元速递
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 619#       发表于 2024-3-30 22:21
+
+HMV也可以直邮，走EMS，到手8898，就是看页面可能初回特典码没了（不过我印象里这两年HMV发货可能要拖一周）
+
+<img src="https://img.saraba1st.com/forum/202403/30/222031g5cuczlbjjblf5yg.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240330221926.jpg</strong> (61.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-30 22:20 上传
+

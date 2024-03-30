@@ -10970,3 +10970,11 @@ zp最新的视频终于对这系统做出正确评价了<img src="https://static
 
 我倒是很喜欢浪人，是我今年目前为止最满意的游戏了。比圣兽之王还喜欢一丢丢。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 2601#       发表于 2024-3-30 15:29
+
+义经流好爽啊，可惜升级这流派要放过赤鬼青鬼，一周目不想做这种影响沉浸感的事情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

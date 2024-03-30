@@ -8767,3 +8767,13 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  风萧飒  
+##### 2326#       发表于 2024-3-30 17:07
+
+试了下，自己目前机器人的上限大概是n8了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

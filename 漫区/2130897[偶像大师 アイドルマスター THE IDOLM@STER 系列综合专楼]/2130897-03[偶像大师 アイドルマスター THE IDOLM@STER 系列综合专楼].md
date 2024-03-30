@@ -194,3 +194,13 @@ s1还有个imas楼<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2982#       发表于 2024-3-30 17:06
+
+我还以为万代傻逼是少数各家p能达成共识的事呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

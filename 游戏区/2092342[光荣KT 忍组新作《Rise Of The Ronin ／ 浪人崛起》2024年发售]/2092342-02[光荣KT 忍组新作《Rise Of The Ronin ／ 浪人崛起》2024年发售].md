@@ -11359,3 +11359,28 @@ boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈�
 那就没有什么正义之说了，久坂死的不值啊。</blockquote>
 天天没事烧人家领事馆，对这人没啥好感……
 
+
+*****
+
+####  007.5  
+##### 2642#       发表于 2024-3-31 01:35
+
+不能开后宫吗？
+有两个女npc好感满了不敢比翼
+
+比翼后能分手么，分手有代价么，分了后还能复合么（什么渣发言<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">）
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  operatbig  
+##### 2643#       发表于 2024-3-31 01:37
+
+<blockquote>007.5 发表于 2024-3-31 01:35
+不能开后宫吗？
+
+有两个女npc好感满了不敢比翼
+</blockquote>
+都可以比翼，但会看不了最后的正戏动画，而且每次对话都会催你休了对方。
+

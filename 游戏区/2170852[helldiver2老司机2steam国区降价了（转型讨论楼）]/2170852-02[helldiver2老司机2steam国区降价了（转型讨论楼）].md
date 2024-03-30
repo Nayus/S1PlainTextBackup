@@ -8949,3 +8949,15 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
  ...</blockquote>
 肝得差不多的老ass还是会去打机器人的，反倒是我在N7机器人排野队经常遇到20级不到的萌新，实在是让我蚌埠住。
 
+
+*****
+
+####  Aeons  
+##### 2344#       发表于 2024-3-31 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64433466&amp;ptid=2170852" target="_blank">rgauss 发表于 2024-3-31 00:28</a>
+死了复活不了bug到底什么时候修啊 今下午有一局4个人 两个人复活不了 剩下我跟另一个人被虫子追的到处跑
+
+ ...</blockquote>
+复活不了和主武器丢失是网路问题吧，这种不知道怎么搞出来的bug开服到现在都没修
+

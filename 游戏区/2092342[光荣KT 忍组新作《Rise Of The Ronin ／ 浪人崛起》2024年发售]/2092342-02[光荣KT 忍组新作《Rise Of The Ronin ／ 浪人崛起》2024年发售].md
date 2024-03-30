@@ -11317,3 +11317,11 @@ boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈�
 <blockquote>[ izayoi39 replied on 2024-3-30 21:32](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64431770&amp;ptid=2092342) 赤鬼死之后，其实幕府已经势弱了，胜海舟都直说幕府已经名存实亡了，后面实际上是长洲和萨摩两藩在争权，长洲因为松阴的缘故在赤鬼死后实力更强，所以萨摩会在后面偷袭长洲，而长洲萨摩和解本质上是双方实力对等了，龙马这个名义上的外人才能调解双方。 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那就没有什么正义之说了，久坂死的不值啊。来自: iPhone客户端
 
+
+*****
+
+####  寂长无星夜  
+##### 2638#       发表于 2024-3-30 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">戴着斗笠到处砍人的时候感觉这就是完美的武侠代餐
+

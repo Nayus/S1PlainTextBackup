@@ -14584,3 +14584,24 @@ AG活动场贩都有鸡狗蛋白棒真是绷不住了，不过想想这个蛋白
 到了这家商城的地下，确实有活动，而且所有团的立牌都有。只是其他团的立牌都在室内地下，只有蝶团被发配到二楼室外了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">感觉这里全是蚌批啊，太哈人了，我要润了。
 
+
+*****
+
+####  krowbullet  
+##### 14577#       发表于 2024-3-30 11:59
+
+下午来tpy看看
+
+
+*****
+
+####  基神的强袭自由  
+##### 14578#       发表于 2024-3-30 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426753&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-3-30 11:43</a>
+到了这家商城的地下，原来是有fanparty。
+这都能被我刚好路过的。所有团的立牌都有。只是其他团的立牌 ...</blockquote>
+暗示蝶只能看大门（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1817,3 +1817,14 @@ BGM这个调调还行
 
 感觉像是动捕用多了，很多动作的确是现实能做出来的，但是游戏玩起来就很不舒服
 
+
+*****
+
+####  ky7913  
+##### 574#       发表于 2024-3-30 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426568&amp;ptid=1978008" target="_blank">yt5wt2c 发表于 2024-3-30 11:20</a>
+
+感觉像是动捕用多了，很多动作的确是现实能做出来的，但是游戏玩起来就很不舒服 ...</blockquote>
+这个制作组第一次做单机游戏也是第一次做动作游戏，手感很难保证很好了，比起手感他们更注重好不好看
+

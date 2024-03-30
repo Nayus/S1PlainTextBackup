@@ -6307,3 +6307,24 @@ b站貌似代理了国服，不知道是单机买断还是氪金？
 
 <img src="https://img.saraba1st.com/forum/202403/30/180854x22ggn5e526jlf5w.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryu  
+##### 553#       发表于 2024-3-30 20:23
+
+ 本帖最后由 ryu 于 2024-3-30 20:25 编辑 
+
+玩了几天，最后一个白注，来了一把爽的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+9D848ABDF05335B0BD77A69453411694.png
+(165.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-30 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202403/30/202534t8rsr3urumsmf3aj.png" referrerpolicy="no-referrer">
+

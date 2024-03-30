@@ -41,3 +41,14 @@ y700+拉伸手柄
 额，我在4500的steamdeck和4999预售的gpd掌机之间选了gpd，然后才听说有散热问题。请问散热有问题有多严重 ...</blockquote>
 CPU温度还好，手心温度高，低温烫伤预定。
 
+
+*****
+
+####  汝者  
+##### 1144#       发表于 2024-3-31 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64433079&amp;ptid=2086469" target="_blank">举头望明月 发表于 2024-3-30 23:44</a>
+
+如果不玩安卓和模拟器的话岂不是全靠串流了，好像不太合适</blockquote>
+400g别想winpc 物理条件直接做不到
+

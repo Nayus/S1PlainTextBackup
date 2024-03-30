@@ -8920,3 +8920,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机器人接近12w了，跟虫子五五开还稍微多一点
 
+
+*****
+
+####  リュウセイ  
+##### 2341#       发表于 2024-3-31 00:44
+
+为什么我每次重新登陆装备都会被重置，还会出现新手tips，ps5版
+

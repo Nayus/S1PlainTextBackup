@@ -1752,3 +1752,22 @@ BGM这个调调还行
 淘宝的盘好像都是港版的，球指路日版光盘</blockquote>
 我也想求指路呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只看到一家开定金的
 
+
+*****
+
+####  CAFc  
+##### 567#       发表于 2024-3-30 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426047&amp;ptid=1978008" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-3-30 10:21</a>
+回避距离太短了，用常规ACT那种试图移出攻击范围的思路不就等着挨打。要不每次都靠无敌帧躲过去，反正我 ...</blockquote>
+回避距离短是因为技能树塞了个二连闪避，点了才是正常闪避距离<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不点技能树和搭配配件效果就是残疾机体
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ShiKi847  
+##### 568#       发表于 2024-3-30 10:35
+
+日亚看了下才7300日元 太便宜了
+

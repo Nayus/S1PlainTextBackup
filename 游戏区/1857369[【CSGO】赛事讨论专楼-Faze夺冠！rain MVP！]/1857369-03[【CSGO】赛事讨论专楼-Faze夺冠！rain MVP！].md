@@ -1219,3 +1219,57 @@ hunter和IM两个人打完major针得滚吧
 
 6-3，3分够吗？
 
+
+*****
+
+####  ork  
+##### 4168#       发表于 2024-3-31 07:15
+
+13-11，天生赢家！
+
+*****
+
+####  cwlo  
+##### 4169#       发表于 2024-3-31 07:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">IM这能连续两次进决赛啊
+
+*****
+
+####  雨中曲  
+##### 4170#       发表于 2024-3-31 07:16
+
+没Niko了？全军出击！🍤🦐🦞🦀🍤🦐🦞🦀🦐🦞🦀
+
+*****
+
+####  ork  
+##### 4171#       发表于 2024-3-31 07:16
+
+<img src="https://img.saraba1st.com/forum/202403/31/071633bj5gwjm3va7aktmt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 07:16 上传
+
+小孩真尽力了
+
+儿图3狂C，IM也发挥不想被踢，讲真有几局是靠IM拿下的
+
+
+*****
+
+####  ispep  
+##### 4172#       发表于 2024-3-31 07:21
+
+想看李神夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sodah  
+##### 4173#       发表于 2024-3-31 07:24
+
+玩/已经开始恭喜faze了是吧
+

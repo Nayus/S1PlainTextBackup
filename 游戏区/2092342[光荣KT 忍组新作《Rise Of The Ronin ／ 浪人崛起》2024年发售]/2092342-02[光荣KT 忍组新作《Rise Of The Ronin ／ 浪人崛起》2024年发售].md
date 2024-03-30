@@ -11325,3 +11325,27 @@ boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">戴着斗笠到处砍人的时候感觉这就是完美的武侠代餐
 
+
+*****
+
+####  毛利提督  
+##### 2639#       发表于 2024-3-31 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64431125&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-3-30 20:41</a>
+
+中泽琴没法开好感？</blockquote>
+中泽琴是盖章的终身未嫁老姑娘
+
+这次又因为可以随时捏人干脆没做男女恋爱差分，所以连百合的机会都没了
+
+
+*****
+
+####  毛利提督  
+##### 2640#       发表于 2024-3-31 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64432605&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-30 22:54</a>
+
+那就没有什么正义之说了，久坂死的不值啊。</blockquote>
+久坂玄瑞就算在极端派里也算极端的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -8787,3 +8787,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  DarkSider  
+##### 2328#       发表于 2024-3-30 18:16
+
+现在可以入手了吗？服务器稳定了？
+

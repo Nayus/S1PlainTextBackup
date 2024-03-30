@@ -14651,3 +14651,38 @@ TCG已经不满足于做响社官号了
 
 钢琴专业只能在乐队当键盘其实也挺不值的
 
+
+*****
+
+####  好想看Mujica啊  
+##### 14584#       发表于 2024-3-30 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427565&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-30 13:29</a>
+
+自甘堕落是不是有点夸张，专业玩音乐的去读音乐专业挺正常的吧，燐子前优等生兼学生会长还不是读钢琴专业 ...</blockquote>
+昨天不是有人骂编剧瞎写吗，对于ars的选择，虽然没说这个词，但我估计是这个意思。
+
+和燐子又有所不同，燐子是认真考虑了得失，还经过薰哥哥点醒，才决定去读钢琴的。
+
+*****
+
+####  NODY  
+##### 14585#       发表于 2024-3-30 13:48
+
+在你邦高音世界观说这个就没意思了，弦卷家大小姐都在玩乐队呢，真对标三次元乐队地位祥子就不会选乐队来赚米了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 14586#       发表于 2024-3-30 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427690&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-3-30 13:47</a>
+
+昨天不是有人骂编剧瞎写吗，对于ars的选择，虽然没说这个词，但我估计是这个意思。
+
+和燐子又有所不同，燐 ...</blockquote>
+我只是反驳学霸大学选玩音乐是自甘堕落这点
+
+ars这个剧情我也觉得降智就是了，这俩大学下课近到能直接去隔壁食堂吃饭，ppp又不可能五个人读一个专业，到时候课表还不是会有差别
+

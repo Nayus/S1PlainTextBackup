@@ -241,3 +241,13 @@ OW狗都不看，汪！！
 
 ow好好好，不过真看她玩ow可能血压会爆掉，毕竟是会被开黑车队嫌菜的程度<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 16393#       发表于 2024-3-30 14:03
+
+主播不会播ow的，最多播一下lol
+
+这人直播和游戏是分开的
+

@@ -14686,3 +14686,31 @@ TCG已经不满足于做响社官号了
 
 ars这个剧情我也觉得降智就是了，这俩大学下课近到能直接去隔壁食堂吃饭，ppp又不可能五个人读一个专业，到时候课表还不是会有差别
 
+
+*****
+
+####  好想看Mujica啊  
+##### 14587#       发表于 2024-3-30 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427729&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-30 13:52</a>
+
+我只是反驳学霸大学选玩音乐是自甘堕落这点
+
+ars这个剧情我也觉得降智就是了，这俩大学下课近到能直接去隔 ...</blockquote>
+搞不好ars到时候真就跟着姐妹随便报一个专业<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 14588#       发表于 2024-3-30 14:02
+
+这个剧情不就是简中互联网疯狂排雷的女/男主角为了另一半放弃更好的大学吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 14589#         楼主| 发表于 2024-3-30 14:03
+
+也可能ars看了周次，发现同居不同校，即便do过也会陷入无尽的拉扯
+

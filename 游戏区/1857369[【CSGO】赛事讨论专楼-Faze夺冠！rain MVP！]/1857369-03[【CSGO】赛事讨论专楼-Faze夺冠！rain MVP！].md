@@ -1163,3 +1163,11 @@ Let's go  Faze！  Let's go  Faze！  Let's go  Faze！  Let's go �
 
 faze up！
 
+
+*****
+
+####  ork  
+##### 4162#       发表于 2024-3-31 04:01
+
+开赛倒计时时候技术暂停，手枪局后技术暂停，太有技术了PGL
+

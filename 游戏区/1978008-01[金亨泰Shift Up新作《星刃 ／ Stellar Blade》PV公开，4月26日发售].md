@@ -1848,3 +1848,11 @@ BGM这个调调还行
 
 首领战，操作系统几乎全开的eve，打起来还是很舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">而且角色好看，想买了
 
+
+*****
+
+####  horacio  
+##### 577#       发表于 2024-3-30 12:35
+
+打到boss挑战我觉得这个游戏真的还行，搞不好能爆了，不过实在受不了韩语，我也要买日版的
+

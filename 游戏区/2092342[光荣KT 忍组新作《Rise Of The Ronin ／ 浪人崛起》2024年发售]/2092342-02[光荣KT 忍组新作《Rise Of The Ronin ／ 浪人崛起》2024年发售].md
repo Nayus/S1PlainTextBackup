@@ -10986,3 +10986,11 @@ zp最新的视频终于对这系统做出正确评价了<img src="https://static
 
 这套系统主要问题还是精力上限问题和敌人霸体问题，其他我觉得都还好
 
+
+*****
+
+####  duraa  
+##### 2603#       发表于 2024-3-30 16:33
+
+回到江户后的图标bug特别多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

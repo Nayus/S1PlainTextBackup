@@ -14752,3 +14752,11 @@ ars这样单纯为了配合小姐妹日程一起上学就换志愿就真很搞�
 
 我猜啊，ars这个精神状态，她随时随地都要有一个很熟悉的人陪着，不然就寂寞死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14594#       发表于 2024-3-30 16:25
+
+你邦核心位（大部分主唱和祥子楚平方这俩）的老婆多少是有点重女的，pareo初中都没毕业就已经在考虑是不是要陪楚平方专职玩一辈子音乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

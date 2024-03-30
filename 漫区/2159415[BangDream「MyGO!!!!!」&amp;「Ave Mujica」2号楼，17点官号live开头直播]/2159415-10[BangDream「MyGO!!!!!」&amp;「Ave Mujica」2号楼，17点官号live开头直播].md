@@ -15019,3 +15019,59 @@ kohinata吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真名爆破了
 
+
+*****
+
+####  cqc1021  
+##### 14620#       发表于 2024-3-31 00:48
+
+久违的真名解放环节<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御幸一也  
+##### 14621#       发表于 2024-3-31 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/31/004843bnsf4948ffe04z4t.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_七海(@nunnun_0410)_20240330-072357_1773974429137309714_photo.jpg</strong> (431.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 00:48 上传
+
+[https://twitter.com/nunnun_0410/status/1773974429137309714](https://twitter.com/nunnun_0410/status/1773974429137309714)
+
+*****
+
+####  御幸一也  
+##### 14622#       发表于 2024-3-31 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424820&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-3-30 03:05</a>
+
+睦祥的神 但唯一和李子赛博合照的</blockquote>
+確實，羨慕了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  特拉·特尔特  
+##### 14623#       发表于 2024-3-31 00:53
+
+要现场发能量棒吗
+
+*****
+
+####  基神的强袭自由  
+##### 14624#       发表于 2024-3-31 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64433622&amp;ptid=2159415" target="_blank">cqc1021 发表于 2024-3-31 00:48</a>
+
+久违的真名解放环节
+
+—— 来自 samsung SM-N9860, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不知道紫吧怎么盒出来的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

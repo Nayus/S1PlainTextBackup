@@ -2167,3 +2167,15 @@ LOL百分百国产是吧
 那不是肯定的吗 难道超模还能做得了这些动作不成？扫描身体也只是噱头而已，现实哪有这种身材的女生，都 ...</blockquote>
 其实比起这个我更惊讶那个超模身高只有150<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 611#       发表于 2024-3-30 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429549&amp;ptid=1978008" target="_blank">哆哆鸡 发表于 2024-3-30 17:54</a>
+日版真是便宜啊，现在日区才是低价区了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是日服便宜，而是港服贵了，日服定价9000日元几乎就是60美刀，而港服要72美刀
+
+实体的话本身日亚几乎所有不含日亚店特的游戏都是预定打82折的
+

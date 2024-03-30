@@ -1593,3 +1593,14 @@ BGM这个调调还行
 
 —— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  lazycat233  
+##### 551#       发表于 2024-3-30 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64425092&amp;ptid=1978008" target="_blank">Mr.Hopp 发表于 2024-3-30 07:28</a>
+
+感觉又是那种把玩家性能砍了要点技能才能爽玩的类型，后面装备好像还能加闪避时间什么的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">匹诺曹同款，还都是韩国游戏
+

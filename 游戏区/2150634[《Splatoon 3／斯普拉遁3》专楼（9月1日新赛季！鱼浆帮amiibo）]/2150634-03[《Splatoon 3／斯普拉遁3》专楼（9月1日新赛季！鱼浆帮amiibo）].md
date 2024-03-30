@@ -8084,3 +8084,15 @@ BBZ还是强
 
 明天估计下半场准决赛实质决赛了
 
+
+*****
+
+####  shirolin  
+##### 3782#       发表于 2024-3-30 19:11
+
+今天翻译了一下秩序篇Fami通的开发者访谈。
+
+内容比较多：https://splatoon.com.cn/page/50
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

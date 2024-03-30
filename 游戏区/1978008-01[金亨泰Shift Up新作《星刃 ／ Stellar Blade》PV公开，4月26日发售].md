@@ -1986,3 +1986,36 @@ BGM这个调调还行
 
 看了纯黑的无伤打BOSS挑战关，可玩性比序章试玩高很多，打起来也好看。还能枪械打弱点
 
+
+*****
+
+####  MiteOra  
+##### 592#       发表于 2024-3-30 14:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">打demo这个boss 这个完美格挡感觉判定有点轻松 平A什么的感觉没什么收益啊 就档7下 一个处决 来三轮 杀了
+
+*****
+
+####  icylight  
+##### 593#       发表于 2024-3-30 14:10
+
+题外话：你们知不知道这游戏的开发商，腾讯是入股了的，而且腾讯占股比例还不少，好像有40多，所以这游戏算不算半个国产游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 594#       发表于 2024-3-30 14:12
+
+打了几次boss挑战，感觉裸奔也不是不能玩，制作组的意思就是想色你就别想拿护盾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一招boss粉红色闪光的技能还以为可以闪现结果中了好几次才发现是要按闪避，按了后能触发动画大硬直啊靠，感觉闪避的判定比较怪，boss跳砸纯向后闪避总是不好触发完美闪避，向两边闪比较容易触发，另外boss喷石头那招感觉判定也比较怪
+
+*****
+
+####  医生狼多  
+##### 595#       发表于 2024-3-30 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427872&amp;ptid=1978008" target="_blank">icylight 发表于 2024-3-30 14:10</a>
+题外话：你们知不知道这游戏的开发商，腾讯是入股了的，而且腾讯占股比例还不少，好像有40多，所以这游戏算 ...</blockquote>
+那堡垒之夜是国产
+博德三也是三分之一国产
+只狼法环是十分之一国产了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

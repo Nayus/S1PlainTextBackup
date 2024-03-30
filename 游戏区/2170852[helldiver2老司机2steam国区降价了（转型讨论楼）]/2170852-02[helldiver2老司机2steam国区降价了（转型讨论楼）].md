@@ -8839,3 +8839,28 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Gmlazy  
+##### 2333#       发表于 2024-3-30 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64430132&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-30 19:01</a>
+问下集束炸弾可以炸哨站吗
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不能哦，虽然叫集束炸弹，但是没有爆炸判定的。需要有爆炸判定的武器才行。
+
+
+*****
+
+####  丹德里恩  
+##### 2334#       发表于 2024-3-30 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64430132&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-30 19:01</a>
+
+问下集束炸弾可以炸哨站吗
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用飞鹰空袭
+

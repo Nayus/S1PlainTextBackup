@@ -8795,3 +8795,16 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 现在可以入手了吗？服务器稳定了？
 
+
+*****
+
+####  eblis2  
+##### 2329#       发表于 2024-3-30 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426254&amp;ptid=2170852" target="_blank">bakuza 发表于 2024-3-30 10:43</a>
+
+怎么普通难度野排总会被踢，现在15级，还打算20级拿了蛋盾再上难度</blockquote>
+虫子的话直接排6，7难度 不是特别整蛊的话 应该不会提。
+
+我一直随机排 基本都是些十来级的
+

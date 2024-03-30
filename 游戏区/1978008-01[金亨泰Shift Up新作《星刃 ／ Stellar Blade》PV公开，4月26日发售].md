@@ -2146,3 +2146,24 @@ LOL百分百国产是吧
 
 日版真是便宜啊，现在日区才是低价区了
 
+
+*****
+
+####  h122h  
+##### 609#       发表于 2024-3-30 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429480&amp;ptid=1978008" target="_blank">暴走机关车 发表于 2024-3-30 17:47</a>
+
+日亚现在只有9000的了 乐天还有7600的 加上转运的话合计差不多9000日元可以拿下 ...</blockquote>
+你看错了，8980日元那个是带日亚特典的，就一个下载的电子版壁纸。你选不带日亚特典的就是7355日元。
+
+*****
+
+####  纱布光环  
+##### 610#       发表于 2024-3-30 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429463&amp;ptid=1978008" target="_blank">临界点 发表于 2024-3-30 17:45</a>
+
+那不是肯定的吗 难道超模还能做得了这些动作不成？扫描身体也只是噱头而已，现实哪有这种身材的女生，都 ...</blockquote>
+其实比起这个我更惊讶那个超模身高只有150<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

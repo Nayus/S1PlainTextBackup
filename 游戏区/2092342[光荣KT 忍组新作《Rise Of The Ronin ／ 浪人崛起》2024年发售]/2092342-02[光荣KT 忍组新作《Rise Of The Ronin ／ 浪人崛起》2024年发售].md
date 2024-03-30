@@ -11135,3 +11135,15 @@ boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈�
 
 话说日本对倒幕派是什么态度……一路玩下来感觉编剧把这群人往满口大义却两面三刀滥杀无辜的投机疯子塑造，反倒佐幕除了新选组都是些正常人。
 
+
+*****
+
+####  垃圾网站上  
+##### 2619#       发表于 2024-3-30 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429801&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-3-30 18:21</a>
+话说日本对倒幕派是什么态度……一路玩下来感觉编剧把这群人往满口大义却两面三刀滥杀无辜的投机疯子塑造， ...</blockquote>
+革命又不是请客吃饭，倒幕派成份也复杂，游戏里佐幕也搞了安政大狱啊，至于任务里头见人就杀只能理解为为游戏性考虑了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

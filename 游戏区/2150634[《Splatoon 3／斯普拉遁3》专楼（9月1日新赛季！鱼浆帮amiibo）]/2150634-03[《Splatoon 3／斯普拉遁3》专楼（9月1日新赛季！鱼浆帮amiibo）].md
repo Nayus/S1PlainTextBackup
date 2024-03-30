@@ -7891,3 +7891,20 @@ RS7V-VC0S-CXH0-SLVS
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  墨染白泉  
+##### 3762#       发表于 2024-3-30 10:10
+
+<img src="https://img.saraba1st.com/forum/202403/30/101026pl1z10j6f1fl141l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240330_100934_tv.danmaku.bili.jpg</strong> (234.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-30 10:10 上传
+
+赛制合理了点
+

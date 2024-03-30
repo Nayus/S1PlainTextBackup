@@ -14632,3 +14632,14 @@ TCG已经不满足于做响社官号了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427269&amp;ptid=2159415" target="_blank"> 紫吹兰 发表于 2024-3-30 12:49</a>  本帖最后由 紫吹兰 于 2024-3-30 12:52 编辑   【【限定公开】少女☆歌剧 Revue Starlight Rondo Rondo Rondo-哔哩哔哩】 https://b23.tv/KxLNQXp  TCG已经不满足于做响社官号了   附件： </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候把剧场版放上来，我要看长颈鹿集体线上发癫口牙来自: iPhone客户端
 
+
+*****
+
+####  NODY  
+##### 14582#       发表于 2024-3-30 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64425180&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-3-30 07:58</a>
+
+在事业粉看来，年级第一+学生会（副）会长跑去上艺大简直自甘堕落，但人追求的就是身边随时随地有几个小 ...</blockquote>
+自甘堕落是不是有点夸张，专业玩音乐的去读音乐专业挺正常的吧，燐子前优等生兼学生会长还不是读钢琴专业去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

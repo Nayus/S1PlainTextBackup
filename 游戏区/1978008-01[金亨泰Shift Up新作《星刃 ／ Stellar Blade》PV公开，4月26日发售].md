@@ -1931,3 +1931,32 @@ BGM这个调调还行
 话说之前那套肉色的战斗服为啥我找不到，有教程说可以制作服装我也没发现在哪里制作 ...</blockquote>
 你把装备栏里的衣服脱了就是肉色了
 
+
+*****
+
+####  hkguty  
+##### 586#       发表于 2024-3-30 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427556&amp;ptid=1978008" target="_blank">yt5wt2c 发表于 2024-3-30 13:27</a>
+
+你把装备栏里的衣服脱了就是肉色了</blockquote>
+原来如此，相当于裸奔
+
+*****
+
+####  105gun  
+##### 587#       发表于 2024-3-30 13:30
+
+收回前言。睡了一觉起来打了一会儿boss挑战，终于悟到这游戏该怎么耍的。
+
+
+*****
+
+####  医生狼多  
+##### 588#       发表于 2024-3-30 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427448&amp;ptid=1978008" target="_blank">emcl 发表于 2024-3-30 13:11</a>
+都说日版不和谐，其他区域和谐了什么</blockquote>
+是指日区没有额外和谐和其他区一样
+本来以为可能和仁王那样和谐断肢之类
+

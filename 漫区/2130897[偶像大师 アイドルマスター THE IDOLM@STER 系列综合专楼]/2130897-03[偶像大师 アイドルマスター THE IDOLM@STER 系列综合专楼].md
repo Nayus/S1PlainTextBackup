@@ -174,3 +174,13 @@ s1还有个imas楼<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+*****
+
+####  游蜓  
+##### 2980#       发表于 2024-3-30 15:46
+
+万代不是傻逼还能是什么？
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

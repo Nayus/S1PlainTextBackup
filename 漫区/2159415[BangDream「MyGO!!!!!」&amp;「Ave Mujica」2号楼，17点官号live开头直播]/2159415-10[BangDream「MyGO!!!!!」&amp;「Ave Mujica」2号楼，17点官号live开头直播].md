@@ -14760,3 +14760,30 @@ ars这样单纯为了配合小姐妹日程一起上学就换志愿就真很搞�
 
 你邦核心位（大部分主唱和祥子楚平方这俩）的老婆多少是有点重女的，pareo初中都没毕业就已经在考虑是不是要陪楚平方专职玩一辈子音乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14595#       发表于 2024-3-30 16:41
+
+只能说现实中绝大部分人初中还没想好自己要干什么吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御幸一也  
+##### 14596#       发表于 2024-3-30 16:45
+
+初…初華！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202403/30/164531r4mf2xz4zgnnpfxz.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240330-084421_1773994663856546069_photo.jpg</strong> (807.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-30 16:45 上传
+
+[https://twitter.com/sasakirico/status/1773994663856546069](https://twitter.com/sasakirico/status/1773994663856546069)
+

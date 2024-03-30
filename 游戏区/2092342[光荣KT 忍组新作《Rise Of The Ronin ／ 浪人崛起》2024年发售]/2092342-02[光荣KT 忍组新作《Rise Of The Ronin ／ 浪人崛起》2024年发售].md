@@ -10994,3 +10994,20 @@ zp最新的视频终于对这系统做出正确评价了<img src="https://static
 
 回到江户后的图标bug特别多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2604#       发表于 2024-3-30 16:37
+
+<blockquote>[ 培根芝士蛋堡XD replied on 2024-3-30 15:16](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64428291&amp;ptid=2092342) zp最新的视频终于对这系统做出正确评价了，之前果然是揣着明白装糊涂 </blockquote>
+暗夜难度还要砍石火判定帧我是没想到的。来自: iPhone客户端
+
+
+*****
+
+####  hugosol  
+##### 2605#       发表于 2024-3-30 16:40
+
+没法直接对比，仁王2光看二周目可以说是基本没有endgame内容的，就看浪人崛起后面会不会公布季票了
+

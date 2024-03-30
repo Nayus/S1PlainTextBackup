@@ -1581,3 +1581,15 @@ BGM这个调调还行
 
 主要是玩着浪人马上玩这个手感差距太大
 
+
+*****
+
+####  哎哟卧槽了  
+##### 550#       发表于 2024-3-30 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64425030&amp;ptid=1978008" target="_blank">SergeGlenn 发表于 2024-3-30 06:52</a>
+打完挑战boss感觉可以买啊，虽然有连招派生但这游戏我是当只狼玩的，打boss打的还挺爽的，就是闪避太费，只 ...</blockquote>
+這遊戲現在的試玩風評，原價能入手指不錯了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

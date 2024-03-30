@@ -14734,3 +14734,21 @@ ars这样单纯为了配合小姐妹日程一起上学就换志愿就真很搞�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  米拉苏尔  
+##### 14592#       发表于 2024-3-30 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427810&amp;ptid=2159415" target="_blank">cckuku 发表于 2024-3-30 14:02</a>
+这个剧情不就是简中互联网疯狂排雷的女/男主角为了另一半放弃更好的大学吗 ...</blockquote>
+感觉是伤痕文学那代喜欢的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+上世纪九十年代的气息扑面而来
+
+*****
+
+####  好想看Mujica啊  
+##### 14593#       发表于 2024-3-30 14:42
+
+我猜啊，ars这个精神状态，她随时随地都要有一个很熟悉的人陪着，不然就寂寞死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

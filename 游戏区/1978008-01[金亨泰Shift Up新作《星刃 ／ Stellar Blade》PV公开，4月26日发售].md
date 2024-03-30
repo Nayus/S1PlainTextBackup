@@ -1604,3 +1604,11 @@ BGM这个调调还行
 感觉又是那种把玩家性能砍了要点技能才能爽玩的类型，后面装备好像还能加闪避时间什么的。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">匹诺曹同款，还都是韩国游戏
 
+
+*****
+
+####  conanoysq  
+##### 552#       发表于 2024-3-30 08:46
+
+昨晚浪人无缝切换师姐，这个瞬防比浪人被克流派石火还难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

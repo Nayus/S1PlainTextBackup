@@ -1105,3 +1105,13 @@ TMD奖杯修的好吗<img src="https://static.saraba1st.com/image/smiley/face201
 
 这第一届太有流量啦
 
+
+*****
+
+####  ParadiseMartyr  
+##### 4155#       发表于 2024-3-30 08:41
+
+什么玩意，这**站图啥
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

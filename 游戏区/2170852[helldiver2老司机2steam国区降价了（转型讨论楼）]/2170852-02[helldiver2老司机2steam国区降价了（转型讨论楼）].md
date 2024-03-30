@@ -8818,3 +8818,14 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 现在可以入手了吗？服务器稳定了？</blockquote>
 基本稳定，也不会遇到15分钟不动被超级信球原封装回冷冻舱了
 
+
+*****
+
+####  xinfengj  
+##### 2331#       发表于 2024-3-30 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429733&amp;ptid=2170852" target="_blank">DarkSider 发表于 2024-3-30 18:16</a>
+
+现在可以入手了吗？服务器稳定了？</blockquote>
+服务器问题不大了，但是小问题一堆。有的朋友之间网络相性不好开加速器都没用，连别人都没事，就他俩每次只能有一个在队里，一个人一加另一个必掉，就很神奇
+

@@ -204,3 +204,17 @@ s1还有个imas楼<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  希望之异热同心  
+##### 2983#       发表于 2024-3-30 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64428477&amp;ptid=2130897" target="_blank">lovekoishi 发表于 2024-3-30 15:40</a>
+s1还有个imas楼
+百的第一季交完作业了，第二季可以放飞自我了啊，那么多剧中剧
+要是这又是声优盾又 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你要相信万代的傻逼尿性。做剧中剧能让动画卷均一万么？不能别做，搞不好就给你整这样了
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

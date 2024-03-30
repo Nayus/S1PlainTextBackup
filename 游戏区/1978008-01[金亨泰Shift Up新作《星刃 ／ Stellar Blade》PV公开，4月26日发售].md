@@ -2110,3 +2110,23 @@ LOL百分百国产是吧
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  愿墨争皓月  
+##### 605#       发表于 2024-3-30 17:42
+
+一路剧情+挑战打通了，动作性还挺可以的，受击硬直有点长导致无法被攻击时防御或闪避下一招这一点挺难受的，不知道后续有没有技能可以减少这个硬直
+
+*****
+
+####  临界点  
+##### 606#       发表于 2024-3-30 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429336&amp;ptid=1978008" target="_blank">纱布光环 发表于 2024-3-30 17:29</a>
+
+这游戏动捕原来是男人，，，找了超模结果只是扫描身体而已吗，
+
+  -- 来自 能看大图的 Stage1官方 A ...</blockquote>
+那不是肯定的吗 难道超模还能做得了这些动作不成？扫描身体也只是噱头而已，现实哪有这种身材的女生，都得修改的
+

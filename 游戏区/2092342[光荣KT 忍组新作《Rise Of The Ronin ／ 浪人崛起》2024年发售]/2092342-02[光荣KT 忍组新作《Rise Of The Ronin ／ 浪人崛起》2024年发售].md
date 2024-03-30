@@ -11070,3 +11070,15 @@ zp最新的视频终于对这系统做出正确评价了<img src="https://static
 
 如果真去掉克制，闪刃那也很多余了，毕竟石火也一样回体，除非那种进攻欲望不强能被玩家连打几套都不攻击的敌人
 
+
+*****
+
+####  垃圾网站上  
+##### 2612#       发表于 2024-3-30 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64429313&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-3-30 17:26</a>
+如果真去掉克制，闪刃那也很多余了，毕竟石火也一样回体，除非那种进攻欲望不强能被玩家连打几套都不攻击的 ...</blockquote>
+并不多余，如果闪刃回得足够多而且硬直可以取消，那么打一套对面要霸体反击(非红光)你可以选择防御，也可以选择连续翻滚闪避，或者放位移武技追伤，现在除了石火真没什么好选择
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

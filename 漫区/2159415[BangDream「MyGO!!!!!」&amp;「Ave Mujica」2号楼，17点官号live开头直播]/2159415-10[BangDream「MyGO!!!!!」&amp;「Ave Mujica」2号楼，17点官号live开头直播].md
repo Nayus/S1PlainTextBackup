@@ -15229,3 +15229,13 @@ ano酱是真的初中就会吉他
 
 2024-3-31 02:22 上传
 
+
+*****
+
+####  6030sylar  
+##### 14638#       发表于 2024-3-31 02:28
+
+还有ano酱虎牙也是来自ayu酱的<img src="https://p.sda1.dev/16/56984d2b05a889bc61428a79310ba8a5/Image_1711823252103.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

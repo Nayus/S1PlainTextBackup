@@ -11282,3 +11282,21 @@ boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈�
 
 赤鬼死之后，其实幕府已经势弱了，胜海舟都直说幕府已经名存实亡了，后面实际上是长洲和萨摩两藩在争权，长洲因为松阴的缘故在赤鬼死后实力更强，所以萨摩会在后面偷袭长洲，而长洲萨摩和解本质上是双方实力对等了，龙马这个名义上的外人才能调解双方。
 
+
+*****
+
+####  duraa  
+##### 2634#       发表于 2024-3-30 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以玩到后期真想这帮人全砍死算球，可惜没这个选项
+
+*****
+
+####  operatbig  
+##### 2635#       发表于 2024-3-30 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64431282&amp;ptid=2092342" target="_blank">黑色的js 发表于 2024-3-30 20:55</a>
+
+这游戏后期的粪怪还是不少的，，，虽然我觉得在接受范围，但二周目更高难度就不好想象了 ...</blockquote>
+最后一章小怪侦察能力还提高了，没法像前期那样随便暗杀...
+

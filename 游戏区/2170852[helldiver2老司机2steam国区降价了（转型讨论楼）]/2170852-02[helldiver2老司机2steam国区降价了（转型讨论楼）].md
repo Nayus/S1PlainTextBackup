@@ -8872,3 +8872,15 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 撒比游戏越来越容易闪退、掉线、出bug
 
+
+*****
+
+####  Aeons  
+##### 2336#       发表于 2024-3-30 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64430132&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-3-30 19:01</a>
+问下集束炸弾可以炸哨站吗
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+极小概率可能滚进去，但是直接炸不掉
+

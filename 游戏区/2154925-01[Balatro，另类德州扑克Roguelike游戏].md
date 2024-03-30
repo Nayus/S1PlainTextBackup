@@ -6290,3 +6290,20 @@ b站貌似代理了国服，不知道是单机买断还是氪金？
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Awanano  
+##### 552#       发表于 2024-3-30 18:09
+
+。。。傻逼游戏
+
+屏幕截图 2024-03-30 180836.png
+(231.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-30 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202403/30/180854x22ggn5e526jlf5w.png" referrerpolicy="no-referrer">
+

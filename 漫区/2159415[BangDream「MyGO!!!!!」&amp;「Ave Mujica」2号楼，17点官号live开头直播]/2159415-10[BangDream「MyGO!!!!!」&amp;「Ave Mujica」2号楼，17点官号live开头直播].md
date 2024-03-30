@@ -14787,3 +14787,13 @@ ars这样单纯为了配合小姐妹日程一起上学就换志愿就真很搞�
 
 [https://twitter.com/sasakirico/status/1773994663856546069](https://twitter.com/sasakirico/status/1773994663856546069)
 
+
+*****
+
+####  PDQ4  
+##### 14597#       发表于 2024-3-30 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ppp这个剧情有点想不出来要怎么收尾，李美丽又不能真出去留学，但是都下定决心开口了总不能真就打哈哈突然不留了吧
+
+而且ars这个也就是自己闷头想，完全没人发现也挺奇怪的，otae直觉失灵了吗。还以为总会有人发现她留下来是为了和小姐妹在一起，结果完全没人get到她的心思。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

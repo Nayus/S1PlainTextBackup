@@ -15075,3 +15075,25 @@ kohinata吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png"
 —— 来自 samsung SM-N9860, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 不知道紫吧怎么盒出来的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 14625#       发表于 2024-3-31 01:08
+
+文化有内鬼就能盒啊，个人信息泄露是涉外演出必备一环，不可不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nebulanoby  
+##### 14626#       发表于 2024-3-31 01:15
+
+ 本帖最后由 nebulanoby 于 2024-3-31 01:17 编辑 
+
+我可没说ARS不能去四叶，但是ARS去四叶也给我找个好点的理由吧<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">又不是什么很史无前例的展开，用这种没啥逻辑的理由不太应该
+
+其实PPP最大的问题还是里美的病情，真控不下来的话让她短期出国交换，其他成员之间纯贴贴+参加其他混活？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

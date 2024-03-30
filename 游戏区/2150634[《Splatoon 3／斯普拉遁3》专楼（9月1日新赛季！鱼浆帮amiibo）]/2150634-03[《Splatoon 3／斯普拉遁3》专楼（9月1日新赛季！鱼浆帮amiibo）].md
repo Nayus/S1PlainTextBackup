@@ -8049,3 +8049,21 @@ bbz三个螃蟹赢了，野上恒直呼螃蟹还得削
 
 PlotTwist惜败紫电，最终BBZ第一紫电第二，差不多就这样了
 
+
+*****
+
+####  罗克萨斯  
+##### 3778#       发表于 2024-3-30 17:15
+
+紫电BBZ双双翻车，什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ぷくぷく潜伏的审查者最后一场打得真不错，值得学习的立回
+
+
+*****
+
+####  carroy  
+##### 3779#       发表于 2024-3-30 17:20
+
+BBZ还是强
+

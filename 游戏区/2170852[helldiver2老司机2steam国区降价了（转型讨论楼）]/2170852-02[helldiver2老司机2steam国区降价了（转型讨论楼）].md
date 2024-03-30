@@ -8884,3 +8884,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 —— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 极小概率可能滚进去，但是直接炸不掉
 
+
+*****
+
+####  rainknine  
+##### 2337#       发表于 2024-3-30 23:21
+
+但解放战高难没行动限制debuff<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

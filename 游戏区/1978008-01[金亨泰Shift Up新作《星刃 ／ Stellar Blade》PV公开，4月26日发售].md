@@ -2275,3 +2275,20 @@ HMV也可以直邮，走EMS，到手8898，就是看页面可能初回特典码�
 
 不追求日语的话是不是tb买个韩版的就行了，看着日版+运费和tb也没差多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鈴姉御肌  
+##### 621#       发表于 2024-3-30 23:18
+
+日版demo开幕就有很写实的断肢 感觉应该没和谐 不过不知道cero会不会正式版背刺
+
+*****
+
+####  宛若青空  
+##### 622#       发表于 2024-3-30 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64432827&amp;ptid=1978008" target="_blank">鈴姉御肌 发表于 2024-3-30 23:18</a>
+日版demo开幕就有很写实的断肢 感觉应该没和谐 不过不知道cero会不会正式版背刺 ...</blockquote>
+有人测试过日版和港版的存档时互通的，所以理论上日版就是个解锁了日语语音的港版
+

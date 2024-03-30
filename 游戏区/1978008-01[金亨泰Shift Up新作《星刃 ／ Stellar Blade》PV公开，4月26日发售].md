@@ -1840,3 +1840,11 @@ BGM这个调调还行
 港服账号插日版盘能运行吗？</blockquote>
 能啊，现在不锁区的。且日版不和谐，独占日配，简中字幕，还便宜
 
+
+*****
+
+####  月光回音  
+##### 576#       发表于 2024-3-30 12:22
+
+首领战，操作系统几乎全开的eve，打起来还是很舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">而且角色好看，想买了
+

@@ -11167,3 +11167,27 @@ boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈�
 革命又不是请客吃饭，倒幕派成份也复杂，游戏里佐幕也搞了安政大狱啊，至于任务里头见人就杀只能理解为为 ...</blockquote>
 感觉龙马跑路去美国，纯纯是被搞怕了。
 
+
+*****
+
+####  黑修士  
+##### 2622#       发表于 2024-3-30 19:03
+
+感觉白天拍照的效果比夜晚要好不少
+
+<img src="https://img.saraba1st.com/forum/202403/30/190342u0h5tiotg111poz0.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (459.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-30 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202403/30/190343co883q9bb7b9zgfq.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (1000.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-30 19:03 上传
+

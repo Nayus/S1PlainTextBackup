@@ -7986,3 +7986,19 @@ RS7V-VC0S-CXH0-SLVS
 
 感觉小学组更能看出天赋差距，有几个小孩直接去一般组也没啥问题
 
+
+*****
+
+####  oi99o  
+##### 3770#       发表于 2024-3-30 12:58
+
+这下3胜组和2胜组都要靠总涂地百分比来排名了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  raii  
+##### 3771#       发表于 2024-3-30 13:02
+
+拿了中刷一下子就逆转三连胜还小组第一出线了，就是这样甲子园才好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

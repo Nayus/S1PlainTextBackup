@@ -14623,3 +14623,12 @@ TCG已经不满足于做响社官号了
 
 唉，上海
 
+
+*****
+
+####  ykyin09  
+##### 14581#       发表于 2024-3-30 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427269&amp;ptid=2159415" target="_blank"> 紫吹兰 发表于 2024-3-30 12:49</a>  本帖最后由 紫吹兰 于 2024-3-30 12:52 编辑   【【限定公开】少女☆歌剧 Revue Starlight Rondo Rondo Rondo-哔哩哔哩】 https://b23.tv/KxLNQXp  TCG已经不满足于做响社官号了   附件： </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候把剧场版放上来，我要看长颈鹿集体线上发癫口牙来自: iPhone客户端
+

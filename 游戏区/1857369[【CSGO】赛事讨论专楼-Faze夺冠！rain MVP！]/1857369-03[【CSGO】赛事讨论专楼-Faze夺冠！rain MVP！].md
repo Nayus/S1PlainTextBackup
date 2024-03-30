@@ -1115,3 +1115,11 @@ TMD奖杯修的好吗<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  heseran  
+##### 4156#       发表于 2024-3-30 13:05
+
+一觉醒来g2赢了，这么会打早干嘛去了，赔我作业<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

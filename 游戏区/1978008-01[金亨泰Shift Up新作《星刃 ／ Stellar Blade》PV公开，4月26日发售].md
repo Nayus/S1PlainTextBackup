@@ -1711,3 +1711,44 @@ BGM这个调调还行
 攻击能防御和回避取消，但取消时机不是全覆盖，只能取消攻击前摇后摇。如果把握不好就只用四角攻击的前三 ...</blockquote>
 这冲刺和这回避性能只能拼刀，不能作为动作游戏玩？有点遗憾了
 
+
+*****
+
+####  英梨英梨梨  
+##### 563#       发表于 2024-3-30 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64425830&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-3-30 09:54</a>
+韩语听不惯
+港服账号插日版盘能运行吗？</blockquote>
+淘宝的盘好像都是港版的，球指路日版光盘
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 564#       发表于 2024-3-30 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64425929&amp;ptid=1978008" target="_blank">Vacuolar 发表于 2024-3-30 10:07</a>
+
+这冲刺和这回避性能只能拼刀，不能作为动作游戏玩？有点遗憾了</blockquote>
+回避距离太短了，用常规ACT那种试图移出攻击范围的思路不就等着挨打。要不每次都靠无敌帧躲过去，反正我是做不到，干脆就不按回避。
+
+在这点上这游戏角色的基础性能有点像FF7RE<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 565#       发表于 2024-3-30 10:24
+
+手感还好
+另外设置里有自动拾取和自动qte，可以开下
+
+*****
+
+####  医生狼多  
+##### 566#       发表于 2024-3-30 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426028&amp;ptid=1978008" target="_blank">英梨英梨梨 发表于 2024-3-30 10:19</a>
+淘宝的盘好像都是港版的，球指路日版光盘</blockquote>
+我也想求指路呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只看到一家开定金的
+

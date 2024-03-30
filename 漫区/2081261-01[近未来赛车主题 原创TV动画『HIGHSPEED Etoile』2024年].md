@@ -36,3 +36,13 @@
 
 <img src="https://p.sda1.dev/16/0cf0c47c47336f850bca731f48598720/yande.re 1162489 bodysuit fujima_takuya highspeed_etoile komachi_towa.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  collincollin  
+##### 116#       发表于 2024-3-30 14:56
+
+最豪华CV阵 + 元永大师
+
+要不别出动画了，直接出电子宠物吧
+

@@ -1887,3 +1887,22 @@ BGM这个调调还行
 
 国行机器备份的港服账号，能玩日版光盘么？
 
+
+*****
+
+####  哎哟卧槽了  
+##### 581#       发表于 2024-3-30 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64427399&amp;ptid=1978008" target="_blank">恶梦再来 发表于 2024-3-30 13:04</a>
+国行机器备份的港服账号，能玩日版光盘么？</blockquote>
+版本不同只影響兌換碼和DLC
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  emcl  
+##### 582#       发表于 2024-3-30 13:11
+
+都说日版不和谐，其他区域和谐了什么
+

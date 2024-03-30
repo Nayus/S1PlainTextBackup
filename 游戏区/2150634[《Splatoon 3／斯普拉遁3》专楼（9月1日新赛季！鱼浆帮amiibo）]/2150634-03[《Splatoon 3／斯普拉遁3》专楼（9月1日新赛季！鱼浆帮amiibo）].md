@@ -8096,3 +8096,11 @@ BBZ还是强
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  苍蓝之枪  
+##### 3783#       发表于 2024-3-30 19:41
+
+路人局居然打出了202蛋，前所未有
+

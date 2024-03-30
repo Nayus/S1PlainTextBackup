@@ -14568,3 +14568,19 @@ AG活动场贩都有鸡狗蛋白棒真是绷不住了，不过想想这个蛋白
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  本间日阳  
+##### 14576#       发表于 2024-3-30 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426423&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-30 11:00</a>
+真不巧，看完RAS就要回去了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://p.sda1.dev/16/6e6236eb3b2736a4e9089e692df28b0c/CMP_20240330114133932.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/af7f0c8c3e498de12dc6ef3feb71b26a/CMP_20240330114149835.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/91591be7faa23873d422ba1d91615197/CMP_20240330114149930.jpg" referrerpolicy="no-referrer">
+到了这家商城的地下，确实有活动，而且所有团的立牌都有。只是其他团的立牌都在室内地下，只有蝶团被发配到二楼室外了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">感觉这里全是蚌批啊，太哈人了，我要润了。
+

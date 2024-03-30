@@ -2945,3 +2945,22 @@ syl，小景感觉迅速融入vspo，相比之下krm快4个月了还像个局外
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">阿点新箱二期新人出好快
 
+
+*****
+
+####  fastary  
+##### 145#       发表于 2024-3-30 12:36
+
+复仇者联盟(不
+
+<img src="https://img.saraba1st.com/forum/202403/30/123426otxg88efefezaodf.jpg" referrerpolicy="no-referrer">
+
+<strong>GJ4zd_MawAAREdyformat=jpg&amp;amp;name=small.jpg</strong> (76.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-30 12:34 上传
+
+感觉是郡拉起来的场子，毕竟还在虹的时候另三位几乎没交集…话又说回来总觉得如果不是都跑路了这个共同点，恐怕再在虹待几年都见不到这个阵容搞联动
+

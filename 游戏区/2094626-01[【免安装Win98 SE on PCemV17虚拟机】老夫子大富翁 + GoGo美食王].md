@@ -79,3 +79,18 @@
 
 只要放在纯英文目录下，运行没有明显问题。
 
+
+*****
+
+####  黑暗之眼  
+##### 195#       发表于 2024-3-31 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64412352&amp;ptid=2094626" target="_blank">winggg 发表于 2024-3-29 00:27</a>
+
+樱花3-4大概win98不支持（至少starforce在win98环境下，很不好对付）
+
+下星期有空，我先从樱花1-2试试 ...</blockquote>
+链接: [https://pan.baidu.com/s/1nvtyV0V6HnVXEhuzhhCWIA?pwd=qcxq](https://pan.baidu.com/s/1nvtyV0V6HnVXEhuzhhCWIA?pwd=qcxq) 提取码: qcxq 
+
+楼主我找到一个也是说虚拟机的资源，看看有没有帮助？
+

@@ -10962,3 +10962,11 @@ ps5里有一款按住防御等红光的游戏.jpg
 
 zp最新的视频终于对这系统做出正确评价了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，之前果然是揣着明白装糊涂
 
+
+*****
+
+####  ネコカイザー  
+##### 2600#       发表于 2024-3-30 15:21
+
+我倒是很喜欢浪人，是我今年目前为止最满意的游戏了。比圣兽之王还喜欢一丢丢。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

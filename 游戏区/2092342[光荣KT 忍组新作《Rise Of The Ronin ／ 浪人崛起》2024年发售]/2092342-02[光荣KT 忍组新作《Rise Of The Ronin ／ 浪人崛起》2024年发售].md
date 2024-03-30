@@ -10978,3 +10978,11 @@ zp最新的视频终于对这系统做出正确评价了<img src="https://static
 
 义经流好爽啊，可惜升级这流派要放过赤鬼青鬼，一周目不想做这种影响沉浸感的事情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 2602#       发表于 2024-3-30 15:59
+
+这套系统主要问题还是精力上限问题和敌人霸体问题，其他我觉得都还好
+

@@ -2397,3 +2397,14 @@ HMV也可以直邮，走EMS，到手8898，就是看页面可能初回特典码�
 凹了一下过了挑战，我只能说这个闪避和防御真的做的太离谱了，还有那个枪居然还要开镜射击，我有空射击boss ...</blockquote>
 BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御我还能忍，这闪避确实是太便秘了
 
+
+*****
+
+####  洛克萨斯  
+##### 634#       发表于 2024-3-31 03:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64434209&amp;ptid=1978008" target="_blank">DorianMode 发表于 2024-3-31 03:01</a>
+
+BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御我还能忍，这闪避确实是太便秘了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他都无人机和各种致敬尼尔了，为啥不给无人机自动射击啊，太蠢了
+

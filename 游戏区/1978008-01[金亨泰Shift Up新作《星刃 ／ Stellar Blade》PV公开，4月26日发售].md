@@ -1650,3 +1650,25 @@ BGM这个调调还行
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  icylight  
+##### 557#       发表于 2024-3-30 09:41
+
+星刃是不是还有续作？我记得之前新闻说星刃会出续作
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 558#       发表于 2024-3-30 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64425649&amp;ptid=1978008" target="_blank">Vacuolar 发表于 2024-3-30 09:25</a>
+
+这游戏的前摇好便秘，有没有取消前摇的升级或者操作方法啊。
+
+明明是高速动作游戏，但是基本上看到对面动作 ...</blockquote>
+攻击能防御和回避取消，但取消时机不是全覆盖，只能取消攻击前摇后摇，如果把握不好就只用四角攻击好了。
+
+而且这不是高速动作游戏，而是不能贪刀的只狼，多用格挡而且要提前按格挡。
+

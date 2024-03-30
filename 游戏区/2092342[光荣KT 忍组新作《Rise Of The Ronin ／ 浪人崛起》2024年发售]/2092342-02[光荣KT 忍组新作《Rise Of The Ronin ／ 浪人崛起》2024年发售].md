@@ -10769,3 +10769,14 @@ ff7幽灵船我得关掉扳机力量反馈，不然开枪速度跟不上
 
 每个角色是不是结婚一次拿下奖励就行了
 
+
+*****
+
+####  BadYanL  
+##### 2580#       发表于 2024-3-30 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64424533&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-30 01:10</a>
+
+龙马病逝后，千叶佐那可以攻略吗我要替兄弟照顾嫂子</blockquote>
+活着都能照顾。
+

@@ -90,3 +90,13 @@
 
 柏油爆了这么多金币还不出第二季 没有人不认为万代是傻逼吧
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 2971#       发表于 2024-3-30 09:37
+
+没这事万代难道就不傻逼了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

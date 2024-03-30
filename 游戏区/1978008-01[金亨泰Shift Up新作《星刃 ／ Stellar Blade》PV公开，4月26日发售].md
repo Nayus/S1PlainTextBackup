@@ -2432,3 +2432,14 @@ BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御�
 
 已日服预购
 
+
+*****
+
+####  ky7913  
+##### 638#       发表于 2024-3-31 06:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64433280&amp;ptid=1978008" target="_blank">operatbig 发表于 2024-3-31 00:08</a>
+
+好怪的系统……闪避更像是拿来给格挡打配合的，算是另一种格挡，单纯作为“闪避”性能很傻逼……导致单挑基 ...</blockquote>
+等开了二段闪躲就不一样了
+

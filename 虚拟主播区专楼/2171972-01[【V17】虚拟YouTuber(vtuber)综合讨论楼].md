@@ -3048,3 +3048,21 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 
 我知道这很难，但我希望你们能陪我一起度过这一年。谢谢大家。</blockquote>
 
+
+*****
+
+####  渡鸦骑士  
+##### 153#       发表于 2024-3-31 12:19
+
+这个给人的感觉……
+感觉像那谁，cn二期的那个谁<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 154#       发表于 2024-3-31 12:20
+
+一看直播没有bgm，声音也非常素人
+
+感觉会是底边的一生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

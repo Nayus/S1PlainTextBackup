@@ -11440,3 +11440,18 @@ boss的硬直时间太短，烈风紫电几乎没有时间用。有时间打烈�
 流派克制确实鸡肋，给轻度玩家玩得。深度玩家玩着难受。
 boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验就能好很多。
 
+
+*****
+
+####  duraa  
+##### 2650#       发表于 2024-3-31 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64433919&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-3-31 01:39</a>
+
+隼流如何升级？一直找不到这位npc。
+
+然后我主线放走了赤鬼，现在在京都，也没出现青鬼的npc支线任务。只要 ...</blockquote>
+义经流要等京都打完
+
+隼流在江户麴田左上角
+

@@ -3112,3 +3112,12 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 
 棋差一着啊奈罗花，不过看起来比想象中强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 160#       发表于 2024-3-31 21:25
+
+好惨，偶像大师的管人直接进876Pro 
+但是这不是没什么活人了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

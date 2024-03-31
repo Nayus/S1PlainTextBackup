@@ -9076,3 +9076,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 最近打机器人多,越来越觉得这飞矛的锁定真是一坨屎,要不改成COD里的那种吧,长按可以强制锁定
 
+
+*****
+
+####  kalavinka  
+##### 2357#         楼主| 发表于 2024-3-31 19:21
+
+机器人带类星体还可以 默契的话基本一波支援最多下来1，2船兵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -15454,3 +15454,56 @@ ano酱是真的初中就会吉他
 
 羊姐前世早曝光了，来这边也就多曝一个真名
 
+
+*****
+
+####  DarthAka  
+##### 14661#       发表于 2024-3-31 11:08
+
+羊姐来要就爆一下她是什么日菜而已
+
+*****
+
+####  蒜灵  
+##### 14662#       发表于 2024-3-31 11:12
+
+说实话这种半公开的个人信息离真正意义上的个人隐私还是有一段距离的
+管人痴那边连开房信息都给你盒出来，那才是真哈人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 14663#       发表于 2024-3-31 11:13
+
+lsl当过童星，网上都有记录，所以曝的特别快。换别人哪有这么快
+
+
+*****
+
+####  nebulanoby  
+##### 14664#       发表于 2024-3-31 11:15
+
+小圈子八卦下就算了，去别人推底下乱刷的传话太监是真讨厌，之前还有小鬼去羊宫生日推下面发黑白照的
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蒜灵  
+##### 14665#       发表于 2024-3-31 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435623&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-3-31 11:15</a>
+小圈子八卦下就算了，去别人推底下乱刷的传话太监是真讨厌，之前还有小鬼去羊宫生日推下面发黑白照的
+
+—— ...</blockquote>
+传话太监是最傻逼的，很多事情本来屁事没有，传话太监一来矛盾立马激化
+
+*****
+
+####  屑屑代沟尼亚  
+##### 14666#       发表于 2024-3-31 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真有人闲的找立教毕业名单按符合首字母的一个个找也能把凛找出来吧
+
+防伪笑容真的太好认了 
+

@@ -8150,3 +8150,32 @@ BBZ还是强
 
 喷3新人练手说彻底坐实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 3788#       发表于 2024-3-31 11:04
+
+视角切换半天才蹦出来，也太草台了
+
+*****
+
+####  秋月孝三  
+##### 3789#       发表于 2024-3-31 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金X小学生内战已经是成人组上位水平了，全场透着功利两字
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  罗克萨斯  
+##### 3790#       发表于 2024-3-31 11:11
+
+ 本帖最后由 罗克萨斯 于 2024-3-31 11:13 编辑 
+
+铅笔短弓52针管绿双，相当专业的配置了
+
+最强饮料机果然还是铅笔，审查者贴牌给个螃蟹或RPG吧
+

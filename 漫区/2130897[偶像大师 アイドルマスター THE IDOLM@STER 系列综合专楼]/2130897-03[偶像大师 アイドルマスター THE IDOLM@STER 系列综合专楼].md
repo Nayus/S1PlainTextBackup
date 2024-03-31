@@ -489,3 +489,35 @@ s1还有个imas楼
 
 香菜遥老板还能请的来？
 
+
+*****
+
+####  wfhtony  
+##### 3004#       发表于 2024-3-31 20:03
+
+<img src="https://img.saraba1st.com/forum/202403/31/200315fxs1hz445xoesxm2.png" referrerpolicy="no-referrer">
+
+<strong>Twitter_上的_ASOBINOTES(アソビノオト)：「◤重大発表◢_『PROJECT_IM@_2024-03-31_2.png</strong> (32.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 20:03 上传
+
+管马仕（不出意外的话，也包括876）的后续歌曲将继续由ASOBINOTES（万南自己的厂牌）负责制作+发行。
+
+（via [Twitter](https://twitter.com/ASOBINOTES876/status/1774405539314937877)）
+
+*****
+
+####  Alicest  
+##### 3005#       发表于 2024-3-31 20:04
+
+管马仕真的有效益吗
+
+*****
+
+####  辻野あかり  
+##### 3006#       发表于 2024-3-31 20:06
+
+876之前也是哥伦比亚吧，所以万南现在的策略就是把东西都拿回来自己做?
+

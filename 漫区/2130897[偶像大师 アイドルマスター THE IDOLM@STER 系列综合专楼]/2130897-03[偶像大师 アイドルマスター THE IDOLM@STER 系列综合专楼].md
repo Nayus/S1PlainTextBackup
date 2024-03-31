@@ -694,3 +694,11 @@ asobi这边感觉不就是债多了不愁，反正一共仨人而且说不定翻
 
 876不就是bandai的意思嘛，倒也合适。而且明年20thMOIW事务所能真齐了
 
+
+*****
+
+####  hinarin  
+##### 3027#       发表于 2024-3-31 22:29
+
+可以算民马大家族第七颗星了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

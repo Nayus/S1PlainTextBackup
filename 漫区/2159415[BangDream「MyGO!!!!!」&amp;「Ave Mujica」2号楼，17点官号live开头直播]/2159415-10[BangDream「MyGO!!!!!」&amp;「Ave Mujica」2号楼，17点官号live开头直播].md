@@ -16403,3 +16403,11 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 虽然赛博小祥这个小说给mujica拉了大量新粉，不过我觉得里面的角色人设已经差不多是半原创的二设了，偏偏还有不少二设入脑觉得原作也这样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14758#       发表于 2024-3-31 22:35
+
+b站找不到直播官方给的地址又锁ip，有没有说说这个电视台版本有没有修音或者换了镜头角度什么的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

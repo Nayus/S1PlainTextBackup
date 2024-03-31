@@ -458,3 +458,13 @@ staff:不装了我也不知道小麦怎么能去上学直接奇迹完事了<img 
 
 四月情报啥时候发，我已经迫不及待想看猫组了
 
+
+*****
+
+####  6030sylar  
+##### 1268#       发表于 2024-3-31 22:33
+
+傻狗上学记
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

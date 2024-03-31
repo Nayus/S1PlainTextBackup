@@ -322,3 +322,18 @@ Q娃内战 我已经举办东映了<img src="https://static.saraba1st.com/image/
 <img src="https://p.sda1.dev/16/c14445d21d1c4424fe8c96c1a963385a/003_4_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/167528cd77edbecd7a5b2d14000f8cef/004_4_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1253#       发表于 2024-3-31 08:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">好么，上学问题靠微笑钻石的奇迹直接糊弄过去了……这集明明是入学回，怎么能写得这么水啊……
+
+*****
+
+####  犬飼いろは  
+##### 1254#       发表于 2024-3-31 08:08
+
+第 09 集的 TVer 源（含日字）：magnet:?xt=urn:btih:950b74946616f8c4fb25174170992474b7f8de0f
+

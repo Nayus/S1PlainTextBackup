@@ -2487,3 +2487,11 @@ BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御�
 轻攻击最后一下不能取消，感觉是要点技能
 还是不能理解这种把角色砍成残疾人再慢慢点成正常人的做法<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫将军  
+##### 643#       发表于 2024-3-31 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">怎么脚那么小？裹小脚么？难怪要被女👊冲死
+

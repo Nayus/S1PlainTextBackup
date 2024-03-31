@@ -15558,3 +15558,74 @@ ido没有演出，不需要报备啥的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又不是私人联系方式、家庭住址这类恶性的，只有真名+网上公开信息也算不上什么盒吧，最多说是破坏了XX的世界观
 
+
+*****
+
+####  ytttsuuuba  
+##### 14673#       发表于 2024-3-31 11:49
+
+今天没新歌？毫无动静啊。
+
+*****
+
+####  蒜灵  
+##### 14674#       发表于 2024-3-31 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435776&amp;ptid=2159415" target="_blank">Nungesser 发表于 2024-3-31 11:31</a>
+我只能说有些公务部门能不能管一管自己的信息安全和职业操守？境外艺人来一次大陆就遭真名泄漏这种事情起码 ...</blockquote>
+境内的都管不了还管境外的呢，想多了
+草台班子太多了，几十亿人数据都漏出去了
+
+*****
+
+####  stygian  
+##### 14675#       发表于 2024-3-31 11:50
+
+ 本帖最后由 stygian 于 2024-3-31 11:51 编辑 
+
+怎么不是盒呢，如果真要较真的话人来国内申请签证上交自己的个人信息给你政府部门，内鬼做为政府部门一员啪直接就把人隐私给公布出去了，这种事的确习以为常了也根本没法改，不管是内还是外的整个户籍管理都在库里有权限随便看，但这种想爆谁就爆谁并不代表是正确的
+
+*****
+
+####  ddy2811  
+##### 14676#       发表于 2024-3-31 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64434584&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-3-31 07:47</a>
+
+一觉醒来疑似爹都盒出来了（年龄可以当爷爷了
+
+松下高层千金，是怎么变成游戏废人的</blockquote>
+年龄差太大了，感觉就算有关系也是亲戚之类吧
+
+*****
+
+####  蒜灵  
+##### 14677#       发表于 2024-3-31 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435971&amp;ptid=2159415" target="_blank">stygian 发表于 2024-3-31 11:50</a>
+怎么不是盒呢，如果真要较真的话人来国内申请签证上交自己的个人信息给你政府部门，内鬼做为政府部门一员啪 ...</blockquote>
+说白了还是成本问题，真要管还是有办法的，比如当年esu玩脱了盒到老大头上了，于是挨了铁拳
+
+
+*****
+
+####  MERCCCP  
+##### 14678#       发表于 2024-3-31 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435858&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-3-31 11:39</a>
+
+ido没有演出，不需要报备啥的
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+卖单独的内场票，不能不算演出吧
+
+*****
+
+####  ddy2811  
+##### 14679#       发表于 2024-3-31 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435473&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-3-31 10:56</a>
+
+隔壁开始炮轰z87了，就是不知道为什么要匿名</blockquote>
+我挺久以前就觉得泥潭那边的楼不是我喜欢的环境，现在看来那时候感觉没错，底色是有挺大区别的，当然在那里给炮轰的人点踩的也不少就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

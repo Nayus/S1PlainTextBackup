@@ -4005,3 +4005,26 @@ NO4斯内普
 
 说的是明天休息没有直播，不知道是不是本来就没有准备计划，照前两年的4月1号看感觉也都是临时想的剧本没有太正式的事前准备，今年又碰上生病所以就直接没安排了
 
+
+*****
+
+####  holoan  
+##### 8547#         楼主| 发表于 2024-3-31 23:12
+
+<img src="https://img.saraba1st.com/forum/202403/31/231213zgoyzloylk2zgw2k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 23:12 上传
+
+结果今年还是nye啊……
+
+*****
+
+####  holoan  
+##### 8548#         楼主| 发表于 2024-3-31 23:16
+
+另外提一下推特个人资料改不回来的阿心先例摆在那的，最好不要玩翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

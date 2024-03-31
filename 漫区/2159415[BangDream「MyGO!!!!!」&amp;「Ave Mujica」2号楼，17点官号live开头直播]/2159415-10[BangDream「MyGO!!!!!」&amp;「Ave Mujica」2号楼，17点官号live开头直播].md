@@ -15515,3 +15515,26 @@ lsl当过童星，网上都有记录，所以曝的特别快。换别人哪有�
 
 立教的毕业式是放视频的，真有心去看一遍就出来了
 
+
+*****
+
+####  纯田まな  
+##### 14668#       发表于 2024-3-31 11:30
+
+久保弥優哭着说再也不来中国了
+
+*****
+
+####  Nungesser  
+##### 14669#       发表于 2024-3-31 11:31
+
+我只能说有些公务部门能不能管一管自己的信息安全和职业操守？境外艺人来一次大陆就遭真名泄漏这种事情起码十几年了吧？难得希望媒体炒一炒这种事情让他们知道整改。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MERCCCP  
+##### 14670#       发表于 2024-3-31 11:35
+
+北京ido就没有这么多幺蛾子。唉，唉唉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

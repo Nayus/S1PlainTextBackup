@@ -15538,3 +15538,23 @@ lsl当过童星，网上都有记录，所以曝的特别快。换别人哪有�
 
 北京ido就没有这么多幺蛾子。唉，唉唉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 14671#       发表于 2024-3-31 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435818&amp;ptid=2159415" target="_blank">MERCCCP 发表于 2024-3-31 11:35</a>
+北京ido就没有这么多幺蛾子。唉，唉唉</blockquote>
+ido没有演出，不需要报备啥的
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  バーチャルS1er  
+##### 14672#       发表于 2024-3-31 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又不是私人联系方式、家庭住址这类恶性的，只有真名+网上公开信息也算不上什么盒吧，最多说是破坏了XX的世界观
+

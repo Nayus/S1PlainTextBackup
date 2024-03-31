@@ -2495,3 +2495,11 @@ BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御�
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">怎么脚那么小？裹小脚么？难怪要被女👊冲死
 
+
+*****
+
+####  洛克萨斯  
+##### 644#       发表于 2024-3-31 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我打下来就是蓝光前闪，紫光后闪击退，红光可以躲可以挡，黄光挡不了只能躲，但不一定躲得掉，很怪
+

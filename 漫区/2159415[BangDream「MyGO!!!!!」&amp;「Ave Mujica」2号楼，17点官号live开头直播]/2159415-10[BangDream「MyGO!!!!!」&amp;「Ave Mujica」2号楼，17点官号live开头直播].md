@@ -15664,3 +15664,31 @@ ido没有演出，不需要报备啥的
 
 之前的确是文化网站上直接本名开示的，后来也是改了，现在都是只给头字母后面全部打星号
 
+
+*****
+
+####  蒜灵  
+##### 14684#       发表于 2024-3-31 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436035&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-3-31 11:56</a>
+
+我挺久以前就觉得泥潭那边的楼不是我喜欢的环境，现在看来那时候感觉没错，底色是有挺大区别的，当然在那 ...</blockquote>
+还是优越感作祟，哎，优越感
+
+*****
+
+####  NODY  
+##### 14685#       发表于 2024-3-31 12:11
+
+这时候就体现出某几位实名上网的优势了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 14686#       发表于 2024-3-31 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436098&amp;ptid=2159415" target="_blank">バーチャルS1er 发表于 2024-3-31 12:04</a>
+
+额，我还以为来华演出都会强制公开真名...</blockquote>
+以前确实是的，现在改成*号了，这次是有内鬼
+

@@ -2668,3 +2668,16 @@ BOSS挑战部分应该是较后期的角色强度了，虽然还有两页没解�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ky7913  
+##### 660#       发表于 2024-4-1 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442622&amp;ptid=1978008" target="_blank">渣球王 发表于 2024-4-1 04:16</a>
+
+挑战模式尝试了几次后，发现就靠精确防御和精确回避，boss不动我也不动的打法反而能舒服。要主动攻击的话， ...</blockquote>
+这个BOSS吃控制的，只是丢手雷都能打断他，空中三角也能打断
+
+【把星刃demo玩了8小时后的体验-哔哩哔哩】 [https://b23.tv/XjOGkTl](https://b23.tv/XjOGkTl)
+

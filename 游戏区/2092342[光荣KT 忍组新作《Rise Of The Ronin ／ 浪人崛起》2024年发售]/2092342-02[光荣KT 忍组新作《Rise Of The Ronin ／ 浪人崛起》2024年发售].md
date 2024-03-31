@@ -11807,3 +11807,33 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nagitoY  
+##### 2684#       发表于 2024-4-1 00:35
+
+冲田总司被我救下后，龙马遇刺的时候来帮忙了。高杉晋作在后期的主线还有戏份吗？
+
+龙马给个好结局if线也算是不留遗憾，毕竟是从头到尾一直和主角一起行动的主要角色。能救下高杉晋作和冲田总司不会单纯是因为这两位人气高吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  operatbig  
+##### 2685#       发表于 2024-4-1 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64441174&amp;ptid=2092342" target="_blank">zhangruiy 发表于 2024-3-31 22:58</a>
+
+我看攻略站都说能攻略佐那，但我这里怎么连好感度条都没有，是有什么条件吗 ...</blockquote>
+最后一章有任务，做完就开放。
+
+*****
+
+####  operatbig  
+##### 2686#       发表于 2024-4-1 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64441044&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2024-3-31 22:44</a>
+
+同时和三个人比翼了，这游戏对后宫的限制是啥来着</blockquote>
+看不到最后一段姻缘动画。
+

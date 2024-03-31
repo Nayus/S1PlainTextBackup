@@ -16630,3 +16630,14 @@ ano酱？什么时候……（复读）<img src="https://static.saraba1st.com/im
 
 2024-4-1 01:42 上传
 
+
+*****
+
+####  NODY  
+##### 14778#       发表于 2024-4-1 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442326&amp;ptid=2159415" target="_blank">Renes 发表于 2024-4-1 01:25</a>
+
+愚人节整活ooc才是正常的吧，多少手游角色都在这天ooc，乐一下就过去的事情，有必要这么上纲上线吗 ...</blockquote>
+大概是太接近现实反而有点不适的感觉？真搞点大魔王征服世界之类的反而不会这么奇怪，不过看大部分人都挺喜欢的，尊重祝福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

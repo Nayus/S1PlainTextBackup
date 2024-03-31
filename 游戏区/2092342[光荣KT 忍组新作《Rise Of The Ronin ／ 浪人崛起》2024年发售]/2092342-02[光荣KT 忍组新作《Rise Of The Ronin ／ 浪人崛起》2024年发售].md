@@ -11862,3 +11862,13 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 权藏可以说是陪伴隐刀和龙马经历一系列重大历史事件的迷之第三人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 2689#       发表于 2024-4-1 01:49
+
+要选线了，感觉倒幕这边人挺可爱的
+但好感度都刷差不多了，感觉选佐幕性价比高点
+看联网选项好像大多数都是佐幕
+

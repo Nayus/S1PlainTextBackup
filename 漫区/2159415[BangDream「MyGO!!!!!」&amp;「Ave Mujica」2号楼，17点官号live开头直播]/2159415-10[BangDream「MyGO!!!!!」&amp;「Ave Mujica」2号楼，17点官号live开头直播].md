@@ -15852,3 +15852,16 @@ z8看了一眼几个帖子有挖财团千金的、有挖小男友的、有挖学
 除此之外还有浑水摸鱼的羊gachi试图禁掉所有z8内容并且把烤羊的都打成z8搞事 ...</blockquote>
 羊噶肯定跳出来啊，目前被开盒的是没出过啥节奏其他人，真盒羊跳脸的肯定多，毕竟真的有搞羊宫弹幕独轮车那种的，z8也见过真的恨到牙痒痒的
 
+
+*****
+
+####  ddy2811  
+##### 14704#       发表于 2024-3-31 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64437139&amp;ptid=2159415" target="_blank">纯田まな 发表于 2024-3-31 14:07</a>
+
+萌萌人有什么不好的吗，看得越多越觉得当个萌萌人真好
+
+大家应该对小羊友善一点 ...</blockquote>
+这也不是单向的，对羊的态度本来就不是找乐子烂炒这么简单，她的声望就是这样自然也不可能让人友善就友善的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

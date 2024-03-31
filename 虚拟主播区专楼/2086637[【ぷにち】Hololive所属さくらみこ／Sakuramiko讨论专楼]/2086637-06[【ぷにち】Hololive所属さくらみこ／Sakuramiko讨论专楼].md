@@ -3861,3 +3861,19 @@ MV选今天发表有什么特别的意义吗
 
 rui今天推特发的那个明天凌晨0点的什么企划视频好像有参加
 
+
+*****
+
+####  holoan  
+##### 8535#         楼主| 发表于 2024-3-31 15:22
+
+<img src="https://img.saraba1st.com/forum/202403/31/151019ebmfnrq633n5urn3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 15:10 上传
+
+ <blockquote>在twitch看了3年多的电影，watchparty机能结束的这时候果然还是想和大家一起同时视听来做结尾</blockquote>[https://www.youtube.com/live/6aM ... srdhMls0zWck&amp;t=6392](https://www.youtube.com/live/6aMiFRXbSfg?si=hGdZsrdhMls0zWck&amp;t=6392)
+

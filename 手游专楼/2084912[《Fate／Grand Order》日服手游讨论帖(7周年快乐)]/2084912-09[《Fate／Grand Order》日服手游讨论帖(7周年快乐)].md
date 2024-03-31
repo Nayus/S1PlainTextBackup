@@ -1232,3 +1232,11 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这次黑贞还是没出
 
+
+*****
+
+####  khxooo  
+##### 11945#       发表于 2024-4-1 03:35
+
+呼呼单抽了伯爵，最近发生什么事？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

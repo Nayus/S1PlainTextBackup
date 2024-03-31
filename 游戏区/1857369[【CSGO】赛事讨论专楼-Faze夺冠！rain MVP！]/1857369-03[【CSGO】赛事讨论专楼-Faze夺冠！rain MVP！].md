@@ -1427,3 +1427,20 @@ faze这枪是真软，感觉对枪很容易输
 
 im太处了
 
+
+*****
+
+####  ork  
+##### 4190#       发表于 2024-4-1 03:40
+
+笑点解析 <blockquote>3. FaZe picked Ancient
+
+4. Natus Vincere picked Mirage</blockquote>
+
+*****
+
+####  noarch  
+##### 4191#       发表于 2024-4-1 03:43
+
+直接被宰了个13-2，太有选图了李神
+

@@ -78,3 +78,11 @@ CPU温度还好，手心温度高，低温烫伤预定。</blockquote>
 
 我曾经觉得自己最是无所谓的就是续航，但是SD OLED和ROG一比较，ROG那几乎是肉眼可见的掉电，简直是让我胆战心惊
 
+
+*****
+
+####  ultraseven  
+##### 1147#       发表于 2024-3-31 20:41
+
+玩ROG当然要插电玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不然我就SD了
+

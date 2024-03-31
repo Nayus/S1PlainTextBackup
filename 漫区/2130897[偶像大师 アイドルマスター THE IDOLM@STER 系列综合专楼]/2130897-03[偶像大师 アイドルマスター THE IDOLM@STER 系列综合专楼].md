@@ -599,3 +599,35 @@ asobi这边感觉不就是债多了不愁，反正一共仨人而且说不定翻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">挂羊头卖狗肉，有本事把ds三个人叫来啊
 
+
+*****
+
+####  22P  
+##### 3015#       发表于 2024-3-31 20:37
+
+不要又玩死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  谁的无聊中  
+##### 3016#       发表于 2024-3-31 20:42
+
+只能说不愧是万代，万代确实是个傻逼
+
+*****
+
+####  花开安菲路  
+##### 3017#       发表于 2024-3-31 20:42
+
+当初目标只是5000票，结果全员过3w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+黄毛超过红毛了，应该是最后很多人都投黄毛了，蓝毛果然是人气最高的。
+他们第二套皮的私服，就公布时直播过一次，我还想看新衣服直播呢。
+
+*****
+
+####  a85982313  
+##### 3018#       发表于 2024-3-31 20:44
+
+塞876这也能想出来这一手啊
+

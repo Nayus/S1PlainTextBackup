@@ -16079,3 +16079,44 @@ WSD这是跟国内手游厂取经了？<img src="https://static.saraba1st.com/im
 
 基本可以认为就是角色歌了吧
 
+
+*****
+
+####  鳥栖朝  
+##### 14728#       发表于 2024-3-31 18:09
+
+wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ytttsuuuba  
+##### 14729#       发表于 2024-3-31 18:10
+
+△？初华？如果是角色歌，希望歌词能好好写，别整太抽象了。
+
+
+*****
+
+####  御幸一也  
+##### 14730#       发表于 2024-3-31 18:14
+
+等一下 4/7海鈴生日耶 第一個海鈴？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 14731#       发表于 2024-3-31 18:16
+
+卡在0点发，可能真的是Timoris
+
+那难道被火焚烧的魔女指的是海铃<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  likeny  
+##### 14732#       发表于 2024-3-31 18:16
+
+这个符号也有可能是迷你专上面那六个符号吧
+

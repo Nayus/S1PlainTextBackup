@@ -8122,3 +8122,31 @@ BBZ还是强
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DeltaStriker  
+##### 3786#       发表于 2024-3-31 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435457&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-3-31 10:53</a>
+野上已经蚌埠住了，今天不来个含泪宣布多更一年的话很难走出赛场
+
+—— 来自 OPPO PDEM30, Android  ...</blockquote>
+他最好是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  raii  
+##### 3787#       发表于 2024-3-31 11:00
+
+<blockquote>关于《秩序》的开发，
+
+是以迄今为止本篇的制作人员为核心，
+
+以学生时代玩过《斯普拉遁1》和《斯普拉遁2》的年轻员工为主力的人员构成来进行的。</blockquote>
+
+喷3新人练手说彻底坐实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8112,3 +8112,13 @@ BBZ还是强
 
 水田这个慵懒的设计确实很有意思，地下歌手，希望以后可以再多出一个乐队吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 3785#       发表于 2024-3-31 10:53
+
+野上已经蚌埠住了，今天不来个含泪宣布多更一年的话很难走出赛场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

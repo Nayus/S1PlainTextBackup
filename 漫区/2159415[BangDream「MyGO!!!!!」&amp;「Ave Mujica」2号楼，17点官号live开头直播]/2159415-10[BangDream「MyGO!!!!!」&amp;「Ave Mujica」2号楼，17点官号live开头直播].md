@@ -16411,3 +16411,13 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 b站找不到直播官方给的地址又锁ip，有没有说说这个电视台版本有没有修音或者换了镜头角度什么的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Drawrain  
+##### 14759#       发表于 2024-3-31 23:05
+
+赛博小祥这个也没办法。毕竟动画没播只能这么搞。希望动画播的时候入脑别太严重吧
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

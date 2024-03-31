@@ -8780,3 +8780,11 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 打了两局连败
 没事了我还是看比赛吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 3860#       发表于 2024-3-31 23:02
+
+打了50多局分没动，这就是鲑坝吗
+

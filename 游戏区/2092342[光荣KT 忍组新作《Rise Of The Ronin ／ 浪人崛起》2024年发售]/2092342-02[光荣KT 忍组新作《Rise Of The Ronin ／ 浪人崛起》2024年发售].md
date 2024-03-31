@@ -11743,3 +11743,28 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 我是真不想跟男人比翼，但龙马的比翼道具是核心中的核心，没办法。比完赶紧离了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhangruiy  
+##### 2677#       发表于 2024-3-31 22:58
+
+我看攻略站都说能攻略佐那，但我这里怎么连好感度条都没有，是有什么条件吗
+
+*****
+
+####  ouyang菌  
+##### 2678#       发表于 2024-3-31 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64441174&amp;ptid=2092342" target="_blank">zhangruiy 发表于 2024-03-31 22:58:29</a>
+我看攻略站都说能攻略佐那，但我这里怎么连好感度条都没有，是有什么条件吗 ...</blockquote>得龙马遇刺剧情过后（不论龙马是死还是重伤）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zhangruiy  
+##### 2679#       发表于 2024-3-31 23:02
+
+草，我还以为到京都之后江户的人基本就没剧情了。那还是得再推推主线
+

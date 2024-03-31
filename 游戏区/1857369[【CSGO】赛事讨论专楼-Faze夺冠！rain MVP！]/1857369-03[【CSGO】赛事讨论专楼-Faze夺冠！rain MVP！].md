@@ -1357,3 +1357,11 @@ hunter和IM两个人打完major针得滚吧
 
 李神再带大家冲一次吧，开启李白时代
 
+
+*****
+
+####  Rainwedell  
+##### 4181#       发表于 2024-3-31 09:36
+
+看着李神带着这套阵容打进决赛也太励志了。整个4强除了蜜蜂，一堆Niko指挥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

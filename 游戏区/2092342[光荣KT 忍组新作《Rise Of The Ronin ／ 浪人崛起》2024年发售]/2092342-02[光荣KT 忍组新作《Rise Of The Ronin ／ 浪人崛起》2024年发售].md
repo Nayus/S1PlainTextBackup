@@ -11595,3 +11595,28 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 为了研究久坂的攻略条件把能翻的攻略站都翻遍了，发现大家情况各自不一没有共识，很多人都是做满四个因缘满 ...</blockquote>
 不，我觉得逆转的根本原因是新选组出现了，他们的粉丝占压倒多数～
 
+
+*****
+
+####  nagitoY  
+##### 2664#       发表于 2024-3-31 20:45
+
+救了总司后，显示他在西本愿寺。去了后到处都找不到人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">之前他生病躺的位置是空的。难道昨晚支线连和他聊天都不行吗？我看还有好感度，不能比翼吗？
+
+自机是男性，和男npc都不能比翼？那比翼道具不是血亏来自: iPhone客户端
+
+
+*****
+
+####  毛利提督  
+##### 2665#       发表于 2024-3-31 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64439811&amp;ptid=2092342" target="_blank">绯月 发表于 2024-3-31 20:13</a>
+
+不，我觉得逆转的根本原因是新选组出现了，他们的粉丝占压倒多数～</blockquote>
+池田屋和禁门之变从历史角度也是纯纯的长州人玩不起
+
+策划恐 怖 袭 击未遂就掀桌结果被暴锤
+
+游戏里没把禁门之变之后的第一次长州征伐做进来算是给足长州面子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

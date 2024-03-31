@@ -631,3 +631,33 @@ asobi这边感觉不就是债多了不愁，反正一共仨人而且说不定翻
 
 塞876这也能想出来这一手啊
 
+
+*****
+
+####  cckuku  
+##### 3019#       发表于 2024-3-31 20:47
+
+我们管马仕的粉丝真是团团又结结啊，你们有没有这么团结的粉丝啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 3020#       发表于 2024-3-31 20:47
+
+悠星再来点商单吧，我还想看蓝毛打雀魂，或者其它国内熟悉的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 3021#       发表于 2024-3-31 20:52
+
+哇 天才想法
+
+*****
+
+####  Srchy  
+##### 3022#       发表于 2024-3-31 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明是鸠占鹊巢，但是帅友偏偏就是吃这套卖情怀
+

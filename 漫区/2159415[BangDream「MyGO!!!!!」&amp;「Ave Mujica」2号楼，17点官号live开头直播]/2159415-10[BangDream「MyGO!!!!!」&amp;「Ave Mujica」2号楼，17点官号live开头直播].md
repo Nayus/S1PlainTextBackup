@@ -16315,3 +16315,15 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 因為有兩個風，所以猜祥子是更特殊的第五元素的以太
 
+
+*****
+
+####  PDQ4  
+##### 14750#       发表于 2024-3-31 20:47
+
+ 本帖最后由 PDQ4 于 2024-3-31 20:49 编辑 
+
+是不是跟着炼金术的元素象征走，大概五月份下一首曲子symbol II 出来看看标志就能确定。
+
+是时候恶补炼金术了。迷你专魔法阵，下一专该直接冒出个红石了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

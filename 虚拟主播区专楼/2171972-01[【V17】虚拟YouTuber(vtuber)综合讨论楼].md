@@ -3104,3 +3104,11 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 
 我最喜欢的apex组合郡黛sio素不素也有可能会复活🥹
 
+
+*****
+
+####  格林卡罗尔  
+##### 159#       发表于 2024-3-31 20:54
+
+棋差一着啊奈罗花，不过看起来比想象中强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

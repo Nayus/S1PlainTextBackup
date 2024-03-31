@@ -661,3 +661,36 @@ asobi这边感觉不就是债多了不愁，反正一共仨人而且说不定翻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明是鸠占鹊巢，但是帅友偏偏就是吃这套卖情怀
 
+
+*****
+
+####  猫兔同笼  
+##### 3023#       发表于 2024-3-31 21:01
+
+代哥高层真是惊世智慧啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 3024#       发表于 2024-3-31 21:02
+
+有一说一，红毛说话声音抬高的时候特别像香菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ポップコーン  
+##### 3025#       发表于 2024-3-31 21:02
+
+管马仕的小偶像不用毕业了，876也被万南挖出来复活了，皆大欢喜呢。
+
+受伤的只有被万南玩弄了感情的管人观众和876粉丝。
+
+*****
+
+####  三度音  
+##### 3026#       发表于 2024-3-31 21:03
+
+ 本帖最后由 三度音 于 2024-3-31 21:06 编辑 
+
+876不就是bandai的意思嘛，倒也合适。而且明年20thMOIW事务所能真齐了
+

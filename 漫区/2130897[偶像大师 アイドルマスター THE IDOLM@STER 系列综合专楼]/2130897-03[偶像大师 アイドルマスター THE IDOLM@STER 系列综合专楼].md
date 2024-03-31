@@ -259,3 +259,33 @@ s1还有个imas楼
 
 万代这是要把灰灰收回来自己做？
 
+
+*****
+
+####  何处分可  
+##### 2988#       发表于 2024-3-31 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3w销量啊，万代是真tm傻逼
+
+*****
+
+####  flynnei  
+##### 2989#       发表于 2024-3-31 17:19
+
+看起来不像是要完全关停的样子，不知道BN葫芦里卖的什么药
+
+*****
+
+####  hinarin  
+##### 2990#       发表于 2024-3-31 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">期待2025
+
+
+*****
+
+####  natmk  
+##### 2991#       发表于 2024-3-31 17:24
+
+灰灰新游戏吗不看好万南能给多少资源
+

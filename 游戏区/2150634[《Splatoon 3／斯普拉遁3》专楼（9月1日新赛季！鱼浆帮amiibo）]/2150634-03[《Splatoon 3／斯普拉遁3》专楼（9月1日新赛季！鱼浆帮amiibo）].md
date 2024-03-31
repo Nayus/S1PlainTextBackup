@@ -8734,3 +8734,21 @@ P5天下第一！
 
 另外之前有人讨论标准黄蓝配色，蓝色是公认更有利的的配色（stat.ink统计胜率54：46）结果这次心之怪盗先黄后蓝一波杀穿，不过Day1作为关东1代表全程黄色确实打得挺艰难的，BBz拿到全蓝这种好位置还是没赢只能说实力不足和地图运了
 
+
+*****
+
+####  569  
+##### 3855#       发表于 2024-3-31 18:48
+
+taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩splatoon吗感觉他已经没什么兴趣了。。
+
+
+*****
+
+####  秋月孝三  
+##### 3856#       发表于 2024-3-31 18:52
+
+人家早就转街霸6了。老头子打喷不是找虐吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

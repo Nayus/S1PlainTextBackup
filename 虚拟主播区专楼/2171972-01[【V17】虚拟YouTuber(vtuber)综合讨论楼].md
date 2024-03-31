@@ -3079,3 +3079,12 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 而是寫"SF6大會"或"外部大會"(之前葛葉杯就會照寫)
 因為全部參賽者只有她是這樣，就很容易被抓出來當梗</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  _Ra1nMaker  
+##### 156#       发表于 2024-3-31 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436315&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2024-3-31 12:28</a></blockquote>
+这是又想蹭杏又不想得罪虹粉？一般这种既要又要的结果就是两头不讨好吧<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+

@@ -9018,3 +9018,14 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 进度大手一挥的事
 
+
+*****
+
+####  リュウセイ  
+##### 2351#       发表于 2024-3-31 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435198&amp;ptid=2170852" target="_blank">范坚强 发表于 2024-3-31 10:07</a>
+
+同 18号还是23号的更新后就这毛病了</blockquote>
+当中更新过几次居然都没修复，官方都不知道这个bug的么？
+

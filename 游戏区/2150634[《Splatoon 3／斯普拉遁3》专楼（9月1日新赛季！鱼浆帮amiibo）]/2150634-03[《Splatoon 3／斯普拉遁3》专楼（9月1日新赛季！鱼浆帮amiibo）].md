@@ -8313,3 +8313,55 @@ eidori的中刷鲨穿了
 
 PlotTwist是输在编程上么儿？两场输得都不多，很可惜
 
+
+*****
+
+####  墨染白泉  
+##### 3805#       发表于 2024-3-31 12:58
+
+又可以观赏norishio的电锯了
+
+*****
+
+####  紫菜粉丝煲  
+##### 3806#       发表于 2024-3-31 12:59
+
+重桶哥应该是全一重桶？平时没怎么播过
+
+*****
+
+####  martinium  
+##### 3807#       发表于 2024-3-31 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436549&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-3-31 12:55</a>
+さくらっしゅ的贴牌重桶哥玩得真6啊，甲子园上玩重武器，而且能赢的感觉并不常见
+
+PlotTwist是输在编程上么 ...</blockquote>
+ふーらんむ二代就是大佬了
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  墨染白泉  
+##### 3808#       发表于 2024-3-31 13:04
+
+千里追杀螃蟹，norishio的电锯真离谱
+
+*****
+
+####  罗克萨斯  
+##### 3809#       发表于 2024-3-31 13:04
+
+TearRain的电锯最后都杀疯了，我看还得削<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 3810#       发表于 2024-3-31 13:06
+
+magi竟然掏出审查者了，要做最后一搏么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

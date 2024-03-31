@@ -534,3 +534,36 @@ s1还有个imas楼
 
 876社长的话「それっと、知ってる通り。私たちのプロダクションには、すってに売れっ子アイドルとして、一人は事務所を兼任している、先輩アイドルもいるだけと…」
 
+
+*****
+
+####  wfhtony  
+##### 3008#       发表于 2024-3-31 20:14
+
+<img src="https://img.saraba1st.com/forum/202403/31/201347neozvum1ov3rub1k.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1035 - Twitter 上的 田中ブンケイ：「ありがとう石川社長、彼女達.png</strong> (52.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 20:13 上传
+
+文啓P也来致辞了。
+
+（via [Twitter](https://twitter.com/bunkeiP_bushi/status/1774407537196204093)）
+
+
+*****
+
+####  田所あずさ  
+##### 3009#       发表于 2024-3-31 20:21
+
+欺负死人
+
+*****
+
+####  没取名啊  
+##### 3010#       发表于 2024-3-31 20:23
+
+tmd不愧是大企业，有鬼点子的人多啊，换我的话想一个月也想不到还能这么来<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

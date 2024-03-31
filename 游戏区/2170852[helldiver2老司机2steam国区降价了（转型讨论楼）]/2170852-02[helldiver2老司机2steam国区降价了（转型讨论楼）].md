@@ -8980,3 +8980,21 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 保卫战只有没得选的时候才会打，真没人爱打那个撤离任务，纯纯勾史
 
+
+*****
+
+####  ykyin09  
+##### 2347#       发表于 2024-3-31 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨晚跟朋友打了一晚上的机器人终于发现了n5才是我的舒适区，有战争氛围还有游戏体验，反正我样本在虫子那都刷满了，打打中低难度机器人就得了来自: iPhone客户端
+
+*****
+
+####  范坚强  
+##### 2348#       发表于 2024-3-31 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64433598&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-3-31 00:44</a>
+
+为什么我每次重新登陆装备都会被重置，还会出现新手tips，ps5版</blockquote>
+同 18号还是23号的更新后就这毛病了
+

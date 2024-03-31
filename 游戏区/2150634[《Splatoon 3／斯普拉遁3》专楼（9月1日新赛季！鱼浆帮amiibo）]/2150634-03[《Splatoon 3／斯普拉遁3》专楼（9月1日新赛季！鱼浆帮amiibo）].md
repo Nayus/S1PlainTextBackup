@@ -8365,3 +8365,30 @@ magi竟然掏出审查者了，要做最后一搏么？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  martinium  
+##### 3811#       发表于 2024-3-31 13:10
+
+没有人奈何得了norishio，太夸张了
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  秋月孝三  
+##### 3812#       发表于 2024-3-31 13:13
+
+乙组只剩一根独苗了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  墨染白泉  
+##### 3813#       发表于 2024-3-31 13:15
+
+bbz来了
+

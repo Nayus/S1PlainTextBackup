@@ -15743,3 +15743,35 @@ z8看了一眼几个帖子有挖财团千金的、有挖小男友的、有挖学
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星空冻结  
+##### 14693#       发表于 2024-3-31 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436443&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-3-31 12:41</a>
+说实话说不定只是公示改成*号了，内部和之前一样根本没做什么保密</blockquote>
+肯定只有公示给你挡一下啊，你给公务机关提交申请表还能打星号的吗？这次不就是公务机关的人漏出来的真名，我都没看懂nga那边抓着紫吧骂干嘛，因为内鬼太强了所以只能挑一个弱一点的骂吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 14694#       发表于 2024-3-31 13:08
+
+本质就是火了，跳脸本人的变多是因为火了引来不明生物，不满的人多是因为火了mmr也多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 14695#       发表于 2024-3-31 13:10
+
+常盘学园高等学校是佐藤聪美的母校，青二大前辈，kon的律队……当年青山吉能在wug穿的校服就这学校同款，给想P制服青木的指个路
+
+
+*****
+
+####  zzhh0131  
+##### 14696#       发表于 2024-3-31 13:11
+
+隔壁专楼怎么老是有乐子看来自: iPhone客户端
+

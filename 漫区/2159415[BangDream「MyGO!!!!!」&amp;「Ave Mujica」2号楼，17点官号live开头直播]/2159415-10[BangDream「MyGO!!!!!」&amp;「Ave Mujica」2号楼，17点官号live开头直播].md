@@ -16327,3 +16327,14 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 是时候恶补炼金术了。迷你专魔法阵，下一专该直接冒出个红石了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 14751#       发表于 2024-3-31 21:38
+
+很担心Mujica粉丝的精神状态。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://s21.ax1x.com/2024/03/31/pF7eJBT.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

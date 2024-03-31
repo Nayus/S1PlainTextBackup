@@ -1148,3 +1148,13 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 青梅这到底算不算赢......</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">精神胜利也是一种赢法啊
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 4543#       发表于 2024-3-31 10:32
+
+草，asobi翻爱马仕live的bd的时候，拉到最下面发现还有马桶的特装bd
+
+税后35200円，收录8集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

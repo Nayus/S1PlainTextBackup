@@ -521,3 +521,16 @@ s1还有个imas楼
 
 876之前也是哥伦比亚吧，所以万南现在的策略就是把东西都拿回来自己做?
 
+
+*****
+
+####  wfhtony  
+##### 3007#       发表于 2024-3-31 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64439662&amp;ptid=2130897" target="_blank">natmk 发表于 2024-3-31 19:55</a>
+
+香菜遥老板还能请的来？</blockquote>
+难。
+
+876社长的话「それっと、知ってる通り。私たちのプロダクションには、すってに売れっ子アイドルとして、一人は事務所を兼任している、先輩アイドルもいるだけと…」
+

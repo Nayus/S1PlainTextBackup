@@ -3003,3 +3003,17 @@ syl，小景感觉迅速融入vspo，相比之下krm快4个月了还像个局外
 
 美兔小姐你拉了谁投稿翻唱?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBXX  
+##### 151#       发表于 2024-3-31 09:17
+
+[https://twitter.com/NenkanAlice/status/1773059198823117138](https://twitter.com/NenkanAlice/status/1773059198823117138)
+
+Nenkan Alice(年间爱丽丝/年間アリス)，限定一年后毕业的企划。看起来是个人但是各种制作上看预算都很充足，出道前甚至还有一个手绘动画短片。
+
+而且还有很多“大V”也关注了比较奇妙，可能是华人。
+<img src="https://p.sda1.dev/16/39c69ed5de5975dd972577bae70ddca4/fd481e1f3b88165659d4f5ba657c9527.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/cad96192c6caa635a019cada678b85fc/730766b3f66f3c76616e88a5bb30e55c.png" referrerpolicy="no-referrer">
+

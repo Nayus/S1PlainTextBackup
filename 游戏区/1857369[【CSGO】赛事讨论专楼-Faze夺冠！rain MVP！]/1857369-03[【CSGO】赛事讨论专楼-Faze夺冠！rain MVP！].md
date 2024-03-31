@@ -1341,3 +1341,11 @@ hunter和IM两个人打完major针得滚吧
 
 一觉睡醒刚好看到11比13，一看数据又是小孩坐大牢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4179#       发表于 2024-3-31 09:17
+
+毕竟坐牢才是高手的普遍情况，想不坐牢要么等队伍变成银河战舰，要么自己去银河战舰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小孩出道到现在已经算不那么坐牢了
+

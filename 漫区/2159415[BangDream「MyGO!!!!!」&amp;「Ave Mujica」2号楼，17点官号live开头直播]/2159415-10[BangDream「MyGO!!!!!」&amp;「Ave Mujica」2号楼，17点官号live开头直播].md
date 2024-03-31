@@ -15708,3 +15708,18 @@ ido没有演出，不需要报备啥的
 
 z8看了一眼几个帖子有挖财团千金的、有挖小男友的、有挖学历的，很明显是gachi想证明自家小偶像有钱有势有学历来共荣，唉，爱慕虚荣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 14689#       发表于 2024-3-31 12:41
+
+说实话说不定只是公示改成*号了，内部和之前一样根本没做什么保密
+
+*****
+
+####  御幸一也  
+##### 14690#       发表于 2024-3-31 12:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 這是在做什麼
+

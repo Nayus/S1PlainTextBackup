@@ -16581,3 +16581,11 @@ ano酱？什么时候……（复读）<img src="https://static.saraba1st.com/im
 
 也是一种运营和用户的互相选择吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Renes  
+##### 14774#       发表于 2024-4-1 01:25
+
+愚人节整活ooc才是正常的吧，多少手游角色都在这天ooc，乐一下就过去的事情，有必要这么上纲上线吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

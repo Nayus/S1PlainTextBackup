@@ -16553,3 +16553,23 @@ ano酱？什么时候……（复读）<img src="https://static.saraba1st.com/im
 
 说实话这个搞法多少有点ooc了（指爱音把soyo当提款机），不过大多数人可能真的不怎么在意吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 14771#       发表于 2024-4-1 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64440534&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-3-31 21:47</a>
+
+什么高数哥</blockquote>
+[https://bbs.nga.cn/read.php?tid=39728620](https://bbs.nga.cn/read.php?tid=39728620)
+
+隔壁也发了
+
+*****
+
+####  PDQ4  
+##### 14772#       发表于 2024-4-1 01:00
+
+就单纯鸡狗目前的二创环境，ooc是什么问题，官方角色形象远不如玩梗吸引人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

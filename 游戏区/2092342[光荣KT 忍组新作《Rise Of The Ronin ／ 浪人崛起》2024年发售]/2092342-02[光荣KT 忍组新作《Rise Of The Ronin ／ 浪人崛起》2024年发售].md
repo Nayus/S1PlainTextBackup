@@ -11845,3 +11845,20 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 京都篇开头这堆双boss同场味太冲了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 2688#       发表于 2024-4-1 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442069&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-1 00:35</a>
+
+冲田总司被我救下后，龙马遇刺的时候来帮忙了。高杉晋作在后期的主线还有戏份吗？
+
+龙马给个好结局if线也算 ...</blockquote>
+如果说龙马是类似仁王2猴子定位的副主角，那权藏简直称得上是里主角<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+记得去找胜海舟那个任务倒幕派和佐幕派都不能带，只能带龙马和权藏两个队友
+
+权藏可以说是陪伴隐刀和龙马经历一系列重大历史事件的迷之第三人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

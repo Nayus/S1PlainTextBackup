@@ -15898,3 +15898,25 @@ z8看了一眼几个帖子有挖财团千金的、有挖小男友的、有挖学
 
 ras来的时候不是也盒了，也没这么大反应啊，不如说某些人知道吗，还是火了，mmr太多了
 
+
+*****
+
+####  nebulanoby  
+##### 14709#       发表于 2024-3-31 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436018&amp;ptid=2159415" target="_blank">MERCCCP 发表于 2024-3-31 11:55</a>
+
+卖单独的内场票，不能不算演出吧</blockquote>
+内场票卖的是近距离见面机会还有一些赠品之类的？反正没有传统意义上的演出
+
+其实有演出就一定要公示的，北京那次是压根没公示（不然这次一开始还用猜K、O是谁？），就知道最起码在法律上是没被认定为演出的
+
+*****
+
+####  PDQ4  
+##### 14710#       发表于 2024-3-31 16:28
+
+必有新歌好吧
+
+没有那wsd可以继续似着。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

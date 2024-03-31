@@ -258,3 +258,39 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 大招键和拉着的摇杆一起放开就发出来了。</blockquote>
 啊，我理解有误，只需要主控是LINK SP就OK了，link叫出来的队友不需要LINK SP也能连携~
 
+
+*****
+
+####  江戸前ルナ  
+##### 999#         楼主| 发表于 2024-3-31 16:14
+
+这活动虽然啥都没说，但是发散一下就太乐了
+
+路人学生视角：哇前人气王会长驾着车过来把小鸟接走啦，“怜酱，加油！”<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+队长视角：这会长是借着出差过来见当年追不到的妹子吗？回去给可乐跪洗衣板吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有会长对小鸟各种直撩，然后小鸟各种油盐不进，接着来一句“很期待之后跟队长的长途飞行呢”，小鸟直接炸毛
+
+<img src="https://img.saraba1st.com/forum/202403/31/161335n73fzy7wty7aaj3b.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331161326.png</strong> (87.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:13 上传
+
+这表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有出处不明的改图
+
+<img src="https://img.saraba1st.com/forum/202403/31/161421pieczi20abbc3mic.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331161404.jpg</strong> (70.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:14 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

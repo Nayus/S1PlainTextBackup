@@ -400,3 +400,13 @@ Q娃内战 我已经举办东映了<img src="https://static.saraba1st.com/image/
 这话一家三口氛围很好，是泥潭最爱的魔法使！</blockquote>
 狗主子和男妈妈体会了一把当年被女儿当着全班面叫妈的两位魔法少女母亲的感受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 1262#       发表于 2024-3-31 16:22
+
+华哥听到狗子能上学那段也太淡定了
+
+事实证明了，人是打不过狗的
+

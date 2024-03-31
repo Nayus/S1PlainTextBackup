@@ -9029,3 +9029,14 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 同 18号还是23号的更新后就这毛病了</blockquote>
 当中更新过几次居然都没修复，官方都不知道这个bug的么？
 
+
+*****
+
+####  Launce  
+##### 2352#       发表于 2024-3-31 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64437173&amp;ptid=2170852" target="_blank">リュウセイ 发表于 2024-3-31 14:12</a>
+
+当中更新过几次居然都没修复，官方都不知道这个bug的么？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首发就有的复活BUG和吞武器BUG都没修呢
+

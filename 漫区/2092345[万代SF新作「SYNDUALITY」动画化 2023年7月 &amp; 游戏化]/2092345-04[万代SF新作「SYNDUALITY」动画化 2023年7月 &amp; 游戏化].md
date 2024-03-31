@@ -1261,3 +1261,14 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 
 牢谢跟男主连箭头都没有？这官方过分了点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4554#       发表于 2024-3-31 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64437912&amp;ptid=2092345" target="_blank">何处分可 发表于 2024-03-31 16:09:44</a>
+牢谢跟男主连箭头都没有？这官方过分了点吧</blockquote>甚至只对泛海思有箭头
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

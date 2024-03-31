@@ -320,3 +320,11 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 
 超能力打麻将<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1003#       发表于 2024-4-1 01:11
+
+攒了十票把小鸟游抽出来了，会长再见（。新衣服和短发是绑定的有点难绷。说起来fa记者黑发和角色绑定，但是衣服随便换来着。就不能随便换吗
+

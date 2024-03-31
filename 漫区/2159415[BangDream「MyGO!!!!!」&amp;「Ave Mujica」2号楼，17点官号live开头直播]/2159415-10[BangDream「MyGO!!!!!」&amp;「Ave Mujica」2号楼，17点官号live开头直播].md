@@ -16573,3 +16573,11 @@ ano酱？什么时候……（复读）<img src="https://static.saraba1st.com/im
 
 就单纯鸡狗目前的二创环境，ooc是什么问题，官方角色形象远不如玩梗吸引人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 14773#       发表于 2024-4-1 01:06
+
+也是一种运营和用户的互相选择吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

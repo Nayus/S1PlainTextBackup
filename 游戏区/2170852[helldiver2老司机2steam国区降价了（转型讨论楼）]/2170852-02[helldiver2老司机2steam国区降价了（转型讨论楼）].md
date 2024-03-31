@@ -9040,3 +9040,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 当中更新过几次居然都没修复，官方都不知道这个bug的么？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首发就有的复活BUG和吞武器BUG都没修呢
 
+
+*****
+
+####  Aeons  
+##### 2353#       发表于 2024-3-31 16:58
+
+想问一下野队为什么比起加增援次数更喜欢用减增援预算cd的？
+

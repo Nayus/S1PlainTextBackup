@@ -234,3 +234,20 @@ s1还有个imas楼
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这又是哪个舅舅
 
+
+*****
+
+####  Erikas  
+##### 2985#       发表于 2024-3-31 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">以下请畅所欲言
+
+*****
+
+####  安广多惠子  
+##### 2986#       发表于 2024-3-31 17:02
+
+2024Q4不太友善<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

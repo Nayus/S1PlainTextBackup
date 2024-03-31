@@ -1272,3 +1272,155 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  aptx8285144  
+##### 4555#       发表于 2024-3-31 16:56
+
+<img src="https://img.saraba1st.com/forum/202403/31/155521dc6jp55j3jhmp76o.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331155455.png</strong> (57.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 15:55 上传
+
+开始看<strong>奶茶屋23话</strong>，时雄的道歉jpg
+
+<img src="https://img.saraba1st.com/forum/202403/31/155900app4z0z0ygk4s00r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331155849.png</strong> (57.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 15:59 上传
+
+安洁说的今晚拿下的概念太大了吧，打一炮算拿下，告白也算拿下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/31/160221me44z4oqeeasdco9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331160120.png</strong> (65.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:02 上传
+
+约定
+
+<img src="https://img.saraba1st.com/forum/202403/31/160448mi6issfirikrrnt7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331160414.png</strong> (39.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:04 上传
+
+再次出现的照相机，其实脚本者还是看过以前脚本吧，比如自白回
+
+<img src="https://img.saraba1st.com/forum/202403/31/160653cqldqlqperhhd9ny.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331160635.png</strong> (78.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:06 上传
+
+这张诺娃没站在彼方身边（
+
+<img src="https://img.saraba1st.com/forum/202403/31/161703nt350sot74di75p5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331161654.png</strong> (59.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:17 上传
+
+乐园一直在移动，因此需要米斯特的技术来计算
+
+<img src="https://img.saraba1st.com/forum/202403/31/162203fmq2msgbaauaca2g.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331162154.png</strong> (89.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:22 上传
+
+草，怪不得彼方恐慌，你们这<strong>不是正常的降落</strong><img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/31/162758bca62qq1yoyq4n64.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331162749.png</strong> (104.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:27 上传
+
+乐园是个巨大的档案
+
+<img src="https://img.saraba1st.com/forum/202403/31/164140hepqswihbl55pwtl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331164128.png</strong> (52.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:41 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/164008rm2o42m2ftxooh4h.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331163959.png</strong> (79.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:40 上传
+
+奶茶屋这个翻译感觉比迪士尼<strong>更贴近彼方的愤怒</strong>
+
+<img src="https://img.saraba1st.com/forum/202403/31/164316n7l4ddyffuvvuptf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331164306.png</strong> (82.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:43 上传
+
+马哈特的回应的翻译更流畅
+
+<img src="https://img.saraba1st.com/forum/202403/31/164729mqlfnpn21c5q2kv6.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331164720.png</strong> (63.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:47 上传
+
+这话打戏看得舒服，s2部分<strong>这话打戏最佳应该没悬念</strong>
+
+<img src="https://img.saraba1st.com/forum/202403/31/165004s0brrn4zpppezwev.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331164955.png</strong> (70.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:50 上传
+
+那家伙<strong>一开始</strong>和乐园系统说得目的是这个，瘫痪所有贤士
+
+<img src="https://img.saraba1st.com/forum/202403/31/165442rwsl4ucsvwwls6cc.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331165356.png</strong> (93.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/165450iluithswtgl4lb7d.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240331165419.png</strong> (72.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 16:54 上传
+
+<strong>名台词再现</strong><img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

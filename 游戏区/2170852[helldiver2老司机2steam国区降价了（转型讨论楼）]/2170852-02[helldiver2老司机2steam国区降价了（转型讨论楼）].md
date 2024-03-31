@@ -8972,3 +8972,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  FLZB  
+##### 2346#       发表于 2024-3-31 09:51
+
+保卫战只有没得选的时候才会打，真没人爱打那个撤离任务，纯纯勾史
+

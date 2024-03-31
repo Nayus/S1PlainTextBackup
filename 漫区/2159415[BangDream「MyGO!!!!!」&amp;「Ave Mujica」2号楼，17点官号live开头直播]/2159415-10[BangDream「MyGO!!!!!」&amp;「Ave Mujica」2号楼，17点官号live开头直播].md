@@ -15865,3 +15865,20 @@ z8看了一眼几个帖子有挖财团千金的、有挖小男友的、有挖学
 大家应该对小羊友善一点 ...</blockquote>
 这也不是单向的，对羊的态度本来就不是找乐子烂炒这么简单，她的声望就是这样自然也不可能让人友善就友善的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 14705#       发表于 2024-3-31 15:27
+
+还以为新歌出了……某些人真无聊啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 14706#       发表于 2024-3-31 15:32
+
+三月最后一天了，会发新歌吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

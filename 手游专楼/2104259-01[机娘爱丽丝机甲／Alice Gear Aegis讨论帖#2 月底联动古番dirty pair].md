@@ -302,3 +302,13 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 
 鸟那句我怎么不知道太草了。你游哈士奇莫名躺枪也很好笑（
 
+
+*****
+
+####  冰风血羽  
+##### 1001#       发表于 2024-3-31 19:08
+
+这改图太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -3927,3 +3927,55 @@ rui今天推特发的那个明天凌晨0点的什么企划视频好像有参加
 
 刚才很有意思的一个吐槽，“斯内普完全不适合做校长，说话太TM慢了”
 
+
+*****
+
+####  holoan  
+##### 8541#         楼主| 发表于 2024-3-31 22:08
+
+<img src="https://img.saraba1st.com/forum/202403/31/220800ncgagv60ejzt0amu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 22:08 上传
+
+3300万积分
+
+*****
+
+####  holoan  
+##### 8542#         楼主| 发表于 2024-3-31 22:08
+
+说是第3名实质人气投票
+
+
+*****
+
+####  holoan  
+##### 8543#         楼主| 发表于 2024-3-31 22:12
+
+<img src="https://img.saraba1st.com/forum/202403/31/221232wfvdqbdyarabzq7w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 22:12 上传
+
+不过倍率只有5
+
+*****
+
+####  holoan  
+##### 8544#         楼主| 发表于 2024-3-31 22:13
+
+<img src="https://img.saraba1st.com/forum/202403/31/221312faxjm0sum22yaxly.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 22:13 上传
+

@@ -16369,3 +16369,29 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 最后一排真好，见送会我一秒钟就过去了，啥都没说
 
+
+*****
+
+####  基神的强袭自由  
+##### 14755#       发表于 2024-3-31 22:10
+
+<img src="https://img.saraba1st.com/forum/202403/31/221058tzxlutuuml6g633t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 22:10 上传
+
+*****
+
+####  基神的强袭自由  
+##### 14756#       发表于 2024-3-31 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64440074&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-3-31 20:47</a>
+
+是不是跟着炼金术的元素象征走，大概五月份下一首曲子symbol II 出来看看标志就能确定。
+
+是时候恶补炼金术 ...</blockquote>
+提前点播一首#魔法纪录的ED黑化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

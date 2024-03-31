@@ -11506,3 +11506,24 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 由手机上传
 2024-3-31 16:54 上传
 
+
+*****
+
+####  绯想天の天子  
+##### 2655#       发表于 2024-3-31 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438223&amp;ptid=2092342" target="_blank">战场公主希维尔 发表于 2024-3-31 16:53</a>
+饭刚落怎么伤害还没普通处决伤害高？有点离谱啊。</blockquote>
+因为饭纲落这作不是处决技，敌人处于动摇状态就能发动，所以伤害就低了
+
+
+*****
+
+####  战场公主希维尔  
+##### 2656#       发表于 2024-3-31 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438607&amp;ptid=2092342" target="_blank">绯想天の天子 发表于 2024-03-31 17:46:34</a>
+因为饭纲落这作不是处决技，敌人处于动摇状态就能发动，所以伤害就低了 ...</blockquote>原来如此，难怪用饭刚落处决伤害就一半。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

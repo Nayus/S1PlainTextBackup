@@ -1434,3 +1434,25 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4557#       发表于 2024-3-31 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438595&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-31 17:45</a>
+
+【SYNDUALITY奇异贤伴 爱达之歌1000块洗一次澡-哔哩哔哩】 https://b23.tv/InAUH1o 为什么洗澡要给钱
+
+  -- ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">这什么油桶，还不如直接淋浴呢，游戏里的世界观得残破到什么程度了，住的贫民窟么？
+
+*****
+
+####  renkan119  
+##### 4558#       发表于 2024-3-31 18:07
+
+<blockquote>嘴上名作粉碎锤 发表于 2024-3-31 18:02
+这什么油桶，还不如直接淋浴呢，游戏里的世界观得残破到什么程度了，住的贫民窟么？ ...</blockquote>
+设定上是组织分配给你的 和废墟差不多的房子 要自己一点一点修 试玩只能修到这种程度了 正式版或许能继续修下去
+

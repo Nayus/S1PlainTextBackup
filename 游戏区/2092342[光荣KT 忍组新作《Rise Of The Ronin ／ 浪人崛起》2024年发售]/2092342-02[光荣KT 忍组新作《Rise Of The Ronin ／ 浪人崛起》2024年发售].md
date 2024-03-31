@@ -11527,3 +11527,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  conanoysq  
+##### 2657#       发表于 2024-3-31 17:56
+
+二周目就不好玩儿了，名人人均疯狗，十几连砍三连红光，石火判定缩短，一个没弹到就是吃瘪，试错成本太高，不弹根本没法打，手残白金收工了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

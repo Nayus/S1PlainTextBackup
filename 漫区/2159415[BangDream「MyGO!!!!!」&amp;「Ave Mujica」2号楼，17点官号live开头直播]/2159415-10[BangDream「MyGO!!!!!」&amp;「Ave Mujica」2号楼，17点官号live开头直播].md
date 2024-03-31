@@ -15982,3 +15982,100 @@ wsd加油🏳  我先降低期待
 
 今天是没戏了，等明天了，愚人节也是节日。
 
+
+*****
+
+####  KirigawaMaki  
+##### 14719#       发表于 2024-3-31 18:01
+
+<img src="https://img.saraba1st.com/forum/202403/31/180104e9y05t9bmmm5ro59.png" referrerpolicy="no-referrer">
+
+<strong>20240331180049.png</strong> (82.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 18:01 上传
+
+预告的预告<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 14720#       发表于 2024-3-31 18:01
+
+預告的預告 服了
+
+<img src="https://img.saraba1st.com/forum/202403/31/180132mh0t72ghm9mtrm01.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (198.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 18:01 上传
+
+[https://twitter.com/BDP_AveMujica/status/1774376091529961844](https://twitter.com/BDP_AveMujica/status/1774376091529961844)
+
+
+*****
+
+####  PDQ4  
+##### 14721#       发表于 2024-3-31 18:02
+
+ 本帖最后由 PDQ4 于 2024-3-31 18:05 编辑 
+
+NB，饼的饼。
+
+WSD这是跟国内手游厂取经了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+算了回归预告，第一首曲子是doloris/初华角色曲应该吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 14722#       发表于 2024-3-31 18:03
+
+说了呀，相信wsd
+
+*****
+
+####  御幸一也  
+##### 14723#       发表于 2024-3-31 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他媽的那上週預告個什麼，預告的預告真的大可不必
+
+*****
+
+####  ytttsuuuba  
+##### 14724#       发表于 2024-3-31 18:05
+
+牛逼
+
+*****
+
+####  SakuraのOrigami  
+##### 14725#       发表于 2024-3-31 18:05
+
+ 本帖最后由 SakuraのOrigami 于 2024-3-31 18:06 编辑 
+
+草，预告的预告
+
+*不是这preview怎么这么廉价啊（）
+
+*****
+
+####  ytttsuuuba  
+##### 14726#       发表于 2024-3-31 18:07
+
+这么搞是吧，只能说还好国内粉丝粘性强，就使劲折腾，看这样子明年估计都跑不了粉，真的能作。
+
+*****
+
+####  Aendst  
+##### 14727#       发表于 2024-3-31 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+所以symbol I：△是指谁
+
+基本可以认为就是角色歌了吧
+

@@ -702,3 +702,18 @@ asobi这边感觉不就是债多了不愁，反正一共仨人而且说不定翻
 
 可以算民马大家族第七颗星了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  はらみー  
+##### 3028#       发表于 2024-4-1 00:03
+
+scsp这愚人节活动真是HUGE PLAY,不特意搞怪直接自由组合英雄技能，一玩玩一天
+
+*****
+
+####  二宮飛鳥酱  
+##### 3029#       发表于 2024-4-1 00:08
+
+明年20th手游还活着几个呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

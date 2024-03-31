@@ -725,3 +725,39 @@ scsp这愚人节活动真是HUGE PLAY,不特意搞怪直接自由组合英雄技
 
 scsp 这换衣服功能直接常驻行吗，做都做了
 
+
+*****
+
+####  Seeley  
+##### 3031#       发表于 2024-4-1 00:35
+
+说不准都鲨了，刚好合同大新闻一起推新游戏<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RhmBWT_Wu  
+##### 3032#       发表于 2024-4-1 00:36
+
+BV1UM4m197rn
+百万sp汉化
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  screeper  
+##### 3033#       发表于 2024-4-1 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442072&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-1 00:36</a>
+
+BV1UM4m197rn
+
+百万sp汉化</blockquote>
+做完之后其实也发了B站，不过直接放全片明显过不了审，所以裁掉op两个part分开发了
+
+Part-A -&gt; [https://www.bilibili.com/video/BV1PD421573C/](https://www.bilibili.com/video/BV1PD421573C/)
+
+Part-B -&gt; [https://www.bilibili.com/video/BV1xr421b7Yy/](https://www.bilibili.com/video/BV1xr421b7Yy/)
+

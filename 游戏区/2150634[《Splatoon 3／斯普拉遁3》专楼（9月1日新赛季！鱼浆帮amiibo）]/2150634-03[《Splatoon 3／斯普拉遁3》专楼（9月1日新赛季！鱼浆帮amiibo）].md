@@ -8407,3 +8407,42 @@ bbz来了
 
 bbz不会爆冷了吧
 
+
+*****
+
+####  墨染白泉  
+##### 3816#       发表于 2024-3-31 13:29
+
+好刺激
+
+*****
+
+####  墨染白泉  
+##### 3817#       发表于 2024-3-31 13:29
+
+风怒编辑
+
+
+*****
+
+####  秋月孝三  
+##### 3818#       发表于 2024-3-31 13:34
+
+乙组全灭了，不得不说街霸6确实好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  carroy  
+##### 3819#       发表于 2024-3-31 13:35
+
+甲组全进我去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 3820#       发表于 2024-3-31 13:35
+
+卑鄙队的审查者表现很好了，就是最后被铅笔击杀那下太亏，不然可以赢的
+

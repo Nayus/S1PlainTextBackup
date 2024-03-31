@@ -328,3 +328,17 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 
 攒了十票把小鸟游抽出来了，会长再见（。新衣服和短发是绑定的有点难绷。说起来fa记者黑发和角色绑定，但是衣服随便换来着。就不能随便换吗
 
+
+*****
+
+####  冰风血羽  
+##### 1004#       发表于 2024-4-1 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442267&amp;ptid=2104259" target="_blank">madcow 发表于 2024-4-1 01:11</a>
+攒了十票把小鸟游抽出来了，会长再见（。新衣服和短发是绑定的有点难绷。说起来fa记者黑发和角色绑定，但是 ...</blockquote>
+个人剧情那边做完会给一个短发发型，就可以随意搭配了
+
+顺便60票无会长，残念
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

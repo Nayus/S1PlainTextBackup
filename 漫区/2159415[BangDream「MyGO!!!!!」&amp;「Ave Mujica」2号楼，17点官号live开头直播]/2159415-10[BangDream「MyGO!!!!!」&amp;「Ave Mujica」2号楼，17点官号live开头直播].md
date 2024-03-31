@@ -16293,3 +16293,25 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 2024-3-31 20:22 上传
 
+
+*****
+
+####  御幸一也  
+##### 14749#       发表于 2024-3-31 20:29
+
+這不就是上面發的那些符號嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+順便和群友討論，發現ave五個人星座剛好也是對應的
+
+睦寶：摩羯座（土） EARTH
+
+海鈴：牡羊座（火） FIRE
+
+初華：巨蟹座（水） WATER
+
+喵夢：雙子座（風） AIR
+
+祥子：水瓶座（風） AETHER 
+
+因為有兩個風，所以猜祥子是更特殊的第五元素的以太
+

@@ -567,3 +567,35 @@ s1还有个imas楼
 
 tmd不愧是大企业，有鬼点子的人多啊，换我的话想一个月也想不到还能这么来<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 3011#       发表于 2024-3-31 20:26
+
+asobi这边感觉不就是债多了不愁，反正一共仨人而且说不定翻唱就应付过去了
+
+
+*****
+
+####  游蜓  
+##### 3012#       发表于 2024-3-31 20:30
+
+草，虽然猜到肯定全员过关，塞876确实想不到，我还以为876以后都是彩蛋了
+
+*****
+
+####  安广多惠子  
+##### 3013#       发表于 2024-3-31 20:31
+
+这一手确实没想到，真有你的万南
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Erikas  
+##### 3014#       发表于 2024-3-31 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">挂羊头卖狗肉，有本事把ds三个人叫来啊
+

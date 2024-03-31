@@ -1381,3 +1381,11 @@ hunter和IM两个人打完major针得滚吧
 
 已经快七擒孟获了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，太有捕🦐了李神
 
+
+*****
+
+####  ork  
+##### 4184#       发表于 2024-4-1 02:40
+
+faze这枪是真软，感觉对枪很容易输
+

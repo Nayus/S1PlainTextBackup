@@ -8179,3 +8179,68 @@ BBZ还是强
 
 最强饮料机果然还是铅笔，审查者贴牌给个螃蟹或RPG吧
 
+
+*****
+
+####  墨染白泉  
+##### 3791#       发表于 2024-3-31 11:18
+
+修马该去一般组了，在小学组里完全乱鲨
+
+*****
+
+####  shirolin  
+##### 3792#       发表于 2024-3-31 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435506&amp;ptid=2150634" target="_blank">raii 发表于 2024-3-31 11:00</a>
+喷3新人练手说彻底坐实</blockquote>
+占地斗士也是新人做的
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  litemania  
+##### 3793#       发表于 2024-3-31 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64430228&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-3-30 19:11</a>
+今天翻译了一下秩序篇Fami通的开发者访谈。
+
+内容比较多：https://splatoon.com.cn/page/50</blockquote>
+同じタコどうしで、ヒメとはまた違った形でイイダと対に見えるところもいいと思いました。（井上氏）
+
+冒昧捉个虫，这里原文应该没错，说的是水田和饭田同为章鱼，以区别于小姬的形式和饭田形成了一组对照，也很不错。
+
+单箭头水饭组+1昏！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月孝三  
+##### 3794#       发表于 2024-3-31 11:21
+
+田口和野上还蛮搭的，都是哭包，下次甲子园也让田口解说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  shirolin  
+##### 3795#       发表于 2024-3-31 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64435669&amp;ptid=2150634" target="_blank">litemania 发表于 2024-3-31 11:20</a>
+同じタコどうしで、ヒメとはまた違った形でイイダと対に見えるところもいいと思いました。（井上氏）
+
+冒 ...</blockquote>
+原来如此！确实应该是这个意思。
+感谢指正！
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Ryuuseigun  
+##### 3796#       发表于 2024-3-31 11:22
+
+总体烂中带点好，喷3算一个大学生课后小组作业<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

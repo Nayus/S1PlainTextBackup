@@ -1365,3 +1365,11 @@ hunter和IM两个人打完major针得滚吧
 
 看着李神带着这套阵容打进决赛也太励志了。整个4强除了蜜蜂，一堆Niko指挥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KevinGraham  
+##### 4182#       发表于 2024-3-31 11:17
+
+一觉起来看到navi又捕🦐成功了，太有战术了李子
+

@@ -1216,3 +1216,11 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 <img src="https://img.saraba1st.com/forum/202403/31/231227hm8edd26ndgdshan.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holyblood  
+##### 11943#       发表于 2024-4-1 02:23
+
+新人quest那个main quest 进行度加一的怎么做？做main quest里的free quest好像没用。如果主红打完是不是不能做了
+

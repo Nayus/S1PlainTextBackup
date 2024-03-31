@@ -357,3 +357,87 @@ s1还有个imas楼
 
 2024-3-31 18:40 上传
 
+
+*****
+
+####  wfhtony  
+##### 2998#       发表于 2024-3-31 19:35
+
+ 本帖最后由 wfhtony 于 2024-3-31 19:37 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/31/193427wnja1fltb6411rfb.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h33m12s814.jpg</strong> (62.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/193427pe735k3s9qm3a5j7.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h33m47s997.jpg</strong> (104.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/193427ef2u2yr59cdbsorr.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h34m17s313.jpg</strong> (90.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/193427ixqxji70jvicrigl.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h34m23s288.jpg</strong> (98.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/193504ek9zcrer62zkrreg.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h34m34s375.jpg</strong> (212.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:35 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/193505uc57tdy577kllmld.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h34m46s319.jpg</strong> (225.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:35 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/193506ufif0b06706pfpk0.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h34m58s162.jpg</strong> (196.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:35 上传
+
+全员出道确定。
+
+<img src="https://img.saraba1st.com/forum/202403/31/193711l4rxxrxcr619w22c.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h35m51s553.jpg</strong> (146.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:37 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/193711atgsickjkb0slsb6.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-03-31-19h36m01s291.jpg</strong> (70.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 19:37 上传
+
+看样子，管马仕三位是要加入876（DS）了啊。
+

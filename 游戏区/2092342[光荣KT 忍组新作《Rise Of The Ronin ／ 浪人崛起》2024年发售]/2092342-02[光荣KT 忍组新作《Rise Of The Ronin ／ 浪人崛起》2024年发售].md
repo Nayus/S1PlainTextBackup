@@ -11473,3 +11473,36 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 但是有些武技打空精力造成的特殊处决，可以在处决过程中回满精力，比如春岚蜻蜓，打完直接精力回满
 
+
+*****
+
+####  战场公主希维尔  
+##### 2653#       发表于 2024-3-31 16:53
+
+饭刚落怎么伤害还没普通处决伤害高？有点离谱啊。
+
+*****
+
+####  战场公主希维尔  
+##### 2654#       发表于 2024-3-31 16:54
+
+今天调整了一下。
+
+<img src="https://img.saraba1st.com/forum/202403/31/165409ycnys5vfekg3sz3u.jpg" referrerpolicy="no-referrer">
+
+<strong>18e93b160f434-screenshotUrl.jpg</strong> (73.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-31 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/165410d26phev3nhm6hk6k.jpg" referrerpolicy="no-referrer">
+
+<strong>18e93b1420610-screenshotUrl.jpg</strong> (124.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-3-31 16:54 上传
+

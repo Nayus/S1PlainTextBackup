@@ -3066,3 +3066,16 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 
 感觉会是底边的一生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 155#       发表于 2024-3-31 12:28
+
+<blockquote>也有一種情況是大家都一樣只有你不一樣的時候被抓出來鞭
+這點無論哪箱人際關係比較邊緣的那幾個人大概都經歷過
+最近大概就大小姐參加獅白杯
+可是直播和推特tag和留言都不寫"獅白杯"
+而是寫"SF6大會"或"外部大會"(之前葛葉杯就會照寫)
+因為全部參賽者只有她是這樣，就很容易被抓出來當梗</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

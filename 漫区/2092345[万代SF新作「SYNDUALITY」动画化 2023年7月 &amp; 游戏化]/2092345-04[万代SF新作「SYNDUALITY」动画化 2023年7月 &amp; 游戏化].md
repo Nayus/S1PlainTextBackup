@@ -1187,3 +1187,21 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 精神胜利也是一种赢法啊</blockquote>
 官方关系图里艾女士和彼方的箭头已经双向奔赴了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  natmk  
+##### 4546#       发表于 2024-3-31 12:24
+
+牢谢和男主居然没箭头
+
+*****
+
+####  aptx8285144  
+##### 4547#       发表于 2024-3-31 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436169&amp;ptid=2092345" target="_blank">novyDC 发表于 2024-3-31 12:12</a>
+
+艾莉这算赢了吧</blockquote>
+之前没有红心也没有双向箭头的，这下官方认证了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

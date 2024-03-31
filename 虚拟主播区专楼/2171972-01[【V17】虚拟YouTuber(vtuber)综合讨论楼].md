@@ -3088,3 +3088,11 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436315&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2024-3-31 12:28</a></blockquote>
 这是又想蹭杏又不想得罪虹粉？一般这种既要又要的结果就是两头不讨好吧<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 157#       发表于 2024-3-31 14:16
+
+有没有人说说奈罗花在狮白杯同组里是什么水平，我好调整看戏心态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

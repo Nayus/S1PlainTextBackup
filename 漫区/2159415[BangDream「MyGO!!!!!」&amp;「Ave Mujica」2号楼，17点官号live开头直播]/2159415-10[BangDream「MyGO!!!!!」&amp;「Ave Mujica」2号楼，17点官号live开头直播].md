@@ -16459,3 +16459,19 @@ b站找不到直播官方给的地址又锁ip，有没有说说这个电视台�
 有点谔谔了，愚人节发这个什么意思</blockquote>
 每個月1號他都發的。
 
+
+*****
+
+####  基神的强袭自由  
+##### 14763#       发表于 2024-3-31 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64439930&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-3-31 20:29</a>
+這不就是上面發的那些符號嗎
+
+順便和群友討論，發現ave五個人星座剛好也是對應的</blockquote>
+不好意思加鹅附言选错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便在英雄无敌世界观里，第五元素是魔法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

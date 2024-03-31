@@ -365,3 +365,11 @@ Q娃内战 我已经举办东映了<img src="https://static.saraba1st.com/image/
 
 看这进度猫怕是也要来上学，班上的男性还够不够了，不然追加俩转学生吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kreis  
+##### 1258#       发表于 2024-3-31 13:23
+
+猫狗来历都有问题，小麦原主的flag看来可以拔了。
+

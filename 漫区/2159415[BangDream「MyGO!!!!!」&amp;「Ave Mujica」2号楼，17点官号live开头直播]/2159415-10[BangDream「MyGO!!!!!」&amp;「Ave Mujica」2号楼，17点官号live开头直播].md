@@ -16589,3 +16589,44 @@ ano酱？什么时候……（复读）<img src="https://static.saraba1st.com/im
 
 愚人节整活ooc才是正常的吧，多少手游角色都在这天ooc，乐一下就过去的事情，有必要这么上纲上线吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14775#       发表于 2024-4-1 01:38
+
+尊重 祝福<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+但是我希望ave mujica不要搞這個。
+
+*****
+
+####  PDQ4  
+##### 14776#       发表于 2024-4-1 01:38
+
+运营最好真的知道自己在ooc。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他是第一次玩梗吗，我怎么觉得他是真的语c上瘾了，官号皮下是爱音都快成既定事实了。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+二偶企划这么搞确实挺有意思的，以后有烂活了评论区也扣爱音头上别有意见就行。
+
+不过我不是爱音厨也早切割这个B号了，干啥都和我没关系。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月光的道标  
+##### 14777#       发表于 2024-4-1 01:42
+
+[https://www.anontokyo.com/](https://www.anontokyo.com/)
+
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/01/014225ss5gzzwsyj1lcwcg.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-04-01 014029.png</strong> (107 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 01:42 上传
+

@@ -9048,3 +9048,13 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 想问一下野队为什么比起加增援次数更喜欢用减增援预算cd的？
 
+
+*****
+
+####  Noel  
+##### 2354#       发表于 2024-3-31 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438264&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-3-31 16:58</a>
+想问一下野队为什么比起加增援次数更喜欢用减增援预算cd的？</blockquote>
+如果中途加入的带加增援数的不是+4，只+1。减cd不会打折扣
+

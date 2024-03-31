@@ -8446,3 +8446,36 @@ bbz不会爆冷了吧
 
 卑鄙队的审查者表现很好了，就是最后被铅笔击杀那下太亏，不然可以赢的
 
+
+*****
+
+####  墨染白泉  
+##### 3821#       发表于 2024-3-31 13:38
+
+戴拿萌今天状态真不行
+
+*****
+
+####  紫菜粉丝煲  
+##### 3822#       发表于 2024-3-31 13:39
+
+心之怪盗的电锯是谁
+
+*****
+
+####  raii  
+##### 3823#       发表于 2024-3-31 13:42
+
+所有拿过甲子园冠军的旧王者自此全部出局，3代的甲子园应该有一组新王者了
+
+*****
+
+####  秋月孝三  
+##### 3824#       发表于 2024-3-31 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436948&amp;ptid=2150634" target="_blank">raii 发表于 2024-3-31 13:42</a>
+所有拿过甲子园冠军的旧王者自此全部出局，3代的甲子园应该有一组新王者了 ...</blockquote>
+りぃれ：我还没肘呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

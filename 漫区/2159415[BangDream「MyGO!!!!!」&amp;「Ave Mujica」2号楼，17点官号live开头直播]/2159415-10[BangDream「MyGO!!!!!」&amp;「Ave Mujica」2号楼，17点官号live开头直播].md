@@ -16338,3 +16338,26 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 14752#       发表于 2024-3-31 21:46
+
+预告的预告还行，藏着掖着这么久就别整点立绘平移的mv了
+
+*****
+
+####  6030sylar  
+##### 14753#       发表于 2024-3-31 21:47
+
+<img src="https://img.saraba1st.com/forum/202403/31/214711ryltvglfhivi5r15.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (207.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 21:47 上传
+
+什么高数哥
+

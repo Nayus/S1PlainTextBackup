@@ -16168,3 +16168,20 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 14737#       发表于 2024-3-31 18:33
+
+海铃生日发初华角色歌是否暗示第二季主推初海
+
+*****
+
+####  御幸一也  
+##### 14738#       发表于 2024-3-31 18:33
+
+預告的時候第一個出來的顏色是睦，新曲在4/7海鈴生日丟，然後代表元素是火，符號是個三角形<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我放棄，猜不到會是誰的角色曲
+

@@ -11553,3 +11553,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 感觉大家的朴素心态还是无法接受义和团行为，以及跟着魅力角色龙马跑准没错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2659#       发表于 2024-3-31 18:32
+
+京都刷100%后回了趟江户，回来地图上的治安事件全刷新了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，什么鬼bug
+

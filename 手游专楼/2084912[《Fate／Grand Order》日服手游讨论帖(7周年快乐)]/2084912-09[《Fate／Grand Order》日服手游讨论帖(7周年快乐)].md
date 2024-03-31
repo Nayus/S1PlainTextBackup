@@ -1224,3 +1224,11 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 新人quest那个main quest 进行度加一的怎么做？做main quest里的free quest好像没用。如果主红打完是不是不能做了
 
+
+*****
+
+####  v22325  
+##### 11944#       发表于 2024-4-1 03:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这次黑贞还是没出
+

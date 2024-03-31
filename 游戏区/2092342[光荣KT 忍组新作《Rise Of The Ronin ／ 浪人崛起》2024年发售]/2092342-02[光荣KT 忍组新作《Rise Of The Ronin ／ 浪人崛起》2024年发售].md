@@ -11784,3 +11784,26 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 我现在短枪处决体感有普通处决两倍的伤害，不知道为啥那么离谱
 
+
+*****
+
+####  战场公主希维尔  
+##### 2682#       发表于 2024-3-31 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64440898&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2024-03-31 22:29:14</a>
+是怎么让女主露出这么深的刀疤的？
+
+我无论怎么穿女主缠胸都快缠到锁骨了 ...</blockquote>就是普通的最大胸，然后只穿外套不穿上衣啊。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  战场公主希维尔  
+##### 2683#       发表于 2024-3-31 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64441142&amp;ptid=2092342" target="_blank">ネコカイザー 发表于 2024-03-31 22:54:46</a>
+楼友教我的。饭刚落的使用时机不是处决，而是你弹对方红光位移到对方身后时普攻一下就可以放饭刚落。 ...</blockquote>好的，我也去试一试。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

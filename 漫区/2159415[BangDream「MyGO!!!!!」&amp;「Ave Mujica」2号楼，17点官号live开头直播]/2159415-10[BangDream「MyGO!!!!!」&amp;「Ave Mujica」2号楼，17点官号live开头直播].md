@@ -16641,3 +16641,11 @@ ano酱？什么时候……（复读）<img src="https://static.saraba1st.com/im
 愚人节整活ooc才是正常的吧，多少手游角色都在这天ooc，乐一下就过去的事情，有必要这么上纲上线吗 ...</blockquote>
 大概是太接近现实反而有点不适的感觉？真搞点大魔王征服世界之类的反而不会这么奇怪，不过看大部分人都挺喜欢的，尊重祝福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 14779#       发表于 2024-4-1 02:32
+
+b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还有哪里能看吗
+

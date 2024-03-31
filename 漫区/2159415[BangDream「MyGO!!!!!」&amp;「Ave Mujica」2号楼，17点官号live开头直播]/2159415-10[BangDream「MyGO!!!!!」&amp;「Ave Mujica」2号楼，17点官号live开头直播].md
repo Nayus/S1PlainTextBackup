@@ -15811,3 +15811,16 @@ z8看了一眼几个帖子有挖财团千金的、有挖小男友的、有挖学
 
 2024-3-31 13:55 上传
 
+
+*****
+
+####  PDQ4  
+##### 14700#       发表于 2024-3-31 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64437019&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-31 13:52</a>
+
+除此之外还有浑水摸鱼的羊gachi试图禁掉所有z8内容并且把烤羊的都打成z8搞事 ...</blockquote>
+这算什么，一滴紫原则吗
+
+而且不用查成分，只要感觉你像z8来的就是z87干的是吧，这么查下去不全是z87。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

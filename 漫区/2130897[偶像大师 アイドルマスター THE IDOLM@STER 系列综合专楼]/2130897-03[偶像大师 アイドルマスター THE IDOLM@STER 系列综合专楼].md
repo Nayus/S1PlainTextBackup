@@ -331,3 +331,29 @@ s1还有个imas楼
 
 ----发送自 [Xiaomi 2304FPN6DC,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  wfhtony  
+##### 2997#       发表于 2024-3-31 18:38
+
+ 本帖最后由 wfhtony 于 2024-3-31 18:40 编辑 
+
+<img src="https://img.saraba1st.com/forum/202403/31/183756h40g20yu0p5ejqgu.jpg" referrerpolicy="no-referrer">
+
+<strong>mvQbic9-kbebZ1aT3cS1hc-u0.jpg</strong> (230.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 18:37 上传
+
+正中间的那面旗，是4chan专楼（/@/）的老哥们共通创作的。
+
+<img src="https://img.saraba1st.com/forum/202403/31/184049sk1o1i4yy91ocjiz.jpg" referrerpolicy="no-referrer">
+
+<strong>1711873982421898.jpg</strong> (815.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 18:40 上传
+

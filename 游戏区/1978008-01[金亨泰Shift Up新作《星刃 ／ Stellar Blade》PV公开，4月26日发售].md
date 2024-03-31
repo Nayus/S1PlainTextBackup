@@ -2559,3 +2559,13 @@ BOSS粉光招式闪避后会暴露弱点，枪是这时候打弱点的。防御�
 
 日亚没货了？
 
+
+*****
+
+####  宛若青空  
+##### 651#       发表于 2024-3-31 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438712&amp;ptid=1978008" target="_blank">crosz1985 发表于 2024-3-31 18:03</a>
+日亚没货了？</blockquote>
+收货地址改个日本地址应该就能看到了
+

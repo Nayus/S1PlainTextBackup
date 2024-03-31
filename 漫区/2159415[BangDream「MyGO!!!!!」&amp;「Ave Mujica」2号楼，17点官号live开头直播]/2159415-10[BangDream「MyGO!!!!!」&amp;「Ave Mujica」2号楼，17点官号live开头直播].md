@@ -16185,3 +16185,42 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 我放棄，猜不到會是誰的角色曲
 
+
+*****
+
+####  PDQ4  
+##### 14739#       发表于 2024-3-31 18:38
+
+已经和四个人可以拉上关系了，难道答案是剩下的那位吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 14740#       发表于 2024-3-31 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">排除法是吧
+
+*****
+
+####  基神的强袭自由  
+##### 14741#       发表于 2024-3-31 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438139&amp;ptid=2159415" target="_blank">小小雪空 发表于 2024-3-31 16:42</a>
+萌萌人是好的，我要当一辈子萌萌人……</blockquote>
+卧槽雪帝也看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小小雪空  
+##### 14742#       发表于 2024-3-31 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64439084&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-3-31 18:46</a>
+
+卧槽雪帝也看吗
+
+—— 来自 S1Fun</blockquote>
+有一说一，我早在上年tv第一集播的时候就在了好吗？
+

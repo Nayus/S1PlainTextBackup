@@ -389,3 +389,14 @@ Q娃内战 我已经举办东映了<img src="https://static.saraba1st.com/image/
 
 这话一家三口氛围很好，是泥潭最爱的魔法使！
 
+
+*****
+
+####  pokemon最爱  
+##### 1261#       发表于 2024-3-31 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64437306&amp;ptid=2162354" target="_blank">wly 发表于 2024-3-31 14:32</a>
+
+这话一家三口氛围很好，是泥潭最爱的魔法使！</blockquote>
+狗主子和男妈妈体会了一把当年被女儿当着全班面叫妈的两位魔法少女母亲的感受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

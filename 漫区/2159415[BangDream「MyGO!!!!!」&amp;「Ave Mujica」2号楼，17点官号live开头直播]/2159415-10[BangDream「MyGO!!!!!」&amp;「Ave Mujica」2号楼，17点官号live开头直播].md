@@ -16665,3 +16665,20 @@ b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你老了
 
+
+*****
+
+####  基神的强袭自由  
+##### 14782#       发表于 2024-4-1 03:23
+
+每天告诫自己：为人处世低调不圆滑，言行不油腻、有边界感。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  H2Ofrozen  
+##### 14783#       发表于 2024-4-1 03:26
+
+我觉得世界是一个巨大的ooc
+

@@ -291,3 +291,15 @@ low王哪怕是之前也比不过高配方阵吧，前者就插几个lm可能还
 
 说明不缺季限，是幸福的人<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是这样  
+##### 17843#       发表于 2024-3-31 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436082&amp;ptid=1158205" target="_blank">Geyorkias 发表于 2024-3-31 12:01</a>
+说明不缺季限，是幸福的人</blockquote>
+主要是感觉摆烂的属性就算超了个季限也用不太上，等盘子跟上估计也要淘汰了
+
+— from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

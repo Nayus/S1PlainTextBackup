@@ -8630,3 +8630,56 @@ P5天下第一！
 
 好像每局都是黄队先压制后被反杀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 3842#       发表于 2024-3-31 14:54
+
+太励志了
+
+*****
+
+####  墨染白泉  
+##### 3843#       发表于 2024-3-31 14:55
+
+风怒编辑
+
+*****
+
+####  raii  
+##### 3844#       发表于 2024-3-31 14:56
+
+我说什么，tukuyomi这个男人就是要赢的，剧本一开始都写好了，他太有冠军相了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 3845#       发表于 2024-3-31 14:57
+
+没人科普下这队都是哪些上位势么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  569  
+##### 3846#       发表于 2024-3-31 14:59
+
+哦—大家都去贴牌电锯的时候坚持触手电锯。。厉害
+
+
+*****
+
+####  oi99o  
+##### 3847#       发表于 2024-3-31 15:01
+
+野上这是审问选手来决定之后削什么吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raii  
+##### 3848#       发表于 2024-3-31 15:01
+
+本质还是看地图，有些图蜘蛛侠还是比螃蟹上限高
+

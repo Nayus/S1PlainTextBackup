@@ -8770,3 +8770,13 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 
 这游戏在日本上位势年龄层非常低的，20都可以算老选手了，namon连续6届打进甲子园全国决赛的伟业很难后有来者
 
+
+*****
+
+####  carroy  
+##### 3859#       发表于 2024-3-31 22:45
+
+看完甲子园心潮澎湃准备开始快乐喷喷
+打了两局连败
+没事了我还是看比赛吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

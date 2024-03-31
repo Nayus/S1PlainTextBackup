@@ -11717,3 +11717,29 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 我无论怎么穿女主缠胸都快缠到锁骨了
 
+
+*****
+
+####  Booorunestud  
+##### 2674#       发表于 2024-3-31 22:44
+
+同时和三个人比翼了，这游戏对后宫的限制是啥来着
+
+
+*****
+
+####  ネコカイザー  
+##### 2675#       发表于 2024-3-31 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438223&amp;ptid=2092342" target="_blank">战场公主希维尔 发表于 2024-3-31 16:53</a>
+
+饭刚落怎么伤害还没普通处决伤害高？有点离谱啊。</blockquote>
+楼友教我的。饭刚落的使用时机不是处决，而是你弹对方红光位移到对方身后时普攻一下就可以放饭刚落。
+
+*****
+
+####  ネコカイザー  
+##### 2676#       发表于 2024-3-31 22:55
+
+我是真不想跟男人比翼，但龙马的比翼道具是核心中的核心，没办法。比完赶紧离了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

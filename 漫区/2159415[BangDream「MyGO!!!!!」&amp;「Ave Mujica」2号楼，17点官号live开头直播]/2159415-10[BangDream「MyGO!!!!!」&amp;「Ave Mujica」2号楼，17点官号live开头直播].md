@@ -16531,3 +16531,25 @@ b站找不到直播官方给的地址又锁ip，有没有说说这个电视台�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 14768#       发表于 2024-4-1 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">反正让观众老爷不爽就骂到让老登亲自来道歉赔罪（望向隔壁sif2
+
+*****
+
+####  Mr.Giraffe  
+##### 14769#       发表于 2024-4-1 00:50
+
+ano酱？什么时候……（复读）<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 14770#       发表于 2024-4-1 00:51
+
+说实话这个搞法多少有点ooc了（指爱音把soyo当提款机），不过大多数人可能真的不怎么在意吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

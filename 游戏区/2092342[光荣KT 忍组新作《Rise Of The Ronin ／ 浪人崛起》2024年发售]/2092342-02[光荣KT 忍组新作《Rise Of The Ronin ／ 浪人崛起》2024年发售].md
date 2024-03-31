@@ -11837,3 +11837,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 同时和三个人比翼了，这游戏对后宫的限制是啥来着</blockquote>
 看不到最后一段姻缘动画。
 
+
+*****
+
+####  zqqwe  
+##### 2687#       发表于 2024-4-1 00:51
+
+京都篇开头这堆双boss同场味太冲了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

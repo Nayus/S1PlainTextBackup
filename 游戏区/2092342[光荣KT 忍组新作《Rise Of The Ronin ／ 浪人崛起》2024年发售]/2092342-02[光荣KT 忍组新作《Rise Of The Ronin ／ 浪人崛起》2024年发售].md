@@ -11620,3 +11620,19 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 游戏里没把禁门之变之后的第一次长州征伐做进来算是给足长州面子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2666#       发表于 2024-3-31 21:14
+
+<blockquote>[ nagitoY replied on 2024-3-31 20:45](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64440056&amp;ptid=2092342) 救了总司后，显示他在西本愿寺。去了后到处都找不到人之前他生病躺的位置是空的。难道昨晚支线连和他聊天都不行吗？我看还有好感度，不能比翼吗？  自机是男性，和男npc都不能比翼？那比翼道具不是血亏 </blockquote>
+高杉晋作支线做完了就可以比翼，那看来总司是时机还没到，要推主线？来自: iPhone客户端
+
+*****
+
+####  nagitoY  
+##### 2667#       发表于 2024-3-31 21:16
+
+为了拿比翼道具，只能搞男同？？？来自: iPhone客户端
+

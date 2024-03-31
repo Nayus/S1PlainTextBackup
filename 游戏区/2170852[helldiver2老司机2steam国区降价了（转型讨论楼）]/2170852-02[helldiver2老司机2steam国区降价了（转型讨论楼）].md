@@ -9092,3 +9092,13 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 废毛锁定本来就那样，近距离瞄准目标射一发能180度拐回来秒杀玩家<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灰色蔓延  
+##### 2359#       发表于 2024-4-1 00:07
+
+愚人节了，箭头社的整活呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

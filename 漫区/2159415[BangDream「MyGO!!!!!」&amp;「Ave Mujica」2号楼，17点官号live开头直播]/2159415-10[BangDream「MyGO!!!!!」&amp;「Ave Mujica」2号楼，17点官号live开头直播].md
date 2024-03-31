@@ -16475,3 +16475,29 @@ b站找不到直播官方给的地址又锁ip，有没有说说这个电视台�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 14764#       发表于 2024-4-1 00:09
+
+初祥加油<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/01/000922yj7cf1t419z77ddt.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20240331-145926_1774451443594051715_photo-0.jpg</strong> (90.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 00:09 上传
+
+<img src="https://img.saraba1st.com/forum/202404/01/000922ggy4mpddhhhumm4o.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20240331-145926_1774451443594051715_photo-1.jpg</strong> (79.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 00:09 上传
+
+[https://twitter.com/bpdne/status/1774451443594051715](https://twitter.com/bpdne/status/1774451443594051715)
+

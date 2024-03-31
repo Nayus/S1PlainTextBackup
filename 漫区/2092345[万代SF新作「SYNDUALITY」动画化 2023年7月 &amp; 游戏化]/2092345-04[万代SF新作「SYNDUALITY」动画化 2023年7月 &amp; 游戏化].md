@@ -1424,3 +1424,13 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 
 <strong>名台词再现</strong><img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4556#       发表于 2024-3-31 17:45
+
+【SYNDUALITY奇异贤伴 爱达之歌1000块洗一次澡-哔哩哔哩】 https://b23.tv/InAUH1o 为什么洗澡要给钱
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

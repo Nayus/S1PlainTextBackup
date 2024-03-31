@@ -1456,3 +1456,16 @@ Daydream的TV截取版的清唱听多了，反而不太能接受完整版的编�
 这什么油桶，还不如直接淋浴呢，游戏里的世界观得残破到什么程度了，住的贫民窟么？ ...</blockquote>
 设定上是组织分配给你的 和废墟差不多的房子 要自己一点一点修 试玩只能修到这种程度了 正式版或许能继续修下去
 
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 4559#       发表于 2024-3-31 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438751&amp;ptid=2092345" target="_blank">renkan119 发表于 2024-3-31 18:07</a>
+
+设定上是组织分配给你的 和废墟差不多的房子 要自己一点一点修 试玩只能修到这种程度了 正式版或许能继续 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">分配的……不能玩家自由调配么
+
+这游戏之前不是PVPVE机制的么？
+

@@ -9102,3 +9102,13 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  cloudccpro  
+##### 2360#       发表于 2024-4-1 00:20
+
+<blockquote>LrGsite 发表于 2024-3-31 18:20
+最近打机器人多,越来越觉得这飞矛的锁定真是一坨屎,要不改成COD里的那种吧,长按可以强制锁定 ...</blockquote>
+有类星体飞矛可以直接扔了
+

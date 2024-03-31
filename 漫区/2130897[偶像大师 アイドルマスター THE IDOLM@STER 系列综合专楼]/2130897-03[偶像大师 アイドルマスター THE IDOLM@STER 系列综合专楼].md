@@ -717,3 +717,11 @@ scsp这愚人节活动真是HUGE PLAY,不特意搞怪直接自由组合英雄技
 
 明年20th手游还活着几个呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sliver1997  
+##### 3030#       发表于 2024-4-1 00:16
+
+scsp 这换衣服功能直接常驻行吗，做都做了
+

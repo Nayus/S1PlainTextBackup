@@ -312,3 +312,11 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  江戸前ルナ  
+##### 1002#         楼主| 发表于 2024-4-1 00:24
+
+超能力打麻将<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

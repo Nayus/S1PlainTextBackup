@@ -16501,3 +16501,14 @@ b站找不到直播官方给的地址又锁ip，有没有说说这个电视台�
 
 [https://twitter.com/bpdne/status/1774451443594051715](https://twitter.com/bpdne/status/1774451443594051715)
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14765#       发表于 2024-4-1 00:24
+
+<img src="https://p.sda1.dev/16/1536632e342c416fdacc317f089c7463/IMG_96BDECB42CEF9556297DAF28C3E12D95.png" referrerpolicy="no-referrer">
+啊，不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

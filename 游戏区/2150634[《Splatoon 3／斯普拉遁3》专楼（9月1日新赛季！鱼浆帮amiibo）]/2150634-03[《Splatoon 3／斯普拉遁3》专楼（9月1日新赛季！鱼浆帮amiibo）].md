@@ -8752,3 +8752,11 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  苍蓝之枪  
+##### 3857#       发表于 2024-3-31 19:51
+
+一到900就连败，鲑坝这到底要怎么打
+

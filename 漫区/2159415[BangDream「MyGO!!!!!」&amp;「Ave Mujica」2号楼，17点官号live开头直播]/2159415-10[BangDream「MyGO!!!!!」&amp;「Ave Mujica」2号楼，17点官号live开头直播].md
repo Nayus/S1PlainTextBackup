@@ -15775,3 +15775,39 @@ z8看了一眼几个帖子有挖财团千金的、有挖小男友的、有挖学
 
 隔壁专楼怎么老是有乐子看来自: iPhone客户端
 
+
+*****
+
+####  蒜灵  
+##### 14697#       发表于 2024-3-31 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436678&amp;ptid=2159415" target="_blank">NODY 发表于 2024-3-31 13:08</a>
+本质就是火了，跳脸本人的变多是因为火了引来不明生物，不满的人多是因为火了mmr也多 ...</blockquote>
+确实，nga的mmr感觉比泥潭多一个数量级
+
+
+*****
+
+####  NODY  
+##### 14698#       发表于 2024-3-31 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436994&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-3-31 13:49</a>
+
+确实，nga的mmr感觉比泥潭多一个数量级</blockquote>
+除此之外还有浑水摸鱼的羊gachi试图禁掉所有z8内容并且把烤羊的都打成z8搞事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 14699#       发表于 2024-3-31 13:55
+
+@Bullfalk
+
+<img src="https://img.saraba1st.com/forum/202403/31/135534liginr3jtbgtij6z.jpg" referrerpolicy="no-referrer">
+
+<strong>GJ813r_bEAA0cWB.jpg</strong> (280.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 13:55 上传
+

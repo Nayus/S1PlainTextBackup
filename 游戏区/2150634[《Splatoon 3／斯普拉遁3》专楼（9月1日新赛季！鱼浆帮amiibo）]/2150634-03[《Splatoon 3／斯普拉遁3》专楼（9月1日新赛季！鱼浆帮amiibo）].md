@@ -8479,3 +8479,39 @@ bbz不会爆冷了吧
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  raii  
+##### 3825#       发表于 2024-3-31 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436956&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-3-31 13:43</a>
+
+りぃれ：我还没肘呢
+
+—— 来自 OPPO PDEM30, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+草我忘了 我一直以为他不在another里面
+
+那TR千万别赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  martinium  
+##### 3826#       发表于 2024-3-31 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64436924&amp;ptid=2150634" target="_blank">紫菜粉丝煲 发表于 2024-3-31 13:39</a>
+心之怪盗的电锯是谁</blockquote>
+つくよみ
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  秋月孝三  
+##### 3827#       发表于 2024-3-31 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有短弓，没有饮料，没有胜利
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

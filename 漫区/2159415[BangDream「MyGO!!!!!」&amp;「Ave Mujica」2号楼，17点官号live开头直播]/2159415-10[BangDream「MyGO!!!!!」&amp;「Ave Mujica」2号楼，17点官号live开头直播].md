@@ -16395,3 +16395,11 @@ wsd……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 是时候恶补炼金术 ...</blockquote>
 提前点播一首#魔法纪录的ED黑化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14757#       发表于 2024-3-31 22:24
+
+虽然赛博小祥这个小说给mujica拉了大量新粉，不过我觉得里面的角色人设已经差不多是半原创的二设了，偏偏还有不少二设入脑觉得原作也这样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

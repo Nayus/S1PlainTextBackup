@@ -11654,3 +11654,53 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 多加这条线确实还行，任务结束后去扫墓，必然会经过不久前拍照的地方，之后再度和龙马来到游郭，哪怕不再是 ...</blockquote>
 我后来查相关历史人物，发现人家是后面出家最后正常年老病死的，我就搞不懂这光荣，本来没死的硬给写死，别的死人又给if线，闹麻了
 
+
+*****
+
+####  nagitoY  
+##### 2670#       发表于 2024-3-31 22:16
+
+幕末魅魔，男女都不放过？
+
+至少做一个同性的差分吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/31/221647etsc3sjqwpwhtstf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9a6e1e81e39864a6979bf717d5355d21.jpeg</strong> (405.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202403/31/221647dgssgq6pebq6szzb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2c49de3db5c3c249cdd4152fb5dc8329.jpeg</strong> (224.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-31 22:16 上传
+
+
+*****
+
+####  黑修士  
+##### 2671#       发表于 2024-3-31 22:22
+
+一些武技的特殊效果也能打出连携，比如处决时使用爱州阴流的血州，直接满闪刃槽
+
+随后接朱殷之光，打出动摇
+
+有玩家发现了刷饰品的良性BUG，目前四个狗子包幸运堆到八百多暂时不想换，二周目再刷了
+
+*****
+
+####  Racyjackman  
+##### 2672#       发表于 2024-3-31 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64440705&amp;ptid=2092342" target="_blank">leafS 发表于 2024-3-31 22:07</a>
+
+我后来查相关历史人物，发现人家是后面出家最后正常年老病死的，我就搞不懂这光荣，本来没死的硬给写死， ...</blockquote>
+讲真我也希望能给个分支路线让这个角色活下来，但如果真的有了那这个故事的观感肯定又不一样了。
+
+对比史实和游戏剧情的话，如果多加按照史实路线，是一个坚定的佐幕派那她反倒不会死，但玩家对其的观感肯定又不一样了，恰恰是游戏将她对于两派的态度暧昧化，最后甚至背离了佐幕派，反倒让这个角色惹人怜爱，却又导致她的必然死亡
+

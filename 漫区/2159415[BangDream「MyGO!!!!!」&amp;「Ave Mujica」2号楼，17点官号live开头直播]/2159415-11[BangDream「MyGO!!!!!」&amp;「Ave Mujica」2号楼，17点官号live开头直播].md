@@ -1201,3 +1201,30 @@ wsd还能不觉得亏了？难道不是处处透露着小家子气。
 
 抠比又不是一天两天了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 14918#       发表于 2024-4-1 18:23
+
+[https://www.animatetimes.com/new ... p;utm_medium=social](https://www.animatetimes.com/news/details.php?id=1711341102&amp;utm_source=twitter&amp;utm_medium=social)
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">mujica新访谈
+
+*****
+
+####  NODY  
+##### 14919#       发表于 2024-4-1 18:24
+
+wsd不是一直都挺短视的吗，嫌弃邦邦分钱少要搞自家占大头的dj，结果dj没推起来邦邦也糊了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 14920#       发表于 2024-4-1 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64450301&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-1 18:23</a>
+[https://www.animatetimes.com/news/details.php?id=1711341102&amp;utm_source=twitter&amp;utm_medium=social](https://www.animatetimes.com/news/details.php?id=1711341102&amp;utm_source=twitter&amp;utm_medium=social)
+
+[f: ...</blockquote>
+卧槽，鸡料
+

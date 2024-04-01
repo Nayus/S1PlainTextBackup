@@ -888,3 +888,11 @@ IMG_3233.png
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  rgauss  
+##### 3047#       发表于 2024-4-1 18:52
+
+太可怕了
+

@@ -1250,3 +1250,27 @@ wsd不是一直都挺短视的吗，嫌弃邦邦分钱少要搞自家占大头�
 
 别尬黑wsd，wsd的操作万代才复刻了一次更狠的（
 
+
+*****
+
+####  Aendst  
+##### 14923#       发表于 2024-4-1 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">没想到新访谈居然有一点点动画相关的东西
+
+*****
+
+####  EBe  
+##### 14924#       发表于 2024-4-1 18:54
+
+不懂日文捏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  PDQ4  
+##### 14925#       发表于 2024-4-1 18:57
+
+翻译佬在哪里，机翻不过瘾<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

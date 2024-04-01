@@ -1708,3 +1708,19 @@ IM这下合同应该保住了吧
 能改回mr15最好，经济还可以博弈。不说上调了该混起还是混起 ，mr12即使是bo5每把都还是寸止的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 我玩我想玩mr12，比赛还是打mr15好看啊
 
+
+*****
+
+####  TiiTiiLL  
+##### 4224#       发表于 2024-4-1 11:48
+
+玩是mr12爽是真的，20多分钟都能来一把，还是倾向于改下经济系统，减少eco这种垃圾回合
+
+
+*****
+
+####  m98626  
+##### 4225#       发表于 2024-4-1 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真改成把把都能强起那这经济系统也名存实亡了，还是mr15好
+

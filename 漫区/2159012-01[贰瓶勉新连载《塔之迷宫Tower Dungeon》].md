@@ -738,3 +738,21 @@
 
 迷宫内果然有人类敌人，居然还是战团叛徒，给主角团好好上了一课，就是学费有点贵<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  popchong  
+##### 78#         楼主| 发表于 2024-4-1 11:51
+
+ 本帖最后由 popchong 于 2024-4-1 11:53 编辑 
+
+这次居然连汉字都不简化了吗。一直觉得二瓶勉世界里的简化字体是一种很高级的表现时代变迁和文明倒退的方式
+
+<img src="https://img.saraba1st.com/forum/202404/01/115047x1af722namrd4qoy.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240401115042.png</strong> (95.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 11:50 上传
+

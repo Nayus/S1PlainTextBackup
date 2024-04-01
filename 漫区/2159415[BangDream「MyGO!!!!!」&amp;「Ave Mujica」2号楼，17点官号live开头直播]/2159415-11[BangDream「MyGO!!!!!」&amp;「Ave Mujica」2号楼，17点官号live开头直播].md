@@ -155,3 +155,42 @@ awwbwg是吧？怎么，你这意思就是这个号是mygo号，mujica本就是�
 
 不过我觉得这个皮下可能没什么粉丝倾向只是单纯的看谁热度高就多发谁而已，因为这号玩祥子相关梗也挺勤快的
 
+
+*****
+
+####  御幸一也  
+##### 14815#       发表于 2024-4-1 11:48
+
+爛梗玩得勤快也不是什麼好事<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 14816#       发表于 2024-4-1 11:51
+
+那不是更恶心，官号资讯不全，天天热度狗搁那拿套皮角色整活。
+
+是不是还得谢谢运营没真拿角色堂堂管人出道。
+
+不碰鸡我真无所谓就是了，爱干啥干啥。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 14817#       发表于 2024-4-1 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">从那个官号开始投蹭热度小视频的时候我就不爽，合号的时候我来s1骂，玩客服梗的时候我终于忍不住拉黑了账号然后去微博骂，结果还被不止一个网友喷了。所以我现在可以翻案了吗。
+
+
+*****
+
+####  御幸一也  
+##### 14818#       发表于 2024-4-1 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445447&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-4-1 11:52</a>
+
+从那个官号开始投蹭热度小视频的时候我就不爽，合号的时候我来s1骂，玩客服梗的时候我终于忍不住拉 ...</blockquote>
+再罵一次讓我看看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+我支持你
+

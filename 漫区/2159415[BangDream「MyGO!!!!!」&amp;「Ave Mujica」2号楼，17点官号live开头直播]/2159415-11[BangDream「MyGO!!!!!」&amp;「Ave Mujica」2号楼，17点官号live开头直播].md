@@ -809,3 +809,46 @@ B站号要是没有那个黄标认证，后缀名_AveMujica，鸡粉谁管你运
 
 鉴定为没让b号玩梗导致的，以后有争议让b号出来整活就行，反正都大好评。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 14878#       发表于 2024-4-1 15:51
+
+还是引流来的人太多了，人家也不关心你偶像圈的那些规矩
+
+*****
+
+####  L7lv6  
+##### 14879#       发表于 2024-4-1 15:51
+
+<blockquote>NODY 发表于 2024-4-1 15:38
+吐槽一个ooc至于破防这么久吗，这官号平时套着爱音皮蹭热度，一出问题就装死还放任评论推锅角色说是要配 ...</blockquote>
+额额，你怎么看出我破防来的?讨论的是ooc的话题吗，要不看看最开始我发的是什么
+
+*****
+
+####  2287217595  
+##### 14880#       发表于 2024-4-1 15:52
+
+服了，你们车运营车粉丝能不能别扯到动画和两个团身上<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+是傻逼wsd要热度不要妈，转火到mygo和角色的是在想什么
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  小田切宁宁  
+##### 14881#       发表于 2024-4-1 15:55
+
+s1有没有邦邦手游群<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+萌新刚刚入坑
+
+*****
+
+####  黑猫桑  
+##### 14882#       发表于 2024-4-1 15:56
+
+人不要脸真的天下无敌，还有脸说
+

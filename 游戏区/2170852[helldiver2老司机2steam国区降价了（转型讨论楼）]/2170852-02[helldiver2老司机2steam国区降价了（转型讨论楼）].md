@@ -9252,3 +9252,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 一点都不想在大平原打机器人 大平原打虫子还行
 
+
+*****
+
+####  smdzh2  
+##### 2374#       发表于 2024-4-1 11:32
+
+无畏用反器材打观察窗，讲究一个中门对狙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

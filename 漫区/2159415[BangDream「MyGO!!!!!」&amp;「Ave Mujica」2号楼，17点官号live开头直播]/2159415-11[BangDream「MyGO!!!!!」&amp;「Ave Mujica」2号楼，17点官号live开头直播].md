@@ -72,3 +72,66 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  PDQ4  
+##### 14808#       发表于 2024-4-1 11:28
+
+不是很懂合了个什么。
+
+鸡推本来就谜语人，b号连-symbols-都没搬。
+
+讲道理b号运营是不是很委屈啊，明明自己是纯血狗厨，却不得不搬鸡的东西，只能硬拖偷偷少发一些。<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 14809#       发表于 2024-4-1 11:30
+
+ 本帖最后由 PDQ4 于 2024-4-1 11:31 编辑 
+
+不知道ras在上海吃都吃了点什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想到那个问推荐上海美食，答案清一色日料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 14810#       发表于 2024-4-1 11:31
+
+ 本帖最后由 -LYRE- 于 2024-4-1 11:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444968&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 11:19</a>
+对啊，看不惯就别看就行了啊，那为什么还要把这个号整得活拉出来批判一番？还是愚人节整得给别团的活？
+
+ ...</blockquote>
+说得好！看不惯别看！
+所以你怎么不贯彻一下你自己的话呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+建议你去让它把id上面的“_AveMujica”直接去掉算了，这样就完全是“别团”的事了，mujica粉丝自然就没资格评价了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 14811#       发表于 2024-4-1 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444968&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 11:19</a>
+
+对啊，看不惯就别看就行了啊，那为什么还要把这个号整得活拉出来批判一番？还是愚人节整得给别团的活？
+
+ ...</blockquote>
+谁批判了，说一句ooc都受不了，是否太脆弱？
+
+awwbwg是吧？怎么，你这意思就是这个号是mygo号，mujica本就是别的团？要不是合号顶着mujica的后标，有些人未必会在意4/1怎么玩梗
+
+更何况我都祝福受众玩得开心就好，反正不是我推被运营皮下批皮语C，我乐于见到
+
+*****
+
+####  九陌狂游  
+##### 14812#       发表于 2024-4-1 11:34
+
+支持分家<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

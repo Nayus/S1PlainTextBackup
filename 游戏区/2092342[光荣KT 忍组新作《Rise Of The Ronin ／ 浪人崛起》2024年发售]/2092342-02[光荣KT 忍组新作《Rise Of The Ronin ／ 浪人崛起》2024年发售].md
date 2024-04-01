@@ -12224,3 +12224,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 而我，选择冲田总司，这个人设太对我胃口了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2722#       发表于 2024-4-1 21:31
+
+这河上彦斋到底是谁，像条疯狗一样盯着新选组咬？我都不认识他啊来自: iPhone客户端
+

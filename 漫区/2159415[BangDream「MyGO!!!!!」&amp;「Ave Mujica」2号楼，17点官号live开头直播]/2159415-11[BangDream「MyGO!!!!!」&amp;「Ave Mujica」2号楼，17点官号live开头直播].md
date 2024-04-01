@@ -1619,3 +1619,11 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 又吸大了</blockquote>
 好想看到祥子和小白互动啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 14940#       发表于 2024-4-1 21:35
+
+祥子是光属性的 但暗堕了 那最后会光堕回去么<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+

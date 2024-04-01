@@ -707,3 +707,28 @@ ave粉多的樓對go團無關心不是很正常嗎，至少我是只關心ave捏
 
 不过，这开口就是mygo粉都喜闻乐见……好大的口气，一下代表尼姑庵贴吧b的mygo粉，顺便把有意见的人除籍成鸡粉，楼里也有部分粉觉得语c烂梗不妥，你除籍的时候问过他们意见了吗？
 
+
+*****
+
+####  相坂君  
+##### 14868#       发表于 2024-4-1 14:49
+
+B站号要是没有那个黄标认证，后缀名_AveMujica，鸡粉谁管你运营皮下语c谁
+
+喊了这么久的分号，分楼，没分成有什么办法<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 14869#       发表于 2024-4-1 14:50
+
+<img src="https://img.saraba1st.com/forum/202404/01/144722sxsemo4mrpop2fsw.png" referrerpolicy="no-referrer">
+
+<strong></strong> (109.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 14:47 上传
+
+确实仍然一直要公开真名
+

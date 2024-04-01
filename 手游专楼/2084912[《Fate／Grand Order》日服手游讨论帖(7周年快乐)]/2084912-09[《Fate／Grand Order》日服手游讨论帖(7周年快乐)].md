@@ -1265,3 +1265,14 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 没打完全部主线的，按照打算主线的关卡（第一部+Epic of Remnant+第二部[.5只包括平安京和特劳姆算]+第二 ...</blockquote>
 谢谢，看来只能去打ordeal call了
 
+
+*****
+
+####  alucardcz  
+##### 11948#       发表于 2024-4-1 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442582&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-4-1 03:35</a>
+
+呼呼单抽了伯爵，最近发生什么事？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发生了你欧了的事件 羡慕
+

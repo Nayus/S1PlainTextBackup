@@ -12076,3 +12076,25 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 这倒幕派游戏里刻画地真就像是个义和团，无行动纲领只知道**洋人和幕府，历史里也是这样吗，看久了甚至觉得 ...</blockquote>
 毕竟有点脑子也做了实事的坂本龙马写得也不像个聪明人，船中八策甚至还是养伤时打发时间写的
 
+
+*****
+
+####  bletilla  
+##### 2706#       发表于 2024-4-1 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443278&amp;ptid=2092342" target="_blank">wangjiawei1009 发表于 2024-4-1 09:00</a>
+
+龙马未婚妻真可爱咧 能不能攻略过来（曹贼狂喜</blockquote>
+因缘任务做完了以后就能攻略，这游戏真的各种攻略老嫂子
+
+
+*****
+
+####  nagitoY  
+##### 2707#       发表于 2024-4-1 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444759&amp;ptid=2092342" target="_blank">bletilla 发表于 2024-4-1 11:04</a>
+
+因缘任务做完了以后就能攻略，这游戏真的各种攻略老嫂子</blockquote>
+能攻略的有寡妇、未婚妻、艺妓，综合下来好像也就医生一个正常点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

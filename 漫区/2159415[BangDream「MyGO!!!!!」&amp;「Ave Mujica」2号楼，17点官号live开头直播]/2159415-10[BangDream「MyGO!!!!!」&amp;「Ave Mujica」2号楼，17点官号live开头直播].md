@@ -16822,3 +16822,42 @@ b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还�
 说是合号，一个没有鸡粉丝牌子的号，内容含量百分之九十全是别家团，你让鸡粉看得惯？
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">那我为什么不去看推上的号
 
+
+*****
+
+####  Aendst  
+##### 14797#       发表于 2024-4-1 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，现在已经不是泥漏鸡粉看不惯了，对mujica有好感的广泛都看不惯这个号了好吧
+
+说这个是想在传说中的mujica高浓度楼自证自己对mujica毫无好感吗
+
+*****
+
+####  相坂君  
+##### 14798#       发表于 2024-4-1 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实mygo那边玩这个，他们开心就好，发自真心的尊重，也祝福他们玩得开心！
+
+换成mujica，我个人就会有意见
+
+
+*****
+
+####  Aendst  
+##### 14799#       发表于 2024-4-1 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444781&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-1 11:05</a>
+
+妈妈的妈妈叫raychell</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么东西……夏芽看起来玩得还挺开心
+
+*****
+
+####  笋干爆炸碱  
+##### 14800#       发表于 2024-4-1 11:11
+
+名字上还挂了个Mujica，换个anon头像真的好玩吗？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+仅代表我个人意见我觉得并不
+

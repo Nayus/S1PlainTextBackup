@@ -342,3 +342,13 @@ PC上手柄怎么发联合SP？只能鼠标划？</blockquote>
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rangarokon  
+##### 1005#       发表于 2024-4-1 11:11
+
+这新的小游戏玩不明白啊
+
+—— 来自 Xiaomi 23090RA98C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

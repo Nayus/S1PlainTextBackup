@@ -158,3 +158,20 @@ Image_1711900917843.jpg
 小看泸姐了，感觉泸爷泸姐人均英语六级。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">忘了沪姐还有地理优势。
 
+
+*****
+
+####  csolfans  
+##### 19900#       发表于 2024-4-1 11:11
+
+？这是认真的还是在整活？
+
+Screenshot_2024-04-01-11-10-33-336_com.twitter.android.jpg
+(418.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 11:10 上传
+
+<img src="https://img.saraba1st.com/forum/202404/01/111052aw9jig4re5l5jhv4.jpg" referrerpolicy="no-referrer">
+

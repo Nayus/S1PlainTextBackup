@@ -247,3 +247,11 @@ Screenshot_2024-04-01-11-10-33-336_com.twitter.android.jpg
 
 —— 来自 OPPO PEGM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19908#       发表于 2024-4-1 12:43
+
+别的不好说，结哥这个LustQueen实在是太难绷了
+

@@ -877,3 +877,14 @@ IMG_3233.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  超法拉  
+##### 3046#       发表于 2024-4-1 18:40
+
+哎 内部爱
+感觉这美也已经连孩子上什么大学都想好了
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

@@ -12310,3 +12310,12 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 这作队友专属动作还挺多的
 [https://www.bilibili.com/video/B ... faaee894d855de98959](https://www.bilibili.com/video/BV1gZ421B7mC/?spm_id_from=333.1365.list.card_archive.click&amp;vd_source=3a6b211bc8200faaee894d855de98959)
 
+
+*****
+
+####  nagitoY  
+##### 2732#       发表于 2024-4-2 00:04
+
+<blockquote>[ nagitoY replied on 2024-4-1 21:31](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452261&amp;ptid=2092342) 这河上彦斋到底是谁，像条疯狗一样盯着新选组咬？我都不认识他啊 </blockquote>
+这人被我砍死了，怎么没有出现在道馆里？来自: iPhone客户端
+

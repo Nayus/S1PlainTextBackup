@@ -9488,3 +9488,12 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不搞阴兵的话，2个半小时左右拿下
 
+
+*****
+
+####  rainknine  
+##### 2397#       发表于 2024-4-2 00:04
+
+在入坑一个月后，终于和俩基友一起完美clear+全撤离过了n9机器人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+麦河真是个好地方
+

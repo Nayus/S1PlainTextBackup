@@ -985,3 +985,84 @@ wsd都认为动画片纯广告，真想养动画厨会完结了再发bdbox？
 
 查看全部评分
 
+
+*****
+
+####  蒜灵  
+##### 14896#       发表于 2024-4-1 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449243&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-1 16:52</a>
+wsd都认为动画片纯广告，真想养动画厨会完结了再发bdbox？
+
+泥漏天天发中之人还讲不是偶像厨 ...</blockquote>
+这就体现出合号这个操作的傻逼了，合号明显是面向动画党的
+
+*****
+
+####  skives  
+##### 14897#       发表于 2024-4-1 16:59
+
+之前手游剧情的节奏究竟是什么
+怎么从来不知道这件事<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 14898#       发表于 2024-4-1 17:02
+
+之前的手游节奏似乎是有人对手游新写的mygo相关剧情不满，隔壁互相车最后开始不出所料的大量车祥子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米拉苏尔  
+##### 14899#       发表于 2024-4-1 17:02
+
+我是动画厨<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 14900#       发表于 2024-4-1 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449352&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-4-1 16:59</a>
+
+这就体现出合号这个操作的傻逼了，合号明显是面向动画党的</blockquote>
+这不早就泥漏轮回的话题，就你邦企划天天引流live，想要偶像厨还敢这么玩不明显激化矛盾。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+b号各种傻逼操作我觉得都在偶像厨红线上蹦迪，但是b友不在乎，看见了骂一下mmr还破防了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+wsd傻逼天天骂，b号骂不得也太幽默了。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 14901#       发表于 2024-4-1 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449416&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-1 17:03</a>
+这不早就泥漏轮回的话题，就你邦企划天天引流live，想要偶像厨还敢这么玩不明显激化矛盾。
+
+b号各 ...</blockquote>
+你换成动画党就知道了，b站这种操作对他们来说屁大点事，甚至乐见其成
+所以说就是wsd自己精神分裂
+
+*****
+
+####  笋干爆炸碱  
+##### 14902#       发表于 2024-4-1 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449396&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-1 17:02</a>
+
+之前的手游节奏似乎是有人对手游新写的mygo相关剧情不满，隔壁互相车最后开始不出所料的大量车祥子了[f:067 ...</blockquote>
+后半车祥子的部分第一次听说<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 14903#       发表于 2024-4-1 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449016&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-4-1 16:38</a>
+“楼外势力”看不起偶像厨还非要特地“入侵”偶像企划专楼找存在感也是挺乐的
+（引号内容引用自隔壁 ...</blockquote>
+问题是动画党绝大部分我猜都在国内，指望他们买bd那是比较难的，要我说不如学管人，卖b站装扮，十个人一人一份，每个月卖一个，几千万轻松到手
+

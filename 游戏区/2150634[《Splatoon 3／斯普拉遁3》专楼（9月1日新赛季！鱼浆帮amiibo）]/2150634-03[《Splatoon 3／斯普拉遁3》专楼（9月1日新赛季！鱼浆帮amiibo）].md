@@ -8835,3 +8835,14 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 中午看了2019年的世锦赛录像，原来这四人曾经如此辉煌过啊</blockquote>
 啤算米奇的迷弟，米奇去年是因为自己的问题被炎上的
 
+
+*****
+
+####  laosai13  
+##### 3865#       发表于 2024-4-1 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449000&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-1 16:37</a>
+
+中午看了2019年的世锦赛录像，原来这四人曾经如此辉煌过啊</blockquote>
+之前喷2世锦赛都挺精彩的，感觉日本和欧美最顶尖的其实差距也不是很大。taiji喷喷之王的名号很多时候也是因为世锦赛两连冠来的？
+

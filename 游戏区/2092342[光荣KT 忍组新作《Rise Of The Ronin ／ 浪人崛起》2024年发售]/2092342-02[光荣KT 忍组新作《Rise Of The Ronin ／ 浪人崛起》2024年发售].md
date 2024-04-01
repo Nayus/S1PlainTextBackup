@@ -12200,3 +12200,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 浪人好像从头到尾也没提到隐刀和搭档的名字，倒是提到过师傅的名字是枫
 
+
+*****
+
+####  nagitoY  
+##### 2719#       发表于 2024-4-1 19:55
+
+回江户后打完龙马的单挑，他就消失了？我还没和他分手，影响我泡别的妹妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

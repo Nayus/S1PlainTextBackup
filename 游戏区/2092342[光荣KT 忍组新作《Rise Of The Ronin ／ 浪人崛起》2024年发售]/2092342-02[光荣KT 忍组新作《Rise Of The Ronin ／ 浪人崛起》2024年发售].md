@@ -12024,3 +12024,24 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 看来刷道场的还是少数，这个只要有一个任务达到极传就会跳杯了，居然只有13.2%
 
+
+*****
+
+####  斯卡哈  
+##### 2701#       发表于 2024-4-1 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">我70个小时了还泡在江户，到处跑支线乱逛。照相馆后面好像固定刷新一个随机任务，每次去都能碰到。经常是问我酒不见来的几个醉汉，找了半天没有对话就直接砍了（
+
+后面快慢刀&amp;后跳的BOSS实在太别扭了，第一次打老和尚那个快慢拳的节奏简直反直觉，毒藤女拿着个鞭剑不说还一直后跳躲树后面根本看不见动作，道场打到最后一路后跳到角落里才被直接按到死。看后面还有伊藤博文他们三打一，想想都恐怖
+
+*****
+
+####  彩虹肥宅  
+##### 2702#       发表于 2024-4-1 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443907&amp;ptid=2092342" target="_blank">斯卡哈 发表于 2024-4-1 10:00</a>
+我70个小时了还泡在江户，到处跑支线乱逛。照相馆后面好像固定刷新一个随机任务，每次去都能碰到。 ...</blockquote>
+醉汉直接用边上的酒缸砸
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

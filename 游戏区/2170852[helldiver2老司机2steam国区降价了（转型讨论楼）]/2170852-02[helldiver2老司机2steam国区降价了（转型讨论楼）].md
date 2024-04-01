@@ -9172,3 +9172,23 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干下来就说明机器人要通关了，你让矢脑怎么把剧情编下去，拖时间
 
+
+*****
+
+####  风萧飒  
+##### 2365#       发表于 2024-4-1 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443760&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-1 09:48</a>
+干下来就说明机器人要通关了，你让矢脑怎么把剧情编下去，拖时间</blockquote>
+到时候在星图外面再加一圈星球<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  bakuza  
+##### 2366#       发表于 2024-4-1 10:05
+
+昨天开始有类星体免费支援，和一次性火箭筒以前组成防空，第一次在机器人难5干了255个，一炮14杀好爽
+

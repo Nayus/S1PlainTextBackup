@@ -1724,3 +1724,25 @@ IM这下合同应该保住了吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真改成把把都能强起那这经济系统也名存实亡了，还是mr15好
 
+
+*****
+
+####  CK355  
+##### 4226#       发表于 2024-4-1 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445025&amp;ptid=1857369" target="_blank">heseran 发表于 2024-4-1 11:22</a>
+
+reddit有人发了个大表哥决赛图三击杀集锦，看到标题就笑了</blockquote>
+没看比赛还寻思这有什么笑点.. 打开HLTV看了眼数据彻底绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ParadiseMartyr  
+##### 4227#       发表于 2024-4-1 12:02
+
+mr15回来吧。
+反正我不玩排位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比赛看得爽就行
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

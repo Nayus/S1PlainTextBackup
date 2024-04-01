@@ -198,3 +198,29 @@ Screenshot_2024-04-01-11-10-33-336_com.twitter.android.jpg
 
 大概是认真的？好像影响也不大吧？
 
+
+*****
+
+####  starring  
+##### 19904#       发表于 2024-4-1 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445436&amp;ptid=2078110" target="_blank">CaptainPenguin 发表于 2024-4-1 11:51</a>
+看花的说法是她那个事务所改名，不知道烂铁跟这个有啥关系，看了眼烂铁官网上拉的几个都还在，新公布的有水 ...</blockquote>
+有莲没虹
+
+<img src="https://p.sda1.dev/16/b37191adad7e4366b614ae1666f5ea83/CMP_20240401115806266.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  CaptainPenguin  
+##### 19905#       发表于 2024-4-1 12:02
+
+<blockquote>starring 发表于 2024-4-1 11:58
+有莲没虹
+
+</blockquote>
+对的不好意思说错了
+

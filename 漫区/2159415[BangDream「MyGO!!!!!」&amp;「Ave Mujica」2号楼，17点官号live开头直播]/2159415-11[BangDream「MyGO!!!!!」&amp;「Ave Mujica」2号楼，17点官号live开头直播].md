@@ -194,3 +194,150 @@ awwbwg是吧？怎么，你这意思就是这个号是mygo号，mujica本就是�
 
 我支持你
 
+
+*****
+
+####  kivz  
+##### 14819#       发表于 2024-4-1 11:56
+
+要合号就企划一起合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">它一通操作下来，现在变成go运营接管A团尬演又养粉圈…咋还不给说了
+
+*****
+
+####  滑稽Captain  
+##### 14820#       发表于 2024-4-1 11:57
+
+ 本帖最后由 滑稽Captain 于 2024-4-1 12:01 编辑 
+
+这个真的是B友大众喜欢你算老几了，就是为了炒作热度的
+
+wsd在B站就没有个正经官号，mygo_mujica这个号算半个，TCG那个号算半个，国服邦手游号肯定不能算，其他团现在可以说根本没有能公式发邦企划相关内容的地方
+
+*****
+
+####  御幸一也  
+##### 14821#       发表于 2024-4-1 12:00
+
+那不就更加要多罵罵，不然真讓這狗屎營運以為所有人都喜歡呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 14822#       发表于 2024-4-1 12:01
+
+炒作狗获得应有的一点骂声不是很正常，泥漏才几个人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  L7lv6  
+##### 14823#       发表于 2024-4-1 12:02
+
+<blockquote>-LYRE- 发表于 2024-4-1 11:31
+说得好！看不惯别看！
+
+所以你怎么不贯彻一下你自己的话呢看不惯泥楼就别进来看啊自己都做 ...</blockquote>
+这楼标题是只有AveMujica吗？我来看mygo内容不行吗？
+
+*****
+
+####  DarthAka  
+##### 14824#       发表于 2024-4-1 12:03
+
+<blockquote>DarthAka 发表于 2024-3-31 13:10
+常盘学园高等学校是佐藤聪美的母校，青二大前辈，kon的律队……当年青山吉能在wug穿的校服就这学校同款，给 ...</blockquote>
+绝了，今天佐藤聪美就从青二移籍了
+
+*****
+
+####  Aendst  
+##### 14825#       发表于 2024-4-1 12:03
+
+所以不是都说了是运营和用户互相选择，喜欢这套的喜欢他们的，觉得客观行为有不妥的也不应该为了配合B友和炒热度就自我和解吧
+
+这种水平的炒作热度本身就很好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 14826#       发表于 2024-4-1 12:04
+
+才半年合号就从喜闻乐见到烂活了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星空冻结  
+##### 14827#       发表于 2024-4-1 12:04
+
+那官号后面也有mujica，🐔粉骂骂怎么了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+| kivz| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 14828#       发表于 2024-4-1 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445603&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 12:02</a>
+
+这楼标题是只有AveMujica吗？我来看mygo内容不行吗？</blockquote>
+说的好，mujica推都支持分楼分号，你呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  純田まな  
+##### 14829#       发表于 2024-4-1 12:04
+
+炒作运营批皮语C是真不行<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 14830#       发表于 2024-4-1 12:05
+
+早說了快點分樓，你看這不就有go粉看不慣你ave粉嫌棄B號咯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 14831#       发表于 2024-4-1 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445621&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-4-1 12:04</a>
+
+才半年合号就从喜闻乐见到烂活了，还有半年，国服官号继续搞下去应该还有机会分号吧，我直接满怀希 ...</blockquote>
+誰喜聞樂見了，泥樓不是從第一天就開始罵合號了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+只是好像現在也開始有路人不爽了，非常好呀，多罵罵，真是合號合你媽呢。
+
+*****
+
+####  相坂君  
+##### 14832#       发表于 2024-4-1 12:06
+
+营销号在哪个平台带节奏都会被骂，别是s1对炒作很真爱，不骂炒作狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 14833#       发表于 2024-4-1 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445603&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 12:02</a>
+
+这楼标题是只有AveMujica吗？我来看mygo内容不行吗？</blockquote>
+那来和我一起呼吁分楼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+你看你的我看我的，大道朝天各走一边
+

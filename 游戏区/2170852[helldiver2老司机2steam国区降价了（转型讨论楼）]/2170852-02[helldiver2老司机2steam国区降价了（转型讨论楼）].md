@@ -9260,3 +9260,15 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 无畏用反器材打观察窗，讲究一个中门对狙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Benighted  
+##### 2375#       发表于 2024-4-1 12:04
+
+<blockquote>Burning damage deals zero damage when you are not host. Here is video HOST vs NOT HOST for proof. If you feel you don't deal damage, this is the reason. Incendiary is great when YOU HOST | #Helldivers2 
+
+当你不是宿主时，燃烧伤害造成零伤害。这是视频 HOST 与 NOT HOST 的证明。如果你觉得自己没有造成伤害，这就是原因。当你主持时，燃烧弹是很棒的</blockquote>
+
+老外视频实测，你不是主机的时候用燃烧鸟喷之类的武器是没有DOT伤害的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

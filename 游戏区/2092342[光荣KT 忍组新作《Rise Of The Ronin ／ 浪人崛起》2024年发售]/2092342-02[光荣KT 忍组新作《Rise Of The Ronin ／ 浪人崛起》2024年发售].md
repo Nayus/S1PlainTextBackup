@@ -12116,3 +12116,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 打到现在回头看开发访谈的战斗部分就纯放屁啊。“石火不是核心系统”<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">你不用石火打个伊藤x山县的首相组合给我看看。
 以及“正常人锻炼后能使出的招式”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 2710#       发表于 2024-4-1 12:03
+
+这游戏最好看的就是阿龙啊，跟别的写实风npc一比像从仁王出来的，但应该不能攻略吧<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

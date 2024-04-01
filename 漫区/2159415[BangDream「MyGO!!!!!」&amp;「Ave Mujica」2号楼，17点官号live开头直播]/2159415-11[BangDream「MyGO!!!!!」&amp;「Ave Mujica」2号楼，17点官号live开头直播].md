@@ -1154,3 +1154,13 @@ b号有种就管人出道，反正我没意见，运营也挺爱演的都不用�
 你说得对，3 2 1上！学中文！</blockquote>
 流量密码正确<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  米拉苏尔  
+##### 14913#       发表于 2024-4-1 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449464&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-4-1 17:06</a>
+问题是动画党绝大部分我猜都在国内，指望他们买bd那是比较难的，要我说不如学管人，卖b站装扮，十个人一 ...</blockquote>
+上舰行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

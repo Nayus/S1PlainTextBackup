@@ -847,3 +847,20 @@ IMG_3233.png
 
 <img src="https://img.saraba1st.com/forum/202404/01/141909dcfllqs1sn2fhohq.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小笠原早紀  
+##### 3043#       发表于 2024-4-1 17:24
+
+这就是我们bnsi的建模功力，你不服气？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  田所あずさ  
+##### 3044#       发表于 2024-4-1 17:26
+
+这就是我们万代自家的开发能力，你有什么意见吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12292,3 +12292,12 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 碰上个很奇怪的bug，手枪按L2完全用不了，但弓和火枪都正常，因为刚好是换了个手柄才发生的bug还以为是我手柄出问题调试了半天，结果重启游戏就正常了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2730#       发表于 2024-4-1 23:36
+
+<blockquote>[ nagitoY replied on 2024-4-1 23:24](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64453226&amp;ptid=2092342) 道馆里没看到青鬼啊。他的支线我已经做完了 </blockquote>
+找到了，在隼流忍者道馆那里来自: iPhone客户端
+

@@ -9357,3 +9357,25 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  风萧飒  
+##### 2385#       发表于 2024-4-1 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64450950&amp;ptid=2170852" target="_blank">runningch 发表于 2024-4-1 19:31</a>
+【《地狱潜兵2》未来可期2.5（光能者语音）-哔哩哔哩】 https://b23.tv/lXnzXFr
+已经有光能者语音 ...</blockquote>
+箭头做好的东西不少了，只是他慢慢挤牙膏给你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过三个对空战备应该是快更新了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  smdzh2  
+##### 2386#       发表于 2024-4-1 19:42
+
+飞鹰空空战备要怎么丢啊，大力出奇迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

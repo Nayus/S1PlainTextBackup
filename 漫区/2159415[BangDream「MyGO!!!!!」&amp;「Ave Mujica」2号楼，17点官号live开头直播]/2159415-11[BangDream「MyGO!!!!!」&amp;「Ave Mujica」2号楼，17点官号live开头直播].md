@@ -1342,3 +1342,15 @@ wsd不是一直都挺短视的吗，嫌弃邦邦分钱少要搞自家占大头�
 
 還在翻，先丟有提到一點的動畫相關部分，顏色之後再弄
 
+
+*****
+
+####  PDQ4  
+##### 14928#       发表于 2024-4-1 19:50
+
+光屬性
+
+这下官方（？）定性了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不知道白祥到底有多少高尾逆输入，原来最开始就是oblivionis的样子，这么浑然天成也可以算奇迹了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

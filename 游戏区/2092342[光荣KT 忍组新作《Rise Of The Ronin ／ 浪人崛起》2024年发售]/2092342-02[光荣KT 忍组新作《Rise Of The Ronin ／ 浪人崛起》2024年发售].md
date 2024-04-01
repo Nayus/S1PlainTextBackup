@@ -11976,3 +11976,19 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 为了研究久坂的攻略条件把能翻的攻略站都翻遍了，发现大家情况各自不一没有共识，很多人都是做满四个因缘满 ...</blockquote>
 安政大狱还可以跟小五郎走啊，他买通了狱卒。我就是选的这条路线，用计策回避正面战斗比较符合我的战斗理念。
 
+
+*****
+
+####  Racyjackman  
+##### 2699#       发表于 2024-4-1 09:32
+
+<img src="https://img.saraba1st.com/forum/202404/01/093216tduzsyfri5u9d398.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 09:32 上传
+
+马修佩里原来是按照本人样貌建的模，还真像啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

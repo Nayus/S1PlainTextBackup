@@ -16705,3 +16705,21 @@ b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还�
 
 有一说一B站这个官号自己搞的语C不带着玩是好事，明年怕不是真就把鸡带上一起语C了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 14787#       发表于 2024-4-1 09:28
+
+<img src="https://img.saraba1st.com/forum/202404/01/092829r7700ecxe7i6c7x3.jpg" referrerpolicy="no-referrer">
+
+<strong>4CF8F4DB-1BD1-4EB2-B18F-0D853A8C21E0.jpg</strong> (518.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 09:28 上传
+
+令人暖心<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -490,3 +490,13 @@ staff:不装了我也不知道小麦怎么能去上学直接奇迹完事了<img 
 
 变身自带衣服，然后脱了换校服，变回去校服掉下来，那再变回去？
 
+
+*****
+
+####  Mr.Giraffe  
+##### 1271#       发表于 2024-4-1 17:07
+
+说不定全果变身会加衣服，套着衣服的时候是全果变身<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+q娃，很神奇吧
+

@@ -1066,3 +1066,91 @@ b号各 ...</blockquote>
 （引号内容引用自隔壁 ...</blockquote>
 问题是动画党绝大部分我猜都在国内，指望他们买bd那是比较难的，要我说不如学管人，卖b站装扮，十个人一人一份，每个月卖一个，几千万轻松到手
 
+
+*****
+
+####  NODY  
+##### 14904#       发表于 2024-4-1 17:11
+
+二偶的分季动画好像都是保底一年空白期，起码wsd相关的dj少歌还有半相关的拉拉都是，你邦当初早早宣传的一年两季结果最后还是把第三季拖到一年后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 14905#       发表于 2024-4-1 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那我看好运营套皮阿农，无声系管人出道捏！动画还有3d模型，做动捕建模都省了
+
+装扮，舰长礼物，纪念谷！全安排
+
+
+*****
+
+####  蒜灵  
+##### 14906#       发表于 2024-4-1 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449535&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-4-1 17:12</a>
+那我看好运营套皮阿农，无声系管人出道捏！动画还有3d模型，做动捕建模都省了
+
+装扮，舰长礼物，纪念 ...</blockquote>
+整那么复杂干啥，直接让李世林来就完了，正好纯正樱花妹在管人痴那里还是有那么一点加成的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 14907#       发表于 2024-4-1 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我重新考古了一下，应该是爱音相关卡面剧情他们不满意，整个互车过程中有人车祥子，但是后来大量互相车的是队内
+
+做管人也挺好的，这样运营可以随时调整人设也不至于出现对剧情不满意觉得官方塑造有问题的情况了
+
+*****
+
+####  蒜灵  
+##### 14908#       发表于 2024-4-1 17:14
+
+wsd不是有木口的股份吗？就不能好好学学木口怎么爆粉丝米的吗
+
+*****
+
+####  相坂君  
+##### 14909#       发表于 2024-4-1 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449428&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-4-1 17:05</a>
+
+后半车祥子的部分第一次听说</blockquote>
+这个好像楼里有提到过，周年活动mygo内斗吵起来了，结果围魏救赵一转车祥……
+
+虽然基操，看起来略有难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 14910#       发表于 2024-4-1 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449464&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-4-1 17:06</a>
+
+问题是动画党绝大部分我猜都在国内，指望他们买bd那是比较难的，要我说不如学管人，卖b站装扮，十个人一 ...</blockquote>
+b号有种就管人出道，反正我没意见，运营也挺爱演的都不用立石凛来。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+什么叫大刀阔斧改革啊，这么搞不比你那真管人团热闹多了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 14911#       发表于 2024-4-1 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449551&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-4-1 17:13</a>
+
+整那么复杂干啥，直接让李世林来就完了，正好纯正樱花妹在管人痴那里还是有那么一点加成的 ...</blockquote>
+你说得对，3 2 1上！学中文！
+
+*****
+
+####  蒜灵  
+##### 14912#       发表于 2024-4-1 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449578&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-4-1 17:15</a>
+你说得对，3 2 1上！学中文！</blockquote>
+流量密码正确<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

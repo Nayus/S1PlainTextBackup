@@ -2734,3 +2734,11 @@ BOSS挑战部分应该是较后期的角色强度了，虽然还有两页没解�
 日版实体的话目前还有个更便宜的</blockquote>
 这破网站居然给我退单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 666#       发表于 2024-4-1 14:13
+
+这boss居然还锁血的……
+

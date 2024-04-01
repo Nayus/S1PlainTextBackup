@@ -1626,3 +1626,37 @@ IM这下合同应该保住了吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底是什么成份的串子才能拿到这届钻石币，随机都没这么离谱
 
+
+*****
+
+####  magicc  
+##### 4214#       发表于 2024-4-1 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443982&amp;ptid=1857369" target="_blank">m98626 发表于 2024-4-1 10:05</a>
+到底是什么成份的串子才能拿到这届钻石币，随机都没这么离谱</blockquote>
+乌克兰人吧大概
+
+
+*****
+
+####  曼彻斯特联  
+##### 4215#       发表于 2024-4-1 10:20
+
+楼主你改标题倒是把CSGO改成CS2啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 4216#       发表于 2024-4-1 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443982&amp;ptid=1857369" target="_blank">m98626 发表于 2024-4-1 10:05</a>
+到底是什么成份的串子才能拿到这届钻石币，随机都没这么离谱</blockquote>
+完美app评论区看到一个钻石币<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 4217#       发表于 2024-4-1 10:22
+
+事实证明mr12加csgo的经济系统再加上bo1，这三个组合起来是真的垃圾吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比赛又难看，选手打得又不舒服，本意可能是想让弱队有更多机会，结果后面还是传统强队互殴
+

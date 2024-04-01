@@ -70,3 +70,11 @@
 目前可能最强的敌人是金笠和剑契组，这帮人在图书馆是都市梦魇级别（一科或高级事务所处理），仅次于都市 ...</blockquote>
 主要是被中指痛殴这段让人感觉微妙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">金笠明写着功力大损也不好参考
 
+
+*****
+
+####  Yuzutea  
+##### 620#       发表于 2024-4-1 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下沉沦队完全体了
+

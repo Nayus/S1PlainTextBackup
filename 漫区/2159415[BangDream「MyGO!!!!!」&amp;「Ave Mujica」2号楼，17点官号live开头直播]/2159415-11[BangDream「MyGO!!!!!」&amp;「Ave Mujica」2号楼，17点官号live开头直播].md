@@ -1657,3 +1657,26 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 
 祥子：生活的重压让我黑化
 
+
+*****
+
+####  枫林不见  
+##### 14945#       发表于 2024-4-1 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗迪必秒光迪
+
+*****
+
+####  枫林不见  
+##### 14946#       发表于 2024-4-1 22:29
+
+角色的性質很黑暗，但裡面的我們很溫暖。 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">能整出五个如同隔壁25时里的颠公颠婆吗？呱,能近距离观看五位强者之间的战斗,就算是死,值回票价吔!
+
+
+*****
+
+####  NODY  
+##### 14947#       发表于 2024-4-1 22:32
+
+还真挺好奇能有多黑暗，邦邦基调最后肯定要包饺子所以内部关系肯定黑不到哪去，那只能从家庭情况或者黑心公司之类的下手了，PPP初设的人均凑不出几个父母，少歌那种孤儿被父母遗弃或者DJ那种妈死了被爹当工具养大之类的吗，或者PP的屑公司超级加倍<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

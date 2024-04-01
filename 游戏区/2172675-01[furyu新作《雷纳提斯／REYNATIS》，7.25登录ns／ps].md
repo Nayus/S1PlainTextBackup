@@ -56,3 +56,14 @@
 不联动个名气大点的游戏，为什么要联动一个暴死了的</blockquote>
 联动野村哥哥
 
+
+*****
+
+####  mad123  
+##### 56#       发表于 2024-4-1 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64446162&amp;ptid=2172675" target="_blank">shudushimo 发表于 2024-4-1 12:50</a>
+
+不联动个名气大点的游戏，为什么要联动一个暴死了的</blockquote>
+V13、真王、KH4有那个是这两年能吐出来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

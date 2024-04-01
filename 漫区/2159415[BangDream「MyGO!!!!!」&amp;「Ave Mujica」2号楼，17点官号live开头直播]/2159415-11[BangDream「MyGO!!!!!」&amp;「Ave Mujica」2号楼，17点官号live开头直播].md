@@ -341,3 +341,17 @@ wsd在B站就没有个正经官号，mygo_mujica这个号算半个，TCG那个�
 
 你看你的我看我的，大道朝天各走一边
 
+
+*****
+
+####  九陌狂游  
+##### 14834#       发表于 2024-4-1 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445654&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-1 12:06</a>
+誰喜聞樂見了，泥樓不是從第一天就開始罵合號了嗎
+
+只是好像現在也開始有路人不爽了，非常好呀，多 ...</blockquote>
+我说的当然是大众意见，现在外面开始觉得合号不是什么好操作了，倒是楼里始终如一<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

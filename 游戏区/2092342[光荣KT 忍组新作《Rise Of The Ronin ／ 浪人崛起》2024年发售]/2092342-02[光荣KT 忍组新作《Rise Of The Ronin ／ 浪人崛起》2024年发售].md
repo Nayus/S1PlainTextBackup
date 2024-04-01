@@ -12276,3 +12276,19 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 伊藤博文的支线要我一打三，但是两遍就过了。足以说明斋藤一的设计有多脑残<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 2728#       发表于 2024-4-1 23:24
+
+道馆里没看到青鬼啊。他的支线我已经做完了来自: iPhone客户端
+
+
+*****
+
+####  霖岚_  
+##### 2729#       发表于 2024-4-1 23:30
+
+碰上个很奇怪的bug，手枪按L2完全用不了，但弓和火枪都正常，因为刚好是换了个手柄才发生的bug还以为是我手柄出问题调试了半天，结果重启游戏就正常了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

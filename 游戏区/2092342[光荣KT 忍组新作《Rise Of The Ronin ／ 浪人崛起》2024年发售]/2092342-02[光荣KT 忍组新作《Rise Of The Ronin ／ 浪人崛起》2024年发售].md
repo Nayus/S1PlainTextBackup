@@ -12330,3 +12330,18 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 能攻略的有寡妇、未婚妻、艺妓，综合下来好像也就医生一个正常点</blockquote>
 还有篤姫，这个也是个俏寡妇
 
+
+*****
+
+####  山风短  
+##### 2734#       发表于 2024-4-2 03:28
+
+打了50小时，第二章进度才显示一半不到（地图全清），这作体量确实可以<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山风短  
+##### 2735#       发表于 2024-4-2 03:29
+
+你让我去开育碧罐头开50小时我肯定打到一半就呕了，但是配上忍组这战斗真是让人欲罢不能<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

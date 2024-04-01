@@ -1240,3 +1240,17 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 呼呼单抽了伯爵，最近发生什么事？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 11946#       发表于 2024-4-1 08:41
+
+ 本帖最后由 UNISONIA 于 2024-4-1 08:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442480&amp;ptid=2084912" target="_blank">holyblood 发表于 2024-4-1 02:23</a>
+
+新人quest那个main quest 进行度加一的怎么做？做main quest里的free quest好像没用。如果主红打完是不是不 ...</blockquote>
+没打完全部主线的，按照打算主线的关卡（第一部+Epic of Remnant+第二部[.5只包括平安京和特劳姆算]+第二部延长段Ordeal Call）计入这个进度，FREE不算，只能打主线关
+
+打完奏II为止的全部主线关=自动完成这个任务
+

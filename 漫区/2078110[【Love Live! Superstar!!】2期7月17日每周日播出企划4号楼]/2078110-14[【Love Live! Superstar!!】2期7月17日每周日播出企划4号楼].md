@@ -67,3 +67,13 @@ Image_1711900917843.jpg
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ads147147  
+##### 19891#       发表于 2024-4-1 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天还在隔壁楼说星团愚人节应该是公司2，果然就是了，毕竟加人了，肯定要拉一下这个梗。
+
+说起来青山是不是还藏着自己会英语这事，总觉得你鱼是不是k组里英语最差的那个w
+

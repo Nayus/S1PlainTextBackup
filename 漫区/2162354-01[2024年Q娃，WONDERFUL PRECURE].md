@@ -468,3 +468,25 @@ staff:不装了我也不知道小麦怎么能去上学直接奇迹完事了<img 
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  碎镜子  
+##### 1269#       发表于 2024-4-1 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64438185&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-3-31 16:47</a>
+
+怎么入学回也这么水啊，还有就是什么时候明确一下，今年的cp是战队那样还是茶几那样 ...</blockquote>
+有助人情节的粉主+支援型青梅竹马单箭头+内向美女转学生+我方还有个迷之老大没出场<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+复刻了
+
+*****
+
+####  碎镜子  
+##### 1270#       发表于 2024-4-1 16:55
+
+道理我都懂，为啥小麦的校服是裤子。
+
+变身自带衣服，然后脱了换校服，变回去校服掉下来，那再变回去？
+

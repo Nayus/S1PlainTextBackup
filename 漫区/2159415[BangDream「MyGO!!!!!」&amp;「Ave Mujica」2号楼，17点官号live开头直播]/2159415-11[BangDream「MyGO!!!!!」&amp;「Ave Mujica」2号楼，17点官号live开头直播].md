@@ -941,3 +941,47 @@ s1有没有邦邦手游群
 不如找wsd问问它们是要偶像厨还是 ...</blockquote>
 如果wsd真想要动画厨的话，应该趁热打铁出鸡动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 14892#       发表于 2024-4-1 16:48
+
+wsd还是水平太拉了，既要又要，把鸡动画硬拖一年就是最傻逼的
+
+
+*****
+
+####  PDQ4  
+##### 14893#       发表于 2024-4-1 16:52
+
+wsd都认为动画片纯广告，真想养动画厨会完结了再发bdbox？
+
+泥漏天天发中之人还讲不是偶像厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yoyodream  
+##### 14894#       发表于 2024-4-1 16:53
+
+没得法子，手游里团太多了，加塞一堆新团活动赶剧情会有很多人不满的。
+
+*****
+
+####  星空冻结  
+##### 14895#       发表于 2024-4-1 16:53
+
+动画厨真有用，你🐔动画能拖一年？wsd不早被爆破了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+

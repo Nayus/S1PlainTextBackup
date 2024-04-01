@@ -852,3 +852,18 @@ s1有没有邦邦手游群<img src="https://static.saraba1st.com/image/smiley/fa
 
 人不要脸真的天下无敌，还有脸说
 
+
+*****
+
+####  泥潭办证先锋  
+##### 14883#       发表于 2024-4-1 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64448417&amp;ptid=2159415" target="_blank">小田切宁宁 发表于 2024-4-1 15:55</a>
+
+s1有没有邦邦手游群
+
+萌新刚刚入坑</blockquote>
+153877577，S1邦多利群。
+
+群名看起来可能有点怪，因为今天是愚人节，一天限定瞎改的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

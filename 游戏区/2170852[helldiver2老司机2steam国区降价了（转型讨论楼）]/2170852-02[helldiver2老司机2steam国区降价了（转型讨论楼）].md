@@ -9379,3 +9379,15 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 飞鹰空空战备要怎么丢啊，大力出奇迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 2387#       发表于 2024-4-1 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64451049&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-4-1 19:42</a>
+飞鹰空空战备要怎么丢啊，大力出奇迹吗</blockquote>
+按解包大佬的测试这玩意是110mm的plus版，打的很准很快可以秒泰坦，感觉可以淘汰制500kg了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

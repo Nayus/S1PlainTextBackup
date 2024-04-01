@@ -1599,3 +1599,13 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 與佐佐木李子和高尾奏音一起揭秘Ave Muji ...</blockquote>
 感觉和初华差不多沉重啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 14938#       发表于 2024-4-1 21:10
+
+这么看李子是最后加入的。
+
+不知道之后访谈可不可以拼凑出具体的入队顺序<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

@@ -9296,3 +9296,15 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 破裂是不是又削了 我记得原先是16弹 现在只有13弹了
 
+
+*****
+
+####  jy000129  
+##### 2379#       发表于 2024-4-1 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445632&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-4-1 12:04</a>
+老外视频实测，你不是主机的时候用燃烧鸟喷之类的武器是没有DOT伤害的 ...</blockquote>
+ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪伤害还是有
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

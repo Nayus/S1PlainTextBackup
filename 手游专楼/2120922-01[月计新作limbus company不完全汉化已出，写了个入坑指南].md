@@ -59,3 +59,14 @@
 
 （恶疾中的黑云会和布莱梅乐队在图书馆都有高层没现身）
 
+
+*****
+
+####  sosgame67  
+##### 619#       发表于 2024-4-1 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452691&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-4-1 22:14</a>
+
+目前可能最强的敌人是金笠和剑契组，这帮人在图书馆是都市梦魇级别（一科或高级事务所处理），仅次于都市 ...</blockquote>
+主要是被中指痛殴这段让人感觉微妙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">金笠明写着功力大损也不好参考
+

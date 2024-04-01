@@ -9449,3 +9449,18 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 这回Joel大元帅不会背刺10w冻肉了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新庄運切  
+##### 2392#       发表于 2024-4-1 22:18
+
+嘿伙计们，光荣的时刻到了，让我们在地狱相见<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddwhzh  
+##### 2393#       发表于 2024-4-1 22:18
+
+疯狂掉线，加个掉线重连能毁了超级地球吗
+

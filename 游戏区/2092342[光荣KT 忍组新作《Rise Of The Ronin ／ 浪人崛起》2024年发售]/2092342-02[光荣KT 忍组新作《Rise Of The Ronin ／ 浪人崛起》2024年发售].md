@@ -12345,3 +12345,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 你让我去开育碧罐头开50小时我肯定打到一半就呕了，但是配上忍组这战斗真是让人欲罢不能<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 2736#       发表于 2024-4-2 04:07
+
+这游戏的这些bug还能不能修了，从京都回江户全部治安事件都刷新出来
+

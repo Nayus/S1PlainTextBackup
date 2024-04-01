@@ -529,3 +529,52 @@ S1什么时候都成深渊之底了</blockquote>
 鸟叔别笑，百综楼也一样，mmr看不得滑坡。</blockquote>
 我也看不得<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 14853#       发表于 2024-4-1 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥漏是已经变成不可名状的拉莱耶了吗
+
+*****
+
+####  十块钱论坛  
+##### 14854#       发表于 2024-4-1 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64446131&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-1 12:47</a>
+
+別尬黑哦，泥樓一開始沒吵吧，也就有人抱怨了兩句
+
+是後面有人跳出來說泥樓上綱上線才開始吵的，吵都 ...</blockquote>
+有一说一，紫吧也是这么吵起来的，就非要有好事狗粉对着别人的抱怨指导一下<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+不过其实本来合号的时候就预想到会有这么一天了，早该吵吵了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">WSD不也是要热度吗
+
+
+*****
+
+####  L7lv6  
+##### 14855#       发表于 2024-4-1 12:54
+
+<blockquote>相坂君 发表于 2024-4-1 11:32
+谁批判了，说一句ooc都受不了，是否太脆弱？
+
+awwbwg是吧？怎么，你这意思就是这个号是mygo号，mujica本就 ...</blockquote>
+不是啊，我是顺着你的话说的啊，你不是说要只看官推号吗？那这b站的号不就与你无关了？那还想着骂，不就是对这号还有相对应诉求？
+
+所以你们对这官号的诉求是什么？是要两边一起发愚人节整活？还是说平常要一碗水端平，两边内容55开？还是其他？
+
+然后，这个内容是运营发的愚人节mygo整活内容，ooc不是很正常？愚人节发的东西不都是图一乐？
+
+那为什么还要逮着内容的问题骂？这不就是上纲上线，逮着批评一番吗？而且不管泥潭，贴吧，b站的mygo粉好像都喜闻乐见没什么不满吧？反而是鸡粉在抱怨内容？
+
+合理的表达诉求我也不会说什么，像骂官号只发mygo内容，只给mygo整活，a团推特消息不搬运这些我都是支持的。但对官号发给mygo粉的整活内容，且mygo粉都喜闻乐见的情况下，对着内容批评一番，这种行为就有点ky了。
+
+*****
+
+####  御幸一也  
+##### 14856#       发表于 2024-4-1 12:57
+
+別尬黑，[@NODY](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=276670) 不是ave粉，一開始泥樓抱怨的只有他，其他人都是尊重祝福的，你去和他吵吧。
+

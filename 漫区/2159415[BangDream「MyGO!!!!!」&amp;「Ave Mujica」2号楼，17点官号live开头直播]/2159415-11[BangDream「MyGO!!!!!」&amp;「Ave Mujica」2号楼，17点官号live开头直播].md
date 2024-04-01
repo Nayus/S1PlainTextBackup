@@ -1717,3 +1717,11 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 
 又想到明年一月才能看……武士道真能拖啊
 
+
+*****
+
+####  御幸一也  
+##### 14951#       发表于 2024-4-2 01:17
+
+animax版的1st真的看爽了，好多新鏡頭<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

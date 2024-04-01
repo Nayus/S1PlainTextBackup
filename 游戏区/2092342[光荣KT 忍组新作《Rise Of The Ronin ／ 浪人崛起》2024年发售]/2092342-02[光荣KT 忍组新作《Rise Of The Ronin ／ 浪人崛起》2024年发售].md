@@ -12177,3 +12177,14 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 昨晚刚跟医生比翼做完所有对话看完过夜CG就分手了，很有负罪感（
 
+
+*****
+
+####  战场公主希维尔  
+##### 2717#       发表于 2024-4-1 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442084&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-04-01 00:37:57</a>
+看不到最后一段姻缘动画。</blockquote>但我记得我先结缘薄云再结缘村山好像都有动画啊。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

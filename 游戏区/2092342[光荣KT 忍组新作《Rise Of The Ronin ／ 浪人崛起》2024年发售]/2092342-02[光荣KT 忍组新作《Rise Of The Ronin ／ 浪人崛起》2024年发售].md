@@ -12353,3 +12353,13 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 这游戏的这些bug还能不能修了，从京都回江户全部治安事件都刷新出来
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2737#       发表于 2024-4-2 04:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64454308&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2024-4-2 04:07</a>
+这游戏的这些bug还能不能修了，从京都回江户全部治安事件都刷新出来</blockquote>
+我也是同样中招，贴吧反馈这个bug甚至你去重新打完这些刷新点还有复发风险，我是建议直接不要管了，反正二周目我也被恶心的直接删游了，感觉不如回去补补ffo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

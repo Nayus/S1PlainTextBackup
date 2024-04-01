@@ -1709,3 +1709,11 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 
 诶。。。我是光属性？<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 14950#       发表于 2024-4-1 23:17
+
+又想到明年一月才能看……武士道真能拖啊
+

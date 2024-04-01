@@ -78,3 +78,26 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下沉沦队完全体了
 
+
+*****
+
+####  Jamaisvu  
+##### 621#       发表于 2024-4-1 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452778&amp;ptid=2120922" target="_blank">sosgame67 发表于 2024-4-1 22:25</a>
+
+主要是被中指痛殴这段让人感觉微妙金笠明写着功力大损也不好参考</blockquote>
+在图书馆的Wiki里找了一下最重视阶级的拇指与其他势力的对应情况：
+
+教父=各翼理事会高层、hana协会高层
+
+二老板=各翼理事会成员、hana协会各科科长、各协会分部长、一科科长、特色收尾人
+
+指挥官=各翼内部管理人员，hana协会知名成员，其余协会各科科长、知名事务所所长、一阶收尾人。
+
+这么看的话末兄应该是都星级组织第三位的战斗力，都市梦魇以下的实力。
+
+（话说用现象分级来形容个人好像不太恰当...不管啦）
+
+考虑到月计连脑叶时期的异想体分类都能改动，估计对于战力排名也不太在乎，
+

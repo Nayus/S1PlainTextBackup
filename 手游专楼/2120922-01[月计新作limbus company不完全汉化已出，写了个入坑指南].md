@@ -42,3 +42,20 @@
 
 没打完图书馆，十二废现在的战力到底是什么水准啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 618#       发表于 2024-4-1 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64451821&amp;ptid=2120922" target="_blank">sosgame67 发表于 2024-4-1 20:51</a>
+
+没打完图书馆，十二废现在的战力到底是什么水准啊</blockquote>
+目前可能最强的敌人是金笠和剑契组，这帮人在图书馆是都市梦魇级别（一科或高级事务所处理），仅次于都市之星（一协会或者色彩处理）。不过金笠又伤又扭，可能要降级。
+
+十二罪人早期的协会人格都是五六科（都市传说），目前十一协会已经有三科了，五协会和六协会都有四科人格。
+
+这么看的话，顶配十二废应该算是都市恶疾那一级别的吧？满打满算能稳赢谢肉祭？
+
+（恶疾中的黑云会和布莱梅乐队在图书馆都有高层没现身）
+

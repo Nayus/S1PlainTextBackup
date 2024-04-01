@@ -875,3 +875,58 @@ s1有没有邦邦手游群
 
 偶像厨真麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yoyodream  
+##### 14885#       发表于 2024-4-1 16:26
+
+没事，至少没有开始从什么档线，台词数，站位，剧情去全方位为自推鸣不平，还有救（
+
+*****
+
+####  蒜灵  
+##### 14886#       发表于 2024-4-1 16:28
+
+泥楼感觉还好，看了一下z8，那是真战起来了
+
+*****
+
+####  Aendst  
+##### 14887#       发表于 2024-4-1 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种操作本来就是有人喜欢有人骂的，况且一开始都没在骂，调侃一下语c和ooc罢了
+
+个别人突然直接转进到上纲上线和泥漏鸡粉看不惯，现在又快进到偶像厨是什么心态我不好说
+
+别太明显了
+
+*****
+
+####  蒜灵  
+##### 14888#       发表于 2024-4-1 16:32
+
+[url=https://tieba.baidu.com/p/8961379287][/url]
+淦，这楼主运气也太好了，零距离接触
+
+
+*****
+
+####  御幸一也  
+##### 14889#       发表于 2024-4-1 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64448254&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-4-1 15:41</a>
+
+平时ooc另说，该骂就骂，但作为愚人节玩笑的时候就是不管多离谱都合理的呀，虽然不知道为什么日本现在成了 ...</blockquote>
+所以你們go粉喜歡，尊重 祝福
+
+那麼能分號嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 14890#       发表于 2024-4-1 16:38
+
+看不起偶像厨还非要特地跑到偶像企划专楼找存在感也是挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不如找wsd问问它们是要偶像厨还是要纯动画厨？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正好bd快发售了看看动画厨厨力？
+

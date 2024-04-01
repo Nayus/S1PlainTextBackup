@@ -9324,3 +9324,13 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">类星体打到叶子导致自爆都知道的，昨天发现带着蛋盾有概率也会自爆
 
+
+*****
+
+####  runningch  
+##### 2382#       发表于 2024-4-1 17:45
+
+没打下提比特，超级气球的剧本我猜会是这样：由于没能按时打下提比特，导致哑铃人成功联系上外域的外星人，然后光能者堂堂复活！
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

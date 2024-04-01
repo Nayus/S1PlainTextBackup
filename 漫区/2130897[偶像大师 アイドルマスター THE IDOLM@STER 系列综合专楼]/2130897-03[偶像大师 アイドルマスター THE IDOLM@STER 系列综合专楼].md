@@ -864,3 +864,16 @@ IMG_3233.png
 
 这就是我们万代自家的开发能力，你有什么意见吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Unlight  
+##### 3045#         楼主| 发表于 2024-4-1 17:37
+
+没事，纱代子上台一般不戴眼镜，只要摘下眼镜就会好起来的（
+而且讲道理律子不就很教导主任了吗，这是传统艺能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+况且也没准是年级主任或德育处主任吧（小声）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

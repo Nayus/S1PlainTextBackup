@@ -1181,3 +1181,13 @@ b号有种就管人出道，反正我没意见，运营也挺爱演的都不用�
 上舰哪够，舰限live给wsd亏麻了，300多的配信到了阿b手里只要138还有分成，看见上舰数抠比wsd估计心疼的掉 ...</blockquote>
 那得看上舰的是增量还是存量了，有些人本来就不会去外网看live，那他上舰就是增量
 
+
+*****
+
+####  蒜灵  
+##### 14916#       发表于 2024-4-1 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449754&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-1 17:28</a>
+上舰哪够，舰限live给wsd亏麻了，300多的配信到了阿b手里只要138还有分成，看见上舰数抠比wsd估计心疼的掉 ...</blockquote>
+恕我直言，如果wsd因为这个觉得亏了，那只能说明他们市场部门是傻逼
+

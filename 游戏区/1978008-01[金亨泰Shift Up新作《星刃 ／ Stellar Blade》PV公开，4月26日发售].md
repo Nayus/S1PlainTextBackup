@@ -2709,3 +2709,17 @@ BOSS挑战部分应该是较后期的角色强度了，虽然还有两页没解�
 
 另外涩是真的涩。
 
+
+*****
+
+####  渣球王  
+##### 664#       发表于 2024-4-1 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442775&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-4-1 07:04</a>
+这个BOSS吃控制的，只是丢手雷都能打断他，空中三角也能打断
+
+【把星刃demo玩了8小时后的体验-哔哩哔哩】  ...</blockquote>
+原来是这样，学习了。果然还是有很多没太玩懂的地方，但如果能主动把控节奏那就比较让我觉得还有点能够自主发挥的味道了。不晓得是否boss都能吃控制，大概也并不会那么友好。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

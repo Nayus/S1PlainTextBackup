@@ -16723,3 +16723,21 @@ b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  凡人  
+##### 14788#       发表于 2024-4-1 09:34
+
+明年这个时候不开天窗的话，鸡刚播完，必玩好吧，唯一的悬念应该是若卖与c还是祥子与c
+
+
+*****
+
+####  MZZK  
+##### 14789#       发表于 2024-4-1 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443610&amp;ptid=2159415" target="_blank">凡人 发表于 2024-4-1 09:34</a>
+明年这个时候不开天窗的话，鸡刚播完，必玩好吧，唯一的悬念应该是若卖与c还是祥子与c ...</blockquote>
+4月1号喵梦抢号发(zao)布(yao)，4月2号祥子上号澄清，非常合理，完全不ooc<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

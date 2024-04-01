@@ -930,3 +930,14 @@ s1有没有邦邦手游群
 看不起偶像厨还非要特地跑到偶像企划专楼找存在感也是挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不如找wsd问问它们是要偶像厨还是要纯动画厨？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正好bd快发售了看看动画厨厨力？
 
+
+*****
+
+####  蒜灵  
+##### 14891#       发表于 2024-4-1 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449016&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-4-1 16:38</a>
+看不起偶像厨还非要特地“入侵”偶像企划专楼找存在感也是挺乐的
+不如找wsd问问它们是要偶像厨还是 ...</blockquote>
+如果wsd真想要动画厨的话，应该趁热打铁出鸡动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

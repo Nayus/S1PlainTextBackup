@@ -356,3 +356,15 @@ ps3上有个准白金神作tps终结者，上来选hard通过一遍就行，高�
 
 贝姐的魔兽算吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  碎镜子  
+##### 45#       发表于 2024-4-1 16:44
+
+最近比较好的印象是ffo，玩家和角色性能类似，双伤高能取消的动作需要法力槽这个资源。
+ai平时会积攒这个槽不放，你可以用指令（ffo记得是异步不影响动作有cd）指挥队友迅速清空技能槽攻击打夸张的爆法。
+卧龙倒是也继承了这个设计，但卧龙武技和ffo的c技效果差太多了，加油这个动作也是同步的，难受。
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

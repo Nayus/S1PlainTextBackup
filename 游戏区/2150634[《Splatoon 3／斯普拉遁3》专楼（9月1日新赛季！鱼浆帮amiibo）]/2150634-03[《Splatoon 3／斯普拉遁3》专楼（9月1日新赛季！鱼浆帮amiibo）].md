@@ -8796,3 +8796,23 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 
 连续几天都是活动比赛
 
+
+*****
+
+####  罗克萨斯  
+##### 3862#       发表于 2024-4-1 16:37
+
+中午看了2019年的世锦赛录像，原来这四人曾经如此辉煌过啊
+
+<img src="https://img.saraba1st.com/forum/202404/01/163523rvaewv1tepvktwv7.jpg" referrerpolicy="no-referrer">
+
+<strong>d8e9f2d6-3c4d-481e-8eef-87132d2d4ff1.jpg</strong> (112.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 16:35 上传
+
+亚麻米奇和奶啤关系还挺好的，不过去年似乎风评不佳（也可能是我记错了）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

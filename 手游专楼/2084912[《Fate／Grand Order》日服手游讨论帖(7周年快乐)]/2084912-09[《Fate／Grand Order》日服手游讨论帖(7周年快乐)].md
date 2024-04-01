@@ -1254,3 +1254,14 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 打完奏II为止的全部主线关=自动完成这个任务
 
+
+*****
+
+####  holyblood  
+##### 11947#       发表于 2024-4-1 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443105&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-4-1 08:41</a>
+
+没打完全部主线的，按照打算主线的关卡（第一部+Epic of Remnant+第二部[.5只包括平安京和特劳姆算]+第二 ...</blockquote>
+谢谢，看来只能去打ordeal call了
+

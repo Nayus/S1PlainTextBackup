@@ -355,3 +355,45 @@ wsd在B站就没有个正经官号，mygo_mujica这个号算半个，TCG那个�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  蒜灵  
+##### 14835#       发表于 2024-4-1 12:24
+
+泥楼日经了属于是，此事平平无奇
+
+*****
+
+####  蒜灵  
+##### 14836#       发表于 2024-4-1 12:25
+
+怎么说呢，官号能炒得下去，说明确实是有一帮人喜欢看，泥楼这样的反而是少数，那还能怎么办呢，总不能骂两句的权力都没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 14837#       发表于 2024-4-1 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445603&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 12:02</a>
+这楼标题是只有AveMujica吗？我来看mygo内容不行吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">您又来明目张胆地双标这套了
+之前那条，让别人“看不惯就别看”，自己看不惯别人的言论则在这battle得特起劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在这条，管漏油骂官号时无视官号id含“_AveMujica”，指出你的自相矛盾之处时又记起来这楼标题含狗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 14838#       发表于 2024-4-1 12:27
+
+anon被拿下了，可以期待明年喵梦顶号吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蒜灵  
+##### 14839#       发表于 2024-4-1 12:28
+
+不过我是支持多来点go友冲淡一下泥楼鸡浓度的，不然哪天泥楼变成鸡粉暗区了那就完犊子了，这种重任还是交给贴吧吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

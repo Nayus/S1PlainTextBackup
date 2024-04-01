@@ -9272,3 +9272,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 老外视频实测，你不是主机的时候用燃烧鸟喷之类的武器是没有DOT伤害的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 2376#       发表于 2024-4-1 12:17
+
+类星体正面打无畏应该也是两发而已，主要是蓄力3秒cd10秒有点折磨来自: iPhone客户端
+

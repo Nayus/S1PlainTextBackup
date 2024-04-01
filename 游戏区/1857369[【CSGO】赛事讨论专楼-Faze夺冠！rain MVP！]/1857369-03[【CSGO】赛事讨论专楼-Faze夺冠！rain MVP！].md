@@ -1660,3 +1660,11 @@ IM这下合同应该保住了吧
 
 事实证明mr12加csgo的经济系统再加上bo1，这三个组合起来是真的垃圾吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比赛又难看，选手打得又不舒服，本意可能是想让弱队有更多机会，结果后面还是传统强队互殴
 
+
+*****
+
+####  Rainwedell  
+##### 4218#       发表于 2024-4-1 10:31
+
+最蠢的是经济系统，其次是mr12了都不改bo5，看图二图三两个队伍被滚雪球滚到死确实难看
+

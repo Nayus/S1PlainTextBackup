@@ -12260,3 +12260,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 这河上彦斋到底是谁，像条疯狗一样盯着新选组咬？我都不认识他啊</blockquote>
 幕末人斩河上彦斋，印象里是绯村剑心的原型
 
+
+*****
+
+####  彩虹肥宅  
+##### 2726#       发表于 2024-4-1 22:38
+
+操作队友的体验好棒<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，还能玩飞燕和无限手里剑
+

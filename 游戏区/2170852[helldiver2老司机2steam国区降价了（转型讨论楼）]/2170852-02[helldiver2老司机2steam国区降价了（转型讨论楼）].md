@@ -9208,3 +9208,21 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 还别说，每次我去找机器人N9闪电战任务偷超级样本都是在麦河，压迫感拉满
 
+
+*****
+
+####  FLZB  
+##### 2369#       发表于 2024-4-1 10:58
+
+说起来麦拉芬蒙河在机器人图里其实算好打的，植被掩体多，夜间AI感知下降，树丛里一钻直接原地消失。乌巴尼亚这种大平原才是真正的重量级，被炮台锁了躲都没地方躲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yahuchi  
+##### 2370#       发表于 2024-4-1 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444670&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-1 10:58</a>
+
+说起来麦拉芬蒙河在机器人图里其实算好打的，植被掩体多，夜间AI感知下降，树丛里一钻直接原地消失。乌巴尼 ...</blockquote>
+赛博越南和赛博乌克兰是吧
+

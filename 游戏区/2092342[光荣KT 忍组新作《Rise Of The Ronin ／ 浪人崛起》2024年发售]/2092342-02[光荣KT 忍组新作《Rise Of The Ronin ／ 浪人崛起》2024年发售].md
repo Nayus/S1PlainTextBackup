@@ -12065,3 +12065,14 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 没想到历史上居然真的有这种女剑客</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">我打赢了啊，为什么不让我比翼
 
+
+*****
+
+####  bletilla  
+##### 2705#       发表于 2024-4-1 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443093&amp;ptid=2092342" target="_blank">leafS 发表于 2024-4-1 08:40</a>
+
+这倒幕派游戏里刻画地真就像是个义和团，无行动纲领只知道**洋人和幕府，历史里也是这样吗，看久了甚至觉得 ...</blockquote>
+毕竟有点脑子也做了实事的坂本龙马写得也不像个聪明人，船中八策甚至还是养伤时打发时间写的
+

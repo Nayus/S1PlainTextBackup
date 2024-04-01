@@ -16773,3 +16773,52 @@ b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 14793#       发表于 2024-4-1 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443267&amp;ptid=2159415" target="_blank">凡人 发表于 2024-4-1 08:59</a>
+
+以为鸡楼是开玩笑的吗？愚人节不带鸡玩滑一下很正常吧</blockquote>
+神經 這種事不帶著玩明明是好事 誰罵的是這個<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 14794#       发表于 2024-4-1 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444328&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 10:32</a>
+
+你楼鸡粉不都一直看不惯这号，自然有点事就要上纲上线</blockquote>
+誰看得慣喔，先切割再說<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 14795#       发表于 2024-4-1 11:05
+
+<img src="https://img.saraba1st.com/forum/202404/01/110524xt4ahp1ctsd2xhqu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19c-b7knZzT3cSus-151-1.jpeg</strong> (376.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 11:05 上传
+
+妈妈的妈妈叫raychell<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 14796#       发表于 2024-4-1 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444328&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 10:32</a>
+
+你楼鸡粉不都一直看不惯这号，自然有点事就要上纲上线</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">陈述事实就是上纲上线，ooc就是ooc
+
+说是合号，一个没有鸡粉丝牌子的号，内容含量百分之九十全是别家团，你让鸡粉看得惯？
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">那我为什么不去看推上的号
+

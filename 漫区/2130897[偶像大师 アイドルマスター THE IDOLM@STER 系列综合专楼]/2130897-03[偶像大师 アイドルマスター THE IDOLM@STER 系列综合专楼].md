@@ -796,3 +796,11 @@ nm,我看代孙只是想名正言顺的用876的遗产，毛了hello还要把876
 
 这单纯就是别家都不收，代孙又懒得编个新事务所出来的偷懒结果吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 3038#       发表于 2024-4-1 10:58
+
+资源重新利用起来有什么不好，老粉有什么损失吗？拉香菜她们回来是不可能了，以后真要有游戏联动之类的，老角色说不定还能露露脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

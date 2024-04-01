@@ -3121,3 +3121,13 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 好惨，偶像大师的管人直接进876Pro 
 但是这不是没什么活人了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IL282  
+##### 161#       发表于 2024-4-2 03:10
+
+金杰活了！
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

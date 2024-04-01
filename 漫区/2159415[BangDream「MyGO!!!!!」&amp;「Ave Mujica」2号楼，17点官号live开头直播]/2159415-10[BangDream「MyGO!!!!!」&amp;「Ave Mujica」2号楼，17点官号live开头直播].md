@@ -16682,3 +16682,18 @@ b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还�
 
 我觉得世界是一个巨大的ooc
 
+
+*****
+
+####  枫林不见  
+##### 14784#       发表于 2024-4-1 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">愚人节也能滑坡
+
+*****
+
+####  凡人  
+##### 14785#       发表于 2024-4-1 08:59
+
+以为鸡楼是开玩笑的吗？愚人节不带鸡玩滑一下很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

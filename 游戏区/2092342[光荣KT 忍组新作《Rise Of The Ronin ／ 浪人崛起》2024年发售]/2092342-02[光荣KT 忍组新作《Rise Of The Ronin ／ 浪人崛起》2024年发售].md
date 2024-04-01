@@ -11888,3 +11888,39 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 这倒幕派游戏里刻画地真就像是个义和团，无行动纲领只知道**洋人和幕府，历史里也是这样吗，看久了甚至觉得有点天真的可爱
 
+
+*****
+
+####  wangjiawei1009  
+##### 2692#       发表于 2024-4-1 09:00
+
+龙马未婚妻真可爱咧 能不能攻略过来（曹贼狂喜
+
+
+*****
+
+####  nagitoY  
+##### 2693#       发表于 2024-4-1 09:04
+
+<img src="https://img.saraba1st.com/forum/202404/01/090241ff2ezdhc3aea2vpz.png" referrerpolicy="no-referrer">
+
+<strong>001.png</strong> (78.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 09:02 上传
+
+幕府投降于萨长联军后，德川庆喜居然还能得到善终？难以想象实际掌权200年的幕府将军把手里权力归还给天皇后还能活到最后
+
+*****
+
+####  007.5  
+##### 2694#       发表于 2024-4-1 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64442204&amp;ptid=2092342" target="_blank">hugosol 发表于 2024-4-1 00:59</a>
+
+如果说龙马是类似仁王2猴子定位的副主角，那权藏简直称得上是里主角
+
+记得去找胜海舟那个任务倒幕 ...</blockquote>
+还有个救医生的任务，只能带龙马，但在任务中可以在某个牢房里当场把权藏救出来，太喜感了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

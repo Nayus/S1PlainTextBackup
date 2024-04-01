@@ -1562,3 +1562,26 @@ b0t水平退化到3年以前了 是这样了<img src="https://static.saraba1st.c
 
 这HLTV一打开就难绷了
 
+
+*****
+
+####  m98626  
+##### 4206#       发表于 2024-4-1 08:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沟槽的pgl摧毁了我的周末，就像一场恶梦
+
+
+*****
+
+####  朔方原的星  
+##### 4207#         楼主| 发表于 2024-4-1 09:03
+
+就喜欢这种有节目效果的结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 4208#       发表于 2024-4-1 09:06
+
+太有李神了实力
+

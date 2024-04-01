@@ -12149,3 +12149,21 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 笃姬的五官比较像doa，没错我说的是女天狗
 
+
+*****
+
+####  蓳白  
+##### 2714#       发表于 2024-4-1 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64446532&amp;ptid=2092342" target="_blank">popchong 发表于 2024-4-1 13:21</a>
+
+笃姬的五官比较像doa，没错我说的是女天狗</blockquote>
+什么，老妖怪又下山作乱了，快去请龙哥的祖先
+
+*****
+
+####  BadYanL  
+##### 2715#       发表于 2024-4-1 13:33
+
+可惜毒藤女不能攻略，洋大妈鞭我！
+

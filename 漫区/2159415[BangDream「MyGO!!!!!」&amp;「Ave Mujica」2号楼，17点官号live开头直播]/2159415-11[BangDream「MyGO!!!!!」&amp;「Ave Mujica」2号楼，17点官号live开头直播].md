@@ -1586,3 +1586,16 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 
 <img src="https://p.sda1.dev/16/bedfba7386577b2d652c9a7a81d27ad7/CMP_20240401203532217.jpg" referrerpolicy="no-referrer">https://x.com/Ottergeist1/status/1774741549404041219?s=20
 
+
+*****
+
+####  ddy2811  
+##### 14937#       发表于 2024-4-1 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64451590&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-1 20:31</a>
+
+「能遇到這些成員是奇蹟。全員都不可或缺，大家都讓我感到自豪」
+
+與佐佐木李子和高尾奏音一起揭秘Ave Muji ...</blockquote>
+感觉和初华差不多沉重啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

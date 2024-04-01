@@ -601,3 +601,34 @@ awwbwg是吧？怎么，你这意思就是这个号是mygo号，mujica本就 ...
 这楼现在也就a团有消息时动得比较多，有其他消 ...</blockquote>
 错误的，泥楼烤羊的内容可不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  L7lv6  
+##### 14859#       发表于 2024-4-1 13:06
+
+<blockquote>蒜灵 发表于 2024-4-1 12:59
+错误的，泥楼烤羊的内容可不少</blockquote>
+烤羊是烤羊，我是说平常mygo有消息时，贴吧nga讨论都会讨论一番。而你楼可能就一两楼提下消息就过去了。
+
+*****
+
+####  御幸一也  
+##### 14860#       发表于 2024-4-1 13:09
+
+ 本帖最后由 御幸一也 于 2024-4-1 13:11 编辑 
+
+ave粉多的樓對go團無關心不是很正常嗎，至少我是只關心ave捏<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  L7lv6  
+##### 14861#       发表于 2024-4-1 13:13
+
+<blockquote>御幸一也 发表于 2024-4-1 12:57
+別尬黑，@NODY 不是ave粉，一開始泥樓抱怨的只有他，其他人都是尊重祝福的，你去和他吵吧。
+
+哦 罵語C的好 ...</blockquote>
+骂语C的很早就有了。怪我明知你楼对官号整活肯定是持反对态度的还想点进来看反应，最后还下场了
+

@@ -9159,3 +9159,16 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 2364#       发表于 2024-4-1 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443697&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-1 09:42</a>
+
+麦河已经是梗了，短时间内不会让你打下来的
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干下来就说明机器人要通关了，你让矢脑怎么把剧情编下去，拖时间
+

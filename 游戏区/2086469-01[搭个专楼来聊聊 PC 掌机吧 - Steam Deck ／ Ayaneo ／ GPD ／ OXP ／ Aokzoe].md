@@ -86,3 +86,11 @@ CPU温度还好，手心温度高，低温烫伤预定。</blockquote>
 
 玩ROG当然要插电玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不然我就SD了
 
+
+*****
+
+####  BOUNCER  
+##### 1148#       发表于 2024-4-1 09:57
+
+请问ROG Ally 现在还值得买吗?还是先收个二手的SD过渡一下。
+

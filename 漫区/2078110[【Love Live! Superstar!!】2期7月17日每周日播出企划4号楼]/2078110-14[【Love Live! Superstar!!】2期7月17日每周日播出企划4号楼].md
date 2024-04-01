@@ -135,3 +135,26 @@ Image_1711900917843.jpg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ads147147  
+##### 19898#       发表于 2024-4-1 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443669&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-4-1 09:40</a>
+
+现在主推不是冬逑薇恩吗，感觉只是为这个短剧服务的设定。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">按花田现在对拉拉的态度，你最好祈求他别去写冬毬薇恩。
+
+现在看没铺垫直接上的可能性挺大的，指不定星3开局就是这两已经黏在一起的空降设定（不管是可v还是冬v。）
+
+*****
+
+####  ads147147  
+##### 19899#       发表于 2024-4-1 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444069&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-4-1 10:12</a>
+
+小看泸姐了，感觉泸爷泸姐人均英语六级。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">忘了沪姐还有地理优势。
+

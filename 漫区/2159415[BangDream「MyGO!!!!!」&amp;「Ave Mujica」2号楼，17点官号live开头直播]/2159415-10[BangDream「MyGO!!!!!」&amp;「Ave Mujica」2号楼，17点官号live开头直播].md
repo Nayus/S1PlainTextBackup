@@ -16751,3 +16751,25 @@ b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还�
 愚人节整活ooc才是正常的吧，多少手游角色都在这天ooc，乐一下就过去的事情，有必要这么上纲上线吗 ...</blockquote>
 你楼鸡粉不都一直看不惯这号，自然有点事就要上纲上线
 
+
+*****
+
+####  skives  
+##### 14791#       发表于 2024-4-1 10:49
+
+这都不是事
+我只想知道mujica什么时候能有新图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  基神的强袭自由  
+##### 14792#       发表于 2024-4-1 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444542&amp;ptid=2159415" target="_blank">skives 发表于 2024-4-1 10:49</a>
+这都不是事
+我只想知道mujica什么时候能有新图</blockquote>
+附议，约稿给点力<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -224,3 +224,26 @@ Screenshot_2024-04-01-11-10-33-336_com.twitter.android.jpg
 </blockquote>
 对的不好意思说错了
 
+
+*****
+
+####  梶原ひかり  
+##### 19906#       发表于 2024-4-1 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445436&amp;ptid=2078110" target="_blank">CaptainPenguin 发表于 2024-4-1 11:51</a>
+看花的说法是她那个事务所改名，不知道烂铁跟这个有啥关系，看了眼烂铁官网上拉的几个都还在，新公布的有水 ...</blockquote>
+属于烂铁自己或者南万音乐自己搞得事务所吧
+
+—— 来自 OPPO PEGM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  梶原ひかり  
+##### 19907#       发表于 2024-4-1 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444848&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-4-1 11:11</a>
+？这是认真的还是在整活？</blockquote>
+今天是财年日吧..公司 事务所移籍一般都是真的
+
+—— 来自 OPPO PEGM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

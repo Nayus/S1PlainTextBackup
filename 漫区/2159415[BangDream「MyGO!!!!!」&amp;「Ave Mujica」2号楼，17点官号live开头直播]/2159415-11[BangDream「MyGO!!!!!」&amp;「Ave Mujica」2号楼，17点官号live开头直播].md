@@ -397,3 +397,61 @@ anon被拿下了，可以期待明年喵梦顶号吗？<img src="https://static.
 
 不过我是支持多来点go友冲淡一下泥楼鸡浓度的，不然哪天泥楼变成鸡粉暗区了那就完犊子了，这种重任还是交给贴吧吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 14840#       发表于 2024-4-1 12:32
+
+可是go粉能去的地方那麼多，但ave粉能去的地方只有泥樓了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 14841#       发表于 2024-4-1 12:33
+
+總之初祥加油<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/01/123250d2dmdd7ddtmj2n20.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_残念ヒーロー(@unfortunate_h)_20240331-042845_1774292726961610753_photo.jpg</strong> (653.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 12:32 上传
+
+[https://twitter.com/unfortunate_h/status/1774292726961610753](https://twitter.com/unfortunate_h/status/1774292726961610753)
+
+*****
+
+####  septer  
+##### 14842#       发表于 2024-4-1 12:34
+
+唉，ylg太多了<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 14843#       发表于 2024-4-1 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445946&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-1 12:32</a>
+可是go粉能去的地方那麼多，但ave粉能去的地方只有泥樓了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该反攻nga了
+
+*****
+
+####  PDQ4  
+##### 14844#       发表于 2024-4-1 12:38
+
+泥漏年初滑坡在外面都传成魔窟了，还有名声？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 14845#       发表于 2024-4-1 12:38
+
+看完RAS以后回归母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

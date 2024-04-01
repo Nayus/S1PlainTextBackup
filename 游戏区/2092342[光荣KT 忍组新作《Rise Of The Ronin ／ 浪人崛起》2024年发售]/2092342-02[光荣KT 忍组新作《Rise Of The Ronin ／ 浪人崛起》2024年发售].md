@@ -11924,3 +11924,44 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 记得去找胜海舟那个任务倒幕 ...</blockquote>
 还有个救医生的任务，只能带龙马，但在任务中可以在某个牢房里当场把权藏救出来，太喜感了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  byisme001  
+##### 2695#       发表于 2024-4-1 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443306&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-1 09:04</a>
+幕府投降于萨长联军后，德川庆喜居然还能得到善终？难以想象实际掌权200年的幕府将军把手里权力归还给天 ...</blockquote>
+胜海舟保的
+
+
+*****
+
+####  nagitoY  
+##### 2696#       发表于 2024-4-1 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64430973&amp;ptid=2092342" target="_blank">hugosol 发表于 2024-3-30 20:27</a>
+
+感觉这游戏三打二还没三打一的几个boss难，青鬼和搭档的两场双打都没单挑的时候压迫力高
+
+因为队友实 ...</blockquote>
+主控角色被boss用投技的时候，立马切队友可以偷好多刀，比弹红光出的硬直大多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 2697#       发表于 2024-4-1 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64431125&amp;ptid=2092342" target="_blank">operatbig 发表于 2024-3-30 20:41</a>
+
+中泽琴没法开好感？</blockquote>
+没想到历史上居然真的有这种女剑客
+
+<img src="https://img.saraba1st.com/forum/202404/01/091724rgdvfvpafu51vufv.png" referrerpolicy="no-referrer">
+
+<strong>001.png</strong> (76.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 09:17 上传
+

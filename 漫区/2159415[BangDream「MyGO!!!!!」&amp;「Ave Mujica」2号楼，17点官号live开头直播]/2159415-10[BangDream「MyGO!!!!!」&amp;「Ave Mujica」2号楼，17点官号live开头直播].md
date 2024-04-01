@@ -16697,3 +16697,11 @@ b站的绫奈脚本十五周年纪念直播的视频没了，有漏油知道还�
 
 以为鸡楼是开玩笑的吗？愚人节不带鸡玩滑一下很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14786#       发表于 2024-4-1 09:06
+
+有一说一B站这个官号自己搞的语C不带着玩是好事，明年怕不是真就把鸡带上一起语C了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

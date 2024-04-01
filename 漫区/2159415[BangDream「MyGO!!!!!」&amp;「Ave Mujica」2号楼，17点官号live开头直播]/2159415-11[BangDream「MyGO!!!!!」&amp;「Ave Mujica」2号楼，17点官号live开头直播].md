@@ -135,3 +135,23 @@ awwbwg是吧？怎么，你这意思就是这个号是mygo号，mujica本就是�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  笋干爆炸碱  
+##### 14813#       发表于 2024-4-1 11:37
+
+喊了多久了，到现在楼都没分<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 14814#       发表于 2024-4-1 11:42
+
+ 本帖最后由 NODY 于 2024-4-1 11:45 编辑 
+
+这个官号连mygo内部水都端不平，鸡内容漏发还能说是因为官号皮下不那么关注mujica，那连mygo自己成员的生日都漏发（还是在动画火起来后）算什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过我觉得这个皮下可能没什么粉丝倾向只是单纯的看谁热度高就多发谁而已，因为这号玩祥子相关梗也挺勤快的
+

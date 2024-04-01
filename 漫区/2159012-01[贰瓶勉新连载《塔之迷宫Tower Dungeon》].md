@@ -730,3 +730,11 @@
 
 鉴于三人组发现捷径也没打算公之于众，小团队互相竞争的气氛下探险队之间根本无法协力建立前哨基地<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 77#       发表于 2024-4-1 11:37
+
+迷宫内果然有人类敌人，居然还是战团叛徒，给主角团好好上了一课，就是学费有点贵<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

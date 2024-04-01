@@ -175,3 +175,11 @@ Screenshot_2024-04-01-11-10-33-336_com.twitter.android.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/01/111052aw9jig4re5l5jhv4.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 19901#       发表于 2024-4-1 11:42
+
+水星莲都转移到这个新公司？然后emo和结那在这公司歌手出道吗？
+

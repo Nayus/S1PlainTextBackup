@@ -1699,3 +1699,12 @@ IM这下合同应该保住了吧
 
 现在这经济系统和mr12一起确实太答辩了
 
+
+*****
+
+####  ispep  
+##### 4223#       发表于 2024-4-1 11:38
+
+能改回mr15最好，经济还可以博弈。不说上调了该混起还是混起 ，mr12即使是bo5每把都还是寸止的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+我玩我想玩mr12，比赛还是打mr15好看啊
+

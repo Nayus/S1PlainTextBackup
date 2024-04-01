@@ -355,3 +355,16 @@ mea整活.jpg
 
 试试ai（
 
+
+*****
+
+####  格林卡罗尔  
+##### 16402#       发表于 2024-4-1 19:15
+
+ 本帖最后由 格林卡罗尔 于 2024-4-1 19:17 编辑 
+
+羊党赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+https://twitter.com/kagura_mea_info/status/1774635745774653703?t=ie3phJEHSgkk5_CS6qX0Bg&amp;s=19
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

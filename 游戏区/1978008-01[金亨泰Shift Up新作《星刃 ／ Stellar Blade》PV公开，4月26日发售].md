@@ -2723,3 +2723,14 @@ BOSS挑战部分应该是较后期的角色强度了，虽然还有两页没解�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  暴走机关车  
+##### 665#       发表于 2024-4-1 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64431998&amp;ptid=1978008" target="_blank">泉美 发表于 2024-3-30 21:55</a>
+
+日版实体的话目前还有个更便宜的</blockquote>
+这破网站居然给我退单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

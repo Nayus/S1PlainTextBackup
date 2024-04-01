@@ -45,3 +45,14 @@
  不联动个名气大点的游戏，为什么要联动一个暴死了的</blockquote>
 难道不是因为舞台都是涉谷吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 55#       发表于 2024-4-1 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64446162&amp;ptid=2172675" target="_blank">shudushimo 发表于 2024-4-1 12:50</a>
+
+不联动个名气大点的游戏，为什么要联动一个暴死了的</blockquote>
+联动野村哥哥
+

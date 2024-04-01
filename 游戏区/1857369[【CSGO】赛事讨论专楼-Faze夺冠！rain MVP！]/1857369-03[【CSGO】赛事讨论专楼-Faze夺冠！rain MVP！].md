@@ -1528,3 +1528,13 @@ blade真的有东西
 
 b0t水平退化到3年以前了 是这样了<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stlover  
+##### 4203#       发表于 2024-4-1 07:53
+
+恭喜niko又有一个前队友夺冠
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1191,3 +1191,13 @@ b号有种就管人出道，反正我没意见，运营也挺爱演的都不用�
 上舰哪够，舰限live给wsd亏麻了，300多的配信到了阿b手里只要138还有分成，看见上舰数抠比wsd估计心疼的掉 ...</blockquote>
 恕我直言，如果wsd因为这个觉得亏了，那只能说明他们市场部门是傻逼
 
+
+*****
+
+####  PDQ4  
+##### 14917#       发表于 2024-4-1 18:12
+
+wsd还能不觉得亏了？难道不是处处透露着小家子气。
+
+抠比又不是一天两天了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -9334,3 +9334,13 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  WGTCorp  
+##### 2383#       发表于 2024-4-1 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449929&amp;ptid=2170852" target="_blank">runningch 发表于 2024-4-1 17:45</a>
+没打下提比特，超级气球的剧本我猜会是这样：由于没能按时打下提比特，导致哑铃人成功联系上外域的外星人， ...</blockquote>
+解包出的语音好像还没提到光能者。机器人那边的行动要是失败了感觉只有两种结果，要么箭头派出阴兵强行完成任务推动剧情，要么直接摆烂再摸一周。
+

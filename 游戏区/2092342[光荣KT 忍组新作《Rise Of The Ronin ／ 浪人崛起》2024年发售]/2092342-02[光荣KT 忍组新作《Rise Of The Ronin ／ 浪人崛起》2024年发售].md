@@ -12098,3 +12098,21 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 因缘任务做完了以后就能攻略，这游戏真的各种攻略老嫂子</blockquote>
 能攻略的有寡妇、未婚妻、艺妓，综合下来好像也就医生一个正常点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 2708#       发表于 2024-4-1 11:24
+
+毒藤女一开始用短手武器打着难受得要死，被各种上状态，后面换了长枪就很轻松了，抽鞭子就往后躲，剑模式冲刺就石火大硬直之后用前跳砸倒地的武技连一套，非常爽快
+
+不知道后面还有没有这种类型的boss
+
+*****
+
+####  zqqwe  
+##### 2709#       发表于 2024-4-1 11:25
+
+打到现在回头看开发访谈的战斗部分就纯放屁啊。“石火不是核心系统”<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">你不用石火打个伊藤x山县的首相组合给我看看。
+以及“正常人锻炼后能使出的招式”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

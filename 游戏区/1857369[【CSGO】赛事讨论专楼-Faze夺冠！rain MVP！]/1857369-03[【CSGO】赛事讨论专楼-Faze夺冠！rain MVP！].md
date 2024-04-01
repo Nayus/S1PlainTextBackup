@@ -1683,3 +1683,11 @@ IM这下合同应该保住了吧
 
 太有实力了李神太有实力了李神太有
 
+
+*****
+
+####  heseran  
+##### 4221#       发表于 2024-4-1 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">reddit有人发了个大表哥决赛图三击杀集锦，看到标题就笑了
+

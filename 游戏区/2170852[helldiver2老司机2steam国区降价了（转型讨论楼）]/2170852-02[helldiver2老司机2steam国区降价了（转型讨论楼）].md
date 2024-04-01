@@ -9244,3 +9244,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 —— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rgauss  
+##### 2373#       发表于 2024-4-1 11:15
+
+一点都不想在大平原打机器人 大平原打虫子还行
+

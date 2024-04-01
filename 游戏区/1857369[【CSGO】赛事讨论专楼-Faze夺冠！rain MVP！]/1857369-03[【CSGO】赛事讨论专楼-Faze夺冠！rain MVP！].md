@@ -1762,3 +1762,13 @@ mr15回来吧。
 
 意想不到的结局，我觉得辣味总体实力排5-6的。
 
+
+*****
+
+####  攻城匠师黑索  
+##### 4230#       发表于 2024-4-1 21:18
+
+冠军单曲  [https://www.bilibili.com/video/BV15H4y1s7gS/](https://www.bilibili.com/video/BV15H4y1s7gS/)
+
+太有音乐了李神&amp;#x1F600;&amp;#x1F44D;太有rap了李神&amp;#x1F600;&amp;#x1F44D;太有默认了李神&amp;#x1F600;&amp;#x1F44D;太有战术了李神&amp;#x1F600;&amp;#x1F44D;太有枪法了李神&amp;#x1F600;&amp;#x1F44D;
+

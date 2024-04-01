@@ -1609,3 +1609,13 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 
 不知道之后访谈可不可以拼凑出具体的入队顺序<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 14939#       发表于 2024-4-1 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64451383&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-1 20:15</a>
+又吸大了</blockquote>
+好想看到祥子和小白互动啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

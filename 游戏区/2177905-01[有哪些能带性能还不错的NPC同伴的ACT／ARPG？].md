@@ -376,3 +376,16 @@ ai平时会积攒这个槽不放，你可以用指令（ffo记得是异步不影
 
 其实生化危机5和6的同伴就挺好~
 
+
+*****
+
+####  jf8350143  
+##### 47#       发表于 2024-4-1 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64434884&amp;ptid=2177905" target="_blank">科本学士 发表于 2024-3-31 09:08</a>
+
+请问辐射4也这样吗</blockquote>
+辐射4的伤害全靠perk，改枪多的那点伤害都是毛毛雨
+
+但是队友没有perk，枪法还贼差，除非拿mod的强力武器否则就是图一乐，甚至当不了沙包
+

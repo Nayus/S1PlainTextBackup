@@ -9472,3 +9472,11 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 文案都来不及本地化，绷
 
+
+*****
+
+####  Mr.Hopp  
+##### 2395#       发表于 2024-4-1 22:51
+
+看来是准备明天晚上打下了继续之前的指令<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周四正好更新。
+

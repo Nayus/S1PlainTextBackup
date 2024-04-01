@@ -12319,3 +12319,14 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 <blockquote>[ nagitoY replied on 2024-4-1 21:31](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452261&amp;ptid=2092342) 这河上彦斋到底是谁，像条疯狗一样盯着新选组咬？我都不认识他啊 </blockquote>
 这人被我砍死了，怎么没有出现在道馆里？来自: iPhone客户端
 
+
+*****
+
+####  bletilla  
+##### 2733#       发表于 2024-4-2 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64444882&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-1 11:12</a>
+
+能攻略的有寡妇、未婚妻、艺妓，综合下来好像也就医生一个正常点</blockquote>
+还有篤姫，这个也是个俏寡妇
+

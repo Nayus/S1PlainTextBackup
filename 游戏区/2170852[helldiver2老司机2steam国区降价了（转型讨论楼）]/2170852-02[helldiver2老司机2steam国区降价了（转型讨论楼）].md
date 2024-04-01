@@ -9497,3 +9497,13 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 在入坑一个月后，终于和俩基友一起完美clear+全撤离过了n9机器人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 麦河真是个好地方
 
+
+*****
+
+####  rainknine  
+##### 2398#       发表于 2024-4-2 00:35
+
+<img src="https://p.sda1.dev/16/f3e87e34e83afb9aa5c81e02cc972d04/CMP_20240402003519108.png" referrerpolicy="no-referrer">
+今天疏散任务遇到的刁民们，在逃生路上卡住了
+我没有亲眼目睹，但队友称给他们一人一肘后他们就会记得逃生了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -1485,3 +1485,99 @@ https://dengekionline.com/articles/215678/
 
 刑部老贼的访谈 如果没人感兴趣的话我会在清明假期翻译
 
+
+*****
+
+####  aptx8285144  
+##### 4562#       发表于 2024-4-1 23:02
+
+<img src="https://img.saraba1st.com/forum/202404/01/223035lcry4ruciceuhqho.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401222429.png</strong> (74.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 22:30 上传
+
+加入了“唯有”
+
+<img src="https://img.saraba1st.com/forum/202404/01/223100f62qquww6nzrfzys.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401222453.png</strong> (65.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 22:31 上传
+
+内部数据
+
+<img src="https://img.saraba1st.com/forum/202404/01/223352fkxfqbyq30humsql.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401223338.png</strong> (84.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 22:33 上传
+
+打戏得比上周稍微差了一点，不过也还行
+
+<img src="https://img.saraba1st.com/forum/202404/01/223622nl07t4f05ln0n5a0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401223609.png</strong> (73.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 22:36 上传
+
+<strong>彼方还是没有忘记歌姬</strong>，也许他作为机师最巅峰时刻只是最终话，但他的性格还挺正的，这年头看看去年和前年那些原创动画稀里糊涂整出来的活....
+
+<img src="https://img.saraba1st.com/forum/202404/01/224559n9fi8xzqilz87fm8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401224542.png</strong> (108.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 22:45 上传
+
+其实理论上来讲以后玛利亚再整出一艘火箭可能性依旧存在
+
+<img src="https://img.saraba1st.com/forum/202404/01/224857x2zw2bk6kzrz6rkr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401224835.png</strong> (77.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 22:48 上传
+
+这不是永别
+
+<img src="https://img.saraba1st.com/forum/202404/01/225537pmr315erimk001gr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401225457.png</strong> (76.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 22:55 上传
+
+其实大姐头和老婆婆似乎是认识的，之前就在想这点
+
+<img src="https://img.saraba1st.com/forum/202404/01/225819ukkfxwdf7dedxftf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401225801.png</strong> (52.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 22:58 上传
+
+突然想起了，<strong>彼方的生母也是人类，养母是贤士吧</strong>
+
+<img src="https://img.saraba1st.com/forum/202404/01/230211ln7qt7u7gn3zynqr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240401230157.png</strong> (81.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 23:02 上传
+
+再去宇宙，其实是再去乐园吧
+

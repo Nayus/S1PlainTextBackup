@@ -9480,3 +9480,11 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 看来是准备明天晚上打下了继续之前的指令<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周四正好更新。
 
+
+*****
+
+####  Launce  
+##### 2396#       发表于 2024-4-1 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不搞阴兵的话，2个半小时左右拿下
+

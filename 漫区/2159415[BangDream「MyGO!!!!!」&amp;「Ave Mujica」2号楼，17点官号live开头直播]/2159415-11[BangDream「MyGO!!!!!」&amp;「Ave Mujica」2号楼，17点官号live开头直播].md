@@ -1680,3 +1680,32 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 
 还真挺好奇能有多黑暗，邦邦基调最后肯定要包饺子所以内部关系肯定黑不到哪去，那只能从家庭情况或者黑心公司之类的下手了，PPP初设的人均凑不出几个父母，少歌那种孤儿被父母遗弃或者DJ那种妈死了被爹当工具养大之类的吗，或者PP的屑公司超级加倍<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 14948#       发表于 2024-4-1 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445447&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-4-1 11:52</a>
+
+从那个官号开始投蹭热度小视频的时候我就不爽，合号的时候我来s1骂，玩客服梗的时候我终于忍不住拉 ...</blockquote>
+我觉得不可以，尤其是小视频那个本来就是外网也有的东西，而且MyGO的传播路径如此想翻案是真的没门，当然合号玩不明白确实该喷就是了
+
+
+*****
+
+####  基神的强袭自由  
+##### 14949#       发表于 2024-4-1 23:03
+
+ 本帖最后由 基神的强袭自由 于 2024-4-1 23:05 编辑 
+
+<img src="https://img.saraba1st.com/forum/202404/01/230247t252c4c2c5czdm2t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 23:02 上传
+
+诶。。。我是光属性？<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+

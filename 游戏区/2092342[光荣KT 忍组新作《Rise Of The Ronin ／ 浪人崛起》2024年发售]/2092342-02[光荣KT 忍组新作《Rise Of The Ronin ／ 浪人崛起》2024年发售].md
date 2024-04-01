@@ -12268,3 +12268,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 操作队友的体验好棒<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，还能玩飞燕和无限手里剑
 
+
+*****
+
+####  nagitoY  
+##### 2727#       发表于 2024-4-1 22:56
+
+伊藤博文的支线要我一打三，但是两遍就过了。足以说明斋藤一的设计有多脑残<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

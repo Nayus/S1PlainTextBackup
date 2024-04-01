@@ -772,3 +772,40 @@ B站号要是没有那个黄标认证，后缀名_AveMujica，鸡粉谁管你运
 
 拳打柿本，脚踢绫奈，除籍官推，该匡扶b号正统了。<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14874#       发表于 2024-4-1 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64447956&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 15:16</a>
+
+你才是别急，回复看慢点，"好像"，"?"号都被你漏完了。况且真就只剩你楼会抱怨ooc的问题了 ...</blockquote>
+吐槽一个ooc至于破防这么久吗，这官号平时套着爱音皮蹭热度，一出问题就装死还放任评论推锅角色说是要配合爱音人设才出错，还不止一次，怎么就不能说一下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 14875#       发表于 2024-4-1 15:39
+
+服了漏油了怎么还在吵语c<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+他们喜欢语c这套就让他们喜欢着呗，毕竟目前还没太祸害到mujica身上与我无关
+不过希望这份喜爱能够一以贯之，别之后运营得意忘形语c翻车了又马后炮骂官号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+前段时间才因为手游剧情角色形象🐶队内角色厨打架，结果还上赶着给角色形象增添不稳定因素也是没想到
+
+*****
+
+####  滑稽Captain  
+##### 14876#       发表于 2024-4-1 15:41
+
+平时ooc另说，该骂就骂，但作为愚人节玩笑的时候就是不管多离谱都合理的呀，虽然不知道为什么日本现在成了全世界最关心愚人节的国家
+
+*****
+
+####  PDQ4  
+##### 14877#       发表于 2024-4-1 15:43
+
+手游剧情有争议？
+
+鉴定为没让b号玩梗导致的，以后有争议让b号出来整活就行，反正都大好评。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

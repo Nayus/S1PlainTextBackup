@@ -578,3 +578,26 @@ awwbwg是吧？怎么，你这意思就是这个号是mygo号，mujica本就 ...
 
 別尬黑，[@NODY](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=276670) 不是ave粉，一開始泥樓抱怨的只有他，其他人都是尊重祝福的，你去和他吵吧。
 
+
+*****
+
+####  L7lv6  
+##### 14857#       发表于 2024-4-1 12:59
+
+<blockquote>Aendst 发表于 2024-4-1 12:04
+说的好，mujica推都支持分楼分号，你呢</blockquote>
+我也支持啊，本来合号我就不支持。想引流多转动态就行了。
+
+这楼现在也就a团有消息时动得比较多，有其他消息时都不怎么动的。把mygo踢出去，让mygo新建一楼，这楼当成a团专楼我也是支持的
+
+*****
+
+####  蒜灵  
+##### 14858#       发表于 2024-4-1 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64446262&amp;ptid=2159415" target="_blank">L7lv6 发表于 2024-4-1 12:59</a>
+我也支持啊，本来合号我就不支持。想引流多转动态就行了。
+
+这楼现在也就a团有消息时动得比较多，有其他消 ...</blockquote>
+错误的，泥楼烤羊的内容可不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

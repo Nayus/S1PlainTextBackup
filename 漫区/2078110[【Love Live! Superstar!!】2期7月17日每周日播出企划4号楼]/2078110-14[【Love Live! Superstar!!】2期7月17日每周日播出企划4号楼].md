@@ -270,3 +270,19 @@ Screenshot_2024-04-01-11-10-33-336_com.twitter.android.jpg
 
 这仨到底啥关系，以后拉拉的音乐相关事务要转到starrise吗
 
+
+*****
+
+####  oi99o  
+##### 19911#       发表于 2024-4-1 13:00
+
+万南音乐是公司，烂铁是旗下的唱片品牌，starrise是旗下的事务所品牌。可以说是唱片发行和经纪事务分成两个部门，总之要背锅还是继续找万南就对了
+
+
+*****
+
+####  qty  
+##### 19912#       发表于 2024-4-1 13:03
+
+结那这个艺名...只能说确实有点中二基因在身上的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

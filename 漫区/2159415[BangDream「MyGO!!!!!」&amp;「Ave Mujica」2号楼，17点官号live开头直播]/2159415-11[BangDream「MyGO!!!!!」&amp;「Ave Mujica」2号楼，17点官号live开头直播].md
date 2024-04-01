@@ -1627,3 +1627,25 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 
 祥子是光属性的 但暗堕了 那最后会光堕回去么<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 14941#       发表于 2024-4-1 21:40
+
+角色是黑暗的，不会最后真的五个人凑不出一对完整的爹妈吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 14942#       发表于 2024-4-1 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉难了，高尾是拿到动画台本后才知道光祥子的存在，也就是说基础设定/试音环节挑人标准是暗堕后的状态
+
+*****
+
+####  星空冻结  
+##### 14943#       发表于 2024-4-1 21:40
+
+🐔团五个人凑不出一个正常人不是大家早就知道的事吗
+

@@ -760,3 +760,15 @@ B站号要是没有那个黄标认证，后缀名_AveMujica，鸡粉谁管你运
 不过，这开口就是mygo粉都喜闻乐见……好 ...</blockquote>
 你才是别急，回复看慢点，"好像"，"?"号都被你漏完了。况且真就只剩你楼会抱怨ooc的问题了
 
+
+*****
+
+####  PDQ4  
+##### 14873#       发表于 2024-4-1 15:28
+
+早说了对于b友来讲ooc不是问题，二创大环境都这样，你们这些在意角色人设的才该滚吧。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+鸡狗角色人设如何关我玩梗皮套什么事，怎么敢剥夺我们伟大运营b号的皮套自由。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+拳打柿本，脚踢绫奈，除籍官推，该匡扶b号正统了。<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+

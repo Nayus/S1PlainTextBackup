@@ -9200,3 +9200,11 @@ CPU优化问题一直有，建议用第三方软件对这破游戏进行CPU限�
 
 麦河体验独一份，昏暗森林里面枪林弹雨全歼敌营的感觉是真的不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yahuchi  
+##### 2368#       发表于 2024-4-1 10:40
+
+还别说，每次我去找机器人N9闪电战任务偷超级样本都是在麦河，压迫感拉满
+

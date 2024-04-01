@@ -368,3 +368,11 @@ ai平时会积攒这个槽不放，你可以用指令（ffo记得是异步不影
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  金属史莱姆  
+##### 46#       发表于 2024-4-1 21:01
+
+其实生化危机5和6的同伴就挺好~
+

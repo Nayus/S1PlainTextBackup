@@ -8858,3 +8858,16 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 
 后面斯普拉遁在日本实在是火得一塌糊涂，光是超级小学生都好几个，后浪太猛了
 
+
+*****
+
+####  laosai13  
+##### 3867#       发表于 2024-4-1 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64451797&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-4-1 20:49</a>
+
+没记错的话，当年非官方的比赛也是他们赢了很多，当之无愧的世界最强的
+
+后面斯普拉遁在日本实在是火得一 ...</blockquote>
+毕竟是年轻人的比赛/运动，高手都太年轻了
+

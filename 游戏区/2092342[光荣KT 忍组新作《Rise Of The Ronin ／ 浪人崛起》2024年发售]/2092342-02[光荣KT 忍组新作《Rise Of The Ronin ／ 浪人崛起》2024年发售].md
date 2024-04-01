@@ -12301,3 +12301,12 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 <blockquote>[ nagitoY replied on 2024-4-1 23:24](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64453226&amp;ptid=2092342) 道馆里没看到青鬼啊。他的支线我已经做完了 </blockquote>
 找到了，在隼流忍者道馆那里来自: iPhone客户端
 
+
+*****
+
+####  ouyang菌  
+##### 2731#       发表于 2024-4-1 23:51
+
+这作队友专属动作还挺多的
+[https://www.bilibili.com/video/B ... faaee894d855de98959](https://www.bilibili.com/video/BV1gZ421B7mC/?spm_id_from=333.1365.list.card_archive.click&amp;vd_source=3a6b211bc8200faaee894d855de98959)
+

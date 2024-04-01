@@ -9316,3 +9316,11 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 毒气也会受影响，而且毒气不像喷火器和火喷，自己本身没伤害只有dot，导致非主机用一点伤害都没有
 
+
+*****
+
+####  Launce  
+##### 2381#       发表于 2024-4-1 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">类星体打到叶子导致自爆都知道的，昨天发现带着蛋盾有概率也会自爆
+

@@ -110,3 +110,16 @@
 
 希望不久的将来会有portable的免安装winXP虚拟机出现吧。上面的VM虚拟机版还是需要汇入系统，有一些门槛。
 
+
+*****
+
+####  黑暗之眼  
+##### 197#       发表于 2024-4-1 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64445701&amp;ptid=2094626" target="_blank">winggg 发表于 2024-4-1 12:10</a>
+
+测试结果，这系列与Win98看来没什么缘分。
+
+樱1在Win98可以安装运行，但反复闪退无法解决；樱2连运行都成问 ...</blockquote>
+还是非常感谢！
+

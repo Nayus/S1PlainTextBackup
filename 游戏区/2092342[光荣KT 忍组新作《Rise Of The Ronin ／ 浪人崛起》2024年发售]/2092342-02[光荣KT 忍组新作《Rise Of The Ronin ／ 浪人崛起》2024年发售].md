@@ -12045,3 +12045,23 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2703#       发表于 2024-4-1 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443306&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-1 09:04</a>
+幕府投降于萨长联军后，德川庆喜居然还能得到善终？难以想象实际掌权200年的幕府将军把手里权力归还给天 ...</blockquote>
+这也不奇怪啊，溥仪大清亡了不还活的好好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。都近现代社会了，确实还是文明很多。
+
+*****
+
+####  popchong  
+##### 2704#       发表于 2024-4-1 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64443421&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-1 09:17</a>
+
+没想到历史上居然真的有这种女剑客</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">我打赢了啊，为什么不让我比翼
+

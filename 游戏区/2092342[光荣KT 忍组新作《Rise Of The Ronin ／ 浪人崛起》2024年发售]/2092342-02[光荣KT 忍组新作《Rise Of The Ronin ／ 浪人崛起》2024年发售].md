@@ -12240,3 +12240,12 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 这斋藤一是什么脑瘫，能不能剁了。他支线任务我实在是不能接受。来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 2724#       发表于 2024-4-1 21:52
+
+<blockquote>[ nagitoY replied on 2024-4-1 21:39](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452342&amp;ptid=2092342) 这斋藤一是什么脑瘫，能不能剁了。他支线任务我实在是不能接受。 </blockquote>
+刚帮他解决河上这条疯狗，转头就要把我杀了灭口。不把这人剁了实在是难解心头之恨。而且这人可以算是游戏中最粪的boss之一，两套7连平a，还是快慢刀，只能背版来自: iPhone客户端
+

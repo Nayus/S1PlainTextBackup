@@ -500,3 +500,16 @@ staff:不装了我也不知道小麦怎么能去上学直接奇迹完事了<img 
 
 q娃，很神奇吧
 
+
+*****
+
+####  pokemon最爱  
+##### 1272#       发表于 2024-4-1 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449289&amp;ptid=2162354" target="_blank">碎镜子 发表于 2024-4-1 16:55</a>
+
+道理我都懂，为啥小麦的校服是裤子。
+
+变身自带衣服，然后脱了换校服，变回去校服掉下来，那再变回去？ ...</blockquote>
+以小麦那个没常识水平和活泼水平，穿裙子怕不是分分钟走光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

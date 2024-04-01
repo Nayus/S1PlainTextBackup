@@ -1164,3 +1164,20 @@ b号有种就管人出道，反正我没意见，运营也挺爱演的都不用�
 问题是动画党绝大部分我猜都在国内，指望他们买bd那是比较难的，要我说不如学管人，卖b站装扮，十个人一 ...</blockquote>
 上舰行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 14914#       发表于 2024-4-1 17:28
+
+上舰哪够，舰限live给wsd亏麻了，300多的配信到了阿b手里只要138还有分成，看见上舰数抠比wsd估计心疼的掉小珍珠，说什么都不给看了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 14915#       发表于 2024-4-1 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449754&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-1 17:28</a>
+上舰哪够，舰限live给wsd亏麻了，300多的配信到了阿b手里只要138还有分成，看见上舰数抠比wsd估计心疼的掉 ...</blockquote>
+那得看上舰的是增量还是存量了，有些人本来就不会去外网看live，那他上舰就是增量
+

@@ -8824,3 +8824,14 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 
 这场特别精彩，健身房区域那把反超简直神了
 
+
+*****
+
+####  晴岚  
+##### 3864#       发表于 2024-4-1 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449000&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-1 16:37</a>
+
+中午看了2019年的世锦赛录像，原来这四人曾经如此辉煌过啊</blockquote>
+啤算米奇的迷弟，米奇去年是因为自己的问题被炎上的
+

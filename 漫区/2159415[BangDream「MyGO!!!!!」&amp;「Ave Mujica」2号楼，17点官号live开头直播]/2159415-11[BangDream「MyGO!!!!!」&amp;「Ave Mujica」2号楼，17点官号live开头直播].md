@@ -1228,3 +1228,17 @@ wsd不是一直都挺短视的吗，嫌弃邦邦分钱少要搞自家占大头�
 [f: ...</blockquote>
 卧槽，鸡料
 
+
+*****
+
+####  PDQ4  
+##### 14921#       发表于 2024-4-1 18:29
+
+ 本帖最后由 PDQ4 于 2024-4-1 18:31 编辑 
+
+米泽长高了？怎么李子笔记上还记这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+“ーー歯車を回しつつ、そして狂わせる存在でもあると言いますか。”
+
+好中二，爱了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

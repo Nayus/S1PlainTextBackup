@@ -12578,3 +12578,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 <blockquote>[ ouyang菌 replied on 2024-4-2 19:16](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462639&amp;ptid=2092342) 引用:nagitoY 发表于 2024-04-02 18:49:09 到底怎么触发上床事件啊已经忘了是怎么和医生触发的了。 现在我比翼只有笃姬一个人，她的支线也全部做完了 ...我记得俩寡妇和龙马迷妹都不能上床    -- 来自 能看大图的 Stage1官方 Android客户端 </blockquote>
 多加剧情杀之后，再用回魂录达成比翼，好像也没法触发上床事件了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 2759#       发表于 2024-4-2 20:35
+
+通关了，在这个节点结局很巧妙啊。后来西乡不满新政府的利益分配又开打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

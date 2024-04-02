@@ -282,3 +282,19 @@ new了剑式，还行了
 
 福袋new闪，大帝1-2宝，神奇的是心血来潮投5符闪1-2，再投10发棉被1-2<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  布伦史塔德  
+##### 46266#       发表于 2024-4-2 20:25
+
+捅了渡边纲窝
+
+<img src="https://img.saraba1st.com/forum/202404/02/202523e7fn9ur9ou1huolk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (334.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 20:25 上传
+

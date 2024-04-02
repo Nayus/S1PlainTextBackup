@@ -2815,3 +2815,11 @@ BOSS挑战部分应该是较后期的角色强度了，虽然还有两页没解�
 这个女主的脸到底长什么样，怎么感觉封面播片实机每一张脸都不像同一个人 ...</blockquote>
 没有特点，记不住就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky7913  
+##### 675#       发表于 2024-4-2 20:28
+
+才知道完美闪躲之后短按△可以不消耗能量突进……
+

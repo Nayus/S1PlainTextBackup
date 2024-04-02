@@ -10320,3 +10320,11 @@ AT AT实装了，压迫感拉满
 
 新出来的高塔怎么破坏？扔了500G和380都没炸掉，被飞船撵着走不确定是不是因为没炸中
 
+
+*****
+
+####  kalavinka  
+##### 2455#         楼主| 发表于 2024-4-2 20:31
+
+刚重炮手用上瘾就削了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

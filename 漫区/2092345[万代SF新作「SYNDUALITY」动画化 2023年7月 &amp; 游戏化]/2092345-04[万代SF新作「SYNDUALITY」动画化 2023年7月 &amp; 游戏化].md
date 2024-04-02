@@ -1629,3 +1629,14 @@ https://dengekionline.com/articles/215678/
 时雄其他都还好，对威斯这个最后的“兄弟情”我还是有些绷不住，马哈特也就算了，你自己打小就知 ...</blockquote>
 你看你哥再不爽也是你哥，打一顿和要他死之间感情差别还是挺大的，毕竟威斯对时雄来说也没啥深仇大恨
 
+
+*****
+
+####  Grahamlinks  
+##### 4568#       发表于 2024-4-2 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463760&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-4-2 20:56</a>
+
+切割掉整烂活的21话，还算能看吧，遥想22年莉可莉丝的那位打枪天才，我最后还真怕彼方最后来个逆天发言[f: ...</blockquote>
+是，就我觉得歌姬的处理真的太差了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">歌姬的处理如果好一点这片子肯定评价能上升几个档次。而且这片子死的人（magus）就不多，偏偏这都能发刀到歌姬头上也是醉了（第一季度大哥被贯穿驾驶舱都没似呢）
+

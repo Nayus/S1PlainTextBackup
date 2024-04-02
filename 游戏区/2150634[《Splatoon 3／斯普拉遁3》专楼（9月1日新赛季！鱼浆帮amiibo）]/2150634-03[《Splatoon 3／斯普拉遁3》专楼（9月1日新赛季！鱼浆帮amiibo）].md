@@ -8972,3 +8972,17 @@ syl，野上最英明的决定就是让涂地特化的甲子园冠军去打真�
 
 今天李雷直播猛汉，奶狗拉直播O神，上位势们纷纷寻求转型吗？
 
+
+*****
+
+####  shirolin  
+##### 3877#       发表于 2024-4-2 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64457118&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-2 11:44</a>
+巨大冰壶是新增活动吗？怎么毫无印象
+
+—— 来自 S1Fun</blockquote>
+新活动
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

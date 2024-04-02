@@ -12718,3 +12718,34 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 为啥我跟医生好上她的急救箱道具里找不到啊艹，明明都显示收到了
 
+
+*****
+
+####  nagitoY  
+##### 2773#       发表于 2024-4-3 00:06
+
+打了隐藏boss解锁了爱州阴流、仁王流。极传如何解锁？隼流也没解锁极传，是要刷隼流忍者的因缘值吗来自: iPhone客户端
+
+*****
+
+####  ouyang菌  
+##### 2774#       发表于 2024-4-3 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64465932&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-04-03 00:06:28</a>
+打了隐藏boss解锁了爱州阴流、仁王流。极传如何解锁？隼流也没解锁极传，是要刷隼流忍者的因缘值吗 ...</blockquote>爱洲阴流打通缉犯，仁王流拜神社升级
+隼流是升泽村保佑的好感度
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nagitoY  
+##### 2775#       发表于 2024-4-3 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64465948&amp;ptid=2092342" target="_blank">ouyang菌 发表于 2024-4-3 00:08</a>
+
+爱洲阴流打通缉犯，仁王流拜神社升级
+
+隼流是升泽村保佑的好感度</blockquote>
+上面两个条件在哪里查啊？流派界面只写了该技能极传得到强化。
+

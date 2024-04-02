@@ -1783,3 +1783,14 @@ animax版的1st真的看爽了，好多新鏡頭<img src="https://static.saraba1
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  滑稽Captain  
+##### 14957#       发表于 2024-4-2 14:31
+
+MyGO!!!!!ツアーファイナル直前特別企画『ライブ使用機材完全ガイド』　楽器隊4人が語る“相棒”の魅力  | ORICON NEWS 
+[https://www.oricon.co.jp/news/2320710/full](https://www.oricon.co.jp/news/2320710/full)
+
+主要都是介绍乐器，看不懂一点（
+

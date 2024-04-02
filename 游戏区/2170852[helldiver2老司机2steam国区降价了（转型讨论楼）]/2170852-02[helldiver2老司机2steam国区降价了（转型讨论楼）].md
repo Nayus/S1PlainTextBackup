@@ -10555,3 +10555,27 @@ AT AT实装了，压迫感拉满
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Launce  
+##### 2482#       发表于 2024-4-3 01:28
+
+<img src="https://img.saraba1st.com/forum/202404/03/012650drkssa6a1i1ofgsw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 01:26 上传
+
+<img src="https://img.saraba1st.com/forum/202404/03/012719lmbjjh6yevyvymmm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 01:27 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">简体翻译我绷不住了
+

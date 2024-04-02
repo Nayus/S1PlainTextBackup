@@ -12787,3 +12787,15 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 来自: iPhone客户端
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2780#       发表于 2024-4-3 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64466286&amp;ptid=2092342" target="_blank">华发夜眼[CN] 发表于 2024-4-3 00:42</a>
+流派到后期战技会变强吗，我现在快20，几个都是中阶，但还是感觉战技没啥用啊，全程都是石火平A。
+
+仁王卧龙 ...</blockquote>
+不会，这作战技存在感和卧龙比没多大区别，再考虑耗精问题性价比更低了，不然你以为大家为啥喷战斗系统那么厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

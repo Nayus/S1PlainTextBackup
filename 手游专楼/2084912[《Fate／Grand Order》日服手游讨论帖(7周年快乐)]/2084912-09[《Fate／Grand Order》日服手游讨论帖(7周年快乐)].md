@@ -1323,3 +1323,14 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  UNISONIA  
+##### 11954#       发表于 2024-4-2 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449559&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-4-1 17:14</a>
+
+愚人节小游戏的职员表里怎么还有盐川</blockquote>
+19年的愚人节游戏FGO Quest就提了盐川把这部分策划到了十周年的量，应该是早有准备
+

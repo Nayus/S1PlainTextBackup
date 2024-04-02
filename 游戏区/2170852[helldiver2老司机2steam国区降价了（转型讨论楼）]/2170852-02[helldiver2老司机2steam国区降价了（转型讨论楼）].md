@@ -9531,3 +9531,11 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">这么晚才来新指令没打亏了
 
+
+*****
+
+####  丹德里恩  
+##### 2402#       发表于 2024-4-2 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">狗急跳墙的生化人在最后摇来了许久不见的光能者，剧本一定是这么写的吧
+

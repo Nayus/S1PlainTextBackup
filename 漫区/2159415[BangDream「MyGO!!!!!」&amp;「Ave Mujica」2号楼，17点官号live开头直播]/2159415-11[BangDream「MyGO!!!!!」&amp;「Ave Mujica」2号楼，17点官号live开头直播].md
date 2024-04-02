@@ -1771,3 +1771,15 @@ animax版的1st真的看爽了，好多新鏡頭<img src="https://static.saraba1
 
 2024-4-2 12:51 上传
 
+
+*****
+
+####  novalli  
+##### 14956#       发表于 2024-4-2 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452359&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-1 21:40</a>
+感觉难了，高尾是拿到动画台本后才知道光祥子的存在，也就是说基础设定/试音环节挑人标准是暗堕后的 ...</blockquote>
+我记得Mujica本来就比MyGO组建的早，只是故事和动画是在Mujica之前。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

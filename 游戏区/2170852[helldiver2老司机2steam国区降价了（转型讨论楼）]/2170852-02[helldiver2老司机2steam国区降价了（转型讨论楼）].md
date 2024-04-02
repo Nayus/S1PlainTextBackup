@@ -9563,3 +9563,21 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 2024-4-2 12:58 上传
 
+
+*****
+
+####  xinfengj  
+##### 2404#       发表于 2024-4-2 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64457928&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-2 13:00</a>
+
+光能族的隐形航母正在麦麦辣芬蒙河督战呢</blockquote>
+不是超级驱逐舰的影子么
+
+*****
+
+####  Aeons  
+##### 2405#       发表于 2024-4-2 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">离子喷真比焦土好吗
+

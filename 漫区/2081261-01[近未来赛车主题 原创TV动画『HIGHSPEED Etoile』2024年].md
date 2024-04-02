@@ -115,3 +115,15 @@
 
 我只想看电风扇入弯和boost on啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 124#         楼主| 发表于 2024-4-2 22:15
+
+[https://m.bilibili.com/space/3537111563111029](https://m.bilibili.com/space/3537111563111029)
+
+HIGHSPEED Étoile/极速星舞 将于4月5日正式播出
+
+届时本账号将会同步更新（中国时间4月6日凌晨1点30分）
+

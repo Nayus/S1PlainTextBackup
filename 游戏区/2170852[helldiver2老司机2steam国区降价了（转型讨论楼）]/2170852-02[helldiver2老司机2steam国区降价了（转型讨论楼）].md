@@ -10419,3 +10419,20 @@ AT AT实装了，压迫感拉满
 
 今天日常的装甲兵指的是啥？
 
+
+*****
+
+####  rainknine  
+##### 2467#       发表于 2024-4-2 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64464511&amp;ptid=2170852" target="_blank">yahuchi 发表于 2024-4-2 22:14</a>
+今天日常的装甲兵指的是啥？</blockquote>
+好像就是机器人小兵的一种
+
+*****
+
+####  yahuchi  
+##### 2468#       发表于 2024-4-2 22:22
+
+感谢~我去试试
+

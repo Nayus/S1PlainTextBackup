@@ -8986,3 +8986,14 @@ syl，野上最英明的决定就是让涂地特化的甲子园冠军去打真�
 
 —— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  laosai13  
+##### 3878#       发表于 2024-4-2 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64457266&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-4-2 11:54</a>
+
+🍈也去吉本gaming了啊</blockquote>
+melon这个长相很有辨识度<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也挺好顶尖选手有赞助说明这个游戏发展还行，不过喷喷这个赞助其实不知道有啥用，好像也不组队的。这个吉本gaming是不是还签了一些别的上位？
+

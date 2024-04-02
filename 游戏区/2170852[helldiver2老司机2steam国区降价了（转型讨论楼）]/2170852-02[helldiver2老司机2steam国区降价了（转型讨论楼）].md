@@ -10328,3 +10328,11 @@ AT AT实装了，压迫感拉满
 
 刚重炮手用上瘾就削了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 2456#       发表于 2024-4-2 20:42
+
+电弧能控无畏了？
+

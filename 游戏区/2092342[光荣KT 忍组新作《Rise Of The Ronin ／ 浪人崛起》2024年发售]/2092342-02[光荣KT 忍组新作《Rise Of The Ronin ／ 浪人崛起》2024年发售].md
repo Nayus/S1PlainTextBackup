@@ -12749,3 +12749,21 @@ boss里印象内个法国教官和高杉会</blockquote>
 隼流是升泽村保佑的好感度</blockquote>
 上面两个条件在哪里查啊？流派界面只写了该技能极传得到强化。
 
+
+*****
+
+####  nagitoY  
+##### 2776#       发表于 2024-4-3 00:16
+
+之前到江户没多久，发现悬崖山洞里一个隐藏boss，打了五六次没过。一看地图发现是黄色图标，被等级压制了。通关后再去清所有地图的隐藏boss（据说隐藏boss都是动态等级），打起来相当轻松，看来主要还是等级压制不好打。
+
+
+*****
+
+####  duraa  
+##### 2777#       发表于 2024-4-3 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64465994&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-3 00:11</a>
+上面两个条件在哪里查啊？流派界面只写了该技能极传得到强化。</blockquote>
+流派界面按下方块
+

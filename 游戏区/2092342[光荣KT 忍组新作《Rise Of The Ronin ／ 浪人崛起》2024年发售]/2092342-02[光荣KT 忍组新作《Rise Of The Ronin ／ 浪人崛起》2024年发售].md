@@ -12452,3 +12452,18 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 我是说怎么经常战斗中按烈风、武技的时候变成了闪刃罚站。
 
+
+*****
+
+####  白河响剑  
+##### 2745#       发表于 2024-4-2 09:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 回江户后全图红点我还以为是设计
+
+*****
+
+####  duraa  
+##### 2746#       发表于 2024-4-2 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">回江户后一堆图标bug
+

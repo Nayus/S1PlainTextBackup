@@ -9029,3 +9029,26 @@ melon这个长相很有辨识度也挺好顶尖选手有赞助说明这个游戏
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  laosai13  
+##### 3882#       发表于 2024-4-3 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463718&amp;ptid=2150634" target="_blank">Teiume 发表于 2024-4-2 20:53</a>
+
+卡拉和戴那萌都是吉本家的，之后应该能看到更多联动了。</blockquote>
+哦哦谢谢科普，这样倒是挺好的
+
+*****
+
+####  laosai13  
+##### 3883#       发表于 2024-4-3 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64466374&amp;ptid=2150634" target="_blank">martinium 发表于 2024-4-3 00:58</a>
+
+吉本好像做传统娱乐业的。与其说是电竞，不如说是艺人。感觉目前来看这个思路运营可能是最合适的。
+
+应该 ...</blockquote>
+感觉也还挺好的，melon本人好像没那么社恐还挺有梗的？能从游戏赚钱总是好
+

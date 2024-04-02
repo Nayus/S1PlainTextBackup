@@ -10535,3 +10535,11 @@ AT AT实装了，压迫感拉满
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掉线闪退一大堆，加投掷距离的重甲还有bug，还没受过伤我血条就变红色，然后一直在那里鬼哭狼嚎了。
 
+
+*****
+
+####  九十九忍  
+##### 2480#       发表于 2024-4-3 01:10
+
+果然又开始阴搓搓的上强度了，难五刷大盾火箭和小兵一样多
+

@@ -12699,3 +12699,14 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 —— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  新世界的派蒙  
+##### 2771#       发表于 2024-4-2 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64465258&amp;ptid=2092342" target="_blank">orcher1945 发表于 2024-4-2 23:14</a>
+
+关键是几乎所有人的红光节奏都不太一样这是最蛋疼的，仁王2里明明就是基本一样，更何况还有猛妖反这种无 ...</blockquote>
+卧龙DLC也是化劲音游，但是那边除了红光之外的小失误是可以接受的，这边的夺命连环刀几乎不能失误，脑壳都疼了
+

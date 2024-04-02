@@ -717,3 +717,23 @@ MCC这么个棒鸡旧作合集真当传家宝了还是怎么的。
 怎么就没了？</blockquote>
 快没了，快没了。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 63#       发表于 2024-4-2 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461944&amp;ptid=2178266" target="_blank">爱护动物抓根宝 发表于 2024-4-2 18:16</a>
+
+隔着对喷半天就没人敢对中间那句话出手的，看来哪怕是最极端的软软都只能承认本世代为止xbox的第一方游戏有 ...</blockquote>
+按评分下MC 80来看这世代垃圾的是红霞岛和我的世界传奇吧，其他的最多说评价两极分化，还有不少一致好评的。
+
+不懂为啥作者觉得上世代微软第一方产出更好？可能买的第三方独占是更多，但第一方大部分时候就光环、战争机器、废渣几个老IP来回，审美都疲劳了，这世代至少有几个卖得不错或口碑不错的全新IP。除暴战警3（2019）或者嗜血边缘（2020）今天出看评价也炸裂吧
+
+*****
+
+####  BadYanL  
+##### 64#       发表于 2024-4-2 19:08
+
+带领游戏部门连年营收破纪录，谁有资格清算Spencer?
+

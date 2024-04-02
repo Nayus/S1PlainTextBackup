@@ -913,3 +913,11 @@ IMG_3233.png
 【「中字」偶像大师百万现场 Encore Stage『Rat A Tat!!! 』-哔哩哔哩】 https://b23.tv/slDOCNJ
 这3dlive真吊吧，白组真的有点太强了
 
+
+*****
+
+####  cckuku  
+##### 3050#       发表于 2024-4-2 08:57
+
+今天竟然是我们学マス未来领袖的生日啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

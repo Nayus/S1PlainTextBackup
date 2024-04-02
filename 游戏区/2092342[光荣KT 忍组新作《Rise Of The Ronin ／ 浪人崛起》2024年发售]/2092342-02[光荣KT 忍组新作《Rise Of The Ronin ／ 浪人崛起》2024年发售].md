@@ -12427,3 +12427,16 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  刘震云  
+##### 2743#       发表于 2024-4-2 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64454927&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-2 08:45</a>
+
+刷出来了义经流的武技。
+
+后跳手里剑感觉用处不大，这游戏的闪避几乎躲不开敌人的修正，除非这手里剑能枪反 ...</blockquote>
+太刀奥义里的春岚蜻蜓很好用的，1.5倍的处决伤害+处决后回满精力
+

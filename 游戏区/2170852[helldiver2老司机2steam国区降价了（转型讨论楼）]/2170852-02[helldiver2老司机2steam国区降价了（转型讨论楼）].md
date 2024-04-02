@@ -9515,3 +9515,11 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 麦拉芬蒙河解放了
 
+
+*****
+
+####  Mr.Hopp  
+##### 2400#       发表于 2024-4-2 09:05
+
+拿离子喷去打机器人真是打开了新世界的大门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

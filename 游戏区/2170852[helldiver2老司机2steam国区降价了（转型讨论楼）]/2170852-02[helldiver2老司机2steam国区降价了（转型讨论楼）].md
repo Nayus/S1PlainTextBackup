@@ -9911,3 +9911,27 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  rainknine  
+##### 2440#       发表于 2024-4-2 18:01
+
+再见了，所有的重炮手和四分钟撤离
+什么时候把骑士的后座压一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超级公民送的债券武器都buff了50%，超级公民武器本身难道不配吗？
+
+
+*****
+
+####  smdzh2  
+##### 2441#       发表于 2024-4-2 18:03
+
+皿煮爆破什么时候更新<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 2442#       发表于 2024-4-2 18:07
+
+还要补弹药就注定不如激光狗。
+

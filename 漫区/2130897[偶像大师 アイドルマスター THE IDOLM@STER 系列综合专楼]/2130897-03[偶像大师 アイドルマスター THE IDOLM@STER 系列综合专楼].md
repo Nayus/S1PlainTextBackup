@@ -967,3 +967,18 @@ IMG_3233.png
 这歌标题到底怎么翻译，rat除了老鼠还有啥意思？</blockquote>
 敲门啊
 
+
+*****
+
+####  小笠原早紀  
+##### 3054#       发表于 2024-4-2 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64456645&amp;ptid=2130897" target="_blank">人畜无害沃特碧 发表于 2024-4-2 11:08</a>
+这歌标题到底怎么翻译，rat除了老鼠还有啥意思？</blockquote>
+rat-a-tat
+n.
+a series of sharp, quick rapping sounds.
+You use rat-a-tat to represent a series of sharp, repeated sounds, for example the sound of someone knocking at a door.
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -10502,3 +10502,13 @@ AT AT实装了，压迫感拉满
 
 电弧硬直神中神了
 
+
+*****
+
+####  九十九忍  
+##### 2476#       发表于 2024-4-2 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">闪退几率大增，
+
+还有这逼炮艇真打出终结者2开头的感觉了，掩体？什么掩体？
+

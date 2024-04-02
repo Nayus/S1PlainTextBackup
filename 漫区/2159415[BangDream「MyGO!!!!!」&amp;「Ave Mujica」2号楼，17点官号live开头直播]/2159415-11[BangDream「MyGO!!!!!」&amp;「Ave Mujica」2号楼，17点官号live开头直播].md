@@ -1733,3 +1733,17 @@ animax版的1st真的看爽了，好多新鏡頭<img src="https://static.saraba1
 
 整体上关于剧本部分的内容和去年的比较类似，初华方面还是在解谜、剧本看了不可思议、监督在配音阶段刻意保密后续剧情等等，很难不是在吊胃口（
 
+
+*****
+
+####  6030sylar  
+##### 14953#       发表于 2024-4-2 10:39
+
+<img src="https://img.saraba1st.com/forum/202404/02/103847siwqzeqx0oahuhb9.jpg" referrerpolicy="no-referrer">
+
+<strong>007QHGQRly1hobvivo6xcj30o01hcae2.jpg</strong> (138.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 10:38 上传
+

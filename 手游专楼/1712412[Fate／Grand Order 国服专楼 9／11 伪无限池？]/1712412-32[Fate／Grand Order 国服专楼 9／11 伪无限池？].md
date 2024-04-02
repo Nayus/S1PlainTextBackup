@@ -316,3 +316,11 @@ new了剑式，还行了
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ultraseven  
+##### 46269#       发表于 2024-4-3 07:16
+
+愿意带黑杯就顶5宝了吧
+

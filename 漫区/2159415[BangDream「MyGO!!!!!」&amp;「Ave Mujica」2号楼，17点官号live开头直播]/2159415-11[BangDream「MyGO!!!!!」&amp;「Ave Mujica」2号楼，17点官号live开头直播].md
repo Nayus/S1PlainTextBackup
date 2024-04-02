@@ -1725,3 +1725,11 @@ mujica这个风格肯定是先定下来的，后来创作剧本的时候产生Cr
 
 animax版的1st真的看爽了，好多新鏡頭<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 14952#       发表于 2024-4-2 10:33
+
+整体上关于剧本部分的内容和去年的比较类似，初华方面还是在解谜、剧本看了不可思议、监督在配音阶段刻意保密后续剧情等等，很难不是在吊胃口（
+

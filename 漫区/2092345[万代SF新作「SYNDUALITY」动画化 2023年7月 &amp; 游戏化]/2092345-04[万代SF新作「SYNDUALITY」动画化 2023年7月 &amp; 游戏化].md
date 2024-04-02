@@ -1581,3 +1581,11 @@ https://dengekionline.com/articles/215678/
 
 再去宇宙，其实是再去乐园吧
 
+
+*****
+
+####  Grahamlinks  
+##### 4563#       发表于 2024-4-2 20:46
+
+看完了，幸亏这季度有金属口红衬托？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过至少故事完整，至于那些怪物应该都留在游戏里了吧
+

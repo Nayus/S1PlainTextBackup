@@ -8997,3 +8997,13 @@ syl，野上最英明的决定就是让涂地特化的甲子园冠军去打真�
 🍈也去吉本gaming了啊</blockquote>
 melon这个长相很有辨识度<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也挺好顶尖选手有赞助说明这个游戏发展还行，不过喷喷这个赞助其实不知道有啥用，好像也不组队的。这个吉本gaming是不是还签了一些别的上位？
 
+
+*****
+
+####  Teiume  
+##### 3879#       发表于 2024-4-2 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463583&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-4-2 20:39</a>
+melon这个长相很有辨识度也挺好顶尖选手有赞助说明这个游戏发展还行，不过喷喷这个赞助其实不知道 ...</blockquote>
+卡拉和戴那萌都是吉本家的，之后应该能看到更多联动了。
+

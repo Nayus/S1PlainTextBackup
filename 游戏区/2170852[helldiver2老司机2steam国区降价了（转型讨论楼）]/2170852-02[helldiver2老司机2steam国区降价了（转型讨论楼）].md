@@ -10336,3 +10336,11 @@ AT AT实装了，压迫感拉满
 
 电弧能控无畏了？
 
+
+*****
+
+####  pwzzy  
+##### 2457#       发表于 2024-4-2 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用无限雷的话双足机甲不难处理，主宰能一枪头无畏是不是能替代焦土了
+

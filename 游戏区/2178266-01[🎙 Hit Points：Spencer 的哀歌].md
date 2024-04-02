@@ -617,3 +617,40 @@ redfall做那逼样
 
 应该不会吧。。。
 
+
+*****
+
+####  madcow  
+##### 55#       发表于 2024-4-2 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">halo上了也就是象征意义上影响更大罢了
+
+MCC这么个棒鸡旧作合集真当传家宝了还是怎么的。
+
+*****
+
+####  Mr.Hopp  
+##### 56#       发表于 2024-4-2 18:45
+
+ 本帖最后由 Mr.Hopp 于 2024-4-2 18:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462000&amp;ptid=2178266" target="_blank">zris 发表于 2024-4-2 18:20</a>
+
+这有啥，你不也指点，不应该收购ABK吗。
+
+谁都可以指点</blockquote>
+现在就像国足在指导日韩足球该怎么踢。
+
+踢球不如国足好不能骂国足踢得臭是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 57#       发表于 2024-4-2 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462066&amp;ptid=2178266" target="_blank">zris 发表于 2024-4-2 18:25</a>
+
+那索索倒是多买点pentiment和hfr啊
+
+不给微软增加上ps可以卖很多的假象，怎么去移植 ...</blockquote>
+你主机都快没了，不移植去其他平台准备公司内部分享吗？
+

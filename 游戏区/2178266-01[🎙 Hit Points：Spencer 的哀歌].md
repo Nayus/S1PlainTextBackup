@@ -654,3 +654,66 @@ MCC这么个棒鸡旧作合集真当传家宝了还是怎么的。
 不给微软增加上ps可以卖很多的假象，怎么去移植 ...</blockquote>
 你主机都快没了，不移植去其他平台准备公司内部分享吗？
 
+
+*****
+
+####  zris  
+##### 58#       发表于 2024-4-2 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462324&amp;ptid=2178266" target="_blank">Mr.Hopp 发表于 2024-4-2 18:45</a>
+现在就像国足在指导日韩足球该怎么踢。
+
+踢球不如国足好不能骂国足踢得臭是吧？</blockquote>
+不能吗？那你是在这里干嘛呢？
+
+谁堵你嘴了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zris  
+##### 59#       发表于 2024-4-2 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462336&amp;ptid=2178266" target="_blank">Mr.Hopp 发表于 2024-4-2 18:46</a>
+你主机都快没了，不移植去其他平台准备公司内部分享吗？</blockquote>
+是xbox宣布停产，还是现在买不到了。
+
+怎么就没了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mr.Hopp  
+##### 60#       发表于 2024-4-2 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462407&amp;ptid=2178266" target="_blank">zris 发表于 2024-4-2 18:53</a>
+
+不能吗？那你是在这里干嘛呢？
+
+谁堵你嘴了？</blockquote>
+哦，那没事了。
+
+反正被当成笑话的也不是我。
+
+*****
+
+####  ultraseven  
+##### 61#       发表于 2024-4-2 18:57
+
+<blockquote>在动视暴雪收购案上让步</blockquote>
+作者原来认为微软应该坚持COD独占吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 62#       发表于 2024-4-2 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462420&amp;ptid=2178266" target="_blank">zris 发表于 2024-4-2 18:54</a>
+
+是xbox宣布停产，还是现在买不到了。
+
+怎么就没了？</blockquote>
+快没了，快没了。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+

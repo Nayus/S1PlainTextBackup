@@ -145,3 +145,14 @@ CPU温度还好，手心温度高，低温烫伤预定。</blockquote>
 还是能放到我的卖萌包里面的。握把手感比之前 3D 打印件好太多了。</blockquote>
 哈基米包是自己做的吗
 
+
+*****
+
+####  bypass  
+##### 1153#         楼主| 发表于 2024-4-2 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64460276&amp;ptid=2086469" target="_blank">13301168719 发表于 2024-4-2 16:17</a>
+
+哈基米包是自己做的吗</blockquote>
+不是，淘宝买的，搜 ROG Ally 手工收纳包应该就能搜到。
+

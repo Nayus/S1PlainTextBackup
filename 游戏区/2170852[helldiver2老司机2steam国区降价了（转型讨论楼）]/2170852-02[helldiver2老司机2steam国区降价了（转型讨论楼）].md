@@ -9539,3 +9539,27 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">狗急跳墙的生化人在最后摇来了许久不见的光能者，剧本一定是这么写的吧
 
+
+*****
+
+####  kalavinka  
+##### 2403#         楼主| 发表于 2024-4-2 13:00
+
+光能族的隐形航母正在麦麦辣芬蒙河督战呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/02/125817sfta7u1ai2k2k7lv.jpg" referrerpolicy="no-referrer">
+
+<strong>7834b099gy1hoc3fruikmj20y90pu47i.jpg</strong> (51.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 12:58 上传
+
+<img src="https://img.saraba1st.com/forum/202404/02/125817mdu4zd75j8a48gsn.jpg" referrerpolicy="no-referrer">
+
+<strong>7834b099gy1hoc3fsgsobj22yo1o0x6p.jpg</strong> (70.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 12:58 上传
+

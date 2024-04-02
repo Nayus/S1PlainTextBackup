@@ -9699,3 +9699,36 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 我说焦土打步行机应该是两发
 
+
+*****
+
+####  Mr.Hopp  
+##### 2417#       发表于 2024-4-2 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64459943&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-2 15:53</a>
+
+我说焦土打步行机应该是两发</blockquote>
+我打基本上要3发。
+
+
+*****
+
+####  Mr.Hopp  
+##### 2418#       发表于 2024-4-2 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64459938&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-2 15:52</a>
+
+离子喷打机器人中甲不咋地吧，弹道也不适合</blockquote>
+打盾牌或者火箭基本上五发，而且是AOE伤害，两个机器人战得近能一起打。
+
+*****
+
+####  风萧飒  
+##### 2419#       发表于 2024-4-2 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64459997&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-2 15:57</a>
+我打基本上要3发。</blockquote>
+焦土要打步行者裆部，就是两枪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

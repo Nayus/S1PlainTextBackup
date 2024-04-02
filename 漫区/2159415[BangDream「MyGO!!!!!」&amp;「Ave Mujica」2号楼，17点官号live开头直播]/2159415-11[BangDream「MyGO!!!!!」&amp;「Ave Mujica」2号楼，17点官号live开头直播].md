@@ -1817,3 +1817,11 @@ MyGO!!!!!ツアーファイナル直前特別企画『ライブ使用機材完�
 
 当时就是正经讨论，结果有人被害妄想觉得说狗团后出就是低人一等，跳出来把大伙都骂了个遍<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 14960#       发表于 2024-4-2 16:04
+
+没抢到票只能看朋友repo的这份悔恨，我会记一辈子的。
+

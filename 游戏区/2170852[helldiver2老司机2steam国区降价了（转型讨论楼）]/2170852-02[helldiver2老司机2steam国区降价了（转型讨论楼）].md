@@ -9800,3 +9800,47 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  FLZB  
+##### 2426#       发表于 2024-4-2 17:26
+
+箭头更新了，电弧死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九十九忍  
+##### 2427#       发表于 2024-4-2 17:29
+
+机枪狗能补充弹药了
+
+*****
+
+####  暴走的包子  
+##### 2428#       发表于 2024-4-2 17:30
+
+电弧也没死吧，1s只是没那么猛了，伤害还在，现在用宏是有点太无脑了，泰坦不能晕了这条伤啊，没法稳定中500了
+
+*****
+
+####  Aeons  
+##### 2429#       发表于 2024-4-2 17:31
+
+我草，大平衡
+
+
+*****
+
+####  Aeons  
+##### 2430#       发表于 2024-4-2 17:33
+
+主宰加强那么多
+
+*****
+
+####  Launce  
+##### 2431#       发表于 2024-4-2 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重甲现在减伤10%，中甲5%，没提爆头杀
+

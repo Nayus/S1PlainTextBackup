@@ -982,3 +982,23 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  花开安菲路  
+##### 3055#       发表于 2024-4-2 18:23
+
+讲真百万最近mv加了光影效果，建模都看起来“亮眼”多了。
+二次元建模，就得炫一点啊，不说服装了，单说皮肤的光彩，和学马仕这种比就是单调就是土气啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫紫  
+##### 3056#       发表于 2024-4-2 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64456645&amp;ptid=2130897" target="_blank">人畜无害沃特碧 发表于 2024-4-2 11:08</a>
+
+这歌标题到底怎么翻译，rat除了老鼠还有啥意思？</blockquote>
+邋遢大王
+

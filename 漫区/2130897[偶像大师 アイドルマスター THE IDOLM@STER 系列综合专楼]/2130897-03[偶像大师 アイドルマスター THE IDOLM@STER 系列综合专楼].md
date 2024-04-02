@@ -943,3 +943,16 @@ IMG_3233.png
 
 但这卡能让沙代子戴眼镜上舞台！
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 3052#       发表于 2024-4-2 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64454904&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-4-2 08:42</a>
+
+【「中字」偶像大师百万现场 Encore Stage『Rat A Tat!!! 』-哔哩哔哩】 https://b23.tv/slDOCNJ
+
+这3dlive ...</blockquote>
+这歌标题到底怎么翻译，rat除了老鼠还有啥意思？
+

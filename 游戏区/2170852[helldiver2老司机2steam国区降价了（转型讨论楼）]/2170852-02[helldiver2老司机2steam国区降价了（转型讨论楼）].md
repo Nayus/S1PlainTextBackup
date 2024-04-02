@@ -9844,3 +9844,70 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重甲现在减伤10%，中甲5%，没提爆头杀
 
+
+*****
+
+####  BadYanL  
+##### 2432#       发表于 2024-4-2 17:36
+
+电弧修正还行吧，没了速充，距离缩短，加强了硬直。
+
+用鼠标宏的完蛋。
+
+*****
+
+####  九十九忍  
+##### 2433#       发表于 2024-4-2 17:37
+
+电弧加了击退，也不算完全废，这次加强的东西挺多
+
+*****
+
+####  Aeons  
+##### 2434#       发表于 2024-4-2 17:37
+
+等级上限开了？
+
+*****
+
+####  FLZB  
+##### 2435#       发表于 2024-4-2 17:39
+
+勤勉变中穿了，火喷看起来加强也很多，火dot每跳伤害暴增50%，燃烧系这不得上天啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 2436#       发表于 2024-4-2 17:41
+
+整体还行吧，还把逆天的150%debuff给对半砍了，就是重炮手的击退没了有点伤来自: iPhone客户端
+
+
+*****
+
+####  DawnGuardian  
+##### 2437#       发表于 2024-4-2 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461422&amp;ptid=2170852" target="_blank"> FLZB 发表于 2024-4-2 17:39</a> 勤勉变中穿了，火喷看起来加强也很多，火dot每跳伤害暴增50%，燃烧系这不得上天啊 </blockquote>
+“《所有来源》火dot伤害增加50%”，燃烧系装备上不上天不好说，披风蟑螂肯定更容易上天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  BadYanL  
+##### 2438#       发表于 2024-4-2 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461476&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-4-2 17:44</a>
+
+“《所有来源》火dot伤害增加50%”，燃烧系装备上不上天不好说，披风蟑螂肯定更容易上天了 ...</blockquote>
+等一个防火护甲债卷
+
+*****
+
+####  Launce  
+##### 2439#       发表于 2024-4-2 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461422&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-04-02 17:39:45</a>
+勤勉变中穿了，火喷看起来加强也很多，火dot每跳伤害暴增50%，燃烧系这不得上天啊 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">客机火dot不生效没看有提修复，反正披风蟑螂死的比对面快
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

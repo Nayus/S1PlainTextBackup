@@ -121,3 +121,16 @@ CPU温度还好，手心温度高，低温烫伤预定。</blockquote>
 
 你如果非常在意续航就算了，真的win掌机除非是那种巨大号的，是不会好的。
 
+
+*****
+
+####  BOUNCER  
+##### 1151#       发表于 2024-4-2 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64448400&amp;ptid=2086469" target="_blank">overflowal 发表于 2024-4-1 15:54</a>
+
+我入手了个官翻反正。就算有二代，用的也是8840U这类马甲，没啥意义。
+
+我感觉还是很好用的，官翻4000出头 ...</blockquote>
+好的，谢谢，我也考虑先弄个官翻的机器玩一下，现在好像TB上3999的价格找不到了，不知道多久会有货。
+

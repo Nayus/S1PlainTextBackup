@@ -921,3 +921,25 @@ IMG_3233.png
 
 今天竟然是我们学マス未来领袖的生日啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 3051#       发表于 2024-4-2 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64449848&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-4-1 17:37</a>
+
+没事，纱代子上台一般不戴眼镜，只要摘下眼镜就会好起来的（
+
+而且讲道理律子不就很教导主任了吗，这是传统 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202404/02/105821u38ocyowrrdwbkco.jpg" referrerpolicy="no-referrer">
+
+<strong>345643F5C1A80F1596BBE670AD7AE124.jpg</strong> (280.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 10:58 上传
+
+但这卡能让沙代子戴眼镜上舞台！
+

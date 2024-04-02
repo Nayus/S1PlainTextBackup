@@ -10258,3 +10258,18 @@ EDIT: yes, level cap has been increased.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  BadYanL  
+##### 2447#       发表于 2024-4-2 19:36
+
+AT AT实装了，压迫感拉满
+
+*****
+
+####  xinfengj  
+##### 2448#       发表于 2024-4-2 19:38
+
+普遍加强，可以
+

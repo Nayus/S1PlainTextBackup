@@ -750,3 +750,31 @@ MCC这么个棒鸡旧作合集真当传家宝了还是怎么的。
 
 真正能算微软完全指导的第一方的是从2018年开始第一批收购的工作室产出的游戏，基本就今、明两年出吧，到时看看评价吧。按业界平均4-5年做一个3A投入的全新IP加上中间的疫情，也不算太慢，只是这世代都过了一半了，就显得赶不上趟
 
+
+*****
+
+####  madcow  
+##### 66#       发表于 2024-4-2 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462548&amp;ptid=2178266" target="_blank">ultraseven 发表于 2024-4-2 19:07</a>
+
+按评分下MC 80来看这世代垃圾的是红霞岛和我的世界传奇吧，其他的最多说评价两极分化，还有不少一致好评 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有可能作者就喜欢审美疲劳的那些东西（？而且本世代目前为止黑楼无限和星空两个键盘决战兵器都拉了
+
+上世代印象还好大概就是第一方还凑合然后买了一堆工作室还给人一种未来可期的感觉
+
+本世代这眼瞅着又要奔着赢在下世代去了，绷不住不是很正常（
+
+
+*****
+
+####  ultraseven  
+##### 67#       发表于 2024-4-2 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462868&amp;ptid=2178266" target="_blank">madcow 发表于 2024-4-2 19:35</a>
+
+有可能作者就喜欢审美疲劳的那些东西（？而且本世代目前为止黑楼无限和星空两个键盘决战兵器都拉 ...</blockquote>
+上世代三大将战争机器4、光环5、废渣都很微妙吧，什么腐烂国度 2、盗贼之海看初版评分都是一眼垃圾没人玩的玩意。
+
+主楼这样的文章情绪色彩还是太重了。
+

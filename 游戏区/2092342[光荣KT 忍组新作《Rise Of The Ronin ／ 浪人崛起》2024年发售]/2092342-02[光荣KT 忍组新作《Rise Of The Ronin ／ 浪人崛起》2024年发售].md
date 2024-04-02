@@ -12380,3 +12380,14 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">碰上开箱bug了，讲武所的宝箱图标还在那里结果进去一看是开的
 
+
+*****
+
+####  雾生司  
+##### 2740#       发表于 2024-4-2 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64454707&amp;ptid=2092342" target="_blank">斯卡哈 发表于 2024-4-2 08:15</a>
+
+碰上开箱bug了，讲武所的宝箱图标还在那里结果进去一看是开的</blockquote>
+留魂录选个关卡退出来大概率能解决
+

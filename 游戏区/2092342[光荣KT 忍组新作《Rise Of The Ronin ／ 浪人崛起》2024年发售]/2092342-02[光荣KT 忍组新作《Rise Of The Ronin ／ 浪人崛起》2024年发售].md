@@ -12483,3 +12483,14 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 最终爆弹流，一发培烙弹约2万伤害，秒杀暗夜难度双boss不二选择
 [https://www.bilibili.com/video/BV1LE421g7XH](https://www.bilibili.com/video/BV1LE421g7XH)
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2749#       发表于 2024-4-2 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64455471&amp;ptid=2092342" target="_blank">白河响剑 发表于 2024-4-2 09:35</a>
+
+艹 回江户后全图红点我还以为是设计</blockquote>
+如果你说的是第三章后期回江户刷新的赤报队那些是正常的，但是留魂录回去刷新了的话应该是bug
+

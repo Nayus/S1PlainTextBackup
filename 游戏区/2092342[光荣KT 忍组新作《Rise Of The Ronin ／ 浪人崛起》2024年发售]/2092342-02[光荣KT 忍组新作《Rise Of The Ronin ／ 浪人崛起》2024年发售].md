@@ -12605,3 +12605,16 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 操作队友的体验好棒，还能玩飞燕和无限手里剑</blockquote>
 用习惯冲田和武田之后再切回去主角我就不会玩游戏了
 
+
+*****
+
+####  浅醉微风  
+##### 2762#       发表于 2024-4-2 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463756&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-2 20:56</a>
+
+在战斗中切武器的敌人是不是只有搭档？这个设计和天地人克制强相关，但是整个游戏中就没见过除搭档以外的人 ...</blockquote>
+一堆小兵会
+
+boss里印象内个法国教官和高杉会
+

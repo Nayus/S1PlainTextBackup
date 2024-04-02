@@ -572,3 +572,17 @@ PV2：[https://youtu.be/jKNscVwATwI](https://youtu.be/jKNscVwATwI)
 
 建议添加搜索关键词： 无名记忆 /Unnamed Memory <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xvi黑翼公  
+##### 49#       发表于 2024-4-2 21:33
+
+快开播了，我先给动画观众打个预防针，估计动画只做第一部，看着喜欢的慎重考虑要不要往下看原作后续<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这书第一部属于珍珠奶茶，很甜很好喝，就是有点腻，能接受这个风格的观众看下去都不会太反感；
+
+但是接下来第二部就是突然给你上一杯黑咖啡，nmd太苦了，越喜欢第一部越难入口，特别喜欢第一部的甚至有可能骂街弃坑的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+后续第三部收尾就像是一杯茶了，有苦涩有回甘，总体上讲还是不错的，算是能回味一段时间的结局
+

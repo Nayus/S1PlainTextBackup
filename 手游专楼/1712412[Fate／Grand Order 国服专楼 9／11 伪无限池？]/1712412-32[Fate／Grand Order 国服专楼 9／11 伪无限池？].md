@@ -306,3 +306,13 @@ new了剑式，还行了
 
 感觉完全变成出四星体质了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">连续雨神+1，C闪+1，渡边纲new。不抽了
 
+
+*****
+
+####  一个陆仁贾  
+##### 46268#       发表于 2024-4-3 01:03
+
+狗蛋一宝，90++不追求满加成的话还有出场机会吗？
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

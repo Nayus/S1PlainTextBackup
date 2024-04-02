@@ -9017,3 +9017,15 @@ melon这个长相很有辨识度也挺好顶尖选手有赞助说明这个游戏
 
 鲑坝回来看卷堡都是眉清目秀的
 
+
+*****
+
+####  martinium  
+##### 3881#       发表于 2024-4-3 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463583&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-4-2 20:39</a>
+melon这个长相很有辨识度也挺好顶尖选手有赞助说明这个游戏发展还行，不过喷喷这个赞助其实不知道 ...</blockquote>
+吉本好像做传统娱乐业的。与其说是电竞，不如说是艺人。感觉目前来看这个思路运营可能是最合适的。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

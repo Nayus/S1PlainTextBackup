@@ -9523,3 +9523,11 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 拿离子喷去打机器人真是打开了新世界的大门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暴走的包子  
+##### 2401#       发表于 2024-4-2 09:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">这么晚才来新指令没打亏了
+

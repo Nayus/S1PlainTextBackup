@@ -956,3 +956,14 @@ IMG_3233.png
 这3dlive ...</blockquote>
 这歌标题到底怎么翻译，rat除了老鼠还有啥意思？
 
+
+*****
+
+####  田所あずさ  
+##### 3053#       发表于 2024-4-2 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64456645&amp;ptid=2130897" target="_blank">人畜无害沃特碧 发表于 2024-4-2 11:08</a>
+
+这歌标题到底怎么翻译，rat除了老鼠还有啥意思？</blockquote>
+敲门啊
+

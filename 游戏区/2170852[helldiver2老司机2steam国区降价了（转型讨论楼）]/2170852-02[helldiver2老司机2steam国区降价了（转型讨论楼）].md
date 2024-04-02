@@ -10479,3 +10479,18 @@ AT AT实装了，压迫感拉满
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像是直接加的电伤属性，电喷的击退力也跟着加强了
 
+
+*****
+
+####  smdzh2  
+##### 2473#       发表于 2024-4-2 23:07
+
+穿甲解放者加了全自动用着还是很变扭，什么时候把刺刀还给我<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦  
+##### 2474#       发表于 2024-4-2 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机器人这全tm是撤离任务
+

@@ -12618,3 +12618,13 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 boss里印象内个法国教官和高杉会
 
+
+*****
+
+####  Z1yu  
+##### 2763#       发表于 2024-4-2 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463756&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-2 20:56</a>
+在战斗中切武器的敌人是不是只有搭档？这个设计和天地人克制强相关，但是整个游戏中就没见过除搭档以外的人 ...</blockquote>
+二周目的杂鱼，是个人都会换武器。boss会换武器的不多。
+

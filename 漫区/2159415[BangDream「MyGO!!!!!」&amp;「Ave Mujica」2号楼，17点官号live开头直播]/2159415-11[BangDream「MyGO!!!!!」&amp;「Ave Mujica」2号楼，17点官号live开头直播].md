@@ -1931,3 +1931,11 @@ mygo那边鼓凛看逆输入的程度有可能是先找的人再按经历写的�
 
 3.白祥相关单纯是动画剧本方面的追加内容，不影响其他方面的企划进展
 
+
+*****
+
+####  御幸一也  
+##### 14970#       发表于 2024-4-2 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的訪談中篇呢，給我吐出來！
+

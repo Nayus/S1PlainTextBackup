@@ -1618,3 +1618,14 @@ https://dengekionline.com/articles/215678/
 
 把剩的几集补完了，其实看完一堆角色也就对时雄哥比较有好感，其他要么太路人要么感觉全片结束和开局的标签没啥区别
 
+
+*****
+
+####  天光逸  
+##### 4567#       发表于 2024-4-2 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64389093&amp;ptid=2092345" target="_blank">aptx8285144 发表于 2024-3-27 08:43</a>
+
+时雄其他都还好，对威斯这个最后的“兄弟情”我还是有些绷不住，马哈特也就算了，你自己打小就知 ...</blockquote>
+你看你哥再不爽也是你哥，打一顿和要他死之间感情差别还是挺大的，毕竟威斯对时雄来说也没啥深仇大恨
+

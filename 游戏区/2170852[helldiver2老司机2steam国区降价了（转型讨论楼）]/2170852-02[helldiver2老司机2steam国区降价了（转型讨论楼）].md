@@ -10471,3 +10471,11 @@ AT AT实装了，压迫感拉满
 
 去西线体验下机器人的新宝贝疯狂丢人啊
 
+
+*****
+
+####  Launce  
+##### 2472#       发表于 2024-4-2 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像是直接加的电伤属性，电喷的击退力也跟着加强了
+

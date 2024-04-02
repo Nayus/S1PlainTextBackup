@@ -1825,3 +1825,16 @@ MyGO!!!!!ツアーファイナル直前特別企画『ライブ使用機材完�
 
 没抢到票只能看朋友repo的这份悔恨，我会记一辈子的。
 
+
+*****
+
+####  cindy355  
+##### 14961#       发表于 2024-4-2 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64446718&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-1 13:36</a>
+
+别代表所有mygo粉吹b站语c人人爱好吧，不满这个语c的早就有了
+
+我从这个官号跳过立希生日不发还有粉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前早就骂过了，现在就已经完全懒得看这个号了，但主要是放到其他社群里还有人帮忙洗地说什么“运营A/客服S是这样的”啦，呕呕。
+

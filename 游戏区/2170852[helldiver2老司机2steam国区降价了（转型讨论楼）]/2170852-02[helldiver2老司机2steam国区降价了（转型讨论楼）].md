@@ -9790,3 +9790,13 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新了，平衡了不少东西，加了2个新环境
 
+
+*****
+
+####  runningch  
+##### 2425#       发表于 2024-4-2 17:18
+
+又一轮-大规模平衡，算是喜忧参半吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

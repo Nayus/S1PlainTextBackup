@@ -1794,3 +1794,18 @@ MyGO!!!!!ツアーファイナル直前特別企画『ライブ使用機材完�
 
 主要都是介绍乐器，看不懂一点（
 
+
+*****
+
+####  Aendst  
+##### 14958#       发表于 2024-4-2 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64458120&amp;ptid=2159415" target="_blank">novalli 发表于 2024-4-2 13:20</a>
+
+我记得Mujica本来就比MyGO组建的早，只是故事和动画是在Mujica之前。
+
+—— 来自 Xiaomi 2206123SC, Andr ...</blockquote>
+这个泥漏很早之前就讨论过，没定论，但确实是mujica先立项先有原案的可能性高
+
+也就是因为泥漏先讨论了这个，传出去之后才被路人在其他地方当成靶子指着大名臭骂一顿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令人印象深刻
+

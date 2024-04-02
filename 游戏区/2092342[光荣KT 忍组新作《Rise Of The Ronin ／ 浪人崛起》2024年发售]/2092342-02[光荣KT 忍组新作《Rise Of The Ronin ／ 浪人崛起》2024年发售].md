@@ -12363,3 +12363,20 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 这游戏的这些bug还能不能修了，从京都回江户全部治安事件都刷新出来</blockquote>
 我也是同样中招，贴吧反馈这个bug甚至你去重新打完这些刷新点还有复发风险，我是建议直接不要管了，反正二周目我也被恶心的直接删游了，感觉不如回去补补ffo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 2738#       发表于 2024-4-2 08:13
+
+为什么不能攻略阿龙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  斯卡哈  
+##### 2739#       发表于 2024-4-2 08:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">碰上开箱bug了，讲武所的宝箱图标还在那里结果进去一看是开的
+

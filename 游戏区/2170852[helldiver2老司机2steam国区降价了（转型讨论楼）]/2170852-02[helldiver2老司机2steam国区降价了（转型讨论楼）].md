@@ -9602,3 +9602,35 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 不是超级驱逐舰的影子么</blockquote>
 大概是老外对箭头更新慢的玩梗吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 2408#       发表于 2024-4-2 14:06
+
+<img src="https://img.saraba1st.com/forum/202404/02/140629zcoaptx9wz0n3nos.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 14:06 上传
+
+
+*****
+
+####  FLZB  
+##### 2409#       发表于 2024-4-2 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64458124&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-4-2 13:21</a>
+
+不是超级驱逐舰的影子么</blockquote>
+明显不是影子啊，影子不可能像这样投射到啥都没有的天空上，尺寸和外形也不符合HD的驱逐舰。
+
+*****
+
+####  保科智子  
+##### 2410#       发表于 2024-4-2 14:16
+
+问下，有没有用1070的？1080P能流畅吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

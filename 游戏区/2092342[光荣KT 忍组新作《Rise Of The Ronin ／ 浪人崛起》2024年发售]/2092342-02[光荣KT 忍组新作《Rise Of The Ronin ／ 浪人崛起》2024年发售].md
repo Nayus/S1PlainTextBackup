@@ -12628,3 +12628,15 @@ boss里印象内个法国教官和高杉会
 在战斗中切武器的敌人是不是只有搭档？这个设计和天地人克制强相关，但是整个游戏中就没见过除搭档以外的人 ...</blockquote>
 二周目的杂鱼，是个人都会换武器。boss会换武器的不多。
 
+
+*****
+
+####  zqqwe  
+##### 2764#       发表于 2024-4-2 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64464051&amp;ptid=2092342" target="_blank">浅醉微风 发表于 2024-4-2 21:26</a>
+一堆小兵会
+
+boss里印象内个法国教官和高杉会</blockquote>
+将军也有大太刀和太刀两个形态
+

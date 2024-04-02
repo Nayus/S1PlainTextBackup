@@ -10411,3 +10411,11 @@ AT AT实装了，压迫感拉满
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这停机坪不用地狱火炸不掉，在新战备出来前都不想碰东线了
 
+
+*****
+
+####  yahuchi  
+##### 2466#       发表于 2024-4-2 22:14
+
+今天日常的装甲兵指的是啥？
+

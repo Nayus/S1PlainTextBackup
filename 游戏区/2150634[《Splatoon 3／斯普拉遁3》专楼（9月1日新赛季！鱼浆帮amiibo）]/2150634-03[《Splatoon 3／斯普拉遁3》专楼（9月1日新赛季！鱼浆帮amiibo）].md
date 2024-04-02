@@ -8934,3 +8934,15 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 3874#       发表于 2024-4-2 11:54
+
+ 本帖最后由 秋月孝三 于 2024-4-2 11:57 编辑 
+
+🍈也去吉本gaming了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，野上最英明的决定就是让涂地特化的甲子园冠军去打真格世界赛方式剃光头。GG当年在世界赛表现虽然好但是没到吊打的程度(虽然某年出现过客场把观众打无语的小事故)，整体上还是好看的。国内非官方比赛GG可以说被不少网瘾少年虐过，比如第一个在线下赛决赛(NPB联动赛)暴打GG的二代最强玩家候补之一しめぴぃ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10543,3 +10543,15 @@ AT AT实装了，压迫感拉满
 
 果然又开始阴搓搓的上强度了，难五刷大盾火箭和小兵一样多
 
+
+*****
+
+####  runningch  
+##### 2481#       发表于 2024-4-3 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64466435&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-4-3 01:10</a>
+果然又开始阴搓搓的上强度了，难五刷大盾火箭和小兵一样多</blockquote>
+更新里说了机器人会刷更多蹂躏者，所以不是暗改，是明改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

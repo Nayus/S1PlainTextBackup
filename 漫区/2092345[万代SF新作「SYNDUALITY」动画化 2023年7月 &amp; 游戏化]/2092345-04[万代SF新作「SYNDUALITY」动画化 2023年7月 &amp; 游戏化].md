@@ -1589,3 +1589,24 @@ https://dengekionline.com/articles/215678/
 
 看完了，幸亏这季度有金属口红衬托？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过至少故事完整，至于那些怪物应该都留在游戏里了吧
 
+
+*****
+
+####  novyDC  
+##### 4564#       发表于 2024-4-2 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463651&amp;ptid=2092345" target="_blank">Grahamlinks 发表于 2024-04-02 20:46:27</a>
+看完了，幸亏这季度有金属口红衬托？不过至少故事完整，至于那些怪物应该都留在游戏里了吧 ...</blockquote>游戏野怪
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aptx8285144  
+##### 4565#       发表于 2024-4-2 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463651&amp;ptid=2092345" target="_blank">Grahamlinks 发表于 2024-4-2 20:46</a>
+
+看完了，幸亏这季度有金属口红衬托？不过至少故事完整，至于那些怪物应该都留在游戏里了吧 ...</blockquote>
+切割掉整烂活的21话，还算能看吧，遥想22年的那位打枪天才，我最后还真怕彼方最后来个逆天发言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">），至于那些怪物，对上有头有脸的人物全都是被贤士们收拾掉的命，问题是怎么把少数强大贤士的能力让世界大部分地方受益
+

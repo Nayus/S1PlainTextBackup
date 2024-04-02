@@ -27,3 +27,11 @@
 提案者の千束は寝ちゃってました……。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像是以前常有的大结局主角死在老婆身边。
 
+
+*****
+
+####  osore  
+##### 1761#       发表于 2024-4-2 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年润了，今年约会中睡大觉，命苦哦
+

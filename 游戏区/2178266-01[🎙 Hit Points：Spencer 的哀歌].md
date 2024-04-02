@@ -786,3 +786,16 @@ MCC这么个棒鸡旧作合集真当传家宝了还是怎么的。
 
 那盗贼之海收入跟整个微软的营收做对比，建议作者去看一下脑科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 69#       发表于 2024-4-2 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462957&amp;ptid=2178266" target="_blank">ultraseven 发表于 2024-4-2 19:42</a>
+
+上世代三大将战争机器4、光环5、废渣都很微妙吧，什么腐烂国度 2、盗贼之海看初版评分都是一眼垃圾没人玩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">GEARS4和HALO5都可以归类为大的要来了啊，结果没来那不就萎了
+
+说到底还是没有键盘决战兵器（（
+

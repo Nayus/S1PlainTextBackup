@@ -8946,3 +8946,21 @@ taiji namon都发挥好差事故了好几回。taiji这回输了以后还会玩s
 
 syl，野上最英明的决定就是让涂地特化的甲子园冠军去打真格世界赛方式剃光头。GG当年在世界赛表现虽然好但是没到吊打的程度(虽然某年出现过客场把观众打无语的小事故)，整体上还是好看的。国内非官方比赛GG可以说被不少网瘾少年虐过，比如第一个在线下赛决赛(NPB联动赛)暴打GG的二代最强玩家候补之一しめぴぃ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 3875#       发表于 2024-4-2 13:42
+
+<img src="https://img.saraba1st.com/forum/202404/02/134208krbkbjdiuf55vp85.png" referrerpolicy="no-referrer">
+
+<strong>img_9154.png</strong> (252.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 13:42 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

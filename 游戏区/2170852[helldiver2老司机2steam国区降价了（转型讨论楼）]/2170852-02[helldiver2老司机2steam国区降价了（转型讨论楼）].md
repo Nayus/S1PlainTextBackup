@@ -9581,3 +9581,24 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">离子喷真比焦土好吗
 
+
+*****
+
+####  Launce  
+##### 2406#       发表于 2024-4-2 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64458154&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-2 13:23</a>
+
+离子喷真比焦土好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">限定场景吧，比如袅袅弹道抛射电浆打坦克散热器
+
+*****
+
+####  kalavinka  
+##### 2407#         楼主| 发表于 2024-4-2 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64458124&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-4-2 13:21</a>
+
+不是超级驱逐舰的影子么</blockquote>
+大概是老外对箭头更新慢的玩梗吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

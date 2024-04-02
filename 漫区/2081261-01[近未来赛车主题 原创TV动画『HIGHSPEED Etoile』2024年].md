@@ -91,3 +91,17 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看了pv，这不就是GPX青春版么
 
+
+*****
+
+####  哆哆鸡  
+##### 122#       发表于 2024-4-2 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461575&amp;ptid=2081261" target="_blank">Anatoly 发表于 2024-4-2 17:50</a>
+难不成真的有手游？还是能卖歌
+
+—— 来自 S1Fun</blockquote>
+哪里看到的好像说是游戏化企划进行中，不知道是不是愚人节玩笑
+
+—— 来自 samsung SM-G9758, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -9935,3 +9935,300 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 还要补弹药就注定不如激光狗。
 
+
+*****
+
+####  Benighted  
+##### 2443#       发表于 2024-4-2 18:12
+
+ 本帖最后由 Benighted 于 2024-4-2 18:17 编辑 
+
+官方Patchnote 顺带把buff/nerf用颜色标了下
+
+🌎 Overview 🌎 概述
+
+This update includes: 此更新包括：
+
+Balance changes to missions, stratagems, weapons, enemies and Helldivers.
+
+任务、策略、武器、敌人和地狱潜水员的平衡变化。
+
+General fixes and stability improvements.
+
+常规修复和稳定性改进。
+
+📍 Gameplay 📍 游戏玩法
+
+Planetary Hazard additions:
+
+行星危险新增：
+
+Blizzards 暴风雪
+
+Sandstorms 沙尘暴
+
+⚖️ Balancing ⚖️ 平衡
+
+Missions 任务
+
+Retrieve Essential Personnel
+找回重要人员
+🔹 Moved the enemy spawn points further away from the objective to give players a fairer chance of defending the location.
+🔹 将敌人的重生点移到离目标更远的地方，让玩家有更公平的机会保卫该地点。
+
+🔹 There are fewer civilians required to complete the mission on higher difficulties.
+🔹 在更高的难度下完成任务所需的平民较少。
+
+Destroy Command Bunkers 摧毁指挥掩体
+
+🔹 Now has more objective locations, the mission was too easy before compared to other missions.
+
+🔹 现在有了更多的目标位置，与其他任务相比，以前的任务太容易了。
+
+🔹 It can now appear in operations from difficulty 5.
+
+🔹 它现在可以出现在难度 5 的操作中。
+
+Halved the negative effect of operation modifiers that increase stratagem cooldowns or call in times.
+
+增加策略冷却时间或召唤时间的操作修正的负面影响减半。
+
+Primary, Secondary, &amp; Support Weapons
+
+主要、次要和支援武器
+
+Arc Thrower: fixed charging inconsistencies; it will now always take 1s to charge a shot.
+
+电弧投掷器：修复充电不一致问题;现在总是需要 1 秒才能充电。
+
+Arc Thrower: reduced distance from 50m to 35m.
+
+电弧投掷器：距离从50米减少到35米。
+
+Arc Thrower: increased stagger force.
+
+电弧投掷器：增加交错力。
+
+Guard Dog: now restores full ammo from supply boxes.
+
+护卫犬：现在从补给箱中恢复全部弹药。
+
+Anti-Materiel Rifle: damage increased by 30%.
+
+反器材步枪：伤害增加30%。
+
+Breaker Incendiary: damage per bullet increased from 15 per bullet to 20 per bullet.
+
+破坏者燃烧弹：每发子弹的伤害从每发子弹 15 点增加到每发子弹 20 点。
+
+Fire damage per tick increased by 50% (from all sources).
+
+每个刻度的火焰伤害增加 50%（来自所有来源）。
+
+Liberator Penetrator: now has a full auto mode.
+
+解放者穿透者：现在有一个全自动模式。
+
+Dominator: increased damage from 200 to 300.
+
+支配者：伤害从200增加到300
+
+Dominator: increased stagger.
+
+支配者：增加交错。
+
+Diligence Counter Sniper: increased armor penetration from light to medium.
+
+勤奋反击狙击手：增加从轻型到中型的装甲穿透力。
+
+Slugger: reduced stagger.
+
+重炮手：减少踉跄。
+
+Slugger: reduced damage from 280 to 250.
+
+重炮手：伤害从280降低到250
+
+Slugger: reduced demolition force.
+
+重炮手：降低拆除力。
+
+Slugger: fixed armor penetration tag in the menu.
+
+重炮手：在菜单中固定了穿甲标签。
+
+Slugger, Liberator Concussive, Senator: fixed incorrect armor penetration tags in the menu.
+
+重炮手、解放者震荡、参议员：修复了菜单中不正确的装甲穿透标签。
+
+Recoilless Rifle: increased the number of rockets you restore from supply boxes from 2 to 3.
+
+无后坐力步枪：将你从补给箱中恢复的火箭数量从2枚增加到3枚。
+
+Spear: increased the number of missiles you restore from supply boxes from 1 to 2.
+
+长矛：将你从补给箱中恢复的导弹数量从 1 枚增加到 2 枚。
+
+Heavy Machine Gun: the highest fire rate mode reduced from 1200 rpm to a more moderate 950
+
+重机枪：最高射速模式从1200转/分降低到更温和的950转
+
+Stratagems 战略
+
+Patriot Exosuit: rockets will now penetrate armor only on direct hit.
+
+爱国者外衣：火箭弹现在只有在直接命中时才能穿透装甲。
+
+Enemies 敌人
+
+Balancing adjustments have been made to:
+
+平衡性调整已针对以下方面进行了：
+🔹 Chargers normal melee attack now does less damage against Exosuits.
+
+🔹 充电器的普通近战攻击现在对外星服造成的伤害较小。
+
+🔹 Bile Spewer and Nursing Spewer do less damage with their puke.
+
+🔹 Bile Spewer 和 Nursing Spewer 对呕吐物造成的伤害较小。
+
+🔹 The Bile Titan can no longer be stunned.
+
+🔹 胆汁泰坦再也无法被击晕了。
+
+🔹 Shriekers no longer create bug breaches.
+
+🔹 尖叫者不再造成虫群出生。
+
+🔹 Shriekers hitting you while they are dead now does significantly less damage.
+
+🔹 尖叫者在他们死后击中你，现在造成的伤害要小得多。
+
+Helldiver 地狱潜水员
+
+Balancing adjustments have been made to:
+
+平衡性调整已针对以下方面进行了：
+
+🔹 Heavy and medium armor protects better and you now take about 10% less damage than before while wearing heavy and about 5% less when wearing medium armor. Fortified commando and light armor is unchanged.
+
+🔹 重型和中型盔甲的保护效果更好，现在穿着重型盔甲时，您受到的伤害比以前少了约 10%，穿着中型盔甲时受到的伤害减少了约 5%。强化突击队和轻型装甲保持不变。
+
+🔧 Fixes 🔧 修复
+
+Fixed issue where save settings for PS5 would be reset when the game is rebooted, causing things such as loadout and hint settings to reset.
+
+修复了游戏重启时 PS5 的存档设置会重置的问题，从而导致装备和提示设置等内容重置。
+
+Enemies now properly target Exosuits. Previously, many enemies effectively ignored Exosuits if a helldiver on foot was available for them to target.
+
+敌人现在正确地瞄准了 Exosuits。以前，如果有地狱潜水员步行作为目标，许多敌人实际上会忽略 Exosuits。
+
+Fixed Exosuits being able to fire their weapons while opening the minimap.
+
+修复了 Exosuit 能够在打开小地图时发射武器的问题。
+
+The Helldiver and the Exosuit both had a bug that made them sometimes take explosion damage multiple times making things like automaton rockets be too deadly, this is now fixed.
+
+地狱潜水员和外星人都有一个错误，使他们有时会多次受到爆炸伤害，这使得自动机火箭之类的东西太致命了，现在已经修复了。
+
+Automaton enemy constellations that preferred to spawn more of certain Devastators types did not work and are now functioning as they should. This means that sometimes when playing against the Automatons you will face more Devastators instead of other enemy types.
+
+喜欢生成更多某些毁灭者类型的自动机敌方星座不起作用，现在正在发挥应有的作用。这意味着有时在与机器人对战时，您将面对更多的毁灭者，而不是其他类型的敌人。
+
+We have improved the system that prevents hellpod steering close to large or important objects.
+
+我们改进了防止地狱舱转向靠近大型或重要物体的系统。
+
+🔹 We have solved issues where the effective area around objects was a lot larger than intended.
+
+🔹 我们解决了物体周围有效面积比预期大得多的问题。
+
+🔹 We have reduced the number of objects that prevent hellpod steering.
+
+🔹 我们减少了阻止地狱舱转向的物体数量。
+
+⚠️ Note: This system is intended to prevent softlocks where players can drop on important interaction points, or drop into unintended places. We will continue to monitor the state of the system after the update to see if additional tweaks are necessary.
+
+⚠️ 注意：此系统旨在防止玩家掉落在重要的交互点或掉入意外位置的软锁。更新后，我们将继续监控系统的状态，看看是否需要进行额外的调整。
+
+Fixed cases where the ground under some assets could be bombed causing them to float.
+
+修复了某些资产下方的地面可能被炸毁导致它们漂浮的情况。
+
+Ballistic shield changes:
+
+防弹罩变化：
+
+🔹 Collision mesh has been slightly increased in size for more forgiveness.
+
+🔹 碰撞网格的尺寸略有增加，容错性更高。
+
+🔹 Changed shield poses so that less of the helldiver is exposed.
+
+🔹 改变了盾牌姿势，使地狱潜水员暴露在外的次数更少。
+
+🔹 Addressed bug where parts of the helldiver would become vulnerable while using the shield in first person.
+
+🔹 解决了地狱潜水员在第一人称使用盾牌时会变得脆弱的错误。
+
+🧠 Known Issues 🧠 已知问题
+
+These are issues that were either introduced by this patch and are being worked on, or are from a previous version and have not yet been fixed.
+
+这些问题要么是此修补程序引入的，要么是正在处理的，要么是来自以前的版本，但尚未修复。
+
+Game might crash when picking up a snowball or throwing back a grenade.
+
+捡起雪球或扔回手榴弹时，游戏可能会崩溃。
+
+Various issues involving friend invites and cross-play:
+
+涉及好友邀请和跨平台游戏的各种问题：
+
+🔹 Cross-platform friend invites might not show up in the Friend Requests tab.
+
+🔹 跨平台好友邀请可能不会显示在“加好友请求”标签页中。
+
+🔹 Players cannot unfriend other players befriended via friend code.
+
+🔹 玩家无法取消通过好友代码结交的其他玩家的好友关系。
+
+🔹 Players cannot unblock players that were not in their Friends list beforehand.
+
+🔹 玩家无法事先解锁不在好友列表中的玩家。
+
+🔹 Players cannot befriend players with Steam names shorter than 3 characters.
+
+🔹 玩家不能与Steam名称少于3个字符的玩家成为朋友。
+
+Explosive weapon stats include only direct hit damage but not explosive damage.
+
+爆炸性武器属性仅包括直接命中伤害，不包括爆炸性伤害。
+
+Explosions do not break your limbs (except for when you fly into a rock).
+
+爆炸不会折断你的四肢（除非你飞到岩石上）。
+
+Planet liberation reaches 100% at the end of every Defend mission.
+
+在每次保卫任务结束时，行星解放率达到 100%。
+
+Drowning in deep water with a Vitality Booster equipped puts Helldiver in a broken state.
+
+在装备了活力助推器的情况下淹死在深水中会使地狱潜水员处于破碎状态。
+
+Stratagem beam might attach itself to an enemy but it will deploy to its original location.
+
+策略光束可能会附着在敌人身上，但它会部署到原来的位置。
+
+Some player customizations (like title or body type) may reset after restarting the game.
+
+某些玩家自定义设置（如标题或身体类型）可能会在重新启动游戏后重置。
+
+——————
+
+EDIT: yes, level cap has been increased.
+
+编辑：是的，等级上限已增加。
+

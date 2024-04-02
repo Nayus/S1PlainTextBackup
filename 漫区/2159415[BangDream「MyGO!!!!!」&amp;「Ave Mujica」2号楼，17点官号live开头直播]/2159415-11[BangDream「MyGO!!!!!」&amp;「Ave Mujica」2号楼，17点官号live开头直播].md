@@ -1904,3 +1904,30 @@ mygo那边鼓凛看逆输入的程度有可能是先找的人再按经历写的�
 
 后来传着传着，各种邦滑坡都是暗指你楼出的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 14968#       发表于 2024-4-2 18:07
+
+ 本帖最后由 -LYRE- 于 2024-4-2 18:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64460424&amp;ptid=2159415" target="_blank">多莉DOLLY 发表于 2024-4-2 16:27</a>
+原来的访谈就说过了，Ave一开始就决定了音乐形式是金属，然后加入世界观和舞台剧要素跟r组做出区分，但人 ...</blockquote>
+你引用的那条回复说的是“先定下mujica后来产生crychic才会产生白祥”
+压根没提mygo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 14969#       发表于 2024-4-2 18:10
+
+做原案不是一天两天的事，这是个长期过程，有初期案之后再根据声优进行调整、推翻大改都是很可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，或者说有调整修改才正常
+
+按照这次访谈的说法，无非就是几种可能性
+
+1.crychic包括整个白祥时期对祥子这个角色来说都没那么重要，不包含在找声优必要的设定内容里，所以没有透露给高尾
+
+2.灰祥/ob相关的设定案拍板较早，与白祥相关的其他角色较晚
+
+3.白祥相关单纯是动画剧本方面的追加内容，不影响其他方面的企划进展
+

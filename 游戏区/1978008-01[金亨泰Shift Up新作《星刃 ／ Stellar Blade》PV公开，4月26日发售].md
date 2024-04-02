@@ -2805,3 +2805,13 @@ BOSS挑战部分应该是较后期的角色强度了，虽然还有两页没解�
 用韩语试玩了下，都说如今日语片假名多，原来韩语音译 ...</blockquote>
 对，格挡的前摇挺膈应的，挑战那里boss出招太快就来不及挡下来
 
+
+*****
+
+####  寂长无星夜  
+##### 674#       发表于 2024-4-2 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452312&amp;ptid=1978008" target="_blank">Shabadadoo 发表于 2024-4-1 21:36</a>
+这个女主的脸到底长什么样，怎么感觉封面播片实机每一张脸都不像同一个人 ...</blockquote>
+没有特点，记不住就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

@@ -12467,3 +12467,19 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">回江户后一堆图标bug
 
+
+*****
+
+####  focus  
+##### 2747#       发表于 2024-4-2 10:00
+
+目前最爽连招：隼流石火动摇 -&gt; 砍三刀流转无外流爆弹气绝 -&gt; 春岚蜻蜓处决回满精力，基本上一个石火就能处决一次
+
+*****
+
+####  focus  
+##### 2748#       发表于 2024-4-2 10:02
+
+最终爆弹流，一发培烙弹约2万伤害，秒杀暗夜难度双boss不二选择
+[https://www.bilibili.com/video/BV1LE421g7XH](https://www.bilibili.com/video/BV1LE421g7XH)
+

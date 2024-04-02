@@ -372,3 +372,12 @@ horipro按理说不会这么不给资源才对，不会因为鱼要转国内了�
 
 诶居然连BD也没有
 
+
+*****
+
+####  cybernetics31  
+##### 19923#       发表于 2024-4-2 21:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">bd也不给？
+…………国内都没宣呢，照理来说应该快了
+

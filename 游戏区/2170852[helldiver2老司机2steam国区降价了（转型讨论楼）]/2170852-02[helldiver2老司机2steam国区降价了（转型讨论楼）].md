@@ -10344,3 +10344,13 @@ AT AT实装了，压迫感拉满
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用无限雷的话双足机甲不难处理，主宰能一枪头无畏是不是能替代焦土了
 
+
+*****
+
+####  DawnGuardian  
+##### 2458#       发表于 2024-4-2 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463729&amp;ptid=2170852" target="_blank"> pwzzy 发表于 2024-4-2 20:54</a> 用无限雷的话双足机甲不难处理，主宰能一枪头无畏是不是能替代焦土了 </blockquote>
+你是说蹂躏者吧，其实还是不太好用，瞄准太难受了
+来自: iPhone客户端
+

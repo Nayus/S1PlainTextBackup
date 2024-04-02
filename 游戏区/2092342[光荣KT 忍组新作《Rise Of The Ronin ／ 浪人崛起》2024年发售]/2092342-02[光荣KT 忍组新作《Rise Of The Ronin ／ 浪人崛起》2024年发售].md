@@ -12594,3 +12594,14 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 在战斗中切武器的敌人是不是只有搭档？这个设计和天地人克制强相关，但是整个游戏中就没见过除搭档以外的人在战斗中间换武器？来自: iPhone客户端
 
+
+*****
+
+####  ckseng  
+##### 2761#       发表于 2024-4-2 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452868&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-4-1 22:38</a>
+
+操作队友的体验好棒，还能玩飞燕和无限手里剑</blockquote>
+用习惯冲田和武田之后再切回去主角我就不会玩游戏了
+

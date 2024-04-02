@@ -10436,3 +10436,38 @@ AT AT实装了，压迫感拉满
 
 感谢~我去试试
 
+
+*****
+
+####  洛拉斯  
+##### 2469#       发表于 2024-4-2 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461269&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-2 17:26</a>
+
+箭头更新了，电弧死了</blockquote>
+现在电弧更强了，近战无敌
+
+单刷坦克虫一直可以打僵直，就是身边不能有队友
+
+
+*****
+
+####  赤井稻妻  
+##### 2470#       发表于 2024-4-2 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64464752&amp;ptid=2170852" target="_blank">洛拉斯 发表于 2024-4-2 22:35</a>
+
+现在电弧更强了，近战无敌
+
+单刷坦克虫一直可以打僵直，就是身边不能有队友 ...</blockquote>
+可以一直打断吗，我感觉打坦克还是没法打断冲锋，每次都滑到我脸上，打机器人的双刀哥也一样，一直看他出硬直但是依然前进，难道是网络问题？
+
+*****
+
+####  屑屑代沟尼亚  
+##### 2471#       发表于 2024-4-2 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">50级全是刷虫子上来的 
+
+去西线体验下机器人的新宝贝疯狂丢人啊
+

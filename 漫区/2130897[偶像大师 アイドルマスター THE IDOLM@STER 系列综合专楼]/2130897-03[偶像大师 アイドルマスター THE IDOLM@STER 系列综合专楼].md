@@ -904,3 +904,12 @@ IMG_3233.png
 
 上什么大学，来我们初星学院当偶像啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  田所あずさ  
+##### 3049#       发表于 2024-4-2 08:42
+
+【「中字」偶像大师百万现场 Encore Stage『Rat A Tat!!! 』-哔哩哔哩】 https://b23.tv/slDOCNJ
+这3dlive真吊吧，白组真的有点太强了
+

@@ -319,3 +319,18 @@ _CelticWhite_
 <img src="https://p.sda1.dev/16/cb8071db9e120b5c38ebae351ed65130/CMP_20240401160132403.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/b2748667b5c41742d14711eb90c6db19/CMP_20240401160132469.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 19916#       发表于 2024-4-2 19:18
+
+鱼三巡既没线上也无BD(
+
+*****
+
+####  280041437  
+##### 19917#       发表于 2024-4-2 19:22
+
+horipro按理说不会这么不给资源才对，不会因为鱼要转国内了吧（）
+

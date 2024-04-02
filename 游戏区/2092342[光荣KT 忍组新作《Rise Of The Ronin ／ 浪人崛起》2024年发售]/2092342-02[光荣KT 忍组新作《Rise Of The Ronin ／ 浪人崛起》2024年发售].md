@@ -12549,3 +12549,23 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 到底怎么触发上床事件啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经忘了是怎么和医生触发的了。
 现在我比翼只有笃姬一个人，她的支线也全部做完了，和她对话还是只有结束恋爱关系的选项。来自: iPhone客户端
 
+
+*****
+
+####  ouyang菌  
+##### 2756#       发表于 2024-4-2 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462364&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-04-02 18:49:09</a>
+到底怎么触发上床事件啊已经忘了是怎么和医生触发的了。
+现在我比翼只有笃姬一个人，她的支线也全部做完了 ...</blockquote>我记得俩寡妇和龙马迷妹都不能上床
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nagitoY  
+##### 2757#       发表于 2024-4-2 19:17
+
+<blockquote>[ ouyang菌 replied on 2024-4-2 19:16](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462639&amp;ptid=2092342) 引用:nagitoY 发表于 2024-04-02 18:49:09 到底怎么触发上床事件啊已经忘了是怎么和医生触发的了。 现在我比翼只有笃姬一个人，她的支线也全部做完了 ...我记得俩寡妇和龙马迷妹都不能上床    -- 来自 能看大图的 Stage1官方 Android客户端 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">居然还有这种设定吗？来自: iPhone客户端
+

@@ -737,3 +737,16 @@ MCC这么个棒鸡旧作合集真当传家宝了还是怎么的。
 
 带领游戏部门连年营收破纪录，谁有资格清算Spencer?
 
+
+*****
+
+####  ultraseven  
+##### 65#       发表于 2024-4-2 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461872&amp;ptid=2178266" target="_blank">madcow 发表于 2024-4-2 18:11</a>
+
+你软这两年不就靠买来的杯赛斯达，星空和红虾岛拉归拉总归算是拿出点东西。怎么舍得敲 ...</blockquote>
+把杯赛当做做了一半多的时候买来的第三方独占呗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">微软介入的时候能对游戏基础有啥大改变已经晚了
+
+真正能算微软完全指导的第一方的是从2018年开始第一批收购的工作室产出的游戏，基本就今、明两年出吧，到时看看评价吧。按业界平均4-5年做一个3A投入的全新IP加上中间的疫情，也不算太慢，只是这世代都过了一半了，就显得赶不上趟
+

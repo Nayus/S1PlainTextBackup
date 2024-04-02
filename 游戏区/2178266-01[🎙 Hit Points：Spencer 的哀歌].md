@@ -532,3 +532,78 @@ redfall做那逼样
 
 隔着对喷半天就没人敢对中间那句话出手的，看来哪怕是最极端的软软都只能承认本世代为止xbox的第一方游戏绝大部分就是垃圾咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  D-JoeII  
+##### 48#       发表于 2024-4-2 18:18
+
+ 本帖最后由 D-JoeII 于 2024-4-2 18:20 编辑 
+<blockquote>Mr.Hopp 发表于 2024-4-2 18:16
+反正都登录别家主机了，XBOX虽然说是有下一代，但哪天砍掉当个第三方也不奇怪。既然都当第三方了，肯定不 ...</blockquote>
+投入遊戲和投入主機是兩個獨立事件
+
+你就算問推特的索飯或悲觀軟飯,他們會質疑將來微軟對主機的投入,但不會質疑微軟對遊戲的投入
+
+*****
+
+####  zris  
+##### 49#       发表于 2024-4-2 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461879&amp;ptid=2178266" target="_blank">Mr.Hopp 发表于 2024-4-2 18:11</a>
+
+不敢表达不满，却在不久之前一副冠军姿态来指导整个业界。
+
+挺符合微软XBOX部门现在给玩家的印象， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+这有啥，你不也指点，不应该收购ABK吗。
+
+谁都可以指点
+
+*****
+
+####  Mr.Hopp  
+##### 50#       发表于 2024-4-2 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461973&amp;ptid=2178266" target="_blank">D-JoeII 发表于 2024-4-2 18:18</a>
+
+投入遊戲和投入主機是兩個獨立事件
+
+你問推特的索飯或悲觀軟飯,他們會質疑將來微軟對主機的投入,但不會質 ...</blockquote>
+挺好，花700亿继续养索尼<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zris  
+##### 51#       发表于 2024-4-2 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64461944&amp;ptid=2178266" target="_blank">爱护动物抓根宝 发表于 2024-4-2 18:16</a>
+
+隔着对喷半天就没人敢对中间那句话出手的，看来哪怕是最极端的软软都只能承认本世代为止xbox的第一方游戏有 ...</blockquote>
+自己不都说了吗？除了垂直领域，目前没有上90的
+
+如果以MC90来分，那确实成立
+
+*****
+
+####  zris  
+##### 52#       发表于 2024-4-2 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64462018&amp;ptid=2178266" target="_blank">Mr.Hopp 发表于 2024-4-2 18:21</a>
+
+挺好，花700亿继续养索尼</blockquote>
+那索索倒是多买点pentiment和hfr啊
+
+不给微软增加上ps可以卖很多的假象，怎么去移植
+
+*****
+
+####  zris  
+##### 53#       发表于 2024-4-2 18:28
+
+[https://newsletter.hitpoints.co/251-cowboy-builder/](https://newsletter.hitpoints.co/251-cowboy-builder/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以看看这个作者这篇文章
+

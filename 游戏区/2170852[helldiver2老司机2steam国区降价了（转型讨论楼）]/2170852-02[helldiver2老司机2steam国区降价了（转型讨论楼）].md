@@ -10520,3 +10520,18 @@ AT AT实装了，压迫感拉满
 
 打了6局机器人，每局不是在回舰画面闪退就是在舰队里面开超级商店闪退，然后队友不能复活几率大增，为了做进度好几局都是缺人打过的，虽然对我影响不大但是好友们都很崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 2478#       发表于 2024-4-3 00:04
+
+电弧没死？真是遗憾呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦  
+##### 2479#       发表于 2024-4-3 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掉线闪退一大堆，加投掷距离的重甲还有bug，还没受过伤我血条就变红色，然后一直在那里鬼哭狼嚎了。
+

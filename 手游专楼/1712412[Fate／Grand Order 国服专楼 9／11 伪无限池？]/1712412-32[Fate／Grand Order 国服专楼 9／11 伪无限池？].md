@@ -298,3 +298,11 @@ new了剑式，还行了
 
 2024-4-2 20:25 上传
 
+
+*****
+
+####  ultraseven  
+##### 46267#       发表于 2024-4-3 00:01
+
+感觉完全变成出四星体质了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">连续雨神+1，C闪+1，渡边纲new。不抽了
+

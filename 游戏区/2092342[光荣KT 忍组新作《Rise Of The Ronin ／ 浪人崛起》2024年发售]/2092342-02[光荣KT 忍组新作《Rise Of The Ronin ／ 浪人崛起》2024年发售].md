@@ -12521,3 +12521,13 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">进了二周目感觉双刀真的牛逼，复读双龙的削精速度甚至可以跟敌人换血，相比较下这代的太刀除开隼流可以饭刚落外真找不到有啥优势，手短输出低，灵活性也不怎样
 
+
+*****
+
+####  山风短  
+##### 2753#       发表于 2024-4-2 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64459841&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2024-4-2 15:44</a>
+进了二周目感觉双刀真的牛逼，复读双龙的削精速度甚至可以跟敌人换血，相比较下这代的太刀除开隼流 ...</blockquote>
+试试无敌的无外流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

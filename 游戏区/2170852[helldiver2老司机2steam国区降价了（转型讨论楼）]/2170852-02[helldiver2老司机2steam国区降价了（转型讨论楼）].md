@@ -9732,3 +9732,53 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Mr.Hopp  
+##### 2420#       发表于 2024-4-2 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64460132&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-2 16:07</a>
+
+焦土要打步行者裆部，就是两枪
+
+—— 来自 S1Fun</blockquote>
+那还是不如离子喷随便一喷就行。有时候急机器人扎堆还有奇效，当然没法打精准是不如焦土。
+
+*****
+
+####  runningch  
+##### 2421#       发表于 2024-4-2 16:19
+
+怎么感觉像是低模加载错误
+
+<img src="https://img.saraba1st.com/forum/202404/02/161926n0ae6r446633buc6.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_GKI0LQBWcAA_66M.jpg</strong> (144.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 16:19 上传
+
+<img src="https://img.saraba1st.com/forum/202404/02/161916bpqpf7jhkp7n6nff.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_GKI0joOWQAMyTBr.jpg</strong> (53.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 16:19 上传
+
+*****
+
+####  唯识连刃  
+##### 2422#       发表于 2024-4-2 16:20
+
+离子喷打纵步正面板子1下一个，打蹂躏者能出硬直但是杀的不算快，补个高爆雷比较稳妥，同理也适用于近身追杀锯子哥。离子喷最大的问题感觉还是打不到弱点处理蹂躏者偏慢，斜面补不上雷就抓瞎，自保倒是非常可靠
+
+*****
+
+####  rgauss  
+##### 2423#       发表于 2024-4-2 16:23
+
+保卫麦拉芬蒙河
+

@@ -1838,3 +1838,15 @@ MyGO!!!!!ツアーファイナル直前特別企画『ライブ使用機材完�
 我从这个官号跳过立希生日不发还有粉 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前早就骂过了，现在就已经完全懒得看这个号了，但主要是放到其他社群里还有人帮忙洗地说什么“运营A/客服S是这样的”啦，呕呕。
 
+
+*****
+
+####  NODY  
+##### 14962#       发表于 2024-4-2 16:18
+
+ 本帖最后由 NODY 于 2024-4-2 16:20 编辑 
+
+你邦至少鼓手这边应该是先拉人再设计团和角色的，因为米泽和鼓都有明确说明是几年前就被邦拉来的，估计那会都没鸡狗的概念，就是拉个鼓手先占坑，毕竟会打鼓的cv太难找了，管人邦甚至干脆删了这个吃力不讨好的位置<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+其他比较常见或者容易速成的乐器倒是可以先设计角色再找人
+

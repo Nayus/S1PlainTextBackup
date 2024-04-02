@@ -134,3 +134,14 @@ CPU温度还好，手心温度高，低温烫伤预定。</blockquote>
 我感觉还是很好用的，官翻4000出头 ...</blockquote>
 好的，谢谢，我也考虑先弄个官翻的机器玩一下，现在好像TB上3999的价格找不到了，不知道多久会有货。
 
+
+*****
+
+####  13301168719  
+##### 1152#       发表于 2024-4-2 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63280345&amp;ptid=2086469" target="_blank">bypass 发表于 2023-12-10 11:20</a>
+
+还是能放到我的卖萌包里面的。握把手感比之前 3D 打印件好太多了。</blockquote>
+哈基米包是自己做的吗
+

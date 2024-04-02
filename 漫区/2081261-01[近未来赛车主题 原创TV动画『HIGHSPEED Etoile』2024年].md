@@ -54,3 +54,32 @@
 
 真可爱
 
+
+*****
+
+####  山代风我  
+##### 118#       发表于 2024-4-2 17:49
+
+现在版权方直接开官号放正片来绕开审查的一个接一个……
+
+<img src="https://p.sda1.dev/16/d0e758ba753bc7ebdc4975838b79fc9c/CMP_20240402174736920.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 119#       发表于 2024-4-2 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难不成真的有手游？还是能卖歌
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  主人ハム子  
+##### 120#       发表于 2024-4-2 17:55
+
+这是大阪世博宣传片吧，那烂岛现在啥都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

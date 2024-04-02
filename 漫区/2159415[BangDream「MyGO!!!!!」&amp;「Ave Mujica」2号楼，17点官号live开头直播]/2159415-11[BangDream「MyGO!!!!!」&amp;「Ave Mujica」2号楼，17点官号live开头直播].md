@@ -1894,3 +1894,13 @@ mygo那边鼓凛看逆输入的程度有可能是先找的人再按经历写的�
 
 祥子情况特殊，看访谈没准是先有现在的祥子然后按着高尾的人设再另外写出了大小姐时期的白祥
 
+
+*****
+
+####  相坂君  
+##### 14967#       发表于 2024-4-2 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讨论先后这个我也有印象，聊着聊着突然被说暗指狗垫鸡，泥楼当初被人指着鼻子骂
+
+后来传着传着，各种邦滑坡都是暗指你楼出的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

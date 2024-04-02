@@ -778,3 +778,11 @@ MCC这么个棒鸡旧作合集真当传家宝了还是怎么的。
 
 主楼这样的文章情绪色彩还是太重了。
 
+
+*****
+
+####  4869Bi  
+##### 68#       发表于 2024-4-2 20:19
+
+那盗贼之海收入跟整个微软的营收做对比，建议作者去看一下脑科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

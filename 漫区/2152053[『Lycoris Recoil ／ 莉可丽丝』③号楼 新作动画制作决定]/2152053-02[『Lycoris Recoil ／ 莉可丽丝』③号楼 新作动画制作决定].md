@@ -60,3 +60,16 @@
 
 第二季能不能把这个画面做进去，感觉很有意境
 
+
+*****
+
+####  Delicatus545  
+##### 1765#       发表于 2024-4-3 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64466450&amp;ptid=2152053" target="_blank">skives 发表于 2024-4-3 01:13</a>
+
+千束第二季如果为了泷奈差点死掉
+
+那蒜也不失一个优秀的作品</blockquote>
+你说的这个，第一季就有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

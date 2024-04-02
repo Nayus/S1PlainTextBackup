@@ -12799,3 +12799,13 @@ boss里印象内个法国教官和高杉会</blockquote>
 仁王卧龙 ...</blockquote>
 不会，这作战技存在感和卧龙比没多大区别，再考虑耗精问题性价比更低了，不然你以为大家为啥喷战斗系统那么厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bwsusaga  
+##### 2781#       发表于 2024-4-3 01:44
+
+开过的宝箱不显示完成导致不能100%的BUG修了么？
+
+有点强迫症，这搞的都玩不下去了。
+

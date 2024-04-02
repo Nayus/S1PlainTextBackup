@@ -10579,3 +10579,11 @@ AT AT实装了，压迫感拉满
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">简体翻译我绷不住了
 
+
+*****
+
+####  smdzh2  
+##### 2483#       发表于 2024-4-3 01:41
+
+麦拉芬蒙绞肉机有一次性筒子buff，球共体验良好，运输船刚刷出来就被密林里齐刷刷的火力打成筛子，炮艇更是活不过三秒钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1792,3 +1792,16 @@ StarLadder宣布了四场赛事的计划，2025和2026年各两场，每场赛�
 
 锦标赛4：2026年9月11日至20日
 
+
+*****
+
+####  三千珈蓝  
+##### 4232#       发表于 2024-4-2 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64456310&amp;ptid=1857369" target="_blank">zpl123 发表于 2024-4-2 10:43</a>
+
+群星联赛回归！继PGL后乌克兰赛事主办方StarLadder也官宣重返反恐精英舞台，计划将在2025和2026年举办四场 ...</blockquote>
+StarLadder居然活了
+
+不过问题来了，他们会给有俄罗斯人的队伍名额么
+

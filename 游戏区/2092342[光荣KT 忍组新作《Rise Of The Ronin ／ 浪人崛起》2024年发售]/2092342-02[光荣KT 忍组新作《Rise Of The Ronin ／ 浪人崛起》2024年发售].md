@@ -12513,3 +12513,11 @@ boss少一点霸体平a，多一些防御，类似仁王的人型敌人，体验
 
 —— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wtyrambo  
+##### 2752#       发表于 2024-4-2 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">进了二周目感觉双刀真的牛逼，复读双龙的削精速度甚至可以跟敌人换血，相比较下这代的太刀除开隼流可以饭刚落外真找不到有啥优势，手短输出低，灵活性也不怎样
+

@@ -1809,3 +1809,11 @@ MyGO!!!!!ツアーファイナル直前特別企画『ライブ使用機材完�
 
 也就是因为泥漏先讨论了这个，传出去之后才被路人在其他地方当成靶子指着大名臭骂一顿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令人印象深刻
 
+
+*****
+
+####  ydsbbt  
+##### 14959#       发表于 2024-4-2 15:41
+
+当时就是正经讨论，结果有人被害妄想觉得说狗团后出就是低人一等，跳出来把大伙都骂了个遍<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

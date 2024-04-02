@@ -1334,3 +1334,13 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 愚人节小游戏的职员表里怎么还有盐川</blockquote>
 19年的愚人节游戏FGO Quest就提了盐川把这部分策划到了十周年的量，应该是早有准备
 
+
+*****
+
+####  清河子  
+##### 11955#       发表于 2024-4-2 15:46
+
+愚人节新伊莉莎好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+话说回来3000wdl什么时候开呢，等好久了，想喂巧克力礼装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

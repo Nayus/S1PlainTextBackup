@@ -9650,3 +9650,52 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开什么玩笑，要吐了，有没有玩家统一下搞个大的，单通一边先
 
+
+*****
+
+####  Mr.Hopp  
+##### 2412#       发表于 2024-4-2 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64458154&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-2 13:23</a>
+
+离子喷真比焦土好吗</blockquote>
+离子喷正面打ATST都是一发搞定，焦土要3发。机器人里除了坦克和无畏打上去全部都能打出硬直，弹药数量也比焦土多。。
+
+*****
+
+####  Aeons  
+##### 2413#       发表于 2024-4-2 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64459901&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-2 15:49</a>
+离子喷正面打ATST都是一发搞定，焦土要3发。机器人里除了坦克和无畏打上去全部都能打出硬直，弹药数量也 ...</blockquote>
+步行机两发吧
+
+*****
+
+####  Mr.Hopp  
+##### 2414#       发表于 2024-4-2 15:51
+
+ 本帖最后由 Mr.Hopp 于 2024-4-2 15:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64459912&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-2 15:50</a>
+
+步行机两发吧</blockquote>
+打中正面或者侧面都是一发，就算没有直接打中也会有伤害和产生硬直，最近迷上用离子喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前拿焦土打火箭哥和盾牌哥打不准弱点不会硬直，离子喷无论打哪都能打出硬直。
+
+*****
+
+####  Aeons  
+##### 2415#       发表于 2024-4-2 15:52
+
+离子喷打机器人中甲不咋地吧，弹道也不适合
+
+*****
+
+####  Aeons  
+##### 2416#       发表于 2024-4-2 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64459926&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-2 15:51</a>
+
+打中正面或者侧面都是一发，就算没有直接打中也会有伤害和产生硬直，最近迷上用离子喷了之前拿焦土 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 我说焦土打步行机应该是两发
+

@@ -1850,3 +1850,14 @@ MyGO!!!!!ツアーファイナル直前特別企画『ライブ使用機材完�
 
 其他比较常见或者容易速成的乐器倒是可以先设计角色再找人
 
+
+*****
+
+####  多莉DOLLY  
+##### 14963#       发表于 2024-4-2 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64451526&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-4-1 20:27</a>
+
+mujica这个风格肯定是先定下来的，后来创作剧本的时候产生CryChic，才会产生白祥，我印象在之前动画的访谈 ...</blockquote>
+原来的访谈就说过了，Ave一开始就决定了音乐形式是金属，然后加入世界观和舞台剧要素跟r组做出区分，但人物设定是MyGO和Ave两个团同时进行的
+

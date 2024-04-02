@@ -9634,3 +9634,19 @@ ZNM，难怪说火喷和燃烧弹威力不对劲，问题是火附魔的小怪�
 
 问下，有没有用1070的？1080P能流畅吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 2411#       发表于 2024-4-2 15:07
+
+<img src="https://img.saraba1st.com/forum/202404/02/150632p7itiln1a8ti88q7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (201.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-2 15:06 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开什么玩笑，要吐了，有没有玩家统一下搞个大的，单通一边先
+

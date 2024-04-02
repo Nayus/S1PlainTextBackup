@@ -105,3 +105,13 @@
 
 —— 来自 samsung SM-G9758, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Toby_dak  
+##### 123#       发表于 2024-4-2 20:02
+
+女主角的CV也是憧憬魔法少女……不知道会涌进一批扣扣百合豚…………
+
+我只想看电风扇入弯和boost on啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

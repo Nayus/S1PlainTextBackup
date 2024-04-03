@@ -12977,3 +12977,11 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 立身流和二天一流因为石火是多段攻击，有时候能弹到一些快慢刀，彼岸萤那得到后期或者二周目逃课用了
 
+
+*****
+
+####  Z1yu  
+##### 2798#       发表于 2024-4-3 13:13
+
+二周目快打完了，怎么没感觉石火比夜晚难度要短啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

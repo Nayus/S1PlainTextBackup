@@ -10644,3 +10644,15 @@ Explosive weapon stats include only direct hit damage but not explosive damage.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草
 
+
+*****
+
+####  灰色蔓延  
+##### 2487#       发表于 2024-4-3 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64463348&amp;ptid=2170852" target="_blank">RockingHorse 发表于 2024-4-2 20:17</a>
+新出来的高塔怎么破坏？扔了500G和380都没炸掉，被飞船撵着走不确定是不是因为没炸中 ...</blockquote>
+地狱火only
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

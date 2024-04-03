@@ -10587,3 +10587,18 @@ AT AT实装了，压迫感拉满
 
 麦拉芬蒙绞肉机有一次性筒子buff，球共体验良好，运输船刚刷出来就被密林里齐刷刷的火力打成筛子，炮艇更是活不过三秒钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 2484#       发表于 2024-4-3 10:49
+
+Fixes
+
+The Helldiver and the Exosuit both had a bug that made them sometimes take explosion damage multiple times making things like automaton rockets be too deadly, this is now fixed.
+
+Known Issues
+
+Explosive weapon stats include only direct hit damage but not explosive damage.
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ONP，还有贼种修复BUG
+

@@ -12919,3 +12919,14 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 刚拿到盘，目前轮椅流派和版本武器都是什么？？
 
+
+*****
+
+####  黑修士  
+##### 2793#       发表于 2024-4-3 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64468810&amp;ptid=2092342" target="_blank">godless2020 发表于 2024-4-3 10:34</a>
+
+刚拿到盘，目前轮椅流派和版本武器都是什么？？</blockquote>
+立身流和二天一流第一章就能掌握，前者的石火动作非常适合新手，后者的彼岸萤堪称轮椅。
+

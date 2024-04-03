@@ -496,3 +496,14 @@ ai最怕的就是大公司垄断吧<img src="https://static.saraba1st.com/image/
 
 刚看了水果姐说：我知道你们就是要看我的柰子
 
+
+*****
+
+####  TNN  
+##### 57#       发表于 2024-4-3 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64472912&amp;ptid=2178385" target="_blank">极东 发表于 2024-4-3 16:40</a>
+
+因为归根到底，讲好长篇故事的能力是非常罕见的。ai做不到，甚至很多创作者自己都做不到。ai创作能提供零 ...</blockquote>
+没要求大部头，哪怕小短篇小条漫，甚至小四格和meme有产量的提升吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">泥潭反复举例只有八股报告和牛皮癣广告，不觉得这是所谓借助ai表达自己的想法。
+

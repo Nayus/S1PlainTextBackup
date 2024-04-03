@@ -1217,3 +1217,38 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 这些声优本来就是冲着偶像企划去的，隔壁没选上打个酱油挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 比如前面有人提到鸭鸭，鸭鸭可是百万灰灰sc三家都试音过的，像她这种估计是普遍现象，估计隔壁几家企划也去试过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 3080#       发表于 2024-4-3 18:29
+
+82 53 80
+
+我去 这82？
+
+
+*****
+
+####  Anatoly  
+##### 3081#       发表于 2024-4-3 18:30
+
+说是紫月同期回头去看了看紫月
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">紫月这到现在居然还没上过动画番组吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Anatoly  
+##### 3082#       发表于 2024-4-3 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64474129&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-4-3 18:29</a>
+82 53 80
+
+我去 这82？</blockquote>
+好像看建模是有料的
+但立绘确实是没啥感受
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

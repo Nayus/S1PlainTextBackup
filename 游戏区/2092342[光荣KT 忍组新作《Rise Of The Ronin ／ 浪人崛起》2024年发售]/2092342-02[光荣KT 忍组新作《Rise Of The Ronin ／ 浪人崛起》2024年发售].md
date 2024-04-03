@@ -13085,3 +13085,15 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以我觉得浪人没抄到对马岛的精髓之一就是短啊
 
+
+*****
+
+####  jcwatm1  
+##### 2808#       发表于 2024-4-3 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64472118&amp;ptid=2092342" target="_blank">培根芝士蛋堡XD 发表于 2024-4-3 15:33</a>
+其实喷了半天真不是因为难度喷的，至少我不是因为打不过才喷，这游戏这么多药、纸和轮椅手段，说实话最高难 ...</blockquote>
+其实这些问题也好改，把高难度石火判定改成中等难度判定，延长石火后动摇时间，再适当加长高难度boss血条，能让玩家在窗口期内搭出一套漂亮组合，感觉到自己很强，就能爽了
+不比当初匹诺曹难改
+就看忍组是不是懒得改/不愿意改了
+

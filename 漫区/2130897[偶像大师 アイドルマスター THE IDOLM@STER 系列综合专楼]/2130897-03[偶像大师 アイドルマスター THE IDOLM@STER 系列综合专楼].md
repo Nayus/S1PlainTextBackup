@@ -1002,3 +1002,25 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 这歌标题到底怎么翻译，rat除了老鼠还有啥意思？</blockquote>
 邋遢大王
 
+
+*****
+
+####  rgauss  
+##### 3057#       发表于 2024-4-3 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">建模一股傻气
+
+*****
+
+####  cckuku  
+##### 3058#       发表于 2024-4-3 16:05
+
+等下，按照万代这凡事慢别人几年的节奏，它该不会在学马仕里出华子吧？
+
+*****
+
+####  Alicest  
+##### 3059#       发表于 2024-4-3 16:06
+
+已经有两个华子了，真要有华子偶像感觉就会很刻板印象
+

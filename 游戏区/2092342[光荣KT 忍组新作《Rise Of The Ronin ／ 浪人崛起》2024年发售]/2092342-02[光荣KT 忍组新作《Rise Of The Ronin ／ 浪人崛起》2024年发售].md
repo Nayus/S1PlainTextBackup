@@ -12985,3 +12985,11 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 二周目快打完了，怎么没感觉石火比夜晚难度要短啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿尔泰尔  
+##### 2799#       发表于 2024-4-3 13:25
+
+看到好多喷二周目暗夜难度高的，意思是二周目不能选难度了强制只能暗夜难度了吗
+

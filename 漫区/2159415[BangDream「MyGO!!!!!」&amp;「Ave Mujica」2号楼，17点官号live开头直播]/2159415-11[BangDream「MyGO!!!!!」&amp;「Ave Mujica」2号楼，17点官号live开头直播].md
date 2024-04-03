@@ -1996,3 +1996,13 @@ Mujica应该是先找人然后角色照着中之人写
 
 —— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  爱丁堡official  
+##### 14976#       发表于 2024-4-3 12:21
+
+蜜柑怎么也被开了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -10656,3 +10656,13 @@ Explosive weapon stats include only direct hit damage but not explosive damage.
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  风萧飒  
+##### 2488#       发表于 2024-4-3 14:18
+
+又解包出对空火箭炮了，箭头这对空武器做的有点多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

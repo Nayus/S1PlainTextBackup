@@ -363,3 +363,44 @@ JCB至今Fanza甚至AppStore日区都能用的，问就是好
 不行的话截图给我看看什么情况。
 —— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  圈量子  
+##### 43#       发表于 2024-4-4 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64478115&amp;ptid=2178442" target="_blank">moeful 发表于 2024-4-4 01:59</a>
+
+你试着付一下看看，AMeX姑且理论上可以的。
+
+不行的话截图给我看看什么情况。
+
+—— 来自 Sony SOV37, Andr ...</blockquote>
+我用的imgur图床，看不到的话wb的圈量子场最新一条微博就是
+
+我是看到4chan讨论amex也不行了就去看了一眼，结果真的不行。以为只是图标不显示，结果试着登录一下自己的amex也失败了（我是CreditOne的amex卡）
+
+<img src="https://i.imgur.com/T3s7wmX.png" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/1h3nREQ.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oznark  
+##### 44#       发表于 2024-4-4 02:09
+
+<img src="https://img.saraba1st.com/forum/202404/03/110741d0ge33zn8aoka388.jpg" referrerpolicy="no-referrer">
+
+<strong>简中.jpg</strong> (329.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-4 02:07 上传
+
+<img src="https://img.saraba1st.com/forum/202404/03/110853t4777b5yrvvbae1j.jpg" referrerpolicy="no-referrer">
+
+<strong>日文.jpg</strong> (430.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-4 02:08 上传
+

@@ -1458,3 +1458,11 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 2024-4-3 20:17 上传
 
+
+*****
+
+####  DARKGRAY  
+##### 11968#       发表于 2024-4-3 20:23
+
+既然特意搞个不一样的字眼，那就是有意为之<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

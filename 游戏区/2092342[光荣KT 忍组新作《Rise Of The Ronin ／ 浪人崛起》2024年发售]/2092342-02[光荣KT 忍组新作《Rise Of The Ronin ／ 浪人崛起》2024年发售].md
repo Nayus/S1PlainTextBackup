@@ -13225,3 +13225,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 暗夜难度的主线不会给红色装备吗？打了几次权藏了来自: iPhone客户端
 
+
+*****
+
+####  hugosol  
+##### 2822#       发表于 2024-4-3 20:35
+
+卧龙明明词条都能随便镶嵌了，浪人这比卧龙还简陋的装备系统居然还要卡你移植素材，还以为忍组已经想通的我真是太天真了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

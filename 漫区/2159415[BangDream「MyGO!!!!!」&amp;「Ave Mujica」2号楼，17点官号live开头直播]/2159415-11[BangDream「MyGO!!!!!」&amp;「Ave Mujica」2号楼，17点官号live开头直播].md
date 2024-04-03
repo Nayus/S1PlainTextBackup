@@ -2178,3 +2178,18 @@ IMG_2013.jpeg
 
 BCI是低音单簧管？你邦第一个会吹奏的？
 
+
+*****
+
+####  Dark_Zagi  
+##### 14991#       发表于 2024-4-3 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64471207&amp;ptid=2159415" target="_blank">skives 发表于 2024-4-3 14:08</a>
+
+谷歌地图评论有将近700个
+
+感觉像是那种乡下相当有牌面的神社啊
+
+难道到最后发现唯一草根出身的只有羊 ...</blockquote>
+青木不也是草根吗
+

@@ -1077,3 +1077,23 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 3065#       发表于 2024-4-3 17:30
+
+才发现莉莉娅的出身地是瑞典。感觉瑞典在日本二次元里始终有点微妙的存在感。古早热梗扭腰舞原曲就是瑞典乐队的。百欧这片地儿还真和日式亚文化有不小的关系。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Anatoly  
+##### 3066#       发表于 2024-4-3 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473558&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-4-3 17:30</a>
+才发现莉莉娅的出身地是瑞典。感觉瑞典在日本二次元里始终有点微妙的存在感。古早热梗扭腰舞原曲就是瑞典乐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在新人之前我脑中第一个白毛瑞典佬是赫德拉姆
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

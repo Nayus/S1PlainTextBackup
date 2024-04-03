@@ -360,3 +360,13 @@ new了剑式，还行了
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 S1Next- ...</blockquote>
 没有
 
+
+*****
+
+####  linmoux  
+##### 46273#       发表于 2024-4-3 17:35
+
+大家能不能加我好友做新人任务？7年图鉴玩家 100,130,108,557。谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

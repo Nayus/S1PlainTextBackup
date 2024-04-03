@@ -518,3 +518,13 @@ ai最怕的就是大公司垄断吧<img src="https://static.saraba1st.com/image/
 所以呀，我才说现在叫的不就是那些没能力，真的大手子估计早加入进去了，看看阿B上面那些搞设计的 ...</blockquote>
 所以既没有大手子已经使用的证据，你自己也没有实操过，只是看了卖课的卖家秀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我在x上收图，不说大手哪怕中游的万粉画师既没见用也没见产量提升，反而普遍反对。
 
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 59#       发表于 2024-4-3 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64470757&amp;ptid=2178385" target="_blank">jojog 发表于 2024-4-3 13:24</a>
+于是一年多了有哪个小画家辅助生成ai薄纱大手子了吗</blockquote>
+没有，但真的淘汰了很多岗位，比如ui设计
+

@@ -400,3 +400,23 @@ pve玩背包英雄，不过那个深度也不够
 
 卡池太浅了，嗯搜一个套路基本都能搜出来，无非快点慢点，没有随机应变的需要，这样肯定是功利上分套路占主流
 
+
+*****
+
+####  afer  
+##### 42#       发表于 2024-4-3 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64466734&amp;ptid=2148282" target="_blank">空集 发表于 2024-4-3 03:19</a>
+
+这个确实就是我上面说的 感觉只要玩狂战士我就找不到不玩这个宝石双刃斧的理由 虽然我更喜欢拿拳 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202404/03/192315u3gg178wg3n8w98w.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图202404030140918.jpg</strong> (352.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 19:23 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶锅了解一下
+

@@ -393,3 +393,11 @@ new了剑式，还行了
 
 如果100内出就提前抽提妈
 
+
+*****
+
+####  艾尔特翔  
+##### 46276#       发表于 2024-4-3 19:24
+
+虽然现在用处不多了，萌新我终于有骑金时了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

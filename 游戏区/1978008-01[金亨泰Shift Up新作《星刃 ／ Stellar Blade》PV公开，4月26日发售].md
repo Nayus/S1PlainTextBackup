@@ -2889,3 +2889,13 @@ https://shiftup.co.kr/</blockquote>
 
 ign发了15分钟新视频【【4月3日】IGN《剑星》15分钟新场景试玩中文字幕版-哔哩哔哩】 [https://b23.tv/7LJKULL](https://b23.tv/7LJKULL)
 
+
+*****
+
+####  iceblue  
+##### 681#       发表于 2024-4-3 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64470124&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-4-3 12:21</a>
+ign发了15分钟新视频【【4月3日】IGN《剑星》15分钟新场景试玩中文字幕版-哔哩哔哩】 https://b23.tv/7LJKU ...</blockquote>
+完美闪避加bu槽能量，看起来应该是强化技能和r1键位的新技能需要。
+

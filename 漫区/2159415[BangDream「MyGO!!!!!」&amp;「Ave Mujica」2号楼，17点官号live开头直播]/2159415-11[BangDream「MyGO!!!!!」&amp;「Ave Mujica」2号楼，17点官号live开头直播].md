@@ -2006,3 +2006,33 @@ Mujica应该是先找人然后角色照着中之人写
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nebulanoby  
+##### 14977#       发表于 2024-4-3 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64470121&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-4-3 12:21</a>
+蜜柑怎么也被开了
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+NGA光速nuke了吧
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Nomind96  
+##### 14978#       发表于 2024-4-3 12:58
+
+紫群那些人顺着这个开的
+
+IMG_1981.jpeg
+(272.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 12:58 上传
+
+<img src="https://img.saraba1st.com/forum/202404/03/125836a15cbnuur2v4pr6i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

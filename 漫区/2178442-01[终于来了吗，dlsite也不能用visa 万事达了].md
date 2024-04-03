@@ -444,3 +444,19 @@ ci-en绑的visa卡信息还在
 
 不知道还会不会接着扣款
 
+
+*****
+
+####  繭  
+##### 49#       发表于 2024-4-4 05:39
+
+不如说真以为能单靠修改关键词进行规避就能解决才比较奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  熊边上  
+##### 50#       发表于 2024-4-4 05:46
+
+幸好还有支付宝，我这里根本没有jcb可以办啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

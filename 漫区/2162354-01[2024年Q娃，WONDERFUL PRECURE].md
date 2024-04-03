@@ -531,3 +531,11 @@ q娃，很神奇吧
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pokemon最爱  
+##### 1275#       发表于 2024-4-3 10:28
+
+一个奇怪的想法，会不会其实猫猫在开篇前就拿到变身器了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（也就是猫猫一直是可以变成人类以及变身Q娃的状态）
+

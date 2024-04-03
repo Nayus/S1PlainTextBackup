@@ -2288,3 +2288,13 @@ IMG_2015.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">武士道没钱给尾款所以压着稿不发吧，等再卖一批蛋白棒就有钱了
 
+
+*****
+
+####  rslika  
+##### 15002#       发表于 2024-4-4 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次对邦的吧唧拼团在go热度和ppp单价过低的双重buff加持下 成团率好像到了一个神秘的高点
+
+（然后我三百不到凹了二十多个ksm
+

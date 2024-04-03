@@ -12893,3 +12893,13 @@ boss里印象内个法国教官和高杉会</blockquote>
  ...</blockquote>
 我感觉最烦的是斋藤一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">长连段快慢刀、三段牙突都不好弹
 
+
+*****
+
+####  nagitoY  
+##### 2790#       发表于 2024-4-3 08:58
+
+二周目留魂录也没法选一周目没解锁的选项。说的就是村山多加的比翼选项<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">必须在进江户做完多加支线之后满好感进比翼，然后在接主线任务的对话中才能多出来比翼的选项“私奔”，再触发cg。
+
+还好当时赌场sl留了个横滨的存档，
+

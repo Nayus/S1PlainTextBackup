@@ -9060,3 +9060,14 @@ melon这个长相很有辨识度也挺好顶尖选手有赞助说明这个游戏
 
 Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ万一赢了甲子园，rentana因为刚开始工作也没法参加世界大会，就会请melon代打。然而好像没机会看到melon打jackpot了。。
 
+
+*****
+
+####  laosai13  
+##### 3885#       发表于 2024-4-3 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64468157&amp;ptid=2150634" target="_blank">569 发表于 2024-4-3 09:44</a>
+
+Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ万一赢了甲子园，rentana因为刚开始工作也没法参 ...</blockquote>
+说起来世锦赛看起来有好多支队（看赛制起码有8支），日本这边只能出一个吗？我看美国出了一个德国出一个澳大利亚出一个日本出一个，剩下的不知道怎么来
+

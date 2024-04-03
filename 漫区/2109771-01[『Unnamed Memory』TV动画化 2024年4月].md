@@ -639,3 +639,15 @@ B站似乎要上了～
 4/9(火)AT-Xほかにて放送開始🗝️
 <img src="https://p.sda1.dev/16/a2e4398e8c23a6f587c3e9e9492d9c16/20240403_221218.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ditfran  
+##### 54#       发表于 2024-4-3 23:12
+
+第一集英肉出来了，比想象中的稍微好点，战斗部分就不指望了，至少人物没崩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+男主的CV感觉不太行，老气横秋+有点棒读。
+
+华哥配的缇娜夏倒是很不错，虽然刚登场时串戏到了芙莉莲，不过后面换了个声线后感觉好多了。感觉之后的集数唯一能支撑我看下去的就是华哥配的缇娜夏了
+

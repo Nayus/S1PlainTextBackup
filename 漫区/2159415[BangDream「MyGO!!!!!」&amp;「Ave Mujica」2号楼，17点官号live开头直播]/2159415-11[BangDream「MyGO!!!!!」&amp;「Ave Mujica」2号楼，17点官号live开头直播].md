@@ -2193,3 +2193,26 @@ BCI是低音单簧管？你邦第一个会吹奏的？
 难道到最后发现唯一草根出身的只有羊 ...</blockquote>
 青木不也是草根吗
 
+
+*****
+
+####  基神的强袭自由  
+##### 14992#       发表于 2024-4-3 20:38
+
+一直活在背景里面的你邦吹奏乐部
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  6030sylar  
+##### 14993#       发表于 2024-4-3 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475567&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-4-3 20:38</a>
+
+一直活在背景里面的你邦吹奏乐部
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">出场都没有连是不是人都不知道
+

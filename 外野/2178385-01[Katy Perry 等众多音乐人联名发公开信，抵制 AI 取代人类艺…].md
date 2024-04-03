@@ -596,3 +596,22 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 一个人如果能提供详细的需求让ai做出优秀作品，那他就算只能画火柴人，也必是一个优秀的编剧。
 一个脑子只能想到俗套三流剧情的人，给他找几个大师当画手，也画不出一流的作品，但靠作画大场面和色图，卖卖钱还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  扔骰子  
+##### 65#       发表于 2024-4-3 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64469914&amp;ptid=2178385" target="_blank">全世界失恋 发表于 2024-4-3 12:04</a>
+看看人孙燕姿什么格局
+
+论坛助手,iPhone</blockquote>
+主楼和你说的完全不是一回事……
+
+*****
+
+####  kidosper  
+##### 66#       发表于 2024-4-3 20:44
+
+饭碗被抢了就是这样跳脚
+

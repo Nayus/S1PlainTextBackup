@@ -368,3 +368,21 @@ ai绘画都污染p站图库了泥潭人怎么还吹
 所以呀，我才说现在叫的不就是那些没能力，真的大手子估计早加入进去了，看看阿B上面那些搞设计的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">求几个链接？
 
+
+*****
+
+####  十方明亮  
+##### 42#       发表于 2024-4-3 15:41
+
+我对AI音乐第一印象：
+
+咦~？↑这→都↑有→飞↓马→干↑哦→
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  村长猫  
+##### 43#       发表于 2024-4-3 15:44
+
+行为艺术
+

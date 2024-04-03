@@ -798,3 +798,32 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 大锅饭，或者说（底端文化&amp;# ...</blockquote>
 大锅饭接下来可是大吃饱呃<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  riczxc  
+##### 85#       发表于 2024-4-3 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476536&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-3 22:20</a>
+
+大锅饭接下来可是大吃饱呃目前就算中国公交车和地铁也没成功免费吧，这还是实用工具类生产资料，需 ...</blockquote>
+公交地铁有排他性，需要维护。分发数字产品的边际成本更低。
+
+*****
+
+####  TNN  
+##### 86#       发表于 2024-4-3 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476607&amp;ptid=2178385" target="_blank">riczxc 发表于 2024-4-3 22:27</a>
+
+公交地铁有排他性，需要维&amp;# ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">盗版（直球）
+
+
+*****
+
+####  Saikou  
+##### 87#       发表于 2024-4-3 22:31
+
+流媒体平台抵制ai创作就好
+

@@ -10725,3 +10725,23 @@ AA反轻甲海，问题不大</blockquote>
 麦河纪念披风！</blockquote>
 我怎么没有
 
+
+*****
+
+####  rainknine  
+##### 2494#       发表于 2024-4-3 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64474075&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-4-3 18:23</a>
+我怎么没有</blockquote>
+其实，我也没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可能是要发的披风太多，超级气球正在组织人连夜缝吧
+
+*****
+
+####  Aeons  
+##### 2495#       发表于 2024-4-3 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473976&amp;ptid=2170852" target="_blank">yahuchi 发表于 2024-4-3 18:13</a>
+箭头又在整活了，奖励个1是吧，建议转发给成都，那边缺这个</blockquote>
+这是到250上限了吧？
+

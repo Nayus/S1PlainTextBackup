@@ -2055,3 +2055,13 @@ IMG_1981.jpeg
 紫群那些人顺着这个开的</blockquote>
 那“盒学校”不过是顺着蜜柑提供的已知信息推理啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 14981#       发表于 2024-4-3 14:08
+
+谷歌地图评论有将近700个
+感觉像是那种乡下相当有牌面的神社啊
+难道到最后发现唯一草根出身的只有羊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

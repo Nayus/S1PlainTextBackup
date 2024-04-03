@@ -744,3 +744,39 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 保密协议确实没法说，我已经给三四家游戏大厂做过模型外包了……产量上升没我不知道，成本肯定是降低了 ...</blockquote>
 所以出现了两排牙齿啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 80#       发表于 2024-4-3 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476352&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-3 21:56</a>
+太暴论了，石油使用是什么速度，gpt在两年内把几千年积攒能爬的文字都爬光了开始变傻，消耗之快哪是石油 ...</blockquote>
+你举例声优不就是一个环境改变，跟着改变的例子，以前都是在幕后，现在不仅要配音，台面上的工作也一堆，现在火的一线哪个纯幕后，甚至各种2.5企划飞起，搞乐队搞偶像团，配音已经只是产业链里的一部分，你可以把声优换ai来配音，那缺的演唱会、签名周边、写真、广告代言、营业钓粉、人设炒作上哪补啊
+
+
+*****
+
+####  TNN  
+##### 81#       发表于 2024-4-3 22:10
+
+ 本帖最后由 TNN 于 2024-4-3 22:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476433&amp;ptid=2178385" target="_blank">月珊瑚与紫鸢尾 发表于 2024-4-3 22:07</a>
+
+你举例声优不就是一个环境改变，跟着改变的例子，以前都是在幕后，现在不仅要配音，台面上的工作也一堆， ...</blockquote>
+你这是看不起初音和vtuber么<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">偶像化本就是打感情牌，“人的未来和感性”你又看不上了
+
+*****
+
+####  riczxc  
+##### 82#       发表于 2024-4-3 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64470078&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-3 12:17</a>
+
+泥潭的聪明人们一遇到ai话题就开始和贴吧包打听一样说话象棋围棋是中低高一锅端靠着竞技属性苟住， ...</blockquote>
+大锅饭，或者说（底端文化产品的）数字共产主义。
+
+唱片业已经把最底端做演奏的音乐人淘汰了。现在不过再淘汰一部分。
+
+底端搞社会主义保底（例如公共交通），高端搞市场经济，不好么？
+

@@ -428,3 +428,14 @@ pve玩背包英雄，不过那个深度也不够
 
 双刃斧砍过了吧，现在锻造巨剑更强势一点吧？
 
+
+*****
+
+####  afer  
+##### 44#       发表于 2024-4-3 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64468115&amp;ptid=2148282" target="_blank">自賠ニャン 发表于 2024-4-3 09:40</a>
+
+卡池太浅了，嗯搜一个套路基本都能搜出来，无非快点慢点，没有随机应变的需要，这样肯定是功利上分套路占主 ...</blockquote>
+看段位吧，上了钻之后不变硬搜基本能把大分都赔进去，钻石之前都是脚打，起码套路得记2套
+

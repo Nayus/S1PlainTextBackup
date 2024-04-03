@@ -1469,3 +1469,13 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 什么时候把高vo力歌放出来才是真的</blockquote>
 怀疑没有高vo力的歌。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 3107#       发表于 2024-4-3 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476284&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-3 21:48</a>
+怀疑没有高vo力的歌。</blockquote>
+相信修音师
+

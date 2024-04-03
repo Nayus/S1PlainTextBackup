@@ -2950,3 +2950,14 @@ ign发了15分钟新视频【【4月3日】IGN《剑星》15分钟新场景试�
 
 不会就这武器和技能从头玩到尾吧...另外两个技能树大概率是枪械道具和大招...
 
+
+*****
+
+####  夜夜無夢  
+##### 687#       发表于 2024-4-4 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64472113&amp;ptid=1978008" target="_blank">MiteOra 发表于 2024-4-3 15:33</a>
+
+单纯那个锅盖头太丑了 如果能改发型就好了</blockquote>
+Demo的Boss挑戰瀏海不就變了嗎
+

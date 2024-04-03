@@ -347,3 +347,16 @@ new了剑式，还行了
 
 没有石头抽尼禄和水摩根了
 
+
+*****
+
+####  直钩  
+##### 46272#       发表于 2024-4-3 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64466400&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2024-4-3 01:03</a>
+
+狗蛋一宝，90++不追求满加成的话还有出场机会吗？
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 S1Next- ...</blockquote>
+没有
+

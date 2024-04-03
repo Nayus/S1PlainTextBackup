@@ -497,3 +497,14 @@ Shawn the R0ck 写道：2024年3月29日，一份关于在自由软件社区备�
 
 可怜的汉友，又要替波友/乌友/俄友背锅了
 
+
+*****
+
+####  gnihton314  
+##### 48#       发表于 2024-4-3 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64471285&amp;ptid=2177811" target="_blank">基本农田 发表于 2024-4-3 14:17</a>
+
+开源软件贡献者原来是可以当全职工作的吗</blockquote>
+很难，不过有些大公司和NGO会给开源软件开发者送一点钱，再就靠大家捐赠。
+

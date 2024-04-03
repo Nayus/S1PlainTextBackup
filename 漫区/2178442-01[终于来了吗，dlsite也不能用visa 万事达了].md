@@ -460,3 +460,11 @@ ci-en绑的visa卡信息还在
 
 幸好还有支付宝，我这里根本没有jcb可以办啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  550616  
+##### 51#       发表于 2024-4-4 05:58
+
+这种没办法，全备吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

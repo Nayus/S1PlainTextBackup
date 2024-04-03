@@ -13241,3 +13241,22 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 解锁暗夜难度后去哪刷极品装备？
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 2824#       发表于 2024-4-4 00:47
+
+到底是有多脑残的人才能设计出涩泽荣一这么弱智的道场战<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千秋难诉  
+##### 2825#       发表于 2024-4-4 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64477811&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-4-4 00:47</a>
+
+到底是有多脑残的人才能设计出涩泽荣一这么弱智的道场战</blockquote>
+涩泽光出来挨打
+

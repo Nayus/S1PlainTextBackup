@@ -887,3 +887,14 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 你说的对，但是💃飞八分钱干飞马，干的飞马笑哈哈💃
 但是💃你的钢门比较松弛，但是你的痔疮又弥补了这一部分💃
 
+
+*****
+
+####  Jobtownb  
+##### 92#       发表于 2024-4-4 02:43
+
+排队枪毙，一个一个来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不知道啥时候杀到我们行业……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

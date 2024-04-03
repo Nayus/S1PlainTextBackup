@@ -404,3 +404,14 @@ JCB至今Fanza甚至AppStore日区都能用的，问就是好
 
 2024-4-4 02:08 上传
 
+
+*****
+
+####  真蓝眼红Z  
+##### 45#       发表于 2024-4-4 02:36
+
+21年的时候办了visa 
+那今年换jcb呗
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

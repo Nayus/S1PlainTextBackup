@@ -10612,3 +10612,35 @@ Explosive weapon stats include only direct hit damage but not explosive damage.
 
 然后队友还贼喜欢往脚下扔120来打泰坦，一个人至少死了10次
 
+
+*****
+
+####  Launce  
+##### 2486#       发表于 2024-4-3 11:11
+
+<img src="https://img.saraba1st.com/forum/202404/03/111123itwxqnobczzvnx3q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202404/03/111126xc7r16mnnnonvbvr.png" referrerpolicy="no-referrer">
+
+<strong>4SV01C@Z4I5VJN30F2AP}S4.png</strong> (27.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202404/03/111130vm9xyxbyir4i9r4u.png" referrerpolicy="no-referrer">
+
+<strong>R4[6J11JLT`RFP9T5Z%P[3E.png</strong> (42.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 11:11 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草
+

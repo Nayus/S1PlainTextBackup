@@ -2324,3 +2324,13 @@ IMG_2015.jpeg
 
 [https://twitter.com/a4xieial/status/1775210046093496541](https://twitter.com/a4xieial/status/1775210046093496541)
 
+
+*****
+
+####  爱丁堡official  
+##### 15004#       发表于 2024-4-4 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

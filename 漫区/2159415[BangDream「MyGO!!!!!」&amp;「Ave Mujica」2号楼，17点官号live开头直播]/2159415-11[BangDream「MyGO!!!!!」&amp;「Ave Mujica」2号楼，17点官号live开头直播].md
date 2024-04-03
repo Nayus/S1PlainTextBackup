@@ -2216,3 +2216,34 @@ BCI是低音单簧管？你邦第一个会吹奏的？
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">出场都没有连是不是人都不知道
 
+
+*****
+
+####  Nomind96  
+##### 14994#       发表于 2024-4-3 21:15
+
+全日空还给这个神社宣传过
+
+IMG_2015.jpeg
+(316.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 21:14 上传
+
+<img src="https://img.saraba1st.com/forum/202404/03/211451dg22vug37ggpbu22.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 14995#       发表于 2024-4-3 21:15
+
+全日空还给这个神社宣传过
+
+*****
+
+####  PDQ4  
+##### 14996#       发表于 2024-4-3 21:18
+
+我的访谈呢，怎么鸡访谈也喜欢憋<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

@@ -1377,3 +1377,52 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 最新的妹妹是有什么特点吗，没看得太懂</blockquote>
 目前几人里最王道系的（？）。直言没有才能但会努力。胆子小。父亲日本人母亲瑞典人。和清夏是亲友。
 
+
+*****
+
+####  rgauss  
+##### 3097#       发表于 2024-4-3 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475892&amp;ptid=2130897" target="_blank">格雷殿下 发表于 2024-4-3 21:09</a>
+最新的妹妹是有什么特点吗，没看得太懂</blockquote>
+叫我前辈
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 3098#       发表于 2024-4-3 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475892&amp;ptid=2130897" target="_blank">格雷殿下 发表于 2024-4-3 21:09</a>
+最新的妹妹是有什么特点吗，没看得太懂</blockquote>
+好像还喜欢看萝卜动画片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 3099#       发表于 2024-4-3 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475730&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-3 20:54</a>
+麻辣仙人不会真打过来吧，那种事情不要啊
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 ...</blockquote>
+ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 3100#       发表于 2024-4-3 21:24
+
+他们这点儿毒抗哪受得了代孙整活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 3101#       发表于 2024-4-3 21:25
+
+贴吧里关于ml的贴吧基本都是钓鱼居多
+

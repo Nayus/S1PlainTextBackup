@@ -632,3 +632,33 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 那屎尿屁歌词你唱不唱？不&amp;#x5 ...</blockquote>
 飞八分钱 你的**比较松弛 这些歌，音乐家和歌手弄不出来 跟别提什么阿拉伯风摇滚粉
 
+
+*****
+
+####  TNN  
+##### 69#       发表于 2024-4-3 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475172&amp;ptid=2178385" target="_blank">月珊瑚与紫鸢尾 发表于 2024-4-3 20:02</a>
+
+现在市面上ai就是没有那种能力啊，算盘变成计算机再变成超算电脑，算不算生产力突破性的变革？但也没见谁 ...</blockquote>
+那泥潭劳保岂不成了一群脑子只能想到俗套三流剧情的阿斗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不然早就把国外漫画店的脆皮鸭漫画给斩于马下了。光母和他漫画作画又不是科学家级别，拿着电脑干不过拿着算盘的光母和小画师很难评
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 70#       发表于 2024-4-3 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475953&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-3 21:15</a>
+那泥潭劳保岂不成了一群脑子只能想到俗套三流剧情的阿斗不然早就把国外漫画店的脆皮鸭漫画给斩于 ...</blockquote>
+因为大部分人真的没有搞脆皮鸭的需求，也不指望当画师赚钱，但搞色图的需求真的多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TNN  
+##### 71#       发表于 2024-4-3 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475621&amp;ptid=2178385" target="_blank">kidosper 发表于 2024-4-3 20:44</a>
+
+饭碗被抢了就是这样跳脚</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">真就人均无视生成式ai不可持续性，不考虑人类数据枯竭后ai跟着停滞的问题吗
+

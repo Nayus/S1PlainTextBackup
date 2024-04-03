@@ -1192,3 +1192,28 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 —— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 违背了莲学院的传统
 
+
+*****
+
+####  rgauss  
+##### 3077#       发表于 2024-4-3 18:19
+
+跟紫月同期啊..
+
+
+*****
+
+####  rgauss  
+##### 3078#       发表于 2024-4-3 18:24
+
+喜欢大机器人
+是真实系还是精神系
+
+*****
+
+####  花开安菲路  
+##### 3079#       发表于 2024-4-3 18:26
+
+这些声优本来就是冲着偶像企划去的，隔壁没选上打个酱油挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+比如前面有人提到鸭鸭，鸭鸭可是百万灰灰sc三家都试音过的，像她这种估计是普遍现象，估计隔壁几家企划也去试过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

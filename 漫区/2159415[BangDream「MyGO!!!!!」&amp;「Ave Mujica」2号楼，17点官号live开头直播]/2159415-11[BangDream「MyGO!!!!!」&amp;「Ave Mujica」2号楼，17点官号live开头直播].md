@@ -2128,3 +2128,13 @@ IMG_1981.jpeg
 
 蜜柑的高中有调理科，说过擅长的家乡料理地域性很强，有人根据这两点在千叶县房总半岛范围内一搜就出来了
 
+
+*****
+
+####  基神的强袭自由  
+##### 14987#       发表于 2024-4-3 18:24
+
+然后从Z群发到NGA再发到Z8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -425,3 +425,14 @@ nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝
 
 b服安卓和iOS不是互通了吗？
 
+
+*****
+
+####  imlyc4  
+##### 46280#       发表于 2024-4-4 03:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64477951&amp;ptid=1712412" target="_blank">double8 发表于 2024-4-4 01:16</a>
+
+nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝还是连着五张…… ...</blockquote>
+跑过去看了一眼，大受震撼
+

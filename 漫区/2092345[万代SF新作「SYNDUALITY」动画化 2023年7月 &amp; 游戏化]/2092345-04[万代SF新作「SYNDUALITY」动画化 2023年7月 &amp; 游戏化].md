@@ -1693,3 +1693,15 @@ https://dengekionline.com/articles/215678/
 
 网易有双人版本的YOUR SONG了
 
+
+*****
+
+####  charlespfan  
+##### 4574#       发表于 2024-4-4 03:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64477974&amp;ptid=2092345" target="_blank">novyMS 发表于 2024-4-4 01:20</a>
+网易有双人版本的YOUR SONG了</blockquote>
+再探再报，有青山渚单人版了再说，古贺葵唱得真是……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -383,3 +383,13 @@ new了剑式，还行了
 —— 来自 Xiaomi M2007J1SC,  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你是安卓还是ios啊
 
+
+*****
+
+####  苍蓝之枪  
+##### 46275#       发表于 2024-4-3 19:11
+
+就看兽尼禄这次要吃掉多少石头了，希望是不要过400
+
+如果100内出就提前抽提妈
+

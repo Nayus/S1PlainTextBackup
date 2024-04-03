@@ -10679,3 +10679,15 @@ Explosive weapon stats include only direct hit damage but not explosive damage.
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AA反轻甲海，问题不大
 
+
+*****
+
+####  风萧飒  
+##### 2490#       发表于 2024-4-3 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64471424&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-3 14:33</a>
+AA反轻甲海，问题不大</blockquote>
+占背包位还只能呼叫三次，我不太好说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

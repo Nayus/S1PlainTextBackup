@@ -2899,3 +2899,14 @@ ign发了15分钟新视频【【4月3日】IGN《剑星》15分钟新场景试�
 ign发了15分钟新视频【【4月3日】IGN《剑星》15分钟新场景试玩中文字幕版-哔哩哔哩】 https://b23.tv/7LJKU ...</blockquote>
 完美闪避加bu槽能量，看起来应该是强化技能和r1键位的新技能需要。
 
+
+*****
+
+####  ky7913  
+##### 682#       发表于 2024-4-3 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64470467&amp;ptid=1978008" target="_blank">iceblue 发表于 2024-4-3 12:54</a>
+
+完美闪避加bu槽能量，看起来应该是强化技能和r1键位的新技能需要。</blockquote>
+红刀（贝塔连锁）也增加bu，暂时知道的是二级反击和强化版贝塔技能需要消耗bu都是三格。这个双资源系统的设计很好，完美闪躲和完美格挡现在都有收益，主动一点还能利用红刀把be转化为bu，高级技能的消耗又不用一起抢be
+

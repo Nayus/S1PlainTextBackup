@@ -127,3 +127,13 @@ HIGHSPEED Étoile/极速星舞 将于4月5日正式播出
 
 届时本账号将会同步更新（中国时间4月6日凌晨1点30分）
 
+
+*****
+
+####  6030sylar  
+##### 125#       发表于 2024-4-3 08:52
+
+扣排气管？
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

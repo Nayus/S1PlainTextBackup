@@ -521,3 +521,13 @@ q娃，很神奇吧
 
 12话小雪变身，终于要来了，op藏了，正片不会也搞藏身份吧
 
+
+*****
+
+####  最强惠酱  
+##### 1274#       发表于 2024-4-3 08:54
+
+除了莫名其妙的拥抱其余都挺有意思的，特别猫组回的情绪表达看得出来特别用心，下一集感觉会看哭，受不了这种<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

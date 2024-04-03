@@ -186,3 +186,11 @@ CPU温度还好，手心温度高，低温烫伤预定。</blockquote>
 
 <img src="https://imgur.ihainan.me/Ti7cb84.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霖岚_  
+##### 1157#       发表于 2024-4-3 08:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">闲鱼收了个7460的gpd win mini ，这玩意出厂居然啥驱动没有等客户自己装的吗
+

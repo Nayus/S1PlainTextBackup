@@ -1024,3 +1024,11 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 已经有两个华子了，真要有华子偶像感觉就会很刻板印象
 
+
+*****
+
+####  sliver1997  
+##### 3060#       发表于 2024-4-3 16:17
+
+可以给美琴补个设定，爹是华子，这样岂不是天选半步华子偶像
+

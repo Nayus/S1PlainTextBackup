@@ -12993,3 +12993,15 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 看到好多喷二周目暗夜难度高的，意思是二周目不能选难度了强制只能暗夜难度了吗
 
+
+*****
+
+####  山风短  
+##### 2800#       发表于 2024-4-3 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64470779&amp;ptid=2092342" target="_blank">阿尔泰尔 发表于 2024-4-3 13:25</a>
+看到好多喷二周目暗夜难度高的，意思是二周目不能选难度了强制只能暗夜难度了吗 ...</blockquote>
+喷点是据点高手变成boss，碰到斋藤一或者相乐总三这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打是能打的，就是免不了要嗑一堆药，打起来恶心
+

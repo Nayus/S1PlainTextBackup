@@ -1964,3 +1964,14 @@ Mujica应该是先找人然后角色照着中之人写
 说到鼓手，当年拉有利息的时候没把没出名的古贺葵拉来可惜了，没准能多组一队真人 ...</blockquote>
 古贺葵还是鼓手？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 14973#       发表于 2024-4-3 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64468208&amp;ptid=2159415" target="_blank">makece 发表于 2024-4-3 09:48</a>
+
+古贺葵还是鼓手？</blockquote>
+天使的3p吧
+

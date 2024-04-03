@@ -1442,3 +1442,19 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 配上伯爵的满破图但语音消沉整个link bad的尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 11967#       发表于 2024-4-3 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看帖子 不是还加了一句语音么 这什么待遇啊
+
+<img src="https://img.saraba1st.com/forum/202404/03/201711m4v51e4fe1w4d1r4.jpg" referrerpolicy="no-referrer">
+
+<strong>565a828175ddf51ee743338a351632a2_f0Q19c-c6dsZbT3cSj0-sg.jpg.medium.jpg</strong> (96.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 20:17 上传
+

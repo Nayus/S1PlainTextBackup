@@ -1434,3 +1434,11 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 黑贞：岩窟王你有本事抢御主你有本事开门啊！
 
+
+*****
+
+####  cenhr  
+##### 11966#       发表于 2024-4-3 20:12
+
+配上伯爵的满破图但语音消沉整个link bad的尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

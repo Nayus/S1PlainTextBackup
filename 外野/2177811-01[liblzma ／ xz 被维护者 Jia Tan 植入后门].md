@@ -516,3 +516,15 @@ Shawn the R0ck 写道：2024年3月29日，一份关于在自由软件社区备�
 
 5.6.1 版本的都会影响吗 还是只影响 linux那几个特定的发行版  我用的MSYS2 里 就是 5.6.1  
 
+
+*****
+
+####  heyeshuang  
+##### 50#       发表于 2024-4-3 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473866&amp;ptid=2177811" target="_blank">michaelz 发表于 2024-4-3 18:02</a>
+5.6.1 版本的都会影响吗 还是只影响 linux那几个特定的发行版  我用的MSYS2 里 就是 5.6.1   ...</blockquote>
+不要紧张，Windows没有systemd
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

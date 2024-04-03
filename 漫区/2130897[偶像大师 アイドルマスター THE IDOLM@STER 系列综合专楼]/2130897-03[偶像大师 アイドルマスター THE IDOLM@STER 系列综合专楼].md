@@ -1141,3 +1141,54 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rgauss  
+##### 3071#       发表于 2024-4-3 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473686&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-3 17:43</a>
+目前学马仕里看到的相对最喜欢的舞台服</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大版方形ip与初音联动舞台
+
+*****
+
+####  rgauss  
+##### 3072#       发表于 2024-4-3 18:06
+
+我想起来了
+
+*****
+
+####  rgauss  
+##### 3073#       发表于 2024-4-3 18:07
+
+怎么感觉王道系啊...
+
+*****
+
+####  RhmBWT_Wu  
+##### 3074#       发表于 2024-4-3 18:08
+
+这次配的龙套终于不是ll了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Seeley  
+##### 3075#       发表于 2024-4-3 18:09
+
+该想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3076#       发表于 2024-4-3 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473922&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-3 18:08</a>
+这次配的龙套终于不是ll了
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+违背了莲学院的传统
+

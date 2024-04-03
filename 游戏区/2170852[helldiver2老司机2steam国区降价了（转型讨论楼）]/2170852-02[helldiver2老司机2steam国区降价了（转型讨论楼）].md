@@ -10691,3 +10691,26 @@ AA反轻甲海，问题不大</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rainknine  
+##### 2491#       发表于 2024-4-3 18:10
+
+麦河纪念披风！<img src="https://p.sda1.dev/16/eadf12e02fde0531183e36d6a7ea0a9b/CMP_20240403181218249.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yahuchi  
+##### 2492#       发表于 2024-4-3 18:13
+
+<img src="https://img.saraba1st.com/forum/202404/03/181312wshgfewjpcuuwx1z.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (196.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 18:13 上传
+
+箭头又在整活了，奖励个1是吧，建议转发给成都，那边缺这个
+

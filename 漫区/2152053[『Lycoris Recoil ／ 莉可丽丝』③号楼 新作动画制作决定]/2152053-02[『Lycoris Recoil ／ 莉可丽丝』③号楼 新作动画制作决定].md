@@ -182,3 +182,13 @@
 
 2024-4-4 00:45 上传
 
+
+*****
+
+####  蒜灵  
+##### 1774#       发表于 2024-4-4 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475369&amp;ptid=2152053" target="_blank">yenvy 发表于 2024-4-3 20:20</a>
+https://twitter.com/hanaya_102/status/1775327676758368384</blockquote>
+感觉实物没有画得美
+

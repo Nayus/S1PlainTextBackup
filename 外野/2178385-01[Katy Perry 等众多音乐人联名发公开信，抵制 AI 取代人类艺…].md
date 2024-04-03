@@ -780,3 +780,21 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 
 底端搞社会主义保底（例如公共交通），高端搞市场经济，不好么？
 
+
+*****
+
+####  立本核污水  
+##### 83#       发表于 2024-4-3 22:18
+
+只能说天生歌姬孙燕姿能被AI开发者情有独钟不是没有远古的
+
+*****
+
+####  TNN  
+##### 84#       发表于 2024-4-3 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476482&amp;ptid=2178385" target="_blank">riczxc 发表于 2024-4-3 22:13</a>
+
+大锅饭，或者说（底端文化&amp;# ...</blockquote>
+大锅饭接下来可是大吃饱呃<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

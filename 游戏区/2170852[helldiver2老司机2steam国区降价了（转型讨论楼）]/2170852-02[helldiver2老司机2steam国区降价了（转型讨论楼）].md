@@ -10792,3 +10792,11 @@ AA反轻甲海，问题不大</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bug真是越做越多啊，现在战斗中加入队伍虽然能看任务详情了，但是两页来回切两下队友信息就直接消失了
 
+
+*****
+
+####  smdzh2  
+##### 2501#       发表于 2024-4-3 22:26
+
+开始享受欺负哑铃人的乐趣了（难7以下限定）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -2044,3 +2044,14 @@ IMG_1981.jpeg
 
 高家神社，还好算是一般的神社
 
+
+*****
+
+####  ddy2811  
+##### 14980#       发表于 2024-4-3 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64470498&amp;ptid=2159415" target="_blank">Nomind96 发表于 2024-4-3 12:58</a>
+
+紫群那些人顺着这个开的</blockquote>
+那“盒学校”不过是顺着蜜柑提供的已知信息推理啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

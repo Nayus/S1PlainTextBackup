@@ -137,3 +137,11 @@ HIGHSPEED Étoile/极速星舞 将于4月5日正式播出
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ViviR  
+##### 126#       发表于 2024-4-3 13:51
+
+官方放片好评。顺便对这番的期待就是在赛车题材的基础上充分利用好3D的优势了。
+

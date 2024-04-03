@@ -455,3 +455,13 @@ ai不用全查出来，能滤一部分都是好的
 
 问题是这个ai谁来出……这世界上有信得过的么
 
+
+*****
+
+####  tonyunreal  
+##### 43#       发表于 2024-4-3 13:45
+
+<img src="https://p.sda1.dev/16/9d168e8fff03f2dd5c5ee5be08f5d554/ossattack.jpg" referrerpolicy="no-referrer">
+
+红迪Linux婆罗门做的屌图，汉化了一下
+

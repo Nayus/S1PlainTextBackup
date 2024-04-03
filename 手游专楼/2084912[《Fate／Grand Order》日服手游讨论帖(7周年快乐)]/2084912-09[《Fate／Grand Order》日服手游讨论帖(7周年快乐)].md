@@ -1360,3 +1360,18 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 进不去的关了游戏再进的时候清下缓存
 
+
+*****
+
+####  qixinno2  
+##### 11958#       发表于 2024-4-3 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新伯爵太乐了 昨天更新没抓进去 今天整了个单独待遇
+
+*****
+
+####  الطائر  
+##### 11959#       发表于 2024-4-3 17:46
+
+赶紧看一眼图鉴，LINK BAD <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

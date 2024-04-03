@@ -2115,3 +2115,16 @@ IMG_1981.jpeg
 
 2024-4-3 17:05 上传
 
+
+*****
+
+####  ddy2811  
+##### 14986#       发表于 2024-4-3 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473276&amp;ptid=2159415" target="_blank">喧嚣的风酱 发表于 2024-4-3 17:09</a>
+
+最近是什么开盒潮吗？怎么蜜柑也被开出来了</blockquote>
+透露的信息一多很容易就搜到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+蜜柑的高中有调理科，说过擅长的家乡料理地域性很强，有人根据这两点在千叶县房总半岛范围内一搜就出来了
+

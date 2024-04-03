@@ -152,3 +152,19 @@
 
 2024-4-3 20:19 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 1772#         楼主| 发表于 2024-4-3 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64460073&amp;ptid=2152053" target="_blank">Piano-Forest 发表于 2024-4-2 16:03</a>
+
+せっかく朝早くから桜を見に行ったのに、
+
+提案者の千束は寝ちゃってました……。</blockquote>
+[https://twitter.com/satoutubo6/status/1775469845657878924](https://twitter.com/satoutubo6/status/1775469845657878924)
+
+こちら原画担当させていただきました🌸何卒よろしくお願い致します🍡
+<img src="https://p.sda1.dev/16/3e2afc35a810a5d7f530174ac77ca08e/20240403_225051.jpg" referrerpolicy="no-referrer">
+

@@ -1479,3 +1479,13 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 怀疑没有高vo力的歌。</blockquote>
 相信修音师
 
+
+*****
+
+####  Anatoly  
+##### 3108#       发表于 2024-4-3 22:48
+
+声优不是一条线的吧，imas毕竟也不需要懂啥乐器一直是从大事务所薅的，这代虽然都没啥工作基本事务所也都是老熟人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1334,3 +1334,46 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ViviR  
+##### 3092#       发表于 2024-4-3 21:05
+
+ 本帖最后由 ViviR 于 2024-4-3 21:09 编辑 
+
+就偶像大师这个IP在大陆的热度还真没啥好担心的。不如担心一下学马仕手游开服后出现诸如垃圾优化，内容贫乏之类的导致大规模退坑的问题。
+
+*****
+
+####  Alicest  
+##### 3093#       发表于 2024-4-3 21:07
+
+上周在上海各大二次元店逛了一圈，爱马仕的周边只有联动咖啡厅和迪美一家中古店有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 3094#       发表于 2024-4-3 21:09
+
+最新的妹妹是有什么特点吗，没看得太懂
+
+*****
+
+####  Seeley  
+##### 3095#       发表于 2024-4-3 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ViviR  
+##### 3096#       发表于 2024-4-3 21:12
+
+<blockquote>格雷殿下 发表于 2024-4-3 21:09
+最新的妹妹是有什么特点吗，没看得太懂</blockquote>
+目前几人里最王道系的（？）。直言没有才能但会努力。胆子小。父亲日本人母亲瑞典人。和清夏是亲友。
+

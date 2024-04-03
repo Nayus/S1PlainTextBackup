@@ -9172,3 +9172,24 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 另外melon说了会和namon开一个喷喷考察**频道spix，可以订起来了
 
+
+*****
+
+####  星野航  
+##### 3893#       发表于 2024-4-3 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475011&amp;ptid=2150634" target="_blank">raii 发表于 2024-4-3 20:48</a>
+
+另外melon说了会和namon开一个喷喷考察**频道spix，可以订起来了</blockquote>
+这河蟹的是啥啊ww
+
+*****
+
+####  星野航  
+##### 3894#       发表于 2024-4-3 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64474948&amp;ptid=2150634" target="_blank">raii 发表于 2024-4-3 20:43</a>
+
+任天堂の問い合わせフォームに殺害を予告する旨のメッセージを送り付けたとして、京都府警捜査１課が３日、 ...</blockquote>
+这么快就逮捕了，难怪甲子园回归了，解决危机了
+

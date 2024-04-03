@@ -528,3 +528,33 @@ ai最怕的就是大公司垄断吧<img src="https://static.saraba1st.com/image/
 于是一年多了有哪个小画家辅助生成ai薄纱大手子了吗</blockquote>
 没有，但真的淘汰了很多岗位，比如ui设计
 
+
+*****
+
+####  nukacolamania  
+##### 60#       发表于 2024-4-3 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473483&amp;ptid=2178385" target="_blank">一座恐怖屋 发表于 2024-4-3 17:23</a>
+
+刚看了水果姐说：我知道你们就是要看我的柰子</blockquote>
+“不，我只想跟你的双眼深情对视”<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/03/193322cn1du46382m22192.gif" referrerpolicy="no-referrer">
+
+<strong>HhxFG-.gif</strong> (338.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 19:33 上传
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 61#       发表于 2024-4-3 19:36
+
+ 本帖最后由 月珊瑚与紫鸢尾 于 2024-4-3 19:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64474167&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-3 18:31</a>
+没要求大部头，哪怕小短篇小条漫，甚至小四格和meme有产量的提升吗泥潭反复举例只有八股报告和牛皮 ...</blockquote>
+说白了ai没有所谓的审美，最后做决定的还是人。
+它只是输出尽可能符合你要求的内容，很多人离“眼高手低”都差一堆呢，ai直接给个复制大师原图和随便p磨皮大奶网红脸，有些人就是会选后者，那有什么办法，更别说提出明确的需求了
+

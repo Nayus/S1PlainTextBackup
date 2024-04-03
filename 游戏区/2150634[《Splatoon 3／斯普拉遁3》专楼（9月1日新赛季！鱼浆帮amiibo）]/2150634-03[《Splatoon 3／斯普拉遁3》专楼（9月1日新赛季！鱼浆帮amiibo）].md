@@ -9114,3 +9114,37 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 说起来世锦赛看起来有好多支队（看赛制起码有8支），日本这边只能出一个吗？我看美国出了一个德国出一个 ...</blockquote>
 6队 美 欧 澳 韩 日 港or湾
 
+
+*****
+
+####  罗克萨斯  
+##### 3890#       发表于 2024-4-3 19:28
+
+又被打得想退坑了，痛苦，难道场均20杀才配赢吗？上分全看抽奖的游戏，我为何要玩到现在啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/03/192845yjj7seojo3ktskaj.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040319214600-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (224.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202404/03/192845q4mccbmixcvc9wzx.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040319214900-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (230.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202404/03/192845ej13np61936ufrf1.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040319215100-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (238.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 19:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

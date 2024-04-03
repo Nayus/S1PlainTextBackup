@@ -1953,3 +1953,14 @@ Mujica应该是先找人然后角色照着中之人写
 
 —— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  makece  
+##### 14972#       发表于 2024-4-3 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64460680&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-4-2 16:46</a>
+
+说到鼓手，当年拉有利息的时候没把没出名的古贺葵拉来可惜了，没准能多组一队真人 ...</blockquote>
+古贺葵还是鼓手？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

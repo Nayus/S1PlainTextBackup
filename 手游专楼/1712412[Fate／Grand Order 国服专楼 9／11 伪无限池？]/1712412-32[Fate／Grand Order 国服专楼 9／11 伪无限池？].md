@@ -409,3 +409,11 @@ new了剑式，还行了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">是不是有更新了什么东西,我怎么感觉突然画面变的很高清很干净了
 
+
+*****
+
+####  double8  
+##### 46278#       发表于 2024-4-4 01:16
+
+nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝还是连着五张……
+

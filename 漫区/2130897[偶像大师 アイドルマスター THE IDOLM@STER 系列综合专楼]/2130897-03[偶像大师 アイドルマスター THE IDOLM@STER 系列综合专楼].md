@@ -1123,3 +1123,21 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 别塞华子了，多一事不如少一事
 
+
+*****
+
+####  Anatoly  
+##### 3070#       发表于 2024-4-3 18:05
+
+<img src="https://img.saraba1st.com/forum/202404/03/180513zej9jj71ed9a75kz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240403_180503.jpg</strong> (74.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 18:05 上传
+
+至今都是新人吧，又一个没接过有名字的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

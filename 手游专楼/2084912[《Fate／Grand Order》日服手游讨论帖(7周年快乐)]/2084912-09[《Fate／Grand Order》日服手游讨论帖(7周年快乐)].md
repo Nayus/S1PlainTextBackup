@@ -1397,3 +1397,14 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 欧 羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新早出了甚至还有新四星 羡慕个屁
 
+
+*****
+
+####  alucardcz  
+##### 11962#       发表于 2024-4-3 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473776&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-3 17:51</a>
+
+狗萌新早出了甚至还有新四星 羡慕个屁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是 欧
+

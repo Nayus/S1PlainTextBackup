@@ -194,3 +194,14 @@ CPU温度还好，手心温度高，低温烫伤预定。</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">闲鱼收了个7460的gpd win mini ，这玩意出厂居然啥驱动没有等客户自己装的吗
 
+
+*****
+
+####  Ichihatsu  
+##### 1158#       发表于 2024-4-3 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64467458&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2024-4-3 08:47</a>
+
+闲鱼收了个7460的gpd win mini ，这玩意出厂居然啥驱动没有等客户自己装的吗 ...</blockquote>
+卖家自己重装了吧，出厂连steam都装了
+

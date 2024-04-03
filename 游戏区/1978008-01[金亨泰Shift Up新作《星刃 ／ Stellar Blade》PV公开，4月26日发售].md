@@ -2823,3 +2823,25 @@ BOSS挑战部分应该是较后期的角色强度了，虽然还有两页没解�
 
 才知道完美闪躲之后短按△可以不消耗能量突进……
 
+
+*****
+
+####  Piano-Forest  
+##### 676#         楼主| 发表于 2024-4-3 10:07
+
+NEW PROJECT
+[https://shiftup.co.kr/](https://shiftup.co.kr/)
+<img src="https://p.sda1.dev/16/093ae1efac892a87fd4f4f71b75b9c25/20240403_100550.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 677#       发表于 2024-4-3 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64468446&amp;ptid=1978008" target="_blank">Piano-Forest 发表于 2024-4-3 10:07</a>
+NEW PROJECT
+
+https://shiftup.co.kr/</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">原来韩国官网上logo里的星刃字样还在啊
+

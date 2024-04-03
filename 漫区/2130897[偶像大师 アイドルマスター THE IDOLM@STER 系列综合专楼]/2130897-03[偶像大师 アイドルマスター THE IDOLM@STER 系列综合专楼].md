@@ -1032,3 +1032,14 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 可以给美琴补个设定，爹是华子，这样岂不是天选半步华子偶像
 
+
+*****
+
+####  rgauss  
+##### 3061#       发表于 2024-4-3 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64472493&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-3 16:05</a>
+等下，按照万代这凡事慢别人几年的节奏，它该不会在学马仕里出华子吧？</blockquote>
+没地方塞了吧 剩下两个再怎么看都不是华子
+除非给对手塞个华子
+

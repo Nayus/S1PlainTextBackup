@@ -451,3 +451,23 @@ ai绘画都污染p站图库了泥潭人怎么还吹
 
 什么利好新人，明明利好二代
 
+
+*****
+
+####  shikiki  
+##### 52#       发表于 2024-4-3 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64472145&amp;ptid=2178385" target="_blank">jojog 发表于 2024-4-3 15:36</a>
+求几个链接？</blockquote>
+直接搜就有很多，排除那些营销号的，有的看完之后自己也一下子思路开阔了，不光光是让ai 随机抽卡或者给他几个pose 画，是那种你第一次看别人在用ps 的那种神奇感，就完全是一种工具了……用的好不好还是看用的人，而且会把会用的和不会用差距拉的更大。
+
+
+*****
+
+####  shikiki  
+##### 53#       发表于 2024-4-3 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64472795&amp;ptid=2178385" target="_blank">shikiki 发表于 2024-4-3 16:31</a>
+直接搜就有很多，排除那些营销号的，有的看完之后自己也一下子思路开阔了，不光光是让ai 随机抽卡或者给 ...</blockquote>
+现在其实就是21世纪初各种创作从纸面变到数字的过程，就好比一个画家在纸上要画出一种朦胧的感觉，现在直接一个ps 动一动就实现了，那时候不就在争用电脑画的没有灵魂，调色的门槛也一下子拉低了，记得有段时间数码绘特别流行厚图，说白了就是油画，只不过不是所有人都用得起油画颜料，还是那种入门的。
+

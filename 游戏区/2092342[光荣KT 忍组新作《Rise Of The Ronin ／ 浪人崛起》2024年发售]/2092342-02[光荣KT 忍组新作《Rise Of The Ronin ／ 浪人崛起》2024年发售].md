@@ -13105,3 +13105,30 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 本来这年头吧，快节奏动作游戏还要卡精力条的，除了忍组这种脑瘫也不知道还有谁了，包括ffo那个Break槽，灵魂防御都耗精，只能确保你不崩防，真的顶级设计。
 
+
+*****
+
+####  zqqwe  
+##### 2810#       发表于 2024-4-3 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64472118&amp;ptid=2092342" target="_blank">培根芝士蛋堡XD 发表于 2024-4-3 15:33</a>
+其实喷了半天真不是因为难度喷的，至少我不是因为打不过才喷，这游戏这么多药、纸和轮椅手段，说实话最高难 ...</blockquote>
+敌人发动攻击不扣精力只是停止回复，这设计也比仁王倒退，属于演都不演了。5hit以上的长连段只能用宝藏院的防反强行打断化粪直到对面出红光。
+泽村的风路择也很恶心，飞燕/回刃/红光三种变招，飞燕只能提前石火但如果出后两者就会吃到，现在只能死防等落地<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">天水影和闪华那频率要求全部石火更是重量级
+
+
+*****
+
+####  Z1yu  
+##### 2811#       发表于 2024-4-3 16:34
+
+闪避是可以玩得，前提是牛尾刀，军刀，双刀，还有北辰一刀流的薙刀。这些属于轻武器，闪避是滑步不会翻滚。
+
+为什么都在说石火难，暗夜和夜晚难度感觉没什么变化。削成普通难度那有点过分了吧，夜晚难度的石火也不难按啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+后期打得好不好看，全靠武技如何穿插，绝大部分武技都很有用且好用。
+c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有几个机会按完？仁王也只有轻重和重轻派生，长c技完全没必要，没做进来才是对的。
+
+目前最大的问题就是回精手段不够多，闪刃回得太少，且闪刃动作多余，烈风过于鸡肋。
+二周目已通关，其他都在我个人的接受范围内，包括快慢刀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+

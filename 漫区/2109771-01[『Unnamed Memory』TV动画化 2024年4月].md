@@ -594,3 +594,29 @@ PV2：[https://youtu.be/jKNscVwATwI](https://youtu.be/jKNscVwATwI)
 
 据说这部是24集分割？
 
+
+*****
+
+####  星火龙  
+##### 51#       发表于 2024-4-3 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64245770&amp;ptid=2109771" target="_blank">Piano-Forest 发表于 2024-3-13 23:07</a>
+
+PV2：https://youtu.be/jKNscVwATwI
+
+2024年4月9日(火)より放送・配信開始</blockquote>
+B站似乎要上了～
+
+《无名记忆》 先导PV
+[https://b23.tv/ep818684](https://b23.tv/ep818684)
+
+*****
+
+####  星火龙  
+##### 52#       发表于 2024-4-3 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64464116&amp;ptid=2109771" target="_blank">xvi黑翼公 发表于 2024-4-2 21:33</a>
+
+快开播了，我先给动画观众打个预防针，估计动画只做第一部，看着喜欢的慎重考虑要不要往下看原作后续[f:067 ...</blockquote>
+听说还有很多前传和后日谈，但不知道在哪里看……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

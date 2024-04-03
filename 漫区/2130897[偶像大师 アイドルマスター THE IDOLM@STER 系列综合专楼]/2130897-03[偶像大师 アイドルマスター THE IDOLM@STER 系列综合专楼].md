@@ -1323,3 +1323,14 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 诗花也是 82-53-80 158/43<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3091#       发表于 2024-4-3 20:54
+
+<img src="https://p.sda1.dev/16/003e4e659f23a76cd38ac1eecb23e171/CMP_20240403205410697.jpg" referrerpolicy="no-referrer">
+麻辣仙人不会真打过来吧，那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2065,3 +2065,11 @@ IMG_1981.jpeg
 感觉像是那种乡下相当有牌面的神社啊
 难道到最后发现唯一草根出身的只有羊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  間桐櫻  
+##### 14982#       发表于 2024-4-3 15:25
+
+草根出身的反而最打牌嗎
+

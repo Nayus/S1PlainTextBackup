@@ -906,3 +906,13 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 
 打不过就加入它啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 94#       发表于 2024-4-4 03:05
+
+AI可无法自己与自己炼丹，只会炼成雅达利大崩溃
+
+现在的问题是当下缺乏产业革命与能源革命，同时AI要是把三产都给饿死了那可就太幽默
+

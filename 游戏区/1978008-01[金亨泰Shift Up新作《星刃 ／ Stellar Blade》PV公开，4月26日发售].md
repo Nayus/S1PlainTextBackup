@@ -2845,3 +2845,39 @@ NEW PROJECT
 https://shiftup.co.kr/</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">原来韩国官网上logo里的星刃字样还在啊
 
+
+*****
+
+####  faithlifer  
+##### 678#       发表于 2024-4-3 11:03
+
+因为这游戏试玩我去玩了他家的手游<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑修士  
+##### 679#       发表于 2024-4-3 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64452312&amp;ptid=1978008" target="_blank">Shabadadoo 发表于 2024-4-1 21:36</a>
+
+这个女主的脸到底长什么样，怎么感觉封面播片实机每一张脸都不像同一个人 ...</blockquote>
+没感觉太大差异，目前印象最深的是启动界面这张，带点楚楚可怜的感觉
+
+<img src="https://img.saraba1st.com/forum/202404/03/110528xf33v80rjjtrieoq.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (479.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 11:05 上传
+
+比起来还是更喜欢队长的颜值
+
+<img src="https://img.saraba1st.com/forum/202404/03/110528zj5t1hfff9l8h8tl.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (413.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 11:05 上传
+

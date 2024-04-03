@@ -10602,3 +10602,13 @@ Known Issues
 Explosive weapon stats include only direct hit damage but not explosive damage.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ONP，还有贼种修复BUG
 
+
+*****
+
+####  rgauss  
+##### 2485#       发表于 2024-4-3 11:01
+
+是不是又把泰坦数量上调了 昨天匹配 好多泰坦追着我跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后队友还贼喜欢往脚下扔120来打泰坦，一个人至少死了10次
+

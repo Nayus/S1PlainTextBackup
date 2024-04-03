@@ -10745,3 +10745,26 @@ AA反轻甲海，问题不大</blockquote>
 箭头又在整活了，奖励个1是吧，建议转发给成都，那边缺这个</blockquote>
 这是到250上限了吧？
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 2496#       发表于 2024-4-3 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473976&amp;ptid=2170852" target="_blank">yahuchi 发表于 2024-4-3 18:13</a>
+
+箭头又在整活了，奖励个1是吧，建议转发给成都，那边缺这个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发的披风不显示吧  资源满了平时都是发个0的
+
+
+*****
+
+####  风萧飒  
+##### 2497#       发表于 2024-4-3 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473976&amp;ptid=2170852" target="_blank">yahuchi 发表于 2024-4-3 18:13</a>
+箭头又在整活了，奖励个1是吧，建议转发给成都，那边缺这个</blockquote>
+应该是披风图标没显示
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

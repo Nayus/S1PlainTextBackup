@@ -582,3 +582,17 @@ ai最怕的就是大公司垄断吧<img src="https://static.saraba1st.com/image/
 它只是输出尽可能符合你要求的内容，很多人离“眼高手低 ...</blockquote>
 说到这一点有不少乐子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国产冻鳗只有屁精魔道天官一枝独秀让劳保如丧考妣，天天在外野笑乌贼无谋杰伦少智，现在先进生产力工具送上门，泥潭又认为文科的工作理工生都可以轻易替代，不进行一波以s1为旗帜的文坛画坛乐坛复兴实在太可惜。不求ai骡子有掌控大长篇的能力，但一个布袋戏裁缝光母都比不过就说不过去了。
 
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 64#       发表于 2024-4-3 20:02
+
+ 本帖最后由 月珊瑚与紫鸢尾 于 2024-4-3 20:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475022&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-3 19:49</a>
+说到这一点有不少乐子国产冻鳗只有屁精魔道天官一枝独秀让劳保如丧考妣，天天在外野笑乌贼无谋杰 ...</blockquote>
+现在市面上ai就是没有那种能力啊，算盘变成计算机再变成超算电脑，算不算生产力突破性的变革？但也没见谁说超算取代了科学家不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就越容易出现偏差。
+一个人如果能提供详细的需求让ai做出优秀作品，那他就算只能画火柴人，也必是一个优秀的编剧。
+一个脑子只能想到俗套三流剧情的人，给他找几个大师当画手，也画不出一流的作品，但靠作画大场面和色图，卖卖钱还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

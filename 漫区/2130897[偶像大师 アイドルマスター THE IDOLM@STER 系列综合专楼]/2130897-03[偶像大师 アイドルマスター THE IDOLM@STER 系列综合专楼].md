@@ -1252,3 +1252,33 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3083#       发表于 2024-4-3 18:37
+
+没看出82<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 3084#       发表于 2024-4-3 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64474224&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-3 18:37</a>
+没看出82
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+不 我仔细看了下 有好几张cg图可以看出来确实很大 但建模怎么呢 只有演出服能凸出来 平时服装捂得太严了
+
+*****
+
+####  江口夕  
+##### 3085#       发表于 2024-4-3 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们对82是不是有什么错觉，哪怕76也是能凸的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -13178,3 +13178,14 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 —— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hugosol  
+##### 2817#       发表于 2024-4-3 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64472770&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-4-3 16:29</a>
+
+敌人发动攻击不扣精力只是停止回复，这设计也比仁王倒退，属于演都不演了。5hit以上的长连段只能用宝藏院 ...</blockquote>
+我记得敌人是扣精力的啊，可能轻武器消耗太低看不出来？打毒藤女的时候我还录像了，三连鞭有很明显的精力消耗，还剩五分之一的耐力我站在范围外等弹最后一鞭直接就破防了
+

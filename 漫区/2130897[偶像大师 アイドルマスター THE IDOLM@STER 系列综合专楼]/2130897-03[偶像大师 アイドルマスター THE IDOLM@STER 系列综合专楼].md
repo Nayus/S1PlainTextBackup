@@ -1107,3 +1107,19 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 
 目前学马仕里看到的相对最喜欢的舞台服
 
+
+*****
+
+####  花开安菲路  
+##### 3068#       发表于 2024-4-3 17:49
+
+隔壁拉拉那是真在国内爆过不少米，爱马仕几个ip都没正式进入过大陆，塞重要成员的华子戏份自然要慎重考虑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViviR  
+##### 3069#       发表于 2024-4-3 17:52
+
+别塞华子了，多一事不如少一事
+

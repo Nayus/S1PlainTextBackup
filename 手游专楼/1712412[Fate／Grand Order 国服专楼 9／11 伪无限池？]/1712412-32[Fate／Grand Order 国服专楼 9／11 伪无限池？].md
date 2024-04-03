@@ -370,3 +370,16 @@ new了剑式，还行了
 
 —— 来自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  qixinno2  
+##### 46274#       发表于 2024-4-3 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473598&amp;ptid=1712412" target="_blank">linmoux 发表于 2024-4-3 17:35</a>
+
+大家能不能加我好友做新人任务？7年图鉴玩家 100,130,108,557。谢谢
+
+—— 来自 Xiaomi M2007J1SC,  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你是安卓还是ios啊
+

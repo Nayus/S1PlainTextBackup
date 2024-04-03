@@ -1375,3 +1375,25 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 赶紧看一眼图鉴，LINK BAD <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 11960#       发表于 2024-4-3 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473704&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-3 17:45</a>
+
+新伯爵太乐了 昨天更新没抓进去 今天整了个单独待遇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+
+*****
+
+####  qixinno2  
+##### 11961#       发表于 2024-4-3 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473738&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-3 17:48</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新早出了甚至还有新四星 羡慕个屁
+

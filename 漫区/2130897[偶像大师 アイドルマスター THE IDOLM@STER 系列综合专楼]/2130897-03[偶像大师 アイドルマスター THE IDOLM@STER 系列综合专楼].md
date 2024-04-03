@@ -1459,3 +1459,13 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这次不捡拉拉挑剩的去捡邦邦剩下的了？
 
+
+*****
+
+####  ViviR  
+##### 3106#       发表于 2024-4-3 21:48
+
+<blockquote>rgauss 发表于 2024-4-3 21:34
+什么时候把高vo力歌放出来才是真的</blockquote>
+怀疑没有高vo力的歌。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -1685,3 +1685,11 @@ https://dengekionline.com/articles/215678/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novyMS  
+##### 4573#       发表于 2024-4-4 01:20
+
+网易有双人版本的YOUR SONG了
+

@@ -12873,3 +12873,23 @@ boss里印象内个法国教官和高杉会</blockquote>
 为啥我跟医生好上她的急救箱道具里找不到啊艹，明明都显示收到了</blockquote>
 估计是道具满了给你扔仓库了，把不需要的武器分解了，再回仓库看看（仓库在长屋里面）
 
+
+*****
+
+####  leafS  
+##### 2788#       发表于 2024-4-3 08:38
+
+卧龙的武技才是垃圾吧，天天就搁那复读，初版古锭刀那招前冲，后面就是翻云覆雨复读，大部分武技都是花架子，不如奇术一根
+
+*****
+
+####  nagitoY  
+##### 2789#       发表于 2024-4-3 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64466738&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2024-4-3 03:22</a>
+
+打了俩小时才把新选组这些畜牲的困难道场极传打完，傻逼安田文彦自己化得掉冲田总司的牙突吗
+
+ ...</blockquote>
+我感觉最烦的是斋藤一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">长连段快慢刀、三段牙突都不好弹
+

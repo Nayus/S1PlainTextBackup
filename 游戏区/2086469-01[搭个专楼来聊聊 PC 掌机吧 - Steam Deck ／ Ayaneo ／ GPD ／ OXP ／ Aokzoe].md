@@ -176,3 +176,13 @@ CPU温度还好，手心温度高，低温烫伤预定。</blockquote>
 
 最近种草了GPDwinmax，主要是轻度办公看文档，又能低配玩一些3A，就是想问下7640U或者8840U下yuzu玩XB2，在打2Kmod的情况下能稳定30帧吗？
 
+
+*****
+
+####  bypass  
+##### 1156#         楼主| 发表于 2024-4-3 08:38
+
+多多的牛子 OLED 已经降价到 4369 了，好，继续！
+
+<img src="https://imgur.ihainan.me/Ti7cb84.png" referrerpolicy="no-referrer">
+

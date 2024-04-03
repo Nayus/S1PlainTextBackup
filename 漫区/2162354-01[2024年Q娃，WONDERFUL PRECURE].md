@@ -539,3 +539,14 @@ q娃，很神奇吧
 
 一个奇怪的想法，会不会其实猫猫在开篇前就拿到变身器了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（也就是猫猫一直是可以变成人类以及变身Q娃的状态）
 
+
+*****
+
+####  最强惠酱  
+##### 1276#       发表于 2024-4-3 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64468735&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-4-3 10:28</a>
+
+一个奇怪的想法，会不会其实猫猫在开篇前就拿到变身器了（也就是猫猫一直是可以变成人类以及变身Q娃 ...</blockquote>
+这样估计就不会给一个猫猫看到狗变人后看起来很羡慕的表情镜头了（或者不是这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

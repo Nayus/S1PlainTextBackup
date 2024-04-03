@@ -415,3 +415,14 @@ JCB至今Fanza甚至AppStore日区都能用的，问就是好
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  caupollen  
+##### 46#         楼主| 发表于 2024-4-4 05:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64478146&amp;ptid=2178442" target="_blank">oznark 发表于 2024-4-4 02:09</a>
+
+顺便还跟你讲了个笑话</blockquote>
+黄油世界 人民币兑美元破6是吧
+

@@ -13027,3 +13027,22 @@ boss里印象内个法国教官和高杉会</blockquote>
 
 盘还在路上的人开始发抖，有逃课教程吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山风短  
+##### 2803#       发表于 2024-4-3 15:11
+
+ 本帖最后由 山风短 于 2024-4-3 15:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64471830&amp;ptid=2092342" target="_blank">廖化 发表于 2024-4-3 15:07</a>
+
+艹这次斋藤性能这么粪嘛，不仅帖子里我身边朋友也没有不骂的（但是骂完还是要打的）……
+
+盘还在路上的人开 ...</blockquote>
+
+双刀刷两个极传，擦个毒附魔闭着眼睛按彼岸萤
+
+斋藤是第三章的事情，倒也不用太紧张
+
+第二章还有重量级的首相组合幕末三打一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

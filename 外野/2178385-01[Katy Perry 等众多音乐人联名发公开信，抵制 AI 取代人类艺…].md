@@ -867,3 +867,14 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 
 但和作画相关的很多岗位会消失 ，越细化ai越能介入，最后只剩下核心几个领导者和对应的ai操作员。所以商业公司必然会推进ai的发展，阻止个人使用带来的影响和这一比，微乎其微。
 
+
+*****
+
+####  TNN  
+##### 90#       发表于 2024-4-3 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476810&amp;ptid=2178385" target="_blank">月珊瑚与紫鸢尾 发表于 2024-4-3 22:51</a>
+
+初音十几年里有谁复制能达到她的高度？背后是一整个v家的生态圈，前无古人，估计也后无来者了，管人就算 ...</blockquote>
+本来意思就是对标偶像啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">懒得再汴京了，无视问题的信徒说什么都会继续无视。事实胜于雄辩，与其继续放卫星不如把前面说的劳保漫画给画出来。
+

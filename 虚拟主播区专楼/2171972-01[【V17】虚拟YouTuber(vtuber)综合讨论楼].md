@@ -3131,3 +3131,14 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  吃咸菜的  
+##### 162#       发表于 2024-4-3 22:59
+
+神椿自家以前有走o榜的实体或下载吗？
+<img src="https://p.sda1.dev/16/8c09329bd7f4b6cb0409dc2279a996d9/CMP_20240403225908304.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

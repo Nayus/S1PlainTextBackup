@@ -13276,3 +13276,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 顺便通关后检查好久发现少一个队友，原来是要江户讲武所锻炼一次和高桥泥舟结缘，竟然藏在这里<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 2827#       发表于 2024-4-4 02:17
+
+新选组大连续我放弃死磕开黎明难度，确实是老奶奶都能见切红光了
+

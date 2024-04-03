@@ -351,3 +351,15 @@ JCB至今Fanza甚至AppStore日区都能用的，问就是好
 
 我超，刚才看了一眼amex也不行了，只显示jcb<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeful  
+##### 42#       发表于 2024-4-4 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64478105&amp;ptid=2178442" target="_blank">圈量子 发表于 2024-4-4 01:54</a>
+我超，刚才看了一眼amex也不行了，只显示jcb</blockquote>
+你试着付一下看看，AMeX姑且理论上可以的。
+不行的话截图给我看看什么情况。
+—— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

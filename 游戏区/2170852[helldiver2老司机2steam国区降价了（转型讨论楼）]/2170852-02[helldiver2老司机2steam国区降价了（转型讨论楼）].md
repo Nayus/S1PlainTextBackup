@@ -10666,3 +10666,16 @@ Explosive weapon stats include only direct hit damage but not explosive damage.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Launce  
+##### 2489#       发表于 2024-4-3 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64471290&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-3 14:18</a>
+
+又解包出对空火箭炮了，箭头这对空武器做的有点多
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AA反轻甲海，问题不大
+

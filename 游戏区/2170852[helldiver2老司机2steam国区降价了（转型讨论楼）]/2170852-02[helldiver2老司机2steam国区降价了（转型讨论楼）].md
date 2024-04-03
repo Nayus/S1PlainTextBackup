@@ -10784,3 +10784,11 @@ AA反轻甲海，问题不大</blockquote>
 
 重登了一下，纪念披风到货了
 
+
+*****
+
+####  白昼梦  
+##### 2500#       发表于 2024-4-3 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bug真是越做越多啊，现在战斗中加入队伍虽然能看任务详情了，但是两页来回切两下队友信息就直接消失了
+

@@ -662,3 +662,25 @@ ai工具的产生只是进一步降低了门槛，但越是模糊的需求，就
 饭碗被抢了就是这样跳脚</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">真就人均无视生成式ai不可持续性，不考虑人类数据枯竭后ai跟着停滞的问题吗
 
+
+*****
+
+####  TNN  
+##### 72#       发表于 2024-4-3 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475977&amp;ptid=2178385" target="_blank">月珊瑚与紫鸢尾 发表于 2024-4-3 21:19</a>
+
+因为大部分人真的没有搞脆皮鸭的需求，也不指望当画师赚钱，但搞色图的需求真的多 ...</blockquote>
+当然不整脆皮鸭火上浇油<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要反向推销劳保价值观，正点阿尔法男和绝世美女后宫把屁精全部抹杀的故事。天下苦zzzq久矣，泥潭个个都是人才，光母的魔道不过用了比平均水平高一点的包装（抄袭布袋戏）来装屁精内核，连莫言都看不上的泥潭劳保整出这样的包装不在话下，再用gpt润色sd画成漫画，比快消色图有前途，也不用面对屁精漫画在海外攻城略地难受了。
+
+*****
+
+####  alacab  
+##### 73#       发表于 2024-4-3 21:31
+
+音乐人和音乐人也有很多群体吧，拿把木吉他6542几个和弦扫到底也是音乐人，他们是没所谓的。
+
+搞土嗨的死透透，搞编曲的死宅对技术很包容，属于那种有点郁闷，但依靠技术积累和音乐审美应该会玩的很爽
+
+—— 来自 Sony XQ-AS52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

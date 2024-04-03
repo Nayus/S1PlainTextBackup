@@ -1640,3 +1640,15 @@ https://dengekionline.com/articles/215678/
 切割掉整烂活的21话，还算能看吧，遥想22年莉可莉丝的那位打枪天才，我最后还真怕彼方最后来个逆天发言[f: ...</blockquote>
 是，就我觉得歌姬的处理真的太差了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">歌姬的处理如果好一点这片子肯定评价能上升几个档次。而且这片子死的人（magus）就不多，偏偏这都能发刀到歌姬头上也是醉了（第一季度大哥被贯穿驾驶舱都没似呢）
 
+
+*****
+
+####  aptx8285144  
+##### 4569#       发表于 2024-4-3 09:27
+
+ 本帖最后由 aptx8285144 于 2024-4-3 09:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64465782&amp;ptid=2092345" target="_blank">Grahamlinks 发表于 2024-4-2 23:53</a>
+
+是，就我觉得歌姬的处理真的太差了歌姬的处理如果好一点这片子肯定评价能上升几个档次。而且这片 ...</blockquote>
+刀了也就算了，毕竟前面歌姬的死旗插得快和刺猬一样了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

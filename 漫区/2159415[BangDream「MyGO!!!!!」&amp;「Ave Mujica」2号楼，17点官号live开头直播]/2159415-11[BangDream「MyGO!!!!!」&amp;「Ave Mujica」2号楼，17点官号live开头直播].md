@@ -1939,3 +1939,17 @@ mygo那边鼓凛看逆输入的程度有可能是先找的人再按经历写的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的訪談中篇呢，給我吐出來！
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14971#       发表于 2024-4-3 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64460283&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-2 16:18</a>
+你邦至少鼓手这边应该是先拉人再设计团和角色的，因为米泽和鼓都有明确说明是几年前就被邦拉来的，估计那会 ...</blockquote>
+Mujica应该是先找人然后角色照着中之人写
+米泽就是个例子
+她在Live上打鼓是左撇子，动画则说她两只手都可以打（）
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

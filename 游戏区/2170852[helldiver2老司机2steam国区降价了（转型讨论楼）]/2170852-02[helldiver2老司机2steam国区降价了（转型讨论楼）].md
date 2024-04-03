@@ -10800,3 +10800,13 @@ AA反轻甲海，问题不大</blockquote>
 
 开始享受欺负哑铃人的乐趣了（难7以下限定）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萩原组土狼p  
+##### 2502#       发表于 2024-4-4 04:09
+
+拿了喷火器，带了火喷和燃烧弹去杀虫子了，好解压，看见虫子群就直接冲上去开喷
+
+没把都是杀虫冠军，爽死了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">刚才又是一把500个虫子烧死了
+

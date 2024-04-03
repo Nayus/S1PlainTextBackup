@@ -1985,3 +1985,14 @@ Mujica应该是先找人然后角色照着中之人写
 古贺葵还是鼓手？</blockquote>
 当年和有利息一起上过台，天使的3P
 
+
+*****
+
+####  SakuraのOrigami  
+##### 14975#       发表于 2024-4-3 12:14
+
+🐔在录曲
+<img src="https://p.sda1.dev/16/f474a37e0ef13f35a48dbf2e552b2831/IMG_699A23249658A93845C9F5D5A03F00F3.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

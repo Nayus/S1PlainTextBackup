@@ -9096,3 +9096,11 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 感觉这样很不合理，应该按玩家基数与整体水平来分配参赛名额，比如欧洲整体给几个名额，北美整体给几个名 ...</blockquote>
 不知道任天堂怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其实也不知道最后是怎么定的名额
 
+
+*****
+
+####  ITEGM  
+##### 3888#       发表于 2024-4-3 12:06
+
+3代 DLC 只有第一次通关时的最终战能体验全晶片加满吗？
+

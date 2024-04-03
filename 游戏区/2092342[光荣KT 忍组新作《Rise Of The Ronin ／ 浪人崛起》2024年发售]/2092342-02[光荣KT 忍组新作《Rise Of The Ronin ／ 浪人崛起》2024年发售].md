@@ -13157,3 +13157,14 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 要没双刀扫地bug跳过战斗，我都觉得这游戏后期有点折磨了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kemyes  
+##### 2815#       发表于 2024-4-3 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473127&amp;ptid=2092342" target="_blank">wzh5555 发表于 2024-4-3 16:58</a>
+
+改成：非完美石火按照最低难度判定来，但是无中断能力，只保精力。 完美石火不改。 差不多精力就不紧张了， ...</blockquote>
+我也觉得非完美石火得改改，或者把那克制给去掉吧；想玩忍流架势时，被些高级敌人多段连时，真的很吃屎，少完美一两下都很危险，精力随时都见底。
+

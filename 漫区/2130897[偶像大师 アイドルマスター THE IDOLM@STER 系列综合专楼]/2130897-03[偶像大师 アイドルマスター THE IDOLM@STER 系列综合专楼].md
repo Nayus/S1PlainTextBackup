@@ -1043,3 +1043,37 @@ You use rat-a-tat to represent a series of sharp, repeated sounds, for example t
 没地方塞了吧 剩下两个再怎么看都不是华子
 除非给对手塞个华子
 
+
+*****
+
+####  Anatoly  
+##### 3062#       发表于 2024-4-3 17:16
+
+<img src="https://img.saraba1st.com/forum/202404/03/171620yk9yj9yyre80r0br.jpg" referrerpolicy="no-referrer">
+
+<strong>20240403_171532.jpg</strong> (94.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-3 17:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Anatoly  
+##### 3063#       发表于 2024-4-3 17:17
+
+真要说当时就应该给美琴塞个华子设定
+业界这几年也够呛能出个跟yaya有一拼的华子声优
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  koodooliz  
+##### 3064#       发表于 2024-4-3 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

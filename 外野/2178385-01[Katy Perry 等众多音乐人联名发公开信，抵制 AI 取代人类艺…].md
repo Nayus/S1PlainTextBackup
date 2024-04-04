@@ -988,3 +988,33 @@ AI可无法自己与自己炼丹，只会炼成雅达利大崩溃
 
 —— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  mimighost  
+##### 102#       发表于 2024-4-4 09:13
+
+ai把下限拔的太高了，很多之前觉得不错的画，被ai倾销了之后只觉得不过尔尔
+
+*****
+
+####  TNN  
+##### 103#       发表于 2024-4-4 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64478896&amp;ptid=2178385" target="_blank">星零影 发表于 2024-4-4 09:02</a>
+
+你也真就不考虑ai发展下去哪天它不用人类数据的可能性吗？
+
+—— 来自 HONOR FNE-AN00, Android 12上的 S ...</blockquote>
+我去，4024年还有敢贷款ai左脚踩右脚飞升的狂派无脑儿骡子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我的问题是现实，你的是科幻，根本不用考虑因为如果在非硬边界问题上落地，人类整个种族已经没必要存在了。
+
+
+*****
+
+####  mimighost  
+##### 104#       发表于 2024-4-4 09:21
+
+<blockquote>TNN 发表于 2024-4-4 09:19
+我去，4024年还有敢贷款ai左脚踩右脚飞升的狂派无脑儿骡子我的问题是现实，你的是科幻，根本不用考 ...</blockquote>
+这个并不是科幻吧，openai已经在很多场合提过这个方案了，而且基本已经确认会是下一代gpt的一部分了
+

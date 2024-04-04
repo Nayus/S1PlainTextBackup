@@ -13483,3 +13483,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Booorunestud  
+##### 2849#       发表于 2024-4-5 02:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">龙马怎么比翼，一直满好感没出过好感度对话，打完全力版之后人又没影了
+

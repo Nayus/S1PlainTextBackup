@@ -11025,3 +11025,11 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 打一半突然回船上是被踢了还是游戏问题啊</blockquote>
 被踢会现实被人t，应该是网络有冲突
 
+
+*****
+
+####  ykyin09  
+##### 2525#       发表于 2024-4-4 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚才中途加进一个队友 增援直接叠到23了 这是新机制还是bug来自: iPhone客户端
+

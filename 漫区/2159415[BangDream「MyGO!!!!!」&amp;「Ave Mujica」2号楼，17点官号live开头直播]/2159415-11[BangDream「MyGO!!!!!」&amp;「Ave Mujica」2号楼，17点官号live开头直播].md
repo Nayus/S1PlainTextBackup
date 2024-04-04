@@ -2383,3 +2383,16 @@ IMG_2015.jpeg
 <img src="https://p.sda1.dev/16/793adacb63ba981ff29d8e2b27eeed8c/CMP_20240404112319355.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/3f4031658bab1925fe98698f256a6353/CMP_20240404112319412.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 15010#       发表于 2024-4-4 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479726&amp;ptid=2159415" target="_blank">梶原ひかり 发表于 2024-4-4 11:07</a>
+
+反而吧？我觉得林鼓子感谢立希差不多...就林鼓子水平也接不到比立希更好的角色 而且活动这么多 有 ...</blockquote>
+不至于，声优啥的只要不要差到像某没上过声优学校的大阪富家女那样白菜或者某美人那样嗓子坏掉的程度就没啥说水平不够的讲法；放现在来说，雪菜对鼓子带来的好处肯定比立希大，企划声量和角色定位都高得多，但是人家最起码水端的很平，所以说鼓子对立希是真的很好了
+
+当然鼓子看她的特点也感觉会往2.5次走而不是像杨杰那样想搞纯配音了，所以立希也算是很适合她的角色
+

@@ -1497,3 +1497,11 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 
 不知道是不是我不够敏感，两头恰不就是既有关系亲密的同性好友，又有喜欢/憧憬的异性对象吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 3110#       发表于 2024-4-4 11:39
+
+看到别人的评论才后知后觉，瑞典人这黑衣服确实挺好看的也和平时的形象形成了不错的反差，但…真的和这种王道欢快系的曲子不搭啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

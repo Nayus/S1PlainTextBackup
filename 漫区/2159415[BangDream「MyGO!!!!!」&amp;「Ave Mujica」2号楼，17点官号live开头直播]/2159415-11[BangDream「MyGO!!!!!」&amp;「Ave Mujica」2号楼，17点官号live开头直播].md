@@ -2350,3 +2350,14 @@ IMG_2015.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鼓手的事情不用太在意了，无论现实还是动画里
 
+
+*****
+
+####  梶原ひかり  
+##### 15007#       发表于 2024-4-4 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64477981&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-4 01:21</a>
+
+看着对邦拼团的调价，感叹一下立希这辈子所有的幸运都用在遇到鼓这个不仅不嫌弃她挨骂多人气垫底还对她很上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反而吧？我觉得林鼓子感谢立希差不多...就林鼓子水平也接不到比立希更好的角色 而且活动这么多 有保障
+

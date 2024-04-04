@@ -10906,3 +10906,31 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 主要是火箭弹改动太关键了，现在火箭弹伤害低，虽然会把人炸飞很烦人，但大多数情况下秒不了人，只是近距离被机枪压制或者喷火器电锯人贴身还是很烦
 
+
+*****
+
+####  LrGsite  
+##### 2512#       发表于 2024-4-4 16:04
+
+一觉醒来50变70级了,他们就只加了个等级上限吗?怎么没其他新东西啊
+
+*****
+
+####  赤井稻妻  
+##### 2513#       发表于 2024-4-4 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64482098&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-4 16:04</a>
+
+一觉醒来50变70级了,他们就只加了个等级上限吗?怎么没其他新东西啊</blockquote>
+机器人方面加了两种新敌人，大量平衡性改动和难度修正
+
+*****
+
+####  LrGsite  
+##### 2514#       发表于 2024-4-4 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64482107&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-4 16:05</a>
+
+机器人方面加了两种新敌人，大量平衡性改动和难度修正</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看了看 感觉可以当无事发生
+

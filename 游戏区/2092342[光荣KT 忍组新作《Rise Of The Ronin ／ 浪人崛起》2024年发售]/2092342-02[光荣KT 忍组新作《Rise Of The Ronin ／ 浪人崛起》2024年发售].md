@@ -13469,3 +13469,17 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 —— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  007.5  
+##### 2848#       发表于 2024-4-4 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64485266&amp;ptid=2092342" target="_blank">MuramasaSP 发表于 2024-4-4 22:21</a>
+右上角这个镜片图标是啥意思啊
+
+—— 来自 HONOR AGT-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+智谋下面的某个技能，点了技能出现的隐藏商品，其实就是增加商店贩卖的商品
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

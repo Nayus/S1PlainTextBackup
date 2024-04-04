@@ -471,3 +471,11 @@ GBF tv给格兰原创了一把prototype的武器。</blockquote>
 
 其实这次十周年满篇的宇宙太阳大气层光速99%相对论balabala的本来就已经看得很尬了，只能说现在这小翅膀剧情爆了个大的倒也算符合预期吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 17858#       发表于 2024-4-4 23:01
+
+而且巴哈从月而来也不代表巴哈是月之民的造物，月之民也有可能只是在模仿巴哈的力量，等下次主线更新或许会有更多有价值信息
+

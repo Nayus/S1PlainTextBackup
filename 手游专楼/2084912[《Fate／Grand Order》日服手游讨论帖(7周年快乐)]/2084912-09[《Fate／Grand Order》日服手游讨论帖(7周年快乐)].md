@@ -1522,3 +1522,11 @@ Mooncell这个新头图看乐了<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奇怪，一百多号好友愣是没见到一个挂的，平时那些池子都有几个氪金大佬当真爱挂
 
+
+*****
+
+####  quanlix  
+##### 11974#       发表于 2024-4-4 23:00
+
+还在尿壶地狱中（不打算用白方块换），升到310再挂出去
+

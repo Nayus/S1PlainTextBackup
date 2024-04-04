@@ -9274,3 +9274,14 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 我开始想念小绿了，能杀能涂能打开，要不捡起来再练练，水沟局用加特林太坐牢了
 
+
+*****
+
+####  晴岚  
+##### 3903#       发表于 2024-4-4 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479314&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-4 10:11</a>
+
+这帮人算是把地图吃透了，在各种你意想不到的地方开鲨鱼，想抓前摇都没机会，开完后对面就立马开始记分了 ...</blockquote>
+你试试贴牌中加用大王乌贼硬抗对面鲨鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> （我没试过不知道可不可行
+

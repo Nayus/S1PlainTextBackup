@@ -1049,3 +1049,55 @@ ai把下限拔的太高了，很多之前觉得不错的画，被ai倾销了之�
 我为啥不信，如果没用他们会上？你不信有什么依据么</blockquote>
 ？？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">眼见为实，现在还没上吧。为啥是我举证，这不和火星茶壶和透明独角兽一样了。
 
+
+*****
+
+####  星零影  
+##### 108#       发表于 2024-4-4 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64478986&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-4 09:19</a>
+我去，4024年还有敢贷款ai左脚踩右脚飞升的狂派无脑儿骡子我的问题是现实，你的是科幻，根本不用考 ...</blockquote>
+都4202了还学不会考虑一下事物的发展变化，还要吐槽看奈子的是劳保<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  TNN  
+##### 109#       发表于 2024-4-4 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479070&amp;ptid=2178385" target="_blank">星零影 发表于 2024-4-4 09:35</a>
+
+都4202了还学不会考虑一下事物的发展变化，还要吐槽看奈子的是劳保
+
+—— 来自 HONOR FNE-AN00, A ...</blockquote>
+那何不贷款个大的，半年后马斯克的意识上传就落地，人人进入赛博空间电信号刺激极乐升天，麻烦你转告一下隔壁因为信用卡看不了柰子的人别哭了，考虑一下事物的发展变化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  东龙山  
+##### 110#       发表于 2024-4-4 09:42
+
+你不能用，他自己肯定偷偷用。
+
+*****
+
+####  星零影  
+##### 111#       发表于 2024-4-4 09:42
+
+顺带吐槽一下，早几年还在用微博倒是看到一帮做音乐的琢磨着要拿机器替换掉工人，理由当然是工人的工作完全在重复相同的几个动作。然后被做机器这行的人吐槽“要是能把眼手配合完美地复刻到机器上，那这个成本大概能开几间工厂”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星零影  
+##### 112#       发表于 2024-4-4 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479109&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-4 09:41</a>
+那何不贷款个大的，半年后马斯克的意识上传就落地，人人进入赛博空间电信号刺激极乐升天，麻烦你转告一下 ...</blockquote>
+为什么不贷款贷个大的？因为你非得说别人是贷款<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -651,3 +651,16 @@ B站似乎要上了～
 
 华哥配的缇娜夏倒是很不错，虽然刚登场时串戏到了芙莉莲，不过后面换了个声线后感觉好多了。感觉之后的集数唯一能支撑我看下去的就是华哥配的缇娜夏了
 
+
+*****
+
+####  xvi黑翼公  
+##### 55#       发表于 2024-4-4 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476984&amp;ptid=2109771" target="_blank">Ditfran 发表于 2024-4-3 23:12</a>
+
+第一集英肉出来了，比想象中的稍微好点，战斗部分就不指望了，至少人物没崩
+
+男主的CV感觉不太行，老 ...</blockquote>
+奥斯卡配的不好很容易让人感觉霸总+油腻，毕竟调情桥段那么多，难度不低<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

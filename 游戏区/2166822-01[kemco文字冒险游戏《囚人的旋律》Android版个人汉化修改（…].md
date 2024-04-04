@@ -2391,3 +2391,11 @@ ________________________________________
 当时的主要负责人还有nabe（渡边真纪子），渡边一样定期写自己的专栏并且有nabe这个 ...</blockquote>
 原来有其他staff在运营，我一直都只挑感兴趣的tag看没注意到，涨知识了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  double8  
+##### 43#       发表于 2024-4-4 20:47
+
+额，打开之后文字表现四个字是红字的才是LZ修改版吗？还是字体颜色无所谓的？
+

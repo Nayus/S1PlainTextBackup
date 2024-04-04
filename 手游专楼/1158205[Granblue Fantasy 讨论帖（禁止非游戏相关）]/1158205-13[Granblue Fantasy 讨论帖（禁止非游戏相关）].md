@@ -417,3 +417,24 @@ lm看了下，就缺无限 土龙  火龙 诺亚
 
 总不至于像传颂里的天照卫星那样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 17854#       发表于 2024-4-4 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64484252&amp;ptid=1158205" target="_blank">usoda 发表于 2024-4-4 20:23</a>
+
+总不至于像传颂里的天照卫星那样吧</blockquote>
+其实把巴哈和机神联系起来的点有一个
+
+GBF tv给格兰原创了一把prototype的武器。
+
+这把剑后来造型挪去做了机神的职业武。
+
+不出意外这武器也是机神变的封印武器。
+
+从渊源上来说和团长比较靠近的现在能联系上的类似机神，名字带有proto（原型）的东西。
+
+呃呃，就只有proto bahamut了。
+

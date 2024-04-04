@@ -1538,3 +1538,26 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  ViviR  
+##### 3114#       发表于 2024-4-4 13:11
+
+为什么猜是拆腻死，有什么根据么
+
+*****
+
+####  グラフ  
+##### 3115#       发表于 2024-4-4 13:15
+
+第一次歌单制作活动【偶像、是什么啊】收到的投稿一览：[https://docs.qq.com/sheet/DWndVb ... gxca&amp;viewId=fv1](https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca&amp;viewId=fv1)
+
+全曲歌单(因为网易云版权原因缺了几首)： [https://music.163.com/playlist?id=9671253771](https://music.163.com/playlist?id=9671253771)
+
+我按照自己口味拉了两个风格的歌单，以20首为基准，供参考
+
+1. live风 [https://music.163.com/playlist?id=9669496838](https://music.163.com/playlist?id=9669496838)
+
+2. another [https://music.163.com/playlist?id=9672704912](https://music.163.com/playlist?id=9672704912)
+

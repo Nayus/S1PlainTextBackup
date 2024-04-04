@@ -486,3 +486,25 @@ pve玩背包英雄，不过那个深度也不够
 这游戏没引导，但实际上新手期很长，拆包发现人机和随机匹配其实是大师段位才开的，大师段位之前都 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在在白银确实很多时候匹配对手完全乱摆的 
 
+
+*****
+
+####  afer  
+##### 50#       发表于 2024-4-5 03:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64486758&amp;ptid=2148282" target="_blank">空集 发表于 2024-4-5 01:58</a>
+
+玩锅我最近喜欢**锅 感觉前期更平滑后面更万能 大几十层火干啥都行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在看见火法就恶心（脑补那个指着手里拿东西的龙图），跟小丑牌打方格差不多。
+
+*****
+
+####  afer  
+##### 51#       发表于 2024-4-5 03:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">测试服新增功能——职业石，开局几率出，拿了能拿别人职业道具和职业特性。
+
+测试服已经乱套了，各种胡逼卡组。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但目前两个无职业石头（拿了这个不刷自己职业东西）和彩虹（拿了这个瞎几把刷所有职业的东西）公认最强，一个无脑加经济，一个无脑加buff收益，赢麻了
+

@@ -959,3 +959,20 @@ AI可无法自己与自己炼丹，只会炼成雅达利大崩溃
 
 另外现阶段AI的作用是匹配短视频时代高频内容创作的需求，传统音乐，电影，游戏这块用起来反而要慎重很多
 
+
+*****
+
+####  adw667  
+##### 99#       发表于 2024-4-4 08:04
+
+建议抵制佐藤莎莎拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  littlecloud  
+##### 100#       发表于 2024-4-4 08:08
+
+科技迭代下岗的工人如果没人帮的话，那我觉得演员被替代也很合情合理
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

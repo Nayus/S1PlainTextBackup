@@ -976,3 +976,15 @@ AI可无法自己与自己炼丹，只会炼成雅达利大崩溃
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  星零影  
+##### 101#       发表于 2024-4-4 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64475982&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-3 21:19</a>
+真就人均无视生成式ai不可持续性，不考虑人类数据枯竭后ai跟着停滞的问题吗 ...</blockquote>
+你也真就不考虑ai发展下去哪天它不用人类数据的可能性吗？
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

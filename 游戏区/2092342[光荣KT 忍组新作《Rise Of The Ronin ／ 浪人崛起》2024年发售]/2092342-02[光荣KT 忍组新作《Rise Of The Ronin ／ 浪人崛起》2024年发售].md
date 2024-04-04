@@ -13434,3 +13434,12 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Booorunestud  
+##### 2844#       发表于 2024-4-4 19:55
+
+然后这次更新还是没修复回到之前地图会刷新红点的bug
+别告诉我这是游戏设计把，这些都是8级的敌人一刀就死
+

@@ -455,3 +455,13 @@ pve玩背包英雄，不过那个深度也不够
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏没引导，但实际上新手期很长，拆包发现人机和随机匹配其实是大师段位才开的，大师段位之前都是给你塞福利别人的掉血卡让你过
 
+
+*****
+
+####  横寺阳人  
+##### 47#       发表于 2024-4-4 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近沉迷各种煎锅流，火法和战士的专属水果都不错，女巫是真的拉……不过找不到水果暴毙。
+
+还行吧看的到环境一直都有变化，最近魔法火把和魔法剑流也流行起来了。
+

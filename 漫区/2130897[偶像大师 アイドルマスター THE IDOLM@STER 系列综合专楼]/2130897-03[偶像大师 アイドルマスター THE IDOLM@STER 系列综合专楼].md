@@ -1579,3 +1579,11 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 
 下一个是棕毛啊，白毛都不是拆尼斯棕毛怎么可能是
 
+
+*****
+
+####  cckuku  
+##### 3118#       发表于 2024-4-4 14:58
+
+隔壁wds的贵州人王雪还是红毛呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要太刻板印象了！
+

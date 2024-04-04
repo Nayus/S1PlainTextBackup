@@ -10942,3 +10942,14 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 诶西巴 闪退好频繁啊
 
+
+*****
+
+####  赤井稻妻  
+##### 2516#       发表于 2024-4-4 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64482112&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-4 16:05</a>
+
+看了看 感觉可以当无事发生</blockquote>
+挺重要的，战备cd和抵达时间的debuff效果变为原来一半，修复火箭弹bug，不会再秒人了
+

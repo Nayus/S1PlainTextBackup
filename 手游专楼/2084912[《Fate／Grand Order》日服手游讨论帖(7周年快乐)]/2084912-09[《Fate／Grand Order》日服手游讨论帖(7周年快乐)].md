@@ -1492,3 +1492,14 @@ Mooncell这个新头图看乐了<img src="https://static.saraba1st.com/image/smi
 
 新伯爵是不能放助战吗，怎么都没看到好友挂
 
+
+*****
+
+####  保罗赫伯特  
+##### 11971#       发表于 2024-4-4 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64485215&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-4-4 22:15</a>
+
+新伯爵是不能放助战吗，怎么都没看到好友挂</blockquote>
+可以放的，前两天就刷到开图鉴了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

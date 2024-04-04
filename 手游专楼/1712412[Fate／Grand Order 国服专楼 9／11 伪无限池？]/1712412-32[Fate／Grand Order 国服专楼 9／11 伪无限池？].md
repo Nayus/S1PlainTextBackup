@@ -446,3 +446,13 @@ nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  sandro  
+##### 46282#       发表于 2024-4-4 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64477951&amp;ptid=1712412" target="_blank">double8 发表于 2024-4-4 01:16</a>
+nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝还是连着五张…… ...</blockquote>
+卧槽。。。
+

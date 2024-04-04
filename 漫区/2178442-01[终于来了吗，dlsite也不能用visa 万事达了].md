@@ -511,3 +511,16 @@ jcb你们用的多就去搞中行招财猫，用的少就招行全币种jcb
 app再烂，也比fanza那烂到地板都穿了的玩意好吧……fanza那几乎是等于没有体验，翻一个好久以前买的作品得 ...</blockquote>
 说的是dl viewer啦。play不是太清楚，pc上用的？
 
+
+*****
+
+####  慕容断月  
+##### 56#       发表于 2024-4-4 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479915&amp;ptid=2178442" target="_blank">oskneo 发表于 2024-4-4 11:27</a>
+说的是dl viewer啦。play不是太清楚，pc上用的？要说独占的话一直觉得很奇怪，有些同一个系列，这边有独占 ...</blockquote>
+哦哦，pc软件的话半斤八两啦，两边差不多，play是dlsite一直在推的新的网页端客户端，为了全平台使用，体验说实话能用，该有的基本功能都有而且全平台体验差不多（没错ps4xbox也应该能上）
+play.dlsite.com
+
+至于系列里新作独占旧作不独占我关注的社团经常发生，我还是怀疑可能fanza条款㎏有什么优待创作者的部分在吧
+

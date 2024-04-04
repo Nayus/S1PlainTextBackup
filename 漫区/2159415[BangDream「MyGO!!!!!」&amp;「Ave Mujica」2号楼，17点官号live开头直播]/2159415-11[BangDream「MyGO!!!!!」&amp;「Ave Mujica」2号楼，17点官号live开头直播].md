@@ -2752,3 +2752,13 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 <strong>ーー下一回的訪談，將會詳細談論之前所進行的1st LIVE。</strong>
 
+
+*****
+
+####  -LYRE-  
+##### 15035#       发表于 2024-4-4 21:11
+
+提过好多次的李子的笔记本和高尾剪的小视频
+什么时候能截取一些能公开的片段，让我们粉丝也能领略一下？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+让我康康<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

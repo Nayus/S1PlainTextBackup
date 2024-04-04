@@ -11033,3 +11033,13 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚才中途加进一个队友 增援直接叠到23了 这是新机制还是bug来自: iPhone客户端
 
+
+*****
+
+####  rainknine  
+##### 2526#       发表于 2024-4-4 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64484578&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-4-4 21:00</a>
+刚才中途加进一个队友 增援直接叠到23了 这是新机制还是bug</blockquote>
+他用了增援预算的那个buff吧
+

@@ -479,3 +479,29 @@ GBF tv给格兰原创了一把prototype的武器。</blockquote>
 
 而且巴哈从月而来也不代表巴哈是月之民的造物，月之民也有可能只是在模仿巴哈的力量，等下次主线更新或许会有更多有价值信息
 
+
+*****
+
+####  はちたや  
+##### 17859#       发表于 2024-4-4 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64485451&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2024-4-4 22:40</a>
+
+老板的两个高管摸了导致老板被人打解体...................</blockquote>
+高管 ❌
+
+用心棒 ✔
+
+
+*****
+
+####  洛克萨斯  
+##### 17860#       发表于 2024-4-5 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64486102&amp;ptid=1158205" target="_blank">はちたや 发表于 2024-4-4 23:57</a>
+
+高管 ❌
+
+用心棒 ✔</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">创世神座下两大护法太幽默了
+

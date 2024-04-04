@@ -2542,3 +2542,32 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 中篇没有什么信息量<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 15026#       发表于 2024-4-4 18:57
+
+我全被妖艳吸引走了，高尾自己这么形容oblivionis。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+下篇讲1st不知道会不会有那样的小剧场解读。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 15027#       发表于 2024-4-4 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥老师已经是在舞台上哪怕用尽美色也要博出名的角儿了
+
+
+*****
+
+####  PDQ4  
+##### 15028#       发表于 2024-4-4 19:03
+
+长得漂亮就是为所欲为。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么时候实锤oblivionis是坏女人，我看1st小剧场那个味就很足。
+
+都角色凭依，本体和人偶也有分开看，反正演戏了角色关系性可不可以来点突破。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

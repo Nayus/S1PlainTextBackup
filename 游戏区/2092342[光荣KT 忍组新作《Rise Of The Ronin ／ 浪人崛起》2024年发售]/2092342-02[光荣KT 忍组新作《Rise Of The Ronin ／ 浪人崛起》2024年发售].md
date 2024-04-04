@@ -13372,3 +13372,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 二周目暗夜难度好像石火判定是和夜晚难度一样的，没有变更严格，到底是谁传的谣言啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 2837#       发表于 2024-4-4 15:49
+
+后期这双boss三boss也就那样吧，队友反正会吸走仇恨
+

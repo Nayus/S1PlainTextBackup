@@ -13407,3 +13407,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">带队友打多boss还可以当个肉盾，打单个真的没啥用，几乎没有攻击欲望，正确玩法是敌人出手了直接切换去洗背
 
+
+*****
+
+####  focus  
+##### 2841#       发表于 2024-4-4 18:43
+
+二周目双boss吃个大攻击药，4个培烙弹直接炸死，不死也残了
+

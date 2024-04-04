@@ -2491,3 +2491,11 @@ IMG_2015.jpeg
 访谈中篇终于出了
 [https://www.animatetimes.com/new ... p;utm_medium=social](https://www.animatetimes.com/news/details.php?id=1711341820&amp;utm_source=twitter&amp;utm_medium=social)
 
+
+*****
+
+####  NODY  
+##### 15020#       发表于 2024-4-4 18:42
+
+立希论待遇在mygo自己的主场动画被制作组认为该写的写完了没必要塑造，论风评人气垫底日网搜索关联是嫌い，就是个真的没角色的底边接了我也觉得算倒霉了，鼓能不离不弃还一直在帮忙拉好感只能说真的很感谢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

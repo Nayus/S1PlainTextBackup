@@ -10998,3 +10998,11 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  白昼梦  
+##### 2522#       发表于 2024-4-4 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难蚌，更新完第一盘进去直接三个队友全掉了，还好任务是摧毁机器人堡垒，远远扔两个激光几个空袭三个点就清干净了
+

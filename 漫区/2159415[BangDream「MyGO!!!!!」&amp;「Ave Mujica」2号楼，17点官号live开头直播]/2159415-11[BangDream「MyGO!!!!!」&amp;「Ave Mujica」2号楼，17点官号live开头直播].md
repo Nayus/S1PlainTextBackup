@@ -2499,3 +2499,46 @@ IMG_2015.jpeg
 
 立希论待遇在mygo自己的主场动画被制作组认为该写的写完了没必要塑造，论风评人气垫底日网搜索关联是嫌い，就是个真的没角色的底边接了我也觉得算倒霉了，鼓能不离不弃还一直在帮忙拉好感只能说真的很感谢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EBe  
+##### 15021#       发表于 2024-4-4 18:44
+
+立希推鸡杂落泪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  凡人  
+##### 15022#       发表于 2024-4-4 18:46
+
+明明少女乐队鼓手是最难找的，结果武士刀还几乎所有的鼓手都是队里边儿的底边角色，恶性循环了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  EBe  
+##### 15023#       发表于 2024-4-4 18:51
+
+没角色的底边有角色就不错了，还想挑挑拣拣这种饭票角色？成年人的世界可是很残酷的哦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  NODY  
+##### 15024#       发表于 2024-4-4 18:52
+
+舞台剧不动嘴是为了符合人偶印象，0th歌单特地配合舞台剧剧情排顺序，这些倒是之前就知道了
+
+Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 15025#       发表于 2024-4-4 18:53
+
+中篇没有什么信息量<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

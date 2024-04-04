@@ -1466,3 +1466,21 @@ nnd，资料集也补充伯爵是为了和主角诀别而换灵基，但因此�
 
 既然特意搞个不一样的字眼，那就是有意为之<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11969#       发表于 2024-4-4 21:43
+
+ 本帖最后由 保罗赫伯特 于 2024-4-4 21:47 编辑 
+
+Mooncell这个新头图看乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/04/214527n3c7uh7uu3tio3uu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-4 21:45 上传
+

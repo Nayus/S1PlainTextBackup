@@ -13364,3 +13364,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 “闪刃就得将R1键按烂”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 最后还是回到了人肉物理外挂拯救机制的路上
 
+
+*****
+
+####  刘震云  
+##### 2836#       发表于 2024-4-4 15:39
+
+二周目暗夜难度好像石火判定是和夜晚难度一样的，没有变更严格，到底是谁传的谣言啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

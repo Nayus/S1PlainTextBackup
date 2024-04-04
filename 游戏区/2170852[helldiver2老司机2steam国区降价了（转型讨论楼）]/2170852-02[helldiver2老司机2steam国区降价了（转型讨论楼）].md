@@ -10861,3 +10861,27 @@ AA反轻甲海，问题不大</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2508#       发表于 2024-4-4 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机器人之前一直在麦拉芬蒙河死磕，现在换了个星球，又明亮又宽阔，感觉水平都提高了
+明显感觉n7以上队友都很会玩，分工明确，不乱开团，巡逻队大家一起快速清怪，快速杀支援，坦克巨型者清的也很快，打点大家互相拉枪线，打得和散步一样
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2509#       发表于 2024-4-4 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64481468&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-4-4 14:42</a>
+这个游戏该怎么入坑，朋友很喜欢，于是买了一份陪陪
+
+论坛助手,iPhone</blockquote>
+n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖兵潜入作战<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

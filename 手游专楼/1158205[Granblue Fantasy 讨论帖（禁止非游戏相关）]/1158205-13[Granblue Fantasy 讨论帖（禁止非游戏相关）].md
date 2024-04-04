@@ -505,3 +505,30 @@ GBF tv给格兰原创了一把prototype的武器。</blockquote>
 用心棒 ✔</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">创世神座下两大护法太幽默了
 
+
+*****
+
+####  adretyu67.  
+##### 17861#       发表于 2024-4-5 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64486102&amp;ptid=1158205" target="_blank">はちたや 发表于 2024-4-4 23:57</a>
+
+高管 ❌
+
+用心棒 ✔</blockquote>
+奶嘴还没解释她去干啥了。估摸是巴哈支出去干别的事了。
+
+*****
+
+####  adretyu67.  
+##### 17862#       发表于 2024-4-5 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64485544&amp;ptid=1158205" target="_blank">usoda 发表于 2024-4-4 22:50</a>
+
+说白了还是这年头奇幻的尽头是科幻的把戏早就已经见怪不怪了
+
+其实这次十周年满篇的宇宙太阳大气层光速99% ...</blockquote>
+我倒是觉得这巴哈在宇宙空间飞啊飞啊，终于想起来天蓝星好美啊，要把天搞蓝。
+
+这个巴哈怎么像是到了星之岛吃了星之巴哈变身创世神的吉他。
+

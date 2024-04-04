@@ -13315,3 +13315,41 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 —— 来自 samsun ...</blockquote>
 主要还是后面n连斩很多，必须都得弹到，只弹部分的话精力不够并且动摇时间太短，没时间没精力输出，甚至有的boss还会一秒动摇开始反击，比较难受
 
+
+*****
+
+####  nagitoY  
+##### 2831#       发表于 2024-4-4 14:07
+
+看到血洲接朱殷的连段，朱殷是哪个流派的奥义？没见过啊
+
+*****
+
+####  ouyang菌  
+##### 2832#       发表于 2024-4-4 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64481219&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-04-04 14:07:12</a>
+看到血洲接朱殷的连段，朱殷是哪个流派的奥义？没见过啊</blockquote>爱洲阴流的，仁王流和爱洲阴流极传会额外解锁一个武技，仁王流那个是居合
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  nagitoY  
+##### 2833#       发表于 2024-4-4 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64481236&amp;ptid=2092342" target="_blank">ouyang菌 发表于 2024-4-4 14:09</a>
+
+爱洲阴流的，仁王流和爱洲阴流极传会额外解锁一个武技，仁王流那个是居合
+
+  -- 来自 能搜索的 Stage1官方  ...</blockquote>
+原来如此，看来还是要去刷通缉犯
+
+*****
+
+####  zqqwe  
+##### 2834#       发表于 2024-4-4 14:12
+
+感觉队友限定的第四个武技本来就是作为极传奖励的，结果现在除了仁王和爱州阴流以外只给一个空白槽
+

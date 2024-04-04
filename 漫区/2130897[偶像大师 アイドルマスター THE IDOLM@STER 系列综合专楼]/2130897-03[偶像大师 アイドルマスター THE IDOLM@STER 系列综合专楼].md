@@ -1561,3 +1561,13 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 
 2. another [https://music.163.com/playlist?id=9672704912](https://music.163.com/playlist?id=9672704912)
 
+
+*****
+
+####  Seeley  
+##### 3116#       发表于 2024-4-4 14:07
+
+开局里外国人的位置只有一个吧，感觉很难再加一个拆腻死
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

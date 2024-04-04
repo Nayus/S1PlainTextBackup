@@ -10980,3 +10980,21 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 诶西巴 闪退好频繁啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次更新必有的新东西，闪退严重度
 
+
+*****
+
+####  smdzh2  
+##### 2520#       发表于 2024-4-4 18:16
+
+很快就要迎来西线无战事的好日子了<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Awanano  
+##### 2521#       发表于 2024-4-4 18:25
+
+打一半突然回船上是被踢了还是游戏问题啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

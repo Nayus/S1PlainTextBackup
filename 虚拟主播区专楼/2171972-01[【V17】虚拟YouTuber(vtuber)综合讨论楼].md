@@ -3150,3 +3150,13 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 
 以前从来没有过来着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 164#       发表于 2024-4-4 20:05
+
+神域人选出了，绿仙靠着虹麻女王加成果然不出所料的第一轮被选
+
+阿球痛失翻身机会，多井呢救一救啊（
+

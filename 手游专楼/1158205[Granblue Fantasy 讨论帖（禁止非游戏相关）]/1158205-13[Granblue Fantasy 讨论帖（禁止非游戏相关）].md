@@ -399,3 +399,21 @@ lm看了下，就缺无限 土龙  火龙 诺亚
 
 倒是现在蓝蓝吉他=创世神分身，应该不会上演你也是龙的剧本吧。
 
+
+*****
+
+####  弃天帝  
+##### 17852#       发表于 2024-4-4 20:17
+
+路西欧这龙王归来的实力真是爆炸……这次手术室把血库的血都吸完了
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  usoda  
+##### 17853#       发表于 2024-4-4 20:23
+
+总不至于像传颂里的天照卫星那样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

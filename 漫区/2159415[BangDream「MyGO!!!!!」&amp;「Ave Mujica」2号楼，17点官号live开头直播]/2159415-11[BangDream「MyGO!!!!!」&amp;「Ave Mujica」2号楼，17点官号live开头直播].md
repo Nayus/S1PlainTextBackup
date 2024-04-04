@@ -2599,3 +2599,18 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 今天這中篇也太難翻了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 15032#       发表于 2024-4-4 20:20
+
+没啥信息量，唯一有意思的是把mygo比作雨后的水洼，mujica比作黑洞（真是black hole）
+
+*****
+
+####  御幸一也  
+##### 15033#       发表于 2024-4-4 20:21
+
+會嗎 我感覺還蠻有意思的，可能我雞粉吧<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

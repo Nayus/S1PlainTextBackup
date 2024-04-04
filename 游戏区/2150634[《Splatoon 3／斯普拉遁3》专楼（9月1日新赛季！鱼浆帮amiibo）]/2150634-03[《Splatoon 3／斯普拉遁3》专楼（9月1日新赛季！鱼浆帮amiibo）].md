@@ -9246,3 +9246,16 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  晴岚  
+##### 3901#       发表于 2024-4-4 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64478830&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-4 08:47</a>
+
+如何应对带3.X的SP强的拖把桶？强行一确区域真的难顶，因为这输过好几场了
+
+—— 来自 S1Fun ...</blockquote>
+带死惩多击杀他.jpg，你这问题跟带3.X的银喷/蓝牙等怎么应对一样...只能不让对面攒出来鲨鱼...或者说这些武器大部分本身主武器都不算强了...这种算绝活哥了（
+

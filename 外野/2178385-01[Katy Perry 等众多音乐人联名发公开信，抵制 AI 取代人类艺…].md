@@ -1018,3 +1018,34 @@ ai把下限拔的太高了，很多之前觉得不错的画，被ai倾销了之�
 我去，4024年还有敢贷款ai左脚踩右脚飞升的狂派无脑儿骡子我的问题是现实，你的是科幻，根本不用考 ...</blockquote>
 这个并不是科幻吧，openai已经在很多场合提过这个方案了，而且基本已经确认会是下一代gpt的一部分了
 
+
+*****
+
+####  TNN  
+##### 105#       发表于 2024-4-4 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64478996&amp;ptid=2178385" target="_blank">mimighost 发表于 2024-4-4 09:21</a>
+
+这个并不是科幻吧，openai已经在很多场合提过这个方案了，而且基本已经确认会是下一代gpt的一部分了 ...</blockquote>
+…你认为吹过sora是物理模型的openai还有一毛钱的信用吗。
+
+*****
+
+####  mimighost  
+##### 106#       发表于 2024-4-4 09:25
+
+<blockquote>TNN 发表于 2024-4-4 09:24
+…你认为吹过sora是物理模型的openai还有一毛钱的信用吗。</blockquote>
+我为啥不信，如果没用他们会上？你不信有什么依据么
+
+
+*****
+
+####  TNN  
+##### 107#       发表于 2024-4-4 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479016&amp;ptid=2178385" target="_blank">mimighost 发表于 2024-4-4 09:25</a>
+
+我为啥不信，如果没用他们会上？你不信有什么依据么</blockquote>
+？？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">眼见为实，现在还没上吧。为啥是我举证，这不和火星茶壶和透明独角兽一样了。
+

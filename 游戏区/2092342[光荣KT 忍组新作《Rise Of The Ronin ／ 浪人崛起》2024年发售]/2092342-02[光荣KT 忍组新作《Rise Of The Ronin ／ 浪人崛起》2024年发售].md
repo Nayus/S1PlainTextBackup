@@ -13303,3 +13303,15 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 —— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  jcwatm1  
+##### 2830#       发表于 2024-4-4 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479516&amp;ptid=2092342" target="_blank">华发夜眼[CN] 发表于 2024-4-4 10:41</a>
+后面这么恶心吗，刚进江户，前面都舔完了，换了大太刀后一次没死过，还觉得难度不太够呢
+
+—— 来自 samsun ...</blockquote>
+主要还是后面n连斩很多，必须都得弹到，只弹部分的话精力不够并且动摇时间太短，没时间没精力输出，甚至有的boss还会一秒动摇开始反击，比较难受
+

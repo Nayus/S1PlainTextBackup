@@ -524,3 +524,24 @@ play.dlsite.com
 
 至于系列里新作独占旧作不独占我关注的社团经常发生，我还是怀疑可能fanza条款㎏有什么优待创作者的部分在吧
 
+
+*****
+
+####  oskneo  
+##### 57#       发表于 2024-4-4 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64480165&amp;ptid=2178442" target="_blank">慕容断月 发表于 2024-4-4 11:56</a>
+
+哦哦，pc软件的话半斤八两啦，两边差不多，play是dlsite一直在推的新的网页端客户端，为了全平台使用，体 ...</blockquote>
+刚在dlsite买了3本，买后才发现，居然在手机不能下载，不能下到dl viewer里。
+
+这dl viewer实在太简陋，连登陆认证下载功能都没，全靠浏览器。
+
+浏览器在偶古老的8寸，10寸平板里卡得不得了。
+
+这些不能下载的要用play看，8寸板没chrome，勉强能看，但无法全屏。
+
+10寸板只有chrome，但play死打不开，看来要下载别的浏览器试试了。
+
+总之这体验跟dmmブックス真无法比。
+

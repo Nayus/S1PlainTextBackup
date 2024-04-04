@@ -468,3 +468,13 @@ ci-en绑的visa卡信息还在
 
 这种没办法，全备吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  password  
+##### 52#       发表于 2024-4-4 07:52
+
+jcb你们用的多就去搞中行招财猫，用的少就招行全币种jcb
+
+招行下卡门槛低，无年费和货币转换费。就是美元入账比较可惜
+

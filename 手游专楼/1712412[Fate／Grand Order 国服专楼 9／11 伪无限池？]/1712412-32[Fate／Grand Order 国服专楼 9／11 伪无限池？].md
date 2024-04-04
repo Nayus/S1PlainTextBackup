@@ -436,3 +436,13 @@ b服安卓和iOS不是互通了吗？
 nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝还是连着五张…… ...</blockquote>
 跑过去看了一眼，大受震撼
 
+
+*****
+
+####  Kon-El  
+##### 46281#       发表于 2024-4-4 07:46
+
+呼符出了金时<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

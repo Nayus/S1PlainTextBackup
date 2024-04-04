@@ -13415,3 +13415,22 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 二周目双boss吃个大攻击药，4个培烙弹直接炸死，不死也残了
 
+
+*****
+
+####  黑色的js  
+##### 2842#       发表于 2024-4-4 19:06
+
+修复了玩家在线多人游戏后被送回横滨且无法返回江户的问题.安装此更新后可以存在该问题的已保存数据会得到修复 修复千叶到场和江户的宝箱在被发现前打开,导致收藏率不会增加的显示的问题 修复了服务器切换为步枪的同时更换箭头/陶球/蔬刀管类步枪可能无法装备的问题
+
+*****
+
+####  彩虹肥宅  
+##### 2843#       发表于 2024-4-4 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64483590&amp;ptid=2092342" target="_blank">黑色的js 发表于 2024-4-4 19:06</a>
+修复了玩家在线多人游戏后被送回横滨且无法返回江户的问题.安装此更新后可以存在该问题的已保存数据会得到 ...</blockquote>
+我用前面的存档重新打了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -2571,3 +2571,13 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 都角色凭依，本体和人偶也有分开看，反正演戏了角色关系性可不可以来点突破。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 15029#       发表于 2024-4-4 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道只有一个好处就是稳定拿钱，坏处也是有的你跑龙套时间少了用在动画声优界的时间也是实打实的少了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -2379,3 +2379,15 @@ ________________________________________
 
 渡边2015年从kemco离职之后才变成两栖类一个人主要在搞
 
+
+*****
+
+####  静shizuka  
+##### 42#       发表于 2024-4-4 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64482826&amp;ptid=2166822" target="_blank">毛利提督 发表于 2024-4-4 17:37</a>
+至少在那个时候不是的
+
+当时的主要负责人还有nabe（渡边真纪子），渡边一样定期写自己的专栏并且有nabe这个 ...</blockquote>
+原来有其他staff在运营，我一直都只挑感兴趣的tag看没注意到，涨知识了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"> 
+

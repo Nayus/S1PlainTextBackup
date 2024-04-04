@@ -569,3 +569,16 @@ play.dlsite.com
 
 日本这些站挺随机的 都是一个发卡行 有的直接填完就过了 有的要短信认证 
 
+
+*****
+
+####  慕容断月  
+##### 61#       发表于 2024-4-4 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64480419&amp;ptid=2178442" target="_blank">oskneo 发表于 2024-4-4 12:27</a>
+
+刚在dlsite买了3本，买后才发现，居然在手机不能下载，不能下到dl viewer里。
+
+这dl viewer实在太简陋，连 ...</blockquote>
+app的话是这样，感觉他们都直接放弃app了
+

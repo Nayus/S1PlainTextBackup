@@ -1505,3 +1505,26 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 
 看到别人的评论才后知后觉，瑞典人这黑衣服确实挺好看的也和平时的形象形成了不错的反差，但…真的和这种王道欢快系的曲子不搭啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hyiang98  
+##### 3111#       发表于 2024-4-4 11:46
+
+麻辣游戏吧一堆串子
+
+不过偶像大师不管具体哪家都有高浓度百合营业，低防的麻辣人估计不喜欢
+
+我个人也看百合作品，但受不了那种彻底贬低或者开除玩家位置的河豚
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Unlight  
+##### 3112#         楼主| 发表于 2024-4-4 11:48
+
+差不多得了，战场够多了，不差这一个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

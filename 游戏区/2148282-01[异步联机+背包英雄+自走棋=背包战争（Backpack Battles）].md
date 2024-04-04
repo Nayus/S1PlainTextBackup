@@ -465,3 +465,24 @@ pve玩背包英雄，不过那个深度也不够
 
 还行吧看的到环境一直都有变化，最近魔法火把和魔法剑流也流行起来了。
 
+
+*****
+
+####  空集  
+##### 48#       发表于 2024-4-5 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64474702&amp;ptid=2148282" target="_blank">afer 发表于 2024-4-3 19:23</a>
+
+奶锅了解一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩锅我最近喜欢**锅 感觉前期更平滑后面更万能 大几十层火干啥都行
+
+*****
+
+####  空集  
+##### 49#       发表于 2024-4-5 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476993&amp;ptid=2148282" target="_blank">afer 发表于 2024-4-3 23:13</a>
+
+这游戏没引导，但实际上新手期很长，拆包发现人机和随机匹配其实是大师段位才开的，大师段位之前都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在在白银确实很多时候匹配对手完全乱摆的 
+

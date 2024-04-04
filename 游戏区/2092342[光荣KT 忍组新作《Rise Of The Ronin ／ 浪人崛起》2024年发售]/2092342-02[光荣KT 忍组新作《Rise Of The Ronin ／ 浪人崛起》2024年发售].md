@@ -13459,3 +13459,13 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 暗夜3章100%后表示搭档说的太和我意了，忍组这狗屁世界如果不能随便砍人不能天天打架火拼真是一秒都呆不下去了。
 
+
+*****
+
+####  MuramasaSP  
+##### 2847#       发表于 2024-4-4 22:21
+
+右上角这个镜片图标是啥意思啊<img src="https://p.sda1.dev/16/decfbf310c8567928bd7cac999cec0bc/CMP_20240404222129605.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

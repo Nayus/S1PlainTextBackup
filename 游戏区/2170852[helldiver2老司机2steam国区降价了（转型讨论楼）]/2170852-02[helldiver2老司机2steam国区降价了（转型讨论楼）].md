@@ -10961,3 +10961,11 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">闪退比之前频繁多了，姿势还都不一样的，有的是直接跳出游戏，有的是卡死，有的是打着打着突然就回船上了
 
+
+*****
+
+####  rainknine  
+##### 2518#       发表于 2024-4-4 17:32
+
+新战令：从地图上抹除机器人势力
+

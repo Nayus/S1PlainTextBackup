@@ -2827,3 +2827,18 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 祥子最開心的一回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 15043#       发表于 2024-4-4 22:05
+
+已经想代pico了，小白称呼对方为ob子的时候，妖艳的oblivionis会露出什么表情，一秒破功好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 15044#       发表于 2024-4-4 22:06
+
+邦tv<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

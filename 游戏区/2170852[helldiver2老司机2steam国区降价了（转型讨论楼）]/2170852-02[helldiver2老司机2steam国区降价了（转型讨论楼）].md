@@ -11014,3 +11014,14 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二盘临撤离掉线了，都是福报
 
+
+*****
+
+####  Mr.Hopp  
+##### 2524#       发表于 2024-4-4 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64483241&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-4-4 18:25</a>
+
+打一半突然回船上是被踢了还是游戏问题啊</blockquote>
+被踢会现实被人t，应该是网络有冲突
+

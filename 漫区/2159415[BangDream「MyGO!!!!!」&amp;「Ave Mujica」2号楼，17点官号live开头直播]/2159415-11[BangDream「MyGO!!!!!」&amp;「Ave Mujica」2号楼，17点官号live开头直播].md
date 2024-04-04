@@ -2581,3 +2581,13 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  6030sylar  
+##### 15030#       发表于 2024-4-4 19:19
+
+除非鼓子练成桥儿超人，按这个月巡演的工作强度，真是命都没半条
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

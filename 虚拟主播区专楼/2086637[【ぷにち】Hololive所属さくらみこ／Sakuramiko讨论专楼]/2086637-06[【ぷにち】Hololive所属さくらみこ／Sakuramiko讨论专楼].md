@@ -4204,3 +4204,32 @@ kanauru最强……
 
 怎么侧着看奈子变好大的样子，果然新模型
 
+
+*****
+
+####  holoan  
+##### 8566#         楼主| 发表于 2024-4-4 22:50
+
+<img src="https://img.saraba1st.com/forum/202404/04/225011dlzlhc49a9uctaj9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-4 22:50 上传
+
+*****
+
+####  holoan  
+##### 8567#         楼主| 发表于 2024-4-4 22:51
+
+草，嫌订阅增长太快
+
+
+*****
+
+####  holoan  
+##### 8568#         楼主| 发表于 2024-4-4 22:55
+
+按照这个数度最迟周末就要开200万耐久了，但是看上去还没定计划，原计划是月中要发布新曲吧，但是涨得太快了来不及<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

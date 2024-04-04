@@ -456,3 +456,18 @@ GBF tv给格兰原创了一把prototype的武器。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老板的两个高管摸了导致老板被人打解体...................
 
+
+*****
+
+####  usoda  
+##### 17857#       发表于 2024-4-4 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64484526&amp;ptid=1158205" target="_blank">adretyu67. 发表于 2024-4-4 20:54</a>
+
+其实把巴哈和机神联系起来的点有一个
+
+GBF tv给格兰原创了一把prototype的武器。</blockquote>
+说白了还是这年头奇幻的尽头是科幻的把戏早就已经见怪不怪了
+
+其实这次十周年满篇的宇宙太阳大气层光速99%相对论balabala的本来就已经看得很尬了，只能说现在这小翅膀剧情爆了个大的倒也算符合预期吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

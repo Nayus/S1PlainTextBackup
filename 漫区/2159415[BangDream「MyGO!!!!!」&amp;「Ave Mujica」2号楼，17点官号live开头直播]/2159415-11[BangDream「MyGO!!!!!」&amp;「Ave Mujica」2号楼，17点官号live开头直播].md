@@ -2342,3 +2342,11 @@ IMG_2015.jpeg
 
 看着对邦拼团的调价，感叹一下立希这辈子所有的幸运都用在遇到鼓这个不仅不嫌弃她挨骂多人气垫底还对她很上心的cv了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  枫林不见  
+##### 15006#       发表于 2024-4-4 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鼓手的事情不用太在意了，无论现实还是动画里
+

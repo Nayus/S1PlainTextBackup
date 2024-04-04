@@ -11086,3 +11086,13 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 下周四刚好休假，皿煮爆破我来了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 2531#       发表于 2024-4-5 01:01
+
+果然是每个月的第二个星期四吗？可以AFK一个星期了。
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

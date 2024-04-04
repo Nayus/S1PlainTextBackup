@@ -9236,3 +9236,13 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 去年给喷甲子园发死亡威胁的人找到了，有人翻出来似乎是动物园职员，投稿了39次威胁信
 真的有病吧
 
+
+*****
+
+####  罗克萨斯  
+##### 3900#       发表于 2024-4-4 08:47
+
+如何应对带3.X的SP强的拖把桶？强行一确区域真的难顶，因为这输过好几场了<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

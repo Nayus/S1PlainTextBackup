@@ -2440,3 +2440,11 @@ IMG_2015.jpeg
 （然后我 ...</blockquote>
 我也 均价10r凹了十多个ksm 期待我推和鸡狗对邦了 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 15015#       发表于 2024-4-4 14:56
+
+前边也有漏油说过，按wsd找鼓手的模式，怕不是先有林小姐后有立希，甚至林小姐比狗团这企划都早……反倒优木雪菜虽然是意外才有的接盘机会，但的确是去试音才拿下的，没捡到才是真麻了，以后一点腾挪的余地都没有了
+

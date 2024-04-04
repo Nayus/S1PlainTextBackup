@@ -478,3 +478,17 @@ jcb你们用的多就去搞中行招财猫，用的少就招行全币种jcb
 
 招行下卡门槛低，无年费和货币转换费。就是美元入账比较可惜
 
+
+*****
+
+####  moeful  
+##### 53#       发表于 2024-4-4 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64478138&amp;ptid=2178442" target="_blank">圈量子 发表于 2024-4-4 02:06</a>
+我用的imgur图床，看不到的话wb的圈量子场最新一条微博就是
+
+我是看到4chan讨论amex也不行了就去看了一眼 ...</blockquote>
+看一下DM谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

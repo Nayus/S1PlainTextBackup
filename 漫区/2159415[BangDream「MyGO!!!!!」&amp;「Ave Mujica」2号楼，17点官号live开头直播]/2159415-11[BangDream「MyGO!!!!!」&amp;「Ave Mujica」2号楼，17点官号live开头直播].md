@@ -2780,3 +2780,50 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 中之人教你嗑糖了，说明LIVE上卖的都是真的，我睦初睦喵什么时候抬上来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 15038#       发表于 2024-4-4 21:56
+
+<img src="https://img.saraba1st.com/forum/202404/04/215613a0u2i8olo0z2cic0.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #211 1-5-27 screenshot.png</strong> (259.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-4 21:56 上传
+
+我操！追星回！
+
+*****
+
+####  Aendst  
+##### 15039#       发表于 2024-4-4 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下周邦tv追星成功
+
+*****
+
+####  PDQ4  
+##### 15040#       发表于 2024-4-4 21:57
+
+好好好
+
+周六晚新曲，下周四邦TV，又可以爽两周。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  滑稽Captain  
+##### 15041#       发表于 2024-4-4 21:57
+
+祥子最狂喜的一集
+
+*****
+
+####  御幸一也  
+##### 15042#       发表于 2024-4-4 21:59
+
+祥子最開心的一回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

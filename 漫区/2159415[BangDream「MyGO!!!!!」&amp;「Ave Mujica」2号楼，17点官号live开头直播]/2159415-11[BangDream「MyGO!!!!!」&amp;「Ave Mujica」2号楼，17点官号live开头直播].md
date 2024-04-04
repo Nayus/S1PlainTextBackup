@@ -2361,3 +2361,25 @@ IMG_2015.jpeg
 看着对邦拼团的调价，感叹一下立希这辈子所有的幸运都用在遇到鼓这个不仅不嫌弃她挨骂多人气垫底还对她很上 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反而吧？我觉得林鼓子感谢立希差不多...就林鼓子水平也接不到比立希更好的角色 而且活动这么多 有保障
 
+
+*****
+
+####  爱丁堡official  
+##### 15008#       发表于 2024-4-4 11:16
+
+这次b站充电播了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  仟音一心  
+##### 15009#       发表于 2024-4-4 11:24
+
+泡jio
+<img src="https://p.sda1.dev/16/971119df1f8853b8df5a383094dbe24b/CMP_20240404112319273.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/feaefc42a6b437069447b728e1fc582b/CMP_20240404112319313.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/793adacb63ba981ff29d8e2b27eeed8c/CMP_20240404112319355.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/3f4031658bab1925fe98698f256a6353/CMP_20240404112319412.jpg" referrerpolicy="no-referrer">
+

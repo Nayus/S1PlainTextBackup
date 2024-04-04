@@ -1128,3 +1128,15 @@ ai把下限拔的太高了，很多之前觉得不错的画，被ai倾销了之�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星零影  
+##### 115#       发表于 2024-4-4 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479178&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-4 09:50</a>
+无论大小，没根据的幻想就是贷款啊。15年无人驾驶贷款到天上，现在眼看马斯克也要栽到同一个落凤坡里了。 ...</blockquote>
+根据就在于，现在老板把员工当工具，老板只需要足够的、听话的、更便宜的“工具”，至于这个“工具”是真的机器还是员工老板其实不在乎
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

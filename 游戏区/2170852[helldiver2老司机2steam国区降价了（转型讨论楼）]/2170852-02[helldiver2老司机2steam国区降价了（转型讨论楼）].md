@@ -10969,3 +10969,14 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 新战令：从地图上抹除机器人势力
 
+
+*****
+
+####  Launce  
+##### 2519#       发表于 2024-4-4 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64482151&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-4 16:13</a>
+
+诶西巴 闪退好频繁啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次更新必有的新东西，闪退严重度
+

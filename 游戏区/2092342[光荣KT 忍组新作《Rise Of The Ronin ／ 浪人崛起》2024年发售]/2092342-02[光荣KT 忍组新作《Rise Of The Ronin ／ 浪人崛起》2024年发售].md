@@ -13399,3 +13399,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 说双boss混乱的，有没有可能是自己碰到摇杆锁别人身上了。
 而且双boss血少精力少，开气焰都能直接莽死一个。
 
+
+*****
+
+####  wtyrambo  
+##### 2840#       发表于 2024-4-4 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">带队友打多boss还可以当个肉盾，打单个真的没啥用，几乎没有攻击欲望，正确玩法是敌人出手了直接切换去洗背
+

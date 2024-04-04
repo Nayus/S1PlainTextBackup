@@ -11053,3 +11053,28 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 箭头欠了几个子了
 
+
+*****
+
+####  YY骑士  
+##### 2528#       发表于 2024-4-5 00:35
+
+更新后4人组队，撤退上了飞机后大概率闪退，昨天还能4个人里面留下1个，今天4个人全闪退。
+
+删反作弊，重新验证文件都弄了，还是上飞机后闪退，最后打了一个15分钟的防守任务倒是正常结算没闪退，不知道为啥。
+
+*****
+
+####  FLZB  
+##### 2529#       发表于 2024-4-5 00:37
+
+<img src="https://img.saraba1st.com/forum/202404/05/003650cclt67kl2l2gl3lm.jpg" referrerpolicy="no-referrer">
+
+<strong>111.jpg</strong> (308.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 00:36 上传
+
+要爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

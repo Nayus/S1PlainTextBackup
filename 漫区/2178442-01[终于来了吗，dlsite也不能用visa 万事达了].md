@@ -500,3 +500,14 @@ jcb你们用的多就去搞中行招财猫，用的少就招行全币种jcb
 
 点数迂回策略竟然成为了先进经验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oskneo  
+##### 55#       发表于 2024-4-4 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476946&amp;ptid=2178442" target="_blank">慕容断月 发表于 2024-4-3 23:07</a>
+
+app再烂，也比fanza那烂到地板都穿了的玩意好吧……fanza那几乎是等于没有体验，翻一个好久以前买的作品得 ...</blockquote>
+说的是dl viewer啦。play不是太清楚，pc上用的？
+

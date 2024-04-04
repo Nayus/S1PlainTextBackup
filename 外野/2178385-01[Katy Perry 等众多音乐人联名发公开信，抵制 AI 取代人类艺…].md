@@ -1140,3 +1140,14 @@ ai把下限拔的太高了，很多之前觉得不错的画，被ai倾销了之�
 
 —— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TNN  
+##### 116#       发表于 2024-4-4 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479883&amp;ptid=2178385" target="_blank">星零影 发表于 2024-4-4 11:24</a>
+
+根据就在于，现在老板把员工当工具，老板只需要足够的、听话的、更便宜的“工具”，至于这个“工具”是真 ...</blockquote>
+抽象<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这和ai能不能自我训练有什么关系？你和上面那位都喝大了吧，告辞
+

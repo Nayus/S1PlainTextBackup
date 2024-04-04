@@ -353,3 +353,11 @@ lm看了下，就缺无限 土龙  火龙 诺亚
 
 喂喂喂，导哥在吗？还说得出话吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shinitakute  
+##### 17848#       发表于 2024-4-4 16:42
+
+终突路西欧太强了卧槽直接抬我孤高之翼
+

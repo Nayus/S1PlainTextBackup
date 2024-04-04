@@ -1231,3 +1231,16 @@ ai把下限拔的太高了，很多之前觉得不错的画，被ai倾销了之�
 我搜了一下google，sora首页唯一提到物理的地方是在承认自己局限性的时候，说无法很好的模拟一些复杂的物 ...</blockquote>
 那很抱歉，这点属于我自己轻信别人的谣言了，没有去做进一步信息查证，我对此向你道歉。
 
+
+*****
+
+####  星零影  
+##### 124#       发表于 2024-4-4 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479932&amp;ptid=2178385" target="_blank">TNN 发表于 2024-4-4 11:29</a>
+抽象这和ai能不能自我训练有什么关系？你和上面那位都喝大了吧，告辞 ...</blockquote>
+工具或者“工具”的功能
+你想告辞就告辞吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

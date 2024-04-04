@@ -2428,3 +2428,15 @@ IMG_2015.jpeg
 
 美频连OP都是RGR，肯定是艾回塞的啊，当然再往前选秀是凭本事选上的……配音8
 
+
+*****
+
+####  Aliceblue  
+##### 15014#       发表于 2024-4-4 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64477484&amp;ptid=2159415" target="_blank">rslika 发表于 2024-4-4 00:15</a>
+这次对邦的吧唧拼团在go热度和ppp单价过低的双重buff加持下 成团率好像到了一个神秘的高点
+
+（然后我 ...</blockquote>
+我也 均价10r凹了十多个ksm 期待我推和鸡狗对邦了 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

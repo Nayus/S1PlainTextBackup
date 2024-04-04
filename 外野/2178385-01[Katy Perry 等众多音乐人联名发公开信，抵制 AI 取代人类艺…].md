@@ -1101,3 +1101,16 @@ ai把下限拔的太高了，很多之前觉得不错的画，被ai倾销了之�
 
 —— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TNN  
+##### 113#       发表于 2024-4-4 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479126&amp;ptid=2178385" target="_blank">星零影 发表于 2024-4-4 09:43</a>
+
+为什么不贷款贷个大的？因为你非得说别人是贷款
+
+—— 来自 HONOR FNE-AN00, Android 12上的 S1Ne ...</blockquote>
+无论大小，没根据的幻想就是贷款啊。15年无人驾驶贷款到天上，现在眼看马斯克也要栽到同一个落凤坡里了。
+

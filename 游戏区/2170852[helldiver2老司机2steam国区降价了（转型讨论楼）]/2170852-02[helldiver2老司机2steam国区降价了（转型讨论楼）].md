@@ -11473,3 +11473,11 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 2570#       发表于 2024-4-5 16:43
+
+昨天刚买匹配打了一整天，为什么今天就一个人都匹配不到了，是低难度已经没人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

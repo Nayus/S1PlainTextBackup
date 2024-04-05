@@ -153,3 +153,11 @@ HIGHSPEED Étoile/极速星舞 将于4月5日正式播出
 
 lifting turn就不指望了，真实赛道boost on感觉也不用指望
 
+
+*****
+
+####  Piano-Forest  
+##### 128#         楼主| 发表于 2024-4-5 16:44
+
+<img src="https://p.sda1.dev/16/659e5974d23ecaad96de66bd77e2a86c/20240405_164337.jpg" referrerpolicy="no-referrer">
+

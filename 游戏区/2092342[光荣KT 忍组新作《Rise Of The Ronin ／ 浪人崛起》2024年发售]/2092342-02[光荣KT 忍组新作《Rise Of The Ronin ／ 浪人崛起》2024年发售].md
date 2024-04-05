@@ -13589,3 +13589,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 给萨道义这傻缺都做了恋爱线都不给中泽琴做是什么意思</blockquote>
 我是没搞懂为什么宁愿给萨道义做恋爱线都不给土方这伙城管多做几个恋爱线，暗荣搞了大半辈子SLG还不知道历史同人女屁股坐哪边吗
 
+
+*****
+
+####  彩虹肥宅  
+##### 2860#       发表于 2024-4-5 16:30
+
+为什么没有阿龙的恋爱线<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

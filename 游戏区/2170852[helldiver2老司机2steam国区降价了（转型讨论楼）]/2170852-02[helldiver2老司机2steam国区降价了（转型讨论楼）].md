@@ -11432,3 +11432,11 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 新武器的那把拉大栓看测试效果很不错，是一把像支援武器的主武器，然后再配一把像主武器的支援武器，齐活了
 
+
+*****
+
+####  rainknine  
+##### 2566#       发表于 2024-4-5 15:09
+
+镰刀主要是太追踪虫和西瓜腐乳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

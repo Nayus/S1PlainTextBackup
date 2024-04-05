@@ -516,3 +516,11 @@ pve玩背包英雄，不过那个深度也不够
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 无职业道具那玩啥流派？有点想象不出来
 
+
+*****
+
+####  whzfjd  
+##### 53#       发表于 2024-4-6 06:07
+
+在白金段有点瓶颈了，怎么感觉匹配的都是某个回合的天胡配置，比如第一回合，系统给我来了个锤子加衣服的。
+

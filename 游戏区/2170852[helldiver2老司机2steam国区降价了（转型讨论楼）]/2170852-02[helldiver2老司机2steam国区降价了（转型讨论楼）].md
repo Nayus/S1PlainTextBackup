@@ -11241,3 +11241,20 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 想要快点脱离困境？这种强化资源能缩短撤离运输船抵达撤离信标所需的时间。回到家还能赶上吃晚饭呢。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 2547#       发表于 2024-4-5 12:32
+
+减少撤离抵达时间感觉又不是很紧迫了，之前4分钟撤离的时候收益最大，现在3分钟就还好
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2548#       发表于 2024-4-5 12:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天几把高难机器人改带机炮，蛋盾队友走正面，我侧翼清大盾和火箭，感觉还挺强的，炮塔坦克什么的绕一绕也能处理，雀氏比类星体舒服
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

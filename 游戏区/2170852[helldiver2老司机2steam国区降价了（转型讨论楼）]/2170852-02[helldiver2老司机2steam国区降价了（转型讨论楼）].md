@@ -11258,3 +11258,33 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  赤井稻妻  
+##### 2549#       发表于 2024-4-5 12:38
+
+我现在高难机器人带反器材，可以远距离点掉火箭蹂躏者，也能正面强杀无畏，打炮艇效率也很高，甚至可以超远距离点掉背对着你的炮台，平时打蹂躏者不用太在意爆头，最多三枪一个，也可以先两枪点掉火箭，缺点是必须要挂在队伍最后方，弹药也少
+
+*****
+
+####  FLZB  
+##### 2550#       发表于 2024-4-5 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489248&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-4-5 12:33</a>
+
+今天几把高难机器人改带机炮，蛋盾队友走正面，我侧翼清大盾和火箭，感觉还挺强的，炮塔坦克什么的 ...</blockquote>
+机器人又不需要反重甲，类星体这种十几秒打一发的玩意怎么跟机炮比，完全不是一个赛道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2551#       发表于 2024-4-5 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489291&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-5 12:39</a>
+机器人又不需要反重甲，类星体这种十几秒打一发的玩意怎么跟机炮比，完全不是一个赛道 ...</blockquote>
+只能说，但是类星体打运输艇真的很爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

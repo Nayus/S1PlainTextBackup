@@ -3181,3 +3181,11 @@ Mujica vs. MyGO</blockquote>
 青木阳菜想当光之美少女，不知道还有没有机会，小时候想成为cure white，不知道是哪代的 ...</blockquote>
 Cure White就一嫂那一个<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 15075#       发表于 2024-4-5 21:35
+
+青木阳菜如果是81P的，那随便光美；响社那就等于想接三森的位，太子宣言
+

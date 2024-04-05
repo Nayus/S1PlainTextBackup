@@ -11492,3 +11492,19 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 昨天刚买匹配打了一整天，为什么今天就一个人都匹配不到了，是低难度已经没人了吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重启试试，不行就骂服务器
 
+
+*****
+
+####  FLZB  
+##### 2572#       发表于 2024-4-5 17:08
+
+傻逼棒子反作弊每次更新都连不上，之前几次挂个全局还能更新，今天挂不挂都一样，一启动游戏秒报错<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤井稻妻  
+##### 2573#       发表于 2024-4-5 17:11
+
+机器人星球的回复速率从1.5降到0.5了，看来机器人晚上也睡觉
+

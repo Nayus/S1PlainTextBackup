@@ -1705,3 +1705,29 @@ https://dengekionline.com/articles/215678/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Piano-Forest  
+##### 4575#         楼主| 发表于 2024-4-5 17:08
+
+📚お試し公開💿
+
+5月29日発売のBlu-ray BOXに収録
+
+されるシエルのカバーCDから
+
+「God knows...」の視聴動画を公開！
+[https://youtu.be/gVE436h68dw](https://youtu.be/gVE436h68dw)
+
+1月より第2クールが放送中のTVアニメ「SYNDUALITY Noir」のBlu-ray BOXに収録されるシエル（cv.青山なぎさ）が歌うランティスの名曲カバーCDから、「記憶の海」を公開！こちらの楽曲は今後発売されるBlu-ray BOXに収録予定です。
+
+Blu-ray BOX每卷都会有收录青山渚翻唱的Lantis名曲的特典CD，第1卷的收录的是凉宫的《God knows…》与《Super Driver》
+
+第24話「My name is...Noir / Drifters again」原画
+<img src="https://p.sda1.dev/16/84bc41c1dca72d0614255941de1d81ef/20240405_170339.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/0376fbeff6b72e8fa57155bf05891a90/20240405_170342.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/5cd7f709f382cf38e5584fa08911a346/20240405_170343.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/8a4e2e8609660b043aa411ec934a2c8b/20240405_170344.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/d1d23885dfc05fcab10b33c7e75faa97/20240405_170346.jpg" referrerpolicy="no-referrer">
+

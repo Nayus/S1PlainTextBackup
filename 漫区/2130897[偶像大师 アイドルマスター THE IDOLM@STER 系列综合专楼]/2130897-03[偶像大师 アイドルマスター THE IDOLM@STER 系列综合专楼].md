@@ -1618,3 +1618,15 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 屁爱马仕手游一个月不劝退就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 说到底你这基数就这样了，不管什么麻辣河豚，都没资本玩共振把另一方恶心跑。
 
+
+*****
+
+####  ViviR  
+##### 3122#       发表于 2024-4-5 17:07
+
+ 本帖最后由 ViviR 于 2024-4-5 17:09 编辑 
+
+[https://x.com/gkmas_official/status/1776160748429082981?s=46](https://x.com/gkmas_official/status/1776160748429082981?s=46)
+
+好像是通过什么方法刷到的，正常看官方的蓝鸟号看不到这个。来欣赏下lv1的蓝c歌力。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

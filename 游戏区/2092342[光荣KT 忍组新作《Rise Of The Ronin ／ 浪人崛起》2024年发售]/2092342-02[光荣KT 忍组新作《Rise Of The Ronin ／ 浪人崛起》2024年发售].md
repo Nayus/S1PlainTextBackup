@@ -13561,3 +13561,31 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 看到有回避哥打暗夜道馆极传的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 2857#       发表于 2024-4-5 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64490062&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-4-5 14:34</a>
+给萨道义这傻缺都做了恋爱线都不给中泽琴做是什么意思</blockquote>
++1，这作造型性格最喜欢就是琴姐，居然不能攻略
+
+*****
+
+####  zqqwe  
+##### 2858#       发表于 2024-4-5 15:49
+
+后期最好用的武技还是大太刀无明流的奥义啊，出手快带追尾，动摇就能派生高伤投技，空精自动变强化处决，开新流倒全是花架子
+
+
+*****
+
+####  廖化  
+##### 2859#       发表于 2024-4-5 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64490062&amp;ptid=2092342" target="_blank">桥洞底下盖小被 发表于 2024-4-5 14:34</a>
+
+给萨道义这傻缺都做了恋爱线都不给中泽琴做是什么意思</blockquote>
+我是没搞懂为什么宁愿给萨道义做恋爱线都不给土方这伙城管多做几个恋爱线，暗荣搞了大半辈子SLG还不知道历史同人女屁股坐哪边吗
+

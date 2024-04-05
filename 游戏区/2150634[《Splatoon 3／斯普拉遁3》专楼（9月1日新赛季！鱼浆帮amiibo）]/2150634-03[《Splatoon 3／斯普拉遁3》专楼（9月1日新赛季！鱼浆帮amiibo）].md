@@ -9534,3 +9534,31 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  罗克萨斯  
+##### 3925#       发表于 2024-4-6 00:04
+
+眼看着就要赢了，然后弹出来这个，接着又是两负，故意的吧！又打了一轮5胜才升到S+3，离S+10还很遥远😮‍💨
+
+<img src="https://img.saraba1st.com/forum/202404/05/235623ss3ta8aooy6rbra2.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040523120500-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (114.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 23:56 上传
+
+今日X赛奇观，队友要么强得离谱要么弱得离谱。当然对面1带3更惨，根本没法赢
+
+<img src="https://img.saraba1st.com/forum/202404/06/000220ebx2g2by6xxrmeej.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040521300500-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (243.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 00:02 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

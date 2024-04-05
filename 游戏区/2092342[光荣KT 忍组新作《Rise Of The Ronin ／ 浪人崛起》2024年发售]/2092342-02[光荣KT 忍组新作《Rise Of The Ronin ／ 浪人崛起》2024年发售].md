@@ -13634,3 +13634,14 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 <blockquote>[ duraa replied on 2024-4-5 14:42](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64490104&amp;ptid=2092342) 看到有回避哥打暗夜道馆极传的了 </blockquote>
 打的高杉晋作，这人连招不长本来就挺好打的。不过全程不用石火确实是个好思路来自: iPhone客户端
 
+
+*****
+
+####  wtyrambo  
+##### 2865#       发表于 2024-4-5 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64491204&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-4-5 16:46</a>
+
+暗夜把容错进一步降低，但玩家的动作性能缺陷也没法用新装备填补，堆伤害和异常积蓄这些太RPG对个人来说没 ...</blockquote>
+个人感觉闪避本身无敌时间还是不短的，只是有些流派的闪避硬直太大了，没法应对连续攻击，那些单下红光的石火中了又是大硬直，用闪避反而吃亏。
+

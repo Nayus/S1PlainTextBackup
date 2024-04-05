@@ -3170,3 +3170,14 @@ Mujica vs. MyGO</blockquote>
 
 怎么说呢，以日本的音乐教育和乐队文化，找个把个打得还成的女鼓手倒没有那么难，但是还肯也能干声优的就没那么多了。
 
+
+*****
+
+####  ddy2811  
+##### 15074#       发表于 2024-4-5 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489685&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-4-5 13:33</a>
+
+青木阳菜想当光之美少女，不知道还有没有机会，小时候想成为cure white，不知道是哪代的 ...</blockquote>
+Cure White就一嫂那一个<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

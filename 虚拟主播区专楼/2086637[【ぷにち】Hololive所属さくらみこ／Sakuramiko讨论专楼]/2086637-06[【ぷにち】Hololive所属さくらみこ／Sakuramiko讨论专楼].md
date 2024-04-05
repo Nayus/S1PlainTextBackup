@@ -4355,3 +4355,23 @@ kanauru最强……
 
 可惜holomeet大使已经卸任了
 
+
+*****
+
+####  holoan  
+##### 8578#         楼主| 发表于 2024-4-5 20:01
+
+所以这app说是学习型游戏很微妙
+
+学英语部分就单学英语，音游部分就单音游，两者中间没有任何交叉联系，各部分的完成度也很低
+
+也难怪play市场的用户评价这么低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/05/200136yyukkqgolyjmiixo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 20:01 上传
+

@@ -1731,3 +1731,13 @@ Blu-ray BOX每卷都会有收录青山渚翻唱的Lantis名曲的特典CD，第1
 <img src="https://p.sda1.dev/16/8a4e2e8609660b043aa411ec934a2c8b/20240405_170344.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/d1d23885dfc05fcab10b33c7e75faa97/20240405_170346.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 4576#       发表于 2024-4-6 06:15
+
+【《奇异贤伴 爱达之歌》世界观介绍CG-哔哩哔哩】 https://b23.tv/L3EM8nw
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

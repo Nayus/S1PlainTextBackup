@@ -1756,3 +1756,38 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  田所あずさ  
+##### 3138#       发表于 2024-4-5 20:49
+
+我操，你这什么东西啊，感觉和我ktv差不多
+
+*****
+
+####  22P  
+##### 3139#       发表于 2024-4-5 20:51
+
+毕竟中专<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Anatoly  
+##### 3140#       发表于 2024-4-5 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64493369&amp;ptid=2130897" target="_blank">liyropen 发表于 2024-4-5 20:38</a>
+
+偶像科入学考试完全不考vo的吗
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">“传说中的事务所，765pro，就是这么做的”
+
+*****
+
+####  Alicest  
+##### 3141#       发表于 2024-4-5 20:53
+
+高情商：和日花进事务所的时候不相伯仲
+

@@ -9477,3 +9477,13 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 小姬饭田SpringFest的新衣服我说怎么这么眼熟，直接用的设定集里的废案，上次祭典对战曲PV的衣服也是另一个废案改的。
 
+
+*****
+
+####  oi99o  
+##### 3919#       发表于 2024-4-5 18:24
+
+熊老板喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

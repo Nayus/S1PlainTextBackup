@@ -4281,3 +4281,57 @@ kanauru最强……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下录播，捏的还挺像，笑死了
 
+
+*****
+
+####  holoan  
+##### 8572#         楼主| 发表于 2024-4-5 11:08
+
+结果捏完回游戏看实际效果自己发现脸太肥了
+
+*****
+
+####  holoan  
+##### 8573#         楼主| 发表于 2024-4-5 11:11
+
+工商改了好几次时间，运营还要跟着改活动时间也是不容易
+
+<img src="https://img.saraba1st.com/forum/202404/05/111158z6o90g494zjp1995.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 11:11 上传
+
+
+*****
+
+####  holoan  
+##### 8574#         楼主| 发表于 2024-4-5 11:14
+
+<img src="https://img.saraba1st.com/forum/202404/05/111448smmh82c0yop22mm3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (268.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 11:14 上传
+
+什么玩意
+
+*****
+
+####  rs5621  
+##### 8575#       发表于 2024-4-5 11:16
+
+<img src="https://img.saraba1st.com/forum/202404/05/111512rmi02z22b7bl32m0.png" referrerpolicy="no-referrer">
+
+<strong>L3XLBEJ[A]U}](R@9K_D.png</strong> (77.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 11:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实胖了，35的表情是亮点
+

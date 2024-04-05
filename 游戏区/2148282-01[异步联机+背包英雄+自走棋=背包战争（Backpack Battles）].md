@@ -508,3 +508,11 @@ pve玩背包英雄，不过那个深度也不够
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但目前两个无职业石头（拿了这个不刷自己职业东西）和彩虹（拿了这个瞎几把刷所有职业的东西）公认最强，一个无脑加经济，一个无脑加buff收益，赢麻了
 
+
+*****
+
+####  空集  
+##### 52#       发表于 2024-4-5 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 无职业道具那玩啥流派？有点想象不出来
+

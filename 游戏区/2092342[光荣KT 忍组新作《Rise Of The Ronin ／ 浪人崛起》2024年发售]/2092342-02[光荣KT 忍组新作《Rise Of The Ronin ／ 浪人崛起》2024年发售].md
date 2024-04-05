@@ -13791,3 +13791,14 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 通了，酝酿下要不要开二周目品屎
 
+
+*****
+
+####  不会武术  
+##### 2882#       发表于 2024-4-6 01:15
+
+打刀模型配一把歇菜也就算了
+军刀模型怎么也是一长一短的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

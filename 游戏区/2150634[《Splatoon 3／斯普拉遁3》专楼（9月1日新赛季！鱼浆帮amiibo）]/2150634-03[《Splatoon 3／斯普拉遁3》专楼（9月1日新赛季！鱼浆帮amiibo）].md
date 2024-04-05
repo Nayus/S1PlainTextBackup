@@ -9585,3 +9585,16 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 打工打得好好的w3眼看就要胜利突然跳出来软件错误...回来发 ...</blockquote>
 如果游戏装在sd卡里，建议转到内置存储上
 
+
+*****
+
+####  martinium  
+##### 3928#       发表于 2024-4-6 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64496124&amp;ptid=2150634" target="_blank">maomaoying 发表于 2024-4-6 00:40</a>
+大陆这游戏又没上线</blockquote>
+大陆没上线简体是给新马玩家准备的，不过确实官方不好包括大陆我完全可以理解。我是想说这分区完全不符合玩家数吧，日本50%人口，欧美30%，其他地区再20%。这个分区赛制就是搞笑的。
+之前欧美单独拿出来还可以说照顾面子做市场推广，新澳队伍基本就是凑数的，现在加上港台韩我就看不懂什么操作了。尤其欧洲还按国籍分，导致很多强队必须拆开。只能说老任根本就不懂怎么办比赛。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -181,3 +181,21 @@ lifting turn就不指望了，真实赛道boost on感觉也不用指望</blockqu
 
 这段过弯明显是启动什么装置。
 
+
+*****
+
+####  raimouse  
+##### 130#       发表于 2024-4-5 22:34
+
+ 本帖最后由 raimouse 于 2024-4-5 22:35 编辑 
+
+这片人设感觉超骚的，硬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+cv都豪华的爆炸
+
+但是关键的内容感觉就是个便宜的动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果不是跨媒体企划出手游或者政企联动广告片
+
+那我觉得要死透
+

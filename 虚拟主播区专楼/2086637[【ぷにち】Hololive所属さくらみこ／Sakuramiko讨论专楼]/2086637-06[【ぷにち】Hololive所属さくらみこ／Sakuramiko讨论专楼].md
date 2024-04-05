@@ -4443,3 +4443,31 @@ kanauru最强……
 
 运营依然七字母派
 
+
+*****
+
+####  holoan  
+##### 8582#         楼主| 发表于 2024-4-5 22:36
+
+这个月壁纸发了，还有些其他东西
+
+<img src="https://img.saraba1st.com/forum/202404/05/223149ii2dit2ky5httbna.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 22:31 上传
+
+一天1000差不多，不过越接近的时候会越加速
+
+<img src="https://img.saraba1st.com/forum/202404/05/223521bpkpzi1kkze1onkp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 22:35 上传
+
+这么说的话感觉新曲可能又是新的风格了，期待一下
+

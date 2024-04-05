@@ -13725,3 +13725,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Shabadadoo  
+##### 2875#       发表于 2024-4-5 23:04
+
+清河八郎那个红光二连，第一下扫地的怎么反，流程刚舔完江户，感觉这人最难打<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

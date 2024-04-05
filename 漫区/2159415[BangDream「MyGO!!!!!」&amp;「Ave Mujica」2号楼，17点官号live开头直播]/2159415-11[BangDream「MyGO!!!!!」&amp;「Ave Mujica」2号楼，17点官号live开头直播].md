@@ -3027,3 +3027,16 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  makece  
+##### 15061#       发表于 2024-4-5 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489778&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-5 13:47</a>
+
+我是很好奇mggm是怎样说服夏芽mika老师这些算是做技术支援的走上前台的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学乐器的本来也不太可能是为了当一辈子老师才学的吧。
+
+有机会出道上台表演应该没几个会拒绝
+

@@ -1689,3 +1689,27 @@ ml游戏吧里面挺多钓鱼的<img src="https://static.saraba1st.com/image/smi
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷了这什么鬼
 还是收回前言吧，这学马要不爆火要不就是能彻底收了imas的贵物企划
 
+
+*****
+
+####  格雷殿下  
+##### 3130#       发表于 2024-4-5 19:44
+
+游戏里会按lv变歌的吗
+
+*****
+
+####  rgauss  
+##### 3131#       发表于 2024-4-5 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64492801&amp;ptid=2130897" target="_blank">格雷殿下 发表于 2024-4-5 19:44</a>
+游戏里会按lv变歌的吗</blockquote>
+会的 
+
+*****
+
+####  rgauss  
+##### 3132#       发表于 2024-4-5 19:46
+
+dc群里又给开了个健身频道
+

@@ -11333,3 +11333,54 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 打机器人那边该带什么主武器啊，虫子那边捡队友火喷确实打的很爽</blockquote>
 焦土主宰镰刀
 
+
+*****
+
+####  丹德里恩  
+##### 2556#       发表于 2024-4-5 13:18
+
+这2天感觉运输艇血变厚了是我的错觉吗，怎么轰不下来了
+
+*****
+
+####  Aeons  
+##### 2557#       发表于 2024-4-5 13:19
+
+没打到引擎上吧，运输舰这种一炮落和两炮落区别太大了
+
+*****
+
+####  smdzh2  
+##### 2558#       发表于 2024-4-5 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489085&amp;ptid=2170852" target="_blank">用户名未定义 发表于 2024-4-5 13:13</a>
+突然想到个问题，机器人的坦克飞机应该是一个坦克或飞机外形的机器人，还是由人形机器人驾驶的载具。前者更 ...</blockquote>
+载具是哑铃人开的，我记得之前漏油做坦克日常时发现停有坦克的哨站如果触发警报，附近的杂兵会钻进坦克里攻击玩家
+
+
+*****
+
+####  Awanano  
+##### 2559#       发表于 2024-4-5 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489527&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-5 13:10</a>
+焦土主宰镰刀
+
+焦土点胯2枪杀步行机，一梭子各式散热口，还可以侧面溅射到散热口，一梭子杀炮艇，就是伤 ...</blockquote>
+因此就解锁方便程度来说，第三个通行证更好一些？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Aeons  
+##### 2560#       发表于 2024-4-5 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489611&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-4-5 13:22</a>
+
+因此就解锁方便程度来说，第三个通行证更好一些？
+
+论坛助手,iPhone</blockquote>
+
+个人认为是，镰刀非常万金油，虫和机器人都可以用。
+

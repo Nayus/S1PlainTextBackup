@@ -4335,3 +4335,13 @@ kanauru最强……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实胖了，35的表情是亮点
 
+
+*****
+
+####  holoan  
+##### 8576#         楼主| 发表于 2024-4-5 18:15
+
+运营真的是胃口大得离谱了，一来就是直接卖音声set还要价30000日元，我觉得SB都不会去买
+
+这种全捆绑的不知道国内有没有拼的，我撑死出5000，没有合买我就不买了，不过这音声没有购买时间期限就是
+

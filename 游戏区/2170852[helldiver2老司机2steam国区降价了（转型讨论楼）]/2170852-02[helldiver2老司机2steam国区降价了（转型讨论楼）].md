@@ -11529,3 +11529,37 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 —— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版  ...</blockquote>
 打运输船效率最高的方法是一次性筒子齐射，遇上筒子buff两个人5s就能解决四艘船<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 2576#       发表于 2024-4-5 18:12
+
+新公告已经开始给闪击生化斯坦埋桩了
+
+那么欠了我两个指令的军饷呢
+
+*****
+
+####  FLZB  
+##### 2577#       发表于 2024-4-5 18:13
+
+160小时终于暴了一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/05/181331redowa8k5uwc5eze.jpg" referrerpolicy="no-referrer">
+
+<strong>20240405180009_1.jpg</strong> (7.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 18:13 上传
+
+*****
+
+####  风萧飒  
+##### 2578#       发表于 2024-4-5 18:14
+
+笑死，看暗潮吧拿箭头跟肥鲨比，只能说有肥鲨衬托箭头确实看着还挺顺眼的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

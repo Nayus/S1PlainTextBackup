@@ -1791,3 +1791,20 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 高情商：和日花进事务所的时候不相伯仲
 
+
+*****
+
+####  绯田美琴  
+##### 3142#       发表于 2024-4-5 22:38
+
+嘀**嘀嘀嘀啪**啊（饼干）
+
+声优：lv1我已经很努力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 3143#       发表于 2024-4-5 22:41
+
+这lv1，感觉唱着唱着随时会死过去一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

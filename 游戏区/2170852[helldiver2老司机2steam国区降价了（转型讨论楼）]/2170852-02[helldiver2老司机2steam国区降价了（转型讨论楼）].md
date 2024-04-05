@@ -11617,3 +11617,13 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 妈的我再带小精灵我是狗！
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2585#       发表于 2024-4-6 01:06
+
+求教机炮清哨站到底要哪种角度，感觉多数情况得离50米以外正面50度以内才能一炮打爆，角度偏点距离近点死活打不爆<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

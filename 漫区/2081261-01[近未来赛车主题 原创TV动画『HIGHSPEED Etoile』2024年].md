@@ -238,3 +238,28 @@ cv都豪华的爆炸
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">年初去东京改装展这个动画有个很大的站台还放了个SF的展车（有点和周围格格不入），至今没懂这动画想按照啥水平来做
 
+
+*****
+
+####  gammatau  
+##### 133#       发表于 2024-4-6 01:08
+
+很丝滑，不过人脸好像就省事起来了
+
+*****
+
+####  6030sylar  
+##### 134#       发表于 2024-4-6 01:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">车手没台词全程两个主持干聊
+
+*****
+
+####  Anatoly  
+##### 135#       发表于 2024-4-6 01:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不会repo说的没什么交流专注于赛事是这么个专注吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于这解说……漏气流解说吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

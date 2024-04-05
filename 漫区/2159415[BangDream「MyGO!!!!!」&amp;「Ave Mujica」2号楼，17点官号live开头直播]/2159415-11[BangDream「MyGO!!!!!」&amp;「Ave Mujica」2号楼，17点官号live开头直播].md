@@ -3129,3 +3129,14 @@ Mujica vs. MyGO</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  紫吹兰  
+##### 15070#         楼主| 发表于 2024-4-5 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64492372&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-5 19:02</a>
+
+刚刚吃了dj那边联动后宫作品强拆实锤女同导致日推炎上的瓜，只能说wsd在作死上面确实是有一手的 ...</blockquote>
+看了下确实蠢得离谱，也就是靠女角色客串男主打擦边球才没有放烟花
+

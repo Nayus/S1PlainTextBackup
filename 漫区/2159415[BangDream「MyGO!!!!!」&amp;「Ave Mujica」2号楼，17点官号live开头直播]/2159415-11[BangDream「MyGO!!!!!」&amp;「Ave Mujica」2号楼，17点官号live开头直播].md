@@ -2992,3 +2992,26 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 我是很好奇mggm是怎样说服夏芽mika老师这些算是做技术支援的走上前台的
 
+
+*****
+
+####  NODY  
+##### 15058#       发表于 2024-4-5 14:05
+
+这种东北碎花裙难道是日本的新流行吗，一堆声优都爱穿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/05/140428k33u0pm3zi33ilmi.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240405135832.png</strong> (70.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 14:04 上传
+
+*****
+
+####  6030sylar  
+##### 15059#       发表于 2024-4-5 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很正常，按中国地理，日本人都是东北人
+

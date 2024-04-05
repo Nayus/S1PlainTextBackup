@@ -1565,3 +1565,13 @@ Mooncell这个新头图看乐了<img src="https://static.saraba1st.com/image/smi
 
 个人体验，除非是真爱，不然大家主要都是放C呆，兔子狐，CBA或者是裁BA当其阶的助战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 11979#       发表于 2024-4-5 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64488242&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-5 10:48</a>
+干嘛折磨自己 我直接白方块兑换解决了</blockquote>
+当时等不及了，被剧情蛊到想要到手就练满，就硬刷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

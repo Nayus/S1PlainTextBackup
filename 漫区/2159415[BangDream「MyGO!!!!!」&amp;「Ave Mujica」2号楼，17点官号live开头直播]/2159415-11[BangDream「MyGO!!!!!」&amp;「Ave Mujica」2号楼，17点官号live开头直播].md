@@ -3119,3 +3119,13 @@ Mujica vs. MyGO
 Mujica vs. MyGO</blockquote>
 独特的阴湿方式<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 15069#       发表于 2024-4-5 20:09
+
+听说一直是夏芽在教亚子（的声优）打鼓<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

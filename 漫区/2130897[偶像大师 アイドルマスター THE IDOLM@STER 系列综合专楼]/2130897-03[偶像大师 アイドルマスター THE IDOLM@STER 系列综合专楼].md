@@ -1729,3 +1729,20 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 乐观一点的话，游戏里vo最高等级应该得有个lv15左右。学马企划方故意挑了不上不小的来宣传应该算是一种宣传策略？这次瑞典人的pv出来后官方DC群里的日本人都绷不住说唱功问题了，官方应该目前pv的唱功比起以前的企划的平均水准普遍要抱歉一些的认知。当然还有一种可能就学马官方想要追求“真实感”。比如游戏里vo顶级的表现就是中之人现实中上live的话大概能做到的最好程度。考虑到官方曾说过cd的版本又会和游戏的版本不一样，这还真有可能。
 
+
+*****
+
+####  rgauss  
+##### 3135#       发表于 2024-4-5 20:10
+
+把这个视频发群里 群友说 这得狠狠给广上vo课 我要听广背过气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 3136#       发表于 2024-4-5 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没必要把lv1弄的五音不全吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -3140,3 +3140,33 @@ Mujica vs. MyGO</blockquote>
 刚刚吃了dj那边联动后宫作品强拆实锤女同导致日推炎上的瓜，只能说wsd在作死上面确实是有一手的 ...</blockquote>
 看了下确实蠢得离谱，也就是靠女角色客串男主打擦边球才没有放烟花
 
+
+*****
+
+####  鳥栖朝  
+##### 15071#       发表于 2024-4-5 21:09
+
+只能说wsd就是这样的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  6030sylar  
+##### 15072#       发表于 2024-4-5 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64490531&amp;ptid=2159415" target="_blank">makece 发表于 2024-4-5 15:37</a>
+
+学乐器的本来也不太可能是为了当一辈子老师才学的吧。
+
+有机会出道上台表演应该没几个会拒绝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我是说直接上台当角色演员啊，这跟表演完全不同性质啊
+
+*****
+
+####  tsukatsukieiko  
+##### 15073#       发表于 2024-4-5 21:15
+
+怎么说呢，以日本的音乐教育和乐队文化，找个把个打得还成的女鼓手倒没有那么难，但是还肯也能干声优的就没那么多了。
+

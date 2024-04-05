@@ -13733,3 +13733,21 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 清河八郎那个红光二连，第一下扫地的怎么反，流程刚舔完江户，感觉这人最难打<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MuramasaSP  
+##### 2876#       发表于 2024-4-5 23:26
+
+切流派那下压制力比较强，耗精也少，面对小怪可以连着烈风十几次压到死的。
+
+—— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  zqqwe  
+##### 2877#       发表于 2024-4-5 23:30
+
+暗夜双boss任务带了队友也根本拉不住仇恨，遇到铁舟和黑田这几条疯狗同场攻击判定还会重叠，忍组是不是觉得这样很好玩<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

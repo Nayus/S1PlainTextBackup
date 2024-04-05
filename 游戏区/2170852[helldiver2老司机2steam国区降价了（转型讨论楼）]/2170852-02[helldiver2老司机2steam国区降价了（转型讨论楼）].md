@@ -11481,3 +11481,14 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 昨天刚买匹配打了一整天，为什么今天就一个人都匹配不到了，是低难度已经没人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 2571#       发表于 2024-4-5 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64491163&amp;ptid=2170852" target="_blank">超极巨鲨鲨 发表于 2024-4-5 16:43</a>
+
+昨天刚买匹配打了一整天，为什么今天就一个人都匹配不到了，是低难度已经没人了吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重启试试，不行就骂服务器
+

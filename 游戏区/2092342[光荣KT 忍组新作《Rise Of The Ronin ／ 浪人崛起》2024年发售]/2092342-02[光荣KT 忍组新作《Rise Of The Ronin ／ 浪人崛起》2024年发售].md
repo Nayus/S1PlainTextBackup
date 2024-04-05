@@ -13802,3 +13802,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 —— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 2883#       发表于 2024-4-6 01:49
+
+暗夜难度打累了，直接开始双刀扫地玩浪人无双，这个bug慢点修让我再爽爽
+

@@ -11288,3 +11288,11 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Aeons  
+##### 2552#       发表于 2024-4-5 12:52
+
+反器材缺点是不能拆哨站，很难受
+

@@ -1557,3 +1557,11 @@ Mooncell这个新头图看乐了<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干嘛折磨自己 我直接白方块兑换解决了
 
+
+*****
+
+####  cenhr  
+##### 11978#       发表于 2024-4-5 11:46
+
+个人体验，除非是真爱，不然大家主要都是放C呆，兔子狐，CBA或者是裁BA当其阶的助战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

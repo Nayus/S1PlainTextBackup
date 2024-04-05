@@ -11178,3 +11178,29 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  dfbbymice  
+##### 2540#       发表于 2024-4-5 11:37
+
+闪退的原因昨晚上验证了一下，就是队伍里面的一位或者几位的网络有问题，我队伍里面三个人开加速器一个人没开，每把都会闪退还有不能复活的bug。之后全员都开加速器，再也没有闪退和不能复活了，所以如果是开黑的话，尽量备一个加速器，如果出现了闪退问题的话逐一排查队友网络就完事<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 2541#       发表于 2024-4-5 11:39
+
+闪退原因没什么好纠结的，99%责任在贱头
+
+
+*****
+
+####  FLZB  
+##### 2542#       发表于 2024-4-5 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64487971&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-5 10:13</a>
+
+新的斗篷又起节奏了，因为国外社区有人认为那些在麦河体验赛博越南的玩家无视了全局任务，不去击中火力解放 ...</blockquote>
+有被弱智到<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

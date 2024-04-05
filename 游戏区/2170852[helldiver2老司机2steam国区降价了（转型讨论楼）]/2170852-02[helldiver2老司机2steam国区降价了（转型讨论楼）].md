@@ -11451,3 +11451,15 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 是难度问题吗？ 难7以上绿胖模型有变化，从吐酸胖变成迫击胖，包括头在内，绝大部分是中甲，难7以下全身 ...</blockquote>
 包括难7吗，我记得之前是打难7可以扫得死
 
+
+*****
+
+####  Aeons  
+##### 2568#       发表于 2024-4-5 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64490581&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-4-5 15:46</a>
+
+包括难7吗，我记得之前是打难7可以扫得死</blockquote>
+
+难6我忘了，难7镰刀肯定扫不死
+

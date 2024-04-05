@@ -11508,3 +11508,24 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 机器人星球的回复速率从1.5降到0.5了，看来机器人晚上也睡觉
 
+
+*****
+
+####  smdzh2  
+##### 2574#       发表于 2024-4-5 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64491163&amp;ptid=2170852" target="_blank">超极巨鲨鲨 发表于 2024-4-5 17:43</a>
+昨天刚买匹配打了一整天，为什么今天就一个人都匹配不到了，是低难度已经没人了吗 ...</blockquote>
+在地图界面直接找房间，体感连接更稳定一点
+
+*****
+
+####  smdzh2  
+##### 2575#       发表于 2024-4-5 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489327&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-4-5 13:43</a>
+只能说，但是类星体打运输艇真的很爽啊
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版  ...</blockquote>
+打运输船效率最高的方法是一次性筒子齐射，遇上筒子buff两个人5s就能解决四艘船<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

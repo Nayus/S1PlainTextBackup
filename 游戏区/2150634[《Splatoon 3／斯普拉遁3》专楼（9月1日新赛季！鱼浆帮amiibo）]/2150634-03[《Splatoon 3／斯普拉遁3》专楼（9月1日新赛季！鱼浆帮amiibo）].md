@@ -9357,3 +9357,29 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 这期破船还不错，打到800，不过地岗的击破率还是不太行
 
+
+*****
+
+####  罗克萨斯  
+##### 3911#       发表于 2024-4-5 16:16
+
+这赛季不知道能不能打上S+10，狗屎匹配不是连胜就是连负，就不能正常些嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/05/161508sf5pw1rrhdyvrhls.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040516095300-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (251.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/05/161508h9994e3besh3pz2f.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040516104700-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (247.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 16:15 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9415,3 +9415,31 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 3915#       发表于 2024-4-5 17:21
+
+鞋子果然很nice，不枉我期待了那么久
+
+<img src="https://img.saraba1st.com/forum/202404/05/172015mtwsgpzvz6wtm6v7.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040517152500-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (267.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 17:20 上传
+
+铭牌也好看，感觉我会用很久
+
+<img src="https://img.saraba1st.com/forum/202404/05/172059v606g9d67iv9icpi.jpg" referrerpolicy="no-referrer">
+
+<strong>2024040517145000-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (274.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 17:20 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

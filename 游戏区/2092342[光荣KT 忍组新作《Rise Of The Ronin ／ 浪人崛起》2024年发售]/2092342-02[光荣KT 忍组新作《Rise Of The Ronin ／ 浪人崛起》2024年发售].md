@@ -13751,3 +13751,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 暗夜双boss任务带了队友也根本拉不住仇恨，遇到铁舟和黑田这几条疯狗同场攻击判定还会重叠，忍组是不是觉得这样很好玩<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 2878#       发表于 2024-4-5 23:42
+
+牛尾刀可以空战啊，玩起来也太爽了吧来自: iPhone客户端
+

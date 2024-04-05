@@ -9523,3 +9523,14 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 打工打得好好的w3眼看就要胜利突然跳出来软件错误...回来发现被罚坐牢了
 机子是前年日亚买的动森机，暗示我要换机子了么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  martinium  
+##### 3924#       发表于 2024-4-5 23:53
+
+哈哈，世锦赛分区，北美，欧洲，新澳，韩国，港台。这就是日本人眼中的世界吧，光看这个分区我就乐了。
+你说前两代我还能认为是游戏版本的原因。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

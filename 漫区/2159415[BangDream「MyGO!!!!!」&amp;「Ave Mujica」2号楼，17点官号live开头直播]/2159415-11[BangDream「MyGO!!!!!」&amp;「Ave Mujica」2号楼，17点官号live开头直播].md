@@ -3228,3 +3228,11 @@ Cure White就一嫂那一个<img src="https://static.saraba1st.com/image/smiley/
 
 天音妹妹这废太子手指拗出唔拗入三天两头就叛变
 
+
+*****
+
+####  紫吹兰  
+##### 15080#         楼主| 发表于 2024-4-5 23:56
+
+GBC这第一话实锤TXL还行
+

@@ -15,3 +15,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">日服那帮废物到现在还没把谷歌课金问题修好呢
 
+
+*****
+
+####  shamal0324  
+##### 116#       发表于 2024-4-5 23:56
+
+问一下，LO有哪些地方可以云剧情的？有日文就行
+
+b站找不到，you管找了找只有一处JQGNSboLc3E，而且只有开头，估计是不全的
+

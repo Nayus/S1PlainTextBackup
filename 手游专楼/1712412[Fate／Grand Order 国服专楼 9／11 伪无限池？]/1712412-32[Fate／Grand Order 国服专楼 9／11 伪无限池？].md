@@ -492,3 +492,15 @@ nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝
  深夜不要抽卡会上头  金时虽然还是出了但是攒给兽尼的一滴都没有了骂死他你有什么头 ...</blockquote>
 兽尼基本4月下旬，石头也攒不了多少
 
+
+*****
+
+####  khxooo  
+##### 46287#       发表于 2024-4-6 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64492896&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2024-4-5 19:53</a>
+深夜不要抽卡会上头
+
+金时虽然还是出了但是攒给兽尼的一滴都没有了骂死他你有什么头 ...</blockquote>
+等水C呆吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

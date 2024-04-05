@@ -3260,3 +3260,11 @@ GBC这第一话实锤TXL还行
 
 [https://twitter.com/htq_7/status/1775803995560542668/photo/1](https://twitter.com/htq_7/status/1775803995560542668/photo/1)
 
+
+*****
+
+####  gammatau  
+##### 15083#       发表于 2024-4-6 01:58
+
+对比一下感觉mygo这3d效果是真好
+

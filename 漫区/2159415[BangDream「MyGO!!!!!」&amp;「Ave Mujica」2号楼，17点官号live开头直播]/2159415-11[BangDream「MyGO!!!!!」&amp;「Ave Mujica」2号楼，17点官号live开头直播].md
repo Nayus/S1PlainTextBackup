@@ -3062,3 +3062,14 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 —— 来自 Realme RMX18 ...</blockquote>
 有虹虹那边的活儿，林小姐就是大忙人、不沾锅；没有那就是姨位、气氛组……现在问谁是队长还要在林/青木间犹豫一下，本来应该青木铁打的立德才对
 
+
+*****
+
+####  枫林不见  
+##### 15064#       发表于 2024-4-5 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489680&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-5 13:32</a>
+
+这还是要在意一下的，林小姐其实还好了，meguchi是目前邦邦所有真人团里唯一0基础进企划后现练的鼓手，结 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没办法的，这是鼓手的基本属性，和贝斯负责去拿外卖一样
+

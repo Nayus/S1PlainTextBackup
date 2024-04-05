@@ -13625,3 +13625,12 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 萨道义第一次出来我以为是果心居士那样的黑手锅侠定位，直到他头上冒出个粉色好感度…
 
+
+*****
+
+####  nagitoY  
+##### 2864#       发表于 2024-4-5 18:25
+
+<blockquote>[ duraa replied on 2024-4-5 14:42](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64490104&amp;ptid=2092342) 看到有回避哥打暗夜道馆极传的了 </blockquote>
+打的高杉晋作，这人连招不长本来就挺好打的。不过全程不用石火确实是个好思路来自: iPhone客户端
+

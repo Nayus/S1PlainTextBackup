@@ -433,3 +433,18 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 为什么还有人机<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">是玩的人不够多吗
 
+
+*****
+
+####  raimouse  
+##### 156#       发表于 2024-4-6 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64496045&amp;ptid=2081261" target="_blank">鸯凰麟翔子 发表于 2024-4-6 00:31</a>
+
+没人转啊傍晚就出消息了手游但是....居然是消消乐....</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整个便宜赛车动画，然后出个消消乐手游
+
+这企划怎么那么抽象
+
+哪怕外包给藤子做个二次元QQ飞机呢
+

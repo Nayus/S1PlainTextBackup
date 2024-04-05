@@ -30,3 +30,14 @@ v0.16.2 更新了可以试下有没有修复。</blockquote>
 —— 来自 HUAWEI OXF-AN10, Androi ...</blockquote>
 要选插件
 
+
+*****
+
+####  Junakr  
+##### 213#       发表于 2024-4-5 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64488833&amp;ptid=2167901" target="_blank">t222 发表于 2024-4-5 11:47</a>
+
+登录bangumi后就能多端同步阅读进度了吗？</blockquote>
+tracker 可以用于同步阅读状态，不过只适合用于更新最远进度。
+

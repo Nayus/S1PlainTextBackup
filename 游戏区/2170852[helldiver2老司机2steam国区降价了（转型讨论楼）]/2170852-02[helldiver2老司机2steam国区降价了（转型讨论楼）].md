@@ -11296,3 +11296,19 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 反器材缺点是不能拆哨站，很难受
 
+
+*****
+
+####  FLZB  
+##### 2553#       发表于 2024-4-5 12:57
+
+重机枪打不准的原因找到了，有时候真相远没有想象中的那么复杂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/05/125616o7qss077403n87s1.jpg" referrerpolicy="no-referrer">
+
+<strong>h.jpg</strong> (126.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 12:56 上传
+

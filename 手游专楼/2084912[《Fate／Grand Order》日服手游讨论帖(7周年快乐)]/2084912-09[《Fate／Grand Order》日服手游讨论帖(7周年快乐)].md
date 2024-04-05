@@ -1530,3 +1530,22 @@ Mooncell这个新头图看乐了<img src="https://static.saraba1st.com/image/smi
 
 还在尿壶地狱中（不打算用白方块换），升到310再挂出去
 
+
+*****
+
+####  清河子  
+##### 11975#       发表于 2024-4-5 10:32
+
+我早早就刷好练好挂出去了，也没人抱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一宝特意抱好友的意义不大吧大概，没啥需求的本
+
+至于图鉴 怀疑我的好友人均都抽了
+
+*****
+
+####  清河子  
+##### 11976#       发表于 2024-4-5 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64485633&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-4-4 23:00</a>
+还在尿壶地狱中（不打算用白方块换），升到310再挂出去</blockquote>
+这金壶是真的难刷，刷的时候真给我恶心吐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">产生了弓饼干ptsd
+

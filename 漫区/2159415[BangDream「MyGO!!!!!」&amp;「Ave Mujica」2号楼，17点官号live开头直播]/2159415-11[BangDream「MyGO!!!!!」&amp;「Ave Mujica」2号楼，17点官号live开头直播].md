@@ -3015,3 +3015,15 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很正常，按中国地理，日本人都是东北人
 
+
+*****
+
+####  nebulanoby  
+##### 15060#       发表于 2024-4-5 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489778&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-5 13:47</a>
+我是很好奇mggm是怎样说服夏芽mika老师这些算是做技术支援的走上前台的</blockquote>
+女士，你也不想自己丢掉工作吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

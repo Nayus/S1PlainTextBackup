@@ -13617,3 +13617,11 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 西乡能硬吃宝藏院防反继续出招真是粪到我了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 2863#       发表于 2024-4-5 17:34
+
+萨道义第一次出来我以为是果心居士那样的黑手锅侠定位，直到他头上冒出个粉色好感度…
+

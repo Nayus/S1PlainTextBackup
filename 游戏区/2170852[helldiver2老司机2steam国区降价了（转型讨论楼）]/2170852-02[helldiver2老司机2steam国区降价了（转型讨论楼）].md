@@ -11416,3 +11416,11 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 没打到引擎上吧，运输舰这种一炮落和两炮落区别太大了</blockquote>
 原来我用榴弹砸的时候都不需要刻意瞄引擎的，现在不行了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 2564#         楼主| 发表于 2024-4-5 14:34
+
+新债券除了那把弩看上去都不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

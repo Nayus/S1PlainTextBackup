@@ -13713,3 +13713,15 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 —— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ouyang菌  
+##### 2874#       发表于 2024-4-5 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64494320&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-04-05 22:10:42</a>
+另外英勇那一栏全点满了，还会获取英勇书，是不是完全没用了</blockquote>点到100级以后可以把专属点数变普通技能点数，不过普通后期也是溢出的，主要给二周目的开新天赋树用的
+但是开新那个加的数值属实是有点拉了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

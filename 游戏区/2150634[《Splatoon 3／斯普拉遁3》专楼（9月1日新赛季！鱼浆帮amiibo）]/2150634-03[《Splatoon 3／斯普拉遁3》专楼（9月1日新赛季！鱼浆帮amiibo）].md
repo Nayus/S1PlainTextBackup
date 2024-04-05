@@ -9574,3 +9574,14 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 你 ...</blockquote>
 大陆这游戏又没上线
 
+
+*****
+
+####  RedPig  
+##### 3927#       发表于 2024-4-6 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64493581&amp;ptid=2150634" target="_blank">Teiume 发表于 2024-4-5 20:56</a>
+想问一下有人遇到过软件错误强制退出的问题么。
+打工打得好好的w3眼看就要胜利突然跳出来软件错误...回来发 ...</blockquote>
+如果游戏装在sd卡里，建议转到内置存储上
+

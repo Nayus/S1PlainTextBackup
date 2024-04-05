@@ -161,3 +161,23 @@ lifting turn就不指望了，真实赛道boost on感觉也不用指望
 
 <img src="https://p.sda1.dev/16/659e5974d23ecaad96de66bd77e2a86c/20240405_164337.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 129#       发表于 2024-4-5 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64473493&amp;ptid=2081261" target="_blank">88is88 发表于 2024-4-3 18:24</a>
+
+lifting turn就不指望了，真实赛道boost on感觉也不用指望</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202404/05/230801b1cc1t1p721z8sp1.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (118.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-5 22:08 上传
+
+这段过弯明显是启动什么装置。
+

@@ -11312,3 +11312,24 @@ n4虫子机器人打打就上手了，打虫子是战斗爽，打机器人是尖
 
 2024-4-5 12:56 上传
 
+
+*****
+
+####  Awanano  
+##### 2554#       发表于 2024-4-5 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489287&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-5 12:38</a>
+我现在高难机器人带反器材，可以远距离点掉火箭蹂躏者，也能正面强杀无畏，打炮艇效率也很高，甚至可以超远 ...</blockquote>
+打机器人那边该带什么主武器啊，虫子那边捡队友火喷确实打的很爽
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Aeons  
+##### 2555#       发表于 2024-4-5 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489513&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-4-5 13:08</a>
+打机器人那边该带什么主武器啊，虫子那边捡队友火喷确实打的很爽</blockquote>
+焦土主宰镰刀
+

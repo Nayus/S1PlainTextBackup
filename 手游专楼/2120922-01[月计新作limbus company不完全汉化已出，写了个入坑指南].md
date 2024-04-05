@@ -144,3 +144,15 @@
 
 赛博女鬼真是阴魂不散啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 624#       发表于 2024-4-5 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64481654&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-4-4 15:07</a>
+
+赛博女鬼真是阴魂不散啊</blockquote>
+有种说法是每个角色的三阶突破剧情都是卡门在旁边看着，审视都市中的个体是否有资格继承光之种，所以旁白对人格的称呼都是“孩子”。
+赛博老妖婆
+

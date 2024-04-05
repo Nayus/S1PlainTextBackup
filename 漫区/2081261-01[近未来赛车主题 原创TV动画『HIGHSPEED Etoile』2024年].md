@@ -381,3 +381,24 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 全自动机械换胎，竟然比某支荧光绿车队还慢。甚至还能聊会天。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仓鼠吃火锅  
+##### 151#       发表于 2024-4-6 02:19
+
+还以为一队分一个，原来油咖喱是ai<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Anatoly  
+##### 152#       发表于 2024-4-6 02:22
+
+ 本帖最后由 Anatoly 于 2024-4-6 02:25 编辑 
+
+草，不看f1，去搜了搜索博
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">这52秒的换胎是啥玩意儿，我对换胎梗的印象还停留在法拉利
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

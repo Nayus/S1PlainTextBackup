@@ -2938,3 +2938,30 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 
 破案了，是母鸡卡回
 
+
+*****
+
+####  后藤一里  
+##### 15052#       发表于 2024-4-5 13:29
+
+恭喜两位女嘉宾牵手成功<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/2ca8f3fd6f35b89c9a006cb204f13bcb/CMP_20240405132846759.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫吹兰  
+##### 15053#         楼主| 发表于 2024-4-5 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64479406&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-4-4 10:25</a>
+
+鼓手的事情不用太在意了，无论现实还是动画里</blockquote>
+这还是要在意一下的，林小姐其实还好了，meguchi是目前邦邦所有真人团里唯一0基础进企划后现练的鼓手，结果现在基本承担了最重的任务，ako的人气还是每次人气投票里r组前十五缺一<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  后藤一里  
+##### 15054#       发表于 2024-4-5 13:33
+
+青木阳菜想当光之美少女，不知道还有没有机会，小时候想成为cure white，不知道是哪代的
+

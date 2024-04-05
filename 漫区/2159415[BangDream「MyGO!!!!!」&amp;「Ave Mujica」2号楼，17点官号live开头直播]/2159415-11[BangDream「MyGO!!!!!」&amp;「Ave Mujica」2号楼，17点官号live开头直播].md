@@ -3073,3 +3073,21 @@ Choir ‘S’ Choir居然是草原的印象，这个真想不到<img src="https:
 这还是要在意一下的，林小姐其实还好了，meguchi是目前邦邦所有真人团里唯一0基础进企划后现练的鼓手，结 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没办法的，这是鼓手的基本属性，和贝斯负责去拿外卖一样
 
+
+*****
+
+####  NODY  
+##### 15065#       发表于 2024-4-5 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64492124&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-4-5 18:29</a>
+
+没办法的，这是鼓手的基本属性，和贝斯负责去拿外卖一样</blockquote>
+但你邦还是推起了几个高人气贝斯手的，鼓手一直这个鬼样子只能说确实是wsd不想推也推不动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15066#       发表于 2024-4-5 19:02
+
+刚刚吃了dj那边联动后宫作品强拆实锤女同导致日推炎上的瓜，只能说wsd在作死上面确实是有一手的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

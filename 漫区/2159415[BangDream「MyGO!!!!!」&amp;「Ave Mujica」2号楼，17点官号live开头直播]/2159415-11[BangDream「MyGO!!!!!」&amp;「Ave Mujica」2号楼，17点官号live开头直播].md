@@ -3189,3 +3189,21 @@ Cure White就一嫂那一个<img src="https://static.saraba1st.com/image/smiley/
 
 青木阳菜如果是81P的，那随便光美；响社那就等于想接三森的位，太子宣言
 
+
+*****
+
+####  紫吹兰  
+##### 15076#         楼主| 发表于 2024-4-5 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64493784&amp;ptid=2159415" target="_blank">tsukatsukieiko 发表于 2024-4-5 21:15</a>
+
+怎么说呢，以日本的音乐教育和乐队文化，找个把个打得还成的女鼓手倒没有那么难，但是还肯也能干声优的就没 ...</blockquote>
+邦邦当年和赛赛对邦后只拉了梅村去DJ，应该说多少是应该有点想法的，哪知道她去当富太太了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 15077#       发表于 2024-4-5 21:50
+
+还好我们邦邦根本没有实锤女同的不怕被拆。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

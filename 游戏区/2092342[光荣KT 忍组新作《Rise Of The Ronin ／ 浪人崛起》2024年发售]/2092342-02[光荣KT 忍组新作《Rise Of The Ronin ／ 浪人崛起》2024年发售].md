@@ -13759,3 +13759,27 @@ c技长派生有啥用，没offset能放的完？ffo那几个长点的c技，有
 
 牛尾刀可以空战啊，玩起来也太爽了吧来自: iPhone客户端
 
+
+*****
+
+####  松风君  
+##### 2879#       发表于 2024-4-5 23:56
+
+ 本帖最后由 松风君 于 2024-4-5 16:57 编辑 
+
+暗夜难度刚进江户装等完全跟不上就去清赤化据点实在太酸爽，敌人的掉落品还没有野生浪人助人配好的装强
+
+意外偶遇了被敌人捉住捆绑play的大众脸涩泽光老师（没有发型差评）和路人浪人双马尾玛丽罗斯
+
+想来有个蛮常碰到的Kodama Seeker/木灵探索者也是官方助人，只是这一次完全没汉化嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 2880#       发表于 2024-4-6 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64495265&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-5 23:42</a>
+牛尾刀可以空战啊，玩起来也太爽了吧</blockquote>
+感觉空战应该是想做但后面砍掉了
+

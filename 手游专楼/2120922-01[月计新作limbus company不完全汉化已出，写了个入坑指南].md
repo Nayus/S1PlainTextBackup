@@ -169,3 +169,14 @@
 
 有小道消息说p3要跟扭曲小夫和凯瑟琳混合双打，加上mili的新歌。请给我一棍直接快进到11号吧，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 626#       发表于 2024-4-5 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64490156&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-4-5 14:49</a>
+
+主要p2后面太劲爆了，前有都市女鬼和庄园女鬼中门对狙小夫对殴至大道磨灭，后有卡门一小节两单拉爆kpi[f: ...</blockquote>
+扭曲鳏夫带着亡妻鬼魂，请允许我点一首Gone Angels<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

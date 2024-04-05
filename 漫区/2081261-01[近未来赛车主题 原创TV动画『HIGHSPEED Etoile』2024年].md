@@ -199,3 +199,26 @@ cv都豪华的爆炸
 
 那我觉得要死透
 
+
+*****
+
+####  鸯凰麟翔子  
+##### 131#       发表于 2024-4-6 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64494537&amp;ptid=2081261" target="_blank">raimouse 发表于 2024-4-5 22:34</a>
+
+这片人设感觉超骚的，硬了
+
+cv都豪华的爆炸
+
+但是关键的内容感觉就是个便宜的动画</blockquote>
+没人转啊傍晚就出消息了手游但是....居然是消消乐....
+
+<img src="https://img.saraba1st.com/forum/202404/06/003128f0wddo0mjeoecdvp.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240406003104.jpg</strong> (144.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 00:31 上传
+

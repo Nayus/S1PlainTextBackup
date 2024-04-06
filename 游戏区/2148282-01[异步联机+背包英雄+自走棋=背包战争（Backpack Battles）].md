@@ -535,3 +535,13 @@ pve玩背包英雄，不过那个深度也不够
 无职业道具那玩啥流派？有点想象不出来</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每回合给两块钱经济，然后这东西还生成盾，卡池去职业物品专职发展通用，赢麻了都快，看见直接拿
 
+
+*****
+
+####  whzfjd  
+##### 55#       发表于 2024-4-7 02:49
+
+被揍久了上分都分外紧张，也不在意段位，就像让自己运营出来的背包多打一会（这难道是没有无尽模式的人为制造稀缺性阴谋？）。
+
+最后仅剩一血的战斗都是反复按暂停看的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

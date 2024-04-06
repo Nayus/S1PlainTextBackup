@@ -1850,3 +1850,21 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 但是我们有第二季！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有毛用，两季加起来能有我们百万一季卖的多吗
 
+
+*****
+
+####  微尘众  
+##### 3148#       发表于 2024-4-6 11:49
+
+卖的多有二期了吗
+
+
+*****
+
+####  Alicest  
+##### 3149#       发表于 2024-4-6 11:53
+
+别互撕了 卖得再多亦或是有第二季都要给学垫脚
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

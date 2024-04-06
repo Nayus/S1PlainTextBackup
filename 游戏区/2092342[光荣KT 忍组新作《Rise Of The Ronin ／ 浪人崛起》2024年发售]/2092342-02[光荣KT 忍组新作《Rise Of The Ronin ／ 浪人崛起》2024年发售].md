@@ -14000,3 +14000,11 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 —— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wuyuesuzhu  
+##### 2901#       发表于 2024-4-6 23:14
+
+法神流这JUST大剑还以为跟隔壁relink飞哥一样可以一直连下去，结果是只能强化下一技的模式，有点难崩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

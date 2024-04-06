@@ -3617,3 +3617,116 @@ NB，没有mv，我说他背景平移播片都高看他了<img src="https://stat
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">……不知道说什么
 
+
+*****
+
+####  笋干爆炸碱  
+##### 15122#       发表于 2024-4-6 23:04
+
+wsd是真的死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 15123#       发表于 2024-4-6 23:05
+
+傻逼WSD，哈哈，这下真后妈养的了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纯田まな  
+##### 15124#       发表于 2024-4-6 23:05
+
+意料之内<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 15125#       发表于 2024-4-6 23:05
+
+wsd是不是没经费了 这么恶心人
+
+*****
+
+####  御幸一也  
+##### 15126#       发表于 2024-4-6 23:06
+
+幹你娘武士道 再說一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15127#       发表于 2024-4-6 23:06
+
+武士道要倒闭了吧
+
+*****
+
+####  星空冻结  
+##### 15128#       发表于 2024-4-6 23:06
+
+相信wsd是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15129#       发表于 2024-4-6 23:09
+
+武士道播完ave mujic趕緊倒閉算了 好噁心<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuyin589  
+##### 15130#       发表于 2024-4-6 23:09
+
+之前跟群友聊天表示，只要不是一张鬼图做五个ppt就满足了，没想到连ppt都没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  yujz  
+##### 15131#       发表于 2024-4-6 23:10
+
+BSR,WRNG
+
+*****
+
+####  PDQ4  
+##### 15132#       发表于 2024-4-6 23:12
+
+太幽默了，约个图的钱都不愿意出，周年非得让治愈画一张是不是很委屈啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yujz  
+##### 15133#       发表于 2024-4-6 23:12
+
+<img src="https://img.saraba1st.com/forum/202404/06/231216w2m2sr5ccs4s8s4r.png" referrerpolicy="no-referrer">
+
+<strong>69be1b9da9f5546ebcf2eb632a8d0598.png</strong> (78.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 23:12 上传
+
+幽默
+
+*****
+
+####  滑稽Captain  
+##### 15134#       发表于 2024-4-6 23:13
+
+歌词看了感觉就是偏向火焰元素的，和以往歌词相近的风格，作曲也是老朋友长谷川大介
+
+*****
+
+####  -LYRE-  
+##### 15135#       发表于 2024-4-6 23:14
+
+好消息：mv不再是ppt
+坏消息：直接没有mv
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+

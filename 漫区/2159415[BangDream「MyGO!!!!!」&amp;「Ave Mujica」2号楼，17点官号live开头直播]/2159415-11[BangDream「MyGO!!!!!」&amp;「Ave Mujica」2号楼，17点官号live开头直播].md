@@ -3527,3 +3527,18 @@ onp，一打开就是一阵强劲的音乐响起<img src="https://static.saraba1
 
 新歌比之前好多了，是正经金属
 
+
+*****
+
+####  ac408010  
+##### 15111#       发表于 2024-4-6 22:13
+
+好炸的鼓，好惨的猫
+
+*****
+
+####  御幸一也  
+##### 15112#       发表于 2024-4-6 22:15
+
+作曲編曲和歌詞都要等0點<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

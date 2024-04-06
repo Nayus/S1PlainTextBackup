@@ -522,3 +522,11 @@ nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝
 
 只能相信兽尼可以五护符满宝了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 46290#       发表于 2024-4-6 22:07
+
+术阶从强度上来不用抽吧
+

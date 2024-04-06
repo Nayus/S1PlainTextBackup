@@ -3477,3 +3477,22 @@ white是初代的，大嫂<img src="https://static.saraba1st.com/image/smiley/fa
 
 onp，一打开就是一阵强劲的音乐响起<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 15105#       发表于 2024-4-6 21:36
+
+看了一下蝶角色歌就是小白第一个放，那真是初华角色歌打头也有可能，这首歌主音吉他还挺劲爆的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 15106#       发表于 2024-4-6 21:39
+
+不是角色曲说明是五首世界观，给我帅飞了。<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+歌名不知道是没爆还是就叫symol I： △
+
+这下五阶段了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

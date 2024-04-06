@@ -3496,3 +3496,34 @@ onp，一打开就是一阵强劲的音乐响起<img src="https://static.saraba1
 
 这下五阶段了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15107#       发表于 2024-4-6 21:45
+
+母鸡卡的原创曲终于可以说一句好听了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15108#       发表于 2024-4-6 21:46
+
+不过这个鼓点正式live肯定得上简谱了
+
+*****
+
+####  PDQ4  
+##### 15109#       发表于 2024-4-6 21:48
+
+5分多钟，上简谱米泽也要瘫了，节奏吉他也是不停。
+
+合理怀疑新曲子都这么炸，所以2nd才隔一个月给两位休养生息。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 15110#       发表于 2024-4-6 21:50
+
+新歌比之前好多了，是正经金属
+

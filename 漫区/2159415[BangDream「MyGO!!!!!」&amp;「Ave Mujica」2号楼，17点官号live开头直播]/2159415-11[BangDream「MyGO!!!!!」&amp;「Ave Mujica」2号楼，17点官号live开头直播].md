@@ -3567,3 +3567,30 @@ onp，一打开就是一阵强劲的音乐响起<img src="https://static.saraba1
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  相坂君  
+##### 15116#       发表于 2024-4-6 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这鼓难保没点私人恩怨嗷，祐天寺小姐你跟丰川小姐有没有什么血仇，留到这辈子报啊
+
+*****
+
+####  nebulanoby  
+##### 15117#       发表于 2024-4-6 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64504842&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-4-6 22:40</a>
+
+你们都在哪儿听的啊！
+
+—— 来自 vivo V2227A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+上资源站，我私信你神必代码了
+
+*****
+
+####  nebulanoby  
+##### 15118#       发表于 2024-4-6 22:50
+
+话说刚刚看到Afterglow的MiniAlbum也出了，今天也有活动，楼里真没讨论啊，唉老东西<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -11834,3 +11834,21 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，卡的飞起，跑八百米外才做出那东西的动作
 
+
+*****
+
+####  LrGsite  
+##### 2604#       发表于 2024-4-6 22:46
+
+<img src="https://img.chkaja.com/04cef277060fdf22.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/06/224533phddvoduw4phomu9.jpg" referrerpolicy="no-referrer">
+
+<strong>{VO)R~GL9U9WOJ]{U8)924L.jpg</strong> (464.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 22:45 上传
+
+头次见ATAT,另外,难9的2个炮艇塔在一起也太逆天了吧,被打的抱头鼠窜<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

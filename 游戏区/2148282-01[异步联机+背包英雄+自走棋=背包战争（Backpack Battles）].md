@@ -524,3 +524,14 @@ pve玩背包英雄，不过那个深度也不够
 
 在白金段有点瓶颈了，怎么感觉匹配的都是某个回合的天胡配置，比如第一回合，系统给我来了个锤子加衣服的。
 
+
+*****
+
+####  afer  
+##### 54#       发表于 2024-4-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64491803&amp;ptid=2148282" target="_blank">空集 发表于 2024-4-5 17:48</a>
+
+无职业道具那玩啥流派？有点想象不出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每回合给两块钱经济，然后这东西还生成盾，卡池去职业物品专职发展通用，赢麻了都快，看见直接拿
+

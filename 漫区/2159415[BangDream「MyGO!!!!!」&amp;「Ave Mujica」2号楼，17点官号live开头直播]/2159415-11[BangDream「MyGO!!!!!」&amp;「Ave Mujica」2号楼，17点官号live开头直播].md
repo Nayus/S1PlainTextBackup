@@ -3268,3 +3268,14 @@ GBC这第一话实锤TXL还行
 
 对比一下感觉mygo这3d效果是真好
 
+
+*****
+
+####  紫吹兰  
+##### 15084#         楼主| 发表于 2024-4-6 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64494356&amp;ptid=2159415" target="_blank">云界丶风月 发表于 2024-4-5 22:13</a>
+
+看到个MYGO巡演的推 不知道真的还是假的</blockquote>
+我觉得即便是海日也不会弱智到让MyGO去宛平南路
+

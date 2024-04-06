@@ -104,3 +104,22 @@ https://lo.swaytwig.com/</blockquote>
 这游戏换过文案的，主线前六章、早期的角色外传和晚餐活动就又水又无聊，菜得工业糖精都造不明白 ...</blockquote>
 听说有老虚写的，是哪章啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  铁火辉夜  
+##### 123#       发表于 2024-4-6 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497815&amp;ptid=2078383" target="_blank">shamal0324 发表于 2024-4-6 10:27</a>
+
+听说有老虚写的，是哪章啊</blockquote>
+怒りの狼牙
+
+
+*****
+
+####  请问有猪扒饭吗  
+##### 124#       发表于 2024-4-6 10:41
+
+忽然想起来日服去年是不是还画过饼说要出中文版来着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

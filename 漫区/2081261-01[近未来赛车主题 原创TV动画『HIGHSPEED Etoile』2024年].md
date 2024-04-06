@@ -524,3 +524,11 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 还有反正ed卡藤真都画了一姬了，干脆别赛车了打麻将吧，绝对比赛车好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  weige  
+##### 165#       发表于 2024-4-6 11:42
+
+除了解说在摆烂，也没那么差吧2333
+

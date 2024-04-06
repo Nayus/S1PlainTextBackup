@@ -11683,3 +11683,34 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 喷火器打虫子好爽，但是感觉n5之后喷火器可能不够用，没有快速处理强袭虫的能力，到处跑路拉怪一顿烧，经常就是跳虫骑脸把脚下的地面烧起来了，引火上身自己再接个飞扑灭火然后怪海就到脸上了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 2591#       发表于 2024-4-6 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498329&amp;ptid=2170852" target="_blank">bakuza 发表于 2024-4-6 11:31</a>
+喷火器打虫子好爽，但是感觉n5之后喷火器可能不够用，没有快速处理强袭虫的能力，到处跑路拉怪一顿烧，经常 ...</blockquote>
+喷火烧强袭还行吧，两次冲锋基本上就能烧死了，可能也就轨道炮攻击和筒子爆头杀得比喷火器快了。
+
+
+*****
+
+####  smdzh2  
+##### 2592#       发表于 2024-4-6 11:43
+
+真有冲着披风tk的🐶啊，落地就把穿麦河披风的两个队友鲨了，还想过来tk我，可惜我手上有盾牌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丹德里恩  
+##### 2593#       发表于 2024-4-6 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498404&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-4-6 11:39</a>
+
+喷火烧强袭还行吧，两次冲锋基本上就能烧死了，可能也就轨道炮攻击和筒子爆头杀得比喷火器快了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">镰刀一梭子
+[https://www.bilibili.com/video/BV1mZ421h74p](https://www.bilibili.com/video/BV1mZ421h74p)
+
+还有什么榴弹/手雷炸地板，也比喷火快
+

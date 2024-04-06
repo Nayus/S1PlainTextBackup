@@ -540,3 +540,22 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 当真低配版GPX啊，就主角的AI会说话
 
+
+*****
+
+####  hlazd  
+##### 167#       发表于 2024-4-6 12:25
+
+动画质量真的一般OP又难听…可惜了藤真的人设和这个声优阵容了
+
+*****
+
+####  raimouse  
+##### 168#       发表于 2024-4-6 12:26
+
+第一集看完了，果然跟预期的一样寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这解说还不如不做呢，事务性讲解的味道拉满了催眠的要死
+
+还有就是为什么御三家只有油咖喱是AI<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4110,3 +4110,26 @@ wsd永远比我想象的更幽默<img src="https://static.saraba1st.com/image/sm
 
 去年1/27前罵說讓人等1st情報，總不能現在罵還要摀嘴讓人等到動畫開播，天啊那也太能摀<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  twi  
+##### 15173#       发表于 2024-4-7 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64506242&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-7 00:15</a>
+
+一直這樣，那不是更加欠罵了嗎
+
+去年1/27前罵說讓人等1st情報，總不能現在罵還要摀嘴讓人等到動畫 ...</blockquote>
+先画饼，再画饼，总之mujica就是有资源的，未来可期
+
+
+*****
+
+####  PDQ4  
+##### 15174#       发表于 2024-4-7 00:21
+
+未来可期？
+
+wsd别先似了让大伙去仓库里偷mujica剧本。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

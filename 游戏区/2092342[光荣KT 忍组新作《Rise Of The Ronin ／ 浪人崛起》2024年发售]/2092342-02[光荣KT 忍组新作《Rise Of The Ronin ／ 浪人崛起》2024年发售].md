@@ -14026,3 +14026,19 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  寂长无星夜  
+##### 2904#       发表于 2024-4-7 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">我突然发现在雨里能打伞走...忍组真是做出了我心目中的武侠风
+
+<img src="https://img.saraba1st.com/forum/202404/07/002017bglqvhlg6dpdlhu5.jpg" referrerpolicy="no-referrer">
+
+<strong>浪人崛起_202404.jpg</strong> (561.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 00:20 上传
+

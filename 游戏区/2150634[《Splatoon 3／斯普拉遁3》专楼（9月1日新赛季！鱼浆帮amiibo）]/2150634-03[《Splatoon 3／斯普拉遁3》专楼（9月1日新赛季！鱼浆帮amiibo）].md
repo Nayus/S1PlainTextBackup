@@ -9640,3 +9640,18 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  墨染白泉  
+##### 3933#       发表于 2024-4-6 16:42
+
+今天我的有线连接一样掉，碰到好几次炸房，老任能不能不让网差的当房主<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 3934#       发表于 2024-4-6 16:44
+
+本来快打到s+7了，硬生生的因为炸房把分掉回去了
+

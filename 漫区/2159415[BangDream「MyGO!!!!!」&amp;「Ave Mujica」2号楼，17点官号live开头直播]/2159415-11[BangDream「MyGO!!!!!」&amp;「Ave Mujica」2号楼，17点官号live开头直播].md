@@ -3834,3 +3834,85 @@ BSR,WRNG
 
 最难绷的是这连续五首 第一首没有mv意味着剩下的也大概率没有mv<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  twi  
+##### 15147#       发表于 2024-4-6 23:27
+
+bfhl没惹。。
+
+*****
+
+####  相坂君  
+##### 15148#       发表于 2024-4-6 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">什么，5首都发流媒体链接？哎哟，这就是ave mujica吗！待遇太好了辣
+
+*****
+
+####  笋干爆炸碱  
+##### 15149#       发表于 2024-4-6 23:29
+
+唉7号是海铃生日呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+结果就这
+
+
+*****
+
+####  PDQ4  
+##### 15150#       发表于 2024-4-6 23:30
+
+按照元素走，剩下四张网图呼之欲出，路上随便抓个人都能做的程度。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+想想也是，4月放出第一首，8月最后一首，本来就和2nd视觉图无关，谁家1st宣传的东西2nd前还没放完啊。
+
+我以为7月那场完了该进入宣传期，现在害怕了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15151#       发表于 2024-4-6 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">宣mujica动画那想多了，人家有剧场版上下两部要宣呢，哪轮得到连ppt都懒得做的队
+
+*****
+
+####  NODY  
+##### 15152#       发表于 2024-4-6 23:33
+
+歌词
+
+<img src="https://img.saraba1st.com/forum/202404/06/233225vi9stfkcc9gpsere.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240406233019.png</strong> (143.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 23:32 上传
+
+这是祥子受萝的影响写出来的歌？
+
+<img src="https://img.saraba1st.com/forum/202404/06/233231ejaii5jieq66pyol.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240406233159.png</strong> (30.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 23:32 上传
+
+*****
+
+####  Aloereed  
+##### 15153#       发表于 2024-4-6 23:33
+
+2nd过后还没有人偶集会广播wsd就**乐<img src="https://static.saraba1st.com/image/smiley/device2017/038.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15154#       发表于 2024-4-6 23:33
+
+但我好奇的是，來個go粉說一下你們有新歌沒MV的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

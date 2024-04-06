@@ -448,3 +448,15 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 哪怕外包给藤子做个二次元QQ飞机呢
 
+
+*****
+
+####  Licheus  
+##### 157#       发表于 2024-4-6 09:03
+
+这全员管人的设计不知是该说突兀呢还是重新定义了作品的世界观呢。
+
+其他部分还是熟悉的土，还是挺突兀的吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

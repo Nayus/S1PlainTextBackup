@@ -11726,3 +11726,16 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 我昨天穿着民主甲用破片/高爆/冲击自雷，站叛徒火力/精准轨道攻击/空袭底下都触发过锁血，但是一点伤都没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 2595#       发表于 2024-4-6 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498475&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-4-6 11:46</a>
+
+说起来那个四肢出血的“但凡杀不死你的”的成就是不是最近实现起来变难了
+
+我昨天穿着民主甲用破片/高爆/冲 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是更新后爆炸一次只会伤害一个部位了吧
+

@@ -3290,3 +3290,21 @@ GBC这第一话实锤TXL还行
 青木阳菜想当光之美少女，不知道还有没有机会，小时候想成为cure white，不知道是哪代的 ...</blockquote>
 white是初代的，大嫂<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 15086#       发表于 2024-4-6 12:09
+
+今晚就新曲了，也是海鈴生日捏<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/06/120853anyzc6tjnmlcjzwc.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_RNNA ｜ 🎨 Commission Open(@rnna_7)_20240405-001912_1776041864094720189_.jpg</strong> (742.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 12:08 上传
+
+[https://twitter.com/rnna_7/status/1776041864094720189](https://twitter.com/rnna_7/status/1776041864094720189)
+

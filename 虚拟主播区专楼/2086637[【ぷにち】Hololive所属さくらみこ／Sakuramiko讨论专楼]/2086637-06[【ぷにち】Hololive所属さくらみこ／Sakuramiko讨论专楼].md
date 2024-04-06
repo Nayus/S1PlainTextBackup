@@ -4471,3 +4471,34 @@ kanauru最强……
 
 这么说的话感觉新曲可能又是新的风格了，期待一下
 
+
+*****
+
+####  holoan  
+##### 8583#         楼主| 发表于 2024-4-6 12:03
+
+【手描き】絶望しながら死の追いかけっこをするみこち【さくらみこ/ホロライブ】 
+[https://youtu.be/NAIkqb70RcU](https://youtu.be/NAIkqb70RcU)
+
+<img src="https://img.saraba1st.com/forum/202404/06/120437baiaiavc42912c2c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (143.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 12:04 上传
+
+最近火起来的一个手绘切片切的是之前Poppy Playtime的直播
+
+质量算很高了而且很多部分是真的动起来很接近动画了，时长还有足足8分钟
+
+<img src="https://img.saraba1st.com/forum/202404/06/120345j9iss89isg18jbl7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 12:03 上传
+
+甚至本人都去留言了
+

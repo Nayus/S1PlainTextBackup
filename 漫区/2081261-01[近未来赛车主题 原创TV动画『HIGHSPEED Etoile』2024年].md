@@ -468,3 +468,13 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 换胎时候还能聊天  真不错  映射现实啊
 
+
+*****
+
+####  主人ハム子  
+##### 159#       发表于 2024-4-6 09:38
+
+迷之企划，冤大头是大阪世博吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

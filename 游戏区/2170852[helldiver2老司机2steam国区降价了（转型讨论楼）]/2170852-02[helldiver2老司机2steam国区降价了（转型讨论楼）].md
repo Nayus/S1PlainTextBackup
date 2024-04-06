@@ -11652,3 +11652,13 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  dfbbymice  
+##### 2588#       发表于 2024-4-6 09:35
+
+难9机器人三个炮艇工厂，全队人都麻了，还禁一个战备栏<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+说起来昨晚上是bug还是啥，连续两把给了45和40的社区奖章奖励
+

@@ -238,3 +238,16 @@ https://twitter.com/hanaya_102/status/1775327676758368384</blockquote>
 https://twitter.com/barelroll/status/1776453933403451784/photo/1
 <img src="https://p.sda1.dev/16/e4e8cb66229628df5b7027e9f5cc7238/IMG_CMP_222039175.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 1779#       发表于 2024-4-6 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64505725&amp;ptid=2152053" target="_blank">yenvy 发表于 2024-4-6 23:42</a>
+
+这个是官方出的那个吗
+
+https://twitter.com/barelroll/status/1776453933403451784/photo/1</blockquote>
+[https://p-bandai.jp/item/item-1000192382/](https://p-bandai.jp/item/item-1000192382/)
+

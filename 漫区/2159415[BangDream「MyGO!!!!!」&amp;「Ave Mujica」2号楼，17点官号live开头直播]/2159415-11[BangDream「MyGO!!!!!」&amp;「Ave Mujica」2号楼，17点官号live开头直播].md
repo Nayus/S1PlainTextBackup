@@ -3950,3 +3950,99 @@ wsdnmsl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 15159#       发表于 2024-4-6 23:48
+
+wsd也可能是这么想的
+还没到宣传期 经费不能乱动
+给你放几首歌出来就不错了 原计划是静默一年呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nebulanoby  
+##### 15160#       发表于 2024-4-6 23:50
+
+转Z8:
+其实mv的缺失，就和高松灯的忘词一样，都是美丽的留白，是神来之笔，都看了一年多的mygo了，你们还不懂我们mygo回旋镖吗？
+要知道灯与祥互为对方的白月光，即使不在同一个乐队，在一些事情上相互心照不宣也是非常寻常的
+高松灯忘记了歌词，丰川祥子抛弃了mv
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  鳥栖朝  
+##### 15161#       发表于 2024-4-6 23:50
+
+哈哈😅，原来我推了个三无乐队，没官号（指国内），没新柄，没MV。天天没新活不说还要被踩头，你们有推过这样的乐队吗？真是wwss又dd啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|我服了|
+
+查看全部评分
+
+*****
+
+####  SakuraのOrigami  
+##### 15162#       发表于 2024-4-6 23:52
+
+Mujica这新曲好劲，好metal（）
+
+有些音阶很有新古典味
+
+甚至有一部分还是速弹了一下（）
+
+BPM可能是邦邦的曲子里最高的一首（）
+
+我听得是238-240这个区间（）
+
+但是，怎么没MV啊，wsd你在干嘛啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 15163#       发表于 2024-4-6 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64505696&amp;ptid=2159415" target="_blank">skives 发表于 2024-4-6 23:40</a>
+
+好像有一两首 
+
+但是没关系 五个月之后mujica没有mv的曲子就可以上升到六首了
+
+没错 其实ave mujica这首团 ...</blockquote>
+别尬黑，团名曲有炫酷的动画+真人混剪。可能一首顶5首，直接把今年MV名额用完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 15164#       发表于 2024-4-6 23:54
+
+忘词的是羊，不做MV的是wsd。
+
+这是wsd向羊投诚的一大标志才对。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 15165#       发表于 2024-4-6 23:55
+
+没出来前我还在想可千万不要是老图ppt，这下还愿了，连ppt都没有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -4046,3 +4046,31 @@ BPM可能是邦邦的曲子里最高的一首（）
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  PDQ4  
+##### 15166#       发表于 2024-4-6 23:57
+
+我还贷款过1单特典是CSC或者双月的图，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wsd永远比我想象的更幽默<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Drawrain  
+##### 15167#       发表于 2024-4-7 00:01
+
+翻出来当初公布的图，这看样子连续五首都没mv了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/4b26c1730712eb88bff653ad32cbf0d5/IMG20240406235252.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 15168#       发表于 2024-4-7 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们武士道只说了会连续发电子版新曲，自始至终都没提过mv，觉得会和其他团一样有mv是你们mujica推的错吧
+

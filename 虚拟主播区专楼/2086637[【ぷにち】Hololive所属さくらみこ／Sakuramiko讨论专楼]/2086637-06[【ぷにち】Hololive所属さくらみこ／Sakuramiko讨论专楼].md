@@ -4510,3 +4510,13 @@ kanauru最强……
 
 今天一天没动严重怀疑去参加sora线下会
 
+
+*****
+
+####  rs5621  
+##### 8585#       发表于 2024-4-6 20:16
+
+又是什么恐怖游戏
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

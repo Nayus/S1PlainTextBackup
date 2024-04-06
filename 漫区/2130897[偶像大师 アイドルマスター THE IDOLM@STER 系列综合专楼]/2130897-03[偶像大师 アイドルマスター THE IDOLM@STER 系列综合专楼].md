@@ -1928,3 +1928,28 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 日本那边看过先行放送的咋说？sc动画后面是个什么发展？</blockquote>
 前四集的评价最高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  馬斯特壺  
+##### 3157#       发表于 2024-4-6 13:29
+
+又要重复吗，ttk的轮回<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 3158#       发表于 2024-4-6 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64499070&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-6 13:07</a>
+日本那边看过先行放送的咋说？sc动画后面是个什么发展？</blockquote>
+第三幕最烂
+
+*****
+
+####  Vacuolar  
+##### 3159#       发表于 2024-4-6 13:37
+
+据先行p的描述，第三幕是最让他们感到背叛的，感觉没冲突硬整
+

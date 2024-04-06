@@ -1987,3 +1987,13 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 一万这数据确实不算高，但是结合之前有人拿O榜数据拉踩就比较欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳄鱼头  
+##### 3164#       发表于 2024-4-6 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64499355&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-4-6 13:40</a>
+2-4是有啥能把第一集风评拉起来的点嘛，开场这就给我一种除了把大家拉出来登个场就毫无内容的感觉还 ...</blockquote>
+下一集和第4集还行
+

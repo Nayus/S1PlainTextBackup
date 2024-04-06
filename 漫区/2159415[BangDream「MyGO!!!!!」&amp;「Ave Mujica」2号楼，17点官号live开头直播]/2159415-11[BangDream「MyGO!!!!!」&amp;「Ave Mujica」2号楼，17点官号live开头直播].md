@@ -3542,3 +3542,28 @@ onp，一打开就是一阵强劲的音乐响起<img src="https://static.saraba1
 
 作曲編曲和歌詞都要等0點<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 15113#       发表于 2024-4-6 22:35
+
+什么0点，23点！还有25分钟<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15114#       发表于 2024-4-6 22:36
+
+很金属但是角色曲呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傘木希美  
+##### 15115#       发表于 2024-4-6 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">你们都在哪儿听的啊！
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

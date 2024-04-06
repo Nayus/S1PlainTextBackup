@@ -13912,3 +13912,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 萨道义在哪啊，做完了他的人物，因缘里写的位置是胜海舟府邸，但是转了三圈都找不到人 ...</blockquote>
 走旁边台阶上去的小院子 这阴逼站位都阴
 
+
+*****
+
+####  jcwatm1  
+##### 2893#       发表于 2024-4-6 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64500218&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2024-4-6 15:47</a>
+走旁边台阶上去的小院子 这阴逼站位都阴</blockquote>
+谢谢找到了，确实阴<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

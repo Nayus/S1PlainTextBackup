@@ -2095,3 +2095,11 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 ＊以上为昼场的业务联络环节，如无意外，夜场的业务联络环节的内容和昼场一致。</blockquote>
 
+
+*****
+
+####  古兰  
+##### 3167#       发表于 2024-4-6 14:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这3d被隔壁gbc吊打啊！
+

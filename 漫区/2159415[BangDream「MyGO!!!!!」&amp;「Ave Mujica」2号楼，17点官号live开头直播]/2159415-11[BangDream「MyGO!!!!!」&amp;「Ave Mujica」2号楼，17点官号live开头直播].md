@@ -4074,3 +4074,39 @@ wsd永远比我想象的更幽默<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们武士道只说了会连续发电子版新曲，自始至终都没提过mv，觉得会和其他团一样有mv是你们mujica推的错吧
 
+
+*****
+
+####  twi  
+##### 15169#       发表于 2024-4-7 00:10
+
+从去年9月开始，wsd对mujica的态度不一直都这样吗
+
+*****
+
+####  御幸一也  
+##### 15170#       发表于 2024-4-7 00:12
+
+什麼其他團，就看隔壁某一個團嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 15171#       发表于 2024-4-7 00:14
+
+是鸡杂对自己有不正确的定位，竟妄图和狗平起平坐<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  御幸一也  
+##### 15172#       发表于 2024-4-7 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64506166&amp;ptid=2159415" target="_blank">twi 发表于 2024-4-7 00:10</a>
+
+从去年9月开始，wsd对mujica的态度不一直都这样吗</blockquote>
+一直這樣，那不是更加欠罵了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+去年1/27前罵說讓人等1st情報，總不能現在罵還要摀嘴讓人等到動畫開播，天啊那也太能摀<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

@@ -11878,3 +11878,11 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好不容易下班，又随个不错的野队，第二局结算就闪退了
 
+
+*****
+
+####  kalavinka  
+##### 2608#         楼主| 发表于 2024-4-7 00:07
+
+ATAT除了脸上两门机枪 其他还是吃晕雷 下崽时候还能让他憋回去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

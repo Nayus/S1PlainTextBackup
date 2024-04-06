@@ -14016,3 +14016,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 没有中泽琴恋爱线越想越气<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">垃圾游戏
 
+
+*****
+
+####  阿提拉  
+##### 2903#       发表于 2024-4-7 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">太刀大太刀长枪熟练度都满了，换双刀开始无双，转圈圈真的爽
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

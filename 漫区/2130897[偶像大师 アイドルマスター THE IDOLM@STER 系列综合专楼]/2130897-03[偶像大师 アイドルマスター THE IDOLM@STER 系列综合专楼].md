@@ -2151,3 +2151,23 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 2024-4-6 19:12 上传
 
+
+*****
+
+####  枫紫  
+##### 3173#       发表于 2024-4-6 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64501720&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-6 18:14</a>
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202404/06/195753vqxmcldc7l0vc7zz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240406205720.png</strong> (6.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 19:57 上传
+
+是的，正是在下<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+

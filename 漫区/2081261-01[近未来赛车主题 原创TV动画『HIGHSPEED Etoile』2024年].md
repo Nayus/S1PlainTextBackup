@@ -659,3 +659,25 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Toby_dak  
+##### 179#       发表于 2024-4-6 19:55
+
+<blockquote>月夜凝雪 发表于 2024-4-6 20:31
+那个是制作团队其他人太强？
+
+感觉他适合做改编不适合做原创
+</blockquote>
+他改编的虚伪面具可是被传颂粉丝一直念叨。
+
+*****
+
+####  eyeego  
+##### 180#       发表于 2024-4-6 19:59
+
+元永大师典型的给多少钱干多少活吧
+这么大盘饺子配个消消乐
+kr+奸笑出资还愿意给悠星这个外来户分一杯羹 还想不出问题在哪吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

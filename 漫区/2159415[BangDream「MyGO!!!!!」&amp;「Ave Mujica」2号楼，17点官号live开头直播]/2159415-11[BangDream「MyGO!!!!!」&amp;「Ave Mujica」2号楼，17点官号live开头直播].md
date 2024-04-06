@@ -3594,3 +3594,26 @@ onp，一打开就是一阵强劲的音乐响起<img src="https://static.saraba1
 
 话说刚刚看到Afterglow的MiniAlbum也出了，今天也有活动，楼里真没讨论啊，唉老东西<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 15119#       发表于 2024-4-6 23:01
+
+NB，没有mv，我说他背景平移播片都高看他了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15120#       发表于 2024-4-6 23:01
+
+幹你娘武士道 我的MV呢
+
+
+*****
+
+####  Aendst  
+##### 15121#       发表于 2024-4-6 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">……不知道说什么
+

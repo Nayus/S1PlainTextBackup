@@ -585,3 +585,11 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 元永怎么还不去似啊，蹬个自行车都比时速400有激情
 
+
+*****
+
+####  collincollin  
+##### 172#       发表于 2024-4-6 16:59
+
+要不学学头D，把那俩解说撤了，多上点歌当BGM
+

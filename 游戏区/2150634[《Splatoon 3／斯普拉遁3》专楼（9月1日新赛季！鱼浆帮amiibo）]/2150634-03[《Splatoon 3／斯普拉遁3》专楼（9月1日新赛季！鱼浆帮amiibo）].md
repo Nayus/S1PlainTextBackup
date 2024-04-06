@@ -9614,3 +9614,11 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 看了眼推上的投票，兔子队压倒性的多啊。不想内战的话还是选其他两队好
 
+
+*****
+
+####  星野航  
+##### 3931#       发表于 2024-4-6 14:21
+
+兔子队多，是不是这轮曼曼真的要赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

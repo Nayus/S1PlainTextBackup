@@ -1586,3 +1586,11 @@ Mooncell这个新头图看乐了<img src="https://static.saraba1st.com/image/smi
 当时等不及了，被剧情蛊到想要到手就练满，就硬刷结果刷好第二天就开兑换了，安慰自己这是爱的证 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我太咸鱼了 想着肯定会开材料兑换直接等到开兑换
 
+
+*****
+
+####  清河子  
+##### 11981#       发表于 2024-4-6 20:28
+
+没忍住抽了20连水泥，啥也没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">躺平了
+

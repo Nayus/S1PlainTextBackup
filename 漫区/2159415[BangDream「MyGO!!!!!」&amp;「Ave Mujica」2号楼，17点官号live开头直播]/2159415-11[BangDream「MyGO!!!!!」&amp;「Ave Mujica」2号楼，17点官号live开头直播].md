@@ -4331,3 +4331,11 @@ wsd你别太离谱
 我都准备阴湿新mv又是立绘平移的便宜ppt了
 没想到啊没想到，好家伙wsd你真的什么都不搞啊
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15197#       发表于 2024-4-7 07:12
+
+https://www.pixiv.net/artworks/117611759<img src="https://p.sda1.dev/16/e53698b47f98bf1d235bdd40fcf0403f/CMP_20240407071206604.png" referrerpolicy="no-referrer">
+

@@ -593,3 +593,22 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 要不学学头D，把那俩解说撤了，多上点歌当BGM
 
+
+*****
+
+####  skyuni  
+##### 173#       发表于 2024-4-6 17:50
+
+不是给GPX、头文字D观众准备的....
+
+*****
+
+####  有钱多买小人  
+##### 174#       发表于 2024-4-6 17:51
+
+赞助是真的多，甚至还有一个空镜头就专门给toyota gr<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+人设机设声优建模都能看出烧钱了，但就是无聊。
+
+元永当年是怎么拍出机攻队的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

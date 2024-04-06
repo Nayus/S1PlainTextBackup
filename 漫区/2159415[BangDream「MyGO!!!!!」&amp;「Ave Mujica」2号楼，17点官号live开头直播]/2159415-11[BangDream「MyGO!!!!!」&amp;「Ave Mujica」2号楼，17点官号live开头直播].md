@@ -4133,3 +4133,32 @@ wsd永远比我想象的更幽默<img src="https://static.saraba1st.com/image/sm
 
 wsd别先似了让大伙去仓库里偷mujica剧本。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EBe  
+##### 15175#       发表于 2024-4-7 00:30
+
+别说，感觉邦多利的确快死了，相比于刚入坑的时候<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  twi  
+##### 15176#       发表于 2024-4-7 00:31
+
+mujica凭着未来的动画就已被称为皇族，虽然动画还没放，其他方面的待遇也……
+
+嗯wsd加油吧（）
+
+
+*****
+
+####  kosou  
+##### 15177#       发表于 2024-4-7 00:33
+
+就这个待遇接下来动画剧情如何被当垫子我都不奇怪了🙏
+
+只能说生在wsd家没当上太子是这样的吧
+

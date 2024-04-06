@@ -4310,3 +4310,15 @@ wsd你别太离谱
 要说皇族，对比没有自己单独动画的老团确实挺皇族。
 不过嘛，和同期对比起来，很难不怀疑唯独“皇”的这个动画会不会被改成人家真太子的垫脚石<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 15195#       发表于 2024-4-7 06:33
+
+刚睡醒，什么时候用语c梗替国服运营找补？
+“staff a跟海铃不熟所以不发”<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+我寻思炸团都来代打过了，这都不发啊。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

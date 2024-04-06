@@ -691,3 +691,11 @@ kr+奸笑出资还愿意给悠星这个外来户分一杯羹 还想不出问题�
 
 你们既然都和Super Formula合作了，直接去看一次现场了解一下好吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雷攻姛人  
+##### 182#       发表于 2024-4-6 21:33
+
+对于一个追求速度感的比赛，解说是不是有点没激情，不慌不慢的语调，听着快睡过去了
+

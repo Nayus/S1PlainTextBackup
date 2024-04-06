@@ -11894,3 +11894,13 @@ ATAT除了脸上两门机枪 其他还是吃晕雷 下崽时候还能让他憋�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这飞行背包机器人爆炸的时候算有火焰伤害？还是双刀侠有火上，现在火箭不秒人了，被小兵秒了好几回
 
+
+*****
+
+####  Aeons  
+##### 2610#       发表于 2024-4-7 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64507245&amp;ptid=2170852" target="_blank">pwzzy 发表于 2024-4-7 01:30</a>
+这飞行背包机器人爆炸的时候算有火焰伤害？还是双刀侠有火上，现在火箭不秒人了，被小兵秒了好几回 ...</blockquote>
+爆炸火伤
+

@@ -4250,3 +4250,21 @@ wsd你别太离谱
 
 这次真的离谱，连横移PPT都没了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 15188#       发表于 2024-4-7 01:59
+
+ 本帖最后由 御幸一也 于 2024-4-7 02:01 编辑 
+
+好幽默，罵幾句居然有人來畫餅明年一定有資源，我就問現在是不是沒有嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 15189#       发表于 2024-4-7 02:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就是因为现在没有也找不到合理的理由解释，又不能接受自己热爱的武士道被骂所以才会大言不惭地贷款嘛
+

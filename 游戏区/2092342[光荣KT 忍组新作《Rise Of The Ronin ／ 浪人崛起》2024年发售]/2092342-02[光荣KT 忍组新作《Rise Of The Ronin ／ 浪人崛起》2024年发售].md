@@ -13989,3 +13989,14 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 闪刃取消的机制上限很高啊
 
+
+*****
+
+####  不会武术  
+##### 2900#       发表于 2024-4-6 19:50
+
+猫狗探险队系统怎么是游戏时间结算的
+第一次见挂机系统用游戏内时间的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

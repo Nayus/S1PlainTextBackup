@@ -707,3 +707,19 @@ kr+奸笑出资还愿意给悠星这个外来户分一杯羹 还想不出问题�
 
 虽然拍了一场比赛，但真的很无聊啊，还有那种用了大量术语来显示自己好像很懂的感觉…<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鱼肉丸子  
+##### 184#       发表于 2024-4-6 22:15
+
+节奏好奇怪，解说像在解说赛马，毫无激情
+
+我理解第一集要介绍下设定，而且很多设定还挺有意思的：自动换胎，vr黄旗，很有未来感，氮气加速也很合理
+
+但整体就是显得很无聊，乱，没劲，人物的引入各种稀碎，虽然大篇幅讲赛车但其实哪怕在赛车方面还不如去年情感大片的overtake<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+本集最令我精力集中的是暂停看了下新富士赛道是不是就是现实里的富士赛道
+
+—— 来自 HUAWEI ALT-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -13960,3 +13960,22 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 道场得分中的技术分到底是怎么算的，打来打去只有1300多分的技术分</blockquote>
 技术分基本就是石火和连段，你的石火多连段够长这个得分就高，除非想刷分，一般都是开个低难度刷个极就完事儿了
 
+
+*****
+
+####  jcwatm1  
+##### 2898#       发表于 2024-4-6 17:17
+
+<img src="https://img.saraba1st.com/forum/202404/06/171615yx14n87cznc0ggti.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>bb6bae4edbcf4313c9c95280b6af07ca.jpeg</strong> (278.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-6 17:16 上传
+
+遇到bug，捏人界面脸花了，脸上什么装饰也没选，套用别的设定也是花的
+
+不过只是捏人界面花了
+

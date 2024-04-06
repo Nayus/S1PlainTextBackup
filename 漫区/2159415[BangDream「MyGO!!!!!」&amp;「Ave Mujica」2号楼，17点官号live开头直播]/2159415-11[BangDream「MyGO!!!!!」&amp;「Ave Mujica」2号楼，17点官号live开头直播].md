@@ -4301,3 +4301,12 @@ wsd你别太离谱
 
 我怎么觉得更像是质子，反正不像亲生的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 15194#       发表于 2024-4-7 02:59
+
+要说皇族，对比没有自己单独动画的老团确实挺皇族。
+不过嘛，和同期对比起来，很难不怀疑唯独“皇”的这个动画会不会被改成人家真太子的垫脚石<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

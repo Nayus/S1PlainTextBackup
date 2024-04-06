@@ -504,3 +504,13 @@ nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝
 金时虽然还是出了但是攒给兽尼的一滴都没有了骂死他你有什么头 ...</blockquote>
 等水C呆吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kon-El  
+##### 46288#       发表于 2024-4-6 08:21
+
+水妃实用度怎么样？适用于哪些场景？
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

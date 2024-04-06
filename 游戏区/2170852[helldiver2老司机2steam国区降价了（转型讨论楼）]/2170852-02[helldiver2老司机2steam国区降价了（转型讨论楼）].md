@@ -11640,3 +11640,15 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 近和远都打挡板上沿，至于度数50度也差不多了，角度大也打不进去。
 
+
+*****
+
+####  jy000129  
+##### 2587#       发表于 2024-4-6 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64490581&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-4-5 15:46</a>
+包括难7吗，我记得之前是打难7可以扫得死</blockquote>
+黄胖和绿胖血量差别挺大，拿榴弹举例，黄胖打肚子2发，绿胖打肚子三发
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

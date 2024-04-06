@@ -564,3 +564,13 @@ GBF tv给格兰原创了一把prototype的武器。</blockquote>
 谢谢，柱子呢？刷1.0三格打DE怪吗？</blockquote>
 柱子不用单独刷   现在直接刷3.0开盒子就行了   就刷文书要去1.0
 
+
+*****
+
+####  poor  
+##### 17866#       发表于 2024-4-6 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498993&amp;ptid=1158205" target="_blank">初雪绫 发表于 2024-4-6 12:57</a>
+柱子不用单独刷   现在直接刷3.0开盒子就行了   就刷文书要去1.0</blockquote>
+了解
+

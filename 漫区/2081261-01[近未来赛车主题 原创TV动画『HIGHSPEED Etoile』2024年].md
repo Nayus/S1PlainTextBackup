@@ -620,3 +620,27 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 但就这第一集来说吧...我和我大学同学两个30+的人去开卡丁车都比这热血点
 
+
+*****
+
+####  lpzhg  
+##### 176#       发表于 2024-4-6 19:16
+
+这片的人物让我一直想起凯能
+
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  creaiii  
+##### 177#       发表于 2024-4-6 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498779&amp;ptid=2081261" target="_blank">raimouse 发表于 2024-4-6 12:26</a>
+
+第一集看完了，果然跟预期的一样寄
+
+这解说还不如不做呢，事务性讲解的味道拉满了催眠的要死
+
+还有就 ...</blockquote>
+国王唱片御三家里，只有油咖喱离开了国王唱片，而这片的企划和发行方是国王唱片
+

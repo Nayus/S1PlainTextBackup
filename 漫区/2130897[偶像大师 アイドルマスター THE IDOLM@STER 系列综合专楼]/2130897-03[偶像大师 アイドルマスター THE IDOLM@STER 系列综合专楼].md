@@ -1979,3 +1979,11 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  koodooliz  
+##### 3163#       发表于 2024-4-6 13:55
+
+一万这数据确实不算高，但是结合之前有人拿O榜数据拉踩就比较欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

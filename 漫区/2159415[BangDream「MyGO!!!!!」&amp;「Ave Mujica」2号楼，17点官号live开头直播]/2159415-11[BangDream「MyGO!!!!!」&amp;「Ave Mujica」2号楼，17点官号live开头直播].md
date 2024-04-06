@@ -3279,3 +3279,14 @@ GBC这第一话实锤TXL还行
 看到个MYGO巡演的推 不知道真的还是假的</blockquote>
 我觉得即便是海日也不会弱智到让MyGO去宛平南路
 
+
+*****
+
+####  想喝一点点  
+##### 15085#       发表于 2024-4-6 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64489685&amp;ptid=2159415" target="_blank">后藤一里 发表于 2024-4-5 13:33</a>
+
+青木阳菜想当光之美少女，不知道还有没有机会，小时候想成为cure white，不知道是哪代的 ...</blockquote>
+white是初代的，大嫂<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

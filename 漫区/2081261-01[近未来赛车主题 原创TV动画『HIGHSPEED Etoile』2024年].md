@@ -504,3 +504,23 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 那个换胎的确是有点搞了，虽然很四驱兄弟，可是换的真的好慢
 
+
+*****
+
+####  Anatoly  
+##### 163#       发表于 2024-4-6 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最主要他之前还有个瞬间换胎吧，这后面来个一分钟就很神秘
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  上坂莲华  
+##### 164#       发表于 2024-4-6 11:02
+
+这女主是前面那个粉毛爱抖露的妹妹吧，绿毛爱抖露都在跟前当整备了，你们F1都是家族企业么
+
+还有反正ed卡藤真都画了一姬了，干脆别赛车了打麻将吧，绝对比赛车好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

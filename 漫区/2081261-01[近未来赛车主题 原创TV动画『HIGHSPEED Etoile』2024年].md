@@ -486,3 +486,11 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 解说真的好烦，特别是男解说那边<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zayrq  
+##### 161#       发表于 2024-4-6 10:29
+
+好尬的第一集，元永大师该不会觉得这片子的观众真的很喜欢赛车那点东西吧
+

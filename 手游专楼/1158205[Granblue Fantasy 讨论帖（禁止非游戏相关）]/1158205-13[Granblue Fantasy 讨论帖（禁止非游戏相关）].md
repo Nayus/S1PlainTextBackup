@@ -532,3 +532,14 @@ GBF tv给格兰原创了一把prototype的武器。</blockquote>
 
 这个巴哈怎么像是到了星之岛吃了星之巴哈变身创世神的吉他。
 
+
+*****
+
+####  月海的秋鸟  
+##### 17863#       发表于 2024-4-6 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497719&amp;ptid=1158205" target="_blank">poor 发表于 2024-4-6 10:15</a>
+
+缺文书、贤者柱、精、牌子分别刷哪个？不是一起缺</blockquote>
+文书刷1.0五格  单刷属精2.0   属精和理念一起刷3.0效率最高
+

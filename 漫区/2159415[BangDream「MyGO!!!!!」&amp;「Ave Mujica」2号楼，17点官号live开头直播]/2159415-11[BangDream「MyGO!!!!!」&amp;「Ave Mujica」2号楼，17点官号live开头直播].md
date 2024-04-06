@@ -3730,3 +3730,107 @@ BSR,WRNG
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Drawrain  
+##### 15136#       发表于 2024-4-6 23:16
+
+幽默wsd，这下ppt都没有了。资源倾斜也不是这么个倾法
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御幸一也  
+##### 15137#       发表于 2024-4-6 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64505252&amp;ptid=2159415" target="_blank">yuyin589 发表于 2024-4-6 23:09</a>
+
+之前跟群友聊天表示，只要不是一张鬼图做五个ppt就满足了，没想到连ppt都没有
+
+  -- 来自 能搜索的  ...</blockquote>
+媽的 是這樣。
+
+今天才在和群友說鬼故事，萬一1張圖做5個MV……沒想到連這都沒有<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15138#       发表于 2024-4-6 23:17
+
+讓我看看之前出警資源傾斜的人還在不在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+還說話嗎？
+
+*****
+
+####  爱丁堡official  
+##### 15139#       发表于 2024-4-6 23:17
+
+没有MV，官号也听不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 15140#       发表于 2024-4-6 23:19
+
+出警资源倾斜的人还信誓旦旦说过什么1stlive之后没动静一起骂来着，然后人就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15141#       发表于 2024-4-6 23:20
+
+我記得說什麼1/27後沒料會一起來罵，然後呢？怎麼還不來罵一個我看看實力<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 15142#       发表于 2024-4-6 23:20
+
+是兄弟就一起骂骂看看实力<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 15143#       发表于 2024-4-6 23:23
+
+哟，可不敢说，你鸡就算是今年不播也不至于这个待遇吧？
+
+要翻唱没有翻唱，这回好不容易出新曲，好家伙，ppt都没有
+
+炒作这么早，今天还是海铃生日，拔高期待，结果发了一个流媒体链接，太幽默了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 15144#       发表于 2024-4-6 23:24
+
+哈哈，海铃生日，这么给过生日是吧，我看这把火送给wsd最合适。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15145#       发表于 2024-4-6 23:24
+
+喵老师自愿给新歌打鼓，问就是最喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/06/232432gp9uxs9cd4ncj8ef.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240406232416.png</strong> (87.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 23:24 上传
+
+*****
+
+####  skives  
+##### 15146#       发表于 2024-4-6 23:26
+
+最难绷的是这连续五首 第一首没有mv意味着剩下的也大概率没有mv<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+

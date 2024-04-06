@@ -731,3 +731,21 @@ kr+奸笑出资还愿意给悠星这个外来户分一杯羹 还想不出问题�
 
 这么多赞助，片子做出来的效果却不像很有钱
 
+
+*****
+
+####  aptx8285144  
+##### 186#       发表于 2024-4-6 23:17
+
+第一话对于我这个赛车外行而言最难以忍受的竟然是女解说人员的那种<strong>诡异</strong>的声音<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 187#       发表于 2024-4-6 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498430&amp;ptid=2081261" target="_blank">weige 发表于 2024-4-6 11:42</a>
+
+除了解说在摆烂，也没那么差吧2333</blockquote>
+女性解说那个声音实在太难听了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

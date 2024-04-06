@@ -644,3 +644,18 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 还有就 ...</blockquote>
 国王唱片御三家里，只有油咖喱离开了国王唱片，而这片的企划和发行方是国王唱片
 
+
+*****
+
+####  月夜凝雪  
+##### 178#       发表于 2024-4-6 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64501495&amp;ptid=2081261" target="_blank">有钱多买小人 发表于 2024-4-6 17:51</a>
+赞助是真的多，甚至还有一个空镜头就专门给toyota gr
+
+人设机设声优建模都能看出烧钱了，但就是无聊 ...</blockquote>
+那个是制作团队其他人太强？
+感觉他适合做改编不适合做原创
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -514,3 +514,11 @@ nga那个10连满宝的帖子，有谁算过大概多少概率吗，不仅满宝
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46289#       发表于 2024-4-6 19:32
+
+只能相信兽尼可以五护符满宝了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

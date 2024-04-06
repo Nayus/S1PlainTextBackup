@@ -478,3 +478,11 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  [皆神孝介]  
+##### 160#       发表于 2024-4-6 10:04
+
+解说真的好烦，特别是男解说那边<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

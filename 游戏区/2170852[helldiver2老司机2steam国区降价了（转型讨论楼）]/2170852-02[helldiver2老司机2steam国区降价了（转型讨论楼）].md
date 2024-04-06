@@ -11662,3 +11662,16 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 说起来昨晚上是bug还是啥，连续两把给了45和40的社区奖章奖励
 
+
+*****
+
+####  Mr.Hopp  
+##### 2589#       发表于 2024-4-6 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497503&amp;ptid=2170852" target="_blank">dfbbymice 发表于 2024-4-6 09:35</a>
+
+难9机器人三个炮艇工厂，全队人都麻了，还禁一个战备栏
+
+说起来昨晚上是bug还是啥，连续两把给了45和 ...</blockquote>
+就是补发两次没法的全服任务奖励
+

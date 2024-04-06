@@ -4209,3 +4209,13 @@ wsd你别太离谱
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  novalli  
+##### 15184#       发表于 2024-4-7 01:08
+
+看到真的没MV是真惊了，武士道是真不急啊。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

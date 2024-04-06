@@ -131,3 +131,14 @@ https://lo.swaytwig.com/</blockquote>
 
 怎么感觉女巫伤害不高呀 有啥就业空间吗 一眼看中皮肤直接拉满了发现打不死小怪
 
+
+*****
+
+####  铁火辉夜  
+##### 126#       发表于 2024-4-6 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498955&amp;ptid=2078383" target="_blank">shinitakute 发表于 2024-4-6 12:52</a>
+
+怎么感觉女巫伤害不高呀 有啥就业空间吗 一眼看中皮肤直接拉满了发现打不死小怪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2技能的九宫格沉默不错，但没有无视保护要搭ss无人机，但现在玩这套沉默流有更好的选择笛卡尔
+

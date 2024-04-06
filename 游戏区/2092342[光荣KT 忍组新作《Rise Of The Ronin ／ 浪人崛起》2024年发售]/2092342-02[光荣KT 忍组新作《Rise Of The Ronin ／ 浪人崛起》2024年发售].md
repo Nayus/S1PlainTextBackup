@@ -13886,3 +13886,11 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 大幅减少刷随机词条内容，流派招式不涉及 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">屁股上好大一朵花
 
+
+*****
+
+####  nagitoY  
+##### 2890#       发表于 2024-4-6 12:57
+
+最近在做收集奖杯，感觉地图还是有点设计的。猫、神社有一半左右是需要玩家规划飞行路线才能找到的。来自: iPhone客户端
+

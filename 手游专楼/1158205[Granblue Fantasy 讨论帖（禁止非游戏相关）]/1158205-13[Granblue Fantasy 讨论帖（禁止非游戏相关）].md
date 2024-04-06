@@ -553,3 +553,14 @@ GBF tv给格兰原创了一把prototype的武器。</blockquote>
 文书刷1.0五格  单刷属精2.0   属精和理念一起刷3.0效率最高</blockquote>
 谢谢，柱子呢？刷1.0三格打DE怪吗？
 
+
+*****
+
+####  初雪绫  
+##### 17865#       发表于 2024-4-6 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497986&amp;ptid=1158205" target="_blank">poor 发表于 2024-4-6 10:48</a>
+
+谢谢，柱子呢？刷1.0三格打DE怪吗？</blockquote>
+柱子不用单独刷   现在直接刷3.0开盒子就行了   就刷文书要去1.0
+

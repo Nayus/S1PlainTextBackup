@@ -1997,3 +1997,101 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 2-4是有啥能把第一集风评拉起来的点嘛，开场这就给我一种除了把大家拉出来登个场就毫无内容的感觉还 ...</blockquote>
 下一集和第4集还行
 
+
+*****
+
+####  バーチャルS1er  
+##### 3165#       发表于 2024-4-6 14:33
+
+这3D动作、剧情真是毫无看下去的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 3166#       发表于 2024-4-6 14:36
+
+<img src="https://img.saraba1st.com/forum/202404/06/143250czhl33376hp1kp1l.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-04-06-14h28m44s595.jpg</strong> (184.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 14:32 上传
+
+昼场的Setlist：<blockquote>　→ 开演前告知 // Triad Primus（福原綾香・松井恵理子・渕上舞）
+
+[Overture]
+
+01. Nation Blue // THE IDOLM@STER CINDERELLA GIRLS（全员）
+
+　→ 开场MC // 全员
+
+02. Fascinate // VelvetRose（佐倉薫・関口理咲）
+
+03. 共鳴世界の存在論 // 青木志貴
+
+04. -LEGNE- 仇なす剣 光の旋律 // Rosenburg Engel（内田真礼）
+
+05. Trancing Pulse // Triad Primus（福原綾香・松井恵理子・渕上舞）
+
+　→ MC // ダークイルミネイト（内田真礼・青木志貴）＆ VelvetRose（佐倉薫・関口理咲）
+
+06. 薄荷 -ハッカ- // 渕上舞
+
+07. Beat of the Night // 佐倉薫
+
+08. Clock Hands // 関口理咲（＊《CINDERELLA MASTER 067 白雪千夜》的SOLO曲，公演前未公开）
+
+09. 双翼の独奏歌 // ダークイルミネイト（内田真礼・青木志貴）
+
+　→ MC // Triad Primus（福原綾香・松井恵理子・渕上舞）
+
+10. Never say never（＊長Intro版） // 福原綾香
+
+11. 2nd SIDE // 松井恵理子
+
+12. 不埒なCANVAS // 関口理咲・青木志貴
+
+13. 堕ちる果実 // Fortuna Regina（内田真礼・佐倉薫）
+
+14. Trinity Field // Triad Primus（福原綾香・松井恵理子・渕上舞）
+
+　→ 最终曲前MC + 业务联络 // 全员
+
+15. Come to you // 全员
+
+　→ 终演告知 // ダークイルミネイト（内田真礼・青木志貴）</blockquote>
+业务联络环节：<blockquote><img src="https://tc2.wfhtony.space/images/2024/04/06/ade67b7ce45fe3b124d6609d4cc780a2.jpg" referrerpolicy="no-referrer">
+
+这次居然不是从上面吊下来啊...
+
+① 周边相关（Asobi Store）：
+<img src="https://tc2.wfhtony.space/images/2024/04/06/976b62db246706647efa803302d9dc08.jpg" referrerpolicy="no-referrer">
+
+② 游戏（デレステ）相关：
+<img src="https://tc2.wfhtony.space/images/2024/04/06/5061ba7150e6fc8db0c01dc95982d5cb.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/06/1dba89c50fc3191a725b05ceddd1b9d2.jpg" referrerpolicy="no-referrer">
+
+旧曲了...
+<img src="https://tc2.wfhtony.space/images/2024/04/06/3e22d0ce1fc92d649d5f28937c4fa766.jpg" referrerpolicy="no-referrer">
+应该是去年的存货？
+
+③ 前年SfC的最后一个特典「3DLIVE」预计于今年春季在you tube免费放送：
+<img src="https://tc2.wfhtony.space/images/2024/04/06/27bb1d7efd44ac02a58b8334fd39b275.jpg" referrerpolicy="no-referrer">
+
+④ 周边相关（联动）：
+<img src="https://tc2.wfhtony.space/images/2024/04/06/b640b4a5638a3bf96f1545982bea2055.jpg" referrerpolicy="no-referrer">
+
+⑤ CM067~69确定制作，预计今年夏季发售：
+<img src="https://tc2.wfhtony.space/images/2024/04/06/caa3609519c420f4497139d2a84fdb4b.jpg" referrerpolicy="no-referrer">
+咱差点以为鸽伦比亚忘了这茬了...
+
+⑥ 去年的デレステ八周年LIVE的蓝光影碟将于7月发售，今天开始可以预约了：
+<img src="https://tc2.wfhtony.space/images/2024/04/06/b3b1cbe534422c21ed2eb1db9c32366f.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/06/40c99ce9d6f2e9016ff9a96d054e558e.jpg" referrerpolicy="no-referrer">
+
+⑦ 下周依然有同时视听会（声优为评论区参加，无副音轨）：
+<img src="https://tc2.wfhtony.space/images/2024/04/06/1d601a8a2cac27f50cc61e0a6ff5adda.jpg" referrerpolicy="no-referrer">
+
+＊以上为昼场的业务联络环节，如无意外，夜场的业务联络环节的内容和昼场一致。</blockquote>
+

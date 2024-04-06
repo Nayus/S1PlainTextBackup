@@ -1953,3 +1953,29 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 据先行p的描述，第三幕是最让他们感到背叛的，感觉没冲突硬整
 
+
+*****
+
+####  Seeley  
+##### 3160#       发表于 2024-4-6 13:40
+
+2-4是有啥能把第一集风评拉起来的点嘛，开场这就给我一种除了把大家拉出来登个场就毫无内容的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屈江鸟  
+##### 3161#       发表于 2024-4-6 13:41
+
+看nico弹幕只有第四集值得看，先坚持到那吧
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 3162#       发表于 2024-4-6 13:44
+
+据说几个组的单元回还行？
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

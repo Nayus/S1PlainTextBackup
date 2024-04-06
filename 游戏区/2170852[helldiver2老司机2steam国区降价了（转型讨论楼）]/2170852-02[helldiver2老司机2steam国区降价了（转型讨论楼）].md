@@ -11762,3 +11762,11 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 我昨天穿着民主甲用破片/高爆/冲 ...</blockquote>
 说是手雷没用了，等更新吧
 
+
+*****
+
+####  FLZB  
+##### 2598#       发表于 2024-4-6 13:41
+
+箭头是不是又暗改了刷怪强度？跟朋友双打一波警报还没打完，刷出来的小虫子又给我拉个烟<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

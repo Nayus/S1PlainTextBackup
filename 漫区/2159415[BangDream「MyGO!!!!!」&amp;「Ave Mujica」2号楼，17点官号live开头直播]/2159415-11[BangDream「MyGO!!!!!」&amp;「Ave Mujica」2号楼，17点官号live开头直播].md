@@ -3354,3 +3354,23 @@ white是初代的，大嫂<img src="https://static.saraba1st.com/image/smiley/fa
 
 请务必实装
 
+
+*****
+
+####  枫林不见  
+##### 15090#       发表于 2024-4-6 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498654&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-6 12:09</a>
+
+今晚就新曲了，也是海鈴生日捏 </blockquote>
+是明天啊
+
+*****
+
+####  爱丁堡official  
+##### 15091#       发表于 2024-4-6 16:32
+
+新曲应该是今晚23:00吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

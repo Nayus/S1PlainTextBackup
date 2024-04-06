@@ -3916,3 +3916,37 @@ bfhl没惹。。
 
 但我好奇的是，來個go粉說一下你們有新歌沒MV的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 15155#       发表于 2024-4-6 23:36
+
+wsdnmsl
+
+*****
+
+####  米拉苏尔  
+##### 15156#       发表于 2024-4-6 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">什么意思啊
+
+
+*****
+
+####  skives  
+##### 15157#       发表于 2024-4-6 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64505611&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-6 23:33</a>
+但我好奇的是，來個go粉說一下你們有新歌沒MV的嗎</blockquote>
+好像有一两首 
+但是没关系 五个月之后mujica没有mv的曲子就可以上升到六首了
+没错 其实ave mujica这首团曲也是没有mv的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  豊川祥子  
+##### 15158#       发表于 2024-4-6 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+

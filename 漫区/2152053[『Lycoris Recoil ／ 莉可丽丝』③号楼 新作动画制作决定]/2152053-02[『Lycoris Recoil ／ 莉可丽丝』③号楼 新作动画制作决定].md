@@ -228,3 +228,13 @@ https://twitter.com/hanaya_102/status/1775327676758368384</blockquote>
 
 2024-4-6 23:28 上传
 
+
+*****
+
+####  yenvy  
+##### 1778#       发表于 2024-4-6 23:42
+
+这个是官方出的那个吗
+https://twitter.com/barelroll/status/1776453933403451784/photo/1
+<img src="https://p.sda1.dev/16/e4e8cb66229628df5b7027e9f5cc7238/IMG_CMP_222039175.jpeg" referrerpolicy="no-referrer">
+

@@ -1918,3 +1918,13 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 有毛用，两季加起来能有我们百万一季卖的多吗</blockquote>
 你又知道了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  めぐる  
+##### 3156#       发表于 2024-4-6 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64499070&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-6 13:07</a>
+日本那边看过先行放送的咋说？sc动画后面是个什么发展？</blockquote>
+前四集的评价最高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3382,3 +3382,43 @@ white是初代的，大嫂<img src="https://static.saraba1st.com/image/smiley/fa
 
 还有不到六小时<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RPG-7  
+##### 15093#       发表于 2024-4-6 20:57
+
+咦 dmhy已经有下载了
+
+*****
+
+####  御幸一也  
+##### 15094#       发表于 2024-4-6 20:59
+
+我服了 怎麼歌偷跑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 15095#       发表于 2024-4-6 21:02
+
+聽完了 好炸的鼓點<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15096#       发表于 2024-4-6 21:03
+
+不奇怪，之前mygo新歌也是动画没出就偷跑，说明确实是0点就有了
+
+*****
+
+####  RPG-7  
+##### 15097#       发表于 2024-4-6 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64503501&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-6 21:02</a>
+
+聽完了 好炸的鼓點</blockquote>
+丰川祥子你TM.jpg
+

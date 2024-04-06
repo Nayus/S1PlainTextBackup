@@ -2127,3 +2127,13 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 闪闪动画就像每个季度都有的没什么成本也不吸引人看的改编动画一样，水平不高，原作党不怎么满意，也没什么路人愿意看。该接受平庸。
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3171#       发表于 2024-4-6 18:14
+
+<img src="https://p.sda1.dev/16/23676ac6cb4ee04047fc1cf1e6a52074/CMP_20240406181438456.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

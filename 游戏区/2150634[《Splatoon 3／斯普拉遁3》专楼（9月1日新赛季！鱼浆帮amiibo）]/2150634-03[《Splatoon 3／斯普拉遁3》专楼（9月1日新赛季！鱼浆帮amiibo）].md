@@ -9606,3 +9606,11 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 世锦赛搞笑的是港台队11号才会选出来，13号就开打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 3930#       发表于 2024-4-6 11:26
+
+看了眼推上的投票，兔子队压倒性的多啊。不想内战的话还是选其他两队好
+

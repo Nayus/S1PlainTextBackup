@@ -57,3 +57,26 @@ https://lo.swaytwig.com/</blockquote>
 
 谢谢，用机翻+顺藤摸瓜找到这里，但怎么是乱码的呢？
 
+
+*****
+
+####  铁火辉夜  
+##### 119#       发表于 2024-4-6 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497643&amp;ptid=2078383" target="_blank">shamal0324 发表于 2024-4-6 10:03</a>
+
+谢谢，用机翻+顺藤摸瓜找到这里，但怎么是乱码的呢？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">网站还没适配中日文字幕，只有英韩能用
+
+*****
+
+####  shamal0324  
+##### 120#       发表于 2024-4-6 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497658&amp;ptid=2078383" target="_blank">铁火辉夜 发表于 2024-4-6 10:04</a>
+
+网站还没适配中日文字幕，只有英韩能用</blockquote>
+好吧，我先把you管那里看完先
+
+（就老实说，光看个序章就看得出编剧水平不如nikke）
+

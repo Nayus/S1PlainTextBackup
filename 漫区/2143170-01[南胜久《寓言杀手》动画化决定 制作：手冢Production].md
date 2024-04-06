@@ -519,3 +519,13 @@ TVアニメ『#ザ・ファブル』
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后手冢就会变成青漫界的P9，大家都去找他改编
 
+
+*****
+
+####  Lollipopstar  
+##### 53#       发表于 2024-4-7 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61564680&amp;ptid=2143170" target="_blank">Lollipopstar 发表于 2023-7-5 23:47</a>
+高桥良辅监督，再让杉野昭夫来画两卡（最近刚好在手冢P活动了下筋骨）.... 厚生劳动省多少得给手冢P颁个高 ...</blockquote>
+草杉野昭夫还真来了… 80岁监督配80岁原画，真佩服老爷子们的创作精力，手冢P某种意义也是个神奇的公司<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

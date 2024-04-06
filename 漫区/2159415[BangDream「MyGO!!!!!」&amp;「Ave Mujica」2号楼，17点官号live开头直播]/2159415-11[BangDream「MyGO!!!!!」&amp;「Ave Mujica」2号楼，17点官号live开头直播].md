@@ -4185,3 +4185,27 @@ mujica凭着未来的动画就已被称为皇族，虽然动画还没放，其�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡怎么就皇族了，是中之人营业力算wsd头上了吗。
 
+
+*****
+
+####  蒜灵  
+##### 15181#       发表于 2024-4-7 00:56
+
+得，WSD这是越来越离谱了，准备本社爆破吧
+
+*****
+
+####  相坂君  
+##### 15182#       发表于 2024-4-7 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天怎么到处看到有人说鸡皇族，我的天……皇哪儿了？wsd的钱和爱都没有流向缺资源的鸡，皇族这帽子倒是先扣上了
+
+*****
+
+####  cherryjia12  
+##### 15183#       发表于 2024-4-7 00:58
+
+wsd你别太离谱
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

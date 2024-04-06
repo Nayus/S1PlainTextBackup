@@ -13922,3 +13922,15 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 走旁边台阶上去的小院子 这阴逼站位都阴</blockquote>
 谢谢找到了，确实阴<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不会武术  
+##### 2894#       发表于 2024-4-6 16:23
+
+都说比仁王简化，我咋觉得更复杂了
+
+仁王的段位我看自己的姿势就知道，浪人的流派要按r看一眼才知道，每个流派的平A和石火性能还不一样，这个流派克制系统让我更记不住招，轻重派生出招简单好记，浪人一个武器要硬记9个技能位，肌肉记不住
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

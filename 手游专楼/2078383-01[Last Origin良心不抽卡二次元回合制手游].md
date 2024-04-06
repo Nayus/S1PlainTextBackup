@@ -80,3 +80,16 @@ https://lo.swaytwig.com/</blockquote>
 
 （就老实说，光看个序章就看得出编剧水平不如nikke）
 
+
+*****
+
+####  铁火辉夜  
+##### 121#       发表于 2024-4-6 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497676&amp;ptid=2078383" target="_blank">shamal0324 发表于 2024-4-6 10:07</a>
+
+好吧，我先把you管那里看完先
+
+（就老实说，光看个序章就看得出编剧水平不如nikke） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏换过文案的，主线前六章、早期的角色外传和晚餐活动就又水又无聊，菜得工业糖精都造不明白；主线进入柠檬水篇后角色塑造才开始发力，活动剧情也差不多这个时期后才开始有料
+

@@ -14042,3 +14042,11 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 2024-4-7 00:20 上传
 
+
+*****
+
+####  duraa  
+##### 2905#       发表于 2024-4-7 02:42
+
+打了几天龙信，怎么无石火冲田、斋藤一都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

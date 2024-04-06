@@ -9655,3 +9655,13 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 本来快打到s+7了，硬生生的因为炸房把分掉回去了
 
+
+*****
+
+####  Teiume  
+##### 3935#       发表于 2024-4-6 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64496224&amp;ptid=2150634" target="_blank">RedPig 发表于 2024-4-6 00:50</a>
+如果游戏装在sd卡里，建议转到内置存储上</blockquote>
+感谢，我试试看。
+

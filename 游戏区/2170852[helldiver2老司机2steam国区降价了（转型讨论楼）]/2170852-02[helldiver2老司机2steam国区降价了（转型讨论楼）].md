@@ -11886,3 +11886,11 @@ pc反作弊更新啥了呀，这么反人类，加的几个车队全是灵车
 
 ATAT除了脸上两门机枪 其他还是吃晕雷 下崽时候还能让他憋回去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pwzzy  
+##### 2609#       发表于 2024-4-7 01:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这飞行背包机器人爆炸的时候算有火焰伤害？还是双刀侠有火上，现在火箭不秒人了，被小兵秒了好几回
+

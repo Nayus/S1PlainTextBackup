@@ -3430,3 +3430,42 @@ white是初代的，大嫂<img src="https://static.saraba1st.com/image/smiley/fa
 
 卧槽偷跑了，有点帅。好期待新图<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 15099#       发表于 2024-4-6 21:18
+
+新歌感觉不错，不过如果真是海铃角色歌的话贝斯部分感觉不太突出的样子，蝶七深角色歌我印象里贝斯就很明显<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋干爆炸碱  
+##### 15100#       发表于 2024-4-6 21:22
+
+感觉不太像角色曲<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15101#       发表于 2024-4-6 21:23
+
+我也觉得应该不是角色歌了，从歌词到编曲都不太有海铃的感觉，真是角色歌可能是初华的，开头吉他solo+歌词有唱悲伤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 15102#       发表于 2024-4-6 21:24
+
+母鸡卡不会没有角色歌吧，我还想靠角色歌假药剧情捏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  枫林不见  
+##### 15103#       发表于 2024-4-6 21:25
+
+我日 新曲真好听<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

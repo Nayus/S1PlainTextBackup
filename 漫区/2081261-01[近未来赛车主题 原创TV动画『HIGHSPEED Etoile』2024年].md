@@ -681,3 +681,13 @@ OP：[https://youtu.be/IJ8kXxwdDe8](https://youtu.be/IJ8kXxwdDe8)
 这么大盘饺子配个消消乐
 kr+奸笑出资还愿意给悠星这个外来户分一杯羹 还想不出问题在哪吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 181#       发表于 2024-4-6 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好无聊
+
+你们既然都和Super Formula合作了，直接去看一次现场了解一下好吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

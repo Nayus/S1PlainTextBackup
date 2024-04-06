@@ -1884,3 +1884,13 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">销量这玄学谁说的上呢
 
+
+*****
+
+####  安广多惠子  
+##### 3152#       发表于 2024-4-6 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你怎知sc不会也来个大本营战报了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

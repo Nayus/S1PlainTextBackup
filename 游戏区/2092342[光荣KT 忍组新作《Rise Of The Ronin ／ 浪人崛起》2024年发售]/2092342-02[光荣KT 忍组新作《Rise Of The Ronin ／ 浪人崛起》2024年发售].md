@@ -13871,3 +13871,18 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 提高闪刃烈风的回复量
 这样至少把单挑体验做得没那么单调，群战无可救药就不提了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gatchaman  
+##### 2889#       发表于 2024-4-6 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497611&amp;ptid=2092342" target="_blank">zqqwe 发表于 2024-4-6 09:58</a>
+
+暗夜打了几关感觉又回到了数值膨胀的老路，这系统也该到头了
+
++：
+
+大幅减少刷随机词条内容，流派招式不涉及 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">屁股上好大一朵花
+

@@ -1894,3 +1894,27 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cckuku  
+##### 3153#       发表于 2024-4-6 13:07
+
+日本那边看过先行放送的咋说？sc动画后面是个什么发展？
+
+*****
+
+####  Vacuolar  
+##### 3154#       发表于 2024-4-6 13:09
+
+还大本营战报呢，一个企划唯一的动画就卖一万卷均不算多高的数据，柏油中有的比较幽默拿这个压人才是最奇妙的
+
+*****
+
+####  鳄鱼头  
+##### 3155#       发表于 2024-4-6 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497354&amp;ptid=2130897" target="_blank">天王寺綯 发表于 2024-4-6 09:01</a>
+有毛用，两季加起来能有我们百万一季卖的多吗</blockquote>
+你又知道了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

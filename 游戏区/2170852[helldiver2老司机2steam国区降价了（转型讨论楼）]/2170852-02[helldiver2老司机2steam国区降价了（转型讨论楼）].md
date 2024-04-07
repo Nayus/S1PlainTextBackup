@@ -12129,3 +12129,14 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 下线的时候86% 20万潜兵,估计明天一早就能看见机器人被灭灯了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一集新闻已经解包了，标题就是机器人奇jie袭fang赛博斯坦
 
+
+*****
+
+####  rainknine  
+##### 2637#       发表于 2024-4-8 01:12
+
+晚安机器人
+see you again
+虽然超级气球的所谓对机器人的防空装备从stage2开始预告，藏到现在机器人都快没了都不放出来
+真有你的啊箭头<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

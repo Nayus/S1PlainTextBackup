@@ -801,3 +801,13 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 做成这样真不是经费的问题了，真是白瞎这人设，这片的价值大概就是看看各种宣传绘了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  冰风血羽  
+##### 194#       发表于 2024-4-8 01:14
+
+不愧是元永大💩，这做的什么玩意
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

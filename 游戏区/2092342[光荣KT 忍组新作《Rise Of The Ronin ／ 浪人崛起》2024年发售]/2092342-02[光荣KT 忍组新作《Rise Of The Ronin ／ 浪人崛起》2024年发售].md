@@ -14129,3 +14129,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 5.主角自带隐藏属性，血量越少攻击力越高，50%血量对于满血的攻击力提升大概是15%
 
+
+*****
+
+####  彩虹肥宅  
+##### 2913#       发表于 2024-4-7 13:19
+
+现在一堆取消里技被开发出来了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

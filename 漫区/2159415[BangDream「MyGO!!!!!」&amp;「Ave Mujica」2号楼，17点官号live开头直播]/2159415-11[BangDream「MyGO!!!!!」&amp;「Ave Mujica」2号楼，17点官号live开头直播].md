@@ -4840,3 +4840,28 @@ WSD：宣传经费就这么点，今年的经费用完了，动画就明年播�
 
 按上面那个时间线分析独角兽写mujica的前几个月都很有热情结果年末切了，所以是快到结局部分的时候和制作组有分歧吗，但看cv的说法结局应该挺圆满的
 
+
+*****
+
+####  skives  
+##### 15252#       发表于 2024-4-7 13:17
+
+不会是cp大战导致的吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 15253#       发表于 2024-4-7 13:21
+
+日常快进到滑坡<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  skives  
+##### 15254#       发表于 2024-4-7 13:26
+
+木箱派大战初箱派
+

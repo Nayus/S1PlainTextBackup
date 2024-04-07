@@ -4554,3 +4554,13 @@ kanauru最强……
 
 然后不要跟我说晚上还要同时视听，对自己嗓子好点
 
+
+*****
+
+####  rs5621  
+##### 8590#       发表于 2024-4-7 13:24
+
+今晚holo最笨称号争夺战花落谁家，非常期待
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

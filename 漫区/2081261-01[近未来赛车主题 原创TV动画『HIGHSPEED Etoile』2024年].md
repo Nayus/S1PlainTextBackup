@@ -749,3 +749,11 @@ kr+奸笑出资还愿意给悠星这个外来户分一杯羹 还想不出问题�
 除了解说在摆烂，也没那么差吧2333</blockquote>
 女性解说那个声音实在太难听了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ardito  
+##### 188#       发表于 2024-4-7 08:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么年代了还在用动画带三消游戏
+

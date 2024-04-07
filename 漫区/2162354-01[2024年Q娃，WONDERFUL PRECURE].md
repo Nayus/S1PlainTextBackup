@@ -51,3 +51,13 @@
 
 然后铲屎官变身也不是立刻变……
 
+
+*****
+
+####  jaewoongh_  
+##### 1280#       发表于 2024-4-7 08:04
+
+人猫背景故事回，还挺温柔的，进一步的铺陈还是要等变人之后
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">悟君的智将属性开始发挥出来了，这不入队不太好吧
+

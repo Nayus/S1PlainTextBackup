@@ -5679,3 +5679,13 @@ MyGO动画又要限时返场了。
 
 [https://twitter.com/Bullfalk/status/1776859757288042659](https://twitter.com/Bullfalk/status/1776859757288042659)
 
+
+*****
+
+####  6030sylar  
+##### 15317#       发表于 2024-4-7 23:39
+
+牙白去ba跑龙套了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

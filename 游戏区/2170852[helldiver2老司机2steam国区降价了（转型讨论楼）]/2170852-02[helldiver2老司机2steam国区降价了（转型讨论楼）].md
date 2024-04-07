@@ -12011,3 +12011,14 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老外是不是特喜欢跟机器人对枪啊，打个n6我一次没死，20次增援全给三个队友耗完了还在送来自: iPhone客户端
 
+
+*****
+
+####  smdzh2  
+##### 2624#       发表于 2024-4-7 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64517373&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-4-7 21:52</a>
+老外是不是特喜欢跟机器人对枪啊，打个n6我一次没死，20次增援全给三个队友耗完了还在送 ...</blockquote>
+不穿防爆甲不找掩体，喜欢站在大平原上和哑铃人对枪是这样的
+我一个人做完支线，顺便炸了两个兵工厂，回头发现增员已经空了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

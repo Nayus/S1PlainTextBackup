@@ -5513,3 +5513,17 @@ MyGO动画又要限时返场了。
 那些人應該讓武士道別開什麼真人LIVE，別做著二偶的事然後來罵人太二偶 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">官号评论区下面这种人太多了，真受不了。
 
+
+*****
+
+####  a_kuma  
+##### 15306#       发表于 2024-4-7 18:07
+
+有没有懂哥知道4/29  横滨 ppp x mygo的演唱会门票要怎么买。
+最近才发现这个就在横滨开，离得近而且是祝日，就想去了。
+
+我看了官网的门票，写着有vip前排和一般坐席，这种是全都要买特典抽的吗？不能直接买吗？
+主要是我看那个抽座位的时间好像也已经过了，不太清楚还能不能买到票了。
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

@@ -11962,3 +11962,11 @@ ATAT除了脸上两门机枪 其他还是吃晕雷 下崽时候还能让他憋�
 
 现在的盾牌冲锋枪确实可以，防护范围感觉比以前大了，可以冲到脸上跟蹂躏者对枪，感觉也不失为新手和手残党的一个不错的选择<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 2618#       发表于 2024-4-7 18:08
+
+N9经常少一个战备，根本没格子带盾牌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

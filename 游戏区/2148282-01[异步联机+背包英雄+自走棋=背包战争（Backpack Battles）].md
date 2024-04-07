@@ -545,3 +545,16 @@ pve玩背包英雄，不过那个深度也不够
 
 最后仅剩一血的战斗都是反复按暂停看的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  自賠ニャン  
+##### 56#       发表于 2024-4-7 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476506&amp;ptid=2148282" target="_blank">afer 发表于 2024-4-3 22:16</a>
+
+看段位吧，上了钻之后不变硬搜基本能把大分都赔进去，钻石之前都是脚打，起码套路得记2套 ...</blockquote>
+段位高了主要是前期压力大，对手各种保血骚套路，想少输自己也要尽量拉满
+
+但到了转职前后还是要收敛到固定套路，不然强度不够哪怕前面连胜也撑不到加赛，而套路配件开局就要开始攒，很难混到中盘再决定玩什么
+

@@ -5562,3 +5562,24 @@ MyGO动画又要限时返场了。
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+*****
+
+####  基神的强袭自由  
+##### 15310#       发表于 2024-4-7 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64515902&amp;ptid=2159415" target="_blank">a_kuma 发表于 2024-4-7 18:38</a>
+感谢回复
+这种一般在哪种二手交易网站上找，闲鱼吗？</blockquote>
+日本也有两个卖票的网站可以看看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  すぴぱら  
+##### 15311#       发表于 2024-4-7 19:05
+
+这场后面大概率卖当日票，因为真的卖不完
+

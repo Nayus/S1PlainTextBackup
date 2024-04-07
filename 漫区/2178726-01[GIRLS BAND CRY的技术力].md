@@ -741,3 +741,11 @@ IMG_1953.jpeg
 这种动画都是懂2d动画的3d动画师，没有2d概念的只会指驴画虎，这种复合人才就算在业内也不是哪哪就随手抓出 ...</blockquote>
 然而表情动作的风格也和2D动画相差不小，何况这种漫画式的CG早就有了，应该已经有一套成熟的体系
 
+
+*****
+
+####  skgaminger1988  
+##### 79#       发表于 2024-4-8 07:29
+
+给人干抑郁了就干出来这个水平，也是有点搞的，做的跟二刺螈游戏cg似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

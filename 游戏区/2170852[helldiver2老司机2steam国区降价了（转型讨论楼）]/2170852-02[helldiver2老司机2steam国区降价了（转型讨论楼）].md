@@ -12052,3 +12052,11 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 
 德尔根这图有点粪
 
+
+*****
+
+####  雪地白狼  
+##### 2629#       发表于 2024-4-7 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚上进去打了一把，不知道什么BUG刚进去身上带了50个样本，50个稀有样本，5个超级样本，结果撤离一半闪退了
+

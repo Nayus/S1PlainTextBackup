@@ -14284,3 +14284,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 通关了，暗夜难度是不是没有必要打了
 
+
+*****
+
+####  Risotto_Nero  
+##### 2928#       发表于 2024-4-7 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64517179&amp;ptid=2092342" target="_blank">寂长无星夜 发表于 2024-4-7 20:37</a>
+我看了下他在长州藩京都府邸</blockquote>
+之前没管他，然后他在近江屋死了，用留魂录回去京都就是死亡状态了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -4662,3 +4662,83 @@ Mujica第一集生生看哭 没想到立意还能拔高
 
 别尬吹，谁家传家宝扔角落里吃灰<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 15235#       发表于 2024-4-7 12:26
+
+要是真四月播又要打gbc又要打水母，合理避战！
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15236#       发表于 2024-4-7 12:27
+
+让我想起去年讨论时有人提到有哪个慈善厂商番剧做完能压手里一年再放
+wsd:有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15237#       发表于 2024-4-7 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥漏好多次在这种很诡异的地方猜到扔给路人根本没人信的正确答案，武士道是不是有点太离谱了
+
+*****
+
+####  枫林不见  
+##### 15238#       发表于 2024-4-7 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在往好处想，avemujica的劲爆女女关系性肯定是拉满了，我已经开始贷款磕喵初祥了
+
+*****
+
+####  NODY  
+##### 15239#       发表于 2024-4-7 12:29
+
+当初第二季到第三季就是压了一年，问就是wsd惊世智慧觉得钱要分两次赚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 15240#       发表于 2024-4-7 12:29
+
+WSD：宣传经费就这么点，今年的经费用完了，动画就明年播吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 15241#       发表于 2024-4-7 12:31
+
+还避战呢，退退退最后就是别人都去搞gbc和水母了，先来后到搁二偶圈当然适用。
+
+得亏了人设不撞，不然wsd现在这傻逼样让鸡粉找到新家真全跑完了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+本来有个收割热度的机会，自己给自己抬走让别人摘桃子好搞笑。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15242#       发表于 2024-4-7 12:31
+
+ 本帖最后由 NODY 于 2024-4-7 12:36 编辑 
+
+初祥这样疯狂卖我应该可以放心入股了吧，不会像某些cp一样卖了大半年后动画告诉你是败犬单箭头迫害吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+感觉我奶了好久的幼年初祥创作mujica论又有点希望了
+
+*****
+
+####  cindy355  
+##### 15243#       发表于 2024-4-7 12:34
+
+ 本帖最后由 cindy355 于 2024-4-7 12:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">每日突破新下限
+
+猜一个今天根本不准备发海铃生日tmd
+
+越想越觉得mygo根本是wsd走了狗屎运了
+

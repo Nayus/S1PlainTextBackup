@@ -57,3 +57,13 @@
 有人拿了那个高级首饰经验包吗？到底加多少？好纠结打不打</blockquote>
 一级150、二级300、三级800
 
+
+*****
+
+####  poor  
+##### 1492#       发表于 2024-4-7 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64508891&amp;ptid=2050204" target="_blank">道双晨曦 发表于 2024-4-7 09:31</a>
+一级150、二级300、三级800</blockquote>
+谢谢，其实感觉800还挺多的，但是昨天拼死拼活打了个70w，真的打不到90w了，就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

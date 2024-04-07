@@ -14266,3 +14266,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 比如河上彦斋、刀匠的搭档（独眼老头）、多加支线来暗杀主角的隐刀二人组。这些人的boss设计都挺不错的，不进道馆给单挑可惜了
 
+
+*****
+
+####  zqqwe  
+##### 2926#       发表于 2024-4-7 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514453&amp;ptid=2092342" target="_blank">铁甲钢弹 发表于 2024-4-7 16:39</a>
+请问这个打伞的动作是怎么触发的？表情动作里面好像没找到。</blockquote>
+找猫60只之后解锁兑换
+

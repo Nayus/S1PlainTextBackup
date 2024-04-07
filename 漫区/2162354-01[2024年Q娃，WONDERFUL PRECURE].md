@@ -119,3 +119,19 @@ mayu明显cpu大师，拿沾自己气味最多的帽子送给猫，猫枕着帽�
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  HANDAIYV  
+##### 1287#       发表于 2024-4-7 21:37
+
+看真由自我介绍那一段里还是有小雪反感洗澡的画面有，估计还是当时没有混熟，现在嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 1288#       发表于 2024-4-7 21:45
+
+感觉小时候第一次洗澡是因为双方还不太熟小雪出于信赖所以配合了，后来两边熟起来特别是真由动不动就学校社交不利就回来吸猫逃避现实导致小雪这边也开始咸对应起来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

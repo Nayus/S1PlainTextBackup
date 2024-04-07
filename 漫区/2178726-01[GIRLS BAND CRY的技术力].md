@@ -570,3 +570,21 @@ gbc的头发感觉更柔软一些吧，然后就是布料模拟要好得多，�
 
 没人觉得GBC的人物显得很廉价么？尤其是发型，而且身上出现各种颜色线条的特效模式有点网大五毛特效的感觉
 
+
+*****
+
+####  manyin1  
+##### 62#         楼主| 发表于 2024-4-7 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64513042&amp;ptid=2178726" target="_blank">herrotang 发表于 2024-4-7 14:47</a>
+
+泥潭这半桶水实在是多得让人笑嘻了，以前漫区还有很多业内，现在看怕是都跑完了 ...</blockquote>
+是是是，您牛逼，您嘲讽就完事
+
+*****
+
+####  chenzhi11  
+##### 63#       发表于 2024-4-7 21:42
+
+高手太多了
+

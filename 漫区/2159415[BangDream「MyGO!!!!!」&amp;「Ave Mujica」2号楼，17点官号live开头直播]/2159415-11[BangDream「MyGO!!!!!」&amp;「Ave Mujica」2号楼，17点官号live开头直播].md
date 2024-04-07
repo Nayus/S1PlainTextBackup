@@ -4358,3 +4358,15 @@ https://www.pixiv.net/artworks/117611759<img src="https://p.sda1.dev/16/e53698b4
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">推上海玲生贺的图好多都是海希两人，这下狠狠的磕爆了，看来不止是西恩，全世界都磕海希。
 
+
+*****
+
+####  基神的强袭自由  
+##### 15200#       发表于 2024-4-7 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64505989&amp;ptid=2159415" target="_blank">Drawrain 发表于 2024-4-7 00:01</a>
+翻出来当初公布的图，这看样子连续五首都没mv了</blockquote>
+初看不知曲中意，再看已是曲中人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -11954,3 +11954,11 @@ ATAT除了脸上两门机枪 其他还是吃晕雷 下崽时候还能让他憋�
 
 打打虫子睡个觉，明早一醒就能领到勋章<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 2617#       发表于 2024-4-7 17:57
+
+现在的盾牌冲锋枪确实可以，防护范围感觉比以前大了，可以冲到脸上跟蹂躏者对枪，感觉也不失为新手和手残党的一个不错的选择<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

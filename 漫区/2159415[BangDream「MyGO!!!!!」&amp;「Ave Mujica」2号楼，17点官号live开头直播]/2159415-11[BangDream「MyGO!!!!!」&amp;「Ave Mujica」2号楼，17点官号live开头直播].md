@@ -4490,3 +4490,28 @@ wsd这是开始虐粉了是吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 15214#       发表于 2024-4-7 12:01
+
+没想到料都在访谈后篇
+
+*****
+
+####  PDQ4  
+##### 15215#       发表于 2024-4-7 12:03
+
+访谈后篇卖这么大<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+[https://www.animatetimes.com/news/details.php?id=1711342991](https://www.animatetimes.com/news/details.php?id=1711342991)
+
+*****
+
+####  NODY  
+##### 15216#       发表于 2024-4-7 12:05
+
+一番はドロリスとオブリビオニスのふたりの世界だったんです。もちろんライブをしているんですけど、「この世界には2人だけ」という気持ちで歌っていて。
+
+好家伙，这就是官配吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

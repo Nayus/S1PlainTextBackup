@@ -1,0 +1,742 @@
+﻿
+*****
+
+####  Piano-Forest  
+##### 1#       楼主       发表于 2024-4-6 02:31
+
+ 本帖最后由 Piano-Forest 于 2024-4-6 03:35 编辑 
+
+【官网】[https://www.gundam-seed.net/freedom/](https://www.gundam-seed.net/freedom/)
+
+【官推】[https://twitter.com/SEED_HDRP/](https://twitter.com/SEED_HDRP/)
+
+<img src="https://p.sda1.dev/15/f94eea54fcd1f9cfd0abbc75548a1904/main.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/abe75d5fae2b25ff1aa08d284cbd4c79/visual2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/12d485f721e881d0719a57f8fe4af001/visual3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/16e0ab87836a8c2405dc627780b339ad/20240403_121511.jpg" referrerpolicy="no-referrer">
+
+STAFF
+
+企画・制作：サンライズ
+
+原作：矢立 肇、富野由悠季
+
+監督：福田己津央
+
+脚本：両澤千晶、後藤リウ、福田己津央
+
+キャラクターデザイン：平井久司
+
+メカニカルデザイン：大河原邦男、山根公利、宮武一貴、阿久津潤一、新谷　学、禅芝、射尾卓弥、大河広行
+
+メカニカルアニメーションディレクター：重田 智
+
+色彩設計：長尾朱美
+
+美術監督：池田繁美、丸山由紀子
+
+CGディレクター：佐藤光裕、櫛田健介、藤江智洋
+
+モニターワークス：田村あず紗、影山慈郎
+
+撮影監督：葛山剛士、豊岡茂紀
+
+編集：野尻由紀子
+
+音響監督：藤野貞義
+
+音楽：佐橋俊彦
+
+製作：バンダイナムコフィルムワークス
+
+配給：バンダイナムコフィルムワークス、松竹
+
+主題歌：「FREEDOM」西川貴教 with t.komuro
+
+エンディングテーマ：
+
+See-Saw「去り際のロマンティクス」
+
+オフィシャルサポーターソング：玉置成実「Reborn」
+
+挿入歌：中島美嘉「望郷」
+
+CAST
+
+キラ・ヤマト：保志総一朗
+
+ラクス・クライン：田中理恵
+
+アスラン・ザラ：石田 彰
+
+カガリ・ユラ・アスハ：森なな子
+
+シン・アスカ：鈴村健一
+
+ルナマリア・ホーク：坂本真綾
+
+メイリン・ホーク：折笠富美子
+
+マリュー・ラミアス：三石琴乃
+
+ムウ・ラ・フラガ：子安武人
+
+イザーク・ジュール：関 智一
+
+ディアッカ・エルスマン：笹沼 晃
+
+アグネス・ギーベンラート：桑島法子
+
+トーヤ・マシマ：佐倉綾音
+
+アレクセイ・コノエ：大塚芳忠
+
+アルバート・ハインライン：福山 潤
+
+ヒルダ・ハーケン：根谷美智子
+
+ヘルベルト・フォン・ラインハルト：楠 大典
+
+マーズ・シメオン：諏訪部順一
+
+アウラ・マハ・ハイバル：田村ゆかり
+
+オルフェ・ラム・タオ：下野 紘
+
+シュラ・サーペンタイン：中村悠一
+
+イングリット・トラドール：上坂すみれ
+
+リデラード・トラドール：福圓美里
+
+ダニエル・ハルパー：松岡禎丞
+
+リュー・シェンチアン：利根健太朗
+
+グリフィン・アルバレスト：森崎ウィン
+
+ギルバート・デュランダル：池田秀一
+
+影像
+[PV1](https://youtu.be/vx6KV5yiFUA)
+[PV2](https://youtu.be/67FlumF48hs)
+[PV3](https://youtu.be/t5mpZ2jZhlE)
+[PV4](https://youtu.be/kEc6IegVHas)
+[正式PV](https://youtu.be/JLPZ9uzyas0)
+[片头6分钟](https://youtu.be/cl9Mf9M_Cvg)
+[スペシャル映像「ガンダムSEEDシリーズ～希望の剣はミーティアと共に～」](https://youtu.be/bw2s0alhXhw)
+[西川貴教「FREEDOM」MV](https://youtu.be/W3YfiVGSbus)
+
+*****
+
+####  Piano-Forest  
+##### 2#         楼主| 发表于 2024-4-6 02:39
+
+ 本帖最后由 Piano-Forest 于 2024-4-6 03:32 编辑 
+
+上一帖进入审核<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> ：
+[https://bbs.saraba1st.com/2b/thread-2167989-1-1.html](https://bbs.saraba1st.com/2b/thread-2167989-1-1.html)
+
+内地无法上映等BD发售或是流媒体上线就是了，本帖请勿再谈及除动画本身的相关内容
+
+港澳台均由羚邦代理
+
+·台湾4月19日上映
+
+·港澳4月25日上映
+
+*****
+
+####  Piano-Forest  
+##### 3#         楼主| 发表于 2024-4-6 02:57
+
+ED封面
+<img src="https://p.sda1.dev/15/3b08b8f354c5e90f434f11c28c60f90f/20240123_090750.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/c639a6a49af6787d2e2600437e48c012/20240123_090242.jpg" referrerpolicy="no-referrer">
+
+OST封面
+<img src="https://p.sda1.dev/15/18e2a714eadd2a72d1fe69e280449d33/ost_img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/3acc167be097613f0a4fcc32f69c3dd5/ost_img2.jpg" referrerpolicy="no-referrer">
+
+特典小说《两人的逃避之旅》/《月光女武神》
+
+《月光女武神》：
+[https://weibo.com/ttarticle/x/m/show#/id=2309404994640649519123](https://weibo.com/ttarticle/x/m/show#/id=2309404994640649519123)
+
+《两人的逃避之旅》：
+[https://m.weibo.cn/status/NDFUCA6ju](https://m.weibo.cn/status/NDFUCA6ju)
+[https://m.weibo.cn/status/NDOUol8Yc](https://m.weibo.cn/status/NDOUol8Yc)
+<img src="https://p.sda1.dev/16/de632660e87b033690b8d26e20b3d5cd/20240406_024128.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/810acfb3507f293166bb8438012a28e3/20240406_024133.jpg" referrerpolicy="no-referrer">
+
+[https://weibo.com/7503521063/5002857336804256](https://weibo.com/7503521063/5002857336804256)
+
+自扫
+
+剧场版动画
+
+MOBILE SUIT GUNDAM SEED FREEDOM 影院场刊 两本
+
+pan.baidu.com/s/1HVsz9G0EGpqnPHMhznHatw?pwd=ypou
+
+提：ypou
+
+文件后缀名加上【.zip】解压即可
+
+解压密码：射命丸文 
+
+[https://weibo.com/7503521063/5013205171309734](https://weibo.com/7503521063/5013205171309734)
+
+自购
+
+MOBILE SUIT GUNDAM SEED FREEDOM CHARACTER ARCHIVE
+
+pan.baidu.com/s/1rAUUJrOc29Pme8tcf3F1BQ?pwd=f3r0
+
+提：f3r0
+
+文件后缀名加上【.zip】解压即可
+
+解压密码：射命丸文 
+
+小说上下卷封面
+<img src="https://p.sda1.dev/15/c810558865025a5978658f879e683799/20240215_001955.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/f2b5b6cec6dfecd96f7397ee2ec6f55e/20240215_001959.jpg" referrerpolicy="no-referrer">
+
+杂志相关封面
+
+アニメディア与Animage 杂志图
+[https://weibo.com/2077867213/4999078649530615](https://weibo.com/2077867213/4999078649530615)
+[https://weibo.com/2077867213/4999079107759594](https://weibo.com/2077867213/4999079107759594)
+<img src="https://p.sda1.dev/15/3077518b6986620323407e49d6733fd9/20240201_161639.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2bee174b44862e5e715a2701af8bcb61/20240201_181135.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2a78311f4f8fedc96c26cc141c3ecc4f/20240202_165338.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/d50768adff4d2fff174638ad46f6ab65/20240205_182659.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2b1bf83a8255c2ba9bc617f11381d9c9/20240201_213224.jpg" referrerpolicy="no-referrer">
+
+旅游相关版权绘（部分）
+<img src="https://p.sda1.dev/15/906e468f69656ed02dd1456e0af78fa9/20240204_215028.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b7ef0a976a4e2d80705c23ff30c087a5/20240204_215029.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/1f7bd15f6d287e3f90bf149e5745c621/20240204_215049.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/3aa556e8b8adbb75ce7f0d7e38f072d5/20240204_215228.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/51683afc0fecd4ebd8c3c85b67d0333c/20240204_215209.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/5b36f451bcd41dd449c34ef43458d5f6/20240204_215204.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/696189d3a7a28346a168e6dfe41bf7da/20240204_215216.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/e1a13145055f1a1240c236cfa86d2a5d/20240204_215246.jpg" referrerpolicy="no-referrer">
+
+与三丽鸥角色联动的版权绘（部分/这两张左半均为刈谷仁美绘）
+<img src="https://p.sda1.dev/15/4b272dfe8a1d061b27fd58dc622fb53a/20240121_011832.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b6505c530b835cc99ddcaf47a6f10531/20240121_012030.jpg" referrerpolicy="no-referrer">
+
+其他
+<img src="https://p.sda1.dev/15/58175ba25960ddea03f0f749b1124afd/20240131_120835.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/51f653b305690fab70f75ac9fee16662/20240214_120447.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 4#         楼主| 发表于 2024-4-6 03:04
+
+上映倒计时贺图
+
+平井久司
+<img src="https://p.sda1.dev/15/a224a09d305e4f2dffe5b1b22699b675/20240125_230800.jpg" referrerpolicy="no-referrer">
+
+入場者プレゼント第10弾内容 SPイラストカード
+<img src="https://p.sda1.dev/16/fb9e51a50c95894743f47f66ed6cbbaf/20240406_021112.jpg" referrerpolicy="no-referrer">
+
+重田智
+<img src="https://p.sda1.dev/15/7a697fe5034817fb11f61a98854e5e3d/20240125_230804.jpg" referrerpolicy="no-referrer">
+
+片山学
+<img src="https://p.sda1.dev/15/77e0d827a2e08171cf09c1fe22f73f6d/20240125_230819.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/15/b710c1e85ac7145c4899a87a75d8194e/20240125_230829.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/11e23273a1e916f8a638de3ab9e6ded1/20240125_230834.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 5#         楼主| 发表于 2024-4-6 03:17
+
+[https://twitter.com/akainu2/status/1750408253073506718](https://twitter.com/akainu2/status/1750408253073506718)
+
+明日からだね〜(*´ω｀*)
+
+SEED日になればいいな〜
+
+記念に
+
+ライジングフリーダムG描いてみたよ〜
+<img src="https://p.sda1.dev/15/f756e35319ed15cb68570d4b3c1777ff/20240125_231015.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/koni_ko222/status/1750711533666214032](https://twitter.com/koni_ko222/status/1750711533666214032)
+
+本日から公開の「劇場版ガンダムSEED FREEDOM」にて微力ながら作画監督で参加させて頂きました。
+
+終盤のシーンのコクピット内のカットを担当しています。
+
+一足先にスタッフ試写で観させて頂きましたがメカの迫力が凄かったです！
+
+私もそこそこ頑張りましたのでぜひ映画館で観て下さい☺️
+<img src="https://p.sda1.dev/15/4d410d2ff533d2f4b6a1f1481d2408a9/20240126_112536.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/camus27315/status/1755885821226566134](https://twitter.com/camus27315/status/1755885821226566134)
+
+機動戦士ガンダム #SEEDFREEDOM 本日より公開になります！
+
+微力ながら参加させていただきました！
+
+当時楽しみに視聴していた作品なので感慨深いです！
+
+是非劇場でご覧ください！
+<img src="https://p.sda1.dev/15/87f286321e462b82ad68cd2dce2de88e/20240209_212543.jpg" referrerpolicy="no-referrer">
+
+#SEEDFREEDAM 応援
+
+前回キラだったのでアスラン！
+
+ズゴックが流行っているみたいですね
+<img src="https://p.sda1.dev/15/2510a44d9e2672676fc37d08be4029c0/20240209_212532.jpg" referrerpolicy="no-referrer">
+
+#SEEDFREEDAM  応援
+
+キラ、アスランと描いたのでシンです！
+<img src="https://p.sda1.dev/16/aaf0bf6b59d8e37e6e968ec361d5165a/20240303_220647.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/KuzumotIsan/status/1750809717272977703](https://twitter.com/KuzumotIsan/status/1750809717272977703)
+
+SEED FREEDOM原画で参加してました
+
+ずっと好きだった作品に関われて幸せでした
+
+初めて描くガンダムがフリーダムなのも幸福ポイント高かったです
+<img src="https://p.sda1.dev/15/e6f2bc14cf1a4f8b7074ca304c463b42/20240127_233931.jpg" referrerpolicy="no-referrer">
+
+[https://weibo.com/6761306792/4995280764143873](https://weibo.com/6761306792/4995280764143873)
+
+《机动战士高达SEED FREEDOM》作为机械作画监督参加啦
+
+很辛福能和福田监督再次工作
+<img src="https://p.sda1.dev/15/aac909f8f6f76556b84734ba46a3094f/20240128_225615.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/moco2346/status/1759052366954004748](https://twitter.com/moco2346/status/1759052366954004748)
+
+劇場版「ガンダムSEEDFREEDOM」上映中です。私は作画監督を担当させて頂きました。本日は日曜日、是非是非劇場で観て下さいね～✨
+<img src="https://p.sda1.dev/15/2357884bf7fdb5b4adb97834d8f46ff7/20240218_211056.jpg" referrerpolicy="no-referrer">
+
+ガンダムSEEDFREEDOMを観て一番思ったのはアスラン…とこの子が可愛かったのです…。仔犬のようで。
+<img src="https://p.sda1.dev/15/65173332080424149ce020bc9d4f0c9f/20240218_211100.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/_vicke_33/status/1763913498294390902](https://twitter.com/_vicke_33/status/1763913498294390902)
+
+劇場公開中の
+
+機動戦士ガンダムSEED
+
+FREEDOM
+
+少しだけ室内のキャラ芝居のシーンの絵コンテで参加させて頂きました
+
+m(__)m
+
+たくさんの方に見て頂いて
+
+有難うございますm(__)m☺
+<img src="https://p.sda1.dev/16/061f26c24654c6ef0f09a4b39d3aafdd/20240303_220643.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 6#         楼主| 发表于 2024-4-6 03:25
+
+ 本帖最后由 Piano-Forest 于 2024-4-6 03:26 编辑 
+
+[https://twitter.com/zzz_sakaz/status/1753064567050297815](https://twitter.com/zzz_sakaz/status/1753064567050297815)
+<img src="https://p.sda1.dev/15/7a258bf79123a3aa226adef43250698a/20240202_203605.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/yaduka301/status/1751517474590450017](https://twitter.com/yaduka301/status/1751517474590450017)
+
+#SEEDFREEDAM
+
+映画見てきた。
+
+私、研修明けて業界での初仕事がseedの動画だったんですよね。確かフリーダム登場前後の回のムウがパイロットスーツ来てて奥へ走っていくカット。
+
+ド新人だったから酷い仕事だったろうなぁ。
+
+しかし20年は・・・長かったねぇ
+<img src="https://p.sda1.dev/15/561567671ad697e6ac87992166b51e7d/20240128_225619.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/cwindjwind/status/1758004379821719930](https://twitter.com/cwindjwind/status/1758004379821719930)
+<img src="https://p.sda1.dev/15/e13f62944ec2ea17fe59f3cd96cd4ecb/20240215_222737.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/kitazzinger/status/1752257735750787273](https://twitter.com/kitazzinger/status/1752257735750787273)
+
+今年初めての半休で機動戦士ガンダムSEED FREEDOM見て来ました！めちゃくちゃ面白かったです！うろおぼえのアグネス・ギーベンラート落書き！こういう娘アタシは好きです。
+<img src="https://p.sda1.dev/15/fe8de09471ac6883d9a75c54a93caf45/20240131_114559.jpg" referrerpolicy="no-referrer">
+
+昔、友人が「ヲタクは一度はルナマリア・ホークに恋をする」と言っていた・・・１０年以上たつが私はまだその言葉の重みを理解しきれていない・・・・
+<img src="https://p.sda1.dev/16/552e208f35812c65828ed32a3d5e6cc4/GGNOdZlbkAAUaZI.jpeg" referrerpolicy="no-referrer">
+
+[https://twitter.com/atsynd/status/1752511069720056134](https://twitter.com/atsynd/status/1752511069720056134)
+<img src="https://p.sda1.dev/15/f8ad151f716a85fb19912a595612e5f3/20240131_130802.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 7#         楼主| 发表于 2024-4-6 03:29
+
+■『機動戦士ガンダムSEED FREEDOM』興収の流れ
+
+公開3日間：観客動員63万4182人、興収10億6598万3130円
+
+公開10日間：観客動員数121万5558人、興収19億6592万2900円
+
+公開18日間：観客動員数163万5481人、興収26億8443万5390円
+
+公開24日間：観客動員数186万9442人、興収31億2630万7990円
+
+公開31日間：観客動員数207万5752人、興収34億8505万8910円
+
+公開38日間：観客動員数220万7227人、興収37億777万4060円
+
+公開45日間：観客動員数230万4510人、興収38億8282万330円
+
+公開52日間：観客動員数237万2164人、興収40億12万4620円
+
+公開59日間：観客動員数243万5677人、興収41億791万1810円
+
+公開66日間：観客動員数250万9428人、興収42億2975万6590円
+
+*****
+
+####  永恒的王牌  
+##### 8#       发表于 2024-4-6 03:49
+
+最后能过45亿吗（
+
+*****
+
+####  liekong  
+##### 9#       发表于 2024-4-6 04:45
+
+ 本帖最后由 liekong 于 2024-4-6 05:17 编辑 
+
+都怪部分人，都炸掉两个楼了，老老实实围绕剧场版内容讨论吧，别聊场外无关内容了
+
+能不能破45亿要看什么时候下映吧，时间拖得够长总能达成的，50亿肯定是搞不定了
+
+<img src="https://img.saraba1st.com/forum/202404/06/051356sefwmwt2fr8wt5fb.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (61.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 05:13 上传
+
+无聊用Excel拉了个表，对数趋势线表示大概再放映个三周21天就刚好到45亿吧
+
+真硬要50亿得再上映个70天（X
+
+*****
+
+####  旋转吃草  
+##### 10#       发表于 2024-4-6 04:57
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  死难者23er  
+##### 11#       发表于 2024-4-6 09:33
+
+<img src="https://img.saraba1st.com/forum/202404/06/093303rm79e4eatk9zvjd8.png" referrerpolicy="no-referrer">
+
+<strong>4A9852B3-9101-403C-A15B-619730247086.png</strong> (254.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-6 09:33 上传
+
+没想到让我猜对了，阿姑尼斯的头发颜色和发型真的是为了追基拉去变了，而不是以前就是这个样子的
+
+*****
+
+####  downnote  
+##### 12#       发表于 2024-4-6 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497499&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-6 09:33</a>
+
+没想到让我猜对了，阿姑尼斯的头发颜色和发型真的是为了追基拉去变了，而不是以前就是这个样子的 ...</blockquote>
+那个土气的发卡也是么……希望她以后能换掉
+
+*****
+
+####  wasssf  
+##### 13#       发表于 2024-4-6 09:41
+
+芙蕾的亡灵<img src="https://static.saraba1st.com/image/smiley/carton2017/431.png" referrerpolicy="no-referrer">
+
+*****
+
+####  アーリィ  
+##### 14#       发表于 2024-4-6 10:01
+
+特典完全是摆烂，除了首周的小说和第三周的胶片，其他都没什么特别的
+
+*****
+
+####  hein  
+##### 15#       发表于 2024-4-6 10:04
+
+昨天锁帖让你们去外野自己开贴爱讨论
+
+自己开贴都没胆，不是傻是坏
+
+*****
+
+####  查查沙拉  
+##### 16#       发表于 2024-4-6 11:04
+
+话说版权绘里福冈牛 台场独角兽和78ff都有，为啥没有自己主场的上海自由
+
+*****
+
+####  Piano-Forest  
+##### 17#         楼主| 发表于 2024-4-6 12:21
+
+ 本帖最后由 Piano-Forest 于 2024-4-6 23:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497650&amp;ptid=2178694" target="_blank">hein 发表于 2024-4-6 10:04</a>
+
+昨天锁帖让你们去外野自己开贴爱讨论
+
+自己开贴都没胆，不是傻是坏</blockquote>
+能麻烦版主把上一帖过审核后锁了吗，主页一直通知挂着好像也关不掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">；不显示了，多谢大佬了
+
+*****
+
+####  hlazd  
+##### 18#       发表于 2024-4-6 12:23
+
+终于开新楼了
+
+*****
+
+####  oi99o  
+##### 19#       发表于 2024-4-6 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498101&amp;ptid=2178694" target="_blank">查查沙拉 发表于 2024-4-6 11:04</a>
+
+话说版权绘里福冈牛 台场独角兽和78ff都有，为啥没有自己主场的上海自由</blockquote>
+那套是日本国内旅游的图，等中国正式上映了可能才会画上海自由吧
+
+*****
+
+####  qwemiku  
+##### 20#       发表于 2024-4-6 14:51
+
+我现在就关心下半场胶片啥时候出
+
+*****
+
+####  qwemiku  
+##### 21#       发表于 2024-4-6 14:58
+
+[@Piano-Forest](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=529685) 请问你贴的这些图，是你自己有分辨率放大过吗？官网的图片分辨率都没你这个大？还是你哪里找的图
+
+*****
+
+####  empereur  
+##### 22#       发表于 2024-4-6 15:14
+
+踩着这么高的鞋跟也才这么点个头……
+
+*****
+
+####  ナルバレック  
+##### 23#       发表于 2024-4-6 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497650&amp;ptid=2178694" target="_blank">hein 发表于 2024-4-6 10:04</a>
+
+昨天锁帖让你们去外野自己开贴爱讨论
+
+自己开贴都没胆，不是傻是坏</blockquote>
+我都说了锁过贴了，还有人以为是抽风，不知道是装的还是真傻，试图歪到斗兽方向结果还是在讨论那个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 24#       发表于 2024-4-6 21:10
+
+我还奇怪之前那贴明明说了锁贴了怎么后来又解封了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说好像小说设定里宙斯剪影的弹药分地中貫通弾和陽電子砲弾两种，所以这东西设计上其实是一根炮管连发两弹一发贯通弹破要塞甲一发阳电子炮收割然后炮管废掉抛弃这么用吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 25#       发表于 2024-4-6 22:01
+
+说是这么说，但是外传小说封面还是把阿格妮斯的发型发色画成那个样
+
+本来想说你们调整者对自己的外貌这么没坚持吗，然后想起了米亚……对调整者并不是每家都有钱能调整全脸有了深刻体会
+
+*****
+
+####  死难者23er  
+##### 26#       发表于 2024-4-6 22:29
+
+<blockquote>七七見奈波 发表于 2024-4-6 22:01
+说是这么说，但是外传小说封面还是把阿格妮斯的发型发色画成那个样
+
+本来想说你们调整者对自己的外貌这么没 ...</blockquote>
+这里只能说是官方偷懒，毕竟就一个小说封面，没有必要弄个新造型出来
+
+*****
+
+####  Piano-Forest  
+##### 27#         楼主| 发表于 2024-4-6 23:52
+
+<blockquote>qwemiku 发表于 2024-4-6 14:58
+@Piano-Forest 请问你贴的这些图，是你自己有分辨率放大过吗？官网的图片分辨率都没你这个大？还是你哪里找 ...</blockquote>
+没，这分辨率有很大吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+基本都是官方公开或是在媒体的新闻稿里
+
+*****
+
+####  wyhman  
+##### 28#       发表于 2024-4-7 00:02
+
+10号落地东京了，FT大SB
+
+*****
+
+####  yth329  
+##### 29#       发表于 2024-4-7 00:44
+
+问个lag的问题，为啥人气投票卡咖喱是第一啊，剧场版里一共没出场几次而且造型和拉妖一样受害，难道原版就比鸡狼还高吗
+
+*****
+
+####  王留美  
+##### 30#       发表于 2024-4-7 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64506754&amp;ptid=2178694" target="_blank">yth329 发表于 2024-4-7 00:44</a>
+ 问个lag的问题，为啥人气投票卡咖喱是第一啊，剧场版里一共没出场几次而且造型和拉妖一样受害，难道原版就 ...</blockquote>
+和鸟一样
+比鸟还惨
+
+*****
+
+####  h33  
+##### 31#       发表于 2024-4-7 01:17
+
+上映了，来楼里问问只看过种，没看过种命影响理解电影吗?
+
+*****
+
+####  Promeus  
+##### 32#       发表于 2024-4-7 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64507118&amp;ptid=2178694" target="_blank">h33 发表于 2024-4-7 01:17</a>
+上映了，来楼里问问只看过种，没看过种命影响理解电影吗?</blockquote>
+理解不了
+
+*****
+
+####  king520kyo  
+##### 33#       发表于 2024-4-7 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64506754&amp;ptid=2178694" target="_blank">yth329 发表于 2024-4-7 00:44</a>
+问个lag的问题，为啥人气投票卡咖喱是第一啊，剧场版里一共没出场几次而且造型和拉妖一样受害，难道原版就 ...</blockquote>
+那投票能刷的 奥布国民压抑那么多年给咖喱刷个第一也没啥吧 咖喱人气本来也不低
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hlazd  
+##### 34#       发表于 2024-4-7 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64507118&amp;ptid=2178694" target="_blank">h33 发表于 2024-4-7 01:17</a>
+
+上映了，来楼里问问只看过种，没看过种命影响理解电影吗?</blockquote>
+完全不行。必须要两部都看了才能看这部。
+
+*****
+
+####  gundammarkⅡ  
+##### 35#       发表于 2024-4-7 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64507118&amp;ptid=2178694" target="_blank">h33 发表于 2024-4-7 01:17</a>
+上映了，来楼里问问只看过种，没看过种命影响理解电影吗?</blockquote>
+实在不想补两部TV近100集的话，可以选择补总集篇
+seed 3个+ 种命 4个
+
+*****
+
+####  死难者23er  
+##### 36#       发表于 2024-4-7 08:42
+
+<blockquote>yth329 发表于 2024-4-7 00:44
+问个lag的问题，为啥人气投票卡咖喱是第一啊，剧场版里一共没出场几次而且造型和拉妖一样受害，难道原版就 ...</blockquote>
+本来人气这么高，再加上剧场版许多高光，爱情事业双胜利，而且虽然有厚嘴唇，但是不明显
+
+*****
+
+####  qwemiku  
+##### 37#       发表于 2024-4-7 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64507118&amp;ptid=2178694" target="_blank">h33 发表于 2024-4-7 01:17</a>
+
+上映了，来楼里问问只看过种，没看过种命影响理解电影吗?</blockquote>
+一定要看，其实看起来根本停不下来。非常得劲
+
+*****
+
+####  eilot  
+##### 38#       发表于 2024-4-7 11:01
+
+ 本帖最后由 eilot 于 2024-4-7 11:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64507118&amp;ptid=2178694" target="_blank">h33 发表于 2024-4-7 01:17</a>
+
+上映了，来楼里问问只看过种，没看过种命影响理解电影吗?</blockquote>
+不能，因為故事本身是延續種命之後局勢發展，建基於觀眾是知道劇情、人物等基礎下
+
+種系的每部作品時間都非常接近
+
+但基本上只需看種+種命的總集編即可
+
+但暫時不要問為何突然多了一個新國家/敵人，劇中算是有解釋
+
+(時間線發展及背景都有點類似LLX的劇場版復活)
+
+*****
+
+####  SorroFrost  
+##### 39#       发表于 2024-4-7 11:02
+
+之前讨论剧情和活动回复都没太多回复，一出了事情直接讨论的热火朝天。
+
+电影能不能过审看后续情报呗，大不了就等bd。
+
+*****
+
+####  七七見奈波  
+##### 40#       发表于 2024-4-7 11:54
+
+越看MSF背后的粉红色越丑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">金色也很丑，破不了
+
+
+*****
+
+####  七七見奈波  
+##### 41#       发表于 2024-4-7 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497515&amp;ptid=2178694" target="_blank">downnote 发表于 2024-4-6 09:39</a>
+
+那个土气的发卡也是么……希望她以后能换掉</blockquote>
+拉克丝那刮胡刀发卡这么多年也没换，还给米亚夹了个更丑的大海星。平井在发饰和鞋子上的品味比他对衣服的品味还糟糕
+

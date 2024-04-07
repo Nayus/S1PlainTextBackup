@@ -5344,3 +5344,28 @@ mujica动画都定了明年1月，狗的第一个剧场版就这个月出，muji
 
 —— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Nomind96  
+##### 15289#       发表于 2024-4-7 16:40
+
+因为主唱摆烂+水平欠缺
+
+*****
+
+####  Toki_Ai  
+##### 15290#       发表于 2024-4-7 16:40
+
+冷板凳可以看看隔壁ppp.都快成手游团了
+
+
+*****
+
+####  EBe  
+##### 15291#       发表于 2024-4-7 16:43
+
+还是得看鸡能不能买过狗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不然说不好誰坐冷板凳
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

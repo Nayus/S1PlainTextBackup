@@ -5502,3 +5502,14 @@ MyGO动画又要限时返场了。
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cindy355  
+##### 15305#       发表于 2024-4-7 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514823&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-7 17:08</a>
+
+那些人應該讓武士道別開什麼真人LIVE，別做著二偶的事然後來罵人太二偶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">官号评论区下面这种人太多了，真受不了。
+

@@ -263,3 +263,11 @@ https://twitter.com/barelroll/status/1776453933403451784/photo/1</blockquote>
 
 最想吐槽的是蒜的2只定价17000元，给的印刷眼睛，本系列接下来几只同17000的突击莉莉都给了实体眼和大武器，贵了2000元的爱马仕除了实体眼还多给了一套服装，这是什么差别对待
 
+
+*****
+
+####  osore  
+##### 1781#       发表于 2024-4-7 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">土鸡瓦狗送的东西就豪华一些
+

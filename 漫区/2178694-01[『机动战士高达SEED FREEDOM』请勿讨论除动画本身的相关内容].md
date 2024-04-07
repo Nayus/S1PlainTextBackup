@@ -878,3 +878,14 @@ TV版就是雞神認為自己是神，認為能主牢戰場一切，一直手下
 
 借楼问下 新加坡啥时候上映？
 
+
+*****
+
+####  cxj649  
+##### 53#       发表于 2024-4-7 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514149&amp;ptid=2178694" target="_blank">中野梓 发表于 2024-4-7 16:14</a>
+
+那可真low啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原作LOW的是姨丈
+

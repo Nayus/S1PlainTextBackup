@@ -46,3 +46,14 @@
 
 有人拿了那个高级首饰经验包吗？到底加多少？好纠结打不打
 
+
+*****
+
+####  道双晨曦  
+##### 1491#       发表于 2024-4-7 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64497706&amp;ptid=2050204" target="_blank">poor 发表于 2024-4-6 10:13</a>
+
+有人拿了那个高级首饰经验包吗？到底加多少？好纠结打不打</blockquote>
+一级150、二级300、三级800
+

@@ -14182,3 +14182,23 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 我突然发现在雨里能打伞走...忍组真是做出了我心目中的武侠风</blockquote>
 请问这个打伞的动作是怎么触发的？表情动作里面好像没找到。
 
+
+*****
+
+####  寂长无星夜  
+##### 2918#       发表于 2024-4-7 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514453&amp;ptid=2092342" target="_blank">铁甲钢弹 发表于 2024-4-7 16:39</a>
+请问这个打伞的动作是怎么触发的？表情动作里面好像没找到。</blockquote>
+好像是跟薄云比翼给的，记不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  葵  
+##### 2919#       发表于 2024-4-7 19:47
+
+话说我和多加比翼，睡了以后第二天多加就被杀了，那我以后想和别人比翼怎么办？
+
+难道要在留魂录里魂穿回去和多加分手？这也太渣了吧？穿越时间和已死的前任分手，只为了后面和新欢啪啪啪，这怎么想都是顶级渣男啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -907,3 +907,14 @@ TV版就是雞神認為自己是神，認為能主牢戰場一切，一直手下
 原作LOW的是姨丈</blockquote>
 然而现在快被种白洗成比手下废掉无正一只手的萝莉和令正义自爆自由大破的狼爹强多了，种命最终战整出毫无作用的双杀器战术让两打手硬上被秒实在看不出老谋深算在哪
 
+
+*****
+
+####  cxj649  
+##### 56#       发表于 2024-4-7 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64516402&amp;ptid=2178694" target="_blank">Ironman_mk5 发表于 2024-4-7 19:29</a>
+
+然而现在快被种白洗成比手下废掉无正一只手的萝莉和令正义自爆自由大破的狼爹强多了，种命最终战整出毫无 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从刺杀拉克丝失败开始，也算是一路崩
+

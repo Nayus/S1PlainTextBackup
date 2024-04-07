@@ -989,3 +989,26 @@ TV版就是雞神認為自己是神，認為能主牢戰場一切，一直手下
 香水可以证明黄毛是真的一点吸金能力都没有，到现在第一批都还没有卖完，剧场版是真的一个高人气角色都没有 ...</blockquote>
 剧场版新角色投票人气最高的是蓝毛，但是毫无周边233
 
+
+*****
+
+####  死难者23er  
+##### 64#       发表于 2024-4-7 21:48
+
+<blockquote>ナルバレック 发表于 2024-4-7 21:42
+剧场版新角色投票人气最高的是蓝毛，但是毫无周边233</blockquote>
+不是人气最高的，是福山润那个角色在应该有声优加成
+
+*****
+
+####  卡罗斯  
+##### 65#       发表于 2024-4-7 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64515412&amp;ptid=2178694" target="_blank">菠萝柚子 发表于 2024-4-7 17:55</a>
+借楼问下 新加坡啥时候上映？</blockquote>
+4月4日已经上了。
+
+https://www.cathaycineplexes.com.sg/movies/HO00002534
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

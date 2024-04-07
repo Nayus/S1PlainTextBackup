@@ -1053,3 +1053,13 @@ shaw好像也有
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  王留美  
+##### 70#       发表于 2024-4-8 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64517986&amp;ptid=2178694" target="_blank">查查沙拉 发表于 2024-4-7 22:00</a>
+ 等MSV掏出捍卫者+飞升自由的画稿再看看到底是捍卫者背包不行  还是强自2不行 ...</blockquote>
+MSV是森田主创的，他一时半会没这个功夫吧
+

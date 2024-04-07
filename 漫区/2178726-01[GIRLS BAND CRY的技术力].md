@@ -620,3 +620,52 @@ gbc的头发感觉更柔软一些吧，然后就是布料模拟要好得多，�
 
 自觉评价不了技术力，不过单是没有僵硬感就足够好评了
 
+
+*****
+
+####  退行  
+##### 68#       发表于 2024-4-8 00:37
+
+结论是纯人工堆出来的<img src="https://p.sda1.dev/16/e7f4f25902aa9db0ee29f75f4eeae3fb/7ba9f896eab46b5e.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Sanco  
+##### 69#       发表于 2024-4-8 00:42
+
+动作表情确实还行，别的地方就感觉不怎么样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11A511  
+##### 70#       发表于 2024-4-8 00:43
+
+结论是完全靠人工智能
+
+IMG_1953.jpeg
+(1019.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-8 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202404/08/004327l98i85ufzmn5989i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fuochai  
+##### 71#       发表于 2024-4-8 00:44
+
+动作和表情都太流畅了 完美避开我对3d动画的雷点 甚至让我担心以后3d动画会占主流 挤占手绘的空间
+
+*****
+
+####  renkan119  
+##### 72#       发表于 2024-4-8 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64519445&amp;ptid=2178726" target="_blank">fuochai 发表于 2024-4-8 00:44</a>
+
+动作和表情都太流畅了 完美避开我对3d动画的雷点 甚至让我担心以后3d动画会占主流 挤占手绘的空间 ...</blockquote>
+看楼上的感觉暂时不用担心 这人才消耗没几家耗得起啊
+

@@ -14327,3 +14327,11 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 —— 来自 HONOR AGT-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hkguty  
+##### 2932#       发表于 2024-4-8 00:45
+
+这游戏是不是不用石火玩不了，目前玩着感觉像暗荣版打铁游戏
+

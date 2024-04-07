@@ -793,3 +793,11 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 <img src="https://p.sda1.dev/16/712ba34594dc8e32dc300e2fea5fbae7/CMP_20240407212229349.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山代风我  
+##### 193#       发表于 2024-4-8 00:46
+
+做成这样真不是经费的问题了，真是白瞎这人设，这片的价值大概就是看看各种宣传绘了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 
+

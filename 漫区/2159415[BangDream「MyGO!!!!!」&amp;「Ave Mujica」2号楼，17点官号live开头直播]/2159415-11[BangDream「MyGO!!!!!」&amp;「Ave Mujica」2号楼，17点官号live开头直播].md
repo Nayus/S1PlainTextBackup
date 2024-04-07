@@ -5237,3 +5237,58 @@ wsd你最好明年能让大伙看到三集连播外加没有任何总集篇和�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  6030sylar  
+##### 15277#       发表于 2024-4-7 15:57
+
+ 本帖最后由 6030sylar 于 2024-4-7 15:58 编辑 
+
+初华当然是对应亚亚卡，但是可可娜和帕皮卡对应是灯和爱音，
+
+祥子形象更接近妞妞
+<img src="https://img.moegirl.org.cn/common/thumb/0/04/Nyunyu.png/200px-Nyunyu.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nomind96  
+##### 15278#       发表于 2024-4-7 15:59
+
+mygo也该到头了，6th live开完就差不多了。年底去邦13th混一下
+
+
+*****
+
+####  kivz  
+##### 15279#       发表于 2024-4-7 16:04
+
+新曲不错呀<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+但是武士道nmsl<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 15280#       发表于 2024-4-7 16:04
+
+看6th那场子就一股捞一把就跑的味道
+
+
+*****
+
+####  EBe  
+##### 15281#       发表于 2024-4-7 16:05
+
+狗第二部剧场版啥时候来着<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，感觉这之前就别想鸡了
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  yuyin589  
+##### 15282#       发表于 2024-4-7 16:05
+
+感觉轻拍最多也就独角兽有把自己的双子xp往祥睦上套的嫌疑，其他的就有点太牵强了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

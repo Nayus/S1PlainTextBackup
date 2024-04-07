@@ -5369,3 +5369,20 @@ mujica动画都定了明年1月，狗的第一个剧场版就这个月出，muji
 
 —— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  novalli  
+##### 15292#       发表于 2024-4-7 16:55
+
+听了一下新歌，果然喵梦是被祥子记恨了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  DarthAka  
+##### 15293#       发表于 2024-4-7 16:58
+
+狗不板凳那就鸡板凳呗，在人气比不过萝+现场打不过拉上，鸡和狗五十步笑百步
+

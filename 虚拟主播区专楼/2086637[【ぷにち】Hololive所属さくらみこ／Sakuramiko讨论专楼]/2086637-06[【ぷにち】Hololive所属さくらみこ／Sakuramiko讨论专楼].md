@@ -4652,3 +4652,27 @@ nene锐评miko很会玩黄油，所以很黄
 
 萝卜的杂鱼wifi最强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8601#         楼主| 发表于 2024-4-7 21:07
+
+<img src="https://img.saraba1st.com/forum/202404/07/210713p66bcjbr3b96re39.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 21:07 上传
+
+
+*****
+
+####  holoan  
+##### 8602#         楼主| 发表于 2024-4-7 21:10
+
+比miko五子棋水平还差的2个人
+
+原来比差真的没有下限
+

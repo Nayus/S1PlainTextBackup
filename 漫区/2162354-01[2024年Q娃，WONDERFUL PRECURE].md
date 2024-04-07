@@ -77,3 +77,14 @@
 
 铲屎官设计的这个新饰品该不会就是猫组的变身器吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1283#       发表于 2024-4-7 12:41
+
+mayu：我可能不是人但小麦你是真的狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+mayu明显cpu大师，拿沾自己气味最多的帽子送给猫，猫枕着帽子睡觉怕是梦里都是mayu的诶噶偶，你跺你也ma<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集完了猫明显更傲娇了，嘴上说不要身体各种老实的一逼，等变人之后怕是天天被mayu按着吸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

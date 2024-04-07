@@ -4742,3 +4742,53 @@ WSD：宣传经费就这么点，今年的经费用完了，动画就明年播�
 
 越想越觉得mygo根本是wsd走了狗屎运了
 
+
+*****
+
+####  ydsbbt  
+##### 15244#       发表于 2024-4-7 12:36
+
+[https://www.bilibili.com/read/cv33633944/](https://www.bilibili.com/read/cv33633944/)
+
+新的绫奈考据来了，去年的第一篇是我朋友帮我代发在S1的。前半部分研究了mujica与绫奈另一部担任系构的原创动画《轻拍翻转小魔女》的联系，后半部分挖掘了绫奈在mygo访谈中提到的自己被背叛的经历。最后滑了个坡。
+
+<img src="https://img.saraba1st.com/forum/202404/07/123458s1zk3y1wof3k31y4.jpg" referrerpolicy="no-referrer">
+
+<strong>双子共演.jpg</strong> (67.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 12:34 上传
+
+<img src="https://img.saraba1st.com/forum/202404/07/123506m818w1teq0eqg19t.png" referrerpolicy="no-referrer">
+
+<strong>致敬闪灵.png</strong> (128.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/07/123510qjzjjj119lpz1be7.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-04-04_12-29-18.jpg</strong> (79.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/07/123521jk800dmg08fziui0.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-04-02_00-33-45.jpg</strong> (107.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 12:35 上传
+
+
+*****
+
+####  本间日阳  
+##### 15245#       发表于 2024-4-7 12:42
+
+真生哭立拔啊。
+

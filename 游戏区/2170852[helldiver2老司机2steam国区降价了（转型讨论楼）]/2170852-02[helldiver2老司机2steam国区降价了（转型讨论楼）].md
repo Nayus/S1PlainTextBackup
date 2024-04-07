@@ -11980,3 +11980,11 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2620#       发表于 2024-4-7 20:04
+
+盾牌我玩过几次就不想玩了
+

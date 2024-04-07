@@ -4676,3 +4676,19 @@ nene锐评miko很会玩黄油，所以很黄
 
 原来比差真的没有下限
 
+
+*****
+
+####  holoan  
+##### 8603#         楼主| 发表于 2024-4-7 22:37
+
+[https://www.youtube.com/live/epl ... tVrwsBY&amp;t=15860](https://www.youtube.com/live/eplbvtRYz8I?si=PqWvQbr4KtVrwsBY&amp;t=15860)
+[https://www.youtube.com/live/gkI ... ZIIJ15WI&amp;t=6475](https://www.youtube.com/live/gkI21lcbfWg?si=Yxd9D1AmZIIJ15WI&amp;t=6475)
+[https://www.youtube.com/live/J1e ... IsC_gpW&amp;t=13573](https://www.youtube.com/live/J1eoo2CwbnQ?si=5IPi5PNujIsC_gpW&amp;t=13573)
+
+这两天没看直播的人我再次提一下，200万本人是不做耐久的，只说做“見届け”形式也就是见证型直播，顶多直播内加个什么特别企划
+
+不做耐久的原因有好几个，本身最近生病没痊愈喉咙的痰还很多做长时间耐久不实际，同样的原因也做不了歌回耐久，另外临近200万订阅加速打乱了她原先的计划（直播里说的是“某个原因”想在本月中到达）
+
+今天说的是下周初的两天就会把200万直播做掉因为周四有事不能直播怕那时候到达所以会提前，时间比较赶不知道准不准备其他企划了，没有特别准备的话大概就杂谈念棉花糖或者做个简短回顾过去了
+

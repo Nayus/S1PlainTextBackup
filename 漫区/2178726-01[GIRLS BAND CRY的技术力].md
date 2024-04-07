@@ -718,3 +718,26 @@ IMG_1953.jpeg
 你们对since 1956的东映动画是有什么错误认知啊
 他不压榨员工是怎么和龙之子并称日本动画业界的黄埔军校
 
+
+*****
+
+####  Ask_10A  
+##### 77#       发表于 2024-4-8 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64519585&amp;ptid=2178726" target="_blank">11A511 发表于 2024-4-8 01:02</a>
+
+做抑郁一批人好像是泥潭去年秋天就提到的...
+
+不过本来以为是有点技术含量或者至少能有些通用性的东西</blockquote>
+现在大致的情况是前期给菲律宾那边做的，然后发回日本改也只能在基础上改了，所以建模材质低，然后手k救回来的动作表情
+
+*****
+
+####  11A511  
+##### 78#       发表于 2024-4-8 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64519819&amp;ptid=2178726" target="_blank">江口夕 发表于 2024-4-8 01:34</a>
+
+这种动画都是懂2d动画的3d动画师，没有2d概念的只会指驴画虎，这种复合人才就算在业内也不是哪哪就随手抓出 ...</blockquote>
+然而表情动作的风格也和2D动画相差不小，何况这种漫画式的CG早就有了，应该已经有一套成熟的体系
+

@@ -811,3 +811,11 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ViviR  
+##### 195#       发表于 2024-4-8 01:33
+
+没想到寄得那么快。
+

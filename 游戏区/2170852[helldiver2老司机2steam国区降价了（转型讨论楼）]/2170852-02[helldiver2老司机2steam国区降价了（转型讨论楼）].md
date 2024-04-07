@@ -12079,3 +12079,11 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 
 闪退越来越频繁，梦回开服<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 2632#       发表于 2024-4-7 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">又结算闪退了，还想看看自己数据来着，机器人解放任务里打三个据点那种 380+激光+空袭三红单走是真爽啊，我甚至开始穿投掷距离的甲了
+

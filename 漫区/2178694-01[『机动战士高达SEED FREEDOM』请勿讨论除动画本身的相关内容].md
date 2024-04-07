@@ -1041,3 +1041,15 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534
 https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 艹，这是Cathay影院独占啊，gv和shaw都没有，下周末去看了。
 
+
+*****
+
+####  卡罗斯  
+##### 69#       发表于 2024-4-7 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64518006&amp;ptid=2178694" target="_blank">少少小司 发表于 2024-4-7 22:03</a>
+艹，这是Cathay影院独占啊，gv和shaw都没有，下周末去看了。</blockquote>
+shaw好像也有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

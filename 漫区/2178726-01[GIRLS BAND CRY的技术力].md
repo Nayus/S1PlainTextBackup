@@ -709,3 +709,12 @@ IMG_1953.jpeg
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  王留美  
+##### 76#       发表于 2024-4-8 01:41
+
+你们对since 1956的东映动画是有什么错误认知啊
+他不压榨员工是怎么和龙之子并称日本动画业界的黄埔军校
+

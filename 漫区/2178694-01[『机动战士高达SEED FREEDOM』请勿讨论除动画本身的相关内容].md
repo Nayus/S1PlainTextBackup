@@ -889,3 +889,11 @@ TV版就是雞神認為自己是神，認為能主牢戰場一切，一直手下
 那可真low啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原作LOW的是姨丈
 
+
+*****
+
+####  中野梓  
+##### 54#       发表于 2024-4-7 18:46
+
+哈哈，阿斯兰
+

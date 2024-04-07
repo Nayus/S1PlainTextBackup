@@ -5583,3 +5583,35 @@ MyGO动画又要限时返场了。
 
 这场后面大概率卖当日票，因为真的卖不完
 
+
+*****
+
+####  acgreen  
+##### 15312#       发表于 2024-4-7 19:17
+
+没有动画，这些访谈也就是隔靴搔痒，说不清楚什么。只能希望他们能把“救赎”戏码做好看点吧，下调期望值和转移关注我觉得是正确的选择，毕竟要等那么久还要见证WSD的惊世智慧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  水可载舟  
+##### 15313#       发表于 2024-4-7 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64515902&amp;ptid=2159415" target="_blank">a_kuma 发表于 2024-4-7 18:38</a>
+
+感谢回复
+
+这种一般在哪种二手交易网站上找，闲鱼吗？</blockquote>
+日本收票一般就票通（チケット流通センター）和票酱（チケジャム），不过反正这场不会没票的，可以等后面开一般
+
+*****
+
+####  rslika  
+##### 15314#       发表于 2024-4-7 19:24
+
+如果是专门飞一趟日本，最好收张p席（位置更好的高级席）
+
+当日基本不可能开出好位置，不过横a总体视野都还不错
+

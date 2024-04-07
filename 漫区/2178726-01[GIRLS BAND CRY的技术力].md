@@ -669,3 +669,15 @@ IMG_1953.jpeg
 动作和表情都太流畅了 完美避开我对3d动画的雷点 甚至让我担心以后3d动画会占主流 挤占手绘的空间 ...</blockquote>
 看楼上的感觉暂时不用担心 这人才消耗没几家耗得起啊
 
+
+*****
+
+####  ParadiseMartyr  
+##### 73#       发表于 2024-4-8 00:53
+
+ 本帖最后由 ParadiseMartyr 于 2024-4-8 00:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就是mmd仙人堆出来的啊…我去…
+这十二集下来的量估计比一个RPG游戏的过场动画工作量还多吧…
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

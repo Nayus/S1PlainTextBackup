@@ -12097,3 +12097,24 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  LrGsite  
+##### 2634#       发表于 2024-4-8 00:50
+
+下线的时候86% 20万潜兵,估计明天一早就能看见机器人被灭灯了
+
+
+*****
+
+####  雪地白狼  
+##### 2635#       发表于 2024-4-8 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64518397&amp;ptid=2170852" target="_blank">nukecole 发表于 2024-4-7 22:47</a>
+可能是有人开挂。上次进野队做防守战任务，刚空投下去就显示任务完成，然后结算的时候样本全满。。。 ...</blockquote>
+顺手去谷歌搜了下第一页全是cheat menu
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

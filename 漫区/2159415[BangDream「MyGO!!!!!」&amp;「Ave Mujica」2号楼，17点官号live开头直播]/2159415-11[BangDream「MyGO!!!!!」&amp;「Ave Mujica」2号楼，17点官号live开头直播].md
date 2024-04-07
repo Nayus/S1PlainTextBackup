@@ -4395,3 +4395,26 @@ https://www.pixiv.net/artworks/117611759<img src="https://p.sda1.dev/16/e53698b4
 
 不是 作曲怎麼還有Diggy-MO’<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hitori酱  
+##### 15203#       发表于 2024-4-7 10:38
+
+Apple Music是只上了日区吗，我美区没上😩
+
+
+*****
+
+####  滑稽Captain  
+##### 15204#       发表于 2024-4-7 10:45
+
+单曲介绍自己吹这么大吗
+
+*****
+
+####  [皆神孝介]  
+##### 15205#       发表于 2024-4-7 10:46
+
+大马哈鱼不是有下载吗？可以下载以后用本地播放器来听啊
+

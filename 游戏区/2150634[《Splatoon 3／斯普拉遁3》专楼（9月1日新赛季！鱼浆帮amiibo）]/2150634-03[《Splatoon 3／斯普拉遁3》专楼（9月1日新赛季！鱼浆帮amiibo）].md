@@ -9707,3 +9707,11 @@ tm的w1走私鱼发了巴勃罗北斋和喇叭熊弓<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">上次止步于940分的斗技场终于康掉了，900分到999打了17场，好几场武器组合roll的特别恶意，还剩个破船没康等金工了，但是我觉得绿随机工比金问号好玩多了
 
+
+*****
+
+####  罗克萨斯  
+##### 3941#       发表于 2024-4-7 20:12
+
+奶狗拉的审查者完全不带SP强，而是带了0.4的SP增，果然单排还是带SP增更好么？总之我要重做装备了
+

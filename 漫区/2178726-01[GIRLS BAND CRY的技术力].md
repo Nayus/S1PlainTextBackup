@@ -416,3 +416,13 @@ polygon对sc的做法也是头发高光贴图直接画死的，三峰戴帽子�
 有的3D动画连贯的动作看着有种机械而不真实的 ...</blockquote>
 抽帧这个也看水平，抽不好乱抽帧的就会非常难看，再加上国人对帧数极为敏感一旦出现大段的卡顿观感就是非常难受。
 
+
+*****
+
+####  江口夕  
+##### 42#       发表于 2024-4-7 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家技术力高在动起来 谁跟你谈渲染了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

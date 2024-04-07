@@ -569,3 +569,11 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 
 这配音有点难顶
 
+
+*****
+
+####  火红之眼  
+##### 59#       发表于 2024-4-8 03:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉就为了弄个反差故意配成这样，但也没必要啊.....就按真人版那么来配也挺自然的
+

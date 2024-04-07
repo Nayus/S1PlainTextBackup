@@ -4472,3 +4472,21 @@ wsd这是开始虐粉了是吧
 
 后篇这就发了，不按常理出牌啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 15212#       发表于 2024-4-7 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64510312&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-4-7 11:17</a>
+
+真要说皇族，我看就羊一个够皇</blockquote>
+噫，可不敢乱讲羊，回头羊噶打过来骂又是祥厨在黑羊大人，祥厨又得背负了
+
+*****
+
+####  麻巳巳  
+##### 15213#       发表于 2024-4-7 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

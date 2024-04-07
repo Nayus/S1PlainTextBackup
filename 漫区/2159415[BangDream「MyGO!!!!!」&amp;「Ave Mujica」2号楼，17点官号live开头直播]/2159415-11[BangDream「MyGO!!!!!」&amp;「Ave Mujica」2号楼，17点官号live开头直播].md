@@ -5469,3 +5469,26 @@ MyGO动画又要限时返场了。
 
 星团占着个鲤鱼所以勉强放进来了
 
+
+*****
+
+####  爱丁堡official  
+##### 15302#       发表于 2024-4-7 17:42
+
+不知道为什么mygo动画过不了审。要是星三同步就更不懂了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 15303#       发表于 2024-4-7 17:45
+
+这个被救赎感觉很微妙，个人不喜欢看太谁救谁的戏码，依附感好强。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+不过ave mujica是光，感觉最后还是着眼于乐队才是真正救赎，这还挺喜欢的。
+
+最后一集不知道会揭示什么伏笔。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然还有差不多一年才能看到最后一集<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

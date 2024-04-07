@@ -5438,3 +5438,24 @@ MyGO动画又要限时返场了。
 
 顺着上面的独角兽考据把z8的oyunon不仲c团原型假说看完了，怎么感觉还怪真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 15299#       发表于 2024-4-7 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514781&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-7 17:05</a>
+
+最快4月？9月開始配音是按照1月能播完的進度在做的。也就是如果不拖，現在已經看完ave mujica了。 ...</blockquote>
+一定要这样扣字眼吗（
+
+我只是个人不习惯说话说太死，但是我去年的最早想法就是【理论最快1月会有，4月必定能有】，当然在现在2025.01的结论下讨论这个没有什么意义
+
+
+*****
+
+####  ykyin09  
+##### 15300#       发表于 2024-4-7 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我还想着本篇能跟狗团进国服同步上b站呢，原来还是限时播放
+

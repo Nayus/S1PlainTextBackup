@@ -812,3 +812,30 @@ https://bbs.saraba1st.com/2b/thread-2167989-1-1.html</blockquote>
 种命黄大和可没有机战黄大和那么又当又立，种命黄大和出山完全是因为杀手摸到老婆脸上，妹妹又哭着被逼婚 ...</blockquote>
 那可真low啊
 
+
+*****
+
+####  死难者23er  
+##### 48#       发表于 2024-4-7 16:20
+
+<img src="https://img.saraba1st.com/forum/202404/07/162017v6xsw2yc2xasxcwh.png" referrerpolicy="no-referrer">
+
+<strong>99EEA7F2-E5A3-44FB-AB6A-ABB9368EFA5C.png</strong> (161.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 16:20 上传
+
+看来前传的 ova已经开始做了
+
+
+*****
+
+####  ナルバレック  
+##### 49#       发表于 2024-4-7 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514202&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-7 16:20</a>
+
+看来前传的 ova已经开始做了</blockquote>
+其实很没准是BD特典
+

@@ -14246,3 +14246,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 暗夜有什么刷等级的好地方吗？速刷到100才能掉高级装备</blockquote>
 联机刷那几个盟友任务，三个人都擦纸磕药再扫地很快打完，经验给的非常多
 
+
+*****
+
+####  寂长无星夜  
+##### 2924#       发表于 2024-4-7 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514292&amp;ptid=2092342" target="_blank">Risotto_Nero 发表于 2024-4-7 16:28</a>
+中冈的因缘怎么刷，这人根本不在地图上又不能当队友，在长屋里刷了几小时也没看到他，现在二周目都打完了一 ...</blockquote>
+我看了下他在长州藩京都府邸
+

@@ -4370,3 +4370,28 @@ https://www.pixiv.net/artworks/117611759<img src="https://p.sda1.dev/16/e53698b4
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  御幸一也  
+##### 15201#       发表于 2024-4-7 10:15
+
+<img src="https://img.saraba1st.com/forum/202404/07/101443awp3003nkn6xr7s7.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (42.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 10:14 上传
+
+沒事了 真的不是角色曲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+但應該真的是五元素梗
+
+*****
+
+####  御幸一也  
+##### 15202#       发表于 2024-4-7 10:15
+
+不是 作曲怎麼還有Diggy-MO’<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

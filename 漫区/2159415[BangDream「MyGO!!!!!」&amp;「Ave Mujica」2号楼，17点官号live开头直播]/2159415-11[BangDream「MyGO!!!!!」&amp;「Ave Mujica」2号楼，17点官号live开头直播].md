@@ -5120,3 +5120,20 @@ wsd你最好明年能让大伙看到三集连播外加没有任何总集篇和�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ydsbbt  
+##### 15266#       发表于 2024-4-7 15:14
+
+新访谈提到，mujica的世界观是多变的，只是这次是人偶。这和pure illusion的设定非常像，越来越真了。
+
+<img src="https://img.saraba1st.com/forum/202404/07/151431zz5k7heke7g5lech.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-07-14-42-26-18_8b7aa5be40a89c6a7df806c347da652a.jpg</strong> (238.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-7 15:14 上传
+

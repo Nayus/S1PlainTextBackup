@@ -600,3 +600,14 @@ roll
 
 2024-4-7 14:58 上传
 
+
+*****
+
+####  liang1993  
+##### 49#         楼主| 发表于 2024-4-7 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64512691&amp;ptid=2178529" target="_blank">帕蕾莉亚 发表于 2024-4-7 14:20</a>
+
+已购，支持一下，女性主角这个TAG是否……</blockquote>
+阿哲，那是用户打的，主角是水滴啦
+

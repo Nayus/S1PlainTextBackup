@@ -5459,3 +5459,13 @@ MyGO动画又要限时返场了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我还想着本篇能跟狗团进国服同步上b站呢，原来还是限时播放
 
+
+*****
+
+####  椎名mahuyo  
+##### 15301#       发表于 2024-4-7 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉就是偶像动画现在不让过审了，只能这么搞了。
+
+星团占着个鲤鱼所以勉强放进来了
+

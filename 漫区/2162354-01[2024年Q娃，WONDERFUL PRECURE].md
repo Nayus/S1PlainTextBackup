@@ -69,3 +69,11 @@
 
 第 10 集的 TVer 源（含日字）：magnet:?xt=urn:btih:cebae0ebc8e2cabb798e43370c581a3eaba42d64
 
+
+*****
+
+####  pokemon最爱  
+##### 1282#       发表于 2024-4-7 09:19
+
+铲屎官设计的这个新饰品该不会就是猫组的变身器吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

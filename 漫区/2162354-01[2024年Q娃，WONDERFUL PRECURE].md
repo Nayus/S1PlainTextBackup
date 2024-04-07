@@ -98,3 +98,24 @@ mayu明显cpu大师，拿沾自己气味最多的帽子送给猫，猫枕着帽�
 
 遇到小雪前面还是不错的到了跟出去后那实在是有点怪了……这哪是人猫啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最强惠酱  
+##### 1285#       发表于 2024-4-7 20:42
+
+小雪:我只是来还帽子咋被拐跑了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+完全不讨厌洗澡的猫猫真是难得<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  最强惠酱  
+##### 1286#       发表于 2024-4-7 20:42
+
+小雪:我只是来还帽子咋被拐跑了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+完全不讨厌洗澡的猫猫真是难得<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

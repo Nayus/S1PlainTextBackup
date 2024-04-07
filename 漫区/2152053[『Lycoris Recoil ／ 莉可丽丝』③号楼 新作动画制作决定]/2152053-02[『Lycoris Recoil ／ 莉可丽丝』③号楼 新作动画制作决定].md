@@ -282,3 +282,14 @@ https://twitter.com/barelroll/status/1776453933403451784/photo/1</blockquote>
 https://twitter.com/hanaya_102/status/1775327676758368384</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑色的什么东西，上下联系起来好像她们变成灰灰了
 
+
+*****
+
+####  王九的哥哥  
+##### 1783#       发表于 2024-4-7 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64516283&amp;ptid=2152053" target="_blank">夜游宫 发表于 2024-4-7 19:17</a>
+
+黑色的什么东西，上下联系起来好像她们变成灰灰了</blockquote>
+多半是照片上有路人然后简单用色块涂掉了，你看路上和图右边有同样的涂抹痕迹……
+

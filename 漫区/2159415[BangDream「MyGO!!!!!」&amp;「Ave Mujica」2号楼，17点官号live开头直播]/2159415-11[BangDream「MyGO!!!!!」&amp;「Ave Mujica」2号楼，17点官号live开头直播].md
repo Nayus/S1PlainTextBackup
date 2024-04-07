@@ -5420,3 +5420,21 @@ MyGO动画又要限时返场了。
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  御幸一也  
+##### 15297#       发表于 2024-4-7 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64511588&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-7 12:50</a>
+
+典中典之我是动画粉你们这帮二偶痴不要打扰我的雅兴</blockquote>
+那些人應該讓武士道別開什麼真人LIVE，別做著二偶的事然後來罵人太二偶<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15298#       发表于 2024-4-7 17:09
+
+顺着上面的独角兽考据把z8的oyunon不仲c团原型假说看完了，怎么感觉还怪真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4604,3 +4604,11 @@ kanauru最强……
 
 今天输惨了就开始安排下一场要赢回来，又开始恶性循环了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rs5621  
+##### 8595#       发表于 2024-4-7 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">七字母糖弹轰炸来咯
+

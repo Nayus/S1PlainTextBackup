@@ -4515,3 +4515,59 @@ wsd这是开始虐粉了是吧
 
 好家伙，这就是官配吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 15217#       发表于 2024-4-7 12:08
+
+全部做完了不给看，傻逼wsd，还有7个月现在吊胃口<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 15218#       发表于 2024-4-7 12:08
+
+高尾：最終話の収録を終えたあと、「Ave Mujicaは光だな」と思いました。
+
+*****
+
+####  skives  
+##### 15219#       发表于 2024-4-7 12:09
+
+** 😭wsd👊 为什么😭
+做完了👊不播😭
+
+
+*****
+
+####  EBe  
+##### 15220#       发表于 2024-4-7 12:10
+
+wsd感觉自从D5J之后一直都在下臭棋捏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  NODY  
+##### 15221#       发表于 2024-4-7 12:10
+
+这个时候录完至少可以说明虽然独角兽润了但剧本应该没改，是好事
+
+*****
+
+####  Aloereed  
+##### 15222#       发表于 2024-4-7 12:12
+
+沟槽的最终话都录制完了还藏着
+
+*****
+
+####  PDQ4  
+##### 15223#       发表于 2024-4-7 12:15
+
+最后一集还在揭秘，憋死了，硬压就硬压<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+看访谈收录的时候cv可能还不知道新曲什么样，这么糊弄，尼玛的wsd你对得起这么努力的中之人吗。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

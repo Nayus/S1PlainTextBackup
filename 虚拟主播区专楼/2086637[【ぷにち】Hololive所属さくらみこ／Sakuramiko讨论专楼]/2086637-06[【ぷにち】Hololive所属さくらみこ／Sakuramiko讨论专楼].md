@@ -4564,3 +4564,13 @@ kanauru最强……
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 8591#         楼主| 发表于 2024-4-7 13:38
+
+前一秒刚说今天好像嗓子更好了下一秒痰就上来了
+
+你省省吧
+

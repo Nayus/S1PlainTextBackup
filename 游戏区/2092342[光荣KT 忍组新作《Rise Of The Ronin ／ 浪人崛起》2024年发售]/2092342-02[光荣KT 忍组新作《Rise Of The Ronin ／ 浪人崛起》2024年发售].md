@@ -14139,3 +14139,16 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  kemyes  
+##### 2914#       发表于 2024-4-7 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64511327&amp;ptid=2092342" target="_blank">刘震云 发表于 2024-4-7 12:29</a>
+
+空的时候随便研究了下这作的词条和伤害效果，说说自己的验证发现；
+
+1.手臂词条“突刺攻击的攻击力”对暗杀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">第五点这个我记得英勇技能里就有吧，血越少伤害越高。
+

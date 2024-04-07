@@ -12044,3 +12044,11 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">又排了一盘四个人在天上降不下来，我这边玩起来箭头越更新连线质量越差啊
 
+
+*****
+
+####  Aeons  
+##### 2628#       发表于 2024-4-7 21:58
+
+德尔根这图有点粪
+

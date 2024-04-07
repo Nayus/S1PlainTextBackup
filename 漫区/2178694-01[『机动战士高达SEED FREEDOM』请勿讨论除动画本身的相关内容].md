@@ -1012,3 +1012,32 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  king520kyo  
+##### 66#       发表于 2024-4-7 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64512735&amp;ptid=2178694" target="_blank">中野梓 发表于 2024-4-7 14:23</a>
+
+种和种命都没看过，对飞鸟的喜爱来自机战Z，对基拉的偏见也来自机战Z，看了预告和剧透，感觉基拉和机战Z里 ...</blockquote>
+喜欢机战Z1那编剧自嗨玩意就别看剧场版给自己找不痛快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  查查沙拉  
+##### 67#       发表于 2024-4-7 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">  等MSV掏出捍卫者+飞升自由的画稿再看看到底是捍卫者背包不行  还是强自2不行
+
+*****
+
+####  少少小司  
+##### 68#       发表于 2024-4-7 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64517906&amp;ptid=2178694" target="_blank">卡罗斯 发表于 2024-4-7 21:50</a>
+4月4日已经上了。
+
+https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
+艹，这是Cathay影院独占啊，gv和shaw都没有，下周末去看了。
+

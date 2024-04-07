@@ -553,3 +553,11 @@ TVアニメ『#ザ・ファブル』
 
 别的都能忍，男主这声音低得都要断气了，这哪是什么游刃有余的杀手啊
 
+
+*****
+
+####  smdzh2  
+##### 57#       发表于 2024-4-7 21:27
+
+pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

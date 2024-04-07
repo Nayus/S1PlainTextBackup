@@ -12022,3 +12022,25 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 不穿防爆甲不找掩体，喜欢站在大平原上和哑铃人对枪是这样的
 我一个人做完支线，顺便炸了两个兵工厂，回头发现增员已经空了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 2625#       发表于 2024-4-7 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">打了一个半小时结果就一盘终极任务十分钟打完顺利结算了，其他各种花式掉线闪退，感觉像是兴致冲冲约完炮死活射不出来只能用手打出来
+
+*****
+
+####  白昼梦  
+##### 2626#       发表于 2024-4-7 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">又排了一盘四个人在天上降不下来，我这边玩起来箭头越更新连线质量越差啊
+
+*****
+
+####  白昼梦  
+##### 2627#       发表于 2024-4-7 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">又排了一盘四个人在天上降不下来，我这边玩起来箭头越更新连线质量越差啊
+

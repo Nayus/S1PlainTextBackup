@@ -12003,3 +12003,11 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 
 现在打机器人就380 激光 空袭三红加上类星体单跑清据点，清得差不多了掉个线好难受啊
 
+
+*****
+
+####  ykyin09  
+##### 2623#       发表于 2024-4-7 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老外是不是特喜欢跟机器人对枪啊，打个n6我一次没死，20次增援全给三个队友耗完了还在送来自: iPhone客户端
+

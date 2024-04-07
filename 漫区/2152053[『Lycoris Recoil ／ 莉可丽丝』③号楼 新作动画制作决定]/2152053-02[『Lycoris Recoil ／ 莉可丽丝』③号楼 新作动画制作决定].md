@@ -293,3 +293,19 @@ https://twitter.com/hanaya_102/status/1775327676758368384</blockquote>
 黑色的什么东西，上下联系起来好像她们变成灰灰了</blockquote>
 多半是照片上有路人然后简单用色块涂掉了，你看路上和图右边有同样的涂抹痕迹……
 
+
+*****
+
+####  osore  
+##### 1784#       发表于 2024-4-7 20:47
+
+<img src="https://img.saraba1st.com/forum/202404/07/204702mq5jc7oszcaoxxck.png" referrerpolicy="no-referrer">
+
+<strong>死在老婆旁边.png</strong> (104.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 20:47 上传
+
+是谁点的死在老婆旁边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

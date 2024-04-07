@@ -9681,3 +9681,11 @@ Melon这孩子能说会道 非常合适这个路线。话说按原来打算BBZ�
 
 tm的w1走私鱼发了巴勃罗北斋和喇叭熊弓<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上蹿下跳才凑够蛋
 
+
+*****
+
+####  yanglian72  
+##### 3938#       发表于 2024-4-7 08:59
+
+熊弓还可以吧，蓄力远程够射蛋了，另外三个武器确实……
+

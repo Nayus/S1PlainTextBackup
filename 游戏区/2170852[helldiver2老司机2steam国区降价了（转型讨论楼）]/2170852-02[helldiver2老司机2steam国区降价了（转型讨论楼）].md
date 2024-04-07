@@ -11912,3 +11912,13 @@ ATAT除了脸上两门机枪 其他还是吃晕雷 下崽时候还能让他憋�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">遇到三个炮艇支线了，还有双子工厂的，幸好这把是稳步推进没啥压力，要是乱战被赶过去估计都捐了
 
+
+*****
+
+####  WGTCorp  
+##### 2612#       发表于 2024-4-7 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64504922&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-6 22:46</a>
+头次见ATAT,另外,难9的2个炮艇塔在一起也太逆天了吧,被打的抱头鼠窜</blockquote>
+两个110就炸死了，评价是不如吐酸泰坦。
+

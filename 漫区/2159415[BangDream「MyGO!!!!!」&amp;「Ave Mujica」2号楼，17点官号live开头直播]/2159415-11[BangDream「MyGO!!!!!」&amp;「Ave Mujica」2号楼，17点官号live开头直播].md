@@ -4571,3 +4571,94 @@ wsd感觉自从D5J之后一直都在下臭棋捏<img src="https://static.saraba1
 
 看访谈收录的时候cv可能还不知道新曲什么样，这么糊弄，尼玛的wsd你对得起这么努力的中之人吗。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  枫林不见  
+##### 15224#       发表于 2024-4-7 12:17
+
+逆に続編の収録を終えた今、TVアニメ「BanG Dream! It's MyGO!!!!!」の最終回を改めて振り返るとどうですか
+
+踏马的wsd<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15225#       发表于 2024-4-7 12:17
+
+ 本帖最后由 NODY 于 2024-4-7 12:19 编辑 
+
+wsd一直都是这样推他们认为的爆款结果碰壁，狗团是刚好撞大运给推起来了，但偏偏又在主唱选人上翻大车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过wsd还是挺看钱的，要是一直推不动的话就会放弃了（比如手游活动沦为ag垫脚石的前太子蝶），现在可以看看羊和wsd的整活赛跑到底是哪边赢
+
+*****
+
+####  爱丁堡official  
+##### 15226#       发表于 2024-4-7 12:20
+
+监督哭了，声优哭了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  EBe  
+##### 15227#       发表于 2024-4-7 12:20
+
+什么ag竟然能踩蝶？该下回游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  米拉苏尔  
+##### 15228#       发表于 2024-4-7 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这是要留着当传家宝吗
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15229#       发表于 2024-4-7 12:22
+
+果然录完了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">傻卵wsd
+
+*****
+
+####  skives  
+##### 15230#       发表于 2024-4-7 12:23
+
+Mujica第一集生生看哭 没想到立意还能拔高
+
+*****
+
+####  枫林不见  
+##### 15231#       发表于 2024-4-7 12:24
+
+一想到这么劲爆的访谈，但是还要等到明年一月份，我就想纱了wsd这群逼仔子<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuyin589  
+##### 15232#       发表于 2024-4-7 12:24
+
+暂时活了一下<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer"> 看看周四邦tv有没有什么东西
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tsukatsukieiko  
+##### 15233#       发表于 2024-4-7 12:24
+
+这两页看下来，只好说邦邦毕竟是偶像运营……
+
+*****
+
+####  PDQ4  
+##### 15234#       发表于 2024-4-7 12:24
+
+别尬吹，谁家传家宝扔角落里吃灰<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

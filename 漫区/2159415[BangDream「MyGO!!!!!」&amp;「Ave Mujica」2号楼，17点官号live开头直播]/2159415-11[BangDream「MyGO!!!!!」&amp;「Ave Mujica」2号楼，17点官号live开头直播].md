@@ -5170,3 +5170,70 @@ wsd你最好明年能让大伙看到三集连播外加没有任何总集篇和�
 
 有没有看过轻拍的漏油说说祥子对应的角色最后是和双子在一起了还是和初华对应的那个角色在一起了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 15271#       发表于 2024-4-7 15:46
+
+感觉人设都拆散了，没有具体对应。祥睦可能都和主角可可娜对应，初华和娅娅卡的对应倒是很明显。轻拍最后娅娅卡是败犬（
+
+*****
+
+####  ydsbbt  
+##### 15272#       发表于 2024-4-7 15:46
+
+ 本帖最后由 ydsbbt 于 2024-4-7 15:50 编辑 
+
+卡了发多了，补充一下，感觉幼年可可娜对应幼年祥子，jc可可娜对应睦。至于轻拍原作的双子，都是连背景设定都没讲全的配角，可能原定是在后面的集数展开的，但剧情被改了。
+
+*****
+
+####  iceskey  
+##### 15273#       发表于 2024-4-7 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64513599&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-7 15:29</a>
+
+有没有看过轻拍的漏油说说祥子对应的角色最后是和双子在一起了还是和初华对应的那个角色在一起了 ...</blockquote>
+后半一转家庭伦理剧，提前5年走EVA终结局女主和怪阿姨百年好合了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+丫丫卡？要是16年有挺好萌的话也是个四强吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+不过后半也不是独角兽剧本
+
+*****
+
+####  higuchiguchi  
+##### 15274#       发表于 2024-4-7 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">轻拍里双子基本是路人 至少前半是这样 我没有后半的记忆
+
+顺便找到了说法出处 来源是2018年百合ナイト这个活动的repo<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过我记得看的是300翻译过的 找不到了
+
+<img src="https://img.saraba1st.com/forum/202404/07/155011jbyn68z76k116h1d.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240407-154947.png</strong> (274.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-7 15:50 上传
+
+总之用轻拍去套母鸡卡的剧情发展还是太生硬了
+
+
+*****
+
+####  相坂君  
+##### 15275#       发表于 2024-4-7 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不要轻拍不要轻拍
+
+*****
+
+####  acgreen  
+##### 15276#       发表于 2024-4-7 15:54
+
+动画硬拖，资源没有，就靠访谈和声优营业扣点糖。WSD你无敌了呀
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

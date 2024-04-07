@@ -5549,3 +5549,16 @@ MyGO动画又要限时返场了。
 顺着上面的独角兽考据把z8的oyunon不仲c团原型假说看完了，怎么感觉还怪真的 ...</blockquote>
 玻玻领域大神
 
+
+*****
+
+####  a_kuma  
+##### 15309#       发表于 2024-4-7 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64515681&amp;ptid=2159415" target="_blank">Nomind96 发表于 2024-4-7 18:21</a>
+二手交易，然后让卖家用eplus把票转给你</blockquote>
+感谢回复<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+这种一般在哪种二手交易网站上找，闲鱼吗？
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

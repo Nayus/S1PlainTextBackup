@@ -12060,3 +12060,14 @@ N9经常少一个战备，根本没格子带盾牌<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚上进去打了一把，不知道什么BUG刚进去身上带了50个样本，50个稀有样本，5个超级样本，结果撤离一半闪退了
 
+
+*****
+
+####  nukecole  
+##### 2630#       发表于 2024-4-7 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64518258&amp;ptid=2170852" target="_blank">雪地白狼 发表于 2024-4-7 22:33</a>
+
+晚上进去打了一把，不知道什么BUG刚进去身上带了50个样本，50个稀有样本，5个超级样本，结果撤离一 ...</blockquote>
+可能是有人开挂。上次进野队做防守战任务，刚空投下去就显示任务完成，然后结算的时候样本全满。。。
+

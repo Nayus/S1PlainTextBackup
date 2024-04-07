@@ -681,3 +681,19 @@ IMG_1953.jpeg
 这十二集下来的量估计比一个RPG游戏的过场动画工作量还多吧…
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  11A511  
+##### 74#       发表于 2024-4-8 01:02
+
+ 本帖最后由 11A511 于 2024-4-8 01:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64519460&amp;ptid=2178726" target="_blank">renkan119 发表于 2024-4-8 00:46</a>
+
+看楼上的感觉暂时不用担心 这人才消耗没几家耗得起啊</blockquote>
+做抑郁一批人好像是泥潭去年秋天就提到的...
+
+不过本来以为是有点技术含量或者至少能有些通用性的东西
+
+这套就完全是美国那些高成本3D动画的玩法吧，然而建模和材质却选了廉价的
+

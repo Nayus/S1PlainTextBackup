@@ -561,3 +561,11 @@ TVアニメ『#ザ・ファブル』
 
 pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悲剧啊啊  
+##### 58#       发表于 2024-4-8 01:00
+
+这配音有点难顶
+

@@ -251,3 +251,15 @@ https://twitter.com/barelroll/status/1776453933403451784/photo/1
 https://twitter.com/barelroll/status/1776453933403451784/photo/1</blockquote>
 [https://p-bandai.jp/item/item-1000192382/](https://p-bandai.jp/item/item-1000192382/)
 
+
+*****
+
+####  cauchua2  
+##### 1780#       发表于 2024-4-7 13:51
+
+嫌 Buzzmod和figma的6寸莉可丽丝可动小人太贵索性买了azone的12寸，体验一言难尽。
+
+单只定价800多了连书包页没有就算了，手枪是一整把不可动的样子货也算了，开箱左脚膝盖断了还得联系售后。
+
+最想吐槽的是蒜的2只定价17000元，给的印刷眼睛，本系列接下来几只同17000的突击莉莉都给了实体眼和大武器，贵了2000元的爱马仕除了实体眼还多给了一套服装，这是什么差别对待
+

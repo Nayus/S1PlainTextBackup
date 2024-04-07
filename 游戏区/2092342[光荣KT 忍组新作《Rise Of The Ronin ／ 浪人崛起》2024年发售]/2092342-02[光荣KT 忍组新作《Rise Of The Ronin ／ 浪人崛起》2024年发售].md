@@ -14152,3 +14152,14 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 1.手臂词条“突刺攻击的攻击力”对暗杀 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">第五点这个我记得英勇技能里就有吧，血越少伤害越高。
 
+
+*****
+
+####  刘震云  
+##### 2915#       发表于 2024-4-7 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64512162&amp;ptid=2092342" target="_blank">kemyes 发表于 2024-4-7 13:42</a>
+
+第五点这个我记得英勇技能里就有吧，血越少伤害越高。</blockquote>
+哦哦，原来在这里，我改下，最高24%，半血15%，比“坚韧的战士”那个套装效果要强太多了
+

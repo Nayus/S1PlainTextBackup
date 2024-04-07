@@ -4434,3 +4434,22 @@ wsd这是开始虐粉了是吧
 
 这首体感确实今年鸡的新歌里面好评最多的一首，虽然评论区还是看到嫌吵的（都金属了）
 
+
+*****
+
+####  ddy2811  
+##### 15208#       发表于 2024-4-7 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64506892&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-4-7 00:57</a>
+
+今天怎么到处看到有人说鸡皇族，我的天……皇哪儿了？wsd的钱和爱都没有流向缺资源的鸡，皇族这帽子 ...</blockquote>
+真要说皇族，我看就羊一个够皇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  椎名mahuyo  
+##### 15209#       发表于 2024-4-7 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是骂武士道脑瘫动画拖这么久吧
+

@@ -14101,3 +14101,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 主角受小五郎之托，戴面罩隐藏身份去新选组里调查事情。斋藤一看主角身 ...</blockquote>
 有两次暗杀，第二次才是搭档干的，跟历史一样没说主谋，路上碰到那群敌对boss到底是来保护龙马还是来杀龙马的没交代清楚，不过我认为是倒幕派那边野心家认为龙马导致战争没打起来才干的。
 
+
+*****
+
+####  zqqwe  
+##### 2911#       发表于 2024-4-7 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64510055&amp;ptid=2092342" target="_blank">violettor 发表于 2024-4-7 10:59</a>
+请问图1的衣服是什么呀，能在哪里获得</blockquote>
+龙马支线一直打完以藏就有他的套装，单选内衣
+

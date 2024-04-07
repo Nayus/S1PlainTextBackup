@@ -4596,3 +4596,11 @@ kanauru最强……
 
 半年没薪水变成一年没薪水了，鉴定为盛
 
+
+*****
+
+####  holoan  
+##### 8594#         楼主| 发表于 2024-4-7 14:57
+
+今天输惨了就开始安排下一场要赢回来，又开始恶性循环了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

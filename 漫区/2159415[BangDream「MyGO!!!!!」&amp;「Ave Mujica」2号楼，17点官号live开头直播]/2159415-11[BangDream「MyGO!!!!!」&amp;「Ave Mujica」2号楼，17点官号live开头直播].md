@@ -5386,3 +5386,37 @@ mujica动画都定了明年1月，狗的第一个剧场版就这个月出，muji
 
 狗不板凳那就鸡板凳呗，在人气比不过萝+现场打不过拉上，鸡和狗五十步笑百步
 
+
+*****
+
+####  滑稽Captain  
+##### 15294#       发表于 2024-4-7 17:04
+
+又是限时放送动画，什么时候国内才能正经常驻上线（
+
+*****
+
+####  御幸一也  
+##### 15295#       发表于 2024-4-7 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64510922&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-4-7 12:01</a>
+
+没想到料都在访谈后篇
+
+果然配音都结束了，说明之前根据制作进度推测的理论最快4月能有能播的成品是合理的， ...</blockquote>
+最快4月？9月開始配音是按照1月能播完的進度在做的。也就是如果不拖，現在已經看完ave mujica了。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novalli  
+##### 15296#       发表于 2024-4-7 17:05
+
+MyGO动画又要限时返场了。
+
+各位亲爱的BanG Dreamer：
+为庆祝MyGO!!!!!正式登场，TV动画「BanG Dream! It’s MyGO!!!!!」全集限时放送活动即将开启！
+动画全集将由 官方账号于4月8日0:00公开，各位BanG Dreamer请不要错过啦。
+※本次动画为活动限定放送，动画将于4月17日23:59后不可观看，还请留意观看时间。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

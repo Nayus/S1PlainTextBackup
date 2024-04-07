@@ -839,3 +839,34 @@ https://bbs.saraba1st.com/2b/thread-2167989-1-1.html</blockquote>
 看来前传的 ova已经开始做了</blockquote>
 其实很没准是BD特典
 
+
+*****
+
+####  pokemon最爱  
+##### 50#       发表于 2024-4-7 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514149&amp;ptid=2178694" target="_blank">中野梓 发表于 2024-4-7 16:14</a>
+
+那可真low啊</blockquote>
+机战Z也算著名鸡黑作品了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主要懒癌鸡是真的被形势逼着上战场的，这算是他跟狼鸟决定性的不同（狼鸟是失去家人后以自己的意志决定踏上战场的，反过来鸡是被迫上了战场被迫一直出战保护自己重视的人然后还保护不住）
+
+*****
+
+####  eilot  
+##### 51#       发表于 2024-4-7 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64512735&amp;ptid=2178694" target="_blank">中野梓 发表于 2024-4-7 14:23</a>
+
+种和种命都没看过，对飞鸟的喜爱来自机战Z，对基拉的偏见也来自机战Z，看了预告和剧透，感觉基拉和机战Z里 ...</blockquote>
+有玩過機戰Z的話
+
+在IF路線鳥說得雷的對白，原本就是雞拉在最後將雷洗腦的對話來...
+
+機戰Z就算分了男女主角編和地面宇宙各兩條路線，也盡量淡化雞神對局勢不良影響，和提高鳥的智力
+
+TV版就是雞神認為自己是神，認為能主牢戰場一切，一直手下留情但遇到苦戰就會下死手...在輸給一次換裝戰術的鳥後更換了一部更神的機體，最後變成神...所以最後成功洗腦雷令他脫力，間接令雷殺了議長...在TV版雞神可是見到狗女開destroy時，一早就決定下死手，但在機戰K中，雞神就算被鳥攻擊，他還是手下留情，兩位艦長更即時通訊互相溝通，最後更合作救出狗女...TV版，兩個都是我的敵人...
+
+所以機戰是魔改了議長和雞神舉動行為，更是洗白議長的行為背景
+

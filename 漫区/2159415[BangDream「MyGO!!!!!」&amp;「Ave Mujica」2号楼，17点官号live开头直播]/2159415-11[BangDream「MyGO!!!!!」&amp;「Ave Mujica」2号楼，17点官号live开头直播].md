@@ -5308,3 +5308,39 @@ mygo也该到头了，6th live开完就差不多了。年底去邦13th混一下
 
 狗一眼到底，这波儿过了直接板凳的水平，后边不全是鸡，wsd明显没有再来一团能力了，比如要能把滚舞台剧那4只打包会很香——可惜没戏
 
+
+*****
+
+####  [皆神孝介]  
+##### 15285#       发表于 2024-4-7 16:31
+
+看了访谈，感觉动画的故事肯定要从成团前的时间开始了
+
+
+*****
+
+####  Nomind96  
+##### 15286#       发表于 2024-4-7 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514038&amp;ptid=2159415" target="_blank">EBe 发表于 2024-4-7 16:05</a>
+狗第二部剧场版啥时候来着，感觉这之前就别想鸡了
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 S1N ...</blockquote>
+mujica动画都定了明年1月，狗的第一个剧场版就这个月出，mujica不出它也没内容做新剧场版
+
+*****
+
+####  NODY  
+##### 15287#       发表于 2024-4-7 16:36
+
+从ppp的悲惨现状来看wsd本质还是看钱，而狗团是wsd近年各种骚操作里为数不多真的撞大运赚了不少的，自然要趁着ylgo还没跑光先把能赚的钱赚了（比如bd和总集篇这种没什么成本的割韭菜），唯一的问题就是狗团三次元负效应略大，不过对于wsd来说被羊气走的新人能转去推老团或者鸡可能也不算亏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 15288#       发表于 2024-4-7 16:38
+
+为啥觉得狗会坐冷板凳<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

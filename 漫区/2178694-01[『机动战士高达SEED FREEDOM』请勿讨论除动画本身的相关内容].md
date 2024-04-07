@@ -918,3 +918,15 @@ TV版就是雞神認為自己是神，認為能主牢戰場一切，一直手下
 然而现在快被种白洗成比手下废掉无正一只手的萝莉和令正义自爆自由大破的狼爹强多了，种命最终战整出毫无 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从刺杀拉克丝失败开始，也算是一路崩
 
+
+*****
+
+####  oi99o  
+##### 57#       发表于 2024-4-7 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64514005&amp;ptid=2178694" target="_blank">Kyo.C 发表于 2024-4-7 16:01</a>
+这种电影在香港一般有多久档期，查了查最早也只能518那个周末去看了，不知道还在不在档上 ...</blockquote>
+一个月应该没问题
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

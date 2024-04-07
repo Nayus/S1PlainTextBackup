@@ -9697,3 +9697,13 @@ tm的w1走私鱼发了巴勃罗北斋和喇叭熊弓<img src="https://static.sar
 
 斗技场这图走私鱼确实翻过几次，上窜下跳半天结果就是不够
 
+
+*****
+
+####  Ryuuseigun  
+##### 3940#       发表于 2024-4-7 19:50
+
+ 本帖最后由 Ryuuseigun 于 2024-4-7 19:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">上次止步于940分的斗技场终于康掉了，900分到999打了17场，好几场武器组合roll的特别恶意，还剩个破船没康等金工了，但是我觉得绿随机工比金问号好玩多了
+

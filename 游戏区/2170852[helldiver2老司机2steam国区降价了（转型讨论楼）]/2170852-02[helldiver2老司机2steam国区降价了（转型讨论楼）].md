@@ -11970,3 +11970,13 @@ ATAT除了脸上两门机枪 其他还是吃晕雷 下崽时候还能让他憋�
 
 N9经常少一个战备，根本没格子带盾牌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 2619#       发表于 2024-4-7 19:56
+
+【[AI]地狱潜兵2 征 兵 金 曲】 [https://www.bilibili.com/video/B ... ddb4830b44939db16bd](https://www.bilibili.com/video/BV1Et421n7ug/?share_source=copy_web&amp;vd_source=38e200a987479ddb4830b44939db16bd)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

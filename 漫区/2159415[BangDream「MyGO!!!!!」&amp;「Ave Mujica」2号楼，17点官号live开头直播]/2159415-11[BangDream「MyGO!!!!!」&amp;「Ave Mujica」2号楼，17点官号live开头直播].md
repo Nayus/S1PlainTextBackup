@@ -5996,3 +5996,25 @@ pss：果然还是喜欢爱音，然后是海玲。
 刚看了隔壁GBC<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">三次元真的做得太保守了
 明年鸡能救一下吗，起码成片分辨率拉高点<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">大伙都1080起步了
 
+
+*****
+
+####  大叶饺子  
+##### 15343#       发表于 2024-4-9 05:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531243&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-4-9 00:47</a>
+首推睦祥姐妹论
+[理性分析]祥睦姐妹说
+暂且不说“姐妹”是否真成立，这个假说推动了不少人回头重看睦祥互 ...</blockquote>
+中间不是还有soyo以史无前例票数跟票差加冕挺王，大鼓队员荣膺硬实力亚军的插曲吗
+
+<img src="https://img.saraba1st.com/forum/202404/09/053132ce13bz1kts338b3x.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240325_190848.jpg</strong> (490.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 05:31 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

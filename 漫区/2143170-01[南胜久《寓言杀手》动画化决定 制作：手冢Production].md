@@ -577,3 +577,11 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉就为了弄个反差故意配成这样，但也没必要啊.....就按真人版那么来配也挺自然的
 
+
+*****
+
+####  没取名啊  
+##### 60#       发表于 2024-4-8 12:38
+
+确实，太扯了这个配音<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

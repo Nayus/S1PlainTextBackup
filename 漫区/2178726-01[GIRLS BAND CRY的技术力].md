@@ -749,3 +749,14 @@ IMG_1953.jpeg
 
 给人干抑郁了就干出来这个水平，也是有点搞的，做的跟二刺螈游戏cg似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2296506  
+##### 80#       发表于 2024-4-8 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64499232&amp;ptid=2178726" target="_blank">支仓爱理 发表于 2024-4-6 13:25</a>
+
+有吗，我觉得好烂</blockquote>
+同样，上网看到那么多人说画面好真的很惊讶
+

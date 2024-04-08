@@ -1102,3 +1102,19 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 上映了，来楼里问问只看过种，没看过种命影响理解电影吗?</blockquote>
 很影响，属于给粉丝看很乐，单独拿出来只配扔进垃圾堆。
 
+
+*****
+
+####  死难者23er  
+##### 75#       发表于 2024-4-8 12:28
+
+<img src="https://img.saraba1st.com/forum/202404/08/122725ju6vrun464azu66p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2EF6BC12-2359-4D08-B0BC-72C6E1DCC041.jpeg</strong> (276.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-8 12:27 上传
+
+还有两只福田的见面会，看来最起码会到这个月月底，45亿应该是没问题的
+

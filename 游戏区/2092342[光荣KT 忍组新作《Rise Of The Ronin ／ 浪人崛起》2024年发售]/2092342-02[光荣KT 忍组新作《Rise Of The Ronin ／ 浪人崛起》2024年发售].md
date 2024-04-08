@@ -14413,3 +14413,24 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 杀了是不是没得救了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯卡哈  
+##### 2939#       发表于 2024-4-8 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64522792&amp;ptid=2092342" target="_blank">碎镜子 发表于 2024-4-8 11:09</a>
+
+龙完了来浪，看了一下权藏是开局打得太刀盗贼吗？
+
+杀了是不是没得救了 ...</blockquote>
+留魂录里放过他就是了
+
+*****
+
+####  nagitoY  
+##### 2940#       发表于 2024-4-8 12:30
+
+<blockquote>[ 碎镜子 replied on 2024-4-8 11:09](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64522792&amp;ptid=2092342) 龙完了来浪，看了一下权藏是开局打得太刀盗贼吗？ 杀了是不是没得救了 </blockquote>
+进江户后解锁留魂录，随时改写历史来自: iPhone客户端
+

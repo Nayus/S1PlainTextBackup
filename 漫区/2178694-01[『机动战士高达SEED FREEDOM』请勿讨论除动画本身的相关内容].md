@@ -1118,3 +1118,15 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 还有两只福田的见面会，看来最起码会到这个月月底，45亿应该是没问题的
 
+
+*****
+
+####  sprongs  
+##### 76#       发表于 2024-4-8 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64512735&amp;ptid=2178694" target="_blank">中野梓 发表于 2024-4-7 14:23</a>
+种和种命都没看过，对飞鸟的喜爱来自机战Z，对基拉的偏见也来自机战Z，看了预告和剧透，感觉基拉和机战Z里 ...</blockquote>
+实际上花3的鸡更是粪点<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

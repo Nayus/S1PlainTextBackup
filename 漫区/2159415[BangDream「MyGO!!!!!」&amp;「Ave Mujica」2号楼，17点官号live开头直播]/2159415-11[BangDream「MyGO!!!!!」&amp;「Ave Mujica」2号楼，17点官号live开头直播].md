@@ -5870,3 +5870,23 @@ MyGO!!!!! ZEPP TOUR 2024「彷徨する渇望」
 如果以后狗就是充电录播，鸡就是舰限直播，那倒确实也还行</blockquote>
 舰长价格是固定的，充电价格是可以up选择的，最低30最高288，真这么固定下来肯定会因价格差异起节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  超时空鉴定师  
+##### 15334#       发表于 2024-4-8 22:06
+
+看到第八集，说真的我一直把爱音当女主角，尽管大部分时候这家伙因为不知情跟菜而跟不上大伙的进度
+
+这里，回忆完这句恍然大悟的而又低沉的“啊”，是我觉得迄今为止8集最有趣的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/08/220518vqvu3gyn0vrwlknv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-8 22:05 上传
+
+要开撕了吗？要加入战场了吗？mygo（对我来说）终于有意思了起来，我想看爱音哭啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

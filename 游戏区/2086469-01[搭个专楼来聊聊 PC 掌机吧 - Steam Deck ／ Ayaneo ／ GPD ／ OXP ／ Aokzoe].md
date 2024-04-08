@@ -49,3 +49,13 @@ Win掌机和Sd的瓶颈还不是这个内存，AMD的APU没进化就只能靠社
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  医生狼多  
+##### 1164#       发表于 2024-4-8 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64467389&amp;ptid=2086469" target="_blank">bypass 发表于 2024-4-3 08:38</a>
+多多的牛子 OLED 已经降价到 4369 了，好，继续！</blockquote>
+今天4298了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+

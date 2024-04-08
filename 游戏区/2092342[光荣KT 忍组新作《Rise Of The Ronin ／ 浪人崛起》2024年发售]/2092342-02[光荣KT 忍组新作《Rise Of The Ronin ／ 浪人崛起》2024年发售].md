@@ -14603,3 +14603,13 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 那个要等近身</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我知道是要等近身，所以结合上一楼的回复，可能是立身流的石火问题，近身时才石火可能反而慢了，回去再试试。
 
+
+*****
+
+####  山风短  
+##### 2958#       发表于 2024-4-8 18:38
+
+这一作过后安田应该能明白他做的这坨东西只有我这种忍组孝子才吃得下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是回舒适区做仁王3或者用心打磨卧龙2讨好中国玩家吧，卖个200w混混日子算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

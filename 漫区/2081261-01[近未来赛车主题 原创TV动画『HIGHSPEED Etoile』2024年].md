@@ -893,3 +893,13 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 看完一堆协力会社和取材协力的名单，感觉这片是给大阪世博洗钱的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 203#       发表于 2024-4-8 17:39
+
+我在认真考虑这第一集还不如我儿子看的猪猪侠之竞速小英雄<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

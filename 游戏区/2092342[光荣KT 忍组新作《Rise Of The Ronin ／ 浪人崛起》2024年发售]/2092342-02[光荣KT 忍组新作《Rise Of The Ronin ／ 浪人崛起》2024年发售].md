@@ -14543,3 +14543,11 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 <blockquote>[ kemyes replied on 2024-4-8 16:44](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64526531&amp;ptid=2092342) 引用:nagitoY 发表于 2024-4-8 16:40 隼流石火判定短，没攻击判定还原地罚站，责任太大了。 但是架不住用石火成功后用饭刚落砸人爽快。 </blockquote>
 高风险高回报来自: iPhone客户端
 
+
+*****
+
+####  hahaha111  
+##### 2952#       发表于 2024-4-8 17:43
+
+单机游戏里有二十多帧的弹反感觉真没啥好抱怨不好弹的
+

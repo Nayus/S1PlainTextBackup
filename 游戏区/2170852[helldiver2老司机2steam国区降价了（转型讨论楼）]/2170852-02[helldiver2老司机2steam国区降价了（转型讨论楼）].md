@@ -12437,3 +12437,11 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  雪地白狼  
+##### 2666#       发表于 2024-4-8 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">更新之后好卡啊，尤其是进了虫子有孢子的图，掉帧严重
+

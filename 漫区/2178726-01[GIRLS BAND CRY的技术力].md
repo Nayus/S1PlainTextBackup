@@ -783,3 +783,18 @@ gb游戏画面连贯吗，如果找不到不连贯的地方，过渡的过程是
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  11A511  
+##### 83#       发表于 2024-4-8 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64521945&amp;ptid=2178726" target="_blank">江口夕 发表于 2024-4-8 10:10</a>
+
+要是真工业化量产就不会有这帖子了，arc出来得快10年了吧，还不是抄的一地鸡毛屁都不会
+
+—— 来 ...</blockquote>
+你这个逻辑太跳跃了吧，不需要复合型人才怎么就变成能工业化量产了？
+
+做不出来的原因上面也讲得很清楚了，需要消耗大量动画师的人力，还不能外包
+

@@ -59,3 +59,16 @@ Win掌机和Sd的瓶颈还不是这个内存，AMD的APU没进化就只能靠社
 多多的牛子 OLED 已经降价到 4369 了，好，继续！</blockquote>
 今天4298了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eternity0079  
+##### 1165#       发表于 2024-4-8 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64431359&amp;ptid=2086469" target="_blank">单流灯塔 发表于 2024-3-30 21:00</a>
+
+额，我在4500的steamdeck和4999预售的gpd掌机之间选了gpd，然后才听说有散热问题。请问散热有问题有多严重 ...</blockquote>
+去年买的GPD WIN4 玩一年了，散热一般，玩大型游戏风扇噪音大，但你要说问题严重，我觉得并没有。
+
+唯一一次遇到问题是待机时间过长，屏幕中央花屏了，重启关机都不行，刚想联系卖家问怎么能修，结果第二天又自动恢复正常了，其它的就没遇到过什么别的问题了，但觉得售后确实是个问题。
+

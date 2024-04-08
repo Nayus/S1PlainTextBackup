@@ -12564,3 +12564,44 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道后台偷改了什么鬼东西，提前多了个不知道效果的舰桥升级，目前没法购买
 
+
+*****
+
+####  FLZB  
+##### 2678#       发表于 2024-4-9 00:09
+
+火龙卷太享受了，今天朋友被乱烧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sayuki1025  
+##### 2679#       发表于 2024-4-9 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 红色星球太伤眼睛了
+
+
+*****
+
+####  BadYanL  
+##### 2680#       发表于 2024-4-9 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64530956&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-9 00:01</a>
+
+不知道后台偷改了什么鬼东西，提前多了个不知道效果的舰桥升级，目前没法购买
+
+ 看描述我有 ...</blockquote>
+增加可带弹夹上限的样子
+
+
+*****
+
+####  雪地白狼  
+##### 2681#       发表于 2024-4-9 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64530956&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-9 00:01</a>
+
+不知道后台偷改了什么鬼东西，提前多了个不知道效果的舰桥升级，目前没法购买
+
+ 看描述我有 ...</blockquote>
+这是支援武器投放时携带弹匣拉满吧，但是好像有一个同样效果的升级了
+

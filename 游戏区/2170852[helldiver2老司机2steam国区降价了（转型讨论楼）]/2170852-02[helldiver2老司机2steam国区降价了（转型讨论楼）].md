@@ -12284,3 +12284,13 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 官宣胜利了，会直接开启下轮回吗？还是上解包内容？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">轮回得全战线推平才开，2代改成无形大手GAAS了，估计没有轮回一说了，只有40K战TMD了
 
+
+*****
+
+####  Gmlazy  
+##### 2650#       发表于 2024-4-8 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">所以什么时候解锁新装备。
+
+50K的信用点上限太少了，样本现在多了也没地儿花，就是继续刷也只有刷了白刷的空虚感。
+

@@ -5705,3 +5705,14 @@ MyGO动画又要限时返场了。
 
 问一下，ost是没出吗？第九集开头那个配乐想听，没找到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 15320#       发表于 2024-4-8 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64525634&amp;ptid=2159415" target="_blank">间宮夏生 发表于 2024-4-8 15:42</a>
+
+问一下，ost是没出吗？第九集开头那个配乐想听，没找到</blockquote>
+塞bd里面了，过两周bd发售了就有
+

@@ -4722,3 +4722,21 @@ https://www.youtube.com/live/eplbvtRYz8I?si=PqWvQbr4KtVrwsBY&amp;t=15860
 https://www.youtube.com/live/gk ...</blockquote>
 <img src="https://p.sda1.dev/16/0027b1cdcfce7efb26e1a1db7b5ccee5/Image_1712569500543.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8606#         楼主| 发表于 2024-4-8 18:07
+
+<img src="https://img.saraba1st.com/forum/202404/08/180710yb9etbp3tf4np2kn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-8 18:07 上传
+
+真的不慌，今天先跟kanata联个MH，明天再耐久
+
+真的耐久吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剩3000人耐个屁
+

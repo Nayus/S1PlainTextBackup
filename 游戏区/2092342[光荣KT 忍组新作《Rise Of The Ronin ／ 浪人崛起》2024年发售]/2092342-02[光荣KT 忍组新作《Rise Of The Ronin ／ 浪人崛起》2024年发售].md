@@ -14592,3 +14592,14 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 
 —— 来自 HONOR AGT-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kemyes  
+##### 2957#       发表于 2024-4-8 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64527442&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-4-8 17:53</a>
+
+那个要等近身</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我知道是要等近身，所以结合上一楼的回复，可能是立身流的石火问题，近身时才石火可能反而慢了，回去再试试。
+

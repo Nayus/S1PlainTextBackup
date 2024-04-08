@@ -1256,3 +1256,15 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 风灵A是因为这个是FM的风灵，1：100的，神高放B赏是因为神高是RG，天生比HG高贵啊，你到底有没有买过模型啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 86#       发表于 2024-4-9 07:36
+
+<blockquote>马桶3 发表于 2024-4-9 07:27
+这是万恶之源一番赏啊，你到底懂不懂日语啊
+
+风灵A是因为这个是FM的风灵，1：100的，神高放B赏是因 ...</blockquote>
+我当然知道是一番赏，我一开始就说了是第一抽奖但人家选择水星作为A赏和最终赏，而不是选择G和种这个确实让我没想到这发言有什么问题
+

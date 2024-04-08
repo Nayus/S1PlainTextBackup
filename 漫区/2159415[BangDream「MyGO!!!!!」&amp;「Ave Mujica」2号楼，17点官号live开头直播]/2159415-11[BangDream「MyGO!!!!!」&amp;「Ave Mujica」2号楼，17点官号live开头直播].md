@@ -5839,3 +5839,15 @@ MyGO!!!!! ZEPP TOUR 2024「彷徨する渇望」
 
 如果以后狗就是充电录播，鸡就是舰限直播，那倒确实也还行
 
+
+*****
+
+####  PDQ4  
+##### 15331#       发表于 2024-4-8 19:47
+
+我要是运营就趁着热度早早分号，或者单纯直播的时候把老鸡号捞起来，给个粉丝牌。
+
+还能营造出一幅“我都退让了，鸡厨再冲就是不知足”的景象，让狗厨有正经理由反打，喜欢草热度那当然要官方带节奏。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+还是一个号以后倒得过来？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

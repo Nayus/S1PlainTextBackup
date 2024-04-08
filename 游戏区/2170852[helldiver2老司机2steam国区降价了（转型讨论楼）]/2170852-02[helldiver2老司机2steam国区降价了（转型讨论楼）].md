@@ -12548,3 +12548,19 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 要不你等到明年蒙河纪念看他返不返场给你发一件吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">没事，我觉得这种纪念意义比较大的装备还是得亲身经历过才会觉得有穿的价值
 
+
+*****
+
+####  Launce  
+##### 2677#       发表于 2024-4-9 00:01
+
+<img src="https://img.saraba1st.com/forum/202404/09/000018mq7o6i6qxqlpxkba.png" referrerpolicy="no-referrer">
+
+<strong>AC%%LK9`H)~2QATW$D~3ZXQ.png</strong> (153.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 00:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道后台偷改了什么鬼东西，提前多了个不知道效果的舰桥升级，目前没法购买
+

@@ -1130,3 +1130,13 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wingzerocos  
+##### 77#       发表于 2024-4-8 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64513760&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-4-7 15:42</a>
+种命黄大和可没有机战黄大和那么又当又立，种命黄大和出山完全是因为杀手摸到老婆脸上，妹妹又哭着被逼婚 ...</blockquote>
+可是机战Z的基拉（和卡嘉莉）就是没有大局观一通瞎打，全靠拉克丝出场指点迷津拨乱反正啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

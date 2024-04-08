@@ -14434,3 +14434,16 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 <blockquote>[ 碎镜子 replied on 2024-4-8 11:09](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64522792&amp;ptid=2092342) 龙完了来浪，看了一下权藏是开局打得太刀盗贼吗？ 杀了是不是没得救了 </blockquote>
 进江户后解锁留魂录，随时改写历史来自: iPhone客户端
 
+
+*****
+
+####  kemyes  
+##### 2941#       发表于 2024-4-8 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64521911&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-8 10:08</a>
+
+贴吧有人转载了外网数据党的测试结果。
+
+https://tieba.baidu.com/p/8970343191</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">草，虽然觉得立身流的石火很长，但没想到这么长，足足是隼流的3～4倍
+

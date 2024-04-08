@@ -14464,3 +14464,20 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 
 这大地图清单项就不能一下全给我吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，清了的区域后面又刷一个出来挺蛋疼的
 
+
+*****
+
+####  新世界的派蒙  
+##### 2944#       发表于 2024-4-8 16:31
+
+5帧红光<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这感觉和如龙的虎落没差了吧
+
+*****
+
+####  彩虹肥宅  
+##### 2945#       发表于 2024-4-8 16:32
+
+其实一般的红光挺好弹的，只要等红光里面那个闪光后面就能弹到
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

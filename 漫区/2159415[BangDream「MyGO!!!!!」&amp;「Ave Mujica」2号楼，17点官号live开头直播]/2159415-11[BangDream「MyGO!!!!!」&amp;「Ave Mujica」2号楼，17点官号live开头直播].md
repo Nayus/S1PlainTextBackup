@@ -5716,3 +5716,30 @@ MyGO动画又要限时返场了。
 问一下，ost是没出吗？第九集开头那个配乐想听，没找到</blockquote>
 塞bd里面了，过两周bd发售了就有
 
+
+*****
+
+####  EBe  
+##### 15321#       发表于 2024-4-8 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉mygo从头上下被烂梗泡入味了
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  EBe  
+##### 15322#       发表于 2024-4-8 16:31
+
+刚骗了一个亲友看狗，害怕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  PDQ4  
+##### 15323#       发表于 2024-4-8 16:34
+
+关弹幕保平安<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

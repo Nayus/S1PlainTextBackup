@@ -14403,3 +14403,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 5. 最后他简单测试了一下很多人使用的立身流的石火判定帧，差不多是27(普通)/20(红光)
 
+
+*****
+
+####  碎镜子  
+##### 2938#       发表于 2024-4-8 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">龙完了来浪，看了一下权藏是开局打得太刀盗贼吗？
+
+杀了是不是没得救了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

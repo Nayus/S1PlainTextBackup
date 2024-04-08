@@ -5949,3 +5949,22 @@ ps：祥子在13集给我的印象惊天逆转，从大小姐变身艾伦，背�
 
 pss：果然还是喜欢爱音，然后是海玲。
 
+
+*****
+
+####  z-hunter  
+##### 15339#       发表于 2024-4-9 00:35
+
+关注的官号在B站首页推荐还以为看错了，动画又放出来了，又可以看一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后把游戏下载回来，收一下mygo的卡，打一下新歌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超时空鉴定师  
+##### 15340#       发表于 2024-4-9 00:39
+
+啊对了， 就补番来说一集一集的故事联系还是很紧密自然的。
+
+有没有追番的讲讲你们当时一集一集的讨论什么呢，就算是不懂也知道产出了一大堆假药<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

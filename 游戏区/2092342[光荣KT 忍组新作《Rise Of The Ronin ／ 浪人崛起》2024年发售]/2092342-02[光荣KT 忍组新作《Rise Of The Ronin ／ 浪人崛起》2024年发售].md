@@ -14335,3 +14335,13 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 
 这游戏是不是不用石火玩不了，目前玩着感觉像暗荣版打铁游戏
 
+
+*****
+
+####  zqqwe  
+##### 2933#       发表于 2024-4-8 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64519149&amp;ptid=2092342" target="_blank">MuramasaSP 发表于 2024-4-8 00:07</a>
+为了冲田的支线，留魂录重打了池田屋事件，现在京都所有地区的因缘等级都变回1了，以前做完的收集要素图标 ...</blockquote>
+我看留魂录里京都地图分佐幕倒幕两种变体，应该是这个原因
+

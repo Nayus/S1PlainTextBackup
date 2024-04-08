@@ -5987,3 +5987,12 @@ pss：果然还是喜欢爱音，然后是海玲。
 顺带贴个同网站对睦的分析
 [AveMujicaは暴かれたい？　～若葉睦をめぐる駆け引き～](https://note.com/good_dietes381/n/n85b92c59c50d)
 
+
+*****
+
+####  kivz  
+##### 15342#       发表于 2024-4-9 02:17
+
+刚看了隔壁GBC<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">三次元真的做得太保守了
+明年鸡能救一下吗，起码成片分辨率拉高点<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">大伙都1080起步了
+

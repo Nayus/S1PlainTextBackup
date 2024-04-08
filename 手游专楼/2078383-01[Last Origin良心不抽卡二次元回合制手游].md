@@ -158,3 +158,13 @@ https://lo.swaytwig.com/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服开摆了，这个月没更新
 
+
+*****
+
+####  铁火辉夜  
+##### 129#       发表于 2024-4-8 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下知道原来运营两服的都是一批人了
+
+但说实话还是挺恼火的，日服搬点韩服已有的货糊弄一次也不是什么难事，角色bug不修皮肤上得还慢，日服玩家真就活该贡献最多流水享受最差游戏体验<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

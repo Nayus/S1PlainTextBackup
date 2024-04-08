@@ -14527,3 +14527,19 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 https://tieba.baidu.com/p/8970343191</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就知道， 立身流又帅又强果然不是错觉，觉得难打得敌人切立身流马上化身剑心咔咔咔一顿猛砍。
 
+
+*****
+
+####  寂长无星夜  
+##### 2950#       发表于 2024-4-8 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">之前练无外流受苦好久，换回立身流咔咔乱杀
+
+*****
+
+####  nagitoY  
+##### 2951#       发表于 2024-4-8 17:15
+
+<blockquote>[ kemyes replied on 2024-4-8 16:44](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64526531&amp;ptid=2092342) 引用:nagitoY 发表于 2024-4-8 16:40 隼流石火判定短，没攻击判定还原地罚站，责任太大了。 但是架不住用石火成功后用饭刚落砸人爽快。 </blockquote>
+高风险高回报来自: iPhone客户端
+

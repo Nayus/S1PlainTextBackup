@@ -12381,3 +12381,13 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 是晚上更吗
 
+
+*****
+
+####  MkChang  
+##### 2660#       发表于 2024-4-8 17:09
+
+下个新战备是不是该更4炮机甲了啊，都做好这么久了还不放出来
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

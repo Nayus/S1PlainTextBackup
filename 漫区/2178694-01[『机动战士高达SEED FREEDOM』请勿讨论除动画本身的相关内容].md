@@ -1243,3 +1243,16 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 八月份有一个最新的第一抽奖，没想到水星可以打败种自和G</blockquote>
 这个不是顺位吧，G放前面主要是周年，只论爆金币能力，武斗传只能算第二梯队顶流，单论投票能力倒是高达里第一梯队的（只有UC排头那几个和种子没被武斗传投票干下来过）
 
+
+*****
+
+####  马桶3  
+##### 85#       发表于 2024-4-9 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64527064&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-8 17:21</a>
+
+八月份有一个最新的第一抽奖，没想到水星可以打败种自和G</blockquote>
+这是万恶之源一番赏啊，你到底懂不懂日语啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+风灵A是因为这个是FM的风灵，1：100的，神高放B赏是因为神高是RG，天生比HG高贵啊，你到底有没有买过模型啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

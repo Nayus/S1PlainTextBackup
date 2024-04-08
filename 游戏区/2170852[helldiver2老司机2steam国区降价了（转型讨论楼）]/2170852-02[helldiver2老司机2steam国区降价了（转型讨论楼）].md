@@ -12655,3 +12655,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 野队老哥因为在同一个地点被三昧真火烧死五次破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pwzzy  
+##### 2687#       发表于 2024-4-9 03:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这火漩涡以前还能反应过来，现在走路不看着点沾上一秒就死了真的太顶级了
+

@@ -12537,3 +12537,14 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  6x6z6w  
+##### 2676#       发表于 2024-4-8 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64530211&amp;ptid=2170852" target="_blank">屑屑代沟尼亚 发表于 2024-4-8 22:33</a>
+
+要不你等到明年蒙河纪念看他返不返场给你发一件吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">没事，我觉得这种纪念意义比较大的装备还是得亲身经历过才会觉得有穿的价值
+

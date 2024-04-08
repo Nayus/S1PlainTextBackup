@@ -14514,3 +14514,16 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 隼流石火判定短，没攻击判定还原地罚站，责任太大了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">但是架不住用石火成功后用饭刚落砸人爽快。
 
+
+*****
+
+####  qappip  
+##### 2949#       发表于 2024-4-8 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64521911&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-8 10:08</a>
+
+贴吧有人转载了外网数据党的测试结果。
+
+https://tieba.baidu.com/p/8970343191</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就知道， 立身流又帅又强果然不是错觉，觉得难打得敌人切立身流马上化身剑心咔咔咔一顿猛砍。
+

@@ -5753,3 +5753,35 @@ MyGO动画又要限时返场了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  堀内爱里衣  
+##### 15325#       发表于 2024-4-8 16:58
+
+       
+
+<img src="https://img.saraba1st.com/forum/202404/08/165544t5sxbfr6tqsm16st.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-04-08_16-55-22.png</strong> (117.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-8 16:55 上传
+
+       前往活动页：[https://game.bilibili.com/bangdream/itsMyGO/](https://game.bilibili.com/bangdream/itsMyGO/)
+
+       
+
+<img src="https://img.saraba1st.com/forum/202404/08/165734xwdkkskmoncsshlw.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-04-08_16-57-05.png</strong> (108.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-8 16:57 上传
+
+       更多游戏内容可查看：[https://game.bilibili.com/bangdream/My-GOabang/](https://game.bilibili.com/bangdream/My-GOabang/)
+
+       [https://t.bilibili.com/917848250762919952](https://t.bilibili.com/917848250762919952)
+

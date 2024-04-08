@@ -1071,3 +1071,16 @@ MSV是森田主创的，他一时半会没这个功夫吧
 
 人在柬埔寨，这边也上了，但是排片对社畜极不友好。只能哪天早退去看了。
 
+
+*****
+
+####  菠萝柚子  
+##### 72#       发表于 2024-4-8 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64517906&amp;ptid=2178694" target="_blank">卡罗斯 发表于 2024-4-7 21:50</a>
+
+4月4日已经上了。
+
+https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
+谢谢 这周就去看
+

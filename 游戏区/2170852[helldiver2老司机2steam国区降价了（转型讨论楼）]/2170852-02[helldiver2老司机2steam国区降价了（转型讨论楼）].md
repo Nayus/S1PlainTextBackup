@@ -12647,3 +12647,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 （今天野队打了几把虫，确实感觉不如机器人了）
 
+
+*****
+
+####  smdzh2  
+##### 2686#       发表于 2024-4-9 02:42
+
+野队老哥因为在同一个地点被三昧真火烧死五次破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

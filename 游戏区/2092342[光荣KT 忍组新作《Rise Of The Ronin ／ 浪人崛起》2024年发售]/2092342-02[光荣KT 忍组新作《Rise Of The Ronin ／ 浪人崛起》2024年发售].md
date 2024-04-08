@@ -14447,3 +14447,12 @@ boss霸体高速强修正长连段没有背板石火以外的应对手段
 https://tieba.baidu.com/p/8970343191</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">草，虽然觉得立身流的石火很长，但没想到这么长，足足是隼流的3～4倍
 
+
+*****
+
+####  nagitoY  
+##### 2942#       发表于 2024-4-8 14:56
+
+后期硫磺好缺。
+只能靠在大地图上挖矿获取吗？来自: iPhone客户端
+

@@ -1140,3 +1140,17 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 种命黄大和可没有机战黄大和那么又当又立，种命黄大和出山完全是因为杀手摸到老婆脸上，妹妹又哭着被逼婚 ...</blockquote>
 可是机战Z的基拉（和卡嘉莉）就是没有大局观一通瞎打，全靠拉克丝出场指点迷津拨乱反正啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 78#       发表于 2024-4-8 14:59
+
+ 本帖最后由 马桶3 于 2024-4-8 15:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64524368&amp;ptid=2178694" target="_blank">wingzerocos 发表于 2024-4-8 14:08</a>
+
+可是机战Z的基拉（和卡嘉莉）就是没有大局观一通瞎打，全靠拉克丝出场指点迷津拨乱反正啊 ...</blockquote>
+怎么说呢，种命里黄大和出击都是得到拉克丝首肯的，说穿了实际上是为了阻止奥布波斯菊派作死，即要救一下本国小兵不要被对面突突了，也不能让对手被本国小兵突突了落人口实，和机战那种天人武力介入式有点区别的
+
+不过这么看剧场版就是走上机战那种瞎JB打道路了2333不过有拉妖背书还行吧
+

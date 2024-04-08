@@ -885,3 +885,11 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 不愧是元永大师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 202#       发表于 2024-4-8 15:01
+
+看完一堆协力会社和取材协力的名单，感觉这片是给大阪世博洗钱的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

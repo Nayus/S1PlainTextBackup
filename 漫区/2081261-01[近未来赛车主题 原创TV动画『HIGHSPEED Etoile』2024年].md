@@ -873,3 +873,15 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 元永大师到底为什么还会有活干，只要他一经手基本变成催眠片<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lxh00770077  
+##### 201#       发表于 2024-4-8 14:27
+
+因为发现这片有御三家所以决定捏着鼻子看一下第一集
+
+然后发现第一集一大半时间都是在催眠解说，主要角色反而都没啥台词
+
+不愧是元永大师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

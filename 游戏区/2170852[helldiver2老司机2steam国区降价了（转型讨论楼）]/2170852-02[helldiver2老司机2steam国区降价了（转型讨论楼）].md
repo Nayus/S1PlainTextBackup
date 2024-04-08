@@ -12445,3 +12445,16 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">更新之后好卡啊，尤其是进了虫子有孢子的图，掉帧严重
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 2667#       发表于 2024-4-8 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64519859&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-8 01:40</a>
+
+不开加速器好像匹配到国人概率更高
+
+—— 来自 S1Fun</blockquote>
+之前刚出的时候，我开UU匹配到立陶宛人，UU旁边可以看链接到哪的IP
+

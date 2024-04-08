@@ -12605,3 +12605,45 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
  看描述我有 ...</blockquote>
 这是支援武器投放时携带弹匣拉满吧，但是好像有一个同样效果的升级了
 
+
+*****
+
+####  Launce  
+##### 2682#       发表于 2024-4-9 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531061&amp;ptid=2170852" target="_blank">雪地白狼 发表于 2024-4-9 00:13</a>
+
+这是支援武器投放时携带弹匣拉满吧，但是好像有一个同样效果的升级了</blockquote>
+不知道后台改了什么，升级选项出来了，但是效果没有显示，所以套用目前的一个效果
+
+*****
+
+####  Launce  
+##### 2683#       发表于 2024-4-9 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531052&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-4-9 00:12</a>
+
+增加可带弹夹上限的样子</blockquote>
+这是目前已有的一个升级选项，3号位武器下来满弹夹
+
+*****
+
+####  Launce  
+##### 2684#       发表于 2024-4-9 00:19
+
+<blockquote>ALERT: ROGUE ITEM DETECTED :enforcer:
+
+The Ministry of Truth has confirmation that a rogue item called the "catalog expansion" is temporarily visible in the Ship Management menu and, in accordance with regulations, we instruct all Helldivers to avoid this rogue item until further notice. The Ministry of Truth cannot confirm the reliability or safety of this item, nor can they confirm its origin.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死我了，天天瞎几把暗改今天露马腿了，自己游戏多少BUG没点数吗
+
+
+*****
+
+####  rainknine  
+##### 2685#       发表于 2024-4-9 00:23
+
+突然发现我还留有一个机器人任务在德尔根上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+属于我的西奈沙漠，还在那里等着我！
+
+（今天野队打了几把虫，确实感觉不如机器人了）
+

@@ -12391,3 +12391,15 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  WGTCorp  
+##### 2661#       发表于 2024-4-8 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64526922&amp;ptid=2170852" target="_blank">MkChang 发表于 2024-4-8 17:09</a>
+下个新战备是不是该更4炮机甲了啊，都做好这么久了还不放出来
+
+—— 来自 Xiaomi M2102J2SC, Android 12上 ...</blockquote>
+应该是空爆火箭发射器或者飞鹰空对空导弹吧，之前打机器人的任务里提到了超级气球在增产防空武器。
+

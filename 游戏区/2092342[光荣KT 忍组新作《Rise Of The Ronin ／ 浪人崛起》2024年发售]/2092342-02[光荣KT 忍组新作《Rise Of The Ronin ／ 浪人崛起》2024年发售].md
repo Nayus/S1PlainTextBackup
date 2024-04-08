@@ -14551,3 +14551,34 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 
 单机游戏里有二十多帧的弹反感觉真没啥好抱怨不好弹的
 
+
+*****
+
+####  zqqwe  
+##### 2953#       发表于 2024-4-8 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64526512&amp;ptid=2092342" target="_blank">kemyes 发表于 2024-4-8 16:42</a>
+有些红光突进技的判断就很迷，比如那个法国盾剑佬的突进炖鸡，就算用立身流我也经常弹不到，搞得 ...</blockquote>
+立身流有个独有的操作陷阱是抬手才触发石火判定，一定要习惯立刻离手
+
+*****
+
+####  彩虹肥宅  
+##### 2954#       发表于 2024-4-8 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64526512&amp;ptid=2092342" target="_blank">kemyes 发表于 2024-4-8 16:42</a>
+
+有些红光突进技的判断就很迷，比如那个法国盾剑佬的突进炖鸡，就算用立身流我也经常弹不到，搞得 ...</blockquote>
+那个要等近身
+
+*****
+
+####  zqqwe  
+##### 2955#       发表于 2024-4-8 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64521911&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-8 10:08</a>
+贴吧有人转载了外网数据党的测试结果。
+
+https://tieba.baidu.com/p/8970343191</blockquote>
+有效判定9帧不算短了，但问题是某些连续招式中间几hit发生太短做不到目视确认只能背固定节奏提前按<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

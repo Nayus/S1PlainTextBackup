@@ -135,3 +135,20 @@ mayu明显cpu大师，拿沾自己气味最多的帽子送给猫，猫枕着帽�
 
 感觉小时候第一次洗澡是因为双方还不太熟小雪出于信赖所以配合了，后来两边熟起来特别是真由动不动就学校社交不利就回来吸猫逃避现实导致小雪这边也开始咸对应起来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 1289#       发表于 2024-4-8 19:10
+
+[https://m.weibo.cn/detail/5020960340050649](https://m.weibo.cn/detail/5020960340050649) <blockquote>旺Q预告详细
+
+11 在山上找到的噶路噶路的蛋壳，四周散落断枝残叶。小悟一下子认出来是熊棚，是熊进食的地方，进而确认了这次是熊噶路噶路
+
+12 小雪不见，真由找了一阵后发现自己回来了，到了晚上一起来发现又不见了。怀疑是在不知道的时候自己去了很远的地方，用摄像机一看，发现原本在真由房间里睡觉的小雪，跑到客厅盯着彩羽看了一阵，然后又回去了
+
+13 咩咩听说了Nyami的事，希望她能一起保护花园。但小麦和彩羽觉得Nyami另有他事，于是拉上小悟一起想当面问她，可是怎么也找不到。此时小麦在Pretty Holic的常客手中的化妆盒闻到了她和Nyami相遇时的味道，而真由妈妈也不知道Nyami的事。小麦则注意到了店外的小雪，想去确认一下小雪身上的味道</blockquote>
+<img src="https://p.sda1.dev/16/906921f0030511c10bf8c99e877766a4/e7cbae74gy1hojm0x8qyoj21gk178tqx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/48204ef4858415916d7b2a099b23e1e5/e7cbae74gy1hojm0yenvtj21er18rnpd.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/45b4b1a338827ff1dbf04fc530f385d4/e7cbae74gy1hojm0zxf8mj21go175npd.jpg" referrerpolicy="no-referrer">
+

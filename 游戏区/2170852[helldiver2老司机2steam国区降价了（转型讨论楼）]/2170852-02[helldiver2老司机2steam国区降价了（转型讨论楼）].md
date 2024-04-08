@@ -12427,3 +12427,13 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 休息到11号等新债券了，这次奖励发了就有200奖章了，应该够下次债券用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 2665#       发表于 2024-4-8 19:07
+
+喜欢机器人那边机械大战克隆人的感觉，虫子这边还要近距离枪斗。我和朋友玩每次都想唱哪里有石油哪里就是我的家<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

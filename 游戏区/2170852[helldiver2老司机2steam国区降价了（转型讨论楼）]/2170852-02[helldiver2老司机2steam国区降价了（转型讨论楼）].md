@@ -12517,3 +12517,23 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 上周末刚入伍的新兵问一下，麦拉芬蒙河那个披风是不是只能之前有游戏的老兵才能拿我现在一口气肝到 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要不你等到明年蒙河纪念看他返不返场给你发一件吧
 
+
+*****
+
+####  Awanano  
+##### 2674#       发表于 2024-4-8 23:06
+
+但是我和我朋友前后脚那一天买的游戏，他有我没有
+不知道是不是在每日刷新前才算
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Awanano  
+##### 2675#       发表于 2024-4-8 23:07
+
+太折磨了被火龙卷乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

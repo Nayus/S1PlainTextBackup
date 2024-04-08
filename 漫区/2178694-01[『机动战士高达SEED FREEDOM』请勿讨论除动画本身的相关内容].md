@@ -1092,3 +1092,13 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 原来柬埔寨也能上吗😮
 
+
+*****
+
+####  StrangerJ  
+##### 74#       发表于 2024-4-8 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64507118&amp;ptid=2178694" target="_blank">h33 发表于 2024-4-7 01:17</a>
+上映了，来楼里问问只看过种，没看过种命影响理解电影吗?</blockquote>
+很影响，属于给粉丝看很乐，单独拿出来只配扔进垃圾堆。
+

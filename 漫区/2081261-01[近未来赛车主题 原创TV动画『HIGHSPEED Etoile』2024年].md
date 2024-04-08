@@ -827,3 +827,33 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 这题材本来就是冷门，拍不好也就收图了。游戏还是个傻逼三消
 
+
+*****
+
+####  无糖百事可乐  
+##### 197#       发表于 2024-4-8 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498048&amp;ptid=2081261" target="_blank">Anatoly 发表于 2024-4-6 10:58</a>
+
+最主要他之前还有个瞬间换胎吧，这后面来个一分钟就很神秘
+
+—— 来自 S1Fun ...</blockquote>
+莫不是在800V快充。。。。一分钟把电充满了。。。。啊不 是HYPER能源充满了
+
+感觉日本人还是想把氢能源给推起来啊，哎，技术加拉帕戈斯。。。
+
+
+*****
+
+####  无糖百事可乐  
+##### 198#       发表于 2024-4-8 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64498779&amp;ptid=2081261" target="_blank">raimouse 发表于 2024-4-6 12:26</a>
+
+第一集看完了，果然跟预期的一样寄
+
+这解说还不如不做呢，事务性讲解的味道拉满了催眠的要死
+
+还有就 ...</blockquote>
+这几年接触的油咖喱最让人印象深刻的角色反而是小草神纳西妲。。。。AI语音一出来就是纳西妲的感觉。。。。
+

@@ -1223,3 +1223,23 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 八月份有一个最新的第一抽奖，没想到水星可以打败种自和G
 
+
+*****
+
+####  死难者23er  
+##### 83#       发表于 2024-4-8 22:46
+
+看到一个截图引进的可能性又低了
+
+
+*****
+
+####  ナルバレック  
+##### 84#       发表于 2024-4-8 22:50
+
+ 本帖最后由 ナルバレック 于 2024-4-8 22:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64527064&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-8 17:21</a>
+
+八月份有一个最新的第一抽奖，没想到水星可以打败种自和G</blockquote>
+这个不是顺位吧，G放前面主要是周年，只论爆金币能力，武斗传只能算第二梯队顶流，单论投票能力倒是高达里第一梯队的（只有UC排头那几个和种子没被武斗传投票干下来过）
+

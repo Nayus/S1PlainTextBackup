@@ -534,3 +534,21 @@ hp翻倍、限制时间、限制攻击術限制魔镜，boss攻击还高的要�
 
 只是狗尾续貂的那个貂剧情完结了而已，离杀终我觉得应该还起码有半年。而且你们都不看制作人信的么
 
+
+*****
+
+####  法拉  
+##### 60#         楼主| 发表于 2024-4-8 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">卞月怡搞的好项目……不仅效果不行，全语音相对来说成本还不低
+
+*****
+
+####  法拉  
+##### 61#         楼主| 发表于 2024-4-8 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64524552&amp;ptid=2152360" target="_blank">天王寺綯 发表于 2024-4-8 14:22</a>
+
+重大利好，可以腾出人手做单机新作了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就手游现在这个水平，能不能无缝接入单机都另说……
+

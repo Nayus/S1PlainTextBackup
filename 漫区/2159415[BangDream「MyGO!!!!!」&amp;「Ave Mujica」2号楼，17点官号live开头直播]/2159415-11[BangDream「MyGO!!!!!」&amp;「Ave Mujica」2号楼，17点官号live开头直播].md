@@ -5913,3 +5913,17 @@ MyGO!!!!! ZEPP TOUR 2024「彷徨する渇望」
 呃……这不是第九话的截图吗？希望你是打错字而不是少看了一话</blockquote>
 第九话，打错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 15337#       发表于 2024-4-8 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64529983&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-8 22:06</a>
+看到第九集，说真的我一直把爱音当女主角，尽管大部分时候这家伙因为不知情跟菜而跟不上大伙的进度
+
+这里， ...</blockquote>
+只能说大天使也有破防的时候，心累了、不玩了。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

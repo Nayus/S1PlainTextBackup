@@ -1154,3 +1154,24 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 不过这么看剧场版就是走上机战那种瞎JB打道路了2333不过有拉妖背书还行吧
 
+
+*****
+
+####  novyMS  
+##### 79#       发表于 2024-4-8 15:09
+
+ 本帖最后由 novyMS 于 2024-4-8 15:12 编辑 
+
+想起这个视频了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【【字幕】机战z 主角侧 声讨基神对话-哔哩哔哩】 https://b23.tv/RVjk9Eg
+
+
+*****
+
+####  exiaexa  
+##### 80#       发表于 2024-4-8 15:14
+
+只能说国内天天惦记机战z原创的人，可能真的只想要热度
+种命的完美剧本在机战L，然并卵说了这么多年还在惦记机战Z
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

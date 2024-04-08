@@ -14481,3 +14481,36 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 
 —— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  nagitoY  
+##### 2946#       发表于 2024-4-8 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64524891&amp;ptid=2092342" target="_blank">kemyes 发表于 2024-4-8 14:49</a>
+
+草，虽然觉得立身流的石火很长，但没想到这么长，足足是隼流的3～4倍 ...</blockquote>
+隼流石火判定短，没攻击判定还原地罚站，责任太大了。
+
+*****
+
+####  kemyes  
+##### 2947#       发表于 2024-4-8 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64526362&amp;ptid=2092342" target="_blank">彩虹肥宅 发表于 2024-4-8 16:32</a>
+
+其实一般的红光挺好弹的，只要等红光里面那个闪光后面就能弹到
+
+—— 来自 OPPO PGJM10, Android 13上的 S1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">有些红光突进技的判断就很迷，比如那个法国盾剑佬的突进炖鸡，就算用立身流我也经常弹不到，搞得我道场打的时候遇到这招都是躲了。
+
+*****
+
+####  kemyes  
+##### 2948#       发表于 2024-4-8 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64526479&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-8 16:40</a>
+
+隼流石火判定短，没攻击判定还原地罚站，责任太大了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">但是架不住用石火成功后用饭刚落砸人爽快。
+

@@ -5968,3 +5968,22 @@ pss：果然还是喜欢爱音，然后是海玲。
 
 有没有追番的讲讲你们当时一集一集的讨论什么呢，就算是不懂也知道产出了一大堆假药<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 15341#       发表于 2024-4-9 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531202&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-9 00:39</a>
+啊对了， 就补番来说一集一集的故事联系还是很紧密自然的。
+
+有没有追番的讲讲你们当时一集一集的讨论什么呢 ...</blockquote>
+首推睦祥姐妹论
+[[理性分析]祥睦姐妹说](https://tieba.baidu.com/p/8585068638?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.50.3.0&amp;st=1712594483&amp;is_video=false&amp;unique=0D1274C38C216FB47B9FA49A3CA8BD75)
+暂且不说“姐妹”是否真成立，这个假说推动了不少人回头重看睦祥互动从而找出许多细节
+贴吧的这个帖子楼主发言只是引子，有价值的是楼友们的添砖加瓦
+这个还传到了日本
+[日中合作！祥子＆睦の双子説の伝来と発展の全記録](https://note.com/halkenborg/n/nd0494d4a0c31)
+顺带贴个同网站对睦的分析
+[AveMujicaは暴かれたい？　～若葉睦をめぐる駆け引き～](https://note.com/good_dietes381/n/n85b92c59c50d)
+

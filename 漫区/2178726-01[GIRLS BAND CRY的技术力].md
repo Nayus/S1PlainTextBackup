@@ -771,3 +771,15 @@ gb游戏画面连贯吗，如果找不到不连贯的地方，过渡的过程是
 
 —— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  江口夕  
+##### 82#       发表于 2024-4-8 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64519900&amp;ptid=2178726" target="_blank">11A511 发表于 2024-4-8 01:52</a>
+然而表情动作的风格也和2D动画相差不小，何况这种漫画式的CG早就有了，应该已经有一套成熟的体系 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是真工业化量产就不会有这帖子了，arc出来得快10年了吧，还不是抄的一地鸡毛屁都不会
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -21,3 +21,22 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hunter三张图加起来的人头比小孩图二多3个，G2不会要回家了吧
 
+
+*****
+
+####  那由  
+##### 4237#       发表于 2024-4-8 22:16
+
+又掉线了，esl也干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  曼彻斯特联  
+##### 4238#       发表于 2024-4-8 22:17
+
+esl第一天修电脑是传统艺能了，卡托科隆也这样。
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

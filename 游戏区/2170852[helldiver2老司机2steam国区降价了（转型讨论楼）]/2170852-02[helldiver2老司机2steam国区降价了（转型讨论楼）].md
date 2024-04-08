@@ -12494,3 +12494,26 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 上周末刚入伍的新兵问一下，麦拉芬蒙河那个披风是不是只能之前有游戏的老兵才能拿<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 2672#       发表于 2024-4-8 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64529725&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-8 21:39</a>
+
+上周末刚入伍的新兵问一下，麦拉芬蒙河那个披风是不是只能之前有游戏的老兵才能拿我现在一口气肝到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">应该没了，期间限定社区奖励
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先买老兵券再买冤种包都不退1000蓝币，这种社区奖励应该是不带补的
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 2673#       发表于 2024-4-8 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64529725&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-8 21:39</a>
+
+上周末刚入伍的新兵问一下，麦拉芬蒙河那个披风是不是只能之前有游戏的老兵才能拿我现在一口气肝到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要不你等到明年蒙河纪念看他返不返场给你发一件吧
+

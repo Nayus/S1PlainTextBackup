@@ -5890,3 +5890,26 @@ MyGO!!!!! ZEPP TOUR 2024「彷徨する渇望」
 
 要开撕了吗？要加入战场了吗？mygo（对我来说）终于有意思了起来，我想看爱音哭啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 15335#       发表于 2024-4-8 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64529983&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-8 22:06</a>
+
+看到第八集，说真的我一直把爱音当女主角，尽管大部分时候这家伙因为不知情跟菜而跟不上大伙的进度
+
+这里， ...</blockquote>
+呃……这不是第九话的截图吗？希望你是打错字而不是少看了一话<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超时空鉴定师  
+##### 15336#       发表于 2024-4-8 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64530143&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-4-8 22:25</a>
+
+呃……这不是第九话的截图吗？希望你是打错字而不是少看了一话</blockquote>
+第九话，打错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3191,3 +3191,11 @@ Nenkan Alice(年间爱丽丝/年間アリス)，限定 ...</blockquote>
 
 六字母六年了还能这么真，你们虹杏做得到吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 169#       发表于 2024-4-8 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">nrk以前一直在藏牛的手机moba看来就是mobile legends了，不过手游高玩转端游还是一样菜嘛
+

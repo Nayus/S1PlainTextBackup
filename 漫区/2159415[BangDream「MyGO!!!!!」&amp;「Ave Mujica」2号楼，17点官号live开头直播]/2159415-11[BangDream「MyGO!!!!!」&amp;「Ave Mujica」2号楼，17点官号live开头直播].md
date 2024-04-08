@@ -5859,3 +5859,14 @@ MyGO!!!!! ZEPP TOUR 2024「彷徨する渇望」
 
 这么看鸡1st上舰直播是赚到钱了，继续和阿姨合作
 
+
+*****
+
+####  -LYRE-  
+##### 15333#       发表于 2024-4-8 21:17
+
+ 本帖最后由 -LYRE- 于 2024-4-8 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64528465&amp;ptid=2159415" target="_blank">yujz 发表于 2024-4-8 19:34</a>
+如果以后狗就是充电录播，鸡就是舰限直播，那倒确实也还行</blockquote>
+舰长价格是固定的，充电价格是可以up选择的，最低30最高288，真这么固定下来肯定会因价格差异起节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5743,3 +5743,13 @@ MyGO动画又要限时返场了。
 
 关弹幕保平安<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 15324#       发表于 2024-4-8 16:53
+
+不太想玩国服邦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1175,3 +1175,27 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 种命的完美剧本在机战L，然并卵说了这么多年还在惦记机战Z
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 81#       发表于 2024-4-8 16:24
+
+高达seed粉丝里面有这么多梅林type的人吗？官方活动的你是哪个角色类型的？她上了热搜了
+
+<img src="https://img.saraba1st.com/forum/202404/08/162422jf1fnw91z54i1792.png" referrerpolicy="no-referrer">
+
+<strong>7010AC59-5505-4FA0-B687-57745AC48F1E.png</strong> (148.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-8 16:24 上传
+
+<img src="https://img.saraba1st.com/forum/202404/08/162422ifu7d930uld23o85.png" referrerpolicy="no-referrer">
+
+<strong>CBD2695B-0CFA-44D6-BFB9-6B3434BA9BCD.png</strong> (158.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-8 16:24 上传
+

@@ -14456,3 +14456,11 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 后期硫磺好缺。
 只能靠在大地图上挖矿获取吗？来自: iPhone客户端
 
+
+*****
+
+####  rainsheep  
+##### 2943#       发表于 2024-4-8 16:20
+
+这大地图清单项就不能一下全给我吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，清了的区域后面又刷一个出来挺蛋疼的
+

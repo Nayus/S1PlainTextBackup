@@ -12466,3 +12466,13 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 看到个思路，说该不是机器人在双线，一边星系内扛超级气球，一边星系外扛光能。然后这次直接撤了把光能放进来，然后趁着气球和光能打起来直接突袭光复生化斯坦。
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2669#       发表于 2024-4-8 20:24
+
+没有机器人打，超级气球也懒得保卫了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -12484,3 +12484,13 @@ uu会员过期，免费加速stema好像能直接玩？那样我就不用续费�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了，感觉今天虫子比机器人难打多了
 
+
+*****
+
+####  6x6z6w  
+##### 2671#       发表于 2024-4-8 21:39
+
+ 本帖最后由 6x6z6w 于 2024-4-8 21:42 编辑 
+
+上周末刚入伍的新兵问一下，麦拉芬蒙河那个披风是不是只能之前有游戏的老兵才能拿<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

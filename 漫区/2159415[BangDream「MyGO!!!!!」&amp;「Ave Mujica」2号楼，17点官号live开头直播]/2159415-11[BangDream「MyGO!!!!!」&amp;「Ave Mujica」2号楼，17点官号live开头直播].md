@@ -5810,3 +5810,14 @@ MyGO!!!!! ZEPP TOUR 2024「彷徨する渇望」
 此外，MC环节将会有中文字幕哦！
 感谢大家的支持！
 
+
+*****
+
+####  novalli  
+##### 15328#       发表于 2024-4-8 17:57
+
+这动画简介，是什么girl meets girl的校园恋爱么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://s21.ax1x.com/2024/04/08/pFLDPFf.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

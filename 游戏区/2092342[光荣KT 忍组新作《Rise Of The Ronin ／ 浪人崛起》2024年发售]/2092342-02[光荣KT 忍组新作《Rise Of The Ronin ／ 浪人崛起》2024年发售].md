@@ -14582,3 +14582,13 @@ https://tieba.baidu.com/p/8970343191</blockquote>
 https://tieba.baidu.com/p/8970343191</blockquote>
 有效判定9帧不算短了，但问题是某些连续招式中间几hit发生太短做不到目视确认只能背固定节奏提前按<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MuramasaSP  
+##### 2956#       发表于 2024-4-8 18:05
+
+红光判定居然更严格，但体感是红光更好弹。估计是和卧龙类似，红光会闪第二下作为提示。
+
+—— 来自 HONOR AGT-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

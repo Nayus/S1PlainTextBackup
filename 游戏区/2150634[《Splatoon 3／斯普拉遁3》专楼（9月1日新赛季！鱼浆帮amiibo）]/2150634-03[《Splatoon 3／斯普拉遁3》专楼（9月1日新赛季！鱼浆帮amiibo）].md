@@ -9715,3 +9715,13 @@ tm的w1走私鱼发了巴勃罗北斋和喇叭熊弓<img src="https://static.sar
 
 奶狗拉的审查者完全不带SP强，而是带了0.4的SP增，果然单排还是带SP增更好么？总之我要重做装备了
 
+
+*****
+
+####  KBAC  
+##### 3942#       发表于 2024-4-9 08:53
+
+说是八点停服现在还没停，喷1现在还有人在直播<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

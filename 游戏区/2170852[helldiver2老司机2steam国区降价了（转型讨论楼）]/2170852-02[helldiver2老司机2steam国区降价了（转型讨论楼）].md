@@ -12671,3 +12671,35 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 昨晚上见证了虫子最下面那颗星球在71%阶段被玩家们半小时解放的壮举，然后被逼的只能打恶心图了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  全装甲夏亚  
+##### 2689#       发表于 2024-4-9 08:51
+
+烧伤太吓人了，地上我都以为火灭了结果踩上去扎针都救不回来
+
+
+*****
+
+####  xinfengj  
+##### 2690#       发表于 2024-4-9 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64532258&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2024-4-9 08:51</a>
+烧伤太吓人了，地上我都以为火灭了结果踩上去扎针都救不回来</blockquote>
+先飞扑灭火再扎
+
+*****
+
+####  迷途lite  
+##### 2691#       发表于 2024-4-9 08:56
+
+是暗改伤害了吗？前天机器人任务的时候跟朋友打虫子感觉难度4脚打都过了，昨天虫子任务的时候一波能刷3，4只吐酸虫，而且一喷就死，打得朋友高呼不可战胜。
+
+*****
+
+####  Kojimaru  
+##### 2692#       发表于 2024-4-9 08:57
+
+撤离点出现火龙卷直呼享受
+

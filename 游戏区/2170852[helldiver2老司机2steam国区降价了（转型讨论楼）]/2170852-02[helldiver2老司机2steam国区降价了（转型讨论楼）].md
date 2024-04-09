@@ -12844,3 +12844,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  赤井稻妻  
+##### 2708#       发表于 2024-4-9 13:34
+
+最好等到11号shopping完了再给我发
+

@@ -6175,3 +6175,13 @@ given.jpg
 —— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
 问就是七八九怒涛展开三连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原教旨挺好选手立希女士不敌九十九万匹惊世一跪力量喜提16强
 
+
+*****
+
+####  fuochai  
+##### 15355#       发表于 2024-4-9 13:31
+
+鼻站这非会员看的1080p真不行 缓存一集才60M左右 听op感觉声音都糊得不行 沉闷
+
+—— 來自 Sony XQ-DQ72, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

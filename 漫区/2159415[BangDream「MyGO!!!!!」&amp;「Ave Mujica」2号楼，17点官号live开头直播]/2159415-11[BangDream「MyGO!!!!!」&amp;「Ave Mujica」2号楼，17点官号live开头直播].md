@@ -6340,3 +6340,11 @@ given.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  灵椿  
+##### 15369#       发表于 2024-4-10 03:01
+
+就剩两万多星石了，虽然不常玩但时不时忍不住想抽个二三十发<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

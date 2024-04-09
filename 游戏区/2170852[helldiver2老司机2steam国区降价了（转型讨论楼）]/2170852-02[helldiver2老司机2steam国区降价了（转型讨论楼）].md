@@ -13310,3 +13310,20 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  风萧飒  
+##### 2752#       发表于 2024-4-9 22:45
+
+这守点模式确实有点爽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mr.Hopp  
+##### 2753#       发表于 2024-4-9 22:46
+
+现在看来机器人到左上，右上是虫子，那左下估计光能，右下新种族？
+

@@ -1773,3 +1773,13 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 
 他不是前几天刚发过福田言论，这也敢回头恰吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  notqiao  
+##### 134#       发表于 2024-4-9 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64541247&amp;ptid=2178694" target="_blank">Gysumitka 发表于 2024-4-9 23:37</a>
+他不是前几天刚发过福田言论，这也敢回头恰吗</blockquote>
+不要高估贾哥的底线 公关恰饭搞不定他的话公关公司还可以让他炸号
+

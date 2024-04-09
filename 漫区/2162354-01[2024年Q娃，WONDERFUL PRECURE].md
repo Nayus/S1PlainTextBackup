@@ -152,3 +152,16 @@ mayu明显cpu大师，拿沾自己气味最多的帽子送给猫，猫枕着帽�
 <img src="https://p.sda1.dev/16/48204ef4858415916d7b2a099b23e1e5/e7cbae74gy1hojm0yenvtj21er18rnpd.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/45b4b1a338827ff1dbf04fc530f385d4/e7cbae74gy1hojm0zxf8mj21go175npd.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1290#       发表于 2024-4-10 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64517244&amp;ptid=2162354" target="_blank">最强惠酱 发表于 2024-4-7 20:42</a>
+
+小雪:我只是来还帽子咋被拐跑了
+
+完全不讨厌洗澡的猫猫真是难得</blockquote>
+喵~<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+

@@ -1676,3 +1676,22 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  线程召唤使  
+##### 124#       发表于 2024-4-9 20:20
+
+我一般不怎么说芙蕾，乍一看这个角色不错，但是严苛一点的话，年纪大了以后觉的芙蕾深度还是不怎么够，不提到独角兽古桥了嘛，比如雪代巴这个角色，相比之下深度就不够了。
+
+
+*****
+
+####  线程召唤使  
+##### 125#       发表于 2024-4-9 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64539362&amp;ptid=2178694" target="_blank">supermangunv4 发表于 2024-4-9 20:11</a>
+
+说会正题，啊种有没有可能和宇宙世纪一样，独立开一个世界观系列的潜力，除了千叶以外还有别人能整活这个世 ...</blockquote>
+除非嗖的一下跳个100年，不然没什么可搞的，鸡狼鸟作为角色来说已经结束了。
+

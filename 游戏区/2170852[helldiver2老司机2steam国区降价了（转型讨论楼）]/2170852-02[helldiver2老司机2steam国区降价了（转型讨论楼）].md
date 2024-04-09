@@ -13175,3 +13175,31 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 卡麻了，队里三个人看到的东西完全不一样，旁边的队友轰了半天的泰坦我这边根本没显示
 
+
+*****
+
+####  Mr.Hopp  
+##### 2737#       发表于 2024-4-9 20:15
+
+ 本帖最后由 Mr.Hopp 于 2024-4-9 20:19 编辑 
+
+没有生化斯坦？怕不是佯攻。
+
+原来已经被拿下了。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 2738#       发表于 2024-4-9 20:20
+
+<img src="https://img.saraba1st.com/forum/202404/09/202010a5uzjr7cm7zua52r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 20:20 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光能者呢，快端上来罢
+

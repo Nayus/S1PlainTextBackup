@@ -13203,3 +13203,13 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光能者呢，快端上来罢
 
+
+*****
+
+####  Awanano  
+##### 2739#       发表于 2024-4-9 20:46
+
+为什么明明有三个球选，大部队都去火龙卷的那个…<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

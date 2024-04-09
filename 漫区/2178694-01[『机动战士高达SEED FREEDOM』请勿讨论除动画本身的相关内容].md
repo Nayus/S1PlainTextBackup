@@ -1714,3 +1714,13 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 种子扩展世界观不就是另一个UC了么，日升搞两个差不多的大系列干嘛
 
+
+*****
+
+####  novyDC  
+##### 128#       发表于 2024-4-9 20:48
+
+种这发展速度 没几年ta都能造出来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

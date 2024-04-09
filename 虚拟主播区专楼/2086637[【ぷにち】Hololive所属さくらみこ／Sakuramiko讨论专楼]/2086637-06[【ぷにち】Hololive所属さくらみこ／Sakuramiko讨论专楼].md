@@ -4828,3 +4828,29 @@ https://www.youtube.com/live/gk ...</blockquote>
 
 开播20分钟不到达成
 
+
+*****
+
+####  holoan  
+##### 8615#         楼主| 发表于 2024-4-9 20:50
+
+GTA的group名直接拿来做曲名
+
+GTA最强！
+
+
+*****
+
+####  holoan  
+##### 8616#         楼主| 发表于 2024-4-9 20:54
+
+<img src="https://img.saraba1st.com/forum/202404/09/205424o2g3ep28373qep3e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 20:54 上传
+
+4月1日原预定发布的新曲没有发布
+

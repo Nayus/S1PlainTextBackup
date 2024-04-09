@@ -12936,3 +12936,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 主要一个飞龙巢我用类星体要两炮 总共就是4炮 太慢了 但又不敢靠近打
 
+
+*****
+
+####  WGTCorp  
+##### 2719#       发表于 2024-4-9 16:50
+
+偶尔就会有那么一两把虫子刷的巨多，前几天打的一把难7，小虫子多到火喷+激光狗都清不完，三个人一起走都差点被虫海淹死了。
+

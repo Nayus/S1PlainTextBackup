@@ -12926,3 +12926,13 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 没飞虫之前有500KG打掉泰坦就随便打，飞龙更新之后虫难度直线上升，N7开始都总是翻车
 
+
+*****
+
+####  rgauss  
+##### 2718#       发表于 2024-4-9 16:43
+
+现在n6都一堆泰坦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主要一个飞龙巢我用类星体要两炮 总共就是4炮 太慢了 但又不敢靠近打
+

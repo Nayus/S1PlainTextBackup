@@ -9779,3 +9779,17 @@ wow，1代于下午2点寿终正寝，享年9岁
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 3948#       发表于 2024-4-9 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536840&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-4-9 16:13</a>
+我现在觉得 sp强的相当一部分意义其实在于自己的饮料机回转 因为cd10s的原因 饮料机空窗期其实不小 如果 ...</blockquote>
+SP强单排收益很难保证，喝了饮料惜命的前排不少，大多时候还是自己喝了往前冲。面对区区一个审查者，对面打卡开不难的，这时候SP增反而更好，一场里能多开一次都是赚，毕竟是实打实的增加容错机会
+
+铅笔大佬倒是都会带SP强，毕竟后排狙，技能格比审查者ZAP什么的充裕多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

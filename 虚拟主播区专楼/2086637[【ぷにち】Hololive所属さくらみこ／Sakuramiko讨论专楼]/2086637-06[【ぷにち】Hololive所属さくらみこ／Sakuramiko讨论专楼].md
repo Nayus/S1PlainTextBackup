@@ -4902,3 +4902,29 @@ GTA最强！
 
 倒是歌词把以前的名言都串起来了有点意思
 
+
+*****
+
+####  holoan  
+##### 8621#         楼主| 发表于 2024-4-9 21:53
+
+MV的每一个场景甚至都对应着这几年直播里各名场景
+
+比如这个
+
+<img src="https://img.saraba1st.com/forum/202404/09/215259cp1mntxq3hxp3tqi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (342.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 21:52 上传
+
+<img src="https://img.saraba1st.com/forum/202404/09/215312mj33fqjsijj1si3n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (128.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 21:53 上传
+

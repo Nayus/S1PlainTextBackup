@@ -13360,3 +13360,19 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 这次新补丁又遇到新BUG，任务全部做完跑到撤离点没撤离用的终端
 
+
+*****
+
+####  smdzh2  
+##### 2758#       发表于 2024-4-10 00:12
+
+新模式围点打援很爽，类星体+火箭筒屡试不爽
+停机坪那里可以卡怪视野，打弱点一打一个准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 2759#       发表于 2024-4-10 00:13
+
+打了这么久虫子第一次遇到圣兽级坦克虫，造型有点屌<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

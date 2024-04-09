@@ -6298,3 +6298,17 @@ given.jpg
 
 初华翻唱的《Lady Greensleeves》真好听，我真想听听动画角色们翻唱经典曲目啊。
 
+
+*****
+
+####  紫吹兰  
+##### 15365#         楼主| 发表于 2024-4-10 00:08
+
+ 本帖最后由 紫吹兰 于 2024-4-10 00:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64529983&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-8 22:06</a>
+
+看到第九集，说真的我一直把爱音当女主角，尽管大部分时候这家伙因为不知情跟菜而跟不上大伙的进度
+
+这里， ...</blockquote>
+你说爱音是主角也没问题，mygo这剧情主要是爱音在推和soyo在拉，其他人大部分时间其实比较被动
+

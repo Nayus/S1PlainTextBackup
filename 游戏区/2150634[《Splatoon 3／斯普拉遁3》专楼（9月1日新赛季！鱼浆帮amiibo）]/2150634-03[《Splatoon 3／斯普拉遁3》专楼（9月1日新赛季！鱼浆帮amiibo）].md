@@ -9737,3 +9737,24 @@ tm的w1走私鱼发了巴勃罗北斋和喇叭熊弓<img src="https://static.sar
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 3944#       发表于 2024-4-9 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64532651&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-4-9 09:30</a>
+现在饮料武器的趋势是不带sp强了？
+
+—— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+反正我看到过的审查者/铅笔，SP强和SP增最多55开，甚至还有带了2.x的SP增，SP强一点没带的审查者。单排默契远不如组排，饮料实际有效时间非常不稳定，与其延长效果时间，不如减少攒大速度，不少人估计是这么想的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  幽香  
+##### 3945#       发表于 2024-4-9 12:48
+
+ダイナモン都直播17个小时了，怎么还没关服，后面都一直在输了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

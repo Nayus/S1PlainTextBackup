@@ -41,3 +41,13 @@
 
 回血药上限应该是10？我技能点四维都100了，上限还是只有8，看了下因缘奖励也没有回血药 1。来自: iPhone客户端
 
+
+*****
+
+####  zqqwe  
+##### 2966#       发表于 2024-4-9 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64538307&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-9 18:24</a>
+回血药上限应该是10？我技能点四维都100了，上限还是只有8，看了下因缘奖励也没有回血药 1。 ...</blockquote>
+持有上限10，篝火补充上限8，有效避免额外堆积
+

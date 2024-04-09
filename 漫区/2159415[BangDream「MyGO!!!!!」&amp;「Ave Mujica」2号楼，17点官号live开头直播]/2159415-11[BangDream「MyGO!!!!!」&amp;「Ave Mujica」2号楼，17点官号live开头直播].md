@@ -6275,3 +6275,26 @@ given.jpg
 
 我还挺奇怪为什么很多考据独角兽思路的没有提given，这个的开局才是和mygo相似度最高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  超时空鉴定师  
+##### 15363#       发表于 2024-4-9 18:29
+
+ 本帖最后由 超时空鉴定师 于 2024-4-9 18:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536682&amp;ptid=2159415" target="_blank">须贺兰 发表于 2024-4-9 15:57</a>
+
+建议重看第十一话开头部分，台下只有掌声寥寥和一些窃窃私语，说明观众get到台上情感的并不多，特别是和 ...</blockquote>
+可是第十集一转唱歌的时候气氛还是很热烈的，我的感觉是大家都被感动了。
+
+而且这之前已经单人live（念诗）好几次了，底下的反应都不错，还有同学在教室夸的，所以最后这里没有道理理解成大家都不理解所以不鼓掌吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然如果理解成没多少人理解也成，那么这个场馆的staff就是超级系的，人都太好啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超时空鉴定师  
+##### 15364#       发表于 2024-4-9 18:31
+
+初华翻唱的《Lady Greensleeves》真好听，我真想听听动画角色们翻唱经典曲目啊。
+

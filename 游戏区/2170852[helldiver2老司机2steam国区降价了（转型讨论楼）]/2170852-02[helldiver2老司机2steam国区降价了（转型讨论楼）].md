@@ -13083,3 +13083,13 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 还以为焦土伤害翻倍了，原来只是修复了面板数值显示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 2727#       发表于 2024-4-9 19:17
+
+焦土要伤害翻倍那也太变态了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

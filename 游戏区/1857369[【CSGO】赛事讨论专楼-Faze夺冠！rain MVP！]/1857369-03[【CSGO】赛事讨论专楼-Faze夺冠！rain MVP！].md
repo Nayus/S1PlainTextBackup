@@ -40,3 +40,11 @@ esl第一天修电脑是传统艺能了，卡托科隆也这样。
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  朔方原的星  
+##### 4239#         楼主| 发表于 2024-4-9 19:17
+
+老汤指挥打的还真不错，批壮也滚了双喜临门好爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

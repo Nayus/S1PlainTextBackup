@@ -18,3 +18,16 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  江戸前ルナ  
+##### 17869#       发表于 2024-4-9 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64540022&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-4-9 21:14</a>
+
+多人不进10不用考虑这个问题，打到死完就可以了，运气不好撞不到试炼都这样的
+
+—— 来自 Sony J9 ...</blockquote>
+感谢，明白了，10前撞到撞不动就是了。没龙武顶克属，不奢望进10<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

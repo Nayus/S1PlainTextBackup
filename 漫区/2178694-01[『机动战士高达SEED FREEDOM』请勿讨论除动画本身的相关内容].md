@@ -1528,3 +1528,14 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 所谓的UC2真的会有吗，还是古桥 ...</blockquote>
 难说，一说起追忆篇，没几个人会想起和月伸宏
 
+
+*****
+
+####  supermangunv4  
+##### 111#       发表于 2024-4-9 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536595&amp;ptid=2178694" target="_blank">秘密图纸 发表于 2024-04-09 15:48:55</a>
+情商低喜欢阴阳怪气是吧....以前可能是个问题，不过既然剧场版暴热，那可能也没人在乎了 ...</blockquote>福田能力是有的，但得罪人太多了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

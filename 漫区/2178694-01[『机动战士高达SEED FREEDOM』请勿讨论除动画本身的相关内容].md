@@ -1616,3 +1616,15 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 只能说您这手把自己当狗皮膏药贴角色上的本事确实挺强的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 118#       发表于 2024-4-9 17:09
+
+<blockquote>exiaexa 发表于 2024-4-9 16:59
+坏处？
+
+坏处就是以后国内有人想讨论芙蕾的时候，可能就会有人给你科普当年有个叫死难者的臭傻逼到处给这 ...</blockquote>
+所以呢，这些人我可能一辈子也碰不到一次，我又何必在乎那些人的感受，毕竟这一次让我明白了，你不断去给官方寄邮件，然后不断地骂或许真的有用，你根本就没有必要去在乎一些可能这一辈子都见不到的人的看法
+

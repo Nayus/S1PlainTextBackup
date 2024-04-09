@@ -13104,3 +13104,41 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Aeons  
+##### 2729#       发表于 2024-4-9 19:47
+
+出来一看机器人反攻了
+
+*****
+
+####  Aeons  
+##### 2730#       发表于 2024-4-9 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64539057&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-4-9 19:40</a>
+这个傻逼游戏…携带15普通样本不会是要自己带身上吧
+但是稀有样本就可以带队友身上？</blockquote>
+成就吗？确实是这样的
+
+
+*****
+
+####  Aeons  
+##### 2731#       发表于 2024-4-9 19:51
+
+两个成就描述不一样
+
+*****
+
+####  Awanano  
+##### 2732#       发表于 2024-4-9 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64539139&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-9 19:49</a>
+成就吗？确实是这样的</blockquote>
+刚刚打了把二人世界，学到丢样本就把所有的丢给队友了，出来一看只跳一个成就
+往好处想两个人都赚到了，但是这个设计有点太傻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

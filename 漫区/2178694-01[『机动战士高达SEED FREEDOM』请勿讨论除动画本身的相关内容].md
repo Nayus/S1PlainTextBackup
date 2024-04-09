@@ -1648,3 +1648,13 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 谷口在早期就表示过不会做高达的
 
+
+*****
+
+####  王留美  
+##### 121#       发表于 2024-4-9 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64537382&amp;ptid=2178694" target="_blank">exiaexa 发表于 2024-4-9 16:59</a>
+ 坏处？ 坏处就是以后国内有人想讨论芙蕾的时候，可能就会有人给你科普当年有个叫死难者的臭傻逼到处给这 ...</blockquote>
+现在已经是这样啦
+

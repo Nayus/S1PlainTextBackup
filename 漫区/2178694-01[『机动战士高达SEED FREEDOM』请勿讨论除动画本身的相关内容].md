@@ -1724,3 +1724,16 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  gundammarkⅡ  
+##### 129#       发表于 2024-4-9 21:19
+
+ 本帖最后由 gundammarkⅡ 于 2024-4-9 21:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64539362&amp;ptid=2178694" target="_blank">supermangunv4 发表于 2024-4-9 20:11</a>
+说会正题，啊种有没有可能和宇宙世纪一样，独立开一个世界观系列的潜力，除了千叶以外还有别人能整活这个世 ...</blockquote>
+seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时期就同步开展的
+只是这么多年，离开基拉等核心角色的作品不能说没人气，只是人气完全不是一个级别<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+不过往后的00也一样衍生作品一同推出了，基本成标配了，除了近年两个新系列
+

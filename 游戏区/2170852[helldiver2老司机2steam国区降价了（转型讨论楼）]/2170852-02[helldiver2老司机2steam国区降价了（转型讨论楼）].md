@@ -13230,3 +13230,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 别急，等皿煮爆破更新后贱头就给你安排上落地双飞龙巢双螳螂洞，以及原地刷新五只坦克虫和泰坦 ...</blockquote>
 更新就有亚辛105集束炸弹桶子了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 2742#       发表于 2024-4-9 21:12
+
+救刁民的任务还说这么难啊
+

@@ -6,3 +6,15 @@
 
 漆黑水剑豪+妈太爽了，无脑撞极巴，但请问水打多人极巴怎么对策后半段的死人头，多人打太快了前面最多能解1~2次试炼，出不了10DB后面就经常吃死人头马上就卡住了，净化+麒麟也就能解多一两次，试过把水龙换成水天司，但奥义的弱体无效碰不到天命眼也会起作用……用欧罗巴感觉也就多一次净化而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17868#       发表于 2024-4-9 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64539069&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-4-9 19:41</a>
+漆黑水剑豪+妈太爽了，无脑撞极巴，但请问水打多人极巴怎么对策后半段的死人头，多人打太快了前面最多能解1 ...</blockquote>
+多人不进10不用考虑这个问题，打到死完就可以了，运气不好撞不到试炼都这样的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

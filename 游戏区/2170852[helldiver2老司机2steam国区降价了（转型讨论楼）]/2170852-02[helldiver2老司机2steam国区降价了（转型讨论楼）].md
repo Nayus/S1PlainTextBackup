@@ -13142,3 +13142,20 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2733#       发表于 2024-4-9 19:55
+
+机器人反攻了？保卫超级气球，慷慨就义就在今日！
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  FLZB  
+##### 2734#       发表于 2024-4-9 19:58
+
+好快的反攻，超级地球的防御不堪一击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

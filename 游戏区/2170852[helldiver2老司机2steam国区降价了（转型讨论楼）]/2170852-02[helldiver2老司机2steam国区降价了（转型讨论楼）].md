@@ -12852,3 +12852,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 最好等到11号shopping完了再给我发
 
+
+*****
+
+####  smdzh2  
+##### 2709#       发表于 2024-4-9 13:55
+
+落地遇到大小跳脸虫巡逻队+螳螂穴+飞龙巢+火焰龙卷的黄金组合，双手直接放开键盘，观战幸存的队友如何尖叫抓挠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1305,3 +1305,27 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 2024-4-9 11:31 上传
 
+
+*****
+
+####  exiaexa  
+##### 90#       发表于 2024-4-9 13:52
+
+说白了，别jb惦记你那破逼香水了
+喜欢就直接下单，不想买就憋着别出气，别人花钱关你屁事儿
+
+楼友想看的是乐子不是发癫
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 91#       发表于 2024-4-9 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535495&amp;ptid=2178694" target="_blank">exiaexa 发表于 2024-4-9 13:52</a>
+
+说白了，别jb惦记你那破逼香水了
+
+喜欢就直接下单，不想买就憋着别出气，别人花钱关你屁事儿</blockquote>
+他是在看香水销量算角色谷子销量，属于查账类粉丝，目的本身就是看卖了多少而不是自己想买<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

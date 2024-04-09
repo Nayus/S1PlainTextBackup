@@ -12703,3 +12703,21 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 撤离点出现火龙卷直呼享受
 
+
+*****
+
+####  灰色蔓延  
+##### 2693#       发表于 2024-4-9 09:02
+
+问下激光狗现在会被损坏的？昨晚两局死着死着重新捡起来的激光狗只有背包，狗无人机没了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+然后被虫群围殴
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  ddwhzh  
+##### 2694#       发表于 2024-4-9 09:04
+
+整张图也没一个岩浆哪来的火龙卷，关键还来回拉锯，建议暗物质先崩了这个球
+

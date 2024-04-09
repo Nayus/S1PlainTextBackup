@@ -12886,3 +12886,12 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 好久没打虫了，昨天和朋友全程杂耍主武器和支援武器打虫n9，本以为随便打，结果花的命有点多，体感是变难了。
 
+
+*****
+
+####  Aeons  
+##### 2713#       发表于 2024-4-9 14:18
+
+火龙卷刷身边的，而且感觉大概率刷点里，任务点撤离点一地火。
+以前感觉好像不是这样。
+

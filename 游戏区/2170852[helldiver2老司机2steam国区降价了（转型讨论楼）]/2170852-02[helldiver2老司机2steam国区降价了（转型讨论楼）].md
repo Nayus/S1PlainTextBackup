@@ -13075,3 +13075,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 今晚怎么也该送点新战略吧
 
+
+*****
+
+####  FLZB  
+##### 2726#       发表于 2024-4-9 18:58
+
+还以为焦土伤害翻倍了，原来只是修复了面板数值显示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

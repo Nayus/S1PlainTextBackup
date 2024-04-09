@@ -6163,3 +6163,15 @@ given.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/09/130836aub7ux48n4uouz7c.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  remedios010000  
+##### 15354#       发表于 2024-4-9 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64532967&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-9 09:59</a>
+我是不懂soyo为什么能当挺王，明明还在反抗期
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
+问就是七八九怒涛展开三连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原教旨挺好选手立希女士不敌九十九万匹惊世一跪力量喜提16强
+

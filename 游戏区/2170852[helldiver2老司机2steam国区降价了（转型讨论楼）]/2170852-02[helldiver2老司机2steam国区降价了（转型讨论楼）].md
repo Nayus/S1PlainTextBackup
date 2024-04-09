@@ -12822,3 +12822,25 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  TiiTiiLL  
+##### 2706#       发表于 2024-4-9 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64534639&amp;ptid=2170852" target="_blank">cwjstat 发表于 2024-4-9 12:17</a>
+
+为啥我没领到消灭机器人的结算奖章？</blockquote>
+我和开黑的队友上线都没领到
+
+*****
+
+####  2stage  
+##### 2707#       发表于 2024-4-9 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64534639&amp;ptid=2170852" target="_blank">cwjstat 发表于 2024-4-9 12:17</a>
+为啥我没领到消灭机器人的结算奖章？</blockquote>
+服务器太垃，是分批次发的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

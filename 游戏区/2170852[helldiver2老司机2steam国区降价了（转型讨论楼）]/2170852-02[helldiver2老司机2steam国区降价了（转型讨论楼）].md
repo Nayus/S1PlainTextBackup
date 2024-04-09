@@ -13093,3 +13093,14 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Awanano  
+##### 2728#       发表于 2024-4-9 19:40
+
+这个傻逼游戏…携带15普通样本不会是要自己带身上吧
+但是稀有样本就可以带队友身上？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

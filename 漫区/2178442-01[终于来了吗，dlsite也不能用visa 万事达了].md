@@ -46,3 +46,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">去他们奶奶的啊，求推张好用的JCB
 
+
+*****
+
+####  kdiwang  
+##### 69#       发表于 2024-4-9 19:45
+
+招行jcb可以绑
+

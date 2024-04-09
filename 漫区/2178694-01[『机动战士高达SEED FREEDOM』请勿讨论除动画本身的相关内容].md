@@ -1539,3 +1539,43 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  exiaexa  
+##### 112#       发表于 2024-4-9 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535514&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-4-9 13:53</a>
+他是在看香水销量算角色谷子销量，属于查账类粉丝，目的本身就是看卖了多少而不是自己想买 ...</blockquote>
+我知道啊，所以我说别惦记那破逼玩意儿了，有意见就买它一万瓶证明厨力
+
+又不花钱又要逼逼人花了钱的，有没有人气关他屁事儿，被贴吧一脚踹了就跑别处发癫生怕别人不认识他
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马桶3  
+##### 113#       发表于 2024-4-9 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64534029&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-9 11:26</a>
+
+又来了，我这一句很简单的话，有些人非要脑补出一大堆的意思，玩阅读理解是不是？ ...</blockquote>
+那我直接告诉你，“水星可以打败种自和G”这件事并不能用一番赏ABC排序来证明，你能理解吗
+
+
+*****
+
+####  exiaexa  
+##### 114#       发表于 2024-4-9 16:30
+
+ 本帖最后由 exiaexa 于 2024-4-9 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535879&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-9 14:32</a>
+而且我已经没有发过香水的销售情况的，因为我现在最关心的还是前传OVA，毕竟现在所公布的情报会讲真飞鸟重 ...</blockquote>
+不服就穿越回二十年前买爆芙蕾周边
+让代孙认识到没有强推芙蕾就是这逼公司创业以来最大的失败
+
+再顺手暴打一顿福田，告诉他不强推芙蕾就让两泽女士挫骨扬灰
+
+啥都做不到你天天招个屁的魂
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1409,3 +1409,32 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 差也就差在可能不太会整活
 
+
+*****
+
+####  natmk  
+##### 99#       发表于 2024-4-9 15:04
+
+忘了从哪听过谷口说过不想做高达来着
+
+*****
+
+####  supermangunv4  
+##### 100#       发表于 2024-4-9 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536119&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-04-09 15:01:29</a>
+都提到独角兽了，古桥一浩不比谷口更好吗，下限也没下到哪去，上限直接顶天，
+
+差也就差在可能不太会整活 ...</blockquote>种系不整活不行，古桥和宇宙世纪绝配
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  线程召唤使  
+##### 101#       发表于 2024-4-9 15:10
+
+但是吧，种子真的没啥搞头了，开新坑，万代现在根本就对TV动画没啥执着。
+
+所谓的UC2真的会有吗，还是古桥？UC动画能连着几年刷榜，古桥和泽野起的作品比所谓新高父大的多，就这样古桥还掺和进UC2有啥意思，作用再大也不是你的东西。
+

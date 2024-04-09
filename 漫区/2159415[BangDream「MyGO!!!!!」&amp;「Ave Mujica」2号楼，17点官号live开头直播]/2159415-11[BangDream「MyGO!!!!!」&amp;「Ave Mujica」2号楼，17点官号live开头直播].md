@@ -6228,3 +6228,19 @@ given.jpg
 
 希望mujica能讲好吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 15359#       发表于 2024-4-9 15:15
+
+ 本帖最后由 Aendst 于 2024-4-9 15:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536058&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-9 14:54</a>
+
+感觉不在mygo里讲挺不厚道的，因为我感觉这个“前乐队为什么解散”从第一集开始就是用来吸引观众的重要抓 ...</blockquote>
+是，我也觉得这个悬念就是用来吸引观众的，所以不在这里讲清楚，说明剧本很可能是前后两篇一口气写的，最后拍板的时候就决定很多东西一定要在mujica动画里才进行回收
+
+制作组说一开始从乐队失败开始是追求真实感的一环，不过#10的超级系展开确实是超级系得不得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+姑且可以理解成有些内容不走超级系路线无法达成吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">部分角色对旧乐队的惦记程度也很超级系
+

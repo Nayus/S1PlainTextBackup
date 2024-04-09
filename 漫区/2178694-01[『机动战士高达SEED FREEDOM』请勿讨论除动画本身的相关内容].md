@@ -1438,3 +1438,21 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 所谓的UC2真的会有吗，还是古桥？UC动画能连着几年刷榜，古桥和泽野起的作品比所谓新高父大的多，就这样古桥还掺和进UC2有啥意思，作用再大也不是你的东西。
 
+
+*****
+
+####  natmk  
+##### 102#       发表于 2024-4-9 15:15
+
+让圣斋藤做一次高达吧让机战再一次复兴起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  supermangunv4  
+##### 103#       发表于 2024-4-9 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536255&amp;ptid=2178694" target="_blank">natmk 发表于 2024-04-09 15:15:13</a>
+让圣斋藤做一次高达吧让机战再一次复兴起来</blockquote>圣斋藤还没有能哪的出来的原创作品呢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

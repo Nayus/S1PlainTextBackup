@@ -6063,3 +6063,29 @@ pss：果然还是喜欢爱音，然后是海玲。
 有没有追番的讲讲你们当时一集一集的讨论什么呢 ...</blockquote>
 有空的话可以直接去爬专楼感受追番的气氛，因为讨论度是从第七话以后爆发的，专楼也不算特别高
 
+
+*****
+
+####  滑稽Captain  
+##### 15348#       发表于 2024-4-9 10:11
+
+三次元可能没有东映那么多可消耗员工（
+
+之前就有三次元员工说手k live场景的头发丝的时候已经能量饮料堆成山了
+
+
+*****
+
+####  tuichu0425  
+##### 15349#       发表于 2024-4-9 10:14
+
+<img src="https://img.saraba1st.com/forum/202404/09/101345e79wn4muwu9m8wri.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240409_092353_com.taobao.taobao.png</strong> (285.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 10:13 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">js发财了，这石头号
+

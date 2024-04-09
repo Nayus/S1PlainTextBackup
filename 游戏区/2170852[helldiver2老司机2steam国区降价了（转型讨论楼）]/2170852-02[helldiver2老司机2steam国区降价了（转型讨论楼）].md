@@ -12721,3 +12721,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 整张图也没一个岩浆哪来的火龙卷，关键还来回拉锯，建议暗物质先崩了这个球
 
+
+*****
+
+####  bakuza  
+##### 2695#       发表于 2024-4-9 10:08
+
+歪日，野排落地，一片猩红氤氲，能见度好低，几只追踪虫感觉像在守着泉水，落地一个围杀一个，靠着上条命叫的喷火器才活了下了
+

@@ -6213,3 +6213,18 @@ given.jpg
 
 至于不知道哪窜出来的新漏油讲的谜语人和ky怪，我觉得只要认真看过动画和访谈大部分观众应该不会这么认为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非八分真实地和爽世女士共享视角，那可能会这么想吧
 
+
+*****
+
+####  超时空鉴定师  
+##### 15358#       发表于 2024-4-9 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535668&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-9 14:08</a>
+
+前乐队其实本来就没打算在mygo动画里讲清楚，硬要说的话就是生命周期一两个月的微型跨校学生社团因为中心 ...</blockquote>
+感觉不在mygo里讲挺不厚道的，因为我感觉这个“前乐队为什么解散”从第一集开始就是用来吸引观众的重要抓手，后面第三集还重新演了一遍。这么多角色表达出的对前乐队的执念，结果不在这部动画里讲清楚有点可恶哇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+追求真实感吗？我感觉单人live上去念诗，然后一个一个找回队伍，最后大家即兴演奏新歌，唱的台下哭了一片，简直是超级系的展开啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+希望mujica能讲好吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

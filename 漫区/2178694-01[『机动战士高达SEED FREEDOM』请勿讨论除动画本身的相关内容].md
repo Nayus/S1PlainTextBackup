@@ -1388,3 +1388,24 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  王留美  
+##### 97#       发表于 2024-4-9 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535984&amp;ptid=2178694" target="_blank">supermangunv4 发表于 2024-4-9 14:42</a>
+ 我感觉也就谷口悟朗能接下这盘子。    -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+不可能的
+就算谷口愿意做敢达肯定也是自己搞新世界观
+
+
+*****
+
+####  线程召唤使  
+##### 98#       发表于 2024-4-9 15:01
+
+都提到独角兽了，古桥一浩不比谷口更好吗，下限也没下到哪去，上限直接顶天，
+
+差也就差在可能不太会整活
+

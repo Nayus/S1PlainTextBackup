@@ -12663,3 +12663,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这火漩涡以前还能反应过来，现在走路不看着点沾上一秒就死了真的太顶级了
 
+
+*****
+
+####  dfbbymice  
+##### 2688#       发表于 2024-4-9 08:43
+
+昨晚上见证了虫子最下面那颗星球在71%阶段被玩家们半小时解放的壮举，然后被逼的只能打恶心图了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

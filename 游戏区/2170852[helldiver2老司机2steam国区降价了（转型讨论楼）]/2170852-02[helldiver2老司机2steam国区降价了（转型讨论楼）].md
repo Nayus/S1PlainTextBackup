@@ -12895,3 +12895,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 火龙卷刷身边的，而且感觉大概率刷点里，任务点撤离点一地火。
 以前感觉好像不是这样。
 
+
+*****
+
+####  暴走的包子  
+##### 2714#       发表于 2024-4-9 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前也是撤离点一地龙卷啊，只是现在沾到就死而已
+

@@ -1487,3 +1487,23 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
   -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
 额....你该不会认为日本人也认为这是个很大的问题吧
 
+
+*****
+
+####  eyeego  
+##### 107#       发表于 2024-4-9 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536509&amp;ptid=2178694" target="_blank">秘密图纸 发表于 2024-4-9 15:39</a>
+额....你该不会认为日本人也认为这是个很大的问题吧</blockquote>
+福田嘴巴大又不是只有键政的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秘密图纸  
+##### 108#       发表于 2024-4-9 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536554&amp;ptid=2178694" target="_blank">eyeego 发表于 2024-4-9 15:44</a>
+
+福田嘴巴大又不是只有键政的问题</blockquote>
+情商低喜欢阴阳怪气是吧....以前可能是个问题，不过既然剧场版暴热，那可能也没人在乎了
+

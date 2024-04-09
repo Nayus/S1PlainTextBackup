@@ -927,3 +927,11 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 这是本季最低分吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 看了一眼b站播放量连2w都没有
 
+
+*****
+
+####  道双晨曦  
+##### 206#       发表于 2024-4-9 23:27
+
+冲着人设和cv来的，没想到这么无聊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

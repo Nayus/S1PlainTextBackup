@@ -13327,3 +13327,28 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 现在看来机器人到左上，右上是虫子，那左下估计光能，右下新种族？
 
+
+*****
+
+####  雪地白狼  
+##### 2754#       发表于 2024-4-9 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">越玩越想起以前一个叫第七区的网游，第三人称射击玩法的人 PVP RTS玩法的虫族，放现在质量也不错。可惜运营没了
+
+*****
+
+####  九十九忍  
+##### 2755#       发表于 2024-4-9 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这新防守着实不错，看来还是知道爽点的，之前真是四面漏风狗都不玩
+
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2756#       发表于 2024-4-9 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这就是生化人的精锐部队吗，感觉全体枪法准了一个大台阶，无数次被小兵枪精准点杀
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

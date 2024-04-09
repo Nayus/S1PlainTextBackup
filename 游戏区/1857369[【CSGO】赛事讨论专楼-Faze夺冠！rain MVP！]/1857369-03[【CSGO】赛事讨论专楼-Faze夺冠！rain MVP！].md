@@ -48,3 +48,20 @@ esl第一天修电脑是传统艺能了，卡托科隆也这样。
 
 老汤指挥打的还真不错，批壮也滚了双喜临门好爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 4240#       发表于 2024-4-9 19:32
+
+lvg ban了两边都不会的mirage，草了
+怎么不先ban inferno呢？
+
+
+*****
+
+####  heseran  
+##### 4241#       发表于 2024-4-9 19:33
+
+卧槽这手枪局
+

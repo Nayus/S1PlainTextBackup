@@ -552,3 +552,11 @@ hp翻倍、限制时间、限制攻击術限制魔镜，boss攻击还高的要�
 重大利好，可以腾出人手做单机新作了！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就手游现在这个水平，能不能无缝接入单机都另说……
 
+
+*****
+
+####  枫紫  
+##### 62#       发表于 2024-4-9 19:31
+
+这个活动700w的终结确定记得拿
+

@@ -13407,3 +13407,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，机器人现在好恶心，冲上来爆你还带火伤
 
+
+*****
+
+####  LT_Harry  
+##### 2764#       发表于 2024-4-10 02:31
+
+今晚在某个机器人星球任务里看到地面出现了漂浮移动的光团，靠近后会自行消失，怕不是在为光能者登场造势😱
+

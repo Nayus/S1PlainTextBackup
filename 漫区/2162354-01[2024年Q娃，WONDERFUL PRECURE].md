@@ -165,3 +165,16 @@ mayu明显cpu大师，拿沾自己气味最多的帽子送给猫，猫枕着帽�
 完全不讨厌洗澡的猫猫真是难得</blockquote>
 喵~<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞野咲  
+##### 1291#       发表于 2024-4-10 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64515394&amp;ptid=2162354" target="_blank">leleq 发表于 2024-4-7 17:53</a>
+
+打戏最后有个小麦背摔的卡但是没摔倒地下就切镜头了，不伤害动物真是彻底啊
+
+遇到小雪前面还是不错 ...</blockquote>
+我感觉是对应前面突然跑起来把彩羽拉倒的那段，而不是背摔
+

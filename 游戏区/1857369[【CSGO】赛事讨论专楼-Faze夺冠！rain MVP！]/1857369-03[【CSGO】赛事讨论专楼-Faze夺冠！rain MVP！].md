@@ -120,3 +120,22 @@ LVG！顶住啊！😭LVG！顶住啊！😭LVG！顶住啊！😭LVG！顶住�
 
 b弹幕太抽象了
 
+
+*****
+
+####  ork  
+##### 4249#       发表于 2024-4-9 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64539683&amp;ptid=1857369" target="_blank">heseran 发表于 2024-4-9 20:42</a>
+这hunter除了特，正面一个顶不住是吧</blockquote>
+还能炸烟送掉自己<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 4250#       发表于 2024-4-9 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64540162&amp;ptid=1857369" target="_blank">ork 发表于 2024-4-9 21:30</a>
+还能炸烟送掉自己</blockquote>
+纯畜生，正面一个都接不住
+

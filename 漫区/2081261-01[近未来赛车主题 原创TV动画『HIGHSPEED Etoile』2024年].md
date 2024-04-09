@@ -935,3 +935,11 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 冲着人设和cv来的，没想到这么无聊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔天使  
+##### 207#       发表于 2024-4-9 23:38
+
+刚刚看完，纯流水账，只能说当年的GPX是真神，领先20年妥妥的
+

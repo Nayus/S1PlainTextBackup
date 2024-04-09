@@ -1765,3 +1765,11 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 真的假的，还能上嘛</blockquote>
 假的，福田最近几天都是种自相关谷子的话题，估计这人在想要不要赚出拳这个流量的钱，他不是一直挂着二刺螈头像干着当年周锦华的行为
 
+
+*****
+
+####  Gysumitka  
+##### 133#       发表于 2024-4-9 23:37
+
+他不是前几天刚发过福田言论，这也敢回头恰吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

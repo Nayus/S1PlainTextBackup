@@ -6031,3 +6031,35 @@ pss：果然还是喜欢爱音，然后是海玲。
 明年鸡能救一下吗，起码成片分辨率拉高点大伙都108 ...</blockquote>
 我觉得不太行，GBC因为手K工作量太离谱让挺多人离职了，一时半会应该很难再有了
 
+
+*****
+
+####  6030sylar  
+##### 15345#       发表于 2024-4-9 09:59
+
+我是不懂soyo为什么能当挺王，明明还在反抗期
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑猫桑  
+##### 15346#       发表于 2024-4-9 10:00
+
+<img src="https://p.sda1.dev/16/c0db942c6e12ac91a3c00c31dfd94a05/20240409_092246.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/ee12bbd2caa4b0baa0f9833509941213/20240409_092243.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/4abd5025c19908b2004c268b707b0053/20240409_092242.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  须贺兰  
+##### 15347#       发表于 2024-4-9 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531202&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-9 00:39</a>
+
+啊对了， 就补番来说一集一集的故事联系还是很紧密自然的。
+
+有没有追番的讲讲你们当时一集一集的讨论什么呢 ...</blockquote>
+有空的话可以直接去爬专楼感受追番的气氛，因为讨论度是从第七话以后爆发的，专楼也不算特别高
+

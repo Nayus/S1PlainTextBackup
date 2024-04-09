@@ -6267,3 +6267,11 @@ given.jpg
 问就是七八九怒涛展开三连原教旨挺好选手立希女士不敌九十九万匹惊世一跪力量喜提16强 ...</blockquote>
 我说你这票是乱投的，他说不是，这是有bear而来<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 15362#       发表于 2024-4-9 16:12
+
+我还挺奇怪为什么很多考据独角兽思路的没有提given，这个的开局才是和mygo相似度最高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

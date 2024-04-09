@@ -9766,3 +9766,16 @@ tm的w1走私鱼发了巴勃罗北斋和喇叭熊弓<img src="https://static.sar
 
 wow，1代于下午2点寿终正寝，享年9岁
 
+
+*****
+
+####  DeltaStriker  
+##### 3947#       发表于 2024-4-9 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64534919&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-9 12:47</a>
+反正我看到过的审查者/铅笔，SP强和SP增最多55开，甚至还有带了2.x的SP增，SP强一点没带的审查者。单排默 ...</blockquote>
+我现在觉得 sp强的相当一部分意义其实在于自己的饮料机回转 因为cd10s的原因 饮料机空窗期其实不小 如果在考虑提高自己生存率的情前提下(即以维持地板环境 和队友正义n打1 不那么激进的立回思路) sp强或许能发挥应有的作用吧
+确实 也就是看队友行不行 还有自己能不能在队友多倒的时候拖时间到复归
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

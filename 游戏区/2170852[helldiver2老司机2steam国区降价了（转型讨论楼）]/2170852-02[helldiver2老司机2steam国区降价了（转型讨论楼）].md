@@ -12911,3 +12911,18 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 现在打虫子是顶级享受，只能说下次贱头给你增强点啥的时候先别高兴太早，他绝逼会同时偷偷摸摸给你上强度，等民主爆破出了恐怕强度还得往上加，好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 2716#       发表于 2024-4-9 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不玩花样老老实实激光狗加电弧其实还是遨游，就是强袭虫处理速度慢了，还有就是飞龙塔没那么好处理
+
+*****
+
+####  雪地白狼  
+##### 2717#       发表于 2024-4-9 16:10
+
+没飞虫之前有500KG打掉泰坦就随便打，飞龙更新之后虫难度直线上升，N7开始都总是翻车
+

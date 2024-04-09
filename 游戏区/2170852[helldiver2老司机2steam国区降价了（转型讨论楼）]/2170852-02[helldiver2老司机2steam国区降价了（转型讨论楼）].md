@@ -12868,3 +12868,21 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 这火龙卷球一分钟也呆不下去
 
+
+*****
+
+####  xinfengj  
+##### 2711#       发表于 2024-4-9 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535646&amp;ptid=2170852" target="_blank">rgauss 发表于 2024-4-9 14:06</a>
+这火龙卷球一分钟也呆不下去</blockquote>
+已经解放掉了，任务完成。
+乔尔不如直接发个2天打穿奥密克戎然后剩下虫子星区做710油田围栏星球的任务算这轮回结束得了
+
+*****
+
+####  Aeons  
+##### 2712#       发表于 2024-4-9 14:13
+
+好久没打虫了，昨天和朋友全程杂耍主武器和支援武器打虫n9，本以为随便打，结果花的命有点多，体感是变难了。
+

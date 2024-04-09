@@ -6193,3 +6193,23 @@ given.jpg
 
 讨论的话其实泥漏一号楼很多东西都挺有意思的，有精力和空闲的话可以都翻翻看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 15357#       发表于 2024-4-9 14:08
+
+ 本帖最后由 Aendst 于 2024-4-9 14:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531160&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-9 00:29</a>
+
+看完了，如果只有12集我可能只能给到7.5或者8分吧。
+
+倒也不是作品有什么问题，就是我缺乏欣赏女性扭曲关系 ...</blockquote>
+前乐队其实本来就没打算在mygo动画里讲清楚，硬要说的话就是生命周期一两个月的微型跨校学生社团因为中心人物因故退出所以慢慢散了而已，很自然而然也很符合制作组追求的真实感，具体的逻辑脉络的从这一部分动画的剧本上来说并不重要
+
+无非就是把人划分到两个新乐队，用来埋角色间冲突
+
+当然深究的话爽世对旧乐队的执着难免都合，但没这部分执着的话剧本上就很难有矛盾冲突
+
+至于不知道哪窜出来的新漏油讲的谜语人和ky怪，我觉得只要认真看过动画和访谈大部分观众应该不会这么认为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非八分真实地和爽世女士共享视角，那可能会这么想吧
+

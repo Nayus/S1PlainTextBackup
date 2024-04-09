@@ -13269,3 +13269,18 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 但新任务守点好玩
 
+
+*****
+
+####  BadYanL  
+##### 2747#       发表于 2024-4-9 22:05
+
+光能者最快也要5月底吧，大型更新肯定要上索尼发布会宣传
+
+*****
+
+####  LrGsite  
+##### 2748#       发表于 2024-4-9 22:06
+
+这反攻的也太快了吧
+

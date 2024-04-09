@@ -12803,3 +12803,12 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 为啥我没领到消灭机器人的结算奖章？
 
+
+*****
+
+####  ykyin09  
+##### 2704#       发表于 2024-4-9 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64533498&amp;ptid=2170852" target="_blank"> Shibaobi 发表于 2024-4-9 10:44</a> 撤离刁民任务遇上火龙卷，直接一波烧死十几个刁民 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一把撤离刁民火龙卷直接刷在撤离塔前的大广场，队友还一直头硬开门刷刁民，结果撤完了还倒欠超级气球好几百申购点来自: iPhone客户端
+

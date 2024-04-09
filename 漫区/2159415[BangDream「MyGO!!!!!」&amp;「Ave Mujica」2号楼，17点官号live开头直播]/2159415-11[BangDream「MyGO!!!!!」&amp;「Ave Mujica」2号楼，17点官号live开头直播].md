@@ -6105,3 +6105,17 @@ pss：果然还是喜欢爱音，然后是海玲。
 
 老实说音游手感对比cgss还要多适应一会
 
+
+*****
+
+####  schneehertz  
+##### 15352#       发表于 2024-4-9 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531160&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-9 00:29</a>
+看完了，如果只有12集我可能只能给到7.5或者8分吧。
+
+倒也不是作品有什么问题，就是我缺乏欣赏女性扭曲关系 ...</blockquote>
+前乐队是被一个谜语人和一个ky怪搞散的，动画里应该讲的比较清楚了，只不过为什么这个人要讲谜语和另外一个一直ky，我估计第二季也不一定会讲清楚
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

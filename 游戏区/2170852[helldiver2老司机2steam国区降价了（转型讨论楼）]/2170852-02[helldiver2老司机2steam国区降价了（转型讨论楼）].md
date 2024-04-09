@@ -13376,3 +13376,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 打了这么久虫子第一次遇到圣兽级坦克虫，造型有点屌<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddwhzh  
+##### 2760#       发表于 2024-4-10 00:28
+
+连个免费战备都不发，新任务还没有样品点，让大家守点有点难办哟
+

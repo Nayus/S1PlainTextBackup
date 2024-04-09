@@ -71,3 +71,18 @@
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黑色的js  
+##### 2969#       发表于 2024-4-9 22:34
+
+这游戏少数几个红眼精英怪好像没剧情解释<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妖刀那个支线提到红眼想喝血
+
+*****
+
+####  医生狼多  
+##### 2970#       发表于 2024-4-9 22:39
+
+不懂幕末的看剧情莫名其妙，什么大老老中都是啥，然后发现这游戏里有词典<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

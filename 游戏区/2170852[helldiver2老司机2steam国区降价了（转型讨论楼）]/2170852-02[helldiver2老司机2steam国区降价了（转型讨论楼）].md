@@ -13300,3 +13300,13 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我倒是昨天狂掉今天稳得不行
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2751#       发表于 2024-4-9 22:38
+
+这库楼三，一片屎黄色，但是看不了敌人，只看见红色子弹和导弹精准飞过来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

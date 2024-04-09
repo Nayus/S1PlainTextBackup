@@ -903,3 +903,27 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  天子控  
+##### 204#       发表于 2024-4-9 22:36
+
+<img src="https://img.saraba1st.com/forum/202404/09/223524lq95h9ms3e9s053a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-09-22-27-13-43_df198e732186825c8df26e3c5a10d7cd.jpg</strong> (249.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 22:35 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 205#       发表于 2024-4-9 22:41
+
+这是本季最低分吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 看了一眼b站播放量连2w都没有
+

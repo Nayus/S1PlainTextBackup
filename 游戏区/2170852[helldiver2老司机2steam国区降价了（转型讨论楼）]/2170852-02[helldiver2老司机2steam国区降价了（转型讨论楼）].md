@@ -13352,3 +13352,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nukecole  
+##### 2757#       发表于 2024-4-9 23:47
+
+这次新补丁又遇到新BUG，任务全部做完跑到撤离点没撤离用的终端
+

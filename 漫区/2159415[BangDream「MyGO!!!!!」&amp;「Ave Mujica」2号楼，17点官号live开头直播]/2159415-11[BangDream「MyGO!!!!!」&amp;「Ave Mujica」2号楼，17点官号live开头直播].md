@@ -6097,3 +6097,11 @@ pss：果然还是喜欢爱音，然后是海玲。
 
 别说价格了，据说已经没库存了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rexzhanghao  
+##### 15351#       发表于 2024-4-9 10:31
+
+老实说音游手感对比cgss还要多适应一会
+

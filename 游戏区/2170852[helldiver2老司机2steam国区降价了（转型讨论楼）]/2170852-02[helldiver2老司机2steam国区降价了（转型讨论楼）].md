@@ -12755,3 +12755,23 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 火龙卷很好，有时给你堵路，有时帮你封路，增大了随机性更有乐趣了
 
+
+*****
+
+####  WGTCorp  
+##### 2699#       发表于 2024-4-9 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64532356&amp;ptid=2170852" target="_blank">灰色蔓延 发表于 2024-4-9 09:02</a>
+问下激光狗现在会被损坏的？昨晚两局死着死着重新捡起来的激光狗只有背包，狗无人机没了
+然后被虫群 ...</blockquote>
+感觉是有生命值的，人被炸飞剩个血皮的时候无人机也会回背包，过一会儿才会重新启动。
+不过感觉这几天有bug，激光狗有时会盯着一个没东西的地方滋，有时周围一圈虫子就是不开火，得把背包扔地上再捡回来才恢复正常。
+
+
+*****
+
+####  Shibaobi  
+##### 2700#       发表于 2024-4-9 10:44
+
+撤离刁民任务遇上火龙卷，直接一波烧死十几个刁民<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

@@ -139,3 +139,30 @@ b弹幕太抽象了
 还能炸烟送掉自己</blockquote>
 纯畜生，正面一个都接不住
 
+
+*****
+
+####  ork  
+##### 4251#       发表于 2024-4-9 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64540188&amp;ptid=1857369" target="_blank">heseran 发表于 2024-4-9 21:33</a>
+纯畜生，正面一个都接不住</blockquote>
+就算这样还是被小孩带飞了
+
+lvg继续虽败犹荣吧，太可惜了
+
+
+*****
+
+####  KevinGraham  
+##### 4252#       发表于 2024-4-9 21:40
+
+lvg这真荣吧
+
+*****
+
+####  keleemo123  
+##### 4253#       发表于 2024-4-9 21:43
+
+惜败 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

@@ -1602,3 +1602,17 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 </blockquote>
 招魂这件事，成功了，自己喜欢的角色可以重新出现是最好的结果，失败的无非就是被一群本来就不喜欢这个角色，而且可能一辈子碰不到一次的人说些闲话，那为什么不干了，又没有任何坏处的一件事
 
+
+*****
+
+####  exiaexa  
+##### 117#       发表于 2024-4-9 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64537228&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-9 16:46</a>
+招魂这件事，成功了，自己喜欢的角色可以重新出现是最好的结果，失败的无非就是被一群本来就不喜欢这个角 ...</blockquote>
+坏处？
+坏处就是以后国内有人想讨论芙蕾的时候，可能就会有人给你科普当年有个叫死难者的臭傻逼到处给这角色招魂，搞得人厌狗嫌
+
+只能说您这手把自己当狗皮膏药贴角色上的本事确实挺强的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

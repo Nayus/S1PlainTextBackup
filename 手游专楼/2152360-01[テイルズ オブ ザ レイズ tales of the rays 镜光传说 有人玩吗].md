@@ -560,3 +560,14 @@ hp翻倍、限制时间、限制攻击術限制魔镜，boss攻击还高的要�
 
 这个活动700w的终结确定记得拿
 
+
+*****
+
+####  法拉  
+##### 63#         楼主| 发表于 2024-4-10 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64538969&amp;ptid=2152360" target="_blank">枫紫 发表于 2024-4-9 19:31</a>
+
+这个活动700w的终结确定记得拿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">new了想要的爽死了，不过这样子搞真的还有人敢氪终决吗
+

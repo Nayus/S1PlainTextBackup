@@ -6322,3 +6322,11 @@ given.jpg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Toki_Ai  
+##### 15367#       发表于 2024-4-10 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">音游苦手太难了，打个hard闹麻了
+

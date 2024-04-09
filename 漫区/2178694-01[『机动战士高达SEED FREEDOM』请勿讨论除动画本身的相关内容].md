@@ -1737,3 +1737,13 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 只是这么多年，离开基拉等核心角色的作品不能说没人气，只是人气完全不是一个级别<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
 不过往后的00也一样衍生作品一同推出了，基本成标配了，除了近年两个新系列
 
+
+*****
+
+####  azbhg1  
+##### 130#       发表于 2024-4-9 23:22
+
+<img src="https://p.sda1.dev/16/8c7d79e4d562d81eefdf913cb756d738/QQ_RBTtyvdmrE.png" referrerpolicy="no-referrer">
+
+真的假的，还能上嘛
+

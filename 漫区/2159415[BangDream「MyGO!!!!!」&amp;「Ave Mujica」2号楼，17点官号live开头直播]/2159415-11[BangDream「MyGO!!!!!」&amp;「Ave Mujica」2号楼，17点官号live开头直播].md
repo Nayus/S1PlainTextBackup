@@ -6119,3 +6119,47 @@ pss：果然还是喜欢爱音，然后是海玲。
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  Anley  
+##### 15353#       发表于 2024-4-9 13:09
+
+正在补ゆにこ老师参与的《given被赠与的未来》，主角团说的“反而是那种所有人都坚持自己喜好的乐团大多都会吵翻天最后阵亡，因为喜欢所以意见不合”，是不是回旋镖mygo了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+given.jpg
+(196.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 13:08 上传
+
+<img src="https://img.saraba1st.com/forum/202404/09/130803nh0po0pz4nozi80o.jpg" referrerpolicy="no-referrer">
+
+1.jpg
+(137.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 13:08 上传
+
+<img src="https://img.saraba1st.com/forum/202404/09/130811vbw3pff3r3rrurbb.jpg" referrerpolicy="no-referrer">
+
+2.jpg
+(130.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 13:08 上传
+
+<img src="https://img.saraba1st.com/forum/202404/09/130820ksynswy9lysynssa.jpg" referrerpolicy="no-referrer">
+
+3.jpg
+(129.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 13:08 上传
+
+<img src="https://img.saraba1st.com/forum/202404/09/130836aub7ux48n4uouz7c.jpg" referrerpolicy="no-referrer">
+

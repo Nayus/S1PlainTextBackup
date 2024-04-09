@@ -12787,3 +12787,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  dfbbymice  
+##### 2702#       发表于 2024-4-9 11:47
+
+上次更新之后虫子的刷新数量就变得很多了，还有专门的跳脸虫（追猎虫）巡逻队，一旦触发增援就能看见十几个跳脸虫各种追杀，被围在里面的话那是救都救不回来
+

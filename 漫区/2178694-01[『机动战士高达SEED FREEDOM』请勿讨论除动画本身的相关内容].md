@@ -1373,3 +1373,18 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 独角兽能成还是UC本身就有三个OVA打下的基础
 
+
+*****
+
+####  supermangunv4  
+##### 96#       发表于 2024-4-9 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535915&amp;ptid=2178694" target="_blank">王留美 发表于 2024-04-09 14:36:39</a>
+不好说
+观星者查无此人
+异端热归热，千叶智宏可是大战犯
+
+独角兽能成还是UC本身就有三个OVA打下的基础 ...</blockquote>我感觉也就谷口悟朗能接下这盘子。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1289,3 +1289,19 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 问题很大，原因有三。首先，一番赏ABC的排序是按产品规格来分的，大比例&gt;复杂模具小比例&gt;普通小比例。其次 ...</blockquote>
 又来了，我这一句很简单的话，有些人非要脑补出一大堆的意思，玩阅读理解是不是？
 
+
+*****
+
+####  死难者23er  
+##### 89#       发表于 2024-4-9 11:31
+
+不愧是剧场版，人气最高的角色，居然出了个人周边
+
+<img src="https://img.saraba1st.com/forum/202404/09/113150j1y2covpc82uzr24.png" referrerpolicy="no-referrer">
+
+<strong>AFA3942E-3EDF-4FB9-8969-EA0403785098.png</strong> (262.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-9 11:31 上传
+

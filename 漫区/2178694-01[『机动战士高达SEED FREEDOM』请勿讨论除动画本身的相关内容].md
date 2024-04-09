@@ -1268,3 +1268,14 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 风灵A是因为这个是FM的风灵，1：100的，神高放B赏是因 ...</blockquote>
 我当然知道是一番赏，我一开始就说了是第一抽奖但人家选择水星作为A赏和最终赏，而不是选择G和种这个确实让我没想到这发言有什么问题
 
+
+*****
+
+####  马桶3  
+##### 87#       发表于 2024-4-9 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531896&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-04-09 07:36:41</a>
+我当然知道是一番赏，我一开始就说了是第一抽奖但人家选择水星作为A赏和最终赏，而不是选择G和种这个确实 ...</blockquote>问题很大，原因有三。首先，一番赏ABC的排序是按产品规格来分的，大比例&gt;复杂模具小比例&gt;普通小比例。其次，种系大比例早就在A赏里耍烂了，G系则是根本没有拿得出手的大比例模型，而RG产品线里神高口碑很好，水魔根本没有RG，种自RG只有个本质种命换色被喷的脉冲。最后，HG飞升自由是新品，通贩出货多到爆100就能买一盒，他火速进B依然觉得有人会抽，你却觉得人气被打败了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1666,3 +1666,13 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 少天天念叨
 
+
+*****
+
+####  supermangunv4  
+##### 123#       发表于 2024-4-9 20:11
+
+说会正题，啊种有没有可能和宇宙世纪一样，独立开一个世界观系列的潜力，除了千叶以外还有别人能整活这个世界观吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

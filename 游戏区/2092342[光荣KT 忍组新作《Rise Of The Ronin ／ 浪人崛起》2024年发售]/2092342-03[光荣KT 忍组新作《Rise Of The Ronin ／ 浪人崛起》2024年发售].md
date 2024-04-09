@@ -61,3 +61,13 @@
 
 大剑平A流来了，不防御不石火闭眼单挑100级盟友任务
 
+
+*****
+
+####  无攻不受鹿  
+##### 2968#       发表于 2024-4-9 20:08
+
+弹出动摇后，怎么接饭纲落？切隼流，烈风那一下会打到人，之后他就防御了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -13159,3 +13159,19 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 好快的反攻，超级地球的防御不堪一击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 2735#       发表于 2024-4-9 20:06
+
+哎 超级气球这就丢了这么多星球
+
+
+*****
+
+####  WGTCorp  
+##### 2736#       发表于 2024-4-9 20:11
+
+卡麻了，队里三个人看到的东西完全不一样，旁边的队友轰了半天的泰坦我这边根本没显示
+

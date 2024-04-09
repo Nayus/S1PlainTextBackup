@@ -6018,3 +6018,16 @@ pss：果然还是喜欢爱音，然后是海玲。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ddy2811  
+##### 15344#       发表于 2024-4-9 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64531571&amp;ptid=2159415" target="_blank">kivz 发表于 2024-4-9 02:17</a>
+
+刚看了隔壁GBC三次元真的做得太保守了
+
+明年鸡能救一下吗，起码成片分辨率拉高点大伙都108 ...</blockquote>
+我觉得不太行，GBC因为手K工作量太离谱让挺多人离职了，一时半会应该很难再有了
+

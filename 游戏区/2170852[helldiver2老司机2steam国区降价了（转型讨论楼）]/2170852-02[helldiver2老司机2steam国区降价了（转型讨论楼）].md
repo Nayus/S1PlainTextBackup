@@ -12903,3 +12903,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前也是撤离点一地龙卷啊，只是现在沾到就死而已
 
+
+*****
+
+####  FLZB  
+##### 2715#       发表于 2024-4-9 15:57
+
+现在打虫子是顶级享受，只能说下次贱头给你增强点啥的时候先别高兴太早，他绝逼会同时偷偷摸摸给你上强度，等民主爆破出了恐怕强度还得往上加，好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

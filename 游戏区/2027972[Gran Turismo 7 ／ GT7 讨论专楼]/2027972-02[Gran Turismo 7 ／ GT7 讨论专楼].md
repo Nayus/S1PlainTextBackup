@@ -8,3 +8,15 @@
 
 对赛车感兴趣的玩家是不是直接数字版就行了，应该挺耐玩的？另外想问下这游戏肝吗，不会搞很多内购的车吧
 
+
+*****
+
+####  heseran  
+##### 1854#       发表于 2024-4-9 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536604&amp;ptid=2027972" target="_blank">nagitoY 发表于 2024-4-9 15:49</a>
+刚买ps5，看了眼现在史低。
+
+对赛车感兴趣的玩家是不是直接数字版就行了，应该挺耐玩的？另外想问下这游戏肝 ...</blockquote>
+不算肝吧，就是很杀时间，玩投入了不知不觉时间就过去了。
+

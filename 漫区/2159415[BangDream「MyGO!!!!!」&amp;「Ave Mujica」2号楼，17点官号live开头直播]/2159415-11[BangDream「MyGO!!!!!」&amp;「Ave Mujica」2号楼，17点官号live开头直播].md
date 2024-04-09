@@ -6244,3 +6244,26 @@ given.jpg
 
 姑且可以理解成有些内容不走超级系路线无法达成吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">部分角色对旧乐队的惦记程度也很超级系
 
+
+*****
+
+####  须贺兰  
+##### 15360#       发表于 2024-4-9 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536058&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-9 14:54</a>
+
+感觉不在mygo里讲挺不厚道的，因为我感觉这个“前乐队为什么解散”从第一集开始就是用来吸引观众的重要抓 ...</blockquote>
+建议重看第十一话开头部分，台下只有掌声寥寥和一些窃窃私语，说明观众get到台上情感的并不多，特别是和第十二话LIVE气氛对比
+
+
+*****
+
+####  6030sylar  
+##### 15361#       发表于 2024-4-9 15:58
+
+ 本帖最后由 6030sylar 于 2024-4-9 15:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535194&amp;ptid=2159415" target="_blank">remedios010000 发表于 2024-4-9 13:20</a>
+
+问就是七八九怒涛展开三连原教旨挺好选手立希女士不敌九十九万匹惊世一跪力量喜提16强 ...</blockquote>
+我说你这票是乱投的，他说不是，这是有bear而来<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+

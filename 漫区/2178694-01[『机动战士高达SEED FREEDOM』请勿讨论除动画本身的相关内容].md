@@ -1507,3 +1507,24 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 福田嘴巴大又不是只有键政的问题</blockquote>
 情商低喜欢阴阳怪气是吧....以前可能是个问题，不过既然剧场版暴热，那可能也没人在乎了
 
+
+*****
+
+####  永恒的王牌  
+##### 109#       发表于 2024-4-9 15:56
+
+除了福田真有人能再现种那种贵乱胡逼味么，没了福田的种感觉就和没了鲁鲁修的GC系列差不多
+
+
+*****
+
+####  秘密图纸  
+##### 110#       发表于 2024-4-9 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536203&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-9 15:10</a>
+
+但是吧，种子真的没啥搞头了，开新坑，万代现在根本就对TV动画没啥执着。
+
+所谓的UC2真的会有吗，还是古桥 ...</blockquote>
+难说，一说起追忆篇，没几个人会想起和月伸宏
+

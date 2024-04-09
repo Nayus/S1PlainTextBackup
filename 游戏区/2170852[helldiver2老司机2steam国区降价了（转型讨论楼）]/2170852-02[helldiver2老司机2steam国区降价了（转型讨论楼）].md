@@ -13399,3 +13399,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 新任务经验是闪电战一半吧，也太烂了
 
+
+*****
+
+####  Launce  
+##### 2763#       发表于 2024-4-10 02:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，机器人现在好恶心，冲上来爆你还带火伤
+

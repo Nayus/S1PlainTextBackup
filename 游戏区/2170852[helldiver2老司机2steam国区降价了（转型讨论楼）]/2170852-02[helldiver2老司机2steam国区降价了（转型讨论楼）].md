@@ -13284,3 +13284,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 这反攻的也太快了吧
 
+
+*****
+
+####  丹德里恩  
+##### 2749#       发表于 2024-4-9 22:16
+
+这更新补丁是真的牛逼，之前3天掉1次，今天一晚上掉4次了
+

@@ -9813,3 +9813,11 @@ pyon的绝技，就是因为从1代玩起所练出来的吧，1代隐跳强无�
 
 7次miss野康，除去中间有连续四把非常抽象的连续miss以外，正好600，800，900各一次
 
+
+*****
+
+####  Teiume  
+##### 3951#       发表于 2024-4-9 22:15
+
+想尾工打个低保，结果400开局也能遇到搬蛋杀怪都是个位数的队友啊，好抽象。<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+

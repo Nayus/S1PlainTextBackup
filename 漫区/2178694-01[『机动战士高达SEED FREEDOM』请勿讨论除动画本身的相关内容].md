@@ -1464,3 +1464,26 @@ https://www.cathaycineplexes.com.sg/movies/HO00002534</blockquote>
 
 福田好好的为啥要换？<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  supermangunv4  
+##### 105#       发表于 2024-4-9 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536352&amp;ptid=2178694" target="_blank">秘密图纸 发表于 2024-04-09 15:26:04</a>
+福田好好的为啥要换？</blockquote>这大嘴巴子问题太大
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  秘密图纸  
+##### 106#       发表于 2024-4-9 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536497&amp;ptid=2178694" target="_blank">supermangunv4 发表于 2024-4-9 15:38</a>
+
+这大嘴巴子问题太大
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+额....你该不会认为日本人也认为这是个很大的问题吧
+

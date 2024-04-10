@@ -6835,3 +6835,18 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 突然好奇mujica的第二套live装束会长啥样，到现在都只有一套吧。
 
+
+*****
+
+####  PDQ4  
+##### 15419#       发表于 2024-4-11 01:08
+
+五首元素曲出完可以来套炼金术/西幻组合吗。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15420#       发表于 2024-4-11 01:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而我已經在思考5月要靠什麼活下去，ave 5月除了一首歌什麼都沒有
+

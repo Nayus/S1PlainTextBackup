@@ -182,3 +182,17 @@ lvg这真荣吧
 
 G2太反人类了，tesse把送手杀都能进加时，小孩niko拿完首杀还能全送回去，真是太变态了。上次看这么恶心的比赛还是G2打ECS<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 4256#       发表于 2024-4-11 01:22
+
+<img src="https://img.saraba1st.com/forum/202404/11/012255e0kw47ekjgqqwff1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 01:22 上传
+

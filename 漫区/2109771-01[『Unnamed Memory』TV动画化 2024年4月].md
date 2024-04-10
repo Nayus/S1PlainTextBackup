@@ -817,3 +817,14 @@ b站版本有阉割吗？
 b站版本有阉割吗？</blockquote>
 有至少一处，就是b站版本16分25秒，有夫之妇那句后边，女主还说了如果选中老人或小孩的情况。b站把这两句删了。
 
+
+*****
+
+####  Zendless  
+##### 66#       发表于 2024-4-10 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64550004&amp;ptid=2109771" target="_blank">皆杀的田中 发表于 2024-4-10 18:57</a>
+
+有至少一处，就是b站版本16分25秒，有夫之妇那句后边，女主还说了如果选中老人或小孩的情况。b站把这两句 ...</blockquote>
+谢谢
+

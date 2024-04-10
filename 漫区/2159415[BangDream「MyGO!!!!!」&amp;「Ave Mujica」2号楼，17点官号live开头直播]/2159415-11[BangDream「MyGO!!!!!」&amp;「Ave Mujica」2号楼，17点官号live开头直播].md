@@ -6374,3 +6374,13 @@ given.jpg
 
 立希游戏形象有些糟糕，不知道之后还有没有机会补救一下
 
+
+*****
+
+####  杂灰  
+##### 15372#       发表于 2024-4-10 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64536682&amp;ptid=2159415" target="_blank">须贺兰 发表于 2024-4-9 15:57</a>
+建议重看第十一话开头部分，台下只有掌声寥寥和一些窃窃私语，说明观众get到台上情感的并不多，特别是和 ...</blockquote>
+我记得结束后台下是有啜泣声的，更接近被冲击到不知道做什么反应好吧
+

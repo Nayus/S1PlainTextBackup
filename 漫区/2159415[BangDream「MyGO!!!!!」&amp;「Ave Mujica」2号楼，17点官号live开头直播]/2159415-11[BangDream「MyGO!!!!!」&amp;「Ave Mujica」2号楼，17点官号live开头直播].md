@@ -6868,3 +6868,11 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 —— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  NODY  
+##### 15423#       发表于 2024-4-11 03:24
+
+成团后爽姐的人设有种性转奥伯龙的美，其实还挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

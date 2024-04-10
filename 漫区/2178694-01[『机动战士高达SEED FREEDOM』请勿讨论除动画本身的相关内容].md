@@ -3420,3 +3420,14 @@ NT日本5亿日元票房，中国有850W以上rmb
 
 五一在家看哥斯拉-1咯<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 305#       发表于 2024-4-11 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64552099&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-4-10 22:02</a>
+
+今天我给大家道个歉，这段时间我确实在一些方面显得太高调了，甚至影响到了影片推进，而且发的有些微博也让 ...</blockquote>
+哈哈，出多少钱收买呢
+

@@ -2319,3 +2319,85 @@ hhhhh<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" refer
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Todds_lies  
+##### 195#       发表于 2024-4-10 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是有点可惜，毕竟大屏幕看机器人的机会看一次少一次，要不全国重映一次逆鸭吧，电影节太远，去不了啦
+
+*****
+
+####  ナルバレック  
+##### 196#       发表于 2024-4-10 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64546730&amp;ptid=2178694" target="_blank">シャル 发表于 2024-4-10 14:09</a>
+
+那也是代哥危机控制太差
+
+要知道福田就喜欢喷粪，这次压不住了吧</blockquote>
+对FT来算这压根够不上喷粪吧，他口嗨都是阴阳语气，这次主要是地震慰问用词踩敏感了，被万代删帖前估计连点感觉都没有，被删了估计还生闷气<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秘密图纸  
+##### 197#       发表于 2024-4-10 14:28
+
+为什么偏偏Z高达要被流媒体平台封杀啊
+
+*****
+
+####  ialy  
+##### 198#       发表于 2024-4-10 14:29
+
+好了，各位，乐一乐就得了。怎么说也是动画相关讨论楼，你们再聊下去又要被抽了
+
+*****
+
+####  ShyCrazydog  
+##### 199#       发表于 2024-4-10 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64546937&amp;ptid=2178694" target="_blank">wenze 发表于 2024-4-10 14:25</a>
+这波也是给代哥个教训了，对于想走中国市场的作品，危机公关和红线的事前提醒要做到位。当然我觉得这些举 ...</blockquote>
+其实这次算是突发情况，代便也没办法。不是所有人都能一直控制自己别不经意把心里话说出来。你要说ft这次这话4v是邻国可能在日本属于常识，所以他根本没怀疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wenze  
+##### 200#       发表于 2024-4-10 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64546989&amp;ptid=2178694" target="_blank">秘密图纸 发表于 2024-4-10 14:28</a>
+为什么偏偏Z高达要被流媒体平台封杀啊</blockquote>
+z高达不是被版权炮弄没的吗？原来其他平台也没了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ナルバレック  
+##### 201#       发表于 2024-4-10 14:31
+
+说来前几年G RECO还因为中文翻译标题的原因被封了几年网盘见呢，至今都感觉纳闷，毕竟刚自己内容和谐的要命，据说是因为标题带复国那两个字的原因<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酸素鱼雷  
+##### 202#       发表于 2024-4-10 14:33
+
+代哥代哥！
+
+*****
+
+####  秘密图纸  
+##### 203#       发表于 2024-4-10 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547030&amp;ptid=2178694" target="_blank">wenze 发表于 2024-4-10 14:31</a>
+
+z高达不是被版权炮弄没的吗？原来其他平台也没了？
+
+—— 来自 S1Fun</blockquote>
+正版Z高达从来没见过
+

@@ -3342,3 +3342,35 @@ NT日本5亿日元票房，中国有850W以上rmb
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秘密图纸  
+##### 297#       发表于 2024-4-10 21:47
+
+ 本帖最后由 秘密图纸 于 2024-4-10 21:50 编辑 
+
+票房最惨的引进剧场版是魔神Z，好像只有几十万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 298#       发表于 2024-4-10 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64551953&amp;ptid=2178694" target="_blank">秘密图纸 发表于 2024-4-10 21:47</a>
+
+票房最惨的引进剧场版是魔神Z，好像只有几十万</blockquote>
+国内超级系压根没同年滤镜和粉丝基础啊，法国和马来倒是有
+
+
+*****
+
+####  SorroFrost  
+##### 299#       发表于 2024-4-10 21:53
+
+ 本帖最后由 SorroFrost 于 2024-4-10 21:55 编辑 
+
+宅男看影视发微博道歉了，大概意思是他没想到他发微博导致影片推进发生了问题。还把上午种自的那个微博删了。
+
+那这样的话，看起来像是中影的人看到了他微博，然后就改了种自，我估计可能原本是想动静小些混过去，没想到一个微博反响那么大。
+

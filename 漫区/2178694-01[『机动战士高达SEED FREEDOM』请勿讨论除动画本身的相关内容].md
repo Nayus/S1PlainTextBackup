@@ -3221,3 +3221,15 @@ UC自己也是最后为了卖模型整了大佛。而且你找其他剧本也没
 ……SD国内票房6.6e</blockquote>
 居然真的超过日本票房了，看来高达 seed也有可能
 
+
+*****
+
+####  ShyCrazydog  
+##### 285#       发表于 2024-4-10 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549239&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-10 17:40</a>
+就因为不是二十岁阿，你种死忠哪来的二十岁。
+
+但是真要二十岁的，人家会去电影院看日本动画，可人家不认 ...</blockquote>
+一下子被人加了10岁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

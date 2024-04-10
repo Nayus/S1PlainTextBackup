@@ -963,3 +963,15 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  主人ハム子  
+##### 210#       发表于 2024-4-10 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64540781&amp;ptid=2081261" target="_blank">Gysumitka 发表于 2024-4-9 22:41</a>
+这是本季最低分吗 看了一眼b站播放量连2w都没有</blockquote>
+一个是不好看，还有一个是官方自传不在番剧里，不关注的人压根就不知道。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

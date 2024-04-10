@@ -4989,3 +4989,19 @@ JFQM%UZ(_~W0`7{GX7VM0X7.jpg
 
 看起来今年的新曲风格路线在改变了是个好事，继续等下个月发什么曲子了
 
+
+*****
+
+####  holoan  
+##### 8625#         楼主| 发表于 2024-4-10 16:44
+
+<img src="https://img.saraba1st.com/forum/202404/10/164400trbsxcra5ri7qgig.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 16:44 上传
+
+？？？？？？？？昨天说过吗，456再连续，那不是连续4个月发布新曲？？？？？？
+

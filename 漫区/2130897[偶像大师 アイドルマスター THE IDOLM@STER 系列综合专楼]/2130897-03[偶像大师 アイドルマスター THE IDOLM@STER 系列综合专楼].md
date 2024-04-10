@@ -2313,3 +2313,62 @@ polygon就是纯粹的菜+白皮香蕉人思维
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rgauss  
+##### 3185#       发表于 2024-4-10 18:08
+
+得丝袜得的我头疼
+
+*****
+
+####  Anatoly  
+##### 3186#       发表于 2024-4-10 18:09
+
+<img src="https://img.saraba1st.com/forum/202404/10/180845rvnn1hvfzszm8508.jpg" referrerpolicy="no-referrer">
+
+<strong>80e91a66-fb55-418c-8d7a-b74f8a0c4101.jpg</strong> (104.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 18:08 上传
+
+这建模看着emm……真是充满智慧的眼神
+但这次的歌居然好像还能听？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 3187#       发表于 2024-4-10 18:09
+
+制作人（sensei）
+
+*****
+
+####  rgauss  
+##### 3188#       发表于 2024-4-10 18:12
+
+千奈？china!
+
+
+*****
+
+####  安广多惠子  
+##### 3189#       发表于 2024-4-10 18:16
+
+我想起来了...我一直是sensei啊！(
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Seeley  
+##### 3190#       发表于 2024-4-10 18:17
+
+还真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下拆妮子了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

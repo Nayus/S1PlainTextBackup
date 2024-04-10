@@ -2506,3 +2506,41 @@ z高达不是被版权炮弄没的吗？原来其他平台也没了？
 
 —— 来自 samsung SM-S9210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  11116等  
+##### 216#       发表于 2024-4-10 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547360&amp;ptid=2178694" target="_blank">可乐姜饼 发表于 2024-4-10 14:56</a>
+不孝子是kb分子，审核过不了一点。怎么还可能引进国内。
+
+—— 来自 samsung SM-S9210, Android 14上的 S1N ...</blockquote>
+电影节上过，小说国内好像也过审核了，所以感觉可以期待一手<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  Znesmoc  
+##### 217#       发表于 2024-4-10 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547401&amp;ptid=2178694" target="_blank">11116等 发表于 2024-4-10 14:58</a>
+电影节上过，小说国内好像也过审核了，所以感觉可以期待一手
+
+—— 来自 OnePlus PGKM10, Android ...</blockquote>
+电影节的还是无画面修改版呢，不能单拿这个来套<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古怪山庄士大夫  
+##### 218#       发表于 2024-4-10 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547360&amp;ptid=2178694" target="_blank">可乐姜饼 发表于 2024-4-10 14:56</a>
+
+不孝子是kb分子，审核过不了一点。怎么还可能引进国内。
+
+—— 来自 samsung SM-S9210, Android 14上的 S1N ...</blockquote>
+b站现在还有，就是和谐了琪琪的一些画面<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

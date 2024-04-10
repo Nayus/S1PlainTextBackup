@@ -43,3 +43,16 @@
 
 还是正常走流程？
 
+
+*****
+
+####  洛克萨斯  
+##### 17871#       发表于 2024-4-11 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64554016&amp;ptid=1158205" target="_blank">adretyu67. 发表于 2024-4-11 01:54</a>
+
+很多年没进高难了。
+
+现在救援里打牢法锁伤的黑翼是怎么处理的？？？</blockquote>
+超法现在一般都可以自己solo，锁定打本体就行，一般放野也是都会打本体不打翅膀的，fa放着一会就能收菜
+

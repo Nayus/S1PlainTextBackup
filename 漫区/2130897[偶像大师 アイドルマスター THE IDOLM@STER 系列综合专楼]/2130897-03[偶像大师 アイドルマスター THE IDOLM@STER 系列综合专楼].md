@@ -2483,3 +2483,11 @@ polygon就是纯粹的菜+白皮香蕉人思维
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  格雷殿下  
+##### 3204#       发表于 2024-4-11 01:57
+
+新的这个神秘值这么高吗
+

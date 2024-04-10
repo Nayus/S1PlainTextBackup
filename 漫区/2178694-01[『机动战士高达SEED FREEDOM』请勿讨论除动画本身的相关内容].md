@@ -2922,3 +2922,43 @@ b站特供版甚至不是剪裁画面，而是同场景换个角度重画的
 想多了，日本现在四十多保守估计下映45亿上下，换算成人民币差不多是2亿多，中国到现在好像引进的日本动 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">日本动画电影在国内市场有29部破1亿，14部破2亿
 
+
+*****
+
+####  死难者23er  
+##### 256#       发表于 2024-4-10 16:59
+
+<blockquote>a317216007 发表于 2024-4-10 16:54
+《铃芽之旅》（2023/4）6.2亿、《你的名字。》（2016）5.75亿、《哆啦A梦：伴我同行》（2015）5.29亿、《 ...</blockquote>
+看来我还是火星了，不过柯南哆啦A梦海贼王宫崎骏，高达 seed在他们面前还是弟弟
+
+*****
+
+####  SorroFrost  
+##### 257#       发表于 2024-4-10 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548688&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-10 16:51</a>
+
+想多了，日本现在四十多保守估计下映45亿上下，换算成人民币差不多是2亿多，中国到现在好像引进的日本动 ...</blockquote>
+你这话说的活在不知道多少个版本以前，光哆啦A梦和柯南系列剧场版就有稳定受众群能破亿了，现在引进商挑片反向和市场调研也比君名后那段盲目引进理智多了，种ft要是不暴言，一通宣传下来，票房努努力破一亿问题不大。
+
+
+*****
+
+####  Uruviel  
+##### 258#       发表于 2024-4-10 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548786&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-10 16:59</a>
+
+看来我还是火星了，不过柯南哆啦A梦海贼王宫崎骏，高达 seed在他们面前还是弟弟 ...</blockquote>
+更类似的是马上要上映的间谍过家家和排球剧场版，到时候看看票房对比咯<img src="https://static.saraba1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死难者23er  
+##### 259#       发表于 2024-4-10 17:07
+
+<blockquote>Uruviel 发表于 2024-4-10 17:03
+更类似的是马上要上映的间谍过家家和排球剧场版，到时候看看票房对比咯 ...</blockquote>
+这两个在日本一个快要破百一个好像是六十多，如果这两个在中国是破亿水平，那高达seed在中国撑死也是破亿水平还是比不了日本的
+

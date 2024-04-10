@@ -13545,3 +13545,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 机枪哥恶心在被压制之后反打瞄不准，本来几枪头就能打掉的，挨揍之后怎么也打不中
 
+
+*****
+
+####  dfbbymice  
+##### 2779#       发表于 2024-4-10 16:57
+
+那还是得看我机炮流，一炮轰硬直让机枪哥无法架盾，再跟两发直接带走<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

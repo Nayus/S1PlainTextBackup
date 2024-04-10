@@ -31,3 +31,15 @@
 —— 来自 Sony J9 ...</blockquote>
 感谢，明白了，10前撞到撞不动就是了。没龙武顶克属，不奢望进10<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 17870#       发表于 2024-4-11 01:54
+
+很多年没进高难了。
+
+现在救援里打牢法锁伤的黑翼是怎么处理的？？？
+
+还是正常走流程？
+

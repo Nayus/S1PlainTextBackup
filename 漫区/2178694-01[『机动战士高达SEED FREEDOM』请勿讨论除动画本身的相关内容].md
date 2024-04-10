@@ -1854,3 +1854,11 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 最大的问题是这件事情上了，台湾新闻，这个我不知道有没有影响</blockquote>
 4v新闻三天两头黑大陆的，鉴定为基操<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  SorroFrost  
+##### 142#       发表于 2024-4-10 09:56
+
+不用管4v那边，这事就看华策万代处理和上面给的结果是什么，等着吧。
+

@@ -2440,3 +2440,20 @@ polygon就是纯粹的菜+白皮香蕉人思维
 
 真的不喜欢desuwa这个口癖，二次元刻板印象拉满了
 
+
+*****
+
+####  仓鼠吃火锅  
+##### 3199#       发表于 2024-4-10 19:30
+
+？？？属性拉满，入学倒数第一
+
+*****
+
+####  rgauss  
+##### 3200#       发表于 2024-4-10 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64550411&amp;ptid=2130897" target="_blank">仓鼠吃火锅 发表于 2024-4-10 19:30</a>
+？？？属性拉满，入学倒数第一</blockquote>
+那个属性名称不是问号吗 万一财力呢
+

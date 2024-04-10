@@ -6742,3 +6742,56 @@ koyomi是我想的那个转天的koyomi吗<img src="https://p.sda1.dev/16/5c8fef
 
 这不是能约也还算比较会约吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能这次约了下次又约不了了吧
 
+
+*****
+
+####  结衣小比取  
+##### 15410#       发表于 2024-4-10 19:25
+
+邮件提示 任你购GO 仓库到货了，选哪种发货方式比较稳妥？（不求快）<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+日本邮政EMS
+
+国际小包（AIR）
+
+日本邮政船便
+
+萌特快
+
+*****
+
+####  基神的强袭自由  
+##### 15411#       发表于 2024-4-10 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64550360&amp;ptid=2159415" target="_blank">结衣小比取 发表于 2024-4-10 19:25</a>
+邮件提示 任你购GO 仓库到货了，选哪种发货方式比较稳妥？（不求快）
+
+日本邮政EMS</blockquote>
+EMS
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NODY  
+##### 15412#       发表于 2024-4-10 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64550360&amp;ptid=2159415" target="_blank">结衣小比取 发表于 2024-4-10 19:25</a>
+
+邮件提示 任你购GO 仓库到货了，选哪种发货方式比较稳妥？（不求快）
+
+日本邮政EMS</blockquote>
+ems最贵，但是最快也最安全
+
+邮政船便很便宜但是很久，有丢件风险
+
+另外两种没试过
+
+
+*****
+
+####  山药白薯  
+##### 15413#       发表于 2024-4-10 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了半天出了一堆灯 是不是该买个石头号
+

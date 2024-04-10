@@ -3233,3 +3233,29 @@ UC自己也是最后为了卖模型整了大佛。而且你找其他剧本也没
 但是真要二十岁的，人家会去电影院看日本动画，可人家不认 ...</blockquote>
 一下子被人加了10岁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SorroFrost  
+##### 286#       发表于 2024-4-10 19:32
+
+种新血液这块我觉着在高达圈子里算是不错的，毕竟入圈要么00要么种，UC算是进阶的，种的话题性和讨论度也不差。
+
+*****
+
+####  supermangunv4  
+##### 287#       发表于 2024-4-10 19:34
+
+我是独角兽入坑，基本补完宇宙世纪以后变成了独角兽黑
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  supermangunv4  
+##### 288#       发表于 2024-4-10 19:34
+
+我是独角兽入坑，基本补完宇宙世纪以后变成了独角兽黑
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

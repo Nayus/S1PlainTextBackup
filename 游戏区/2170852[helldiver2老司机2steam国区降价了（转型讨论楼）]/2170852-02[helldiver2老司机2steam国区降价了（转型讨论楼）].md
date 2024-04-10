@@ -13439,3 +13439,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">没有新债券根本没动力上线，我现在就要玩爆弹枪！
 
+
+*****
+
+####  赤井稻妻  
+##### 2767#       发表于 2024-4-10 08:57
+
+昨天打了局虫子，打到一半莫名全员掉线只剩我一个房主还在，还好有神器房主火喷加持，随便喷几枪就能烧死一片小虫子，现在好像很多人只知道火喷厉害，不知道有bug这回事，我当房主打新的机器人守图，四个人全拿火喷冲着人海撒火，出来一结算只有我杀了两三百个，其他仨人只杀的五六十
+

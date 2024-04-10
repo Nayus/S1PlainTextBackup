@@ -6359,3 +6359,18 @@ given.jpg
 你说爱音是主角也没问题，mygo这剧情主要是爱音在推和soyo在拉，其他人大部分时间其实比较被动 ...</blockquote>
 主要是她后来戏份明显变少，这片算是往群像发展的
 
+
+*****
+
+####  多克  
+##### 15371#       发表于 2024-4-10 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64542593&amp;ptid=2159415" target="_blank">超时空鉴定师 发表于 2024-4-10 07:47</a>
+
+主要是她后来戏份明显变少，这片算是往群像发展的</blockquote>
+往群像剧发展挺好的
+
+就怕往灯梦女方向发展，那就完了
+
+立希游戏形象有些糟糕，不知道之后还有没有机会补救一下
+

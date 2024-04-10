@@ -846,3 +846,16 @@ b站版本有阉割吗？</blockquote>
 
 魔女也太活泼了，不能留个传送坐标，白天去指定城市生活，晚上回塔睡觉嘛，在指定地点滞留总时间累计够1年就行
 
+
+*****
+
+####  xvi黑翼公  
+##### 69#       发表于 2024-4-10 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64551530&amp;ptid=2109771" target="_blank">[皆神孝介] 发表于 2024-4-10 21:09</a>
+
+男主太成熟了
+
+魔女也太活泼了，不能留个传送坐标，白天去指定城市生活，晚上回塔睡觉嘛，在指定地点滞留总 ...</blockquote>
+这位盆友你很机智，后面两个人闹分居就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

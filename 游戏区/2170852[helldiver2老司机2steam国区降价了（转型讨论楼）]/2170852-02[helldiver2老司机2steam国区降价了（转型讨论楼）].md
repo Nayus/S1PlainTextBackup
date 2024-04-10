@@ -13515,3 +13515,25 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 机枪哥确实有实力，躲掩体背后来一个或者侧面来一个真是压力大</blockquote>
 机枪哥那盾牌牛逼嘛，可以硬接火箭弹，也可以吃几发机炮。反而是摔炮效果最好。
 
+
+*****
+
+####  Aeons  
+##### 2776#       发表于 2024-4-10 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547969&amp;ptid=2170852" target="_blank">normalli 发表于 2024-4-10 15:45</a>
+没用过被削前的磁轨炮，我感觉这玩意挺好用啊，被削前得有多强</blockquote>
+打虫还是机器人？ 机器人影响确实不算大，虫的话，我觉得现在磁轨打虫完全没有意义
+
+*****
+
+####  风萧飒  
+##### 2777#       发表于 2024-4-10 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547969&amp;ptid=2170852" target="_blank">normalli 发表于 2024-4-10 15:45</a>
+没用过被削前的磁轨炮，我感觉这玩意挺好用啊，被削前得有多强</blockquote>
+磁轨炮没削的时候可以安全模式两发破强袭虫的腿甲，然后用主武器打半梭子就打死了。在强袭削了头部血量以后是没有次抛和类星体好用的。
+不过这玩意主要是还能打中甲单位，绿胖瞄头能一枪打死，属于功能全面的三号位支援武器。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

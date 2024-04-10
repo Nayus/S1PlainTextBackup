@@ -6827,3 +6827,11 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 哈哈，果然是没有那样的周年曲，梦醒了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 15418#       发表于 2024-4-10 23:16
+
+突然好奇mujica的第二套live装束会长啥样，到现在都只有一套吧。
+

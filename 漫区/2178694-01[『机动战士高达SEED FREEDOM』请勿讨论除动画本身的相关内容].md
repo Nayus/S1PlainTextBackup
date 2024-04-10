@@ -3006,3 +3006,83 @@ b站特供版甚至不是剪裁画面，而是同场景换个角度重画的
 你们也太看的起种了，上面那些哪个不是拖家带口的，真上了种剧场很尴尬的，同龄人知道你去看这个只会觉得奇 ...</blockquote>
 NT属于无论影评还是票房都拉中拉的神棍片，在神棍片里都算烂片<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，当初这玩意能拍出来只能说一角驴模型太赚钱和文豪当时器重程度上了宇宙
 
+
+*****
+
+####  ShyCrazydog  
+##### 264#       发表于 2024-4-10 17:18
+
+NT毫无参考价值好吧。NT一没情怀二上的晚三上前口碑就很烂<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyMS  
+##### 265#       发表于 2024-4-10 17:19
+
+真上了再说吧 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  死难者23er  
+##### 266#       发表于 2024-4-10 17:21
+
+阿斯兰这个角色真的是太有趣了，人物周边卖得超级好，可是机体就是带不动，一千瓶MG价格香水，几个小时就剩400不到了
+
+*****
+
+####  ShyCrazydog  
+##### 267#       发表于 2024-4-10 17:21
+
+而且为什么2024年了还会出现“同龄人觉得你去看会很奇怪”这种说法，敢问谭友芳龄<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">？就目前在你名和玲芽的冲击下，20岁左右的应该不会出现去电影院看日本动画片被同龄人非议的情况了吧
+
+
+*****
+
+####  雨翼free  
+##### 268#       发表于 2024-4-10 17:24
+
+几个靠谱舅舅都还没发话，让子弹再飞一会。真5月上六七千万水平还是有的，再高看宣传
+
+*****
+
+####  battleship64  
+##### 269#       发表于 2024-4-10 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548472&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-10 16:34</a>
+都三十大几四十的人了，还指望这些人进电影院看种吗，看看以前一起追番的小伙伴，
+
+“种剧场出啦”，</blockquote>
+别，当年我生生看到一帮早不打魔兽的老夫老妻去外滩边看那个血吼打卡
+种是真的上到7080后到9000全听过看过的高达了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  novyMS  
+##### 270#       发表于 2024-4-10 17:26
+
+微博还在
+
+<img src="https://img.saraba1st.com/forum/202404/10/172630vcbzekyrrc7c2uy2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-10-17-25-59-46.jpg</strong> (987.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 17:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  HATENA  
+##### 271#       发表于 2024-4-10 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549090&amp;ptid=2178694" target="_blank">novyMS 发表于 2024-4-10 17:26</a>
+
+微博还在</blockquote>
+就种自海报还是日文，估计挣扎中
+

@@ -2291,3 +2291,31 @@ hhhhh<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" refer
 
 结束了，安心等下载，没能在大屏幕看到还是很遗憾。
 
+
+*****
+
+####  yth329  
+##### 192#       发表于 2024-4-10 14:22
+
+理论上这种级别的展板真有问题贴条处理掉就是了，估计代孙还在努力回旋中
+
+*****
+
+####  Gysumitka  
+##### 193#       发表于 2024-4-10 14:24
+
+就看是彻底毙掉，还是冷处理了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 只能等
+
+*****
+
+####  wenze  
+##### 194#       发表于 2024-4-10 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64546730&amp;ptid=2178694" target="_blank">シャル 发表于 2024-4-10 14:09</a>
+那也是代哥危机控制太差
+
+要知道福田就喜欢喷粪，这次压不住了吧</blockquote>
+这波也是给代哥个教训了，对于想走中国市场的作品，危机公关和红线的事前提醒要做到位。当然我觉得这些举措对福田本人是无效的，他就是这么想的，也就这么说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

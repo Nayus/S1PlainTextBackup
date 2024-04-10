@@ -2252,3 +2252,42 @@ hhhhh<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" refer
 
 还好前天已经买了五一去香港的票，不然等今天又得涨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShyCrazydog  
+##### 188#       发表于 2024-4-10 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64546614&amp;ptid=2178694" target="_blank">wenze 发表于 2024-4-10 13:59</a>
+福田在乎这片能不能在大陆上映吗？感觉不太在乎的样子。不过某种意义上也算好似了
+
+—— 来自 S1Fun ...</blockquote>
+事实上从我的观察来看，代便很可能给ft安排了中国相关的宣传工作。看推好像他转发了泰国还是哪儿的首映见面会，没理由在本土之外最大的中国市场不怎么安排。只能说人算不如天算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 189#       发表于 2024-4-10 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64546717&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-4-10 14:08</a>
+
+事实上从我的观察来看，代便很可能给ft安排了中国相关的宣传工作。看推好像他转发了泰国还是哪儿的首映见 ...</blockquote>
+那也是代哥危机控制太差
+
+要知道福田就喜欢喷粪
+
+
+*****
+
+####  natmk  
+##### 190#       发表于 2024-4-10 14:13
+
+代哥现在派人把福田暗杀说不定还能上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  storm  
+##### 191#       发表于 2024-4-10 14:14
+
+结束了，安心等下载，没能在大屏幕看到还是很遗憾。
+

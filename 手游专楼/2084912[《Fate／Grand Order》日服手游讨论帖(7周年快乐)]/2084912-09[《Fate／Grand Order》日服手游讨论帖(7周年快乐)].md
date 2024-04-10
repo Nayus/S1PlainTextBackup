@@ -16,3 +16,11 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  alucardcz  
+##### 11984#       发表于 2024-4-10 19:14
+
+而且每次在长草的时候减半体力消耗。。真的很弱智
+

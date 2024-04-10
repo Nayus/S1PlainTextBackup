@@ -3288,3 +3288,47 @@ SD日本票房157.3亿日元（按当时的汇率8亿人民币左右，按现在
 
 为什么总有人幻想高达在国内前方会有多高，国内有多少路人会去看，绝大部分路人对高达的认知还是头号玩家里的那个变身。。。。。当然比20年前大部分人指着高达说是变形金刚的要好很多了。。。。
 
+
+*****
+
+####  少少小司  
+##### 292#       发表于 2024-4-10 21:30
+
+去电影院看了，总体感觉好爽，观众秃头中年男居多，其实路人也不少啊，有两个10岁不到的小孩一直在笑，比较影响观感。。。
+
+<img src="https://img.saraba1st.com/forum/202404/10/212656hhcis9jstsxcscg9.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240410_171846.jpg</strong> (970.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 21:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ナルバレック  
+##### 293#       发表于 2024-4-10 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64551443&amp;ptid=2178694" target="_blank">GUNDAMER 发表于 2024-4-10 21:01</a>
+
+为什么总有人幻想高达在国内前方会有多高，国内有多少路人会去看，绝大部分路人对高达的认知还是头号玩家里 ...</blockquote>
+其实是认为是变形金刚那批人步入老年了，粤语区在W时代就有人看高达了，大陆在SEED时代看的人也多起来了
+
+*****
+
+####  plok201  
+##### 294#       发表于 2024-4-10 21:32
+
+NT日本5亿日元票房，中国有850W以上rmb
+
+虽然那年NT大陆票房大家都笑，成了梗，但在NT那么多debuff的情况下对比日本那5亿还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  notqiao  
+##### 295#       发表于 2024-4-10 21:34
+
+代孙现在正到处公关 求删电影相关 现在能保住流媒体的TV就不错了
+

@@ -2602,3 +2602,37 @@ b站特供版甚至不是剪裁画面，而是同场景换个角度重画的
 
 我看这些舅舅党没一个是真的舅舅，都在蒙
 
+
+*****
+
+####  wenze  
+##### 225#       发表于 2024-4-10 15:26
+
+ 本帖最后由 wenze 于 2024-4-10 15:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547665&amp;ptid=2178694" target="_blank">UNISONIA 发表于 2024-4-10 15:20</a>
+至今也不明白为什么标题要翻译成复国【</blockquote>
+可能是翻译联想到作为词源的西班牙收复失地运动，也被叫复国运动，所以就改成复国了。本身这词在剧中也没个对应，不好翻。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  执信校友  
+##### 226#       发表于 2024-4-10 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547739&amp;ptid=2178694" target="_blank">wenze 发表于 2024-4-10 15:26</a>
+
+可能是翻译联想到作为词源的西班牙收复失地运动，也被叫复国运动，所以就改成复国了。本身这词在剧中也没 ...</blockquote>
+官方汉字“地球帰還”
+
+
+*****
+
+####  ナルバレック  
+##### 227#       发表于 2024-4-10 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547728&amp;ptid=2178694" target="_blank">csolfans 发表于 2024-4-10 15:25</a>
+
+而且这个时间段，物料应该也准备得七七八八了吧</blockquote>
+自由高达目前都还在维护呢，上海自由已经明确说了会在明年世博会高达馆大力宣传，和福冈牛东京独角兽一起，不过这么一想，没准就算拖到明年，万代也想让他播出来，到时候变成贺大阪世博会.jpg
+

@@ -2473,3 +2473,13 @@ polygon就是纯粹的菜+白皮香蕉人思维
 
 小羊都三轮了，搞不懂小高
 
+
+*****
+
+####  超法拉  
+##### 3203#       发表于 2024-4-10 20:58
+
+<img src="https://p.sda1.dev/16/7bad84a9926674ee05727bd04e61f7e8/Image_1712753513530.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

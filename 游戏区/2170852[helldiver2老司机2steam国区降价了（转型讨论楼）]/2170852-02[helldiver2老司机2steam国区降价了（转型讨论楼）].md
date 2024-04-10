@@ -13605,3 +13605,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 西线这阵势不如摆烂去打虫子了，当然新玩具上线之前上不了一点线。
 
+
+*****
+
+####  Mr.Hopp  
+##### 2785#       发表于 2024-4-10 20:57
+
+这任务打下了一个星球算吗？一定要保卫成功才算？
+

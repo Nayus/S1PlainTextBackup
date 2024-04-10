@@ -661,3 +661,11 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 
 反而美雪太太配的妹妹有种念稿的味道是我的错觉么
 
+
+*****
+
+####  gs2-d2up  
+##### 70#       发表于 2024-4-10 23:32
+
+油腻腻的上色，意义不明的分镜白瞎了原作的电影感，真人版电影反而比动画好是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+

@@ -9862,3 +9862,23 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 虽然不是非要抽金扭蛋，但是饮料券能不能少点啊，完全没用的东西
 
+
+*****
+
+####  carroy  
+##### 3956#       发表于 2024-4-10 22:51
+
+【【中字】2024斯普拉遁3官方世界锦标赛：观赛指南-哔哩哔哩】 [https://b23.tv/bs5yia1](https://b23.tv/bs5yia1)
+
+
+*****
+
+####  罗克萨斯  
+##### 3957#       发表于 2024-4-10 22:57
+
+买了个ESP32开发板，准备投稿<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+广场那些高精度图，大多都是用开发板实现的吧，手柄绘图难度太大了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

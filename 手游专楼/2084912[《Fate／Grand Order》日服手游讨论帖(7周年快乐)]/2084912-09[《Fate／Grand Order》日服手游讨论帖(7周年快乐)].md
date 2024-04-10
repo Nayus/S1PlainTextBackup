@@ -60,3 +60,15 @@
 先欧 再羡慕</blockquote>
 不如狗萌新的一发十连
 
+
+*****
+
+####  清河子  
+##### 11989#       发表于 2024-4-10 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64503077&amp;ptid=2084912" target="_blank">清河子 发表于 2024-4-6 20:28</a>
+没忍住抽了20连水泥，啥也没有躺平了</blockquote>
+又扔30连
+只有一只剑弗兰
+和坤打手.gif<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

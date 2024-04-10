@@ -13589,3 +13589,19 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 2024-4-10 20:12 上传
 
+
+*****
+
+####  白昼梦  
+##### 2783#       发表于 2024-4-10 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在每次想浪都被机枪哥一梭子打死
+
+
+*****
+
+####  runningch  
+##### 2784#       发表于 2024-4-10 20:22
+
+西线这阵势不如摆烂去打虫子了，当然新玩具上线之前上不了一点线。
+

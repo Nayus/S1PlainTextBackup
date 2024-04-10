@@ -13497,3 +13497,21 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 机枪哥确实有实力，躲掩体背后来一个或者侧面来一个真是压力大
 
+
+*****
+
+####  normalli  
+##### 2774#       发表于 2024-4-10 15:45
+
+没用过被削前的磁轨炮，我感觉这玩意挺好用啊，被削前得有多强
+
+*****
+
+####  半分宅  
+##### 2775#       发表于 2024-4-10 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547827&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-10 03:34</a>
+
+机枪哥确实有实力，躲掩体背后来一个或者侧面来一个真是压力大</blockquote>
+机枪哥那盾牌牛逼嘛，可以硬接火箭弹，也可以吃几发机炮。反而是摔炮效果最好。
+

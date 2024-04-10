@@ -1881,3 +1881,29 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 
 最下面那条
 
+
+*****
+
+####  Gysumitka  
+##### 144#       发表于 2024-4-10 10:35
+
+居然还能上桌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  supermangunv4  
+##### 145#       发表于 2024-4-10 10:36
+
+代哥还是牛逼
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  馄饨大陆  
+##### 146#       发表于 2024-4-10 10:38
+
+牛逼了
+
+—— 来自 OPPO PGW110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

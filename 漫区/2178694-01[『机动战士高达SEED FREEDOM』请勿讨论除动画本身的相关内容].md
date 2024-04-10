@@ -2401,3 +2401,52 @@ z高达不是被版权炮弄没的吗？原来其他平台也没了？
 —— 来自 S1Fun</blockquote>
 正版Z高达从来没见过
 
+
+*****
+
+####  supermangunv4  
+##### 204#       发表于 2024-4-10 14:36
+
+乐
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  死难者23er  
+##### 205#       发表于 2024-4-10 14:38
+
+这次无论怎么样，五月份应该是上不聊了，等到B D出来之后，票房估计就更低了
+
+*****
+
+####  wenze  
+##### 206#       发表于 2024-4-10 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547088&amp;ptid=2178694" target="_blank">秘密图纸 发表于 2024-4-10 14:35</a>
+盗版前几年没得，而正版Z高达从来没在哪个平台上见过</blockquote>
+老高达都没版权的吧，包括b也是只买了2000年后的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秘密图纸  
+##### 207#       发表于 2024-4-10 14:42
+
+ 本帖最后由 秘密图纸 于 2024-4-10 14:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547137&amp;ptid=2178694" target="_blank">wenze 发表于 2024-4-10 14:38</a>
+
+老高达都没版权的吧，包括b也是只买了2000年后的
+
+—— 来自 S1Fun</blockquote>
+高达的主要版权在爱奇艺手上，连V高达都有，我第一次看到V高达像样的字幕还是在爱奇艺上，不过最近好像也搜不到了，还好民间也推出了一版新字幕
+
+*****
+
+####  notqiao  
+##### 208#       发表于 2024-4-10 14:46
+
+代孙实在不行就紧急替换成哈萨维算了 顺便把立像一起换了 不然真成🤡了
+

@@ -1907,3 +1907,34 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 
 —— 来自 OPPO PGW110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  1096beam  
+##### 147#       发表于 2024-4-10 10:42
+
+说实话不在正片里塞货的话基本都能过的吧，现在该畅想下正片的河蟹会是特供画面还是简单粗暴放大剪掉了
+
+*****
+
+####  ShyCrazydog  
+##### 148#       发表于 2024-4-10 10:42
+
+说实话我是支持加衣服特供的。nmd那些裸露画面看起来真的很怪
+
+*****
+
+####  novyDC  
+##### 149#       发表于 2024-4-10 10:46
+
+上映还是要去看一下的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  natmk  
+##### 150#       发表于 2024-4-10 10:46
+
+居然过了但是又不想给福田这b送钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

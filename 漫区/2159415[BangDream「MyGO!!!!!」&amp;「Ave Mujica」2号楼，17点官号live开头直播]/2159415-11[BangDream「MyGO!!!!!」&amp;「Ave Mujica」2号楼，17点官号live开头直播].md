@@ -6400,3 +6400,35 @@ given.jpg
 
 倒是mujica的部分除了白月光外基本没看到，估计mujica是参考了其他作品，比如之前考据的轻拍
 
+
+*****
+
+####  想喝一点点  
+##### 15374#       发表于 2024-4-10 11:02
+
+没石头的老东西已经做好被冲到10w位的准备了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15375#       发表于 2024-4-10 11:05
+
+2nd视觉图来了
+
+<img src="https://img.saraba1st.com/forum/202404/10/110530j3sggigu9gfj5g8x.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQsd8g-hd62ZiT3cSjn-rs.jpg</strong> (168.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 11:05 上传
+
+*****
+
+####  滑稽Captain  
+##### 15376#       发表于 2024-4-10 11:08
+
+彼女達が探し求めるのは”光”
+
+感觉动画开播前从live的小剧场剧情就可以猜一套动画发展了（
+

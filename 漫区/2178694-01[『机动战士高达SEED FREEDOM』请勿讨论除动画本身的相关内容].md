@@ -1956,3 +1956,20 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 
 合作协议 白纸黑字 不能抵赖
 
+
+*****
+
+####  kisstv22  
+##### 153#       发表于 2024-4-10 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  主人ハム子  
+##### 154#       发表于 2024-4-10 11:07
+
+ 怎么叫高达了，不叫敢达了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

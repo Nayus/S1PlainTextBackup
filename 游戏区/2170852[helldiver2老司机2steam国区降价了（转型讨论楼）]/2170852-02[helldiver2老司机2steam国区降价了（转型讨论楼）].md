@@ -13481,3 +13481,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 拿rpg的小兵是不是数量调多了，昨天打了2把被爆射<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 2772#       发表于 2024-4-10 15:07
+
+盾牌机枪哥的命中率是越来越高了，火箭弹bug修之前感觉他们很菜，是不是因为不会被秒，能在机枪面前暴露的时间变长了导致的，现在一炮炸不了5分之一血的火箭弹也就打个控制，真输出还得是盾牌机枪哥
+

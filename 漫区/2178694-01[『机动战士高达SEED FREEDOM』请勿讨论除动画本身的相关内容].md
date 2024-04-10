@@ -2544,3 +2544,14 @@ z高达不是被版权炮弄没的吗？原来其他平台也没了？
 —— 来自 samsung SM-S9210, Android 14上的 S1N ...</blockquote>
 b站现在还有，就是和谐了琪琪的一些画面<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 219#       发表于 2024-4-10 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547240&amp;ptid=2178694" target="_blank">notqiao 发表于 2024-4-10 14:46</a>
+
+代孙实在不行就紧急替换成哈萨维算了 顺便把立像一起换了 不然真成🤡了</blockquote>
+自由在中国类似于迪迦在中国，除了广东香港那边W也火过外，没有其他更合适的了，不可能换的，明年大版世博会高达馆都要宣传进去的
+

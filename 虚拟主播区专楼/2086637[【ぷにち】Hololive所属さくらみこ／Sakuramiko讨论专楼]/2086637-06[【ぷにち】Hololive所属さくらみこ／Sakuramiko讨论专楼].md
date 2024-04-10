@@ -4959,3 +4959,33 @@ JFQM%UZ(_~W0`7{GX7VM0X7.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/09/234447jp7x9e41shqqq79h.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8624#         楼主| 发表于 2024-4-10 13:15
+
+[https://hakamad.fanbox.cc/posts/7747050](https://hakamad.fanbox.cc/posts/7747050)
+
+曲作者兼MV/插画制作者简要的制作感想
+
+<img src="https://img.saraba1st.com/forum/202404/10/130225tyzs5xfzqu15zsyb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202404/10/130307y38qqqc2q78zuuu2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 13:03 上传
+
+总的来说，曲子本身评价先不说，MV确实找对人了，400枚插画的数量确实不是盖的，光每次从MV里找点新neta就能成为日常的一种乐趣了，跟以前的曲子不一样又带来了点新的感觉
+
+看起来今年的新曲风格路线在改变了是个好事，继续等下个月发什么曲子了
+

@@ -13613,3 +13613,13 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 这任务打下了一个星球算吗？一定要保卫成功才算？
 
+
+*****
+
+####  雪地白狼  
+##### 2786#       发表于 2024-4-10 23:47
+
+N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接秒了。
+
+四个人平均三十级没打过
+

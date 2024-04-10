@@ -52,3 +52,14 @@
 
 结熊初次约会是在结那19岁最后一天。看来二期生比我想象中还要早
 
+
+*****
+
+####  starring  
+##### 19934#       发表于 2024-4-10 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64552938&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-4-10 23:22</a>
+
+结熊初次约会是在结那19岁最后一天。看来二期生比我想象中还要早</blockquote>
+更加证明了二三期早就决定好，搞成现在这个样子完全是运营乱来
+

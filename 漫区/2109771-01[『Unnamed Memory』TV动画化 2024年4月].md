@@ -790,3 +790,11 @@ Screenshot_20240410_092739_tv.danmaku.bili.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/10/093224zgtt63yjy7q00btt.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Zendless  
+##### 63#       发表于 2024-4-10 10:47
+
+b站版本有阉割吗？
+

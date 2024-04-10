@@ -3146,3 +3146,41 @@ NT属于无论影评还是票房都拉中拉的神棍片，在神棍片里都算
 “种剧场出啦”，</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">别骂了别骂了
 
+
+*****
+
+####  Uruviel  
+##### 278#       发表于 2024-4-10 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549307&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-10 17:47</a>
+
+灌篮高手在中国是多少同样的情怀，作品同样的粉丝向这两个应该最能对比</blockquote>
+种有正式引进在电视上播过吗？跟SD怎么比。
+
+*****
+
+####  死难者23er  
+##### 279#       发表于 2024-4-10 17:59
+
+虽然说福田很有趣的，这次香水也挺有趣的，没见过这么撸羊毛的官方又给阿斯兰和卡嘉莉追加了1000瓶
+
+*****
+
+####  死难者23er  
+##### 280#       发表于 2024-4-10 18:00
+
+<blockquote>Uruviel 发表于 2024-4-10 17:58
+种有正式引进在电视上播过吗？跟SD怎么比。</blockquote>
+那么不就得了吗？如果SD最后都破不了亿，那高达Seed更没有可能了
+
+
+*****
+
+####  Uruviel  
+##### 281#       发表于 2024-4-10 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549437&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-10 18:00</a>
+
+那么不就得了吗？如果SD最后都破不了亿，那高达Seed更没有可能了</blockquote>
+……SD国内票房6.6e
+

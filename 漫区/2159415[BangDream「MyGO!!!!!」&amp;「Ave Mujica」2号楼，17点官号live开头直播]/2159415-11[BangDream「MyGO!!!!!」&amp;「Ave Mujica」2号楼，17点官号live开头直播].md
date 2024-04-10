@@ -6683,3 +6683,21 @@ koyomi是我想的那个转天的koyomi吗<img src="https://p.sda1.dev/16/5c8fef
 
 抽了一百三十九发还没有soyo<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 15404#       发表于 2024-4-10 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549370&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-10 17:52</a>
+
+2nd视觉图原来是约稿，我说怎么感觉画风比之前的好看</blockquote>
+以后多约点<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 15405#       发表于 2024-4-10 18:03
+
+以后还是约稿吧
+

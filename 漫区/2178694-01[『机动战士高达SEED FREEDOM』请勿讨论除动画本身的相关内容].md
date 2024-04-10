@@ -2764,3 +2764,61 @@ b站特供版甚至不是剪裁画面，而是同场景换个角度重画的
 
 把ft从制作人里摘了不就行了
 
+
+*****
+
+####  we89623  
+##### 241#       发表于 2024-4-10 16:18
+
+讲道理seed剧场版大陆的票房是最有可能超本土的，除了大陆，洋佬根本不喜欢种系，亚洲其他地区体量又太小。万代这次损失挺大的。不过该<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 242#       发表于 2024-4-10 16:19
+
+只能说建议11区企业以后直接通过协议接管有名人士的推特，免得遭受经济损失
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 243#       发表于 2024-4-10 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548240&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-10 16:11</a>
+
+高达这东西现在有自身性的困境，高达坏蛋们十几年来使各种招其实没找到什么新方向，海外拓展在他们眼里是个 ...</blockquote>
+水星作为纯流量路线在日本流量上算是玩的很明白了，也不算毫无新方向吧
+
+*****
+
+####  桥田至  
+##### 244#       发表于 2024-4-10 16:23
+
+剧场版制作消息还是在我们这先公布，可见代哥这次重视程度明显高于本土，最后被ft搅黄了，笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  线程召唤使  
+##### 245#       发表于 2024-4-10 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548296&amp;ptid=2178694" target="_blank">we89623 发表于 2024-4-10 16:18</a>
+
+讲道理seed剧场版大陆的票房是最有可能超本土的，除了大陆，洋佬根本不喜欢种系，亚洲其他地区体量又太小。 ...</blockquote>
+不可能的，其他数据都不用，你问问狗叔把S1这二十年种相关帖子都统计一遍看看有几个活跃ID。
+
+阿B小朋友更不用说了，你说NT人家回你没事干嘛骂我脑瘫。
+
+*****
+
+####  we89623  
+##### 246#       发表于 2024-4-10 16:25
+
+ 本帖最后由 we89623 于 2024-4-10 16:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548359&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-10 16:24</a>
+不可能的，其他数据都不用，你问问狗叔把S1这二十年种相关帖子都统计一遍看看有几个活跃ID。
+
+阿B小朋友 ...</blockquote>
+就算不超本土也是第二名，而且跟第三名拉开明显距离的那种。而且看泥潭有啥用，不在泥潭发言了不等于不进电影院了。真当30岁以上不看电影了吗。
+

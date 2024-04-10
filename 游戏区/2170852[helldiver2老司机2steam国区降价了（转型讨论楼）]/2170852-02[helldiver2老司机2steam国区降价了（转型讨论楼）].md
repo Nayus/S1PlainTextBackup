@@ -13537,3 +13537,11 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 2778#       发表于 2024-4-10 16:22
+
+机枪哥恶心在被压制之后反打瞄不准，本来几枪头就能打掉的，挨揍之后怎么也打不中
+

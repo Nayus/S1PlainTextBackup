@@ -651,3 +651,13 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 
 想听美雪太太又不想听男主，好纠结啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arcard  
+##### 69#       发表于 2024-4-10 17:29
+
+男主配的是很怪，但考虑到原作就是个怪咖人设，到没那么强烈的反感
+
+反而美雪太太配的妹妹有种念稿的味道是我的错觉么
+

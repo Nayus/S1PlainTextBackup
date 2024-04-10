@@ -13553,3 +13553,14 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 
 那还是得看我机炮流，一炮轰硬直让机枪哥无法架盾，再跟两发直接带走<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 2780#       发表于 2024-4-10 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547969&amp;ptid=2170852" target="_blank">normalli 发表于 2024-4-10 15:45</a>
+
+没用过被削前的磁轨炮，我感觉这玩意挺好用啊，被削前得有多强</blockquote>
+磁轨炮削弱前后打机器人变化不大，主要是削弱前可以直接硬打机枪哥的盾
+

@@ -3086,3 +3086,31 @@ NT毫无参考价值好吧。NT一没情怀二上的晚三上前口碑就很烂<
 微博还在</blockquote>
 就种自海报还是日文，估计挣扎中
 
+
+*****
+
+####  supermangunv4  
+##### 272#       发表于 2024-4-10 17:28
+
+到底能不能上啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  a317216007  
+##### 273#       发表于 2024-4-10 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连中文物料都没有下发去，这代孙感觉都使不上劲儿啊
+
+
+*****
+
+####  线程召唤使  
+##### 274#       发表于 2024-4-10 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548956&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-4-10 17:14</a>
+
+NT属于无论影评还是票房都拉中拉的神棍片，在神棍片里都算烂片，当初这玩意能拍出来只能说一角驴模 ...</blockquote>
+所以这就是另一个问题，你们都说有UC2，那到时候谁说的算，我认为大文豪担不起，原作者是很重要，但是一角驴从头到尾，他真的不是贡献最大的那个人。再组个局弄UC2，STAFF里谁是头，高达坏蛋们至少要弄懂谁当team leader，但是我看他们似乎不太懂的样子。
+

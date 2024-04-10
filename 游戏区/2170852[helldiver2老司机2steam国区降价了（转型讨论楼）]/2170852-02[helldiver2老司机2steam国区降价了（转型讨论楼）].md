@@ -13623,3 +13623,23 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 四个人平均三十级没打过
 
+
+*****
+
+####  Launce  
+##### 2787#       发表于 2024-4-10 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64553144&amp;ptid=2170852" target="_blank">雪地白狼 发表于 2024-4-10 23:47</a>
+
+N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接秒了。
+
+四个人平均三十级没打过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多找掩体穿插掩护运动就好了
+
+*****
+
+####  ddwhzh  
+##### 2788#       发表于 2024-4-11 00:01
+
+感觉机器人变种还是少了，难15至少来个全包坦克，全包侦查者，火箭大盾哥
+

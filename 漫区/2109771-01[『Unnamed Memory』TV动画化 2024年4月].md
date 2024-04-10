@@ -806,3 +806,14 @@ b站版本有阉割吗？
 
 漫画看了几话，变推理漫了？
 
+
+*****
+
+####  皆杀的田中  
+##### 65#       发表于 2024-4-10 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64544470&amp;ptid=2109771" target="_blank">Zendless 发表于 2024-4-10 10:47</a>
+
+b站版本有阉割吗？</blockquote>
+有至少一处，就是b站版本16分25秒，有夫之妇那句后边，女主还说了如果选中老人或小孩的情况。b站把这两句删了。
+

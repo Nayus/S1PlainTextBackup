@@ -13564,3 +13564,12 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 没用过被削前的磁轨炮，我感觉这玩意挺好用啊，被削前得有多强</blockquote>
 磁轨炮削弱前后打机器人变化不大，主要是削弱前可以直接硬打机枪哥的盾
 
+
+*****
+
+####  smdzh2  
+##### 2781#       发表于 2024-4-10 18:53
+
+机枪哥侧面过来一梭子秒我重甲<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+打机枪哥还是绕侧后扔触雷省心，拉开距离就呼叫战备，千万不要想不开对枪
+

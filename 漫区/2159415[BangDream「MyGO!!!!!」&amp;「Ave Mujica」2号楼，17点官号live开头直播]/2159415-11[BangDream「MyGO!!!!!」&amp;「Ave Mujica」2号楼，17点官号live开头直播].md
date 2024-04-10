@@ -6719,3 +6719,26 @@ koyomi是我想的那个转天的koyomi吗<img src="https://p.sda1.dev/16/5c8fef
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">最后一场巡演了 还会有下一次吗
 
+
+*****
+
+####  nebulanoby  
+##### 15408#       发表于 2024-4-10 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549413&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-4-10 17:58</a>
+抽了一百三十九发还没有soyo</blockquote>
+现在抽了99发，狗团其他人都是3星，只有soyo说了三次“你是来吵架的吗”
+
+剩下一发等我打一局刷点免费星石来个单抽触发保底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 15409#       发表于 2024-4-10 18:53
+
+ 本帖最后由 Aendst 于 2024-4-10 18:55 编辑 
+
+这不是能约也还算比较会约吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能这次约了下次又约不了了吧
+

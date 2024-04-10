@@ -86,3 +86,16 @@
 
 不懂幕末的看剧情莫名其妙，什么大老老中都是啥，然后发现这游戏里有词典<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不会武术  
+##### 2971#       发表于 2024-4-11 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64540756&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-4-9 22:39</a>
+不懂幕末的看剧情莫名其妙，什么大老老中都是啥，然后发现这游戏里有词典 ...</blockquote>
+银魂前传吧
+久坂玄瑞是银的原型
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

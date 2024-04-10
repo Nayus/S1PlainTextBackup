@@ -2189,3 +2189,15 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 长见识了，还真有人仇恨P仇恨到一口一个“P畜”的。我本来以为爱磕cp的顶多对pl无感的啊。看来还是我社群逛少了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 3176#       发表于 2024-4-10 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64541244&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-9 23:36</a>
+还是少逛微博了（</blockquote>
+微博本来就是粪坑，还不如看qq频道
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

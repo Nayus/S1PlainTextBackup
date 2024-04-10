@@ -13466,3 +13466,18 @@ The Ministry of Truth has confirmation that a rogue item called the "catalog exp
 昨天打了局虫子，打到一半莫名全员掉线只剩我一个房主还在，还好有神器房主火喷加持，随便喷几枪就能烧死一 ...</blockquote>
 是有bug，昨天和队友闪电战虫海里做兄弟，出去一看有俩人击杀只有20+
 
+
+*****
+
+####  FLZB  
+##### 2770#       发表于 2024-4-10 14:48
+
+机器人还好吧，精度感觉跟原来没什么区别。我的体感是，除了本身固定有一个比较低的命中率以外，你暴露在机器人火力下的时间越长它的命中率就越高。所以游戏里那堆整蛊tips唯有机器人那条“找掩体，要勇敢”我觉得真不是开玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 2771#         楼主| 发表于 2024-4-10 14:50
+
+拿rpg的小兵是不是数量调多了，昨天打了2把被爆射<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

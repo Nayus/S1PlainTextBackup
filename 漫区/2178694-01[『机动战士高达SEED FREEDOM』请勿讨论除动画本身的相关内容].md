@@ -2450,3 +2450,59 @@ z高达不是被版权炮弄没的吗？原来其他平台也没了？
 
 代孙实在不行就紧急替换成哈萨维算了 顺便把立像一起换了 不然真成🤡了
 
+
+*****
+
+####  冰风血羽  
+##### 209#       发表于 2024-4-10 14:50
+
+打完本出来一看群，乐了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  萌萌人_  
+##### 210#       发表于 2024-4-10 14:51
+
+过于爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想系同盟  
+##### 211#       发表于 2024-4-10 14:51
+
+哈撒韦不管是网盘版还是流媒体都上多久了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11116等  
+##### 212#       发表于 2024-4-10 14:52
+
+我只希望不要影响到后续高达电影尤其是哈萨维系列的引进
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  L.L  
+##### 213#       发表于 2024-4-10 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆笑了，代哥喜亏。
+
+*****
+
+####  storm  
+##### 214#       发表于 2024-4-10 14:54
+
+要不然重映逆袭的夏亚得了
+
+*****
+
+####  可乐姜饼  
+##### 215#       发表于 2024-4-10 14:56
+
+不孝子是kb分子，审核过不了一点。怎么还可能引进国内。
+
+—— 来自 samsung SM-S9210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

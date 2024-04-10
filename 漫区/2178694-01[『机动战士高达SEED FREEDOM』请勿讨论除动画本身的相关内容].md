@@ -3259,3 +3259,14 @@ UC自己也是最后为了卖模型整了大佛。而且你找其他剧本也没
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  duo_wolf  
+##### 289#       发表于 2024-4-10 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549937&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-10 18:51</a>
+
+居然真的超过日本票房了，看来高达 seed也有可能</blockquote>
+SD日本票房157.3亿日元（按当时的汇率8亿人民币左右，按现在的也有约7.5亿人民币），你这是一点都不知道，每一句都是张嘴就来啊
+

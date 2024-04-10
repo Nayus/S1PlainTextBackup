@@ -2457,3 +2457,11 @@ polygon就是纯粹的菜+白皮香蕉人思维
 ？？？属性拉满，入学倒数第一</blockquote>
 那个属性名称不是问号吗 万一财力呢
 
+
+*****
+
+####  Srchy  
+##### 3201#       发表于 2024-4-10 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">走后门就为了进个中专再找个大专带
+

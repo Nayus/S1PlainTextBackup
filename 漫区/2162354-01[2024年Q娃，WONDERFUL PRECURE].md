@@ -178,3 +178,19 @@ mayu明显cpu大师，拿沾自己气味最多的帽子送给猫，猫枕着帽�
 遇到小雪前面还是不错 ...</blockquote>
 我感觉是对应前面突然跑起来把彩羽拉倒的那段，而不是背摔
 
+
+*****
+
+####  犬飼いろは  
+##### 1292#       发表于 2024-4-10 08:14
+
+前 4 张：月刊アニメージュ 2024年5月号
+
+后 2 张：アニメディア 2024年5月号
+<img src="https://p.sda1.dev/16/571dcfcf40f27697307247bcc2a5af86/Animage-202405-082.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/78d37291870451a42e2fa382c972de04/Animage-202405-083.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/1f1539283a432c86e9b65ba37fb5d960/Animage-202405-084.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/12d1e8258da6cb76c0f2fb1e592405f3/Animage-202405-085.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/c3659b6607dce40d9fd59fd85388752a/Animedia-202405-080.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/cf65e3387139d6abbfbd0a7f5fbc702a/Animedia-202405-081.jpg" referrerpolicy="no-referrer">
+

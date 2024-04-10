@@ -975,3 +975,32 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  collincollin  
+##### 211#       发表于 2024-4-10 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64540781&amp;ptid=2081261" target="_blank">Gysumitka 发表于 2024-4-9 22:41</a>
+
+这是本季最低分吗 看了一眼b站播放量连2w都没有</blockquote>
+O了，隔壁竞轮比这个烂得多
+
+*****
+
+####  6030sylar  
+##### 212#       发表于 2024-4-10 13:07
+
+隔壁竞轮好歹有美少女洗澡
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cqc1021  
+##### 213#       发表于 2024-4-10 13:09
+
+本来声优阵容加上ED我还挺感兴趣的，结果KR端出这么一坨
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

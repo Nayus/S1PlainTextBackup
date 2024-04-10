@@ -2866,3 +2866,59 @@ b站特供版甚至不是剪裁画面，而是同场景换个角度重画的
 
 “你现在还对这些东西感兴趣呀，挺好的”
 
+
+*****
+
+####  死难者23er  
+##### 251#       发表于 2024-4-10 16:51
+
+<blockquote>we89623 发表于 2024-4-10 16:18
+讲道理seed剧场版大陆的票房是最有可能超本土的，除了大陆，洋佬根本不喜欢种系，亚洲其他地区体量又太小。 ...</blockquote>
+想多了，日本现在四十多保守估计下映45亿上下，换算成人民币差不多是2亿多，中国到现在好像引进的日本动画电影破亿都非常少吧
+
+
+*****
+
+####  线程召唤使  
+##### 252#       发表于 2024-4-10 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548342&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-4-10 16:23</a>
+
+水星作为纯流量路线在日本流量上算是玩的很明白了，也不算毫无新方向吧 ...</blockquote>
+几个方面的问题吧，你就说水星魔女，TV，好，成绩不错。
+
+但是呢，现在不明白TV这块会怎么弄，流量不等于低制作，看不出万代有在TV上真正发力的意思。
+
+但若再来一部水星魔女这样的作品，和外面比流量，比不过现在那一两个真正的流量之王；对高达自身来说，又起不到什么重要的作用。
+
+*****
+
+####  cqc1021  
+##### 253#       发表于 2024-4-10 16:54
+
+资瓷代哥狠狠拷打福田<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a317216007  
+##### 254#       发表于 2024-4-10 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548688&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-10 16:51</a>
+
+想多了，日本现在四十多保守估计下映45亿上下，换算成人民币差不多是2亿多，中国到现在好像引进的日本动 ...</blockquote>
+《铃芽之旅》（2023/4）6.2亿、《你的名字。》（2016）5.75亿、《哆啦A梦：伴我同行》（2015）5.29亿、《千与千寻》（2019）4.88亿、《天气之子》（2019）2.88亿、《哆啦A梦：伴我同行2》（2021）2.77亿、《名侦探柯南：绀青之拳》（2019）2.31亿、《名侦探柯南：绯色的子弹》（2021）2.16亿、《哆啦A梦：大雄的金银岛》（2018）2.09亿、《航海王：狂热行动》（2019）2.04亿 
+
+随便搜了搜
+
+*****
+
+####  Alphawalker  
+##### 255#       发表于 2024-4-10 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548688&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-10 16:51</a>
+
+想多了，日本现在四十多保守估计下映45亿上下，换算成人民币差不多是2亿多，中国到现在好像引进的日本动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">日本动画电影在国内市场有29部破1亿，14部破2亿
+

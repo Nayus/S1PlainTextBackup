@@ -859,3 +859,17 @@ b站版本有阉割吗？</blockquote>
 魔女也太活泼了，不能留个传送坐标，白天去指定城市生活，晚上回塔睡觉嘛，在指定地点滞留总 ...</blockquote>
 这位盆友你很机智，后面两个人闹分居就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 70#         楼主| 发表于 2024-4-10 22:24
+
+<img src="https://p.sda1.dev/16/9d029c5ff1f337fa223cb24a4e2f6001/20240410_222151.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/miz2215th/status/1777676984434446495](https://twitter.com/miz2215th/status/1777676984434446495)
+
+今日は1話の放送日！楽しみです！
+<img src="https://p.sda1.dev/16/6656ba5130150801255b0bf91868d568/20240410_222129.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/10ab53112603ca74d15b923bf24a067c/20240410_222025.jpg" referrerpolicy="no-referrer">
+

@@ -174,3 +174,11 @@ lvg这真荣吧
 
 周五能在线下看到G2vp液体faze，爽麻了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  doublehit  
+##### 4255#       发表于 2024-4-10 22:26
+
+G2太反人类了，tesse把送手杀都能进加时，小孩niko拿完首杀还能全送回去，真是太变态了。上次看这么恶心的比赛还是G2打ECS<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+

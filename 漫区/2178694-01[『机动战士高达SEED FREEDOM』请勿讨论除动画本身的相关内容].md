@@ -2636,3 +2636,65 @@ b站特供版甚至不是剪裁画面，而是同场景换个角度重画的
 而且这个时间段，物料应该也准备得七七八八了吧</blockquote>
 自由高达目前都还在维护呢，上海自由已经明确说了会在明年世博会高达馆大力宣传，和福冈牛东京独角兽一起，不过这么一想，没准就算拖到明年，万代也想让他播出来，到时候变成贺大阪世博会.jpg
 
+
+*****
+
+####  SorroFrost  
+##### 228#       发表于 2024-4-10 15:37
+
+现在情况是中影冷处理了，至于是放弃了还是等节奏过去后再上不清楚。
+
+现阶段是不可能上了，哪怕后续真上也要等ft的事情讨论度下去了再说，而且我估计之前万代的宣传计划十有八九是没有了。
+
+*****
+
+####  Znesmoc  
+##### 229#       发表于 2024-4-10 15:39
+
+隔壁暴雪回归的图可以p一下变成种自上映图了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 230#       发表于 2024-4-10 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547865&amp;ptid=2178694" target="_blank">SorroFrost 发表于 2024-4-10 15:37</a>
+
+现在情况是中影冷处理了，至于是放弃了还是等节奏过去后再上不清楚。
+
+现阶段是不可能上了，哪怕后续真上也 ...</blockquote>
+自由的修改是肯定还会继续整的，毕竟明年世博会也要用到
+
+*****
+
+####  SorroFrost  
+##### 231#       发表于 2024-4-10 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547909&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-4-10 15:41</a>
+
+自由的修改是肯定还会继续整的，毕竟明年世博会也要用到</blockquote>
+我指的电影配合自由的宣传，我估计按照原计划要么基拉生日，要么自由像周年会搭配着电影来一次配合宣传，然后ft估计也会发个视频什么的，就现在这情况，今年电影能上映就已经不错了。
+
+*****
+
+####  a317216007  
+##### 232#       发表于 2024-4-10 15:43
+
+只能说是好似了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">你可以口嗨，但是也要承担口嗨的结果
+到时候如果是连代孙一起拖下水就更乐了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ナルバレック  
+##### 233#       发表于 2024-4-10 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64547947&amp;ptid=2178694" target="_blank">a317216007 发表于 2024-4-10 15:43</a>
+
+只能说是好似了你可以口嗨，但是也要承担口嗨的结果
+
+到时候如果是连代孙一起拖下水就更乐了</blockquote>
+地震慰问对福田来说其实连口嗨都不算，我上面扯了，真鉴证起来他是阴阳怪气的，这次纯属就是慰问顺口而出，说明平常他当家常便饭了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+

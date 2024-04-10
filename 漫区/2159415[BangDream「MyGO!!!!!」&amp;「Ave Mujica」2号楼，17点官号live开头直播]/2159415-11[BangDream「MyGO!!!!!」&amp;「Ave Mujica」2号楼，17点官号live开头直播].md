@@ -6432,3 +6432,72 @@ given.jpg
 
 感觉动画开播前从live的小剧场剧情就可以猜一套动画发展了（
 
+
+*****
+
+####  skives  
+##### 15377#       发表于 2024-4-10 11:08
+
+不错 比1st的强 
+
+*****
+
+####  笋干爆炸碱  
+##### 15378#       发表于 2024-4-10 11:10
+
+限定原谅wsd一天<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15379#       发表于 2024-4-10 11:11
+
+我今天原諒武士道<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 15380#       发表于 2024-4-10 11:11
+
+感觉像老钟画的（  <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 15381#       发表于 2024-4-10 11:11
+
+以后mv可以换一套图ppt了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  星空冻结  
+##### 15382#       发表于 2024-4-10 11:15
+
+该原谅wsd一天了
+
+*****
+
+####  kivz  
+##### 15383#       发表于 2024-4-10 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">原谅wsd一天
+
+*****
+
+####  鳥栖朝  
+##### 15384#       发表于 2024-4-10 11:17
+
+原谅wsd一天
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 15385#       发表于 2024-4-10 11:17
+
+期间限定原谅wsd了，挺会挑日子的。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

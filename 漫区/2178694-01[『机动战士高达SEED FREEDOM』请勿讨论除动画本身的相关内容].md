@@ -2822,3 +2822,47 @@ b站特供版甚至不是剪裁画面，而是同场景换个角度重画的
 阿B小朋友 ...</blockquote>
 就算不超本土也是第二名，而且跟第三名拉开明显距离的那种。而且看泥潭有啥用，不在泥潭发言了不等于不进电影院了。真当30岁以上不看电影了吗。
 
+
+*****
+
+####  洛克萨斯  
+##### 247#       发表于 2024-4-10 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">财团b还能努力一下打复活赛么
+
+*****
+
+####  notqiao  
+##### 248#       发表于 2024-4-10 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548402&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-4-10 16:28</a>
+财团b还能努力一下打复活赛么</blockquote>
+代孙不如找人爆料ft在制作现场パワハラ或者セクハラ 让他身败名裂 然后顺理成章的降板
+
+
+*****
+
+####  ナルバレック  
+##### 249#       发表于 2024-4-10 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548402&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-4-10 16:28</a>
+
+财团b还能努力一下打复活赛么</blockquote>
+能吧，我看有人说算是暂时冷处理，之前万代卖流媒体也是BD发售后的事情，BD基本最快也得十月左右吧？在那之前肯定会努力努力上映的吧，甚至有可能为了世博会强行明年大家都看过的情况下再上，当年FSN HF第二部，高达NT之类好像都是BD发售后上的吧<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  线程召唤使  
+##### 250#       发表于 2024-4-10 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548374&amp;ptid=2178694" target="_blank">we89623 发表于 2024-4-10 16:25</a>
+
+就算不超本土也是第二名，而且跟第三名拉开明显距离的那种。而且看泥潭有啥用，不在泥潭发言了不等于不进 ...</blockquote>
+都三十大几四十的人了，还指望这些人进电影院看种吗，看看以前一起追番的小伙伴，
+
+“种剧场出啦”，
+
+“哦”
+
+“你现在还对这些东西感兴趣呀，挺好的”
+

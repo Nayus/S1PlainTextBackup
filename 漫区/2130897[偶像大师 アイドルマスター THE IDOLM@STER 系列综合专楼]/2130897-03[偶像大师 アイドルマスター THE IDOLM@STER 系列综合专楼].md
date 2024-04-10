@@ -2239,3 +2239,22 @@ lv1这鬼哭狼嚎。。最高别是lv999吧<img src="https://static.saraba1st.c
 
 今晚有上海时隔六年多的偶像大师only最后一波开票
 
+
+*****
+
+####  patema  
+##### 3179#       发表于 2024-4-10 16:35
+
+polygon就是纯粹的菜+白皮香蕉人思维
+
+你以为他们是做片子的，其实他们是做产品的<img src="https://static.saraba1st.com/image/smiley/carton2017/450.png" referrerpolicy="no-referrer">
+
+你能指望一个在ted上自豪的说出我们派对时间比肩工作时间的公司能做出什么好作品吗
+
+*****
+
+####  cowboyblue  
+##### 3180#       发表于 2024-4-10 16:37
+
+大桥彩香又要来上海
+

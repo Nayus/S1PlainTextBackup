@@ -951,3 +951,15 @@ GPX是多少年前的动画来着？现在做的还比不上也真的……哎~
 
 未来系赛车动画，至今为止能看的只有GPX一部
 
+
+*****
+
+####  KDConan  
+##### 209#       发表于 2024-4-10 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64540781&amp;ptid=2081261" target="_blank">Gysumitka 发表于 2024-4-9 22:41</a>
+这是本季最低分吗 看了一眼b站播放量连2w都没有</blockquote>
+别急，隔壁的竞轮目前是有力竞争者，不过没引进
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

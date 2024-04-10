@@ -9836,3 +9836,21 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 max局都能遇到，两个W，总计2蛋，9个怪
 
+
+*****
+
+####  罗克萨斯  
+##### 3954#       发表于 2024-4-10 14:02
+
+加特林唯一神，恐怖如斯！
+
+<img src="https://img.saraba1st.com/forum/202404/10/140217mn9u0g8j9nn8sq9q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-10-14-01-17-337_com.nintendo.znca-edit.jpg</strong> (226.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 14:02 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -760,3 +760,13 @@ z
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Blackson  
+##### 43#       发表于 2024-4-10 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64550251&amp;ptid=2165211" target="_blank">黑暗之眼 发表于 2024-4-10 19:16</a>
+ 说起来Z有做完的吗？是不是也没必要补？  —— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+Z的话我记得B站好像有正版。字幕组版的话只做到中期就弃坑了
+

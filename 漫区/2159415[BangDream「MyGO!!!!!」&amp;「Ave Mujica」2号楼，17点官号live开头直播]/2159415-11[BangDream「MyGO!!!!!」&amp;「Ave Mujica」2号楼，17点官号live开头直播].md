@@ -6858,3 +6858,13 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">往好里想，2月3月甚至连一首歌都没有
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15422#       发表于 2024-4-11 01:29
+
+这几天二刷MyGO，看看能不能找到之前没发现的细节（）
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -1981,3 +1981,19 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 
 能上就尽快定档，华策赶紧动起来啊
 
+
+*****
+
+####  闽明  
+##### 156#       发表于 2024-4-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64544743&amp;ptid=2178694" target="_blank">主人ハム子 发表于 2024-4-10 11:07</a>
+怎么叫高达了，不叫敢达了？
+
+—— 来自 S1Fun</blockquote>
+高达这个名字早就要回来了，天猫旗舰店最后一次上架敢达名称商品都是19年10月初的手提袋，同月底40周年T就叫高达了
+
+现在大概就那个仿GVG手游还叫敢达
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -6501,3 +6501,21 @@ given.jpg
 
 期间限定原谅wsd了，挺会挑日子的。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15386#       发表于 2024-4-10 11:20
+
+海报图很有味道
+
+
+*****
+
+####  SakuraのOrigami  
+##### 15387#       发表于 2024-4-10 11:23
+
+海报图画的好看<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

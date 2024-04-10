@@ -6348,3 +6348,14 @@ given.jpg
 
 就剩两万多星石了，虽然不常玩但时不时忍不住想抽个二三十发<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  超时空鉴定师  
+##### 15370#       发表于 2024-4-10 07:47
+
+ 本帖最后由 超时空鉴定师 于 2024-4-10 07:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64541479&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-10 00:08</a>
+你说爱音是主角也没问题，mygo这剧情主要是爱音在推和soyo在拉，其他人大部分时间其实比较被动 ...</blockquote>
+主要是她后来戏份明显变少，这片算是往群像发展的
+

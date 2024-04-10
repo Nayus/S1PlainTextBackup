@@ -6660,3 +6660,26 @@ koyomi是我想的那个转天的koyomi吗<img src="https://p.sda1.dev/16/5c8fef
 
 最后一发十连抽到了soyo我是来结束这一切的，好好好，非常好
 
+
+*****
+
+####  NODY  
+##### 15402#       发表于 2024-4-10 17:52
+
+2nd视觉图原来是约稿，我说怎么感觉画风比之前的好看
+
+<img src="https://img.saraba1st.com/forum/202404/10/175229m8090cq0ox1cc009.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024_0410_175123.png</strong> (220.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 17:52 上传
+
+*****
+
+####  灵椿  
+##### 15403#       发表于 2024-4-10 17:58
+
+抽了一百三十九发还没有soyo<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

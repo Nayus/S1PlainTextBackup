@@ -3127,3 +3127,22 @@ NT属于无论影评还是票房都拉中拉的神棍片，在神棍片里都算
 
 但是真要二十岁的，人家会去电影院看日本动画，可人家不认识鸡狼鸟阿。
 
+
+*****
+
+####  死难者23er  
+##### 276#       发表于 2024-4-10 17:47
+
+灌篮高手在中国是多少同样的情怀，作品同样的粉丝向这两个应该最能对比
+
+*****
+
+####  黑夜守望者  
+##### 277#       发表于 2024-4-10 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64548472&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-10 16:34</a>
+都三十大几四十的人了，还指望这些人进电影院看种吗，看看以前一起追番的小伙伴，
+
+“种剧场出啦”，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">别骂了别骂了
+

@@ -6594,3 +6594,27 @@ koyomi是我想的那个转天的koyomi吗<img src="https://p.sda1.dev/16/5c8fef
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">视觉图都发了下次总能上邦tv念稿环节了吧
 
+
+*****
+
+####  PDQ4  
+##### 15396#       发表于 2024-4-10 12:17
+
+仔细看这个标题，上面那些处理有种嫩芽（？）的感觉，勃勃生机，果然是要创造世界吧。
+
+五张数字单曲，单纯元素，不对应角色曲的话。走到最后是以太或者红石的话也能对应上创造，能不能8月第五首给个MV。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+虽然wsd似了但是我会当韭菜的。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 15396#       发表于 2024-4-10 12:17
+
+仔细看这个标题，上面那些处理有种嫩芽（？）的感觉，勃勃生机，果然是要创造世界吧。
+
+五张数字单曲，单纯元素，不对应角色曲的话。走到最后是以太或者红石的话也能对应上创造，能不能8月第五首给个MV。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+虽然wsd似了但是我会当韭菜的。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

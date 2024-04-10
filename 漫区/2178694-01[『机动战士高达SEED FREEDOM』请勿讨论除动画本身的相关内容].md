@@ -1997,3 +1997,17 @@ seed本来就有这种打算吧，MSV、异端等衍生作品都是和TV同时�
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  king520kyo  
+##### 157#       发表于 2024-4-10 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64544743&amp;ptid=2178694" target="_blank">主人ハム子 发表于 2024-4-10 11:07</a>
+怎么叫高达了，不叫敢达了？
+
+—— 来自 S1Fun</blockquote>
+商标版权问题搞定不叫敢达好多年了 
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

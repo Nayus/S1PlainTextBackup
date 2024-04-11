@@ -3533,3 +3533,11 @@ NT日本5亿日元票房，中国有850W以上rmb
 
 有些事情一两句话也说不清楚，eoe的高清无码sy能上，终不能上
 
+
+*****
+
+####  ShyCrazydog  
+##### 317#       发表于 2024-4-11 11:08
+
+反正已经佛了，大不了等bd。最近阿宅自己组的观影会其实好像还挺多的，大概到时候还是能有人组。之前去了几次其它动画的，感觉有些偏僻的影院就靠这个赚钱了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -13732,3 +13732,13 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">刚更兄弟开黑玩了两天6级左右，该以什么武器或者战略物资为目标啊，之前一直在打虫子，昨天去机器人玩驻守任务，本来是想割草爽一把下线的，结果机器人把我们爽了，这强度差距也太大了吧
 
+
+*****
+
+####  swrrt  
+##### 2799#       发表于 2024-4-11 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64556501&amp;ptid=2170852" target="_blank">安姆闲人 发表于 2024-4-11 10:57</a>
+刚更兄弟开黑玩了两天6级左右，该以什么武器或者战略物资为目标啊，之前一直在打虫子，昨天去机器人 ...</blockquote>
+打机器人主要是主武器容易吃瘪，要有焦土这种才打起来舒服点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

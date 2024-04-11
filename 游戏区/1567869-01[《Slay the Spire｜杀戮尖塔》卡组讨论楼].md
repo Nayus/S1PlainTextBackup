@@ -31,3 +31,14 @@
 观者一层应该怎么选路线？问号走多了没牌拿 怪打多了还掉血</blockquote>
 照着精英走……
 
+
+*****
+
+####  farland  
+##### 470#       发表于 2024-4-11 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64534993&amp;ptid=1567869" target="_blank">举头望明月 发表于 2024-4-9 12:55</a>
+
+最近安利了朋友入坑自己也捡起全坑在A11的四个角色各爬了一层，基本要肝一晚上才能过一次关，试错成本也太 ...</blockquote>
+B站破碎的星光，跟着A1-A20看一遍。
+

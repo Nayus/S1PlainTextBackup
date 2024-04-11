@@ -106,3 +106,26 @@
 台风的地方是百慕大啊</blockquote>
 所长的碎片吧，估计是风属性的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 11992#       发表于 2024-4-11 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564277&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-11 22:23</a>
+
+刚注意到
+
+台风的地方是百慕大啊</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202404/11/224512gdub3g3elgmmz0me.png" referrerpolicy="no-referrer">
+
+<strong>7c091945e3fd224a1081ae427e9ca12d_9700196e9c24ea3f28f9e4c2e4508dcc2113516.png</strong> (71.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 22:45 上传
+
+转自B站[https://www.bilibili.com/opus/918936659925401635](https://www.bilibili.com/opus/918936659925401635)：
+根据推主ハルモニア 的考察，四个奥尔加玛丽分布的地点可能是从大西洋异闻带到南极的直线，分别是从大西洋异闻带——百慕大——加拉帕戈斯群岛——尼莫点——南极。
+

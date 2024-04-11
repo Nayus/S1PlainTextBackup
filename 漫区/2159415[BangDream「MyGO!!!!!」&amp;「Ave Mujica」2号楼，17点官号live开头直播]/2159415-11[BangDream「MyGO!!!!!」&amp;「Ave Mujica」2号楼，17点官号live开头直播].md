@@ -8098,3 +8098,45 @@ anisong+金属，妖精帝国还是挺出名的，然后说供曲就更多了，
 
 Mujica的曲子基本能看出是不敢写的太重的（）
 
+
+*****
+
+####  Aendst  
+##### 15547#       发表于 2024-4-11 22:49
+
+梦了很久的黑濑圭亮，但梦只能是梦<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 15548#       发表于 2024-4-11 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564495&amp;ptid=2159415" target="_blank">tsukatsukieiko 发表于 2024-4-11 22:42</a>
+
+anisong+金属，妖精帝国还是挺出名的，然后说供曲就更多了，Galneryus给记忆女神的女儿们写的ED到现在都 ...</blockquote>
+妖精帝国以前听过几次，确实可以
+
+希望Mujica能cover一下（）
+
+
+*****
+
+####  novalli  
+##### 15549#       发表于 2024-4-11 22:53
+
+MyGO这次的轮符雨意外的好听，不知道是确实做的比较好还是我能get到意思了。之前有几首我都有点没理解在唱什么，看歌词也有点get不到情绪。不懂音乐，纯感受。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  御幸一也  
+##### 15550#       发表于 2024-4-11 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564605&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-11 22:49</a>
+
+妖精帝国以前听过几次，确实可以
+
+希望Mujica能cover一下（）</blockquote>
+希望2nd能有新cover<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -14128,3 +14128,21 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆破弩也太幽默了，除了不用射一发填一发之外被爆裂铳完爆啊，之前说的能破构筑者我这里试了也没效果
 
+
+*****
+
+####  风萧飒  
+##### 2840#       发表于 2024-4-11 22:44
+
+这爆弹枪打绿胖什么地方可以秒啊，打嘴好像不行，是脑壳吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  九十九忍  
+##### 2841#       发表于 2024-4-11 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">爆狙好用，但也很微妙啊，尤其是子弹擦着边飞往大后方时
+

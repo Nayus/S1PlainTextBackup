@@ -14282,3 +14282,15 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来投下来的时候风景是这样的
 
+
+*****
+
+####  smdzh2  
+##### 2856#       发表于 2024-4-12 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64565366&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-12 01:04</a>
+打屁股也能秒吗，之前看测试说是打头一枪
+
+—— 来自 S1Fun</blockquote>
+有时候打头也能秒，打屁股反而不行，就是看脸
+

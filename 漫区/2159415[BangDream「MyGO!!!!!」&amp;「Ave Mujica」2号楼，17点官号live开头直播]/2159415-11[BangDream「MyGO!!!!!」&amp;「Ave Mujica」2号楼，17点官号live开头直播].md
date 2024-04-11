@@ -8221,3 +8221,18 @@ YTB双月比CSC少了十万左右的播放，我觉得差距其实挺大的了
 CSC在**還是比雙月高一點，雖然也是倒數第二，YT懶得看了 ...</blockquote>
 双月除去假药我个人觉得其实也挺不错，至少能做到器乐和人声相对均匀一些（）
 
+
+*****
+
+####  tsukatsukieiko  
+##### 15556#       发表于 2024-4-12 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564537&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-11 22:44</a>
+
+因为要考虑到大众（）
+
+大众能不能接受是个问题（）
+
+Mujica的曲子基本能看出是不敢写的太重的（） ...</blockquote>
+女团偶像搞金属，宝钢也不算重啊，但是人就是有大手子做后盾，弄出一堆大佬当饭。
+

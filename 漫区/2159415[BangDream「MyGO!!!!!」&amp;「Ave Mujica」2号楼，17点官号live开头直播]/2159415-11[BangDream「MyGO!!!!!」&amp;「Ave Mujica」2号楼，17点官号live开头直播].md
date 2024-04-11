@@ -6900,3 +6900,11 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 猫希这个爱知限定语音，狸希完全变成饲主了啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这下要给猫猫负责一辈子了。
 
+
+*****
+
+####  Aendst  
+##### 15427#       发表于 2024-4-11 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">要有信心，3rd之前应该能有点动画宣传
+

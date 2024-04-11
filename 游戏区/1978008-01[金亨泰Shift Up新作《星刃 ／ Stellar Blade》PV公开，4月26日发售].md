@@ -153,3 +153,11 @@ C66E1B6298EC1E54740397A2739F086D.jpg
 
 我以为没有音监就是xb系列那水准，没想到还是能出问题的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 697#       发表于 2024-4-11 09:07
+
+金亨泰访谈猛舔横尾，横尾好像完全没反映，尼尔联动无望？
+

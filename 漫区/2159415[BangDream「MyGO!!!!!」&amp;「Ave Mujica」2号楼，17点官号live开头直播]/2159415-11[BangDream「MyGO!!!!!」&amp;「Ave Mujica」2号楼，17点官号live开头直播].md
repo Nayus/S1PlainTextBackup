@@ -6884,3 +6884,11 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 2nd结束之后怕是又要放置了
 
+
+*****
+
+####  笋干爆炸碱  
+##### 15425#       发表于 2024-4-11 09:08
+
+2nd结束之后可以剑指3rd<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

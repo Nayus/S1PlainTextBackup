@@ -9882,3 +9882,19 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oi99o  
+##### 3958#       发表于 2024-4-11 11:06
+
+今晚有香港代表对台湾代表的比赛：[https://www.youtube.com/watch?v=GZm-MGTkcVY](https://www.youtube.com/watch?v=GZm-MGTkcVY)
+
+<img src="https://img.saraba1st.com/forum/202404/11/110540im3m3uy9nh5nq2vo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 11:05 上传
+

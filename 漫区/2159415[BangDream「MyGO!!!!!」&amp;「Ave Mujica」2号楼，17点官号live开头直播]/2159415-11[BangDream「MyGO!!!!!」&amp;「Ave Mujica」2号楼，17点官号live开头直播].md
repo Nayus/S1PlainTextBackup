@@ -7922,3 +7922,69 @@ supalove不是挺适合mygo的吗，好评如潮，还经常看到人夸没有�
 
 嫉妒使我面目全非<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15533#       发表于 2024-4-11 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64563755&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-11 21:47</a>
+
+supalove不是挺适合mygo的吗，好评如潮，还经常看到人夸没有走向同质化
+
+也就只有mujica这边不太行，好评最 ...</blockquote>
+实际上EG人手比SUPA LOVE还少（）
+
+找SUPA LOVE我个人觉得应该是EG人手不够，抽不出时间做（）
+当然也可能是因为便宜
+
+我个人对SUPA LOVE唯一想要吐槽的点就是它的混音（）
+
+虽说我是有点没搞明白为什么Mujica最近的3首曲子全找的长谷川
+
+*****
+
+####  PDQ4  
+##### 15534#       发表于 2024-4-11 22:08
+
+可能长谷川也是SUPA LOVE里的洗脚婢吧，mujica配不上更会的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋干爆炸碱  
+##### 15535#       发表于 2024-4-11 22:11
+
+世界是个巨大的今晚选拔发表，你推三排洗脚<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15536#       发表于 2024-4-11 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么洗脚婢大和谐，有点太地狱了
+
+*****
+
+####  NODY  
+##### 15537#       发表于 2024-4-11 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564046&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-11 22:06</a>
+
+实际上EG人手比SUPA LOVE还少（）
+
+找SUPA LOVE我个人觉得应该是EG人手不够，抽不出时间做（）
+当然也 ...</blockquote>
+可能单纯是因为乌托邦和三角这两首的播放量确实还行，官方觉得可以继续用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+体感日本那边好像也没看到对这两首差评的，是不是国内和日本欧美对金属的接受度不一样所以国内差评多点
+
+*****
+
+####  Aendst  
+##### 15538#       发表于 2024-4-11 22:15
+
+播放量说不通的，迷你专里长谷川写的双月是多流媒平台播放均最低的一首
+
+如果真的看播放量一开始就不会让长谷川来写
+

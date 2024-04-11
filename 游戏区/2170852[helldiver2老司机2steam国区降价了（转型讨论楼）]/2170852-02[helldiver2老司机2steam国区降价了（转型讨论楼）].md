@@ -14094,3 +14094,19 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">铝热我试了下好像打强袭都得两发以上，要么就是粘的位置不对。
 还有就是投掷距离和抛物线没魔改，想粘泰坦什么的还挺蠢的
 
+
+*****
+
+####  ykyin09  
+##### 2836#       发表于 2024-4-11 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">手拉爆弹单走不太行，跟着队友跑炸虫巢打中虫子还行
+
+
+*****
+
+####  Launce  
+##### 2837#       发表于 2024-4-11 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来，有时候是不是升级会被房主什么的覆盖掉，导致没有效果
+

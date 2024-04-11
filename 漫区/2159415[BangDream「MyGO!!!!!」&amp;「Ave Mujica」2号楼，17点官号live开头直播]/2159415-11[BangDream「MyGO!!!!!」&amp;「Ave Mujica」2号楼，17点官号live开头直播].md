@@ -6983,3 +6983,37 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 鼓子真可爱啊真可爱啊真可爱啊
 
+
+*****
+
+####  6030sylar  
+##### 15436#       发表于 2024-4-11 19:21
+
+<img src="https://img.saraba1st.com/forum/202404/11/192149s9c0jcxjcz69tx9b.png" referrerpolicy="no-referrer">
+
+<strong>ODVO}A@3CA]}6J7OH9PCA`C.png</strong> (30.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 19:21 上传
+
+*****
+
+####  6030sylar  
+##### 15437#       发表于 2024-4-11 19:23
+
+<img src="https://img.saraba1st.com/forum/202404/11/192351n5aiibiqddi7qjoq.png" referrerpolicy="no-referrer">
+
+<strong>M2K_7$V14]]ZQ74`D)ECDJK.png</strong> (44.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 19:23 上传
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15438#       发表于 2024-4-11 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

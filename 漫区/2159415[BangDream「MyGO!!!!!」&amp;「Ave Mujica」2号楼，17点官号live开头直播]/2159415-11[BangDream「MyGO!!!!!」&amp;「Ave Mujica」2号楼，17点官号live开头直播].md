@@ -7477,3 +7477,99 @@ https://x.com/rienz_zy/status/1778401962503127266蛮有意思的一张图</block
 —— 来自 HUAWEI OXF-AN00, Android 12上 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的是我们椎名立希吗
 
+
+*****
+
+####  凡人  
+##### 15483#       发表于 2024-4-11 20:54
+
+不如说一碗水端不平，这一点就挺姐妹的
+
+*****
+
+####  御幸一也  
+##### 15484#       发表于 2024-4-11 20:55
+
+臭臉好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/11/205545wuh2u800rbbhwhuu.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_bionaraq(@rev404_)_20240410-165407_1778104184778399831_photo.jpg</strong> (148.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 20:55 上传
+
+[https://twitter.com/rev404_/status/1778104184778399831](https://twitter.com/rev404_/status/1778104184778399831)
+
+*****
+
+####  御幸一也  
+##### 15485#       发表于 2024-4-11 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">姐妹個勾八，也就簡中天天喊這鬼東西，嘔嘔
+
+*****
+
+####  笋干爆炸碱  
+##### 15486#       发表于 2024-4-11 20:58
+
+该看邦tv了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15487#       发表于 2024-4-11 20:58
+
+姐妹，姐妹，姐妹，姐妹<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+天天呕呕呕，嘴巴干净点
+
+*****
+
+####  PDQ4  
+##### 15488#       发表于 2024-4-11 20:59
+
+虽然国内特供姐妹很难评。
+
+不过按照传统意义来讲，我看到的都是姐养妹，老幺受宠更多，老大放养全靠自己努力。
+
+这么想反而和泥漏之前讨论被外面车的mujica企划先行对上了，好微妙。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15489#       发表于 2024-4-11 21:00
+
+既然你这么说那繁中肯定更符合你的讨论环境
+
+*****
+
+####  NODY  
+##### 15490#       发表于 2024-4-11 21:01
+
+wsd看钱的典型不就是萝和蝶，萝本来连动画资源都没有，火起来以后第二季第三季给了和主角ppp和二期主推ras同级的戏份还把剧场版也补上了，蝶没推起来现在在手游打天梯还得被手游团拷打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有个特殊点的ras，纸片人人气死活没推起来但是三次元人气高，资源就往三次元那边给甚至能在摇滚节压场，但是手游公认的待遇差被跳过几次活动了
+
+*****
+
+####  御幸一也  
+##### 15491#       发表于 2024-4-11 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就嘔怎麼了
+
+*****
+
+####  PDQ4  
+##### 15492#       发表于 2024-4-11 21:01
+
+蝶风高尾可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15493#       发表于 2024-4-11 21:02
+
+追星现场穿情侣装是吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

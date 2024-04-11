@@ -14146,3 +14146,28 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">爆狙好用，但也很微妙啊，尤其是子弹擦着边飞往大后方时
 
+
+*****
+
+####  Aeons  
+##### 2842#       发表于 2024-4-11 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564445&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-11 22:37</a>
+爆破弩也太幽默了，除了不用射一发填一发之外被爆裂铳完爆啊，之前说的能破构筑者我这里试了也没效 ...</blockquote>
+没记错的话解包出来的时候就不能了
+
+*****
+
+####  Kojimaru  
+##### 2843#       发表于 2024-4-11 22:57
+
+单走打虫巢，享受
+
+
+*****
+
+####  smdzh2  
+##### 2844#       发表于 2024-4-11 23:02
+
+爆狙+盟友，反甲交给队友，见势不妙立马启动飞行背包跑路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

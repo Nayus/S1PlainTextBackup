@@ -3505,3 +3505,13 @@ NT日本5亿日元票房，中国有850W以上rmb
 可能是网上看到这边机战厨喜欢铁也的很多吧</blockquote>
 这玩意应该就是纯粹打包进来的 过都过了那就上呗 反正宣发跟排片基本都是摆烂状态
 
+
+*****
+
+####  duo_wolf  
+##### 314#       发表于 2024-4-11 10:01
+
+我还记得EVA终B站暂缓上线的时候他出来说是为了上院线，已经送审了，然后么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后你们以为就是他这出就是因为SEED吗？那个推介会的片单，其他电影博主拿到发出来都是“有望上映”，就他，已经过审，确定上映，我看他最多认识一两个嘴巴跟他一样大的影院经理，业内的消息和规矩是狗屁不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

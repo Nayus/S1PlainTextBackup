@@ -141,3 +141,15 @@ C66E1B6298EC1E54740397A2739F086D.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/11/073711ca6bb3e3xavnstja.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Minolta  
+##### 696#       发表于 2024-4-11 07:56
+
+没人觉得这游戏音频有问题吗？
+韩语没听过，但日语语音和环境音割裂感非常重，完全不在一个声场里面。
+更过分的是用大法的原厂大耳（h9），侧对boss的时候只有对着boss的那边能听见boss的声音，另一半完全听不到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">（环境音和女主的音效两边都能听到
+
+我以为没有音监就是xb系列那水准，没想到还是能出问题的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

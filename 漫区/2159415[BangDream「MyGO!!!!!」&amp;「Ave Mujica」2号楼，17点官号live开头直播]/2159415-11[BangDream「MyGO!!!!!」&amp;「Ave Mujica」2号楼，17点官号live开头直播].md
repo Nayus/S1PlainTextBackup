@@ -7074,3 +7074,139 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 来了【【Official Music Video】輪符雨（Refrain）/ MyGO!!!!!【原创歌曲】-哔哩哔哩】 [https://b23.tv/FwrmZ0V](https://b23.tv/FwrmZ0V)
 
+
+*****
+
+####  Aendst  
+##### 15444#       发表于 2024-4-11 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼里有没有mygo粉说一下mygo现在是不是每一首都有mv
+
+*****
+
+####  cindy355  
+##### 15445#       发表于 2024-4-11 20:17
+
+ 本帖最后由 cindy355 于 2024-4-11 20:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562440&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-11 19:51</a>
+
+訪談說有不同的世界觀，只是現在這個是人偶的世界觀</blockquote>
+期待一下人外风格的，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实话说以我个人的审美来看mujica现在这套应该秒杀狗除了迷星叫和回层浮以外的所有live装束（名无声那套应该不算live装束）。以前虽然不会感觉这点有问题，毕竟故事背景不一样，不过事实就是mujica连live装束都比播出前的go要少呢。
+
+*****
+
+####  SakuraのOrigami  
+##### 15446#       发表于 2024-4-11 20:19
+
+MV看了，大致想法猜的差不多
+
+虽说混音还是那么炸，鼓录的有些重（）
+
+我在B站听MyGO还有Mujica的曲子都得把音量降到25（）
+
+<img src="https://img.saraba1st.com/forum/202404/11/201452gdpiezy8d9udr8pm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240411201417.png</strong> (27.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 20:14 上传
+
+
+*****
+
+####  御幸一也  
+##### 15447#       发表于 2024-4-11 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562678&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-11 20:17</a>
+
+期待一下人外风格的，实话说以我个人的审美来看mujica现在这套应该秒杀狗除了迷星叫和回层浮以外的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">“世界觀”承受一切，沒資源都是世界觀的問題捏，你們有沒有這樣的世界觀啊
+
+*****
+
+####  EBe  
+##### 15448#       发表于 2024-4-11 20:23
+
+别期待了，想想真姐妹父母都没法一碗水端平，认清定位啦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  御幸一也  
+##### 15449#       发表于 2024-4-11 20:23
+
+不過看火三角的歌詞，下次說不定真的搞西幻paro，好中二好中二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15450#       发表于 2024-4-11 20:23
+
+又开始卖动画截图特典了
+
+<img src="https://img.saraba1st.com/forum/202404/11/202332zg6auob8olo2smso.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQk5z-jj29ZiT3cSsg-k3.jpg</strong> (180.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 20:23 上传
+
+*****
+
+####  Aendst  
+##### 15451#       发表于 2024-4-11 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562678&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-11 20:17</a>
+
+期待一下人外风格的，实话说以我个人的审美来看mujica现在这套应该秒杀狗除了迷星叫和回层浮以外的 ...</blockquote>
+人外是不是太超前了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">还是说是什么哥特经典生物吸血鬼之类的？
+
+*****
+
+####  PDQ4  
+##### 15452#       发表于 2024-4-11 20:24
+
+人偶世界观应该不会变吧，我觉得人偶属于底层设计那种。
+
+但是人偶可以演出不同的故事，反正世界都毁灭了，接下来世界什么样子都有可能
+
+重生新世界不同大陆不同风土人情也很正常吧，来点mujica公路片。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15453#       发表于 2024-4-11 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562739&amp;ptid=2159415" target="_blank">EBe 发表于 2024-4-11 20:23</a>
+
+别期待了，想想真姐妹父母都没法一碗水端平，认清定位啦
+
+—— 来自 HUAWEI OXF-AN00, Android 12上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">別“姐妹”了，想想就嘔吐了
+
+*****
+
+####  EBe  
+##### 15454#       发表于 2024-4-11 20:26
+
+想看侦探风<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  PDQ4  
+##### 15455#       发表于 2024-4-11 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562648&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-11 20:15</a>
+
+楼里有没有mygo粉说一下mygo现在是不是每一首都有mv</blockquote>
+手游曲应该没有吧，大概。
+
+感觉好地狱，之前还有漏油说鸡团是注重音乐方面，所以资源都在新歌上才没有其他东西。
+
+现在，哈哈。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

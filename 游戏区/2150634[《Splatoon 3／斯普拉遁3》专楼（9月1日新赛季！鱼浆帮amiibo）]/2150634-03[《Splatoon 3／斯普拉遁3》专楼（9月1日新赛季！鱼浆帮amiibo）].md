@@ -9914,3 +9914,13 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 毕竟香港就这么点人，台湾怎么说也算一个省（
 
+
+*****
+
+####  罗克萨斯  
+##### 3961#       发表于 2024-4-11 20:15
+
+意料之内，游戏人口差了一个数量级呢，三局两胜制太温柔了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

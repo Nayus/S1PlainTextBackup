@@ -14228,3 +14228,41 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 那是老解包了吧，前段时间解包就是不能的
 
+
+*****
+
+####  白昼梦  
+##### 2851#       发表于 2024-4-12 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564542&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-11 22:44</a>
+
+这爆弹枪打绿胖什么地方可以秒啊，打嘴好像不行，是脑壳吗
+
+—— 来自 S1Fun ...</blockquote>
+爆裂铳子弹落点之后有弹片溅射，那个伤害也挺高的所以有点玄学，打屁股那一圈就对了
+
+*****
+
+####  风萧飒  
+##### 2852#       发表于 2024-4-12 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64565350&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-12 00:01</a>
+爆裂铳子弹落点之后有弹片溅射，那个伤害也挺高的所以有点玄学，打屁股那一圈就对了 ...</blockquote>
+打屁股也能秒吗，之前看测试说是打头一枪<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ddwhzh  
+##### 2853#       发表于 2024-4-12 00:04
+
+这游戏原来有举报呀，这游戏遇到种族歧视的比其他游戏高好几倍，建议遇到一个举报一个
+
+*****
+
+####  DawnGuardian  
+##### 2854#       发表于 2024-4-12 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">贱头什么时候才能把按最低延迟匹配的功能加上？连着匹了好几把都是卡的样本捡不起来，虫洞炸不掉然后跳出，太弱智了
+

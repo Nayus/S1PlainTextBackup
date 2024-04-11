@@ -77,3 +77,15 @@
 
 CG是哪个，鲁路修？
 
+
+*****
+
+####  冰风血羽  
+##### 1018#       发表于 2024-4-12 00:01
+
+<img src="https://p.sda1.dev/16/6acb6569dc2cbcabf3d9db692973068f/CMP_20240412000026578.png" referrerpolicy="no-referrer">
+
+说到CG第一想到的就是鲁路修
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

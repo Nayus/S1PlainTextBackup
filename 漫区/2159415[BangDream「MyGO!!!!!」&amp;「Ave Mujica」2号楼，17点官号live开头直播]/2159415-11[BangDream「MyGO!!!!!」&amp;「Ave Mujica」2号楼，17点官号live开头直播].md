@@ -7319,3 +7319,64 @@ https://www.pixiv.net/artworks/117734552<img src="https://p.sda1.dev/16/cabfd959
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  污陨血红  
+##### 15468#       发表于 2024-4-11 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562775&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-11 20:26</a>
+
+不是狗厨，但是手游曲应该没有吧，大概。
+
+感觉好地狱，之前还有漏油说鸡团是注重音乐方面，所以资源都在 ...</blockquote>
+处救生和轮符雨就是手游先行曲（）
+
+现在轮符雨也有了mv了
+
+mygo这边除了难忘今宵（bushi）焚音打是特别mv，歌基本上是全mv了吧
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15469#       发表于 2024-4-11 20:39
+
+https://x.com/rienz_zy/status/1778401962503127266<img src="https://p.sda1.dev/16/3775874730e9c62dbd025cf8b4d60346/CMP_20240411203923464.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cindy355  
+##### 15470#       发表于 2024-4-11 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562755&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-11 20:24</a>
+
+人外是不是太超前了还是说是什么哥特经典生物吸血鬼之类的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">个人爱好，之前看了个老师的mujica全员人外化的图，太喜欢了
+
+*****
+
+####  PDQ4  
+##### 15471#       发表于 2024-4-11 20:42
+
+原来手游曲也有MV，这资源投入我是没想到的。
+
+鸡明年能有这个待遇吗，连周年曲都没有，果然不是亲生的饿不死就行。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15472#       发表于 2024-4-11 20:42
+
+wsd眼里还是看钱的，现在舍得给狗花钱大概也是因为动画和cd赚了，就像萝人气最高所以动画一期补ova二三期给了主场和天梯第一最后还补了两个剧场版一样，等第二季出来鸡赚了应该也会给鸡资源的，如果赚了的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15473#       发表于 2024-4-11 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562941&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-11 20:41</a>
+
+个人爱好，之前看了个老师的mujica全员人外化的图，太喜欢了</blockquote>
+哪位老師我也要看看<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

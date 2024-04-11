@@ -14068,3 +14068,13 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 铝热剂真的有用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cloudccpro  
+##### 2833#       发表于 2024-4-11 20:37
+
+<blockquote>smdzh2 发表于 2024-4-11 20:32
+铝热剂真的有用吗</blockquote>
+有用但延时太长，等于是单体手雷
+

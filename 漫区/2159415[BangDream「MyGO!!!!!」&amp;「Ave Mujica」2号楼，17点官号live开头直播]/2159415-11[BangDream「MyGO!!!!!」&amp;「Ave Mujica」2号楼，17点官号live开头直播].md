@@ -7017,3 +7017,52 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 15439#       发表于 2024-4-11 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549370&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-10 17:52</a>
+
+2nd视觉图原来是约稿，我说怎么感觉画风比之前的好看</blockquote>
+這畫師居然18萬粉 好像很厲害
+
+
+*****
+
+####  御幸一也  
+##### 15440#       发表于 2024-4-11 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64552864&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-10 23:16</a>
+
+突然好奇mujica的第二套live装束会长啥样，到现在都只有一套吧。</blockquote>
+訪談說有不同的世界觀，只是現在這個是人偶的世界觀
+
+
+*****
+
+####  御幸一也  
+##### 15441#       发表于 2024-4-11 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/11/195120sddfffdhvv6oiiys.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_タロ(@mkm22111)_20240410-171416_1778109252986609828_photo.jpg</strong> (87.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 19:51 上传
+
+[https://twitter.com/mkm22111/status/1778109252986609828](https://twitter.com/mkm22111/status/1778109252986609828)
+
+*****
+
+####  NODY  
+##### 15442#       发表于 2024-4-11 19:54
+
+小剧场猫希+特典是立希+大鼓老家附近三个加成都没唱上处救生，唉，底边<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过看这场表现勉强及格，姑且接受了
+

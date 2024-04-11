@@ -3604,3 +3604,13 @@ bd什么时候出
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> BD特典直接装个MR进去吧   反正机战30也放了MR
 
+
+*****
+
+####  死难者23er  
+##### 324#       发表于 2024-4-11 19:52
+
+<blockquote>Smith·勇 发表于 2024-4-11 16:55
+怎么老惦记香水</blockquote>
+因为这一次的香水贩卖，如果你从头开始看是非常非常有意思，直接明牌告诉你，每个人的备货量是多少？剩下多少个贩卖速度是多少可以清楚地知道
+

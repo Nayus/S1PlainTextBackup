@@ -8236,3 +8236,14 @@ CSC在**還是比雙月高一點，雖然也是倒數第二，YT懶得看了 ...
 Mujica的曲子基本能看出是不敢写的太重的（） ...</blockquote>
 女团偶像搞金属，宝钢也不算重啊，但是人就是有大手子做后盾，弄出一堆大佬当饭。
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15557#       发表于 2024-4-12 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64565622&amp;ptid=2159415" target="_blank">tsukatsukieiko 发表于 2024-4-12 00:35</a>
+
+女团偶像搞金属，宝钢也不算重啊，但是人就是有大手子做后盾，弄出一堆大佬当饭。 ...</blockquote>
+是这样（）
+

@@ -14294,3 +14294,16 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 —— 来自 S1Fun</blockquote>
 有时候打头也能秒，打屁股反而不行，就是看脸
 
+
+*****
+
+####  xinfengj  
+##### 2857#       发表于 2024-4-12 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564879&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-11 23:14</a>
+
+和铝热剂比赛的手雷都不能秒强袭吧，为什么都说铝热剂幽默。这个包功能性完爆前几个包，填补了大量定位空缺 ...</blockquote>
+专职反甲武器→丢坦克没丢到弱点4发扔完火都不冒→丢其他玩应要等十秒才炸，伤害只有100
+
+这还不够幽默么
+

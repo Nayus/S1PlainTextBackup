@@ -677,3 +677,11 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 
 果不其然，毁原作作品。
 
+
+*****
+
+####  pzk  
+##### 72#       发表于 2024-4-11 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">语速未免也太慢了，实际情节发展也很慢，感觉开了0.75倍速
+

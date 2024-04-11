@@ -3515,3 +3515,13 @@ NT日本5亿日元票房，中国有850W以上rmb
 
 然后你们以为就是他这出就是因为SEED吗？那个推介会的片单，其他电影博主拿到发出来都是“有望上映”，就他，已经过审，确定上映，我看他最多认识一两个嘴巴跟他一样大的影院经理，业内的消息和规矩是狗屁不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 315#       发表于 2024-4-11 10:08
+
+这么说来eva终还没上b站<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

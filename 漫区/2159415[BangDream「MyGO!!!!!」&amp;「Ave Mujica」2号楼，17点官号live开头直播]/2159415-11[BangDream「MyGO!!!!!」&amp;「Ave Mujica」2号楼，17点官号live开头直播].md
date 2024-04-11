@@ -8247,3 +8247,13 @@ Mujica的曲子基本能看出是不敢写的太重的（） ...</blockquote>
 女团偶像搞金属，宝钢也不算重啊，但是人就是有大手子做后盾，弄出一堆大佬当饭。 ...</blockquote>
 是这样（）
 
+
+*****
+
+####  nebulanoby  
+##### 15558#       发表于 2024-4-12 01:09
+
+和你羊和解力<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

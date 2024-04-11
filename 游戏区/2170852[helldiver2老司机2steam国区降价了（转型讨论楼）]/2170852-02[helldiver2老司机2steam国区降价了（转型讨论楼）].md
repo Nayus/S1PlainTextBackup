@@ -14038,3 +14038,17 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风萧飒  
+##### 2830#       发表于 2024-4-11 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562421&amp;ptid=2170852" target="_blank">Ashice 发表于 2024-4-11 19:49</a>
+爆裂铳我看数据有12+1个弹夹？这么多备弹中型虫子可以随便炸了吧
+可不可以炸虫巢？
+戴上激光狗三号位带啥啊 ...</blockquote>
+可以炸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3495,3 +3495,13 @@ NT日本5亿日元票房，中国有850W以上rmb
 
 之前利兹与青鸟就这人反复发，看得出根本不懂这个行业
 
+
+*****
+
+####  eyeego  
+##### 313#       发表于 2024-4-11 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64554991&amp;ptid=2178694" target="_blank">Ironman_mk5 发表于 2024-4-11 08:56</a>
+可能是网上看到这边机战厨喜欢铁也的很多吧</blockquote>
+这玩意应该就是纯粹打包进来的 过都过了那就上呗 反正宣发跟排片基本都是摆烂状态
+

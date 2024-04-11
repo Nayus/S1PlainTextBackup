@@ -93,3 +93,16 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 19938#       发表于 2024-4-11 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64554541&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-4-11 07:46</a>
+
+21年9月也太早了，那会一期生都还不知道加人的事情，二期的熊和三期的结那关系都这么好了......
+
+论坛助手, ...</blockquote>
+去年结那生日的时候又说两人第一次约饭是20岁最后的生日，其中一个记错了吧
+

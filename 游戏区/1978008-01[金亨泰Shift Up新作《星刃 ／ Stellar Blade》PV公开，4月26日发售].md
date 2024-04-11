@@ -172,3 +172,13 @@ C66E1B6298EC1E54740397A2739F086D.jpg
 金亨泰访谈猛舔横尾，横尾好像完全没反映，尼尔联动无望？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">nikke不是联动过了吗
 
+
+*****
+
+####  宛若青空  
+##### 699#       发表于 2024-4-11 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64555093&amp;ptid=1978008" target="_blank">hkguty 发表于 2024-4-11 09:07</a>
+金亨泰访谈猛舔横尾，横尾好像完全没反映，尼尔联动无望？</blockquote>
+横尾很早前就说过很期待星刃了
+

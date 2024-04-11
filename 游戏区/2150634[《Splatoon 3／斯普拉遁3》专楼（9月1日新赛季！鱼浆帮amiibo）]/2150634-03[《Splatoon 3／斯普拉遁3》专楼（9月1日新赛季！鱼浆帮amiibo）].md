@@ -9924,3 +9924,11 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ryuuseigun  
+##### 3962#       发表于 2024-4-11 22:20
+
+审查者带了两个小sp增两个小特殊能力增加赖皮的好玩<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">打的保守一点减少死亡次数打完一管墨就是一个新的饮料机，一场6个饮料机打底，队友人均3.9活动僵尸，即时回场对面根本推不动比分，这套装备说不定也能给铅笔玩
+

@@ -14110,3 +14110,13 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来，有时候是不是升级会被房主什么的覆盖掉，导致没有效果
 
+
+*****
+
+####  断片集  
+##### 2838#       发表于 2024-4-11 22:25
+
+[https://www.bilibili.com/video/BV1JD421p7kv/](https://www.bilibili.com/video/BV1JD421p7kv/)
+
+爆弹铳的切枪宏
+

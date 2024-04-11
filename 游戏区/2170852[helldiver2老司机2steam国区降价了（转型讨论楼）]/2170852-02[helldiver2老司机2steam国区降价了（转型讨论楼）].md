@@ -14196,3 +14196,35 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 感觉爆狙打机器人有点吃力，打虫子挺好用。。。
 
+
+*****
+
+####  白昼梦  
+##### 2848#       发表于 2024-4-11 23:23
+
+ 本帖最后由 白昼梦 于 2024-4-11 23:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆裂铳打机器人就是小机炮，我试了下进攻图单走还行，我是380 火力网 激光炮，剩下位置带个电磁迫击炮，四红应该也可以，难7反正是遨游。还是可惜那些炮台生存太差了。当然抱团那还不如带个机炮
+
+*****
+
+####  白昼梦  
+##### 2849#       发表于 2024-4-11 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564645&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-11 22:54</a>
+
+没记错的话解包出来的时候就不能了</blockquote>
+记得解包的时候那些视频里有可以直接打墙炸的
+
+
+*****
+
+####  Aeons  
+##### 2850#       发表于 2024-4-11 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564997&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-11 23:25</a>
+
+记得解包的时候那些视频里有可以直接打墙炸的</blockquote>
+
+那是老解包了吧，前段时间解包就是不能的
+

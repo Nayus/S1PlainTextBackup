@@ -3567,3 +3567,16 @@ bd什么时候出<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ナルバレック  
+##### 320#       发表于 2024-4-11 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64560088&amp;ptid=2178694" target="_blank">novyMS 发表于 2024-4-11 16:00</a>
+
+bd什么时候出
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+除了闪哈那种同时发售的特例，正常情况最快也要九月到十月左右吧，慢一点就是明年见了
+

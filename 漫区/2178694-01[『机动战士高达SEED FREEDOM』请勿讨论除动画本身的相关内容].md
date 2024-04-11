@@ -3580,3 +3580,11 @@ bd什么时候出
   -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
 除了闪哈那种同时发售的特例，正常情况最快也要九月到十月左右吧，慢一点就是明年见了
 
+
+*****
+
+####  Smith·勇  
+##### 321#       发表于 2024-4-11 16:55
+
+怎么老惦记香水<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

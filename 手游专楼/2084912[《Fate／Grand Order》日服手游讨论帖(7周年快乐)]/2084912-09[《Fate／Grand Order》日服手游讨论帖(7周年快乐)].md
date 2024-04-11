@@ -93,3 +93,16 @@
 
 <img src="https://img.saraba1st.com/forum/202404/11/222339kop4ww89g121ea88.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 11991#       发表于 2024-4-11 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564277&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-11 22:23</a>
+
+刚注意到
+
+台风的地方是百慕大啊</blockquote>
+所长的碎片吧，估计是风属性的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

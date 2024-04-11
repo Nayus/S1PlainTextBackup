@@ -8060,3 +8060,41 @@ Angles的话就偏情绪化多一点了，钢琴开场，随后间奏跟着吉�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">歌好不好聽這種主觀問題叫人去洗推特您沒事吧
 
+
+*****
+
+####  tsukatsukieiko  
+##### 15544#       发表于 2024-4-11 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564412&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-11 22:35</a>
+
+我个人不太常听哥特金属（）
+
+国内的话，感觉很多二次元对太重型的风格不太感兴趣（）
+
+（只是个人感觉）</blockquote>
+anisong+金属，妖精帝国还是挺出名的，然后说供曲就更多了，Galneryus给记忆女神的女儿们写的ED到现在都是经典。
+
+*****
+
+####  御幸一也  
+##### 15545#       发表于 2024-4-11 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">記憶女神的女兒們……感覺有什麼ptsd要發作了
+
+*****
+
+####  SakuraのOrigami  
+##### 15546#       发表于 2024-4-11 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564438&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-11 22:36</a>
+
+有一說一火三角還是長谷川，但我看評價挺好的
+
+我不太吃這類型，不過編得很炸裂還是ave我溺愛了。 ...</blockquote>
+因为要考虑到大众（）
+
+大众能不能接受是个问题（）
+
+Mujica的曲子基本能看出是不敢写的太重的（）
+

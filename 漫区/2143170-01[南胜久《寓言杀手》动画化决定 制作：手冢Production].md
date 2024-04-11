@@ -669,3 +669,11 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 
 油腻腻的上色，意义不明的分镜白瞎了原作的电影感，真人版电影反而比动画好是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琴音  
+##### 71#       发表于 2024-4-11 08:23
+
+果不其然，毁原作作品。
+

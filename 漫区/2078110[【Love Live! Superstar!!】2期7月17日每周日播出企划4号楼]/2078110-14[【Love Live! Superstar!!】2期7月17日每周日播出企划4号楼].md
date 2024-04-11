@@ -136,3 +136,30 @@
 
 官漫推的冬毬x薇恩还是很好磕的，就是害怕动画。想磕是吧，工业糖精塞给你。特别是今年花田已经五开了，根本没把拉拉放在眼里呢jpg。
 
+
+*****
+
+####  ViyViy  
+##### 19942#       发表于 2024-4-11 15:46
+
+没准跟去年紫骑大孝孙高桥一样证明自己18年那次才是意外呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+我们滴一流编剧真想证明自己没问题就接骑士脚本吧，老虚帮你验过了，能扛住的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  280041437  
+##### 19943#       发表于 2024-4-11 15:47
+
+目前来看花大师其他原创，改编都还行，就算再写烂了也没多少人喷，就是苦了声优们，所以先相信吧
+
+*****
+
+####  ruffian  
+##### 19944#       发表于 2024-4-11 15:48
+
+那半个同人属性的官漫真能作数吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+抛开正统性不谈，第一部官漫，也就是朗读动画漫画版，直接两两乱炖，结果动画里不是查无此互动就是下毒，星3冬薇只是工业糖精那大赢特赢好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

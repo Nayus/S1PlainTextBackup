@@ -2519,3 +2519,23 @@ polygon就是纯粹的菜+白皮香蕉人思维
 左是pv出现的小红的妹妹，右是小黄憧憬的会长，中间应该是小蓝卡面里出现的那个人？ ...</blockquote>
 对 至少发型都对得上
 
+
+*****
+
+####  cckuku  
+##### 3208#       发表于 2024-4-11 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64561716&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-4-11 18:36</a>
+
+对 至少发型都对得上</blockquote>
+会长还是黄粉渐变上挑眼<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+IMG_3273.jpeg
+(240.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 18:37 上传
+
+<img src="https://img.saraba1st.com/forum/202404/11/183757xzgz13xb30ygmbuy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

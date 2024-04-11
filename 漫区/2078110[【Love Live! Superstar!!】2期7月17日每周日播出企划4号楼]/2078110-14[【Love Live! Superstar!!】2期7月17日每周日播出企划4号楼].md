@@ -163,3 +163,15 @@
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19945#       发表于 2024-4-11 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64555620&amp;ptid=2078110" target="_blank">starring 发表于 2024-4-11 09:51</a>
+去年结那生日的时候又说两人第一次约饭是20岁最后的生日，其中一个记错了吧 ...</blockquote>
+去年那期没看，估计是口误了，22年9月TV二期都录完了肯定认识，也合理的多
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

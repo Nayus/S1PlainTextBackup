@@ -8189,3 +8189,35 @@ MyGO这次的轮符雨意外的好听，不知道是确实做的比较好还是�
 
 我一直以为老歌里面评价最差的是我最喜欢的choir s choir，因为这首不仅b站播放量倒数，平时讨论也从来没见过几个人提（倒是cv那边好像还挺喜欢的）
 
+
+*****
+
+####  御幸一也  
+##### 15553#       发表于 2024-4-11 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564842&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-11 23:11</a>
+
+那双月这首应该是国内特供好评了，b站老官号上播放是第二高的，新歌评论区车长谷川地图炮到双月也有很多人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我猜是因為雙月有假藥吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CSC在**還是比雙月高一點，雖然也是倒數第二，YT懶得看了
+
+
+*****
+
+####  Aendst  
+##### 15554#       发表于 2024-4-11 23:26
+
+YTB双月比CSC少了十万左右的播放，我觉得差距其实挺大的了
+
+*****
+
+####  SakuraのOrigami  
+##### 15555#       发表于 2024-4-11 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564939&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-11 23:19</a>
+
+我猜是因為雙月有假藥吧
+
+CSC在**還是比雙月高一點，雖然也是倒數第二，YT懶得看了 ...</blockquote>
+双月除去假药我个人觉得其实也挺不错，至少能做到器乐和人声相对均匀一些（）
+

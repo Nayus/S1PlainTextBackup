@@ -8140,3 +8140,52 @@ MyGO这次的轮符雨意外的好听，不知道是确实做的比较好还是�
 希望Mujica能cover一下（）</blockquote>
 希望2nd能有新cover<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 15551#       发表于 2024-4-11 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/11/230433kuu2mg2q71q7wj19.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240411-145053_1778435557825425791_photo-0.jpg</strong> (362.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202404/11/230441nfp7th8otzeh2aue.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240411-145053_1778435557825425791_photo-1.jpg</strong> (471.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202404/11/230458ceuv7cbumo4deffl.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240411-145053_1778435557825425791_photo-2.jpg</strong> (630.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 23:04 上传
+
+[https://twitter.com/Kanon_Takao/status/1778435557825425791](https://twitter.com/Kanon_Takao/status/1778435557825425791)
+
+
+*****
+
+####  NODY  
+##### 15552#       发表于 2024-4-11 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564417&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-11 22:35</a>
+
+推特评价不会翻车的，除非难听到听者觉得不如耳聋的程度，知名全肯定圣地
+
+但双月确实是迷你专整体评价最不 ...</blockquote>
+那双月这首应该是国内特供好评了，b站老官号上播放是第二高的，新歌评论区车长谷川地图炮到双月也有很多人反驳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我一直以为老歌里面评价最差的是我最喜欢的choir s choir，因为这首不仅b站播放量倒数，平时讨论也从来没见过几个人提（倒是cv那边好像还挺喜欢的）
+

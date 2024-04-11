@@ -14171,3 +14171,13 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 爆狙+盟友，反甲交给队友，见势不妙立马启动飞行背包跑路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 2845#       发表于 2024-4-11 23:11
+
+次要武器就救世主是最好的了吗？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

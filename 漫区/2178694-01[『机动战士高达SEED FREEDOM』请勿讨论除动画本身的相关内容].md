@@ -3467,3 +3467,31 @@ NT日本5亿日元票房，中国有850W以上rmb
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  三合一出现  
+##### 310#       发表于 2024-4-11 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被按头真乐
+
+*****
+
+####  eyeego  
+##### 311#       发表于 2024-4-11 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64551953&amp;ptid=2178694" target="_blank">秘密图纸 发表于 2024-4-10 21:47</a>
+票房最惨的引进剧场版是魔神Z，好像只有几十万</blockquote>
+这玩意1是本身素质就不太行 2是国内上的时候bd都出了好久了谁愿意去看阉割版啊
+虽然我还是去看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  菲特妹  
+##### 312#       发表于 2024-4-11 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被炸的那个贴我就说这个营销号算不上什么业内舅舅
+就是爱蹭热点，车轱辘，正反都说，然后看风向删掉
+
+之前利兹与青鸟就这人反复发，看得出根本不懂这个行业
+

@@ -114,3 +114,14 @@
 石火只有平A才有取消动作，搞得玩家使用武技都要斟酌一番，担心武技施放途中被敌人强霸体直接一套把你耐力清空罚站，只有在石火成功后有长硬直才敢用，或者干脆彼岸萤这类放弃交互闷头扫地，看别人传羽毛的直播录像里提的一个观点的就挺好，像只狼那样有个敌人弹反的动作提示攻防转换了都要比现在这强霸体不讲道理直接打脸要强，想要无伤要么背敌人动作要么就龟缩等后手反击，玩家打得也不爽观众起来也不好看
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">哎还是希望忍组下作能更好吧
 
+
+*****
+
+####  operatbig  
+##### 2973#       发表于 2024-4-11 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64540716&amp;ptid=2092342" target="_blank">黑色的js 发表于 2024-4-9 22:34</a>
+
+这游戏少数几个红眼精英怪好像没剧情解释妖刀那个支线提到红眼想喝血 ...</blockquote>
+毒藤女的试验品吧，咬着新选组不放那人就是喝了药变红眼。
+

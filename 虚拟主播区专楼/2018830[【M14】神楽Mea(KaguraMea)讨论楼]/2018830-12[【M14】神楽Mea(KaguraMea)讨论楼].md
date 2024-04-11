@@ -47,3 +47,11 @@
 说是有个文档记录歌单的 还有每首歌的次数和打分啥的 今天是按照那个顺序唱的
 然而我找了好久没找到那个文档
 
+
+*****
+
+####  ashero  
+##### 16416#       发表于 2024-4-12 00:23
+
+【docs，一个神乐Mea也在使用的国内在线歌单文档】 [https://www.bilibili.com/video/B ... 86527b42f5ec3ffa9b6](https://www.bilibili.com/video/BV17x4y1e7XS/?share_source=copy_web&amp;vd_source=f783291f4748c86527b42f5ec3ffa9b6)
+

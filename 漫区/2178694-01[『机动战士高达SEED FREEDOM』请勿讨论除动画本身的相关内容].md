@@ -3457,3 +3457,13 @@ NT日本5亿日元票房，中国有850W以上rmb
 
 属实是非常爆笑了
 
+
+*****
+
+####  shiko  
+##### 309#       发表于 2024-4-11 09:17
+
+还以为是福田道歉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

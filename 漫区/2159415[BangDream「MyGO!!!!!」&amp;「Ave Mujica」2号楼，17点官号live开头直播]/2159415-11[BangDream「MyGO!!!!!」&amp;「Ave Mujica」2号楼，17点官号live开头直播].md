@@ -7812,3 +7812,38 @@ mv（高尾解说版）
 什么叫骗人给你洗脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 out了，人家已经直球说“mujica就是mygo的附属品”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 15520#       发表于 2024-4-11 21:41
+
+看着弹幕，好想让EG回来给鸡作曲啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  EBe  
+##### 15521#       发表于 2024-4-11 21:41
+
+鸡1st single那封面现在越发觉得就是不上心，世界观和b站官号语c一样真是推卸责任的好工具啊
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  SakuraのOrigami  
+##### 15522#       发表于 2024-4-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64563667&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-11 21:41</a>
+
+看着弹幕，好想让EG回来给鸡作曲啊</blockquote>
+EG目前弄9个团真的忙的过来吗（）
+
+*****
+
+####  PDQ4  
+##### 15523#       发表于 2024-4-11 21:46
+
+一单那个封面说实话我溺爱了，不二次元和mini专一样可以摆出来，但是特典还没和解。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

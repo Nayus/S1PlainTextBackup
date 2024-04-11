@@ -2491,3 +2491,31 @@ polygon就是纯粹的菜+白皮香蕉人思维
 
 新的这个神秘值这么高吗
 
+
+*****
+
+####  rgauss  
+##### 3205#       发表于 2024-4-11 18:31
+
+ 本帖最后由 rgauss 于 2024-4-11 18:35 编辑 
+
+<img src="https://p.sda1.dev/16/e745f63f7b6e76376e5363e8bc292fcd/1000002948.jpg" referrerpolicy="no-referrer">
+
+对应红蓝黄c的对应位 除了会长 都看过等身立绘了吧
+
+*****
+
+####  cckuku  
+##### 3206#       发表于 2024-4-11 18:35
+
+左是pv出现的小红的妹妹，右是小黄憧憬的会长，中间应该是小蓝卡面里出现的那个人？
+
+*****
+
+####  rgauss  
+##### 3207#       发表于 2024-4-11 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64561710&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-11 18:35</a>
+左是pv出现的小红的妹妹，右是小黄憧憬的会长，中间应该是小蓝卡面里出现的那个人？ ...</blockquote>
+对 至少发型都对得上
+

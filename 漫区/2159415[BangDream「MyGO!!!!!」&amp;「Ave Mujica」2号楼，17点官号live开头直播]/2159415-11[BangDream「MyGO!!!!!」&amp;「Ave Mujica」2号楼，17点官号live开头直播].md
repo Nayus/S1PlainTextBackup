@@ -6892,3 +6892,11 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 2nd结束之后可以剑指3rd<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  枫林不见  
+##### 15426#       发表于 2024-4-11 12:01
+
+猫希这个爱知限定语音，狸希完全变成饲主了啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这下要给猫猫负责一辈子了。
+

@@ -7707,3 +7707,75 @@ wsd居然找羊发了个简中特供ws带货视频
 
 2024-4-11 21:13 上传
 
+
+*****
+
+####  Aendst  
+##### 15509#       发表于 2024-4-11 21:16
+
+怎么又放，不过鉴赏版可以看看吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15510#       发表于 2024-4-11 21:17
+
+mv（高尾解说版）
+
+*****
+
+####  EBe  
+##### 15511#       发表于 2024-4-11 21:18
+
+妈呀有点可怜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15512#       发表于 2024-4-11 21:18
+
+平移，平移，平移<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15513#       发表于 2024-4-11 21:18
+
+我不想再看到平移了kora
+
+
+*****
+
+####  PDQ4  
+##### 15514#       发表于 2024-4-11 21:21
+
+终于可以看到正式宣传2nd了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15515#       发表于 2024-4-11 21:21
+
+让高尾工商春日影是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15516#       发表于 2024-4-11 21:22
+
+为什么要演奏春日影（小白.mp3）<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 15517#       发表于 2024-4-11 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64563127&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-4-11 20:58</a>
+姐妹，姐妹，姐妹，姐妹
+天天呕呕呕，嘴巴干净点</blockquote>
+就呕怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+先去官推让两个乐队官号互相关注了再来说“姐妹”吧
+互相关注列表查无此号的姐妹，真是太姐妹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

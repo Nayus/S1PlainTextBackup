@@ -7210,3 +7210,112 @@ MV看了，大致想法猜的差不多
 
 现在，哈哈。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EBe  
+##### 15456#       发表于 2024-4-11 20:26
+
+别说，4.7官号下面还有人说轮符雨也没有mv，别太激动<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Aendst  
+##### 15457#       发表于 2024-4-11 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562774&amp;ptid=2159415" target="_blank">EBe 发表于 2024-4-11 20:26</a>
+
+想看侦探风
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 S1Next-鹅版 v2.1.2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">可以梦吗，我非常需要
+
+*****
+
+####  御幸一也  
+##### 15458#       发表于 2024-4-11 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562760&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-11 20:24</a>
+
+人偶世界观应该不会变吧，我觉得人偶属于底层设计那种。
+
+但是人偶可以演出不同的故事，反正世界都毁灭了， ...</blockquote>
+訪談說了“今回はお人形さんだったけど”，說明人偶不是底層設計，只是這個“人偶世界觀”的設定，說不定下次就不是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15459#       发表于 2024-4-11 20:30
+
+mygo粉不是经常被回旋镖吗，已经习惯了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mujica粉就不一样了，很多次往很离谱的方向滑坡结果最后发现中了
+
+
+*****
+
+####  PDQ4  
+##### 15460#       发表于 2024-4-11 20:31
+
+原来mujica是滑坡世界观<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15461#       发表于 2024-4-11 20:31
+
+不得不说mygo作为带有一点邦二期开头的团投入的资源确实多，虽然这次有点敷衍但也是正经的mv
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15462#       发表于 2024-4-11 20:32
+
+有特色的曲子也很多
+
+*****
+
+####  笋干爆炸碱  
+##### 15463#       发表于 2024-4-11 20:32
+
+就好像我以为最夸张的情况是新曲mv搞个风景照片一图流<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+结果直接没有
+
+*****
+
+####  PDQ4  
+##### 15464#       发表于 2024-4-11 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562809&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-11 20:29</a>
+
+訪談說了“今回はお人形さんだったけど”，說明人偶不是底層設計，只是這個“人偶世界觀”的設定，說不定 ...</blockquote>
+不是人偶那限制更少了，可以有那种全员小龙人吗，有龙设更好了，爱看<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 15465#       发表于 2024-4-11 20:33
+
+取关官号了，嫉妒使我面目全非<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15466#       发表于 2024-4-11 20:34
+
+https://www.pixiv.net/artworks/117734552<img src="https://p.sda1.dev/16/cabfd95999e7e3a781b5abde0cc42fcc/CMP_20240411203407459.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yuyin589  
+##### 15467#       发表于 2024-4-11 20:35
+
+换世界观的话会摘面具吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

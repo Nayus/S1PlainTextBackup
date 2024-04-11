@@ -13674,3 +13674,18 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  赤井稻妻  
+##### 2792#       发表于 2024-4-11 08:41
+
+打机器人我现在带110，可以比较高效解决坦克，还灵活
+
+*****
+
+####  变老的大二  
+##### 2793#       发表于 2024-4-11 08:44
+
+激光+308mm，直接炸掉机器人老家。 正面对枪人家喊增援越打越多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

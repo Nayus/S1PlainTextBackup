@@ -13889,3 +13889,34 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在机器人低级图sos全是落地看到房主被飞艇追着杀啊
 
+
+*****
+
+####  断片集  
+##### 2815#       发表于 2024-4-11 18:08
+
+爆裂铳好爽，这是不是机炮完全上位了
+
+可惜没啥很好用的3号位清杂武器，盟友用着还没镰刀舒服
+
+
+*****
+
+####  暴走的包子  
+##### 2816#       发表于 2024-4-11 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">爆炸铳这射速太难受了，而且爆炸范围是不是有问题，射远处的有时候能爆一片，有时候好像就是个哑弹，感觉就打机器人好用，还得和焦土竞争
+
+—— 來自 samsung SM-F9260, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白昼梦  
+##### 2817#       发表于 2024-4-11 18:14
+
+ 本帖最后由 白昼梦 于 2024-4-11 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64561532&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-4-11 18:13</a>
+
+爆炸铳这射速太难受了，而且爆炸范围是不是有问题，射远处的有时候能爆一片，有时候好像就是个哑弹 ...</blockquote>
+打虫子电弧加激光狗的配置之下，应该是最好用的主武器了 能炸巢 不用死绑空袭了，还有就是打坦克虫屁股和喷液虫屁股都不怕90减伤
+

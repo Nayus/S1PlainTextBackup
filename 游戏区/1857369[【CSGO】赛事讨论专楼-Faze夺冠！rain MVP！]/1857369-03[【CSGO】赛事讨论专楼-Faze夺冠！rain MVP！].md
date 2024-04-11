@@ -206,3 +206,11 @@ G2太反人类了，tesse把送手杀都能进加时，小孩niko拿完首杀还
 给打完下班p成举奖杯真没绷&amp;#x ...</blockquote>
 碗橱看见这段串得我听着都难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4258#       发表于 2024-4-11 10:31
+
+这傻逼IEM成都签名会安排，弱智中的弱智。
+

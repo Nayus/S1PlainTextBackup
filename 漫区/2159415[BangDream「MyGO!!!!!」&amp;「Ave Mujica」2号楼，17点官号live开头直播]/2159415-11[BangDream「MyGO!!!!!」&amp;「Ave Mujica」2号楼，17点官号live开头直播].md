@@ -6876,3 +6876,11 @@ soyo走的是重聚后的刻薄人设么，还是最开始那种亚撒西小心�
 
 成团后爽姐的人设有种性转奥伯龙的美，其实还挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 15424#       发表于 2024-4-11 08:28
+
+2nd结束之后怕是又要放置了
+

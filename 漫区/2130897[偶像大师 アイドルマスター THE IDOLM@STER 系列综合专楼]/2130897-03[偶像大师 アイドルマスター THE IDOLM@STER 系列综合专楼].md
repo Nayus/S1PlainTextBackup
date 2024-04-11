@@ -2596,3 +2596,11 @@ IMG_3273.jpeg
 
 这三位？真红黄蓝大战伪红黄蓝，那必将是tmd惊世一战呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 3213#       发表于 2024-4-11 21:59
+
+为什么里c都是渐变发色啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强者的标志？
+

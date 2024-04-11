@@ -21,3 +21,13 @@
 
 观者一层boss不是蹲起怪，删两张防升下暴怒随便拿张输出牌不就一路秒过去了么
 
+
+*****
+
+####  Thio  
+##### 469#       发表于 2024-4-11 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64535132&amp;ptid=1567869" target="_blank">wiig 发表于 2024-4-9 13:10</a>
+观者一层应该怎么选路线？问号走多了没牌拿 怪打多了还掉血</blockquote>
+照着精英走……
+

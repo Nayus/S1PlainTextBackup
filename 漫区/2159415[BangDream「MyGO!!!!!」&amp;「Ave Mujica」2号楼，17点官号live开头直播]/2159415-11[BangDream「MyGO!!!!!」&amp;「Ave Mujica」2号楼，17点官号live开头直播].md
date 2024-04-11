@@ -7996,3 +7996,67 @@ supalove不是挺适合mygo的吗，好评如潮，还经常看到人夸没有�
 
 建议别把wsd想得太专业<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 15540#       发表于 2024-4-11 22:27
+
+经常看到的说法就是长谷川给mujica写的歌都烂不该让他写，但目前看来评价不好的也就一个utopia吧，无论是双月、angles还是新歌评价都还可以，b站评论区就有个人车长谷川的时候把双月给一起骂了，结果下面都是车他的
+
+然后现在两首新歌播放和推特评价也没有明显的翻车，所以wsd大概觉得没啥问题，不过要是真不满的话可以试试看上推特多骂骂，看看烤羊多有效果啊羊姐都给你回旋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SakuraのOrigami  
+##### 15541#       发表于 2024-4-11 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564156&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-11 22:14</a>
+
+可能单纯是因为乌托邦和三角这两首的播放量确实还行，官方觉得可以继续用
+
+体感日本那边好像也没 ...</blockquote>
+我个人不太常听哥特金属（）
+
+国内的话，感觉很多二次元对太重型的风格不太感兴趣（）
+
+（只是个人感觉）
+虽说日本那边也没多少人听摇滚和金属就是了
+
+日本那边金属乐队的话，感觉比较常听的就是旋律金属和力量金属，比如G团，HAGANE，X Japan还有Unlucky Morpheus之类的（？）
+
+如果是偏anisong一点的话まだ見たことのないセカイ应该符合一点（）
+
+Utopia还有Angles的话，我个人觉得其实算中规中矩
+
+Utopia主要还是副歌器乐部分没写的很满，尽管主旋律很多时候使用长音来给器乐做铺垫，但感觉还是为了部分原因做了取舍
+
+Angles的话就偏情绪化多一点了，钢琴开场，随后间奏跟着吉他分解和弦后器乐大开，直接激起情绪
+
+可能是因为制作人不敢写太重，而且考虑到3次元这支乐队也得进行演奏，所以只能写成这样（）
+
+不过Delta的话应该算是在试着去写狂一点了，毕竟一小段速弹也给整出来了（）
+
+*****
+
+####  Aendst  
+##### 15542#       发表于 2024-4-11 22:35
+
+ 本帖最后由 Aendst 于 2024-4-11 22:36 编辑 
+
+推特评价不会翻车的，除非难听到听者觉得不如耳聋的程度，知名全肯定圣地
+
+但双月确实是迷你专整体评价最不好的一首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管对不熟悉重型音乐还是熟悉重型音乐的人来说都是
+
+乌托邦自不必说，实际上也就angles和新曲评价还不错
+
+而且关键在于现在一共就这么点歌，他写了四首一半差评一半好评（并且老曲差评多），其他人写的五首都好评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照正常情况来说长谷川优先度当然是最低的
+
+*****
+
+####  御幸一也  
+##### 15543#       发表于 2024-4-11 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">歌好不好聽這種主觀問題叫人去洗推特您沒事吧
+

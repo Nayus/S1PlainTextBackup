@@ -72,3 +72,24 @@
 只有一只剑弗兰
 和坤打手.gif<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 11990#       发表于 2024-4-11 22:23
+
+刚注意到
+
+台风的地方是百慕大啊
+
+这是要搞啥事
+
+043EF4DD-D7A9-4403-8F82-BC13CD8B55E4.png
+(675.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202404/11/222339kop4ww89g121ea88.png" referrerpolicy="no-referrer">
+

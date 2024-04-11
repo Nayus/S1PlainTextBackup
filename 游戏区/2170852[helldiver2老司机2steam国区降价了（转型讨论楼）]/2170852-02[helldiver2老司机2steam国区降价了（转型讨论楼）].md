@@ -14078,3 +14078,19 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 铝热剂真的有用吗</blockquote>
 有用但延时太长，等于是单体手雷
 
+
+*****
+
+####  LrGsite  
+##### 2834#       发表于 2024-4-11 20:50
+
+铝热手雷真不行吧,强袭都干不掉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦  
+##### 2835#       发表于 2024-4-11 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">铝热我试了下好像打强袭都得两发以上，要么就是粘的位置不对。
+还有就是投掷距离和抛物线没魔改，想粘泰坦什么的还挺蠢的
+

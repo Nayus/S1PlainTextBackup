@@ -22,3 +22,11 @@
 
 怎么又是老活动复刻还只有一个ST，说好产能呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  江戸前ルナ  
+##### 1011#         楼主| 发表于 2024-4-11 20:47
+
+据闻解包有联动位了，但是其他不明<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -7380,3 +7380,100 @@ wsd眼里还是看钱的，现在舍得给狗花钱大概也是因为动画和cd
 个人爱好，之前看了个老师的mujica全员人外化的图，太喜欢了</blockquote>
 哪位老師我也要看看<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 15474#       发表于 2024-4-11 20:44
+
+ 本帖最后由 Aendst 于 2024-4-11 20:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">mujica的世界观和人设风格很适合搞一些非常有意思的东西，但我觉得武士道不行<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不知道能不能寄希望于天降强力stf
+
+*****
+
+####  EBe  
+##### 15475#       发表于 2024-4-11 20:45
+
+实话说不太看好鸡能火过狗。剧情后发劣势在那，而且个人觉得狗的曲风更适合大众一些，目前来看狗的确供曲更好<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  cindy355  
+##### 15476#       发表于 2024-4-11 20:48
+
+感觉应该不会符合所有人的喜好所以就不发了，不过有些要素真的很喜欢所以讲讲
+
+初华：天使，古宗教画中的非人形的天使，羽翼上的眼，看守天使，因爱人而模仿人
+
+睦：木偶飞龙，仔细看的话会发现飞龙的部分像是人偶组件被强行装在了人的身体上
+
+海铃：冷眼看着屏幕前的你的恶魔公爵，彬彬有礼近乎人类，但双角、反向关节、尾巴都在陈述身为非人的事实
+
+*****
+
+####  PDQ4  
+##### 15477#       发表于 2024-4-11 20:49
+
+wsd如果真的只是向钱看齐就好了。
+
+虽然按照他以往的劣迹，我不太信。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 15478#       发表于 2024-4-11 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562969&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-11 20:43</a>
+
+哪位老師我也要看看</blockquote>
+偷偷发您，老师的画技可能不太好但设计我非常喜欢。
+
+
+*****
+
+####  cindy355  
+##### 15479#       发表于 2024-4-11 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64563024&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-11 20:48</a>
+
+感觉应该不会符合所有人的喜好所以就不发了，不过有些要素真的很喜欢所以讲讲
+
+初华：天使，古宗教画中的非 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">老师没想好祥子和喵梦的设计，很风趣地说祥子负责这个女高乐队的女高部分。但我仔细品品又感觉真妙，祥子就像是来须苍真一样，虽是人类但却是真正的魔王，很好味呢。
+
+*****
+
+####  skives  
+##### 15480#       发表于 2024-4-11 20:52
+
+关键也看不出来总体上鸡和狗谁更火
+鸡现在基本上没什么塑造  也没什么资源
+但是从睦祥周边的调价和祥子出场加起来也就十分钟剧情催生出来的二创数量来看
+也很有潜力
+
+
+*****
+
+####  傘木希美  
+##### 15481#       发表于 2024-4-11 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562929&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-4-11 20:39</a>
+
+https://x.com/rienz_zy/status/1778401962503127266蛮有意思的一张图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">这个好！
+
+*****
+
+####  cindy355  
+##### 15482#       发表于 2024-4-11 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562739&amp;ptid=2159415" target="_blank">EBe 发表于 2024-4-11 20:23</a>
+
+别期待了，想想真姐妹父母都没法一碗水端平，认清定位啦
+
+—— 来自 HUAWEI OXF-AN00, Android 12上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的是我们椎名立希吗
+

@@ -61,3 +61,15 @@ ryosho.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四破狐夫终于爽一下了
 
+
+*****
+
+####  Yuzutea  
+##### 632#       发表于 2024-4-12 00:56
+
+ 本帖最后由 Yuzutea 于 2024-4-12 00:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这纯沉沦队能日常本两回合打晕牛啊
+
+感觉四号线强度要吓人了
+

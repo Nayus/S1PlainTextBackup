@@ -14307,3 +14307,11 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 这还不够幽默么
 
+
+*****
+
+####  白昼梦  
+##### 2858#       发表于 2024-4-12 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">榴弹手枪备弹给的也太抠了，9发，捡弹药才给一发，捡补给也才两发
+

@@ -9943,3 +9943,11 @@ max局都能遇到，两个W，总计2蛋，9个怪
 审查者带了两个小sp增两个小特殊能力增加赖皮的好玩打的保守一点减少死亡次数打完一管墨就是一个新 ...</blockquote>
 铅笔直接一个大技能SP强+两个大技能SP增起步吧，反正作为后排狙格子充裕得很
 
+
+*****
+
+####  carroy  
+##### 3964#       发表于 2024-4-12 01:02
+
+这游戏到底还有多少人在玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

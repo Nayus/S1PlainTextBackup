@@ -13792,3 +13792,16 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 高难威胁最大的感觉还得是持盾蹂躏者，盾是重甲数量又多，只有aoe处理起来比较方便，另一只手重机枪压制力超级强，不能快速消灭的话还手的机会都没多少
 
+
+*****
+
+####  Ashice  
+##### 2804#       发表于 2024-4-11 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64557388&amp;ptid=2170852" target="_blank">断片集 发表于 2024-4-11 12:00</a>
+
+电锯哥无甲的，就是血厚，&amp;# ...</blockquote>
+主宰加强之后这些蹂躏者感觉都不难打
+
+喜锯人总在我换弹夹的时候跑到我脸上，一次就是两三只<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

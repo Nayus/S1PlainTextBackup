@@ -7779,3 +7779,36 @@ mv（高尾解说版）
 先去官推让两个乐队官号互相关注了再来说“姐妹”吧
 互相关注列表查无此号的姐妹，真是太姐妹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 15518#       发表于 2024-4-11 21:25
+
+四个月前说姐妹我信了，现在还在说姐妹我只觉得想骗人给你洗脚<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋干爆炸碱| + 1||
+| Aendst| + 1|欢乐多|
+| 御幸一也| + 1|笑得想死|
+
+查看全部评分
+
+
+*****
+
+####  -LYRE-  
+##### 15519#       发表于 2024-4-11 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64563477&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-4-11 21:25</a>
+四个月前说姐妹我信了，现在还在说姐妹我只觉得想骗人给你洗脚</blockquote>
+什么叫骗人给你洗脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+out了，人家已经直球说“mujica就是mygo的附属品”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

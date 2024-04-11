@@ -7847,3 +7847,48 @@ EG目前弄9个团真的忙的过来吗（）
 
 一单那个封面说实话我溺爱了，不二次元和mini专一样可以摆出来，但是特典还没和解。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 15524#       发表于 2024-4-11 21:47
+
+supalove不是挺适合mygo的吗，好评如潮，还经常看到人夸没有走向同质化
+
+也就只有mujica这边不太行，好评最多的是EG写的团曲，所以按照合适来说EG加个mujica就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就加一个团还是不会很麻烦的
+
+
+*****
+
+####  cindy355  
+##### 15525#       发表于 2024-4-11 21:50
+
+ 本帖最后由 cindy355 于 2024-4-11 21:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">洗脚婢
+
+每个团里有自己的洗脚婢，整个企划里也有洗脚婢团哦，企划之间也有洗脚婢企划之分
+
+*****
+
+####  Aendst  
+##### 15526#       发表于 2024-4-11 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这或许就是偶像企划不得不尝的一环吧
+
+*****
+
+####  EBe  
+##### 15527#       发表于 2024-4-11 21:54
+
+在整个企划推洗脚婢团，在不是洗脚婢团里推洗脚婢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  御幸一也  
+##### 15528#       发表于 2024-4-11 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是偶偶又像像啊
+

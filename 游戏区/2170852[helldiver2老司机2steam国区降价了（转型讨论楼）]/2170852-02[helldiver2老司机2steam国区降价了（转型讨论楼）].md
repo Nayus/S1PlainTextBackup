@@ -13961,3 +13961,24 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打机器人我感觉射速不够用没焦土那么随意，不过打双足和机器人一发倒一片挺爽的
 
+
+*****
+
+####  断片集  
+##### 2822#       发表于 2024-4-11 19:00
+
+ 本帖最后由 断片集 于 2024-4-11 19:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64561855&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-11 18:48</a>
+
+打机器人我感觉射速不够用没焦土那么随意，不过打双足和机器人一发倒一片挺爽的 ...</blockquote>
+可以切枪把拉栓动作卡掉。
+
+不对，好像按ctrl用战备都能卡掉后摇
+
+*****
+
+####  BadYanL  
+##### 2823#       发表于 2024-4-11 19:05
+
+战舰模块升了加燃烧35%的，伤害好夸张
+

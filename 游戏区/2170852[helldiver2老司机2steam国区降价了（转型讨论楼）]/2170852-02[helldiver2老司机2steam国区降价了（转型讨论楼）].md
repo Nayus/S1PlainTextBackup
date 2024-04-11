@@ -13689,3 +13689,13 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 激光+308mm，直接炸掉机器人老家。 正面对枪人家喊增援越打越多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kojimaru  
+##### 2794#       发表于 2024-4-11 08:51
+
+[https://www.bilibili.com/video/BV1oq421w7yc](https://www.bilibili.com/video/BV1oq421w7yc)  机器人小教学
+
+反正能偷鸡绝对不要正面打
+

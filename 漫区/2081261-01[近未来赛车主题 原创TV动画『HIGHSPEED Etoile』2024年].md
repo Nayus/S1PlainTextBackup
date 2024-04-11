@@ -1004,3 +1004,19 @@ O了，隔壁竞轮比这个烂得多
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  天子控  
+##### 214#       发表于 2024-4-11 20:11
+
+<img src="https://img.saraba1st.com/forum/202404/11/201011dhcuvhviuutlxv4j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 20:10 上传
+
+还有高手<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -7573,3 +7573,137 @@ wsd看钱的典型不就是萝和蝶，萝本来连动画资源都没有，火�
 
 追星现场穿情侣装是吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 15494#       发表于 2024-4-11 21:04
+
+wsd的运营水平确实不行 是不是缺人啊 多招点员工吧
+
+*****
+
+####  御幸一也  
+##### 15495#       发表于 2024-4-11 21:04
+
+約好的吧，高尾和音寶穿得好搭<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15496#       发表于 2024-4-11 21:05
+
+这蛋白棒是不是真没卖完啊，每次生放都要开两盒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 15497#       发表于 2024-4-11 21:06
+
+音宝也带choker，这下也符合祥子xp了，还能这样子届到。
+
+风格好统一，不知道是不是约好的，也是一种情侣姐妹装<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15498#       发表于 2024-4-11 21:08
+
+音宝和高尾本来就是会约出去玩的关系（还有个鼓），衣服可能还真是一起买的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15499#       发表于 2024-4-11 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这俩人感觉好熟啊，气氛很好，应该是约好了吧
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15500#       发表于 2024-4-11 21:09
+
+https://x.com/Bullfalk/status/1777887530236699114<img src="https://p.sda1.dev/16/20e89a35833eb1e28f31202f77f0e02e/CMP_20240411210854189.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 15501#       发表于 2024-4-11 21:11
+
+笑得想死，世界觀繃不住了
+
+不是小祥是ob呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15502#       发表于 2024-4-11 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64563242&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-11 21:08</a>
+
+这俩人感觉好熟啊，气氛很好，应该是约好了吧</blockquote>
+来邦邦前就是熟人，mujica企划没公布的时候就提到了，不如说祥子是蝶推大概率还是逆输入<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 15503#       发表于 2024-4-11 21:12
+
+音宝儿一发抽到oblivionis，真好啊。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 15504#       发表于 2024-4-11 21:12
+
+鸡其他成员啥时候上生放啊，想看化学反应了，感觉这帮人会很有趣<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  cindy355  
+##### 15505#       发表于 2024-4-11 21:12
+
+wsd居然找羊发了个简中特供ws带货视频
+
+*****
+
+####  御幸一也  
+##### 15506#       发表于 2024-4-11 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/11/211203yvdu5ir60mzu5ctu.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_น้องซากิโกด โก๊ะกิเกงโย๊ะ(@pcxwise)_20240410-155.jpg</strong> (847.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 21:12 上传
+
+[https://twitter.com/pcxwise/status/1778089738731200532](https://twitter.com/pcxwise/status/1778089738731200532)
+
+*****
+
+####  PDQ4  
+##### 15507#       发表于 2024-4-11 21:13
+
+鸡里高尾可是吐槽役，其他仨还没上的肯定都是高手，好想看鸡相声<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15508#       发表于 2024-4-11 21:13
+
+她好爱啊，特地看生放的高尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/11/211333ge4zxxbseg41g8me.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (12.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-11 21:13 上传
+

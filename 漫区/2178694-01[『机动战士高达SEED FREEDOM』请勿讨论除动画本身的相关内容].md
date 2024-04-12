@@ -3614,3 +3614,22 @@ bd什么时候出
 怎么老惦记香水</blockquote>
 因为这一次的香水贩卖，如果你从头开始看是非常非常有意思，直接明牌告诉你，每个人的备货量是多少？剩下多少个贩卖速度是多少可以清楚地知道
 
+
+*****
+
+####  死难者23er  
+##### 325#       发表于 2024-4-12 16:18
+
+现在的卡嘉莉和阿斯兰党无论是单人还是CP人气和吸金能力都好离谱，今天新出的CP立牌，AC已经卖光好几次，如果后面真的出种正的话，真的要感谢他们一下了
+
+
+*****
+
+####  Y.Cassano  
+##### 326#       发表于 2024-4-12 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64562011&amp;ptid=2178694" target="_blank">查查沙拉 发表于 2024-4-11 19:03</a>
+
+BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代哥：塞个特殊配色的HG最多了，反正一堆人买。
+

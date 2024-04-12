@@ -3633,3 +3633,11 @@ bd什么时候出
 BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代哥：塞个特殊配色的HG最多了，反正一堆人买。
 
+
+*****
+
+####  kisstv22  
+##### 327#       发表于 2024-4-12 16:50
+
+种真有后续应该也要等待一段时间吧，短期内可能性不大
+

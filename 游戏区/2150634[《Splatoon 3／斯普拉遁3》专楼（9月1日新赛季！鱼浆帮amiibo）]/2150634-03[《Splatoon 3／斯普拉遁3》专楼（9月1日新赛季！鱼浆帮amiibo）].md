@@ -9982,3 +9982,21 @@ max局都能遇到，两个W，总计2蛋，9个怪
 论坛助手,iPhone</blockquote>
 之前甲子园冠军一点消息都没有，感觉世锦赛之后应该有大的，延长一年的更新吧。不然世锦赛也太没排面了。然后下周估计就是季中更新。
 
+
+*****
+
+####  罗克萨斯  
+##### 3968#       发表于 2024-4-12 23:24
+
+被鲨鱼战术恶心坏了，连加特林唯一神都会输<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/12/232347loe99og9k66w619p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-12-23-21-28-335_com.google.android.youtube-edit.jpg</strong> (908.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-12 23:23 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

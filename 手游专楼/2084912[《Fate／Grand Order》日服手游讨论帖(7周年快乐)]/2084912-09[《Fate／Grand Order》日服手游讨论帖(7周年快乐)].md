@@ -775,3 +775,58 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次其实比第1次简单多了  第1次要打死才行 外加初见杀翻了就要从头来过 
 
+
+*****
+
+####  exiaexa  
+##### 12056#       发表于 2024-4-12 22:08
+
+ 本帖最后由 exiaexa 于 2024-4-12 22:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575862&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 22:02</a>
+
+这次其实比第1次简单多了  第1次要打死才行 外加初见杀翻了就要从头来过  ...</blockquote>
+你觉得简单很可能是因为伯爵那个500%麻痹，或者前面因为带礼装打得快所以点数多
+
+实际上第一次完全没有第九关第十关这俩来恶心人玩意儿，特别是如果第九关没忍住用了无敌的话，第十关就要狠狠的吃屎
+
+第一次唯一的问题是，他没告诉你羁绊给的贼多
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 12057#       发表于 2024-4-12 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575922&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-12 22:08</a>
+
+你觉得简单很可能是因为伯爵那个500%麻痹，或者前面因为带礼装打得快所以点数多
+
+实际上第一次完全没有第九 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第9关我没打死对面 对面也打不死我  司马懿和狗蛋都还很健康
+
+*****
+
+####  exiaexa  
+##### 12058#       发表于 2024-4-12 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575942&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 22:10</a>
+
+第9关我没打死对面 对面也打不死我  司马懿和狗蛋都还很健康</blockquote>
+欧，羡慕
+
+黑奴的狗蛋第二T就被打红了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12059#       发表于 2024-4-12 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575965&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-12 22:12</a>
+
+欧，羡慕
+
+黑奴的狗蛋第二T就被打红了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空名司马懿2个防一开打我甚至是0啊
+

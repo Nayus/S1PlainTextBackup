@@ -14558,3 +14558,13 @@ sos丢过以后就不能丢了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jy000129  
+##### 2884#       发表于 2024-4-12 14:51
+
+巨型者打断两只手上飞机成就用什么武器打比较好？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -9969,3 +9969,16 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  laosai13  
+##### 3967#       发表于 2024-4-12 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575708&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-4-12 21:46</a>
+
+至今没有赛季中宣发，世锦赛是不是有大的
+
+论坛助手,iPhone</blockquote>
+之前甲子园冠军一点消息都没有，感觉世锦赛之后应该有大的，延长一年的更新吧。不然世锦赛也太没排面了。然后下周估计就是季中更新。
+

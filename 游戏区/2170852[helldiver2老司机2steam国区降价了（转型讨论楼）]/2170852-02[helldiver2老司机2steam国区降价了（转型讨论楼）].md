@@ -14800,3 +14800,18 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 你游ai的索敌逻辑：只要触发事件就拉警报
 具体例子：怪巡逻时踩到了地图默认的地雷，于是触发了警报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 2907#       发表于 2024-4-12 22:46
+
+空袭好像是会触发警报 然后冲着你扔空袭的位置去
+
+*****
+
+####  Launce  
+##### 2908#       发表于 2024-4-12 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，打着机器人突然把我CPU干爆了
+

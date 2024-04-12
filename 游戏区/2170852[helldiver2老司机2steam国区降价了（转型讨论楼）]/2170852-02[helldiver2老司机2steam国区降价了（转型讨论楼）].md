@@ -14854,3 +14854,12 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 
 打机器人换回传统的磁轨炮了,感觉还是可以的
 
+
+*****
+
+####  rainknine  
+##### 2913#       发表于 2024-4-13 00:58
+
+虫子防卫战…好多…泰坦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+甚至带了仨反重甲配备都觉得不够用的地步
+

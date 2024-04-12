@@ -984,3 +984,24 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  sin.yugi  
+##### 12075#       发表于 2024-4-13 00:57
+
+肉松和兵库北双5星吧
+
+— from nubia NX729J, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  exiaexa  
+##### 12076#       发表于 2024-4-13 01:02
+
+苍银真就硬憋
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+熬到fgo完结前夕一次性打包是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3702,3 +3702,14 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 —— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  斤心  
+##### 334#       发表于 2024-4-13 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64572222&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-12 16:18</a>
+
+现在的卡嘉莉和阿斯兰党无论是单人还是CP人气和吸金能力都好离谱，今天新出的CP立牌，AC已经卖光好几次，如 ...</blockquote>
+震惊jpg 我印象还停留在种命结尾ac根本没上桌，原来剧场版效应已经这样了
+

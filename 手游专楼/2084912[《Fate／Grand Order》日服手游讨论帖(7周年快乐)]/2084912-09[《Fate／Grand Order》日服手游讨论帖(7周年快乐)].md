@@ -894,3 +894,33 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 累积100个左右徽章就够用了，最大的敌人是墨西哥老姐，几率无敌恶心，还有就是要等2回合等它自己定神上debuff的大鱼怪。上了后就是割草了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 12066#       发表于 2024-4-13 00:15
+
+哦牛批
+
+*****
+
+####  洛克萨斯  
+##### 12067#       发表于 2024-4-13 00:16
+
+<img src="https://img.saraba1st.com/forum/202404/13/001633eof2oqn5zmzuen2n.png" referrerpolicy="no-referrer">
+
+<strong>J0DU3C6VN0{5(24`9F$AMI1_tmb.png</strong> (33.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 00:16 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">至此四大系列全齐
+
+*****
+
+####  cenhr  
+##### 12068#       发表于 2024-4-13 00:21
+
+大概青子5*，有珠4*，草四郎免费赠送？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -830,3 +830,38 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 黑奴的狗蛋第二T就被打红了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空名司马懿2个防一开打我甚至是0啊
 
+
+*****
+
+####  exiaexa  
+##### 12060#       发表于 2024-4-12 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575967&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 22:12</a>
+
+空名司马懿2个防一开打我甚至是0啊</blockquote>
+并没有用司马懿，我一开始第十关带的都不是梅林而是琼安
+
+被打吐了才认怂回去换的人
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12061#       发表于 2024-4-12 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575996&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-12 22:14</a>
+
+并没有用司马懿，我一开始第十关带的都不是梅林而是琼安
+
+被打吐了才认怂回去换的人
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都是先看完配置和注意点再上的 （下次还敢喊简单
+
+*****
+
+####  qixinno2  
+##### 12062#       发表于 2024-4-12 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕大佬们啥都有
+

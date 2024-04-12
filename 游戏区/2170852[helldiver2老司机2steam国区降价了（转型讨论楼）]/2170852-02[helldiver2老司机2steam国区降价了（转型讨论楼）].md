@@ -15003,3 +15003,21 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 是的,救援图的样本非常多,只考虑刷样本收益很不错,只要能带着撤离就是胜利 ...</blockquote>
 心动了，不知道单人能不能摸过去
 
+
+*****
+
+####  LrGsite  
+##### 2921#       发表于 2024-4-13 02:38
+
+[https://www.bilibili.com/video/BV1yx4y1Q7rj](https://www.bilibili.com/video/BV1yx4y1Q7rj)
+
+<img src="https://img.saraba1st.com/forum/202404/13/023733qfb8ffde4ff8h9cx.png" referrerpolicy="no-referrer">
+
+<strong>8BJF}YW%VE$WX~U8BKAYKPJ.png</strong> (368.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 02:37 上传
+
+aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

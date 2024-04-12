@@ -8428,3 +8428,22 @@ IMG_20240121_223603.jpg
 
 有些人同款可以**方方晒出来，有些人同款只能靠网友挖掘（<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 15570#       发表于 2024-4-12 19:04
+
+青木羊到底什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  傘木希美  
+##### 15571#       发表于 2024-4-12 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">说来大鼓是什么时候开始练的鼓啊，真的大只
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

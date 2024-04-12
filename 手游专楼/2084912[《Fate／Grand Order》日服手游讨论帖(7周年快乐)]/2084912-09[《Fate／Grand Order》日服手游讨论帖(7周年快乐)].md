@@ -244,3 +244,64 @@
 我觉得这楼里大概就你一个人开始打了（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草   这次感觉我不好打 
 
+
+*****
+
+####  qixinno2  
+##### 12006#       发表于 2024-4-12 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我过了 最后一关黑杯新伯爵太无情了 宝具必晕 最后一管血直接一令咒回血 俩充能三连宝具打死
+
+
+*****
+
+####  v22325  
+##### 12007#       发表于 2024-4-12 19:13
+
+ 本帖最后由 v22325 于 2024-4-12 19:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 三个九十万血就把我拐用的差不多了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没抽到新伯爵感觉要完蛋
+
+*****
+
+####  alucardcz  
+##### 12008#       发表于 2024-4-12 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64573973&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 19:06</a>
+
+我过了 最后一关黑杯新伯爵太无情了 宝具必晕 最后一管血直接一令咒回血 俩充能三连宝具打死
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧洲人吗
+
+*****
+
+####  qixinno2  
+##### 12009#       发表于 2024-4-12 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574049&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 19:15</a>
+
+这就是欧洲人吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新你也有伯爵啊
+
+*****
+
+####  v22325  
+##### 12010#       发表于 2024-4-12 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我服了，黑杯+奥博龙+杀狐，换了好几个红卡打手秒不掉90w血鱼人。妈的
+
+*****
+
+####  qixinno2  
+##### 12011#       发表于 2024-4-12 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574030&amp;ptid=2084912" target="_blank">v22325 发表于 2024-4-12 19:13</a>
+
+草 三个九十万血就把我拐用的差不多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面的战斗其实只是掉专属技能的点数 反正也只能上三个角色 前面那几个大怪可以不打死 拖够回合就行
+
+留俩拐放最后打大总统  
+

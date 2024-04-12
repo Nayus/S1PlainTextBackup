@@ -9951,3 +9951,11 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 这游戏到底还有多少人在玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 3965#       发表于 2024-4-12 16:30
+
+工佬里选熊的挺多啊，还能戴上熊耳朵cos熊
+

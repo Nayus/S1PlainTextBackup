@@ -964,3 +964,23 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  iuiuk2  
+##### 12073#       发表于 2024-4-13 00:36
+
+蘑菇：你看我都把青子做进fgo了，你们就别想什么魔夜2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿提拉  
+##### 12074#       发表于 2024-4-13 00:45
+
+干也都没来，草十郎老老实实当礼装去，金狼都比他几率高
+
+希望能有柳丁
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

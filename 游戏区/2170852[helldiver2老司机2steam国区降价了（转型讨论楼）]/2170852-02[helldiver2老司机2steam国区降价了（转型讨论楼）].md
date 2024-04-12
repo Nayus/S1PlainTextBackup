@@ -14846,3 +14846,11 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  LrGsite  
+##### 2912#       发表于 2024-4-13 00:39
+
+打机器人换回传统的磁轨炮了,感觉还是可以的
+

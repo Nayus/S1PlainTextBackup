@@ -3651,3 +3651,14 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NBGI  
+##### 329#       发表于 2024-4-12 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64549307&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-10 17:47</a>
+
+灌篮高手在中国是多少同样的情怀，作品同样的粉丝向这两个应该最能对比</blockquote>
+啊？种何德何能
+

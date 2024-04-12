@@ -187,3 +187,16 @@ ryosho.jpg
 
 瓦夜有人猜的4.30号
 
+
+*****
+
+####  Jamaisvu  
+##### 639#       发表于 2024-4-12 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574650&amp;ptid=2120922" target="_blank">钟于123 发表于 2024-4-12 20:13</a>
+
+瓦夜有人猜的4.30号</blockquote>
+四月三十日是现实中的魔女之夜，不过活动一般是周四更新，估计4.25吧，活动时间和现实有个交集。
+
+这次预告好像没提新镜牢的事，下周应该实装不了，恐怕要等到5.2了...
+

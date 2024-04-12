@@ -520,3 +520,21 @@
 搞定</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新好强啊
 
+
+*****
+
+####  alucardcz  
+##### 12032#       发表于 2024-4-12 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575124&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 20:54</a>
+
+萌新好强啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先 欧 再 羡慕
+
+*****
+
+####  alucardcz  
+##### 12033#       发表于 2024-4-12 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新伯爵的宝具晕人是必中的？
+

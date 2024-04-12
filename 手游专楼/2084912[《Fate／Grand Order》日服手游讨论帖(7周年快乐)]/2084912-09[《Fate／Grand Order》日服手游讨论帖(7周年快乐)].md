@@ -197,3 +197,29 @@
 
 奥尔加真的是那种落地拖得太久，导致兴趣越来越淡的角色，现在看到就有一种“哦，你来了”的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 12001#       发表于 2024-4-12 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64573296&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-4-12 18:08</a>
+
+奥尔加真的是那种落地拖得太久，导致兴趣越来越淡的角色，现在看到就有一种“哦，你来了”的感觉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但她并没有来 真落地怕不是还有数年
+
+
+*****
+
+####  cckuku  
+##### 12002#       发表于 2024-4-12 18:26
+
+我只是对蘑菇花那么多时间在她身上有点不爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 12003#       发表于 2024-4-12 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问一下，最后一关能不能扔圣晶石的，感觉我输出好低啊
+

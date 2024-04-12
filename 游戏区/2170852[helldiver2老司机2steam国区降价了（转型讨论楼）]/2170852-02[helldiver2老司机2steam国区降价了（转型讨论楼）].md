@@ -14469,3 +14469,21 @@ sos丢过以后就不能丢了
 
 昨天测试爆狙打虫子反而把我往虫子堆里面吸我当场就绷不住了，然后是射速太慢还有拉栓动作导致一旦射空就会很难受，基本上来说很难替代焦土和机炮
 
+
+*****
+
+####  暴走的包子  
+##### 2875#       发表于 2024-4-12 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥都说爆炸铳打强袭屁股可以一枪，我好几枪都打不死啊，而且爆炸太谜了，总感觉是虫子的肉会把爆炸给吃了，打隐身虫也是有时候一枪有时候两枪
+
+
+*****
+
+####  Aeons  
+##### 2876#       发表于 2024-4-12 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64568955&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-4-12 11:48</a>
+为啥都说爆炸铳打强袭屁股可以一枪，我好几枪都打不死啊，而且爆炸太谜了，总感觉是虫子的肉会把爆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还没打过虫，听说打屁股是不能秒的，打腿部和屁股连接处可以溅射秒，不知道是不是还是利用了那个bug。
+

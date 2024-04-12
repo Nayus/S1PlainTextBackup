@@ -14833,3 +14833,16 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 之前某个版本不知道更了啥，现在一进游戏风扇就直接起飞</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首日更新就有了，不少人表示被疯狂超频冒烟黑屏，我是头一次遇到
 
+
+*****
+
+####  Awanano  
+##### 2911#       发表于 2024-4-12 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575316&amp;ptid=2170852" target="_blank">断片集 发表于 2024-4-12 21:10</a>
+救世主切半自动（</blockquote>
+谢谢你，直到你说这个我才研究怎么切半自动和倍率<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+这游戏狙要是第三人称就能缩放一截就好了，像gta那样。切第一人称好怪
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

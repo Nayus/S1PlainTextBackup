@@ -724,3 +724,23 @@
 你可是课个保底的人！四舍五入几十个福袋！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以更不氪了 
 
+
+*****
+
+####  シャル  
+##### 12050#       发表于 2024-4-12 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575534&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2024-4-12 21:28</a>
+
+中断一下后面的队伍全部重组是不是过分了点
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版  ...</blockquote>
+中断干啥，输了从这关开始就好了
+
+*****
+
+####  exiaexa  
+##### 12051#       发表于 2024-4-12 21:40
+
+MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟自己较劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

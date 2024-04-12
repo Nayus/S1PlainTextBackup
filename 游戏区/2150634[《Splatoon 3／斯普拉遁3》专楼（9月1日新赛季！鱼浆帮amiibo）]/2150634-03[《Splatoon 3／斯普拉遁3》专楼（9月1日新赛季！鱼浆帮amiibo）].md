@@ -9959,3 +9959,13 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 工佬里选熊的挺多啊，还能戴上熊耳朵cos熊
 
+
+*****
+
+####  KBAC  
+##### 3966#       发表于 2024-4-12 21:46
+
+至今没有赛季中宣发，世锦赛是不是有大的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

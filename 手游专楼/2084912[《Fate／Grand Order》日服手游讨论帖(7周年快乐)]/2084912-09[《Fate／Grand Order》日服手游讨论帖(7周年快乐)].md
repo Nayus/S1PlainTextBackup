@@ -1042,3 +1042,16 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 搞掂了，最烦的是凯尼斯，用伊织试过，伤害不够，只能用西哥。但是西哥的对魔力经常将水梅芙的2技能顶掉导致伤害不足要重来<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sesuna  
+##### 12080#       发表于 2024-4-13 04:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64579319&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-4-13 03:48</a>
+
+搞掂了，最烦的是凯尼斯，用伊织试过，伤害不够，只能用西哥。但是西哥的对魔力经常将水梅芙的2技能顶掉导 ...</blockquote>
+其实放弃凯尼斯的掉落的标记,用妖高文单挑就基本能挨5回合了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要击杀对于单体剑外加特定拐要求偏高,感觉得不偿失
+

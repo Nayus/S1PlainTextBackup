@@ -14992,3 +14992,14 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 
 海尔迈尔和库楼三除外<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 2920#       发表于 2024-4-13 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64578923&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-13 01:54</a>
+
+是的,救援图的样本非常多,只考虑刷样本收益很不错,只要能带着撤离就是胜利 ...</blockquote>
+心动了，不知道单人能不能摸过去
+

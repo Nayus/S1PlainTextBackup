@@ -594,3 +594,93 @@
 
 中断重打是从第一回合打，用掉的令咒不退
 
+
+*****
+
+####  保罗赫伯特  
+##### 12039#       发表于 2024-4-12 21:16
+
+映像里无条件500%眩晕以前只有BBA有，但NP率和新伯爵差太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 12040#       发表于 2024-4-12 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575283&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 21:07</a>
+
+萌新刚刚又all in了 没出 怎么办 为什么不能和你一样欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是都有了么 还想追2宝啊
+
+
+*****
+
+####  alucardcz  
+##### 12041#       发表于 2024-4-12 21:17
+
+ 本帖最后由 alucardcz 于 2024-4-12 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575317&amp;ptid=2084912" target="_blank">v22325 发表于 2024-4-12 21:10</a>
+
+你一次没中断过了啊？牛逼
+
+中断重打是从第一回合打，用掉的令咒不退</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥要中断  没翻车点 倒是基本没有一层是把怪清完的 好像只有几个单体是打完的（第9层除外
+
+*****
+
+####  alucardcz  
+##### 12042#       发表于 2024-4-12 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575392&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 21:16</a>
+
+你不是都有了么 还想追2宝啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想来个2宝100+2000  可是不欧他不出啊
+
+
+*****
+
+####  qixinno2  
+##### 12043#       发表于 2024-4-12 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575417&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 21:18</a>
+
+想来个2宝100+2000  可是不欧他不出啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去氪金啊 氪金立马就出货
+
+*****
+
+####  alucardcz  
+##### 12044#       发表于 2024-4-12 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575450&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 21:21</a>
+
+去氪金啊 氪金立马就出货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无课非萌 课是不可能课的  （福袋不算课
+
+*****
+
+####  シャル  
+##### 12045#       发表于 2024-4-12 21:23
+
+嘿嘿
+
+险胜，就赢一口气
+
+13B7A19C-8897-4358-897A-3F76648564F0.jpeg
+(991.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-12 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202404/12/212309xik3kla6nfswwnc6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+401FC1B7-1F6C-49B2-A873-DC74450A628A.jpeg
+(929.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-12 21:24 上传
+
+<img src="https://img.saraba1st.com/forum/202404/12/212404jxfxguhoh40b2uxz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

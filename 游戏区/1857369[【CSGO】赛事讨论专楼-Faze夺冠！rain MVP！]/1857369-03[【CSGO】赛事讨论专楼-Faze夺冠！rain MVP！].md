@@ -288,3 +288,20 @@ G2太反人类了，tesse把送手杀都能进加时，小孩niko拿完首杀还
 图一9-24图二3-18，这盘盘四打五实在没法打</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 让老头特两个吧~！
 
+
+*****
+
+####  朔方原的星  
+##### 4267#         楼主| 发表于 2024-4-12 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575383&amp;ptid=1857369" target="_blank">宝儿 发表于 2024-4-12 21:16</a>
+让老头特两个吧~！</blockquote>
+哦我懂了你说的是对位点菜，那确实是，我以为说地图点菜
+
+*****
+
+####  ork  
+##### 4268#       发表于 2024-4-12 21:21
+
+李逵faze这个bo3道具丢呲也太多了
+

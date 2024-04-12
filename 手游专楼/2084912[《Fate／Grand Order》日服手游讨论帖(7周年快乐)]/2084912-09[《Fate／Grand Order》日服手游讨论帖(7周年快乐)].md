@@ -396,3 +396,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊 这技能点数是一时撤退不返还的吧？那我还退不了，一退要重打前面关，好烦啊  上次一次打完还简单点
 
+
+*****
+
+####  qixinno2  
+##### 12021#       发表于 2024-4-12 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574245&amp;ptid=2084912" target="_blank">v22325 发表于 2024-4-12 19:36</a>
+
+草 昨天打高难度摆烂把令咒用光了，等充能了再打
+
+好想直接拿圣晶石砸过去啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点数问题还真不知道 我第一次进去打了两下感觉不对 然后换了几个阵容第二次直接过得
+

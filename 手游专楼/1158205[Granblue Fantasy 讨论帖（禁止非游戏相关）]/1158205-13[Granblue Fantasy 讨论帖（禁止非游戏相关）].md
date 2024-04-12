@@ -100,3 +100,20 @@ B站直接搜光机神超法就行，4~6T一堆轴照着抄
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">1档线速终于突破四千万
 
+
+*****
+
+####  adretyu67.  
+##### 17877#       发表于 2024-4-12 18:43
+
+fkhr：你看，只要加武器，就会有人自愿坐牢
+
+*****
+
+####  神手之兔  
+##### 17878#       发表于 2024-4-12 18:44
+
+第一名太有梗了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

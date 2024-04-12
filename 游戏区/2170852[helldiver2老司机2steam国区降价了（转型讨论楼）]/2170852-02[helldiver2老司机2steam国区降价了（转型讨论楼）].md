@@ -15032,3 +15032,19 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 心动了，不知道单人能不能摸过去</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单人更可以，潜行甲猫角落登船就完了
 
+
+*****
+
+####  LrGsite  
+##### 2923#       发表于 2024-4-13 03:08
+
+<img src="https://img.saraba1st.com/forum/202404/13/030659axnmmamazq1d4mam.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ONE_RAMM(@LionelSchramm)_20240412-140009_1778785176966910256_photo.jpg</strong> (672.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 03:06 上传
+
+[Reinforcements are coming ! ](https://twitter.com/LionelSchramm/status/1778785176966910256)
+

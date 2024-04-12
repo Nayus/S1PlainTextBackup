@@ -14375,3 +14375,52 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 撤退的时候落地把飞机砸烂了，四个人对着飞机大眼瞪小眼撤退不了。然后不知怎么地有个队友上去了起飞了，起飞动画里站在飞机上的我就好像西贡铁拳那张名画一样被甩下去了....
 
+
+*****
+
+####  nukecole  
+##### 2865#       发表于 2024-4-12 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64566846&amp;ptid=2170852" target="_blank">变老的大二 发表于 2024-4-12 09:01</a>
+
+感觉就是拿盟友处理小兵，中甲单位再用爆炸狙打腿处理。这把狙不开镜的话也勉强能用。 ...</blockquote>
+我觉得不如直接带反器材，射速快，大部分能两枪带走，还能反一下无畏
+
+*****
+
+####  变老的大二  
+##### 2866#       发表于 2024-4-12 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64567121&amp;ptid=2170852" target="_blank">nukecole 发表于 2024-4-12 09:29</a>
+
+我觉得不如直接带反器材，射速快，大部分能两枪带走，还能反一下无畏</blockquote>
+反器材主要没aoe和清巢能力。要不不打算带盾的话，感觉直接上机炮得了。爆炸狙定位感觉就是小机炮。
+
+
+*****
+
+####  Cookiekira  
+##### 2867#       发表于 2024-4-12 09:35
+
+新手问一下为什么我有时候能扔sos 有时候按ctrl 列表里面又没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nukecole  
+##### 2868#       发表于 2024-4-12 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64567193&amp;ptid=2170852" target="_blank">Cookiekira 发表于 2024-4-12 09:35</a>
+
+新手问一下为什么我有时候能扔sos 有时候按ctrl 列表里面又没有呢</blockquote>
+你是房主的时候
+
+*****
+
+####  断片集  
+##### 2869#       发表于 2024-4-12 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64565747&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-12 01:00</a>
+
+榴弹手枪备弹给的也太抠了，9发，捡弹药才给一发，捡补给也才两发</blockquote>
+本质就是给你额外多带9发摔炮吧，解放你手雷位，可以带功能性手雷了
+

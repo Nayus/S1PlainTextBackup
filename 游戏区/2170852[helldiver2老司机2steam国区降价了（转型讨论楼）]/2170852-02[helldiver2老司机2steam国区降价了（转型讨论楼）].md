@@ -14487,3 +14487,19 @@ sos丢过以后就不能丢了
 为啥都说爆炸铳打强袭屁股可以一枪，我好几枪都打不死啊，而且爆炸太谜了，总感觉是虫子的肉会把爆 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还没打过虫，听说打屁股是不能秒的，打腿部和屁股连接处可以溅射秒，不知道是不是还是利用了那个bug。
 
+
+*****
+
+####  rainknine  
+##### 2877#       发表于 2024-4-12 12:09
+
+新武器越用越觉得焦土/主宰香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kalavinka  
+##### 2878#         楼主| 发表于 2024-4-12 12:13
+
+爆裂铳不穿蛋盾经常把自己打飞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">习惯切枪取消装弹时间后攻速还能接受
+

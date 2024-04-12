@@ -14715,3 +14715,11 @@ sos丢过以后就不能丢了
 铝热打中目标到爆炸的这段时间里，目标任何部位受到的损伤都会转化成穿甲7级的伤害从铝热打中的部分伤害目 ...</blockquote>
 草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  断片集  
+##### 2898#       发表于 2024-4-12 19:34
+
+假的吧，实际测了下不行啊
+

@@ -367,3 +367,32 @@
 我体感是对面攻击太高了，摆烂都很难活过五个回合，看来还是牌组太浅了。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那大鱼人我用的是兽尼C呆和徐福 第一回合攒NP 第二回合三连宝具三层对肃正 第三回合就剩兽尼对面晕了 然后混了两回合 这玩意要是六回合兽尼能打死
 
+
+*****
+
+####  v22325  
+##### 12018#       发表于 2024-4-12 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 最后用伊丽莎白把鱼人秒了，研究研究怎么打所长
+
+*****
+
+####  保罗赫伯特  
+##### 12019#       发表于 2024-4-12 19:29
+
+打到水所长了，确实难打，二血条刚上来那浪，没盾就团灭了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 12020#       发表于 2024-4-12 19:36
+
+ 本帖最后由 v22325 于 2024-4-12 19:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 昨天打高难度摆烂把令咒用光了，等充能了再打
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好想直接拿圣晶石砸过去啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊 这技能点数是一时撤退不返还的吧？那我还退不了，一退要重打前面关，好烦啊  上次一次打完还简单点
+

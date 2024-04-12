@@ -55,3 +55,11 @@
 
 【docs，一个神乐Mea也在使用的国内在线歌单文档】 [https://www.bilibili.com/video/B ... 86527b42f5ec3ffa9b6](https://www.bilibili.com/video/BV17x4y1e7XS/?share_source=copy_web&amp;vd_source=f783291f4748c86527b42f5ec3ffa9b6)
 
+
+*****
+
+####  sino__unnko3  
+##### 16417#       发表于 2024-4-12 19:28
+
+最近在忙毕设，拿你麻2月的某次1小时+的杂谈搓了个训练集，今天心血来潮用这次联动的文本试试AI语音，看看效果如何[https://wormhole.app/exo5Y#AWZH4KFu-MN7eAutiegiSg](https://wormhole.app/exo5Y#AWZH4KFu-MN7eAutiegiSg)
+

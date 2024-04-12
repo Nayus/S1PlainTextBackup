@@ -3681,3 +3681,14 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 啊？种何德何能</blockquote>
 哎，不好意思，确实比不了6.6亿这个水平真的太恐怖了
 
+
+*****
+
+####  王留美  
+##### 332#       发表于 2024-4-12 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64572984&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-12 17:36</a>
+ 哎，不好意思，确实比不了6.6亿这个水平真的太恐怖了</blockquote>
+在国内灌篮是电视台世代，种是互联网1.0世代
+本来就不能相提并论的，更不要说灌篮还有漫画的多媒体加持
+

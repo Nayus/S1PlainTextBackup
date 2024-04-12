@@ -14628,3 +14628,11 @@ sos丢过以后就不能丢了
 说起离子喷
 为什么明明叫雷霆却不吃新模块的电弧多跳加成<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 2892#       发表于 2024-4-12 17:45
+
+离子喷之前不还是被骂弹道如尿路吗，这么好？
+

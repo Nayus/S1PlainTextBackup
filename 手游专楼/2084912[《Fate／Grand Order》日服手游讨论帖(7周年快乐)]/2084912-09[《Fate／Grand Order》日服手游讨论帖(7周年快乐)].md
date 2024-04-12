@@ -305,3 +305,65 @@
 
 留俩拐放最后打大总统  
 
+
+*****
+
+####  v22325  
+##### 12012#       发表于 2024-4-12 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574066&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 19:17</a>
+
+前面的战斗其实只是掉专属技能的点数 反正也只能上三个角色 前面那几个大怪可以不打死 拖够回合就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看有人说点数不打够也不好打啊？那我先躺过鱼人看看
+
+*****
+
+####  qixinno2  
+##### 12013#       发表于 2024-4-12 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574075&amp;ptid=2084912" target="_blank">v22325 发表于 2024-4-12 19:18</a>
+
+我看有人说点数不打够也不好打啊？那我先躺过鱼人看看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我最后是黑杯1宝新伯爵 CBA和RBA 第二回合RBA充能都没放就被秒了 不光那鱼人 前面的沸羊羊我也打没死 好多多血的大怪我都清不掉 进所长时身上大概是96点
+
+*****
+
+####  v22325  
+##### 12014#       发表于 2024-4-12 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574094&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 19:20</a>
+
+反正我最后是黑杯1宝新伯爵 CBA和RBA 第二回合RBA充能都没放就被秒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧
+
+*****
+
+####  alucardcz  
+##### 12015#       发表于 2024-4-12 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574094&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 19:20</a>
+
+反正我最后是黑杯1宝新伯爵 CBA和RBA 第二回合RBA充能都没放就被秒了 不光那鱼人 前面的沸羊羊我也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧
+
+
+*****
+
+####  v22325  
+##### 12016#       发表于 2024-4-12 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574094&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 19:20</a>
+
+反正我最后是黑杯1宝新伯爵 CBA和RBA 第二回合RBA充能都没放就被秒了 不光那鱼人 前面的沸羊羊我也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我体感是对面攻击太高了，摆烂都很难活过五个回合，看来还是牌组太浅了。
+
+*****
+
+####  qixinno2  
+##### 12017#       发表于 2024-4-12 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574125&amp;ptid=2084912" target="_blank">v22325 发表于 2024-4-12 19:24</a>
+
+我体感是对面攻击太高了，摆烂都很难活过五个回合，看来还是牌组太浅了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那大鱼人我用的是兽尼C呆和徐福 第一回合攒NP 第二回合三连宝具三层对肃正 第三回合就剩兽尼对面晕了 然后混了两回合 这玩意要是六回合兽尼能打死
+

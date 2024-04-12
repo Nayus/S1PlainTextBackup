@@ -8447,3 +8447,19 @@ IMG_20240121_223603.jpg
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  6030sylar  
+##### 15572#       发表于 2024-4-12 19:21
+
+<img src="https://img.saraba1st.com/forum/202404/12/192059cllcfm6ul6lmtebp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-12 19:20 上传
+
+大鼓是一个双开门冰箱
+

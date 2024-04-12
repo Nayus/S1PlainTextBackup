@@ -14524,3 +14524,27 @@ sos丢过以后就不能丢了
 爆裂铳不穿蛋盾经常把自己打飞习惯切枪取消装弹时间后攻速还能接受</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上防爆甲了，体验良好
 
+
+*****
+
+####  LrGsite  
+##### 2881#       发表于 2024-4-12 12:49
+
+<img src="https://img.saraba1st.com/forum/202404/12/124851pyiqv0mfxu4oq5hx.png" referrerpolicy="no-referrer">
+
+<strong>~VHVVICC~5~1TGSINB2TN.png</strong> (67.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-12 12:48 上传
+
+开战2个月都6亿潜兵阵亡了,是不是已经赶上的战锤40k的战损了
+
+
+*****
+
+####  smdzh2  
+##### 2882#       发表于 2024-4-12 12:56
+
+两个月挂了6亿炮灰，比隔壁一小时阵亡10万50块好兄弟还夸张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

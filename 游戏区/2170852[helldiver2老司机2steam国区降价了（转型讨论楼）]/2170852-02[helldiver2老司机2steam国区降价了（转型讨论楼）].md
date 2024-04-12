@@ -14644,3 +14644,14 @@ sos丢过以后就不能丢了
 
 离子喷是曲射那个吧，电喷才是雷霆
 
+
+*****
+
+####  Mr.Hopp  
+##### 2894#       发表于 2024-4-12 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64573067&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-4-12 17:45</a>
+
+离子喷之前不还是被骂弹道如尿路吗，这么好？</blockquote>
+弹道自己要适应下。除了没法精准打弱点外还行，无畏以下的机器人就算没直接命中也能打出硬直。盾兵和火箭兵这种基本上5发一个，ATST正面有时候一发有时候两发，就算打地面也能打掉ATST。
+

@@ -440,3 +440,13 @@
 卧槽   出来抽伯爵池出了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  森兰丸  
+##### 12025#       发表于 2024-4-12 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">草这水所长真恶心啊....每消掉一层血都会放津波....前面打的徽章都用来这里交无敌了
+
+还有用兽尼怎么打上去不是红字
+

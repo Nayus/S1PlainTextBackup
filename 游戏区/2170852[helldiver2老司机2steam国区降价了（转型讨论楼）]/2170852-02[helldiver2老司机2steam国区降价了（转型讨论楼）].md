@@ -14874,3 +14874,35 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 甚至带了仨反重甲配备都觉得不够用的地步</blockquote>
 我车队（3人）是双类星体双500来处理重甲，后面还有俩迫击炮加一个emp迫击炮，虽然惊险但还是基本上能把虫子挡在第二道门的位置。体感是类星体越多越好打，其他虫子靠迫击炮和火喷爆裂铳就能处理完了。
 
+
+*****
+
+####  LrGsite  
+##### 2915#       发表于 2024-4-13 01:41
+
+<img src="https://img.saraba1st.com/forum/202404/13/013932lkbb5xaax5ghjs8a.png" referrerpolicy="no-referrer">
+
+<strong>@I@DWYE%}%0HXZ`2()4G2FF.png</strong> (360.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 01:39 上传
+
+<img src="https://img.saraba1st.com/forum/202404/13/014040i788uaoqaonbnhao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (345.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 01:40 上传
+
+<img src="https://img.saraba1st.com/forum/202404/13/014101elcunwf4bnfnf4dq.png" referrerpolicy="no-referrer">
+
+<strong>Y$[3Z`@C(GCFQHS$GTD$X}2.png</strong> (700.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 01:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">虽然箭头运营一坨屎,但是游戏的美术是真的可以,星球环境和战场氛围都很到位
+

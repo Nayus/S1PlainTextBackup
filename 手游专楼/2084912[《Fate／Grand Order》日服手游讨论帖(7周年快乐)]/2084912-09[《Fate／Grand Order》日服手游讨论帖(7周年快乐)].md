@@ -223,3 +223,24 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问一下，最后一关能不能扔圣晶石的，感觉我输出好低啊
 
+
+*****
+
+####  alucardcz  
+##### 12004#       发表于 2024-4-12 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64573490&amp;ptid=2084912" target="_blank">v22325 发表于 2024-4-12 18:27</a>
+
+问一下，最后一关能不能扔圣晶石的，感觉我输出好低啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这楼里大概就你一个人开始打了（
+
+*****
+
+####  v22325  
+##### 12005#       发表于 2024-4-12 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64573516&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 18:29</a>
+
+我觉得这楼里大概就你一个人开始打了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草   这次感觉我不好打 
+

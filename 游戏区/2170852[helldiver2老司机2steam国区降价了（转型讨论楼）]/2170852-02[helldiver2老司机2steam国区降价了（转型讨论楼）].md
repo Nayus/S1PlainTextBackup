@@ -14683,3 +14683,25 @@ sos丢过以后就不能丢了
 
 可能是整个部位，**上的评测视频反馈是无畏正面被挂铝热后被4发机炮打炸了
 
+
+*****
+
+####  Launce  
+##### 2896#       发表于 2024-4-12 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64573430&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-12 18:22</a>
+
+贴吧看到的
+
+铝热手雷的作用是在点燃期间提高目标受到的伤害
+
+这玩意的描述有毒，效果也蛮有毒的</blockquote>
+铝热打中目标到爆炸的这段时间里，目标任何部位受到的损伤都会转化成穿甲7级的伤害从铝热打中的部分伤害目标
+
+于是这里有几个bug就出来了。因为伤害是任何伤害，一些目标原本免疫的伤害也会生效
+
+比如泰坦会在这种情况下被毒气熏死
+
+本来有些大型敌人对火伤DoT有减免，或者火伤DoT对部位无效，但那部分也会被算进去
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

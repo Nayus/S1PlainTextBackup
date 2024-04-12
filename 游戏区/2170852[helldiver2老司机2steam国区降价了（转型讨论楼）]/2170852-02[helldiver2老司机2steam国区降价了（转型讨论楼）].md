@@ -14548,3 +14548,13 @@ sos丢过以后就不能丢了
 
 两个月挂了6亿炮灰，比隔壁一小时阵亡10万50块好兄弟还夸张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 2883#       发表于 2024-4-12 14:37
+
+比战锤狠多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

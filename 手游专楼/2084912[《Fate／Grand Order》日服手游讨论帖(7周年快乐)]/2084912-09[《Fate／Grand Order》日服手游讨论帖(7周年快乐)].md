@@ -752,3 +752,26 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬才配打全加成 菜B能过都要赌脸
 
+
+*****
+
+####  保罗赫伯特  
+##### 12053#       发表于 2024-4-12 21:58
+
+除了倒数两关，是可以打全加成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12054#       发表于 2024-4-12 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬才配打全加成 萌新能过就行
+
+
+*****
+
+####  alucardcz  
+##### 12055#       发表于 2024-4-12 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次其实比第1次简单多了  第1次要打死才行 外加初见杀翻了就要从头来过 
+

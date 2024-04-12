@@ -14938,3 +14938,57 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 
 是的,救援图的样本非常多,只考虑刷样本收益很不错,只要能带着撤离就是胜利
 
+
+*****
+
+####  mdk11223344  
+##### 2918#       发表于 2024-4-13 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64578828&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-13 01:41</a>
+
+虽然箭头运营一坨屎,但是游戏的美术是真的可以,星球环境和战场氛围都很到位 ...</blockquote>
+也补几张，美术确实是强，不同星球的环境氛围刻画相当牛逼，刚玩时就被惊艳到了
+
+<img src="https://img.saraba1st.com/forum/202404/13/015909vuou1ma1o1p0pmu9.jpg" referrerpolicy="no-referrer">
+
+<strong>HD2 (1).jpg</strong> (395.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 01:59 上传
+
+<img src="https://img.saraba1st.com/forum/202404/13/015909poto1gba6iy6196q.jpg" referrerpolicy="no-referrer">
+
+<strong>HD2 (2).jpg</strong> (419.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 01:59 上传
+
+<img src="https://img.saraba1st.com/forum/202404/13/015909arwkwd1knk42oidm.jpg" referrerpolicy="no-referrer">
+
+<strong>HD2 (3).jpg</strong> (165.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 01:59 上传
+
+<img src="https://img.saraba1st.com/forum/202404/13/015909sunkv6ki4apwvuiu.jpg" referrerpolicy="no-referrer">
+
+<strong>HD2 (4).jpg</strong> (169.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 01:59 上传
+
+*****
+
+####  rainknine  
+##### 2919#       发表于 2024-4-13 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64578828&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-13 01:41</a>
+虽然箭头运营一坨屎,但是游戏的美术是真的可以,星球环境和战场氛围都很到位 ...</blockquote>
+每次执行任务时，请花费2.4秒欣赏周围的景色
+
+海尔迈尔和库楼三除外<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

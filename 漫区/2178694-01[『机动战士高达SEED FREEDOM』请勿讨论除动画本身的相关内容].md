@@ -3713,3 +3713,13 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 现在的卡嘉莉和阿斯兰党无论是单人还是CP人气和吸金能力都好离谱，今天新出的CP立牌，AC已经卖光好几次，如 ...</blockquote>
 震惊jpg 我印象还停留在种命结尾ac根本没上桌，原来剧场版效应已经这样了
 
+
+*****
+
+####  shiko  
+##### 335#       发表于 2024-4-13 07:35
+
+有什么难懂的么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时尚小垃圾和香水这些本身就女粉买的多，AC无论过去还是现在都是你种女粉比例最高的
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

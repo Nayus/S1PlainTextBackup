@@ -14705,3 +14705,13 @@ sos丢过以后就不能丢了
 本来有些大型敌人对火伤DoT有减免，或者火伤DoT对部位无效，但那部分也会被算进去
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 2897#         楼主| 发表于 2024-4-12 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64573793&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-12 18:51</a>
+铝热打中目标到爆炸的这段时间里，目标任何部位受到的损伤都会转化成穿甲7级的伤害从铝热打中的部分伤害目 ...</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

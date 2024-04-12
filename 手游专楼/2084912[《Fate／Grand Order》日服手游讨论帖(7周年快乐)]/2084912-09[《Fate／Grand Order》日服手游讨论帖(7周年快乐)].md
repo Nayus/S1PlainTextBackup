@@ -1005,3 +1005,16 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 熬到fgo完结前夕一次性打包是吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 12077#       发表于 2024-4-13 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64578083&amp;ptid=2084912" target="_blank">阿提拉 发表于 2024-4-13 00:45</a>
+
+干也都没来，草十郎老老实实当礼装去，金狼都比他几率高
+
+希望能有柳丁</blockquote>
+干也没有战斗力，但草十郎有<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

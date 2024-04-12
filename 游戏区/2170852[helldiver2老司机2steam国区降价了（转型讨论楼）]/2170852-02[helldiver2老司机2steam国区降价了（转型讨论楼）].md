@@ -14863,3 +14863,14 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 虫子防卫战…好多…泰坦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 甚至带了仨反重甲配备都觉得不够用的地步
 
+
+*****
+
+####  WGTCorp  
+##### 2914#       发表于 2024-4-13 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64578282&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-4-13 00:58</a>
+虫子防卫战…好多…泰坦
+甚至带了仨反重甲配备都觉得不够用的地步</blockquote>
+我车队（3人）是双类星体双500来处理重甲，后面还有俩迫击炮加一个emp迫击炮，虽然惊险但还是基本上能把虫子挡在第二道门的位置。体感是类星体越多越好打，其他虫子靠迫击炮和火喷爆裂铳就能处理完了。
+

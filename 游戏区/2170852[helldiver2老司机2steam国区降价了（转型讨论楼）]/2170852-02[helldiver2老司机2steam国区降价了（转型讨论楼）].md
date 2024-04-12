@@ -14346,3 +14346,24 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 打机器人要打腿。除了重甲都是一枪秒。</blockquote>
 机器人火力太猛，爆弹狙射速又慢镜子又晃，很难细瞄
 
+
+*****
+
+####  变老的大二  
+##### 2862#       发表于 2024-4-12 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64566807&amp;ptid=2170852" target="_blank">nukecole 发表于 2024-4-12 08:58</a>
+
+机器人火力太猛，爆弹狙射速又慢镜子又晃，很难细瞄</blockquote>
+感觉就是拿盟友处理小兵，中甲单位再用爆炸狙打腿处理。这把狙不开镜的话也勉强能用。
+
+
+*****
+
+####  RockingHorse  
+##### 2863#       发表于 2024-4-12 09:02
+
+你们有试过第一把枪的自动模式吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前试开了一次，没把我笑死
+

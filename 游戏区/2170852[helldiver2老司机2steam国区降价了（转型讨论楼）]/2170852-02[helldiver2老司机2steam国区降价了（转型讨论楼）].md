@@ -14789,3 +14789,14 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 有没有哪个副武器比救世主弹速可能稍微慢些但是容弹量和准 ...</blockquote>
 救世主切半自动（
 
+
+*****
+
+####  smdzh2  
+##### 2906#       发表于 2024-4-12 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574765&amp;ptid=2170852" target="_blank">Cookiekira 发表于 2024-4-12 21:22</a>
+为什么我躲着呼叫飞鹰也会被怪直接发现啊</blockquote>
+你游ai的索敌逻辑：只要触发事件就拉警报
+具体例子：怪巡逻时踩到了地图默认的地雷，于是触发了警报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

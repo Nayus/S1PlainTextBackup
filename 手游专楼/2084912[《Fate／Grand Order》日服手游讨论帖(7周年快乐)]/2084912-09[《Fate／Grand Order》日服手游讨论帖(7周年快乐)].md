@@ -684,3 +684,43 @@
 
 <img src="https://img.saraba1st.com/forum/202404/12/212404jxfxguhoh40b2uxz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12046#       发表于 2024-4-12 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575457&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 21:21</a>
+
+无课非萌 课是不可能课的  （福袋不算课</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我连福袋都放弃了 反正也只会出最雷的那个 直接舍弃
+
+*****
+
+####  alucardcz  
+##### 12047#       发表于 2024-4-12 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575503&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 21:25</a>
+
+我连福袋都放弃了 反正也只会出最雷的那个 直接舍弃</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可是课个保底的人！四舍五入几十个福袋！
+
+*****
+
+####  不垃圾屌丝  
+##### 12048#       发表于 2024-4-12 21:28
+
+中断一下后面的队伍全部重组是不是过分了点<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 12049#       发表于 2024-4-12 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575527&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 21:27</a>
+
+你可是课个保底的人！四舍五入几十个福袋！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以更不氪了 
+

@@ -262,3 +262,29 @@ G2太反人类了，tesse把送手杀都能进加时，小孩niko拿完首杀还
 
 场内没场外好玩啊，官方给一部分人登记信息搞g2专属签名会，主办方签名会没安排好，还报警说有人闹事，把没签到a队的人拉拢好明天专门开签名会，太会操作了
 
+
+*****
+
+####  朔方原的星  
+##### 4265#         楼主| 发表于 2024-4-12 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575135&amp;ptid=1857369" target="_blank">宝儿 发表于 2024-4-12 20:55</a>
+还真就是互相点菜</blockquote>
+不至于，主要今天大表哥太拉裤了
+图一9-24图二3-18，这盘盘四打五实在没法打
+
+大表哥要是一直这样在关键比赛一拉到底那真要下课了
+
+
+*****
+
+####  宝儿  
+##### 4266#       发表于 2024-4-12 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575309&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-4-12 21:10</a>
+
+不至于，主要今天大表哥太拉裤了
+
+图一9-24图二3-18，这盘盘四打五实在没法打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 让老头特两个吧~！
+

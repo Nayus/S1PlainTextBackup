@@ -538,3 +538,59 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新伯爵的宝具晕人是必中的？
 
+
+*****
+
+####  qixinno2  
+##### 12034#       发表于 2024-4-12 21:03
+
+ 本帖最后由 qixinno2 于 2024-4-12 21:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575158&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 20:58</a>
+
+这新伯爵的宝具晕人是必中的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">跟板砖一样的500%晕 
+
+<img src="https://img.saraba1st.com/forum/202404/12/210319c11c5njpxiqjkqyy.png" referrerpolicy="no-referrer">
+
+<strong>4_}R$~P~$H%K(9G}C7WH~[Q.png</strong> (69.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-12 21:03 上传
+
+*****
+
+####  alucardcz  
+##### 12035#       发表于 2024-4-12 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次好像还可以中断 那理论上1天1令咒 外加徽章用来买无敌是不是可以直接晕到死  
+
+*****
+
+####  qixinno2  
+##### 12036#       发表于 2024-4-12 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是骗抽伯爵的阴谋 
+
+*****
+
+####  alucardcz  
+##### 12037#       发表于 2024-4-12 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575261&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 21:06</a>
+
+感觉是骗抽伯爵的阴谋</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新刚刚又all in了 没出 怎么办 为什么不能和你一样欧
+
+
+*****
+
+####  v22325  
+##### 12038#       发表于 2024-4-12 21:10
+
+<blockquote>alucardcz 发表于 2024-4-12 21:05
+这次好像还可以中断 那理论上1天1令咒 外加徽章用来买无敌是不是可以直接晕到死   ...</blockquote>
+你一次没中断过了啊？牛逼
+
+中断重打是从第一回合打，用掉的令咒不退
+

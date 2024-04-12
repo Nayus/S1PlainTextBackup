@@ -14778,3 +14778,14 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 
 爆狙伤害真的玄学，手气最好的时候一枪收掉4个刚下飞船的火箭蹂躏者
 
+
+*****
+
+####  断片集  
+##### 2905#       发表于 2024-4-12 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575163&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-4-12 20:59</a>
+爆炸狙习惯了节奏好爽，带条激光狗加副武器护身
+有没有哪个副武器比救世主弹速可能稍微慢些但是容弹量和准 ...</blockquote>
+救世主切半自动（
+

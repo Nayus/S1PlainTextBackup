@@ -14568,3 +14568,28 @@ sos丢过以后就不能丢了
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  白昼梦  
+##### 2885#       发表于 2024-4-12 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就五级解锁的次抛筒子或者类星体呗，说起来无畏把左手和腿打残之后就没什么威胁了
+
+
+*****
+
+####  kalavinka  
+##### 2886#         楼主| 发表于 2024-4-12 15:25
+
+草 原来鹈鹕号提醒你进圈你到时间不进的话会升空直接对周围开炮吗 我还以为会直接走了要重新叫撤离<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Awanano  
+##### 2887#       发表于 2024-4-12 15:28
+
+只要够菜就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，昨天跟朋友狼狈守点仓皇上船跳的成就，不知道是不是野人大爹有心做出来的成就
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

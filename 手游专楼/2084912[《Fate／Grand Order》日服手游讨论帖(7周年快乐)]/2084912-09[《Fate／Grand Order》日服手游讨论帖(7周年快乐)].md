@@ -458,3 +458,65 @@
 
 用提妈打还是蓝字呢，白点被动的对兽特攻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12027#       发表于 2024-4-12 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">兽尼打不是蓝字就知足吧 目前我只知道仇和弓是红字 不知道还有什么打是红字
+
+*****
+
+####  alucardcz  
+##### 12028#       发表于 2024-4-12 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575020&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-12 20:45</a>
+
+兽尼打不是蓝字就知足吧 目前我只知道仇和弓是红字 不知道还有什么打是红字 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 你怎么什么都有呢
+
+
+*****
+
+####  qixinno2  
+##### 12029#       发表于 2024-4-12 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575030&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 20:45</a>
+
+欧 你怎么什么都有呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没狗萌新角色多
+
+*****
+
+####  alucardcz  
+##### 12030#       发表于 2024-4-12 20:53
+
+<img src="https://img.saraba1st.com/forum/202404/12/205308n9w77m7ew9bf37te.jpg" referrerpolicy="no-referrer">
+
+<strong>123.jpg</strong> (540.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-12 20:53 上传
+
+<img src="https://img.saraba1st.com/forum/202404/12/205310ugxq2xn0x85kvguk.jpg" referrerpolicy="no-referrer">
+
+<strong>124.jpg</strong> (458.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-12 20:53 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞定
+
+*****
+
+####  qixinno2  
+##### 12031#       发表于 2024-4-12 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575115&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-12 20:53</a>
+
+搞定</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新好强啊
+

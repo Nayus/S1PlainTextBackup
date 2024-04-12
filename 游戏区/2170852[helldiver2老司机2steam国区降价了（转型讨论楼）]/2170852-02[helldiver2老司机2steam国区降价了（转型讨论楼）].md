@@ -14503,3 +14503,24 @@ sos丢过以后就不能丢了
 
 爆裂铳不穿蛋盾经常把自己打飞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">习惯切枪取消装弹时间后攻速还能接受
 
+
+*****
+
+####  Launce  
+##### 2879#       发表于 2024-4-12 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64569027&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-12 11:52</a>
+
+我还没打过虫，听说打屁股是不能秒的，打腿部和屁股连接处可以溅射秒，不知道是不是还是利用了那 ...</blockquote>
+不能，大概要2-3发才能把坦克虫屁股爆了
+
+*****
+
+####  Launce  
+##### 2880#       发表于 2024-4-12 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64569270&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-12 12:13</a>
+
+爆裂铳不穿蛋盾经常把自己打飞习惯切枪取消装弹时间后攻速还能接受</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上防爆甲了，体验良好
+

@@ -14609,3 +14609,11 @@ sos丢过以后就不能丢了
 
 打机器人还是喜欢离子喷，能打得大盾和火箭毫无还手之力太爽了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cloudccpro  
+##### 2890#       发表于 2024-4-12 17:18
+
+说起离子喷，确实有一批离子喷仙人，打的还挺好的（）
+

@@ -14601,3 +14601,11 @@ sos丢过以后就不能丢了
 
 爆裂铳打大盾哥火箭哥挺好用
 
+
+*****
+
+####  Mr.Hopp  
+##### 2889#       发表于 2024-4-12 16:44
+
+打机器人还是喜欢离子喷，能打得大盾和火箭毫无还手之力太爽了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

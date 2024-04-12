@@ -884,3 +884,13 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 令咒！充能！过了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  cenhr  
+##### 12065#       发表于 2024-4-12 23:52
+
+我对大统领没啥好感，赶快去死吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+累积100个左右徽章就够用了，最大的敌人是墨西哥老姐，几率无敌恶心，还有就是要等2回合等它自己定神上debuff的大鱼怪。上了后就是割草了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

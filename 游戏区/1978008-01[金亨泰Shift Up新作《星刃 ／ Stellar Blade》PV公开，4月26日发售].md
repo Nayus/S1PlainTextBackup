@@ -204,3 +204,11 @@ su的手游已经联动过尼尔了，把屁股加宽了一大圈，大卖<img s
 金亨泰访谈猛舔横尾，横尾好像完全没反映，尼尔联动无望？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">放心肯定会有
 
+
+*****
+
+####  ky7913  
+##### 702#       发表于 2024-4-13 06:13
+
+【《剑星》开发者日志第一集：旅程-哔哩哔哩】 https://b23.tv/KAUAQA5
+

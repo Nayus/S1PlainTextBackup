@@ -15021,3 +15021,14 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 
 aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 2922#       发表于 2024-4-13 03:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64579048&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-4-13 02:16</a>
+
+心动了，不知道单人能不能摸过去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单人更可以，潜行甲猫角落登船就完了
+

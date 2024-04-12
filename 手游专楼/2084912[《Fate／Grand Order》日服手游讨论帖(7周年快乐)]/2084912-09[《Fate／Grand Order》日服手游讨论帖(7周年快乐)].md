@@ -924,3 +924,43 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 大概青子5*，有珠4*，草四郎免费赠送？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 12069#       发表于 2024-4-13 00:29
+
+惊了月底啊
+
+*****
+
+####  洛克萨斯  
+##### 12070#       发表于 2024-4-13 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64577795&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-4-13 00:21</a>
+
+大概青子5*，有珠4*，草四郎免费赠送？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉是青子有珠双5，草十郎4星送，橘子姐姐四星
+
+
+*****
+
+####  Jamaisvu  
+##### 12071#       发表于 2024-4-13 00:33
+
+魔夜联动好耶！开始为有珠攒石头<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+前几天为了捞基督山二宝打了好多水漂，这次终于有正当理由停手了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 12072#       发表于 2024-4-13 00:35
+
+打所长都忘记去看广告了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/b0eb88f9d234de1865fb6f40719967cb/CMP_20240413003407615.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/435cc052ca44cf49e7c1bd0756a49acc/CMP_20240413003408860.png" referrerpolicy="no-referrer">
+攒了180个徽章进最后，无敌根本用不完，然后超人熊一张红卡一条血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

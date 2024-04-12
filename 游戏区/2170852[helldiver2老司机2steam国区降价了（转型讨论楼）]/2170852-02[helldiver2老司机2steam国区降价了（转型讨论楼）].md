@@ -14325,3 +14325,24 @@ N6机器人都这么难打吗，跟下饺子一样，走上来喷一下火直接
 
 这炸药弩也太搞笑了，420的面板加上了箭头直击的伤害，但这个伤害没有穿甲或者只是轻穿，导致这东西打武斗虫勇猛无比，打指挥官软弱无力，爆炸范围和弹夹足够小，也没法清小虫子，难道又是提前给光能者出的装备？
 
+
+*****
+
+####  变老的大二  
+##### 2860#       发表于 2024-4-12 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564926&amp;ptid=2170852" target="_blank">nukecole 发表于 2024-4-11 23:18</a>
+
+感觉爆狙打机器人有点吃力，打虫子挺好用。。。</blockquote>
+打机器人要打腿。除了重甲都是一枪秒。
+
+*****
+
+####  nukecole  
+##### 2861#       发表于 2024-4-12 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64566769&amp;ptid=2170852" target="_blank">变老的大二 发表于 2024-4-12 08:53</a>
+
+打机器人要打腿。除了重甲都是一枪秒。</blockquote>
+机器人火力太猛，爆弹狙射速又慢镜子又晃，很难细瞄
+

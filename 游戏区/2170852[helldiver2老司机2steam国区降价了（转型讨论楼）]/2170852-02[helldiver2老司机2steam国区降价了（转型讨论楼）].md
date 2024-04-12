@@ -14906,3 +14906,35 @@ Joel攻势强弩之末，没能一波打断哑铃人的脊梁，现在又要两�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">虽然箭头运营一坨屎,但是游戏的美术是真的可以,星球环境和战场氛围都很到位
 
+
+*****
+
+####  rainknine  
+##### 2916#       发表于 2024-4-13 01:50
+
+ 本帖最后由 rainknine 于 2024-4-13 01:51 编辑 
+
+说起来
+有车队的话样本其实挺好刷的
+15分钟撤离任务，可以直接把刁民科学家放在那一点都不救，所有人一起去把周围兴趣点搜了，地图小没支线没据点导致一个兴趣点能有十个稀有样本，搜完后逛街到点鹈鹕来接人回去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+于心不忍的话也可以留一个人在任务点做撤离，因为其他人在外面逛街所以任务点里几乎不怎么刷怪，做完任务就润还可以更快一点循环
+十七八分钟拿30个稀有，刷几轮就能解锁一次四级模块
+
+之前都没发现这个怎么看怎么粪的解救刁民任务，实际上在不想着救刁民之后能那么香
+
+
+*****
+
+####  LrGsite  
+##### 2917#       发表于 2024-4-13 01:54
+
+<img src="https://img.saraba1st.com/forum/202404/13/015341tp9zq7zyd90h1w9s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (571.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 01:53 上传
+
+是的,救援图的样本非常多,只考虑刷样本收益很不错,只要能带着撤离就是胜利
+

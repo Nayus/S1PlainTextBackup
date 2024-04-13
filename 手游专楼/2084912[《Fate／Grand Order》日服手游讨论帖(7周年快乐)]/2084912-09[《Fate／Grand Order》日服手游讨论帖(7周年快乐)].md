@@ -1172,3 +1172,11 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 一刻都等不了了我现在就要看到有珠卡面<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12094#       发表于 2024-4-13 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只希望不是什么强力大拐 希望是纯粹的打手定位 这样拿不到也不会太难受
+

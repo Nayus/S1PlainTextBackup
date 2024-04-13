@@ -8653,3 +8653,29 @@ magnet:?xt=urn:btih:478f8a095a14614b72bb5cf7471a8a16bdf01107&amp;dn=%5BBilibili%
 magnet:?xt=urn:btih:478f8a095a14614b72bb5cf7471a8a16bdf01107&amp;dn=%5BBilibili%20Official%5DMyGO%21%2 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/391.png" referrerpolicy="no-referrer">下的就是这个，有画面没声音，很神秘，目前正在MKV转MP4
 
+
+*****
+
+####  Nomind96  
+##### 15591#       发表于 2024-4-13 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580775&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-4-13 10:47</a>
+下的就是这个，有画面没声音，很神秘，目前正在MKV转MP4</blockquote>
+你用pikpak吗，我pikpak里有一份群友录的
+
+[https://mypikpak.com/s/VNvKMymW1jtwmDvc--oWpiyNo1](https://mypikpak.com/s/VNvKMymW1jtwmDvc--oWpiyNo1)
+MyGO！！！！！ ZEPP TOUR 2024「彷徨す 石渴望」愛知公演.mp4
+After copying the link, open the PikPak App and save the current file
+
+*****
+
+####  傘木希美  
+##### 15592#       发表于 2024-4-13 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580836&amp;ptid=2159415" target="_blank">Nomind96 发表于 2024-4-13 10:54</a>
+
+你用pikpak吗，我pikpak里有一份群友录的
+
+https://mypikpak.com/s/VNvKMymW1jtwmDvc--oWpiyNo1</blockquote>
+没用过，我先试试
+

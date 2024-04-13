@@ -15096,3 +15096,24 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 500kg鸭蛋可能是丢到山顶了，虫族某两张图的地形对跑图和飞鹰都极其不友好 ...</blockquote>
 不是，是打机器人比较空旷的地方一颗500kg没炸，而且不是一次两次了。我人倒是有时候莫名其妙死亡显示被爆炸死亡。
 
+
+*****
+
+####  DawnGuardian  
+##### 2929#       发表于 2024-4-13 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580871&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-13 10:58</a>
+
+不是，是打机器人比较空旷的地方一颗500kg没炸，而且不是一次两次了。有时候怀疑是TM机器人把掉地上的500K ...</blockquote>
+会不会是网络问题？我之前加老外高延迟房间的时候遇到过很多稀奇古怪的bug
+
+*****
+
+####  Mr.Hopp  
+##### 2930#       发表于 2024-4-13 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580904&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-4-13 11:02</a>
+
+会不会是网络问题？我之前加老外高延迟房间的时候遇到过很多稀奇古怪的bug ...</blockquote>
+这就不清楚了。我都是开加速器的，至少这两次更新前并没有这个问题，500kg都是会炸的，人也不会莫名其妙走路被炸死。
+

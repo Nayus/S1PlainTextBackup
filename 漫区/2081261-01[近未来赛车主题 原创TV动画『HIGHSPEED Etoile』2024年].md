@@ -1038,3 +1038,13 @@ O了，隔壁竞轮比这个烂得多
 
 养成系主角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么也不懂什么也不练，大烂片预感
 
+
+*****
+
+####  ohi.02  
+##### 217#       发表于 2024-4-13 09:09
+
+男解说一直在用敬语，不仅没激情，听着烦死了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

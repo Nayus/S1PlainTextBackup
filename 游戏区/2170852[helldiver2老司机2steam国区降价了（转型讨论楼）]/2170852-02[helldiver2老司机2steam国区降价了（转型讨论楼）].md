@@ -15048,3 +15048,11 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 [Reinforcements are coming ! ](https://twitter.com/LionelSchramm/status/1778785176966910256)
 
+
+*****
+
+####  Mr.Hopp  
+##### 2924#       发表于 2024-4-13 09:20
+
+500KG时不时哑弹什么情况
+

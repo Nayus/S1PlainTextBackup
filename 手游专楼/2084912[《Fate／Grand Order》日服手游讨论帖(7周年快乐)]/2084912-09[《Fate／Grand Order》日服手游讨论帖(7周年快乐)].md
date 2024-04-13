@@ -1090,3 +1090,23 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 联动前想紧急补课的问一下，魔夜很长吗？总共大约多少小时</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全文字没选项，慢慢看的话要有十几个小时吧？好多年打的了记得不大清楚，反正肯定几个小时以上。
 
+
+*****
+
+####  xunit  
+##### 12085#       发表于 2024-4-13 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64579808&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-4-13 08:34</a>
+
+联动前想紧急补课的问一下，魔夜很长吗？总共大约多少小时</blockquote>
+主线auto下来应该是20个小时左右，auto完全部内容大概26小时
+
+如果不auto、跳语音的话会快不少
+
+*****
+
+####  angelooo  
+##### 12086#       发表于 2024-4-13 09:21
+
+我去，快把有珠给我！
+

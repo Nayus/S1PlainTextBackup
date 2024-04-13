@@ -281,3 +281,14 @@
 
 终于有外景了，抱怨还是有用的
 
+
+*****
+
+####  starring  
+##### 19958#       发表于 2024-4-13 11:04
+
+新外景但是塞进星费
+鲤鱼还是长金发，应该是很早前拍的
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

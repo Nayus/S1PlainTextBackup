@@ -1220,3 +1220,18 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 用的c呆cba紫伯爵，适时开c呆宝具挡点伤害，紫伯爵技能挡一次弱体，然后看情况用5徽章技能和50徽章技能，打得很快，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反而是凯尼斯和鱼人打起来比较麻烦，我懒得重打跳过了，徽章实际也够用
 
+
+*****
+
+####  cenhr  
+##### 12099#       发表于 2024-4-13 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582826&amp;ptid=2084912" target="_blank">清河子 发表于 2024-4-13 14:46</a>
+
+129徽章 43回合比记忆中的火玛丽打的要轻松一点，徽章buff还挺好的……紫伯爵打水玛丽很喂饭。
+
+用 ...</blockquote>
+凯尼斯用武藏+孔明+梅林秒了，鱼人保证活过两回合就可以秒，我是用狂大公+C呆+女梅林
+
+123徽章打水玛丽，用双斯卡迪+令咒以及适当时候用50徽章技能和攻击消对方debuff技能就干死她了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

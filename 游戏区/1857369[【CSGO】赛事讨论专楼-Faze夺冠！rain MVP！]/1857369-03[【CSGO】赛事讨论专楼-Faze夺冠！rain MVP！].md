@@ -472,3 +472,42 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 图二赢了是好消息，甚至可以说有点意料之中，但图一没赢最大的问题是阿汤一个新指挥出道的人要和大表哥拼 ...</blockquote>
 不止过载，掉线了
 
+
+*****
+
+####  sodah  
+##### 4288#       发表于 2024-4-13 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典锤屏幕
+
+*****
+
+####  朔方原的星  
+##### 4289#         楼主| 发表于 2024-4-13 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64586139&amp;ptid=1857369" target="_blank">ork 发表于 2024-4-13 21:15</a>
+不止过载，掉线了</blockquote>
+不掉他这状态也完了眼看是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不掉都够呛能调整回来，这掉线再搞一波心态基本提前gg了
+
+*****
+
+####  keleemo123  
+##### 4290#       发表于 2024-4-13 21:16
+
+蛇鼠被刺成功了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  那由  
+##### 4291#       发表于 2024-4-13 21:18
+
+<img src="https://img.saraba1st.com/forum/202404/13/211810tzshfhe074ene7nv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (269.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 21:18 上传
+
+阴暗两兄弟，准备开宫！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

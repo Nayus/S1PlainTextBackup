@@ -1195,3 +1195,17 @@ O了，隔壁竞轮比这个烂得多
 看完第二话，这女主像极了连游戏教程都不看就直接开始玩的玩家，但是这可是赛车啊，连仪表盘看不懂这不是找 ...</blockquote>
 问就是未来科技，大部份控制和安全管理AI都搞定了，所以来个玩马里奥赛车的都能上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raimouse  
+##### 233#       发表于 2024-4-13 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把我看困了，要不你还是承认这片就是洗黑钱吧
+
+一些打架片啥的整个素人主角也就算了
+
+这种专业性那么强的竞赛片整个规则都搞不懂的主角
+
+他们该不会觉得这很潮吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

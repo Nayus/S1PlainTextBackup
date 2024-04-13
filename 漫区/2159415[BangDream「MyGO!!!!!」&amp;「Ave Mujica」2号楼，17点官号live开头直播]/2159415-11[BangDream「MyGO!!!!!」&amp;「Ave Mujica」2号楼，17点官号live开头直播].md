@@ -8782,3 +8782,14 @@ https://github.com/leiurayer/downkyi
 
 今天有什么事吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SwitimeKanga  
+##### 15601#       发表于 2024-4-13 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580771&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-4-13 10:47</a>
+有说网页缓存B站的，下来连画面都妹有(我是nyaa下的，有画面没声音</blockquote>
+nyaa这个是有音频的，但不知道用了什么音频格式，没有任何播放器能够解码出来
+<img src="https://p.sda1.dev/16/2c093c7b46e42948a050db2a00c90290/untitle.png" referrerpolicy="no-referrer">
+

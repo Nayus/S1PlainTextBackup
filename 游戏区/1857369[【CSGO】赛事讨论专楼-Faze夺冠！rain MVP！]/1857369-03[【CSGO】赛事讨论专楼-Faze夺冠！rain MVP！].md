@@ -540,3 +540,13 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 玩机器耳机都丢了吗，阿汤今天也太难受了
 
+
+*****
+
+####  朔方原的星  
+##### 4296#         楼主| 发表于 2024-4-13 21:45
+
+再接再厉从头再来吧，指挥的路还很长，输给faze也不算丢人
+
+但状态还是必须得调整回来，慢慢学指挥可以，要是狙打不明白了那真没得搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

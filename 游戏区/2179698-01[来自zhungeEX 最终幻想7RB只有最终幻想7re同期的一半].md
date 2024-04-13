@@ -492,3 +492,40 @@ rebirth这起名确实够烂的
 
 感觉应该不是这些冷饭销售太劲爆，而是没排到这堆冷饭上面的作品销量比较低迷
 
+
+*****
+
+####  大小白帝  
+##### 52#       发表于 2024-4-13 14:27
+
+<blockquote>你好s1 发表于 2024-4-13 11:34
+啊？  FF7RB不叫7-2就不是7-2了吗？
+
+  你真的觉得有人不玩FF7RE直接玩FF7RB能玩吗？ ...</blockquote>
+根据厂商研究，数字命名很容易劝退消费者，不过话说回来这个7r命名更加搞笑，让人根本不知道啥是啥
+
+*****
+
+####  hentianwuya  
+##### 53#       发表于 2024-4-13 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64581039&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-13 11:18</a>
+
+应该是后劲严重不足，欧洲三月销量排行是这样的
+
+1        EA Sports FC 24 (EA)</blockquote>
+2月份欧洲的数据当初是拿统计了5周来说事嘲讽的，现在2月又只有1天了，然后拿3月数据嘲讽，这个标准相当灵活啊，哦，我不是针对你，毕竟说统计5周的是发数据的人，说1天的是你。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  汪达  
+##### 54#       发表于 2024-4-13 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582667&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-13 14:28</a>
+
+2月份欧洲的数据当初是拿统计了5周来说事嘲讽的，现在2月又只有1天了，然后拿3月数据嘲讽，这个标准相当 ...</blockquote>
+众所周知，说一个对SE不利的事实=嘲讽
+
+你这小心脏就别往RB销量帖里钻了
+

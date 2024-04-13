@@ -1277,3 +1277,20 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 111纹章41回合，超人熊一拳一条血还是很夸张的，不过要不是所长最后把贞德一脚踢死洗了牌，估计要sl一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12105#       发表于 2024-4-13 17:03
+
+因为P阶开强化了所以开个P阶卡池吗
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yyzcacxg  
+##### 12106#       发表于 2024-4-13 17:04
+
+水所长绘里濑直接丢3令咒秒了，懒得解谜，血条上面下面的图标太多了
+

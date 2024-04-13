@@ -349,3 +349,14 @@ G了 mirage不是对手
 没看，是那个化浓妆有点胖的那个吗</blockquote>
 昨天有沟那个，今天没沟还给画面。最离谱的是残局给个小窗口放这人
 
+
+*****
+
+####  三千珈蓝  
+##### 4274#       发表于 2024-4-13 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64583726&amp;ptid=1857369" target="_blank">ork 发表于 2024-4-13 16:45</a>
+
+昨天有沟那个，今天没沟还给画面。最离谱的是残局给个小窗口放这人</blockquote>
+这么给镜头不会是来蹭流量的哪路网红吧
+

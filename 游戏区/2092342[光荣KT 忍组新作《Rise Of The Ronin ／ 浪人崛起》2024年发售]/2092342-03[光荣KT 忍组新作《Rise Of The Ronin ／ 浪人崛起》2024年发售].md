@@ -274,3 +274,18 @@
 
 打二人组杀了一个人又出来一个？气的差点没把手柄砸了
 
+
+*****
+
+####  diodio233  
+##### 2990#       发表于 2024-4-13 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575883&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-12 22:04</a>
+
+敌人进行长连段攻击的时候，玩家基本只能被动防御或者石火，打起来太憋屈了。走位在这游戏里几乎没意义，部 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忍组已经从忍龙1,2极致要求你走位的游戏
+
+慢慢变成了3re橡皮人强锁定敌人，到卧龙浪人的翻滚几乎无效走位几乎走不掉任何敌人招数的游戏了
+
+我反正觉得没有锁定就打不中人，敌人招招都是强吸附招数的游戏不如做成rpg游戏了
+

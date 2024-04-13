@@ -3759,3 +3759,27 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 要50亿？</blockquote>
 微博上有人说好像这一礼拜又是一个亿如果可以坚持到五月的话，有可能可以50亿
 
+
+*****
+
+####  死难者23er  
+##### 340#       发表于 2024-4-13 22:39
+
+我一直以为福田这个采访很多都看见了，看来还是没有
+
+<img src="https://img.saraba1st.com/forum/202404/13/223920hniquftq2t5nmizf.png" referrerpolicy="no-referrer">
+
+<strong>DDA9727A-A6B8-4FA3-974E-B2E63CBE52C3.png</strong> (400.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 22:39 上传
+
+<img src="https://img.saraba1st.com/forum/202404/13/223920da22uorl872wg8gu.png" referrerpolicy="no-referrer">
+
+<strong>1718AF0B-8A2C-40C9-9E0F-D9E08E2FDC21.png</strong> (366.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 22:39 上传
+

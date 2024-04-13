@@ -8611,3 +8611,14 @@ DOTA区置顶那一块
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚尔特留斯  
+##### 15587#       发表于 2024-4-13 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580380&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-4-13 10:07</a>
+
+看完了live想存一份，B站的存下来看不了，目前还在转格式中(有没有现成的啊，转的太慢了。。。) ...</blockquote>
+油猴装个下载视频的插件 或者chorme扩展程序下一个猫抓 或者用BBDown
+

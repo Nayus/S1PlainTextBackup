@@ -608,3 +608,16 @@ rebirth这起名确实够烂的
 
 人家清清楚楚说的是2月份一共统计了5周的数据，你这里2月就截止1天了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 61#       发表于 2024-4-13 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582983&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-13 15:03</a>
+
+我叫你去看欧洲2月份销量数据来源，你贴zhuge的预测分析帖？你是这两天被我喷得分不清东南西北了吧你？
+
+人 ...</blockquote>
+原来是这样吗？我还真没看2月销量新闻，那我误解你了，修正下之前的说法，是FF7RB次周后的3月销量没卖进前10，不是次日后
+

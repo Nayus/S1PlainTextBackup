@@ -1185,3 +1185,13 @@ O了，隔壁竞轮比这个烂得多
 
 我怀疑自己能不能坚持看完这个片子<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poonhk  
+##### 232#       发表于 2024-4-13 19:40
+
+<blockquote>arachnid 发表于 2024-4-13 16:25
+看完第二话，这女主像极了连游戏教程都不看就直接开始玩的玩家，但是这可是赛车啊，连仪表盘看不懂这不是找 ...</blockquote>
+问就是未来科技，大部份控制和安全管理AI都搞定了，所以来个玩马里奥赛车的都能上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -410,3 +410,11 @@ G了 mirage不是对手
 
 yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
+
+*****
+
+####  朔方原的星  
+##### 4281#         楼主| 发表于 2024-4-13 19:39
+
+可惜啊，图一没打赢感觉a队很难赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

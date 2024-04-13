@@ -15219,3 +15219,34 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">北欧老爷疑似偷偷把断网刷蓝币的漏洞修了，刷几次后蓝币数就不增加
 
+
+*****
+
+####  丹德里恩  
+##### 2942#       发表于 2024-4-13 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天打了好几把都是刚开始好好的，然后怪就站着不动了，我也开始不动了，最后掉线
+
+*****
+
+####  Launce  
+##### 2943#       发表于 2024-4-13 18:57
+
+<img src="https://img.saraba1st.com/forum/202404/13/185657ro795tj5zdtog1jg.png" referrerpolicy="no-referrer">
+
+<strong>%_TSR[PKOG%M{$I[}U.png</strong> (311.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 18:56 上传
+
+<img src="https://img.saraba1st.com/forum/202404/13/185659qbbbkpchx46xx2xu.png" referrerpolicy="no-referrer">
+
+<strong>2GF2{~G}7UO7D_I[S)60T]V.png</strong> (310.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 18:56 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能整点好活
+

@@ -649,3 +649,20 @@ I'm commander shepard……
 
 其实指责这指责那，无非是全都要，既要能挣钱又要能顾家还要付出情绪价值，那你自己要付出什么？答曰T0不能被定义。现在的迷茫是因为有太多不同的人骑在头上说你要这样要那样教你做人，这诸般种种和他们自己指责的社会规训又有何异？所以终极答案就是别管那么多先去整点薯条喝点小酒吃点烤肉不比什么都强？
 
+
+*****
+
+####  macos  
+##### 45#       发表于 2024-4-13 16:36
+
+沉迷抗衰老实验的亿万富豪？
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  小野賢章  
+##### 46#       发表于 2024-4-13 16:36
+
+相当于韩国男人医美增加肩宽变双开门<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

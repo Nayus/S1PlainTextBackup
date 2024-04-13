@@ -1135,3 +1135,11 @@ O了，隔壁竞轮比这个烂得多
 
 第二话绿毛都来回串场跑了还没讲搭档粉毛啥情况，加上女主宅女之前明显表演系，宅女那会又明显搞直播打游戏的，粉毛不会是女主的VTB皮吧，开个变声器提前录好赚两份钱养车队啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arachnid  
+##### 226#       发表于 2024-4-13 16:25
+
+看完第二话，这女主像极了连游戏教程都不看就直接开始玩的玩家，但是这可是赛车啊，连仪表盘看不懂这不是找死吗，确实有点离谱过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

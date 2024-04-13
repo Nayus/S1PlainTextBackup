@@ -452,3 +452,23 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 死老六一滚a队直接好起来了
 
+
+*****
+
+####  朔方原的星  
+##### 4286#         楼主| 发表于 2024-4-13 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64585641&amp;ptid=1857369" target="_blank">ork 发表于 2024-4-13 20:23</a>
+想不到吧，13-5结束ancient</blockquote>
+图二赢了是好消息，甚至可以说有点意料之中，但图一没赢最大的问题是阿汤一个新指挥出道的人要和大表哥拼三张图的战术，大概率大脑要过载了
+
+*****
+
+####  ork  
+##### 4287#       发表于 2024-4-13 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64586116&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-4-13 21:12</a>
+
+图二赢了是好消息，甚至可以说有点意料之中，但图一没赢最大的问题是阿汤一个新指挥出道的人要和大表哥拼 ...</blockquote>
+不止过载，掉线了
+

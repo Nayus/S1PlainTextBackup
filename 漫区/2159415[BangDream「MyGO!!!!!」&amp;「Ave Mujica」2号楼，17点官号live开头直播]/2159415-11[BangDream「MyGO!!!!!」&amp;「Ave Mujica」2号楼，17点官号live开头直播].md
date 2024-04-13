@@ -8632,3 +8632,24 @@ DOTA区置顶那一块
 看完了live想存一份，B站的存下来看不了，目前还在转格式中(有没有现成的啊，转的太慢了。。。) ...</blockquote>
 magnet:?xt=urn:btih:478f8a095a14614b72bb5cf7471a8a16bdf01107&amp;dn=%5BBilibili%20Official%5DMyGO%21%21%21%21%21%20ZEPP%20TOUR%202024%E3%80%8C%E5%BD%B7%E5%BE%A8%E3%81%99%E3%82%8B%E6%B8%87%E6%9C%9B%E3%80%8D%E6%84%9B%E7%9F%A5%E5%85%AC%E6%BC%94%5B1080p%5D%5BWEB-DL%5D%5BFLAC%5D%5BH.264%5D%5B%E5%AE%98%E6%96%B9%E7%AE%80%E4%BD%93%E4%B8%AD%E6%96%87%E5%AD%97%E5%B9%95%5D&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce
 
+
+*****
+
+####  傘木希美  
+##### 15589#       发表于 2024-4-13 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580479&amp;ptid=2159415" target="_blank">亚尔特留斯 发表于 2024-4-13 10:17</a>
+
+油猴装个下载视频的插件 或者chorme扩展程序下一个猫抓 或者用BBDown</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">有说网页缓存B站的，下来连画面都妹有(我是nyaa下的，有画面没声音
+
+*****
+
+####  傘木希美  
+##### 15590#       发表于 2024-4-13 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580564&amp;ptid=2159415" target="_blank">Nomind96 发表于 2024-4-13 10:26</a>
+
+magnet:?xt=urn:btih:478f8a095a14614b72bb5cf7471a8a16bdf01107&amp;dn=%5BBilibili%20Official%5DMyGO%21%2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/391.png" referrerpolicy="no-referrer">下的就是这个，有画面没声音，很神秘，目前正在MKV转MP4
+

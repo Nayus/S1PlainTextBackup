@@ -1071,3 +1071,27 @@ O了，隔壁竞轮比这个烂得多
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  Anatoly  
+##### 220#       发表于 2024-4-13 10:47
+
+<img src="https://img.saraba1st.com/forum/202404/13/104646z5cyujl8ktvcj8v8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 10:46 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草生，我已经不敢想先行放送这日本人到底是完全没看懂还是说话的艺术了
+
+
+*****
+
+####  yygundam  
+##### 221#       发表于 2024-4-13 10:53
+
+这第二话剧本根本是低能吧。。。。主角玩了那么久赛车游戏还能连规则以及基本常识都不懂，而且这tm还能上正赛，还边开车边和AI吵架，这哪来的弱智。
+

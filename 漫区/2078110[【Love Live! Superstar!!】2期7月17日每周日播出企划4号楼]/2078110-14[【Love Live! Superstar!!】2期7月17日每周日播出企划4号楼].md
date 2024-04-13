@@ -241,3 +241,27 @@
 
 花田在隔壁可兴奋了，看来是写的很开心，我们这边就默默等死亡通知书就行了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 19954#       发表于 2024-4-13 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580165&amp;ptid=2078110" target="_blank">优妮可 发表于 2024-4-13 09:38</a>
+
+感觉闺泣好坏，也影响不到星三了。认了</blockquote>
+说难听呢，闺泣拍的好，说明你拉高层都是傻逼，这次倒霉到我推上了，我认了。闺泣拍的烂，说明你花田就是业界败类，赶紧给我退休滚蛋不要出现在我视线里，还有星3给我降板。
+
+其实反过来说也可以，闺泣拍的好，凭什么我星团剧本一团烂泥，你花田没职业素养。正话反话都可以说。
+
+不过我还是觉得很诡异，拍的好就是花田领，拍的烂导演背锅，凭什么不是酒井翻案啊，酒井除了意识流的地方是没水平做到大家看得爽的程度，其他发挥依然很稳，总不能丰富的微表情分镜也是花田上去调的吧，很明显这次导演功劳也很大。
+
+*****
+
+####  ViyViy  
+##### 19955#       发表于 2024-4-13 10:09
+
+因为我叫lovelive superstar，看见名字无脑问题是我的。
+
+说不好听的，从结果论来看你星高层不见得有什么很过分的要求，你完成不好那就是有你一份，还暗戳戳委屈上了，你被封口了不代表星作为甲方是哑巴，再这么跳小心被公关架火上烤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

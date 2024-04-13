@@ -8592,3 +8592,22 @@ IMG_20240121_223603.jpg
 
 [https://twitter.com/pcxwise/status/1778841643875192868](https://twitter.com/pcxwise/status/1778841643875192868)
 
+
+*****
+
+####  基神的强袭自由  
+##### 15585#       发表于 2024-4-13 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580222&amp;ptid=2159415" target="_blank">米拉苏尔 发表于 2024-4-13 09:46</a>
+这句是从哪来的呢，经常看到有人复读</blockquote>
+DOTA区置顶那一块
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  傘木希美  
+##### 15586#       发表于 2024-4-13 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

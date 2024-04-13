@@ -1126,3 +1126,22 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 氪金<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12089#       发表于 2024-4-13 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下自己的60石 直接随缘了 坐等狗萌新到时单抽出货 十连毕业
+
+*****
+
+####  khxooo  
+##### 12090#       发表于 2024-4-13 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64579417&amp;ptid=2084912" target="_blank">sesuna 发表于 2024-4-13 04:35</a>
+其实放弃凯尼斯的掉落的标记,用妖高文单挑就基本能挨5回合了
+
+要击杀对于单体剑外加特定拐要求偏高 ...</blockquote>
+还可以吧，最终战又不需要用奥伯龙，不如用在这里。
+

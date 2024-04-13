@@ -570,3 +570,41 @@ rebirth这起名确实够烂的
 我前面帖的图，说包含2月末尾在内英国本土龙信首月销量略微超过FF7RB的，是该记者统计英国本土销量后爆料 ...</blockquote>
 这贴我嘲讽的就是你贴欧洲销量却不看原帖文章反而凭借自己的臆测在那瞎放炮这件事，至于什么英国销量、龙信2是跟FF7是差不多还是龙信2爆杀FF7，跟我说你的事没关系，你少在那转移话题，即使是污染环境也是你污染的，毕竟你又不是业内人士 ，凭啥你把业内人士的话抹掉加自己的臆测呢？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 58#       发表于 2024-4-13 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582896&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-13 14:54</a>
+
+这贴我嘲讽的就是你贴欧洲销量却不看原帖文章反而凭借自己的臆测在那瞎放炮这件事，至于什么英国销量、龙 ...</blockquote>
+<img src="https://p.sda1.dev/16/0c23ce88b33778ab63ae386c7c10db29/CMP_20240413094351241.jpg" referrerpolicy="no-referrer">
+
+看得懂英文吗？知道weaker tail是什么意思吗？
+
+放个欧洲3月销量前10名单，跟人家说确实是主楼诸葛所说的weaker tail，又变我臆测了？
+
+你有病吧
+
+*****
+
+####  石中剑二  
+##### 59#       发表于 2024-4-13 15:00
+
+搞不好第三部就是个大型dlc
+
+*****
+
+####  hentianwuya  
+##### 60#       发表于 2024-4-13 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582945&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-13 15:00</a>
+
+看得懂英文吗？知道weaker tail是什么意思吗？
+
+放个欧洲3月销量前10名单，跟人家说确实是主楼诸葛所说 ...</blockquote>
+你才有病吧，我叫你去看欧洲2月份销量数据来源，你贴zhuge的文章？
+
+人家清清楚楚说的是2月份一共统计了5周的数据，你这里2月就截止1天了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

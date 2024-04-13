@@ -418,3 +418,11 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 可惜啊，图一没打赢感觉a队很难赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 4282#         楼主| 发表于 2024-4-13 20:07
+
+这导播怎么这么喜欢盯着一个人几十秒，拷打呢搁这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

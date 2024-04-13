@@ -15303,3 +15303,19 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 很迷，游戏锁60帧显卡会起飞，换驱动锁60立马安静，占用率都一样，驱动锁帧渲染延迟高5ms
 
+
+*****
+
+####  新庄運切  
+##### 2950#       发表于 2024-4-13 20:06
+
+燃烧bug还不修是吧，火喷打了一把简直幽默，一梭子打出去一堆虫子着火，过会火灭了了一个都没死<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  九十九忍  
+##### 2951#       发表于 2024-4-13 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我反正打个日常，试把单人样本就下，真没那么好功夫跟这个浮动难度折腾
+

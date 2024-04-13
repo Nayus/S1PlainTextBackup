@@ -5095,3 +5095,11 @@ kanata今天本来跟skmt联动MH而且取消了所以应该也不是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这首歌越听越耐听,难怪强推这歌
 
+
+*****
+
+####  rs5621  
+##### 8634#       发表于 2024-4-13 20:10
+
+确实声音比以前响亮了
+

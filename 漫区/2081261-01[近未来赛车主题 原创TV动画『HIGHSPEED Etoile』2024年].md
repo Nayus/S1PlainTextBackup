@@ -1103,3 +1103,15 @@ O了，隔壁竞轮比这个烂得多
 
 训练一年什么也不懂，这怎么敢让女主上场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菲特妹  
+##### 223#       发表于 2024-4-13 13:47
+
+又吃了第二集的屎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+女主其实是很套路的设定，放别的作品可能没啥
+赛车这玩意专业程度太高就显得太弱智
+
+另外我没看过日本的赛车转播解说，都是这么闷的吗
+

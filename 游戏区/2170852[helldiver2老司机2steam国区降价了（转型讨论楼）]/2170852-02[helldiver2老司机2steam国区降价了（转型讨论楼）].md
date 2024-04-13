@@ -15161,3 +15161,13 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 萌新打了几天终于攒出1000蓝币，想问下现在几个通行证先买哪个好啊
 
+
+*****
+
+####  Awanano  
+##### 2936#       发表于 2024-4-13 18:32
+
+这个游戏确实低能多，进sos一个撤离任务看的出来他在刷材料帮他把样本丢撤离点。都死了一次下地捡东西捡到他的炮还在想怎么丢，就被tk了。最后撤离要到点了急的立马把我踢出房<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

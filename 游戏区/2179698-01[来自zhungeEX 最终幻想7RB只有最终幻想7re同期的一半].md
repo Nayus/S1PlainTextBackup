@@ -699,3 +699,21 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ialy  
+##### 70#       发表于 2024-4-13 18:28
+
+有一说一我确实好奇第三部叫什么，不开玩笑不整活，有没有re开头的无论是念起来还是实际表达的含义都比较好听的词可以用？
+
+*****
+
+####  FROM-SOFTWARE  
+##### 71#       发表于 2024-4-13 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64584529&amp;ptid=2179698" target="_blank">zakki 发表于 2024-4-13 18:19</a>
+
+你哪看的？野村访谈都说了本来第二部打算叫reunion，但是cc重制用过了就没用 ...</blockquote>
+啊，那是我看太多rumor记串了。
+

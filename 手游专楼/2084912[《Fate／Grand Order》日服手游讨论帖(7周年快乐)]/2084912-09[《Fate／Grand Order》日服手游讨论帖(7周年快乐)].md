@@ -1307,3 +1307,30 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 用 ...</blockquote>
 借楼问一下,我的是38回合,怎么跟其他群友的40多不同?
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12108#       发表于 2024-4-13 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64584342&amp;ptid=2084912" target="_blank">sesuna 发表于 2024-4-13 18:01</a>
+借楼问一下,我的是38回合,怎么跟其他群友的40多不同?</blockquote>
+【［FGO日服］全击杀29T 霜之高兴奥尔加玛丽-哔哩哔哩】 https://b23.tv/ViGFMvl
+
+好几个可以一回合强杀的，打得快一点很正常啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  sesuna  
+##### 12109#       发表于 2024-4-13 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64584575&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2024-4-13 18:24</a>
+
+【［FGO日服］全击杀29T 霜之高兴奥尔加玛丽-哔哩哔哩】 https://b23.tv/ViGFMvl
+
+好几个可以一回合强杀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

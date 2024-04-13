@@ -511,3 +511,32 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 阴暗两兄弟，准备开宫！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 4292#       发表于 2024-4-13 21:29
+
+丑陋
+
+*****
+
+####  曼陀罗肥  
+##### 4293#       发表于 2024-4-13 21:29
+
+类人极限笑死了
+
+*****
+
+####  keleemo123  
+##### 4294#       发表于 2024-4-13 21:30
+
+阿汤最后在干嘛？？真认了？
+
+*****
+
+####  sodah  
+##### 4295#       发表于 2024-4-13 21:32
+
+玩机器耳机都丢了吗，阿汤今天也太难受了
+

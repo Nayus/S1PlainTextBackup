@@ -10135,3 +10135,46 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 平时基本不打涂地吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 3985#       发表于 2024-4-13 14:50
+
+😭牢湾～
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  墨染白泉  
+##### 3986#       发表于 2024-4-13 14:51
+
+弯弯要被无情4比0了
+
+
+*****
+
+####  KBAC  
+##### 3987#       发表于 2024-4-13 14:54
+
+怎么只会长热泡和太空枪啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  oi99o  
+##### 3988#       发表于 2024-4-13 14:56
+
+重在参与<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 3989#       发表于 2024-4-13 14:56
+
+差距太大了，打多少局输多少局
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

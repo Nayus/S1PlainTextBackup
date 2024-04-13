@@ -1210,3 +1210,13 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">徽章后面几乎都用在最便宜的加np减cd了，伯爵能撑到最后一管血的话一直眩晕还是爽的
 
+
+*****
+
+####  清河子  
+##### 12098#       发表于 2024-4-13 14:46
+
+129徽章 43回合<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">比记忆中的火玛丽打的要轻松一点，徽章buff还挺好的……紫伯爵打水玛丽很喂饭。
+
+用的c呆cba紫伯爵，适时开c呆宝具挡点伤害，紫伯爵技能挡一次弱体，然后看情况用5徽章技能和50徽章技能，打得很快，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反而是凯尼斯和鱼人打起来比较麻烦，我懒得重打跳过了，徽章实际也够用
+

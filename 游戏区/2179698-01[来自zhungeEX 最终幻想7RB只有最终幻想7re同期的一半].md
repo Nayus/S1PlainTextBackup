@@ -542,3 +542,31 @@ rebirth这起名确实够烂的
 你这小心脏就别往RB销量帖里钻了</blockquote>
 我只是在提醒你这个喜欢搬数据的人，人家贴的数据还附有文字说明的，你自己不看就急急忙忙给了个想当然的解释，就相当于我刚把脚抬起来，你自己把头伸到我脚下，那我不狠踹你一脚我对得起你吗？<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 56#       发表于 2024-4-13 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582735&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-13 14:37</a>
+
+我只是在提醒你这个喜欢搬数据的人，人家贴的数据还附有文字说明的，你自己不看就急急忙忙给了个想当然的 ...</blockquote>
+我前面帖的图，说包含2月末尾在内英国本土龙信首月销量略微超过FF7RB的，是该记者统计英国本土销量后爆料的推文
+
+我搬的销量排行，是整个欧洲3月销量，统计不含2月末尾FF7RB售卖那一天
+
+我也明确说了我推测FF7RB的全球销量应该跟龙信2差不多，按你的意思我同时在嘲讽FF7RB和龙信2了
+
+你理解不了没必要强行尬聊，突然发病能不能找找地方，见到我发点销量信息就上窜下跳有点污染环境了
+
+
+*****
+
+####  hentianwuya  
+##### 57#       发表于 2024-4-13 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582825&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-13 14:46</a>
+
+我前面帖的图，说包含2月末尾在内英国本土龙信首月销量略微超过FF7RB的，是该记者统计英国本土销量后爆料 ...</blockquote>
+这贴我嘲讽的就是你贴欧洲销量却不看原帖文章反而凭借自己的臆测在那瞎放炮这件事，至于什么英国销量、龙信2是跟FF7是差不多还是龙信2爆杀FF7，跟我说你的事没关系，你少在那转移话题，即使是污染环境也是你污染的，毕竟你又不是业内人士 ，凭啥你把业内人士的话抹掉加自己的臆测呢？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

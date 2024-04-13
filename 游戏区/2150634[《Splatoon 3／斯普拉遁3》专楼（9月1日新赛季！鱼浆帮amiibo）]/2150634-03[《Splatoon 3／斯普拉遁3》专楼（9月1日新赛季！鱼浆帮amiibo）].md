@@ -10018,3 +10018,11 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  墨染白泉  
+##### 3971#       发表于 2024-4-13 13:02
+
+世锦赛开始了
+

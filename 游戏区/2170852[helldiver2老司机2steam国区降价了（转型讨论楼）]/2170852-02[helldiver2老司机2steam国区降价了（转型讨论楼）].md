@@ -15267,3 +15267,13 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">现在似乎是按图或者时间有个获取上限了，等测试吧
 
+
+*****
+
+####  风萧飒  
+##### 2946#       发表于 2024-4-13 19:22
+
+好像说可以两张图换着刷
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

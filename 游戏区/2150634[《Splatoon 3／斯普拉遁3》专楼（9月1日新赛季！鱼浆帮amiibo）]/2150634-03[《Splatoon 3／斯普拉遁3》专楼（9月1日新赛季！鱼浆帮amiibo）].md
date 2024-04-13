@@ -10297,3 +10297,17 @@ https://youtu.be/DBeY3qvyo2w?si=xH5oE2xXuer64_bm</blockquote>
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  苍蓝之枪  
+##### 4001#       发表于 2024-4-14 00:27
+
+除了精英枪全都是涂不了墙的，尤其是那SB炮抽象极了，既维持不了环境，又没本事出差
+
+清杂清了半天结果环境还是崩掉，潜水鱼过来几个就要命
+
+卷堡这图又是不太需要刷子的
+
+好不容易打上900结果还给我整掉线
+

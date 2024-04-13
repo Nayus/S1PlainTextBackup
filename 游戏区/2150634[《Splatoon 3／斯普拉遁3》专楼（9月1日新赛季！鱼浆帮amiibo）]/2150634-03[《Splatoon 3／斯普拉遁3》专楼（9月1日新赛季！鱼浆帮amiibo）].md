@@ -10211,3 +10211,27 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  oi99o  
+##### 3994#       发表于 2024-4-13 16:55
+
+明天的对战表和规则
+
+<img src="https://img.saraba1st.com/forum/202404/13/165500voofttxozoqxdvj3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 16:55 上传
+
+<img src="https://img.saraba1st.com/forum/202404/13/165504uhxxcs8b899xcz5d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (312.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 16:55 上传
+

@@ -10026,3 +10026,12 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 世锦赛开始了
 
+
+*****
+
+####  carroy  
+##### 3972#       发表于 2024-4-13 13:08
+
+大家都是西服 好不习惯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+田口这看起来也太正经人了
+

@@ -1095,3 +1095,11 @@ O了，隔壁竞轮比这个烂得多
 
 这第二话剧本根本是低能吧。。。。主角玩了那么久赛车游戏还能连规则以及基本常识都不懂，而且这tm还能上正赛，还边开车边和AI吵架，这哪来的弱智。
 
+
+*****
+
+####  Gysumitka  
+##### 222#       发表于 2024-4-13 13:13
+
+训练一年什么也不懂，这怎么敢让女主上场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

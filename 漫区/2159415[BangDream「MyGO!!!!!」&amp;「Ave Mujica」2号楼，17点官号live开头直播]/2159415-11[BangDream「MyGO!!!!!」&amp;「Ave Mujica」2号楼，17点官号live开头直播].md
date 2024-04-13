@@ -8806,3 +8806,41 @@ nyaa这个是有音频的，但不知道用了什么音频格式，没有任何�
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">就很难顶
 
+
+*****
+
+####  御幸一也  
+##### 15603#       发表于 2024-4-13 23:19
+
+來看點ave mujica小動物<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/13/231920e434g64y0vde8kkv.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_リンゴ雨🌷︎(@Rainy_NEGI)_20240412-133442_1778778775733592447_photo.jpg</strong> (307.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 23:19 上传
+
+[https://twitter.com/Rainy_NEGI/status/1778778775733592447](https://twitter.com/Rainy_NEGI/status/1778778775733592447)
+
+*****
+
+####  亚尔特留斯  
+##### 15604#       发表于 2024-4-13 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64585831&amp;ptid=2159415" target="_blank">SwitimeKanga 发表于 2024-4-13 20:43</a>
+
+nyaa这个是有音频的，但不知道用了什么音频格式，没有任何播放器能够解码出来
+
+ ...</blockquote>
+唉 苹果
+
+<img src="https://img.saraba1st.com/forum/202404/13/232223z0e9dw2302dx0t24.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 23:22 上传
+

@@ -15171,3 +15171,30 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  smdzh2  
+##### 2937#       发表于 2024-4-13 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64584645&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-4-13 19:32</a>
+这个游戏确实低能多，进sos一个撤离任务看的出来他在刷材料帮他把样本丢撤离点。都死了一次下地捡东西捡到 ...</blockquote>
+打野建议自己开任务，遇到低能直接移交自由营
+
+*****
+
+####  smdzh2  
+##### 2938#       发表于 2024-4-13 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64584082&amp;ptid=2170852" target="_blank">超极巨鲨鲨 发表于 2024-4-13 18:31</a>
+萌新打了几天终于攒出1000蓝币，想问下现在几个通行证先买哪个好啊</blockquote>
+皿煮爆破，第二页的爆炸铳打虫子很给力，支援武器带盟友清理小虫，反坦交给队友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北条早苗  
+##### 2939#       发表于 2024-4-13 18:41
+
+只解锁一个的话，遥遥领先是最好的，镰刀是最强级别之一的主武器，离子喷是解锁焦土前对机器人最好的主武器，眩晕雷也是能改变打法的一个道具
+

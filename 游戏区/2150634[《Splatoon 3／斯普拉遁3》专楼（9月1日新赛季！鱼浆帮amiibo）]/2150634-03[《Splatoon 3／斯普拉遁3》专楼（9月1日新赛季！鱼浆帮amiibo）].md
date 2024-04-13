@@ -10008,3 +10008,13 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 冰壶活动好玩，还混到一个金
 
+
+*****
+
+####  秋月孝三  
+##### 3970#       发表于 2024-4-13 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马车8线挑决赛的导播和甲子园导播一比简直就是虫豸
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

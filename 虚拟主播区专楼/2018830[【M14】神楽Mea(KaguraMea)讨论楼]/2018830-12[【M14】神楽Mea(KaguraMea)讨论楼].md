@@ -63,3 +63,11 @@
 
 最近在忙毕设，拿你麻2月的某次1小时+的杂谈搓了个训练集，今天心血来潮用这次联动的文本试试AI语音，看看效果如何[https://wormhole.app/exo5Y#AWZH4KFu-MN7eAutiegiSg](https://wormhole.app/exo5Y#AWZH4KFu-MN7eAutiegiSg)
 
+
+*****
+
+####  TiHaru  
+##### 16418#       发表于 2024-4-14 04:02
+
+要去大人数的卡拉OK 不知道该唱什么能够让年轻男人高兴
+

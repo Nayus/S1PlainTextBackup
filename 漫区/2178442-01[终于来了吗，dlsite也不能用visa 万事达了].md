@@ -82,3 +82,17 @@ tb买bc卡挺好的，便宜
 
 怎么都在说招行免年费，那也是每年用够次数才免的
 
+
+*****
+
+####  password  
+##### 80#       发表于 2024-4-13 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64583357&amp;ptid=2178442" target="_blank">windaria 发表于 2024-4-13 15:52</a>
+
+怎么都在说招行免年费，那也是每年用够次数才免的</blockquote>
+招行是0门槛免年费，没有次数的，完全不用也不要年费
+
+[http://market.cmbchina.com/ccard/jcbpc/](http://market.cmbchina.com/ccard/jcbpc/)
+<strong>有效期内无附加条件免年费</strong>
+

@@ -1235,3 +1235,11 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 123徽章打水玛丽，用双斯卡迪+令咒以及适当时候用50徽章技能和攻击消对方debuff技能就干死她了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 12100#       发表于 2024-4-13 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来萌新奥师傅和杀狐都快要15羁绊了 焦虑起来了 倒是c呆不怎么用 还13羁绊
+

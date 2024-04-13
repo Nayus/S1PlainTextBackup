@@ -266,3 +266,11 @@
 笑死
 <img src="https://p.sda1.dev/16/c55b2d373f31cf9be2c8bd0f7bd6c5d0/CMP_20240413133246574.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SergeGlenn  
+##### 2989#       发表于 2024-4-13 22:27
+
+打二人组杀了一个人又出来一个？气的差点没把手柄砸了
+

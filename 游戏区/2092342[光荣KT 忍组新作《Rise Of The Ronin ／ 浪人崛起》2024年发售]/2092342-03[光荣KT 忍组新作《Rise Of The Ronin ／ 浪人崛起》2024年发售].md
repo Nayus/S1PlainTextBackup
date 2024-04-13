@@ -297,3 +297,11 @@
 
 在清暗夜难度的地图，之前道馆单挑全都是夜晚打的极传，所以野外boss都还挺好打的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，就是这个堆小怪真的难受。
 
+
+*****
+
+####  hkguty  
+##### 2992#       发表于 2024-4-14 00:49
+
+打铁好像是360°反应的，虽然多打一还是很憋屈
+

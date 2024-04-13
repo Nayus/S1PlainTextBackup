@@ -4427,3 +4427,11 @@ PC销量寄了，发售两天最高在线人数413。首发8折加上五一假�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Vladimeow  
+##### 433#       发表于 2024-4-14 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">就这还很多人吹比八方2好呢，我是真不理解，也不知道是没玩过八方2还是没玩过这个。确实就是原汁原味的梆硬昭和游戏体验，有很多意义不明的填充，比如原始人章节的一些物品。
+
